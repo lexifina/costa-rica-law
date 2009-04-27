@@ -195,7 +195,7 @@ Cuando los datos de ensayos, pruebas sobre seguridad sanitaria, ambiental y de e
 6.2.9 El Ministerio no aceptará certificaciones que tengan más de un año de haber sido expedidas.
 (*) 7. MODALIDADES DE REGISTRO
 A los efectos de los procedimientos necesarios para la obtención del Registro el presente Reglamento establece los siguientes tipos de registros:
-1- Registro Experimental.
+1- (Derogado por el artículo 3° del decreto ejecutivo N° 35284 del 27 de abril de 2009)
 2- Registro de ingrediente activo grado técnico.
 3- Registro de ingrediente activo grado técnico por equivalencia.
 4- Registro de plaguicidas sintéticos formulados.
@@ -205,137 +205,7 @@ Con el fin de asegurar la protección de los datos de prueba contra todo uso com
 La protección a los datos de prueba contra el uso comercial desleal será de conformidad con lo establecido en la Ley de Información no Divulgada, Ley Nº 7975 del 4 de enero de 2000 y en su Reglamento. El Ministerio deberá poner a disposición del público una lista de los productos agroquímicos nuevos a los que se otorgue un registro, que cuenten con protección de datos de prueba, indicando la fecha de expiración del plazo de protección para cada producto.
 El Ministerio no podrá divulgar los datos de prueba, excepto cuando sea necesario para proteger al público, siempre y cuando en el caso de tal divulgación, se protejan los datos de prueba contra todo uso comercial desleal, tal como se establece en este Reglamento y en la Ley de Información no Divulgada, Ley Nº 7975 del 4 de enero de 2000 y en su Reglamento.
 (*) ( Así reformada la Sección anterior por el artículo 1°, aparte e) del decreto ejecutivo N° 34903 del 21 de noviembre de 2008).
-7.1 REGISTRO EXPERIMENTAL
-El registro experimental es obligatorio en los siguientes casos:
-a) Cuando el ingrediente activo grado técnico sea nuevo (entendido como nuevo aquel ingrediente activo grado técnico aún no registrado en el país).
-b) Cuando un ingrediente activo forme parte de una formulación y no se encuentre registrado en Costa Rica. Para estos casos se podrá autorizar la importación de las formulaciones que contienen dichos ingrediente(s) activo(s) grado técnico nuevo.
-El otorgamiento del registro experimental no exime a que el ingrediente activo grado técnico tenga que ser registrado por la modalidad de registro de ingrediente activo grado técnico.
-7.1.1 REQUISITOS Y CLASIFICACIÓN DE LA INFORMACIÓN Y DOCUMENTACIÓN PARA EL REGISTRO EXPERIMENTAL
-I. Legajo administrativo del expediente:
-a) Solicitud de Registro.
-Se debe especificar el tipo de experimentación con el ingrediente activo, ya sea:
-- Para desarrollo de formulaciones,
-- Para la evaluación de eficacia, residuos y fitocompatibilidad, de las formulaciones.
-b) En el caso de plaguicidas sintéticos formulados, adjuntar:
-b.1) Diseño de Ensayos de Eficacia Agronómica y Fitotoxicidad de acuerdo con el Protocolo Patrón para Ensayo de Eficacia Biológica de Plaguicidas de Uso Agrícola, según el Anexo 5 del Decreto Ejecutivo 31961, de 26 de julio de 2004.
-b.2) Diseño de ensayos de residuos a desarrollar de acuerdo con los protocolos detallados en las Directrices sobre Ensayos de Residuos de Plaguicidas de la Organización de las Naciones Unidas para la Agricultura y la Alimentación (FAO). Los ensayos deben corresponder al menos, a un formulado experimental, a base del ingrediente activo que se somete a inscripción.
-b.3) Indicación del lugar específico donde se planea llevar a cabo los ensayos de eficacia y de residuos, tamaño de las parcelas y volumen del producto a ser utilizado por ciclo de ensayo.
-b.4) Profesional responsable del desarrollo de los ensayos, quien será también responsable de la eliminación de la cosecha experimental tendiente a evitar que la misma pueda llegar a ser consumida. Dicho profesional debe contar con grado mínimo de Licenciatura y estar inscrito en el Registro de Profesionales para investigación que lleva el Colegio de Ingenieros Agrónomos, lo cual deberá respaldar con una constancia emitida por dicho Colegio.
-c) Patrón analítico, el cual deberá contener como mínimo:
-• Nombre del principio activo.
-• Porcentaje de pureza.
-d) Comprobante de pago del arancel vigente.
-e) Toda solicitud de registro del registro experimental debe ser acompañada del proyecto de etiqueta que exhibirá el producto, redactada en español y que lleve claramente impresa la siguiente información:
-e.1) Nombre comercial o código.
-e.2) Nombre genérico.
-e.3) Clase y tipo.
-e.4) Concentración.
-e.5) Cantidad.
-e.6) La Leyenda con letra mayúscula y en color negro: “íALTO! LEA ESTA ETIQUETA ANTES DE USAR ESTE PRODUCTO. PRODUCTO PLAGUICIDA PARA USO EXPERIMENTAL”.
-e.7) La Leyenda con letra mayúscula y en color negro: “NO ALMACENAR EN CASAS DE HABITACIÓN. MANTENER ALEJADO DE LOS NIÑOS, ANIMALES DOMÉSTICOS Y LOS ALIMENTOS. DESTRUYA ESTE ENVASE DESPUÉS DE USAR ESTE PRODUCTO.”
-e.8) Instrucciones de uso: SI TRANSPORTA, MANIPULA O APLICA ESTE PRODUCTO, UTILICE EL EQUIPO DE PROTECCIÓN PERSONAL COMPLETO.
-e.9) Manejo del producto: ALMACENE EN LUGARES SEGUROS Y AIREADOS Y LEJOS DEL FUEGO. MANTÉNGASE EN SU ENVASE ORIGINAL Y CERRADO HERMÉTICAMENTE. EL TRANSPORTE DEBE HACERSE SEPARADO DE ALIMENTOS Y MEDICAMENTOS.
-e.10) Consignatario.
-e.11) Permiso de desalmacenaje.
-e.12) Fecha de permiso.
-II. Legajo de información confidencial del expediente:
-La información confidencial debe ser presentada por duplicado en un sobre, cuyos folios, original y copia, serán sellados por el funcionario receptor, siendo devuelta la copia al petente. La autoridad procederá a cerrar y lacrar el sobre, mismo que ambos firmarán de forma tal que cuando el sobre sea abierto por el funcionario responsable de la información confidencial tenga la certeza que la confidencialidad no ha sido violada, en caso de no seguirse el anterior procedimiento y formalidades, la unidad que administra el registro del SFE no recibirá la información.
-Dentro del sobre el registrante deberá presentar la siguiente información:
-a) Composición cuali-cuantitativa del ingrediente activo grado técnico deberá ser firmada por el Representante Legal, la cual contendrá únicamente el detalle acerca de la concentración mínima del ingrediente activo.
-b) Análisis de la identidad del ingrediente activo grado técnico: el cual estará constituido por un conjunto de determinaciones analíticas que permitan establecer la composición, la constitución y la configuración molecular del ingrediente activo en forma indubitable. Para ello, se deberán presentar, al menos DOS (2) espectros del ingrediente activo grado técnico, de entre los siguientes: IR, RMN, Masas y UV-VIS, debiendo presentar al menos uno entre RMN y Masas. Cuando la identidad de la sustancia este en duda se podrá solicitar ensayos adicionales.
-Dichos espectros se deberán acompañar con explicaciones claras y concisas de la interpretación de los mismos, conducente a demostrar la identidad de la ingrediente activo grado técnico.
-c) Método analítico: el registrante debe proveer el(los) método(s) analítico(s) apropiado(s) para los propósitos de fiscalización para el ingrediente activo. Dicho método deberá aportar, según corresponda: especificidad, linealidad, exactitud, precisión, recuperación y límite de detección.
-Describiendo claramente como se ha realizado y los resultados obtenidos. Se deberán acompañar los elementos probatorios, tales como cromatogramas (para el caso de determinaciones cromatográficas).
-En caso de ser analizable cromatográficamente se debe presentar un perfil CG o HPLC de la muestra y adjuntar la descripción de la preparación de la muestra inyectada, concentración, solvente; parámetros cromatográficos completos y el reporte en porcentaje de área de la integración del cromatograma (excepto del solvente de disolución en CG).
-d) Certificado de pureza del Patrón presentado.
-III. Legajo de información técnica del expediente:
-Esta información se presentará con la documentación dispuesta por temas, a saber:
-a) Identidad de ingrediente activo grado técnico:
-a.1) Solicitante.
-a.2) Fabricante.
-a.3) Nombre común: aceptado por ISO, o propuesto, en su orden, por BSI, ANSI, WSSA o el fabricante, hasta su aceptación o denominación por ISO. Indicar a cual corresponde.
-a.4) Número de CAS (para cada isómero o mezcla si corresponde)
-a.5) Número de CIPAC.
-a.6) Sinónimos: si los hubiere.
-a.7) Nombre Químico: aceptado o propuesto por IUPAC.
-a.8) Fórmula molecular y masa molecular.
-a.9) Fórmula estructural (Debe incluir la estereoquímica de isómeros activos si corresponde o se conocen.)
-a.10) Grupo Químico.
-b) Propiedades físicas y químicas del ingrediente activo grado técnico:
-b.1) Aspecto:
-b.1.1) Estado Físico.
-b.1.2) Color.
-b.1.3) Olor.
-b.2) Punto de Fusión: (para sustancias sólidas a temperatura ambiente).
-b.3) Punto de Ebullición (para sustancias líquidas a temperatura ambiente) OECD 103 o temperatura de descomposición.
-b.4) Densidad relativa en forma líquida. OECD 109- CIPAC MT 3/ MT 58.4.
-b.5) Presión de vapor: OECD 104 ((Para sustancias con P.E. mayor o igual a TREINTA GRADOS CENTÍGRADOS (30º C)
-b.6) Solubilidad en agua. OECD 105; CIPAC MT 157.1 y 157.2.
-b.7) Solubilidad en solventes orgánicos: mediante método adecuado y a temperatura ambiente; en un solvente polar a elección y también en un solvente no polar a elección.
-b.8) Coeficiente de partición en n-octanol/agua. OECD 107, OECD 117, FIFRA 63-11.
-b.9) Hidrólisis. FIFRA 161-1;OECD 111.
-b.10) Fotolisis.
-b.11) Acidez y Alcalinidad.
-b.12) Inflamabilidad: punto de Inflamación. CÁPAC MT 12.
-b.13) Tensión superficial: OECD 115 EEC A5.
-b.14) Propiedades explosivas. EEC A. 14; FIFRA 63-16 (Termocalorimetría diferencial).
-b.15) Propiedades oxidantes: (corrosividad). EEC A17; FIFRA 63-20.
-b.16) Reactividad con el material del envase. FIFRA 63-20.
-b.17) pH: si el ingrediente activo grado técnico es soluble o dispersable en agua. CIPAC MT 75; FIFRA 63-12.
-b.18) Constante de disociación en agua: (Sólo para las sustancias que se disocian en agua). OECD 112; FIFRA 63-10.
-b.19) Viscosidad: (para sustancias líquidas). CÁPAC MT 22.
-c) Aspectos relacionados a su uso:
-c.1) Clase de plaguicida.
-c.2) Indicar los organismos a los que va destinado el producto.
-c.3) Efecto sobre los organismos-plaga (vías de absorción de la sustancia)
-d) Datos toxicológicos del ingrediente activo grado técnico:
-d.1) Toxicidad aguda para mamíferos
-d.1.1) Dosis letal media oral aguda (DL50), expresada en mg/kg de peso corporal. Guía Técnica número 423 OECD. Este estudio se requerirá en todos los casos excepto si la el ingrediente activo grado técnico es un gas o es altamente volátil.
-d.1.2) Dosis letal dérmica aguda (DL50) expresada en mg/kg de peso corporal. Guía Técnica número 402 OECD.
-Este estudio se requerirá a menos que:
-a) El producto es un gas o es altamente volátil.
-b) El producto es corrosivo para la piel o presenta un pH menos a 2 ó 11,5.
-d.1.3) Concentración letal media aguda por inhalación (CL50), expresada en mg/L o mg/m3. Esta se solicitará cuando sea un gas o gas licuado, sea un preparado que genere humo o un fumigante, se utilice con equipo de nebulización, sea un preparado que desprenda vapor,
-sea un aerosol, sea un polvo que contenga una proporción importante de partículas con diámetro menor a 50 micrómetros, se aplique desde una aeronave, contenga sustancias activas con presión de vapor mayor a 1 x 10- 2 Pa y se vaya a utilizar en lugares cerrados, se vaya a aplicar de modo tal que genere partículas o gotas de diámetros menor a 50 micrómetros. Guía Técnica número 403 OECD.
-d.1.4) Estudio de irritación ocular y en piel y propiedades corrosivas. Cuando se
-conozca de antemano que el material es corrosivo o que no produce ningún efecto en piel y ojos se omitirá esta prueba. Guía Técnica número 405 (irritación ocular) y 404 (irritación en piel ) OECD.
-d.1.4.1) Irritación cutánea. Este estudio se requerirá a menos que:
-a) El producto es un gas o es altamente volátil.
-b) El producto es corrosivo para la piel o presenta un pH menor a 2 ó mayor a 11,5.
-d.1.4.2) Irritación ocular. Este estudio se requerirá a menos que el producto es corrosivo para la piel o presenta un pH menor a 2 ó mayor a 11,5.
-d.1.5) Sensibilización cutánea. Guía Técnica número 406 OECD. Este estudio se requerirá a menos que no ocurran en condiciones de uso, exposiciones dermales repetidas.
-d.1.6) Absorción dérmica de la ingrediente activo y de los otros compuestos de la formulación toxicológicamente relevantes. Este estudio se realizará en rata cuando la exposición a través de la piel constituya una vía de exposición importante.
-Para los requisitos solicitados en el punto d.1) se deben presentar resúmenes de los protocolos de investigación de donde se obtuvieron los valores reportados, los cuales deben contener información suficiente para su evaluación. Si la Autoridad Competente requiere mayor información podrá solicitar el estudio completo, el cual podrá ser presentado en inglés.
-d.2) Información obligatoria sobre efectos a la salud de las personas:
-d.2.1) Síntomas que presentan las intoxicaciones agudas por vía oral, dérmica e inhalatoria. Para aquellos ingredientes activos grado técnico que no exista información sobre su efecto agudo en humanos, se debe presentar información sobre el efecto en animales de experimentación.
-d.2.2) Vías de absorción del producto y el posible modo de acción tóxico si se conoce.
-d.2.3) Procedimientos para emergencia y primeros auxilios en caso de intoxicación aguda por cualquier vía de absorción.
-d.2.4) Información sobre antídotos, tratamiento médico y contraindicaciones.
-d.2.5) Información sobre casos clínicos, accidentales y deliberados cuando dicha información esté disponible.
-7.1.2. PROCEDIMIENTO PARA EL REGISTRO EXPERIMENTAL.
-7.1.2.1 RECEPCIÓN Y REVISIÓN DE LA INFORMACIÓN (PRIMERA ETAPA):
-a) El registrante deberá presentar ante la unidad que administra el registro del SFE, la solicitud de registro.
-b) La unidad que administra el registro del SFE procederá a extender un recibo que indique lo siguiente: hora y fecha de la presentación de la solicitud, muestras del producto y los envases presentados.
-c) Siempre dentro de esta etapa y cumplido el trámite de presentación y extensión del recibo de presentación, la unidad que administra elregistro del SFE procede a abrir un expediente administrativo, debidamente foliado, el cual deberá ser trasladado al oficial asignado de la unidad que administra el registro del SFE, para su revisión.
-d) El oficial de registro asignado contará con un plazo máximo de diez días hábiles para revisar que se hayan presentado todos los documentos y estudios indicados en el punto anterior, sin entrar a analizar el contenido de dicha información.
-e) Finalizada la revisión y si la solicitud está completa, se procede a notificar al registrante el número de solicitud y se procederá con el asiento de inscripción de la solicitud de registro experimental, todo ello dentro del plazo indicado en el inciso d).
-Si la solicitud está incompleta por no aportarse alguno de los documentos o requisitos, se dictará una resolución por única vez, dentro del plazo indicado en el inciso d) previniendo al petente, para que un plazo no mayor de sesenta día hábiles, el registrante presente los documentos omitidos o subsane lo señalado. En caso de incumplimiento se procederá a ordenar el archivo definitivo del expediente.
-f) Si la documentación esta completa se asigna el asiento de presentación. El asiento de presentación incluirá la siguiente información:
-f.1) Hora y fecha de presentación de la solicitud.
-f.2) Nombre y calidades del registrante o del representante legal.
-f.3) Nombre y demás cualidades del producto a registrar y la constancia de que se han presentado todos los documentos reglamentarios.
-El asiento de presentación será de numeración corrida y firmado por el encargado del registro o su subalterno debidamente autorizado.
-7.1.2.2 ANÁLISIS Y VALORACIÓN POR PARTE DEL SFE (SEGUNDA ETAPA):
-a) El oficial de registro a cargo del expediente administrativo contará con un plazo máximo de treinta días hábiles para llevar a cabo el análisis, revisión y comprobación de la veracidad de la información y de la documentación.
-b) En caso de que la información no sea clara, el SFE podrá hacer observaciones por escrito y pedir las aclaraciones pertinentes por única vez, dentro del plazo indicado en el inciso anterior.
-El administrado contará con un plazo de sesenta días hábiles para aclarar la información. Recibida la información o aclaración solicitada por el SFE, éste deberá resolver en un plazo no mayor a cinco días hábiles. Transcurrido el plazo y en caso de no subsanar la omisión se procederá a dictar la respectiva resolución ordenando el rechazo y el archivo definitivo de la solicitud.
-Esta resolución tendrá los recursos de revocatoria y apelación ante el Director Ejecutivo del SFE, así como recurso de revisión ante el Ministro de Agricultura y Ganadería, quien agota la vía administrativa.
-7.1.2.3 DICTADO DE LA RESOLUCIÓN ADMINISTRATIVA (TERCERA ETAPA):
-a) Concluido el análisis se procede a dictar y a notificar, la resolución de fondo, ya sea ordenando el registro experimental, o rechazando la solicitud planteada, expresando las razones técnicas y jurídicas en las que fundamenta su criterio.
-b) Una vez firme, la resolución dictada, en caso que se rechace la inscripción se procede a archivar el expediente, en caso que sea positiva, es decir que acoja la solicitud y ordene la inscripción del producto, el expediente se pasa a la unidad que administra el registro para que proceda a inscribir el producto en el libro de inscripciones y se le asigna el respectivo número de registro; al registrante se le otorgará el correspondiente certificado de registro experimental.
-c) Otorgado el Registro Experimental, se procederá a notificar a MINSA y MINAE con propósitos de información, sobre el registro concedido.
-d) El SFE cuenta con un plazo máximo de cinco días hábiles contados a partir de concluido el análisis de la información para el dictado de dicha resolución, la emisión del certificado de registro experimental y la notificación al MINSA y MINAE.
-El certificado para uso experimental, será solo para la realización de ensayos solicitados, dejando expresa constancia que no se puede comercializar el producto, ni consumir lo cosechado.
+7.1 (Derogado por el artículo 3° del decreto ejecutivo N° 35284 del 27 de abril de 2009)
 7.2 REGISTRO DE INGREDIENTE ACTIVO GRADO TÉCNICO
 a) Esta modalidad de registro es obligatoria para todo ingrediente activo grado técnico nuevo (entendido como nuevo aquel ingrediente activo grado técnico aún no registrado en el país) y para el(los) ingrediente(s) activo(s) que compone(n) un plaguicida sintético formulado, que únicamente se le ha otorgado el registro experimental.
 b) Si el ingrediente activo grado técnico se encuentra registrado en el país, el solicitante puede optar por esta modalidad o por la modalidad de registro de ingrediente activo grado técnico por equivalencia, siempre y cuando cualquier plazo de protección contra el uso comercial desleal de los datos de prueba que se utilicen como evidencia o información de apoyo para el registro de dicho ingrediente activo grado técnico haya expirado o que el legítimo poseedor de los datos de prueba haya autorizado el uso de dichos datos de prueba. Para estos efectos, el Ministerio deberá revisar la lista indicada en el párrafo 4 de la Sección 7 de este Reglamento.
