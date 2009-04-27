@@ -1,0 +1,1 @@
+Artículo 4º—El período de inscripción de esta Categoría número 7 del Programa Bandera Azul Ecológica es de enero a abril de cada año, para lo cual, la Unión de Comités Locales del PBAE de la comunidad respectiva, enviará su solicitud de inscripción a la Comisión Nacional Interinstitucional del PBAE.

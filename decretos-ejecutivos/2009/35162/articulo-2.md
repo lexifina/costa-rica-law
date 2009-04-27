@@ -1,0 +1,1 @@
+Artículo 2º—Se crea la Categoría número 7 del Programa Bandera Azul Ecológica, denominada “Comunidad Clima Neutral”, con el objetivo de incentivar la integralidad de las 6 categorías vigentes del Programa con otras acciones de la sociedad civil, con el propósito de buscar, en forma paulatina, que nuestras comunidades sean clima neutral.

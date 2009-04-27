@@ -1,0 +1,1 @@
+Artículo 10.—Los cálculos de la compensación de emisiones de gases de efecto invernadero o su equivalente deberán ser avalados, en función de la línea base (año cero) para cada comunidad, por aquellas entidades competentes acreditadas ante el Ente Costarricense de Acreditación (ECA) y según los parámetros establecidos por el MINAET.

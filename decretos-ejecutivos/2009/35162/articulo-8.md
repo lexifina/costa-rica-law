@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión Nacional del Programa Bandera Azul Ecológica elaborará dentro del plazo máximo de seis meses, a partir de la vigencia de este Decreto, un Manual de Procedimiento para aplicar en forma práctica esta Categoría número 7 del PBAE.
