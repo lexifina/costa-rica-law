@@ -1,9 +1,0 @@
-Artículo 4º—Funciones de los Comités de Cumplimiento del Conglomerado Financiero Banco Popular. Son funciones de los Comités de Cumplimiento del conglomerado para la prevención y control de legitimación de capitales:
-a) Revisar los Reportes de Actividades Inusuales que hayan sido remitidos a las respectivas superintendencias por parte del Oficial de Cumplimiento del Conglomerado. Cuando la magnitud de los hechos, la jerarquía de los involucrados u otras circunstancias de similar gravedad lo ameriten, los Comités de Cumplimiento podrán colaborar en el análisis y valoración del Reporte de Actividades Inusuales.
-b) Recomendar a la Gerencia General de la respectiva entidad a la que pertenece el correspondiente Comité, el cierre de cuentas u otras relaciones comerciales, con aquellos clientes que, previa la investigación respectiva, se determine que presentan anomalías en sus operaciones que puedan considerarse inusuales o atípicas.
-c) Designar a cualquiera de sus integrantes para que recabe información adicional sobre los asuntos sometidos al conocimiento del Comité.
-d) Proponer a la Junta Directiva Nacional del Conglomerado Financiero Banco Popular y a la Junta Directiva de cada Sociedad la implementación de las políticas, procedimientos y normas de operación para cumplir con los lineamientos de la Ley 8204 y su normativa conexa, el Reglamento y el “Manual de Políticas, Procedimientos y Normas de Operación para la Prevención y Control de Legitimación de Capitales”.
-e) Analizar las posibles deficiencias relacionadas con el cumplimiento de los procedimientos y controles implementados, y tomar las medidas y acciones necesarias para su corrección.
-f) Las demás que indique la normativa aplicable.
-(Así reformado el inciso anterior mediante sesión N° 4615 del 13 de octubre de 2008)
-g) (Este inciso fue derogado mediante sesión N° 4615 del 13 de octubre de 2008)
