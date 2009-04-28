@@ -1,1 +1,0 @@
-Artículo 42.—Nombramiento de las comisiones. Las Comisiones de cualquier clase que fueren, serán designadas por el Presidente, a quien le corresponde también nombrar los sustitutos en caso de impedimentos, excusas, vacantes o por cualquier otro motivo que no fungiere o no pudiere actuar un miembro.

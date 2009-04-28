@@ -1,9 +1,0 @@
-Artículo 22.—Forma de votación. Las votaciones de los asuntos llegados a ese trámite serán ordinarias, secretas, nominales y aprobatorias.
-Corrientemente se usará la votación ordinaria que consiste en expresar cada miembro, de palabra, su voto, el cual debe ser afirmativo o negativo, consignándose en el acta únicamente el resultado sin indicar nombres.
-Las votaciones secretas se harán cuando así lo dispusiere la Ley, cuando el Consejo así lo dispusiere, en todas las elecciones y nombramientos y sus revocaciones de los miembros del Consejo. Se practicarán mediante boletas o papeletas sin forma ni marcas que identifiquen al votante y que serán destruidas una vez hecho el recuento.
-Las votaciones nominales, o sea con indicación en el acta de la forma en que votó cada miembro del Consejo, se hará cuando así lo dispusiere la Ley, lo solicitare un miembro del Consejo, o lo acordare el Consejo, salvo elecciones, nombramientos y sus revocatorias.
-Las votaciones aprobatorias se entenderán en los asuntos de mero trámite y demás que indica el artículo 18 en que no fuere objetada, la proposición del Presidente. Antes de votarse un asunto, si algún miembro lo solicitare, deberá leerse la parte resolutiva del proyecto del acuerdo, resolución o moción sobre el que va a recaer.
-El Presidente recibirá las votaciones y anunciará el resultado de las mismas, haciendo el recuento de los votos.
-En las votaciones ordinarias y nominales, los votos se recibirán por orden alfabético de primeros apellidos, salvo el Presidente que votará de último.
-Al momento de la votación cualquier miembro del Consejo podrá razonar su voto en el momento de la votación, o se negare a votar afirmativa o negativamente, requerido por segunda vez por el Presidente para que cumpla con su obligación no lo hiciere, se hará constar en el acta respectiva.
-Dicha situación equivaldrá a una ausencia injustificada.

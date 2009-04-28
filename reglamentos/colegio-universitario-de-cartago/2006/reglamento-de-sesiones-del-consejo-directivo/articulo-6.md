@@ -1,1 +1,0 @@
-Artículo 6º—Llegadas tardías. Iniciada la sesión el o los directores ausentes tendrán un período de gracia de un máximo de treinta minutos contados a partir de la hora del inicio de la sesión, para que ocupen su lugar e integren el Consejo. La llegada posterior a ese lapso; acarreará la pérdida de la dieta.

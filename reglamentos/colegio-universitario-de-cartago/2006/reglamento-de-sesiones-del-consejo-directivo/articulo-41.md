@@ -1,4 +1,0 @@
-Artículo 41.—Integración de las comisiones. Toda comisión de trabajo estará integrada por tres miembros, dos de los cuales deberán ser miembro del Consejo. El tercer miembro podrá ser otro Director, un funcionario o empleado del Colegio, cuyas funciones tengan atinencia con las de comisión, siempre que las labores de la comisión se efectúen en horas hábiles, o una persona ajena al Colegio de reconocido espíritu público.
-Un mismo Director no puede formar parte de tres o más comisiones ni ser Presidente de dos de ellas al mismo tiempo, salvo los casos de sustituciones temporales.
-Los miembros de las comisiones podrán ser reelectos.
-Ningún miembro de las comisiones podrá intervenir en el estudio, deliberación o dictamen sobre asunto en que tuviere interés él o sus parientes o respecto al cual hubiere suscrito la moción principal. El Presidente del Consejo no podrá ser miembro de comisión alguna.

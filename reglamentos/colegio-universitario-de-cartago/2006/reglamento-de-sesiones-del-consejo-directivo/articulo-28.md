@@ -1,1 +1,0 @@
-Artículo 28.—Revocación de acuerdos. En cualquier tiempo, el Consejo podrá revocar sus acuerdos siempre que no se hubieren agotado sus efectos, o hubieren sido modificados por Tribunales, la Contraloría General de la República, la Procuraduría de la República u otras dependencias oficiales con potestad legal para hacerlo.

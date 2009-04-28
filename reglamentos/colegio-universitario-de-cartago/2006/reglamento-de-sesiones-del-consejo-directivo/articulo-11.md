@@ -1,1 +1,0 @@
-Artículo 11.—Del Vicepresidente y el presidente ad-hoc. En caso de faltar el Presidente, sus funciones serán ejercidas por el Vicepresidente, en todos los encargados por Ley o este Reglamento a aquel funcionario y en caso de ausencia o falta de ambos, esas funciones serán ejercidas por el miembro del Consejo presente, de mayor edad.
