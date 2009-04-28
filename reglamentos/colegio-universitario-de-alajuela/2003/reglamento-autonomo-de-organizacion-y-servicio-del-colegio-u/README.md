@@ -17,3 +17,4 @@ Reglamento Autónomo de Organización y Servicio del Colegio Universitario de Al
 | 2 | 2005-06-15 | Reglamento 2289 (2005-06-15) |
 | 3 | 2006-06-02 | Reglamento 0 (2006-06-02) |
 | 4 | 2008-03-25 | Reglamento 2537 (2008-03-25) |
+| 5 | 2009-04-28 | Reglamento 2643 (2009-04-28) |
