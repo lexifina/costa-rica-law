@@ -1,0 +1,2 @@
+Artículo 15.—Redes Internacionales. Los operadores que brinden el servicio de larga distancia Internacional (LDI) deben cumplir con lo establecido en la recomendación UIT-T G.810 numeral 8.1 de la UIT-T, (las redes internacionales trabajan normalmente entre sí en modo plesiócrono).
+Conforme a la recomendación G.811, se deben satisfacer los requerimientos de no presentar más de 1 deslizamiento en 17,5 días según lo estipulado en la recomendación G.822.
