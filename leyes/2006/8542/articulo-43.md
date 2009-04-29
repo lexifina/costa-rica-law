@@ -1,1 +1,0 @@
-Artículo 43.—Parámetros de definición. El MAG, en coordinación con el Ministerio de Economía y Comercio, por medio del Reglamento de esta Ley y previa consulta con los GPO, establecerá los parámetros para definir y calificar a una persona como micro, pequeña y mediana agricultora orgánica.
