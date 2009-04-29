@@ -1,0 +1,1 @@
+Artículo 7º—Costos comunes asignables indirectamente. Los costos comunes asignables indirectamente, son aquellos costos, gastos, amortización y costos al capital, que pueden ser asignados a la provisión de un servicio en una forma no arbitraria, usando su relación con otros costos directos o directamente asignables.
