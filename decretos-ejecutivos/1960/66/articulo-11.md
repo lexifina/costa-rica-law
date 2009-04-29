@@ -1,1 +1,2 @@
-Articulo 11. Las concesiones de derecho de línea para explotar un servicio de cabotaje, sólo se otorgarán a ciudadanos costarricenses o a sociedades constituidas conforme a las leves de la República. En caso de que una sociedad solicite concesión de un servicio, es necesario que compruebe que el capital que la forma, tiene un mínimum del 60% de las acciones en manos de costarricenses.
+Artículo 11.- Anulado
+(Anulado mediante resolución la Sala Constitucional N° 6837 de 29 de abril de 2009).
