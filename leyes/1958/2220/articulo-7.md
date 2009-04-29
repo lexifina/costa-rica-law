@@ -1,1 +1,2 @@
-Artículo 7º.- La concesión de derecho de línea para explotar el servicio de cabotaje sólo se otorgará a ciudadanos costarricenses o a sociedades constituidas conforme a las leyes del país, de cuyo capital un sesenta por ciento (60%) de las acciones pertenezca a ciudadanos costarricenses.
+Artículo 7º.- Anulado
+(Anulado mediante resolución la Sala Constitucional N° 6837 de 29 de abril de 2009).
