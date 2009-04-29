@@ -1,3 +1,3 @@
-Artículo 21.- Los ascensos a clases diferentes de la inmediata superior de la misma u otra serie deberán tramitarse mediante concurso interno de acuerdo con la regulaciones que al efecto dicte la Dirección General, salvo aquellos casos en que de previo la administración solicite aplicar los procedimientos señalados en el Capítulo V de este Reglamento. Lo anterior no es aplicable para el Título II del Estatuto de Servicio Civil.
-Artículo Transitorio: Mientras la Dirección General de Servicio Civil no dicte las regulaciones a que se refiere este artículo, se seguirá aplicando el texto anterior contenido en este numeral.
-(Así Reformado por el artículo 3° del Decreto Ejecutivo No.22422-MP de 5 de agosto de 1993).
+Artículo 21.—Los ascensos a clases diferentes de la inmediata superior de la misma u otra serie deberán tramitarse mediante concurso interno de acuerdo con las regulaciones que al efecto dicte la Dirección General, salvo aquellos casos en que de previo la administración solicite aplicar los procedimientos señalados en el Capítulo V de este Reglamento. Lo anterior es aplicable al personal técnico docente y administrativo docente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35268 de 29 de abril de 2009)
+Artículo Transitorio: (Derogado por el artículo 2° del decreto ejecutivo N° 35268 de 29 de abril de 2009).
