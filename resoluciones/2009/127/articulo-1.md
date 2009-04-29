@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-127-2009.—Dirección General de Aduanas.—San José, a las catorce horas del día 13 de abril de dos mil nueve.
+Considerando:
+I.—Que es competencia del Director General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas.
+II.—Que de conformidad con el artículo 2 del Decreto Ejecutivo Nº 32456-H, publicado en La Gaceta Nº 138 del 18 de julio del 2005, el Servicio Nacional de Aduanas implementará gradualmente por aduana y por régimen aduanero, el nuevo sistema informático denominado Sistema de Información para el Control Aduanero TICA.
+III.—Que de conformidad con el artículo 4 del Decreto Ejecutivo Nº 32456-H, antes citado, la Dirección General de Aduanas comunicará entre otros, por medios de difusión escrita, el programa de implementación por aduana del sistema informático y las modificaciones, con el fin de que los usuarios del Sistema Aduanero Nacional, en adelante “el Sistema”, tomen las previsiones del caso.
+IV.—Que a efectos de la implementación del Régimen de Exportación en el Sistema TICA, esta Dirección General emitió las resoluciones DGA-155-2008 del 28 de abril de 2008, DGA-165-2008 del 08 de mayo de 2008 y la DGA-167-2008 de fecha 12 de mayo de 2008.
+V.—Que las resoluciones mencionadas anteriormente se encuentran en aplicación a partir del 21 de julio de 2008 en la aduana de Caldera y entrarán en vigencia en las demás aduanas del país conforme se implemente el módulo de exportación en cada una de una de ellas.
+VI.—Que el Ministerio de Hacienda ha considerado oportuno y necesario continuar con la implementación del sistema TICA, en lo que se refiere al módulo de exportación en la Aduana de Limón. Por tanto:
+Con fundamento en las consideraciones de hecho y derecho citadas, se comunica que a partir del 18 de mayo de 2009 se implementará en la Aduana de Limón el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA.
+Consecuentemente, las resoluciones DGA-155-2008 del 28 de abril de 2008, DGA-165-2008 y DGA 167-2008 de fechas 08 y 12 de mayo de 2008 respectivamente y cualquier otra directriz que conlleve actuaciones asociadas directamente a este sistema tendrán vigencia en la Aduana de Limón a partir del 18 de mayo de 2009.
+Comuníquese y publíquese en el Diario Oficial La Gaceta.
