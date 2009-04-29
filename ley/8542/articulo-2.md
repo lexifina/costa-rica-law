@@ -1,1 +1,0 @@
-Artículo 2º—Alcances La presente Ley promueve la actividad agropecuaria orgánica, con el propósito de lograr un efectivo beneficio para la salud humana, animal y vegetal, en conjunto, como complemento para desarrollar de políticas públicas referidas al uso del suelo, el recurso hídrico y la biodiversidad.
