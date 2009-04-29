@@ -1,0 +1,1 @@
+Artículo 19.—Determinación de la hora cargada media (hora de máximo tráfico). Para la determinación de la hora de máximo tráfico, se seguirá el procedimiento establecido en la recomendación UIT-T E.500, en cuanto a los principios de medida de intensidad de tráfico.

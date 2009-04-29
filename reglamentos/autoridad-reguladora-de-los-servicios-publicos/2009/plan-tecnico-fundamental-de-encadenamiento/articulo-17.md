@@ -1,0 +1,1 @@
+Artículo 17.—Comunicaciones por satélite. Una comunicación que utilice medios de transmisión por satélite podrá tener hasta dos (2) saltos máximo. Cuando existan varios tipos de encadenamientos posibles, se dará preferencia al encadenamiento con el menor tiempo de propagación.

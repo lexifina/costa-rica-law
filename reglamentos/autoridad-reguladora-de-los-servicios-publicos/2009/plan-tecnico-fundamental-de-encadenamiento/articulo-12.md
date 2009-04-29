@@ -1,0 +1,5 @@
+Artículo 12.—Zonas de servicios. Para los efectos del encadenamiento de las comunicaciones conforme el tipo de servicio que se preste, quedan definidas las siguientes zonas:
+• Local: Las zonas telefónicas de la red de conmutación de circuitos, se definen en función de los centros de tránsito y el manejo de tráfico, las cuales se especifican en el anexo del presente plan.
+• Móvil: Las zonas de acceso a la red de conmutación de circuitos por parte de las redes móviles, se definen en función de los puntos de interconexión de las centrales móviles a dicha red, las cuales se muestran en el anexo del presente plan.
+Los operadores y proveedores de servicios de telefonía deberán remitir a la SUTEL, trimestralmente con desglose mensual, el detalle de centrales locales y móviles, concentradores e IMAP conectados a cada centro de tránsito primario, conforme al detalle y especificaciones que indique para tal efecto el órgano regulador.
+Para efectos de tasación de las comunicaciones, el territorio nacional comprende las llamadas locales y móviles; por lo que no existen tarifas diferenciadas para el tráfico de larga distancia a nivel nacional.

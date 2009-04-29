@@ -1,0 +1,2 @@
+Artículo 20.—Cálculo del tráfico ofrecido. El tráfico ofrecido conforme a la norma UIT-T E.501 debe calcularse utilizando la intensidad del tráfico cursado, el tráfico ofrecido equivalente y la congestión de llamadas en la sección de red considerada, para la hora de máximo tráfico.
+Este procedimiento se aplicará igualmente a las centrales y a los grupos troncales de circuitos. En principio, la hora de máximo tráfico puede ser diferente para cada grupo troncal de circuitos y para cada central.

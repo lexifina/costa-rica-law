@@ -1,0 +1,4 @@
+Artículo 13.—Accesos. Los operadores o proveedores deben proveer el acceso en igualdad de condiciones desde y hacia sus usuarios, a todos los servicios ofrecidos en la red de otros operadores o proveedores.
+Con la finalidad de dar cumplimiento a las obligaciones de acceso e interconexión, los operadores y proveedores deberán prever en el diseño de sus redes la interoperabilidad con las redes existentes.
+Todos los operadores o proveedores deberán remitir la información relativa a la identificación del origen de la comunicación a otros operadores o proveedores que tengan participación en el proceso de la comunicación hasta su destino.
+Esta identificación deberá realizarse en todo intercambio de tráfico local, móvil, datos e internacional saliente. En el caso de las llamadas internacionales con destino a Costa Rica, la entrega del número que llama solo será posible cuando el operador extranjero que entrega la llamada haya incluido, en la misma, dicho parámetro.

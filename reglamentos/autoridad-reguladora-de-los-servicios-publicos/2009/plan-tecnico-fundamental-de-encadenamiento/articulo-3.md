@@ -1,0 +1,2 @@
+Artículo 3º—Alcance. El presente plan se sustenta en lo establecido en el artículo 77, inciso 2), aparte h) de la Ley General de Telecomunicaciones (Ley 8642) y es de aplicación obligatoria y requisito de cumplimiento para el diseño de proyectos de telecomunicaciones que se desarrollen de forma posterior a su entrada en vigencia.
+Los proyectos de telecomunicaciones ya instalados, deberán ser modificados o adaptarse para que estos cumplan con las disposiciones del presente reglamento.
