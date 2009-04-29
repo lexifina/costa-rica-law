@@ -1,0 +1,3 @@
+Artículo 9º—Umbrales de Retardos del Plan Técnico Fundamental de Transmisión. Para el establecimiento de estos retardos máximos de transmisión se toman como referencia los establecidos en la recomendación UIT-T G.114 anexo A “Estimación del retardo de extremo a extremo” y para las comunicaciones de Telefonía IP el apéndice II de la misma recomendación “Directrices relativas al retardo en un sentido de la transmisión de la voz por Internet”, así como el siguiente cuadro:
+[imagen]
+En todo caso el nivel de satisfacción de los usuarios respecto a índice R del modelo E (UIT-T G.107) debe mantenerse en el rango de R de 90 a 100, es decir, usuarios muy satisfechos con un retardo máximo de 150 ms.

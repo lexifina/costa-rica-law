@@ -1,0 +1,2 @@
+Artículo 13.—Retardos de transmisión para servicios multimedia. Los operadores de servicios de telecomunicaciones deberán respetar los umbrales de retardos transmisión especificados en el Apéndice I de la Recomendación de UIT-T G.1010, la cual define un modelo de categorías de calidad de servicio (QoS) para servicios multimedia desde el punto de vista del usuario extremo.
+Adicionalmente la SUTEL podrá establecer parámetros de medición y cumplimiento específicos para los servicios multimedia.

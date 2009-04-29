@@ -1,0 +1,2 @@
+Artículo 12.—Retardos de transmisión para servicios VoIP. Los operadores de servicios VoIP deberán acogerse a las directrices de planificación de redes de VoIP de extremo a extremo proporcionadas por la UIT-T en el apéndice II de la recomendación de UIT-T G.114 y su respectiva relación con los niveles de retardo de redes IP definidos en la recomendación de UIT-T Y.1541.
+Adicionalmente se deberán acatar las normas específicas en cuanto a este tipo de servicios fijadas por la SUTEL en el Reglamento de Calidad de Servicios de Telecomunicaciones.
