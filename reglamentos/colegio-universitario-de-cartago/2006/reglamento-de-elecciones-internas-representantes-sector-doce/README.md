@@ -14,3 +14,4 @@ Reglamento de Elecciones Internas representantes sector Docente, Docente Adminis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-12 | la propia norma |
+| 2 | 2009-04-30 | Reglamento 2717 (2009-04-30) |

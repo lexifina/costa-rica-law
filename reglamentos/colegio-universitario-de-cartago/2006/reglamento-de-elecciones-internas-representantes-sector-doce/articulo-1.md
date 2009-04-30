@@ -4,7 +4,8 @@ En tal sentido y con el fin de evitar la sobrecarga gráfica que supondría en e
 REGLAMENTO DE ELECCIONES INTERNAS REPRESENTANTE SECTOR DOCENTE, DOCENTE ADMINISTRATIVO, Y ADMINISTRATIVO DEL COLEGIO UNIVERSITARIO DE CARTAGO (CUC)
 CAPÍTULO I
 Del Tribunal Electoral
-Artículo 1º—El Tribunal de Elecciones del Colegio Universitario de Cartago, será integrado de la siguiente manera:
-a. Dos miembros del Consejo Directivo elegidos por el mismo consejo, que no sea el representante del Sector Docente, Docente-Administrativo, Administrativo, y del Estudiantil.
-b. El Decano.
-El Tribunal elegirá de su propio seno a un Presidente, un Secretario y un Vocal.
+Artículo 1º—El Tribunal de Elecciones del Colegio Universitario de Cartago, estará integrado de la siguiente manera:
+a) Dos miembros del Consejo de Decanatura elegidos por el mismo consejo.
+b) El Decano.
+El Tribunal elegirá de su propio seno un Presidente, un Secretario y un Vocal.
+(Así reformado mediante acuerdo N° 02 de la sesión N° 2717 y publicado en La Gaceta N° 88 del 8 de mayo de 2009)
