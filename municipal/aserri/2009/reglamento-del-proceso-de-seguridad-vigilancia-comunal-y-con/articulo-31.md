@@ -1,0 +1,1 @@
+Artículo 31.—La Comisión de Seguridad Ciudadana deberá ser juramentada por el Concejo Municipal y permanecerán en sus cargos por un período de un año, contados a partir de la fecha del nombramiento según el acuerdo municipal respectivo, salvo casos de suspensión o renuncias en que se nombrará sustituto en el acto.

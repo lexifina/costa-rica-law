@@ -1,0 +1,1 @@
+Artículo 15.—Los miembros de la Policía Municipal podrán se sujetos de pruebas antidopaje durante el ejercicio de sus funciones, de ser encontradas positivas es aplicara lo establecido en el artículo 14 de este reglamento.

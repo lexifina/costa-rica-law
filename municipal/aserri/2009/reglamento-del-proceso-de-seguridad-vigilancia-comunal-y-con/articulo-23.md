@@ -1,0 +1,1 @@
+Artículo 23.—En virtud de la naturaleza del servicio que brindan los Policías Municipales, estarán obligados a prestar servicios todos los días del año incluidos los inhábiles y feriados, previa programación de las autoridades superiores, sin perjuicio del derecho al descanso que la ley les concede.

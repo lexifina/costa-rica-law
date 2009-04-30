@@ -1,0 +1,3 @@
+Artículo 28.—Los funcionarios de la Policía Municipal, igualmente tendrán derecho a los siguientes incentivos:
+- Capacitación especializada policial; pasantías, trabajos de investigación técnico-policial y similares.
+- La Municipalidad suscribirá una póliza de Riesgo Policial que cubrirá a todos los Policías Municipales, para la cual destinará el debido contenido presupuestario. Igualmente tendrá derecho a un incentivo de carácter permanente denominado Riesgo Policial, el cual se incrementará gradualmente en los mismos términos que establezca la Dirección General de Servicio Civil sobre el particular.

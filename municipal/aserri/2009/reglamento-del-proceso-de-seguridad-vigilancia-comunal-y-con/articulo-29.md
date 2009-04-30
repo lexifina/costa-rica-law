@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Comisión de Seguridad Ciudadana
+Artículo 29.—El Concejo Municipal creará una Comisión de Seguridad Ciudadana, la cual será nombrada por el Concejo Municipal por medio del Presidente del Concejo Municipal la cual contará con los siguientes miembros de carácter fijo el Presidente Municipal, Alcalde, Jefe del Departamento de Gestión Económica y Social y Jefe del Policía Municipal, un representante del Ministerio de Seguridad Pública, el coordinador de la Policía Municipal, tres representantes de la Sociedad Civil nombrados por el presidente del Concejo Municipal y un representante de las instituciones educativas del cantón.

@@ -1,0 +1,14 @@
+Artículo 5º—El Coordinador de la Policía Municipal tendrá las siguientes atribuciones:
+- Planear, dirigir y controlar la actividad cotidiana de la Policía Municipal.
+- Formular el Plan Anual Operativo de la Policía Municipal y su respectivo presupuesto y someterlo a conocimiento de las autoridades superiores correspondientes.
+- Elaborar y remitir trimestralmente al Departamento de Gestión en Desarrollo Económico y Social un informe estadístico de la actividad de la Policía Municipal con copia al Alcalde y Concejo Municipal.
+- Establecer y mantener actualizados los procedimientos, sistemas y métodos de trabajo.
+- Tomar las medidas necesarias en caso de emergencias e informar inmediatamente a sus superiores y a otros cuerpos de la Policía Nacional.
+- Realizar cada año en coordinación con la Unidad de Recursos Humanos una evaluación del desempeño de los miembros de la Policía Municipal.
+- Tomar las disposiciones y girar las instrucciones necesarias para que la Policía Municipal cumpla con su cometido.
+- Mantener el mayor nivel de conocimiento y preparación de los policías.
+- Velar porque los policías municipales cumplan las funciones asignadas y las normas de puntualidad y disciplina.
+- Controlar todos los activos a disposición de la Policía Municipal y velar por su correcto uso y mantenimiento.
+- Formar parte de la Comisión de Prevención de Riesgos y Atención de Emergencias Cantonal, así como cualquier otro organismo a juicio de las autoridades superiores.
+- Y las demás que señalen sus superiores.
+- En el caso de que por razones de fuerza mayor o estuviera vacante la plaza de coordinador de la Policía Municipal esta será asumida por parte del Jefe del Departamento Gestión en Desarrollo Económico y Social.

@@ -1,0 +1,1 @@
+Artículo 21.—Los Policías Municipales guardarán discreción o reserva de los asuntos que conozcan por razón del ejercicio de su competencia el incumplimiento comprobado de esta disposición será contemplado según el artículo 13 de este reglamento.
