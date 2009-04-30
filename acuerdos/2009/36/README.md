@@ -14,3 +14,4 @@ Reintegra la Comisión Asesora Permanente denominada Comisión Nacional para Ved
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-11 | la propia norma |
+| 2 | 2009-04-30 | Acuerdo 150 (2009-04-30) |
