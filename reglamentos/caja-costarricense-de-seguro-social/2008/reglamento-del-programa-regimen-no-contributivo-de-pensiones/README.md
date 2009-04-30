@@ -14,3 +14,4 @@ Reglamento del Programa Régimen no Contributivo de Pensiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-26 | la propia norma |
+| 2 | 2009-04-30 | Reglamento 8343 (2009-04-30) |
