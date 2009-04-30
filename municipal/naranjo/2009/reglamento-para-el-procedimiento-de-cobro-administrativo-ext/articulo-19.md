@@ -1,0 +1,1 @@
+Artículo 19.—El día hábil siguiente al remate el encargado de la Oficina de Gestión de Cobro deberá informar por escrito al Departamento Legal el resultado del remate, si pasado un lapso de ocho días no cumpliera con lo anterior el Departamento Legal le enviara una nota solicitando el informe con copia al Concejo Municipal y al Alcalde para que se proceda de conformidad.
