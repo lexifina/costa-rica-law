@@ -1,0 +1,18 @@
+ARTÍCULO 2.-
+Adiciónanse a la Ley N.° 7494, Contratación administrativa, de 2 de mayo de 1995, las siguientes disposiciones:
+a) Al artículo 42, el inciso n), cuyo texto dirá:
+“Artículo 42.- Estructura mínima
+[...]
+n) La posibilidad de mejorar, dentro del concurso, los precios de las empresas elegibles. La aplicación de esta figura deberá darse dentro de un marco de transparencia e igualdad, según los mecanismos de aplicación objetiva que se regulen en cada cartel. El precio por considerar en el sistema de calificación, será el último que los respectivos oferentes propongan y, para acceder a esta posibilidad, no deben convertir sus precios en ruinosos o no remunerativos. La rebaja de precio, por su naturaleza, es aplicable a todo procedimiento concursal.”
+b) Al artículo 100, el inciso i). El texto dirá:
+“Artículo 100.- Sanción de inhabilitación
+[...]
+i) Quien invoque o introduzca hechos falsos en los procedimientos para contratar o en los recursos contra el acto de adjudicación.”
+c) El artículo 100 bis. El texto dirá:
+“Artículo 100 bis.- Ámbito de cobertura y prescripción
+La sanción de inhabilitación, según la causal que la genere, tendrá dos grados de cobertura.
+En el caso de las causales incluidas en los incisos a), d), e), g) y h) del artículo 100 de esta Ley, la sanción cubrirá los procedimientos tramitados por la entidad que impuso la sanción, incluidos todos los órganos desconcentrados que la componen. Si, posteriormente, una persona física o jurídica es inhabilitada otra vez por la misma entidad, la nueva sanción cubrirá a toda la Administración Pública.
+En los supuestos fundamentados en los incisos b), c), f) e i) del artículo 100 de esta Ley, la sanción cubre las contrataciones que se realicen en toda la Administración Pública, independientemente de quién haya impuesto la sanción.
+El período de prescripción para la sanción será de tres años, contados desde el momento en el que se haya dado la conducta señalada en el artículo 99 o en los incisos d), e), g) y h) del artículo 100 de esta Ley. Para la conducta señalada en el inciso a) del artículo 100, será de cinco años.
+Si se trata de inhabilitación con fundamento en los incisos b), c), f) e i) del artículo 100 de esta Ley, el período de prescripción será de cinco años, pero contabilizado desde el momento en que la situación que genera la sanción se haya puesto en conocimiento del órgano que tiene competencia para sancionar.
+Excepcionalmente la Administración podrá contratar con una persona jurídica o física que se encuentre inhabilitada por las causales establecidas en los incisos a), d), e), g) y h) del artículo 100 de esta Ley. Para ello, deberá solicitar autorización a la Contraloría General de la República, acreditando que la persona inhabilitada es la única que puede satisfacer el objeto contractual requerido y que, de no hacerlo, se estaría ante una grave afectación del interés público. La Contraloría General de la República deberá resolver en el plazo de diez (10) días hábiles y podrá ordenarle a la administración que le exija al contratista una garantía de cumplimiento superior al diez por ciento (10%) del monto del contrato.”
