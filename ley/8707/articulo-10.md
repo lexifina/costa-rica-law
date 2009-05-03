@@ -1,0 +1,4 @@
+ARTÍCULO 10.-
+Los locales comerciales, las personas físicas o jurídicas que tengan patente de expendio de bebidas con contenido alcohólico que adquieran, vendan y comercialicen este tipo de bebidas de empresas no registradas, serán multados con dos (2) salarios base; a los que reincidan en el incumplimiento de lo dispuesto en este artículo se les multará con cinco (5) salarios base.
+La Dirección General de Aduanas o la Policía de Control Fiscal deberán poner en conocimiento del Ministerio de Salud y de la municipalidad donde se encuentre registrada la patente correspondiente, lo acontecido y los resultados de la investigación, sin perjuicio de las demás acciones que la legislación señale.
+La municipalidad, siguiendo el debido proceso, determinará si corresponde el retiro de la patente de expendio de bebidas con contenido alcohólico. El Ministerio de Salud determinará si corresponde el retiro del permiso de funcionamiento.

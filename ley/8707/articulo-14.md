@@ -1,0 +1,2 @@
+ARTÍCULO 14.-
+La Dirección General de Aduanas deberá imponer las multas dispuestas en esta Ley, con apego a los principios de legalidad, proporcionalidad y el debido proceso. En materia de procedimientos, a falta de norma expresa, deberán aplicarse las disposiciones generales establecidas en la Ley general de aduanas, y sus reformas; el Código de Normas y Procedimientos Tributarios, y sus reformas, y la Ley general de la Administración Pública, y sus reformas.

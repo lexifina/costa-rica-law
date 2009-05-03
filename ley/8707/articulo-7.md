@@ -1,0 +1,2 @@
+ARTÍCULO 7.-
+Si en los locales comerciales, las oficinas centrales, las sucursales, las plantas de producción, los almacenes, los vehículos, los centros de distribución o los de almacenamiento de los sujetos señalados en el artículo 3 de esta Ley, se encuentran bebidas alcohólicas comercializadas por proveedores no inscritos en el Registro o productos no registrados debidamente por estos, la Dirección General de Aduanas o la Policía de Control Fiscal procederán al decomiso de las bebidas alcohólicas, sin perjuicio de las sanciones que correspondan al infractor.

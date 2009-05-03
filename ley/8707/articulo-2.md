@@ -1,0 +1,3 @@
+ARTÍCULO 2.-
+Las personas, físicas o jurídicas, que deseen importar, fabricar, distribuir o vender bebidas alcohólicas al por mayor, deberán inscribirse en el Registro. Para tales efectos, la Dirección General de Aduanas les asignará un número de importador, fabricante o distribuidor, según el caso, el cual deberá figurar impreso en todas las facturas comerciales y los recibos que emita dicho importador, fabricante o distribuidor.
+Además, dichas facturas deberán ajustarse a las regulaciones establecidas por la Dirección General de Tributación y el Código de Comercio. Para los importadores, el número de registro será el establecido en la Ley general de aduanas, N.º 7557.

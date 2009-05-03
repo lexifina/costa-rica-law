@@ -1,0 +1,2 @@
+ARTÍCULO 6.-
+Cuando la Dirección General de Aduanas o la Policía de Control Fiscal constate que, en las instalaciones o los vehículos de distribución de un fabricante, importador o distribuidor de bebidas alcohólicas, existen productos que no hayan pagado los derechos o impuestos aduaneros correspondientes, en forma total o parcialmente, procederá al decomiso de esos productos y, siguiendo el debido proceso, le serán aplicables, según corresponda, las disposiciones sancionatorias establecidas en la Ley general de aduanas, N.º 7557, sus reformas y normas conexas.

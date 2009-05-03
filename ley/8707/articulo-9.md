@@ -1,0 +1,4 @@
+ARTÍCULO 9.-
+La Dirección General de Aduanas multará con dos (2) salarios base a las personas físicas o jurídicas que no cumplan las disposiciones de los artículos 2 y 3 de esta Ley. A los que reincidan en el incumplimiento de este artículo, se les multará con cinco (5) salarios base; todo lo anterior de conformidad con el procedimiento establecido en el artículo 234 de la Ley general de aduanas, y sus reformas.
+La Dirección General de Aduanas o la Policía de Control Fiscal deberán poner en conocimiento del Ministerio de Salud, indistintamente si existe reincidencia o no, la infracción cometida y los resultados de la investigación; lo anterior, sin perjuicio de las demás acciones legales que correspondan.
+El Ministerio de Salud determinará si corresponde el retiro del permiso de funcionamiento.
