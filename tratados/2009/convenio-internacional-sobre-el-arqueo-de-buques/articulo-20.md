@@ -1,0 +1,9 @@
+ARTICULO 20
+Territorios
+1)
+a) Las Naciones Unidas, cuando sean responsables de la administración de un territorio, o todo Gobierno contratante al que incumba la responsabilidad de las relaciones internacionales de un territorio, deberán, en cuanto sea posible, consultar con las autoridades de dicho territorio o tomar las medidas que parezcan pertinentes para tratar de aplicarle las depposiciones del presente Convenio y podrá en cualquier momento, mediante notificación escrita dirigida a la Organización, hacer constar que el presente Convenio se extiende al citado territorio.
+b) La aplicación del presente Convenio se extenderá al territorio designado en la notificación a partir de la fecha de recepción de la misma o de cualquier otra fecha que en ella se estipule.
+2)
+a) Las Naciones Unidas o cualquier otro Gobierno contratante que haya presentado una declaración de conformidad con el apartado a) del párrafo 1) de este Artículo podrá, una vez expirado el plazo de cinco años desde la fecha en que se extendió la aplicación del Convenio a un territorio, informar en cualquier momento, mediante notificación escrita dirigida a la Organización, que el presente Convenio cesa de aplicarse al territorio designado en la notificación.
+b) El Convenio cesará de aplicarse al territorio designado en la notificación un año después de la fecha en que se reciba la notificación en la Organización, o al expirar el plazo estipulado en la notificación si éste fuera más largo.
+3) La Organización informará a todos los Gobiernos contratantes de la extensión del presente Convenio a cualquier territorio, en virtud del párrafo 1) de este Artículo, y de la cesación de dicha extensión en virtud del párrafo 2), especificando en cada caso, la fecha a partir de la cual el presente Convenio empieza a aplicarse al territorio o deja de serlo.
