@@ -10,7 +10,7 @@ Artículo 53.—Requisitos para obtener un permiso de construcción para obras m
 9. Para Vivienda Unifamiliar copia de Declaración Jurada para el Ministerio de Salud, caso contrario el Visado otorgado por el Ministerio de Salud.
 10. Original y copia de la póliza de riesgos del trabajo emitida por el Instituto Nacional de Seguros para dicha construcción.
 11. Disponibilidad de agua potable y alcantarillado sanitario extendido por el operador del servicio respectivo, en el caso de acueductos rurales, el visto bueno deberá esta respaldado en documento suscrito por el responsable quien hará constar nombre, sello, firma y fecha respectiva. En caso de suministro de agua potable a través de pozo, visto bueno de SENARA y el permiso de perforación del Departamento de Aguas de MINAE.
-12. Aprobación de disponibilidad del servicio eléctrico extendido por el operador del servicio.
+12. (DEROGADO, en sesión N° 53 de 4 de mayo de 2009).
 13. Estar el día en el pago de los impuestos.
 Para viviendas de interés social se debe presentar el Certificado de la Declaratoria del mismo y para beneficiarios del IMAS Constancia de la Gerencia de ese Instituto.
 (Así corrida su numeración por acuerdo tomado en sesión N° 37 del 12 de enero de 2009 y definitivamente aprobado en sesión N° 46 del 6 de marzo de 2009, que lo traspasó del anterior artículo 45 al 53 actual).

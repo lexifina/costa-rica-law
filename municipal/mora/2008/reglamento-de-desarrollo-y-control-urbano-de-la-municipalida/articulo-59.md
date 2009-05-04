@@ -3,7 +3,7 @@ Artículo 59.—Requisitos para obtener certificado de uso de suelo, disponibili
 2. Si el propietario es persona física, copia de la cedula de identidad y si es persona jurídica copia de la cedula jurídica y original de la personería jurídica del representante legal.
 3. Tres fotocopias del plano catastrado, sin reducir ni pegas, debidamente visado por la municipalidad.
 4. Disponibilidad de agua potable y alcantarillado sanitario extendido por el operador del servicio respectivo, en el caso de acueductos rurales, el visto bueno deberá esta respaldado en documento suscrito por el responsable quien hará constar nombre, sello, firma y fecha respectiva.
-5. Aprobación de disponibilidad del servicio eléctrico extendido por el operador del servicio.
+5. (DEROGADO, en sesión N° 53 de 4 de mayo de 2009).
 6. Certificación de la propiedad o informe registral vigente, no más de un mes de emitido.
 7. Alineamiento fluvial extendido por el departamento de urbanismo del INVU, cuando la propiedad cuente con quebrada, acequia.
 8. Alineamiento según corresponda, el mismo deberá ser emitido por el ente responsable de conformidad como lo indica el capitulo I del presente reglamento.

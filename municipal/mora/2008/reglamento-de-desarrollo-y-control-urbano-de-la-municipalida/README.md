@@ -17,3 +17,4 @@ Reglamento de Desarrollo y Control Urbano de la Municipalidad de Mora
 | 2 | 2009-01-12 | Reglamento municipal 37 (2009-01-12) |
 | 3 | 2009-01-12 | Reglamento municipal 37 (2009-01-12) |
 | 4 | 2009-03-16 | Reglamento municipal 46 (2009-03-16) |
+| 5 | 2009-05-04 | Reglamento municipal 53 (2009-05-04) |

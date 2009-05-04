@@ -5,7 +5,7 @@ Artículo 56.—Requisitos para obtener un permiso de construcción de visado de
 4. Aportar dos planos originales o copias certificadas dos por cada fraccionamiento del proyecto.
 5. Diseño del sitio en formato digitalizado, que contenga además las redes de abastecimiento de agua potable del evacuación de aguas residuales y pluviales.
 6. Disponibilidad de agua potable y alcantarillado sanitario extendido por el operador del servicio respectivo, en el caso de acueductos rurales, el visto bueno deberá esta respaldado en documento suscrito por el responsable quien hará constar nombre, sello, firma y fecha respectiva.
-7. Aprobación de disponibilidad del servicio eléctrico extendido por el operador del servicio.
+7. (DEROGADO, en sesión N° 53 de 4 de mayo de 2009).
 8. Dictamen de recibido conforme de la señalización del proyecto por parte del equipo de estudios básicos de la dirección general de ingeniería de transito del ministerio obras publicas y transportes.
 9. Dictamen de recibido conforme de la instalación de los hidrantes del proyecto, extendido por el taller mecánico del cuerpo de bomberos del INS.
 10. Pruebas de laboratorio certificado y respaldadas por profesional responsable competente, en las que se certifique la calidad y consistencia del nivel del suelo de la subrasante de la (s) calle (s), los cuales no podrán mostrar una capacitación inferior a 95% del proctor estándar.

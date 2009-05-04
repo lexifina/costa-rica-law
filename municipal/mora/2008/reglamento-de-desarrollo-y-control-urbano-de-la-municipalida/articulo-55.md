@@ -7,7 +7,7 @@ Artículo 55.—Requisitos para obtener un permiso de construcción para condomi
 6. Cuando se requiera de alineamientos (MOPT, INVU, ICE) el mismo deberá ser extendido por el ente responsable del mismo de conformidad al Capitulo I del presente reglamento.
 7. Disponibilidad de agua potable y alcantarillado sanitario extendido por el operador del servicio respectivo, en el caso de acueductos rurales, el visto bueno deberá esta respaldado en documento suscrito por el responsable quien hará constar nombre, sello, firma y fecha respectiva. En caso de suministro de agua potable a través de pozo, visto bueno de SENARA y el permiso de perforación del Departamento de Aguas de MINAE.
 8. Uso de suelo emitido por la Municipalidad.
-9. Aprobación de disponibilidad del servicio eléctrico extendido por el operador del servicio y plano de la red de comunicaciones debidamente aprobado por el ICE.
+9. (DEROGADO, en sesión N° 53 de 4 de mayo de 2009).
 10. Dictamen extendido por la oficina de líneas de transmisión-región central del ICE en el que se indique si existe disponibilidad del servicio telefónico para el desarrollo habitacional propuesto y las afectaciones a la finca por líneas de transmisión electita.
 11. Dictamen extendido por la CNE, en el que se indiquen los riesgos de afectación presentes en el terreno a desarrollar y sus recomendaciones de mitigación o control.
 12. Dictamen extendido por el departamento de aguas del MINAE en el que se indique si el terreno de la finca esta afectado por nacientes o similares.

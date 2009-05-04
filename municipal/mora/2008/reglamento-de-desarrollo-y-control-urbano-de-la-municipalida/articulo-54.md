@@ -10,7 +10,7 @@ Artículo 54.—Requisitos para obtener un permiso de construcción para obras n
 9. Para Vivienda Unifamiliar copia de Declaración Jurada para el Ministerio de Salud, caso contrario el Visado otorgado por el Ministerio de Salud.
 10. Original y copia de la póliza de riesgos del trabajo emitida por el Instituto Nacional de Seguros para dicha construcción.
 11. Disponibilidad de agua potable y alcantarillado sanitario extendido por el operador del servicio respectivo, en el caso de acueductos rurales, el visto bueno deberá esta respaldado en documento suscrito por el responsable quien hará constar nombre, sello, firma y fecha respectiva. En caso de suministro de agua potable a través de pozo, visto bueno de SENARA y el permiso de perforación del Departamento de Aguas de MINAE.
-12. Aprobación de disponibilidad del servicio eléctrico extendido por el operador del servicio.
+12. (DEROGADO, en sesión N° 53 de 4 de mayo de 2009).
 13. Visto bueno de viabilidad ambiental y copia de Estudio de Impacto Ambiental emitido por SETENA.
 14. Permiso municipal para evacuación de aguas pluviales (desfogue pluvial).
 15. Estar el día en el pago de los impuestos.

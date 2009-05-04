@@ -1,6 +1,7 @@
 Artículo 64.—Prohibiciones. Queda prohibida la exhibición de rótulos en los siguientes casos:
 a) En la vía pública, excepto el adosado al mobiliario urbano y que previamente ha sido autorizado por la Municipalidad (casetas de bus, señalización vial, etc.).
-b) En zonas residenciales, con excepción de rótulos de funcionamiento no mayores a 1 m2.
+b) En zonas residenciales, con excepción de rótulos de funcionamiento no mayores a 1.50 m2 .
+(Así reformado el inciso anterior en sesión N° 53 de 4 de mayo de 2009).
 c) A menos de tres metros de los rótulos de señalamiento y nomenclatura vial, ambos en cualquier dirección.
 d) Que sobrepasen la altura permitida de un tercio del ancho del derecho de vía.
 e) En lugares donde obstaculice la visibilidad de los rótulos de señalamiento vial.
