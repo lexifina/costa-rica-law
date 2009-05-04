@@ -14,3 +14,4 @@ Establecimiento del Precio Mínimo de Compra del Industrial al Productor de Arro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-29 | la propia norma |
+| 2 | 2009-05-04 | Decreto Ejecutivo 35238 (2009-05-04) |

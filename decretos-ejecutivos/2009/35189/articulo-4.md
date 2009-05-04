@@ -1,1 +1,2 @@
-Artículo 4º—Los precios estipulados en el artículo 2º del presente Decreto Ejecutivo serán revisados antes del 5 de mayo del año dos mil nueve.
+Artículo 4º—Se mantiene el precio estipulado en el artículo segundo del presente Decreto Ejecutivo hasta tanto se de una nueva fijación por parte del Poder Ejecutivo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35238 del 4 de mayo de 2009)
