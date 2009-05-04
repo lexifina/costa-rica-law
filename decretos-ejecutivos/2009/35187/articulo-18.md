@@ -1,0 +1,1 @@
+Artículo 18.—De lo prefijos. De conformidad con el Plan de marcación establecido en el Capítulo IV siguiente, los prefijos se utilizan como códigos para el acceso a abonados de diferentes clases de numeración para diferentes categorías de servicios o en el caso de llamadas internacionales.

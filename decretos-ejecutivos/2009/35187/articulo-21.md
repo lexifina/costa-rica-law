@@ -1,0 +1,1 @@
+Artículo 21.—Marcación para Servicios Especiales, Esquema 1XY, y Servicios Suplementarios. Para acceder a los servicios especiales, esquema 1XY, se marcará el código correspondiente al servicio requerido. La marcación a los servicios suplementarios se hará de acuerdo con lo establecido en el numeral 17 del presente plan.

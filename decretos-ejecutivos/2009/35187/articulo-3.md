@@ -1,0 +1,1 @@
+Artículo 3.—Competencia y funciones. De conformidad con el artículo 60, inciso g), de la Ley Nº 7593, Ley de la Autoridad Reguladora de los Servicios Públicos (Aresep), corresponde a la SUTEL controlar y comprobar el uso eficiente del recurso numérico, conforme al presente Plan.

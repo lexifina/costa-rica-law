@@ -1,0 +1,1 @@
+Artículo 6º—Referencias. La ejecución de este plan debe contemplar las reglas dispuestas en el Plan Nacional de Desarrollo de las Telecomunicaciones, los demás planes técnicos para el sector y las recomendaciones de la Unión Internacional de Telecomunicaciones (UIT-T) para la materia.

@@ -1,0 +1,1 @@
+Artículo 7º—Actualización. El presente Plan podrá ser actualizado a iniciativa de Ministerio de Ambiente, Energía y Telecomunicaciones. Los operadores de redes y proveedores de servicios de telecomunicaciones podrán solicitar o recomendar dicha actualización fundamentando las necesidades de modificación.

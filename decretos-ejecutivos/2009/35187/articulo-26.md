@@ -1,0 +1,1 @@
+Artículo 26.—Derecho del usuario a una Guía Telefónica Nacional. Los usuarios de servicios de telecomunicaciones deberán disponer gratuitamente de una guía telefónica nacional y de un servicio nacional de información de voz, sobre su contenido, conforme al artículo 45, incisos 15 y de la Ley General de Telecomunicaciones, numero 8642 y su desarrollo reglamentario.

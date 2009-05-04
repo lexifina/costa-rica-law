@@ -1,0 +1,1 @@
+Artículo 2º—Alcance y ámbito de aplicación. Las disposiciones del presente Plan serán de estricta aplicación para la operación de todas las redes de servicios de telecomunicaciones disponibles al público.

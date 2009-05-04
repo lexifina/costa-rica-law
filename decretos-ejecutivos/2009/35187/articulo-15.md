@@ -1,0 +1,1 @@
+Artículo 15.—Otros servicios móviles. En los sistemas móviles destinados a los servicios públicos marítimos, aeronáuticos u otros, la estructura y los símbolos de numeración que se utilizarán serán fijados de conformidad con las recomendaciones establecidas por la UIT, para lo cual se regirá por los plazos establecidos en el artículo 24.1.

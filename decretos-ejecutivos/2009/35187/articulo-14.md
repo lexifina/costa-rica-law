@@ -1,0 +1,1 @@
+Artículo 14.—Servicio buscapersonas (beeper) y servicio móvil de repetidoras troncalizadas. La numeración para el servicio público automático buscapersonas (beeper) y para el servicio público automático de repetidoras troncalizadas para servicios de radiocomunicación será asignada por la SUTEL con base en el formato de número nacional establecido en el artículo 12.
