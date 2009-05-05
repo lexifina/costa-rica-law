@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De las autorizaciones y responsabilidades
+Artículo 4º—En materia de inversiones se deben seguir los siguientes lineamientos:
+a. Se autoriza a la Jefatura Administrativa Financiera de JUDESUR, a realizar nuevas inversiones transitorias o renovaciones con el Ministerio de Hacienda y el Banco Central de Costa Rica. Las podrá realizar en los instrumentos señalados en el artículo 3, inciso b en este Reglamento una vez cuente con el acuerdo de la Junta Directiva.
+b. La Jefatura Administrativa Financiera para llevar a cabo su labor de pago y cubrir los compromisos adquiridos por la institución y requiera efectivo de lo invertido, está autorizada a emitir una instrucción ante los Bancos Estatales o Entidades Financieras para redimir inversiones y depositar el dinero en las cuentas de los programas de los cinco cantones (Buenos Aires, Coto Brus, Corredores, Golfito y Osa), siempre que exista la debida justificación que establece el punto j) del capítulo III de este Reglamento con el aval de Director Ejecutivo y acuerdo de Junta Directiva.
