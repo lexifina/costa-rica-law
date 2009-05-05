@@ -1,0 +1,1 @@
+Artículo 25.—Del proceso de desahucio en bienes adjudicados. Tratándose de adjudicación de bienes inmuebles, si éstos se encuentran ocupados por terceros, la responsabilidad de la causa de desahucio será del mismo abogado director. Los honorarios correspondientes se le cancelarán de conformidad con el Arancel de Honorarios vigente.

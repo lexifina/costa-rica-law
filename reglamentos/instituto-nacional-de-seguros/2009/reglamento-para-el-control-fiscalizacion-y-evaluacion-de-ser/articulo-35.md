@@ -1,0 +1,1 @@
+Artículo 35.—Continuación del trámite: En caso de incumplimiento se continuará con la tramitación normal del proceso, no siendo posible el otorgamiento de un nuevo arreglo, salvo aquellos casos en los cuales el Departamento de Cobros o la Sede del INS en su caso, lo considere conveniente para los intereses del INS.
