@@ -17,3 +17,4 @@ Aranceles por Servicios Peritaje y Avalúo de Ingenieros y Arquitectos
 | 3 | 2003-05-15 | Acuerdo 7 (2003-05-15) |
 | 4 | 2007-03-14 | Acuerdo 14 (2007-03-14) |
 | 5 | 2008-04-15 | Acuerdo 42 (2008-04-15) |
+| 6 | 2009-05-05 | Acuerdo 24 (2009-05-05) |
