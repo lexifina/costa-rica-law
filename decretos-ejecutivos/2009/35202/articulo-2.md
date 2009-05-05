@@ -1,0 +1,2 @@
+Artículo 2º—Es responsabilidad de la administración activa del Consejo Nacional de Producción, el cumplimiento de lo dispuesto en el artículo 6 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 de 16 de octubre de 2001 y sus reformas, así como en el Decreto Ejecutivo Nº 32452-H, publicado en La Gaceta Nº 130 de 6 de julio de 2005 y sus reformas.
+(Corregido mediante Fe de Erratas y publicado en La Gaceta N° 118 del 19 de junio de 2009)
