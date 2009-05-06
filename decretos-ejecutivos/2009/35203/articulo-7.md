@@ -1,0 +1,2 @@
+Artículo 7º—De la vigencia. Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los 29 días del mes de enero del año dos mil nueve.
