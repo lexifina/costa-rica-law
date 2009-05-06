@@ -1,0 +1,14 @@
+Nº 35209-MICIT
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+En uso de las facultades conferidas por los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, la Ley de Promoción del Desarrollo Científico y Tecnológico, Nº 7169 del 26 de junio de 1990, publicada en La Gaceta Nº 144 de 01 de agosto de 1990, el artículo 27 de la Ley General de la Administración Pública, Nº 6227 de 02 de mayo de 1978, y
+Considerando:
+1º—Que el Ministerio de Ciencia y Tecnología y el Consejo Nacional de Ciencia y Tecnología de México (CONACYT), en colaboración con la Universidad FUNDEPOS Alma Mater y con el apoyo de CONARE Y UNIRE, se encuentran organizando la “2da Feria Mesoamericana de Posgrados Mexicanos de Calidad” que se llevará a cabo en el Hotel Radisson Europa & Conference Center, durante los días 29 y 30 de mayo del presente año.
+2º—Que la mencionada feria, es importante ya que busca fortalecer el conocimiento de muchos costarricenses a través de la cooperación con Instituciones de Educación Superior Mexicanas que ofrecen la oportunidad de estudios de Posgrado en México. Asimismo, al ampliar la oferta académica, se fortalecen los esquemas de colaboración, fomentando la movilidad de estudiantes, profesores e investigadores entre los países de Centroamérica y México.
+3º—Que el tópico fundamental de la actividad es informar a los estudiantes, profesores, investigadores y público en general a través del contacto directo con representantes de las Instituciones de Educación Superior Mexicanas acerca de los programas de especialización, maestría y doctorado, se ofrecerá información de sus características como son la estructura de los planes de estudio, líneas de investigación, instalaciones, requisitos de selección, planes de becas, metodologías de estudios, entre otros.
+4º—Que de conformidad con el artículo 8º de la Ley de Promoción del Desarrollo Científico y Tecnológico, Nº 7169, todas las actividades científicas y tecnológicas sin fines de lucro, realizadas por las entidades que forman parte del Sistema Nacional de Ciencia y Tecnología, son de interés público. Por tanto,
+Decretan:
+Declaratoria de Interés
+“2da FERIA MESOAMERICANA DE POSGRADOS
+MEXICANOS DE CALIDAD”
+Artículo 1º—Con fundamento en el artículo 8 de la Ley de Promoción del Desarrollo Científico y Tecnológico, Nº 7169, se declara de interés público la “2da Feria Mesoamericana de Posgrados Mexicanos de Calidad”, organizada por el Ministerio de Ciencia y Tecnología y el Consejo Nacional de Ciencia y Tecnología de México (CONACYT), en colaboración con la Universidad FUNDEPOS Alma Mater y con el apoyo de CONARE Y UNIRE: la cual se realizará los días 29 y 30 de mayo del presente año.
