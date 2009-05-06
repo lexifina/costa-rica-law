@@ -1,0 +1,18 @@
+Nº 35184-MEIC-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE ECONOMÍA, INDUSTRIA Y COMERCIO
+Y AGRICULTURA Y GANADERÍA
+En uso de las facultades establecidas en los artículos 140, incisos 3), 8), 18) y 20) y artículo 146 de la Constitución Política; los artículos 25, 27.1), 28.2b) de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978; la Ley de Fomento a la Producción Agropecuaria, Nº 7064 del 29 de abril de 1987; y la Ley Sistema de Banca para el Desarrollo, Nº 8634 del 23 de abril de 2008.
+Considerando:
+1º—Que mediante Ley Nº 8634, Ley Sistema de Banca para el Desarrollo, publicada en el Diario Oficial La Gaceta Nº 87 del 7 de mayo del 2008, se crea el Sistema de Banca para el Desarrollo, en adelante SBD, como un mecanismo para financiar e impulsar proyectos productivos, viables y factibles técnica y económicamente, acordes con el modelo de desarrollo del país en lo referente a la movilidad social de los grupos objeto de esa Ley.
+2º—Que conforme a las potestades otorgadas por el ordenamiento jurídico, el Poder Ejecutivo, procedió a reglamentar la Ley N° 8634 de cita, mediante el Decreto Ejecutivo N° 34901 del 12 de noviembre del 2008, publicado en el Diario Oficial La Gaceta N° 232 del 1º de diciembre del 2008.
+3º—Que el artículo 70 del Reglamento supra, establece la naturaleza del Fondo de Financiamiento del Fideicomiso Nacional para el Desarrollo (FINADE), dirigido a impulsar programas orientados al apoyo financiero de beneficiarios del Sistema de Banca para el Desarrollo. Pudiendo contar con programas especiales dirigidos a sectores y actividades prioritarios de acuerdo a los lineamientos del Consejo Rector.
+4º—Que dada la necesidad de apoyar sectores y actividades prioritarias para el desarrollo socioeconómico del país, el Consejo Rector requiere maximizar la colocación de recursos del Fondo de Financiamiento a través de los operadores financieros acreditados conforme a la Ley Nº 8634, publicada en el Diario Oficial La Gaceta N° 87 del 7 de mayo del 2008 y su Reglamento, bajo una modalidad de por cuenta y riesgo del Fideicomiso Nacional para el Desarrollo (FINADE). Por tanto,
+Decretan:
+Modificación del Artículo 70 del Decreto Ejecutivo
+N° 34901, publicado en La Gaceta N° 232 del 1º
+de diciembre del 2008 “Reglamento a la Ley del
+Sistema de Banca para el Desarrollo”
+Artículo 1º—Modificación. Modifíquese el artículo 70 del Decreto Ejecutivo N° 34901, “Reglamento a la Ley N° 8634, Sistema de Banca para el Desarrollo”, publicado en La Gaceta N° 232 del 1º de diciembre del 2008, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 70.—De la naturaleza del Fondo de Financiamiento: El fondo de financiamiento servirá para impulsar programas orientados al apoyo financiero de beneficiarios del SBD. Asimismo, podrá contar con programas especiales dirigidos a sectores y actividades prioritarios de acuerdo a los lineamientos del Consejo Rector.
+Cuando así lo requiera el Consejo Rector, podrá aprobar estos programas especiales para que sean colocados por cuenta y riesgo del FINADE, a través de los operadores financieros acreditados por el Consejo Rector de acuerdo a la Ley Nº 8634 y el presente Reglamento. Estos programas especiales establecerán en sus requisitos de aprobación las condiciones necesarias para que los operadores financieros acreditados ante el FINADE, puedan colocar estos recursos. El Banco Fiduciario del FINADE solicitará al Consejo Rector la suspensión de la colocación de los programas especiales al operador financiero en el caso que se compruebe alguna de las causales establecidas en el artículo 41 para la revocación de los programas acreditados.”
