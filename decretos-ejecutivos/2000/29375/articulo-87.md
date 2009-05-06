@@ -1,1 +1,1 @@
-Artículo 87.—Compete al Área de Conservación del MINAE, conocer y emitir criterio vinculante de las audiencias que le confiera el MAG para autorizar las quemas en terrenos destinados a la actividad agraria. Sin tal criterio no se podrán realizar las quemas al no operar el silencio positivo de la Administración en materia de recursos naturales de conformidad con el artículo 4 de la ley Forestal Nº 7575 del 5 de febrero de 1996.
+Artículo 87.—(Derogado por el artículo 25 del decreto ejecutivo N° 35368 del 6 de mayo de 2009)
