@@ -14,3 +14,4 @@ Reglamento del Sistema de Pagos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-27 | la propia norma |
+| 2 | 2009-05-06 | Reglamento 5422 (2009-05-06) |

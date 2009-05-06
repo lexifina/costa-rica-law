@@ -39,7 +39,7 @@ Registro de Emisiones | 250.000 | 0 |
 Subasta de Valores (SUBASTA) | 150.000 | 0 |
 Ventanilla de Valores | 150.000 | 0 |
 Captación de Fondos | 50.000 | |
-Mercado Integrado de Liquidez (MIL) | 100.000 | 1.000 |
+(*) Mercado Integrado de Liquidez (*) (Así reformado mediante sesión N° 5422-2009 del 06 de mayo del 2009) | 100.000 | 1,10% anualizado sobre una base de 360 días aplicado a cada oferta calzada |
 Liquidación de Mercados (cobro a la Bolsa Nacional de Valores) | 1.000.000 | 1.000 c/u | N/A
 Servicios de Cajero del Estado: | | |
 Registro de Deuda Individualizada (RDI) | 20.000.000 c/u | N/A | N/A
