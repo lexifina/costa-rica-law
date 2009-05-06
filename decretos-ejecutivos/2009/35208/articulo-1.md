@@ -1,0 +1,36 @@
+Nº 35208-MOPT-J-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+LA MINISTRA DE OBRAS PÚBLICAS Y TRANSPORTES,
+LA MINISTRA DE JUSTICIA Y EL MINISTRO DE ECONOMÍA,
+INDUSTRIA Y COMERCIO
+En el ejercicio de las facultades conferidas por los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; y con fundamento en lo establecido por el Acuerdo Centroamericano sobre Circulación por Carretera, Ley Nº 3148 publicada en el Alcance Nº 39 a La Gaceta Nº 207 del 13 de setiembre de 1963; la Ley de Creación del Ministerio de Obras Públicas y Transportes, Nº 4786 del 5 de julio de 1971 y sus reformas; la Ley General de Caminos Públicos, Nº 5060 del 22 de agosto de 1972 y sus reformas; la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 del 13 de abril de 1993 y sus reformas; la Ley de Creación del Consejo Nacional de Vialidad, Nº 7798 del 30 de abril de 1998 y sus reformas; la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y sus reformas y las restantes disposiciones del ordenamiento jurídico vigente.
+Considerando:
+1º—Que es competencia exclusiva del Ministerio de Obras Públicas y Transportes por medio de sus órganos y dependencias, ejercer el control, vigilancia y regulación sobre los pesos, cargas y dimensiones de los vehículos automotores que circulan por las vías públicas terrestres de la República, así como de las materias y mercancías que éstos transportan.
+2º—Que nuestro país suscribió el Acuerdo Centroamericano sobre Circulación por Carretera (ACCC), Ley Nº 3148, publicada en el Alcance Nº 39 de La Gaceta Nº 207 del 13 de setiembre de 1963, mediante el cual se establecieron mecanismos y regulaciones aplicables a la circulación de vehículos automotores por las vías públicas de las naciones firmantes de dicho Acuerdo.
+3º—Que así mismo, se promulgaron la Ley General de Caminos Públicos Nº 5060 del 22 de agosto de 1972 y sus reformas y la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 del 13 de abril de 1993 y sus reformas, las cuales contienen disposiciones reguladoras sobre los pesos, cargas y dimensiones de los vehículos que pueden circular en las vías públicas del país, así como las sanciones aplicables a los infractores.
+4º—Que a los efectos de adoptar una normativa técnica que se adecuara a las exigencias actuales en materia de movilización de mercancías por las vías públicas conforme lo requiere el ejercicio del derecho al comercio dentro de los estándares modernos de movilización de bienes tanto provenientes del exterior como resultado de la circulación interna, a la vez que una mayor tutela de las referidas vías públicas, se promulgó el Decreto Ejecutivo Nº 31363-MOPT, Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga, del 2 de junio del 2003, publicado en el diario oficial La Gaceta Nº 182 del 23 de setiembre de 2003 y sus reformas.
+5º—Que se requiere modificar los artículos 35, 36, 37 y 71 del referido Decreto 31363-MOPT, así como derogar los artículos del 39, 40, 41, 42, 43, 44, 45, 46, 47, 48, 49, 50 y 51, con el fin de garantizar desde su origen la circulación por las vías públicas de vehículos de carga con el peso máximo permitido, de forma tal que las maniobras de trasbordo de mercaderías por exceso de peso se realicen de forma inmediata como imperativo para poder circular por las vías públicas terrestres nacionales y bajo la exclusiva responsabilidad y costo del transportista. Por tanto,
+Decretan:
+Modificación de los Artículos 35, 36, 37 y 71,
+y Derogación de los Artículos 39, 40, 41, 42,
+43, 44, 45, 46, 47, 48, 49, 50 y 51, del
+Decreto Ejecutivo Nº 31363-MOPT,
+Reglamento de Circulación por Carretera
+con Base en el Peso y las Dimensiones
+de los Vehículos de Carga, publicado
+en el Diario Oficial La Gaceta Nº
+182 del 23 de setiembre de 2003
+Artículo 1º—Modifíquese los artículos 35, 36, 37 y 71 del Decreto Ejecutivo Nº 31363-MOPT, Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga, del 2 de junio del 2003, publicado en el Diario Oficial La Gaceta Nº 182 del 23 de setiembre del 2003, para que se lean de la siguiente forma:
+“Artículo 35º—Prohibición de circulación con sobrepeso. Ningún vehículo automotor podrá circular por las vías públicas terrestres nacionales con un peso mayor al establecido en este Reglamento.
+Estas regulaciones serán aplicables para el transporte de cualquier tipo de carga, incluyendo el transporte de materiales peligrosos o sustancias peligrosas y convencionales.
+Artículo 36º—Trasbordo de la carga por sobrepeso. Todo propietario y/o conductor de un vehículo de carga será responsable porque el respectivo automotor al momento de recibir y colocar la carga, no sobrepase el peso máximo permitido, de acuerdo con las disposiciones establecidas en este Reglamento, quedando absolutamente prohibida la circulación del vehículo con un peso mayor al legalmente permitido.
+Todo sobrepeso deberá ser trasbordado en el mismo sitio en donde se realice el pesaje del vehículo o, en la respectiva aduana donde se encuentre la carga.
+El vehículo que circule en contravención a lo indicado, será de inmediato detenido por la autoridad de tránsito y no podrá circular por violación a la legislación vigente, hasta que el propietario o el conductor del vehículo procedan a efectuar de inmediato el trasbordo de la carga que sobrepase el peso por eje permitido, bajo la exclusiva responsabilidad y costo del transportista.
+Los conductores de vehículos que infrinjan esta disposición, están obligados a descargar el exceso; pero cuando hayan recibido la carga cerrada con dispositivos de seguridad, la obligación de descargar el exceso corresponderá a los dueños o a los responsables de la carga en el país, de conformidad con el conocimiento de embarque.
+En el trasbordo de materias peligrosas se deberá acatar lo dispuesto en el Reglamento para el Transporte Terrestre de Productos Peligrosos, Decreto Ejecutivo Nº 24715-MOPT-MEIC-S, publicado en el Diario Oficial La Gaceta Nº 207 del 1 de noviembre de 1995, especialmente en lo que respecta a carga, acondicionamiento, y estacionamiento. Si en la operación de trasbordo se produjeren derrames de sustancias y otras materias peligrosas se deberán tomar las medidas de urgencia respectivas.
+El trasbordo de materias peligrosas lo realizará personal por cuenta del transportista debidamente calificado y acreditado para estas labores.
+Los vehículos utilizados para el trasbordo de materias o productos peligrosos deberán ser de similar naturaleza y que reúnan las mismas condiciones del vehículo que transporta la sobrecarga.
+Artículo 37.—Prohibición de circular sin efectuar el trasbordo del exceso de carga. Queda prohibido que el conductor o propietario de un vehículo circulen con sobrepeso en las vías terrestres nacionales. Los vehículos con sobrepeso deberán efectuar el trasbordo de la carga que sobrepase los pesos máximos permitidos por ley.
+La responsabilidad y los costos por la descarga del sobrepeso que se deba realizar en cumplimiento de la ley, correrán por cuenta del transportista.
+Artículo 71.—Prohibición para circulación en rutas urbanas de vehículos de transporte público colectivo de personas transportando cargas.
+Se prohíbe el transporte de carga en vehículos de transporte público colectivo de personas en rutas urbanas”.

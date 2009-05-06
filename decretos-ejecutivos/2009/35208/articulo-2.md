@@ -1,0 +1,1 @@
+Artículo 2º—Deróguense los artículos 39, 40, 41, 42, 43, 44, 45, 46, 47, 48, 49, 50 y 51 del Decreto Ejecutivo Nº 31363-MOPT, Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga, del 2 de junio del 2003, publicado en el Diario Oficial La Gaceta Nº 182 del 23 de setiembre de 2003 y sus reformas.
