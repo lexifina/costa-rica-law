@@ -1,0 +1,1 @@
+Artículo 3º—Deróguense los artículos 2 bis y 5 del Decreto Ejecutivo Nº 26012-MEIC, RTCR 100: 1997 Reglamento Técnico de Etiquetado de los Alimentos Preenvasados del 15 de abril de 1997 y sus reformas, publicado en el Diario Oficial La Gaceta Nº 91 del 14 de mayo de 1997 y córrase la numeración respectiva.
