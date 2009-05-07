@@ -2,7 +2,8 @@ CAPÍTULO V
 De las sanciones
 Artículo 15.—La persona usuaria estará obligada a devolver el material consultado en buen estado y dentro del plazo establecido en la boleta de préstamo. Caso contrario se hará acreedor de las siguientes sanciones:
 a. Pagará una multa a partir del incumplimiento en la devolución. Esta será revisada anualmente y establecida por la Dirección Administrativa - Financiera. La multa se cobrará diariamente por cada documento o material audiovisual y se le suspenderán los servicios hasta que normalice la situación. Asimismo, se le aplicarán las sanciones estipuladas en el Reglamento Autónomo de Servicios.
-b. Para efectos de cobro de la multa el día se computará de 24 horas, además la multa se contabiliza sumando los montos de cada uno de los ejemplares atrasados por separado y considerando los días naturales a partir de la fecha de vencimiento.
+b. Para efectos de cobro de la multa, el día se computará hábil, además la multa se contabiliza sumando los montos de cada uno de los ejemplares atrasados por separado.
+(Así reformado el inciso anterior mediante acuerdo N° 2 tomado en sesión del 7 de mayo de 2009)
 c. La persona usuaria que deteriore o mutile los materiales bibliográficos, audiovisuales o de cualquier otro tipo recibidos en préstamo, deberá cubrir el valor de la reparación.
 d. En caso de pérdida de material bibliográfico, audiovisual o cualquier otro, pagará la suma correspondiente, según su valor actual, más los trámites de compra o importación, si corresponde, en los que se incurra para la adquisición del material. Además debe cancelar el valor de la multa hasta el momento en que formalice en forma escrita la perdida del material ante la Unidad de Documentación.
 e. El o la encargada de la Unidad de Documentación informará al Área Financiera – Contable, de las personas funcionarias que se hagan acreedores a la sanción de multa o deban asumir el pago de materiales en sus diferentes formatos.

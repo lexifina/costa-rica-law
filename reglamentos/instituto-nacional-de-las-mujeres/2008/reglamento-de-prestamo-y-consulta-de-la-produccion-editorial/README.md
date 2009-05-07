@@ -14,3 +14,4 @@ Reglamento de Préstamo y Consulta de la Producción Editorial propia del INAMU,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-04 | la propia norma |
+| 2 | 2009-05-07 | Reglamento 0 (2009-05-07) |
