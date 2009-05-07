@@ -1,0 +1,6 @@
+CAPÍTULO XV
+De la carrera profesional
+De acuerdo con la norma DG 080-96 y la Ley Nº 7089 publicada en La Gaceta Nº 247 del 28 de diciembre de 1987 del Régimen de Carrera Profesional, para el sector Profesional Público, según artículos 7 inciso a), 21 inciso c) y 47 del Código Municipal, en relación con la norma 170 Constitucional, créase el Régimen de Carrera Profesional, para el sector laboral, para el cual el o la Alcalde(sa) Municipal podrá suscribir el convenio simple que se requiera. Y se regirá por las siguientes disposiciones reglamentarias.
+De las definiciones y objetivos:
+Artículo 52.—Se entenderá por Carrera Profesional a los procedimientos de la administración por medio del cual se concede un incentivo económico a los o las funcionarios(as) que laboran en la Municipalidad y que posean como mínimo el título de Bachiller.
+El incentivo se concederá con base a grados académicos, capacitación recibida, publicaciones especializadas, experiencia laboral de carácter profesional, en el servicio público nacional e internacional, colaboraciones prestadas como instructor en cursos promovidos en la administración pública, experiencia docente en centros universitarios o para-universitarios.

@@ -1,0 +1,1 @@
+Artículo 76.—Aquellos empleados contratados interinamente y que tengan más de 6 meses ininterrumpidos de laborar en la Municipalidad, podrán recibir capacitación para mejorar su trabajo, previa solicitud escrita ante el Departamento de Recursos Humanos y autorización de la Jefatura inmediata y de la Alcaldía Municipal.

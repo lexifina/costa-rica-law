@@ -1,0 +1,1 @@
+Artículo 82.—Quedará libre de los compromisos adquiridos ante la adjudicación de una beca, el o la funcionario(a) que interrumpa sus estudios por prescripción médica. El o la funcionario(a) tendrá que presentar al Departamento de Recursos Humanos certificado médico extendido por la Institución de Salud Estatal.

@@ -1,0 +1,1 @@
+Artículo 70.—Es obligación de los o las empleados(as) de la Municipalidad el recibir la capacitación programada por el Departamento de Recursos Humanos, previo visto bueno por parte de la Alcaldía Municipal.

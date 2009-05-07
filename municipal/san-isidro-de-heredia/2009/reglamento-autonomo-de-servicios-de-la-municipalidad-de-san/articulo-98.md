@@ -1,0 +1,1 @@
+Artículo 98.—El desacuerdo entre la jefatura y el o la colaborador(a) en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el o la Alcalde(sa) de la Municipalidad, previa audiencia a todas las partes interesadas en cumplimiento del debido proceso.

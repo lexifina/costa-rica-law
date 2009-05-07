@@ -1,0 +1,1 @@
+Artículo 90.—La Municipalidad por medio de la Hacienda Municipal, adjudicará una partida presupuestaria anual para la capacitación, formación y becas como incentivo, al Departamento de Recursos Humanos, para la concesión y administración de tales propósitos.

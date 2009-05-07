@@ -1,0 +1,1 @@
+Artículo 122.—La Municipalidad debe propiciar las facilidades necesarias con el fin de que todos(as) los(as) servidores(as), sin discriminación alguna, puedan capacitarse y superarse en el desempeño de sus puestos.

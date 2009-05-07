@@ -1,0 +1,1 @@
+Artículo 86.—El Departamento de Recursos Humanos analizará si la actividad propuesta responde a la programación establecida, y si el o la funcionario(a) seleccionado(a) reúne los requisitos establecidos para la aceptación de su participación.

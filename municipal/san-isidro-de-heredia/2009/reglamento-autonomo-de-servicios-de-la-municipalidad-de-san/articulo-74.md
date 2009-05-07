@@ -1,0 +1,1 @@
+Artículo 74.—La Municipalidad brindará el tiempo necesario, transporte y si fuere el caso, con autorización de la Alcaldía Municipal, viáticos a sus funcionarios para la participación en actividades de capacitación o formación de acuerdo a la tabla de viáticos vigente.
