@@ -1,0 +1,8 @@
+CAPÍTULO VII
+Procedimiento de contratación
+Artículo 38.—Inicio del procedimiento de contratación. La autorización para iniciar cada procedimiento de Contratación Directa amparada a este Reglamento, corresponderá única y exclusivamente a la Dirección Ejecutiva del CONAVI.
+La Dirección Ejecutiva del CONAVI identificará desde la elaboración del Plan Anual Operativo, los Proyectos Regulares y Mayores que asignará a la Dirección de Obras, cuya fiscalización probablemente se apoyará con servicios de una Consultora inscrita a este Registro.
+Una vez que los proyectos hayan sido adjudicados en firme, previa autorización de la Dirección Ejecutiva para que la fiscalización se apoye con servicios de una Consultora inscrita a este Registro, la Proveeduría deberá ordenarlos cronológicamente. Para establecer este orden cronológico; la fecha que rige es la correspondiente al día en que adquiera firmeza el acto de adjudicación.
+En caso de que dos o más proyectos adquieran firmeza en la misma fecha, el orden lo establecerá el monto de ellos en orden descendente.
+La lista de Proyectos Regulares en orden cronológico se denominará “Lista de Proyectos para contratar Servicios de apoyo en la Fiscalización de los Contratos para la ejecución de Proyectos de Rehabilitación, Mejoramiento y Obra Nueva de la Red Vial Nacional.”, en adelante la LIPRO.
+El inicio de las contrataciones se dará a partir de la publicación, por parte de la Proveeduría, de la primera lista de Consultoras elegibles del presente Registro en el Diario Oficial La Gaceta; siguiendo el procedimiento que para tal efecto se establece en este Reglamento.

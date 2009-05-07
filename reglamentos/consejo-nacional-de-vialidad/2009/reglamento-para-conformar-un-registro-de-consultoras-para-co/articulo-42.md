@@ -1,0 +1,1 @@
+Artículo 42.—Selección de la Consultora. Para la selección y asignación de la Consultora se establecen dos procedimientos uno para Proyectos Mayores y otro para Proyectos Regulares cada uno tiene sus requisitos pero la valoración del desempeño y la condición financiera son elementos comunes en los dos procedimientos.

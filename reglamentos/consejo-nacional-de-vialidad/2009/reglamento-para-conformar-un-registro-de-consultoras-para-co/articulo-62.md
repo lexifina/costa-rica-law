@@ -1,0 +1,3 @@
+Artículo 62.—Garantía de cumplimiento. La Consultora seleccionada para prestar servicios, deberá rendir una Garantía de Cumplimiento por un valor fijo de MG, que se calculará de acuerdo a la siguiente fórmula donde MCx corresponde al monto del contrato de Consultoría:
+MG = 10% MCx
+Para cada contrato, esta garantía debe comprender el plazo del contrato, más 90 días naturales adicionales. Deberá estar rendida y depositada para cuando se dé el acto de la firma del contrato. En caso del incumplimiento se le aplicarán las sanciones correspondientes al incumplimiento de condiciones previas, detallado en el artículo anterior.

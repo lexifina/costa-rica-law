@@ -1,0 +1,1 @@
+Artículo 33.—Del procedimiento de exclusión. Sin menoscabo del principio del debido proceso, el CONAVI está facultado para excluir unilateralmente a cualquier Consultora del Registro, cuando las causas así lo determinen. Para esto se seguirá el procedimiento y plazos establecidos al efecto en el Reglamento a la Ley de Contratación Administrativa, en su artículo 217.

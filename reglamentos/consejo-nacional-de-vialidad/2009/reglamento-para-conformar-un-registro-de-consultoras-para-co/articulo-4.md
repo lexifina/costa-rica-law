@@ -1,0 +1,1 @@
+Artículo 4º—Previsión presupuestaria. Para honrar el pago de los servicios que se generen a partir de este Registro, la Administración contará con recursos financieros a incorporar en cada uno de los ejercicios presupuestarios que abarquen las contrataciones.

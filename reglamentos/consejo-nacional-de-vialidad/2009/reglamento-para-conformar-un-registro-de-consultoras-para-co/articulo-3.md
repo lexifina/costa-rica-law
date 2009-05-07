@@ -1,0 +1,3 @@
+Artículo 3º—Ámbito de aplicación. El presente Reglamento es aplicable para la inscripción de Consultoras, que estén interesadas para brindar servicios de apoyo a la fiscalización de los contratos, para la ejecución de proyectos de rehabilitación, mejoramiento y obra nueva de la Red Vial Nacional.
+Las Consultoras, que formalicen su inscripción, quedarán registradas y evaluadas en forma integral, de acuerdo a sus antecedentes y al procedimiento de inclusión del presente Registro.
+Una vez registradas las Consultoras ofrecerán los servicios a través de Contrataciones Directas reguladas por el presente Reglamento.

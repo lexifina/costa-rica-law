@@ -1,0 +1,1 @@
+Artículo 63.—Formalización y eficacia de la contratación. La Consultora deberá suscribir el contrato dentro del término de los cinco días hábiles posteriores a su aceptación aportando las especies fiscales. La contratación será eficaz cuando se disponga del Contrato debidamente refrendado.

@@ -1,0 +1,1 @@
+Artículo 30.—Validez de la información y documentos aportados por la Consultora. Por el solo hecho de presentar la solicitud de inscripción, la documentación e información aportada para lograr la inscripción, así como cualquier información complementaria, se tendrá como válida, salvo prueba en contrario que se produzca posteriormente, pasando esta a ser propiedad del CONAVI.

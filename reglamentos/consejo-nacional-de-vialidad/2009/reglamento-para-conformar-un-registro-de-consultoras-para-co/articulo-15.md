@@ -1,0 +1,5 @@
+Artículo 15.—Invitaciones Posteriores. Cada vez que se requiera una nueva Lista de Consultoras Elegibles, la Proveeduría fijará un plazo de recepción de nuevas solicitudes o actualización de información de las Consultoras inscritas, el plazo debe ser de 20 días hábiles o menor; para tal fin cursará la invitación a los interesados, mediante publicación que se verificará en el Diario Oficial La Gaceta y facultativamente, como mínimo en dos diarios de circulación nacional.
+Para establecer la nueva lista se deben tomar en cuenta todos los elementos adicionales establecidos en el presente Reglamento que correspondan a esa fecha dentro de los que estarán:
+• La inclusión de las Consultoras nuevas que fueron aceptadas.
+• La actualización de la documentación de las Consultoras de la lista anterior que incluirá las variaciones en experiencia y otros aspectos de interés.
+• Los resultados de la calificación y la afectación de esta por sanciones aplicadas de las Consultoras que suscribieron contratos estén estos vigentes o no.

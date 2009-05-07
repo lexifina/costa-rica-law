@@ -1,0 +1,9 @@
+Artículo 69.—Informes requeridos. La Consultora deberá cumplir con los plazos y fechas que se le indiquen para la presentación de los informes sobre la labor de fiscalización y de ejecución de la obra en sí. La solicitud se le hará por escrito.
+El Administrador de Proyectos además podrá establecer los contenidos y formatos de los diversos informes.
+Los informes serán revisados por el Administrador de Proyectos para su aprobación, quien podrá solicitar correcciones o adiciones a los mismos, establecer plazos y fechas de entrega.
+Los informes requeridos al menos, son los siguientes: gerenciales, mensuales, semanales, técnicos específicos, informes finales.
+Los informes gerenciales serán mensuales (mes vencido). El plazo máximo para la entrega de dichos informes es de una semana posterior al cierre del período de estimación mensual (último día de cada mes).
+Los informes semanales pueden ser enviados vía electrónica o fax.
+Los informes mensuales los deberá presentar la Unidad Ejecutora. En ellos indicará la labor realizada cada mes para demostrar en forma efectiva sus servicios. Deben incluir una lista de toda la información de cálculo y topografía generada y requerida para los servicios prestados indicando su ubicación. La presentación de dichos informes constituye requisito y condición previa para el trámite de las facturas de pago de sus servicios profesionales.
+Los informes específicos, la Unidad Ejecutora los deberá elaborar cuando se le sean solicitados por el Administrador.
+El informe final. La Consultora al finalizar cada contrato lo deberá elaborar, con los contenidos que le solicite la Dirección de Obras. Además, en dicho informe deberá incluir un listado de toda la información que generó durante su contrato y adjuntar: las libretas de topografía y los documentos con datos numéricos, memorias de cálculo, etc.

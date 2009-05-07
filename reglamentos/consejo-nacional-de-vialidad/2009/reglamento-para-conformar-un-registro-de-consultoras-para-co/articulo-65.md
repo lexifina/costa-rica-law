@@ -1,0 +1,4 @@
+Artículo 65.—Orden de inicio. El plazo para la ejecución del contrato comenzará a regir a partir de la fecha de la Orden de Inicio firmada por el Administrador de Proyectos y el apoderado de la Consultora, la cual deberá girarse como máximo en los quince días naturales posteriores a la formalización de la contratación.
+De previo a emitir la Orden de Inicio, el Administrador deberá verificar que dispone del Contrato debidamente refrendado y la Orden de Compra respectiva.
+La Orden de Inicio no se podrá condicionar a solicitudes de ampliación de tiempo que requiera la Consultora para iniciar los servicios.
+La Consultora, por ningún motivo dará inicio a la prestación de servicios, sin que antes el contrato esté debidamente refrendado. Queda relevado el CONAVI de toda responsabilidad si la Consultora procediera de manera distinta a la aquí señalada.

@@ -1,0 +1,1 @@
+Artículo 16.—Reglamento Aplicable: El procedimiento de contratación con las Consultoras elegibles está regulado en este Reglamento y se regirá por todos los principios constitucionales y legales en materia de Contratación Administrativa, así como las prohibiciones y requisitos de Ley.

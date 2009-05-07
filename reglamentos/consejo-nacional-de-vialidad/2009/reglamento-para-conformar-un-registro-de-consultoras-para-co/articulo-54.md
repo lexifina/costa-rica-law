@@ -1,0 +1,5 @@
+Artículo 54.—Disponibilidad. Se considerará que la Consultora está disponible para ser contratada al recibir el comunicado, únicamente cuando este no sea el caso la Consultora podrá en un plazo que no podrá ser mayor a (2) días hábiles después del recibido presentar su posición en un documento debidamente firmado por el representante legal.
+Si la Consultora manifiesta que no está disponible, la Proveeduría sancionará a la Consultora ya que será sustituida por la siguiente en la lista de elegibles lo que significa que baja un lugar en el orden de ahí en adelante.
+La Proveeduría valorará la capacidad de la siguiente Consultora, para proceder de nuevo a notificar y así sucesivamente.
+La Consultora que se manifieste no disponible tres veces se le excluye de la lista de Consultoras Elegibles vigente.
+Una vez que la Proveeduría confirme la disponibilidad de la Consultora de acuerdo a lo indicado anteriormente deberá en el término de los dos días posteriores informar del inicio de la contratación a lo interno del CONAVI.

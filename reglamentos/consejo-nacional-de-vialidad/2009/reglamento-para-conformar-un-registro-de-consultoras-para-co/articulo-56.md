@@ -1,0 +1,1 @@
+Artículo 56.—Conformación de la Unidad Ejecutora. La Dirección de Obras propondrá la estructura organizativa de la Unidad Ejecutora requerida para los servicios a cada uno de los Proyectos Regulares de la LIPRO. Debe definir el organigrama correspondiente, en el cual se identificarán la cantidad y el tipo de perfiles requeridos con una descripción general de tareas.

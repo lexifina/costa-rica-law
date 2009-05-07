@@ -1,0 +1,6 @@
+Artículo 19.—El Expediente. Una vez que se confirme que la documentación está completa y que la Consultora cumple con todos los requisitos establecidos en este Reglamento, se le asignará un código a su expediente, dicho código se asignará en forma consecutiva de acuerdo con la fecha de recepción de la documentación.
+El expediente estará debidamente foliado para cada una de las Consultoras interesadas en participar. El mismo estará integrado en forma consecutiva, por cada uno de los documentos aportados por la Consultora al momento de su inscripción y durante su permanencia en el Registro. Además debe contener la siguiente información cuando esta se genere:
+a) Toda información que se le solicite para renovar y actualizar la inscripción.
+b) Toda información que la Dirección de Obras y otras dependencias del CONAVI remitan a la Proveeduría, una vez puestos en ejecución los contratos de servicios que se le asignen a la Consultora.
+c) Documentos sobre resoluciones sancionatorias aplicadas (número y fecha de resolución, fecha de notificación, fecha de vencimiento de la sanción, parte dispositiva de la resolución, trámite de contratación asociado, órgano que emite).
+d) Cualquier otra información o aspecto que resulte de interés administrativo y se estime importante anexar al expediente.

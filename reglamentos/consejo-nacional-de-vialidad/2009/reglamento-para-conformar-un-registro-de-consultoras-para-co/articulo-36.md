@@ -1,0 +1,2 @@
+Artículo 36.—Admisibilidad del recurso. La admisibilidad del recurso será dictada por la Proveeduría; será inadmisible el recurso de revocatoria que se interponga una vez transcurrido el término de tres días señalado en el artículo 30 anterior.
+Igualmente se tendrá por inadmisible el recurso cuando sea interpuesto por una persona carente de interés legítimo, actual, propio y directo; o cuando adolezca de la indicación precisa de los motivos de su inconformidad.

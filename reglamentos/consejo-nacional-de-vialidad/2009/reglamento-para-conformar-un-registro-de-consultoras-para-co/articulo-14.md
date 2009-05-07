@@ -1,0 +1,1 @@
+Artículo 14.—Vigencia de Lista de Consultoras Elegibles. Cada lista de Consultoras elegibles conformada no perderá su vigencia, hasta tanto el CONAVI publique una nueva, en concordancia con el procedimiento de contratación establecido en el presente reglamento.

@@ -1,0 +1,6 @@
+Artículo 28.—Comunicación del resultado de las solicitudes. La notificación de incorporación al Registro se efectuará a través de la publicación de la primera Lista de Consultoras Elegibles correspondiente en el Diario Oficial La Gaceta y/o por el medio o mecanismo que la Consultora acredite en el expediente del Registro.
+Además, el CONAVI procederá a notificar formalmente al interesado el resultado de su gestión, dándole a conocer el detalle y el número con el que se identifica su expediente.
+Es a partir de este momento que se hace efectiva la respectiva inscripción.
+Lo anterior también rige para los casos en que la Administración convoque a conformar una nueva lista de Consultoras elegibles, cada vez que se requiera según el procedimiento establecido en el presente reglamento.
+En casos de inscripción posterior al llamado de la Administración, la inscripción rige a partir del día siguiente de que se le notifique a la Consultora solicitante: que queda debidamente inscrita, pero debe esperar a ser incorporada en la siguiente Lista de Consultoras Elegibles.
+En caso de que por omisión por parte de la Consultora, no se hubiere indicado lugar para notificaciones o no pudiera ubicarse el lugar acreditado, se dejará constancia en el expediente de tal situación.

@@ -1,0 +1,1 @@
+Artículo 71.—Auditorías. El CONAVI realizará auditorías técnicas internas a través de la Auditoría Interna o de terceros contratados. El LANAMME, de conformidad con los alcances de la Ley Nº 8114 “Simplificación y Eficiencia Tributaria”, realizará auditorías técnicas a los proyectos en ejecución.

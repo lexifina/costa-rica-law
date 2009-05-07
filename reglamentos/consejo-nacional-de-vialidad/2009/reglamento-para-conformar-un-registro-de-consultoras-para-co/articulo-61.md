@@ -1,0 +1,12 @@
+Artículo 61.—El contrato. Una vez que la Proveeduría cuente con el informe de la Dirección de Obras en el caso de Proyectos Regulares o con la Consultora adjudicada el caso de Proyectos Mayores, procederá en los próximos diez días hábiles a coordinar con la Dirección Jurídica la confección del borrador del texto del contrato a suscribir y a la remisión del mismo a la Consultora. Además fijará el día y la hora límite para que la Consultora atienda el llamado y presente sus observaciones.
+a) Observaciones. Por una única vez la Consultora podrá presentar observaciones que no modifiquen sustancialmente el objeto contractual; el CONAVI podrá aceptarlas si las mismas no afectan sus intereses, para esto el CONAVI dispondrá de cinco (5) días hábiles para responder a la Consultora.
+b) La aceptación del contrato. Deberá ser remitida por la Consultora cumpliendo con las siguientes condiciones previas:
+• Dentro del plazo fijado por la Proveeduría.
+• Debidamente firmada por el representante legal de ésta.
+• En el caso de los Proyectos Regulares debe aportar los atestados del personal solicitado cumpliendo con los perfiles establecidos en el presente reglamento, los atestados del Organismo de Ensayo, en caso de habérsele solicitado y cualquier otro dato que se solicite para ser incorporado al contrato; esta aceptación se constituirá en su oferta.
+• En el caso de Proyectos Mayores deberá aportar lo que corresponda de acuerdo a la Invitación y a su Oferta.
+• Aportar constancia del Tribunal de Ética del Colegio Federado de Ingenieros y Arquitectos de Costa Rica de que la Consultora y los Profesionales ofrecidos no han sido sujetos de sanción alguna.
+c) El incumplimiento de la consultora. Cuando exista incumplimiento por parte de la Consultora de las Condiciones previas establecidas, se procederá de la siguiente manera:
+• No presenta la aceptación del contrato en el plazo señalado: se procede a sustituirla por la siguiente Consultora en el orden y a trasladarla al último lugar de la lista de elegibles.
+• La documentación solicitada está incompleta o el personal propuesto no cumple con los perfiles: se le hace una previsión para que subsane el error, donde únicamente tendrá un plazo de (5) días hábiles. Si incumple se procede a sustituirla por la siguiente Consultora en el orden, lo que significa que baja un lugar de ahí en adelante.
+• Si la Consultora acumula tres incumplimientos se le excluye de la Lista de Consultoras Elegibles vigente.

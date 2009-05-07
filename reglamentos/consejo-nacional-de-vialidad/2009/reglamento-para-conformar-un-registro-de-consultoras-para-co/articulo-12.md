@@ -1,0 +1,1 @@
+Artículo 12.—Recepción de solicitudes. Los interesados en formar parte del Registro podrán solicitar y gestionar su incorporación en la Proveeduría del CONAVI, en cualquier fecha a partir de la publicación de la invitación.

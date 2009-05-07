@@ -1,0 +1,2 @@
+Artículo 67.—Lugar de prestación de los servicios. Los servicios se darán en las oficinas del proyecto y en el sitio de las obras o la Consultora instalará las oficinas en el sitio que especifique el contrato suscrito.
+Para el cumplimiento de los objetivos establecidos, la Consultora brindará los servicios de inspección y topografía que se requieran, en el sitio de las obras de los proyectos que se le asignen (rutas nacionales ubicadas en todo el país), debiendo trasladarse al lugar de los trabajos y movilizarse en toda la longitud del (de los) proyecto (s) asignado(s).
