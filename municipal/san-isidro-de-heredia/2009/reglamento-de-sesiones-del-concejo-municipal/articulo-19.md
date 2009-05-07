@@ -1,0 +1,1 @@
+Artículo 19.—Finalizadas las exposiciones de los particulares, el Presidente concederá la palabra a los regidores que lo soliciten con el fin de intercambiar brevemente opiniones con los visitantes sobre los asuntos que se traten.

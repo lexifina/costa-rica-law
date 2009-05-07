@@ -1,0 +1,1 @@
+Artículo 39.—Cada Comisión nombrará a lo interno de su seno un presidente y un secretario, por acuerdo mutuo de sus miembros. Las Comisiones acordarán el día y la hora de su reunión, así como elaborarán al inicio de sus labores un pequeño plan de trabajo que será presentado al Concejo para su aprobación y conocimiento.

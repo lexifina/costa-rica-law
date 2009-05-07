@@ -1,0 +1,1 @@
+Artículo 34.—El Presidente, tomando en cuenta las modificaciones hechas al acuerdo, someterá el mismo a votación, diciendo en voz alta la forma definitiva en la que quedará redactado el acuerdo, acto seguido se procederá a la votación.

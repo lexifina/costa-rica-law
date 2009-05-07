@@ -1,0 +1,1 @@
+Artículo 12.—Las audiencias se realizarán en la primera y en la tercera sesión ordinaria del mes concediéndose un máximo de dos audiencias por sesión. En caso de ser mayor el número de solicitudes o en caso de emergencia se podrá realizar una sesión extraordinaria para que sean atendidas.

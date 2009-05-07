@@ -1,0 +1,1 @@
+Artículo 15.—Si el Concejo considera que el asunto es competencia del Alcalde (sa), se le trasladará a éste para que le dé el trámite correspondiente. La secretaría lo hará del conocimiento de los interesados, por escrito.

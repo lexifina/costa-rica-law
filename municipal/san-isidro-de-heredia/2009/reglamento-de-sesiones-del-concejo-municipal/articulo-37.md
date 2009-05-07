@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De las comisiones
+Artículo 37.—En la sesión siguiente al nombramiento del directorio del Concejo Municipal, el nuevo Presidente del Concejo dará a conocer la forma en que se ha integrado las Comisiones Permanentes de Trabajo, procurando la máxima participación de las diferentes Fracciones. Las Comisiones Permanentes estarán estrictamente conformadas por al menos tres regidores del Concejo. Las Comisiones Especiales estarán integradas por al menos tres miembros, dos deberán ser escogidos entre los regidores, ya sea suplentes o propietarios. Podrán integrarlas los síndicos propietarios y suplentes, estos últimos tendrán voz y voto. Los funcionarios municipales y los particulares podrán participar en calidad de asesores.

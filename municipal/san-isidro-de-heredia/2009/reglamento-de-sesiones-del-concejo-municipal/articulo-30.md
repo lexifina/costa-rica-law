@@ -1,0 +1,1 @@
+Artículo 30.—Siempre que sea carácter del Concejo, el Alcalde (sa), los Regidores y los Síndicos, podrán presentar asuntos, según hayan hecho solicitud de palabra al Presidente y teniendo para la exposición del tema hasta cinco minutos, según lo estime el Presidente. Estos asuntos podrán ser elevados a discusión y votación.

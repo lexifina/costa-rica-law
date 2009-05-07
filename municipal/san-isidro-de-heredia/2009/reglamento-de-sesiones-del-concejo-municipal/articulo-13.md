@@ -1,0 +1,1 @@
+Artículo 13.—La secretaria remitirá al Concejo, en orden de presentación las solicitudes que presenten los particulares. El Concejo deberá resolver si acepta o no la petición formulada en un plazo máximo de ocho días, tomando en cuenta el interés municipal, la oportunidad, la calificación del asunto por parte del presidente y cualquier otro elemento que considere pertinente.

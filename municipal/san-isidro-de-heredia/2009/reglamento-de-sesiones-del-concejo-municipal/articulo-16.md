@@ -1,0 +1,1 @@
+Artículo 16.—El Alcalde (sa) deberá presentar un informe ante el Concejo, de las audiencias que se le hayan trasladado a más tardar dos sesiones ordinarias posteriores a la fecha en que fueron trasladadas.

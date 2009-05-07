@@ -1,0 +1,1 @@
+Artículo 38.—La potestad de nombrar las Comisiones Permanentes y Especiales del Concejo, así como su disolución será del Presidente Municipal, dichas comisiones podrán ser propuestas al presidente por los regidores propietarios en ejercicio.

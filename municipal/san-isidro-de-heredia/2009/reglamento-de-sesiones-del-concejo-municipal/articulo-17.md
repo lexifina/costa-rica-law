@@ -1,0 +1,1 @@
+Artículo 17.—Cuando concurriere a sesión uno o varios particulares invitados o a quienes se les haya concedido audiencia, deberán de registrarse en el libro de asistencia con su nombre completo, número de identificación y teléfono. El Presidente Municipal, hará la presentación de rigor exponiendo los motivos de su presencia y de inmediato se les concederá la palabra.

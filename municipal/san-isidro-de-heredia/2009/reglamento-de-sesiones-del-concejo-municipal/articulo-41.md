@@ -1,0 +1,2 @@
+Artículo 41.—Por su naturaleza, este Reglamento de conformidad con lo establecido en el numeral 43 del Código Municipal, se somete a consulta pública no vinculante por un plazo de diez días hábiles, contados a partir de su publicación en el Diario Oficial La Gaceta, debiendo cualquier interesado hacer sus oposiciones en memorial razonado, ante el Concejo Municipal.
+San Isidro de Heredia, 12 de marzo del 2009.
