@@ -1,4 +1,5 @@
 CIRCULAR N° 02-2009
+(Nota: Mediante circular N° 18 del 7 de mayo de 2009, publicada en el Boletín Judicial N° 94 del 18 de mayo de 2009, comunica exclusiones de Peritos de esta Lista. Dicha circular puede consultarse en el sistema)
 DE LIC. ALFREDO JONES LEÓN, DIRECTOR EJECUTIVO
 PARA TODAS LAS OFICINAS JUDICIALES DEL PAIS Y
 PERITOS DESIGNADOS.

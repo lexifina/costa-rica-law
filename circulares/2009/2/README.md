@@ -14,3 +14,4 @@ Lista Oficial de Peritos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-27 | la propia norma |
+| 2 | 2009-05-07 | Circular 18 (2009-05-07) |
