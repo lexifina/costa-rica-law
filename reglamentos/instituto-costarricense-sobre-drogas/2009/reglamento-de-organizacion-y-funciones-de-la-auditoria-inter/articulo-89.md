@@ -1,0 +1,1 @@
+Artículo 89.—Supervisión. Cada auditoría o estudio especial de auditoría deberá ser supervisado para asegurar su conformidad con las normas de Auditoría Interna, las políticas y los programas de auditoría.

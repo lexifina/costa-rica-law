@@ -1,0 +1,1 @@
+Artículo 20.—Declaración de bienes. El Auditor Interno está obligado a cumplir con el requisito de declarar sus bienes de acuerdo con la Ley Nº 8422 Ley Contra la Corrupción y el Enriquecimiento Ilícito. También deberá dar cumplimiento a las disposiciones que se establece en esta materia.

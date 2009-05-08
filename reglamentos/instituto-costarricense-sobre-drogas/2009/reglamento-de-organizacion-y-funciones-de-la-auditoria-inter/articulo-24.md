@@ -1,0 +1,1 @@
+Artículo 24.—Apoyo evaluaciones o auditorías externas. La Auditoría Interna servirá de coordinadora y apoyo en las evaluaciones y auditorías externas, realizadas por la Contraloría o por despachos contratados por el Instituto.

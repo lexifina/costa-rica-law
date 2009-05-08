@@ -1,0 +1,1 @@
+Artículo 64.—Recibido por el Consejo Directivo. La Auditoría Interna debe revisar que en copia de la nota de remisión del informe, conste la fecha de recibido por parte de la Secretaria del Consejo Directivo.

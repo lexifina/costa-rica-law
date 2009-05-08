@@ -1,0 +1,1 @@
+Artículo 23.—Independencia en las funciones. Los funcionarios de la Auditoría Interna ejercerán sus funciones con independencia funcional y de criterio, respecto del Consejo Directivo y demás órganos de la Administración.
