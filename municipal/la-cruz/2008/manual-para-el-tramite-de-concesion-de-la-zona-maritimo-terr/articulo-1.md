@@ -111,16 +111,7 @@ Por lo antes indicado, es que se requiere la presentación de este anteproyecto 
 45. Una vez que el solicitante presente el anteproyecto, la municipalidad solicitará al ICT la revisión y aprobación del documento. Igualmente, es factible que el interesado realice directamente esta gestión ante el ICT, con el objeto de hacer más ágil el proceso, pero entonces deberá aportar tanto el anteproyecto como el oficio de aprobación del ICT.
 46. Una vez que la municipalidad cuente con el anteproyecto y la aprobación del ICT, estos deberán foliarse y archivarse en el respectivo expediente de solicitud de concesión, a fin de que se mencionen en el proyecto de resolución final para aprobación de la concesión por parte del Concejo Municipal.
 VI. Construcciones en la zona restringida
-Cuando una parcela tiene construcciones que se levantaron sin tener aún un contrato de concesión, es factible que el solicitante las conserve, siempre y cuando estas construcciones cumplan con todas las siguientes características:
-- que el solicitante demuestre que cuenta con el respectivo permiso de construcción expedido por la municipalidad,
-- que estos permisos tengan al menos cuatro años de haberse extendido, y
-- que las construcciones se ajusten al plan regulador.
-Esto conforme lo establece el dictamen C-230-97 de la Procuraduría General de la República. En el caso de que no existan dichos permisos municipales, estos se pueden sustituir con una declaración jurada.
-47. Cuando hay construcciones en la parcela, el funcionario debe verificar que estas hayan sido mencionadas en el reporte de la inspección de campo que se realizó al principio del trámite.
-48. Seguidamente, el funcionario deberá solicitar al solicitante los permisos de construcción respectivos y en caso de que no existieren, se solicitará una declaración jurada protocolizada por un abogado donde se indique que en su momento la municipalidad los otorgó.
-49. Una vez recibida la documentación pertinente, el Departamento revisa la documentación y determina si las construcciones pueden conservarse o no.
-50. Si es factible mantener las construcciones, el funcionario preparará un escrito de respuesta señalando que las mismas se ajustan al pronunciamiento C-230-97 de la Procuraduría General de la República y que por lo tanto la municipalidad tolerará la permanencia de las edificaciones sobre el terreno.
-51. Si se determina que no es factible mantener las construcciones, el funcionario deberá proceder con el trámite para su demolición. (Ver manual aparte específico para este tema).
+(Derogado mediante sesión N° 15 del 8 de mayo del 2009)
 VII. Certificación del MINAE
 52. En los casos en que se tramite una solicitud de concesión por un sector que cuente con plan regulador aprobado pero que no tenga delimitado el patrimonio natural del Estado, el funcionario del Departamento de Zona Marítimo-Terrestre deberá redactar la solicitud que remitirá a la Oficina Subregional del MINAE respectiva, sobre las zonas que prioritariamente requieren la delimitación del patrimonio.
 53. El Departamento deberá estar al tanto de recibir la respuesta del MINAE, para posteriormente dar seguimiento a la programación de la visita del MINAE que se requiere para realizar el trabajo de campo correspondiente.
