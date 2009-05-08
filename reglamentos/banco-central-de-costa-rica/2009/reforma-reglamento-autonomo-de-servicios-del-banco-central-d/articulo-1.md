@@ -1,0 +1,13 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 8 del acta de la sesión 5420-2009, celebrada el 15 de abril del 2009,
+considerando que:
+a. en el artículo 6 del acta de la sesión 5412 del 28 de enero del 2009, la Junta Directiva resolvió por mayoría, remitir en consulta al Consejo Nacional de Supervisión del Sistema Financiero, a las Superintendencias, a la Intendencia General de Seguros, a la Asociación de Profesionales del Banco Central de Costa Rica y al Sindicato de Empleados del Banco Central de Costa Rica, la propuesta de incluir un artículo 49 bis al Reglamento Autónomo de Servicios del Banco Central de Costa Rica, en el entendido de que las respuestas debían presentarse ante el Despacho de Gerencia del Banco en el plazo máximo de 10 días hábiles,
+b. la Superintendencia General de Valores mediante oficio 600, fechado 17 de febrero del 2009, manifestó no tener comentarios sobre el proyecto de redacción del citado artículo 49 bis del RAS.
+c. la Asociación de Profesionales del Banco Central de Costa Rica, en su oficio APBC-002-2009 de 17 de febrero del 2009, presentó observaciones sobre la redacción del artículo 49 bis del RAS, las cuales resulta ser más de forma que de fondo, a saber:
+“Todas las plazas tendrán un código de posición, considerando para ello la estructura organizacional y de puestos de cada dependencia dentro de la Institución. El Departamento Gestión del Factor Humano será el encargado de incluir, modificar o eliminar los códigos cuando existan razones plenamente justificadas, administrativa y jurídicamente, sin perjuicio de los derechos laborales correspondientes.”
+d. las demás entidades consultadas no emitieron ningún criterio al respecto, por lo que se presume que no tienen observaciones sobre el propuesto artículo 49 bis del Reglamento Autónomo de Servicios.
+e. en el oficio DAD-113-2009 del 3 de abril del 2009, la División Administrativa acoge las observaciones presentadas por la APROBACEN y replantea la propuesta,
+dispuso:
+1. Aprobar la modificación propuesta por la Auditoría Interna sobre el Reglamento Autónomo de Servicios y así adicionar el artículo 49 bis, el cual se leerá de la siguiente manera:
+“Todas las plazas tendrán un código de posición, considerando para ello la estructura organizacional y de puestos de cada dependencia dentro de la Institución. El Departamento Gestión del Factor Humano será el encargado de incluir, modificar o eliminar los códigos cuando existan razones plenamente justificadas, administrativa y jurídicamente, sin perjuicio de los derechos laborales correspondientes.”
+2. La modificación propuesta rige a partir de la publicación en el Diario Oficial La Gaceta.
