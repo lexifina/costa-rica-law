@@ -14,3 +14,4 @@ Modifica la Ley de Presupuesto Ordinario y Extraordinario de la República para 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-05-11 | Decreto Ejecutivo 35256 (2009-05-11) |
