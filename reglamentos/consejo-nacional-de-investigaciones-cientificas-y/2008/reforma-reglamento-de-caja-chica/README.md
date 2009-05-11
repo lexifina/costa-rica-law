@@ -14,3 +14,4 @@ Reforma Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-31 | la propia norma |
+| 2 | 2009-05-11 | Reglamento 1919 (2009-05-11) |

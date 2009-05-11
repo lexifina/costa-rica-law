@@ -3,7 +3,8 @@ Y TECNOLÓGICAS
 REGLAMENTO DE CAJA CHICA
 MODIFICACIONES
 El Consejo Director del CONICIT en uso de las facultades y atribuciones conferidas por los artículos 6, 11 y 103 de la Ley General de la Administración Pública, el artículo 13 inciso b) de la Ley, 5048 Creación del Consejo Nacional para Investigaciones Científicas y Tecnológicas y los lineamientos emitidos al efecto por la Contraloría General de la República, aprueban el siguiente Reglamento de Caja Chica que se regirá por las siguientes disposiciones:
-Artículo 3º—El monto asignado al Fondo será de ¢400.000,00 y podrá ser variado de acuerdo a las necesidades de la institución, para lo cual deberá contar con la autorización del Consejo Director del CONICIT.
+Artículo 3º—El monto asignado al fondo será de ¢600.000,00 y podrá ser variado de acuerdo a las necesidades de la institución, para lo cual deberá contar con la autorización del Consejo Director del CONICIT.
+(Así reformado mediante sesión N° 1919 del 11 de mayo de 2009)
 Artículo 4º—Los recursos del Fondo serán asignados por el Consejo Director y estarán a cargo de la Unidad de Finanzas del CONICIT.
 Artículo 6º—La adecuada administración de los recursos del Fondo, será responsabilidad del Coordinador de la Unidad de Finanzas del CONICIT, quien designará a uno de sus colaboradores (as) como encargado (a) del manejo de los recursos. En caso de ausencia del Coordinador de la Unidad de Finanzas, el Director de Soporte Administrativo designará la persona responsable del manejo de estos recursos.
 Artículo 7º—La persona encargada de la Caja Chica, será responsable del uso correcto de estos fondos ante el Coordinador de la Unidad de Finanzas. En su ausencia se nombrará a otra persona encargada, quien recibirá la caja chica, previo arqueo, por parte de la Unidad de Finanzas.
