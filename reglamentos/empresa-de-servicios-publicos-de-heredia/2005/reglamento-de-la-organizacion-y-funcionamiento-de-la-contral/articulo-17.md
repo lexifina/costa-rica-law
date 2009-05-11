@@ -1,1 +1,0 @@
-Artículo diecisiete.—La Contraloría no asumirá responsabilidades por los procedimientos establecidos en la Empresa, pero sí señalará, de acuerdo con sus competencias; las deficiencias en los procedimientos y la falta de control interno en los mismos.

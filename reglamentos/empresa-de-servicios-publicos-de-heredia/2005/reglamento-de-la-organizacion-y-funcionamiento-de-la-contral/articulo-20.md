@@ -1,1 +1,0 @@
-Artículo veinte.—La Contraloría deberá estar informada y colaborar con los estudios de auditoría externa que realicen firmas de carácter privado, contratadas por la Empresa o las que realicen los entes fiscalizadores, con el fin de brindar el apoyo requerido, así como tener conocimiento del normal desarrollo y magnitud de las labores que se estén realizando.

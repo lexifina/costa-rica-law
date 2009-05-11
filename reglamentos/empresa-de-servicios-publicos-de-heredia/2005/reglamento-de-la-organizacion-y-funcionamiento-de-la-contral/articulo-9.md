@@ -1,1 +1,0 @@
-Artículo noveno.—El Contralor, al igual que el Gerente General y los demás miembros de la Junta Directiva, deberá rendir caución de su ejercicio mediante garantías reales o póliza de fidelidad del Instituto Nacional de Seguros o una compañía aseguradora que se considere conveniente, de conformidad con el artículo Nº 22 de la Ley 5889.

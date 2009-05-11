@@ -1,2 +1,0 @@
-Artículo treinta y siete.—La Contraloría Interna redactará un informe final que contendrá las labores efectuadas, las recomendaciones giradas y puestas en práctica, así como aquellas que no lo fueron, indicando los puntos de vista de opiniones de la Administración y el criterio de la Contraloría por el cual se insiste o no, en la aplicación de las recomendaciones giradas.
-Al mismo tiempo elaborará un informe de ejecución del Plan Anual y otros estudios y labores no contempladas en el mismo.

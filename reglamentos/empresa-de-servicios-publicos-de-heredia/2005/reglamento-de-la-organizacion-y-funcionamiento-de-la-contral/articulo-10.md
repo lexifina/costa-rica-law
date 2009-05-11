@@ -1,1 +1,0 @@
-Artículo diez.—El Contralor debe desarrollar, aplicar, mantener y perfeccionar un programa de aseguramiento de la calidad, tendiente a añadir valor y a mejorar la gestión institucional, dicho programa debe ser evaluado cada año mediante autoevaluaciones y cada tres años por un revisor o equipo cualificado e independiente, proveniente fuera de la Empresa.

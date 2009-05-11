@@ -1,1 +1,0 @@
-Artículo treinta y dos.—La Contraloría mantendrá actualizado y en uso, un manual de procedimientos, como instrumento que definirá las características y los procedimientos de auditoría que se aplicarán en los diferentes estudios que se ejecuten en la Empresa y sus subsidiarias.

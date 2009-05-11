@@ -1,1 +1,0 @@
-Artículo dieciocho.—La Contraloría certificará que los recursos asignados, son suficientes para cumplir con su gestión. La Administración en coordinación con el Contralor, incluirán en la estructura programática del presupuesto ordinario, un detalle a nivel de actividad; de las asignaciones presupuestarias de la Contraloría.

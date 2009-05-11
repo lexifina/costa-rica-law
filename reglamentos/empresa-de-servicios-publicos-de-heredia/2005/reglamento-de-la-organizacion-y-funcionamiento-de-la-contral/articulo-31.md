@@ -1,1 +1,0 @@
-Artículo treinta y uno.—Para cada estudio que se vaya a ejecutar, se preparará un programa preliminar de auditoría en el que se determinarán sus objetivos y se especificarán las cuentas, o asuntos específicos que serán objeto de estudio, así como, en forma general, los procedimientos de auditoría adoptados para llevar a cabo el estudio.

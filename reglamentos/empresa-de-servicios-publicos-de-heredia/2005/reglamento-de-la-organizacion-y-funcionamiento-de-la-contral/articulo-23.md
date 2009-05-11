@@ -1,1 +1,0 @@
-Artículo veintitrés.—Las plazas vacantes que por cualquier razón, tengan lugar en los puestos de la Contraloría, deberán llenarse en un plazo máximo de tres meses, contados a partir del momento de la vacante. El plazo podrá prorrogarse por otros tres meses, por razones debidamente acreditadas en el expediente que se confeccione al efecto.

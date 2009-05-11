@@ -1,1 +1,0 @@
-Artículo dieciséis.—Será responsabilidad del jerarca y de los demás funcionarios establecer, mantener, evaluar y perfeccionar el sistema de control interno institucional. Asimismo, será responsabilidad de la administración activa realizar las acciones necesarias para garantizar su efectivo funcionamiento.
