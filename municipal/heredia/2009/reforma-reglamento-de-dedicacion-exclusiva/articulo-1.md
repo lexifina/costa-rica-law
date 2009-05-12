@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE HEREDIA
+El Concejo Municipal del cantón central de Heredia, en su sesión ordinaria número doscientos sesenta y nueve-dos mil nueve, del día trece de abril del dos mil nueve, acordó por unanimidad: modificar el artículo número 3, inciso A, del Reglamento de Dedicación Exclusiva, para que se lea de la siguiente manera: “Un 55% sobre el salario base a profesionales que ostentando el grado académico de licenciatura u otro superior, ocupen un puesto para el que se requiere como mínimo el grado académico de bachillerato universitario y además cumplan los demás requisitos establecidos en el presente reglamento.”
+Heredia, 28 de abril del 2009
