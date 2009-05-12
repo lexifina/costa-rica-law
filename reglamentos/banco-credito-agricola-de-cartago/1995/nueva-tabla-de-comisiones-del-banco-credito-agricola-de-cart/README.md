@@ -14,3 +14,4 @@ Nueva Tabla de Comisiones del Banco Crédito Agricola de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-09-26 | la propia norma |
+| 2 | 2009-05-12 | Reglamento 8235 (2009-05-12) |

@@ -1,319 +1,311 @@
 BANCO CREDITO AGRICOLA DE CARTAGO
+(Nota de Sinalevi: El Banco Crédito Agrícola de Cartago aprobó una nueva Tabla de Tarifas y Comisiones para los servicios de Bancrédito, mediante sesión N° 8475/1 del 7 de setiembre del 2011, publicada en La Gaceta N° 196 del 12 de octubre del 2011)
 (Nota de Sinalevi: Sobre este tema el Banco Crédito Agrícola de Cartago había emitido anteriormente la Tabla de Tarifas y Comisiones, publicada en La Gaceta N° 131 del 11 de julio de 1995, mediante sesión N° 6928 del 05 de abril de 1995 )
 Nueva Tabla de Comisiones aprobada por la Junta Directiva General del Banco Crédito Agrícola de Cartago en Sesión N° 6928. artículo N° 11 del 5 de abril de 1995.
-Concepto Cuentas Corrientes
-| ¢ | 1%
-Ordenes de no pago | 500 |
-Certificación de cheques | | 0.1
-Mínimo | 500 |
-Máximo | 3.000 |
-Constancias por firmas de auditores | 1.500 |
-Certificación a embajadas | 250 |
-Sobregiros no autorizados | |
-Mínimo | 200 tasa vigente |
-Cierre de cuentas corrientes por extravío | 500 |
-Reapertura de cuenta por extravío | 500 |
-Reapertura por otras razones | 500 |
-Chequeras | |
-Colones | 250 |
-Dólares | $1.5 |
-Traslado de fondos entre cuentas corrientes | 100 |
-Otras constancias | 250 |
-Notas de cr édito | 100 |
-Cheques rechazados por insuficiencia de fondos | ¢1.000 |
-| $ 6 |
-Nota débito generada por devolución de cheques defectuoso | 50 |
-Buzón nocturno | |
-Reposición de llaves | 1.000 |
-Depósito de llaves por apertura | 1.000 |
-Depósito de bolso por apertura | 3.500 |
-Entrega de cheques cancelados | |
-mínimo | 1.000 |
-máximo | |
-Recaudación de servicios públicos y a otras instituciones | | 2.0
-Impresión estado de cuenta | 100 |
-Copias de mi cr ofilm | 100 |
-Venta de cheques de gerencia | | 0.1
-mínimo | 500 |
-máximo | 2.000 |
-Ordenes de pago en moneda extranjera (nacional) | |
-hasta $ 150 | | 2.0
-de $ 150 hasta $ 750 | | 1.5
-de $ 750 hasta $ 1.800 | | 1.0
-de $ 1.800 en adelante | | 0.25
-Ordenes de pago (transferencia) | |
-hasta ¢ 1.000 | 120 |
-De ¢ 1.000 hasta e 10.000 | 300 | 2.0
-de ¢ 10.000 hasta e 200.000 | 2.200 | 1.0
-más de e 200.000 | | 0.25
-Envío de correspondencia por correo | 50 |
-T.E.D. (mensual) | 5.000 |
-Cobro de rentas de aduana | | 0.25
-Conciliación bancaria en diskette | 600 |
-Envío de información por fax | 200 |
-Informe de cheques cancelados (diario) | 100 | p/folio
-Recolección de depósitos especiales cuenta corriente | |
-hasta dos millones de colones (**) | 1.500 |
-(**) Sobre exceso se aplica la siguiente fórmula: (MT-2.000.000,OO)*0.5/1.000,00 + 1.500,00 | |
-Captación de Recursos
-Concepto ¢ 1%
-Constancias | 250 |
-Cheques de gerencia | | 0.1
-mínimo | 500 |
-máximo | 2.000 |
-Descongelamiento | |
-Colones | | 1.0
-Dólares | | 1.0
-Extravío de libreta | 150 |
-Reposición de libreta | 150 |
-Reposición de certificados de depósitos | 600 |
-mínimo | |
-máximo | |
-Cierre de cuenta en los primeros 30 días | 150 |
-Sección Fideicomiso
-| |
-Aceptación del negocio fiduciario | 5.000 |
-Constitución y formalización del contrato | 3.000 |
-Fideicomiso de inversión | | 2.5
-Fideicomiso de administración | | 3.0
-Fideicomiso testamentario | 1.500 (*) |
-Mandatos | |
-mínimo | |
-Inversión a corto plazo | |
-para sector privado | | 0.8
-para sector público | | 0.2
-Reparación de inmuebles que se encuentren en fideicomiso | | 15%(**)
-mínimo | 2.000 |
-Alquiler de inmuebles que se encuentren en fideicomiso | | 10%(***)
-mínimo | 1.000 |
-Notas: | |
-(*)Fideicomiso testamentario y con base en pólizas y otros, tarifas a fijarse en el momento de entrar en vigor la operación ¢ 1.500 anuales mientras no entre a funcionar, (fallecimiento) | |
-(**) Más los viáticos y transporte del inspector | |
-(***) 1-Servicio de arrendamiento de inmueble (el monto del primer alquiler), más 50% de los gastos. | |
-2-Confección de contrato para cobro de alquiler ¢ 3.000 | |
-Tarjeta Visa
-concepto | ¢ | 1%
-Crédito inferior a ¢ 100.000,00 | |
-Titular | 3.200 |
-Adicional | 1.600 |
-Crédito igualo superior a e 100.000,00 | |
-Titular | 3.200 |
-Adicional | 1.600 |
-Clásica internacional | |
-Crédito inferior a $ 1.200,00 | |
-Titular | $ 50.000 |
-Adicional | $ 25.00 |
-Crédito igualo superior a $ 1.200,00 | |
-Titular | $ 75.00 |
-Adicional | $ 25.00 |
-Oro local | |
-Titular | |
-Adicional | |
-Oro internacional | |
-Titular | $ 100.00 |
-Adicional | $ 40.00 |
-Reposición de tarjeta por extravío | |
-Clásica local | 1.300 |
-Clásica internacional | 1.300 |
-Oro local | 1.300 |
-Oro internacional | 1.300 |
-Reposición de tarjeta por deterioro | 300 |
-Comisión para afiliación de comercios | |
-Gasolinerías | | 2.5
-Supermercados | | 5.0
-Hoteles y turismo respectivo | | 6.0
-Otros | | 7.0
-Agencias de turismo | | 6.0
-Servicios profesionales | | 8.0
-Night clubs | |
-Comisiones por cheques incobrables | |
-por montos menores a ¢ 100.000,00 | 500 |
-por momos iguales o superiores a ¢ 100.000,00 | 1.000 |
-Comisiones por cargos internacionales | $1.75 | 1.0
-Comisiones por retiro de efectivo | |
-Retiro en colones | | 3.0
-Retiro en dólares | | 3.0
-Copias de estado de Visa | 50 |
-Operación de custodia
-Operación de custodia Custodia de certificados de depósito a plazo | |
-Bonos y otros (con servicio de intereses) | | 1
-Colones | |
-mínimo | 1.000 |
-Dólares | | 1
-mínimo | 1.000 |
-Custodia de certificados de depósito a plazo | |
-Bonos y otros (sin servicio de intereses) | |
-Colones | | 0.5
-mínimo | 1.000 |
-Dólares | | 0.5
-mínimo | 1.000 |
-Recepción de valores en custodia con cláusulas respectivas, a favor de: Proveeduría Nacional, Dir. General de Aduanas y otras instituciones para garantizar la participación y cumplimiento en las licitaciones. | |
-Colones y dólares (su equivalente) | |
-hasta 575 mil | | 0.5
-más de 575 mil | | 0.25
-mínimo | 1.000 |
-mínimo | 15.000 |
-custodia de paquetes cerrados y la cr ados | |
-por bulto hasta 3 000 em3 | 5.000 |
-por cada cm3 adicional | 0.3 |
-Cajitas de seguridad | 0.47p/cm3 |
-N" I (2592 cm3) | 1218 |
-N" 2 (7 779 cm3) | 3656 |
-N" 3 (18 252 cm3) | 8578 |
-N" 4 (26 676 ..:m3) | 12537 |
-N" 5 (36504 cm3) | 17156 |
-Depósito de garantía de llave | 1.500 |
-Reposición de llave | 500 |
-Cobro por uso diario | |
-hasta una semana | 1.000 |
-después de l semana | 200 d |
-Operaciones de crédito
-Por copias de avalúo | |
-mínimo | 2.000 |
-Estudio y trámite de solicitudes (anticipado) | 1.500 |
-Garantías de participación y cumplimiento | |
-Bonos de participación | | 3.0
-Bonos de cumplimiento | | 5.0
-Bono de garantía tramitado y no retirado | 1.000 |
-contrato con bono abierto | |
-Apertura anual (líneas de garantía) | | 1.5
-Emisión de garantía dentro del bono abierto | |
-Bono de participación | | 1.5
-Bono de cumplimiento | | 1.5
-Emisión de constancias de deuda | 500 |
-Gastos de formalización deoperaciones nuevaspara cr éditos de hasta 3 años plazo | |
-para cr éditos de más de 3 años plazo | | 1.5
-Manejo de líneas de cr édito revolutivas | | 1.5
-Sobregiros documentados en cuenta corriente | |
-Formales | |
-hasta tres meses | | 1.0
-más de tres meses | | 2.0
-Estudios en el Registro de la Propiedad | 1.000 |
-Conformidad de salida del país de vehículos prendados | 1.000 |
-Avalúos e inspecciones | (*) |
-hasta 50.000 de 50.000 - 200.000 de 200.000 - 500.000 de 500.000 - 1.000.000 de 1.000000 - 2 000.000 (**) más de 2.000.000 | 500 1.250 2.450 3.950 6.450 | 0.5 0.4 0.3 0.25 0.2
-(*) Montos acumulados | |
-Concepto $ 1%
-Transacciones Internacionales
-Transferencias recibidas del exterior pagadas en colones | | 1.0
-mínimo | 10 |
-Concepto ¢ 1%
-máximo | 250 | |
-pagadas en dólares | | 1.0 |
-mínimo | 10 | |
-máximo | 250 | |
-Traslado de transferencias | |
-bancos estatales | 5 |
-otros bancos | | 1.5
-mínimo | 10 |
-máximo | 250 |
-Transferencias enviadas al exterior pagadas en CK o retiro de ahorros | | 0.5
-mínima | 10 |
-máxima | 200 |
-télex | 10 |
-pagadas en efectivo | | 0.5
-mínimo | 10 |
-máximo | 200 |
-télex | 10 |
-Cobranza por importación, hasta $ 40.000 | | 0.5
-mínimo | 25 |
-máximo | 200 |
-cancelación | 25 |
-Cobranzas por exportación, hasta $ 40.000 | | 0.5
-mínimo | 25 |
-máximo | 100 |
-cancelación | 25 |
-Cartas de cr édito por importación | |
-hasta por $ 25.000 | | 0.5
-más de $ 25.000 | | 0.25
-mínimo | 35 |
-télex de apertura | 30 |
-traslado de canas de cr édito | 30 |
-Cartas de cr édito por exportación | |
-Confirmación | | 0.2
-por aviso | 20 |
-por negociación | | 0.5
-mínimo | 30 |
-por pago | 30 |
-modificaciones | 15 |
-portes | 3 |
-cancelación | 30 |
-Remesa directa | | 0.25
-Mínimo | 15 |
-Máximo | 75 |
-Télex | 15 |
-Portes | 3 |
-Enmienda | 15 |
-Costos por cable | 10 |
-Faxímil | |
-Centro América y Panamá | 5 |
-Norte y suramérica | 10 |
-Europa | 13 |
-Asia y resto del mundo | 15 |
-Cartas de garantía internacional | |
-Apertura | | 0.5
-mínimo | 30 |
-Conformación | | 0.5
-mínimo | 30 |
-Negociación | | 0.75
-mínimo | 30 |
-Enmienda por prórroga | | 0.5
-Giros a nuestro cargo (Letras bancarias) | |
-Dólares | | 0.5
-mínimo | 6 |
-Colones | | 0.5
-mínimo | 6 |
-Anulación de giros al exterior (Letras bancarias) | | 1.0
-mínimo | 5 |
-máximo | 50 |
-Por venta de dólares (por cada dólar) | ¢0.50 |
-Consultas de ordenes de pago al exterior | 15 |
-Consultas de cheques | 15 |
-Referencias bancarias | 15 |
-Concepto ¢ 1%
-Departamento Hipotecario
-Estudios en el Registro de la Propiedad | 1.000 |
-Trámite de solicitud | 1.500 |
-Constancias de estado del cr édito | 500 |
-Por cr éditos BANHVI a más de 8 años plazo | | 4.0
-Por cr éditos recursos propios a más de 1 año plazo | | 1.5
-Trámite de reposición de títulos | 600 |
-Trámite de cobro | |
-hasta 150.000 | 500 |
-de 150.000 - 500.000 | 1.200 |
-de 500.000 - 1.000.000 | 2.000 |
-más de 1.000.000 | 3.000 |
-Telegramas a operaciones vencidas | (*) |
-Kilometraje (según Contraloría) | 1.000 |
-Avaluós e inspecciones | 2.200 | 0.8
-hasta 50.000 | 4.300 | 0.7
-de 50.000 - 200.000 | 7.300 | 0.6
-de 200.000 - 500.000 | 12.300 | 0.1
-de 500.000 - 1.000.000 | 30.300 | 0.05
-de 1.000.000 - 2.000.000 | |
-más de 2.000.000 | 40.000 |
-(*) Montos acumulados | 500 |
-Concepto | ¢ | 1%
-Cartera Vencida | |
-Cobro administrativo de pólizas por el banco | 500 |
-Cobro administrativo de operaciones por mora | |
-hasta 150.000 | 500 |
-de 150.000 a 500.000 | 1.200 |
-de 500.000 a 1.000.000 | 2.000 |
-más de 1.000.000 | 3.000 |
-Gestión de prórroga operaciones | (*) |
-vencidas hasta 50.000 | 1.000 |
-de 50.000 - 200.000 | 2.200 | 0.8
-de 200.000 - 500.000 | 4.300 | 0.7
-de 500.000 - 1.000.000 | 7.300 | 0.6
-de 1.000.000 - 2.000.000 | 12.300 | 0.5
-de 2.000.000 - 20.000.000 | 30.300 | 0.1
-más de 20.000.000 | | 0.05
-máximo | 40.000 |
-Telegramas a operaciones vencidas | 500 |
-Visitas a domicilio por gestión de cobro | Según tabla de kilometraje de Contraloría |
-Trámite de cobro judicial hasta 50.000 de 50.000 - 100.000 de 100.000 - 200.000 de 200.000 - 500.000 de 500.000 - 1.000.000 más de 1.000.000 | (*) 700 925 1.225 1.825 2.575 | 0.45 0.30 0.20 0.15 0.10
-máximo | 25.000 |
-(*) Montos acumulados | |
-| | |
-Cartago, 11 de setiembre de 1995.
+(Nota de Sinalevi: Esta normativafue reformada parcialmente y reproducido su texto en forma íntegra, en sesión N° 8235 del 12 de mayo de 2009 y publicado en La Gaceta N ° 144 del 27 de julio de 2009, por lo que se reproduce a continuación:)
+TARJETAS DE CRÉDITO Y DÉBITO
+Comisiones por reemplazo de tarjeta:
+Comisión por reemplazo Tarjeta de débito | $5.00
+Comisión por reemplazo Tarjeta de cr édito | $5.00
+Copias de Voucher | No se cobra
+Comisiones por reemplazo de tarjeta (URGENTE) en caso de emergencia, robo o pérdida:
+Reemplazo urgente tarjetas de débito | $5.00
+Reemplazo urgente tarjetas de cr édito Local | $20.00
+Reemplazo urgente tarjetas de cr édito Internacional | $30.00
+Reemplazo urgente tarjetas de cr édito Oro, Empresarial y Platino | $30.00
+Comisiones por adelanto de efectivo con tarjeta de cr édito :
+Avance de efectivo electrónico (Internet y Telefónico) | 2.9%, mínimo $3.00
+Avance de efectivo en cajeros automáticos propios | 2.9%, mínimo $3.00
+Avance de efectivo en cajeros automáticos en convenio con otras instituciones. | 2.9%, mínimo $3.00
+Avance de efectivo en ventanilla. | 3% mínimo $3.00
+Avance de efectivo en cajeros automáticos que no estén en convenio. | 4% mínimo $3.00
+Avance de efectivo en ventanilla que no está en convenio. | 4% mínimo $3.00
+Comisiones por adelanto de efectivo con tarjeta de débito:
+Avance de efectivo en cajeros automáticos propios. Hasta 5 movimientos. | No se cobra
+Después del 5° movimiento en el mes y en cuentas con un saldo promedio semestral inferior al $350.00 en cajeros propios. | $0.10
+Después del 5° movimiento en el mes y en cuentas con un saldo promedio semestral inferior al $350.00 en cajeros en convenio. | $0.50
+Consultas en cajeros en convenio | $0.25
+Avance de efectivo en cajeros automáticos que no estén en convenio. | $3.00
+Otras comisiones sobre tarjetas:
+Comisión por levantamiento de bloqueo temporal por mora en tarjetas de cr édito. | $5.00
+Membresía anual tarjeta de cr édito Local: | $0.00
+Membresía anual tarjeta de cr édito Internacional | $0.00
+Membresía anual tarjeta de cr édito Oro, Empresarial y Platino | $0.00
+Multas por pago automático con débito a una cuenta sin fondos | 1% máximo $2.00
+Comisión por cargo administrativo por mora en tarjetas:
+Cargo Administrativo por Mora: de 1 a 30 días | $5.00
+Cargo Administrativo por Mora: de 31 a 60 días | $10.00
+Cargo Administrativo por Mora: de 61 a 90 días | $15.00
+Comisiones a negocios afiliados | Mantener lo definido en acuerdo de emisores locales VISA Internacional
+CAPTACIÓN
+Depósitos a Plazo:
+Reposición por extravío o robo: | 0.25% del valor del título
+-Mínimo | $7.00
+-Máximo | $75.00
+Orden de no pago sobre CDP, extravío o robo | $7.00
+Certificación de que CDP no tiene orden de no pago | $7.00
+Reportes y constancias CDP para negociar en Puesto de Bolsa | $7.50
+Cheques de Gerencia:
+En colones o su equivalente en dólares. Incluye cheques por saldo de cuenta cerrada. | $10.00 tarifas única (colones y dólares)
+Reposición de cheques de Gerencia | 0.25% del valor del cheque
+-Mínimo | $10.00
+-Máximo | $25.00
+Cuentas de Ahorro:
+Avance y retiro de efectivo en ventanilla por transacción (Se exceptúa los pensionados. Además a los clientes cuando el saldo promedio es mayor a $500.00 o cuando la transacción de retiro es mayor a lo permitido para retiro en cajeros). | $1.00
+Cuentas ahorro inactivas:
+Cuentas ahorros en colones. Saldo igual o inferior al equivalente a $20.00. | Aplica $5.00 cada mes hasta su liquidación.
+Cuentas ahorros en dólares. Saldo igual o inferior a $20.00 | Aplica $5.00 cada mes hasta su liquidación
+Liberación inmediata de fondos depositados en cuenta de ahorro:
+Cheques en colones | 0.50% sobre fondos utilizados en M.N y 0.25% sobre fondos utilizados en M.E
+Cheques en dólares contra Bancos del exterior | 1.00% sobre fondos utilizados en M.E
+Cuentas Corrientes:
+Órdenes de no pago de cheques:
+Trámite | $5.00 c/u hasta 5 cheques. Después de 5 cheques $30.00 por todo el trámite
+Cuentas cerradas por decisión del Banco o saldo insoluto | $10.00
+Costo de chequeras. Para girar colones y dólares | $6.00
+Cheques rechazados p/fondos insuficientes colones y dólares | $20.00 c/u
+Nota de débito generada p/devolución de cheques defectuosos en forma (endosos distintos, mal endoso, letra y monto distinto, posfechados). | $10.00
+Cheques devueltos depositados, correspondiente a otras cuentas | $3.00 c/u
+Liberación inmediata de fondos depositados en cuenta corriente:
+Cheques en colones | 0.50% en colones y 0.25% en dólares sobre los fondos utilizados
+Cheques en dólares contra Bancos del exterior | 1% sobre los fondos utilizados
+Otras comisiones en Cuentas Corrientes:
+Cierre de cuenta por extravío de cheques | $10.00
+Traspaso de fondos entre cuentas corrientes, de ahorros o de cuentas corrientes o viceversa, manualmente en las plataformas. | $5.00
+Por cada cheque que giren los intermediarios financieros (Bancos Privados, Empresas Financieras no Bancarias, Cooperativas de Ahorro y Crédito, Mutuales y Puestos de Bolsa). | El equivalente en colones de $2.00 suma que se cobrará el primer día hábil del mes siguiente.
+Cobro de una comisión sobre transferencia cambiada en efectivo, contra cuentas corrientes que mantengan los intermediarios financieros con la Institución en dólares y colones. | $0.35 sobre el monto
+Impresión de Estados de Cuenta | $3.00 tarifa única
+Por saldos promedios mensuales mínimos en cuenta corrientes (COBRO POR CHEQUES GIRADOS):
+Cuentas corrientes con saldos promedios mensuales menores a $350.00. | Hasta 5 cheques en el mes no se cobra, a partir del sexto $1.00 por cada cheque adicional.
+Certificación de Cheques:
+Colones y dólares | $10.00 tarifa única (colones y dólares)
+Reposición de cheque certificado | 0.15% sobre valor del cheque
+-Mínimo | $10.00
+-Máximo | $25.00
+Cuentas corrientes inactivas:
+Cuentas corrientes en colones. Saldo igual o inferior al equivalente a $20.00. | Aplica $5.00 cada mes hasta su liquidación
+Cuentas corrientes en dólares. Saldo igual o inferior a $20.00. | Aplica $5.00 cada mes hasta su liquidación
+Derecho especial de Giro en cuenta corriente:
+Comisión por Derecho Especial de Giro Autorizados | 1.50% flat para derecho especial de giro o prórrogas a 3 meses plazo. 2% flat para derecho especial de giro o prórrogas a 6 meses plazo.
+Mínimo (colones y dólares) | $20.00
+Comisión por no cancelación de derecho especial de giro conforme a la forma de pago pactada:
+Sobregiros formales e informales:
+Documentados | Se cobrará además de los intereses correspondientes, una comisión del 2% sobre el saldo no cubierto del sobregiro
+-Mínimo | $20.00
+Comisión por sobregiro accidental | Se cobrará la tasa para los sobregiros proporcional al número de días de su utilización mínimo $10.00
+Conciliación Bancaria en medios electrónicos | $5.00
+Informe de cheques cancelados (diarios) | $2.00 cada folio
+Por consulta de cheques | $2 mensual con derecho a 10 consultas de cheques sin costo; cada consulta adicional $0.25.
+Envío de correspondencia por correo externo | $5.00
+Cobro de cheques depositados en Ban cr édito por entidades financieras no participantes en la cámara de compensación electrónica de cheques. | ¢50.000.00 mensuales indistintamente del monto transado
+Constancias de conformidad de saldos solicitadas por firmas de Auditores o contadores Públicos Autorizados. | $10.00
+Aplicación de Embargos Judiciales | $30.00
+Certificación de Embajadas | $10.00
+Constancias Cuentas Corrientes y Cuentas de Ahorro | $5.00
+Órdenes de pago de cheques:
+Transferencias en el territorio nacional: | 2% Comisión mínima $10.00
+Pago de planilla:
+Para a cr editar en cuenta corriente o cuenta de ahorros | 0.15% del total a cr editado
+En sobre individualizado | $0.50 cada uno
+Servicio envío de Cajero a domicilio | $100.00
+Entrega de moneda únicamente en bolsas predefinidas, cuando son montos importantes la solicitud debe hacerse con un día de anticipación: | 1% sobre monto solicitado
+Monedas de: | Monto a entregar:
+¢500.00 ¢100.00 ¢ 50.00 ¢ 25.00 ¢ 20.00 ¢ 10.00 ¢ 5.00 | ¢500.000.00 ¢100.000.00 ¢ 50.000.00 ¢25.000.00 ¢20.000.00 ¢10.000.00 ¢5.000.00
+La entrega de monedas en montos diferentes a los predefinidos, se deberá solicitar con dos días de anticipación. | 1.5% sobre el monto solicitado
+Confección (planilla)de remesas para envío | 1.5% sobre el monto, mínimo $20.00
+Buzón nocturno:
+Costo de reposición de llave | $7.50 c/u
+Servicio por medio de transporte de valores:
+Confección de planilla por desglose | 1.5% sobre el monto, mínimo $20.00
+Envío por transportadora | Se cobra la tarifa de la transportadora
+Servicio de recolección de depósitos | Se cobra la tarifa de la transportadora. Hasta $7.000.00 COBRAR LA SUMA DE $6.00. Sobre El exceso se aplica la siguiente formula temporal: $2.00 por cada $3.500.00
+SERVICIO DE COMERCIO EXTERIOR
+Cartas de Crédito de Importación:
+Apertura | 0.40% del monto
+-Mínimo por apertura | $30.00
+SWIFT Apertura | $15.00
+SWIFT Modificación | $7.00
+Modificaciones | $20 c/u, si el valor se aplica la comisión de apertura
+Dis cr epancias | $20.00
+Envío por aceptación o no aceptación de dis cr epancias | $7.00
+Cobranzas del Exterior (Cobranza de Importación):
+Cobranza | 0.25% del monto
+-Mínimo | $25.00
+-Máximo | $75.00
+Porte aéreo | $2.00
+Traslado | 50% de la comisión
+SWIFT | $7.00
+Courier | De acuerdo al destino y la tarifa del servicio de courier
+Cheques en dólares por Cuentacorrentista Cobranza Especial:
+Transacción | 0.3%
+-Mínimo | $5.00
+-Máximo | $50.00
+Devolución | $10.00 c/u
+SWIFT | $7.00
+Cartas de Crédito de Exportación:
+Confirmación | 0.10% por cada mes o fracción
+-Mínimo | $40.00
+Modificación | $25.00 c/u
+Aviso | $20.00
+SWIFT | $7.00
+Aviso traslado | $20.00
+Courier | Según el destino
+Traslado | $30.00
+Cobranzas al Exterior (Cobros sobre el exterior):
+Transacción | 25%
+-Mínimo | $25.00
+-Máximo | $75.00
+SWIFT | $7.00
+Courier | De acuerdo al destino y la tarifa del servicio de courier
+Porte Aéreo | $3.00
+Cartas de Garantía por cuenta corresponsal y Stand By:
+Emisión o confirmación | 0.20% por cada mes o fracción
+-Mínimo | $25.00
+Modificaciones | $25.00 c/u. Si cambia el valor inicial se aplica la tarifa de confirmación
+SWIFT Costo de aviso | $7.00
+Pagos | 1% cada pago
+-Mínimo | $50.00
+-Máximo | $500.00
+Garantías y Avales al Exterior:
+Emisión / Confirmación | 0.20% por cada mes o fracción
+-Mínimo | $50.00
+Modificaciones | $20.00 si cambia el monto inicial se aplica tarifa de confirmación
+SWIFT | $15.00
+Pagos | 1% cada pago
+-Mínimo | $40.00
+-Máximo | $500.00
+Órdenes de Pago del Exterior:
+Pago en dólares / colones | 1%
+-Mínimo | $10.00
+-Máximo | $100.00
+*Cuando se paga en efectivo (dólares) aplica un colón por dólar
+Depósito en Cuenta Corriente, Ahorros, Inversiones. | $10, menos de $2.000.00; $20 más de $2.000.00
+Orden de Pago aérea o cablegráfica:
+Traslado a Bancos Estatales | $5.00
+Traslado a Bancos Privados | $25.00
+SWIFT | $7.00
+Transferencias (Transferencias Enviadas al Exterior):
+Apertura ( Emisión) | 0.5%
+-Mínimo | $10.00
+-Máximo | $75.00
+SWIFT | $7.00
+Divisas depositadas en Cuenta Corriente o Cuenta de Ahorro:
+Cuenta en dólares | 1.5%, mínimo $7.5
+Cuenta en colones | 1%, mínimo $5.00
+Venta de Cheques de Gerencia:
+Emisión | $20.00 tarifa única
+Cheques Enviados por Cobranza Simple:
+Pagos en colones | 0.75%
+-Mínimo | $15.00
+-Máximo | $75.00
+Pagos en dólares | 1.5%
+-Mínimo | $15.00
+-Máximo | $75.00
+SWIFT | Según tarifa de servicio
+|
+Venta de Cheques Viajero | 1% del monto vendido
+Cambio de Cheques Viajero (Servicio) | $7.5 en dólares (indistintamente del monto), en colones 1%
+Venta de Giros Internacionales (Emisión) | $8.00
+Detención de Pago a Giros Bancarios:
+BICSA Panamá | 1%
+-Mínimo | $5.00
+-Máximo | $40.00
+Citibank New York | $5.00
+Anulación de Giros (Servicio) | $5.00
+Cheques devueltos (Servicio) | $10.00 más gastos del corresponsal
+Verificación de claves a Bancos Privados (Servicio) | $7.5
+COLOCACIÓN
+Estudio y Trámite de Solicitud: | N/A
+Formalización de cr édito, prórrogas y novación de deudor: | Hasta un 5%. Observaciones: 1-Esta comisión será cobrada por una única vez al formalizarse el cr édito o al establecer prórroga al vencimiento definitivo. 2-No se cobrará la comisión de formalización en los contratos que se realicen de línea de cr édito revolutiva, tampoco se cobrará la comisión de formalización a los contratos de empleados y de tarjetas de cr édito (VISA-BCAC). 3-Se aplicará un 50% de la comisión, a las personas físicas cuyo salario o pensión es depositado en una cuenta de Ban cr édito.
+Estudios en el Registro Público: | $3.00 c/u realizados en el Registro de la Propiedad, $5.00 c/u cuando requiera trasladarse a la Dirección General de Deportes o al Ministerio de Trabajo.
+Kilometraje | Tarifa Contraloría General de la República
+Estudios periciales e inspecciones sobre monto de solicitud | Tarifa Colegio respectivo
+Líneas de Crédito: | Hasta el 5% sobre el monto del cr édito o por cada desembolso proporcional al plazo.
+Comisión por cancelación anticipada, dólares y colones, en los primeros 5 años de otorgado el cr édito: | Hasta un 5%
+Telegramas por operaciones vencidas: | $5.00 cada uno
+Garantías de Participación y Cumplimiento:
+Emisión Bonos de Participación | Colones: 0.75% por trimestre o fracción; Mínimo $20.00 por trimestre. Dólares: 0.60% por trimestre o fracción; mínimo $20.00 por trimestre.
+Extensión del Plazo | Colones: 0.75% por trimestre o fracción; mínimo $20.00 por trimestre. Dólares: 0.60% por trimestre o fracción; mínimo $20 por trimestre.
+In cr ementar el Valor | Colones 0.75% y Dólares 0.60% sobre el monto del in cr emento por trimestre o fracción existente entre la fecha de modificación y el vencimiento de la garantía, mínimo $20.00 por trimestre.
+Emisión Bonos de Cumplimiento | Colones: 1.25% por trimestre o fracción, mínimo $20 por trimestre. Dólares: 1.00% por trimestre o fracción, mínimo $20 por trimestre.
+Extensión del Plazo | Colones: 1.25% por trimestre o fracción, mínimo $20 por trimestre. Dólares: 1.00% por trimestre o fracción, mínimo $20 por trimestre.
+In cr ementar el Valor | Colones 1,25% y Dólares 1% sobre el monto del in cr emento por trimestre o fracción existente entre la fecha de modificación y el vencimiento de la garantía, mínimo $20.00 por trimestre.
+Bono de garantía no retirado y enmiendas | $20.00
+Cobro Administrativo de Operaciones en Mora:
+De 1 a 30 días | $20.00
+De 31 a 60 días | $30.00
+De 61 a 90 días | $40.00
+Para cr éditos menores a $1,000.00 | $10.00.
+*Esta comisión se cobra mensualmente durante el período en que permanezca el cr édito en esta condición.
+Traspaso de Operaciones de Cobro Administrativo a Cobro Judicial:
+-Mínimo | 1% sobre el total adeudado de cada operación
+-Máximo | $120.00
+Conformidad de salida del país de vehículos prendados al banco | $15.00 cada uno
+Constancias de deudas | $10.00 cada uno
+Fotocopias de expedientes | $0.05 por folio
+Comisión de manejo en operaciones garantizadas con mercadería depositada en bodega de clientes (gastos, kilometrajes y otros). | $0.05 mensuales por cada $5.00 del principal adeudado.
+FIDEICOMISOS
+Aceptación del negocio fiduciario, constitución y Formalización del contrato | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $200.00 mensual)+% de costos propios de cada fideicomiso
+Fideicomiso de Inversión | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $200.00 mensual+% de costos propios de cada fideicomiso.
+Fideicomiso de Administración | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $100.00 mensual
+Fideicomiso de Testamentarios | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $200.00 mensual +% de los costos propios de cada fideicomiso
+Mandatos | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $100.00 mensual + % de los costos propios de cada mandato.
+Fideicomiso de Garantía | (Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $700.00 anuales.
+SINPE: Sistema Nacional Pagos Electrónicos
+Transferencias Interbancarias (TFI) |
+-Mínimo | $2.00
+-Máximo | $15.00
+Aplica 3 % sobre el monto del TFI |
+Transferencias de Fondos a terceros ( TFT ) |
+-Mínimo | $1.00
+-Máximo | $20.00
+Aplica 3 % sobre el monto del TFT |
+Crédito directo |
+-Mínimo | $0.30
+-Máximo | $1.00
+Débito directo |
+-Mínimo | $0.20
+-Máximo | $1.00
+Débito en tiempo real (DTR) |
+-Mínimo | $1.00
+-Máximo | $20.00
+Aplica 3 % sobre el monto del DTR |
+BANCRÉDITO INTERNET
+Reimpresión de Clave | $2.00 por vez
+Sustitución de Multiclave | $5.00
+Comisión para Ban cr édito Internet tiempo real ( TFT ) | $1.40 c/u
+Comisión en Ban cr édito Internet para Crédito Directo | $0.50 c/u
+OTRAS COMISIONES
+Información sobre solicitudes de conformidades de saldo sobre cuentas corrientes, cr éditos y otras, hechas para firmas de auditorías nacionales y extranjeras. | $10.00
+Estados de cuenta corriente, tarjeta de cr édito y otra correspondencia enviada a clientes y devuelta por dirección errónea. | $1.00
+Constancias o certificaciones para efectos de trámite de Visa para ingreso a los Estados Unidos de América. | $10.00
+Referencias Comerciales | $10.00
+Otras constancias | $5.00
+Copias de mi cr ofilm | $3.00
+Recaudación de Servicios Públicos y otras Instituciones | Según convenios
+Solicitud de información confidencial a otros Bancos del Sistema Estatal:
+-Persona Física | $2.00
+-Persona Jurídica | $7.00
+Seguridad:
+Solicitud revisión de video de transacciones realizadas en ventanilla, cajeros automáticos, cajas interna. | $15.00 por video solicitado
+Custodia de Cajitas de Seguridad:
+Tamaño | Alto | Ancho | Fondo |
+Pequeña | 7.5 cm | 12 cm | 54 cm | $26.00
+Mediana 1 | 12 cm | 12 cm | 54 cm | $40.00
+Mediana 2 | 8 cm | 26 cm | 54 cm | $40.00
+Grande | 12 cm | 26 cm | 54 cm | $90.00
+Extra grande | 26 cm | 26 cm | 54 cm | $190.00
+Depósito de garantía por arriendo de cajita de seguridad para cualquier tamaño. | 50% del costo anual de la cajita
+Reposición de llave en caso de extravío | $17.00 costo administrativo más los costos de cerrajería
+Custodia de objetos en paquetes cerrados que corresponden a bienes extraídos de cajitas de seguridad que deben desocuparse por falta de uso o pago del cliente: |
+-Por bulto de 3.000 cm3 o menos | $100.00 anuales
+-Por cm3 adicionales | $0.05 o su equivalente en colones
+Custodia de paquetes cerrados y la cr ados:
+Por bulto de 3.000 cm3 o menos | $25.00
+Por cm3 adicionales | $0.01 diario
+Custodia de Títulos valores
+En colones | 0.50% anual
+-Mínimo | ¢2.000.00
+En dólares | 0.50% anual
+-Mínimo | $7.00
+Reposición de valores en Custodia por cláusulas restrictivas a favor de la Proveeduría Nacional, Dirección General de Aduanas y otras Instituciones para garantizar la participación y cumplimiento de las licitaciones. | Comisión del 1.5% sobre el monto o saldo del cr édito debitándose de una cuenta corriente o de ahorros del cliente la parte proporcional en forma mensual
