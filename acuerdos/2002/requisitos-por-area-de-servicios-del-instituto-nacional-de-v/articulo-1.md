@@ -183,8 +183,10 @@ a) Depósitos Bancarios
 1. Se debe llenar una boleta comprometiéndose a pagar mes a mes en e] banco e inmediatamente después del deposito remitirlo vía fax al número 222-3456 para su debida aplicación.
 b) Egresos
 1. Para egresar dinero de las cuentas 41-08 ó 41-29, el cliente deberá presentar los recibos correspondientes a esos pagos en dichas cuentas.
-c) Constancias
-1. Para solicitar constancia de cancelación de un préstamo, cliente debe presentar Informe Registra] de la Propiedad y cancelar 500,00 para su realización.
+(*) c) Constancias Emisión de constancias para cancelar la deuda, constancias de que no se tiene deuda con el Sistema de Ahorro y Préstamo, (el cliente debe presentar el Informe Registral de la Propiedad), constancias de características, o estado de la operación (al día, atrasada, arreglo de pago, etc.) y constancias y certificaciones de deuda cancelada elaboradas por el Proceso de Cobro.
+1. Cancelar en las Cajas la suma de ¢2.000,00 (dos mil colones) por certificación o constancia.
+2. A partir de esta publicación, se incrementará el valor de la constancia o certificación al inicio de cada año aplicando un incremento igual al índice de inflación según el cierre del porcentaje anual acumulado a cada diciembre, redondeándose el valor a la centena superior.
+(*) (Así reformado el punto anterior en sesión N° 5739 del 13 de mayo de 2009, y publicado en La Gaceta N° 114 del 15 de junio de 2009)
 d) Correcciones
 1. Para corregir números de contratos, números de cédula u operaciones de préstamo, el cliente deberá solicitarlo por escrito y adjuntar copia de la cédula de identidad.
 2. Para egresar e ingresar dinero de un contrato a otro, ya sea persona física o jurídica, se debe de solicitar por escrito.

@@ -14,3 +14,4 @@ Requisitos por Area de Servicios del Instituto Nacional de Vivienda y Urbanismo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-16 | la propia norma |
+| 2 | 2009-05-13 | Acuerdo 0 (2009-05-13) |
