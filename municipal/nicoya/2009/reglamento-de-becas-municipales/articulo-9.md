@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión de Educación asignará la cantidad de formularios para que los empleados municipales y sus hijos sean beneficiarios de una beca municipal, además el resto de formularios de becas quedarán en la Secretaría Municipal a fin de que los estudiantes que deseen obtener una beca municipal puedan pasar a retirar el mismo.

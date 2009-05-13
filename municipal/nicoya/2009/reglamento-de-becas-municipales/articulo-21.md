@@ -1,0 +1,1 @@
+Artículo 21.—Por cada solicitud de Beca Municipal la Secretaria Municipal abrirá un expediente en donde constarán todos los documentos aportados por el interesado. La Comisión de Educación no dará trámite a aquellas solicitudes que sean entregadas en forma incompleta o carente de documentos.

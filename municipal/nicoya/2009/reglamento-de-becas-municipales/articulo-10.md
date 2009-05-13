@@ -1,0 +1,1 @@
+Artículo 10.—Las personas interesadas en una beca Municipal, deberán presentar aparte de la información requerida en el artículo 4, copia del último informe de calificaciones certificado por la institución educativa correspondiente.
