@@ -14,3 +14,4 @@ Tarifas de Ingreso para el Parque Marino del Pacífico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-09 | la propia norma |
+| 2 | 2009-05-14 | Decreto Ejecutivo 35482 (2009-05-14) |
