@@ -1,0 +1,1 @@
+Artículo 54.—La Auditoría Interna para el trámite y admisibilidad de denuncias se regirá por lo establecido en el artículo 8º de la “Ley contra la corrupción y el enriquecimiento ilícito en la función pública” y lo indicado en el Capítulo III del Reglamento a la misma ley.

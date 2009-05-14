@@ -1,0 +1,1 @@
+Artículo 46.—En cuanto a los requisitos y contenidos de los informes y otras comunicaciones, se aplicará principalmente lo dispuesto por las Normas para el Ejercicio de la Auditoría Interna respecto de las demás comunicaciones según lo establezcan los lineamientos que al efecto defina la Contraloría General de la República o en su defecto el Auditor Interno.

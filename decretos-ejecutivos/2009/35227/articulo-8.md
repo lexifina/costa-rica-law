@@ -1,0 +1,1 @@
+Artículo 8º—El Auditor Interno deberá informar al máximo Jerarca, y los demás funcionarios de Auditoría deberán informar al Auditor Interno, cuando existan factores que puedan comprometer su independencia y objetividad, o exista algún tipo de conflicto de intereses.

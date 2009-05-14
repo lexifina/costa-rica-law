@@ -1,0 +1,1 @@
+Artículo 15.—El Auditor Interno deberá cumplir las funciones que establezca el Manual de Cargos del Ministerio de Ciencia y Tecnología y con los requisitos dispuestos por la Contraloría General de la República.

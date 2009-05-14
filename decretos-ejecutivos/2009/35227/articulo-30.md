@@ -1,0 +1,1 @@
+Artículo 30.—Será obligación de la administración activa del Ministerio, llevar un registro separado del monto asignado y aprobado para la Auditoría Interna, detallado por objeto del gasto de manera que se controle con toda exactitud la ejecución y modificaciones de los recursos presupuestados.

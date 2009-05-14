@@ -1,0 +1,1 @@
+Artículo 27.—Es obligación del Auditor Interno definir y mantener actualizado en el Manual de Procedimientos de Auditoría, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna que se llegarán a establecerse en el futuro. Lo anterior se realizaría con fundamento en lo estipulado en el artículo 22, inciso a), de la Ley General de Control Interno.
