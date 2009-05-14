@@ -1,0 +1,22 @@
+N° 35222-H
+El PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18) y 146, de la Constitución Política; los artículos 25, inciso 1) y 28, inciso 2) acápite b de la Ley N° 6227 “Ley General de la Administración Pública” del 2 de mayo de 1978, los artículos 58,78,79,80 y 85 de la Ley N° 8131 “ Ley de la Administración Financiera de la República y Presupuestos Públicos” del 18 de setiembre del 2001 y su Reglamento.
+Considerando
+1°-Que la Ley de la Administración Financiera de la República y Presupuestos Públicos-Ley N° 8131-en su artículo 79 inciso c) indica que el Subsistema de Crédito Público tiene como objetivo propiciar la utilización de las fuentes de financiamiento más favorable es para el país, por parte de las dependencias del sector público.
+2°-Que la Ley de la Administración Financiera de la República y Presupuestos Públicos –Ley N° 8131-en su artículo 81 establece que el endeudamiento resultante de las operaciones de crédito público se denominará deuda pública y que dos de los motivos que la originan son la contratación de créditos con instituciones financieras, sean estas nacionales o internacionales, así como la emisión y colocación de títulos de deuda cuyo vencimiento supere el ejercicio económico en el cual son contraídas.
+3°-Que la Ley de la Administración Financiera de la República y Presupuestos Públicos-Ley N° 8131-en su artículo 80, inciso e) señala que dentro de las competencias de la Dirección de Crédito Público del Ministerio de Hacienda, se encuentra definir mediante reglamento, los procedimiento aplicables a la negociación, contratación, renegociación y amortización de la deuda externa del Gobierno de la República; previa consulta a la Contraloría General de la República.
+4°-Que la Ley de Contratos de Financiamiento Externo con Bancos Privados Extranjeros-Ley N° 7010 del 25 de octubre de 1985-en su numeral 7 indica que toda contratación de créditos externos o internos por parte de las instituciones públicas descentralizadas del Estado, así como en instituciones en donde el Estado o sus instituciones posean más del 50 por ciento de sus acciones deberá contar con la autorización previa del proyecto elaborado por el Ministerio de Planificación Nacional y Política Económica, dictamen favorable del Banco Central de Costa Rica y autorización de la Autoridad Presupuestaria.
+5°-Que la Ley Orgánica del Banco Central de Costa Rica-Ley N° 7558 del 3 de noviembre de 1995-en su artículo 106 establece que siempre que las instituciones públicas traten de contratar un crédito tanto en el exterior como en el interior deben solicitar dictamen al Banco Central de Costa Rica.
+6°-Que la Ley de Contratación Administrativa –Ley N° 7494 del 2 de mayo de 1995-en su artículo 52 dispone que la Administración antes de utilizar el mecanismo de licitación con financiamiento, deberá obtener las autorizaciones previstas en el ordenamiento jurídico para el endeudamiento y para el empleo de este mecanismo.
+Por tanto,
+DECRETAN:
+Reglamento para Gestionar la Autorización para la Contratación del Crédito Público del Gobierno de la República, Entidades Públicas y demás Órganos según corresponda
+CAPÍTULO I
+Aspectos generales
+Artículo 1º—Ámbito de aplicación: Este Reglamento regula lo relativo al procedimiento de negociación y contratación del crédito público del Gobierno de la República, entidades públicas y demás órganos según corresponda.
+De conformidad con lo dispuesto en el artículo 85 de la Ley Nº 8131, se exceptúan del alcance del presente reglamento los siguientes casos:
+a) Los créditos externos que contrate el Banco Central de Costa Rica como único obligado, de acuerdo con su Ley Orgánica.
+b) Los créditos que contraten o garanticen los bancos estatales a personas y entes privados dentro de su actividad ordinaria, los cuales serán normados por el Banco Central y la Superintendencia General de Entidades Financieras en lo que corresponda.
+c) Los créditos que contraten las universidades.
+d) Los créditos que contraten las municipalidades.
+Asimismo, le aplican al presente Reglamento las excepciones establecidas en la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones -Ley Nº 8660 publicada en el Diario Oficial La Gaceta número 156 del 13 de agosto del 2008-, y en la Ley Reguladora del Mercado de Seguros -Ley Nº 8653, publicada en el Diario Oficial La Gaceta número 152 del 7 de agosto del 2008-. Así como cualquier otro ente público que por Ley se encuentre exonerado.

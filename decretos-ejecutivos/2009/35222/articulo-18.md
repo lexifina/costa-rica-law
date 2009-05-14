@@ -1,0 +1,1 @@
+Artículo 18.—Plazo de autorización de las líneas de crédito. Los montos máximos utilizables de las líneas de crédito serán aprobados para períodos no mayores a un año, con el fin de garantizar que el endeudamiento sea de corto plazo. Este periodo no necesariamente debe de coincidir con el Periodo de Ejecución Presupuestaria.

@@ -1,0 +1,1 @@
+Artículo 6º—Nulidad de operaciones. De conformidad con lo dispuesto en el artículo 87 de la Ley de Administración Financiera de la República y Presupuestos Públicos -Ley Nº 8131-, resultarán nulas las negociaciones de crédito público que no se ajusten a la normativa vigente, sin perjuicio de la responsabilidad personal de quienes las ejecuten.

@@ -1,0 +1,2 @@
+Transitorio único.—Las solicitudes para gestionar las autorizaciones de endeudamiento que hubieran sido presentadas junto con la información requerida ante la Dirección de Crédito Público antes de la entrada en vigencia del presente reglamento, no tendrán que ajustarse a lo dispuesto en este reglamento, en cuyo caso el trámite de autorización continuará conforme las disposiciones previas vigentes.
+Dado en la Presidencia de la República.—San José, a los dos días del mes marzo del año dos mil nueve.

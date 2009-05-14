@@ -1,0 +1,1 @@
+Artículo 19.—Ampliación de las líneas de crédito. En caso de que una entidad requiera incrementar el monto autorizado a utilizar por concepto de una línea de crédito, ésta debe presentar a la Dirección de Crédito Público la solicitud con la información descrita en el artículo 15 del presente reglamento.

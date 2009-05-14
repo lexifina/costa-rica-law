@@ -1,0 +1,1 @@
+Artículo 9º—Autorización de las Misiones de los Organismos Financieros. Las misiones de organismos financieros internacionales que participen en la negociación, contratación y cualquier otra actividad previa a la contratación de las operaciones de crédito, deberán contar con el aval del Ministerio de Hacienda.
