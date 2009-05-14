@@ -1,0 +1,1 @@
+Artículo 8º—Por la celebración de actividades con karaoke, se deberá pagar el impuesto sobre espectáculos públicos, cuando aquellas se enmarquen en la definición que del hecho generador de la obligación tributaria hace que se aplique dicho impuesto, según su respectiva ley.

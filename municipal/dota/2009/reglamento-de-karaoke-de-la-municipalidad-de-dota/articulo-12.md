@@ -1,0 +1,1 @@
+Artículo 12.—Se reglamenta la actividad de karaoke porque existen locales comerciales que no cumplen con las directrices del Ministerio de Salud, en cuanto al control del sonido debido a que no tienen aisladores del mismo.

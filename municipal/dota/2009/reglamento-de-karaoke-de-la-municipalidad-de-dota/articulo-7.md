@@ -1,0 +1,1 @@
+Artículo 7º—Para la solicitud de autorización de actividades con karaoke, los interesados deberán cumplir con los siguientes requisitos: a) permiso del Ministerio de Salud, b) nota de solicitud a máquina o a mano en letra de molde, en la que indique la fecha, hora, lugar del acto y nombre del patentado y c) nombre y firma del patentado.

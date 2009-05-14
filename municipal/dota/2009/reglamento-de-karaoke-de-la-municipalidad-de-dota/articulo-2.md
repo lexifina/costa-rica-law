@@ -1,0 +1,1 @@
+Artículo 2º—Toda actividad social con karaoke que se programe en establecimientos comerciales, deberá contar con el respetivo permiso municipal para su realización, previa inspección por parte de la Oficina de Patentes.

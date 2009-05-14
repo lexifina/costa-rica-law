@@ -1,0 +1,1 @@
+Artículo 9º—Las personas físicas o jurídicas que brinden servicio de karaoke a los patentados de negocios en este cantón, deberán contar con un permiso municipal, para lo cual se aplicará lo establecido en el artículo 79 del Código Municipal.

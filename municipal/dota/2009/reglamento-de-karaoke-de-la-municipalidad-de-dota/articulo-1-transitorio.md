@@ -1,0 +1,3 @@
+Transitorio.—Para los establecimientos comerciales que ofrezcan este tipo de actividades y que no cuenten en la actualidad con el respectivo permiso de funcionamiento del Ministerio de Salud, se les concede un plazo de treinta (30) días para que cumplan con dicho requisito.
+Rige diez (10) días hábiles a partir de su publicación en el Diario Oficial La Gaceta.
+El presente reglamento es aprobado por el Concejo Municipal del cantón de Dota, mediante artículo I, de la sesión extraordinaria Nº 32, del día 19 de marzo del 2009, artículo IX, de la sesión ordinaria Nº 145, del día 14 de abril del 2009 y artículo V, de la sesión ordinaria Nº 146, del día 21 de abril del 2009.

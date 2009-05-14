@@ -1,0 +1,1 @@
+Artículo 5º—Se autorizará el desarrollo de actividades con karaoke, los días viernes y sábados, de las dieciocho horas (6 p. m.) hasta las veintitrés horas (11 p. m.) y domingos, de las dieciocho horas (6 p. m.) hasta las veintidós horas (10 p. m.), y se cobrará la suma de tres mil colones (¢3.000) por cada actividad de karaoke que se realice en el cantón.
