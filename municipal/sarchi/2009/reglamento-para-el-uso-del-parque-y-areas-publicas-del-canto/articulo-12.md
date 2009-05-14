@@ -1,0 +1,1 @@
+Artículo 12.—Queda prohibido fijar o pintar avisos, anuncios, programas de cualquier clase y material en postes, candelabros de alumbrado, kioscos, fuentes, árboles, aceras, guarniciones, en general elementos de ornato de los parques y bulevares, salvo previa autorización notificada por el Municipio.
