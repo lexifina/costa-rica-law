@@ -14,3 +14,4 @@ Reglamento para implementar la modalidad del teletrabajo en la Procuraduría Gen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-24 | la propia norma |
+| 2 | 2009-05-15 | Reglamento 0 (2009-05-15) |
