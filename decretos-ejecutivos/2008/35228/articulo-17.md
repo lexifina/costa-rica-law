@@ -1,0 +1,1 @@
+Artículo 17.—Ausencias: Los miembros de la Comisión que están ausentes en tres sesiones consecutivas, sin previa justificación, serán removidos y sustituidos por la institución representada, con base en un informe enviado por la Secretaría de la Comisión.

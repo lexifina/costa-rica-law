@@ -1,0 +1,1 @@
+Artículo 21.—Regulación de actas: De cada sesión se levantará un acta, que recopilará las circunstancias de lugar y tiempo en que se ha celebrado, los acuerdos tomados y los votos negativos, solicitados y razonados por los miembros que hubiesen hecho constar su voto disidente.

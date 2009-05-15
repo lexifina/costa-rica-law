@@ -1,0 +1,1 @@
+Artículo 16.—Sustituciones: Las vacantes serán suplidas por las instituciones que nombran a sus representantes y estarán en el cargo hasta concluir el periodo correspondiente al miembro que sustituyen.

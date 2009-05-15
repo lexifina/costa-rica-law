@@ -1,0 +1,1 @@
+Artículo 5º—Para la consecución de sus objetivos y de lo propuesto en el artículo anterior, la Comisión podrá contar con aportes provenientes del Ministerio de Cultura y Juventud, de entidades públicas o privadas, todo con fundamento y arreglo a la normativa vigente.

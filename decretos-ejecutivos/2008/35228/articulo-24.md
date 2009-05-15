@@ -1,0 +1,1 @@
+Artículo 24.—Requisitos: Los representantes deberán ser profesionales con el grado mínimo de Licenciatura en Filología Española, Lingüística o Enseñanza del Español. De no ser posible cumplir con este requisito, podrán ser nombrados escritores o personas con amplio conocimiento de la Lengua Española, según el criterio de la: respectiva Municipalidad.

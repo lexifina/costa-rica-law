@@ -1,0 +1,1 @@
+Artículo 26.—Sustituciones: En caso de sustitución de un miembro, esta será realizada por la Municipalidad que lo designó y durará en el cargo hasta concluir el período para el que fue nombrado el miembro sustituto.
