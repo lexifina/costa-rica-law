@@ -1,0 +1,2 @@
+Artículo 14.—Conforme lo establecen los artículos 75 y 76 del Código, se procederá a notificar a los propietarios de los inmuebles respecto a la obligación de la construcción de la acera y mantener ésta en buen estado.
+Se considerarán aceras en mal estado, objeto de notificación, aquellas que contengan huecos, repello levantado, grietas superiores a cinco milímetros, tapas de caja de registro y albañales en mal estado, diferencias de niveles.

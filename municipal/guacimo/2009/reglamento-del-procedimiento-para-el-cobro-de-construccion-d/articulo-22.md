@@ -1,0 +1,1 @@
+Artículo 22.—La notificación a los contribuyentes que deban mejorar sus fachadas, se efectuará a través de los inspectores Municipales previo informe emitido por el Departamento de Ingeniería Municipal.
