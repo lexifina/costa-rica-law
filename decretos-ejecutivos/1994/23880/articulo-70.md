@@ -1,16 +1,23 @@
-Artículo 70.- Un aumento de hasta el 35% anual del salario base como máximo según el progreso en la instrucción general o especializada, que se otorgará de la siguiente manera:
+Artículo 70.- Un aumento de hasta el 35% del salario base como máximo según el progreso en la instrucción general o especializada, que se otorgará de la siguiente manera:
 a) Instrucción académica policial:
-i. Aprobación del Programa Básico Policial, incremento del
-1.5% del salario base.
-ii. Aprobación del Programa de Suboficiales de Policía,
-incremento del 2.57% del salario base.
-iii. Aprobación del Programa de Oficiales de Policía,
-incremento del 3% del salario base.
-iv. Aprobación del Programa de Administración Policial,
-incremento del 3% del salario base.
-b) Capacitación especializada policial: Cursos de especialización, seminarios, pasantías, trabajos de investigación técnico-policial y similares, debidamente acreditados ante la Escuela Nacional de Policía; y que el Departamento de Recursos Humanos traducirá a un sistema de puntos para otorgar gradualmente hasta un 10 anual de salario base.
-c) Enseñanza formal impartida por instituciones autorizadas por el Ministerio de Educación Pública y entidades de Educación Superior Universitaria.
-i. Título de Técnico. Se reconocerá con un incremento del 3% sobre el salario base.
-ii. Título de Diplomado en las Áreas de Criminalística, Criminología, Administración, Idiomas, Computación y cualquier otra disciplina afín con el área policial. Se reconocerá con un incremento del 3% sobre el salario base.
-iii. Título de Bachiller Universitario en las Áreas de Criminalística, Criminología, Derecho, Administración, Idiomas, Computación y cualquier otra disciplina afín con el área policial. Se reconocerá con un incremento del 4% sobre el salario base.
-iv. Título de Licenciatura en las Áreas de Criminalística, Criminología, Derecho, Administración, Idiomas, Computación y cualquier otra disciplina afín con el área policial. Se reconocerá con un incremento del 5% sobre el salario base.
+a.1) Aprobación del Curso Básico Policial o su equivalente según lo establezca la Escuela Nacional de Policía, incremento del 2.5% del salario base.
+a.2) Aprobación del Curso de Suboficiales de Policía o su equivalente según lo establezca la Escuela Nacional de Policía, incremento del 2% del salario base.
+a.3) Aprobación del Curso de Oficiales de Policía o su equivalente según lo establezca la Escuela Nacional de Policía, incremento del 2% del salario base.
+a.4) Aprobación del Programa de Administración Policial o su equivalente según lo establezca la Escuela Nacional de Policía, incremento del 2% del salario base.
+El porcentaje total será de un 8.5% sobre el salario base,
+b) Grados Académicos:
+b.1) Niveles académicos básicos:
+Grado | Porcentaje
+Educación General Básica | 5%
+Bachiller en Educación Media | 5%
+Total | 10%
+b.2) Grados Académicos superiores:
+Grado | Porcentaje
+Diploma Universitario | 1.5%
+Bachiller Universitario | 1.5%
+Licenciatura o Maestría Universitaria | 2%
+Total | 5%
+El porcentaje máximo del factor Grado Académico será de un 15% sobre el salario base.
+c) Capacitación recibida: Todos aquellas actividades de capacitación que tengan relación con la función policial y que estén debidamente avalados por la Escuela Nacional de Policía y que la Dirección de Recursos Humanos acreditará con fundamento en la Resolución de aplicación de Incentivos de Carrera Policial, hasta un total de 11.5% del salario base. Si el funcionario agota el 11.5% asignado a este factor podrá utilizar los porcentajes asignados en el inciso a) Instrucción Académica Policial y b.2) Grados Académicos Superiores.
+El porcentaje máximo total a otorgar para cada funcionario será de un 35%, que corresponde a la sumatoria de todos los porcentajes asignados por factor referidos supra.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35276 del 15 de mayo de 2009)
