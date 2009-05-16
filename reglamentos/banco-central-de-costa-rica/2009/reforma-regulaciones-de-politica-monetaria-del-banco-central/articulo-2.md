@@ -1,1 +1,2 @@
-2- Las anteriores modificaciones reglamentarias rigen a partir de la segunda quincena de marzo del 2009. Publíquese en el Diario Oficial La Gaceta.
+(*) 2- Las anteriores modificaciones reglamentarias rigen a partir de la segunda quincena de marzo del 2009. Publíquese en el Diario Oficial La Gaceta.
+(*) (Nota de Sinalevi: La Junta Directiva del Banco Central de Costa Rica, en sesión N° 5416 del 11 de marzo de 2009, dispuso prorrogar durante 60 días la entrada en vigencia de la nueva metodología para el control del encaje mínimo legal, establecida en el Título III de las Regulaciones de Política Monetaria. Con dicha prórroga, la nueva metodología regirá a partir del 16 de mayo del 2009)
