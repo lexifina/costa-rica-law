@@ -15,3 +15,4 @@ Reforma Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | --- | --- | --- |
 | 1 | 2009-05-16 | la propia norma |
 | 2 | 2009-05-16 | Reglamento 5416 (2009-03-11) |
+| 3 | 2009-05-16 | Reglamento 5423 (2009-05-13) |
