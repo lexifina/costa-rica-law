@@ -1,0 +1,4 @@
+ARTÍCULO 17.- Tarifas de electricidad
+La regulación en cuanto al servicio público y las tarifas de venta de electricidad al ICE, que se aprueben para las empresas que tengan concesiones para el aprovechamiento de las fuerzas hidráulicas para la generación hidroeléctrica al amparo de esta Ley, se establecerán de acuerdo con los principios, los criterios y las normas de la Ley N.º 7593, en particular los preceptos de servicio al costo y de fijación de precios y tarifas contenidos en los artículos 3 y 31, respectivamente. El criterio de costo evitado no podrá ser utilizado, bajo ninguna circunstancia, en la fijación de los precios y las tarifas para la venta de energía al ICE u otros distribuidores autorizados por ley.
+Esta norma prevalece sobre cualquier otra que se le anteponga en esta materia.
+Queda exceptuado de los alcances de este artículo, el capítulo II de la Ley N.º 7200.
