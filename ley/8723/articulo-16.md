@@ -1,0 +1,3 @@
+ARTÍCULO 16.- Aplicación de normas
+Esta Ley tendrá aplicación sobre cualquier otra norma en materia de concesiones para el aprovechamiento de las fuerzas hidráulicas para la generación hidroeléctrica, por lo que deroga cualquier otra norma que la contradiga.
+Se exceptúan de la aplicación de esta Ley, el Instituto Costarricense de Electricidad (ICE) y sus empresas, incluida la Compañía Nacional de Fuerza y Luz, y las empresas mencionadas en la Ley de participación de las cooperativas de electrificación rural y de las empresas de servicios públicos municipales en el desarrollo nacional, N.º 8345.
