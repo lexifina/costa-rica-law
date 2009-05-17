@@ -1,0 +1,3 @@
+ARTÍCULO 5.- Plazo de las concesiones para el aprovechamiento de las fuerzas hidráulicas para la generación hidroeléctrica
+Las concesiones para el aprovechamiento de las fuerzas hidráulicas para la generación hidroeléctrica tendrán un plazo hasta de veinticinco (25) años, el cual comenzará a contarse a partir del inicio de la operación comercial de la planta hidroeléctrica.
+El concesionario tendrá hasta cinco (5) años a partir del momento del otorgamiento de la concesión, para iniciar la operación del proyecto. Cuando, por razones no imputables al concesionario, no se cumpla el plazo establecido, este podrá ampliarse, por una única vez, hasta por un año.

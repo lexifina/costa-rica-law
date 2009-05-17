@@ -1,0 +1,4 @@
+TRANSITORIO I.
+Para los efectos de obtener una concesión amparada a la presente Ley, los sujetos que hayan estado amparados a la Ley N.º 7200, y que en el momento de la entrada en vigencia de esta Ley tengan su concesión de fuerza hidráulica extinta, se les otorga concesión especial, por una única vez, para el aprovechamiento de las fuerzas hidráulicas para la generación hidroeléctrica, por un período hasta de tres (3) años, en las mismas condiciones establecidas originalmente.
+El Minaet podrá requerir y verificar todos los datos y la información relacionados con la concesión que considere necesarios para actualizar el expediente de la concesión.
+Hasta seis (6) meses antes de que caduque el plazo de tres (3) años aquí concedido, los interesados podrán solicitar una nueva concesión de acuerdo con los procedimientos, los requisitos y los plazos previstos en esta Ley.
