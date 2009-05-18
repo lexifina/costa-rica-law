@@ -1,0 +1,1 @@
+Artículo 35.—Procedimiento de reclamación. De conformidad con los artículos 47 y 48 de la Ley General de Telecomunicaciones, Ley Nº 8642, las reclamaciones originadas por las violaciones a los derechos a los que se refiere este reglamento, serán tramitadas de conformidad con las vías de reclamación y procedimientos indicados en dicha normativa.

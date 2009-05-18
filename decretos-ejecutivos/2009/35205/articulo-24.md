@@ -1,0 +1,1 @@
+Artículo 24.—Desvío automático de llamadas. Los proveedores deberán ofrecer a todos los abonados, un procedimiento sencillo y gratuito, que permita evitar el desvío automático de llamadas a su terminal por parte de un tercero.

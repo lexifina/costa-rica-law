@@ -1,0 +1,1 @@
+Artículo 33.—Llamadas no solicitadas para fines de venta directa. Las llamadas no solicitadas por los abonados con fines de venta directa, que se efectúen mediante sistemas que no sean automáticos no podrán efectuarse, salvo las dirigidas a aquellos que hayan manifestado su deseo de recibir dichas llamadas.

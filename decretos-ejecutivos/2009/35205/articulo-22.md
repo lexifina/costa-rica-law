@@ -1,0 +1,1 @@
+Artículo 22.—Supresión permanente en destino de la identidad de la línea de origen. La SUTEL podrá establecer, para proteger el derecho a la intimidad, que de manera gratuita, y según la disponibilidad técnica del proveedor, ciertos destinos de las llamadas asociados a determinados servicios no dispongan de la facilidad de identificación de la línea de origen.

@@ -1,0 +1,2 @@
+Artículo 19.—Supresión en origen por línea de la identificación de la línea de origen. Los proveedores que presten el servicio de identificación de la línea de origen, deberán necesariamente ofrecer la posibilidad de que cualquier abonado pueda suprimir de forma automática de todas sus llamadas la identificación de su línea.
+Para las activaciones o desactivaciones los proveedores podrán establecer un precio de conformidad con el artículo 6º, inciso 13) de la Ley General de Telecomunicaciones.

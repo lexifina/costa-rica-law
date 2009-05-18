@@ -1,0 +1,6 @@
+Artículo 4º—De los fines. El presente Reglamento tiene entre sus fines:
+a) Garantizar el secreto de las comunicaciones, el derecho a la intimidad y la protección de los datos de carácter personal de los abonados y usuarios.
+b) Promover que los proveedores y operadores de servicios de telecomunicaciones adopten medidas técnicas y administrativas que preserven la seguridad de sus servicios.
+c) Garantizar que la información de los abonados que se suministra para las guías de abonados y los recibos telefónicos, sea congruente con los principios de privacidad y confidencialidad de la información, así como que dicha información no sea divulgada ni utilizada con fines comerciales.
+d) Asegurar que los datos de tráfico y de localización relacionados con los usuarios finales, sean tratados y almacenados bajo rigurosos estándares de seguridad, así como que estos sean eliminados o anónimos cuando ya no sean, necesarios a efectos de la transmisión de una comunicación o para la prestación de un servicio.
+e) Promover que la utilización de sistemas de llamadas automáticas por voz, fax, correo electrónico o cualquier otro dispositivo con fines de venta directa, se realice conforme a los términos de la legislación vigente a fin de garantizar el derecho a la intimidad de los usuarios.

@@ -1,0 +1,17 @@
+Artículo 5º—De las definiciones. Para los efectos del presente reglamento se adoptan las siguientes definiciones:
+a) Comunicación: Cualquier información intercambiada o conducida entre dos o más usuarios por medio de un servicio de telecomunicaciones.
+b) Correo electrónico: Todo mensaje, archivo, dato u otra información electrónica que se transmite a una o más personas por medio de una red y sus equipos receptores finales como las computadoras, teléfonos o cualquier otro equipo de tecnología similar.
+c) Correo electrónico comercial: Todo correo electrónico que contenga información comercial publicitaria o promocional de bienes y servicios de una empresa, organización, persona o cualquier otra con fines lucrativos.
+d) Datos de localización: Cualquier dato transmitido por una red de telecomunicaciones que indique la posición geográfica del equipo terminal de un usuario de un servicio de telecomunicaciones.
+e) Datos de tráfico: Cualquier dato relacionado con la conducción de una comunicación a través de una red de telecomunicaciones o a efectos de la facturación de la misma.
+f) Dirección de correo electrónico: Serie de caracteres utilizado para identificar el origen o el destino de un correo electrónico.
+g) Facilidad de identificación de la línea de origen: Servicio que permite que el usuario que recibe una llamada, obtenga la información del número telefónico de la línea desde donde se origina esa comunicación.
+h) Facilidad de identificación de línea conectada: Servicio que permite que el usuario que origina la llamada obtenga información del número telefónico de la línea a la que ha sido conectada su llamada.
+i) Llamada: Conexión establecida por medio de un servicio telefónico que permita la comunicación bidireccional en tiempo real.
+j) Llamada infructuosa: Aquella comunicación en el transcurso de la cual se ha realizado con éxito una llamada telefónica pero sin contestación, o en la que ha habido una intervención por parte del proveedor u proveedores involucrados en la llamada.
+k) Llamada no conectada: Aquella comunicación en el transcurso de la cual no se ha realizado una llamada telefónica, sin que haya habido intervención del operador u operadores involucrados.
+l) Proveedor del servicio de correo electrónico: Toda persona física o jurídica que provea el servicio de correo electrónico y que actúa como intermediario en el envío o recepción del mismo.
+m) Servicio de valor agregado: Son aquellos que utilizan servicios finales de telecomunicaciones e incorporan aplicaciones que permiten transformar el contenido de la información trasmitida.
+n) Superintendencia de Telecomunicaciones (SUTEL): Órgano de la Autoridad Reguladora de los Servicios Públicos encargado de regular, supervisar, aplicar, vigilar y controlar el ordenamiento jurídico de las telecomunicaciones.
+o) Tratamiento de datos: Operaciones y procedimientos técnicos de carácter automatizado o no, que permitan la selección, grabación, conservación, elaboración, modificación, bloqueo y cancelación de información relacionada con las comunicaciones hechas a través de redes de telecomunicaciones, así como las cesiones de datos que resulten de comunicaciones, consultas, interconexiones y transferencias.
+p) Usuario final: Usuario que recibe un servicio de telecomunicaciones sin explotar redes públicas de telecomunicaciones y sin prestar servicios de telecomunicaciones disponibles al público.

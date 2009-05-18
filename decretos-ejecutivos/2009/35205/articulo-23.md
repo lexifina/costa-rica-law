@@ -1,0 +1,1 @@
+Artículo 23.—Supresión de la identificación de la línea conectada. Cuando los proveedores ofrezcan la facilidad de identificación de la línea conectada, el abonado que recibe la llamada deberá tener la posibilidad de suprimir la visualización del usuario que realiza la llamada de la identidad de la línea conectada.

@@ -1,0 +1,1 @@
+Artículo 17.—Guías de abonados en formato electrónico. Las guías de abonados en formato electrónico estarán sujetas a las mismas normas de las guías de abonados impresas. Las entidades o empresas que elaboren dichas guías de abonados podrán suministrar una guía electrónica a los abonados siempre que medie solicitud fehaciente de su parte.
