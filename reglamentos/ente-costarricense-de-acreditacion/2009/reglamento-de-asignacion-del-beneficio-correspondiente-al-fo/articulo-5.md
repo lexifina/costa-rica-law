@@ -1,0 +1,2 @@
+Artículo 5º—Del requisito de participación. Los participantes deberán presentar carta de solicitud formal con indicación expresa del proyecto a implementar, y los documentos adicionales indicados en el artículo 8) del presente reglamento.
+El proyecto debe estar conforme a los lineamientos establecidos en el artículo 8) del presente Reglamento, indicando de forma clara los rubros que pretende cubrir con los recursos otorgados por el fondo en caso de la eventual aprobación de su propuesta.
