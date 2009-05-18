@@ -1,0 +1,1 @@
+Artículo 4º—Elimínese el inciso h) del artículo 8º del Decreto Ejecutivo Nº 33361-S del 15 de agosto del 2006, “Reglamento para el Manejo del Fondo de Caja Chica del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud”.
