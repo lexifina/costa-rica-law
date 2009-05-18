@@ -1,0 +1,1 @@
+Artículo 6º—De la aplicación de las sanciones. De conformidad con lo establecido en el Acuerdo AJ.D:I P./594-2005, corresponde al órgano Director de Procedimiento Jurídico Pesquero conocer y resolver en sede administrativa aquellas denuncias recibidas a gestión de parte o bien de oficio, interpuestas en contra de personas que transgredan la presente regulación.
