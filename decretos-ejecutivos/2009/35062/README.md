@@ -14,3 +14,4 @@ Modifica para el Instituto sobre Alcoholismo y Farmacodependencia (IAFA) el gast
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-05-18 | Decreto Ejecutivo 35287 (2009-05-18) |
