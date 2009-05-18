@@ -1,0 +1,1 @@
+Artículo 2º—Los Festejos Populares de San José, son una actividad, que por su antigüedad y su arraigo en la población nacional y extranjera, se han convertido en una tradición, insertada ya en la cultura nacional.

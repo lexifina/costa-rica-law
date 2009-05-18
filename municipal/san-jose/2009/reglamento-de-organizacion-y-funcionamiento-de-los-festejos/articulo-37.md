@@ -1,0 +1,1 @@
+Artículo 37.—Las Actividades Deportivas y Recreativas deberán coordinarse con el Comité Cantonal de Deportes y Recreación de San José. No se autorizan la erogación para estos efectos de más Presupuesto Municipal.
