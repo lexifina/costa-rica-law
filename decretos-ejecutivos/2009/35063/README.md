@@ -14,3 +14,4 @@ Modifica para el Servicio Fitosanitario del Estado el gasto presupuestario máxi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-05-18 | Decreto Ejecutivo 35289 (2009-05-18) |
