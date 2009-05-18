@@ -1,0 +1,11 @@
+Artículo 6º—Marco Normativo. El ejercicio de la actividad de auditoría interna se regirá fundamentalmente por lo que establece:
+- Ley General de Control Interno, Nº 8292.
+- Ley y el Reglamento Orgánico de la Contraloría General de la República, Nº 7428.
+- Manual de Normas para el ejercicio de la Auditoría Interna en el Sector Público. (M-1-2004-CO-DDI).
+- Manual de normas generales de control interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización.(N-1-2009-CO-DDI).
+- Manual de normas generales de Auditoría para el sector público (M-2-2006-CO-DFOE).
+- Ley y el Reglamento Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+- Directrices generales sobre principios y enunciados éticos a observar por parte de los jerarcas, titulares subordinados, funcionarios de la Contraloría General de la República, auditorías internas y servidores públicos en general, publicadas en La Gaceta Nº 228 del 22 de noviembre del 2004.
+- Lineamientos para la descripción de las funciones y requisitos de los cargos de auditor y subauditor internos.
+- En las normas, lineamientos, disposiciones, criterios u otros emitidos por la Contraloría General de la República y, supletoriamente, en las normas y prácticas profesionales y técnicas pertinentes, así como en instrucciones, metodologías, procedimientos y prácticas formalizadas por el auditor interno, las cuáles deben ser congruentes con el resto de la normativa mencionada.
+- Otras normas legales, reglamentarias y técnicas que regulan el accionar de la Municipalidad que le sean aplicables a la Auditoría Interna.

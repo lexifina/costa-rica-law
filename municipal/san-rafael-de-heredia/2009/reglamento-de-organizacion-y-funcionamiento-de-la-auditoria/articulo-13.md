@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del Auditor Interno
+Artículo 13.—Nombramiento del Auditor Interno. La Unidad de Auditoría Interna estará a cargo de un Auditor Interno, nombrado de conformidad con los requisitos establecidos en los Lineamientos para la descripción de las funciones y requisitos de los cargos de Auditor y Subauditor Interno, publicado en La Gaceta Nº 205 del 24 de octubre del 2003. El Manual de Puestos de la Municipalidad de San Rafael de Heredia debe incluir las funciones correspondientes a los cargos de Auditor Interno y demás personal de la unidad de Auditoría Interna, así como los requisitos de esos cargos y su relación jerárquica, según lo dispuesto en los Lineamientos que al respecto emita la Contraloría General de la República.

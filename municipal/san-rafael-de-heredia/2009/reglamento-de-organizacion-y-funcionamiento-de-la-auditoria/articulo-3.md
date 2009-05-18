@@ -1,0 +1,1 @@
+Artículo 3º—Responsabilidad del Reglamento. A efecto de mantener el marco normativo de la Auditoría Interna actualizado, el Auditor Interno podrá proponer las modificaciones que considere necesarias a este reglamento. Toda modificación debe contar de previo a su emisión oficial, con la aprobación del Concejo Municipal y la comunicación a la Contraloría General de la República.
