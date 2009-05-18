@@ -14,3 +14,4 @@ Modifica para el Cosejo de Seguridad Vial, el gasto presupuestario máximo fijad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-04 | la propia norma |
+| 2 | 2009-05-18 | Decreto Ejecutivo 35274 (2009-05-18) |
