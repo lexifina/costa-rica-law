@@ -11,8 +11,7 @@ Artículo 1º—Se integra la Comisión Nacional para la Gestión de la Biodiver
 1. Miembros propietarios:
 a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
-b) Ronald Vargas Brenes, Director Ejecutivo del Sistema Nacional de Áreas de Conservación.
-(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 33246 del 3 de julio del 2006)
+b) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35346 del 18 de mayo de 2009)
 c. (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 (*) d) Fanny Levin Vargas, representante de la Ministra de Salud.
 (*) (Prorrogado su nombramiento como miembro propietario representante de la Ministra de Salud, por el artículo 1° del decreto ejecutivo N° 34437 del 13 de marzo de 2008)
@@ -28,6 +27,7 @@ j) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 35050 de 7 de enero
 k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre del dos mil ocho).
 (NOTA DE SINALEVI: mediante el artículo 1° del Decreto Ejecutivo N° 34769 de 8 de setiembre de dos mil ocho se nombra como miembro propietario de esta Comisión, representante de la Federación Costarricense para la Conservación del Ambiente al señor Eduardo Aguilar Espinoza).
 (NOTA DE SINALEVI: Mediante el artículo 1° del Decreto Ejecutivo N° 35050 de 7 de enero del dos mil ocho, se nombra como miembro de esta Comisión, representante del Consejo Nacional de Rectores a la señora Fiorella Donato Calderón.)
+(NOTA DE SINALEVI: Mediante el artículo 1° del Decreto Ejecutivo N° 35346 de 18 de mayo de dos mil nueve, se nombra como miembro de esta Comisión, representante del Sistema Nacional de Áreas de Conservación a la señora Guiselle Méndez Vega.)
 2. Miembros suplentes:
 a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
