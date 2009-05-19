@@ -1,0 +1,1 @@
+Artículo 8º—Color oficial del hidrante. Todo hidrante público debe ser de color amarillo reflectivo, y los conectados a un sistema privado de protección contra incendio deben ser de color rojo reflectivo, conforme a la norma 291 NFTA de la Asociación de Protección contra Incendios Norteamericana.

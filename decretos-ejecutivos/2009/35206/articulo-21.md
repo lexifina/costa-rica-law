@@ -1,0 +1,1 @@
+Artículo 21.—Uso de hidrantes públicos. Los hidrantes públicos son de uso exclusivo del Benemérito Cuerpo de Bomberos de Costa Rica. El ente administrador y operador público o privado del sistema de acueducto y alcantarillado, según el área de su competencia, podrá utilizarlos bajo circunstancias de inminente riesgo o desastre natural.

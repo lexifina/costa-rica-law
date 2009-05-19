@@ -1,0 +1,1 @@
+Artículo 20.—Reporte mensual por consumo de agua de los hidrantes. El Benemérito Cuerpo de Bomberos de Costa Rica debe reportar mensualmente el consumo de agua, por el uso de los hidrantes en prácticas, simulacros, emergencias y otras actividades, para efectos de los registros del ente administrador y operador del sistema.
