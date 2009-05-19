@@ -14,3 +14,4 @@ Modifica para el Instituto Nacional de Innovación y Transferencia en Tecnologí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-24 | la propia norma |
+| 2 | 2009-05-19 | Decreto Ejecutivo 35292 (2009-05-19) |
