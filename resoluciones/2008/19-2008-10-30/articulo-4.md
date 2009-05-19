@@ -1,1 +1,0 @@
-Artículo 4º—Pago electrónico obligatorio. Todos los sujetos pasivos clasificados por la Administración Tributaria como “Gran Contribuyente” y “Gran Empresa Territorial”, están obligados a pagar en forma electrónica.

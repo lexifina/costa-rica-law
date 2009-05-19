@@ -1,1 +1,0 @@
-Artículo 8º—Vigencia. Tanto el pago como los formularios que se regulan en la presente resolución, rigen y deberán utilizarse para los periodos fiscales mensuales, a partir del mes de noviembre de 2008, para el impuesto sobre la renta, a partir del período fiscal 2008 y para los impuestos que se declaran en forma diaria, a partir del primero de diciembre de 2008.
