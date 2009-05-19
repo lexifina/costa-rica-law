@@ -14,3 +14,4 @@ Reglamento Interno del Centro de Resolución de Conflictos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-01 | la propia norma |
+| 2 | 2009-05-19 | Reglamento 28 (2009-05-19) |
