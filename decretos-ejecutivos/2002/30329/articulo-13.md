@@ -1,1 +1,0 @@
-Artículo 13.—En lo que se refiere al Comité Ejecutivo, se aplica el Capítulo VII de este Reglamento en su totalidad y en cuanto a su elección, se procede de acuerdo a lo establecido en el Código Electoral Estudiantil.

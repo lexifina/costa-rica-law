@@ -1,1 +1,0 @@
-Artículo 50.—El Tribunal Electoral Estudiantil será escogido y nombrado en la cuarta semana del mes de marzo, por el Consejo de Profesores ó Reunión de Docentes del centro educativo, con base en las ternas representativas de todos los niveles educativos, presentadas a este organismo por la Asamblea de Representantes.

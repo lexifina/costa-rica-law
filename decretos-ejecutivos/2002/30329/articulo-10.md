@@ -1,1 +1,0 @@
-Artículo 10.—La Asamblea Estudiantil es el conjunto de todos estudiantes regulares del Centro Educativo, organizados democráticamente, para cumplir los fines y las funciones de la. Comunidad Estudiantil, establecidos en este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 41.—El Comité Ejecutivo deberá ser asesorado por un profesor escogido de mutuo acuerdo (Comité Ejecutivo electo y Profesor), cinco días hábiles antes del traspaso de poderes. El asesor escogido no debe tener parentesco con ninguno de los miembros del Comité Ejecutivo.

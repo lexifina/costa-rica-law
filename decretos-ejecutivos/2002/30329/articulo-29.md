@@ -1,1 +1,0 @@
-Artículo 29.—Quien preside la Asamblea de Representantes presentará el juramento ante el Presidente del Directorio Provisional y los otros representantes lo harán ante el Presidente de la Asamblea. En caso de que la presidencia recaiga en el Presidente del Directorio Provisional, éste prestará el juramento ante la Vicepresidencia del Directorio Provisional.
