@@ -1,1 +1,0 @@
-Artículo 14.—El Padrón Electoral es el documento donde se deben consignar, los nombres con los apellidos, el número de carné y el de sección de cada uno de los electores (as) inscritos (as) ante la Junta Receptora de Votos.

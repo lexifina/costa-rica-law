@@ -1,1 +1,0 @@
-Artículo 43.—Los Delegados, tienen la potestad de retirar a cualquier estudiante que perturbe una reunión o manifestación política, así como la de hacer que se cumplan todas las disposiciones del Tribunal Electoral Estudiantil.

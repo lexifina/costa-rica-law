@@ -1,2 +1,0 @@
-Inicio de la votación:
-Artículo 57.—Antes de iniciarse la votación, los miembros de la Junta Receptora de Votos que estén presentes, procederán a revisar el material electoral, a fin de que en el espacio del encabezado del Padrón Electoral o Acta de Apertura, consignen el número de papeletas de que se disponga para la votación, se seguirán llenando todos los espacios hasta completar toda la información que se solicita en ella. Dando inicio la votación conforme a lo establecido por el Tribunal.

@@ -1,1 +1,0 @@
-Artículo 48.—En el recinto de las Juntas Receptoras de Votos no se permitirá más de un Fiscal ya sea General o de Mesa por cada Partido Político. Los Fiscales pueden ser sustituidos por sus respectivos suplentes.

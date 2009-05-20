@@ -1,2 +1,0 @@
-Colocación de la urna electoral:
-Artículo 52.—La urna electoral donde se depositarán los votos se colocará frente a la mesa de trabajo de la Junta Receptora de Votos de tal manera que pueda ejercerse autoridad y vigilancia sobre ella.
