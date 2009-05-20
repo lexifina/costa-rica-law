@@ -1,0 +1,1 @@
+Artículo 5º—Ámbito de acción. El Equipo tendrá potestad para Desarrollar su trabajo en todo el territorio nacional, sin menoscabo que con posterioridad se puedan constituir equipos regionales de respuesta inmediata de acuerdo con el crecimiento de la demanda de atención.

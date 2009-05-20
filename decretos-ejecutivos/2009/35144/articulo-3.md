@@ -1,0 +1,1 @@
+Artículo 3º—Acreditación. Cada una de estas instancias públicas acreditará al menos una persona representante propietaria y una persona suplente con conocimientos técnicos especializados en materia de trata de personas, que durarán en sus funciones por un periodo de al menos dos años, de manera que se garantice la continuidad de las acciones del equipo.
