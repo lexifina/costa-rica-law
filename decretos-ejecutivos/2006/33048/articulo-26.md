@@ -1,1 +1,1 @@
-Artículo 26.—El beneficio por Carrera Profesional para efectos de pago será proporcional a la jornada de trabajo.
+Artículo 26.—(Derogado por el artículo 2° del decreto ejecutivo N° 35352 del 21 de mayo del 2009).

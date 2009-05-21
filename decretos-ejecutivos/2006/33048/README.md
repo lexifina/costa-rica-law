@@ -14,3 +14,4 @@ Normas para la aplicación de la Carrera Profesional para las Entidades Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-27 | la propia norma |
+| 2 | 2009-05-21 | Decreto Ejecutivo 35352 (2009-05-21) |
