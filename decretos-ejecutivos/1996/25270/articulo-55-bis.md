@@ -1,0 +1,6 @@
+Artículo 55 bis.—Regularización. Por medio del trámite de regularización se da a conocer al fiscalizado el informe de conclusión de las actuaciones fiscalizadoras cuyo resultado permite concluir en un posible indicio de ajuste o modificación de la Obligación Tributaria Aduanera originada en actuaciones de buena fe, sin evidencia de actividad claramente delictiva, de mala fe o con negligencia y que permite al sujeto pasivo y obligados solidarios a presentar el pago voluntario de tributos previo a cualquier acción de la Administración Aduanera tendente al cobro de la Obligación Tributaria Aduanera en forma total o parcial, constituyendo derechos del sujeto pasivo, sus representantes o auxiliares de la Función Pública el aceptar o rechazar los hechos y resultados del informe de conclusión de las actuaciones fiscalizadoras. Por ende:
+a) No implica ni puede ser usado como prueba o presunción de culpabilidad sobre los hechos que generan un posible adeudo,
+b) No se trata de un traslado de cargos tributarios propio del procedimiento ordinario,
+c) No constituye acto administrativo alguno que tenga efecto jurídico.
+d) No califica como renuncia a la repetición de pago.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 35334 de 21 de mayo de 2009).

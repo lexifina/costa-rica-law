@@ -77,6 +77,7 @@ articulo-52.md
 articulo-53.md
 articulo-54.md
 articulo-55.md
+articulo-55-bis.md
 articulo-56.md
 articulo-57.md
 articulo-58.md
@@ -587,6 +588,8 @@ articulo-533.md
 articulo-534.md
 articulo-535.md
 articulo-536.md
+articulo-536-bis.md
+articulo-536-ter.md
 articulo-537.md
 articulo-538.md
 articulo-539.md
@@ -602,3 +605,4 @@ articulo-3-transitorio.md
 articulo-4-transitorio.md
 articulo-5-transitorio.md
 articulo-6-transitorio.md
+articulo-7-transitorio.md
