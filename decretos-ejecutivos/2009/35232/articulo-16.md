@@ -1,0 +1,1 @@
+Artículo 16.—Recepción de solicitudes. El Departamento de Recursos Humanos tendrá a su cargo la recepción de ofertas de los concursantes y realizará la revisión y calificación de los atestados presentados por lo interesados para el concurso, según los Factores de Valoración establecidos por la Comisión

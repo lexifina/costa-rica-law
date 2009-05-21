@@ -1,0 +1,7 @@
+Artículo 32.—Deberes de los funcionarios. Son deberes del funcionario que ha disfrutado de una beca o facilidad, sea ésta mayor o menor a un mes, los siguientes:
+a) Rendir un informe escrito sobre su participación en el evento, el cual deberá ser presentado dentro del mes siguiente a la finalización del mismo en el Departamento de Recursos Humanos.
+b) Facilitar al Departamento de Recursos Humanos el material didáctico utilizado durante su participación en el evento, ya sea original o fotocopia, con la finalidad de que sea incluido dentro del acervo documental del Departamento, mismo que estará a disposición de otros funcionarios, según lo establecido por esa instancia y/o la Dirección Administrativa Financiera.
+c) Brindar sus servicios como instructor en los programas de capacitación de DINADECO, relacionados con el tema del evento en que participó, cuando así le sea solicitado por el Departamento de Recursos Humanos.
+d) Entregar al Departamento de Recursos Humanos copia debidamente confrontada del certificado oficial obtenido, conjuntamente con las evaluaciones realizadas durante el evento de capacitación, cuando sea del caso, en el plazo de un mes a partir del momento en que concluyó el evento.
+e) Entregar un ejemplar de la tesis o proyecto de graduación en caso de que la beca y/o licencia corresponda a la obtención de grados académicos a nivel universitario.
+f) Presentar en el Departamento de Recursos Humanos una copia del acuerdo de viaje en el que se autorizó su salida del país para asistir al evento.

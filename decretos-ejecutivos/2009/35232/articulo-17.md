@@ -1,0 +1,1 @@
+Artículo 17.—Cierre del concurso: En ningún caso se considerarán las solicitudes remitidas y recibidas en el Departamento de Recursos Humanos después de la fecha y hora señaladas para el cierre del concurso.

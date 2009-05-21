@@ -1,0 +1,4 @@
+Artículo 30.—Obligación de los Miembros de la Comisión. Son obligaciones de los miembros de la Comisión:
+a) Tener conocimiento de toda la normativa relacionada con esta materia.
+b) Con anticipación a las reuniones a las que sean convocados por el Departamento de Recursos Humanos, los miembros deberán conocer toda la información relativa a cada reunión. Dicha información será suministrada por el Departamento de Recursos Humanos previo a la convocatoria.
+c) Asistir puntualmente a las reuniones a las que sean convocados. En caso de ausencia tanto del propietario como del suplente deberán justificar los motivos que les impidan la asistencia. El plazo para la justificación será de 3 días hábiles posteriores a la fecha de la reunión. Para la asistencia a estas reuniones el Jefe Inmediato deberá otorgarles la autorización respectiva, previa presentación de la convocatoria que al efecto les haga llegar el Departamento de Recursos Humanos.

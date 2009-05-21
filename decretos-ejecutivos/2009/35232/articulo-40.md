@@ -1,0 +1,1 @@
+Artículo 40.—Cualquier proyecto de reforma de este Reglamento, deberá ser presentado por el Director Nacional, con base en una propuesta elaborada por el Departamento de Recursos Humanos y/o la Dirección Administrativa Financiera.

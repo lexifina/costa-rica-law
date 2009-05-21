@@ -1,0 +1,1 @@
+Artículo 15.—Apertura del concurso. La apertura del concurso la hará el Departamento de Recursos Humanos mediante la publicación de la convocatoria por medios electrónicos o físicos y en las vitrinas de divulgación de DINADECO, sin perjuicio de otros medios que la Administración considere apropiados para su publicación.
