@@ -1,0 +1,7 @@
+CAPÍTULO II
+De las obligaciones
+Artículo 6º—Obligaciones de los funcionarios y colaboradores. Son obligaciones de los funcionarios y colaboradores del Conglomerado Financiero Banco Popular:
+a) Cumplir con lo dispuesto en la Ley Nº 8204, su Reglamento y normativa, el Manual de Políticas, Procedimientos y Normas de Operación para la Prevención y Control de Legitimación de Capitales y demás normas conexas.
+b) Confeccionar, completar y custodiar el Reporte de Operaciones en Efectivo (ROE) por todo ingreso o egreso en efectivo igual o mayor a los US$10.000,00 o su equivalente en otra moneda.
+c) Aplicar la política “Conozca a su Cliente” para el ingreso de nuevos clientes, así como a aquellos clientes que ya poseen una cuenta o relación permanente con el Conglomerado Financiero Banco Popular.
+d) Informar sobre transacciones inusuales o atípicas al Oficial de Cumplimiento Corporativo del Conglomerado cuando sea notorio el manejo inusual o indebido de una cuenta o servicio por parte del cliente. Previo a lo anterior, es necesario hacerlo del conocimiento de su superior inmediato, con el propósito de valorar con criterio prudente la elaboración y remisión del Reporte de Actividades Sospechosas (RAS). Los funcionarios, colaboradores y agentes corredores de las Sociedades Anónimas deben comunicar al Gestor de Cumplimiento y éste a su vez, previa valoración, lo remitirá al Oficial de Cumplimiento del Conglomerado.

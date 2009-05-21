@@ -1,0 +1,8 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+PROCESO DE CONTRATACIÓN ADMINISTRATIVA
+SUBPROCESO DE GESTIÓN Y ANÁLISIS DE COMPRAS
+La Junta Directiva Nacional, actuando como tal y en el ejercicio de las funciones propias de Asamblea de Accionistas de “Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A.”; “Popular Valores Puesto de Bolsa S. A.”; “Popular Fondos de Inversión S. A.”, y “Popular, Sociedad Agencia de Seguros S. A.”, en sesión Nº 4659 del 27 de abril del 2009, acordó en firme derogar el “Reglamento para la Prevención y Control de Legitimación de Capitales del Conglomerado Financiero Banco Popular”, aprobado en sesión Nº 4495, y aprobar el “Reglamento Corporativo para la Prevención y Control de Legitimación de Capitales del Conglomerado Financiero Banco Popular”, que a la letra dice:
+REGLAMENTO CORPORATIVO PARA LA PREVENCIÓN
+Y CONTROL DE LEGITIMACIÓN DE CAPITALES DEL
+CONGLOMERADO FINANCIERO BANCO POPULAR
+Artículo 1º—Fundamento. El presente reglamento se dicta con fundamento en los artículos 24 b y 25 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, en la “Ley Nº 8204 sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, legitimación de capitales y actividades conexas”, su reglamento y normativa a dicha ley emitida por el Consejo Nacional de Supervisión del Sistema Financiero, y regula la organización y funciones de los Comités de Cumplimiento para la Prevención y Control de Legitimación de Capitales del Banco y las Sociedades pertenecientes al Conglomerado y el régimen disciplinario relacionado con las actividades indicadas en esa Ley.
