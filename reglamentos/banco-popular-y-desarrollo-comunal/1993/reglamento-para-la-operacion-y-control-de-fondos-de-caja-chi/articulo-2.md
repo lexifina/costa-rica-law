@@ -1,3 +1,0 @@
-Artículo 2º—Se entenderá por cajas chicas generales aquéllas cuyos fondos pueden ser utilizados por las diversas dependencias del Banco autorizadas para la compra de cualquier bien o servicio dentro de las especificaciones establecidas en el artículo 1 del presente Reglamento y cualquier otra disposición administrativa vigente al momento de la compra.
-Las cajas chicas específicas estarán constituidas por fondos fijos asignados a una determinada dependencia del Banco, para ser utilizadas exclusivamente en la compra de aquellos bienes o servicios definidos al momento de su constitución.
-(Así reformado mediante sesión N° 3812 del 21 de febrero de 2001)

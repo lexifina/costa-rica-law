@@ -1,1 +1,0 @@
-Artículo 8°.- El retiro de los fondos de caja chica se hará por medio de vale provisional o definitivo, el cual deberá contener toda la información solicitada en el mismo, así como una justificación de la compra.

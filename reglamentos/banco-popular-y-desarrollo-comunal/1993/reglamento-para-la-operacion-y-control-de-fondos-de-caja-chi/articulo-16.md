@@ -1,1 +1,0 @@
-Artículo 16.- El Departamento de Programación Presupuestaría asignará en forma periódica el contenido presupuestario de las partidas que normalmente utilizan por medio de la caja chica, y queda como responsabilidad de los Jefes de las dependencias donde éstas operan, mantener el control sobre el contenido de presupuesto.

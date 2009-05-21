@@ -1,1 +1,0 @@
-Artículo 6°.- El jefe de la Unidad Administrativa en donde funcione una caja chica, será el responsable de que la misma se custodie adecuadamente, observando las normas de control interno que correspondan.

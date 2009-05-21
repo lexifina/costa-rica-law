@@ -1,1 +1,0 @@
-Artículo 3°.- La apertura de cajas chicas generales o específicas, el monto del fondo fijo que se asigne así como sus variaciones posteriores, y la dependencia en donde éstas operen, serán autorizados por el Gerente General, quien informará a la Auditoría Interna para los fines de control que le corresponden, previa recomendación de la Subgerencia o Dirección correspondiente

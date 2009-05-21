@@ -1,1 +1,0 @@
-Artículo 7°.- El custodio de la caja chica, el Jefe de la dependencia donde ésta opera y las personas que autoricen el uso de estos fondos, serán los responsables de que la misma opere de acuerdo al presente reglamento.
