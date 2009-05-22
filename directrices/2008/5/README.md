@@ -14,3 +14,4 @@ Lineamientos para el Procedimiento de Rectificación de las Declaraciones Aduane
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-03 | la propia norma |
+| 2 | 2009-05-22 | Directriz 7 (2009-05-22) |

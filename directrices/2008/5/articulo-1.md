@@ -44,6 +44,9 @@ Una vez llenado completamente el formulario con los datos requeridos y firmado p
 4- Actuaciones de la Aduana.
 Una vez presentado el formulario de rectificación debidamente lleno, firmado y con los documentos adjuntos que sustentan la rectificación de la(s) declaración(es) aduanera(s), el funcionario aduanero procederá a realizar el análisis de la información contenida en la solicitud de rectificación, y corroborará que la información proporcionada sea la correcta. De ser así, le asignará al formulario un número de resolución y trasladará el mismo para la respectiva firma del Gerente de la Aduana. Una vez firmada la resolución, el funcionario aduanero se encargará de notificar la resolución al departamento técnico de la aduana y al auxiliar de la función pública.
 Dirección General de Aduanas.—José Ramón Arce Bustos, Director, Dirección Normativa.—Servicio Nacional de Aduanas.—Desiderio Soto Sequeira, Director General de Aduanas.—
+(NOTA DE SINALEVI: mediante Directriz No. DIR-DN-07-2009 se modifica el considerando Nº IV del Formulario denominado Régimen de Zonas Francas R-ZF-001 para que se lea:
+“IV.—Que la rectificación en la Declaración (es) Aduanera(s) de Zonas Francas Nº _____, de fecha (s) _____, no genera ajuste en la determinación de la Obligación Tributaria Aduanera, por estar en presencia de un régimen liberatorio de tributos”
+Asímismo, se aclara que "la gestión de rectificación tramitada mediante el Formulario R-ZF-001 deberá ser presentada ante la aduana únicamente en forma electrónica, esto por los medios normalmente utilizados, a saber CD, dispositivo de almacenamiento USB, correo electrónico, disckette o cualquier otro medio electrónico legal que acuerde la aduana respectiva. Respecto al formulario de solicitud adicionado mediante directriz DIR-DN-05-2008-A, se mantiene su presentación en forma física ante la aduana". Dicha directriz contiene formulario y puede se consultada en el Sistema")
 [imagen]
 [imagen]
 [imagen]
