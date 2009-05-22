@@ -1,0 +1,8 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el literal A., artículo 5 del acta de la sesión 5423-2009, celebrada el 13 de mayo del 2009,
+considerando que:
+1. La Junta Directiva del Banco Central de Costa Rica, en el artículo 16 del acta de la sesión 5416-2009, celebrada el 11 de marzo del 2009, acordó posponer la entrada en vigencia de la nueva metodología para el control del encaje mínimo legal, aprobada por este Directorio en el artículo 21 del acta de la sesión 5412-2009, celebrada el 28 de enero del 2009. Con dicha posposición la nueva metodología de control del encaje empezaría a regir a partir del 16 de mayo del 2009.
+2. El objetivo fundamental que persigue el Banco Central de Costa Rica con la modificación de la metodología para el control del encaje mínimo legal, es reducir la variabilidad de las proyecciones sobre los requerimientos de inyección o contracción de liquidez necesarios para garantizar la efectividad de la política monetaria, sin que exista interés en fomentar saldos de encaje excedente, que restrinjan la liquidez disponible en el sistema o la capacidad de maniobra de las instituciones financieras.
+3. Actualmente está en discusión la creación de un mecanismo de financiamiento automático por parte del Banco Central de Costa Rica en el Mercado Integrado de Liquidez que suministre, dentro de ciertos límites, recursos para evitar situaciones de desencaje de los intermediarios sujetos a requerimientos de reservas.
+dispuso, en firme:
+posponer, hasta el 1º de julio del 2009, la entrada en vigencia de la nueva metodología para el control del encaje mínimo legal, aprobada en el artículo 21 del acta de la sesión 5412-2009, celebrada el 28 de enero del 2009.
