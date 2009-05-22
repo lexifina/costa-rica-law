@@ -1,0 +1,2 @@
+Artículo 26.—Cumplimiento de la normativa. Será responsabilidad del jerarca y titulares subordinados la aplicación del presente reglamento, para ello deberán de establecer los mecanismos que aseguren el adecuado cumplimiento de lo establecido en esta normativa.
+Lo anterior sin perjuicio del control que debe ejercer la unidad de Auditoria Interna y de las competencias de la Contraloría General de la República.

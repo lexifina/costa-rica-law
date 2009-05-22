@@ -1,0 +1,1 @@
+Artículo 22.—Proceso de liquidación. Efectuada la venta del bien, y cancelada la totalidad del valor ofertado por parte del adjudicatario, la Dirección de Finanzas, dentro de los ocho (8) días hábiles posteriores, realizará el proceso de liquidación para determinar si producto de la venta se obtienen utilidades netas.

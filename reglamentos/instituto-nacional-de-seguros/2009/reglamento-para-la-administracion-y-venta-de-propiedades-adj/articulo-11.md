@@ -1,0 +1,2 @@
+Artículo 11.—Designación de custodios. La UBT designará un custodio para cuido de los inmuebles que mantenga bajo su custodia. Para esto deberá cumplir con el procedimiento para la designación de depositarios y firmar el contrato respectivo.
+Queda prohibido, el nombramiento de funcionarios del Instituto, exarrendatarios del exdeudor, exdeudores, excodeudores o de los familiares de todos los anteriormente indicados hasta tercer grado de consaguinidad o afinidad como custodios de las propiedades adjudicadas.
