@@ -1,0 +1,1 @@
+Artículo 13.—Responsabilidades de la Autoridad Reguladora. En materia de farmacovigilancia le corresponde a la Autoridad Reguladora del Ministerio de Salud realizar la gestión del riesgo de los medicamentos de uso humano una vez comercializados.

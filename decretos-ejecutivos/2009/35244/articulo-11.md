@@ -1,0 +1,6 @@
+Artículo 11.—Son obligaciones de los Profesionales en Ciencias de la Salud:
+a) Notificar toda sospecha de reacción adversa de las que tengan conocimiento durante su práctica habitual y enviarlo al Centro Nacional de Farmacovigilancia mediante el formulario oficial de notificación de sospechas de reacciones adversas: la tarjeta amarilla con todos los datos requeridos. Las reacciones adversas graves deben notificarse en un plazo de 24 horas y el resto en un plazo de 10 días hábiles. La información se puede enviar vía fax o Internet o ser comunicadas por teléfono, con la posterior entrega de las tarjetas amarillas al Centro.
+b) Conservar toda la documentación clínica de las sospechas de reacciones adversas a medicamentos, con el fin de completar o realizar el seguimiento, en caso necesario.
+c) Cooperar con los encargados del Centro Nacional de Farmacovigilancia, proporcionando la información necesaria que éstos les soliciten para ampliar o completar la información sobre la sospecha de reacción adversa.
+d) Mantenerse informados sobre los datos de seguridad relativos a los medicamentos que habitualmente prescriban, dispensen o administren.
+e) Colaborar, en caso necesario, en calidad de expertos, con el Centro Nacional de Farmacovigilancia, en la evaluación de los problemas de seguridad de los medicamentos.

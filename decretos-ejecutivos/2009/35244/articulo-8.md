@@ -1,0 +1,2 @@
+Artículo 8º—Crease el Centro Nacional de Farmacovigilancia en el Ministerio de Salud, cuyo objetivo general será ejercer la farmacovigilancia sobre los medicamentos de uso humano que se comercializan y expenden en el territorio nacional a través del análisis y gestión en la relación riesgo-beneficio.
+Los reportes de Farmacovigilancia serán utilizados como información para vigilar la seguridad de los medicamentos, con la finalidad de disminuir los riesgos probables en la población que consume productos farmacéuticos una vez comercializados.

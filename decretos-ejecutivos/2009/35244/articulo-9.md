@@ -1,0 +1,1 @@
+Artículo 9º—Será competencia del Centro Nacional de Farmacovigilancia vigilar la seguridad de los medicamentos de uso humano que se utilizan en el país, mediante la notificación que realicen los profesionales en ciencias de la salud de sospechas de reacciones adversas de los medicamentos que se presenten en todos los establecimientos de salud públicos y privados.

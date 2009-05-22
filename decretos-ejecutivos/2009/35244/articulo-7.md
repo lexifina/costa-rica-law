@@ -1,0 +1,1 @@
+Artículo 7º—Sobre la Información. La información enviada al Centro Nacional de Farmacovigilancia será de carácter oficial y confidencial y su uso se limitará exclusivamente al análisis y gestión del riesgo de los medicamentos de uso humano por parte de las autoridades de salud.
