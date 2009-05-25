@@ -1,0 +1,1 @@
+Artículo 23.—El SENASA, mediante el Manual de Procedimientos, establecerá el protocolo de vacunación autorizado, basado en criterios científicos y tomando en cuenta el tipo de vacuna a utilizar y el estatus sanitario del hato. Los animales vacunados serán claramente identificados según lo indicará el referido Manual de Procedimientos.

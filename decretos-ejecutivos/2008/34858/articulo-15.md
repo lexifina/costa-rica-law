@@ -1,0 +1,2 @@
+Artículo 15.—Queda prohibida la subasta de animales positivos. Cuando se apliquen pruebas diagnósticas dentro de la Subasta, como método de vigilancia epidemiológica de la enfermedad, los animales que resultaren reactores serán subastados, siempre que se informe al comprador que el único destino de estos será el sacrificio en matadero.
+Para todo lo anterior el Regente Veterinario y la Administración de la subasta vigilarán el cumplimiento de esta normativa.

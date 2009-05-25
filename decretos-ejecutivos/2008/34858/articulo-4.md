@@ -1,0 +1,2 @@
+Artículo 4º—La toma de muestras sólo se realizará si los animales a examinar se encuentran identificados, mediante un método aprobado por el SENASA, que permita asegurar la identidad y correspondencia de la muestra. No se permitirá el uso de nombres de los animales para identificar la muestra.
+Para el procedimiento anterior se tendrá que suscribir con el SENASA un convenio de saneamiento. Este trámite será realizado una única vez.

@@ -1,0 +1,1 @@
+Artículo 26.—La vacuna podrá ser importada o producida por el SENASA, así como por droguerías veterinarias o laboratorios debidamente registrados y que cumplan con la legislación vigente para dicho procedimiento, así como para su venta y distribución.

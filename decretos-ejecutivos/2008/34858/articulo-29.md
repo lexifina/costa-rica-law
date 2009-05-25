@@ -1,0 +1,1 @@
+Artículo 29.—Todo hato reactor a Brucelosis deberá ser sometido a cuarentena en concordancia con las disposiciones del presente Reglamento y con el Manual de Procedimientos. Así mismo dicho hato deberá entrar en un proceso de saneamiento.

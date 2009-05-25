@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Sanciones
+Artículo 33.—Los incumplimientos, infracciones, alteraciones u omisiones a las disposiciones del presente Reglamento por parte del Médico Veterinario Oficial, Técnico Oficial o Médico Veterinario Oficializado, representante del LANASEVE o del laboratorio con ensayos oficializados y personas físicas o jurídicas, serán conocidos por el SENASA a los efectos de establecer las correcciones y sanciones administrativas que corresponda según la gravedad de la falta, de conformidad con lo establecido en el Capítulo IX de la Ley 8495 del 6 de abril del 2006, sin detrimento de las acciones penales o civiles pertinentes.

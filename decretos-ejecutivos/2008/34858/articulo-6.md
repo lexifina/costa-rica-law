@@ -1,0 +1,1 @@
+Artículo 6º—El SENASA podrá realizar pruebas serológicas para investigaciones en hatos, áreas y eventos públicos en cualquier lugar del país, con el fin de evaluar la situación sanitaria y el avance del Programa. En estos casos la toma y transporte de la muestra, así como los ensayos se realizarán sin cargo para el propietario.
