@@ -1,0 +1,11 @@
+CIRCULAR Nº 057-09
+ASUNTO: Recomendaciones para mejorar el proceso de donación de bienes caídos en comiso.
+A LOS DESPACHOS JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 45-09, celebrada el 05 de mayo del año en curso, artículo LXI, dispuso acoger las siguientes recomendaciones vertidas por el departamento de Proveeduría para mejorar el trámite de donación de los bienes caídos en comiso:
+- Las Autoridades Judiciales deben enviar copia de las resoluciones o sentencias en las cuales se dicta el comiso en forma oportuna al departamento. Lo anterior al correo electrónico deptoproveeduría@poder-judicial.go.cr o al fax 2221-8983. También se deberá enviar copia de dicho documento al Depósito de Vehículos Decomisados.
+- La resolución que ordene el comiso se debe notificar al Departamento de Proveeduría cuando se encuentre firme, de forma tal que no se corra el riesgo de que se lleve a una donación que no resulta procedente por acciones que interponen las partes.
+- Se debe recordar que no en todos los casos aplica el comiso a favor del departamento de Proveeduría, ya que existen leyes particulares que disponen la donación a instituciones específicas. En estos casos no se debe comunicar el comiso a ese departamento, si no a dichas dependencias.
+- En la resolución o sentencia se debe indicar en detalle el imputado, delito, el ofendido y la causa, así como las características del vehículo a saber: número de placa, motor, chasis y VIN. Además, se deberá indicar si existe dictamen criminalístico y su número. Todo esto, por cuanto dicha información resulta relevante en el proceso de donación que se debe seguir.
+- En caso de que haya determinado el comiso de una parte del automotor y la devolución de otra en resolución judicial, deberá advertirse al interesado que dispone de 3 meses, a partir de la notificación para presentarse a hacer el retiro de la parte, esto en conforme lo dispone la Ley 6106. En caso de que no lo haga en ese plazo, el Depósito lo comunicará al despacho el cual deberá resolver a la brevedad respecto al destino final de la parte, esto con el propósito de que no permanezcan bienes “inmovilizados” en el Depósito por falta de definición al respecto.
+San José, 25 de mayo del 2009.
