@@ -1,0 +1,1 @@
+Artículo 4º—Recursos: El Consejo podrá gestionar ante organismos nacionales o internacionales, recursos financieros y logísticos necesarios para fortalecer la estrategia de su gestión y contará con el apoyo técnico de las instituciones involucradas, así como de las demás entidades de Gobierno en el campo de la competitividad

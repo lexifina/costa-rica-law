@@ -1,0 +1,4 @@
+Artículo 5º—Funcionamiento: El Consejo tendrá su sede en el Ministerio de Agricultura y Ganadería y será coordinado por el Viceministro de dicha cartera; y con el fin de propiciar un funcionamiento más eficiente, se estima conveniente dotarlo de una Secretaría, designando para ese cargo a la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria (SEPSA).
+El Consejo sesionará en forma ordinaria dos veces al mes y en forma extraordinaria cuando así sea requerido por el coordinador o a solicitud de cuando menos 3 de sus miembros.
+Los acuerdos se adoptarán por mayoría simple, pudiendo quedar constancia de votos de minoría debidamente sustentados. En caso de empate el coordinador ejercerá el voto de calidad.
+El Consejo definirá en su primera Sesión Ordinaria, las reglas de orden, dirección y disciplina que mejor convengan a la realización de sus fines.

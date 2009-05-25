@@ -1,0 +1,3 @@
+Artículo 2º—Funciones: El Consejo tendrá las siguientes funciones:
+a. Dictaminar, en forma necesaria no vinculante, previo a su ejecución, todo proyecto de resolución, directriz o normativa del Poder Ejecutivo emitido en consecuencia y desarrollo de la Política Nacional de Pesca y Acuicultura.
+b. Proponer de su seno o a instancia del Ministro Rector, la emisión, modificación o derogatoria de normas, políticas y procedimientos relacionados con la actividad pesquera y acuícola, atendiendo las circunstancias nacionales o internacionales acordes con la meta de competitividad, apertura y mantenimiento de mercados y el desarrollo sostenible de la Pesca y Acuicultura Nacional.
