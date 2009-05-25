@@ -1,3 +1,5 @@
+(Derogado)
+(Derogado por el Reglamento para el Pago por Servicio Ambiental Hídrico Empresa de Servicios Públicos de Heredia S.A., aprobado mediante sesión N° 3001 del 25 de mayo del 2009.)
 EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA S. A.
 Acuerdo Nº JD 028-2005
 1º—Aprobar el Reglamento o Manual de Procedimientos para el Pago por Servicios Ambiental Hídrico de la Empresa de Servicios Públicos de Heredia S. A., que a la letra dice:

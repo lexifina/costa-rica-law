@@ -14,3 +14,4 @@ Manual de Procedimientos para el Pago por Servicio Ambiental Hídrico de la Empr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-21 | la propia norma |
+| 2 | 2009-05-25 | Reglamento 3001 (2009-05-25) |
