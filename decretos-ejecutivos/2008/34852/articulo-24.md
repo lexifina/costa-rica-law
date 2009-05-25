@@ -1,0 +1,1 @@
+Artículo 24.—Cuando se tengan sospechas o indicios fundados sobre la presencia de la Tuberculosis en una finca, el SENASA podrá actuar de oficio y aplicar las pruebas diagnósticas que técnicamente procedan . Los costos en que se incurra por parte de la autoridad oficial correrán por cuenta del propietario de los animales.

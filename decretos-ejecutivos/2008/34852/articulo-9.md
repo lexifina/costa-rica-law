@@ -1,0 +1,1 @@
+Artículo 9º—El SENASA podrá realizar de manera programada las pruebas para investigaciones en hatos, áreas y eventos públicos en cualquier lugar el país, con el fin de evaluar la situación sanitaria y el avance del programa. En estos casos las pruebas serán gratuitas y de carácter obligatorio, por ser de interés nacional.

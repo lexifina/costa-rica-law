@@ -1,0 +1,1 @@
+Artículo 16.—El levantamiento de la cuarentena sólo se hará luego de que la autoridad del SENASA certifique que el retiro de la medida no representará un riesgo significativo de transmisión de la enfermedad a las personas u otros hatos.

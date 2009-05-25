@@ -1,0 +1,2 @@
+Artículo 6º—Únicamente se aplicará tuberculina si los animales examinados se encuentran identificados, mediante un método aprobado por el SENASA, que permita asegurar la identidad del animal al que se le hace la lectura con relación a la identificación consignada al momento de la inoculación .
+Para el procedimiento anterior se tendrá que llenar el convenio de pruebas, el que además será firmado por el propietario o encargado de los animales. Este trámite podrá ser realizado una única vez sin detrimento de su validez o vigencia para muestreos posteriores.

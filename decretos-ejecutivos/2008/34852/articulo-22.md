@@ -1,0 +1,1 @@
+Artículo 22.—Las renovaciones serán cada dos años y se realizarán examinando un 100% de los animales mayores de seis meses que conforman el hato. El certificado podrá ser anulado por el SENASA en el momento en que se demuestre que el hato se ha infectado o se hayan irrespetado las normas establecidas en el manual de procedimientos.

@@ -1,0 +1,1 @@
+Artículo 10.—Todo animal que ingrese a matadero marcado con “S” en sus músculos maseteros, así como aquellos que presenten lesiones compatibles con tuberculosis, deberán ser muestreados por los inspectores, y sus muestras de tejido se enviarán a laboratorio, para intentar confirmar por medio de cultivo u otro, que se encuentra realmente infectado.

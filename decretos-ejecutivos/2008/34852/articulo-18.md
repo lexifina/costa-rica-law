@@ -1,0 +1,1 @@
+Artículo 18.—Conforme al artículo 98 de la Ley SENASA, se diseñarán mecanismos tendientes a incentivar económicamente a los productores, a fin de que estos participen de las campañas de control y erradicación, por ser esta una situación de alto riesgo sanitario.

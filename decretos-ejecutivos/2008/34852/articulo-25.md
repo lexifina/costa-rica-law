@@ -1,0 +1,1 @@
+Artículo 25.—Los hatos bovinos de ganado puro registrados, o que destinen animales para la exportación de ganado en pie o para exposiciones y ferias ganaderas, debe incorporarse en un programa de saneamiento , a fin de obtener el certificado de hato libre.
