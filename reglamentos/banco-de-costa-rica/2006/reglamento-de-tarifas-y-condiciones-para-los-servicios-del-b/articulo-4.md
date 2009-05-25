@@ -1,26 +1,29 @@
-IV Servicios bancarios electrónicos
-1. SINPE Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre Cuentas de Reserva.
-Transferencia de Fondos a Terceros:
-1. Por la página Web: ¢800.00 por transferencia.
-2. En forma manual por plataforma ¢2,100.00 por transferencia
-2. Bancatel
-Banca Fax-Módulo de Negocios
-¢1,000.00 fijo mensual **
+4. Servicios bancarios electrónicos
+4.1.-SINPE Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el BCCR, afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre cuentas de reserva.
+Transferencia de fondos a terceros:
+1. Por la página Web: $1.50 por transferencia.
+2. En forma manual por plataforma $4.00 por transferencia.
+4.2.-Bancatel
+4.2.1Banca Fax $0.20 por folio.
+4.2.2Módulo de Negocios $2.00 fijo mensual **
 ** Con derecho a 10 consultas de cheques mensuales sin costo.
-Cada consulta adicional ¢100.00
-3. Saldo impreso en el Módulo de Banca Comercial | ¢100.00 por hoja
-4. Teleban
-Tarifa Mensual | Tarifa Mensual ¢26.000,00
-Transferencia Electrónica de Fondos | 0.25 % por cada una Mínima ¢18.300,00 diarios siempre que se efectúe al menos una transferencia. Para el caso de institución cuya actividad sea bancaria, financiera o bursátil
-5. Tasaban
-Costo anual por microcomputadora | ¢9.400,00
-Costo anual por microcomputadora adicional | ¢3.700,00
-6. Plataforma de Conectividades
-Según convenio: La comisión que para este servicio se acuerde entre el Banco y la empresa contratante, será establecida en el documento Reglas del Negocio que deben firmar las ambas partes.
-7. Tesorería electrónica
-8. Créditos Directos Salientes SINPE |
-Cuentas Clientes | ¢300.00 por transacción
-9. Bancobcr Empresarial | ¢13.000,00 Dispositivo de lectura (nuevo y reposición) ¢4.200,00 Tarjeta Smart Card (nueva y reposición)
-(*)10. Órdenes de Pago Electrónica, mediante el canal www.bancobcr.com
-$10 por transferencia
-(*) (Así adicionado el insiso anterior mediante sesión N° 34 del 29 de julio de 2008)
+Cada consulta adicional $0.25.
+4.3.-Saldo impreso en el módulo de Banca Comercial $0.20 por hoja.
+4.4.-Teleban.
+4.4.1 Tarifa mensual $50.00
+4.4.2 Transferencia electrónica de fondos 0.25 % por cada
+Una Mínima $35.00 diarios siempre que se efectúe al menos una transferencia. Para el caso de instituciones cuya actividad sea bancaria, financiera o bursátil.
+4.5.- Tasaban
+4.5.1 Costo anual por microcomputadora $18.00
+4.5.2 Costo anual por microcomputadora $7.00
+adicional
+4.6.- Plataforma de conectividades
+Según convenio: la comisión que para este servicio se acuerde entre el Banco y la empresa contratante, será establecida en el documento Reglas del Negocio que deben firmar ambas partes.
+4.7.-Tesorería electrónica
+Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen sus clientes mediante el uso de este servicio.
+4.8.-Créditos directos salientes Sinpe cuentas clientes $0.60 por transacción.
+4.9.-Bancobcr Empresarial
+$25.00 dispositivo de lectura (nuevo y reposición).
+$8.00 tarjeta Smart Card (nueva y reposición).
+4.10- Órdenes de pago electrónica, mediante el canal www.bancobcr.com
+$3.00 por transferencia.
