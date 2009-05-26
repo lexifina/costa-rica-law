@@ -1,3 +1,0 @@
-Artículo 4º—El cobro judicial o extrajudicial de los créditos a favor de la Municipalidad señalados en el artículo 1º de este Reglamento, estará a cargo de Abogados Externos, nombrados por el Concejo Municipal, siguiéndose para tal efecto el procedimiento establecido por el artículo 64 de la Ley de la Contratación Administrativa.
-Los abogados deberán contar con experiencia en la tramitación de cobros judiciales y estar debidamente incorporados al Colegio respectivo y devengarán honorarios que pagará el contribuyente moroso, de acuerdo a la tarifa y normas indicadas en el capítulo correspondiente.
-Entre el profesional y la Municipalidad no existe ninguna relación de servicio, y no genera responsabilidades patronales.

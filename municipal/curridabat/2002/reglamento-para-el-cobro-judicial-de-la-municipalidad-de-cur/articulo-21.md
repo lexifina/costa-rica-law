@@ -1,2 +1,0 @@
-Artículo 21.—El abogado encargado del juicio está obligado a cotejar el edicto de remate antes y después de su publicación en el Boletín Judicial, con los documentos que fundamentan la demanda. Tan pronto el abogado detecte errores en las publicaciones deberá gestionar las enmiendas pertinentes y sería responsable de cualquier perjuicio que por error al respecto pudiere causarle a la Municipalidad o a los obligados.
-Igual cotejo hará la Oficina de Cobro Judicial del edicto publicado, a fin de llevar control sobre la fidelidad de los datos.

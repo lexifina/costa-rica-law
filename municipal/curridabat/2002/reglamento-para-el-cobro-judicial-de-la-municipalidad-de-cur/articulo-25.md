@@ -1,2 +1,0 @@
-Artículo 25.—Una vez aprobado el remate, el abogado tendrá un mes de plazo para presentar la escritura debidamente inscrita, de no ser así, deberá informar exponiendo los motivos por los cuales no se ha podido inscribir el bien adjudicado a favor de la Municipalidad. De la misma manera informará mensualmente hasta la solución final del asunto.
-Los testimonios de escritura debidamente inscritos, así como las certificaciones de aprobación del remate, y de la puesta en posesión, deberán ser entregados a la Dirección de Avalúos y Fiscalización para su custodia.

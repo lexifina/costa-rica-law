@@ -1,2 +1,0 @@
-Artículo 22.—Para los remates, la Oficina de Cobro Judicial suministrará al abogado encargado liquidación de la suma adeudada (principal, intereses, multas, costas y otros gastos) así como copia del avalúo de los bienes afectados que suministrará la Dirección de Avalúos y Fiscalización.
-El abogado estará obligado a comunicarse con la Oficina de Cobro Judicial el día hábil posterior del remate, a fin de que conozca cualquier circunstancia de último momento.

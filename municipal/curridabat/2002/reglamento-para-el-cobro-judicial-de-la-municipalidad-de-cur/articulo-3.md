@@ -1,1 +1,0 @@
-Artículo 3º—La Oficina de Cobro Administrativo y Judicial contará con el personal que requieran las necesidades del servicio; atenderá la organización del cobro de las obligaciones enunciadas en el artículo 1º y ejercerá inmediata vigilancia sobre el cuerpo de Abogados Externos de que habla el artículo siguiente.
