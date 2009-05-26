@@ -1,0 +1,1 @@
+Artículo 9º—El pago de los viáticos de viajes, solo se reconocerán a favor de los funcionarios municipales y de aquellos miembros del Concejo Municipal, que hayan sido debidamente comisionados a realizar diligencias, dentro del Cantón de Guácimo, no así para personas ajenas a la Institución.

@@ -1,0 +1,1 @@
+Artículo 7º—Los montos a pagar dentro de la jurisdicción del Cantón de Guácimo, lo son por concepto de desayuno la suma de ¢1500,00 (mil quinientos colones exactos); por concepto de almuerzo y cena, la suma de ¢2.500,00 (dos mil quinientos colones exactos).
