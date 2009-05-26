@@ -1,0 +1,5 @@
+CAPÍTULO II
+De la clasificación y asignación de vehículos oficiales
+Artículo 4º—De la clasificación. Los vehículos propiedad de la Municipalidad se clasifican de la siguiente manera:
+De uso administrativo. Aquellos vehículos destinados al cumplimiento de las funciones propias de la Municipalidad. Los vehículos municipales portarán el emblema oficial del ayuntamiento en ambos costados de la cabina con el logotipo “Municipalidad de Guácimo”, con el escudo o símbolo municipal o cualquier otra referencia estipulada. Llevarán una placa especial que los identifique, en la cual se consignará que son medios de transporte de servicio municipal. Ningún vehículo de este tipo podrá ser asignado a un funcionario en particular.
+De uso discrecional. Se trata de aquel vehículo, que previa declaratoria de la autoridad competente, sea asignado al servicio del Alcalde. Este tipo de vehículo no cuenta con restricciones en cuanto al gasto de combustible y de mantenimiento. Para esta clase de vehículo se gestionará, ante el registro de vehículos, una placa particular. Dicha asignación y disfrute del vehículo de uso discrecional, no constituirá salario en especie.

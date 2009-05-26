@@ -1,0 +1,1 @@
+Artículo 11.—De las tarjetas o registros de control. Todo vehículo municipal contará con dos tarjetas o registros: una denominada “control de combustible” y otra denominada “control de mantenimiento”.

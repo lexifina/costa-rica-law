@@ -1,0 +1,1 @@
+Artículo 16.—De la conducción del vehículo. Es absolutamente prohibido al funcionario autorizado para conducir un vehículo, ceder la conducción del vehículo a otras personas no autorizadas, salvo razones muy calificadas que se deberán comunicarse al área respectiva.
