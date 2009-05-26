@@ -1,0 +1,1 @@
+Artículo 11.—El pago efectuado fuera del plazo. Sin perjuicio de lo establecido en el artículo 5 de la Ley, el no pago del impuesto producirá la obligación por parte del agente de percepción de pagar junto con el tributo adeudado, las obligaciones establecidas en el artículo 57 del Código de Normas y Procedimientos Tributarios.

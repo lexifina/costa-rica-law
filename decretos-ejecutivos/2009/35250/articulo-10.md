@@ -1,0 +1,1 @@
+Artículo 10.—Forma y medios de pago. El impuesto deberá ser cancelado en dólares de los Estados Unidos de América o su equivalente en colones al tipo de cambio de referencia de venta establecido por el Banco Central de Costa Rica para el último día del mes que se declara, en la forma, medios y condiciones que defina el I.C.T.

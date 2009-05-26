@@ -1,0 +1,3 @@
+Artículo 14.—Devolución del Impuesto. Toda devolución del impuesto efectivamente ingresado al I.C.T., deberá ser solicitada por el pasajero o persona autorizada por éste ante dicho ente, el cual deberá, de previo a efectuar la devolución, analizar y corroborar su procedencia legal.
+En aquellos supuestos en que no se perfeccione el hecho generador del impuesto por el no ingreso al país por parte del pasajero, la devolución del impuesto deberá gestionarse por el pasajero o por la persona por éste autorizada, ante la línea aérea correspondiente.
+Los procedimientos y requisitos aplicables a la devolución señalada, serán determinados mediante reglamento que para tales efectos emitirá el I.C.T.

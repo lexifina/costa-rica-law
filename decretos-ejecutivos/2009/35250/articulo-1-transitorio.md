@@ -1,0 +1,1 @@
+Transitorio I.—Sin perjuicio de su obligación de inscribirse, el I.C.T. procederá a integrar de oficio un registro de agentes de percepción, con las empresas de transporte aéreo autorizadas para transportar pasajeros del exterior hacia Costa Rica.
