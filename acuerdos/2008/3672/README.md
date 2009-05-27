@@ -14,3 +14,4 @@ Reforma Estudios hidrogeológicos para el trámite de perforación de pozos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-13 | la propia norma |
+| 2 | 2009-05-27 | Acuerdo 3748 (2009-05-27) |
