@@ -1,0 +1,1 @@
+Artículo 28.—El policía municipal deberá presentarse al cumplimiento de sus funciones, en óptimas condiciones físicas y mantendrá en buen estado de conservación su vestuario y equipamiento recibido para el desempeño de sus funciones.

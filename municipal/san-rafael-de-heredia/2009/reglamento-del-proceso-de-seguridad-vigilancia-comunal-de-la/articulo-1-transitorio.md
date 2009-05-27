@@ -1,0 +1,1 @@
+Artículo transitorio I.—En todo aquello no previsto en este reglamento, se aplicará supletoriamente, el Código Municipal, la Ley General de la Administración Pública, Reglamento Interno de Trabajo de la Municipalidad de San Rafael de Heredia, Código de Trabajo, la Constitución Política, Ley General de Policía y demás normativa conexa.

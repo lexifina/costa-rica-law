@@ -1,0 +1,2 @@
+Artículo 11.—El cabello del personal masculino no podrá exceder la longitud de la parte superior del cuello de la camisa y no deberá cubrir las orejas. A los oficiales de este sexo les queda autorizado, previa solicitud a su superior, el uso del bigote arreglado, no pudiendo exceder su longitud de cuatro centímetros.
+En el caso de oficiales de sexo femenino, el uso de aretes deberá estar condicionado a que los pendientes no sean de tipo argolla, ni de una longitud mayor a medio centímetro, que ponga en peligro la integridad física de las efectivas de la Policía Municipal.

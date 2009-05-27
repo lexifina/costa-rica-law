@@ -1,0 +1,1 @@
+Artículo 29.—Los policías municipales de San Rafael de Heredia, no deberán admitir dádivas monetarias ni en especie por los servicios que presten. Guardarán secreto o reserva de las fuentes de información, en asuntos que competen a sus funciones.

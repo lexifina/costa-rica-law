@@ -1,0 +1,1 @@
+Artículo 8º—Se prohíbe la utilización del uniforme de modo incompleto, así como la colocación descuidada de las prendas y accesorios que lo componen. La presentación personal debe ser impecable y será indispensable en el Policía Municipal.
