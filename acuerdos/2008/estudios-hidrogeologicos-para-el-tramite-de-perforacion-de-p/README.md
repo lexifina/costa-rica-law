@@ -15,3 +15,4 @@ Estudios hidrogeológicos para el trámite de perforación de pozos
 | --- | --- | --- |
 | 1 | 2008-03-01 | la propia norma |
 | 2 | 2008-11-19 | Acuerdo 3672 (2008-12-02) |
+| 3 | 2009-05-27 | Acuerdo 3748 (2009-05-27) |
