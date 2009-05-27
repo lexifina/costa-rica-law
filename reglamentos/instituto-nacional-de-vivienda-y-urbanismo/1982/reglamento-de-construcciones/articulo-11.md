@@ -67,7 +67,8 @@ Cada diez filas habrá pasillos paralelos a las gradas con anchura mínima igual
 Las puertas y salidas deberán construirse de acuerdo con las normas especificadas para los sitios de reunión pública.
 Artículo XI. 25.—Enfermería en edificios deportivos. Los edificios para espectáculos deportivos deberán contar con un local adecuado para enfermería.
 Artículo XI.26.—Retiros. Los edificios destinados a reunión pública cualquiera que sea su tipo, guardarán los siguientes retiros según su capacidad:
-XI26.1 Edificios con capacidad de hasta las 250 personas: No requieren retiros.
+XI26.1 Anulado.
+(Anulado este aparte mediante resolución de la Sala Constitucional N° 8908 del 27 de mayo del 2009, misma que ordena al Instituto Nacional de Vivienda y Urbanismo, a proceder, dentro del plazo improrrogable de un mes a partir de la publicación de esta resolución, a realizar la modificación correspondiente a dicho artículo, a efecto de que los retiros exigidos a los edificios de hasta doscientos cincuenta personas, sean respetuosos del principio de razonabilidad y del derecho a la vida.)
 XI26.2 Edificios con capacidad entre las 251 y 500 personas:
 Retiro frontal: seis metros (6 m).
 XI26.3 Edificios con capacidad entre las 501 y 750 personas:
