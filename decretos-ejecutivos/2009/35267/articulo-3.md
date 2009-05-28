@@ -1,0 +1,1 @@
+Artículo 3º—El monto correspondiente a las dietas de los miembros del Consejo Nacional de Desarrollo de la Comunidad, deberá actualizarse en el mes de enero de cada año, en vista a la variación del índice general de precios al consumidor, acumulado en el año inmediato anterior.
