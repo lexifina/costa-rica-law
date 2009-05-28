@@ -1,0 +1,1 @@
+Artículo 7º—Derogatoria: Deróguese el Decreto Ejecutivo Nº 34586-C, vigente desde el 1º de julio del 2008 mediante el cual se creó la “Comisión de Accesibilidad en los Museos del Ministerio de Cultura y Juventud”.
