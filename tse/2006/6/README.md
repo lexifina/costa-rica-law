@@ -14,3 +14,4 @@ División Territorial Electoral que regirá para las elecciones del 3 de diciemb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-30 | la propia norma |
+| 2 | 2009-05-28 | Decreto TSE 5 (2009-05-28) |
