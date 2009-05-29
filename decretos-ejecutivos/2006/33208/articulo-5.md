@@ -24,3 +24,9 @@ Artículo 5º—El Departamento de Gestión del Potencial Humano tendrá las sig
 5.23) Aprobar en coordinación con la Comisión de Recursos Humanos, la cantidad de horas extra a utilizar y distribuirlas entre las dependencias ministeriales, de acuerdo con el presupuesto existente para tal fin.
 5.24) Recibir, ordenar, clasificar y mantener en custodia los diversos documentos que conforman los expedientes personales de los funcionarios del Ministerio de Hacienda.
 5.25) Otras actividades propias de la gestión del potencial humano.
+5.26) Diseñar, implementar y administrar el modelo de evaluación del desempeño del funcionario y de los equipos de trabajo, que laboran en las diferentes unidades y procesos del Ministerio.
+(Así adicionado el inciso anterior por el artículo 12° del decreto ejecutivo N° 35305 del 29 de mayo del 2009)
+5.27) Evaluar el desempeño de los funcionarios del Ministerio.
+(Así adicionado el inciso anterior por el artículo 12° del decreto ejecutivo N° 35305 del 29 de mayo del 2009)
+5.28) Llevar a cabo acciones que coadyuven al mejoramiento continuo del desempeño, en coordinación con la Dirección del Centro de Investigación y Formación Hacendaria.
+(Así adicionado el inciso anterior por el artículo 12° del decreto ejecutivo N° 35305 del 29 de mayo del 2009)

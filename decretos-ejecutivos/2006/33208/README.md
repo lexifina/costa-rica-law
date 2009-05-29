@@ -14,3 +14,4 @@ Reglamento de Organización de la Dirección Administrativa y Financiera del Min
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-18 | la propia norma |
+| 2 | 2009-05-29 | Decreto Ejecutivo 35305 (2009-05-29) |
