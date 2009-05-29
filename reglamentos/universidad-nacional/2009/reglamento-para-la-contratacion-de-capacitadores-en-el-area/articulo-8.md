@@ -1,0 +1,1 @@
+Artículo 8º—De las zonas a cubrir y la cantidad de grupos de capacitación. Las zonas geográficas y la cantidad de grupos de capacitación que corresponde cubrir a la Universidad Nacional serán definidas por el Ministerio de Educación Pública oportunamente.
