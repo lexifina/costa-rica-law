@@ -1,0 +1,10 @@
+Artículo 11. Uso eficiente
+El Plan Nacional de Atribución de Frecuencias procura la adecuada y oportuna planificación del espectro radioeléctrico y su eficaz gestión, para optimizar su uso, procurando satisfacer las peticiones de frecuencia para el crecimiento de las redes de telecomunicaciones existentes y creando la disponibilidad de frecuencias para la introducción de nuevas redes para la disposición de nuevos servicios, conforme a las recomendaciones que emita la Unión Internacional de Telecomunicaciones (UIT) y la Comisión Interamericana de Telecomunicaciones (CITEL).
+Se considerará un uso eficiente del radioespectro, cuando se cumpla con los siguientes lineamientos básicos:
+▪ Que las frecuencias sean utilizadas de acuerdo con la atribución de la banda de frecuencias que se especifica en el presente PNAF.
+▪ Cuando las zonas de cobertura cumplan con la asignación del área geográfica que determine el título habilitante.
+▪ Cuando los equipos transmisores no causen interferencia perjudicial a servicios que operen en los mismos segmentos de frecuencias o canales adyacentes.
+▪ Cuando sea posible la reutilización en el uso de frecuencias o segmentos de frecuencias en una misma región, sea por el mismo concesionario, o por varios.
+▪ Cuando las asignaciones de frecuencias, permita el empleo de tecnologías de servicios convergentes.
+▪ Cuando con fundamento en lo dispuesto en los artículos 21 de la Ley General de Telecomunicaciones y 10 del Reglamento General de Telecomunicaciones, en el tanto sea posible de acuerdo a la disponibilidad del recurso, se puedan reasignar los canales de frecuencias otorgadas por segmentos continuos al equivalente en ancho de banda, a fin de permitir el uso de nuevas tecnologías.
+Para la consecución del uso eficiente del espectro radioeléctrico se deberá contar con un sistema de comprobación técnica de las emisiones radioeléctricas integrado por estaciones fijas, remotas, móviles y portátiles, que permita la verificación real de la ocupación y su adecuada utilización.

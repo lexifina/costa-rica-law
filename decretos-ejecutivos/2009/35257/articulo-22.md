@@ -1,0 +1,1 @@
+Artículo 22. Disposición Transitoria. A partir de la publicación del presente PNAF, en un plazo de un mes la SUTEL verificará la concordancia de las notas nacionales indicadas en el artículo 19, a efectos de determinar uso eficiente del espectro radioeléctrico.

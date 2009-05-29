@@ -1,0 +1,5 @@
+Artículo 12. Gestión del Espectro Radioeléctrico
+Para una adecuada gestión y la utilización del espectro radioeléctrico el Poder Ejecutivo puede modificar el PNAF para alcanzar el objetivo fundamental de crear las condiciones de atención oportuna de la demanda de frecuencias, para la operación de las actuales y futuras redes de telecomunicaciones que requieran del uso del espectro radioeléctrico, con fundamento en los siguientes criterios:
+a) El establecimiento y desarrollo de políticas y regulaciones técnicas del espectro radioeléctrico, permitiendo la atribución de bandas de frecuencias a los distintos servicios de radiocomunicaciones;
+b) El desarrollo de métodos y procedimientos de gestión del espectro radioeléctrico, que sean eficaces para que su uso sea eficiente;
+c) la obtención de insumos a partir de la organización y el establecimiento del sistema de gestión del espectro radioeléctrico, que con programas informáticos y otros medios técnicos o científicos requeridos, que implemente la SUTEL.

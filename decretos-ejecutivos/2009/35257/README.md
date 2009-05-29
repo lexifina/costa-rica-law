@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 35257
+
+Plan Nacional de Atribución de Frecuencias (PNAF)
+
+- Tipo: Decreto Ejecutivo
+- Número: 35257
+- Fecha: 2009-04-16
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 103 del 2009-05-29, Alcance 19
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=65675&param2=76851&param3=1 (ficha 65675)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-05-29 | la propia norma |
