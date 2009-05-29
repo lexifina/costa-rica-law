@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 12.—Toda la información requerida por el CFIA, deberá ser veraz y fidedigna. La inserción de información falsa, hará que los profesionales incurran en las faltas establecidas en los artículos 9º y 31 del Código de Ética Profesional, sin perjuicio de las sanciones penales que correspondan.

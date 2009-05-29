@@ -1,0 +1,6 @@
+Artículo 7º—Las solicitudes de devolución no procederán, en los siguientes casos:
+a) Cuando la petición se presente antes del plazo señalado en el artículo 5º del presente Reglamento.
+b) Cuando la petición no cumpla con los requisitos establecidos en el presente Reglamento.
+c) Cuando el saldo a devolver ya hubiere sido objeto de devolución, compensación, o imputación anterior.
+d) Cuando la petición tenga como fundamento incumplimientos del profesional o la empresa miembro, a las disposiciones contenidas en los artículos 4º, 15, 16 y 17 del Reglamento para la Contratación de Servicios de Consultoría e Ingeniería y Arquitectura, publicado en el Diario Oficial La Gaceta N° 202 del 25 de octubre de 1988; 7 inciso c) del Reglamento Especial para el Miembro Responsable de Empresas Constructoras, publicado en el Diario Oficial La Gaceta N° 114 del 16 de junio de 1983; 8º inciso a) de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, y el artículo 3 del Código de Ética Profesional.
+e) Cuando el profesional responsable y/o la empresa no se encuentre al día en el pago de las obligaciones referentes a cuotas de colegiatura y derechos de inscripción, respectivamente.

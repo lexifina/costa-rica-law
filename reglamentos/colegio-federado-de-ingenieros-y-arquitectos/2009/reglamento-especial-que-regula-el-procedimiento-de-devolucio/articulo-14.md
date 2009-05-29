@@ -1,0 +1,1 @@
+Artículo 14.—Contra lo resuelto por el Departamento de Responsabilidad Profesional, cabrá el recurso de apelación ante la Dirección Ejecutiva, el cual deberá interponerse dentro del término de los tres días hábiles siguientes, contados a partir de la comunicación del acto. Dicho recurso deberá resolverse dentro del mes posterior de recibo de la gestión.

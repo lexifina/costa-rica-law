@@ -1,0 +1,2 @@
+Artículo 4º—El sello que debe llevar todo plano de construcción o de urbanización tendrá una vigencia de un año. Vencido ese término, el interesado podrá solicitar, por una única vez, su renovación por otro periodo igual consecutivo. Para ello, el interesado deberá cancelar la diferencia con respecto al pago de los timbres y derechos cancelados originalmente, cuando así corresponda.
+Transcurridos los plazos indicados anteriormente, el interesado deberá cumplir con los requisitos de una nueva solicitud de sello de planos.

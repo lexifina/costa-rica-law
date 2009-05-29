@@ -1,0 +1,5 @@
+Artículo 11.—Una vez revisado el cumplimiento de los anteriores requisitos, el Departamento de Responsabilidad Profesional procederá de la siguiente forma:
+a) Realizará el análisis de los nuevos planos presentados con el fin de constatar la existencia de las variaciones y modificaciones alegadas en la solicitud.
+b) Remitirá una solicitud de inspección al Departamento del Régimen Disciplinario o Sede Regional respectiva, a efectos de constatar que la obra relacionada no ha sido construida de acuerdo con los planos registrados inicialmente.
+c) Si una vez rendido el informe del Departamento del Régimen Disciplinario o de Sede Regional respectiva, se concluye que la construcción no se ejecutó de acuerdo con los planos registrados previamente, se procederá a anular y/o destruir los planos tramitados inicialmente.
+d) En caso que exista un saldo a favor de los interesados, se solicitará al Departamento Financiero la devolución, única y exclusiva, del monto por concepto de derecho de asistencia. Para lo anterior, los interesados deberán cumplir con las disposiciones contenidas en el artículo 6 del presente Reglamento.

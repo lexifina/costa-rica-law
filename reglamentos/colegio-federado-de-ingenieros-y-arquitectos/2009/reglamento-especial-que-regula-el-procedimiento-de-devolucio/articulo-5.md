@@ -1,0 +1,1 @@
+Artículo 5º—Las solicitudes de devolución de dinero procederán únicamente hasta que haya transcurrido un plazo de seis meses, contados a partir de la fecha del sellado de los planos. El CFIA deberá resolver la procedencia de la solicitud de devolución dentro del plazo de los dos meses posteriores a su presentación.
