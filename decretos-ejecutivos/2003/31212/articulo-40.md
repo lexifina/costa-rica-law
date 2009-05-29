@@ -1,2 +1,2 @@
-Artículo 40.—Revisión periódica del reglamento. La revisión periódica del presente Reglamento estará a cargo del *Departamento de Investigación y Formación Hacendaria y de la Comisión de Becas. Ambas instancias tendrán a su cargo la iniciativa de proposición de reformas que se enviarán a la consideración del señor Ministro.
-*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+Artículo 40.—Revisión periódica del reglamento. La revisión periódica del presente Reglamento estará a cargo de (*) la Dirección del Centro de Investigación y Formación Hacendaria y de la Comisión de Becas. Ambas instancias tendrán a su cargo la iniciativa de proposición de reformas que se enviarán a la consideración del señor Ministro.
+(*)(Modificada su denominación por el artículo 10° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).

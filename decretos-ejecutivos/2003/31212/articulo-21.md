@@ -1,7 +1,6 @@
 Artículo 21.—Proceso de selección interna. Para la selección de los candidatos o la adjudicación de una beca o facilidad se tomarán en cuenta los factores que adelante se indican, con base en los cuales se establecerá la calificación final obtenida por cada concursante:
 Factor a evaluar Valor
-1. CRITERIO TÉCNICO DEL *DEPARTAMENTO DE INVESTIGACIÓN Y FORMACIÓN HACENDARIA 20%
-*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+1. CRITERIO TÉCNICO DE (*) LA DIRECCIÓN DEL CENTRO DE INVESTIGACIÓN Y FORMACIÓN HACENDARIA 20%
 Relación de funciones con respecto al programa de beca Mucho 20%
 Regular 13%
 Poco 5%
@@ -44,3 +43,4 @@ punto por investigaciones o publicaciones.
 6. Actividades de capacitación impartidas 15%
 6.1 En el Ministerio de Hacienda (un punto por cada evento). 10%
 6.2 En otras instituciones del Régimen del Servicio Civil (0.5 por cada evento) 5%
+(*)(Modificada su denominación por el artículo 10° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).

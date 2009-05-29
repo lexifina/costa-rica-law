@@ -1,12 +1,10 @@
 CAPÍTULO II
-Del *Departamento de Investigación y Formación Hacendaria y la Comisión de Becas
-*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
-Artículo 5º—Competencias del *Departamento de Investigación y Formación Hacendaria. Al Ministerio por medio del *Departamento de Investigación y Formación Hacendaria le corresponderá:
-*(Modificada su denominación por el inciso 3 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+(*) La Dirección del Centro de Investigación y Formación Hacendaría y la Comisión de Becas
+Artículo 5º—Competencias de *la Dirección del Centro de Investigación y Formación Hacendaría . Al Ministerio por medio de (*) la Dirección del Centro de Investigación y Formación Hacendaria le corresponderá:
 a) Coordinar la concesión de becas o facilidades a fin de que los servidores del Ministerio participen en programas de capacitación y formación que se realicen en el país o en el extranjero y que tengan relación con las funciones del Ministerio.
 b) Preparar y publicar el cartel de convocatoria a concurso de las becas o facilidades disponibles.
 c) Seleccionar los candidatos y comunicarlo al organismo patrocinador cuando éste sea el que adjudica la beca o facilidad, o bien realizar el procedimiento de adjudicación cuando las becas o facilidades sean patrocinadas por el Ministerio.
-d) Coordinar la elaboración y suscripción de los “Contratos de Capacitación y Formación para Funcionarios Beneficiarios de Becas o Facilidades”, con sujeción a lo establecido en el Estatuto de Servicio Civil, su reglamento y en la Ley Nº 3009, entre el funcionario beneficiado y el Director Administrativo y Financiero del Ministerio.
-(Así reformado el inciso anterior mediante el artículo 1 del decreto ejecutivo N°33200 del 31 de mayo del 2006).
+d) Coordinar la elaboración y suscripción de los “Contratos de Capacitación y Formación para Funcionarios Beneficiarios de Becas o Facilidades”, con sujeción a lo establecido en el Estatuto de Servicio Civil, su reglamento y en la Ley Nº 3009, entre el funcionario beneficiado y (*) el (la) Director(a) del Centro de Investigación y Formación Hacendaria.
 e) Mantener informada a la Comisión, sobre las áreas prioritarias en que deben ser capacitados los funcionarios, de acuerdo con los planes estratégicos institucionales, los planes estratégicos de formación y capacitación y los planes anuales de capacitación, para enfocar los recursos a un mejor aprovechamiento de acuerdo con las necesidades institucionales.
 f) Conocer y resolver los recursos de revocatoria presentados en contra de la resolución de adjudicación de la beca o la nominación o presentación de candidatos.
+(*)(Modificada su denominación por el artículo 10° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).
