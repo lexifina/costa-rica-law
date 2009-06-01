@@ -1,0 +1,4 @@
+Artículo 31.-La Comisión de Seguridad Ciudadana deberá ser juramentada por el Concejo Municipal y permanecerán en sus cargos por un período de dos años, contados a partir de la fecha del nombramiento según el acuerdo municipal respectivo, salvo casos de suspensión o renuncias en que se nombrará sustituto en el acto.
+A medio período se realizará la elección del cincuenta por ciento de los miembros de la Comisión de Seguridad Ciudadana, los que pueden ser reelectos para el nuevo período de dos años.
+En ningún caso podrán los nombramientos a los que se refiere este artículo exceder del periodo de cuatro años del gobierno municipal que los nombró.
+La Comisión de Seguridad Cantonal podrá conformar una junta directiva, que garantice su adecuado funcionamiento con miras a satisfacer el interés público.
