@@ -43,3 +43,5 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 56 a La Gaceta N° 253 del 31 de diciembre del 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35060 del 27 de febrero de 2009)
 (Modificado por los artículos 2° y 3° del decreto ejecutivo N° 35140 del 19 de marzo de 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35256 del 11 de mayo de 2009).
+(Modificado por el artículo 3° del decreto ejecutivo N° 35256 del 11 de mayo de 2009).
