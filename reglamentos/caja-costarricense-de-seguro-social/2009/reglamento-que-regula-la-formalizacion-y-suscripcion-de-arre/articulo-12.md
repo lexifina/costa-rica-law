@@ -1,0 +1,2 @@
+Artículo 12.—De la cesión de facturas. Los patronos o trabajadores independientes, que presenten adeudos con la Caja, podrán ceder facturas a favor de la Institución, originadas por la venta de bienes o servicios brindados a la Caja.
+La cesión puede ser autorizada para cubrir total o parcialmente el monto de los conceptos adeudados a la Caja, en caso de que el importe de esas facturas sea inferior a los adeudos, el deudor deberá cancelar la diferencia o bien formalizar un arreglo de pago de conformidad con lo establecido en el presente Reglamento.
