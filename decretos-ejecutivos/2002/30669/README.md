@@ -15,3 +15,4 @@ Reglamento para el uso, custodia y conservación de los teléfonos celulares del
 | --- | --- | --- |
 | 1 | 2002-09-05 | la propia norma |
 | 2 | 2007-06-27 | Decreto Ejecutivo 33858 (2007-06-27) |
+| 3 | 2009-06-01 | Decreto Ejecutivo 35336 (2009-06-01) |
