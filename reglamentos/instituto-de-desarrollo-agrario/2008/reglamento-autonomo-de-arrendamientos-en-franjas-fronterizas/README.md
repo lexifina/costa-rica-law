@@ -14,3 +14,4 @@ Reglamento Autónomo de Arrendamientos en Franjas Fronterizas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-28 | la propia norma |
+| 2 | 2009-06-01 | Reglamento 19 (2009-06-01) |

@@ -1,5 +1,14 @@
-Artículo 16.—El depósito de dinero necesario para realizar la inspección de campo, se hará en la cuenta bancaria que al efecto se establezca por parte del INSTITUTO, cuyo monto (M) se calculará de la siguiente manera:
-a) Para USO AGROPECUARIO: M = ¢ 10.000,00 * l1/l0 b) Para USO COMERCIAL: M = ¢ 15.000,00 * l1/l0 c) Para USO INDUSTRIAL: M = ¢ 15.000,00 * l1/l0 d) Para USO HABITACIONAL: M = ¢ 5.000,00 * l1/l0 e) Para USO MIXTO: M = ¢ 15.000,00 * l1/l0 f) Para USO SERVICIOS PÚBLICOS: M = ¢ 10.000,00 * l1/l0 g) En arrendamientos para uso HABITACIONAL y AGROPECUARIO a ser
-aprovechados por familias de escasos recursos económicos, en condiciones de pobreza debidamente comprobados por la OFICINA SUBREGIONAL, el depósito de dinero necesario para realizar la inspección de campo podrá establecerse de acuerdo con las posibilidades económicas reales de las familias interesadas.
-En donde:
-l0 = Valor del salario mínimo que rige a partir del 1º de julio de 2002, correspondiente a la categoría “Trabajadores Especializados” del grupo GENÉRICOS definido mediante Decreto Nº 30547-MTSS, publicado en La Gaceta Nº 128 del 4 de julio de 2002 y que equivale a ¢120.413,00 colones. l1 = Valor del salario mínimo de la categoría “Trabajadores Especiali-zados” del grupo GENÉRICOS que rige en la fecha en que se solicita el depósito del dinero de la inspección de campo y que mediante el decreto ejecutivo se actualiza cada 6 meses.
+Artículo 16.— El depósito de dinero necesario para realizar la inspección de campo, se hará en la cuenta bancaria que al efecto se establezca por parte del Instituto, cuyo monto (M) se calculará de la siguiente manera:
+a) Para USO AGROPECUARIO: M = ¢20.000 * Ι1/Ι0*50%
+b) Para USO COMERCIAL: M = ¢ 30,000 * Ι1/Ι0
+c) Para USO INDUSTRIAL: M = ¢ 30,000 * Ι1/Ι0
+d) Para USO HABITACIONAL: M = ¢ 10,000 * Ι1/Ι0*50%
+e) Para USO MIXTO: M = ¢ 30,000 * Ι1/Ι0
+f) Para USO MIXTO (caso: M = ¢ 30,000 * Ι1/Ι0* 50%
+HABITACIONAL-AGROPECUARIO):
+g) Para USO SERVICIOS PÚBLICOS: M = ¢ 20,000 * Ι1/Ι0
+En arrendamientos para usos Habitacional, Agropecuario y Mixto (Caso Agropecuario-Habitacional) a ser aprovechados por familias de escasos recursos económicos, en condiciones de pobreza debidamente comprobados por la Oficina Subregional, el depósito de dinero necesario para realizar la inspección de campo podrá reducirse hasta en un 50% o exonerarse completamente previo informe razonado del Director Regional.
+La actualización del monto de las inspecciones por el factor (Ι1/Ι0) se hará cada cinco años en forma automática, teniendo presente que:
+Ι0 = Valor del salario mínimo que rige a partir del 1º de enero de 2009, correspondiente a la categoría “Trabajadores Especializados” del grupo Genéricos definido mediante Decreto Nº 34937-MTSS, publicado en La Gaceta Nº 242 del 15 de diciembre del 2008 y que equivale a ¢251,685 colones.
+Ι1 = Valor del salario mínimo de la categoría “Trabajadores Especializados” del grupo Genéricos definido mediante el decreto ejecutivo que corresponda y que rige a partir del día 1º de enero cada 5 años (2014, 2019, 2024, etc.). Para el periodo comprendido entre el 1º de enero del 2009 y el 1º de enero del 2014 los valores de los factores (Ι1/Ι0) e (Ι1/Ι0*50%) serán iguales a 1.
+(Así reformado en sesión N° 019 del 1° de junio de 2009).
