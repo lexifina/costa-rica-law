@@ -1,9 +1,0 @@
-Artículo 17.—Sustitúyanse las secciones II y III del Capítulo IV del Reglamento del Decreto Ejecutivo Nº 31635-MEP fecha 4 de febrero de dos mil cuatro, publicado en La Gaceta Nº 30 del 12 de febrero del año dos mil cuatro, para que se lea de la siguiente manera, y en su virtud córrase la numeración del artículo 122 al 133.
-“SECCIÓN II
-De la obtención de los certificados de II y III Ciclos
-de Educación General Básica
-Artículo 108.—De la obtención de los certificados de II y III Ciclos de la Educación General Básica
-Se hará acreedor al Certificado de Conclusión de Estudios del II Ciclo de la Educación General Básica, el estudiante que apruebe la totalidad de las asignaturas de sexto año, según lo establecen los artículos 32, 33, 34, 35, 36, 37 y 38 de este Reglamento. Para el caso de los IPEC o CINDEA será preciso que el estudiante apruebe 127 créditos del primer nivel del plan modular respectivo.
-Se hará acreedor al Certificado de Conclusión de Estudios de la Educación General Básica; el estudiante que apruebe la totalidad de las asignaturas de noveno año de acuerdo con lo que establecen los artículos 32, 33, 34, 35, 36, 37 y 38 de este Reglamento. Para el caso de los estudiantes de los IPEC o CINDEA será preciso, además, que hubiesen aprobado 119 créditos del segundo nivel del plan modular respectivo.
-Artículo 109.—De los certificados de conclusión de II o III ciclo con mención de excelencia.
-El certificado de Conclusión de II Ciclo de la Educación General Básica o el de Conclusión de Estudios del la Educación General Básica, se hará acompañar de una mención de excelencia, cuando el estudiante hubiese obtenido calificaciones iguales o superiores a 90 en cada uno de los promedios anuales de las asignaturas del plan de estudios de sexto o de noveno año, respectivamente.”

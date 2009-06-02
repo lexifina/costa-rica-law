@@ -1,5 +1,0 @@
-Artículo 21.—Refórmese el artículo 121 del Decreto Ejecutivo Nº 31635-MEP fecha 4 de febrero de dos mil cuatro, publicado en La Gaceta Nº 30 del 12 de febrero del año dos mil cuatro, para que en lo sucesivo se lea de la siguiente manera:
-“Artículo 121.—De la convocatoria para el postulante que repruebe la prueba de bachillerato.
-El postulante que, de conformidad con las normas anteriores repruebe en una o en varias asignaturas, en la convocatoria ordinaria que se señala en el artículo 112, tendrá derecho a postularse, por una sola vez, en la convocatoria inmediata siguiente que se administre, según lo dispuesto en el artículo 113.
-Adicionalmente, estos postulantes también podrán optar por rendir las pruebas correspondientes en el Sistema de Educación Abierta que administra el Ministerio de Educación Pública. En este caso, se tendrá por aprobadas las asignaturas conforme a las normas anteriores.
-El postulante que apruebe según lo dispuesto en el artículo anterior tendrá derecho a graduarse en la institución de procedencia para cuyo efecto deberá aportar las certificaciones correspondientes.”
