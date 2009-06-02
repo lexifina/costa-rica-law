@@ -1,1 +1,0 @@
-Artículo 72.—De las condiciones para aplicar acciones correctivas. La aplicación de las acciones correctivas al estudiante se hará tomando como referencia el cumplimiento de los deberes que se señalan en el artículo 59 de este Reglamento y en el Reglamento Interno de la Institución y de acuerdo con la valoración señalada en el artículo anterior.

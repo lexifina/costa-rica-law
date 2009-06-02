@@ -1,2 +1,0 @@
-Artículo 132.—Del envío de los Instrumentos de Medición a los Padres de Familia o Encargados. Los instrumentos de medición debidamente calificados deben ser remitidos a los padres de familia o encargados con los estudiantes, para su conocimiento y firma. El docente controlará el cabal cumplimiento de esta función de los padres o encargados.
-(Así corrida su numeración por los artículos 16, 17 y 22 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 125 al 132 y de tal forma que actualmente contiene el texto del anterior artículo 146).

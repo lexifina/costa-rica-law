@@ -1,3 +1,0 @@
-SECCIÓN III
-Componentes para la Calificación de los Estudiantes y su Valor Porcentual
-Artículo 21.—De la División del Curso Lectivo en Períodos. El curso lectivo estará dividido en tres períodos escolares, tanto en la Educación General Básica como en la Educación Diversificada. Se exceptúan de esta división las asignaturas que se cursan en periodos escolares semestrales y aquellas que se imparten mediante el sistema modular de los Institutos Profesionales de Educación Comunitaria (IPEC) y los Centros Integrales de Educación de Adultos (CINDEA), según autorización previa y expresa del Consejo Superior de Educación.

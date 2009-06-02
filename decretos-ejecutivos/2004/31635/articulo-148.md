@@ -1,1 +1,0 @@
-Artículo 148.—(Así corrida su numeración, según las reformas efectuadas por los artículos 16, 17 y 22 del Decreto Ejecutivo N° 34449 de 13 de marzo de 2008, pasando del anterior artículo 141 al 148. Asimismo, en virtud de la reforma realizada por el numeral 22 en mención, la materia regulada anteriormente en el artículo 141 se encuentra actualmente en el artículo 127).

@@ -1,2 +1,0 @@
-Artículo 140.—De las Condicionantes de la Normativa Interna. La Normativa Interna que se establezca en cada centro educativo deberá respetar las leyes y reglamentos generales del sistema educativo y la normativa vigente.
-(Así corrida su numeración por los artículos 16, 17 y 22 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 133 al 140 y de tal forma que actualmente contiene el texto del anterior artículo 154).

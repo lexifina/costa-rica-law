@@ -1,2 +1,0 @@
-Artículo 106.—Del ente responsable de las Pruebas Diagnósticas. La definición de la muestra, comunicación y coordinación de los centros educativos seleccionados, planificación, administración y calificación de las pruebas diagnósticas nacionales, es responsabilidad de la Dirección de Gestión y Evaluación de la Calidad. Las pruebas diagnósticas internacionales se regirán por su propio protocolo.
-(Así adicionado por el artículo 16 del decreto ejecutivo N° 34449 de 13 de marzo de 2008)

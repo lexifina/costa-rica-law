@@ -1,1 +1,0 @@
-Artículo 5º—De la Responsabilidad de Administración de la Evaluación de los Aprendizajes. La administración del proceso de evaluación de los aprendizajes en el aula es una responsabilidad profesional y esencial del educador que está directamente vinculado con los respectivos estudiantes en sus procesos de aprendizaje.

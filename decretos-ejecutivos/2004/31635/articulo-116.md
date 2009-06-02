@@ -1,3 +1,0 @@
-Artículo 116.—De la consignación de los resultados de las pruebas de Bachillerato en Educación Media. Concluido el proceso de calificación de la prueba y establecido el resultado final de cada estudiante, la Dirección de Gestión y Evaluación de la Calidad, procederá a elaborar las actas respectivas, las que remitirá a cada institución educativa junto con el documento que transcribe los resultados.
-(NOTA: Así corrida su numeración por el artículo 16 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 114 al 116. Posteriormente el artículo 17 ibidem, ordenó adecuar la numeración de tal forma que el texto del anterior artículo 128 pasó al 116 actual. Asimismo, mediante el artículo 18 del mismo decreto fue reformado).
-.

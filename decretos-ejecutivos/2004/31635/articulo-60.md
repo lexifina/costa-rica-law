@@ -1,1 +1,0 @@
-Artículo 60.—De la Calificación de la Conducta. La calificación de la conducta de los estudiantes en todos los niveles, ramas y modalidades del sistema educativo formal, será sumativa, utilizará la escala numérica de 1 a 100 y será responsabilidad de los docentes, según lo que establece este Reglamento.

@@ -1,3 +1,0 @@
-Artículo 15.—De los Deberes del Docente en Relación con la Evaluación de los Aprendizajes. El docente responsable y vinculado directamente con el estudiante en los procesos de aprendizaje, tiene en materia de evaluación las siguientes obligaciones éticas, profesionales y administrativas:
-Comunicar por escrito a sus estudiantes, en las primeras sesiones de trabajo del respectivo curso, los procedimientos y criterios, que se seguirán en materia de evaluación de los aprendizajes de los diferentes componentes de la calificación.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35055 del 3 de febrero de 2009)

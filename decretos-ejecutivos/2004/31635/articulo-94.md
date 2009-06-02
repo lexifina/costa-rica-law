@@ -1,3 +1,0 @@
-Artículo 94.—De la delimitación del ámbito para la elaboración de las Pruebas Nacionales.
-Los programas de estudio oficialmente aprobados por el Consejo Superior de Educación, para cada una de las asignaturas, que se examinen en las pruebas nacionales; delimitarán el ámbito para la elaboración de éstas y deberán ser divulgados entre los estudiantes, docentes, padres y madres de familia al inicio de cada curso lectivo. Los programas de estudio, sus objetivos y contenidos, constituyen la guía básica para los profesionales de la docencia y para los estudiantes.
-(Así reformado por el artículo 8 del decreto ejecutivo N° 34449 de 13 de marzo de 2008)

@@ -1,2 +1,0 @@
-Artículo 115.—Criterios de Aprobación del Bachillerato. Los postulantes que alcancen, según el procedimiento descrito en el artículo 126 anterior; una calificación final igual o superior a 70, se tendrán por aprobados en la respectiva asignatura.
-(NOTA: Así corrida su numeración por el artículo 16 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 113 al 115. Posteriormente el artículo 17 ibidem, ordenó adecuar la numeración de tal forma que el texto del anterior artículo 127 pasó al 115 actual)

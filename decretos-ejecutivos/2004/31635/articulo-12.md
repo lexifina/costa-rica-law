@@ -1,1 +1,0 @@
-Artículo 12.—De los Nombramientos por Inopia en el Comité de Evaluación de los Aprendizajes. En caso de inopia, el Director delCentro Educativo podrá nombrar a aquellos docentes que muestren mayor interés por la evaluación aunque no satisfagan todos los requisitos del artículo anterior.

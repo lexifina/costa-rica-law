@@ -1,1 +1,0 @@
-Artículo 43.—De las Pruebas por Suficiencia. Las pruebas por suficiencia son instrumentos de medición que se pueden aplicar a aquellos estudiantes de escuelas nocturnas, colegios nocturnos, IPEC y CINDEAS que consideran que tienen el dominio suficiente de los objetivos y la temática de determinada asignatura y que así lo soliciten de conformidad con lo que señala este reglamento.

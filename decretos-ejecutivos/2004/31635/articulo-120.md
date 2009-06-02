@@ -1,2 +1,0 @@
-Artículo 120.—Bachillerato de Excelencia. El título de Bachiller en Enseñanza Media se hará acompañar de la mención de BACHILLER CON EXCELENCIA, cuando el postulante hubiere obtenido una calificación igual o superior a noventa en cada uno de los exámenes de bachillerato.
-(NOTA: Así corrida su numeración por el artículo 16 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 118 al 120. Posteriormente el artículo 17 ibidem, ordenó adecuar la numeración de tal forma que el texto del anterior artículo 132 pasó al 120 actual).

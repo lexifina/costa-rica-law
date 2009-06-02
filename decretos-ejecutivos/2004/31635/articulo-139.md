@@ -1,4 +1,0 @@
-CAPÍTULO VI
-Disposiciones Finales
-Artículo 139.—Del Establecimiento de Normativas Internas. El Consejo de Profesores o la reunión de maestros de cada Institución Educativa, según corresponda, establecerá y aprobará la normativa interna del respectivo centro educativo, de conformidad con las peculiaridades sociales, económicas y culturales de la población a la que sirve y en acatamiento a las directrices generales que emita el Ministerio de Educación Pública y comunique por medio de la Dirección Regional de Enseñanza respectiva. Dicha normativa debe hacerse del conocimiento de estudiantes y padres de familia antes de ser aplicada y al inicio de cada curso lectivo.
-(Así corrida su numeración por los artículos 16, 17 y 22 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 132 al 139 y de tal forma que actualmente contiene el texto del anterior artículo 153).

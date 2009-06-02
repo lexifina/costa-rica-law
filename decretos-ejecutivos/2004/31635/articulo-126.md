@@ -1,4 +1,0 @@
-Artículo 126.—Del trámite de los recursos. El director de la institución remitirá a la Dirección de Gestión y Evaluación de la Calidad, la totalidad de las apelaciones recibidas, dentro de las veinticuatro horas siguientes al vencimiento del plazo con que cuenta el estudiante para interponerlas. Para este efecto, el director utilizará la vía más rápida posible, sin perjuicio del empleo de medios electrónicos o telemáticos.
-La Dirección de Gestión y Evaluación de la Calidad dictará la resolución final dentro de los tres días hábiles siguientes a su recibo, plazo que en casos muy complejos puede extenderse hasta por otro período igual.
-Con el fin de dictar su resolución, la Dirección de Gestión y Evaluación de la Calidad podrá solicitar asesoraría a los especialistas que estime convenientes.
-(Así adicionado por el artículo 22 del decreto ejecutivo N° 34449 de 13 de marzo de 2008).

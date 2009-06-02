@@ -1,6 +1,0 @@
-Artículo 118.—De la Obligación del Servicio Comunal Estudiantil para los Postulantes al Bachillerato en Educación Media. En cada institución educativa de Educación Diversificada, salvo los colegios nocturnos, IPEC, CINDEA y aquellas otras instituciones o programas expresamente excluidos por acuerdo del Consejo Superior de Educación, se organizará durante el respectivo curso lectivo, con la obligada participación de los postulantes al Bachillerato en Educación Media, la realización de un Servicio Comunal Estudiantil de conformidad con la reglamentación específica dictada al efecto. Este Servicio Comunal Estudiantil tendrá los siguiente objetivos:
-a. Fortalecer los valores cívicos del estudiante.
-b. Desarrollar los sentimientos de solidaridad y comprensión humanas.
-c. Establecer sentimientos de compromiso y desarrollar actitudes de cooperación para con la comunidad.
-d. Proyectar la institución en su entorno social y económico.
-(NOTA: Así corrida su numeración por el artículo 16 del decreto ejecutivo N° 34449 de 13 de marzo de 2008 que lo traspasó del anterior 116 al 118. Posteriormente el artículo 17 ibidem, ordenó adecuar la numeración de tal forma que el texto del anterior artículo 130 pasó al 118 actual).
