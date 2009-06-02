@@ -1,0 +1,1 @@
+Artículo 9º—Derogatoria: Derógase la resolución N° DGT-19-08, de las doce horas y treinta y seis minutos del treinta de octubre del 2008, publicada en La Gaceta N° 216 del 07 de noviembre de 2008, a partir de la vigencia de esta resolución.
