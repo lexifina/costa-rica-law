@@ -1,0 +1,1 @@
+Artículo 6º—Para el permiso de perforación y concesión de agua para el abastecimiento en Condominio será aplicable, no sólo las disposiciones del presente reglamento, en especial las señaladas en el artículo 4, sino también la normativa vigente en materia de perforaciones y concesiones, así como la legislación ambiental y de salud aplicable.

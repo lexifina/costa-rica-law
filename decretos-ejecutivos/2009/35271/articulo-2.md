@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Lo aquí estipulado le será aplicable únicamente a aquellos condominios ubicados en zonas donde no hubiere abasto público de agua potable, determinado así por una carta de disponibilidad hídrica emitida por el Instituto Costarricense de Acueductos y Alcantarillados o por algún otro prestatario de servicio público autorizado.

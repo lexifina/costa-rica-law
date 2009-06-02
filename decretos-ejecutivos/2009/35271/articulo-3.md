@@ -1,0 +1,3 @@
+Artículo 3º—Definiciones:
+Autoabastecimiento: Se entiende por autoabastecimiento la distribución del agua para consumo humano dentro de un condominio.
+Condominio: Para efectos de trámites ante el Departamento de Aguas del Ministerio de Ambiente, Energía y Telecomunicaciones se entenderá por condominio en el presente decreto, el inmueble susceptible de aprovechamiento independiente por parte de distintos propietarios, con elementos comunes de carácter indivisible, así como cualquier otro tipo de condominio definido en el Reglamento a la Ley Reguladora de la Propiedad en Condominio, Decreto Nº 32303-MIVAH-MEIC-TUR.
