@@ -1,0 +1,1 @@
+Artículo 33.-Plan de trabajo. Cada comisión debe elaborar un plan de trabajo y rendirá un informe escrito mensual al organismo u órgano respectivo, sobre las actividades realizadas y resultados obtenidos.

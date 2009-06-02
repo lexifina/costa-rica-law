@@ -1,0 +1,1 @@
+Artículo 71.-Derogatorias: Se deroga el Reglamento Municipal para la elección de los miembros del Comité Cantonal de Deportes y Recreación publicado en La Gaceta N° 198 del 17 de octubre del año 2000.

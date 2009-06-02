@@ -1,0 +1,6 @@
+Artículo 38.-Son funciones de la Comisión Deportiva:
+a) Estimular la formación atlética competitiva cantonal, para la participación en eventos deportivos cantonales, provinciales y nacionales en el mayor número de Deportes posible. Incluye estos necesariamente los Juegos Comunales, los Juegos Deportivos Nacionales, juegos deportivos para personas discapacitadas y los eventos deportivos asociados o federados a nivel nacional.
+b) Procurar la dotación de implementos deportivos, ayuda técnica e instalaciones deportivas para el desarrollo de diferentes deportes a nivel cantonal, estimulando la participación competitiva y procurando llegar al alto rendimiento.
+c) Desarrollar en coordinación con el Comité Cantonal, la creación de la Galería Deportiva Orotinense, a la cual ingresarán los atletas: activos o retirados, entrenadores, promotores, profesionales en la rama deportiva que hayan dado o estén dando al deporte Orotinense, logros significativos en todos los deportes.
+d) Informar a la comunidad sobre eventos deportivos a desarrollarse en el cantón, o fuera de él, donde participen atletas del cantón.
+e) Cualquier otra actividad que por su naturaleza o por asignación de la Junta del Comité Cantonal, deban desarrollar.

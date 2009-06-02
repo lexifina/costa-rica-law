@@ -1,0 +1,2 @@
+Artículo 61.-Integración Comités Comunales. Los directivos del Comité Cantonal no podrán formar parte o integrar los comités comunales. Igual prohibición se aplica para los miembros de la Junta Directiva del Comité Comunal.
+Los concejales alcaldes suplentes tesorero auditor contador sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive están inhibidos para integrar estos comités.

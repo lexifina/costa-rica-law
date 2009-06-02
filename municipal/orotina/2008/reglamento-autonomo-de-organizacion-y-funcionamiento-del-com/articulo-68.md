@@ -1,0 +1,1 @@
+Artículo 68.-Cualquier reforma que se proponga a este reglamento, se pondrá en conocimiento del Comité Cantonal pura su valoración y reconocimiento, quién remitirá al Concejo Municipal para su aprobación o rechazo.

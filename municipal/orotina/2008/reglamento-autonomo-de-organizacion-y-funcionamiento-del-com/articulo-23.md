@@ -1,0 +1,1 @@
+Artículo 23.-Acuerdos firmes. Los acuerdos siempre serán firmes, salvo que por la votación de las dos terceras partes de los miembros de la Junta Directiva, se solicite revisión de éstos, siguiendo para tal efecto el procedimiento señalado.
