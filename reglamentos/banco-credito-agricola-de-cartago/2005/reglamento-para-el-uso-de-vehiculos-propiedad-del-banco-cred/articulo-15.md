@@ -1,1 +1,0 @@
-Artículo 15.—Las interpretaciones jurídicas a las implicaciones de este Reglamento, quedan bajo la responsabilidad de la Dirección Jurídica del Banco, que emitirá los criterios que le sean solicitados por escrito, por parte del Subgerente General responsable del área de Transportes del Banco, la Auditoria Interna, Gerencia General o cualquier órgano facultado.
