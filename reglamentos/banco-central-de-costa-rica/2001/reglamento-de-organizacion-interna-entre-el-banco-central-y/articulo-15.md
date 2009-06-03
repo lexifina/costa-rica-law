@@ -1,1 +1,0 @@
-Artículo 15.—En caso de licitaciones y compras directas, los O.D.M. serán los responsables de emitir, en lo relativo al estudio de ofertas, los criterios técnicos que requiera el Departamento de Proveeduría.
