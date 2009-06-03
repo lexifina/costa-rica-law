@@ -1,0 +1,10 @@
+MINISTERIO DE ECONOMIA, INDUSTRIA Y COMERCIO
+N° 038-MEIC
+EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las facultades conferidas en el artículo 28 2.a) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978 y el Reglamento para el Registro y Control de Bienes de la Administración Central, Decreto Ejecutivo Nº 30720-H del 26 de agosto del 2002; y
+Considerando:
+I.—Que de conformidad con el ordenamiento jurídico vigente, es indispensable que las instituciones que conforman la Administración Central, realicen procesos eficientes y eficaces en materia de control y fiscalización de activos incluidos dentro de su patrimonio.
+II.—Que conforme lo establece el numeral 10 de la Ley General de Control Interno, Ley Nº 8292 del 31 de julio de 2002, el Jerarca y los Titulares Subordinados, son responsables de establecer, mantener, perfeccionar, y evaluar el Sistema de Control Interno Institucional. Para lo cual, el artículo 15 del mismo cuerpo normativo, establece, entre otros, como deber de dichos funcionarios, el documentar, actualizar y divulgar internamente tanto las políticas como los procedimientos que definan claramente, entre otros, la protección y conservación de todos los activos institucionales.
+III.—Que el artículo 41 del Reglamento para el Registro y Control de Bienes de la Administración Central, establece, que cada Ministerio o Institución adscrita, contará con una Comisión de Donación, de nombramiento del máximo Jerarca de la Institución; conformada, por lo menos, por el Director Administrativo, el Proveedor Institucional y el Encargado de Bienes de la Institución; la que se encargara de recomendar las donaciones. Por lo tanto,
+ACUERDA:
+Artículo 1º—Creación: Crear la Comisión de Donación del Ministerio de Economía, Industria y Comercio (MEIC), como un Órgano Colegiado, encargada de recomendar las donaciones por baja de bienes; así como realizar los trámites correspondientes para dar alta de bienes por donación u obsequio a favor del Estado.

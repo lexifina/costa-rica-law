@@ -1,0 +1,2 @@
+Artículo 3º—Convocatoria: La Comisión será convocada por el Director Administrativo Financiero y Oficial Mayor, cuando lo considere necesario. Las sesiones se realizarán durante la jornada laboral ordinaria y sus miembros no devengarán dietas.
+En todos los aspectos relacionados con la estructura de la Comisión, sesiones de dicho órgano y quórum para que pueda sesionar, se aplicará el Capítulo Tercero “De los Órganos Colegiados”, de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978.
