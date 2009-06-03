@@ -1,0 +1,1 @@
+Artículo 13.—Participación de otros funcionarios en las reuniones. Los miembros del Comité de TI, podrán solicitar la participación en sus sesiones de cualquier otro funcionario que consideren conveniente, quienes tendrán voz pero sin derecho a voto.

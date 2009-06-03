@@ -1,0 +1,2 @@
+Artículo 14.—Actas. El Comité de TI contará en forma permanente con una persona encargada de levantar y formalizar las actas de cada sesión, la cual junto con el coordinador, preparará de forma previa la agenda de la sesión.
+De cada sesión del Comité de TI, se levantará un acta en la cual se consignarán los asuntos tratados y acuerdos adoptados. Las actas serán suscritas por los miembros asistentes a la reunión.
