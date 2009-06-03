@@ -14,3 +14,4 @@ Reglamento General de Crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
+| 2 | 2009-06-03 | Reglamento 3 (2009-06-03) |

@@ -1,8 +1,9 @@
 Artículo 24.—Requisitos para el trámite. Junto con la solicitud de crédito, las Cooperativas deberán presentar los siguientes documentos:
-a. Se presentaran Balances de Situación y Estado de Excedentes del periodo fiscal anterior y un corte del mes tras anterior a la fecha de la recepción de la solicitud, de acuerdo con los siguientes lineamientos:
-Créditos solicitados por un monto máximo de ¢15.000.000 estos documentos deben ser firmados por el representante legal y el contador con los timbres correspondientes.
-Créditos solicitados de ¢15.000.001 en adelante estos documentos deben ser certificados por un Contador Público Autorizado.
-De todas formas, a criterio de la Comisión de Crédito del FNA, en caso de duda razonable, se podrá solicitar los estados financieros auditados a las Cooperativas solicitantes.
+(*)a. Se presentarán Balances de Situación y Estado de Excedentes del periodo fiscal anterior, de acuerdo con los siguientes lineamientos:
+• Créditos solicitados por un monto máximo de ¢15.000.000 estos documentos deben ser firmados por el representante legal y el contador con los timbres correspondientes.
+• Créditos solicitados de ¢15.000.001 en adelante estos documentos deben ser certificados por un Contador Público Autorizado.
+• De todas formas, a criterio de la Comisión de Crédito del FNA, en caso de duda razonable se podrá solicitar los estados financieros auditados a las Cooperativas solicitantes.
+(*)(Así reformado el inciso anterior mediante acuerdo N° 1 tomado en sesión N° 003 del 3 de junio de 2009)
 b. En el caso de las Cooperativas que no han cumplido su primer ejercicio económico, balance de comprobación detallado del mes anterior a la solicitud.
 c. Declaración jurada del Gerente de de la Cooperativa respecto de las deudas de la misma indicando fecha de adquisición, monto, original condiciones financieras y situación actual.
 d. Certificación de inscripción de la Cooperativa y cédula de persona jurídica así como personería del Gerente y miembros del Consejo de Administración.
