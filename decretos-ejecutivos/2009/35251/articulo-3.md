@@ -1,0 +1,1 @@
+Artículo 3º—Transcurrido el plazo de doce meses indicado en el artículo 1 del presente decreto, las mercancías caerán en abandono y deberán observar los procedimientos de remate regulados en la normativa aduanera.

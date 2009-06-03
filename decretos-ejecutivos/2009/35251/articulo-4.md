@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de la aplicación de las anteriores disposiciones la Dirección General de Aduanas del Ministerio de Hacienda, efectuará los ajustes correspondientes en los manuales de procedimiento y en el sistema informático.
