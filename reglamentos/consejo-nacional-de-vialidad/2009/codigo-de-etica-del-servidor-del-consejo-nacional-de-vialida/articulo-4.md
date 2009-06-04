@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de este código, se entiende como servidor, funcionario o trabajador a toda persona física hombre o mujer que participe ocasional o permanentemente del ejercicio de funciones en el Consejo Nacional de Vialidad, ya sea por elección popular o por nombramiento de la autoridad competente.
