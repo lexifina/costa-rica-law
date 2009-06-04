@@ -1,0 +1,2 @@
+Artículo 4º—Se entenderá por cajas chicas generales aquellas cuyos fondos pueden ser utilizados por las diversas dependencias del Banco autorizadas para la compra de cualquier bien o servicio dentro de las especificaciones establecidas en el artículo 2 del presente Reglamento.
+Las cajas chicas específicas estarán constituidas por fondos fijos asignados a una determinada dependencia del Banco Popular y de Desarrollo Comunal, para ser utilizadas exclusivamente en la compra de aquellos bienes o servicios definidos al momento de su constitución.

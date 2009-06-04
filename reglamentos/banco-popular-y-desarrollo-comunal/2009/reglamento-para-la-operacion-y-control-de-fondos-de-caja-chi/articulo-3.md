@@ -1,0 +1,1 @@
+Artículo 3º—No se podrán utilizar los fondos de caja chica para cancelar servicios por contrato de plazo continuo, ni para adquirir los activos que al efecto defina el Proceso de Contabilidad Analítica del Banco Popular.

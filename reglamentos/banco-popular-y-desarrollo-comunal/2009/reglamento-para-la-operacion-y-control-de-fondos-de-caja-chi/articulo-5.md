@@ -1,0 +1,2 @@
+Artículo 5º—El Director de cada área debe realizar la solicitud de apertura de las cajas chicas específicas. El monto del fondo fijo que se asigne, así como sus variaciones posteriores, y la dependencia en donde éstas operen, serán autorizados por el Proceso de Tesorería o la Dirección de Soporte Financiero indistintamente.
+En cuanto a las cajas chicas de los Centros de Negocios, serán autorizadas por el Director Regional, así como las modificaciones posteriores. Cada Director enviará copia de la autorización al Proceso de Tesorería para lo que a esa área corresponda.

@@ -1,0 +1,1 @@
+Artículo 6º—Las dependencias y los puestos facultados para autorizar el uso de los fondos de caja chica serán definidos mediante el Manual de Políticas Institucionales. Los funcionarios que ocupen tales puestos deberán registrar su firma ante los custodios de estos fondos.

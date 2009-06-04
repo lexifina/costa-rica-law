@@ -1,0 +1,2 @@
+Artículo 7º—Los montos máximos de las compras que se realicen por caja chica serán definidos en el Manual de Políticas Institucionales (niveles de autorización) según lo establece el artículo 2, inciso ii del presente Reglamento. Las modificaciones serán definidas por la Gerencia General Corporativa cada vez que lo estimen conveniente.
+Será terminantemente prohibido fraccionar las compras por caja chica. Quienes incurran en esta falta serán sancionados según lo estipulado en el Capítulo XII de Sanciones del Reglamento Interior de Trabajo.
