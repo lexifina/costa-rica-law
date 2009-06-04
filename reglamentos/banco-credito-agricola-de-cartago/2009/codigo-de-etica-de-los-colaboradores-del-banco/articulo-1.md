@@ -1,0 +1,3 @@
+BANCO CRÉDITO AGRÍCOLA DE CARTAGO
+CÓDIGO DE ÉTICA DE LOS COLABORADORES DEL BANCO
+1.- Principios Generales. Con fundamento en los artículos 188 y 189 de la Constitución Política, 41 del Reglamento General a la Ley 8204 sobre Estupefacientes, Sustancias Psicotrópicas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas y 34 de la Ley Orgánica del Sistema Bancario Nacional, la Junta Directiva General aprueba el siguiente Código de Ética, sin perjuicio de las normas especiales contenidas en la Ley General de la Administración Pública, Convención Colectiva Vigente, el Código de Trabajo, Reglamentos del Banco y demás leyes conexas con la materia.
