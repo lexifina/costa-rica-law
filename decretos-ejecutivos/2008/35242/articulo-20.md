@@ -1,0 +1,1 @@
+Artículo 20.—Ámbito de acción del inspector estatal en agricultura orgánica: El inspector estatal orgánico no deberá inspeccionar unidades orgánicas con las cuales mantiene vínculos de cualquier tipo, por ejemplo si presta asesoría técnica. Preferiblemente debe inspeccionar grupos fuera de su zona de trabajo.

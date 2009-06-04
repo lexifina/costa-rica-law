@@ -1,0 +1,1 @@
+Artículo 35.—Dictamen sobre el Reconocimiento de Beneficio Ambiental Orgánico: Para las solicitudes que sean dictaminadas positivamente, la UT solicitará, mediante el envío de las resoluciones a la Dirección Administrativa y Financiera del MAG, para que proceda a pagar el incentivo de este reconocimiento. Estos pagos serán girados mediante transferencias.

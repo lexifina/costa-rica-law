@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Apoyo financiero
+Artículo 45.—Apoyo bancario a la actividad agropecuaria orgánica. El DFPAO, brindará apoyo técnico a los bancos públicos para la apertura de líneas de financiamiento (Crédito y acompañamiento no financiero), a largo, mediano y corto plazo. Dichos créditos serán directos e indirectos, tales como líneas de crédito, cartas de crédito, garantías de cumplimiento y el Back to Back, en condiciones favorables para los productores(as) orgánicos (as) y deben de ajustarse a las condiciones de plazo, tasa de interés, acompañamiento que requieran los proyectos productivos en las diferentes etapas de la cadena. Lo anterior con el objetivo de garantizar la sostenibilidad y desarrollo socio/empresarial de los mismos.

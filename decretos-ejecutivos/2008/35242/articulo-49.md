@@ -1,0 +1,1 @@
+Artículo 49.—Seguro de cosechas para la producción agropecuaria orgánica. El DFPAO promoverá y colaborará con el INS para establecer un sistema de seguro de cosechas diferenciado y en condiciones favorables para las personas productoras orgánicas y a los GPO. Dicho seguro tomará en consideración el período de transición.

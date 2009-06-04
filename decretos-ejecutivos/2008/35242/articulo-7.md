@@ -1,0 +1,1 @@
+Artículo 7º—La instancia responsable de emitir las directrices técnicas que orienten de manera adecuada las acciones para el desarrollo, promoción y fomento de la actividad agropecuaria orgánica será la DSOREA. Además será la responsable del seguimiento y evaluación de los planes operativos.

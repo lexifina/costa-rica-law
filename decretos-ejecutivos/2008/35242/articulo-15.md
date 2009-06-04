@@ -1,0 +1,1 @@
+Artículo 15.—Trámite de solicitudes de investigación: El INTA trabajará prioritariamente, con base en las solicitudes formales de organizaciones de productores orgánicos o productores orgánicos independientes debidamente registrados ante el organismo competente, las cuales se canalizarán y coordinarán a través del DFPAO y el PITTA de agricultura orgánica.

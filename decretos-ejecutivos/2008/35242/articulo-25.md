@@ -1,0 +1,1 @@
+Artículo 25.—Los GPO deben presentar ante Acreditación y Registro en Producción Orgánica, el SPG a aplicar, que incluya los valores, principios, procedimientos, controles y sanciones. ARAO, es la encargada del control de estos entes, para lo cual deberá realizar auditorías anuales de seguimiento.

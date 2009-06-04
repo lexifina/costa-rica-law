@@ -1,0 +1,1 @@
+Artículo 23.—El Sistema Participativo de Garantía (SPG) puede ser implementado por los GPO de personas micro, pequeñas y medianas productoras orgánicas debidamente organizadas, para certificar la producción de sus miembros, y deberán solicitar al Órgano de Control el registro respectivo.

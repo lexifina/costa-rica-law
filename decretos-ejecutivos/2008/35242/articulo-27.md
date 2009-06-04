@@ -1,0 +1,1 @@
+Artículo 27.—Los SPG deben cancelar un monto por registro anual ante el SFE, de conformidad con el Decreto Ejecutivo Nº 28560-MAG, publicado en La Gaceta Nº 72, del 12 de abril del 2000. El cual establece los montos a cobrar, por la acreditación de autoridades de certificación y es ajustado anualmente en base al índice de inflación acumulado del año anterior.

@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Promoción de las exportaciones
+Artículo 50.—Promoción en los mercados internacionales. De conformidad con las acciones de fomento a las exportaciones de productos orgánicos del MAG, el DFPAO, coordinará con Procomer para diseñar un programa con el fin de promover la producción agropecuaria orgánica nacional en los mercados internacionales, dirigido, prioritariamente, a las personas micro, pequeñas y medianas productoras orgánicas y los GPO. Este programa se orientará a promover la obtención, por parte de las personas productoras, de precios que incorporen, en retribución equitativa, los beneficios sociales y ambientales de este tipo de producción.

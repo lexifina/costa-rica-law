@@ -1,0 +1,1 @@
+Artículo 51.—Participación en negociaciones internacionales. De conformidad con las políticas de desarrollo del MAG, el señor Ministro del MAG, coordinará con el Ministro de Comercio Exterior para lograr que en las negociaciones comerciales internacionales en las cuales participe el país, se reconozca el valor agregado de la producción agropecuaria orgánica nacional.
