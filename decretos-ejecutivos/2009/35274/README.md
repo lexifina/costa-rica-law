@@ -14,3 +14,4 @@ Modifica para el Cosejo de Seguridad Vial (COSEVI), el gasto presupuestario máx
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-05 | la propia norma |
+| 2 | 2009-06-05 | Decreto Ejecutivo 35340 (2009-06-05) |
