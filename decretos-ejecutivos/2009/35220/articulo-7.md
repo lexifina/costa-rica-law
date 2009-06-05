@@ -1,0 +1,1 @@
+Artículo 7º—Sanciones. Las sanciones por concepto de la no presentación de liquidaciones, en los plazos y formas, se regularán conforme lo establecido en el numeral 21, 22 y 31 del “Reglamento sobre el Manejo de Fondos de Caja Chica del Instituto Costarricense sobre Drogas”.
