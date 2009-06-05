@@ -1,0 +1,1 @@
+Artículo 3º—Todas las gestiones de cobro que sobre sus cuentas lleve el Concejo Municipal de Distrito se regirán por las disposiciones del presente reglamento, sin perjuicio de que el mismo pueda recurrir a un procedimiento mas acelerado, en aquellos casos que las circunstancias lo ameriten.

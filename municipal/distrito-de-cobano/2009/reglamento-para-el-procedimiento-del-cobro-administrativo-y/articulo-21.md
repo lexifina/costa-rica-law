@@ -1,0 +1,1 @@
+Artículo 21.—Para efectos de determinar si los juicios se encuentran al día. La oficina encargada del Control de Cobro revisará periódicamente, con personal calificado, el número de expedientes y registros que considere necesarios de operaciones entregadas a cada abogado, tomando como base la documentación en poder de la Oficina de Cobro.

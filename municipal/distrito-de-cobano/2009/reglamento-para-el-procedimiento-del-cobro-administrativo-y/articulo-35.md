@@ -1,0 +1,1 @@
+Artículo 35.—El abogado esta obligado a cotejar el edicto antes y después de su publicación en el Boletín Judicial, con los documentos que fundamentan la demanda y será responsable ante el Concejo Municipal de Distrito de cualquier perjuicio que por error al respecto pudiera causar su omisión.

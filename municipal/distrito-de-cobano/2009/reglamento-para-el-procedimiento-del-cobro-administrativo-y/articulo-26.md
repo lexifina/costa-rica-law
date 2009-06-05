@@ -1,0 +1,2 @@
+Artículo 26.—Cuando un abogado deje de prestar los servicios al Concejo Municipal de Distrito, por cualquier motivo, excepto por incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los honorarios de acuerdo al grado de avance en que se encuentren los juicios, una vez finalizada la acción judicial y estos correrán por cuenta del deudor.
+En caso de discrepancias el tribunal respectivo los fijará.
