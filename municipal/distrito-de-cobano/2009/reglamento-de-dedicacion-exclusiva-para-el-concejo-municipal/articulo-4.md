@@ -1,0 +1,1 @@
+Artículo 4º—Para acogerse al Régimen de Dedicación Exclusiva para el Concejo Municipal de Distrito de Cóbano, el trabajador deberá firmar el contrato respectivo, el cual se insertará en su expediente laboral.
