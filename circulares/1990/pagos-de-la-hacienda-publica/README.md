@@ -14,3 +14,4 @@ Pagos de la Hacienda Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-04 | la propia norma |
+| 2 | 2009-06-06 | Resolución 38 (2009-06-06) |

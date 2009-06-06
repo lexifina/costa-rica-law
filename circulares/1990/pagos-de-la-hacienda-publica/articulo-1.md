@@ -14,4 +14,4 @@ c) En el "por tanto" deberá hacerse declaración expresa de las pretensiones de
 7)Las pruebas que fundamenten la respectiva resolución deberán constar en un expediente administrativo formado al efecto.
 8)Toda resolución deberá ser individual.
 9)Se deberá procurar que la respectiva asesoría legal sea la que tramite la resolución que sirve de fundamento al pago.
-10) La resolución que ampara el pago de una factura fundamentada en sentencia judicial, debe expresar que está se encuentra firme; además beberá adjuntarse fotocopia de dicha sentencia, la que se le pondrá razón de ser fiel a su original.
+10) (Derogado mediante resolucioón N° 38 del 06 de junio del 2009).
