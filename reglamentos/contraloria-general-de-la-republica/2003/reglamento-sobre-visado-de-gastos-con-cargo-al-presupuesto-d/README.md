@@ -14,3 +14,4 @@ Reglamento sobre visado de gastos con cargo al presupuesto de la república
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-01 | la propia norma |
+| 2 | 2009-06-06 | Resolución 38 (2009-06-06) |
