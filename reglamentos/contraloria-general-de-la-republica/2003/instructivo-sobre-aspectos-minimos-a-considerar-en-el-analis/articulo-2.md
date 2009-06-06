@@ -1,7 +1,8 @@
 2. Aspectos generales
 Como parte del proceso de visado, los Oficiales Presupuestales (jefe de Unidades Financieras) u otros funcionarios responsables de los órganos del Gobierno de la República realizarán un análisis jurídico, contable y presupuestario de los documentos de ejecución presupuestaria, con el propósito de determinar el ajuste del gasto propuesto al bloque de legalidad, a cuya observancia se encuentra obligada la Administración Activa, de previo a su eventual aprobación.
 Para el trámite de todos los documentos de ejecución presupuestaria se deberán considerar como mínimo los aspectos generales aquí indicados, así como los procedimientos establecidos sobre el particular por parte del Ministerio de Hacienda en su carácter de rector del Sistema de Administración Financiera y de la Administración Activa como principal responsable del Sistema de Control Interno.
-Para efecto de la definición de los documentos de la ejecución presupuestaria y la naturaleza de los mismos deberá observase lo dispuestos sobre el particular en el Decreto Ejecutivo Nº 30058-HMP-PLAN del 9 de abril del 2002 y sus reformas.
+Para efecto de la definición de los documentos de la ejecución presupuestaria y su naturaleza deberá observase lo dispuesto sobre el particular en la normativa vigente.
+(Así reformado el párrafo anterior mediante el artículo 2° de la resolución N° 38-2009 del 06 de junio del 2009).
 2.1 Aspectos de legalidad
 1. Para todos los documentos de ejecución presupuestaria se debe verificar lo siguiente:
 2. Que exista partida y contenido presupuestario en el Presupuesto de la República.

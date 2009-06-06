@@ -11,7 +11,7 @@ Verificar por parte de las unidades competentes involucradas en la aprobación d
 2. El cumplimiento de la reglamentación interna correspondiente.
 3. El interés que tiene la Administración en la formación técnica o profesional del beneficiario, cargo que ocupa, funciones que realiza y la congruencia que existe entre el programa de estudio de la beca y los objetivos y metas de la Institución.
 4. Existencia de un contrato entre el beneficiario y el órgano que la otorga.
-Si en el Presupuesto de la República existe alguna restricción para el otorgamiento de becas.
+5. Si en el Presupuesto de la República existe alguna restricción para el otorgamiento de becas.
 3.2 Pedido
 Para el trámite del documento presupuestario denominado pedido, además de los aspectos generales indicados en el punto de este instructivo, se debe revisar lo siguiente:
 1. Que en el pedido conste el número de solicitud de pedido correspondiente.
@@ -23,8 +23,7 @@ Para el trámite del documento presupuestario denominado pedido, además de los 
 3.3 Facturas con cargo a un pedido
 Para el trámite de facturas con cargo a un pedido, además de los aspectos generales indicados en el punto del presente instructivo, se debe revisar lo siguiente:
 3.3.1 Aspectos generales
-1. Que se indique el número de pedido
-correspondiente.
+1. Que se indique el número de pedido correspondiente.
 2. Que el código presupuestario coincida con el del pedido.
 3. Que la descripción del bien comprado o el servicio obtenido, esté acorde con lo señalado en los documentos presupuestarios que le anteceden y que son parte del procedimiento de contratación.
 4. Que la información contenida en los sistemas de información correspondientes coincida con la de la factura comercial y la documentación de respaldo del proceso de contratación.
@@ -32,7 +31,7 @@ correspondiente.
 6. Que se indique la retención del 2% del impuesto sobre la renta, de conformidad con lo establecido en la Ley del impuesto sobre la renta y su reglamento.
 7. Que la factura comercial que respalda la obligación sea original y debidamente autorizada por la Administración Tributaria.
 8. Que el pago que se está realizando no se haya efectuado previamente.
-Que en los casos de pagos continuos se indique la vigencia del contrato y el periodo al que corresponde el pago.
+9. Que en los casos de pagos continuos se indique la vigencia del contrato y el periodo al que corresponde el pago.
 3.3.2 Aspectos específicos de algunas facturas con cargo a un pedido
 3.3.2.1 Por concepto de transporte de estudiantes. Para el trámite de facturas con cargo a un pedido, por concepto de transporte de estudiantes, además de lo indicado en el punto , se requiere:
 1. Que en las facturas, tanto electrónica como comercial consten, el número de ruta, la tarifa, cantidad de estudiantes transportados, mes y días durante los que se prestó el servicio. Adicionalmente, en la factura comercial debe consignarse la firma del director y el sello de la institución educativa correspondiente.
@@ -41,48 +40,47 @@ Que en los casos de pagos continuos se indique la vigencia del contrato y el per
 Para el trámite de los pagos debe observarse la fecha a partir de la cual se concedió el beneficio, la vigencia del contrato y el cumplimiento de sus cláusulas.
 3.3.2.3 Por concepto de expropiación o compra de terrenos
 1. Que se indique el número de acuerdo mediante el cual se dispone la expropiación o compra y las citas de su publicación.
-2. Que el expediente administrativo contenga información completa y fehaciente que
-fundamente el pago, de conformidad con la
+2. Que el expediente administrativo contenga información completa y fehaciente que fundamente el pago, de conformidad con la Ley de Expropiaciones.
 3. Que el pago quede condicionado a la suscripción de la escritura pública correspondiente elaborada por la Procuraduría General de la República u otro órgano debidamente autorizado.
 3.4 Reservas de recursos
 Para el trámite del documento de ejecución presupuestaria denominado reserva de recursos, la Oficialía Presupuestal o Unidad Financiera debe además de los aspectos generales indicados en el punto del presente instructivo, cumplir con lo señalado en los procedimientos establecidos por el Ministerio de Hacienda en su carácter de rector del Sistema de Administración Financiera.
 El uso de la reserva de recursos para los reintegros de caja chica, se encuentra fundamentado en el Reglamento General de Caja Chica.
-3.5 Facturas con cargo a reservas de recursos amparadas a una resolución administrativa
-En el caso de facturas por concepto de prestaciones legales, reconocimiento de otros derechos laborales, indemnizaciones a particulares, diferencias de pensión y cuentas pendientes de ejercicios anteriores, devolución de sumas captadas a los administrados por parte el Ministerio de Hacienda, se deberán fundamentar en una resolución administrativa.
-3.5.1 Aspectos generales
-Para el trámite de las facturas con cargo a una reserva de recursos amparadas a una resolución administrativa, además de los aspectos generales indicados en el punto del presente instructivo, se debe verificar lo siguiente:
-1. Que se indique el número de reserva de recursos a la que se carga la factura.
+3.5 Gastos con cargo a reservas de recursos amparadas en una resolución administrativa u otro documento idóneo establecido por la instancia competente, así como para atender pagos en cumplimiento de mandatos y sentencias judiciales en firme.
+En el caso de facturas por concepto de prestaciones legales, reconocimiento de otros derechos laborales, indemnizaciones a particulares, diferencias de pensión y cuentas pendientes de ejercicios anteriores, devolución de sumas captadas a los administrados por parte el Ministerio de Hacienda, se deberán fundamentar en una resolución administrativa o en el documento idóneo que para tales efectos establezca la instancia competente, salvo que el gasto corresponda al cumplimiento de obligaciones ordenadas por mandatos y sentencias judiciales en firme, en cuyo caso estos serán títulos únicos y suficientes para el pago respectivo
+(Así reformado el numeral anterior por el artículo 2° de la resolución N° 38-2009 del 06 de junio del 2009).
+(*)3.5.1 Aspectos generales. Para el trámite de gastos con cargo a una reserva de recursos amparados a una resolución administrativa u otro documento idóneo, así como para los que se deban realizar en atención de mandatos y sentencias judiciales, además de las verificaciones de los aspectos generales indicados en el punto 2 del presente instructivo, se deben hacer las siguientes:
+1. Que se indique el número de reserva de recursos a la que se carga el gasto.
 2. Que el código presupuestario coincida con el de la reserva de recursos.
-3. Que se indique el número de resolución
-administrativa.
-4. Que la información del beneficiario coincida con la indicada en la resolución administrativa (nombre, número de cédula del beneficiario y monto total por pagar).
+3. Que se indique el número de resolución administrativa o documento idóneo, mandato o sentencia judicial, según corresponda.
+4. Que la información del beneficiario coincida con la indicada en la resolución administrativa o documento idóneo, mandato o sentencia judicial, según corresponda (nombre, número de cédula del beneficiario y monto total por pagar).
+5. Que en los casos en que la obligación se origina por un mandato o sentencia judicial, este se encuentre en firme.
+(*)(Así reformado por el artículo 2° de la resolución N° 38-2009 del 06 de junio del 2009).
 3.5.2 Aspectos específicos
-3.5.2.1 Estudio de la resolución administrativa
-La resolución deberá ajustarse a la normativa establecida, dentro de la cual se encuentra el Código de trabajo, Estatuto de Servicio Civil y su reglamento, Ley para el equilibrio financiero del sector público, leyes y reglamentos propios de cada institución, sentencias de tribunales de trabajo, circulares e instructivos de las oficinas relacionadas con el trámite de derechos laborales, Código de normas y procedimientos tributarios y cualesquiera otra normativa atinente a la materia.
+(*)3.5.2.1 Estudio de la resolución administrativa.
+La resolución deberá ajustarse a la normativa establecida, dentro de la cual se encuentra el Código de Trabajo, Estatuto de Servicio Civil y su reglamento, Ley para el equilibrio financiero del sector público, leyes y reglamentos propios de cada institución, jurisprudencia judicial, circulares e instructivos de las oficinas relacionadas con el trámite de derechos laborales, Código de normas y procedimientos tributarios y cualesquiera otra normativa atinente a la materia.
 A la resolución administrativa se le debe realizar un análisis de legalidad y de verificación de las sumas que se ordena pagar, así como algunos aspectos básicos que a continuación se detallan:
-1. Que la resolución administrativa se ajuste a los lineamientos de la "Circular sobre pagos de la Hacienda Pública" emitida por esta Contraloría General y publicada en La Gaceta N° 77 del 24 de abril de 1990.
+1. Que la resolución administrativa se ajuste a los lineamientos de la "Circular sobre pagos de la Hacienda Pública" emitida por esta Contraloría General y publicada en La Gaceta N° 77 del 24 de abril de 1990 y sus reformas.
+(*)(Así reformado por el artículo 2° de la resolución N° 38-2009 del 06 de junio del 2009).
 2. Que en la copia de la resolución conste la certificación de que es copia fiel del original.
 3. Que dentro del texto de la resolución administrativa exista un análisis expreso sobre el tema de la prescripción del derecho.
 4. En algunos casos particulares de facturas con cargo a una reserva de recursos amparadas a una resolución administrativa, además de los puntos anteriores, se deberá analizar lo siguiente:
-a) Resoluciones administrativas por concepto de cuentas pendientes deejercicios anteriores:
-Verificar que se indicó en forma precisa el inicio de las gestiones tendientes a determinar la eventual responsabilidad de funcionarios públicos por los actos que originan este tipo de pago, con indicación al menos de la fecha de inicio y el órgano responsable del procedimiento, según las disposiciones de los artículos 203 y concordantes de Ley general de la administración pública, y el artículo 108 de la Ley de administración financiera de la República y presupuestos públicos, cuyo resultado deberá encontrarse a
-disposición de la Contraloría General de la República para los efectos de la fiscalización que le compete.
-b Resoluciones administrativas por concepto de diferencias salariales de años anteriores:
+a) Resoluciones administrativas por concepto de cuentas pendientes de ejercicios anteriores:
+Verificar que se indicó en forma precisa el inicio de las gestiones tendientes a determinar la eventual responsabilidad de funcionarios públicos por los actos que originan este tipo de pago, con indicación al menos de la fecha de inicio y el órgano responsable del procedimiento, según las disposiciones de los artículos 203 y concordantes de Ley general de la administración pública, y el artículo 108 de la Ley de administración financiera de la República y presupuestos públicos, cuyo resultado deberá encontrarse a disposición de la Contraloría General de la República para los efectos de la fiscalización que le compete.
+b. Resoluciones administrativas por concepto de diferencias salariales de años anteriores:
 Se debe verificar que indiquen el período que se esta cancelando, el aguinaldo proporcional y salario escolar correspondiente, las cargas sociales respectivas, el impuesto sobre la renta, y en los casos que corresponda el porcentaje para el régimen de pensión respectivo.
-c Resoluciones administrativas por concepto de diferencias de pensión de años anteriores:
+c. Resoluciones administrativas por concepto de diferencias de pensión de años anteriores:
 Se debe verificar que indiquen el período que se cancela, el aguinaldo proporcional, las cargas sociales respectivas, el impuesto sobre la renta y el porcentaje para el régimen de pensión que corresponda.
-d Resoluciones administrativas por concepto de indemnización originadas en contrataciones irregulares:
+d. Resoluciones administrativas por concepto de indemnización originadas en contrataciones irregulares:
 Verificar que se indicó en forma precisa el inicio de las gestiones tendientes a determinar la eventual responsabilidad de funcionarios públicos por los actos que originan este tipo de pago, con indicación al menos de la fecha de inicio y el órgano responsable del procedimiento, según las disposiciones de los artículos 203 y concordantes de Ley General de la Administración Pública, y el artículo 108 de la Ley de Administración Financiera de la República y Presupuestos Públicos, cuyo resultado deberá encontrarse a disposición de la Contraloría General de la República para los efectos de la fiscalización que le compete.
 En los casos de contrataciones irregulares, no procede un pago propiamente dicho, sino el reconocimiento de una indemnización, con la respectiva deducción del lucro, de conformidad con lo dispuesto en los oficios N 8814 (DGCA-921-97) del 16 de julio de 1997, de la antigua Dirección General de Contratación Administrativa y N 8558 (DAGJ-1326-2001) del 6 de agosto de 2001 de la División de Asesoría y Gestión Jurídica.
 3.5.2.2 Aspectos adicionales a considerar para el trámite de facturas por concepto de prestaciones legales
 Para el trámite de facturas con cargo a una reserva de recursos por concepto de prestaciones legales, además de lo indicado en los puntos y , se requiere tomar en consideración lo siguiente:
 1. Que se tramiten en orden de presentación de conformidad con lo señalado en las normas de ejecución del Presupuesto de la República sobre el particular.
-2. Que en los casos de fallecimiento del servidor, se indique el juzgado de trabajo en el cual se abrirá el expediente correspondiente, para efectos del depósito establecido en el artículo 85, inciso d), del
-Código de Trabajo.
+2. Que en los casos de fallecimiento del servidor, se indique el juzgado de trabajo en el cual se abrirá el expediente correspondiente, para efectos del depósito establecido en el artículo 85, inciso d), del Código de Trabajo.
 3. Verificar a través de los sistemas de información que contienen los registros de pago por concepto de sueldos o en su defecto por certificación extendida por laUnidad de Recursos Humanos, lo siguiente:
-Si existen giros por concepto de salariosa favor del exservidor, después de lafecha a partir de la cual cesa su relación laboral. En caso afirmativo, determinar si los mismos fueron depositados en la cuenta del interesado, lo que obligaría a la Administración a solicitar el reintegro directamente.
-Si el servidor continúa laborando, en cuyo caso, la Administración deberá dejar sin efecto el trámite de la factura e iniciar el procedimiento administrativo para establecer las eventuales responsabilidades.
-Si el servidor ha ingresado de nuevo antes del transcurso del plazo señalado en el artículo 586 del Código de Trabajo, para lo cual la Administración deberá dejar sin efecto el trámite de la factura y confeccionar una nueva resolución reconociendo sólo el período durante el cual no laboró.
+· Si existen giros por concepto de salariosa favor del exservidor, después de lafecha a partir de la cual cesa su relación laboral. En caso afirmativo, determinar si los mismos fueron depositados en la cuenta del interesado, lo que obligaría a la Administración a solicitar el reintegro directamente.
+· Si el servidor continúa laborando, en cuyo caso, la Administración deberá dejar sin efecto el trámite de la factura e iniciar el procedimiento administrativo para establecer las eventuales responsabilidades.
+· Si el servidor ha ingresado de nuevo antes del transcurso del plazo señalado en el artículo 586 del Código de Trabajo, para lo cual la Administración deberá dejar sin efecto el trámite de la factura y confeccionar una nueva resolución reconociendo sólo el período durante el cual no laboró.
 3.6 Gastos de representación y dietas
 El documento denominado "Formula para procesar movimientos de dietas, gastos varios y becas", se ha utilizado como documento de ejecución presupuestaria, de acuerdo con disposiciones de esta Contraloría General (oficio Nº 8253 del 19 de agosto de 1985 y circular Nº 13370 del 20 de diciembre de 1985), de común acuerdo con las autoridades del Ministerio de Hacienda. Lo anterior sin perjuicio del uso de la factura electrónica para tales efectos.
 Para el trámite de documentos de ejecución presupuestaria que respaldan gastos de representación y dietas, además de los aspectos generales indicados en el punto 2 de este instructivo se debe de verificar lo siguiente:
@@ -93,8 +91,8 @@ Para el trámite de documentos de ejecución presupuestaria que respaldan gastos
 5. Que los pagos por concepto de gastos de representación fijos incluyan las retenciones mensuales que por ley se establecen (impuesto sobre la renta, aportes a la Caja Costarricense de Seguro Social y al Banco Popular y de Desarrollo Comunal), de conformidad con los términos del pronunciamiento Nº 10340 del 9 de setiembre de 1993 de la Contraloría General.
 6. En cuanto a pagos de gastos de representación sujetos a liquidación, verificar que se ajusten a los trámites establecidos y que se adjunten los comprobantes originales que justifican las erogaciones efectuadas.
 7. Si el pago se realiza por medio de factura, además de lo anterior se debe verificar lo siguiente:
-Que se indique el número de reserva de recursos a la que se carga la factura.
-Que el código presupuestario coincida con el de la reserva de recursos.
+· Que se indique el número de reserva de recursos a la que se carga la factura.
+· Que el código presupuestario coincida con el de la reserva de recursos.
 3.7 Planillas por concepto de salarios y horas extras
 Las Unidades de Recursos Humanos de conformidad con lo establecido en el Decreto Ejecutivo Nº 26402-H, tienen la responsabilidad de procesar las planillas de gastos correspondientes a la partida de servicios personales. Bajo ese esquema le corresponde a los titulares de las Unidades de Recursos Humanos de la Administración Activa, verificar además de los aspectos generales indicados en el punto de este instructivo entre otros aspectos, observar lo siguiente:
 1. Ejercer un adecuado seguimiento y control de la partida de servicios personales, de forma que se garantice la ejecución de estos gastos en estricto apego al bloque de legalidad.

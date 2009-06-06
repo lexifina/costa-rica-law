@@ -14,3 +14,4 @@ Instructivo sobre aspectos mínimos a considerar en el análisis de los document
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-01 | la propia norma |
+| 2 | 2009-06-06 | Resolución 38 (2009-06-06) |
