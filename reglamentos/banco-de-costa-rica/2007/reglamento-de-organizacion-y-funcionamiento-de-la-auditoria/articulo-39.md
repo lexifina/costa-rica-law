@@ -1,3 +1,6 @@
-TÍTULO III
-Disposiciones finales
-Artículo 39.—Este documento deroga el Reglamento de la Auditoría Interna del Banco de Costa Rica, publicado en La Gaceta Nº 43 del 1º de marzo del 2006.
+Artículo 39.—La auditoría, como parte del programa seguimiento, tendrá la potestad -a solicitud fundamentada de la administración- de otorgar prórrogas a los plazos indicados por ésta en la implantación de las recomendaciones de Auditoría, siempre y cuando se cumplan al menos las siguientes condiciones:
+• Que no haya vencido el plazo del compromiso.
+• Que se puedan verificar avances en la implementación de la acción correctiva.
+• Que quien dirija la solicitud de prórroga sea la misma persona a quien fue dirigido el informe de auditoría, o bien, un superior.
+Estas prórrogas no operarán de oficio y cada caso, deberá ser debidamente analizado por la Auditoría.
+(Así adicionado en sesión N° 27 del 8 de junio de 2009)

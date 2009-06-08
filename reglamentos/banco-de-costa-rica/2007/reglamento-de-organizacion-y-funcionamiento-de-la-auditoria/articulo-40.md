@@ -1,3 +1,4 @@
-Artículo 40.—Este Reglamento rige a partir de su publicación en La Gaceta.
-La Junta Directiva General del Banco en sesión 26-07, artículo VIII del 4 de junio de 2007, aprobó el Reglamento de organización y funcionamiento de la auditoría interna del Banco de Costa Rica.
-San José, 17 de julio de 2007.
+TÍTULO III
+Disposiciones finales
+Artículo 40.—Este documento deroga el Reglamento de la Auditoría Interna del Banco de Costa Rica, publicado en La Gaceta N ° 149 del 6 de agosto del 2007.
+(Así corrida su numeración en sesión N° 27 del 8 de junio de 2009, que lo traspaso del antiguo artículo 39 al 40 actual)
