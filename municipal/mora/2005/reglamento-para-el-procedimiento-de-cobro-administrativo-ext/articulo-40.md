@@ -1,1 +1,2 @@
-Artículo 40.—Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el abogado director del proceso, el cual lo hará constar mediante nota dirigida a la Sección de Cobros de la Municipalidad.
+Artículo 40.—Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el abogado director del proceso, el cual lo hará constar mediante nota dirigida a la Administración Tributaria de la Municipalidad.
+(Así reformado por acuerdo tomado en sesión N° 41 del 9 de febrero de 2009 y definitivamente aprobado en sesión N° 58 del 8 de junio de 2009).

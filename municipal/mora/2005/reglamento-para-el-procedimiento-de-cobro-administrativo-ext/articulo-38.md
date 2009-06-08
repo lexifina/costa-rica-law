@@ -1,2 +1,2 @@
-Artículo 38.—Terminación o suspensión del proceso judicial.
-Una vez que el cobro judicial haya sido iniciado solo podrá darse por terminado el proceso judicial por el pago total de la suma adeudada a la Municipalidad, incluyendo las costas de procesales y personales y cualquier otro gasto generado por durante su tramitación o con ocasión del mismo.
+Artículo 38.—Terminación o suspensión del proceso judicial. Una vez que el cobro judicial haya sido iniciado solo podrá darse por terminado el proceso judicial por el pago total de la suma adeudada a la Municipalidad, incluyendo las costas de procesales y personales y cualquier otro gasto generado durante su tramitación o con ocasión del mismo.
+(Así reformado por acuerdo tomado en sesión N° 41 del 9 de febrero de 2009 y definitivamente aprobado en sesión N° 58 del 8 de junio de 2009) .
