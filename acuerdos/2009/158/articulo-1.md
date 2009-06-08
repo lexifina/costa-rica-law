@@ -1,0 +1,20 @@
+SUPERINTENDENCIA GENERAL DE VALORES
+La Superintendencia General de Valores de conformidad con lo establecido en la Ley 8220 “Protección del ciudadano del exceso de requisitos y trámites administrativos” pública el siguiente acuerdo.
+SGV-A-158. Superintendencia General de Valores. Despacho del superintendente. A ser las nueve horas del cuatro de junio del dos mil nueve.
+Considerando que:
+I) Mediante el artículo 17 de la sesión 762-2008 del 19 de diciembre del 2008, el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
+II) El artículo 19, 23, 24 y 25 del Reglamento dispone que el Superintendente General de Valores emitirá una guía que defina el contenido mínimo, las normas de presentación y diseño de los prospectos de fondos de inversión, así como la definición de los medios electrónicos que se utilizarán en los procedimientos de autorización y modificación de prospectos.
+III) De conformidad con el transitorio III del Reglamento, posterior al plazo de seis meses la autorización de nuevos fondos y sus respectivas modificaciones se realizará únicamente por medios electrónicos.
+IV) El artículo 77 y 93 del Reglamento dispone que el Superintendente General de Valores establecerá por acuerdo las revelaciones mínimas sobre la forma jurídica y tipo de estructura social, los participantes, sean éstos socios u otros que tengan relación directa o indirecta con el vehículo a utilizar, y los riesgos asociados a esta estructura para la adquisición de activos inmobiliarios fuera del territorio costarricense. Por las diferencias entre las distintas jurisdicciones es importante que se informe, previo a la adquisición de activos inmobiliarios, sobre la estructura de propiedad a utilizar para que se pueda realizar una adecuada revelación a los inversionistas mediante su debida incorporación en el prospecto.
+V) La Plataforma de Servicios de Ventanilla Virtual de SUGEVAL ha permitido a esta Superintendencia implementar un sistema de cifrado y firma electrónica basado en los principios de autenticidad, confidencialidad y conservación, entre otros, de los datos de información financiera y operativa que deben remitir los sujetos fiscalizados y ponerse a disposición del público inversionista, según lo indica la Ley Reguladora del Mercado de Valores.
+VI) La utilización de la Plataforma de Servicios de Ventanilla Virtual de SUGEVAL puede ampliarse para la tramitación de determinados procedimientos, por lo que se considera adecuada su implantación para la automatización de los procedimientos de autorización y modificación de prospectos de fondos de inversión, con el consecuente ahorro en costos para las entidades supervisadas y para la Superintendencia, así como una mayor eficiencia en los procesos de revisión y atención de observaciones, lo que redundará en una mejora en la atención de los sujetos regulados y en los inversionistas.
+VII) De conformidad con el artículo 8º de la Ley Reguladora del Mercado de Valores corresponde al Superintendente General adoptar todas las acciones necesarias para el cumplimiento efectivo de las funciones de regulación, fiscalización y supervisión que le competen a la Superintendencia General de Valores.
+VIII) El presente acuerdo fue sometido a consulta de conformidad con el artículo 361 de la Ley General de Administración Pública.
+Por tanto acuerda:
+SGV-A-158 GUÍA PARA LA ELABORACIÓN Y REMISIÓN DE PROSPECTOS
+DE FONDOS DE INVERSIÓN
+Artículo 1º—Alcance.
+Este acuerdo:
+a) Define las reglas y criterios que han de observarse para la presentación y tramitación por medios electrónicos de solicitudes de autorización y modificación de prospectos de fondos de inversión.
+b) Establece el contenido mínimo y las normas de presentación y de diseño de los prospectos de fondos de inversión.
+Establece las revelaciones mínimas sobre la forma jurídica y otra información de los bienes inmuebles o proyectos inmobiliarios que se incorporen a través del uso de vehículos de estructuración.

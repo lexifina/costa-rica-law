@@ -1,0 +1,2 @@
+Artículo 14.—Derogatorias
+De conformidad con lo dispuesto en el artículo 19 del Reglamento general sobre sociedades administradoras y fondos de inversión, con la emisión de la guía para la elaboración del prospecto que se desarrolla en el presente acuerdo, queda sin efecto la “Guía para la elaboración de prospectos de fondos de inversión”, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante el artículo 10, acta 53-98 de la sesión del 14 de noviembre de 1998 y publicada en La Gaceta Nº 244 del 16 de diciembre de 1998
