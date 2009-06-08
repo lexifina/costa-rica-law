@@ -14,3 +14,4 @@ Modifica para la Cuenta Especial del Servicio Nacional de Salud Animal del Minis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-06-08 | Decreto Ejecutivo 35326 (2009-06-08) |
