@@ -1,0 +1,3 @@
+Artículo 3º—Funcionarios(as) a quienes se les asigna teléfono celular. Se encuentran facultados para utilizar teléfonos celulares que pertenezcan al Ministerio, en virtud de sus cargos: Ministro(a), Viceministros(as) y Director(a) General de Salud.
+Si por motivo de sus funciones, cualquier otro funcionario requiere contar con un teléfono celular del Ministerio, deberá ser autorizado expresamente por el Ministro(a), o por la persona que éste designe indicando las razones de necesidad ministerial que sustentan la asignación del activo.
+La asignación y uso de los teléfonos celulares se debe sujetar a los principios de razonabilidad, racionalidad y en general, a las prácticas generales de sana administración de los recursos públicos.

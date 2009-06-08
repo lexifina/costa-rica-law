@@ -1,0 +1,1 @@
+Artículo 10.—Sanciones. El funcionario(a) que incumpla las disposiciones contenidas en este Reglamento se hará acreedor a las correcciones disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidades que, conforme al ordenamiento jurídico, le sean aplicables.
