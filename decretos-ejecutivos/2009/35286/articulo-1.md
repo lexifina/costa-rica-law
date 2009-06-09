@@ -1,0 +1,14 @@
+Nº 35286-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 27 párrafo primero de la Ley General de la Administración Pública; 1, 2, 4, 7, 10, 104, 105, 117, 367 y concordantes de la Ley Nº 5395 del 30 de octubre de 1973 Ley General de Salud; 1 y 2 de la Ley Nº 5412 de 8 de noviembre de 1973 Ley Orgánica del Ministerio de Salud.
+Considerando:
+I.—Que de conformidad con el artículo 1 de la Ley General de Salud, la salud de la población es un bien de interés público tutelado por el Estado.
+II.—Que mediante Decreto Ejecutivo Nº 35217-MP-S de 28 de abril de 2009, publicado en el Alcance Nº 17 a La Gaceta Nº 82 de 29 de abril de 2009, el Poder Ejecutivo decretó emergencia sanitaria nacional la atención de la epidemia humana de influenza porcina, actualmente denominada influenza pandémica tipo A H1N1. Por ende, las autoridades públicas y la población en general están en la obligación de cumplir las disposiciones que, de carácter general o particular, dicten las autoridades de salud, para extinguir o evitar la propagación de la epidemia.
+III.—Que el artículo 4 de la Ley General de Salud establece que toda persona natural o jurídica, queda sujeta a los mandatos de esta ley y de las órdenes generales y particulares, ordinarias y de emergencia que dicten las autoridades de salud en el ejercicio de sus competencias orgánicas.
+IV.—Que a nivel mundial se ha decretado el nivel 5 de alerta pandémica ante la aparición de un nuevo virus influenza derivado de una cepa porcina que ha provocado casos en diversos países del mundo, con circulación sostenida en países de Norteamérica. Por ello, fue necesario implementar medidas urgentes de contención y mitigación para evitar la circulación autóctona en el país.
+V.—Que el tratamiento o la profilaxis para dicha enfermedad queda a criterio médico, y solo puede ser administrado a los casos probables y confirmados, dado que su consumo sin justificación médica puede ocasionar resistencia al mismo, lo que agravaría aún más la situación de la emergencia sanitaria. Por tanto,
+Decretan:
+Venta controlada de los medicamentos que utilicen
+principios activos como el Oseltamivir y Zanamivir
+Artículo 1º—Los medicamentos que utilicen principios activos como el oseltamivir y el zanamivir, utilizados en el tratamiento antiviral contra la Influenza Pandémica tipo A H1N1, sólo podrán ser adquiridos por el Ministerio de Salud y la Caja Costarricense de Seguro Social y despachados en sus establecimientos de salud, tales como Hospitales, Clínicas y EBAIS. Asimismo, la Caja Costarricense de Seguro Social podría vender en forma controlada dichos medicamentos a establecimientos de salud privados, siguiendo los protocolos previamente establecidos para dicho fin.
