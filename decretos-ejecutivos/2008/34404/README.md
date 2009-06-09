@@ -63,3 +63,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 48 | 2009-06-03 | Decreto Ejecutivo 35327 (2009-06-03) |
 | 49 | 2009-06-05 | Decreto Ejecutivo 35340 (2009-06-05) |
 | 50 | 2009-06-08 | Decreto Ejecutivo 35326 (2009-06-08) |
+| 51 | 2009-06-09 | Decreto Ejecutivo 35328 (2009-06-09) |
