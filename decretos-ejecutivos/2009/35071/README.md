@@ -14,3 +14,4 @@ Modifica para la Refinadora Costarricense de Petróleo Sociedad Anonima, el gast
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-06-09 | Decreto Ejecutivo 35328 (2009-06-09) |
