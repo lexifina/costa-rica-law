@@ -80,6 +80,9 @@ Veintidós días después de efectuada la actividad, deberá rendir un informe e
 Es entendido que este permiso en sus consecuencias queda bajo la responsabilidad directa de la persona física o jurídica que lo solicite.
 Reportará a esta Municipalidad nombre del fiscal que estuvo presente en las corridas de toros, monto cobrado por honorarios de fiscalización y días que asiste.
 Esta Municipalidad recomienda dentro de la actividad un programa cultural y deportivo.
+(*)Cumplimiento de la Ley 7600 en las instalaciones donde se lleva a cabo la actividad.
+(*) Presentar el Certificado Veterinario de Operación, extendido por el SENASA.
+(*) (Así adicionados los puntos anteriores, mediante sesión N° 163 del 10 junio del 2009).
 Horario: Abrirán la venta de licor a las 10,00 a.m. todos los días de los festejos hasta las 12,00 de la noche, los días sábados y domingos cerrarán a las 2,00 a.m. del día siguiente, excepto en la cabecera del cantón que las actividades se realizarán las 24 horas.
 El Concejo Municipal de Nandayure nombrará un fiscal para que ejerza la vigilancia en las corridas de toros, el cual tendrá plenos poderes para la aplicación de este Reglamento y resolver la aplicación del mismo.
 La Guardia de Asistencia Rural o Civil tendrá la obligación de prestar toda la colaboración a los fiscales, para la aplicación del Reglamento sobre las actividades taurinas.
