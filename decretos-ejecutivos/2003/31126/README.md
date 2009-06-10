@@ -35,3 +35,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | 20 | 2009-01-07 | Decreto Ejecutivo 35050 (2009-01-07) |
 | 21 | 2009-03-03 | Decreto Ejecutivo 35125 (2009-03-03) |
 | 22 | 2009-05-18 | Decreto Ejecutivo 35346 (2009-05-18) |
+| 23 | 2009-06-10 | Decreto Ejecutivo 35391 (2009-06-10) |

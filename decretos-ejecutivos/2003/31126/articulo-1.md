@@ -21,13 +21,15 @@ f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutiv
 g) Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
-i. Nancy Zamora Cervantes, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
+i. (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009).
 j) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 35050 de 7 de enero del dos mil nueve).
 k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre del dos mil ocho).
 (NOTA DE SINALEVI: mediante el artículo 1° del Decreto Ejecutivo N° 34769 de 8 de setiembre de dos mil ocho se nombra como miembro propietario de esta Comisión, representante de la Federación Costarricense para la Conservación del Ambiente al señor Eduardo Aguilar Espinoza).
+(NOTA. mediante el artículo 1° del decreto ejecutivo N° 34793 del 1° de setiembre de 2008, se nombra como miembros propietario de esta Comisión a la señora Yamileth Solís Lezcano representante de la Asociación Mesa Nacional Campesina.)
 (NOTA DE SINALEVI: Mediante el artículo 1° del Decreto Ejecutivo N° 35050 de 7 de enero del dos mil ocho, se nombra como miembro de esta Comisión, representante del Consejo Nacional de Rectores a la señora Fiorella Donato Calderón.)
+(NOTA: mediante el artículo 1° del decreto ejecutivo N° 35125 del 3 de marzo de 2009, se nombra como mientro suplente de esta Comisión, a la señora Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuicultura).
 (NOTA DE SINALEVI: Mediante el artículo 1° del Decreto Ejecutivo N° 35346 de 18 de mayo de dos mil nueve, se nombra como miembro de esta Comisión, representante del Sistema Nacional de Áreas de Conservación a la señora Guiselle Méndez Vega.)
+(NOTA DE SINALEVI: Mediante el articulo 1° del decreto ejecutivo N° 35391 de 10 de junio de 2009, se nombra como miembro propietario de esta Comisión, representante de la Unión Costarricense de Cámaras de la Empresa Privada al señor Erick Manuel Vargas Campos.
 2. Miembros suplentes:
 a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
@@ -41,24 +43,12 @@ e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
 g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008).
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
-i) Erick Manuel Vargas Campos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
+i) (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009).
 j. Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
 (Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo N° 34643 del 12 de mayo del 2008)
 k) Grace García Muñoz, Representante de la Federación Costarricense para la Conservación del Ambiente
 (Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
-(Así reformados el punto 1, incisos c) y j) y punto 2, inciso j) por Artículo 1° del Decreto Ejecutivo N° 32803 del 4 de noviembre del 2005)
-(Así reformados el punto 1, inciso h) y punto 2, inciso h) por Artículo 1° del Decreto Ejecutivo N° 32819 del 22 de noviembre del 2005)
-(NOTA. El artículo 1° del decreto ejecutivo N° 34793 del 1° de setiembre de 2008, establece lo siguiente: "....Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad , a los siguientes representantes de la Asociación Mesa Nacional Campesina:
-1. Miembro propietario:
-Yamileth Solís Lezcano.
-2. Miembro suplente:
-Rafael Salazar Murillo.")
-(NOTA. El artículo 1° del decreto ejecutivo N° 34895 de 14 de octubre del dos mil ocho, establece lo siguiente: "....Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad , al siguiente representante de la Asociación Mesa Nacional Indígena:
-1. Miembro suplente:
-Hugo Lázaro Estrada.)
-(NOTA. El artículo 1° del decreto ejecutivo N° 35125 del 3 de marzo de 2009, establece lo siguiente: "....Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad , a los siguientes representantes del Instituto Costarricense de Pesca y Acuicultura:
-1. Miembro propietario:
-Ana Rita Vásquez Arias.
-2. Miembro suplente:
-Ana Salas Araya.")
+(NOTA. mediante el artículo 1° del decreto ejecutivo N° 34793 del 1° de setiembre de 2008, se nombra como miembros propietario de esta Comisión al señor Rafael Salazar Murillo representante de la Asociación Mesa Nacional Campesina.)
+(NOTA. mediante el artículo 1° del decreto ejecutivo N° 34895 de 14 de octubre del dos mil ocho, se nombra como miembros suplente de esta Comisión al señor Hugo Lázaro Estrada, representante de la Asociación Mesa Nacional Indígena).
+(NOTA: mediante el artículo 1° del decreto ejecutivo N° 35125 del 3 de marzo de 2009, se nombra como mientro suplente de esta Comisión, a la señora Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura).
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 35391 del 10 de junio de 2009, se nombra como mienbro suplente de esta Comisión al Señor Andy Bezara Higle, representante de la Unión Costarricense de Cámaras de la Empresa Privada).
