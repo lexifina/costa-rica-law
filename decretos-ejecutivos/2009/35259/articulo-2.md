@@ -1,0 +1,1 @@
+Artículo 2º—Por ser el Servicio Fitosanitario del Estado un órgano de desconcentración mínima del Ministerio de Agricultura y Ganadería (MAG), los requerimientos para exoneración de los insumos adquiridos a través de la Proveeduría Institucional del SFE, serán los mismos aplicados en la Proveeduría Institucional del Ministerio de Agricultura y Ganadería (MAG).

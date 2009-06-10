@@ -1,0 +1,1 @@
+Transitorio único.—El Servicio Fitosanitario del Estado (SFE) dispondrá hasta el 31 de diciembre del 2009, para implementar las acciones legales y administrativas para la constitución de esta proveeduría. Durante este período, el SFE continuará sus procesos de contratación administrativa por medio de la Proveeduría Institucional del Ministerio de Agricultura y Ganadería (MAG).
