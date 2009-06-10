@@ -1,1 +1,0 @@
-Artículo 2º—Se deja sin efecto la resolución Nº 63-2008 de las nueve horas del día seis de marzo del dos mil ocho, de la Dirección General de Hacienda, publicada en La Gaceta Nº 78, del 23 de abril del 2008.
