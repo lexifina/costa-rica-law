@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Objetivo del Proyecto Limón Ciudad-Puerto
+Es objetivo del Proyecto Limón Ciudad-Puerto potencializar el desarrollo directo de la ciudad de Limón e indirecto de la región del Caribe del país, mediante la creación de sinergias entre la ciudad revitalizada, urbana y económicamente activa, y el puerto, moderno y eficiente, para que generen servicios, empleo e inversiones, en beneficio del mejoramiento de la calidad de vida de sus habitantes.
