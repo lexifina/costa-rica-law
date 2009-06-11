@@ -14,3 +14,4 @@ Modifica para la Junta Administrativa del Registro Nacional el gasto presupuesta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-19 | la propia norma |
+| 2 | 2009-06-11 | Decreto Ejecutivo 35342 (2009-06-11) |
