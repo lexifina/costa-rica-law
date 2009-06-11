@@ -1,0 +1,7 @@
+ARTÍCULO 8.- Funciones de la Comisión de Coordinación Institucional
+La Comisión de Coordinación Institucional de conformidad con el Contrato de Préstamo y las disposiciones del Manual de operaciones del programa es la encargada de apoyar y promover la coordinación general del Proyecto; en virtud de ello, tiene asignadas las siguientes acciones:
+a) Definir las políticas de implementación del Proyecto y proponerlas a la UCP.
+b) Facilitar la coordinación interinstitucional entre el prestatario, la UCP, las unidades técnicas ejecutoras y las entidades participantes. En ese sentido, podrá impulsar la suscripción de convenios interinstitucionales, cuando los requerimientos para la implementación y ejecución del Contrato así lo requieran.
+c) Conocer los planes operativos anuales de la UCP vinculados directamente con el proyecto; además, coordinar con la UCP para que su implementación se encuentre adecuada a las actividades que deban realizar las UTEs y las entidades participantes, según corresponda.
+d) Solicitar y conocer los informes de seguimiento, control y evaluación del Proyecto, elaborados por la UCP. Además, deberá dejar constancia de los aspectos en los que considere que la UCP requiera realizar acciones correctivas.
+e) Podrá tramitar, ante el Gobierno de la República, las necesidades de recursos económicos que se requieran y hagan falta para la eficiente ejecución del Proyecto Limón Ciudad-Puerto.

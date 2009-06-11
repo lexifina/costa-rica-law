@@ -1,0 +1,5 @@
+ARTÍCULO 25.- Fondos sin asignación
+Los fondos sin asignar consignados por un monto hasta de cuatro millones ciento ochenta y un mil dólares moneda de Estados Unidos de Norteamérica (US$ 4.181.000,00), según se indica en el inciso 2), numeral 15, sección IV, lista 2 del Contrato de Préstamo se utilizarán para solventar imprevistos, contingencias o para sopesar los escalamientos de costos del Proyecto Limón Ciudad-Puerto.
+En caso de que no se utilice la totalidad o parte de los fondos sin asignar, antes mencionados, en la ejecución de los componentes del Contrato de Préstamo, se autoriza al prestatario, previo consentimiento del banco acreedor, para que traslade, parcial o totalmente, los recursos disponibles de este renglón al componente de Desarrollo económico local, con el propósito de fortalecer y brindar una mejor cobertura a las oportunidades de desarrollo empresarial determinadas en el inventario que se creará para tales efectos, según lo dispone el Contrato de Préstamo.
+Rige a partir de su publicación.
+Dado en la provincia de Limón, a los diez días del mes de junio del dos mil nueve.

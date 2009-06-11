@@ -1,0 +1,2 @@
+ARTÍCULO 24.- Límites para los montos que se cancelen por servicios de consultorías
+Para fijar los montos que se pagarán por concepto de consultoría, la UCP o la UTE, cuya competencia ha sido delegada, deberá utilizar como parámetros los principios de razonabilidad y proporcionalidad entre el monto por pagar a causa del servicio contratado, el grado de complejidad y los resultados esperados de este.

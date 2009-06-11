@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Estructura organizacional para la ejecución del Proyecto Limón Ciudad-Puerto
+El prestatario llevará a cabo el Proyecto bajo la gestión del Ministerio de Hacienda, por medio de la Unidad Coordinadora del Proyecto (UCP), con la participación directa de las unidades técnicas ejecutoras y las entidades participantes establecidas de conformidad con el inciso 3.01 del artículo III del Contrato de Préstamo. Se establece la Comisión de Coordinación Institucional como una unidad para apoyar la coordinación del Proyecto durante el período de ejecución del empréstito.

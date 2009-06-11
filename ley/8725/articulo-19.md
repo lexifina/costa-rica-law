@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Protección de humedales
+De conformidad con subinciso ii), inciso 2), parte I de la lista 1 del Contrato de Préstamo, referente a revitalización urbana y al sistema de control de inundaciones en el área de Limoncito, las instituciones públicas y privadas que participen en el desarrollo del proyecto deberán respetar la legislación vigente que tutela los humedales, en particular la disposición contenida en el artículo 44 de la Ley orgánica del ambiente, N.º 7554, de 4 de octubre de 1995, y sus reformas.
