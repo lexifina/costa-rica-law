@@ -1,4 +1,5 @@
 (Anulada)
+(Anulado este Decreto mediante resolución de la Sala Constitucional N° 9199 del 12 de junio del 2009.)
 Nº 34620-MINAE-MOPT
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DEL AMBIENTE Y ENERGÍA,
