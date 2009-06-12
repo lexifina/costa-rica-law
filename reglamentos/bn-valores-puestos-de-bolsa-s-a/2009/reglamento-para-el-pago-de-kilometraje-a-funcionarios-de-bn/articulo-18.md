@@ -1,0 +1,1 @@
+Artículo 18.—El propietario deberá dar preferencia a las necesidades de BN Valores. El propietario del vehículo deberá acceder cuando a solicitud de BN Valores se requiera que en un mismo viaje se transportarse a otros funcionarios del Puesto, siempre y cuando no excedan en número el cupo autorizado del vehículo.

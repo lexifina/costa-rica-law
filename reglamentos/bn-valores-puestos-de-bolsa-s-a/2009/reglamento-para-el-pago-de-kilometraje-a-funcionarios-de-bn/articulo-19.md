@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+Disposiciones finales
+Artículo 19.—BN Valores podrá rescindir unilateralmente y sin responsabilidad de su parte la Solicitud de aprobación de pago de kilometraje si considera en algún momento que ya no se justifica o no se requiere este tipo de erogación para satisfacer la necesidad de transporte. o bien en caso de incumplimiento de las disposiciones establecidas en el Reglamento, sin perjuicio de las sanciones que contempla el régimen interior de trabajo y otras normas conexas. Toda decisión sobre el particular deberá ser formalmente notificadas y comunicada al funcionario respectivo.
