@@ -1,4 +1,5 @@
 (Anulada)
+(Anulado este Decreto mediante resolución de la Sala Constitucional N° 9199 del 12 de junio del 2009.)
 Nº 34577
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE OBRAS PÚBLICAS Y TRANSPORTES
