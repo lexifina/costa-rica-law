@@ -1,1 +1,0 @@
-Artículo 21.—Para el debido cumplimiento de sus obligaciones, el Auditor estará facultado para solicitar y obtener de la Gerencia. Divisiones, Departamentos y Secciones del Instituto, todos los datos, informes y cooperación que requiera .

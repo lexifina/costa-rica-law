@@ -1,1 +1,0 @@
-Articulo 16.—En casos de urgencia el Gerente puede, a su juicio y bajo su responsabilidad, cancelar cualquier póliza, pero deberá informarlo a la Junta Directiva en su próxima reunión para que se ratifique o impruebe la decisión.

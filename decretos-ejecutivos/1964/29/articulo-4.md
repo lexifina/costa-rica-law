@@ -1,2 +1,0 @@
-Articulo 4°—Se insertarán en el Diario Oficial las actas de aceptación y juramentación de los Directores. Gerente, Subgerente. Auditor y Subauditor, y los documentos cuya publicación ordene la Ley o acuerde la Junta Directiva.
-Podrá también disponerse la publicación de avisos u otras piezas en periódicos no oficiales. Cuando la Junta Directiva considere que los negocios del Instituto lo requieran, se procederá a editar un órgano propio de publicidad.

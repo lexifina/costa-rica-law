@@ -1,1 +1,0 @@
-Articulo 10.—Mientras un acuerdo no haya sido ejecutado o comunicado al interesado, la Junta Directiva podrá modificarlo o revocarlo. El trámite de un asunto de esta clase requiere sesión extraordinaria convocada especialmente al efecto, salvo que estuvieren presentes todos los Directores que votaron el acuerdo cuya modificación o revocatoria se solicite.
