@@ -1,0 +1,1 @@
+Artículo 6º—Para acogerse al Régimen de Disponibilidad, los empleados que voluntariamente se acojan, deberán firmar el contrato respectivo con esta institución, el cual se insertará en su expediente laboral, así como todos aquellos movimientos que por tal motivo se produjeren.
