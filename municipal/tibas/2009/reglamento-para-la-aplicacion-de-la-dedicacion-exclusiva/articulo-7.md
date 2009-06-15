@@ -1,0 +1,1 @@
+Artículo 7º—El contrato debe ser tramitado en original para la Municipalidad, y el número de copias necesario para las diferentes dependencias de la institución que así lo requieran, tales como la Dirección Administrativa, la Auditoria Interna, el expediente del Funcionario y el servidor.
