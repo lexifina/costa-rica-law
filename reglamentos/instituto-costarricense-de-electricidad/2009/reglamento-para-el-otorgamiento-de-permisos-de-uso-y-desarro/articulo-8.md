@@ -1,0 +1,5 @@
+Artículo 8º—Autorizaciones. Para el desarrollo de actividades dentro de los embalses, los interesados deberán contar con la autorización del ente u órgano competente, dependiendo de la actividad que se pretenda desarrollar. Dicha autorización deberá indicar claramente las condiciones y el plazo bajo el cual se podrá desarrollar la actividad y deberá ser concordante con lo establecido en este reglamento.
+La fiscalización de la actividad a desarrollar en los embalses es responsabilidad del ente u órgano público que otorgó la autorización.
+El ICE no asumirá ningún tipo de responsabilidad por el ejercicio, accidentes o daños que se produzcan como consecuencia de las actividades que se desarrollen en los embalses.
+El ICE se reserva el derecho de hacer valer sus facultades legales para denunciar públicamente, en caso de incumplimiento en que incurra el ente u órgano que autorizó el desarrollo de la actividad respecto a su fiscalización.
+Igualmente, en el caso de que el autorizado incumpla los términos de la autorización otorgada aplicará lo dispuesto en el artículo 10.

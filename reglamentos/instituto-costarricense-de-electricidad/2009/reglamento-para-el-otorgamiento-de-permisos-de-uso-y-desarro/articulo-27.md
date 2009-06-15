@@ -1,0 +1,1 @@
+Artículo 27.—Mantenimiento y conservación del bien inmueble. Todo permisionario deberá realizar las labores de vigilancia, mantenimiento y conservación del área asignada y asumirá la responsabilidad por los daños y perjuicios causados al ICE o a terceras personas por su uso incorrecto.

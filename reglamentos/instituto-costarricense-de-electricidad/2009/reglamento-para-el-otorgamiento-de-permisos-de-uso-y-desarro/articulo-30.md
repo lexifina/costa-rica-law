@@ -1,0 +1,1 @@
+Artículo 30.—Derecho de acceso del ICE. El ICE se reserva el derecho de acceso a las áreas dadas en permiso de uso, debiendo el permisionario garantizarlo. El no acatamiento de esta disposición se considerará incumplimiento grave, que facultará la revocación del permiso otorgado.

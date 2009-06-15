@@ -1,0 +1,2 @@
+Artículo 34.—Demolición de instalaciones construidas sin autorización. El incumplimiento del punto anterior facultará a la DABI a solicitar al permisionario la demolición de aquellas instalaciones construidas sin autorización. En caso de que el permisionario no realice la demolición, la DABI lo hará cobrándole los costos asociados.
+La SAI, podrá revocar el permiso en caso de que el permisionario realice construcciones sin autorización o se niegue a demolerlas.

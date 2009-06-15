@@ -1,0 +1,1 @@
+Artículo 42.—Cumplimiento de la normativa interna. Todo permisionario deberá cumplir la normativa vigente, el presente reglamento, así como con las condiciones dadas en el permiso de uso y cualquier otra disposición institucional aplicable.

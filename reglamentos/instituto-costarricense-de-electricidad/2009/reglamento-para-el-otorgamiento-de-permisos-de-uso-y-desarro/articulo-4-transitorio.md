@@ -1,0 +1,3 @@
+Transitorio IV.—Las personas físicas o jurídicas que actualmente desarrollen algún tipo de actividad en embalses institucionales, acreditarán ante la DABI dentro de los seis meses posteriores a la publicación del presente reglamento, el cumplimiento de los requisitos exigidos para el desarrollo de dicha actividad, caso contrario la DABI solicitará la revocatoria de la autorización al ente u órgano público que la otorgó o que se tomen las medidas administrativas que correspondan por ejercicio de una actividad sin el cumplimiento de requisitos.
+Rige a partir del 15 de junio del 2009.
+San José, 2 de marzo del 2009.

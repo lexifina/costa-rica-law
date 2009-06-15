@@ -1,0 +1,1 @@
+Artículo 5º—Prioridades de uso. Los embalses tienen como fin primordial, garantizar que los recursos que se encuentran en ellos, se transformen en energía hidroeléctrica utilizable para el desarrollo del país, motivo por el cual, el ICE se reserva el derecho de determinar las áreas de los embalses en las que se prohíbe el desarrollo de otras actividades por parte de particulares.

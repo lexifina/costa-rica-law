@@ -1,0 +1,2 @@
+Artículo 33.—Autorización para construcciones removibles. A fin de no variar la naturaleza del bien, en los inmuebles dados en permiso de uso, los permisionarios únicamente podrán construir edificaciones removibles, para lo cual deberá contar con autorización escrita y previa de la DABI.
+Toda mejora se reputará en beneficio de la Institución, una vez que quede sin efecto el permiso de uso, debiendo registrarse el activo, conforme a la normativa del ICE.

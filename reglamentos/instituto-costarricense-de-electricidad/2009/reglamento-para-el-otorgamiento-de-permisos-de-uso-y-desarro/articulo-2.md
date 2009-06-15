@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este reglamento es aplicable para toda persona física o jurídica, pública o privada, que pretenda realizar actividades en los embalses institucionales o que requiera el otorgamiento de un permiso de uso con la finalidad de realizar algún tipo de actividad en terrenos institucionales.

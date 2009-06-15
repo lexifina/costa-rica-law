@@ -1,0 +1,2 @@
+Artículo 21.—Prioridad en el otorgamiento de permisos de uso. En atención al interés público, las solicitudes planteadas por las Municipalidades, Asociaciones de Desarrollo Integral y otros entes u órganos públicos tendrán prioridad respecto a otras solicitudes para el otorgamiento de permisos de uso sobre inmuebles propiedad de la Institución.
+Si sobre un mismo bien inmueble se presentaran dos o más solicitudes de Asociaciones de Desarrollo Integral o de otros entes u órganos públicos, aplicará el principio de primero en tiempo – primero en derecho.

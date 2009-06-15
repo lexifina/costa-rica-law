@@ -1,0 +1,1 @@
+Artículo 39.—Órgano Fiscalizador. La DABI ejercerá la fiscalización de los permisos de uso otorgados en los inmuebles de la Institución. En caso de detectar alguna anomalía o bien que por razones de interés público, oportunidad o conveniencia considere necesario revocar el permiso otorgado, gestionará lo correspondiente ante la SAI.

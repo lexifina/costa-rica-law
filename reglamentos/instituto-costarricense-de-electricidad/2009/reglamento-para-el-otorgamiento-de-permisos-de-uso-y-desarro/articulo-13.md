@@ -1,0 +1,1 @@
+Artículo 13.—Actividades prohibidas en los embalses. No se permitirán, entre otras, actividades que se consideran un peligro para la generación de electricidad a nivel nacional, y cualquier otra que no se haya autorizado por el ente u órgano competente o que no esté acorde con este reglamento.

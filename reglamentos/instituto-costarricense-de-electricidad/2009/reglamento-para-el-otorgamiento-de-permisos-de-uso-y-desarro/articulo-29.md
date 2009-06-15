@@ -1,0 +1,1 @@
+Artículo 29.—Reserva del derecho de variar los niveles de agua en los embalses. El ICE se reserva el derecho de variar los niveles del agua en los embalses en cualquier momento, de acuerdo a las necesidades de generación eléctrica y de mantenimiento de sus respectivas obras.

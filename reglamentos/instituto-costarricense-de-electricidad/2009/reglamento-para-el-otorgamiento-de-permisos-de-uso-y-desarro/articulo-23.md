@@ -1,0 +1,3 @@
+Artículo 23.—Remisión del expediente y recomendación a la SAI. En el plazo de diez días hábiles, contados a partir de la determinación del canon o contraprestación que corresponde, la DABI enviará a la SAI, el expediente, junto con la recomendación y borrador del eventual permiso a otorgar, a fin de que dentro del plazo de diez días hábiles siguientes el Subgerente resuelva lo que corresponda.
+De otorgarse el permiso de uso, se detallarán las condiciones bajo las cuales se otorga y que son de acatamiento obligatorio para el permisionario. De igual forma, el permisionario quedará sujeto a las disposiciones establecidas en el presente reglamento.
+La DABI llevará el registro y control de los permisos otorgados a nivel Institucional.

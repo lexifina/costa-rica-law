@@ -1,0 +1,3 @@
+Artículo 26.—Obligación de cumplir con la normativa ambiental. Todo permisionario debe cumplir con la normativa ambiental aplicable según sus actividades, debiendo realizar todos los estudios técnicos necesarios para implementar sistemas de prevención, control, mitigación o compensación de la contaminación de las aguas o afectación del medio ambiente en general.
+Los permisionarios deberán colaborar en la implementación de los planes de manejo que se establezcan en la zona que ocupa.
+En el caso de que la DABI evidencie algún incumplimiento de lo aquí dispuesto, informará y coordinará con los entes u órganos competentes, las acciones que correspondan, pudiendo incluso recomendar a la SAI la revocación del respectivo permiso de uso.

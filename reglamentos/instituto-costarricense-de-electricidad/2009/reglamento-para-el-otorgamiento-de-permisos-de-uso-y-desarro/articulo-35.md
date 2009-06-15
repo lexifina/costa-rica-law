@@ -1,0 +1,1 @@
+Artículo 35.—Póliza de responsabilidad civil. Es obligación del permisionario suscribir una póliza de responsabilidad civil. La SAI podrá exceptuar del cumplimiento de este requisito a quienes soliciten el permiso de uso para la satisfacción de necesidades básicas familiares.

@@ -1,0 +1,3 @@
+Artículo 19.—Estudio técnico. La DABI deberá emitir el estudio técnico en un plazo máximo de 30 días hábiles contados a partir de la recepción completa de la solicitud.
+Para los efectos anteriores y en el caso de que así se requiera, la DABI podrá solicitar criterio técnico especializado a otras dependencias institucionales.
+Este estudio técnico contemplará recomendaciones o condicionamientos que deberá cumplir el permisionario para disfrutar del permiso. Asimismo, en el caso de que la actividad a realizar no amerite el cobro del canon, según lo que señala el artículo 16, la DABI fijará la contraprestación que deberá brindar el permisionario.

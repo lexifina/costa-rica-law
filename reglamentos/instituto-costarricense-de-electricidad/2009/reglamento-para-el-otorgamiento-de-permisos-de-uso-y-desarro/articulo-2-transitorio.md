@@ -1,0 +1,1 @@
+Transitorio II.—Las personas físicas o jurídicas que tengan en uso bienes inmuebles institucionales y carezcan de un permiso de uso previo, deberán gestionar dentro de plazo de tres meses contados a partir de la publicación del presente reglamento, el respectivo permiso de uso, caso contrario se procederá al desalojo.
