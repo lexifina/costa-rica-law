@@ -1,0 +1,1 @@
+Artículo 4º—Posibilidad de delegación: Cuando por cualquier causa debidamente justificada, los funcionarios autorizados se encuentren imposibilitados para llevar a cabo la misión encomendada, podrán delegar la facultad en algún funcionario del TPMS, bajo su responsabilidad y respetando lo dispuesto por el presente reglamento.

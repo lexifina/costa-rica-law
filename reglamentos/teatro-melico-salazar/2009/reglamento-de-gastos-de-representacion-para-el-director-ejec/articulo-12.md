@@ -1,0 +1,1 @@
+Artículo 12.—Reintegro: En el supuesto en que la suma autorizada en el acuerdo de viaje sea mayor a los gastos efectuados en el exterior, el funcionario deberá reintegrar las sumas no gastadas al realizar la liquidación correspondiente, según lo dispuesto por el capítulo anterior.

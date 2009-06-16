@@ -1,0 +1,2 @@
+Artículo 6º—Tope máximo mensual: Durante el último mes del año, la Junta Directiva del TPMS definirá el tope máximo mensual sujeto a liquidación, que se cancelará por concepto de gastos de representación durante el año siguiente.
+Dicho monto lo establecerá la Junta Directiva utilizando criterios de razonabilidad y proporcionalidad. Si las condiciones económicas del país varían repentinamente, podrán variar dicho monto en el transcurso del año, amparándose en dicha situación.
