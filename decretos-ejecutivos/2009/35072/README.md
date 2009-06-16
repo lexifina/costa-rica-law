@@ -14,3 +14,4 @@ Modifica para el Fondo de Parques Nacionales, el gasto presupuestario máximo fi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-06-16 | Decreto Ejecutivo 35351 (2009-06-16) |
