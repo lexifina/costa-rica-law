@@ -1,1 +1,1 @@
-Artículo 9º—Sesiones. El órgano, se reunirá con la frecuencia y el día, hora y lugar que el mismo Órgano disponga, sin embargo, quedará válidamente constituido sin existir los requisitos referentes a convocatoria y orden del día, cuando esté presente la mayoría absoluta de sus miembros.
+Artículo 9º—Asesores. El Comité podrá solicitar la participación, tanto en los estudios y análisis como en las sesiones, del personal técnico, administrativo o legal adicional que sea requerido.

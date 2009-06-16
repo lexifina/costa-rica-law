@@ -1,1 +1,1 @@
-Artículo 12.—En lo no regulado expresamente aquí, se regirá por lo dispuesto en la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Fondos.
+Artículo 12.—Sesiones. El Órgano, se reunirá con la frecuencia, el día, hora y lugar que el mismo Órgano disponga, sin embargo, quedará válidamente constituido sin existir los requisitos referentes a convocatoria y orden del día, cuando esté presente la mayoría absoluta de sus miembros.

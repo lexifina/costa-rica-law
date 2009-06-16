@@ -1,4 +1,1 @@
-Artículo 5º—Funciones del Secretario del órgano. El secretario del órgano tendrá las siguientes obligaciones y atribuciones:
-a. Levantar las Actas de las sesiones y custodiar el Libro de Actas
-b. Preparar y comunicar debidamente la agenda del día y el Acta de la sesión anterior a los miembros del Órgano y someterlo a aprobación del Presidente antes de la sesión.
-c. Las demás que resulten de la naturaleza propia del cargo.
+Artículo 5º—La competencia para atender los recursos de objeción, cuando la resolución de los mismos corresponda a la Contraloría General de la República , así como los de apelación corresponde a la Gerencia Administrativa Financiera, toda vez que por los plazos otorgados por Ley para ello, no resulta posible atender tales obligaciones a través del Comité de Licitaciones.

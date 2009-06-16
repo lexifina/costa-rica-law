@@ -1,3 +1,1 @@
-Artículo 14.—Vigencia. Las presentes normas de operación empezarán a regir a partir de su publicación en La Gaceta.
-Aprobado en Junta directiva de BN Sociedad Administradora de Fondos de Inversión S. A. cédula jurídica 3-101-237918, acta Nº 16, sesión ordinaria Nº 10 del año 2000, articulo tercero, celebrada a las doce horas del 22 de setiembre del 2000.
-San José, 22 de enero del 2008.
+Artículo 14.—Regulación. En lo no regulado expresamente aquí, se regirá por lo dispuesto en la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Fondos.

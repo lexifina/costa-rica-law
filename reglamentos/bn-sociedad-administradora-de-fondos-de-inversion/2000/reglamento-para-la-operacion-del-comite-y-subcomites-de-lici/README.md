@@ -14,3 +14,4 @@ Reglamento para la Operación del Comité y Subcomités de Licitaciones para BN 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-30 | la propia norma |
+| 2 | 2009-06-16 | Reglamento 174 (2009-06-16) |
