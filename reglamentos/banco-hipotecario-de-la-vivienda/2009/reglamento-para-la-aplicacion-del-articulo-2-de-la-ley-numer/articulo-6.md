@@ -1,0 +1,1 @@
+Artículo 6º—Potestad de aprobación: La aprobación para la condonación de operaciones de crédito de los Fideicomisos del BANHVI es potestad discrecional de la Junta Directiva del BANHVI a partir de las propuestas que sean remitidas por los Fiduciarios y avaladas por la Gerencia General de esta Entidad.
