@@ -1,0 +1,1 @@
+Artículo 30.—Los (las) miembros del Consejo Director podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos o razones que lo justifiquen, quedando así exentos de la responsabilidad que en su caso, pudieren derivarse de la ejecución de esos acuerdos.

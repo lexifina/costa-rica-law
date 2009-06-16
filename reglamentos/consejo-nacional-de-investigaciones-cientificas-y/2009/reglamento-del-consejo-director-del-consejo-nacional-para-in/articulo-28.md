@@ -1,0 +1,2 @@
+Artículo 28.—Realizadas las correcciones y/o observaciones al acta, el Consejo Director procederá a su aprobación mediante la votación de sus miembros.
+El acta de la sesión, será transcrita en el Libro de Actas Oficial y firmado por el (la) Presidente(a) y el (la) Secretario(a) Ejecutivo(a), dando fe de que dicha transcripción es copia fiel del documento aprobado por los (las) Directores(as). También firmarán el acta los (las) miembros que hayan dado su voto disidente sobre algún punto discutido o acuerdo adoptado.

@@ -1,0 +1,2 @@
+Artículo 40.—Las comisiones especiales nombradas al efecto, rendirán el informe dentro del plazo dispuesto por el Consejo Director, el cual debe ser razonable y proporcional a los asuntos que deben dictaminarse.
+Las comisiones deberán solicitar plazo adicional con la debida antelación, cuando se trate de asuntos en que, por falta de datos, o por ser estos complicados, extensos o de gran importancia, no haya sido posible finalizar el estudio para la fecha fijada.

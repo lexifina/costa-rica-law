@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones del Consejo Director serán siempre privadas, pudiéndose invitar a participar de previo en ellas a las personas que este órgano estime convenientes, quienes concurrirán con voz pero sin voto.

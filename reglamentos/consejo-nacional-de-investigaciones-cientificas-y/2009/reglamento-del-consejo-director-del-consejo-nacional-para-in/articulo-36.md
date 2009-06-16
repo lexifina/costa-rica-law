@@ -1,0 +1,1 @@
+Artículo 36.—Ningún(a) director(a) o funcionario(a) podrá hacer comunicación o manifestación verbal o escrita fuera de la institución, sobre los acuerdos tomados hasta tanto los mismos hayan quedado o hayan sido declarados en firme por el Consejo Director. La violación a la presente disposición será considerada falta grave, previo ejercicio del derecho de defensa.

@@ -1,0 +1,2 @@
+Artículo 27.—Los miembros del Consejo Director podrán razonar su voto o emitir un comentario, solicitando que así conste en el acta correspondiente. El (La) Secretario (a) de actas, deberá transcribir literalmente el razonamiento.
+Dicha acta deberá estar a disposición de los (las) Directores (as) con al menos cuarenta y ocho horas de antelación a la sesión en que se conocerá su aprobación definitiva.

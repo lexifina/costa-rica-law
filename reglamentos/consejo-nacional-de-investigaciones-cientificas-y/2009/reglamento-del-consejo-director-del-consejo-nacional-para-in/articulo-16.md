@@ -1,0 +1,1 @@
+Artículo 16.—Todas las sesiones serán grabadas, sirviendo de apoyo para la redacción del acta correspondiente y permitirá revisar la actuación de un(a) miembro sobre un tema de interés donde exista duda. Las grabaciones se mantendrán en custodia por parte de la Secretaría de Actas en dispositivos electrónicos de almacenamiento permanente.

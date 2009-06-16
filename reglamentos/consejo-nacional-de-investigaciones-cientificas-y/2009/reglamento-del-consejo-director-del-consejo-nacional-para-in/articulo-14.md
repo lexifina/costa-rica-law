@@ -1,0 +1,3 @@
+Artículo 14.—Las sesiones extraordinarias se celebrarán cuando sean convocadas por el (la) Presidente(a) o por tres o más de los (las) miembros del Consejo Director, con veinticuatro horas de antelación mínimo, a la hora en que ésta deba verificarse. Podrá prescindirse de este término, en aquellos casos en que todos(as) los (las) miembros del Consejo Director estén presenten y acuerden hacerlo así por tratarse de un caso de urgencia.
+Igualmente, se realizarán sesiones extraordinarias cuando en sesión ordinaria así sea dispuesto por al menos tres miembros del Consejo Director.
+A la convocatoria escrita se acompañará copia del orden del día, salvo casos de urgencia y únicamente podrán discutirse los asuntos allí consignados.

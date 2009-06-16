@@ -1,0 +1,2 @@
+Artículo 24.—La inasistencia de un(a) Director (a) a sesiones, ocasionará la pérdida de la respectiva dieta. No corresponde el pago de dieta a aquel Director que se presente con treinta minutos de retraso una vez iniciada la sesión o se retire sin justificación de la sesión por más de treinta minutos, salvo que medie justa causa que deberá de ser aceptada por el (la) Presidente(a).
+El ingreso tardío o retiro previo de la sesión deberá constar en actas, indicando la hora.
