@@ -14,3 +14,4 @@ Reglamento de Funcionamiento de la Unidad de Planificación del Ministerio de Ha
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-07 | la propia norma |
+| 2 | 2009-06-17 | Decreto Ejecutivo 35431 (2009-06-17) |

@@ -10,4 +10,5 @@ IV.—Que resulta necesario reglamentar las funciones, competencias y objetivos 
 DECRETAN:
 Reglamento de Funcionamiento de la Unidad
 de Planificación del Ministerio de Hacienda
-Artículo 1º—De la creación de la Unidad de Planificación del Ministerio de Hacienda. Créase la Unidad de Planificación del Ministerio de Hacienda, como una oficina que dentro de la estructura organizativa del Ministerio de Hacienda, depende directamente del Despacho del Ministro, que contará con los recursos materiales y humanos necesarios para cumplir sus fines y funciones y estará a cargo de un Coordinador General.
+Artículo 1º—De la creación de la Unidad de Planificación del Ministerio de Hacienda. Créase la Unidad de Planificación del Ministerio de Hacienda, como una oficina que dentro de la estructura organizativa del Ministerio de Hacienda, depende directamente del Despacho del Ministro, contará con los recursos materiales y humanos necesarios para cumplir sus fines y funciones y estará a cargo de un Director.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35431 del 17 de junio de 2009)
