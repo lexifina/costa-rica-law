@@ -1,0 +1,1 @@
+Artículo 46.—Aprobado por el Concejo Municipal mediante acuerdo de la Sesión Ordinaria Nº 16 artículo 10, celebrada el 18 de agosto del 2008 y por la Contraloría General de la República, mediante resolución Nº Oficio DAGJ1607-2008 (12704)

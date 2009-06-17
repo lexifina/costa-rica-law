@@ -1,0 +1,1 @@
+Artículo 20.—Asignación de Recursos. El Concejo Municipal de conformidad con el artículo 27 de la Ley General de Control Interno, deberá asignar a la Auditoría Interna, los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que ésta pueda cumplir adecuadamente su gestión.
