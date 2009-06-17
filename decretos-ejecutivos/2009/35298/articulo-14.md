@@ -1,0 +1,1 @@
+Artículo 14.—Derogatorias. Deróguese los Decretos Ejecutivos Nos. 23635-MOPT, denominado “Arancel por Servicios de Peritaje y Avalúo”, publicado en La Gaceta Nº 183 del 27 de setiembre de 1994 y 24170-MOPT, denominado “Reforma Aranceles Servicio Peritaje y Avalúo Ingenieros y Arquitectos”, publicado en La Gaceta N° 83 del 2 de mayo de 1995.
