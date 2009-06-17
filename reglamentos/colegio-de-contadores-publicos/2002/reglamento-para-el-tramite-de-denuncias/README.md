@@ -14,3 +14,4 @@ Reglamento para el trámite de denuncias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-09 | la propia norma |
+| 2 | 2009-06-17 | Reglamento 11 (2009-06-17) |
