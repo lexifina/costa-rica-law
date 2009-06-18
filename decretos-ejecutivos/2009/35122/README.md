@@ -14,3 +14,4 @@ Modifica para el Editorial Costa Rica, el gasto presupuestario máximo fijado pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-14 | la propia norma |
+| 2 | 2009-06-18 | Decreto Ejecutivo 35361 (2009-06-18) |
