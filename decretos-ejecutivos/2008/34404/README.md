@@ -72,3 +72,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 57 | 2009-06-18 | Decreto Ejecutivo 35348 (2009-06-18) |
 | 58 | 2009-06-18 | Decreto Ejecutivo 35363 (2009-06-18) |
 | 59 | 2009-06-18 | Decreto Ejecutivo 35360 (2009-06-18) |
+| 60 | 2009-06-18 | Decreto Ejecutivo 35362 (2009-06-18) |
