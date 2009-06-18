@@ -14,3 +14,4 @@ Modifica para el Fondo Forestal, el gasto presupuestario máximo fijado para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-06-18 | Decreto Ejecutivo 35362 (2009-06-18) |
