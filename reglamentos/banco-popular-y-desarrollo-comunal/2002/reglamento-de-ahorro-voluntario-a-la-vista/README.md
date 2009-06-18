@@ -14,3 +14,4 @@ Reglamento de Ahorro Voluntario a la Vista
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-12 | la propia norma |
+| 2 | 2009-06-18 | Reglamento 4674 (2009-06-18) |
