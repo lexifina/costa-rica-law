@@ -1,0 +1,1 @@
+Artículo 3º—Responsabilidad en la recepción de notificaciones por correo electrónico. La recepción de las notificaciones relativas a acuerdos y resoluciones de este Tribunal mediante correo electrónico, correrá por cuenta y bajo exclusiva responsabilidad de cada partido político.
