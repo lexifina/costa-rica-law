@@ -14,3 +14,4 @@ Modifica para el Instituto Costarricense del Deporte y la Recreación, el Gasto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-06-18 | Decreto Ejecutivo 35363 (2009-06-18) |
