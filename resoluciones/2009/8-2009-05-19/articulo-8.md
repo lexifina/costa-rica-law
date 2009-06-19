@@ -1,1 +1,0 @@
-Artículo 8º—Vigencia. Tanto el pago como los nuevos formularios que se regulan en la presente resolución, rigen y deberán utilizarse para los períodos fiscales mensuales, a partir de la publicación de la presente resolución.
