@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE GOLFITO
+La Municipalidad de Golfito, comunica el acuerdo de la sesión extraordinaria Nº 11-2009 celebrada el día 6 de mayo del 2009, acuerdo contenido en el capítulo primero y único, que dice:
+ACUERDO DE SESIÓN MUNICIPAL
+EL CONCEJO MUNICIPAL DE GOLFITO ACUERDA POR UNANIMIDAD Y EN FIRME
+Aprobar la publicación en el Diario Oficial La Gaceta de los mapas y/o matrices de información distritales de la actualización de la Plataforma de Valores de Terrenos por Zonas Homogéneas de los distritos de: 01 Golfito, 02 Puerto Jiménez, 03 Guaycará, 04 Pavón, del cantón de Golfito, aprobados por el Órgano de Normalización Técnica de la Dirección General de Tributación, Ministerio de Hacienda. Aprobar el Informe Técnico que sustenta los valores zonales de terreno. Aplicar el Manual de Valores Base Unitarios por Tipología Constructiva, publicado en La Gaceta Nº 78 del 23 de abril del 2008, los respectivos métodos de depreciación según la tipología constructiva, las tablas de depreciación de construcciones, realizadas por Ross y Heidecke, vigentes para todo el territorio nacional. Aplicar el programa de Valoración suministrado por el Órgano de Normalización Técnica, para guiar, fiscalizar y dirigir los procesos de declaración, fiscalización y valoración.
+Autorizar al Señor Alcalde Municipal para hacer los trámites de publicación en el Diario Oficial La Gaceta y la ejecución de este acuerdo.
+Nota: El Mapa de Valores de Terreno por Zonas Homogéneas que dio origen a esta Matriz y la misma se encuentra a disposición del público en general en la oficina de Valoraciones de la Municipalidad de Golfito.
+Nota de Sinalevi: Por el tipo de formato, consultar mapas en La Gaceta impresa N° 118 del 19 de junio de 2009.
