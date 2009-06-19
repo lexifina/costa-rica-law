@@ -1,0 +1,7 @@
+COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+INFORMA QUE:
+La Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica en su sesión ordinaria 2009.05.05 celebrada el cinco de mayo del dos mil nueve, mediante oficio SJG.0708(b).05.09 acordó aprobar las definiciones de médico, medicina y rama dependiente de la medicina las cuales rezan de la siguiente manera:
+Medicina: (del latín medicina, derivado a su vez de mederi, que significa curar, medicar). Es la ciencia dedicada al estudio de la vida, la salud, las enfermedades y la muerte del ser humano como un todo e implica el arte de ejercer tal conocimiento técnico para el mantenimiento y recuperación de la salud, aplicándolo a la promoción, prevención, diagnóstico, y al tratamiento y/o rehabilitación de las enfermedades del ser humano en forma integral (físico, mental y espiritual).
+Médico: Profesional autorizado a ejercer la medicina; graduado por una facultad de medicina y licenciado por un consejo apropiado, (en el caso de Costa Rica por el Colegio de Médicos y Cirujanos de la República de Costa Rica).
+Rama Dependiente de la Medicina: Profesionales o técnicos que brindan apoyo en el tratamiento y/o recuperación de las enfermedades del ser humano posterior al diagnóstico y prescripción de un profesional en medicina.
+Deberá estar siempre sujeto a la autorización y regulación del Colegio de Médicos y Cirujanos de la República de Costa Rica
