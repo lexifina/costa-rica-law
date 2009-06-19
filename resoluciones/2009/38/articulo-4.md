@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Hacienda y las Oficialías Presupuestales o Unidades Financieras de la Administración Activa, deberán ajustar en un plazo no mayor a un mes a partir de la publicación de esta Resolución, la normativa, los procedimientos y los sistemas de información internos que sean necesarios para dar fiel cumplimiento a lo dispuesto en los artículos anteriores.

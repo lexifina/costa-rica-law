@@ -1,0 +1,16 @@
+Artículo 2º—Modificar los numerales 2 (último párrafo), 3.5, 3.5.1 y 3.5.2.1 del “Instructivo sobre aspectos mínimos a considerar en el análisis de los documentos de ejecución presupuestaria en el proceso de visado” (M-1-2003-CO-DFOE), para que en lo sucesivo se lean así:
+“2. Aspectos generales.
+…
+Para efecto de la definición de los documentos de la ejecución presupuestaria y su naturaleza deberá observase lo dispuesto sobre el particular en la normativa vigente.”
+“3.5 Gastos con cargo a reservas de recursos amparadas en una resolución administrativa u otro documento idóneo establecido por la instancia competente, así como para atender pagos en cumplimiento de mandatos y sentencias judiciales en firme.
+En el caso de facturas por concepto de prestaciones legales, reconocimiento de otros derechos laborales, indemnizaciones a particulares, diferencias de pensión y cuentas pendientes de ejercicios anteriores, devolución de sumas captadas a los administrados por parte el Ministerio de Hacienda, se deberán fundamentar en una resolución administrativa o en el documento idóneo que para tales efectos establezca la instancia competente, salvo que el gasto corresponda al cumplimiento de obligaciones ordenadas por mandatos y sentencias judiciales en firme, en cuyo caso estos serán títulos únicos y suficientes para el pago respectivo.”
+“3.5.1 Aspectos generales. Para el trámite de gastos con cargo a una reserva de recursos amparados a una resolución administrativa u otro documento idóneo, así como para los que se deban realizar en atención de mandatos y sentencias judiciales, además de las verificaciones de los aspectos generales indicados en el punto 2 del presente instructivo, se deben hacer las siguientes:
+1. Que se indique el número de reserva de recursos a la que se carga el gasto.
+2. Que el código presupuestario coincida con el de la reserva de recursos.
+3. Que se indique el número de resolución administrativa o documento idóneo, mandato o sentencia judicial, según corresponda.
+4. Que la información del beneficiario coincida con la indicada en la resolución administrativa o documento idóneo, mandato o sentencia judicial, según corresponda (nombre, número de cédula del beneficiario y monto total por pagar).
+5. Que en los casos en que la obligación se origina por un mandato o sentencia judicial, este se encuentre en firme.
+“3.5.2.1 Estudio de la resolución administrativa. La resolución deberá ajustarse a la normativa establecida, dentro de la cual se encuentra el Código de Trabajo, Estatuto de Servicio Civil y su reglamento, Ley para el equilibrio financiero del sector público, leyes y reglamentos propios de cada institución, jurisprudencia judicial, circulares e instructivos de las oficinas relacionadas con el trámite de derechos laborales, Código de normas y procedimientos tributarios y cualesquiera otra normativa atinente a la materia.
+A la resolución administrativa se le debe realizar un análisis de legalidad y de verificación de las sumas que se ordena pagar, así como algunos aspectos básicos que a continuación se detallan:
+1. Que la resolución administrativa se ajuste a los lineamientos de la “Circular sobre pagos de la Hacienda Pública” emitida por esta Contraloría General y publicada en La Gaceta N° 77 del 24 de abril de 1990 y sus reformas.
+2. …”

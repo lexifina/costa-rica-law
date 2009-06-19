@@ -1,0 +1,2 @@
+Artículo 5º—Vigencia. La presente resolución rige a partir de su publicación, para todos aquellos aspectos que en su implementación no requieran de ajustes en elementos de la normativa, los procedimientos y los sistemas de información internos. Para los aspectos que sí requieran de ajustes en estos elementos, la aplicación de estas normas rigen a partir de la fecha de vencimiento del plazo indicado en el artículo 4 anterior.
+Publíquese.—San José, 15 de junio del 2009.
