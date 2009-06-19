@@ -1,5 +1,2 @@
-CAPÍTULO IV
-Medidas de gobierno corporativo
-SECCIÓN I
-Disposiciones generales
-Artículo 23.—Responsabilidad de la Junta Directiva. La Junta Directiva u Órgano equivalente de los sujetos fiscalizados será responsable de aprobar las políticas, procedimientos y controles necesarios para procurar la confiabilidad de la información financiera de la entidad supervisada.
+Artículo 23.—Comunicación de determinaciones de errores. Las Superintendencias informarán de los errores encontrados en los informes de auditoría al Colegio de Contadores Públicos de Costa Rica o a su homólogo en un país extranjero, para los efectos que correspondan. En los casos en que resulte aplicable, según el ordenamiento jurídico vigente, la Superintendencia remitirá al Ministerio Público un informe.
+(El artículo 23 original fue derogado en sesiones N°s 787 y 788 del 19 de junio de 2009, donde también se ordena renumerar los artículos, de tal forma que el artículo 31 pasa a ser el 23 actual, quedando nuevamente vigente).

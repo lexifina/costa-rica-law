@@ -1,3 +1,2 @@
-Artículo 25.—Integración. El Comité de Auditoría será un cuerpo colegiado integrado por un mínimo de dos directores de la Junta Directiva u Órgano de Dirección equivalente y por el Fiscal de dicho órgano. Adicionalmente, el Comité podrá contar con miembros externos a la organización.
-Para el ejercicio de sus funciones este Comité deberá contar con al menos un miembro especializado en el área financiero contable que deberá tener como mínimo grado académico en el área de administración de negocios o contaduría pública y experiencia mínima de cinco años. Este requisito podrá ser provisto por un miembro externo.
-La Junta Directiva será responsable de nombrar las personas idóneas para que cumplan con el objetivo de este Comité. Las personas que integren este Comité serán responsables de cumplir a cabalidad las funciones encomendadas por la Junta Directiva.
+Artículo 25.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(El artículo 25 original fue derogado en sesiones N°s 787 y 788 del 19 de junio de 2009, donde también se ordena renumerar los artículos, de tal forma que el artículo 33 pasa a ser el 25 actual, quedando nuevamente vigente).

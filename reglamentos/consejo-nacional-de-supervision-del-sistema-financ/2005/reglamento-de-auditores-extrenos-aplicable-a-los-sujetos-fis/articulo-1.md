@@ -1,4 +1,5 @@
 BANCO CENTRAL DE COSTA RICA
+(Nota de Sinalevi: El Consejo Nacional de Supervisión del Sistema Financiero, aprobó un nuevo Reglamento de auditores externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE, en la sesión N° 893 del 3 de diciembre de 2010)
 El Consejo Nacional de Supervisión del Sistema Financiero mediante artículos 18 y 6 de las actas de las sesiones 491-2005 y 492-2005, respectivamente, celebradas el 20 de enero del 2005,
 considerando que:
 I. De conformidad con las leyes financieras corresponde a las Superintendencias velar por la estabilidad del sistema financiero, así como por la protección de los intereses de los ahorrantes e inversionistas.
@@ -11,11 +12,12 @@ VI. En el ámbito del control interno, se ha estimado necesario establecer un co
 VII. Finalmente en el campo de las medidas administrativas con que contarán las Superintendencias para procurar asegurar la confiabilidad de la información financiera, se incorpora en el Reglamento la obligación de las Superintendencias de revisar el contenido de los informes de los auditores, el cumplimiento de los requisitos de idoneidad, experiencia profesional e independencia y el cumplimiento del procedimiento establecido para la sustitución de auditores. Esta revisión tendrá impacto en la elegibilidad del auditor para prestar servicios a sujetos fiscalizados por las Superintendencias, así como en la potestad de la Superintendencia respectiva de exigir a los sujetos fiscalizados la realización de una segunda auditoría externa.
 por tanto:
 dispuso:
-aprobar, a la luz de los comentarios y observaciones formuladas en esta oportunidad, la propuesta de “Reglamento de Auditores Externos y Medidas de Gobierno Corporativo aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL y SUPEN”, remitido por el Dr. Eddy Rodríguez C., Superintendente General de Valores a. í., mediante su oficio ref.: 110, del 10 de enero del 2005, conforme al texto se adjunta.
-______
-REGLAMENTO DE AUDITORES EXTERNOS Y MEDIDAS
-DE GOBIERNO CORPORATIVO APLICABLE A LOS SUJETOS
-FISCALIZADOS POR SUGEF, SUGEVAL Y SUPEN
+aprobar, a la luz de los comentarios y observaciones formuladas en esta oportunidad, la propuesta de (*)“Reglamento de Auditores Externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE.”, remitido por el Dr. Eddy Rodríguez C., Superintendente General de Valores a. í., mediante su oficio ref.: 110, del 10 de enero del 2005, conforme al texto se adjunta.
+(*)(Modificada su denominación por el artículo 29 del Reglamento de Gobierno Corporativo, aprobado en sesiones N°s 787 y 788 del 19 de junio de 2009)
+(*)REGLAMENTO DE AUDITORES EXTERNOS APLICABLE A LOS SUJETOS
+FISCALIZADOS POR SUGEF, SUGEVAL, SUPEN Y SUGESE
+(*)(Modificada su denominación por el artículo 29 del Reglamento de Gobierno Corporativo, aprobado en sesiones N°s 787 y 788 del 19 de junio de 2009)
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Objeto. El presente Reglamento establece las normas que regirán la contratación y prestación de servicios de auditoría externa, el conjunto mínimo de medidas de control interno y las medidas administrativas que podrán tomar las Superintendencias, todo ello con el objeto de procurar la confiabilidad de la información financiera provista por los sujetos fiscalizados por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores y la Superintendencia de Pensiones, en adelante, las Superintendencias.
+Artículo 1º—Objeto. El presente Reglamento establece las normas que regirán la contratación y prestación de servicios de auditoría externa, el conjunto mínimo de medidas de control interno y las medidas administrativas que podrán tomar las Superintendencias, todo ello con el objeto de procurar la confiabilidad de la información financiera provista por los sujetos fiscalizados por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia de Pensiones y la Superintendencia General de Seguros, en adelante, las Superintendencias.
+(Así reformado en sesiones N°s 787 y 788 del 19 de junio de 2009)
