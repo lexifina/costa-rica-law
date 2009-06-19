@@ -1,0 +1,1 @@
+Artículo 12.—Del reintegro. Los excesos a los montos indicados, deberán ser reintegrados por el colaborador en forma inmediata, una vez hecho el requerimiento por la Unidad de Servicios Generales. No obstante, el Banco podrá asumir el exceso siempre y cuando el colaborador demuestre que fueron llamadas propias en el desempeño de su labor.

@@ -1,0 +1,2 @@
+Artículo 15.—De las llamadas Internacionales. Las llamadas telefónicas internacionales que se realicen, deben justificarse por escrito por el colaborador, exceptuando al Presidente de Junta Directiva, Gerente General y los Subgerentes Generales.
+De no justificar su actuación o no brindar un fundamento adecuado para la erogación, a criterio de la Junta Directiva cuando de los Directores de Junta se trate, o a criterio de la Gerencia General o Subgerencias Generales, el colaborador debe cubrir el pago de las llamadas efectuadas.

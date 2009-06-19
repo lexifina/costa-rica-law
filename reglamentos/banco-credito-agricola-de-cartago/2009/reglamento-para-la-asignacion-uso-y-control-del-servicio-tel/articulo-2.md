@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento se refiere a colaboradores del Banco, a quienes se les ha asignado un teléfono celular y su línea y aquellos funcionarios con teléfono y línea celular que ponen a disposición del Banco.

@@ -1,0 +1,2 @@
+Artículo 10.—Revocación del servicio. La asignación y uso del teléfono y línea celular propiedad del Banco o mediante la contratación del servicio celular a colaboradores, no crea derechos ni puede considerarse como salario en especie; en consecuencia, el Banco puede revocar tal asignación y uso en cualquier momento.
+El colaborador autorizado puede renunciar al uso de un teléfono y línea celular, debiendo devolver el teléfono y sus accesorios a la Unidad de Servicios Generales.

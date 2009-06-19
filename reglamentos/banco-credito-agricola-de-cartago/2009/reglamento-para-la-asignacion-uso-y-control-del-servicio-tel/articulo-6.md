@@ -1,0 +1,1 @@
+Artículo 6º—De la cesión del uso a un tercero. La cesión del uso del teléfono y línea celular a un tercero no autorizado, acarrea la responsabilidad administrativa para el colaborador autorizado o al titular de la unidad respectiva.
