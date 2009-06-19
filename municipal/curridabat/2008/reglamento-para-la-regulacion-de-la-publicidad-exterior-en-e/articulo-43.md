@@ -1,0 +1,1 @@
+Artículo 43.—La publicidad que se coloque en basureros y otros objetos que integren el mobiliario urbano, cuando se exploten por los permisionarios o quienes los colocan para cumplir con la finalidad específica según la naturaleza del bien, deberán ajustarse a los lineamientos emitidos por el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 28.—Por infracción a la Ley de Construcciones, sin perjuicio de lo que dispongan otras leyes, se podrán imponer las multas que estima dicho cuerpo legal en su artículo 33, las cuales se cobrarán en el recibo del propietario del inmueble donde se instalará el rótulo.

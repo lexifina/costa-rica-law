@@ -1,0 +1,17 @@
+CAPÍTULO V
+Prohibiciones
+Artículo 23.—Se prohíbe la instalación, construcción, reconstrucción, trazo o pintura de cualquier tipo de publicidad exterior, que se pretendan colocar:
+1) Atravesando o invadiendo la vía pública, salvo el adosado al mobiliario urbano previamente autorizado por la Municipalidad (casetas de bus, señalización vial, etc.) y el que se ubique en forma paralela a las fachadas de las edificaciones, siempre que sean totalmente adosados y que no sobresalgan más de 25 centímetros sobre la acera y pongan en peligro u obstruyan la vía pública.
+2) En conjuntos, edificaciones, monumentos, plazas, casas particulares, centros educativos, templos y edificios públicos, así como en áreas regidas por la Ley de Patrimonio Histórico Arquitectónico o catalogados de interés cultural por la Municipalidad o el Ministerio de Cultura, Juventud y Deportes, así como aquellas zonas de patrimonio natural (reservas, refugios, parques nacionales, etc.), salvo los rótulos estrictamente informativos, así como aquellos que por su dimensión, colocación contenido o mensaje, dificulten o perturben la contemplación de los mismos.
+3) En postes de alumbrado público, kioscos, fuentes, árboles y jardines públicos, aceras y elementos de ornato, parques, calles y puestos fijos de ventas estacionarias.
+4) En placas de nomenclatura de calles y señales de tránsito. No podrán colocarse interfiriendo con la visibilidad para el tránsito peatonal y vehicular, a una distancia menor de 2 metros de las mismas, en cualquier dirección, y se debe prever aún con este distanciamiento la no obstrucción visual de las mismas.
+5) Sobre cubiertas, aleros, techos, losas o cualquier acabado de techo de edificaciones, que no estén diseñados con este fin.
+6) Cubriendo los elementos arquitectónicos, como balcones, columnas, relieves, ventanas y puertas y elementos ornamentales de la edificación.
+7) De manera que sobrepasen la altura permitida de un tercio de ancho del derecho de vía o sobrepasen la altura del inmueble.
+8) En cercas, cerros, rocas, árboles, farallones que puedan afectar la perspectiva panorámica o la armonía del paisaje.
+9) Usando los mismos colores empleados en las señales de seguridad y señales de tránsito, o cuenten con un diseño que llame a confusión en relación con dichas señales.
+10) Representando peligro porque obstruyan la visibilidad y tránsito vehicular y peatonal, tengan reflectores con efectos intermitentes, que puedan deslumbrar a los conductores o puedan confundirse con las señales de tránsito; porque su ubicación en laderas o terrenos de un nivel más alto de la carretera puedan caerse o ser arrastrados por los vientos sobre las carreteras o edificaciones; o porque no contemplen las características antisísmicas mínimas en lo referente al diseño estructural de los mismos y su sistema de anclaje, incluyendo el análisis del terreno o edificación donde vayan a ser instalados.
+11) Ubicados sobre la línea de propiedad a una altura menor a los 2,50 metros desde el nivel de acera, salvo los rótulos utilizados en vitrinas o de información de salidas de emergencia, accesos para minusválidos y de seguridad.
+12) En zonas residenciales, según lo dispuesto en el Plan Regulador del Cantón, salvo las excepciones dispuestas por reglamentos municipales o leyes especiales.
+13) En contravención de lo dispuesto en Reglamento sobre Control de la Publicidad y Fumado de Cigarrillos, Decreto Ejecutivo Nº 20196 del 13 de diciembre de 1990 y demás normativa vigente.
+14) Sin cumplir con el criterio técnico del Departamento de Operaciones.

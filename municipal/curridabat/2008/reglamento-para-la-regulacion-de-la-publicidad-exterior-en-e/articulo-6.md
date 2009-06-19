@@ -1,0 +1,1 @@
+Artículo 6º—Cuando los rótulos tuvieren estructura que cumplen con las normas de este Reglamento, la Municipalidad podrá legalizarlos cargando el impuesto de construcción respectivo, a la cuenta del propietario del inmueble.
