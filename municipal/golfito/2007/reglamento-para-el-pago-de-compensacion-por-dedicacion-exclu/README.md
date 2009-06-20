@@ -14,3 +14,4 @@ Reglamento para el Pago de Compensación por Dedicación Exclusiva, Prohibición
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-02 | la propia norma |
+| 2 | 2009-06-20 | Reglamento municipal 25 (2009-06-20) |
