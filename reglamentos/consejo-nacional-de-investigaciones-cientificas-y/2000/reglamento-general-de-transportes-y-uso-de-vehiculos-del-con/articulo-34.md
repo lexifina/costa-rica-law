@@ -1,6 +1,0 @@
-De los procedimientos de registro
-Artículo 34.—Se establecen los siguientes procedimientos de registro:
-a) Toda actividad derivada de la administración de los vehículos deberá documentarse y establecerse los registros necesarios. La información generada deberá ser archivada correcta y oportunamente.
-b) Se deberá mantener un registro de firmas de funcionarios encargados de autorizar y solicitar los servicios de transporte, en el cual debe detallarse al menos la siguiente información: Nombre del funcionario, firma y número de cédula, unidad a la que pertenece, puesto que desempeña y la actividad que se le faculta solicitar o autorizar.
-c) Igualmente se debe mantener el correspondiente registro de conductores autorizados para conducir vehículos en donde se detalla: Nombre completo del funcionario, número de cédula, unidad a la que pertenece, puesto que desempeña, tipo de licencia, fecha de expiración de la licencia, si el funcionario presenta restricciones físicas y/o técnicas y si tiene algún antecedente de accidentes de tránsito ocurridos con vehículos de la institución.
-d) Se establecerán los registros necesarios para el control del consumo de combustible, en relación al kilometraje recorrido, las reparaciones y el mantenimiento que permitan determinar el estado mecánico del vehículo y la periodicidad con la que se realizan las reparaciones.

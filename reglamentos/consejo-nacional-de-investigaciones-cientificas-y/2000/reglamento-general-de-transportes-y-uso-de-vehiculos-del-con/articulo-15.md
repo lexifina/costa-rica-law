@@ -1,3 +1,0 @@
-CAPITULO III
-De la organización
-Artículo 15.—Corresponderá al funcionario encargado de los servicios generales, en ausencia de una unidad de transportes del área de administración y finanzas, administrar el servicio de transportes, basado en la disponibilidad de recursos y en las normas reguladoras del servicio estipuladas en el reglamento y la ley de tránsito, así como programar, coordinar y supervisar las tareas tendentes a lograr la optimización del servicio, utilizar el servicio de transporte público si los costos fueran menores o no se cuenta con el número suficiente de unidades, según las normas 312,02, 312,03 y 312,04 del manual sobre Normas Técnicas de la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 38.—Es prohibido que viajen particulares en los vehículos del CONICIT, sin su debida inclusión en la" Solicitud de Autorización de Vehículo" y previa autorización. Los particulares que viajen sin autorización institucional, lo hacen por cuenta propia y asumiendo su propio riesgo en caso de un accidente.

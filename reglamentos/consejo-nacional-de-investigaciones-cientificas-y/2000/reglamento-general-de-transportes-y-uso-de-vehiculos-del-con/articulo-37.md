@@ -1,1 +1,0 @@
-Artículo 37.—Los conductores no pueden por ninguna circunstancia ingerir bebidas alcohólicas, narcotranquilizantes o cualquier otro tipo de droga durante la jornada laboral o fuera de ésta, en el caso de que conduzca vehículos del CONICIT. Asimismo es prohibido fumar dentro de los vehículos de la institución.

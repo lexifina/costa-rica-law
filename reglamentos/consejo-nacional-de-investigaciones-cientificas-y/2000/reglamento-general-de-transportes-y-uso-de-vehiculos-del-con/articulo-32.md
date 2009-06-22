@@ -1,1 +1,0 @@
-Artículo 32.—Es obligación de todo operador de equipo móvil , contar con la licencia atinente a los diferentes tipos de vehículos con que cuenta la Institución de acuerdo a la Norma 313,03 del manual de Normas Técnicas de la Contraloría General de la República.

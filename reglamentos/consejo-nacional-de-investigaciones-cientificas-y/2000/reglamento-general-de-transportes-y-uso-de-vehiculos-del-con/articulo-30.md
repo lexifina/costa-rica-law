@@ -1,1 +1,0 @@
-Artículo 30.—Cualquier alteración de la ruta programada en la "Solicitud de Autorización de Vehículo" será responsabilidad del conductor. Asimismo la determinación de la posibilidad o imposibilidad de circulación del vehículo en malos o inaccesibles caminos y sus consecuencias serán de su responsabilidad.

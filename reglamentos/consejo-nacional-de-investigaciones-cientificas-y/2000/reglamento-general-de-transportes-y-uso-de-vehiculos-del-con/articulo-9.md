@@ -1,1 +1,0 @@
-Artículo 9º—Son vehículos de uso administrativo los no contemplados en el artículo anterior y destinados a prestar servicios regulares de transporte para el desarrollo normal de funciones y actividades de las diferentes dependencias de CONICIT.

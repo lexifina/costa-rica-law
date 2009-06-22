@@ -1,1 +1,0 @@
-Artículo 20.—Sin perjuicio de la fiscalización que realice la Contraloría General de la República y la Auditoría Interna de CONICIT, el Area de Administración y Finanzas, conforme con el Reglamento Autónomo, velará por el fiel cumplimiento de este reglamento.

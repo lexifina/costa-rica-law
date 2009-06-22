@@ -1,1 +1,0 @@
-Artículo 31.—Todos los vehículos, incluso los de uso discrecional, deberán cumplir con los programas de mantenimiento preventivo y correctivo, así como el control de consumo de combustible, kilometraje y diligencias en caso de accidentes de tránsito. Su cumplimiento estará a cargo del Area de Administración y Finanzas.

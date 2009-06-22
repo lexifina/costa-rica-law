@@ -1,3 +1,0 @@
-Horarios de operación
-Artículo 14.—El horario normal de uso de vehículos en días hábiles, estará definido por el horario habitual u ordinario de trabajo de la institución.
-Las funciones que en razón del servicio, por emergencia, circunstancias impostergable y que por imperiosa necesidad deben realizar los funcionarios en el uso de vehículos oficiales en días u horarios distintos a los autorizados normalmente, requerirán de autorización especial extendida por el secretario ejecutivo y en su ausencia por el coordinador del área de administración y finanzas y deberá hacerse constar en la boleta de "Autorización para uso de Vehículos", en el apartado denominado "Observaciones".

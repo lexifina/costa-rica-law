@@ -1,1 +1,0 @@
-Artículo 26.—De conformidad con lo anterior, si se produce la salida de un vehículo que no cumpla con todos los requisitos para tal efecto, será responsabilidad del Oficial de Seguridad, del encargado de transportes, del usuario y de quien dio la orden sin estar autorizado para tal efecto, según lo establecido en este reglamento.

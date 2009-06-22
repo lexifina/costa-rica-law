@@ -1,2 +1,0 @@
-Artículo 11.—Los vehículos de uso administrativo estarán bajo la custodia del Area de Administración y Finanzas, que los tendrá a disposición de las unidades administrativas que así lo requieran, de acuerdo con sus necesidades.
-El control, mantenimiento y gasto de todos los vehículos del CONICIT estará a cargo del Area de Administración y Finanzas, incluso los de uso discrecional, de acuerdo con las normas 311,05 del Manual de Normas Técnicas de la Contraloría General de la República.

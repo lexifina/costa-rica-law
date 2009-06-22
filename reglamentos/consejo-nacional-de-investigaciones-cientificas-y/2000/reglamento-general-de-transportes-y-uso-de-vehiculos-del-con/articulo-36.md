@@ -1,1 +1,0 @@
-Artículo 36.—Los vehículos del CONICIT no podrán ser aparcados por sus conductores frente a zonas estipuladas como prohibidas por la Ley de Tránsito, ni frente a cantinas, tabernas, o similares, ni frente a establecimientos cuya ocupación agreda la moral y las buenas costumbres.
