@@ -1,0 +1,1 @@
+Artículo 24.—Cuando un trabajador reincida en la prohibición establecida en el artículo 17, Inciso a) del presente Reglamento, el jefe inmediato reportara el caso al Departamento de Relaciones Laborales mediante información escrita clara y precisa de los hechos, adjuntando los indicios o pruebas respectivas.
