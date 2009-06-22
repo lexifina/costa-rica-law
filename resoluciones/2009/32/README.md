@@ -13,3 +13,4 @@ Políticas de accesibilidad para las personas con discapacidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-21 | la propia norma |
+| 2 | 2009-06-22 | Circular 67 (2009-06-22) |
