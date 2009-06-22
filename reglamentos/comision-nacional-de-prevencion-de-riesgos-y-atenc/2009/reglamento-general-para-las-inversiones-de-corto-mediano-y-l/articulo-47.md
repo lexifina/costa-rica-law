@@ -1,0 +1,1 @@
+Artículo 47.—En concordancia con lo establecido en los artículos 33 y 43 de este reglamento, deberá conformar un expediente de sesiones debidamente actualizado y foliado, el cual deberá mantener en custodia en los archivos de la Sección de Tesorería.

@@ -1,0 +1,1 @@
+Artículo 15.—Con una periodicidad no mayor a los seis meses la Dirección Administrativa Financiera solicitará a las entidades financieras con las que mantenga un vínculo de inversión, la actualización y soportes de la calificación de riesgo de la cartera total o parcial de inversiones.

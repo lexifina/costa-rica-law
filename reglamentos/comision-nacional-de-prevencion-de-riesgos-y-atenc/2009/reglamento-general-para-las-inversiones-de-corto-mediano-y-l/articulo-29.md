@@ -1,0 +1,1 @@
+Artículo 29.—Los instrumentos financieros adquiridos por la Comisión, podrán ser materializados o desmaterializados. En el caso de que se trate de instrumentos materializados, deberán estar bajo custodia permanente de una entidad especializada en la custodia de valores, la cual deberá ser distinta de la contratada para la compra y venta de ese tipo de instrumentos financieros.

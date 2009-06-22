@@ -1,0 +1,1 @@
+Artículo 22.—El manejo de los recursos financieros, se hará en moneda nacional o extranjera dentro del mercado nacional, a través de cuentas que produzcan rendimientos financieros, tales como cuentas de inversión, ahorro y/o cuentas corrientes remuneradas, y constituyendo una cartera o portafolio de inversiones.

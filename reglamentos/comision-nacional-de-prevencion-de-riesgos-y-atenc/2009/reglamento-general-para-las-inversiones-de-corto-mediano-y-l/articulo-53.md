@@ -1,0 +1,1 @@
+Artículo 53.—La Sección de Contabilidad y Presupuesto en coordinación con la Sección de Tesorería deberán llevar el control de auxiliares debidamente conciliados con los registros contables, de todos los movimientos de inversiones del periodo económico que se trate.

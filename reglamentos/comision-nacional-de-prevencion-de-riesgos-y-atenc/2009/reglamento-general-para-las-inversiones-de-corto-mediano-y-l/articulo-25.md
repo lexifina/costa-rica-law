@@ -1,0 +1,1 @@
+Artículo 25.—El registro de firmas autorizadas para la gestión de la cartera o portafolio de inversiones será la misma que se encuentra aprobada y vigente por la Junta Directiva de la Comisión para quienes ocupan el cargo de la Tesorería, Departamento Financiero Contable, Dirección Administrativa Financiera, Dirección Ejecutiva y la Presidencia.

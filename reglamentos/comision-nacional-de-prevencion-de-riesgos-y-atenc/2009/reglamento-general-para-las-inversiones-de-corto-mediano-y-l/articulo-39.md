@@ -1,0 +1,1 @@
+Artículo 39.—Presentar a la Presidencia de la Comisión alternativas de soporte para el mejoramiento en la toma de decisiones orientadas a la optimización de la cartera o portafolio de inversiones, tales como seminarios, conferencias, charlas, suscripción a boletines o periódicos sobre el mercado financiero y de valores.

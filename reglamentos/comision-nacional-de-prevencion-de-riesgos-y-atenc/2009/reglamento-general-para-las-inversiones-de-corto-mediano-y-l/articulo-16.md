@@ -1,0 +1,1 @@
+Artículo 16.—Cuando se tenga conocimiento de cualquier variación, en cuanto a mayor riesgo en la calificación de éstas por parte de la entidad financiera con la que la Comisión tenga operaciones de inversión, la Dirección Administrativa Financiera advertirá al Comité de Inversiones, para que este tome las previsiones (de haberlas) que el caso requiera.

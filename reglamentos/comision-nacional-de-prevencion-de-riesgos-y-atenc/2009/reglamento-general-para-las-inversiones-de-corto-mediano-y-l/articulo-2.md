@@ -1,0 +1,1 @@
+Artículo 2º—Las modificaciones a este Reglamento se realizarán mediante acuerdo de la Junta Directiva, de conformidad con la fundamentación técnica emitida por la Dirección Ejecutiva, y cumplir con los requisitos de validez.

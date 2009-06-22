@@ -1,0 +1,1 @@
+Artículo 42.—Realizar sesiones extraordinarias, si el caso lo amerita, cada vez que Io solicite la Tesorera, el Jefe Departamento Financiero Contable, sus integrantes, la Presidencia o la Junta Directiva.

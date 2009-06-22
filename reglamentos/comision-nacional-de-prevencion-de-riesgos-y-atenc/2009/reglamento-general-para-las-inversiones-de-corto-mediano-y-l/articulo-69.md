@@ -1,0 +1,2 @@
+5.3 Sanciones
+Artículo 69.—Los funcionarios de la CNE que tienen relación directa o indirecta con el proceso de inversiones, tienen el deber y la obligación de conocer este reglamento. El incumplimiento de lo señalado, será sancionado conforme a lo dispuesto en el Reglamento Autónomo de Servicios y Organización de esta Comisión, así como de las que se derivan de la Ley General de Control Interno y demás normativa que le pueda ser aplicable.

@@ -1,0 +1,1 @@
+Artículo 9º—El artículo 43 de la Ley Nacional de Emergencias y Prevención del Riesgo (Ley 8488), publicada en el Diario Oficial La Gaceta 8 del 11 de enero del 2006, también establece que los recursos que se obtengan de las inversiones del Fondo Nacional de Emergencias, se utilizarán para atender y enfrentar las situaciones de emergencia, prevención y mitigación.

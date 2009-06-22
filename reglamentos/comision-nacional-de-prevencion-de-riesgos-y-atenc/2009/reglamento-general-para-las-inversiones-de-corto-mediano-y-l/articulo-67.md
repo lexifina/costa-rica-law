@@ -1,0 +1,1 @@
+Artículo 67.—Participar de cualquier forma en transacciones relacionadas con cualquier acto ilícito, tales como manipular la liquidez, aparentar ofertas y demandas, para el beneficio propio o de terceros.

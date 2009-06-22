@@ -1,0 +1,1 @@
+Artículo 18.—En el evento de no existir la suficiente disponibilidad de efectivo, de manera excepcional se podrán utilizar los recursos de la cartera de inversiones, previo al análisis de los flujo de caja vigentes y proyectados, incluidos los recursos de portafolio.

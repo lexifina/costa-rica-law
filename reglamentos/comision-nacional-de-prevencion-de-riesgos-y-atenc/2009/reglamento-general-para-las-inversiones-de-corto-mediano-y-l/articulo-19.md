@@ -1,0 +1,1 @@
+Artículo 19.—De ser necesario y con la aprobación de la Dirección Ejecutiva, se podrá contemplar la contratación de terceros expertos del sector financiero para la gestión, valoración, el análisis permanente y optimización de la cartera o portafolio de inversiones.

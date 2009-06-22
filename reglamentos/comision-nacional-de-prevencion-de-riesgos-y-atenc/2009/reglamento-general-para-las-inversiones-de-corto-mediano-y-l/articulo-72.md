@@ -1,0 +1,1 @@
+Artículo 72.—El presente Reglamento fue aprobado por Acuerdo de Junta Directiva de la CNE número 66-2009, sesión extraordinaria 07-09 del viernes 15 de mayo del 2009. El mismo puede ser fortalecido, en cuanto a trámites, procedimientos y mecanismos de control si el caso lo amerita con el fin garantizar el adecuado funcionamiento.

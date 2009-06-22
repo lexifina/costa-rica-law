@@ -1,0 +1,1 @@
+Artículo 54.—En caso de ser necesario, los recursos correspondientes a partidas específicas que se encuentren invertidos deben mantenerse en cuentas separadas identificándose claramente en el detalle, el monto de la inversión y los intereses que se han generado de las mismas.

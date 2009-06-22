@@ -1,0 +1,1 @@
+Artículo 49.—En procura de garantizar una sana administración de los recursos provenientes del Fondo Nacional de Emergencias, el Comité de Inversiones deberá implementar un mecanismo de programación financiera mediante una mezcla o distribución que maximice el rendimiento, la seguridad y la liquidez de los recursos.

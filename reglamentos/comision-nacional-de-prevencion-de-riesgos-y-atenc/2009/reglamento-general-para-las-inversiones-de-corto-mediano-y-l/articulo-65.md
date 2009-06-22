@@ -1,0 +1,1 @@
+Artículo 65.—Utilizar el nombre de terceros para el registro de operaciones en provecho personal, de otros funcionarios de la Comisión o de funcionarios de las entidades con las que se gestionan y controlan las inversiones del Fondo Nacional de Emergencias.

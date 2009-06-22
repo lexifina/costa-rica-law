@@ -1,0 +1,1 @@
+Artículo 6º—Este Reglamento se aplicará para todos los procesos relacionados con la compra, cancelación, negociación, gestión de títulos valores y recursos financieros que conforman la cartera o portafolio de inversiones cuyo titular sea la Comisión.

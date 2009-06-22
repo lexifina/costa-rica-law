@@ -1,0 +1,2 @@
+2.3 Selección de las instituciones financieras
+Artículo 21.—La Comisión podrá gestionar sus operaciones financieras o bursátiles con entidades o instituciones financieras del sector público, emisoras de títulos valores o intermediarias financieras, que sean supervisadas por la Superintendencia General de Entidades Financieras (SUGEF) o la Superintendencia General de Valores (SUGEVAL), o la(s) entidad(es) que asuma(n) sus funciones.

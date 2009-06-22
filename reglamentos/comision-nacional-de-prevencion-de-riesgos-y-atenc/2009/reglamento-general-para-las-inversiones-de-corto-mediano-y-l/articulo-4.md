@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá a las instancias fiscalizadoras o evaluadoras cuando estimen conveniente intervenir, a efecto verificar el adecuado cumplimiento del presente reglamento, emitiendo las disposiciones que el caso requiera de manera que permitan el mejoramiento continuo y fortalecimiento del sistema de control interno y todo Io relacionado con la rendición de cuentas.

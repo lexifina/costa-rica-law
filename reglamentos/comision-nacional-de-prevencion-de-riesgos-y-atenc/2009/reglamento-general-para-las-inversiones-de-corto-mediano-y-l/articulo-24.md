@@ -1,0 +1,1 @@
+Artículo 24.—Es responsabilidad del Comité de Inversiones seleccionar la(s) institución(es) financiera(s) pública(s), con la(s) cual(es), y a través de la(s) cual (es), la Comisión gestionará sus operaciones de inversión, debiendo dejar constancia soportada de esa decisión, mediante expediente debidamente foliado.

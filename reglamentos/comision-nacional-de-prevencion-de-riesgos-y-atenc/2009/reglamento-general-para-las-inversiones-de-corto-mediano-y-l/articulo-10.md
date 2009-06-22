@@ -1,0 +1,1 @@
+Artículo 10.—El artículo 37 del Decreto Ejecutivo 34361-MP, publicado en el Diario Oficial La Gaceta 52 del 13 de marzo del 2008, Reglamento a la Ley Nacional de Emergencias y Prevención del Riesgo, establece que la inversión de los recursos del Fondo Nacional de Emergencias prevista en el artículo 43 de la Ley 8488 estará a cargo de un Comité de Inversiones.

@@ -1,0 +1,1 @@
+Artículo 32.—La participación de los tres (3) miembros del Comité de Inversiones es obligatoria, actuando con voz y voto en el análisis y decisiones en materia de inversión. Será responsabilidad de quien ocupe el cargo de Director Administrativo Financiero, las convocatorias a las sesiones del Comité. Los acuerdos se tomarán por simple mayoría.

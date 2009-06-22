@@ -1,0 +1,2 @@
+3.2 Integrantes.
+Artículo 31.—El Comité de Inversiones de la Comisión estará conformado por quienes ostenten el cargo de Director(a) Ejecutivo(a), el Director(a) Administrativo(a) Financiero(a) y el Jefe(a) del Departamento Legal, de conformidad con lo que estable el artículo 37 del Decreto Ejecutivo 34361-MP, publicado en el Diario Oficial La Gaceta 52 del 13 de marzo del 2008. El funcionario(a) que ocupe el cargo de la Dirección Ejecutiva será quien presida el Comité.

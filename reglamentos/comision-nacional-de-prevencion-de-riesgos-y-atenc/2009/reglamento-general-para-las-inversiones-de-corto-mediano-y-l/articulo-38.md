@@ -1,0 +1,1 @@
+Artículo 38.—Conforme lo establece el Reglamento a la Ley 8488, le corresponde al Comité de Inversiones, informar a la Junta Directiva de la CNE, como mínimo una vez por semestre o cuando esta lo requiera, sobre sus actuaciones, el estado de las inversiones o propuestas innovadoras del sector financiero que sean de interés para la Comisión.

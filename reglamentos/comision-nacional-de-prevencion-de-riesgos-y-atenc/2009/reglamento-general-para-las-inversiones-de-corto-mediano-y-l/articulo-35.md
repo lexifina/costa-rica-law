@@ -1,0 +1,1 @@
+Artículo 35.—A las sesiones del Comité de Inversiones podrán ser invitados con voz y sin derecho a voto, teniendo la potestad de asistir o no a las mismas, los miembros de la Junta Directiva, la Presidencia de la Comisión, el Auditor(a) Interno(a) o cualesquier otro funcionario o asesor que el Comité o ellos mismos consideren conveniente.

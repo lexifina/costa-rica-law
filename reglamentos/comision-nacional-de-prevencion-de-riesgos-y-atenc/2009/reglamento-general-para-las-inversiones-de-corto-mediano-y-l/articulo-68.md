@@ -1,0 +1,1 @@
+Artículo 68.—Incumplir cualquier otra disposición en materia de control, establecida en la Ley 8292 (Ley General de Control Interno) o en Ley 8422 (Ley contra la Corrupción y el Enriquecimiento Ilícito de la Función Pública); que ponga en riesgo la seguridad y el control de la cartera o portafolio de las inversiones del Fondo Nacional de Emergencias.

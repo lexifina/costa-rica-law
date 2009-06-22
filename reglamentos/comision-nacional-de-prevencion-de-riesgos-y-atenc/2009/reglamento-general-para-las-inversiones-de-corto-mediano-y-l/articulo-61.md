@@ -1,0 +1,1 @@
+Artículo 61.—Solicitar a través de la Dirección Administrativa Financiera, los reportes diarios, semanales o mensuales de los informes o estados de cuenta de las entidades contratadas para la gestión y custodia de las inversiones.
