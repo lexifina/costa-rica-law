@@ -1,0 +1,1 @@
+Artículo 19.—Seguimiento y evaluación de la cartera de crédito. El seguimiento de los créditos estará sujeto a las disposiciones y recomendaciones efectuadas por las instancias de fiscalización superior y las que disponga el Banco.
