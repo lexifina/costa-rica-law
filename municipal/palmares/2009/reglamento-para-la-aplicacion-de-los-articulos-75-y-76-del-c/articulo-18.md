@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier disposición omisa, se procederá acudiendo los principios generales del derecho municipal y administrativo, expresados en el Código Municipal y en la Ley General de Administración Pública.

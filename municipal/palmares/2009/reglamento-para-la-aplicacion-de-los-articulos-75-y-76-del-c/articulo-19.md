@@ -1,0 +1,3 @@
+Artículo 19.—El presente Reglamento deroga cualquier disposición reglamentaria o acuerdo municipal, que se le oponga y / o anteriores. La reforma total o parcial de este reglamento requerirá de la aprobación de las dos terceras partes del total de los miembros del Concejo Municipal.
+De conformidad con lo establecido en el artículo 43 del Código Municipal, este reglamento se somete a consulta pública por un lapso de 10 días hábiles, vencido dicho plazo se pronunciará sobre el fondo. Los interesados podrán hacer manifestaciones por escrito ante el Alcalde de esta Municipalidad, una vez pasado ese trámite surtirá todos los efectos y alcances legales correspondientes. Publíquese.
+Palmares, 31 de marzo del 2009.
