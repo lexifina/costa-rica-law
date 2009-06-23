@@ -1,0 +1,1 @@
+Artículo 19.—Deróguese el Decreto Nº 29279-MINAE-MAG, publicado en La Gaceta Nº 30, del 12 de febrero del dos mil uno y el Decreto Ejecutivo Nº 30231 MINAE-MAG publicado en La Gaceta Nº 65 del 4 de abril del dos mil dos.

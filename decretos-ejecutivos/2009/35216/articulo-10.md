@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión se reunirá en forma ordinaria una vez al mes, o en forma extraordinaria cuando lo solicite el Presidente o dos de sus miembros. A estas reuniones asistirán los representantes oficiales designados en el artículo 6.

@@ -1,0 +1,1 @@
+Artículo 3º—Los lineamientos técnicos básicos incluidos en el PAN, así como las estrategias propuestas, servirán de base para la ejecución del Plan Nacional de Uso, Manejo y Conservación de Suelos, en todos los Comités y Planes por Área que se constituyan, posterior a la publicación de este Decreto Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 2º—Considérese y acátese, por parte de la Comisión Técnica Nacional de Uso, Manejo y Conservación de Suelos y por las instancias operativas y descentralizadas del Ministerio de Agricultura y Ganadería, del Sector Agropecuario y del Ministerio de Ambiente, Energía y Telecomunicaciones, este PAN, como el Plan Nacional de Uso, Manejo y Conservación de Suelos.
