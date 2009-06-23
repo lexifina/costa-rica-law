@@ -1,0 +1,1 @@
+Artículo 3º—Proceda el Sistema Nacional de Áreas de Conservación del Ministerio de Ambiente, Energía y Telecomunicaciones, representada por su Director Ejecutivo, a continuar con el procedimiento establecido para la adquisición de dicho inmueble, con especial observancia de los plazos fijados y en estricto apego a lo establecido en la Ley de Expropiaciones y sus reformas.
