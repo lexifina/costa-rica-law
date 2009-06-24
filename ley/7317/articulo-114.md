@@ -1,4 +1,2 @@
-ARTICULO 114.-
-Será sancionado con multa de veinticinco mil doscientos ochenta y nueve colones netos (¢25.289,00), quien tenga en cautiverio, sin autorización, animales silvestres que se encuentren en peligro de extinción o con poblaciones reducidas y con multa de quince mil novecientos setenta y dos colones netos (¢15.972,00); convertible en pena de prisión de cinco a diez días, cuando se trate de animales silvestres que no se encuentran en peligro de extinción ni con poblaciones reducidas. En ambos casos, se decretará el comiso de los animales.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 114.-Será sancionado con multa de un quince por ciento (15%) hasta un treinta por ciento (30%) de un (1) salario base, quien exceda los límites de pesca, en cuanto a tamaños, cantidades, especies, y zonas autorizadas para la pesca.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)

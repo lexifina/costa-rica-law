@@ -1,4 +1,2 @@
-ARTICULO 117.-
-Será sancionado con multa de cuarenta y siete mil novecientos dieciséis colones netos (¢47.916,00), con la pérdida de las cañas, carretes, señuelos y bicheros del equipo correspondiente y con el comiso de las piezas que constituyan el producto de la infracción, quien pesque sin la licencia correspondiente.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 117.-Para el juzgamiento de las contravenciones y los delitos establecidos en esta Ley, se seguirán los trámites instituidos en el Código Procesal Penal.
+(Así reformado por el artículo 2° de la ley N° 8689 de 4 de diciembre de 2008)

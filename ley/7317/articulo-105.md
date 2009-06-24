@@ -1,5 +1,2 @@
-CAPITULO XII
-De las contravenciones
-ARTICULO 105.-
-Se establece la imposición de multas fijas para las infracciones contempladas en este capítulo. Dichas multas deberán ser canceladas por medio de los bancos comerciales del Estado que la autoridad designe, dentro de los quince días siguientes a la notificación de la sentencia.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
+Artículo 105.-Será sancionado con multa de un veinticinco por ciento (25%) hasta un cincuenta por ciento (50%) de un (1) salario base y el comiso de las piezas que constituyan el producto de la infracción, quien importe, sin autorización del Sistema Nacional de Áreas de Conservación, la flora silvestre exótica.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)

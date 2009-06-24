@@ -1,4 +1,3 @@
-ARTICULO 109.-
-Será sancionado con multa de seis mil doscientos cincuenta y seis colones (¢6.256,00), y con el comiso de las piezas que constituyan el producto de la infracción, quien extraiga o comercie, sin autorización, la flora silvestre estipulada en el Reglamento de esta Ley.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 109.-
+Será sancionado con multa de un cincuenta por ciento (50%) hasta un cien por ciento (100%) de un (1) salario base y el comiso de las piezas que constituyan el producto de la infracción, quien, estando autorizado para el ejercicio de la caza, exceda los límites que establezca el Reglamento, en cuanto a número de piezas, tamaños, especies y zonas autorizadas. Igual pena se impondrá a quien, habiendo obtenido permisos para caza de subsistencia o recolecta científica, utilice las piezas obtenidas para fines distintos de los establecidos en la presente Ley y su Reglamento.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008).

@@ -1,9 +1,15 @@
-Artículo 2.- Para los efectos de la presente Ley, se entiende por:
+ARTICULO 2.-
+Para los efectos de la presente Ley, se entiende por:
 Acuario: Depósito de agua artificial donde se tienen animales y vegetales acuáticos vivos. Es un intento de proporcionar un ambiente adecuado, a un grupo determinado de seres vivientes y, de manera secundaria, de mostrar dicha comunidad al observador.
 Areas de manejo de vida silvestre: Areas silvestres que proveen algún grado de manejo y protección a la vida silvestre.
+Áreas oficiales de conservación de la flora y fauna silvestres: áreas silvestres protegidas por cualquier categoría de manejo, áreas de protección del recurso hídrico y cualquier otro terreno que forme parte del patrimonio forestal del Estado.
+(Así adicionado el inciso anterior por el artículo 3° de la ley N° 8689 de 4 de diciembre de 2008).
+Áreas privadas debidamente autorizadas: terrenos privados sometidos al Régimen Forestal, a programas de pago de servicios ambientales, a servidumbres ecológicas o a cualquier otro régimen de conservación acordado por parte de sus propietarios.
+(Así adicionado el inciso anterior por el artículo 3° de la ley N° 8689 de 4 de diciembre de 2008).
 Caza y pesca: La acción, con cualquier fin, de acosar, apresar o matar animales silvestres, así como la recolección de productos o subproductos derivados de estos.
 Cinegético: Arte de cazar alusivo a cualquier criatura o criaturas cazadas para alimento o por deporte.
-Comercio: Actividad de comprar, vender o ejercer el trueque con fines lucrativos.
+Comercio de vida silvestre: Cualquier actividad que implique la compra, la venta, el trueque o la explotación, con fines lucrativos, de la fauna y flora silvestres.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 8689 de 4 de diciembre de 2008).
 Continente: Cada una de las grandes extensiones de tierra separadas por los océanos.
 Embalse: Acumulación de aguas que se da como resultado de la retención que de ellas hace el hombre, generalmente para su mayor aprovechamiento.
 Especie exótica: Organismo introducido en un determinado país y que no es propio de él. Se opone a lo autóctono, endémico o indígena.
@@ -25,6 +31,7 @@ Recolecta científica: La captura o extracción de animales o plantas, sus produ
 Recolecta cultural: La captura o extracción de animales, plantas, sus productos o subproductos, con fines educativos.
 Tránsito: Acción de importar al país, cualquier especie de vida silvestre, con el fin de reexportarla hacia cualquier otro destino, en el menor tiempo posible.
 Trasiego: Acción de mudar, de lugar o de tiempo, una especie o especies determinadas.
-Vida silvestre: Conjunto de la fauna continental e insular que vive en condiciones naturales, temporales o permanentes y de la flora que vive en condiciones naturales en el territorio nacional.
+Vida silvestre: Conjunto de la fauna y flora que viven en condiciones naturales, en el territorio nacional. Incluye, también, los organismos cultivados o criados y nacidos en cautiverio, provenientes de especímenes silvestres, así como las especies exóticas declaradas como silvestres por el país de origen.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 8689 de 4 de diciembre de 2008).
 Zoocriadero: Lugar en el que se trata de propagar o preservar animales fuera de su hábitat natural y donde se trata de involucrar, en el proceso, el control humano, en la selección y elección de los animales que se aparearán en esa población.
 Zoológico: Institución organizada, esencialmente con propósitos educacionales o estéticos, con personal profesional, que utiliza las especies silvestres, cuida de ellas y las exhibe al público de manera permanente.

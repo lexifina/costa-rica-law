@@ -1,4 +1,2 @@
-ARTICULO 104.-
-Será sancionado con multa de sesenta y dos mil ciento cincuenta y ocho colones netos (¢62.158,00) a ciento veintiséis mil ciento setenta y nueve colones netos (¢126.179,00), convertible en pena de prisión de treinta a cuarenta y cinco días y con el comiso de las armas y las piezas que constituyan el producto de la infracción, quien cace especies definidas de caza mayor o menor en tiempo de veda.
-Las multas fijas a las se refieren los artículos anteriores, serán aumentadas anualmente en un diez por ciento.
-(Así actualizados los montos por el artículo 1° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 104.-Será sancionado con multa de un quince por ciento (15%) hasta un treinta por ciento (30%) de un (1) salario base y el comiso de las piezas que constituyan el producto de la infracción, quien extraiga o comercie, sin autorización del Sistema Nacional de Áreas de Conservación, flora silvestre, cuando no se configure un delito o contravención de mayor gravedad.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)

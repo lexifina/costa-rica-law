@@ -1,4 +1,5 @@
-ARTICULO 118.-
-Será sancionado con multa de seis mil doscientos cincuenta y seis colones netos (¢6.256,00), quien exceda los límites de pesca.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+CAPITULO XIII
+Disposiciones generales finales
+Artículo 118.-Cuando en la comisión de las contravenciones y los delitos tipificados en esta Ley, participen funcionarios públicos en el ejercicio o con ocasión de su cargo, los extremos de las penas previstas para cada caso serán aumentados hasta en un tercio. Además, el juez podrá imponer a los infractores, como pena accesoria y en sentencia motivada, la pena de inhabilitación para el ejercicio del cargo, de cuatro (4) a doce (12) años; lo anterior, sin perjuicio de las demás sanciones administrativas, civiles y penales que procedan.
+Los funcionarios públicos que, a pesar de tener conocimiento de conductas que constituyan violaciones a esta Ley y su Reglamento, no tomen las acciones pertinentes, dentro de sus competencias, para detenerlas y procurar el castigo de los responsables, incurrirán en el delito de incumplimiento de deberes y serán sancionados con la pena determinada en el artículo 332 del Código Penal; independientemente de la responsabilidad que pueda derivarse por su participación, en los ilícitos que permitieron.
+(El artículo 118 original fue derogado por el numeral 4° de la ley N° 8689 de 4 de diciembre de 2008, el cual también ordena correr la numeración, por lo que el artículo 122, reformado por el numeral 2° de la misma ley, pasa a ser el 118 actual, quedando nuevamente vigente)

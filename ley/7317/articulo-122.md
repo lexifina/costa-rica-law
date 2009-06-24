@@ -1,4 +1,3 @@
-CAPITULO XIII
-Disposiciones generales finales
-ARTICULO 122.-
-Las autoridades, a las que competa hacer cumplir esta Ley y su Reglamento, serán juzgadas como cómplices y sancionadas con las mismas penas, según sea el caso, cuando se les compruebe que, a pesar de tener conocimiento de sus violaciones, por negligencia o por complacencia, no procuren el castigo de los culpables y permitan la infracción de esta Ley y de su Reglamento. De acuerdo con la gravedad del hecho, los jueces que conozcan de esta Ley, podrán imponerles, como pena adicional, la pena de inhabilitación especial.
+ARTICULO 122.- Las disposiciones de esta Ley no serán aplicadas al ejercicio de la pesca en el mar ni al tratamiento y combate de plagas o enfermedades contagiosas, las que se seguirán rigiendo por las disposiciones vigentes. Tampoco se aplicarán a los agricultores que, en defensa de sus cultivos, maten o destruyan animales silvestres, previa la obtención del respectivo permiso ante la Dirección General de Vida Silvestre del Ministerio de Ambiente, Energía y Telecomunicaciones(*).
+(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+(Así corrida su numeración por el articulo 4° de la ley N° 8689 de 4 de diciembre de 2008, que lo traspasó del numeral 126 al 122 actual).

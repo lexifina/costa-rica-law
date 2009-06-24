@@ -1,5 +1,2 @@
-(De la Fauna)
-ARTICULO 111.-
-Será sancionado con multa de cuarenta y siete mil novecientos dieciséis colones netos (¢47.916,00), con la pérdida de las armas correspondientes y con el comiso de las piezas que constituyan el producto de la infracción, quien cace, sin la licencia correspondiente, especies definidas como de caza mayor o menor.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 111.-Será sancionado con multa de un veinticinco por ciento (25%) hasta un cincuenta por ciento (50%) de un (1) salario base, quien se dedique a la taxidermia o procesamiento, en forma comercial, de pieles de animales silvestres, sin la debida autorización del Sistema Nacional de Áreas de Conservación. Igual sanción sufrirá, quien no lleve el libro de control exigido.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)
