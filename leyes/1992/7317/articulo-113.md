@@ -1,4 +1,2 @@
-ARTICULO 113.-
-Será sancionado con multa de treinta un mil novecientos cuarenta y cuatro colones netos (¢31.944,00), y el comiso de las piezas que constituyan el producto de lainfracción, quien exceda los límites de piezas que establezca el Reglamento.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 113.-Será sancionado con multa de un cincuenta por ciento (50%) hasta dos (2) salarios base, con la pérdida de las cañas, los carretes, los señuelos y los bicheros del equipo correspondiente, y el comiso de las piezas que constituyan el producto de la infracción, quien pesque sin la licencia correspondiente.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)

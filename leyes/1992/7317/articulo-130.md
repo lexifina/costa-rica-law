@@ -1,2 +1,1 @@
-ARTICULO 130.-
-En el caso de los actos ilícitos comprendidos en esta Ley, cuando se trate de personas jurídicas, la responsabilidad se extenderá a su representante legal.
+Artículo 130.- (Nota: El articulo 4° de la ley N° 8689 de 4 de diciembre de 2008, corrió la numeración de este artículo por lo que su texto se encuentra actualmente en el artículo 126)

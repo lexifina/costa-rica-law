@@ -1,4 +1,3 @@
-ARTICULO 110.-
-Será sancionado con multa de quince mil ciento setenta y dos colones netos (¢15.172,00), y con el comiso de las piezas que constituyan el producto de la infracción, quien importe, sin autorización, la flora silvestre exótica.
-(Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 110.-
+Será sancionado con multa de dos (2) a cuatro (4) salarios base, quien tenga en cautiverio, sin autorización del Sistema Nacional de Áreas de Conservación, animales silvestres en peligro de extinción o con poblaciones reducidas, y con multa de un cincuenta por ciento (50%) de un (1) salario base a dos (2) salarios base, cuando se trate de animales silvestres que no se encuentran en peligro de extinción ni con poblaciones reducidas. En ambos casos, se decretará el comiso de los animales.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008).

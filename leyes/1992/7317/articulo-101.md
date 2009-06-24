@@ -1,4 +1,6 @@
-ARTICULO 101.-
-Será sancionado con multa de treinta y un mil novecientos cuarenta y cuatro colones netos (¢31.944,00) a sesenta y dos mil ciento cincuenta y ocho colones netos (¢62.158,00), convertible en pena de prisión de dos a cuatro meses y con el comiso de las piezas producto de la infracción, quien importe animales silvestres, sus productos o despojos, sin el respectivo permiso de la Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía.
-(Así modificado el nombre del Ministerio por el artículo 116 de la Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)
-(Así actualizados los montos por el artículo 1° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+CAPÍTULO XII
+CONTRAVENCIONES
+Artículo 101.-Para efectos de la aplicación de las penas de multa contempladas en este capítulo, el concepto de “salario base” se entenderá como se define en el artículo 2 de la Ley N º 7337, de 5 mayo de 1993.
+Las multas deberán ser canceladas por medio de los bancos comerciales del Estado que la autoridad designe, dentro de los quince (15) días siguientes a la notificación de la sentencia.
+En cuanto a la forma de proceder, en caso de incumplimiento en el pago, se estará a lo dispuesto en el Código Penal sobre esta materia.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008

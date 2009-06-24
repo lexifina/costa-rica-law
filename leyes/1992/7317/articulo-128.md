@@ -1,2 +1,3 @@
-ARTICULO 128.-
-Deróganse las Leyes Nº 4551 y Nº 6919 y cualesquiera otras que se le opongan.
+Artículo 128.-Prohíbese arrojar aguas servidas, aguas negras, desechos o cualquier sustancia contaminante en manantiales, ríos, quebradas, arroyos permanentes o no permanentes, lagos, marismas y embalses naturales o artificiales, esteros, turberas, pantanos, humedales, aguas dulces, salobres o saladas, en sus cauces o en sus respectivas áreas de protección.
+Las instalaciones agroindustriales e industriales, así como las demás instalaciones, deberán estar provistas de sistemas de tratamiento para impedir que los desechos sólidos o las aguas contaminadas de cualquier tipo destruyan la vida silvestre. La certificación de la calidad del agua será dada por el Ministerio de Salud.
+(Así reformado por el artículo 2° de la ley N° 8689 de 4 de diciembre de 2008 y corrida su numeración por el artículo 4° de la misma ley, que lo traspasó del anterior numeral 132 al 128 actual)

@@ -1,5 +1,4 @@
-ARTICULO 95.-
-Será sancionado con multa de ciento cincuenta y ocho mil ciento veintitrés colones netos (¢158.123,00) a trescientos dieciséis mil trescientos setenta y nueve colones netos (¢316.379,00), (*) y con la pérdida del equipo o material correspondiente quien, sin autorización de la Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía, emplee venenos, explosivos, plaguicidas o cualquier otro método capaz de eliminar animales silvestres, en forma tal, que ponga en peligro la subsistencia en la región zoogeográfica del suceso.
-(Así modificado el nombre del Ministerio por el artículo 116 de la Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)
-(*) Texto modificado por resolución de la Sala Constitucional N° 2002-07694 de las 14:49 horas del 07/08/2002.
-(Así actualizados los montos por el artículo 1° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 95.-Quienes comercien, negocien, trafiquen o trasieguen animales silvestres, sus productos y derivados, sin el permiso respectivo del Sistema Nacional de Áreas de Conservación, serán sancionados de la siguiente manera:
+a) Con pena de multa de diez (10) a cuarenta (40) salarios base o pena de prisión de uno (1) a tres (3) años, y el comiso de los animales o productos objeto de la infracción, cuando se trate de especies cuyas poblaciones hayan sido declaradas como reducidas o en peligro de extinción.
+b) Con pena de multa de uno (1) a cinco (5) salarios base o pena de prisión de cuatro (4) a seis (6) meses, y el comiso de los animales o productos que son causa de la infracción, cuando se trate de animales que no se encuentren en peligro de extinción ni con poblaciones declaradas como reducidas.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)

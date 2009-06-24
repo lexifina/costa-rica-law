@@ -1,2 +1,4 @@
-ARTICULO 121.-
-Para el juzgamiento de los delitos y contravenciones establecidos en esta Ley, se seguirán los trámites instituidos en el Código de Procedimientos Penales.
+ARTICULO 121.- Facúltase a la Dirección General de Vida Silvestre del Ministerio de Ambiente, Energía y Telecomunicaciones(*) para establecer montos de venta de por los derechos de ingreso, caza, pesca, recolecta de especies vivas, sus productos o derivados, así como la venta de servicios y concesiones en los refugios nacionales de vida silvestre, siempre y cuando la decisión se sustente con un criterio científico.
+(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+Los fondos generados por tales actividades serán administrados por la Dirección General , mediante el Fondo de Vida Silvestre, conforme se establece en el artículo 11 de esta Ley.
+(El artículo 121 original fue derogado por el numeral 4° de la ley N° 8689 de 4 de diciembre de 2008, el cual también ordena correr la numeración, por lo que el artículo 125 pasa a ser el 121 actual, quedando nuevamente vigente).
