@@ -1,4 +1,5 @@
-Artículo 13.—Del Departamento de Prácticas de Comercio Desleal y Medidas de Salvaguardia. Este Departamento tendrá en materia de comercio desleal, medidas de salvaguardias y en transparencia comercial las siguientes funciones:
+Artículo 13.—Del Departamento de Defensa Comercial. Este Departamento tendrá en materia de comercio desleal, medidas de salvaguardias y en transparencia comercial las siguientes funciones
+(Así reformado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 35446 del 24 de junio de 2009)
 a) Asesorar al Despacho Ministerial y demás instancias del Ministerio en materia de dumping, subsidios e imposición de medidas de salvaguardia.
 b) Asesorar a los sectores productivos nacionales sobre el funcionamiento de la Dirección.
 c) Orientar a los interesados sobre el adecuado uso de los mecanismos internacionales de protección contra las prácticas de comercio desleal y para la imposición de medidas de salvaguardia.
