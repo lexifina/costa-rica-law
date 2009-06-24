@@ -1,4 +1,6 @@
+(Derogado)
 N° 33294
+(Este decreto fue derogado por el artículo 6° del decreto ejecutivo N° 35446 del 24 de junio del 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
 En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 y el artículo 146, de la Constitución Política del 7 de noviembre de 1949; el inciso 2.b) del artículo 28 de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley N° 6054 del 14 de junio de 1977 y el Decreto Ejecutivo N° 33150-MP-MEIC-COMEX-MAG-MOPT-MEPMICIT- MIDEPLAN, del nueve de mayo del dos mil seis.

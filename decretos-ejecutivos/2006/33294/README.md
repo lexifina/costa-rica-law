@@ -14,3 +14,4 @@ Crea Dirección de Competitividad en el Ministerio de Economía, Industria y Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-29 | la propia norma |
+| 2 | 2009-06-24 | Decreto Ejecutivo 35446 (2009-06-24) |
