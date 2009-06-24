@@ -14,3 +14,4 @@ Modifica para el Museo Nacional de Costa Rica el gasto presupuestario máximo fi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-24 | la propia norma |
+| 2 | 2009-06-24 | Decreto Ejecutivo 35359 (2009-06-24) |
