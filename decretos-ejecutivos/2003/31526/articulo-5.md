@@ -1,1 +1,0 @@
-Artículo 5º—Jerarquía interna. El Director General de Hacienda es el máximo jerarca de la Dirección, todo el personal estará subordinado a las órdenes, instrucciones, directrices, recomendaciones y circulares que emita, conforme con lo dispuesto en el artículo 107 y siguientes de la Ley General de la Administración Pública.

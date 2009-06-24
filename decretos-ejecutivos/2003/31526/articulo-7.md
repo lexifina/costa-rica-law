@@ -1,3 +1,0 @@
-CAPÍTULO III
-Del Departamento de Control y Evaluación de la Gestión Tributaria y Aduanera
-Artículo 7º—Objetivo General del Departamento de Control y Evaluación de la Gestión Tributaria y Aduanera. El Departamento de Control y Evaluación de la Gestión Tributaria y Aduanera, tiene como objetivo general controlar y evaluar la gestión tributaria y aduanera que facilite la toma de decisiones y asegure la correcta, oportuna y eficiente gestión de los ingresos públicos y contribuya con el mejoramiento y la modernización de la Administración Tributaria, la transparencia en la función pública y el combate contra la corrupción.
