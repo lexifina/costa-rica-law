@@ -1,0 +1,1 @@
+Artículo 13.—Deróguense el inciso e) del artículo 3; los incisos 4.20) y 4.21) del Artículo 4 e íntegro el artículo 9 del Decreto Nº 33208-H “Reglamento de Organización de la Dirección Administrativa y Financiera del Ministerio de Hacienda”, publicado en La Gaceta N° 138 del 18 de julio del 2006.
