@@ -1,4 +1,4 @@
-ARTICULO 119.-
-Será sancionado con multa de treinta un mil novecientos cuarenta y cuatro colones netos (¢31.944, 00), y con el comiso del equipo y de las piezas que constituyan el producto de la infracción, quien pesque en el tiempo de veda.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+ARTICULO 119.- Todas las armas y equipo decomisados por infracciones a la presente Ley y a su Reglamento, serán puestos a la orden de la autoridad judicial competente, dentro de los ocho días hábiles siguientes. La comprobación de la infracción produce la pérdida de lo decomisado, en favor del Estado.
+La Dirección General de Vida Silvestre del Ministerio de Ambiente, Energía y Telecomunicaciones(*) podrá destruir o utilizar el equipo o los artefactos caídos en comiso, cuando lo considere pertinente. El procedimiento se establecerá en el Reglamento de esta Ley.
+(*)(Modificada su denominación por el artículo 48 de la ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones N° 8660 del 8 de agosto de 2008)
+(El artículo 119 original fue derogado por el numeral 4° de la ley N° 8689 de 4 de diciembre de 2008, el cual también ordena correr la numeración, por lo que el artículo 123 pasa a ser el 119 actual, quedando nuevamente vigente).

@@ -1,4 +1,3 @@
-ARTICULO 108.-
-Será sancionado con multa de treinta y un mil ciento cuarenta y cinco colones netos (¢31.145,00), quien extraiga o comercie, sin autorización, con raíces o tallos de helechos arborescentes.
-( Texto modificado por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00 horas del 1º de abril de 1997 ).
-(Así modificado el monto anterior por el artículo 2° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
+Artículo 108.-Será sancionado con multa de un cincuenta por ciento (50%) hasta un cien por ciento (100%) de un (1) salario base, con el comiso de las armas correspondientes y el comiso de las piezas que constituyan el producto de la infracción, quien cace especies permitidas, pero con armas o proyectiles inadecuados.
+Igual pena se impondrá a quien, estando autorizado para el ejercicio de la caza, no reporte, ante el Sistema Nacional de Áreas de Conservación, las piezas cazadas.
+(Así reformado por el artículo 1° de la ley N° 8689 de 4 de diciembre de 2008)
