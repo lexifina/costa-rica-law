@@ -1,1 +1,0 @@
-Artículo 3º—El objetivo de la oficina es fungir como una unidad técnica que instruya los procedimientos administrativos referentes a la imposición de derechos Antidumping, derechos compensatorios o el uso de medidas de salvaguardia.
