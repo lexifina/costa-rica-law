@@ -1,0 +1,1 @@
+Artículo 2º—Objeto: El Reglamento tiene como objetivo regular el préstamo, el uso y el control de los aparatos y equipos a favor de los beneficiarios para facilitar el mejor desempeño de sus funciones. En las acciones de asignación, uso y control privarán los principios de una sana administración, tales como eficiencia, razonabilidad, proporcionalidad y previsión.

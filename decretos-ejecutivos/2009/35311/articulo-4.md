@@ -1,0 +1,1 @@
+Artículo 4º—Préstamo: Los aparatos y equipos asignados serán prestados única y exclusivamente a los beneficiarios. Los aparatos y equipos no podrán ser prestados a funcionarios de MIDEPLAN que se encuentren prestando servicios en otros órganos, entes o empresas públicas.

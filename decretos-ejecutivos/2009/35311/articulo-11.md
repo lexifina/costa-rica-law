@@ -1,0 +1,1 @@
+Artículo 11.—De la cesación del préstamo: El préstamo de los aparatos y equipos cesará: a) por orden de MIDEPLAN; b) por el vencimiento del plazo establecido para el préstamo; c) cuando los beneficiarios fuesen cesados, trasladados o removidos de su cargos; d) cuando finalicen las circunstancias que motivaron el préstamo; y e) cuando sobrevengan motivos de incumplimiento.

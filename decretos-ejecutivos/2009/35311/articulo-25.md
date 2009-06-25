@@ -1,0 +1,1 @@
+Artículo 25.—Denuncias: Cuando sobrevengan casos de robo, hurto o daños sobre los aparatos y equipos, corresponderá al director ejecutivo denunciar los hechos ante las autoridades jurisdiccionales que correspondan. Los beneficiarios de los aparatos y equipos robados, hurtados o dañados coadyuvarán en todo lo que se requiera.

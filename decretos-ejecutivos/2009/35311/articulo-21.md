@@ -1,0 +1,1 @@
+Artículo 21.—Mantenimiento normal: Cuando los beneficiarios demuestren que han aplicado correctamente medidas de custodia y conservación de los aparatos y equipos prestados y sobrevengan necesidades de practicarles acciones de mantenimiento preventivo y correctivo, la proveeduría institucional se encargará de atender las diligencias que correspondan.

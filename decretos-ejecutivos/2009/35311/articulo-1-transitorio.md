@@ -1,0 +1,2 @@
+Transitorio Único.—La dirección ejecutiva y la proveeduría institucional, una vez que el presente Reglamento entre en vigencia, revisarán los préstamos otorgados de los aparatos y equipos con el propósito de adecuarlos y ajustarlos a las disposiciones establecidas en este Reglamento, para lo cual dispondrán de un plazo de dos meses.
+Dado en la Presidencia de la República.—San José, 27 de mayo del 2009.

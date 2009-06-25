@@ -1,0 +1,1 @@
+Artículo 8º—Aditamentos y accesorios: El préstamo de los aparatos y equipos puede comprender los aditamentos y los accesorios de ellos. Los convenios o las boletas de préstamo deberán describir cuáles aditamentos y accesorios se incluyen en el préstamo.

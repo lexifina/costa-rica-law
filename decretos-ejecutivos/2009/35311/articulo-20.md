@@ -1,0 +1,1 @@
+Artículo 20.—Revisiones periódicas: La proveeduría institucional realizará revisiones periódicas de los aparatos y equipos prestados, con el objeto de verificar su estado de conservación y uso. Los beneficiarios deberán atender cuidadosamente las instrucciones que la proveeduría institucional disponga en ejercicio de sus funciones.

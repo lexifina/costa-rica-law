@@ -1,0 +1,1 @@
+Artículo 18.—Información sobre cobro de tarifas: MIDEPLAN podrá disponer discrecionalmente de toda la información relacionada con el cobro de tarifas por servicios TIC que sean aplicados a los aparatos y equipos prestados.
