@@ -14,3 +14,4 @@ Reglamento del Comité Central de Farmacoterapia de la Caja Costarricense de Seg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-11 | la propia norma |
+| 2 | 2009-06-25 | Reglamento 8360 (2009-06-25) |

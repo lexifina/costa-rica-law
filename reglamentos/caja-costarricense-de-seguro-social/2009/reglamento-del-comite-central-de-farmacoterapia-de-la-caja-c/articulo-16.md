@@ -1,3 +1,4 @@
 Artículo 16.—
-a) La secretaría técnica del Comité Central de Farmacoterapia es permanente y será nombrada por períodos de 2 años por la Gerencia Médica pudiendo prorrogarse dichos nombramientos. Estará ubicada físicamente en el Área de Medicamentos y Terapéutica Clínica de la Dirección de Farmacoepidemiología.
+a) El Secretario Técnico del Comité Central de Farmacoterapia es un funcionario médico del Área de Medicamentos y Terapéutica Clínica de la Dirección de Farmacoepidemiología, nombrado en ese cargo que es un puesto fijo y permanente, por el Director de Farmacoepidemiología en conjunto con el Jefe del Área de Medicamentos y Terapéutica Clínica.
+(Así reformado el inciso anterior en sesión N° 8360 del 25 de junio de 2009)
 b) La Dirección de Farmacoepidemiología por medio de las áreas establecidas, son el órgano ejecutor de las decisiones del Comité Central de Farmacoterapia.
