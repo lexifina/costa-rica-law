@@ -1,0 +1,1 @@
+Artículo 13.—Se denomina voluntario independiente a la persona que sin relación alguna con la Institución, tenga interés en vincularse con el Museo; y se denominará voluntario recomendado a la persona que cuente con el respaldo de una institución educativa o de otro tipo y tenga interés en vincularse con el Museo.

@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que el voluntario deje de colaborar con el Museo sin una causa justificada, no se le permitirá volver a aplicar como voluntario en el Museo durante un período de dos años. Además en caso de pertenecer a alguna institución u organización, se le comunicará a la misma sobre la deserción.

@@ -1,0 +1,8 @@
+Artículo 15.—Para ingresar como voluntario al Museo Nacional se deberá cumplir con los siguientes requisitos:
+a) Los estudiantes de secundaria y universitarios que utilizan las horas de labor voluntaria para cumplir con el denominado “Trabajo Comunal” deberán gestionar su ingreso por medio de una carta de compromiso de su institución académica.
+b) La institución que recomiende a los voluntarios deberá comprometerse por escrito a dar seguimiento a los mismos y hacerse responsable, en forma solidaria, por los daños que estos provoquen a equipos, materiales e instalaciones o cualquier otro.
+c) La institución que recomiende deberá comunicar al Museo el nombre y la vía de comunicación con la persona designada por la organización para dar seguimiento a los voluntarios.
+d) Todo voluntario deberá inscribirse en la Oficina de Recursos Humanos haciendo uso de una boleta de inscripción correspondiente a la cual deberá adjuntar los documentos que correspondan, a saber:
+• Voluntario independiente: Boleta de inscripción con fotografía tamaño pasaporte, currículo Vitae y carta donde manifiesta la razón de su interés de trabajar en el Museo Nacional, el tiempo y horario disponible para el trabajo voluntario.
+• Voluntario recomendado por institución educativa o de otro tipo: carta de recomendación y compromiso de la institución que lo respalda y boleta de inscripción con fotografía tamaño pasaporte, tiempo y horario del voluntario.
+La solicitud, se presentará, a la Oficina de Recursos Humanos, vía fax o correo electrónico, en caso de que no se presente en forma personal o se utilicen los medios de fax o correo electrónico, deberá presentar el original del documento debidamente firmado, antes de incorporarse como voluntario.

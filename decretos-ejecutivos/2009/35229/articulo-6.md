@@ -1,0 +1,1 @@
+Artículo 6º—El cronograma de labores asignadas al voluntario deberá elaborarse siguiendo el formato establecido por el Museo Nacional, teniendo en cuenta que las tareas deberán ajustarse al tiempo que el voluntario solicita estar en el Museo y a las necesidades institucionales.

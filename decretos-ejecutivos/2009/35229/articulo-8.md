@@ -1,0 +1,1 @@
+Artículo 8º—El Departamento de Recursos Humanos llevará un expediente de cada voluntario en el que constará el plan de trabajo, el cronograma, el informe final de cada Jefe de Departamento y los demás documentos que corresponda a cada voluntario. En caso de requerirse certificación alguna, el Departamento de Recursos Humanos elaborará la misma.
