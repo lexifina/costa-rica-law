@@ -1,0 +1,1 @@
+Artículo 9º—Creación de la Secretaria Técnica de Innovación. Constitúyase la Secretaría Técnica de Innovación, que en forma abreviada se conocerá como SETI. Esta secretaria será asumida por la Dirección de Innovación del Ministerio de Ciencia y Tecnología.

@@ -1,0 +1,1 @@
+Artículo 7º—Objetivo de la Comisión Técnica de Innovación Nacional. La Comisión Técnica de Innovación Nacional actuará como un órgano de consulta y apoyo a la gestión de la Secretaría Técnica de Innovación.
