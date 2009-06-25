@@ -1,0 +1,1 @@
+Artículo 2º—Contribución. Las dependencias del Sector Público y del Sector Privado, dentro del Marco Legal respectivo, podrán contribuir con cualquier tipo de recursos, u otros mecanismos de coordinación y colaboración, en la medida de sus posibilidades y competencias, sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de este evento.
