@@ -1,0 +1,1 @@
+Artículo 20.—Limpieza y cercado de predios. De conformidad con el Código Municipal, las personas físicas o jurídicas, propietarias o poseedoras, por cualquier título, de bienes inmuebles, deberán cercarlos y mantenerlos limpios de maleza, objetos, deshechos o materiales contaminantes.

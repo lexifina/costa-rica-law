@@ -1,0 +1,2 @@
+Artículo 16.—En la construcción de aceras se usará únicamente el concreto, colado en sitio o prefabricado, con acabado antideslizante. El uso de adoquín será obligatorio en aquellas zonas cuando por conveniencia de la Administración así fuese requerido. El adoquín podrá ser simulado mediante la técnica del concreto estampado.
+Toda acera cuyo deterioro supere una tercera parte de la totalidad, deberá reconstruirse totalmente.
