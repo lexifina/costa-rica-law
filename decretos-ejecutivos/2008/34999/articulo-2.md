@@ -1,1 +1,2 @@
-Artículo 2º—El Ministerio de Vivienda y Asentamientos Humanos, deberá llevar a cabo dentro de los seis meses siguientes a la vigencia de este Decreto, los trámites pertinentes ante la Notaría del Estado, a efecto de que se proceda a la confección de la escritura pública para la realización de la segregación del área indicada en el artículo anterior.
+Artículo 2º—El Banco Hipotecario de la Vivienda , deberá llevar a cabo dentro de los seis meses siguientes a la vigencia de este Decreto, los trámites pertinentes ante la Notaría del Estado, a efecto de que se proceda a la confección de la escritura pública para la realización de la segregación del área indicada en el artículo anterior.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35444 del 26 de junio de 2009)

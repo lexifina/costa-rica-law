@@ -14,3 +14,4 @@ Asignación de Bien Inmueble
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-03 | la propia norma |
+| 2 | 2009-06-26 | Decreto Ejecutivo 35444 (2009-06-26) |
