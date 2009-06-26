@@ -4,6 +4,6 @@ Artículo 25.—El Área Financiera, de conformidad con lo establecido en el pun
 a) Examen de la magnitud de la deuda.
 b) Existencia o inexistencia de bienes del deudor.
 c) Bienes sobregravados o gravados en exceso.
-d) Costo probable de la ejecución o bien de la interposición de las
-acciones judiciales.
-Indicación de los obstáculos materiales con que se cuenta, tales como deudor no localizable, deudor sin actividades, inexistencia de bienes, deudor en quiebra, documentos sustentorios erróneos. En estos caos y cuando así procediere la Asesoría Jurídica recomendará a la Junta Administrativa, conjuntamente con el Director General, que se declare la incobrabilidad de la deuda, atendiendo al escaso beneficio de su cobro en relación con los costos en que debe de incurrirse para llevar adelante la gestión.
+d) Costo probable de la ejecución o bien de la interposición de las acciones judiciales.
+Indicación de los obstáculos materiales con que se cuenta, tales como deudor no localizable, deudor sin actividades, inexistencia de bienes, deudor en quiebra documentos sustentorios erróneos. En estos casos y cuando así procediere el Departamento Financiero recomendará a la Junta Administrativa que se declare la incobrabilidad de la deuda, atendiendo al escaso beneficio de su cobro en relación con los costos en que debe de incurrirse para llevar adelante la gestión.
+(Así reformado mediante sesión N° 24 del 26 de junio del 2009).

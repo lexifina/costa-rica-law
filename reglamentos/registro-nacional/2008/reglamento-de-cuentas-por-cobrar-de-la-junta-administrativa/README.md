@@ -14,3 +14,4 @@ Reglamento de cuentas por cobrar de la Junta Administrativa del Registro Naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-01 | la propia norma |
+| 2 | 2009-06-26 | Reglamento 24 (2009-06-26) |
