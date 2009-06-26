@@ -1,0 +1,2 @@
+Artículo 30.—Valor del pedido. Cuando a juicio del Departamento Legal no resultare necesaria la formalización de una contratación mediante un documento clausulado, el Pedido emitido por la Proveeduría constituirá el documento idóneo mediante el cual el órgano fiscalizador queda habilitado para iniciar la fiscalización contractual.
+Cuando así proceda, de acuerdo con las normas establecidas en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, de previo al inicio se deberá contar con la aprobación interna del Departamento Legal.

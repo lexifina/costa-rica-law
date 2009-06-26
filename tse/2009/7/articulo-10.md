@@ -1,0 +1,1 @@
+Artículo 10.—Publicación y modificaciones. Corresponderá a la Proveeduría gestionar la publicación del PAPA así como sus eventuales modificaciones conforme a lo que establece la normativa vigente, a fin de satisfacer de mejor manera el interés público.

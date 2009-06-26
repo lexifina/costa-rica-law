@@ -1,0 +1,1 @@
+Artículo 35.—Designación, funciones y atribuciones. La designación, funciones y atribuciones del órgano fiscalizador serán las definidas en el Instructivo de Fiscalización Contractual del TSE vigente, así como las responsabilidades de los funcionarios que actúen como tal.

@@ -1,0 +1,1 @@
+Artículo 27.—Aprobación interna. De conformidad con los supuestos establecidos en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, le corresponderá al Departamento Legal impartir la aprobación interna a las contrataciones según los rangos establecidos por la Contraloría General de la República.

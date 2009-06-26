@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Recepción de mercadería y bienes muebles y trámite posterior
+Artículo 36.—Formalidades del recibo en mercadería. La mercadería adquirida por la Institución deberá ser entregada por el contratista en el Almacén de la Proveeduría, salvo que en el cartel o en el Pedido se prevea otro lugar de entrega, o se trate de bienes o servicios vinculados a proyectos tecnológicos y obras públicas que impliquen la entrega de bienes muebles o inmuebles en un sitio previamente establecido. La recepción estará a cargo de la Unidad de Almacenamiento de la Proveeduría, salvo que por la naturaleza del objeto o las circunstancias, corresponda al órgano fiscalizador.
