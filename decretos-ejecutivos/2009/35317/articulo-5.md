@@ -1,0 +1,1 @@
+Artículo 5º—Para efectos de lo establecido en el artículo anterior, corresponde a las demás dependencias públicas que prestan servicios en los puertos fronterizos, cumplir, ejecutar y apoyar las disposiciones que emita el Gerente de la Aduana respectiva para agilizar y controlar el comercio exterior, sin que ello implique relación jerárquica o en diverso grado.

@@ -1,0 +1,1 @@
+Artículo 2º—Transcurridas las dos horas indicadas en el artículo 1, los vehículos, medios de transporte y mercancías que no hayan sido destinadas a un régimen aduanero, sólo podrán ser sometidas al régimen de tránsito aduanero, o al de depósito fiscal en caso de existir en la jurisdicción de la aduana.
