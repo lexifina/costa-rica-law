@@ -1,1 +1,6 @@
-Artículo 66.—La vigencia de las licencias en los casos a) y c) idos en el artículo 65, será desde la fecha inmediata posterior a la ocurrencia del hecho. En estos casos quedará a criterio de las jefaturas solicitar los documentos comprobatorios de los hechos. En el caso de las licencias que alude el literal b) regirán desde el momento en que se requieran los días y deberá aportar el respectivo dictamen médico, el cual será remitido a la Unidad de Recursos Humanos para los efectos correspondientes.
+(*) CAPITULO XI
+De las vacaciones
+(*) (Así corrida la numeración de este Capítulo por la resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior Capítulo X al Capítulo XI actual)
+Artículo 66.—Los funcionarios de la Contraloría General disfrutarán de una vacación remunerada de quince días hábiles por año. Sin embargo, a partir de los diez años y cincuenta semanas de labores se tendrá derecho a veinte días hábiles de vacaciones por año.
+Transitorio I.—Los funcionarios que ingresaron al servicio de la Contraloría General antes del rige de la presente resolución, conservarán durante el resto de su relación de servicio derecho a que se les apliquen las regulaciones que sobre la fijación de vacaciones se encontraban vigentes a esa fecha.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 56 al 66 actual).

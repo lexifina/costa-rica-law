@@ -1,1 +1,2 @@
-Artículo 41.—Los servidores podrán ausentarse de su lugar de trabajo en situaciones especiales, si cuentan previamente con la autorización de su jefe inmediato. En los casos en que deba mediar el registro de la entrada o salida y ésta se omita, deberá tramitarse la correspondiente boleta de justificación.
+Artículo 41.—Cuando una División, Área, Unidad o la Auditoría Interna se encuentre realizando una revisión del Estudio integral de la cantidad de puestos por clase, suspenderá el traslado de las gestiones de reclasificación o reasignación a la Unidad de Recursos Humanos hasta tanto no se concluya con dicha revisión.
+(Así adicionado por resolución N° R-CO-42-2009 del 29 de junio de 2009)

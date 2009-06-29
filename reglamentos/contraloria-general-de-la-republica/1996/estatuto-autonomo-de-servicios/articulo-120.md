@@ -1,2 +1,3 @@
-Artículo 120.—Los servidores de la Contraloría General estarán protegidos por una póliza de Riesgos del Trabajo.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 121 al 120)
+Artículo 120.—Contra la resolución final que dicte el Director General, el servidor declarado responsable podrá recurrir, dentro del tercer día. mediante revocatoria presentada ante el órgano director del procedimiento y apelación ante el Contralor General de la República: sin embargo, si la sanción proviene del Contralor General, cabrá el recurso de reposición conforme a la Ley Reguladora de la Jurisdicción Contenciosa Administrativa. El acto que agote la vía administrativa deberá contar, de previo, con el dictamen de la Dirección General de Asuntos Jurídicos, la cual deberá emitirlo dentro de los seis días siguientes al recibo de la solicitud del criterio.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 111 al 110)
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 110 al 120 actual).

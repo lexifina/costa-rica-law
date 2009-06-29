@@ -1,5 +1,2 @@
-(*)CAPITULO XIV
-Del Régimen de Sanciones
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XIII al XIV actual)
-Artículo 86.—Los servidores de la Contraloría General de la República estarán sujetos a responsabilidad administrativa cuando, por dolo o culpa grave incurran en algunas de las conductas sancionables según el presente Estatuto, lo cual dará lugar a la imposición de las sanciones disciplinarias correspondientes por parte del Contralor General o de los Directores Generales, según corresponda, sin perjuicio de lo dispuesto en el artículo 15 de la Ley de Salarios y Régimen de Méritos de la Contraloría General de la República.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 87 al 86)
+Artículo 86.—Las licencias para estudio concedidas de acuerdo con lo estipulado en este Estatuto, lo serán por el tiempo necesario para asistir a clases. El servidor deberá presentarse a su trabajo durante los períodos o los días en que no tenga lecciones ni obligaciones adicionales que no pueda diferir relacionadas con sus estudios.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 76 al 86 actual).

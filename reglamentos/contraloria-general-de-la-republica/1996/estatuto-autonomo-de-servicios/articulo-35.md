@@ -1,1 +1,2 @@
-Artículo 35.—Cuando así lo demande la naturaleza del servicio, el horario de trabajo y los períodos de descanso diferentes a los indicados en el Artículo 34, serán definidos y regulados por la Dirección General respectiva, de acuerdo con los tiempos establecidos y la legislación vigente.
+Artículo 35.—El Estudio integral de la cantidad de puestos por clase deberá mantenerse actualizado por las respectivas Divisiones, Áreas o Unidades o la Auditoría Interna.
+(Así adicionado por resolución N° R-CO-42-2009 del 29 de junio de 2009) .

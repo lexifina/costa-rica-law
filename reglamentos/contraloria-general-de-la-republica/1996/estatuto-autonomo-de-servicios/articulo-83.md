@@ -1,22 +1,10 @@
-(*)CAPITULO XIII
-De las prohibiciones
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XII al XIII actual)
-Artículo 83.—Está prohibido a los funcionarios de la Contraloría:
-a) Distraer tiempo de sus horas de Oficina para dedicarlos a asuntos ajenos a la Institución.
-b) Recibir, en forma abusiva, en horas de Oficina visitas o llamadas telefónicas particulares.
-c) Participar en toda actividad político electoral o hacer ostentación partidista, con las salvedades de ley.
-d) Atender negocios particulares de cualquier naturaleza con detrimento de su labor en la Contraloría.
-e) Ocupar útiles, papelería, máquinas, teléfonos y equipos de oficina en beneficio propio o de particulares.
-f) Mantener conversaciones innecesarias con los compañeros en perjuicio o con demora del trabajo que se esté efectuando.
-g) Quebrantar la cordialidad y mutuo respeto que deben ser normas en las relaciones del personal de la Contraloría.
-h) Sacar documentos o activos de la Contraloría para dar cumplimiento a labores de Oficina sin permiso de su superior inmediato. Toda salida de activos deberá hacerse mediante el procedimiento establecido.
-i) Recibir gratificaciones, obsequios, o beneficios de cualquier naturaleza que sean. por razón de sus servicios o que emanen de su intervención como servidores públicos.
-j) Ocuparse de negocios o actividades incompatibles con su condición de empleados de la Contraloría General o que puedan generar dudas de la objetividad e imparcialidad de la Institución.
-k) Asistir al trabajo en estado de embriaguez o bajo otra condición análoga.
-l) Tratar de resolver por medio de la violencia de hecho o de palabra, las dificultades que surjan entre los servidores.
-ll) Hacer colectas, rifas, ventas, compras, cobro por parte de prestamistas entre funcionarios o terceras personas y otros negocios similares dentro de las instalaciones de la Institución, quedan a salvo los casos expresamente autorizados por la Unidad de Recursos Humanos.
-m) Extralimitarse en las funciones o deberes encomendados y tomarse atribuciones que no les corresponden.
-n) Emitir recomendaciones en favor de interesados en ingresar al servicio de la Contraloría General.
-ñ) Ubicar comunicados de cualquier índole en las pizarras informativas de los distintos pisos de la Contraloría, sin contar con la autorización de la Unidad de Recursos Humanos.
-o) Además de las prohibiciones consignadas en este Reglamento, los servidores de la Contraloría General están sujetos también a las demás que establezcan la Ley Orgánica de la Contraloría. Su Reglamento y otras leyes.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 84 al 83)
+Artículo 83.—La Unidad de Recursos Humanos autorizará los permisos de sustitución horaria para que los servidores puedan cursar estudios en centros de enseñanza superior nacionales, siempre que éstas no dan media jornada diaria, máximo dos días a la semana. En el caso de excedan ese lapso serán autorizadas por el Contralor General.
+La concesión de estas licencias se hará previo estudio que al respecto prepare la Unidad de Recursos Humanos. Dichas licencias se gestionarán ante esta Unidad con un mínimo de tres semanas de anticipación a su fecha de rige, y estarán sujetas a lo siguiente:
+a) Que cuenten con la anuencia del jefe inmediato.
+b) Que estén nombrados en propiedad, salvo casos excepcionales autorizados por el Contralor General.
+c) Que los estudios capaciten al servidor para mejorar el desempeño de las funciones de la Contraloría.
+d) Que no se le haya otorgado permiso anteriormente para cursar la misma materia y que, además, haya hecho buen uso de otros permisos que se le pudieren haber concedido para cursar otras asignaturas.
+e) Que el resultado de la calificación anual de servicios, o la correspondiente a los seis meses de período de prueba, no sea inferior a Muy Bueno.
+f) Qué el número de horas semanales que requiere la licencia sea igual o menor a ocho horas, y que la forma en que repondrá el tiempo sea a satisfacción de la Contraloría General.
+g) Que demuestre fehacientemente la imposibilidad de cursar la asignatura sin afectar la jomada laboral.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 73 al 83 actual).

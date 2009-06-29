@@ -1,2 +1,11 @@
-Artículo 108.—El acto final del procedimiento lo dictará el Contralor General de la República, si la sanción a imponer es de suspensión sin goce de salario o despido sin responsabilidad patronal: en los demás casos, será competente el Director General de la unidad administrativa en que labora el servidor. Dicha resolución se notificará en forma personal al servidor o en su defecto mediante telegrama o carta certificada dirigida al lugar señalado para notificaciones. Sólo en caso de que no sea posible practicar la notificación, el acto se comunicara mediante publicación en el Diario Oficial.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 109 al 108)
+Artículo 108.—Las llegadas tardías injustificadas hasta por veinte minutos contados desde la hora de inicio de las labores, durante un mismo mes calendario, se sancionarán de la manera siguiente:
+a) Por cuatro, amonestación verbal.
+b) Por cinco, amonestación escrita.
+c) Por seis. suspensión sin goce de salario hasta por dos días.
+d) Por siete, suspensión sin goce de salario hasta por tres días.
+e) Por ocho. suspensión sin goce de salario hasta por cuatro días.
+f) Por nueve, suspensión sin goce de salario hasta por cinco días.
+g) Por diez, suspensión sin goce de salario hasta por ocho días.
+h) Por más de diez, despido sin responsabilidad patronal.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 99 al 98)
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 98 al 108 actual).

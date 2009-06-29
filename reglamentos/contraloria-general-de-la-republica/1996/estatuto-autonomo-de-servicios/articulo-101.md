@@ -1,6 +1,7 @@
-Artículo 101.—Las ausencias injustificadas computables en un mismo mes calendario, se sancionarán de la manera siguiente:
-a) Por un día de ausencia, suspensión sin goce de salario por dos días.
-b) Por dos días alternos de ausencia, suspensión sin goce de salario por cuatro días.
-c) Por dos días consecutivos de ausencia, suspensión sin goce de salario por ocho días.
-d) Por más de dos días alternos o consecutivos de ausencia, despido sin responsabilidad patronal.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 102 al 101)
+Artículo 101.—La suspensión del trabajo por un máximo de ocho días sin goce de sueldo se aplicará en los casos siguientes:
+a) Cuando el servidor después de haber sido amonestado por escrito. incurra nuevamente en la falta que motivó dicha sanción, salvo sanción diferente prevista en este Estatuto.
+b) Cuando el servidor viole en forma notable alguna de las obligaciones o prohibiciones de este Estatuto; o cuando reincida en una falta después de habérsele sancionado con "amonestación escrita"; o cuando reincida en una falta que haya ameritado suspensión sin goce de sueldo menor a ocho días.
+c) Cuando estando la falta contemplada entre los causales de despido, el Contralor General discrecionalmente y en atención a circunstancias muy especiales, disponga no aplicar el despido.
+d) En los casos previstos por este Estatuto.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 92 al 91)
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 91 al 101 actual).

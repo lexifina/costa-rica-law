@@ -1,1 +1,5 @@
-Artículo 75.—Todo servidor que asista a un curso de adiestramiento con goce de sueldo y cuya duración sea igual o superior a tres meses, estará obligado a suscribir un contrato con la Institución, mediante el cual se comprometerá a prestar sus servicios en la Contraloría General por un lapso igual a tres veces al de la licencia concedida, además de cumplir con las obligaciones que se determinen en el contrato respectivo.
+Artículo 75.—Los servidores disfrutaran de licencia con goce de salario, previa comunicación a los jefes respectivos, en los siguientes:
+a) Por siete días naturales, en caso de su matrimonio y cuando sobrevenga el fallecimiento de cualquiera de sus padres, hermanos, hijos o cónyuge.
+b) Por cinco días naturales en caso de enfermedad grave de los parientes citados.
+c) Tratándose de varones dos días naturales por nacimiento de hijos.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 65 al 75 actual).

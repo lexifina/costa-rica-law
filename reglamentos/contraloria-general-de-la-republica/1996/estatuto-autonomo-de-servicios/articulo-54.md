@@ -1,5 +1,2 @@
-(*)CAPITULO IX
-De los días feriados y de descanso
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo VIII al IX actual)
-Artículo 54.—Se considerarán días feriados aquellos que sean indicados por ley y los que el Poder Ejecutivo declare de asueto.
-Podrá trabajarse en los días no hábiles, siempre y cuando ello fuere necesario y según lo regulado en el artículo 151 del Código de Trabajo.
+Artículo 54.—Los servidores que efectúan sus registros para el control de asistencia y puntualidad tendrán derecho a justificar mediante la boleta respectiva, ante su superior inmediato, las irregularidades en dicho registro en que pudieren incurrir. Para ello, dispondrán de tres días hábiles a partir del día siguiente en que ocurrió la inconsistencia. Vencido este plazo y si la hubiere, la jefatura respectiva deberá remitir la justificación durante el día hábil siguiente a la Unidad de Recursos Humanos. Lo dispuesto en este artículo será también aplicable al trámite de las boletas de vacaciones.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 44 al 54 actual).

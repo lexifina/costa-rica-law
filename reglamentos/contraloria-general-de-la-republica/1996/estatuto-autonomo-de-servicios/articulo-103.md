@@ -1,5 +1,4 @@
-(*)CAPITULO XV
-Del procedimiento administrativo disciplinario
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XIV al XV actual)
-Artículo 103.—Toda sanción que corresponda con arreglo a lo dispuesto en este Estatuto, será impuesta previa formación del expediente administrativo y audiencia suficiente conferida al servidor, para que haga valer su derecho de defensa en forma razonable y ofrezca la prueba que estime necesaria. La omisión de tales garantías fundamentales al debido proceso, causara la nulidad absoluta de todo lo actuado.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 104 al 103)
+Artículo 103.—La reincidencia para efectos de aplicar las sanciones se computará en un período de tres meses; salvo los casos de reincidencia previstos en los artículos 98 y 101, referentes a la sanción impuesta por hacer la marca en el registro de asistencia y puntualidad de otro servidor y la no comunicación por parte de un servidor ante una ausencia. La reincidencia será contada a partir del mes en que se le impuso una sanción por la misma causa. En este caso. el servidor responsable se hará acreedor de la sanción inmediata superior, respecto de la que se le había impuesto.
+Las sanciones por una misma causa que se presenten en un mismo mes calendario serán acumulativas.
+(Así reformado por acuerdo tomado en sesión N° 19 de 16 de octubre de 1996, y posteriormente modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 94 al 93)
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 93 al 103 actual).

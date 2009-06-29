@@ -1,4 +1,2 @@
-(*)CAPITULO VIII
-De las ausencias y abandono del trabajo
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo VII al VIII actual)
-Artículo 48.—Se considera ausencia la inasistencia a un día completo de labor, o una llegada tardía por un lapso igual o superior a media jornada.
+Artículo 48.—El trabajo remunerado por realizar fuera de la jornada ordinaria solo podrá ser autorizado en situaciones excepcionales.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 38 al 48 actual).

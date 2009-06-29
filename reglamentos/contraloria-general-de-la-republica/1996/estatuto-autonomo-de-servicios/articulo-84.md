@@ -1,2 +1,3 @@
-Artículo 84.—El incumplimiento de las obligaciones y prohibiciones contenidas en el presente capítulo, se sancionará de conformidad con la gravedad de la falta, según lo establecido en el capítulo de sanciones.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 85 al 84)
+Artículo 84.—El otorgamiento de una licencia para estudios con goce de salario, cuando el servidor, por razones de trabajo, no pueda reponer el tiempo o cuando a juicio de la jefatura respectiva sea inconveniente la reposición planteada, queda sujeto a un estudio técnico dirigido al Contralor General y a la posterior elaboración de un contrato. ambos preparados por la Dirección General del Centro de Capacitación.
+Dicho contrato debe garantizar entre otros aspectos la reposición del tiempo posteriormente al término de la licencia.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 74 al 84 actual).

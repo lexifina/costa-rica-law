@@ -1,1 +1,5 @@
-Artículo 63.—Está prohibido a los funcionarios tomar adelantados días o períodos de vacaciones; pero podrán disfrutar de días proporcionales al tiempo laborado, a razón de uno por mes trabajado. Solo podrá disfrutar una proporcionalidad mayor, hasta el total, según el lapso del período servido, cuando sea autorizado por las jefaturas de la Institución presencia de razones muy justificadas para ello.
+Artículo 63.—Se considerara abandono del trabajo por parte del servidor en los casos siguientes:
+a) Ausentarse del lugar de trabajo sin causa justificada dentro de la jornada correspondiente.
+b) Dejar de hacer de modo evidente la labor que le ha sido encomendada.
+c) Salir antes de la finalización de la jornada de trabajo sin causa justificada.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 53 al 63 actual).

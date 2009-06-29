@@ -1,6 +1,2 @@
-CAPITULO X
-De las vacaciones
-(Así reformado mediante resolución R-SC-04 del 7 de julio de 2006)
-Artículo 56.—Los funcionarios de la Contraloría General disfrutarán de una vacación remunerada de quince días hábiles por año. Sin embargo, a partir de los diez años y cincuenta semanas de labores se tendrá derecho a veinte días hábiles de vacaciones por año.
-Transitorio I.—Los funcionarios que ingresaron al servicio de la Contraloría General antes del rige de la presente resolución, conservarán durante el resto de su relación de servicio derecho a que se les apliquen las regulaciones que sobre la fijación de vacaciones se encontraban vigentes a esa fecha.
-(Así reformado mediante resolución R-CO-53 de 23 de noviembre de 2007).
+Artículo 56.—En cuanto a aquellos servidores que deban normalmente registrar sus entradas y salidas para efectos del control de asistencia, pero que por la naturaleza de su trabajo se encuentran destacados en sitios diferentes a la sede de la Contraloría, bastará que sea informado así a la Unidad de Recursos Humanos en los cinco primeros días hábiles de cada mes siguiente al lapso que estuvo ausente, para que conste la respectiva justificación. Asimismo, estos servidores deberán registrar sus ingresos y salidas de la sede de la Contraloría cuando tuvieren que hacerse presentes en ésta por cualquier razón.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 46 al 56 actual).

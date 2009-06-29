@@ -1,1 +1,2 @@
-Artículo 69.—Los Jerarcas de la Institución en situaciones especiales previo informe de la Unidad de Recursos Humanos, podrán conceder licencias sin goce de salario por plazos diferentes a los indicados y sin sujeción a la antigüedad prevista en el artículo precedente.
+Artículo 69.—Los servidores disfrutaran en forma continua de al menos una tercera parte del periodo de vacaciones que le corresponde, y las jefaturas deberán informar a la Unidad de Recursos Humanos utilizando el Programa Anual de Vacaciones, las fechas en que cada servidor disfrutara en el año siguiente de esa parte continua de vacaciones.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 59 al 69 actual).

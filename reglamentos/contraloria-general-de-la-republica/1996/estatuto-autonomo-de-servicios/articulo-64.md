@@ -1,5 +1,6 @@
-(*)CAPITULO XI
-De las licencias
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo X al XI actual)
-Artículo 64.—Las licencias que se concedan a los servidores s sin goce de salario, con excepción de las expresamente autorizadas pare Estatuto y en aquellos casos previstos en la legislación vigente.
-En casos muy calificados el Contralor General, podrá licencias diferentes a las mencionadas.
+(*) CAPITULO X
+De los días feriados y de descanso
+(*) (Así corrida la numeración de este Capítulo por la resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior Capítulo IX al Capítulo X actual)
+Artículo 64.—Se considerarán días feriados aquellos que sean indicados por ley y los que el Poder Ejecutivo declare de asueto.
+Podrá trabajarse en los días no hábiles, siempre y cuando ello fuere necesario y según lo regulado en el artículo 151 del Código de Trabajo.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 54 al 64 actual).

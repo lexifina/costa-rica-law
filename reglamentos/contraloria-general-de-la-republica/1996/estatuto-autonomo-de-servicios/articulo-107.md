@@ -1,2 +1,5 @@
-Artículo 107.—El órgano director es el responsable de la correcta sustanciación del procedimiento. Deberá velar porque se haga llegar al mismo toda la evidencia pertinente para asegurar la obtención de la verdad real de los hechos con celeridad y eficiencia, todo ello con el correlativo respeto a los derechos de las partes.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 108 al 107)
+Artículo 107.—El servidor que efectúe el registro de asistencia de otro sin estar autorizado expresamente para ello, incurrirá en falta grave, y se hará acreedor a las sanciones siguientes:
+a) La primera vez. suspensión sin goce de salario por ocho días.
+b) La segunda vez, despido sin responsabilidad patronal.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 98 al 97)
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 97 al 107 actual).

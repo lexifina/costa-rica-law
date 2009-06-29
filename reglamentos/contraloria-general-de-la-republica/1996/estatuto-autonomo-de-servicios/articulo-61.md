@@ -1,1 +1,2 @@
-Artículo 61.—El lapso de incapacidad por enfermedad o riesgo de trabajo, y en los casos de licencias por maternidad, no se tomará en cuenta para deducirlo del período de vacaciones que le corresponde a los servidores.
+Artículo 61.—El servidor deberá notificar a su superior inmediato la causa de su ausencia al trabajo en el mismo día en que esta ocurra. Sólo en casos de fuerza mayor, u otras circunstancias análogas debidamente comprobadas que lo justifiquen, podrá notificar hasta el momento en que desaparezcan las causas que le impidieron hacerlo oportunamente.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 51 al 61 actual).

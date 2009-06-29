@@ -1,2 +1,2 @@
-Artículo 50.—Las justificaciones de ausencias por enfermedad deben ser acompañadas por el correspondiente certificado de incapacidad emitido por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.
-No obstante, si la ausencia es hasta por dos días. la justificación puede presentarse con el visto bueno del superior respectivo. En el caso de Certificados Médicos particulares éstos se aceptarán hasta por un máximo de tres días.
+Artículo 50.—No se reconocerá como jornada extraordinaria aquella que no hubiere sido autorizada conforme al artículo precedente, ni el tiempo que ocupe el servidor para subsanar sus propios errores.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 40 al 50 actual).

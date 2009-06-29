@@ -1,5 +1,7 @@
-(*)CAPÍTULO V
-De la jornada de trabajo
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo IV al V actual)
-Artículo 33.—La jornada ordinaria de trabajo para los servidores en general -incluyendo a los trabajadores auxiliares A (choferes)-, no podrá ser mayor de ocho horas diurnas, siete horas mixtas, y seis nocturnas: esto es, cuarenta, treinta y cinco y treinta horas por semana, respectivamente.
-De conformidad con lo regulado en el Artículo 136 del Código de Trabajo, puede convenirse una jornada diurna hasta de diez horas y una jornada mixta de hasta ocho horas, siempre que el trabajo semanal no exceda de las cuarenta y treinta y cinco horas, según corresponda.
+(*) CAPÍTULO V
+DEL SISTEMA DE CLASIFICACIÓN Y DE LOS ESTUDIOS
+DE PUESTOS
+(*) (Adicionado este Capítulo por resolución N° R-CO-42-2009 del 29 de junio de 2009)
+Artículo 33.—El Manual de Actividades Ocupacionales y el Manual Descriptivo de Puestos son los instrumentos oficiales que contienen el conjunto de funciones, deberes, responsabilidades, atribuciones y requisitos de los distintos puestos sin que su enumeración sea limitativa de los deberes inherentes a los mismos conforme a su naturaleza.
+En consecuencia, no podrá reclasificarse o reasignarse ningún puesto si no es conforme a las clases contempladas en dichos manuales, los cuales de ser necesario deberán ajustarse de previo a la resolución final de reclasificación o reasignación.
+(Así adicionado por resolución N° R-CO-42-2009 del 29 de junio de 2009).

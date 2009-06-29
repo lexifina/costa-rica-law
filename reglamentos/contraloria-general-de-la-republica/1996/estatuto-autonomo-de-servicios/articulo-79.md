@@ -1,1 +1,2 @@
-Artículo 79.—Los contratos con o sin goce de salario para cursar estudios académicos, cuando el interés institucional lo requiera, serán preparados por la Dirección General del Centro de Capacitación y controlados en sus alcances por la Unidad de Recursos Humanos.
+Artículo 79.—Los Jerarcas de la Institución en situaciones especiales previo informe de la Unidad de Recursos Humanos, podrán conceder licencias sin goce de salario por plazos diferentes a los indicados y sin sujeción a la antigüedad prevista en el artículo precedente.
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 69 al 79 actual).

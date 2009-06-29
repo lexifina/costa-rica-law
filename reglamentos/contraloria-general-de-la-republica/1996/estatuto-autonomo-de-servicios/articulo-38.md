@@ -1,1 +1,2 @@
-Artículo 38.—El trabajo remunerado por realizar fuera de la jornada ordinaria solo podrá ser autorizado en situaciones excepcionales.
+Artículo 38.—La reasignación hacia un nivel inferior se podrá dar cuando el funcionario haya consentido por al menos durante un (1) año que se le asignen funciones de menor nivel de responsabilidad. No cabe la reasignación en descenso cuando la variación de las funciones haya sido objetada formalmente por escrito por el funcionario y se encuentren pendientes de resolver reclamos en sede administrativa o judicial por él interpuestos.
+(Así adicionado por resolución N° R-CO-42-2009 del 29 de junio de 2009) .

@@ -1,8 +1,3 @@
-CAPITULO XVII
-De la seguridad e higiene del trabajo
-(*)(Así variada la numeración del capítulo anterior mediante resolución R-SC-04 del 7 de julio de 2006, que lo traspaso del antiguo capítulo XVI al XVII actual)
-Artículo 118.—La Contraloría General propiciará y adoptara las medidas necesarias para proteger eficazmente la vida. la salud, la integridad corporal y la moralidad de sus servidores, y mantener en estado adecuado lo relativo a:
-a) Edificaciones, instalaciones, equipo y condiciones ambientales, así como proveer los instrumentos necesarios para realizar su trabajo.
-b) Las actividades y procesos de trabajo.
-c) El suministro, uso y mantenimiento de protección personal; y el promover la capacitación de su personal en materia de higiene y seguridad ocupacional.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 119 al 118)
+Artículo 118.—El acto final del procedimiento lo dictará el Contralor General de la República, si la sanción a imponer es de suspensión sin goce de salario o despido sin responsabilidad patronal: en los demás casos, será competente el Director General de la unidad administrativa en que labora el servidor. Dicha resolución se notificará en forma personal al servidor o en su defecto mediante telegrama o carta certificada dirigida al lugar señalado para notificaciones. Sólo en caso de que no sea posible practicar la notificación, el acto se comunicara mediante publicación en el Diario Oficial.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 109 al 108)
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 108 al 118 actual).

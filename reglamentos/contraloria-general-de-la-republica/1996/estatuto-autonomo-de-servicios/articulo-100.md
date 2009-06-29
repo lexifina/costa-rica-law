@@ -1,5 +1,7 @@
-Artículo 100.—Los servidores que no comuniquen su ausencia el mismo día, o no demuestren adecuadamente la existencia de un caso de tuerza mayor que se lo impida o no lo haga en el momento en que los hechos que motiven la no comunicación desaparezcan, así como aquellos que emitieren argumentos falsos debidamente comprobados para ausentarse de su trabajo, serán sancionados de la forma siguiente:
-a) La primera vez. suspensión sin goce de salario por dos días.
-b) La segunda vez, suspensión sin goce de salario por ocho días.
-c) La tercera vez. despido sin responsabilidad patronal.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 101 al 100)
+Artículo 100.—La amonestación escrita se aplicara:
+a) Cuando se haya amonestado al servidor en los términos del artículo precedente e incurra nuevamente en la misma falta.
+b) Cuando el servidor incumpla alguna de las obligaciones i prohibiciones estipuladas en los capítulos XI y XII de este Estatuto, siempre y cuando la falta no diera méritos para una sanción diferente.
+c) Cuando el ordenamiento jurídico exija la amonestación escrita ante' que una sanción mayor.
+d) En los otros casos previstos por este Estatuto.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 91 al 90)
+(Así corrida su numeración por Resolución N° R-CO-42-2009 del 29 de junio de 2009, que lo traspasó del anterior artículo 90 al 100 actual).
