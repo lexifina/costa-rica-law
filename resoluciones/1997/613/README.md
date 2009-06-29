@@ -14,3 +14,4 @@ Dicta directrices para la aplicación del Reglamento a la Ley Forestal en cuanto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-08-12 | la propia norma |
+| 2 | 2009-06-29 | Resolución 39 (2009-06-29) |
