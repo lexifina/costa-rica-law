@@ -1,0 +1,1 @@
+Artículo 39.—Constitución de préstamos. La entidad de compensación y liquidación, en su condición de fiduciaria, puede suscribir líneas de crédito con las entidades financieras de su elección, para lo cual puede dar en garantía los valores que formen parte del fondo.

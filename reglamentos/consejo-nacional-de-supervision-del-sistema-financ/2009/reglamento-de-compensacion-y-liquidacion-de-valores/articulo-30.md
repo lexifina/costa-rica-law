@@ -1,0 +1,4 @@
+Artículo 30.—Aportes en caso de autorización de nuevos miembros liquidadores, fusión y desinscripción. La autorización de nuevos miembros liquidadores está condicionada a un aporte inicial por parte de la sociedad respectiva, cuya metodología de cálculo debe estar establecida en el reglamento operativo de la entidad de compensación y liquidación.
+En caso de fusión, los recursos aportados por el miembro liquidador que desaparece deben ser contabilizados a favor del prevaleciente.
+En el caso de la desinscripción de un miembro liquidador, su aporte debe mantenerse depositado en el fondo hasta que se haya liquidado la totalidad de los contratos bursátiles por cuya cancelación es responsable.
+En todos los casos anteriores, la entidad de compensación y liquidación debe establecer los mecanismos necesarios para la realización de ajustes a los montos depositados por los participantes, de forma que se cumpla con el principio de proporcionalidad del fondo.

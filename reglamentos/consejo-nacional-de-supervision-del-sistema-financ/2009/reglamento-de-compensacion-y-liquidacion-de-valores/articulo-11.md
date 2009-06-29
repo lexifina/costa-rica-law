@@ -1,0 +1,1 @@
+Artículo 11.—Plazos de liquidación de los contratos bursátiles. Los contratos bursátiles realizados en los mercados organizados deben liquidarse en los plazos establecidos reglamentariamente por las respectivas bolsas de valores para cada tipo de operación.

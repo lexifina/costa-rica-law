@@ -1,0 +1,1 @@
+Artículo 52.—Suscripción y transmisión de acciones. De conformidad con la Ley Reguladora del Mercado de Valores, la suscripción y transmisión de acciones de una sociedad de compensación y liquidación deben ser aprobadas previamente por la Superintendencia.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+Préstamo o compra de valores
+Artículo 20.—Incumplimiento en la entrega de valores en la liquidación de los contratos bursátiles. En el caso de que no se puedan entregar los valores a la parte compradora, la entidad de compensación y liquidación respectiva debe establecer en el reglamento operativo, los mecanismos para la solución del incumplimiento en el proceso de liquidación de los contratos bursátiles; así como el plazo y los horarios para su activación y para la solución del posible incumplimiento. Esto sin perjuicio de las sanciones que corresponda aplicar a la Superintendencia General de Valores.
+El incumplimiento en la liquidación de un contrato bursátil debe ser comunicado a la Superintendencia por las entidades de compensación y liquidación, de conformidad con las instrucciones que emita el Superintendente mediante acuerdo de alcance general.

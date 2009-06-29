@@ -1,0 +1,2 @@
+Artículo 38.—Inversión de los recursos del fondo. Los recursos del fondo deben ser invertidos en títulos negociables a través de los mercados de dinero, de manera que puedan hacerse efectivos el mismo día en que sea necesaria su utilización.
+Sin perjuicio de lo anterior, se debe mantener un coeficiente de liquidez, cuyos recursos deben invertirse en activos líquidos, de conformidad con lo que establezca la entidad de compensación y liquidación respectiva, en el reglamento operativo.

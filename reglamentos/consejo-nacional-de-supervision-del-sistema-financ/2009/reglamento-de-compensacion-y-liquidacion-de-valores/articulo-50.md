@@ -1,0 +1,2 @@
+Artículo 50.—Plazo máximo para inicio de operaciones. Las sociedades de compensación y liquidación deben iniciar operaciones en un plazo máximo de seis meses contados a partir de la notificación de la carta de cumplimiento de requisitos finales; de lo contrario, esta caducará. La autorización no es transferible ni gravable.
+La Superintendencia puede realizar inspecciones “in situ” para verificar el cumplimiento de los requisitos.

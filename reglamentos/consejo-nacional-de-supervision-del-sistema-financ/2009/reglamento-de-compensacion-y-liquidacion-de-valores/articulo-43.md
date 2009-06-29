@@ -1,0 +1,1 @@
+Artículo 43.—Auditoría anual de los estados financieros del Fondo. Cada entidad de compensación y liquidación, en su condición de fiduciaria, debe someter los estados financieros del Fondo a una auditoría externa anual. Dicha auditoría debe realizarse de conformidad con el Reglamento de Auditores Externos emitido por el Consejo Nacional de Supervisión del Sistema Financiero.

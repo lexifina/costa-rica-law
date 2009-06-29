@@ -1,0 +1,1 @@
+Transitorio I.—Bolsas de valores que llevan a cabo la actividad de compensación y liquidación. La Bolsa Nacional de Valores S. A. cuenta con un plazo de tres meses a partir de la entrada en vigencia del presente Reglamento, para cumplir con las disposiciones establecidas en esta normativa, excepto el Capítulo VI.

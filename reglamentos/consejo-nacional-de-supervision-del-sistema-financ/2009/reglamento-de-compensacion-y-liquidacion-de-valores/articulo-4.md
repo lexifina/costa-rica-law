@@ -1,0 +1,2 @@
+Artículo 4º—Miembros liquidadores. Pueden ser miembros liquidadores de las entidades de compensación y liquidación, los puestos de bolsa y los bancos inscritos en el Registro Nacional de Valores e Intermediarios como entidades de custodia autorizadas.
+Asimismo puede ser miembros liquidadores, las instituciones públicas que cumplan con los requisitos especiales que, para el efecto, la Superintendencia establezca mediante acuerdo de alcance general.

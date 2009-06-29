@@ -1,0 +1,1 @@
+Transitorio IV.—Participación directa de los puestos de bolsa en la liquidación bursátil a través de sus cuentas en SINPE. A partir de la entrada en vigencia del presente Reglamento, los puestos de bolsa cuentan con un plazo de un mes, para realizar los trámites pertinentes para efectos de participar directamente en la liquidación bursátil, a través de sus cuentas en SINPE.

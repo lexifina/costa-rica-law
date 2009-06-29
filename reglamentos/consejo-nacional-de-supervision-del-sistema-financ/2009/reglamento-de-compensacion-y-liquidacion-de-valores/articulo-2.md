@@ -1,0 +1,1 @@
+Artículo 2º—Trámite de la liquidación. La liquidación de los contratos bursátiles, incluyendo los generados en las operaciones de reporto tripartito realizados en los mercados de valores organizados por las bolsas de valores, deberá realizarse por medio del Sistema de compensación y liquidación de valores.

@@ -1,0 +1,1 @@
+Artículo 35.—Cargos por uso del fondo. La entidad de compensación y liquidación debe establecer en el reglamento operativo la estructura de costos financieros y administrativos que deben cubrir los miembros liquidadores, con motivo de la activación del fondo de garantía.

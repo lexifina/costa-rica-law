@@ -1,0 +1,1 @@
+Artículo 16.—Servicios. Las entidades de compensación y liquidación no pueden discriminar en la prestación del servicio de compensación y liquidación a los miembros liquidadores que no sean accionistas de la entidad.

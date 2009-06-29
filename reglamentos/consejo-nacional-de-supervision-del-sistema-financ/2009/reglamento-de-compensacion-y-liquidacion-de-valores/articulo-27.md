@@ -1,0 +1,2 @@
+Artículo 27.—Aportes ordinarios de los miembros liquidadores. Los miembros liquidadores están obligados a realizar los aportes necesarios para alcanzar el monto requerido en el Artículo anterior. Dichos aportes deben ser proporcionales a su participación en la liquidación bursátil.
+La entidad de compensación y liquidación debe establecer mediante el reglamento operativo un monto de aporte mínimo por parte de los miembros liquidadores.
