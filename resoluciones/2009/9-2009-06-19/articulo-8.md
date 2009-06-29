@@ -1,0 +1,1 @@
+Artículo 8º—Derogatoria. Deróguese la resolución N° DGT-08-2009, de las diez horas con cuarenta y cinco minutos del diecinueve de mayo del dos mil nueve, publicada en La Gaceta N° 105 del dos de junio del dos mil nueve.

@@ -1,0 +1,1 @@
+Artículo 3º—Uso obligatorio de los formularios. De conformidad con lo dispuesto en el artículo 122 del Código de Normas y Procedimientos Tributarios, se determina que es obligatorio el uso de los formularios disponibles en Tributación Digital, para todos aquellos contribuyentes clasificados por la Administración Tributaria como “Gran Contribuyente” y “Gran Empresa Territorial”.

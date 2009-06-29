@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio 1º—Uso de formularios anteriores. Cuando los sujetos pasivos señalados en el artículo 3° de esta resolución, requieran rectificar o presentar declaraciones juradas de períodos fiscales cuyo vencimiento fuera anterior a la vigencia de esta resolución, deberán presentar las declaraciones en los mismos formularios y por el mismo medio en que presentaron las declaraciones para los citados períodos, con la salvedad que se establece en el transitorio 2° de esta resolución.

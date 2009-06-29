@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia. Rige a partir del 29 de junio del 2009. Tanto el pago como los formularios que se regulan en la presente resolución, deberán utilizarse para los períodos fiscales con vencimiento a partir de la entrada en vigencia de esta resolución, con las excepciones señaladas en las disposiciones transitorias.
