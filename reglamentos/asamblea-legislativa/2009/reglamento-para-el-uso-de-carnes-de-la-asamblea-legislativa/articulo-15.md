@@ -1,0 +1,1 @@
+Artículo 15.—Es responsabilidad del jefe inmediato velar porque la disposición anterior se cumpla, así como remitir el carné, a la mayor brevedad posible, al Departamento de Recursos Humanos de la Asamblea Legislativa.

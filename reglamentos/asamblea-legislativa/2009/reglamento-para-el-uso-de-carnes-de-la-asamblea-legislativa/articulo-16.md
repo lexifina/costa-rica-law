@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento de Recursos Humanos informará, en forma inmediata, a la Unidad de Seguridad y Vigilancia sobre el personal que ha dejado de laborar en la Institución, con el fin de que se tomen las medidas de control pertinentes.

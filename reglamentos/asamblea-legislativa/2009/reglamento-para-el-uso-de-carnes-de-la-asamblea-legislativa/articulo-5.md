@@ -1,0 +1,1 @@
+Artículo 5º—Las direcciones de los diferentes departamentos y las jefaturas de las unidades deberán informar al Departamento de Recursos Humanos sobre el incumplimiento del uso del carné por parte de los funcionarios a su cargo, a fin de que se apliquen las medidas disciplinarias establecidas en el artículo 17 del presente Reglamento.
