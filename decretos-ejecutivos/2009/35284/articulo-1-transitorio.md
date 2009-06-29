@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO
+Los solicitantes que hubiesen iniciado el trámite con anterioridad a la entrada en vigencia del presente reglamento, podrán concluirlo cumpliendo con los requisitos y procedimientos establecidos en el decreto ejecutivo 33495 MAG-S-MINAE-MEIC, o en la Directriz N º 01.2008 del SFE, o bien, acogerse voluntariamente a lo establecido en el presente reglamento mediante solicitud expresa ante el Departamento de Insumos Agrícolas del SFE.
