@@ -1,0 +1,1 @@
+Artículo 16.—De existir una relación laboral o conflicto de intereses, entre uno o varios miembros con alguno de los postulantes al premio, se debe dejar constancia de la situación; y en tal caso se excusarán de emitir criterio.

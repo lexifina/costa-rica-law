@@ -1,0 +1,2 @@
+Artículo 17.—El Consejo Director del CONICIT tendrá la potestad de no otorgar el premio en el año correspondiente, por razones de fuerza mayor. La entrega del Premio estará sujeta a la disponibilidad de los recursos por parte de los patrocinadores.
+Este Reglamento fue modificado y aprobado por el Consejo Director en sesión Nº 1923 celebrada el 8 de junio del 2009. Rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese.

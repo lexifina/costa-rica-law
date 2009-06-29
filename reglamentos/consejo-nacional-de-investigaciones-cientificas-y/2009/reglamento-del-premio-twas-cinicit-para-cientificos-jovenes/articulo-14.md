@@ -1,0 +1,1 @@
+Articulo 14.—Contra esta resolución cabe el recurso ordinario de revocatoria, el cual deberá interponerse dentro del tercer día, después de haberse publicado la decisión. El Consejo Director tendrá quince días hábiles para resolver la impugnación presentada.

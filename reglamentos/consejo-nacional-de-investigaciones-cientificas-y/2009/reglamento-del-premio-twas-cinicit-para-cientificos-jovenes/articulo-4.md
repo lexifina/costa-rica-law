@@ -1,0 +1,1 @@
+Artículo 4º—Podrá ser postulada o postularse para la distinción, cualquier persona física costarricense que resida y trabaje en el país, menor de 40 años cumplidos hasta el 31 de diciembre del año de la edición correspondiente. El trabajo presentado para evaluación de investigación debe haberse realizado en Costa Rica.

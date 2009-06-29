@@ -1,0 +1,1 @@
+Artículo 13.—La nominación será conocida por el Consejo Director y la remitirá a la TWAS antes del 15 de octubre para su aval y el anuncio oficial del ganador lo hará este órgano colegiado en asocio con los miembros del jurado en un acto especial.

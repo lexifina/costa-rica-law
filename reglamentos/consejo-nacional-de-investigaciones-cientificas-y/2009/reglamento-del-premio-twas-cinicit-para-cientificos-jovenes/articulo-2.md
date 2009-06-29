@@ -1,0 +1,1 @@
+Artículo 2º—Los trabajos a evaluar deberán haberse realizado en Costa Rica, para lo cual se solicitan copias fieles de los originales, acompañados de un resumen de los mismos en idioma español, todo en formato digital.
