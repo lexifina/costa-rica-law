@@ -1,0 +1,1 @@
+Artículo 8º—Las sanciones por hostigamiento sexual se aplicarán según la gravedad del hecho y serán las siguientes: la amonestación escrita, la suspensión y el despido, sin perjuicio de que se acuda a las vías correspondientes, cuando las conductas también constituyan hechos punibles, según loo establecido en el Código Penal.
