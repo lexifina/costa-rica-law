@@ -1,0 +1,2 @@
+Transitorio segundo:
+Los caminos públicos existentes, se deben incluir en los mapas respectivos. Las Municipalidades que ya cuentan con la certificación por parte del MINAET, de los terrenos del Patrimonio Natural del Estado, dentro de la Zona Marítimo Terrestre, contarán con un plazo máximo de doce meses a partir de la publicación de esta resolución, para que soliciten al MINAET, la inclusión de los caminos existentes en los planes reguladores dentro de los mapas respectivos y se proceda a modificar la certificación original.
