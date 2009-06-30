@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de Aplicación. Este Reglamento será de aplicación obligatoria tanto para la Administración Tributaria Municipal como para los abogados externos que sean contratados por la Municipalidad de Siquirres, para gestionar el cobro extrajudicial, administrativo y/o judicial de las obligaciones pecuniarias que se le adeuden a esta.
