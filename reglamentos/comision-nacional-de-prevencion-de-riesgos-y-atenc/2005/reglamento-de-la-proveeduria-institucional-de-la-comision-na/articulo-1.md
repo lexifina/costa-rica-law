@@ -1,5 +1,7 @@
+(Derogado)
 COMISIÓN NACIONAL DE PREVENCIÓN DE
 RIESGOS Y ATENCIÓN DE EMERGENCIAS
+(Esta norma fue Derogada por el artículo 82 del Reglamento para el Funcionamiento de la Proveeduría Institucional de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, aprobado mediante sesión N° 11 del 30 de junio de 2009)
 REGLAMENTO DE LA PROVEEDURÍA INSTITUCIONAL
 DE LA COMISIÓN NACIONAL DE PREVENCIÓN DE
 RIESGOS Y ATENCIÓN DE EMERGENCIAS
