@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue Derogado por el artículo 33 del Reglamento de Funcionamiento y Fiscalización de Unidades Ejecutoras, aprobado mediante acuerdo N° 123-2009 tomado en sesión N° 11 del 30 de junio de 2009)
 Acuerdo tomado por la Junta Directiva de la CNE, en sesión ordinaria No 0111-01, celebrada el 21 de febrero del 2001. El acuerdo textualmente dice:
 Articulo IV.—Presentación de! Reglamento de Funciones y Fiscalización de lenidades Ejecutoras.
 Se acuerda: Aprobar el Reglamento de Funciones y Fiscalización de Unidades Ejecutoras.
