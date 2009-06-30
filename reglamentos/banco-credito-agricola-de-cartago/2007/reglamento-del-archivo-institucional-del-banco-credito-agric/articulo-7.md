@@ -1,1 +1,0 @@
-Artículo 7º—El Comité Institucional de Selección y Eliminación de Documentos podrá convocar a sus reuniones a cualquier funcionario de la Institución competente en la materia por tratar, para decidir con mayor conocimiento, amplitud y objetividad la conservación y/o eliminación de la documentación evaluada.

@@ -1,1 +1,0 @@
-Artículo 26.—El Comité Institucional podrá invitar a participar a otros colaboradores de la institución que considere pertinente, según la naturaleza de los asuntos a tratar, objetivos y funciones específicos de cada dependencia, en calidad de invitados, de conformidad con el numeral 54 de la Ley General de la Administración Pública.

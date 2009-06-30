@@ -1,3 +1,0 @@
-SECCIÓN III
-Los Archivos de Gestión de los Centros de Negocios
-Artículo 21.—Los archivos de gestión de los Centros de Negocios, son los archivos de las diferentes áreas del Banco que, por su similitud en cuanto a actividades y funciones archivísticas, podrán disponer de un archivo de gestión único que brinde servicio a las diferentes unidades administrativas que le conforman; estos archivos serán los encargados, entre otras funciones, de reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar la documentación producida y recibida por las unidades que le integren, en concordancia con la Ley Nº 7202 y su Reglamento.

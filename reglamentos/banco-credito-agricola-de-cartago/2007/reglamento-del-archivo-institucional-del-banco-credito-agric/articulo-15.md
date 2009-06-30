@@ -1,1 +1,0 @@
-Artículo 15.—El Archivo Institucional deberá elaborar un informe anual escrito en el mes de marzo de cada año, el cual deberá enviar a la Dirección General del Archivo Nacional. Dicho informe se debe elaborar en concordancia con lo que establece el artículo 42, inciso j), de la Ley del Archivo y los artículos 145 y 146 de su Reglamento.
