@@ -1,0 +1,3 @@
+Artículo 16
+Asistencia técnica
+Las Partes, teniendo en cuenta especialmente las necesidades de los países en desarrollo y los países con economías en transición, cooperarán en la promoción de la asistencia técnica para el desarrollo de la infraestructura y la capacidad necesarias para el manejo de los productos químicos a efectos de la aplicación del presente Convenio. Las Partes que cuenten con programas más avanzados de reglamentación de los productos químicos deberían brindar asistencia técnica, incluida capacitación, a otras Partes para que éstas desarrollen la infraestructura y la capacidad de manejo de los productos químicos a lo largo de su ciclo de vida.

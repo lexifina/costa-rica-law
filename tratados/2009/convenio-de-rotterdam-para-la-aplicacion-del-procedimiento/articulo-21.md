@@ -1,0 +1,7 @@
+Artículo 21
+Enmiendas del Convenio
+1. Cualquier Parte podrá proponer enmiendas del presente Convenio.
+2. Las enmiendas del presente Convenio se aprobarán en una reunión de la Conferencia de las Partes. La Secretaría comunicará el texto de cualquier propuesta enmienda a las Partes al menos seis meses antes de la reunión en que se proponga su aprobación. La Secretaría comunicará también las enmiendas propuestas a los signatarios del presente Convenio y, a efectos de información, al Depositario.
+3. Las Partes harán todo lo posible por llegar a un acuerdo por consenso sobre cualquier propuesta de enmienda del presente Convenio. Si se agotan todos los esfuerzos por alcanzar el consenso sin lograrlo, las enmiendas se aprobarán, como último recurso, por mayoría de tres cuartos de las Partes presentes y votantes en la reunión.
+4. El Depositario transmitirá la enmienda a todas las Partes para su ratificación, aceptación o aprobación.
+5. La ratificación, aceptación o aprobación de las enmiendas se notificará al Depositario por escrito. Las enmiendas adoptadas de conformidad con el párrafo 3 del presente artículo entrarán en vigor para las Partes que las hayan aceptado, el nonagésimo día después de la fecha de depósito de los instrumentos de ratificación, aceptación o aprobación por al menos tres cuartos de las Partes. De ahí en adelante, las enmiendas entrarán en vigor para cualquier otra Parte el nonagésimo día después de la fecha en que esa Parte haya depositado su instrumento de ratificación, aceptación o aprobación de las enmiendas.

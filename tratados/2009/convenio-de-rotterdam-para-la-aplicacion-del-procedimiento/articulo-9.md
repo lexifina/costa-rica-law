@@ -1,0 +1,6 @@
+Artículo 9
+Retirada de productos químicos del anexo III
+1. Si una Parte presenta a la Secretaría información de la que no se disponía cuando se decidió incluir un producto químico en el anexo III y de esa información se desprende que su inclusión podría no estar justificada con arreglo a los criterios establecidos en los anexos II o IV, la Secretaría transmitirá la información al Comité de Examen de Productos Químicos.
+2. El Comité de Examen de Productos Químicos examinará la información que reciba en virtud del párrafo 1. El Comité de Examen de Productos Químicos, con arreglo a los criterios establecidos en el anexo II o, en su caso, en el anexo IV, preparará un proyecto de documento de orientación para la adopción de decisiones revisado sobre cada producto químico cuya retirada del anexo III haya decidido recomendar.
+3. La recomendación del Comité mencionada en el párrafo 2 se remitirá a la Conferencia de las Partes acompañada de un proyecto de documento de orientación revisado. La Conferencia de las Partes decidirá si el producto químico debe retirarse del anexo III y si debe aprobarse el documento de orientación revisado.
+4. Cuando la Conferencia de las Partes haya adoptado una decisión de retirar un producto químico del anexo III y haya aprobado el documento de orientación revisado, la Secretaría lo comunicará inmediatamente a todas las Partes.
