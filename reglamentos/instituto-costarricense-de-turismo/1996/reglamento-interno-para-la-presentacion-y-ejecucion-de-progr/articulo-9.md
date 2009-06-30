@@ -1,1 +1,0 @@
-Artículo 9°-Una vez determinada por la Unidad Coordinadora la viabilidad y conveniencia de los planes cooperativos, se procederá a enviarlos a Junta Directiva, para su respectiva aprobación, con los cambios que se consideren pertinentes, y acompañará en todo caso las recomendaciones del Comité de Mercadeo que no haya acogido, con la debida fundamentación del rechazo.

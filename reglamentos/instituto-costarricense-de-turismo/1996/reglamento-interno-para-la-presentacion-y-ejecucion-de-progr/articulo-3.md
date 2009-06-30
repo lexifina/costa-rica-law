@@ -1,1 +1,0 @@
-Artículo 3°-Toda solicitud para la participación en programas cooperativos, deberá presentarse exclusivamente ante la Unidad Coordinadora, la cual deberá estar suscrita por el representante legal de la empresa en caso de personas jurídicas o por el propietario de la empresa en caso de persona física.

@@ -1,1 +1,0 @@
-Artículo 10.-De aprobarse el plan, la Unidad Coordinadora procederá a solicitar al participante interesado, los precios cotizados para la actividad que se trate, a fin de comprobar que se está escogiendo la mejor opción, tanto desde el punto de vista técnico como de costo.

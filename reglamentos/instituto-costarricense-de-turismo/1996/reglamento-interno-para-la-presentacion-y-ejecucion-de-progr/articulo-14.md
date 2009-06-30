@@ -1,1 +1,0 @@
-Artículo 14.-EI pago se realizará contra la presentación de la factura a nombre del Instituto, por el concepto estipulado en la orden de compra, el recibido conforme por parte de la Dirección de Promoción, mediante la presentación de un informe en el caso de contratación de servicios o bien contra entrega de una copia del producto terminado.

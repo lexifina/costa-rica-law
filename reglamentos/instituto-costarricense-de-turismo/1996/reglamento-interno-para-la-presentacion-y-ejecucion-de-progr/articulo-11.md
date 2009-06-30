@@ -1,2 +1,0 @@
-Artículo 11.-Aprobado el plan cooperativo por la Junta Directiva, y cumplido con lo dispuesto en el artículo 10, se firmará un convenio entre el Instituto y la parte involucrada incluyendo todos sus compromisos y derechos. Dicho convenio deberá ser firmado por el Gerente del Instituto o quien le sustituya en sus ausencias.
-La supervisión y ejecución de ese convenio, le corresponderá a la Unidad Coordinadora.

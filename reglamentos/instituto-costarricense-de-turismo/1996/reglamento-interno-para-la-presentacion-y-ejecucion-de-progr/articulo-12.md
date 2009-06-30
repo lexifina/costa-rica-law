@@ -1,1 +1,0 @@
-Artículo 12.-EI trámite específico de las campañas cooperativas se llevará a través de las agencias de publicidad y relaciones públicas que prestan servicios al Instituto, a menos que amerite tramitarlo en forma directa.
