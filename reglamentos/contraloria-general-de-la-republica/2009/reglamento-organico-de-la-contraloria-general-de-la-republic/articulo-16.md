@@ -1,0 +1,2 @@
+Artículo 16.- De las Áreas de Fiscalización Superior. Son las unidades que ejecutan las labores de fiscalización superior que le competen a la División de Fiscalización Operativa y Evaluativa.
+Se encuentran integradas por sectores, materias, instituciones u órganos afines, públicos y privados, o etapas del proceso de fiscalización, de libre definición del Despacho Contralor mediante resolución motivada en la que se determinarán las atribuciones específicas que ejercerán cada una de ellas.
