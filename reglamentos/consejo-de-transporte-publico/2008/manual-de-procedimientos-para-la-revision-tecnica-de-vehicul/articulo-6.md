@@ -1,0 +1,1 @@
+6º—Inspección visual de la revisión técnica. Cuando se indicare que la inspección del vehículo es “visual”, ésta consistirá, además de la observación de los órganos o elementos de que trate, de una comprobación de su funcionamiento.

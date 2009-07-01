@@ -1,0 +1,1 @@
+2º—Procedimiento inicial para realizar RTV. Al inicio de cada RTV deberá procederse a la identificación del vehículo, comprobando que el VIN, número de chasis, número motor, marca, modelo, año de comercialización, color y número de placa de matrícula, cuando corresponda, coinciden con los reseñados en la documentación oficial del vehículo.

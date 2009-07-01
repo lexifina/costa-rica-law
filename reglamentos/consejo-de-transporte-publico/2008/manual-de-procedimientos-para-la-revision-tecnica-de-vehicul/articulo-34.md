@@ -1,0 +1,2 @@
+Artículo 34.—Vigencia. Esta segunda revisión y adaptación del Manual de Procedimientos para la Revisión Técnica de Vehículos en Estaciones de RTV regirá a partir del 1º de julio del 2009, a excepción de todos los defectos asociados a la Ley Nº 7600, los cuales entrarán a regir a partir del 1º de enero del 2009, acatando lo dispuesto por la Sala Constitucional mediante resolución 2008-11681.
+Procédase a su publicación y divulgación.

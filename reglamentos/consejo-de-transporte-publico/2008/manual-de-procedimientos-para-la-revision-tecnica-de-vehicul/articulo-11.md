@@ -1,0 +1,4 @@
+Métodos de inspección
+11.—Clasificación de los métodos de inspección. Los métodos utilizados en la inspección del vehículo para realizar las operaciones de revisión referidas, son los siguientes:
+11.1 Inspección Mecanizada. Se realizará con la ayuda de aparatos e instrumentos electromecánicos y electrónicos, como lo son: Opacímetro, para la prueba de emisión de humos (motores de encendido por compresión), analizadores de gases de escape (motores de encendido por chispa), sonómetro para medir los niveles de ruido, frenómetro para comprobación del funcionamiento de los frenos, regloscopio para comprobar el funcionamiento y alineación de las luces altas y bajas, alineadora de dirección y banco de suspensión.
+11.2 Inspección No Mecanizada. Se atenderá a ruidos, vibraciones anormales, holguras, puntos de corrosión, soldaduras en determinados componentes, fisuras, roturas y piezas incorrectas.

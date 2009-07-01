@@ -1,0 +1,1 @@
+9º—Finalidad de las operaciones de revisión técnica vehicular. Las operaciones de revisión técnica vehicular, salvo las de identificación, tienen como finalidad fundamental detectar anomalías que afecten el correcto funcionamiento de los mecanismos del vehículo.
