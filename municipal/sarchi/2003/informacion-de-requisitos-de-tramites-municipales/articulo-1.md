@@ -1,3 +1,4 @@
+(NOTA: La Municipalidad de Valverde Vega mediante acuerdo publicado en La Gaceta N° 133 del 10 de julio de 2009, modifica los requisitos para trámites municipales, el cual puede consultarse aquí:
 MUNICIPALIDAD DE VALVERDE VEGA
 De conformidad al transitorio de la Ley Nº 8220 "Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", la Municipalidad de Valverde Vega hace del conocimiento del público en general los trámites y requisitos que se deben presentar ante la institución para diferentes fines.
 Aspectos generales

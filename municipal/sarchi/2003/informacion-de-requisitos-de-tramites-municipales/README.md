@@ -14,3 +14,4 @@ Información de Requisitos de Trámites Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-24 | la propia norma |
+| 2 | 2009-07-01 | Acuerdo municipal 0 (2009-07-01) |
