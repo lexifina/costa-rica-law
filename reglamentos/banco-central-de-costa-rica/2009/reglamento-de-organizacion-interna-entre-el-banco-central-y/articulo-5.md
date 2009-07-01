@@ -1,0 +1,2 @@
+Artículo 5º—Formalización de los Acuerdos de Nivel de Servicios. La redacción de los Acuerdos de Nivel de Servicios y sus eventuales modificaciones, deben ser coordinadas con los representantes de los ODM, designados por cada Superintendente, según corresponda.
+Los Acuerdos de Nivel de Servicios serán suscritos por la Gerencia del BCCR y el Superior Jerárquico Administrativo del ODM correspondiente.
