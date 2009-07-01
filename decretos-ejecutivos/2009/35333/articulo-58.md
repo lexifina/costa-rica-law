@@ -1,0 +1,1 @@
+Artículo 58.—Las decisiones del Tribunal Electoral Estudiantil podrán ser impugnadas por los y las estudiantes o sus padres, madres o encargados, mediante gestión escrita y razonada, dirigida ante este órgano el cual deberá dar respuesta, dentro de los dos días hábiles siguientes a la fecha de presentación de la gestión. El Tribunal Electoral Estudiantil resolverá en definitiva.

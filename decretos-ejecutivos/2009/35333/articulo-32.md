@@ -1,0 +1,1 @@
+Artículo 32.—La Asamblea de Representantes de I y II Ciclo de Educación General Básica estará asesorada permanentemente por un o una Docente escogida por la Dirección del Centro Educativo. En el III Ciclo y Educación Diversificada el acompañamiento del profesor (a) asesor (a) se dará cuando la Asamblea de Representantes lo solicite a la Dirección de la institución.

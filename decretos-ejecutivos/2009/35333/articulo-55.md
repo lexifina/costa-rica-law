@@ -1,0 +1,1 @@
+Artículo 55.—El Tribunal Electoral Estudiantil escogerá a un o una docente asesora, de una nómina de cinco confeccionada por la Asamblea de Representantes. Ninguno de los y las asesoras puede ser pariente en primer grado de algún miembro del Tribunal ni de los o las candidatas a la Presidencia del Comité Ejecutivo, ni docente guía de alguno de los o las candidatas.

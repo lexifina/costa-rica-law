@@ -1,0 +1,1 @@
+Artículo 8º—Todos los acuerdos y resoluciones de los órganos del Gobierno Estudiantil se tomarán por simple mayoría y deberán hacerse constar en el libro de actas que para tal efecto llevarán las secretarías respectivas.

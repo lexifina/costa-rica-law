@@ -1,0 +1,1 @@
+Artículo 41.—En el Traspaso de Poderes el o la Presidenta del Comité Ejecutivo prestará juramento ante la Presidencia del Directorio de la Asamblea de Representantes, el resto del Gabinete prestará su juramento ante el o la Presidenta Electa.

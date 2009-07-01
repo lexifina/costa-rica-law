@@ -1,0 +1,1 @@
+Artículo 13.—Los y las estudiantes que asistan en forma regular al Centro Educativo elegirán una Directiva, la cual asumirá inmediatamente las funciones del Comité Ejecutivo establecidas en el Artículo 38 de este reglamento.

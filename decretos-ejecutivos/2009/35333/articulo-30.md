@@ -1,0 +1,1 @@
+Artículo 30.—Para tratar diversos asuntos la Asamblea de Representantes conformará Comisiones de investigación y análisis, según el número de integrantes que designe su Directorio. Cada Comisión contará como mínimo con una persona responsable de la Coordinación y otra responsable de la Secretaría.

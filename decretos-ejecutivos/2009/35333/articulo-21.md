@@ -1,0 +1,1 @@
+Artículo 21.—En cada Sección se nombrará un Tribunal Ad-hoc para dirigir el proceso de elección de la Directiva de Sección, que se integrará con tres estudiantes. Este Tribunal cesará en su función pasada la elección y la realización de la juramentación de la Directiva.

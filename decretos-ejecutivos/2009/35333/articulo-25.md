@@ -1,0 +1,1 @@
+Artículo 25.—Para la organización institucional y representación de todas las Secciones del Centro Educativo se conformará la Asamblea de Representantes, la cual estará integrada por los y las presidentas de las Directivas de Sección. Ésta se debe integrar en la cuarta semana a partir de la fecha de inicio del curso lectivo.
