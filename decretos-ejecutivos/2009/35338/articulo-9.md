@@ -1,0 +1,1 @@
+Artículo 9º—Acuerdos. Los acuerdos serán tomados en firme y para acreditar al miembro electo, el representante del MAG que fungió como Presidente, emitirá una certificación que deberá enviar a la Junta Directiva del Consejo Nacional de Producción (CNP) para los fines pertinentes.
