@@ -1,1 +1,0 @@
-Artículo 32.—Presentada una moción de fondo, se concederá el uso de la palabra en primer término al proponente y luego al resto de los miembros del Concejo un representante de cada fracción, que la soliciten sin que pueda exceder diez minutos cada intervención.
