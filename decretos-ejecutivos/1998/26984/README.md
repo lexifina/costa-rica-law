@@ -15,3 +15,4 @@ Prohíbe el expendio de antibióticos sin receta médica
 | --- | --- | --- |
 | 1 | 1998-05-22 | la propia norma |
 | 2 | 1998-10-14 | Decreto Ejecutivo 27407 (1998-10-14) |
+| 3 | 2009-07-02 | Decreto Ejecutivo 35460 (2009-07-02) |
