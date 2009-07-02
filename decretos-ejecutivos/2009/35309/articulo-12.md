@@ -1,0 +1,1 @@
+Artículo 12.—En piscinas de uso público y público restringido las facilidades mencionadas en los artículos 10 y 11; deberán ser construidos de material impermeable, lavable, no resbaladizo ni absorbente y contar con pendiente del uno por ciento hacia sistemas de desagüe y mantenerse en condiciones sanitarias para su uso. Sus puertas no abrirán directamente a la zona de vasos.

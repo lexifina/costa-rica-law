@@ -1,0 +1,1 @@
+Artículo 9º—En piscinas de uso público y público restringido, el número máximo de bañistas, debe determinarse considerando una persona por cada 1,50 m2 (uno y medio metro cuadrado) del área de espejo de agua del vaso.

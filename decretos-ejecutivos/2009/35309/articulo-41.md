@@ -1,0 +1,1 @@
+Artículo 41.—Ninguna piscina de uso público o público restringido podrá funcionar sin la presencia del operador de piscina, quien debe velar por el cumplimiento de este Reglamento, principalmente de las disposiciones sobre seguridad de las instalaciones, presencia de guardavidas, existencia de equipo de primeros auxilios y rescate acuático y la calidad del agua.

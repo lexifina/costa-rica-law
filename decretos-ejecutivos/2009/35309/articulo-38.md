@@ -1,0 +1,1 @@
+Artículo 38.—Al menos una vez al día, en el momento de máxima concurrencia se analizará y anotará en la bitácora los valores obtenidos de los parámetros físico - químicos indicados en el Cuadro 1 de este Reglamento.

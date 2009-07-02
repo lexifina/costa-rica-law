@@ -1,0 +1,2 @@
+Artículo 26.—Todo curso mencionado en la definición de guardavida, que se realice en el territorio nacional debe ser impartido por instituciones de educación universitaria, parauniversitaria, o por un ente público o privado, debidamente autorizado por el ente Rector respectivo.
+En caso de que el interesado haya recibido dichos cursos en el extranjero, deberá homologar éstos ante el ente Rector respectivo.

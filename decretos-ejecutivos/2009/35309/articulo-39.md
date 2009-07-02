@@ -1,0 +1,1 @@
+Artículo 39.—Con la frecuencia señalada en los cuadros 2 y 3 de este reglamento, se enviará al Área Rectora de Salud del Ministerio de Salud los reportes originales de los resultados del laboratorio, y se conservará copia de los mismos en el archivo de la piscina.

@@ -1,0 +1,1 @@
+Transitorio I.—Se otorga un plazo de un año a partir de la publicación de este Reglamento para que toda piscina de uso público o público restringido que esté en operación cumpla en su totalidad con lo establecido en este reglamento, exceptuando lo relacionado con la calidad del agua que es de aplicación inmediata a la publicación.

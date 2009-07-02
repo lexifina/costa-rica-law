@@ -1,0 +1,1 @@
+Artículo 46.—Toda piscina de uso público o público restringido que incumpla con lo dispuesto en el presente Reglamento y de conformidad con las medidas que establece la Ley General de Salud, podrá ser clausurada parcial, temporal o definitivamente, según el caso, sin que por ello conlleve responsabilidad alguna al Ministerio de Salud o a sus autoridades.

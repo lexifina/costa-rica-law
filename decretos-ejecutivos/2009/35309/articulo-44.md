@@ -1,0 +1,1 @@
+Artículo 44.—El funcionamiento de las piscinas de uso público o público restringido será controlado por el Ministerio de Salud por medio de los funcionarios de las Áreas Rectoras de Salud. Los funcionarios del Ministerio cuando se encuentren en funciones propias de su labor, tendrán libre acceso a todas las áreas e instalaciones.

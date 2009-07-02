@@ -1,0 +1,3 @@
+Artículo 31.—De la calidad del agua:
+a- El agua contenida en el vaso deberá ser filtrada y desinfectada, no será irritante para la piel, ojos y mucosas y en cualquier caso, debe cumplir con los requisitos de calidad establecidos en los cuadros 1, 2 y 3 del presente Reglamento, a fin de evitar riesgos para la salud de los usuarios.
+b- Cuando por razones excepcionales y por lo tanto se vea amenazada la de salud pública, el Ministerio de Salud podrá modificar los parámetros indicados en los cuadros 1, 2 y 3 e incluir otras determinaciones que considere necesarias desde el punto de vista epidemiológico para garantizar la calidad del agua. Para lo cual deberá publicar en el Diario Oficial La Gaceta las nuevas disposiciones.

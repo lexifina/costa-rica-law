@@ -1,0 +1,1 @@
+Artículo 37.—Las tomas de muestras para analizar los parámetros de los cuadros 1, 2 y 3 de este reglamento, deben ser tomadas en el momento de máxima concurrencia de bañistas y a una profundidad de 40 cm., en el sector medio del vaso, evitando las tomas en las orillas.

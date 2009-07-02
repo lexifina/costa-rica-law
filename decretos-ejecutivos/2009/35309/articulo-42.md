@@ -1,0 +1,1 @@
+Artículo 42.—Toda piscina pública o pública restringida debe contar con un reglamento interno, el cual debe permanecer expuesto en un lugar visible, indicando el horario de uso, cantidad máxima de bañistas y las observaciones y prohibiciones que regulan la estadía de los usuarios al área de vasos.

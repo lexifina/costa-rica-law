@@ -1,0 +1,1 @@
+Artículo 29.—Dentro de las instalaciones deberá disponerse estratégicamente de recipientes para almacenar residuos sólidos ordinarios por separado: plásticos, vidrios, latas, papel y cartón y otro para residuos comunes. Estos deberán contar con tapa y estar rotulados.

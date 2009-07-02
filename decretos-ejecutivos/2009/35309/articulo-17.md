@@ -1,0 +1,1 @@
+Artículo 17.—Cuando existan restaurantes, bares, cafeterías, salas de fiestas, éstas deberán aislarse del área de vasos por medio de barreras naturales o arquitectónicas, con el fin de garantizar la seguridad de los bañistas y del público en general. Con excepción a lo establecido en el artículo 43 de este reglamento.
