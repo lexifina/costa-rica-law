@@ -1,3 +1,5 @@
-ARTICULO 102.- En el contrato de trabajo relativo al servicio doméstico, los primeros treinta días se consideran de prueba y cualquiera de las partes puede ponerle término sin aviso previo ni responsabilidad.
-Después de este tiempo, la parte que desee poner término al contrato tendrá que dar aviso a la otra con quince días de anticipación o, en su defecto, abonarle el importe correspondiente a ese tiempo: empero después de un año, el preaviso será de un mes. Durante el término del preaviso, el patrono concederá semanalmente al servidor media jornada para que busque colocación.
-(Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).
+Artículo 102.-
+El período de prueba en el trabajo doméstico será de tres meses, durante los cuales, sin responsabilidad, ambas partes podrán ponerle término a la relación laboral. Una vez concluido este período y durante nueve meses más, la parte que desee poner término al contrato deberá avisar a la otra con quince días de anticipación.
+Después de un año de trabajo continuo, el preaviso será de un mes. En ambos casos, si no se cumple el preaviso referido en este artículo, la parte que incumplió deberá abonar a la otra parte el importe correspondiente a este tiempo.
+Durante el período de preaviso, la persona empleadora le concederá a la persona trabajadora, semanalmente, un día completo remunerado para que busque colocación.
+(Así reformado por el artículo 1° de la ley N° 8726 del 2 de julio de 2009)
