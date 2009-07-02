@@ -12,5 +12,5 @@ Artículo 1º—Modifíquese el artículo 1, punto 1, incisos g) y k) y punto 2,
 g. Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
 k. (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre de 2008).
 2) Miembros suplentes:
-b. Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
+b. (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 35427 del 2 de julio de 2009)
 g. (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre de 2008).
