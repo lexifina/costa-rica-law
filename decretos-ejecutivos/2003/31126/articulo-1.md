@@ -33,8 +33,7 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 2. Miembros suplentes:
 a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
-b) Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
+b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
 c) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 d) Jorge Mena Arce, Representante de la Ministra de Salud.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
@@ -52,3 +51,4 @@ k) Grace García Muñoz, Representante de la Federación Costarricense para la C
 (NOTA. mediante el artículo 1° del decreto ejecutivo N° 34895 de 14 de octubre del dos mil ocho, se nombra como miembros suplente de esta Comisión al señor Hugo Lázaro Estrada, representante de la Asociación Mesa Nacional Indígena).
 (NOTA: mediante el artículo 1° del decreto ejecutivo N° 35125 del 3 de marzo de 2009, se nombra como mientro suplente de esta Comisión, a la señora Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura).
 (NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 35391 del 10 de junio de 2009, se nombra como mienbro suplente de esta Comisión al Señor Andy Bezara Higle, representante de la Unión Costarricense de Cámaras de la Empresa Privada).
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 35427 del 2 de julio de 2009, se nombra como miembro suplente de esta Comisión a la Señora Lesvia Sevilla Estrada, representante del Sistema Nacional de Areas de Conservación).
