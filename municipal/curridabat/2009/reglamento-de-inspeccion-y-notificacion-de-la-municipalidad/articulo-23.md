@@ -1,0 +1,2 @@
+Artículo 23.—Responsabilidad. Los inspectores serán responsables de resguardar los activos entregados. En caso de pérdida, desperfecto o robo de los mismos, el funcionario encargado del activo deberá informar de forma inmediata a la jefatura de inspección sobre lo ocurrido y realizar lo establecido en el artículo 22 del Reglamento para activos de la Municipalidad de Curridabat.
+En caso de comprobarse negligencia en su uso, deberá responder por el daño o extravío de los mismos.
