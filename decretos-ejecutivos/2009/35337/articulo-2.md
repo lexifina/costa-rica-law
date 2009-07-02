@@ -1,0 +1,1 @@
+Artículo 2º—Son electores o electoras: Los y las estudiantes que asistan en forma regular a cualquier modalidad que imparta el Centro Educativo de I, II y III Ciclos de la Enseñanza General Básica y Educación Diversificada que se encuentren inscritos en el Padrón electoral.

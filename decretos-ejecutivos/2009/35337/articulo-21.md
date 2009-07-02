@@ -1,0 +1,1 @@
+Artículo 21.—Inscripción de los Partidos Políticos Estudiantiles: La inscripción de un Partido Político Estudiantil sólo tendrá vigencia para el proceso electoral en que se inscribió. En caso de que el mismo Partido quiera lanzar su candidatura el siguiente año, deberá volver a realizar el proceso de inscripción.

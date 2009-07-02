@@ -1,0 +1,1 @@
+Artículo 55.—Tiempo de que dispone el o la electora para emitir el voto: Cada elector o electora dispone de dos minutos para emitir su voto. Pasado este tiempo, la Presidencia de la Junta Receptora le comunicará que se apresure.

@@ -1,0 +1,1 @@
+Artículo 29.—El Centro Educativo debe asegurarse que cualquier medio para comunicarse con la población estudiantil que se utilice al interior de la institución (murales, periódicos, intercomunicadores, etc.) sea asignado en forma equitativa entre todos los Partidos Políticos.

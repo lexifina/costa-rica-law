@@ -1,0 +1,1 @@
+Artículo 75.—Amonestación oral: La amonestación oral se aplicará en aquellos causales que a criterio del Tribunal Electoral Estudiantil constituyan faltas leves. Esta amonestación debe quedar debidamente registrada en el Libro de Actas del Tribunal Electoral Estudiantil.

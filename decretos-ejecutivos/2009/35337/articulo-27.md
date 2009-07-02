@@ -1,0 +1,2 @@
+Artículo 27.—Los Partidos Políticos deben presentar ante el Tribunal Electoral Estudiantil una copia del texto, del artículo propuesto y/o la descripción de la actividad, para que sea de su conocimiento y aprobación. Así como indicar el medio que utilizará para enviar el mensaje (correo electrónico, mural, mensaje texto de celular, periódico, panfletos, etc.)
+Toda propaganda que no haya cumplido con lo anterior será retirada o suspendida y el Partido Político será sancionado, según lo estipulado en el capítulo XI de este Código.

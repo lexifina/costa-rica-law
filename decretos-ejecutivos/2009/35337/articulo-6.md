@@ -1,0 +1,1 @@
+Artículo 6º—De la reelección: Se podrá realizar la reelección inmediata y por una única vez de todos o algunos de los miembros del Comité Ejecutivo en ejercicio, sometiéndose a proceso de campaña electoral.

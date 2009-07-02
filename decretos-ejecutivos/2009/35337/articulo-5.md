@@ -1,0 +1,2 @@
+Artículo 5º—Requisito para ser Electo o Electa: Para ser electo o electa en cualquier cargo directivo del Comité Ejecutivo del Gobierno Estudiantil, se debe cumplir con el requisito del artículo 6º del Reglamento para la Organización y Funcionamiento del Gobierno Estudiantil que establece:
+“Tienen derecho a ser electos o electas en el Gobierno Estudiantil los y las estudiantes que asistan en forma regular al Centro Educativo.”

@@ -1,0 +1,2 @@
+Artículo 33.—El día anterior a las elecciones la Dirección del Centro Educativo organizará un debate político público donde las personas candidatas a la Presidencia del Comité Ejecutivo explicarán sus Programas de Gobierno y responderán preguntas únicamente de las personas electoras. Ese día los Partidos Políticos pueden hacer propaganda antes y después del Debate.
+Durante el debate no se permite atacar de manera personal al candidato o candidata opositora, sino sólo su programa o ideas. Tampoco, atacar de palabra a estudiantes o a personal de la Institución.

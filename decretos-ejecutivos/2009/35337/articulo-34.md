@@ -1,0 +1,1 @@
+Artículo 34.—Corresponde al Director o Directora del Centro Educativo designar al moderador(a) del debate. Debe ser una persona ágil, ecuánime, y neutral, no debe ser un integrante del Tribunal Electoral ni del Gobierno Estudiantil, debe tomarse en cuenta que es un debate político partidista.

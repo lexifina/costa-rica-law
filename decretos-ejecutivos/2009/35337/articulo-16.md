@@ -1,0 +1,2 @@
+Artículo 16.—Juramentación de las Juntas Receptoras de Votos: Las personas que conforman las Juntas Receptoras de Votos presentarán su Juramento ante el Tribunal Electoral Estudiantil 2 días antes de las elecciones.
+En ese mismo acto, el Tribunal definirá la distribución de las Presidencias y Secretarías de las Juntas Receptoras de Votos de tal manera que se alternen con equidad entre los Partidos Políticos legalmente inscritos.

@@ -1,0 +1,1 @@
+Artículo 32.—Debate Público: El Debate Público es un acto formal de gran relevancia durante el proceso electoral que permite a los distintos Partidos Políticos dar a conocer sus ideas, posiciones y proyectos, así como le brinda a los y las electoras insumos para la toma de decisiones. Lo anterior debe llevarse a cabo en un espacio de orden y respeto.

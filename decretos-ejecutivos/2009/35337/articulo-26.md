@@ -1,0 +1,3 @@
+Artículo 26.—Durante la Semana de Elecciones se deben llevar a cabo actividades proselitistas de los Partidos Políticos donde se vivencien los derechos políticos estudiantiles de libre agrupación y elección.
+La solicitud de permiso para una reunión o desfile público deberá presentarla el Partido Político el lunes anterior a la Semana de Elecciones ante el Tribunal Electoral Estudiantil.
+En la semana anterior a las Elecciones, el Tribunal Electoral Estudiantil publicará el calendario de reuniones o mítines públicos autorizados así como los lugares asignados para cada actividad proselitista de los Partidos Políticos.

@@ -1,0 +1,2 @@
+Artículo 31.—Sobre prohibiciones: Se prohíbe organizar actos proselitistas de cualquier índole, fuera del Centro Educativo. Dentro del mismo, quedará sujeto a las disposiciones del Tribunal Electoral Estudiantil.
+Se prohíbe la contratación o alquiler de equipo para reproducir sonido o video. Si el Centro Educativo cuenta con el equipo y lo presta a los Partidos Políticos, se debe asegurar que sea en las mismas condiciones para todos los Partidos Políticos.

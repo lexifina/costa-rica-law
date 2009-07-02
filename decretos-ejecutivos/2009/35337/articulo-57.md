@@ -1,0 +1,1 @@
+Artículo 57.—Obligación de depositar en la urna o de devolver las papeletas recibidas: La persona electora depositará la papeleta en la urna electoral antes de salir del recinto de la Junta Receptora de Votos o la entregará a los miembros de la Junta según sea el caso.

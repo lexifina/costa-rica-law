@@ -1,0 +1,1 @@
+Artículo 44.—Credenciales de los Fiscales: Los y las Fiscales de los Partidos Políticos tendrán una credencial que los identifique como tales, la cuál será sellada y firmada por el Tribunal Electoral Estudiantil. Este organismo llevará un libro de anotaciones de nombramientos.

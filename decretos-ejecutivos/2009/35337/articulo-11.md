@@ -1,0 +1,2 @@
+Artículo 11.—Del Padrón Electoral: La Dirección de la Institución Educativa será responsable de confeccionar el Padrón Electoral que debe entregarse a la persona que ocupa la Presidencia del Tribunal Electoral Estudiantil, dos semanas antes de las elecciones estudiantiles.
+El Padrón Electoral es el documento donde se deben consignar, los nombres con los apellidos, el número de carné y el de sección de cada uno de los electores inscritos ante la Junta Receptora de Votos.

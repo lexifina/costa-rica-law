@@ -1,0 +1,1 @@
+Artículo 58.—Reposición de papeletas: En ningún caso se podrá reponer papeletas inutilizadas, estas serán entregadas al Tribunal Electoral Estudiantil junto con el resto de la documentación electoral, la cual pasados tres meses después de efectuada la elección será destruida.

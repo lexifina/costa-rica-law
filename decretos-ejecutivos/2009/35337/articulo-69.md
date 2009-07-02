@@ -1,0 +1,1 @@
+Artículo 69.—Forma de demandar las nulidades: Cualquier estudiante del Centro Educativo tiene la facultad para ejercer el derecho de demandar la nulidad del acto y de acusar transgresiones electorales en forma pública.

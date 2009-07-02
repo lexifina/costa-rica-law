@@ -1,0 +1,1 @@
+Artículo 10.—Requisitos de las papeletas: Las papeletas para votación, deben ser elaboradas en papel no transparente e incluir, el nombre del Partido, la bandera, los nombres de los candidatos y candidatas del Comité Ejecutivo y el espacio para votar. Al reverso las indicaciones para la firma de las personas que conforman las Junta Receptora de Votos.

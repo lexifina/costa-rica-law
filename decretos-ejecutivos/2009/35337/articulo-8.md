@@ -1,0 +1,1 @@
+Artículo 8º—Atribuciones del Tribunal Electoral Estudiantil: Son atribuciones del Tribunal Electoral Estudiantil las consignadas expresamente en el Reglamento para la Organización y Funcionamiento del Gobierno Estudiantil en el capítulo VI, artículo 54.

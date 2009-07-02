@@ -1,0 +1,1 @@
+Artículo 68.—En caso de nulidad de las elecciones, el Tribunal Electoral Estudiantil hará una segunda convocatoria a elecciones ocho días naturales después de hacerse pública la Declaratoria Oficial de Anulación. En esta segunda convocatoria solamente se procederá a repetir el voto, no se llevarán a cabo actos proselitistas, ni debates.

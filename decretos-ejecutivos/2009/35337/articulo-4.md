@@ -1,0 +1,1 @@
+Artículo 4º—Validez del sufragio: El derecho al voto se ejerce únicamente ante la Junta Receptora de Votos, donde aparezca el nombre inscrito del o la estudiante. Para ello es necesario presentar su respectivo carné, documento de identidad o cédula.

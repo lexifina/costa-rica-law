@@ -1,0 +1,2 @@
+Artículo 41.—La función principal de los y las Fiscales tanto Generales y como de Mesa de cada Partido Político es presenciar el proceso de votación y el trabajo de las Juntas Receptoras de Votos. Les está prohibido interferir en el trabajo de la Junta Receptora, así como participar en sus deliberaciones.
+Los Fiscales Generales tienen derecho a presenciar el escrutinio de votos que efectúa el Tribunal Electoral Estudiantil.

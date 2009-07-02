@@ -1,0 +1,1 @@
+Artículo 46.—Local en que se efectúan las votaciones: Las votaciones se efectuarán en el local acondicionado de tal manera que en una parte se instale la Junta Receptora de Votos y en otra parte un recinto secreto debidamente protegido para garantizar el secreto del voto y la comodidad del o la electora a la hora de emitir el voto.

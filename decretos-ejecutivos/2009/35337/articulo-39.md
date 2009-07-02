@@ -1,0 +1,1 @@
+Artículo 39.—Las Fiscalías Generales y Fiscalías de Mesa: Los Partidos Políticos tienen derecho a fiscalizar el Proceso Electoral mediante Fiscales Generales y Fiscales de Mesa (Junta Receptora) debidamente acreditados ante cada uno de los Organismos Electorales.

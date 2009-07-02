@@ -1,0 +1,1 @@
+Artículo 51.—Obligaciones de las Juntas Receptoras de Votos el día de las Elecciones: Está obligada la Junta Receptora de Votos a extender al o la Fiscal General o Fiscal de Mesa de cualquier Partido Político y en el instante en que lo solicite, certificación del número de votos emitidos durante el día de las elecciones. Se autoriza un máximo de 4 certificaciones.

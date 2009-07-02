@@ -1,0 +1,1 @@
+Artículo 43.—En el recinto de las Juntas Receptoras de Votos no se permitirá más de un Fiscal, ya sea General o de Mesa por cada Partido Político. Los y las Fiscales pueden ser sustituidos o sustituidas por sus respectivos suplentes.

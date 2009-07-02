@@ -1,0 +1,1 @@
+Artículo 50.—Ausencia de algún miembro de la Junta Receptora: Si durante la votación se ausentara alguna persona de la Junta será reemplazada por su Suplente. Debe anotarse todo tipo de incidencias que se realicen durante las votaciones en el Padrón Electoral.
