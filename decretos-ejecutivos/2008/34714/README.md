@@ -14,3 +14,4 @@ Modifica para el Instituto Costarricense de Turismo, el gasto presupuestario má
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-29 | la propia norma |
+| 2 | 2009-07-02 | Decreto Ejecutivo 35387 (2009-07-02) |
