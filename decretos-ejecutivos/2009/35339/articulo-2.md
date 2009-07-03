@@ -1,0 +1,1 @@
+Artículo 2º—Órgano encargado. El Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura y Juventud, será el encargado de la organización, realización y categorización de este Certamen.
