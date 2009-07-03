@@ -1,0 +1,2 @@
+Artículo 20.—Devoluciones. Para proceder a la devolución del monto de alquiler o garantías por el uso de instalaciones, habrá de llenarse el modelo presente en los ANEXOS.
+Sólo procederá la devolución del precio cuando no se preste aquel servicio por causas no imputables al obligado al pago y en el caso de las garantías cuando el informe por escrito de la actividad no reporte daños en la instalación según contrato.

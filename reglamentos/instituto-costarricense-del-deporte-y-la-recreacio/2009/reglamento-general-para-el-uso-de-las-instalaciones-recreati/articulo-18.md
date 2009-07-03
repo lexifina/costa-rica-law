@@ -1,0 +1,1 @@
+Artículo 18.—Otras solicitudes. Las solicitudes puntuales que, excepcionalmente, hagan referencia a horarios ocupados por otros usuarios serán resueltas por el mismo órgano que autorizó el uso de la instalación, cumpliendo las condiciones expresadas en esta normativa.

@@ -1,0 +1,2 @@
+Artículo 16.—Para el uso de las distintas instalaciones deportivas o recreativas, podrán eximirse del pago de entrada o tarifa mensual a: instituciones públicas o entidades de bien social, Ciudadanos de Oro (mostrando su respectivo carné), personas con prescripción medica para rehabilitación (se de presentar dictamen de la CCSS).
+En el caso de alquileres o arrendamientos a entidades privadas, asociaciones o federaciones deportivas que soliciten exoneración parcial o total por el rubro de alquiler, deberán solicitar este tramite directamente a la Dirección Nacional.

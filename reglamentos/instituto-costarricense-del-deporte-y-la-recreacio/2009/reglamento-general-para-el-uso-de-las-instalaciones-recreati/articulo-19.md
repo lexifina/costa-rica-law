@@ -1,0 +1,1 @@
+Artículo 19.—Firma del contrato y/o permiso de uso. Previa a la firma del convenio o contrato por parte del permisionario o arrendatario, debe de cumplir con el pago establecido en las condiciones y presentar los permisos correspondientes de otras instituciones que se hayan solicitado como requisito.

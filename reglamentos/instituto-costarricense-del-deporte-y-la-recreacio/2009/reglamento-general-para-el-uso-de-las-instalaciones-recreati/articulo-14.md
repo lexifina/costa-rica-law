@@ -1,0 +1,9 @@
+Artículo 14.—Documentos a presentar en caso de realización de eventos recreativos o deportivos. Toda solicitud será entregada en la oficina del Departamento de administración de Instalaciones, o bien, en la ventanilla única, en caso que se brinde este servicio.
+• Personas jurídicas: solicitud por escrito remitida por el representante legal o persona responsable del equipo/actividad y objeto de la organización deportiva. (copia de cédula y personería jurídica, copia de cédula de identidad del represente legal de la organización), acuerdo de junta directiva solicitando el servicio, indicando el tipo de servicio que se requiere, instalación, horario, responsable durante la actividad, proyecto deportivo a desarrollar (en caso de ser necesario), lista de personas o cantidad de personas que se beneficiará de la actividad. Indicando número de teléfono y fax.
+• Personas físicas: Llenar boleta de uso de instalación, indicando el fin de la utilización de la instalación, la instalación y horario a utilizar.
+Procedimiento de solicitud de Instalaciones Deportivas y Recreativas.
+• Solicitud por escrito con quince días naturales de anticipación de acuerdo al artículo anterior.
+• El Departamento de Administración de Instalaciones elaborará las condiciones para Permiso de Uso o Alquiler de la instalación, haciéndole saber al interesado, o bien, traslada estas condiciones a las instancias correspondientes.
+• Aceptadas las condiciones por parte del interesado o solicitante se enviará a la asesoría Legal de la Dirección Nacional para la elaboración del respectivo convenio.
+• Si la Dirección Nacional aprueba, el permisionario o arrendatario hará los depósitos correspondientes y posteriormente se firmará el convenio o permiso respectivo.
+• Los depósitos realizados se reintegraran siempre y cuando exista la certeza de que no hubieron daños o incumplimientos del convenio o permiso respectivo.
