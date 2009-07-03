@@ -1,0 +1,1 @@
+Artículo 2º—Modifícase para el Consejo de Seguridad Vial, el gasto presupuestario máximo para el 2009, establecido en el Decreto Ejecutivo Nº 35274-H ya citado, quedando el límite de gasto presupuestario en la suma de ¢12.311.597.166,26 (doce mil trescientos once millones quinientos noventa y siete mil ciento sesenta y seis colones con veintiséis céntimos), para ese período.
