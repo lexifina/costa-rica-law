@@ -1,0 +1,1 @@
+Artículo 3º—La Proveeduría Institucional del Ministerio de la Presidencia realizará todos los trámites para dar de baja en los inventarios del Ministerio, el bien inmueble que mediante el presente Decreto se asigna al Ministerio de Ambiente, Energía y Telecomunicaciones.
