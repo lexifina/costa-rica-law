@@ -1,0 +1,1 @@
+Artículo 3º—Toda información que se aporte para el cambio de fabricante o formulador no deberá ser requerida de nuevo siempre y cuando sea la misma que se solicite en el proceso de reválida esto de conformidad con el artículo 2 de la Ley Nº 8220 del 4 de marzo del 2002 “Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”.

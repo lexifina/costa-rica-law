@@ -1,0 +1,1 @@
+Artículo 4º—Deróguese el numeral 12.1.f) del artículo 2 del Decreto Ejecutivo Nº 33495-MAG-S-MINAE-MEIC, denominado “Reglamento Sobre Registro, Uso y Control de Plaguicidas Sintéticos Formulados, Ingrediente Activo Grado Técnico, Coadyuvantes y Sustancias Afines de Uso Agrícola”, del 31 de octubre del 2006, publicado en La Gaceta Nº 7 del 10 de enero del 2007.
