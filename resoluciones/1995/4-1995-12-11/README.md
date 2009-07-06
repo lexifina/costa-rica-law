@@ -14,3 +14,4 @@ Aplicación y ubicación de diversas ocupaciones existentes en el Sector Privado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-01 | la propia norma |
+| 2 | 2009-07-06 | Resolución 3 (2009-07-06) |

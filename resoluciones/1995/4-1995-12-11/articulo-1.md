@@ -23,33 +23,33 @@ No cubre las labores de transporte automotor en las actividades, agrícola, gana
 TRABAJADORES NO CALIFICADOS (Agricultura)
 Se define como Trabajador no calificado, en actividades Agropecuaria, Silvícola y Pesquera a aquel trabajador que realiza tareas sencillas y rutinarias propias de la agricultura, la cría de animales, el trabajo forestal y la pesca que pueden requerir la utilización de herramientas manuales y corrientemente un esfuerzo físico considerable.
 Generalmente realiza diversas tareas, total o parcialmente, de complejidad similar a las que a continuación se señalan:
-Preparar, manualmente, el terreno para sembrar.
-Realizar la siembra en la forma apropiada.
-Recolectar, manualmente, los diferentes productos agrícolas.
-Aplicar diversos tipos de abono.
-Alimentar y cuidar todo tipo de animales.
-Limpiar establos, corrales y similares.
-Ordeñar y elaborar, con equipo manual derivados lácteos.
-Realizar limpieza de potreros (eliminar o cortar malezas, árboles y otros), desbrozar terrenos y bosques. Cuidar y dar mantenimiento a cultivos, plantaciones y otros.
-Preparar y conducir bueyes, en diversas tareas agrícolas
-Obtener y recolectar productos, crías y elementos como materias primas para la elaboración de diversos artículos.
-Activar y vigilar sistemas de riego.
-Hacer y reparar cercas.
+· Preparar, manualmente, el terreno para sembrar.
+· Realizar la siembra en la forma apropiada.
+· Recolectar, manualmente, los diferentes productos agrícolas.
+· Aplicar diversos tipos de abono.
+· Alimentar y cuidar todo tipo de animales.
+· Limpiar establos, corrales y similares.
+· Ordeñar y elaborar, con equipo manual derivados lácteos.
+· Realizar limpieza de potreros (eliminar o cortar malezas, árboles y otros), desbrozar terrenos y bosques. Cuidar y dar mantenimiento a cultivos, plantaciones y otros.
+· Preparar y conducir bueyes, en diversas tareas agrícolas
+· Obtener y recolectar productos, crías y elementos como materias primas para la elaboración de diversos artículos.
+· Activar y vigilar sistemas de riego.
+· Hacer y reparar cercas.
 En pesca:
-Alistar los aparejos, preparar y reparar redes y otro material de pesca.
-Obtener, preparar y colocar en anzuelos las carnadas.
-Pescar con caña o cuerda; soltar líneas, trasmallos, flotadores, boyas, poner banderas y señales.
-Recoger las redes y líneas u otros medios de pesca que utilicen. Separar y desvicerar peces.
-Almacenar en cámaras frigoríficas u otros depósitos apropiados, el producto obtenido.
-Ayudar en la preparación de alimentos.
-Eliminar deshechos y limpiar el barco.
+· Alistar los aparejos, preparar y reparar redes y otro material de pesca.
+· Obtener, preparar y colocar en anzuelos las carnadas.
+· Pescar con caña o cuerda; soltar líneas, trasmallos, flotadores, boyas, poner banderas y señales.
+· Recoger las redes y líneas u otros medios de pesca que utilicen. Separar y desvicerar peces.
+· Almacenar en cámaras frigoríficas u otros depósitos apropiados, el producto obtenido.
+· Ayudar en la preparación de alimentos.
+· Eliminar deshechos y limpiar el barco.
 CONDICIONES CENTRALES:
-Generalmente, recibe indicaciones generales, sobre el trabajo, ocasionalmente se le especifica la tarea a realizar.
-Recibe control sobre las tareas realizadas.
-Le corresponde preparar y dar mantenimiento a las herramientas y equipo que utiliza.
-La consecuencia del error, generalmente es nula o insignificante.
-Puede requerir experiencia previa; o pasar un período de aprendizaje.
-Puede corresponderle trabajar en equipo, en cual varios trabajadores comparten una o varias tarea.
+· Generalmente, recibe indicaciones generales, sobre el trabajo, ocasionalmente se le especifica la tarea a realizar.
+· Recibe control sobre las tareas realizadas.
+· Le corresponde preparar y dar mantenimiento a las herramientas y equipo que utiliza.
+· La consecuencia del error, generalmente es nula o insignificante.
+· Puede requerir experiencia previa; o pasar un período de aprendizaje.
+· Puede corresponderle trabajar en equipo, en cual varios trabajadores comparten una o varias tarea.
 EXPLOTACIÓN DE MINAS Y CANTERAS, INDUSTRIAS MANUFACTURERAS, CONSTRUCCIÓN Y ELECTRICIDAD
 Definición de título:
 EXPLOTACIÓN DE MINAS Y CANTERAS: Se refiere a la extracción, elaboración y beneficio de minerales que se encuentran en estado natural: sólido (carbón y otros), líquido (petróleo), gaseoso (gas al). Incluye las minas subterráneas o a cielo abierto, las canteras y los s con todas las actividades complementarias (trituración, cribado, !o, limpieza, clasificación, flotación, fusión, granulación. Extracción de piedra, arcilla para cerámica, refractaria y de otros tipo, yeso, abrasivos naturales, arena y grava de todas clases, extracción de minerales en general, extracción de sal, cal y otros elementos en estado natural.
@@ -464,8 +464,10 @@ NOTA: No obstante lo anterior, si el trabajador ha cursado una carrera paraunive
 NOTA: Incluye a los Técnicos en tecnologías médicas, y a los Asistentes de Emergencias Médicas.
 DIPLOMADOS DE EDUCACIÓN SUPERIOR (Genéricos)
 Este renglón se refiere a aquellos trabajadores a quienes por disposición legal o administrativa se les exija la conclusión de una carrera corta universitaria, obteniendo el título de Diplomados Universitarios y hayan aprobado un mínimo de sesenta créditos.
-BACHILLERES UNIVERSITARIOS (Genéricos)
+(*)BACHILLERES UNIVERSITARIOS (Genéricos)
 Este renglón se refiere a aquellos trabajadores graduados como "Bachilleres" en una institución universitaria nacional debidamente autorizadas por el Consejo de Educación Superior.
+(*)(Nota: El Consejo Nacional de Salarios, mediante resolución N° 03 y publicada en La Gaceta N° 149 del 3 de agosto de 2009, acordó: “…ubicar salarialmente a los Contadores Privados, con grados académicos universitarios de bachillerato y licenciatura, en los renglones salariales del Decreto de Salarios Mínimos de bachiller y licenciados universitarios respectivamente y hacer las modificaciones en la lista general de ocupaciones.”)
 LICENCIADOS UNIVERSITARIOS (Genéricos)
 Este renglón se refiere a aquellos trabajadores graduados como "Licenciados en un institución universitaria nacional debidamente autorizada por el Consejo de Educación Superior. Asimismo, incluye a aquellos trabajadores que ostentan un grado académico similar o equivalente, obtenido en instituciones de educación superior extranjeras, y que sea aprobado o reconocido por las universidades nacionales.
-NOTA: Este renglón ocupacional cubre también a: médicos, abogados, arquitectos, contadores públicos autorizados, farmacéuticos, ingenieros, odontólogos, químicos, médicos veterinarios."
+NOTA: Este renglón ocupacional cubre también a: médicos, abogados, arquitectos, contadores públicos autorizados, farmacéuticos, ingenieros, odontólogos, químicos, médicos veterinarios, (*)Contadores Privados."
+(*)(Nota: El Consejo Nacional de Salarios, mediante resolución N° 03 y publicada en La Gaceta N° 149 del 3 de agosto de 2009, acordó: “…ubicar salarialmente a los Contadores Privados, con grados académicos universitarios de bachillerato y licenciatura, en los renglones salariales del Decreto de Salarios Mínimos de bachiller y licenciados universitarios respectivamente y hacer las modificaciones en la lista general de ocupaciones.”)
