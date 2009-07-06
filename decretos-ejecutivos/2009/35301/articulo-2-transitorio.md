@@ -1,0 +1,1 @@
+Transitorio segundo.—El SFE, pondrá a disposición del público a través de su página Web, en un plazo de seis meses a partir de la publicación de este reglamento, la lista de los LMR’s indicada en el inciso 5, acápite 5.4, del artículo 1.

@@ -1,0 +1,1 @@
+Artículo 3º—Derogatoria. Deróguese el Decreto Ejecutivo 27630 MAG-MEIC-S de diecinueve de mayo de mil novecientos noventa y ocho. RTCR-229:1996 “Límites Máximos de Residuos de Plaguicidas en Vegetales”.

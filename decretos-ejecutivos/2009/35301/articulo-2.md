@@ -1,0 +1,1 @@
+Artículo 2º—Sanciones por incumplimiento. Todo registrante que incumpla con lo establecido en el presente decreto ejecutivo, será sancionado de conformidad con lo dispuesto en la Ley de Protección Fitosanitaria, según corresponda. Lo anterior sin detrimento de las acciones penales o civiles pertinentes.
