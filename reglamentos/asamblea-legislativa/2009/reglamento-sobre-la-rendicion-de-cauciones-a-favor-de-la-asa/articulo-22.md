@@ -1,0 +1,1 @@
+Artículo 22.—Responsabilidad solidaria. De igual sanción se hará acreedor el funcionario que, por razón de su cargo o puesto, se encuentre obligado a exigir o constatar la suscripción de la garantía, y que con su actuar omita, obvie o no compele al obligado a la prestación de esta.

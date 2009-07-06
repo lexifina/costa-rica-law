@@ -1,0 +1,1 @@
+Artículo 7º—Caucionantes del nivel A. En este nivel deben rendir caución, para el ejercicio de sus cargos, el presidente y el secretario del Directorio, el director ejecutivo y los directores de las Divisiones Administrativa y Legislativa, el auditor y el subauditor.

@@ -1,0 +1,1 @@
+Artículo 4º—Deber de solventar la caución. Es deber del caucionante gestionar, ante las instituciones respectivas, el seguro o la póliza de fidelidad, así como sufragar, de su propio peculio, el costo de la garantía a favor de la Asamblea Legislativa.

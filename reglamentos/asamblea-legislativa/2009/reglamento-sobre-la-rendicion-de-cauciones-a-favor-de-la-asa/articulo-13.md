@@ -1,0 +1,4 @@
+CAPÍTULO III
+Monto por caucionar
+Artículo 13.—Caución mínima. El monto mínimo de la garantía a favor de la Asamblea Legislativa será de quinientos mil colones (¢500.000,00). El Departamento Financiero actualizará anualmente, para cada nivel, el monto por caucionar; para ello, tomará como parámetro el salario base establecido en la Ley Nº 7337, de 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial, cada inicio de año.
+Dicha actualización será comunicada por documento escrito o medio electrónico, tanto a los funcionarios caucionantes como al Departamento de Recursos Humanos, en el momento en que se deba proceder a la renovación de la caución correspondiente. Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, contarán con un plazo máximo de veinte días hábiles, contados a partir de la notificación de dicha comunicación.

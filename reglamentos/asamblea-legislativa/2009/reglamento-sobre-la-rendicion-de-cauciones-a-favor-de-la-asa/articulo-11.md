@@ -1,0 +1,1 @@
+Artículo 11.—Simultaneidad de las funciones sujetas a caución. El funcionario que esté obligado a caucionar y se le asigne una función que genere ese mismo deber, caucionará una sola vez al año y por el monto de mayor valor.

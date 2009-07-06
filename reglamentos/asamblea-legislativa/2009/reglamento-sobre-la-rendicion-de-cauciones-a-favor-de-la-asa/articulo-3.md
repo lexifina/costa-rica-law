@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución a favor de la Asamblea Legislativa solo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad, excepto que el Departamento Financiero acepte algún otro medio idóneo para ese fin.
