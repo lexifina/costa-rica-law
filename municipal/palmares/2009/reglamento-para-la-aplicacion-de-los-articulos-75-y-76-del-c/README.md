@@ -14,3 +14,4 @@ Reglamento para la Aplicación de los artículos 75 y 76 del Código Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-23 | la propia norma |
+| 2 | 2009-07-06 | Reglamento municipal 166 (2009-07-06) |
