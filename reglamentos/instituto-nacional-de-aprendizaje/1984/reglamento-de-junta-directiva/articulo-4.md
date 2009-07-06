@@ -1,2 +1,0 @@
-Artículo 4: Remoción de los Miembros Electivos.
-Los miembros electivos a que se refiere el artículo 2 inciso c), una vez que hayan entrado en funciones no podrán ser removidos por el Consejo de Gobierno, sino es con base en un informe de la Contraloría General de la República, en que se ponga de manifiesto que hay causa para ello, conforme a las disposiciones legales o reglamentarias correspondientes, salvo lo dispuesto en el artículo 98 de la Ley General de Administración Pública.

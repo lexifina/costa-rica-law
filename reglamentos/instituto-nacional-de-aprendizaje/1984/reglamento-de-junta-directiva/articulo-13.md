@@ -1,2 +1,0 @@
-Artículo 13: Quórum.
-El quórum para que la Junta Directiva sesione válidamente será el de mayoría absoluta de sus componentes. Si no hubiere quórum, la Junta podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la fecha señalada para la primera, salvo casos de urgencia comprobada y señalada en la convocatoria en la que la Junta podrá sesionar después de media hora de la primenra convocatoria y para ello será suficiente la asistencia de la tercera parte de sus miembros.
