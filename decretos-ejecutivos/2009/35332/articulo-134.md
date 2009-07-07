@@ -1,0 +1,1 @@
+Artículo 134.—El profesional podrá ofrecer al público sus servicios por medio de anuncios en los que se limitará a informar el nombre y apellidos, títulos académicos registrados y aprobados por el Colegio de Médicos y Cirujanos de la República de Costa Rica, especialidad en que esté inscrito, horas de consulta, dirección, número de teléfono y dirección electrónica.

@@ -1,0 +1,1 @@
+Artículo 142.—Contra toda sanción interpuesta por la Junta de Gobierno procede el recurso de revocatoria que resolverá la misma Junta, y el recurso de apelación que resolverá la Asamblea General. Ambos recursos pueden establecerse separados o conjuntamente, dentro del plazo límite de ocho días hábiles a partir de su debida notificación.

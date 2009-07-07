@@ -1,0 +1,1 @@
+Artículo 82.—El médico no deberá subordinar el monto de sus honorarios al resultado del tratamiento o cura del paciente. Tendrá derecho de cobrar sus honorarios si el paciente fallece. Si su actuar fuere como perito médico, el monto de sus honorarios no podrá ser condicionado al resultado del juicio.

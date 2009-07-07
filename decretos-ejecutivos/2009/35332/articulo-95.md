@@ -1,0 +1,1 @@
+Artículo 95.—El médico debe tener acceso a la información contenida en el expediente clínico en los servicios de salud, esa información es confidencial, solo podrá compartirla con fines médicos legítimos y según corresponda, con el consentimiento del paciente.

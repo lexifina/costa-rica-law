@@ -1,0 +1,1 @@
+Artículo 84.—El médico no debe utilizar los recursos de las instituciones públicas para ejecutar procedimientos médicos en pacientes de su práctica pública o privada, como forma de obtener ventajas personales.
