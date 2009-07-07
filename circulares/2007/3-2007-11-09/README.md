@@ -14,3 +14,4 @@ Avalúos en procesos sucesorios notariales y judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-11 | la propia norma |
+| 2 | 2009-07-07 | Directriz 7 (2009-07-07) |
