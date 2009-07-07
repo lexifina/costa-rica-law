@@ -14,3 +14,4 @@ Especificaciones para la presentación de encuestas de carácter operativo que c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-01 | la propia norma |
+| 2 | 2009-07-07 | Resolución 170 (2009-07-07) |
