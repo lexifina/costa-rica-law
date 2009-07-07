@@ -14,3 +14,4 @@ Normas para la aplicación del Régimen de Dedicación Exclusiva para los profes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-09-30 | la propia norma |
+| 2 | 2009-07-07 | Resolución 12 (2009-07-07) |

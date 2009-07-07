@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE SERVICIO CIVIL
+(Nota de Sinalevi: Mediante resolución N° 012 del 7 de julio de 2009, se publicó la resolución DG-207-2009, que indica lo siguiente: “Integra y modifica el cuerpo de normas para la aplicación del Régimen de Dedicación Exclusiva.”)
 Resolución DG-070-94.—Dirección General de Servicio Civil.—San José, a las nueve horas del día tres de agosto de mil novecientos noventa y cuatro.
 Considerando:
 1°—Que las normas que regulan el Régimen de Dedicación Exclusiva para los profesionales del Poder Ejecutivo, requieren su adaptación a la realidad actual.
