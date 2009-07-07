@@ -1,0 +1,1 @@
+Artículo 17.—Contrataciones de recursos externos. La Auditoría Interna podrá realizar la contratación de recursos externos para llevar a cabo los estudios especiales, los cuales deben ser previamente justificados. La Administración facilitará dichas contrataciones, cumpliéndose para ello con los procesos de contratación establecidos en el marco jurídico que los respalda.

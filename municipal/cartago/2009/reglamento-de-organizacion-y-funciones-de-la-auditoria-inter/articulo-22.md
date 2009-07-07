@@ -1,0 +1,7 @@
+Artículo 22.—Prohibiciones. El auditor interno, el subauditor interno y los demás funcionarios de la Auditoría Interna tendrán las siguientes prohibiciones:
+a) Realizar funciones y actuaciones de Administración Activa, salvo las necesarias para cumplir su competencia.
+b) Formar parte de un Órgano Director de un procedimiento administrativo.
+c) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, excepto que exista impedimento por la existencia de un interés directo o indirecto de la Municipalidad. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
+d) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
+e) Revelar información sobre las auditorias o los estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios y organismos sujetos al Código Municipal y marco jurídico competente.
+f) Debido a las prohibiciones antes manifestadas, se le reconocerá al Auditor Interno y los demás funcionarios de la Auditoría Interna, un sesenta y cinco por ciento (65%) como plus salarial sobre el salario base, aplicando los pronunciamientos legales emitidos en este aspecto.

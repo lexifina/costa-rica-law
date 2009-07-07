@@ -1,0 +1,1 @@
+Artículo 13.—Restricciones. El Auditor Interno y el Personal de Auditoría no podrán ser empleados ni ejercer funciones de otra Unidad Administrativa en la Institución y tampoco ser miembro del Concejo Municipal, Comité Cantonal de Deportes, comisiones de trabajo o similares.

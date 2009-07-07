@@ -1,0 +1,1 @@
+Artículo 52.—Reglamento Interno de trabajo y otros. Los actuales funcionarios de la Unidad de Auditoría Interna quedan de pleno derecho protegidos con lo estipulado en el reglamento interno de trabajo y otras directrices en materia laboral previamente aprobadas por el Jerarca Institucional.

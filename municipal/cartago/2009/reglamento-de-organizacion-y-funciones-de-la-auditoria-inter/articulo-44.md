@@ -1,0 +1,1 @@
+Artículo 44.—Componentes del Plan Anual de Actividades. El Plan Anual de Actividades abarcará estudios sobre Auditoría Operativa, Auditoría Financiera-Contable, Control Interno y Auditoría de Estudios Especiales.

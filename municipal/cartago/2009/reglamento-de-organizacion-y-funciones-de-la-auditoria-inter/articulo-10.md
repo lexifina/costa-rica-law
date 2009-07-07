@@ -1,0 +1,1 @@
+Artículo 10.—Dependencia orgánica. El Auditor interno dependerá orgánicamente del Concejo Municipal, ejerce sus funciones con total independencia funcional y de criterio, sujetándose al mandato de la Constitución Política, las leyes, reglamentos y la normativa de la Contraloría General de la República y sus directrices en el ámbito de su competencia.

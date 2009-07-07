@@ -1,0 +1,1 @@
+Artículo 48.—Denuncias. Cualquier ciudadano podrá presentar denuncias ante la Auditoría Interna sobre supuestos hechos anómalos que se haya o estén presentando, según lo establece la legislación vigente y, el manual de procedimientos de recepción y admisibilidad de denuncias ante este Unidad publicado en el Diario Oficial La Gaceta Nº 204 de fecha 25 de octubre del 2006.

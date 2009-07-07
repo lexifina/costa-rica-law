@@ -1,0 +1,1 @@
+Artículo 41.—Elaboración del presupuesto. La Auditoría Interna elaborará su presupuesto anual en forma independiente, de acuerdo con los lineamientos que sobre esta materia emita la Contraloría General de la República y de conformidad con su planificación basada en riesgos.

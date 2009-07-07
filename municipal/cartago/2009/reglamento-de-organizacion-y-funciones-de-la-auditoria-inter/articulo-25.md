@@ -1,0 +1,2 @@
+Artículo 25.—Confidencialidad de la información. Será estrictamente confidencial la información que el Auditor Interno y el Personal de Auditoría Interna obtenga en el ejercicio de sus funciones y que esté contenida en sus papeles de trabajo. Sin embargo, esta confidencialidad no se aplicará a los requerimientos de la Contraloría General en el ejercicio de su competencia fiscalizadora, ni cuando haya solicitud expresa de la autoridad competente.
+De igual manera, se guardará la confidencialidad de la identidad de las personas que presenten denuncias ante la Unidad.

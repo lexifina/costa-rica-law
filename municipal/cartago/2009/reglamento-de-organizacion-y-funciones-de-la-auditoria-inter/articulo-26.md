@@ -1,0 +1,1 @@
+Artículo 26.—Declaraciones públicas del personal de auditoría. El personal de auditoría se abstendrá de dar declaraciones públicas a personas ajenas a las entidades, órganos o unidades administrativas objeto de examen, en relación con los procedimientos de trabajo utilizados y los resultados obtenidos, sin la autorización superior.

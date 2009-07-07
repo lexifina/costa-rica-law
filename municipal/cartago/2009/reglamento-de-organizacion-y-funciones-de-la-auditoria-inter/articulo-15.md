@@ -1,0 +1,1 @@
+Artículo 15.—Independencia funcional y de criterio. Los funcionarios de la Auditoría Interna, ejercerán sus atribuciones con total independencia funcional y de criterio, respecto del Concejo y demás órganos de la Administración Activa.
