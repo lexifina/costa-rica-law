@@ -1,0 +1,1 @@
+2) En el caso de los títulos ligados a la inflación, la Administración deberá someter a consideración de la Junta Directiva, una metodología para la determinación de las tasas en este tipo de instrumentos.

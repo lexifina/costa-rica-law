@@ -1,0 +1,16 @@
+# Reglamento (2009-06-10)
+
+Metodología para fijar las tasas de colocación de los pasivos
+
+- Tipo: Reglamento
+- Número: 5426
+- Fecha: 2009-06-10
+- Ente emisor: Banco Central de Costa Rica
+- Publicación: La Gaceta N° 131 del 2009-07-08
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=65768&param2=77015&param3=1 (ficha 65768)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-07-08 | la propia norma |

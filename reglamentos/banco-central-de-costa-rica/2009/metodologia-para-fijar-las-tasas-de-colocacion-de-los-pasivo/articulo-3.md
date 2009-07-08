@@ -1,0 +1,1 @@
+3) Derogar lo resuelto en el artículo 8 del acta de la sesión 5393-2008, celebrada el 26 de setiembre del 2008, oportunidad en la que se definió una metodología para el establecimiento de la tasa de interés aplicable a los depósitos electrónicos a plazo que se ofrecen a través de Central Directo.
