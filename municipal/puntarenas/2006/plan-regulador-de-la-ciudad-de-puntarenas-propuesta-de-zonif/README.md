@@ -14,3 +14,4 @@ Plan Regulador de la Ciudad de Puntarenas Propuesta de Zonificación sobre el Us
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-27 | la propia norma |
+| 2 | 2009-07-08 | Reglamento municipal 303 (2009-07-08) |

@@ -21,7 +21,8 @@ A. Propósito:
 El propósito de esta zona es permitir la ordenada expansión de los locales comerciales dentro del cuadrante urbano, permitiendo el establecimiento de servicios primarios y secundarios en el centro de la ciudad y en los barrios residenciales circunvecinos a éste.
 B. Usos Permitidos:
 1. Residenciales Mixtos, sean parte vivienda parte comercio y áreas urbanas dentro del cuadrante urbano.
-2. Comercio Primario de locales de acuerdo con el anexo Nº 1 de este Reglamento del numeral 1 al 51, Condicionales: 11, 21, 49, Usos No Permitidos: 2, 15, 23, 48 y 52.
+2. Comercio Primario de locales de acuerdo con el anexo Nº 1 de este Reglamento del numeral 1 al 51, Condicionales: 11, 21, 49, (*)Usos No Permitidos: 2, 15, 23 y 52.
+(*)(La Municipalidad de Puntarenas, mediante sesión N° 303 del 8 de julio de 2009, acordó eliminar del punto B. Usos permitidos, dentro del punto 2 Usos No permitidos el numeral 48 Marinas y Atracaderos Turísticos y ordena trasladarlo al punto C. Usos Condicionales únicamente como Atracaderos Turísticos)
 3. Comercio Secundario en las urbanizaciones, para el establecimiento de pulperías, bazares, restaurantes pequeños (hasta 30 personas en servicio) en áreas dentro de urbanizaciones (Barrio El Carmen y El Cocal).
 4. Comercio sobre el Paseo de los Turistas: Se permitirán principalmente usos de apoyo a la actividad turística en sectores ya establecidos con carácter comercial con el fin de proteger otras zonas del Paseo de los Turistas aún no desarrolladas, esto por cuanto tiendan a ser incompatibles por las actividades de uso en altas horas de la noche.
 5. Se establecen áreas mixtas en donde se promueven zonas residenciales con el fin de permitir el desarrollo de actividades de apoyo turístico a lo largo del Paseo de los Turistas, en estas áreas se deberán de adquirir los terrenos completos que conformen los remanentes de cuadras con el fin de no afectar el uso predominante con el propuesto a cambiar.
@@ -33,6 +34,8 @@ C. Usos Condicionales:
 5. Casinos
 6. Estación de autobuses interurbanos, la cual se determina como sitio específico 100 al Este de la Plaza de Artesanía, para que opere de forma permanente. Se dispone en forma temporal trasladar las paradas de buses correspondientes entre las calles 3 y 2; Av. 2 calle 1 entre Av. 2 y 4 hasta tanto la terminal de buses urbanos e interurbanos entre a funcionar y deban de trasladarse de forma permanente.
 Solamente se podrán ubicar en las áreas comerciales específicamente establecidas, no así en zonas mixtas con residenciales que afecten sus intereses.
+7. Atracaderos Turísticos
+(Así adicionadoel punto anterior en sesión N° 303 del 8 de julio de 2009)
 D. Requisitos:
 Los usos permitidos podrán construir cumpliendo las normas siguientes, los usos condicionales deberán de solicitar adicionalmente el Vº Bº del Ministerio de Salud a efectos de calificar la actividad y su molestia confinable de acuerdo con los parámetros por ellos establecidos.
 E. Normativa:
@@ -64,7 +67,8 @@ Estacionamientos: Deberán de cumplir con las normas generales de estacionamient
 Instalaciones de torres de telecomunicación, serán permitidas como única excepción en cualquier zona regulada, por efecto de codificación y triangulación lo requiera el Instituto Costarricense de Electricidad.
 Artículo 4º—Zona “Industrial Marítima”. (ZIM)
 A. Propósito:
-El propósito de esta zona es permitir el uso de las zonas aptas para el apoyo a la actividad de pesca artesanal e industrial, tanto como las actividades de cabotaje y de embarcaciones turísticas principalmente. Además se consideran actividades de apoyo y uso condicional el establecimiento de restaurantes, centros de degustación, centros de acopio, fabricas de hielo y todas aquellas actividades que apoyen la actividad principal. Se han establecido zonas de apoyo a la actividad industrial marítimo dentro de la propuesta de plan maestro que de cumplirse incluirán las normativas establecidas en este reglamento. Barrio El Carmen, zona 1.1, con límites entre calles 15 a 23 Av.1 y Calles 9 a 15, Ave 3; y El Cocal, zona 1.2 con límites entre calles 12 a 30 Bis Av. Centra1 y Calles 32 a 58, Ave 1 y 1 Bis.
+El propósito de esta zona es permitir el uso de las zonas aptas para el apoyo a la actividad de pesca artesanal e industrial, tanto como las actividades de cabotaje y de embarcaciones turísticas principalmente. Además se consideran actividades de apoyo y uso condicional el establecimiento de restaurantes, centros de degustación, centros de acopio, fabricas de hielo y todas aquellas actividades que apoyen la actividad principal. Se han establecido zonas de apoyo a la actividad industrial marítimo dentro de la propuesta de plan maestro que de cumplirse incluirán las normativas establecidas en este reglamento. Barrio El Carmen, zona 1.1, con límites entre calles 27 a 33 Av. 3, calles 15 a 25 Av.1 y Calles 3 a 15, Ave 3 (sin incluir la propiedad declarada como Patrimonio arquitectónico, costado Norte del Parque Victoria); y El Cocal, zona 1.2 con límites entre calles 8 a 62 Av. Central y Calles 32 a 58 Av. 1 y 1 Bis., excluyendo los bloques definidos dentro de esta zona como uso Comercial, Uso Residencial, Uso Público Institucional, Uso Comercial Residencial Mixto y Uso de Zonas Verdes y Recreativas.
+(Así reformado el párrafo anterior en sesión N° 303 del 8 de julio de 2009)
 B. Usos Permitidos:
 - Atracaderos de embarcaciones marinas
 - Centros de servicios de combustibles para embarcaciones marinas
@@ -177,7 +181,8 @@ Se adopta lo establecido por el Decreto Ejecutivo de creación de zonificación 
 Las cuales se mantendrán como áreas industriales para los fines establecidos hasta la fecha. A excepción de las zonas industriales de el barrio El Carmen, zona 1.1, con límites entre calles 15 a 23 Av.1 y Calles 11 a 15, Ave 3; y El Cocal, zona 1.2 con límites entre calles 12 a 30 Bis Av. Central y Calles 32 a 58, Ave 1 y 1 Bis; las cuales pasarán a ser normadas en lo subsiguiente dentro de la zonificación de Industria Marítima, establecidas en este reglamento.
 Artículo 10.—Zona “Servicios Turísticos”. (ZST)
 A. Propósito:
-Esta zona es básica para proponer áreas para la ubicación de servicios especializados en turismo afines al desenvolvimiento de las actividades referente a la atención del turismo nacional e internacional. Su acceso como ubicación deben de ser las óptimas en relación al muelle nacional entre Calles 1 y 2, Av.2 y 4.
+Esta zona es básica para proponer áreas para la ubicación de servicios especializados en turismo afines al desenvolvimiento de las actividades referente a la atención del turismo nacional e internacional.
+(Así reformado el párrafo anterior en sesión N° 303 del 8 de julio de 2009)
 B. Usos Permitidos:
 1. Agencias de viajes.
 2. Centros de promoción e información turística.
@@ -199,7 +204,8 @@ Requisitos de fraccionamientos o segregaciones de lotes o fincas.
 1. Superficie de lote o finca mínima: 100,0 m²
 2. Frente mínimo de lote: 8,00 m
 Los requisitos de superficie y frente mínimo de lote o fincas son aplicables a fincas o lotes producto de segregaciones nuevas. Los existentes que están por debajo de estos mínimos podrán permanecer igual o agruparse, siempre y cuando el área mínima cumpla con lo estipulado.
-3. Alturas: Hasta tres pisos o 10.0 m
+3. Alturas: 1,5 veces el ancho de la vía que enfrenta el lote.
+(Así reformado el punto anterior en sesión N° 303 del 8 de julio de 2009)
 4. Retiros: No se exigen retiros de construcción. Solo deberá respetar los retiros de alineamiento vial municipal.
 5. Cobertura: 100%.
 Artículo 11.—Zona “Residencial-Comercial Mixta”. (ZRCM)
@@ -207,7 +213,8 @@ A. Propósito:
 El propósito primordial de esta zona es permitir el desarrollo de viviendas unifamiliares y multifamiliares con servicios comerciales, con base al reajuste de norma seguidamente indicados. Además, otros usos del suelo permitidos serán el establecimiento de zonas comerciales tipificadas de acuerdo con el anexo Nº 1.
 B. Usos Permitidos:
 1. Vivienda individual en parcelas frente a calle pública y en lotes debidamente fraccionados.
-2. Locales comerciales tipificados en el anexo Nº 1 del 1 al 52 de este reglamento, excepto los indicados en los numerales 1, 2, 3, 4, 5, 10, 11, 13,14, 15, 18, 20, 21, 22, 23, 31, 32,33, 36, 38, 39, 46, 48, 50, 52.
+2. (*)Locales comerciales tipificados en el anexo Nº 1 del 1 al 52 de este reglamento, excepto los indicados en los numerales 1, 2, 3, 4, 5, 10, 11, 13,14, 15, 18, 21, 22, 23, 31, 36, 38, 39, 46, 48, 50, 52.
+(*)(La MUnicipalidad de Puntarenas, mediante sesión N° 303 del 8 de julio de 2009, acordó excluir de la lista de locales comercials no permitidos para la Zona Residencial Comercial Mixta los puntos: 20, 32 y 33)
 C. Usos Condicionales:
 Vivienda multifamiliar de alta densidad de hasta 250 Viv/Ha.
 D. Requisitos:
