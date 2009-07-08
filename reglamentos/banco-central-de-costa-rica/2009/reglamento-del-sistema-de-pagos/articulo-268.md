@@ -1,1 +1,2 @@
-Artículo 268.—Condiciones por moneda. Para constituir las garantías, los asociados podrán utilizar valores emitidos en una moneda distinta de la moneda de la exposición crediticia que garantizan. Con tales propósitos, la paridad cambiaria estará determinada por el tipo de cambio de referencia para la compra de US dólares, calculado diariamente por el BCCR.
+Artículo 268.—Condiciones por moneda. Para constituir las garantías, los asociados podrán utilizar valores emitidos en una moneda distinta de la moneda de las obligaciones financieras que garantizan. Con tales propósitos, la paridad cambiaria estará determinada por el tipo de cambio de referencia para la compra de US dólares, calculado diariamente por el BCCR.
+(Así reformado en sesión N° 5429 de 8 de julio de 2009).

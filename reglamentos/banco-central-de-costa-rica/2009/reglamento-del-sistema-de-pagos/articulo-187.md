@@ -1,1 +1,2 @@
-Artículo 187.—Depósito de garantías. Para captar recursos con créditos garantizados, el participante deberá previamente depositar valores en una cuenta de garantía o aportar garantías líquidas mantenidas en el BCCR, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.
+Artículo 187.—Depósito de garantías. Para captar recursos con operaciones diferidas de liquidez garantizadas, el participante deberá previamente depositar valores en una cuenta de garantía o aportar garantías líquidas mantenidas en el BCCR, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.
+(Así reformado en sesión N° 5429 de 08 de julio de 2009).

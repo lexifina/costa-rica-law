@@ -1,1 +1,2 @@
-Artículo 258.—Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para las entidades financieras, los asociados podrán aportar garantías adicionales para respaldar los compromisos crediticios que decidan asumir con su participación en los mercados de negociación organizados a través del SINPE.
+Artículo 258.—Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para las entidades financieras, los asociados podrán aportar garantías adicionales para respaldar las obligaciones financieras que decidan asumir con su participación en los mercados de negociación organizados a través del SINPE.
+(Así reformado en sesión N° 5429 de 8 de julio de 2009).

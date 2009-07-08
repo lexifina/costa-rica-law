@@ -1,4 +1,4 @@
-Artículo 189.—Funcionamiento con créditos garantizados. La participación en el MIL estará determinada por el tipo de operación negociada:
-a) Créditos garantizados: El mercado opera en forma ciega, por lo que los participantes no podrán identificar a las contrapartes.
-b) Créditos no garantizados: Los participantes podrán seleccionar a las entidades que desean que participen como contraparte deudora en sus ofertas de inversión.
-En el caso de que la oferta la registre la entidad que desea realizar la captación, el nombre del oferente podrá ser visto por todos los participantes.
+Artículo 189.—Forma de negociación. La forma de negociación en el MIL estará determinada por el tipo de operación que se oferte en el servicio:
+a) Operaciones diferidas de liquidez garantizadas: El mercado opera en forma ciega, por lo que los participantes no podrán identificar a las contrapartes.
+b) Operaciones diferidas de liquidez no garantizadas: Los participantes podrán seleccionar a las entidades que desean que participen como contraparte deudora en sus ofertas de inversión. Asimismo, en el caso de que la oferta la registre la entidad demandante de los fondos, el nombre del oferente podrá ser visto por todos los participantes.
+(Así reformado en sesión N° 5429 de 8 de julio de 2009).
