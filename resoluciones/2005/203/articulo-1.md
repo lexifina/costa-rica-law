@@ -3128,7 +3128,8 @@ B. Actuaciones del Departamento de Registro
 5) Notifica al interesado, a la Aduana de Control a COMEX y PROCOMER, el acto resolutivo y en caso de que se haya autorizado el régimen, remite a cada una copia certificada del expediente de autorización.
 II. De la solicitud de devolución de tributos
 A. Actuaciones del Beneficiario o Agente Aduanero
-1) El beneficiario o el Agente o Agencia Aduanera que lo representa, ingresa a la página WEB de PROCOMER a la dirección electrónica www.procomer.com y completa el Formulario denominado “Solicitud de Devolución de Tributos”, procediendo a imprimirlo para su firma.
+1) El beneficiario, sea persona física o jurídica, o quien lo represente (Agente Aduanero, Representante Legal o Apoderado Especial), ingresa a la página WEB de PROCOMER a la dirección electrónica www.procomer.com y completa el Formulario denominado “Solicitud de Devolución de Tributos”, procediendo a imprimirlo para su firma. Dicha firma debe ser autenticada por abogado o notario público, de conformidad con el artículo 13 del De cr eto Ejecutivo Nº 34740-H-COMEX del 19 de setiembre del 2009.
+(Así reformado el numeral anterior mediante resolución RES -DGA N° 190 del 08 de julio del 2009).
 2) Presenta ante PROCOMER, la solicitud de devolución, adjuntando la siguiente la documentación:
 a) Si existen cambios en la cuenta cliente, registrada al momento de la autorización en la DGA , aportará al Depto de Registro una nueva certificación emitida por la entidad bancaria respectiva.
 b) Fotocopia de las facturas declaradas en el DUA de exportación.
