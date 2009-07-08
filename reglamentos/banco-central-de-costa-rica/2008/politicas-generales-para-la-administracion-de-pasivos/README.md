@@ -16,3 +16,4 @@ Políticas Generales para la Administración de Pasivos
 | 1 | 2008-05-15 | la propia norma |
 | 2 | 2008-11-19 | Reglamento 5403 (2008-11-19) |
 | 3 | 2009-03-25 | Reglamento 5418 (2009-03-25) |
+| 4 | 2009-07-08 | Reglamento 5429 (2009-07-08) |
