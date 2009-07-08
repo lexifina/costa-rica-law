@@ -78,3 +78,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 63 | 2009-05-13 | Reglamento 5423 (2009-05-13) |
 | 64 | 2009-05-20 | Reglamento 5424 (2009-05-20) |
 | 65 | 2009-06-03 | Reglamento 5425 (2009-06-03) |
+| 66 | 2009-07-08 | Reglamento 5429 (2009-07-08) |
