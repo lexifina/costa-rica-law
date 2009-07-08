@@ -14,3 +14,4 @@ Adiciona Procedimiento del Régimen Devolutivo de Derechos al Manual de Procedim
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-19 | la propia norma |
+| 2 | 2009-07-08 | Resolución 190 (2009-07-08) |
