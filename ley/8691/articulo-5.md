@@ -18,4 +18,5 @@ INDICADORES DE RESULTADOS:
 6.-Número de visitas realizadas por el equipo de profesionales de la Defensoría de los Habitantes de la República con el proyecto "Defensoría en su comunidad" a las comunidades de las diferentes regiones geográficas, respecto a las visitas programadas.
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 56 a La Gaceta N° 253 del 31 de diciembre del 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35060 del 27 de febrero de 2009)
-(Modificado por el artículo 1° del decreto ejecutivo N° 35256 del 11 de mayo de 2009).
+(Modificado por el artículo 1° del decreto ejecutivo N° 35256 del 11 de mayo de 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35381 del 9 de julio de 2009)
