@@ -14,3 +14,4 @@ Detalle de los despachos que deben atender la modalidad de apertura afectiva, en
 | --- | --- | --- |
 | 1 | 2009-07-01 | la propia norma |
 | 2 | 2009-07-10 | Acuerdo 20 (2009-07-10) |
+| 3 | 2009-07-10 | Acuerdo 21 (2009-07-10) |

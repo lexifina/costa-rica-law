@@ -1,5 +1,6 @@
 CORTE SUPREMA DE JUSTICIA
 SECRETARÍA GENERAL
+(NOTA: El Consejo Superior en sesión N° 64 del 23 de junio de 2008, artículo XLV y N° 69 del 9 de julio de 2009 artículo XXIV, mediante aviso N° 21 de 10 de julio de 2009, publicado en el Boletín Judicial N° 144 del 27 de julio del 2009, dispuso aclarar este aviso en el sentido de que "...durante los días de cierre colectivo por vacaciones de medio año, los Jueces Penales Juveniles no tendrán apertura efectiva ni deberán atender por disponibilidad”).
 AVISO Nº 19-09
 Asunto: Detalle de los despachos que deben atender la modalidad de apertura efectiva, en el período de vacaciones colectivas del lunes 13 de julio al viernes 17 de julio de 2009.
 A LAS INSTITUCIONES, ABOGADOS, ABOGADAS, SERVIDORES
