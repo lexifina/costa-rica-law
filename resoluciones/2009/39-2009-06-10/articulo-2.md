@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución Nº 120-08 de las diez horas del día veinte de agosto del dos mil ocho, de la Dirección General de Hacienda, publicada en La Gaceta Nº 177, del 12 de setiembre del 2008.
