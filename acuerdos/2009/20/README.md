@@ -13,3 +13,4 @@ Aclaración del Aviso N° 19-09 sobre "Detalle de los despachos que deben atende
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-10 | la propia norma |
+| 2 | 2009-07-10 | Acuerdo 21 (2009-07-10) |
