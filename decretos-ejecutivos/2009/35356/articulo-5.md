@@ -1,0 +1,1 @@
+Artículo 5º.—Registro de elegibles. El Ministerio contará con un registro de talleres elegibles, conformado por los adjudicatarios que cumplan con los requisitos técnicos y legales de este reglamento.

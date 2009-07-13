@@ -1,0 +1,1 @@
+Artículo 16.—De la devolución de la garantía de cumplimiento. Para la devolución de la garantía de cumplimiento se deberá contar con el recibido de conformidad por parte de los mecánicos del Servicio de Vigilancia Aérea, con el aval de su Director, una vez que haya transcurrido su vigencia.

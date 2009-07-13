@@ -1,0 +1,1 @@
+Artículo 12.—Área encargada. El área encargada del seguimiento y control de la ejecución de las reparaciones será el Departamento de Mantenimiento Aeronáutico, mediante sus funcionarios capacitados y especialistas en la materia. Además, llevarán una bitácora en donde se registrará las llamadas o documentos de toda índole y oficios que se envíen a los talleres.

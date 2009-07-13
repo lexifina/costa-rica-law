@@ -1,0 +1,1 @@
+Artículo 17.—De la garantía sobre el servicio. Los adjudicatarios deberán brindar una garantía sobre el servicio que realizarán, tanto respecto a la mano de obra como a los repuestos, en los términos establecidos en los artículos 2 y 8 del presente reglamento.

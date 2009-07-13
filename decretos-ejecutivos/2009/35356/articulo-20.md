@@ -1,0 +1,1 @@
+Artículo 20.—Incorporación al Registro. El Ministerio podrá promover nuevas contrataciones ante la reducción de talleres elegibles, la habilitación de nuevos talleres y la incorporación de nuevos modelos de aeronaves, a fin de incorporar los talleres interesados al Registro de Talleres Elegibles.

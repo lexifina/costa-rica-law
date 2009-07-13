@@ -1,0 +1,1 @@
+Artículo 10.—De la disposición de los repuestos. Será obligación de los adjudicatarios entregar al Servicio de Vigilancia Aérea los repuestos o partes que sean retirados o sustituidos de las aeronaves o de sus componentes.

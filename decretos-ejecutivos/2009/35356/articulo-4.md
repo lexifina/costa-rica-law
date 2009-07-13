@@ -1,0 +1,1 @@
+Artículo 4º.—Adhesión al reglamento. Los oferentes interesados en ser adjudicatarios del tipo de servicio que regula el presente reglamento deberán aceptarlo en todos sus extremos por escrito. La no adhesión expresa al reglamento acarreará para el oferente el rechazo de su oferta y su exclusión definitiva del registro de elegibles.
