@@ -1,0 +1,1 @@
+Artículo 2º—El infractor deberá cumplir con lo dispuesto en el Artículo 62 de la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor y el Artículo 93 del Reglamento a esta Ley, Decreto Ejecutivo Nº 25234-MEIC y sus reformas.

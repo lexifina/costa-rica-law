@@ -1,0 +1,1 @@
+Artículo 6º—Las pinturas utilizadas en la fabricación de juguetes, no podrán contener plomo, mercurio u otros productos químicos prohibidos por el Ministerio de Salud, de conformidad con el Decreto Ejecutivo Nº 24334-S publicado en el Diario Oficial La Gaceta Nº 114 del 14 de junio de 1995 y sus reformas.
