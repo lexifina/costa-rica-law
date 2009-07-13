@@ -1,0 +1,1 @@
+Artículo 44.—Modificaciones a los contratos. La Municipalidad podrá aumentar o disminuir para un contrato, el objeto de la contratación, conforme lo disponen los artículos 12 de la Ley de Contratación Administrativa y 200 del Reglamento a la Ley de Contratación Administrativa.
