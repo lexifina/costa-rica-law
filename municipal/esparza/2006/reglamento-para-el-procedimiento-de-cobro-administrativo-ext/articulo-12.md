@@ -1,2 +1,2 @@
-Artículo 12.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente ante el pago total que realice el sujeto pasivo de la cuenta morosa o cuando se haya retrasado quince días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa de cobro judicial.
-( Así reformado en Sesión ordinaria del 9 de junio del 2008 )
+Artículo 12.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá: ante el pago total que realice el sujeto pasivo de la cuenta morosa, ante la firma de un nuevo arreglo de pago o cuando se haya retrasado quince días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa de cobro judicial.
+(Así reformado según artículo 5, capítulo IV del acta N° 63 del 13 de julio del 2009)
