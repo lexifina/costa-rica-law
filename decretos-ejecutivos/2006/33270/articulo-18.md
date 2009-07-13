@@ -6,5 +6,6 @@ Artículo 18.—Además de lo contemplado en el artículo anterior y en otros de
 5. Girar órdenes a sus subalternos para que realicen acciones al margen de lo dispuesto en el Ordenamiento Jurídico.
 6. Consentir actos de indisciplina, asistencia irregular e impuntualidad de los servidores bajo su responsabilidad, salvo casos debidamente justificados y omitir su deber de informar a su superior y a las autoridades ministeriales, cuando corresponda, las irregularidades que en uno u otro aspecto se presenten.
 7. Permitir que el personal a su cargo, incumpla con el correcto empleo del equipo, mobiliario y herramientas que le ha sido asignado.
-8. Autorizar o permitir la realización de jornada extraordinaria, cuando no se haya obtenido la autorización previa correspondiente de la Comisión de Recursos Humanos de la Dirección General de Servicio Civil.
+8- Autorizar o permitir la realización de jornada extraordinaria, cuando no se haya obtenido la autorización previa, de conformidad con lo dispuesto por el Reglamento para la Autorización, Reconocimiento y Pago del Tiempo Extraordinario del Ministerio y sus Órganos Desconcentrados, Decreto Ejecutivo número 34720 del 18 de junio del 2008 publicado en el Diario Oficial La Gaceta número 167 del 29 de agosto del 2008.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35592 del 13 de julio de 2009)
 9. Realizar nombramientos de personal al margen de lo legalmente estipulado.

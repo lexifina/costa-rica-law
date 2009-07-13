@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio de Cultura, Juventud y Deportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-17 | la propia norma |
+| 2 | 2009-07-13 | Decreto Ejecutivo 35592 (2009-07-13) |

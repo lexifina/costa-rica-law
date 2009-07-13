@@ -1,1 +1,3 @@
-Artículo 100.—Una vez presentada la denuncia ante la Jefatura de Recursos Humanos del Ministerio, corresponderá a ésta informar al jerarca de la Institución o del órgano desconcentrado, en un plazo no mayor de 3 días hábiles, sobre la denuncia planteada.
+Artículo 100.—El Jefe de Recursos Humanos del Ministerio o el Encargado de Recursos Humanos del órgano desconcentrado, en el plazo de tres días hábiles contados a partir de la recepción de la denuncia, deberá informar al jerarca del Ministerio o del órgano desconcentrado, sobre la interposición de la denuncia.
+En caso de que el órgano desconcentrado no cuente con departamento de Recursos Humanos, la Jefatura de Recursos Humanos del Ministerio deberá informar al jerarca del órgano desconcentrado sobre la denuncia para que sea éste quien conforme la comisión que establece el artículo 101.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35592 del 13 de julio de 2009)

@@ -31,7 +31,8 @@ Artículo 14.—Además de lo dispuesto en la Ley General de la Administración 
 Guardar la debida consideración y respeto a sus compañeros y a sus superiores jerárquicos.
 28. Portar permanentemente en un lugar visible de su vestimenta, el carné de identificación durante la jornada laboral, en el centro de trabajo.
 Dicho carné deberá ser devuelto al Departamento de Recursos Humanos o a los Encargados Auxiliares, cuando finalice su relación laboral con la Institución.
-29. Cumplir con el régimen de prohibiciones e incompatibilidades y demás disposiciones establecidas en el Estatuto de Servicio Civil y su Reglamento, la Ley de Control Interno Nº 8292 y Ley de Prohibición Nº 5867 y su Reglamento.
+29- Cumplir con el régimen de prohibiciones, incompatibilidades, dedicación exclusiva y demás disposiciones establecidas en el Estatuto y su Reglamento, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Nº 8422 del 6 de octubre del 2004 y su Reglamento Decreto Ejecutivo Nº 32333 del 12 de abril del 2005, la Ley de Compensación por el pago de Prohibición Nº 5867 del 15 de diciembre de 1975 y su Reglamento decreto ejecutivo número 22614 del 22 de octubre de 1993, Resolución DG - 70 - 94 del 3 de agosto de 1994 de la Dirección General del Servicio Civil en cuanto al régimen de dedicación exclusiva y Ley General de Control Interno Nº 8292 del 31 de julio del 2002, ésta última, en lo que a los funcionarios de las Auditorías se refiere.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35592 del 13 de julio de 2009)
 30. Colaborar con la Auditoría Interna en el cumplimiento de las potestades que le corresponden, de tal manera que éstas no se obstaculicen o retracen.
 31. Cumplir con las disposiciones de la Ley de Contratación Administrativa y su Reglamento.
 32. Someter al conocimiento de la Contraloría General de la República los presupuestos que requieran la aprobación de esa entidad.
