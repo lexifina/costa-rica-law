@@ -21,3 +21,4 @@ Reglamento de las Empresas y Actividades Turísticas
 | 6 | 2007-11-22 | Decreto Ejecutivo 34221 (2007-11-22) |
 | 7 | 2008-03-28 | Decreto Ejecutivo 34578 (2008-03-28) |
 | 8 | 2009-02-12 | Decreto Ejecutivo 35110 (2009-02-12) |
+| 9 | 2009-07-13 | Decreto Ejecutivo 35479 (2009-07-13) |
