@@ -14,3 +14,4 @@ Reglamento de Ventas Ambulantes y Estacionarias de la Municipalidad de Aguirre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-05 | la propia norma |
+| 2 | 2009-07-14 | Reglamento municipal 302 (2009-07-14) |
