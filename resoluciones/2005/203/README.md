@@ -39,3 +39,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 24 | 2009-04-06 | Resolución 124 (2009-04-06) |
 | 25 | 2009-04-21 | Resolución 132 (2009-04-21) |
 | 26 | 2009-07-08 | Resolución 190 (2009-07-08) |
+| 27 | 2009-07-14 | Resolución 198 (2009-07-14) |
