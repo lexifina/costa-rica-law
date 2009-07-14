@@ -1,4 +1,4 @@
 CAPITULO VIII
 Registro y control de asistencia
-Artículo 23.—La asistencia de los servidores a su trabajo se controlará mediante control de tarjeta en reloj, la cual cada uno debe marcar en forma estrictamente personal, en el reloj existente para esos efectos. Se excluyen de esta función los jefes y personal autorizado expresamente por la Oficialía Mayor.
-Cuando en el centro de trabajo no haya reloj o este no esté funcionando, el control de asistencia se llevará mediante un libro donde se hará constar mediante la firma del servidor, las horas de entrada y salida.
+Artículo 23.—La asistencia de los servidores a su trabajo se controlará mediante medios automatizados de marca. En este sentido la marca se realizará a través de un reloj automatizado, debiéndose marcar en éste de forma estrictamente personal. Se excluyen de esta obligación los jefes de unidades y aquel personal expresamente autorizado a través de resolución motivada emitida por la Dirección General Administrativo Financiera. En caso de que el Reloj no esté en funcionamiento, el control de asistencia lo realizará el Departamento de Recursos Humanos, a través de un libro donde se consigne la hora de entrada y de salida del servidor, quien deberá firmar los asientos del libro correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35417 del 14 de julio de 2009)

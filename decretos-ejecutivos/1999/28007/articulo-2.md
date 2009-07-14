@@ -1,5 +1,6 @@
-Artículo 2°—Para los efectos de este Reglamento se entenderá:
-1. Por órgano superior al Ministro de Vivienda y Asentamientos Humanos y como su jerarca administrativo al Oficial Mayor.
+Artículo 2º—Para los efectos de este Reglamento se entenderá:
+1. Por órgano superior o jerarca institucional al Ministro (a) de Vivienda y Asentamientos Humanos y como su jerarca administrativo(a) el(la) Director(a) General Administrativo(a) Financiero (a).
 2. Por servidor público, de acuerdo a lo que dispone el artículo 111 de la Ley General de la Administración Pública, será la persona que presta servicios a la Administración, en este caso al Ministerio de Vivienda y Asentamientos Humanos, a nombre y por su cuenta de ésta, como parte de su organización, en virtud de un acto válido y eficaz de investidura, con independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva.
-El régimen de sus relaciones será el mismo para todos los servidores, públicos, salvo que la naturaleza de la situación indique lo contrario.
+El régimen de sus relaciones será el mismo para todos los servidores públicos, salvo que la naturaleza de la situación indique lo contrario.
 Los representantes del órgano superior, así como del jerarca administrativo, sean jefes de unidad, jefes de departamento, jefes de división y en general todos aquellos funcionarios que tengan bajo su responsabilidad tareas de orden administrativo o técnico, son responsables ante el Ministerio de velar por la correcta aplicación de las disposiciones del presente Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35417 del 14 de julio de 2009)

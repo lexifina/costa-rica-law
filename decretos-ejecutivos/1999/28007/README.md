@@ -14,3 +14,4 @@ Reglamento Autónomo Servicio Ministerio Vivienda Asentamientos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-10 | la propia norma |
+| 2 | 2009-07-14 | Decreto Ejecutivo 35417 (2009-07-14) |
