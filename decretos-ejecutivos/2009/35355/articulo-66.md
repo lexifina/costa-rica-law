@@ -1,0 +1,1 @@
+Artículo 66.—De la Condición de Aplazado en Conducta. El estudiante que en el promedio anual ponderado obtuviere una calificación de conducta inferior al mínimo establecido en el artículo anterior de este Reglamento, tendrá en consecuencia, la condición de aplazado en conducta.

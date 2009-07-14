@@ -1,0 +1,1 @@
+Artículo 72.—De la Consideración de la Comisión de faltas en la Calificación de la Conducta. En la calificación de la conducta se debe considerar, necesariamente, la comisión por parte del estudiante de faltas muy leves, leves, graves, muy graves y gravísimas, según lo que se señala en el artículo 73 de este Reglamento.

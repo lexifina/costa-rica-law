@@ -1,0 +1,1 @@
+Artículo 106.—De la información a los centros educativos seleccionados para las pruebas diagnósticas. La Dirección de Gestión y Evaluación de la Calidad informará tanto a los centros educativos incluidos en la muestra como a las respectivas Direcciones Regionales, las características y los procedimientos para la aplicación de las pruebas nacionales diagnósticas.

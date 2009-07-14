@@ -1,0 +1,1 @@
+Artículo 136.—De la Facultad y el Deber de Rectificar Errores. Los docentes tienen la facultad y el deber de rectificar en forma inmediata y de oficio, los errores de hecho y de derecho en que incurrieren dentro del proceso de evaluación, tanto cuando se percaten de aquellos o bien por la oportuna y respetuosa observación de sus alumnos.

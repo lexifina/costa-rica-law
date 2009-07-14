@@ -1,0 +1,1 @@
+Artículo 139.—De las Condicionantes de la Normativa Interna. La Normativa Interna que se establezca en cada centro educativo deberá respetar las Leyes y Reglamentos generales del sistema educativo y la normativa vigente.

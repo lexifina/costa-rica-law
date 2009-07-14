@@ -1,0 +1,5 @@
+SECCIÓN IV
+La promoción en la Educación General Básica
+y la Educación Diversificada
+Artículo 33.—Del Promedio Anual Mínimo para Aprobar cada Asignatura. El estudiante de I, II o III Ciclos de la Educación General Básica que alcanzare un promedio anual igual o superior a sesenta y cinco tendrá condición de aprobado en la respectiva asignatura. Se exceptúan de esta disposición los estudiantes de III Ciclo de Colegios Bilingües cuyo promedio mínimo de aprobación es de setenta, así como a los estudiantes de cualesquiera otras instituciones para los que el Consejo Superior de Educación hubiese aprobado expresamente normas especiales semejantes. De igual forma, el estudiante de Educación Diversificada que alcanzare un promedio anual igual o superior a setenta tendrá la condición de aprobado en la respectiva asignatura. Quien no alcance el promedio anual señalado en los párrafos anteriores, obtendrá la condición de aplazado.
+Se exceptúan de las disposiciones anteriores las reglas de aprobación que corresponden a las pruebas nacionales para las que regirá lo dispuesto en el Capítulo IV de este Reglamento.

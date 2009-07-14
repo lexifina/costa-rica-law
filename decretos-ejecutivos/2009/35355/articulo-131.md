@@ -1,0 +1,1 @@
+Artículo 131.—Del envío de los Instrumentos de Medición a los Padres de Familia o Encargados. Los instrumentos de medición debidamente calificados deben ser remitidos a los padres de familia o encargados con los estudiantes, para su conocimiento y firma. El docente controlará el cabal cumplimiento de esta función de los padres o encargados.

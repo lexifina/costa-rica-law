@@ -1,0 +1,5 @@
+Artículo 130.—Del uso Obligatorio del Cuaderno de Comunicaciones. El cuaderno de comunicaciones será de uso obligatorio para los siguientes efectos:
+a) Convocar a cita a los padres de familia o encargados para que se presenten en la institución, salvo cuando se trate de reuniones generales en que se podrá utilizar otro medio idóneo.
+b) Informar a los padres de familia o encargados sobre actitudes, acciones y en general, conductas meritorias del estudiante.
+c) Informar a los padres de familia o encargados sobre conductas indebidas del estudiante.
+d) Cualquier otro asunto que los docentes o las autoridades institucionales estimen conveniente.

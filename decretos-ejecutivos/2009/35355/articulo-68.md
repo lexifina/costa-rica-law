@@ -1,0 +1,1 @@
+Artículo 68.—De la Naturaleza de las Acciones Correctivas. Para efectos de la aplicación de la presente normativa, las acciones correctivas en todos los niveles, ramas y modalidades del sistema educativo tendrán, en lo esencial, propósitos formativos.

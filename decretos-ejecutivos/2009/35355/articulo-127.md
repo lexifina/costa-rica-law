@@ -1,0 +1,1 @@
+Artículo 127.—Del envío de información por parte del Director de la Institución. Será obligación del director de cada institución, remitir en su oportunidad, en la forma y mediante el procedimiento que indique la Dirección de Gestión y Evaluación de la Calidad, toda la información que se requiera para la adecuada administración del proceso.
