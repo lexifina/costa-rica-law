@@ -1,0 +1,1 @@
+Artículo 9º—De conformidad con el artículo 133 de la Ley de Pesca y Acuicultura, Ley Nº 8436, el INCOPESCA para el mejor cumplimiento de los fines de este acuerdo, establecerá oportuna y debidamente los convenios o mecanismos necesarios de coordinación con el Ministerio de Seguridad Pública, Fuerza Pública y Servicio Nacional de Guardacostas.

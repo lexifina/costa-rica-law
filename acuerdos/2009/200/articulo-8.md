@@ -1,0 +1,1 @@
+Artículo 8º—Para recibir el beneficio económico otorgado por el IMAS, los pescadores propietarios de embarcaciones pesqueras comerciales de la Flota Artesanal en Pequeña Escala, deberán someterse al Programa de Servicio de Trabajo Comunal que para este efecto deberá elaborar el INCOPESCA en coordinación con otras instituciones gubernamentales o no gubernamentales.
