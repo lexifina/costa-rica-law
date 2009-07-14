@@ -1,0 +1,2 @@
+Artículo IX
+Cualquiera de las Partes podrá notificar, en cualquier momento, por vía diplomática, su decisión de denunciar el presente Acuerdo Complementario. Las Partes decidirán sobre la continuidad de las actividades que se encuentren en ejecución. La denuncia surtirá efecto tres (3) meses después de la fecha de notificación.
