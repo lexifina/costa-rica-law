@@ -1,0 +1,3 @@
+Artículo 3º—Características del catálogo electrónico Institucional. El Catálogo Electrónico Institucional de Trámites contendrá toda la oferta de todos los trámites, requisitos y procedimientos necesarios para la obtención de licencias, permisos y autorizaciones por parte del ciudadano en cada institución; y estará disponible mediante página WEB.
+Dicho catálogo contendrá la información y el formato único establecido en el Anexo Nº 1 del presente decreto.
+El diseño del Catálogo deberá respetar los aspectos señalados en el “Manual de lineamientos para el desarrollo de sitios Web” promovido por la Secretaria Técnica de Gobierno Digital, cita www.gobiernofacil.go.cr.

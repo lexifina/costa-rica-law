@@ -1,0 +1,1 @@
+Artículo 4º—Catálogo Electrónico Nacional de Trámites. Los Catálogos Electrónicos Institucionales de Trámites formarán parte de un Catálogo Electrónico Nacional que estará administrado por la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio en su portal www.tramites.go.cr.

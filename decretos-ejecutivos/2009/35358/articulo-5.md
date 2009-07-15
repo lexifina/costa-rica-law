@@ -1,0 +1,2 @@
+Artículo 5º—Implementación del Catálogo Electrónico de Trámites. En un plazo máximo de cuatro meses, contado a partir de la publicación del presente Decreto, los órganos y entes de la Administración Pública, deberán tener funcionando en su página Web, el catálogo electrónico institucional; utilizando la base de datos que proporcionará para tales efectos el Programa Nacional de Competitividad.
+Cada jerarca deberá definir la unidad o departamento que se encargará de digitar y mantener actualizados los trámites en dicha base de datos.
