@@ -1,9 +1,0 @@
-Artículo 2º—Definiciones:
-a) Beca de Secundaria: Las becas para estudiantes de secundaria constituyen un estímulo a la excelencia académica y consistirán en una ayuda económica no reembolsable, otorgada durante los meses de periodo lectivo en forma mensual por adelantado.
-b) Beca para estudios superiores: Son financiamientos y por lo tanto recursos parcial o totalmente reembolsables, otorgados a estudiantes universitarios y parauniversitarios, para que cubran de forma parcial o total el costo económico de su carrera académica.
-c) Becario: Todo aquel estudiante que curse estudios a nivel de educación secundaria, universitaria o parauniversitaria, beneficiarios de una beca sufragada por parte de JUDESUR, para efectuar sus estudios dentro del país, en un centro de enseñanza, debidamente acreditado y autorizado por el Ministerio de Educación Pública o el CONESUP.
-d) Beneficiarios del Programa: Los estudiantes nacionales y extranjeros con residencia en el país, de escasos recursos económicos que cursen o cursarán estudios secundarios, universitarios o parauniversitarios, residentes en los cinco cantones de la Zona Sur de la Provincia de Puntarenas a saber Golfito, Osa, Corredores, Coto Brus y Buenos Aires; que cumplan con los requisitos contemplados en el presente Reglamento.
-e) Departamento de Becas: El Departamento de Becas de JUDESUR.
-f) Dirección Ejecutiva: La Dirección Ejecutiva de JUDESUR, máximo órgano administrativo de la institución.
-g) JUDESUR: La Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas.
-h) Programa de Becas: Es el instrumento mediante el cual la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR) favorecerá la formación académica en el nivel de secundaria, universitaria y parauniversitaria, de los estudiantes de escasos recursos económicos.

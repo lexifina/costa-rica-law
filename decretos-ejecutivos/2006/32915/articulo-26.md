@@ -1,2 +1,0 @@
-Artículo 26.—Variación del período de estudio. El Departamento de Becas puede autorizar las ampliaciones al período de estudios, necesarias para que el becario concluya su proyecto académico original, o alcance un énfasis adicional dentro del mismo grado.
-El Departamento de Becas puede autorizar las ampliaciones al período de estudios, para que el becario alcance un grado adicional al establecido en el Proyecto Académico original, siempre que se cumpla con lo dispuesto en el primer párrafo del artículo 27 del presente reglamento.

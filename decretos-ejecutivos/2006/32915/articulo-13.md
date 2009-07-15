@@ -1,2 +1,0 @@
-Artículo 13.—Actualización del monto de la beca de secundaria. El monto de la beca se actualizará anualmente, con base en la variación del índice de precios al consumidor (IPC), determinado por el Banco Central de Costa Rica.
-A la entrada en vigencia de este Reglamento, para determinar el monto base de la beca, se tomará en cuenta el costo per cápita de la canasta básica alimentaria, definido por el Instituto Nacional de Estadística y Censos (INEC), tomando en cuenta sólo aquellos rubros que se establezcan en una tabla de gastos necesarios para estudiar.

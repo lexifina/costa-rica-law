@@ -1,6 +1,0 @@
-Artículo 15.—Requisitos para obtener Beca para estudios superiores. Para obtener derecho a los beneficios de la beca para estudios superiores tipo C, los estudiantes deberán cumplir con los siguientes requisitos:
-a) Cumplir con los incisos a) y b) del artículo 8º (Requisitos para Obtener Becas de Secundaria) del presente reglamento.
-b) Para el inicio de los trámites en JUDESUR, deberán presentar una constancia de la institución de enseñanza superior donde se demuestre que fueron admitidos para cursar los estudios correspondientes, que los están cursando, o bien que cumplen con todos los requisitos para ser admitidos en la carrera que desean cursar.
-c) Si es primer ingreso o tiene menos de diez materias aprobadas en la carrera que cursa o cursará, constancia de notas que incluya promedio académico del último año de secundaria, presentando además original y copia del título de secundaria.
-d) Programa Oficial de Estudios de la Carrera, indicando cuales cursos matriculará por periodo lectivo (cuatrimestre, semestre u otro), y constancia del costo por matrícula y costo por materia.
-e) Los aspirantes a las becas para estudios superiores tipo D, definidas en el artículo 14, inciso b) de este reglamento, deberán además cumplir con lo dispuesto en el artículo 8º, inciso c) y e) del presente reglamento.

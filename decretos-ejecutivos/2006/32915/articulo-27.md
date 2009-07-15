@@ -1,2 +1,0 @@
-Artículo 27.—Variación del grado académico. La obtención de un grado académico diferente al originalmente financiado es autorizado por el Departamento de Becas, cuando este cambio favorezca los intereses del becario y de JUDESUR y no signifique cambios en el monto del financiamiento.
-En los casos que implique un aumento en monto del financiamiento se tramitará como una ampliación de Financiamiento.

@@ -1,5 +1,0 @@
-Artículo 28.—Disposiciones finales.
-a. Todas las refundiciones de préstamo serán aprobadas por la Junta Directiva de JUDESUR.
-b. Una refundición del préstamo será cuando el becario solicite una ampliación al financiamiento, con el fin de obtener un grado académico superior, por incrementos de los costos de estudios, por problemas curriculares anteriores u otras causas justificadas a juicio del Departamento de Becas. El becario debe cumplir con los requisitos académicos reglamentarios y estar al día con las obligaciones contractuales, en las etapas de ejecución o cobro, según corresponda.
-c. La Junta Directiva de JUDESUR, estará facultada para cubrir anualmente los gastos de funcionamiento y operación del Departamento de Becas, con los recursos destinados por Ley para el Programa de Becas, para lo cual destinará los recursos que sean necesarios con el propósito de lograr su óptimo funcionamiento.
-d. Las situaciones no previstas en este Reglamento quedan sujetas a las Políticas de Crédito y Cobro vigentes.

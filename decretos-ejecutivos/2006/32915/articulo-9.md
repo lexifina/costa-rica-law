@@ -1,1 +1,0 @@
-Artículo 9º—Desembolso. La Junta Directiva de JUDESUR establecerá el mecanismo idóneo para los giros mensuales correspondientes, por recomendación del Jefe del Departamento de Becas y con el visto bueno de la Dirección Ejecutiva de JUDESUR.
