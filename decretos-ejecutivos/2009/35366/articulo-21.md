@@ -1,0 +1,1 @@
+Artículo 21.—División de adeudos estatales. Esta División está integrada por las Subdirecciones de: Programación y Normativa de Cobros, y de Supervisión de Cobros, y por el Departamento de Cobro Judicial.
