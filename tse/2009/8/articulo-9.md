@@ -1,0 +1,3 @@
+Artículo 9º—Forma de votar de las personas en situación de discapacidad. Las personas a quienes por sus condiciones físicas se les dificulte votar por sí solos, lo que debe ser valorado por los miembros de la Junta Receptora de Votos, podrán optar por las siguientes alternativas de votación:
+a) Voto público: El votante manifestará ante los miembros de la Junta Receptora de Votos su intención de votar públicamente, de forma tal que el Presidente de la junta marque las papeletas conforme se lo indique el elector.
+b) Voto asistido: El votante ingresará al recinto secreto en compañía de otro costarricense mayor de edad de su confianza, quien le ayudará a ejercer el voto marcando la opción que le indique el elector.

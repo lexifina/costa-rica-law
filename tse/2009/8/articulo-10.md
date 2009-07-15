@@ -1,0 +1,5 @@
+Artículo 10.—Ayudas técnicas. Las personas en situación de discapacidad y los adultos mayores podrán solicitar a la Junta Receptora de Votos las siguientes ayudas técnicas para facilitar el ejercicio de su derecho al sufragio:
+a) Plantilla para votar: Las personas no videntes, con baja visión o con cualquier otra situación física que les dificulte votar, podrán solicitar las plantillas para votar que contienen indicaciones en Braille para que introduzcan en éstas las papeletas y puedan de esta forma votar a solas.
+b) Lupa: Las personas con baja visión podrán solicitar una lupa para que se les facilite observar la papeleta y emitir el voto en forma independiente.
+c) Prensa: Las personas con algún tipo de deficiencia en su sistema músculo- esquelético, adultos mayores o personas con cualquier situación de discapacidad, podrán solicitar una prensa que les permitirá fijar las papeletas a la mesa, a los efectos de poder emitir el sufragio a solas, dentro del recinto secreto.
+d) Mampara especial: A las personas que ingresen al recinto secreto en sillas de ruedas se les colocará, sobre sus piernas, una mampara especial de manera que puedan emitir su voto a solas.

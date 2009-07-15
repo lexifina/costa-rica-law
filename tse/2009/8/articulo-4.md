@@ -1,0 +1,1 @@
+Artículo 4º—Presentación de la cédula de identidad. La cédula de identidad es el documento imprescindible de identificación para que el votante pueda emitir su voto, la cual deberá estar vigente o con no más de un año de vencida.

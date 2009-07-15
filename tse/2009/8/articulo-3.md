@@ -1,0 +1,1 @@
+Artículo 3º—Cantidad de recintos en juntas receptoras de votos. En las Juntas Receptoras de Votos de hasta 250 electores se instalará un solo recinto de votación; en aquellas donde se exceda esa cantidad de electores, se instalará un máximo de dos recintos.
