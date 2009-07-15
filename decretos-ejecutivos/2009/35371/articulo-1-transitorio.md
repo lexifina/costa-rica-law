@@ -1,0 +1,1 @@
+Transitorio único.—Durante el período de preparación del convenio al que se refiere el punto 4, así como el proceso de compra, instalación y preparación de las máquinas franqueadoras en cada misión consular, se mantendrá en vigencia la Resolución 098-2008 del Ministerio de Hacienda.

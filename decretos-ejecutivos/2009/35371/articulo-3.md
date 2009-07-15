@@ -1,0 +1,1 @@
+Artículo 3º—Operación de máquinas franqueadoras. Corresponderá al Ministerio de Relaciones Exteriores y Culto velar por la correcta operación de las máquinas franqueadoras que se instalarán, para lo cual podrá suscribir el respectivo contrato de mantenimiento y realizar las previsiones presupuestarias correspondientes.
