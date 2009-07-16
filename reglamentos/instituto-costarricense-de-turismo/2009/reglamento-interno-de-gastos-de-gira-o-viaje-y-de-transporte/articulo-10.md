@@ -1,0 +1,2 @@
+Artículo 10.—Obligaciones al momento en que se suspenda una gira. En el momento de suspender una gira mientras la solicitud del adelanto está en trámite, se debe enviar nota de anulación de la misma dirigida a Financiero, con copia al encargado de liquidaciones, con la finalidad de actualizar los controles de liquidaciones y contables.
+En caso de que el cheque de adelanto haya sido retirado, el Funcionario reintegrará el dinero inmediatamente y enviará una nota al Proceso Financiero solicitando la anulación de la gira, además, adjuntará la copia del recibo de reintegro.

@@ -1,0 +1,1 @@
+Artículo 7º—Liquidaciones de gastos de gira que sean devueltas. Desde el momento en que una liquidación de gastos de viaje es devuelta por inconsistencias, el funcionario quedará nuevamente con “LIQUIDACIÓN PENDIENTE”. En ningún caso se le autorizará un nuevo viaje, ni se podrá girar adelanto alguno.

@@ -1,0 +1,1 @@
+Artículo 27.—Reconocimiento de gastos por llamadas telefónicas. Para el reconocimiento de gastos por concepto de llamadas telefónicas oficiales, faxes o servicios de Internet, se adjuntará el comprobante correspondiente y adicionalmente indicar el nombre de la persona a quien se contactó y el motivo.

@@ -1,0 +1,1 @@
+Artículo 20.—Requisitos del acuerdo de viaje. Para que un funcionario tenga derecho a recibir el importe correspondiente a gastos de viaje al exterior, debe existir un acuerdo previo, en que se autorice el viaje y en donde se señale como mínimo los requisitos del artículo 31 del Reglamento de Gastos de Viaje de la Contraloría General.

@@ -1,0 +1,1 @@
+Artículo 13.—Requisitos para presentar una liquidación en vacaciones o en incapacidades. Cuando inmediatamente después de una gira o viaje se disfruten vacaciones, será requisito indispensable indicarlo en el Formulario de Liquidación, y adjuntar copia de la orden de personal correspondiente y en caso de otras licencias, se adjuntará el comprobante respectivo.

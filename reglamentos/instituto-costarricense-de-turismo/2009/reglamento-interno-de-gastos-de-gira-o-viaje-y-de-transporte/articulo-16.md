@@ -1,0 +1,1 @@
+Artículo 16.—Documentos que debe adjuntar el funcionario cuando utilice vehículo del I.C.T. o rentado. El Funcionario que utilice el vehículo deberá presentar, como soporte en su liquidación de gastos de viaje, la copia de la autorización de salida del vehículo, y en el caso de vehículos rentados, la copia del contrato de arrendamiento.

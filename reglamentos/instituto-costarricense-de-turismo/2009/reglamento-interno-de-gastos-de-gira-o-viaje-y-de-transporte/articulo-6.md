@@ -1,0 +1,1 @@
+Artículo 6º—Gastos realizados por el funcionario cuyo reintegro no desea solicitar. Cuando el funcionario no desea gestionar el reintegro de una suma a su favor, debe indicarlo mediante una nota en la liquidación respectiva.

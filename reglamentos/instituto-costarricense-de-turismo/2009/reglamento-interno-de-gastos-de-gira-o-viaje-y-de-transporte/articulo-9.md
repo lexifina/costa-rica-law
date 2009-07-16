@@ -1,0 +1,1 @@
+Artículo 9º—Carencia del concepto original del gasto en el formulario de liquidación. Cuando el concepto del gasto a liquidar no esté estipulado en el formulario de liquidación, el funcionario debe anotar el objeto del gasto, la justificación y consignar los números de facturas.

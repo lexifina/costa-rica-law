@@ -1,0 +1,1 @@
+Artículo 12.—Plazo refrendo de liquidaciones de gira. Se establece un plazo máximo de treinta días hábiles a partir de la fecha de recibido, para que la Administración complete la revisión, refrendo y registro contable de las liquidaciones de adelanto de gastos.

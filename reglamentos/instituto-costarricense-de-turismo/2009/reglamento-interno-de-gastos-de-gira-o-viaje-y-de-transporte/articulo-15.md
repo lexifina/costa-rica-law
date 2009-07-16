@@ -1,0 +1,1 @@
+Artículo 15.—Obligación de presentar los tiquetes de peaje. Cuando corresponda, el reconocimiento de gastos de viaje, está sujeto a la presentación de los tiquetes de peaje de las rutas anotadas en la liquidación, y las fechas correspondientes. En caso que el documento haya sido extraviado, deberá aportarse una declaración jurada.

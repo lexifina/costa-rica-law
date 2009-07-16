@@ -1,0 +1,1 @@
+Artículo 25.—Presentación del comprobante de viaje. En toda liquidación de gastos de viaje deberá acompañarse el documento idóneo que demuestre que el funcionario realizó el viaje. En caso de duda sobre el documento aportado, corresponderá al Proceso Financiero, determinar su veracidad.

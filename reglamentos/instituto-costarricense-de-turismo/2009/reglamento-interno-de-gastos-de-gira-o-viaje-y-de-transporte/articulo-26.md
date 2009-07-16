@@ -1,0 +1,3 @@
+Artículo 26.—Reconocimiento sobre gastos de taxi. Si dos o más funcionarios viajan en el mismo vuelo y al arribar se dirigen al mismo sitio, deben compartir el transporte; de lo contrario, es obligación presentar las justificaciones del caso.
+El funcionario debe indicar el nombre y dirección del hotel o sitio de hospedaje, así como el nombre de la terminal aérea utilizada en cada ciudad de destino, tanto de llegada como de salida, así como la distancia aproximada entre el sitio de hospedaje y la terminal aérea en cada ciudad
+Cualquier otro gasto de transporte terrestre en el exterior deberá tener aprobación previa de la Gerencia o la Junta Directiva según corresponda.
