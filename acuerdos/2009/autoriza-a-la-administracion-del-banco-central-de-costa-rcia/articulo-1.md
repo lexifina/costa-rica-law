@@ -1,0 +1,12 @@
+La Junta Directiva del Banco Central de Costa Rica en el artículo 5 del acta de la sesión 5430-2009, celebrada el 15 de julio del 2009,
+considerando que:
+1. El inciso c) del artículo 52 de la Ley 7558 faculta al Banco Central para comprar, vender y conservar como inversión, con el carácter de operaciones de mercado abierto, títulos y valores mobiliarios de primera clase, de absoluta seguridad y liquidez y de transacción normal y corriente en el mercado, correspondiéndole a su Junta Directiva, con el voto favorable de no menos de cinco de sus miembros, determinar la forma, las condiciones y la cuantía de las operaciones de esta naturaleza, así como, con la misma votación, la clase de valores mobiliarios con que se operará y los requisitos que deberán reunir para su aceptación por parte del Banco Central de Costa Rica.
+2. El inciso f) del artículo 52 de la Ley 7558 faculta al Banco Central para comprar y vender valores en los mercados bancarios y bursátiles, mediante la figura del reporto u otras similares, utilizando valores emitidos por el propio Banco Central de Costa Rica o por el Gobierno, que estén en circulación y que provengan del mercado secundario, correspondiéndole a la Junta Directiva reglamentar los términos de formalización de estas operaciones.
+resolvió, en firme:
+autorizar a la administración del Banco para que, durante un periodo máximo de tres meses contados a partir de la aprobación del presente acuerdo, realice subastas de compra de títulos bajo las siguientes condiciones:
+a. Convocatoria: la subasta podrá ser convocada por acuerdo del Comité de Asignación de Subasta.
+b. Forma: subasta de compra de títulos valores en la plataforma que el Banco Central tenga disponible para tales efectos. Para ello podrá utilizar la rueda de negociación LICI de la plataforma SIOPEL provista por la Bolsa Nacional de Valores (BNV).
+c. Cuantía: hasta por un monto de ¢100.000.000.000 (cien mil millones de colones).
+d. Clase de valores: los valores a incluir en la oferta de compra deben tener absoluta seguridad y liquidez y ser de transacción normal y corriente en el mercado. Para ello, se restringe la subasta a títulos emitidos en colones por el Banco Central de Costa Rica y serán sujetos de compra los valores negociados en la rueda CORE en SIOPEL.
+e. Rendimiento mínimo de asignación: no podrá ser inferior al último rendimiento del mercado secundario, del título de que se trate.
+Rige a partir del 16 de julio del 2009.
