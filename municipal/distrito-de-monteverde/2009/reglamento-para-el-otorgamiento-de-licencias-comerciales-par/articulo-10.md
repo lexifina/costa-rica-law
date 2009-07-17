@@ -1,0 +1,1 @@
+Artículo 10.—Previo al otorgamiento de una licencia para la explotación de un establecimiento comercial de porteo, la Administración debe verificar el cumplimiento de todas las especificaciones establecidas en la Ley de Construcciones N° 833 y en la Ley de Igualdad de Oportunidades para las Personas con Discapacidad Nº 7600.

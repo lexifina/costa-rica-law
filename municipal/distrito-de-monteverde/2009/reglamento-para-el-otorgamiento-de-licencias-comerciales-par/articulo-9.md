@@ -1,0 +1,1 @@
+Artículo 9º—El otorgamiento de una licencia para explotación de establecimiento comercial de porteo no faculta para el ejercicio del porteo sino cuenta con una terminal privada autorizada y el cumplimiento de los requisitos establecidos en este reglamento para el ejercicio del porteo.

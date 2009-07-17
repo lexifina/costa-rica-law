@@ -1,0 +1,1 @@
+Artículo 13.—Cuando la licencia de porteo se refiera exclusivamente a la explotación del establecimiento comercial de porteo, el interesado deberá aportar el contrato suscrito con cada uno de los porteadores a los que brindará servicio con dicha licencia.

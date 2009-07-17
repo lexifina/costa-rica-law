@@ -1,0 +1,1 @@
+Artículo 7º—Para la determinación del monto del impuesto por concepto de actividad sujetas a licencia según este reglamento, la Administración aplicará las disposiciones de la Ley de Impuestos Municipales del Cantón de Puntarenas y su Reglamento.

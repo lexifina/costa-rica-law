@@ -1,0 +1,1 @@
+Artículo 5º—Las licencias de porteo son intransferibles, se entenderán otorgadas por el plazo máximo de un año y podrán ser renovadas sucesivamente previa verificación del cumplimiento de todos los requisitos normativos.

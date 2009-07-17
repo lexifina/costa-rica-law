@@ -1,0 +1,4 @@
+Artículo 2º—Para los efectos de este reglamento se entenderá como:
+Administración: El Concejo Municipal de Distrito de Monteverde.
+Porteo: Actividad comercial en la que el interesado, sea persona física o jurídica, por la vía contractual, se obliga a brindar un servicio de transporte de un lugar a otro, a cambio de un precio previamente establecido con el solicitante, quien debe reunir la condición de cliente formalmente conformado. El porteador podrá efectuar el transporte por sí mismo, por medio de sus agentes o empleados o por persona o compañía diferente.
+Establecimiento comercial de porteo: Local acondicionado a nivel interno dedicado a una o ambas de las siguientes actividades: a) oficina privada de porteo para la atención de interesados y conformación de clientes exclusivos; y b) estación o terminal privada de porteo para brindar el servicio de abordaje y transporte de clientes exclusivos.

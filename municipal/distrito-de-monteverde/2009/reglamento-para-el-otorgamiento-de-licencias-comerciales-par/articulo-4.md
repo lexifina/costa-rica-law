@@ -1,0 +1,1 @@
+Artículo 4º—Se rechazarán las solicitudes que no se ajusten al presente reglamento o sus disposiciones supletorias. En caso de licencias otorgadas, el incumplimiento de estas disposiciones acarreará la suspensión o cancelación, previo procedimiento administrativo.

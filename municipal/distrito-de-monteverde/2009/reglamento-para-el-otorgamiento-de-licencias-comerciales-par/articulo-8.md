@@ -1,0 +1,3 @@
+CAPÍTULO II
+Sobre los establecimientos comerciales de porteo
+Artículo 8º—Para el otorgamiento de la licencia para el ejercicio de porteo, el interesado deberá, obligatoriamente, contar, directa o indirectamente, con una oficina o local comercial debidamente acondicionado dentro del distrito, que le permita tener un contacto directo con sus clientes y formalizar el tipo de negociación que corresponda; asimismo, con una terminal privada para brindar el servicio; lo anterior en concordancia con lo dispuesto en resolución N° 04601, de las 11:00 horas, 39 minutos del 30 de abril de 2004 dictada por la Sala Constitucional de la Corte Suprema de Justicia.
