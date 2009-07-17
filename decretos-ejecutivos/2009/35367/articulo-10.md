@@ -1,0 +1,1 @@
+Artículo 10.—Vigencia del Comité Técnico: La vigencia de este Comité, será igual al período necesario para el recibido a satisfacción del Informe Final del Estudio de Impacto Ambiental y Anexos solicitados por la SETENA por parte del Consultor del Proyecto “Tramo Carretero Bajos de Chilamate-Vuelta Kooper, Ruta Nacional Nº 4”.

@@ -1,0 +1,1 @@
+Artículo 3º—Principios que Regirán la Contratación. El Procedimiento de Contratación estará regido por los Principios de Igualdad, Libre Competencia, Publicidad, Eficiencia y demás conducentemente aplicables en el marco de la Legislación costarricense.

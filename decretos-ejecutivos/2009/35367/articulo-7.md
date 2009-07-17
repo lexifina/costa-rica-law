@@ -1,0 +1,6 @@
+Artículo 7º—Funciones de la Unidad de Fiscalización. Una vez firmado el Contrato de Consultoría entre la Corporación Andina de Fomento (CAF) y el Consultor seleccionado y recibida por esta Unidad la comunicación oficial, sus funciones serán:
+a) Convocar al Consultor a Reunión de Pre-inicio.
+b) Comunicar la Orden de Inicio al Consultor.
+c) Solicitar el Plan de Trabajo y la Estructura Administrativa elaborado por el Consultor y una vez recibidos a satisfacción, acorde con los términos de Referencia, informar a la Dirección de Planificación Sectorial, para que se proceda con el trámite de pago correspondiente ante la Corporación Andina de Fomento (CAF).
+d) Recibir y fiscalizar los Informes de Avance Técnico-Administrativo, presentados por el Consultor y una vez recibidos a satisfacción, acorde con los Términos de Referencia, informar a la Dirección de Planificación Sectorial, para que se proceda con el trámite de pago correspondiente ante la Corporación Andina de Fomento (CAF).
+e) Recibir el Informe Final del EsIA del Proyecto, presentado por el Consultor y una vez que se emita por esta Unidad el recibo oficial a satisfacción, informar a la Dirección de Planificación Sectorial, para que se proceda con el trámite de pago correspondiente ante la Corporación Andina de Fomento (CAF).
