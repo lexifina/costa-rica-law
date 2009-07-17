@@ -1,0 +1,1 @@
+Artículo 15.-La cancelación de autorizaciones o certificados de explotación de las empresas que efectivamente realizan la operación de transporte, será motivo suficiente para proceder a la cancelación de la aprobación del acuerdo respectivo, sin responsabilidad para el Consejo Técnico de Aviación Civil.

@@ -1,0 +1,1 @@
+Artículo 17.-Las causas establecidas en los artículos 12 y 13 de la Ley General de Aviación Civil para la cancelación de certificados de explotación serán también causas que motiven la cancelación de la aprobación para la comercialización mediante código compartido.

@@ -1,0 +1,1 @@
+Artículo 11.-Las aerolíneas participantes en un acuerdo de código compartido, que efectivamente realicen la operación del vuelo, deben cumplir con los reportes estadísticos exigidos por la Ley General de Aviación Civil, reflejando fielmente el origen y destino final de sus pasajeros.

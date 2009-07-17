@@ -1,0 +1,1 @@
+Artículo 21.-Las empresas que exploten servicios en virtud de un acuerdo de código compartido, sea el operador efectivo (transportista explotador de hecho) o el operador comercial, están obligadas a cumplir con lo establecido en el artículo 225 de la Ley General de Aviación Civil en lo referente a esta materia.

@@ -1,0 +1,1 @@
+Artículo 16.-El Consejo Técnico de Aviación Civil podrá, sin responsabilidad, en cualquier momento, a causa del incumplimiento de los términos de la concesión, o cuando la seguridad del transporte aéreo, el interés público o la continuidad del servicio lo ameriten, cancelar la autorización mediante código compartido.

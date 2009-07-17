@@ -1,0 +1,1 @@
+Artículo 13.-Las empresas de transporte aéreo autorizadas para comercializar con código compartido, que operen efectivamente la ruta o el segmento desde o hacia Costa Rica, deben cumplir con lo establecido en la reglamentación nacional vigente en materia de seguridad operacional, seguridad de la aviación y facilitación aeroportuaria.

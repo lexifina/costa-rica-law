@@ -1,0 +1,1 @@
+Artículo 4°-La solicitud debe contener la petición expresa de todos los representantes legales de las empresas de transporte aéreo parte en el acuerdo, los cuales deberán estar acreditados ante el Registro Aeronáutico Costarricense, conteniendo dicho documento la autenticación de las firmas respectivas.

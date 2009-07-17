@@ -1,0 +1,1 @@
+Artículo 8°-Una vez presentada la solicitud y habiéndose determinado que la misma contenga todos los requisitos, el Consejo Técnico de Aviación Civil en un plazo de 30 días naturales resolverá si procede o no otorgar la autorización respectiva.

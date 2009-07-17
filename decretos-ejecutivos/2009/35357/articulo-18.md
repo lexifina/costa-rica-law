@@ -1,0 +1,1 @@
+Artículo 18.-En los acuerdos de código compartido, las partes responden indivisible y solidariamente frente a pasajeros y carga transportados, de conformidad con los artículos 248 a 302 de la Ley General de Aviación Civil.

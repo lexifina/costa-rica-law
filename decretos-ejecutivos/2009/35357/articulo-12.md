@@ -1,0 +1,1 @@
+Artículo 12.-Cuando las empresas parte en un acuerdo de código compartido realicen una modificación formal o sustancial de un acuerdo que haya sido aprobado por el Consejo Técnico de Aviación Civil, deberán someter al Consejo, tales cambios para su aprobación, con al menos treinta días naturales de anticipación a la fecha prevista para su entrada en vigencia.
