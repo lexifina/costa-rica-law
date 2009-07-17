@@ -1,0 +1,1 @@
+Artículo 2º—De la póliza de fidelidad. La póliza de fidelidad que debe rendir el funcionario o funcionaria obligada, se hará a través del Instituto Nacional de Seguros, cubriéndose el importe respectivo por ellos mismos con su propio peculio. Esta póliza se emitirá a favor de la Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas.
