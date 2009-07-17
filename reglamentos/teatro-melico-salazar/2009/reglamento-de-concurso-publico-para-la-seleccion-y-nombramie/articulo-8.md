@@ -1,0 +1,1 @@
+Artículo 8º—Estudio de las ofertas. Las ofertas serán estudiadas y analizadas por la Comisión nombrada al efecto, conformada por la Jefa de la Unidad de Recursos Humanos, la Jefa de la Asesoría Legal y un miembro de la Junta Directiva quien en aras de facilitar el análisis, podrá solicitar las aclaraciones que estime convenientes.

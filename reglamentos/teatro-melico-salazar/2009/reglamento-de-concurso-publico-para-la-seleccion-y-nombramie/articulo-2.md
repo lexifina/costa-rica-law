@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas. De previo a que la Unidad de Recursos Humanos programe y ponga en marcha la realización del Concurso Público que indica la Ley 8292,1 para el nombramiento del Auditor Interno, se requerirá de la existencia de un acuerdo tomado por la Junta Directiva del Teatro Popular Mélico Salazar, nombrando una comisión responsable del proceso.

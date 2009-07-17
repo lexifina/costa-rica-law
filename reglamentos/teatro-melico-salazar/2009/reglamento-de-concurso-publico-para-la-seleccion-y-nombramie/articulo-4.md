@@ -1,0 +1,1 @@
+Artículo 4º—Condiciones de la evaluación. De previo a la realización del concurso, la Unidad de Recursos Humanos elaborará una propuesta que contendrá los factores a evaluar en las ofertas presentadas por los oferentes y sus ponderaciones, así como el cronograma de actividades. Esta propuesta será aprobada por la Junta Directiva del Teatro Popular Mélico Salazar.

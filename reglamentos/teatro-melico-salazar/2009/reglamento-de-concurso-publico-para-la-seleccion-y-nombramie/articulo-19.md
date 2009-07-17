@@ -1,0 +1,1 @@
+Artículo 19.—De la vigencia: Este reglamento rige a partir de la fecha su publicación. Aprobado por la Junta Directiva del Teatro Popular Mélico Salazar en sesión ordinaria Nº 595 del 17 de junio del 2009.
