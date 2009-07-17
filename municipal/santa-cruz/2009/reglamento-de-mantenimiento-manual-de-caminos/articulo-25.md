@@ -1,0 +1,1 @@
+Artículo 25.-Canalización de aguas. De conformidad con el artículo 20 de la Ley General de Caminos, los Comités de Caminos, las Asociaciones de Desarrollo y las demás ONGs, coordinarán con los vecinos la canalización de aguas dentro de los predios aledaños, provenientes de los caminos de acuerdo con las recomendaciones emitidas por la Unidad Técnica de Gestión Vial Municipal.

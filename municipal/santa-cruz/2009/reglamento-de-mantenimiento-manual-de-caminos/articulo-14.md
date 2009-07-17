@@ -1,0 +1,1 @@
+Artículo 14.-Notificación de cobro. Habiendo ejecutado los trabajos, por parte del Comité de Caminos, la Municipalidad en coordinación con la Fuerza Pública, procederá con la notificación de cobro al respectivo propietario.

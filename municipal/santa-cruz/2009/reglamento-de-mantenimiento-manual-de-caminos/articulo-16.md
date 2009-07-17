@@ -1,0 +1,1 @@
+Artículo 16.-Cobro administrativo y judicial. El propietario que haga caso omiso del pago de los trabajos ejecutados, será sujeto de los procedimientos de cobro administrativo y judicial que establece el eeglamento respectivo de la Municipalidad de Santa Cruz.

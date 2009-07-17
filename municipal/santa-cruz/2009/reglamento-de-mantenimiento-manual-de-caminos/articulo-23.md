@@ -1,0 +1,1 @@
+Artículo 23.-Pasos de alcantarilla. En los pasos de fincas, ya sean entradas o salidas, los dueños de propiedades deberán instalar un paso de alcantarilla no inferior a los 45 ó 61 cm de diámetro, según sean los criterios técnicos que en última instancia emita la Unidad Técnica de Gestión Vial Municipal.

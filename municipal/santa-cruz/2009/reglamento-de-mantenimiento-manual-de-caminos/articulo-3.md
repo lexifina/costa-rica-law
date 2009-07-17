@@ -1,0 +1,20 @@
+Artículo 3°-Definiciones:
+3.1- Definición de mantenimiento manual. Se entiende por mantenimiento manual de caminos a las obras, que por su tamaño y estructura, sólo pueden realizarse manualmente y con herramientas accesibles a los vecinos y fáciles de manipular como por ejemplo: palas, carretillos, zachos, machetes, motosierras y otros.
+3.2- Actividades relacionadas con el mantenimiento manual. Considérese actividades de mantenimiento manual de caminos, el descuaje, el desmonte y chapea de rondas de calle, la limpieza de cunetas y contracunetas, la limpieza de alcantarillas, la limpieza de cabezales, la limpieza de canales de salida, la confección de canales transversales o sangrías, así como los desagües y el bacheo manual en lastre.
+Para los efectos de este artículo se entenderá por:
+3.2.1. Descuaje. Se denomina descuaje al trabajo de cortar las ramas de los árboles, que por su crecimiento, dan sombra al camino manteniéndolo húmedo y deben ser cortadas en su base. Estas ramas a su vez, impiden a los conductores tener un panorama despejado de la vía, pues en muchos casos ocultan partes malas del camino, lo cual es peligroso por falta de visibilidad. Lo cortado debe ser picado y colocado aliado adentro de la cerca del dueño de la propiedad.
+3.2.2. Desmonte. Es la actividad que permite eliminar toda la maleza que se encuentra en el derecho de vía, principalmente en cunetas que sobrepase los 5 cm de altura. Esta labor se podrá realizar de manera manual o química mientras no genere daños o perjuicios a ningún ser humano, ni a la naturaleza.
+3.2.3 Chapea manual. Es la actividad en donde se cortan los arbustos y zacate que están en el derecho de vía, sobretodos aquellos que crecen en los taludes y que a corto plazo, pueden ocasionar deslizamiento de tierra por el sobrepeso y poca capacidad de amarre de sus raíces. Una vez cortada la maleza, los restos deben ser apilados en un sitio apropiado para su compostaje o quema, de acuerdo con la legislación vigente.
+3.2.4. Limpieza de cunetas y contracunetas. La limpieza de cunetas y contracunetas consiste en eliminar todo tipo de maleza que este obstruyendo la evacuación de las aguas de lluvia, así como cualquier otro material arrastrado y acumulado. El tránsito de vehículos, la lluvia y las personas son las principales causantes de estos depósitos. Por lo general, algunos de estos materiales son:
+i. Tierra (sedimentos).
+ii. Piedras.
+iii. Troncos.
+iv. Vegetación (de descuajes y chapeas).
+v. Basura (plásticos, electrodomésticos y latas).
+3.2.5. Canales transversales o sangrías. Son pequeños canales que se realizan sobre la superficie de ruedo (del centro hacia las cunetas) que permitan cortar el agua superficial, aunque lo más recomendable es hacer bombeo y salidas de agua laterales muy seguidas hacia las cunetas, para evitar la erosión longitudinal y cangilones en tramos donde la pendiente es muy fuerte.
+3.2.6. Limpieza de alcantarillas. La limpieza de alcantarillas consiste en quitar las rocas, la tierra, hierbas, troncos u otros materiales que obstruyan la entrada, el interior y la salida de la alcantarilla.
+3.2.7. Limpieza y mantenimiento de cabezales. La limpieza de los cabezales está muy ligada a limpieza de alcantarillas y son trabajos que se pueden ejecutar en forma paralela; consiste en eliminar la vegetación de los alrededores y la que nace en el propio cabezal o en el mejor de los casos poder pintarlo nuevamente.
+3.2.8. Limpieza de canales de entrada y salida. Los canales de entrada y salida son caños que toman el agua de las cunetas y de las alcantarillas, para llevarlas a un canal de desagüe, una quebrada o un río.
+3.2.9. Bacheo manual en lastre. Consiste en distribuir el material adecuado en las secciones de la superficie de ruedo donde se presentan huecos o baches que dificultan el libre tránsito.
+3.3. Propietario. Se define como poseedor o propietario de un inmueble colindante con la vía pública, entiéndase ésta como caminos vecinales.
+3.4 Organizaciones comunales, entiéndase a los Concejos de Distrito, Asociaciones de Desarrollo y Comités de caminos u otras organizaciones no gubernamentales (ONG).
