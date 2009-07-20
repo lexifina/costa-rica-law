@@ -14,3 +14,4 @@ Reglamento para el Uso de Vehículos propiedad del Instituto Nacional de Fomento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-26 | la propia norma |
+| 2 | 2009-07-20 | Reglamento 3752 (2009-07-20) |
