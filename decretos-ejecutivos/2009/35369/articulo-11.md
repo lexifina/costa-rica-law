@@ -1,0 +1,1 @@
+Artículo 11.—Lo relativo a los permisos de filmación, documentales u otro material audiovisual a llevarse a cabo dentro de las áreas marinas protegidas bajo la administración del Sistema Nacional de Áreas de Conservación se regulará por lo dispuesto en el Decreto Ejecutivo Nº 34164, del 5 de diciembre del 2007, publicado en La Gaceta Nº 7 del 10 de enero del 2008.

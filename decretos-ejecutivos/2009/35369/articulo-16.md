@@ -1,0 +1,1 @@
+Artículo 16.—El Ministerio de Ambiente, Energía y Telecomunicaciones impulsará mecanismos que incrementen el valor de los servicios ambientales y de los productos derivados de los usos sostenibles que los usuarios obtengan a partir de los recursos naturales y culturales de las áreas marinas protegidas.

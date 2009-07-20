@@ -1,0 +1,1 @@
+Artículo 14.—Los procesos de creación de las nuevas Áreas Marinas Protegidas bajo las categorías de manejo establecidas en este decreto, se guiarán por lo establecido en el artículo 36 de la Ley Orgánica del Ambiente Nº 7554, el artículo 9 de la Ley de Pesca y Acuicultura Nº 8436, los artículos 58 y 61 de la Ley de Biodiversidad Nº 7788 y sus respectivos reglamentos.

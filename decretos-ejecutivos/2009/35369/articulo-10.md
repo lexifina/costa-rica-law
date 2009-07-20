@@ -1,0 +1,1 @@
+Artículo 10.—Los permisos de investigación serán otorgados según lo dispone el Manual de Procedimientos para realizar Investigación en Biodiversidad y Recursos Culturales en las Áreas de Conservación, Decreto Ejecutivo Nº 32553 del 29 de marzo del 2005.

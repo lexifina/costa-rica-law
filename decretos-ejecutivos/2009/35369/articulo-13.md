@@ -1,0 +1,1 @@
+Artículo 13.—La concesión de servicios no esenciales dentro de dichas áreas marinas protegidas se regulará por lo dispuesto en el Decreto Ejecutivo Nº 32357 del 25 de agosto de 2004, publicado en La Gaceta Nº 92 del 13 de mayo del 2005.

@@ -1,0 +1,1 @@
+Artículo 17.—Los ilícitos cometidos en las categorías de manejo establecidas en este decreto serán sancionados con las disposiciones contenidas en la Ley de Pesca y Acuicultura, Ley Nº 8436 del 1 de marzo del 2005, así como con cualquier otras sanciones contenidas en normativa que entre posteriormente en vigencia para su aplicación en dichas categorías de manejo.

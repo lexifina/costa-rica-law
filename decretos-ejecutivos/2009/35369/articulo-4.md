@@ -1,0 +1,1 @@
+Artículo 4º—El Sistema Nacional de Áreas de Conservación aprobará los Planes de Manejo para las Reservas Marinas donde se determinen las actividades permitidas y prohibidas dentro de cada una de ellas, de acuerdo a los objetivos de manejo y conservación.

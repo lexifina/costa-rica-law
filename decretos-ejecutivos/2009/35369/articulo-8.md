@@ -1,0 +1,1 @@
+Artículo 8º—La construcción de marinas, atracaderos, y centros de acopio en las Áreas Marina de Manejo, deberán ajustarse a las estipulaciones del Plan de Manejo, y en caso de que éste lo autorice, a la correspondiente Evaluación de Impacto Ambiental.

@@ -1,0 +1,1 @@
+Artículo 15.—Todas las actividades antropogénicas a realizarse en las Reservas Marinas y en las Áreas Marinas de Manejo, así como los tipos de pesca y artes que vayan a utilizarse, deberán ajustarse a las estipulaciones de los respectivos Planes de Manejo. Dichos Planes deberán tomar en cuenta el enfoque ecosistémico.
