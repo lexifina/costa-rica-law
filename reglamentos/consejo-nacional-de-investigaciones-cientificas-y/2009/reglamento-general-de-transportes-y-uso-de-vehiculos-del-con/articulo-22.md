@@ -1,0 +1,1 @@
+Artículo 22.—Casos excepcionales. En el caso de los vehículos de uso discrecional, los funcionarios a quienes se les haya asignado, deberán guardarlo en un garaje o sitio similar que ofrezca toda la seguridad necesaria.

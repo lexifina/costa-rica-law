@@ -1,0 +1,1 @@
+Artículo 27.—Conducción de vehículos institucionales. La conducción de los vehículos estará a cargo del personal de la Institución que esté debidamente registrado en el Registro de conductores, quienes estarán obligados a portar la licencia de conducir al día y la boleta “Autorización para uso de vehículos”.

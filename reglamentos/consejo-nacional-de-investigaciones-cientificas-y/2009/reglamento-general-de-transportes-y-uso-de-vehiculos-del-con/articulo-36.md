@@ -1,0 +1,1 @@
+Artículo 36.—Prohibición de ingerir alcohol y drogas análogas. Los conductores no pueden por ninguna circunstancia ingerir bebidas alcohólicas, narco tranquilizantes o cualquier otro tipo de droga durante la jornada laboral o fuera de ésta, en el caso de que conduzcan vehículos del CONICIT. Asimismo es prohibido fumar dentro de los vehículos de la Institución.

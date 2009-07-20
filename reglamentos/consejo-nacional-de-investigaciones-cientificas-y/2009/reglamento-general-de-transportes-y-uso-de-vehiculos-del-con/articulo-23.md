@@ -1,0 +1,1 @@
+Artículo 23.—Custodia en caso de giras. Cuando el vehículo se encuentre en gira el responsable del mismo deberá velar porque el vehículo se guarde en un lugar que brinde las condiciones de seguridad adecuada; y no podrá circular después de las horas indicadas en la boleta, salvo situaciones de caso fortuito o fuerza mayor debidamente comprobadas.

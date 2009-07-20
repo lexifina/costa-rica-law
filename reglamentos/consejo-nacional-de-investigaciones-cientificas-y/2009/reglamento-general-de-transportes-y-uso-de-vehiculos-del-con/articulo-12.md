@@ -1,0 +1,1 @@
+Artículo 12.—Deberes de las Direcciones y Unidades Administrativas. Los directores o coordinadores de las direcciones o unidades administrativas que utilicen vehículos conforme a lo dispuesto en el artículo anterior, deberán velar por el cumplimiento de las disposiciones del presente reglamento.

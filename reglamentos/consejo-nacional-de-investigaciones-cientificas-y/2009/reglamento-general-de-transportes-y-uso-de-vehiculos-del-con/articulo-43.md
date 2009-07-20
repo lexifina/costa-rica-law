@@ -1,0 +1,9 @@
+Artículo 43.—Procedimiento en caso de accidente de tránsito. Los conductores de los vehículos del CONICIT, que se involucren en un accidente de tránsito, deben proceder, cuando las condiciones de salud lo permitan de la siguiente forma:
+1. Solicitar la presencia de un oficial de tránsito para el levantamiento del parte correspondiente. No podrá mover el vehículo bajo ninguna circunstancia, hasta el momento en que el oficial de tránsito le entregue la boleta respectiva del parte, y que le autorice a mover el vehículo.
+2. Solicitar la presencia de un inspector del Instituto Nacional de Seguros para que levante toda la información del o los daños ocasionados a la unidad.
+3. Obtener del conductor del o los vehículos involucrados la siguiente información: número de placa, nombre y apellido del conductor o propietario, marca, color y daños que presenta el vehículo.
+4. Si hay testigos solicitarles los datos personales: nombre, cédula, dirección, teléfono, lugares de trabajo y otros.
+5. Utilizando el sistema de información más rápido, informar al encargado de la flota vehicular, quien le girará las instrucciones que el caso amerite. Si el accidente ocurre en horas no hábiles y tiene características de gravedad, debe darse aviso al lugar de residencia del citado funcionario para que este atienda el asunto. Los accidentes que no se consideren graves podrán reportarse dentro de las siguientes ocho horas hábiles de la ocurrencia del suceso.
+6. Rendir informe escrito y detallado al Encargado de la flota vehicular sobre lo acontecido con el vehículo asignado, dentro de los siguientes cuatro días hábiles.
+7. Rendir declaración ante la Autoridad Judicial competente para conocer del accidente y aportar una copia a la Asesoría Legal y a la Unidad de Recursos Materiales y Servicios junto con copia del parte correspondiente para el expediente.
+8. Darle seguimiento al caso en los tribunales hasta que se dicte la sentencia, en coordinación con la Asesoría Legal.

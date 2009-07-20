@@ -1,0 +1,1 @@
+Artículo 28.—Inventario vehicular. El Encargado de la flota vehicular realizará inventarios cada cuatro meses a los vehículos, a fin de verificar su estado físico y mecánico, además del control de las herramientas, repuesto y piezas complementarias.

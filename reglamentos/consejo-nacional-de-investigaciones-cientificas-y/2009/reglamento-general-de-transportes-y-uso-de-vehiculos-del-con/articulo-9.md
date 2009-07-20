@@ -1,0 +1,3 @@
+Artículo 9º—Del uso del vehículo discrecional. El vehículo asignado para uso discrecional, sólo podría ser usado por el Secretario(a) Ejecutivo(a), el Subsecretario(a) Ejecutivo(a) y el chofer designado. Únicamente en casos especiales y con la autorización del funcionario designado podrán utilizarlo funcionarios de la institución.
+Los vehículos de uso discrecional no podrán usarse para fines contrarios a la ley, a la moral y a las buenas costumbres o para usos en lugares que no contribuyan al objeto de la Institución.
+En caso necesario la Administración podrá disponer de los vehículos de uso discrecional, asignados a la Secretaría y Subsecretaría Ejecutiva, para el cumplimiento de tareas y servicios que requiera la Institución.

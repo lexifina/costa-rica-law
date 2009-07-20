@@ -1,0 +1,1 @@
+Artículo 5º—De la propiedad uso e inscripción. Los vehículos propiedad del CONICIT son de Uso Oficial, y deberán estar debidamente inscritos a nombre del CONICIT en el Registro Público de la Propiedad de Vehículos Automotores y asegurados con póliza obligatoria y voluntaria ante el Instituto Nacional de Seguros.

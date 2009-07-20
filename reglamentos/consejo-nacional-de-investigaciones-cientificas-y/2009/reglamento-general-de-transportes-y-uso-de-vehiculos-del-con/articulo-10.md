@@ -1,0 +1,1 @@
+Artículo 10.—Del transporte a los miembros del Consejo Director. Se brindará servicio de transporte al Presidente del Consejo Director y a los miembros del Consejo, cuando representen en actividades determinadas a la Institución.

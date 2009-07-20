@@ -1,0 +1,1 @@
+Artículo 35.—Prohibición de aparcamiento en lugares inadecuados. Los vehículos del CONICIT no podrán ser aparcados por sus conductores frente a zonas estipuladas como prohibidas por la ley, ni frente a cantinas, tabernas, o similares, ni frente a establecimientos cuya ocupación transgreda la moral y las buenas costumbres.

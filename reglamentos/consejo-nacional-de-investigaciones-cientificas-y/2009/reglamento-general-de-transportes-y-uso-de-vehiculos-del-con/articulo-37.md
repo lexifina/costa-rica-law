@@ -1,0 +1,1 @@
+Artículo 37.—Prohibición de viajar con particulares. Es prohibido que viajen particulares en los vehículos del CONICIT, sin su debida inclusión en la boleta “Autorización para uso de Vehículos” y previa autorización. Los particulares que viajen sin autorización institucional, lo hacen por cuenta propia y asumiendo su propio riesgo en caso de un accidente.

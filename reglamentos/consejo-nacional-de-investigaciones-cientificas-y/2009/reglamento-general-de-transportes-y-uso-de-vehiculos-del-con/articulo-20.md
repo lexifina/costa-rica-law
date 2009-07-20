@@ -1,0 +1,1 @@
+Artículo 20.—Deber de fiscalización institucional. Sin perjuicio de la fiscalización que realice la Contraloría General de la República y la Auditoría Interna de CONICIT, la Dirección de Soporte Administrativo, conforme con el Reglamento Autónomo de Organización y Servicio, velará por el fiel cumplimiento de este reglamento.
