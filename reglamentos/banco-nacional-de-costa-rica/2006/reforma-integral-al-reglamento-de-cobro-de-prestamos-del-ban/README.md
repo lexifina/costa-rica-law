@@ -14,3 +14,4 @@ Reforma integral al Reglamento de cobro de préstamos del Banco Nacional de Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-03 | la propia norma |
+| 2 | 2009-07-21 | Reglamento 11560 (2009-07-21) |
