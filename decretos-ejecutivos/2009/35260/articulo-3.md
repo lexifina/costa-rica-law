@@ -1,0 +1,1 @@
+Artículo 3º—Se declara prioridad nacional, el fortalecimiento de la gestión del Servicio Nacional de Salud Animal como entidad nacional competente para garantizar local e internacionalmente la salud animal y la inocuidad del producto pesquero y acuícola, acorde con los mejores estándares de salud pública.
