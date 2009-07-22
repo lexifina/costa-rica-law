@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Autorízase a la Municipalidad del cantón Central de Cartago, cédula de persona jurídica número tres – cero uno cuatro – cuatro dos cero ocho cero (N.º 3-014-42080), para que done, a la Junta de Educación de la Escuela de San Blas de Cartago, cédula de personería jurídica número tres – cero cero ocho – cero ocho siete cinco cuatro uno ( N.º 3-008-087541), los inmuebles de su propiedad descritos en el artículo 1; ambos serán destinados a la ampliación de la Escuela de San Blas de Cartago.
