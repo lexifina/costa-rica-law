@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Aféctase al uso público el inmueble inscrito en el Registro Público de la Propiedad bajo el Sistema de Folio Real matrícula número uno seis siete cuatro dos cuatro (N.º 167424) secuencia cero cero cero (000), descrito en el artículo 1 de esta Ley. Queda exonerada del pago de derechos y timbres, así como del impuesto de traspaso de bienes inmuebles, la confección de la escritura que señala el presente artículo.
