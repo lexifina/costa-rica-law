@@ -1,0 +1,4 @@
+Artículo 8º—De las necesidades institucionales: Los Titulares Subordinados podrán solicitar el otorgamiento del plus salarial objeto del presente reglamento a los funcionarios que ocupen los siguientes cargos:
+a) Personal operario de equipo móvil de la Institución, cuando éste deba realizarse en días y horas inhábiles, en donde por escasez de personal o tipo de servicio, no se pueda cubrir cada uno de manera adecuada y sea necesario disponer de algún personal, que solo se llama si se necesita, en donde se conoce que dicha necesidad es frecuente.
+b) Profesionales y especialistas indispensables requeridos para atender emergencias -declaradas como tales por las autoridades competentes- y por los días en que se atienda la situación.
+Para estos efectos, no se podrá aprobar más del 5% del personal de la institución dentro del régimen de disponibilidad, salvo situaciones especiales o de excepción que deberán ser justificadas por el Gerente General del IMAS.

@@ -1,0 +1,1 @@
+Artículo 12.—De las compatibilidades e incompatibilidades del régimen de disponibilidad: La disponibilidad es compatible con la dedicación exclusiva, prohibición y otros pluses que no estén referidos a la materia que se regula o al horario de trabajo, pero sí excluye durante el tiempo en que se reciba el régimen de disponibilidad laboral el pago de jornada extraordinaria.
