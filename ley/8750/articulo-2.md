@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+El lote por donar será destinado a la construcción de las instalaciones para que funcione el kinder de la comunidad, así como las oficinas administrativas, los parqueos y las instalaciones necesarios para el adecuado desarrollo de sus funciones; todo lo anterior según el acuerdo municipal contemplado en el artículo 7 del acta Nº 51, de la sesión celebrada el 28 de enero de 2003, por el Concejo Municipal de Cartago.
