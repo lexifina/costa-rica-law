@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Autorízase a la Municipalidad de Cañas, cédula de persona jurídica número tres-cero uno cuatro-cero cuatro dos uno cero uno (Nº 3-014-042101), para que done el lote segregado a la Junta Administrativa del Instituto Profesional de Educación Comunitaria de Cañas (IPEC), cédula de persona jurídica número tres-cero cero ocho-uno cuatro dos siete ocho uno (Nº 3-008-142781). El inmueble alberga las instalaciones del IPEC, el cual es una institución pública.
