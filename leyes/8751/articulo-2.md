@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+El objeto de esta donación es inscribir a nombre de la Junta Administrativa de la Unidad Pedagógica Rafael Hernández Madriz, el terreno donde funciona actualmente el centro educativo, todo lo anterior de conformidad con lo acordado por el Concejo Municipal de Cartago, según consta en los artículos 45 y 7, tomado por el Concejo Municipal de Cartago en las sesiones ordinarias Nº 87 y Nº 91, celebradas los días 8 y 5 de los meses de julio y agosto de 2003, respectivamente.
