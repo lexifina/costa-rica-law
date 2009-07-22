@@ -1,0 +1,1 @@
+Artículo 2º—Del mismo modo, también estarán exentos del pago del citado Timbre de Construcción, las empresas y profesionales inscritos en el Colegio Federado de Ingenieros y de Arquitectos, si las obras que construyan sean realizadas por encargo de los entes y órganos de la administración pública centralizada y descentralizada.
