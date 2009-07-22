@@ -1,0 +1,4 @@
+ARTÍCULO 3.-
+Autorízase a la Municipalidad de Cartago, cédula de persona jurídica número tres-cero uno cuatro-cuatro dos cero ocho cero (Nº 3-014-42080), para que proceda a la venta de la franja de terreno descrita en el artículo 1 de esta Ley, a la entidad que en derecho corresponda, según los procedimientos legales vigentes. No obstante, antes deberá requerirse a la Dirección General de Tributación del Ministerio de Hacienda, un avalúo actualizado de ese inmueble; este avalúo deberá ser utilizado como precio mínimo de venta a terceros, de modo que así se consigne en la respectiva escritura. En todo caso, el producto total de la venta final pertenecerá íntegramente a la Municipalidad de Cartago, para el cumplimiento de los fines que correspondan.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los tres días del mes de julio del dos mil nueve.
