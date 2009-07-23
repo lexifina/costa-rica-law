@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 17.—Reglamentación para los órganos con desconcentración mínima. Los órganos con desconcentración mínima adscritos a este Ministerio, a saber el Instituto de Alcoholismo y Fármacodependencia e Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, deberán adoptar, cada uno, en el plazo no mayor a tres meses a partir de la publicación de la presente normativa, su propia reglamentación, la cual en todo caso deberá seguir los principios, términos, contenidos y procedimientos que por este acto se establecen, sin perjuicio de la inclusión de otros aspectos adicionales propios de la especificidad de sus respectivas competencias.

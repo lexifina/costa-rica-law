@@ -1,0 +1,1 @@
+Artículo 4º—Supervisión y cumplimiento. La Dirección de Desarrollo Humano con el apoyo de las Unidades de Apoyo Logístico y Administrativo Regional serán los encargados de ejecutar las labores relacionadas con el control y supervisión de las garantías que deberán rendir los funcionarios de éste Ministerio en los tres niveles de gestión.
