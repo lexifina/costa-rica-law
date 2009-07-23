@@ -1,5 +1,6 @@
-LEY DE IMPUESTOS MUNICIPALES DEL CANTON DE
-LEON CORTES
+(Derogado)
+(Esta ley fue derogada por el artículo 19 de la ley que establece las Tarifas de Impuestos Municipales de León Cortes, N° 8735 del 3 de julio de 2009, y publicada en La Gaceta N° 142 del 23 de julio de 2009)
+LEY DE IMPUESTOS MUNICIPALES DEL CANTON DE LEON CORTES
 ARTICULO 1.- Establécense los siguientes impuestos municipales del
 Cantón de León Cortés:
 IMPUESTO TRIMESTRAL
