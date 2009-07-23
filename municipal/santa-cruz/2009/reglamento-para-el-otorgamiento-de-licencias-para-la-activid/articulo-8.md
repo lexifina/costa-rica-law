@@ -1,0 +1,1 @@
+Artículo 8º—El otorgamiento de licencias municipales a oficinas de porteo, estará sujeto a las disposiciones normativas generales, establecidas para la autorización de establecimientos que encuadran en la categoría tradicional de oficina.

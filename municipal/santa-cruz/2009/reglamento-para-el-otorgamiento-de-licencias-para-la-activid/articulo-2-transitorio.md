@@ -1,0 +1,2 @@
+Transitorio 2º—Con la aprobación del presente Reglamento por parte del Concejo Municipal de Santa Cruz de Guanacaste, los porteadores debidamente acreditados y que han ejercido el porteo en forma legal e inscritos en el Registro Público, a excepción de personas que con anterioridad a este reglamente continuarán en su actividad regulados por la Municipalidad de Santa Cruz, Guanacaste con su patente respectiva, otorgándoles un plazo de seis meses para cumplir con todos los requisitos establecidos en este Reglamento.
+Santa Cruz, 2 de junio del 2009.

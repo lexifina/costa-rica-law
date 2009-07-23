@@ -1,0 +1,3 @@
+Artículo 5º—Las licencias municipales que sean otorgadas para ejercer la actividad lucrativa del transporte privado de personas (porteo) en el cantón de Santa Cruz, no son transferibles a terceros y serán de carácter renovable cada año.
+La cantidad de vehículo que el interesado desea incorporar en el servicio de porteo, quedará sujeto a la capacidad de alojamiento que posea el sitio destinado para la guarda del mismo. La Municipalidad será la responsable de determinar lo que corresponda.
+El estudio técnico solo será gestionado por la Municipalidad ante solicitud de licencia de porteo que se presente con posterioridad a la entra en vigencia del presente Reglamento el mismo tendrá para a todos los efectos un período de validez de un año.

@@ -1,0 +1,2 @@
+Artículo 33.—Una Vez transcurrido el periodo de consulta pública sin que exista oposición, el Concejo acuerda aprobar el presente articulado como Reglamento en firme, el cual rige a partir de su publicación en el Diario Oficial La Gaceta.
+(NOTA DE SINALEVI: En la publicación de este reglamento municipal se consignó este artículo con el número 33. No obstante, del análisis se deduce que realmente corresponde al artículo N° 17).
