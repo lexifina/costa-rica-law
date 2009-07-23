@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Documentos requeridos para la declaración jurada municipal
+Cuando los patentados no hayan presentado su declaración de impuesto sobre la renta deberán acompañar su declaración de impuesto de patentes con una certificación de ingresos o estudio de ingresos, extendido por un contador público autorizado (CPA). Adicionalmente, deberán presentar copia de la constancia de inscripción ante la administración tributaria regional correspondiente.
