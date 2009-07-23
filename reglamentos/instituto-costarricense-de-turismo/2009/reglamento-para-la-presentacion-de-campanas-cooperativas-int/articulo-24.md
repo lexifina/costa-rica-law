@@ -1,0 +1,1 @@
+Artículo 24.—Deróguese el Reglamento para la presentación de Programas Cooperativos de Promoción del Instituto Costarricense de Turismo, publicado en La Gaceta Nº 217 del 12 de noviembre de 1996 y su modificación en La Gaceta Nº 134 del 12 de julio del 2007.
