@@ -1,2 +1,3 @@
-ARTICULO 106.- La falta notoria de respeto o buen trato del trabajador doméstico para con las personas o quienes se los deba en razón de su trabajo, constituye causa justa para el despido sin responsabilidad patronal.
-( Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).
+Artículo 106.-
+Si el contrato de las personas trabajadoras domésticas concluye por despido injustificado, por renuncia originada en faltas graves de las personas empleadoras o de las personas que habitan con ellos, por muerte o fuerza mayor, la persona trabajadora o, en su caso, los derecho-habientes a que se refiere el artículo 85 de este Código tendrán derecho a una indemnización, de acuerdo con las reglas establecidas en el artículo 29 de esta Ley. En el caso de jornadas inferiores a la ordinaria, estos derechos se mantendrán proporcionalmente, igualmente para las personas menores de edad, de acuerdo con el Código de la Niñez y la Adolescencia.
+(Así reformado por el artículo 1° de la ley N° 8726 del 2 de julio de 2009)
