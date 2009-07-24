@@ -1,0 +1,2 @@
+ARTÍCULO 46.- Venta de los bienes perecederos
+Los bienes perecederos podrán ser vendidos o utilizados por el PANI, antes de que se dicte sentencia definitiva dentro de los juicios penales respectivos, de acuerdo con el reglamento de la Institución; para ello, deberá contarse con un peritaje extendido por la oficina competente del Ministerio de Hacienda. Los montos obtenidos serán destinados conforme lo indica el artículo 44 de la presente Ley.

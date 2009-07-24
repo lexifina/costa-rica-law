@@ -1,0 +1,2 @@
+ARTÍCULO 35.- Control y fiscalización de las inversiones
+El ICD deberá remitir, en forma semestral, un balance general del resultado de las inversiones realizadas, debidamente certificado por el ente de capital público que las administre, a la Contraloría General de la República y a la Comisión Permanente Especial para el Control del Ingreso y Gastos Públicos, de la Asamblea Legislativa de la República de Costa Rica.
