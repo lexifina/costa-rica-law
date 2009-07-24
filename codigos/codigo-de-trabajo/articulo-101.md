@@ -1,4 +1,6 @@
-CAPITULO OCTAVO
-Del trabajo de los servidores domésticos
-ARTICULO 101.- Servidores domésticos son aquellos que se dedican en forma habitual y continua a labores de aseo, cocina, asistencia, y demás propias de un hogar, residencia o habitación particulares, que no importen lucro o negocio para el patrono.
-(Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).
+CAPÍTULO OCTAVO
+Trabajo doméstico remunerado
+Artículo 101.-
+Las personas trabajadoras domésticas son las que brindan asistencia y bienestar a una familia o persona, en forma remunerada; se dedican, en forma habitual y sistemática, a labores de limpieza, cocina, lavado, planchado y demás labores propias de un hogar, residencia o habitación particular, que no generan lucro para las personas empleadoras; también pueden asumir labores relativas al cuidado de personas, cuando así se acuerde entre las partes y estas se desarrollen en la casa de la persona atendida.
+Las condiciones de trabajo, así como las labores específicas por realizarse, independientemente de la jornada que se establezca, deberán estipularse en un contrato de trabajo, por escrito, de conformidad con los requisitos estipulados en el artículo 24 del presente Código y las leyes conexas.
+(Así reformado por el artículo 1° de la ley N° 8726 del 2 de julio de 2009)

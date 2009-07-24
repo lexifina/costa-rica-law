@@ -1,2 +1,3 @@
-ARTICULO 107.- Si el contrato del servidor doméstico concluye por despido injustificado, por renuncia originada en faltas graves del patrono o de las personas que habitan con él, o por muerte o fuerza mayor, el servidor, o en su caso los derecho- habientes a que se refiere el artículo 85 de este Código, tendrán derecho a una indemnización de acuerdo con las reglas establecidas en el artículo 29 de este Código.
-( Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º)
+Artículo 107.-
+Las disposiciones de este Código, así como las leyes supletorias o conexas, se aplicarán, salvo disposiciones en contrario, al régimen del trabajo doméstico remunerado en lo no previsto por el presente capítulo.
+(Así reformado por el artículo 1° de la ley N° 8726 del 2 de julio de 2009)

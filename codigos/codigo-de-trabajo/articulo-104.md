@@ -1,11 +1,3 @@
-ARTICULO 104.- Los servidores domésticos se regirán por las siguientes disposiciones especiales:
-Estarán obligados a trabajar con esmero y solicitud, según las necesidades e intereses del patrono, y a cumplir sus instrucciones, así como a observar discreción, especialmente en lo que se refiere a la vida familiar;
-Percibirán su salario en efectivo, que en ningún caso será inferior a la fijación mínima correspondiente, y recibirán además, salvo pacto o práctica en contrario, alojamiento y alimentación adecuados, que se reputarán como salario en especie para los efectos legales consiguientes;
-Estarán sujetos a una jornada ordinaria máxima de doce horas, teniendo derecho dentro de ésta un descanso mínimo de una hora, que podrá coincidir con los tiempos destinados a alimentación. En caso de jornadas inferiores a doce horas pero mayores de cinco, el descaso será proporcional a las mismas. (Así reformado este inciso por resolución de la Sala Constitucional N° 3043-07 del 7 de marzo del 2007.)
-Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 3043-07 del 7 de marzo del 2007.)
-Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 3043-07 del 7 de marzo del 2007.)
-Tendrán derecho a quince días de vacaciones anuales remunerados, o a la proporción correspondiente en caso de que el contrato termine antes de las cincuenta semanas;
-Los menores de catorce años tendrán derecho a licencias para cursar la enseñanza primaria; y
-En caso de incapacidad temporal originada por enfermedad, riesgo profesional u otra causa, tendrán derecho a los beneficios que establece el artículo 79 de este Código; sin embargo, la prestación a que se refiere el inciso a) del mismo se reconocerá a partir del primer mes de servicios.
-No obstante, si la enfermedad ha sido contraída por contagio ocasionado por las personas que habitan la casa, tendrá derecho, hasta por el término de tres meses, a percibir, en caso de incapacidad, su salario completo, e invariablemente a que se les cubran los gastos razonables que con tal motivo deba hacer.
-( Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).
+Artículo 104.-
+Las personas empleadoras del trabajo doméstico remunerado estarán obligadas a garantizar la seguridad social de las personas trabajadoras, y a inscribirlas en la Caja Costarricense de Seguro Social, dentro de los ocho días hábiles siguientes al inicio de sus labores, de conformidad con el artículo 44 de la Ley constitutiva de la Caja Costarricense de Seguro Social y sus Reglamentos, así como a otorgarle un seguro de riesgo de trabajo, de conformidad con los artículos 193, 201, siguientes y concordantes de este Código.
+(Así reformado por el artículo 1° de la ley N° 8726 del 2 de julio de 2009)
