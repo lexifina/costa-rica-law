@@ -16,3 +16,4 @@ Reglamento de Gestión de Riesgos
 | 1 | 2009-02-27 | la propia norma |
 | 2 | 2009-03-06 | Reglamento 777 (2009-03-06) |
 | 3 | 2009-05-27 | Reglamento 782 (2009-05-27) |
+| 4 | 2009-07-24 | Reglamento 794 (2009-07-24) |

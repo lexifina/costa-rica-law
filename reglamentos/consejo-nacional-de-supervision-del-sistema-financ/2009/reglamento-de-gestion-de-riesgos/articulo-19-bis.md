@@ -1,0 +1,3 @@
+Artículo 19 (bis) Límite al financiamiento:
+El financiamiento otorgado por parte de los puestos de bolsa a un cliente individual o grupo de interés económico, ya sea mediante préstamos o cuentas por cobrar, no puede ser superior al 10% de capital base, o 20%, en caso de que ese exceso esté garantizado con títulos del Banco Central de Costa Rica, Ministerio de Hacienda, bancos comerciales del Estado costarricense, títulos de gobiernos con calificación soberana de grado de inversión y otros valores con calificación internacional AAA.
+(Así adicionado mediante sesión N° 794 del 24 de julio de 2009 )
