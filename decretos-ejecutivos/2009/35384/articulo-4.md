@@ -1,0 +1,1 @@
+Artículo 4º—De los asesores. Cada representante propietario o suplente en ejercicio, podrá asistir a la sesión de la Comisión acompañado de los asesores que considere pertinentes, en razón de los temas que serán conocidos en sus sesiones.
