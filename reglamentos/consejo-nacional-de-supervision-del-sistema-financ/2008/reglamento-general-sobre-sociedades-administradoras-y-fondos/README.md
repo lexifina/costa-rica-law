@@ -15,3 +15,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | --- | --- | --- |
 | 1 | 2009-01-15 | la propia norma |
 | 2 | 2009-02-13 | Reglamento 772 (2009-02-13) |
+| 3 | 2009-07-24 | Reglamento 794 (2009-07-24) |
