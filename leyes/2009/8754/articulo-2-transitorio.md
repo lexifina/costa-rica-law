@@ -1,0 +1,2 @@
+TRANSITORIO II.-
+Dentro de los tres meses siguientes a la promulgación de esta Ley, la Corte Suprema de Justicia presentará al Ministerio de Hacienda, por una única vez, la solicitud de un presupuesto extraordinario para financiar el Centro Judicial de Intervención de las Comunicaciones (CJIC) hasta la conclusión de ese año calendario. Posteriormente, los gastos requeridos para su funcionamiento serán incluidos en el presupuesto ordinario que la Corte Suprema de Justicia presente cada año ante el Ministerio de Hacienda.

@@ -1,0 +1,4 @@
+ARTÍCULO 48.- Inscripción y traspaso de los bienes
+En los casos de bienes comisados sujetos a inscripción en el Registro Nacional, bastará la orden de la autoridad judicial competente para que la sección respectiva de dicho Registro proceda a la inscripción o el traspaso del bien a favor del PANI.
+Inmediatamente después de que la sentencia se encuentre firme, la autoridad competente enviará la orden de inscripción o de traspaso, a la cual deberá adjuntársele la boleta de seguridad respectiva, y estará exenta del pago de todos los impuestos de transferencia y propiedad previstos en la Ley N.º 7088, así como del pago de los timbres y derechos de traspaso o inscripción.
+En tales casos, no será necesario contar con la nota respectiva emitida por el Departamento de Exenciones, del Ministerio de Hacienda.

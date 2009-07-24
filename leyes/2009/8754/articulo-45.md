@@ -1,0 +1,2 @@
+ARTÍCULO 45.- Administración de los bienes
+Los bienes citados en el artículo 41 de esta Ley, el PANI podrá venderlos, administrarlos o entregar en fideicomiso a un banco del Sistema Bancario Nacional, según convenga a sus intereses. Los beneficios de la venta, la administración o el fideicomiso antes señalados se utilizarán para gastos corrientes y de capital, directamente relacionados con la lucha contra los delitos sexuales contra las personas menores de edad.
