@@ -14,3 +14,4 @@ Deroga Decreto Ejecutivo 32023 que creo el Museo de Espacios y Formas (MUFES)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-02 | la propia norma |
+| 2 | 2009-07-24 | Decreto Ejecutivo 35493 (2009-07-24) |
