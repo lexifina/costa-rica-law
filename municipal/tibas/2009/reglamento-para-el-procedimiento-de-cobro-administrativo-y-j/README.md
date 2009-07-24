@@ -1,0 +1,16 @@
+# Reglamento municipal (2009-06-09)
+
+Reglamento para el Procedimiento de Cobro Administrativo y Judicial de la Municipalidad de Tibás
+
+- Tipo: Reglamento municipal
+- Número: 163
+- Fecha: 2009-06-09
+- Ente emisor: Municipalidad de Tibás
+- Publicación: La Gaceta N° 143 del 2009-07-24
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=65890&param2=77197&param3=1 (ficha 65890)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-07-24 | la propia norma |

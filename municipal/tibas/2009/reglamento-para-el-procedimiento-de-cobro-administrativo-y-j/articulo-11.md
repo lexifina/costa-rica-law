@@ -1,0 +1,1 @@
+Artículo 11.—Colaboración a los funcionarios de la Sección de Cobros. Los contribuyentes, responsables, declarantes y terceros deben atender a los funcionarios Sección de Cobros Municipal y prestarles la mayor colaboración en el desarrollo de su función.
