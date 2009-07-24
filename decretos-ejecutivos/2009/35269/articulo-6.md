@@ -1,0 +1,1 @@
+Artículo 6º—Vehículos de uso policial. Estos vehículos son los empleados por el cuerpo policial de tránsito para el cumplimiento de programas y proyectos de educación y prevención vial así como para el cumplimiento de la labor diaria y ordinaria en materia de control y vigilancia sobre la circulación de la flota vehicular que transita por las vías públicas terrestres del país.
