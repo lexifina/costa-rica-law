@@ -14,3 +14,4 @@ Reglamento de Compensación y Liquidación de Valores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-29 | la propia norma |
+| 2 | 2009-07-24 | Reglamento 794 (2009-07-24) |
