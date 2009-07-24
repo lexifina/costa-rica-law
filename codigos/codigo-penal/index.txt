@@ -331,6 +331,7 @@ articulo-307.md
 articulo-308.md
 articulo-309.md
 articulo-310.md
+articulo-310-bis.md
 articulo-311.md
 articulo-312.md
 articulo-313.md
