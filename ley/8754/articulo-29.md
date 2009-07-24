@@ -1,0 +1,3 @@
+ARTÍCULO 29.- Terceros de buena fe
+Las medidas y sanciones contempladas en la presente Ley y en la Ley N.º 8204, en cuanto a decomiso, se aplicarán sin perjuicio de los derechos de los terceros de buena fe.
+Los terceros interesados que cumplan los presupuestos establecidos en los artículos 93 y 94 de la Ley N.° 8204, tendrán tres meses de plazo, contado a partir de la comunicación mencionada en el artículo 84 del mismo cuerpo legal, para reclamar los bienes y objetos decomisados. El tribunal podrá diferir hasta sentencia la resolución de lo planteado por la persona interesada; pero, vencido el plazo señalado en esta norma sin la intervención de algún tercero, se decretarán el comiso y traspaso definitivo del dominio a favor del ICD.

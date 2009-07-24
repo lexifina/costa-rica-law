@@ -1,0 +1,3 @@
+ARTÍCULO 23.- Distracción del patrimonio
+Se impondrá pena de prisión de cinco a quince años, a quien conociendo de la existencia de diligencias de justificación del patrimonio emergente en su contra o en contra de su representada, aunque no se le haya notificado el traslado de la denuncia o la sentencia, traspase sus bienes, los grave, los destruya, los inutilice, los haga desaparecer o los torne litigiosos, de modo que imposibilite o dificulte la ejecución de las medidas cautelares o de la sentencia.
+El funcionario público o judicial o de entidades financieras que colabore con el autor, será sancionado con pena de ocho a dieciocho años de prisión e inhabilitación por diez años en el ejercicio de cargos públicos o judiciales.

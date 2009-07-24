@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Anticipo jurisdiccional de prueba
+Sin perjuicio de lo dispuesto por el Código Procesal Penal, Ley N.° 7594, sobre el anticipo jurisdiccional de prueba, en los casos de delincuencia organizada procederá la prueba anticipada siempre que exista indicio suficiente para estimar que existe peligro para la vida, la integridad física o el patrimonio de alguna persona, o de los allegados a esta, que vaya a suministrar información comprometedora de la responsabilidad de los sospechosos, de los imputados o de la organización delictiva.

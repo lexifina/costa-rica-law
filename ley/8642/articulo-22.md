@@ -7,6 +7,8 @@ c) Incumplimiento en el pago de la contribución al Fondo Nacional de Telecomuni
 d) El atraso de al menos tres meses en el pago de las tasas y cánones establecidos en la presente Ley.
 e) No cooperar con las autoridades públicas en los casos a que se refiere el artículo 5 de esta Ley.
 f) La reincidencia de infracciones muy graves, de conformidad con el artículo 67 de esta Ley, durante el plazo de vigencia del título habilitante.
+g) El incumplimiento de brindar acceso inmediato de comunicaciones al Centro Judicial de Intervención de las Comunicaciones (CJIC) en los términos y las disposiciones establecidos en la Ley contra la delincuencia organizada. Esta infracción será catalogada como muy grave, según lo establecido en el inciso a) del artículo 68 de esta Ley.
+(Así adicionado el inciso anterior por el artículo 58 de la ley Contra la Delincuencia Organizada, N° 8754 del 22 de julio de 2009)
 La declaratoria de resolución del contrato estará precedida de un proceso administrativo que respetará las reglas del debido proceso. El titular de la concesión cuya resolución haya sido declarada por incumplimiento grave de sus obligaciones, estará imposibilitado para mantener nuevas concesiones de las previstas en esta Ley, por un plazo mínimo de tres años y máximo de cinco años, contado a partir de firmeza de la resolución.
 2) Las concesiones, las autorizaciones y los permisos se extinguen por las siguientes causales:
 a) El vencimiento del plazo pactado.

@@ -1,0 +1,2 @@
+ARTÍCULO 38.- Donación de bienes
+En los casos de donación de bienes, muebles o inmuebles, a instituciones del Estado o de interés público será necesario contar únicamente con el acuerdo del Consejo Directivo del ICD y el acta de donación emitida por la Unidad de Administración de Bienes Comisados y Decomisados de dicho Instituto, para que el Registro Nacional realice el traspaso o la inscripción a favor del ente beneficiario. Este documento estará exento del pago de todos los impuestos de traspaso.

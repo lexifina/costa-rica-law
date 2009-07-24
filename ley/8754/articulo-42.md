@@ -1,0 +1,2 @@
+ARTÍCULO 42.- Decomiso de bienes y pago de multas
+Quienes hayan sido condenados por la comisión de delitos sexuales contra personas menores de edad, además de las penas tipificadas en el Código Penal, incurrirán en la pérdida a favor del Estado de los instrumentos con que se cometió y de las cosas o los valores provenientes de su realización, o que constituyan, para el agente, un provecho derivado del mismo delito, salvo el derecho que sobre ellos tengan el ofendido o terceros.

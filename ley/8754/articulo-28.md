@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Utilización de vehículos con placa extranjera
+En los casos de vehículos con placa extranjera, no registrados o no nacionalizados, bastará la solicitud del Instituto para que las dependencias autorizadas del Ministerio de Obras Públicas y Transportes (MOPT), y el Registro Nacional otorguen los permisos y la documentación correspondientes para la circulación temporal, en el territorio nacional.
