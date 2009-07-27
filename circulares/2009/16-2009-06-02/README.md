@@ -13,3 +13,4 @@ Comunicados judiciales de impedimentos de salida del país
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-02 | la propia norma |
+| 2 | 2009-07-27 | Acuerdo 22 (2009-07-27) |

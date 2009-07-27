@@ -11,3 +11,4 @@ Nº de fax Horario
 2290-58-75 Fines de semana
 2441-55-41 ó 2440-12-90 Feriados y días festivos
 San José, 2 de junio del 2009.
+(Nota de Sinalevi: El Consejo Superior en sesión Nº 66-09, celebrada el 30 junio de 2009, artículo LXXXII, y publicada en el Boletín Judical N° 154 del 10 de agosto de 2009, mediante aviso N° 22 del 27 de julio de 2009, dispuso aclarar este aviso, en el sentido de: "...que los impedimentos de salida en materia de Pensiones Alimentarias se comunicarán como normalmente se hace al Registro Judicial y solamente se enviarán a la Dirección General de Migración y Extranjería, en horas y días no hábiles")
