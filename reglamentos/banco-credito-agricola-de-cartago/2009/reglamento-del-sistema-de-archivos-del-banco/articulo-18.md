@@ -1,0 +1,1 @@
+Artículo 18.—Asesoría y capacitación. El Archivo Institucional deberá capacitar y asesorar a los encargados de los archivos de gestión o cualquier otro colaborador relacionado con la actividad documental, para que organicen los archivos de conformidad con las políticas y técnicas reguladas por el Archivo Institucional.

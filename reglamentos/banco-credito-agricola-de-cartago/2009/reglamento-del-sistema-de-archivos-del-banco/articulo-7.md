@@ -1,0 +1,1 @@
+Artículo 7º—Fondo Documental: El fondo documental que se conserva en los archivos, se organizará por medio de los sistemas de clasificación y los métodos de ordenación archivísticos definidos por el Archivo Institucional, respetando los principios de procedencia y orden original de los documentos.

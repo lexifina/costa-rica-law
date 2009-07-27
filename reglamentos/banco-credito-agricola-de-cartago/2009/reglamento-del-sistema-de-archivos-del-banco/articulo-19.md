@@ -1,0 +1,1 @@
+Artículo 19.—Del informe anual. El encargado del Archivo Institucional deberá elaborar un informe anual escrito, que enviará a la Dirección General del Archivo Nacional en el mes de marzo de cada año. Se debe elaborar dicho informe, en concordancia con lo que establece el artículo 42 inciso J de la Ley del Archivo y los artículos 145 y 146 de su Reglamento.
