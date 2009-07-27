@@ -1,2 +1,0 @@
-Artículo 47.—El servidor deberá avisar sus ausencias el mismo día o, en caso de fuerza mayor, a más tardar el día siguiente. Las ausencias deberán justificarse a más tardar el día siguiente de producidas, salvo fuerza mayor. Únicamente se podrán justificar, en su caso, con dictamen médico de la respectiva institución aseguradora.
-La Dirección podrá aceptar otro tipo de prueba en casos especiales y sólo si la ausencia no ha excedido de dos días.

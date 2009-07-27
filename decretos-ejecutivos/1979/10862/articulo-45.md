@@ -1,5 +1,0 @@
-Artículo 45.—Las sanciones serán impuestas por el superior inmediato, cuando obedecieren a faltas leves. La suspensión que no exceda de ocho días será impuesta por el Director de la Imprenta; la que exceda de este término será impuesta por el Viceministro autorizado, en su caso. El despido sólo podrá ser gestionado y acordado por el Ministro respectivo, en su caso, o bien por la Junta.
-Las advertencias impuestas por el superior inmediato son recurribles en única instancia ante el superior inmediato de éste, dentro de tercero día hábil.
-Las suspensiones acordadas por el Viceministro según el párrafo anterior sólo tendrán recurso de revocatoria dentro de tercero día hábil, en vía ministerial.
-Las suspensiones acordadas por el Director de la Imprenta Nacional, serán conocidas en alzada, dentro del mismo plazo, por el respectivo Viceministro, quien agotará la vía ministerial; si se tratare de servidores dependientes de la Junta, sólo tendrán alzada dentro del mismo plazo, para ante la Junta.
-Los expedientes que se formen con motivo de la imposición de sanciones serán incluidos en el Expediente Personal del Servidor.

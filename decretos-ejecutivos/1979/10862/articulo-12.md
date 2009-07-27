@@ -1,1 +1,0 @@
-Artículo 12.—Por razones extraordinarias podrá variarse temporalmente el horario de la jornada de trabajo establecido en el párrafo primero, por acuerdo de la Dirección; sin embargo, la modificación sólo podrá ser definitiva si es aprobada por la Dirección General de Servicio Civil y por la División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social.

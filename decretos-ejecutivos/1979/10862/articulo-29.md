@@ -1,1 +1,0 @@
-Artículo 29.—Los servidores de los talleres estarán obligados a usar gabachas, dentro de la jornada de trabajo y mientras permanezcan en los talleres. Las gabachas serán suministradas gratuitamente por la Imprenta y el servidor deberá darles un uso normal.

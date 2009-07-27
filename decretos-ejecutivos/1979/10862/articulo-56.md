@@ -1,1 +1,0 @@
-Artículo 56.—En todos los centros de trabajo, la Dirección de la Imprenta instalará un botiquín con los medicamentos y equipo necesario para primeros auxilios, en casos de riesgo profesional o enfermedad, los cuales estarán bajo la custodia y responsabilidad del jefe inmediato en cuanto a su correcta utilización.

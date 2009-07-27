@@ -1,2 +1,0 @@
-Artículo 37.—El trabajador que por dolo o complacencia marque tarjeta que no le corresponda, incurrirá en falta grave a sus obligaciones laborales y se hará acreedor al despido.
-Incurrirá en la misma falta y se aplicará igual sanción al trabajador a quien se le compruebe haber consentido para que otra persona le marcara su tarjeta. Estas faltas se computarán para efectos de reincidencia en un lapso de tres meses.

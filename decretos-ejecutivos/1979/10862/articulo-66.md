@@ -1,2 +1,0 @@
-Artículo 66.—Este Reglamento no perjudica los derechos jurídicamente adquiridos por los servidores de la Institución.
-Se presumirá de conocimiento de todos y será de observancia obligatoria desde el día de su vigencia, inclusive para los que en el futuro presten sus servicios . La Institución se reserva el derecho de adicionarlo o modificarlo en cualquier momento, sometiéndose al trámite de estudios y aprobación de la Dirección General de Servicio Civil y de la Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social.
