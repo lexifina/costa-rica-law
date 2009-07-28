@@ -1,0 +1,1 @@
+Artículo 8º—De la relación con los proveedores. Durante el proceso de gestión de compras la relación con los potenciales oferentes de bienes, servicios u obras, corresponde exclusivamente a la Proveeduría Institucional.
