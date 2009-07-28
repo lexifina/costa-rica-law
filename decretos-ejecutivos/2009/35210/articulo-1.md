@@ -15,4 +15,5 @@ Declaratoria de interés público nacional
 del Segundo Seminario Latinoamericano
 de Calidad de Alimentos Vinculado
 con el Origen y las Tradiciones
-Artículo 1º—Se declara de interés público nacional la celebración del Segundo Seminario Latinoamericano “Calidad de los Alimentos Vinculado con el Origen y las Tradiciones”, el cual se realizará a partir del día 5 y hasta el día 7 de mayo del 2009, en San José.
+Artículo 1º—Se declara de interés público nacional la celebración del Segundo Seminario Latinoamericano “Calidad de los Alimentos Vinculada con el Origen y las Tradiciones”, el cual se realizará durante los días 29 y 30 de setiembre y 1 y 2 de octubre de 2009, en San José.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35472 del 28 de julio de 2009).

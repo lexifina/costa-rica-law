@@ -14,3 +14,4 @@ Declaratoria de interés público nacional del Segundo Seminario Latinoamericano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-16 | la propia norma |
+| 2 | 2009-07-28 | Decreto Ejecutivo 35472 (2009-07-28) |
