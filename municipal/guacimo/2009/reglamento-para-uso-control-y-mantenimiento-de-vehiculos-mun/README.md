@@ -14,3 +14,4 @@ Reglamento para Uso, Control y Mantenimiento de Vehículos Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-26 | la propia norma |
+| 2 | 2009-07-28 | Reglamento municipal 30 (2009-07-28) |
