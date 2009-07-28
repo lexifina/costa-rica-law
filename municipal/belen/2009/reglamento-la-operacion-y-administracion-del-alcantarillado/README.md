@@ -14,3 +14,4 @@ Reglamento la Operación y Administración del Alcantarillado Sanitario y Planta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-22 | la propia norma |
+| 2 | 2009-07-28 | Reglamento municipal 44 (2009-07-28) |
