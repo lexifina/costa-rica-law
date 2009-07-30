@@ -1,0 +1,1 @@
+Artículo 45.—Si en el Distrito se encuentra funcionando filiales debidamente organizadas de Asociaciones o Federaciones Nacionales, estas deberán fungir como Comisión Específica de su disciplina deportiva.

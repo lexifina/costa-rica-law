@@ -1,0 +1,1 @@
+Artículo 2º—EL Comité Distrital de Deportes y Recreación tendrá como finalidad organizar, dirigir, capacitar, promover y estimular los deportes y la recreación en todos sus aspectos dentro del Distrito.

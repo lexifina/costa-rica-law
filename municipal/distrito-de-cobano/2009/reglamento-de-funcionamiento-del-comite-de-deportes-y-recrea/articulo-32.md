@@ -1,0 +1,1 @@
+Artículo 32.—De la subvención recibida por parte del Concejo Municipal, el Comité de Deportes y Recreación, podrá incluir en su presupuesto anual, una partida para la compra de terrenos aptos para el deporte y la creación, asimismo como para la construcción de instalaciones deportivas.

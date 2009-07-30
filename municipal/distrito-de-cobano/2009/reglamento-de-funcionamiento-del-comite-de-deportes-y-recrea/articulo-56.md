@@ -1,0 +1,2 @@
+Artículo 56.—El presente Reglamento lo establece el Concejo Municipal del Distrito de Cóbano, de conformidad con lo que establecen los artículos 165 y siguientes del Código Municipal, y deja sin efecto cualquier otro reglamento o reglamentos que hasta la fecha y en ausencia del presente, venían rigiendo el funcionamiento del Comité Distrital de Deportes y Recreación.
+Publíquese.—Cóbano, 23 de junio del 2009

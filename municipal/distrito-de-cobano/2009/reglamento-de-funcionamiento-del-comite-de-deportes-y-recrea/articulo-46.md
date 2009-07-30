@@ -1,0 +1,1 @@
+Artículo 46.—Las comisiones específicas de cada deporte podrán funcionar como filiales de las Asociaciones o Federaciones Nacionales encargadas de dirigir el deporte nacional, para que realicen campeonatos a nivel nacional, manteniendo siempre su relación con el Comité de Deportes.

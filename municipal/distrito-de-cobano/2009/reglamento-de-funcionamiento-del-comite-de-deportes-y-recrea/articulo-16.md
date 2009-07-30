@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones extraordinarias del Comité de Deportes y Recreación, serán convocadas por el Presidente a solicitud de por lo menos tres miembros con veinticuatro horas de antelación y deberá indicar el día y hora de la sesión y los asuntos por tratar, asimismo el lugar donde se realizará la reunión.

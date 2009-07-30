@@ -1,0 +1,5 @@
+Artículo 3º—
+a) El Comité de Deportes y Recreación del Distrito de Cóbano elaborará anualmente un programa de trabajo, el cual abarcará los proyectos, propósitos y acciones que el mismo desarrollará en el período comprendido entre el 1° de enero y 31 de diciembre de dicho año.
+b) Deberá presentar este programa de actividades a conocimiento y aprobación del Concejo Municipal, en el transcurso de los primeros quince días del mes de agosto de cada año.
+c) Dicho programa de actividades, son las que justificarán el presupuesto que el Comité de Deportes y Recreación debe presentar al Concejo Municipal, de conformidad con los artículos del presente Reglamento, a más tardar el 15 de agosto, fecha ésta en que el Concejo empieza a elaborar su presupuesto.
+d) El Comité de Deportes y Recreación, deberá remitir al Concejo Municipal a más tardar el 15 de diciembre de cada año, un informe de las labores realizadas, así como un informe económico-contable de ingresos y egresos del período, así como la justificación de los mismos.
