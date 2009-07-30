@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia. El permiso de quema tendrá una vigencia de 90 a 180 días naturales, según criterio técnico del funcionario del MAG, considerando factores como el tipo de cultivo, tiempos de cosecha y otros elementos propios de la actividad.

@@ -1,0 +1,1 @@
+Artículo 10.—Resolución. Presentados los requisitos de manera completa o subsanados los defectos, el Ministerio de Agricultura y Ganadería deberá resolver la solicitud de Permiso de Quema en un plazo máximo de treinta (30) días calendario.

@@ -1,0 +1,1 @@
+Artículo 23.—Programas preventivos y operativos. Con el propósito de contribuir a mitigar los efectos negativos de las quemas controladas, la Comisión Nacional de Incendios Forestales coordinará acciones con el Comité al que se refiere el artículo siguiente, los programas preventivos y operativos que sean necesarios para minimizar los efectos de los incendios forestales.

@@ -1,0 +1,1 @@
+Artículo 21.—Denuncia. El propietario legítimo del terreno o su representante, el arrendatario o el poseedor del terreno, en un plazo máximo de 48 horas, deberán presentar la denuncia respectiva ante las autoridades competentes cuando la quema haya sido provocada por actos de vandalismo, situaciones accidentales o fuerza mayor.

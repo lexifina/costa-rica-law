@@ -1,0 +1,2 @@
+Artículo 17.—Sanciones. Aquel que realice una quema, con o sin permiso, en contravención con lo dispuesto en el presente reglamento, se hará acreedor a las sanciones previstas en el artículo 399 inciso 1) del Código Penal.
+Los funcionarios del MAG, del MINAET, del Ministerio de Salud o de la Municipalidad respectiva, que tengan conocimiento de cualquier infracción a las disposiciones del presente Reglamento, están obligados a presentar la denuncia penal correspondiente y coordinar con el MAG para que este ejerza las acciones necesarias a fin de revocar el permiso otorgado.

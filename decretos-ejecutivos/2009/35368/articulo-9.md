@@ -1,0 +1,1 @@
+Artículo 9º—Trámite de la solicitud. Cuando los requisitos señalados se presenten de manera incompleta o defectuosa, el Ministerio de Agricultura y Ganadería, hará la prevención respectiva al interesado, según lo establece la Ley General de la Administración Pública.

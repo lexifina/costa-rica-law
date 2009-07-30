@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Estas disposiciones reglamentarias se aplicarán en todo el territorio nacional y se refieren a los trámites que deben realizar las personas físicas o jurídicas que pretenden obtener el Permiso de Quema Controlada en terrenos agrícolas.

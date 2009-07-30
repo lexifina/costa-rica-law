@@ -1,0 +1,1 @@
+Artículo 14.—Limpieza de frentes de calle y orillas de caminos. Con el fin de evitar incendios, la persona a quien se otorgó el permiso deberá limpiar el frente de la calle y las orillas de caminos, o en su defecto, realizar las rondas según se especifica en el artículo 13 de este Reglamento, no debiendo utilizarse la quema para tales propósitos.
