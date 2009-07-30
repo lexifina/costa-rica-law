@@ -1,0 +1,1 @@
+Artículo 13.—La inobservancia a lo establecido en la presente regulación será sancionada de conformidad con lo dispuesto en la Ley Nº 8436, Ley de Pesca y Acuicultura y cualquier otra disposición pesquera vigente.

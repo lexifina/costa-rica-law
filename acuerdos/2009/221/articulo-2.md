@@ -1,0 +1,1 @@
+Artículo 2º—La sola presentación de la documentación requerida por parte de los interesados, no dará lugar a la obtención de la licencia, la cual estará condicionada a la verificación y valoración que realice el INCOPESCA a través de las instancias y mecanismos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 12.—El INCOPESCA no autorizará el traspaso de licencias de primera vez otorgadas al amparo de la presente regulación, hasta tanto no se cumpla el plazo de vigencia inicial de las mismas, sea de 6 años, salvo las siguientes situaciones: muerte o incapacidad física permanente del permisionario.

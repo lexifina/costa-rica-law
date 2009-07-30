@@ -1,0 +1,1 @@
+Transitorio I.—El INCOPESCA deberá según corresponda para las diferentes pesquerías y licencias, estandarizar el uso de los métodos y artes de pesca establecidas en el presente Acuerdo, para todas las licencias de pesca comercial, pertenecientes a la flota pesquera nacional al plazo de vencimiento de la licencia, excepto para la pesca turística.

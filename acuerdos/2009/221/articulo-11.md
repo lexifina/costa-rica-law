@@ -1,0 +1,1 @@
+Artículo 11.—El INCOPESCA coordinará con el Ministerio de Obras Públicas y Transportes y el Ministerio de Justicia, a fin de que de previo a la inspección técnica e inscripción de embarcaciones nuevas para dedicarlas a la pesca comercial, el interesado deba contar con la respectiva autorización del INCOPESCA, en relación con la licencia de pesca requerida.
