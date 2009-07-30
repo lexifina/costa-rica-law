@@ -14,3 +14,4 @@ Modificación de la circular Nº RPI-003-2007 de fecha 15 de febrero de 2007
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-08 | la propia norma |
+| 2 | 2009-07-30 | Directriz 6 (2009-07-30) |
