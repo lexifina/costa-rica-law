@@ -14,3 +14,4 @@ Reglamento de asignación del beneficio correspondiente al "Fondo de Promoción 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-18 | la propia norma |
+| 2 | 2009-07-31 | Reglamento 0 (2009-07-31) |
