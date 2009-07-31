@@ -160,4 +160,5 @@ TÍTULO I
 Disposiciones generales
 CAPÍTULO I
 Normas de alcance general
-Artículo 1º—Alcance del Reglamento. De conformidad con lo dispuesto en los artículos 39 de la Ley 7302 del 15 de julio de 1992, y 13 de la Ley 7531 de 10 de julio de 1995 y de la Reforma incorporada por la Ley 7946 del 18 de noviembre de 1999, las presentes disposiciones reglamentan el Régimen de Capitalización Colectiva del Sistema de Pensiones y Jubilaciones del Magisterio Nacional.
+Artículo 1º—(Alcance del Reglamento). De conformidad con lo dispuesto en los artículos 39 de la Ley 7302 del 15 de julio de 1992, y 13 de la Ley 7531 de 10 de julio de 1995 y de las Reformas incorporadas por la Ley 7946 del 18 de noviembre de 1999 y 8721 del 24 de abril de 2009, las presentes disposiciones reglamentan el Régimen de Capitalización Colectiva del Sistema de Pensiones y Jubilaciones del Magisterio Nacional.
+(Así reformado mediante sesión N° 083 del 31 de julio de 2009)

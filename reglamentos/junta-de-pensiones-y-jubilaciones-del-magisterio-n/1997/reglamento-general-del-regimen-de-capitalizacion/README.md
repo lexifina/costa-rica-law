@@ -15,3 +15,4 @@ Reglamento General del Régimen de Capitalización
 | --- | --- | --- |
 | 1 | 1997-10-01 | la propia norma |
 | 2 | 2007-01-04 | Reglamento 0 (2007-01-04) |
+| 3 | 2009-07-31 | Reglamento 83 (2009-07-31) |
