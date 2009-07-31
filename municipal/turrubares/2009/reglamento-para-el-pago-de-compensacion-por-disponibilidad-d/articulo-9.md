@@ -1,0 +1,1 @@
+Artículo 9º—Compensación económica de la dedicación exclusiva: Una vez suscrito el contrato correspondiente entre las partes, se reconocerá un 50% a los profesionales para el cual se requiera el grado de bachiller universitario y un 65% a los profesionales que tengan como mínimo un grado de licenciatura universitaria y que así lo requiera el puesto en que se desempeñe.

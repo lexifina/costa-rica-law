@@ -1,0 +1,1 @@
+Artículo 31.—De conformidad con lo dispuesto en el artículo 4 y numeral 13, inciso c) del Código Municipal, el presente Reglamento debe ser publicado en el Diario Oficial La Gaceta.” Y rige desde el día de su publicación.
