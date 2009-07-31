@@ -1,0 +1,1 @@
+Artículo 4º—Prohibiciones para contratar. Están inhibidas para contratar por este sistema aquellas empresas comprendidas dentro de los supuestos regulados por el Artículo 22 bis de la Ley de Contratación Administrativa y el Artículo 19 y siguientes del Reglamentos General de la Contratación Administrativa.

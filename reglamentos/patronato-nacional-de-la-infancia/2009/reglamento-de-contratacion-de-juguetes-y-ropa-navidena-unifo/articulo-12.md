@@ -1,0 +1,1 @@
+Artículo 12.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta y hasta el 13 de julio de 2011, según lo dispuesto por la Contraloría General de la República, mediante oficio DJ-0205 (referencia 7441-2009).

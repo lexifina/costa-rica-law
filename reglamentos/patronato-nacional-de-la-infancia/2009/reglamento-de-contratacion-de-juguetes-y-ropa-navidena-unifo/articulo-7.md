@@ -1,0 +1,1 @@
+Artículo 7º—De la adjudicación. La orden de compra la elaborará el Departamento de Suministros de Bienes y Servicios Institucional, previa verificación de que se han cumplido con todos los requisitos establecidos.
