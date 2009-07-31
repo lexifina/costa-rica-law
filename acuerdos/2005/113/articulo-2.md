@@ -1,2 +1,0 @@
-Se exceptúan los cheques emitidos al portador.
-Artículo 2º—Suministro de información. Las entidades mencionadas anteriormente, deben remitir a la Superintendencia la información de los valores al portador con una periodicidad mensual, en los primeros quince días naturales del mes siguiente. Para lo cual se debe utilizar el formato definido en el anexo 1, el que se debe entregar en papel y disquete y suscrito por el representante legal de la entidad o la persona que se designe para tal efecto.
