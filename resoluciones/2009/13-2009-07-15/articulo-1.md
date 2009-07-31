@@ -1,0 +1,16 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+RESOLUCIONES
+R-DC-13-2009.—Contraloría General de la República.—Despacho Contralor.—San José, a las quince horas del quince de julio de dos mil nueve.
+Considerando:
+I.—Que con fundamento en lo dispuesto en los artículos 183 y 192 de la Constitución Política, y 23 de la Ley Orgánica de la Contraloría General de la República, mediante resolución del Despacho del Contralor General N. 4-DRH-96, de las quince horas del tres de mayo de mil novecientos noventa y seis, se dictó el Estatuto Autónomo de Servicios de la Contraloría General de la República.
+II.—Que la relación de servicios de los funcionarios de la Contraloría General de la República se rige por el Estatuto Autónomo de Servicios, donde se establecen con claridad todos los aspectos que la rigen.
+III.—Que en el marco laboral actual, tanto a nivel mundial como nacional, el teletrabajo ha surgido como una nueva modalidad de organización institucional y de prestación de servicios.
+IV.—Que la Institución ejecuto un proyecto piloto por un plazo de seis meses en el que participaron veinte (20) funcionarios, siendo la evaluación de este proyecto en términos generales muy buena, por parte de los funcionarios participantes y sus jefaturas.
+V.—Que de la modificación en cuestión se otorgó audiencia mediante oficios DEI-RH-0352 y DEI-RH-0353, ambas del veinticuatro de junio de dos mil nueve, a la Seccional de la Asociación Nacional de Empleados Públicos y Privados de la Contraloría General de la República (Seccional ANEP-CGR) y a la Asociación de Profesionales, respectivamente, para que hicieran sus observaciones, conforme lo exige el artículo 361.2 de la Ley General de Administración Pública.
+VI.—Que ninguna de las organizaciones consultadas manifestó observaciones respecto de la propuesta de modificación consultada.
+VII.—Que se ha cumplido con las disposiciones legales y reglamentarias aplicables. Por tanto,
+Con fundamento en lo dispuesto por el artículo 23 de la Ley Orgánica de la Contraloría General de la República, Nº 7428 de siete de setiembre de mil novecientos noventa y cuatro, se resuelve:
+I.—Agregar al Estatuto Autónomo de Servicios un artículo 35 bis que establezca lo siguiente:
+En forma combinada con el cumplimiento presencial de la jornada de trabajo, los servidores podrán optar por el teletrabajo, entendido como cualquier modalidad de prestación de servicios de carácter laboral en virtud de la cual aquellos a quienes la índole de sus funciones lo permitan, podrán desarrollar toda o parte de su jornada laboral, desde un lugar distinto a las instalaciones de la Contraloría General o de los lugares a los que ha sido enviado a ejercer sus labores, mediante la utilización de las tecnologías de la información y las comunicaciones, pero sujeto a los mismos deberes, prohibiciones y responsabilidades de quienes laboran bajo la modalidad tradicional, conforme a las condiciones, requisitos y facilidades que se establecerán por resolución del Despacho Contralor.
+La Contraloría General de la República podrá en cualquier momento revocar o modificar en forma razonada según corresponda las modalidades de prestación de servicios, las cuales no constituyen derechos adquiridos.
+II.—Rige a partir de su publicación.
