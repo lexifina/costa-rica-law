@@ -1,1 +1,1 @@
-Artículo 8º—No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros de la Comisión y sea declarada la urgencia del asunto por el voto favorable de la totalidad de los miembros presentes.
+Artículo 8º— (Derogado por el artículo 2° del decreto ejecutivo N° 35526 del 31 de julio de 2009)

@@ -1,2 +1,2 @@
-Artículo 10.—Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por al menos votación de dos tercios de la totalidad de los miembros de la Comisión.
-Las actas serán firmadas por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente. Los miembros de la Comisión podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.
+Artículo 10.—Las actas se aprobarán en la siguiente sesión ordinaria. El acta se aprobará en la sesión ordinaria siguiente por mayoría simple.
+(Asi reformado por el artículo 1° del decreto ejecutivo N° 35526 del 31 de julio de 2009)

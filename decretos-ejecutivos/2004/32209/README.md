@@ -14,3 +14,4 @@ Crea Comisión Técnica para el Desarrollo del Recurso Humano en Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-02 | la propia norma |
+| 2 | 2009-07-31 | Decreto Ejecutivo 35526 (2009-07-31) |

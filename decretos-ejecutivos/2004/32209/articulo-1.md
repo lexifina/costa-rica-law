@@ -13,4 +13,5 @@ Considerando:
 10.—Que la Agenda Sanitaria Concertada establece la necesidad de conformar un equipo técnico adscrito al Consejo Sectorial de Salud que impulse decisiones concertadas relativas a la formación, el empleo, la recertificación y la regulación de los recursos humanos del sector salud.
 Por tanto:
 DECRETAN:
-Artículo 1º—De la Comisión. Crease la Comisión Técnica para el Desarrollo del Recurso Humano en Salud, denominada en adelante “La Comisión”, como órgano asesor consultivo adscrito al Consejo Sectorial de Salud. La Comisión apoyará los procesos de formulación e implementación de una política nacional que permita la regulación y dirección de la gestión de los recursos humanos en esta área. A su vez constituirá el núcleo básico del Observatorio de Recursos Humanos.
+Artículo 1º—De la Comisión. Créase la Comisión Técnica para el Desarrollo del Recurso Humano en Salud, denominada en adelante “ La Comisión ”, como Comisión Especial permanente del Recurso Humano en Salud del Consejo Sectorial de Salud. La Comisión apoyará los procesos de formulación e implementación de la política nacional que permita la regulación y dirección de la gestión de los recursos humanos en esta área. A su vez constituirá el núcleo básico del Observatorio de Recursos Humanos en salud.
+(Asi reformado por el artículo 1° del decreto ejecutivo N° 35526 del 31 de julio de 2009)
