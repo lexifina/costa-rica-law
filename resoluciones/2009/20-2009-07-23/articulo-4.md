@@ -1,0 +1,1 @@
+IV. Derogar las resoluciones R-SC-03-2006 de las 9:00 horas del 6 de julio del 2006, publicada en La Gaceta No. 143 del 25 de julio de 2006, R-CO-68- 2006 de las 11:00 horas del 28 de agosto de 2006, publicada en La Gaceta No. 172 del 7 de setiembre de 2006 y R-CO-63-2007 de las 9:00 horas del 18 de diciembre del 2007, publicada en La Gaceta No. 19 del 28 de enero del 2008.
