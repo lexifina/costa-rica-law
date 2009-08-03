@@ -1,0 +1,1 @@
+Artículo 15.—Agrupación de solicitudes: Con el propósito de lograr un mejor aprovechamiento en el uso de los vehículos de la Institución, el Encargado de la Unidad de Servicios Generales o quien tenga a su cargo los vehículos, dispondrá el agrupar en un mismo viaje varias solicitudes de diferentes servidores u oficinas para un mismo lugar o ruta.

@@ -1,0 +1,1 @@
+Artículo 11.—Cuando un vehículo no se guarde en las instalaciones, deberá ser guardado en lugares que brinden condiciones de seguridad adecuadas, y no podrá circular en hora y días que no estén debidamente autorizados, quedando la responsabilidad a cargo de la persona que se encuentre autorizada para utilizar el vehículo.

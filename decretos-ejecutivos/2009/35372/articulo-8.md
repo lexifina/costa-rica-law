@@ -1,0 +1,1 @@
+Artículo 8º—EL control y asignación de los vehículos a los choferes, será responsabilidad del Encargado de la Unidad de Servicios Generales. No obstante, éste deberá comunicar al Director del Área de Administración de Servicios Institucionales toda modificación, respecto de la ubicación de todo automotor asignado.

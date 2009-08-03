@@ -1,0 +1,1 @@
+Artículo 25.—Prohibición de estacionamiento: Los vehículos de la Institución no deberán ser estacionados o parqueados por sus operadores en lugares no apropiados, según las buenas costumbres, en procura de resguardar el respeto a la institución, salvo que las funciones que realice así lo ameriten.

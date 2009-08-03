@@ -1,0 +1,1 @@
+Artículo 13.—Disponibilidad de transporte: Si en un lapso de quince minutos no se ha utilizado el servicio asignado, y no se ha comunicado la prórroga de salida, el Encargado de Servicios Generales, podrá disponer del vehículo para cubrir otras necesidades.

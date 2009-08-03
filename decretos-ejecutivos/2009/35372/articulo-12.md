@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Uso y disposición de los vehículos
+Artículo 12.—De la solicitud de transporte: Para la prestación del servicio de transporte o utilización de los vehículos, es indispensable la presentación de solicitud escrita ante la Coordinación de la Unidad de Servicios Generales, en fórmula diseñada para estos efectos, la cual deberá estar firmada por la jefatura autorizada en el registro de firmas, quien a la vez es el responsable de la justificación del servicio y salida del funcionario.
+El Operador de Equipo Móvil, o funcionario autorizado, que se le asigne la utilización de un vehículo, deberá proceder a tenerlo debidamente preparado para su uso con la anticipación necesaria, y además deberá:
+a) Anotar en la solicitud de transporte el kilometraje, el día y la hora de salida, así como el combustible que reporta el vehículo y cuando esté de regreso anotará la hora de llegada, el kilometraje marcado y el funcionario autorizado u Operador de Equipo Móvil firmará y anotará su nombre.
+b) Remitir la fórmula al Encargado de la Unidad de Servicios Generales.
+c) Si el Operador del Equipo Móvil o el funcionario autorizado utiliza un vehículo diferente al asignado, debe de llenar la boleta “Control y Revisión Interna de Vehículos del Servicio Civil” junto con el Agente de Seguridad, tanto al inicio como al finalizar el servicio. Quedando la original de la misma con el agente de seguridad y la copia con el conductor.
+En caso de que exista alguna incongruencia con alguna de las boletas, el Operador del Equipo Móvil o funcionario autorizado lo comunicará de inmediato al Encargado de Servicios Generales, y éste pedirá en un plazo de veinticuatro horas las explicaciones del caso por escrito de lo sucedido.

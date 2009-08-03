@@ -1,0 +1,1 @@
+Artículo 47.—Sanciones: Las infracciones al presente Reglamento serán sancionados disciplinariamente de acuerdo con la normativa vigente en el presente Reglamento, Reglamento Autónomo de Servicios de la Dirección General, Estatuto de Servicio Civil y su Reglamento, Código de Trabajo.

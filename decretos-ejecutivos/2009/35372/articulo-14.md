@@ -1,0 +1,1 @@
+Artículo 14.—Atención de solicitudes de transportes: La atención de los servicios de transporte será tramitada de acuerdo con el orden de presentación de las solicitudes, salvo aquellos casos de urgencia en los que a juicio de la persona Encargada de la Unidad de Servicios Generales pueda variarse tal orden.

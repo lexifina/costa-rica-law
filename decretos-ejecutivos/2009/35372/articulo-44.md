@@ -1,0 +1,1 @@
+Artículo 44.—Resolución administrativa: Una vez resuelta la revocatoria, el Director General emitirá la resolución administrativa final correspondiente, tanto en lo relativo a la responsabilidad civil, como disciplinaria, dentro de los términos legalmente establecidos, siendo notificado lo resuelto.

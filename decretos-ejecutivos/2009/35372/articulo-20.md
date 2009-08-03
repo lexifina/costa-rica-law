@@ -1,0 +1,2 @@
+Artículo 20.—Protección a los Operadores de Equipo y a funcionarios autorizados: La Dirección General mantendrá las Pólizas de Riesgos del Trabajo relativas a los vehículos, según las disposiciones de la Ley de Tránsito, ante eventualidades, como protección a los Operadores de Equipo Móvil, durante el ejercicio de sus labores.
+Para decidir sobre coberturas adicionales en las pólizas para los vehículos, el Área Administración de Servicios Institucionales, deberá efectuar un análisis económico-financiero y determinar la conveniencia de las mismas.

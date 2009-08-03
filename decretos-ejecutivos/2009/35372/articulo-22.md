@@ -1,0 +1,1 @@
+Artículo 22.—Uniformidad de los vehículos: Para que los vehículos circulen dentro de las normas apropiadas de seguridad, y ofrezcan una apariencia uniforme, es prohibido colocar adornos, tanto en el interior como en el exterior de los mismos, o mantener objetos en el panel de instrumentos, que afecten la buena conducción del vehículo.

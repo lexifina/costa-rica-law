@@ -1,0 +1,1 @@
+Artículo 29.—No se podrán utilizar vehículos asignados de la Dirección General para actividades que no sean propias de la Institución, por lo que es prohibida la utilización de los mismos en actividades político electoral y cualquier otra similar.

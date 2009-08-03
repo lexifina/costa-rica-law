@@ -1,0 +1,1 @@
+Artículo 24.—Prohibición de intercambio de accesorios: Los Operadores de Equipo Móvil de los vehículos institucionales, no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con la aprobación respectiva de la persona encargada de la Unidad de Servicios Generales.

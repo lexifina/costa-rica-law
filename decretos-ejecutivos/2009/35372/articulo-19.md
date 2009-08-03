@@ -1,0 +1,1 @@
+Artículo 19.—Alteración de la ruta: Está totalmente prohibido cualquier alteración de la ruta programada que se presente en el transcurso de un viaje. En caso que se diera tal solicitud, el Operador del Equipo Móvil o funcionario autorizado deberá informar en forma inmediata, si es posible, al Coordinador de Servicios Generales para su autorización.

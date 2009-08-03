@@ -1,0 +1,1 @@
+Artículo 41.—Manifestaciones del Operador del Equipo Móvil o funcionario autorizado. El conductor no deberá manifestar disconformidad con las determinaciones de las autoridades en el momento del accidente, según lo regulado deberá informar sobre el percance a la persona encargada de Servicios Generales, en forma inmediata.
