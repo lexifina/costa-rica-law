@@ -1,0 +1,1 @@
+Artículo 43.—Procedimiento de cierre del Fondo Fijo de Caja Chica por parte de la Institución. En caso de que el Responsable del Fondo Fijo de Caja Chica considere pertinente el cierre, procederá de acuerdo con los lineamientos que establezca el DAF del SFE, aprobados por la Dirección del SFE e informará a la Tesorería Nacional al respecto.

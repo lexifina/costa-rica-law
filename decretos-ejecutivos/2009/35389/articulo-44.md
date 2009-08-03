@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 44.—Erogaciones con fondos propios. Las erogaciones que realicen las jefaturas departamentales o secciones u otros funcionarios no autorizados con su peculio personal, para pagar materiales y suministros del Estado y aquellas erogaciones que incumplen con las estipulaciones de este Reglamento o con los lineamientos emanados por el DAF del SFE y por algún otro ente u órgano de control autorizado, serán de responsabilidad exclusiva del funcionario que las realizó y no le serán reintegradas por medio del Fondo Fijo de Caja Chica, salvo que excepcionalmente hubieran sido autorizadas previamente por el DAF del SFE.
