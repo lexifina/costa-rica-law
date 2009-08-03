@@ -14,3 +14,4 @@ Reglamento autónomo del fondo de crédito rural del Instituto de Desarrollo Rur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-14 | la propia norma |
+| 2 | 2009-08-03 | Reglamento 27 (2009-08-03) |

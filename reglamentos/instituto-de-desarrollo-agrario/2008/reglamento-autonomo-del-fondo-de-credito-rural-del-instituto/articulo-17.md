@@ -10,3 +10,5 @@ f) Proyectos agroecoturísticos.
 g) Capital de trabajo.
 h) Servicios.
 i) Certificados de aportación con empresas agroindustriales.
+j) Inversiones complementarias a la actividad financiada.
+(Así adicionado el inciso anterior mediante acuerdo N° 14 de la sesión N° 027 del 3 de agosto de 2009)
