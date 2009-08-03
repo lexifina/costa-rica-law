@@ -29,3 +29,4 @@ Estatuto Autónomo de Servicios
 | 14 | 2008-03-07 | Resolución 3 (2008-03-07) |
 | 15 | 2009-06-29 | Resolución 42 (2009-06-29) |
 | 16 | 2009-07-15 | Resolución 13 (2009-07-15) |
+| 17 | 2009-08-03 | Resolución 27 (2009-08-03) |
