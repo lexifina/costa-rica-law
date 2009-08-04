@@ -1,0 +1,1 @@
+Artículo 5º—Las dependencias y los puestos de las personas trabajadoras facultadas para autorizar el uso de los fondos de caja chica serán definidos por la Gerencia de la Operadora. Los trabajadores y las trabajadoras que ocupen tales puestos deberán registrar su firma ante los custodios de estos fondos.

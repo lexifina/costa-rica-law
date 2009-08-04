@@ -1,0 +1,1 @@
+Artículo 4º—La apertura de cajas chicas, el monto del fondo fijo que se asigne, así como sus variaciones posteriores, y la dependencia en donde éstas operen, serán autorizados por la Gerencia de la Operadora, quien informará a la Auditoría Interna para los fines de control que le corresponden.

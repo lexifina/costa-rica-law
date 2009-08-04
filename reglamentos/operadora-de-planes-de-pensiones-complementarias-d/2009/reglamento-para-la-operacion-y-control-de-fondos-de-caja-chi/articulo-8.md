@@ -1,0 +1,1 @@
+Artículo 8º—Quien custodie la caja chica, la Jefatura de la dependencia donde ésta opera y las personas que autoricen el uso de estos fondos, serán los responsables de que opere de acuerdo con el presente Reglamento.
