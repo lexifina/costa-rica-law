@@ -1,0 +1,1 @@
+Artículo 21.—Para los servidores que ejercen labores de seguridad y vigilancia en jornada nocturna de 6 horas y que por la índole de sus funciones deben laborar doce horas, se les autoriza un máximo de 6 horas extraordinarias por jornada.

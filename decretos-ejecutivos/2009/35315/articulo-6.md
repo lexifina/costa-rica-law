@@ -1,0 +1,1 @@
+Artículo 6º—Aprobación. Recibida la solicitud, Recursos Humanos la analiza y de contar con todos los supuestos del artículo anterior, la eleva a la Dirección General para su aprobación definitiva. En caso de que la solicitud no cumpla con los supuestos señalados, Recursos Humanos o la Dirección General denegarán el reconocimiento.

@@ -1,0 +1,1 @@
+Artículo 26.—La Unidad de Recursos Humanos, será la responsable del registro, verificación y control del uso y pago de la cantidad de horas extraordinarias autorizadas por el Director General y de manera general por el control de horas autorizadas por la Junta Administrativa para cada año.

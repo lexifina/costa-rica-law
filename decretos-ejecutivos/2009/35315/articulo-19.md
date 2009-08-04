@@ -1,0 +1,3 @@
+CAPÍTULO III
+Prohibiciones y excepciones
+Artículo 19.—No se podrá autorizar jornada extraordinaria a un mismo servidor en forma sucesiva durante más de tres meses, en virtud de que se desnaturaliza el carácter extraordinario de este tipo de jornada, excepto en los casos de los agentes de Seguridad y Vigilancia. Con la entrada en vigencia del presente Reglamento, el superior jerárquico inmediato, deberá hacer cesar cualquier situación contraria a lo establecido en él, de no hacerlo, será el responsable directo ante el Estado, por el monto que resultare de las jornadas extraordinarias que la Administración deba pagar al funcionario.

@@ -1,0 +1,1 @@
+Artículo 20.—El pago de tiempo extraordinario a quienes ocupen puestos excluidos de la limitación de jornada de trabajo es improcedente. Cuando un funcionario bajo el régimen de disponibilidad labore jornada extraordinaria procederá el pago de las horas extraordinarias laboradas independiente del monto que devengue por disponibilidad.

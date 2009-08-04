@@ -1,0 +1,4 @@
+Artículo 4º—Excepción al límite de horas para jornada extraordinaria: No obstante lo anterior, cualquier trabajador del Museo podrá laborar más de doce horas diarias, en caso de siniestro o riesgo inminente, en los términos referidos en el artículo 1, inciso i) del presente Reglamento. La ocurrencia de un siniestro o riesgo inminente podrá derivar en la autorización de tiempo extraordinario remunerado, aunque exceda de las 12 horas, siempre que concurra lo siguiente:
+a- Que esté anuente a prestar el servicio.
+b- Que las labores que se deban realizar se deriven efectivamente de una situación de siniestro o riesgo inminente, de manera que de no atenderse en forma inmediata se cause o pueda causar grave perjuicio al cumplimiento de cualquiera de las funciones que desarrolla el Museo.
+c- Que el servidor cuente con el visto bueno, aún de manera verbal, de su superior(es).

@@ -1,0 +1,1 @@
+Artículo 13.—A más tardar el 15 de diciembre de cada año la Junta Administrativa aprobará el número de horas extraordinarias para el siguiente período presupuestario. Esta autorización de jornada extraordinaria otorgada por la Junta Administrativa, regirá a partir del 1 de enero del año siguiente y deberá ser renovada para cada año venidero.

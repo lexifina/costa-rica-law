@@ -1,0 +1,1 @@
+Artículo 30.—La Unidad de Recursos Humanos podrá realizar verificaciones sobre la aplicación de las autorizaciones emitidas. Sus recomendaciones serán elevadas a la Dirección General para que esta las valore y considere su aplicación obligatoria.

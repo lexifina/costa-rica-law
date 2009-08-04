@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Registro y pago del tiempo laborado
+Artículo 22.—El servidor autorizado para laborar tiempo extraordinario, deberá registrar su asistencia en el reloj marcador de la institución, o en el registro que para esos efectos se lleve en ese momento. El Jefe inmediato del funcionario debe velar porque se consigne el tiempo efectivamente laborado. En los casos en que las labores se realicen fuera de las instalaciones de la institución, el Jefe inmediato del funcionario o en su defecto el encargado, deberá llevar el control en forma manual, y el Jefe inmediato debe tomar las medidas pertinentes para asegurarse de que efectivamente se laboró el tiempo reportado por el servidor y que su trabajo fue efectivo.
