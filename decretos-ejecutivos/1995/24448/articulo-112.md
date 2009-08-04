@@ -1,0 +1,1 @@
+Artículo 112.—Del cobro a funcionarios: En todo procedimiento administrativo donde directa o concomitantemente se deba cobrar alguna suma de dinero al funcionario se aplicará el procedimiento señalado en el artículo 308 de la Ley General de la Administración Pública.

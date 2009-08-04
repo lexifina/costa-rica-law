@@ -1,12 +1,7 @@
-Artículo 40.- En todo reclamo contra disposiciones o resoluciones de
-los jefes, cuando el servidor alegue perjuicio causado por ella, se
-observarán las disposiciones contenidas en el Estatuto de Servicio Civil
-y su Reglamento y en la presente normativa.
-Las solicitudes de licencia o permiso y los reclamos, deberán
-hacerse por escrito al jefe inmediato, quien resolverá dentro de los
-cinco días siguientes y en la misma forma. Los asuntos urgentes podrán
-gestionarse verbalmente y deben resolverse del mismo modo, de inmediato.
-El servidor podrá también recurrir a un jefe superior, si demuestra
-que su jefe inmediato no ha cumplido la obligación de atender su gestión
-o si por cualquier motivo se establece conflicto entre el subalterno y el
-jefe inmediato.
+CAPÍTULO IX
+De los ascensos, descensos, traslados y permutas
+Artículo 40.—Promoción: Se entiende por ascenso, la promoción de un servidor regular de un puesto a otro de nivel salarial superior, conforme a las vías de carrera administrativa dictadas por la Dirección General.
+Los responsables de la Unidad donde se produzca la vacante, en coordinación con la Unidad de Recursos Humanos recomendarán las siguientes opciones cuando haya una plaza vacante, en orden de exclusión:
+a) Que la plaza sea ocupada por un funcionario que labore en la dependencia, siempre y cuando se ajuste a lo que establece el artículo 5 de este Reglamento.
+b) Que se proceda a efectuar un concurso interno, con oposición. En ambos casos se debe justificar la acción a seguir para que la Unidad de Recursos Humanos haga el estudio respectivo.
+En los dos supuestos anteriores se velará por el cumplimiento de los requisitos académicos y legales que exige el Manual de Clases Anchas de la Dirección General de Servicio Civil, así como lo establecido en el artículo 5 del presente Reglamento.

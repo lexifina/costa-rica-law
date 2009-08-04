@@ -1,27 +1,6 @@
-Artículo 37.- Además de las contempladas en el artículo anterior,
-quienes tengan funciones de jefatura tendrán las siguientes obligaciones:
-a) Supervisar y dirigir las labores de todos los servidores bajo
-su cargo.
-b) Informar periódicamente a su superior inmediato sobre la marcha
-de su respectiva unidad, sección o departamento y en forma
-inmediata cuando ocurra un hecho extraordinario o que requiera
-pronta atención.
-c) Cuidar de la disciplina y la asistencia de los servidores bajo
-su responsabilidad e informar al inmediato superior de las
-irregularidades que en uno u otro aspecto se presenten.
-ch) Velar para que sus subalternos, con el esmero y cuidado
-apropiados, cumplan con el correcto empleo y mantenimiento del
-equipo que está a su cargo.
-d) Velar porque todos los servidores lleven al día y en debida
-forma la labor encomendada, tomando las medidas que juzguen
-convenientes para que el trabajo se realice en forma eficiente
-y sin retrasos.
-e) Dictar las disposiciones necesarias para el correcto
-funcionamiento de la unidad a su cargo y si fuere el caso,
-someterlas a la aprobación de su superior.
-f) Evaluar en forma objetiva a sus subalternos, mediante la
-aplicación oportuna de los formularios correspondientes.
-g) Imponer las sanciones disciplinarias que deban aplicarse a sus
-subalternos.
-h) Cumplir con los cometidos propios de las funciones a su cargo y
-demás que le asigne su superior.
+CAPÍTULO VIII
+De las incapacidades y pago de subsidio
+Artículo 37.—La ausencia por enfermedad: Toda ausencia por enfermedad que exceda los tres días debe ser justificada por el servidor incapacitado mediante la presentación del correspondiente certificado médico, extendido por la Caja Costarricense de Seguro Social, el Instituto Nacional de Seguros, o el médico particular.
+En caso de medicina privada deberá regirse por el Reglamento de Enfermedad, Invalidez y Muerte de la Caja Costarricense de Seguro Social.
+Las ausencias de hasta tres días de un mismo mes calendario, se podrán justificar hasta por ese tanto, mediante incapacidad que extienda el ente asegurador o el médico institucional.
+En todos los casos, el servidor debe notificar a su jefe inmediato lo antes posible verbalmente o por escrito, las causas que le impidan asistir a su trabajo.

@@ -1,7 +1,1 @@
-Artículo 6º.- Los nombramientos de los servidores que se efectúen
-con sujeción al Régimen de Servicio Civil, se entenderá por tiempo
-indefinido, con excepción de los nombramientos interinos. Los servidores
-no amparados por dicho régimen deberán suscribir un contrato por tiempo
-definido de acuerdo con las disposiciones del Código de Trabajo, salvo
-aquellos que requieran de un contrato de trabajo por obra determinada o
-que sean de naturaleza especial.
+Artículo 6º—Del empleo de los servidores: El INCIENSA estará facultado para utilizar a sus servidores en las funciones que considere necesario asignarles, siempre que éstas sean compatibles con sus aptitudes, fuerzas, condiciones físicas y mentales, y se encuentren dentro de aquellas para cuya ejecución hubieran sido nombrados.

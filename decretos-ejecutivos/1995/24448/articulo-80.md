@@ -1,6 +1,1 @@
-Artículo 80.- Cuando se trate de aplicar dos suspensiones sin goce
-de salario dentro del mismo mes calendario, el jefe determinará las
-fechas a aplicar, a fin de no causarle perjuicio a la institución por el
-servicio que se brinda. No obstante lo anterior, las sanciones han de
-aplicarse, dentro del mes siguiente a partir de la notificación del
-servidor.
+Artículo 80.—De las obligaciones de las jefaturas: Las jefaturas del INCIENSA, deben velar por el cumplimiento de las obligaciones indicadas anteriormente en el artículo 75, considerándose como una falta grave la omisión de esta obligación.

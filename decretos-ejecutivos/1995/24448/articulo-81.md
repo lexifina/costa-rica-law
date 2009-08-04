@@ -1,12 +1,7 @@
-Artículo 81.- De conformidad con lo dispuesto en el artículo 66 de
-este Reglamento. el abandono sin causa justificada, o sin permiso del
-superior inmediato será tenido como falta de mediana gravedad, sin
-embargo atendiendo las circunstancias del caso, podrá ser tenida como
-grave, cuando la reincidencia se dé en un lapso de tres meses
-consecutivos a partir de la primera falta. Las sanciones se aplicarán de
-la siguiente forma:
-a) Amonestación escrita por la primera vez.
-b) Suspensión hasta por 15 días la segunda vez.
-c) Despido sin responsabilidad patronal la tercera vez.
-Para efectos de reincidencia estas faltas se computarán en un lapso
-de tres meses.
+CAPÍTULO XVII
+De las manifestaciones de hostigamiento sexual
+Artículo 81.—Definición: De conformidad con el artículo 3° de la Ley N° 7476, del 3 de febrero de 1995, se entenderá por acoso u hostigamiento sexual toda conducta sexual indeseada por quien la recibe reiterada y que provoca efectos perjudiciales, en los siguientes casos:
+a) Condiciones materiales de empleo.
+b) Desempeño y cumplimiento en la prestación de servicio.
+c) Estado general de bienestar personal.
+También se considerará acoso sexual la conducta grave que aunque haya ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.

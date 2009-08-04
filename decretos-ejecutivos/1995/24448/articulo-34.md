@@ -1,5 +1,1 @@
-Artículo 34.- La Institución deberá mantener un local adecuado para
-que los servidores puedan tomar los alimentos y bebidas durante el tiempo
-de descanso (Reglamento de Seguridad e Higiene de Trabajo). Esto sin
-perjuicio de que en el mismo, si las posibilidades económicas de la
-Institución lo permitan, se puedan expender alimentos a precios módicos.
+Artículo 34.—De la justificación del superior: Para los casos no contemplados en este Reglamento y que representen eventos excepcionales, queda a criterio del jefe inmediato del servidor y bajo su entera responsabilidad, justificar las ausencias del caso; así como las circunstancias que hayan impedido el ingreso en el horario establecido o hayan anticipado la salida del funcionario. El efecto de esa justificación, será la no aplicación de sanción disciplinaria, sin que ello signifique obligación del pago de salario.

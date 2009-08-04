@@ -1,0 +1,1 @@
+Artículo 87.—Plazos del Procedimiento: El Órgano Director tramitará la denuncia, concediéndole al demandado un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo. Si el denunciado no ejerce su defensa se continuará con el proceso, hasta que el órgano director brinde su informe final.

@@ -1,14 +1,5 @@
-Artículo 52.- A todo servidor del Instituto le está prohibido:
-a) Impedir o entorpecer el cumplimiento de las medidas de Salud
-Ocupacional;
-b) Alterar, dañar o destruir los equipos y elementos de protección
-personal de seguridad en el servicio o negarse a usarlos sin
-motivo justificado;
-c) Alterar, dañar o destruir los avisos y advertencias. sobre
-condiciones, sustancias, productos y lugares peligrosos;
-ch) Hacer juegos o dar bromas que pongan en peligro la vida, salud
-e integridad personal de los compañeros de trabajo o de
-terceros y
-d) Manejar, operar o hacer uso de equipo y de herramientas de
-trabajo para las cuales no cuenta con autorización y
-conocimiento.
+Artículo 52.—De la distribución de las vacaciones: Los jefes respectivos autorizarán la época en que sus subalternos disfrutarán de sus vacaciones; se procurará que:
+1. El servidor goce de las mismas dentro de las quince semanas posteriores al día en que se cumplan las cincuenta semanas de servicio continuo.
+2. No se altere la buena marcha de las funciones encomendadas al servidor que estará de vacaciones.
+3. No sufra menoscabo la efectividad del descanso.
+Si transcurre el plazo de quince semanas, sin haberse acordado la acumulación de acuerdo al artículo 32 del Reglamento al Estatuto de Servicio Civil y no se autorizare al servidor el disfrute de sus vacaciones, éste podrá reclamarlas por escrito ante el superior jerárquico, dentro de los tres meses siguientes a las quince semanas mencionadas. En tal caso, el superior debe concederle el disfrute de este derecho a más tardar dentro del mes posterior a la solicitud. Solo se admitirá la acumulación, cuando las necesidades del servicio lo requieran y a solicitud escrita del servidor y únicamente por un período, previa resolución consensuada de la Unidad de Recursos Humanos y la jefatura inmediata de acuerdo a la norma estatutaria citada.

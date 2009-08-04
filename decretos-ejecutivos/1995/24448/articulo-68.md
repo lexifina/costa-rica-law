@@ -1,5 +1,1 @@
-Artículo 68.- Para todo tipo de sanción disciplinaria que se imponga
-a los servidores deberá levantarse la investigación correspondiente y no
-podrá imponerse sanción alguna antes de haber oído al servidor afectado y
-a los compañeros que este indique, a menos que el servidor acepte
-expresamente la causa.
+Artículo 68.—Del período para evaluar: Los superiores jerárquicos evaluarán los servicios de sus colaboradores en la segunda quincena del mes de noviembre de cada año. Caso contrario, el servidor podrá solicitar a su superior inmediato quien estará obligado a hacerlo, que realice su calificación, dentro de los quince días siguientes.

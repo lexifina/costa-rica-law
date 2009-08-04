@@ -1,7 +1,1 @@
-CAPITULO VII
-Derechos de los trabajadores
-Artículo 31.- Los servidores del Instituto gozarán de todos los
-derechos y prerrogativas que conceda el Estatuto de Servicio Civil, su
-Reglamento y el Código de Trabajo. Los servidores interinos u
-ocasionales gozarán como mínimo de las garantías señaladas por la ley
-cuando así les corresponda.
+Artículo 31.—De la ausencia a media jornada: La llegada tardía que exceda de veinte minutos, contados a partir de la hora de ingreso estipulada y que a juicio del jefe inmediato y de la Unidad de Recursos Humanos carezca de justificación, implicará la pérdida de media jornada al estimarse como una ausencia de igual proporción, ello para efectos de rebajo de salario. El servidor quedará en libertad de decidir si permanece en su centro de trabajo o si se retira y regresa a la media jornada restante, en cuyo caso debe reportar de nuevo su ingreso, sin perjuicio de lo establecido en el régimen disciplinario del presente Reglamento.

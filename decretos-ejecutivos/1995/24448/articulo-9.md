@@ -1,9 +1,3 @@
-Artículo 9º.- En toda relación de servicio por tiempo indeterminado,
-habrá un período de prueba de hasta tres meses, de conformidad con lo
-establecido por el artículo 19 del Reglamento, en relación al artículo 31
-del Estatuto del Servicio Civil. Este período también se aplicará en los
-casos de ascenso o traslado. conforme con el artículo 24 del Reglamento
-de dicho Estatuto. En consecuencia, el servidor podrá ser reintegrado a
-su anterior ocupación cuando el Instituto estime que no reúne
-satisfactoriamente las condiciones requeridas para el normal desempeño
-del empleo en cuestión.
+Artículo 9º—De las modificaciones a la jornada ordinaria: La jornada ordinaria mencionada podrá modificarse cuando sea necesario realizar ajustes debido a la naturaleza del servicio, cuando circunstancias especiales así lo exijan y no se cause grave perjuicio a los servidores y al servicio público.
+El acto administrativo sobre el particular, debe justificarse debidamente por el Jerarca de la Institución; quedan a salvo las condiciones de emergencia donde la facultad podrá ser ejercida temporalmente por la Dirección General, pero debe comunicar de inmediato al Jerarca lo actuado, con la justificación pertinente.
+En cualquier caso, esas modificaciones deben ser previamente comunicadas a los servidores.

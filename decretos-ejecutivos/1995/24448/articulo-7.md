@@ -1,4 +1,3 @@
-Artículo 7º.- Sin perjuicio de lo establecido en los artículos 26,
-27 y 31 del Código de Trabajo, los contratos de trabajo a plazo fijo o
-por obra determinada. una vez vencido el plazo o concluida la obra,
-terminará sin responsabilidad para el Instituto.
+CAPÍTULO III
+De la jornada y horario de trabajo
+Artículo 7º—De las condiciones de jornada y horario: El INCIENSA determinará el horario para su centro de trabajo, de acuerdo con las condiciones del lugar y las necesidades del servicio público.

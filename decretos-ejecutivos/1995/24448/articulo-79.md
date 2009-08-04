@@ -1,3 +1,1 @@
-Artículo 79.- Las sanciones a que se refieren los artículos 77 y 78
-de este Reglamento y que se presenten dentro de un mismo mes calendario
-se aplicarán independientemente una de la otra.
+Artículo 79.—De las medidas preventivas: La Dirección General o el Consejo Técnico por medio de la Unidad de Recursos Humanos, está en la obligación de instruir a los servidores en todo lo referente a la prevención de los riesgos del trabajo, según lo establecido por la Ley.

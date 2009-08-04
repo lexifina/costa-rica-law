@@ -1,10 +1,1 @@
-Artículo 78.- Las llegadas tardías superiores a 15 minutos no
-justificadas por el jefe inmediato y que no sobrepasen de un mínimo de
-cinco, darán motivo para el rebajo de la jornada correspondiente. Después
-de seis llegadas tardías superiores a quince minutos será tenido como
-falta de mediana gravedad y el servidor se hará acreedor al rebajo de
-salario de la jornada correspondiente y a la aplicación de las siguientes
-sanciones:
-a. De seis a ocho suspensión por ocho días.
-b. De ocho a diez suspensión por quince días.
-c. De once o más despido sin responsabilidad patronal.
+Artículo 78.—De las obligaciones de las jefaturas: Los responsables de cada jefatura deben reportar a la Unidad de Recursos Humanos cualquier accidente laboral ocurrido a sus servidores, dentro de las cuarenta y ocho horas siguientes al hecho para que dicha Unidad coordine los trámites correspondientes. La omisión de tal aviso constituye falta grave, y lo hará responsable de los daños y perjuicios ocasionados por su omisión.

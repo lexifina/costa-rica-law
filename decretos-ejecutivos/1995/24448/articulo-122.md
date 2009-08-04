@@ -1,0 +1,1 @@
+Artículo 122.—De la gestión del despido: Todo procedimiento donde el acto final sea la gestión de despido, debe remitirse a la Presidencia del Consejo Técnico para que gestione el despido ante la Dirección General del Servicio Civil.

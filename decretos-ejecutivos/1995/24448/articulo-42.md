@@ -1,4 +1,1 @@
-Artículo 42.- A falta de disposiciones en el presente Reglamento,
-aplicables a un caso determinado, deberá tomarse como normas supletorias,
-el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y la
-Constitución Política.
+Artículo 42.—De pedimento de personal: En caso de inopia interna comprobada, la Institución procederá a llenar la vacante por el procedimiento previsto en los numerales 34 del Estatuto de Servicio Civil y 21 de su Reglamento.

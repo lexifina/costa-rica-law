@@ -1,5 +1,1 @@
-Artículo 18.- Todo servidor, salvo negativa justificada, está
-obligado a presta sus servicios en las oficinas centrales o en cualquier
-lugar de la República, por el tiempo que dure la emergencia, siempre que
-se le reconozcan los gastos de transporte y de permanencia o viáticos
-correspondientes.
+Artículo 18.—Del formulario de solicitud de movimiento: Todo acto administrativo de personal que implique variaciones en los contenidos de la relación de servicio, debe constar en el formulario denominado “Acción de Personal”.

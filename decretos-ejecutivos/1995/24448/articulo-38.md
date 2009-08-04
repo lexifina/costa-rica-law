@@ -1,49 +1,16 @@
-Artículo 38.- Además de lo dispuesto en los artículos 40 del
-Estatuto de Servicio Civil, 51 de su Reglamento y 72 del Código de
-Trabajo y otras normas de este Reglamento, queda absolutamente prohibido
-a los servidores:
-a) Ocupar tiempo dentro de las horas de trabajo para asuntos
-ajenos a las labores que le han sido encomendadas.
-b) Hacer abuso en el recibo de visitas o en el uso del teléfono en
-horas de trabajo para asuntos personales, salvo casos
-especiales o de urgencia autorizados por el superior inmediato.
-c) Solicitar o aceptar préstamos de los enfermos, así como guardar
-dinero, valores y objetos de pertenencia de éstos, con la sola
-excepción de casos especiales en que haya una autorización de
-parte del Director o la persona encargada de mantener en
-custodia tales valores, extendiendo el recibo correspondiente.
-ch) Distraer, con cualquier clase de juegos o bromas, a sus
-compañeros de trabajo o quebrantar la cordialidad y el mutuo
-respeto que deben ser normas en las relaciones de personal del
-Instituto.
-d) Visitar otra. secciones y oficinas que no sean aquellas en
-donde debe prestar sus servicios, a menos que lo exijan las
-necesidades del trabajo, así como mantener conversaciones
-innecesarias con compañeros de trabajo o con terceras personas,
-en perjuicio o con demora de las labores que deban ejecutarse.
-e) Fumar dentro de las instalaciones del Instituto.
-f) Hacer propaganda político-electoral o contraria a las
-instituciones democráticas del país durante la jornada laboral
-o ejecutar cualquier otro acto que signifique coacción de las
-libertades que establece la Constitución Política.
-g) Salvo en los casos de fines benéficos y otros previamente
-autorizados por la Dirección Administrativa, hacer colectas,
-rifas, ventas o negocios personales dentro de los locales en
-donde presta sus servicios y en horas de trabajo.
-h) Ausentarse del trabajo sin causa justificada o sin permiso del
-superior.
-i) Portar armas durante las horas de trabajo. Se exceptúan
-aquellos trabajadores que por razones de su cargo estén
-autorizados para llevarlas.
-j) Presentarse al trabajo o trabajar en estado de embriaguez o
-bajo cualquier otra condición análoga.
-k) Suministrar datos confidenciales de la Institución o
-comentarlos con otros servidores, con pacientes o con
-particulares, salvo cuando sea necesario cumplir trámites
-legales, debidamente autorizados.
-l) Llevar fuera de la Institución equipo, instrumentos y otras
-pertenencias sin autorización expresa del Director General o
-Administrativo.
-ll) Alterar las tarjetas, libros de asistencia, marcar la tarjeta
-de otro o consentir que otra persona la marque por él.
-m) Faltar al trabajo sin causa justificada o sin permiso previo.
+Artículo 38.—Del subsidio por enfermedad o riesgo profesional: Todo servidor regular que fuese declarado incapacitado para trabajar por enfermedad o riesgo profesional, gozará de subsidio en proporción al tiempo servido, conforme las siguientes regulaciones.
+a) Durante los primeros tres meses de servicios, el subsidio se reconocerá hasta por un mes.
+b) Después de tres meses de servicios y hasta un año, el subsidio será hasta por tres meses.
+c) Durante el segundo año de servicios, hasta por cinco meses.
+d) Durante el tercer año de servicios, hasta por seis meses.
+e) Durante el cuarto año de servicios, hasta por siete meses y quince días.
+f) Durante el quinto año de servicios, el subsidio será hasta por nueve meses.
+g) Después de cinco años de servicios, el subsidio será de hasta doce meses.
+Para todos los efectos se entenderá que los años de servicio, serán aquellos desempeñados en el Servicio Público, independientemente de si los laboró o no para el INCIENSA.
+El monto del subsidio, cuando la incapacidad sea emitida por la Caja Costarricense de Seguro Social, se definirá de conformidad con las reglas establecidas en el artículo 34 del Reglamento del Estatuto de Servicio Civil, de la siguiente manera:
+a) De uno a tres días INCIENSA pagará un subsidio de 80%.
+b) De cuatro a treinta días INCIENSA pagará un subsidio de 20% y la CCSS un subsidio de 60%.
+c) De treinta y un días hasta un año, INCIENSA pagará un subsidio de 40% y la CCSS un subsidio de 60%.
+En los casos correspondientes a incapacidades del Instituto Nacional de Seguros ( INS ), por convenio suscrito entre el INS y el INCIENSA, los subsidios los cubrirá la segunda en forma total y de la siguiente manera:
+a) De uno a treinta días, un subsidio de 80%.
+b) De treinta y un días hasta un año, un subsidio del 100%.

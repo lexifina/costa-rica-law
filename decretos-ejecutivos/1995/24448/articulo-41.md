@@ -1,4 +1,1 @@
-Artículo 41.- Por regla general, las licencias serán sin goce de
-salario. No obstante, tratándose de casos especiales contemplados en el
-Estatuto de Servicio Civil, su Reglamento, Leyes Especiales, Convenios
-Especiales o este Reglamento, podrán concederse con goce de salario.
+Artículo 41.—De las bases del concurso: Todo concurso estará sustentado en el principio de la libre participación, la confidencialidad frente a extraños, el trato en igualdad entre participantes y en las pautas emitidas por la Dirección General de Servicio Civil. Los datos, documentos u otras informaciones, tendrán carácter confidencial, por lo tanto, los funcionarios que en forma ilícita brinden información del proceso, serán susceptibles de las medidas disciplinarias que las circunstancias ameriten.

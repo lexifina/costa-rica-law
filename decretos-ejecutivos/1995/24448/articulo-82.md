@@ -1,18 +1,7 @@
-CAPITULO XVIII
-De los expedientes de personal
-Artículo 82.- A las Oficina de Recursos Humanos le corresponderá
-entre otras las siguientes funciones, llevará un expediente debidamente
-foliado de cada uno de los servidores del Instituto, en el que conste el
-historial de sus servicios y atestados en la forma más exacta posible.
-Igualmente, contendrá una fotografía del servidor, quien estará obligado
-a suministrarla en el momento en que le sea solicitada. Dicha fotografía
-debe ser renovada por el servidor cada cinco años, al igual que sus datos
-personales.
-Llevar un prontuario para cada servidor, en el cual se anotarán las
-calificaciones periódicas, las ausencias y las llegadas tardías,
-indicándose su motivo cuando fueren justificadas, así como las medidas
-disciplinarias y los datos más importantes de todas las acciones de
-personal. El prontuario se iniciará con el ingreso al servicio.
-Realizar investigaciones en materia de personal, cuando así se
-requiera, de acuerdo al procedimiento administrativo ordinario de la Ley
-General de Administración Pública.
+Artículo 82.—Tipificación: Serán tipificadas como manifestaciones de acoso sexual las siguientes:
+1. Requerimientos de favores sexuales que impliquen:
+a) Promesa, implícita o expresa, de un trato preferencial, en relación con la situación actual o futura de empleo o de estudio, de quien la reciba.
+b) Amenazas implícitas o expresas físicas o morales, de daños o castigos referidos a la situación actual o futura, de empleo o de estudio de quien las reciba.
+c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma implícita o expresa, condición para el empleo.
+2. Uso de palabras escritas y/o verbales así como gestos de naturaleza sexual, que resulten hostiles, humillantes y ofensivos para quien los reciba.
+3. Acercamientos corporales u otras conductas físicas de naturaleza sexual indeseadas y ofensivas para quien las recibe.

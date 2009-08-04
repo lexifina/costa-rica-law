@@ -1,4 +1,1 @@
-Artículo 57.- Cada servidor debe marcar, personalmente la tarjeta de
-asistencia con cuidado, de manera que quede bien registrada con claridad,
-aquellas que no se deban a desperfectos del reloj se tendrán por no
-hechas.
+Artículo 57.—Peligrosidad: Se reconocerá un incentivo de cinco por ciento sobre el salario base a todos los funcionarios del INCIENSA, por estar bajo riesgo de exposición a materiales químicos, biológicos y/o radiactivos, peligrosos para el ambiente circundante. El rige de la aplicación de este incentivo quedará sujeto a que exista contenido presupuestario en la institución.

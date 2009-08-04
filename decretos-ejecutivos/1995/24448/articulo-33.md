@@ -1,4 +1,1 @@
-Artículo 33.- Los servidores del Instituto más antiguos tendrán
-prioridad de ocupar una plaza vacante en igualdad de condiciones y
-requisitos de acuerdo con lo dispuesto por la Dirección General de
-Servicio Civil.
+Artículo 33.—De la ausencia: Se considerará ausencia, la inasistencia a un día completo de trabajo y como media ausencia, la inasistencia a una fracción de la jornada. Dos ausencias de media jornada se considerarán como una ausencia. No se pagará el salario que corresponde a las ausencias.

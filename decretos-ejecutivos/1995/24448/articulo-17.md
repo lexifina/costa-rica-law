@@ -1,15 +1,1 @@
-Artículo 17.- Todo servicio que se ejecute fuera de los límites
-señalados en el artículo 11 de este reglamento o durante los días
-inhábiles, será considerado como extraordinario y se remunerará en cada
-caso conforme lo dispuesto por la ley.
-Cuando no fuere posible efectuar el pago en dinero del trabajo
-extraordinario realizado, podrá compensarse en tiempo según las horas
-laborales.
-No se reconocerá, en ningún caso, el servicio extraordinario
-ejecutado sin la autorización previa del respectivo director y de la
-Comisión de Recursos Humanos de la Dirección General del Servicio Civil,
-para lo cual el servidor deberá solicitarla por medio de su jefe
-inmediato.
-Tampoco se reconocerá como servicio extraordinario el tiempo
-requerido para subsanar los errores imputables al servidor, cometidos
-durante la jornada.
+Artículo 17.—Excepciones a la acción de personal: Se exceptúan aquellos movimientos que afecten a un grupo de servidores, los cuales podrán tramitarse por “planillas colectivas” u otros medios que garanticen su apego a la normativa vigente, siempre y cuando no sean de los que requieren la aprobación de la Dirección General de Servicio Civil, en cuyo caso se deben anexar las acciones de personal, debidamente firmadas y selladas.

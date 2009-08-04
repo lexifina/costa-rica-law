@@ -1,7 +1,4 @@
-Artículo 64.- Se considerará llegada tardía el ingreso al trabajo
-después de cinco minutos de la hora señalada para el inicio de labores en
-la correspondiente jornada. Sin embargo, en casos muy calificados, a
-juicio del jefe inmediato se justificarán las llegadas tardías para
-efectos de no aplicar la sanción correspondiente, salvo aquellas que
-contemple el artículo 65 de este reglamento las cuales requerirán también
-el aval de la Oficina de Recursos Humanos.
+Artículo 64.—De los permisos sin goce de salario: El INCIENSA otorgará permisos sin goce de salario, de conformidad con el artículo 33 del Reglamento del Estatuto de Servicio Civil. El otorgamiento se regirá por las siguientes reglas:
+a) Hasta por quince días. Serán otorgados por la jefatura inmediata, previo análisis de las razones aportadas.
+b) Más de 15 días pero no superior a 30 días. Serán otorgados por la Dirección General, previo análisis de las razones aportadas.
+c) Más de 30 días. Serán otorgados por el Consejo Técnico, previo análisis de las razones aportadas.

@@ -1,12 +1,8 @@
-Artículo 75.- El incumplimiento de las disposiciones contenidas en
-el artículo 54 del presente Reglamento será tenido como falta de mediana
-gravedad y se sujetará a las siguientes reglas computadas dentro de un
-mismo mes calendario:
-a) Por dos omisiones rebajo del salario proporcional a la jornada
-de trabajo.
-b) Por tres omisiones, dos días de suspensión sin goce de salario.
-c) De cuatro a seis omisiones suspensión por ocho días sin goce de
-salario.
-ch) De siete a nueve omisiones suspensión por quince días sin goce
-de salario.
-d) Por diez omisiones despido sin responsabilidad patronal.
+Artículo 75.—De las obligaciones en salud ocupacional: Todos los servidores deben acatar las recomendaciones dadas por la Comisión de Salud Ocupacional, no obstante serán obligaciones específicas, además de las ya señaladas, las siguientes:
+a) Colaborar y asistir a los programas que procuren su capacitación en materia de salud ocupacional.
+b) Participar en la elaboración, la planificación y la ejecución de los programas de salud ocupacional en los centros de trabajo.
+c) Todo funcionario que ingrese a laborar al INCIENSA, debe someterse a un examen médico general y a un protocolo de vacunación según lo recomiende la Comisión de Salud Ocupacional y el médico de empresa, siempre y cuando obedezca a los requerimientos propios del área de trabajo.
+d) Todos los funcionarios que manipulen materiales tóxicos y patógenos por las funciones que desempeñan, deben realizarse, por lo menos una vez al año, los exámenes médicos definidos en el Plan de Prevención por Nivel de Riesgo Laboral.
+e) Posterior a un accidente o incidente laboral, el funcionario implicado deberá someterse a exámenes de diagnóstico según corresponda al Instituto Nacional de Seguros o Caja Costarricense de Seguro Social.
+f) Todos los funcionarios que laboren dentro de los laboratorios y que lo ameriten, deben utilizar el equipo de protección personal, cuidarlo y mantenerlo en óptimas condiciones de higiene. Entiéndase por equipo de protección persona lo descrito en los procedimientos correspondientes.
+g) Queda prohibido el ingreso a las oficinas administrativas, comedor, auditorio y salas del Centro de Información y Comunicación (CIC), entre otros, con gabacha. Es obligatorio utilizarla dentro de los centros de referencia, pero no está permitido circular con ésta por otras áreas de trabajo.

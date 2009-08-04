@@ -1,0 +1,1 @@
+Artículo 95.—Sanción: El acoso psicológico y moral en el trabajo se considerará falta grave y todo funcionario a quien se le compruebe haber incurrido en ésta, podrá ser suspendido sin goce de salario desde un día hasta quince días.

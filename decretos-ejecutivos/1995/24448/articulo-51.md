@@ -1,16 +1,7 @@
-Artículo 51.- Todo servidor del Instituto deberá acatar y cumplir en
-lo que le sean aplicables, los términos de la ley, su Reglamento, los
-Reglamentos de Salud Ocupacional que se promulguen y las recomendaciones
-que, en esta materia les formulen las autoridades competentes.
-Serán obligaciones específicas del servidor, además de las que
-señalan otras disposiciones de la ley las siguientes:
-a) Someterse a los exámenes médicos que establezcan el reglamento
-de la ley u orden de las autoridades competentes, de cuyos
-resultados deberá ser informado.
-b) Colaborar y asistir a los programas que procuren su
-capacitación en materia de Salud Ocupacional.
-c) Participar en la elaboración, planificación y ejecución de los
-Programas de Salud Ocupacional en los centros de trabajo y
-d) Utilizar, conservar y cuidar el equipo y elementos de
-protección personal y de seguridad en el trabajo que se les
-suministren.
+CAPÍTULO XI
+De las vacaciones e incentivos
+Artículo 51.—De la proporción de vacaciones: Cada servidor disfrutará de vacaciones anuales y el tiempo correspondiente se regulará como sigue:
+a) Quince días hábiles, si ha prestado servicio de cincuenta semanas a cuatro años y cincuenta semanas.
+b) Veinte días hábiles, si ha prestado servicio de cinco años y cincuenta semanas a nueve años y cincuenta semanas.
+c) Un mes, si ha prestado servicio de diez años y cincuenta semanas o más; pero si el período se fracciona corresponde, aplicar veintiséis días hábiles de vacaciones.
+Para la determinación de los días hábiles se excluirán los sábados, domingos y feriados establecidos por el artículo 148 del Código de Trabajo así como los días de asueto que concede el Poder Ejecutivo, siempre que el asueto comprenda a la dependencia y al servidor de que se trate.

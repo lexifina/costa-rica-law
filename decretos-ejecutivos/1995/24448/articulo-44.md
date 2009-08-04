@@ -1,4 +1,1 @@
-Artículo 44.- De conformidad con las políticas que sobre
-capacitación existan, se promoverá permanentemente un programa de
-educación continua para el mejoramiento de los servicios que brinda el
-Instituto, a cargo de la Unidad de Capacitación.
+Artículo 44.—De los recargos de funciones: Para los recargos de funciones de clase diferente que excedan de un mes, el jefe inmediato debe consultar, previo a su aprobación a la Unidad de Recursos Humanos, cualquier recargo de funciones con el fin de corroborar los requisitos necesarios para el puesto y el contenido presupuestario correspondiente.

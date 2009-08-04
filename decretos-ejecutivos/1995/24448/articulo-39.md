@@ -1,5 +1,1 @@
-CAPITULO X
-De los reclamos y licencias en general
-Artículo 39.- Los servidores deberán ser atendidos en sus
-sugerencias y en general en todo aquello que estimule su iniciativa
-personal, su eficiencia y el mejoramiento de sus condiciones de trabajo.
+Artículo 39.—De los subsidios por maternidad: Los subsidios y licencias por maternidad se regularán con lo establecido en el artículo 34 del Reglamento del Estatuto de Servicio Civil y normativa conexa.

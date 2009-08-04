@@ -1,4 +1,31 @@
-Artículo 25.- El pago de vacaciones se hará con base en las
-remuneraciones ordinarias y extraordinarias devengadas por el servidor
-durante las últimas cincuenta semanas de trabajo durante el tiempo que le
-diere derecho proporcional a los mismos.
+Artículo 25.—De los deberes generales de los servidores: Además de los consignados en el artículo 39 del Estatuto de Servicio Civil, artículo 50 de su Reglamento, artículo 71 del Código de Trabajo, este Reglamento y disposiciones conexas, son deberes de todos los servidores:
+1) Prestar sus servicios personalmente, en forma regular y continua y cumplir con la jornada de trabajo correspondiente.
+2) Realizar las labores, de conformidad con el horario estipulado y comenzar exactamente a la hora señalada. Antes de haber cumplido su jornada de servicio no podrán abandonarla ni suspenderla sin causa justificada.
+3) Ejecutar sus labores con la capacidad, la dedicación y la diligencia que el cargo exija, aplicando todo su esfuerzo para el mejor desempeño de sus funciones.
+4) Vestir correctamente durante las horas de trabajo, de conformidad con el cargo que desempeñen y los lugares donde presten los servicios.
+5) Guardar absoluta reserva sobre los asuntos del INCIENSA y la discreción necesaria sobre lo relacionado con su trabajo que, por su naturaleza o en virtud de disposiciones legales e instrucciones especiales así lo exijan, sin perjuicio de la obligación que les asiste de denunciar, ante quien corresponda, los hechos incorrectos o delictuosos que lleguen a su conocimiento.
+6) Comunicar a la autoridad competente, respetando el orden jerárquico, las observaciones que su experiencia y conocimiento les sugieran para prevenir daños y perjuicios a los intereses institucionales, de sus compañeros de labores o de personas que se encuentran dentro de los lugares en que prestan sus servicios.
+7) Cuidar y responder por los bienes propiedad o al servicio del INCIENSA o que tuvieren asignados, y no usarlos para fines distintos a los destinados, sin perjuicio de lo establecido por los artículos 13, 16, 18 y los comprendidos en el Título X denominado “Régimen de Responsabilidad” de la Ley de la Administración Financiera y Presupuestos Públicos, Ley número 8131. Es entendido que no serán responsables por el deterioro normal, daño, destrucción o pérdida que se ocasione por caso fortuito, fuerza mayor, mala calidad o defectuosa confección.
+8) Presentar a su jefe inmediato constancia del tiempo empleado en sus visitas al médico particular. Dicha constancia será entregada a más tardar en la jornada siguiente para ser tramitada ante la Unidad de Recursos Humanos.
+9) Rendir cuentas del dinero que reciban como adelanto por concepto de viáticos, según lo establece el Reglamento de Gastos de Viaje y de Transporte para Funcionarios o Empleados del Estado, aprobado por la Controlaría General de la República.
+10) Prestar su colaboración en las comisiones y subcomisiones, comités permanentes de servidores y otros similares que se integren en el INCIENSA, previa autorización de la Dirección General y en coordinación con la jefatura inmediata.
+11) Cumplir con las disposiciones normativas aplicables a la relación de servicio, así como, con todas aquellas de orden interno en vigencia o que lleguen a dictarse, sin perjuicio de hacer valer sus derechos si los consideran lesionados, agotando para ello las instancias administrativas dispuestas para tal efecto.
+12) Informar a la Unidad de Recursos Humanos el cambio de domicilio y otros datos personales que debe tener la Administración disponibles y actualizados. La notificación debe realizarse en un plazo no mayor a un mes, luego de la modificación.
+13) Acatar y hacer cumplir las medidas preventivas de accidentes de trabajo y enfermedades profesionales.
+14) Informar al jefe inmediato, a más tardar el día siguiente después de la ausencia, las causas que le impiden o impidieron asistir a su trabajo, cuando se encuentre imposibilitado para hacerlo, con el fin de justificar la misma.
+15) Laborar la jornada extraordinaria cuando fuere necesario, según los señalamientos de este Reglamento.
+16) Cumplir con la mayor diligencia las órdenes que dicten sus jefes, relativas al servicio y los deberes del puesto que desempeñan; y auxiliar en su trabajo a cualquiera de los demás compañeros, cuando su jefe o quien lo represente así lo indique, siempre que estas labores sean compatibles con las aptitudes, fuerzas, condiciones y el puesto que desempeñen.
+17) Comunicar al jefe inmediato o a su representante, la salida del INCIENSA, para asuntos de trabajo.
+18) Solicitar al jefe inmediato permiso para aspectos personales, antes de salir del centro de trabajo.
+19) Restituir al INCIENSA los bienes no usados y utilizar adecuadamente los instrumentos y materiales que se les faciliten para el trabajo.
+20) Cuidar las instalaciones físicas en las que está ubicado el centro de labor y velar por su buen funcionamiento y conservación.
+21) Mantener al día las labores encomendadas siempre que motivos justificados no se lo impidan, si así fuera, esta situación se comunicará de inmediato a su jefe.
+22) Someterse a valoración médica al ingresar al trabajo; o bien durante el curso de la relación de servicio, si la labor que desempeña lo amerita.
+23) No sobrepasar los límites de los descansos entre jornadas, destinados a tomar refrigerios, alimentación y otros.
+24) Velar para que la buena imagen de la Institución no se deteriore y no comprometerla con comportamientos, dentro y fuera de la jornada, que atenten contra las buenas costumbres.
+25) Presentar informes periódicos, cuando sea requerido en razón de sus funciones.
+26) Respetar el orden jerárquico establecido en la realización de reclamos, trámites o gestiones administrativas.
+27) Informar a quien corresponda o a su superior inmediato, las anomalías en que incurrieren los particulares y/o los servidores del INCIENSA que contravinieren las disposiciones legales vigentes y que causen daños y perjuicios a la administración pública.
+28) Asistir a las audiencias o citaciones cuando fueren requeridos por los órganos competentes en carácter de testigos.
+29) Someterse a los programas de tratamiento y rehabilitación sobre alcoholismo y otros fármacos dependientes, que defina el servicio médico de empresa, en caso de que lo requiera.
+30) Cumplir las disposiones que señalan todos los reglamentos internos del INCIENSA y los de acatamiento obligatorio para el sector público.

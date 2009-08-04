@@ -1,3 +1,2 @@
-Artículo 15.- Se considerará tiempo efectivo de servicio aquel en
-que los servidores permanezcan bajo las órdenes o dirección inmediata o
-delegada de los respectivos superiores, en servicio de sus funciones.
+Artículo 15.—Del expediente personal: La Unidad de Recursos Humanos llevará un expediente personal de cada servidor del INCIENSA.
+Cada funcionario tiene acceso a su propio expediente personal, asimismo, la Auditoria Interna y la Asesoría Legal, en casos debidamente justificados.

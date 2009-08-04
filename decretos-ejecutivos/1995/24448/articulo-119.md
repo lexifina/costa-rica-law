@@ -1,0 +1,1 @@
+Artículo 119.—De la audiencia a la Unidad de Financiero Contable: En todo procedimiento donde exista perjuicio económico para el INCIENSA, se dará participación como testigo mediante audiencia a la Unidad de Financiero Contable o Auditoría Interna desde el inicio del procedimiento, para que estime el monto del perjuicio sufrido y señale los aspectos que estime prudentes.

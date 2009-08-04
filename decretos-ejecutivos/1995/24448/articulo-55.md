@@ -1,4 +1,3 @@
-Artículo 55.- Quedan excluidos de la obligación de marcar tarjeta
-únicamente aquellos servidores que por su condición de profesionales así
-lo establezca la normativa respectiva. También aquellas personas con más
-de veinte años de laborar en la institución en forma ininterrumpida.
+Artículo 55.—Vacaciones profilácticas: Los funcionarios que habitualmente ejecuten actividades consideradas como peligrosas o que permanezcan en contacto directo con elementos o materiales radiactivos, sustancias y agentes cancerígenos y microbiológicos de alto riesgo o que produzcan consecuencias negativas para la salud personal, gozarán de vacaciones profilácticas por un período de catorce días naturales, adicionales a las vacaciones ordinarias, en la jornada respectiva, el cual será absolutamente incompensable; no se fraccionará ni será acumulativo. El disfrute de las vacaciones profílácticas no es un derecho adquirido.
+El otorgamiento de estas vacaciones debe ser solicitado por el servidor, con el aval de su jefe inmediato, a la Unidad de Recursos Humanos, esta última a su vez debe solicitar dictamen para cada caso específico a la Comisión de Salud Ocupacional, quien lo emitirá bajo criterios preestablecidos y aprobados por el Consejo Técnico. La aprobación definitiva será de la Dirección General.
+Cuando el requisito indispensable para el otorgamiento del beneficio ya no exista, la Unidad de Recursos Humanos debe solicitar el dictamen correspondiente a la Comisión de Salud Ocupacional y la posterior aprobación de la Dirección General.

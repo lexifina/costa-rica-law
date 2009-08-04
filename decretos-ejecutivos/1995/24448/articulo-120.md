@@ -1,0 +1,1 @@
+Artículo 120.—De la comunicación a la Unidad de Recursos Humanos: En todo procedimiento ordinario, una vez finalizado el procedimiento administrativo y dictado el acto final por el Consejo Técnico o la Dirección General, se remitirá copia de la resolución a la Unidad de Recursos Humanos, para que adopte el acto que corresponda en un plazo no superior a un mes.

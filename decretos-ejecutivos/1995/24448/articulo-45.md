@@ -1,6 +1,1 @@
-Artículo 45.- Excepto los casos previstos en el artículo anterior,
-las licencias serán otorgadas en la siguiente forma:
-a) Hasta por dos días máximo por los jefes respectivos, con la
-anuencia del director correspondiente.
-b) Hasta por ocho días máximo, serán otorgadas por el respectivo
-Director, con el refrendo del Director General.
+Artículo 45.—Del período de prueba: En todos los casos de ascenso o traslado de un puesto a otro, se aplicará el período de prueba establecido para garantizar la mejor calidad del servicio público, y según lo dispuesto en el artículo 24 del Reglamento del Estatuto de Servicio Civil.

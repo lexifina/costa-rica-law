@@ -1,0 +1,1 @@
+Artículo 91.—Sanciones: De conformidad con lo dispuesto por el artículo 25 de la Ley Nº 7476, y según la gravedad de la falta, se podrán imponer las siguientes sanciones: Amonestación escrita, suspensión sin goce de salario y el despido sin responsabilidad patronal.

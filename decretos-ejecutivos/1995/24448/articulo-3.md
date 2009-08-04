@@ -1,5 +1,1 @@
-Artículo 3º.- El Estado es la persona jurídica responsable de las
-consecuencias resultantes de las relaciones entre el Instituto y sus
-servidores, pero la representación inmediata estará delegada en el
-Ministerio de Salud y Consejo Técnico Director del Instituto y sus
-jerarcas.
+Artículo 3º—De la independencia del INCIENSA: El INCIENSA es un órgano con desconcentración mínima y personería jurídica instrumental; en razón de ello, es responsable directo de las consecuencias resultantes de las relaciones entre él y sus servidores.

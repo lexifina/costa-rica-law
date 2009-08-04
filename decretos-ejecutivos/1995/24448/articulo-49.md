@@ -1,3 +1,1 @@
-Artículo 49.- El Instituto pondrá en práctica, anualmente un
-programa de I adiestramiento para enfrentar posibles desastres en sus
-edificios.
+Artículo 49.—De la forma de pago del salario: El INCIENSA retribuirá a sus servidores por pago quincenal, mediante depósito en la cuenta de ahorros o corriente previamente determinada por el servidor de los bancos que conforman el Sistema Bancario Nacional, siempre que la Institución tenga suscrito un convenio con el ente financiero para tramitar esta modalidad de pago.

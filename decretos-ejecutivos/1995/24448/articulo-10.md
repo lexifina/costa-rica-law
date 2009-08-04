@@ -1,12 +1,1 @@
-CAPITULO III
-De la jornada de trabajo
-Artículo 10.- La jornada de trabajo se desarrollará en las
-instalaciones del Instituto que existen o que se lleguen a establecer. La
-jornada ordinaria de trabajo semanal será de 42 horas. Habrá trabajadores
-que laboren jornadas acumulativas de lunes a viernes y otros de lunes a
-sábado no acumulativas por la índole del servicio. El Instituto podrá
-modificar transitoriamente los horarios establecidos en este Reglamento,
-siempre que circunstancias de trabajo excepcionales así lo justifiquen y
-no cause perjuicio al servicio público o a los servidores. El cambio
-deberá comunicarse con 30 días naturales de anticipación por parte del
-jerarca.
+Artículo 10.—De los funcionarios excluidos de jornada: Quedan excluidos de la limitación de la jornada establecida en este capítulo los funcionarios que ocupen los cargos de Dirección General, Gerencia Administrativa y Gerencia Científica, de acuerdo a la estructura organizacional establecida, según el artículo 143 del código de trabajo. Sin embargo, estas personas no estarán obligadas a permanecer más de doce horas diarias en su trabajo y tendrán derecho, dentro de esa jornada a un descanso mínimo de una hora y media.

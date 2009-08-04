@@ -1,9 +1,3 @@
-CAPITULO VI
-Del aguinaldo y del trabajo de las mujeres
-y de los menores de edad
-Artículo 28.- Todos los servidores del Instituto de cualesquiera
-clase que sean y cualesquiera que sea la forma que desempeñen sus labores
-y en que se les pague el salario, tendrán derecho a un aguinaldo anual
-equivalente a la doceava parte del total de los salarios ordinarios y
-extraordinarios percibidos durante el período respectivo, en los términos
-que otorga la ley número 1835 del 11 de diciembre de 1954.
+CAPÍTULO VII
+Del registro de asistencia
+Artículo 28.—Del registro de asistencia: Los funcionarios con un horario distinto, ocasional o permanente, al establecido en este Reglamento deben realizar la marca de reloj, tanto de entrada como de salida, en acatamiento del Decreto de Flexibilización de Horarios. Sin embargo, este beneficio implica la obligación de los jefes de velar por el cumplimiento de los horarios establecidos.

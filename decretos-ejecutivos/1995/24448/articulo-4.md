@@ -1,6 +1,7 @@
-Artículo 4º.- Los Directores, los Jefes de Departamento, Jefes de
-Sección, Jefes de Oficina y en general todos aquellos servidores que
-desempeñen bajo su responsabilidad, tareas de administración o
-supervisión de personal, son responsables ante el Consejo Técnico
-Director del Instituto y el Ministerio de Salud, de velar por la correcta
-aplicación de todas las disposiciones de este Reglamento.
+Artículo 4º—Definiciones: Para los efectos legales que se deriven de la aplicación del presente Reglamento, debe entenderse por:
+a.) Patrono: El Patrono será el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, en lo sucesivo llamado “INCIENSA”.
+b) Jerarca de la Institución: El máximo jerarca es el Consejo Técnico, según lo dispone el artículo tercero de la Ley de Creación del INCIENSA, N° 4508.
+c) Dirección General: La Dirección General es el órgano encargado de ejecutar los acuerdos del Jerarca de la Institución.
+d) Estatuto y su Reglamento: El Estatuto del Servicio Civil, Ley Nº 1581 del 30 de mayo de 1953 y sus reformas y el Reglamento del Estatuto de Servicio Civil, el Decreto Ejecutivo Nº 21 del 14 de diciembre de 1954 y sus reformas.
+e) Servidor: La persona física que presta servicios al INCIENSA, a nombre y por cuenta de éste, como parte de su organización, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva, y que está protegido por el Estatuto de Servicio Civil.
+f) Normativa aplicable: Para regular la relación laboral de los servidores del INCIENSA, se deben aplicar en su orden jerárquico: el Estatuto de Servicio Civil y su Reglamento; el Código de Trabajo, este Reglamento Autónomo de Organización y las leyes supletorias como la Ley General de la Administración Pública.

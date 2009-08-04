@@ -1,3 +1,1 @@
-Artículo 69.- La aplicación de las correcciones disciplinarias
-corresponderán al Jefe de la Oficina de Recursos Humanos, conjuntamente
-con las Jefaturas de las Unidades Administrativas correspondientes.
+Artículo 69.—De las calificaciones: La calificación de servicios será en función de los méritos durante el año respectivo. Se utilizará una escala con los siguientes valores: excelente, muy bueno, bueno, regular y deficiente. Cuando el resultado de la evaluación del servidor fuere “Regular” por dos veces consecutivas, o si previas las advertencias o sanciones del caso, la evaluación fuere por una sola vez “Deficiente”, se considerará el hecho como falta grave y será motivo de despido sin responsabilidad patronal, de conformidad con el artículo 43 del Reglamento del Estatuto de Servicio Civil.

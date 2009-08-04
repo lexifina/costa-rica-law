@@ -1,5 +1,2 @@
-Artículo 13.- Los servidores del Instituto deberán desempeñar sus
-cargos todos los días hábiles y durante las horas reglamentarias. No
-podrá concederse por lo tanto, privilegio, prerrogativa o ventaja que
-autoricen una asistencia irregular, salvo lo establecido en otras
-disposiciones de este reglamento.
+Artículo 13.—Del tope de jornada: La jornada ordinaria sumada a la extraordinaria, no deberá exceder de doce horas diarias. El superior inmediato deberá comunicar a los servidores con un día de anticipación la jornada extraordinaria que deberán laborar, la cual será remunerada adicionalmente conforme con las disposiciones legales sobre la materia. No se reconocerá, en ningún caso, el trabajo realizado sin autorización previa.
+Tampoco se reconocerá como tiempo extraordinario, el utilizado para subsanar los errores imputables al servidor.

@@ -1,3 +1,1 @@
-Artículo 85.- Cuando lo estime pertinente el Instituto podrá
-modificar total o parcialmente el presente Reglamento, observando el
-trámite respectivo.
+Artículo 85.—Nombramiento del Órgano Director: En un plazo improrrogable de veinticuatro horas siguiente a la denuncia el Consejo Técnico integrará un órgano director que tendrá bajo su responsabilidad el procedimiento sumario administrativo.

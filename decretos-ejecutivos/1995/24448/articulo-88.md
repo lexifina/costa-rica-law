@@ -1,0 +1,1 @@
+Artículo 88.—Recepción de la Prueba: Transcurrido el plazo de los cinco días hábiles, el órgano director convocará a las partes a comparecencia y recibirá los distintos medios de prueba pertinentes así como las respectivas declaraciones.

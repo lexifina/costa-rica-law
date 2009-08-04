@@ -1,7 +1,4 @@
-Artículo 63.- Las ausencias justificadas que no ameriten el pago de
-salario o de subsidio. según este Reglamento y demás textos legales,
-podrán asimilarse a vacaciones, a solicitud del servidor interesado. En
-este caso debe pagarse el salario y disminuirse el número de días de
-vacaciones. El trámite correspondiente a las disposiciones indicadas en
-este artículo deberá hacerse por conducto del jefe inmediato ante la
-oficina de Recursos Humanos.
+Artículo 63.—De los permisos con goce de salario:
+a) Los servidores podrán optar a licencia con goce de salario para estudios, de conformidad con la Ley Nº 1810 del 15 de octubre de 1954, la cual fue reformada integralmente por la Ley N° 3009, denominada: “Ley de Licencias para el Adiestramiento de Servidores Públicos” y el numeral 37 del Reglamento del Estatuto de Servicio Civil, previa recomendación de la Comisión de Becas. La aprobación para periodos de 6 meses máximos le corresponde a la Dirección General y para más de 6 meses al Consejo Técnico.
+b) De conformidad con el artículo 40 del Reglamento al Estatuto de Servicio Civil, los permisos con goce de sueldo para atender invitaciones de gobiernos u organismos internacionales para viajes de representación o participación en seminarios, congresos o actividades similares, los concederá la Dirección General, cuando el plazo no exceda de un mes. El Consejo Técnico concederá los permisos para plazos superiores a un mes y hasta tres meses.
+c) Cualquier otro permiso que obedezca a caso fortuito queda a discreción del jefe inmediato, siempre y cuando no exceda de cinco días hábiles.

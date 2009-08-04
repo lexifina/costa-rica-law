@@ -1,6 +1,1 @@
-CAPITULO XIV
-De las ausencias, llegadas tardías y abandono de trabajo
-Artículo 61.- Se considera ausencia la inasistencia a un día
-completo de trabajo. No se pagará el salario que corresponda a las
-ausencias, excepto los casos señalados en este Reglamento, en el Estatuto
-de Servicio Civil y su Reglamento y en el Código de Trabajo.
+Artículo 61.—De los días feriados: Son hábiles para el trabajo todos los días del año menos los feriados y aquellos que el Poder Ejecutivo declare de asueto. Sin embargo, podrá trabajarse en tales días, si la Institución lo requiere, siempre y cuando no riña con la normativa legal existente y exista el contenido presupuestario para la correspondiente indemnización.

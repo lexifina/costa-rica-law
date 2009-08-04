@@ -1,0 +1,1 @@
+Artículo 114.—Del procedimiento ante faltas leves: En cualquier falta leve, la amonestación verbal será aplicada por el jefe inmediato, con el asesoramiento previo de la Asesoría Legal. Contra lo resuelto únicamente procederá recurso de revocatoria, dentro del tercer día, ante el mismo jefe inmediato.

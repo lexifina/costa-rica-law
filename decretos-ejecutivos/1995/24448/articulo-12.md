@@ -1,3 +1,2 @@
-Artículo 12.- Para establecer el importe del salario de cada
-servidor se tendrá en cuenta que a igual trabajo desempeñado en puesto,
-jornada o condiciones de eficiencia iguales, corresponde igual salario.
+Artículo 12.—Del tiempo extraordinario: Los servidores podrán ser llamados a laborar en horas extraordinarias hasta el máximo permitido por ley en los términos de los artículos 139 y 140 del Código de Trabajo. Previo al requerimiento del horario extraordinario, se deben tomar las medidas presupuestarias que aseguren el correspondiente pago y autorización de las horas extraordinarias.
+La jornada extraordinaria no podrá ser de carácter permanente y se regirá por lo establecido en el reglamento de horas extra de la institución.
