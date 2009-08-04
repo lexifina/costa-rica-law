@@ -1,0 +1,1 @@
+Artículo 3º—Responsables: Es responsabilidad de las jefaturas velar por el cumplimiento de este Reglamento, así como de llevar el control adecuado para una correcta ejecución del servicio a contratar al amparo de este Reglamento.

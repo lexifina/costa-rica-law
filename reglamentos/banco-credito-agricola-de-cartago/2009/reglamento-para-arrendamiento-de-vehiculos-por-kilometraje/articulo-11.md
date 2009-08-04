@@ -1,0 +1,3 @@
+Artículo 11.—Otros pagos: Se reconocerán los pagos por concepto de peajes, utilización de transbordadores y estacionamientos en que deba incurrir el colaborador mientras utiliza el vehículo en la ejecución de sus funciones, para lo cual debe presentar el original de los comprobantes respectivos que demuestre que efectivamente, el gasto se realizó durante la gira autorizada.
+Aprobado por la Junta Directiva General en sesión Nº 8253/09, artículo 14, celebrada el 14 de julio del 2009 y derogada el reglamento aprobado en sesión 6411/90, artículo 18 del 31 de mayo de 1990 y sus modificaciones. El reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+22 de julio de 2009
