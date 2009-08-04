@@ -1,0 +1,1 @@
+Artículo 12.—De la información adicional. El denunciante además deberá brindar información complementaria respecto al posible monto en perjuicio de los fondos públicos, en caso de conocerlo; la indicación de probables testigos y el lugar o medio para localizarlos, así como la aportación o sugerencias de otras pruebas.

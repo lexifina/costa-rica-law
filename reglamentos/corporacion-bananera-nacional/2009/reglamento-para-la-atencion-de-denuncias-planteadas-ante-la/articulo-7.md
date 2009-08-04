@@ -1,0 +1,1 @@
+Artículo 7°—Del resguardo de la identidad del denunciante. Los papeles de trabajo, razón de archivo o comunicación a terceros generados por la Auditoría Interna, resultado de la denuncia que recibiere, no deben consignar la identidad del denunciante.

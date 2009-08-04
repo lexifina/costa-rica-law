@@ -1,0 +1,1 @@
+Artículo 25.—De los procedimientos de auditoría. La Auditoría Interna utilizará los procedimientos establecidos en el “Manual de normas para el ejercicio de la auditoría interna en el sector público” o aquellos que sean necesarios, cumpliendo con el ordenamiento jurídico.

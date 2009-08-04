@@ -1,0 +1,2 @@
+Artículo 9º—Del recibo de denuncia. La Auditoría Interna recibirá las denuncias en su oficina ubicada en las oficinas centrales de Corporación Bananera Nacional S. A., o mediante correspondencia presentada en cualquiera de las oficinas de la Corporación, la cual deberá ser dirigida directamente a la Auditoría Interna.
+Las denuncias recibidas por teléfono, fax, correo electrónico se asimilarán a las denuncias anónimas (véase artículo 13 del presente reglamento) mientras el denunciante no comparezca a refrendarlas en un plazo de diez días hábiles.

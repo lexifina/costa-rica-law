@@ -1,0 +1,1 @@
+Artículo 17—Del fundamento del acto de desestimación o archivo de denuncias. Cuando la Auditoría Interna desestime una denuncia deberá motivar y dejar la respectiva evidencia en los expedientes correspondientes sobre los motivos por los cuales se desestimó.
