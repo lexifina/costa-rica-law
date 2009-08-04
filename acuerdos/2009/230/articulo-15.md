@@ -1,0 +1,1 @@
+Artículo 15.—Se autoriza la implementación en el INCOPESCA de los registros necesarios para garantizar la existencia, operatividad y evaluación constante al Sistema de Seguimiento Satelital de las embarcaciones cubiertas por este acuerdo.

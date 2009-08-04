@@ -1,0 +1,1 @@
+Artículo 10º—Las embarcaciones de pesca que cuenten con equipo de Seguimiento Satelital, podrán continuar utilizando dichos equipos, siempre que se trate de un equipo compatible con el sistema que se defina producto de la coordinación del Estado y que sus datos sean enviados al Centro de Monitoreo que se establecerá para estos efectos.

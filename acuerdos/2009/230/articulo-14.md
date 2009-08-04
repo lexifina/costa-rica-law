@@ -1,0 +1,1 @@
+Artículo 14.—El INCOPESCA procurará que tras la implementación del sistema de seguimiento satelital, en conjunción con otros esfuerzos de naturaleza tecnológica, la información pública que se genere coadyuve a brindar a la flota pesquera nacional, información científica para mejorar el ejercicio de la actividad pesquera.
