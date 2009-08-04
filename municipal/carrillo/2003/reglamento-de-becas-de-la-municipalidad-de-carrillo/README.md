@@ -17,3 +17,4 @@ Reglamento de becas de la Municipalidad de Carrillo
 | 2 | 2004-10-19 | Reglamento municipal 42 (2004-10-19) |
 | 3 | 2008-01-10 | Reglamento municipal 1 (2008-01-10) |
 | 4 | 2008-02-26 | Reglamento municipal 9 (2008-02-26) |
+| 5 | 2009-08-04 | Reglamento municipal 30 (2009-08-04) |
