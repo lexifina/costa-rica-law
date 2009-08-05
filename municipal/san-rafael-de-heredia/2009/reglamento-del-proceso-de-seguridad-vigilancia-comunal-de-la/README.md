@@ -14,3 +14,4 @@ Reglamento del proceso de seguridad, vigilancia comunal de la Municipalidad de S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-27 | la propia norma |
+| 2 | 2009-08-05 | Reglamento municipal 270 (2009-08-05) |
