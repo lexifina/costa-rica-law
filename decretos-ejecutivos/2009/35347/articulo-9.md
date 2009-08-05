@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión se encargará de definir áreas críticas y las respectivas acciones de manejo, tendientes a garantizar que las actividades humanas no atenten contra el hábitat y la supervivencia de la especie, y por ende hacerlas de conocimiento público para su aplicación.

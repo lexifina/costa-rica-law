@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión, podrá promover iniciativas y buscar los recursos económicos y técnicos, que conlleven, previo aval del SINAC, a la elaboración y ejecución de proyectos específicos y facilitar la elaboración de contratos y convenios que hagan posible el desenvolvimiento de las actividades planteadas en los programas o proyectos específicos.

@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión podrá recomendar, previa justificación técnica, ante los Consejos Regionales de las respectivas Áreas de Conservación, la declaratoria de vedas parciales o totales de las especies relacionadas con la ecología del Jabirú.

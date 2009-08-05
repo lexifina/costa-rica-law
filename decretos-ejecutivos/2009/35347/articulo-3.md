@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión para el Rescate y Protección del Jabirú en Costa Rica estará adscrita al Sistema Nacional de Áreas de Conservación (SINAC), con el apoyo técnico, económico y político del Estado para ejercer las funciones que le competen.

@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión sesionará al menos cada tres meses o por convocatoria de su coordinador (a), en el lugar y hora que éste (a) determine. La Comisión, también podrá ser convocada por al menos tres de sus miembros en forma conjunta. Harán quórum para sesionar válidamente cuatro de sus miembros y los acuerdos o decisiones se tomarán por mayoría simple de votos presentes.
