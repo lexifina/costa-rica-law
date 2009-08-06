@@ -14,3 +14,4 @@ Comunicados judiciales de impedimentos de salida del país
 | --- | --- | --- |
 | 1 | 2009-06-02 | la propia norma |
 | 2 | 2009-07-27 | Acuerdo 22 (2009-07-27) |
+| 3 | 2009-08-06 | Circular 25 (2009-08-06) |
