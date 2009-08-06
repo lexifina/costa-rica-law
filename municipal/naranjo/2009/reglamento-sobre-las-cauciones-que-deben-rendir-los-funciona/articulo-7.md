@@ -1,0 +1,1 @@
+Artículo 7º—Momento para rendir la caución. La caución deberá de ser rendida, cuando así corresponda, una vez conocido por la persona su nombramiento en el puesto y antes de asumir el cargo deberá previamente haber rendido dicha caución y probarlo mediante prueba idónea para que sea incorporado en su respectivo expediente personal.
