@@ -1,0 +1,2 @@
+Artículo 2º—Rige a partir del 6 de agosto de 2009.
+Dado en la Presidencia de la República, a los seis días del mes de agosto del dos mil nueve.
