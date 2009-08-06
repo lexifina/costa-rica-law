@@ -1,1 +1,0 @@
-Transitorio I.—Dentro del término del mes siguiente a la fecha de entrada en vigencia de este reglamento, el Ministerio de Economía, Industria y Comercio, confeccionará y publicará un formulario único para recibir solicitudes de autorización para la ejecución de los contratos de venta de tiempos compartidos.

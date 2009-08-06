@@ -1,1 +1,0 @@
-Artículo 3.—Órgano competente. Corresponderá al Ministerio de Economía, Industria y Comercio (MEIC), por medio de su Unidad de Estudios Económicos, autorizar los contratos de tiempo compartido, para lo cual verificará el cumplimiento de los requisitos establecidos en el artículo siguiente y la solvencia económica de los responsables del contrato.

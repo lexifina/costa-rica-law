@@ -1,2 +1,0 @@
-Transitorio III.—Los contratos o planes autorizados con anterioridad a la vigencia del presente reglamento, tendrán plena validez y eficacia. Asimismo los contratos de ventas a plazos autorizados bajo la modalidad de tiempo compartido, deberán presentar la información de fiscalización definida en este reglamento. Para tales efectos, al Unidad de Estudios Económicos deberá realizar la prevención respectiva.
-Dado en la Presidencia de la República.—San José, a los doce días del mes de febrero del dos mil tres.

@@ -1,1 +1,0 @@
-Artículo 10.—Fiscalización. El Ministerio de Economía, Industria y Comercio fiscalizará la solvencia económica de las personas autorizadas, para lo cual estas deberán aportar en forma anual, dentro de los tres meses siguientes al vencimiento del período fiscal, los documentos indicados en los puntos 5 y 6 del artículo 4.

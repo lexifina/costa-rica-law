@@ -1,1 +1,0 @@
-Artículo 8º—Autorización. La autorización otorgada conforme al procedimiento anterior tendrá una vigencia de tres años, prorrogable por períodos iguales, previa gestión del interesado, para lo cual deberá cumplirse únicamente con los requisitos 5 y 6 del artículo 4º del presente reglamento, relativos a la solvencia económica de los responsables del plan.
