@@ -4,7 +4,8 @@ Reglamento se entenderá por:
 Artesano: La persona física o entidad de hecho o de derecho que adquiera productos terminados o insumos para producir, transformar oreparar bienes, mediante un proceso en el que la mano de obra resulta el factor predominante, dando por resultado un producto individualizado, en que quede impreso el sello personal y que no corresponda a la producción industrial mecanizada y en serie. El artesano se considerará como"consumidor" para los efectos de la Ley y este Reglamento.
 CNC: La Comisión Nacional del Consumidor.
 CPC: La Comisión para Promover la Competencia.
-AAC: Área de Apoyo al Consumidor.
+(*) DAC: (*)Dirección de Apoyo al Consumidor.
+(*) (Modificada su denominación por el artículo 2° del decreto ejecutivo N° 35548 del 06 de agosto de 2009).
 Ley: Salvo que del contexto de la norma se desprenda otra cosa, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472 de 20 de diciembre de 1994 y sus reformas.
 LGAP: La Ley General de la Administración Pública.
 MEIC: El Ministerio de Economía, Industria y Comercio.

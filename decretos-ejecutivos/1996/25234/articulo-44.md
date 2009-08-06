@@ -1,10 +1,5 @@
-ARTÍCULO 44.- Deberes de los comerciantes
-Además de las restantes obligaciones y prohibiciones contenidas en
-la Ley o en este reglamento, los comerciantes, productores y -en cuanto
-resulte aplicable- los proveedores de servicios, tendrán las siguientes:
-a) Respetar en su integridad las condiciones de la contratación, o
-reparar los daños y perjuicios en caso contrario, los cuales
-serán reclamados por la vía correspondiente.
+ARTÍCULO 44.- Deberes de los comerciantes. Además de las restantes obligaciones y prohibiciones contenidas en la Ley o en este reglamento, los comerciantes, productores y -en cuanto resulte aplicable- los proveedores de servicios, tendrán las siguientes:
+a) Respetar en su integridad las condiciones de la contratación, o reparar los daños y perjuicios en caso contrario, los cuales serán reclamados por la vía correspondiente.
 b) Todo bien o servicio que se venda o preste debe estar implícitamente garantizado como mínimo por treinta días hábiles. El bien o el servicio suministrado al consumidor tendrá una garantía implícita que se refiera a la naturaleza, características, condiciones, calidad y utilidad o finalidad previsible para el cual normalmente es adquirido.
 El comerciante o proveedor podría limitar esta obligación si es que informa previamente que vende el bien o se presta el servicio al consumidor en condiciones distintas a las que se derivan de la garantía implícita. En este supuesto, responderá en los términos ofrecidos expresamente, siempre y cuando dichos términos y condiciones hayan sido conocidas por el consumidor. Corresponde al comerciante o proveedor demostrar la limitación a la garantía implícita del bien o servicio ofrecido o vendido.
 En bienes muebles duraderos, tales como, equipos, aparatos, maquinaria, vehículos y herramientas o de servicios de reparación, montaje o reconstrucción de tales bienes, la garantía debe constar por escrito. Esta debe constar en la etiqueta, en documento separado o en la factura que se le debe entregar al consumidor en el momento de venderle el bien o de prestarle el servicio.
@@ -22,46 +17,17 @@ En los últimos dos casos el consumidor deberá restituir el bien que se le est�
 El comerciante o proveedor que ofrece un bien o servicio queda obligado jurídicamente no sólo a lo establecido en el contrato de garantía, sino también en la oferta, promoción o publicidad que realice de conformidad con el artículo 34 de la Ley de Promoción a la Competencia y Defensa Efectiva del Consumidor. La carga de la prueba referente a la entrega del documento de garantía, la idoneidad y conformidad del bien y servicio corresponde al comerciante o proveedor.
 En caso de incumplimiento total o parcial a lo indicado en este artículo se considerará infracción al inciso l) del artículo 31 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y se le imputará la sanción prevista en el inciso b) del artículo 54 de dicha Ley.
 (Así reformado por el artículo 1 del Decreto Ejecutivo N° 30267 de 15 de marzo del 2002)
-c) Abstenerse de acaparar, especular, condicionar la venta y
-discriminar el consumo.
-d) Resolver el contrato bajo su responsabilidad, cuando tenga la
-obligación de reparar el bien y no la satisfaga en un tiempo
-razonable, no mayor de treinta días a partir del recibo del
-artículo.
-e) Fijar plazos prudenciales para formular reclamos, de acuerdo
-con la naturaleza del bien o servicio. En todo caso el plazo no
-podrá ser inferior a diez días hábiles.
-f) Establecer, en las ventas a plazos, garantías de pago
-proporcionales a las condiciones de la transacción.
-g) Cumplir con lo dispuesto en los artículos 35, 36, 37, 38, 39,
-40 y 41 de la Ley.
-h) Cumplir con lo dispuesto en las normas de calidad y las
-reglamentaciones técnicas de acatamiento obligatorio.
-i) Mantener en buenas condiciones de funcionamiento, debidamente
-calibradas y a la vista del consumidor, las pesas, las medidas,
-las registradoras, las básculas y los demás instrumentos de
-medición que utilicen en sus negocios, así como efectuar de
-inmediato, a requerimiento de los funcionarios del MEIC, la
-reposición o reparaciones de aquellos instrumentos que se
-encuentren en mal estado.
-j) Extender la factura o el comprobante de compra, donde conste,
-en forma clara, la identificación de los bienes o servicios,
-así como el precio efectivamente cobrado. Igualmente se deberá
-indicar si se trata de bienes usados, reconstruidos o cualquier
-otra condición similar. En los casos de ventas masivas, se
-faculta al MEIC para autorizar el establecimiento de otros
-sistemas mediante los cuales se compruebe la compra.
-Las facturas de las ventas a mayoristas deben consignar el
-nombre del vendedor y del comprador, sus respectivos números de
-cédula, de persona física o jurídica, así como la
-identificación de los productos o los servicios transados y la
-unidad de medida utilizada en la transacción. En todos los
-casos la factura debe indicar la dirección exacta y el teléfono
-del vendedor.
-k) Apegarse a la equidad, los buenos usos mercantiles y a la ley,
-en su trato con los consumidores.
-El MEIC velará por el cumplimiento de estos deberes. La transgresión
-de cualquiera de las obligaciones enumeradas en este artículo o el
-anterior, faculta al interesado o a las dependencias del MEIC para acudir
-a la CNC o a los órganos jurisdiccionales competentes, para hacer valer
-sus derechos, en los términos que señala el artículo 43 de la Ley.
+c) Abstenerse de acaparar, especular, condicionar la venta y discriminar el consumo.
+d) Resolver el contrato bajo su responsabilidad, cuando tenga la obligación de reparar el bien y no la satisfaga en un tiempo razonable, no mayor de treinta días a partir del recibo del artículo.
+e) Fijar plazos prudenciales para formular reclamos, de acuerdo con la naturaleza del bien o servicio. En todo caso el plazo no podrá ser inferior a diez días hábiles.
+f) Comprobar solvencia económica y rendir garantías proporcionales ante el Ministerio de Economía Industria y Comercio para los contratos de ventas a plazo de bienes, de prestación futura de servicios y los proyectos futuros de desarrollo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35548 del 06 de agosto del 2009).
+g) Cumplir con lo dispuesto en los artículos 35, 36, 37, 38, 39, 40 y 41 de la Ley.
+h) Cumplir con lo dispuesto en las normas de calidad y las reglamentaciones técnicas de acatamiento obligatorio.
+i) Mantener en buenas condiciones de funcionamiento, debidamente calibradas y a la vista del consumidor, las pesas, las medidas, las registradoras, las básculas y los demás instrumentos de medición que utilicen en sus negocios, así como efectuar de inmediato, a requerimiento de los funcionarios del MEIC, la reposición o reparaciones de aquellos instrumentos que se encuentren en mal estado.
+j) Extender la factura o el comprobante de compra, donde conste, en forma clara, la identificación de los bienes o servicios, así como el precio efectivamente cobrado. Igualmente se deberá indicar si se trata de bienes usados, reconstruidos o cualquier otra condición similar. En los casos de ventas masivas, se faculta al MEIC para autorizar el establecimiento de otros sistemas mediante los cuales se compruebe la compra.
+Las facturas de las ventas a mayoristas deben consignar el nombre del vendedor y del comprador, sus respectivos números de cédula, de persona física o jurídica, así como la identificación de los productos o los servicios transados y la unidad de medida utilizada en la transacción. En todos los casos la factura debe indicar la dirección exacta y el teléfono del vendedor.
+k) Apegarse a la equidad, los buenos usos mercantiles y a la ley, en su trato con los consumidores.
+El MEIC velará por el cumplimiento de estos deberes. La transgresión de cualquiera de las obligaciones enumeradas en este artículo o el anterior, faculta al interesado o a las dependencias del MEIC para acudir a la CNC o a los órganos jurisdiccionales competentes, para hacer valer sus derechos, en los términos que señala el artículo 43 de la Ley.
+L) Garantizar la proporción entre el pago que realiza el consumidor y las condiciones del contrato, de acuerdo con la naturaleza del bien o servicio.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 35548 del 06 de agosto 2009).

@@ -1,9 +1,2 @@
-ARTÍCULO 48.- Plazo y modo de ejercicio del derecho de retracto
-Dentro de los ocho días naturales siguientes al perfeccionamiento,
-el comprador podrá rescindir el contrato sin responsabilidad, bien
-manifestándolo al vendedor por escrito enviado a la dirección señalada, o
-presentándose personalmente en ese lugar (con el producto adquirido, si
-ya lo tuviera en su poder). Se tendrá por bien ejercido el derecho si
-demuestra que procedió en tiempo y forma, incluso si la manifestación no
-llegare al vendedor por haber señalado éste en la factura una dirección
-incierta, errónea o inexistente.
+Artículo 48.—Plazo y modo de ejercicio del derecho de retracto. Dentro de los ocho días hábiles siguientes al perfeccionamiento, el comprador podrá rescindir el contrato sin responsabilidad. Para éstos efectos deberá enviar un escrito al domicilio del vendedor o a la dirección, número de fax o correo electrónico establecido en la papelería o el contrato, dejando constancia del envío o entrega; salvo que el vendedor se niegue o imposibilite la obtención de tal constancia en cuyo caso el consumidor podrá probar la diligencia por cualquiera de los demás medios probatorios previstos en el numeral 298 de la Ley General de la Administración Pública. También podrá presentarse personalmente en ese lugar (con el producto adquirido, si ya lo tuviera en su poder). Se tendrá por bien ejercido el derecho si demuestra que procedió en tiempo y forma, incluso si la manifestación no llegare al vendedor por haber señalado éste, en la factura, una dirección incierta, errónea o inexistente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35548 del 06 de agosto del 2009)

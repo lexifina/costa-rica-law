@@ -54,6 +54,10 @@ articulo-53.md
 articulo-54.md
 articulo-55.md
 articulo-55-bis.md
+articulo-55-ter.md
+articulo-55-quater.md
+articulo-55-quinquies.md
+articulo-55-sexies.md
 articulo-56.md
 articulo-57.md
 articulo-58.md
