@@ -31,4 +31,5 @@ Por el momento, debido al tamaño del texto de la versión actualizada de la Cua
 (Modificado por el artículo 1° del decreto ejecutivo N° 34955 del 25 de noviembre de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35000 del 11 de diciembre de 2008)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35127 del 9 de marzo de 2009)
-(Modificado por el artículo 1° del decreto ejecutivo N° 35401 del 7 de agosto de 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35401 del 13 de julio de 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35402 del 13 de julio de 2009)
