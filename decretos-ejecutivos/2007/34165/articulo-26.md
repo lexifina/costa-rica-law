@@ -1,7 +1,7 @@
 CAPÍTULO VII
 Destrucción y donación de mercancías
 ingresadas al amparo del Régimen
-Artículo 26.—Tratamiento de mermas, residuos, desechos, envases, empaques y embalajes. En cualquier momento los beneficiarios del Régimen podrán deshacerse libremente de los envases, empaques y embalajes que han sido utilizados en el transporte de las materias primas, mercancías, maquinaria y equipo adquiridos al amparo del Régimen, ya sea reexportándolos, destruyéndolos, donándolos, reciclándolos o nacionalizándolos. Para ello el beneficiario deberá dejar constancia de dichas operaciones en sus registros; de manera tal que la autoridad aduanera pueda verificar en cualquier momento el destino de tales envases, empaques y embalajes.
-Asimismo, los beneficiarios del Régimen en cualquier momento podrán nacionalizar, reexportar, destruir, donar, reciclar o deshacerse libremente de los residuos y desechos que resulten de su proceso productivo.
-Para estos efectos únicamente deberán presentar a PROCOMER con el informe anual de operaciones, un detalle que contenga la descripción del bien, el porcentaje y el destino que se le otorgó al mismo, a fin de que PROCOMER pueda verificar documentalmente, la información de acuerdo con los porcentajes de mermas, residuos o desechos aprobados.
-En ejercicio de sus atribuciones, la Dirección General de Aduanas podrá realizar fiscalizaciones periódicas, para lo cual podrá solicitar los informes presentados a PROCOMER por las empresas beneficiarias.
+Artículo 26.—Envases, empaques y embalajes. En cualquier momento los beneficiarios del Régimen podrán deshacerse libremente de los envases, empaques y embalajes que han sido utilizados en el transporte de las materias primas, mercancías, maquinaria y equipo adquiridos al amparo del Régimen.
+Cuando dichos bienes sean objeto de nacionalización o reexportación, deberán efectuar las declaraciones aduaneras que correspondan.
+Cuando dichos bienes sean objeto de donación, destrucción o reciclaje, bastará que el beneficiario deje constancia de dichas operaciones en sus registros, de manera tal que la autoridad aduanera pueda verificar en cualquier momento el destino de los mismos, sin que se requiera la presencia de la autoridad aduanera al momento de la donación, destrucción o reciclaje.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35423 del 07 de agosto de 2009)

@@ -1,0 +1,4 @@
+Artículo 26 bis.- Mermas, residuos y desechos. Los beneficiarios del Régimen en cualquier momento podrán nacionalizar, reexportar, destruir, donar, reciclar o deshacerse libremente de los residuos y desechos que resulten de su proceso productivo.
+Para estos efectos únicamente deberán presentar a PROCOMER con el informe anual de operaciones, un detalle que contenga la descripción del bien, el porcentaje y el destino que se le otorgó al mismo, a fin de que PROCOMER pueda verificar documentalmente, la información de acuerdo con los porcentajes de mermas, residuos o desechos aprobados.
+En ejercicio de sus atribuciones, la Dirección General de Aduanas podrá realizar fiscalizaciones periódicas, para lo cual podrá solicitar los informes presentados a PROCOMER por las empresas beneficiarias.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 35423 del 7 de agosto de 2009)
