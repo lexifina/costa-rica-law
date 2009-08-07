@@ -13,17 +13,17 @@ Considerando:
 Decretan:
 Artículo 1º—Se establecen y aprueban las siguientes tarifas para la prestación del servicio público de trasbordo de vehículos en la ruta de cabotaje, modalidad ferry, entre Puntarenas y Playa Naranjo en el Golfo de Nicoya:
 Rubro Tarifa Tarifa
-tarifario actual (¢) aprobada (¢)
-Bicicletas - 1.000
-Motocicletas 1.300 1.600
-Triciclos y cuadraciclos - 3.100
-Vehículo liviano 4.400 5.200
-Vehículo liviano carga 5.500 7.700
-Microbús - 8.300
-Buseta - 9.300
-Bus - 10.300
-Vehículo carga 2 ejes 8.700 10.300
-Vehículo carga 3 ejes 9.900 13.000
-Vehículo carga 4 ejes 11.900 20.700
-Vehículo carga 5 ejes 14.800 20.700”
-(Así reformado por el artículo 2° del Decreto Ejecutivo N° 34161 de 4 de diciembre de 2007).
+Tarifario Actual (¢) Aprobada (¢)
+Bicicletas 1.000 1.150
+Motocicletas 1.600 1.850
+Triciclos y cuadraciclos 3.100 3.600
+Vehículo liviano 5.200 6.050
+Vehículo liviano carga 7.700 8.950
+Microbús 8.300 9.650
+Buseta 9.300 10.800
+Bus 10.300 11.950
+Vehículo carga 2 ejes 10.300 11.950
+Vehículo carga 3 ejes 13.000 15.100
+Vehículo carga 4 ejes 20.700 24.050
+Vehículo carga 5 ejes 20.700 24.050
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35455 de 7 de agosto de 2009)
