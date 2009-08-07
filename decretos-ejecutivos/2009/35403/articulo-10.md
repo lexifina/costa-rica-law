@@ -1,0 +1,1 @@
+Artículo 10.—Los Estados Parte, a través de las respectivas instituciones involucradas, deberán evacuar las consultas que le fueren presentadas por la SIECA y los órganos o instituciones de integración económica relacionadas con la información suministrada para el AIC, en un plazo de treinta (30) días hábiles.

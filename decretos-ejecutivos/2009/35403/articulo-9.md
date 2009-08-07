@@ -1,0 +1,1 @@
+Artículo 9º— La SIECA estará facultada para solicitar a las instituciones involucradas de los Estados Parte, toda la información que resulte necesaria para el cumplimiento de los objetivos y funciones. Las instituciones o dependencias deberán proporcionar, en un plazo no mayor de treinta (30) días, la información y documentos que les fueren solicitados y estén disponibles.
