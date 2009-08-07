@@ -14,3 +14,4 @@ Reglamento a la Ley de Régimen de Zonas Francas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-19 | la propia norma |
+| 2 | 2009-08-07 | Decreto Ejecutivo 35422 (2009-08-07) |

@@ -1,2 +1,3 @@
-Artículo 31.- Servicios de guardería entre empresas beneficiarias
-Las empresas administradoras que cuenten con un centro infantil cuya capacidad haga posible que dichos centros puedan brindar el servicio de guardería a otras empresas beneficiarias del Régimen, ubicadas fuera de su parque, podrán prestar el citado servicio.
+Artículo 31.—Servicios de guardería y área disponible de parqueo por parte de empresas administradoras. Las empresas administradoras que cuenten con un centro infantil cuya capacidad haga posible que dichos centros puedan brindar el servicio de guardería a otros beneficiarios, ubicados fuera de su parque, podrán prestar el citado servicio.
+Asimismo, las empresas administradoras que tengan área disponible para parqueo de vehículos podrán arrendar espacios a los beneficiarios, ubicados dentro del parque o fuera de él; lo anterior sujeto a que cumplan con las regulaciones sobre el control e ingreso y salida de vehículos y personas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35422 del 7 de agosto de 2009)
