@@ -37,3 +37,4 @@ Reglamento a la Ley General de Aduanas
 | 22 | 2008-04-04 | Decreto Ejecutivo 34475 (2008-04-04) |
 | 23 | 2008-05-14 | Decreto Ejecutivo 34564 (2008-05-14) |
 | 24 | 2009-05-21 | Decreto Ejecutivo 35334 (2009-05-21) |
+| 25 | 2009-08-07 | Decreto Ejecutivo 35424 (2009-08-07) |
