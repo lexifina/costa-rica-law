@@ -15,3 +15,4 @@ Reglamento de Inversiones Financieras del Conglomerado del Banco Popular y de De
 | --- | --- | --- |
 | 1 | 2006-08-22 | la propia norma |
 | 2 | 2008-09-22 | Reglamento 4609 (2008-09-22) |
+| 3 | 2009-08-10 | Reglamento 4689 (2009-08-10) |
