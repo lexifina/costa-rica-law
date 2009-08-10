@@ -1,0 +1,1 @@
+Artículo 11.—El Encargado de la Unidad de Capacitación de la Sección de Recursos Humanos, fungirá como Secretario Técnico de la Comisión y le corresponderá preparar las convocatorias cuando sea necesario, llevar el libro de actas y tramitar los acuerdos tomados por la Comisión.

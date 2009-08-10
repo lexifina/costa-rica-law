@@ -1,0 +1,7 @@
+CAPÍTULO V
+De las sanciones
+Artículo 26.—Los funcionarios que incumplan los compromisos derivados de las becas o facilidades obtenidas para participar en actividades de capacitación, o hagan abandono sin causa justificada de la misma, se harán acreedores de las siguientes sanciones:
+a) El incumplimiento de las obligaciones contenidas en el artículo 25 del presente Reglamento acarreará la suspensión del servidor de toda facilidad de capacitación o beneficio de beca, hasta tanto haya cumplido con el compromiso adquirido; sin perjuicio de las sanciones disciplinarias y responsabilidades pecuniarias que puedan corresponder.
+b) El abandono de las facilidades o becas para estudios en el país, sin un motivo razonable que lo justifique y acredite, acarreará de seis meses a un año de suspensión para participar en todo tipo de actividades de capacitación, y la suspensión de dos años del beneficio para cursar carreras a nivel profesional.
+c) El abandono de las facilidades o becas de estudios en el exterior, acarreará tres años de suspensión en toda actividad de capacitación u otorgamiento de otra facilidad.
+c) El incumplimiento en el aprovechamiento de actividades de capacitación financiadas por la Junta Administrativa, así como lo señalado en los incisos b) y c) del presente artículo, acarreará el deber del servidor de devolver al Estado las sumas de dinero pagadas por concepto de la beca.

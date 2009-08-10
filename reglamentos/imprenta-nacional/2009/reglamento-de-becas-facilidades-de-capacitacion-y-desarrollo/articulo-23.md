@@ -1,0 +1,1 @@
+Artículo 23.—Toda solicitud de beca o actividad de capacitación para realizar estudios, pasantías, seminarios, congresos y otros, fuera de territorio nacional, le corresponderá exclusivamente a la Junta Administrativa, conceder y aprobar, de conformidad él o los participantes que podrán asistir a dichos eventos.

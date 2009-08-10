@@ -1,0 +1,1 @@
+Artículo 6º—La Sección de Recursos Humanos, gestionará los recursos presupuestarios destinados para las becas y para realizar actividades de capacitación, los cuales estarán sujetos a contenido presupuestario, contando para ello con la información que suministre la Unidad de Capacitación.

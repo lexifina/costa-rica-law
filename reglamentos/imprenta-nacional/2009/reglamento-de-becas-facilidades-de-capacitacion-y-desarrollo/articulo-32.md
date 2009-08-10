@@ -1,0 +1,1 @@
+Artículo 32.—El presente Reglamento deroga el Reglamento de Becas y Actividades de Capacitación, aprobado por la Junta Administrativa de la Imprenta Nacional por Acuerdo Nº 388 de sesión ordinaria Nº 1017 del 22 de julio de 1997, publicado en La Gaceta del 12 de agosto de 1997, así como toda aquella directriz o disposición interna que se le oponga.
