@@ -1,1 +1,0 @@
-Artículo 9°- Cuando la Gerencia General resuelva suspender el pago de compensación por desarraigo por cuanto dejaron de existir los motivos que originaron su concesión, le servidor que lo disfrutó no podrá alegar derechos adquiridos, ya que el pago se acuerda con motivo de circunstancias particulares y excepcionales que puedan variar.

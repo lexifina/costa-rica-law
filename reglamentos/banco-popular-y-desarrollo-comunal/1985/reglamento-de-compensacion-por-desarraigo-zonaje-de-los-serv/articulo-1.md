@@ -1,4 +1,0 @@
-BANCO POPULAR Y DE DESARROLLO COMUNAL
-REGLAMENTO DECOMPENSACION POR DESARRAIGO (ZONAJE) A LOS SERVIDODRES DEL BANCO POPULAR Y DE DESARROLLO COMUNAL
-La Junta Interventora en la sesión No 1829 (JI-318), celebrada el 23 de octubre de 1985, acordó: Aprobar el Reglamento de Compensación por Desarraigo (zonaje), a los servidores del Banco Popular y de Desarrollo Comunal, de conformidad con el siguiente texto:
-Artículo 1º- Para los efectos de este Reglamento se entenderá por compensación por desarraigo el pago adicional que el Banco Popular y de Desarrollo Comunal, reconocerá a sus servidores que tengan que prestar sus servicios permanentemente en lugar distinto al lugar de su residencia, o que eventualmente permanezcan fuera de la circunscripción territorial de éste por más de un mes, en forma continua, siempre que la zona en donde realicen su trabajo justifique tal compensación.

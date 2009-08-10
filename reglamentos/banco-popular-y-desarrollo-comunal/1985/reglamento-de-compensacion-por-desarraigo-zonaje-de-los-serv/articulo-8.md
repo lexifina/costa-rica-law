@@ -1,1 +1,0 @@
-Artículo 8°- La compensación por desarraigo cesará de pagarse, cuando el servidor deje de realizar labores en el lugar o circunscripción territorial para el que sele había nombrado o reconocido el disfrute de ese pago o cuando se modifiquen las circunstancias que motivaron ese pago adicional.

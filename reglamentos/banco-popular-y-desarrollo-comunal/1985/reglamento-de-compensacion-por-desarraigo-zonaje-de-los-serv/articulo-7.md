@@ -1,1 +1,0 @@
-Artículo 7°- El pago de compensación por desarraigo se hará a partir de la fecha en que la Gerencia General disponga el traslado del empleado o funcionario y mientras se mantengan las condiciones que motivaron la aplicación del desarraigo.

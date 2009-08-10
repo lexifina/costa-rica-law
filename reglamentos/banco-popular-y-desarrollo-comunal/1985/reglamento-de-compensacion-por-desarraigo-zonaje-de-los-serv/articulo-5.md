@@ -1,1 +1,0 @@
-Artículo 5°- Si el servidor a quien se le ha reconocido el beneficio de pago de compensación por desarraigo se le traslada de su zona de operación habitual a otra, en la cual el mismo beneficio sea también procedente, en forma automática se cambiará el monto correspondiente al de la nueva zona asignada.

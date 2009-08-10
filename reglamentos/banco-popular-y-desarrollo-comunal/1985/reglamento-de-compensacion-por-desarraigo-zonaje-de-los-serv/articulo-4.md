@@ -1,1 +1,0 @@
-Artículo 4°- Cuando a un servidor que no devengue pago por compensación por desarraigo se le trasladare a prestar servicios a un lugar o circunscripción territorial diferente a su lugar de residencia, por un lapso que no exceda de treinta días, se le pagará la compensación correspondiente a la "Tabla de Viáticos" vigente.

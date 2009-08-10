@@ -1,1 +1,0 @@
-Artículo 11°- El funcionario no perderá el derecho a devengar la suma fijada por concepto de compensación por desarraigo, si tuviere que regresar a su lugar de residencia durante un período que no exceda de un mes, por motivo de incapacidad, licencia con goce de salario o para cumplir funciones propias de su cargo, previamente autorizado por la Gerencia General.

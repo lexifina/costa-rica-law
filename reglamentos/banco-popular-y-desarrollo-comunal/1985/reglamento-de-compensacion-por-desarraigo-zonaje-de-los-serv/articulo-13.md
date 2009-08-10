@@ -1,1 +1,0 @@
-Artículo 13°- La Junta Directiva Nacional revisará periódicamente los montos que se pagan por concepto de compensación por desarraigo con el propósito de adecuarlas a nuevas exigencias económicas que se produzcan.

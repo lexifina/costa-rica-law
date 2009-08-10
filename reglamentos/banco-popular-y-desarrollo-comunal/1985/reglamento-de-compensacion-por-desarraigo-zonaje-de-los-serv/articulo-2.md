@@ -1,2 +1,0 @@
-Artículo 2º- Tendrá derecho a la compensación por desarraigo, el servidor que ocupe un puesto cuya naturaleza dificulte el reclutamiento en el lugar donde se deba prestar el servicio y por ese motivo debe ser trasladado; o cuando por necesidades internas así lo disponga la Gerencia General, y que como consecuencia del nombramiento, debe trasladarse a residir en el lugar donde prestará sus servicios.
-Este derecho será de carácter excepcional y deberán investigarse ampliamente las dificultades de reclutamiento en la zona.

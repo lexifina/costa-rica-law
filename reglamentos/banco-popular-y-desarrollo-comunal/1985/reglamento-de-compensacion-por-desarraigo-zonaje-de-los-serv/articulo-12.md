@@ -1,1 +1,0 @@
-Artículo 12°- Los gastos de viaje y transporte se regularán en forma independiente del pago de compensación por desarraigo, de acuerdo con lo dispuesto por el Reglamento dictado por la Contraloría General de la República de fecha 8 de agosto de 1985.
