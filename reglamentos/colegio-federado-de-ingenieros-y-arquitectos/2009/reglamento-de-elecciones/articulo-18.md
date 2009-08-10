@@ -1,0 +1,1 @@
+Artículo 18.—La Administración del Colegio de Arquitectos recibirá y sellará las plicas cerradas que contengan las candidaturas, apuntando el día y hora de presentación, con copia para los interesados. Las papeletas deben ser presentadas dentro del horario de atención al público que establezca el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.

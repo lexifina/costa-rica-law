@@ -1,0 +1,2 @@
+Artículo 32.—El empleo y la orientación de la propaganda es responsabilidad de los candidatos que integren la papeleta. La propaganda debe ser orientada solo a exaltar los méritos del candidato o candidatos y a la exposición de programas e ideas que se propongan desarrollar.
+El Tribunal de Elecciones tendrá facultades para regular la propaganda. Sus disposiciones serán de carácter obligatorio y su incumplimiento se considerará falta grave.

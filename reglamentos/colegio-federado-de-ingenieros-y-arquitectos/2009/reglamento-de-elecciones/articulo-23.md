@@ -1,0 +1,1 @@
+Artículo 23.—Se confeccionarán copias del padrón para el Tribunal de Elecciones. Una vez aprobada la inscripción de candidaturas se pondrá a disposición de sus representantes o delegados, debidamente identificados, el padrón electoral que se encontrará disponible en las oficinas del Colegio de Arquitectos de Costa Rica.

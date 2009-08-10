@@ -1,0 +1,1 @@
+Artículo 16.—Las inscripciones por papeletas se presentarán, junto con un programa de trabajo, tanto físico como en forma digital, con el respaldo de, al menos, cincuenta firmas de arquitectos y arquitectas colegiados que estén habilitados para el ejercicio de su profesión.

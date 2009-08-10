@@ -1,0 +1,1 @@
+Artículo 58.—A falta de disposición expresa, se resolverá con forme a los principios generales del derecho, las reglas de la sana crítica y supletoriamente las normas del Reglamento de Elecciones del CFIA y Código Electoral que resulten aplicables.

@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De la votación
+Artículo 35.—El Tribunal de Elecciones ordenará confeccionar las papeletas que se utilizarán para la votación. Las papeletas deben ser impresas con los nombres y cargos de los candidatos, nombre de la agrupación, color y colores autorizados, y tendrán además los elementos de seguridad que disponga el Tribunal de Elecciones. Los votos para delegados ante la Asamblea de Representantes del Colegio Federado de Ingenieros y de Arquitectos, dispondrán de diez líneas en las que se deben escribir diez nombres, por lo que el máximo de nombres será, en todo caso, de diez, aunque se podrá votar por menos candidatos o dejar algunos espacios en blanco. Si se escriben más de diez, el Tribunal tomará como válidos los primeros diez.

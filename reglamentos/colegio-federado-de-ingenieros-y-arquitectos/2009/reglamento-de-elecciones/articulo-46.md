@@ -1,0 +1,1 @@
+Artículo 46.—El arquitecto que por impedimento físico no pueda emitir su voto en la forma que se dispone el artículo anterior, podrá hacerlo públicamente ante el Presidente de Mesa y este realizará el voto, siguiendo la voluntad del elector.

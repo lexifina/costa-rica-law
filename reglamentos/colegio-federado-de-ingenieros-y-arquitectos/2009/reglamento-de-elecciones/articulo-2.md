@@ -1,0 +1,1 @@
+Artículo 2º—El Tribunal de Elecciones gozará de autonomía en el desempeño de sus funciones y estará integrado por tres miembros titulares y dos suplentes que serán nombrados por la Junta Directiva del Colegio de Arquitectos en el mes de julio de cada año. Durarán en sus cargos un año y podrán ser reelectos de manera indefinida, previa aceptación de cada uno de los miembros.

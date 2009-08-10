@@ -1,0 +1,2 @@
+Artículo 24.—La inclusión o exclusión de agremiados en el padrón la dispondrá el Tribunal de Elecciones, con la información que se le suministre oportunamente por la Secretaría del Colegio.
+Los arquitectos que se incorporen al Colegio en los días previos a la elección y que por este motivo no figuren en el padrón, tendrán derecho a votar, presentando el correspondiente carné o certificación de su incorporación.

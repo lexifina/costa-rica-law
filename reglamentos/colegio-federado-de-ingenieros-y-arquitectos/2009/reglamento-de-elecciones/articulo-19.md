@@ -1,0 +1,1 @@
+Artículo 19.—Una vez recibida la solicitud de inscripción, el Tribunal procederá a abrir las plicas y a emitir la aceptación o rechazo de las candidaturas, de conformidad con la normativa que rija la materia.

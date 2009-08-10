@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del padrón electoral
+Artículo 22.—Será responsabilidad del Tribunal de Elecciones confeccionar el padrón electoral conjuntamente con la Administración del Colegio, con las listas de los miembros del Colegio que se encuentren en ejercicio, para lo cual la Administración deberá suministrar al Tribunal de Elecciones la lista oficial correspondiente emanada por la dependencia del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica que corresponda, con indicación de quiénes están suspendidos. Quienes se pongan a derecho con sus obligaciones después de la confección del padrón, al momento de votar deberán presentar los comprobantes respectivos.

@@ -1,0 +1,1 @@
+Artículo 42.—Para garantizar el secreto del voto, se acondicionará un sitio de forma tal que se impida observar la decisión del elector. Las votaciones se realizarán en los lugares que determine el Tribunal, quien dispondrá las medidas de control que considere necesarias y oportunas.

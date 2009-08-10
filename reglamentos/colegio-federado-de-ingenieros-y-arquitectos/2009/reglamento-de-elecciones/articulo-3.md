@@ -1,0 +1,2 @@
+Artículo 3º—Los miembros que integren el Tribunal de Elecciones deberán encontrarse habilitados para el ejercicio de la arquitectura y encontrarse al día en el pago de sus obligaciones con el Colegio. No podrá integrar el Tribunal de Elecciones ningún miembro de la Junta Directiva del Colegio o quien ostente funciones administrativas en el Colegio de Arquitectos o cualquier cargo de elección.
+(Corregido mediante Fe de Erratas, y publicada en La Gaceta N° 197 del 9 de octubre de 2009)
