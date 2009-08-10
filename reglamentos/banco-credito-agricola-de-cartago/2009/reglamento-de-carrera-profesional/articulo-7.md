@@ -1,0 +1,5 @@
+CAPÍTULO III
+De los Organismos Ejecutores
+Artículo 7º—De la Comisión de Carrera Profesional. Habrá una Comisión de Carrera Profesional, integrada por un representante de la Oficina de Capacitación y Desarrollo y un representante de la Oficina de Remuneración, nombrados por la Dirección de Recursos Humanos, así como dos representantes de los colaboradores nombrados por el Sindicato. Todos deben contar con un miembro suplente. Los representantes de esta Comisión tendrán como mínimo, el grado de bachiller universitario.
+El nombramiento será por un plazo de 2 años y podrán ser reelegidos acorde a la valoración de su labor. La Comisión será presidida por uno de los colaboradores nombrados por la Dirección de Recursos Humanos. Para que la misma sesione válidamente, se hace necesaria la presencia de al menos tres de sus miembros y se reunirá con la periodicidad que la misma defina.
+Los asuntos tratados serán resueltos por simple mayoría. De cada sesión se levantará una minuta con los asuntos resueltos, la cual deberán firmar todos los miembros presentes en la reunión.

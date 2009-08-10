@@ -1,0 +1,16 @@
+Artículo 5º—Definiciones
+- Colaborador: Se refiere a los funcionarios o empleados del Banco que a la entrada en vigencia de la V Reforma de la Convención Colectiva, ostentaban el reconocimiento del incentivo por carrera profesional.
+- Personal profesional: Colaborador que posee al menos el grado de bachillerato universitario y ocupe un cargo que exija este requisito, de acuerdo con el Manual Descriptivo de Puestos del Banco.
+- Grado académico: Nivel profesional dentro de la escala creada por las Instituciones de Educación Superior, para indicar la profundidad y amplitud de conocimientos y habilidades por las autoridades superiores de la entidad educativa correspondiente, según lo establecido por el Convenio del Consejo Nacional de Rectores o debidamente reconocido en el país, por los organismos oficiales correspondientes.
+- Experiencia profesional: Tiempo que el profesional, con posterioridad a la obtención del grado académico, haya laborado con jornada completa en la Institución, en un puesto que exija como requisito un grado académico.
+- Cursos de capacitación: Asistencia a actividades que tienen como objeto el estudio de algún aspecto de una materia o disciplina relacionada con su preparación académica o el cargo que desempeñe en el Banco. Estos cursos pueden ser de aprovechamiento o participación.
+- Curso de aprovechamiento: Cursos de capacitación, en los cuales existe evaluación del aprendizaje.
+- Curso de participación: Cursos de capacitación en los cuales se considera solamente la asistencia.
+- Experiencia en organismos internacionales: Tiempo laborado, con posterioridad a la obtención del grado académico, en un organismo internacional, realizando labores afines a su especialidad.
+- Dominio del idioma: Conocimiento y práctica, tanto escrita como oral, de una lengua diferente al español (inglés, mandarín, francés, italiano u otra).
+-Trabajos administrativos: Elaboración de trabajos que en su ejecución, demuestren un mejoramiento sustancial de los servicios que presta el Banco o que conduzcan a una significativa racionalidad de los recursos para brindar esos servicios. Deben ser desarrollados por colaboradores en temas que no tengan ninguna relación con el trabajo cotidiano que desempeñan, además de que el mismo debe ser desarrollado en horas fuera de la jornada laboral.
+-Postgrados y especialidades adicionales: Nivel académico que mejore o complemente la formación profesional en las funciones del puesto que realiza el colaborador.
+- Instructor: Colaborador que enseña una técnica o una actividad bancaria.
+- Publicaciones: Obras escritas que trasciendan a la sociedad.
+- Experiencia docente: Tiempo laborado en la enseñanza educativa, en instituciones universitarias y parauniversitarias.
+-Especialidad: Estudios adicionales a los grados académicos, sobre un área específica de la profesión, cuyo título es otorgado por una entidad de educación superior o reconocido por los organismos oficiales del país en esta materia.

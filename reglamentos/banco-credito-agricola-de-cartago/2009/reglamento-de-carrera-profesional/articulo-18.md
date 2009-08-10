@@ -1,0 +1,1 @@
+Artículo 18.—Plazo de resolución de la Dirección de Recursos Humanos. La Dirección de Recursos Humanos resolverá en un plazo de 10 días naturales, los asuntos que le presente la Comisión de Carrera Profesional.

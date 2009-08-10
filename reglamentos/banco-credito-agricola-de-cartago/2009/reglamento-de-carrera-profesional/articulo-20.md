@@ -1,0 +1,4 @@
+Artículo 20.—Valor del punto. El monto del incentivo derivado de la aplicación de los factores para la carrera profesional, se establecerá mediante el valor de cada punto. El valor de éste se establece en 679 colones mensuales y será revisado anualmente en el primer mes de cada año, tomando en consideración el costo de vida, la política salarial y la situación financiera del Banco.
+La Dirección de Recursos Humanos, en coordinación con la Dirección de Finanzas, someterán a conocimiento de la Junta Directiva para su resolución, cuando proceda, la propuesta de ajuste del valor del punto.
+Aprobado por la Junta Directiva General en Sesión Nº 8253/09, artículo 14, celebrada el 14 de julio del 2009 y deroga el reglamento aprobado en sesión 6411/90, artículo 18, del 31 mayo del 1990 y sus modificaciones. El reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+San José, 30 de julio del 2009.
