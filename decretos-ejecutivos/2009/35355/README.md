@@ -14,3 +14,4 @@ Reglamento de Evaluación de los Aprendizajes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-14 | la propia norma |
+| 2 | 2009-08-10 | Decreto Ejecutivo 35480 (2009-08-10) |

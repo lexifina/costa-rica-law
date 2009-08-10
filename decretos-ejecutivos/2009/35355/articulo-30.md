@@ -1,4 +1,4 @@
-Artículo 30.—Del valor porcentual de cada uno de los componentes de la calificación. La calificación de los aprendizajes del estudiante en cada asignatura, excepto conducta, será el resultado de la suma de los siguientes valores porcentuales:
+Artículo 30.—Del valor porcentual de cada uno de los componentes de la calificación. La calificación de los aprendizajes del estudiante en cada asignatura, excepto conducta será el resultado de la suma de los siguientes valores porcentuales:
 a) En el primer año del I Ciclo de la Educación General Básica, en las asignaturas de Matemática, Estudios Sociales, Ciencias, Español, Lengua Extranjera y Lengua Indígena el valor porcentual es el siguiente:
 Trabajo Cotidiano | 50%
 Trabajo Extraclase | 10%
@@ -35,72 +35,62 @@ Trabajo Extraclase | 10%
 Prueba | 30%
 Concepto | 5%
 Asistencia | 5%
-g) Tanto en el primer año de III Ciclo de la Educación General Básica (Sétimo año), como el primer año de las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Ciencias, Lengua extranjera y Lengua Indígena:
+(*)g) En el sétimo año del III Ciclo de la Educación General Básica y el primer año de las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Ciencias, Lengua extranjera y Lengua Indígena:
 Trabajo Cotidiano | 25%
 Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 55%
 Concepto | 5%
 Asistencia | 5%
-En Educación Cívica:
+Para Educación Cívica:
 Trabajo Cotidiano | 15%
 Trabajo Extraclase | 10%
 Pruebas (una) | 30%
 Proyecto (uno) | 35%
 Concepto | 5%
 Asistencia | 5%
-En Educación Musical:
-Trabajo Cotidiano | 20%
-Trabajo Extraclase | 5%
-Pruebas (una) | 25%
-Proyecto (uno) | 40%
-Concepto | 5%
-Asistencia | 5%
-h) Tanto en el segundo año de III Ciclo de la Educación General Básica (octavo año y noveno), como el segundo y tercer año de las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Ciencias , Lengua extranjera y Lengua Indígena:
+(*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
+(*)h) En el octavo y noveno año de III Ciclo de la Educación General Básica, como el segundo y tercer año de las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Ciencias, Lengua Extranjera y Lengua Indígena:
 Trabajo Cotidiano | 15%
 Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 65%
 Concepto | 5%
 Asistencia | 5%
-En Educación Cívica:
+Para Educación Cívica:
 Trabajo Cotidiano | 15%
 Trabajo Extraclase | 10%
 Pruebas (una) | 30%
 Proyecto (uno) | 35%
 Concepto | 5%
 Asistencia | 5%
-En Educación Musical:
-Trabajo Cotidiano | 20%
-Trabajo Extraclase | 5%
-Pruebas (una) | 25%
-Proyecto (uno) | 40%
-Concepto | 5%
-Asistencia | 5%
-i) Tanto en la Educación Diversificada Académica y Técnica, Diurna y Nocturna, en las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Biología, Física, Química, Lengua Extranjera, Filosofía, Psicología y Lengua Indígena:
+(*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
+(*)i) Tanto en la Educación Diversificada Académica y Técnica, Diurna y Nocturna, en las modalidades de IPEC y CINDEA, para las asignaturas Matemática, Español, Estudios Sociales, Biología, Física, Química, Lengua Extranjera, Filosofía, Psicología y Lengua Indígena:
 Trabajo Cotidiano | 10%
 Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 70%
 Concepto | 5%
 Asistencia | 5%
-En Educación Cívica:
+Para Educación Cívica:
 Trabajo Cotidiano | 10%
 Trabajo Extraclase | 10%
 Pruebas (una) | 35%
 Proyecto (uno) | 35%
 Concepto | 5%
 Asistencia | 5%
-En Educación Musical:
-Trabajo Cotidiano | 10%
-Trabajo Extraclase | 5%
-Pruebas (una) | 25%
-Proyecto (uno) | 50%
-Concepto | 5%
-Asistencia | 5%
-j) En III Ciclo de la Educación General Básica, en las asignaturas Educación Religiosa, Educación Musical y Educación Física:
+(*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
+(*)j) En III Ciclo de la Educación General Básica, en las asignaturas Educación Religiosa, y Educación Física:
 Trabajo Cotidiano | 40%
 Trabajo Extraclase | 15%
 Prueba | 35%
 Concepto | 5%
 Asistencia | 5%
+Para Educación Musical:
+Trabajo Cotidiano | 20%
+Trabajo Extraclase | 5%
+Pruebas (una) | 25%
+Proyecto (uno) | 40%
+Concepto | 5%
+Asistencia | 5%
+(*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
 k) En III Ciclo de la Educación General Básica y la Educación Diversificada en los colegios artísticos, ambientalistas, deportivos y en todos aquellos otros de modalidad especial que apruebe el Consejo Superior de Educación en las asignaturas propias de la especialidad:
 Trabajo Cotidiano | 45%
 Trabajo Extraclase | 20%
@@ -113,26 +103,27 @@ Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 30%
 Concepto | 5%
 Asistencia | 5%
-m) En Educación Diversificada, en las asignaturas de Educación Religiosa, Educación Musical, Educación Física y Artes Plásticas:
+(*)m) En Educación Diversificada, en las asignaturas de Educación Religiosa, Educación Física y Artes Plásticas:
 Trabajo Cotidiano | 35%
 Trabajo Extraclase | 15%
 Prueba | 40%
 Concepto | 5%
 Asistencia | 5%
+Para Educación Musical:
+Trabajo Cotidiano | 10%
+Trabajo Extraclase | 5%
+Pruebas (una) | 25%
+Proyecto (uno) | 50%
+Concepto | 5%
+Asistencia | 5%
+(*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
 n) En Educación Diversificada en las asignaturas correspondientes a las Tecnologías de los Colegios Académicos:
 Trabajo Cotidiano | 40%
 Trabajo Extraclase | 15%
 Pruebas (mínimo dos) | 35%
 Concepto | 5%
 Asistencia | 5%
-o) En las asignaturas técnicas correspondientes a las áreas agropecuaria o industrial, tanto en las modalidades de IPEC y CINDEA, como en la Educación Diversificada Técnica:
-Trabajo Cotidiano | 40%
-Trabajo Extraclase | 10%
-Pruebas (mínimo dos) | 40%
-Concepto | 5%
-Asistencia | 5%
-Para los efectos de este inciso el Trabajo Cotidiano incluye la realización de proyectos en los que se evaluará tanto el proceso como el producto.
-p) En las asignaturas técnicas correspondientes a las áreas: Comercial, Servicios, Agropecuaria e Industrial, tanto en las modalidades de IPEC y CINDEA, como en la Educación Diversificada Técnica:
+(*)o) En las asignaturas técnicas en las modalidades de IPEC y CINDEA, en la Educación Diversificada :
 Trabajo Cotidiano | 25%
 Trabajo Extraclase | 10%
 Pruebas (mínimo dos) | 40%
@@ -141,6 +132,17 @@ Asistencia | 5%
 Proyecto | 15%
 Para los efectos de este inciso el Trabajo Cotidiano incluye la realización del Portafolio de Evidencias en los que se evaluará tanto el proceso como el producto.
 El o la docente, al inicio de cada unidad de estudio determinará la cantidad y tipo de prueba.
+(*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
+(*)p) En las asignaturas técnicas correspondientes a las áreas: Comercial y Servicios, Agropecuaria e Industrial en la Educación Diversificada Técnica:
+Trabajo Cotidiano | 25%
+Trabajo Extraclase | 10%
+Pruebas (mínimo dos) | 40%
+Concepto | 5%
+Asistencia | 5%
+Proyecto | 15%
+Para los efectos de este inciso el Trabajo Cotidiano incluye la realización del Portafolio de Evidencias en los que se evaluará tanto el proceso como el producto.
+El o la docente, al inicio de cada unidad de estudio determinará la cantidad y tipo de prueba.
+(*)(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35480 del 10 de agosto de 2009)
 q) En el III Ciclo de la Educación Especial (Etapa Prevocacional) en el Área Técnica, manipulación básica, proyectos integrados y de aplicación:
 Trabajo Cotidiano | 50%
 Trabajo Extraclase | 10%
