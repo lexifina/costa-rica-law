@@ -17,3 +17,4 @@ Reglamento de Caja Chica
 | 2 | 2007-12-04 | Reglamento 3464 (2007-12-04) |
 | 3 | 2008-07-18 | Reglamento 3501 (2008-07-18) |
 | 4 | 2008-07-22 | Reglamento 3502 (2008-07-22) |
+| 5 | 2009-08-11 | Reglamento 3580 (2009-08-11) |
