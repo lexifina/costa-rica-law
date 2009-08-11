@@ -1,0 +1,1 @@
+Artículo 11.—La Unidad de Recursos Humanos verificará el cumplimiento de este reglamento y el respectivo contrato. Cuando comprobare incumplimiento, tomará las medidas pertinentes, incluyendo la aplicación de los procedimientos a efecto de imponer las sanciones establecidas en el artículo 11 de este reglamento.
