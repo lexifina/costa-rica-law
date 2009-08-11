@@ -14,3 +14,4 @@ Reglamento especial que regula el Procedimiento de Devoluciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-29 | la propia norma |
+| 2 | 2009-08-11 | Reglamento 40 (2009-08-11) |
