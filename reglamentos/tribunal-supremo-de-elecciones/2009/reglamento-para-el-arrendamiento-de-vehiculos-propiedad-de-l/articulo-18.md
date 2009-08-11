@@ -1,0 +1,1 @@
+Artículo 18.—Reconocimiento de otros rubros. Adicionalmente se reconocerá el pago por concepto de peajes, utilización de transbordadores y estacionamiento que deba pagar el funcionario, debiendo presentar el respectivo comprobante.

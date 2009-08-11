@@ -1,0 +1,1 @@
+Artículo 6º—De la aprobación. Corresponderá al Coordinador de Programas Electorales aprobar y tramitar la solicitud respectiva, una vez que se acredite el cumplimiento de los requisitos previstos en este reglamento.
