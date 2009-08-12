@@ -1,0 +1,2 @@
+Artículo 3º—Dentro de la potestad que goza el patrono o representante patronal, este debe supervisar el trabajo desempeñado bajo esta modalidad, sin que ello signifique que la trabajadora quede sujeta a horarios de trabajo o a otro tipo de control de asistencia y disciplina o que abuse o incurra en negligencia descuido o mala calidad en la prestación de sus servicios.
+Para dichos efectos deberá establecer patrones adecuados de rendimiento de la trabajadora que se encuentre sometida a esa modalidad de trabajo.

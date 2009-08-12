@@ -1,0 +1,1 @@
+Artículo 6º—Si una trabajadora en estado de embarazo, incurre en incumplimiento en la prestación del servicio que efectivamente le corresponde desempeñar, puede verse sujeta a las sanciones tipificadas en el ordenamiento jurídico nacional.

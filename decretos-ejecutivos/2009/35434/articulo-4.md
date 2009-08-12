@@ -1,0 +1,1 @@
+Artículo 4º—La implementación de la modalidad de teletrabajo, se ha derivado de la proliferación de la influenza AH1N1, en consecuencia su aplicación será temporal por el tiempo que permanezca vigente la emergencia sanitaria nacional.

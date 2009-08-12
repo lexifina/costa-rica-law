@@ -1,0 +1,1 @@
+Artículo 2º—La mujer trabajadora que se encuentre en esa condición deberá demostrar con dictamen médico su embarazo y contar en su domicilio o lugar habilitado para esos efectos, con los equipos de Tecnologías de la Información y las Comunicaciones, necesarias para poder desarrollar desde ese sitio su trabajo.
