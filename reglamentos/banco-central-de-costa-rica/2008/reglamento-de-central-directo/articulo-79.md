@@ -1,1 +1,0 @@
-Artículo 79.—La constitución de una inversión renovada tiene prioridad por sobre la constitución de las demás órdenes de inversión calendarizadas que se liquiden en un mismo día de operaciones.

@@ -1,1 +1,0 @@
-Artículo 33.—El BCCR definirá por razones de seguridad el número máximo de intentos consecutivos de ingreso a Central Directo, después de los cuales la clave de acceso queda bloqueada permanentemente.

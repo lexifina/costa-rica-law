@@ -1,1 +1,0 @@
-Artículo 65.—Los acuerdos que adopte la Junta Directiva del BCCR, en relación con la disponibilidad y características de los instrumentos financieros ofrecidos mediante Central Directo, se tienen por incorporados automáticamente a este reglamento y serán publicados por el BCCR en los medios que considere apropiados para que puedan ser consultados por los inversionistas.

@@ -1,1 +1,0 @@
-Artículo 32.—Central Directo valida y exige que la clave de acceso registrada por el inversionista cumpla con las condiciones de estructura y longitud establecidas por el BCCR. Dichas condiciones están basadas en buenas prácticas internacionales y podrán considerar el uso de combinaciones de letras mayúsculas, minúsculas, números y caracteres especiales.

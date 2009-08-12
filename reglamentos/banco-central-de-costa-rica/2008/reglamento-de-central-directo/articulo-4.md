@@ -1,1 +1,0 @@
-Artículo 4º—La aplicación de las disposiciones establecidas por el presente reglamento es de carácter obligatorio, por lo que el acto de suscripción a Central Directo se entiende como una declaración del participante de que las acepta y se compromete a cumplirlas.

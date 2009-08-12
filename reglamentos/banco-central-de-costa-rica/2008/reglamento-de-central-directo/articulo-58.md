@@ -1,1 +1,0 @@
-Artículo 58.—El participante podrá ordenar desde su entidad financiera, movimientos de fondos utilizando los servicios DTR y CDD disponibles en todas las entidades asociadas al SINPE. Estos movimientos los podrá realizar en adición a los que ordene desde Central Directo para trasladar fondos de la CCI a su CC.

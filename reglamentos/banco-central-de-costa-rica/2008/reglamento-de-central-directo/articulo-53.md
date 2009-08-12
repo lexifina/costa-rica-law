@@ -1,1 +1,0 @@
-Artículo 53.—Los débitos que se ordenen desde Central Directo serán tramitados bajo la condición “sin cobro revertido”, por lo que no podrán revocarse ni procederá su reclamación por parte del participante luego de que hayan sido ordenados.

@@ -1,1 +1,0 @@
-Artículo 29.—El BCCR tiene a disposición del participante mediante el Centro de Atención al Cliente, los procedimientos operativos necesarios para que ordene el bloqueo de su código de usuario en caso de que por medidas de seguridad así lo requiera.
