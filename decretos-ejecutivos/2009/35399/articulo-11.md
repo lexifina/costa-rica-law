@@ -1,0 +1,1 @@
+Artículo 11.—Estudiantes con discapacidad. Los estudiantes con discapacidad deberán cumplir con los requisitos establecidos en los artículos 8º.- y 10-, y no les será aplicado lo dispuesto en el inciso a) del artículo 12-, del presente reglamento.
