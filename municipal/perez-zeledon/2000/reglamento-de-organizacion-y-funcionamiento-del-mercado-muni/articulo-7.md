@@ -1,4 +1,0 @@
-Artículo 7°-De la competencia del Consejo Municipal. Es competencia del Consejo Municipal lo siguiente:
-a) Fijar el precio de los alquileres y establecer los sistemas más adecuados de cobro de los arrendamientos. Además fijar las políticas de aumento de los alquileres los cuales podrán hacerse mediante acuerdo municipal tomando en cuenta lo que señala la Ley al respecto.
-b) Aprobar o improbar las cesiones de derechos de arrendamiento de los locales, previa recomendación técnica de la Administración.
-c) Conocer y decidir por avocamiento acerca de las sanciones que recomiende en cada caso la Unidad de Mercado y Terminal de Buses o el Despacho del Alcalde Municipal que sean cometidas por parte de los inquilinos, sus dependientes y los usuarios del Mercado y la Terminal de Buses por infracción a la ley o a los reglamentos municipales ya sea con dolo, culpa o preterintensión.

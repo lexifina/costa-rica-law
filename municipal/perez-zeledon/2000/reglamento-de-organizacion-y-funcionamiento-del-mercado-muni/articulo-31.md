@@ -1,1 +1,0 @@
-Artículo 31.-Pago del derecho de piso. En los casos en que estuviere autorizado para ello el beneficiario del derecho de piso deberá pagarlo en la Contabilidad Municipal, el día inmediato anterior a aquel que desea hacerlo efectivo. Tendrá una duración y una vigencia de veinticuatro horas únicamente por el día que haya pagado de las 00:00 horas a las 24:00 horas de ese mismo día.

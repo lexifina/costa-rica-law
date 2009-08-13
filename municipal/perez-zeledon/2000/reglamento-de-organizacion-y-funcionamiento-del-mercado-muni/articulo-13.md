@@ -1,1 +1,0 @@
-Artículo 13.-Inquilinos permanentes. Se tendrá como inquilinos permanentes, a quienes resulten adjudicatarios de un local o derecho y los cesionarios o causahabientes de adjudicatario que hayan firmado el contrato respectivo y se encuentren al día en el pago previo por el arrendamiento y que cumplan los requisitos que establece este Reglamento.

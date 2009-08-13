@@ -1,1 +1,0 @@
-Artículo 9°-Prohibición para permanecer en el Mercado fuera de horarios. Fuera de los casos expresamente autorizados por este reglamento ninguna persona podrá permanecer dentro del Mercado, después de horario fijado, exceptuando los empleados del mismo, cuadrillas de aseo o personal de vigilancia, con el objeto de concluir o cumplir con sus labores.

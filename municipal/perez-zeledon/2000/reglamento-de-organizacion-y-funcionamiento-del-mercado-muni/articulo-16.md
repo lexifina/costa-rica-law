@@ -1,1 +1,0 @@
-Artículo 16.-Prohibición de la duplicidad de locales en un solo inquilino. Ninguna persona física o jurídica podrá ser adjudicataria, concesionaria, inquilina o arrendataria de más de un local o derecho tanto en el Mercado Municipal como en la Terminal de Buses.
