@@ -1,0 +1,1 @@
+Transitorio único. Los funcionarios que al momento de entrada en vigencia de este reglamento estén obligados a caucionar, contarán con un plazo máximo de un mes calendario para presentar original y copia de la garantía para que sea confrontada por el Departamento de Gestión y Desarrollo Humano, así como cualquier otra información que se requiera.

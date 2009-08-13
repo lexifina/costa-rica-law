@@ -1,0 +1,4 @@
+Artículo 13.—Deberes del Departamento de Gestión y Desarrollo Humano.
+a- Velar que el funcionario o funcionaria obligados a rendir la caución, hayan rendido la garantía correspondiente al momento de asumir el cargo, sin perjuicio de las responsabilidades que correspondan al jerarca y los titulares subordinados, siguiendo los lineamientos establecidos en el artículo 6 de éste Reglamento.
+b- Rendir un informe semestral a los miembros de la Comisión Administrativa de Cauciones, en el cual se detallen nombre, puesto, tipo de garantía, número de póliza, grupo al que pertenece, monto asegurado, fecha de emisión y vencimiento de la garantía, así como nuevos nombramientos, ceses o traslados del personal en puestos que requieran presentar garantía.
+c- Recibir, custodiar y verificar la efectividad de los documentos que comprueban la presentación de garantías por parte de los caucionantes, estableciendo para ello los controles y medidas de seguridad pertinentes.

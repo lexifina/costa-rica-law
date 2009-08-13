@@ -1,0 +1,5 @@
+Artículo 8º—Revisión del listado de puestos sujetos a caución. Para la revisión del listado de puestos sujetos a caución, se creará la Comisión Administrativa de Cauciones, integrada por un funcionario de la Dirección Financiera, un funcionario de la Dirección de Proyectos y el Jefe del Departamento de Gestión y Desarrollo Humano, quienes revisarán y analizarán al menos dos veces al año los puestos sujetos a caución, considerando los siguientes aspectos:
+a- La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
+b- La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por la Administración.
+c- El nivel de responsabilidad, el monto administrado y el salario correspondiente al caucionante.
+El listado de los cargos, funciones y actividades sujetos a caución y cualquier otra información que requiera la Comisión para su análisis sobre los puntos señalados en este artículo, deberá ser suministrado por el Departamento de Gestión y Desarrollo Humano.

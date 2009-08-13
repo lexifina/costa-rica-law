@@ -1,0 +1,1 @@
+Artículo 7º—De los funcionarios interinos. Aquellos funcionarios cuyo nombramiento interino sea igual o mayor a tres meses, y que se encuentran bajo el supuesto de algunos de los condicionantes del artículo anterior, deberán rendir caución.
