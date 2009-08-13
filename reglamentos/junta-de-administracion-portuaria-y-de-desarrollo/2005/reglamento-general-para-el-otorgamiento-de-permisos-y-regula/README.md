@@ -14,3 +14,4 @@ Reglamento General para el Otorgamiento de Permisos y Regulación de la Operaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-06 | la propia norma |
+| 2 | 2009-08-13 | Reglamento 31 (2009-08-13) |
