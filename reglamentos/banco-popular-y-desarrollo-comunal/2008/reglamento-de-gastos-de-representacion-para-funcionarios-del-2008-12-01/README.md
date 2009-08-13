@@ -14,3 +14,4 @@ Reglamento de Gastos de Representación para Funcionarios del Conglomerado del B
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-12 | la propia norma |
+| 2 | 2009-08-13 | Reglamento 4690 (2009-08-13) |

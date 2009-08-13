@@ -1,3 +1,2 @@
-Artículo 4º—Cuando por cualquier causa los funcionarios autorizados se encuentren imposibilitados para llevar a cabo la misión encomendada, podrán delegar esta facultad bajo su responsabilidad.
-A la hora de liquidar los gastos de representación, quien delega y el delegado deberán firmar conjuntamente la respectiva liquidación, indicando que la representación fue delegada.
-El funcionario autorizado solamente podrá delegar su facultad en uno de sus subalternos inmediatos. El delegado, no podrá delegar en otro funcionario.
+Artículo 4º—Salvo en el caso de los Agentes de Bolsa y de los Agentes de Seguro, quienes no podrán delegar su facultad, cuando por cualquier causa los funcionarios autorizados se encuentren imposibilitados para llevar a cabo la misión encomendada, podrán delegar esta facultad bajo su responsabilidad.
+(Así reformado mediante sesión N° 4690 del 13 de agosto de 2009)
