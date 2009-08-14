@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Procedimientos de adquisición de obras, bienes y servicios, y de selección y contratación de consultores
+Los procedimientos de adquisición de obras, bienes y servicios, y la selección y contratación de consultores que se realicen al amparo del Convenio de cooperación para el financiamiento de proyectos de inversión CR-X1007, con cargo a los recursos de cada contrato de préstamo individual, indicados en la sección 9 de dicho Convenio, prevalecerán sobre los procedimientos y las normas del ordenamiento jurídico nacional; estos se aplicarán de manera supletoria.
