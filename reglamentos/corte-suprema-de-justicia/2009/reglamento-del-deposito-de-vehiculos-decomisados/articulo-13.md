@@ -1,0 +1,1 @@
+Artículo 13.—El Encargado del Depósito de Vehículos podrá solicitar a los despachos judiciales la pronta realización de cualquier pericia técnica que se requiera, así como consultar acerca del destino que se les dará.
