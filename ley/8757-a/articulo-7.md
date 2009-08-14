@@ -1,0 +1,1 @@
+Sección 7. Compromiso de Recursos por parte del Banco. El Banco sólo comprometerá recursos cuando el Directorio Ejecutivo del Banco apruebe la Operación Individual y en el monto correspondiente al Préstamo Individual respectivo. En consecuencia, el Prestatario no incurrirá en ningún gasto por comisiones aplicables al presente Convenio.
