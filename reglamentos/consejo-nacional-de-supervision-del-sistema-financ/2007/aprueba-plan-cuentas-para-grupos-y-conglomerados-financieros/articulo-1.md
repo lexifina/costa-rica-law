@@ -12,3 +12,4 @@ acordó:
 I. Aprobar el “Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros”, conforme a la versión distribuida en CD a las entidades supervisadas.
 (Para ver el “Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros” puede accesar en el siguiente link SUGEF )
 (Nota de Sinalevi: Mediante sesión N° 684 del 5 de noviembre de 2007, se reforma el Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros, dicha modificación puede ser accesada en el siguiente link: Reforma Plan de Cuentas para entidades, grupos y conglomerados financieros )
+(Nota de Sinalevi: Mediante sesión N° 797 del 14 de agosto de 2009, se reforma el Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros, dicha modificación puede ser accesada en el siguiente link: Reforma Reglamento para la Calificación de Deudores y Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros )
