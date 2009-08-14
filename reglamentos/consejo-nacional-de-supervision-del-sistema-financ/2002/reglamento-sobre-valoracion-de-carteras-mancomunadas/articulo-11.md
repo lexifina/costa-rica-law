@@ -1,5 +1,0 @@
-Artículo 11.—Cambio o modificaciones de la metodología seleccionada
-La metodología de valoración seleccionada, o las modificaciones a esta, requerirá de la autorización previa del Superintendente General de Valores. Las solicitudes de cambio de la metodología o las modificaciones a esta deberán presentarse a la Superintendencia General de Valores con un detalle de los cambios solicitados y una explicación de los motivos que lo fundamentan. La Superintendencia podrá solicitar la información adicional que estime necesaria.
-Estas solicitudes deberán comunicarse a la Superintendencia General de Entidades Financieras y la Superintendencia de Pensiones en el momento que se reciban para que realicen sus observaciones. También deberán comunicarse las autorizaciones de cambio o modificación de metodología otorgadas.
-En todo caso la nueva metodología o sus modificaciones deberán encontrarse inscritas en la Superintendencia General de Valores de previo a su adopción.
-(Así reformado en sesión N° 543 del 1° de diciembre del 2005)
