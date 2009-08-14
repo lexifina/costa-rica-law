@@ -1,0 +1,1 @@
+Sección 12. Reserva de derechos. El retardo o el no ejercicio por parte del Banco de los derechos acordados en este Convenio no podrán ser interpretados como renuncia del Banco a tales derechos, ni como aceptación de los hechos o circunstancias que hubieran habilitado el ejercicio de tales derechos.

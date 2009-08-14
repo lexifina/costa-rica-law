@@ -1,0 +1,1 @@
+Sección 11. Obligaciones no afectadas. Si el Prestatario renunciare a la totalidad o a una parte de los recursos no comprometidos o éstos fueran cancelados por el Banco, continuarán vigentes las obligaciones del Prestatario que surjan de los Contratos de Préstamo Individual.

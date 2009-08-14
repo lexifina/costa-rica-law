@@ -1,0 +1,1 @@
+Sección 6. Plazo para Celebrar Contratos de Préstamo Individual. El plazo para celebrar Contratos de Préstamo Individual bajo el presente Convenio será de doce (12) años, contado a partir de la fecha de vigencia del mismo, sin perjuicio de que el mismo pueda ser prorrogado por las partes.

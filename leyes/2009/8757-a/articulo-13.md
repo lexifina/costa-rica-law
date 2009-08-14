@@ -1,0 +1,1 @@
+Sección 13. Normas Aplicables a las Operaciones Individuales. Las Operaciones Individuales se regirán por lo previsto en el respectivo Contrato de Préstamo Individual, sus anexos y normas generales correspondientes, y en las disposiciones del presente Convenio en lo que les fueren aplicables.
