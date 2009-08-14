@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Exención de pago de impuestos
+No estarán sujetos al pago de ninguna clase de impuestos, tasas, contribuciones ni derechos, los documentos que se requieran para formalizar el Convenio de cooperación para el financiamiento de proyectos de inversión CR-X1007, así como también los contratos de préstamo individuales que se celebren con el BID, en el marco de dicho Convenio. Asimismo, la inscripción de estos documentos, en los registros correspondientes, queda exonerada de todo tipo de pago.

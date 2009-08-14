@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Contratos individuales de préstamo
+Los contratos individuales de préstamo derivados del Convenio de cooperación para el financiamiento de proyectos de inversión CR-X1007, entre la República de Costa Rica y el BID, para financiar el Programa de infraestructura de transporte (PIT), deberán someterse al trámite y la aprobación eventual de la Asamblea Legislativa de la República de Costa Rica, de conformidad con lo dispuesto en el inciso 15) del artículo 121 de la Constitución Política.
