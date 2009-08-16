@@ -14,6 +14,8 @@ UNIDADES DESCONCENTRADAS Y NO
 DESCONCENTRADAS DE LA CAJA
 COSTARRICENSE DE
 SEGURO SOCIAL
+T
+(Nota: La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 10°, Acuerdo tercero de la Sesión N° 8353, celebrada el 4 de junio del año 2009, dispuso que esta normativa entrará a regir a partir del 16 de agosto del año en curso)
 Consideraciones previas
 1.1. Estas condiciones regirán todos los concursos de las unidades facultadas de compras en la Caja Costarricense de Seguro Social, en adelante C.C.S.S., regidos por la Ley de Contratación Administrativa y su Reglamento así como la Ley N° 6914 y el Reglamento para la compra de medicamentos, materias primas, reactivos, envases.
 1.2. En lo no previsto en este documento o en las condiciones específicas de cada procedimiento de compra, regirá lo previsto en la Ley de Contratación Administrativa y su reglamento.
