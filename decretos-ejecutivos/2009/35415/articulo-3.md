@@ -1,0 +1,1 @@
+Artículo 3º—Las distintas instancias del Estado y los gobiernos locales, tomarán en cuenta esta declaratoria en las diferentes solicitudes, trámites y autorizaciones que se gestionen para la protección, conservación, restauración, mantenimiento y mejoramiento del patrimonio histórico arquitectónico de la Isla San Lucas.
