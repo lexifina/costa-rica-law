@@ -1,1 +1,0 @@
-Artículo 9°—Acción de personal. Una vez establecida la sujeción del servidor a la disponibilidad, el Departamento de Personal confeccionará la acción de personal respectiva, según el trámite usual que rige en esta materia.
