@@ -1,0 +1,1 @@
+2) Que la competencia para emitir y firmar las resoluciones de rechazo de plano y de archivo, corresponde a los funcionarios a cargo del expediente respectivo y las mismas serán recurribles de conformidad con los artículos 25 y 26 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Industrial, Ley Nº 8039.
