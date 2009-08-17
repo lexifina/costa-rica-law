@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Plan de manejo del Refugio
+La Dirección del Área de Conservación Tempisque y la administración del Refugio realizarán las diligencias administrativas y técnicas, para lograr una amplia participación de las comunidades, las instituciones y el sector privado en la implementación del Plan de manejo del Refugio Nacional de Vida Silvestre Iguanita, considerando la reglamentación del Plan maestro del Polo Turístico Golfo de Papagayo del ICT.
