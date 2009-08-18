@@ -14,3 +14,4 @@ Reglamento de Espacios Públicos, Vialidad y Publicidad Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-24 | la propia norma |
+| 2 | 2009-08-18 | Reglamento municipal 33 (2009-08-18) |

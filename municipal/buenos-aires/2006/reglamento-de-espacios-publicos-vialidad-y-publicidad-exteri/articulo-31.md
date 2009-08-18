@@ -1,1 +1,1 @@
-Artículo 31.—Rótulos en sitios y edificaciones de valor patrimonial con uso comercial: No podrán alterar la estructura del inmueble, no podrán ser luminosos, no podrán obstaculizar detalles arquitectónicos y no podrán adosarse perpendicular al inmueble.
+Artículo 31.—(Derogado por el artículo 16 del Reglamento de Publicidad Exterior, aprobado mediante sesión N° 33 del 18 de agosto de 2009)

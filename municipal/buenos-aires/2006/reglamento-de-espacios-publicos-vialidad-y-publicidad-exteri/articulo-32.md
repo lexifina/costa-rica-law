@@ -1,1 +1,1 @@
-Artículo 32.—Rótulos temporales: Se otorgarán por un plazo de un mes como mínimo y tres meses como máximo. Deberán ser de materiales livianos. Estos se incluyen en (categoría V) los rótulos de venta o alquiler, rótulos de obras en construcción, etc. Para asegurar el desmantelamiento del rótulo se exigirá un depósito de garantía igual al monto a pagar por el permiso depositado en la Caja de la Municipalidad.
+Artículo 32.—(Derogado por el artículo 16 del Reglamento de Publicidad Exterior, aprobado mediante sesión N° 33 del 18 de agosto de 2009)

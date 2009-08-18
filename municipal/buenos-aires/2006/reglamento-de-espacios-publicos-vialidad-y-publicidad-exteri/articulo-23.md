@@ -1,12 +1,1 @@
-Artículo 23.—Prohibiciones: Se prohíbe la instalación, construcción, reconstrucción trazo o pintura de cualquier tipo de rótulo, en las siguientes zonas, lugares y sitios:
-a) Sitios catalogados como patrimonio natural, tales como: cerros, rocas, parques, árboles, ríos, incluyendo su zona de protección (15 metros a partir del borde del espejo de agua), jardines de interés público.
-b) Edificios públicos: escuelas, universidades, colegios, templos, teatros, museos, etc.
-c) Lotes baldíos, apartamentos, edificios o casas particulares, excepto los rótulos de categoría I.
-d) Lugares donde obstaculicen señales de tránsito o rótulos de nomenclatura a partir de los cuales deberán distanciarse dos metros mínimo de las mismas y prever aún con este distanciamiento la no obstrucción de las mismas.
-e) Cubriendo los elementos arquitectónicos, como balcones, columnas, relieves, ventanas y puertas y elementos ornamentales de la edificación.
-f) Ubicados sobre la línea de la propiedad a una altura menor a los 2.40 m desde el nivel de acera, salvo los rótulos utilizados en vitrinas o de información de salidas de emergencia, accesos para minusválidos y de seguridad.
-g) Rótulos, que por sus dimensiones y posición se considere peligrosos, tales como:
-1. Los que obstruyan la visibilidad, el tránsito vehicular y peatonal o tengan reflectores con efectos intermitentes, que puedan deslumbrar a los conductores o puedan confundirse con las señales de tránsito.
-2. Los que por su ubicación en laderas o terrenos de un nivel más alto de la carretera puedan caerse o ser arrastrados por los vientos sobre las carreteras o edificaciones.
-3. Los rótulos que no contemplen las características antisísmicas mínimas, en lo referente al diseño estructural de los mismos y su sistema de anclaje, incluyendo el análisis del terreno o edificación donde vayan a ser instalados.
-h) Terminantemente prohibido colocar o pintar rótulos en fachadas ciegas de colindancia con propiedad privada o pública. Se permitirán únicamente aquellos ubicados en paredes, en colindancia pertenecientes al mismo propietario del rótulo y convocando al predio y local del mismo propietario cuya leyenda podrá ser únicamente de funcionamiento.
+Artículo 23.—(Derogado por el artículo 16 del Reglamento de Publicidad Exterior, aprobado mediante sesión N° 33 del 18 de agosto de 2009)
