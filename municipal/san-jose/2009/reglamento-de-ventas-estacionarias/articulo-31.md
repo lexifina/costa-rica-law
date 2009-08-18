@@ -1,0 +1,1 @@
+Artículo 31.—Forman parte integrante del presente Reglamento: La Ley 5694, Ley de Impuestos de Patentes de Actividades Lucrativas, publicado en el Diario Oficial La Gaceta del día 3 de julio del 1973, el Reglamento de Patentes Municipales del cantón Central de San José, publicado en La Gaceta del día 10 de febrero de 1977”.

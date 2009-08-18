@@ -1,0 +1,1 @@
+Artículo 15.—No podrá expender en los puestos alimentos de consumo directo, salvo aquellos que cuente con licencia de registro del Ministerio de Salud, por lo que queda totalmente prohibido las ventas de fruta pelada, agua de pipas, jugos de naranjas y demás alimentos que puedan contaminarse ante la exposición del medio ambiente.

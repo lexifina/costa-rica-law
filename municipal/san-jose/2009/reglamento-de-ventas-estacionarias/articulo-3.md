@@ -1,0 +1,1 @@
+Artículo 3º.—La licencia deberá ser solicitada por escrito fundamentado los motivos para dedicarse a esta actividad y deberá ser acompañada de la documentación necesaria, para el respectivo estudio socioeconómico del solicitante.
