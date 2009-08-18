@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de los créditos del Régimen de Mutualidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-25 | la propia norma |
+| 2 | 2009-08-18 | Reglamento 42 (2009-08-18) |
