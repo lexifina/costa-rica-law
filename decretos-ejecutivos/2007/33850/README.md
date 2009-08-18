@@ -14,3 +14,4 @@ Reglamento para los Estudios de Estabilidad de Medicamentos Requeridos para su R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-11 | la propia norma |
+| 2 | 2009-08-18 | Decreto Ejecutivo 35527 (2009-08-18) |

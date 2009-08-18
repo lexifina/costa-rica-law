@@ -17,6 +17,8 @@ a.8.4. Los resultados de los estudios de desafío a los preservantes, con el fin
 a.8.5. Los demás parámetros indicativos de la estabilidad física, química o microbiológica del producto (según la forma farmacéutica), relevantes a la estabilidad.
 a.9. Las conclusiones del estudio indicando el período de validez solicitado y las condiciones de almacenamiento definidas para el producto. Podrán aceptarse condiciones de almacenamiento, en el etiquetado, indicando una temperatura máxima que sea no menor de 5°C por debajo de 30°C (Zona IV) o de la temperatura aprobada para el estudio.
 a.10. El nombre y la firma del profesional responsable competente, así como el nombre del laboratorio y país donde se llevó a cabo dicho estudio.
+Tratándose de estudios de estabilidad expedidos en el Exterior, el representante del titular del medicamento en el país de origen, podrá otorgar un poder especial al farmacéutico regente o responsable en nuestro país, para que certifique y firme dichos estudios haciéndose éste último responsable de la veracidad y exactitud del texto enviado por el titular del medicamento, sin que ello exima de responsabilidad a éste de eventuales falsedades de los textos enviados. El poder deberá permanecer en archivos de la Dirección de Atención al Cliente del Ministerio de Salud.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 35527 del 18 de agosto de 2009)
 a.11. Las conclusiones del estudio deben ser entregadas en español.
 Se aceptarán las tablas de resultados en idioma inglés.
 a.12. Toda la información contenida en los estudios de estabilidad debe ser impresa y claramente legible.
