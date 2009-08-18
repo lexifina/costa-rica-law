@@ -14,3 +14,4 @@ Reglamento para la presentación de campañas cooperativas integrales de promoci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-23 | la propia norma |
+| 2 | 2009-08-18 | Reglamento 5596 (2009-08-18) |
