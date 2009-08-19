@@ -1,0 +1,2 @@
+Artículo 9º—De la publicidad. Se podrá desplegar publicidad en el inmueble a favor de intereses privados siempre y cuando reciba remuneración por ello, su vigencia será hasta el final del período de administración del estadio, pudiendo ser prorrogable, esta no debe atentar contra la moral, las buenas costumbres y no pueden ser referidas a bebidas alcohólicas, cigarrillos o sustancias prohibidas o que tengan contenido político
+Se podrán realizar canjes publicitarios por servicios o materiales en especie para ser utilizados en mejoras del mismo inmueble.

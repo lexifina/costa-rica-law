@@ -1,0 +1,1 @@
+Artículo 6º—Arrendamientos por temporadas. El alquiler del estadio, para actividades a las cuales el bien esta destinado a equipos de primera, segunda o tercera división del fútbol mayor masculino o femenino, deberá ser de conocimiento del Concejo Municipal. El pago en estos casos se efectuará por depósito en la cuenta del Estadio anteriormente señalada.

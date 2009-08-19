@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Cantonal de Deportes, será el encargado de aplicar y ejercer los deberes, derechos y atribuciones que establece el reglamento, facultado en el acuerdo de administración firmado con la Alcaldía Municipal.
