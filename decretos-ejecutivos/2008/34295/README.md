@@ -15,3 +15,4 @@ Manual para la Clasificación de Tierras dedicadas a la Conservación de los Rec
 | --- | --- | --- |
 | 1 | 2008-02-08 | la propia norma |
 | 2 | 2009-08-19 | SINALEVI (sin norma nombrada) |
+| 3 | 2009-08-19 | SINALEVI (sin norma nombrada) |
