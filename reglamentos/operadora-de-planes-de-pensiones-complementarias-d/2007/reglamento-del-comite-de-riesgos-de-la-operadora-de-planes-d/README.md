@@ -14,3 +14,4 @@ Reglamento del Comité de Riesgos de la Operadora de Planes de Pensiones Complem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-19 | la propia norma |
+| 2 | 2009-08-19 | Reglamento 311 (2009-08-19) |
