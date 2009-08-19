@@ -14,3 +14,4 @@ Se aceptan las figuras de condominios de condominios, condominios mixtos, proyec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-23 | la propia norma |
+| 2 | 2009-08-19 | Reglamento 5758 (2009-08-19) |
