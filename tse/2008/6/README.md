@@ -14,3 +14,4 @@ Reglamento de Régimen de Disponibilidad en el Tribunal Supremo de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
+| 2 | 2009-08-20 | Reglamento 12 (2009-08-20) |
