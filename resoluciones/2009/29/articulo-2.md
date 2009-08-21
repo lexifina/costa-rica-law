@@ -1,0 +1,1 @@
+Segundo.—Derogar el Reglamento del Fondo de Trabajo, emitido el catorce de abril de mil novecientos noventa y dos, así como cualquier otra disposición que se oponga al Reglamento que por este medio se emite.
