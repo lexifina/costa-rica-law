@@ -1,0 +1,9 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+RESOLUCIONES
+R-DC-30-2009.—Contraloría General de la República.—Despacho Contralor.—San José, a las diez horas del once de agosto del dos mil nueve.
+Considerando:
+Único.—Que la Contraloría General emitió mediante resolución Nº R-CO-34-2009, su Reglamento Orgánico publicado en La Gaceta 104 del 1 de junio del 2009, donde se establecen varias modificaciones su estructura funcional principalmente en las actividades de apoyo, todo lo cual obliga a actualizar la normativa interna, como el Reglamento Interno de la Comisión Evaluadora de ofertas en los procedimientos de concurso promovidos por la Contraloría General de la República del diez de octubre de mil novecientos noventa y seis, publicado en el Alcance Nº 2 a La Gaceta 243 del 3 de enero de 1997. Por tanto,
+SE RESUELVE:
+Artículo 1º—Modifíquense los artículos 1 y 2 del “Reglamento Interno de la Comisión Evaluadora de ofertas en los procedimientos de concurso promovidos por la Contraloría General de la República, en los siguientes términos:
+“Artículo 1º—Créase la Comisión Evaluados de ofertas, en adelante denominada “la Comisión”, que analizará y recomendará lo pertinente en punto a las ofertas recibidas en los procedimientos de licitación pública y licitación abreviada.
+Articulo 2º—La Comisión estará integrada por el jefe de la Unidad de Gestión Administrativa, quien la presidirá el jefe de la Unidad Jurídica Interna, o en su defecto por los funcionarios que estos designen. Además, será parte de la comisión el funcionario coordinador del proceso de licitaciones. El presidente de la Comisión tendrá la potestad de designar en caso de que se considere necesario un representante de la oficina de la Contraloría General, que sea afín con el objeto a adjudicar, quien se integrará como miembro ad hoc de la comisión”.
