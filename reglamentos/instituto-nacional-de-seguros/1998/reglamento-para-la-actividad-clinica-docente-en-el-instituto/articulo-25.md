@@ -1,1 +1,3 @@
-Artículo 25.—Se generará por parte de la Entidad Docente y el Instituto Nacional de Seguros un informe anual que incluirá los datos sobre actividades docentes y cualquier otra información que se considere relevante para la evaluación de los programas y actividades clínicas docentes que se efectúan en el Instituto Nacional de Seguros.
+CAPÍTULO IX
+De la vigencia
+Artículo 25.—Cualquier modificación a alguno de los artículos existentes o la inclusión de uno nuevo, deberá contar con el aval de la Junta Directiva del INS.

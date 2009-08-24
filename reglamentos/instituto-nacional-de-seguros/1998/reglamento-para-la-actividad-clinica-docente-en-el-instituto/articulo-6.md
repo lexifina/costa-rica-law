@@ -1,4 +1,4 @@
-CAPITULO IV
-De los derechos de los pacientes en relación al proceso
-de enseñanza y/o práctica de observación
-Artículo 6°—En la actividad clínica, en relación al proceso de enseñanza, los profesores y estudiantes de la entidad docente, deben ser respetuosos de los derechos y de la dignidad del paciente, guardando el secreto profesional.
+CAPÍTULO III
+De los procedimientos
+Artículo 6º—La autorización del INS para que los estudiantes lleven a cabo la práctica de observación no genera relación contractual ni laboral entre el INS y los estudiantes. De previo al inicio de la Práctica de Observación, la Entidad docente deberá presentar ante el INS, representado por el Jefe del Servicio respectivo, constancia de las pólizas vigentes de Responsabilidad Civil Profesional y póliza de Riesgos del Trabajo (Practicantes y Aprendices) de cada uno de los estudiantes, las cuales deben estar vigentes durante todo el período en que el estudiante curse el proceso de enseñanza o práctica de observación.
+Bajo ninguna circunstancia los estudiantes no podrán recibir atención médica, medicamentos o cualquier otro examen que ameriten por enfermedad, salvo casos en que la causa sea amparada por alguno de los regímenes de seguro obligatorio administrados por el INS.

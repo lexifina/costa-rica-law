@@ -1,1 +1,1 @@
-Artículo 19.—El funcionario responsable de cada estudiante deberá controlar el uso adecuado del equipo, materiales e instalaciones que se utilicen y verificar su inventario.
+Artículo 19.—Las actividades de enseñanza deberán ejecutarse tomando en consideración las condiciones propias de cada servicio, según su naturaleza. En razón de ello los trabajos finales que presenten los estudiantes, deben guardar relación con éstos; pero además, que los tópicos deberán ser sean de utilidad o sirvan para fortalecer los servicios de salud del INS.

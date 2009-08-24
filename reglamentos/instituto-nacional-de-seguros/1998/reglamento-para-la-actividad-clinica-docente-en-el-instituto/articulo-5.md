@@ -1,3 +1,1 @@
-CAPITULO III
-De los procedimientos
-Artículo 5°—La Entidad docente presentará ante el Instituto Nacional de Seguros, representado por el Jefe del Servicio respectivo, copia de las pólizas de Responsabilidad Civil Profesional de cada uno de los estudiantes, cuando el caso lo amerite.
+Artículo 5º—El horario de los programas académicos deberá cumplirse tal como fue aprobado por el INS. En caso de que fuere necesario algún cambio, deberá convenirse entre las partes (los jefes de servicio, los coordinadores de enseñanza de la entidad docente y el profesor) con al menos veinticuatro horas de anticipación.

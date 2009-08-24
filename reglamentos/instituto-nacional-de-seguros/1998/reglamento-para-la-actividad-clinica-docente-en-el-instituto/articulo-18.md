@@ -1,1 +1,1 @@
-Artículo 18.—Las actividades de enseñanza deberán ejecutarse tomando en consideración las condiciones propias de cada servicio, según su naturaleza.
+Artículo 18.— La Entidad Docente se compromete a enviar estudiantes de otras materias, para que ayuden en proyectos relacionados en salud, educación para la salud, prevención, estadística, extensión y seguimiento al hogar, y otras de interés cuando el Instituto lo requiera. Dichos estudiantes estarán sujetos a las condiciones del presente Reglamento, en lo que resulte aplicable.

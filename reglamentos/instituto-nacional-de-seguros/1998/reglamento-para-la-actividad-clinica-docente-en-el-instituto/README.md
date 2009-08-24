@@ -14,3 +14,4 @@ Reglamento para la Actividad Clínica docente en el Instituto Nacional de Seguro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-30 | la propia norma |
+| 2 | 2009-08-24 | Reglamento 8963 (2009-08-24) |

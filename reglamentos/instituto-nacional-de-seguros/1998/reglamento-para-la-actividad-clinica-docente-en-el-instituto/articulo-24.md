@@ -1,3 +1,2 @@
-CAPITULO VIII
-Del sistema de información sobre actividades clínicas
-Artículo 24.—Para realizar sus funciones de programación, control y evaluación de las actividades clínicas docentes efectuadas en el Instituto Nacional de Seguros, éste podrá solicitar en forma periódica a la entidad docente la información que con tales propósitos considere pertinente sobre los proyectos que se lleven en conjunto.
+Artículo 24.—Dicho informe contemplará la evaluación anual de los resultados de las prácticas, con el propósito de introducir los cambios y ajustes que fueren necesarios en los programas teóricos y prácticos, para mejorar la formación del profesional y adecuarla a las realidades y necesidades del país, según las políticas institucionales en el área de la salud, siempre y cuando no se afecte la autonomía universitaria.
+Lo anterior deberá entenderse sin perjuicio de la libertad de enseñanza.

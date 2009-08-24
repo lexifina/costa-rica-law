@@ -1,3 +1,1 @@
-Artículo 23.—En tanto el Instituto Nacional de Seguros no cuente con el espacio físico suficiente no se permitirá el parqueo de vehículos de los estudiantes y profesores en los actuales parques.
-En el momento en que exista la disponibilidad de parqueo, se comunicará a la Entidad Docente, a fin de coordinar lo relativo a las autorizaciones respectivas.
-En ese mismo sentido, en tanto el Instituto Nacional de Seguros no cuente con aulas para que se impartan lecciones a los estudiantes, no se autorizará el uso de la sala de reuniones u otras áreas para tal fin. En el momento en que en Instituto cuente con las áreas adecuadas para impartir lecciones, se comunicará a la Entidad Docente.
+Artículo 23.—Se generará por parte de la Entidad Docente y el INS un informe anual que incluirá los datos sobre actividades docentes y cualquier otra información que se considere relevante para la evaluación de los programas y actividades clínicas docentes que se efectúan en el INS.

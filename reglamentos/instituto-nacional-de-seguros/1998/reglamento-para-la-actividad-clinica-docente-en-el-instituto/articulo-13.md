@@ -1,2 +1,6 @@
-Artículo 13.—Los estudiantes y profesores de la Entidad Docente podrán hacer uso, cuando así se autorice y el proceso de enseñanza lo requiera, del equipo, materiales e instalaciones del Instituto Nacional de Seguros, directamente relacionados con la normal utilización de la actividad clínica docente, únicamente dentro de las instalaciones del servicio al que pertenecen y durante el horario establecido. De comprobarse que una persona ha hecho uso incorrecto del equipo, materiales o instalaciones, como medida cautelar se le impedirá el ingreso a las instalaciones del Instituto Nacional de Seguros, independientemente de las sanciones administrativas o penales que pudieran proceder.
-Es responsabilidad de los profesores velar por el fiel cumplimiento de esta disposición.
+Artículo 13.— La Entidad Docente deberá reportar anticipadamente el nombre de cada estudiante que asista a realizar las prácticas de observación y a participar de los procesos de enseñanza. Este estudiante deberá contar con los siguientes requisitos:
+- Ser estudiante reconocido de la Entidad Docente.
+- Ser respetuoso por las normas y procedimientos de la Entidad Docente.
+- Capaz de acatar con responsabilidad las obligaciones y deberes expuestos en el Capítulo X de este Reglamento y en todos sus incisos.
+- No haber incumplido nunca con los deberes y obligaciones descritos en el Capítulo X de este Reglamento, en todos sus incisos.
+- Estar cubierto por póliza de Responsabilidad Civil Profesional y otra de Riesgos del Trabajo.
