@@ -1,0 +1,1 @@
+Artículo 10.—Para implementar las acciones fitosanitarias en las zonas declaradas de emergencia, el Servicio Fitosanitario del Estado (SFE) podrá adquirir los implementos necesarios para realizar esta acción como lo son trampas, cebos desinfectantes y herramientas opcionales, las cuales se determinarán conforme al plan de acción que el SFE elaborará para el caso.

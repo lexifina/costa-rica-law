@@ -1,0 +1,1 @@
+Artículo 11.—Las instituciones públicas, autónomas o semi-autónomas, así como los entes privados quedan facultadas para realizar donaciones y aportes económicos dentro del marco legal de referencia que rige a cada una de ellas, así como prestar todo tipo de colaboración al Servicio Fitosanitario del Estado, para atender esta emergencia fitosanitaria.

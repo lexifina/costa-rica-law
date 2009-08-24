@@ -1,0 +1,1 @@
+Artículo 8º—Se establece como medida obligatoria para el personal que manipule cebos y trampas de golpe (ratoneras), el uso de guantes y mascarillas tapabocas. Y cuando se realicen disecciones exploratorias de hembras para determinar futuras progenies, además deberá realizarse un lavado y desinfección de manos.

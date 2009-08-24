@@ -1,0 +1,1 @@
+Artículo 12.—El Estado de emergencia fitosanitaria se prolongará por el tiempo necesario hasta que se logre controlar o llevar a niveles de umbral económico no perjudiciales a la agricultura afectada por la plaga conocida como Rata de Campo o hasta por un período máximo de un año a partir de la publicación de este Decreto.
