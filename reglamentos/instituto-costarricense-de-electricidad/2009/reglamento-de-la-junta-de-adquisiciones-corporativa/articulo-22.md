@@ -1,0 +1,1 @@
+Artículo 22.—De conformidad con el artículo 91 de la Ley General de la Administración Pública, el Consejo Directivo del ICE y las Juntas Directivas de las empresas mantendrán la obligación de vigilar la gestión de la Junta de Adquisiciones Corporativa, lo cual lo hará mediante un sistema de control interno.
