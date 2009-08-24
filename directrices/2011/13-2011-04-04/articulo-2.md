@@ -1,0 +1,2 @@
+Artículo 2º—Rige: Se le otorga efectos retroactivos a la presente directriz al 24 de agosto de 2009, que es la fecha de la instrucción Nº 16-2009, dado que desde ese entonces existían los motivos para su adopción y fue aplicada en beneficio de personas concretas, sin que la presente retroactividad lesione derechos e intereses de terceros de buena fe.
+Dada en San José.—Despacho de la Ministra de Trabajo y Seguridad Social, a las quince horas del cuatro de abril del dos mil once.
