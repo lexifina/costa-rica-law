@@ -1,0 +1,1 @@
+Artículo 3º—Fortalecer las capacidades cuarentenarias para aumentar la vigilancia que se deba realizar en los puertos de entrada al país como los aeropuertos, puertos marítimos y puestos fronterizos, implementando lo dispuesto en el artículo 2º del presente Decreto, e instruyendo al personal sobre la enfermedad.
