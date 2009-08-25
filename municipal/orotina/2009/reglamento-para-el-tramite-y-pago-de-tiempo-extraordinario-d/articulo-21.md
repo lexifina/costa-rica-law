@@ -1,0 +1,2 @@
+Artículo 21.—Preferiblemente toda jornada extraordinaria requerida, deberá ser laborada por el personal nombrado en la Unidad que lo solicita, con el objeto de que no sean personas ajenas a ella y evitar el desconocimiento de la labor general que se va a efectuar, salvo que exista una justificación calificada de los titulares que lo impida, para lo cual se escogerá personal idóneo con experiencia en la labor pretendida dentro del personal de los demás departamentos.
+Orotina, 13 de agosto del 2009
