@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De la prohibición de la actividad informal y la vigencia
+Artículo 25.—Prohibición de la actividad informal. Queda prohibido a cualquier persona física, dedicarse a la actividad lucrativa de vigilancia de vehículos en las vías públicas del cantón de Escazú. La municipalidad no otorgará licencias comerciales para la explotación de dicha actividad lucrativa. Quien contravenga lo dispuesto en la presente norma deberá ser retirado de inmediato de la vía pública por parte de la Policía. En caso de reincidir en la actividad informal aquí prohibida, será denunciado por delito de Desobediencia a la Autoridad y la contravención de realización de actividades lucrativas sin licencia municipal, tipificado en el Código Penal.

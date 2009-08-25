@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los inspectores de estacionamientos y colaboradores
+Artículo 14.—De los inspectores. La Municipalidad por medio de los agentes especializados con cargo del inspector de estacionamiento, velarán por el cumplimiento de las normas establecidas en las leyes y el presente reglamento. Resguardarán los intereses municipales en el correcto cumplimiento del pago de la tarifa establecida, reportarán los vehículos que infrinjan la ley y este reglamento e impondrán la multa respectiva y cuando amerita, el funcionario de rango superior a cargo de la DEM, pasará los casos al juzgado de tránsito competente.

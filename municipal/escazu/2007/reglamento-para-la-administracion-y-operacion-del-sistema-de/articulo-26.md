@@ -1,0 +1,1 @@
+Artículo 26.—De la Vigencia. Conforme al artículo 43 del Código Municipal, se somete a consulta pública no vinculante el presente Proyecto de Reglamento, por un plazo de diez días hábiles a partir de la publicación en el Diario Oficial La Gaceta. Regirá una vez aprobado por el Consejo y publicado en La Gaceta.

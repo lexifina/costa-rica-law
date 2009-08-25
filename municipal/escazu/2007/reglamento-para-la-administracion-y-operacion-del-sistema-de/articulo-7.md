@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las tarifas, horario, tipo de permiso y sistemas de cobro
+Artículo 7º—Determinación de las tarifas. La Municipalidad por medio de la DE, determinara el monto de las tarifas por lapso de tiempo. El estudio tarifar se presenta al Despacho del Alcalde quien determina su vialidad, las tarifas entrarán a regir siguiendo el procedimiento técnico y legal. Los vehículos de dos o más ruedas que sean estacionados en espacios debidamente demarcadas como Zonas de Estacionamiento Autorizado pagarán un monto de trescientos cincuenta colones por hora, o el valor proporcional, de acuerdo al tiempo que el interesado prevea estacionar. Las tarifas se revisaran al menos una vez al año, conforme al procedimiento que establece este artículo.

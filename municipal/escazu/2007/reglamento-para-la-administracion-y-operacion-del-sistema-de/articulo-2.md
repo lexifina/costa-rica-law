@@ -1,0 +1,1 @@
+Artículo 2º—De la Asistencia Técnica del MOPT. Para el diseño del sistema y, en la ejecución, para el control del mismo, la DEM contará con la asesoría y estrecha colaboración de la dependencia del Ministerio de Obras Públicas y Transportes-MOPT.

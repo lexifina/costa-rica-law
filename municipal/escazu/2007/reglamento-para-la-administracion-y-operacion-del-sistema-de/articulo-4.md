@@ -1,0 +1,1 @@
+Artículo 4º—De las Dimensiones y demarcación de plaza de San Rafael. A cada zona de estacionamiento se le demarcará claramente el área dentro de la cual deberán estacionarse los vehículos. El área o espacio para el estacionamiento de los vehículos no podrá ser menor a cinco metros de largo por dos de ancho.
