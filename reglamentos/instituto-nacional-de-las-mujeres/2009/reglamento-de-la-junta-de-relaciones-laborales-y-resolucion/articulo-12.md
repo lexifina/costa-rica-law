@@ -1,0 +1,3 @@
+Artículo 12.—Convocatoria. La Junta de Relaciones Laborales y de Resolución de Conflictos será convocada ordinariamente por la Presidencia dos veces al mes y extraordinariamente, por al menos la mitad de sus miembros, siempre respetando su naturaleza bipartita y paritaria.
+Para las sesiones extraordinarias la convocatoria respectiva será elaborada por la Presidencia en conjunto con la Secretaría y tramitada por esta última con al menos 24 horas de antelación. En ella se detallarán los asuntos a tratar para cada sesión.
+La sede de las sesiones ordinarias y extraordinarias de la Junta de Relaciones Laborales y de Resolución de Conflictos, serán las instalaciones del INAMU.

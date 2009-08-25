@@ -1,0 +1,1 @@
+Artículo 13.—Quórum. El quórum para sesionar será de tres integrantes, siempre respetando la naturaleza bipartita de la Junta de Relaciones Laborales y de Resolución de Conflictos. En caso de que una persona propietaria no pueda asistir, la sustituirá una suplente.

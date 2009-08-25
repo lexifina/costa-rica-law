@@ -1,0 +1,1 @@
+Artículo 5º—Nombramiento. Las personas miembras de la Junta de Relaciones Laborales y de Resolución de Conflictos serán nombradas directamente por la Asamblea de afiliadas y afiliados de la Seccional de ANEP y por la Presidencia Ejecutiva del INAMU, según sea del caso.

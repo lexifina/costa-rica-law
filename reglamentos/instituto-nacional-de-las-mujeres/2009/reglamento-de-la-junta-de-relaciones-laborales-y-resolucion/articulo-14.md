@@ -1,0 +1,3 @@
+Artículo 14.—Votación. Las decisiones, acuerdos o resoluciones, serán adoptadas, por mayoría simple de la totalidad de las personas que conforman la Junta de Relaciones Laborales y de Resolución de Conflictos. Todas las votaciones serán nominales, tanto las a favor como en contra. No existe la abstención y en caso de empate, quien ostente la presidencia tendrá doble voto.
+Los acuerdos adquirirán firmeza en forma inmediata y serán comunicados por la persona que ocupe la secretaría en los siguientes cinco días hábiles.
+Si por caso fortuito o fuerza mayor, se pospusiera la resolución de un caso, el asunto deberá decidirse dentro de los próximos tres días hábiles.

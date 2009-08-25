@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza. La Junta de Relaciones Laborales y de Resolución de Conflictos es un órgano bipartito, paritario y permanente, en el que se integran la Administración del INAMU y las organizaciones sindicales acreditadas ante el INAMU. Actuará con absoluta independencia de criterio y equilibrio de intereses por parte de quienes la integren.

@@ -1,0 +1,1 @@
+Artículo 23.—Prescripción y caducidad. Mientras los asuntos estén en trámite ante la Junta de Relaciones Laborales y de Resolución de Conflictos, no correrán los términos de prescripción y caducidad que pudieran afectarles, para todos los efectos legales.
