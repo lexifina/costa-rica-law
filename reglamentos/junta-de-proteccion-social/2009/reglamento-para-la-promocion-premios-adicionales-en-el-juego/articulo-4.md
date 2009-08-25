@@ -1,0 +1,1 @@
+Artículo 4º—Caducidad de los premios adicionales: Los premios adicionales caducarán de conformidad con lo establecido en el artículo 18 de la Ley Nº 8718, dentro del plazo de sesenta (60) días naturales contados a partir del día hábil siguiente del sorteo.

@@ -1,0 +1,2 @@
+Artículo 8º—Realización del sorteo:
+1) Los días sábados durante el programa de La Rueda de la Fortuna, o en el lugar que se establezca, se realizará el sorteo ante los fiscalizadores de la Junta y el funcionario Judicial, quienes se encargarán de seleccionar de los comprobantes de las diferentes llamadas al “Call Center” a dos distintas personas ganadoras del Premio adicional. La Gerencia de la Junta podrá autorizar cuando lo considere conveniente, la utilización de una tómbola electrónica, en vez de los comprobantes impresos de las diferentes llamadas al “Call Center”

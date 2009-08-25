@@ -1,0 +1,1 @@
+Artículo 5º—Publicidad: La Junta se reserva el derecho de utilizar para efectos publicitarios la imagen de las personas ganadoras de los premios adicionales, sin que esto ocasione un costo o gasto adicional para la Junta.
