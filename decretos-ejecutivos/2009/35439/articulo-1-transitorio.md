@@ -1,0 +1,1 @@
+Transitorio I.—El Teatro Nacional contará con el plazo máximo de doce meses contado a partir de la entrada en vigencia de este Reglamento para emitir los reglamentos específicos de funcionamiento de los diferentes departamentos y unidades institucionales.
