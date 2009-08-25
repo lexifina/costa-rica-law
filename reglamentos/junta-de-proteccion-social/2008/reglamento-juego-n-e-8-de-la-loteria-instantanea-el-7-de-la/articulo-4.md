@@ -1,0 +1,1 @@
+Artículo 4º—Caducidad: La Junta de Protección Social no pagará premios después de sesenta días naturales contados a partir del día hábil siguiente en que oficialmente se anuncie la finalización del respectivo juego.
