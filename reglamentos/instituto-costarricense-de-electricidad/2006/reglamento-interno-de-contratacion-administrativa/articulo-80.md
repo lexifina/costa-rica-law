@@ -1,1 +1,0 @@
-Artículo 80.—La Proveeduría debe analizar todos los documentos adicionales existentes en poder de la Contraloría General de la República en conjunto con el Área Técnica (CCA-AC) y la División de Contratación Administrativa del ICE, antes de la audiencia final.

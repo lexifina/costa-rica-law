@@ -1,2 +1,0 @@
-Artículo 16.—Cuando surja una necesidad no prevista, el Programa Anual de Compras podrá ser modificado siguiendo el mismo procedimiento que se indica en el artículo anterior, para lo cual deberán adjuntarse las justificaciones pertinentes.
-Las contrataciones que no estén amparadas al Programa Anual de Compras original o modificado, no serán tramitadas por la Dirección de Proveeduría. Se excluyen de la publicación de este artículo los casos de emergencia o excepción, que sean autorizados por la Administración Superior.

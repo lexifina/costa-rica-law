@@ -1,1 +1,0 @@
-Artículo 14.—Los Programas de compras deben contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto a inicio y adjudicación de procesos de adquisición de bienes y servicios para presupuestos futuros, según lo establecido en el artículo 9 del Reglamento a la Ley de Contratación Administrativa.

@@ -1,5 +1,0 @@
-CAPÍTULO III
-Coordinadores de la Contratación Administrativa (CCA)
-Artículo 6º—Funcionarios propuestos por la Presidencia Ejecutiva, Secretaría de Consejo Directivo, Gerencia General, las Subgerencias, la Auditoría Interna ó los directores de UEN´s, Direcciones Administrativas o jefes de las Áreas adscritas a la Gerencia General o Presidencia Ejecutiva, cuyo nombramiento deberá ser avalado por la Subgerencia correspondiente, Presidencia Ejecutiva o Gerencia General, según el Área o Sector al que pertenezca. Dependerá directamente del Director o jefatura del Área correspondiente.
-En aquellas áreas en que sea considerable el volumen o importancia de las compras que realizen, se podrá definir más de un CCA, o bien, deberá dedicarse a las labores anteriormente descritas a tiempo completo. Será potestad de la Administración Superior correspondiente, velar por el cumplimiento de esta disposición.
-(Corregido el párrafo anterior mediante Fe de Erratas, publicada en La Gaceta N° 19 del 26 de enero de 2007)

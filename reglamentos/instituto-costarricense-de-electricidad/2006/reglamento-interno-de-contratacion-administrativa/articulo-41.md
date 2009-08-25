@@ -1,1 +1,0 @@
-Artículo 41.—Una vez aportada la información indicada en el artículo anterior, la Proveeduría dejará evidencia de la resolución de prorrogar, en el expediente correspondiente, y al menos con cinco días anteriores al vencimiento de la fecha máxima para adjudicar.

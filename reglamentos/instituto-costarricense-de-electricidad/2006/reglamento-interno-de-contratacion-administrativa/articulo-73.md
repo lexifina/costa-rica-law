@@ -1,1 +1,0 @@
-Artículo 73.—Recibidos los criterios del Área Técnica (CCA-AC) y de la División de Contratación Administrativa del ICE, la Dirección de Proveeduría contará con un plazo máximo de tres días hábiles siguientes a la recepción de la documentación para emitir su recomendación y elevarla al órgano competente.

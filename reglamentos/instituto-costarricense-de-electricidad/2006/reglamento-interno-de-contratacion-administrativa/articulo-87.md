@@ -1,1 +1,0 @@
-Artículo 87.—La interposición de recursos en contra de la resolución final emitida por la Subgerencia, no suspenderá la aplicación de la sanción; salvo cuando ésta considere que la misma pueda causar perjuicios graves de imposible o difícil reparación.

@@ -1,1 +1,0 @@
-Artículo 85.—Una vez recibidos los descargos del contratista, los mismos serán remitidos al AC para que en coordinación con el CCA, se pronuncien con respecto a dichas pruebas, en un plazo de 3 días hábiles.

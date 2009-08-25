@@ -1,1 +1,0 @@
-Artículo 21.—La documentación que se presente para incorporar al Registro de Proveedores podrá ser utilizada en cualesquiera de los procesos de adquisiciones y deberá ser entregada en la Dirección de Proveeduría.
