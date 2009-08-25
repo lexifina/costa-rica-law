@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-13 | la propia norma |
+| 2 | 2009-08-25 | Decreto Ejecutivo 35481 (2009-08-25) |

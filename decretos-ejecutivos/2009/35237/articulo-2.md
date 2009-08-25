@@ -14,3 +14,6 @@ ACTIVIDADES CENTRALES
 Registro Contable: 215-814-00
 CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
 [imagen]
+(Mediante el artículo 1° del decreto ejecutivo N° 35481 del 25 de agosto de 2009, se modifica este artículo de la siguiente forma: "...
+Modifíquese parcialmente el artículo 2° del Decreto Ejecutivo Nº 35237, publicado en La Gaceta N º 91 del día 13 de mayo del 2009, en la forma que se indica a continuación:
+“…Consejo Nacional de Vialidad (CONAVI) (Para la mitigación de los daños ocasionados en las rutas nacionales por los eventos naturales que generaron las declaratorias de emergencia realizadas mediante los Decretos Ejecutivos Nº 34553, Nº 34742, Nº 34906, Nº 34973, Nº 34993 y Nº 35053, realizando la rehabilitación y reconstrucción de las rutas nacionales ubicadas en las zonas afectadas. Recursos provenientes del contrato de préstamo Nº 7594-CR y sus anexos, entre la República de Costa Rica y el Banco Internacional de Reconstrucción y Fomento (BIRF), Ley N° 8711)")
