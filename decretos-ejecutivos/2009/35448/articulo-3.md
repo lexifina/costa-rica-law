@@ -1,0 +1,2 @@
+CAPÍTULO II
+Artículo 3º—De la convocatoria al concurso. El Ministerio de Obras Públicas y Transportes y el Consejo de Transporte Público, licitará por medio del presente concurso un total de 1034 concesiones administrativas de taxi, según la distribución por bases de operación señaladas en el artículo 1º del capítulo I de este Reglamento, de conformidad con lo indicado en el artículo 30 de la Ley Nº 7969.

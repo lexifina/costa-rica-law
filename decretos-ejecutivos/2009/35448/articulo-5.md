@@ -1,0 +1,1 @@
+Artículo 5º—Del formulario para la oferta. El formulario se considerará parte integral de la oferta y se deberá llenar por parte del oferente en forma clara y adjunta con los requisitos que comprueben la información señalada.

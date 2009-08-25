@@ -1,0 +1,1 @@
+Artículo 11.—Derechos de los concesionarios. Los concesionarios del servicio de transporte público modalidad de taxi, tendrán el derecho a exonerar su vehículo de conformidad con el artículo 60 de la Ley Nº 7969.
