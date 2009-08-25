@@ -14,3 +14,4 @@ Reglamento Regulador de la Vigilancia de Calles, Avenidas, Carreteras y Caminos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-27 | la propia norma |
+| 2 | 2009-08-25 | Decreto Ejecutivo 35532 (2009-08-25) |
