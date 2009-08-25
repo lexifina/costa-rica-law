@@ -14,3 +14,4 @@ Reglamento del Cuerpo de Delegados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-13 | la propia norma |
+| 2 | 2009-08-25 | Reglamento 13 (2009-08-25) |
