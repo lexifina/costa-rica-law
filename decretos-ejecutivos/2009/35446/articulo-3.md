@@ -1,0 +1,2 @@
+Artículo 3º—Refórmese el primer párrafo del artículo 13 del Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Decreto Ejecutivo Nº 32475-MEIC del 18 de mayo del 2005, publicado en el Diario Oficial La Gaceta Nº 146 del 29 de julio del 2005, para que en lo sucesivo se lea de la siguiente manera:
+“(…) Artículo 13.—Del Departamento de Defensa Comercial. Este Departamento tendrá en materia de comercio desleal, medidas de salvaguardias y en transparencia comercial las siguientes funciones (…)”.
