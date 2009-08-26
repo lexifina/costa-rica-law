@@ -1,0 +1,6 @@
+7. Legislación
+7.1. El Contratista tomará todas las precauciones necesarias para la seguridad en el trabajo. Cumplirá todas las leyes y reglamentos de seguridad y previsión sociales, con el fin de evitar accidentes o daños a las personas que se encuentran en el lugar donde se efectúan los trabajos o cerca del mismo.
+7.2. El Contratista debe cumplir con la legislación vigente del país en materia laboral y Salud Ocupacional, así como cumplir con las normativas dictadas en la Ley de Riesgos 6727 del Instituto Nacional de Seguros, según se indica en el Reglamento General de los Riesgos de Trabajo.
+7.3. El Contratista asume todas las obligaciones que establecen el Código de Trabajo y las leyes laborales vigentes, así como las cargas sociales correspondientes a este código.
+7.4. El Contratista actuará como patrono en relación con todo el personal que intervenga en el proceso de ejecución de los trabajos. Entre ese personal y el Banco Popular no existirá ninguna relación laboral.
+7.5. El Contratista asumirá los costos por daños en equipos e instalaciones causados en el transcurso de los trabajos para lo cual deberá suscribir una “Póliza de Todo Riesgo de Construcción y Montaje” que cubra estos aspectos entregando copia de la misma al Banco Popular.
