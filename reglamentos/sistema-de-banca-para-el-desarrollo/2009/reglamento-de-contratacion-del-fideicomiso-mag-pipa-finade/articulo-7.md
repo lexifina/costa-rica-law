@@ -1,0 +1,1 @@
+Artículo 7º—De la Contratación Especial. Se utilizará el procedimiento de Contratación Especial, para contrataciones hasta la suma de ¢10.000.000, será competente para adjudicar el COMITÉ ESPECIAL DEL FINADE y será necesario la invitación a mínimo tres oferentes.

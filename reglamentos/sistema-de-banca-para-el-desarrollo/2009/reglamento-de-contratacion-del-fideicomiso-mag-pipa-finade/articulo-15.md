@@ -1,0 +1,1 @@
+Artículo 15.—De los recursos. La adquisición de los bienes y servicios que se realicen al amparo del presente reglamento, se cubrirán con el patrimonio del Fideicomiso, de acuerdo al Presupuesto Anual Operativo aprobado por la Contraloría General de la República para el Fideicomiso FINADE.

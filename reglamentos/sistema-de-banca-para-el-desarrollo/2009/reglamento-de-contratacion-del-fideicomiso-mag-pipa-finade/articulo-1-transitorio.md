@@ -1,0 +1,1 @@
+Transitorio I.—Hasta tanto no se conforme el Registro de Proveedores del Fideicomiso MAG -PIPA/FINADE, se autoriza a la Unidad Técnica de dicho Fideicomiso a solicitar colaboración al Banco Fiduciario a fin de que facilite su Registro de Proveedores

@@ -1,0 +1,4 @@
+Artículo 13.—Prohibiciones. Queda total y absolutamente prohibida la participación en los procesos de contratación que promueva EL FIDEICOMISO:
+a. Los miembros del COMITÉ ESPECIAL DEL FINADE y del Consejo Rector del Sistema para Banca para el Desarrollo, Secretaría Técnica del Consejo Rector, el Director Ejecutivo del Fideicomiso MAG-PIPA/FINADE y el personal de la Unidad Técnica del MAG-PIPA/FINADE.
+b. El cónyuge, el compañero o la compañera en la unión de hecho, de los funcionarios cubiertos por la prohibición, así como sus parientes por consanguinidad o afinidad hasta el tercer grado inclusive.
+c. Las personas jurídicas en las cuales el cónyuge, el compañero, la compañera o los parientes indicados en el inciso anterior, sean titulares de más de un veinticinco por ciento (25%) del capital social o ejerzan algún puesto de dirección o representación.

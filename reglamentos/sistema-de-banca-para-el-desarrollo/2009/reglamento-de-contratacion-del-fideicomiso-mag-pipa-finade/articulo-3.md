@@ -1,0 +1,1 @@
+Artículo 3º—Actividad de adquisición de bienes y servicios. La Unidad Técnica del Fideicomiso MAG-PIPA/FINADE es la dependencia autorizada para tramitar la contratación de los bienes y servicios que se adquieran al amparo del presente Reglamento.

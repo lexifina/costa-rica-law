@@ -1,0 +1,1 @@
+Artículo 16.—Del Registro de Proveedores. La Unidad Técnica del Fideicomiso MAG-PIPA/FINADE, conformará un Registro de Proveedores a fin de contar con la información necesaria para la adquisición de los bienes y servicios que requiera el Fideicomiso, para lo cual publicará en un medio de circulación nacional la invitación a formar parte de dicho Registro.
