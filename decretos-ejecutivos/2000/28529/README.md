@@ -27,3 +27,4 @@ Reglamento a la Ley de Loterías.
 | 12 | 2007-07-16 | Decreto Ejecutivo 33945 (2007-07-16) |
 | 13 | 2007-10-16 | Decreto Ejecutivo 34102 (2007-10-16) |
 | 14 | 2008-01-28 | Decreto Ejecutivo 34626 (2008-01-28) |
+| 15 | 2009-08-26 | SINALEVI (sin norma nombrada) |
