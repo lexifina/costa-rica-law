@@ -1,1 +1,0 @@
-Artículo 21.— Se deroga la resolución DG-008-94 de las nueve horas del treinta y uno de enero de mil novecientos noventa y cuatro. No obstante lo anterior, los contratos y addendums suscritos con anterioridad a la presente resolución conservarán su validez y eficacia.

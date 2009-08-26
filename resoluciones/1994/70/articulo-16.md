@@ -1,1 +1,0 @@
-Artículo 16.—Las Oficinas de Recursos Humanos deben velar por el cumplimiento de las disposiciones establecidas en la presente resolución y en los contratos respectivos, sin perjuicio de la intervención que al respecto pueda hacer el Departamento de Auditoria Administrativa de la Dirección General de Servicio Civil cuando lo estime conveniente.

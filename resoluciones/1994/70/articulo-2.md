@@ -1,2 +1,0 @@
-Artículo 2°—Los ministerios y demás órganos del Poder Ejecutivo, comprendidos en el Régimen de Servicio Civil, podrán otorgar la compensación económica definida en el párrafo siguiente, a aquellos servidores cuya naturaleza del puesto que desempeñan así lo amerite.
-Para tales efectos se otorgarán porcentajes, sobre el salario base, de un 20% para los que poseen el grado académico de Bachiller Universitario y un 55% para los que ostenten el grado de licenciatura u otro superior.

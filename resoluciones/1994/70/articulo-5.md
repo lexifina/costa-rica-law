@@ -1,1 +1,0 @@
-Artículo 5°—El contrato que se menciona en el artículo anterior deberá esta confeccionado en un original que se conservará en la Institución contratante y dos copias, una para el servidor y la otra para la Oficina de la Dirección General de Servicio Civil correspondiente.
