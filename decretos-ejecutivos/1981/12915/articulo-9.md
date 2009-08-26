@@ -1,1 +1,1 @@
-Artículo 9—Quienes durante el curso renuncien a nombramiento en propiedad, obtenido por concurso público para el curso lectivo de que se trate, nombra- miento interino o sustituto no podrán ser nombrados para ningún otro puesto con carácter de interno o sustituto durante el mismo curso lectivo.
+Artículo 9— Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 13590 del 26 de agosto de 2009.)
