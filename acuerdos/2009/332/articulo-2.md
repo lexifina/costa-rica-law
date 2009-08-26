@@ -1,0 +1,1 @@
+2. Objetivo. Establecer un procedimiento de excepción para el manejo de medicamentos psicotrópicos y estupefacientes en situaciones de emergencia o desastre en los establecimientos de la Caja Costarricense del Seguro Social, a partir de la activación del Plan Nacional de Emergencias de los establecimientos de salud.
