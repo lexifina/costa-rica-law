@@ -1,0 +1,1 @@
+Artículo 23.—Aprobación de Planes de Acción. El Alcalde Municipal como presidente de la CICI, trasladará el “Informe de resultados de la autoevaluación” con el o los respectivos “Planes de Acción” al Concejo para que este lo conozca, establezca la prioridad presupuestaria de las acciones consideradas en los “Planes” y apruebe la implementación de las mismas.

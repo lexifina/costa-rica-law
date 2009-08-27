@@ -1,0 +1,1 @@
+Artículo 32.—Competencia para declarar responsabilidades. Las sanciones previstas serán impuestas por el órgano que ostente la potestad disciplinaria, de acuerdo con la normativa que resulte aplicable.

@@ -1,0 +1,1 @@
+Artículo 7º—Objetivo de la CICI. Apoyar y coordinar el proceso de control interno institucional, a partir de las políticas y directrices del Jerarca con el apoyo del Departamento de Control Interno de la Municipalidad de Upala.

@@ -1,0 +1,1 @@
+Artículo 27.—Objetivo de la Valoración del Riesgo Institucional. Garantizar y facilitar el cumplimiento de la misión, objetivos y metas institucionales, mediante la prevención y administración de los riesgos que se pueden presentar en los diferentes niveles operativos de la organización procesos, áreas, sectores, actividades o tareas.
