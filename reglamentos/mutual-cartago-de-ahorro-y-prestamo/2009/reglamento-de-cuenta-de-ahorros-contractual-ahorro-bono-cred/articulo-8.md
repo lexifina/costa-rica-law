@@ -1,0 +1,2 @@
+Artículo 8º—Pago y cálculo de intereses. MUCAP determinará la forma de cálculo y las tasas de interés que devengará el cuenta ahorrante, de conformidad con el costo del dinero en el merca financiero nacional y según la naturaleza de cada modalidad de depósitos en cuenta de ahorros.
+Los intereses devengados se acreditarán en la cuenta de ahorros el primer día del mes siguiente a aquel en que fueron devengados.

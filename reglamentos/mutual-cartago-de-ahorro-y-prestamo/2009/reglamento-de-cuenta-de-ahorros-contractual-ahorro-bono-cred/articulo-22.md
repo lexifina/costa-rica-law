@@ -1,0 +1,3 @@
+Artículo 22.—Entrega de información. El ahorrante autoriza a MUCAP a entregar la información de la Cuenta de Ahorro ABC MUTUAL al ente rector, para la calificación al crédito hipotecario y subsidio del bono familiar de vivienda.
+En todo lo no previsto en el presente reglamento se aplicarán de forma supletoria todas las normas del Reglamento para los productos de Cuentas de Ahorros Contractuales, aprobado por la junta Directiva de la Mutual. Además aplicarán las reformas aprobadas por la junta Directiva de la Mutual a dicho reglamento.
+El presente reglamento fue aprobado en las sesiones 2683/2005 y 2695/2009, artículos 4° y 5°, de la junta Directiva, los días 26 de noviembre del 2008 y 04 de febrero del 2009, respectivamente

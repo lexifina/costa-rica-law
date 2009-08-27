@@ -1,0 +1,5 @@
+Artículo 18.—Documentos de la cuenta de ahorros. Los siguientes documentos permanecerán en custodia de la Mutual:
+A. Control de firmas. El “Control de Firmas” es un documento en el cual el ahorrante registra su firma al abrir su cuenta de ahorros.
+B. Solicitud de servicios financieros. La “Solicitud de Servicios Financieros” es un documento donde el ahorrante indica, bajo la fe de juramento que lo manifestado es cierto de conformidad con la Ley 8204 “Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas”, el cual deberá firmar de su puño y letra. Las personas físicas se identificarán presentando su cédula de identidad, pasaporte o cédula de residencia vigentes, y deberán entregar a MUCAP una fotocopia.
+C. El contrato. El contrato es el documento donde se establecen las condiciones bajo las cuales operará la cuenta de ahorros ABC MUTUAL.
+El contrato constará de dos originales que deberán ser firmados por el ahorrante y por un representante de MUCAP.

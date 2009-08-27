@@ -1,0 +1,2 @@
+Artículo 20.—Reposición del estado de cuenta o la libreta de ahorros. El Ahorrante podrá solicitar 1a reposición de su Estado de Cuenta o libreta de ahorros, presentando su documento de identidad en cualquiera de las agencias de MUCAP.
+Para todos los casos MUCAP cobrará al ahorrante el costo determinado para tales reposiciones, el cual será de $2 (o su equivalente en colones al tipo d cambio de venta) por documento.

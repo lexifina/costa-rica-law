@@ -1,0 +1,2 @@
+Artículo 10.—La garantía sobre los depósitos. Los saldos de las cuentas de ahorros ABC MUTUAL, tienen la garantía de la capacidad empresarial y de los activos de Mutual Cartago de Ahorro y Préstamo, además de la garantía subsidiaria e ilimitada del Estado costarricense a través del Banco Hipotecario de la Vivienda, esta última en los términos previstos en la respectiva reglamentación.
+Esta garantía está normada en la Ley del Sistema Financiero Nacional para la Vivienda en el artículo Nº 116, inciso c.

@@ -1,0 +1,2 @@
+Artículo 16.—Estado de cuenta o libreta de ahorros. Una vez aceptadas las condiciones contractuales por el ahorrante, este podrá solicitar a MUCAP un Estado de Cuenta Individual o una libreta de ahorros, donde se indicarán los datos básicos del cliente y de la cuenta.
+El ahorrante es responsable por el cuido y uso de sus documentos. MUCAP no asumirá responsabilidad alguna por el uso indebido o negligente que el ahorrante le dé.
