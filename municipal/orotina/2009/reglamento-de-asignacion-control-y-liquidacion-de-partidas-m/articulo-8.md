@@ -1,0 +1,1 @@
+Artículo 8º—Las oficinas de presupuesto y tesorería serán las encargadas de llevar el control de las partidas asignadas por la Municipalidad a las diferentes organizaciones, recibirá y revisará las liquidaciones que se den, para lo cual debe organizar un archivo donde se mantendrá un expediente con toda la información de cada una de ellas.

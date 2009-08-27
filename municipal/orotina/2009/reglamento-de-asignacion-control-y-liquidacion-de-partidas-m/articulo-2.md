@@ -1,0 +1,1 @@
+Artículo 2º—El proyecto debe ser remitido al Concejo Municipal, debidamente firmado por el síndico(a) del distrito más la firma del representante legal del centro educativo proponente del proyecto, a más tardar en la fecha indicada en el artículo anterior.

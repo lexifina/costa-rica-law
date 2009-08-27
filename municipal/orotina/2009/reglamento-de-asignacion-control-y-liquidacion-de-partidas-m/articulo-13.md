@@ -1,0 +1,1 @@
+Artículo 13.—En caso de incumplimiento a las anteriores obligaciones y responsabilidades la Municipalidad estará facultada para suspender provisional o permanentemente la asignación de partidas municipales previa garantía del debido proceso.
