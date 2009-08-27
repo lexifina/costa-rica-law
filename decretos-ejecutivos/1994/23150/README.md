@@ -14,3 +14,4 @@ Crea Refugio Nacional Vida Silvestre Camaronal, propiedad estatal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-02 | la propia norma |
+| 2 | 2009-08-27 | Decreto Ejecutivo 35530 (2009-08-27) |
