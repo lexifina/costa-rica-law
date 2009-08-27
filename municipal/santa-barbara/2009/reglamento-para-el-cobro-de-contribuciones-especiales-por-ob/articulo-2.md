@@ -1,0 +1,1 @@
+Artículo 2°—Sujeto pasivo para los efectos de este Reglamento es todo propietario o poseedor de un inmueble beneficiado con la construcción de una obra quien se constituirá en obligado al pago de la contribución especial aprobada con sustento en el Reglamento, contribución que se calculará en proporción a la medida frontal de su inmueble.
