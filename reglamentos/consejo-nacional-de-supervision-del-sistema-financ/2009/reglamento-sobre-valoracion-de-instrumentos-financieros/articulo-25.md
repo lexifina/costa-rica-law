@@ -1,0 +1,2 @@
+Artículo 25.—Responsabilidad por la valoración y contratación de terceros. El proceso de valoración debe llevarse a cabo con estricto apego a los precios que resulten de la metodología registrada.
+La entidad supervisada puede contratar los servicios de un tercero que realice la valoración de los instrumentos financieros, pero esta contratación no lo eximirá de su responsabilidad por la valoración de la cartera que administre y en ese sentido será responsable de los eventuales daños producidos por dolo, culpa o negligencia.
