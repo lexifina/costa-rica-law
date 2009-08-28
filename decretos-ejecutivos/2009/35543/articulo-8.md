@@ -1,0 +1,1 @@
+Artículo 8º—Corresponderá al INCOPESCA, la supervisión y control del Servicio de Trabajo Comunal que realizarán los pescadores en el período de veda, de conformidad con el respectivo reglamento que regule dicha actividad.

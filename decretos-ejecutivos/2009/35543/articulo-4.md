@@ -1,0 +1,1 @@
+Artículo 4º—La incorporación de los posibles beneficiarios en los listados remitidos por el INCOPESCA al IMAS, no generará por sí misma derecho a recibir el beneficio del presente decreto, el cual estará condicionado a la valoración, verificación y efectiva comprobación de los requisitos correspondientes de conformidad con las competencias del IMAS.
