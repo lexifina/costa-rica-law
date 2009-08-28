@@ -1,0 +1,29 @@
+N° 35455-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades que les confieren los artículos 64; 140 incisos 3) y 18), y 146 de la Constitución Política; la Ley Nº 2220 del 16 de junio de 1958: Ley de Cabotaje de la República; la Ley Nº 4786 del 5 de julio de 1971: Ley de Creación del Ministerio de Obras Públicas y Transportes; la Ley Nº 6227 del 2 de mayo de 1978: Ley General de la Administración Pública; el Decreto Ejecutivo Nº 27917-MOPT: “Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes” del 31 de mayo de 1999, publicado en La Gaceta N° 112 del 10 de junio de 1999; y el Decreto Ejecutivo Nº 29547-MOPT: “Que crea la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes” del 22 de marzo del 2001, publicado en La Gaceta N° 108 del 6 de junio de 2001.
+Considerando:
+1º—Que de conformidad con lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, Nº 4786 del 5 de julio de 1971 y sus reformas, dicho Ministerio es el órgano competente en lo que se refiere a la regulación y fiscalización del transporte de vehículos y mercancías en los servicios de cabotaje.
+2º—Que de acuerdo con lo establecido en el Pronunciamiento C-047-98 de la Procuraduría General de la República del 19 de marzo de 1998 y el Decreto Ejecutivo Nº 29547-MOPT del 22 de marzo de 2001, la Dirección de Gestión de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes es la dependencia administrativa particularmente encargada de regular y aprobar las tarifas que se cobren por el trasbordo de vehículos y de carga en las rutas de cabotaje.
+3º—Que en virtud de lo anterior, la Cooperativa Nacional de Autogestión de Transporte Marítimo (COONATRAMAR R. L.), permisionaria del servicio público de cabotaje modalidad ferry en la ruta entre Puntarenas y Playa Naranjo, presentó a la Dirección de Gestión de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes, solicitud para ajustar las tarifas que aplica para el trasbordo de vehículos y solicitó variar conducentemente la clasificación de los conceptos de su régimen tarifario de acuerdo con factores relacionados con la dimensión de los vehículos.
+4º—Que la Dirección de Gestión de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes procedió a analizar y evaluar la solicitud presentada. Proceso que permitió demostrar que en los últimos años ocurriera una serie de hechos relevantes en el ambiente interno y externo de la (Cooperativa Nacional de Autogestión de Transporte Marítimo R. L., (COONATRAMAR R.L.), relacionados con la prestación del servicio, con su gestión técnica, operativa y administrativa y que su comportamiento estructural o coyuntural han afectado negativamente tanto el equilibrio financiero del Servicio de Cabotaje como la situación económica de la Cooperativa de tal manera, que justifican un ajuste en sus tarifas vehiculares, las cuales no se modifican desde el año dos mil siete.
+5º—Que las determinaciones de variaciones tarifarias conducentes y correspondientes al presente Decreto, se han dado oficialmente mediante el oficio N° DMP-DG-429-2009 de fecha 22 de junio de 2009, emitido por la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes.
+6º—Que en el caso particular y de conformidad con el estudio realizado, se determinó que la actualización que por este acto se determina, pretende fijar en lo relativo al transporte de vehículos un nuevo nivel tarifario y un esquema de trámite y emisión de tarifas que garanticen la eficiencia de este Servicio Público que se brinda en el Golfo de Nicoya.
+7º—Que con fundamento en lo dispuesto por la Ley Nº 4786: Ley de Creación del Ministerio de Obras Públicas y Transportes del 5 de julio de 1971; por el Decreto Ejecutivo Nº 27917-MOPT: Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes del 31 de mayo de 1999; por el Decreto Ejecutivo Nº 29547-MOPT del 22 de marzo del 2001; y por el Pronunciamiento C-047-98 de la Procuraduría General de la República, del 19 de marzo de 1998, se determina como procedente aprobar las nuevas tarifas para la prestación del servicio público de trasbordo de vehículos, modalidad ferry, en la ruta de cabotaje entre Puntarenas y Playa Naranjo, las cuales se habían fijado, por última vez, mediante el Decreto Ejecutivo Nº 29312-MOPT del 10 de enero de 2001, publicado en La Gaceta Nº 39 del 23 de febrero del 2001, modificado parcialmente mediante los Decretos Ejecutivos Nº 30178-MOPT del 18 de enero de 2002, publicado en La Gaceta N° 43 del 1 de marzo de 2002; y Nº 34161-MOPT del 4 de diciembre de 2007, publicado en La Gaceta Nº 244 del 19 de diciembre de 2007. Por tanto,
+Decretan:
+Artículo 1º—Reformar el artículo 1º del Decreto Ejecutivo Nº 29312-MOPT del 10 de enero del 2001, publicado en La Gaceta Nº 39 del 23 de febrero de 2001, modificado parcialmente mediante los Decretos Ejecutivos Nº 30178-MOPT del 18 de enero de 2002, publicado en La Gaceta N° 43 del 1° de marzo del 2002, y Nº 34161-MOPT del 4 de diciembre de 2007, publicado en La Gaceta Nº 244 del 19 de diciembre de 2007, para que en adelante se lea de la siguiente manera:
+“Artículo 1º—Se establecen y aprueban las siguientes tarifas para la prestación del servicio público de trasbordo de vehículos en la ruta de cabotaje, modalidad ferry, entre Puntarenas y Playa Naranjo en el Golfo de Nicoya:
+Rubro Tarifa Tarifa
+Tarifario Actual (¢) Aprobada (¢)
+Bicicletas 1.000 1.150
+Motocicletas 1.600 1.850
+Triciclos y cuadraciclos 3.100 3.600
+Vehículo liviano 5.200 6.050
+Vehículo liviano carga 7.700 8.950
+Microbús 8.300 9.650
+Buseta 9.300 10.800
+Bus 10.300 11.950
+Vehículo carga 2 ejes 10.300 11.950
+Vehículo carga 3 ejes 13.000 15.100
+Vehículo carga 4 ejes 20.700 24.050
+Vehículo carga 5 ejes 20.700 24.050 ”
