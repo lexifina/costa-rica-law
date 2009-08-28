@@ -1,1 +1,0 @@
-Transitorio I.—A partir de la entrada en vigencia de este Reglamento, las sociedades calificadoras cuentan con un plazo de seis meses para ajustar el capital social mínimo al 50% y seis meses adicionales para completar el 100% del capital, según lo indicado en el inciso c) del artículo 4º.

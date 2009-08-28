@@ -1,3 +1,0 @@
-Artículo 31.—Conservación de la documentación de trabajo. La sociedad calificadora debe mantener la documentación de los procesos de calificación por un plazo mínimo de cinco años. Tratándose de documentación emitida por medios físicos, esta puede mantenerse en el domicilio fiscal o en el lugar de depósito que estime apropiado; pero ello no la exime de su responsabilidad de custodia y, en consecuencia, de su obligación de velar por la integridad y seguridad de la documentación.
-En todo caso la información debe estar disponible cuando la Superintendencia lo requiera en el domicilio fiscal de la sociedad calificadora, en el plazo máximo de un día hábil.
-El Superintendente establecerá los requerimientos mínimos para mantener la documentación en medios electrónicos.

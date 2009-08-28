@@ -1,6 +1,0 @@
-Artículo 7º—Código de políticas, procedimientos y conducta. La junta directiva de la sociedad calificadora debe aprobar un código de políticas, procedimientos y conducta para garantizar la debida diligencia en el otorgamiento de las calificaciones de riesgo. Este código debe contener políticas y procedimientos sobre:
-a) La calidad e integridad de los procesos de calificación.
-b) La administración de los conflictos de intereses y lineamientos sobre independencia que rige para la sociedad calificadora.
-c) Las responsabilidades (obligaciones y deberes) de la sociedad calificadora con las entidades y los inversionistas.
-El código de políticas, procedimientos y conducta, así como cualquier modificación que se incorpore, debe como mínimo incorporar los principios establecidos en el capítulo IV de este Reglamento, deben ser remitidos a la Superintendencia para que verifique el cumplimiento de los requisitos mencionados de previo a su implantación.
-Serán de acceso público las políticas contenidas en dicho código por lo que la sociedad debe tenerlo a disposición permanente del público inversionista, sus clientes y la Superintendencia, ya sea por medios electrónicos o físicos de acceso gratuito para los inversionistas.

@@ -1,2 +1,0 @@
-Artículo 9º—Contenido mínimo del acta de calificación. Los acuerdos del Consejo de Calificación deben ser llevados en un libro de actas electrónico, el cual debe contener las deliberaciones, la fecha de la reunión, nombre y firma de los miembros del consejo, los acuerdos tomados y nombre de los analistas presentes. En el acta de calificación deben referenciarse los documentos técnicos que se utilicen en cada una de las reuniones.
-Los libros de actas electrónicos deben cumplir con lo que establezca el Superintendente mediante acuerdo.

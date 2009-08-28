@@ -1,2 +1,0 @@
-Artículo 17.—Modificación de metodologías. En el caso de que una sociedad calificadora resuelva modificar la metodología inscrita, debe presentar la documentación con el contenido descrito en los artículos 13, 14 y 15 según corresponda. La solicitud de modificación debe explicar claramente los cambios efectuados.
-La Superintendencia debe verificar que la nueva metodología cumpla con el contenido mínimo establecido en el artículo 13 de este Reglamento.

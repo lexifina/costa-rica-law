@@ -1,1 +1,0 @@
-Transitorio IV.—Las sociedades calificadoras deben efectuar la primera rotación del equipo de analistas o analista asignado en el proceso de calificación según el artículo 27 de este Reglamento, en un plazo de tres años posteriores a la entrada en vigencia de este Reglamento.

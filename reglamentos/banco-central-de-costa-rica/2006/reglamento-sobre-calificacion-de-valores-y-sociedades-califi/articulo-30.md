@@ -1,3 +1,0 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 30.—Inspección del cumplimiento de las metodologías por parte de las sociedades calificadoras. La Superintendencia puede, mediante resolución motivada, ordenar a la sociedad calificadora que revise el proceso de calificación en el caso de que se determine una desviación en la aplicación de la metodología, o un incumplimiento a lo establecido en el código de políticas, procedimientos y conducta, que hayan ocasionado inconsistencias en la asignación de la calificación. Lo anterior no excluye la eventual apertura de los procesos administrativos y sancionatorios establecidos en la Ley Reguladora del Mercado de Valores.
