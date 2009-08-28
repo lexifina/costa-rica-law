@@ -1,0 +1,1 @@
+Artículo 7º—Normas supletorias. Para las situaciones no reguladas por el presente reglamento, rigen supletoriamente las disposiciones contenidas en el Reglamento del Sistema de Pagos, así como las demás normas jurídicas que resulten aplicables.

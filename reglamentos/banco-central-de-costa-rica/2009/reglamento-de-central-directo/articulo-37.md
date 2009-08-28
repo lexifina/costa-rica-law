@@ -1,0 +1,4 @@
+Artículo 37.—Condiciones del código de usuario. Para autenticarse por medio del mecanismo de clave de acceso, el participante dispone de un código de usuario que es asignado automáticamente por Central Directo en el momento en que tramita su suscripción al portal Web. Dicho código será establecido bajo las siguientes condiciones:
+a) El participante mantendrá un único código de usuario que lo identifica como tal frente a Central Directo.
+b) El BCCR dispone de procedimientos operativos que le permiten suministrar al participante el código de usuario cuando éste así lo solicite, siempre dentro de condiciones de entrega que garanticen la seguridad y confidencialidad de la información.
+c) El BCCR tiene a disposición del participante, mediante el Centro de Atención al Cliente, los procedimientos operativos necesarios para que ordene el bloqueo de su código de usuario, en caso de que por medidas de seguridad así lo requiera.

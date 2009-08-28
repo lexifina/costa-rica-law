@@ -1,0 +1,1 @@
+Transitorio II.—El movimiento de fondos desde Central Directo a través del servicio DTR, estará habilitado luego de que el BCCR realice los desarrollos tecnológicos necesarios para la implementación de su funcionalidad.

@@ -1,0 +1,1 @@
+Artículo 36.—Desbloqueo de claves. En caso de bloqueo de las claves de seguridad, el participante deberá solicitar su desbloqueo al Centro de Atención al Cliente, conforme con los procedimientos operativos que el BCCR disponga para esos efectos, los cuales estarán a disposición de los participantes en el portal Web de Central Directo.

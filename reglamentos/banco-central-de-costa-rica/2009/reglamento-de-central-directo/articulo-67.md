@@ -1,0 +1,1 @@
+Artículo 67.—Movimientos de fondos desde las entidades financieras. El participante podrá ordenar desde su entidad financiera, movimientos de fondos utilizando los servicios DTR y CDD disponibles en todas las entidades asociadas al SINPE. El participante podrá realizar estos movimientos en adición a los que ordene desde Central Directo para trasladar fondos de la CCI a su CC.

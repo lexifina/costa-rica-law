@@ -1,0 +1,1 @@
+Artículo 58.—Inhabilitación de las CC registradas. Cuando por cualquier motivo un cliente de Central Directo pierda su condición de participante, el registro de sus CC será automáticamente inhabilitado para realizar movimientos de fondos desde Central Directo.

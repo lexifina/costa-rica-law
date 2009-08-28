@@ -1,0 +1,2 @@
+Artículo 25.—Liquidación de fondos. Cuando la suscripción del participante quede revocada y el mismo mantenga fondos depositados en su CCI, el saldo será transferido a su CC predeterminada con la deducción de la comisión que corresponda por concepto de la transferencia interbancaria.
+En los casos en que la CC predeterminada no se encuentre activa en la entidad financiera, el saldo de la CCI será registrado por el BCCR en una cuenta por pagar y para su retiro deberá mediar una solicitud del participante en la que comunique la CC seleccionada para efectuar el depósito.

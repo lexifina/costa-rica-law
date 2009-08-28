@@ -1,0 +1,1 @@
+Artículo 43.—Actividades mancomunadas. El participante que cuente con dos o más responsables de seguridad, podrá mancomunar la asignación de los derechos y permisos de acceso de sus usuarios, de manera que éstos tengan que ser definidos y autorizados en forma conjunta por dos responsables de administrar la seguridad.

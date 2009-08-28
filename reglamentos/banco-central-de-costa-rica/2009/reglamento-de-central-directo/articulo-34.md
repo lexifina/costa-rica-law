@@ -1,0 +1,1 @@
+Artículo 34.—Requisitos de las claves de seguridad. El participante puede consultar en Central Directo los requisitos de estructura y longitud de las claves de seguridad, así como las condiciones bajo las cuales las claves serán bloqueadas automáticamente por medidas de seguridad.

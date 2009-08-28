@@ -1,0 +1,2 @@
+Artículo 54.—Exclusividad de uso de la CCI. Todos los movimientos de fondos del participante relacionados con Central Directo se harán por medio de la CCI.
+Cuando la CCI mantenga saldos con más de sesenta días naturales de antigüedad, sin que el participante realice nuevos movimientos de fondos, el saldo total podrá ser transferido automáticamente a su CC predeterminada, previa deducción de la comisión que corresponda por concepto de la transferencia interbancaria de fondos.

@@ -1,0 +1,1 @@
+Artículo 10.—Protección de las conexiones. Central Directo cuenta con un certificado digital reconocido internacionalmente, que garantiza que las conexiones a su sitio Web son confidenciales y se encuentran debidamente protegidas contra alteraciones, así como la autenticidad del sitio con el que se realiza la conexión.

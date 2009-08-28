@@ -1,0 +1,1 @@
+Artículo 64.—Movimientos de fondos desde las entidades financieras. El participante puede ordenar desde su entidad financiera, movimientos de fondos utilizando los servicios TFT y CCD disponibles en todas las entidades asociadas al SINPE. El participante podrá realizar estos movimientos en adición a los que ordene desde Central Directo para trasladar fondos de su CC a la CCI.

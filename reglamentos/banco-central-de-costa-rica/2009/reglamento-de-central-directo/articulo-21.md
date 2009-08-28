@@ -1,0 +1,3 @@
+Artículo 21.—Información personal del suscriptor. El participante para suscribirse a Central Directo debe aportar la información personal necesaria para identificarse en su portal Web, así como la información requerida para mantener un canal directo de comunicación que facilite el envío de notificaciones.
+Los participantes jurídicos deberán registrar la información personal de su representante legal y de los usuarios que participen a su nombre en Central Directo, debiendo ser el representante legal uno de ellos.
+Los participantes físicos podrán designar hasta un máximo de cuatro beneficiarios, pudiendo distribuir porcentualmente entre ellos la totalidad de sus derechos en Central Directo.
