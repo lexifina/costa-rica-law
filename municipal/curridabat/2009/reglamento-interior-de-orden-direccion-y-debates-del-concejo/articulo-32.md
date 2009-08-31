@@ -1,0 +1,1 @@
+Artículo 32.—Cuando se presente una moción sin dispensa de trámite de comisión sólo podrá hacer uso de la palabra para referirse al fondo del asunto el Regidor proponente por un plazo no mayor de cinco minutos, luego el presidente remitirá la moción a la comisión de trabajo correspondiente.

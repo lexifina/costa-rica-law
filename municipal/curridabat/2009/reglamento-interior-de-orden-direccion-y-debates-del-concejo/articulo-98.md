@@ -1,0 +1,1 @@
+Artículo 98.—El Concejo resolverá el recurso de apelación contra los actos que emanen del Alcalde, previo dictamen de la comisión de asuntos jurídicos. Con la remisión del expediente respectivo al Concejo, el Alcalde deberá emplazar a las partes interesadas para que acudan a hacer valer sus derechos ante ese órgano.

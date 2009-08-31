@@ -1,0 +1,1 @@
+Artículo 105.—Cuando la presidencia tuviese que mocionar o en alguna forma involucrarse en la defensa de algún asunto en discusión en el Plenario Municipal, dejará su cargo temporalmente al vicepresidente. Si el que ejerce la presidencia es el vicepresidente, el regidor de mayor edad será el llamado a sustituirlo.

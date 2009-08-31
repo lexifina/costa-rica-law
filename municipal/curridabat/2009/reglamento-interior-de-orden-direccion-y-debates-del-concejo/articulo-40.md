@@ -1,0 +1,1 @@
+Artículo 40.—Durante el transcurso de las sesiones del Concejo, soto podrán permanecer en el recinto los regidores, síndicos, el Alcalde, sus suplentes, el Secretario Municipal, el Auditor Municipal y los asesores del Concejo o las fracciones.

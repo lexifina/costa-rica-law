@@ -1,0 +1,1 @@
+Artículo 69.—El presidente de una comisión, o en su ausencia el vicepresidente, podrán convocar a sesiones extraordinarias, por lo menos con veinticuatro horas de anticipación. En ausencia del presidente y el vicepresidente, convocará y presidirá la sesión el miembro de la comisión de mayor edad.

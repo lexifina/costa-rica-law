@@ -1,0 +1,1 @@
+Artículo 67.—Los informes o dictámenes de Comisión serán entregados, una vez que se hayan declarado firmes, a la Presidencia Municipal, la que los pondrá en conocimiento de los regidores, por lo menos treinta y seis horas antes del inicio de la sesión del Concejo en que se analizarán.
