@@ -1,1 +1,2 @@
-Artículo 11.—De la duración de la acreditación. El ECA otorgará acreditaciones por periodos de cuatro años.
+Artículo 11.—De la duración de la acreditación. La vigencia de la acreditación se otorgará por tiempo indefinido y estará sujeta a las evaluaciones anuales de seguimiento; visitas de reevaluación cada 4 años y visitas de verificación establecidas de acuerdo a los procedimientos de evaluación y acreditación del ECA. En este sentido, la acreditación vigente se mantendrá siempre y cuando el Organismo de Evaluación de la Conformidad cumpla con los requisitos de las normas y demás criterios de evaluación establecidos por el ECA.
+(Así reformado por el artículo 1° del decreto ejecutivo 35522 del 31 de agosto del 2009)
