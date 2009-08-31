@@ -1,0 +1,1 @@
+Artículo 8º—Del Vicepresidente. En caso de ausencias temporales, renuncia, destitución, incapacidad permanente o muerte del Presidente, el Vicepresidente lo sustituirá con las mismas facultades y atribuciones, ejerciendo el cargo hasta que el Presidente reasuma su cargo, o hasta que se nombre uno nuevo conforme al procedimiento dispuesto en la Ley.

@@ -1,0 +1,3 @@
+Artículo 25.—Prueba para mejor proveer. Listo el expediente para su resolución final y antes de dictarse ésta, podrá el Tribunal acordar con carácter de prueba para mejor proveer cualquier medio probatorio previsto en el ordenamiento jurídico, que estime relevante para la decisión del recurso. En la misma resolución se establecerá el plazo dentro del cual deberá ejecutarse lo ordenado, y podrá el Tribunal requerir una ampliación o una aclaración de dicha prueba.
+Asimismo, podrá en este sentido solicitar adiciones o aclaraciones de los dictámenes técnicos que se hayan vertido en Primera Instancia.
+Acerca de las pruebas que sean evacuadas, se conferirá audiencia a las partes por un plazo de tres a cinco días hábiles, para lo que tengan a bien manifestar.

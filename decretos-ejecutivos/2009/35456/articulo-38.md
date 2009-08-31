@@ -1,0 +1,2 @@
+Artículo 38.—De los medios de notificación. Los medios de notificación serán el correo certificado, el fax, el correo electrónico, en estrados o por cualquier otro medio tecnológico que se produzca en el futuro, siempre que garantice seguridad.
+Se tendrá por realizada la notificación recibida por la parte, su apoderado, abogado director o notario en el Despacho del Tribunal, según la naturaleza del procedimiento.

@@ -1,0 +1,1 @@
+Artículo 33.—Rechazo de plano de la apelación por inadmisión. Interpuesto el recurso, el Tribunal lo rechazará de plano si no se ajusta a los requisitos prescritos en el artículo anterior, y enviará el legajo al Registro de origen para que se una al expediente principal.

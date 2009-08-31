@@ -1,0 +1,2 @@
+Artículo 18.—De las votaciones de las sesiones sustantivas. Los recursos de apelación serán resueltos por mayoría simple. El miembro del Tribunal que se quiera separar del voto de mayoría, podrá colocar al pie de éste una nota o apostilla, o un voto salvado debidamente razonado, quedando en tal caso exento de las responsabilidades que pudieren derivarse del mayoritario.
+El Tribunal llevará el debido control de los votos dictados, en estricto orden consecutivo.
