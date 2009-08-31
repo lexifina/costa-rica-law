@@ -1,0 +1,1 @@
+Artículo 9º—Todas aquellas situaciones no contempladas en el presente reglamento se regirán por lo establecido en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos y sus reformas, emitido por la Contraloría General de la República.

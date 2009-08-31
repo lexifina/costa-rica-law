@@ -1,0 +1,1 @@
+Artículo 2º—Se reconocerán viáticos en los cantones del Área Metropolitana de San José y en cantones con sedes regionales después de una distancia mayor o igual a 10 kilómetros, de acuerdo con lo establecido en el párrafo segundo del artículo 24 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.

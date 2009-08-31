@@ -1,0 +1,2 @@
+Artículo 4º—El Ministerio de Educación Pública reconocerá el pago de viáticos, dentro del mismo cantón o sede regional, en visitas de trabajo realizadas en horario habitual, en distancias menores a los 10 kilómetros, a los funcionarios que lo requieran, bajo la condición de excepcionalidad fundamentada en la:
+a. Importancia razonada de la actividad, brindada en forma escrita a la Dirección Financiera, por el superior inmediato del funcionario.

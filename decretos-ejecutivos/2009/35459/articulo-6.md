@@ -1,0 +1,1 @@
+Artículo 6º—La comprobación del uso indebido de los recursos públicos girados al funcionario faculta a la Dirección Financiera a remitir un informe a la Dirección de Recursos Humanos para la apertura de una investigación.

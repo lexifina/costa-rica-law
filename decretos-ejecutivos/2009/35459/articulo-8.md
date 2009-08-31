@@ -1,0 +1,1 @@
+Artículo 8º—La liquidación para el reconocimiento de pago del servicio de taxi debe realizarse en el plazo de siete días hábiles posteriores de efectuado el gasto, conforme lo establecen los artículos 10 y 22 del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos.
