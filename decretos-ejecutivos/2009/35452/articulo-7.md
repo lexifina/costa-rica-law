@@ -1,0 +1,1 @@
+Artículo 7º—Toma de decisiones. Las decisiones de la CISC serán tomadas por unanimidad. En caso de que no fuere posible alcanzar la unanimidad, se tomarán por mayoría absoluta. En caso de empate, el Coordinador General tendrá voto de calidad.
