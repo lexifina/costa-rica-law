@@ -14,3 +14,4 @@ Manual de Procedimientos que Regula la Inversión Privada para Obras de Interés
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-21 | la propia norma |
+| 2 | 2009-09-01 | Acuerdo 800 (2009-09-01) |
