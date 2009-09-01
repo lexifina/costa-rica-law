@@ -1,0 +1,1 @@
+Artículo 4º—Falla de medios tecnológicos. En caso de problemas técnicos, falta de energía eléctrica u otra circunstancia similar, se realizará la audiencia o el debate y se dictará la resolución o sentencia de manera oral, haciendo constar en un acta escrita lo ocurrido y resuelto. En tales casos el acta será firmada por el juzgador o el tribunal colegiado a cargo.

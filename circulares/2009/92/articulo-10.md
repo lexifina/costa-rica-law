@@ -1,0 +1,1 @@
+Artículo 10.—Comunicación de la Sentencia oral. Antes de cerrar el debate, los tribunales fijarán la hora en que deberán comparecer las partes a la sala para escuchar lo resuelto. En ese momento se les indicará que quedan notificadas en el acto.

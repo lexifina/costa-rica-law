@@ -1,0 +1,1 @@
+Artículo 5º—Sistema Informático de Gestión. El sistema de gestión deberá ser alimentado por el auxiliar excepto cuando la resolución o sentencia se hagan por escrito, en cuyo caso el sistema informático de gestión deberá alimentarlo el juez que redacta.

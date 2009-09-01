@@ -1,0 +1,1 @@
+Artículo 19.—Interposición oral del recurso. En las audiencias previas al debate, el recurso de apelación podrá interponerse de manera oral, indicándose sólo de manera general el tema de inconformidad y fundamentándose los agravios ante el superior.

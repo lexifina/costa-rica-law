@@ -1,0 +1,1 @@
+Artículo 7º—Reglas del debate. Los debates seguirán celebrándose de manera oral conforme a las reglas del Código Procesal Penal, interpretadas conforme al principio acusatorio y lo que establece el presente Protocolo. Cuando lo considere necesario, el tribunal explicará también las reglas que van a regir las audiencias de juicio a realizarse.

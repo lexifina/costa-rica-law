@@ -1,0 +1,1 @@
+Artículo 17.—Copia de lo resuelto. De la resolución oral se entregará una copia a la parte que la solicite en un disco compacto (DVD). El dispositivo deberá ser totalmente nuevo y aportado por la parte que solicita la copia. En aquellos casos excepcionales que la parte alegue no tener medios para aportar el dispositivo, lo proveerá la Administración de cada circuito judicial.

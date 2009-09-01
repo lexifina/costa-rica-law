@@ -1,0 +1,1 @@
+Artículo 8º—Sentencia oral. Los tribunales de juicio dictarán las sentencias orales en audiencia, salvo que la complejidad o las características del caso concreto, tales como la multiplicidad de los hechos, el elevado número de imputados o de víctimas, o cuando se trate de causas relacionadas con delincuencia organizada, resulte necesario dictarla por escrito.

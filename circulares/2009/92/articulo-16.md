@@ -1,0 +1,1 @@
+Artículo 16: Requisitos de la resolución oral. La resolución oral deberá contener los requisitos establecidos en el Código Procesal Penal. No se requiere una repetición por parte del juez sobre todo lo declarado por los testigos. La fundamentación intelectiva y jurídica debe ser suficiente y concreta.
