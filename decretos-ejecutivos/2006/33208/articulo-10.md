@@ -4,3 +4,5 @@ Artículo 10.—Son funciones del Departamento de Servicios Médicos:
 10.3) Ejecutar y coordinar todas las actividades y servicios que se brinden a los funcionarios en Medicina General, Medicina Interna, Ginecología, Obstetricia, Nutrición, Psicología, Odontología y Enfermería, de acuerdo con las posibilidades de recursos con que cuente el Ministerio.
 10.4) Reportar diariamente al Departamento de Gestión del Potencial Humano las incapacidades por enfermedad que se emitan, así comolos avisos de accidente o enfermedad de trabajo y remitir la orden de atención médica al INS
 10.5) Cumplir todas las disposiciones que emita la Caja Costarricense del Seguro Social en lo que competa al Sistema de Médico de Empresa.
+10.6) Cualesquiera otras actividades relacionadas con la materia de su competencia que le asigne el (la) Director (a) o el (la) Subdirector (a) según corresponda.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)

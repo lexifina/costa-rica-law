@@ -1,5 +1,5 @@
 Artículo 6º—La Proveeduría Institucional tendrá las siguientes funciones:
-6.1) La definición y establecimiento de los patrones técnicos, las condiciones generales, las especificaciones y los procedimientos para la adquisición de los bienes, sujetos a contratación administrativa.
+6.1) (Derogado por el inciso 1) del artículo 5° del decreto ejecutivo N° 35564 del 1 de setiembre del 2009)
 6.2) Emitir las directrices a seguir por parte de las diferentes dependencias del Ministerio, para la formulación del plan anual de compras.
 6.3) Coordinar y analizar con los diferentes programas que conforman la institución, la elaboración del plan anual de compras y sus modificaciones, a que se refiere el artículo 6 de la Ley de Contratación Administrativa, para su debida publicación.
 6.4) Elaborar el plan anual de compras consolidado del Ministerio de cada año.
@@ -11,8 +11,7 @@ Artículo 6º—La Proveeduría Institucional tendrá las siguientes funciones:
 6.10) Constatar que la dependencia solicitante haya verificado la efectiva disponibilidad de recursos.
 6.11) Velar que en los expedientes administrativos relativos a las contrataciones se encuentre debidamente justificada la necesidad del Programa que pretende la adquisición de un bien o servicio.
 6.12) Verificar las especificaciones técnicas y características de los bienes, obras o servicios que se requiera contratar.
-6.13) Preparar para la firma del Jerarca del Ministerio, las solicitudes ante la Contraloría General de la República para la autorización de
-contrataciones directas.
+6.13) (Derogado por el inciso 1) del artículo 5° del decreto ejecutivo N° 35564 del 1 de setiembre del 2009)
 6.14) Dar inicio al Procedimiento de Contratación a solicitud del Director del Programa.
 6.15) Elaborar, o adecuar los carteles o pliegos de condiciones que le sometan a su consideración las dependencias requirentes de bienes y servicios, en los distintos procedimientos de contratación administrativa, dándole la publicidad necesaria, en los medios legalmente establecidos o en el Sistema electrónico de Compras Gubernamentales COMPRARED y poner la información a disposición del público en general.
 6.16) Publicar los carteles de licitación o en su defecto realizar las invitaciones a los proveedores cuando corresponda y tramitar el procedimiento hasta la emisión de la orden de pedido.
@@ -27,7 +26,8 @@ contrataciones directas.
 6.25) Dar trámite a las aclaraciones y subsanaciones de ofertas, de acuerdo con lo establecido en el Reglamento General de Contratación Administrativa.
 6.26) Analizar las ofertas recibidas en los procedimientos de contratación con base en los términos que contemple el cartel de licitación, y evaluar las elegibles conforme al sistema y método previsto en aquél, sometiendo sus conclusiones a la Comisión de Recomendación de Adjudicaciones.
 6.27) Resolver los recursos de objeción al cartel y de revocatoria de las resoluciones de adjudicación.
-6.28) Dictar, en los procedimientos administrativos de contratación que se haya definido, la resolución final de adjudicación, declaratoria de deserción o de contratación infructuosa.
+6.28 Dictar, en las contrataciones directas y de escasa cuantía, la resolución final de adjudicación, declaratoria de deserción o de contratación infructuosa.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
 6.29) Realizar los trámites correspondientes para la publicación de la adjudicación.
 6.30) Remitir al órgano interno designado para tal efecto, la respectiva documentación para que éste elabore el proyecto de formalización contractual cuando ello corresponda, gestione su respectiva suscripción, así como la obtención del refrendo del Órgano Contralor o la aprobación interna, según corresponda.
 6.31) Revisar y autorizar en el sistema automatizado de contratación establecido al efecto, por delegación del Ministro, las órdenes de compra o pedido originadas en adjudicaciones firmes, los cuales deberá firmar únicamente con posterioridad a la aprobación en el mismo sistema automatizado.
@@ -44,12 +44,14 @@ contrataciones directas.
 6.42) Mantener al día el registro de los activos del Ministerio, de acuerdo con su identificación y asignación a las unidades administrativas.
 6.43) Mantener actualizados los valores de cada uno de los materiales y suministros del Ministerio.
 6.44) Mantener actualizados los valores de los bienes patrimoniales del Ministerio.
-6.45) Administrar la bodega Ministerial de materiales.
+6.45) Administrar el Almacén del Mercancías del Ministerio.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
 6.46) Llevar un control de inventarios permanentes de todos los bienes institucionales y remitir los informes necesarios a las entidades competentes.
 6.47) Tramitar los procedimientos de remate para vender o arrendar bienes muebles o inmuebles.
 6.48) Mantener en coordinación con la Dirección General de Administración de Bienes y Contratación Administrativa, debidamente actualizado el Registro de Proveedores de la Administración Central en todas las áreas de interés del Ministerio.
-6.49) Tener disponible y accesible para los Departamentos que conforman la Dirección Administrativa y Financiera, el Catálogo de mercancías de la Administración Central y precios de referencia.
-6.50) Controlar la correcta utilización de los procedimientos de contratación administrativa por parte de los funcionarios competentes, así como el correcto funcionamiento del Subsistema de Almacenamiento y Distribución de Bienes.
+6.49) (Derogado por el inciso 1) del artículo 5° del decreto ejecutivo N° 35564 del 1 de setiembre del 2009)
+6.50) Controlar la correcta utilización de los procedimientos de contratación administrativa, el almacenamiento y distribución de mercancías y bienes institucionales.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
 6.51) Mantener controles sobre las contrataciones que se pacten y velar porque éstas se cumplan de acuerdo con los programas, fechas y plazos establecidos.
 6.52) Informar a la Dirección de Bienes y Contratación Administrativa, cuando se tuviere conocimiento de la existencia de personas físicas o jurídicas afectadas por el régimen de prohibiciones con el fin de que ésta actualice sus registros.
 6.53) Coordinar sus funciones con las demás dependencias y unidades administrativas de su Ministerio, y con las entidades externas contraloras, fiscalizadoras y ejecutoras del gasto público.

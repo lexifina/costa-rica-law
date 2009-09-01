@@ -8,7 +8,8 @@ Artículo 7º—El Departamento de Recursos Financieros tendrá las siguientes f
 7.7) Administrar la Caja Chica del Ministerio, de conformidad con el Reglamento de Cajas Chicas vigente.
 7.8) Proponer a la Tesorería Nacional los pagos que correspondan por los bienes y servicios adquiridos por el Ministerio, de conformidad con las regulaciones establecidas por la Tesorería Nacional y la Contraloría General de la República.
 7.9) Promover la formulación del presupuesto, de acuerdo con los objetivos, planes estratégicos institucionales y planes operativos anuales propuestos.
-7.10) Evaluar y analizar el presupuesto de cada programa, de acuerdo con las directrices emanadas de las autoridades superiores.
+7.10) Evaluar y analizar el presupuesto de cada programa y subprograma presupuestario del Ministerio, de acuerdo con las directrices emanadas de las autoridades superiores.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
 7.11) Diseñar e implementar mecanismos y herramientas de evaluación presupuestaria.
 7.12) Realizar proyecciones periódicas sobre la ejecución presupuestaria y proponer mediante mecanismos legales, las modificaciones presupuestarias.
 7.13) Definir la metodología para la evaluación, así como los sistemas de seguimiento de la ejecución presupuestaria e implementar la rendición de cuentas.
@@ -27,4 +28,19 @@ viáticos.
 presupuesto institucional.
 7.24) Elaborar planillas de pagos de subvenciones.
 7.25) Realizar los trámites de contratación que se requieran con cargo al fondo de caja chica, de acuerdo con las disposiciones legales, reglamentarias y procedimientos aplicables.
-7.26) Cualquier otra función relacionada con la gestión financiera.
+7.26) Cualquier otra función relacionada con la gestión de la administración financiera que le asigne el Director(a) o el Subdirector(a) según corresponda.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
+7.27) Realizar las entradas de mercancías de los bienes y/o servicios intangibles en el SIGAF.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
+7.28) Elaborar y Registrar las reservas de crédito que corresponden al Título del Servicio de la Deuda.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
+7.29) Elaborar y tramitar planillas de pago de cuotas estatal y patronal a la CCSS.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
+7.30) Tramitar pago de transferencias a organismos internacionales
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
+7.31) Tramitar pago de transferencias de recursos externos
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
+7.32) Proponer a la Tesorería Nacional los pagos que correspondan a viáticos por planilla de los funcionarios del Ministerio de Hacienda.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
+7.33) Proponer a la Tesorería Nacional las órdenes de pago que generan las Unidades Ejecutoras.
+(Así adicionado el inciso anterior por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)

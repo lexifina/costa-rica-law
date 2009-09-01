@@ -1,5 +1,6 @@
 Artículo 4º—El (la) Director (a) Administrativo (a) y Financiero (a) tendrá las siguientes funciones:
-4.1) Implementar en coordinación con los responsables de los Departamentos que conforman la Dirección Administrativa y Financiera, los planes y programas de dotación de recursos humanos, financieros, materiales y de servicios para todo el Ministerio.
+4.1) Emitir, en coordinación con los responsables de los Departamentos que conforman la Dirección Administrativa y Financiera las políticas, planes y programas de dotación de recursos humanos, financieros, materiales y de servicios para todo el Ministerio.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
 4.2) Velar por el cumplimiento de metas y objetivos de la Dirección, en materia de su competencia.
 4.3) Proponer a las autoridades superiores, en conjunto con el (la) responsable del Departamento de Recursos Financieros, los proyectos de presupuesto ordinario y extraordinario del Ministerio.
 4.4) Rendir informe sobre el cumplimiento de objetivos y metas de la Dirección al superior jerárquico.
@@ -13,13 +14,13 @@ Artículo 4º—El (la) Director (a) Administrativo (a) y Financiero (a) tendrá
 4.11) Velar por el cumplimiento de las políticas y directrices emanadas por las autoridades Ministeriales, en concordancia con lo dispuesto por la Autoridad Presupuestaria, Presupuesto Nacional, y la Dirección General de Servicio Civil en materia de salarios, nivel ocupacional y recursos humanos.
 4.12) Velar por el cumplimiento de las metas de dotación de servicios médicos y desarrollo de recursos humanos.
 4.13) Velar por el cumplimiento de los lineamientos generales, emitidos por las autoridades superiores en materia administrativa.
-4.14) Autorizar con su firma, por delegación del Ministro: las acciones de personal de los funcionarios; las gestiones ante el Instituto Nacional de Seguros tendentes a hacer efectivas la póliza de seguro de los vehículos del Ministerio así como la firma de finiquitos con esa Institución; solicitudes de exoneraciones relacionadas con bienes adquiridos para el Ministerio; la salida del país de los vehículos propiedad del Ministerio; la firma de los documentos de ejecución presupuestaria del programa o sub-programa a su cargo, la firma de los cheques mancomunadamente con el Departamento de Recursos Financieros; solicitud de inscripción y des-inscripción de vehículos ante el Registro Nacional.
-(Así reformado el inciso anterior por el artículo 11° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).
+4.14) Autorizar con su firma por delegación del Ministro: las acciones de personal de los funcionarios; las gestiones ante el Instituto Nacional de Seguros tendentes a hacer efectivas las pólizas de seguros de los vehículos y propiedades del Ministerio así como la firma de finiquitos con esa Institución; las solicitudes de inscripción y des-inscripción de vehículos ante el Registro Nacional; las solicitudes de exoneración relacionadas con bienes adquiridos para el Ministerio; la salida del país de los vehículos propiedad del Ministerio; los documentos de ejecución presupuestaria del programa presupuestario Administración Superior; los cheques, mancomunadamente con el Departamento de Recursos Financieros; los contratos de dedicación exclusiva de los funcionarios; las resoluciones de adjudicación, declaratoria de desierto o declaratoria de infructuoso originadas en licitaciones públicas, y abreviadas promovidas por el Ministerio y las contrataciones directas que sean sometidas, a juicio del Proveedor Institucional, a consideración de la Comisión de Recomendación de Adjudicaciones; los contratos y demás trámites relacionados con la instalación, conexión, desconexión, traslado y cualquier otra gestión relacionada con servicios públicos.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 35564 del 1 de setiembre de 2009)
 4.15) Velar por la adecuada formulación, y ejecución de proyectos para la construcción y remodelación de las edificaciones del Ministerio.
 4.16) Garantizar el buen estado y mantenimiento de las instalaciones físicas del Ministerio.
 4.17) Garantizar el apropiado uso y mantenimiento de las unidades de transporte del Ministerio.
 4.18) Garantizar los mecanismos de seguridad y vigilancia necesarios para las instalaciones, el personal y los recursos del Ministerio.
-4.19) Velar porque se cumplan los lineamientos del Servicio Civil y apoyar al personal de la oficina facultada por Servicio Civil establecida en el Ministerio de Hacienda.
+4.19) (Derogado por el inciso 1) del artículo 5° del decreto ejecutivo N° 35564 del 1 de setiembre del 2009)
 4.20) (Derogado por el artículo 13° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).
 4.21) (Derogado por el artículo 13° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).
 4.22) Garantizar el pago oportuno de los salarios a los funcionarios.
