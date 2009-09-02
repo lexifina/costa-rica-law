@@ -1,0 +1,2 @@
+ARTÍCULO 209.- Repetición de la elección para presidente y vicepresidentes de la República
+Cuando el TSE ordene una segunda votación para elegir presidente y vicepresidentes de la República, esta deberá llevarse a cabo el primer domingo de abril siguiente. Se continuarán aplicando, en lo conducente, las normas legales y reglamentarias vigentes al momento de hacerse la convocatoria a las elecciones de febrero, sin que estas puedan ser modificadas hasta después de las elecciones de abril.

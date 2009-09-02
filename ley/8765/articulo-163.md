@@ -1,0 +1,2 @@
+ARTÍCULO 163.- Continuidad del servicio público de transporte
+Durante la campaña electoral, incluido el día de las elecciones, los concesionarios y los permisionarios de transporte remunerado de personas en la modalidad de autobuses con ruta asignada, deberán prestar el servicio como si fueran días ordinarios. La suspensión o el deterioro en la prestación del servicio serán sancionados conforme lo estipula este Código.

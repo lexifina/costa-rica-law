@@ -1,0 +1,3 @@
+TRANSITORIO I.- Distribución del aporte estatal
+Para las elecciones del año 2010, para cubrir los gastos de la campaña para elegir presidente, vicepresidentes y diputados(as) y los gastos destinados a sus actividades permanentes de capacitación y organización política, de conformidad con el artículo 96 de la Constitución Política, los partidos políticos tendrán derecho a recibir una contribución estatal equivalente a un cero coma once por ciento (0,11%) del PIB.
+(Nota de Sinalevi: Sobre este tema ver el transitorio último adicionado mediante el artículo único de la ley N° 9168 del 30 de setiembre del 2013, que posee un contenido parecido en cuanto a la contribución estatal para las elecciones del 2014 y las municipales del 2016)

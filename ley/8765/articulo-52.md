@@ -1,0 +1,22 @@
+ARTÍCULO 52.- Estatuto de los partidos políticos
+El estatuto de los partidos constituye su ordenamiento fundamental interno y deberá contener al menos lo siguiente:
+a) El nombre del partido.
+b) La divisa.
+c) La manifestación expresa de no subordinar su acción política a las disposiciones de organizaciones o estados extranjeros. Esta prohibición no impedirá que los partidos integren organizaciones internacionales, participen en sus reuniones y suscriban declaraciones, siempre que no atenten contra la soberanía e independencia del Estado costarricense.
+d) Los principios doctrinarios relativos a los asuntos económicos, políticos, sociales y éticos.
+e) La formal promesa de respetar el orden constitucional de la República.
+f) La nómina y la estructura de los organismos del partido, sus facultades, las funciones y la forma de integrarlos, los recursos internos que procedan contra sus decisiones, así como las causas y los procedimientos de remoción de quienes ocupan los cargos.
+g) La forma de convocar a sesiones a los miembros de sus organismos, garantizando su efectiva comunicación, con la debida antelación e inclusión de la agenda, el lugar, la fecha y la hora, tanto para la primera convocatoria como para la segunda, cuando proceda. Necesariamente se deberá convocar cuando lo solicite, por lo menos, la cuarta parte de miembros del órgano respectivo.
+h) El quórum requerido para que todos sus órganos sesionen, el cual no podrá ser inferior a la mitad más cualquier exceso de sus integrantes.
+i) Los votos necesarios para adoptar acuerdos. Su número no podrá ser inferior al de la simple mayoría de los presentes.
+j) La forma de consignar las actas, de modo que se garantice la autenticidad de su contenido y los medios en que se dará publicidad a los acuerdos de alcance general. El Tribunal reglamentará los mecanismos de legalización y el manejo formal de los libros de actas de los partidos políticos.
+k) La forma de escogencia de los candidatos para cargos de elección popular, las designaciones necesariamente requerirán la ratificación de la asamblea superior del partido, salvo que se trate de convenciones para la designación del candidato a la Presidencia de la República, en cuyo caso la voluntad mayoritaria de ese proceso se tendrá como firme.
+l) Los parámetros para la difusión de la propaganda de carácter electoral, que será utilizada en los respectivos procesos internos en que participen los precandidatos oficializados.
+m) Los mecanismos que garanticen la efectiva publicidad de su información contable y financiera.
+n) Las normas que permitan conocer públicamente el monto de las contribuciones de cualquier clase, que el partido reciba y la identidad de quienes contribuyan. Asimismo, se deben contemplar los mecanismos necesarios para determinar el origen, cuando así se amerite. El tesorero o la tesorera estará en la obligación de informar esos datos trimestralmente al comité ejecutivo superior del partido y al TSE. En el período de campaña política, el informe se rendirá mensualmente.
+ñ) Las normas sobre el respeto a la equidad por género tanto en la estructura partidaria como en las papeletas de elección popular.
+o) Los mecanismos que aseguren los principios de igualdad, no discriminación y paridad en la estructura partidaria, así como en la totalidad y en cada una de las nóminas de elección popular, y el mecanismo de alternancia de hombres y mujeres en las nóminas de elección.
+p) La forma en la que se distribuye en el período electoral y no electoral la contribución estatal de acuerdo con lo establecido en la Constitución Política. De lo que el partido político disponga para capacitación, deberá establecerse en forma permanente y paritaria tanto a hombres como a mujeres, con el objetivo de capacitar, formar y promover el conocimiento de los derechos humanos, la ideología, la igualdad de géneros, incentivar los liderazgos, la participación política, el empoderamiento, la postulación y el ejercicio de puestos de decisión, entre otros.
+q) Los derechos y los deberes de los miembros del partido.
+r) El mecanismo para la participación efectiva de la juventud en las diferentes papeletas, órganos del partido y diferentes puestos de participación popular.
+s) Las sanciones previstas para los miembros, en caso de haberlas, y el mecanismo de ejercicio del derecho de defensa y el derecho a la doble instancia en materia de sanciones.

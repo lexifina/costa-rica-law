@@ -1,0 +1,4 @@
+ARTÍCULO 121.- Auditorías sobre el financiamiento privado
+Los partidos políticos están obligados a llevar dentro de su contabilidad el financiamiento privado. El TSE, mediante resolución fundada podrá ordenar auditorías sobre las finanzas de los partidos políticos, a efecto de verificar el respeto a las normas que regulan la materia, que podrán realizarse por medio de la dirección especializada en el tema, de profesionales o firmas contratadas con tal propósito.
+Los partidos políticos observarán las reglas técnicas de contabilidad y las disposiciones reglamentarias que emitirá el TSE y facilitarán cualquier informe o documento que les sea requerido.
+Para tales efectos, quien ocupe el cargo de la tesorería del partido deberá prestar obligada colaboración y será responsable de la exactitud y veracidad de los datos que suministren.

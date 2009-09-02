@@ -1,0 +1,4 @@
+ARTÍCULO 184.- Entrega de la documentación electoral
+Concluido el conteo y la asignación de votos, las juntas receptoras trasladarán la totalidad de la documentación electoral y el material electoral a la junta cantonal correspondiente, a su vez, esta los entregará a la brevedad posible al TSE o a los representantes que este designe.
+No obstante, el Tribunal podrá disponer el traslado directamente desde las propias juntas hasta los lugares que este disponga, tomando, en cada caso, las medidas de seguridad que estime pertinentes. Los fiscales o las fiscales tendrán derecho a acompañar la conducción de los documentos electorales a esos lugares.
+Las papeletas que se inutilicen se remitirán, junto con el resto de la documentación electoral, al TSE, el cual, después de la declaratoria respectiva, podrá disponer de ellas discrecionalmente.

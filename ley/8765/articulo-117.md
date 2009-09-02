@@ -1,0 +1,2 @@
+ARTÍCULO 117.- Liquidación de bonos
+Si la contribución que el Estado debe liquidar a cada partido no alcanza para cubrir la totalidad de la primera emisión de certificados de cesión, el cambio por los bonos del Estado se realizará con la disminución proporcional correspondiente. La misma norma se aplicará en forma escalonada a las emisiones siguientes, si cubierta en su totalidad la primera emisión existe un sobrante.

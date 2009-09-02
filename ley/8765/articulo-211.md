@@ -1,0 +1,2 @@
+ARTÍCULO 211.- Acreditación
+Las personas fiscales acreditarán su personería mediante carné emitido por los partidos políticos que los hayan nombrado; al carné se le dará autenticidad mediante el distintivo que indique la Dirección General del Registro Electoral. En todo caso, le corresponde al partido político realizar los trámites pertinentes, a fin de que las personas fiscales nombradas por estos sean acreditadas por la Dirección General del Registro Electoral.
