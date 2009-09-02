@@ -1,0 +1,1 @@
+Artículo 16.—Si no se presentaran aspirantes en el plazo fijado, o ninguna de las personas que participaron en el concurso alcanza un puntaje final de por lo menos un 80%, la Comisión Calificadora declarará desierto el concurso y lo comunicará así al Ministro de Relaciones Exteriores y Culto, con las recomendaciones que estime oportunas.

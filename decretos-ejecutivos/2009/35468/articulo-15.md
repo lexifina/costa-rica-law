@@ -1,0 +1,1 @@
+Artículo 15.—Una vez concluidos los plazos para la presentación de documentos y atestados, y efectuadas y calificadas las pruebas y entrevistas a que se refieren los artículos anteriores, la Comisión Calificadora del Servicio Exterior determinará el puntaje final obtenido por cada aspirante y colocará los resultados en el Instituto Diplomático Manuel María de Peralta.

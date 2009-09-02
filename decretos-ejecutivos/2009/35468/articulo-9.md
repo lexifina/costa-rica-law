@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión Calificadora abrirá un expediente para cada concursante, que se mantendrá debidamente foliado. Estos expedientes estarán bajo la custodia del Secretario de la Comisión. Los concursantes tendrán acceso a su propio expediente.

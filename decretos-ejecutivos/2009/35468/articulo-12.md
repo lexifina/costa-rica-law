@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión Calificadora dará a conocer a todos los aspirantes las bases del concurso y pondrá a disposición de éstos una copia del presente Reglamento, para su consulta. Una semana antes de los exámenes escritos mencionados en el artículo 10, los aspirantes deben presentarse al Ministerio para una charla explicativa.

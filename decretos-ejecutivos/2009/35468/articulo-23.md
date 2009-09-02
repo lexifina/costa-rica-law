@@ -1,0 +1,2 @@
+Artículo 23.—Rige a partir de su publicación.
+Dado en la Presidencia de la República, a los veintiún días del mes de julio del dos mil nueve
