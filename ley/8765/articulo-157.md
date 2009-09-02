@@ -1,0 +1,3 @@
+ARTÍCULO 157.- Registro de la votación en el padrón registro
+Una vez emitido el voto, el presidente de la junta receptora de votos o quien ejerza el cargo, escribirá de su puño y letra, en el margen derecho del padrón registro correspondiente al renglón donde aparece inscrito el elector, la expresión: sí votó.
+No obstante, el Tribunal podrá emplear medios electrónicos de registro y control de electores y de votación, cuando llegue a determinar que son confiables y seguros. Entonces podrá prescindir de la utilización del documento a que se refiere este artículo y los procedimientos inherentes a su uso.

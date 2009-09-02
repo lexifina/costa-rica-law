@@ -1,4 +1,2 @@
 Separación de Magistrados por impedimento.
-ARTICULO 12.- El Magistrado con motivo legal de impedimento respecto
-de determinado asunto, se separará de su conocimiento hasta que cese el
-motivo y en su lugar actuará un Suplente.
+ARTICULO 12.-(Derogado por el artículo 310 aparte d) del Código Electoral, Ley N° 8765 del 19 de agosto de 2009)

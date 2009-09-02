@@ -1,0 +1,4 @@
+ARTÍCULO 152.- Listas provisionales de electores
+Seis meses antes de una elección, el Registro Civil preparará las listas provisionales de electores. A la brevedad posible, deberá enviarlas a la autoridad de policía de cada distrito administrativo. Las autoridades municipales y de policía estarán obligadas a colaborar para colocarlas, de inmediato, en lugares visibles donde permanecerán exhibidas para consulta pública durante cuatro meses; también, será responsabilidad de estas autoridades custodiarlas.
+El Registro Civil pondrá a disposición de los partidos políticos una copia del padrón actualizado, por el medio técnico que aporten para reproducirlo, cuando la solicite alguna persona de su comité ejecutivo superior o representante.
+Todo lo anterior sin perjuicio de utilizar otros mecanismos que garanticen su publicidad.

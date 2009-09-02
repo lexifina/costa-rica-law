@@ -1,4 +1,2 @@
 Funciones.
-ARTICULO 5º.- El Tribunal tiene las funciones determinadas en la
-Constitución Política, esta Ley Orgánica, el Código Electoral y las demás
-que le confieran las leyes de la República.
+ARTICULO 5º.- (Derogado por el artículo 310 aparte d) del Código Electoral, Ley N° 8765 del 19 de agosto de 2009)

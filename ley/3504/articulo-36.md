@@ -1,6 +1,2 @@
 Firmeza de las resoluciones o actuaciones del Tribunal.
-ARTICULO 36.- Las resoluciones del Tribunal quedarán firmes al
-aprobarse el acta respectiva, salvo que se haya dispuesto otra cosa.
-Cualquier Magistrado puede pedir revisión de lo acordado en la sesión
-inmediata anterior o solicitar modificaciones en la redacción del acta,
-antes de ser aprobada.
+ARTICULO 36.- (Derogado por el artículo 310 aparte d) del Código Electoral, Ley N° 8765 del 19 de agosto de 2009)

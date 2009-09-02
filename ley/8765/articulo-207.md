@@ -1,0 +1,4 @@
+ARTÍCULO 207.- Vacantes definitivas
+Si en el tiempo transcurrido entre la inscripción de una papeleta de diputados(as) o de munícipes y la declaratoria definitiva de elección, ocurre el fallecimiento de alguno de los candidatos(as), su lugar se tendrá como vacante y será llenado ascendiendo automáticamente a los otros(as) candidatos(as) de la misma papeleta que estén colocados en puestos inferiores al del candidato(a) fallecido.
+Cuando se produzca una vacante definitiva luego de hecha la declaratoria, sea antes o después de la juramentación del diputado(a), el Tribunal procederá a llenarla llamando a ejercer el cargo, por el resto del período constitucional, al ciudadano que en la misma papeleta ocupó el lugar inmediato inferior al último que resultó elegido(a).
+En caso de que esa persona no pueda ocupar la vacante se llamará, por orden descendente, a quienes aparezcan en la misma papeleta.

@@ -1,0 +1,3 @@
+ARTÍCULO 135.- Donaciones y aportes de personas físicas nacionales
+Las personas físicas nacionales podrán destinar contribuciones, donaciones o cualquier otro tipo de aporte, en dinero o en especie, a los partidos, sin limitación alguna en cuanto a su monto.
+Quien ocupe la tesorería del partido político deberá mandar a publicar, en el mes de octubre de cada año, en un diario de circulación nacional, un estado auditado de sus finanzas, incluida la lista de sus contribuyentes o donantes, con indicación expresa del nombre, el número de cédula y el monto aportado por cada uno de ellos durante el año.

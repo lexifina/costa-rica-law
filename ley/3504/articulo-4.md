@@ -1,7 +1,2 @@
 Juramento de los Magistrados y otros funcionarios.
-ARTICULO 4º.- Los Magistrados prestarán el juramento constitucional
-ante la Corte Suprema de Justicia. El Secretario, los Delegados, el
-Prosecretario y los jefes de Sección o de Departamento del Tribunal, así
-como el Director, los Oficiales Mayores, el Secretario, Jefes de Sección
-y Jefes de Oficinas Regionales del Registro Civil, lo harán ante el
-Tribunal Supremo de Elecciones.
+ARTICULO 4º.-(Derogado por el artículo 310 aparte d) del Código Electoral, Ley N° 8765 del 19 de agosto de 2009)

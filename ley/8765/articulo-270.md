@@ -1,0 +1,4 @@
+ARTÍCULO 270.- Levantamiento de la inmunidad
+Si la denuncia contiene cargos contra el presidente, vicepresidentes, ministros(as) de Gobierno, ministros(as) diplomáticos(as), contralor(a) y subcontralor(a) generales de la República, magistrados(as) de la Corte Suprema de Justicia, o cualquier otro funcionario que por ley goce de inmunidad, el Tribunal se concretará a valorar la admisibilidad de la denuncia y, si lo estima necesario, a ordenar a la Inspección Electoral la instrucción de una investigación preliminar.
+En caso de que no proceda rechazar, de plano, la denuncia planteada ni ordenar su archivo, el Tribunal trasladará la denuncia a la Asamblea Legislativa para que realice el proceso de levantamiento de la inmunidad establecido constitucionalmente.
+Si el titular de la inmunidad renuncia a ella para someterse voluntariamente al procedimiento, el Tribunal resolverá según corresponda.

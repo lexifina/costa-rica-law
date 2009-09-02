@@ -1,0 +1,3 @@
+ARTÍCULO 151.- Número de representantes
+El número de representantes a una asamblea constituyente, a la Asamblea Legislativa y a los concejos municipales y de distrito que corresponda elegir estará dispuesto en el decreto de convocatoria, el cual fijará ese número con estricta observancia de lo dispuesto en la Constitución Política, la ley de convocatoria a la asamblea constituyente y el Código Municipal, según corresponda.
+Los partidos políticos inscritos a escala nacional o provincial designarán tantos candidatos(as) a diputados(as) como deban elegirse por la respectiva provincia y un veinticinco por ciento (25%) más. Este exceso será, por lo menos, de dos candidatos y el TSE lo fijará para cada provincia, en la convocatoria a elecciones.

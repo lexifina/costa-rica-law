@@ -1,0 +1,3 @@
+ARTÍCULO 35.- Apelaciones y quejas
+Los acuerdos de las juntas cantonales y el conteo efectuado por las juntas receptoras de votos podrán apelarse ante el TSE, de conformidad con los procedimientos establecidos en este Código. La apelación, que no tendrá efecto suspensivo, deberá presentarla el fiscal o el representante de algún partido político participante en la elección y, bajo pena de inadmisibilidad, deberá ser fundamentada con ofrecimiento de las pruebas del caso.
+De las actuaciones de las juntas electorales, cualquier ciudadano o ciudadana podrá quejarse ante el Tribunal dentro del tercer día, excepto el día de las elecciones en que deberá hacerlo durante la misma jornada. El TSE resolverá sin mayor trámite y lo resuelto deberá acatarse de inmediato.

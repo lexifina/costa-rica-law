@@ -1,0 +1,2 @@
+ARTÍCULO 306.- Franquicia durante el período eleccionario
+Los organismos electorales gozan, durante el período de la campaña electoral, de franquicia en todos los servicios que presten los entes y las empresas públicos encargados de las comunicaciones y el servicio postal. Durante el día de las elecciones, los particulares gozarán de franquicia en esos servicios, para quejarse de cualquier irregularidad ante las autoridades administrativas, judiciales y electorales.

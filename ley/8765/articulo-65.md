@@ -1,0 +1,2 @@
+ARTÍCULO 65.- Término para resolver la solicitud
+Vencido el plazo de objeciones, la Dirección General del Registro Electoral, sin más trámite, se pronunciará sobre las objeciones si las hay, y acordará o denegará la inscripción mediante resolución debidamente fundamentada, dentro del plazo de un mes. Dicha resolución deberá ser comunicada por la Dirección General del Registro Electoral al partido o a los partidos políticos involucrados en el proceso.

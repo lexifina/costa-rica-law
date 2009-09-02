@@ -1,0 +1,2 @@
+ARTÍCULO 190.- Solicitud de traslado
+Las ciudadanas y los ciudadanos que deseen emitir su voto en el extranjero deberán realizar su solicitud de traslado de domicilio electoral ante el TSE o en la forma que este señale. Cuando se realice la solicitud ante la sede diplomática, se trasladará al Tribunal para su aprobación final. Para tal efecto, se seguirán los mismos trámites que para los cambios de domicilio electoral en el interior del país.

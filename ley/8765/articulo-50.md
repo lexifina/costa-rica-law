@@ -1,0 +1,4 @@
+ARTÍCULO 50.- Organización y democracia interna de los partidos
+Los partidos políticos se regirán por la Constitución Política, este Código, sus estatutos, sus cartas ideológicas y cualesquiera otros documentos libremente acordados por ellos en virtud del principio de autorregulación.
+En su organización y actividad, los partidos políticos deberán regirse por sus propios estatutos, siempre que se respete el ordenamiento jurídico, los principios de igualdad, de libre participación de los miembros y demás fundamentos democráticos. El cumplimiento de estos principios será vigilado por el TSE y lo resuelto por este en esas materias será de acatamiento obligatorio para los partidos políticos.
+Los partidos políticos se tendrán por constituidos y contarán con personalidad jurídica propia, a partir de la fecha de su inscripción ante el TSE.
