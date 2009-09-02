@@ -1,6 +1,4 @@
 CAPITULO XIII
 DE LAS ACTAS Y DE LAS RESOLUCIONES DEL TRIBUNAL
 Libro de Actas.
-ARTICULO 33.- El Tribunal llevará un libro destinado únicamente a
-actas de las sesiones que celebre, el cual tendrá sus folios debidamente
-numerados y de él formarán parte los tomos sucesivos que sean necesarios.
+ARTICULO 33.-(Derogado por el artículo 310 aparte d) del Código Electoral, Ley N° 8765 del 19 de agosto de 2009)
