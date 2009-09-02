@@ -1,0 +1,1 @@
+Artículo 10.—Los gastos de viaje y transporte se regularán en forma independiente al pago de compensación por desarraigo, de acuerdo con lo dispuesto por el Reglamento de Gastos de Viaje y de Transportes para Funcionarios Públicos, emitido por la Contraloría General de la República.

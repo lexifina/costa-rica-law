@@ -1,0 +1,1 @@
+Artículo 6º—Si a quien se le está reconociendo el pago por compensación por desarraigo se le traslada a un lugar en el cual el beneficio es también procedente, de oficio se cambiará el monto correspondiente al de la nueva zona asignada, para lo cual se realizará el trámite de Acción de Personal ante la Dirección de Desarrollo Humano y Organizacional.

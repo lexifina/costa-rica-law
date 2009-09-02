@@ -1,0 +1,1 @@
+Artículo 8º—La compensación por desarraigo cesará de pagarse cuando el empleado deje de realizar labores en el lugar para el que se le había reconocido el disfrute de ese pago, cuando se modifiquen las circunstancias que motivaron ese pago adicional, o cuando finalice el plazo establecido de pago según el contrato firmado al efecto.

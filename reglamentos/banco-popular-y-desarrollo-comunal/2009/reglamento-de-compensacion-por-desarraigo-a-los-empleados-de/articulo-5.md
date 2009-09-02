@@ -1,0 +1,1 @@
+Artículo 5º—Cuando a un empleado que no devengue pago por compensación por desarraigo se le trasladare a prestar servicios a un lugar diferente a su lugar de domicilio legal, por menos de treinta días, se le pagará la compensación correspondiente al Reglamento de Gastos de Viaje y de Transportes para Funcionarios Públicos, emitido por la Contraloría General de la República.

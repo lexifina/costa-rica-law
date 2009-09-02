@@ -1,0 +1,1 @@
+Artículo 13.—Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento de Compensación por Desarraigo (Zonaje) a los Servidores del Banco Popular y de Desarrollo Comunal, aprobado por Junta Interventora en sesión Nº 1829 del 23 de octubre de 1985, y publicado en La Gaceta Nº 15 del 22 de enero de 1986.
