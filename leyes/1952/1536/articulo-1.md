@@ -1,4 +1,6 @@
+(Derogado)
 N° 1536
+(Esta norma fue Derogada por el artículo 310 aparte e) del Código Electoral, Ley N° 8765 del 19 de agosto de 2009)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 El siguiente:
