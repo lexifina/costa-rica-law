@@ -1,0 +1,2 @@
+ARTÍCULO 126.- Prohibición de gestión paralela de contribuciones privadas
+La gestión del financiamiento privado estará a cargo de la tesorería del partido político o, en su defecto, de la persona autorizada por el comité ejecutivo superior para realizar actividades de recaudación de fondos. Ninguna persona o grupo de personas podrá realizar gestiones en este sentido a beneficio del partido político sin la debida autorización de este.

@@ -1,0 +1,7 @@
+ARTÍCULO 93.- Gastos de capacitación y organización política
+Los gastos de capacitación y organización política, justificables dentro de la contribución estatal, serán los siguientes:
+a) Organización política: comprende todo gasto administrativo para fomentar, fortalecer y preparar a los partidos políticos para su participación de modo permanente en los procesos políticos y electorales.
+b) Capacitación: incluye todas las actividades que les permiten a los partidos políticos realizar la formación política, técnica o ideológico-programática de las personas, así como la logística y los insumos necesarios para llevarlas a cabo.
+c) Divulgación: comprende las actividades por medio de las cuales los partidos políticos comunican su ideología, propuestas, participación democrática, cultura política, procesos internos de participación y acontecer nacional. Incluye los gastos que se generen en diseñar, producir y difundir todo tipo de material que sirva como herramienta de comunicación.
+d) Censo, empadronamiento, investigación y estudios de opinión: se refieren a las actividades dirigidas a recolectar, compilar, evaluar y analizar la información de interés para el partido; confeccionar padrones partidarios; realizar investigaciones socioeconómicas y políticas sobre situaciones de relevancia nacional o internacional, así como realizar sondeos de opinión.
+Lo anterior sin perjuicio de que vía reglamento se regulen nuevas situaciones que se enmarquen dentro del concepto comprendido por gastos justificables en la presente Ley.

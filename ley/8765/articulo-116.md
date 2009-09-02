@@ -1,0 +1,2 @@
+ARTÍCULO 116.- Prohibición para adquirir certificados de cesión
+Ninguna persona, física o jurídica, extranjera podrá adquirir certificados emitidos por los partidos políticos en calidad de cesión de derechos eventuales, ni realizar otras operaciones financieras relacionadas con los partidos políticos. Se prohíbe a los partidos políticos aceptar o recibir por este concepto, directa o indirectamente, de esas mismas personas cualquier aporte.

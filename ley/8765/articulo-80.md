@@ -1,0 +1,2 @@
+ARTÍCULO 80.- Efectos de la fusión plena
+Cuando se trate de la solicitud de inscripción de un pacto de fusión plena, la Dirección General del Registro Electoral resolverá de inmediato y, de ser procedente, ordenará la cancelación de los partidos fusionados y que se inicie el trámite de inscripción del nuevo partido. El plazo de dos años que contempla el artículo 60 de este Código se contará a partir de este momento.

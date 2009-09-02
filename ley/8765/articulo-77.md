@@ -1,0 +1,5 @@
+ARTÍCULO 77.- Fusión plena
+La fusión plena tiene como finalidad la creación de una nueva agrupación, diferente de todos los partidos fusionados.
+En el caso de la fusión entre partidos cantonales del mismo cantón, la asamblea cantonal del nuevo partido se formará con las delegaciones designadas por cada uno de los partidos fusionados, aprobadas por su respectiva asamblea cantonal.
+Cuando la fusión ocurre entre partidos cantonales para formar un nuevo partido a escala provincial, las asambleas cantonales del nuevo partido constituido serán las mismas de cada partido fusionado, salvo en el caso de que haya dos partidos o más del mismo cantón, en cuyo caso se procederá según el párrafo anterior y se deberá integrar la asamblea provincial respectiva. De igual manera se procederá si la fusión ocurre entre partidos provinciales de distintas provincias para formar un nuevo partido nacional.
+La formación de la nueva asamblea provincial o nacional, según corresponda, se hará por delegaciones, según lo dispone este Código.

@@ -1,0 +1,2 @@
+ARTÍCULO 49.- Régimen jurídico
+Los partidos políticos son asociaciones voluntarias de ciudadanos y ciudadanas, sin fines de lucro, creadas con el objeto de participar activamente en la política nacional, provincial o cantonal según estén inscritos, y cumplen una función de relevante interés público. Se regirán por la Constitución Política, este Código, sus estatutos, sus reglamentos, sus cartas ideológicas y cualesquiera otros documentos acordados por ellos.

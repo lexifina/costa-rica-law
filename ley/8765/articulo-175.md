@@ -1,0 +1,3 @@
+ARTÍCULO 175.- Ausencia de algún miembro de la junta receptora de votos
+Si durante la votación se ausenta algún miembro de la junta, lo reemplazará su suplente. Si se ausenta el presidente y no está su suplente, para reemplazarlo en el cargo, los otros miembros presentes nombrarán por simple mayoría una presidencia ad hoc, que fungirá como tal hasta tanto no reasuma el cargo el titular o el suplente. En caso de empate, decidirá la suerte.
+Todas las incidencias anteriores se harán constar en el padrón registro. La referida nota, como todas las demás que se hagan, expresará la hora en que ocurrió la incidencia y llevará la firma de todos los miembros presentes de la junta.

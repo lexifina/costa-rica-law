@@ -1,0 +1,3 @@
+ARTÍCULO 228.- Plazo para interponer el recurso
+El plazo de prescripción para interponer el recurso de amparo electoral será de dos meses, contados a partir de que inicie la perturbación del derecho que se reclama.
+Sin embargo, cuando el recurso lo plantee un(a) aspirante a un puesto de elección popular dentro del período de escogencia correspondiente, el recurso deberá plantearse dentro de los tres días hábiles siguientes a la notificación del acto del órgano del partido que supuestamente le lesionó su derecho fundamental o a la celebración de la asamblea del partido en que se produjo la supuesta lesión de su derecho, según sea el caso.

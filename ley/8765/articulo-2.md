@@ -1,0 +1,4 @@
+Artículo 2.- Principios de participación política por género
+La participación política de hombres y mujeres es un derecho humano reconocido en una sociedad democrática, representativa, participativa e inclusiva, al amparo de los principios de igualdad y no discriminación.
+La participación se regirá por el principio de paridad que implica que todas las delegaciones, las nóminas y los demás órganos pares estarán integrados por un cincuenta por ciento (50%) de mujeres y un cincuenta por ciento (50%) de hombres, y en delegaciones, nóminas u órganos impares la diferencia entre el total de hombres y mujeres no podrá ser superior a uno.
+Todas las nóminas de elección utilizarán el mecanismo de alternancia por sexo (mujer-hombre u hombre-mujer), en forma tal que dos personas del mismo sexo no puedan estar en forma consecutiva en la nómina.

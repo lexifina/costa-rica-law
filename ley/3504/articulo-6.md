@@ -1,6 +1,2 @@
 Ausencia de propietarios. Integración con suplentes.
-ARTICULO 6º.- Para reemplazar temporalmente a los Magistrados
-propietarios se llamará mediante sorteo, a alguno de los Magistrados
-suplentes.
-En casos de ausencia definitiva se dará cuenta a la Corte Suprema de
-Justicia, para que proceda a la respectiva designación.
+ARTICULO 6º.- (Derogado por el artículo 310 aparte d) del Código Electoral, Ley N° 8765 del 19 de agosto de 2009)

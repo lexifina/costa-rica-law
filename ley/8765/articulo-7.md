@@ -1,0 +1,5 @@
+ARTÍCULO 7.- Impedimentos para ser integrante
+No podrán ser integrantes de los organismos electorales las siguientes personas:
+a) Los funcionarios y los empleados a que se refiere el segundo párrafo del artículo 146 de este Código, salvo los funcionarios del Registro Civil, los funcionarios del TSE y los magistrados del TSE.
+b) En un mismo órgano electoral, en un mismo momento, el cónyuge, los hermanos, los padres e hijos, además de la unión de hecho.
+c) En el TSE, el cónyuge, los hermanos, los ascendientes o descendientes hasta tercer grado de consanguinidad o afinidad, de los candidatos cuya declaratoria de elección debe efectuar dicho Tribunal. No obstante, si estando ya integrado el Tribunal surge alguna candidatura que produzca la incompatibilidad apuntada, desde ese mismo momento el miembro en funciones afectado deberá excusarse de intervenir en el proceso electoral, sin perjuicio del derecho a su sueldo. Cuando se trate de los magistrados titulares del Tribunal, el impedimento cesará a partir de la declaratoria de elección.

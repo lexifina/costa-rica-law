@@ -1,0 +1,1 @@
+ARTÍCULO 105.- Registro de profesionales contables. La Contraloría General de la República registrará al contador público autorizado que quiera brindar servicios profesionales a los partidos políticos. Asimismo, reglamentará los requisitos para conformar este registro.

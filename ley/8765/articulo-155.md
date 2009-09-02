@@ -1,0 +1,3 @@
+ARTÍCULO 155.- Distribución de los electores
+El TSE establecerá el número máximo de electores correspondientes a cada junta receptora, a fin de contar con el tiempo necesario para que todos los ciudadanos voten.
+Al Registro Civil le corresponderá fijar el número de juntas receptoras de votos en cada distrito y distribuir a las personas electoras que habrán de votar en cada una, procurando que los ciudadanos no tengan que recorrer largas distancias para emitir su voto y tomando en cuenta las condiciones y los medios de comunicación. Los electores de cada distrito o los partidos políticos podrán dirigirse al Registro Civil para sugerir las modificaciones que consideren necesarias.
