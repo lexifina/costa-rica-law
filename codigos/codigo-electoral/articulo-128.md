@@ -1,0 +1,3 @@
+ARTÍCULO 128.- Prohibición de la contribución de extranjeros y personas jurídicas
+Prohíbese a los extranjeros y a las personas jurídicas de cualquier naturaleza y nacionalidad efectuar, directa, indirectamente o en forma encubierta, contribuciones, donaciones o aportes, en dinero o en especie, para sufragar los gastos de los partidos políticos. A los extranjeros, sean personas físicas o jurídicas, también les está prohibido otorgar préstamos, adquirir títulos o realizar cualquier otra operación que implique beneficio de cualquier clase para los partidos políticos.
+Los miembros del comité ejecutivo superior serán responsables de velar por el cumplimiento de esta norma.

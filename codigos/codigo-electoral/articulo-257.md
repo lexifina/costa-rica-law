@@ -1,0 +1,2 @@
+ARTÍCULO 257.- Cancelación de credencial por renuncia
+No será necesario seguir el procedimiento administrativo, si la cancelación ha de declararse en virtud de renuncia del servidor, previamente conocida por el concejo municipal. En este caso, junto con la solicitud de cancelación de credenciales, el órgano municipal deberá enviar el original o copia certificada de la carta de renuncia y el respectivo acuerdo del concejo municipal en que se pronuncia sobre esta.

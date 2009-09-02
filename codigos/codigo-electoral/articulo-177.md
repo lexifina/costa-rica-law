@@ -1,0 +1,2 @@
+ARTÍCULO 177.- Presentación de los electores
+A cada elector que se presente se le preguntará el nombre y los apellidos. Si la persona aparece inscrita en el padrón registro, se le requerirá presentar su cédula de identidad para cotejar el número con que aparece en el citado padrón. Constatada la identidad del elector, este firmará al margen de su nombre, salvo si no sabe o no puede hacerlo, en cuyo caso se dejará constancia. Luego se le invitará a pasar al lugar correspondiente para que emita el voto, según la modalidad de instrumento de votación establecida por el TSE.

@@ -1,0 +1,2 @@
+ARTÍCULO 298.- Obligación de los bancos
+En caso de que se realice una contribución en contradicción con lo establecido en este Código, por medio de depósito o transferencia bancaria, el banco que reciba la contribución deberá congelar, de inmediato, los fondos e informar al TSE, el cual, de proceder, dispondrá la aplicación de multa y el depósito del dinero retenido por la entidad bancaria a favor de la cuenta única a nombre del TSE.

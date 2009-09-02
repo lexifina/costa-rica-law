@@ -1,0 +1,6 @@
+ARTÍCULO 154.- Lista definitiva de personas electoras
+Un mes antes de una elección, el Registro Civil deberá tener impresas, por orden alfabético, las listas definitivas de electores, cuyas hojas deberán estar marcadas con el distintivo de esta dependencia.
+El TSE distribuirá al menos quince días naturales antes de las elecciones, en forma impresa y dividido por distrito electoral, el respectivo padrón a cada junta cantonal, la que lo colocará en un lugar visible y en forma segura, con el fin de que los electores verifiquen su lugar de votación.
+Además, el Registro Civil deberá entregar, cuando así lo soliciten los partidos políticos con candidaturas inscritas, una copia del padrón electoral definitivo en forma impresa y en cualquier otro medio tecnológico que sirva para reproducirlo. Cuando el partido político solicite el medio tecnológico deberá proporcionar el soporte respectivo al Registro Civil.
+En los materiales que se distribuyan a las juntas receptoras de votos deberá ir una copia impresa del respectivo padrón; la junta lo colocará en lugar visible para que cada votante ubique su nombre.
+En cumplimiento del principio de publicidad, el Registro Civil podrá utilizar cualquier otro medio que permita darle al padrón electoral la máxima divulgación posible.

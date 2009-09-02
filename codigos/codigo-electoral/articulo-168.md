@@ -1,0 +1,2 @@
+ARTÍCULO 168.- Inicio de la votación
+Antes de iniciarse la votación, los miembros de la junta que estén presentes procederán a revisar el material y los documentos electorales, dejando constancia en el padrón registro de toda incidencia. De inmediato, se consignará en él la hora en que se inicia la votación, los nombres de los miembros de la junta presentes, el del presidente o de quien ejerza el cargo, así como todos los demás datos del acta de apertura. A continuación, se iniciará la votación, si ya es la hora de la apertura.

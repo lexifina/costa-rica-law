@@ -1,0 +1,2 @@
+ARTÍCULO 81.- Transmisión de derechos y deberes de partidos fusionados
+Los derechos y las obligaciones de los partidos fusionados quedarán asumidos, de pleno derecho, por el partido supérstite o por el nuevo partido constituido, según el caso, lo cual incluye los derechos y las obligaciones que se deriven de la contribución estatal a los partidos políticos. A partir de la inscripción del pacto de fusión y durante la vigencia de la inscripción del supérstite o del nuevo partido, no se inscribirá ningún otro con los distintivos de los partidos absorbidos o fusionados.

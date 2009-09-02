@@ -1,0 +1,2 @@
+ARTÍCULO 129.- Prohibición de contribuciones depositadas fuera del país
+Prohíbese depositar y recibir contribuciones, donaciones o cualquier otro tipo de aporte por medio de entidades financieras ubicadas fuera del territorio nacional. En caso de que un partido político reciba un depósito en esta condición, no podrá utilizar dichos fondos irregulares y deberá dar cuenta, de inmediato, de esta situación al TSE, que resolverá el caso según corresponda.

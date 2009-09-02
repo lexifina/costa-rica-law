@@ -1,0 +1,2 @@
+ARTÍCULO 236.- Interposición de la acción
+La acción de nulidad se iniciará mediante un escrito en el que se indique el acto o la disposición contra el cual se reclama la nulidad, con indicación de la forma en que ello lesiona derechos subjetivos o intereses legítimos del accionante, así como la relación entre el acto impugnado y los procesos de integración de los órganos partidarios o los mecanismos de selección de candidatos(as). La gestión se presentará directamente ante el TSE, el cual resolverá en única instancia.

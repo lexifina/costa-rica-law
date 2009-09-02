@@ -1,0 +1,3 @@
+ARTÍCULO 23.- Firmeza de las resoluciones o actuaciones del Tribunal
+Las resoluciones del Tribunal quedarán firmes al aprobarse el acta respectiva, salvo que se haya dispuesto otra cosa. Los magistrados asistentes a una sesión estarán obligados a firmar el acta respectiva; si por cualquier motivo no asisten a la sesión en que se aprueba y firma el acta, deberán hacerlo posteriormente.
+Cualquier magistrado que intervenga en la aprobación del acta puede pedir revisión de lo acordado en la sesión inmediata anterior o solicitar modificaciones en la redacción de esta, antes de que sea aprobada. Si no fueran acogidas, dejará constancia de su oposición y firmará el acta.

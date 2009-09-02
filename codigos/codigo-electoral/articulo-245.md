@@ -1,0 +1,2 @@
+ARTÍCULO 245.- Legitimación para interponer el recurso
+La legitimación para presentar recursos de apelación electoral queda reservada a las personas que ostenten un derecho subjetivo o un interés legítimo comprometido por la decisión recurrida. También estará legitimado, bajo los mismos principios, el comité ejecutivo superior de cualquiera de los partidos políticos que intervengan con candidaturas inscritas en el proceso electoral dentro del cual se tomó el acuerdo cuestionado, y actuará por medio de quien ostente la representación legal.

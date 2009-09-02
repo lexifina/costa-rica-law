@@ -1,0 +1,2 @@
+ARTÍCULO 260.- Cancelación de credenciales por afectación de la zona marítimo-terrestre
+Cuando se denuncien los hechos contemplados en el artículo 63 de la Ley sobre la zona marítimo terrestre, el Tribunal lo comunicará a la Procuraduría General de la República, a fin de que esta investigue, preliminarmente, el asunto y eventualmente ejerza la respectiva acción penal. El Tribunal resolverá una vez que los tribunales penales dicten el respectivo pronunciamiento, siempre se tendrá, como parte del procedimiento administrativo, a la Procuraduría.

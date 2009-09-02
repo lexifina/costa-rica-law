@@ -1,0 +1,6 @@
+ARTÍCULO 230.- Efecto suspensivo de la interposición del recurso
+La admisibilidad del recurso de amparo electoral no suspenderá los efectos de las leyes u otras disposiciones normativas cuestionadas, pero sí la aplicación de estas al recurrente, así como la de los actos concretos impugnados.
+Sin embargo, en casos de excepcional gravedad, el Tribunal podrá disponer la ejecución, a solicitud de parte o de oficio, cuando la suspensión cause o amenace causar daños o perjuicios ciertos e inminentes, mayores que los que la ejecución causaría al agraviado, mediante las cautelas que considere procedentes para proteger los derechos o las libertades de este último y no hacer ilusorio el efecto de una eventual resolución del recurso a su favor.
+La suspensión operará de pleno derecho y se notificará, sin demora, al órgano o funcionario contra quien se dirige el amparo, por la vía más expedita posible.
+De igual modo, el o la presidente(a) o magistrado(a) instructor podrá dictar cualquier medida de conservación o seguridad que la prudencia aconseje para prevenir riesgos materiales o evitar que se produzcan otros daños como consecuencia de los hechos realizados, todo conforme a las circunstancias del caso.
+El Tribunal por resolución fundada, podrá, hacer cesar, en cualquier momento, la autorización de ejecución o las otras medidas cautelares que se hayan dictado.

@@ -1,0 +1,5 @@
+CAPÍTULO III
+IMPUGNACIÓN DE ACUERDOS DE ASAMBLEAS DE PARTIDOS
+POLÍTICOS EN PROCESO DE CONSTITUCIÓN E INSCRIPCIÓN
+ARTÍCULO 232.- Impugnación de acuerdos
+La impugnación de los acuerdos de las asambleas de los partidos políticos en proceso de constitución e inscripción procederá en los siguientes términos: cualquiera de las personas que integren esas asambleas podrá impugnarlos. Para la resolución de tales impugnaciones servirá como prueba, entre otras, el informe de los representantes del TSE. Corresponderá al comité ejecutivo provisional resolver esa impugnación, salvo que se trate de acuerdos de la asamblea superior. Lo resuelto por dicha instancia partidaria, o si la impugnación es contra acuerdos de la asamblea superior, podrá apelarse dentro de los tres días siguientes a la notificación de lo resuelto, ante el Registro Electoral. Contra lo que resuelva este órgano electoral podrá presentarse recurso de apelación ante el TSE, dentro de las cuarenta y ocho horas siguientes, para su resolución definitiva.

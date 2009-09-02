@@ -1,0 +1,2 @@
+ARTÍCULO 124.- Participación de organizaciones internacionales en los procesos de capacitación de los partidos políticos
+Las organizaciones internacionales dedicadas al desarrollo de la cultura, participación política y defensa de los valores democráticos, únicamente podrán colaborar en el proceso de capacitación de los partidos políticos siempre que respeten el orden constitucional y la soberanía nacional. Estas organizaciones deberán acreditarse ante el TSE.

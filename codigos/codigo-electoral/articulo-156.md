@@ -1,0 +1,4 @@
+ARTÍCULO 156.- Padrón registro
+El padrón registro es el documento electoral en donde deben consignarse la apertura, las incidencias y el cierre de la votación; debe incluir, al menos, la lista de electores, sus fotografías y el número de la junta receptora de votos a que corresponde.
+La impresión de dicho padrón corresponderá a la Dirección General del Registro Civil, con las características particulares dispuestas reglamentariamente, y deberá garantizar que esté total y oportunamente preparado para ser distribuido a cada junta receptora de votos.
+El padrón registro es la plena prueba del resultado de una votación, mientras no aparezca contradicho por otro documento de igual valor o no se pruebe que es falso. En caso de extravío o si resultara inconsistente, el Tribunal resolverá con vista en la documentación electoral correspondiente a cada elección.

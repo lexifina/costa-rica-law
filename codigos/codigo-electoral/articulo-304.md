@@ -1,0 +1,6 @@
+ARTÍCULO 304.- Trámite de licitaciones para adquirir materiales electorales
+Durante el año anterior al día en que deba tener lugar una elección, las oficinas de gestión presupuestaria deberán tramitar, en el término máximo de cinco días naturales, las solicitudes de mercancías y reservas de crédito que formule el TSE, sin entrar a calificar la conveniencia u oportunidad del gasto.
+A juicio del Tribunal, durante este período, las adquisiciones de bienes y servicios que sean necesarios para cumplir con la organización del proceso electoral podrán hacerse mediante contratación directa, cualquiera que sea su monto.
+Contra la adjudicación que se llegue a acordar no se admitirá recurso alguno. En lo conducente, se tendrá por reformada la Ley de contratación administrativa y su Reglamento.
+Las papeletas que se requieran para los distintos procesos electorales a cargo del TSE, se imprimirán en la Imprenta Nacional. Sin embargo, es necesario el Tribunal podrá realizar dicha impresión en imprentas privadas, prescindiendo del sistema de licitación exigido por la Ley de contratación administrativa. En virtud de lo anterior, durante el tiempo que demoren tales impresiones, la Imprenta Nacional quedará a las órdenes del Tribunal.
+Dentro de ese mismo período, cuando se trate de espacios y productos publicitarios, el Tribunal podrá contratar directamente.

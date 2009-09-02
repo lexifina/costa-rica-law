@@ -1,0 +1,2 @@
+ARTÍCULO 34.- Locales para las juntas electorales
+Durante el ejercicio de sus funciones y mientras no tengan local propio, las juntas electorales ocuparán para sus labores, por propia autoridad, las escuelas y otros locales públicos que no estén prestando servicio y que consideren adecuados para ese objeto. Para sesionar en locales particulares necesitarán autorización del TSE. Todas las sesiones de las juntas electorales estarán sujetas al derecho de fiscalización y observación electoral.

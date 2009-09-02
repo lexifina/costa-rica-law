@@ -1,0 +1,2 @@
+ARTÍCULO 292.- Multas al patrono que obstaculice el ejercicio del sufragio a sus trabajadores(as)
+Se impondrá multa de dos a cinco salarios base al patrono que, incumpliendo la obligación establecida en el inciso j) del artículo 69 del Código de Trabajo, impida a sus trabajadores(as) o empleados(as) ausentarse de su trabajo el día de las elecciones durante el tiempo prudencial para emitir el voto, o que en virtud de ello les aplique alguna sanción o les reduzca el salario.

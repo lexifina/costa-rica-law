@@ -1,0 +1,3 @@
+ARTÍCULO 273.- Delitos sobre el financiamiento partidario
+Se impondrá pena de prisión de dos a cuatro años a quien recaude fondos para algún partido político sin haber sido autorizado por el tesorero del partido.
+La pena de prisión será de tres a seis años al contador público que haya certificado con su firma la comprobación de los gastos de la contribución estatal, cuando oculte información, consigne datos falsos en la certificación de gastos del partido o en el informe de control interno de este, o cuando rehúse brindar información requerida por el Tribunal para los efectos de verificar la comprobación de los gastos redimibles por contribución estatal.
