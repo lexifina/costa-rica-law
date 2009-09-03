@@ -1,1 +1,1 @@
-Artículo 23.—Toda gestión debe presentarse ante el Departamento de Adquisiciones, con mención clara del número del concurso, orden de compra o contrato a que se refiere.
+Artículo 23.—(Derogado en sesión N° 8377 del 3 de setiembre de 2009)

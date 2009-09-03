@@ -1,14 +1,7 @@
 CAPÍTULO VI
-De la forma de trámite para autorización de
+(*)De la forma de trámite para autorización de
 la Contraloría General de la República
-Artículo 69.—Para efectos de la autorización por parte de la Contraloría General de la República, la Caja presentará respecto de cada contratación, una solicitud que se acompañará del original del expediente del concurso. Este expediente se compondrá de los siguientes elementos:
-Peticiones de cotización.
-Ofertas recibidas.
-Acta de apertura de las ofertas.
-Calificación de las ofertas.
-Cuadro de precios.
-Acta de recomendación firmada por miembros de la Comisión.
-Certificación de presupuesto.
-Acta de adjudicación.
-Visto bueno de la Dirección Jurídica.
-Cualquier otro documento adicional.
+(*)(Nota de Sinalevi: Mediante sesión N° 8377 del 3 de setiembre de 2009, la Caja Costarricense de Seguro Social, reformó los artículos 69 y 70 de este reglamento. A su vez, establece lo siguiente: "...Nota de la Secretaría de Junta Directiva: los artículos 69º y 70º que preceden a la presente reforma fueron derogados tácitamente por la disposición Nº 7º del Reglamento sobre el refrendo de las contrataciones de la Administración Pública (Resolución Nº R-CO-44-2007 del 11 de octubre del año 2007), de modo que con la presente modificación debe entenderse suprimida la denominación del Capítulo (“De la forma de trámite para autorización de la Contraloría General de la República”) por cuanto no corresponde a su contenido.")
+Artículo 69.—Se tendrá por perfeccionada la relación contractual entre la administración y el contratista cuando el acto de adjudicación o readjudicación adquiera firmeza y, en los casos que se exija la constitución de la garantía de cumplimiento, ésta sea válidamente otorgada de acuerdo con lo dispuesto por las condiciones generales y específicas de la compra. En caso de que el adjudicado no rinda la garantía en tiempo, la Administración se reserva la potestad de declarar insubsistente el concurso y adjudicar al segundo mejor oferente.
+La relación contractual válida y perfeccionada se formalizará mediante el documento de ejecución presupuestaria denominado pedido, orden de compra u otro similar, la cual se emitirá dentro del plazo de tres días hábiles siguientes al momento en que se rinda la garantía de cumplimiento en tiempo y forma. Solamente incluirá la descripción del bien, nombre del contratista, plazo de entrega y monto del contrato. Constituirá instrumento idóneo junto al expediente administrativo en que se sustenta, para que se ejerza la fiscalización del procedimiento, así como para continuar con los trámites de ejecución contractual y pago respectivo.
+(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

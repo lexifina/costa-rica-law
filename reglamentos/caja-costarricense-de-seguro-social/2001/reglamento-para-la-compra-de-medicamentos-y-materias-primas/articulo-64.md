@@ -1,6 +1,6 @@
-Artículo 64.—Para todo efecto se tomarán como oficiales los pronunciamientos técnicos emitidos por el LNCM de la Caja.
-El contratista debe presentar ante el Laboratorio de Normas y Calidad de Medicamentos de la Caja Costarricense de Seguro Social los siguientes documentos del Laboratorio fabricante del producto farmacéutico, previo a la fecha de la primera entrega determinada en la orden de compra o contrato:
-Certificado de la fórmula cuali-cuantitativa con que fue registrado el producto farmacéutico en el país, extendido por el Ministerio de Salud de Costa Rica.
-Método de análisis de calidad validado del laboratorio fabricante y el respectivo documento de validación, para el caso de todos aquellos productos farmacéuticos que no aparecen registrados en las farmacopeas oficiales, así declaradas por el Ministerio de Salud de Costa Rica en concordancia con el artículo 106 de la Ley General de Salud.
-Entregar 100 mg de la sustancia patrón de los principios activos acompañada de su respectivo certificado de análisis y con vigencia mínima de 1 año y 25 mg de las sustancias relacionadas.
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 7853 del 29 de abril de 2004)
+Artículo 64.—En todos los casos que se requiera control de calidad de medicamentos, el proveedor entregará dentro del plazo definido por la administración, so pena de imponer la multa que al efecto establezca el cartel y las condiciones generales aprobadas por Junta Directiva, de acuerdo con la necesidad del abastecimiento y la criticidad del medicamento:
+- Certificado de la fórmula cuali-cuantitativa con que fue registrado el producto farmacéutico en el país, extendido por el Ministerio de Salud.
+- Método de análisis de calidad validado del laboratorio fabricante y el respectivo documento de validación, en caso de productos farmacéuticos que no aparecen registrados en farmacopeas oficiales.
+- Muestra de la sustancia patrón de los principales activos acompañada de su respectivo certificado de análisis que indique la trazabilidad al patrón primario, con una vigencia mínima de 1 año y muestra de las sustancias relacionadas. Las cantidades de dichas muestras serán las que defina la solicitud de inscripción al Registro de Oferentes.
+- Entregar al Laboratorio de Normas y Control de Calidad un certificado de análisis por cada lote entregado.
+(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

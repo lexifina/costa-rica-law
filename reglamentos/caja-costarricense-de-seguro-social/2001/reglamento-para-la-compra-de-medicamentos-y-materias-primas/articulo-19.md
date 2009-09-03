@@ -1,9 +1,8 @@
 CAPÍTULO IV
 De la contratación
 INVITACIÓN
-Artículo 19.— El Departamento de Adquisiciones invitará a participar a los oferentes que se encuentren debidamente inscritos al momento de cursar la invitación al concurso, por télex, facsímil o cualquier otro medio disponible, dejando constancia escrita de la invitación.
-Serán aceptadas las ofertas que se reciban en el concurso, sí previo a la apertura se han inscrito debidamente.
-En casos de compra de urgencia apremiante la Caja se reserva el derecho de hacer invitaciones a las empresas idóneas que considere pertinente.
-No podrá ser adjudicatario en este proceso la persona física o jurídica a quién se le haya rechazado el producto por el Laboratorio de Normas y Control de Calidad por incumplimiento de los estándares de calidad establecidos y así conste en documentos archivados en el expediente de la compra.
-(Artículo 19 del Reglamento publicado en La Gaceta Nº 243 de fecha 18 de diciembre del año 2001).
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 7853 del 29 de abril de 2004)
+Artículo 19.—El procedimiento de compra se hará con fundamento en el registro de medicamentos, materias primas, reactivos y empaques, las condiciones generales aprobadas por Junta Directiva y las condiciones técnicas y administrativas específicas de la compra, definidas estas últimas de acuerdo con la normativa institucional aplicable.
+El plazo para recibir ofertas será de un máximo de quince días hábiles. Las ofertas deben presentarse de acuerdo con lo que dispone cada uno de los carteles de compra. Las ofertas podrán presentar mejoras de precios, de conformidad con lo establecido por el Reglamento a la Ley de Contratación Administrativa y el cartel respectivo de compra.
+Cumplido dicho plazo y realizada la apertura de ofertas se procederá con la valoración administrativa y financiera de las ofertas.
+El plazo para dictar el acto final de procedimiento no será mayor a dos meses contados a partir de la apertura de ofertas, el cual puede prorrogarse por única vez y por un periodo igual de manera excepcional y justificada.
+(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

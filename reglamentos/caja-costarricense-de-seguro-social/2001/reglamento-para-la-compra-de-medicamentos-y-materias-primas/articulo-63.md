@@ -1,2 +1,2 @@
-Artículo 63.—La Caja se reserva la facultad de rechazar todas las ofertas si así conviniere a sus intereses.
-Se aceptarán cotizaciones parciales, excepcionalmente, cuando se enfrenten situaciones de urgencia apremiante y así se indique en el cartel del concurso. La Caja se reserva el derecho de realizar las adjudicaciones parciales para solventar dicha situación. En caso de productos nuevos que la Institución no tiene ninguna experiencia en su uso, se permitirá hacer adjudicaciones parciales por ítem según los intereses de la Institución.
+Artículo 63.—Por razones de urgencia debidamente acreditadas, la administración se reserva la potestad de permitir cotizaciones parciales de acuerdo con el comportamiento del mercado, siempre que con ello se garantice un inmediato abastecimiento cuya criticidad y desabasto ponga en riesgo la vida de los usuarios y las características del objeto contratado lo permitan.
+(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)

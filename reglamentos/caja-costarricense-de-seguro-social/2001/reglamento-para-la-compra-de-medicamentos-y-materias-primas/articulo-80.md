@@ -1,4 +1,11 @@
-Articulo 80.—En lo no previsto en este Reglamento se estará a los principios de la Contratación Administrativa y en cuanto a los recursos a los ordinarios de la Ley General de la Administración Pública.
-Así reformado por la Junta Directiva, en el artículo 16, de la sesión 7797, celebrada el 9 de octubre de 2003.b
-Cuando el concurso responda a una compra urgente del productos y así conste en el expediente no se aceptarán recursos de revocatoria a las decisiones adoptadas de frente al interés público y la atención médico asistencial de los pacientes en riesgo.
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 7853 del 29 de abril de 2004)
+Artículo 80.—La actividad de contratación administrativa regulada, mediante el presente Reglamento, se rige por las normas y principios del ordenamiento jurídico administrativo.
+La jerarquía de las normas se sujetará al siguiente orden:
+1. Constitución Política.
+2. Instrumentos Internacionales vigentes en Costa Rica que acuerden aspectos propios de la contratación administrativa.
+3. Ley Constitutiva de la Caja.
+4. Reglamento para la compra de medicamentos, reactivos, materias primas y envases.
+5. El cartel o pliego de condiciones.
+6. Manuales, circulares.
+7. Instructivos y protocolos.
+Asimismo, de forma supletoria, regirá la normativa de contratación administrativa, control interno, de presupuesto y toda aquella que integre el bloque de legalidad aplicable a la materia de compras.
+(Así reformado en sesión N° 8377 del 3 de setiembre de 2009)
