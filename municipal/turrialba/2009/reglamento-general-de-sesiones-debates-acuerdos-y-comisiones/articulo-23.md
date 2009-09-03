@@ -1,0 +1,1 @@
+Artículo 23.—Cada Fracción Municipal Política representada en el Concejo Municipal podrá designar de entre sus miembros un Jefe (a), Sub Jefe (a) de Fracción Municipal con el objetivo de coordinar el desempeño de la respectiva Fracción Política. Cada Fracción Municipal se regirá en esta materia por las normativas establecidas por sus respectivos Partidos Políticos.

@@ -1,0 +1,1 @@
+Artículo 2º—Las sesiones municipales ordinarias del Concejo, se celebrarán los días martes regularmente, iniciándose a las 15:30 horas y finalizando a las 18:00 horas. El horario de las sesiones podrá extenderse por la votación afirmativa unánime de los Regidores (as) presentes.

@@ -1,0 +1,1 @@
+Artículo 16.—Una vez leída el acta y antes de ser aprobada cualquier Regidor (a) podrá plantear recurso de revisión de los acuerdos, salvo respecto a los que estén definitivamente aprobados. La misma cantidad de votos que se obtuvo para dictar el acuerdo municipal, será necesaria para acordar su revisión.

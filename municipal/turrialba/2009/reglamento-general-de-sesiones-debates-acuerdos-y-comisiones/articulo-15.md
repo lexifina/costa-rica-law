@@ -1,0 +1,1 @@
+Artículo 15.—Las actas de las sesiones del Concejo deberán ser aprobadas en la sesión ordinaria inmediata posterior, salvo que por circunstancias especiales lo impidan, en cuyo caso la aprobación del acta se pospondrá para la sesión ordinaria siguiente.
