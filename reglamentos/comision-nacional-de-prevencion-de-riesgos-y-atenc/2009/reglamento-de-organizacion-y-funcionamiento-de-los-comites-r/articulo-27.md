@@ -1,0 +1,1 @@
+Artículo 27.—Cuando alguno de los representantes en el Comité incurra en alguna de las causales del artículo 25 de este Reglamento, el Departamento de Operaciones informará a la instancia respectiva para el trámite de revocatoria del nombramiento y la solicitud de sustitución ante la Junta Directiva.

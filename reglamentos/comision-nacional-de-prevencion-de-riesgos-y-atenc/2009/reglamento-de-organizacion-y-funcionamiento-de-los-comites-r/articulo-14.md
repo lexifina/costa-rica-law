@@ -1,0 +1,1 @@
+Artículo 14.—Las funciones del Órgano Ejecutivo, Coordinadores de las áreas de trabajo, la fiscalía y equipos de trabajo se establecerán en el Manual de Procedimientos Operativos para Comités de Emergencia.

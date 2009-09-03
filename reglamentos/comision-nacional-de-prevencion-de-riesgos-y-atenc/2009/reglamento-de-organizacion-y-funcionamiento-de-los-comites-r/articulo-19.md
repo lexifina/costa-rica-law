@@ -1,0 +1,1 @@
+Artículo 19.—Con el fin de garantizar el cumplimiento de sus funciones, el coordinador no podrá ostentar otro cargo dentro del Comité. En los casos en que la participación de la institución que representa sea necesaria en alguna otra de las áreas de trabajo, la institución podrá designar a otro funcionario que será avalado por la Junta Directiva.
