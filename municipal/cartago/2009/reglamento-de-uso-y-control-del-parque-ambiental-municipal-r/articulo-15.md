@@ -1,0 +1,1 @@
+Artículo 15.—El monto de este precio se determina tomando en consideración el costo efectivo de lo invertido por la Municipalidad para su mantenimiento, incrementándose en un diez por ciento de utilidad para su desarrollo.

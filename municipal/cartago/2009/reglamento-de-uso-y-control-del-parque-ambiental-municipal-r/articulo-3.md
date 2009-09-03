@@ -1,0 +1,2 @@
+Artículo 3º—Uso del PAM. El PAM tendrá como misión dar una protección efectiva al área de captación y los alrededores de la naciente Río Loro, para así poder mantener la calidad y cantidad del recurso hídrico, así como brindar un espacio para la educación ambiental a la comunidad cartaginesa, además de áreas de esparcimiento y recreación en armonía con el ambiente.
+De igual manera, el PAM pretende mejorar la calidad y condiciones de vida de la comunidad cartaginesa por medio de la búsqueda de un ambiente sano y ecológicamente equilibrado.

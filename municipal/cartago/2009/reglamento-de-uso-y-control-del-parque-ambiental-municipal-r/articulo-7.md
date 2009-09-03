@@ -1,0 +1,1 @@
+Artículo 7º—Trámite. Recibida la solicitud, el Comité Gestor procederá a verificar el cumplimiento de los requisitos señalados en el formulario. En caso de aprobarse la gestión del solicitante, se hará entrega de un documento en el que se establecerán las condiciones del uso de las instalaciones y términos generales relativos al aprovechamiento del PAM.

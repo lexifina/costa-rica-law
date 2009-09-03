@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidad por daños o pérdidas. Dado que el objeto del presente Reglamento es regular los mecanismos de uso de las instalaciones del PAM, la Municipalidad no asumirá ninguna responsabilidad por daños o pérdidas que ocurran a materiales, vehículos u objetos personales de los visitantes.

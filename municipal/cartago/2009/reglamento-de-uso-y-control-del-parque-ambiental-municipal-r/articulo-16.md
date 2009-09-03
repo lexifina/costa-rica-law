@@ -1,0 +1,1 @@
+Artículo 16.—El diez por ciento de utilidad para el desarrollo en que se incrementa este precio señalado en el artículo anterior, se destinará para el mantenimiento de las instalaciones del PAM e impulsar la creación de nuevos centros de educación ambiental.
