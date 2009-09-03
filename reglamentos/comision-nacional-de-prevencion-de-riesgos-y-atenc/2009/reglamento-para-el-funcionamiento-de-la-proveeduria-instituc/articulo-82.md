@@ -1,0 +1,1 @@
+Artículo 82.—De las derogatorias. Se deroga el Reglamento de la Proveeduría Institucional publicado en La Gaceta Nº 194 del 10 de octubre del 2005 y cualquier otra disposición reglamentaria de igual o menor rango que se le oponga.

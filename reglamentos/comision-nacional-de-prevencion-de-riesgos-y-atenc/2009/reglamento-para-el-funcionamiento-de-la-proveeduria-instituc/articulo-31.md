@@ -1,0 +1,1 @@
+Artículo 31.—La firma de los funcionarios indicados en el artículo anterior constituirá la autorización para que se ejecute la orden de compra, por lo que será su responsabilidad la verificación del cumplimiento del ordenamiento jurídico aplicable.

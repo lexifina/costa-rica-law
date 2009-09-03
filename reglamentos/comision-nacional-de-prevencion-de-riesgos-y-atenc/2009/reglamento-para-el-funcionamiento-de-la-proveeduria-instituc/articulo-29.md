@@ -1,0 +1,1 @@
+Artículo 29.—La invitación a participar y la formula para cotizar en contrataciones directas, deberán realizarse vía Comprared y podrán ser enviadas vía fax a los oferentes, pero deberá dejarse constancia en el expediente del nombre y ocupación de la persona que recibió la documentación.

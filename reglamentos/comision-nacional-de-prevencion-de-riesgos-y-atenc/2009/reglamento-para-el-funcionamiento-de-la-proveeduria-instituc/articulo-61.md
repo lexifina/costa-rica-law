@@ -1,0 +1,1 @@
+Artículo 61.—El Departamento de Proveeduría hará una invitación a integrar el Registro de Proveedores en enero de cada año, sin perjuicio que efectúe otra invitación en mes posterior, por los medios legalmente establecidos así como mediante la página electrónica de la Comisión.
