@@ -1,0 +1,2 @@
+III. Responsabilidades
+Artículo 7º—Informes del encargado del Proyecto: El encargado del proyecto nombrado por la Unidad Ejecutora, debe generar informes escritos de evaluación mensual y final sobre el avance de la obra y la calidad lograda en el proyecto de acuerdo con las normas que se hayan establecido, los cuales serán sometidos a conocimiento, revisión y fiscalización de la CUE, dichos informes deberán elaborarse de acuerdo a lo estipulado en el presente reglamento; además de archivarse y adjuntarse en el expediente del proyecto respectivo.

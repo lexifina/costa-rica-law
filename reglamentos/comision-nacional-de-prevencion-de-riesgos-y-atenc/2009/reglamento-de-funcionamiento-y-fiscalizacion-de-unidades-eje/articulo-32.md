@@ -1,0 +1,1 @@
+Artículo 32.—Entrega de expediente: Una vez concretado el finiquito, la unidad ejecutora deberá entregar a la CUE una copia del expediente completo del proyecto. A su vez la CUE remitirá copia del mismo a la proveeduría de la CNE.

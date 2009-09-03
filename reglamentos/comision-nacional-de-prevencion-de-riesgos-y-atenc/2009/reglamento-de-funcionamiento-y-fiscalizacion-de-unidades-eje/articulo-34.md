@@ -1,0 +1,1 @@
+Artículo 34.—Aprobado mediante acuerdo Nº 123-2009, tomado en sesión extraordinaria Nº 11-09, de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, celebrada el 30 de junio del 2009.

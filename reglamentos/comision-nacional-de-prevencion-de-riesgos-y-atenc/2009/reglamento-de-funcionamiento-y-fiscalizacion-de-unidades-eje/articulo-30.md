@@ -1,0 +1,1 @@
+Artículo 30.—Presentación de Informe Final: En cualquier tipo de proyecto, independientemente del plazo de ejecución, las unidades ejecutoras deberán presentar a la CUE informe final del proyecto, que incluya logros obtenidos, el costo total del proyecto y cualquier otro aspecto relevante a la terminación del mismo.

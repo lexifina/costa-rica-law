@@ -1,0 +1,1 @@
+Artículo 14.—Visita preoferta: Es responsabilidad de la unidad ejecutora coordinar junto con la CUE y el Departamento de Proveeduría una visita pre oferta para cada uno de aquellos proyectos que así lo ameriten.
