@@ -8,7 +8,9 @@ c) Beneficiarios de transacciones realizadas por intermediarios profesionales (p
 d) Una persona o entidad vinculada con una transacción financiera que puede representar un riesgo importante para la entidad.
 No se considerarán clientes quienes utilizan los servicios de la entidad financiera únicamente para cancelación de servicios públicos e impuestos.
 Se debe disponer como mínimo de la información que se indica a continuación:
-1. Para personas físicas. Identificación satisfactoria del cliente mediante cédula de identidad para nacionales, pasaporte para extranjeros no residentes y cédula de residencia para extranjeros residentes en el país. En el expediente respectivo debe adjuntarse una copia de dicho documento de identificación.
+1. Para personas físicas
+Identificación satisfactoria del cliente mediante: cédula de identidad para nacionales; pasaporte para extranjeros no residentes; cédula de residencia para extranjeros residentes en el país; carné de identificación para extranjeros miembros del Cuerpo Diplomático, Misiones Diplomáticas o Misiones Internacionales emitido por el Ministerio de Relaciones Exteriores y Culto. En el expediente respectivo debe adjuntarse una copia de dicho documento de identificación.
+(Así reformado el párrafo anterior en sesión 803 del 4 de setiembre de 2009)
 Asimismo, requerir como mínimo:
 a) Nombre completo.
 b) Fecha y lugar de nacimiento, estado civil y profesión.
