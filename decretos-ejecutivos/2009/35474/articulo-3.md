@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión se reunirá cuando así se estime necesario, según acuerdo del Ministro de Relaciones Exteriores y Culto, o en su defecto, de la mayoría simple de sus miembros. Asimismo, determinará sus procedimientos y cronogramas de trabajo.

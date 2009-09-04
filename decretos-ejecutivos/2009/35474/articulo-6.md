@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión podrá definir su Grupo Técnico Principal, el cual tendrá a su cargo la planificación y ejecución de los aspectos técnicos y científicos, incluyendo la obtención de los datos e informaciones pertinentes y elaboración de la presentación final.
