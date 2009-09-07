@@ -14,3 +14,4 @@ Modifica para la Dirección General de Aviación Civil, el gasto presupuestario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-23 | la propia norma |
+| 2 | 2009-09-07 | Decreto Ejecutivo 35516 (2009-09-07) |
