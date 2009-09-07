@@ -1,0 +1,1 @@
+Artículo 15.—Presentada la solicitud de arreglo de pago, la Unidad de Administración Tributaria tiene dos días hábiles a partir del día siguiente de presentada la solicitud para aprobar o denegar el arreglo de pago.

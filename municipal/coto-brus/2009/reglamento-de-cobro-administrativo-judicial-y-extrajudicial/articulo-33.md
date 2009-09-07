@@ -1,0 +1,1 @@
+Artículo 33.—No se contratará nuevamente para realizar funciones de cobro judicial a aquellos abogados que hayan incurrido en omisiones importantes tipificadas en el artículo anterior, los cuales lleven a la pérdida de recursos por saldos adeudados.

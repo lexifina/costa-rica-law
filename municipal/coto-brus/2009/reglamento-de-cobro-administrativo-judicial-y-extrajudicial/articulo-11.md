@@ -1,0 +1,1 @@
+Artículo 11.—Únicamente procederá el arreglo de pago cuando el cobro se encuentre en la etapa de cobro administrativo, en cuanto al cobro extrajudicial solo procederá en casos debidamente justificados.

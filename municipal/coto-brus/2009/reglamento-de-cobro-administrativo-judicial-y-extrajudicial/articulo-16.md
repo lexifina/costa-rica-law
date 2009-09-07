@@ -1,0 +1,2 @@
+Artículo 16.—Aprobada la solicitud del arreglo de pago el sujeto pasivo deberá hacer efectiva la cancelación del treinta por ciento de adelanto el día hábil siguiente de labores a que se aprobó la solicitud, de no hacer efectiva la cancelación a como lo indica el presente artículo se dará por echo el incumplimiento al arreglo de pago, trasladándose de inmediato el expediente al abogado para su respectivo trámite de cobro judicial.
+(Corregido mediante Fe de Erratas y publicado en La Gaceta N° 247 del 21 de diciembre del 2009).

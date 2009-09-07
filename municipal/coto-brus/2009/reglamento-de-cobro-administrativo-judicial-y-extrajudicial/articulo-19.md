@@ -1,0 +1,1 @@
+Artículo 19.—Comprobado el incumplimiento de arreglo de pago el encargado de la gestión de cobro procederá remitir el expediente debidamente conformado, foliado en orden cronológico al administrador o coordinador tributario quien revisará que el expediente este bien y en orden para ser trasladado al abogado para que de trámite al cobro judicial.

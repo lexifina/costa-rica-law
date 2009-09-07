@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. Este reglamento será se aplicación obligatoria para la Unidad de Administración Tributaria, como para los abogados internos o externos que sean contratados por la Municipalidad de Coto Brus, para gestionar el cobro administrativo, judicial y extrajudicial de las obligaciones dinerarias que se le adeuden a la Municipalidad.

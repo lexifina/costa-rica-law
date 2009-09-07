@@ -1,0 +1,16 @@
+Artículo 3º—Definiciones. Para los efectos del presente Reglamento se entiende por:
+a) Reglamento: El reglamento para el procedimiento de cobro administrativo, judicial y extrajudicial de la Municipalidad de Coto Brus.
+b) Municipalidad: La Municipalidad de Coto Brus.
+c) Unidad Administración Tributaria: Es la dependencia encargada de realizar y coordinar todas las gestiones de cobranza administrativa, judicial y extrajudicial, en función de la recaudación de la Municipalidad.
+d) Abogados Externos: Los Licenciados en Derecho que habiendo cumplido con los requisitos exigidos por la Municipalidad, para ofrecer sus servicios profesionales a la Institución, bajo la normativa de este reglamento, realicen la gestión de cobro judicial y extrajudicial respectiva de las obligaciones vencidas.
+e) Abogados Internos: Licenciados en Derecho que ocupen una plaza fija en la Municipalidad y que por circunstancias especiales, el Alcalde Municipal decida asignarle la gestión de cobro judicial y extrajudicial respectiva de las obligaciones vencidas.
+f) Cuentas vencidas: Las obligaciones dinerarias vencidas, o bien, créditos exigibles de plazo vencido a favor de la Municipalidad, obligaciones que pueden provenir tanto de obligaciones tributarias municipales o de administración municipal, así como de: cánones, arrendamientos o cualquier crédito existente de plazo vencido a favor de la Municipalidad.
+g) Sujeto Activo: Es la Municipalidad en el cobro de los tributos.
+h) Sujeto Pasivo: La persona obligada al cumplimiento de la obligación vencida, sea en calidad de contribuyente, responsable o deudor de la Municipalidad.
+i) Obligaciones Tributarias Municipales: Corresponde a todas aquellas prestaciones en dinero por lo contribuyentes o responsables a la Municipalidad, como consecuencia de impuestos municipales, o de administración municipal, tasas o contribuciones especiales, licencias, etc.
+j) Cobro Administrativo: Las acciones que se realizan administrativamente por parte de la dependencia encargada, para que las obligaciones vencidas sean canceladas por parte de los sujetos pasivos.
+k) Cobro Judicial: Las acciones que se realizan por parte de los abogados externos o internos, en la vía judicial, en aras de obtener la recuperación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro.
+l) Cobro Extrajudicial: Las acciones realizadas extrajudicialmente Las acciones que se realizan por parte de los abogados externos o internos en casos calificados, para la cancelación de obligaciones vencidas trasladados a éstos para su respectivo cobro, previo a iniciar la gestión judicial.
+m) Arreglo de Pago: Es el compromiso que adquiere el sujeto pasivo con la Municipalidad a través de la Unidad de administración Tributaria de pagar dentro del tiempo convenido por ambos, la obligación vencida adeudada a la Municipalidad.
+n) Incumplimiento de Arreglo de Pago: Se considera incumplimiento del arreglo de pago cuando el sujeto pasivo no realice cualquiera de los pagos acordados.
+o) Notificaciones: Todas aquellas actuaciones de la Unidad Administración Tributaria que sean susceptibles de ser recurridas por el interesado y aquellas que incidan en forma directa en la condición del contribuyente frente a la Administración Tributaria Municipal.
