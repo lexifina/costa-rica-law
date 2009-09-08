@@ -1,1 +1,0 @@
-Artículo 13- Cualquier contravención a las disposiciones contempladas en el presente Reglamento, así como a las normas dictadas en los manuales respectivos, implicará imponer al responsable o responsables, la sanción correspondiente, de acuerdo con la naturales de la misma y a lo establecido en el marco legal respectivo.
