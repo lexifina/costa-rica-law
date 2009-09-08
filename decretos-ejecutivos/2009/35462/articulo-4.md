@@ -1,0 +1,1 @@
+Artículo 4º—Reuniones de la Comisión. La Comisión se reunirá ordinariamente una vez cada dos meses en el lugar que se acuerde en la primera sesión, debiendo realizarse la primera en el Ministerio de Agricultura y Ganadería; y extraordinariamente, cada vez que sea convocada a solicitud de su coordinador o de tres de sus miembros.

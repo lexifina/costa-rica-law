@@ -1,0 +1,1 @@
+Artículo 5º—Quórum. El quórum de las sesiones se formará con la mitad más uno de sus miembros en la hora señalada para la primera convocatoria y una hora después con los miembros presentes, en un mínimo de tres. Los acuerdos se tomarán por mayoría simple de votos, y en caso de empate, el Presidente tendrá voto de calidad.
