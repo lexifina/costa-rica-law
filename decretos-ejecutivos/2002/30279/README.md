@@ -14,3 +14,4 @@ Declara e Incorpora al Patrimonio Histórico-Arquitectónico de Costa Rica, el e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-31 | la propia norma |
+| 2 | 2009-09-08 | Decreto Ejecutivo 35590 (2009-09-08) |

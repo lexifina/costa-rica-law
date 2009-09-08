@@ -9,4 +9,5 @@ Considerando:
 4º—Que la Escuela Manuel del Pilar ha estado ligada al desarrollo histórico, social y económico del distrito de La Asunción y al cantón de Belén por noventa y tres años, por lo que es un símbolo histórico de ese desarrollo.
 5º—Que es deber del Estado salvaguardar el patrimonio cultural. Por tanto,
 Decretan:
-Artículo 1º—Declarar e incorporar al patrimonio Histórico-Arquitectónico de Costa Rica, el edificio antiguo de la Escuela Manuel del Pilar, ubicado en el distrito de La Asunción del cantón de Belén, provincia de Heredia, perteneciente a la Junta de Educación de La Asunción de Belén. cédula jurídica N° 3-008-078343 inscrita en el Registro Público, Sección de Propiedad, partido de Heredia, Sistema de Folio Real Mecanizado, matrícula N° 20179-000.
+Artículo 1º—Declarar e incorporar al patrimonio Histórico-Arquitectónico de Costa Rica, el edificio antiguo de la Escuela Manuel del Pilar, ubicado en el distrito de La Asunción del cantón de Belén, provincia de Heredia, perteneciente a la Junta de Educación de La Asunción de Belén, cédula jurídica Nº 3-008-078343 inscrita en el Registro Público, Sección de Propiedad, partido de Heredia, Sistema de Folio Real Mecanizado, matrícula Nº 26050- 000.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35590 del 8 de setiembre de 2009)
