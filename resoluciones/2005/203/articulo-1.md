@@ -180,10 +180,12 @@ En el caso de ingreso terrestre, la fecha real de arribo será la del registro e
 (*)(Así adicionado mediante resolución DGA-672 del 6 de febrero de 2006)
 (*)31) Los cambios en la información declarada que puedan surgir producto de las operaciones aduaneras, serán notificados al declarante a través de mensajes a su casillero electrónico, lo anterior en observancia a lo establecido en la normativa vigente. Cuando el mensaje del manifiesto o de la DTI se reciba por medio del representante del declarante dichos cambios le serán notificados a representante, quien deberá coordinar con el declarante lo correspondiente.
 (*)(Así adicionado mediante resolución DGA-672 del 6 de febrero de 2006)
-(*)32) La justificación de sobrantes y faltantes de mercancías determinados en la descarga del medio de transporte deberán ser presentados ante la aduana de ingreso. De determinarse el faltante o sobrante al momento de la descarga de la UT en el lugar de destino de las mercancías, dicha justificación deberá ser presentada en la aduana de jurisdicción del lugar de ubicación.
-(*)(Nota de Sinalevi: El texto de este inciso no fue publicado en La Gaceta, no obstante mediante información dada por el departamento de Técnica Aduanera, e información de la página Web de la Dirección General de Aduanas, el mismo se extrajo de la resolución N° RES-DN-541-2006 del 30 de junio de 2006)
-(*)33) Mediante la aplicación de criterios de riesgo y a través del sistema informático del Servicio Nacional de Aduanas se determinará las unidades de transporte conteniendo mercancías, que deben movilizarse fuera de la zona portuaria portando el precinto electrónico.
-(*)(Nota de Sinalevi: El texto de este inciso no fue publicado en La Gaceta, no obstante mediante información dada por el departamento de Técnica Aduanera, e información de la página Web de la Dirección General de Aduanas, el mismo se extrajo de la resolución N° RES-DGA-503-2005 del 16 de setiembre de 2005)
+32) Ver observaciones a la norma.
+33) Ver observaciones a la norma.
+34) Todo contenedor que no contenga carga, manifestado por el transportista en esa condición, para su salida de la zona portuaria deberá estar asociado con un control de viaje tipo MIC.
+(Así adicionado el inciso anterior mediante resolución N° RES-DGA-262-2009 del 8 de setiembre de 2009)
+35) Los viajes tipo MIC, asociados con unidades contenedoras que no contengan carga, adquirirán el estado de completo (COM) a partir del momento en que la persona encargada del portón de salida de la zona portuaria, registre la salida del contenedor en el Módulo de Control de Viajes del Sistema TICA.
+(Así adicionado el inciso anterior mediante resolución N° RES-DGA-262-2009 del 8 de setiembre de 2009)
 II. De la Transmisión del Manifiesto de Carga
 A. Actuaciones del Transportista Internacional y Consolidador de Carga
 (*)1) El transportista aduanero internacional transmitirá en forma electrónica el manifiesto de ingreso con la antelación que se desee pero siempre antes de los plazos que a continuación se detallan:
