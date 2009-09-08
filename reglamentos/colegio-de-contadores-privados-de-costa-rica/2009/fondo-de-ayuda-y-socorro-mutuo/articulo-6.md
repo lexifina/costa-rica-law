@@ -1,0 +1,1 @@
+Artículo 6º—Los miembros del Consejo de Administración ejercerán sus funciones por un período de dos años, contados a partir de su elección y se renuevan parcialmente de la siguiente manera: el presidente, el secretario y el fiscal en los años pares; el tesorero y los tres vocales en los años impares y podrán ser reelectos.

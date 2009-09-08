@@ -1,0 +1,1 @@
+Artículo 8º—Por cada sesión a la que asistan los directores del consejo devengarán el 75% (setenta y cinco por ciento) de la dieta que reciben por el mismo concepto los Directores de la Junta Directiva del Colegio.
