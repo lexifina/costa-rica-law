@@ -1,0 +1,1 @@
+Artículo 8º—Pagos parciales. Los sujetos pasivos que la Administración Tributaria vaya incorporando gradualmente en el uso obligatorio de los servicios electrónicos de Tributación Digital, deberán realizar los pagos parciales, cuyo vencimiento sea posterior a la vigencia de la resolución que los incorpora, a través de Tributación Digital.

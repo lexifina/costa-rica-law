@@ -1,0 +1,1 @@
+Artículo 6º—Declaraciones presentadas por otros medios. Los sujetos pasivos incorporados a Tributación Digital, están obligados a presentar su declaración en los formularios oficiales electrónicos citados en el artículo 2º de esta resolución. Las declaraciones realizadas en otros medios y formatos, se tendrán por no presentadas, con los efectos legales que ello conlleva.
