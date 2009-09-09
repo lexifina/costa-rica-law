@@ -15,3 +15,4 @@ Reglamento General de Crédito
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
 | 2 | 2009-06-03 | Reglamento 3 (2009-06-03) |
+| 3 | 2009-09-09 | Reglamento 18 (2009-09-09) |
