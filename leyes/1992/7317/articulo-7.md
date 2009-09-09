@@ -11,4 +11,5 @@ e) Promover y ejecutar investigaciones en el campo de la vida silvestre.
 f) Extender o denegar los permisos de caza, pesca continental o insular, extracción de flora y cualquier permiso para importar o exportar flora o fauna silvestres.
 g) Financiar las tesis o las investigaciones que permitan el mejor conocimiento de la vida silvestre.
 h) Administrar, supervisar y proteger los humedales.
-La creación y delimitación de los humedales se hará por decreto ejecutivo, según criterios técnicos.
+La delimitación de los humedales se hará por decreto ejecutivo, según criterios técnicos.
+(Así reformado este párrafo de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N° 14288 del 09 de setiembre del 2009, misma que a su vez fue aclarada por resolución N° 16979 del 13 de octubre de 2010.)
