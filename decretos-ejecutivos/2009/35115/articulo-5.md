@@ -1,0 +1,2 @@
+Artículo 5º—De los suplentes y asesores. Cada entidad u organización que conforman la Comisión, deberá designar un representante propietario y un único suplente, quien en ausencia del primero y por razones justificadas, ejercerá la representación correspondiente.
+Asimismo, cada representante propietario o suplente en ejercicio, podrá asistir a la sesión de la Comisión acompañado de los asesores que considere pertinentes hasta un máximo de dos asesores, en razón de los temas que serán conocidos en sus sesiones.

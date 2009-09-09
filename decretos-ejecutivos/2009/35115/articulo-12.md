@@ -1,0 +1,1 @@
+Artículo 12.—Suplencia. En caso de que algún representante no pudiera asistir y sea el suplente el que se apersone, éste deberá comunicarlo al Coordinador General al inicio de la celebración de la sesión.
