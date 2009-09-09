@@ -1,1 +1,0 @@
-ARTICULO 3. Las Direcciones Provinciales estarán divididas en Direcciones Regionales de Educación que, a su vez, serán las agencias integradoras del conjunto escolar en la circunscripción territorial correspondiente.

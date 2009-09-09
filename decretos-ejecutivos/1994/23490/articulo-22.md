@@ -1,2 +1,0 @@
-ARTICULO 22. El Consejo Asesor Regional estará integrado por los jefes de los Departamentos de Desarrollo Educativo y de Desarrollo Administrativo y un representante del Consejo de Asesores Supervisores nombrado por éste.
-El Consejo Asesor es de carácter consultivo, sin embargo, deberá aprobar el plan anual de trabaja de la Dirección Regional, así como la adecuación contextual de los programas que se propongan.

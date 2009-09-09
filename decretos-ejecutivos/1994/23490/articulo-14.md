@@ -1,1 +1,0 @@
-ARTICULO 14. El Asesor Legal de la Dirección Provincial, estará encargado de proveer la asesoría jurídica requerida para la toma de decisiones a los funcionarios de la Dirección Provincial, de las Direcciones Regionales e institucionales sobre la correcta interpretación y aplicación del ordenamiento jurídico.

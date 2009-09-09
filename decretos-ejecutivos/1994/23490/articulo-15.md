@@ -1,1 +1,0 @@
-ARTICULO 15 El Consejo Asesor de la Dirección Provincial estará integrado por los Directores Regionales de la provincia, el Contralor de Servicios, el Director del Departamento de Planificación y Desarrollo Educativo y el Director del Departamento de Informática. Conocerá de los asuntos que someta a su consideración el Director Provincial.

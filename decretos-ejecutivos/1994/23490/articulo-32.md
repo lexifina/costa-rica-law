@@ -1,2 +1,0 @@
-DISPOSICIONES FINALES
-ARTICULO 32. Nada de lo dispuesto en el presente Reglamento se interpretará en detrimento de la facultad de crear y establecer relaciones interorgánicas entre las dependencias de los distintos niveles jerárquicos y los de la sede central, en procesos administrativos calificados y los de flujo de información, que tengan que establecerse en aras de la oportunidad y excelencia en la prestación del servicio.

@@ -1,2 +1,0 @@
-DE LA ESTRUCTURA ADMINISTRATIVA
-ARTICULO 8. Las Direcciones Provinciales de Educación contarán con los siguientes Departamentos: Departamento de Planificación y Desarrollo Educativo Provincial, Departamento Contralor de Servicios y Departamento de Informática, un Consejo Comunal de Educación, un Consejo Asesar y un Asesor Legal. Estarán, a su vez, subdivididas territorialmente, según se defina en el presente decreto, en Direcciones Regionales de Educación.

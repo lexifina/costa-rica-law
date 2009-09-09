@@ -1,1 +1,0 @@
-ARTICULO 16. El Consejo Comunal de Educación de la provincia será el órgano cívico en cuya virtud se procurará establecer la auténtica integración entre el sistema escolar y la comunidad en el plano social y económico. Su integración, funciones y atribuciones se establecerán por medio de un reglamento especifico.
