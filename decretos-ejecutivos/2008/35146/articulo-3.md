@@ -1,0 +1,6 @@
+Artículo 3º—Definiciones. Para efectos del presente Reglamento se entiende por:
+1) Advertencia: Servicio preventivo que brinda la Auditoría Interna al Jerarca o a los titulares subordinados, mediante una llamada de atención sobre alguna situación que pueda conllevar a determinadas consecuencias, y que tiene fundamento en el artículo Nº 22 de la Ley General de Control Interno.
+2) Asesoría: Servicio preventivo que brinda el Auditor Interno en forma oral o escrita, a solicitud de la parte interesada, con el objetivo de brindar consejo o criterio sobre algún tema en el que la auditoría interna tenga competencia y conocimiento, y que tiene fundamento en el artículo Nº 22 de la Ley General de Control Interno.
+3) Auditor Interno: El Auditor Interno o Auditora Interna. La jefatura de la Auditoría Interna del Instituto sobre Alcoholismo y Farmacodependencia.
+4) Auditoría Interna: La Auditoría Interna del Instituto sobre Alcoholismo y Farmacodependencia, que dentro de la organización institucional del I.A.F.A. corresponde a la unidad a la que obliga el artículo Nº 20 de la Ley General de Control Interno.
+5. Informe de auditoría: Producto final con el que la Auditoría Interna comunica al jerarca o a los titulares subordinados los resultados de los estudios de auditoría o brinda servicios preventivos de asesoría y de advertencia.

@@ -1,0 +1,1 @@
+Artículo 4º—De la actualización del Reglamento. Para efectos de establecer el marco normativo actualizado de la Auditoría Interna, compete al Auditor Interno proponer y promover ante la Junta Directiva del IAFA, las modificaciones pertinentes. Estas modificaciones deberán contar con la aprobación de la Contraloría General de la República para poder ser emitido de manera oficial.

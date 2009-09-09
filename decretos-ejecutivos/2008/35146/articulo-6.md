@@ -1,0 +1,1 @@
+Artículo 6.—Ideas Rectoras. La Auditoría Interna debe de establecer y asegurarse de mantener actualizadas su visión, misión, políticas y procedimientos que regirán el accionar de la Auditoría Interna.
