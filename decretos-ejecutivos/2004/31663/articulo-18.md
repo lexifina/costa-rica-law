@@ -1,1 +1,0 @@
-Artículo 18.—Una vez presentados por los interesados los documentos señalados en el artículo 12, el director del centro educativo los revisa, verifica y remite al Departamento de Desarrollo Educativo de la Dirección Regional de Educación respectiva, quien definirá la matrícula que corresponda, en un plazo no mayor a un mes calendario.

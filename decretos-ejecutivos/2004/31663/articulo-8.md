@@ -1,1 +1,0 @@
-Artículo 8º—Cuando un centro educativo presente limitaciones locativas para matricular estudiantes, corresponde al respectivo Director Regional de Educación, en asocio con los Asesores Supervisores y los directores de centros educativos de su jurisdicción, adoptar las medidas necesarias que garanticen el ingreso y la permanencia de los estudiantes en el sistema educativo.

@@ -1,1 +1,0 @@
-Artículo 32.—Los estudiantes provenientes del exterior con calendario escolar diferente al nacional, se matriculan de conformidad con lo establecido en los artículos 21, 22 y 23 del presente Reglamento.

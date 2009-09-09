@@ -1,1 +1,0 @@
-Artículo 44.—Los casos no contemplados en este Reglamento, deben ser resueltos por el Asesor Supervisor del Circuito Escolar respectivo, a solicitud escrita del director institucional, respetando, en todo caso, los planes de estudio aprobados por el Consejo Superior de Educación y la voluntad del estudiante.

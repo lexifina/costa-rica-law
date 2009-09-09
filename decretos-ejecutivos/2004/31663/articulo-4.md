@@ -1,1 +1,0 @@
-Artículo 4º—Se entiende por matrícula extraordinaria el proceso tendente a inscribir aquellos estudiantes que no pudieron matricularse ordinariamente, según la fecha establecida en el Calendario Escolar.

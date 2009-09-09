@@ -1,1 +1,0 @@
-Artículo 5º—En la Educación Preescolar, así como en los primeros y sétimos años de la Educación General Básica y el Programa Nuevas Oportunidades Educativas para Jóvenes (PNOEJ), previo a la matrícula ordinaria, se realizará un proceso de inscripción en las fechas que e stablece el Calendario Escolar.

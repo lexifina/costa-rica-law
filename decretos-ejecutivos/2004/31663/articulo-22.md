@@ -1,1 +1,0 @@
-Artículo 22.—El estudiante que ingrese antes del 30 de mayo, según lo que señala el artículo anterior, debe definir su condición académica en el primer período. La institución respectiva le brinda los contenidos de cada asignatura en los que se debe examinar, para establecer las calificaciones de ese primer período.

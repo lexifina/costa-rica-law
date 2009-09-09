@@ -1,1 +1,0 @@
-Artículo 3º—Se entiende por matrícula ordinaria al conjunto de actos tendentes a la inscripción de una persona como estudiante regular de una institución educativa pública (IEP), en las fechas establecidas en el Calendario Escolar.

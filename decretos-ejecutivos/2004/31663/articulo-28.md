@@ -1,1 +1,0 @@
-Artículo 28.—Para que un estudiante pueda trasladarse al inicio del curso lectivo de un centro educativo a otro, es condición previa indispensable que haya definido totalmente su promoción en el centro educativo de procedencia, ya sea éste público o privado. Ningún centro educativo puede aplicar pruebas de aplazados a alumnos que provengan de otras instituciones.

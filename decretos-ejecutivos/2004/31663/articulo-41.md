@@ -1,1 +1,0 @@
-Artículo 41.—El estudiante que se encuentra cursando undécimo año en un colegio técnico profesional, y se traslade a un colegio académico diurno o nocturno, Instituto Profesional de Educación Comunitaria (IPEC) o Centro Integrado de Educación de Adultos (CINDEA), debe continuar con el plan de estudios respectivo de la institución receptora.

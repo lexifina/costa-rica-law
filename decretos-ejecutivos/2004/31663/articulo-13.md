@@ -1,1 +1,0 @@
-Artículo 13.—El estudiante adquiere la condición de alumno regular en la institución, siempre y cuando cumpla con el acto de ratificación de matrícula en la forma y oportunidad que indique la institución.

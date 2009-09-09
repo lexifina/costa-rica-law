@@ -1,1 +1,0 @@
-Artículo 34.—El estudiante con sétimo año aprobado en un colegio académico que desee trasladarse a un colegio técnico profesional, ingresa al año inmediato superior y debe cursar el plan de estudios respectivo.

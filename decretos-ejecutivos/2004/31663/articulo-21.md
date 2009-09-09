@@ -1,1 +1,0 @@
-Artículo 21.—El período de matrícula ordinaria para estudiantes extranjeros es definido por el Ministerio de Educación Pública en el Calendario Escolar; en todo caso, la fecha límite autorizada para matrícula ordinaria en el año inmediato superior será el treinta de mayo del año respectivo.

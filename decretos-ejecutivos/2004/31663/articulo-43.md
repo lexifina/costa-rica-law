@@ -1,1 +1,0 @@
-Artículo 43.—El estudiante que se encuentre cursando el sétimo, octavo o noveno año de colegio académico diurno o nocturno, Instituto Profesional de Educación Comunitaria (IPEC) o Centro Integrado de Educación de Adultos (CINDEA), que desee trasladarse a otra institución, continúa con el respectivo plan de estudios de la institución receptora.
