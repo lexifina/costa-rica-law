@@ -1,0 +1,2 @@
+Artículo 15.—Cuando surja una necesidad no prevista, el Programa de Adquisiciones o el listado de contrataciones directas especiales podrá ser modificado siguiendo el mismo procedimiento que se indica en el artículo anterior, para lo cual deberán adjuntarse las justificaciones pertinentes.
+Las contrataciones que no estén amparadas al Programa de Adquisiciones original o modificado, no serán tramitadas por la Proveeduría. Se excluyen de la publicación de este artículo las contrataciones por excepción

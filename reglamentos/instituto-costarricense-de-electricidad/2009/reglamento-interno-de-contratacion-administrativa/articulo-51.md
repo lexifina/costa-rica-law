@@ -1,0 +1,4 @@
+SECCIÓN III
+Modificaciones contractuales
+Artículo 51.—Inicio de trámites: Para el inicio del trámite de las modificaciones unilaterales al contrato o contrato adicional de las licitaciones, contrataciones directas de escasa cuantía o las contrataciones directas de excepción, que superen el 50% del monto originalmente pactado, serán autorizadas por el Subgerente respectivo, o Gerente General. En el caso de las licitaciones o contrataciones directas de excepción que hayan sido aprobadas por la Junta de Adquisiciones serán autorizadas por la Subgerencia respectiva, o Gerencia General.
+Las modificaciones unilaterales al contrato o contrato adicional de las contrataciones que no sobrepasen el 50% del monto originalmente adjudicado, el inicio de trámite será autorizado por el Director Técnico, Director Administrativo, Director de UEN, Director de Proyectos Hidroeléctricos o Director de División que inició el procedimiento original.

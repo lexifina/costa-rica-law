@@ -1,0 +1,1 @@
+Artículo 99.—La Proveeduría, será la encargada de comunicar y gestionar el cobro ante el contratista, así como de llevar a cabo la audiencia oral en caso de que la solicite el contratista. Una vez evacuada la audiencia, se requerirá del dictamen técnico y legal para dictar la resolución final. Dicha resolución será oportunamente comunicada al contratista.

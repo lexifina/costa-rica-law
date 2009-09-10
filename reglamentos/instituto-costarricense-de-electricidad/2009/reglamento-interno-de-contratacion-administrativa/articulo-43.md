@@ -1,0 +1,1 @@
+Artículo 43.—Asimismo, en razón de lo previsto en la Ley Nº 8660, se encuentran excluidas de los procedimientos de contratación administrativa las prácticas comerciales de asociación y colaboración empresariales.

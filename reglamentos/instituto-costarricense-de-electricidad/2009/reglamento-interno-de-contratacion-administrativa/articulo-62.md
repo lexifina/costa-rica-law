@@ -1,0 +1,1 @@
+Artículo 62.—La Proveeduría velará también por que se encuentre adjunta la valoración de mercado por parte de un puesto de bolsa de los bonos y certificados dados en garantía, según lo establecido en el Reglamento a la Ley Nº de Contratación Administrativa.

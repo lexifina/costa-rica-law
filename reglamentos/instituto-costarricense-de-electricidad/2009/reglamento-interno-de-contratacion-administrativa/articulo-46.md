@@ -1,0 +1,6 @@
+Artículo 46.—En el caso de prórrogas de alquiler de bienes inmuebles, ésta deberá ser aprobada por la dependencia que esté a cargo de Bienes Inmuebles, así como de su jefatura, aplicando para ello la Ley de Arrendamientos Urbanos y Suburbanos.
+La solicitud de aprobación deberá incluir la justificación técnica del AC con el visto bueno del Director que demuestre que existe la necesidad de prorrogar la contratación, la cual deberá incorporarse al expediente administrativo.
+Dicha prórroga deberá ser notificada a la Proveeduría y no requerirá dictamen legal.
+En aquellos casos en que opere una prórroga tácita se requerirá además de lo anterior el dictamen legal.
+Será responsabilidad del AC tramitar con al menos un mes de antelación al vencimiento del contrato la dotación de contenido presupuestario, emisión de la orden de servicio por parte de la Proveeduría, así como contar con las aprobaciones respectivas.
+En los casos de prórrogas a contrataciones directas basadas en la excepción de arrendamiento de bienes únicos, se deberá incluir en el expediente respectivo la justificación técnica del AC que demuestre que las condiciones de excepción que originaron la contratación se mantienen. En estos casos no se requerirá dictamen legal.

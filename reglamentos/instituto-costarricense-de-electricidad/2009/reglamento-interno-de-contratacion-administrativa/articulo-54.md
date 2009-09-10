@@ -1,0 +1,1 @@
+Artículo 54.—En aquellos casos en que la labor de administración de una contratación se traslade a otra dependencia, las prórrogas y modificaciones, las podrá aprobar la dependencia que asume su administración o el superior jerárquico de éste, según corresponda de acuerdo a los topes establecidos.

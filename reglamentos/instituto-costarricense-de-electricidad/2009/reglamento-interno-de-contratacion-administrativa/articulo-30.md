@@ -1,0 +1,1 @@
+Artículo 30.—El cartel lo confeccionará la dependencia promovente de la contratación siguiendo los lineamientos en materia de contratación administrativa que establezca la Proveeduría, así como los carteles tipo. Una vez revisado y aprobado por la Proveeduría, deberá ser publicado, cumpliendo especialmente lo que se refiere a autorizaciones y requisitos previos.

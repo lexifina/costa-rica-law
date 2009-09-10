@@ -1,0 +1,4 @@
+SECCIÓN III
+Disponibilidad Presupuestaria
+Artículo 25 BIS.—Las contrataciones que se realicen deberán contar con recursos suficientes al momento de dictarse el acto de adjudicación, lo cual deberá acreditarse en el expediente respectivo. Podrá iniciarse la contratación sin el contenido presupuestario y asignarlo al momento de dictar el acto de adjudicación, para lo cual se requeriría la aprobación de la Subgerencia de Finanzas.
+Los recursos para hacer frente a las obligaciones contraídas, podrán provenir de recursos propios de la Institución o bien a través de distintas formas de financiamiento, tales como créditos de proveedor, de entes crediticios, emisión de bonos o cualesquiera otra figura financiera que pueda ser de utilidad, de conformidad con la normativa, políticas y acuerdos de Consejo Directivo vigentes lo cual deberá coordinarse con la Subgerencia de Finanzas.

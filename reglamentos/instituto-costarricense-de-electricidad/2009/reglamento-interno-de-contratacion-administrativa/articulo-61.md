@@ -1,0 +1,1 @@
+Artículo 61.—Corresponde a la Proveeduría la recepción de las garantías de participación y de cumplimiento llevando un adecuado control de quién es el AC responsable y el centro de gestión al que pertenece. El registro, custodia y devolución de las garantías será responsabilidad de la Dirección Administrativa de Finanzas, en este último supuesto a solicitud de la Proveeduría.
