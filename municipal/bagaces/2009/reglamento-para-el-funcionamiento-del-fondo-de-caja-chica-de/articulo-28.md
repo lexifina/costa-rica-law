@@ -1,0 +1,1 @@
+Artículo 28.—Periódicamente y sin previo aviso la Dirección Financiera y Administrativa a través de su Director o de la persona que este designe, procederá a realizar arqueos en forma sorpresiva al fondo de caja chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes y de sanas prácticas de administración.

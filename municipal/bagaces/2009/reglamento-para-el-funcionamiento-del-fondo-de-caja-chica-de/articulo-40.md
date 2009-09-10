@@ -1,0 +1,1 @@
+Artículo 40.—Ningún funcionario de la Municipalidad, con excepción del tesorero municipal, quién tendrá en custodia los fondos de caja chica, podrá mantener en su poder la caja chica por más de tres días.

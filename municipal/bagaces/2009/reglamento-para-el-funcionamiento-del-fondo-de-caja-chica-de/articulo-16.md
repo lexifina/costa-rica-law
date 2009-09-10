@@ -1,0 +1,4 @@
+Artículo 16.—Los comprobantes (facturas o recibos) de adquisiciones que se hagan con fondos de caja chica, que justifiquen el egreso, deberán cumplir con los siguientes requisitos:
+a) Ser documentos originales, estar autorizados, membretados o dispensados del mismo por la Dirección General de Tributación Directa del Ministerio de Hacienda y estar emitidos a favor de la Municipalidad.
+b) Especificar claramente la fecha de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha de emisión del vale, coincidir con lo estipulado en el vale, traer impreso el sello de cancelado del proveedor y por ningún motivo, deben contener borrones ni tachaduras.
+c) Si la factura no tiene logotipo, deberá indicar como requisitos mínimos: el nombre, la firma y el número de cédula de la persona física o jurídica que suministra el bien o servicio, y sus especificaciones.

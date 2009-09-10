@@ -1,0 +1,1 @@
+Artículo 6º—La caja chica funcionará mediante el sistema de cuenta corriente y / o dinero en efectivo, para atender exclusivamente la adquisición de bienes y servicios de conformidad con este Reglamento, así como para viáticos y gastos de viaje.

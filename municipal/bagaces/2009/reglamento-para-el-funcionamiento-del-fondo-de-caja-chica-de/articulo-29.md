@@ -1,0 +1,1 @@
+Artículo 29.—Si realizado un arqueo, resulta una diferencia, esta debe ser justificada por el encargado o encargada de la caja chica, quién además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 45.—Cualquier otra falta leve o grave que ocurra en el manejo y trámite de la Caja Chica, será sancionada disciplinariamente con las sanciones que correspondan, según lo dispuesto en esta materia, el Código Municipal, el Código de Trabajo y otras normas conexas.
