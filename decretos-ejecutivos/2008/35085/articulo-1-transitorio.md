@@ -1,0 +1,1 @@
+Transitorio 1: El Servicio Nacional de Salud Animal (SENASA) del Ministerio de Agricultura y Ganadería mediante resolución razonada, establecerá en un plazo no mayor de 30 días naturales después de publicado el presente reglamento los parámetros de inocuidad utilizados para la verificación.
