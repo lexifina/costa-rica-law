@@ -1,0 +1,1 @@
+Artículo 63.—Capacitación permanente. El Auditor Interno y el personal de Auditoría Interna deberán cumplir con compromiso de formación permanente, mejorando continuamente sus habilidades y la efectividad y calidad de los servicios.
