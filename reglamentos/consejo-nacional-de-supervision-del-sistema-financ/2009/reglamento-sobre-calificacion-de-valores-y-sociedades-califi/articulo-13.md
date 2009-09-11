@@ -1,0 +1,8 @@
+Artículo 13.—Contenido mínimo de la metodología de calificación. La metodología de calificación debe contener como mínimo los siguientes elementos:
+a) Descripción de los tipos de entidades, productos o valores que serán objeto de calificación.
+b) Objetivos de la metodología de calificación.
+c) La escala, nomenclaturas y definición de cada una de las categorías. En el caso de productos estructurados, la metodología debe revelar mediante comentarios u observaciones adicionales, las características de este tipo de productos y las limitaciones que pueden presentarse en el proceso de calificación.
+d) Descripción de la metodología (aspectos cuantitativos y cualitativos) utilizada para cada tipo de producto, valor o entidad que califiquen, de conformidad con los lineamientos establecidos en los artículos 14 y 15 según corresponda.
+e) Detalle del proceso total de calificación, desde la etapa de contratación de servicios, aplicación de la metodología, preparación del informe para el consejo de calificación, proceso de análisis por parte de dicho consejo, hasta la asignación de la calificación, su discusión con la entidad calificada incluyendo el procedimiento de apelación por parte del emisor en caso de ser necesario y su divulgación, tanto para las calificaciones iniciales como para sus actualizaciones.
+f) Detalle de los procesos de sensibilización que se realizan a las variables cuantitativas y cualitativas que afectan la calificación de las entidades, los productos o valores. Debe al menos referirse al mejor o peor escenario para cada variable relevante identificada.
+g) Fuentes de información utilizadas para el análisis de riesgo.

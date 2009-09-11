@@ -1,0 +1,1 @@
+Artículo 15.—Lineamientos adicionales para otro tipo de entidades o productos. Las metodologías para la calificación de fondos de inversión deben cumplir con los lineamientos mínimos del Anexo 2 y las de entidades aseguradoras y reaseguradoras los del Anexo 3.

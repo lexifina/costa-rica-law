@@ -1,0 +1,1 @@
+Artículo 32.—Derogatorias. Se deroga el Reglamento sobre calificación de valores y sociedades calificadoras, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 9 del acta de la sesión 612-2006, celebrada el 2 de noviembre del 2006. Publicado en el Diario Oficial La Gaceta 222 del 20 de noviembre del 2006.

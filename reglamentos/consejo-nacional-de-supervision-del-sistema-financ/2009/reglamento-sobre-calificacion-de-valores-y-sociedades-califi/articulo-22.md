@@ -1,0 +1,16 @@
+CAPÍTULO IV
+Principios de los procesos de calificación
+SECCIÓN I
+Calidad e integridad de los procesos de calificación
+Artículo 22.—Políticas y procedimientos sobre la calidad e integridad de los procesos de calificación. Con el objetivo de garantizar la calidad e integridad de las calificaciones otorgadas, las sociedades calificadoras deben contar como mínimo con políticas y procedimientos sobre:
+a) El uso riguroso y consistente de las metodologías inscritas. La sociedad calificadora no debe emitir informes de calificación o fundamentos de calificaciones de riesgo, que contenga información ambigua o imprecisa acerca de una entidad, los productos o valores.
+b) La documentación y respaldo de las calificaciones otorgadas, de tal forma que cuenten con evidencia suficiente y verificable y basada en información conocida y relevante. En este sentido debe contar con procedimientos para preparar el expediente de trabajo de cada calificación, de manera que éste sea completo, detallado y referenciado con la metodología y modelos utilizados, para proporcionar una comprensión integral del análisis y la referencia entre este expediente y el informe final del consejo de calificación.
+c) Los recursos humanos y políticas de contratación y capacitación. La sociedad calificadora debe establecer la experiencia mínima que requiere del personal técnico que contrate, en materia de inversiones, análisis financiero o estructuración de emisiones.
+d) La revisión periódica de las metodologías y modelos de calificación que se utilicen, y los cambios significativos que experimenten tales metodologías y modelos, así como la idoneidad de su aplicación para el análisis de nuevos productos financieros o entidades. Está revisión debe ser realizada por un analista diferente al analista o analistas responsables de su aplicación.
+e) Los mecanismos de aprobación de calificaciones por el consejo, para procurar que éstas sean otorgadas en forma independiente al personal que realiza los análisis financieros.
+f) La actualización oportuna de las calificaciones otorgadas en virtud de la existencia de hechos que sean susceptibles de modificar la calificación otorgada.
+g) Mecanismos para asegurar la calidad de la información que se utiliza en el proceso de calificación e incorporación de la experiencia obtenida en anteriores calificaciones. Si la calificación se refiere a un tipo de entidad o producto financiero en relación con los cuales existen sólo datos históricos limitados, la sociedad calificadora debe revelar en forma destacada, las limitaciones de la calificación.
+h) Mecanismos para valorar el impacto que tengan los cambios en las condiciones macroeconómicas y de los mercados financieros sobre las calificaciones.
+i) En el caso de calificar productos estructurados, la sociedad calificadora debe contar con personal capacitado en este tipo de producto financiero. Además, debe valorar si la metodología y modelos utilizados son apropiados para calificar el producto.
+Estas políticas deben formar parte del código de procedimientos y conducta establecido en el artículo 7 de este Reglamento.
+Los documentos que respalden la experiencia, cursos y programas de capacitación recibidos por el personal responsable de la calificación de productos estructurados, según lo indicado en el inciso i) anterior, deben estar disponibles para efectos de supervisión.
