@@ -1,0 +1,1 @@
+Artículo 8—El custodio de la caja chica, el Área Administrativa Financiera y los empleados autorizados que autoricen el uso de estos fondos, serán los responsables de que opere de acuerdo con el presente Reglamento.
