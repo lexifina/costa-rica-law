@@ -14,3 +14,4 @@ Reglamento sobre Autorizaciones, Registros y Requisitos de Funcionamiento de Ent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-24 | la propia norma |
+| 2 | 2009-09-11 | Reglamento 805 (2009-09-11) |
