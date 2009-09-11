@@ -1,0 +1,1 @@
+6º—Dichas embarcaciones serán inspeccionadas por el INCOPESCA, de manera aleatoria; conformidad con sus facultades y potestades otorgadas por Ley, específicamente par recolección, análisis y proceso de datos e información relacionada al recurso sardina, en cuyo su costo será asumido por el interesado.

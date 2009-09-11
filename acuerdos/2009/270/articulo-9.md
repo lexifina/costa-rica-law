@@ -1,0 +1,1 @@
+9º—Con base en los informes de supervisión de descarga y de la información contenida en informes referidas en los puntos 7 y 8 anteriores, la Dirección Técnica elaborará los informes periódicos de evaluación de recurso sardina, que servirán de base técnica a la Junta Directiva para toma de decisiones y acuerdos que garanticen una adecuada explotación del recurso.

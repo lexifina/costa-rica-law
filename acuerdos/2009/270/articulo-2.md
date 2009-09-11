@@ -1,0 +1,1 @@
+2º—Permitir a la flota pesquera semi-industrial sardinera, el trasbordo de los productos pesqueros capturados bajo el amparo de sus respectivas licencias de pesca comercial, a través embarcaciones tipo “barcazas”, acondicionadas para este propósito y para lo cual, éstas deberán estar en el registro de embarcaciones que obra en el INCOPESCA.

@@ -1,0 +1,1 @@
+3º—Para efecto de verificar lo indicado en los dos puntos anteriores, cuando se desembarque sardina u otros productos pesqueros, por parte de las embarcaciones pertenecientes a la flota pesqueras semi-industrial sardinera o embarcaciones trasbordadoras, los interesados quedarán sujeto registro de datos por parte de funcionarios del INCOPESCA.

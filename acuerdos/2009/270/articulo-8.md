@@ -1,0 +1,1 @@
+8º—La industria procesadora de sardina para consumo humano deberá de entregar al INCOPESCA un informe trimestral que debe contener el detalle mensual del volumen de kilos de sardinas comprados a cada barco sardinero, así como, el porcentaje promedio del total de la captura recibida de cada barco que no superó la talla de 15 cm.
