@@ -1,0 +1,1 @@
+Artículo 18: La Municipalidad procurará coadyuvar al financiamiento de los recursos de la capacitación o adiestramiento que requieran los profesionales que reciban a nivel Nacional siempre y cuando el tema de fondos sea aplicable en su campo o especialidad. El profesional interesado debe de gestionar la solicitud de subsidio ante la Intendencia.

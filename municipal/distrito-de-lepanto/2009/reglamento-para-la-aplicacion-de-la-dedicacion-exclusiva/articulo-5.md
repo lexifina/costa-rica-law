@@ -1,0 +1,1 @@
+Artículo 5: La aplicación de esta compensación económica (dedicación exclusiva) se les pagará a los funcionarios mencionados en el artículo 3 del presente Reglamento, que califique al efecto si la mayoría absoluta del Concejo Municipal aprueba que el Alcalde firme el convenio de la dedicación exclusiva con el profesional que lo solicita y si el cargo que desempeña los requiere.
