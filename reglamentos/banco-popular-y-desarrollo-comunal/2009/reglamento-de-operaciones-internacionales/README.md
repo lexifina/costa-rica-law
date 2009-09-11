@@ -1,0 +1,16 @@
+# Reglamento (2009-08-24)
+
+Reglamento de Operaciones Internacionales
+
+- Tipo: Reglamento
+- Número: 4693
+- Fecha: 2009-08-24
+- Ente emisor: Banco Popular y Desarrollo Comunal
+- Publicación: La Gaceta N° 178 del 2009-09-11
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66229&param2=77775&param3=1 (ficha 66229)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-09-11 | la propia norma |

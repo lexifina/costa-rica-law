@@ -1,0 +1,1 @@
+Artículo 7º—Períodos de congelamiento de cheques internacionales. Los cheques internacionales en dólares de los EE.UU. u otras monedas, serán congelados dependiendo de la ubicación geográfica del banco girado. Los períodos para este trámite serán definidos por el Comité Internacional.

@@ -1,0 +1,1 @@
+Artículo 6º—Reporte de compra y venta de divisas al Banco Central de Costa Rica. La información que deba ser reportada al Banco Central se deberá hacer dentro de los plazos y condiciones que la normativa legal disponga.
