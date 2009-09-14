@@ -14,3 +14,4 @@ Declara Utilidad Pública Asociación Centro Capacitación Desarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-07-29 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
