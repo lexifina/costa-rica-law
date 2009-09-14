@@ -1,6 +1,7 @@
 N° 16951-J
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE JUSTICIA Y GRACIA,
+Y EL MINISTRO DE JUSTICIA Y PAZ(*),
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Justica y Gracia")
 En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 de la Constitución Política, y con fundamento en el artículo 19 de la ley N° 5695 de 28 de mayo de 1975 y sus reformas.
 Considerando:
 1°-Que para salvaguardar el interés de la función registral deben crearse incentivos que estimulen directamente al sector técnico y profesional.

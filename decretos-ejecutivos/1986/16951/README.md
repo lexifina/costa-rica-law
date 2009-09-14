@@ -14,3 +14,4 @@ Pago de prohibición a los diplomados de la Escuela Ciencias y Técnicas Registr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-07-24 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
