@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Centro Telecomunicaciones para el Terce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-11-11 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

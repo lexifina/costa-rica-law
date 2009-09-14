@@ -1,6 +1,8 @@
+(Derogado)
 N° 14957-J
 EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE JUSTICIA Y GRACIA,
+Y EL MINISTRO DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°—Que la asociación denominada “Centro de Telecomunicaciones para el Tercer Mundo” (CETTEM), con domicilio en San José, se encuentra debidamente inscrita en el expediente N° 452 del Registro de Asociaciones;
 2°—Que el fin que persigue esta asociación no tiene carácter lucrativo sino el de colaborar con los países del Tercer Mundo para que obtengan el máximo aprovechamiento de los recursos y servicios de las telecomunicaciones; y
