@@ -1,7 +1,8 @@
 N° 3659-G
 JOSE FIGUERES FERRER
 PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y GRACIA,
+Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°—Que por Decreto Ejecutivo N° 43 de 21 de octubre de 1969, se restableció el servicio postal de “Cartas y Tarjetas de Respuesta Comercial”, y se ajustó a la tarifa postal vigente a dicha fecha.
 2°—Que habiendo sido nuevamente modificadas las tarifas postales mediante Decretos Ejecutivos N° 1799-G de 25 de junio de 1971 y N° 3506-G del 18 de enero de 1974, se hace necesario ajustar las tarifas previstas en el considerando 1° de este mismo decreto.
