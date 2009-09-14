@@ -14,3 +14,4 @@ Declara de utilidad pública la Asociación Escuela para Todos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-04-29 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
