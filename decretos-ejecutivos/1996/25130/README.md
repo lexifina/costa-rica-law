@@ -14,3 +14,4 @@ Utilidad Pública Asociación Costarricense Integral para el Desarrollo
 | --- | --- | --- |
 | 1 | 1996-05-17 | la propia norma |
 | 2 | 1996-05-17 | SINALEVI (sin norma nombrada) |
+| 3 | 2009-09-14 | Ley 8771 |
