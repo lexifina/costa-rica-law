@@ -15,3 +15,4 @@ Reglamento de Zonaje para los Servidores del Poder Judicial (Mediante decreto ej
 | --- | --- | --- |
 | 1 | 1978-08-09 | la propia norma |
 | 2 | 1980-09-10 | Decreto Ejecutivo 11858 (1980-09-10) |
+| 3 | 2009-09-14 | Ley 8771 |
