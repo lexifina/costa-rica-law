@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Costarricense Asistencia a PresosACAP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-02-02 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
