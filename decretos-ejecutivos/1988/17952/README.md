@@ -14,3 +14,4 @@ Reforma Crea Comisión Interinstitucional contra la corrupción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-02-12 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

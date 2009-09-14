@@ -1,6 +1,7 @@
 N° 17952-J-P
 EL PRESIDENTE DE LA REPUBLICA
-Y LOS MINISTROS DE LA PRESIDENCIA Y DE JUSTICIA Y GRACIA
+Y LOS MINISTROS DE LA PRESIDENCIA Y DE JUSTICIA Y PAZ(*)
+(*)(Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: Ministerio de Justicia y Gracia")
 De conformidad con el artículo 140, incisos 3) y 18) de la Constitución Política,
 Considerando:
 Que por acuerdo No.4 de la sesión ordinaria No.80 del Consejo de Gobierno, celebrada el 9 de diciembre de 1987, se acordó variar la integración de la Comisión Interinstitucional contra la Corrupción, creada según acuerdo No.2, artículo 4º de la sesión ordinaria No.6 de 11 de junio de 1986.
