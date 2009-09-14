@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Centro Ejecutor Proyectos Económicos y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-11-14 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

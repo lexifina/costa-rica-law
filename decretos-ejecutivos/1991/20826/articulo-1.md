@@ -1,6 +1,8 @@
+(Derogado)
 N° 20826-J
 EL PRESIDENTE DE LA REPUBLICA
-Y LA MINISTRA DE JUSTICIA Y GRACIA,
+Y LA MINISTRA DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°—Que la Ley de Asociaciones numero doscientos dieciocho del ocho de agosto de mil novecientos treinta y nueve y sus reformas, en su artículo 32 confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las asociaciones simples, federadas y confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y llenen una necesidad social.
 2°—Que la Asociación Centro Ejecutor de Proyectos Económicos y de Salud (ACEPESA), está debidamente inscrita en el Registro de Asociaciones, bajo el expediente número cuatro mil ciento setenta y siete, con cédula de persona jurídica número tres-cero cero dos-ciento dieciséis mil ciento veintiuno-cero siete.
