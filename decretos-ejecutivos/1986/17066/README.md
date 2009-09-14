@@ -17,3 +17,4 @@ Crea Comisión Interinstitucional contra la Corrupción
 | 2 | 1986-06-25 | SINALEVI (sin norma nombrada) |
 | 3 | 1987-05-27 | Decreto Ejecutivo 17559 (1987-05-27) |
 | 4 | 1988-02-02 | Decreto Ejecutivo 17952 (1988-02-02) |
+| 5 | 2009-09-14 | Ley 8771 |
