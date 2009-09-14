@@ -2,7 +2,8 @@
 N° 4463-G
 DANIEL ODUBER QUIROS
 PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°—Que por ley N° 4972 de 9 de mayo de 1972, la que modificó la ley N° 1367 de 19 de octubre de 1951, se varió el valor del colon. Que posteriormente y por ley N° 5519 de 25 de abril de 1974, se le dio un nuevo valor al colon costarricense, al establecer la paridad de este, con el gramo de oro fino.
 2°—Que la anterior consideración, ha dado lugar a que se eleven enormemente los costos de explotación de los servicios de correos, al producirse menor poder adquisitivo del dólar americano. Que en vista de la anterior situación la Administración Postal de Costa Rica, fijo su posición en relación al franco oro, que es el tipo de moneda de unidad monetaria y que obliga conforme las Actas de la Unión Postal Universal, del cual Costa Rica es país miembro, estableciendo la paridad entre el colón y el franco oro, a la fecha, quedando fijado este en ¢ 3,377.
