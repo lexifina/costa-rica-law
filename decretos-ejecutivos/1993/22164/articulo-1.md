@@ -1,6 +1,7 @@
 N°22164
 EL PRESIDENTE DE LA REPÚBLICA
-Y LOS MINISTROS DE JUSTICIA Y GRACIA Y DE HACIENDA.
+Y LOS MINISTROS DE JUSTICIA Y PAZ
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 En ejercicio de las facultades que les confieren el artículo 140, incisos 3) y 18) de la Constitución Política, y la Ley sobre Requisitos Fiscales en documentos relativos a actos o contratos, número 6575 del 27 de abril de 1981, en cuyo párrafo 4 del artículo 4, se estableció que tanto el Registro Nacional como Tributación Directa, deben acordar las medidas pertinentes, para la mayor agilidad y rapidez en la tramitación de documentos o expedición de constancias, y para los datos que se suministran mutuamente.
 Considerando
 UNICO. – Que las leyes 6145 del 18 de noviembre de 1977 y 6575 de abril de 1981, establecen como postulados básicos la inscripción pronta y ágil de los documentos sujetos a registros conciliado con el interés de la Administración Tributaria de una efectiva recaudación de impuestos y, ambas, con el interés común de dar un eficiente servicio público. Para lograr dicho cometido, es imperativo no solo una efectiva coordinación de tareas entre el Registro Nacional y Tributación Directa a efecto de que, con los medios tecnológicos disponibles, se brinde un buen servicio al usuario, y Por tanto.

@@ -14,3 +14,4 @@ La Dirección General de Tributación Directa transferirá a la base de datos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-19 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
