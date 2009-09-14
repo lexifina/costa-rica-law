@@ -14,3 +14,4 @@ Declara de utilidad pública a la Asociación para el Desarrollo del Pequeño Em
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-07-15 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
