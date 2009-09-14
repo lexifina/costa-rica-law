@@ -1,0 +1,98 @@
+CIRCULAR Nº 101-09
+ASUNTO: Modificación del artículo 4.2 del “Planteamiento Estratégico de Organización y Ejecución del Procedimiento Especial para Flagrancias”.
+A LAS AUTORIDADES JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+La Corte Plena, en sesión Nº 31-09, celebrada el 7 de setiembre del 2009, artículo VII, aprobó la modificación del artículo 4.2 del “Planteamiento Estratégico Organización y Ejecución del Procedimiento Especial para Flagrancias”, aprobado por la Corte en sesión Nº 14-09, del 27 de abril del 2009, artículo XIX.
+El texto con la modificación incluida es el siguiente:
+“PLANTEAMIENTO ESTRATÉGICO DE ORGANIZACIÓN
+Y EJECUCIÓN DEL PROCEDIMIENTO ESPECIAL
+PARA FLAGRANCIAS
+ü Naturaleza del problema.
+El problema general y crónico de fondo consiste en la prolongada duración de los procesos penales. En el marco del Código Procesal Penal vigente, antes del proyecto de atención de delitos en flagrancia y la reciente reforma introducida por la Ley 8720, no se había logrado dar un tratamiento diferenciado a los asuntos sencillos, de fácil investigación y resolución, frente a aquellos que por el contrario son complejos y de más difícil investigación.
+De manera particular, esta cuestión se revela en el tratamiento de asuntos en flagrancia, abordados con la misma metodología, criterios de investigación y pautas de gestión de los asuntos de investigación ordinaria. Esto significa que a los casos de flagrancia “se los pone a hacer fila” en la tarea común de los despachos, cuando bien podrían ser objeto de un tratamiento mucho más expedito.
+ü Obstáculos principales.
+Los principales obstáculos enfrentados a la hora de organizar y ejecutar el plan piloto para atención de flagrancias, pueden resumirse en los puntos siguientes:
+ü Prácticas tradicionales inquisitoriales, burocráticas y lentas en los sistemas de gestión.
+ü Introducción de equipos de trabajo nuevos con una ideología y metodología de tratamiento de los casos también novedosa.
+ü Complejidad y amplitud de la propuesta que, además de los aspectos jurídicos y de procedimiento, requiere solucionar las necesidades de personal profesional y auxiliar, así como la infraestructura y equipo indispensables.
+ü Coordinación entre los diversos actores institucionales (jueces, fiscales, defensores) para la puesta en marcha y seguimiento de la propuesta.
+ü Condiciones y metas a satisfacer.
+Las principales condiciones y metas a alcanzar pueden resumirse así:
+ü Organización y ejecución de un procedimiento especial dentro del marco de reforma al Código Procesal Penal (Ley 8720 del 22 de abril de 2009).
+ü La organización y ejecución del nuevo procedimiento debe vigilar escrupulosamente el respecto a los derechos, libertades y garantías de las partes involucradas.
+ü Debe reducirse la duración de los procesos en flagrancia a un tiempo máximo de 15 días hábiles.
+ü Debe procurarse un servicio público de justicia de calidad, con aprovechamiento adecuado de funcionarios y recursos materiales.
+ü Medidas indispensables para satisfacer condiciones y metas.
+ü Se ha consensuado entre Judicatura, Ministerio Público y Defensa Pública la reglamentación y protocolos de actuación de los diversos intervinientes, con fundamento en el mandato legal y directrices de Corte Plena.
+ü Poner en práctica el procedimiento especial de flagrancia con la metodología del proceso penal por audiencias, a saber, con la teoría y la práctica de la oralidad. Esto supone:
+ü Una primera parte de la única audiencia, ahora legalmente prevista (audiencia inicial) para atender la detención, diseño de la acusación, solicitudes alternas, solicitud y realización de la audiencia, pronunciamiento del juez sobre flagrancia, escogencia o designación de defensor, imputación de cargos y pruebas, oportunidad para preparar defensa y ofrecer pruebas de descargo, solicitud de medidas cautelares, resolución sobre ellas, oportunidad para constituirse en querellante y/o actor civil.
+ü En la segunda parte de la audiencia se realizará el debate oral y público, se dirimirá la prueba y se dictará sentencia.
+ü Tareas a realizar.
+La ejecución del procedimiento especial para flagrancias supone las siguientes tareas a ejecutar:
+ü Conformación de equipo coordinador. En principio, según las decisiones ya tomadas, debe estar integrado por el Magistrado José Manuel Arroyo Gutiérrez y un representante de cada una de las entidades a coordinar, el Ministerio Público y la Defensa Pública. Debe evaluarse la necesidad de integrar a un segundo miembro de la judicatura penal que apoye al Magistrado Arroyo.
+ü Sacar a concurso las plazas asignadas a la judicatura, conforme los principios y reglas de la carrera judicial. Hay que dar oportunidad a jueces y juezas titulares en ejercicio que desean integrarse al plan piloto, así como a exjueces y exjuezas jubilados que han mostrado interés por reintegrarse a la judicatura para participar de esta propuesta. Los procesos de selección de fiscales y defensores, se llevarán a cabo conforme las normativas que rigen en cada uno de estos sectores.
+ü Debe también implementarse, conforme las reglas preestablecidas, la designación de personal de auxiliar o de apoyo.
+ü Redacción de Reglamento y Protocolos de Actuación. Se trata de diseñar un conjunto de normas mínimo para aplicar el tratamiento de las flagrancias en contravenciones y delitos, tomando en cuenta las diferencias entre una y otra modalidad de infracción, así como las particularidades que cada centro de trabajo ofrezca. Los protocolos de actuación tendrán que diseñarse principalmente para la policía administrativa (Fuerza Pública) y Judicial; para los fiscales del Ministerio Público; para defensores públicos y privados; y para jueces.
+ü Diseño de oficinas de atención de flagrancias y definición de necesidades materiales, a saber, oficinas, salas de vista, lugares de detención, ámbitos de espera para víctimas y testigos; equipo de cómputo y avituallamiento básico. Todo lo anterior tomando en cuenta lo que ya se ha definido en el presupuesto elaborado por el Departamento de Planificación.
+ü Debe tenerse muy presente la necesaria distinción que se impone entre las sedes jurisdiccionales donde hay que empezar de cero y aquellas donde hay un modelo vespertino funcionando, de modo que deba reforzarse o replantearse.
+ü Diseño de un programa de capacitación en coordinación con la Escuela Judicial, teniendo como base el Reglamento y los protocolos de actuación. Todos los actores de la nueva metodología de atención a la flagrancia, deben conocerla y estar preparados para aplicarla, teniendo en cuenta las condiciones y las metas a alcanzar.
+ü Diseño de estrategia de control y seguimiento del proceso planteado. Comprobación de validez y eficacia de la propuesta así como de la corrección o incorrección de los supuestos de partida.
+REGLAMENTO DE ORGANIZACIÓN Y COMPETENCIAS DE
+LOS FUNCIONARIOS PENALES DE SAN JOSE A
+CARGO DEL TRÁMITE DE FLAGRANCIAS
+Según el cambio aprobado de la relación de puestos de Servicios Especiales para el año 2008, punto 301 se especifica que se crean 9 plazas de juez 4, (8745), 3 plazas de juez 3 (8740) adscritos al Tribunal Penal I Circuito de San José y 3 plazas de juez 1 adscritas al Juzgado Contravencional I Circuito de San José.
+Estos funcionarios deberán ser acompañados por personal de la Fiscalía y de la Defensa Pública, serán al menos necesarios 1 fiscal auxiliar y 1 defensor público, para cada grupo de jueces; además el personal administrativo mínimo que asista a los equipos de trabajo.
+Según la reforma legislativa (22 de abril de 2009, Ley 8720) se modifica la función de las tres plazas de juez 3 que pasan al servicio del Juzgado Penal del II Circuito Judicial de San José, asumiendo el Tribunal de Juicio de Flagrancia la competencia para el conocimiento de todos los asuntos que tramitaban los jueces penales de flagrancia, así como el control de las medidas cautelares y soluciones alternas. Los expedientes serán itinerados en el sistema de gestión hacia el Tribunal y los detenidos pasan igualmente a su orden desde la publicación de esta ley.
+Se requiere la creación de 3 jueces 4 (uno para cada sección del tribunal de juicio a fin de reforzar el principio de objetividad; así un juez atenderá la primera parte de la audiencia inicial y otro u otros la segunda parte donde se realizará el juicio).
+Al menos tres Fiscales Auxiliares y su personal auxiliar, estarán adscritos a la Unidad de Flagrancias del Ministerio Público.
+Al menos tres Defensores Públicos y el personal auxiliar necesario, estarán igualmente adscritos a la Unidad de Flagrancias de la Defensa Pública.
+Se establece que las operaciones de estos funcionarios radican y se desarrollan en el II Circuito Judicial de San José, debido a que en este edificio funcionan las oficinas de TURNO EXTRAORDINARIO, en horas no hábiles que van de las 16:00 horas a las 08:00 horas del día siguiente, todos los días del año, de manera que tanto la sección de cárceles y el resto de la infraestructura están preparadas para laborar en este tipo de horario, además, se cuenta con la posibilidad de tomar de huellas y consultar al Archivo Criminal, así como un área de recepción de autoridades policiales, con los detenidos y la prueba material en cada caso.
+Sería necesario considerar reforzar al personal de cárceles en este II Circuito Judicial de San José, porque ahora tendrían una demanda adicional para la custodia de detenidos en los despachos de turno extraordinario y en los despachos de atención de asuntos penales con detención en flagrancia, tanto en el juzgado como en el tribunal de juicio.
+Habría asimismo que resolver la ubicación física de estos funcionarios que, por la índole del servicio que van a prestar, podría ser la misma área de audiencias y algún cubículo particular para los tiempos en que no se estén realizando esas actuaciones.
+Se debe, por otra parte, acondicionar un sitio adecuado para que las víctimas y/o testigos, puedan permanecer mientras esperan ser atendidos. Actualmente no hay sitio alguno, sólo unas sillas de plástico, muy incómodas, y en no pocos casos las personas prefieren descansar en el suelo en lugar de estar sentadas en ellas, especialmente, en horas de la madrugada, donde se ha visto incluso a madres con niños pequeños en esta situación.
+COMPETENCIA DE LOS FUNCIONARIOS PENALES DE
+SAN JOSÉ DE TRÁMITE DE ASUNTOS PENALES
+CON CAPTURA EN FLAGRANCIA
+1.-Denominaciones:
+a.- Oficinas de Turno Ordinario: Aquellas oficinas que desarrollan sus funciones en las horas hábiles de lunes a viernes.
+b.- Oficinas de Turno Extraordinario: Aquellas oficinas que desarrollan sus funciones en las horas comprendidas entre las 16:00 horas y las 08:00 horas del día siguiente, así como las 24 horas de los sábados, domingos, feriados, asuetos y períodos de cierre largo por vacaciones del Poder Judicial.
+c- Oficinas de trámite de flagrancias: Aquellas oficinas que desarrollan sus labores todos los días del año, en dos jornadas comprendidas de 7:30 a 16:30 y de 17:00 a 23:00. (Según propuesta de creación de tribunales especializados para la atención del procedimiento expedito de flagrancias en los que el imputado es detenido en flagrancia).
+2.-Competencia:
+a.- Las oficinas de turno ordinario tendrán la competencia que les haya sido asignada por la Corte Suprema de Justicia desde su creación
+b.- Las oficinas de Turno Extraordinario tendrán competencia para actuar en la circunscripción territorial correspondiente a las oficinas de San José, I, II y III Circuito.
+c.- Las oficinas especializadas de Trámite de Flagrancias, durante el horario de las 7:30 horas a las 16:30 horas, tendrán competencia para atender únicamente los hechos cometidos en la circunscripción territorial del II Circuito Judicial de San José.
+Estos mismos despachos en horario de las 17:00 horas a las 23:00 horas, ampliarán su competencia para atender los casos acaecidos en la circunscripción territorial del I, II y III Circuito Judicial de San José.
+d.- Las detenciones en flagrancias que sean presentadas a las autoridades judiciales en horario de las 23:00 horas y hasta las 7:30 horas del próximo día, serán atendidas bajo el procedimiento ordinario.
+3.-Funciones de las Oficinas para la atención de Flagrancias:
+a.- En caso de delitos: Estos despachos tendrán entre sus labores atender las causas nuevas que se tramiten por delitos cuyo autor(es) haya (n) sido detenido (s) en flagrancia. Llevará a cabo la audiencia, para decidir la aplicación de restricciones de la libertad parciales o totales al imputado, así como cualquier otra medida y la celebración del debate de asuntos cuyo autor haya sido detenido en flagrancia, en el menor tiempo posible.
+b.- La Unidad de Flagrancias del Ministerio Público en los casos de detenciones en flagrancia, recibirá la manifestación oral de la autoridad policial que llevó a cabo la detención, así como a la víctima, al testigo (s) y la prueba material que exista, para decidir en el acto si se trata de una captura en flagrancia. En caso afirmativo, una vez asignado el número único y realizados los trámites administrativos indispensables (introducir datos en el sistema de gestión, consultar antecedentes en el Archivo Criminal y el Registro Judicial de Delincuentes, embalar las evidencias materiales, etc.) la fiscalía solicitará oralmente y de manera desformalizada al juez de juicio la audiencia inicial, para que se le escuche sobre sus pretensiones con respecto a las restricciones de libertad aplicables al imputado y el destino del proceso.
+c.- El Juzgado Contravencional recibirá las contravenciones en que haya detenidos en flagrancia, recibirá los asuntos provenientes de los circuitos I, II y III en San José. Este despacho tramitará sin demora los asuntos sometidos a su conocimiento, realizando las gestiones legales debidamente establecidas, para llegar al dictado de la sentencia en el menor tiempo posible.
+d.- La Unidad de Flagrancias de la Defensa Pública para la atención de flagrancias, deberá asistir a los imputados por contravenciones o delitos, debiendo acudir al llamado de los despachos que los soliciten.
+4.-Cooperación entre despachos de trámite de Flagrancias y el Turno Extraordinario:
+En cuanto sea posible y siempre que las circunstancias lo permitan, el personal de Turno Extraordinario colaborará con el personal de Atención de Flagrancias, para el trámite pronto y expedito de los asuntos nuevos con reo preso cuyos imputados hayan sido capturados in fraganti. Asimismo corresponderá al personal de los despachos de Turno Extraordinario atender los asuntos nuevos con reo preso detenidos en flagrancia y todas las demás actuaciones propias de su competencia en el lapso comprendido entre las 23:00 y las 08 horas del día siguiente, cuando no labora el personal de Atención de Flagrancias. El Turno extraordinario tal y como lo ha hecho hasta hoy, continuará atendiendo todas las gestiones relacionadas con asuntos penales, tales como allanamientos, levantamientos de cadáver, requisas personales, expedientes con reo preso no detenidos en flagrancia, visitas carcelarias, recepción de dinero por concepto de pensión alimenticia cuando el deudor está detenido, etc, durante sus horas hábiles de las 16:00 a las 08:00 horas del día siguiente de todos los días y de las 08:00 a las 16:00 horas de los sábados, domingos, feriados y asuetos, como se desprende las disposiciones reglamentarias emitidas en su oportunidad al momento de su creación.
+REGLAMENTO Y PROTOCOLOS DE ACTUACIÓN
+DELITOS EN FLAGRANCIA
+1.-Reglas de procedimiento expedito para los delitos en flagrancia.
+Detención en flagrante delito.
+Se entenderá la flagrancia en los términos definidos por el artículo 236 del C.P.P., según las siguientes hipótesis:
+(a) Cuando el autor del hecho sea sorprendido en el momento de cometerlo o inmediatamente después;
+(b) Mientras sea perseguido;
+(c) Cuando tenga objetos o presente rastros que hagan presumir vehementemente que acaba de participar en el hecho punible.
+Este procedimiento especial, se aplicará en los casos en los cuales se trate de delitos en flagrancia a criterio del Ministerio Público. En casos excepcionales, aun cuando se trate de un delito flagrante, se aplicará el procedimiento ordinario, cuando la investigación del hecho impida aplicar aquel. Este procedimiento especial omitirá la etapa intermedia del proceso penal ordinario y será totalmente oral.
+2. Protocolos de actuación para policía, fiscales, jueces y defensores en etapa de detención.
+2.1. La persona detenida en flagrancia será trasladada inmediatamente al Ministerio Público (art. 235 y 423 del C.P.P). Las autoridades policiales (administrativas o judiciales) que lleven a cabo una detención in fraganti de alguien, a quien se le atribuye la comisión de un delito, le comunicarán cuáles son sus derechos, y en forma inmediata trasladarán al detenido junto con toda la prueba con que se cuente, la víctima y/o testigos, ante las oficinas para la atención de las causas con detenidos en flagrancias, ya sea el juzgado contravencional o la fiscalía según corresponda.
+2.2. Los agentes de policía no confeccionarán informes ni partes por escrito. Rendirán declaraciones orales ante el fiscal y el juez, en su momento oportuno.
+2.3. Las personas particulares que practiquen detenciones en flagrancia deberán entregar al detenido inmediatamente a la autoridad más cercana, ya sea algún cuerpo policial, Ministerio Público u órganos jurisdiccionales (art. 235, segundo párrafo C.P.P.).
+2.4. El fiscal asignado escuchará a la autoridad de policía, la parte ofendida y demás prueba testimonial si la hubiere y valorará la pertinencia de la aplicación del procedimiento expedito para los delitos en flagrancia.
+3. Protocolos de actuación para la audiencia ante juez de juicio (art. 426 del Código Procesal Penal).
+3.1. Caso de estimarlo procedente por entender que hay delito, el fiscal solicitará al juez del tribunal de juicio de manera desformalizada la audiencia.
+3.2. El juez convocará a las partes a la inmediata realización de esta audiencia, la cual se regirá por lo dispuesto en el artículo 428 del Código Procesal Penal.
+3.3. En la primera parte de la audiencia, se verificará el nombramiento de defensor y la conformidad del imputado.
+3.4. Se valorará en primer lugar si la detención obedece a una de las hipótesis de flagrancia. De no ser así, la audiencia resolverá sólo sobre medidas cautelares y se ordenará el trámite ordinario del asunto; en estos casos el juez penal de la etapa preparatoria receptor quedará vinculado por lo resuelto y los recursos se formularán ante el Tribunal del Procedimiento Ordinario según corresponda.
+3.5. Seguidamente la representación del Ministerio Público formulará la acusación formal, ofrecerá la prueba que la respalda y demás requisitos del art. 303 y siguientes del C.P.P. Esta acusación deberá hacerse constar en el acta de la audiencia.
+3.6. Inmediatamente se conocerá y resolverá lo referente a soluciones alternas y al procedimiento abreviado.
+3.7. Dentro de esta primera parte de la audiencia inicial se tramitará lo referente a la querella y acción civil, según lo dispuesto por el artículo 432 del Código Procesal Penal.
+4. Protocolo de actuación en fase de juicio oral y público.
+4.1. En la segunda parte de la audiencia inicial se verificará el juicio de conformidad con lo dispuesto en el artículo 429 del Código Procesal Penal.
+4.2. En el dictado de las sentencias orales el Tribunal deberá ajustarse a lo preceptuado en el “Protocolo de actuaciones para el desempeño de los Tribunales de Juicio en materia penal” aprobado por Corte Plena en el acta 28-09, artículo V, del 10 de agosto del 2009”.
+San José, 14 de setiembre del 2009.
