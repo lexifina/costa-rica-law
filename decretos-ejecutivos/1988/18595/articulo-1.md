@@ -1,7 +1,8 @@
-N§ 18595-J
+(Derogado)
+N° 18595-J
 EL PRESIDENTE DE LA REPUBLICA
-Y LA MINISTRA DE JUSTICIA Y
-GRACIA,
+Y LA MINISTRA DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1§.-Que la Ley de Asociaciones N§ 218 del 8 de agosto de 1939
 y sus
