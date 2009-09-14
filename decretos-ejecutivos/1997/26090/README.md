@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Conservación y Manejo Bosques Tropical
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-17 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

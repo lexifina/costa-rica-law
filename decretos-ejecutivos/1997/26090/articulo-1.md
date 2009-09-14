@@ -1,6 +1,8 @@
+(Derogado)
 N° 26090-J
 EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE JUSTICIA Y GRACIA,
+Y EL MINISTRO DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Con fundamento en lo dispuesto en el artículo 140, inciso 18) de la Constitución Política, artículo 32 de la Ley de Asociaciones y su Reglamento,
 Considerando:
 I. —Que la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y sus reformas en el artículo 32, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las Asociaciones simples, federadas y confederadas cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y llenen una necesidad social.
