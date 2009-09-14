@@ -14,3 +14,4 @@ Reglamento a la Ley Indígena
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-05-10 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
