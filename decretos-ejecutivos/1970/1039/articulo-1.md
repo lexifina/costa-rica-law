@@ -1,6 +1,7 @@
 N° 1039-G
 PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y GRACIA
+Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y PAZ(*)
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Con el objeto de que todos los funcionarios y empleados de la Administración Pública puedan asistir a los Servicios Fúnebres, por el fallecimientos del Dr. Rafael Ángel Calderón Guardia, ex Presidente de la república,
 Decretan:
 Artículo único.-Declárese asueto a todos los funcionarios y empleados de la Administración Pública el día 11 de junio en curso. Salvo para aquellos que por la naturaleza de las funciones que cumplen, éstas no pueden ser desatendidas.

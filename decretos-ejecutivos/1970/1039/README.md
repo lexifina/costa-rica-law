@@ -14,3 +14,4 @@ Concede asueto a todos los funcionarios y empleados de la Administración Públi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-06-11 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
