@@ -1,6 +1,7 @@
 N° 27953-J
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE JUSTICIA YGRACIA
+Y EL MINISTRO DE JUSTICIA Y PAZ(*)
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Ministerio de Justica y Gracia")
 Con fundamento en lo dispuesto en el artículo 140, inciso 18 de la Constitución Política y en el artículo 32 de la Ley de Asociaciones y su Reglamento:
 Considerando:
 I.- Que la Ley de Asociaciones número 218, del ocho de agosto de mil novecientos treinta y nueve y sus reformas en el artículo 32 confiere al Poder Ejecutivo la potestad de declarar la Utilidad Pública a las asociaciones simples, federadas o conferadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y llenen una necesidad social.

@@ -14,3 +14,4 @@ Declara de utilidad pública para los intereses del Estado a la Asociación Vida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-05 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
