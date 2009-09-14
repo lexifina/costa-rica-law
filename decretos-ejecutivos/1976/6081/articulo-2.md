@@ -1,1 +1,0 @@
-Artículo 2°—Una maquina franqueadora regulada según las condiciones del artículo anterior dará servicio al público cuando su volumen pase de cien envíos, los cuales deben ser uniformes en peso y dimensiones y cuyos partes se cancelaran con entero de Gobierno en el Banco Central, sin el descuento que establece el artículo 17 de la ley N° 5870, del 11 de diciembre de 1975.
