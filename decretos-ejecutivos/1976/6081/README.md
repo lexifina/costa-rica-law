@@ -15,3 +15,4 @@ Reglamenta Artículo 15º Ley Creación Dirección Nacional Comunicaciones
 | --- | --- | --- |
 | 1 | 1976-06-19 | la propia norma |
 | 2 | 1977-07-20 | Decreto Ejecutivo 7255 (1977-07-20) |
+| 3 | 2009-09-14 | Ley 8771 |

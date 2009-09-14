@@ -3,7 +3,8 @@ N° 6081-G
 (Este decreto ejecutivo fue derogado por el artículo 122 del decreto ejecutivo N° 7255 del 20 de julio de 1976)
 DANIEL ODUBER QUIROS
 PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y PAZ(*),
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 En uso de las facultades conferidas por el artículo 140- de la Constitución Política y de la ley N? 5870 del 11 de diciembre de 1975.
 Decretan:
 Artículo 1°—Conforme lo establece el artículo 15 de la ley N° 5870, la excepción provista en el mismo, para la correspondencia “Oficial”, se regulara por las siguientes disposiciones:
