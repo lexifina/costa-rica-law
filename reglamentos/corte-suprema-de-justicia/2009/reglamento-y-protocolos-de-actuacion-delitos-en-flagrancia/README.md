@@ -13,3 +13,4 @@ Reglamento y protocolos de actuación Delitos en Flagrancia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-27 | la propia norma |
+| 2 | 2009-09-14 | Circular 101 (2009-09-14) |
