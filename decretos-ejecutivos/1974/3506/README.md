@@ -15,3 +15,4 @@ Reforma Tarifas y Derechos Postales Servicio de Correos
 | --- | --- | --- |
 | 1 | 1974-02-12 | la propia norma |
 | 2 | 1975-01-08 | Decreto Ejecutivo 4463 (1975-01-08) |
+| 3 | 2009-09-14 | Ley 8771 |
