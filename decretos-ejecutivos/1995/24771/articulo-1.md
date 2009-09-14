@@ -1,6 +1,8 @@
+(Derogado)
 Nº 24771-J
 EL PRESIDENTE DE LA REPUBLICA
-Y LA MINISTRA DE JUSTICIA Y GRACIA
+Y LA MINISTRA DE JUSTICIA Y PAZ(*)
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Con fundamento en lo establecido en el artículo 140 inciso 18 de la
 Constitución Política, artículo 32 de la Ley de Asociaciones y su
 Reglamento.

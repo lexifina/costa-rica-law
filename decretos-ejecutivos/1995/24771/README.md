@@ -13,3 +13,4 @@ Declara de Utilidad Pública el ILPES
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-12-05 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
