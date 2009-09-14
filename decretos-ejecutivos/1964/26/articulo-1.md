@@ -1,9 +1,9 @@
 (Derogado)
 N° 26
-(Este decreto ejecutivo se dejó sin efecto por el artículo 1° del decreto ejecutivo N° 1799 del 26 de junio de 1971)
 FRANCISCO J. ORLICH
 PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°—Que las tarifas y derechos postales que se cobran actualmente vienen determinados por los Convenios Postales Universales.
 2°—Que dichas tarifas fueron calculadas tomando en consideración un tipo de cambio de 5.67 colones por dólar, siendo las básicas que establecen dicho Convenios.

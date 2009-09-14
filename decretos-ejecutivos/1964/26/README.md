@@ -14,3 +14,4 @@ Modifica Tarifas y Derechos Postales Servicio de Correos
 | --- | --- | --- |
 | 1 | 1964-05-02 | la propia norma |
 | 2 | 1971-06-25 | Decreto Ejecutivo 1799 (1971-06-25) |
+| 3 | 2009-09-14 | Ley 8771 |
