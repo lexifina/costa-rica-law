@@ -14,3 +14,4 @@ Reglamento Junta Administrativa Dirección Nacional Comunicaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-08-19 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

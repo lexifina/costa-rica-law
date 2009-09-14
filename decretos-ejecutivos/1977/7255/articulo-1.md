@@ -1,7 +1,8 @@
 N° 7255-G
 DANIEL ODUBER QUIROS
 PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE GOBERNACIÓN, POLÍCIA, JUSTICA Y GRACIA
+Y EL MINISTRO DE GOBERNACIÓN, POLÍCIA, JUSTICA Y PAZ(*)
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 De conformidad con el artículo 140 inciso 3) y 18) de la Constitución Política de la República,
 DECRETAN:
 El siguiente
