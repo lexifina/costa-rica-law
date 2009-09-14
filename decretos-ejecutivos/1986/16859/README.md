@@ -13,3 +13,4 @@ Declara de utilidad pública Asociación de Reserva de la Fuerza Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-13 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
