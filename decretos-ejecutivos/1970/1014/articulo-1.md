@@ -1,6 +1,7 @@
 N° 1014-G
 PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y GRACIA
+Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y PAZ(*)
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1° Que mediante decreto N° 23 de 22 de abril de 1970, fue creado el Concejo de Distrito de Colorado, cantón de Abangares provincia de Guanacaste,.
 2°-Que mediante decreto N° 33 de 2 de mayo de 1970 fueron nombrados los miembros propietarios y suplentes por parte del Poder Ejecutivo.

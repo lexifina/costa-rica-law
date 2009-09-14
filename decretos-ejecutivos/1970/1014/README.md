@@ -14,3 +14,4 @@ Nombramiento de propietario y suplente en el Concejo de Distrito de Colorado, ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-06-06 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
