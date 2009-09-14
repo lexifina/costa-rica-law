@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Pro Democracia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-11-04 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
