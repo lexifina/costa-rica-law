@@ -1,11 +1,7 @@
 N§ 23427-MP
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE LA PRESIDENCIA
-En uso de las facultades que les confiere el art¡culo 140,
-incisos
-3) y 18) de la Constituci¢n Pol¡tica, art¡culo 6 de la Ley
-General de
-Polic¡a.
+En uso de las facultades que les confiere el art¡culo 140, incisos 3) y 18) de la Constituci¢n Pol¡tica, art¡culo 6 de la Ley General de Polic¡a.
 Considerando:
 1§- Que por imperativo legal se ha encomendado al Presidente
 de la
@@ -69,8 +65,8 @@ Polic¡a de Tr nsito.
 d- Depender del Ministerio de la Presidencia: La Direcci¢n
 de
 Seguridad del Estado.
-e) Depender del Ministerio de Justicia y Gracia: La Polic¡a
-Penitenciaria.
+e) Depender del (*)Ministerio de Justicia y Paz:: La Polic¡a Penitenciaria.
+(*)(Modificada su denominación por el artículo 1° inciso b) de la ley N° 8771 del 14 de setiembre de 2009)
 f) Depender del Ministerio de Hacienda: La Polic¡a de
 Control
 Fiscal.

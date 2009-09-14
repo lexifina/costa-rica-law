@@ -14,3 +14,4 @@ Determina Ministerios a que pertenecen diversas Fuerzas de Policía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-07-15 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
