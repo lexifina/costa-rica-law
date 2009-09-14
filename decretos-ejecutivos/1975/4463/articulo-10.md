@@ -1,3 +1,0 @@
-Artículo 10.-El punto b) de la parte II, "Tasas para revistas y libros de edición costarricense y para diarios y periódicos editados en Costa Rica, y para Editoriales. El régimen UPAE -Unión Postal de las Américas y España- se aplicarán igualmente para el régimen interno o internacional y por vía de superficie cuando los envíos sean despachados, por las empresas periodísticas o por las editoriales. Para el caso que éstos se hagan individualmente por los autores, pagarán las tasas reducidas para impresos.
-Este servicio para beneficiarse de él, debe solicitarse el correspondiente permiso ante la Junta Administrativa de la Dirección Nacional.
-(Así reformado por el artículo 121 del decreto ejecutivo N° 7255 del 20 de julio de 1977)
