@@ -1,1 +1,0 @@
-Artículo 92.—Cada tarjeta deberá ser marcada solamente por el servidor a quien corresponda, en forma tal que la marca quede impresa con claridad, toda vez que aquella marca defectuosa, manchada o confusa, que no se deba a desperfecto del reloj marcador y que se preste a dudas, se tendrá por no hecha, para efectos de sanción disciplinaria.

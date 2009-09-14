@@ -1,2 +1,0 @@
-Artículo 96.- Los funcionarios del Ministerio que presten sus servicios en el Registro Nacional no estarán en la obligación de marcar la tarjeta del control de asistencia en el tiempo establecido para el almuerzo. El control de entrada y salida destinado al almuerzo, queda bajo la responsabilidad de cada Jefe Inmediato o Director.
-(Así reformado por el artículo 1° del Decreto Ejecutivo No. 27900, del 8 de abril de 1999).

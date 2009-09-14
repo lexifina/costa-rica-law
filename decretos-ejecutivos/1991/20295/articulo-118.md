@@ -1,1 +1,0 @@
-Artículo 118.- Las faltas no previstas en el presente reglamento, serán sancionadas cnforme la estimación que les dé el Código de Trabajo, el Estatuto de Servicio Civil, su Reglamento y demás leyes conexas y supletorias.

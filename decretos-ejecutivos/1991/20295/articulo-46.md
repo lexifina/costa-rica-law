@@ -1,1 +1,0 @@
-Artículo 46.—Los servidores podrán: disfrutar del tiempo necesario para asistir a las instituciones aseguradoras del Estado, u otras de carácter privado, de conformidad con las disposiciones internas que se dicten para controlar el tiempo que se ocupe en esas diligencias.

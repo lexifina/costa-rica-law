@@ -1,1 +1,0 @@
-Artículo 28.—La apelación o apelaciones que se produjeren cuando se presuma violación a cualesquiera de los artículos de este Reglamento, serán elevados a conocimiento del Director General de cada Dependencia, entendiéndose que el Ministro agotará la Vía Administrativa.

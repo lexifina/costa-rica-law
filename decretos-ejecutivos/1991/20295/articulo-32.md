@@ -1,1 +1,0 @@
-Artículo 32.—Los recargos de puestos de clases diferentes y de mayor categoría, cuando excedan de un mes estarán sujetos a aprobación previa de la Dirección General de Servicio Civil, la cual se otorgará si el servidor a quien se le concede el recargo consciente y reúne los requisitos de preparación y de experiencia que para el desempeño del puesto sean necesarios.

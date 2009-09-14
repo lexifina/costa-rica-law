@@ -1,1 +1,0 @@
-Artículo 95.—No se impondrá la sanción disciplinaria al servidor que por error marcó la tarjeta de otro, ni a aquel a quien le marcaron la suya. Estarán obligados en ambos casos a informar del hecho a la Sección o Departamento de Personal en el mismo mes calendario en que sucedió el error.

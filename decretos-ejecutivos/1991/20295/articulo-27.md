@@ -1,1 +1,0 @@
-Artículo 27.—Los funcionarios que en forma dolosa o culposa brinden información del proceso, con el fin de dar preferencia y protección a los concursantes, acarrean la responsabilidad y serán sancionados de conformidad con este Reglamento y el derecho común.

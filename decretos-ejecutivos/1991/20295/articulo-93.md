@@ -1,1 +1,0 @@
-Artículo 93.—Salvo casos previstos en este Reglamento, la omisión de una marca en la tarjeta a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente jornada, excepto que se justifique dentro del mismo mes calendario.

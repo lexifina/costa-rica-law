@@ -1,1 +1,0 @@
-Artículo 137.- Los casos no previstos en el presente reglamento, se resolverán supletoriamente, de conformidad con las disposiciones establecidas por ley, de acuerdo con el siguiente orden: Estatuto de Servico Civil y su Reglamento; Ley General de la Administración Pública, Código de Trabajo, Ley de la Administración Fiananciera de la República.

@@ -1,3 +1,0 @@
-Artículo 138.- Deróguese: El Reglamento Interior de Trabajo del Consejo Superior de Defensa Social, Decreto Ejecutivo N° 1 de 6 de enero de 1966; el título III (Régimen Interior de Trabajo), del Reglamento del Centro de Adptación Social La Reforma, Decreto Ejecutivo N° 6738-G de 31 de diciembre de 1976; el Reglamento Autónomo de Trabajo del Registro Nacional, Decreto Ejecutivo N° 11114-J de 17 de enero de 1980; así como las demás disposiciones reglamentarias o acuerdos ejecutivos que se le opongan.
-Rige a partir de su publicación.
-Dado en la Presidencia de la República.- San José, a los seis días del mes de marzo de mil novecientos novent ay uno.

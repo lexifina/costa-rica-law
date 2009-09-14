@@ -1,1 +1,0 @@
-Artículo 18.—La Sección de Reclutamiento y Selección de Personal respectiva procederá a estudiar las ofertas presentadas con el propósito de verificar los requisitos previamente establecidos y desechar aquellas ofertas que no cumplan con lo fijado.

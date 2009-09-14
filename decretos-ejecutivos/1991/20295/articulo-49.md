@@ -1,1 +1,0 @@
-Artículo 49.—Los funcionarios de la Dirección General de Adaptación Social, tendrán derecho a celebrar encuentros, actividades culturales, sociales y deportivas el día 22 de junio de cada año, conforme lo determina el Decreto Ejecutivo No 18326-J de 8 de agosto de 1988 (Día del Trabajador Penitenciario).

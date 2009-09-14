@@ -1,1 +1,0 @@
-Artículo 104.—La inasistencia a una fracción de la jornada se considera como la mitad de una ausencia. Dos mitades de una ausencia, para los efectos de aplicación de este reglamento se computará como una ausencia.

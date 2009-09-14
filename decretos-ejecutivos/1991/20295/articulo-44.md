@@ -1,1 +1,0 @@
-Artículo 44.—Las servidoras del Ministerio podrán gozar de una hora diaria de lactancia, siempre que demuestren ante la Sección o Departamento de Personal, mediante certificado médico extendido por la Caja Costarricense de Seguro Social, que se encuentra en época de lactancia y el período que debe cubrirla.

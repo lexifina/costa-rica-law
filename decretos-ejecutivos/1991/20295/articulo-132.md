@@ -1,1 +1,0 @@
-Artículo 132.- Las comisones de Recreación impulsarán el funcionamiento de grupos culturales o deportivos, y apoyarán en todo lo posible sus manifestaciones e iniciativas coordinando conjuntaente las labores a su cargo.

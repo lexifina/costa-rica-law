@@ -1,1 +1,0 @@
-Artículo 80.- El Departamento de Adiestramiento y el Jefe Inmediato del respectivo servidor serán responsables de velar por el cumplimiento de las normas anteriores, y no tramitarán nuevas licencias para estudio sin antes determinar que el servidor se haya hecho acreedor de la misma, de conformidad con las prescripciones anteriores.
