@@ -14,3 +14,4 @@ Declara de utilidad pública para los intereses del Estado la Asociación Latino
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-03 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
