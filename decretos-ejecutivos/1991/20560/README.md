@@ -14,3 +14,4 @@ Declara de utilidad pública para los intereses del Estado, la asociación de Ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-08-07 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

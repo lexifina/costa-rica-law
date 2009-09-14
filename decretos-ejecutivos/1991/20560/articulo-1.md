@@ -1,6 +1,7 @@
 N° 20560-J
 EL PRESIDENTE DE LA REPÚBLICA
-Y LA MINISTRA DE JUSTICIA Y GRACIA
+Y LA MINISTRA DE JUSTICIA Y PAZ(*)
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°.- Que la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y sus reformas, en su artículo 32, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las asociaciones simples, federadas y confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y llenen una necesidad social.
 2°.- Que la Asociación de Mantenimiento Vial (AMV) está debidamente inscrita en el Registro de Asociaciones, según consta en el expediente N° 3698, con cédula de persona jurídica N° 3-002-109738-31
