@@ -1,1 +1,0 @@
-Artículo 6°—La Oficina Filatélica funcionará con el personal que determine la Dirección General de Correos y deberá contar con un Jefe, responsable ante sus superiores jerárquicos de la organización y funcionamiento de la misma, así como de los valores confiados a su custodia.

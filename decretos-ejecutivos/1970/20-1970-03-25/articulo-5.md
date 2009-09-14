@@ -1,1 +1,0 @@
-Artículo 5°—La Oficina venderá únicamente los sellos que existan en el Banco Central y los que provea la Organización de las Naciones Unidas. Queda prohibido vender en la Oficina Filatélica, otras estampillas que las indicadas, o hacer cualquier otro negocio filatélico, ajeno a las actividades propias de la misma.

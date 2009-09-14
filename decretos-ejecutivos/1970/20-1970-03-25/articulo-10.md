@@ -1,2 +1,0 @@
-Artículo 10.—La Oficina Filatélica se aprovisionará de estampillas nacionales y rendirá cuenta de las ventas de las mismas en la forma indicada en el artículo 5° del Decreto Ejecutivo N° 22 del 25 de agosto de 1969.
-La compra de las estampillas destinadas a la venta por correspondencia y de los sellos necesarios para el franqueo de los envíos se hará al Jefe del Expendio de Estampillas por medio de un cheque girado contra la cuenta señalada en el artículo anterior.
