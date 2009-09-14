@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Comisión Sindical de Salud Laboral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-08-04 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

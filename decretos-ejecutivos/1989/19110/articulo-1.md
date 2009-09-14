@@ -1,6 +1,8 @@
+(Derogado)
 N° 19110-J
 EL PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE JUSTICIA Y GRACIA,
+Y EL MINISTRO DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°—Que la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y sus reformas, en su artículo 32, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las asociaciones simples, federadas y confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y satisfagan una necesidad social.
 2°—Que la Asociación Comisión Sindical de Salud Laboral (COSSAL), está debidamente inscrita en el Registro de Asociaciones, según consta en el expediente número 543, con cédula de persona jurídica número 3-002-051325-36.
