@@ -1,7 +1,8 @@
 N° 17559-P-J
 EL PRIMER VICEPRESIDENTE
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA
-Y LOS MINISTROS DE LA PRESIDENCIA Y DE JUSTICIA Y GRACIA
+Y LOS MINISTROS DE LA PRESIDENCIA Y DE JUSTICIA Y PAZ(*)
+(*)(Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: Ministerio de Justicia y Gracia")
 De conformidad con el artículo 140, incisos 3) y 18) de la Constitución Política,
 Considerando:
 1.- Que mediante el Decreto No.17066-P-J del 12 de junio de 1986, el Poder Ejecutivo creó la Comisión Interinstitucional para combatir la corrupción pública y privada en la sociedad costarricense.
