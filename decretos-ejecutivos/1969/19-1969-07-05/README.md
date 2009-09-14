@@ -15,3 +15,4 @@ Autoriza Dirección General Correos Venta Estampillas emite ONU
 | --- | --- | --- |
 | 1 | 1969-07-20 | la propia norma |
 | 2 | 1970-03-25 | Decreto Ejecutivo 20 (1970-03-25) |
+| 3 | 2009-09-14 | Ley 8771 |
