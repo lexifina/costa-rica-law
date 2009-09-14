@@ -14,3 +14,4 @@ Declara de utilidad pública para los intereses de Estado a la Asociación de Gr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-16 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

@@ -1,7 +1,8 @@
 N° 26599-J
 EL PRIMER VICEPRESIDENTE
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
-Y EL MINISTRO DE JUSTICIA Y GRACIA,
+Y EL MINISTRO DE JUSTICIA Y PAZ(*),
+(*) (Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Justica y Gracia")
 Con fundamento en lo dispuesto en el artículo 140 inciso 15 de la Constitución Política y en el artículo 32 de la Ley de Asociaciones y su Reglamento.
 Considerando:
 I.-Que la Ley de Asociaciones N° 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, en el artículo 32 confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples federadas o confederadas cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y llenen una necesidad social.

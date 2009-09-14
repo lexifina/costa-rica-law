@@ -1,1 +1,2 @@
-Artículo 3°-Deberá la Asociación rendir un informe anual ante el Ministerio de Justicia y Gracia, tal como se prevé en la Ley de Asociaciones.
+Artículo 3°-Deberá la Asociación rendir un informe anual ante el Ministerio de Justicia y Paz(*), tal como se prevé en la Ley de Asociaciones.
+(*) (Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Justica y Gracia")
