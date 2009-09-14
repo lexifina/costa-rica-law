@@ -3,7 +3,8 @@ N° 1799-G
 (Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 3506 del 18 de enero de 1974)
 JOSE FIGUERES FERRER
 PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y PAZ(*),
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 1°—Que las disposiciones del Convenio Postal Universal, celebrado en Tokyo en el año 1969 y al cual ha suscrito Costa Rica, obligan a:
 a) Modificar el escalonamiento de peso de los envíos postales;

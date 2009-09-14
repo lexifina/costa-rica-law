@@ -17,3 +17,4 @@ Reforma Tarifas y Derechos Postales Servicio de Correos
 | 2 | 1972-08-24 | Decreto Ejecutivo 2512 (1972-08-24) |
 | 3 | 1974-01-18 | Decreto Ejecutivo 3506 (1974-01-18) |
 | 4 | 1975-01-08 | Decreto Ejecutivo 4463 (1975-01-08) |
+| 5 | 2009-09-14 | Ley 8771 |
