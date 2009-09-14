@@ -14,3 +14,4 @@ Declara Utilidad Pública Asociación Amigos de la Cultura Tradicional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-11-20 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
