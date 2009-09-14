@@ -1,7 +1,9 @@
+(Derogado)
 N° 26258-J
 EL PRIMER VICEPRESIDENTE EN
 EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA
-Y EL MTNISTRO DE JUSTICIA Y GRACIA,
+Y EL MTNISTRO DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Con fundamento en lo dispuesto en el artículo 140, inciso 18) de la Constitución Política y en el artículo 32 de la Ley de Asociaciones y su reglamento
 Considerando:
 1°—Que la Ley de Asociaciones N° 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, en el artículo 32, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las asociaciones simples, federadas o confederadas cuyo desarrollo y actividades sea particularmente útiles para los intereses del Estado y llenen una necesidad. social.

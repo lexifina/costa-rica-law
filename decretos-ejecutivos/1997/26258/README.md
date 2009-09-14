@@ -14,3 +14,4 @@ De Interés Público Asociación Mantenimiento Caminos Rurales AMACARUVA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-08-28 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
