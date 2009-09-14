@@ -3,7 +3,8 @@ N° 20
 (Este decreto ejecutivo fue derogado por el artículo 122 del decreto ejecutivo N° 7255 del 20 de julio de 1976)
 JOSE JOAQUIN TREJOS FERNANDEZ
 PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Con base en la ley N° 4365 del 11 de agosto de 1969,
 Decretan:
 El siguiente

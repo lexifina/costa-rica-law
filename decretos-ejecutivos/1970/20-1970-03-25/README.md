@@ -15,3 +15,4 @@ Reglamento Oficina Filatélica Costa Rica
 | --- | --- | --- |
 | 1 | 1970-04-14 | la propia norma |
 | 2 | 1977-07-20 | Decreto Ejecutivo 7255 (1977-07-20) |
+| 3 | 2009-09-14 | Ley 8771 |
