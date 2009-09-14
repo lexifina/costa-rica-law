@@ -14,3 +14,4 @@ Mantiene a Sarapiquí como Distrito Quinto Cantón Central de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-07-13 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
