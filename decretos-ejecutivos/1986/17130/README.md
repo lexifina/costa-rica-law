@@ -14,3 +14,4 @@ Declara de utilidad pública la Asociación Pro-Trabajo Capacitación e Integrac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-08-18 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
