@@ -2,7 +2,8 @@
 N° 5835-G
 DANIEL ODUBER QUIROS
 PRESIDENTE DE LA REPUBLICA
-Y EL MINISTERIO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Y EL MINISTERIO DE GOBERNACION, POLICIA, JUSTICIA Y PAZ(*),
+(*) (Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Justica y Gracia")
 Considerando:
 1°—Que la ley N° 5870 de 12 de diciembre de 1975, suprimió todas las franquicias postales, tanto para el régimen interno como internacional. Que igualmente la misma ley establece, que se podrán autorizar franquicias en el régimen interno, a las revistas y libros, de autores nacionales los que quedan supeditados a contener anuncios nada más que en la tapa y contratapa, y que tengan la naturaleza de aspectos culturales, técnicos o científicos. Y, finalmente la precitada ley autoriza una “tasa reducida”, para las anteriores publicaciones, y para ser cursadas por la vía de superficie en el régimen internacional.
 2°—Que es de consideración la situación que se ha planteado con la derogación total de las franquicias que venían beneficiando a las personas o empresas que se dedican a dicha actividad, con exoneraciones parciales o totales. Que en la mayoría de los casos dichas publicaciones son posibles solamente mediante el concurso del anuncio comercial. Que toca igualmente al Gobierno velar por las actividades que producen medios del desarrollo económico de la nación, y por eso es justo adecuar una tarifa que haga posible que esas publicaciones circulen por el Correo, para lo que es indicado, fijar una nueva escala de valores en la tarifa, hasta tanto la Junta Administrativa de la Dirección Nacional de Comunicaciones haga un nuevo estudio global de las tarifas.
@@ -29,6 +30,6 @@ a) Pagaran ¢ 1.70 en los casos que este autorizada por el Ministerio de Haciend
 También pagaran dicha suma aquella correspondencia sujeta solamente al pago del “Impuesto Selectivo de Consumo y el de Ventas”.
 b) Pagaran ¢ 3.40 las Encomiendas Postales o correspondencia que tenga trámite aduanero.
 El ingreso que produzca los anteriores conceptos, y lo recaudado diariamente, se depositara en el Banco Central de Costa Rica, mediante Entero de Gobierno.
-"Articulo 10.—El punto b) de la parte II, "Tasas para revistas y libros de edición costarricense y para diarios y periódicos editados en Costa Rica, y para Editoriales. El régimen UPAE -Unión Postal de las Américas y España- se aplicarán igualmente para el régimen interno o internacional y por vía de superficie cuando los envíos sean despachados, por las empresas periodísticas o por las editoriales. Para el caso que éstos se hagan individualmente por los autores, pagarán las tasas reducidas para impresos.
-Este servicio para beneficiarse de él, debe solicitarse el correspondiente permiso ante la Junta Administrativa de la Dirección Nacional".
+"Articulo 10.—El punto b) de la parte II, “Tasas para revistas y libros de edición costarricense y para diarios y periódicos editados en Costa Rica, y para Editoriales, El Régimen UPAE-Unión Postal de las Américas y España, se aplicarán igualmente para el régimen interno o internacional y por, vía de superficie cuando los envíos sean despachados, por las empresas periodísticas o por las editoriales. Para el caso que estos se hagan individualmente por los autores, pagarán las tasas reducidas para impresos.
+Este servicio para beneficiarse de él, debe solicitarse el correspondiente permiso ante la Junta Administrativa de la Dirección Nacional de Comunicaciones”.
 (Así reformado el artículo 10 anterior por el artículo 121 del decreto ejecutivo N° 7255 del 20 de julio de 1976)
