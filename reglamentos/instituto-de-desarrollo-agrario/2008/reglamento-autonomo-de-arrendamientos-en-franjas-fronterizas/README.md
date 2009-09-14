@@ -15,3 +15,4 @@ Reglamento Autónomo de Arrendamientos en Franjas Fronterizas
 | --- | --- | --- |
 | 1 | 2008-04-28 | la propia norma |
 | 2 | 2009-06-01 | Reglamento 19 (2009-06-01) |
+| 3 | 2009-09-14 | Reglamento 32 (2009-09-14) |
