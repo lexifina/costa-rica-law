@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Nacional Pro Desarrollo Artesanía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-04-07 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
