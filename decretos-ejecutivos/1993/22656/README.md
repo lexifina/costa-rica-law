@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Experimental Bosque Trópico Húmedo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-19 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

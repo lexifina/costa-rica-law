@@ -1,6 +1,8 @@
+(Derogado)
 N° 22656-J
 EL PRESIDENTE DE LA REPUBLICA
-Y LA MINISTRA DE JUSTICIA Y GRACIA,
+Y LA MINISTRA DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Con fundamento en lo establecido en el artículo 140, inciso 18 de la Constitución Política y artículo 32 de la ley N° 218 del 8 de agosto de 1939 (Ley de Asociaciones) y su Reglamento.
 Considerando:
 I. Que la Ley N° 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas (Ley de Asociaciones) en el Artículo 32 confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las asociaciones simples, federadas confederadas cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y llenen una necesidad social.
