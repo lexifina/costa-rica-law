@@ -1,6 +1,8 @@
+(Derogado)
 N° 21587-J
 EL PRESIDENTE DE LA REPUBLICA
-Y LA MINISTRA DE JUSTICIA Y GRACIA,
+Y LA MINISTRA DE JUSTICIA Y PAZ(*),
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Considerando:
 Que la Ley de Asociaciones número 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, en el artículo 32, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las asociaciones simples, federadas o confederadas cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado y llenen una necesidad social.
 2°—Que la Asociación Eclesial Católica Vivir en Cristo, se encuentra debidamente inscrita en el Registro de Asociaciones bajo el expediente número 3816, con cédula de persona jurídica número 3-002-111289-31.

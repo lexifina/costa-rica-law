@@ -14,3 +14,4 @@ Declara Utilidad Pública Asociación Eclesial Católica Vivir en Cristo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-10-14 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
