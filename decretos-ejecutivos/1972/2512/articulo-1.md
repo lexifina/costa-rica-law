@@ -1,7 +1,8 @@
 N° 2512-G
 JOSE FIGUERES FERRER
 PRESIDENTE DE LA REPUBLICA
-Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y PAZ(*),
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Justica y Gracia")
 Considerando:
 1°-Que las disposiciones del Congreso de UPAE de México-1966, en lo que se refiere a franquicias y con especial a la concesión de los impresos y que expidan los editores o autores con fines culturales, fueron derogadas por el Congreso de Santiago-1971, a partir del 1° de julio de 1972.
 2°-Toca al Estado velar por la expansión de la cultura y como principio del postulado del correo en su carácter y función ... "Auxiliar indispensable de las actividades personales, culturales y comerciales del país, realiza en todo el territorio nacional y en el ámbito internacional, según la cooperación establecida en los convenios postales vigentes ..."
