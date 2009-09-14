@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Cantonal Salud Pérez Zeledón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-02-18 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
