@@ -1,7 +1,8 @@
 Nº 15222-MIEM-J
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE INDUSTRIA, ENERGIA Y MINAS
-Y DE JUSTICIA Y GRACIA,
+Y DE JUSTICIA Y PAZ(*)
+(*) (Así modificada su denomimación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriuormente se indicaba: "Justica y Gracia")
 En uso de las facultades conferidas en los incisos 3) y 18) del
 artículo 121 de la Constitución Política y 40 de la ley Nº 6867 del 25 de
 abril de 1983; y
