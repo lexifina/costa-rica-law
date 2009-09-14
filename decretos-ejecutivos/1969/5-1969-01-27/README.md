@@ -14,3 +14,4 @@ Reforma Crea Distritos Peralta La Suiza y Turrialba de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-02-06 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
