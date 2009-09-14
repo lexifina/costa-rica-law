@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Hedwing y Robert Samuel Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-24 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
