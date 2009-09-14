@@ -14,3 +14,4 @@ Declara de Utilidad Pública la Asociación de Sordos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-03-21 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

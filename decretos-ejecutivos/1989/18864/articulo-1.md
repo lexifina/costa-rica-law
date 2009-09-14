@@ -1,6 +1,7 @@
 N°18864-J
 EL PRESIDENTE DE LA REPÚBLICA
-Y EL MINISTRO DE JUSTICIA Y GRACIA
+Y EL MINISTRO DE JUSTICIA Y PAZ(*)
+(*) (Así modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009. Anteriormente se indicaba: "Ministerio de Justica y Gracia")
 Considerando:
 1°.- Que la Ley de Asociaciones N°218 del 8 de agosto de 1939 y sus reformas en su artículo 32, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública las asociaciones simples, federadas y confederadas, cuyo desarrollo y actividades sean particularmente útiles para los interesados del Estado y llenen una necesidad social.
 2°.- Que la Asociación de Sordos de Costa Rica está debidamente inscrita en el Registro de Asociaciones según consta en el expediente, número doscientos treinta y ocho con cédula jurídica número tres cero cero dos-cero sesenta y un mil seiscientos veinticuatro-veinte.
