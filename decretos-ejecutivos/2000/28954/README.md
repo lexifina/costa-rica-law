@@ -14,3 +14,4 @@ Declara de Utilidad Pública para los intereses del Estado a la Asociación para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-03 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |
