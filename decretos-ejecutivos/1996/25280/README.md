@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Centroamericana Lectura Educación Cult
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-15 | la propia norma |
+| 2 | 2009-09-14 | Ley 8771 |

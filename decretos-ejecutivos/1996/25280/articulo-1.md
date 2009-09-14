@@ -1,6 +1,8 @@
+(Derogado)
 N° 25280-J
 EL PRESIDENTE DE LA REPUBLICA
-Y LA MINISTRA DE JUSTICIA Y GRACIA
+Y LA MINISTRA DE JUSTICIA Y PAZ(*)
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
 Con fundamento en lo establecido en el artículo 140 inciso 18 de la Constitución Política y el artículo 32 de la Ley de Asociaciones y su Reglamento.
 Considerando:
 1°—Que la Ley de Asociaciones número 218 del 8 de agosto de 1939 y sus reformas en el artículo 32, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas y confederadas cuyo desarrollo y actividades sean particularmente útiles a los intereses del Estado y llenen una necesidad social.
