@@ -1,0 +1,5 @@
+Artículo 6º—Venta directa. El Banco podrá vender el bien en forma directa, siempre y cuando así se solicite antes de que se ordene la primera publicación de la venta, al ex propietario o poseedor de acuerdo con lo siguiente:
+a) Venta al expropietario no deudor o codeudor. Esta venta podrá efectuarse conforme a las modalidades de venta establecidas en el artículo 21 de este reglamento y deberá efectuarse por el monto del avalúo.
+b) Venta al poseedor del bien cuya naturaleza sea casa de habitación, entendiéndose por poseedor, quien tenga con respecto al expropietario, el siguiente vínculo: cónyuge, excónyuge, compañero(a) en unión libre, cualquier persona con la cual haya procreado un hijo debidamente reconocido, hijos o padres, en el mismo orden de prelación en que se indican, para lo cual deben aportar pruebas a satisfacción del Banco que demuestren su condición de poseedores.
+En lo demás esta venta se rige por lo indicado en el inciso anterior.
+c) Venta al expropietario exdeudor: En este caso solo procederá la venta del bien de estricto contado o de contado. En lo demás, esta venta se rige por lo indicado en el inciso a) anterior.

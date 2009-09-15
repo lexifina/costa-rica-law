@@ -1,0 +1,2 @@
+Artículo 10.—Prelación. Las personas incluidas en el artículo 6 tendrán prelación para adquirir los bienes sobre el Banco Popular, y éste sobre las entidades contempladas en el artículo 9. El expropietarios tendrá prelación sobre el poseedor y este último sobre el expropietario deudor. En el caso de que existan distintos oferentes con el mismo nivel de prioridad, la suerte decidirá.
+El plazo para ejercer la prelación vence el día en que se ordena la publicación de la venta.

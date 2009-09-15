@@ -1,0 +1,1 @@
+Artículo 3º—Actividad ordinaria. La venta de los bienes considerados en el artículo anterior es actividad ordinaria del Banco y está sujeta a las limitaciones indicadas en los artículos 1068 del Código Civil y 22 de la Ley de Contratación Administrativa.

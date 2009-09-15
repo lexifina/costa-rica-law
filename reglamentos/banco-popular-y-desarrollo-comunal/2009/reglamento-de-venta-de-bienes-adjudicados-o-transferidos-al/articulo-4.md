@@ -1,0 +1,1 @@
+Artículo 4º—Registro individualizado. El Coordinador del Subproceso Administración de Bienes Adjudicados, así como el Gerente de la Sucursal o Centro de Servicio Financiero según corresponda, deberá llevar un registro individualizado de cada bien, el cual contendrá la documentación que se detalle en las normas de operación.
