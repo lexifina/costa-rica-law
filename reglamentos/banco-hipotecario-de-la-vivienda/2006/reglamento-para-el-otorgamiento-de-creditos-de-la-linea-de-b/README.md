@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de créditos de la Línea de Bienestar Familiar 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-15 | la propia norma |
+| 2 | 2009-09-16 | Reglamento 68 (2009-09-16) |

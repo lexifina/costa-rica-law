@@ -1,5 +1,6 @@
 Artículo 4º—Condiciones de los créditos: Los créditos hipotecarios de la Línea de Crédito de Bienestar Familiar, deberán ser otorgados por cada mutual bajo los siguientes parámetros y condiciones:
-a) Plazo: Máximo de quince años.
+a) Plazo: Máximo de treinta años.
+(Así reformado el inciso anterior mediante sesión N° 68 del 16 de setiembre de 2009)
 b) Tasa de interés: la que fije cada mutual.
 c) Forma de pago: la que determine cada mutual sin que pueda ser en tractos superiores a un trimestre.
 d) Plan de inversión: adquisición de bienes y servicios complementarios a la vivienda para las personas físicas que ya cuenten con inmuebles, o para financiar actividades generadoras de ingresos para la familia.

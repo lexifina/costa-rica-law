@@ -1,5 +1,6 @@
 Artículo 7º—Otras condiciones de los créditos: Los créditos hipotecarios deberán ser otorgados bajo los siguientes parámetros y condiciones:
-a) Plazo: Máximo de quince años.
+a) Plazo: Máximo de treinta años.
+(Así reformado el inciso anterior mediante sesión N° 68 del 16 de setiembre de 2009)
 b) Tasa de interés: La tasa de interés y sus ajustes deben ser referenciados a la Tasa Libor a seis meses plazo para la moneda extranjera. Para otras unidades de desarrollo será la que fije cada mutual.
 c) Forma de pago: La que determine cada mutual sin que pueda ser en tractos superiores a un trimestre.
 d) Plan de inversión: Habitacional para construcción en lote propio, compra de lote, compra de lote y construcción, compra de vivienda existente, ampliación y mejoras y cancelación de hipotecas (con independencia de su origen) del mismo deudor debiendo quedar evidencia documental de la hipoteca cancelada. Dentro de estos últimos se podrán incluir créditos de la Línea de Bienestar Familiar y créditos de corto plazo para proyectos habitacionales.
