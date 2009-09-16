@@ -1,1 +1,0 @@
-Artículo 44.—Solo en casos muy calificados ajuicio del Director de Núcleo respectivo se justificarán las llegadas tardías y las salidas antes de la hora oficial; queda al cuidado del servidor presentar tal justificación a Administración y Planificación Institucional dentro del mes en que se dio tal situación.

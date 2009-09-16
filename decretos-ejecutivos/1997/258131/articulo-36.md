@@ -1,1 +1,0 @@
-Artículo 36.—El servidor que por dolo o complacencia, haga una marca ajena, incurrirá en falta grave, excepto si demuestra que lo hizo por error, o aquel a quien le marcaron informa del hecho a la oficina respectiva en la siguiente jornada de trabajo.

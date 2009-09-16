@@ -1,1 +1,0 @@
-Artículo 52.—Los servidores, previa autorización de la Dirección General podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa que les permita el desarrollo de sus aptitudes.

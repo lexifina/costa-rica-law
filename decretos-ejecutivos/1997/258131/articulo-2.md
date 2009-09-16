@@ -1,5 +1,0 @@
-Artículo 2.—Para todos los efectos legales que se deriven de este Reglamento, se entenderá por:
-a) El Patrono, la persona jurídica responsable de las consecuencias resultantes de las relaciones entre la Dirección General de Servicio Civil y sus servidores, siendo el Director General la autoridad máxima y quien agota la vía administrativa.
-b) El servidor, la persona física que presta sus servicios en forma material o intelectual o en ambos géneros a la Dirección General de Servicio Civil, por los cuales recibe una retribución o salario, en virtud de un acto válido y eficaz de investidura.
-c) El servidor destacado, aquel que siendo servidor de la Dirección General, presta sus servicios en otras instituciones Públicas o aquellos homólogos que se reciben de las mismas por determinado período de tiempo.
-d) Oficinas de Servicio Civil, las oficinas que la Dirección General tiene ubicadas en diferentes dependencias con el fin de prestar los servicios de modo directo, oportuno y eficiente a los usuarios del sistema. Dependen jerárquicamente del Área de Gestión. "'"

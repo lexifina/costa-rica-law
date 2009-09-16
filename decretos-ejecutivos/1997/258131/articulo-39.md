@@ -1,1 +1,0 @@
-Artículo 39.—La llegada tardía injustificada superior a quince minutos, implicará la pérdida de media jornada, con la deducción salarial correspondiente, sin perjuicio de la sanción disciplinaria que la misma pueda acarrear.

@@ -1,1 +1,0 @@
-Artículo 27.—Los servidores regulares o interinos de la Dirección General disfrutarán de licencia con goce de salario por una semana por motivo de matrimonio del servidor, o por fallecimiento de sus padres, hermanos, hijos, cónyuge o compañero.

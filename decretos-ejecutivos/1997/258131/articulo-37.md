@@ -1,1 +1,0 @@
-Artículo 37.—La entrada y salida del tiempo destinado al almuerzo quedará bajo el control de cada director de núcleo y cuando en ese período no se exija la marca en el reloj, para tales efectos dichos directores establecerán los mecanismos necesarios de manera que no se ocasione menoscabo en la prestación del servicio.

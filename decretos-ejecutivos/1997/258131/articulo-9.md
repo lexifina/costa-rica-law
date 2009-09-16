@@ -1,1 +1,0 @@
-Artículo 9.—La Dirección General podrán modificar los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo justifiquen y no se perjudique el servicio público ni a los servidores.

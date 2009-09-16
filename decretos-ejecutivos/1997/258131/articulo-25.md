@@ -1,1 +1,0 @@
-Artículo 25.—Para realizar los ascensos, la Dirección General acordará los movimientos con la participación de Administración y Planificación Institucional y del director de la unidad correspondiente, previo concurso interno si así lo amerita.

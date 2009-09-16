@@ -1,1 +1,0 @@
-Artículo 30.—La concesión de licencias para estudios, podrá ser denegada cuando así lo justifiquen las necesidades del servicio, sin responsabilidad para la Dirección General y sin que por ello se puedan alegar derechos adquiridos por concesiones similares anteriores.

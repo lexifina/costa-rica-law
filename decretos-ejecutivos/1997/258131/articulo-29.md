@@ -1,1 +1,0 @@
-Artículo 29.—En caso de que al servidor que disfruta de una licencia de estudios en la forma regulada y reprobare una o más materias de las comprendidas en el contrato, deberá reintegrarle al Estado, los salarios percibidos durante el tiempo en que se le otorgó la licencia para estudios. El trámite al efecto, lo realizará Administración y Planificación Institucional. .
