@@ -1,1 +1,0 @@
-Artículo 3°—En el momento en que el margen de seguridad de un producto llegue a ser inaceptable, o si el uso del producto comporta más riesgos que beneficios, el Ministerio de Salud podrá reformar el presente decreto ejecutivo condicionando, eliminando de la lista o restringiendo el uso del producto.

@@ -1,1 +1,0 @@
-Artículo 2°—En caso en que así lo considere necesario el Consejo Técnico de Inscripciones, se podrá restringir el tamaño o número de unidades o el volumen o tamaño de los empaques; podrá asimismo solicitarse leyendas u otras instrucciones de uso en el etiquetado que aseguren el uso seguro y efectivo del producto.
