@@ -1,0 +1,5 @@
+Artículo 15.—Cuando el colegiado adquiera un grado superior al que tiene registrado en el Colegio, podrá solicitar el cambio del registro de su grado y título académico, para lo cual deberá cumplir con lo siguiente:
+1. Presentar carta dirigida a la Junta Directiva del Colegio solicitando el cambio.
+2. Presentar original y fotocopia de su nuevo título.
+3. Cancelar el monto de los derechos correspondientes para la realización de este trámite.
+Cuando el área de estudios del nuevo grado o posgrado, no se encuentre claramente descrita en el Artículo 11 del Reglamento de la Ley Orgánica del Colegio de Profesionales en Ciencias Económicas, la Comisión de Admisión deberá comprobar que el solicitante haya recibido para la obtención del nuevo grado o posgrado al menos un 70% de los créditos en materias propias de las Ciencias Económicas. Para realizar dicho análisis el solicitante deberá presentar, además de los requisitos anteriores, certificación de materias aprobadas y la descripción de cada uno de los cursos llevados en el nuevo grado o posgrado.

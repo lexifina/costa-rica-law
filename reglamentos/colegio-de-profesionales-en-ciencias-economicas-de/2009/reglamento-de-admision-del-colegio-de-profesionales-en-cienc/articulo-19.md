@@ -1,0 +1,1 @@
+Artículo 19.—En su recomendación, la Comisión de Admisión debe especificar para cada caso aprobado el grado o nivel académico y el área de acción profesional en que queda registrado el nuevo miembro para ejercer la profesión.

@@ -1,0 +1,1 @@
+Artículo 8º—Las recomendaciones de la Comisión de Admisión serán tomadas por consenso. En caso de no existir consenso, se trasladará a Junta Directiva los diferentes criterios, debidamente motivados, para que sea dicho órgano quien tome la decisión pertinente.

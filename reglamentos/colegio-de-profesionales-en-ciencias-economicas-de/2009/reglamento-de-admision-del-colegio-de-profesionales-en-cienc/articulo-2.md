@@ -1,0 +1,2 @@
+Artículo 2º—Corresponde a la Junta Directiva del Colegio, conocer, aprobar o improbar las solicitudes de incorporación.
+Las ceremonias de incorporación se realizarán en el marco de una sesión ordinaria de la Junta Directiva en las fechas establecidas por acuerdo en firme. Igualmente, mediante acuerdo firme de Junta Directiva podrán realizarse ceremonias de incorporación extraordinarias para aquellos casos de excepción valorados por la Junta Directiva, con base en un dictamen de la Comisión de Admisión.

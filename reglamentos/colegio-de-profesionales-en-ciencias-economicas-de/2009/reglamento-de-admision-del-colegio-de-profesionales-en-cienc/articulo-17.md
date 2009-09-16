@@ -1,0 +1,1 @@
+Artículo 17.—En las sesiones de la Comisión de Admisión se estudiarán solamente las solicitudes cuyos expedientes hayan sido remitidos en forma completa, ordenados, con folios numerados y clasificados en una lista por la Administración del Colegio, con la antelación debida mediante oficio dirigido al Coordinador(a) de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 20.—La Comisión presentará a la Junta Directiva las recomendaciones a las que se refiere el artículo anterior, indicando en cada caso las razones en que fundamenta la respectiva recomendación.

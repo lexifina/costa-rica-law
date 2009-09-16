@@ -1,0 +1,3 @@
+Artículo 25.—La Junta Directiva del Colegio conocerá de las propuestas que realicen sus miembros para la designación de miembros honorarios. De previo a pronunciarse sobre tales propuestas, la Junta Directiva conformará una Sub Comisión, la cual, con vista del estudio y análisis de los atestados correspondientes, hará la recomendación que proceda, tomando en cuenta la trayectoria y méritos del candidato.
+Una vez recibida la recomendación que contempla esta norma, y si la misma fuera favorable a la declaración de miembro honorario, la Junta Directiva elevará la propuesta a la Asamblea General del Colegio, para que este órgano tome la decisión final.
+Aprobado por Asamblea General del Colegio de Profesionales en Ciencias Económicas número 77-2009 del 20 de junio del 2009.
