@@ -27,3 +27,4 @@ Reglamento de Construcciones
 | 12 | 2005-03-02 | Decreto Ejecutivo 32303 (2005-03-02) |
 | 13 | 2005-10-24 | Reglamento 5508 (2005-10-24) |
 | 14 | 2009-05-27 | SINALEVI (sin norma nombrada) |
+| 15 | 2009-09-16 | Reglamento 5764 (2009-09-16) |

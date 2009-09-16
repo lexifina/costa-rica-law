@@ -66,24 +66,15 @@ Artículo XI. 24.—Circulaciones en edificios deportivos. Las graderías para e
 Cada diez filas habrá pasillos paralelos a las gradas con anchura mínima igual a la suma de las anchuras de las escaleras que desemboquen a ellos, entre dos puertas o salidas contiguas.
 Las puertas y salidas deberán construirse de acuerdo con las normas especificadas para los sitios de reunión pública.
 Artículo XI. 25.—Enfermería en edificios deportivos. Los edificios para espectáculos deportivos deberán contar con un local adecuado para enfermería.
-Artículo XI.26.—Retiros. Los edificios destinados a reunión pública cualquiera que sea su tipo, guardarán los siguientes retiros según su capacidad:
-XI26.1 Anulado.
-(Anulado este aparte mediante resolución de la Sala Constitucional N° 8908 del 27 de mayo del 2009, misma que ordena al Instituto Nacional de Vivienda y Urbanismo, a proceder, dentro del plazo improrrogable de un mes a partir de la publicación de esta resolución, a realizar la modificación correspondiente a dicho artículo, a efecto de que los retiros exigidos a los edificios de hasta doscientos cincuenta personas, sean respetuosos del principio de razonabilidad y del derecho a la vida.)
-XI26.2 Edificios con capacidad entre las 251 y 500 personas:
-Retiro frontal: seis metros (6 m).
-XI26.3 Edificios con capacidad entre las 501 y 750 personas:
-Retiro frontal: seis metros (6 m).
-Retiro lateral: tres metros (3 m) por uno de sus laterales.
-XI26.4 Edificios con capacidad superior a las 751 personas:
-Retiro frontal: seis metros (6 m).
-Retiros laterales: tres metros (3 m) en ambas laterales.
-Retiro posterior: tres metros (3 m).
-XI.26.5 En los lotes con dos o más frentes al menos uno deberá guardar el retiro frontal de seis metros (6 m), los otros deberán guardar un retiro mínimo de tres metros (3 m).
-Artículo XI.27.—Frente mínimo. Los edificios destinados a reunión pública cualquiera que sea su tipo, deberán ubicarse en lotes con un frente mínimo a la vía pública de:
-XI27.1 Seis metros (6 m) para edificios con capacidad hasta las 250 personas.
-XI27.2 Diez metros (10 m) para edificios con capacidad entre las 251 y 500 personas.
-XI27.3 Trece metros (13 m) para edificios con capacidad entre las 501 y las 750 personas.
-XI.27.4 Dieciséis metros (16 m) para edificios con capacidad superior a las 751 personas.
-XI.27.5 Lotes irregulares: serán aceptables lotes de forma irregular con un callejón de acceso que cuente con un frente mínimo a la vía pública de ocho metros (8 m) y una longitud máxima de cincuenta metros (50 m), el área de este callejón no será apta para construcción, ya que su destino será exclusivamente para acceso, estacionamiento y áreas verdes, destinándose el resto del lote para la construcción o construcciones, las cuales deberán cumplir con los retiros anteriores según sea su capacidad.
-XI.27.6 Usos: el uso del local para culto será considerado como condicional en las zonas residenciales, excepto cuando enfrenten a vías nacionales administradas por el MOPT.
-(Así adicionado reformado mediante sesión ordinaria N°5508, celebrada el 24 de octubre de 2005).
+(*) Artículo XI.26.—Retiros. Los edificios destinados a reunión pública cualquiera que sea su tipo, guardarán los siguientes retiros según su capacidad:
+XI.26.1 Edificios con capacidad hasta las 500 personas: Retiro frontal: seis metros (6,00 m) Retiro lateral. Tres metros (3,00 m) por uno de sus lados.
+XI.26.2 Edificios con capacidad entre las 501 y 750 personas: Retiro frontal: seis metros (6,00 m) Retiro lateral: Tres metros (3,00m) por ambos lados.
+XI.26.3 Edificios con capacidad superior a las 751 personas: Retiro frontal: seis metros (6,00 m) Retiro lateral: Tres metros (3,00m) por ambos lados. Retiro posterior: tres metros (3,00 m).
+(*) (Así reformado en sesión N° 5764 del 16 de setiembre de 2009. Anteriormente el aparte XI.26.1 había sido anulado mediante resolución de la Sala Constitucional N° 8908 del 27 de mayo del 2009, misma que ordena al Instituto Nacional de Vivienda y Urbanismo, a proceder, dentro del plazo improrrogable de un mes a partir de la publicación de esta resolución, a realizar la modificación correspondiente a dicho artículo, a efecto de que los retiros exigidos a los edificios de hasta doscientos cincuenta personas, sean respetuosos del principio de razonabilidad y del derecho a la vida.)
+(*) Artículo XI.27.—Frente Mínimo. Los edificios destinados a reunión pública cualquiera que sea su tipo, deberán ubicarse en lotes con un frente mínimo a la vía pública de:
+XI.27.1 Nueve metros (9,00 m) para edificios con capacidad hasta las 500 personas.
+XI.27.2 Doce metros (12,00 m) para edificios con capacidad entre las 501 y 750 personas.
+XI.27.3 Dieciséis metros (16,00 m) para edificios con capacidad superior a las 751 personas.
+XI.27.4 Lotes irregulares: serán aceptables lotes de forma irregular con un callejón de acceso que cuente con un frente mínimo a la vía pública de ocho metros (8,00 m) y una longitud máxima de cincuenta metros (50,00 m), sobre el área de este callejón no se podrá construir, ya que su destino será exclusivamente para acceso, estacionamiento y áreas verdes, destinándose el resto del lote para la construcción o construcciones, las cuales deberán cumplir con los retiros anteriores según sea su capacidad estimada.
+XI.27.5 Usos: El uso los sitios para reunión pública serán considerados como condicionales en las zonas residenciales, excepto cuando enfrenten a vías nacionales administradas por el MOPT.
+(*) (Así reformado en sesión N° 5764 del 16 de setiembre de 2009)
