@@ -1,1 +1,0 @@
-Artículo 2°—Se derogan los Decretos Ejecutivos Nos. 20573-P de 10 de julio de 1991, 21479-PM de 4 de agosto de 1992, 22059-MP de 15 de marzo de 1993, 23180-MP de 25 de abril de 1994, 23916-MP de 28 de noviembre de 1994, 24226-MP de 21 de abril de 1995, 24227-MP de 21 de abril de 1995 y 24464-MP de 23 de junio de 1995.
