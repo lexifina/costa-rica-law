@@ -15,4 +15,5 @@ Creación del Centro Nacional de Recursos
 para la Educación Inclusiva
 CAPÍTULO I
 Generalidades
-Artículo 1º— Crease el Centro Nacional de Recursos para la Educación Inclusiva (CENAREC), como un órgano de desconcentración mínima con personalidad jurídica instrumental, adscrito al Ministerio de Educación Pública y cuya sede principal se ubicará en terrenos del Centro Nacional de Educación Especial Fernando Centeno Güell.
+Artículo 1º—Anulado.
+(Anulado este artículo mediante resolución de la Sala Constitucional N° 14391 del 16 de setiembre de 2009.)

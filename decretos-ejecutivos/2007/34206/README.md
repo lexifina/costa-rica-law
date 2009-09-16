@@ -14,3 +14,4 @@ Creación del Centro Nacional de Recursos para la Educación Inclusiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-11 | la propia norma |
+| 2 | 2009-09-16 | SINALEVI (sin norma nombrada) |
