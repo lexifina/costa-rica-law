@@ -13,3 +13,4 @@ DGTD: Declaración Trimestral Resumen de Impresión de Facturas y Otros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-05 | la propia norma |
+| 2 | 2009-09-17 | Resolución 13 (2009-09-17) |
