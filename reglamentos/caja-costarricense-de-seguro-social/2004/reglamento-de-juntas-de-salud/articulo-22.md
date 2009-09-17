@@ -1,3 +1,5 @@
-Artículo 22.—De la inscripción y registro de electores. Los
-representantes de patronos y organizaciones que deseen participar como electores, deberán inscribirse con antelación en el período indicado y cumpliendo con los requisitos establecidos al efecto. De dicha inscripción el Comité Electoral elaborará un registro de electores de organizaciones y patronos.
-En el caso de los asegurados, la inscripción se realiza el día de las elecciones, con aquellas personas que se presenten a emitir el voto, cumpliendo con todos los requisitos indicados en este Reglamento.
+Artículo 22.—De la Inscripción y Registro de Electores. Los representantes de patronos y asociaciones y organizaciones pro salud que deseen participar como electores, deberán inscribirse con antelación en el período indicado y cumplir con los requisitos establecidos al efecto. De dicha inscripción el Comité Electoral elaborará un registro de electores de organizaciones y patronos.
+En el caso de los asegurados, la inscripción se realiza el día de las elecciones, con aquellas personas que se presenten a emitir el voto y cumplan con todos los requisitos indicados en este Reglamento.
+En aquellos casos en que se habilite, por parte de la dirección médica, mesas de votación no sólo en la sede de área sino en los EBAIS, para fomentar la participación de los tres sectores, los electores podrán inscribirse en ellas.
+Corresponderá al Comité de Elección realizar el respectivo consolidado de electores según corresponda, a utilizar el día de las elecciones.
+(Así reformado en sesión N° 8381 del 17 de setiembre de 2009)

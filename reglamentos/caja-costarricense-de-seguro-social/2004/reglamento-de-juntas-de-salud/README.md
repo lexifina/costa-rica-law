@@ -15,3 +15,4 @@ Reglamento de Juntas de Salud
 | --- | --- | --- |
 | 1 | 2004-01-30 | la propia norma |
 | 2 | 2006-01-05 | Reglamento 8021 (2006-01-05) |
+| 3 | 2009-09-17 | Reglamento 8381 (2009-09-17) |

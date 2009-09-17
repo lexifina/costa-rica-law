@@ -1,0 +1,2 @@
+Artículo 20 bis.—Veracidad de documentación aportada. La falsedad o alteración comprobada de datos en los documentos establecidos en los requisitos implicará la anulación de la candidatura o de los electores inscritos a quienes corresponda la información falsa o alterada. En caso de que se compruebe la falta en el transcurso del ejercicio de las funciones, la infracción constituirá causa de destitución de la persona elegida mediante ese fraude.
+(Así adicionado en sesión N° 8381 del 17 de setiembre de 2009)
