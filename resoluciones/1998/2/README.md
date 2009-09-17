@@ -13,3 +13,4 @@ DGTD: Uso Formulario D.160 y Hoja Detalle en Registro de Imprentas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-17 | la propia norma |
+| 2 | 2009-09-17 | Resolución 13 (2009-09-17) |
