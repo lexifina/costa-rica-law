@@ -1,4 +1,6 @@
+(Derogado)
 HACIENDA
+(Derogada por el artículo N° 15 de la resolución N° 13 del 17 de setiembre de 2009 "Uso Obligatorio de los Servicios Electrónicos de Tributación Digital en lo que respecta al suministro de información de trascendencia tributaria")
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
 No 47.—San José, a las ocho horas del día catorce de noviembre del dos mil uno.
 Considerando:

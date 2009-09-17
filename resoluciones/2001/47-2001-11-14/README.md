@@ -14,3 +14,4 @@ Establece el modelo de formulario D.152, Declaración anual resumen de retencion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-26 | la propia norma |
+| 2 | 2009-09-17 | Resolución 13 (2009-09-17) |
