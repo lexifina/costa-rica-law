@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE LA TRIBUTACIÓN DIRECTA
+(Derogada por el artículo N° 15 de la resolución N° 13 del 17 de setiembre de 2009 "Uso Obligatorio de los Servicios Electrónicos de Tributación Digital en lo que respecta al suministro de información de trascendencia tributaria")
 N° 8-97.-Dirección General de la Tributación Directa , a las ocho horas del día veintitrés de julio de mil novecientos noventa y siete.
 Considerando
 1°-Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria para dictar normas generales tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
