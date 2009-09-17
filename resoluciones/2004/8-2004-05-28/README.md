@@ -14,3 +14,4 @@ Obligación de las subastas agropecuarias a suministrar información de comprado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-13 | la propia norma |
+| 2 | 2009-09-17 | Resolución 13 (2009-09-17) |
