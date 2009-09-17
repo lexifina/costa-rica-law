@@ -14,3 +14,4 @@ Regulación de las nuevas categorías de manejo para las Áreas Marinas Protegid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-20 | la propia norma |
+| 2 | 2009-09-17 | Decreto Ejecutivo 35666 (2009-09-17) |
