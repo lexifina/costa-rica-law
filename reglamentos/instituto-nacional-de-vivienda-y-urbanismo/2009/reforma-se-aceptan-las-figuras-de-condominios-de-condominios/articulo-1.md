@@ -1,0 +1,15 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, en sesión ordinaria Nº 5758, artículo IV, inciso 1), celebrada el 19 de agosto del 2009, por unanimidad.
+ACUERDA:
+Modificar el acuerdo de la sesión ordinaria Nº 5677, artículo II, inciso 3), del 13 de marzo de 2009, en donde se modificó el Reglamento a la Ley Reguladora de la Propiedad en Condominio, que fue publicado en La Gaceta Nº 78 del 23 de abril de 2009, para que se lea de la siguiente manera:
+a) Por unanimidad se acuerda: Aceptar la Figura de Condominios de Condominios, donde el condominio madre puede estar compuesto, tanto por fincas filiales primarias individualizadas, como por fincas filiales matrices. Las fincas filiales matrices corresponden al contorno aproximado de la edificación que pasará a ser a su vez un subcondominio, este contorno debe comprender totalmente la edificación y puede añadir áreas alrededor del mismo.
+En el tanto el Plan Regulador sea omiso o poco preciso, la cobertura y densidad poblacional, debe determinarse sobre la totalidad de la finca matriz.
+b) Por unanimidad se acuerda: Aceptar la figura de Condominios Mixtos los cuales estarán compuestos tanto por fincas filiales primarias individualizadas como por fincas filiales construidas.
+c) Por unanimidad se acuerda: Se aceptarán Proyectos de Condominios en una finca filial de un condominio madre, sea con la presentación de su respectivo plano de catastro, o en su defecto, con la lámina del diseño de sitio aprobada por el INVU del condominio madre que le da origen.
+En el caso anteproyectos se requerirá el anteproyecto del condominio madre aprobado por el INVU. Esto solo para una generación, en caso de una tercera generación, se deberá presentar los planos constructivos aprobados por el INVU del condominio de la primera generación.
+En el caso de proyectos o planos constructivos, se requerirá el diseño de sitio de los planos constructivos del condominio madre aprobado por el INVU.
+d) Por unanimidad se acuerda: Modificar el inciso III.2.6.8.4, para que se lea de la siguiente manera:
+“La pendiente máxima de las vías será del siguiente orden: Para calles primarias y especiales un 17% en tramos menores a ciento cincuenta metros se podrán tener pendientes hasta de un 21%, para calles secundarias, terciarias y de uso restringido un 20% y en tramos no mayores a ciento cincuenta metros (150 m) se podrán tener pendientes hasta de un 22%”.
+Por unanimidad se acuerda: Permitir que en condominios con campos de golf que tienen fincas filiales referidas con uso específico de golf, que en estas fincas filiales se permita el paso de tuberías de servicios públicos sin tener que definir servidumbre en el condominio madre que dividen estas fincas en dos. Acuerdo firme.
+Rige a partir de su publicación.
+San José, 2 de setiembre de 2009.—
