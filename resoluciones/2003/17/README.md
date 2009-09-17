@@ -14,3 +14,4 @@ Establece el modelo de formulario D-153, "Declaración Mensual Resumen de Retenc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-07 | la propia norma |
+| 2 | 2009-09-17 | Resolución 13 (2009-09-17) |

@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Derogada por el artículo N° 15 de la resolución N° 13 del 17 de setiembre de 2009 "Uso Obligatorio de los Servicios Electrónicos de Tributación Digital en lo que respecta al suministro de información de trascendencia tributaria")
 N° DGT-17—Dirección General de Tributación.—San José, a las doce horas del treinta de junio del dos mi! tres-
 Considerando:
 1°—Que el articulo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales tendientes a lograr la correcta aplicación de las leyes tributarias, dentro de los limites que fijen las disposiciones legales y reglamentarias pertinentes.
