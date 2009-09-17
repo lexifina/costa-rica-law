@@ -8,6 +8,7 @@ f) Cuando el conductor esté físicamente incapacitado para conducir o cuando co
 g) Cuando las condiciones mecánicas del vehículo le impidan circular, salvo que el conductor o el propietario de este contrate los servicios privados de acarreo, en forma inmediata.
 h) Cuando el conductor incurra en la conducta sancionada por el inciso i) del artículo 131 de la presente Ley.
 i) Cuando el conductor incurra en la conducta sancionada en el inciso f) del artículo 130, por violación a lo dispuesto en el artículo 102 de la presente Ley.
-j) Cuando el conductor incurra en la conducta sancionada en el inciso f) del artículo 133, por violación a lo dispuesto en el artículo 101 de la presente Ley.
+j) Cuando el conductor incurra en la conducta sancionada en el inciso e) del artículo 133 de esta Ley, por violación a lo dispuesto en el artículo 101 de la presente Ley.
+(Así reformado el inciso anterior por el artículo 1°, punto 19) de la ley N° 8779 del 17 de setiembre de 2009)
 (Así reformado este artículo por el inciso r) del artículo 1° de la ley N° 8696 de 17 de diciembre de 2008).
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 140 al 141)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 140 al 141).
