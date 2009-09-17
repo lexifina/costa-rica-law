@@ -1,0 +1,1 @@
+Artículo 18.—Formalización del arreglo de pago. Se realizará ante la sección de cobros de la municipalidad, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicha sección para tales efectos, siempre y cuando la persona sujeta pasiva haya cumplido con los requisitos que esta sección exija para tal gestión.

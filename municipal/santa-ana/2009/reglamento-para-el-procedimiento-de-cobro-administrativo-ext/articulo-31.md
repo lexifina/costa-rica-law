@@ -1,0 +1,1 @@
+Artículo 31.—Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado la persona directora del proceso, el cual lo hará constar mediante nota dirigida a la Sección de Cobros de la Municipalidad.
