@@ -14,3 +14,4 @@ Obligación de utilizar los formularios autorizados por la Administración Tribu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-13 | la propia norma |
+| 2 | 2009-09-17 | Resolución 13 (2009-09-17) |
