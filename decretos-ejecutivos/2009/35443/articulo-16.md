@@ -1,0 +1,1 @@
+Artículo 16.—Cuando la Asociación necesite ubicar o distribuir animales en un lugar ya asignado, deberá existir un acuerdo entre la Asociación y el expositor para el aprovechamiento de los espacios. En caso de que un expositor participe con más de una raza, ubicará todos sus animales con la raza en la que presente más animales.

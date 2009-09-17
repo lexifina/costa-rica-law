@@ -1,0 +1,1 @@
+Artículo 25.—Solo podrán estar en la pista de juzgamiento: los Jueces, los Fiscales, los miembros del Comité Organizador y los Manejadores. El Comité Organizador será el encargado del cumplimiento de dicha disposición y será vigilado su cumplimiento por los Fiscales.

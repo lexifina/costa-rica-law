@@ -1,0 +1,1 @@
+Artículo 10.—Dentro de los quince días naturales a la finalización del evento, el Fiscal General nombrado para cada Feria o Exposición, deberá entregar a la Comisión un informe de lo acontecido en la actividad, adjuntando además según sea el caso el informe de los Fiscales de Raza.

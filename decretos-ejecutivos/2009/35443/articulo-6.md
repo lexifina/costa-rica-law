@@ -1,0 +1,1 @@
+Artículo 6º—Toda feria o exposición debe tener instalaciones en buenas condiciones y aptas para albergar a los animales, para el uso de los expositores, empleados y público en general; debe contar con baños, servicios sanitarios en buen estado de funcionamiento, facilidades para alimentación y descanso del personal participante.

@@ -1,0 +1,1 @@
+Artículo 28.—La declaratoria oficial para los premios de campeones y reservas, mejor criador y expositor, la hará el Comité Organizador, en base en los resultados suministrados por la mesa de puntuación de la Asociación respectiva, contando con la autorización previa del Fiscal de Raza.

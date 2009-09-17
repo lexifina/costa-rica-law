@@ -1,0 +1,1 @@
+Artículo 17.—Cuando la cantidad de animales inscritos sea mayor que el espacio disponible, el Comité Organizador en conjunto con las asociaciones, deberá reducir el cupo de animales por expositor proporcionalmente, lo cual deberá ser comunicado por escrito a los expositores en un plazo de siete días naturales antes de la fecha de ingreso de los animales.

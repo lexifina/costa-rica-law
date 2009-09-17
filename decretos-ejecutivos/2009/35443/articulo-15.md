@@ -1,0 +1,1 @@
+Artículo 15.—En el caso de las exposiciones, la ubicación de las razas dentro del campo será asignada por el Comité Organizador. Una vez establecida ésta, los espacios para los animales de cada expositor inscrito, será fijada mediante una rifa en la sede de la Asociación respectiva, siete días naturales antes de la fecha de ingreso de los animales.

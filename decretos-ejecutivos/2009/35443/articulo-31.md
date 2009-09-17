@@ -1,0 +1,1 @@
+Artículo 31.—Los incumplimientos de los deberes del Fiscal General en los eventos en que ha sido designado, conllevará únicamente sanción de inhabilitación por un año de dicha función y la misma será impuesta por la CNEZ, luego de haber aplicado un debido proceso y garantizado el derecho de defensa.
