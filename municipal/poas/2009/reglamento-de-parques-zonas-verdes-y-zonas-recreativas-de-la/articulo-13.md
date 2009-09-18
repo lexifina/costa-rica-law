@@ -1,0 +1,1 @@
+Artículo 13.—Queda totalmente prohibida la venta, distribución, tenencia o consumo de cualquier tipo de drogas y licor, o sustancias de uso no autorizado, dentro del parque, o en cualquier otra instalación comunal, recreativa, deportiva perteneciente a esta Municipalidad.
