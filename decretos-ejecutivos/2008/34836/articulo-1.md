@@ -1,4 +1,5 @@
 Nº 34836-MEIC
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 36339 del 29 de noviembre de 2010 “Suspende por un plazo de seis meses la implementación del decreto N° 34836 "RTCR 415: 2008. Información Comercial-Etiquetado de productos textiles, prendas de vestir y sus accesorios", se suspende por un plazo de seis meses la implementación del presente decreto. Dicho plazo vence el 28 de julio del 2011)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
 En ejercicio de las facultades que les confieren los artículos 11, 140, incisos 3), 8), 18) y 20); 146, 148, 149, inciso 6) de la Constitución Política del 7 de noviembre de 1949; artículos 4º, 11, 25, 27, 98, 99, 100, 112, inciso 3), 113, inciso 1) de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y de conformidad con la Ley de Normas Industriales, Ley Nº 1698 del 26 de noviembre de 1953; Ley del Sistema Internacional de Unidades, Ley Nº 5292 de 9 de agosto de 1973, Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor; Ley Nº 7472 de 20 de diciembre de 1994; Ley de Aprobación del Tratado de Libre Comercio entre el Gobierno de Costa Rica y el Gobierno de los Estados Unidos Mexicanos, Ley Nº 7474 de 20 de diciembre de 1994; Ley de Aprobación del Acta Final en que se Incorporan los Resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, Ley Nº 7475 de 20 de diciembre de 1994; Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 de 7 de junio de 1977, y Ley del Sistema Nacional para la Calidad, Ley Nº 8279 de 2 de mayo de 2002.
@@ -13,7 +14,9 @@ Artículo 1º—Aprobar el siguiente reglamento técnico:
 RTCR 415: 2008. Información Comercial-Etiquetado de
 productos textiles, prendas de vestir y sus accesorios
 1. Objeto. El presente reglamento técnico establece los requisitos que deben cumplir la etiqueta en los textiles, ropa de casa y las prendas de vestir y accesorios, que se ofrecen al consumidor final.
-2. Campo de aplicación. La información a que se refiere el presente Reglamento Técnico debe incorporarse a los textiles, las prendas de vestir, ropa usada y ropa de casa elaborada con productos textiles aún cuando contengan otros materiales, que sean producidos o importados para ser comercializados en el territorio nacional.
+2. CAMPO DE APLICACIÓN
+La información a que se refiere el presente Reglamento Técnico debe incorporarse a los textiles, las prendas de vestir y ropa de casa elaborada con productos textiles aún cuando contengan otros materiales, que sean producidos o importados para ser comercializados en el territorio nacional. Este Reglamento Técnico no aplica para las prendas usadas.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 35609 de 18 de setiembre de 2009)
 3. Referencias. Este reglamento se complementa con el siguiente:
 Decreto Ejecutivo Nº 25989-MEIC, RTCR 235:1997. Productos textiles. Definiciones y requisitos, publicado en La Gaceta Nº 85 del 6 de mayo de 1997.
 4. Definiciones
@@ -33,7 +36,7 @@ Decreto Ejecutivo Nº 25989-MEIC, RTCR 235:1997. Productos textiles. Definicione
 4.12 producto textil: Para los fines de este reglamento técnico se consideran productos textiles a las prendas de vestir, ropa de casa y textiles.
 4.13 productos desechables: Son los artículos textiles que vayan a usarse una sola vez o durante un tiempo limitado y cuya utilización normal excluya cualquier reparación para el mismo uso o para un uso similar posterior.
 4.14 ropa de casa: Son los artículos elaborados con fibras naturales, sintéticas artificiales, o mezcla de las anteriores que tienen un uso distinto a las prendas de vestir, y que están diseñadas para cualquiera de las siguientes funciones: protección, adorno, o limpieza del hogar y establecimientos comerciales o de servicio, como son: cortinas, toallas, alfombras, mantas, cobertores, mencionados de manera enunciativa más no limitativa.
-4.15 ropa usada: Es aquel textil, prenda de vestir y ropa de casa, que ha sido usada con anterioridad.
+4.15 (Derogado por el artículo 2° del decreto ejecutivo N° 35609 de 18 de setiembre de 2009)
 4.16 secado: Es el proceso realizado sobre los productos textiles después del lavado para remover el exceso de agua (o humedad).
 4.17 talla: Palabra, número o letra que conforme con los usos del mercado, se utiliza para definir el tamaño de la prenda.
 4.18 textil: Es el producto final, elaborado con base en la utilización de fibras de origen natural, artificial o sintético, o la combinación de los anteriores.
@@ -89,7 +92,7 @@ b) Condiciones especiales si las hubiere.
 5.7.1 La leyenda “Hecho a mano” puede utilizarse únicamente cuando la prenda de vestir, textiles o ropa de casa haya sido confeccionado, elaborado o producido totalmente a mano.
 5.7.2 La indicación “a mano” debe ir acompañada de la descripción de aquella parte del proceso que se haya realizado a mano, por ejemplo, “cosida a mano”.
 5.8 Acabados. Cuando se utilice información sobre acabado de prendas de vestir, textiles y ropa de casa, ésta debe acompañarse en la etiqueta temporal o permanente, el nombre del proceso, por ejemplo: “Impermeabilizado, pre-encogido, mercerizado, retardante a fuego, mencionando de manera enunciativa más no limitativa.
-5.9 Ropa usada. La etiqueta de prenda de vestir, textil o ropa de casa usada deberá cumplir con los incisos 5.1.1, 5.1.2 o 5.1.3 según corresponda. Adicionalmente deberá indicarse la condición de producto usado, lo cual podrá realizarse mediante dos rótulos en español con letras no menores de 20.0 cm de alto ubicados en lugar visible al consumidor, o en su defecto cada producto deberá tener una colilla o una pegatina indicando esta situación en letras de no menos de 2.0 cm de alto.
+5.9 (Derogado por el artículo 2° del decreto ejecutivo N° 35609 de 18 de setiembre de 2009)
 6. Instrumentación del etiquetado
 6.1 Prendas de vestir y ropa de casa
 6.1.1 Prendas de vestir. Las prendas de vestir deben contener la información conforme se indica en la sección 5.1.1.
