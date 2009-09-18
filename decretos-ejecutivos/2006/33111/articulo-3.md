@@ -5,13 +5,13 @@ c) DIGEPYME: Dirección General de Apoyo de la Pequeña y Mediana Empresa.
 d) Incubadora de Empresas: Entidad que trata de proporcionar un ambiente en el cual pequeñas empresas, o bien aquellas en su fase de creación, obtienen facilidades que les permiten superar la difícil etapa embrionaria de un nuevo negocio.
 e) Ley Nº 8262: Ley de Fortalecimiento de las Pequeñas y Medianas Empresas.
 f) MIPYME: Para todos los efectos el término MIPYME estará contenido dentro de la definición de PYME.
-g) PYME: Unidad productiva de carácter permanente que dispone de recursos físicos estables y de recursos humanos; los maneja y opera, bajo la figura de persona física o persona jurídica, en actividades industriales, comerciales o de servicios.
+(*)g) PYME: Unidad productiva de carácter permanente que dispone de recursos físicos estables y de recursos humanos; los maneja y opera, bajo la figura de persona física o persona jurídica, en actividades industriales, comerciales o de servicios.
 La diferenciación entre micro, pequeña o mediana empresa se determinará a partir de los resultados de las siguientes fórmulas, para los sectores que se especifican:
 Para el Sector Industrial:
-P = ((0.6 x pe/100) + (0.3 x van/¢931.000.000) + (0.1 x afe/¢582.000.000)) x 100.
+P = ((0,6 x pe/100) + (0,3 x van/¢1.210.000.000) + (0,1 x afe/¢760.000.000)) x 100.
 Para los Sectores de Comercio y Servicios:
-P = [(0.6 x pe/30) + (0.3 x van/¢1.862.000.000) + (0.1 x ate/¢582.000.000)] x 100 .
-(Así reformadas las fórmulas anteriores mediante artículo 1° del decreto ejecutivo N° 33747 del 28 de marzo de 2007).
+P = [(0,6 x pe/30) + (0,3 x van/¢2.420.000.000) + (0,1 x ate/¢760.000.000)] x 100.
+(*)(Así reformado el inciso anterior por artículo 1° del decreto ejecutivo N° 35585 del 18 de setiembre de 2009).
 Donde:
 P: Puntaje obtenido por la empresa.
 pe: Personal promedio empleado por la empresa durante el último período fiscal.
