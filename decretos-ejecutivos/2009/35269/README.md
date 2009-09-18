@@ -14,3 +14,4 @@ Reglamento para el control sobre el uso y mantenimiento de los vehículos oficia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-24 | la propia norma |
+| 2 | 2009-09-18 | Decreto Ejecutivo 35551 (2009-09-18) |
