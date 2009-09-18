@@ -1,0 +1,1 @@
+Artículo 6º—Créase el Comité de Manejo Compartido del Refugio Nacional de Vida Silvestre Mixto Conchal, con el objeto de propiciar el manejo integral y sostenible de los recursos naturales en dicha área silvestre y la participación conjunta de la parte privada y estatal.

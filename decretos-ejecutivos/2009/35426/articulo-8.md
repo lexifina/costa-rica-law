@@ -1,0 +1,1 @@
+Artículo 8º—El Comité reglamentará su funcionamiento operativo, para la implementación del objetivo de creación y los resultados derivados del manejo de las áreas, dentro del plazo de seis meses posteriores a la publicación del presente decreto.

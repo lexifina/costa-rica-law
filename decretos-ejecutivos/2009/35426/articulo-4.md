@@ -1,0 +1,1 @@
+Artículo 4º—El inmueble de Reserva Conchal Sociedad Anónima estará sometido a la categoría de Refugio Nacional de Vida Silvestre, categoría Mixto durante un período de diez años. En caso de prorrogar el plazo de afectación, el propietario deberá solicitarlo por escrito al Área de Conservación Tempisque con tres meses de antelación a la finalización de dicho período.
