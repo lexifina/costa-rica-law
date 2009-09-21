@@ -1,0 +1,1 @@
+Artículo 3º—En lo no expresamente modificado se mantiene incólume el Decreto Ejecutivo Nº 35355-MEP, Reglamento de Evaluación de los Aprendizajes, publicado en La Gaceta Nº 135 del 14 de julio del 2009.
