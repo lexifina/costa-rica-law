@@ -8,7 +8,8 @@ Transferencia de fondos a terceros:
 4.2.2Módulo de Negocios $2.00 fijo mensual **
 ** Con derecho a 10 consultas de cheques mensuales sin costo.
 Cada consulta adicional $0.25.
-4.3.-Saldo impreso en el módulo de Banca Comercial $0.20 por hoja.
+4.3.- Reemplazo de clave dinámica física por perdida o robo. $ 3,00
+(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 4.4.-Teleban.
 4.4.1 Tarifa mensual $50.00
 4.4.2 Transferencia electrónica de fondos 0.25 % por cada
@@ -22,8 +23,12 @@ Según convenio: la comisión que para este servicio se acuerde entre el Banco y
 4.7.-Tesorería electrónica
 Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen sus clientes mediante el uso de este servicio.
 4.8.-Créditos directos salientes Sinpe cuentas clientes $0.60 por transacción.
-4.9.-Bancobcr Empresarial
-$25.00 dispositivo de lectura (nuevo y reposición).
-$8.00 tarjeta Smart Card (nueva y reposición).
+4.9.- Banca Móvil por mensaje de respuesta. ¢ 5,00
+(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 4.10- Órdenes de pago electrónica, mediante el canal www.bancobcr.com
 $3.00 por transferencia.
+(*)4.11 Certificados Digital
+Clientes BCR $ 2,00
+No clientes $ 4,00
+Deben asumir costo de tarjeta $ 5 y lector $ 15,00
+(*)(Así adicionado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)

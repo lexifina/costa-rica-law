@@ -11,10 +11,11 @@ Depósitos a plazo $7.00
 2.5.-Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorias nacionales y extranjeras $20.00.
 2.6.-Cargos enviados a clientes y devueltos por dirección errónea $1.00.
 2.7.- Nota de débito generada por la devolución de un cheque defectuoso (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 2.22 de este mismo apartado) $3.00.
-2.8.- Apertura nuevas cuentas corrientes
-2.8.1 Apertura por extravío fórmulas en blanco $15.00
-2.8.2 Chequera robada o perdida $15.00
-2.8.3 Cuentas cerradas por decisión del Banco o saldo insoluto $10.00
+(*)2.8.- Reapertura cuentas corrientes
+2.8.1 Reapertura por extravío fórmulas en blanco $ 15,00
+2.8.2 Reapertura por chequera robada ó perdida $ 15,00
+2.8.3 Reapertura por cuentas cerradas pérdidas e insolutos $ 10,00
+(*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 2.9.- Chequeras Colones y Dólares $6.00
 2.10.-Traspaso de fondos entre cuentas corrientes y de ahorros manualmente en las plataformas $5.00 por cada traspaso.
 2.11.-Cuentas corrientes y de ahorro inactivas (180 días de inactividad):
@@ -51,19 +52,20 @@ $20.00 *Los empleados deberán pagar el 100%.
 Mínima $20.00
 Máxima $120.00
 2.24.- Venta de cheques de gerencia $10.00.
-2.25.-Recolección depósitos especiales en cuenta corriente.
+(*) 2.25.- Recolección depósitos especiales en cuenta corriente
 1- Para clientes cuyos depósitos son contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM).
-Hasta ¢ 6.000.000.00 cobrar la suma de:
-a) $ 7.00 remeseras propias/recolección.
-b) $ 8.00 remeseras externas/recolección.
+Hasta ¢ 6.000.000,00 cobrar la suma de:
+a) $ 7,00 remeseras propias/recolección.
+b) $ 8,00 remeseras externas/recolección.
 Sobre el exceso se aplicará la siguiente fórmula:
-$ 2.00 por cada ¢ 2.000.000.00 o fracción.
+$ 2,00 por cada $ 3.500,00 o fracción.
 2- Para clientes cuyos depósitos son contabilizados en las tesorerías regionales ubicadas fuera del GAM.
-Hasta ¢ 6.000.000.00 cobrar la suma de:
-a) $ 9.00 remeseras propias/recolección.
-b) $10.00 remesas externas/recolección.
+Hasta ¢ 6.000.000,00 cobrar la suma de:
+a) $ 9,00 remeseras propias/recolección.
+b) $ 10,00 remesas externas/recolección
 Sobre el exceso se aplicará la siguiente fórmula:
-$ 2.00 por cada ¢ 2.000.000.00 o fracción.
+$ 2,00 por cada $ 3.500,00 o fracción
+(*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 2.26- Comisión para la recepción de efectivo para instituciones del sector financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios
 Colones Comisión por millón

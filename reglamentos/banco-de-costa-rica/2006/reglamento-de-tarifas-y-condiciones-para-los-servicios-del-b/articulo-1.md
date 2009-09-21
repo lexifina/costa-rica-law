@@ -52,3 +52,10 @@ El Banco no adquiere compromiso alguno al aceptar esta suma y no devolverá la m
 1.10.- Cobro telegramas enviados operaciones vencidas $5.00.
 1.11.- Por concepto de administración de proyectos colones y dólares.
 Se cobrará un 1% anual pagadero mensualmente sobre los proyectos empresariales a largo plazo.
+(*)1.12- Comisión de compromiso
+- En colones hasta 0,50% y aplica sobre sumas no utilizadas a cobrarse anualmente
+- En dólares hasta 0,25% y aplica sobre sumas no utilizadas a cobrarse anualmente
+(*)(Así adicionado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
+(*)1.13.- Comisión de estructuración y manejo:
+- En colones y dólares hasta 0,50% y aplica sobre el saldo de la operación a cobrarse mensualmente.
+(*)(Así adicionado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)

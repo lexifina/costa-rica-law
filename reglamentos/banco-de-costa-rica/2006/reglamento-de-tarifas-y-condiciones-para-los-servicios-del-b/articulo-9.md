@@ -27,6 +27,8 @@ El costo por reposición de llaves y cambio de llavín será asumido totalmente 
 $19.25 por examinar cada video de seguridad.
 Nota:
 Se cobra esta comisión por cada video revisado en cassette o digital.
+9.9.- Trámite de licencias y pasaporte $ 5,00
+(Así adicionado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 ASPECTOS GENER ALE S
 1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
 2. Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
