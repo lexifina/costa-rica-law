@@ -24,7 +24,8 @@ PROGRAMASPRESUPUESTARIOS ADMINISTRACION SUPERIOR ADMINISTRACION DE RECURSOS HUMA
 (Modificado por el artículo 1° del decreto ejecutivo N° 35003 del 19 de enero de 2009)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35060 del 27 de febrero de 2009)
 (Modificado por los artículos 2° y 4° del decreto ejecutivo N° 35140 del 19 de marzo de 2009)
-(Modificaco por el artículo 2° del decreto ejecutivo N°35237 de 20 de abril de 2009).
+(Modificaco por el artículo 2° del decreto ejecutivo N°35237 de 20 de abril de 2009).*(Mediante el artículo 1° del decreto ejecutivo N° 35481 del 25 de agosto de 2009, se reforma el artículo 2° del decreto ejecutivo N° 35237 del 20 de abril de 2009, de la siguiente manera: "...Artículo 1º—Modifíquese parcialmente el artículo 2° del Decreto Ejecutivo Nº 35237, publicado en La Gaceta N º 91 del día 13 de mayo del 2009, en la forma que se indica a continuación:
+“…Consejo Nacional de Vialidad (CONAVI) (Para la mitigación de los daños ocasionados en las rutas nacionales por los eventos naturales que generaron las declaratorias de emergencia realizadas mediante los Decretos Ejecutivos Nº 34553, Nº 34742, Nº 34906, Nº 34973, Nº 34993 y Nº 35053, realizando la rehabilitación y reconstrucción de las rutas nacionales ubicadas en las zonas afectadas. Recursos provenientes del contrato de préstamo Nº 7594-CR y sus anexos, entre la República de Costa Rica y el Banco Internacional de Reconstrucción y Fomento (BIRF), Ley N° 8711)")
 (Modificado por el artículo 1° del decreto ejecutivo N° 35255 del 27 de abril de 2009).
 (Modificado por los artículos 1° y 2° del decreto ejecutivo N° 35256 del 11 de mayo de 2009).
 (Modificado por el artículo 3° del decreto ejecutivo N° 35256 del 11 de mayo de 2009).
