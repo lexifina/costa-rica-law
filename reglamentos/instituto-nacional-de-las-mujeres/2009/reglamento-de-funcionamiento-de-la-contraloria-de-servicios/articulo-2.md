@@ -1,0 +1,1 @@
+Artículo 2º—Deber de la Presidencia Ejecutiva. Es deber de la Presidencia Ejecutiva del INAMU vigilar por el buen funcionamiento de los servicios públicos que brindan las dependencias administrativas y técnicas, con el apoyo de la Contraloría de Servicios.
