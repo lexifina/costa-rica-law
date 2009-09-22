@@ -13,3 +13,4 @@ Uso del Protocolo del Ministerio de Salud para toser y estornudar correctamente 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-10 | la propia norma |
+| 2 | 2009-09-22 | Circular 98 (2009-09-22) |
