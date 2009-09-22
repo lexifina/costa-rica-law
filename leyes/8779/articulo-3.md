@@ -1,0 +1,2 @@
+ARTÍCULO 3.-
+Para que se autorice al Poder Ejecutivo con la asistencia de la Procuraduría General de la República a publicar en el diario oficial La Gaceta, el texto integral de la Ley de tránsito por vías públicas terrestres, Ley N.º 7331, de 13 de abril de 1993, junto a la Reforma a la Ley de tránsito por vías públicas terrestres, Ley N.º 8696 de 23 de diciembre de 2008, así como la que dispone la presente ley.
