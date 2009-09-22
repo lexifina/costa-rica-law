@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE NICOYA
+Acuerdo Nº 13.1: El Concejo Municipal en forma unánime aprueba establecer como tarifa de Inspección en la Zona Marítima Terrestre del cantón de Nicoya, la suma de ¢25.000,00 (veinticinco mil colones), con el objetivo de cubrir los gastos institucionales, por el concepto definido en la Ley y como requisito indispensable del Proceso Administrativo, para tramitación de solicitudes de Concesiones y Prórrogas. Publíquese en el Diario Oficial La Gaceta. Aprobado en firme.
+Para los efectos correspondientes, la publicación se hará por una sola vez, para confirmar y ratificar el acuerdo de marras, y una vez establecido el plazo, se ejecutarán las acciones administrativas, como norma de la Administración Municipal de la Corporación Municipal de Nicoya.
