@@ -1,0 +1,1 @@
+Artículo 2º—Los Ministerios de Obras Públicas y Transportes, de Salud, de Economía, Industria y Comercio y de Ambiente, Energía y Telecomunicaciones, velarán dentro del marco de su competencia, por la correcta aplicación de la presente guía.
