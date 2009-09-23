@@ -1,0 +1,11 @@
+Nº 35511-J
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA
+Con fundamento en lo dispuesto en los artículo 140, inciso 18), y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones Nº 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Conservacionista Yiski, cédula de persona jurídica Nº 3-002-141449, se inscribió en el Registro de Asociaciones del Registro Público desde el día primero de setiembre de mil novecientos noventa y tres, bajo el expediente Nº 5787. Asimismo, dicha entidad fue declarada de Utilidad Pública mediante el Decreto Ejecutivo Nº 26058-J del primero de abril de mil novecientos noventa y siete.
+III.—Que la Asociación Conservacionista Yiski, solicitó dejar sin efecto el beneficio de Utilidad Pública, decisión que fue tomada en la asamblea general celebrada el veintinueve de noviembre del dos mil ocho. Siendo que, una vez efectuado el debido proceso, se determina que dicha entidad mantiene tanto dentro de sus estatutos como en su operatividad, los fines y objetivos en pro de la conservación del ambiente y de los recursos naturales que sirvieron de base para ser declarada de Utilidad Pública, al solventar los mismos una necesidad social.
+IV.—Que pese a la continuidad del funcionamiento de dicha Asociación, mediante asamblea general se acordó expresamente la renuncia a la declaratoria de utilidad pública otorgada por el Ministerio de Justicia, por lo que es procedente dejar sin efecto el acto administrativo en el cual se otorgó la declaratoria Utilidad Pública a la Asociación solicitante, así como los efectos derivados de dicho acto.
+Decretan:
+Artículo 1º—Dejar sin efecto el Decreto Ejecutivo Nº 26058-J del primero de abril de mil novecientos noventa y siete, mediante el cual se declaró de Utilidad Pública para los intereses del Estado a la Asociación Conservacionista Yiski, cédula de persona jurídica Nº 3-002-141449.
