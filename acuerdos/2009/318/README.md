@@ -14,3 +14,4 @@ Instruye a Municipalidades y Concejos de Distrito con jurisdicción en zona mar�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-01 | la propia norma |
+| 2 | 2009-09-23 | Acuerdo 660 (2009-09-23) |
