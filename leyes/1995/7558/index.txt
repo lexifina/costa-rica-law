@@ -177,7 +177,6 @@ articulo-175-bis.md
 articulo-176.md
 articulo-177.md
 articulo-178.md
-articulo-179.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
@@ -190,6 +189,7 @@ articulo-9-transitorio.md
 articulo-10-transitorio.md
 articulo-11-transitorio.md
 articulo-12-transitorio.md
+articulo-179.md
 articulo-14-transitorio.md
 articulo-15-transitorio.md
 articulo-16-transitorio.md
