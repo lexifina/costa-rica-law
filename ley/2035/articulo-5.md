@@ -26,4 +26,6 @@ t) Participar como árbitro o perito en los asuntos de su competencia.
 Asimismo, sus funcionarios podrán participar en tal condición.
 u) Participar en programas de asistencia social y atención de emergencias.
 v) Vender o comprar servicios en áreas propias del giro normal del Consejo.
+w) Aplicar los requisitos de desempeño para la importación de frijol y maíz blanco con arancel preferencial, en caso de desabastecimiento, de acuerdo con lo establecido en esta Ley.
+(Así adicionado el inciso anterior por el artículo 3° de la ley N° 8763 del 21 de agosto de 2009, "Requisitos de Desempeño para la Importación de Frijol y Maíz Blanco con arancel preferencial, en caso de Desabastecimiento")
 (Así reformado por el artículo 2° de la ley Crea Programa de Reconversión Productiva del Sector Agropecuario CNP, N° 7742 del 19 de diciembre de 1997)
