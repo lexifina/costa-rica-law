@@ -1,8 +1,5 @@
-Artículo 20.- Destino del monto. El monto obtenido por recargos
-entrará al presupuesto del Sistema 9-1-1 y se utilizará para financiar
-campañas publicitarias y otras actividades educativas sobre el uso
-correcto de este Sistema, por parte de los usuarios, o se invertirá en
-mejorar el equipo de las instituciones afectadas y resarcir los daños y
-perjuicios ocasionados por el desplazamiento en falso, previa
-demostración."
+Artículo 20.- Destino del monto
+El monto obtenido por recargos entrará al presupuesto del Sistema de Emergencias 9-1-1 y se utilizará para financiar campañas publicitarias y otras actividades educativas sobre el uso correcto de este Sistema por parte de los usuarios; además, deberá invertirse en mejorar los sistemas de comunicación y enlace con el Cuerpo de Bomberos, la Cruz Roja Costarricense, la Caja Costarricense de Seguro Social (CCSS), las municipalidades de todo el país, la Comisión Nacional de Emergencias, el Patronato Nacional de la Infancia (PANI), el Instituto Nacional de las Mujeres (Inamu) y las demás entidades, las instalaciones y el equipo propio, así como de las instituciones adscritas, relacionados directamente con la atención de la llamada y las emergencias.
+La Comisión Coordinadora deberá valorar, en el momento de preparar y aprobar el presupuesto ordinario, los proyectos que las instituciones antes mencionadas le presenten, y señalar cuáles serán incluidos para su financiamiento. Los servicios o bienes que las instituciones soliciten y que la Comisión Coordinadora apruebe serán trasladados a la institución solicitante en condición de donación; para ello, el Sistema queda autorizado expresamente.
 (Así adicionado por el artículo 1 de la Ley N° 7949 del 30 de noviembre de 1999)
+(Así reformado por el artículo único de la ley N° 8768 del 1 de setiembre de 2009)
