@@ -125,9 +125,13 @@ DISPOSICIONES SOBRE SUSTITUCIONES 2008/2009
 (6) Sesión del Consejo Superior 03-08, del 15 de enero del 2008, artículo XXXVIII.
 48. Secretarias Ejecutivas asignados a las oficinas de los señores Magistrados (7).
 (7) Sesión del Consejo Superior Nº 3-08 del 15-01-08 artículo, XXXVIII.
+(*)49. Auxiliar de Servicios Generales 1 (8).
+(8) Sesión del Consejo Superior Nº 81-09 del 27-08-09 artículo, LV.
+(*)(Reubicada la plaza anterior mediante aviso N° 24 del 24 de setiembre de 2009)
 8.7 Excepcionalmente se podrán realizar sustituciones por períodos igual o mayor a cuatro días hábiles a los servidores considerados en la siguiente lista de puestos:
 · Conserjes, siempre y cuando la oficina cuente con tres o menos plazas de este tipo.
-· Auxiliares de Servicios Generales 1 y 2; asignados a la Oficina Administrativa de Tribunales de San José.
+· Auxiliar de Servicio Generales 2; asignados a la Oficina Administrativa de Tribunales de San José.
+(Nota de Sinalevi: Mediante aviso N° 24 del 24 de setiembre de 2009, se elimina la plaza de Auxiliar de Servicios Generales 1 y se reubica en el punto 8.6 anterior, con el número 49)
 · Notificadores de las Oficinas Judiciales
 · Notificadores y Auxiliares Administrativo 1 de cada Oficina Centralizada de Notificaciones del país.
 · Auxiliar Administrativo 1, puesto 34254 de la Administración Regional de Pérez Zeledón.
