@@ -1,0 +1,1 @@
+Transitorio II.—En un plazo no mayor a 18 meses a partir de la fecha de publicación de este reglamento, deberá crearse en el Departamento de Ambiente con Apoyo del Departamento de Catastro y Bienes Inmuebles, una base de datos actualizable cada 6 meses, de cuáles son los Parques y Espacios Públicos del cantón y deberá realizarse un mapeo de los mismos.

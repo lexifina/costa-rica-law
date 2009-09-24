@@ -1,0 +1,1 @@
+Artículo 7º—Áreas de usos varios: En los casos en que en una zona recreativa ubicada en un parque, se admita más de un uso, la Municipalidad deberá definir cuales usos son los permitidos y en qué áreas están ubicadas, para lo cual colocará el aviso respectivo en éste.

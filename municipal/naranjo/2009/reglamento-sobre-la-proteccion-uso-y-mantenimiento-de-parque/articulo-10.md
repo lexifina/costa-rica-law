@@ -1,0 +1,2 @@
+Artículo 10.—Autoridad responsable: La autoridad municipal y policial, como parte de su deber legal de proteger y preservar los bienes públicos, deberán vigilar por el correcto uso de estos bienes municipales.
+Serán responsables por parte de la Municipalidad, de hacer cumplir este reglamento los departamentos de Ambiente, Patentes, Acueductos, o cualquier otro personal que al respecto designe la Municipalidad, todo de acuerdo al aspecto que se trate. Además lo será la Autoridad Policial o Judicial según corresponda.

@@ -1,0 +1,4 @@
+Artículo 2º—Definiciones: Para los efectos de este reglamento se entiende por:
+1- Espacios Públicos: los parques municipales, parques infantiles, parques deportivos, zonas verdes, jardines, bulevares, plazas, orillas de caminos o carreteras del cantón, zonas comunales de urbanizaciones y barrios, zonas de protección, propiedades donadas a la municipalidad sin uso definido, rondas e islas sobre carreteras del cantón, riveras de ríos y demás afines.
+2- Parques Municipales: áreas destinadas a la recreación pasiva o activa de los vecinos o visitantes, de acuerdo al uso para el cual fueron diseñados o para el cual se destinen.
+3- Servicio de Mantenimiento: se entenderá por servicio de mantenimiento el establecimiento, la conservación, la ampliación, el mantenimiento y mejoramiento de parques y espacios públicos.
