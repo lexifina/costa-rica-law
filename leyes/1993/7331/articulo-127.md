@@ -1,3 +1,4 @@
 ARTÍCULO 127.- Se prohíbe abandonar un vehículo automotor en la vía pública, de forma definitiva. En caso de averías, los conductores deben adoptar las medidas del caso, para que se retire el vehículo en el menor plazo posible, el cual no puede ser superior a las cuarenta y ocho horas, siempre que quede fuera de la calzada y cumpla con los requisitos establecidos en esta Ley y en su Reglamento.
-No pueden efectuarse reparaciones de los vehículos en la vía pública. La transgresión [sic] de lo dispuesto en este artículo da lugar a la aplicación de las disposiciones del artículo 140 de esta Ley, sin perjuicio de las demás sanciones.
-(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 126 al 127).
+No pueden efectuarse reparaciones de los vehículos en la vía pública. La trasgresión de lo dispuesto en este artículo da lugar a la aplicación de las disposiciones del inciso g) del artículo 141 de esta Ley.
+(Así reformado el párrafo anterior por el artículo 1°, punto 16) de la ley N° 8779 del 17 de setiembre de 2009)
+(Así corrida su numeración por el inciso a) del artículo 2° de la ley N° 8696 de 17 de diciembre de 2008, que lo traspasó del artículo 126 al 127)

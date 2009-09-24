@@ -1,7 +1,8 @@
 CAPÍTULO IV
 PROHIBICIONES Y SANCIONES
 ARTÍCULO 249.- Se prohíbe:
-a) Utilizar los vehículos de uso administrativo general en otras actividades que no sean las normales de la institución o del ministerio, salvo en los casos de emergencia como se menciona en el artículo 239 de la presente Ley.
+a) Utilizar los vehículos de uso administrativo general en otras actividades que no sean las normales de la institución o del ministerio, salvo en los casos de emergencia.
+(Así reformado el inciso anterior por el artículo 1°, punto 33) de la ley N° 8779 del 17 de setiembre de 2009)
 b) Asignar vehículos, tanto de uso discrecional o de uso administrativo general, a familiares cercanos de los funcionarios.
 c) Utilizar los vehículos en actividades políticas.
 ch) Conducir bajo los efectos del licor o de cualquier otra droga que disminuya la capacidad física o mental del conductor.
