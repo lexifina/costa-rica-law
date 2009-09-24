@@ -1,0 +1,1 @@
+Artículo 9º—Procedimiento para nombramiento: El procedimiento para el nombramiento de los funcionarios del Departamento de Cementerio será el establecido en el Código Municipal para el nombramiento de funcionarios municipales.

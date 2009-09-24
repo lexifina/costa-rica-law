@@ -1,0 +1,1 @@
+Artículo 27.—Servicios autorizados: La Municipalidad de Heredia queda facultada para cobrar precios por los servicios de velación, sepultura, inhumación, exhumación, mantenimiento, adjudicación, arrendamiento de lotes, prórroga y construcción de nichos, de acuerdo con tarifas que fije según el artículo 15 de este reglamento.

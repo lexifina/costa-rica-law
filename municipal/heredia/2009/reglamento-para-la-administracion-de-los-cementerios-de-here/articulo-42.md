@@ -1,0 +1,1 @@
+Artículo 42.—Procedimiento: Los cadáveres serán inmediatamente inhumados por el encargado del cementerio, en presencia de las personas que integren el séquito mortuorio. En todo caso en la parte correspondiente a la cabecera el ataúd deberá tener una ventana que permita comprobar la identidad del cadáver.

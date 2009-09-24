@@ -1,0 +1,1 @@
+Artículo 21.—Servicio social: Del área destinada para las inhumaciones, deberá dejarse previsto un 10% del porcentaje para casos de calamidades públicas y un 10% para personas cuya capacidad económica les imposibilite la adquisición de un derecho funeral.

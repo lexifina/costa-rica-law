@@ -1,0 +1,1 @@
+Artículo 39.—Autorización: Quien necesite realizar una inhumación en el Cementerio de Heredia, deberá solicitar autorización al Departamento de Cementerio de la Municipalidad de Heredia. Esta dependencia no autorizará inhumaciones en bóvedas o nichos que presenten fallas en su estructura.

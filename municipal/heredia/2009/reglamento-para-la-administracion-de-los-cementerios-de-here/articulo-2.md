@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad: El presente reglamento tiene como fin el establecimiento de las normas que regularán la administración, funcionamiento y organización de los cementerios municipales de Heredia. Sus normas serán de acatamiento obligatorio para los funcionarios y servidores municipales.
