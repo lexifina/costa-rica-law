@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Alcances
+La autorización de apertura y funcionamiento, una vez verificado el cumplimiento de los elementos que integran la escuela de manejo autorizada, facultará para el ejercicio de la actividad regulada. En caso de los aprendices, la escuela de manejo deberá exigirle el correspondiente permiso de aprendizaje, que establece la Ley de tránsito por vías públicas terrestres, bajo pena de cancelación de la autorización administrativa.

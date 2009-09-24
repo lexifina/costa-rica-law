@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Gestiones
+Corresponde al titular de la escuela de manejo tramitar, ante la Dirección General de Educación Vial, las diversas gestiones y solicitudes relacionadas con la actividad que se pretende desarrollar. Terceras personas podrán realizar dichos trámites en nombre de la escuela de manejo, pero deberán contar con poder especial protocolizado, otorgado por el titular respectivo y reunir los requisitos de ley. Este documento deberá exhibirse, cuando los funcionarios de dicha dependencia así lo requieran.
