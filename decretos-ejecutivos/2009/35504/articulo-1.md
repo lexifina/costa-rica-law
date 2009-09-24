@@ -1,0 +1,313 @@
+Nº 35504-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3), 8) y 18), y 146 de la Constitución Política; la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978; la Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, Nº 7064 del 29 de abril de 1987; la Ley General del Servicio Nacional de Salud Animal, Nº 8495 del 6 de abril del 2006; la Ley de Presupuesto Extraordinario, Nº 7138 del 16 de noviembre de 1989, artículo 46, inciso 22), que autoriza la apertura de Cuentas Especiales para recursos provenientes de venta de servicios de Mercadeo, Salud y Producción Pecuaria e Investigación Agrícola; el Acuerdo de Medidas Sanitarias y Fitosanitarias aprobado mediante Ley de Ejecución de los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales, Nº 7473 del 20 de diciembre del 1994; Ley de la Promoción de la Competencia y Defensa Efectiva al Consumidor, Nº 7472 del 20 de diciembre de 1994.
+Considerando:
+1º—Que es función esencial del Estado proteger la salud de las personas, sistemas de producción primarios, los animales y el medio ambiente, así como garantizar la protección de los cultivos de las plagas y enfermedades que puedan poner en riesgo o causar daños a la producción agropecuaria.
+2º—Que para la economía nacional y la seguridad alimentaria, la protección sanitaria de los productos de origen animal resulta fundamental, en especial en aquellos que son esenciales en la dieta de los costarricenses, lo que obliga al Estado a adoptar todas las medidas de prevención, vigilancia y control necesarias para evitar el ingreso y diseminación de plagas y enfermedades que pongan en peligro o puedan causar daño a las personas o al patrimonio pecuario nacional.
+3º—Que igualmente es una función esencial del Estado, establecer los mecanismos y controles necesarios para garantizar la inocuidad de los alimentos de consumo humano y animal, protegiéndose con ello la Salud Pública.
+4º—Que es un derecho fundamental del Estado, en el marco del Acuerdo para la aplicación de las Medidas Sanitarias y Fitosanitarias, adoptar aquellas que resulten necesarias para proteger la salud y la vida de las personas, de los animales y vegetales, basando esas medidas en una evaluación adecuada a las circunstancias y los riesgos eventuales que ello conlleve.
+5º—Que mediante Ley Nº 8495 del 6 de abril del 2006, se creó el Servicio Nacional de Salud Animal, (SENASA), como un órgano de desconcentración y personería jurídica instrumental del Ministerio de Agricultura y Ganadería, derogándose la Ley Nº 6343 del 2 de mayo de 1978, Ley sobre Salud Animal y sustituyendo por ello para todo efecto legal a la Dirección de Salud Animal del Ministerio de Agricultura y Ganadería.
+6º—Que a través del Servicio Nacional de Salud Animal (SENASA) se brindan una serie de servicios a los productores y establecimientos agropecuarios y con cuya venta se generan los recursos necesarios para la sostenibilidad del Servicio, permitiéndose con ello cubrir gastos relativos a salarios y cargas sociales, la reposición y compra de equipos, materiales, reactivos y otros insumos necesarios para la buena marcha y la atención oportuna de los requerimientos que se le formulan al SENASA.
+7º—Que conforme al mandato establecido en el artículo 8 bis del Decreto Nº 27763-MAG del 10 de marzo de 1999 y sus reformas, se establece que los montos de las tarifas por los servicios estipulados en ese Decreto están sujetas a un incremento anual que rige a partir del 1º de febrero de cada año, que se calculará automáticamente con base en el valor del índice de precios al consumidor del año anterior.
+8º—Que es menester introducir algunas nuevas tarifas que se derivan directamente de la Ley Nº 8495 antes citada y publicitar el precio actual de las tarifas que cobra este Servicio, dado que su última publicación general se realizó en el año 2005. Por tanto,
+Decretan:
+Artículo 1º—Modifíquense los artículos 3º y 4º del Decreto Nº 27763-MAG del 10 de marzo de 1999, publicado en el Alcance Nº 26 de La Gaceta Nº 68 del 9 de abril de 1999 y sus reformas, para que se lean de la siguiente manera:
+Artículo 3º—Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio del Servicio Nacional de Salud Animal (SENASA):
+Código | Nombre |
+A | SERVICIOS GENERALES |
+A.02 | Folletos, información en disquete o disco compacto | ¢1.892
+A.03 | Servicios profesionales en horas inhábiles (por hora, excepto feriados) | ¢8.908
+A.04 | Por servicios técnicos en horas inhábiles (por hora, excepto feriados) | ¢3.357
+A.05 | Por servicios profesionales en horas inhábiles (por hora, días feriados) | ¢11.898
+A.06 | Por servicios técnicos en horas inhábiles (por hora, días feriados) | ¢4.475
+| DIRECCIÓN ASESORÍA JURÍDICA |
+A.07 | Autenticación de firma en certificado veterinario | ¢3.000
+B | INSPECCIÓN Y CERTIFICACIÓN DE PRODUCTOS DE ORIGEN ANIMAL (DIPOA) |
+B.01 | Certificado de exportación o reexportación de productos y subproductos de origen animal | ¢9.827
+B.020 | Marchamo o sello oficial (metal, papel o plástico) para medios de transporte, plantas, almacenes, empaques o embalajes y otros | ¢3.156
+B.03 | Registro anual de establecimientos autorizados para exportar productos y subproductos cárnicos | ¢39.432
+B.03.01 | Establecimientos autorizados para exportar productos y subproductos cárnicos de riesgo alto. | ¢25.000
+B.03.02 | Establecimientos autorizados para exportar productos y subproductos cárnicos de riesgo moderado. | ¢17.500
+B.03.03 | Establecimientos autorizados para exportar productos y subproductos cárnicos de riesgo bajo. | ¢10.000
+B.04 | Inspección en planta por médico veterinario (por mes) * La presente tarifa cubre el costo mensual de un Médico Veterinario Uno a tiempo completo, conforme a la escala de salarios aprobada por la Dirección General de Servicio Civil, más lo correspondiente a los pluses salariales que conforme a la normativa vigente corresponde reconocer a ese tipo de profesional. Igualmente lo correspondiente a cargas sociales, al aporte patronal, pensión complementaria, Banco Popular, etc. y lo correspondiente a una previsión por prestaciones legales. La presente tarifa deberá ser depositada por el establecimiento interesado por mes adelantado. Adicionalmente se aportará lo correspondiente a horas extras por mes vencido. Todo establecimiento que requiera del servicio aquí señalado deberá firmar con el Ministerio de Agricultura y Ganadería un convenio de cooperación en donde se estipularán una serie de condiciones adicionales que regularán la forma, modo y tiempo en que este servicio se dará. * No aplica para plantas de procesamiento de pescado. | ¢1.427.303
+B.05 | Inspección en planta por técnico (por mes)* La presente tarifa cubre el costo mensual de un Técnico Profesional Uno, a tiempo completo conforme a la escala de salarios aprobada por la Dirección General de Servicio Civil, más lo correspondiente a los pluses salariales que conforme a la normativa vigente corresponde reconocer a ese tipo de técnico. Igualmente lo correspondiente a cargas sociales, al aporte patronal, pensión complementaria, Banco Popular, etc. y lo correspondiente a una previsión por prestaciones legales. La presente tarifa deberá ser depositada por el establecimiento interesado por mes adelantado. Adicionalmente se aportará lo correspondiente a horas extras por mes vencido. Todo establecimiento que requiera del servicio aquí señalado deberá firmar con el Ministerio de Agricultura y Ganadería un convenio de cooperación en donde se estipularán una serie de condiciones adicionales que regularán la forma, modo y tiempo en que este servicio se dará. * No aplica para plantas de procesamiento de pescado. | ¢536.230
+B.6 | Sello SENASA de sanidad o inocuidad. La presente tarifa anual cubre todos los procedimientos para el otorgamiento de dicho sello y su respectivo régimen de control por parte del DIPOA y la Dirección General del SENASA. | ¢1.000.000,00
+C | CUARENTENA ANIMAL |
+C.01 | Certificado de exportación o reexportación de animales, material biológico y reproductivo | ¢9.827
+C.02 | Autorización previa para importación o tránsito de animales, productos y subproductos de origen animal, alimentos para animales y materias primas | ¢9.474
+C.03 | Registro anual de establecimientos importadores. |
+C.03.01 | Establecimiento grande | ¢25.000
+C.03.02 | Establecimiento mediano | ¢17.500
+C.03.03 | Establecimiento pequeño | ¢10.000
+C.04 | Inspección de carga en transporte marítimo de alimentos para animales (por TM) | ¢14
+C.05 | Constancia de inspección para importación de muestras de productos y subproductos de origen animal (menos de 30 kg) | ¢773
+C.06 | Registro individual de pruebas serológicas en equino para exportación | ¢8.943
+C.07 | Incineración, destrucción o desnaturalización de animales, productos y subproductos, medicamentos, alimentos y otros (por kilogramo) | ¢1.112
+C.08 | Inspección cuarentenaria a barcos pesqueros | ¢26.290
+C.09 | Inspección cuarentenaria de productos y subproductos de origen animal en importación. exportación y tránsito (en horas hábiles y en transporte exclusivo o consolidado) | ¢18.024
+C.10 | Inspección cuarentenaria de animales en importación, exportación y tránsito (por animal en especies mayores) | ¢1.574
+C.11 | Inspección de otras especies animales en importación, exportación y tránsito (por embarque en especies menores) | ¢4.717
+C.12 | Toma de muestra en animales, productos y subproductos de origen animal importados (en puestos cuarentenarios, en horas hábiles) | ¢3.156
+C.13 | Inspección de reinas en importación, exportación o tránsito (por lote) | ¢18.024
+C.14 | Fumigación, nebulización, aspersión de contenedores y vehículos en proceso de importación por primera vez. | ¢15.000 Por Documento Único Aduanero (DUA) generado
+D | EPIDEMIOLOGÍA |
+D.01 | Análisis de riesgo: Consulta Técnica | ¢84.850
+D.02 | Análisis de riesgo: Cualitativo | ¢1.500.000
+D.03 | Análisis de riesgo: Cuantitativo | ¢2.500.000
+D.04 | Revisión de análisis de riesgo externo | ¢117.450
+E | DIRECCIÓN DE REGISTRO Y CONTROL DE MEDICAMENTOS VETERINARIOS |
+E.01 | Certificado de exportación o reexportación de medicamentos y biológicos | ¢9.461
+E.02 | Certificado de libre venta o de origen | ¢5.780
+E.03 | Otras certificaciones (edictos, estudios técnicos y otros) | ¢5.780
+E.04 | Bodegaje por día (hasta 100 kg de peso) | ¢1.754
+E.05 | Bodegaje por día: de 101 kg de peso en adelante | ¢947
+E.06 | Registro anual de laboratorios, droguerías y farmacias veterinarias (registro bianual) | ¢32.394
+E.07 | Registro o renovación de registro de un medicamento o biológico (por producto) | ¢60.000
+E.08 | Inspección de medicamentos en almacenes fiscales | ¢15.000
+E.09 | Ampliación o modificación de un registro (establecimiento. medicamento o biológico). | ¢30.000
+E.10 | Autorización de desalmacenaje de medicamentos veterinarios | ¢9.461
+F | DIRECCIÓN DE REGISTRO Y CONTROL DE LA CALIDAD DE ALIMENTOS PARA ANIMALES |
+F.01 | Certificado de exportación o reexportación de alimentos, mezclas, premezclas de alimentos para animales | ¢9.461
+F.02 | Certificado de libre venta o de origen | ¢5.780
+F.03 | Registro anual de empresa elaboradora o distribuidora de alimentos para animales (Se autoriza para realizar el cobro a dichos establecimientos en forma bianual) |
+F.03.01 | Empresa elaboradora o distribuidora de alimentos para animales grande | ¢25.000
+F.03.02 | Empresa elaboradora o distribuidora de alimentos para animales mediana | ¢17.500
+F.03.03 | Empresa elaboradora o distribuidora de alimentos para animales pequeña | ¢10.000
+F.04 | Registro anual de empresas elaboradoras de materias primas para alimento animal (Se autoriza para realizar el cobro a dichos establecimientos en forma bianual) | ¢23.555
+F.04.01 | Empresa elaboradora de materias primas para alimento animal de riesgo alto | ¢25.000
+F.04.02 | Empresa elaboradora de materias primas para alimento animal de riesgo moderado | ¢17.500
+F.04.03 | Empresa elaboradora de materias primas para alimento animal de bajo riesgo o no determinado | ¢10.000
+F.05 | Registro o renovación de registro de materias primas, mezclas, premezclas y alimentos balanceados para animales (por producto, cada 5 años) | ¢28.658
+F.06 | Inspección de carga en vehículos que transportan materias primas, premezclas, alimentos balanceados y aditivos para alimentación animal (por vehículo) | ¢6.312
+F.07 | Inspección previa de establecimientos y equipos que se utilicen para elaboración de alimentos para animales, en cada fábrica. | ¢28.658
+F.08 | Ampliación o modificación de registros en alimentos para animales (empresas, productos, etiquetas) | ¢12.493
+G | DIRECCIÓN DE OPERACIONES NACIONALES |
+G.01 | Certificado Oficial de Salud Animal | ¢8.922
+G.02 | Supervisión de cuarentena domiciliar para los animales que se importan (por embarque) | ¢8.922
+G.03 | Certificado Veterinario de Operación. (Exonerados establecimientos de subsistencia) |
+G.03.01 | Establecimiento grande | ¢50.000
+G.03.02 | Establecimiento mediano | ¢35.000
+G.03.03 | Establecimiento pequeño | ¢25.000
+G.03.04 | Transporte automotor de animales, productos y subproductos de origen animal. | ¢20.000
+G.04 | Registro anual de establecimientos con CVO. (Exonerados establecimientos de subsistencia) |
+G.04.01 | Establecimiento grande | ¢25.000
+G.04.02 | Establecimiento mediano | ¢17.500
+G.04.03 | Establecimiento pequeño | ¢10.000
+G.04.04 | Transporte automotor de animales, productos y subproductos de origen animal. | ¢10.000
+G.05 | Inspección de animales para transporte, comercio, exposiciones, ferias y otros fines (por animal diferente de aves) | ¢947
+G.06 | Tubos para sangrado (por unidad) | ¢158
+G.07 | Recolección de material para diagnóstico (raspados, leche, sangre y otros, por muestra) | ¢911
+G.08 | Colocación de aretes en animales para exportación, control o erradicación de enfermedades (por arete) | ¢539
+G.09 | Formularios de Certificado Oficial a personas autorizadas (Bloque de 50) | ¢8.908
+G.10 | Certificados de Hato Libre | ¢1.000
+G.11 | Vacunación contra Brucelosis (por animal, no incluye biológico) | ¢1.788
+G.12 | Vacunas contra Brucelosis (por dosis) | ¢1.339
+G.13 | Inoculación y lectura de tuberculina (por animal) | ¢1.788
+G.14 | Tuberculina (por frasco de 1 ml) | ¢8.922
+G.15 | Tuberculina (por frasco de 5 ml) | ¢44.611
+G.16 | Tuberculina (por frasco de 10 ml) | ¢89.208
+G.17 | Otros servicios técnicos de campo, laboratorio y venta de productos, materiales y suministros, no contemplados en otros rubros (tarifa establecida por el Colegio de Médicos Veterinarios o según su valor en el mercado) | ****
+G.18 | Venta de vacunas contra Rabia (por dosis) | ¢552
+G.19 | Vacunación contra Rabia Paralítica Bovina por solicitud del interesado (por dosis; incluye biológico, aguja y constancia) | ¢1.057
+G.20 | Captura de murciélagos en finca (por captura) | ¢17.838
+G.21 | Redes para captura de murciélagos (juego de 4 redes) | ¢107.052
+G.22 | Oficialización o renovación bianual a médicos veterinarios particulares, para trabajar en programas específicos de Salud Animal | ¢26.767
+G.23 | Oficialización de Laboratorios/año | ¢171.480
+G.24 | Registro de apiarios (cada uno) | ¢11.602
+G.25 | Registro de criadores de reinas y de procesadores de miel (cada uno) | ¢44.611
+G.26 | Trámite para importación de reinas (por lote) | ¢8.922
+G.27 | Eliminación de enjambres a nivel regional | ¢34.694
+G.28 | Inspección sanitaria de apiarios (cada una) | ¢3.943
+G.29 | Certificación sanitaria de buenas prácticas y bioseguridad en sistemas de producción (por actividad) | ¢31.546
+G.30 | Certificación sanitaria de BPA, Sist. Operativo y HACCP para centros de producción de semilla (alevines. post larvas. nauplios, reproductores. Crustáceos, peces y otros) | ¢55.204
+G.31 | Toma de muestras de especímenes vivos, en sistemas de producción | ¢988
+G.32 | Toma de muestras de especímenes vivos en centros de producción (reproducción y desarrollo larval) | ¢1.961
+G.33 | Toma de muestra de agua y sedimentos en sistemas de producción | ¢3.895
+G.34 | Diagnóstico de enfermedades en animales acuáticos en fresco (in situ) | ¢15.613
+H | SALUD REPRODUCTIVA E INSEMINACIÓN ARTIFICIAL |
+H.01 | Venta de semen de toros nacionales para exportación (por pajilla) | ¢5.875
+H.02 | Venta de semen de toros Brahman importados para exportación (por pajilla) | ¢14.680
+H.03 | Venta de semen de toros Simental y Pardo Suizo para exportación (por pajilla). | ¢14.680
+H.04 | Venta de semen de toros nacionales (por pajilla) | ¢3.578
+H.05 | Venta de semen de toros Brahman importados (por pajilla) | ¢4.461
+H.06 | Venta de semen de toros Simental y Pardo Suizo importados (por pajilla) | ¢4.461
+H.07 | Venta de nitrógeno (por kilogramo) | ¢1.423
+H.08 | Análisis de semen congelado (por pajilla) | ¢1.781
+H.09 | Examen andrológico a un macho | ¢8.922
+H.10 | Servicio de extracción, procesamiento y congelamiento de semen en finca (por pajilla) | ¢891
+H.11 | Identificación de pajillas de 0,5cc para almacenamiento de semen (por pajilla) | ¢34
+I | ACREDITACIÓN GANADERÍA ORGÁNICA |
+I.01 | Registro anual de Inspectores de Ganadería Orgánica | ¢44.860
+I.02 | Registro anual de plantas procesadoras de productos orgánicos de origen animal | ¢44.860
+I.03 | Cuota anual de agencias certificadora de ganadería orgánica | ¢44.860
+I.04 | Registro anual de fincas o granjas de ganadería orgánica | ¢44.860
+I.05 | Acreditación de Agencia Certificadora de Ganadería Orgánica | ¢405.297
+J | CENTRO DE PRODUCCIÓN DE BIOMODELOS DE EXPERIMENTACIÓN (BIOTERIO) |
+J.01 | Bioterio: Rata exogénica | ¢8.922
+J.02 | Bioterio: Rata endogénica | ¢17.845
+J.03 | Bioterio: Ratón exogénico | ¢1.781
+J.04 | Bioterio: Ratón endogénico | ¢8.922
+J.05 | Bioterio: Conejo NZ | ¢17.845
+J.06 | Bioterio: Cobayo Harltey | ¢17.845
+J.07 | Bioterio: Hámster | ¢9.922
+J.08 | Bioterio: Huevos SPF fértil (unidad) | ¢891
+J.09 | Bioterio: Huevos SPF embrionado (unidad) | ¢1.340
+J.10 | Bioterio: Pollitos SPF (unidad) | ¢1.781
+J.11 | Bioterio: Pollas SPF (unidad) | ¢8.922
+K | LANASEVE |
+K.01 | Necropsia especies mayores en campo | ¢15.855
+K.02 | Necropsia especies menores en campo | ¢11.160
+K.03 | Necropsia en aves (más por ave) | ¢1.175
+K.04 | Prueba histológica rutina | ¢8.220
+K.05 | Biopsia | ¢12.617
+K.06 | Recolección de muestras por especialista LANASEVE | ¢34.060
+K.07 | Antígeno Bufferado para diagnóstico de Brucela (60 ml) | ¢182.635
+K.08 | Antígeno Rivanol para diagnóstico de Brucela (60 ml) | ¢143.875
+K.09 | Antígeno Anillo en Leche para diagnóstico de Brucela (60 ml) | ¢125.670
+K.10 | Entrenamiento en servicio a extranjeros (por día) | ¢20.555
+K.11 | Entrenamiento en servicio a nacionales (Por día) | ¢17.347
+K.12 | Oficialización para ensayo de laboratorio 1 ensayo 2 ensayos 3 ensayos 4 ensayos 5 ó más ensayos | ¢5.875 ¢44.050 ¢58.725 ¢73.405 ¢88.100
+K.13 | Auditoría a laboratorios | ¢88.100
+KA.01 | Determinación de residuos de Organoclorados | ¢20.550
+KA.02 | Determinación de residuos de Organofosforados | ¢36.400
+KA.03 | Prueba de metales pesados/metal (para 1 muestra) | ¢12.330
+KA.04 | Determinación de residuos de Hormonas | ¢62.250
+KA.05 | Determinación de Especie Animal | ¢12.330
+KA.06 | Determinación de residuos de Ivermectina | ¢38.760
+KA.07 | Determinación de residuos de Benzimidazoles | ¢51.100
+KA.08 | Prueba de toxicología clínica | ¢14.680
+KA.09 | Prueba de plaguicidas en agua | ¢9.985
+KA.10 | Pruebas de frescura a pescado y Mariscos/prueba (total 4: Nessler. Eber. PH. Bases volátiles) | ¢2.935
+KA.11 | Determinación de residuos de Cloranfenicol | ¢20.550
+KA.12 | Prueba de Residuos de Antibiótico en leche | ¢11.160
+KA.13 | Lectura por Cromatografía de Gases con detector de masas | ¢62.250
+KA.14 | Lectura HPLC para otras determinaciones | ¢38.760
+KA.15 | Prueba anti-dopping por lectura de masas | ¢68.710
+KA.16 | Prueba de Histamina por HPLC | ¢38.760
+KA.17 | Prueba de bisulfitos | ¢21.140
+KA.18 | Determinación de Histamina (prueba de tamizaje) | ¢9.985
+KB.01 | Contenido de formol | ¢13.505
+KB.02 | Titulación viral en huevos embrionados | ¢19.380
+KB.03 | Titulación viral en ratones | ¢79.865
+KB.04 | Titulación viral en cultivo de células | ¢22.900
+KB.05 | Detección Salmonella sp. en medicamentos y vacunas | ¢11.160
+KB.06 | Detección Mycoplasma sp. en vacunas | ¢18.200
+KB.07 | Esterilidad medicamentos y productos biológicos | ¢15.855
+KB.08 | Detección Staphylococcus aureus en medicamentos | ¢7.050
+KB.09 | Detección Pseudomonas aeroginosa en medicamentos | ¢7.050
+KB.10 | Prueba de Viabilidad Bacteriana | ¢13.505
+KB.11 | Prueba de Inocuidad de vacunas | ¢17.030
+KB.12 | Recuento bacteriano total para medicamentos | ¢9.400
+KB.13 | Recuento hongos y levaduras a medicamentos | ¢9.400
+KB.14 | Prueba de disociación bacteriana | ¢9.985
+KB.15 | Prueba Resistencia Antimicrobiana (antibiograma) | ¢9.985
+KB.16 | Prueba pirógenos o LAL | ¢69.880
+KB.17 | Biopotencias (Antibióticos) | ¢34.060
+KB.18 | Poder Bactericida | ¢29.950
+KB.19 | Vacío de productos biológicos | ¢12.330
+KC.01 | Determinación de Shigella sp. | ¢7.050
+KC.02 | Determinación de Escherichia coli | ¢7.050
+KC.03 | Determinación de Mesófilos aerobios | ¢7.050
+KC.04 | Determinación de Vibrio cholerae | ¢7.050
+KC.05 | Determinación Streptococcus faecalis | ¢7.050
+KC.06 | Determinación de Bacillus cereus | ¢7.050
+KC.07 | Determinación de Clostridium botulinum | ¢7.050
+KC.08 | Determinación de Listeria sp. | ¢9.985
+KC.09 | Prueba de Residuos de Antibiótico en carne | ¢8.220
+KC.10 | Prueba de Residuos de Sulfas en carne | ¢11.160
+KC.11 | Determinación de coliformes totales en agua | ¢7.050
+KC.12 | Determinación de coliformes fecales en alimentos | ¢7.050
+KC.13 | Prueba de Clostridium perfringens | ¢7.050
+KC.14 | Determinación de Hongos y Levaduras en alimentos | ¢6.460
+KC.15 | Determinación de Salmonella sp. en Alimentos | ¢7.635
+KC.16 | Determinación de Staphylococcus aureus en alimentos | ¢6.460
+KC.17 | Determinación de Escherichia coli 0157:H7 | ¢17.615
+KC.18 | Determinación de Campylobacter en alimentos | ¢22.900
+KC.19 | Determinación de Mesófilos aerobios en enlatados | ¢7.050
+KC.20 | Determinación de Termófilos aerobios en enlatados | ¢7.050
+KC.21 | Determinación de Mesófilos anaerobios en enlatados | ¢7.050
+KC.22 | Determinación de Termófilos anaerobios en enlatados | ¢7.050
+KC.23 | Determinación de Coliformes fecales en agua | ¢7.050
+KC.24 | Determinación de Coliformes fecales en alimentos | ¢7.050
+KC.25 | Tipificación de Salmonella por especie | ¢44.045
+KD.01 | Estudio bacteriológico (cultivo aislamientos) | ¢12.617
+KD.02 | Estudio de colmenas | ¢8.673
+KD.03 | Autovacunas | ¢12.147
+KD.04 | Cultivo de hongos | ¢10.123
+KD.05 | Determinación de Tricomonas | ¢4.261
+KD.06 | Determinación de Campylobacter sp. | ¢4.337
+KD.07 | Hemoparásitos | ¢3.418
+KD.08 | Hemograma | ¢4.737
+KD.09 | Hematocrito | ¢2.369
+KD.10 | Copropasitológico | ¢2.369
+KD.11 | Cultivo bacteriano | ¢9.461
+KD.12 | Tinciones para bacterias | ¢1.581
+KE.01 | Determinación del PH. | ¢5.875
+KE.02 | Lectura por Cromatografía Líquida de Alta Resolución (HPLC) para medicamentos. | ¢38.760
+KE.03 | Lectura por Cromatografía de Gases (GC) para medicamentos | ¢34.060
+KE.04 | Lectura Espectrofotometría UV-VIS para medicamentos | ¢25.250
+KE.05 | Lectura Espectrofotometría A-A para medicamentos | ¢12.330
+KE.06 | Lectura metales pesados para inyectables | ¢12.330
+KE.07 | Lectura para volumen de medicamentos | ¢2.350
+KE.08 | Lectura por Titulación para medicamentos. | ¢12.330
+KF.01 | Prueba de Anillo de Leche (Brucela) | ¢1.436
+KF.02 | Prueba diagnóstica de Brucela | ¢870
+KF.03 | Prueba Leptospira Serología en animales | ¢2.873
+KF.04 | Cultivo Leptospira | ¢43.389
+KG.01 | Prueba de Inhibición de Hemaglutinación (Aviar) | ¢3.467
+KG.02 | Monitoreo serológico aves | ¢2.298
+KG.03 | Inmunodifusión en gel agar | ¢6.353
+KG.04 | Aislamiento viral | ¢20.233
+KG.05 | Prueba de hemaglutinación (Aviar) | ¢2.900
+KH.01 | Inmunofluorescencia indirecta | ¢8.673
+KH.02 | Prueba de ELISA | ¢8.500
+KH.03 | PCR tiempo real para detección de ADN | ¢23.155
+KH.04 | PCR tiempo real para detección de ARN | ¢27.540
+KH.05 | PCR convencional para detección de ADN | ¢21.641
+KH.06 | PCR convencional para detección de ARN | ¢26.026
+L | LABORATORIO DE PARASITOLOGÍA |
+L.01 | Prueba de eficacia “in Vitro” de garrapaticidas | ¢1.468.125
+Toda prueba de laboratorio que haya sido acreditada ante el Ente Costarricense de Acreditación (ECA), tendrá un recargo de un veinte por ciento sobre el valor estipulado.
+Las tarifas enumeradas deben ser canceladas al momento de solicitar el servicio.
+Artículo 4º—Se fijan las siguientes tarifas que regirán para el cobro de servicios de tratamientos y fumigación que se apliquen a productos, subproductos y demás materiales agropecuarios de exportación o importación, así como vehículos terrestres, aéreos y marítimos por parte del Servicio Fitosanitario del Estado (SFE). Las tarifas están fijadas en dólares norteamericanos y serán cobradas por el monto equivalente en colones, al tipo de cambio oficial del día.
+Cód. | Descripción | Fumigac. | Aspers. | Nebuliz. | Inmers. |
+1 | Trailer | $17.00 | $5.95 | $8.50 | |
+2 | Camión de 2 ejes | 14.00 | $5.25 | $7.50 | |
+3 | Camión de un eje | 14.00 | 4.55 | 6.50 | |
+4 | Buses | 10.50 | 5.50 | 5.50 | |
+5 | Microbúses | 9.50 | 4.50 | 4.50 | |
+6 | Pick Up | 8.00 | 4.50 | 4.50 | |
+7 | Automóviles | 7.50 | $3.50 | 3.50 | |
+8 | Motocicletas | | 2.50 | 2.50 | |
+9 | Equipo Especial (tractores. grúas. niveladoras. etc.) | 14.50 | 8.00 | 8.00 | |
+10 | Productos Agropecuarios en trailer | 17.50 | 9.50 | 9.50 | |
+11 | Productos Agropecuarios en camiones de dos ejes | 14.50 | 8.50 | 8.50 | |
+12 | Productos Agropecuarios en camiones de un eje | 11.50 | 7.50 | 7.50 | |
+13 | Productos Agropecuarios en vagones de ferrocarril de hasta 100 m3 | 12.00 | 8.50 | 8.50 | |
+14 | Productos Agropecuarios en vagones de ferrocarril de más de 100 m3 | 14.00 | 9.50 | 9.50 | |
+15 | Contenedores de aviones | 6.50 | 5.50 | 5.50 | |
+16 | Contenedores de 20 pies (barcos) | 14.00 | 8.50 | 8.50 | |
+17 | Contenedores de 40 pies (barcos) | 14.00 | 8.50 | 8.50 | |
+18 | Aviones de 0 a 12 pasajeros | 8.50 | 7.50 | 7.50 | |
+19 | Aviones de 13 a 20 pasajeros | 11.00 | 10.00 | 10.00 | |
+20 | Aviones de 61 a 100 pasajeros | 13.50 | 12.50 | 12.50 | |
+21 | Aviones de 101 a 200 pasajeros | 15.00 | 13.50 | 13.50 | |
+22 | Aviones de más de200 pasajeros | 16.50 | 16.00 | 16.00 | |
+23 | Aviones cargueros o ganaderos | 18.50 | 17.50 | 17.50 | |
+24 | Pieles. cueros y trofeos pequeños c/u | 2.50 | | | |
+25 | Pieles. cueros y trofeos medianos c/u | 4.00 | | | |
+26 | Pieles. cueros y trofeos grandes c/u | 5.50 | | | |
+27 | Residuos en muelles por cada 300 m2 | 25.50 | 25.50 | | |
+28 | Tratamiento en barcos por cada 1000 pies cúbicos | 17.50 | 17.50 | 17.50 | |
+29 | Semillas o granos de 1 gr. a 1k. | 4.00 | | | |
+30 | Por cada kilo de semilla o gramo adicional | 2.00 | | | |
+31 | Hongos y raíces medicinales o comestibles de 12 grs. a 1kgr. | 2.50 | | | |
+32 | Por cada kilo adicional de hongos y raíces | 1.50 | | | |
+33 | Para tratamientos a granel de granos. harinas. etc. Se aplicará el numeral 28
+34 | Botes | 5.50 | 5.50 | 5.50 | |
+35 | Lanchas | 8.50 | 8.50 | 8.50 | |
+36 | Yates | 15.50 | 15.50 | 15.50 | |
+37 | Pesqueros | 16.50 | 16.50 | 16.50 | |
+38 | Ganado en pie (Baño desparasitador c/u) | 3.00 | 3.00 | | |
+39 | Por cada kilo tratado de desechos de importancia cuarentenaria (incineración) 0.75
