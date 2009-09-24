@@ -1,0 +1,6 @@
+ARTÍCULO 22.- Documentación periódica
+El titular de la escuela de manejo deberá presentar, a la Dirección General de Educación Vial, las copias certificadas por un notario público y los originales, según sea el caso, de la siguiente documentación:
+a) Cada seis (6) meses: la revisión técnica de los vehículos autorizados, la certificación registral de la propiedad, la constancia de no tener obligaciones pendientes de pago ante el Consejo de Seguridad Vial, la constancia de que se encuentra al día en el pago de la póliza de riesgos del trabajo, y la renovación de la póliza de seguros indicada en el inciso g) del artículo 12 de esta Ley.
+b) Mensualmente: el registro de los alumnos que han recibido los cursos impartidos.
+c) Anualmente: el derecho de circulación y la revisión técnica vehicular vigente.
+La Dirección General de Educación Vial verificará mensualmente, por los medios informáticos o telemáticos puestos a disposición por la CCSS, la condición de morosidad de las escuelas de manejo; para ello, dejará la constancia respectiva, y, en caso de determinar que no se encuentra al día con sus obligaciones con la seguridad social, procederá a denegar o cancelar la autorización de funcionamiento.

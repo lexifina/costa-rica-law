@@ -1,0 +1,3 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.-
+Autorízase al Consejo de Seguridad Vial para que realice los gastos corrientes e inversiones que considere necesarios, con cargo al Fondo de Administración Vial creado por la Ley de administración vial, durante un lapso de veinticuatro (24) meses, a fin de agilizar y ejecutar las nuevas disposiciones de esta Ley. Se incluye la contratación de personal y la dotación de todos los insumos necesarios para el funcionamiento de la unidad competente, para el control y registro de las escuelas de manejo que administrará la Dirección General de Educación Vial; para ello, no estará afecto a las limitaciones de la Autoridad Presupuestaria, en materia de contratación de personal.
