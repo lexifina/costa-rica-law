@@ -14,3 +14,4 @@ Incuye Nota Técnica 38 a incisos arancelarios, en el Arancel Automatizado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-24 | la propia norma |
+| 2 | 2009-09-24 | Resolución 268 (2009-09-18) |

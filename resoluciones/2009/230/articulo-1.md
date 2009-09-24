@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE ADUANAS
+(Esta resolución fue dejada sin efecto por resolución N° 268 del 18 de setiembre de 2009)
 Resolución DGA-230-2009.—Dirección General de Aduanas.—San José, a las diez horas de diecisiete de agosto de dos mil nueve.
 Considerando:
 I.—Que el artículo 11 de la Ley General de Aduanas, dispone que “La Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera. En el uso de esta competencia, le corresponde la dirección técnica y administrativa de las funciones aduaneras que esta ley y las demás disposiciones del ramo le conceden al Servicio Nacional de Aduanas; la emisión de políticas y directrices para las actividades de las aduanas y dependencias a su cargo; el ejercicio de las atribuciones aduaneras y la decisión de las impugnaciones interpuestas ante ella por los administrados”. Lo anterior, en concordancia con los artículos 6 y 7 del Reglamento a la Ley General de Aduanas.
