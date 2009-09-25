@@ -14,3 +14,4 @@ Modifica decreto ejecutivo N° 27763 "Fijación de tarifas de los servicios del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-24 | la propia norma |
+| 2 | 2009-09-25 | Directriz 7 (2009-09-25) |
