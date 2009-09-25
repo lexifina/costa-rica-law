@@ -1,0 +1,1 @@
+2º—En ese ínterin se restituyen para todos los efectos y en forma provisional, las tarifas contenidas en el Decreto Nº 27763-MAG del 10 de marzo de 1999 y sus reformas, publicado en el Alcance Nº 26 de La Gaceta Nº 68 del 9 de abril de 1999.
