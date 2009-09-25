@@ -1,0 +1,1 @@
+Artículo 18.—Mobiliario y Equipo en reparación. La reparación y mantenimiento de mobiliario y equipo, se debe realizar a través de la Dirección Gestión de Medios, Dirección de Tecnología o Centro Tarjetas Bancrédito según corresponda, para lo cual se debe de observar la normativa sobre contratación administrativa vigente.

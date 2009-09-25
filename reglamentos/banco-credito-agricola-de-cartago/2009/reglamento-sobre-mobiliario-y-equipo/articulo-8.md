@@ -1,0 +1,1 @@
+Artículo 8º—Trámite de la Solicitud. La Oficina de Proveeduría y Licitaciones será la encargada de tramitar la adquisición de mobiliario y equipo, con base en lo establecido por la Ley de la Contratación Administrativa, su Reglamento y el Reglamento Interno para la Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 16.—Sobrantes de Mobiliario y Equipo. Si efectuado el inventario se determina que existe un bien sin incluir en el inventario de un colaborador, el encargado de la Oficina a la cual pertenece lo informará a la Oficina de Contabilidad para que proceda a su correcta asignación.

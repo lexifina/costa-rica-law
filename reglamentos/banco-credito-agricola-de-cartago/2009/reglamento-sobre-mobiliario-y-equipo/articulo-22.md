@@ -1,0 +1,1 @@
+Artículo 22.—Liquidación contable de Mobiliario y Equipo en desuso. Los bienes en desuso deben ser valorados por personal calificado. Aquellos bienes que han sido determinados como obsoletos o no reutilizables, podrán liquidarse contra la respectiva estimación contable, dejando la evidencia documental correspondiente.

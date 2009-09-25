@@ -1,0 +1,1 @@
+Artículo 19.—Control de Garantías. La Unidad Solicitante del bien, está en la obligación de verificar la vigencia de la garantía en el módulo de Bienes de Uso del SIAI, cada vez que se envíe mobiliario y/o equipo a reparación.

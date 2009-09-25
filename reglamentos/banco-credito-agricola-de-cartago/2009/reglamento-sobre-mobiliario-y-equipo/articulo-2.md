@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento permitirá la identificación de los responsables en la ejecución y tramitación del mobiliario y equipo adquirido por el Banco, así como su correcta contabilización, administración y custodia.

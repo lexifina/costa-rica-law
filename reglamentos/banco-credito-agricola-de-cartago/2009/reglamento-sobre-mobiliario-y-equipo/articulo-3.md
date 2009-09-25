@@ -1,0 +1,1 @@
+Artículo 3º—Responsables. Son responsables todos los colaboradores que tengan asignado mobiliario y equipo para llevar a cabo sus labores, así como las oficinas de Proveeduría y Licitaciones, Contabilidad, Seguridad Bancaria y las Direcciones de Gestión de Medios y Tecnología de Información.
