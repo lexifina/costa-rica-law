@@ -1,0 +1,1 @@
+Artículo 39.—Para facilitar los procesos de planificación y coordinación, la Dirección contará con dos instancias complementarias: el Consejo Asesor Regional y el Consejo de Supervisión de Centros Educativos. Asimismo, contará con un foro de reflexión y participación social denominado Consejo de Participación Comunal.

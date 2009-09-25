@@ -1,0 +1,1 @@
+Artículo 17.—Las Direcciones Regionales de Educación ejercerán sus funciones y competencias de acuerdo con las políticas educativas dictadas por el Consejo Superior de Educación, que buscan promover una mayor autonomía relativa y capacidad de decisión en los centros educativos, así como una mayor participación de la comunidad educativa.

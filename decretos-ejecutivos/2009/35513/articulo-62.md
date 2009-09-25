@@ -1,0 +1,1 @@
+Artículo 62.—La Dirección de Desarrollo Curricular, en coordinación con otras dependencias del nivel central que corresponda, establecerá los lineamientos técnicos y administrativos para el accionar de los Equipos Regionales Itinerantes (ERI), así como su relación como los Comités de Apoyo Educativo, de conformidad con la normativa que regula su funcionamiento.

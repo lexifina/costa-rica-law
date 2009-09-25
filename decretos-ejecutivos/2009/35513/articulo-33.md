@@ -1,0 +1,1 @@
+Artículo 33.—Para la interpretación del presente decreto, se entiende por Circuito Educativo al conjunto de centros educativos y servicios relacionados, en todos los ciclos, niveles y modalidades, dentro de una circunscripción territorial determinada, incluidos los programas públicos de educación para personas jóvenes y adultas.

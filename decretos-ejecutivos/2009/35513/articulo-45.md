@@ -1,0 +1,1 @@
+Artículo 45.—El Consejo Asesor Regional se reunirá, de manera ordinaria, una vez por mes. Para efectos de control y seguimiento, el Director o la Directora Regional de Educación llevará un registro de actas de las reuniones realizadas, detallando en cada caso la agenda, los participantes y una breve referencia de los temas tratados, así como los acuerdos adoptados.

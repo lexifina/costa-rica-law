@@ -1,0 +1,1 @@
+Artículo 16.—Las Direcciones Regionales de Educación, de conformidad con la política educativa y los lineamientos establecidos para tales efectos, serán responsables de promover la educación intercultural como instrumento para la contextualización de la política educativa, así como para enaltecer y fortalecer el carácter pluricultural y multiétnico de nuestra sociedad.

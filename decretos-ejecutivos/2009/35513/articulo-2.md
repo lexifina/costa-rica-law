@@ -1,0 +1,1 @@
+Artículo 2º—Las Direcciones Regionales de Educación, como parte integral de la organización administrativa del Ministerio de Educación Pública, constituyen la instancia representativa e integradora del sistema educativo costarricense en el nivel regional, así como el vínculo formal entre el nivel central y las comunidades educativas.

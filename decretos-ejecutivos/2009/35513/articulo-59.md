@@ -1,0 +1,1 @@
+Artículo 59.—El Departamento de Asesoría Pedagógica funcionará bajo la responsabilidad de un Jefe de Asesoría Pedagógica, nombrado de conformidad con los procedimientos y requisitos establecidos por la Dirección General de Servicio Civil, quien dependerá jerárquicamente del Director o la Directora Regional de Educación.

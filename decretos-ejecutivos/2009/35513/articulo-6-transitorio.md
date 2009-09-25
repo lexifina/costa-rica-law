@@ -1,0 +1,1 @@
+Transitorio VI.—La Dirección de Planificación Institucional, en un plazo máximo de tres meses contados a partir de la entrada en vigencia del presente decreto, deberá publicar y divulgar la nueva conformación de los Circuitos Educativos, según lo autorizado por las autoridades superiores del MEP.

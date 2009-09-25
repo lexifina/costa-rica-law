@@ -1,0 +1,1 @@
+Artículo 35.—La Dirección de Planificación Institucional, en coordinación con las Direcciones Regionales de Educación, revisará cada cinco años, contados a partir de la entrada en vigencia del presente decreto, la conformación de los Circuitos Educativos. Los cambios propuestos serán presentados a las autoridades superiores para su valoración y aprobación.

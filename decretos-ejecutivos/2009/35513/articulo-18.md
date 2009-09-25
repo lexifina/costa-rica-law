@@ -1,0 +1,1 @@
+Artículo 18.—Las Direcciones Regionales de Educación ejercerán sus funciones y atribuciones dentro de los criterios de descentralización y desconcentración, en los grados que fije la legislación nacional y los respectivos reglamentos, así como los criterios de desconcentración mínima que se establecen en el presente decreto.
