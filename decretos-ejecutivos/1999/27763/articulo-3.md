@@ -234,3 +234,4 @@ L.01 | Prueba de eficacia "in vitro" de garrapaticidas | US$2.500
 Las tarifas enumeradas deben ser canceladas al momento de solicitar el servicio. Las establecidas en US$ (dólares de los Estados Unidos), pueden ser canceladas en dólares o en colones de acuerdo al tipo de cambio del día en que se realiza la solicitud el servicio.
 (Así reformado por el artículo 1º del Decreto Ejecutivo Nº 32285, de 7 de febrero de 2005).
 (Así reformado por el artículo 1° del Decreto Ejecutivo N° 32593, de 3 de junio de 2005).
+(Nota de Sinalevi: La reforma realizada a este artículo por el artículo 1° del decreto ejecutivo N° 35504 del 6 de agosto de 2009, fue suspendida por un término de sesenta días por directriz N° 007 del 25 de setiembre de 2009, dentro de ese plazo se deberá dictar una disposición, así mismo por disposición del artículo 2 de la directriz en mención, este numeral recobra su texto que tenía antes de dicha reforma.)

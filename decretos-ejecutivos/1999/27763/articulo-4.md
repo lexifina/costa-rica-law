@@ -74,3 +74,4 @@ de importancia
 Cuarentenaria (incineración) 0,75
 Los montos que se obtengan por la aplicación del presente artículo serán recaudados administrados por el Ministerio de Agricultura y Ganadería, a través del Servicio Fitosanitario del Estado y del Servicio Nacional de Salud Animal, según corresponda.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 33600 del 8 de febrero de 2007)
+(Nota de Sinalevi: La reforma realizada a este artículo por el artículo 1° del decreto ejecutivo N° 35504 del 6 de agosto de 2009, fue suspendida por un término de sesenta días por directriz N° 007 del 25 de setiembre de 2009, dentro de ese plazo se deberá dictar una disposición, así mismo por disposición del artículo 2 de la directriz en mención, este numeral recobra su texto que tenía antes de dicha reforma.)
