@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de Vehículos del Ministerio de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-12 | la propia norma |
+| 2 | 2009-09-26 | Decreto Ejecutivo 35674 (2009-09-26) |

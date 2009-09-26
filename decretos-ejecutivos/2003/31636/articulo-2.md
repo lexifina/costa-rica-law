@@ -1,6 +1,7 @@
 Artículo 2º—Conceptos: Para los efectos del presente reglamento se definen los siguientes conceptos:
 a) MEP: Ministerio de Educación Pública.
-b) Unidad de Transportes: La dependencia administrativa encargada de la custodia, mantenimiento y buen uso de los vehículos del MEP, la que a la vez está obligada a prestar el servicio de transporte de acuerdo con la disponibilidad de unidades.
+b) Departamento de Transportes: La dependencia administrativa encargada de la custodia, mantenimiento y buen uso de los vehículos del Ministerio de Educación Pública, la que a la vez está obligada a prestar el servicio de transporte de acuerdo con la disponibilidad de unidades a los funcionarios del mismo.
+(Así reformado el inciso anterior por el artículo 1 subartículos 1 y 3 del decreto ejecutivo N° 35674 del 26 de setiembre de 2009)
 c) Funcionario: Todo servidor que se desempeñe a las órdenes de la administración, según lo dispuesto en el artículo 111 de la Ley General de la Administración Pública.
 d) Operador: Operador de Equipo Móvil nombrado para conducir vehículos del Ministerio de Educación y que desempeña esas funciones en forma permanente.
 e) Servicio de Transportes: El que preste el Ministerio de Educación a sus funcionarios para el desempeño de sus funciones.

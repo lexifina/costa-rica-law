@@ -1,1 +1,2 @@
-Artículo 47.—De las sanciones: Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo con la normativa vigente en el Estatuto de Servicio Civil, el Código de Trabajo, el Reglamento Interior de Trabajo y de las consignadas en el ordenamiento jurídico vigente.
+ARTÍCULO 47. La Dirección Financiera es el órgano competente, para solicitar al Banco de Costa Rica la confección de la tarjeta de Abastecimiento de Combustible.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 35674 del 26 de setiembre de 2009)

@@ -1,1 +1,2 @@
-Artículo 50.—De la vigencia: Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+ARTÍCULO 50. Una vez que el Departamento de Transportes cuente con las liquidaciones de todos los tarjetahabientes, para lo cual dispone de los primeros siete días naturales del mes siguiente a la fecha del mes que finaliza, presentara a la Dirección Financiera la información para que ésta proceda a realizar la cancelación del consumo de combustible mensual al Banco de Costa Rica.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 35674 del 26 de setiembre de 2009)

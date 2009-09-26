@@ -1,0 +1,2 @@
+Artículo 55.—Queda facultada la Dirección de Servicios Generales, para efectuar los cambios necesarios, en pro del mejoramiento del control interno, originados por la adquisición de nueva tecnología o modificación de procedimientos administrativos internos del Ministerio o de la Hacienda Pública. Estos cambios los comunicará en forma escrita a través de circulares.
+(Así corrida su numeración por el artículo 2 del decreto ejecutivo N° 35674 del 26 de setiembre de 2009, que lo traspaso del antiguo artículo 48 al 55 actual)

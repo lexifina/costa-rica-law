@@ -1,0 +1,2 @@
+Artículo 10 BIS.—De la Regulación del Uso de Taxis y pagos de Parqueos-La Dirección Financiera procederá con la liquidación respectiva al pago de taxi a los operadores en los casos en que las giras finalicen después de las 20 horas, salvo que cuente con autorización del Jefe de Transporte, Directores de Oficinas Centrales o Directores Regionales para que el vehículo permanezca en lugar distinto del establecido por el Ministerio de Educación Pública.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 35674 del 26 de setiembre de 2009)

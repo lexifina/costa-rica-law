@@ -1,3 +1,2 @@
-CAPÍTULO XII
-Disposiciones finales
-Artículo 46.—Del cumplimiento de la normativa: Es responsabilidad exclusiva de cada operador y del MEP como tal, en lo que corresponda a cada uno, el cumplimiento de lo establecido en el presente Reglamento. El funcionario que contravenga dichas disposiciones, asumirá las consecuencias que esa acción origine.
+ARTÍCULO 46. El Jefe del Departamento de Transportes debe presentar ante la Dirección Financiera la solicitud de confección de Tarjeta, para lo cual debe de incluir oficio de solicitud, boleta con información de parámetros suministrada por el Banco, certificación de que existe contenido presupuestario emitida por la autoridad competente responsable del programa presupuestario u Oficial Mayor.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 35674 del 26 de setiembre de 2009)
