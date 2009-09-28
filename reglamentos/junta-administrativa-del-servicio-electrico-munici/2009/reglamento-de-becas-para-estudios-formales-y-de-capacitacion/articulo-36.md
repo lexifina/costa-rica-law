@@ -1,0 +1,1 @@
+Artículo 36.—Será responsabilidad del Proceso Desarrollar Recursos Humanos analizar exhaustivamente las solicitudes de becas del concurso y seleccionar una terna, cuando la cantidad de candidatos sea superior a tres.

@@ -1,0 +1,1 @@
+Artículo 20.—Para los tópicos contemplados en los artículos 18 y 19 de este reglamento, ante un segundo oficio para que el becado presente los documentos que certifican la conclusión total de los estudios financiados a través de una beca o capacitación y que no sea atendido, JASEC estará facultada a gestionar el reintegro total del monto desembolsado en la beca.

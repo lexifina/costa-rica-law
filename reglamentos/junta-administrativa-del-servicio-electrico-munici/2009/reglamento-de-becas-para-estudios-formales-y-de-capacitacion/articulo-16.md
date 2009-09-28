@@ -1,0 +1,1 @@
+Artículo 16.—El becado laborará en la jornada ordinaria que tenga fijada y en la extraordinaria que sus superiores lo indiquen, cuando sea necesario, sin responsabilidad para JASEC en cuanto a las consecuencias que para la aprobación de los cursos tengan esas jornadas.

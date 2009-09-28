@@ -1,0 +1,1 @@
+Artículo 23.—El colaborador que desista injustificadamente de continuar con el proceso de educación formal se sancionará con el pago del reintegro y con inhabilitación por dos años para solicitar nuevas becas.

@@ -1,0 +1,1 @@
+Artículo 18.—Transcurrido un plazo mayor a dos meses calendario de la fecha en que el colaborador debió concluir la totalidad del proceso de educación formal, y no presente el documento probatorio (título), el Proceso Desarrollar Recursos Humanos procederá a notificar por escrito y asignará un tiempo prudencial no mayor a 15 días naturales, para su presentación.

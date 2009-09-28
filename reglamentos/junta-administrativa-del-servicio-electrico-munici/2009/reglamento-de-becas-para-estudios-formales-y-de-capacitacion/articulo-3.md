@@ -1,0 +1,3 @@
+Artículo 3º—Los objetivos de este reglamento son:
+Promover y facilitar la formación y capacitación de los funcionarios de JASEC, en los conocimientos, habilidades y destrezas que se requieren en el quehacer institucional, y en el fomento de la motivación, eficiencia y eficacia en la prestación de servicios, todo ello con miras a contribuir al logro de la Misión, Visión y objetivos empresariales de JASEC.
+Establecer un marco de referencia para determinar los alcances de los programas y actividades de capacitación de JASEC; así como establecer el conjunto de deberes y responsabilidades de los becados de la Institución.

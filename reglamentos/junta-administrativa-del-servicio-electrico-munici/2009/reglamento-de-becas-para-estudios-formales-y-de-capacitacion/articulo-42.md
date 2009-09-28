@@ -1,0 +1,1 @@
+Artículo 42.—Si un colaborador con beca solicita un permiso sin goce de salario con el fin de atender asuntos familiares considerados relevantes por la Comisión de Becas, podrá continuar con el beneficio de su beca.

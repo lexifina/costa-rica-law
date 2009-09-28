@@ -1,0 +1,1 @@
+Artículo 39.—La orden de presentación de los candidatos ante el ente patrocinador se realizará de manera descendente en las calificaciones obtenidas por los solicitantes (de mayor a menor) Asimismo, se remitirá la información con fundamento en el número de cupos asignados, a razón de un candidato por cupo.

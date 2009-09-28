@@ -1,0 +1,1 @@
+Artículo 32.—El colaborador interesado solicitará al Proceso Desarrollar Recursos Humanos el cartel con el detalle de las condiciones que ofrece la beca, así como generalidades respecto a la hora y fecha de cierre del concurso, la solicitud de beca y cualquier otra información pertinente al concurso.

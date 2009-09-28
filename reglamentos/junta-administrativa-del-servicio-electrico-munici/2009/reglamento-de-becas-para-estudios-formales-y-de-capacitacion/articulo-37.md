@@ -1,0 +1,1 @@
+Artículo 37.—La Comisión de Becas procederá a entrevistar a cada colaborador seleccionado para la terna, con el fin de evaluar -especialmente- las condiciones, competencias y características del aspirante, a fin de conocer a fondo su interés y la aplicación que los nuevos conocimientos puedan aportar a la Institución y por ende será quien resuelva al respecto.

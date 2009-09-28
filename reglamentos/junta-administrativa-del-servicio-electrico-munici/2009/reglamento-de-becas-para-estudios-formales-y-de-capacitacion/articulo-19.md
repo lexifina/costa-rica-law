@@ -1,0 +1,1 @@
+Artículo 19.—Transcurrido un plazo mayor a un mes calendario de la fecha en que el colaborador debió concluir la totalidad del proceso de capacitación, y no presente el documento probatorio (certificado), el Proceso Desarrollar Recursos Humanos procederá a notificar por escrito y asignará un tiempo prudencial no mayor a diez días naturales para su presentación.

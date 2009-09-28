@@ -1,0 +1,1 @@
+Artículo 33.—El Proceso Desarrollar Recursos Humanos, por las características, naturaleza de la beca y los registros-control, solo aceptará para el trámite de concursos, las solicitudes que reúnan plenamente los requisitos.

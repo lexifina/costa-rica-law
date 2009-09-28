@@ -1,0 +1,1 @@
+Artículo 14.—Para que el Proceso Desarrollar Recursos Humanos proceda con el trámite de desembolso, el colaborador becado presentará la pro-forma emitida por el Centro de Estudios, así como la certificación de las calificaciones obtenidas durante el período que antecede, incorporando todos los cursos matriculados, incluyendo los cursos aprobados, no aprobados o convalidados.

@@ -1,0 +1,1 @@
+Artículo 7º—Será potestad del facultado, aprobar las becas de los funcionarios no contemplados en el artículo anterior. Para ello, el interesado deberá solicitar la beca por escrito, con el visto bueno del superior inmediato.

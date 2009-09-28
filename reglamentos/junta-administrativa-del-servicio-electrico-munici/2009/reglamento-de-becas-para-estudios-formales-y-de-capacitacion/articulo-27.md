@@ -1,0 +1,1 @@
+Artículo 27.—Se considerará causa justa para no perder la beca y no será objeto de trámite de reintegro, la que se origine por enfermedad del becado, de su cónyuge, hijos o padres, que se encuentren debidamente certificada por médicos de la Caja Costarricense de Seguro Social y que la Comisión de Becas valide como tal.

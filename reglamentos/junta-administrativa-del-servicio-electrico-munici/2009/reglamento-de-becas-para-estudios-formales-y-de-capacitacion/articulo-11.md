@@ -1,0 +1,1 @@
+Artículo 11.—Aprobada la beca, el colaborador recibirá el formulario de Información del becado, en el Proceso Desarrollar Recursos Humanos, completará la información y la documentación que se indique en la Solicitud de becas y, finalmente, entregará los documentos al Proceso Desarrollar Recursos Humanos, quien efectuará las gestiones correspondientes.

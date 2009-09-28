@@ -1,0 +1,1 @@
+Artículo 31.—Para la divulgación del concurso, el Proceso Desarrollar Recursos Humanos utilizará los medios electrónicos y las vitrinas de divulgación, circulares y otros medios que considere idóneos.
