@@ -1,0 +1,14 @@
+SERVICIO NACIONAL DE SALUD ANIMAL
+DIRECCIÓN GENERAL
+DIRECTRIZ SENASA-DG-D005-2009
+Considerando:
+1º—Que el Servicio Nacional de Salud Animal (SENASA) tiene como competencia determinada por la Ley Nº 8495 del 06 de abril de 2006, entre otras administrar, planificar, dirigir y tomar medidas pertinentes en todo el país, para cumplir con los servicios, programas y campañas, en materia de prevención, control y erradicación de plagas y enfermedades.
+2º—Que conforme a lo estipulado en el artículo 8 de la referida Ley, el SENASA es un órgano de desconcentración mínima del Ministerio de Agricultura y Ganadería, que goza de personería jurídica instrumental, para realizar las competencias que le han sido otorgadas y administrar los recursos puestos a su disposición en la ejecución de las competencias referidas.
+3º—Que el SENASA, en aras de un mejor cumplimiento de sus competencias y funciones, ha venido consolidando una estructura funcional acorde con su naturaleza jurídica, con la finalidad de disponer directamente de sus recursos financieros y materiales, proveyendo con ello una administración más eficaz y oportuna.
+4º—Que dentro de la estructura organizacional establecida por el Decreto Nº 34319, “Reglamento de la Estructura Organizativa del Servicio Nacional de Salud Animal”, se creó una Unidad de Planificación y Control Interno, que tiene por objeto, asesorar y colaborar con el Director General SENASA, en materia de planificación y control interno, apoyando en el desarrollo de los planes y políticas del SENASA y en la implementación del sistema de control interno, como principio administrativo y herramienta fundamental para la rendición de cuentas en el sector público.
+5º—Que mediante Directriz Ministerial DM-SENASA-DIR-0002-2009, publicada en el Diario Oficial La Gaceta Nº 105 del 2 de junio del 2009, se ordenó al SENASA asumir la tutela y responsabilidad administrativa del régimen de planificación, control interno y gestión y procesos de calidad en la ejecución de sus competencias, funciones y tareas establecidas por ley respecto de estas materias. Igualmente estableció la obligatoriedad de disponer de un sistema de control interno, el cual debe contar con los criterios mínimos para el establecimiento, funcionamiento, mantenimiento, perfeccionamiento y evaluación del sistema. Por tanto,
+EL DIRECTOR GENERAL
+DEL SERVICIO NACIONAL DE SALUD ANIMAL,
+ACUERDA:
+Emitir la siguiente Directriz:
+Artículo 1º—Créase la Comisión de Control Interno, como órgano asesor de la Dirección General del SENASA, en materia de control interno. Lo anterior sin detrimento de las demás responsabilidades que establece la Ley General de Control Interno, Nº 8292, para la Dirección General, como principal responsable de establecer, perfeccionar y evaluar el sistema de control interno, en asocio de los subordinados y demás funcionarios, quienes tienen la responsabilidad de cumplir las acciones relativas a esta materia.

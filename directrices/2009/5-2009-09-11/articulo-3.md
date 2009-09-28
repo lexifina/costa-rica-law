@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión de Control Interno tendrá como objetivo principal conocer, revisar, aprobar y dar seguimiento al plan anual de operación, en materia de Control Interno, propuesto por la Unidad de Planificación y Control Interno, con el fin de cumplir con los objetivos establecidos en la presente Directriz.

@@ -1,0 +1,1 @@
+Artículo 6º—La administración activa del SENASA, debe facilitar la labor de la Unidad de Planificación y Control Interno, mediante el trabajo conjunto y brindando oportunamente, con suficiencia, certeza y claridad la información requerida.
