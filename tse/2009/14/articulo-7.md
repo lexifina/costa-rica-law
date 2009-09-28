@@ -1,0 +1,2 @@
+Adquisición, uso y resguardo de los equipos informáticos
+Artículo 7º—Del inventario y control de los recursos informáticos. El DTIC llevará y mantendrá el inventario de los recursos informáticos así como el control de la ubicación de los equipos de cómputo en las dependencias del Tribunal, así como de las licencias de uso del software adquirido. Igualmente cada dependencia debe asignar un responsable de elaborar y mantener su inventario de recursos informáticos y deberá informar a su superior inmediato y al DTIC, sobre cualquier cambio del estado o ubicación del activo.

@@ -1,0 +1,1 @@
+Artículo 12.—Asistencia técnica del DTIC. Las ampliaciones, modificaciones o adquisición de equipo de cómputo, así como la actualización y compra de software, se harán con la asistencia técnica del DTIC o del Comité Gerencial de Informática según corresponda.

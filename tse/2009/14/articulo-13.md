@@ -1,0 +1,1 @@
+Artículo 13.—Ubicación de los equipos de cómputo. El equipo de cómputo asignado a cada uno de los usuarios del Tribunal será ubicado en lugares que ofrezcan protección a dichos equipos y comodidad a los usuarios finales. El DTIC emitirá los criterios técnicos correspondientes y los jefes y encargados de las dependencias serán los responsables de velar por su cumplimiento.

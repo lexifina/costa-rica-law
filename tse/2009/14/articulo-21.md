@@ -1,0 +1,2 @@
+Aseguramiento de la información
+Artículo 21.—Acceso a los sistemas informáticos. En las oficinas que cuenten con una red de equipo de cómputo se utilizará la cuenta de usuario de dominio asignada por el Tribunal, así como la clave de acceso u otros dispositivos de identificación del usuario, para el acceso a los sistemas informáticos desarrollados por el DTIC. Para utilizar aquellos sistemas informáticos adquiridos por el Tribunal, se utilizaran palabras claves u otros dispositivos de identificación de usuario.
