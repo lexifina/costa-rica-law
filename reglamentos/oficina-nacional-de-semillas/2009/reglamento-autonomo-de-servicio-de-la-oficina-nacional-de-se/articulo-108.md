@@ -1,0 +1,1 @@
+Artículo 108.—El Órgano Director analizará la denuncia a efecto de determinar si procede la investigación ordenada, en caso contrario, se remitirá al Superior Jerárquico respectivo, las razones que motivan su inadmisibilidad, salvo en los casos de acoso sexual, en que se procede a la apertura del expediente al momento de recibo de la denuncia.

@@ -1,0 +1,1 @@
+Artículo 4º—Todos aquellos servidores que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante LA ONS de velar por la correcta aplicación de las disposiciones del presente Reglamento.

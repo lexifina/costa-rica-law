@@ -1,0 +1,1 @@
+Artículo 16.—Los servidores tendrán derecho a cinco días hábiles libres en caso de su matrimonio o de fallecimiento de sus padres, hijos o esposa o de otra persona que dependa directamente de él, a partir del momento que el evento suceda.

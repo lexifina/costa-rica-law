@@ -1,0 +1,1 @@
+Artículo 106.—El Órgano Director del Procedimiento Administrativo y se encargará de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor, a excepción de aquellas faltas en materia de asistencia que se regirá por lo ya establecido en el presente Reglamento.

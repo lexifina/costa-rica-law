@@ -1,0 +1,1 @@
+Artículo 40.—En todos los casos el servidor deberá notificar a su jefe inmediato, verbal o por escrito, las causas que le impiden asistir a su trabajo a más tardar dentro del segundo día de ausencia. Por ninguna razón, salvo la de fuerza mayor, podrá esperar hasta el segundo día para notificarlo.

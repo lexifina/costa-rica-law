@@ -1,0 +1,2 @@
+Artículo 130.—El Órgano Director tendrá un plazo máximo de dos meses a partir de la apertura del expediente administrativo para emitir la recomendación final. No obstante si por alguna razón el Órgano Director no ha podido realizar los actos o actuaciones previstos dentro del plazo señalado o por suspensión del plazo por fuerza mayor, el Director Ejecutivo de la ONS podrá prorrogar el mismo, por un término igual o menor.
+En el proceso por acoso u hostigamiento sexual se tendrá un plazo improrrogable de tres meses.

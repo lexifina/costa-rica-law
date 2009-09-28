@@ -1,0 +1,1 @@
+Artículo 32.—En caso de que por irregularidades en la asistencia proceda el despido sin responsabilidad patronal, el Departamento Administrativo Financiero remitirá todos los atestados a quien corresponda, a efecto de que se proceda con el trámite de la gestión de despido.

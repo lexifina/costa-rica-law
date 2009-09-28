@@ -1,0 +1,1 @@
+Artículo 53.—Para la concesión de las licencias de estudio, el interesado deberá presentar la documentación completa en el Departamento Administrativo Financiero, que la remitirán al Director Ejecutivo, previa valoración del cumplimiento de los requisitos formales que éste señala.

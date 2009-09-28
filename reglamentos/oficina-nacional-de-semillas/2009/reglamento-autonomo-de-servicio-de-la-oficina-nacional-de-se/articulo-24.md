@@ -1,0 +1,1 @@
+Artículo 24.—Cuando el Director Ejecutivo o su delegado al efecto, lo estime necesario, los servidores quedarán en la obligación de trabajar horas extraordinarias hasta el máximo permitido por ley, salvo que por razones de índole grave, debidamente comprobada por el jefe inmediato, se le faculte para no hacerlo.

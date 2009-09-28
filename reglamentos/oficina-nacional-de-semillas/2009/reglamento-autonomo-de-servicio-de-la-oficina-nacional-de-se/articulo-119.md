@@ -1,0 +1,1 @@
+Artículo 119.—Podrán también llevarse a cabo en otra sede, por economía de gastos o cualquiera otra ventaja administrativa evidente, si ello es posible sin pérdida de tiempo ni perjuicio grave de las partes.

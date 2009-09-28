@@ -1,0 +1,1 @@
+Artículo 67.—Los servidores tendrán derecho a devengar el salario escolar de acuerdo con la normativa vigente. Su efectividad se realizará cuando termine el contrato laboral o dentro del mes de enero.

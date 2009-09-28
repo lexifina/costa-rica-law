@@ -1,0 +1,1 @@
+Artículo 54.—El servidor a quien se le concedió licencia para asistir a cursos de estudio, deberá presentar al Departamento Administrativo Financiero, certificación constancia del resultado de las materias contratadas, la cual se remitirá al jefe inmediato del servidor.

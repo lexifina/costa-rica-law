@@ -1,0 +1,1 @@
+Artículo 62.—El Departamento Administrativo Financiero hará los ajustes necesarios para equiparar los salarios al mínimo establecido por ley, y lo incluirá en el presupuesto extraordinario o modificación correspondiente.

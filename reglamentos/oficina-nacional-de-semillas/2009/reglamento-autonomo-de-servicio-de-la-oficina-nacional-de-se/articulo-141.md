@@ -1,0 +1,1 @@
+Artículo 141.—El Recurso de Reposición contra el acto final del Jerarca se regulará por las disposiciones contenidas en la Ley Reguladora de la Jurisdicción Contencioso Administrativa y Ley General de la Administración Pública.

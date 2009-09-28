@@ -1,0 +1,1 @@
+Artículo 118.—Las diligencias de evacuación de pruebas, deberán tener lugar normalmente en la sede del Órgano Director, pero si hubiere que hacer un reconocimiento o se requiriere prueba pericial se podrá efectuar en el lugar de los hechos.

@@ -1,0 +1,1 @@
+Artículo 35.—De acuerdo con el artículo anterior, la justificación de las llegadas tardías tendrá como efecto la no aplicación del régimen disciplinario. No obstante, excedido el límite establecido, las llegadas tardías se contabilizarán como injustificadas y se sancionarán según se establece en el artículo 36.

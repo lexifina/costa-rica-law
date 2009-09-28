@@ -1,0 +1,1 @@
+Artículo 114.—La citación a los involucrados y testigos deberá hacerse con cinco días hábiles de anticipación, salvo disposición en contrario o caso de urgencia en el cual podrá prescindirse del plazo y hacerse venir al citado en el momento mismo.

@@ -1,0 +1,1 @@
+Artículo 133.—El Departamento Administrativo Financiero deberá remitir en el plazo máximo de diez días según la complejidad del asunto la información y documentos necesarios, a la Asesoría Legal para el trámite correspondiente.

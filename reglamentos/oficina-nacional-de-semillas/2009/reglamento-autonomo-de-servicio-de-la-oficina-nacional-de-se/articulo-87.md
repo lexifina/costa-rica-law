@@ -1,0 +1,1 @@
+Artículo 87.—La elección de los representantes de la Comisión Institucional se hará de conformidad con lo establecido en el Decreto Ejecutivo N° 18979-TSS del 9 de junio de 1998 y sus reformas, el cual suplirá este Reglamento en lo concerniente a esta materia.

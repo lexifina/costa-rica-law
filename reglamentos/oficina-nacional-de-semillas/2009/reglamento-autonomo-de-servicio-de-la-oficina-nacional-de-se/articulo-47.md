@@ -1,0 +1,3 @@
+Artículo 47.—Los servidores de la ONS tendrán derecho a gozar sin interrupción su periodo de vacaciones, y podrán dividirlas de común acuerdo con el patrono cuando se trata de labores de índole especial que no permitan una ausencia muy prolongada.
+Si vencido el periodo vacacional no se hubiere disfrutado el mismo, el jefe inmediato en coordinación con el Departamento Administrativo Financiero le indicarán al servidor la fecha para el disfrute de las mismas.
+El trámite de vacaciones deberá efectuarse con cinco días de anticipación salvo casos de urgencia. La solicitud deberá contar con el visto bueno del Departamento Administrativo Financiero, previa aprobación del jefe inmediato.

@@ -1,0 +1,1 @@
+Artículo 12.—Los servidores nombrados en propiedad, podrán solicitar al Departamento Administrativo Financiero, el trámite de reasignación, siempre que se considere que las funciones del mismo han variado sustancialmente y esté conforme a la normativa vigente.

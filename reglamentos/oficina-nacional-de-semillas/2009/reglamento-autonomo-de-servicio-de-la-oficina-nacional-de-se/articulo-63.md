@@ -1,0 +1,1 @@
+Artículo 63.—La ONS pagará los salarios a su personal los días 15 y 30 de cada mes. En caso de coincidir el pago con un feriado, se procederá al pago de salarios el día hábil inmediato anterior. Dicho pago se efectuará mediante depósito en un banco del estado con cobertura nacional, a través de la cuenta de ahorro o cuenta corriente de cada uno de sus funcionarios.

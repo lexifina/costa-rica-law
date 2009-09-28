@@ -1,0 +1,1 @@
+Artículo 14.—Los servidores podrán disfrutar del tiempo necesario para asistir a sus citas médicas, así como las de sus familiares que ineludiblemente lo requieran, debiendo acreditar el tiempo utilizado mediante el respectivo comprobante de asistencia médica que emita la entidad de que se trata, a fin de que no proceda al rebajo salarial.

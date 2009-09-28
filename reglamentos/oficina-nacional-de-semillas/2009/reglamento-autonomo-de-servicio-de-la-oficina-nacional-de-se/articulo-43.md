@@ -1,0 +1,1 @@
+Artículo 43.—En caso de terminación del contrato antes de cumplir el periodo de cincuenta semanas, el servidor tendrá derecho, como mínimo, a un día de vacaciones por cada mes trabajado, que le será pagado en el momento de retiro de su trabajo.

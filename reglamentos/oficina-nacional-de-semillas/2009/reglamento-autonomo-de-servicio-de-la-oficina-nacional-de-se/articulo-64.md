@@ -1,0 +1,1 @@
+Artículo 64.—Los servidores que, en el ejercicio de sus funciones, deban viajar dentro o fuera del país tendrán derecho a que se les reconozca los gastos de transporte y viáticos, concernientes en pasajes, alimentación y hospedaje, los cuales se cancelarán de conformidad con los Reglamentos vigentes. Estos pagos no se consideraran parte del salario.

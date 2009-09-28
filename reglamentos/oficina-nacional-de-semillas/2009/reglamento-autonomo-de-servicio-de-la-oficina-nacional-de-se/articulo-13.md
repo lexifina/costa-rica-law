@@ -1,0 +1,3 @@
+Artículo 13.—Las servidoras de la ONS en estado de gravidez, tendrán derecho a licencia por cuatro meses con goce de sueldo completo, distribuidos de común acuerdo entre las partes.
+Así mismo, podrán gozar de una hora diaria de lactancia. Para tal efecto se solicitará a la Caja Costarricense de Seguro Social extender los dictámenes correspondientes hasta por un término máximo de 15 meses de edad del lactante. Pasado este período solo se podrá ampliar por recomendación de la Caja Costarricense de Seguro Social.
+Lo no estipulado aquí en relación con las licencias por maternidad se regirá por lo dispuesto en el Reglamento del Seguro de Invalidez, Vejez y Muerte de la Caja Costarricense del Seguro Social.

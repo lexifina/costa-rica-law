@@ -1,0 +1,1 @@
+Artículo 71.—Todo jefe está en la obligación de evaluar a sus subalternos. Para esto el Departamento Administrativo Financiero girará las instrucciones a quien corresponda y remitirá los formularios respectivos.

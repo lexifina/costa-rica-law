@@ -1,0 +1,4 @@
+Artículo 102.—El abandono de labores será sancionado en la siguiente forma:
+102.1 La primera vez, apercibimiento escrito.
+102.2 La segunda vez, suspensión sin goce de salario, hasta por ocho días.
+102.3 La tercera vez, despido sin responsabilidad patronal.

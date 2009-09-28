@@ -1,0 +1,1 @@
+Artículo 135.—Una vez dictada la resolución por parte del Jerarca de la Institución, deberá remitirse a las instancias externas de la ONS para el trámite de rigor. Es responsabilidad del gestionante efectuar los trámites correspondientes para su efectivo pago en caso de corresponderle.

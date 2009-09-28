@@ -1,0 +1,1 @@
+Artículo 31.—El Departamento Administrativo Financiero deberá dar audiencia a los servidores por tres días conforme las reglas del debido proceso. Pasado dicho plazo resolverá e impondrá las sanciones que correspondan. Tales sanciones deben imponerse dentro del mes siguiente al que se cometió la falta.

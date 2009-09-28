@@ -1,0 +1,1 @@
+Artículo 104.—Las faltas no previstas en el presente Reglamento serán sancionadas conforme a la Ley General de Administración Pública, Código de Trabajo y demás normativas de Derecho Público que corresponda.

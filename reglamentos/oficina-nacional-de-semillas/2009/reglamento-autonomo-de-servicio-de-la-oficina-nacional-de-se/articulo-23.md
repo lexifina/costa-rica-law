@@ -1,0 +1,1 @@
+Artículo 23.—El Director Ejecutivo o en quien delegue, podrán autorizar el trabajo de horas extras sólo en situaciones excepcionales, cuando sea indispensable satisfacer necesidades esenciales de servicio público y se cuente con contenido presupuestario o económico para ello o en su defecto, compensarlas con tiempo proporcional.

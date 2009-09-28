@@ -1,0 +1,1 @@
+Artículo 69.—El Departamento Administrativo Financiero deberá velar por la confidencialidad de los expedientes, a los cuales tendrán acceso únicamente el interesado, así como el Director Ejecutivo, la Asesoría Legal y el Auditor Interno.

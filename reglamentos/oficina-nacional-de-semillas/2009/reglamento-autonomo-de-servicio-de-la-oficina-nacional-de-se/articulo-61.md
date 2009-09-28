@@ -1,0 +1,1 @@
+Artículo 61.—La ONS actualizará cada año el Manual Descriptivo de Puestos, el cual determinará de forma clara y precisa las tareas cotidianas y suplementarias de los puestos. Este Manual a su vez contendrá los deberes, las obligaciones y los requisitos mínimos de cada clase de puestos.
