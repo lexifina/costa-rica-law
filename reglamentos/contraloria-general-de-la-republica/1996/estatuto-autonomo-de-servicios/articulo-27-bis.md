@@ -1,0 +1,11 @@
+Artículo 27 Bis.—Por la índole de sus funciones, se posibilita el descenso voluntario de funcionarios que ocupen una plaza regular en los cargos de Jefe de Unidad y Asistente Técnico, de acuerdo con lo siguiente:
+1. Cumplir con los supuestos que se indican:
+a) Que medie voluntad libre y expresa del funcionario.
+b) Que el descenso sea a una plaza regular en el cargo de Fiscalizador y la Contraloría General disponga de ella en forma definitiva, en el programa presupuestario respectivo.
+c) Que exista anuencia de la Gerencia de División a la que pertenece el funcionario y de la Unidad de Gestión del Potencial Humano.
+2. Debe sujetarse además al siguiente procedimiento:
+a) El funcionario dirigirá una solicitud escrita al Gerente de División del cual depende, con el visto bueno del Gerente de Área, cuando ello corresponda,, indicando expresamente que desea descender de puesto y las razones que motivan su petición.
+b) Dicha solicitud será remitida por el Gerente de División, en un plazo máximo de diez días hábiles, a la Unidad de Gestión del Potencial Humano, para su correspondiente análisis y verificación del cumplimiento de los supuestos señalados en el punto 1 de esta norma. En la nota de remisión el Gerente de División manifestará si está anuente con la solicitud del funcionario.
+c) De ser viable el descenso solicitado, la Unidad de Gestión del Potencial Humano así se lo indicará al Gerente de División e informará por escrito al funcionario interesado sobre las funciones, condiciones, salario del nuevo puesto y ubicación en la estructura interna de la entidad, previniéndole que en un plazo de cinco días hábiles presente a la Unidad de Gestión del Potencial Humano una declaración jurada en la que indique que el trámite es voluntario y que acepta las nuevas funciones y condiciones salariales que se derivan del descenso.
+d) Una vez cumplidas las anteriores formalidades, la Unidad de Gestión del Potencial Humano tramitará ante el Despacho Contralor la resolución que formalizará el descenso. Posterior a la notificación de la resolución al funcionario interesado y al Gerente de la División de la cual depende, se tramitará el respectivo movimiento de personal.
+(Así adicionado mediante resolución R-DC-56-2009 del 29 del setiembre de 2009)
