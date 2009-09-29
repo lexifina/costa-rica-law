@@ -1,0 +1,2 @@
+Artículo 7º—El Consejo Regional estará integrado por once miembros, con derecho a voz y voto, nueve de ellos electos por mayoría simple en la Asamblea del Consejo, quienes durarán en su función el periodo de tres años.
+Un miembro que será electo por la Asamblea entre los representantes designados por las Municipalidades, por un periodo de dos años, pudiendo ser reelecto y la Secretaría Ejecutiva, ejercida por el Director (a) del Área de Conservación de Guanacaste. La juramentación de los miembros la realizará el Secretario Ejecutivo del CORAC.

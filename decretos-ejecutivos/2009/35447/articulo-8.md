@@ -1,0 +1,1 @@
+Artículo 8º—En la primera sesión ordinaria posterior a los 15 días siguientes al nombramiento del Consejo Regional se integrará un Comité Ejecutivo formado por un Presidente (a), un Vicepresidente (a), un Secretario (a), un Tesorero (a), y cinco Vocales.

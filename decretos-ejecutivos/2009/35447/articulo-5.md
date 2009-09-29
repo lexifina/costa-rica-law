@@ -1,0 +1,2 @@
+Artículo 5º—Para elegir a los miembros del CORAC, el Director (a) del ACG realizará la respectiva convocatoria pública a las organizaciones no gubernamentales y comunales interesadas, legalmente constituidas; municipalidades y las instituciones públicas presentes en el Área. Dicha convocatoria deberá realizarse con un mes de anterioridad a la celebración de la misma, mediante aviso publicado por una única vez, en un medio escrito de comunicación regional.
+La Asamblea dará inicio con los representantes acreditados y el quórum para toma de acuerdos será por mayoría simple.

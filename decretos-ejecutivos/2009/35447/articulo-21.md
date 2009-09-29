@@ -1,0 +1,1 @@
+Artículo 21.—De las normas supletorias. Para todo lo no establecido, aplica lo estipulado en los artículos 30 y siguientes del Reglamento a la Ley de Biodiversidad y lo dispuesto en la Ley General de Administración Pública con respecto a los órganos colegiados.
