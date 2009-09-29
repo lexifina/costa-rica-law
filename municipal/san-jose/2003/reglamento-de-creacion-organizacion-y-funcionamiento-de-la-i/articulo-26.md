@@ -1,1 +1,0 @@
-Artículo 26.—Información al Concejo Municipal. Semestralmente, durante los meses de julio y enero de cada año, la Instancia remitirá al Alcalde un informe detallado de sus gestiones, en las diversas áreas de su accionar. El Alcalde lo trasladará al Concejo, para su conocimiento.

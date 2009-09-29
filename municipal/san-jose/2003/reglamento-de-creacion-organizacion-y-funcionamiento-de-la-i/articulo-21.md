@@ -1,1 +1,0 @@
-Artículo 21.—Interposición de denuncias ante el Ministerio Público. Si durante el desarrollo de sus funciones, la Instancia encuentra indicios suficientes de que los hechos examinados podrían acarrear responsabilidad penal, trasladará el conocimiento del asunto al Alcalde, para que con la asesoría de la Dirección de Asuntos Legales, valore su remisión al Ministerio Público.

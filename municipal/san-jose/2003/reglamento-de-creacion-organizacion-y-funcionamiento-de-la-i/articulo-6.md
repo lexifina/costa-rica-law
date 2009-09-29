@@ -1,1 +1,0 @@
-Artículo 6º—Área de Atención de Quejas y Denuncias. Propiciará una amplia participación ciudadana, estableciendo procedimientos de atención de quejas. Integrará las Auditorías Ciudadanas, para atender denuncias en los supuestos y bajo los procedimientos que contempla este Reglamento.

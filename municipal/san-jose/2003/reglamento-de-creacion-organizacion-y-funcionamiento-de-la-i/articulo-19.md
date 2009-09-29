@@ -1,1 +1,0 @@
-Artículo 19.—Levantamiento de expedientes. De todos los asuntos que tramite, la Instancia levantará un expediente debidamente numerado, sellado y foliado, que contendrá toda la documentación relativa al caso.

@@ -1,4 +1,0 @@
-Artículo 14.—Nombramiento e Instalación de la Auditoría Ciudadana. Los auditores ciudadanos desempeñarán sus cargos en forma gratuita y para su nombramiento e instalación se procederá de la siguiente forma:
-a) Una vez remitidos los nombres de los auditores ciudadanos previstos en los incisos 1) y 2), así como las listas de elegibles a que alude el inciso 4), todos del numeral 10, la Instancia procederá a la realización de los sorteos previstos en los incisos 3 y 5 de la misma norma.
-b) Concluidos dichos procedimientos, los auditores ciudadanos contarán con un plazo de tres días para la aceptación formal de sus cargos. Igual plazo tendrá el Alcalde para proceder a su juramentación.
-Las Auditorías Ciudadanas tendrán a su cargo un máximo de siete denuncias y los auditores ciudadanos durarán en sus cargos hasta la emisión del acto firme que en la vía administrativa dé por concluidas las investigaciones correspondientes.
