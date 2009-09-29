@@ -1,0 +1,1 @@
+Artículo 2º—Criterios de valoración. Para la valoración del bien inmueble de uso habitacional se deberá aplicar los criterios técnicos de valoración establecidos por la Dirección General de Tributación, de conformidad con lo dispuesto el artículo 4º de la Ley Nº 8683.

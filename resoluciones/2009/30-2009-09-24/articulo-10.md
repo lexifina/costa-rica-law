@@ -1,0 +1,1 @@
+Artículo 10.—Anexo A. Forma parte de esta resolución el documento denominado “Factores de corrección para la valoración de terrenos” de la Dirección General de Tributación, el cual constituye el Anexo A.
