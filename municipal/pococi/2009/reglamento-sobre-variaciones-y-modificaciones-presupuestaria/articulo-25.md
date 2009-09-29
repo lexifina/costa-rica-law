@@ -1,0 +1,2 @@
+Artículo 25—Obligatoriedad de lo establecido en este Reglamento. Lo establecido en el presente Reglamento es de carácter vinculante para la Municipalidad de Pococí. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Por mayoría de 8 votos a favor y 1 en contra, se acuerda: Aprobar el Reglamento y se corrija sobre Variaciones y Modificaciones Presupuestarias. Dispénsese del Trámite de Comisión. Acuerdo definitivamente aprobado. La Regidora Ruth Mery Díaz Villarreal vota en contra. Publíquese en el Diario Oficial La Gaceta

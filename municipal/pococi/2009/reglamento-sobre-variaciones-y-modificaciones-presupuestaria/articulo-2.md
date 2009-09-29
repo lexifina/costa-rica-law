@@ -1,0 +1,13 @@
+Artículo 2º—Definiciones. Para los efectos del presente reglamento se entenderá por:
+Jerarca: El Concejo Municipal.
+Autoridad superior administrativa: El Alcalde Municipal
+a) Administración activa: Conjunto de órganos y entes de la administración que deciden y ejecutan, incluye al Jerarca.
+b) Unidad administrativa: órgano o ente de la administración.
+c) Unidad Presupuestaria: La Unidad de Presupuesto de la Municipalidad del Cantón de Pococí.
+Bloque de legalidad: Conjunto de normas jurídicas, escritas y no escritas, a cuya observancia se encuentra obligada la Administración Pública, el cual comprende tanto la ley como las normas de rango superior, igual o inferior a ésta, incluidos los principios generales y las reglas de la ciencia o de la técnica.
+Clasificador de ingresos: Instrumento normativo que ordena y agrupa los recursos con que cuentan las entidades, en categorías homogéneas definidas en función de la naturaleza y características de las transacciones que dan origen a cada una de las fuentes de recursos.
+Clasificador por objeto del gasto: Conjunto de cuentas de gastos, ordenadas y agrupadas de acuerdo con la naturaleza del bien o servicio que se esté adquiriendo o la operación financiera que se esté efectuando.
+Presupuesto: Instrumento que expresa en términos financieros el Plan Operativo Anual institucional, mediante la estimación de los ingresos y egresos necesarios para cumplir con los objetivos y las metas de los programas establecidos.
+Presupuesto extraordinario: Mecanismo que tiene por objeto incorporar al presupuesto los ingresos extraordinarios y los gastos correspondientes, cuyas fuentes son el crédito público y cualquier otra extraordinaria según el artículo 177 de la Constitución Política, los recursos excedentes entre los ingresos presupuestados y los percibidos así como los recursos del superávit. Además, tiene el propósito de registrar las disminuciones de ingresos y el efecto que dichos ajustes tienen en el presupuesto de egresos, así como cuando se sustituyen por otras las fuentes de financiamiento previstas, sin que se varíe el monto total de presupuesto previamente aprobado.
+Modificación Presupuestaria: Toda variación que se haga en los egresos presupuestados y que tenga por objeto aumentar o disminuir los diferentes gastos corrientes o de capital sin modificar el monto del presupuesto aprobado, o incorporando otros que no habían sido considerados.
+Plan Anual Operativo: Instrumento en el cual se concretan las políticas de la institución, mediante la definición de objetivos, acciones indicadores, y metas que deberán ejecutarse durante un determinado periodo presupuestario.
