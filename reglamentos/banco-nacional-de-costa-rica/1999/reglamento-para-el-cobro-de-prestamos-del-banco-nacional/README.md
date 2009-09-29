@@ -28,3 +28,4 @@ Reglamento para el Cobro de Préstamos del Banco Nacional
 | 13 | 2006-12-14 | Reglamento 11409 (2006-12-14) |
 | 14 | 2009-03-17 | Reglamento 11531 (2009-03-17) |
 | 15 | 2009-07-21 | Reglamento 11560 (2009-07-21) |
+| 16 | 2009-09-29 | Reglamento 11574 (2009-09-29) |
