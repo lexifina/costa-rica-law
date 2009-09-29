@@ -14,3 +14,4 @@ Consulta sobre la interpretación del artículo 29 del Reglamento de Elecciones 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-29 | la propia norma |
+| 2 | 2009-09-29 | Resolución 4404 (2009-09-24) |
