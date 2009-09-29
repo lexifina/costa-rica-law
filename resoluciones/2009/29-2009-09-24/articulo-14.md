@@ -1,0 +1,1 @@
+Artículo 14.—Pago electrónico obligatorio. Todos los sujetos pasivos o contribuyentes del Impuesto Solidario están obligados a pagar el impuesto en forma electrónica (en Tributación Digital y en Tribunet), dentro de los quince días naturales del mes de enero de cada año, salvo lo dispuesto en el párrafo segundo del artículo 3 de esta Resolución en lo referente al pago.

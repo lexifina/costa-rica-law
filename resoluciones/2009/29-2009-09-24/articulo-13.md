@@ -1,0 +1,1 @@
+Artículo 13.—Declaración de los concesionarios, permisionarios y ocupantes de la zona marítimo terrestre y zona fronteriza. En estos casos los contribuyentes deben declarar y pagar únicamente sobre la construcción e instalaciones fijas y permanentes, destinadas a uso habitacional.

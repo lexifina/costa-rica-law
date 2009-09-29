@@ -1,0 +1,1 @@
+Artículo 5º—Carácter obligatorio de la declaración jurada electrónica. De conformidad con lo dispuesto en el artículo 122 del Código de Normas y Procedimientos Tributarios, los contribuyentes del Impuesto Solidario, deberán presentar por Tributación Digital y en Tribunet las declaraciones a las que están obligados conforme con lo dispuesto en la Ley Nº 8683 y su Reglamento.
