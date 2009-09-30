@@ -14,3 +14,4 @@ Reforma Régimen Tarifario para la Prestación de Servicios y Facilidades no Aer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-31 | la propia norma |
+| 2 | 2009-09-30 | Decreto Ejecutivo 35620 (2009-09-30) |

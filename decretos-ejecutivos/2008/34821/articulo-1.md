@@ -39,7 +39,7 @@ Hangares | 2,70
 Terrenos destinados a construir hangares | 2,00
 Aeródromos de Primera Categoría Clase (B) Aeropuerto Internacional Tobías Bolaños Palma
 Hangares | 2,70
-Terrenos destinados a construir hangares | 1,33
+(*)Terrenos destinados a construir hangares | 1,33
 Aeródromos Primera Categoría Clase (C) Aeropuerto Internacional de Limón
 Hangares | 2,70
 Terrenos destinados a construir hangares | 0,07
@@ -49,6 +49,11 @@ Terrenos destinados a construir hangares | 0,07
 Aeródromos de Tercera Categoría
 Hangares | 2,70
 Terrenos destinados a construir hangares | 0.07
+(*)(Nota de Sinalevi: Mediante artículo 1° del decreto ejecutivo N° 35620 del 30 de setiembre de 2009 se modifica la tarifa a cobrar por uso de terreno en los aeropuertos de Primera Categoría Clase B “Terrenos destinados a construir hangares en el Aeropuerto Internacional Tobías Bolaños Palma, por lo que se establece que la tarifa por m2 será la siguiente:
+"...(Tarifa en USD $ americano por m2)
+Año Actual | 2010 | 2011 | 2012
+0.21 | 0.26 | 0.31 | 0.36
+Esta Tarifa podrá será reajustada con base en los incrementos que se aprueben por concepto de inflación, tipos de cambio, tasas de interés o cualquier otra variable que se considere pertinente, observando para ello los principios de igualdad, competitividad de las tarifas y equilibrio económico.")
 a. Por utilización de área de rampa en despacho aéreo y suministro de alimentos y bebidas $ 220,00 por mes.
 b. Por el derecho de uso de área para expendio de combustible a vehículos automotores en los Aeropuertos Internacionales del país, se cobrará una tarifa mensual de $ 0,75 por metro cuadrado.
 c. Tarifas por concepto de uso de mostradores de tráfico: Las empresas de transporte aéreo deberán cancelar la suma de USD$ 2,22 por cada posición utilizada en el mostrador para la atención de cada vuelo despachado.
