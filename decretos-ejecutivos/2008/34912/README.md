@@ -14,3 +14,4 @@ Reglamento sobre la Distribución y Asignación de Contingentes Arancelarios de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2009-09-30 | Decreto Ejecutivo 35553 (2009-09-30) |
