@@ -1,1 +1,0 @@
-Artículo 2°—El Consejo Nacional de Producción por medio de la Fábrica Nacional de Licores, mantendrá un registro de las concesiones que se otorguen, en el cual se incluirá los nombres de los concesionarios, plazos de las concesiones, eventuales prórrogas, récords del concesionario, tipo de licores que producirá y cualquier otro dato que considere de importancia.

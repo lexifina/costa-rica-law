@@ -1,1 +1,0 @@
-Artículo 11.—El concesionario desde el momento en que se apruebe la concesión deberá pagar este derecho, consistente en un 10% del valor , del alcohol a comprar, de acuerdo al programa de necesidades de alcohol (cuota aprobada) y al precio establecido por la Junta Directiva. En todo caso, al final de cada período FANAL hará los ajustes con relación a la venta real efectuada.

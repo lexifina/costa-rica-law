@@ -1,1 +1,0 @@
-Artículo 20.—El Consejo Nacional de Producción, se reserva el. Derecho de dar por rescindido, sin responsabilidad de su parte, el Contrato de Concesión en el que se determine incumplimiento de cualquiera de estas normas, especialmente si se comprobare que el concesionario que adquiera el alcohol, le da un destino diferente al acordado.

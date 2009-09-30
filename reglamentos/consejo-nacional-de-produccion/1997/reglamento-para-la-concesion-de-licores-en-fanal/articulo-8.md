@@ -1,1 +1,0 @@
-Artículo 8°—El interesado podrá pedir una prórroga de un mes para cumplir con los requisitos solicitados en el formulario, vencida la prórroga, la solicitud se desestimará y solo se volvería a analizar por una única vez, hasta que haya transcurrido un año después de la fecha en qué se denegó inicialmente.

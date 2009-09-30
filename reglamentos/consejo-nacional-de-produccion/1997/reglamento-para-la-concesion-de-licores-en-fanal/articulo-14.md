@@ -1,2 +1,0 @@
-Artículo 14.—Una vez aprobada la concesión, el contrato será elaborado por la Asesoría Legal y revisado por la Administración o Subadministración General de FANAL, de previo a ser firmado por los Apoderados Generalísimos de la Institución, de la siguiente forma: En ausencia del Presidente Ejecutivo firmará el Gerente General y en ausencia de este funcionario firmará el Subgerente General de la Institución.
-(Así reformado mediante el sesión N° 2685 del 17 de agosto del 2007).

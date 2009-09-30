@@ -1,1 +1,0 @@
-Artículo 10º:—Si el solicitante no cuenta con la planta, al hacer la solicitud, deberá contemplar la posibilidad de arrendamiento de instalaciones a un tercero. En el plazo máximo de seis meses después de comunicada la aprobación de la concesión, deberá empezar a operar, de no ser así ésta se le cancelará."
