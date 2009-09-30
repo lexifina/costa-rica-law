@@ -13,3 +13,4 @@ Reglamento sobre la Rendición de Garantías de los Funcionarios y Servidores de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-30 | la propia norma |
+| 2 | 2009-09-30 | Circular 107 (2009-09-24) |
