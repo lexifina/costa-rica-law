@@ -1,0 +1,1 @@
+Artículo 6º—Los/a funcionarios/as y servidores/as obligados de conformidad con lo dispuesto en el artículo 3º de este reglamento, conservarán la obligación de rendir caución, pese a que el nombre o el título que ocupen halla sido variado, siempre que se mantenga la naturaleza de las funciones que realizan.

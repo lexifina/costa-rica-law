@@ -1,0 +1,1 @@
+Artículo 7º—En los demás aspectos relacionados con la materia de garantías se estará a lo dispuesto a lo que la Ley Orgánica del Poder Judicial establece y a las directrices que el Consejo Superior emita.
