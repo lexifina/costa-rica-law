@@ -1,0 +1,2 @@
+Artículo 12.—Regularización. En el desarrollo del proceso de fiscalización, la Administración Tributaria, atendiendo razones de oportunidad y conveniencia, antes de proceder al traslado de cargos a que se refiere el artículo 144 del Código de Normas y Procedimientos Tributarios, podrá prevenir por escrito al contribuyente para que regularice su situación de conformidad con lo establecido en ese Código.
+De no prosperar la gestión, se realizará la determinación de oficio, de conformidad con lo establecido en el artículo 11 del presente reglamento.

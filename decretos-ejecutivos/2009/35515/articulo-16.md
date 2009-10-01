@@ -1,0 +1,1 @@
+Artículo 16.—Suministro de información a las municipalidades. La Dirección remitirá anualmente a las municipalidades, en el mes de octubre, la información de los valores declarados por los sujetos pasivos, la cual servirá como valor de referencia, para efectos de ser considerada como una modificación automática de valor, de acuerdo con lo dispuesto en el artículo 15 de la Ley.

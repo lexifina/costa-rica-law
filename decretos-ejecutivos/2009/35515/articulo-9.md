@@ -1,0 +1,2 @@
+Artículo 9º—Parámetros de valoración para la declaración. La Administración Tributaria pondrá a disposición de los propietarios o titulares de derechos sobre bienes inmuebles de uso habitacional, el Manual de Valores Base Unitario por Tipología Constructiva para la valoración de las construcciones así como los Mapas y las Matrices de Valores por Zonas Homogéneas para la valoración de los terrenos.
+Lo anterior, con el fin de que se proceda a valorar cada unidad habitacional a partir de la aplicación de las características y variables que correspondan.

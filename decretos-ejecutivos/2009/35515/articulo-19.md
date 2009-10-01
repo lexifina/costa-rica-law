@@ -1,0 +1,2 @@
+Artículo 19.—Pago del impuesto. El impuesto debe pagarse, a más tardar dentro de los quince días naturales siguientes a su devengo, por los medios, la forma y condiciones que fije mediante resolución la Dirección.
+El pago efectuado fuera del plazo produce la obligación de pagar junto con el tributo adeudado y las sanciones que puedan corresponder, los intereses que señala el artículo 57 del Código de Normas y Procedimientos Tributarios.

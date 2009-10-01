@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 21.—Actualización de tramos de la escala impositiva y del valor de los bienes de uso habitacional exentos. El Poder Ejecutivo actualizará y publicará en el Diario Oficial La Gaceta, durante el mes de diciembre de cada año los tramos de la escala de tarifas establecida en el artículo 5º de la Ley y el valor indicado en el inciso a) del artículo 6º de la Ley. Para ello considerará la variación en el índice de precios al consumidor en el período comprendido entre el 1 de diciembre del año anterior al 30 de noviembre del año en curso, conforme al dato suministrado por el Instituto Nacional de Estadísticas y Censos (INEC).

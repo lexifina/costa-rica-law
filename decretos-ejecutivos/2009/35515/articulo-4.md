@@ -1,0 +1,4 @@
+CAPÍTULO II
+Hecho generador y sujetos pasivos del impuesto
+Artículo 4º—Hecho generador. El hecho generador del impuesto, de acuerdo con lo establecido en el artículo 2º de la Ley, es la propiedad o copropiedad, al primero de enero de cada año, de un bien inmueble de uso habitacional, ubicado en el territorio nacional.
+Tratándose de titulares de derechos de uso, goce o disfrute de bienes inmuebles con las características descritas en el párrafo anterior, el hecho generador del impuesto ocurrirá respecto de aquellos que, al primero de enero de cada año, conserven un derecho de usufructo inscrito en el Registro Nacional, o que, sin ser arrendatarios, cuenten con un derecho de posesión. Asimismo, el hecho generador ocurrirá respecto de quienes, sin ser propietarios, a esa misma fecha, sean concesionarios, permisionarios u ocupantes de la franja fronteriza, zona marítimo-terrestre o de cualquier otro inmueble otorgado por el Estado o sus instituciones.
