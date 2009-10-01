@@ -1,0 +1,3 @@
+ARTÍCULO 15.- Suministro de información a las municipalidades
+Los valores declarados con fundamento en las disposiciones de la presente Ley, serán remitidos a las municipalidades por la Dirección General de Tributación, como valor de referencia, para los efectos de ser considerados como una modificación automática del valor, de acuerdo con lo dispuesto por el artículo 14 de la Ley N.º 7509, Impuesto sobre bienes inmuebles, de 9 de mayo de 1995, y sus reformas.
+El nuevo valor obtenido a partir de la información a que se refiere el párrafo anterior, modificará en forma automática la base imponible aplicable para el período fiscal siguiente, en caso de ser superior al valor declarado y registrado en la municipalidad correspondiente.

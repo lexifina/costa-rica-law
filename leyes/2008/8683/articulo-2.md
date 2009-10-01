@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Hecho generador
+El hecho generador del impuesto es la propiedad o titularidad de un derecho de uso, goce o disfrute de un bien inmueble de uso habitacional, al primero de enero de cada año, ubicado en el territorio nacional y utilizado en forma habitual, ocasional o de recreo, tanto las instalaciones fijas como las permanentes. Para los efectos de este artículo, el territorio nacional se entenderá de conformidad con la definición contenida en la Constitución Política.

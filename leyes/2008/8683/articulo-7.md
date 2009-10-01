@@ -1,0 +1,7 @@
+ARTÍCULO 7.- Declaración jurada
+Los sujetos pasivos deberán presentar, cada tres (3) años, a partir de la fecha de entrada en vigencia de esta Ley, dentro de los primeros quince (15) días naturales de enero del período fiscal correspondiente, una declaración jurada que actualice el valor fiscal del bien inmueble, en los medios, la forma y las condiciones que defina la Dirección General de Tributación. De resultar superior al valor registrado por la administración, el nuevo valor declarado modificará automáticamente la base imponible aplicable para el período fiscal en que se declara.
+Cuando el bien inmueble objeto de este impuesto pertenezca a varios copropietarios, estos deberán declararlo en forma conjunta.
+El propietario de dos o más bienes inmuebles colindantes y/o superpuestos, deberá acumularlos en una sola declaración, para los efectos de este impuesto, siempre y cuando su uso coincida con los indicados en el artículo 2 de esta Ley, y dichos bienes conformen una unidad de uso habitacional.
+En el régimen de propiedad en condominio, la declaración de cada condominio deberá incluir el valor proporcional que le corresponda por las áreas comunes.
+En caso de traspaso de la propiedad del bien inmueble, el nuevo propietario será responsable solidario del pago del impuesto del período fiscal vigente a la fecha de adquisición, así como de los intereses, las multas y las sanciones, correspondientes.
+Únicamente los propietarios de los bienes inmuebles referidos en el artículo 6 anterior, estarán exentos del deber de declarar.

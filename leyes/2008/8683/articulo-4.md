@@ -1,0 +1,6 @@
+ARTÍCULO 4.- Base imponible
+La base imponible estará constituida por el valor fiscal del inmueble de uso habitacional, determinado por el sujeto pasivo conforme a los criterios técnicos de valoración establecidos por la Dirección General de Tributación, en atención a lo dispuesto en el artículo 10 de la presente Ley.
+Los propietarios de bienes en condominio deberán adicionar al valor de su filial, el valor que les corresponda, proporcionalmente, sobre las áreas comunes.
+Cuando se trate de un edificio o complejo de apartamentos, estos serán valorados y declarados en forma independiente por cada unidad habitacional existente. La Administración Tributaria definirá la forma, los medios y las condiciones de presentación de la declaración correspondiente en tales supuestos.
+El valor fiscal del bien inmueble de uso habitacional gravado en la presente Ley, se actualizará automáticamente por las mismas causales indicadas en el artículo 14 de la Ley N.º 7509, Impuesto sobre bienes inmuebles, de 9 de mayo de 1995, y sus reformas, y el nuevo valor regirá a partir del período fiscal siguiente.
+No formarán parte de la base imponible, las áreas del inmueble que se destinen a usos ajenos a los que grava esta Ley.
