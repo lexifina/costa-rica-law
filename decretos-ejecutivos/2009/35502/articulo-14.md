@@ -1,0 +1,1 @@
+Artículo 14.—De las sanciones. La violación a las disposiciones del presente Reglamento será sancionada de conformidad con lo dispuesto al respecto en la Ley de Pesca y Acuicultura, Nº 8436 del 1º de marzo del 2005, así como las que dispongan las leyes vigentes en la materia.

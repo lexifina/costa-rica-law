@@ -1,0 +1,1 @@
+Artículo 7º—De los Comités de Vigilancia. El INCOPESCA promoverá dentro de estas organizaciones, la conformación, capacitación y puesta en funcionamiento de Comités de Vigilancia a fin de alcanzar los objetivos de manejo y desarrollo de estas áreas.

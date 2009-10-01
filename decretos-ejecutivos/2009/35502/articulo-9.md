@@ -1,0 +1,1 @@
+Artículo 9º—Del acceso a las Áreas Marinas de Pesca Responsable. El establecimiento de las áreas Marinas para la Pesca Responsable, no impedirá el libre acceso a las playas, ni actividades conexas como el turismo entre otras, salvo que existan restricciones en el Plan de Ordenamiento Pesquero, jurídicamente sustentadas.

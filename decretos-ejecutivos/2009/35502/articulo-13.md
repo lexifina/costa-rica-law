@@ -1,0 +1,1 @@
+Artículo 13.—Informes. La Comisión de Seguimiento velará por el buen manejo del Área Marina para la Pesca Responsable y mantendrá informada a la Presidencia Ejecutiva del INCOPESCA mediante al menos informes semestrales.

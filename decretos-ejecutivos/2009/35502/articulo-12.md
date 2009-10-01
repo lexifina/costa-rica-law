@@ -1,0 +1,1 @@
+Artículo 12.—Función Prioritaria de la Comisión. La función principal de la Comisión de Seguimiento será brindar continuidad a las regulaciones necesarias para el buen manejo del Área Marina para la Pesca Responsable, que deberá contar con un Plan de Ordenamiento Pesquero.

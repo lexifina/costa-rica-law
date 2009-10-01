@@ -1,0 +1,1 @@
+Artículo 4º—Cumplimiento del Plan de Ordenamiento Pesquero. Las Organizaciones solicitantes deberán apoyar y respetar las medidas de manejo establecidas en el Plan de Ordenamiento Pesquero aprobado por el INCOPESCA para el área establecida.

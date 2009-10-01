@@ -1,0 +1,1 @@
+Artículo 8º—De la vigilancia. Los Comités de Vigilancia integrados por pescadores, coadyuvarán con el Servicio Nacional de Guardacostas en la vigilancia y el control de las prácticas de pesca en estas áreas, denunciando las infracciones a la ley mediante la organización a la cual pertenecen, para lo cual podrán coordinar con el INCOPESCA.

@@ -1,0 +1,1 @@
+Artículo 15.—Declaratoria de interés público. Se declara de interés público nacional el establecimiento de las Áreas Marinas de Pesca Responsable con el fin de promover el desarrollo de las comunidades pesqueras y fortalecer el ordenamiento, aprovechamiento sostenible y protección de los recursos marinos en las aguas jurisdiccionales de nuestro país.
