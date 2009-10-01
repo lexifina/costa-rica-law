@@ -7,6 +7,4 @@ I.—Que la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, creó la Comi
 II.—Que la citada Ley le asigna a esa Comisión, funciones referentes a la conservación, el uso ecológicamente sostenible y la restauración de la biodiversidad, que son de vital importancia para el desarrollo sostenible del país.
 III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que se integrará la Comisión, de acuerdo al nombramiento realizado por los entes y organizaciones que señala la ley. Por tanto,
 DECRETAN:
-Artículo 1º—Modifíquese el artículo 1, punto 2, inciso d) del Decreto Nº 31126- MINAE, publicado en el Alcance Nº 23, de La Gaceta Nº 83, del dos de mayo del 2003, para que en su defecto se lea:
-2) Miembros suplentes:
-d) Jorge Mena Arce, Representante de la Ministra de Salud.
+Artículo 1º—(Derogado por el artículo 3° del decreto ejecutivo N° 35578 del 1 de octubre de 2009)

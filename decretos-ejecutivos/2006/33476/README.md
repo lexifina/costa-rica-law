@@ -16,3 +16,4 @@ Reforma Integración de la Comisión Nacional para la Gestión de la Biodiversid
 | 1 | 2006-11-01 | la propia norma |
 | 2 | 2007-11-07 | Decreto Ejecutivo 34194 (2007-11-07) |
 | 3 | 2008-09-01 | Decreto Ejecutivo 34793 (2008-09-01) |
+| 4 | 2009-10-01 | Decreto Ejecutivo 35578 (2009-10-01) |
