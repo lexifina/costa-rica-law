@@ -1,0 +1,1 @@
+Artículo 25.—Del financiamiento. Previo al otorgamiento de cualquier facilidad económica o material, la Administración considerara el efecto de lo solicitado y velara porque se tomen las previsiones presupuestarias, tanto en el presupuesto imperante, como sobre cualquier reforma o modificación presupuestaria y en los presupuestos de los años siguientes, cuando se vean afectados.

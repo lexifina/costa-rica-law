@@ -1,0 +1,1 @@
+Artículo 47.—De las condiciones generales. El contrato de previo a ser remitido ante el Consejo, deberá contar con la firma del (la) Director(a) de la Dirección Jurídica, quien dará fe de la legalidad del acto.
