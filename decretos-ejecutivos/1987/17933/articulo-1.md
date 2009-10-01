@@ -8,4 +8,4 @@ Considerando:
 3°—Que el consumo de pescado y mariscos de los pueblos aledaños de Golfo Dulce, proviene de la pesca que realiza en el mismo Golfo
 Por tanto,
 Decretan:
-Artículo 1°—Se prohibe la pesca de arrastre con embarcaciones industriales y semiindustriales en la parte interior del Golfo Dulce (provincia Puntarenas) en la zona delimitada por una línea recta que va desde la margen izquierda de la desembocadura del río Manzanillo hasta Cabo Matapalo en el extremo sureste de la Península de Osa.
+Artículo 1°—(Derogado por el artículo 1° del decreto ejecutivo N° 35579 del 1 de octubre de 2009)

@@ -14,3 +14,4 @@ Reglamenta Pesca Arrastre Golfo Dulce
 | --- | --- | --- |
 | 1 | 1988-01-18 | la propia norma |
 | 2 | 1991-09-06 | Decreto Ejecutivo 20753 (1991-09-06) |
+| 3 | 2009-10-01 | Decreto Ejecutivo 35579 (2009-10-01) |
