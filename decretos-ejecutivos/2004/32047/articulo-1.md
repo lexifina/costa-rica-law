@@ -14,7 +14,6 @@ Artículo 1º—Modifíquese el artículo 1º, punto 1, incisos d) y e) y punto 
 e) Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34416 del 11 de febrero de 2008).
 2. Miembros suplentes:
-e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
-(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
+e) (Derogado por el artículo 3° del decreto ejecutivo N° 35577 del 1 de octubre de 2009)
 k.Grace García Muñoz, Representante de la Federación Costarricense para la Conservación del Ambiente
 (Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
