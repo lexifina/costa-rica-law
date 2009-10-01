@@ -1,0 +1,1 @@
+Artículo 4º—Obligados a presentar el modelo electrónico D-168. Se encuentran obligados a presentar esta declaración todas las entidades, públicas o privadas, que procesen los pagos de tarjetas de crédito o débito.

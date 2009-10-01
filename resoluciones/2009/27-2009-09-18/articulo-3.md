@@ -1,0 +1,10 @@
+Artículo 3º—Suministro general de información D-167. En esta declaración debe suministrarse la información sobre cada uno de los negocios o personas afiliadas, para operación con tarjetas - esto es, las personas físicas, jurídicas o cualquier ente colectivo a las cuales haya efectuado pagos o acreditaciones o haya puesto a disposición sumas correspondientes a ventas de bienes y servicios, que hayan sido adquiridos por los tarjetahabientes en el mercado local, durante el período fiscal informado.
+Además deberán informarse los montos de ventas de bienes y servicios de negocios o personas afiliadas a los cuales no se les aplicó la retención, con la justificación correspondiente para cada uno de los casos.
+En la declaración debe incluirse un detalle con el registro para cada negocio o persona afiliada, indicando su identificación, el monto de la transacción y el monto de la retención practicada durante el período declarado.
+El detalle de los registros por afiliado, debe contener la siguiente información:
+i. Período. Es el mes y el año al cual corresponde la retención practicada al afiliado, según lo establecido en el artículo 15 bis de la Ley del Impuesto General Sobre las Ventas.
+ii. Número de cédula. Corresponde al número de cédula de persona física o jurídica del afiliado, se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
+iii. Nombre completo o razón social del afiliado. Según se trate de persona física o jurídica, será identificado cuando se registre el número de identificación del afiliado o bien debe ser digitado cuando no esté registrado en las bases de datos correspondientes.
+iv. Monto base de la retención. Importe acumulado mensual por afiliado.
+v. Monto retenido. Importe de la retención mensual practicada al afiliado.
+vi. Monto de las transacciones sin retención. Debe indicarse el monto detallado por afiliado, de las transacciones sobre las cuales no se efectuó retención, con la indicación del motivo.
