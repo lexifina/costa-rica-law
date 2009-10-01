@@ -1,0 +1,1 @@
+Artículo 2º—Obligados a presentar el modelo electrónico D-156. Esta declaración debe presentarla la Refinadora Costarricense de Petróleo Sociedad Anónima RECOPE, como contribuyente del impuesto único de combustibles, según lo establecido por la Ley 8114.
