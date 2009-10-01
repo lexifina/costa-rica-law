@@ -1,0 +1,1 @@
+Artículo 16.—Vigencia. Rige para las transacciones que se realicen a partir del 01 de octubre del 2009. La presentación por primera vez de las declaraciones indicadas será regulado de forma puntual en cada una de las respectivas resoluciones

@@ -1,0 +1,1 @@
+Artículo 7º—Momento en que se configura la presentación de la respectiva declaración. La correspondiente declaración informativa se tiene por presentada ante la Administración Tributaria cuando el sistema otorgue el respectivo acuse de recibo y la misma contenga todos los datos exigidos en los diferentes modelos.

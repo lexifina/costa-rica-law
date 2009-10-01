@@ -1,0 +1,1 @@
+Artículo 10.—Declaraciones presentadas por otros medios. Los sujetos pasivos están obligados a presentar su respectiva declaración informativa en los formularios oficiales electrónicos citados en el artículo 2º de esta resolución. Las declaraciones realizadas en otros medios y formatos, se tendrán por no presentadas, con los efectos legales que ello conlleva.

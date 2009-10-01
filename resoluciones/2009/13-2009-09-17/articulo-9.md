@@ -1,0 +1,1 @@
+Artículo 9º—Incumplimiento en el suministro de la información. El no suministro de información se configura cuando la declaración informativa es presentada fuera del plazo, cuando se omitan registros informativos o cuando estos sean incluidos mediante declaración correctiva fuera del plazo establecido, así como lo previsto en el artículo siguiente.

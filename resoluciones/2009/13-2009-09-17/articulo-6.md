@@ -1,0 +1,1 @@
+Artículo 6º—Obligación de verificar la información enviada. Es obligación del sujeto pasivo comprobar que los datos de identificación de los sujetos relacionados estén correctos. En caso de no contar con el respectivo número de identificación, debe registrar el nombre físico o jurídico que corresponda.
