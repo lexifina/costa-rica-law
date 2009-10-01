@@ -1,0 +1,2 @@
+ARTÍCULO 14.- Información de terceros
+El Registro Nacional deberá informar a la Dirección General de Tributación sobre todos los movimientos registrales que generen un cambio del valor registrado; igualmente, las municipalidades y el Colegio Federado de Ingenieros y Arquitectos, deberán informarle a dicha Dirección, sobre las valoraciones efectuadas y los permisos de construcción emitidos, según corresponda; todo, por los medios, la forma y las condiciones que ella defina, reglamentariamente.
