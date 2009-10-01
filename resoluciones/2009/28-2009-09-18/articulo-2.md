@@ -1,0 +1,1 @@
+Artículo 2º—Obligados a presentar el modelo electrónico D-170. Esta declaración informativa deberá ser presentada por la Supen como entidad responsable de la regulación, fiscalización y supervisión de los regímenes complementarios de pensiones, con base en lo establecido por los artículos 73 de la Ley de Protección al Trabajador y 21 del Decreto Nº 34474-H de 5 de marzo del 2008.

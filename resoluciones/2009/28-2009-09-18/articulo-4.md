@@ -1,0 +1,1 @@
+Artículo 4º—Forma de presentación de la declaración. La Supen debe suministrar la información en el formulario electrónico y plazo establecido en el siguiente artículo, sin necesidad de que haya un requerimiento previo por parte la Administración Tributaria.
