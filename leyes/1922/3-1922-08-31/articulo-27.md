@@ -1,0 +1,3 @@
+Artículo 27.-
+Prohíbanse la instalación y el funcionamiento de máquinas de juegos, juegos de video o juegos de habilidad y destreza, tanto electrónicos como virtuales, en establecimientos comerciales cuya actividad ordinaria no sea este tipo de juegos. Asimismo, estas máquinas deberán indicar el contenido de violencia y señalar, expresamente, la población apta para jugarlos, según se establece en la Ley de espectáculos públicos, materiales audiovisuales e impresos, Nº 7440.
+(Así adicionado por el artículo único aparte b) de la ley de Protección de los niños, las niñas y las personas adolecentes contra la Ludopatía, N° 8767 del 1 de setiembre de 2009)

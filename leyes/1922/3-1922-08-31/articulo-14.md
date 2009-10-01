@@ -1,6 +1,3 @@
-Artículo 14.- Si fueren admitidos menores de dieciséis años en un
-billar, se impondrá al dueño de éste, y al padre o encargado del menor,
-una multa de diez colones a cada uno por cada vez; si fuere mayor de
-dieciséis y menor de veintiuno, la multa se impondrá solamente al dueño
-del establecimiento. A la tercera reincidencia se le aplicará a éste la
-pena final del artículo anterior.
+Artículo 14.-
+Si en un billar son admitidas personas menores de dieciséis años, al dueño de este se le impondrá una multa de tres veces el salario base, según el artículo 19 de la Ley orgánica del Poder Judicial. A quien reincida, se le aplicará la pena final del artículo anterior.”
+(Así reformado por el artículo único aparte a) de la ley de Protección de los niños, las niñas y las personas adolecentes contra la Ludopatía, N° 8767 del 1 de setiembre de 2009)
