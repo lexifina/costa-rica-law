@@ -18,8 +18,7 @@ c. (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N
 e) Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior.
 (Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004 y posteriormente se volvió a reformar el inciso anterior por el artículo 1° del decreto ejecutivo N° 34416 del 11 de febrero de 2008).
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
-g) Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N°33162 del 17 de mayo del 2006).
+g) (Derogado por el artículo 3° del decreto ejecutivo N° 35582 del 1 de octubre de 2009)
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
 i. (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009).
 j) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 35050 de 7 de enero del dos mil nueve).
@@ -30,16 +29,16 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (NOTA: mediante el artículo 1° del decreto ejecutivo N° 35125 del 3 de marzo de 2009, se nombra como mientro suplente de esta Comisión, a la señora Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuicultura).
 (NOTA DE SINALEVI: Mediante el artículo 1° del Decreto Ejecutivo N° 35346 de 18 de mayo de dos mil nueve, se nombra como miembro de esta Comisión, representante del Sistema Nacional de Áreas de Conservación a la señora Guiselle Méndez Vega.)
 (NOTA DE SINALEVI: Mediante el articulo 1° del decreto ejecutivo N° 35391 de 10 de junio de 2009, se nombra como miembro propietario de esta Comisión, representante de la Unión Costarricense de Cámaras de la Empresa Privada al señor Erick Manuel Vargas Campos.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35582 del 1 de octubre de 2009, se nombra como miembro propietario de esta Comisión al Señor Hugo Lázaro Estrada, representante de la Asociación Mesa Nacional Indígena)
 2. Miembros suplentes:
 a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
 c) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 d) (Derogado por el artículo 3° del decreto ejecutivo N° 35578 del 1 de octubre de 2009)
-e) (Derogadopor el artículo 3° del decreto ejecutivo N° 35577 del 1 de octubre de 2009)
-(Asíreformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N°33471 del 4 de agosto del 2006).
+e) (Derogado por el artículo 3° del decreto ejecutivo N° 35577 del 1 de octubre de 2009)
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
-g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008).
+g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008, posteriormente se volvio a derogar por el artículo 3 del decreto ejecutivo N° 35582 del 1° de octubre de 2009)).
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
 i) (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009).
 j. Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
@@ -53,3 +52,4 @@ k) Grace García Muñoz, Representante de la Federación Costarricense para la C
 (NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 35427 del 2 de julio de 2009, se nombra como miembro suplente de esta Comisión a la Señora Lesvia Sevilla Estrada, representante del Sistema Nacional de Areas de Conservación).
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35577 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión a la Señora Adriana González Saborio, representante del Ministerio de Comercio Exterior).
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35578 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión al Señor Jorge Mena Arce, representante del Ministerio de Salud).
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35582 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión al Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena)
