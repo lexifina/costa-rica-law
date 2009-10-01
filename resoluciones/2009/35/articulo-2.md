@@ -1,0 +1,1 @@
+Artículo 2º—Reforma a las resoluciones específicas Nos. 14-09, 15-09, 17-09, 21-09, 22-09, 23-09, 25-09, 27-09 y 28-09.- Modifíquese el nombre, periodicidad y fecha de presentación de las declaraciones informativas establecidas en las resoluciones anteriormente indicadas, para que se lea tal como se indica en el artículo 1º de esta resolución.
