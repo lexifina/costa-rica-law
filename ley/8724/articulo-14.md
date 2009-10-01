@@ -1,0 +1,2 @@
+ARTÍCULO 14.-Autorización al Sistema Nacional de Radio y Televisión S. A.
+Autorízase al Sistema Nacional de Radio y Televisión S. A. (Sinart) para que facilite espacios de promoción y divulgación de las actividades del TRC dentro de su sistema de comunicación, el cual está compuesto por los siguientes medios: la Red Nacional de Televisión, Radio Nacional, la revista Contrapunto y la Agencia de Publicidad de Radio y Televisión Nacional, al menos una vez cada tres meses, para contribuir al desarrollo y el enriquecimiento del turismo rural comunitario.
