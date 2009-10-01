@@ -9,8 +9,8 @@ III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que
 DECRETAN:
 Artículo 1º—Modifíquese el artículo 1, punto 1, incisos g) y k) y punto 2, incisos b) y g) del Decreto Nº 31126-MINAE, publicado en el Alcance Nº 23 a La Gaceta Nº 83, del dos de mayo del 2003, para que en su defecto se lea:
 1) Miembros propietarios:
-g. Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
+g. (Derogado por el artículo 3° del decreto ejecutivo N° 35582 del 1 de octubre de 2009)
 k. (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setiembre de 2008).
 2) Miembros suplentes:
 b. (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 35427 del 2 de julio de 2009)
-g. (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre de 2008).
+g. (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre de 2008, posteriormente por el artículo 3° del decreto ejecutivo N° 35582 del 1 de octubre de 2009, se volvio a derogar)
