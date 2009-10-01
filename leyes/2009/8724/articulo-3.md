@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Declaratoria de interés
+Declárase de interés público el turismo rural comunitario como actividad socioeconómica, estratégica y esencial para el desarrollo de las comunidades rurales del territorio nacional. El turismo rural comunitario es una actividad prioritaria dentro de las políticas del Estado, por lo que se autoriza a las instituciones de la Administración Pública, los entes estatales y no estatales, las empresas públicas y las municipalidades a impulsar actividades de apoyo para su desarrollo.
