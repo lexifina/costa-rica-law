@@ -1,0 +1,1 @@
+Artículo 4º—Medio de presentación de las declaraciones. Los obligados a presentar dichas declaraciones deben suministrar la información en el formulario electrónico indicado en los artículos anteriores, sin necesidad de que haya un requerimiento previo por parte la Administración Tributaria.

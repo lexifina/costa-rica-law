@@ -1,0 +1,1 @@
+Artículo 2º—Obligados a presentar el modelo electrónico D-155. Las organizaciones o entidades, sean personas físicas o jurídicas, de derecho o de hecho, públicas o privadas, que realicen u organicen subastas agropecuarias.
