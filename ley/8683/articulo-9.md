@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Pago
+Los sujetos pasivos deberán pagar el impuesto creado en la presente Ley, por los medios, en la forma y las condiciones que establezca la Administración Tributaria, a más tardar dentro de los quince (15) días naturales siguientes a su devengo. En los casos de incumplimiento o pago tardío, la administración exigirá el pago del impuesto, junto con los intereses y las sanciones correspondientes, de conformidad con el Código de Normas y Procedimientos Tributarios.
