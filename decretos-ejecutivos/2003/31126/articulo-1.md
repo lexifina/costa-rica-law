@@ -37,7 +37,7 @@ b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del
 c) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 d) Jorge Mena Arce, Representante de la Ministra de Salud.
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
-e) Ángela Sánchez Brenes, representante del Ministro de Comercio Exterior.
+e) (Derogado por el artículo 3° del decreto ejecutivo N° 35577 del 1 de octubre de 2009)
 (Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 33471 del 4 de agosto del 2006).
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
 g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008).
@@ -52,3 +52,4 @@ k) Grace García Muñoz, Representante de la Federación Costarricense para la C
 (NOTA: mediante el artículo 1° del decreto ejecutivo N° 35125 del 3 de marzo de 2009, se nombra como mientro suplente de esta Comisión, a la señora Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura).
 (NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 35391 del 10 de junio de 2009, se nombra como mienbro suplente de esta Comisión al Señor Andy Bezara Higle, representante de la Unión Costarricense de Cámaras de la Empresa Privada).
 (NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 35427 del 2 de julio de 2009, se nombra como miembro suplente de esta Comisión a la Señora Lesvia Sevilla Estrada, representante del Sistema Nacional de Areas de Conservación).
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35577 del 01 de octubre de 2009, se nombra como miembro suplente de esta Comisión a la Señora Adriana González Saborio, representante del Ministerio de Comercio Exterior).
