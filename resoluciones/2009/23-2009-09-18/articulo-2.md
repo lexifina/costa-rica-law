@@ -1,0 +1,1 @@
+Artículo 2º—Obligados a presentar el modelo electrónico D-162. Esta declaración debe presentarla Procomer, en concordancia con lo establecido en la Ley 7210 de noviembre de 1990 y el decreto ejecutivo 34739 COMEX-H, de 29 de agosto del 2008.
