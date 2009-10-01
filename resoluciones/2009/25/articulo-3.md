@@ -1,0 +1,17 @@
+Artículo 3º—Suministro general de información D-164. En esta declaración deben reportarse los montos de las facturas por mano de obra y por repuestos, correspondientes a los servicios brindados por los talleres mecánicos y de enderezado y pintura, con información adicional relativa al emisor de la factura de repuestos, independientemente del monto que se trate, y que los mismos no hayan sido objeto de retención, es decir, aquellos que no se declararon en el modelo informativo D-150, ni hayan sido reportados en el modelo D-153.
+El detalle de los registros a informar, debe contener la siguiente información:
+i. Periodo. Es el trimestre y el año al cual corresponde la(s) fecha(s) de la emisión de la(s) factura(s).
+ii. Número de cédula del asegurado. Corresponde al número de cédula física o jurídica del asegurado, el cual se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
+iii. Nombre completo o razón social del asegurado. Según se trate de persona física o jurídica, que será identificado cuando se registre el número de identificación del asegurado o bien, debe ser digitado cuando no exista en la base de datos.
+iv. Número de cédula del beneficiario. Corresponde al número de cédula física o jurídica del beneficiario, el cual se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
+v. Nombre completo o razón social del beneficiario. Según se trate de persona física o jurídica, que será identificado cuando se registre el número de identificación del beneficiario o bien, debe ser digitado cuando no exista en la base de datos.
+vi. Número de caso (expediente). Corresponde al número de expediente del accidente, que lleva la aseguradora.
+vii. Monto por mano de obra. Se refiere al monto trimestral de las facturas por concepto de mano de obra, sin incluir el impuesto de ventas.
+viii. Monto por repuestos. Se refiere al monto trimestral de las facturas por concepto de repuestos, sin incluir el impuesto de ventas.
+ix. Monto total mano obra y repuestos. Corresponde a la sumatoria de los montos por ambos conceptos, según las dos columnas anteriores. Este campo el sistema lo calculará en forma automática.
+En el momento que se digite la información correspondiente a repuestos, el sistema habilitará un anexo mediante el cual se deberá completar información adicional relativa al emisor de la factura de repuestos, como a continuación se indica:
+i. Número de cédula del emisor. Corresponde al número de cédula física o jurídica del emisor de la factura de repuestos, el cual se registra tal y como consta en la misma. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
+ii. Nombre o razón social del emisor. Según se trate de persona física o jurídica, que será identificado cuando se digite el número de cédula del emisor o bien, debe ser digitado cuando no exista en la base de datos.
+iii. Fecha de la factura. Se detalla la fecha que consta en la factura.
+iv. Número de factura. Se detalla el número que consta en la factura.
+v. Monto de la factura. Se detalla el monto de la venta total de repuestos, sin incluir el impuesto de ventas facturado.

@@ -1,0 +1,12 @@
+Artículo 5º—Suministro general de información D-165. Dichos obligados deben reportar los montos de las facturas emitidas por los médicos (beneficiarios de la liquidación), independientemente del monto que se trate, y que los mismos no hayan sido objeto de retención, es decir, aquellos que no se declararon en el modelo informativo D-150, ni hayan sido reportados en el modelo D-153.
+El detalle de los registros a informar, debe contener la siguiente información:
+i. Período. Es el trimestre y el año al cual corresponde la(s) fecha(s) de la emisión de la(s) factura(s).
+ii. Número de cédula del asegurado. Corresponde al número de cédula física o jurídica del asegurado, el cual se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
+iii. Nombre completo o razón social del asegurado. Según se trate de persona física o jurídica, que será identificado cuando se registre el número de identificación del asegurado o bien debe ser digitado cuando no exista en la base de datos.
+iv. Fecha de pago. Se detalla la fecha en que se hizo efectiva la cancelación de los honorarios profesionales al médico.
+v. Número de cédula del médico o del consultorio médico. Corresponde al número de cédula física o jurídica del beneficiario, el cual se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
+vi. Nombre del médico o razón social del consultorio médico. Según se trate de persona física o jurídica, que será identificado cuando se registre el número de identificación del beneficiario o bien debe ser digitado cuando no exista en la base de datos.
+vii. Código del médico. Corresponde al código que el médico tiene registrado ante el Colegio Profesional respectivo y que debe constar en las facturas que entregó a la entidad aseguradora.
+viii. Cantidad de liquidaciones. Se refiere a la cantidad de facturas que se están cancelando en el mes mediante la liquidación de honorarios profesionales.
+ix. Monto total de facturas recibidas. Se refiere al monto total de las facturas que el médico entregó a la aseguradora por la atención médica brindada al asegurado durante el mes.
+x. Especialidad del médico. Se detalla la especialidad a la que se dedica el médico y por la cual brindó el servicio profesional.

@@ -1,0 +1,1 @@
+Artículo 8º—Ocultamiento de información. Aquellas empresas aseguradoras a quienes se les compruebe, a través del debido proceso, que han negado, ocultado o aportado de manera incompleta a la Administración Tributaria información relevante, se verán expuestos a las sanciones establecidas en el Código de Normas y Procedimientos Tributados.

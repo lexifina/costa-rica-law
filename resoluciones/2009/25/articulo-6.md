@@ -1,0 +1,1 @@
+Artículo 6º—Medio de presentación de las declaraciones. Los obligados a presentar estas declaraciones, deben suministrar la información en el formulario electrónico que se indica, sin necesidad de que haya un requerimiento previo por parte de la Administración Tributaria.
