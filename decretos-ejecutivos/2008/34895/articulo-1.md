@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34895-MINAET
+(Este decreto fue Derogado por el artículo 3° del decreto ejecutivo N° 35582 del 1 de octubre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE, ENERGÍA
 Y TELECOMUNICACIONES
