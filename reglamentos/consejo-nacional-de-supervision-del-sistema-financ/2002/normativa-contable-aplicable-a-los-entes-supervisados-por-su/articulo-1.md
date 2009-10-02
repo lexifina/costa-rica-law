@@ -7,9 +7,9 @@ IV. es necesario además, uniformar algunos criterios relativos a la revelación
 V. la Norma Internacional de Contabilidad 40 establece dos opciones para la medición de la inversión en propiedad, la primera el modelo de valor justo, en el cual la inversión en propiedad debe ser medida al valor justo y el cambio del valor justo debe ser reconocido en el estado de resultados y la segunda, modelo del costo, en el cual la inversión en propiedad debe ser medido al costo depreciado (el valor justo debe ser revelado). Este Consejo Nacional estima prudente y razonable el reconocimiento del valor justo en los registros contables debido a que permite obtener el valor de referencia de realización de los valores de participación en los fondos inmobiliarios, no obstante, el reconocimiento de ganancias no realizadas en resultados podría incidir en la descapitalización del fondo a través de la distribución de dividendos atentando contra la estabilidad del mismo, por lo tanto, considera prudente reconocer el cambio del valor justo vía patrimonio y el reconocimiento en el estado de resultados hasta el momento de la realización del activo.
 convino en tomar los siguientes acuerdos:
 1. Aprobar, conforme a los textos que se transcribe a continuación, la "Normativa contable aplicable a las entidades supervisadas por la SUGEF, SUGEVAL y SUPEN" y la "Normativa para la presentación de estados financieros auditados e información financiera a fechas intermedias aplicable a las entidades supervisadas por la SUGEF, SUGEVAL y SUPEN":
-NORMATIVA CONTABLE APLICABLE A LOS ENTES
-SUPERVISADOS POR SUGEF, SUGEVAL Y SUPEN Y A LOS
-EMISORES NO FINANCIEROS
+(*)Normativa contable aplicable a los entes supervisados por
+SUGEF, SUGEVAL, SUPEN, SUGESE y a los emisores no financieros
+(*)(Modificada su denominación en sesión N° 811 del 02 de octubre de 2009)
 (Nota de Sinalevi. El texto de este reglamento fue reformado en sesión N° 692 del 17 de diciembre de 2007 y publicado en La Gaceta N° 11 del 16 de enero de 2008, por lo que se reproduce a continuación:)
 CAPÍTULO I
 Disposiciones generales
