@@ -1,0 +1,1 @@
+Artículo 19.—Del Recurso de revocatoria. Los acuerdos del Consejo Regional únicamente tendrán recurso de revocatoria ante el mismo Consejo, el cual deberá conocerlo en la sesión siguiente a la que le da la firmeza al acuerdo recurrido. El recurso contra el acuerdo respectivo deberá presentarse dentro de los tres días siguientes a su firmeza.

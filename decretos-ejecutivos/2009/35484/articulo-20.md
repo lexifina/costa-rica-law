@@ -1,0 +1,1 @@
+Artículo 20.—Del financiamiento. Para el ejercicio de sus funciones el Consejo Regional contará con un presupuesto de acuerdo al plan anual de trabajo establecido en el artículo 8 inciso f de este reglamento.

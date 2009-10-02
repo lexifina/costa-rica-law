@@ -1,0 +1,1 @@
+Artículo 9º—Sobre el pago de gastos de transporte y representación. Los miembros del CORAC-Osa no devengarán salario o pago alguno por concepto de dietas, pero se les deberá reconocer los gastos por concepto de transporte, alimentación y otros en que incurran en razón de sus funciones, sujetos al plan anual de trabajo según artículo 8 inciso f de este reglamento.

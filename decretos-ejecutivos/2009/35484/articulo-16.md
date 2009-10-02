@@ -1,0 +1,1 @@
+Artículo 16.—Funciones de los demás miembros del CORAC-Osa. Las funciones para los miembros restantes serán las establecidas por la Ley General de la Administración Pública para los órganos colegiados.
