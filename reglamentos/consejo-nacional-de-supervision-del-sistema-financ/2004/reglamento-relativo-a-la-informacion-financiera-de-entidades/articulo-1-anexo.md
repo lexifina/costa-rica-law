@@ -120,6 +120,12 @@ Gerente General o Representante Legal | Contador General o Director Financiero |
 Nota: | | |
 Los rubros están asociados a los códigos de grupo, cuenta y subcuenta que lo conforman según el “Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros” y no es necesario indicarlos para efecto de publicación.
 (1) Cuando se trata de estado financieros consolidados, debe indicarse “y subsidiarias” | | |
+[imagen]
+[imagen]
+(Así adicionado el modelo 1A en sesión N° 811 del 2 de octubre de 2009)
+[imagen]
+[imagen]
+(Así adicionado el modelo 1B en sesión N° 811 del 2 de octubre de 2009)
 MODELO N° 2 NOMBRE DE LA ENTIDAD ESTADO DE RESULTADOS Para el _____ terminado el ___ de _______ de Período 2 y Período 1 (En colones sin céntimos)
 | NOTA | Período 2 | Período 1
 Ingresos Financieros | | |
