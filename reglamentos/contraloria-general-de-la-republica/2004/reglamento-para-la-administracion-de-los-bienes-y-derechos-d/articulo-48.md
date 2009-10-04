@@ -1,4 +1,0 @@
-Artículo 48.—Para desechar bienes en mal estado, deberá de levantarse un acta que detalle el número de patrimonio, las características del bien o bienes a desechar y su estado. Dicha acta deberá ser suscrita por el encargado del Almacén, el Gerente del Área Administrativa y un abogado de la División de Asesoría y Gestión Jurídica, con base en lo cual el Almacén dará de baja el bien (o bienes).
-Una, vez levantada el acta de desecho, el encargado del Almacén deberá de realizar el acto formal de entrega al agente destructor, para lo cual deberá de adjuntar copia del acta de desecho así como la petición expresa de que en dicha destrucción se aplique y observe la normativa vigente al efecto.
-En el supuesto de desechos de software y hardware se requerirá del criterio previo y positivo de la Unidad de Sistemas y Tecnologías de Información.
-(Así reformado por resolución N° 29 del 28 de febrero del 2006)

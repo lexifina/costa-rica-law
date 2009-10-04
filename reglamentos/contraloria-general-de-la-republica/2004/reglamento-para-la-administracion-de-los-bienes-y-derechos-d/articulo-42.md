@@ -1,1 +1,0 @@
-Artículo 42.—Los bienes susceptibles de donación serán aquellos que se encuentren en desuso o mal u obsoleto estado, conforme al criterio de la unidad técnica competente, mismo que deberá quedar documentado en el Almacén.
