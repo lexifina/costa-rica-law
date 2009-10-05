@@ -1,0 +1,1 @@
+6º—Las tarifas por transporte, hospedaje y alimentación, serán ajustadas cuando así lo autorice la Contraloría General de la República, o la Autoridad Reguladora de los Servicios Públicos en cuanto al valor del pasaje del autobús, cuando sea necesario utilizar ese servicio público. Y deberá tenerse el respectivo contenido presupuestario para su erogación.
