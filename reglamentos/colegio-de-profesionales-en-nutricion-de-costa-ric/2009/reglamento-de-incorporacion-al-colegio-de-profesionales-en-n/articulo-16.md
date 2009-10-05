@@ -1,0 +1,1 @@
+Artículo 16.—Se aplicará supletoriamente al presente Reglamento, la Ley Orgánica del Colegio de Profesionales en Nutrición, sus reglamentos y los principios y normas establecidos en la Ley General de la Administración Pública y la Ley General de Salud.
