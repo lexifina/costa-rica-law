@@ -14,3 +14,4 @@ Reglamento para el Reconocimiento del Incentivo de Desarraigo Familiar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-21 | la propia norma |
+| 2 | 2009-10-05 | Decreto Ejecutivo 35623 (2009-10-05) |
