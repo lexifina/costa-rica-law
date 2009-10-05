@@ -1,2 +1,0 @@
-Artículo 22.—Elección por listas de candidatos y candidatas del Sector Comunal. La Asamblea de la Federación respectiva elegirá sus representantes de listas de candidatos y candidatas que presenten las uniones cantonales o zonales de las asociaciones de desarrollo que la conforman.
-En todo caso, quienes aspiren a esta representación deberán estar afiliados a una Asociación de Desarrollo con más de un año de antelación a la fecha de celebración de la Asamblea.

@@ -1,2 +1,0 @@
-Artículo 4º—Asignación de delegados y delegadas. Mínimo.
-Cuando alguno de los sectores indicados en el artículo 2º de este Reglamento no cuente entre sus afiliados y afiliadas con el número de copropietarios y copropietarias requerido para obtener al menos un delegado o delegada de la Asamblea de Trabajadores y Trabajadoras, deberá, como mínimo, asignársele un delegado o delegada para efectos de conservar su participación en dicho órgano.

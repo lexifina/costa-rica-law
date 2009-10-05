@@ -1,1 +1,0 @@
-Artículo 6º—Determinación de la cantidad de delegados y delegadas de cada Sector. Determinado el número de copropietarios y copropietarias del Banco afiliados y afiliadas a cada Sector, la Comisión, comunicará a los sectores el número de delegados y delegadas que le corresponda a cada uno de los Sectores indicados en el artículo 2 de este Reglamento.

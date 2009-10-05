@@ -1,1 +1,0 @@
-Artículo 24.—Asambleas de Sector. Convocatoria. La Comisión formulará, con quince días naturales de anticipación, en los casos que sea necesario, las convocatorias públicas a las asambleas de Sector, sobre las cuales se levantará un acta notarial.
