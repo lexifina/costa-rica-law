@@ -1,0 +1,9 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el numeral 2, artículo 22 del acta de la sesión 5436-2009, celebrada el 23 de setiembre del 2009,
+considerando que:
+a. Mediante artículo 9 del acta de la sesión 5426-2009, celebrada el 10 de junio del 2009, la Junta Directiva aprobó el uso de una metodología a partir de la cual la Administración del Banco puede hacer uso del margen de los 200 puntos básicos para la fijación de la tasa de interés de los pasivos del Banco Central de Costa Rica, quedando pendiente el establecimiento de una metodología para el caso de emisiones de instrumentos ligados a la inflación.
+b. Mediante oficio DAP-217-2009 del 27 de agosto del 2009, la División Gestión de Activos y Pasivos remite una propuesta metodológica para la estimación de una curva real que pueda ser utilizada como base para la medición del uso de los 200 puntos básicos en la determinación de las tasas de interés reales para las emisiones que los títulos ligados a la inflación (TUDES).
+c. Analizada la citada propuesta de la División Gestión de Activos y Pasivos, la Junta Directiva mostró inquietudes acerca de la aplicabilidad de dicha metodología de estimación, sugiriéndose, en su lugar, otorgar a la Administración del Banco un margen de 0 a 300 puntos básicos para la fijación de las tasas de interés reales de los Títulos en Unidades de Desarrollo (TUDES).
+dispuso en firme:
+Agregar un nuevo punto VI en la “Metodología para fijar las tasas de colocación de los pasivos” aprobada en el artículo 9 del acta de la sesión 5426-2009, del 10 de junio del 2009, de tal manera que se lea de la siguiente manera:
+“VI. Con independencia de la curva de rendimiento antes señalada, para los títulos ligados a la inflación, la Administración dispondrá de un margen entre 0 y 300 puntos base para establecer la tasa real a la que se colocarán dichos instrumentos.”
