@@ -1,0 +1,1 @@
+Artículo 13.—Si el informe indicado en el artículo anterior no es presentado en el plazo que se fija sin existir causa justificada que así lo excuse, el I.C.T. se reserva el derecho de denegar cualquier otra solicitud que sea presentada por el sujeto incumpliente.

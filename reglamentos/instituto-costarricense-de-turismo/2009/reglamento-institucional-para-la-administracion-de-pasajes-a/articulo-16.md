@@ -1,0 +1,1 @@
+Artículo 16.—Se deroga el Reglamento para Administración de los Pasajes Internacionales que Corresponden al I.C.T., en la Compañía Líneas Aéreas Costarricenses S. A., publicado en La Gaceta Nº 68 del 9 de abril de 1997 y sus reformas.

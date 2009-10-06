@@ -1,0 +1,6 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+En sesión ordinaria de Junta Directiva Nº 5597, artículo 5, Inciso IX, celebrada el día 25 de agosto del 2009, se tomó el siguiente acuerdo que textualmente dice:
+Se acuerda: A) Con fundamento en el oficio Nº AL-1633-2009; suscrito por la Asesoría Legal, y de conformidad con los oficios AG-705-2007 y AG-1308-07 de la Auditoría General y el oficio G-2779-2007 de la Gerencia General, aprobar el siguiente Reglamento Institucional para la Administración de Pasajes Aéreos Nacionales e Internacionales:
+REGLAMENTO INSTITUCIONAL PARA LA ADMINISTRACIÓN
+DE PASAJES AÉREOS NACIONALES E INTERNACIONALES
+Artículo 1º—El presente Reglamento regula la administración de los pasajes aéreos internacionales que le corresponden al Instituto Costarricense de Turismo como accionista de la Compañía Líneas Aéreas Costarricenses, Sociedad Anónima y con fundamento en los derechos accionarios propiedad del Estado que le fueron traspasados según lo dispuesto en el artículo 67, inciso b) de la Ley Orgánica del Instituto Costarricense de Turismo, Ley Nº 1917 del 30 de junio de 1955, así como los pasajes aéreos nacionales e internacionales que le son otorgados en virtud de los contratos turísticos suscritos por las empresas de transporte aéreo al amparo de la Ley de Incentivos para el Desarrollo Turístico, Ley Nº 6990 del 5 de julio de 1985.

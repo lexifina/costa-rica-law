@@ -1,0 +1,1 @@
+Artículo 4º—Se crea la Comisión Evaluadora de Solicitudes de Pasajes Aéreos la que tendrá a su cargo el análisis técnico de la conveniencia y oportunidad de aprobar la autorización y emisión de los pasajes aéreos a que se refiere este Reglamento.
