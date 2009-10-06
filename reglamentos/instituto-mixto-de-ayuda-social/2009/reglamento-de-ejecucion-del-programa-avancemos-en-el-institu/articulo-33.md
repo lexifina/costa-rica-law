@@ -1,0 +1,1 @@
+Artículo 33.—Las Áreas Regionales de Desarrollo Social serán las instancias responsables de ejecutar el denominado Programa Avancemos, otorgando las transferencias monetarias condicionadas de conformidad con la distribución regional que establezca el IMAS, este Reglamento y el Decreto Ejecutivo 34786-MP-S-MEP.

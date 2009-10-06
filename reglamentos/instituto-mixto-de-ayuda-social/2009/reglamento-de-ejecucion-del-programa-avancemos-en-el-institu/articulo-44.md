@@ -1,0 +1,1 @@
+Artículo 44.—Investigación. La Subgerencia de Desarrollo Social le dará curso a una investigación, siempre y cuando tenga como fundamento una denuncia firmada y dirigida contra un funcionario específico.

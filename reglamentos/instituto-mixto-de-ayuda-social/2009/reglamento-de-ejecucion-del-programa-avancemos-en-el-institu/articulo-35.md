@@ -1,0 +1,1 @@
+Artículo 35.—Aplicación de la Tabla de Límites de Autoridad Financiera: los funcionarios competentes deberán ajustarse a los límites de autoridad financiera establecidos para la aprobación de las transferencias monetarias condicionadas, que de conformidad con sus funciones y cargos pueden aprobar las transferencias.

@@ -1,0 +1,2 @@
+Artículo 12.—De la identificación y referencia de potenciales beneficiarios (as):
+El IMAS por medio de las Áreas Regionales de Desarrollo Social recibirá referencia de potenciales beneficiarios (as) de parte de las otras instituciones que participan en el Programa o de otras organizaciones, las cuales serán atendidas según los criterios, parámetros y procedimientos institucionales establecidos para tales efectos.

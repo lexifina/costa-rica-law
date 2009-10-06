@@ -1,0 +1,1 @@
+Artículo 38.—Actualización de la FIS. Para los efectos propios del Programa Avancemos y solo para este programa, la ficha de información social se actualizará cada cinco años, salvo que exista una variación en el domicilio u otros cambios drásticos que el profesional competente determine y justifique, lo cual podría conllevar a una actualización parcial o total de la información.

@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+Del programa avancemos
+Artículo 4º—Naturaleza del Programa Avancemos. Programa Social Selectivo de carácter interinstitucional que consiste en una Transferencia Monetaria Condicionada, que involucra la participación de las siguientes instituciones: la Rectoría del Sector Social y de Lucha contra la Pobreza, Ministerio de Educación Pública (MEP), Instituto Mixto de Ayuda Social (IMAS), Instituto Nacional de Aprendizaje (INA), la Caja Costarricense de Seguro Social (CCSS), Dirección de Desarrollo Social y Asignaciones Familiares (DESAF) del Ministerio de Trabajo y Seguridad Social (MTSS), el Fondo Nacional de Becas (FONABE) y cualquier otra Institución que la Rectoría designe.

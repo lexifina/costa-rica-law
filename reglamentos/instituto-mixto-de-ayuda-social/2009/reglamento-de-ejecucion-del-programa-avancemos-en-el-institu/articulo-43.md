@@ -1,0 +1,1 @@
+Artículo 43.—Denuncias. En todas las Áreas Regionales y Unidades Locales de Desarrollo Social, así como en la Contraloría de Servicios, se recibirán las denuncias que deseen realizar personas en relación con la atención del personal del IMAS en torno a la tramitación y ejecución del Programa Avancemos y de atención de los solicitantes y beneficiarios.

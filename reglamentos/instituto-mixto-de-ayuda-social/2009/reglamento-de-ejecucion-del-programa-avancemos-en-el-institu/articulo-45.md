@@ -1,0 +1,1 @@
+Artículo 45.—Legitimación para denunciar. Podrá denunciar toda persona que sufra un maltrato por parte de un funcionario del IMAS, que menoscabe su sensibilidad en cualquier forma, pero este maltrato debe estar directamente relacionado con una solicitud para recibir la transferencia monetaria condicionada del Programa.

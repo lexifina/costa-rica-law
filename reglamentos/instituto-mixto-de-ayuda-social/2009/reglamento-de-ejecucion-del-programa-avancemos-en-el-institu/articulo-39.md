@@ -1,0 +1,2 @@
+Artículo 39.—Controles en la manipulación de la información de las familias. Los y las funcionarios (as) competentes deberán prestar el debido cuidado en la manipulación de la información relacionada con las familias, principalmente aquella información en la que se basen para otorgar la transferencia monetaria condicionada.
+En caso de dudas, ante consultas de terceros, será siempre su deber consultar ante su superior jerárquico inmediato.

@@ -1,0 +1,7 @@
+Artículo 20.—Suspensión. La suspensión del beneficio a una familia se realizará durante el tiempo que transcurra para verificar o desechar las razones o causales que se presenten y se efectuará de previo a la decisión de continuar con el beneficio o de la revocación de éste. Las razones o causales para suspender una transferencia monetaria condicionada (TMC) aprobada para un estudiante o familia, se consideran las siguientes:
+a) Incumplimiento temporal de las condicionalidades establecidas.
+b) Presentación de documentos inciertos o inexactos, la que será corroborado en visita de campo o por medios idóneos.
+c) Incumplimiento del plazo para la actualización de la información de la familia.
+d) Condiciones socio económicas de la familia que no se ajustan a los parámetros de pobreza, vulnerabilidad, exclusión o riesgo social, lo que se corroborará mediante visita de campo.
+e) Denuncias formales presentadas por terceras personas o instituciones y según comprobación efectuada que demuestra el incumplimiento de condicionalidades.
+Para corroborar el hecho que motiva la suspensión, se llevarán a cabo visitas de campo dentro de los treinta días hábiles siguientes al conocimiento del mismo o bien por cualquier otro medio idóneo, siendo un funcionario competente el encargado de realizar estas acciones de corroboración. Se podrá solicitar cualquier otro documento de forma discrecional para conocimiento de la situación socioeconómica familiar y comprobación de datos para efectos de aprobación, suspensión o revocación de la transferencia monetaria condicionada.

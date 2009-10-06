@@ -1,0 +1,1 @@
+Artículo 29.—El IMAS suministrará a la Secretaría Técnica del Programa Avancemos, como parte de la Rectoría del Sector Social y de Lucha contra la Pobreza, cuando esta así lo solicite, la información necesaria para realizar el monitoreo y la evaluación del Programa.

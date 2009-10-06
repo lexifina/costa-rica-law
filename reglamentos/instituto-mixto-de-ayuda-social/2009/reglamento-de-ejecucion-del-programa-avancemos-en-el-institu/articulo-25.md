@@ -1,0 +1,1 @@
+Artículo 25.—Entidades encargadas de verificar la condicionalidad de salud. La Caja Costarricense de Seguro Social extenderá al estudiante el documento que demuestre que ha recibido la valoración integral en salud, para que posteriormente lo presente al IMAS una vez al año. Esta verificación se coordinará en conjunto entre la CCSS y el IMAS.

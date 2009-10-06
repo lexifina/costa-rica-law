@@ -1,0 +1,1 @@
+Artículo 34.—El funcionario competente será la persona que a nombre y por cuenta del Instituto Mixto de Ayuda Social, verificará las condicionalidades, emitirá el criterio profesional en cuanto la aprobación, suspensión y revocación de la transferencia monetaria condicionada.

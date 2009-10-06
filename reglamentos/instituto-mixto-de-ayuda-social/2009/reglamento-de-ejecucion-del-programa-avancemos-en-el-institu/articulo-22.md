@@ -1,0 +1,1 @@
+Artículo 22.—Deber de fundamentar la resolución de suspensión o revocación. Para los casos de resoluciones cuyo objeto es la revocación o suspensión de la transferencia, el funcionario competente deberá fundamentar debidamente la decisión.

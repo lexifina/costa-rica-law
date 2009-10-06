@@ -1,0 +1,1 @@
+Artículo 9º—Financiamiento. El Programa Avancemos se financia con recursos provenientes del Gobierno de la República, los cuales han sido aprobados por la Asamblea Legislativa en los Presupuestos Ordinario y/o Extraordinarios anuales y cualesquiera otras fuentes de financiamiento que se establezcan:

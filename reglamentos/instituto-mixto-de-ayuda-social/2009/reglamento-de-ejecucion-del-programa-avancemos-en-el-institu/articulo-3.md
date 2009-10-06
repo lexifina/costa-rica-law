@@ -1,0 +1,1 @@
+Artículo 3º—Definiciones. Para los efectos de ejecución del programa Avancemos, se aplicarán las definiciones que se establecen en el Reglamento para la prestación de servicios y el Otorgamiento de Beneficios del IMAS, el documento del Plan Estratégico Institucional y el documento del Modelo de Intervención aprobados.

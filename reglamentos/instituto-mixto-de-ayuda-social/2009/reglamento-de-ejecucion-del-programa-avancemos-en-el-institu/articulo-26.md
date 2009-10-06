@@ -1,0 +1,1 @@
+Artículo 26.—Seguimiento. La información suministrada por el Ministerio de Educación Pública y la Caja Costarricense de Seguro Social para la verificación de las condicionalidades será utilizada para efectos del seguimiento del programa. La Subgerencia de Desarrollo Social definirá otras acciones de seguimiento conjuntamente con las Áreas Regionales de Desarrollo Social.

@@ -1,0 +1,4 @@
+SECCIÓN OCTAVA
+Registro
+Artículo 36.—Vigencia de la Ficha de Información Social. La vigencia de la Ficha de Información Social para el Programa Avancemos se extenderá por cinco años desde el momento en que opera el registro de la misma y la actualización de las variables de la familia cada dos años y medio, excepto que opere un cambio de domicilio o haya merito suficiente para considerar que la familia beneficiaria experimentó un cambio drástico en la condición socioeconómica.
+En casos en que haya familias beneficiarias del Programa Avancemos y que concomitantemente reciban otro beneficio de la oferta programática institucional en los que deba actualizarse este instrumento, podrá realizarse el proceso pero no con fundamento en el otorgamiento de la transferencia condicionada monetaria de Avancemos.
