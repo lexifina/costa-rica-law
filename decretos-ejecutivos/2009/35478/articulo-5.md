@@ -1,0 +1,3 @@
+Artículo 5º—Consejo Consultivo. La función principal del Consejo Consultivo será acordar las propuestas de políticas y disposiciones que permitan el cumplimiento de los fines del Sistema. Para ello, sesionará cada dos meses ordinariamente y en forma extraordinaria cuando así lo convoquen al menos dos de los integrantes.
+El Consejo podrá crear o constituir las comisiones de coordinación y asesoría que considere pertinentes para el cumplimiento de sus fines. Cada año conocerá, analizará y aprobará el Plan de Trabajo propuesto por la Secretaría Técnica.
+El PRODELO sesionará de conformidad con las reglas establecidas en el Artículo 49 del Capítulo III de la Ley General de la Administración Pública en lo que corresponda.
