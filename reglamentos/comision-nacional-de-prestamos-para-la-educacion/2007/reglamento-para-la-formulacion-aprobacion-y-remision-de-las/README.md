@@ -14,3 +14,4 @@ Reglamento para la formulación, aprobación, y remisión de las variaciones al 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-22 | la propia norma |
+| 2 | 2009-10-06 | Reglamento 43 (2009-10-06) |
