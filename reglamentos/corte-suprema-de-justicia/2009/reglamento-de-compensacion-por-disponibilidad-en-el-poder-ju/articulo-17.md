@@ -1,0 +1,1 @@
+Artículo 17.—Partida presupuestaria. La Corte Plena deberá reservar en el presupuesto anual las partidas necesarias a fin de dar contenido económico al pago de la Disponibilidad y las horas extra que se generen con ocasión del trabajo efectivo, así como cualquier otro gasto que deba cubrirse a los servidores.

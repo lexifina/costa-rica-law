@@ -1,0 +1,2 @@
+Artículo 14.—Consecuencias del incumplimiento. El desacato a los deberes establecidos en el presente Reglamento conlleva a la aplicación de las sanciones que correspondan de acuerdo con el régimen disciplinario establecido en la Ley Orgánica del Poder Judicial.
+Asimismo, en caso de que el servidor judicial incumpla el rol asignado por el jefe o el juez coordinador del despacho u oficina, según corresponda, deberá reintegrar al Poder Judicial las sumas que haya recibido por este concepto a partir de la fecha en que faltó a su obligación.

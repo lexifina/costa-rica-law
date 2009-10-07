@@ -1,0 +1,1 @@
+Artículo 11.—Suplencias. La persona designada como suplente o sustituto debe asumir la disponibilidad y el rol establecido para el titular del puesto, únicamente durante la vigencia de su nombramiento, después del cual lo asumirá el propio titular.

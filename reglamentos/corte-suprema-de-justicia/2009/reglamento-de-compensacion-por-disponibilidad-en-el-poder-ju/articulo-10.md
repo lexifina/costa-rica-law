@@ -1,0 +1,1 @@
+Artículo 10.—Modificación del rol de disponibilidad. En caso de que el servidor judicial no pueda cubrir el rol de disponibilidad asignado, el jefe o el juez coordinador del despacho u oficina, según corresponda, tomará las medidas tendientes a no afectar el buen servicio público, ya que tiene la facultad de modificar los roles establecidos cuando así lo considere necesario.

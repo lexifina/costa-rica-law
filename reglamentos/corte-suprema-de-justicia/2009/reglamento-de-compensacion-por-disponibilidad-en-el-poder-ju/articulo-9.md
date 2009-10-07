@@ -1,0 +1,1 @@
+Artículo 9.—Suspensión del rol de disponibilidad. El servidor judicial que se encuentre en vacaciones o incapacitado no estará sujeto al rol de disponibilidad, razón por la cual una vez que se reintegre a sus funciones asumirá, nuevamente, el rol de disponibilidad según le sea asignado.

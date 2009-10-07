@@ -1,0 +1,1 @@
+Artículo 15.—Vigilancia del cumplimiento. Los superiores de los servidores sujetos a la disponibilidad y la Inspección Judicial deben velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 20.—Vigencia. Rige a partir de su publicación en el Boletín Judicial y deroga las disposiciones sobre disponibilidad aprobadas por Corte Plena en sesión Nº 003-98 celebrada el 2 de febrero de 1998, artículo VIII, el Reglamento de Compensación por Disponibilidad en el Poder Judicial aprobado por Corte Plena en sesión Nº 09-02 celebrada el 25 de febrero de 2002, artículo XXXI, y cualquier otra que se le oponga.”
+San José, 21 de setiembre de 2009.

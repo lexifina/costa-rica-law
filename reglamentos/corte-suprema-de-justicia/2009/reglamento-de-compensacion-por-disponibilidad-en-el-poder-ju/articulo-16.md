@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 16.—Facilidades para la prestación del servicio. El Poder Judicial brindará las facilidades requeridas de transporte y cancelará los gastos en que incurra el servidor con motivo de su traslado, así como gastos de alimentación y de alojamiento, cuando, en razón de la distancia, ello deba satisfacerse legalmente.

@@ -1,0 +1,1 @@
+Artículo 12.—Extinción de la disponibilidad. El pago del porcentaje correspondiente a disponibilidad se extingue cuando el servidor judicial no se encuentre nombrado en un cargo y número de puesto sujetos a este régimen y no puede alegar derechos adquiridos, en virtud de que la disponibilidad no constituye una prestación invariable.

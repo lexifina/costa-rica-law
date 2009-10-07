@@ -1,0 +1,1 @@
+Artículo 4º—De las atribuciones de la Corte Plena y el Consejo Superior. Corresponderá a la Corte definir las políticas generales sobre la disponibilidad y al Consejo Superior ejecutarlas conforme a la Ley Orgánica del Poder Judicial, así como adoptar los acuerdos necesarios sobre su funcionamiento.

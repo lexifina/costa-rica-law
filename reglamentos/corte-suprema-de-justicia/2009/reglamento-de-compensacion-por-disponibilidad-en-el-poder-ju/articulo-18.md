@@ -1,0 +1,1 @@
+Artículo 18.—Turnos. Los turnos extraordinarios establecidos por la Corte Plena o el Consejo Superior en determinadas circunscripciones territoriales, con el propósito de dar cumplimiento a la disponibilidad, no se rigen por estas disposiciones sino por las ordinarias laborales.
