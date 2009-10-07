@@ -1,0 +1,1 @@
+Artículo 6º—Determinación de los mecanismos de recaudación del canon: La SUTEL determinará los medios y procedimientos adecuados para recaudar los montos de los cánones, a los que se refiere este reglamento.

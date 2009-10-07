@@ -1,0 +1,1 @@
+Artículo 8º—Intereses y multas por mora: En caso de falta de pago, se aplicará lo dispuesto en el artículo 64 de la Ley 8642 y el operador o proveedor podrá exponerse a lo establecido en el artículo 22, inciso d) de la misma ley.
