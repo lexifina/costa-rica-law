@@ -1,1 +1,0 @@
-Artículo 20.—Resolución y rescisión del contrato. El INA podrá resolver el contrato respectivo por incumplimiento del contratista o rescindirlo por caso fortuito, fuerza mayor o por razones de interés público, conforme a lo establecido en el artículo 11 de la Ley de Contracción Administrativa y 204 al 208 de su Reglamento.

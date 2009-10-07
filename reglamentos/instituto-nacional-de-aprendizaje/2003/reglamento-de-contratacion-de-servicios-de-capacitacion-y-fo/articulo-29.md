@@ -1,1 +1,0 @@
-Artículo 29.—Evaluación, asistencia y disciplina. La evaluación, asistencia y disciplina de los participantes en acciones formativas se regirá por la normativa que al efecto rige en el Instituto Nacional de Aprendizaje.

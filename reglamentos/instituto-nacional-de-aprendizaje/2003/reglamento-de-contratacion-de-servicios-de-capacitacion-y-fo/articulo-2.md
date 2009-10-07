@@ -1,1 +1,0 @@
-Artículo 2º—Objeto. El presente Reglamento tiene por objeto establecer un procedimiento de contratación directa de servicios de capacitación y formación profesional con fundamento en lo dispuesto en el artículo 67 de la Constitución Política , en los artículos 2, 3, incisos b), c) ch) y el i) de la Ley Orgánica del INA.

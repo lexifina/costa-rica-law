@@ -1,2 +1,0 @@
-Artículo 8º—Apertura de ofertas. La contratación se abrirá a la hora y fecha prevista en el llamado a contratar, recibiendo las ofertas presentadas, en presencia de los interesados que deseen concurrir, de todo lo cual se levantará un acta, la cual deberá ser debidamente firmada por los funcionarios asistentes.
-En el acta de apertura se verificará que el oferente haya señalado lugar para oír notificaciones. En caso de omisión se le prevendrá su señalamiento.

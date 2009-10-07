@@ -1,1 +1,0 @@
-Artículo 30.—Certificación. Una vez finalizada la capacitación, y previa comprobación de los conocimientos adquiridos por los participantes, el INA expedirá la certificación de los conocimientos adquiridos.

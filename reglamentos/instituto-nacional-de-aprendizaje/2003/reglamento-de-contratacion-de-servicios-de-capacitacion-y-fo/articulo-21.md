@@ -1,1 +1,0 @@
-Artículo 21.—Sanción por incumplimiento de obligaciones. La sanción a particulares puede ser apercibimiento o inhabilitación y se aplicarán con base en las disposiciones establecidas en la Ley de Contratación Administrativa y su Reglamento.
