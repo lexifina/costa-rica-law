@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación: Este Reglamento se aplicará para los bienes y servicios que se adquieran mediante los procedimientos ordinarios de contratación, remates o contrataciones directas que se lleven a cabo en el INA.
