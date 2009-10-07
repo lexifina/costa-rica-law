@@ -1,0 +1,7 @@
+COLEGIO FEDERADO DE INGENIEROS
+Y DE ARQUITECTOS DE COSTA RICA
+La Junta Directiva General en su sesión Nº 44-08/09-G.E. de fecha 14 de setiembre del 2009, acordó lo siguiente:
+“Acuerdo Nº 19:
+Se aprueba la propuesta de reforma al artículo 34 del Reglamento del Régimen de Mutualidad, según lo recomendado por la Asesoría Legal en su oficio Nº 000128-2009-AL-LA, para que diga de la siguiente manera:
+“Artículo 34.—Se le otorgará hasta un 75% del beneficio, al miembro que padezca de enfermedad en fase terminal o sea incapacitado o inhabilitado, por razones de salud física o mental, permanentemente para el ejercicio profesional, el cual se hará efectivo una vez que se compruebe fehacientemente la enfermedad o inhabilitación, según corresponda, de acuerdo con las evaluaciones realizadas por los profesionales que el Régimen designe. De igual forma, en los casos particulares que así lo ameriten, la Junta Directiva General podrá otorgar un subsidio especial, del adelanto de hasta un 75% del beneficio, previo análisis fehaciente de la situación del miembro. El porcentaje restante se lo reservará el Régimen para entregarlo a los beneficiarios al producirse el deceso de dicho miembro. Los porcentajes se aplicarán al monto establecido como beneficio de mutualidad vigente en el momento de otorgar cada desembolso. Dicha solicitud de beneficio deberá ser discutida y aprobada o improbada por la Junta Directiva General”.
+San José, 28 de setiembre del 2009
