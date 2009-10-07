@@ -1,0 +1,1 @@
+Artículo 18.—Tipos de modificaciones presupuestarias. Se establece la modificación presupuestaria de aprobación del Concejo con el propósito de alcanzar los objetivos que persigue la Municipalidad de Buenos Aires.
