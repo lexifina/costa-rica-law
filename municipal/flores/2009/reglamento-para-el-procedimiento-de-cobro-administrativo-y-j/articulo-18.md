@@ -1,0 +1,1 @@
+Artículo 18.—Bajo ninguna circunstancia los abogados contratados para realizar cobros judiciales de cuentas morosas podrán aceptar casos de litigio de ninguna naturaleza en contra de la Municipalidad de Flores; el incumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado externo de la corporación municipal.
