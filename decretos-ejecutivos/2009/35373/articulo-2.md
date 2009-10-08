@@ -1,0 +1,1 @@
+Artículo 2º—Designar al Instituto de Investigaciones Agrícolas de la Universidad de Costa Rica y a la Sociedad Internacional de Ciencias Hortícolas (USHS), como organizador de este Evento Internacional, para que coordine todas las acciones necesarias con los sectores que lo requieran y las diversas instituciones del Estado, a efecto de garantizar el éxito de esta actividad.
