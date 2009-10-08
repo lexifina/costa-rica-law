@@ -14,3 +14,4 @@ Directrices sobre los Requisitos Mínimos que beben presentar los Sujetos Privad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-12 | la propia norma |
+| 2 | 2009-10-08 | Reglamento 62 (2009-10-08) |
