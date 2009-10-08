@@ -1,0 +1,1 @@
+Artículo 10.—Cada miembro representante del COLOSEVI-FLORES, deberá asistir puntualmente a las reuniones a que fuere convocado. Asimismo se hace saber que el no asistir a tres reuniones consecutivas sin justificación o seis ausencias justificadas, acarrea la pérdida de la credencial otorgada como miembro del COLOSEVI-FLORES.

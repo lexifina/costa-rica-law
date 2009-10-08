@@ -1,0 +1,1 @@
+Artículo 6º—Las políticas y acciones del COLOSEVI-FLORES se regirán, en todo momento, según lo dispuesto en el Decreto Ejecutivo número 29390-MOPT, los lineamientos del Consejo de Seguridad Vial, Dirección General de Ingeniería de Tránsito, la Ley de Tránsito número 7331, del Concejo Municipal de Flores y de cualquier nueva ley o norma creada para tal efecto.
