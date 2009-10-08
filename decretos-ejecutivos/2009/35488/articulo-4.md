@@ -1,0 +1,1 @@
+Artículo 4º—Se dejan vigentes, hasta su vencimiento, o hasta que la Junta Administrativa del Registro Nacional disponga, todos los Convenios que sobre la materia aquí regulada haya suscrito la Institución.

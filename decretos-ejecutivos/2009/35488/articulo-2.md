@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al Registro Nacional para emitir certificaciones, y brindar todos los servicios derivados de sus bases de datos, a través de documentos digitales y demás medios tecnológicos que la Institución determine.
