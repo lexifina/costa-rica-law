@@ -14,3 +14,4 @@ Instructivo para arreglos de pago Administrativo y Extrajudicial del INVU
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-06 | la propia norma |
+| 2 | 2009-10-09 | Reglamento 5770 (2009-10-09) |
