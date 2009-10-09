@@ -1,0 +1,1 @@
+Artículo 2º—Deróguense los artículos 3, 7 y 8, del Decreto Ejecutivo Nº 32209-S de 10 de agosto del 2004 publicado en La Gaceta Nº 23 del 02 de febrero del 2005 “Crea Comisión Técnica para el Desarrollo del Recurso Humano en Salud”.
