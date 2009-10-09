@@ -1,0 +1,1 @@
+Artículo 36.—De las sedes regionales de la FUNAC 4-S. Para el mejor ejercicio de sus competencias y cobertura en las diferentes áreas geográficas del país, la FUNAC 4-S desarrollará sus funciones a través de la puesta en operación de las sedes regionales, para lo que se aplicará la división territorial que aplique el MAG.

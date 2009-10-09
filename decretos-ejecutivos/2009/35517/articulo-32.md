@@ -1,0 +1,1 @@
+Artículo 32.—Del Consejo Técnico. Naturaleza y competencia. El Consejo Técnico es un órgano colegiado, asesor de la Dirección Ejecutiva de la FUNAC 4-S y de seguimiento de las acciones técnicas desarrolladas por la institución, en los aspectos relacionados con las competencias otorgadas por Ley, nombrado por la Dirección Ejecutiva.

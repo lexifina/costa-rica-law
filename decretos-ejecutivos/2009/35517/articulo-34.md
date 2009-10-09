@@ -1,0 +1,1 @@
+Artículo 34.—De la Integración del Consejo Técnico. Este Consejo está conformado por el Subdirector (a) Ejecutivo quien lo preside, el Director (a) Administrativo Financiero, los (as) directores de las sedes regionales, el personal técnico de la FUNAC 4-S y por el Director (a) Ejecutivo, en los casos que lo considere pertinente.

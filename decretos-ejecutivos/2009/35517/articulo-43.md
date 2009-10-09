@@ -1,0 +1,1 @@
+Artículo 43.—El personal dispuesto en el inciso k) del artículo 28 del presente reglamento, no podrá ser nombrado con vinculación de parentesco hasta el tercer grado de consanguinidad o afinidad con los directores.

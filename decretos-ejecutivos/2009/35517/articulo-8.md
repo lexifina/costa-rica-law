@@ -1,0 +1,1 @@
+Artículo 8º—Podrán ser miembros del Comité Nacional, los costarricenses o extranjeros mayores de dieciocho años de edad, de reconocida solvencia moral. Estos últimos deberán tener no menos de tres años de permanencia en el país, y cumplir previamente con los requisitos que establecen las Leyes, los Tratados Migratorios y Laborales.
