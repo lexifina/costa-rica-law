@@ -14,3 +14,4 @@ Reglamento Inmunidades y Privilegios Diplomáticos Consulares yOrganismos Intern
 | --- | --- | --- |
 | 1 | 1985-01-04 | la propia norma |
 | 2 | 1985-01-04 | SINALEVI (sin norma nombrada) |
+| 3 | 2009-10-09 | Decreto Ejecutivo 35565 (2009-10-09) |

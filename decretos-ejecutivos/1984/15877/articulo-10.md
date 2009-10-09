@@ -1,8 +1,2 @@
-Artículo 10.- Los Jefes de las Misiones Diplomáticas pertenecientes
-a las categorías de Nuncio, Embajador Extraordinario y Plenipotenciario,
-Enviado Extraordinario y Ministro Plenipotenciario y Encargado de
-Negocios con Carta de Gabinete, que residan en Costa Rica, podrán
-importar, con base en la ley y en la más estricta reciprocidad
-internacional, hasta dos automóviles con exoneración de todo tributo y
-demás gravámenes, sin limitación en cuanto a cilindraje, para uso
-personal del Jefe de la Misión y de su familia.
+Artículo 10.—Los jefes de las misiones diplomáticas, los demás agentes diplomáticos, los funcionarios consulares de carrera, los funcionarios de organismos internacionales y agencias de cooperación que por medio de acuerdos vigentes gocen de una condición similar y que residan en Costa Rica; podrán importar hasta dos vehículos automotrices con exoneración de todo tributo y demás gravámenes, sin limitación en cuanto a cilindraje, para su uso personal y el de su familia. Para variar el número de vehículos exonerados se debe aplicar de forma estricta, el principio de reciprocidad consagrado en el derecho internacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35565 del 9 de octubre del 2009)
