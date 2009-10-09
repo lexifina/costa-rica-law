@@ -1,0 +1,1 @@
+Artículo 10.—Medidas de entradas y salidas. Las cuales deberán ser independientes, al ancho mínimo permitido de las entradas y salidas será de 2,50 m para cada una. Los radios de giro deberán ajustarse mínimo a 4,66 m de trayectoria de la saliente trasera y los carriles de circulación deberán medir por lo menos 3,00 m de ancho.

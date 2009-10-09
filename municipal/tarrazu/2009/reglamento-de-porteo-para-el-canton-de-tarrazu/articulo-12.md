@@ -1,0 +1,1 @@
+Artículo 12.—Impedimento. No se aprobará nuevos permisos de funcionamiento para la apertura de terminales para el servicio de Porteo cuando sus entradas y salidas se encuentren a menos de 25,00 m del vértice horizontal de la esquina y a menos de 25 metros de donde se ubiquen las paradas de autobuses, escuelas, colegios o iglesias.
