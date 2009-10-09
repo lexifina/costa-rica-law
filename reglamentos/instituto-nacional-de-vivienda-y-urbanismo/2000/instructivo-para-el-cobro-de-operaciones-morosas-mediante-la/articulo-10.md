@@ -1,2 +1,0 @@
-Artículo 10.—Recibidos los documentos por el abogado asignado, éste contará con un plazo de ocho días hábiles para entregar en el Proceso de Cobros copia de la demanda debidamente presentada con el recibo del Despacho Judicial, donde conste, además, el número de expediente.
-No se entregarán casos nuevos a los abogados externos que incumplan con la presentación de dicho informe, o lo hagan en forma incompleta.

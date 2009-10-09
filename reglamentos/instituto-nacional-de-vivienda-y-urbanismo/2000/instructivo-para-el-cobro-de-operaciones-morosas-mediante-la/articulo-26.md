@@ -1,1 +1,0 @@
-Artículo 26.—Los testimonios de escrituras, debidamente inscritos, deberán ser entregados al Proceso de Cobros, para el trámite de contabilización, custodia y remisión a la Subárea de Proyectos Terminados para su readjudicación, con un desglose de los gastos incurridos con el fin de que sean incluidos en el precio de la nueva venta.

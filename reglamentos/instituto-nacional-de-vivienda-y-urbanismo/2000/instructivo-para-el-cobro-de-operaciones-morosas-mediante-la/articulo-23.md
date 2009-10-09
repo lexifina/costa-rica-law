@@ -1,1 +1,0 @@
-Artículo 23.—Al tercer día hábil siguiente del remate, el abogado que ha atendido el juicio, deberá informar por escrito al Proceso de Cobros, sobre el resultado del mismo anexando copia del acta de remate.
