@@ -1,0 +1,1 @@
+Artículo 9º—Cada institución que forma parte del Sistema Digital de Formalización de Empresas, deberá de mantener actualizada la información, para lo cual deberá coordinar con el citado Comité Colegiado.

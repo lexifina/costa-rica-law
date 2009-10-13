@@ -1,0 +1,1 @@
+Artículo 2º—Quedan oficializados y se dan por publicados todos los trámites, requisitos, procedimientos y formularios de las diferentes instituciones participantes, incluidos en este Sistema Digital, siendo los únicos válidos a ser utilizados en los trámites correspondientes.

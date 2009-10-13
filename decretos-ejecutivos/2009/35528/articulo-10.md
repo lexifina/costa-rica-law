@@ -1,0 +1,1 @@
+Artículo 10.—La función de ente coordinador y administrador del Sistema Digital de Formalización de Empresas, estará a cargo del Ministerio de Economía, Industria y Comercio, mediante la Dirección de Mejora Regulatoria y Reglamentación Técnica.
