@@ -15,3 +15,4 @@ Reglamento para la Administración de los Bienes del Instituto Costarricense de 
 | --- | --- | --- |
 | 1 | 2007-03-09 | la propia norma |
 | 2 | 2007-05-22 | Reglamento 3421 (2007-05-22) |
+| 3 | 2009-10-13 | Reglamento 3595 (2009-10-13) |
