@@ -1,0 +1,1 @@
+Artículo 9º—Se excepcionan de la aplicación del decreto los funcionarios del Ministerio de Salud que estén en actividades de control e inspección sanitaria en control de vectores, festejos populares o acciones relacionadas con la pandemia de influenza AH1N1 y en la atención directa de los niños y niñas de los programas de los CEN-CINAI.

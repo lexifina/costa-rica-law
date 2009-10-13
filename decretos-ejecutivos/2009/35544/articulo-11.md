@@ -1,0 +1,1 @@
+Artículo 11.—Para los funcionarios de la Administración Descentralizada, de los otros poderes del Estado, del Tribunal Supremo de Elecciones, y demás entidades de Derecho Público, será facultativo concederles asueto en las horas establecidas, de conformidad con lo resuelto por las autoridades de cada institución.

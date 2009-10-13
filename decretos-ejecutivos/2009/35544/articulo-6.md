@@ -1,0 +1,1 @@
+Artículo 6º—Se excepcionan de la aplicación del decreto a los miembros de la Fuerza Pública del Ministerio de Seguridad Pública y de la Policía de Tránsito del Ministerio de Obras Públicas y Transportes.
