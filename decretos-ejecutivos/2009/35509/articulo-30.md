@@ -1,0 +1,1 @@
+Artículo 30.—Resolución final por parte del Tribunal Registral Administrativo. Una vez resuelto lo correspondiente por el Tribunal Registral Administrativo y devuelto el expediente, la subdirección correspondiente o el asesor en quien ésta haya delegado, ejecutará la resolución final.

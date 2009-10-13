@@ -1,0 +1,1 @@
+Artículo 33.—Legitimación para solicitar la nota de prevención de inexactitud extraregistral. La solicitud de anotación de nota de prevención de inexactitud extraregistral, podrán realizarla los afectados de la inexactitud de origen extraregistral, siempre que aporte los requisitos establecidos al efecto.

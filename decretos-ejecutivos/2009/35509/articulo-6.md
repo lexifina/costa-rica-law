@@ -1,0 +1,2 @@
+Artículo 6º—Línea jerárquica. El Director es el superior jerárquico de la Dirección del Registro Inmobiliario tanto en materia administrativa como técnica. Las Subdirecciones: Registral y Catastral deberán acatar las órdenes, instrucciones y circulares y actuar de conformidad con lo que disponga el Director del Registro Inmobiliario.
+Los jefes de departamento deberán acatar las órdenes e instrucciones de las respectivas subdirecciones y del Director del Registro Inmobiliario.

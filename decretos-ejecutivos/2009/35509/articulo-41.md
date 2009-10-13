@@ -1,0 +1,4 @@
+Artículo 41.—Del Recurso de apelación ante el Tribunal Registral Administrativo. Contra la resolución final dictada por la Subdirección correspondiente o el asesor delegado procederá el recurso de apelación, que debe interponerse ante ésta misma oficina dentro de los cinco días hábiles siguientes, contados a partir del día siguiente de la notificación de la resolución.
+Presentada en tiempo y forma la apelación, la Subdirección respectiva o asesor designado remitirá sin más trámite el expediente al Tribunal Registral Administrativo para que resuelva conforme a derecho.
+Resolución final por parte del Tribunal respectivo.
+Una vez resuelto lo correspondiente por Tribunal Registral Administrativo y devuelto el expediente, la subdirección correspondiente o el asesor designado ejecutará la resolución final.

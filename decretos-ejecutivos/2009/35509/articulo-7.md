@@ -1,0 +1,2 @@
+Artículo 7º—Unidades Organizativas del Registro Inmobiliario. El Registro Inmobiliario en su nivel operativo estará constituido por los siguientes departamentos: Catastral Técnico, Catastral Registral, Normalización Técnica e Inmobiliario Registral.
+Adicionalmente a las unidades organizativas establecidas en este Reglamento, el Director del Registro Inmobiliario podrá constituir cualesquiera otras que se consideren necesarias para el cumplimiento de los objetivos, funciones, procesos y procedimientos, siguiendo el trámite legal y administrativo correspondiente.

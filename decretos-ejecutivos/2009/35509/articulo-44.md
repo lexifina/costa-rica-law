@@ -1,0 +1,1 @@
+Artículo 44.—Disposiciones derogatorias. Para los efectos del presente Reglamento deróguese el inciso a) del artículo 3 y los artículos 4 ,5 y 7 del Capítulo II del Título Primero, del Reglamento del Registro Público, Decreto Nº 26771-J de 18 de febrero de 1998.

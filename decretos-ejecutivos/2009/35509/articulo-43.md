@@ -1,0 +1,1 @@
+Artículo 43.—Disposiciones Supletorias. En lo no previsto en este reglamento se aplicará en lo que fuere compatible, el Reglamento del Registro Público. Decreto Nº 26771-J- de 18 de febrero de 1998 y sus reformas.
