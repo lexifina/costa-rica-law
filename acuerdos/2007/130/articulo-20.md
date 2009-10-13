@@ -1,2 +1,2 @@
-Artículo 20.—Vigencia. Rige a partir de su publicación.
-(Así corrida su numeración por acuerdo SGV-137 del 10 de setiembre de 2007, que lo traspasó del antiguo artículo 19 al 20 actual del artículo)
+Artículo 20.—Derogatoria. Se deroga el acuerdo SGV-A-78 Instrucción para la implementación del Reglamento de Custodia ref. 2369 del 11 de julio del 2003 y los artículos 1 y 2 del Acuerdo SGV-A-105 Instrucciones para el manejo de las cuentas corrientes y de la custodia de los títulos valores en los fondos de inversión ref. 1738 del 20 de abril 2005.
+(Así corrida su numeración por acuerdo SGV-A-160 del 13 de octubre de 2009, que lo traspaso del antiguo artículo 19 al 20 actual del artículo)
