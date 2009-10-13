@@ -14,3 +14,4 @@ Declara estado de emergencia fitosanitaria para los cantones de Pérez Zeledón 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-17 | la propia norma |
+| 2 | 2009-10-13 | Decreto Ejecutivo 35581 (2009-10-13) |
