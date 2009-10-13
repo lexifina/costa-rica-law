@@ -77,6 +77,22 @@ Los centros penales en la mayoría de países de Centro América se encuentran b
 Basados en evaluaciones iniciales, los asesores colaborarán en el desarrollo de un proceso de planificación estratégico dirigido a resolver las inquietudes de mayor relevancia y la capacitación de aquellos a cargo de la toma de decisiones, y para el implementador enfocado en un programa de capacitación a capacitadores, que permita a los instructores locales mantener las operaciones de la academia. La capacitación incluirá visitas regionales a otros países con objetivos de capacitación y como observadores de programas ya establecidos así como a instalaciones penitenciarias en los Estados Unidos bien administradas.
 Los cambios básicos son capacitación en operaciones y conducta, pero se requerirá el apoyo de equipo. Algunos ejemplos incluyen equipo básico para el personal y para controlar a los reclusos, que podrían variar desde brazaletes codificados por color hasta cámaras digitales y sistemas de grabación. También incluye comunicaciones, iluminación y un mecanismo bien establecido y practicado para el uso proporcional de la fuerza policial, equipo de rayos X para la inspección de paquetes, detectores de metales y equipo de protección para los oficiales.
 Los equipos de asesores continuarán trabajando con los funcionarios de los centros penales de manera frecuente para garantizar el establecimiento y funcionamiento de las prácticas, el uso adecuado del equipo y el seguimiento del plan estratégico.
+(*)Lavado de Dinero / Confiscación de Bienes
+Nombre del Programa: Lavado de Dinero /Confiscación de
+Bienes
+Agencia del Gobierno de los
+Estados Unidos de América
+responsable de implementar
+el programa: Oficina de Asistencia Técnica (OTA
+siglas en inglés) del Departamento del
+Tesoro
+Agencia del Gobierno de Costa Rica
+responsable de implementar el
+programa: Instituto Costarricense sobre Drogas
+(ICD)
+Financiamiento: $76,000 Costa Rica
+Este programa apoyará la capacitación y asistencia técnica para fortalecer la capacidad institucional del Gobierno de Costa Rica en materia de investigaciones financieras; contrarrestar el lavado de dinero proveniente de actividades ilícitas, apoyar la apertura de procesos judiciales penales, dar soporte a los programas de confiscación/incautación de bienes y aumentar su efectividad, asegurar que la regulación, supervisión y capacitación del personal sea la adecuada para resguardar al sector financiero de malversación y abuso por parte de criminales. El programa proporcionará asesoría y supervisión a la Unidad de Investigaciones Financieras y a los funcionarios encargados de la implementación del software para el manejo de casos.
+(*)(Así adicionado por el artículo 1° del decreto ejecutivo N° 35596 del 13 de octubre de 2009)
 III.—METAS DE RENDIMIENTO Y MEDICIÓN DE LA EFECTIVIDAD
 Las metas del rendimiento general de los proyectos de la Iniciativa Mérida y sus medidas de efectividad se detallan en el Anexo 1 (Metas, Objetivos e Indicadores Estratégicos de la Iniciativa Mérida).
 Para proyectos específicos, las Partes acuerdan que el propósito de las metas de rendimiento y las medidas de efectividad es demostrar a sus respectivos ciudadanos que los recursos comprometidos, para los esfuerzos de cooperación descritos en esta Carta de Entendimiento (LOA), se están utilizando de manera eficiente. Para lograrlo, las Partes acuerdan establecer objetivos y medidas adecuadas para los proyectos cubiertos conforme a los términos de esta Carta de Entendimiento (LOA) e incorporar, en los casos que resulte apropiado, los objetivos y medidas descritas en la Iniciativa Mérida. Para el primer año de operación, cada uno de estos programas incluirá las siguientes medidas de desempeño.
@@ -90,6 +106,10 @@ equipo suministrado.
 Mejoras en la Administración del Sistema Penitenciario
 Medida de desempeño del primer año:
 Evaluación del Sistema Penitenciario completo.
+(*)Lavado de Dinero / Confiscación de Bienes
+La meta del proyecto es la conducción de investigaciones financieras, disminuir el lavado de dinero procedente de actividades ilícitas, apoyar la apertura de procesos judiciales penales, dar soporte a los programas de confiscación/incautación de bienes y aumentar su efectividad, asegurar que la regulación, supervisión y capacitación del personal sea la adecuada para resguardar al sector financiero de malversación y abuso por parte de criminales.
+Para finales del año 2010, por lo menos 115 miembros del Gobierno de la República de Costa Rica serán capacitados en materia de lavado de dinero y confiscación de bienes. Los funcionarios capacitados abrirán 25 investigaciones ante el Ministerio Público. Para finales del año 2011, 15 investigaciones serán concluidas.
+(*)(Así adicionado por el artículo 1° del decreto ejecutivo N° 35596 del 13 de octubre de 2009)
 IV.—PLAN DE EVALUACIÓN
 Los representantes del Gobierno de los Estados Unidos de América y del Gobierno de la República de Costa Rica se reunirán cada tres meses para revisar el avance relacionado con el logro de las metas y objetivos del proyecto. El avance se evaluará de acuerdo con las medidas de éxito descritas anteriormente que son aplicables específicamente a Costa Rica. La información que debe tomarse en cuenta al realizar estas evaluaciones incluirá indicadores cualitativos y cuantitativos. Se preparará un informe de manera conjunta para resumir los resultados de estas evaluaciones, las cuales son adicionales a la supervisión actual de los programas y actividades realizada por personal relevante de ambos gobiernos.
 V.—CLÁUSULAS BÁSICAS

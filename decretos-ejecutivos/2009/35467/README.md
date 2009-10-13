@@ -14,3 +14,4 @@ Promulga teniendo como vigente para los efectos internos y externos la Carta de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-23 | la propia norma |
+| 2 | 2009-10-13 | Decreto Ejecutivo 35596 (2009-10-13) |
