@@ -1,1 +1,0 @@
-Artículo 4º—Principios fundamentales. La declaratoria de una vía pública como de acceso restringido procederá con el propósito de garantizar una mejor seguridad vial dentro de una adecuada planificación territorial, todo con base en los estudios técnicos y siguiendo las disposiciones establecidas en la normativa que rige la materia.

@@ -1,1 +1,0 @@
-Transitorio II.—Todos los accesos construidos y autorizados conforme a la normativa que se deroga y que estuvieren en funcionamiento al momento de entrar en vigencia el presente Reglamento, se mantendrán ya que forman parte de la Red Vial Nacional y han generado derechos para sus usuarios.
