@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34967-MINAET
+(Este decreto fue derogado por el artículo 33 del decreto ejecutivo N° 35700 del 14 de octubre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE, ENERGÍA
 Y TELECOMUNICACIONES

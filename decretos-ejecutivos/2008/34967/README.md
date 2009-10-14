@@ -14,3 +14,4 @@ Regulaciones para la Caza Menor y Mayor fuera de las áreas silvestres protegida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-19 | la propia norma |
+| 2 | 2009-10-14 | Decreto Ejecutivo 35700 (2009-10-14) |
