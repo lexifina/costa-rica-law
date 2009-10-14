@@ -1,6 +1,6 @@
 # Crea Instituto del Deporte y Recreación (ICODER) y su Régimen Jurídico
 
-Ley N° 7800 del 1998-04-30. SINALEVI, ficha 26290: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26290&param2=67034&param3=1>.
+Ley N° 7800 del 1998-04-30. SINALEVI, ficha 26290: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26290&param2=78197&param3=1>.
 
 Publicada en La Gaceta N° 103 del 1998-05-29.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 13 | 2001-01-24 | Ley 8057 | 2000-12-21 |
 | 4 de 13 | 2001-01-24 | Ley 8 | 2000-12-21 |
 | 5 de 13 | 2007-02-21 | Sala Constitucional, resolución 2415-07 (2007-02-21) | 2007-02-21 |
+| 6 de 13 | 2009-10-14 | Ley 8783 | 2009-10-13 |

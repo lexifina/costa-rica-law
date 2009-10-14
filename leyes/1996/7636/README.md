@@ -1,6 +1,6 @@
 # Pensión para los Discapacitados con Dependientes
 
-Ley N° 7636 del 1996-10-14. SINALEVI, ficha 43068: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43068&param2=45396&param3=1>.
+Ley N° 7636 del 1996-10-14. SINALEVI, ficha 43068: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43068&param2=78196&param3=1>.
 
 Publicada en La Gaceta N° 217 del 1996-11-12.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 5 | 1996-11-12 | Ley 7636 | 1996-10-14 |
 | 2 de 5 | 1996-11-12 | SINALEVI | 1996-10-14 |
+| 3 de 5 | 2009-10-14 | Ley 8783 | 2009-10-13 |
