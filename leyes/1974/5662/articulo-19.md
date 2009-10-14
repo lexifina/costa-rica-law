@@ -1,11 +1,3 @@
-Artículo 19.- La Dirección General de Desarrollo Social y
-Asignaciones Familiares contratará, con la Caja Costarricense de Seguro
-Social, la recaudación de los fondos asignados por esta ley mediante el
-recargo en las planillas, la emisión de listados, la confección de
-cheques o giros, los sistemas de control, el pago de programas y
-servicios a cargo de instituciones del Estado, etc., con el fin de
-atender la administración del fondo de desarrollo social y asignaciones
-familiares. Los gastos de administración que cobre la Caja a la
-Dirección no podrán exceder del costo de los mismos.
-(TEXTO MODIFICADO por Resolución de la Sala Constitucional Nº
-4529-99 de las 14:57 horas del 15 de junio de 1999).
+Artículo 19.-
+Créase la Dirección General de Desarrollo Social y Asignaciones Familiares (Desaf) como una dependencia técnica permanente del Ministerio de Trabajo y Seguridad Social, cuyo superior jerárquico es el titular de esa cartera y tendrá a su cargo, además de lo que se establece en otros artículos de esta Ley, la ejecución de las escalas y los montos de los beneficios que se lleguen a otorgar en efectivo.
+También, le corresponderá evaluar y fiscalizar que las instituciones y unidades ejecutoras del Fondo aseguren el acceso en igualdad de condiciones a las personas con discapacidad, a los servicios brindados con los recursos establecidos en esta Ley.

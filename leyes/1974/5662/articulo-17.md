@@ -1,6 +1,4 @@
-Artículo 17.-El fondo establecido por esta ley es patrimonio de
-todos los beneficiarios y en ningún caso y para ningún efecto podrá ser
-destinado a otras finalidades que no sean las señaladas por esta ley. En
-consecuencia, los fondos que reciban las instituciones encargadas de
-programas y servicios no podrán ser utilizados en gastos administrativos,
-sino exclusivamente en el pago de esos programas y servicios.
+Artículo 17.-
+Para su funcionamiento, la Desaf podrá utilizar hasta un cero coma cincuenta por ciento (0,50%) de los ingresos ordinarios y extraordinarios del Fondo para cubrir sus gastos administrativos, incluidos personal, materiales y equipo de oficina, vehículos y viáticos nacionales y extranjeros, así como para pagar las actividades destinadas a la evaluación de la ejecución, eficiencia y eficacia de los programas financiados por el Fondo, incluidos el costo de vehículos para el transporte de los funcionarios a las inspecciones de campo, los viáticos y otros gastos propios de esta función fiscalizadora.
+La Desaf también podrá utilizar hasta un cero coma cincuenta por ciento (0,50%) de los ingresos ordinarios y extraordinarios del Fondo para cubrir el pago de los gastos administrativos a favor de la CCSS, por concepto del servicio de recaudación y administración del Fondo.
+La recaudación que realice la CCSS la hará por medio del Sistema Centralizado de Recaudación (Sicere) y los gastos administrativos que cobre serán los que periódicamente establezca, mediante los estudios pertinentes, la Dirección Actuarial y de Planificación Económica de la Caja, debidamente aprobados por la Junta Directiva y comunicados a la Desaf.

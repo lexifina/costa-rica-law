@@ -1,5 +1,2 @@
-Artículo 20.- Los presupuestos del fondo de desarrollo social y
-asignaciones familiares se someterán a la aprobación de la Contraloría
-General de la República, la que estará obligada a fiscalizar
-trimestralmente el estricto cumplimiento legal y reglamentario de todos
-los alcances de esta ley.
+Artículo 20.-
+La Desaf contratará con la CCSS la recaudación y las gestiones cobratorias de los fondos asignados por esta Ley, mediante el recargo en las planillas, la emisión de listados, la confección de cheques o giros, los sistemas de control, el pago de programas y servicios a cargo de instituciones del Estado, etc., con el fin de atender la administración del Fodesaf. Los gastos de administración que cobre la Caja a la Dirección no podrán exceder del costo de estos.

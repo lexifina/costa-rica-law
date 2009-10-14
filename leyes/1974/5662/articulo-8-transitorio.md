@@ -1,0 +1,2 @@
+TRANSITORIO VIII.- En un plazo máximo de seis meses, contado a partir de la entrada en vigencia de la presente Ley, el Poder Ejecutivo emitirá un Reglamento de operación que normará los lineamientos y las directrices para el funcionamiento de la base de datos a que se refiere el artículo 5 de esta Ley. Dicho Reglamento, definirá, como mínimo, lo referente a la gerencia, administración, traslado de datos entre instituciones, así como el uso de accesibilidad de estos datos.
+(Así adicionado mediante ley N° 8783 del 13 de octubre de 2009)

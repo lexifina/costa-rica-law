@@ -1,6 +1,7 @@
-Artículo 18.- Créase la Dirección General de Desarrollo Social y
-Asignaciones Familiares como una dependencia técnica permanente del
-Ministerio de Trabajo y Seguridad Social, cuyo superior jerárquico es el
-titular de esa Cartera y tendrá a su cargo, además de lo que se establece
-en otros artículos de esta ley, la determinación sobre las escalas y
-montos de los beneficios que se llegaren a otorgar en efectivo.
+Artículo 18.-
+El Fondo establecido por esta Ley es patrimonio de todos los beneficiarios y en ningún caso ni para ningún efecto podrá ser destinado a otras finalidades que no sean las señaladas por esta Ley.
+En consecuencia, los fondos que reciban las instituciones encargadas de programas y servicios, por ley o convenio, no podrán ser utilizados en gastos administrativos sino, exclusivamente, en el pago de esos programas y servicios, con las excepciones indicadas en esta Ley.
+Las instituciones ejecutoras deberán presentar informes de ejecución presupuestaria, cumplimiento de metas y rendición de cuentas, ante la Dirección General, y con la periodicidad que se establecerá en los convenios interinstitucionales.
+Cuando se compruebe que una institución ha destinado recursos provenientes del Fondo a financiar gastos administrativos u otros objetivos no autorizados por esta Ley o sus leyes constitutivas, la Desaf comunicará por es cr ito a dicho ente que el financiamiento cesará hasta que los rubros administrativos en referencia sean incluidos en el presupuesto ordinario de la institución y cubiertos por fuentes de ingreso distintos de los del Fodesaf.
+El empleo de fondos públicos, dispuesto con finalidades distintas de las establecidas por ley, es un hecho generador de responsabilidad administrativa civil y penal.
+Los funcionarios públicos que malversen, distraigan o desvíen los recursos de este Fondo, para proselitismo político, incurrirán en los hechos tipificados en los artículos 354 y 356 del Código Penal y serán sancionados con pena de inhabilitación para el ejercicio de cargos públicos de dos a cuatro años, sin perjuicio de que se configure un delito de mayor gravedad.

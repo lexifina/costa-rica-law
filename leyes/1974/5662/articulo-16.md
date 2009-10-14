@@ -1,5 +1,4 @@
-Artículo 16.- Refórmanse el párrafo primero del artículo 12 y el
-artículo 35, ambos de la Ley de Impuesto sobre la Ventas, Nº 3914 de 17
-de julio de 1967 y sus reformas, para que esos artículos se lean de la
-siguiente manera:
-... ... ... ...
+Artículo 16.-
+Constituyen actos realizados en fraude de ley, todas las prácticas dirigidas a dividir o fragmentar las planillas de un mismo patrono, con la finalidad de evadir el pago de la obligación establecida en el inciso b) del artículo 15 de esta Ley, mediante el uso de testaferros, la interposición de personas jurídicas o cualquier otro mecanismo análogo. Estos actos serán absolutamente nulos y no impedirán la aplicación efectiva de esta Ley.
+Las personas jurídicas, las entidades o colectividades que formen parte de grupos económicos o grupos de sociedades quedarán solidariamente obligadas al pago del recargo sobre sueldos y planillas, y al cumplimiento de las demás obligaciones contenidas en esta Ley.
+Para garantizar el cumplimiento de estas obligaciones, los funcionarios responsables podrán prescindir de las formas jurídicas adoptadas por los sujetos obligados que no correspondan a la realidad de los hechos.

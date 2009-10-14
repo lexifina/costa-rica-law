@@ -1,5 +1,3 @@
-Artículo 12.- La acción penal y la acción civil prescribirán en dos
-y diez años, respectivamente. En materia de reincidencias se aplicará el
-artículo 611 del Código de Trabajo y las infracciones se substanciarán
-conforme al procedimiento establecido en el mismo Código, para los
-juicios por faltas a las leyes laborales.
+Artículo 12.-
+La acción penal prescribirá de conformidad con las reglas establecidas en el Código Procesal Penal, salvo el caso de delitos contra los deberes de la función pública o relacionados con el manejo indebido de los fondos públicos regulados en esta Ley, que se regirán por lo dispuesto en la Ley contra la corrupción y el enriquecimiento ilícito en la función pública, N.° 8422. La acción civil prescribirá de conformidad con las reglas del Código de Normas y Procedimientos Tributarios.
+En materia de reincidencias se aplicará lo estipulado en el Código de Trabajo y las infracciones se substanciarán conforme al procedimiento establecido en el mismo Código, para los juicios por faltas a las leyes laborales.

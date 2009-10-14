@@ -1,6 +1,2 @@
-Artículo 21.- La Dirección General, para el cumplimiento de sus
-obligaciones, podrá requerir de las autoridades, oficinas y demás
-instituciones públicas, la ayuda o la información que necesite. Las
-empresas particulares tienen la obligación de suministrar los datos que
-se les soliciten por escrito, para el cumplimiento de esta ley; con las
-limitaciones que establece la legislación común.
+Artículo 21.-
+Los presupuestos del Fodesaf se someterán a la aprobación de la Contraloría General de la República, la que estará obligada a fiscalizar, trimestralmente, el estricto cumplimiento legal y reglamentario de todos los alcances de esta Ley.
