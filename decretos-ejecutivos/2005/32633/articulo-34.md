@@ -6,4 +6,5 @@ En ambos casos, los proyectiles deberán ser de tipo expansivo y con un peso mí
 c. Para la caza de cabro de monte, saíno y coyote, también podrá usarse la escopeta cargada con un solo proyectil con un máximo de doce balines.
 d. También podrán usarse los arcos con un mínimo de cuarenta libras de tensión, medida a setenta centímetros o menos de la halada del arco. Las flechas deberán ser de cabeza a.lada y con un mínimo de dos centímetros de ancho.
 Para la caza menor:
-Las jaulas cogedoras, las trampas, excepto las tigrilleras, y cualquier otro tipo de arma de las enumeradas en el artículo 17 de este reglamento, excepto las impulsadas por aire.
+Las armas que se podrán utilizar para la caza menor son los rifles de calibre 22 y bala U, con una presión mínima de salida en la boca de 80 libras , y otros utensilios tales como: las jaulas cogedoras, las trampas. Se exceptúa de esta norma las armas impulsadas por aire, las tigrilleras y punzones o chusos.
+(Así reformado el párrafo anterior por el artículo 32 del decreto ejecutivo N° 35700 del 14 de octubre de 2009)
