@@ -1,3 +1,2 @@
-Artículo 24.- Esta ley es de orden público, forma parte de la
-legislación social y deberá ser reglamentada por el Poder Ejecutivo
-noventa días después de su vigencia.
+Artículo 24.-
+Las deudas a favor del Fondo constituido mediante la presente Ley tendrán privilegio de pago en relación con los a cr eedores comunes, sin perjuicio de los privilegios mayores conferidos por otras normas. Este privilegio es aplicable en los juicios universales y en todo proceso o procedimiento que se tramite contra el patrimonio del deudor.
