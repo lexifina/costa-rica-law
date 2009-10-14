@@ -1,10 +1,3 @@
-CAPITULO II
-De los Programas, Servicios y Distribución de Recursos
-Artículo 14.- El fondo de desarrollo social y asignaciones
-familiares será destinado, por la Dirección General, en el mes de octubre
-de cada año para el año subsiguiente y se girará conforme lo establezca
-el reglamento. Para tal efecto la Dirección General y la Oficina de
-Planificación Nacional coordinarán, estudiarán y aprobarán los programas
-que presenten las instituciones encargadas de la ejecución de los mismos,
-de conformidad con el artículo 9º de la Ley de Planificación Nacional, Nº
-5525 de 2 de mayo de 1974.
+Artículo 14.-
+En setiembre de cada año, la Dirección General presupuestará el uso de los recursos del Fondo, los que girará conforme lo establezcan esta Ley y sus convenios. Una vez que de conformidad con sus necesidades financieras, la Desaf solicite el traslado de fondos del Ministerio de Hacienda, el Ministerio deberá girarlos por doceavos, conforme a la programación financiera, de conformidad con el artículo 43 de la Ley N.º 8131, Administración financiera de la República y presupuestos públicos
+Las entidades que deseen recibir financiamiento por medio de convenio deberán presentar su solicitud a la Dirección a más tardar el 15 de junio de cada año, y la Desaf deberá girar los montos en forma mensual, de conformidad con los ingresos reales del Fondo y las necesidades planteadas por cada una de las unidades ejecutoras; el primer giro se ejecutará a más tardar el 1º de febrero de cada año. Los programas financiados por ley específica o convenio, que no se ajusten a los objetivos y las metas de las políticas nacionales de desarrollo y los planes anuales operativos, no podrán recibir recursos provenientes del Fodesaf.

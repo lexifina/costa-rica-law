@@ -1,1 +1,2 @@
-Texto no disponible
+TRANSITORIO IV.- De los fondos dispuestos en el inciso n) del artículo 3 de la Ley N.º 5662, se girará un monto de quinientos millones de colones (¢500.000.000,00), por una única vez, para la compra de material y el equipo médico destinado a la atención de los pacientes del Servicio de Oftalmología del Hospital Dr. Rafael Ángel Calderón Guardia.
+(Así adicionado mediante ley N° 8783 del 13 de octubre de 2009)

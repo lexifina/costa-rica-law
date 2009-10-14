@@ -1,0 +1,2 @@
+TRANSITORIO II.-
+Hasta tanto la CCSS no asuma el cobro de patronos morosos del Fodesaf, se le otorga personalidad jurídica instrumental a la Desaf, para efectos del cobro judicial de dineros adeudados por patronos morosos. La Contraloría General de la República supervisará semestralmente a la Desaf sobre los procedimientos, los ingresos y el uso de las potestades y los recursos a que se refiere este artículo.

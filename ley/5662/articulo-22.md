@@ -1,8 +1,10 @@
-Artículo 22.- La Dirección General estará a cargo de un director, un
-subdirector y sus asistentes, nombrados de acuerdo con las normas del
-Servicio Civil. Estos funcionarios tendrán el carácter de autoridades,
-de conformidad con el Título Quinto, Capítulo Unico, de la Ley Orgánica
-del Ministerio de Trabajo y Seguridad Social. El director y el
-subdirector podrán entablar las acciones judiciales que correspondan por
-violaciones a esta ley y a sus reglamentos para lo cual quedan exentos de
-rendir fianzas de cualquier naturaleza.
+Artículo 22.-
+Los patronos y las personas que realicen, total o parcialmente, actividades independientes o no asalariadas, deberán estar al día en el pago de sus obligaciones con el Fodesaf, conforme a la ley. Será requisito estar al día en el pago de las obligaciones que dispone esta Ley, para realizar los trámites administrativos siguientes:
+a) La admisibilidad de cualquier solicitud administrativa de autorizaciones que se presente a la Administración Pública y esta deba acordar en el ejercicio de las funciones públicas de fiscalización
+y tutela, o cuando se trate de solicitudes de permisos, exoneraciones, concesiones, licencias y patentes. Para efectos de este artículo, se entiende a la Administración Pública en los términos señalados en el artículo 1 tanto de la Ley general de la Administración Pública como en el Código Procesal Contencioso-Administrativo, Ley N.º 8508.
+b) En relación con las personas jurídicas, la ins cr ipción de todo documento en los registros públicos, mercantil, de asociaciones, de asociaciones deportivas y el Registro de organizaciones sociales del Ministerio de Trabajo y Seguridad Social, excepto los expedidos por autoridades judiciales.
+c) Participar en cualquier proceso de contratación pública regulado por la Ley de contratación administrativa, la Ley de concesión de obra pública, la Ley de la zona marítima-terrestre y el Código de Minería.
+d) El otorgamiento del beneficio dispuesto en el artículo 5 de la Ley orgánica de la Contraloría General de la República.
+e) El disfrute de cualquier régimen de exoneración e incentivos fiscales. Será causa de pérdida de las exoneraciones y los incentivos fiscales acordados, el incumplimiento de las obligaciones con la seguridad social, el cual será determinado dentro de un proceso administrativo seguido al efecto.
+En todo contrato o convenio sus cr ito por un patrono con la Administración Pública deberá incluirse una cláusula que establezca, como incumplimiento contractual, el no pago de las obligaciones con la seguridad social. Asimismo, los derechos subjetivos generados por lo anterior serán revocados sin responsabilidad administrativa.
+La verificación del cumplimiento de las obligaciones fijadas en este artículo y la aplicación de sanciones, cuando correspondan, serán competencia de cada una de las instancias administrativas en las que debe efectuarse el trámite respectivo; para ello, la Desaf mantendrá a disposición la información necesaria. El incumplimiento de esta obligación por parte de la Desaf no impedirá ni entorpecerá el trámite respectivo. En igual forma, mediante convenio con cada instancia administrativa, la Desaf podrá establecer bases de datos conjuntas y sistemas de control y verificación que faciliten el control del cumplimiento del pago de las obligaciones con la seguridad social.
