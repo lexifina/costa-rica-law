@@ -14,3 +14,4 @@ Reglamento de Servicios de Apartados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-10 | la propia norma |
+| 2 | 2009-10-15 | Reglamento 41 (2009-10-15) |
