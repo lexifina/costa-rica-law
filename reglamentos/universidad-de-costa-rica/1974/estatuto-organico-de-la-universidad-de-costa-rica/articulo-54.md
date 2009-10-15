@@ -8,4 +8,5 @@ e) (Eliminado)23
 23Inciso eliminado en las Sesiones Nos. 2093, 2098 del 5 de diciembre y 16 de diciembre de 1974, respectivamente. Modificación publicada en La Gaceta Oficial del 29 de enero de 1975.
 f) Llevar el registro de inscripción de los estatutos y reglamentos de las organizaciones estudiantiles universitarias y certificarlos total o parcialmente, cuando sea necesario.
 g) Atender y buscar las soluciones de los problemas que surjan de las relaciones de los estudiantes entre sí o de éstos con profesores y personal administrativo.
-h) Preparar anualmente el Calendario Universitario, en coordinación con los otros Vicerrectores.
+h) Elaborar, aprobar y difundir, anualmente, el Calendario estudiantil universitario, en coordinación con las instancias vinculadas con la gestión de los asuntos relativos a la población estudiantil.
+(Así reformado el inciso anterior en sesión N° 131 del 15 de octubre de 2009)
