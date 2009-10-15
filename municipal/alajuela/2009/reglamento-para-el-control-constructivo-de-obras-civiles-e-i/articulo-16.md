@@ -1,0 +1,1 @@
+Artículo 16.—Demolición. Sin perjuicio de la multa que se imponga, la Municipalidad ordenará la demolición, cuando se trate de obras que invadan la vía pública, irrespeten los alineamientos, sean peligrosas, o hayan sido construidas sin licencia municipal, o con alteración del proyecto original autorizado por la Municipalidad.

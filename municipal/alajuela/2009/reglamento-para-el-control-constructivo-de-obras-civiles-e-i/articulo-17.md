@@ -1,0 +1,1 @@
+Artículo 17.—Procedimiento. La demolición sólo se ordenará previa tramitación del procedimiento administrativo ordinario regulado en la Ley General de la Administración Pública y cuando al final de dicho procedimiento se constate la renuencia del administrado para regularizar su situación o la imposibilidad jurídica o material de hacerlo.

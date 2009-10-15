@@ -1,0 +1,1 @@
+Artículo 21.—Normativa complementaria. Se aplicarán complementariamente a estas disposiciones, las previstas en la Ley y el Reglamento de Construcciones, el Código Municipal y en la Ley General de la Administración Pública.

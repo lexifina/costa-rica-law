@@ -1,0 +1,1 @@
+Artículo 7º—Inspección de obras Civiles. La inspección de las obras civiles que se realicen en el territorio del cantón de Alajuela, estarán a cargo de los funcionarios del Proceso de Control Fiscal y Urbano y del Subproceso de Planificación Urbana, debidamente acreditados como inspectores municipales.

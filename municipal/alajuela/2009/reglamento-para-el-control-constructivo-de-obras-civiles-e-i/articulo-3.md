@@ -1,0 +1,1 @@
+Artículo 3º—Aplicación. Las disposiciones del presente reglamento serán de aplicación obligatoria para todas las construcciones que se realicen en el territorio del cantón, cuya ejecución estará a cargo primordialmente del Proceso de Control Fiscal y Urbano y del Subproceso de Planificación Urbana de la Municipalidad.

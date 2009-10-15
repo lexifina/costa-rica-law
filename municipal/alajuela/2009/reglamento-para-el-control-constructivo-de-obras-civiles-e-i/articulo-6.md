@@ -1,0 +1,1 @@
+Artículo 6º—Obligación de mantener la licencia en el sitio de la construcción. Será obligación del administrado, mantener en el sitio de la construcción, tanto la licencia municipal otorgada, como los planos constructivos aprobados.

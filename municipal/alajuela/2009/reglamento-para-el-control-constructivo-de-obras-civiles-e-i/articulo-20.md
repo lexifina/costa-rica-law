@@ -1,0 +1,2 @@
+Artículo 20.—Recursos. Contra las actuaciones del Proceso de Control Fiscal y Urbano y del Subproceso de Planificación urbana, descritas en este Reglamento, cabrán los recursos ordinarios de revocatoria y apelación en la forma y plazos previstos en el Código Municipal.
+Los actos dictados dentro del procedimiento administrativo de demolición, sólo serán recurribles en aquellos casos y mediante los recursos expresamente previstos en la Ley General de la Administración Pública, por tratarse de normativa especial.
