@@ -1,0 +1,1 @@
+Artículo 17.—Agotamiento de la vía Administrativa.-Las resoluciones del Tribunal Administrativo de Transporte, agotan la vía administrativa, por lo que contra sus resoluciones no cabe recurso ordinario alguno.

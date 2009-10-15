@@ -1,0 +1,1 @@
+Artículo 3º—De las normas procesales. Para el desarrollo de su competencia el Tribunal se rige por las disposiciones contenidas en el artículo 19 de la Ley 7969, las normas del Libro II de la Ley General de la Administración Pública del Procedimiento Ordinario, las del Código Procesal Contencioso-Administrativo y la Ley Orgánica del Poder Judicial.
