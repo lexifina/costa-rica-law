@@ -1,0 +1,7 @@
+IV- Autorización para constituir sociedades anónimas para desarrollar la actividad aseguradora.
+La Ley autoriza para desarrollar la actividad aseguradora a través de la constitución de sociedades anónimas, a las instituciones que se indican seguidamente:
+A) Las cooperativas, las asociaciones solidaristas, la Caja de Ahorro y Préstamo de la Asociación Nacional de Educadores, la Junta de Pensiones y Jubilaciones del Magisterio y la Sociedad de Seguros de Vida del Magisterio Nacional, para que constituyan en forma conjunta o como accionista cada una de ellas una o varias sociedades anónimas con el objeto social exclusivo de operar como entidad aseguradora.
+B) Al INS para que constituya, en forma conjunta con los bancos públicos del Estado, una única sociedad anónima con cada uno de ellos, la cual tendrá como objeto social exclusivo el ejercicio de la actividad aseguradora.
+C) Al Banco Popular y de Desarrollo Comunal y al INS para que constituyan, en forma conjunta, una única sociedad anónima, la cual tendrá como objeto social exclusivo el ejercicio de la actividad aseguradora.
+Para todos los casos de los incisos b) y c) anteriores, al menos el cincuenta y uno por ciento (51%) de las acciones deberán ser propiedad del INS.
+A todas las sociedades que se constituyen de acuerdo a la autorización anterior, se les aplicará en todos sus extremos, lo dispuesto en la Ley de cita para entidades aseguradoras.
