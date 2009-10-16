@@ -1,0 +1,1 @@
+Artículo 2º—El 31 de julio de cada año, en todas las escuelas y colegios del país se realizarán actos conmemorativos exclusivos a la vida silvestre, en coordinación con el Programa Nacional de Vida Silvestre del Sistema Nacional de Áreas de Conservación y el Programa de Educación Ambiental del Ministerio de Educación Pública.
