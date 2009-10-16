@@ -4,5 +4,7 @@ b) Establecer los mecanismos necesarios para asegurar la confidencialidad y el a
 c) Tramitar las solicitudes de autorización y revocación presentadas por sus clientes según el Artículo 8 de este Reglamento;
 d) Tramitar y entregar a sus clientes el reporte para el deudor, cuando así lo soliciten, según el Artículo 11 de este Reglamento. En el caso de personas que no son clientes de la entidad, queda a discreción de ésta la decisión de tramitar el reporte para el deudor.
 e) Deshabilitar la autorización para una única consulta una vez que el reporte respectivo ha sido consultado exitosamente, de conformidad con lo establecido en los incisos b. y c. del Artículo 7 de este Reglamento;
-f) Atender los reclamos de sus clientes cuando estimen que la información que fue enviada por la entidad a la SUGEF no refleja su situación real, según lo establecido en el Artículo 12 de este Reglamento y
-g) Corregir la información remitida a la SUGEF cuando la entidad detecte errores o inconsistencias, según el Artículo 12 de este Reglamento.
+f. Atender los reclamos de sus clientes cuando estimen que la información que fue enviada por la entidad a la SUGEF no refleja su situación real, para lo cual la entidad cuenta con un plazo de 5 días hábiles para comunicar al cliente si procede o no el reclamo.
+(Así reformado el inciso anterior en sesión N° 813 del 16 de octubre de 2009)
+g. Corregir la información remitida a la SUGEF cuando la entidad detecte errores o inconsistencias, según el Artículo 12 de este Reglamento, dentro de un plazo de 10 días hábiles a partir del momento en que determine que procede la modificación.
+(Así reformado el inciso anterior en sesión N° 813 del 16 de octubre de 2009)
