@@ -1,0 +1,2 @@
+Artículo 4º—Únicamente serán elegibles para la prestación de servicios de inspección externa, los interesados que sean avalados por el Servicio Fitosanitario del Estado y por la Dirección de Calidad Agrícola del Consejo Nacional de Producción, quienes recomendarán o no al Ministro de Agricultura y Ganadería el nombramiento del Inspector Externo.
+El Ministerio de Agricultura y Ganadería velará porque la información sobre el registro esté a disposición del público y de los sujetos supervisados.
