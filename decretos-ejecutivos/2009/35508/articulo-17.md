@@ -1,0 +1,2 @@
+Artículo 17.—De las convocatorias a las reuniones ordinarias y extraordinarias del Comité Ejecutivo del CORACTo.
+El Comité Ejecutivo se reunirá una vez al mes en forma ordinaria; el Secretario Ejecutivo enviará convocatoria vía correo electrónico o por fax, con al menos quince días naturales de anticipación. Para reunirse en sesión extraordinaria será necesario convocar quince días naturales antes, de forma escrita por parte del Secretario Ejecutivo a solicitud del Presidente o de la mitad más uno de los miembros.

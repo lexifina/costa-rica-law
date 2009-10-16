@@ -1,0 +1,1 @@
+Artículo 27.—Aprobación y Modificación al Reglamento del CORACTo. El Reglamento del CORACTo, en primera instancia, podrá ser modificado por el Comité Ejecutivo del CORACTo, pero las mismas deberán ser avaladas por el Consejo Nacional de Áreas de Conservación. Sus modificaciones posteriores serán aprobadas únicamente por el Comité Ejecutivo del CORACTo.

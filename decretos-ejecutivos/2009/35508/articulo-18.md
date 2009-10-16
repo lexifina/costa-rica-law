@@ -1,0 +1,3 @@
+Artículo 18.—La participación de los miembros propietarios y suplentes en las sesiones ordinarias y extraordinarias del Comité Ejecutivo.
+a) Los representantes propietarios del Comité Ejecutivo deberán asistir a todas las sesiones ordinarias y extraordinarias. En caso de no poder asistir por fuerza mayor, deberán informarlo así a la secretaría ejecutiva y al suplente del sector, con el fin de que éste lo represente en la sesión.
+b) Los representantes suplentes de los diferentes sectores ante el Comité Ejecutivo podrán participar en todas las sesiones ordinarias y extraordinarias con voz pero sin voto, en tanto su participación no se dé en representación del miembro propietario del sector.

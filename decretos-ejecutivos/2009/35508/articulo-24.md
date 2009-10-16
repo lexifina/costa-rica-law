@@ -1,0 +1,1 @@
+Artículo 24.—De la estructura organizativa. Esta será definida en el acuerdo de creación emitido por el CORACTo, para lo que podrá considerar los criterios de complejidad técnica y administrativa que justifican su creación. Cada Consejo Local en el ACTo establecerá su propio reglamento, el cual será sometido para su aprobación por el CORACTo.

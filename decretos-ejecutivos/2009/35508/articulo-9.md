@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del Comité Ejecutivo
+Artículo 9º—Entre los miembros electos por la Asamblea, en la primera sesión ordinaria posterior, se integrará un Comité Ejecutivo, formado por un Presidente(a) un Vicepresidente(a), un Secretario(a), un Tesorero(a), dos vocales y un fiscal, todos electos de su seno así como el Director del Área de Conservación Tortuguero, quien siempre fungirá como Secretario Ejecutivo. Estos puestos se elegirán de nuevo a lo interno del Comité Ejecutivo, cada dos años, en la sesión siguiente a la Asamblea General en que se nombren tres miembros para los cuatro años siguientes, según lo que se establece el siguiente artículo.

@@ -1,0 +1,1 @@
+Artículo 26.—Financiamiento del CORACTo. Del presupuesto anual del ACTo, se asignará un monto anual de hasta de un cinco por ciento, con el fin de que se le brinde la operacionalidad al CORACTo y a los Consejos Locales.
