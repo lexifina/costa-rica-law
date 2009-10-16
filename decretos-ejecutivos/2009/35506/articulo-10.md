@@ -1,0 +1,1 @@
+Artículo 10.—De los períodos de nombramiento: Los miembros del Consejo Regional, serán nombrados en sus cargos por el plazo de dos años a partir de su elección en la asamblea respectiva, y podrán ser reelectos por una sola vez en forma consecutiva.
