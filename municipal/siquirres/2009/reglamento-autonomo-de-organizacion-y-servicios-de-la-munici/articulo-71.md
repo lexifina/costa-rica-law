@@ -1,0 +1,5 @@
+Artículo 71.—La Municipalidad suspenderá el disfrute de una beca a un funcionario que incumpla cualquiera de los siguientes casos:
+A- Si el becario interrumpe los estudios o cambia de centros de estudio sin la autorización correspondiente.
+B- Si el becario fuere expulsado del centro donde realiza estudios.
+C- Si pierde un curso del programa de estudios.
+D- Si incumple las reglas de urbanidad, responsabilidad y honradez o afecte la imagen de la Municipalidad.

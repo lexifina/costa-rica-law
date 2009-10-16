@@ -1,0 +1,1 @@
+Artículo 151.—Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta a cualquiera de las horas de entrada o de salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifique a más tardar en la fracción de jornada siguiente a aquella en que sucedió el hecho.
