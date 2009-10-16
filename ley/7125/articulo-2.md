@@ -1,8 +1,3 @@
-Artículo 2º.- Para la concesión de la pensión, los representantes de
-las personas que padezcan parálisis cerebral profunda, deberán cumplir con
-los requisitos y trámites establecidos para tal efecto en la ley y en el
-reglamento del Régimen no Contributivo. Asimismo, necesariamente deberán
-presentar la evaluación neurológica correspondiente, practicada por los
-departamento especializados de la Caja Costarricense de Seguro Social, en
-la que se certifique el estado de parálisis cerebral profunda que sufre la
-persona.
+Artículo 2.-
+Para el otorgamiento de la pensión, los representantes de las personas que padezcan parálisis cerebral profunda, autismo, mielomeningocele o una enfermedad ocurrida en la primera infancia, con manifestaciones neurológicas equiparables según las condiciones referidas en el artículo 1 de esta Ley, deberán cumplir los requisitos y trámites establecidos para tal efecto en la ley y en el Reglamento del Régimen No Contributivo. Asimismo, deberán someterse, necesariamente, a una evaluación médica por parte de la comisión calificadora del estado de la invalidez de la CCSS, la cual emitirá el dictamen correspondiente.
+(Así reformado por el artículo único de la Ley N° 8769 del 1 de setiembre de 2009)
