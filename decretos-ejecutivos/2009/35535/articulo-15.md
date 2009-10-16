@@ -1,0 +1,1 @@
+Artículo 15.—Derogatoria. Deróguese el Decreto Ejecutivo Nº 31584-H “Reglamento de la Organización de la Dirección General de la Contabilidad Nacional”, publicado en La Gaceta Nº 8 del 13 de enero del 2004.

@@ -1,0 +1,9 @@
+Artículo 10.—Objetivo y funciones Unidad de Análisis Contable. La Unidad de Análisis Contable tiene como objetivo emitir los Estados Financieros y Reportes contables a que se refiere la normativa aplicable, en concordancia con esta; así como analizar el comportamiento de las diferentes cuentas e interpretar la situación financiera de la Administración Central.
+Para su cumplimiento desarrollará las siguientes funciones y deberes:
+a) Emitir los estados financieros de la Administración Central definidos en la Ley de la Administración Financiera de la República y Presupuestos Públicos y su Reglamento, así como el informe mensual de los ingresos, gastos, financiamiento y reportes del Poder Ejecutivo.
+b) Analizar los reportes y Estados Financieros, Gerenciales, patrimoniales y Presupuestarios.
+c) Mantener por el tiempo señalado en la ley, todos los reportes y Estados Financieros emitidos por esta Unidad, al alcance de quien lo solicite, y en archivo en acatamiento a la normativa vigente.
+d) Elaborar y proponer las actualizaciones que requieran los manuales de procedimientos de cada uno de los procesos que se ejecutan en esta Unidad; y hacerlos del conocimiento de la Dirección para su aprobación respectiva.
+e) Remitir a la Unidad de Asesoría y Estudios Especiales de la Contabilidad Nacional los estados financieros y reportes analizados del Poder Ejecutivo, en el plazo establecido por la Dirección General, los cuales serán incluidos dentro de los documentos que conforman la liquidación anual.
+f) Suministrar la información requerida por la Unidad de Asesoría y Estudios Especiales o la Unidad de Fiscalización y Control; en los términos y plazos solicitados; para la resolución de sus fiscalizaciones y resolución de estudios.
+g) Otras que le asigne la Dirección General de Contabilidad Nacional.
