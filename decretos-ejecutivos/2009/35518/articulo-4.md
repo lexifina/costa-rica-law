@@ -1,0 +1,1 @@
+Artículo 4º—De las modificaciones del contenido presupuestario. En el transcurso del ejercicio económico, la Dirección Ejecutiva del SFE podrá realizar, por la vía de presupuesto extraordinario, o modificación presupuestaria, los incrementos o decrementos al presupuesto disponible en estas subpartidas, que estime necesario, debiendo justificar el movimiento por realizar.

@@ -1,0 +1,1 @@
+Artículo 9º—Del fondo para los adelantos. El DAF del SFE girará el adelanto contra el fondo de la caja chica que ese Departamento administra, para lo cual deberá tomar las medidas necesarias, a efecto de garantizar que dicho adelanto no entorpezca la evolución normal de los otros gastos que se realizan con cargo al citado fondo.

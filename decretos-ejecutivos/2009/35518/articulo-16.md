@@ -1,0 +1,1 @@
+Artículo 16.—Servicios de Alimentación. Se podrán adquirir, con cargo a esta subpartida, cualquier tipo de bien o servicio que sea compatible y necesario para la adecuada realización de la actividad, incluida alimentación y bebidas para ser entregados a visitantes distinguidos. Se excluye la compra de cualquier tipo de licor o cigarrillos.

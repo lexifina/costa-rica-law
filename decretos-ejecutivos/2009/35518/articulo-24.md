@@ -1,0 +1,1 @@
+Artículo 24.—Deber de informar. El DAF del SFE, deberá presentar un informe mensual al Director (a) Ejecutivo (a), sobre los gastos ejecutados con cargo a las subpartidas aquí reguladas, en el que se indique, al menos, el nombre del proveedor, monto, concepto, la justificación del gasto y saldo disponible de las subpartidas respectivas.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Sobre los gastos de representación institucional
+Artículo 6º—Del giro de los recursos. El (la) Director (a) Ejecutivo (a) del SFE podrá gestionar ante el Departamento Administrativo Financiero del SFE (DAF del SFE), la entrega de una suma, a manera de adelanto, para realizar erogaciones con cargo a la subpartida de Gastos de Representación Institucional. En caso de que la subpartida sea consumida antes del plazo previsto en el artículo 11 de este Reglamento, el Director (a) Ejecutivo (a) del SFE, una vez liquidado el adelanto, podrá solicitar un nuevo giro, por el monto autorizado.

@@ -1,0 +1,1 @@
+Artículo 5º—De la clasificación de las subpartidas. Los recursos serán presupuestados en las subpartidas denominadas “Gastos de Representación Institucional” y “Actividades Protocolarias y Sociales”, según corresponda en cada caso y de acuerdo al clasificador por objeto del gasto del sector público vigente.

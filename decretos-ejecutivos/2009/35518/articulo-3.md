@@ -1,0 +1,3 @@
+CAPÍTULO II
+Sobre la presupuestación
+Artículo 3º—De la subpartida en el Presupuesto de la Cuenta Especial y del Fideicomiso 539 MAG-BNCR la Dirección Ejecutiva del SFE incluirá las subpartidas presupuestarias, con contenido suficiente, en el proyecto de presupuesto de la Cuenta Especial y del Fideicomiso 539 MAG-BNCR que debe presentar ante la Contraloría General de la República, antes del 30 de setiembre de cada año. La suma a incluir se determinará de acuerdo al comportamiento histórico de la cuenta, las proyecciones sobre el incremento general de bienes y servicios, así como expectativas sobre actividades por realizar.

@@ -1,0 +1,1 @@
+Artículo 21.—Procedimiento de pago. En el supuesto del artículo anterior, una vez concluido el acto que motivó el gasto, el (la) Director (a) Ejecutivo (a) el SFE o persona autorizada, deberá informar al DAF del SFE para que formalice el procedimiento de pago, debiendo emitirse una orden de compra definitiva.

@@ -1,0 +1,1 @@
+Artículo 8º—De la documentación para el adelanto. Todo adelanto deberá quedar debidamente documentado y justificado para el efecto, el DAF del SFE, con la autorización del Director (a) Ejecutivo (a) o la persona que éste autorice deberá implementar los formularios necesarios.
