@@ -1,0 +1,1 @@
+Artículo 3º—El Departamento de Tesorería, creará el procedimiento de uso de las tarjetas de pago, cuyas políticas que ahí se dicten, serán de aplicación obligatoria para todos los usuarios de las tarjetas.

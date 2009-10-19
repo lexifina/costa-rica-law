@@ -1,0 +1,1 @@
+Artículo 19.—Para efectos de trámite de pago, las jefaturas responsables del control de las compras de combustibles, facilitarán a la Tesorería Municipal, la información precisa y oportuna, para efectos de liquidación, la cual la tesorería podrá verificar a través de los medios existentes su veracidad.
