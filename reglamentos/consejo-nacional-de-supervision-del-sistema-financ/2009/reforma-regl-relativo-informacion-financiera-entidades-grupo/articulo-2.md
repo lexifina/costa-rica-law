@@ -1,0 +1,7 @@
+2. Modificar el título, el artículo 2 y adicionar el transitorio I, todo de la “Normativa contable aplicable a los entes supervisados por SUGEF, SUGEVAL y SUPEN y a los emisores no financieros” para que se lea así:
+“Normativa contable aplicable a los entes supervisados por SUGEF, SUGEVAL, SUPEN, SUGESE y a los emisores no financieros”.
+[…]
+“Artículo 2. Alcance
+Esta normativa es aplicable a las entidades, grupos y conglomerados financieros y los fondos administrados por estos, sujetos a la supervisión de la Superintendencia General de Entidades Financieras (en adelante SUGEF), la Superintendencia General de Valores (en adelante SUGEVAL), la Superintendencia de Pensiones (en adelante SUPEN) y la Superintendencia General de Seguros (en adelante SUGESE), así como a los emisores no financieros autorizados por SUGEVAL para hacer oferta pública de valores.”
+“Transitorio I. De conformidad con lo establecido por el Consejo Nacional de Supervisión del Sistema Financiero, artículo 6 del acta de la sesión 732-2008 del 31 de julio del 2008, y durante el plazo del recargo de funciones de la Superintendencia General de Seguros en la Superintendencia de Pensiones, para efectos de este reglamento deberá entenderse que toda referencia a la competencia de la Superintendencia o al Superintendente lo es a la Superintendencia o al Superintendente de Pensiones”.
+Las presentes modificaciones rigen a partir de su publicación en el Diario Oficial La Gaceta.
