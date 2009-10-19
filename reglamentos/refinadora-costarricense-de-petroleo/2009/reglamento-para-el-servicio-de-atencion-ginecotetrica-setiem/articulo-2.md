@@ -1,0 +1,1 @@
+Artículo 2º—Alcance del Reglamento. Las normas aquí contenidas serán aplicables al Departamento de Administración de Compensaciones e Incentivos, cajeros, personal femenino de RECOPE S. A. y al personal de las áreas de Servicios de Salud de la Empresa.

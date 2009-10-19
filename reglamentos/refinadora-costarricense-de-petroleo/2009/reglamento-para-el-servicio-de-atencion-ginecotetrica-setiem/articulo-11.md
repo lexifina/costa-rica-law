@@ -1,0 +1,1 @@
+Artículo 11.—Del Cajero. El cajero del respectivo centro de trabajo, deberá revisar que la Solicitud de Trámite que tenga el visto bueno del Departamento Compensaciones e Incentivos, el anexo de los documentos a liquidar por caja chica, la factura original del médico tratante y al dorso de la misma, sello y firma del médico de RECOPE S. A.

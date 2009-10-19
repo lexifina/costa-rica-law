@@ -1,0 +1,2 @@
+Artículo 7º—Control por patología específica. Los controles ginecológicos u obstétricos por patologías específicas que requieran atención o tratamientos especiales, no serán cubiertos por este beneficio económico.
+En caso de parto prematuro o aborto, la trabajadora tendrá derecho a una cita más de control posterior al evento antes mencionado, sin que esto le otorgue derecho a la funcionaria a reclamar el beneficio no percibido.

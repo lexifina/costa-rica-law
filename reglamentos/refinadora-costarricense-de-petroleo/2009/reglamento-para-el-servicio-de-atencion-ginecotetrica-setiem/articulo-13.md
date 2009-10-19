@@ -1,0 +1,1 @@
+Artículo 13.—Sanciones. El incumplimiento de las disposiciones u obligaciones establecidas en este Reglamento, hará acreedor al funcionario de las sanciones correspondientes, de conformidad con el Capítulo XII, Artículo 50 de la Convención Colectiva de Trabajo vigente de RECOPE S. A.

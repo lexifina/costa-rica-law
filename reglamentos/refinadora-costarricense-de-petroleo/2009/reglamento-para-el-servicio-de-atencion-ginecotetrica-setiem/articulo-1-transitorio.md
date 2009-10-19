@@ -1,0 +1,2 @@
+Transitorio.—Para el personal femenino ubicado en la Provincia de Limón, el derecho al cobro del beneficio rige a partir del 16 de abril del 2009, fecha en la cual se suspendió la contratación del servicio de ginecología en esa localidad, y para el resto del personal femenino, el derecho al cobro del beneficio rige a partir del 1° de enero de 2009, fecha a partir de la cual se suspendió el beneficio otorgado vía Convención Colectiva, contra la debida presentación del comprobante de pago por honorarios profesionales.
+San José, 1º de octubre del 2009

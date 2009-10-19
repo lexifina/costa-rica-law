@@ -1,0 +1,4 @@
+CAPÍTULO II
+Regulaciones generales
+Artículo 5º—Naturaleza del Beneficio. Con el fin de que el personal femenino de RECOPE S. A., tenga acceso a un control preventivo especializado de las enfermedades propias de la mujer, la Empresa reconocerá contra factura cancelada, a las trabajadoras incluyendo a las nombradas temporalmente, con más de seis meses de laborar en la Empresa para control ginecológico, con el especialista de su elección, la suma máxima de treinta mil colones una vez al año.
+Por otra parte, para el control obstétrico o prenatal, se reconocerá a partir de la confirmación del estado de embarazo, una cita al mes y para control postnatal, una cita dentro del mes calendario posterior al parto; ambos casos contra factura cancelada y por un monto máximo de treinta mil colones por cada una de las citas.
