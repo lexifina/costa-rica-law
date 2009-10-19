@@ -14,3 +14,4 @@ Reglamento sobre el Pago de los Gastos de los Partidos Políticos de la Contralo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-12 | la propia norma |
+| 2 | 2009-10-19 | Decreto TSE 17 (2009-10-19) |
