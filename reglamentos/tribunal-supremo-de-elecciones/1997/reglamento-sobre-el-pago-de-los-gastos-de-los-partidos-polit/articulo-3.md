@@ -1,2 +1,0 @@
-Artículo 3°—Para el reconocimiento de los gastos por propaganda, por los conceptos autorizados en este Reglamento, que los partidos hayan contratado, las empresas encargadas de publicar y difundir la propaganda electoral deberán estar debidamente inscritas en el Tribunal Supremo de Elecciones conforme a las regulaciones establecidas en el artículo 85 del Código Electoral.
-(Así reformado mediante sesión N° 19 de 28 de noviembre del 2001)

@@ -1,1 +1,0 @@
-Artículo 22.—El Tribunal Supremo de Elecciones en el término de ocho días hábiles a partir de la firmeza del informe sobre la revisión de cuentas elaborado por la Contraloría General de la República, deberá comunicar a la Tesorería Nacional dicho informe, donde consten las sumas que correspondan a cada partido político como contribución del Estado.

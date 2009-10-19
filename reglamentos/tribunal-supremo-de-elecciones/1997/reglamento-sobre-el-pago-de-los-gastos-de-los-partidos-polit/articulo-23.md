@@ -1,3 +1,0 @@
-Artículo 23.—Ocho días hábiles después de haberse realizado la comunicación a que se refiere el artículo anterior, la Tesorería Nacional procederá a liquidar el aporte a que tengan derecho los partidos políticos, deduciendo, si hubieren, el monto de los bonos emitidos y cedidos a título oneroso, por las agrupaciones políticas, debidamente notificados a la Contraloría General de la República, que no hubieren sido redimidos.
-El aporte estatal se liquidará en estricto orden de cada emisión de bonos y si dicho aporte no alcanza para cubrir la totalidad de alguna emisión, ésta se liquidará en la proporción que corresponda.
-En caso de que existiera un saldo, una vez canceladas las emisiones de bonos, éste se girará directamente al partido político respectivo.

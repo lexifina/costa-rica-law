@@ -1,1 +1,0 @@
-Artículo 12.—Para efectos de los aportes autorizados se entenderán por personas jurídicas nacionales, aquellas constituidas bajo el ordenamiento jurídico costarricense y domiciliadas en el territorio nacional.
