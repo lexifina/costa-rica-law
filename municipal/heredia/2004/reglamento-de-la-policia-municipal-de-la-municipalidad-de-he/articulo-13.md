@@ -6,5 +6,6 @@ b) Haber concluido como mínimo la educación secundaria (bachillerato).
 c) No haber sido inhabilitado para el ejercicio de la función pública, ni haber sido separado mediante expediente disciplinario.
 d) Carecer de antecedentes penales.
 e) Contar con permisos de portación de armas vigente.
-f) Poseer licencia de conducir B1 y A3.
+f) Contar con licencia de conducir para vehículo y/o motocicleta preferiblemente.
+(Así reformado el inciso anterior mediante sesión N° 316 del 19 de octubre de 2009)
 g) Tener experiencia en ámbito policial.
