@@ -1,0 +1,14 @@
+COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+INFORMA QUE:
+La Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, en su sesión ordinaria Nº 2009.09.09 celebrada el nueve de setiembre del dos mil nueve, mediante oficio Nº SJG.01421.09.09 acordó publicar el perfil de la disciplina de Profesional Afín en Terapia Física o Fisioterapia.
+PERFIL PROFESIONAL DEL LICENCIADO(A)
+EN FISIOTERAPIA O TERAPIA FÍSICA
+1. Los puestos que ocupan este grupo de profesionales están vinculados al campo de la salud en escenarios que pueden ser asistenciales, familiares o sociales; pudiéndoles corresponder trabajar solos, con personal a cargo, conjuntamente con médicos especialistas o como miembros de equipos interdisciplinarios.
+2. Debido a que su trabajo se vincula al campo de la salud, su actuación en el área terapéutica deberá basarse en un diagnóstico hecho por un facultativo en medicina. Lo ideal es que trabaje en conjunto con el Médico Especialista en Medicina Física y Rehabilitación (Médico Fisiatra).
+3. El objetivo primordial del trabajo del terapeuta físico es la eliminación o disminución de las limitaciones físicas en las personas (sean por enfermedad, accidente o defecto congénito), procurando restaurar la actividad neuro-músculo-esquelética y rehabilitándoles en los aspectos sensoriomotores con el fin de contribuir en el logro de una adecuada reinserción en todas las áreas de la persona.
+4. Lo anterior lo realiza mediante la aplicación de un conjunto de métodos o técnicas rehabilitatorias de cinesioterapia así como de la aplicación tanto manual como instrumental de medios físicos (termoterapia, crioterapia, fototerapia, hidroterapia, masoterapia, electroterapia, laserterapia, magnetoterapia y otros que hayan sido reconocidos por la comunidad científica y cuya aplicación sea del ámbito rehabilitatorio).
+5. Asimismo, como parte de su perfil realiza una labor educativa al enseñarle al paciente mismo o a sus cuidadores, la aplicación de técnicas y/o ejercicios terapéuticos que deben practicarle al individuo afectado así como contribuir desde su profesión con una cultura preventiva en materia de riesgos para la salud.
+6. Entre sus funciones puede participar en procesos de educación y evaluación del profesional en terapia física y especialmente en aquellos procesos de recertificación que establezca la administración correspondiente.
+7. Procurará mantener actualizados los fundamentos de los conocimientos, habilidades y actitudes de las competencias profesionales, mediante un proceso de formación permanente.
+8. Contribuirá con la gestión general del lugar de trabajo en el ámbito de sus competencias.
+9. Debido a su formación, no constituyen parte de sus competencias la indicación de medicamentos; el envío o interpretación de estudios diagnósticos paraclínicos, de laboratorio o imagenología. Lo anterior deberá ser indicado por el médico tratante del paciente.
