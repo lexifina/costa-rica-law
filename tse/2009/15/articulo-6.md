@@ -1,0 +1,1 @@
+Artículo 6º—El plazo para la inscripción de candidaturas en el Registro Electoral vence a las dieciséis horas del día viernes veintitrés de octubre del año dos mil nueve, según lo establecido en el artículo 148 del Código Electoral.
