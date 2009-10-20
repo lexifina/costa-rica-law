@@ -1,6 +1,7 @@
 CAPÍTULO II
 Requisitos para el solicitante
-Artículo 14.—Los requisitos para tramitar un préstamo y los documentos por aportar los establece el Consejo Directivo y son los siguientes:
+Artículo 14.—Los requisitos para tramitar un préstamo y los documentos por aportar los establece el Consejo Directivo. La documentación presentada, tendrá una vigencia máxima de 90 días calendario después de la fecha de emisión del documento. Los requisitos y documentos son:
+(Así reformado el párrafo anterior en sesión N° 46 del 20 de octubre de 2009)
 1) Para cursos, programas, carreras técnicas, pregrados y grados en Costa Rica:
 a. Fórmula de solicitud de préstamo con los datos requeridos.
 b. Fotocopia de la cédula de identidad del solicitante. Si es menor de edad: certificación del asiento de nacimiento o cédula de identidad del menor.
@@ -26,7 +27,8 @@ e. Carta de admisión al posgrado extendida por la entidad educativa.
 f. Programa oficial de estudios.
 g. Cronograma de estudios.
 h. Documento oficial de la entidad educativa que indique los costos detallados del programa.
-i. Constancia de la entidad educativa que indique o no que es beneficiario de una beca.
+i. Constancia de la entidad educativa que indique si es o no, beneficiario de una beca.
+(Así reformado el inciso anterior en sesión N° 46 del 20 de octubre de 2009)
 j. Constancia o declaraciones de otros aportes, auxilios y servicios complementarios que disfrute o vaya a disfrutar el solicitante, durante el período de estudios.
 k. Documentos de la garantía.
 l. Número de la cuenta bancaria en la cual realizarán los respectivos desembolsos
@@ -42,14 +44,17 @@ e. Carta de admisión al pregrado, grado o posgrado extendida por la entidad edu
 f. Programa oficial de estudios.
 g. Cronograma de estudios.
 h. Documento oficial de la entidad educativa que indique los costos detallados del programa.
-i. Constancia de la entidad educativa que indique o no que es beneficiario de una beca.
+i. Constancia de la entidad educativa que indique, si es o no, beneficiario de una beca.
+(Así reformado el inciso anterior en sesión N° 46 del 20 d eoctubre de 2009)
 j. Constancia o declaraciones de otros aportes, auxilios y servicios complementarios que disfrute o vaya a disfrutar el solicitante, durante el período de estudios.
 k. Constancia de dominio del idioma en que se impartirá el curso, si es diferente al español.
 l. Documento oficial que indique que la entidad educativa en la que va a realizar los estudios está autorizada por los organismos competentes.
 m. Relación ingresos-gastos durante el período de estudios.
-n. Poder Generalísimo inscrito en el Registro Público.
+n. Poder Generalísimo inscrito en el Registro Público. Se exime de este requisito al prestatario que va a estar en el exterior por un período no mayor de 9 meses y que se le haya girado el préstamo aprobado en un único desembolso, con anterioridad a la fecha de inicio de los estudios.
+(Así reformado el inciso anterior en sesión N° 46 del 20 de octubre de 2009)
 o. Documentos de la garantía.
-p. Número de la cuenta bancaria en la cual realizarán los respectivos desembolsos.
+p. Número de la cuenta bancaria en la cual se realizarán los respectivos desembolsos.
+(Así reformado el inciso naterior en sesión N° 46 del 20 de octubre de 2009)
 q. Para financiamiento de tesis: carta oficial de la entidad educativa que indique la aprobación del tema; el presupuesto con los principales gastos y las fechas de inicio y conclusión.
 r. Para exámenes finales de graduación: proforma extendida por la entidad educativa, que indique el número de exámenes y el costo respectivo.
 s. Cualquiera otra información o atestado que CONAPE estime imprescindible dentro de las políticas establecidas.

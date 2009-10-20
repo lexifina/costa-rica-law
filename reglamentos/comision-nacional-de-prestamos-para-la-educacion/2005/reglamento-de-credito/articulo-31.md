@@ -1,8 +1,9 @@
-Artículo 31.—CONAPE podrá aceptar un solo fiador para todos los niveles de estudios, cuando el monto de la solicitud de préstamo sea igual o menor al tope crediticio que establezca el Consejo Directivo para préstamos de menor cuantía, en el plan anual de crédito y que el fiador cumpla con las siguientes condiciones:
-1. Que sea asalariado, con ingreso mensual bruto igual o superior al doble del salario menor establecido por el Consejo Nacional de Salarios.
-2. Que cubra con el salario bruto al menos el 30% del monto de la solicitud de préstamo.
-3. Que tenga al menos un año de laborar con el mismo patrono.
-4. Que no esté otorgando fianza ni sea deudor de CONAPE.
-5. Cuando se trate de un fiador que labora en actividades propias, el ingreso neto del fiador deberá cubrir el 100% del monto de la solicitud de préstamo.
-(Así adicionado mediante sesión N° 2 del 17 de enero del 2006)
-(Así reformado mediante sesión N° 41 del 16 de octubre de 2007)
+Artículo 31.— En caso de que el solicitante o prestatario presente una garantía fiduciaria que no cumpla con el porcentaje de cobertura establecido por CONAPE, el Consejo Directivo podrá aprobar dicho crédito, autorizando coberturas inferiores siempre y cuando, el solicitante o prestatario cumpla con las siguientes condiciones:
+1. Que el promedio académico sea igual o superior a 70 en la escala de 0 a 100.
+2. Que el ingreso líquido familiar sea insuficiente (igual o menor al salario del primer intervalo de la Tabla de Ingreso Líquido del Factor Ingreso que se encuentre vigente en CONAPE).
+3. Que proceda de una zona de menor desarrollo relativo (medio, bajo o muy bajo) o de una zona urbana marginal.
+4. Que presente una declaración jurada en la que manifieste que no tiene posibilidad alguna de apartar más garantía que la ofrecida.
+5. Que la solicitud sea para el nivel de pregrado y grado en Costa Rica.
+6. No aplica para la garantía hipotecaria.
+El Consejo Directivo establecerá en el Plan Anual de Crédito, un porcentaje de la cartera de préstamos que se puede autorizar con garantías inferiores y los mecanismos de aplicación correspondiente.
+(Así adicionado en sesión N° 46 del 20 de octubre de 2009)

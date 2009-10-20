@@ -1,2 +1,3 @@
-Artículo 40.—La solicitud de una sustitución del bien hipotecado por otro inmueble, es resuelta por el Comité de Crédito. El valor de la nueva propiedad ofrecida debe cubrir al menos el 150% del monto aprobado, cuando es de primer grado o de 175% para los otros grados que acepta CONAPE.
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 39 al 40 actual del artículo)
+Artículo 40.—La solicitud de un cambio de un primer grado hipotecario a un segundo o tercero, o por otra garantía no hipotecaria, es resuelta por el Comité de Crédito, conforme a lo que establece este Reglamento.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 38 al 39 actual del artículo)
+(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 39 al 40 actual)

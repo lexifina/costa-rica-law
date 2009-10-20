@@ -1,2 +1,4 @@
-Artículo 39.—La solicitud de un cambio de un primer grado hipotecario a un segundo o tercero, o por otra garantía no hipotecaria, es resuelta por el Comité de Crédito, conforme a lo que establece este Reglamento.
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 38 al 39 actual del artículo)
+Artículo 39.—CONAPE podrá aceptar garantías hipotecarias hasta tercer grado, cuando los grados hipotecarios anteriores estén contraídos con instituciones públicas o instituciones de reconocida trayectoria financiera, que tengan un saldo no mayor al 75% de la partida del Presupuesto de CONAPE llamada Otros activos financieros. Los casos excepcionales serán resueltos por el Consejo Directivo de CONAPE. En todos los casos el valor consignado en el avalúo debe cubrir no menos del 175% del monto aprobado.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 37 al 38 actual del artículo)
+(Así reformado en sesión N° 46 del 20 de octubre de 2009)
+(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 38 al 39 actual)

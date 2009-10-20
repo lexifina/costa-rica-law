@@ -1,3 +1,4 @@
-Artículo 33.—CONAPE acepta que sólo uno de los fiadores, por operación, presente ingresos provenientes de actividades propias, según certificación de ingresos de los últimos doce meses a la fecha de la solicitud de crédito, extendida por un Contador Público Autorizado.
-El fiador con ingresos propios sólo puede cubrir hasta el 10% del monto aprobado del préstamo - independientemente de sus ingresos - y excepcionalmente, hasta un 15%, a juicio del Comité de Crédito. El Comité de Crédito queda facultado para solicitar la información adicional que considere indispensable.
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 32 al 33 actual del artículo)
+Artículo 33.—Cuando un solicitante proponga un fiador que sea garante de otra operación y el porcentaje de cobertura de la garantía propuesta no cubra el 20% del monto solicitado y esto le impida al solicitante acceder al préstamo, por cuanto no tiene opciones para aportar otros fiadores, el Comité de Crédito lo analiza y lo dictamina, para que el Secretario Ejecutivo lo presente como caso especial ante el Consejo Directivo.
+(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 31 al 32 actual del artículo)
+(Así reformado mediante sesión N° 41 del 16 de octubre de 2007)
+(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 32 al 33 actual)

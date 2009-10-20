@@ -1,3 +1,4 @@
 Artículo 70.—La actuación del Comité de Crédito en la aplicación del Reglamento de Crédito, se realiza mediante acuerdos consignados en el libro de Actas de este Comité, legalizado por la Auditoría Interna.
 (Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 68 al 69 actual del artículo)
 (Así corrida su numeración en sesión N° 41 del 16 de octubre del 2007, que lo traspasó del antiguo 69 al 70 actual del artículo)
+(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 70 al 69 actual. Lo anterior ya que en dicha sesión se ordena suprimir el numeral 44 original y modificar la numeración. Asimismo en dicha junta se adiciona un nuevo artículo 31 y se corre de nuevo el orden de los artículos, por lo que este numeral paso del 69 al 70 actual)

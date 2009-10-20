@@ -1,3 +1,9 @@
-Artículo 32.—Cuando un solicitante proponga un fiador que sea garante de otra operación y el porcentaje de cobertura de la garantía propuesta no cubra el 20% del monto solicitado y esto le impida al solicitante acceder al préstamo, por cuanto no tiene opciones para aportar otros fiadores, el Comité de Crédito lo analiza y lo dictamina, para que el Secretario Ejecutivo lo presente como caso especial ante el Consejo Directivo.
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 31 al 32 actual del artículo)
+Artículo 32.—CONAPE podrá aceptar un solo fiador para todos los niveles de estudios, cuando el monto de la solicitud de préstamo sea igual o menor al tope crediticio que establezca el Consejo Directivo para préstamos de menor cuantía, en el plan anual de crédito y que el fiador cumpla con las siguientes condiciones:
+1. Que sea asalariado, con ingreso mensual bruto igual o superior al doble del salario menor establecido por el Consejo Nacional de Salarios.
+2. Que cubra con el salario bruto al menos el 30% del monto de la solicitud de préstamo.
+3. Que tenga al menos un año de laborar con el mismo patrono.
+4. Que no esté otorgando fianza ni sea deudor de CONAPE.
+5. Cuando se trate de un fiador que labora en actividades propias, el ingreso neto del fiador deberá cubrir el 100% del monto de la solicitud de préstamo.
+(Así adicionado mediante sesión N° 2 del 17 de enero del 2006)
 (Así reformado mediante sesión N° 41 del 16 de octubre de 2007)
+(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 31 al 32 actual)

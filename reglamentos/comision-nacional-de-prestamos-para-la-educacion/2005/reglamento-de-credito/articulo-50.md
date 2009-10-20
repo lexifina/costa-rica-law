@@ -1,3 +1,4 @@
 Artículo 50.—El prestatario, los fiadores y apoderados legales, deberán firmar un addendum al Contrato de Crédito para Estudios, cuando se modifiquen los términos contractuales originales.
 (Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 48 al 49 actual del artículo)
 (Así corrida su numeración en sesión N° 41 del 16 de octubre del 2007, que lo traspasó del antiguo 49 al 50 actual del artículo)
+(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 50 al 49 actual. Lo anterior ya que en dicha sesión se ordena suprimir el numeral 44 original y modificar la numeración. Asimismo en dicha junta se adiciona un nuevo artículo 31 y se corre de nuevo el orden de los artículos, por lo que este numeral paso del 49 al 50 actual)

@@ -1,3 +1,4 @@
 Artículo 64.—El período general de financiamiento es hasta de 20 años, el cual incluye el período de estudios, gracia y amortización. El plazo de cada uno de estos tres períodos lo establece el Consejo Directivo en el Plan Anual de Colocaciones.
 (Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 62 al 63 actual del artículo)
 (Así corrida su numeración en sesión N° 41 del 16 de octubre del 2007, que lo traspasó del antiguo 63 al 64 actual del artículo)
+(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 64 al 63 actual. Lo anterior ya que en dicha sesión se ordena suprimir el numeral 44 original y modificar la numeración. Asimismo en dicha junta se adiciona un nuevo artículo 31 y se corre de nuevo el orden de los artículos, por lo que este numeral paso del 63 al 64 actual)
