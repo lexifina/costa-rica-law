@@ -1,1 +1,2 @@
-Artículo 41.—Orden de pedido. Luego de aprobado el contrato, la Proveeduría procederá a emitir la correspondiente orden de pedido, en un plazo no mayor a cinco días hábiles. El plazo para la ejecución comenzará a regir a partir de la entrega de la orden de pedido.
+Artículo 41.—Orden de Pedido. Una vez firme la adjudicación, y habiendo recibido la aprobación interna en los casos en que así se requiera, la Proveeduría procederá a emitir la correspondiente orden de pedido, en un plazo no mayor a dos días hábiles. El plazo para la ejecución comenzará a regir a partir de la entrega de la orden de pedido.
+(Así reformado y publicado en La Gaceta N° 203 del 20 de octubre de 2009)
