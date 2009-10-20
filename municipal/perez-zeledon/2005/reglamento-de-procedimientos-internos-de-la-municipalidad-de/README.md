@@ -14,3 +14,4 @@ Reglamento de Procedimientos Internos de la Municipalidad de Pérez Zeledón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-22 | la propia norma |
+| 2 | 2009-10-20 | Reglamento municipal 182 (2009-10-20) |
