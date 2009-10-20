@@ -15,3 +15,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | --- | --- | --- |
 | 1 | 2009-03-24 | la propia norma |
 | 2 | 2009-06-24 | Decreto Ejecutivo 35365 (2009-06-24) |
+| 3 | 2009-10-20 | Decreto Ejecutivo 35576 (2009-10-20) |
