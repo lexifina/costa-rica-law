@@ -15,3 +15,4 @@ Reglamento del Programa Régimen no Contributivo de Pensiones
 | --- | --- | --- |
 | 1 | 2008-09-26 | la propia norma |
 | 2 | 2009-04-30 | Reglamento 8343 (2009-04-30) |
+| 3 | 2009-10-21 | SINALEVI (sin norma nombrada) |
