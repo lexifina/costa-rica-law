@@ -36,3 +36,4 @@ PROGRAMASPRESUPUESTARIOS ADMINISTRACION SUPERIOR ADMINISTRACION DE RECURSOS HUMA
 (Modificado por el artículo 1° del decreto ejecutivo N° 35496 del 28 de agosto de 2009)
 (Modificado por los artículos 1° y 2° del decreto ejecutivo N° 35514 del 07 de setiembre del 2009).
 (Modificado por el artículo 1° del decreto ejecutivo N° 35568 del 19 de octubre de 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35561 del 21 de octubre de 2009)
