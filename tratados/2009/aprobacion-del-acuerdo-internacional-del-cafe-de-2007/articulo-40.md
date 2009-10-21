@@ -1,0 +1,7 @@
+CAPÍTULO XV - DISPOSICIONES FINALES
+ARTÍCULO 40
+Firma y ratificación, aceptación o aprobación
+1) A no ser que se disponga otra cosa, este Acuerdo estará abierto en la sede del Depositario, a partir del 1º de febrero de 2008 hasta el 31 de agosto de 2008 inclusive, a la firma de las Partes Contratantes del Convenio Internacional del Café de 2001 y de los Gobiernos invitados a las sesiones del Consejo en las que fue adoptado el presente Acuerdo.
+2) Este Acuerdo quedará sujeto a la ratificación, aceptación o aprobación de los Gobiernos Signatarios, de conformidad con los respectivos procedimientos jurídicos.
+3) Salvo lo dispuesto en el Artículo 42, los instrumentos de ratificación, aceptación o aprobación serán depositados en poder del Depositario a más tardar el 30 de septiembre de 2008. El Consejo podrá decidir, no obstante, otorgar ampliaciones de plazo a los Gobiernos Signatarios que no hayan podido depositar sus respectivos instrumentos a la citada fecha. Las decisiones del Consejo en ese sentido serán notificadas por el Consejo al Depositario.
+4) Una vez que haya tenido lugar la firma y ratificación, aceptación o aprobación, o la notificación de aplicación provisional, la Comunidad Europea depositará en poder del Depositario una declaración en la que confirme su competencia exclusiva en cuestiones regidas por el presente Acuerdo. Los Estados miembros de la Comunidad Europea no podrán pasar a ser Partes Contratantes de este Acuerdo.

@@ -1,0 +1,13 @@
+CAPÍTULO IX - PROMOCIÓN Y DESARROLLO DEL MERCADO
+ARTÍCULO 24
+Eliminación de obstáculos al comercio y al consumo
+1) Los Miembros reconocen la importancia del desarrollo sostenible del sector cafetero y de la eliminación de obstáculos actuales y la prevención de nuevos obstáculos que puedan entrabar el comercio y el consumo, reconociendo al mismo tiempo el derecho de los Miembros a regular, y a introducir nuevas disposiciones reglamentarias, para satisfacer los objetivos nacionales de política de salud y de ambiente compatibles con sus compromisos y obligaciones en virtud de acuerdos internacionales, con inclusión de los relativos a comercio internacional.
+2) Los Miembros reconocen que hay disposiciones actualmente en vigor que pueden, en mayor o menor medida, entrabar el aumento del consumo de café y en particular:
+a) los regímenes de importación aplicables al café, entre los que cabe incluir los aranceles preferenciales o de otra índole, las cuotas, las operaciones de los monopolios estatales y de las entidades oficiales de compra, y otras normas administrativas y prácticas comerciales;
+b) los regímenes de exportación, en lo relativo a los subsidios directos o indirectos, y otras normas administrativas y prácticas comerciales; y
+c) las condiciones internas de comercialización y las disposiciones jurídicas y administrativas nacionales y regionales que puedan afectar al consumo.
+3) Habida cuenta de los objetivos mencionados y de las disposiciones del párrafo 4 del presente Artículo, los Miembros se esforzarán por reducir los aranceles aplicables al café, o bien por adoptar otras medidas encaminadas a eliminar los obstáculos al aumento del consumo.
+4) Tomando en consideración sus intereses comunes, los Miembros se comprometen a buscar medios de reducir progresivamente y, siempre que sea posible, llegar a eliminar los obstáculos al aumento del comercio y del consumo mencionados en el párrafo 2 del presente Artículo, o de atenuar considerablemente los efectos de los referidos obstáculos.
+5) Habida cuenta de los compromisos contraídos en virtud de lo estipulado en el párrafo 4 del presente Artículo, los Miembros informarán anualmente al Consejo acerca de las medidas adoptadas con el objeto de poner en práctica las disposiciones del presente Artículo.
+6) El Director Ejecutivo preparará periódicamente una reseña de los obstáculos al consumo y la someterá a la consideración del Consejo.
+7) Con el fin de coadyuvar a los objetivos del presente Artículo, el Consejo podrá formular recomendaciones a los Miembros y éstos rendirán informe al Consejo, a la mayor brevedad posible, acerca de las medidas adoptadas con miras a poner en práctica dichas recomendaciones.
