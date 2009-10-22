@@ -14,3 +14,4 @@ Reglamento General de Servicio de Restaurante
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-24 | la propia norma |
+| 2 | 2009-10-22 | Reglamento 41 (2009-10-22) |
