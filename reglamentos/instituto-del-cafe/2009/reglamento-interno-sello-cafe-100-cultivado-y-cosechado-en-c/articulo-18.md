@@ -1,0 +1,1 @@
+Artículo 18.—El Icafe podrá realizar publicaciones en diferentes medios de circulación nacional, por las que informen al consumidor de aquellas empresas tostadoras que gozan de la autorización del uso del sello.

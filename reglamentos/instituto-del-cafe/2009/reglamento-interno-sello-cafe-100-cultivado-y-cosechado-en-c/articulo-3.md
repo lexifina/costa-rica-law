@@ -1,0 +1,1 @@
+Artículo 3º—El acuerdo voluntario que se celebrará entre las empresas tostadoras y el Icafe constituirá un compromiso ético y de incentivo para los tostadores que ofrezcan únicamente “Café 100 % Cosechado y Cultivado en Costa Rica”.

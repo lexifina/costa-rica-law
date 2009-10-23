@@ -1,0 +1,1 @@
+Artículo 17.—Si la autorización del sello es suspendida o cancelada a una empresa TOSTADORA, el solicitante estará en la obligación de cesar inmediatamente la publicidad relacionada con el sello y en un plazo no mayor de 30 días, a retirar el producto que tenga esta identificación en el mercado nacional.
