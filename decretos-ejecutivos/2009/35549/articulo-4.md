@@ -1,0 +1,1 @@
+Artículo 4º—Secretaría del Equipo Negociador. La Secretaría del Equipo Negociador estará ubicada en el Viceministerio de Calidad Ambiental y Agua del Ministerio de Ambiente, Energía y Telecomunicaciones.
