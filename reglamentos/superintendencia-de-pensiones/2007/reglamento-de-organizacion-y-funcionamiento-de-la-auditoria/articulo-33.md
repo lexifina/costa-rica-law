@@ -1,1 +1,0 @@
-Artículo 33.—Este Reglamento fue aprobado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 9 del Acta de la Sesión 635-2007, celebrada el 12 de marzo de 2007; reformado por medio del artículo 8 del Acta de la Sesión 658-2007, celebrada el 9 de julio de 2007 y rige a partir de su publicación en el Diario Oficial La Gaceta.

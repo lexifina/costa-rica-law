@@ -1,3 +1,0 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 32.—Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Superintendencia de Pensiones y sus reformas, aprobado por el Consejo Directivo de la SUPEN mediante artículo 9 del Acta de la Sesión 13-96, celebrada el 11 de diciembre de 1996 y modificada por artículo 9 del Acta de la Sesión 17-97, celebrada el 19 de febrero de 1997, promulgado con base en los “Lineamientos generales que deben observarse en la promulgación del reglamento de organización y funciones de las auditorías internas de las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República”, publicados en el Diario Oficial La Gaceta Nº 14 del 21 de enero de 1988.
