@@ -1,1 +1,0 @@
-Artículo 8º—El Auditor Interno responderá directamente por su gestión ante el CONASSIF. El Subauditor Interno apoyará al Auditor Interno en el cumplimiento de sus funciones de acuerdo con las labores que éste le asigne y responderá ante él por su gestión, y ante el CONASSIF cuando lo sustituya en sus ausencias temporales.
