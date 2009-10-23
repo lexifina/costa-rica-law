@@ -1,0 +1,1 @@
+Artículo 8º—Las funciones de la Comisión serán el propiciar un manejo integral y sostenible de los recursos naturales en dicha área silvestre y asumir el manejo integral de la cuenca baja del río Tempisque incluyendo las otras áreas silvestres existentes.

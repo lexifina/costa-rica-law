@@ -1,0 +1,1 @@
+Artículo 4º—En el Plan de Manejo se definen los objetivos, las actividades y las regulaciones que se tendrán en el Refugio Nacional de Vida Silvestre Hacienda El Viejo, para un periodo de cinco años, el cual será evaluado al menos 6 meses antes de cumplir los 5 años y redefinido por un periodo igual hasta el cumplimiento de los 10 años.

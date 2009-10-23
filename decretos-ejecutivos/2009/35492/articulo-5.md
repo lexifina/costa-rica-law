@@ -1,0 +1,1 @@
+Artículo 5º—El inmueble dado por Hacienda El Viejo estará sometido a la categoría de Refugio Nacional de Vida Silvestre, en categoría privada durante un período de diez años prorrogables por períodos iguales, en cuyo caso el propietario deberá solicitarlo con tres meses de antelación a la finalización de dicho período.

@@ -1,0 +1,1 @@
+Artículo 3º—El manejo de la vida silvestre y de los sitios de humedales estará sujeto tanto a la legislación y políticas existentes en el SINAC, como al Plan de Manejo aprobado por el Área de Conservación Tempisque, por el Consejo Regional del Área de Conservación Tempisque y por el Consejo Nacional de Áreas de Conservación.
