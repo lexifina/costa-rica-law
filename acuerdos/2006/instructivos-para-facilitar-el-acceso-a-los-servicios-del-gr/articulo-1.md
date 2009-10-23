@@ -3,14 +3,18 @@ EMPRESAS DEL GRUPO ICE
 INSTRUCTIVOS PARA FACILITAR EL ACCESO
 A LOS SERVICIOS DEL GRUPO ICE
 De conformidad con las disposiciones establecidas en la Ley Nº 8220 “Ley de Protección al Ciudadano del exceso de requisitos y trámites administrativos”, el Grupo ICE ofrece y pone a disposición de sus clientes la siguiente guía sobre los diferentes servicios disponibles y los requisitos necesarios para acceder a cada uno de ellos en forma ágil, oportuna y transparente.
-Requisitos comunes del Grupo ICE
+Requisitos servicios de telecomunicaciones
 A. Documento de identificación:
-Personas Físicas:
-- Original y copia de cédula de identidad para nacionales, en caso de ser extranjeros deben presentar documentos que acrediten su permanencia en el país: cédula de residencia, permiso temporal de radicación, carné de refugiado, carné de residente pensionado o de residente rentista, carné de asilado territorial.
-Personas Jurídicas:
-- Original y copia de cédula de identidad y cédula residencia del representante legal.
-- Original y copia de cédula jurídica.
-- Original y copia de personería jurídica (no más de un mes de emitida).
+a) Personas físicas
+• Nacionales: original de cédula de identidad. (*)
+• Extranjeros:
+o documento que acredite el domicilio legal.
+o documento que acredita la permanencia legal en el país, acorde con las normas migratorias vigentes al momento de realizarse el trámite. (*)
+b) Personas jurídicas
+• Original del documento de identificación del representante legal. (*)
+• Original y copia de personería jurídica (no más de un mes de emitida).
+(*) Se requerirá una copia de los documentos indicados, sólo si es cliente nuevo para el ICE-Sector de Telecomunicaciones
+(Así reformado y publicado en La Gaceta N° 206 del 23 de octubre de 2009)
 Consideraciones generales:
 Cualquier persona capaz podrá solicitar servicios y realizar trámites a nombre del solicitante, cliente y usuario, mediante autorización otorgada de conformidad con el artículo 283 de la Ley General de la Administración Pública, Ley 6227 del 2 de mayo de 1978 o poder especial, general o generalísimo. La Institución conservará el original de la autorización y el poder especial y las certificaciones de los poderes generales y generalísimos, entregará una copia de la autorización y del poder especial al autorizado o apoderado especial, según corresponda, e indicará cuáles actos han sido ejecutados.
 B. Firma de solicitud y/o contratos de aceptación, por la persona autorizada o con capacidad al respecto.

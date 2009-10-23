@@ -14,3 +14,4 @@ Instructivos para Facilitar el Acceso a los Servicios del Grupo ICE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-05 | la propia norma |
+| 2 | 2009-10-23 | Acuerdo 0 (2009-10-23) |
