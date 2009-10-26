@@ -1,0 +1,1 @@
+Artículo 12.—Elaboración de actas del Comité Especial. Será responsabilidad del secretario técnico de la Comisión, elaborar el acta respectiva de cada sesión celebrada, la cual debe ser firmada por el Presidente y el Secretario.

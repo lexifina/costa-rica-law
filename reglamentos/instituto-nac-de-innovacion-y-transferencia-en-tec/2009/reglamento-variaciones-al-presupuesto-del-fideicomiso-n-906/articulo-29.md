@@ -1,0 +1,1 @@
+Artículo 29.—Modificación presupuestaria de aprobación de la Dirección Ejecutiva. Aquellas modificaciones presupuestarias que afectan las partidas 1, 2 y 3 serán de aprobación de la Dirección Ejecutiva del INTA, para ello deberán pasar primero por la aprobación del Comité Especial del Fideicomiso y la Comisión de Presupuesto del INTA.

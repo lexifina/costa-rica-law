@@ -1,0 +1,1 @@
+Artículo 11.—Revisión de acuerdos tomados por el Comité Especial. Cualquier miembro del Comité Especial o interesado que se sienta afectado podrá solicitar la revisión de los acuerdos tomados por ese órgano; para ello hará solicitud por escrito a la Dirección Administrativa Financiera, quien se encargará de transmitir dicha solicitud ante el Comité.

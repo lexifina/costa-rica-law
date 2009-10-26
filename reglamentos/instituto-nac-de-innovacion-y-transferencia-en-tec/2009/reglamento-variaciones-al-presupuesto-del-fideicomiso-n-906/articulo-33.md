@@ -1,0 +1,1 @@
+Artículo 33.—Vigencia legal de las modificaciones presupuestarias y los presupuestos extraordinarios. Las modificaciones presupuestarias y los presupuestos extraordinarios tendrán vigencia legal en el presupuesto, a partir de la aprobación formal por parte de las instancias internas competentes y hasta el 31 de diciembre de cada año.

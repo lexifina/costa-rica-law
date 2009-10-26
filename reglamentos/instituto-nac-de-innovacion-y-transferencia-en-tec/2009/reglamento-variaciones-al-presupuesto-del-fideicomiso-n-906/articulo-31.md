@@ -1,0 +1,1 @@
+Artículo 31.—Custodia de la información. Cada modificación presupuestaria y presupuesto extraordinario contará con un expediente que será custodiado en el Departamento de Administración de Recursos del INTA.

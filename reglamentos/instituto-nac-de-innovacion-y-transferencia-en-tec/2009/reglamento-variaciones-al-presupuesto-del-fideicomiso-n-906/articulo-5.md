@@ -1,0 +1,6 @@
+II. Del Comité Especial del Fideicomiso
+Artículo 5º—Comité Especial del Fideicomiso. El Comité Especial del Fideicomiso es el órgano administrador de los fondos del fideicomiso y tendrá a su cargo las siguientes funciones:
+1. Emitir las políticas y lineamientos institucionales sobre la formulación, ejecución y control del presupuesto, dentro del marco legal vigente y de conformidad con las directrices emitidas al respecto por la Junta Directiva y los entes externos competentes.
+2. Analizar la información que estime pertinente, respecto de los ingresos y egresos contenidos en el presupuesto.
+3. Analizar, aprobar y dar las recomendaciones al proyecto de presupuesto ordinario, presupuestos extraordinarios y modificaciones presupuestarias, con base en las cuales la Dirección Administrativa Financiera formulará el proyecto de presupuesto que será sometido a conocimiento de la Comisión de Presupuesto para su visto bueno y posterior aprobación de la Junta Directiva y la Contraloría General de la República.
+4. Conocer, revisar y aprobar los carteles de licitación y contratos que se promuevan a través de la Proveeduría institucional, para la contratación de consultorías y adquisición de bienes duraderos.

@@ -1,0 +1,1 @@
+Artículo 36.—Redistribución del presupuesto. Se autoriza a las Unidades Ejecutoras para que redistribuyan entre sus dependencias, los recursos asignados a una partida o subpartida, siempre y cuando no exceda el monto total aprobado en las mismas dentro del subprograma correspondiente.

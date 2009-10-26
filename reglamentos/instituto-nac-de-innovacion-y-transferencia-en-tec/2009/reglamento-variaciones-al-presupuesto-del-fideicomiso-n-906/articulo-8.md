@@ -1,0 +1,1 @@
+Artículo 8º—De quien preside el Comité Especial del Fideicomiso. El Comité Especial del Fideicomiso será presidido por el Presidente del Comité o su representante; en su ausencia presidirá el Vicepresidente del comité. Para que exista quórum es necesaria la mayoría simple de sus miembros.

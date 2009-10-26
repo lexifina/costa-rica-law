@@ -1,0 +1,1 @@
+Artículo 14.—Dependencia responsable de la elaboración de la propuesta de presupuesto. Corresponde al Departamento de Administración de Recursos elaborar la propuesta de presupuesto del fideicomiso Nº 906, para lo cual utilizará la información sobre estimación de ingresos y egresos que le remitan las distintas dependencias del INTA.

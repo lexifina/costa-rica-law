@@ -1,0 +1,1 @@
+Artículo 15.—Unidades ejecutoras del presupuesto. Son Unidades Ejecutoras del presupuesto todas las dependencias del INTA a cargo de un programa, subprograma o proyecto específico, que cuenten con partidas o subpartidas presupuestarias asignadas y cuyos recursos financieros sean depositados en el Fideicomiso Nº 906 INTA/BNCR.

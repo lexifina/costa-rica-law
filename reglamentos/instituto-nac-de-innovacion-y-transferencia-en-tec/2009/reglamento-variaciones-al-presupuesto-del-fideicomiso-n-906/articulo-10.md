@@ -1,0 +1,1 @@
+Artículo 10.—Comunicación de las resoluciones. La secretaría técnica del Comité Especial comunicará las resoluciones y acuerdos tomados a las dependencias interesadas y enviará copia a la Auditoría Interna para lo pertinente.

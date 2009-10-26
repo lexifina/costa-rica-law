@@ -1,0 +1,1 @@
+Artículo 9º—Discrepancia de algún miembro del Comité Especial respecto a las resoluciones tomadas. Cualquier miembro del Comité Especial podrá dejar constancia en actas de su discrepancia sobre las resoluciones tomadas en el seno del Comité.
