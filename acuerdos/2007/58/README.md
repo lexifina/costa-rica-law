@@ -14,3 +14,4 @@ Requisitos para los diferentes trámites que se brindan en la ESPH S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-29 | la propia norma |
+| 2 | 2009-10-26 | Acuerdo 271 (2009-10-26) |
