@@ -1,0 +1,1 @@
+Artículo 13.—Dependencia responsable de la elaboración de la propuesta de presupuesto. Corresponde al Departamento de Administración de Recursos elaborar la propuesta de presupuesto institucional, para lo cual utilizará la información sobre estimación de ingresos y egresos que le remitan las distintas dependencias del INTA y emitirá la respectiva certificación de ingresos.

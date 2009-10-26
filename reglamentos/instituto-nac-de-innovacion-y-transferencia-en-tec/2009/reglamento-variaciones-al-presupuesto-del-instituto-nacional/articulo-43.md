@@ -1,0 +1,1 @@
+Artículo 43.—Régimen sancionatorio. En caso de incumplimiento de lo establecido en este reglamento, se aplicarán las responsabilidades establecidas en la Ley de Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito, así como las demás disposiciones concordantes.

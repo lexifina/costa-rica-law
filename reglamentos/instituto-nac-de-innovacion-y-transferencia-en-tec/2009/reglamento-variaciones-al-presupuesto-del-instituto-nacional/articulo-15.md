@@ -1,0 +1,1 @@
+Artículo 15.—Sistema de control del presupuesto. Le corresponde al Departamento de Administración de Recursos y las Unidades Ejecutoras del presupuesto, definir los sistemas de control presupuestario, como resultado del proceso de autoevaluación anual, según lo dispuesto en el artículo 17 b. de la Ley de Control Interno.

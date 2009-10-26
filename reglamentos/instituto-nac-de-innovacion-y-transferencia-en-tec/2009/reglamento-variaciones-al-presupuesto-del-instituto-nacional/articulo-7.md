@@ -1,0 +1,1 @@
+Artículo 7º—De quien preside la Comisión de Presupuesto. La Comisión de Presupuesto será presidida por el Presidente de la Junta Directiva o su representante; en su ausencia presidirá en su orden el Director Ejecutivo o el Director Administrativo Financiero. Para que exista quórum es necesaria la mayoría calificada de sus miembros.

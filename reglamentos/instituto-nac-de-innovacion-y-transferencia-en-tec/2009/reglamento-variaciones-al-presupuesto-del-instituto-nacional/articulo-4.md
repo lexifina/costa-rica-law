@@ -1,0 +1,13 @@
+Articulo 4º—Unidad enlace con los órganos y entes públicos externos coordinadores y fiscalizadores en materia presupuestaria:
+a. La Dirección Ejecutiva y la Dirección Administrativa Financiera son las unidades internas de enlace con los órganos y entes públicos coordinadores y fiscalizadores en materia presupuestaria. El Departamento de Administración de Recursos fungirá como unidad coordinadora del proceso presupuestario y los aspectos que con él se relacionen. En este sentido le corresponde:
+b. Ejecutar las disposiciones que le son propias, conforme lo dispuesto en el ordenamiento jurídico que rige la materia y disposiciones generales.
+c. Diseñar el sistema de ejecución, control y evaluación del presupuesto, según los lineamientos y políticas emitidos por la Contraloría General de la República, la Secretaría Técnica de la Autoridad Presupuestaria y la Comisión Interna de Presupuesto.
+d. Solicitar a las distintas dependencias institucionales, toda la información pertinente a ingresos y egresos, para el ejercicio económico correspondiente, así como para las modificaciones y presupuestos extraordinarios que se requieran.
+e. Proponer a la Administración Superior las modificaciones presupuestarias y presupuestos extraordinarios necesarios para el mejoramiento de los servicios institucionales y apoyo a las unidades técnicas en la consecución de los objetivos, metas y resultados plasmados en el Plan Anual Operativo.
+f. Elaborar el presupuesto institucional considerando el nivel de detalle establecido en los clasificadores de ingresos y por objeto de gasto, de acuerdo a la normativa emitida por la Contraloría General de la República.
+g. Someter a conocimiento y aprobación de la Comisión Interna de Presupuesto las propuestas de presupuesto ordinario, extraordinarios y modificaciones presupuestarias.
+h. Diseñar el sistema de ejecución, control y evaluación del presupuesto, según los lineamientos y políticas emitidos por la Contraloría General de la República, la Secretaría Técnica de la Autoridad Presupuestaria y la Comisión Interna de Presupuesto.
+i. Elaborar un compendio del ordenamiento jurídico-administrativo que tenga relación con la materia presupuestaria.
+j. Elaborar y mantener actualizado el Manual de Cuentas del Presupuesto y los instructivos requeridos.
+k. Mantener Informada a la Administración Superior y dependencias técnicas y administrativas del INTA, sobre la ejecución presupuestaria y el sistema de evaluación y control del presupuesto.
+l. Elaborar los informes de ejecución presupuestaria, según la normativa dictada para ello por los entes contralores y fiscalizadores.

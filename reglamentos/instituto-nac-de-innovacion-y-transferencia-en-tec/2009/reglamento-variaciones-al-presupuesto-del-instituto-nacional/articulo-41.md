@@ -1,0 +1,2 @@
+Artículo 4.—Sistemas de información. El INTA debe establecer los medios tecnológicos y de comunicación que faciliten el intercambio de datos y documentos con los sistemas de información presupuestaria que hayan sido establecidos por las instancias externas competentes.
+Los sistemas de información deben permitir acceder, identificar y registrar información confiable, relevante, pertinente y oportuna, a partir de la cual se posibilite el análisis de las variaciones al presupuesto, se fomente la transparencia en la gestión y se facilite la rendición de cuentas.

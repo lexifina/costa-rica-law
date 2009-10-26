@@ -1,0 +1,1 @@
+Artículo 35.—Redistribución del presupuesto. La Unidades Ejecutoras podrán redistribuir entre sus dependencias, los recursos asignados a una partida o subpartida, siempre y cuando no exceda el monto total aprobado en las mismas dentro del subprograma correspondiente.

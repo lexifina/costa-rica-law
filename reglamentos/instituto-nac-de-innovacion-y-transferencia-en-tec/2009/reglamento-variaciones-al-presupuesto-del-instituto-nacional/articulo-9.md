@@ -1,0 +1,1 @@
+Artículo 9º—Comunicación de las resoluciones. La secretaría técnica de la Comisión comunicará por escrito las resoluciones que tome la Comisión de Presupuesto a las dependencias interesadas y enviará copia a la Auditoría Interna para lo pertinente.

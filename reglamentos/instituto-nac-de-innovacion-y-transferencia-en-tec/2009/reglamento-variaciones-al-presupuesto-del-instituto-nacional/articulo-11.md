@@ -1,0 +1,1 @@
+Artículo 11.—Elaboración de actas de la Comisión de Presupuesto. La Comisión llevará un libro de actas en el que conste los asuntos sometidos a discusión y la resolución correspondiente a la sesión celebrada, la cual debe ser firmada por todos los miembros presentes. La confección del acta y el control del libro de actas será responsabilidad del secretario técnico de la comisión.

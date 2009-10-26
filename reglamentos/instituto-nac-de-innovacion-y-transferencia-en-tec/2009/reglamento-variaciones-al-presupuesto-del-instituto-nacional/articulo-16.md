@@ -1,0 +1,1 @@
+Artículo 16.—Relación de puestos. El Departamento de Administración de Recursos, a través del Área de Talento Humano es la dependencia responsable de elaborar la relación de puestos y estimar las respectivas partidas presupuestarias, en materia de recursos humanos, para lo cual se requiere que la base de datos con información sobre este aspecto se mantenga actualizada.

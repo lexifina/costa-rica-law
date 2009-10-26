@@ -1,0 +1,1 @@
+Artículo 14.—Unidades ejecutoras del presupuesto. Son Unidades Ejecutoras del presupuesto todas las dependencias del INTA a cargo de un programa, subprograma o proyecto específico que cuenten con partidas o subpartidas presupuestarias asignadas.

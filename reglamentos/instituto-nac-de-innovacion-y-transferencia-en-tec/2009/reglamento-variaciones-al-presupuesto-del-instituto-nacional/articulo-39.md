@@ -1,0 +1,2 @@
+VIII. Programas y subprogramas presupuestarios
+Artículo 39.—Creación o eliminación de programas y subprogramas presupuestarios. La creación o eliminación de programas y/o subprogramas presupuestarios tendrá su fundamento en un estudio de mérito, realizado por el Área de Planificación Institucional en coordinación con la Dirección Administrativa Financiera. Dicho estudio será valorado por la Comisión de Presupuesto, quien resolverá finalmente, asunto que deberá ser ratificado por el jerarca de encontrarlo de mérito.

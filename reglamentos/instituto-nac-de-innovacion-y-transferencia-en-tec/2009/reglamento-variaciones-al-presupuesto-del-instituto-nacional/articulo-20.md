@@ -1,0 +1,2 @@
+IV. Ejecución y control del presupuesto
+Artículo 20.—Ejecución del presupuesto. La ejecución del presupuesto se realizará acorde con lo objetivos, metas, funciones y proyectos estratégicos establecidos, así como con la asignación de recursos presupuestarios aprobada y disponible en cada uno de los programas, subprogramas y proyectos, conforme a la normativa legal vigente y los lineamientos o directrices emanados de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento será aplicable al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria y deberá atenderse, en lo que corresponda, por parte de las unidades ejecutoras.
