@@ -1,1 +1,0 @@
-Artículo 6°—Del plazo de las garantías. Las garantías ofrecidas por los funcionarios públicos deberán mantenerse vigentes mientras ocupen sus cargos, y/o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios.
