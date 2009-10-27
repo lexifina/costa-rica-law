@@ -1,0 +1,40 @@
+Artículo 3º—Adiciones. Adiciónese un inciso L) al artículo 44. Asimismo, se adicionan los artículos 55 ter, 55 quáter, 55 quinquies y 55 sexies al Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Decreto Ejecutivo Nº 25234, del 25 de enero de 1996, publicado en La Gaceta Nº 124 del 1º de julio de 1996, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 44.—Deberes de los comerciantes. Además de las restantes obligaciones y prohibiciones contenidas en la Ley o en este reglamento, los comerciantes, productores y -en cuanto resulte aplicable- los proveedores de servicios, tendrán las siguientes:
+(…)
+L) Garantizar la proporción entre el pago que realiza el consumidor y las condiciones del contrato, de acuerdo con la naturaleza del bien o servicio”.
+“Artículo 55 ter.—Requisitos para la autorización de los planes de ventas a plazo de bienes, de prestación futura de servicios y de proyectos futuros de desarrollo. Para la autorización de los planes de ventas a plazo de bienes, de prestación futura de servicios y de proyectos futuros de desarrollo, el interesado deberá presentar el formulario de solicitud que establezca el Ministerio de Economía, Industria y Comercio, acompañado con la siguiente documentación:
+1. Copia de la cédula de identidad si se trata de una persona física o certificación de personería jurídica de la(s) empresa(s) responsable(s). En el caso de empresas pertenecientes a un mismo grupo económico, con responsabilidad en la prestación del bien o servicio objeto del contrato, deberá presentar Declaración jurada, ante notario público, sobre el giro comercial y su papel en la provisión del bien o el servicio.
+2. Estados financieros auditados con corte al último período fiscal, los cuales deberán incluir estados de resultados y balance de situación; así como las notas referidas a dichos estados financieros, especialmente aquellas en relación con el detalle de las inversiones (monto, instrumento mediante el cual se invirtió, entidad en la cual se invierte), de los inventarios (detalle de mercancías en inventario y el monto correspondiente) y de las cuentas por cobrar.
+Asimismo, deberán contener detalle de los activos y las garantías privilegiadas que pesen sobre ellos (hipotecaria o prendaria), con detalle del monto y plazo.
+Para los casos en que se presenten aumentos en el capital social o en el patrimonio, se deberán aportar los respaldos legales correspondientes.
+3. Copia de las pólizas de seguro con que cuente el comerciante o proveedor para el aseguramiento de la provisión de bienes o prestación futura de servicios, si existieren.
+4. Borrador del contrato que pretenda celebrar con el usuario”.
+“Artículo 55 quater.—Contenido de los contratos. Para salvaguardar los derechos e intereses legítimos de los consumidores, el MEIC revisará los contratos a efectos de valorar el cumplimiento de lo señalado en el numeral 44 del presente reglamento y la inexistencia de cláusulas abusivas.
+El borrador de contrato deberá contener la siguiente información:
+1) Fecha de celebración del contrato.
+2) Identificación clara del nombre de la persona física o jurídica responsable de la ejecución del contrato, (número de cédula de identidad o documento de identificación, número de cédula jurídica, dirección exacta, números de teléfono, fax y dirección electrónica).
+3) Características del bien o servicio a entregar, señalando su valor de mercado.
+4) Las regalías que por su naturaleza se entienden otorgadas como parte del servicio y sin costo alguno.
+5) Ofertas o promociones de pago parcial con la descripción exacta de los servicios que obtendrá el consumidor y los costos totales o parciales en que debe incurrir para acceder a la oferta o promoción.
+6) Identificación y descripción de los servicios accesorios –si los hubiere- que se proporcionarán al usuario, la forma en que el usuario puede acceder a ellos y su costo exacto y total.
+7) El precio que debe pagar el usuario por la celebración del contrato, indicando con precisión:
+a) El precio total a pagar;
+b) El importe del pago inicial y la fecha de su exigibilidad;
+c) El saldo del precio pactado, el número de pagos o cuotas, su periodicidad y el importe de cada uno de ellos o la forma de determinarlo;
+d) La tasa, el monto y en su caso, las bases y el procedimiento para determinar los intereses ordinarios y moratorios pactados, así como la fecha en que se inicia su causación;
+e) El derecho que tiene el usuario de liquidar anticipadamente el saldo del precio pactado, con la consiguiente deducción de intereses;
+f) El monto y detalle de cualquier cantidad a cargo del usuario, incluyendo las cuotas ordinarias y extraordinarias;
+g) La moneda de pago convenida y, en el caso de ser ésta extranjera, el derecho que tiene el usuario de realizar los pagos en moneda nacional, al tipo de cambio vigente, en el momento de efectuarse el pago;
+h) El lugar de pago dentro del territorio nacional o indicar las cuentas bancarias a las cuales se pueden realizar los depósitos.
+8) Indicación de la existencia de pagos o cuotas ordinarias, extraordinarias o cualquier otro cargo adicional al valor de lo contratado, señalando con precisión el monto de la cuota o pago vigente, la periodicidad, así como la situación o evento que lo genera.
+9) Indicación expresa, cuando corresponda, que por cuenta del comerciante o proveedor, el consumidor tendrá derecho a recibir un bien o servicio de igual o mayor valor de lo pactado, para los casos en que se de una imposibilidad de cumplir, por parte del comerciante o proveedor, lo convenido.
+10) Procedimiento a seguir por los consumidores que quieran vender, donar, heredar o ceder sus derechos sobre el Contrato y la mecánica a seguir para el cálculo de los cargos que, en su caso, se originen por este proceso.
+11) Vigencia del contrato.
+12) Monto y detalle de las sanciones a que se hacen acreedores tanto el comerciante o proveedor como el consumidor, en caso de incumplimiento del contrato, así como el procedimiento para su cálculo.
+13) La indicación de que el comerciante, proveedor o sus causahabientes tienen la obligación de mantener las condiciones en que se pactaron los bienes o servicio, para garantizar el disfrute pleno de lo acordado.
+14) El contrato deberá estar escrito con letra visible y clara, en idioma español”.
+“Artículo 55 quinquies.—Del plazo para resolver la solicitud. Para la resolución de las solicitudes de los planes de ventas a plazo de bienes, de prestación futura de servicios y los proyectos futuros de desarrollo, el Ministerio de Economía, Industria y Comercio las resolverá dentro del plazo de ocho días naturales, a partir del recibo de dicha solicitud.
+En los casos en que la solicitud no cumpla los requisitos y condiciones que debe contener el contrato se procederá a notificar al comerciante o proveedor de dicha circunstancia a efecto de que, en el plazo de 10 días hábiles, contados a partir del día hábil siguiente a la notificación, subsane, corrija o complete lo señalado. Vencido este plazo sin que el comerciante o proveedor subsane, corrija o complete lo señalado se procederá a su archivo de conformidad con el artículo 264 de la Ley General de la Administración Pública”.
+“Artículo 55 sexies.—De la publicidad del registro de los planes. El Ministerio de Economía Industria y Comercio mantendrá un registro de los contratos de ventas a plazo de bienes, de prestación futura de servicios y los proyectos futuros de desarrollo.
+Los comerciantes o proveedores que vendan o comercialicen éstos contratos deberán enviar, de forma digital, al Ministerio de Economía, Industria y Comercio la información sobre los contratos comercializados, número de contrato, calidades del consumidor, monto del contrato y fecha de vencimiento. Lo anterior deberá hacerse de forma trimestral, a efectos de mantener el registro vigente y actualizado.
+El Ministerio de Economía, Industria y Comercio comunicará trimestralmente la condición de los comerciantes o proveedores de los planes de ventas a plazo de bienes, de prestación futura de servicios y los proyectos futuros de desarrollo debidamente autorizados.”
