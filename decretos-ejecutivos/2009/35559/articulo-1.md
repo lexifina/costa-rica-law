@@ -1,0 +1,15 @@
+N° 35559-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En ejercicio de las facultades conferidas en los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; el inciso 2.b) del artículo 28 de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978; el Acuerdo sobre Subvenciones y Medidas Compensatorias, Ley Aprobación del Acta Final en que se incorporan los Resultados de la Ronda Uruguay de Negociaciones Comerciales Multilaterales, Ley N° 7475 del 20 de diciembre de 1994 y el Reglamento Centroamericano sobre Prácticas Desleales de Comercio, Resolución Nº 12-95 (COMRIEDRE-II) del 12 de diciembre de 1995, reformado por el Decreto Ejecutivo Nº 33809-COMEX-MEIC del 8 de mayo de 2007, que publica la Resolución Nº 193-2007 (COMIECO-XLIV) del 24 de abril de 2007.
+Considerando:
+1º—Que el acuerdo de Marrakech por el cual se establece la Organización Mundial del Comercio (OMC) incorpora, entre otras normas y disciplinas, el Acuerdo Relativo a la Aplicación del Artículo VI del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994, el Acuerdo sobre Subvenciones y Medidas Compensatorias, y el Acuerdo sobre Salvaguardias, para que los países Miembros de dicha organización puedan adoptar medidas en caso de prácticas de comercio desleal y tomar providencias y aplicar mecanismos de ajuste ante el incremento de las importaciones que ocasionen o amenacen causar un daño grave a la producción nacional.
+2º—Que conforme lo establece el artículo 14 del Acuerdo sobre Subvenciones y Medidas Compensatorias, el método para el cálculo de la cuantía de una subvención en función del beneficio obtenido por el receptor debe estar previsto en la legislación nacional o en los reglamentos de aplicación del Miembro de que se trate. Dicha normativa debe estar conforme a lo establecido por el numeral supra.
+3º—Que en cumplimiento de lo anterior, esta Administración, requiere emitir una norma reglamentaria que disponga y organice, de manera estructurada y transparente disposiciones relativas a la metodología para el cálculo de la subvención dentro de los respectivos procedimientos ante la Autoridad Investigadora.
+4º—Que Costa Rica requiere oficializar el método que utilizará para el cálculo del daño provocado por una subvención en función del beneficio obtenido por el receptor y complementar el procedimiento administrativo ya oficializado por medio del documento titulado: “Manual de procedimiento Oficina de Prácticas de Comercio Desleal y Medidas de Salvaguardia”. Por tanto,
+Decretan:
+Reglamento sobre la Metodología para el Cálculo
+de la Cuantía de las Subvenciones
+CAPÍTULO I
+De las disposiciones generales
+Artículo 1º—Objeto. El presente Decreto Ejecutivo tiene por objeto reglamentar el método que utilizará Costa Rica para determinar la cuantía total de una subvención, en función del beneficio obtenido por el receptor, en los términos del ordinal 14 del Acuerdo sobre Subvenciones y Medidas Compensatorias de la OMC.

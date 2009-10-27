@@ -1,0 +1,3 @@
+Artículo 11.—Deducciones y compensaciones. Al determinar la cuantía total de la subvención recibida por el productor o exportador extranjero receptor en virtud de una subvención o programa objeto de investigación, o la tasa total ad valorem de la subvención del producto sujeto a investigación para ese receptor, se deducirán los siguientes elementos, según proceda:
+a) cualquier derecho de solicitud u otros gastos, que deban efectuarse necesariamente para optar a la subvención o para obtenerla;
+b) los impuestos, derechos u otras cargas a la exportación aplicados a la exportación del producto a la República de Costa Rica con la intención específica de compensar la subvención o subvenciones.

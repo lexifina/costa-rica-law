@@ -1,0 +1,2 @@
+Artículo 7º—Beneficio obtenido por el receptor. La cuantía de la subvención que puede ser objeto de medidas compensatorias recibida por el receptor se calculará en función del beneficio otorgado a éste.
+Cuando el receptor sea una empresa estatal que posteriormente se privatice, se presumirá que una privatización en condiciones de plena competencia y por un valor justo de mercado pone fin al beneficio, salvo que se pueda demostrar, basándose en pruebas positivas, que persiste un beneficio.

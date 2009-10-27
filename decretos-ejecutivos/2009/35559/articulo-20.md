@@ -1,0 +1,2 @@
+Artículo 20.—Donaciones. En el caso de una donación de cuyo valor no se reembolse al gobierno ninguna parte, la cuantía total de la subvención será la cuantía de la donación determinada de conformidad con las disposiciones de los artículos 10 y 11 del presente Reglamento.
+La Autoridad Investigadora estimará normalmente que la fecha de recepción de la subvención es la de la recepción de la donación. Asimismo, determinará la cuantía de una donación imputable al POI de la subvención de conformidad con las disposiciones del artículo 13 del presente Reglamento.

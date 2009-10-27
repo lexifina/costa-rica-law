@@ -1,0 +1,1 @@
+Artículo 42.—Los anexos I “Lista ilustrativa de subvenciones a la exportación”; II “Directrices sobre insumos consumidos en el proceso de producción”; III “Directrices para determinar si los sistemas de devolución constituyen subvenciones a la exportación en casos de sustitución” son parte integrante del presente Reglamento.
