@@ -14,3 +14,4 @@ Reglamento para la aplicación de los procedimientos del artículo 38 de la Ley 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-19 | la propia norma |
+| 2 | 2009-10-27 | Reglamento 68 (2009-10-27) |
