@@ -1,1 +1,0 @@
-Artículo 72.—Alcance. Este procedimiento aplica en forma obligatoria a todo el personal de las plantas de tratamiento incluyendo las de operadores de sistemas en todo el país. El encargado de planta y su superior son los responsables directos de su cumplimiento.

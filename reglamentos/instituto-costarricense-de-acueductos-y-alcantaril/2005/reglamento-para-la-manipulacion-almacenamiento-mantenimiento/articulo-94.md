@@ -1,1 +1,0 @@
-Artículo 94.—Si la fuga es en el recipiente de cloro, debe procurarse primeramente empaquetarlo. Si no puede ser empaquetado rápidamente utilizando el equipo de seguridad (Kit A para cilindros y Kit B para contenedores de 1 tonelada) procure moverlo a un área abierta segura. Evite la fuga de cloro líquido.

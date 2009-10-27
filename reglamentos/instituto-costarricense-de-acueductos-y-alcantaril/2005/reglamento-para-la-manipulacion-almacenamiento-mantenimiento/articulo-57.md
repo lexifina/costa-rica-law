@@ -1,1 +1,0 @@
-Artículo 57.—Almacenes: Unidad dependiente de la Dirección de Suministros, cuya responsabilidad está directamente establecida en los procesos de abastecimiento de materiales, específicamente de cloro gas.

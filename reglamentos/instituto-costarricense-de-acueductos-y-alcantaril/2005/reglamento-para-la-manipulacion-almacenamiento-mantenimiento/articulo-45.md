@@ -1,1 +1,0 @@
-Artículo 45.—El carro plataforma dedicado al transporte de cilindros de cloro, no deberá ser utilizado simultáneamente para transportar otras sustancias como gasolina, solventes, hidrocarburos y aceites.
