@@ -14,3 +14,4 @@ Trámites por División, Área y Unidad de la Contraloría General de la Repúbl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-31 | la propia norma |
+| 2 | 2009-10-27 | Acuerdo 0 (2009-10-27) |
