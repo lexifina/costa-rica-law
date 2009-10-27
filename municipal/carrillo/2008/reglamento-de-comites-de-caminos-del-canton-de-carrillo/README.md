@@ -14,3 +14,4 @@ Reglamento de Comités de Caminos del Cantón de Carrillo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-10 | la propia norma |
+| 2 | 2009-10-27 | Reglamento municipal 42 (2009-10-27) |
