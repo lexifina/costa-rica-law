@@ -1,0 +1,1 @@
+Artículo 13.—Perfil de los Representantes Comunales: Las personas interesadas en ser consideradas representantes comunales, deberán residir en la jurisdicción de la Oficina Local correspondiente, ser de reconocida solvencia moral y encontrarse identificados con las problemáticas de la niñez y la adolescencia.

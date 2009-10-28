@@ -1,0 +1,1 @@
+Artículo 17.—De la juramentación de los miembros: La juramentación de todos los miembros propietarios y suplentes estará a cargo del funcionario del PANI de mayor rango que esté presente en la Asamblea Popular y ésta se efectuará inmediatamente después de conocido el resultado de las votaciones.

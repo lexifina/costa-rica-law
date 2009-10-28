@@ -1,0 +1,1 @@
+Transitorio único.—Una vez que entre en vigencia el presente reglamento, la Gerencia Técnica del PANI organizará los procesos de capacitación, inducción y asesoría técnica a los miembros de las Juntas de Protección a la Niñez y la Adolescencia.

@@ -1,0 +1,1 @@
+Artículo 19.—Informe de Labores: Las Juntas de Protección a la Niñez y la Adolescencia salientes deberán presentar ante la Asamblea Popular Comunal que elegirá a los nuevos miembros, un informe de las labores llevadas a cabo durante su período de vigencia.

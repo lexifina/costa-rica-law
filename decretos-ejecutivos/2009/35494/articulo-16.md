@@ -1,0 +1,4 @@
+Artículo 16.—De la designación y elección de los suplentes: Además de los representantes propietarios, las autoridades públicas indicadas en el artículo 12 de este reglamento deberán designar a un funcionario suplente que asumirá el puesto ante ausencias temporales del funcionario propietario.
+Los suplentes de los representantes comunales serán electos en la misma Asamblea Popular Comunal en la que se nombra a los miembros propietarios. Para cada representante de la comunidad, la Asamblea designará un suplente, y para el representante de la niñez y la adolescencia, dos.
+Se entenderá que son miembros suplentes de los representantes de la comunidad en las Juntas de Protección a la Niñez y la Adolescencia, el cuarto, quinto y sexto postulante más votado o votada, en la elección respectiva.
+En el caso de los suplentes del representante de la niñez y la adolescencia, serán los postulantes segundo y tercero más votados en la Asamblea.

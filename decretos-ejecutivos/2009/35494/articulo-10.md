@@ -1,0 +1,9 @@
+Artículo 10.—Funciones y Atribuciones: Además de las ya indicadas en la Ley Orgánica del PANI y el Código de la Niñez y la Adolescencia, las Juntas de Protección a la Niñez y la Adolescencia tendrán las siguientes funciones y atribuciones:
+a) Elaborar un plan de trabajo con una duración de dos años donde que contemple la proyección, operacionalización, ejecución y puesta en práctica, de las funciones otorgadas por la ley. Dicho plan deberá ser presentado ante la Dirección Regional de su jurisdicción para su aprobación.
+b) Promover y liderar la articulación y funcionamiento del sistema local de protección a la niñez y la adolescencia, coordinando, integrando y desarrollando acciones con las diferentes instituciones representadas localmente, así como con organizaciones no gubernamentales y Comités Tutelares de los Derechos de la Niñez y la Adolescencia.
+c) Conocer, participar e integrarse de forma articulada y activa en los planes y proyectos elaborados a nivel nacional y regional, que sean de interés para la niñez y la adolescencia local.
+d) Participar en asambleas y encuentros nacionales y regionales de las Juntas de Protección a la Niñez y la Adolescencia, convocados por el PANI.
+e) Convocar una vez al año a las instituciones públicas de su localidad, a efectos de fiscalizar el avance en el cumplimiento de las políticas, programas y prestación de servicios a la niñez y la adolescencia, según sus competencias.
+f) Desarrollar estrategias de comunicación para informar periódicamente a la población sobre las acciones y proyectos desarrollados en el cantón por la Junta de Protección a la Niñez y la Adolescencia.
+g) Conocer y canalizar los proyectos que promuevan las distintas organizaciones de base comunitaria y que requieran ser financiados por el Fondo de Niñez y Adolescencia.
+h) Cumplir con las demás funciones establecidas en el Reglamento para la Administración del Fondo de Niñez y Adolescencia.

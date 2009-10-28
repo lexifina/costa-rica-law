@@ -1,0 +1,5 @@
+Artículo 6º—De la Gerencia Técnica: Serán funciones y atribuciones de la Gerencia Técnica, las siguientes:
+a) Definir e implementar nuevas estrategias y metodologías de trabajo, así como emitir las guías y manuales de procesos y procedimientos que considere necesario para apoyar y orientar el quehacer de las Juntas de Protección a la Niñez y la Adolescencia, de conformidad con las políticas, lineamientos y directrices emitidos por la Junta Directiva y la Presidencia Ejecutiva.
+b) Velar junto con la Presidencia Ejecutiva por el cumplimiento de la normativa interna emitida por la Junta Directiva con respeto a las Juntas de Protección a la Niñez y la Adolescencia.
+c) Presentar una vez al año a la Junta Directiva, por medio de la Presidencia Ejecutiva, un informe de balance sobre la gestión realizada por las Juntas de Protección a la Niñez y la Adolescencia.
+d) Recomendar a la Junta Directiva del Patronato Nacional de la Infancia, por medio de la Presidencia Ejecutiva, las reformas necesarias al presente reglamento, para el más adecuado funcionamiento de las Juntas de Protección a la Niñez y la Adolescencia.

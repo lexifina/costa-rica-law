@@ -1,0 +1,1 @@
+Artículo 29.—Del quórum: El quórum de las sesiones se constituirá con la presencia de al menos cuatro de sus miembros. Los acuerdos se tomarán por mayoría absoluta de los votos presentes. En caso de empate en la votación, el presidente de la Junta, o quién la presida dispondrá de doble voto.

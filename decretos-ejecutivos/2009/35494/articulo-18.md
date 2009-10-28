@@ -1,0 +1,1 @@
+Articulo 18.—Período de nombramiento y reelección: De conformidad con lo establecido en el artículo 30 de la Ley Orgánica del PANI, los miembros de las Juntas de Protección a la Niñez y la Adolescencia, con excepción del representante del PANI, desarrollarán sus funciones en períodos ordinarios de dos años, pudiendo ser reelectos en forma consecutiva o alterna.
