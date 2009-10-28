@@ -1,0 +1,2 @@
+Artículo 15.—Comité de Crédito. Le corresponde a este Comité el análisis, aprobación o denegatoria de las solicitudes de crédito de vivienda. Este comité sesionará al menos una vez cada quince días y estará conformado por dos miembros del Órgano Colegiado (uno de los cuales, lo coordinará), el Director Ejecutivo o su representante, el Jefe del Departamento de Crédito y Cobro, el Oficial de Crédito quien tendrá voz pero no voto y el Jefe del Departamento Financiero Contable.
+De las reuniones realizadas, se levantará un acta con los pormenores de los asuntos tratados.

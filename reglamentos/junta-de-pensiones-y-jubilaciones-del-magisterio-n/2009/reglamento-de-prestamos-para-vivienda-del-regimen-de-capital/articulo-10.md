@@ -1,0 +1,2 @@
+Artículo 10.—De la sustitución de Garantías. La Junta de Pensiones se reserva el derecho de solicitar en cualquier momento la modificación o sustitución de cualquiera de las garantías que respalden los créditos otorgados. Lo anterior en procura de salvaguardar los intereses de la Institución.
+Será potestad de la Dirección Ejecutiva de la Institución, aprobar la sustitución de garantías otorgadas bajo la línea de vivienda, previa recomendación técnica del Comité de Crédito.

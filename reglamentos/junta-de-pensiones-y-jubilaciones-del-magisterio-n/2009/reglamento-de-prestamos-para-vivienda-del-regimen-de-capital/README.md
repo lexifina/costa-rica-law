@@ -1,0 +1,16 @@
+# Reglamento (2009-09-24)
+
+Reglamento de préstamos para vivienda del Régimen de Capitalización Colectiva del Sistema de Pensiones y Jubilaciones del Magisterio Nacional
+
+- Tipo: Reglamento
+- Número: 107
+- Fecha: 2009-09-24
+- Ente emisor: Junta de Pensiones y Jubilaciones del Magisterio Nacional
+- Publicación: La Gaceta N° 209 del 2009-10-28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66552&param2=78337&param3=1 (ficha 66552)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-10-28 | la propia norma |
