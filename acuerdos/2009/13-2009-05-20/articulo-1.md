@@ -1,4 +1,4 @@
-Nº 13-09-10
+|Nº 13-09-10
 EL DIRECTORIO DE LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 De conformidad con la disposición adoptada en la sesión Nº 150-2009, celebrada por el Directorio Legislativo el 20 de mayo de 2009.
@@ -155,7 +155,8 @@ TRABAJADOR: Persona que ejecuta una actividad determinada en cualquier empresa y
 UBICACIÓN: Proceso de instalar a un empleado en un puesto nuevo o diferente. Determinación de la unidad administrativa donde se deben ejecutar las actividades de un puesto, según sea el cumplimiento de los objetivos que se persigan.
 ESTRATO OPERATIVO
 Este estrato abarca clases que generalmente se encuentran en la base de la estructura ocupacional y que requieren el empleo de esfuerzo físico, destreza muscular y coordinación motora, entre otras condiciones. Las labores que se ejecutan en las clases de este estrato son de carácter sencillo y repetitivo. La capacitación se orienta principalmente a las relaciones interpersonales y, por ende, laborales, además de actualizar procedimientos directamente relacionados con las actividades propias de sus cargos. Académicamente, las clases de este estrato demandan estudios que oscilan entre el Segundo Ciclo aprobado de la Enseñanza General Básica y el título de bachiller en Educación Media.
-En este estrato se ubican las siguientes clases de puestos: Ujier, Subjefe de Ujieres y Jefe de Ujieres; Agente de Seguridad, y Operador de Equipo Móvil.
+(*) En este estrato se ubican las siguientes clases de puestos: Ujier, Agente de Seguridad, y Operador de Equipo Móvil.
+(*) (Así reformado el párrafo anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 El marco referencial de las actividades que integran los cargos y los puestos que contienen las clases mencionadas se define según procedimientos establecidos, sujetos a instrucciones precisas, y propios de una organización de servicio.
 La orientación de dichas actividades busca la generación de servicios de manera eficiente y efectiva, y de productos de apoyo operativo propios de las actividades de conserjería, mensajería, labores de vigilancia, conducción de vehículos y otras de similar naturaleza. Para alcanzar el objetivo en estas actividades se requiere la ejecución de tareas con características diferentes a las indicadas, por lo que esos puestos se ubican en otras clasificaciones y otros estratos organizacionales, y lo que ello conlleva.
 ROLES OCUPACIONALES
@@ -219,73 +220,10 @@ CONOCIMIENTOS BÁSICOS
 Los relacionados con el uso adecuado de diferentes productos de limpieza e implementos para dichas actividades; actualización en el campo de actividad; asimismo, conocimientos asociados a la estimulación de las relaciones interpersonales y laborales.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Título de bachiller en Educación Media. O Conclusión de Enseñanza General Básica (9º año) y dos años de experiencia relacionada. O Certificación de conclusión de Estudios Primarios y cuatro años de experiencia relacionada.
-SUBJEFE DE UJIERES
-Objetivo del trabajo: Colaborar en forma dinámica con el jefe de la Sección de Ujieres mediante la ejecución de labores de organización, asignación, control y seguimiento del trabajo que realiza el personal.
-Ubicación: Sección de Ujieres del Departamento de Servicios Generales.
-Actividades generales:
-Apoyar la gestión del jefe inmediato mediante la coordinación constante y estrecha y asumir por delegación las actividades que el jefe considere pertinentes.
-Colaborar en el establecimiento de medidas vinculadas al ámbito laboral de la unidad administrativa, tendientes a fortalecer sus actividades y las de la Institución en general.
-Colaborar, de manera eficiente y responsable, en la asignación, la coordinación, la supervisión y el control de equipos, materiales, suministros y trabajo del personal a cargo. De igual manera, colaborar en la atención y resolución de las consultas que se presenten a la unidad administrativa y relacionadas con la actividad.
-Sustituir al jefe en sus ausencias temporales adquiriendo la potestad inherente al cargo.
-Participar activamente en la revisión de la documentación que debe tener cada una de las curules antes del inicio de las sesiones del Plenario.
-Realizar otras funciones relacionadas con el cargo.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Colaborar en la supervisión de las labores ejecutadas por los funcionarios de la Sección. Le corresponde orientar en la ejecución de los trabajos y velar por la disciplina y eficiencia.
-Supervisión recibida: Trabaja en coordinación con la jefatura de la Unidad siguiendo instrucciones generales y normas establecidas de parte de la jefatura y del director del departamento de Servicios Generales. Su labor es supervisada y evaluada por medio del análisis de los informes que presenta, la apreciación de la calidad del trabajo realizado y los resultados obtenidos.
-RESPONSABILIDAD
-Por actividades
-Es responsable por la realización eficiente de todas las actividades que por delegación se le designen, así como de la participación en la organización y supervisión del trabajo de la unidad administrativa y por el eficiente, puntual y oportuno cumplimiento de las actividades y servicios que se brinden.
-Por equipo y materiales
-Es responsable, junto con el jefe, por el adecuado empleo y mantenimiento de los equipos, útiles y materiales asignados a la Sección.
-Por relaciones de trabajo
-La actividad origina relaciones constantes con diputados, jefaturas, colaboradores y público en general, las cuales deben ser atendidas con responsabilidad, tacto y discreción. Puede conocer asuntos confidenciales sobre los cuales debe guardar discreción.
-CONDICIONES DE TRABAJO
-La actividad requiere esfuerzo físico y mental relacionado con el ejercicio del rol de coordinación, control y supervisión. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
-Le puede corresponder trabajar sin límite de jornada y trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
-CONSECUENCIAS DEL ERROR
-Los errores pueden repercutir en la imagen de la Institución en lo que corresponde a las labores que debe efectuar, además de causar atrasos y malestar en el desempeño de las labores tanto de los diputados como de los funcionarios; también, los errores pueden ocasionar pérdidas económicas relacionadas con ineficiencia laboral de la unidad administrativa y mala impresión en los visitantes.
-CARACTERÍSTICAS PERSONALES
-Ser observador y con iniciativa motivada por la necesidad de realizar de manera excelente el trabajo. Guardar discreción sobre asuntos que se le encomienden o de los que tenga conocimiento; solvencia moral, sentido de orden, buenas relaciones interpersonales y habilidad para resolver situaciones imprevistas. Capacidad para trabajar en coordinación estrecha con jefaturas. Asertivo en el trato con colaboradores, jefaturas, jerarcas y con el público. Adecuada presentación personal y buena condición física.
-CONOCIMIENTOS BÁSICOS
-Cursos de capacitación en el campo de la actividad, las relaciones interpersonales y la normativa institucional.
-CONOCIMIENTO Y EXPERIENCIA REQUERIDA
-Título de bachiller en Educación Media.
-Experiencia de dos años en labores relacionadas con el cargo y desarrolladas en la Asamblea Legislativa.
-Experiencia de seis meses en el manejo y supervisión de labores.
-JEFE DE UJIERES
-Objetivo del trabajo: Garantizar el eficiente y eficaz desarrollo de los servicios de la Sección a su cargo mediante la ejecución de labores de organización, asignación, control y seguimiento del trabajo que realiza el personal a su cargo.
-Ubicación: Sección de Ujieres del Departamento de Servicios Generales.
-Actividades generales:
-Asignar, coordinar y controlar el trabajo del personal a su cargo. Mantener la coordinación necesaria con la jefatura del Departamento a fin de velar por la eficiencia y eficacia de las metas fijadas.
-Establecer medidas vinculadas al ámbito laboral de la unidad administrativa tendientes a fortalecer sus actividades y las de la Institución en general.
-Efectuar de manera eficiente y responsable la asignación, la coordinación, la supervisión y el control de los equipos, los materiales, los suministros y el trabajo del personal a cargo. De igual manera, atender y resolver las consultas, relacionadas con la actividad, que se presenten en la unidad administrativa.
-Definir los métodos y procedimientos para la ejecución del trabajo y evaluar las actividades de su área de trabajo mediante los informes y reportes recibidos y la observación, con el fin de detectar y corregir anomalías.
-Preparar el presupuesto de materiales y equipo que se necesitará durante en el año.
-Efectuar las actividades administrativas propias del rol de jefatura que desarrolla.
-Ejecutar otras tareas propias del cargo.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Ejerce supervisión (técnica y administrativa) de los funcionarios de la unidad administrativa a su cargo, vela por su disciplina y eficiencia y toma decisiones sobre los procedimientos de ejecución de los trabajos.
-Supervisión recibida: Trabaja con independencia, siguiendo instrucciones generales y normas establecidas de parte de la jefatura del Departamento de Servicios Generales o de otros superiores y las políticas institucionales. Su labor es supervisada y evaluada por medio del análisis de los informes que presenta, la apreciación de la calidad del trabajo realizado y los resultados obtenidos.
-RESPONSABILIDAD
-Por actividades
-Es responsable por la realización eficiente de todas las actividades propias de la unidad administrativa a su cargo, así como de la organización y supervisión de los funcionarios de dicha unidad y por el eficiente, puntual y oportuno cumplimiento de las actividades y los servicios que se brindan.
-Por relaciones de trabajo
-La actividad origina relaciones constantes con diputados, superiores, subalternos y público en general, las cuales deben ser atendidas con responsabilidad, tacto y discreción. Por la naturaleza del puesto, le corresponde conocer asuntos confidenciales sobre los cuales debe guardar discreción.
-Por equipo y materiales
-Es responsable por el adecuado empleo y mantenimiento de los equipos, el mobiliario, los útiles y los materiales asignados a la unidad administrativa.
-CONDICIONES DE TRABAJO
-La actividad requiere esfuerzo físico y mental relacionado con el ejercicio del rol de coordinación, control y supervisión. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
-Le puede corresponder trabajar sin límite de jornada y trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
-CONSECUENCIAS DEL ERROR
-Los errores pueden repercutir en la imagen de la Institución en lo que corresponde a las labores que debe efectuar; además, causar pérdidas, daños, atrasos y malestar en el desempeño de las labores tanto de los diputados como de los funcionarios, incluso gestar mala impresión en los visitantes.
-CARACTERÍSTICAS PERSONALES
-Ser observador y con iniciativa motivada por la necesidad de realizar de manera excelente el trabajo. Guardar discreción sobre asuntos que se le encomiendan o de los que tenga conocimiento; solvencia moral, habilidades de liderazgo y para la toma de decisiones, buenas relaciones interpersonales, habilidad para resolver situaciones imprevistas. Capacidad para trabajar en coordinación estrecha con jefaturas. Asertivo en el trato con colaboradores, jefaturas, jerarcas y con el público. Adecuada presentación personal.
-CONOCIMIENTOS BÁSICOS
-Cursos de capacitación en el campo de la actividad, las relaciones interpersonales y la normativa institucional.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Título de bachiller en Educación Media.
-Experiencia de cuatro años en labores relacionadas con el cargo y desarrolladas en la Asamblea Legislativa.
-Experiencia mínima de un año en el manejo y supervisión de personal.
+(*) SUBJEFE DE UJIERES
+(*) (Así eliminada esta clase de puesto por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
+(*) JEFE DE UJIERES
+(*) (Así eliminada esta clase de puesto por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 SUPERVISOR DE TURNO-SEGURIDAD
 Objetivo del trabajo: Colaborar con la Jefatura de la Sección de Seguridad mediante la coordinación y supervisión de un grupo de agentes de seguridad, ejecutando labores de organización, asignación y control de trabajo en los roles respectivos.
 Ubicación: Sección de Seguridad.
@@ -579,7 +517,8 @@ ESTRATO TÉCNICO
 Este estrato abarca clases que incluyen actividades que se encuentran en una posición intermedia de la estructura ocupacional. Son clases en las que se desarrollan actividades de investigación y análisis de nivel auxiliar o asistencial en una disciplina específica con el fin de producir los insumos necesarios para que los procesos profesionales de la Institución cumplan su misión. La ejecución de las funciones requiere formación que puede abarcar desde el título de bachiller de Enseñanza Media hasta un nivel de cuarto año universitario.
 Se ubica en todas las dependencias de Asamblea Legislativa. Trabaja con la guía de un profesional (jefatura o no) que participa significativamente en la consecución de los objetivos definidos para las diferentes unidades administrativas de la Institución; igualmente, trabaja con lineamientos claramente definidos. Sus funciones son de índole asistencial, bien sea en el desempeño de roles técnicos y/o administrativos de soporte para la realización de actividades dentro de una organización de servicios. Requiere competencias personales para intervenir en los procesos de trabajo enmarcados en condiciones de polifuncionalidad, calidad y seguimiento de instrucciones.
 La realización eficiente y eficaz de las labores integradas en este estrato genera servicios y productos de carácter asistencial y de apoyo, necesarios para el cumplimiento de la gestión de la unidad correspondiente y con impacto en el desempeño institucional en general. Le puede corresponder la coordinación y supervisión de equipos de colaboradores dispuestos en la realización de actividades operativas o especializadas.
-En este estrato se ubican las siguientes clases de puestos: Técnico, Técnico en Seguridad, Jefe Técnico y Jefe Técnico en Seguridad.
+(*) En este estrato se ubican las siguientes clases de puestos: Técnico, Técnico en Seguridad, Jefe Técnico y Sub Jefe Técnico en Seguridad, Subjefe Técnico de Ujieres.
+(*) (Así reformado el párrafo anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 ROLES OCUPACIONALES
 Se compromete, desde su rol, con el logro de las ideas institucionales. Aplica directrices, políticas, disposiciones y normas establecidas para el desarrollo de las actividades correspondientes.
 Aporta información requerida para la formulación y definición de la planificación de la unidad. Se responsabiliza por el cumplimiento de los objetivos que le corresponden.
@@ -778,6 +717,41 @@ O
 Título de bachiller en Educación Media.
 Primer año universitario aprobado en una carrera que le faculte para el desempeño del cargo.
 Experiencia mínima de siete años en labores relacionadas con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión de personal.
+(*) SUBJEFE TÉCNICO DE UJIERES
+Objetivo del trabajo: Comprometerse junto con la Jefatura de la unidad administrativa encargada del aseo y la limpieza de las diferentes oficinas de la Institución, de la distribución de correspondencia y del apoyo logístico requerido por los Diputados en las sesiones de plenario seguridad (Ujieres), mediante la ejecución de labores de organización, asignación, control y seguimiento del trabajo que realiza el personal de esa Unidad.
+Ubicación: Sección de Ujieres del Departamento de Servicios Generales.
+Actividades generales: Apoyar la gestión del jefe inmediato mediante la coordinación constante y estrecha y asumir por delegación las actividades que el jefe considere pertinentes.
+Colaborar en el establecimiento de medidas vinculadas al ámbito laboral de la unidad administrativa, tendientes a fortalecer sus actividades y las de la Institución en general.
+Colaborar, de manera eficiente y responsable, en la asignación, la coordinación, la supervisión y el control de equipos, materiales, suministros y trabajo del personal a cargo. De igual manera, colaborar en la atención y resolución de las consultas que se presenten a la unidad administrativa y relacionadas con la actividad.
+Sustituir al jefe en sus ausencias temporales adquiriendo la potestad inherente al cargo.
+Participar activamente en la revisión de la documentación que debe tener cada una de las curules antes del inicio de las sesiones del Plenario.
+Realizar otras funciones relacionadas con el cargo.
+CONDICIONES ORGANIZACIONALES Y AMBIENTALES
+Supervisión ejercida: Colaborar en la supervisión de las labores ejecutadas por los funcionarios de la Sección. Le corresponde orientar en la ejecución de los trabajos y velar por la disciplina y eficiencia.
+Supervisión recibida: Trabaja en coordinación con la jefatura de la Unidad siguiendo instrucciones generales y normas establecidas de parte de la jefatura y del director del departamento de Servicios Generales. Su labor es supervisada y evaluada por medio del análisis de los informes que presenta, la apreciación de la calidad del trabajo realizado y los resultados obtenidos.
+RESPONSABILIDAD
+Por actividades. Es responsable por la realización eficiente de todas las actividades que por delegación se le designen, así como de la participación en la organización y supervisión del trabajo de la unidad administrativa y por el eficiente, puntual y oportuno cumplimiento de las actividades y servicios que se brinden.
+Por equipo y materiales. Es responsable, junto con el jefe, por el adecuado empleo y mantenimiento de los equipos, útiles y materiales asignados a la Sección.
+Por relaciones de trabajo. La actividad origina relaciones constantes con diputados, jefaturas, colaboradores y público en general, las cuales deben ser atendidas con responsabilidad, tacto y discreción. Puede conocer asuntos confidenciales sobre los cuales debe guardar discreción.
+CONDICIONES DE TRABAJO
+La actividad requiere esfuerzo físico y mental relacionado con el ejercicio del rol de coordinación, control y supervisión. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
+Le puede corresponder trabajar sin límite de jornada y trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
+CONSECUENCIAS DEL ERROR
+Los errores pueden repercutir en la imagen de la Institución en lo que corresponde a las labores que debe efectuar, además de causar atrasos y malestar en el desempeño de las labores tanto de los diputados como de los funcionarios; también, los errores pueden ocasionar pérdidas económicas relacionadas con ineficiencia laboral de la unidad administrativa y mala impresión en los visitantes.
+CARACTERÍSTICAS PERSONALES
+Ser observador y con iniciativa motivada por la necesidad de realizar de manera excelente el trabajo. Guardar discreción sobre asuntos que se le encomienden o de los que tenga conocimiento; solvencia moral, sentido de orden, buenas relaciones interpersonales y habilidad para resolver situaciones imprevistas. Capacidad para trabajar en coordinación estrecha con jefaturas. Asertivo en el trato con colaboradores, jefaturas, jerarcas y con el público. Adecuada presentación personal y buena condición física.
+CONOCIMIENTOS BÁSICOS
+Cursos de capacitación en el campo de la actividad, las relaciones interpersonales y la normativa institucional
+CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Título de bachiller en educación media.
+Técnico o segundo año universitario aprobado en una carrera que le faculte para el desempeño del cargo.
+Experiencia mínima de tres años en labores relacionados con el área de actividad.
+Experiencia mínima de seis meses en el manejo y supervisión de personal.
+Ó
+Título de bachiller en educación media.
+Primer año universitario aprobado en una carrera que le faculte para el desempeño del cargo.
+Experiencia mínima de cinco años en labores relacionadas con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión de personal.
+(*) (Así adicionada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 ESTRATO PROFESIONAL
 Los procesos que se desarrollan en este estrato se orientan al análisis y la investigación, formulación y desarrollo de conceptos, teorías y métodos, asesoramiento o aplicación de los conocimientos en su campo de trabajo.
 Dicho estrato se caracteriza por la aplicación de las teorías y los principios propios de un área; la evaluación de las propuestas de cambio y de las investigaciones efectuadas en otros ámbitos.
@@ -788,7 +762,8 @@ El marco referencial de desempeño se caracteriza por las labores profesionales 
 Participa en el diseño y la generación de los servicios y productos de naturaleza profesional con diferentes niveles de complejidad e impacto, necesarios para el cumplimiento de la misión de la unidad administrativa en la cual aporta sus conocimientos y experiencia (departamento, división, Dirección Ejecutiva). Parte importante de sus actividades implican integrar grupos de trabajo o, incluso, dirigir proyectos de trabajo o liderar equipos.
 Dentro de este estrato se cuenta con roles profesionales que además desarrollan actividades de jerarquía mediante la coordinación, el liderazgo, la organización y la definición de aspectos significativos de las labores de la unidad; desde esta posición, el marco referencial se describe como el de líder de uno de los subsistemas organizativos. Requiere valores y compromiso con las políticas rectoras y directrices emanadas del nivel superior y lealtad absoluta hacia la Institución.
 En ese sentido, la orientación de sus labores es liderar la unidad bajo su responsabilidad hacia el logro de su misión, en un nivel de intervención en el que predominan los componentes de operativos, mediante la efectiva administración y coordinación de recursos y procesos y el asesoramiento en asuntos que son competencia de la unidad correspondiente. Su campo de gestión se caracteriza por centrarse, predominantemente, en la generación de servicios de apoyo.
-En este estrato se ubican las siguientes clases de puestos: Profesional 1, Profesional 2, Médico G2, Asesor 1, Médico G5, Profesional Jefe 1, Profesional Jefe 2, Profesional Jefe de Seguridad, Subdirector de Departamento y Subauditor General.
+(*) En este estrato se ubican las siguientes clases de puestos: Profesional 1, Profesional 2, Médico G1, Médico G2, Asesor 1, Profesional Jefe 1, Profesional Jefe 2, Profesional Jefe de Seguridad, y Subauditor General, Jefe de Área.
+(*) (Así reformado el párrafo anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 ROLES OCUPACIONALES
 Contribuye al desarrollo de las ideas rectoras y se compromete en su logro.
 Colabora en la definición de directrices, políticas, disposiciones y normas referentes a su labor. Una vez establecidas las aplica.
@@ -953,6 +928,40 @@ Experiencia mínima de dos años en el manejo y supervisión de personal.
 Experiencia mínima de cuatro años en labores relacionadas con el cargo, a nivel de licenciatura, y desarrolladas en la Asamblea Legislativa.
 Requisito legal:
 Incorporación al colegio respectivo.
+(*) MÉDICO G1
+Objetivo del trabajo: Coadyuvar en la prevención y mantenimiento de la salud de los funcionarios activos y pensionados de la Asamblea Legislativa mediante el diagnóstico, asistencia, prescripción y administración de tratamiento médico generales.
+Ubicación: Departamento de Servicios de Salud
+Actividades generales: Atender consulta médica a los usuarios de los servicios de salud en lo que a la medicina general se refiere.
+Efectuar exámenes físicos, realizar diagnóstico, prescribir los medicamentos y administrar otras formas de tratamientos. Llevar el expediente clínico de los usuarios de los servicios.
+Solicitar e interpretar exámenes de laboratorio, radiografías y otros exámenes de diagnóstico. Atender consultas clínicas de cirugía menor cuando se amerite.
+Colaborar con el equipo de trabajo en el diseño y desarrollo de las investigaciones que se programan en el departamento.
+Dictar charlas, cursillos o conferencias sobre temas de prevención de enfermedades y nutrición. Asistir a reuniones, seminarios y otras actividades.
+Realizar las tareas administrativas que se derivan de su función.
+Ejecutar otras labores propias de su área profesional.
+CONDICIONES ORGANIZACIONALES Y AMBIENTALES
+Supervisión ejercida: En ausencia del Médico Jefe, le puede corresponder ejercer supervisión sobre el personal, en lo que se refiere a la aplicación de las técnicas propias relacionadas con la atención médica y de salud, por lo que debe girar instrucciones específicas para la atención de los usuarios de los servicios.
+Supervisión recibida: Se dispone de algunos precedentes y lineamientos para la realización del trabajo, pero la ejecución del mismo, depende de la iniciativa y creatividad propias. La supervisión se ejerce con base en los resultados obtenidos, los informes que se presentan y la apreciación de la calidad de los resultados obtenidos.
+RESPONSABILIDAD
+Por actividades. La naturaleza del trabajo exige la aplicación de conocimientos de medicina humana, para atender y resolver adecuadamente problemas y situaciones variadas, propias del área de su competencia en las cuales, generalmente está involucrada la salud y el bienestar físico de las personas.
+Por equipo y materiales. Es responsable del correcto uso del equipo, material, instrumental y medicamentos que se le asignan para el desempeño de su trabajo.
+Por relaciones de trabajo. Debe mantener relaciones constantes con superiores, compañeros, pensionados y otros usuarios del sistema, las cuales deben ser atendidas con ética profesional, sensibilidad, tacto y discreción.
+CONDICIONES DE TRABAJO
+Se requiere de algún esfuerzo mental para realizar el desempeño de las diferentes actividades, así como poseer la habilidad para desarrollar un trabajo rutinario, con procedimientos permanentes y uniformes, pero en cuya ejecución debe enfrentarse a diversas situaciones no usuales por causa de accidentes o enfermedades de los funcionarios, que le exigen la decisión inmediata y oportuna de las situaciones que se le presenten.
+Riesgos por enfermedades profesionales: Se expone constantemente a enfermedades infecto contagiosas y eventualmente puede padecer de estrés laboral.
+Jornada: Su labor debe realizarla bajo presión y de acuerdo con el horario establecido por la Institución, ocasionalmente le corresponderá laborar fuera de la jornada ordinaria según las necesidades institucionales, así como sábados, domingos y días feriados.
+CONSECUENCIA DEL ERROR
+Los errores cometidos pueden causar pérdidas, daños y atrasos de consideración y una mala praxis pondría en peligro la salud y la integridad física de las personas, por lo que las actividades deben ser realizadas con sumo profesionalismo, cuidado y precisión.
+CARACTERÍSTICAS PERSONALES
+Capacidad de observación y relación de síntomas y signos, capacidad analítica y de organización, preparación en el campo de la medicina, capacidad para trabajar bajo presión y enfrentarse a situaciones traumática e imprevistas, discreción, buenas relaciones humanas, disposición para capacitar y educar a los funcionarios y usuarios de los servicios, capacidad para trabajar en equipo.
+Cargos que lo conforman. En esta clase se ubican puestos cuyas funciones corresponden a consulta médica general.
+CONOCIMIENTOS BÁSICOS
+Paquetes computacionales
+Actualización en su profesión
+CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Licenciado en medicina y cirugía.
+Requisito Legal:
+Incorporado al Colegio de Médicos y Cirujanos.
+(*) (Así adicionada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 MÉDICO G2
 Objetivo del trabajo: Coadyuvar en la prevención y el mantenimiento de la salud de los funcionarios activos y pensionados de la Asamblea Legislativa mediante el diagnóstico, la asistencia, la prescripción y la administración de tratamiento médico en diferentes especialidades.
 Ubicación: Departamento de Servicios de Salud.
@@ -1213,6 +1222,42 @@ Experiencia mínima de un año en el manejo y supervisión de personal.
 Experiencia mínima de dos años en labores relacionadas con el cargo a nivel de licenciatura y desarrolladas en la Asamblea Legislativa.
 Requisito legal:
 Incorporación al colegio respectivo.
+(*) JEFE DE ÁREA
+Objetivo del trabajo: Comprometerse con el eficiente desarrollo de los procesos de trabajo de la Unidad Administrativa asignada dentro de las actividades correspondientes al Área Administrativa de los Servicios Generales, como coadyuvantes para el eficiente desarrollo de las labores sustantivas de la Institución, mediante la ejecución de labores de planeación, dirección, supervisión y evaluación. Todo ello en estrecha coordinación con el jerarca de la mayor unidad administrativa a la cual pertenecen las funciones asignadas.
+Ubicación: Los puestos de esta clase se ubican en la unidad administrativa encargada de actividades denominadas “servicios generales” de la Institución, bien sea lo relacionado con transportes, aseo, limpieza y distribución de correspondencia de la Asamblea Legislativa.
+Actividades generales: Planear, coordinar, distribuir, dirigir, controlar, supervisar y evaluar los procesos en un área o unidad perteneciente al departamento en que está ubicado.
+Proyectar los gastos y requerimientos en equipo, recurso humano y espacio e informar periódicamente sobre el estado de los procesos, resultados y proyectos del área.
+Asumir, responsablemente, junto con la dirección de departamento, la revisión y aprobación de informes, manuales e instructivos técnicos y documentos que se elaboren.
+Establecer normas y estándares de trabajo y motivar e incentivar al personal a su cargo, en coordinación con la jefatura del departamento.
+Recomendar estrategias, metodologías o métodos y procedimientos que aumenten la productividad y calidad del trabajo.
+Comprometerse, junto con la dirección del departamento, con la actualización e innovación de métodos de trabajo y servicios del área que administra.
+Rendir cuentas, ante quien corresponda, mediante informes periódicos de su labor, así como elaborar reportes o documentos, por la gestión desempeñada.
+Presentar informes periódicos de su labor y elaborar reportes o documentos de proyectos relacionados con el cargo.
+Ejecutar otras tareas propias del cargo.
+CONDICIONES ORGANIZACIONALES Y AMBIENTALES
+Supervisión ejercida: Le corresponde dirigir, organizar, supervisar y evaluar el trabajo de personal profesional, técnico y/o administrativo de su respectivo ámbito, por lo que es responsable por el eficaz y eficiente cumplimiento de las actividades asignadas a ellos y por desarrollar y mantener niveles de motivación elevados en las personas que laboran en su unidad organizacional.
+Supervisión recibida: Trabaja con independencia, siguiendo la política de la Institución aplicable a su proceso de actividad y la legislación que define y regula las actividades del organismo. Su labor es evaluada mediante los informes que presenta, los aportes creativos al trabajo que realiza, la eficiencia y eficacia obtenidas en el cumplimiento de los objetivos asignados al proceso o actividad y por su capacidad para dirigir y supervisar al personal bajo su responsabilidad, la comprobación de la calidad de los resultados obtenidos y el nivel de motivación personal.
+RESPONSABILIDAD
+Por actividades. Es responsable por el proceso o la actividad encomendado, el cual debe ser ejercido mediante la búsqueda del consenso y la armonía entre todos los funcionarios a su cargo. Por ello, la planeación, la organización, la conducción, el control, la evaluación, la retroalimentación y la mejora deben formar parte de una unión sistémica del proceso institucional.
+Por equipo, materiales y valores. Es responsable por el adecuado empleo y mantenimiento del equipo y demás bienes asignados a un respectivo ámbito de acción, sea este de proceso o subproceso.
+Por relaciones de trabajo La actividad, debido a la naturaleza de sus funciones, origina la interrelación constante con sus superiores jerárquicos, funcionarios de otras instituciones, compañeros y usuarios del sistema, las cuales deben ser atendidas y tratadas con responsabilidad, tacto y discreción, procurando promover la misión institucional.
+CONDICIONES DE TRABAJO
+El desarrollo de las actividades asignadas a esta clase de puesto exige el esfuerzo mental para resolver y atender las diversas situaciones que se origina de la toma de decisiones, o bien, de la normativa que regula la actividad, lo cual obliga a estar actualizando conocimientos propios de la actividad. Otra característica de estas actividades es la supervisión de grupos numerosos de personal encargados de actividades operativas o calificadas y la responsabilidad sobre bienes costosos.
+Debe observar en forma estricta las condiciones de seguridad e higiene vigentes. Puede estar expuesto a afrontar situaciones que puedan poner en peligro su integridad física y la de los demás.
+Esta clase de puesto, debido a su naturaleza de funciones, exige que la jornada de trabajo sea sin límite dependiendo de las actividades institucionales y que, en ocasiones, deba trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
+CONSECUENCIAS DEL ERROR
+Los errores que pueden cometerse podrían causar atrasos y confusiones que generarían implicaciones de tipo legal con consecuencias para el desarrollo normal de los diferentes procesos, actividades y con ello la imagen institucional y la misión que la orienta.
+CARACTERÍSTICAS PERSONALES
+Para el desempeño de los cargos ubicados en esta clase de puesto se requiere del ocupante capacidad para la toma de decisiones y liderazgo, capacidad analítica y de síntesis, razonamiento práctico, autocontrol, discreción y lealtad institucional, capacidad de organización, sentido de orden y administración del tiempo y de los recursos disponibles, capacidad para mantener buenas relaciones humanas, capacidad de respuesta, excelente presentación personal, capacidad para atender varias tareas en forma simultánea, disponibilidad para trabajar sin límite de horario, afabilidad, cortesía y entusiasmo, capacidad para aceptar críticas, agudeza de criterio, rigor científico y rapidez de raciocinio.
+CONOCIMIENTOS BÁSICOS
+Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
+Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo de actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipos y materia gerencial.
+CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Formación profesional a nivel de bachiller universitario o título superior en una carrera universitaria atinente a su área de actividad.
+Experiencia mínima de tres años en el manejo y supervisión de personal.
+Experiencia mínima de tres años en labores relacionadas con el cargo a nivel de bachiller y desarrolladas en la Asamblea Legislativa o experiencia mínima de cinco años en labores relacionadas con el área de actividad, a nivel de bachillerato.
+Requisito legal: Incorporación al colegio respectivo.
+(*) (Así adicionada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 ESTRATO GERENCIAL
 Contempla los procesos de definición y formulación de las políticas institucionales, así como la planificación, dirección y coordinación del funcionamiento general de la institución. Corresponde la dirección de unidades administrativas del más alto nivel, o bien, su asesoramiento.
 La adopción de procesos de esta naturaleza requiere características de liderazgo, visión futurista, amplitud de criterios, originalidad para el desarrollo de políticas, identificación con las normas generales y programas de gobierno, además de facilidad para organizar y dirigir grupos.
@@ -1251,127 +1296,13 @@ Clima organizacional Modelos mentales | Grado de satisfacción y compromiso de l
 NIVEL DE IMPACTO
 Dada su ubicación en la estructura organizativa y las facultades de que dispone, su participación es a nivel de las ideas rectoras, en la priorización de los objetivos institucionales y, en gran medida, en el establecimiento de las condiciones necesarias para el desarrollo de la organización. En función de ello tiene un nivel de impacto estratégico.
 DETALLE DE CLASES UBICADAS DENTRO DE ESTE ESTRATO
-SUBAUDITOR INTERNO
-Objetivo del trabajo: Comprometerse con la gestión sustantiva de la Institución en un departamento, mediante la estrecha coordinación con la dirección de este y la ejecución de actividades de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos y financieros para garantizar el apoyo requerido, en concordancia con las políticas institucionales y los planes anuales operativos de un departamento de la Asamblea Legislativa.
-Ubicación: Departamento de Auditoría.
-Actividades generales:
-Participar en el proceso de planificación de actividades de la Auditoría Interna, donde se analizan las fortalezas, oportunidades, debilidades y amenazas de la organización interna de la Asamblea Legislativa y del servicio que brinda, colabora en la elaboración del plan anual en que se define objetivos, metas y prioridades de auditoría.
-Contribuir a que la Auditoría Interna cumpla el objetivo primordial de prestar un servicio de asesoramiento constructivo y de protección a la administración para que alcance sus metas y objetivos con mayor eficiencia y eficacia, por medio del suministro de información, análisis, evaluaciones, comentarios y recomendaciones pertinentes.
-Participar en la coordinación y dar seguimiento a la realización de auditorías o estudios especiales de auditoría, de acuerdo con las normas técnicas de esta disciplina y otras disposiciones dictadas por la Contraloría General de la República y con las normas de auditoría generalmente aceptadas, en cualesquiera de las unidades administrativas de la Asamblea Legislativa en el momento que considere oportuno. Asimismo, contribuir con la Dirección Ejecutiva en evaluar el cumplimiento de las leyes, los reglamentos y la normativa que rige las funciones de la Asamblea Legislativa.
-Participar mediante el apoyo técnico y profesional en el desarrollo de los estudios y la comunicación formal de resultados. Participar en la evaluación regular de los sistemas de control interno en relación con los aspectos contables, financieros y administrativos, a fin de determinar su cumplimiento, suficiencia y validez, mediante las revisiones posteriores que han de realizar los profesionales de la dependencia.
-Promover y coordinar la revisión de sistemas de control interno con los jerarcas de las unidades auditadas, en cuyo caso debe comunicar el objetivo del estudio, presentar el equipo de auditores que van a realizar el trabajo; brindar asesoramiento a dicho equipo; posteriormente, proceder a comentar los resultados de la auditoría brindando asesoramiento constructivo y oportuno. En ese sentido también acuerda con ellos las acciones sobre la viabilidad y cumplimiento de las recomendaciones.
-Coordinar y controlar la ejecución de estudios especiales de auditoría de alto grado de dificultad y de amplia trascendencia institucional, en cuyo caso asigna el estudio y revisa que el programa de trabajo se ajuste a los objetivos y alcances estipulados.
-Observar y cumplir las disposiciones legales reglamentarias y la normativa que regula la labor de la Auditoría Interna; asimismo, cumplir las normas de confidencialidad y prohibiciones establecidas. Le corresponde evaluar las labores de auditoría por medio de la elaboración de informes mensuales sobre el avance del plan anual. Dar seguimiento al cumplimiento de las disposiciones de la Contraloría General de la República y de la Auditoría Interna.
-Colaborar con las funciones administrativas relativas al control de asistencia, vacaciones, control de activos, actualización de manuales de procedimientos y control de activos, actualización de manuales de procedimientos y control de archivo de gestión, entre otros. También, diseñar registros e instructivos que faciliten y permitan el control para una adecuada administración de los recursos. Definir los manuales de procedimientos para las principales labores rutinarias y de las funciones que por disposición legal debe atender la Auditoría Interna. Confeccionar el presupuesto anual de la Auditoría Interna.
-Mantener informado al auditor interno de los resultados obtenidos en su gestión.
-Velar por el uso adecuado, eficiente y efectivo de los recursos informáticos asignados a la Auditoría.
-Participar en las comisiones, grupos de trabajo y comités en los que el Auditor Interno designe.
-Sustituir al auditor interno en sus ausencias temporales, adquiriendo las potestades inherentes al cargo y, al mismo tiempo, los deberes y responsabilidades que ello conlleva.
-Asistir a reuniones, seminarios, conferencias, sesiones de trabajo y otras actividades de importancia técnica y política para la Institución dentro del país y fuera de él, participar y emitir criterios sobre los asuntos de su competencia que se planteen. Participar en programas y cursos de capacitación atinentes a sus labores.
-Ejecutar otras funciones relacionadas con el cargo.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Participa y apoya al auditor general en la coordinación, el control y la evaluación del trabajo del personal profesional, técnico y administrativo de la Auditoría Interna, en cuanto a la oportunidad, calidad, eficacia y eficiencia en el logro de objetivos y metas de los equipos de trabajo bajo su responsabilidad, así como mediante el análisis de los informes que presentan.
-Supervisión recibida: Las actividades se desarrollan con independencia dentro del marco de las disposiciones legales reglamentarias y técnicas que regulan las auditorías internas. Su labor es evaluada por el auditor general en cuanto al cumplimiento de planes de trabajo, metas y objetivos y por la calidad, consistencia y oportunidad de las recomendaciones.
-RESPONSABILIDAD
-Por actividades
-Es responsable, junto con el auditor general, de que la actividad de la Auditoría Interna de la Asamblea Legislativa se realice en forma oportuna, independiente y posterior, dentro de la organización, las operaciones contables, financieras, administrativas y de otra naturaleza como base para prestar un servicio constructivo y de protección a la administración; asimismo, debe velar por la calidad y oportunidad en la realización de sus actividades, por el cumplimiento de los cronogramas de trabajo, por la información confidencial que maneja y por las recomendaciones técnicas y profesionales que brinda por medio los informes.
-Por equipo, materiales y valores
-Es responsable por el adecuado empleo y mantenimiento del equipo y los materiales que se le asignan para el cumplimiento de sus actividades.
-Por relaciones de trabajo
-La actividad origina relaciones constantes con superiores, diputados, subalternos, funcionarios de instituciones públicas y de empresas privadas y del público en general, las cuales deben ser atendidas con tacto y discreción.
-CONDICIONES DE TRABAJO
-El trabajo se desarrolla generalmente en condiciones ambientales propias de una oficina, con mobiliario, equipo y materiales adecuadas para el ejercicio de su cargo.
-CONSECUENCIAS DEL ERROR
-Los errores que se cometan en la ejecución de las actividades de la Auditoría Interna pueden originar debilitamiento en los controles internos, lo cual podría provocar confusiones, atrasos de consideración y detrimento de la imagen institucional y en la prestación de los servicios que brinda la Asamblea Legislativa. Al brindar una recomendación inadecuada se puede inducir a error a la administración, con la responsabilidad disciplinaria, pecuniaria y penal, por lo cual el ocupante del puesto debe tener sumo cuidado en la ejecución de las actividades asignadas.
-CARACTERÍSTICAS PERSONALES
-Para el desempeño de los cargos ubicados en esta clase de puesto se requiere del ocupante capacidad de dirección y liderazgo, capacidad analítica y de síntesis, razonamiento práctico, autocontrol, discreción y lealtad institucional, capacidad de organización, sentido de orden y administración del tiempo y de los recursos disponibles, capacidad para mantener buenas relaciones humanas, capacidad de respuesta, capacidad para atender varias tareas en forma simultánea, disponibilidad para trabajar sin límite de horario, afabilidad, cortesía y entusiasmo, capacidad para aceptar críticas, agudeza de criterio, rigor científico y rapidez de raciocinio y excelente presentación personal.
-Es de suma importancia poseer capacidad para trabajar en equipo, particularmente, en estrecha coordinación con el jerarca inmediato superior.
-CONOCIMIENTOS BÁSICOS
-Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
-Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, el trabajo en equipos, la planificación estratégica y la materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Formación profesional al nivel de licenciatura o título superior en la carrera de Administración de Negocios con énfasis contables o en Contaduría Pública.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de cinco años en labores relacionadas con el cargo a nivel de licenciatura desarrollada en la Asamblea Legislativa o experiencia mínima de seis años en labores relacionadas con el área de actividad, a nivel de licenciatura.
-Requisito legal: Incorporación al colegio respectivo.
-SUBDIRECTOR DE DEPARTAMENTO
-Objetivo del trabajo: Participar dinámicamente y comprometerse con la definición de las políticas, las estrategias, los objetivos, los valores, la misión y la visión institucionales, a partir de la gestión sustantiva de un departamento. Garantizar, mediante la estrecha coordinación con la dirección del departamento y la ejecución de actividades de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos y financieros el apoyo y la efectividad requeridos, en concordancia con las políticas institucionales y los planes anuales operativos de un departamento de la Asamblea Legislativa.
-Ubicación: En esta clase se ubican los puestos de subdirector de departamento.
-Actividades generales:
-Participar, por delegación del director de departamento en la ejecución de las tareas propias del departamento, tendientes a cumplir los objetivos de la Institución, en la elaboración de planes y programas de trabajo para cumplir las disposiciones emitidas por los niveles superiores.
-Comprometerse junto con la dirección del departamento en la ejecución de funciones correspondientes a la organización departamental de acuerdo con la definición establecida junto con el mismo director para cada caso particular. En la supervisión de personal, brindar el seguimiento adecuado de los trabajos asignados.
-Brindar asistencia técnica y profesional al director departamental y sustituirlo durante las ausencias temporales, ya sea por permiso o vacaciones; además, brindar asesoramiento a los niveles superiores en materia propia de su especialidad, cuando así se le requiera.
-Participar en reuniones, seminarios, charlas y brindar capacitación cuando las necesidades del servicio lo demanden.
-Colaborar con las actividades específicas, según corresponda para cada departamento.
-Realizar otras tareas compatibles con la preparación y el nivel del cargo por delegación del director o superiores jerárquicos.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Ejerce supervisión sobre personal profesional técnico y asistencial de acuerdo con la división en los procesos de trabajo establecidos.
-Supervisión recibida: Por la naturaleza del puesto, trabaja en estrecha coordinación con el director departamental, a quien debe sustituir durante sus ausencias, por lo que su labor es evaluada constantemente con base en el desarrollo y avance de los programas diseñados para el departamento y con base en los resultados obtenidos.
-Se desempeña con amplia independencia técnica profesional y administrativa, guiado por las políticas establecidas por el director departamental, las normas que establecen su disciplina y los indicadores de carácter general emanados por los órganos superiores.
-RESPONSABILIDAD
-Por actividades
-Es responsable por delegación de la dirección departamental de desarrollar estrategias para el cumplimiento del plan anual operativo en áreas específicas de actividad.
-Por equipo, materiales y valores
-Es responsable, junto con el director de departamento, por el adecuado uso y mantenimiento del equipo, el mobiliario y los materiales asignados a su departamento.
-Por relaciones de trabajo
-El puesto demanda el establecimiento de relaciones de trabajo asertivas y respetuosas para el buen funcionamiento de la Institución. Se relaciona constantemente con los altos jerarcas de la Institución y con sus colaboradores en general; en el ámbito externo, las relaciones se dan con representantes de organismos y empresas nacionales e internacionales y con personeros de instituciones públicas y usuarios de la Asamblea Legislativa.
-CONDICIONES DE TRABAJO
-El desarrollo de las actividades asignadas a esta clase de puesto exige el esfuerzo mental para resolver y atender las diversas situaciones que se originan de la toma de decisiones, o bien, de la normativa que regula la actividad, lo cual obliga a estar actualizando conocimientos y jurisprudencia propios de la actividad. Le corresponde sustituir al director del departamento en sus ausencias.
-Debe observar, en forma estricta, las condiciones de seguridad e higiene vigentes. Puede estar expuesto a afrontar situaciones que puedan poner en peligro su integridad física y la de los demás.
-Esta clase de puesto, debido a su naturaleza de funciones, exige que la jornada de trabajo sea sin límite dependiendo de las actividades institucionales y, en ocasiones, trasladarse a diferentes lugares del país en caso de actividades especiales de los legisladores.
-CONSECUENCIAS DEL ERROR
-Los errores que puedan cometerse podrían causar atrasos y confusiones que generarían implicaciones de tipo legal con consecuencias para el desarrollo normal de los diferentes procesos y actividades, y con ello la imagen institucional y la misión que la orienta.
-CARACTERÍSTICAS PERSONALES
-Para el desempeño de los cargos ubicados en esta clase de puesto se requiere del ocupante capacidad de dirección y liderazgo, capacidad analítica y de síntesis, razonamiento práctico, autocontrol, discreción y lealtad institucional, capacidad de organización, sentido de orden y administración del tiempo y de los recursos disponibles, capacidad para mantener buenas relaciones humanas, capacidad de respuesta, capacidad para atender varias tareas en forma simultánea, disponibilidad para trabajar sin límite de horario, afabilidad, cortesía y entusiasmo, capacidad para aceptar críticas, agudeza de criterio, rigor científico y rapidez de raciocinio y excelente presentación personal.
-Es de suma importancia poseer capacidad para trabajar en equipo y particularmente en estrecha coordinación con el jerarca inmediato superior.
-CONOCIMIENTOS BÁSICOS
-Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
-Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo de personal, el trabajo en equipo, la planificación estratégica y materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de cinco años en labores relacionadas con el cargo a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de seis años en labores relacionadas con el área de actividad, a nivel de licenciatura.
-Requisito legal:
-Incorporación al colegio respectivo.
+(*)SUBAUDITOR INTERNO
+(*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
+(*) SUBDIRECTOR DE DEPARTAMENTO
+(*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
+.
 MÉDICO JEFE (G5)
-Objetivo del trabajo: Dirección, coordinación, supervisión y ejecución de labores técnicas, científicas y administrativas del Departamento de Servicios de Salud de la Asamblea Legislativa.
-Ubicación: Departamento de Servicios de Salud.
-Actividades generales:
-Organizar, dirigir, coordinar y supervisar los programas de salud del Poder Legislativo.
-Proponer y ejecutar las políticas, objetivos y programas de trabajo en diferentes áreas de la medicina (microbiología, sicología, trabajo social, salud ocupacional y rehabilitación, entre otras).
-Diseñar, dirigir y supervisar estudios, proyectos e investigaciones en diferentes campos del quehacer profesional en el área de la salud.
-Instruir y supervisar la labor realizada por personal profesional y técnico sobre prácticas y normas de trabajo, tanto en el campo administrativo como profesional.
-Realizar exámenes médicos al personal que ingresa a la institución, al que se pensiona y controlar sus enfermedades. Brindar consulta médica al personal de la Asamblea Legislativa, a diputados y a familiares, mediante los enfoques preventivo y curativo.
-Efectuar actividades de promoción de la salud y prevención de enfermedades. Coordinar, con otras instituciones, actividades en forma tal que se brinde un mejor servicio a los usuarios de los servicios de salud.
-Supervisar la preparación de informes y documentos y determinar las necesidades de materiales, recursos humanos y financieros.
-Emitir políticas, directrices, lineamientos y revisar los procedimientos que se aplican en el Departamento de Servicios de Salud.
-Presentar, anualmente, el plan operacional del Departamento, incluyendo el proyecto de presupuesto y cronogramas de su aplicación.
-Participar en reuniones de alto nivel para la coordinación de los planes de trabajo de la Institución, así como integrar comisiones para organizar y dirigir programas y actividades.
-Autorizar la adquisición de bienes y velar por su correcto empleo. Brindar tratamiento, control y seguimiento de casos bajo su cuidado, así como autorizar referencias a otras instituciones de salud cuando la situación lo amerita.
-Asistir a reuniones, seminarios y otras actividades. Ejecutar otras labores propias del cargo.
-CONDICIONES ORGANIZACIONALES Y AMBIENTALES
-Supervisión ejercida: Le corresponde organizar, asignar y supervisar las labores de personal administrativo, profesional y técnico, es responsable por el cumplimiento de las actividades asignadas a ellos y por el logro de objetivos.
-Supervisión recibida: Trabaja con independencia, siguiendo las políticas y los procedimientos establecidos tanto por las leyes como por las directrices institucionales. Su labor es evaluada mediante la apreciación de los resultados obtenidos, tanto a nivel administrativo como del área de salud.
-RESPONSABILIDAD
-Por actividades
-Debe aplicar principios y técnicas propias de su profesión para resolver apropiadamente diversas situaciones, organizando, coordinando y dirigiendo las distintas actividades.
-Por equipo y materiales
-Debe responsabilizarse por el adecuado empleo y mantenimiento del equipo, instrumental y material que dispone la dependencia a su cargo para cumplir sus objetivos.
-Por relaciones de trabajo
-Mantiene relaciones constantes con superiores, subalternos, funcionarios de instituciones públicas y privadas y público en general, las cuales deben ser atendidas con ética profesional, sensibilidad, tacto y discreción.
-CONDICIONES DE TRABAJO
-Ocasionalmente, le corresponderá laborar fuera de la jornada ordinaria ante situaciones de emergencia. Debe someterse a los programas de capacitación requeridos para el desempeño del puesto.
-CONSECUENCIA DEL ERROR
-Los errores que puedan cometerse pueden originar serios problemas que atenten contra la salud de los pacientes y los usuarios de los servicios que se brindan, incluso pueden originarse daños irreversibles por lo que las actividades deben ser realizadas con cuidado y precisión.
-CARACTERÍSTICAS PERSONALES
-Capacidad analítica y organizativa. Capacidad para organizar y dirigir el trabajo de personal subalterno. Habilidad para resolver situaciones imprevistas e iniciativa para alcanzar las metas y los objetivos propuestos mediante la negociación o la programación adecuada de las actividades. Conocimientos de su profesión, especialmente de los últimos avances y logros en ella. Discreción y habilidad para tratar con todo tipo de usuarios, funcionarios y público en general.
-CONOCIMIENTOS BÁSICOS
-Paquetes computacionales. Actualización en su especialidad.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Médico especialista en Medicina Interna.
-Seis años de experiencia en labores relacionadas con el cargo.
-Cuatro años de experiencia en la dirección y supervisión de personal.
-Requisito legal: Incorporado al colegio profesional respectivo.
+(*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 AUDITOR INTERNO (según lineamientos girados por la Contraloría General de la República- L-I-2003-CO-DDI)
 NATURALEZA DEL PUESTO
 Planear, organizar, dirigir, supervisar, coordinar y controlar la ejecución de las actividades propias de la Auditoría Interna y cumplir las demás funciones establecidas en el Reglamento de auditoría y, en general, en la normativa vigente.
