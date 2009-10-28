@@ -1,0 +1,1 @@
+Artículo 23.—Cuando alguno de los miembros del Consejo desee que su opinión o su voto consten literalmente en el acta, lo solicitará así expresamente a la Secretaria de Actas en la misma sesión, para que ésta lo reproduzca en el acta correspondiente.

@@ -1,0 +1,1 @@
+Artículo 9º—Si existen asuntos urgentes en agenda, de conformidad con lo dispuesto en el artículo 53.2 de la Ley General de la Administración Pública, se podrá sesionar con los miembros que se encuentren presentes, media hora después de la indicada para el inicio.

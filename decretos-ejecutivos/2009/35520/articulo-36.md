@@ -1,0 +1,1 @@
+Artículo 36.—Las actas, una vez aprobadas, deberán transcribirse de inmediato al Libro. El Presidente o quien presida la sesión y Secretario del Consejo Técnico, siempre que hayan asistido a la sesión correspondiente, deberán estampar su firma al pie de cada Acta.

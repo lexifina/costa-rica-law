@@ -1,0 +1,1 @@
+Artículo 39.—Corresponderá a la Auditoría verificar, con la frecuencia que estime conveniente, que las firmas al pie de cada acta correspondan a los miembros del Consejo Técnico, Director General y Asesor Legal, asistentes a la respectiva reunión, y que han sido observadas las demás disposiciones de este Reglamento.

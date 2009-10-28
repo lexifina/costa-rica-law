@@ -1,0 +1,3 @@
+CAPITULO IV
+De la asistencia y participación en sesiones del Consejo Técnico
+Artículo 11.—El Director General, el Asesor Legal y la Secretaria de Actas, asistirán obligatoriamente a las sesiones del Consejo Técnico, en las cuales tendrán voz pero no voto. Podrán sin embargo, cuando lo consideren necesario, hacer constar en las actas respectivas sus opiniones sobre los asuntos que se debatan. Podrá asistir también otro personal del INCIENSA u otras personas invitadas por uno o varios miembros del Consejo Técnico. También podrán asistir, previa solicitud dirigida al Consejo Técnico, el o los funcionarios interesados.

@@ -1,0 +1,1 @@
+Artículo 25.—En la sesión que se conozca el acta, se hará, si procede, las enmiendas, adiciones y correcciones que los miembros del Consejo autoricen y cumplido este trámite, quedará convertida automáticamente en el acta oficial aprobada.

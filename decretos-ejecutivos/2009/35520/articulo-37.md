@@ -1,0 +1,1 @@
+Artículo 37.—Cuando por alguna circunstancia imprevisible, una página del Libro de Actas deba ser sustituida por deterioro o extravío, tal asunto será puesto en conocimiento del Consejo Técnico. La Secretaria de Actas, solicitará simultáneamente la sustitución de la página a la Auditoría Interna del INCIENSA, conforme a los trámites establecidos para estos casos.
