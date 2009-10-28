@@ -32,3 +32,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 17 | 2007-02-08 | Decreto Ejecutivo 33600 (2007-02-08) |
 | 18 | 2008-11-18 | Decreto Ejecutivo 35242 (2008-11-18) |
 | 19 | 2009-09-25 | Directriz 7 (2009-09-25) |
+| 20 | 2009-10-28 | Decreto Ejecutivo 35604 (2009-10-28) |
