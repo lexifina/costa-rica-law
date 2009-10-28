@@ -1,0 +1,1 @@
+Artículo 6º—Área de Mejoramiento de la Calidad de los Servicios Municipales. Controlará e impulsará el mejoramiento de la calidad de los servicios del gobierno local. Asimismo, propiciará una amplia participación de los ciudadanos en el planteamiento de ideas y proyectos que tiendan a mejorar su calidad de vida.

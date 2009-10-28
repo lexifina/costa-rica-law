@@ -1,0 +1,1 @@
+Artículo 9º—Medición de la Percepción y satisfacción de los usuarios y usuarias: Elaborar y aplicar entre los usuarios de los servicios instrumentos mediciones de percepción y satisfacción para conocer la opinión de los clientes sobre la calidad de los servicios ofrecidos por este Gobierno Local.

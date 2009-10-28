@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo General. La Contraloría de Servicios tendrá como objetivo general velar que la prestación de los servicios públicos, cumplan con el mejoramiento de la calidad de vida de los y las habitantes de San José y con las normas legales definidas al respecto.

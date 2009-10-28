@@ -1,0 +1,1 @@
+Artículo 19.—Denuncia por actos de Corrupción. Cuando se denuncia un posible acto de corrupción la Contraloría de Servicios será competente para solicitar a las Unidades Administrativas la prueba para evacuar la duda ciudadana.
