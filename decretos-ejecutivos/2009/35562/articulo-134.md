@@ -1,0 +1,1 @@
+Artículo 134.—Conciliación. Cuando la naturaleza del caso lo permita y no se presuma delito la falta cometida por el servidor, el órgano director podrá propiciar la conciliación, en cuyo caso deberá consignarse en el acta respectiva y firmarse por las partes.

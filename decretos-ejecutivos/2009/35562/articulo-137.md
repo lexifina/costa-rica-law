@@ -1,0 +1,1 @@
+Artículo 137.—Remisión del informe final al Jerarca. Una vez emitido el informe técnico del Órgano Director se le dará traslado de éste, al Jerarca, para que se proceda a emitir el acto administrativo final, el cual deberá producirse dentro del plazo que concede el numeral 261 de la Ley General de la Administración Pública.

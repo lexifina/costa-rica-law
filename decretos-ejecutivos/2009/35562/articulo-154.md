@@ -1,0 +1,1 @@
+Artículo 154.—Sanciones. De conformidad con lo dispuesto por el artículo 25 de la Ley Nº 7476, según la gravedad de la falta se impondrán las siguientes sanciones: la falta leve será sancionada con amonestación por escrito, la falta grave con la suspensión sin goce de salario de tres a quince días o el despido sin responsabilidad patronal.

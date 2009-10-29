@@ -1,0 +1,1 @@
+Artículo 142.—Normativa de aplicación supletoria en el procedimiento administrativo. En lo no previsto por el presente reglamento, se aplicará supletoriamente lo estipulado por la Ley General de la Administración Pública.

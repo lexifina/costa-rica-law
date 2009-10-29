@@ -1,0 +1,1 @@
+Artículo 40.—Documentación para participar en concursos internos. Los servidores interesados en participar en el concurso interno, están obligados a mantener actualizado su expediente personal. Caso contrario deberá presentar los documentos necesarios que permitan comprobar su idoneidad para el puesto de interés.

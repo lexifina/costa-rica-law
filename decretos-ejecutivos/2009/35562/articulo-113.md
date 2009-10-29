@@ -1,0 +1,4 @@
+Artículo 113.—De las faltas graves. Además de las faltas y sanciones correspondientes, contenidas en otros artículos del presente Reglamento, se considerarán faltas graves las infracciones a las disposiciones del artículo 11, incisos 1), 2), 3), 4), 6), 8), 10), 12), 17), 18), 19), 20), 21), 22), 23), 24), 25), 27), 28), 29), 32), 34), y 35); artículo 12, incisos 1), 2), 3), 4), 5), 6), 7), 8), 9), 11), 12), 13) 14), 15), 16), 17), 18), 19), 20), 21), 22), 23), 24), y 25); artículo 13, incisos 1), 3), 5), 7), 8),.9),.10), 11), 12), y 13); artículo 106 de este reglamento, las cuales se computarán en un lapso de tres meses y se sancionarán de la siguiente manera:
+Por una infracción, suspensión de uno hasta quince días hábiles.
+Por dos o más infracciones, despido sin responsabilidad patronal.
+Para efectos de reincidencia, estas faltas se computarán en un lapso de tres meses

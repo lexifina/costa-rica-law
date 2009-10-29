@@ -1,0 +1,1 @@
+Artículo 89.—Regulación de los subsidios y licencias por maternidad. Los subsidios y licencias por razón de maternidad se regularán por lo que establece el Estatuto de Servicio Civil, su Reglamento y el Código de Trabajo.

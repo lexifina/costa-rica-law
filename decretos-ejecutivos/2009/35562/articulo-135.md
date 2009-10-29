@@ -1,0 +1,1 @@
+Artículo 135.—Plazo para la emisión del informe final. Una vez concluida la comparecencia, el Órgano Director contará con un plazo de quince días hábiles, para redactar el informe final el cual deberá ser concreto, haciendo una descripción de los hechos investigados, una relación de los mismos, un análisis jurídico del cuadro fáctico y la recomendación.

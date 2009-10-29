@@ -1,0 +1,1 @@
+Artículo 149.—Regulación de abstención o recusación. En caso de que se den motivos de abstención o recusación se procederá conforme a las disposiciones del Título Segundo, Libro Segundo de la Ley General de la Administración Pública.

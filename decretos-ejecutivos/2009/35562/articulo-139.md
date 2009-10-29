@@ -1,0 +1,1 @@
+Artículo 139.—Notificación de lo resuelto. La Jefatura de Recursos Humanos notificará al servidor la resolución definitiva adoptada en razón del procedimiento administrativo disciplinario seguid en su contra.

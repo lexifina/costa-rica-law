@@ -1,0 +1,1 @@
+Artículo 118.—Demás sanciones. Las faltas no señaladas en este reglamento serán sancionadas conforme lo establece el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes conexas y supletorias.

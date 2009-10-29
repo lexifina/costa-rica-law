@@ -1,0 +1,1 @@
+Artículo 42.—Análisis ofertas. La Unidad de Recursos Humanos procederá a estudiar las ofertas presentadas con el propósito de verificar los requisitos previamente establecidos y desechar aquellas ofertas que no cumplan con lo fijado, previa comunicación al oferente de las razones legales o técnicas que sustentan la devolución o rechazo de la oferta.

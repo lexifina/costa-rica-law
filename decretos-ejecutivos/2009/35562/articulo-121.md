@@ -1,0 +1,1 @@
+Artículo 121.—Órgano director del procedimiento administrativo disciplinario. El órgano director encargado de tramitar el proceso administrativo disciplinario será de nombramiento del Director Ejecutivo.

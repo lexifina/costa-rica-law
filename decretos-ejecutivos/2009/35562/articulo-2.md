@@ -1,0 +1,1 @@
+Artículo 2º—Obligatoriedad. Las normas, disposiciones y demás procedimientos establecidos en este reglamento, así como las políticas que se orientan de los mismos son de acatamiento obligatorio en todas las acciones que se vinculen con las relaciones de servicio, a efecto de que las mismas se lleven a cabo dentro de la armonía requerida y la mayor eficiencia posible.

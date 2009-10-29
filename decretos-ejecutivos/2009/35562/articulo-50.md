@@ -1,0 +1,1 @@
+Artículo 50.—Documentación aportada para concurso por los participantes. Toda la documentación que se aporte para cada concurso, después de ser registrada pasa a ser propiedad del Consejo de Transporte Público. El candidato se hace responsable del contenido y de la autenticidad y veracidad de los documentos aportados.

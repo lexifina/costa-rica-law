@@ -1,0 +1,1 @@
+Artículo 166.—Capacitación en prevención de riesgos de trabajo. El Consejo de Transporte Público, por medio de Salud Ocupacional y de las Comisiones y Subcomisiones de Seguridad e Higiene, está en la obligación de instruir a los servidores en todo lo referente a la prevención de los riesgos del trabajo, según lo establecido por esa ley.

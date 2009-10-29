@@ -1,0 +1,1 @@
+Artículo 21.—Lactancia. Las servidoras del Consejo de Transporte Público podrán gozar de una hora diaria de lactancia al principio o final de la jornada, conforme a las disposiciones de los artículos 95, 96 y 97 del Código de Trabajo.

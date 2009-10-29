@@ -1,0 +1,1 @@
+Artículo 138.—Principios de observancia del Órgano Director del procedimiento administrativo. La actuación del Órgano Director deberá realizarse con arreglo a los principios de sana crítica, economía, simplicidad, celeridad, eficiencia, continuidad y equidad.

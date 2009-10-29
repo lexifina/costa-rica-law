@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Descanso semanal, días feriados, días de asueto
+Artículo 59.—De la jornada semanal acumulativa. Los servidores del Consejo de Transporte Público sujetos a jornada semanal acumulativa, disfrutarán de dos días fijos de descanso absoluto después de cada cinco días de trabajo continuo, excepto en aquellos casos que por la índole del servicio que prestan, deban sujetarse a un día de descanso absoluto luego de seis días de trabajo continuo. No obstante lo anterior, en casos muy calificados, tales descansos podrán ser otorgados en forma acumulativa mensual o quincenal con el fin de preservar los principios fundamentales del servicio público.

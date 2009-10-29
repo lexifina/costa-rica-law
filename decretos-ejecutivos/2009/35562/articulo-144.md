@@ -1,0 +1,5 @@
+Artículo 144.—Mecanismo de prevención. En cumplimiento de las disposiciones de la Ley N° 7476, el Consejo de Transporte Público con el apoyo de los órganos competentes de la Institución, dispondrá y ejecutará una política interna para prevenir, desalentar, evitar y sancionar las conductas de hostigamiento sexual tal y como lo define dicha ley en sus artículos 3º y 4º.
+Dentro de los mecanismos de prevención deberán ejecutarse acciones de divulgación y capacitación de los alcances de la ley que estará a cargo de las siguientes dependencias:
+144.1. Unidad de Recursos Humanos: deberá incorporar dentro de sus programas de inducción y asesoría a los funcionarios los aspectos concernientes al hostigamiento sexual.
+144.2. Unidad de Recursos Humanos: empleará todos los medios usuales de capacitación como charlas, métodos informativos, seminarios, etc. para que todos los funcionarios estén informados de sus deberes y derechos derivados de la Ley Nº 7476.
+El incumplimiento de esas funciones hará incurrir a los servidores indicados en responsabilidad, que será considerada falta grave.

@@ -1,0 +1,1 @@
+Artículo 165.—Definición de riesgos del trabajo. Constituyen riesgos del trabajo, los accidentes y enfermedades que ocurran a los servidores con ocasión o como consecuencia del trabajo que desempeñan en forma subordinada y remunerada, así como la reagravación que resulte como consecuencia directa, inmediata e ineludible de esos accidentes y enfermedades.

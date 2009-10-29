@@ -1,0 +1,1 @@
+Artículo 15.—Funcionarios encargados de advertir prohibición de fumado. Los superiores inmediatos serán los responsables de advertir a los funcionarios sobre la prohibición del fumado. El Consejo de Transporte Público deberá, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

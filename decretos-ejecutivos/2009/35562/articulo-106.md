@@ -1,0 +1,1 @@
+Artículo 106.—Plazo para realizar la calificación anual del desempeño de labores. Los jefes calificarán los servicios de sus colaboradores en la segunda quincena del mes de noviembre de cada año. Caso de no haber calificación, el servidor interesado podrá requerir a su jefe inmediato, las razones que le impidieron calificarlo.

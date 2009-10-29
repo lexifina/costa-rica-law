@@ -1,0 +1,2 @@
+Artículo 26.—Modificación de horario. El jefe inmediato, previa autorización de la Dirección Ejecutiva o a quién este delegue, podrá modificar transitoriamente los horarios establecidos en este Reglamento, cuando circunstancias especiales así lo exijan y no se cause grave perjuicio a los servidores y al servicio público.
+El cambio de horario deberá ser notificado a los servidores afectados con un mínimo de tres días de anticipación.

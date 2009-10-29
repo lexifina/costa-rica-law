@@ -1,0 +1,1 @@
+Artículo 123.—Inicio del procedimiento administrativo disciplinario. El proceso disciplinario podrá instruirse tanto de oficio como a petición de parte y se iniciará con el comunicado de “inicio de procedimiento” al servidor o servidores, que han de ser procesados.

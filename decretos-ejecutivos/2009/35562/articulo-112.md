@@ -1,0 +1,2 @@
+Artículo 112.—Faltas leves. Además de las contenidas en otros artículos del presente Reglamento, se considerarán faltas leves, las infracciones a las disposiciones de los artículos 11, incisos 7), 9), 11), 13), 14), 15), 16), 24), 28), 29), 31) y 33); artículo 12, inciso 11; artículo 13, incisos 2), 4) y 6) del presente Reglamento, las cuales se computarán en un lapso de tres meses y se sancionarán conforme con el artículo anterior.
+Para efectos de reincidencia, estas faltas se computarán en un lapso de tres meses.

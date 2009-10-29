@@ -1,0 +1,1 @@
+Artículo 98.—Sobre algunos beneficios que reciben los servidores. Los beneficios que reciben los servidores del Consejo de Transporte Público provenientes de Fondos Estatales para Garantías, Jubilaciones y Enfermedad, se considerarán parte de sus garantías laborales y derechos adquiridos.

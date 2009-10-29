@@ -1,0 +1,1 @@
+Artículo 95.—Fijación de salarios. Cada vez que haya una nueva fijación de salarios, la Jefatura de Recursos Humanos revisará los salarios, con el fin de que ningún servidor devengue menos del salario que le corresponde según su categoría.

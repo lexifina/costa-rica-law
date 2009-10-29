@@ -1,0 +1,1 @@
+Artículo 68.—De la autorización de las vacaciones. Las vacaciones del Director Ejecutivo y Auditor interno serán concedidas por la Junta Directiva; en los demás casos, serán autorizadas por el Director Ejecutivo o en quien este delegue.

@@ -1,0 +1,1 @@
+Artículo 5º—Movimientos de personal. Todo movimiento de personal, ingreso, ascenso, traslado, aumento de sueldo, vacaciones, permiso, incapacidad, suspensión, regreso al trabajo o cualquier otro que deba figurar en el respectivo expediente personal del servidor, será tramitado mediante la fórmula “Acción de Personal”, con la aprobación del funcionario debidamente autorizado.

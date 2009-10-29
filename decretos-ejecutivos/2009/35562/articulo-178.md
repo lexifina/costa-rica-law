@@ -1,0 +1,1 @@
+Artículo 178.—Observancia obligatoria del presente reglamento. Este reglamento será de conocimiento y observancia obligatoria de todos los servidores desde el día de su entrada en vigencia, para lo cual la Unidad de Recursos Humanos lo pondrá en un lugar visible para todos los funcionarios.

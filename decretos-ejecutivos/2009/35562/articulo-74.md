@@ -1,0 +1,1 @@
+Artículo 74.—Sobre el mal estado del reloj marcador de asistencia. Cuando no funcione el reloj marcador de asistencia a labores en alguno de los lugares de prestación de servicios, el Departamento Administrativo indicará la forma en que se llevará a cabo el control de asistencia y puntualidad.

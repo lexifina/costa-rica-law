@@ -1,0 +1,1 @@
+Artículo 146.—Solicitud de reubicación temporal. La servidora o servidor ofendida(o) podrá agregar a su denuncia la solicitud de reubicación temporal, teniendo la posibilidad de plantearla en cualquier estado del proceso, así como solicitar ayuda de profesionales médicos del Ministerio de Obras Públicas y Transportes, si considera que su salud mental y física ha sido afectada.

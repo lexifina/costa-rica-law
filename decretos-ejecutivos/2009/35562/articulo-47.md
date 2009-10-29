@@ -1,0 +1,1 @@
+Artículo 47.—Declaratoria del concurso. Transcurridos ocho días hábiles de concluido el concurso, la Unidad de Recursos Humanos someterá a conocimiento de la Comisión Institucional de Ascensos el resultado, a efecto de hacer la declaratoria del concurso.

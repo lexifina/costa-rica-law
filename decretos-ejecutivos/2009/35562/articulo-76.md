@@ -1,0 +1,5 @@
+Artículo 76.—Requisitos para la solicitud de exención de marca de asistencia y suspensión de dicha exoneración. La exención del registro de marca de asistencia en los casos y preceptos anteriores, se considera como beneficio y podrá otorgarse al servidor siempre y cuando:
+76.1. Lo solicite por escrito con recomendación de su jefe inmediato.
+76.2. No haya sido sancionado por irregularidades en la asistencia en los últimos dos años.
+76.3. Sus evaluaciones de servicio durante los últimos tres años no sean inferiores a “Muy Bueno”.
+La concesión de dicho beneficio de ninguna manera faculta para una asistencia irregular y los responsables de las dependencias, programas o equipos de trabajo, dispondrán los mecanismos de verificación correspondientes. Este beneficio podría ser suspendido o revocado por la Administración, por asistencia irregular o porque la evaluación de sus servicios sea inferior a “muy bueno”. Una vez revocado el beneficio, el servidor podría solicitarlo de nuevo una vez transcurrido un año desde la suspensión del beneficio, siempre que el servidor cumpla con los requisitos establecidos.

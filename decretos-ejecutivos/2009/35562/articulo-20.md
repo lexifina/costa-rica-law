@@ -1,0 +1,1 @@
+Artículo 20.—Establecimiento de lugar para alimentación. El Consejo de Transporte Público deberá acondicionar un local adecuado para que los servidores puedan tomar los alimentos y bebidas durante los recesos.

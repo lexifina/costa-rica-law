@@ -1,0 +1,1 @@
+Artículo 141.—Regulación de abstención y recusación. En los casos de abstención y recusación deberán regirse según lo dispuesto por el Título II Capítulo Único del Libro Segundo de la Ley General de la Administración Pública, artículos 49 y 53 del Código Procesal Civil.

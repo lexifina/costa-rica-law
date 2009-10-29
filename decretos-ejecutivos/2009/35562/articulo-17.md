@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Derechos e incentivos para los servidores
+Artículo 17.—Sobre los derechos de los funcionarios. Los servidores regulares del Consejo de Transporte Público gozarán de todos los derechos y prerrogativas incluidos en el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo, sus leyes conexas vigentes, este reglamento y normas generales que dicte la Junta Directiva del Consejo de Transporte Público.
+Los servidores interinos u ocasionales gozarán como mínimo de las garantías sociales señaladas por ley. Asimismo podrán disfrutar del tiempo necesario para asistir a sus citas médicas, así como a las de sus hijos menores de edad, a las instituciones de seguridad social del Estado y otros centros médicos de carácter privado, debiendo presentar al regreso a su trabajo, el comprobante de asistencia médica que emita la entidad de que se trate.

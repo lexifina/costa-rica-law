@@ -1,0 +1,1 @@
+Artículo 101.—Del auxilio de cesantía. El pago de cesantía se hará conforme a lo dispuesto en los artículos 29, 30 y 85 del Código de Trabajo, de acuerdo a las reformas incorporadas por la Ley de Protección al Trabajador, Nº 7983, publicada en el Alcance Nº 11 a la Gaceta Nº 35 del Viernes 18 de Febrero del 2000.

@@ -1,0 +1,4 @@
+Artículo 18.—Capacitación. Los servidores del Consejo de Transporte Público, tendrán derecho a que se les brinde capacitación y desarrollo complementarios que requieran, mediante cursos, seminarios, becas y similares que promueva el Consejo de Transporte Público.
+En el eventual caso de que los servidores no aprueben o abandonen las actividades de capacitación sin causa justificada, tendrán la obligación de reintegrar los costos en que incurrió el Consejo de Transporte Publico.
+El Consejo de Transporte Público facilitará la participación de los servidores en programas y actividades de capacitación, cuando sufran discapacidad en razón del trabajo que realizan.
+Los funcionarios que disfruten de cualquier tipo de beca de estudio, deberán acreditar ante la Unidad de Recursos Humanos el fiel cumplimiento de los resultados esperados mediante la presentación de certificado o título original obtenido, y de un informe de resultados.

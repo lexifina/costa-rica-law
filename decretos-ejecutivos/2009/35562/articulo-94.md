@@ -1,0 +1,1 @@
+Artículo 94.—Depósito del salario. El pago de salarios se depositará quincenalmente, en las fechas que señala el Departamento Financiero mediante depósito electrónico en los bancos del Sistema Bancario Nacional, según señale el respectivo servidor a la Unidad de Tesorería.

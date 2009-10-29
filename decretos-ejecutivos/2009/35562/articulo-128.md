@@ -1,0 +1,1 @@
+Artículo 128.—Asistencia a la comparecencia. A la comparecencia oral y privada, solamente podrán asistir las partes y sus abogados, así como los testigos que hubieren, de conformidad con el artículo 310 de la Ley General de la Administración Pública, Nº 6227 y sus reformas.

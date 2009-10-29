@@ -1,0 +1,1 @@
+Artículo 72.—Del registro de asistencia defectuoso o confuso. Salvo desperfectos del reloj marcador o del sistema que se utilice, según el caso, el registro defectuoso o confuso de la asistencia a labores deberá ser justificada por el jefe inmediato, para los efectos legales correspondientes.

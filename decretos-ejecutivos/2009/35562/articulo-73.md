@@ -1,0 +1,7 @@
+Artículo 73.—De la omisión del registro de asistencia. Salvo los casos de excepción previstos en este Reglamento, en los casos en que la jefatura inmediata asigne labores que se realicen en regiones alejadas del sitio donde se marca, el superior inmediato deberá presentar las debidas justificaciones en el plazo de dos días hábiles a partir del momento en que se haya producido la omisión, a cualquiera de las horas establecidas en el artículo 25 de este Reglamento. De no ser así se presumirá la inasistencia a la correspondiente jornada o fracción. La jefatura inmediata podrá justificar una sola omisión, con excepción de giras previamente programadas durante el mes calendario, lo cual deberá ser valorado por la Unidad de Recursos Humanos.
+En aquellos casos en los que no sean justificables las omisiones del registro de asistencia se procederá a la aplicación de sanciones disciplinarias con base en las siguientes causales:
+a) Media jornada conlleva amonestación escrita.
+b) Dos medias jornadas alternas conlleva la suspensión sin goce de salario del servidor por tres días.
+c) Tres medias jornadas alternas, implica suspensión sin goce de salario del servidor por seis días.
+d) Mas de tres medias jornadas, conlleva el despido con causa justificada por parte de la administración.
+Para todos los tiempos de registro, quedan excluidos de la obligación de marcar tarjeta de control de asistencia únicamente el Director Ejecutivo, el Auditor Interno, los Directores y Jefes de Departamento.

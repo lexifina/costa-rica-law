@@ -1,0 +1,2 @@
+Artículo 125.—Comparecencia oral y privada. El procedimiento administrativo se tramitará mediante una sola comparecencia oral y privada, la cual deberá realizarse normalmente en la sede del órgano director, y a la cual concurrirán las partes y los testigos.
+Cuando razones de oportunidad y economía lo demanden, el órgano director del procedimiento, podrá realizar la comparecencia en lugar distinto al de su sede, debiendo comunicar a las partes de tal hecho.

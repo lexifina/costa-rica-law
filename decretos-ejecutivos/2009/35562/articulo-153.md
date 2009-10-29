@@ -1,0 +1,1 @@
+Artículo 153.—Firmeza de la resolución final. Una vez firme la resolución final del procedimiento y en caso de que proceda la aplicación de sanciones disciplinarias el Director Ejecutivo pasará el expediente administrativo a la Unidad de Recursos Humanos para el trámite de aplicación de las sanciones.

@@ -1,0 +1,6 @@
+Artículo 22.—Derechos de los funcionarios. Los servidores tendrán derecho a:
+22.1. Que las medidas disciplinarias les sean aplicadas en igualdad de condiciones, previo cumplimiento del debido proceso constitucional.
+22.2. Recibir de sus jefaturas instrucciones claras y precisas acerca de sus labores y responsabilidades.
+22.3. Manifestar a sus superiores oralmente y por escrito cuando sea necesario, las opiniones relacionadas con el mejoramiento de las labores que desarrollan.
+22.4. Los jefes podrán conceder licencia hasta por una semana con goce de sueldo en los casos de matrimonio del servidor, el fallecimiento de cualquiera de sus padres, hijos, hermanos o cónyuge. También podrán conceder este derecho a aquellos servidores padres de hijos nacidos dentro o fuera del matrimonio. En este último caso solo cuando sean hijos reconocidos y en su función paternal (se amplia en el artículo 90 de este Reglamento).
+22.5. Licencia de hasta 90 días naturales en un mismo año, con goce de salario, en los casos de permisos de trabajo a que tienen derecho los funcionarios públicos que sean convocados a una selección nacional o para representar a Costa Rica en una competencia deportiva internacional, en las condiciones establecidas en los artículos 36 y 37 de la Ley Nº 7800 y lo dispuesto en el Decreto Ejecutivo Nº 31738-MCJD.

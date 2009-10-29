@@ -1,0 +1,1 @@
+Artículo 33.—Remuneración de labores fuera de jornada laboral. Toda labor que se ejecute fuera de los límites señalados en el artículo 25 de este reglamento o durante los días inhábiles, será considerada como extraordinaria y se remunerará en cada caso conforme con lo dispuesto por la Ley.

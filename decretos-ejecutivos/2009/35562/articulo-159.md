@@ -1,0 +1,1 @@
+Artículo 159.—Emisión de resolución final. Una vez dictada la resolución final por parte de la Dirección Ejecutiva deberá remitir dicha resolución a las instancias y dependencias para la aplicación económica de rigor. Es responsabilidad del servidor interesado efectuar los trámites del reclamo, correspondientes para su efectivo pago, en caso de corresponderle el monto adeudado.

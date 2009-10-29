@@ -1,0 +1,2 @@
+Artículo 108.—Funcionalidad y regulación de la aplicación de la calificación anual. La calificación anual servirá, en cuanto a reconocimiento para los buenos servidores, como factor a considerar para capacitación, ascensos, concesión de permisos, becas, reducciones forzosas de personal y otros.
+En su aplicación deberán observarse las reglas contenidas en los artículos 41, 42, 43 y 44 del Reglamento del Estatuto de Servicio Civil.

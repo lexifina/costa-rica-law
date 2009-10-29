@@ -1,0 +1,1 @@
+Artículo 32.—Autorización horas extras. La Dirección Ejecutiva podrá autorizar el trabajo durante horas extra sólo en situaciones excepcionales, cuando sea indispensable satisfacer necesidades esenciales del servicio público, gestionándose de previo la autorización del Director Ejecutivo o en quién él delegue.

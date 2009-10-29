@@ -1,0 +1,1 @@
+Artículo 48.—Elaboración de ternas. Reclutamiento y Selección de Personal elaborará las ternas en estricto orden de excelencia y las someterá a conocimiento y resolución de la jefatura de la dependencia donde se produjo la vacante, a efecto de que dentro de los tres días hábiles siguientes, escoja uno de los candidatos,

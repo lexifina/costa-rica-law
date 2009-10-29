@@ -1,0 +1,6 @@
+Artículo 124.—Contenido del inicio del procedimiento administrativo disciplinario y su notificación. La notificación de “inicio de procedimiento” es el acto mediante el cual se le comunica al servidor que se ha iniciado procedimiento administrativo disciplinario en su contra, debiendo cumplir las formalidades establecidas en el artículo 245 de la Ley General de la Administración Pública:
+124.1. Debe indicar los motivos por los cuales se le inicia el Procedimiento Administrativo Disciplinario.
+124.2. El nombre de él o lo servidores que tendrán a cargo la tramitación de la investigación (órgano director).
+124.3. El derecho que tiene al acceso irrestricto al expediente administrativo, así como la posibilidad de obtener fotocopia del mismo, bajo la advertencia que el costo de las mismas corren por su cuenta.
+124.4. Deberá comunicarse al servidor de los recursos administrativos con que cuenta para impugnar ese acto de inicio de procedimiento y el plazo para su interposición, así como ante quien debe interponerlos y quien los conocerá.
+124.5. Junto con el inicio de procedimiento, deberá enviarse en todos los casos, fotocopia de la denuncia que dio el impulso procesal a la investigación; caso de investigación de oficio bastará con describir los hechos ampliamente en la notificación inicial.

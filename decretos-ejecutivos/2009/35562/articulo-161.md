@@ -1,0 +1,1 @@
+Artículo 161.—Agotamiento de la vía administrativa. La Junta Directiva conocerá, las denegatorias de la Dirección Ejecutiva, únicamente cuando sea necesario el trámite de dar por agotada la vía administrativa.

@@ -1,0 +1,2 @@
+Artículo 168.—Denuncia de riesgo profesional ante el INS. Todo servidor que tenga a sus órdenes personal subordinado deberá tomar acciones preventivas para evitar riesgos del trabajo y dar aviso inmediato de cualquier riesgo profesional ocurrido a sus servidores dentro de las cuarenta y ocho horas siguientes al acaecimiento de éste al Instituto Nacional de Seguros, con copia a Salud Ocupacional.
+La omisión de tal aviso por parte del servidor correspondiente constituye falta grave, y lo hará responsable de los daños y perjuicios ocasionados por su omisión.

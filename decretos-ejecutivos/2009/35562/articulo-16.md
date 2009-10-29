@@ -1,0 +1,1 @@
+Artículo 16.—Establecimiento de áreas de fumado. El Consejo de Transporte Público deberá proporcionar áreas especiales para fumado de los servidores; las cuales serán informadas por los medios idóneos.

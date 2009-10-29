@@ -1,0 +1,1 @@
+Artículo 172.—Prescripción de sanción disciplinaria. Para los efectos de imponer la sanción disciplinaria correspondiente, el término de prescripción de un mes comenzará a correr una vez que la Unidad de Recursos Humanos haya sido comunicada de los hechos ocurridos.

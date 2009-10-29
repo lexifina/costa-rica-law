@@ -1,0 +1,1 @@
+Artículo 157.—Reclamos servidores amparados al Régimen de Servicio Civil. Los servidores amparados por el Régimen del Servicio Civil presentarán sus reclamos conforme con los artículos 88 y 89 del Reglamento del Estatuto de Servicio Civil.
