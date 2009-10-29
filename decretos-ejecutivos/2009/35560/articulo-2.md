@@ -1,0 +1,1 @@
+Artículo 2º—En razón de esta declaratoria se insta a las instituciones públicas del país brindar dentro de su ámbito de competencia la colaboración que se les solicite para agilizar el proceso de reconstrucción de la Aduana de Peñas Blancas.
