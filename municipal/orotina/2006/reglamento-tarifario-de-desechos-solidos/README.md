@@ -14,3 +14,4 @@ Reglamento tarifario de desechos sólidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-14 | la propia norma |
+| 2 | 2009-10-29 | Reglamento municipal 290 (2009-10-29) |

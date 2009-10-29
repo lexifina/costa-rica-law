@@ -1,1 +1,1 @@
-Artículo 20.—Se toma como tarifa comercial 3, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 125.1 kilogramos y 250 kilogramos. En la tarifa comercial 3 el factor generación es 3.
+Artículo 20.—(Derogado mediante sesión N° 290 del 29 de octubre del 2009)

@@ -1,3 +1,4 @@
 CAPÍTULO V
 Factores de ponderación
-Artículo 14.—Se establece como promedio de habitantes por unidad habitacional en el cantón de Orotina de 15,705 personas (Dato tomado de los resultados generales del censo nacional de población y vivienda del 2000).
+Artículo 14.—Se establece como el número de habitantes del cantón de Orotina, el dato que sea oficialmente establecido por parte del Instituto Nacional de Estadísticas y Censo (INEC), según el último censo que sea celebrado.
+(Así reformado mediante sesión N° 290 del 29 de octubre del 2009)

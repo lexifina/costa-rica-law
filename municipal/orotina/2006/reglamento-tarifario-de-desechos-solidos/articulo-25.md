@@ -1,1 +1,2 @@
-Artículo 25.—La municipalidad podrá realizar un estudio específico para todo usuario que se considere que el factor de ponderación que se le está aplicando no está de acuerdo a la cantidad de basura que está generando.
+Artículo 25.— La Municipalidad podrá realizar un estudio específico para todo usuario que considere que la categoría que se le está aplicando no es la adecuada para su caso en particular.
+(Así reformado mediante sesión N° 290 del 29 de octubre del 2009)

@@ -1,8 +1,2 @@
-Artículo 16.—Para el cobro del servicio de recolección por categoría para los distintos tipos comercios se establecen las siguientes categorías:
-Tarifa doméstica o residencial
-Tarifa Comercial 1
-Tarifa Comercial 2
-Tarifa Comercial 3
-Tarifa Comercial 4
-Tarifa Comercial 5
-Tarifa institucional 1
+Artículo 16.—Para el cobro de servicio de recolección por categoría para los distintos tipos de comercios se establecen las siguientes categorías: residencial, institucional, comercial 1, comercial 2, comercial 3, comercial 4 y comercial 5,
+(Así reformado mediante sesión N° 290 del 29 de octubre del 2009)
