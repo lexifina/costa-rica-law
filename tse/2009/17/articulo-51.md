@@ -1,0 +1,6 @@
+Artículo 51.—Comprobantes y sus requisitos. Para efectos de este Reglamento, se entenderá por comprobante todo documento emitido por el propio partido político para demostrar sus gastos. Los comprobantes sólo serán aceptados en casos muy calificados en los que, por la naturaleza de la erogación, resulte imposible la acreditación de gastos por medio de justificantes, en los términos del artículo anterior, en criterio del Tribunal Supremo de Elecciones. Los documentos comprobantes deberán cumplir los siguientes requisitos:
+1. Ser documento original, debidamente fechado, prenumerado de acuerdo a un consecutivo y con el membrete del partido.
+2. Consignar el nombre y firma de la persona que recibió el pago, su número de identificación, número de teléfono y dirección.
+3. Detallar claramente los bienes o servicios adquiridos por el partido y la fecha en que se adquirieron.
+4. Indicar el recibido conforme de los bienes o servicios por parte de un funcionario del partido autorizado quien consignará su nombre, firma y número de cédula.
+5. Señalar el código de la cuenta contable respectiva de conformidad con el Cuadro y el Manual de Cuentas dictado por el Tribunal Supremo de Elecciones, anexo a este Reglamento.

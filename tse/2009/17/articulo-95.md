@@ -1,0 +1,1 @@
+Artículo 95.—Derogatorias. Se deroga el “Reglamento sobre el Pago de los Gastos de los Partidos Políticos” y sus reformas, emitido por el Tribunal Supremo de Elecciones. Con la promulgación del nuevo Código Electoral se entiende implícitamente derogado el “Reglamento sobre el Pago de los Gastos de los Partidos Políticos” emitido por la Contraloría General de la República.

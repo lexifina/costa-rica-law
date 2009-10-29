@@ -1,0 +1,2 @@
+Artículo 56.—Gastos de representación. Comprende los gastos correspondientes a compromisos contraídos por las personas que integran el Comité Ejecutivo Superior del respectivo partido político, con el propósito de brindar atención oficial a dignatarios de otras naciones, altas autoridades costarricenses o representantes de organizaciones políticas nacionales o extranjeras.
+No se reconocerán dentro de esta categoría, ni como parte de ninguno de los rubros comprendidos en los gastos reconocibles, las erogaciones por concepto de bebidas alcohólicas.

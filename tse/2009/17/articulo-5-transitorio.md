@@ -1,0 +1,1 @@
+Transitorio V.—Para el proceso electoral del año 2010 se fija un quince por ciento (15%) como tasa de descuento, en razón del gasto financiero en que incurren los partidos políticos por colocar en el mercado sus bonos o certificados.

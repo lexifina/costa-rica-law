@@ -1,0 +1,1 @@
+Artículo 36.—Formas de rendir las garantías. Las garantías podrán rendirse mediante depósito de bono de garantía de parte de las entidades del Sistema Bancario Nacional, certificados de depósito a plazo, bonos del Estado y cheques certificados o de gerencia de bancos del Sistema Bancario Nacional.

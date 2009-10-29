@@ -1,0 +1,5 @@
+SECCIÓN VII
+Del financiamiento anticipado
+Artículo 34.—Determinación del monto del financiamiento anticipado. Una vez vencido el plazo para que los partidos políticos soliciten la inscripción de candidaturas, el Tribunal Supremo de Elecciones dictará la resolución en la que determine el monto por concepto de financiamiento anticipado que le corresponderá a cada partido político; para ello la Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos oportunamente le suministrará la información necesaria.
+La misma resolución ordenará retener el anticipo a aquellos partidos políticos que hayan incumplido su deber de hacer la publicación que ordena el artículo 135 del Código Electoral, hasta tanto subsanen dicha omisión.
+Los partidos que, al momento de dictarse esa resolución, no hayan fijado en sus estatutos los porcentajes de la contribución estatal que destinarán a cubrir sus gastos de capacitación y organización política, perderán integralmente su derecho a la contribución estatal en el periodo respectivo y, por ende, su derecho al anticipo.

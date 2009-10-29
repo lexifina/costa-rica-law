@@ -1,0 +1,5 @@
+Artículo 61.—Propaganda. Para efecto de que sean reconocidos los gastos en que incurran los partidos políticos por concepto de propaganda en medios de comunicación colectiva, deberán observarse las siguientes regulaciones:
+1. Las empresas contratadas para prestar servicios de propaganda, deberán estar debidamente inscritas en el Tribunal Supremo de Elecciones.
+2. En el caso de medios escritos, las agrupaciones políticas, en los justificantes que respaldan el gasto, deberán solicitar a los medios consignar la fecha y el número de página en que se hizo la publicación.
+3. Las facturas por transmisiones radiales o televisivas deberán consignar necesariamente el día, la fecha y la hora en que el servicio se prestó en cada oportunidad, así como el número de cuñas transmitidas, la duración y el costo de cada una.
+4. Los partidos políticos deberán confeccionar y presentar, junto con cada liquidación, un registro auxiliar para los gastos de propaganda por radio, televisión y prensa escrita, en los que se consigne la información que se detalla en los formularios 3.10, 3.11 y 3.12 del Anexo Nº 3 a este Reglamento.

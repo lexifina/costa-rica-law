@@ -1,0 +1,4 @@
+SECCIÓN III
+De la cesión del derecho de contribución estatal
+Artículo 22.—Derecho y descuento financiero. Los partidos políticos podrán ceder, total o parcialmente, su derecho eventual a la contribución estatal prevista en el artículo 96 constitucional, de acuerdo con las condiciones y formalidades establecidas en ese precepto y en el Código Electoral. Este mecanismo financiero no aplica tratándose de la contribución estatal para procesos electorales municipales.
+Para efectos de la cesión y en razón del gasto financiero en que incurren los partidos políticos al colocar en el mercado los certificados que emitan, el cual resulta de la diferencia entre el valor nominal del bono y el precio por el cual será vendido, el Tribunal Supremo de Elecciones, a más tardar doce meses antes de las elecciones, por resolución fundada fijará la tasa máxima de descuento que será reconocida por el Estado, la que en ningún caso podrá exceder de un 15 por ciento (15%).

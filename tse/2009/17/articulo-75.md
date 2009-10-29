@@ -1,0 +1,1 @@
+Artículo 75.—Comunicación a la Tesorería Nacional. El Tribunal Supremo de Elecciones, en el término de ocho días hábiles a partir de la resolución correspondiente, deberá comunicar lo resuelto a la Tesorería Nacional.

@@ -1,0 +1,1 @@
+Artículo 91.—Control bancario. Los bancos del Sistema Bancario Nacional, bajo su responsabilidad, tomarán las medidas necesarias de control para que, a las cuentas corrientes de los partidos políticos, no se acredite depósito alguno en forma anónima, sin identificar plena y fehacientemente al depositante o que provenga de personas extranjeras.

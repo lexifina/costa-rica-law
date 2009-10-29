@@ -1,0 +1,1 @@
+Artículo 21.—Intereses de los Bonos. Los Títulos Tasa Básica que se entreguen tendrán un plazo máximo de vigencia de dos años, y empezarán a generar intereses a partir del momento en que el Tribunal Supremo de Elecciones haga la determinación del aporte estatal que corresponde a cada uno de los partidos políticos. Los intereses se pagarán por trimestres vencidos.

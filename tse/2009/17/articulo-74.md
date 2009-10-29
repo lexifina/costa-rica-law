@@ -1,0 +1,1 @@
+Artículo 74.—Plazo para resolver. El Tribunal Supremo de Elecciones dispondrá de cinco días hábiles para resolver el recurso de reconsideración dispuesto en el artículo anterior y determinará lo que corresponda, en forma definitiva, sobre la aprobación o rechazo de los gastos liquidados por cada uno de los partidos políticos.

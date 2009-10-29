@@ -1,0 +1,1 @@
+Transitorio VI.—Para los procesos electorales del año 2010, la elaboración y presentación de los estados financieros podrán exceptuar el cumplimiento de las Normas Internacionales de Contabilidad (NIC) o las Normas Internacionales de Información Financiera (NIIF).

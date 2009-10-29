@@ -1,0 +1,1 @@
+Artículo 83.—Encargados de las finanzas de las precandidaturas. Cada precandidatura a cargos de elección popular debidamente inscrita, deberá nombrar una persona encargada de las finanzas ante la tesorería de cada partido. Ninguna persona no autorizada por la tesorería podrá realizar actividades de recaudación de fondos.

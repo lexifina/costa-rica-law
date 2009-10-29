@@ -1,0 +1,3 @@
+SECCIÓN VIII
+De las liquidaciones de gastos de los partidos políticos
+Artículo 41.—Liquidaciones de gastos. Las liquidaciones de gastos comprenden todas las erogaciones que un partido político haya realizado durante un período determinado, y que solicita le sean reconocidas con cargo a la contribución estatal. Forman parte integral de la liquidación, los comprobantes y justificantes necesarios para la demostración fehaciente de cada rubro, ordenados de conformidad con las disposiciones contables y la herramienta informática de que disponga el Departamento de Financiamiento de Partidos Políticos, así como la certificación e informes de un Contador Público Autorizado, en los términos en que lo estipula el Código Electoral.

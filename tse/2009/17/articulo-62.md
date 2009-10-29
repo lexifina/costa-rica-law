@@ -1,0 +1,5 @@
+Artículo 62.—Combustibles y lubricantes. Para el reconocimiento de gastos por concepto de combustibles y lubricantes, se procederá del siguiente modo:
+1. Deberá presentarse el respectivo justificante emitido por la entidad expendedora de combustibles y lubricantes, a nombre del partido, indicándose la fecha y el número de placa del vehículo de que se trate.
+2. En el caso de combustibles y lubricantes adquiridos mediante cupones emitidos por la Refinadora Costarricense de Petróleo (RECOPE), o tarjetas de débito para compras electrónicas a nombre del partido político emitidas por entidades del Sistema Bancario Nacional, el reconocimiento de estos gastos requerirá cumplir con los siguientes requisitos:
+2.1 En el caso de adquisición de cupones se requerirá la presentación de la respectiva factura emitida por RECOPE y certificación de esa entidad sobre el saldo que muestre el monto facturado.
+2.2 Justificante de pago de la compra electrónica efectuada mediante el uso de tarjeta emitido a nombre del partido.

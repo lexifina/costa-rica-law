@@ -1,0 +1,2 @@
+Artículo 84.—Subcuentas. Las contribuciones, donaciones o aportes líquidos que reciban las tendencias, deberán depositarse en la cuenta única del partido y éste las incluirá en sus informes al Tribunal Supremo de Elecciones; sin embargo, las tesorerías de los partidos crearán subcuentas a solicitud del encargado de finanzas de cada precandidatura, a las que las tesorerías de los partidos trasladarán las sumas recibidas para cada tendencia por parte del partido político.
+En las subcuentas solo se podrán depositar fondos de la cuenta única del partido.

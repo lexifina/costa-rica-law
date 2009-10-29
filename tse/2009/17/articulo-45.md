@@ -1,0 +1,3 @@
+Artículo 45.—Acta de recepción de las liquidaciones. La recepción de las liquidaciones se hará del siguiente modo:
+1. Cuando un partido político presente una liquidación ante el Departamento de Financiamiento de Partidos Políticos, éste, con la presencia de un representante autorizado de la agrupación política interesada, confeccionará una acta de recepción.
+2. El acta indicará la fecha de presentación y la constancia de haberse recibido la documentación de respaldo presentada por el partido político, de acuerdo con el listado elaborado por éste. Esa fecha será la que se tome en cuenta para determinar si su entrega se da en plazo o resulta extemporánea.

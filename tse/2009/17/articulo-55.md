@@ -1,0 +1,7 @@
+SECCIÓN XI
+De las regulaciones y requisitos especiales para
+el reconocimiento de algunos tipos de gastos
+Artículo 55.—Viáticos. Se reconocerán los gastos de viaje y de transporte dentro del país en que incurran los funcionarios y representantes de los partidos políticos, cuando tengan que trasladarse de su lugar ordinario de trabajo en cumplimiento de funciones propias de su cargo. Los montos reconocibles por estos conceptos se regirán conforme lo dispone el “Reglamento de gastos de viaje y de transporte para funcionarios públicos”, emitido por la Contraloría General de la República.
+Se entenderán como funcionarios y representantes de los partidos políticos, a los miembros del Comité Ejecutivo Superior y a las personas incluidas en la planilla de la agrupación política.
+Sin perjuicio de lo estipulado en los párrafos anteriores, con motivo de los procesos de constitución y renovación de las estructuras partidarias, se reconocerán además gastos por concepto de viáticos girados a los miembros y delegados de los tribunales electorales internos y a los delegados de las asambleas nacionales, provinciales y cantonales.
+Asimismo, durante el desarrollo de los procesos electorales, se reconocerán los gastos por concepto de viáticos a quien ocupe la candidatura a la Presidencia de la República, a quien ocupe la jefatura de campaña y a un equipo de trabajo conformado por un máximo de diez personas, quienes para tales efectos deberán estar acreditadas ante el Departamento de Financiamiento de Partidos Políticos.

@@ -1,0 +1,1 @@
+Artículo 5º—Libros no retirados. El Departamento de Financiamiento de Partidos Políticos mantendrá los libros a despacho durante los seis meses posteriores a su fecha de recibo; transcurrido el período y, de no ser retirados, procederá su destrucción, dejándose constancia del hecho.

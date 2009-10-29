@@ -1,0 +1,3 @@
+Artículo 40.—Procedimiento para ejecución de garantías. La Dirección del Registro Electoral y de Financiamiento de Partidos Políticos ejecutará las garantías bancarias rendidas por los partidos políticos, parcial o totalmente, hasta por el monto necesario para resarcir al Estado, de conformidad con las siguientes reglas:
+1) Totalmente, en el caso de que un partido político desista de participar en el proceso electoral o, si habiendo participado, no alcanzare el derecho a la contribución del Estado.
+2) Parcialmente y, en forma proporcional, en el caso en que el partido político obtuviere el derecho a la contribución del Estado pero ésta resulte insuficiente para cubrir el monto obtenido a título de financiamiento anticipado.

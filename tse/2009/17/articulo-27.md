@@ -1,0 +1,1 @@
+Artículo 27.—Constancia de emisión de certificados. Los partidos políticos, a solicitud del Departamento de Financiamiento de Partidos Políticos, emitirán constancia del monto, los nombres y números de cédula de los compradores de los certificados emitidos.

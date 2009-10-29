@@ -1,0 +1,1 @@
+Artículo 30.—Depósito de operaciones crediticias. El dinero obtenido en cada operación crediticia, deberá ser depositado íntegramente en la cuenta corriente del partido político y deberá conservarse copia de esos depósitos, así como de toda la documentación que respalde esos créditos.

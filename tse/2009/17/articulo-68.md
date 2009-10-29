@@ -1,0 +1,2 @@
+Artículo 68.—Pago mediante certificados. Los partidos políticos podrán cancelar gastos por concepto de adquisición de bienes o servicios, excepto salarios, mediante certificados de cesión de su eventual derecho a la contribución estatal, emitidos de conformidad con lo dispuesto por el Código Electoral y las regulaciones dictadas por el Tribunal Supremo de Elecciones.
+Cuando un partido político cancele bienes o servicios con certificados, deberá utilizar el formulario 3.15 incluido en el Anexo Nº 3 a este Reglamento.

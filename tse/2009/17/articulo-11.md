@@ -1,0 +1,3 @@
+SECCIÓN II
+De las auditorías a los partidos políticos
+Artículo 11.—De las auditorías. El Departamento de Financiamiento de Partidos Políticos, con fundamento en el seguimiento practicado a los partidos políticos sobre el manejo de sus finanzas, ya sea de oficio como resultado de estudios realizados o en razón de denuncia interpuesta al efecto, podrá proponer a la Dirección General del Registro Electoral que, mediante resolución fundada, ordene la realización de auditorías al o los partidos políticos que corresponda. Para tales fines, el tesorero del partido que será auditado deberá suministrar la información requerida por el Departamento de Financiamiento de Partidos Políticos, o por los profesionales o firmas contratadas con tal propósito.

@@ -1,0 +1,1 @@
+Artículo 10.—Revisión y actualización del manual de cuentas, libros, registros y formularios. Al Departamento de Financiamiento de Partidos Políticos le corresponderá la revisión y actualización del Cuadro y Manual de Cuentas, así como de los libros y registros y los formularios señalados en los anexos Nº 1, Nº 2 y Nº 3 de este Reglamento, cuando lo estime pertinente.

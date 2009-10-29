@@ -1,0 +1,3 @@
+SECCIÓN V
+De la distribución del aporte estatal
+Artículo 31.—Distribución del aporte estatal para las elecciones presidenciales y de diputados. Una vez que el Tribunal Supremo de Elecciones haga la declaratoria de la elección de diputados, el Departamento de Financiamiento de Partidos Políticos preparará el cálculo de la distribución del aporte estatal conforme el procedimiento establecido en el inciso 2) del artículo 96 de la Constitución Política y el artículo 90 del Código Electoral y, de inmediato, remitirá la estimación resultante al Tribunal, con el objeto de que dicte la resolución que fije la distribución del aporte estatal entre los partidos políticos que tengan derecho a él.

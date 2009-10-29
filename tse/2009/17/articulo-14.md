@@ -1,0 +1,1 @@
+Artículo 14.—Admisibilidad de las denuncias. Las denuncias serán examinadas dentro de los quince días hábiles después de recibidas, para lo cual se comunicará lo pertinente al denunciante que hubiese señalado lugar para notificaciones, informándole sobre la decisión adoptada.

@@ -1,0 +1,16 @@
+# Decreto TSE 17
+
+Reglamento sobre el Financiamiento de los Partidos Políticos
+
+- Tipo: Decreto TSE
+- Número: 17
+- Fecha: 2009-10-19
+- Ente emisor: Tribunal Supremo de Elecciones
+- Publicación: La Gaceta N° 210 del 2009-10-29
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66556&param2=78357&param3=1 (ficha 66556)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-10-29 | la propia norma |

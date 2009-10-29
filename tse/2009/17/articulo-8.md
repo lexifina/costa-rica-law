@@ -1,0 +1,1 @@
+Artículo 8º—Periodo contable. El período del cierre contable de las cuentas de ingresos y gastos, será de un año a partir del primero de julio de cada año. Con las salvedades que se establezcan en el presente Reglamento, cada período contable se deberá liquidar de manera independiente de los ejercicios anteriores y posteriores.

@@ -1,0 +1,1 @@
+Artículo 12.—Entes obligados a brindar información. La Dirección General de Tributación, las oficinas públicas y los bancos del Sistema Bancario Nacional, están obligados a suministrar información al Departamento de Financiamiento de Partidos Políticos, cuando éste lo requiera como parte de una investigación, y bajo los apercibimientos de ley.
