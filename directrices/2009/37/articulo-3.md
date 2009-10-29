@@ -1,0 +1,1 @@
+Artículo 3º—En coordinación con el MEIC y la Rectoría de Telecomunicaciones, en el plazo de 45 días hábiles, se pondrá en marcha una estrategia de simplificación de trámites que permita ordenar y agilizar las gestiones de todas las instituciones que participan en el sector de telecomunicaciones.
