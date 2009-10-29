@@ -1,0 +1,1 @@
+Artículo 14.—De la participación del Fiscal en las sesiones del Comité. El Fiscal debe asistir a todas las sesiones del Comité, con derecho a voz pero sin derecho a voto y propiciar en las sesiones el cumplimiento de los reglamentos y procedimientos.

@@ -1,0 +1,1 @@
+Artículo 24.—De los Recursos. Contra los acuerdos del Consejo Regional cabrá el recurso de revocatoria ante el mismo Consejo de conformidad con el artículo 47 del Reglamento a la Ley de Biodiversidad.

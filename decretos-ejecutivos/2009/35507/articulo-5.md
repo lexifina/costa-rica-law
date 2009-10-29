@@ -1,0 +1,3 @@
+Artículo 5º—Convocatoria a Asambleas. La Asamblea será convocada públicamente por el Director o Directora del Área de Conservación, quien realizará la correspondiente convocatoria pública por los medios de comunicación locales y por invitación directa.
+Correspondiendo en el mes de junio conocer los informes de Junta Directiva, de la Fiscalía y elegir a los miembros del Comité Ejecutivo, y extraordinariamente cuando sea necesario, para conocer informes y asuntos específicos que someterá a su conocimiento el Comité o la Fiscalía o el 25% de los Asambleístas.
+Las Asambleas serán presididas por el presidente del Consejo y en su ausencia por el vicepresidente (a). El quórum será del 51% de los acreditados a la hora fijada y con los presentes media hora después.

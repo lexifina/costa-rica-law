@@ -1,0 +1,1 @@
+Artículo 22.—De las normas supletorias. Para todo lo no establecido en este reglamento se aplicará lo estipulado por la Ley General de Administración Pública Nº 6227 del 02 de mayo de 1978, para los órganos colegiados.

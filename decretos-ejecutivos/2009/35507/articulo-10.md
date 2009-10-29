@@ -1,0 +1,1 @@
+Artículo 10.—Suplencia de representantes. Todos los representantes electos para el Comité Ejecutivo serán suplidos en su ausencia a las reuniones de Junta Directiva por el suplente correspondiente, quién cumplirá la función de cada propietario, independiente del puesto directivo titular, para lo cual deberán ser debidamente convocados.

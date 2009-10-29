@@ -1,0 +1,3 @@
+CAPÍTULO VIII.
+De las obligaciones y remoción de miembros
+Artículo 21.—Del Procedimiento. Los miembros de cada órgano del Consejo Regional tienen la obligación de cumplir con las funciones encomendadas, de lo contrario serán removidos del cargo. El fiscal o cualquier miembro del Comité Ejecutivo pueden recomendar al pleno del CORACT la aplicación de esta medida, previo estudio de cada caso. El acuerdo de CORACT para la remoción de alguno de sus miembros, deberá tomarse mediante mayoría calificada. Contra está resolución cabe el recurso de revocatoria, el cual debe ser planteado por el interesado ante el CORACT, en un plazo de tres días hábiles posteriores a la firmeza del acuerdo respectivo.
