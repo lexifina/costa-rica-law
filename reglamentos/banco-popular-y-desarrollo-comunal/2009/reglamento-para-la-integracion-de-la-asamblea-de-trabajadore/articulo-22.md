@@ -1,0 +1,1 @@
+Artículo 22.—Impugnación de las Asambleas de los Sectores. Salvo disposición en contrario, cualquier impugnación a los actos dictados por una asamblea de alguno de los Sectores indicados en los artículos 15, 16, y 17, serán resueltos por la misma asamblea de bloque de las organizaciones.

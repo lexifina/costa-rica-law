@@ -1,0 +1,1 @@
+Artículo 21.—Apoyo a la Comisión de Integración de la Asamblea de Trabajadores y Trabajadoras. El Banco dará el apoyo administrativo y logístico a la Comisión de Integración cuando ésta lo requiera para el proceso del censo y la convocatoria a las asambleas.

@@ -1,0 +1,1 @@
+Artículo 24.—Nombramientos de delegados y delegadas. Todos los delegados o delegadas propietarios o propietarias y suplentes a la Asamblea de Trabajadores y Trabajadoras serán designados por un periodo de cuatro años, excepto que se nombren con posterioridad al inicio del cuatrienio, en cuyo caso el nombramiento se hará para completar el periodo.

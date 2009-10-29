@@ -1,0 +1,1 @@
+Artículo 9º—Trabajadores que figuran en distintos Sectores. Los trabajadores o trabajadoras afiliados o afiliadas a más de un sector serán considerados por la Comisión de Integración en todos los Sectores en que figuren.
