@@ -1,4 +1,6 @@
+(Derogado)
 N° 34871- H
+(Este decreto fue Derogado por el artículo 6° del decreto ejecutivo N° 35605 del 30 de octubre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 Con fundamento en lo establecido en los artículos 140, incisos 3) y 18) de la Constitución Política, los artículos 25 y 28 de la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978 y el artículo 9° de la Ley N° 7088 del 30 de noviembre de 1987 y sus reformas.
