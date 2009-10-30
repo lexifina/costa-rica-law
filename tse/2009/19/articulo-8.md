@@ -1,0 +1,2 @@
+Artículo 8º—En el caso de los desfiles, la ruta de los mismos debe ser claramente especificada en la solicitud de permiso y llevarse a cabo con estricto apego a la misma, respetando las regulaciones de tránsito y las que ordene el Tribunal Supremo de Elecciones por medio de sus Delegados.
+Tratándose del simple tránsito de una caravana de vehículos con destino a otro lugar, no se requiere permiso de la autoridad local, pero deberán circular a velocidad reglamentaria, sin detenerse y acatando las indicaciones respecto de la ruta previamente señalada.

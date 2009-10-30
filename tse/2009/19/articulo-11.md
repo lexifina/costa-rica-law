@@ -1,0 +1,1 @@
+Artículo 11.—Con cada solicitud se formará un expediente separado, en el cual se consignarán las actuaciones que se lleven a cabo. El encargado del correspondiente programa electoral dictará las resoluciones respectivas, debiendo resolver a la mayor brevedad y de acuerdo con el orden de presentación.

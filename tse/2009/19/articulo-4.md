@@ -1,0 +1,2 @@
+Artículo 4º—Las solicitudes de permiso podrán ser presentadas ante el encargado del correspondiente programa electoral desde un mes antes a la fecha de la convocatoria a la elección que corresponda, y al menos con ocho días hábiles de antelación a la celebración del evento; aquellas que se presenten fuera de dichos plazos, serán rechazadas de plano.
+Las solicitudes deberán ser presentadas en las fórmulas que para tales efectos diseñe este Tribunal, o bien mediante los mecanismos o herramientas electrónicas que el Tribunal autorice de previo.

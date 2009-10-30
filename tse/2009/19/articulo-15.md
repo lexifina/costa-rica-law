@@ -1,0 +1,3 @@
+Artículo 15.—Contra la resolución que dictare el encargado del correspondiente programa electoral concediendo o denegando un permiso, cabrá el recurso de revocatoria y subsidiariamente el de apelación para ante el Tribunal Supremo de Elecciones. Ambos se presentarán ante el encargado del correspondiente programa electoral que dictó la resolución, quien resolverá sobre la revocatoria y, si no fuera de recibo el alegato planteado, la apelación presentada en tiempo se elevará de forma inmediata a conocimiento del Tribunal Supremo de Elecciones.
+El término para recurrir será de tres días a partir del momento en que se notifique la resolución respectiva.
+Estarán legitimadas para apelar las personas autorizadas en este reglamento para solicitar los permisos.
