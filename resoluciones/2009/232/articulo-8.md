@@ -1,7 +1,7 @@
 8. Sobre el plazo para la presentación de los requisitos antes indicados, de acuerdo con la siguiente programación:
 Tipo de mercancías | Fechas de convocatoria
 Electrodomésticos | Del 02/11/2009 al 13/11/2009
-Bebidas Alcohólicas | Del 23/11/2009 al 04/12/2009
+Bebidas Alcohólicas | (Las fechas de la convocatoria establecidas en este apartado fueron dejadas sin efecto por el punto II aparte 22.c de la resolución DGA-283-2009 del 15 de octubre de 2009)
 Calzado | Del 14/12/2009 al 28/12/2009
 Prendas de Vestir y Complementos de Vestir | Del 06/01/2010 al 19/01/2010
 Papas, Cebollas, Hongos, Aguacates, Manzanas, Uvas y Peras | Del 27/01/2010 al 09/02/2010

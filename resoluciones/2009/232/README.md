@@ -14,3 +14,4 @@ Lineamientos y Procedimiento para el Debido Registro y Actualización de Informa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-01 | la propia norma |
+| 2 | 2009-11-01 | Resolución 283 (2009-10-15) |
