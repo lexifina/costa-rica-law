@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la Resolución N° 16-08 de las dieciséis horas del día siete de octubre del 2008, dictada por la Dirección General y publicada en el Diario Oficial La Gaceta N° 208 de 28 de octubre del 2008.
