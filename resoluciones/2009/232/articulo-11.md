@@ -1,0 +1,1 @@
+11. Para facilitar la aplicación de la presente resolución, se adjunta como anexo Nº 1 el “FORMULARIO ANEXO: SOLICITUD DE INSCRIPCION O ACTUALIZACION COMO IMPORTADOR HABITUAL, ARTICULO 246 LGA”, indicado en numeral 4), anterior, el cual contiene tanto el formato que debe ser utilizado, como el instructivo de llenado.
