@@ -1,0 +1,16 @@
+# Reglamento (2009-10-14)
+
+Reglamento General para el cobro de cuotas Obrero-Patronales de las Instituciones Cotizantes al Régimen de Capitalización Colectiva
+
+- Tipo: Reglamento
+- Número: 114
+- Fecha: 2009-10-14
+- Ente emisor: Junta de Pensiones y Jubilaciones del Magisterio Nacional
+- Publicación: La Gaceta N° 212 del 2009-11-02
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66575&param2=78396&param3=1 (ficha 66575)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-11-02 | la propia norma |

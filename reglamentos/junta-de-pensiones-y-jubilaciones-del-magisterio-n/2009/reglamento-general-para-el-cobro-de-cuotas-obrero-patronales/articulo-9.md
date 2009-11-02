@@ -1,0 +1,1 @@
+Artículo 9º—Plazo para la presentación de las planillas. De conformidad con la legislación vigente, los Centros Educativos Públicos y Privados, deberán reportar a la Junta de Pensiones sus planillas en los primeros diez días hábiles de cada mes, en caso de atraso se computará el monto respectivo por concepto de intereses moratorios.

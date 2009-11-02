@@ -1,0 +1,1 @@
+Artículo 26.—Notificación. Corresponde al Departamento Financiero Contable, el envío por medio de correo certificado, fax o correo electrónico, del aviso de cobro administrativo a las instituciones cotizantes, para lo cual deberá dejar evidencia por escrito del envío.

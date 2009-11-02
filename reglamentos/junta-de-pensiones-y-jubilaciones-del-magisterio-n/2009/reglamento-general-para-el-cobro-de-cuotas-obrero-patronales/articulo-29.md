@@ -1,0 +1,4 @@
+Artículo 29.—De los plazos. Las instituciones que presenten una mora de treinta a sesenta días naturales, se ubicarán en categoría A (Riesgo Normal) y les corresponderá el envío del primer aviso de cobro administrativo.
+De sesenta y un días a noventa días naturales, se ubicará en categoría B (Riesgo Circunstancial) y les corresponderá el envío del segundo aviso de cobro administrativo.
+Si el patrono no acatare la prevención señalada en los párrafos anteriores y transcurrido el plazo de noventa y un días naturales (categoría C o Riesgo Alto), se procederá a notificar a las instituciones cotizantes de acuerdo con el procedimiento dispuesto anteriormente, y se dará inicio con los trámites de cobro judicial.
+Si producto de la notificación el patrono concreta un arreglo de pago, se suspenderá el proceso de cobro judicial.

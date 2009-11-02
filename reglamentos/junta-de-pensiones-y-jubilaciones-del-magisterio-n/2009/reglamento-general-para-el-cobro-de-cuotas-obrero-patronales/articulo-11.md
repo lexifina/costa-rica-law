@@ -1,0 +1,1 @@
+Artículo 11.—Períodos de inactividad de los Centros Educativos. Corresponderá a cada Centro Educativo informar a la Junta de Pensiones, sobre los períodos de inactividad por motivos de vacaciones u otras situaciones, lo anterior con el propósito de no incurrir en el cobro de intereses moratorios por la no presentación mensual de las planillas.
