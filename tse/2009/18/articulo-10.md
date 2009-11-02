@@ -1,0 +1,1 @@
+Artículo 10.—Durante los tres días inmediatos anteriores a las elecciones y el propio día de las votaciones, se prohíbe la difusión o publicación de cualquier información relativa a resultados de encuestas o sondeos de opinión de carácter político-electoral.

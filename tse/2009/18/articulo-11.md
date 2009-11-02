@@ -1,0 +1,1 @@
+Artículo 11.—Se deroga el “Reglamento para la inscripción de empresas dedicadas a elaborar encuestas y sondeos de opinión de carácter político electoral”, publicado en La Gaceta Nº 89 del 2 de octubre de 1997.

@@ -1,0 +1,1 @@
+Artículo 8º—En caso de que se presente alguna denuncia por infracción a las normas relativas a encuestas y sondeos de opinión, el TSE valorará la admisibilidad de la gestión. Una vez admitida, la entidad o persona jurídica denunciada deberá remitir al TSE la información que se requiera, en un plazo máximo de tres días a partir de realizado el requerimiento.
