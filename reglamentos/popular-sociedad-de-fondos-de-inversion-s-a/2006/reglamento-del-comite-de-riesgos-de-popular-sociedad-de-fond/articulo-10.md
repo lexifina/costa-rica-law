@@ -1,1 +1,0 @@
-Artículo 10.—Relación con el Comité de Inversiones. El Comité de Riesgo deberá evaluar si las recomendaciones de la Unidad de Gestión Integral de Riesgo son acogidas y justificar los casos en que no se implanten.
