@@ -1,15 +1,5 @@
-ARTICULO 31.- El disfrute de la pensión se suspenderá por el
-desempeño de cualquier cargo remunerado en la Administración Pública, con
-excepción de aquellos cuya única remuneración sean dietas.
-Para aquellos jubilados, amparados a alguno de los regímenes
-cubiertos por esta Ley, así como para aquellos que pertenecieran a otros
-regímenes de pensiones que no faculten la revisión y que reingresaran a
-laborar en la Administración Pública, se aplicarán, a efecto de revisar el
-monto de su jubilación, las disposiciones señaladas en la presente
-normativa según sea el caso. Lo anterior, siempre y cuando, el interesado
-plantee la solicitud de revisión dentro de los tres meses posteriores al
-cese de su relación laboral.
-No obstante, en el caso de los Diputados, estos para poder recibir la
-remuneración que les brinda dicho cargo, deberán renunciar temporalmente,
-durante el período de su gestión a la pensión, si estuvieran en el
-disfrute de ella.
+Artículo 31.- El disfrute de la pensión se suspenderá por el desempeño de cualquier cargo remunerado en la Administración Pública, a excepción de aquellos cuya única remuneración sean dietas.
+Las personas pensionadas y los servidores adscritos y las servidoras adscritas a alguno de los regímenes cubiertos por esta Ley, tendrán derecho a percibir, además de su salario, la pensión que les corresponda en razón de fallecimiento de su cónyuge, mientras permanezcan viudos o viudas. Este derecho también asistirá a las personas convivientes en unión de hecho que cumplan las reglas del título VII del Código de Familia.
+Para los jubilados y jubiladas, amparados y amparadas a alguno de los regímenes cubiertos por esta Ley, así como para quienes pertenezcan a otros regímenes de pensiones que no faculten la revisión y que reingresen a laborar en la Administración Pública, se aplicarán, a efecto de revisar el monto de su jubilación, las disposiciones señaladas en la presente normativa según sea el caso. Lo anterior, siempre y cuando la persona interesada plantee la solicitud de revisión dentro de los tres meses posteriores al cese de su relación laboral.
+No obstante, en el caso de los diputados y las diputadas, para que puedan recibir la remuneración que les brinda dicho cargo, deberán renunciar, temporalmente, durante el período de su gestión a la pensión, si están en el disfrute de ella.
+(Así reformado por el inciso a) del artículo 1° de la ley N° 8775 del 11 de setiembre de 2009 )
