@@ -1,0 +1,2 @@
+Artículo 8º—Denuncia de operaciones sospechosas de uso indebido de información privilegiada. La operación sospechosa debe comunicarse a la Superintendencia a más tardar durante el día siguiente a que se conoce, mediante el envío del formulario anexo al presente reglamento.
+Como operación sospechosa debe entenderse aquellos casos en que existan indicios de que una operación en el mercado de valores se va a llevar o se llevó a cabo mediante la utilización indebida de información privilegiada.
