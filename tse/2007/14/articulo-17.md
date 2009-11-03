@@ -1,1 +1,0 @@
-Artículo 17.—La entidad interesada en acreditar a un observador deberá además completar la información que se solicita en el formulario “Requisitos para el estudio de acreditación como observador internacional”, que será divulgado por el Tribunal Supremo de Elecciones por los medios que considere pertinentes.

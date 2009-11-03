@@ -1,1 +1,0 @@
-Artículo 3º—La observación internacional no podrá suplantar, igualar o avocar atribuciones que constitucional y legalmente son de la exclusiva competencia del Tribunal Supremo de Elecciones y los demás organismos electorales.

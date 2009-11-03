@@ -1,1 +1,0 @@
-Artículo 5º—La observación internacional comprenderá la búsqueda y obtención completa y exacta de información por parte de personas, organizaciones o entidades extranjeras relacionadas con procesos electivos o consultivos, y su análisis imparcial y profesional para la extracción de conclusiones sobre la base de criterios exigentes en el tratamiento imparcial de esa información.

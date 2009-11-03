@@ -1,1 +1,0 @@
-Artículo 10.—Tendrán carácter de observadores oficialmente invitados, los representantes de la Unión Interamericana de Organismos Electorales (UNIORE), con atención a los organismos electorales signatarios de los respectivos protocolos.

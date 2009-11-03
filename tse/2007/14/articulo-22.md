@@ -1,1 +1,0 @@
-Artículo 22.—Ningún observador deberá tener impedimento de ingreso al país, o comprometerá la paz social, la seguridad y el orden público; tampoco tendrán injerencia en los asuntos y actuaciones de los organismos electorales, y deberán sujetarse a las demás disposiciones establecidas en la Constitución Política y la Ley para los extranjeros que ingresan al país.

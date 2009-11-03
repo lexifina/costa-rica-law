@@ -1,1 +1,0 @@
-Artículo 11.—El Tribunal Supremo de Elecciones podrá también invitar y acreditar a representantes de gobiernos, parlamentos, instituciones u organizaciones y a personalidades en general, para lo cual brindará información a los observadores según sus posibilidades.

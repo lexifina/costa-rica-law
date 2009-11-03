@@ -1,1 +1,0 @@
-Artículo 24.—Los observadores internacionales oficialmente invitados evaluarán el proceso observado bajo la guía del Centro de Asesoría y Promoción Electoral (CAPEL), en su calidad de Secretaría Ejecutiva de la Unión Interamericana de Organismos Electorales (UNIORE).

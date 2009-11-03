@@ -1,1 +1,0 @@
-Artículo 19.—Corresponderá al Programa de Atención a Observadores Internacionales o a quien designe el Tribunal Supremo de Elecciones, aprobar las solicitudes de acreditaciones previo análisis de los atestados que las acompañen y hacerlas del conocimiento del Tribunal y del propio solicitante.
