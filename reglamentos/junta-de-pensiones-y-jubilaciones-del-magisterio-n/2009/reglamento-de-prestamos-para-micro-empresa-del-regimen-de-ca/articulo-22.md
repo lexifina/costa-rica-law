@@ -1,0 +1,1 @@
+Artículo 22.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelarlo en forma anticipada, sin que por ello deba pagar suma adicional alguna, salvo los intereses generados al momento de la cancelación.

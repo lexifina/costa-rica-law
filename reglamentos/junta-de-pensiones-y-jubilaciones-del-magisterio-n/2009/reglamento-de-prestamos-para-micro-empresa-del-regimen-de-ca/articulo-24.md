@@ -1,0 +1,1 @@
+Artículo 24.—Excepciones. Se autoriza a la Dirección Ejecutiva, para que en casos de excepción se solicite una fianza solidaria o garantía real de funcionarios activos del Magisterio Nacional o pensionados con derecho propio, previa recomendación del estudio técnico elaborado por el Departamento de Crédito y Cobro.

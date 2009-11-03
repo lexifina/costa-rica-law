@@ -1,0 +1,2 @@
+Artículo 13.—Aprobación de los créditos. Las solicitudes para los préstamos de microempresa serán sujeto de análisis, aprobación o denegatoria del Comité de Crédito.
+Queda entendido que por el hecho de recibir la solicitud de crédito, la Junta de Pensiones no adquiere compromiso u obligación alguna con el solicitante y que la aprobación del mismo queda sujeta a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación y la disponibilidad presupuestaria.

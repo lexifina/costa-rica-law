@@ -1,0 +1,1 @@
+Artículo 16.—De la supervisión e inspección del proyecto o negocio. La Junta de Pensiones, por medio de los profesionales externos contratados, procederá a realizar la supervisión del proyecto o negocio, lo anterior con el fin de verificar que los recursos girados hayan sido utilizados adecuadamente y autorizar los desembolsos restantes del préstamo, según corresponda.

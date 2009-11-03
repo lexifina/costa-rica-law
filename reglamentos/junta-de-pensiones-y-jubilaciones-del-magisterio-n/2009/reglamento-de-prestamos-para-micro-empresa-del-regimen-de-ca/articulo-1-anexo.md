@@ -1,0 +1,21 @@
+Anexo Nº 1
+JUNTA DE PENSIONES Y JUBILACIONES
+DEL MAGISTERIO NACIONAL
+POLÍTICA DE ASESORÍA PARA LAS Y LOS AFILIADOS QUE
+DESEEN SOLICITAR UN PRÉSTAMO DE MICROEMPRESA
+PARA INICIAR UN NEGOCIO O PROYECTO
+1. Régimen de Capitalización Colectiva
+1.1 Crédito y asesoría para los préstamos de microempresa
+Es necesario contar con instrumentos y metodologías que permitan a nuestros afiliados (as) activos (as), jubilados (as) y pensionados (as), promover sus iniciativas de inversión, de ahí que es indispensable incentivar la asesoría para los préstamos de microempresa, con el propósito de que nuestra membresía pueda plantear su propio plan de negocios y un pronóstico lo más acertado posible de la rentabilidad que podría generar su nuevo proyecto o negocio, previo a la solicitud del crédito. Desde luego, el interés de la Junta de Pensiones es que los proyectos sean exitosos, para que coadyuven a mejorar la calidad de vida de nuestra membresía, de manera que se eviten al máximo los fracasos que culminan con situaciones indeseables, como podría ser la pérdida de una propiedad.
+Ante la crisis económica actual y la aprobación de la Ley 8721, se hace indispensable la implementación de programas de capacitación y asesoría e incluso la definición de estrategias que faciliten al afiliado (a) activo (as), jubilado (a) o pensionado (a) la creación de su nuevo negocio o proyecto.
+Una idea original por sí sola no es garantía de éxito en los negocios, de ahí que debe ir acompañada de capacitación y asistencia técnica, que coadyuven a la búsqueda de soluciones rápidas, acertadas y efectivas, con el propósito de sustentar la proyección de crecimiento de un negocio o la materialización de nuevos proyectos de inversión.
+De conformidad con lo anterior, es necesario que los préstamos de microempresa de la Junta sean otorgados a personas debidamente asesoradas, comprometidas a capacitación administrativa y a la conciencia de la calidad, así como a técnicas de adaptabilidad a las condiciones cambiantes de los mercados; por consiguiente se plantean las siguientes opciones de capacitación:
+v En el caso de las y los pensionados que desean solicitar un crédito de microempresa, pueden recibir un programa de capacitación con la Universidad de Costa Rica a través del Programa de Emprendedores de Oro.
+Ahora bien, con el propósito de facilitarles el acceso a todas y todos los pensionados a este programa universitario, el Departamento de Prestaciones Sociales coordinará con el CONAPAM el apoyo y financiamiento de los mismos.
+v Para los afiliados (as) activos (as) que deseen solicitar un crédito de microempresa, se promoverá una alianza con la Universidad Estatal a Distancia, para que puedan participar en el programa Projoven que dirige dicha Universidad.
+v Se procederá a coordinar con el Instituto Nacional de Aprendizaje (INA), la posibilidad de que los activos (as) y pensionados (as) puedan llevar cursos que les proporcionen las herramientas necesarias para emprender un negocio.
+A través de los programas de Emprendedores de Oro, Projoven o el INA, se espera garantizar que nuestra membresía cuente con las herramientas básicas y necesarias para garantizar la rentabilidad de las inversiones que se desean emprender, ya que a través de estas capacitaciones se les brinda la asesoría adecuada en los ámbitos administrativos, contables y financieros, requeridos para iniciar cualquier tipo de negocio.
+El objetivo de que nuestros activos (as), pensionados (as) y jubilados (as) reciban una capacitación o asesoría técnica antes de solicitar su préstamo de microempresa, obedece a dos objetivos fundamentales:
+1. Incentivar y contribuir al éxito de los proyectos o nuevos negocios que deseen conformar nuestros afiliados (as) y pensionados (as), que coadyuven al mejoramiento de la calidad de vida de las y los trabajadores de la educación costarricense y de los pensionados (as) del Magisterio Nacional.
+2. Mitigar los riesgos de irrecuperabilidad del crédito, es decir minimizar el riesgo de crédito, pues debemos recordar que las nuevas formas de inversión autorizadas por la Ley 8721 obedecen a la necesidad de alcanzar el 4% requerido para garantizar la sostenibilidad y fortalecimiento del Régimen de Capitalización Colectiva; es decir, para poder hacer frente al pago de las pensiones futuras.
+San José, 15 de octubre del 2009.
