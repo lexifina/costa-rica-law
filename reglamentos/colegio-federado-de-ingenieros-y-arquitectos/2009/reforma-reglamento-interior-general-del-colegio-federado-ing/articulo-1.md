@@ -1,0 +1,13 @@
+COLEGIO FEDERADO DE INGENIEROS
+Y DE ARQUITECTOS DE COSTA RICA
+La Asamblea de Representantes del Colegio Federado de Ingenieros y de Arquitectos, en su sesión extraordinaria Nº 02-08/09-AER, de fecha 17 de setiembre de 2009, acordó lo siguiente:
+“Acuerdo Nº 09:
+Se aprueba la propuesta de reforma del artículo 59 del Reglamento Interior General, presentado por la Administración, para que se lea de la siguiente manera:
+“Artículo 59.—Toda Empresa cuando fungiere como contratista principal, deberá pagar al Colegio Federado por el derecho de asistencia el 1.5 por mil sobre el valor de la obra, de conformidad con lo que establece el artículo 52 de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
+Este pago se hará mediante la cancelación correspondiente del 1.5 por mil indicados por medio de Cupones de Depósito, que emitirá el Colegio Federado o por los medios que acuerde la Junta Directiva General.
+El pago indicado deberá realizarse al inscribirse el contrato respectivo de dirección técnica al CFIA, antes de dar inicio a la obra.
+Dichos Cupones de Depósito se administrarán en forma similar a lo que establece el inciso g) del artículo 57 de la Ley Orgánica. La Junta Directiva General podrá autorizar la inscripción del Contrato de Construcción posteriormente al permiso en casos especiales.
+Las Empresas subcontratistas del contratista principal, podrán inscribir los contratos que firmen con éste, pero no pagarán el derecho de asistencia.
+Para inscribir el Contrato de Servicios Profesionales para la Construcción de una Obra, será indispensable que previamente se haya registrado el correspondiente contrato de servicios profesionales por consultoría y pagados los timbres de construcción correspondiente sin cuyos requisitos no se pondrá en los planos el sello y firma a que se refiere el artículo 54 de la Ley Orgánica para el trámite ante las oficinas públicas.
+Cuando los Estudios Preliminares o Anteproyectos hayan sido realizados por una Empresa Consultora diferente a la que confeccionó los planos, deberá presentarse el respectivo Contrato de Consultoría junto con el de los Estudios Preliminares o Anteproyecto. Si dichos estudios o Anteproyecto hubieran sido realizados por una institución pública o por el mismo propietario con el asesoramiento de un miembro del Colegio Federado, deberán comprobarse tales extremos a juicio de la Dirección Ejecutiva.
+Las obras a que se refiere el primer párrafo del inciso c) del artículo 57 de la Ley Orgánica, están exentas del pago de los derechos de asistencia, por cuanto así lo dispone inciso a) del artículo 38 de la Ley del Sistema Financiero Nacional para la Vivienda.”
