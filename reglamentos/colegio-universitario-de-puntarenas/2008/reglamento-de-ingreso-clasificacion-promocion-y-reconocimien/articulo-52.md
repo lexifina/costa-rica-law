@@ -1,0 +1,1 @@
+Artículo 52.—Los formularios de evaluación se aplicarán, según el Artículo 44 de este Reglamento. No obstante, se podrán realizar evaluaciones fuera de las fechas establecidas en situaciones especiales, como: períodos de prueba, solicitudes de ascensos y a solicitud del Jefe inmediato o el Decano.

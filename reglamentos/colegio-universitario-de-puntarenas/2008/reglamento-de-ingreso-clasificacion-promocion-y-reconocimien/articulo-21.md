@@ -1,0 +1,1 @@
+Artículo 21.—La calificación de las ofertas para cada puesto la hará el Departamento de Recursos Humanos con base en escala del uno al cien, estableciéndose la calificación ochenta como calificación mínima.

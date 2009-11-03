@@ -1,0 +1,1 @@
+Artículo 40.—Cuando el aspirante provenga de otra institución, la experiencia docente profesional y/o específica debe ser certificada por el funcionario de la institución respectiva que tenga autoridad para hacerlo.

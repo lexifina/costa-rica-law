@@ -1,0 +1,1 @@
+Artículo 32.—Los interesados deberán presentar su de oferta de servicio con todos los documentos solicitados en el concurso dentro del plazo fijado para su recepción. El Departamento de Recursos Humanos extenderá un comprobante especificando hora y fecha de presentación de la oferta de servicios.

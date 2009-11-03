@@ -1,0 +1,1 @@
+Artículo 47.—En los funcionarios administrativos se consideran labores objeto de evaluación, las derivadas de las funciones descritas en el Manual Descriptivo de Puestos, las asignadas por el Jefe respectivo y en general, todas aquellas que están directamente relacionadas con el puesto desempeñado.

@@ -1,0 +1,8 @@
+Artículo 8º—La clasificación del trabajador docente se hará según los siguientes parámetros:
+Profesor I: Los Asistentes de Laboratorio de algunas carreras y quien no posea grado mínimo de Bachillerato Universitario, reclutado y seleccionado en virtud de Inopia debidamente declarada en concurso público, conforme los términos y requisitos establecidos. En tales casos se dará preferencia al postulante que posea el grado de Diplomado Parauniversitario. Docente con título académico de Diplomado con estudios específicos en la materia o experiencia técnica en la materia.
+Profesor II: Quien posea el grado mínimo de Bachiller Universitario en la especialidad que se concursa.
+Profesor III: Quien posea la Condición de Egresado de un plan de Licenciatura o de posgrado, en la especialidad que se concursa.
+Profesor IV: Quien posea el grado de Licenciatura o superior, en la especialidad que se concursa.
+Profesor Ad honoren: Es la persona que colabora sin recibir remuneración en actividades de docencia, investigación y acción social, será nombrado por el Decano y deberá cumplir con las funciones establecidas en el Manual de puestos.
+Profesor Emérito: Es el Docente jubilado de la Institución que hubiese prestado servicios de reconocidos méritos académicos, de investigación y cultura en el País. El nombramiento lo hará el Consejo Directivo, a propuesta del Decano.
+Profesor Coordinador: Es el Docente que coordina una o varias carreras, nombrados en condición Indefinida, con grado mínimo de Licenciatura, después de cumplir satisfactoriamente el periodo de prueba y mientras se mantenga vigente la carrera respectiva y se cumpla con la Evaluación del Desempeño.

@@ -1,0 +1,1 @@
+Artículo 34.—Tanto la calificación dada por el Departamento de Recursos Humanos, como la resolución de nombramientos, será notificada a cada uno de los concursantes, quienes tendrán un plazo de cinco días hábiles para plantear cualquier apelación.

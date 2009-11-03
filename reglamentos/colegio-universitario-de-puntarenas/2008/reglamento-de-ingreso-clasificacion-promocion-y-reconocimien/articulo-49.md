@@ -1,0 +1,1 @@
+Artículo 49.—Son las labores docentes - administrativas objeto de evaluación, la coordinación de cursos, carreras, la participación en comisiones y cualquiera otra función de similar naturaleza asignada por autoridad competente.

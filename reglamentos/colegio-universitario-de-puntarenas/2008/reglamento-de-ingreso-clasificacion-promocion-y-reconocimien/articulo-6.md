@@ -1,0 +1,1 @@
+Artículo 6º—Los puestos administrativos, docente y docente-administrativo o los que se llegaren a crear, se regularán conforme con el “Manual Descriptivo de Clases Anchas de la Dirección General del Servicio Civil”.

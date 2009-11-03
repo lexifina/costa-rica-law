@@ -1,0 +1,1 @@
+Artículo 51.—El Departamento de Recursos Humanos, en colaboración con el Director Administrativo y el Director Académico, será responsable del análisis e interpretación de los datos y resultados de cada evaluación, además de obtener las conclusiones y elaborar las recomendaciones correspondientes.

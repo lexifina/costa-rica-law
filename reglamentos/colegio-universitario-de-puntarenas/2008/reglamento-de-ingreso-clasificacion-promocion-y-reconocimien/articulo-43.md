@@ -1,0 +1,1 @@
+Artículo 43.—Con la finalidad de promover la capacitación y el desarrollo profesional de sus servicios en el campo en que laboran, la Institución podrá otorgar los siguientes tipos de becas: Especiales, Corrientes, Parciales. Las cuales serán reguladas en el respectivo Reglamento de Becas para funcionarios del CUP, aprobado en Sesión Plenaria 79-2001 del 17/08/2001.

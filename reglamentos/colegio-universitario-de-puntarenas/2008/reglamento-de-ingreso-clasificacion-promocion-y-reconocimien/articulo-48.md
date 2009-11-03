@@ -1,0 +1,1 @@
+Artículo 48.—Se consideran labores docentes objeto de evaluación, planear e impartir lecciones, preparar material didáctico, atender a estudiantes, elaborar y corregir pruebas, diseñar y evaluar cursos y asesorar o dirigir opciones de graduación.

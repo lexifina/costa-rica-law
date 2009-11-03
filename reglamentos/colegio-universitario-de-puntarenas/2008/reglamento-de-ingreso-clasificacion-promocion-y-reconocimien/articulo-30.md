@@ -1,0 +1,1 @@
+Artículo 30.—El primer aviso para el concurso externo debe publicarse como mínimo 8 días hábiles previos a la fecha en que se cierra el plazo para presentar solicitudes y debe establecer al menos la siguiente información: clase de puesto vacante, jornada, lugar, salario fijado por ley, plazo y horas hábiles de recepción de las solicitudes, atestados y requisitos para el concurso.

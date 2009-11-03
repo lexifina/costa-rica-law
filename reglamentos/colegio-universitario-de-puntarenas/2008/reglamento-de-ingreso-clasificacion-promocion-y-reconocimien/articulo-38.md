@@ -1,0 +1,1 @@
+Artículo 38.—Se considera experiencia docente, aquella que se obtuvo impartiendo lecciones en instituciones de educación superior (Universitaria y Parauniversitaria). Para el reconocimiento de anualidades aplíquese consistentemente el artículo anterior.

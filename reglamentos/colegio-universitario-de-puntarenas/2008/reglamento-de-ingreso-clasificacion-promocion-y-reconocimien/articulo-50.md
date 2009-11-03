@@ -1,0 +1,1 @@
+Artículo 50.—El Departamento de Recursos Humanos en colaboración con las unidades docentes, el Director Académico y las Jefaturas de las diferentes unidades, serán los responsables de la evaluación de todos los servidores de la Institución.

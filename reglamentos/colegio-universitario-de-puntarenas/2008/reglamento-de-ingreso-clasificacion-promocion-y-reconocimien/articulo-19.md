@@ -1,0 +1,1 @@
+Artículo 19.—La selección la hará con base en documentos que demuestren las calidades académicas del oferente tales como: estudios realizados, grados, títulos, diplomas, certificados de cursos, certificados de experiencia, así como pruebas de idoneidad que puedan garantizar su condición académica, condición ambiental y de su salud.

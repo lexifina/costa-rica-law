@@ -1,0 +1,1 @@
+Artículo 57.—Zonaje es el pago adicional a determinado servidor público cuyo trabajo le implique el traslado desde su lugar de vivienda o contratación hasta donde labora por mandato de las autoridades del C.U.P., de acuerdo con los lineamientos que a tal efecto establezca la Contraloría General de la República o la normativa legal respectiva.

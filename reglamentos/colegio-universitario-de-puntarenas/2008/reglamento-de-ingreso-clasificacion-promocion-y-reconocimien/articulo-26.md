@@ -1,0 +1,1 @@
+Artículo 26.—El Departamento de Recursos Humanos tramitará todo lo relacionado con el concurso de antecedentes tales como: Publicación de avisos, recepción de solicitudes, atestados y otros documentos e información sobre los requisitos para participar en el concurso.

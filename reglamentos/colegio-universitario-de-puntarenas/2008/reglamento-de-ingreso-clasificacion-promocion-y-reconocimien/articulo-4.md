@@ -1,0 +1,1 @@
+Artículo 4º—En su relación de servicio, el servidor estará sujeto a las condiciones establecidas en el acto de nombramiento o modificación de éstas, en el contrato de servicio y en el presente Reglamento, las cuales se formalizarán mediante acción de personal expedida por el Departamento de Recursos Humanos y aprobada por el Decano.
