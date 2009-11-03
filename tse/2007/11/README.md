@@ -14,3 +14,4 @@ Reglamento para los Procesos de Referéndum
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-26 | la propia norma |
+| 2 | 2009-11-03 | Decreto TSE 20 (2009-11-03) |

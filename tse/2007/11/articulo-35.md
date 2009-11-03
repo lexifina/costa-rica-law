@@ -1,1 +1,1 @@
-Artículo 35.—Requisitos de acreditación de observadores. Para ser acreditado como observador nacional, la persona deberá estar inscrita en el Padrón Electoral, no ser miembro de una junta receptora de votos, no ser fiscal acreditado por algún partido político ni funcionario de los organismos electorales.
+Artículo 35.—(Derogado por el artículo 26 del Reglamento para la Observación de Procesos Electivos y Consultivos, decreto del Tribunal Supremo de Elecciones, N° 20 del 3 de noviembre de 2009)

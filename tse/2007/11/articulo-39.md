@@ -1,1 +1,1 @@
-Artículo 39.—Presencia de observadores nacionales en los locales de las Juntas Receptoras de Votos. Al local de las Juntas Receptoras de Votos no podrá ingresar más de un observador nacional a la vez por cada organización. En todo caso, no podrán permanecer en las juntas más de cinco observadores en forma simultánea.
+Artículo 39.—(Derogado por el artículo 26 del Reglamento para la Observación de Procesos Electivos y Consultivos, decreto del Tribunal Supremo de Elecciones, N° 20 del 3 de noviembre de 2009)

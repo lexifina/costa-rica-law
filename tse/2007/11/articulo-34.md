@@ -1,3 +1,4 @@
-CAPÍTULO VIII
+(*)CAPÍTULO VIII
 Observadores Nacionales
-Artículo 34.—Legitimación. Toda persona jurídica nacional, debidamente inscrita en el registro oficial correspondiente, tiene derecho de presentar nóminas de observadores nacionales al proceso de referéndum.
+(*)(Este capitulo fue derogado por el artículo 26 del Reglamento para la Observación de Procesos Electivos y Consultivos, decreto del Tribunal Supremo de Elecciones, N° 20 del 3 de noviembre de 2009)
+Artículo 34.—(Derogado por el artículo 26 del Reglamento para la Observación de Procesos Electivos y Consultivos, decreto del Tribunal Supremo de Elecciones, N° 20 del 3 de noviembre de 2009)
