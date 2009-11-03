@@ -1,0 +1,4 @@
+Artículo 7º—La DIPOA mantendrá las acciones de auditoría necesarias para garantizar el mantenimiento de las condiciones con base en las cuales se otorgó el reconocimiento indicado.
+Cuando se detectare por parte de la Autoridad alguna disconformidad el establecimiento deberá tomar las acciones correctivas que se le indiquen en los plazos que se determinen.
+EL SENASA suspenderá el reconocimiento antes indicado por el restante plazo cuando la no conformidad detectada no fuere posible corregirla dentro del plazo que se establezca.
+En esos casos, y habiéndose suspendido al establecimiento el reconocimiento, este deberá tomar las acciones necesarias para que, a partir del vencimiento del plazo de noventa días, se abstenga de utilizar en sus fundas, empaques o cajas, la figura distintiva del Sello de Sanidad y Calidad.

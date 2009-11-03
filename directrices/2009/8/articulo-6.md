@@ -1,0 +1,2 @@
+Artículo 6º—Una vez otorgado el sello a un establecimiento, este podrá utilizarlo en las fundas, empaques o cajas de los productos y subproductos de origen animal por ellos producidos.
+Aquellos establecimientos que sin derecho alguno utilizaren el “Sello de Sanidad y Calidad” serán sometidos a los procedimientos legales de carácter administrativo conforme a los procedimientos de la Ley Nº 8495 y a las denuncias penales que correspondan por parte del SENASA.
