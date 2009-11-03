@@ -1,0 +1,1 @@
+Artículo 12.—Renunciabilidad. Si por alguna razón el permisionario desea renunciar al permiso concedido, deberá comunicarlo por escrito a la Municipalidad para que la misma realice una inspección del estado de la zona y retome el bien demanial para su protección y conservación.

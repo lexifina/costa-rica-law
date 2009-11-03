@@ -1,0 +1,1 @@
+Artículo 10.—Área permitida. Las áreas de las parcelas donde se otorguen los permisos de uso se otorgarán de acuerdo con los principios de equidad, justicia, oportunidad y conveniencia, hasta un máximo de cuatro mil metros cuadrados.

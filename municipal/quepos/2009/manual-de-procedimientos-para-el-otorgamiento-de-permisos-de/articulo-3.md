@@ -1,0 +1,1 @@
+Artículo 3º—Inaplicabilidad de la figura de permiso de uso. Este procedimiento no resultará aplicable a aquellas zonas donde existe un plan regulador, así como a las zonas previamente declaradas como Patrimonio Natural del Estado por parte del MINAET, o en aquellas zonas en las que no esté delimitada la zona pública ya que sólo se otorgaran permisos de uso en la zona restringida.

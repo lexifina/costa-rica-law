@@ -1,0 +1,1 @@
+Artículo 2º—Objeto de procedimiento. Este manual tiene como propósito establecer el procedimiento para otorgar permisos de usó en la zonas restringidas de la ZMT del Cantón de Aguirre, ante la imposibilidad temporal de autorizar concesiones por no existir los requisitos objetivos que exige la Ley 6043.

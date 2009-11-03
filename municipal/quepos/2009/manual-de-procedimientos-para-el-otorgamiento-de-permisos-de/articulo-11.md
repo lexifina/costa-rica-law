@@ -1,0 +1,1 @@
+Artículo 11.—Contribución especial. Corresponde a la Municipalidad la potestad discrecional de solicitar una contribución especial por el permiso de uso, cuyo monto, especie y calidad dependerán de la actividad autorizada según los intereses públicos involucrados y los cánones establecidos para las concesiones establecidos en la Ley 6043 y su Reglamento.

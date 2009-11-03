@@ -1,0 +1,1 @@
+Artículo 17.—Prioridad. En el otorgamiento de usos de suelo, la Municipalidad dará prioridad a aquellos solicitantes que demuestren contar con solicitudes de concesión presentadas ante el Departamento de ZMT. En este sentido, resultará aplicable el criterio de prioridad establecido en la Ley 6043, con las salvedades o excepciones debidamente declaradas

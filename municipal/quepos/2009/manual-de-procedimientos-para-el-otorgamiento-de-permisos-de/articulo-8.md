@@ -1,0 +1,1 @@
+Artículo 8º—Precariedad. Los permisos de uso no confieren ningún derecho subjetivo, de allí que no puedan cederse, venderse, subarrendarse o bien traspasarse por ningún medio. La violación a este artículo implica el cese inmediato del permiso.

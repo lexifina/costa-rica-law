@@ -1,0 +1,1 @@
+Artículo 5º—Contenido. El permiso de uso sólo es aplicable a actividades de carácter transitorio y sin alteración del ecosistema. En ningún caso el permiso de uso autorizará construcciones de carácter permanente, ni mucho menos la permanencia de construcciones realizadas sin autorización.

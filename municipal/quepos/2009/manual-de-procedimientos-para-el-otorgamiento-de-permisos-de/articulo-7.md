@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia. Los permisos de uso tienen carácter temporal. Se otorgarán por un plazo máximo de tres años y son renovables a solicitud departe del interesado por un periodo semejante siempre y cuando el Concejo Municipal lo apruebe expresamente. En todos los casos, aprobado el plan regulador costero de la zona, los permisos cesarán su vigencia.

@@ -1,0 +1,1 @@
+Artículo 6º—Especificidad. El contenido del permiso de uso debe ser específico y en lo posible limitado a una sola actividad. El alcance del permiso quedará debidamente definido y delimitado en la resolución emitida por la Municipalidad, debiendo el solicitante aceptar el carácter precario del referido otorgamiento, de previo a entrar en vigencia el referido uso de suelo.
