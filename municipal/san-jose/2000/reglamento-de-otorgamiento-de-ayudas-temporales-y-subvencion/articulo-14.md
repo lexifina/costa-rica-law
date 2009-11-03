@@ -1,1 +1,0 @@
-Artículo 14.—Para efectos de lo dispuesto en el Artículo 13, la solicitud de subvención deberá presentarla la organización, institución o comité interesado en ella, ante el Concejo Municipal, por escrito, explicando en forma clara y precisa el objeto y fines para el cual se requiere la misma, junto con los otros requisitos que este Reglamento dispone.

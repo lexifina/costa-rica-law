@@ -1,1 +1,0 @@
-Artículo 20.—Cuando la Proveeduría de la Municipalidad sea informada por los beneficiarios de la asistencia social, que los mismos ya se han provisto de lo que habían requerido, deberá informar en forma inmediata y por escrito a esa Comisión, para que esta recomiende al Concejo Municipal, se revoque el acuerdo tomado por carecer de interés actual.

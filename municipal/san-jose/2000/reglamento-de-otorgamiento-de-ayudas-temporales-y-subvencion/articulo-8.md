@@ -1,1 +1,0 @@
-Artículo 8º—Del monto de la ayuda. El monto de la ayuda no será en ningún caso, mayor a la suma de cincuenta mil colones o en su equivalente en artículos de primera necesidad para cada vecino solicitante.
