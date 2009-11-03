@@ -1,0 +1,1 @@
+Artículo 31.—Los funcionarios de la Auditoría, deben abstenerse de auditar, opinar y recomendar en órganos internos de carácter privado de la municipalidad (asociación solidarista) en que figuren como miembros.

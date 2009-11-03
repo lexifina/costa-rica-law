@@ -1,0 +1,1 @@
+Artículo 17.—El Auditor Interno deberá diseñar un Manual de Procedimientos de Auditoría, el cual deberá mantenerlo actualizado, cuyo objetivo es contar con un instrumento que dicte los deberes y responsabilidades de Auditoría aplicables a la institución y a los órganos adscritos o que administren fondos públicos de la entidad, según lo dispuesto en la normativa aplicable.

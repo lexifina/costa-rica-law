@@ -1,0 +1,1 @@
+Artículo 50.—Se recibirán las denuncias de parte de los usuarios internos y externos, siempre y cuando el formulario para este asunto sea correctamente completado y cumpla con los requisitos solicitados en el respectivo reglamento.

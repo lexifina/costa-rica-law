@@ -1,0 +1,1 @@
+Artículo 3º—El presente Reglamento es de acatamiento obligatorio para el personal del departamento de Auditoría Interna y para el personal en general de la Municipalidad de Aguirre en lo que legal y razonablemente les sea de su interés.

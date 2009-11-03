@@ -1,0 +1,1 @@
+Artículo 15 bis.—De conformidad con el bloque de legalidad que ampara a la auditoría Interna, el auditor por su trato laboral y por su condición de autoridad se equipara con la relación laboral entre el alcalde municipal y el concejo municipal, dado que el puesto de Auditor corresponde al máximo nivel de fiscalización superior dentro de la corporación municipal.

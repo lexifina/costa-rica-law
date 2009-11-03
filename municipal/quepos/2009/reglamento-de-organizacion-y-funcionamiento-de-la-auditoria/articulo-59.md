@@ -1,0 +1,1 @@
+Artículo 59.—En cuanto a los requisitos, parte, revisión y remisión de los informes se aplicará principalmente lo dispuesto en los artículos 35, 36, 37 y 38 de la Ley General de Control Interno y lo dispuesto en el “Manual de Normas de Control Interno y el Manual de Procedimientos de la Auditoría Interna”.

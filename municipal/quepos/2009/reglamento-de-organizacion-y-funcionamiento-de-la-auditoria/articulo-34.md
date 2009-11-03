@@ -1,0 +1,1 @@
+Artículo 34.—Los funcionarios de la Auditoría, deben reunir los conocimientos, las destrezas, aptitudes, la técnica y otras competencias necesarias para cumplir con sus responsabilidades individuales. El personal de Auditoría, individualmente, debe reunir u obtener los conocimientos, las aptitudes y otras competencias necesarias para cumplir con sus responsabilidades.

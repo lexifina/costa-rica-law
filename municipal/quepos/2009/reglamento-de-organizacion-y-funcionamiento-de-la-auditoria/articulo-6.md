@@ -1,0 +1,1 @@
+Artículo 6º—La Unidad de Auditoría Interna es un componente orgánico de la Municipalidad, con dependencia orgánica del Concejo e independencia funcional y de criterio; su fin es validar y mejorar las operaciones municipales, brindar los servicios de asesoría y advertencia a la Administración, velando así al cumplimiento de las metas y objetivos de la institución

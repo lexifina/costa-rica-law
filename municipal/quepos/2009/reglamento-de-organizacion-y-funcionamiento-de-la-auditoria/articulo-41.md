@@ -1,0 +1,1 @@
+Artículo 41.—Al ejercer el debido cuidado profesional, los funcionarios de la Auditoría Interna, deberán considerar la utilización de herramientas de Auditoría asistidas por sistemas de tecnologías de información y otras técnicas de análisis de datos.

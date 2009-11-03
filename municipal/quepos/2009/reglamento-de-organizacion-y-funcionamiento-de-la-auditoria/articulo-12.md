@@ -1,0 +1,1 @@
+Artículo 12.—El Auditor Interno definirá los métodos de coordinación óptimos, con el encargado de Hacienda Municipal, para mantener un registro separado del monto asignado y aprobado detallado por objeto de la partida, con la finalidad de controlar la ejecución y modificaciones sobre los recursos asignados a la Auditoría Interna.

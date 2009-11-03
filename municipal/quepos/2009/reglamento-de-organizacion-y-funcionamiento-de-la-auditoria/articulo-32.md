@@ -1,0 +1,1 @@
+Artículo 32.—Ante el impedimento de asesorar o advertir por responsabilidad en procesos, los funcionarios de la Auditoría Interna, no deben ejecutar su función respecto procesos de los cuales hayan sido previamente responsables.

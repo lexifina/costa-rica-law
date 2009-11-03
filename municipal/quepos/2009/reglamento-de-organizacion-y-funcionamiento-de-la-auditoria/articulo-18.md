@@ -1,0 +1,5 @@
+Artículo 18.—
+1- El nombramiento y destitución del Auditor Interno y del Subauditor, será por tiempo indefinido, según lo establecido en el artículo 52 del Código Municipal y los artículos 24, 30 y 31 de la Ley General de Control Interno, siempre observando los lineamientos para la descripción de las funciones y requisitos de los cargos del auditor y subauditor y lo hará el Concejo Municipal y que posteriormente será comunicado a la Contraloría General de la República para su aprobación.
+2- El jerarca definirá las regulaciones de tipo administrativo, con respecto a su salario, en apego al principio de igualdad de trato con el Alcalde Municipal, sea equiparándole o bien en similar condición.
+3- También el Jerarca definirá las situaciones de orden administrativo, referentes a: La representación a nivel nacional o extranjero, vacaciones, permisos con o sin goce de salario, entre otras.
+4- El Auditor Interno y el Subauditor serán removidos del cargo por justa causa, según lo señalado en el artículo 52 del Código Municipal, el artículo 31 de la Ley General de Control Interno y el artículo 15 de la Ley Orgánica de la Contraloría General de la República.

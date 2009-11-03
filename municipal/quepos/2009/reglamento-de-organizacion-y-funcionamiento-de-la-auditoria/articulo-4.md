@@ -1,0 +1,1 @@
+Artículo 4º—Es responsabilidad del Auditor Interno con apoyo de la Administración a mantener actualizado este reglamento, con lo cual, comunicará lo necesario al Concejo para su aprobación, realizando el trámite necesario ante la Contraloría General de la República para lo que corresponda.
