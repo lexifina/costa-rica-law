@@ -6,7 +6,8 @@ c) Mantener al día los documentos siguientes:
 2) Un diario de los trabajos, en que se consignen, los hechos importantes ocurridos; en particular sobre accidentes de trabajo.
 3) Un registro del personal empleado.
 4) Un registro de producción, venta, almacenamiento y exportación de las sustancias minerales. Estos documentos quedarán a disposición de la Dirección de Geología, Minas e Hidrocarburos, la cual podrá consultarlos en todo momento.
-ch) Elaborar un estudio completo sobre el impacto ambiental del proceso de explotación, que cumpla con los requisitos contemplados en el artículo 97; y cumplir con las normas que regulan la contaminación ambiental y la recuperación de los recursos naturales renovables.
+ch) Anulado.
+(Anulado este inciso mediante resolución de la Sala Constitucional N° 17155 del 5 de noviembre de 2009.)
 d) Pagar los derechos e impuestos establecidos por ley.
 e) Informar, semestralmente, a la Dirección los cambios en la propiedad de las acciones nominativas.
 f) Cumplir con las obligaciones establecidas en la presente ley y su reglamento, y en la resolución de otorgamiento de la concesión.
