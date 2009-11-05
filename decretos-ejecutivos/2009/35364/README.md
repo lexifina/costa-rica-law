@@ -14,3 +14,4 @@ Modifica para el Patronato Nacional de Ciegos, el gasto presupuestario máximo f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-15 | la propia norma |
+| 2 | 2009-11-05 | Decreto Ejecutivo 35606 (2009-11-05) |

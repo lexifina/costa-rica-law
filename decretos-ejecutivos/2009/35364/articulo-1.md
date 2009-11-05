@@ -13,3 +13,4 @@ Considerando:
 8º—Que por lo anterior, resulta necesario modificar el gasto presupuestario máximo fijado al Patronato Nacional de Ciegos para el año 2009, incrementándolo en la suma de ¢34.638.037,35 (treinta y cuatro millones seiscientos treinta y ocho mil treinta y siete colones con treinta y cinco céntimos). Por tanto;
 Decretan:
 Artículo 1º—Modifícase al Patronato Nacional de Ciegos, el gasto presupuestario máximo para el año 2009, establecido en el Decreto Ejecutivo Nº 34404-H, publicado en La Gaceta Nº 56 de 19 de marzo del 2008 y sus reformas, quedando el nuevo límite en la suma de ¢94.638.037,35 (noventa y cuatro millones seiscientos treinta y ocho mil treinta y siete colones con treinta y cinco céntimos).
+(Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 35606 del 05 de noviembre de 2009)
