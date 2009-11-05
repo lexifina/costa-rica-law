@@ -1,1 +1,0 @@
-Artículo 2º—La adopción del estándar digital y el proceso de transición será definido por la Comisión a que se refiere el artículo 5 del citado Decreto Ejecutivo Nº 33058-G antes del 3 de enero del 2008, en caso de no existir claridad en el estándar digital a adoptar, la decisión podrá prorrogarse hasta por un periodo de seis meses.
