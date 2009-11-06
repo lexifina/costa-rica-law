@@ -43,9 +43,12 @@ iv. Copia del prospecto de la emisión aprobado por el regulador del mercado de 
 2. Certificación notarial del acuerdo de asamblea de socios o del órgano equivalente en sus funciones, en las que conste la aprobación en firme de la variación de capital.
 3. Certificación notarial con el nombre y el porcentaje de participación de todos los socios con participación relevante.
 4. Detalle de la conformación del capital social a la fecha de presentación de la solicitud, indicando para cada socio el nombre completo, el número de identificación, el monto del capital aportado y el número de acciones y el detalle esperado en esta conformación luego de autorizada la variación en el capital social.
-B. INCREMENTO MEDIANTE APORTES EN EFECTIVO
+(*)B. INCREMENTO MEDIANTE APORTES EN EFECTIVO
 1. Copia de comprobantes de recibo de dinero, depósito o transferencia de fondos.
-2. En el caso de colocación privada de acciones, declaración jurada del socio, ante notario público, sobre el origen de los fondos en la que especifique si ha recurrido a financiamiento, en cuyo caso, debe indicar el nombre de la entidad acreedora, el monto y las condiciones del financiamiento.
+2. En el caso de la colocación privada de acciones:
+a. Declaración jurada del socio con una participación relevante, conforme la definición que establece el inciso q) del artículo 3º del acuerdo Nº SUGEF 8-08, para lo cual se debe sumar a la participación actual el aporte sujeto de autorización, rendida ante notario público y debidamente protocolizada, sobre el origen de los fondos.
+b. Declaración jurada del representante legal de la entidad supervisada o de la sociedad controladora del grupo financiero, rendida ante notario público y debidamente protocolizada, en la que indique si algún socio ha financiado el aporte de capital con la misma entidad supervisada o alguna empresa de su grupo o conglomerado financiero, en cuyo caso, debe indicar el nombre del socio, el nombre de la entidad acreedora, el monto y las condiciones del financiamiento.
+(*)(Así reformado el punto anterior en sesión N° 816 del 6 de noviembre de 2009)
 C. INCREMENTO MEDIANTE CAPITALIZACIÓN DE UTILIDADES Y
 RESERVAS
 Estados financieros auditados de la entidad de los periodos en los que se generaron esas utilidades y reservas.
