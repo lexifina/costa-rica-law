@@ -1,0 +1,2 @@
+Artículo 57.—Las Municipalidades signatarias del presente Estatuto autorizan a la Contraloría General de la Republica a presupuestar de oficio, la cuota anual para La Federación de Municipalidades de Guanacaste cuando no incluyere la partida en su presupuesto ordinario y extraordinario, conforme lo establece el Artículo 45 del presente Estatuto.
+(Así adicionado en sesión N° 03 del 7 de noviembre de 20099

@@ -15,3 +15,4 @@ Estatuto de la Federación de Municipalidades de Guanacaste
 | --- | --- | --- |
 | 1 | 2004-05-28 | la propia norma |
 | 2 | 2005-06-18 | Reglamento 1 (2005-06-18) |
+| 3 | 2009-11-07 | Reglamento 3 (2009-11-07) |

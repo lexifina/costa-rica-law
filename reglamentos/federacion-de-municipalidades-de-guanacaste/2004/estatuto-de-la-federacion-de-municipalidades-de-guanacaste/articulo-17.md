@@ -1,1 +1,2 @@
-Artículo 17.—Los miembros de la asamblea podrán ser regidores propietarios o suplentes, quienes serán nombrados por sus respectivos concejos municipales y durarán en funciones dos años, podrán ser reelectos.
+Artículo 17.—Los miembros de la Asamblea podrán ser regidores propietarios o suplentes, síndicos propietarios o suplentes, quienes serán nombrados por sus respectivos Concejos Municipales y durarán en funciones cuatro años, con la posibilidad de ser reemplazados por el Concejo Municipal de C/D municipalidad por inasistencia a dos asambleas ordinarias, extraordinarias de la FMGTE, e informado por dicho ente a la respectiva municipalidad.
+(Así reformado en sesión N° 03 del 7 de noviembre de 2009)

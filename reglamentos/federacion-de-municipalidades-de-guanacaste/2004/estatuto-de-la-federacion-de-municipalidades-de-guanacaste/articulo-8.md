@@ -10,7 +10,8 @@ Artículo 8º—Son órganos de la Federación:
 • El Consejo Directivo.
 • El/la Director/a Ejecutivo/a.
 3. Órgano Contralor:
-• Fiscal
+• El/La Fiscal.
+(Así reformado el inciso anterior en sesión N° 03 del 7 de noviembre de 2009)
 4. Órganos Consultivos:
 • Unidad Técnica de Asesoría Municipal
 • Unidad Técnica de Zona Marítimo Terrestre

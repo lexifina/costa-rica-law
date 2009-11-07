@@ -1,0 +1,2 @@
+Artículo 55.—El personal Municipal que se traslade en forma definitiva a prestar servicios en la Federación de Municipalidades de Guanacaste, conservará en está todos los derechos derivados de sus contratos de trabajo, sin solución de continuidad, así como los derechos adquiridos en los regímenes de pensiones o jubilaciones a que estén amparados.
+(Así adicionado en sesión N° 03 del 7 de noviembre de 2009)
