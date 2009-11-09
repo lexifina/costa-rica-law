@@ -1,6 +1,7 @@
 CAPÍTULO XXVIII
 Prohibiciones
-Artículo 118.—Además de las prohibiciones que establece las otras disposiciones del presente reglamento, las demás normas del reglamento jurídico administrativo, en materia de empleo público. Convención, y Código de Trabajo, se prohibe al servidor municipal, lo siguiente.
+Artículo: 118.- Además de las prohibiciones que establece las otras disposiciones del presente Reglamento, las demás normas del Reglamento Jurídico Administrativo, en materia de empleo público, Convención y Código de Trabajo, se prohíbe al servidor municipal, lo siguiente:
+(Así reformado el párrafo anterior mediante acuerdo N° 19 tomado en sesión N° 88 del 9 de noviembre de 2009)
 1- Realizar directa o indirectamente, en favor de terceros, tramites de cualquier naturaleza en las dependencias municipales.
 2- Recibir en horas de trabajo visitas excesivas de carácter personal para tratar asuntos ajenos a su labor, quedando a salvo los casos importantes y urgentes previa autorización del jefe inmediato.
 3- Utilizar teléfonos, radiocomunicadores y demás instrumentos de comunicación propios de la institución para asuntos personales y- o ajenos a las funciones de su cargo.
@@ -30,3 +31,5 @@ Artículo 118.—Además de las prohibiciones que establece las otras disposicio
 27- Usar el poder oficial o la influencia que surja de él, para conferir o procurar servicios especiales, nombramientos, o cualquier otro beneficio personal que implique un privilegio, a sus familiares, amigos o cualquier otra persona, medie o no remuneración.
 28- Participar en transacciones financieras utilizando información de la Institución.
 30- Realizar actos de acoso laboral, entendiendo como tales aquellas acciones u omisiones tendientes a obstaculizar el normal desempeño de las labores a cualquier funcionario de la Municipalidad.
+31) Ofrecer o vender o de cualquier forma negociar o contratar personalmente o por intermedio de una persona jurídica, servicios profesionales o empresariales con otras instituciones o entidades (públicas o privadas), con superposición horaria o no, de bienes municipales, sean documentos, estudios, sistemas o programas informáticos, o bases de datos informáticos o bien, cualquier otro tipo de documentación y/o información similar o análoga, estén contenidas en medios físicos, digitales, informáticos o magnéticos, que pertenezcan a la Municipalidad de San José y por ende sean de propiedad y/o de uso exclusivo de la misma”.
+(Así adicionado el inciso anterior mediante acuerdo N° 19 tomado en sesión N° 88 del 9 de noviembre de 2009)
