@@ -1,0 +1,1 @@
+Artículo 3º—Por núcleo familiar, el importe se otorgará hasta el tercer hijo (a) por trabajador (a) de RECOPE. El importe que RECOPE dará por mes a cada niño (a) se hará efectivo siempre que el trabajador (a) presente mensualmente la factura que acredite el gasto correspondiente y la documentación requerida por la Dirección de Recursos Humanos.

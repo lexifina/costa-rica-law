@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento será de aplicación general para todos (as) los (as) trabajadores (as) de RECOPE, con hijos (as) con edades comprendidas entre los 6 meses y hasta los 6 años y 6 meses cumplidos.
