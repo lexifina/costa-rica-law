@@ -25,3 +25,19 @@ Inciso C: (...)
 (Así reformado por el artículo 7° incisos 1, 7, 20, 23, 29, 30 y 31, de la Ley N° 8453 del 22 de julio del 2005, publicado en el Alcance N° 28 a La Gaceta N° 154 del 11 de agosto del 2005)
 (Así reformado por el artículo 6° inciso 2 de la Ley N° 8465 del 25 de octubre del 2005)
 (Así reformado por el artículo 6° incisos 12, 13, 14, 15, 16, 17, 18, 19 y 20 de la Ley N° 8561 del 6 de noviembre del 2006)
+(Nota de Sinalevi:Mediante el artículo 6° de la ley N° 8785 del 28 de octubre de 2009, se modifica la presente ley, debido a que no es clara la reforma en cuanto a su ubicación, se transcribe la misma:
+"...Modificase la Ley de presupuesto ordinario y extraordinario de la República para el ejercicio económico del 2001, N° 8050, de la siguiente manera:
+Donde dice:
+Titulo 117,
+Programa 760-00
+7302724230216 MUNICIPALIDAD DE BAGACES
+Para construcción del gimnasio. Comunal de la Fortuna de Bagaces.
+Debe decir:
+Titulo 117, Programa 760-00
+7302724230216 MUNICIPALIDAD DE BAGACES
+Para construcción del gimnasio. Comunal de la Fortuna de Bagaces.
+Debe decir:
+Titulo 117, Programa 760-00
+7302724230216
+MUNICIPALIDAD DE BAGACES
+Compra de terreno para campo ferial en la Fortuna.")
