@@ -1,1 +1,0 @@
-Artículo 55.—El dinero obtenido en cada operación crediticia, deberá ser depositado íntegramente en la cuenta corriente del Partido y deberá conservarse copia de esos depósitos, así como de toda la documentación que respaldan esos créditos.

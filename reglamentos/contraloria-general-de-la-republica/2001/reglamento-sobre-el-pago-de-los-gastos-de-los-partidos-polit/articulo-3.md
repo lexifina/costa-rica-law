@@ -1,1 +1,0 @@
-Artículo 3°—Para el reconocimiento de los gastos de propaganda electoral, las empresas que presten los servicios de propaganda, deberán estar debidamente inscritas en el Tribunal Supremo de Elecciones.

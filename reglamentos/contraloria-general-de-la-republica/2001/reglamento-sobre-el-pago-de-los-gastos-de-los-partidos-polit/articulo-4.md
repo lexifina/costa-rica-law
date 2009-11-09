@@ -1,1 +1,0 @@
-Artículo 4°—La propaganda que efectúen los partidos políticos en los medios de comunicación escritos, la radio y la televisión, deberá estar ajustada a los límites de espacio y tiempo que defina la Ley.
