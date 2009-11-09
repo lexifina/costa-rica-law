@@ -1,1 +1,0 @@
-Artículo 24.—Con el fin de lograr un mejor aprovechamiento de los vehículos disponibles, la Sección de Transportes respectiva, o quien tenga a cargo su control, podrá agrupar para un mismo viaje, varias solicitudes de diferentes servidores u oficinas al mismo sitio o ruta, previo aviso a los interesados.

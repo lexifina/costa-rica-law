@@ -1,1 +1,0 @@
-Artículo 33.—Cuando el chófer viaje solo en el vehículo, no podrá hacer subir a otras personas, ya sean particulares o servidores judiciales, salvo que se trate de otros servidores que, conforme con este reglamento tengan derecho a usar vehículos del Poder Judicial.

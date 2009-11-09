@@ -1,1 +1,0 @@
-Artículo 10.—La Sección de Transportes del Departamento de Servicios Generales, tendrá a su cargo el control de los vehículos destinados a prestar servicio a las oficinas jurisdiccionales y administrativas.

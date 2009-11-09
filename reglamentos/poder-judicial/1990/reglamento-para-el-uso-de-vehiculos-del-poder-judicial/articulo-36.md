@@ -1,1 +1,0 @@
-Artículo 36.—Los vehículos del Poder Judicial estarán cubiertos contra accidentes, mediante pólizas emitidas por el Instituto Nacional de Seguros, por lo que, en ningún caso, los conductores dejarán de dar aviso oportuno de cualquier accidente por leve que le parezca. Si lo omitieren —por cualquier causa— serán responsables de las consecuencias que se deriven de esa omisión.

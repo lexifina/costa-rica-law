@@ -1,1 +1,0 @@
-Artículo 18.—En ]as Delegaciones y Subdelegaciones del Organismo de Investigación Judicial, así como en las demás oficinas que tengan automotores a su servicio, fuera del Circuito Judicial de San José, cuando no estén en uso, deberán ser guardados en los lugares que con ese propósito se establezcan.

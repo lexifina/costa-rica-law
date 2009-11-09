@@ -1,1 +1,0 @@
-Artículos 25.—En casos especiales, cuando existan otras posibilidades y resulte más ventajoso realizar un viaje utilizando servicios particulares de transporte de pasajeros, sin perjuicio para la efectividad u oportunidad del trabajo, se utilizará dicho transporte y no se ocuparán vehículos del Poder Judicial para ello.

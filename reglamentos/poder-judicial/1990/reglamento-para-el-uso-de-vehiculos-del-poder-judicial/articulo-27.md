@@ -1,3 +1,0 @@
-Artículo 27.—Igualmente se prohibe el traslado en vehículos del Poder Judicial, de personas que no sean servidores judiciales, salvo casos muy calificados en que la índole del transporte o el propósito del aviso lo justifiquen y siempre que tengan íntima relación con el trabajo que se ejecuta.
-En todos los casos, el conductor deberá informar a quien tenga a su cargo el control de los vehículos, los nombres de las personas que hayan viajado y las razones que mediaron para ello.
-Se exceptúa de esta prohibición el traslado de reos, heridos y testigos ligados directamente a las investigaciones que realicen los servidores del Organismo de Investigación Judicial.

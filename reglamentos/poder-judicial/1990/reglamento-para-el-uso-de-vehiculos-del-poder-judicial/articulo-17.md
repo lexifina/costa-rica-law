@@ -1,1 +1,0 @@
-Artículo 17.—Cuando no estén en servicio, los vehículos deberán permanecer en los estacionamientos del Circuito Judicial de San José. que para dichos efectos destine el Departamento de Servicios Generales .

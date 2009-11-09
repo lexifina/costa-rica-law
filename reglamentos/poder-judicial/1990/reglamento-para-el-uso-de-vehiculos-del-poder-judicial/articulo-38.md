@@ -1,1 +1,0 @@
-Artículo 38.—En todo caso los conductores serán responsables por los daños que le causen a los vehículos por dolo o culpa grave y estarán obligados a resarcir al Poder Judicial el costo de su reparación, sin perjuicio de las otras responsabilidades penales, civiles y disciplinarias que eventualmente deban asumir.

@@ -1,1 +1,0 @@
-Artículo 35.—Es prohibido para todos los conductores de vehículos del Poder Judicial ceder su conducción a otras personas, salvo razones muy calificadas, en cuyo caso, una vez finalizado el viaje deberá de informar los motivos que los llevaron a tomar esa decisión.

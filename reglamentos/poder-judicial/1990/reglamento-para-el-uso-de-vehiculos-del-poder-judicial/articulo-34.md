@@ -1,1 +1,0 @@
-Artículo 34.—Durante el traslado de detenidos, los choferes de ambulancia no podrán efectuar paradas que no estén debidamente autorizadas. En caso de desperfecto del vehículo, lo comunicará inmediatamente a su superior y por ningún motivo abrirán la puerta trasera de la ambulancia, salvo en casos de emergencia.
