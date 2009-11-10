@@ -15,3 +15,4 @@ Integración del Consejo Nacional de Desarrollo de la Comunidad
 | --- | --- | --- |
 | 1 | 2006-11-29 | la propia norma |
 | 2 | 2009-01-22 | Decreto Ejecutivo 35233 (2009-01-22) |
+| 3 | 2009-11-10 | Decreto Ejecutivo 35672 (2009-11-10) |
