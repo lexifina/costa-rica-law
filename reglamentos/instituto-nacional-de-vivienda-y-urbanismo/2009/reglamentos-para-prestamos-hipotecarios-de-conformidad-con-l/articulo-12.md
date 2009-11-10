@@ -1,0 +1,1 @@
+Artículo 12.—Si de la fiscalización contemplada en este Reglamento resultaren divergencias, el interesado podrá dirigirse por escrito al Área, Unidad o Proceso responsable, o bien directamente a la Gerencia General y podrá apelar ante la Junta Directiva, de conformidad el artículo 308 siguientes y concordantes de la Ley General de la Administración Pública.

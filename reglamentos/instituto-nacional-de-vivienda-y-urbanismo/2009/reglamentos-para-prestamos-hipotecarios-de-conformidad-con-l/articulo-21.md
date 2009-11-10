@@ -1,0 +1,1 @@
+Artículo 21.—El Área, Proceso o Unidad creada para tal fin, deberá a más tardar dentro de los siguientes treinta días, someter al seno de la Junta Directiva para su conocimiento y aprobación, el Manual Operativo para implementar el presente reglamento.

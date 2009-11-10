@@ -1,0 +1,1 @@
+Artículo 16.—Los créditos serán otorgados a un plazo inicial de quince años, según la modalidad del crédito solicitado, modificables según las políticas crediticias que defina la Junta Directiva de la Institución, previa solicitud de la Gerencia General.
