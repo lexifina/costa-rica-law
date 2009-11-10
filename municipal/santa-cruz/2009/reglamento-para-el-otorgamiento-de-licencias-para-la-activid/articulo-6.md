@@ -13,3 +13,5 @@ k. Permiso sanitario de funcionamiento.
 l. Certificado de uso de suelo.
 m. Póliza de riesgos profesionales del trabajo del INS o su exoneración cuando corresponda.
 n. Timbres fiscales por cien colones.
+ñ. Independientemente de los requisitos, solicitados en el artículo anterior, el petente deberá aportar una Declaración Jurada que indique expresamente su compromiso a dedicarse a la actividad de Porteador, en los términos indicados por la Asesoría Jurídica de esta Municipalidad.
+(Así adicionado el inciso anterior mediante sesión N° 45 del 10 de noviembre de 2009)

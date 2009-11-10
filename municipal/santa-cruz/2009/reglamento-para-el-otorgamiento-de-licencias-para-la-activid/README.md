@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de Licencias para la Actividad del Porteo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-23 | la propia norma |
+| 2 | 2009-11-10 | Reglamento municipal 45 (2009-11-10) |
