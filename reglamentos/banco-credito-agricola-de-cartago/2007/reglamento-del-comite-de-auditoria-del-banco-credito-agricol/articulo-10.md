@@ -1,2 +1,0 @@
-Artículo 10.—Actas. El Comité contará con una secretaría que será la encargada, junto con el coordinador, de preparar la agenda de la sesión.
-De cada sesión del Comité, se levantará un acta; de los asuntos tratados en cada sesión, la secretaria del Comité elaborará un resumen que le será remitido a la Junta Directiva en los diez días inmediatos posteriores, con el fin de informar sobre los asuntos tratados en la sesión del Comité.
