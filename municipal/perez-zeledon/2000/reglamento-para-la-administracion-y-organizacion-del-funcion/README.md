@@ -19,3 +19,4 @@ Reglamento para la Administración y Organización del Funcionamiento de Activid
 | 4 | 2003-07-15 | Reglamento municipal 63 (2003-07-15) |
 | 5 | 2008-05-20 | Reglamento municipal 108 (2008-05-20) |
 | 6 | 2008-10-07 | Reglamento municipal 128 (2008-10-07) |
+| 7 | 2009-11-10 | Reglamento municipal 185 (2009-11-10) |
