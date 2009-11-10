@@ -1,0 +1,1 @@
+Artículo 19.—Ninguna suspensión provisional podrá exceder de plazos mayores de dos meses. Vencido el plazo de una suspensión provisional sin que se envíe nota al abogado director que esté a cargo del caso, este tendrá el deber de indagar en el Proceso de Cobros el estado del caso para corroborar si debe o no continuar con la tramitación del juicio.

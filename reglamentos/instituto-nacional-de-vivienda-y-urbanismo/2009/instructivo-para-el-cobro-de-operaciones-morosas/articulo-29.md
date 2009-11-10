@@ -1,0 +1,1 @@
+Artículo 29.—La finalización del plazo de la contratación, no significa la destitución como abogado director el juicio, por lo que debe el profesional continuar con la atención de los juicios pendientes hasta su finalización.

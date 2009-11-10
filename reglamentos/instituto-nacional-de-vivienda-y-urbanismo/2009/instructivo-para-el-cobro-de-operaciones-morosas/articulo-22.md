@@ -1,0 +1,2 @@
+Artículo 22.—El abogado encargado de un juicio estará obligado a cotejar el edicto, antes de su publicación en el Boletín Judicial, con los documentos que fundamenta la demanda, con la notificación a las partes, siendo responsable de cualquier perjuicio que por error pudiese causar al INVU o a los obligados.
+El Instituto no reconocerá el costo de aquella publicación que se realizase sin que sea factible el remate.

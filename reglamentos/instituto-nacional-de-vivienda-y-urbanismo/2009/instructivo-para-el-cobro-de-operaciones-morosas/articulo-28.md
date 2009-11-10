@@ -1,0 +1,2 @@
+Artículo 28.—Los testimonios de escrituras, debidamente inscritos, deberán ser entregados al Proceso de Cobros, para el trámite de contabilización, y envío para su custodia al Proceso de Proyectos Terminados para su re adjudicación, con un desglose de los gastos incurridos con el fin de que sean incluidos en el precio de la nueva venta.
+Una vez cumplido con lo señalado el Proceso de Cobros enviará el expediente administrativo de Cobro para su custodia al Archivo Especializado de Expedientes de la Institución.

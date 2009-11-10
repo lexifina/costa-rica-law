@@ -1,0 +1,3 @@
+Artículo 26.—Cuando un bien sea adjudicado por el INVU en remate, el abogado director solicitará dentro del término de ley la verificación legal, la autorización para protocolizar piezas de escritura, que estará a su cargo y la cual está exenta del pago de gastos de registro, así como la gestión y retiro en forma personal de la resolución de puesta en posesión, que será entregada al Proceso de Cobros para su diligencia a través del Proceso correspondiente.
+Verificado el remate podrá el abogado director proceder al cobro de los honorarios.
+El abogado director del juicio puede gestionar el cobro de los honorarios notariales por la confección de la escritura de protocolización de piezas, con la presentación de la escritura debidamente inscrita, y la respectiva factura.

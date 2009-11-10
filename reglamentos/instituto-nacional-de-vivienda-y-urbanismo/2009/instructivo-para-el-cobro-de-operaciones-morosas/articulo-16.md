@@ -1,0 +1,3 @@
+Suspensión de la acción de cobro judicial
+Artículo 16.—El Proceso de Cobros podrá emitir dos clases de suspensiones de los procedimientos judiciales: suspensión definitiva y suspensión provisional, ésta última por una única vez durante el plazo de dos meses.
+En ambos casos en el momento en que el deudor se presente a realizar el arreglo respectivo, firmará un documento de acuerdo de suspensión o bien de finalización del proceso, el cual será previamente preparado en el Proceso de cobros, y entregado debidamente firmado por el demandado, al abogado director para su presentación en los tribunales.

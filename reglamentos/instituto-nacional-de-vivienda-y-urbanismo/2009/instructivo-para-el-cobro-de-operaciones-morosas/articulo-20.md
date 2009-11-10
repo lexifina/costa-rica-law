@@ -1,0 +1,8 @@
+Pago de honorarios
+Artículo 20.—Los honorarios profesionales estarán a cargo de los deudores, cuando se logre la recuperación de la deuda, por diligencia judicial o extrajudicial. Por lo tanto el Instituto no está obligado a la retribución de honorarios profesionales al abogado, quien percibirá por sus servicios las costas personales a cargo de la parte demandada en todos los casos.
+No obstante lo anterior, el INVU reconocerá el pago de honorarios profesionales, tomando como base los porcentajes que señale el Arancel de Honorarios del Colegio de Abogados, cuando se suspenda el juicio a solicitud de la institución, con el propósito de evitar posibles acciones por daños y perjuicios contra el Instituto, según criterio razonado por el Proceso de Cobros, o bien cuando producto del juicio el INVU se adjudique el bien.
+El cálculo de honorarios lo hará el Proceso de Cobros, tomando como base el último informe rendido del proceso judicial que conste en el expediente judicial institucional levantado al efecto y con base a los porcentajes que señale el Arancel de Honorarios del Colegio de Abogados, para cada tipo de proceso.
+Las sumas por concepto de honorarios serán depositadas en la cuenta contable definida para tales efectos por el Proceso de Cobros y en la cuenta individual de cada abogado, para ser entregadas a cada uno de ellos mediante la emisión de cheque.
+Bajo ninguna circunstancia el abogado podrá cobrar honorarios al deudor directamente.
+En consecuencia, el Instituto no pagará suma alguna por concepto de honorarios en aquellos casos en que el crédito insoluto no se haya recuperado.
+Prescriben por tres años las acciones por reclamo de honorarios y costas procesales, conforme lo establece el artículo 869 inciso 2) del Código Civil.

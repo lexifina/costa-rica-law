@@ -1,0 +1,3 @@
+Artículo 30.—El profesional le asiste el deber de prorrogar la vigencia de la garantía de cumplimiento por un plazo adicional de seis meses y continuar así sucesivamente mientras los procesos judiciales que atiende finalicen.
+Para efectos de las prórrogas de vigencia de la garantía de cumplimiento, sí prevenido el profesional del próximo vencimiento, no la amplia, la Institución ejecutará dicha garantía en el día hábil anterior, en resguardo al debido cumplimiento de las prestaciones inconclusas.
+Finalizados los trabajos pendientes y recibidos de conformidad por el Proceso de Cobros, se gestionará la devolución de la garantía por parte de la Proveeduría de la Institución en el plazo que señala la ley de la Contratación Administrativa.

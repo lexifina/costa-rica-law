@@ -1,0 +1,2 @@
+Artículo 23.—El abogado encargado deberá consultar al Coordinador del Proceso de Cobros, si existe alguna instrucción especial, con cinco días de anticipación al día fijado para el remate, con el propósito de que le sea suministrado cualquier tipo de información importante.
+Para tal efecto el Proceso de Cobros preparará constancia del estado actual de la operación, considerando las costas y bono en los casos en que se incluya.
