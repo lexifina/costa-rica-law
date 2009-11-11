@@ -1,0 +1,2 @@
+ARTÍCULO 3.-
+El Tribunal conocerá y resolverá, en alzada, los recursos de apelación, que interpongan contra las resoluciones de la Dirección Nacional de Pensiones, del Ministerio de Trabajo y Seguridad Social, dentro de los procesos declaratorios de derechos del Régimen de Pensiones y Jubilaciones del Magisterio Nacional, así como los demás asuntos que por ley o reglamento deban ser sometidos a su conocimiento. Para resolver los asuntos que se sometan a su conocimiento, el Tribunal contará con un plazo de dos meses.

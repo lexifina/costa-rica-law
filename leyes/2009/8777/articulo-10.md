@@ -1,0 +1,1 @@
+ARTÍCULO 10.-El Tribunal Administrativo del Servicio Civil estará integrado por tres miembros propietarios, quienes serán nombrados por el Ministerio de la Presidencia, así como sus respectivos suplentes. Este nombramiento será para un período de cinco años y sus miembros podrán ser reelegidos en forma indefinida. Serán juramentados por el ministro de la Presidencia.
