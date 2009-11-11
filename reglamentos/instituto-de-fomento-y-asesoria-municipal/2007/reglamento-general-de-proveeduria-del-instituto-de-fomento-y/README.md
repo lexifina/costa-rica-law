@@ -14,3 +14,4 @@ Reglamento General de Proveeduría del Instituto de Fomento y Asesoría Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-23 | la propia norma |
+| 2 | 2009-11-11 | Reglamento 3895 (2009-11-11) |
