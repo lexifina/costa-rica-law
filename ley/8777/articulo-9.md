@@ -1,0 +1,1 @@
+ARTÍCULO 9.-El Tribunal conocerá y resolverá en el plazo de dos meses los recursos de apelación, que sean interpuestos contra las resoluciones del Tribunal de Servicio Civil, en materia de despidos de los trabajadores sujetos al régimen de empleo del Estatuto de Servicio Civil, así como los demás asuntos que por ley o reglamento deban ser conocidos por este Tribunal.
