@@ -1,0 +1,2 @@
+ARTÍCULO 50.-
+Las personas extranjeras que gocen de permanencia migratoria legal bajo la categoría de residentes, no requerirán visa para ingresar al país, siempre que comprueben dicha condición migratoria. Por su parte, las personas extranjeras que no requieran visa para ingresar al país, bajo la categoría migratoria de no residentes, podrán cambiar de categoría migratoria si cumplen los requisitos exigidos para el acceso a tales categorías, las cuales serán definidas en el Reglamento de la presente Ley.

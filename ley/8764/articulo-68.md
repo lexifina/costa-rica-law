@@ -1,0 +1,7 @@
+ARTÍCULO 68.-
+La solicitud de ingreso y permanencia legal de las personas extranjeras deberá ser gestionada ante los agentes consulares de Costa Rica en el extranjero o, en su defecto, ante la Dirección General de Migración, por el interesado o por un representante debidamente autorizado mediante poder especial, de conformidad con los requisitos y las condiciones que determine el Reglamento de esta Ley.
+De la disposición anterior se exceptúan los siguientes casos, en los cuales la persona interesada deberá presentar su solicitud ante la Dirección General, la cual autorizará la apertura del expediente respectivo:
+1) Los parientes de ciudadanos costarricenses. Se entenderán como tales el cónyuge, los hijos, los padres y los hermanos solteros.
+2) Los parientes de personas extranjeras residentes legalmente en el país. Se entenderán como tales el cónyuge, los hijos y los padres de estos.
+3) En los casos en que la Dirección General de Migración emita una directriz, en relación con determinada categoría migratoria.
+Asimismo, en casos calificados de representantes, gerentes, ejecutivos y personal técnico de empresas, establecidos en el país o que se encuentren en proceso de establecimiento, universidades, órdenes religiosas y organizaciones no gubernamentales establecidas en el país, así como cualquier otro caso de carácter excepcional, la Dirección General podrá autorizar, discrecionalmente, la apertura del respectivo expediente de trámite de permanencia legal de la persona interesada y de su grupo familiar.

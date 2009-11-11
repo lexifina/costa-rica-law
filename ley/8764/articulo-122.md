@@ -1,0 +1,3 @@
+ARTÍCULO 122.-
+La expulsión de un refugiado que se halle legalmente en el territorio nacional, únicamente se efectuará por razones de seguridad nacional o de orden público, en virtud de una decisión tomada conforme a los procedimientos legales vigentes. Tal expulsión se verificará en un plazo razonable que le permita a la persona refugiada gestionar su admisión legal en otro país.
+De no ser que se opongan a ellos razones imperiosas de seguridad nacional o de orden público, deberá permitirse al refugiado que presente pruebas exculpatorias, formular recurso de apelación y hacerse representar, para este efecto, ante la autoridad competente.

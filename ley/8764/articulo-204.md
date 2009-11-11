@@ -1,0 +1,2 @@
+ARTÍCULO 204.-
+En el acto inicial deberán cumplirse los principios de imputación e intimación; también, deberán indicarse el objeto y los fines del procedimiento, los recursos administrativos procedentes, así como la oficina en que se encuentre el expediente administrativo para su consulta o para obtener las fotocopias necesarias; asimismo, deberá indicarse la obligación de aportar un medio o lugar para atender notificaciones.

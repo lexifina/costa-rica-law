@@ -1,0 +1,3 @@
+ARTÍCULO 123.-
+La declaratoria, los derechos y las obligaciones de la persona apátrida, se regirán por lo dispuesto en los convenios internacionales sobre la materia, debidamente ratificados por Costa Rica, que se encuentren vigentes, así como por el Reglamento de la presente Ley. Para efectos de la presente Ley, el término apátrida designará a toda persona que no sea considerada como nacional suyo por ningún estado, conforme a la legislación.
+La Dirección de Migración y Extranjería dictará, mediante Reglamento, el procedimiento de normalización migratoria de las personas sujetas a esta declaratoria.

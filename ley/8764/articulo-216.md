@@ -1,0 +1,3 @@
+ARTÍCULO 216.-
+La persona extranjera cuya expulsión se haya ordenado, podrá interponer, en el acto de notificación o dentro de los tres días hábiles siguientes a la notificación, recurso de revocatoria ante la Dirección General o de apelación ante el Tribunal Administrativo Migratorio. Si lo hace al ser notificada, la autoridad migratoria lo hará constar en el acta respectiva. La impugnación de la orden de expulsión suspenderá la ejecución de esta.
+En el escrito de apelación, el recurrente deberá ofrecer toda la prueba en la que fundamente su defensa, la cual será evacuada por el Tribunal, cuando sea pertinente.

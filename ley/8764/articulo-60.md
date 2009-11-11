@@ -1,0 +1,2 @@
+ARTÍCULO 60.-
+El Reglamento de la presente Ley establecerá los requisitos y procedimientos para el otorgamiento de visas de ingreso, sin que para tales efectos sea aplicable lo dispuesto en el título XII de la presente Ley, así como los casos en que se deba realizar un depósito de garantía antes del otorgamiento de la visa y en los casos en que tal depósito sea susceptible de exoneración por motivos de humanidad, oportunidad o conveniencia pública.

@@ -1,0 +1,2 @@
+ARTÍCULO 36.-
+Será obligación de toda persona que pretenda ingresar al territorio nacional o egresar de él, hacerlo exclusivamente por los puestos habilitados para tales efectos y someterse al control migratorio correspondiente, con el fin de determinar si cuenta con las condiciones y los requisitos legales y reglamentarios vigentes para permitirle el ingreso al país o la salida de él. En todos los casos deberá mediar la autorización correspondiente de la Dirección General, por medio del funcionario competente de la Policía Profesional de Migración y Extranjería.

@@ -1,0 +1,3 @@
+ARTÍCULO 233.-
+El Fondo Especial de Migración será administrado mediante un fideicomiso operativo, de conformidad con lo dispuesto en los artículos 185 de la Constitución Política y 66 de la Ley N.º 8131, Administración financiera de la República y presupuestos públicos, de 18 de setiembre de 2001, los cuales establecen que el patrimonio del Fondo debe ser administrado por la Tesorería Nacional en la caja única del Estado, en procura de una eficiente y transparente gestión de la Hacienda Pública.
+Los recursos del Fondo Especial de Migración no serán susceptibles de ser empleados en fideicomisos ni en otras figuras de inversión.

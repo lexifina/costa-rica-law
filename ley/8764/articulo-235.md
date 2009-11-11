@@ -1,0 +1,1 @@
+ARTÍCULO 235.-Los recursos del Fondo Especial de Migración serán destinados a cubrir los gastos corrientes y de capital de la Dirección de Migración y Extranjería, en forma adicional al presupuesto ordinario y extraordinario otorgado por el Ministerio de Hacienda.

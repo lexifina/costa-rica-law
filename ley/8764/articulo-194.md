@@ -1,0 +1,3 @@
+ARTÍCULO 194.-
+La Dirección General, de oficio o a solicitud de parte, podrá dictar las medidas cautelares razonables y necesarias para garantizar el resultado de los procedimientos administrativos que deba realizar en aplicación de la presente Ley. Para ejecutar medidas cautelares, podrá solicitarse la colaboración de las distintas policías.
+La persona extranjera a quien se le hayan dictado medidas cautelares podrá interponer recurso de apelación ante el Tribunal Administrativo Migratorio, en el acto de notificación o dentro de los tres días hábiles siguientes a la notificación. La impugnación de las medidas cautelares no suspenderá la ejecución de estas.

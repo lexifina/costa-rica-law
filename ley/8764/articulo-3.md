@@ -1,0 +1,3 @@
+ARTÍCULO 3.-
+Mediante la presente Ley se regula el control de las personas migrantes y se fomenta la integración de estas a la sociedad, con base en los principios de respeto a la vida humana, a la diversidad cultural y de las personas, a la solidaridad, la equidad de género, así como a los derechos humanos garantizados en la Constitución Política, los tratados y los convenios internacionales debidamente suscritos, ratificados y vigentes en el país.
+La Dirección de Migración y Extranjería determinará las condiciones para el ingreso de personas no residentes al país; para ello, establecerá los criterios para la clasificación de visa restringida, visa consular e ingreso sin visa.
