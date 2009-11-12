@@ -1,0 +1,1 @@
+Artículo 13.—Toda persona jurídica nacional, debidamente inscrita en el registro oficial correspondiente, tiene derecho de presentar nóminas de observadores nacionales a los procesos electorales o consultivos que organice el Tribunal Supremo de Elecciones.

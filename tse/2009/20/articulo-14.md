@@ -1,0 +1,1 @@
+Artículo 14.—Para ser acreditado como observador nacional, la persona deberá estar inscrita en el Padrón Electoral, no ser miembro de una junta receptora de votos, no ser fiscal acreditado por algún partido político, ni ser funcionario de organismos electorales.

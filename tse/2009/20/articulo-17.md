@@ -1,0 +1,1 @@
+Artículo 17.—Al local de las Juntas Receptoras de Votos no podrá ingresar más de un observador nacional a la vez por cada organización. En ningún caso podrán permanecer en las juntas más de cinco observadores en forma simultánea, como tampoco estacionarse de modo permanente en un local en particular.

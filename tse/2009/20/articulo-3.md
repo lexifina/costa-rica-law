@@ -1,0 +1,1 @@
+Artículo 3º—La observación electoral no podrá suplantar u obstaculizar el ejercicio de las atribuciones que constitucional y legalmente son de la exclusiva competencia del Tribunal Supremo de Elecciones y los demás organismos electorales.

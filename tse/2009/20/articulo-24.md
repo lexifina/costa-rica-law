@@ -1,0 +1,3 @@
+CAPÍTULO V
+Cancelación de la acreditación
+Artículo 24.—La Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos podrá cancelar, en cualquier momento, la acreditación del observador nacional o internacional que haga uso indebido de ella o que infrinja alguna de las disposiciones establecidas en este reglamento o en el resto de la normativa electoral. Esta cancelación será dispuesta mediante resolución motivada y podrá ser apelada ante el Tribunal Supremo de Elecciones dentro de los tres días posteriores a su notificación. Tales resoluciones podrán ser tomadas en cuenta por la Dirección indicada al valorar futuras gestiones de acreditación.

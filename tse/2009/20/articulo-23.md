@@ -1,0 +1,1 @@
+Artículo 23.—Los observadores internacionales que ostenten la categoría de “Misión Oficial” evaluarán el proceso observado bajo la coordinación del Centro de Asesoría y Promoción Electoral (CAPEL), en su calidad de Secretaría Ejecutiva de la Unión Interamericana de Organismos Electorales (UNIORE) y de los Protocolos de Tikal y Quito.
