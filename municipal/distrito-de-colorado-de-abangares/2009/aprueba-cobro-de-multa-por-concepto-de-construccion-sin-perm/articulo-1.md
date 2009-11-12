@@ -1,0 +1,4 @@
+CONCEJO MUNICIPAL DE DISTRITO DE COLORADO
+AVISOS
+Comunica que en acta ordinaria 36-2009, capítulo I, artículo 4, celebrada el día catorce de setiembre del año dos mil nueve, acordó por unanimidad y definitivamente, lo siguiente: “Aprobar el cobro de multa por concepto de construcción sin permiso, de la siguiente manera: 1). cuando la construcción tenga un avance superior al 50%, se cobra un monto igual al 100% del impuesto del permiso de construcción. 2). cuando la construcción tenga un avance menor al 50%, el monto de la multa, que se basa en el monto del impuesto de construcción, se reduce de manera proporcional desde un 100% con un avance del 50%, hasta llegar a un 0% cuando la construcción tenga un avance del 0%”. Rige a partir de su publicación.
+Colorado de Abangares, 2 de noviembre del 2009.
