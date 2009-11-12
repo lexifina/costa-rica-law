@@ -1,2 +1,6 @@
-Artículo 4º—El sello que debe llevar todo plano de construcción o de urbanización tendrá una vigencia de un año. Vencido el término, si la obra no se había ejecutado o la construcción estuvo paralizada, el interesado tendrá un período de un año, contado a partir de la fecha de sellado de los planos, para solicitar su renovación por otro período igual adjuntando una declaración jurada que enumere las razones por las que la obra no se ejecutó. Si transcurrido este plazo el interesado no solicitó el resello de los planos, deberá cumplir con los requisitos de una nueva solicitud de sello de planos.
-(Así reformado mediante sesión N° 40 del 11 de agosto del 2009).
+Artículo 4º—El sello que debe llevar todo plano de construcción o de urbanización tendrá una vigencia de un año. Si las obras no se ejecutan dentro del término señalado, deberá procederse de la siguiente manera:
+a) El interesado deberá solicitar la renovación o resello dentro de los dos meses siguientes al vencimiento del sello.
+b) Deberá cancelar la diferencia con respecto al pago de los timbres y derechos sufragados anteriormente.
+c) El Colegio Federado procederá a renovar o resellar el plano, el cual tendrá una vigencia de un año, contabilizado a partir de la fecha de vencimiento del sello plasmado originalmente. Una vez vencido dicho período, el interesado podrá solicitar, por una última vez, un nuevo resello del plano por otro período igual consecutivo.
+Si el interesado no cumpliere con los plazos señalados anteriormente, deberá cumplir con todos los requisitos de una nueva solicitud de sellado de planos.
+(Así reformado mediante acuerdo 30 de la sesión N° 01 del 12 de noviembre del 2009).
