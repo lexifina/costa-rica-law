@@ -16,3 +16,4 @@ Normativa de Relaciones Laborales de la Caja Costarricense de Seguro Social
 | 1 | 1998-10-16 | la propia norma |
 | 2 | 2006-05-10 | SINALEVI (sin norma nombrada) |
 | 3 | 2008-05-29 | Reglamento 8253 (2008-05-29) |
+| 4 | 2009-11-12 | Reglamento 8397 (2009-11-12) |
