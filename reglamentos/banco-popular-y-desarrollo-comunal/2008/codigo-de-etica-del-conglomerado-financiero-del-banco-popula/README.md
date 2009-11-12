@@ -14,3 +14,4 @@ Código de Ética del Conglomerado Financiero del Banco Popular y Desarrollo Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-15 | la propia norma |
+| 2 | 2009-11-12 | Reglamento 4713 (2009-11-12) |
