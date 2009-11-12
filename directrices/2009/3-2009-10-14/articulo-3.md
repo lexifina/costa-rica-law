@@ -1,0 +1,1 @@
+3º—Para los presentes efectos el Director General del Servicio Nacional de Salud Animal, informará al Despacho Ministerial de las acciones concretas desarrolladas, dirigidas a la implementación de los controles correspondientes para regular esta materia.

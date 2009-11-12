@@ -1,0 +1,1 @@
+2º—A efectos de cumplir lo anterior, el SENASA, deberá dictar las disposiciones de carácter regulatorio, que establezcan los procedimientos y procedimientos de control necesarios en consonancia con las diferentes regulaciones emitidas al respecto por el Ministerio de Agricultura y Ganadería y la Contraloría General de la República.
