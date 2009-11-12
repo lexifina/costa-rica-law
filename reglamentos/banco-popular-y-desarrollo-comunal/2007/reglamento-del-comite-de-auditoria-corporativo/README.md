@@ -14,3 +14,4 @@ Reglamento del Comité de Auditoría Corporativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-17 | la propia norma |
+| 2 | 2009-11-12 | Reglamento 4713 (2009-11-12) |
