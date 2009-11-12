@@ -15,3 +15,4 @@ Reglamento para el traspaso de fondos correspondientes a la cesantía de los tra
 | --- | --- | --- |
 | 1 | 2006-02-27 | la propia norma |
 | 2 | 2009-02-19 | Reglamento 4642 (2009-02-19) |
+| 3 | 2009-11-12 | Reglamento 4713 (2009-11-12) |
