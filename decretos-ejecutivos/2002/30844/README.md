@@ -14,3 +14,4 @@ Reforma al Reglamento para el Uso, Custodia y Conservación de los Teléfonos Ce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-19 | la propia norma |
+| 2 | 2009-11-13 | Decreto Ejecutivo 35732 (2009-11-13) |
