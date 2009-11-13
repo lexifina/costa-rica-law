@@ -40,3 +40,4 @@ PROGRAMASPRESUPUESTARIOS ADMINISTRACION SUPERIOR ADMINISTRACION DE RECURSOS HUMA
 (Reformado por los artículo 2°,*3°,4°,*5° y 6° aparte 16),17),de la Ley N° 8785 del 28 de octubre del 2009).*(Mediante el artículo 1° del decreto ejecutivo N° 35612 del 13 de noviembre de 2009, se modificó el artículo 3 y 5 de la ley N° 8785 del 28 de octubre de 2009, que reformó este artículo)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35612 del 13 de noviembre de 2009).
 (Modificado por el artículo 1° del decreto ejecutivo N° 35613 del 13 de noviembre de 2009).
+(Modificado por el artículo 1° del decreto ejecutivo N° 35614 del 13 de noviembre de 2009).
