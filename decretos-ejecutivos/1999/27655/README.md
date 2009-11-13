@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de los Vehículos de la Direcci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-02 | la propia norma |
+| 2 | 2009-11-13 | Decreto Ejecutivo 35619 (2009-11-13) |

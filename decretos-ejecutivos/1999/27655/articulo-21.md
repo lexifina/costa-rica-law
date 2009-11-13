@@ -1,2 +1,2 @@
-Artículo 21.—Utilización de vehículos fuera de la jornada ordinaria:
-Es prohibido el uso de vehículos administrativos en horas y días no hábiles, salvo que medir autorización suscrita por la Dirección o Subdirección y aquellos casos que por sus funciones lo requieren (específicamente los vehículos asignados a funciones propias de los aeropuertos internacionales).
+Artículo 21.—Utilización de vehículos fuera de la jornada ordinaria. Es prohibido el uso de vehículos administrativos en horas y días no hábiles, salvo que medie autorización escrita del Director o Subdirector General o en su defecto por el Coordinador del Área de Servicios de Apoyo y en aquellos casos en que por sus funciones lo requieren, específicamente los vehículos asignados a funciones propias de los aeropuertos internacionales.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 35619 del 13 de noviembre de 2009)
