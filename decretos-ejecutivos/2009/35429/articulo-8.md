@@ -1,0 +1,6 @@
+Artículo 8º—De los requisitos para la obtención del permiso para portar armas expedido por la Dirección General de Armamento del Ministerio de Seguridad Pública. Para solicitar el permiso de portación de armas todo funcionario deberá cumplir con los siguientes requisitos:
+8.1 Solicitud por escrito que consigne las calidades del gestionante, acompañando tres fotografías tamaño pasaporte.
+8.2 Aportar un timbre policial de un mil colones o uno fiscal, si no lo hubiere, del mismo valor conforme lo establece el artículo 39 de la Ley 7530.
+8.3 Los Agentes de Seguridad y Vigilancia deberán presentar documento de aprobación de la prueba teórico-práctica, realizada por el Ministerio de Seguridad Pública, en original y fotocopia y dictamen médico psicológico extendido por el Consultorio Médico del MOPT, como prueba de que el funcionario cuenta con aptitud física y psicológica para usar armas.
+8.4 Los Oficiales de Tránsito deben presentar el Certificado del Curso Teórico Básico en Administración Vial, que incluye tanto la prueba teórico-práctica como psicológica, en original y copia.
+8.5 Oficio de autorización de la jefatura inmediata del Interesado, dirigido al Jefe de Armería o al Jefe de Seguridad y Vigilancia, según corresponda.

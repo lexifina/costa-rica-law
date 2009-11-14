@@ -1,0 +1,1 @@
+Artículo 31.—Prohibición de ingreso a locales de custodia de armas. Los Encargados no podrán permitir la entrada de personal ajeno a los locales de custodia de armas, cargadores y municiones, así como guardar en ellos cualquier otro objeto.

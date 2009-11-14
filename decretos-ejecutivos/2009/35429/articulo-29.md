@@ -1,0 +1,1 @@
+Artículo 29.—Actualización del inventario de armamento. Con base en el oficio mencionado en el artículo anterior, el Encargado procede a actualizar las “Tarjetas de Control de Inventario de Municiones” y comunicarlo a la Dirección General de Armamento.

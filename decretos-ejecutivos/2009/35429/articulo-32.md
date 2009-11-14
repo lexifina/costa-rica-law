@@ -1,0 +1,1 @@
+Artículo 32.—Deberes de los jefes inmediatos. Los jefes inmediatos deberán velar porque los responsables no se lleven o utilicen el armamento oficial en asuntos de su vida privada ni cuando estén fuera de servicio, de vacaciones, incapacitados, con permiso, suspendidos, o cuando, por cualquier razón, ya han dejado de pertenecer al recurso humano que labora para esta Cartera.

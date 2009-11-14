@@ -1,0 +1,2 @@
+Artículo 7º—Trámite del permiso ante la Dirección General de Armamento del Ministerio de Seguridad Pública. Para la obtención del permiso para portar armas deberá el interesado presentar una solicitud ante la Dirección General de Armamento del Ministerio de Seguridad Pública.
+En el caso de los oficiales de tránsito la solicitud se presentará ante el Jefe de Armería y para el caso de los Agentes de Seguridad y Vigilancia del MOPT, independientemente de la región o zona donde se ubiquen las oficinas, ante la dependencia encargada de la Armería de este Ministerio.
