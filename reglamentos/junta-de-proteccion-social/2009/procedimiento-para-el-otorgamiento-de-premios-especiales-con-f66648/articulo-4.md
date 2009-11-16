@@ -1,0 +1,1 @@
+Artículo 4º—Caducidad: Los premios especiales a otorgar cuentan con el mismo plazo de caducidad de los premios regulares, establecido en el artículo 18 de la Ley Nº 8718, publicada en el Alcance Nº 9 a La Gaceta Nº 34 del 18 de Febrero del 2009.
