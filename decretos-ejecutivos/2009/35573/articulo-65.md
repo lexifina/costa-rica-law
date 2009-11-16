@@ -1,0 +1,1 @@
+Artículo 65.—De la sanción y responsabilidad del acosador: El acoso laboral será considerado falta grave, y todo servidor, a quien se le compruebe haber incurrido en éste, podrá ser despedido sin responsabilidad patronal, de conformidad con las normas sancionatorias de estos comportamientos, establecidas en este Reglamento y en la legislación vigente.

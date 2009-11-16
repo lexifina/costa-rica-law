@@ -1,0 +1,2 @@
+Artículo 70.—Del competente para conocer la denuncia. El servidor que se considere afectado por acoso laboral o sexual, deberá plantear la denuncia respectiva en forma verbal o escrita ante el Director General o ante la Oficina de Recursos Humanos.
+El Director General está en la obligación de informar a la Defensoría de los Habitantes sobre la denuncia por hostigamiento sexual que se reciba, así como el resultado del procedimiento que se realice.

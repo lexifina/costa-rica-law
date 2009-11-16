@@ -1,0 +1,1 @@
+Artículo 54.—De las suspensiones sin goce de salario: Toda suspensión sin goce de salario que pueda proceder, a consecuencia de aspectos disciplinarios, será impuesta por el Director General, previa información levantada por la Asesoría Jurídica, con la necesaria observancia de los Principios Constitucionales del Debido Proceso y Derecho a la Defensa.

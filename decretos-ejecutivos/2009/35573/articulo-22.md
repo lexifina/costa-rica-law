@@ -1,0 +1,1 @@
+Artículo 22.—De los días feriados laborados: Se exceptúan del disfrute de estos días, aquellos servidores que por la naturaleza de sus funciones deban laborarlos, en cuyo caso tendrán derecho al pago de conformidad como lo establece la normativa vigente.

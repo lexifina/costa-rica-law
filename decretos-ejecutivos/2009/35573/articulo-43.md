@@ -1,0 +1,1 @@
+Artículo 43.—De las licencias para Estudio: La Dirección General, podrá otorgar o conceder licencia para estudio a los servidores regulares, de conformidad con lo que dispone el artículo 37 del Reglamento del Estatuto de Servicio Civil.
