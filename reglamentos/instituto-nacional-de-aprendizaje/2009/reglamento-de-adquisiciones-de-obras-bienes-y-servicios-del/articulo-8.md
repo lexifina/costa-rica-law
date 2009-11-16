@@ -1,0 +1,13 @@
+Artículo 8º—Solicitudes de adquisiciones. Los encargados de los Centros de Costos o quien ellos designen formalmente, estarán autorizados para realizar las solicitudes de adquisiciones de las obras, bienes y servicios en el SIREMA. Asimismo serán los responsables de verificar el cumplimiento del objeto de la contratación, salvo disposición en contrario.
+Para el cumplimiento de la justificación establecida en el artículo 8º, inciso a) del RLCA en las contrataciones de estudios de determinación de necesidades, el diseño curricular y la ejecución total o parcial de los SCFP en todas sus formas de entrega, se podrán tomar las fuentes establecidas para la identificación de las necesidades y requerimientos en formación profesional del diseño de servicios de capacitación contenidas en el Modelo Curricular de la Institución.
+La Justificación de la solicitud de adquisición deberá ser formulada por el encargado del Centro de Costo considerando:
+- La finalidad pública del objeto de contratación, en concordancia con los planes de largo y mediano plazo, el Plan Nacional de Desarrollo, el Plan Anual Operativo, el presupuesto, la disponibilidad presupuestaria para la adquisición de obras, bienes y el Programa de Adquisiciones Institucional.
+- La descripción del objeto de la contratación (las especificaciones técnicas) que permitan satisfacer los requerimientos internos y que correspondan a la realidad del mercado.
+- Los procedimientos de control de calidad que se aplicarán durante la ejecución del contrato y para la recepción de la obra, bien o servicio.
+- La estimación actualizada del costo del objeto.
+- En las licitaciones públicas deberá acreditarse la existencia de estudios que demuestren que los objetivos del proyecto de contratación serán alcanzados con una eficiencia y seguridad razonables, se deberá justificar cuando no resulte pertinente.
+- Indicación expresa de los recursos humanos y materiales a disponer para verificar la correcta ejecución del contrato.
+- La designación de un encargado general del contrato cuando se requiera.
+- Establecer los factores de calificación y su aplicación.
+- Deberá además incluir cualquier otro aspecto de relevancia para la contratación, como el requerimiento de capacitación, garantías, plazos de entrega, entre otros aspectos.
+La presentación incompleta o poco clara de la información, facultará al Proceso de Adquisiciones a prevenir por una única vez la justificación de la solicitud de adquisición, para lo cual los Centros de Costos contarán con un plazo de dos días hábiles para solventar el problema, de no procederse con lo requerido de manera satisfactoria, se anulará la solicitud de trámite.
