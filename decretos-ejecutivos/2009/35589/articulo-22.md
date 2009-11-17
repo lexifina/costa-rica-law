@@ -1,0 +1,1 @@
+Artículo 22.—El estudiante procedente del extranjero que ingrese antes del 30 de mayo, según lo que señala el artículo anterior, debe definir su condición académica en el primer período. La institución educativa correspondiente le brindará los objetivos y contenidos de cada asignatura en los que se debe examinar, para establecer las calificaciones de ese primer período.

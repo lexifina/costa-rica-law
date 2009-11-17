@@ -1,0 +1,6 @@
+SECCIÓN IV
+De la matrícula de estudiantes procedentes del extranjero
+Artículo 17.—Para matricular a un estudiante procedente del extranjero en cualquiera de los niveles y modalidades educativas, es estrictamente necesario cumplir con los requisitos generales y particulares que se señalan en los artículos anteriores. Además deberá presentar ante el director de la institución educativa, los documentos que se indican a continuación:
+a) Para matricularse en Educación Preescolar o en el primer año de la Educación General Básica, se debe cumplir con los correspondientes requisitos establecidos en el artículo 12 de este Reglamento.
+b) Para matricularse en segundo, tercero, cuarto, quinto o sexto año de la Educación General Básica, debe presentarse certificación oficial del último año cursado y aprobado, con el correspondiente plan de estudios, las calificaciones obtenidas y las equivalencias de notas en el país de procedencia. Toda la documentación deberá estar debidamente legalizada.
+c) La gestión para matricularse en el III Ciclo de la Educación General Básica y en la Educación Diversificada, debe realizarse ante el director de la institución educativa; se debe adjuntar, certificación oficial del plan de estudios, calificaciones obtenidas y equivalencias de todos los años cursados y aprobados. Toda la documentación deberá estar debidamente legalizada.

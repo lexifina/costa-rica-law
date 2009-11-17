@@ -1,0 +1,1 @@
+Artículo 7º—Le corresponde al Supervisor de cada circuito escolar: supervisar, asesorar y verificar que los procesos de matrícula se realicen adecuadamente en todas las instituciones educativas y en todas las modalidades de su circuito, con la finalidad de garantizar el derecho a la educación de los estudiantes.

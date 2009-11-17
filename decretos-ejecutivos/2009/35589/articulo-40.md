@@ -1,0 +1,1 @@
+Artículo 40.—El estudiante de Colegio Técnico Profesional con asignaturas reprobadas en décimo o undécimo año, que desee trasladarse a una institución académica, deberá repetir las asignaturas académicas reprobadas.

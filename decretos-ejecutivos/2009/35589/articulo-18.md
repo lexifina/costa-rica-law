@@ -1,0 +1,1 @@
+Artículo 18.—Una vez presentados por los interesados los documentos señalados en el artículo 17, el director de la institución educativa los revisa, verifica y resuelve en un plazo no mayor a un mes calendario. En caso de requerirlo podrá solicitar criterio al Departamento de Asesorías Pedagógicas de la Dirección Regional de Educación respectiva.

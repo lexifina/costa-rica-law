@@ -1,0 +1,1 @@
+Artículo 24.—El director de una institución educativa no puede conceder matrícula ordinaria, ni extraordinaria a un estudiante procedente del extranjero que no haya cumplido con los requisitos planteados en los artículos 17 y 19 de este Reglamento.
