@@ -20,3 +20,4 @@ Reglamento de Mutualidad y Subsidios del Colegio de Enfermeras de Costa Rica
 | 5 | 1978-10-04 | Decreto Ejecutivo 9180 (1978-10-04) |
 | 6 | 1980-07-22 | Decreto Ejecutivo 11709 (1980-07-22) |
 | 7 | 1983-04-07 | Decreto Ejecutivo 14425 (1983-04-07) |
+| 8 | 2009-11-17 | Decreto Ejecutivo 35943 (2009-11-17) |
