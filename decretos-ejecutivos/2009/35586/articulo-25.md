@@ -1,0 +1,1 @@
+Artículo 25.—Agotamiento de la vía administrativa. Corresponderá al Ministro de Obras Públicas y Transportes conocer y resolver el recurso de apelación que subsidiariamente se haya interpuesto contra los actos de la Comisión de Carreteras de Acceso Restringido, así como de los incidentes que se hubieren formulado, dando por agotada la vía administrativa.

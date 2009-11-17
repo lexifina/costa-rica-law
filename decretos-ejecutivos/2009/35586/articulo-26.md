@@ -1,0 +1,1 @@
+Artículo 26.—Recursos Financieros. El MOPT a través del Consejo Nacional de Vialidad y otras dependencias administrativas, dotará a la Comisión de Carreteras de Acceso Restringido de un Presupuesto Anual con el fin de que ésta disponga de los recursos necesarios para la inspección y cierre de accesos ilegales, así como para el funcionamiento óptimo de la Comisión.
