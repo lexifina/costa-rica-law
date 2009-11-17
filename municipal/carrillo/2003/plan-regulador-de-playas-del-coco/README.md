@@ -14,3 +14,4 @@ Plan Regulador de Playas del Coco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-10 | la propia norma |
+| 2 | 2009-11-17 | Reglamento municipal 45 (2009-11-17) |
