@@ -1,0 +1,1 @@
+Artículo 2º—En lo demás, el inciso g) del artículo 3 del Decreto Ejecutivo Nº 33111-MEIC del 06 de abril del 2006, publicado en el Diario Oficial La Gaceta Nº 97 del 22 de mayo del 2006: “Reglamento General a la Ley Nº 8262 de Fortalecimiento de las Pequeñas y Medianas Empresas” queda incólume.
