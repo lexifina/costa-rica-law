@@ -1,0 +1,2 @@
+ARTÍCULO 48.-
+Las directrices generales de visas de ingreso y permanencia para no residentes contemplarán los países que no requerirán visa, los que requerirán visa consular y los que requerirán visa restringida. Las visas consulares deberán ser gestionadas ante los agentes consulares costarricenses, y las visas restringidas deberán ser solicitadas personalmente ante los agentes consulares costarricenses, o ante la Dirección General, por un tercero interesado debidamente autorizado mediante poder especial.

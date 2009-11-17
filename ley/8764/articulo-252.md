@@ -1,0 +1,2 @@
+ARTÍCULO 252.-
+Los nacionales que soliciten pasaporte o salvoconducto, así como las personas extranjeras que requieran cédula de extranjería, deberán cancelar a favor del Estado la suma de treinta dólares en moneda de los Estados Unidos de América (US$30,00), o su equivalente en colones al tipo de cambio de referencia “venta” que diariamente calcula y publica el Banco Central de Costa Rica. El monto establecido deberá cancelarse mediante entero a favor del Gobierno de la República o mediante otra forma idónea que garantice una recaudación adecuada.

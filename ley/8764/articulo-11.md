@@ -1,0 +1,10 @@
+ARTÍCULO 11.-
+Serán funciones del Consejo las siguientes:
+1) Recomendar al Poder Ejecutivo la política migratoria y las medidas y acciones necesarias para su ejecución, orientadas a la promoción de los derechos humanos de las personas migrantes en coordinación con instituciones públicas, los organismos internacionales y las organizaciones sociales; las modificaciones de la legislación migratoria o de materias conexas que considere necesarias o convenientes.
+2) Divulgar información sobre materia migratoria que permita impulsar programas y proyectos favorables para la integración social de las personas extranjeras que residan en el país, como sujetos activos en el desarrollo nacional.
+3) Recomendar, a la Dirección de Migración y Extranjería, el diseño de acciones y programas dirigidos a la población costarricense residente en el exterior tendientes a vincularla efectivamente al país; el desarrollo de acciones que eviten la discriminación y cualquier forma de violencia contra la población extranjera que habita en Costa Rica.
+4) Promocionar la participación de la sociedad civil en el proceso de formulación y ejecución de las políticas migratorias.
+5) Asesorar a la Dirección General acerca de los proyectos de integración que se ejecuten para atender las necesidades de la población migrante.
+Coordinar en su seno las acciones públicas que en materia migratoria desarrollan cada una de las instituciones representadas en el Consejo de Migración, así como del resto del sector público.
+7) Nombrar y destituir a los miembros propietarios y suplentes del Tribunal Administrativo Migratorio.
+Para el cumplimiento de sus funciones, el Consejo podrá convocar a cualquier persona física o jurídica, grupo étnico u organismo internacional relacionado con algún tema en discusión. Siempre que esté involucrado un menor de edad, el Consejo convocará a un representante del Patronato Nacional de la Infancia (PANI), a efectos de garantizar el respeto de los derechos consagrados en el Código de la Niñez y la Adolescencia.

@@ -1,0 +1,2 @@
+ARTÍCULO 195.-
+Toda gestión presentada ante las autoridades migratorias deberá señalar lugar para recibir notificaciones, según lo establecido en el Reglamento de la presente Ley, salvo si en el expediente administrativo consta lugar señalado o si se ha indicado cualquier medio electrónico mediante el cual sea posible realizar la notificación. Si no se cumple dicha obligación, los actos emitidos por la Dirección General se tendrán por notificados, en el término de veinticuatro horas.

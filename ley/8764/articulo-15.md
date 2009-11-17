@@ -1,0 +1,5 @@
+CAPÍTULO IV
+POLICÍA PROFESIONAL DE MIGRACIÓN Y EXTRANJERÍA
+ARTÍCULO 15.-
+La Policía Profesional de Migración y Extranjería será un cuerpo policial especializado de la Fuerza Pública; estará adscrito a la Dirección General de Migración y Extranjería y será regido por la Ley general de policía, N.º 7410, de 26 de mayo de 1994, y sus reformas. Este cuerpo policial tendrá competencia específica para controlar y vigilar el ingreso de personas al territorio nacional, o el egreso de él, así como la permanencia y las actividades que en el territorio nacional llevan a cabo las personas extranjeras, de conformidad con las disposiciones de la presente Ley y su Reglamento.
+Operativamente, estará a cargo del director general, cuyas instrucciones, órdenes y directrices serán de acatamiento obligatorio. La organización, las funciones, los grados y las obligaciones de la Policía Profesional de Migración y Extranjería se establecerán vía reglamento; asimismo, este cuerpo normativo conformará una junta policial, que tendrá una función asesora ante el director, sobre la marcha y administración de dicho cuerpo policial.

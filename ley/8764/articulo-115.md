@@ -1,0 +1,2 @@
+ARTÍCULO 115.-
+No podrán ser deportadas al territorio del país de origen, las personas refugiadas y las personas solicitantes de refugio que debido a fundados temores de ser perseguidas por motivos de raza, religión, nacionalidad, género, pertenencia a determinado grupo u opiniones políticas, se encuentren fuera del país de su nacionalidad y no puedan o, por causa de dichos temores, no quieran acogerse a la protección de tal país.

@@ -1,0 +1,2 @@
+ARTÍCULO 55.-
+La visa implica una mera expectativa de derecho, no supone la admisión incondicional de la persona extranjera al país ni la autorización de permanencia pretendida; estará supeditada a un depósito de garantía, en los casos que corresponda según la presente Ley y su Reglamento, así como al control migratorio que el funcionario competente realice para verificar el cumplimiento de todos los requisitos legales y reglamentarios exigidos para el ingreso.

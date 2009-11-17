@@ -1,0 +1,3 @@
+ARTÍCULO 117.-
+Para el reconocimiento de la condición de refugiado, asilado y el de otras personas protegidas por instrumentos internacionales, el procedimiento será determinado vía reglamento, de conformidad con la Ley general de la Administración Pública y la Ley general de control interno; para tal efecto, se exceptúa la aplicación de los procedimientos administrativos determinados por la presente Ley.
+En todo caso, el procedimiento para determinar la condición de refugiado será llevado a cabo sin costo alguno para la persona y de manera más expedita, sin perjuicio de las garantías procesales y los derechos del peticionante.

@@ -1,0 +1,2 @@
+ARTÍCULO 108.-
+A efectos de ejercer los derechos vinculados a la Ley de migración y extranjería, la persona refugiada debidamente reconocida recibirá, por parte de la Dirección General de Migración, una identificación que acredite su permanencia legal en el país y en razón de tal condición podrá ejercer cualquier tipo de actividad laboral remunerada o lucrativa, por cuenta propia o en relación de dependencia, con estricto apego a lo dispuesto en el ordenamiento jurídico.

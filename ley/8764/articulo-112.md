@@ -1,0 +1,2 @@
+ARTÍCULO 112.-
+La condición de asilado únicamente podrá ser concedida por el Poder Ejecutivo. Al Ministerio de Relaciones Exteriores y Culto le corresponderá realizar una investigación de cada solicitud para obtener tal condición, que le permita determinar las circunstancias de urgencia que lo motivan y verificar que estas se apeguen a las condiciones contenidas en los instrumentos internacionales que rigen la materia, debidamente ratificados por Costa Rica. Concluida la investigación, dicho Ministerio emitirá la recomendación al presidente de la República.
