@@ -1,4 +1,0 @@
-Artículo 21.—Uso de impresoras:
-a) Los dispositivos de impresión, deberán ser utilizados única y exclusivamente para imprimir documentación propiedad de INCOP. La utilización de estos recursos en actividades ajenas a la institución, provocará que TI realice el reporte respectivo al Departamento de Recursos Humanos para que éste proceda según corresponda.
-b) Cada vez que personal del Departamento de Tecnologías de Información instale un dispositivo de impresión, éste con base a criterios técnicos y a necesidades de las áreas, determinará si el recurso será compartido o privado.
-c) Los coordinadores de áreas o directores serán los únicos autorizados a solicitar que determinado recurso de impresión compartido (léase punto b.), sea accedido por usuarios o grupos de usuarios. No obstante, deberá haber un visto bueno del responsable o encargado del equipo en cuestión.
