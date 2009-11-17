@@ -1,0 +1,2 @@
+Artículo 36.—Definición de horas extraordinarias. Se entiende por jornada extraordinaria, el trabajo efectivo que se ejecuta fuera de la jornada ordinaria, en forma ocasional, excepcional y transitoria, en tales condiciones este trabajo extraordinario deberá ser remunerado de acuerdo con lo que establezca la normativa jurídica vigente.
+No se consideran horas extraordinarias las que el servidor ocupe para subsanar errores imputables sólo a él.

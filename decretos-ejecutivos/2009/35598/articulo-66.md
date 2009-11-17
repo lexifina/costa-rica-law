@@ -1,0 +1,1 @@
+Artículo 66.—Clasificación de las faltas. Para efectos de las anteriores sanciones, las faltas se clasificarán como leves, de alguna gravedad o graves, según la trascendencia y las veces que se hayan cometido las mismas a juicio del Director General y/o la Sección Recursos Humanos, previa consulta con el superior inmediato respectivo.

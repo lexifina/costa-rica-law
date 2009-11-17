@@ -1,0 +1,1 @@
+Artículo 39.—Del desempeño en horas y días hábiles. Los funcionarios están obligados a desempeñar sus cargos todos los días hábiles y durante todas las horas reglamentarias. No podrá concederse privilegio, prerrogativa o ventaja que autorice una asistencia irregular, o variación en las horas de entrada y salida.

@@ -1,0 +1,1 @@
+Artículo 21.—Derecho a la capacitación. Los funcionarios de la Imprenta Nacional, podrán ser capacitados y obtener formación complementaria, mediante cursos, seminarios y otros, previa aprobación del estudio técnico emitido por la Sección de Recursos Humanos y/o la Comisión de Becas.

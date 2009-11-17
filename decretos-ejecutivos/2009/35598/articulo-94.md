@@ -1,0 +1,1 @@
+Artículo 94.—Licencia sin goce salarial hasta por un mes. Las licencias sin goce de salario se otorgarán en casos muy calificados, de conformidad con lo dispuesto en el artículo 33, inciso c) del Reglamento del Estatuto de Servicio Civil, serán autorizados hasta por un mes como máximo y serán otorgadas por el Director General.

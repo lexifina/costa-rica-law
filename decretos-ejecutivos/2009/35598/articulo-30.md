@@ -1,0 +1,1 @@
+Artículo 30.—Derecho al pago de indemnizaciones laborales. Mediante el pago del preaviso y del auxilio de cesantía correspondientes, la Imprenta Nacional podrá cesar al funcionario que exceda los plazos previstos en el artículo 36 del Reglamento del Estatuto de Servicio Civil en los términos y condiciones ahí señaladas.

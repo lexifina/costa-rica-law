@@ -1,0 +1,1 @@
+Artículo 46.—Falla en el dispositivo de marca de asistencia. Cuando no funcione el dispositivo de asistencia designado al efecto por la Imprenta Nacional, la Sección de Recursos Humanos indicará la forma en que se llevará a cabo el control de asistencia y puntualidad.

@@ -1,0 +1,4 @@
+Artículo 93.—Casos de excepción para laborar bajo de la jornada ordinaria. No podrán concederse permisos para trabajar menos horas de la jornada diaria o semanal salvo por motivo de estudios en la forma ya regulada, no obstante, cuando se trate de labores docentes en instituciones de nivel superior, será permitido que servidores regulares trabajen menos de la jornada señalada, bajo las siguientes condiciones:
+a) Siempre que la labor respectiva del puesto pueda ser desempeñada eficientemente en un período menor de la jornada ordinaria o semanal a efecto de que no sea necesario el nombramiento de un sustituto, por el tiempo que esté ausente el titular.
+b) Que se suscriba un convenio entre la Imprenta Nacional y el servidor.
+c) Que el servidor devengue solamente el sueldo proporcional correspondiente al tiempo efectivo de trabajo.

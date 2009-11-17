@@ -1,0 +1,10 @@
+CAPÍTULO XIII
+Mecanismos y procedimientos de justificaciones en la asistencia
+Artículo 58.—Procedimiento administrativo para la justificación del Registro de asistencia. El Registro de Asistencia será computado mensualmente y de acuerdo al siguiente procedimiento:
+a) El primer día hábil de cada mes la Sección de Recursos Humanos emitirá un reporte de asistencia de cada funcionario, el cual debe ser retirado por cada jefe inmediato para entregar a sus subalternos.
+b) Dentro de los tres días hábiles posteriores, el funcionario revisará su registro de asistencia y presentará las justificaciones correspondientes.
+c) El jefe inmediato valorará las justificaciones y a un máximo del quinto día hábil siguiente, remitirá a la Sección de Recursos Humanos el Formulario “Reporte Mensual de Asistencia”, en el mismo reportará individualmente todas y cada una de las incidencias en la asistencia de sus subalternos, señalando expresamente las que no fueron justificadas o no aprobadas, para que se aplique lo correspondiente.
+Asimismo deberá comunicar los rebajos que se deban aplicar, así como su motivo, de manera sucinta; igualmente debe adjuntar las boletas de incapacidades del médico de la Caja de Seguro Social o del Instituto Nacional de Seguros o médico particular, u otros que considere oportunos.
+d) La Sección de Recursos Humanos, registrará y comprobará en el sistema correspondiente, las justificaciones que reporta cada jefatura, a efectos de mantener actualizado el reporte de asistencia con las justificaciones de cada funcionario. En caso de detectarse casos injustificados o irregularidades, se comunicará al jefe responsable a fin de que brinde las explicaciones de su omisión en el reporte mensual.
+e) Cada jefe inmediato deberá llevar su propio mecanismo de control y registro, el cual podrá ser solicitado por la Sección de Recursos Humanos para las verificaciones que requiera.
+f) El jefe inmediato que incumpliera con la presentación de este reporte será sancionado conforme a lo establecido en el capítulo correspondiente.

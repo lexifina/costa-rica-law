@@ -1,0 +1,4 @@
+Artículo 111.—Procedimiento para denunciar. Quien quiera denunciar acoso u hostigamiento sexual contra una persona o personas, cualquiera que sea su rango, podrá hacerlo en forma oral o escrita ante la Dirección General o ante el Ministro, ofreciendo en el mismo acto toda la prueba que considere oportuna.
+En caso de formularse la denuncia de manera oral, en el mismo acto se levantará acta, la cual deberá ser firmada por el o la denunciante.
+Inmediatamente después de recibida la denuncia, el órgano superior jerárquico instruirá al Órgano Director con el fin de realizar el procedimiento de investigación.
+El Órgano Director deberá resolver el asunto dentro de un plazo máximo de tres meses, bajo pena de prescripción, pasado dicho período sin que se pronuncie, la persona afectada podrá solicitar el agotamiento de la vía administrativa.

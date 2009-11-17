@@ -1,0 +1,1 @@
+Artículo 47.—Encargado del control de asistencia. El jefe inmediato será el responsable de todo lo concerniente al control de asistencia de los funcionarios bajo su cargo, así como de la tramitación de los procedimientos correspondientes, establecidos en el capítulo XIII del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 4º—Efectos de este Reglamento. El presente Reglamento es de acatamiento obligatorio para todos los funcionarios de la Imprenta Nacional, a efecto de que las labores se lleven a cabo dentro de la armonía requerida, con la mayor eficacia y eficiencia posibles, en concordancia con los principios que rigen el servicio público y en aras de la satisfacción del interés público.

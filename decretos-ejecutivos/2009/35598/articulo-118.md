@@ -1,0 +1,1 @@
+Artículo 118.—Eliminación de barreras arquitectónicas. La Imprenta Nacional procurará la eliminación de barreras arquitectónicas que impidan o dificulten la atención e ingreso de las personas con discapacidad.

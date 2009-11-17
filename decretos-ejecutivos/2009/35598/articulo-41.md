@@ -1,0 +1,1 @@
+Artículo 41.—Días feriados y de asueto. Los funcionarios de la Imprenta Nacional, disfrutarán los días feriados establecidos en nuestra normativa jurídica vigente, además tendrán derecho a disfrutar de los asuetos, establecidos por el Poder Ejecutivo y que les resulten aplicables.

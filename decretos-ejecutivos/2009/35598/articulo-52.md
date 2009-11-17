@@ -1,0 +1,3 @@
+Artículo 52.—Justificación de hasta un máximo de cuatro horas. Sólo en casos muy calificados, no contemplados en el Estatuto de Servicio Civil y su Reglamento, ni en el presente Reglamento, el superior inmediato de cada funcionario, podrá conceder mensualmente hasta un máximo de cuatro horas de permiso a solicitud del funcionario para atender asuntos personales. Estas horas no son acumulables.
+Este no constituye un derecho a horas libres.
+El superior deberá hacer la comunicación respectiva a la Sección de Recursos Humanos, conforme al capítulo XIII “Mecanismos y Procedimientos de Justificaciones en la Asistencia” de este Reglamento, bajo pena de incurrir en falta leve acumulable a sus obligaciones con las consecuencias jurídicas del caso.

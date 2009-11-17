@@ -1,0 +1,4 @@
+Artículo 43.—Obligación del Registro de Asistencia. Es obligación personal e insustituible de todo servidor asistir puntualmente y registrar correctamente su asistencia en el medio utilizado para tal efecto.
+El registro de asistencia se llevará a cabo por el dispositivo mecánico, analógico, electrónico, digital o de cualquier otro sistema establecido. Cada funcionario deberá registrar su asistencia al inicio y al final de la jornada de trabajo respectiva.
+Quedan excluidos de la obligación de registrar asistencia el Director y Subdirector de la Institución, así como en aquellos casos en que se hubiese exonerado tal circunstancia, conforme al artículo 27 de este Reglamento.
+Los funcionarios que gocen de exoneración de marca, siempre tendrán la obligación de asistir y cumplir con los compromisos generales de asistencia y puntualidad de este Reglamento, así como de justificar sus ausencias u otros, mediante los mecanismos establecidos.

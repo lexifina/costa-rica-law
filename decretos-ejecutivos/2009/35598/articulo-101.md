@@ -1,0 +1,3 @@
+CAPÍTULO XXI
+Sobre el acoso psicológico y moral en el trabajo
+Artículo 101.—Definición de acoso. Se entenderá como acoso psicológico y moral en el trabajo toda conducta en la que se ejerza violencia psicológica extrema de forma sistemática sean los superiores jerárquicos o no de un trabajador el cual se puede manifestar a través de rechazo o reducción en las comunicaciones, aislamiento, descrédito, destrucción de su reputación, intimidación, abuso de poder, aplicación arbitraria y exagerada del régimen disciplinario, degradación del clima de trabajo reduciendo su moral hasta lograr una destrucción en la autoestima y el afectado reduzca su capacidad laboral, o busque dejar por cualquier motivo su trabajo.

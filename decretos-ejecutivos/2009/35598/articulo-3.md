@@ -1,0 +1,1 @@
+Artículo 3º—Encargados de aplicar este Reglamento. El Ministerio de Gobernación y Policía, la Dirección General de la Imprenta Nacional, la Sección de Recursos Humanos, los jefes de departamentos y encargados, serán los responsables de la correcta aplicación de todas las disposiciones del presente Reglamento.

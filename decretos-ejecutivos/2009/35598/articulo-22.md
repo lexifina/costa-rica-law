@@ -1,0 +1,1 @@
+Artículo 22.—Derecho a un lugar para ingerir alimentos. Los funcionarios de la Imprenta Nacional tendrán derecho de disponer de un lugar adecuado y acondicionado dentro las instalaciones, para ingerir sus alimentos y bebidas durante el almuerzo y los recesos establecidos en la mañana y en la tarde, esta área será delimitada por la Dirección General.

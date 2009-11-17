@@ -1,0 +1,1 @@
+Artículo 29.—Subsidio por incapacidad. El funcionario que sea declarado incapacitado para laborar por enfermedad, gozará de un subsidio en proporción al tiempo servido, conforme con las disposiciones establecidas en el artículo 34 del Reglamento del Estatuto de Servicio Civil.

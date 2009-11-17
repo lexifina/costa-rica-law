@@ -1,0 +1,1 @@
+Artículo 115.—Traslado provisional a otro departamento. El denunciante o el denunciado podrán solicitar un traslado provisional a cualquier otro departamento de la Imprenta Nacional, previa exposición de motivos ante el órgano superior jerárquico.

@@ -1,0 +1,1 @@
+Artículo 44.—Registro o marca defectuosa. Salvo desperfecto del sistema que se utilice, el registro defectuoso o confuso de la asistencia a labores se tendrá como no realizado para los efectos legales correspondientes. El funcionario se encontrará en la obligación de cerciorarse que su registro se realice correctamente.

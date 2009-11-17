@@ -1,0 +1,1 @@
+Artículo 92.—Licencia para cursos de capacitación. Las licencias para asistir a cursos de capacitación mediante el otorgamiento de becas u otras facilidades, se regularán por las disposiciones de la Ley Nº 3009 de 18 de julio de 1962 y sus reformas, así como con las normas internas que al efecto dicte la Imprenta Nacional y las cláusulas del respectivo convenio.

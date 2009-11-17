@@ -1,0 +1,1 @@
+Artículo 24.—Derecho a facilidades laborales e información. Los funcionarios tienen derecho a que la Imprenta Nacional, proporcione los medios y facilidades para efectuar las labores, así como la información e instrucciones claras y necesarias para comprender las actividades que se realicen y los objetivos que se buscan.

@@ -1,0 +1,1 @@
+Artículo 106.—Posibilidad de traslados. Siempre y cuando sea posible, existirá el derecho a favor del funcionario afectado de trasladarlo a otra área de la institución, o que solicite el traslado provisional del denunciado, mientras permanezca esta investigación, y en ningún caso podrá ser en condiciones inferiores de puesto a las que tenía en su labor original.

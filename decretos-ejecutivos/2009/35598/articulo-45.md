@@ -1,0 +1,1 @@
+Artículo 45.—Deber de justificar inasistencia. El funcionario deberá comunicar a su jefe inmediato su ausencia al trabajo, y para ello cuenta con dos días hábiles después de su ingreso, para aportar las pruebas documentales que justifiquen su ausencia, todo conforme al capítulo de “Mecanismos y Procedimientos de Justificación en la Asistencia”.

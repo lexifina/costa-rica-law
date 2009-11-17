@@ -1,0 +1,1 @@
+Artículo 14.—Obligaciones de los choferes. Los choferes deberán además de las obligaciones y deberes de este Reglamento, cumplir con todo lo establecido en el Reglamento para la Utilización de Vehículos de la Junta Administrativa de la Imprenta Nacional vigente, o cualquier modificación que al mismo se le aplique.

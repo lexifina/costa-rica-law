@@ -1,0 +1,1 @@
+Artículo 100.—Secciones que componen el expediente personal. El expediente personal estará formado por cuatro secciones: atestados académicos, acciones de personal, evaluaciones de desempeño y correspondencia general.

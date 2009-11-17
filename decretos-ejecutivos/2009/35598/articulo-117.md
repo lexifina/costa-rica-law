@@ -1,0 +1,1 @@
+Artículo 117.—Inserción laboral para las personas con alguna discapacidad. La Dirección General dentro del marco de respeto a la Ley 7600, procurará la inserción laboral de las personas con discapacidad, adaptando las condiciones ambientales y físicas, para el buen desempeño de los servidores que posean algún tipo de discapacidad.

@@ -1,0 +1,1 @@
+Artículo 124.—Conformación de una Comisión de Salud Ocupacional. La Dirección General conformará una Comisión de Salud Ocupacional, a la cual brindará el apoyo necesario para el cumplimiento de sus funciones, tareas y actividades, de acuerdo con lo establecido en la normativa aplicable.

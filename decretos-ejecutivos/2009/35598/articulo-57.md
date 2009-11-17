@@ -1,0 +1,1 @@
+Artículo 57.—Aplicación del Reglamento del Estatuto de Servicio Civil. Se aplicará supletoriamente en materia de subsidios y licencias lo correspondiente en los artículos del 34 al 40 del Reglamento del Estatuto de Servicio Civil.

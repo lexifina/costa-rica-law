@@ -1,0 +1,1 @@
+Artículo 113.—Recursos contra la resolución final. Contra la resolución final que se dicte cabrán los recursos ordinarios de ley, los cuales deberán interponerse dentro de los tres días siguientes al de su notificación.

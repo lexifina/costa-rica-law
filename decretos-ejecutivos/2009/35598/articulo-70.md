@@ -1,0 +1,1 @@
+Artículo 70.—Remisión de conductas con otras reglamentaciones internas. Además de las conductas ya descritas en este Reglamento, se podrán aplicar y sancionar conductas específicas, tipificadas en otras reglamentaciones internas. Para tales efectos, cada Reglamento deberá establecer la gravedad de cada conducta.

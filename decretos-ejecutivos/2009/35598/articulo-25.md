@@ -1,0 +1,1 @@
+Artículo 25.—Derecho a la igualdad de condiciones. Los funcionarios tienen derecho a que no se les discrimine en su trabajo por razones de edad, etnia, género, religión o por padecer de cualquier tipo de condición física especial, o que se les cese en sus funciones por tales razones.

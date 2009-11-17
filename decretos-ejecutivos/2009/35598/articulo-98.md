@@ -1,0 +1,1 @@
+Artículo 98.—Custodia de los expedientes de todo funcionario. La Sección de Recursos Humanos mantendrá en custodia el expediente personal de cada funcionario de la Imprenta Nacional. Dicho expediente deberá contener todos aquellos documentos y datos que sirvan para determinar el historial del servidor.

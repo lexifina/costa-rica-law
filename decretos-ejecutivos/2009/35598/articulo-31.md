@@ -1,0 +1,1 @@
+Artículo 31.—Derecho a ser reubicado. El servidor que haya sufrido un riesgo del trabajo, tiene derecho a ser instalado en su puesto cuando esté en capacidad de laborar. No obstante si no pudiera desempeñarse en sus labores se observarán las disposiciones del artículo 254 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 120.—Capacitación a las personas con discapacidad. La Dirección General, a través de la Sección de Recursos Humanos, establecerá procesos de capacitación a las personas con discapacidad, para que éstas se superen en el desempeño del cargo.

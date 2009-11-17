@@ -1,0 +1,1 @@
+Artículo 32.—Licencias y subsidios por maternidad. Los subsidios y licencias por razón de maternidad se regularán por las disposiciones contenidas en el artículo 37 inciso k) del Estatuto de Servicio Civil y 34 de su Reglamento, así como lo dispuesto por la Caja Costarricense de Seguro Social quien en esta materia es el ente rector.

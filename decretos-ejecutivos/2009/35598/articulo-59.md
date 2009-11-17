@@ -1,0 +1,7 @@
+Artículo 59.—Justificación mensual. La justificación mensual la hará el servidor en la boleta correspondiente, indicando claramente la fecha, nombre completo, departamento o sección, fecha a justificar, y motivo. La misma debe contar con la firma del jefe inmediato; la alteración de datos en la boleta correspondiente, borrones o enmiendas, hará incurrir en falta tanto al servidor como al jefe inmediato, y procederán en los siguientes casos:
+a) Llegada tardía: Procederá en caso de registrar el ingreso posterior al tiempo otorgado en el artículo 48 de este Reglamento. Sólo se podrán justificar un máximo de tres llegadas tardías mensuales.
+b) Asunto de Imprenta: Procederá en caso que el funcionario deba realizar gestiones institucionales acordes con su puesto y debidamente justificadas por el jefe inmediato.
+c) Permiso de seguro social: Procederá en caso que el funcionario deba asistir a consulta o exámenes médicos. Tanto en la CCSS, el INS, como el médico particular, el comprobante del médico deberá indicar la hora de ingreso y salida. El tiempo a justificar será por un máximo de 4:00 horas.
+d) Omisión de marca: Procederá en caso de que por olvido el funcionario no registre su marca. Sólo se podrán justificar un máximo de tres omisiones mensuales.
+e) Día de cumpleaños: Procederá para justificar únicamente la ausencia correspondiente al día de cumpleaños.
+f) Cualquier otra circunstancia especial y calificada que se considere susceptible de justificar según criterio razonado del jefe inmediato.

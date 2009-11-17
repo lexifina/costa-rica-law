@@ -1,0 +1,1 @@
+Artículo 38.—Días de trabajo. Son hábiles para el trabajo todos los días del año, menos los feriados, los que el Poder Ejecutivo declare de asueto y los días de descanso semanales existentes, sin embargo, eventualmente podrá trabajarse en tales días, siempre y cuando ello fuere necesario, en observancia con los artículos 34 y 36 de este Reglamento.

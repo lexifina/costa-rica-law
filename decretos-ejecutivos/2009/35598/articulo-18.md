@@ -1,0 +1,1 @@
+Artículo 18.—Sanciones. El incumplimiento de las disposiciones contenidas en el presente capítulo será considerado, para efectos de sanción, como falta de alguna gravedad, lo anterior sin menoscabo de las sanciones pecuniarias señaladas en la Ley Nº 7501.

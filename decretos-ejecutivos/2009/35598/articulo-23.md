@@ -1,0 +1,2 @@
+Artículo 23.—Derecho a reuniones sindicales. Los funcionarios de la Imprenta Nacional, afiliados a sindicatos o entidades internas ya existentes o por constituirse y cuyos estatutos hayan sido previamente aprobados de acuerdo con la normativa vigente, contarán con permiso de dos días por año con goce de salario para que asistan a las asambleas ordinarias y extraordinarias.
+Este permiso deberá ser comunicado con quince días de anticipación a la Dirección General, y se autorizará siempre y cuando no se afecte el funcionamiento eficiente y la continuidad del servicio público.
