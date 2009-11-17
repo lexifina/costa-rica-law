@@ -1,0 +1,4 @@
+Artículo 181 bis.- Matrimonio simulado
+Serán sancionadas con prisión de dos a cinco años, las personas que den su consentimiento para casarse, a sabiendas de que el matrimonio no tiene como propósito el cumplimiento de los fines previstos en el Código de Familia, o cuando alguno de los contrayentes otorgue al otro, por sí o por interpósita persona, un beneficio patrimonial con el fin de que brinde su consentimiento para casarse. Igual pena se impondrá a los testigos y notarios públicos que participen dolosamente, en su condición de tales, en la celebración de matrimonios simulados.
+Cuando el matrimonio se celebre para obtener beneficios migratorios de cualquier tipo, a favor de uno de los contrayentes, la pena de prisión para ambos contrayentes, notarios públicos y testigos, que participen dolosamente en la celebración de matrimonios simulados, será de tres a seis años.
+(Así adicionado por el artículo 2° de la ley N° 8781 del 11 de noviembre de 2009)
