@@ -1,1 +1,2 @@
-Artículo 62-Rige a partir de su publicación.
+Artículo 62.—Calidades e incompatibilidades de los miembros del Tribunal de Elecciones. Los miembros del Tribunal de Elecciones deberán tener mínimo cinco años de inscritos en el Colegio de Médicos y Cirujanos de Costa Rica, ser de reconocida honorabilidad y no integrar la Junta de Gobierno vigente, ni haber integrado la de los últimos cinco años. Tampoco podrá ser miembro del Tribunal el médico que no esté al día en el pago de las colegiaturas o que se encuentre suspendido.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

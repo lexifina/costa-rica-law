@@ -1,2 +1,3 @@
-Artículo 49- Los delegados del Tribunal, en cada centro de votación consuciran el proceso con la colaboración de los fiscales de papeleta debidamente acreditados y que se encuentren presentes.
-En lugar visible, se deberá colocar los nombres de los puestos a elegir y sus correspondientes candidaturas inscritas.
+Artículo 49.—Campaña Proselitista. A partir del día siguiente en que sean definitivamente aceptadas todas las solicitudes de candidaturas y hasta cuarenta y ocho horas antes de la votación, los candidatos podrán hacer campaña proselitista. Deberán guardar el decoro, respeto y dignidad atinente a la profesión médica, asimismo deberán respetar las regulaciones del Colegio de Médicos y Cirujanos de Costa Rica y las disposiciones que al efecto emita el Tribunal de Elecciones.
+Queda terminantemente prohibida la participación en actividades proselitistas a los miembros de la Junta de Gobierno, Fiscalía, Asesores y personal administrativo del Colegio.
+(Así reformado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

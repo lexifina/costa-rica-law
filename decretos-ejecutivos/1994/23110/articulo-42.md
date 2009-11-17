@@ -1,2 +1,2 @@
-Artículo 42- El Tribunal publicará dentro de los ocho días hábiles, previos a la apertura del período de registro y en uno de los diarios de más circulación en el país, el aviso de los cargos a elegir, el día de apertura, el cierre para el registro de candidaturas, sus requisitos y la oficina en donde deben ser presentadas.
-Las candidaturas deberá presentarse en formularios que distribuiría el Tribunal mediante papeletas con las respectivas firmas y códigos de los candidatos y acompañadas por lo menos de diez firmas más de miembros del Colegio. Un mismo candidato no podrá registrarse par apuestos en distintas papeletas.
+Artículo 42.—Cierre del registro de candidaturas. Las candidaturas para los cargos que se someterán a elección podrán registrarse en la Secretaría del Tribunal de Elecciones hasta el último día hábil del mes de setiembre.
+(Así reformado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

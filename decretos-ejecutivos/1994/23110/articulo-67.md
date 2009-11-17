@@ -1,0 +1,3 @@
+Artículo 67.—Carácter privado de las sesiones del Tribunal de Elecciones.
+Las sesiones tanto ordinarias como extraordinarias del Tribunal serán privadas. Sin embargo, mediante acuerdo tomado en el seno del Tribunal, éste podrá invitar a las personas interesadas que considere conveniente, así como también recibir, en audiencia oral y privada, a todos aquellos con interés legítimo y/o derecho subjetivo que así lo soliciten. Una vez aceptadas definitivamente las candidaturas, deberá convocar a los fiscales generales de las papeletas a sus sesiones.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

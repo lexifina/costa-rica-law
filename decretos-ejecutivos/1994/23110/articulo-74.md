@@ -1,0 +1,2 @@
+Artículo 74.—Competencia de los Delegados del Tribunal de Elecciones. Estarán a cargo del proceso electoral en cada centro de votación que designe el Tribunal de Elecciones. Asimismo, coordinarán y fiscalizarán el proceso electoral en general, en estricta conformidad con este reglamento, así como de las órdenes y directrices que emita el Tribunal de Elecciones.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

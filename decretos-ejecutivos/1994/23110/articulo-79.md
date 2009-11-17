@@ -1,0 +1,2 @@
+Artículo 79.—Integración. En caso de integración, por laguna del ordenamiento jurídico escrito del Colegio de Médicos y Cirujanos de Costa Rica, se aplicarán, por su orden, la Ley General de la Administración Pública, el Código Electoral, la jurisprudencia, los principios generales del derecho público, la costumbre y el derecho privado y sus principios.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

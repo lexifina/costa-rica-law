@@ -1,0 +1,2 @@
+Artículo 76.—Imparcialidad de los Delegados del Tribunal de Elecciones. Los delegados deberán ejercer sus funciones con absoluta imparcialidad. No podrán ser miembros de las papeletas participantes, ni de la Junta de Gobierno vigente, ni de la Fiscalía, ni del Tribunal de Elecciones, ni ser miembro del personal administrativo, ni ser asesor.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

@@ -1,1 +1,2 @@
-Artículo 59-Los recursos de revocatoria y de apelación deberán ser interpuestos dentro de los términos que al efecto establece el artículo 24 de la Ley. En caso de que no se presente personalmente deberá ser autenticados por abogado.
+Artículo 59.—El Tribunal de Elecciones. El Tribunal de Elecciones del Colegio de Médicos y Cirujanos de la República de Costa Rica es un órgano con desconcentración máxima en materia electoral. Ningún otro órgano o funcionario del Colegio podrá avocar sus competencias, revisar o sustituir sus actos y actuaciones, además estará sustraído a órdenes, instrucciones y circulares del órgano superior relativas a la materia electoral.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

@@ -1,1 +1,2 @@
-Artículo 51- Son nulas las boletas que se emitan en blanco, así mismo, los votos para personas que no figuren como candidatos inscritos y los votos dobles que se encuentren dentro del recinto.
+Artículo 51.—Voto Público. El médico no vidente, impedido de ambas manos o que tuviere alguna otra discapacidad calificada según la apreciación del delegado del Tribunal de Elecciones destacado en el respectivo centro de votación, podrá votar públicamente ante el mismo delegado, quien consignará en la papeleta el voto siguiendo estrictamente la voluntad del elector e indicará en el acta respectiva los motivos por los cuales el voto fue emitido de forma pública.
+(Así reformado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

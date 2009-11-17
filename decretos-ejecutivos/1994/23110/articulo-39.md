@@ -1,1 +1,2 @@
-Artículo 39- La Junta dará dentro de sus posibilidades todo el apoyo económico, técnico y administrativo que la realización del proceso electoral requiera.
+Artículo 39.—Publicidad del padrón electoral. El Tribunal de Elecciones publicará en la página Web del Colegio de Médicos y Cirujanos el padrón electoral con al menos 30 días naturales de anticipación al día señalado para la elección. Con la misma antelación hará entrega del padrón electoral a cada una de las papeletas aprobadas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

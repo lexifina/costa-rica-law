@@ -1,6 +1,2 @@
-Artículo 54- El Tribunal hará el conteo de votos dentro de los ocho días naturales posteriores al día de la elección, en presencia de los miembros del Colegio que deseen asistir. Tanto los candidatos, como los fiscales de papeleta, tienen la obligación de asistir al conteo.
-En el día y la hora convocada, dentro de los diez días hábiles siguientes al día de la votación, se reunirá la Asamblea General Ordinaria con el quórum de Ley, en la sede del Colegio, para verificar el resultado de la elección. La agenda deberá contener siempre el informe anual del Presidente y del Tesorero del Colegio y cualquier otro asunto que así esté acordado por la Junta.
-Terminada la discusión de los informes del Presidente y del Tesorero, el Tribunal dará el resultado de la elección para que la Asamblea lo verifique, anotándolo de manera visible.
-Quedan electos aquellos candidatos que obtengan mayoría simple de los votos emitidos.
-En caso de empate, se procederá a repetir la elección para cada cargo entre los candidatos empatados. Esta repetición se hará de inmediato, en la misma sesión con los votos de los miembros presentes en esa Asamblea.
-La sesión de la Asamblea se cerrará con el agotamiento de la agenda. Durante el lapso entre la elección y la toma de posesión de los cargos, los miembros electos serán invitados a todas y cada una de las sesiones de la Junta de Gobierno.
+Artículo 54.—Votos Válidos. Se computarán como válidos los votos emitidos por el votante de conformidad con lo previsto en este Reglamento y en las disposiciones de alcance general que emita el Tribunal de Elecciones del Colegio de Médicos y Cirujanos de Costa Rica.
+(Así reformado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

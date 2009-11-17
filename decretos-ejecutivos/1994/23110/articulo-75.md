@@ -1,0 +1,2 @@
+Artículo 75.—Nombramiento de los Delegados del Tribunal de Elecciones. El Tribunal de Elecciones nombrará con una antelación no menor a un mes del día de la votación, a sus delegados titulares y suplentes. Los delegados deberán ser médicos incorporados al Colegio de Médicos y Cirujanos y en pleno uso de sus derechos.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

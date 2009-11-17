@@ -1,0 +1,2 @@
+Artículo 70.—Recursos administrativos contra los acuerdos del Tribunal de Elecciones. Contra los actos, acuerdos y resoluciones del Tribunal de Elecciones en materia electoral únicamente cabrá recurso de reposición o reconsideración ante el mismo Tribunal, el cual deberá interponerse debidamente fundamentado y razonado, dentro del plazo de tres días hábiles a partir de la comunicación realizada a las partes.
+(Así adicionado por el artículo 1°, del decreto ejecutivo N° 35696 del 17 de noviembre de 2009)

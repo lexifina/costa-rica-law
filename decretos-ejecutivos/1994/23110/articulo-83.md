@@ -1,0 +1,2 @@
+Artículo 83-Cuando se apele ante la Asamblea General, el recurrente deberá sufragar los gastos de la publicación de las convocatorias para la correspondiente Asamblea, debiendo depositar en la Contabilidad del Colegio la suma que le indique la Junta para tal efecto. Mientras el recurrente no haga el depósito correspondiente, la Junta no ordenará las publicaciones de Ley para la realización de la Asamblea.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 35696 del 17 de noviembre de 2009, que lo traspasó del antiguo artículo 60 al 83 actual)

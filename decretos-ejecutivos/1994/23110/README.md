@@ -13,3 +13,4 @@ Reglamento a la Ley Orgánica del Colegio de Médicos y Cirujanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-21 | la propia norma |
+| 2 | 2009-11-17 | Decreto Ejecutivo 35696 (2009-11-17) |
