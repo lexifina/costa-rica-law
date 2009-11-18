@@ -14,3 +14,4 @@ Directrices para el trámite de solicitudes de certificados de abono tributario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-16 | la propia norma |
+| 2 | 2009-11-18 | Directriz 107 (2009-11-18) |

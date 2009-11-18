@@ -104,5 +104,8 @@ E- REGISTRO DE PERSONAS AUTORIZADAS
 El Banco Central de Costa Rica se encargará de llevar el Registro de personas autorizadas para el retiro de los títulos de certificados de abono tributario. El exportador está obligado a cumplir el procedimiento establecido en el instructivo que al efecto emita el Banco Central de Costa Rica.
 F- RECURSOS.
 El exportador tiene la facultad de presentar los recursos establecidos en la Ley General de la Administración Pública.
+(*)G-INTERRUPCIÓN DE LA PRESCRIPCIÓN
+A efecto de determinar si las solicitudes de CAT se encuentran prescritas, PROCOMER realizará un estudio sobre la interrupción de la prescripción de las solicitudes de CAT siguiendo al efecto los lineamientos establecidos en el dictamen de la Procuraduría número C-393-2008 del 29 de octubre de 2008. Para tales efectos, PROCOMER tomará en consideración las fechas de presentación de las solicitudes de CAT , las boletas de devolución de las solicitudes elaboradas por el Banco Central de Costa Rica y demás documentación que conste en el expediente correspondiente.
+(Así adicionado el apartado anterior por resolución de N° DMR-00107-2009 del 18 de noviembre de 2009)
 Rige a partir de su publicación.
 9 de diciembre del 2003
