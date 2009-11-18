@@ -11,4 +11,5 @@ Considerando:
 6º—Que dada la relevancia arqueológica del inmueble para el conocimiento de las culturas antiguas del Valle Central, es que el mismo merece ser designado como Monumento Nacional Agua Caliente.
 7º—Que es deber del Estado salvaguardar el patrimonio del país. Por tanto,
 Decretan:
-Artículo 1º—Declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido Sitio de Agua Caliente, del partido de Cartago, ubicado en el distrito quinto del cantón primero de la provincia de Cartago, en parte comprendida en las coordenadas Lamber WE 545-2000, SN 202-550, propiedad del Instituto Nacional de Vivienda y Urbanismo, cédula jurídica Nº 4-000-042134.
+Artículo 1º—Declarar e Incorporar al Patrimonio Histórico-Arquitectónico, bajo la categoría de Monumento, el inmueble conocido como Monumento Nacional Agua Caliente, ubicado en el distrito quinto, del cantón primero de la provincia de Cartago, matrículas de folios reales 216894-000, 216895-000, 216896-000, propiedad del Museo Nacional de Costa Rica, cédula jurídica Nº 3-007-075500.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35841 del 18 de noviembre de 2009)

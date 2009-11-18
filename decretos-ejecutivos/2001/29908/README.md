@@ -14,3 +14,4 @@ Declara e incorpora al Patrimonio Histórico- Arquitectónico de Costa Rica, el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-31 | la propia norma |
+| 2 | 2009-11-18 | Decreto Ejecutivo 35841 (2009-11-18) |
