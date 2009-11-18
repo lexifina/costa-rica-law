@@ -1,1 +1,0 @@
-Artículo 6º—En lo que respecta a la playa, la zona de uso público comprende ocho kilómetros al sur partiendo de la desembocadura de la Laguna Tortuguero, en el sector Tortuguero. En el sector Jalova de la desembocadura del Río Parismina siete kilómetros al norte.

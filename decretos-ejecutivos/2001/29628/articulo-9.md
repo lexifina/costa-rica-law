@@ -1,1 +1,0 @@
-Artículo 9º—El visitante solo podrá transitar por las rutas y senderos destinados al Uso Público, debiendo acatar las instrucciones de los funcionarios. Ningún visitante está autorizado para transitar por otras áreas, al incumplir esta disposición la administración está en la obligación de expulsarlo de las mismas.

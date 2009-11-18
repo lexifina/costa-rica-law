@@ -1,1 +1,0 @@
-Artículo 17.—Las compañías turísticas, visitantes, pobladores locales y público en general deberán sujetarse a lo estipulado en este Reglamento y a las indicaciones que oportunamente les hagan los funcionarios del área, para asegurar la conservación de los recursos naturales.

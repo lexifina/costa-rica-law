@@ -1,1 +1,0 @@
-Artículo 12.—Solo se permitirá observar el desove de las tortugas a grupos no mayores de diez personas, las cuales deberán estar acompañados por un guía debidamente autorizado por el Área de Conservación Tortuguero.
