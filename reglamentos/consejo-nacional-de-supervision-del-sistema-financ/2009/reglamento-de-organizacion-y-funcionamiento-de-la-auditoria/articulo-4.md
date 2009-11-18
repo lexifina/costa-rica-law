@@ -1,0 +1,1 @@
+Artículo 4º—Marco legal y técnico. La función de auditoría interna se regirá de conformidad con el artículo 50 de la Ley Reguladora del Mercado de Seguros, la Ley Orgánica de la Contraloría General de la República, la Ley General de Control Interno, el presente reglamento y las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República.

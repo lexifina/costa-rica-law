@@ -1,0 +1,4 @@
+SECCIÓN II
+Organización y personal
+Artículo 5º—Organización de la auditoría. La estructura funcional de la Auditoría Interna está conformada por el Despacho de la Auditoría que estará bajo la responsabilidad de un Auditor quien, contará con el apoyo de un profesional que lo asistirá en las labores de control, planificación y organización. Además de un Departamento de Auditoría dirigido por un Director y organizado en tres áreas: Solvencia, Conducta de Mercados y Ejecución Presupuestaria, en línea con las funciones principales de supervisión que caracterizan a las Superintendencias del Sistema Financiero. Cada área cuenta a su vez con un coordinador.
+Las funciones que lleve a cabo la Auditoría Interna deben ser congruentes con las establecidas en el “Manual Descriptivo de Puestos” del Banco Central de Costa Rica.
