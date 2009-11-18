@@ -1,1 +1,0 @@
-Artículo 2º—Cobertura: La aplicación de este Reglamento cubrirá a todo funcionario de DIGEPYME que en el ejercicio de sus funciones, sea autorizado a utilizar el vehículo de su propiedad para realizarlas, siempre y cuando cumpla con los requisitos y condiciones aquí establecidas.

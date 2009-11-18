@@ -1,1 +1,0 @@
-Artículo 32.—La gira efectuada sin el cumplimiento de los requisitos establecidos, será por cuenta y riesgo del arrendante; y este, en ningún caso podrá reclamar el reconocimiento de pago por kilometraje recorrido.

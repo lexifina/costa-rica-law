@@ -1,1 +1,0 @@
-Artículo 8º—El arrendante deberá dar preferencia a las necesidades de la DIGEPYME y cuando los requerimientos de ésta indiquen que en una misma gira debe transportarse otros servidores, que no excedan en número el cupo autorizado del vehículo, el arrendante deberá transportarlos bajo los términos del contrato.

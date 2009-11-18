@@ -1,1 +1,0 @@
-Artículo 24.—La Institución le reintegrará al funcionario previa presentación de la factura respectiva los gastos por peaje, trasbordo y otro de similar naturaleza, siempre y cuando corresponda a la ruta que le fue autorizada.

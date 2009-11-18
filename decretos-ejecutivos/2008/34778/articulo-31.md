@@ -1,1 +1,0 @@
-Artículo 31.—Un funcionario del Departamento Financiero Contable procederá a la revisión de la documentación presentada por el arrendante, verificando las distancias, montos. Procede el pago o no de la liquidación una vez autorizada por el jefe del Departamento Financiero Contable.
