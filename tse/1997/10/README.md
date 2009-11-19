@@ -14,3 +14,4 @@ Reglamento para Ejercicio del Sufragio en los Centros Penitenciarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-22 | la propia norma |
+| 2 | 2009-11-19 | Decreto TSE 24 (2009-11-19) |

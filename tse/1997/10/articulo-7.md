@@ -1,1 +1,3 @@
 Artículo 7°-Los partidos políticos tienen derecho a realizar propaganda político-electoral dentro de los centros penitenciarios, pero respetando las directrices que sobre el particular les gire la autoridad responsable de cada uno de éstos, quien está obligada a dar igualdad de trato y de oportunidades a todos los partidos políticos.
+No obstante lo anterior, respecto a la propaganda en los centros penitenciarios se deberá tener en consideración las restricciones para su difusión, previstas en los párrafos primero y cuarto del artículo 136 del Código Electoral.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 24 del 19 de noviembre del 2009)
