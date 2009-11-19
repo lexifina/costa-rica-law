@@ -1,0 +1,1 @@
+Artículo 13.—Prohibición. Los productos dados en concesión no pueden ser elaborados con materia prima importada o elaborada por terceros, a excepción de los casos que previamente serán autorizados por el órgano concedente.

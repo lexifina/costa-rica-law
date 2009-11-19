@@ -1,0 +1,1 @@
+Artículo 18.—Del pago del alcohol, ron y concentrados de bebidas alcohólicas. El pago de la materia prima que vende FANAL (alcohol, ron y concentrados de bebidas alcohólicas) se hará efectivo antes de la entrega a la concesionaria.

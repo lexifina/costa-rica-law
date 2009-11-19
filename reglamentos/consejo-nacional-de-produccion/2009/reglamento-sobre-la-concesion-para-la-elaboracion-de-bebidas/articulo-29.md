@@ -1,0 +1,3 @@
+Artículo 29.—Vigencia de los contratos suscritos. Los contratos de concesión suscritos a la fecha entre el CNP y las respectivas concesionarias, mantendrán su plazo de vigencia.
+Serán causales para rescindir de inmediato la concesión el incumplimiento de las disposiciones de este Reglamento, la demostración de culpabilidad del concesionario de actos delictivos en perjuicio del monopolio y del producto estatal.
+Las solicitudes de concesión presentadas con anterioridad a la vigencia del presente Reglamento, seguirán el procedimiento establecido en el Reglamento para la Concesión de Licores en FANAL, publicado en La Gaceta Nº 190 del 3 de octubre de 1997 y sus reformas.

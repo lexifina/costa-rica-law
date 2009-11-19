@@ -1,0 +1,2 @@
+Artículo 17.—Precio del alcohol, ron y concentrados de bebidas alcohólicas. El precio del alcohol, ron y concentrados de bebidas alcohólicas será el que se encuentre vigente en el momento de la facturación en FANAL.
+Cuando la Junta Directiva del Consejo Nacional de Producción apruebe alguna variación de precio del alcohol, ron y concentrados de bebidas alcohólicas, la Administración General o en su defecto la Sub-Administración de FANAL, lo comunicará mediante circular a las concesiones.

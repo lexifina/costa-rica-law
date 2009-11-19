@@ -1,0 +1,16 @@
+# Reglamento (2009-09-30)
+
+Reglamento sobre la Concesión para la Elaboración de Bebidas Alcohólicas de FANAL
+
+- Tipo: Reglamento
+- Número: 2754
+- Fecha: 2009-09-30
+- Ente emisor: Consejo Nacional de Producción
+- Publicación: La Gaceta N° 225 del 2009-11-19
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66694&param2=78629&param3=1 (ficha 66694)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2009-11-19 | la propia norma |

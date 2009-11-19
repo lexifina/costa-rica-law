@@ -1,0 +1,12 @@
+Artículo 3°—Formalidades de la Solicitud de Concesión. Todo solicitante de una concesión para la elaboración de bebidas alcohólicas estará en la obligación de presentar lo siguiente:
+a) Una solicitud escrita y formal a la Administración General de FANAL, mediante la cual se detalle el proyecto de concesión, se indique bebidas alcohólicas sobre las cuales solicita la concesión, así como la indicación del volumen, marcas contenido alcohólico y presentaciones.
+b) El formulario de información básica del solicitante, preestablecido para ese efecto.
+c) Planos y distribución de la planta ya sea propia o alquilada, además la capacidad del equipo de producción de que la misma debe responder al menos al volumen de producción para el cual se solicita la concesión.
+d) En caso de que las instalaciones sean arrendadas debe presentar copia certificada por un notario del contrato de arrendamiento. El plazo del alquiler no podrá ser inferior al plazo de la concesión que se solicita.
+e) Se debe presentar la formulación básica y las características físico-químicas de cada una de las bebidas alcohólicas sobre las cuales solicita la concesión.
+f) Bocetos de las etiquetas de cada una de las bebidas alcohólicas sobre las cuales solicita la concesión.
+g) Sistema de trazabilidad y seguridad de las marcas incluidas en la concesión.
+h) Certificados autorizados por el contador público autorizado sobre la solidez financiera del solicitante de la concesión. Tratándose de persona jurídica, deberá además presentar los estados financieros del último año. En caso de nuevos concesionarios quedará a criterio del órgano concedente la presentación de estos requisitos.
+i) Formulario para la solicitud de alcohol para uso en los productos alimenticios, industriales, farmacéuticos y otros, que para este fin existe en FANAL y cumplir con los requisitos que al efecto dispone la circular anual establecida en el manual de venta de alcohol a granel. La cantidad de alcohol o rones crudos especificados no podrá ser inferior a los requeridos para la producción del volumen de lo solicitado en la concesión.
+j) Dos muestras de cada bebida alcohólica sobre la que solicita la concesión.
+k) Permisos del Ministerio de Salud al día, registro del producto y otros que se soliciten en forma adicional por la Fábrica Nacional de Licores, necesarios para el análisis de la solicitud, si así se estima pertinente solicitar al interesado, mediante resolución razonada.

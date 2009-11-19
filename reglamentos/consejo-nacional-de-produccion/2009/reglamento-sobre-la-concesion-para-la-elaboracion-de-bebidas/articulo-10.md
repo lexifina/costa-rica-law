@@ -1,0 +1,3 @@
+Articulo 10.—Elaboración de Contratos. Una vez aprobada la concesión se procederá con la formalización del contrato, el cual será elaborado por la asesora legal de FANAL y avalado por la Administración o Subadministración General de la FANAL, de previo a ser firmados por cualquiera de los representantes legales del Consejo Nacional de Producción, ya sean Presidente Ejecutivo, Gerente General o Subgerente General.
+Una vez firmado el contrato de concesión, y de ser necesario se enviará para refrendo a la Contraloría General de la República.
+Las modificaciones al contrato principal se harán por adenda y cumplirán con los análisis y aprobaciones del contrato principal, según se requiera.

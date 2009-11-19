@@ -1,0 +1,1 @@
+Artículo 26.—Cesión y traspaso. La concesión otorgada por el Consejo Nacional de Producción, a través de la Fábrica Nacional de Licores no podrá cederse, traspasarse total ni parcialmente a terceras personas.

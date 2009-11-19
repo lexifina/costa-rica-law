@@ -1,0 +1,1 @@
+Artículo 16.—Modalidad de venta. FANAL vende bajo la modalidad FOB o EX fabrica el alcohol, ron y concentrados de bebidas alcohólicas, por lo que el riesgo, costo, seguro y flete corre por cuenta de la concesionaria.

@@ -1,0 +1,1 @@
+Artículo 24.—Informe a Dirección General de Tributación Directa. El Departamento financiero de la Fábrica Nacional de Licores, enviará a la Dirección General de Tributación Directa el Informe semestral, con las cantidades de alcohol, ron y / o concentrados de bebidas alcohólicas retiradas por las concesionarias.

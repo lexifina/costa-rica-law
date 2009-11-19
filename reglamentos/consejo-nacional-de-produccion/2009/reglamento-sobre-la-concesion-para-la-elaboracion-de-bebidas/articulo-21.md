@@ -1,0 +1,1 @@
+Artículo 21.—Resolución contractual. En caso de determinarse por parte de FANAL, que la concesionaria falsifica o adultera producto en el mercado, se procederá a la resolución del contrato de concesión, de conformidad con el trámite establecido en la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 27.—Eximentes de responsabilidad. En caso de que la Fábrica Nacional de Licores, por causo fortuito o fuerza mayor, debidamente justificado, no pueda suplir el material del contrato, quedará liberada de toda responsabilidad ante la concesionaria.
