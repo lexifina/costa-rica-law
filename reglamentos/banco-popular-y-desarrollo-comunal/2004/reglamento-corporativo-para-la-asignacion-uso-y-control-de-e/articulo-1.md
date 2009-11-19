@@ -5,4 +5,5 @@ REGLAMENTO CORPORATIVO PARA LA ASIGNACIÓN, USO Y
 CONTROL DE EQUIPOS DE TELEFONÍA MÓVIL (CELULAR) A
 FUNCIONARIOS Y EMPLEADOS DEL BANCO POPULAR Y DE
 DESARROLLO COMUNAL Y SUS SOCIEDADES
-Artículo 1º—Del objeto. Este Reglamento regula la asignación y uso de los equipos de telefonía móvil (teléfonos celulares) y sus respectivos accesorios y línea telefónica a los empleados y funcionarios del Banco Popular y de Desarrollo Comunal, la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., Popular Valores Puesto de Bolsa S. A. y de Popular Fondos de Inversión S. A., los cuales para efectos del presente Reglamento serán denominados como las entidades.
+Artículo 1º—Del objeto. Este Reglamento regula la asignación y uso de los equipos de telefonía móvil (teléfonos celulares) y sus respectivos accesorios y línea telefónica a los empleados y colaboradores del Banco Popular y de Desarrollo Comunal, la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., Popular Valores Puesto de Bolsa S. A., Popular Fondos de Inversión S. A. y Popular Sociedad Agencia de Seguros S. A., los cuales para efectos del presente Reglamento serán denominados como “las entidades.
+(Así reformado en sesión N° 4715 del 19 de noviembre de 2009)
