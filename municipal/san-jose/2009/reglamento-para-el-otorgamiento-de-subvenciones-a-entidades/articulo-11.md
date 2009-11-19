@@ -1,0 +1,5 @@
+Transitorio 1º—La Secretaría Municipal, luego de cinco días de aprobado en definitiva este Reglamento por parte del Concejo Municipal, comunicará a los Presidentes de los once Concejos de Distrito del Cantón Central de San José, que en un plazo improrrogable de cinco días hábiles, deben indicar por escrito a la Secretaría Municipal, un número de fax o casa, para atender notificaciones de los asuntos relacionados con lo regulado por este Reglamento, en caso de cambio de domicilio o número de fax, deberá comunicarlo de inmediato a esta dependencia.
+Considerando:
+Que en el Oficio 2854-DAL-04, de la Dirección de Asuntos Legales, que dice: “Que toda transferencia presupuestaria que tiene fundamento en el numeral 62, del Código Municipal, sea ayuda, subsidio o beca, para ser aprobada por el Concejo, debe cumplir de previo con el procedimiento legal establecido en el reglamento. Publíquese en el Diario Oficial La Gaceta.
+Acuerdo firme 10, artículo IV, de la sesión ordinaria Nº 127, celebrada por la Corporación Municipal del Cantón Central de San José, el 5 de octubre del año en curso.
+San José, 15 de octubre del 2004.
