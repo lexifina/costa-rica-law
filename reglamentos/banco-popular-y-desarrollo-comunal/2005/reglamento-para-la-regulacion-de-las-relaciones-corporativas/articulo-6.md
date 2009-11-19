@@ -1,1 +1,3 @@
-Artículo 6º—De la organización de las juntas directivas. Las Juntas Directivas estarán conformadas por un presidente, un vicepresidente, un secretario, un tesorero y un vocal, salvo en el caso de la Operadora de Pensiones, donde existirán tres vocales.
+Artículo 6º—De la organización de las Juntas Directivas.
+Las Juntas Directivas estarán conformadas por un presidente, un vicepresidente, un secretario, un tesorero y un vocal, salvo en el caso de la Operadora de Pensiones, donde existirán tres vocales.
+(Así reformado en sesión N° 4715 del 19 de noviembre de 2009)

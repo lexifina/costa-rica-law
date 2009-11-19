@@ -18,3 +18,4 @@ Reglamento para la Regulación de las Relaciones Corporativas del Banco Popular 
 | 3 | 2007-11-01 | Reglamento 4528 (2007-11-01) |
 | 4 | 2009-01-19 | Reglamento 4633 (2009-01-19) |
 | 5 | 2009-02-02 | Reglamento 4637 (2009-02-02) |
+| 6 | 2009-11-19 | Reglamento 4715 (2009-11-19) |
