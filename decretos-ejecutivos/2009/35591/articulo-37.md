@@ -1,0 +1,1 @@
+Artículo 37.—De la juramentación. Los representantes de la Asamblea de Autores ante el Consejo Directivo de la Editorial Costa Rica serán juramentados por el Presidente de la Asamblea en su próxima sesión; y entrarán en posesión del cargo en la primera sesión del mes de noviembre. El acta en que conste el proceso de elección debe obligatoriamente Protocolizarse.

@@ -1,0 +1,1 @@
+Artículo 2º—Nombramiento. La elección de los representantes de la Asamblea de Autores ante el Consejo Directivo de la Editorial Costa Rica, se realizará en una Asamblea Ordinaria legalmente convocada para esos efectos según lo establecido en el artículo 19 inciso e) de la Ley Nº 2366. Dicha Asamblea deberá celebrarse durante el mes de octubre, cada tres años.

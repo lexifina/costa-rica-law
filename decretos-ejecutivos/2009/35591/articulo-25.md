@@ -1,0 +1,1 @@
+Artículo 25.—Mínimo de asambleístas participantes. El sistema de votación será por papeleta y deberá garantizar una participación mínima de asambleístas, según lo establecido en el artículo 5 de este Reglamento.

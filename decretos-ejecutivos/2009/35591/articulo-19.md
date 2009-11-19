@@ -1,0 +1,1 @@
+Artículo 19.—Período de ejercicio del cargo. Cada directivo será electo en su puesto por un período de tres años, pudiendo ser reelectos indefinidamente, según lo dispuesto por el artículo 16 de la Ley Nº 2366.

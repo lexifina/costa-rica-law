@@ -1,0 +1,1 @@
+Artículo 32.—Empate. En caso de empate se repetirá la votación entre quienes obtuvieron igual número de votos mayoritarios. Si persistiere el empate, mediante rifa se decidirá al respecto en presencia de los candidatos. El mecanismo de rifa será utilizando un dado, resultando ganador quien obtenga el número mayor.

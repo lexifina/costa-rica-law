@@ -1,0 +1,1 @@
+Artículo 8º—Miembros facultados para ejercer el voto. Tendrán derecho a voto únicamente los miembros que estén al día con los compromisos de carácter económico con la Asociación de Autores de Obras Literarias Artísticas y Científicas, en su carácter de Asambleístas.

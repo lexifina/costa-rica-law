@@ -1,0 +1,2 @@
+Artículo 10.—Publicación del acta. Una vez firme, el texto del acta se pondrá en la página de Internet de la Editorial Costa Rica, para que todos los asambleístas e interesados lo conozcan.
+Se transcribirá dentro de los 30 días siguientes al Libro de Actas de Asamblea General, a fin de presentarla para ser firmada por el Presidente y el Secretario. Los acuerdos de Asamblea, salvo que se interponga Recurso de Revisión, se ejecutarán de forma inmediata.

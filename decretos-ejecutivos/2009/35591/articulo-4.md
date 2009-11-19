@@ -1,0 +1,1 @@
+Artículo 4º—Votación personalísima. Las Asambleas Ordinarias de Autores, para el nombramiento de sus representantes ante el Consejo Directivo de la Editorial Costa Rica, no admitirá votos por representación. Las resoluciones sólo serán válidas cuando se tomen por más de la mitad de votos presentes.

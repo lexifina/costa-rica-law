@@ -1,0 +1,1 @@
+Artículo 15.—Invitación a audiencias. El Comité de Elecciones podrá invitar a quien considere pertinente para que se haga presente en sus reuniones, con el propósito de evacuar las dudas que los integrantes tengan, así como recibir asesoría sobre la materia, para un mejor cumplimiento en el ejercicio de sus funciones.

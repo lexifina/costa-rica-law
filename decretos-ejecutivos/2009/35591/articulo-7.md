@@ -1,0 +1,2 @@
+Artículo 7º—Procedimiento de la Asamblea. El Presidente leerá el Orden del Día y velará por su cumplimiento. Se discutirá asunto por asunto, otorgando el uso de la palabra a los miembros activos por orden de solicitud.
+Cada exposición no podrá ser superior a cinco minutos y para cada asunto un mismo asambleísta sólo podrá usar el derecho de exposición dos veces; sin embargo, la Asamblea, con el acuerdo de no menos de dos tercios de los presentes, podrá ampliar por un término más de cinco minutos, el uso de la palabra a quien lo solicitare.

@@ -1,0 +1,1 @@
+Artículo 12.—Potestades. El Comité de Elecciones es el órgano superior encargado de dirigir, coordinar, supervisar y ejercer todas aquellas labores necesarias para el proceso de elección de los representantes de la Asamblea de Autores ante el Consejo Directivo de la Editorial Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 3º—Medios para realizar la convocatoria. La convocatoria a la Asamblea Ordinaria, corresponderá al Consejo Directivo de la Editorial Costa Rica y se llevará a cabo por alguno de los siguientes medios: publicación en un diario de circulación nacional con una antelación de 15 días naturales -según usos acostumbrados-, correo electrónico o fax.

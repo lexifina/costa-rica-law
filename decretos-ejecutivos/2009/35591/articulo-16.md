@@ -1,0 +1,2 @@
+Artículo 16.—Prohibición. Ningún directivo de la Junta Directiva de la Asociación de Autores de Obras Literarias, Artísticas y Científicas, a que se refiere el artículo 10 de la Ley Nº 2366, podrá formar parte del Comité de Elecciones.
+Se excluye la participación de los Directores del Consejo Directivo, sean o no representantes de la Asamblea de Autores. Igual prohibición rige para los eventuales aspirantes al cargo de director.
