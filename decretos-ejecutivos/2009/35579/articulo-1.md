@@ -1,0 +1,15 @@
+Nº 35579-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20), y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7384 del 16 de marzo de 1994, Ley de Creación del Instituto Costarricense de Pesca y Acuicultura, y la Ley Nº 8436 del 1º de marzo del 2005, Ley de Pesca y Acuicultura.
+Considerando:
+1º—Que de conformidad con lo dispuesto en el artículo 5º, de la Ley Nº 7384, el Instituto Costarricense de la Pesca y Acuicultura (INCOPESCA) es el rector del subsector pesquero y tiene la facultad y competencia para normar y regular el aprovechamiento de los recursos hidrobiológicos, así como las regulaciones para la emisión de licencias, artes y métodos de pesca y áreas y zonas de veda, exclusión o restricción.
+2º—Que la Ley Nº 8436, Ley de Pesca y Acuicultura, publicada en el Diario Oficial La Gaceta Nº 78 del 25 de abril del 2005, declara de utilidad pública e interés social, la actividad pesquera, así como de interés nacional el fomento y desarrollo de esa actividad y de la industria afín.
+3º—Que mediante Decreto Ejecutivo Nº 17933-MAG del 21 de diciembre de 1987, el cual se encuentra vigente, se estableció un área de prohibición para la realización de las actividades de pesca de la flota camaronera, industrial o semi-industrial, de arrastre en la zona delimitada en el mismo, correspondiente al Golfo Dulce.
+4º—Que mediante Decreto Ejecutivo Nº 20753-MAG del 6 de setiembre de 1991, el Ministerio de Agricultura y Ganadería autorizó la pesca artesanal en pequeña escala, con redes de arrastre, en un área delimitada en dicho Decreto.
+5º—Que mediante acuerdo de Junta Directiva AJDIP/251-2009 del 7 de agosto del 2009, la Junta Directiva de INCOPESCA estableció prohibir la pesca de arrastre con embarcaciones industriales y semi-industriales ni el uso de ningún otro tipo de redes de arrastre para realizar las faenas de pesca, en el Golfo Dulce a partir de una línea imaginaria establecida en su boca o entrada desde Cabo Matapalo (coordenadas de GPS 08º 22’ 20”60 N y 083º 17’16” W) a Punta Banco (coordenadas de GPS 08º 22’19” N y 083º 09’08”60 W) y desde esta línea imaginaria aguas adentro en dirección norte-noroeste, abarcando su zona interior en su totalidad para que se convierta de inmediato en una zona en la cual sus recursos sean utilizados únicamente con fines de pesca artesanal, pesca turística-deportiva, prohibiéndose en forma permanente a la flota pesquera industrial y semi-industrial cualquier modalidad de pesca y a cualquier otra que pretenda utilizar redes de arrastre o artes no sostenibles de pesca. Por tanto,
+Decretan:
+DEROGAR EL ARTÍCULO 1º DEL DECRETO EJECUTIVO
+Nº 17933-MAG Y EL DECRETO EJECUTIVO
+Nº 20753-MAG
+Artículo 1º—Deróguese el artículo primero, del Decreto Ejecutivo Nº 17933-MAG del 21 de diciembre de 1987, publicado en La Gaceta Nº 11 del 18 de enero de 1988.
