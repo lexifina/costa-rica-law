@@ -14,3 +14,4 @@ Reglamento de Funcionamiento del Comité Asesor en Tecnologías de Información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-02 | la propia norma |
+| 2 | 2009-11-19 | Decreto TSE 23 (2009-11-19) |
