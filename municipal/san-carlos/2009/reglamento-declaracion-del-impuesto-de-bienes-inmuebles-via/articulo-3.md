@@ -1,0 +1,1 @@
+Artículo 3°—Responsabilidad por el uso del código de acceso y la palabra clave. El sujeto pasivo o su representante legal, a quien se haya entregado el código de acceso y palabra clave para ingresar al sitio: www.munisc.go.cr, para realizar la declaración electrónica, es el único responsable por el uso que se haga de dicho código de acceso y palabra clave.
