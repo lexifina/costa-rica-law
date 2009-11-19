@@ -1,18 +1,20 @@
-Artículo 18.—Tarifas en el interior del país. Las sumas a cobrar por los diferentes conceptos, serán las siguientes:
+Artículo 18º.- Tarifas en el interior del país. Las sumas a cobrar por los diferentes conceptos, serán las siguientes:
 a) Desayuno: ¢ 2.800,00
 b) Almuerzo: ¢ 4.500,00
 c) Cena: ¢ 4.500,00
 d) Hospedaje: según la localidad de que se trate, de acuerdo con las siguientes disposiciones y tabla:
-i. La Administración reconocerá, en cada caso, el monto que estipula la correspondiente factura de hospedaje, hasta una suma que no sobrepase el máximo que indica la columna III de la siguiente tabla, exceptuando los funcionarios discapacitados, quienes tendrán derecho al reconocimiento del 100% de la factura, cuando deban pagar tarifas mayores que la máxima autorizada en la columna III, correspondiente a hoteles o similares que cuenten con las facilidades de acceso y alojamiento que ellos requieran, en salvaguarda del principio de igualdad de oportunidades consagrado en la Ley N º 7600 del 2 de mayo de 1996. Para ello, los funcionarios tendrán que presentar, adjunto a la respectiva liquidación, la (s) factura (s) original (es) extendida (s) por el (los) establecimiento (s) de hospedaje.
+i. La Administración reconocerá, en cada caso, el monto que estipula la correspondiente factura de hospedaje, hasta una suma que no sobrepase el máximo que indica la columna III de la siguiente tabla, exceptuando los funcionarios discapacitados, quienes tendrán derecho al reconocimiento del 100% de la factura, cuando deban pagar tarifas mayores que la máxima autorizada en la columna III, correspondiente a hoteles o similares que cuenten con las facilidades de acceso y alojamiento que ellos requieran, en salvaguarda del principio de igualdad de oportunidades consagrado en la Ley Nº 7600 del 2 de mayo de 1996. Para ello, los funcionarios tendrán que presentar, adjunto a la respectiva liquidación, la (s) factura (s) original (es) extendida (s) por el (los) establecimiento (s) de hospedaje.
 ii. Si mediante una sola factura se ampara el hospedaje de más de un funcionario en una misma habitación, uno de ellos presentará la factura original adjunta a su respectiva liquidación y el otro (o los otros) adjuntará(n) fotocopia de ésta con indicación del número de liquidación en que queda la factura original. Para efectos del reconocimiento del gasto, la Administración distribuirá el monto de la factura entre el número de funcionarios que ésta ampare, siempre que el monto resultante para cada uno no exceda el máximo que indica la columna III de la tabla siguiente.
-iii. La (s) factura (s) referida (s) en los incisos anteriores deberá (n) contener la información que, para efectos tributarios, exige la Dirección General de la Tributación , en el artículo 18 del D.E. Nº 14082-H del 29 de noviembre de 1982 y sus reformas.
+iii. La (s) factura (s) referida (s) en los incisos anteriores deberá (n) contener la información que, para efectos tributarios, exige la Dirección General de la Tributación, en el artículo 18º del D.E. Nº 14082-H del 29 de noviembre de 1982 y sus reformas, así como en irectrices y resoluciones de carácter general publicadas en La Gaceta.
 HOSPEDAJE
 I II III
-Provincia/Cantón Localidad Tarifa ¢
+Provincia/ Cantón Localidad(1) 1 Tarifa ¢
+(1) El término localidad a que se refiere la columna II, no corresponde necesariamente a la jurisdicción territorial administrativa de un distrito o cantón, sino más bien al área urbana que lleva el nombre ahí indicado; de manera que no debe identificarse el nombre de una localidad determinada con el área jurisdiccional administrativa del cantón o distrito que lleva ese mismo nombre.
 SAN JOSÉ
-San José Área Metropolitana 1/ 25.000,00
+San José Área Metropolitana(2) 25.000,00
+(2) Ver artículo 16°
 Dota Santa María 9.000,00
-Pérez Zeledón San Isidro de El General 12.500,00
+Pérez Zeledón San Isidro del General 12.500,00
 Tarrazú San Marcos 9.000,00
 ALAJUELA
 Alajuela Alajuela 17.500,00
@@ -35,7 +37,7 @@ HEREDIA
 Heredia Heredia 16.000,00
 Sarapiquí Puerto Viejo 14.000,00
 Colonia Victoria 7.500,00
-Finca 6 (Río Frío) 5.500,00
+Finca 6 ( Río Frío) 5.500,00
 La Virgen 6.800,00
 GUANACASTE
 Liberia Liberia 20.000,00
@@ -84,5 +86,4 @@ Talamanca Bribrí 7.500,00
 Cahuita 12.500,00
 Puerto Viejo 16.000,00
 Sixaola 9.000,00
-1/ Ver artículo 16°
-(Así reformado por resolución R-CO-26 del 16 de abril de 2009)
+(Así reformado por resolución R-DC-92-2009 del 19 de noviembre de 2009, y obtenido su contenido de la página Web de la Contraloría General de la República www.cgr.go.cr)
