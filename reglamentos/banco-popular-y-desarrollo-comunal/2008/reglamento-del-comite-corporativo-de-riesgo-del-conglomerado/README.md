@@ -14,3 +14,4 @@ Reglamento del Comité Corporativo de Riesgo del Conglomerado Banco Popular y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-26 | la propia norma |
+| 2 | 2009-11-19 | Reglamento 4715 (2009-11-19) |
