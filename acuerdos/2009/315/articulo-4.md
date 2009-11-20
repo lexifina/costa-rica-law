@@ -1,0 +1,1 @@
+Artículo 4º—Comisionar al Presidente Ejecutivo para que un plazo de 30 días hábiles conforme la Comisión de Seguimiento que velará por la operación del plan de Ordenamiento que la regirá y por el funcionamiento de esta Área Marina de Pesca Responsable, debiendo presentar informes semestrales de seguimiento ante la Presidencia Ejecutiva.
