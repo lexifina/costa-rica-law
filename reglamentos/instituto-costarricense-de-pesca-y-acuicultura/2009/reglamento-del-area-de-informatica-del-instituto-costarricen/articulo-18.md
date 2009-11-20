@@ -1,0 +1,1 @@
+Artículo 18.—Para efecto de la aplicación de los servicios de Soporte, Mantenimiento correctivo y o preventivo, Informática implementara los controles respectivos y necesarios que permitan llevar un histórico de reparaciones y o mantenimientos. Así como otros que permitan llevar un orden de requerimientos de los servicios.

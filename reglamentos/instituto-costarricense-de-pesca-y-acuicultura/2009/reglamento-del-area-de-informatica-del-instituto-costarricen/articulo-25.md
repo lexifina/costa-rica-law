@@ -1,0 +1,1 @@
+Artículo 25.—Es obligación de Informática mantener un inventario del Software institucional, así como la vigencia de las respectivas Licencias. Para lo cual deberá incluir su requerimiento en los planes de inversión según se menciona en el Capítulo II.

@@ -1,0 +1,1 @@
+Artículo 55.—El Usuario utilizará la información digital a su alcance para realizar las tareas que le fueren encomendadas. No pudiendo trasladar dicha información sin la autorización superior a otros funcionarios o a terceros; o bien hacer mal uso de ésta con fines ajenos a sus funciones.

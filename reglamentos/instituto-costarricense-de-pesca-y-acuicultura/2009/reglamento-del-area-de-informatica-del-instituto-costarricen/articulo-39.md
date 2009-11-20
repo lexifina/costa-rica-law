@@ -1,0 +1,1 @@
+Artículo 39.—Informática es la única autorizada de brindar apoyo e implementación técnica a las diferentes oficinas del INCOPESCA, que así lo requieran, específicamente en aquéllas áreas relacionadas con estudios de necesidades de información, equipo, entrenamiento, problemas con el equipo y o aplicaciones utilizadas.

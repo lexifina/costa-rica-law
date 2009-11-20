@@ -1,0 +1,1 @@
+Artículo 68.—En caso de que el INCOPESCA reciba una donación de equipo de cómputo, comunicación o software, Servicios Generales en coordinación con Informática, procederá a registrar la información correspondiente, además deberá incluir el nombre del artículo, descripción, modelo, número de serie y marca u otro dato que lo identifique.

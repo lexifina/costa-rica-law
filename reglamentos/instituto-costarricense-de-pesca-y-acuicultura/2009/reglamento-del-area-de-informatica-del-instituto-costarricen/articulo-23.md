@@ -1,0 +1,1 @@
+Artículo 23.—Los equipos de cómputos adquiridos por la Proveeduría serán revisados técnicamente por Informática, antes de ser distribuidos a la dependencia usuaria, para lo cual la Proveeduría entregará a esa dependencia copia de la Orden Compra donde se detalle las características del equipo y la Solicitud de Compra emitida por el interesado.

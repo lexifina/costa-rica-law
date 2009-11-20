@@ -1,0 +1,1 @@
+Artículo 62.—Las Jefaturas Regionales serán los responsables de hacer, coordinar y mantener al día los respaldos necesarios, excepto los que operan bajo una Red de Área Local administrados directamente por Informática.

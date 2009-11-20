@@ -1,0 +1,1 @@
+Artículo 13.—Informática será la responsable de elaborar y presentar a aprobación del C.A.I, durante el mes de mayo el Plan Informático Institucional el cual estará conformado por lo señalado en el Artículo 12 y por una cartera de proyectos debidamente documentados y justificados para su análisis y priorización por parte de este Comité.

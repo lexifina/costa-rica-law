@@ -1,0 +1,1 @@
+Artículo 33.—La decisión de los sistemas que menciona el artículo anterior, estará en concordancia con el Plan Nacional de Desarrollo, la Matriz de Desempeño Específico Programático, Matriz de Desarrollo Institucional, el Plan Informático Institucional y las políticas relativas a los sistemas de información.

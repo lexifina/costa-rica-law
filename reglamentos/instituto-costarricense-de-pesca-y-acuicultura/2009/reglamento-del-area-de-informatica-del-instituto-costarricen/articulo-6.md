@@ -1,0 +1,1 @@
+Artículo 6º—El jerarca institucional debe brindar el apoyo necesario para que dicha Función de TI cuente con una fuerza de trabajo motivada, suficiente, competente y a la que se haya definido, de manera clara y formal, su responsabilidad, autoridad y funciones.

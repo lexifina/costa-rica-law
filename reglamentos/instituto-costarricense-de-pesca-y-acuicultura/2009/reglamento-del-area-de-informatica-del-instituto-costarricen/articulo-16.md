@@ -1,0 +1,1 @@
+Artículo 16.—Las reparaciones y modificaciones de los equipos de cómputo, serán hechas o coordinadas por Informática. Para tal fin el Usuario Interno deberá llenar el respectivo Formulario de Solicitud de Servicio los cuales se retiraran en dicha dependencia.

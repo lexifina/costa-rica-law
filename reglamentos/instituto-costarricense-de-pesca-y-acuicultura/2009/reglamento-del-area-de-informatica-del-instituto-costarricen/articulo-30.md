@@ -1,0 +1,1 @@
+Artículo 30.—Previo a la devolución de equipos que se haya tenido en calidad de préstamo y que puedan guardar información, se efectuará una revisión de éstos por parte de la Unidad de Informática, con el fin de evitar la salida de información institucional.

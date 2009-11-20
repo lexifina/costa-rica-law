@@ -1,0 +1,1 @@
+Artículo 37.—Es responsabilidad del INCOPESCA, dotar a sus dependencias de la infraestructura requerida para la instalación de los equipo de cómputo y será Informática quien evalúe y determine si se reúnen las condiciones técnicas requeridas para dicha instalación.

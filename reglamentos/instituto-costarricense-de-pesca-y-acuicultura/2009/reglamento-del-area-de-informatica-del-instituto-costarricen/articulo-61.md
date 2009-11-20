@@ -1,0 +1,1 @@
+Artículo 61.—La información requerida se podrá otorgar a través de los medios impresos, digitales en formato de texto u otro (PDF), con indicación expresa de quien la solicita, siempre y cuando se cumpla con lo establecido en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 57.—Para aquellos Sistemas Informáticos en los que se disponga de una clave de acceso, el usuario deberá salvaguardar dicha clave y estará bajo su responsabilidad el uso que le dé a la misma.

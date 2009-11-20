@@ -1,0 +1,1 @@
+Artículo 64.—Se considerará falta grave para efectos de la sanción respectiva según el Reglamento Autónomo de Organización y Servicios del INCOPESCA, la infracción a las disposiciones contempladas en el presente Reglamento en los artículos 57, 58 y 60, además del daño intencional que se le cause al equipo informático institucional.

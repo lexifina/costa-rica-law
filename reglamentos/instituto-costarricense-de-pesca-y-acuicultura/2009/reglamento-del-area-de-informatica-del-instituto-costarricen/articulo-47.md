@@ -1,0 +1,1 @@
+Artículo 47.—Informática llevará una lista de las aplicaciones que no requieren licenciamiento, la cual se comunicará a los usuarios, con el fin único de que otras dependencias que así lo requieran, no tengan necesidad de solicitarlo.

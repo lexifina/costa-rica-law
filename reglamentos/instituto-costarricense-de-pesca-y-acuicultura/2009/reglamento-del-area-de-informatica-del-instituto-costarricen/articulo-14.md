@@ -1,0 +1,1 @@
+Artículo 14.—Los Directores Técnico y Administrativo, previamente (antes del mes de mayo) solicitaran a sus dependencias presenten sus requerimientos en software o hardware u otro de índole informática o tecnológica, para ser analizados por el C.A.I en control cruzado con lo presentado por Informática, de aprobarse se incluirán dentro el Plan Informático Institucional.

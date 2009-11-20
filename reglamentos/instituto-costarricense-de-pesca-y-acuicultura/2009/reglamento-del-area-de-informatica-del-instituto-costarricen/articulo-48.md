@@ -1,0 +1,1 @@
+Artículo 48.—Informática elaborará y someterá a aprobación de la Presidencia Ejecutiva, un cronograma de mantenimiento institucional del periodo anual siguiente, el cual se presentará en la primera quincena del mes de diciembre del año anterior. Una vez aprobado será de acatamiento obligatorio.

@@ -1,0 +1,1 @@
+Artículo 67.—Todo convenio Interinstitucional y de interconexión, será firmado por los jerarcas de las instituciones involucradas, correspondiéndole a Informática y al área usuaria, coordinar con la contraparte los aspectos técnicos.

@@ -1,0 +1,1 @@
+Artículo 60.—El otorgamiento de información a terceras personas, se hará siempre y cuando no se divulgue información considerada de carácter sensible, confidencial o crítica, salvo las excepciones establecidas por ley o por solicitud de carácter judicial.

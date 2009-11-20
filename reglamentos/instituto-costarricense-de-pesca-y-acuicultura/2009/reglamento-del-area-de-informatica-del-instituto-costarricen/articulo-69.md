@@ -1,0 +1,1 @@
+Artículo 69.—Si los bienes donados son para un fin o dependencia determinada, Informática procederá a su respectiva instalación, en caso de no tener un fin determinado, Informática procederá de previo a realizar un estudio de necesidades y asignara el bien según corresponda.

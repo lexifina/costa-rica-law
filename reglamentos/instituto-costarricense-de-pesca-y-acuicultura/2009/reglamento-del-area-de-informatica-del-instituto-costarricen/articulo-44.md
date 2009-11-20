@@ -1,0 +1,1 @@
+Artículo 44.—El traslado de computadoras portátiles, fuera de las oficinas de la Sede u Oficinas Regionales, para asuntos y actividades relacionados con la institución, se hará bajo la responsabilidad del funcionario a quien se le asignó el equipo.

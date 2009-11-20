@@ -1,0 +1,1 @@
+Artículo 43.—El traslado del equipo de cómputo, fuera de las oficinas de la Sede u Oficinas Regionales, para asuntos y actividades que no estén relacionados con el INCOPESCA, se hará en coordinación con Informática, previa aprobación de la Presidencia Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 70.—El presente Reglamento coadyuvará su aplicación y ejecución en concordancia con la Normativa vigente, emitida por la Contraloría General de la República con respecto a la Gestión y Control de las TI. Para lo anterior, Informática propondrá los ajustes respectivos si fuese necesario.

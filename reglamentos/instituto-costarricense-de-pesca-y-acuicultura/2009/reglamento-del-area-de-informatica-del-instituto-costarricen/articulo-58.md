@@ -1,0 +1,1 @@
+Artículo 58.—Es obligatorio acatar las medidas de seguridad implantadas por Informática con el fin de proteger los recursos informáticos de accesos no autorizados, modificaciones a la red, servicios, equipos o configuraciones en general.

@@ -1,0 +1,1 @@
+Artículo 42.—El traslado del equipo de cómputo, fuera de las oficinas de la Sede u Oficinas Regionales, para asuntos y actividades relacionados con la institución, se hará en coordinación con Informática, previa aprobación del Director del Área respectiva, Director Regional o de la Presidencia Ejecutiva.

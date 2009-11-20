@@ -1,0 +1,1 @@
+Artículo 53.—Informática dictará el procedimiento para hacer los respaldos necesarios. Para cumplir con lo anterior procederá a preparar y distribuir un manual de respaldos para ser utilizado por los usuarios.

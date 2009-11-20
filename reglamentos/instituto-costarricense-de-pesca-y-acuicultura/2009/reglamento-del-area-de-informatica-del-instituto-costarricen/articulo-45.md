@@ -1,0 +1,1 @@
+Artículo 45.—Queda terminantemente prohibido el traslado del equipo de cómputo a las casas de habitación de los funcionarios, aún para asuntos propios de la institución. Se exceptúan las computadoras portátiles para lo cual el Director General Administrativo, emitirá una directriz o medida de control que considere necesaria para salvaguardar el activo institucional.

@@ -1,0 +1,1 @@
+Artículo 36.—Los equipos de cómputo (Hardware), sistemas (Software) y suministros (papel, disquetes, cintas, cartuchos, y otros); son de uso exclusivo para asuntos institucionales, en consecuencia no pueden ser utilizado por los funcionarios en asuntos de índole personal.

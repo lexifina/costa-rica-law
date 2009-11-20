@@ -1,0 +1,1 @@
+Artículo 24.—En caso de donación de software, Informática procederá a la instalación en la dependencia solicitante o beneficiaria. Los discos originales de instalación serán custodiados por Informática.

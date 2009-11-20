@@ -1,0 +1,1 @@
+Artículo 5º—El jerarca institucional debe asegurar la independencia de Informática como gestor de la Función de TI, respecto de las áreas usuarias y que esta mantenga la coordinación y comunicación con las demás dependencias tanto internas como externas.

@@ -1,0 +1,1 @@
+Artículo 11.—Las reuniones del C.A.I., serán coordinadas por el Jefe de Informática o cuando sea requerido según los planificación para la ejecución de proyectos o planes inversión en hardware o software.

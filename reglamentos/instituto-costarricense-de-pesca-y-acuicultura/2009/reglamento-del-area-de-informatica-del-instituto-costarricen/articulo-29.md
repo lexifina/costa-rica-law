@@ -1,0 +1,1 @@
+Artículo 29.—Cuando personas físicas o jurídicas externas al INCOPESCA, realicen préstamos de equipos de cómputo, la Sección de Servicios Generales, en coordinación con Informática, procederán a levantar un acta donde se especifique, claramente las características del equipo, la persona y/o institución a la cual pertenece y las condiciones bajo las cuales se presta.
