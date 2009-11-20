@@ -1,0 +1,5 @@
+Artículo 2. Alcance [2]
+(2) Artículo reformado por el Acuerdo del Superintendente SGV-A-155 del 15 de mayo del 2009.
+Las actas del comité de inversión y actas de valoración de carteras mancomunadas en el caso de las sociedades administradoras, las actas del consejo de calificación en el caso de sociedades calificadoras de riesgo, las actas del comité de selección y vigilancia de fideicomisos o fondos de titularización, así como las actas del comité de riesgos en el caso de las entidades dispuestas en el artículo 2 del Reglamento de Gestión de Riesgos, se deben mantener en medios electrónicos para lo cual deben cumplir con lo dispuesto en el capítulo I de este acuerdo.
+El libro de actas de la asamblea de inversionistas de un fondo de inversión cerrado puede ser llevado en forma electrónica o en forma física, para lo cual deben cumplir con lo dispuesto en el capítulo I o capítulo II de este acuerdo, respectivamente.
+(Corregido mediante Fe de Erratas, y publicada en La Gaceta N° 243 del 15 de diciembre de 2009)
