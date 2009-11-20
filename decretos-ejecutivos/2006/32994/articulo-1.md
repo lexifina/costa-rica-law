@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32994-MAG
+(Este Decreto fue derogado por el artículo 50 del Decreto Ejecutivo N° 35668 del 20 de noviembre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
 En uso de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley Nº 7664 del 8 de abril de 1997, Ley de Protección Fitosanitaria.
