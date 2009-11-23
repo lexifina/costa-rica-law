@@ -1,0 +1,13 @@
+Artículo 4º—Comité de Riesgos: Es el órgano responsable de proponer las políticas generales de administración de Riesgos para su aprobación por parte de la Junta Directiva del Banco. Será la instancia encargada de analizar los informes y propuestas que le someta la Unidad de Riesgos. Son funciones específicas de este Comité:
+a) Proponer, para aprobación de la Junta Directiva, los límites de exposición al riesgo, las formas de cobertura, las metodologías, los modelos, parámetros, escenarios y la estrategia de administración de cada tipo de riesgo.
+b) Analizar y aprobar los informes mensuales de gestión de riesgos, los cuales deberán ser conocidos en la sesión inmediata posterior a su remisión, los informes sobre evaluaciones específicas de riesgo, los informes de resultados del proceso de valoración del riesgo institucional (SEVRI), los informes semestrales de actualización del Plan de Contingencias de Liquidez y las propuestas para el desarrollo de nuevos productos o estrategias de negocio.
+c) Remitir a la Junta Directiva del Banco, los informes aprobados e informarle sobre sus principales conclusiones y recomendaciones.
+d) Recomendar a la Gerencia General y Junta Directiva las acciones para reducir y mitigar los riesgos a los que está expuesta la Institución.
+e) Proponer el establecimiento o modificación de límites de exposición a los riesgos.
+f) Revisar periódicamente las políticas definidas en cuanto a la identificación, medición, monitoreo, control, información y revelación de los distintos tipos de riesgos, para ratificarlas o adecuarlas a nuevas condiciones de mercado y someterlas a aprobación de la Junta Directiva.
+g) Recomendar a la Gerencia General la elaboración de informes técnicos para el análisis de eventos específicos que impliquen o pudieran implicar una exposición importante de riesgos.
+h) Conocer y opinar sobre el detalle de las posiciones y riesgos asumidos en relación con los límites de tolerancia al riesgo establecidos, proponer opciones de mejora y sugerir acciones correctivas en caso de incumplimiento de límites.
+i) Atender oportunamente las consultas que en materia de riesgos le formulen directamente la Junta Directiva, la Gerencia General, la Auditoría Interna u otras instancias internas o externas.
+j) Vigilar la adopción, existencia, actualización, utilización e implantación de políticas, procedimientos, metodologías y sistemas efectivos que permitan medir y gestionar los riesgos, tanto de carácter financiero como operativo.
+k) Proponer anualmente las eventuales modificaciones del Reglamento General para la Administración de Riesgos.
+l) Las demás que en materia de gestión de riesgos sean asignadas por la Junta Directiva del Banco o la Gerencia General.
