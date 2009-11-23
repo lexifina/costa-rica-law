@@ -6,3 +6,6 @@ d) El funcionario solo podrá acceder a su equipo de cómputo cuando tenga asign
 e) El manejo del software y de la información por parte de los usuarios se hará dentro de los parámetros básicos en materia de Tecnologías de Información, con el fin de no causar daños al sistema.
 f) Los equipos de cómputo no podrán ser cambiados, abiertos, reparados o sufrir algún cambio en alguno de sus componentes por funcionarios que no pertenezcan al Departamento de Informática.
 g) Está totalmente prohibido que funcionarios ingresen al Departamento de Informática sin autorización.
+h) Está totalmente prohibido que funcionarios municipales y particulares utilicen equipos de cómputo de uso personal dentro de las oficinas de los diferentes departamentos de la Municipalidad de Palmares.
+En los casos que sea necesario deberá llenar la boleta de ingreso de equipo de cómputo en el Departamento de Informática, justificando claramente la necesidad de dicho requerimiento y el tiempo estimado.
+(Así adicionado el inciso anterior mediante sesión N° 186 del 23 de noviembre de 2009).

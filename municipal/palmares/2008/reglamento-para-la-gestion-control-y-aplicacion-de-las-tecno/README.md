@@ -14,3 +14,4 @@ Reglamento para la Gestión, Control y Aplicación de las Técnologías de Infor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-07 | la propia norma |
+| 2 | 2009-11-23 | Reglamento municipal 186 (2009-11-23) |
