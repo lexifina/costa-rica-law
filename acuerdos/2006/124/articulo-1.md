@@ -11,9 +11,7 @@ VI) Es indispensable que los Puestos de Bolsa cumplan con ciertos estándares m�
 VII) De conformidad con lo dispuesto en el artículo 8 inciso j) de la Ley Reguladora del Mercado de Valores, le corresponde al Superintendente adoptar todas las acciones necesarias para el cumplimiento efectivo de las funciones de regulación, supervisión y fiscalización atribuidas legalmente a la Superintendencia.
 VIII) El presente Acuerdo fue sometido a consulta de conformidad con el Artículo 361 de la Ley General de Administración Pública.
 Por tanto acuerda:
-SGV-A-124. ACUERDO SOBRE REQUERIMIENTOS MÍNIMOS
-DE TECNOLOGÍA DE LA INFORMACIÓN (TI)
-PARA LAS SOCIEDADES ADMINISTRADORAS
-DE FONDOS DE INVERSIÓN (SAFI)
-Y PUESTOS DE BOLSA (PB)
-Artículo 1º—Objetivo. Las Sociedades Administradoras de Fondos de Inversión y los Puestos de Bolsa, en adelante las entidades, deben contar con sistemas de Tecnología de Información (TI) que garanticen la integridad, seguridad, auditabilidad y disponibilidad de la información y de los servicios ofrecidos, independientemente del medio de comunicación electrónico que se utilice, ya sea público o privado. El diseño y funcionamiento de los sistemas de TI son responsabilidad de las entidades y deben estructurarse de forma tal que cumplan, al menos, con los requerimientos que se detallan en este Acuerdo.
+SGV-A-124. ACUERDO SOBRE REQUERIMIENTOS MÍNIMOS DE TECNOLOGÍA DE LA INFORMACIÓN (TI)
+(Modificada su denominación mediante acuerdo SGV-A-163 del 23 de noviembre de 2009)
+Artículo 1º—Objetivo. Las Sociedades Administradoras de Fondos de Inversión, los Puestos de Bolsa y los Proveedores de Precios, en adelante las entidades, deben contar con sistemas de Tecnología de Información (TI) que garanticen la integridad, seguridad, auditabilidad y disponibilidad de la información y de los servicios ofrecidos, independientemente del medio de comunicación electrónico que se utilice, ya sea público o privado. El diseño y funcionamiento de los sistemas de TI son responsabilidad de las entidades y deben estructurarse de forma tal que cumplan, al menos, con los requerimientos que se detallan en este Acuerdo.
+(Así reformado mediante acuerdo SGV-A-163 del 23 de noviembre de 2009)
