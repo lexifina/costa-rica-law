@@ -1,1 +1,0 @@
-Artículo 14.—Sesiones. Las sesiones del Comité son de dos clases: Ordinarias y extraordinarias. Las ordinarias se realizarán la tercera semana de cada mes, las extraordinarias serán convocadas a solicitud de cualquiera de sus miembros.
