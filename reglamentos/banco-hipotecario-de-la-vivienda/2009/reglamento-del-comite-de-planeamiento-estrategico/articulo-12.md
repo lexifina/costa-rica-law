@@ -1,0 +1,1 @@
+Artículo 12.—Sesiones: Las sesiones del Comité son de dos clases: Ordinarias y Extraordinarias. La Ordinarias son las que se desarrollan periódicamente dentro de un cronograma establecido por la Gerencia General, al menos una vez cada tres meses. Las Extraordinarias son convocadas en casos especiales y a solicitud expresa del presidente del Comité.

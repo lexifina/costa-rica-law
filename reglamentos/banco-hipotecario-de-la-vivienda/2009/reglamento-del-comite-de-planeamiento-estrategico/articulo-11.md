@@ -1,0 +1,1 @@
+Artículo 11.—Secretario: El titular de la Unidad de Planificación Institucional actuará como Secretario de Actas del Comité y deberá documentar formalmente – en el Acta – el desarrollo de las sesiones y será el depositario del Acta, así como de todos los documentos u otros productos que fueran entregados o presentados en las sesiones por los miembros participantes en el Comité.

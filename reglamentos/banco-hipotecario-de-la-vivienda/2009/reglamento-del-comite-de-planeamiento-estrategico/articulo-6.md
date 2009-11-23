@@ -1,0 +1,7 @@
+Artículo 6º—Comisión de Planeamiento Operativo y Presupuesto: Es un órgano de apoyo a la Gerencia General y comisión adjunta al Comité de Planeamiento Estratégico para la ejecución del proceso de formulación del planeamiento operativo anual y el presupuesto ordinario, debidamente vinculado con las acciones estratégicas del Plan Estratégico Institucional y de conformidad con lo establecido en los “Lineamientos generales a considerar en la formulación de planes operativos anuales y presupuestos por los Bancos Públicos.” [1].
+[1] Publicado en La Gaceta N° 96 del martes 18 de mayo de l 2004
+Dicha comisión se reunirá al menos una vez al mes entre junio y setiembre de cada año, para la formulación del plan operativo y presupuesto ordinario y para ejercer las siguientes funciones específicas:
+a) Consolidar los lineamientos para la formulación anual del proyecto plan presupuesto.
+b) Coadyuvar en coordinación con las áreas ejecutoras la formulación del plan operativo institucional y su vinculación con la estrategia institucional.
+c) Someter a revisión de la Gerencia General el plan operativo debidamente los objetivos estratégicos y con el respectivo presupuesto ordinario institucional.
+d) Velar por que la ejecución de las etapas de revisión, aprobación y presentación del proyecto plan presupuesto ante el órgano Director y la Contraloría General de la Republica, se realice dentro de los plazos estipulados por el órgano Contralor.
