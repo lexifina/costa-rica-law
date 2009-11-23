@@ -1,0 +1,1 @@
+Artículo 18.—Voto negativo y opinión: Cualquiera de los Miembros del Comité podrá votar negativamente en los procesos de votación que tengan lugar en el seno del Comité, para lo cual deberá motivar el voto negativo.
