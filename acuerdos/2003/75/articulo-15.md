@@ -1,0 +1,4 @@
+Artículo 15º—Disposiciones adicionales para Bolsas de Valores
+Las Bolsas de Valores deben remitir a la Superintendencia todos los contratos bursátiles realizados, calces, pujas y asignaciones que se efectúen a través de sus sistemas transaccionales, según lo dispuesto en el anexo 19 de este Acuerdo. Asimismo deberá remitir toda la información de emisiones registradas, traspasos de valores locales e internacionales, así como los catálogos que sirven de base para la completa interpretación de la información.
+La información debe ser ofrecida por medio de un servicio Web, el cual deberá permitir cargas incrementales en su operación normal y cargas masivas históricas al inicio, o por solicitud expresa de esta superintendencia. Además, las bolsas deberán poner a disposición todas las actualizaciones o modificaciones que se realicen a cualquier tabla de datos.
+(Así adicionado por el artículo 2° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009)

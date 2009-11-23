@@ -31,6 +31,34 @@ Cuadro resumen de títulos valores recibidos o entregados al portador | Mensual 
 (El artículo 3° del acuerdo N° 159 del 31 de julio de 2009, se adiciona al anexo 31 Suficiencia Patrimonial y Control de Límites, la siguiente cuenta:
 ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA
 31 | SP_SAFI | 20260000 | Ajuste por categoría del custodio Tipo B)
+(El artículo 3° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, adiciona al anexo 31 Se adicionan las siguientes cuentas al Reporte de Suficiencia patrimonial y control de límites del anexo 31, según se describe a continuación:
+...a) Se adicionan las siguientes cuentas al Reporte de Suficiencia patrimonial y control de límites del anexo 31:
+Cuenta | Nombre de la cuenta
+60000000 | % Límite al financiamiento
+60100000 | Monto del financiamiento otorgado a clientes individuales sin garantía
+60200000 | Monto del financiamiento otorgado a grupos de interés económico sin garantía
+60300000 | Monto del financiamiento otorgado a clientes individuales con garantía
+60400000 | Monto del financiamiento otorgado a grupos de interés económico con garantía
+(El artículo 3° aparte b) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el nombre de la siguiente cuenta del anexo 31 "Las cuentas al Reporte de Suficiencia patrimonial y control de límites", según se describe a continuación:
+..b) Se modifica el nombre de la siguiente cuenta del Reporte de Suficiencia patrimonial y control de límites del anexo 31:.
+CUENTA | NOMBRE DE LA CUENTA ANTERIOR | NOMBRE DE LA CUENTA MODIFICADO
+20115400 | (menos) Participaciones en el capital de otras empresas | (menos) Participaciones en acciones de otras empresas del grupo financiero
+(El artículo 3° aparte c) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 10 "Reporte de inversiones propias Puesto de Bolsa para aclarar la moneda en que deben reportarse los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumuados", "Ganancias o pérdidas no realizadas", "Valor en Libors", y "Intereses Acumulados", según se describe a continuación:
+c) Se modifica el contenido del anexo 10 “Reporte de inversiones propias Puestos de Bolsa para aclarar la moneda en que deben reportarse los campos “Valor Facial”, Costo de Adquisición”, “Primas y descuentos acumulados”, Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados”, así como las reglas de validación relacionadas con la moneda, según se describe a continuación:
+i) Los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, “Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados” se deben expresar en la moneda en que está denominado el instrumento, salvo en los siguientes casos:
+a. El caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
+b. En el caso de títulos expresados en unidades de desarrollo, el campo “Valor facial” se expresa en unidades de desarrollo, mientras que los restantes se expresan en colones.
+ii) Se modifica la validación a la columna llamada “Código ISIN”, para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
+iii) Se incluye el dato del “Premio del título” en las lista de campos que deben guardar consistencia con el código ISIN.
+(El artículo 3° aparte d) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el nombre del campo 5 del anexo 12 "Reporte de las Posiciones abiertas a plazo" para que se lea " Fecha de Operación")
+(El artículo 4° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 18 "Plantillas de Carteras" aclarar la moneda en que deben reportarse los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumuados", "Ganancias o pérdidas no realizadas", "Valor en Libors", y "Intereses Acumulados", según se describe a continuación:
+a) Se modifica el contenido del anexo 18 “Plantilla de Carteras” de las sociedades administradoras de fondos de inversión para aclarar la moneda en que deben reportarse los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados”, así como las reglas de validación relacionadas con la moneda, según se describe a continuación:
+i) Los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, “Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados” se deben expresar en la moneda en que está denominado el instrumento. En el caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
+a. El caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
+b. En el caso de títulos expresados en unidades de desarrollo, el campo valor facial se expresa en unidades de desarrollo, mientras que los restantes se expresan en colones.
+ii) Se modifica la validación a la columna llamada “Código ISIN”, para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
+iii) Se incluye el dato del “Premio del título” en las lista de campos que deben guardar consistencia con el código ISIN.
+(El artículo 5° del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 19 "Informe de operaciones bursátiles" para definir los nuevos requerimientos de información de conformidad con la nueva plataforma tecnológica que incorpora cambios en los sistemas de negociación y en la estructura de la base de datos de transacciones, dicha modificación puede consultarse en el sitio Web http://www.sugeval.fi.cr/ )
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante articulo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
