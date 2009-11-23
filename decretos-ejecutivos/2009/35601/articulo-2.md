@@ -1,0 +1,1 @@
+Artículo 2º—Las personas beneficiadas con estos períodos de descanso, serán únicamente aquellas que continúen prestando sus servicios en los CEN CINAI, feneciendo dicho beneficio cuando dichas trabajadoras sean trasladadas a otras unidades del Ministerio en donde no se cumplan las condiciones que dieron origen al beneficio de otorgamiento de vacaciones profilácticas.

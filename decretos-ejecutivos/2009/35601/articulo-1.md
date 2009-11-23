@@ -1,0 +1,27 @@
+Nº 35601-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) de la Constitución Política; 25 inciso 1), y 28 párrafo segundo inciso b), de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”; la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”; 2 y 6 de la Ley N 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”.
+Considerando:
+I.—Que la preponderancia de la vida y de la salud, como valores supremos de las personas, está presente y señalada como de obligada tutela para el Estado, no sólo en la Constitución Política, sino también en diversos instrumentos internacionales suscritos por el país. Entre ellos, los artículos 3º de la Declaración Universal de Derechos Humanos, 4º de la Convención Americana sobre Derechos Humanos, 1º de la Declaración Americana de los Derechos y Deberes del Hombre y 6º del Pacto Internacional de Derechos Civiles y Políticos. Por su parte, el Pacto Internacional de Derechos Económicos, Sociales y Culturales estipula:
+“Artículo 12
+1. Los Estados Partes en el presente Pacto reconocen el derecho de toda persona al disfrute del más alto nivel posible de salud física y mental.
+2. Entre las medidas que deberán adoptar los Estados Partes en el Pacto a fin de asegurar la plena efectividad de este derecho, figurarán las necesarias para:
+(...)
+c) La prevención y el tratamiento de las enfermedades epidémicas, endémicas, profesionales y de otra índole, y la lucha contra ellas;
+II.—Que los Centros de Educación y Nutrición -CEN- y los Centros Infantiles de Nutrición y Atención Integral -CINAI- son programas con alto componente de solidaridad y de ayuda a los hogares de menos recursos económicos y consecuentemente en las comunidades que están expuestas a mayor riesgo social. Constituyen centros complejos, con implicaciones sociales de enorme trascendencia, donde además de alimentación, las personas beneficiarias reciben herramientas necesarias para que desarrollen a plenitud las destrezas.
+III.—Que en dichos centros se les inculca a los niños y niñas buenos hábitos de salud y de vida en general, lo que actúa como una estrategia para la prevención en temas como la drogadicción y la violencia y se les prepara para que sean capaces de asumir con responsabilidad los retos del futuro.
+IV.—Que este reto es afrontado diariamente por todas las personas que se desempeñan como Directoras de CEN-CINAI, Asistentes de Salud de Servicio Civil 2 y 3 y las Trabajadores/as Auxiliares, quienes se ven sometidas a intenso trabajo y ejecutan actividades, en muchos casos riesgosas, y que les producen consecuencias negativas para su salud, situación que se refleja en la gran cantidad de incapacidades como consecuencia de una serie de dolencias producto de las labores que desempeñan estas personas trabajadoras.
+V.—Que existe acuerdo firmado el día quince de octubre del dos mil nueve, entre la Ministra de Salud y la Secretaria General del Sindicato Independiente de Trabajadores Estatales Costarricenses (SITECO), en cuanto a la pertinencia del otorgamiento de vacaciones profilácticas, en virtud de las frecuentes incapacidades extendidas por la Caja Costarricense de Seguro Social y el Departamento de Riesgos Laborales del Instituto Nacional de Seguros, a un grupo importante de las personas que laboran en los Centros de Educación y Nutrición -CEN- y los Centros Infantiles de Nutrición y Atención Integral -CINAI-, situación que ha venido ocurriendo y afectando la salud de dicho grupo laboral de manera significativa.
+VI.—Que por tal razón el Estado a través del Ministerio de Salud, tiene el ineludible deber de proteger eficazmente la vida y la salud de los ciudadanos y consecuentemente de sus funcionarios/as que en razón de sus labores cotidianas se expongan a factores de riesgo para su salud, debiendo para ello dictar medidas necesarias y oportunas indispensables para prevenir los riesgos del trabajo.
+VII.—Que una forma de solventar esta situación es otorgar el beneficio de gozar de vacaciones profilácticas a las personas que como Directoras de CEN-CINAI, Asistentes de Salud de Servicio Civil 2 y 3 y la Trabajadores/as Auxiliares, laboran en los Centros de Educación y Nutrición -CEN- y los Centros Infantiles de Nutrición y Atención Integral -CINAI-, con el fin de paliar la situación de riesgo a que se ven sometidos como consecuencia directa de las actividades relacionadas con el trabajo que llevan a cabo en sus centros de trabajo. Por lo tanto,
+Decretan:
+Reglamento de Vacaciones Profilácticas
+para Personal que Labora en los Centros
+de Educación y Nutrición -Cen- y los Centros
+Infantiles de Nutrición y Atención Integral
+Cinai, del Ministerio de Salud
+Artículo 1º—Todas las personas que presten sus servicios como Directoras de CEN-CINAI, Asistentes de Salud de Servicio Civil 2 y 3 y Trabajadores/as Auxiliares, en los Centros de Educación y Nutrición (CEN) y en los Centros Infantiles de Nutrición y Atención Integral (CINAI), gozarán de ocho días adicionales a las vacaciones ordinarias por concepto de vacaciones profilácticas, distribuidos de la siguiente manera:
+a) Tres días se disfrutarán en Semana Santa.
+b) Cinco días se disfrutarán en el mes de julio.
+Estos períodos de descanso, por su naturaleza, no serán compensables en dinero ni acumulables a otros períodos y se disfrutará después del primer año de labores.
