@@ -138,6 +138,8 @@ c) copia del conocimiento de embarque y cualquier otro documento que proceda seg
 68. Las mercancías de exportación que egresan del país en bultos sueltos, deberán declararse en líneas distintas del DUA respectos a las que se exportan en UT, aunque sean de la misma naturaleza. Tratándose de salidas por vía marítima o aérea deberá declarar, en la siguiente línea una vez finalizada la descripción de mercancías, el número de matrícula o identificación del vehículo que movilizará las mercancías hasta el costado del buque o entrada de las instalaciones aeroportuarias; dicha declaración la realizará en el siguiente formato “matrícula: AAAA-999999-9”. Para los casos en que la matrícula no cuenta con la totalidad de los dígitos descritos, no debe dejarse ningún espacio en blanco ni colocar caracter especial alguno, para “rellenar” la totalidad de espacios.
 69. A efectos de realizar la correcta liquidación de tributos, el declarante de mercancía correspondiente a banano, deberá consignar en el bloque del DUA denominado “Registro del detalle de cajas de banano por finca para la exportación”, en líneas separadas las cajas que sean de un peso igual a 18.14 kilogramos de las que posean un peso distinto.
 70. Para el caso de mercancías que se exportan a granel, la información relacionada con la factura comercial y el conocimiento de embarque podrá ser modificada con el mensaje de confirmación del DUA.
+71) Los DUAS que sean pagados por medio de la cuenta de fondos del exportador, solamente podrán ser tramitados a nombre de dicho exportador.
+(Así adicionado mediante resolución RES-DGA-366 del 23 de noviembre de 2009)
 II.—De la Elaboración, Liquidación y Aceptación de la Declaración de Exportación
 A. Actuaciones del Declarante
 1. Actuaciones previas
