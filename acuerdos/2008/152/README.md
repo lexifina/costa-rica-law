@@ -14,3 +14,4 @@ Disposiciones de los Libros de Actas en medios electrónicos y físicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-20 | la propia norma |
+| 2 | 2009-11-23 | Acuerdo 162 (2009-11-23) |
