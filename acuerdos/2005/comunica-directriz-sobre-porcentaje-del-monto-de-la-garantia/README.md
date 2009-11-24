@@ -14,3 +14,4 @@ Comunica directriz sobre porcentaje del monto de la garantía de ejecución de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-07 | la propia norma |
+| 2 | 2009-11-24 | Acuerdo 886 (2009-11-24) |
