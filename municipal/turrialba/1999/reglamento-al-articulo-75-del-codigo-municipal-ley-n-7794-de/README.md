@@ -14,3 +14,4 @@ Reglamento al Artículo 75 del Código Municipal, Ley N° 7794 del 30 de abril d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-13 | la propia norma |
+| 2 | 2009-11-24 | Reglamento municipal 187 (2009-11-24) |
