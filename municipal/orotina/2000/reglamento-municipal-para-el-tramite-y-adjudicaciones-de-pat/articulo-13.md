@@ -1,1 +1,2 @@
-Artículo XIII.—No se otorgarán patentes temporales de licores para una misma fecha, cuando existan dos o más eventos dentro del mismo cantón.
+Artículo XIII.—Considerando el principio de primero en tiempo primero en derecho, se otorgarán Patentes Temporales de Licores para una misma fecha únicamente a dos eventos dentro del mismo Cantón, pero en distritos diferentes. Ningún evento deberá coincidir con la celebración de la Feria Nacional de Las Frutas, teniendo prioridad esta última ante cualquier otro evento.
+(Así reformado mediante el acuerdo tomado en sesión N° 285 del 8 de octubre de 2009 y definitivamente aprobado en sesión N° 296 de 24 de noviembre de 2009).
