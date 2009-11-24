@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la exclusión del Registro
+Artículo 8º—De la exclusión del Registro. Cuando las empresas inscritas se encuentren inactivas o incumplan alguna de las condiciones establecidas en el artículo 9 de este Manual, el Área de Contratación y Suministros notificará al Proveedor el incumplimiento señalado, y otorgará un plazo máximo de tres días hábiles para que se ponga a derecho. Transcurrido dicho plazo sin que el Proveedor atienda la prevención, se procederá a su exclusión.
+De igual forma, si el Proveedor incurre en una de las causales de exclusión contenidas en el artículo 124 del Reglamento a la Ley de Contratación Administrativa, a excepción de los supuestos contenidos en los incisos a y b él, ACS lo comunicara al Proveedor, concediéndole un plazo de hasta tres días hábiles para que se refiera al supuesto señalado, a fin de comprobar la existencia de la causal, de previo a determinar su exclusión del registro.

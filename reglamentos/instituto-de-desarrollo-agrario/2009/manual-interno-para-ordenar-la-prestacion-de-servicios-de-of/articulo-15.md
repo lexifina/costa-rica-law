@@ -1,0 +1,1 @@
+Artículo 15.—De la entrega de los productos. Una vez efectuada la compra el funcionario designado de la Oficina Regional o Sub Regional del IDA verificará la entrega de los productos del Proveedor conforme a lo especificado en el artículo anterior y dejará constancia de ello en documento que se constituirá en acta de recibo.

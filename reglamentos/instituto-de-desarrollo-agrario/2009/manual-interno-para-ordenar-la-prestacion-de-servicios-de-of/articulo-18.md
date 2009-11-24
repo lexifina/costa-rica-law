@@ -1,0 +1,1 @@
+Artículo 18.—De la aplicación supletoria de normas. Cualquier situación no prevista dentro este reglamento supletoriamente se resolverá conforme a lo dispuesto por la Ley de Contratación Administrativa y su Reglamento.
