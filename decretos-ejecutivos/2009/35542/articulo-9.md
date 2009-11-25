@@ -1,0 +1,1 @@
+Artículo 9º—Las Instituciones y Organizaciones presentes en la Junta Directiva deberán acreditar un representante y un suplente. El suplente institucional u organizacional representará al titular con derecho a voz y voto, en su ausencia, tanto en las asambleas, como en la Junta Directiva, en caso de ser electo.

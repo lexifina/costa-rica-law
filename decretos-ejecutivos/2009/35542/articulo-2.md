@@ -1,0 +1,1 @@
+Artículo 2º—El Consejo Regional del Área de Conservación Marina Isla del Coco, de acuerdo con el artículo 29 de la Ley de Biodiversidad Nº 7788, es el órgano del Sistema Nacional de Áreas de Conservación, responsable de la administración del Área de Conservación Marina Isla del Coco.

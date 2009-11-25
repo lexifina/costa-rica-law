@@ -1,0 +1,1 @@
+Artículo 18.—El Fiscal debe asistir a todas las sesiones de la Junta Directiva, con derecho a voz, pero sin derecho a voto, y participar en las sesiones del Comité Científico - Técnico, así mismo, deberá involucrarse regularmente en la gestión administrativa del ACMIC. En su ausencia será representado por el suplente.

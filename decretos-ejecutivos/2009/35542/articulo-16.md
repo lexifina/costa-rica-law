@@ -1,0 +1,1 @@
+Artículo 16.—Para el cumplimiento de sus funciones, la Junta Directiva se integrará en comisiones de trabajo, las cuales estudiarán y rendirán informes sobre los asuntos de su competencia en los plazos previamente estipulados por la Junta Directiva.
