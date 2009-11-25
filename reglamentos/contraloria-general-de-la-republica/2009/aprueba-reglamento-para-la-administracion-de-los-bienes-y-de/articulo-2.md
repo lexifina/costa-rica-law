@@ -1,0 +1,1 @@
+2º—Derogar el Reglamento para la Administración de los bienes y derechos de propiedad intelectual de la Contraloría General de la República emitido el 30 de agosto del 2004, así como cualquier otra disposición que se oponga al Reglamento que por este medio se emite.
