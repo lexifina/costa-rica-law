@@ -23,3 +23,4 @@ Estatuto Orgánico de la Universidad de Costa Rica
 | 8 | 2007-09-27 | Reglamento 127 (2007-09-27) |
 | 9 | 2008-10-06 | Reglamento 129 (2008-10-06) |
 | 10 | 2009-10-15 | Reglamento 131 (2009-10-15) |
+| 11 | 2009-11-25 | Reglamento 132 (2009-11-25) |
