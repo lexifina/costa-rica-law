@@ -5,4 +5,5 @@ Articulo 23.—El servidor que participe y concluya satisfactoriamente sus estud
 2. Aportar original y copia del titulo al concluir sus estudios de postgrado, para lo cual tendrá un plazo de un mes máximo contado a partir de su reincorporación al Banco Central de Costa Rica.
 3. Cuando le sea formalmente requerido, deberá impartir charlas de extensión, implementar recomendaciones que tiendan a mejorar los procesos de trabajo, y en general, colaborar en los programas de capacitación que se pongan en práctica en la Institución,
 4. Prestar sus servicios en los lugares y despachos que determine la Institución, sin perjuicio de los derechos laborales del interesado.
-5. Permanecer al servicio de la Institución por un plazo equivalente al doble de tiempo que empleó para obtener el titulo académico por el que optó dentro de este programa de estudios de postrado, excepto en aquellos casos en donde el único beneficio recibido fue una licencia sin goce de sueldo, caso en el cual el tiempo de permanencia será igual al de dicha licencia.
+5. Permanecer al servicio de la Institución por un periodo igual a aquel durante el cual el Banco le otorgó algún beneficio en el desarrollo del programa de estudios de postgrado.
+(Así reformado el inciso anterior mediante sesión N° 5443 del 25 de noviembre de 2009)
