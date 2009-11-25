@@ -1,0 +1,2 @@
+8º—Políticas de rotación. La política de rotación de los miembros de la Junta Administrativa es la establecida en el Reglamento que especifica los plazos de nombramiento y la forma de las sustituciones correspondientes de acuerdo con las leyes que aplican al ICE.
+El período de vigencia del nombramiento de cada uno de los miembros de la Junta Administrativa será de cuatro años. Un año en puestos alternos entre la administración y los representantes de los trabajadores.
