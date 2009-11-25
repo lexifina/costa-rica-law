@@ -1,0 +1,10 @@
+Artículo 7.- A la Unidad de Administración Financiera le corresponderá:
+a) Velar que previo al pago de los bienes, conste la documentación donde se constate el recibido a satisfacción del bien. Dicho recibido deberá entenderse como la ratificación del adecuado funcionamiento y características técnicas del bien recibido por parte de la Unidad Ejecutora designada, según la contratación de que se trate.
+b) Registrar y controlar el movimiento contable de los activos de la Institución con base en los documentos fuentes de información que reciba procedentes de la Unidad de Gestión Administrativa y otras fuentes.
+c) Procesar mensualmente los movimientos (nuevos ingresos de activos, reparaciones, mejoras, reconstrucciones, robos o donaciones, revaloraciones entre otros) de los activos de la Institución;
+d) Formular y presentar a la Gerencia de la División de Gestión de Apoyo para su aprobación, las políticas para la contabilización de activos y de sus adiciones, mejoras y reconstrucciones, software, material bibliográfico, el cálculo de depreciación, el valor de desecho, la periodicidad de los registros, el control de los registros, la vida útil, los supuestos de contabilización de gastos, los seguros, y demás aspectos técnicos aplicables, de acuerdo con la relación costo-beneficio y de conformidad con lo que establezca sobre el particular la Contabilidad Nacional.
+e) Coordinar con la Unidad de Gestión Administrativa cuando detecte alguna inconsistencia en el registro del inventario de activos.
+f) Eliminar de los registros aquellos activos que sean dados de baja por la Unidad de Gestión Administrativa;
+g) Conservar el original de los contratos mediante los que se adquieren bienes.
+h) Realizar otras funciones atinentes a la materia, encomendadas por el Despacho Contralor y la Gerencia de la División de Gestión de Apoyo.
+i) Coordinar los procesos de revaloración de bienes conforme el procedimiento que se defina sobre ese particular en conjunto con la Gerencia de División de Apoyo.

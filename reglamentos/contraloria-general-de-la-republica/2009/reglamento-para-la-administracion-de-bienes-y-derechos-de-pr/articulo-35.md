@@ -1,0 +1,2 @@
+Artículo 35.- Cuando la Unidad de Gestión Administrativa determine que el bien es irrecuperable, dará de baja el bien en el Sistema de Bienes, dando comunicación de ello a la Unidad de Administración Financiera y a la Unidad responsable de la administración del bien. De tratarse de equipo de cómputo, se informará igualmente a la Unidad de Tecnología de Información.
+Los expedientes de los bienes dados de baja se deben conservar en la Unidad de Gestión Administrativa.

@@ -1,0 +1,1 @@
+Artículo 42.- Los bienes susceptibles de donación serán aquellos que se encuentren en desuso, en obsolescencia o mal estado reparable, conforme al criterio de la unidad técnica competente, mismo que deberá quedar registrado en el Sistema de Bienes.

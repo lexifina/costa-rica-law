@@ -1,0 +1,1 @@
+Artículo 31.- Los bienes que se encuentren en desuso o en mal estado en una unidad, deben ser devueltos a la Unidad de Gestión Administrativa por el funcionario que tiene asignados dichos bienes, utilizando el proceso de devolución del Sistema de Bienes Fijos, y en el cual se consignará la autorización de la Jefatura respectiva y el criterio del estado del bien.

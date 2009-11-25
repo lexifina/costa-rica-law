@@ -1,0 +1,1 @@
+Artículo 38.- Cuando se envíe a reparar un bien que se encuentre en mal estado fuera de la institución, deberá generarse un memorando o boleta de salida del bien la cuál confeccionará la unidad competente para determinar el mantenimiento del bien, dándole autorización a la salida respectiva. Dicha situación deberá de quedar reflejada en el sistema la salida de bienes.

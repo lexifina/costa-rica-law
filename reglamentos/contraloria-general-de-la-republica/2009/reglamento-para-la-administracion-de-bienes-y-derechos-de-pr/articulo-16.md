@@ -1,0 +1,1 @@
+Artículo 16.- El retiro de bienes de la Unidad de Gestión Administrativa sólo podrá ser realizado una vez que se haya dado la aceptación de los bienes por parte de los respectivos responsables (funcionarios), en el proceso de "Aceptación de Activos" del Sistema de Bienes Fijos, y para el cual previamente se debe tener la autorización de la jefatura correspondiente.

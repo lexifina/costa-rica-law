@@ -1,0 +1,1 @@
+Artículo 29.- Al funcionario que ingrese a laborar al Órgano Contralor, se le hará entrega de los bienes que necesite mediante los procesos de “Asignación y Aceptación de Activos” en el Sistema de Bienes Fijos, y en el cual se establece una autorización al funcionario responsable por parte de la jefatura respectiva.

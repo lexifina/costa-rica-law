@@ -1,0 +1,1 @@
+Artículo 13.- La Unidad Jurídica Interna será la responsable de realizar los trámites de inscripción de los derechos de propiedad intelectual que sean generados por los funcionarios de la Contraloría General de la República a solicitud de la Gerencia de División de Gestión de Apoyo.

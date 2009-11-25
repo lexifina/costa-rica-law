@@ -1,0 +1,1 @@
+Artículo 21.- Los reportes anuales que contienen el detalle de los bienes asignados a cada dependencia, serán enviados por la Unidad Gestión Administrativa, con el objeto de que las Gerencias y Jefes de unidad valoren y analicen las inconsistencias detectadas, determinen sus causas, adopten las acciones correspondientes a lo interno de sus unidades e informen lo pertinente.

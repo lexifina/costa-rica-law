@@ -1,0 +1,1 @@
+Artículo 39.- Los bienes que hayan sido devueltos a la Unidad de Gestión Administrativa y se encuentren en la categoría de desuso o mal estado, podrán ser vendidos o donados, o dados como forma de pago, conforme las normas y procedimientos vigentes, sin perjuicio de que se conserven para repuestos cuando corresponda.

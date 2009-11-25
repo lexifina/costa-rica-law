@@ -1,0 +1,1 @@
+Artículo 25.- Todos los funcionarios que tengan asignado un bien, asumen plena responsabilidad por su uso, custodia y mantenimiento, además tienen la obligación de reportar a las unidades competentes los daños, robo o extravío de los bienes asignados a su centro de trabajo en un plazo no mayor de dos días hábiles una vez detectado el hecho.

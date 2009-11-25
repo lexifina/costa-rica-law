@@ -1,0 +1,1 @@
+Artículo 17.- En todo movimiento o traslado de bienes deberá hacerse entrega del bien al funcionario solicitante, previa autorización de la jefatura correspondiente y la aceptación del bien por parte del funcionario a quién se le asigna el mismo, procesos que deben de llevarse a cabo en forma simultánea en el Sistema de Bienes Fijos.

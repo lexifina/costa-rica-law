@@ -1,0 +1,1 @@
+Artículo 30.- Las jefaturas podrán reasignar entre su personal los bienes de la unidad, para lo cual los funcionarios involucrados registrarán la información correspondiente en el Sistema de Bienes Fijos, en el proceso de “Traslado Interno”, lo cual, en el Sistema deberá estar aprobado por el jefe y las aceptaciones de los servidores a quienes se descarga y carga el bien.
