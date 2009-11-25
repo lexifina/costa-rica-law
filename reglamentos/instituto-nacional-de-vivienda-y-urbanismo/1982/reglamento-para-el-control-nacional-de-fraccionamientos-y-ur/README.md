@@ -27,3 +27,4 @@ Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.
 | 12 | 2003-05-14 | Reglamento 5277 (2003-05-14) |
 | 13 | 2003-05-28 | Reglamento 5281 (2003-05-28) |
 | 14 | 2008-06-11 | Reglamento 5677 (2008-06-11) |
+| 15 | 2009-11-25 | Reglamento 5780 (2009-11-25) |

@@ -87,6 +87,20 @@ La reducción o variación de las normas técnicas en los casos permitidos en es
 - Un régimen especial de propiedad horizontal o de uso comunitario propuesto para el desarrollo integral del proyecto; y
 - Ser proyectos auspiciados por entidades públicas o privadas sin fines de lucro;
 VI.7.1 La aceptación de nuevos sistemas para el fraccionamiento y urbanización de terrenos no contemplados en este Reglamento podrá ser permitida, por vía experimental, cuando se estime aceptable la perspectiva de éxito a juicio conjunto del INVU y la Municipalidad.
+(*)VI.7.1 La aceptación de nuevos sistemas para el fraccionamiento y urbanización de terrenos no contemplados en este Reglamento podrá ser permitida, por vía experimental, cuando se estime aceptable la perspectiva de éxito a juicio conjunto del INVU y la Municipalidad.
+Para lo cual se deberá elaborar un Plan de Mejoramiento Urbano que incluya los siguientes requisitos:
+1. Presentar un estudio detallado de los usos del suelo existentes, donde se incluyan los materiales y el número de pisos de cada construcción, el plano debe incluir curvas de nivel a cada metro.
+2. Identificar las calles existentes y las propuestas con su respectiva nomenclatura y la línea frontal de las construcciones, el plano también debe incluir curvas de nivel a cada metro.
+3. Identificar las calles peatonales y las vehiculares.
+4. Especificar los anchos de aceras (respetando obligatoriamente la Ley 7600) y las calzadas.
+5. Identificar las áreas con afectaciones, como zonas de protección, servidumbres, alineamientos viales, etc.
+6. Presentar la zonificación propuesta con el respectivo cuadro de áreas.
+7. Presentar un plano con las densidades propuestas.
+8. Identificar las etapas de mejoramiento con los respectivos montos de inversiones.
+9. Presentar propuesta con el visto bueno del Cuerpo de Bomberos de Costa Rica.
+(*)(Así adicionado el inciso anterior en sesión N° 5780 del 25 de noviembre de 2009)
+(*)VI.7.2 Esta normativa será aplicada mientras no haya sido promulgada la reglamentación local en materia de Renovación Urbana y sólo rige para aquellos proyectos de Renovación Urbana existente con anterioridad a la promulgación de la presente modificación.
+(*)(Así adicionado el inciso anterior en sesión N° 5780 del 25 de noviembre de 2009)
 Diciembre de 1982.
 NORMAS ESPECIALES DE CONSTRUCCIÓN PARA VIVIENDA
 PROGRESIVA Y CONJUNTOS RESIDENCIALES
