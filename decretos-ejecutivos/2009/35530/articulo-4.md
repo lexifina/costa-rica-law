@@ -1,0 +1,1 @@
+Artículo 4º—El Refugio Nacional de Vida Silvestre Camaronal, propiedad estatal será administrado por el Sistema Nacional de Áreas de Conservación, específicamente por el Área de Conservación Tempisque, con la participación de la sociedad civil, y con apego al Plan de Manejo creado para tal fin.
