@@ -1,0 +1,1 @@
+Artículo 24.—Obligaciones de funcionarios. El Auditor Interno debe vigilar que los funcionarios de la auditoría interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la auditoría interna) que les sean aplicables.

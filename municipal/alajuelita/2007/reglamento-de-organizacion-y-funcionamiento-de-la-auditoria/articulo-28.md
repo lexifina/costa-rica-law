@@ -1,0 +1,5 @@
+CAPÍTULO SEGUNDO
+Funcionamiento de la Auditoría
+Artículo 28.—Ámbito de fiscalización. La Auditoría Interna ejercerá sus funciones en todas las unidades administrativas, operativas y demás dependencias de la Municipalidad de Alajuelita , entes y órganos adscritos, así mismo, en los sistemas, procesos, procedimientos, en todas aquellas áreas de acción, contratos, convenios, programas o proyectos que se lleven a cabo por la Municipalidad.
+La Auditoría Interna también ejercerá sus funciones en los casos en que haya fondos públicos municipales sujetos a su competencia institucional, incluidos, fideicomisos, fondos especiales y otros de naturaleza similar, así mismo sobre fondos y actividades privadas, que se originen en transferencias efectuadas por componentes de su competencia institucional.
+Para lo anterior podrá crear, mantener y actualizar los registros y otros instrumentos pertinentes que permitan la identificación de los sujetos pasivos sujetos a ámbito de acción de la Auditoría Interna.

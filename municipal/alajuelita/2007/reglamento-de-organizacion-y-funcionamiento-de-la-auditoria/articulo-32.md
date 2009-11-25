@@ -1,0 +1,2 @@
+Artículo 32.—Registro separado. La Unidad de Contabilidad o quien sea el responsable del manejo presupuestario, deberá llevar un registro separado del monto asignado y aprobado para la auditoría interna y detallado por objeto del gasto, de manera que se controlen con toda exactitud la ejecución y las modificaciones del gasto asignado y aprobado.
+El Concejo Municipal podrá requerir a la auditoría interna su presupuesto, el cual debe ser formulado técnica y profesionalmente de conformidad con los lineamientos aplicables y su plan anual de trabajo.

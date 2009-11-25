@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE ALAJUELITA
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA AUDITORÍA INTERNA
+La Auditoría Interna de la Municipalidad de Alajuelita, con fundamento en el artículo 23 de la Ley General de Control Interno Nº 8292 publicada el 4 de setiembre del 2002 y definitivamente aprobado mediante acuerdo de la sesión N° 72 ordinaria del once de noviembre del dos mil siete, artículo IV, inciso 3), emite el presente cuerpo normativo para la organización y funcionamiento de la Auditoría Interna de la Municipalidad de Alajuelita.
+CAPÍTULO I
+Disposiciones generales, concepto y organización
+Artículo 1º—Normativa. En la Municipalidad de Alajuelita existirá una sola Unidad de Auditoría Interna, que se regulará de acuerdo a las siguientes leyes y Reglamentos:
+Ley General de Control Interno y su reglamento, la Ley Orgánica de la Contraloría General de la República, la Ley contra la Corrupción y Enriquecimiento Ilícito en la función pública y su reglamento, por el presente Reglamento, por las disposiciones, normas, procedimientos, manuales y otros preceptos emitidos o que en el futuro emita la Contraloría General en el ámbito de su competencia, por las disposiciones del Colegio de Contadores Públicos de Costa Rica y del Instituto de Auditores Internos de Costa Rica en lo que sea aplicable, por las Normas Internacionales de Auditoría emitidas por “The Institute of Internal Auditors Inc. (Instituto de Auditores Internos, Inc., organismo internacional rector del ejercicio de la auditoría interna) en lo que procedan, así como, por los principios básicos del adecuado servicio público y de la buena administración y control.
