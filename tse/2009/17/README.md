@@ -14,3 +14,4 @@ Reglamento sobre el Financiamiento de los Partidos Políticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-29 | la propia norma |
+| 2 | 2009-11-25 | Decreto TSE 25 (2009-11-25) |
