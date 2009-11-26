@@ -1,0 +1,2 @@
+Transitorio V.—Al término de los tres meses a partir de la entrada en vigencia de la reforma al artículo 55 de este Reglamento, las sociedades administradoras deben ajustar las carteras de los fondos de inversión que invierten en valores extranjeros, para que estos valores estén admitidos a negociación en un mercado organizado extranjero que cuente con un órgano de regulación que sea miembro de IOSCO.
+(Así adicionado en sesión N° 819 del 26 de noviembre de 2009)
