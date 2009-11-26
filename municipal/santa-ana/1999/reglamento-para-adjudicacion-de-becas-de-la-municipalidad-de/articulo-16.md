@@ -1,1 +1,0 @@
-Artículo 16.-Las becas deberán ser retiradas personalmente por el becado en la oficina que la Municipalidad designe, para estos efectos la Municipalidad otorgará un carné al becado que servirá para su identificación ante el funcionario encargado del pago. En casos excepcionales se permitirá que la beca sea retirada por otra persona previa autorización por escrito del becado.
