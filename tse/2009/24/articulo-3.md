@@ -1,0 +1,2 @@
+Artículo 3º—Refórmase el artículo 10 del Reglamento predicho, para que se lea:
+“Es prohibido que las autoridades o funcionarios de los distintos centros penitenciarios confisquen o decomisen las cédulas de identidad de las personas privadas de libertad; de hacerlo podrían incurrir en la infracción prevista y sancionada por el artículo 290 inciso c) del Código Electoral, en caso de que con tal actuación se le impidiere a un interno ejercer su derecho al sufragio.”
