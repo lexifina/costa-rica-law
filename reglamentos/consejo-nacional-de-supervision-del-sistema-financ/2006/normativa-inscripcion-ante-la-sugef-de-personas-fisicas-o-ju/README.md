@@ -15,3 +15,4 @@ Normativa Inscripción ante la SUGEF de Personas Físicas o Jurídicas que reali
 | --- | --- | --- |
 | 1 | 2006-09-06 | la propia norma |
 | 2 | 2007-11-26 | Reglamento 687 (2007-11-26) |
+| 3 | 2009-11-26 | Reglamento 819 (2009-11-26) |
