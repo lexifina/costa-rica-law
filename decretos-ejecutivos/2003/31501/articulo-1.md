@@ -12,8 +12,7 @@ a) Allan Flores Moya, representante del Ministro del Ambiente y Energía, quien 
 i) (Degogado por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009).
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
 2) Miembros suplentes:
-a. Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
+a. (Derogado este inciso por el artículo 3°, punto 2° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009)
 c. (Derogado este inciso por el artículo 3°, punto 2° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 i) (Degogado por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009).
 (Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 33246 del 3 de julio de 2006)
