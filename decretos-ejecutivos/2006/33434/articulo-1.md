@@ -1,4 +1,6 @@
+(Derogado)
 Nº 33434
+(Este decreto fue derogado por el artículo 3°, punto 4° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 EL MINISTRO DE AMBIENTE Y ENERGÍA
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, y la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.
