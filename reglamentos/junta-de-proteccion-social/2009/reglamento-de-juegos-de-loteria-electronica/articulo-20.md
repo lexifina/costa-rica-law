@@ -1,0 +1,1 @@
+Artículo 20.—Derogaciones. El presente Reglamento deroga y deja sin efecto cualquier normativa o disposición anterior relacionada con las condiciones que rigen la venta y pago de premios de los diferentes juegos de la lotería electrónica y la realización de sus sorteos.

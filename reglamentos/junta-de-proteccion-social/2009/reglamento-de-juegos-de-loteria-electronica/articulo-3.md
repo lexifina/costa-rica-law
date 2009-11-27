@@ -1,0 +1,1 @@
+Artículo 3º—Obligaciones del jugador. El jugador es responsable de verificar, en el momento de recibir el comprobante de su transacción, que los datos de la apuesta sean correctos conforme lo establecido en los artículos 7, 9 y 17 y del presente Reglamento.

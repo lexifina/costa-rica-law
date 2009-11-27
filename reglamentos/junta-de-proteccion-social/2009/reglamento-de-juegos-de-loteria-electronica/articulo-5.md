@@ -1,0 +1,1 @@
+Artículo 5º—Obligaciones de los Canales de Comercialización y pago de premios de lotería electrónica. Es obligación del Canal de Comercialización y pago de premios de lotería electrónica cumplir con los requisitos y obligaciones que la Junta Directiva establezca y que se consignarán en el contrato que apruebe para tales efectos.
