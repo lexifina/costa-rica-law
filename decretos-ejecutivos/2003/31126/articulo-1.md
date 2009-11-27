@@ -9,8 +9,7 @@ Considerando:
 Decretan:
 Artículo 1º—Se integra la Comisión Nacional para la Gestión de la Biodiversidad con los siguientes miembros:
 1. Miembros propietarios:
-a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
+a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009)
 b) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35346 del 18 de mayo de 2009)
 c. (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 (*) d) Fanny Levin Vargas, representante de la Ministra de Salud.
@@ -53,3 +52,4 @@ k) Grace García Muñoz, Representante de la Federación Costarricense para la C
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35577 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión a la Señora Adriana González Saborio, representante del Ministerio de Comercio Exterior).
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35578 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión al Señor Jorge Mena Arce, representante del Ministerio de Salud).
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35582 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión al Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009, se nombra como miembro suplente de esta Comisión a la Señora Zayda Trejos Esquivel, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
