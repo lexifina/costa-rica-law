@@ -1,0 +1,1 @@
+Artículo 39.—Control de entrega del mobiliario y equipo. El Área de Suministros y Bienes Muebles del Departamento de Proveeduría bajo ninguna circunstancia entregará mobiliario y equipo sin la respectiva requisición y sin que estén debidamente codificados.

@@ -1,0 +1,1 @@
+Artículo 62.—Cobro del bien mueble. El cobro del bien debe efectuarse tomando como base el valor en libros. Cuando el bien se encuentre totalmente depreciado se cobrará el 10% de la suma del costo original más la revaluación.

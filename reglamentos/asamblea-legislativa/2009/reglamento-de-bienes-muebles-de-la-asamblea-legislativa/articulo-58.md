@@ -1,0 +1,1 @@
+Artículo 58.—Seguimiento del bien. Es responsabilidad de la unidad técnica respectiva llevar un control de confrontación acerca del motivo y el tiempo que el bien permanezca fuera de la institución, así como el costo de reparación, si se recibió a satisfacción o se clasificó como en desecho o en desuso.

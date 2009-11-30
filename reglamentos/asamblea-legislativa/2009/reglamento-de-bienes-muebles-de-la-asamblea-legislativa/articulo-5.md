@@ -1,0 +1,17 @@
+CAPÍTULO III
+Deberes, Responsabilidades y Competencias
+de la Dependencia Institucional
+Artículo 5º—Departamento de Proveeduría. El Departamento de Proveeduría, por medio del Área de Suministros y Bienes Muebles, es el responsable de coordinar todas las actividades relacionadas con el control y el registro de bienes muebles; además, le corresponderá:
+a) Recibir, controlar y verificar el estado físico de los bienes muebles, materiales y suministros, en cuanto a sus componentes, cantidades y valor económico, además de constatar que el bien sea conforme a la factura y la orden de pedido, sin detrimento del acta que levante la unidad de acuerdo con la contratación y en la que conste el recibo del bien a entera satisfacción, entendiendo por esto el adecuado funcionamiento así como el cumplimiento de las características técnicas.
+b) Mantener actualizado el inventario de los bienes de la institución.
+c) Registrar los bienes adquiridos por la institución consignando su naturaleza, características y garantías, así como también los materiales y los suministros.
+d) Identificar con código único todos los bienes de la institución y/o aquellos suministros que por su valor y características así lo ameriten, a juicio de lo que determine el Departamento Financiero.
+e) Llevar los controles necesarios para que, de conformidad con los procedimientos establecidos, todo bien que sea adquirido por la institución no obtenga salida del almacén sin su identificación cuando corresponda, de acuerdo con lo indicado en el inciso anterior, además de la firma de recibido del titular de la dependencia a la que corresponde o del funcionario a quien ha sido asignado.
+f) Programar y coordinar con las dependencias la emisión de un reporte semestral que contenga el detalle de los bienes que se encuentran asignados en cada una de ellas, con el objeto de que estas cotejen sus inventarios y comuniquen lo correspondiente.
+g) Gestionar y coordinar la realización periódica de un inventario físico, a fin de verificar la existencia y la condición de los bienes, así como la confiabilidad y la exactitud de los registros del control de bienes.
+h) Rendir y presentar los informes de inventario a la Dirección del Departamento de Proveeduría sobre los bienes institucionales y reportar en cualquier momento toda anomalía o inconsistencia que encuentre; a su vez, la Dirección reportará a la División Administrativa, Legislativa, a la Dirección Ejecutiva o a quien corresponda.
+i) Conservar bajo su custodia los bienes que son devueltos por las dependencias y el inventario de existencias de manera permanente.
+j) Llevar un registro de nombres, con sus respectivas firmas y números de identificación, de las personas designadas por las diferentes dependencias institucionales para realizar cualquier movimiento, tal como asignación, reasignación, traslado y otros.
+k) Registrar la baja de bienes, previo cumplimiento de los procedimientos que se establecerán al efecto.
+l) Enviar los originales de las garantías de los bienes adquiridos por la institución al Área de Gestión y Control del Departamento de Proveeduría; esta Área los custodiará y hará llegar a la unidad técnica correspondiente una copia de la orden de pedido, el control de entrada y la copia de factura.
+m) Implementar los procedimientos elaborados y necesarios para el orden, la localización y el control del movimiento, asignación, reasignación, traslado, devolución y baja de los bienes, mediante los formularios respectivos.

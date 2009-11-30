@@ -1,0 +1,1 @@
+Artículo 64.—Autorización de cesiones. Le corresponderá a la Comisión de Cesiones designar al beneficiario de la cesión y al Área de Suministros y Bienes del Departamento de Proveeduría confeccionar el acta de cesión. La distribución se hará dándoles preferencia a las instituciones o asociaciones de zonas rurales o marginales.
