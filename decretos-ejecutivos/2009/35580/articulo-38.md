@@ -1,0 +1,1 @@
+Artículo 38.—Asesoría. Es obligación de la Asesoría Legal de SENASA brindar a la Auditoría Interna un oportuno y efectivo servicio de asesoría legal, cuando lo requiera para atender sus necesidades de orden jurídico, conforme lo estipula el artículo 33, inciso c) de la LGCI.

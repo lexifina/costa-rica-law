@@ -1,0 +1,1 @@
+Artículo 29.—Archivo permanente. La Auditoría Interna mantendrá actualizado el archivo con la información sobre las regulaciones legales y de otro tipo que afecten su ámbito de acción y su actividad como tal, para lo cual utilizará los sistemas de información y archivos impresos, digitales, electrónicos y de cualquier otra naturaleza que sobre el particular mantiene SENASA.

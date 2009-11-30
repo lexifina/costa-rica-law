@@ -1,0 +1,2 @@
+Artículo 26.—Pericia y debido cuidado profesional. El Auditor Interno y los demás funcionarios de la Auditoría Interna deberán reunir los conocimientos, las aptitudes y otras competencias necesarias para cumplir con sus responsabilidades individuales, ejecutando sus funciones con pericia y debido cuidado profesional conforme lo dispuesto en el MNEAI.
+El personal de Auditoría Interna, colectivamente, debe reunir u obtener los conocimientos, la experiencia y las aptitudes necesarias para cumplir con sus responsabilidades.

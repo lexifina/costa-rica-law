@@ -1,0 +1,1 @@
+Artículo 84.—Incumplimiento de recomendaciones aceptadas por la Administración Activa. De comprobar la Auditoría Interna un incumplimiento injustificado respecto de la implantación de las recomendaciones aceptadas por parte del funcionario que le corresponde, lo pondrá en conocimiento del jerarca para lo que proceda, de conformidad con el artículo 42 de la LGCI.

@@ -1,0 +1,1 @@
+Artículo 36.—Certificación sobre los recursos asignados a la Auditoría Interna. Cada año el Auditor Interno debe emitir, para la aprobación del presupuesto ordinario de SENASA, una certificación, correspondiente a los recursos asignados a la Auditoría Interna, con comentarios relativos a si las sumas asignadas son suficientes para atender adecuadamente las funciones de ese año.

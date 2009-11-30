@@ -1,0 +1,1 @@
+Artículo 41.—Prohibiciones. El Auditor Interno y demás funcionarios de la Auditoría Interna deberán observar las prohibiciones establecidas en el artículo 34 de la LGCI, la LCCEI y otras regulaciones conexas.

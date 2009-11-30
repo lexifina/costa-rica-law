@@ -1,0 +1,1 @@
+Artículo 75.—Confidencialidad en el trámite de denuncias. La custodia, acceso de la información y comunicación de resultados, así como la documentación y otras evidencias de las investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en el artículo 6° de la LGCI y 8° de la LCCEI.

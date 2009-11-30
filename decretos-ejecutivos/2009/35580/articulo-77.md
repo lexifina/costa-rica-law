@@ -1,0 +1,1 @@
+Artículo 77.—Denuncias ante la Auditoría Interna sobre asuntos disciplinarios o con motivo de la prestación de servicios de funcionarios del SENASA. Serán trasladadas para el trámite que corresponda a la respectiva dependencia del SENASA, con indicación expresa de los artículos 6º de la LGCI y 8° de la LCCEI, la cual comunicará al denunciante lo que corresponda.

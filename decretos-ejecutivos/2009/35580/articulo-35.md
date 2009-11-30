@@ -1,0 +1,1 @@
+Artículo 35.—Modificaciones al presupuesto de la Auditoría Interna. No podrán hacerse modificaciones al presupuesto anual de SENASA que afecten los recursos asignados al desarrollo de las actividades de la Auditoría Interna, sin contarse con la previa autorización del Auditor Interno.

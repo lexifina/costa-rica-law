@@ -1,0 +1,1 @@
+Artículo 31.—Relaciones internas. El Auditor Interno deberá establecer y regular a lo interno de la Unidad, las pautas principales sobre las relaciones y coordinaciones de sus funcionarios con los auditados, a fin de que estas se establezcan respetando el ordenamiento jurídico y técnico aplicable.

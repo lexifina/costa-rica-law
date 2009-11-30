@@ -1,0 +1,1 @@
+Artículo 23.—Rendición de cuentas. El Auditor Interno responderá por su gestión ante el jerarca y le presentará, al menos, el informe de labores en los términos previstos por el artículo 22, inciso g) de la LGCI y otras disposiciones que dicte al respecto la Contraloría; además de otros informes que se elaboren y presenten al jerarca cuando las circunstancias lo ameriten.

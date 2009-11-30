@@ -1,0 +1,5 @@
+SECCIÓN D
+Del Auditor Interno y personal a su cargo
+Artículo 18.—Del nombramiento, suspensión y remoción del Auditor Interno. El nombramiento interino y por tiempo indefinido en el cargo de Auditor Interno lo realizará el Ministro con estricto apego a lo dispuesto en el artículo 31 de la LGCI, lo establecido por la Contraloría en los “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos” (L-1-2006-CO-DAGJ) y demás normativa que emita el órgano contralor para las unidades de Auditoría Interna del Sector Público, así como los requisitos que el Manual Institucional de Cargos establezca para este cargo y clase de puesto en el MAG.
+El nombramiento del Auditor Interno será por tiempo indefinido y su jornada laboral, así como la de los demás funcionarios de la Auditoría Interna, será de tiempo completo.
+El Auditor Interno será inamovible y la conclusión o suspensión de la relación de servicio solo podrá ser por justa causa, previo dictamen favorable de la Contraloría, según los términos del artículo 15 de la Ley Orgánica del ente contralor.

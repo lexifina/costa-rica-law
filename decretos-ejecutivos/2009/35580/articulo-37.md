@@ -1,0 +1,1 @@
+Artículo 37.—Registro presupuestario. El Auditor Interno debe establecer mecanismos de coordinación para que la Dirección Administrativa y Financiera lleve un registro separado del monto presupuestario asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se controlen la ejecución y modificaciones de los recursos presupuestados para esa Unidad.
