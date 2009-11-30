@@ -1,1 +1,0 @@
-Artículo 78.—Registro. Confeccionados los cheques, de inmediato se incluirán en el Registro que al efecto se lleva para cada cuenta corriente, y los originales serán pasados a control y responsabilidad del Cajero para ser entregados a sus beneficiarios conforme se presenten a retirarlos.

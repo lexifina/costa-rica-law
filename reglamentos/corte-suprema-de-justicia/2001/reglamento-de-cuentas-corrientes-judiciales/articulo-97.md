@@ -1,1 +1,0 @@
-Artículo 97.—Derogaciones. Se deroga el Reglamento de Cuentas Corrientes aprobado por la Corte Plena en sesión celebrada el seis de mayo de mil novecientos ochenta y nueve y sus reformas, así como cualquier otra disposición que se le oponga.
