@@ -15,3 +15,4 @@ Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho.
 | --- | --- | --- |
 | 1 | 2005-01-10 | la propia norma |
 | 2 | 2008-11-27 | Reglamento 39 (2008-11-27) |
+| 3 | 2009-11-30 | Reglamento 39 (2009-11-30) |
