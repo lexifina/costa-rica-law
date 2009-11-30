@@ -14,3 +14,4 @@ Requisitos de admisibilidad de las solicitudes de autorización que se presenten
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-26 | la propia norma |
+| 2 | 2009-11-30 | Resolución 588 (2009-11-30) |
