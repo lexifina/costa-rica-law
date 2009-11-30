@@ -1,0 +1,2 @@
+Artículo 32.—Del no reconocimiento de viáticos en actividades o eventos institucionales. Cuando un funcionario participe en alguna actividad aquí regulada, no podrá hacer uso de los viáticos.
+Se exceptúa de la regulación anterior los casos contemplados en el inciso c) del artículo 20 del Reglamento de los Fondos Fijos. La responsabilidad de verificar que se cumpla con esta regulación recae sobre el Titular Subordinado del funcionario que participa en la actividad.

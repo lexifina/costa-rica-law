@@ -1,0 +1,2 @@
+Artículo 17.—Metodología para el uso de gastos de representación en el interior del país. Cuando el gasto no supere el tope establecido para adelantos de Caja Chica, el funcionario autorizado podrá realizar el trámite por este medio, conforme con el Reglamento vigente y el presente Reglamento.
+Si el monto es mayor al tope indicado, realizará el trámite de adelanto por medio del formulario “Solicitud Orden de Cheque” y la liquidación la presentará en el área de Contabilidad, según los plazos establecidos en este Reglamento.

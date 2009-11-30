@@ -1,0 +1,1 @@
+Artículo 9º—Retención de renta: La retención se realizará de acuerdo con lo regulado por el artículo 24 inciso g) del Reglamento a la Ley del Impuesto sobre la Renta, Decreto Ejecutivo número 18445-H.

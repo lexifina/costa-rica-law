@@ -1,0 +1,2 @@
+Artículo 31.—De los justificantes para la liquidación: El funcionario Autorizado o Designado con la responsabilidad para realizar la Actividad deberá presentar la liquidación del gasto en el “FORMULARIO PARA LIQUIDACIÓN GASTOS DE ACTIVIDADES O EVENTOS INSTITUCIONALES F-EAAF-02”, junto con las facturas o comprobantes y cualquier otro documento que respalde la erogación.
+Es de carácter obligatorio presentar la lista de todos los asistentes a las Actividades o Eventos.

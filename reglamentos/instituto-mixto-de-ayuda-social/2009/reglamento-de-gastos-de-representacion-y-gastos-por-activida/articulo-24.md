@@ -1,0 +1,1 @@
+Artículo 24.—Del reintegro para gastos de representación al exterior. El reintegro que se derive de la liquidación será según la moneda en que se haya hecho el adelanto. El tipo de cambio para calcular el reintegro en colones será el mismo que se utilizó para girar el adelanto.

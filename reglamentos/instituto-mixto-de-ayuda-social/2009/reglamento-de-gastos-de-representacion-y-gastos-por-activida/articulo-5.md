@@ -1,0 +1,3 @@
+Artículo 5º—Responsabilidades generales
+a) De la supervisión y verificación: la responsabilidad de supervisar y verificar la correcta aplicación del presente Reglamento, en cada transacción que realicen los usuarios al amparo de éste, recae sobre el Titular Subordinado que la autorice.
+b) De la fiscalización: la responsabilidad de la fiscalización en la correcta aplicación del presente Reglamento recae sobre el Área de Apoyo y Asesoría Financiera, a través de cada uno de los Equipos Técnicos Especializados que la conforman; así como, de la Subgerencia Administrativa Financiera en lo de su competencia.

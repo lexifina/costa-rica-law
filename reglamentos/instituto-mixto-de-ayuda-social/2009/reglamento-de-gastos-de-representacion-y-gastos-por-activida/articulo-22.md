@@ -1,0 +1,1 @@
+Artículo 22.—Del tipo de moneda para gastos de representación al exterior. Para el giro del adelanto deberá quedar estipulado en el Acuerdo del Consejo Directivo el tipo de moneda a utilizar. Además, el tipo de cambio a aplicar deberá ser el de “compra”.

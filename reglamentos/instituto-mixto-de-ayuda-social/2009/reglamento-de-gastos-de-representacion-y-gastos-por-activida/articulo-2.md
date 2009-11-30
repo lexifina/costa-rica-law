@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente Reglamento cubre todas las erogaciones que se realicen por concepto de Gastos de Representación y las requeridas para atender Actividades o Eventos de carácter institucional.

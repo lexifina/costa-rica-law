@@ -1,0 +1,1 @@
+Artículo 12.—Exoneración de impuesto de ventas. Al estar la Institución exonerada de impuestos, no se aceptará el pago de impuestos de venta, a excepción de lo establecido en el Reglamento de las Cajas Chicas Institucionales. En caso de modificarse la ley tributaria, corresponderá al Coordinador (a) del Área de Apoyo y Asesoría Financiera emitir las directrices correspondientes.

@@ -1,0 +1,1 @@
+Artículo 26.—De los justificantes para la liquidación. El funcionario Autorizado o Delegado que haga uso de los Gastos de Representación Institucionales deberá presentar la liquidación en el “FORMULARIO LIQUIDACIÓN GASTOS DE REPRESENTACIÓN EN EL INTERIOR Y EXTERIOR DEL PAÍS” F-EAAF-01” junto con las facturas justificantes, y cualquier otro documento que sirva de respaldo.

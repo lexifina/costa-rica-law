@@ -1,0 +1,1 @@
+Artículo 21.—Del adelanto de gastos de representación para viajes al exterior. El adelanto para gastos de viaje en el exterior por este concepto se solicitará por medio de una “Solicitud de Orden de Cheque” y se adjuntará el Acuerdo del Consejo Directivo, como autorización previa.

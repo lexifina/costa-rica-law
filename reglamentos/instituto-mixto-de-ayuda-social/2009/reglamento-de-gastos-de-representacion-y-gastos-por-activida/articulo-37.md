@@ -1,0 +1,1 @@
+Artículo 37.—Derogatoria. El presente Reglamento deroga a partir de la fecha de entrada en vigencia, el Reglamento de Gastos Especiales aprobado por el Consejo Directivo, Acuerdo CD-29, acta 82/8, artículo 1º del 28 de enero de 1982 y toda normativa de igual o de menor rango dictada sobre el particular.

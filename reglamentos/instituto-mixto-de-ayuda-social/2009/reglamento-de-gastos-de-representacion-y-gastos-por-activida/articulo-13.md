@@ -1,0 +1,1 @@
+Artículo 13.—De las erogaciones por medio del fondo fijo de caja chica. Las erogaciones que se realicen por medio de los Fondos de Caja Chica se regirán por lo establecido en el Reglamento de las Cajas Chicas Institucionales y por este Reglamento.

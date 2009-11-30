@@ -1,0 +1,1 @@
+Artículo 20.—De los gastos de representación en el exterior del país. Se reconocerán Gastos de Representación a los funcionarios Autorizados o Delegados, cuando éstos sean previamente autorizados por el Consejo Directivo del IMAS, para lo cual se debe estipular el monto autorizado al funcionario.

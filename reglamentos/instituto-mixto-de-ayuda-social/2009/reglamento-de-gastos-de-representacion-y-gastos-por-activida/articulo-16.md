@@ -1,0 +1,1 @@
+Artículo 16.—De las sumas fijas. Los Gastos de Representación Institucionales no forman parte integral del salario. Tampoco se pueden asignar como sumas fijas, sino que deben liquidarse contra el hecho generador del gasto.

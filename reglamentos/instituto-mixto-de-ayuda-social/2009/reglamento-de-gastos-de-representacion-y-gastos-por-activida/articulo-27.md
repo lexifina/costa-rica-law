@@ -1,0 +1,1 @@
+Artículo 27.—Del registro presupuestario. El registro de las erogaciones en que incurra la Institución para este concepto de gasto deben ser registrados en el grupo de Subpartidas Capacitación y Protocolo, Subpartida Gastos de Representación Institucional, conforme con lo que establece el Clasificador por Objeto del Gasto del Sector Público.

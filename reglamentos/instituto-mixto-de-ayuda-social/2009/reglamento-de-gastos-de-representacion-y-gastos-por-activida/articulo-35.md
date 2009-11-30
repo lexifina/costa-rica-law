@@ -1,0 +1,1 @@
+Artículo 35.—De las prohibiciones. Son prohibidos los arreglos de pago sobre las sumas que debe reintegrar el funcionario Autorizado, Delegado o Designado sobre las erogaciones que se realicen al amparo del presente Reglamento.

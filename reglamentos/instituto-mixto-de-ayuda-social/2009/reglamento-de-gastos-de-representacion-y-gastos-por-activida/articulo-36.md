@@ -1,0 +1,1 @@
+Artículo 36.—De las no retenciones de renta o exoneraciones del impuesto de ventas. El funcionario que no realice el trámite de exoneración del impuesto de ventas o retención del impuesto sobre la renta deberá cubrir, de su propio peculio, el monto por dicha erogación.

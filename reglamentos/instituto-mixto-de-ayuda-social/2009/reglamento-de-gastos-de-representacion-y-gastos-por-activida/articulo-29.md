@@ -1,0 +1,1 @@
+Artículo 29.—Del registro presupuestario. El registro de las erogaciones en que incurra la Institución para este concepto de gasto deben ser registrados en el Grupo de Subpartidas Capacitación y Protocolo, Subpartidas Actividades de Capacitación, o Actividades Protocolarias y Sociales conforme lo establece el Clasificador por Objeto del Gasto del Sector Público.

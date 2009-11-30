@@ -1,0 +1,4 @@
+Artículo 25.—De las liquidaciones. La presentación de las liquidaciones se hará de la siguiente forma:
+a. Cuando se trate de Gastos de Representación al exterior del país deben ser presentadas en el área de Contabilidad, mediante el formulario “FORMULARIO LIQUIDACIÓN GASTOS DE REPRESENTACIÓN EN EL INTERIOR Y EXTERIOR DEL PAÍS” F-EAAF-01 con la información solicitada, las facturas y cualquier otra documentación que respalde la erogación.
+b. Cuando sean liquidaciones por Gastos de Representación realizados en el interior del país y previamente se haya realizado un adelanto de efectivo por medio de los Fondos de Caja Chica, éstas deben realizarse ante el Administrador del Fondo Fijo.
+c. Cuando se trate de adelantos por medio de cheque, las liquidaciones deberán ser presentadas en el área de Contabilidad.
