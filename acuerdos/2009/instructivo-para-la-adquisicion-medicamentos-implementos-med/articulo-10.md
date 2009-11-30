@@ -1,0 +1,2 @@
+10.—Presentación de las ofertas: El Oferente deberá presentar su oferta por el medio autorizado en la invitación en Proveeduría, dentro del plazo consignado en la invitación y debidamente firmada por quien tenga poder para ello. Asimismo para realizar mejoras del precio éstas deberán ser propuestas al momento de la apertura.
+La oferta deberá respetar las especificaciones de cada producto, para ello el oferente deberá consignar en su oferta todos los requerimientos técnicos y formales consignados en la invitación. No se admitirán ofertas alternativas.

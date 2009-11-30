@@ -1,0 +1,5 @@
+24.—Régimen sancionatorio: En caso de atraso en la entrega de alguna de las líneas o grupo o parte de ellas, el adjudicatario deberá pagar al Instituto el 2.5% del monto total adjudicado en cada línea o grupo o parte de ellas por cada día natural de atraso, hasta completar un máximo del 25% del total adjudicado en la línea o el grupo de ellas.
+La suma que corresponda por concepto de aplicación de esta cláusula, será rebajada del pago que se le haga al Adjudicatario.
+En caso de incumplimiento por parte del contratista el INS se reserva el derecho de iniciar el debido proceso con fundamento en lo dispuesto en la Ley de Contratación Administrativa y su Reglamento, del cual podría derivarse un apercibimiento, la resolución contractual, y/o ejecución de la garantía de cumplimiento, e inhabilitación inclusive.
+Asimismo, la Administración valorará, como parte del debido proceso, la posibilidad de excluir al proveedor del registro.
+Sobre dicha actuación cabrá recurso de revocatoria en los términos previstos en los artículos 342 y siguientes de la Ley General de la Administración Pública.

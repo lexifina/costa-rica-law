@@ -1,0 +1,1 @@
+3º—Principios: Todas las contrataciones que se realicen al amparo de Instructivo deberán observar los principios de eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe e intangibilidad patrimonial según se define en la Ley de Contratación Administrativa y su reglamento.

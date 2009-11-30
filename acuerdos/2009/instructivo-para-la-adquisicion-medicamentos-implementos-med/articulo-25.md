@@ -1,0 +1,1 @@
+25.—Vigencia del procedimiento: Este procedimiento tendrá una vigencia de un año a partir de la autorización dada por la Contraloría General de la República en el oficio indicado al inicio de este Instructivo. Este requisito de validez aplicará para toda reforma que se pretenda hacer posteriormente.

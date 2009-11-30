@@ -1,0 +1,2 @@
+2º—Alcance: El presente instructivo se aplicará por parte de Proveeduría del Instituto (Órgano encargado de guiar el proceso y verificar aspectos formales) para la adquisición de medicamentos, implementos médicos y/o instrumental quirúrgico, Departamento ante el cual el interesado podrá plantear consultas u observaciones.
+Las necesidades serán planteadas por las Unidades Usuarias, sea la División Médica o cualquier otra Sede, Dependencia o Instancia del INS que así lo requiera.
