@@ -1,0 +1,1 @@
+Artículo 13—Quórum. El Comité de Tecnología de Información procurará reunirse con todos sus miembros; no obstante, el quórum quedará válidamente constituido por tres de sus integrantes. Los acuerdos se tomarán por mayoría simple de los presentes.
