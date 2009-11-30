@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del Sector Público, dentro del marco legal respectivo, podrán prestar cualquier tipo de ayuda y contribuir con recursos económicos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, con el “Congreso Iberoamericano de Derecho Público y Administrativo de Control y de Compras Públicas”.
