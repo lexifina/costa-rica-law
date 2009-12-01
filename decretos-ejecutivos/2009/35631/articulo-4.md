@@ -1,0 +1,1 @@
+Artículo 4º—Integración de acciones. La Comisión podrá invitar y convocar a sus reuniones a representantes de otras instituciones y entidades gubernamentales o del sector privado, cuya actividad incida en la protección de la propiedad intelectual y que en forma consultiva puedan contribuir al mejor desempeño de las actividades de la Comisión.
