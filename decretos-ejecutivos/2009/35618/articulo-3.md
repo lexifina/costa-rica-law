@@ -1,0 +1,1 @@
+Artículo 3º—Miembros del Consejo Sectorial. Los miembros del Consejo realizarán sus funciones en forma ad-honorem. Además, podrán ser representados, en casos calificados, por los suplentes que estos acrediten, los que necesariamente deberán garantizar la mayor autoridad y poder de decisión.

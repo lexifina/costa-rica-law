@@ -1,0 +1,1 @@
+Artículo 9º—Disposiciones finales. En lo no regulado en el presente reglamento, se aplicarán, en lo que fuere razonablemente compatible, las disposiciones contenidas en los artículos 49 a 58 de la Ley General de la Administración Pública. Nº 6227.
