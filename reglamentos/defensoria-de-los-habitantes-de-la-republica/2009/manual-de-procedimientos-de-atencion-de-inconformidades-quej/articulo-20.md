@@ -1,0 +1,1 @@
+Artículo 20.—De la identidad del o la habitante. Cuando se trate de la disconformidad de un habitante en relación con la tramitación de una Solicitud de Intervención, no cabrá la recepción anónima de dicha disconformidad.

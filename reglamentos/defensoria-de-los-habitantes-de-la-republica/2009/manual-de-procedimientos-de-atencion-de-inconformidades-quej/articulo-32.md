@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Del Procedimiento sobre las Investigaciones de Oficio
+Artículo 32.—De las investigaciones de oficio. Corresponde a la Contraloría de Servicios tramitar las investigaciones que se le asignen en forma especial por parte del Despacho del Defensor(a) de los Habitantes de la República así como aquellas que proponga al Defensor/a a consideración propia, en el marco de sus competencias para el mejoramiento de la calidad del servicio en la institución. Con fundamento en las investigaciones de oficio que realice la Contraloría de Servicios elaborará informes con recomendaciones para la adopción de políticas, normas y procedimientos en procura de una prestación de servicios oportuna y eficaz en favor de los y las habitantes.

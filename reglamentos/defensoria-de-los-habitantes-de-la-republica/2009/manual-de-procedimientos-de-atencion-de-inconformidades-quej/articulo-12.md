@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las y los habitantes usuarios
+Artículo 12.—De la presentación de inconformidades, reclamos, consultas, denuncias o sugerencias de los habitantes usuarios(as). Toda persona, sea individual o jurídica, o bien un grupo de habitantes, podrá plantear ante la Contraloría de Servicios de la institución, inconformidades, quejas, denuncias, reclamos, consultas, sugerencias, recomendaciones o felicitaciones, respecto a la prestación de los servicios que brindan las distintas oficinas o áreas de la Defensoría de los Habitantes y sobre las actuaciones de los funcionarios(as) de ésta en el ejercicio de sus labores, cuando se estime que eventualmente afecten directamente sus derechos e intereses o la prestación de los servicios.

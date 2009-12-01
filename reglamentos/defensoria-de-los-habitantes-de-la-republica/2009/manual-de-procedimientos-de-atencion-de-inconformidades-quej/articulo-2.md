@@ -1,0 +1,7 @@
+Artículo 2º—Definiciones. Para los efectos del artículo anterior, se establecen las siguientes definiciones:
+a) Habitante usuario/a: Será usuario(a) todo habitante de la República, ya sea una persona individual o jurídica, o bien, un grupo de habitantes, que requiera de los servicios que presta la Defensoría de los Habitantes de la República.
+b) Inconformidades, quejas, denuncias, reclamos: Manifestación verbal o escrita del/la habitante usuario, en la cual expone disconformidad o insatisfacción con el servicio prestado por la Defensoría y solicita su atención por parte de la Contraloría de Servicios.
+c) Consultas: Solicitud mediante la cual el/la habitante usuario, requiere información relacionada con un caso en trámite o cerrado o solicita a la Contraloría de Servicios información relacionada con el quehacer de la Defensoría.
+d) Sugerencias y recomendaciones: Propuestas planteadas por el/la habitante usuario, conducentes a mejorar la prestación de los servicios institucionales.
+e) Funcionario/a de la Defensoría de los Habitantes: Toda persona que presta servicios para la Defensoría de los Habitantes, indistintamente de su condición de interinazgo o de propiedad de su plaza.
+f) Resolución Alternativa de Conflictos: técnicas de mediación, conciliación y acercamiento de las partes que puede utilizar la Contraloría de Servicios en la atención de una disconformidad formulada por un/a habitante.

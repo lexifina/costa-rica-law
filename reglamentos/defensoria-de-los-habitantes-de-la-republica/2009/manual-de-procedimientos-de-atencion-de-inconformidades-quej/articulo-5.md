@@ -1,0 +1,1 @@
+Artículo 5º—Principios rectores del procedimiento. El procedimiento que se regula en el presente reglamento, debe observar los principios de sumariedad, informalidad, celeridad, diligencia, legalidad, razonabilidad, proporcionalidad, oficiosidad y gratuidad.

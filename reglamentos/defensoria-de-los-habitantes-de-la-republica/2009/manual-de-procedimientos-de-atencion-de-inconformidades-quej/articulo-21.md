@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del Procedimiento de Investigación y Gestiones Informales
+Artículo 21.—De la atención y tramitación. Una vez recibida la inconformidad, queja, denuncia, reclamo, consulta, sugerencia, recomendación, la Contraloría de Servicios solicitará en el término improrrogable de veinticuatro horas al funcionario/a denunciado con copia al Director(a), o Jefe(a) de la dependencia correspondiente, un informe u opinión al respecto, el cual deberá ser emitido en el término de cinco días hábiles a partir del requerimiento. Cuando por razones de complejidad la respuesta a su solicitud no pueda brindarse en el plazo anterior, el requerido(a) contará con tres días hábiles, previa solicitud formal y justificación razonada.

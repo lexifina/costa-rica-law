@@ -1,0 +1,1 @@
+Artículo 28.—De los Recursos. Contra los informes de la Contraloría de Servicios, cabrá Recurso de Reconsideración ante el Defensor/a de los Habitantes, en el plazo de ocho días hábiles a partir de su debida notificación.
