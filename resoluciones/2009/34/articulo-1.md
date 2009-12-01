@@ -1,0 +1,17 @@
+SERVICIO NACIONAL DE SALUD ANIMAL
+Nº SENASA-DGR 034-2009.—Dirección General del Servicio Nacional de Salud Animal.—Barreal de Ulloa, a las ocho horas del diecisiete de noviembre del dos mil nueve.
+Considerando:
+1º—Que la Ley General del Servicio de Salud Animal, Ley Nº 8495 del 06 de abril 2006, establece entre las competencias del SENASA, administrar, planificar, dirigir y tomar medidas pertinentes en todo el país, para cumplir con sus servicios, programas y campañas, en materia de prevención, control y erradicación de plagas y enfermedades de los animales.
+2º—Que es competencia del SENASA promulgar y velar por la ejecución de las normas sanitarias que impiden la propagación y diseminación de las enfermedades de los animales.
+3º—Que la Brucelosis y Tuberculosis en los animales y especialmente en bovinos, son enfermedades zoonóticas que afectan a los seres humanos lo que provoca manifestaciones clínicas y retraso en la producción.
+4º—Que para el SENASA reviste importancia la prevención, control y erradicación de dichas enfermedades en defensa de la Salud Pública y Animal y en consecuencia ha emitido recientemente los decretos número 34852-MAG y 34858-MAG, que garantizan el combate de dichas enfermedades en el país.
+5º—Que para poder realizar dicho combate a ambas enfermedades se incluye la toma y procesamiento de muestras y su diagnóstico a todos los hatos del país a fin de que sean declarados libres o en proceso de saneamiento. Estas pruebas evidentemente tienen un costo económico, el cual mediante artículo 5 del Decreto Nº 27763 del 10 de marzo de 1999 y sus reformas se autoriza a que en casos de interés público puedan exonerarse de su pago.
+6º—Que para algunos pequeños ganaderos asumir dicho costo resulta oneroso ya que por el precio y la cantidad de exámenes la obligación se vuelve costosa y no pueden hacerle frente, no obstante los exámenes son de interés epidemiológico del SENASA.
+7º—Que ante esta realidad, la urgencia del SENASA de realizar la toma y procesamiento de de muestras por un lado y ante la imposibilidad de los pequeños ganaderos de cancelar dichos exámenes por otro lado, es necesario que el Estado sea solidario y asuma estos costos cuando se trate de pequeños ganaderos y para lo cual deberá tomarse en cuenta su condición social y económica. Por tanto,
+EL DIRECTOR GENERAL DEL SERVICIO
+NACIONAL DE SALUD ANIMAL
+RESUELVE:
+Primero.—Que en virtud de la importancia que tienen los programas de prevención, control y erradicación de Brucelosis y Tuberculosis en bovinos y dados los costos que tienen dichos exámenes, la Dirección de Operaciones Nacionales y el LANASEVE del SENASA asumirán los costos en la toma y procesamiento de muestras de laboratorio para dichas enfermedades a los pequeños ganaderos, que así lo soliciten y que cumplan con los siguientes parámetros: personas físicas sin capacitación académica universitaria, que no posean más de diez animales y que no sean propietarios o poseedores de más de cinco hectáreas de terreno.
+Segundo.—Cuando así fuere solicitado, la Dirección Regional del SENASA, verificará el cumplimiento de los parámetros antes indicados y si ello fuere así, solicitará al LANASEVE la exoneración de pago de los exámenes correspondientes dentro del Programa de Prevención, Control y Erradicación de la Tuberculosis y la Brucelosis Bovina.
+La Dirección de Operaciones Nacionales y el LANASEVE tomarán las previsiones administrativas para la adecuada implementación de la presente medida.
+Tercero.—Rige a partir de su publicación en el Diario Oficial
