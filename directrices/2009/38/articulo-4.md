@@ -1,0 +1,1 @@
+4º—Alcance: La metodología será de aplicación a todas la Instituciones que tengan metas en el Sector Trabajo y Seguridad Social, según lo establecido en el Decreto Nº 34582-MP-PLAN, de acuerdo al cual se formuló el PND 2006-2010, así como a aquellas que en próximos Planes de Desarrollo mantengan metas en el Sector Trabajo y Seguridad Social.

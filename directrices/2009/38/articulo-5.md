@@ -1,0 +1,6 @@
+5º—Para garantizar el adecuado funcionamiento de esta metodología, se cuenta con la siguiente estructura organizacional.
+a) Ministro Rector del sector: Ministro de Trabajo y Seguridad Social.
+b) Dirección de Planificación del Ministerio de Trabajo y Seguridad Social: Será la Unidad Técnica que administrará la información y elaborará informes de resultados, registrará las metas concertadas con las instituciones.
+c) Enlaces institucionales: Cada Institución con metas en el Sector Trabajo y Seguridad Social nombrará un enlace técnico a través del cual la Dirección de Planificación coordinará lo referente a los compromisos adquiridos.
+d) Departamento Control Interno de la Dirección de Planificación: Este Departamento se incorpora como un elemento más de la administración activa para diseñar, aplicar y dar seguimiento a mecanismos efectivos de control interno.
+e) Auditoría Interna de cada Institución: De conformidad con el artículo 21 de la Ley General de Control Interno. “La auditoría interna contribuye a que se alcancen los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección.
