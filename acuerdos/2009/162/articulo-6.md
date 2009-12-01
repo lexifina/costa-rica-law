@@ -1,0 +1,1 @@
+Artículo 6º—Derogatorias. Se deroga el Acuerdo SGV-A-55 “Los requisitos para la inscripción de metodologías de valoración de carteras y temas conexos del Reglamento de Valoración de Carteras Mancomunadas” que fue modificado por los acuerdos SGV-A-56, SGV-A-64, SGV-A-65 y SGV-A-152. Ref. 0665 del 1 de marzo del 2002.

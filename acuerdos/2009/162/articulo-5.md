@@ -1,0 +1,1 @@
+Artículo 5º—Disposiciones para bolsas de valores. Se modifica el contenido del anexo 19 “Informe de operaciones bursátiles”, para definir los nuevos requerimientos de información de conformidad con la nueva plataforma tecnológica que incorpora cambios en los sistemas de negociación y en la estructura de la base de datos de transacciones.
