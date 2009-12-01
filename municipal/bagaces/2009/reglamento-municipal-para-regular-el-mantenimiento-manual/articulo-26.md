@@ -1,0 +1,1 @@
+Artículo 26.—Funciones del Director (a) de la Unidad Técnica de Gestión Vial Municipal. El coordinador de la Unidad respectiva municipal, será responsable de dar seguimiento a las denuncias planteadas por los vecinos en actividades de mantenimiento manual.

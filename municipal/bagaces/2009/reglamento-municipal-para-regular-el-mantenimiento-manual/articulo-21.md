@@ -1,0 +1,1 @@
+Artículo 21.—Ejecución de pbras por ONGs. La ONGs autorizadas podrán ejecutar cualquier actividad de mantenimiento manual cuando obedezca al incumplimiento de los vecinos previa nota escrita por el encargado de la Unidad Técnica y a firma del convenio respectivo que los faculte para ese trabajo específico.

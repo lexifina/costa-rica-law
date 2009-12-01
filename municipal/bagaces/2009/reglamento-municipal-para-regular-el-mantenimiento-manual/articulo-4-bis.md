@@ -1,0 +1,1 @@
+Artículo 4° bis.—Los mantenimientos escritos anteriormente podrán ser realizados por las cuadrillas municipales o en su defecto por las Asociaciones de Desarrollo o los comités de caminos, de previo se debe de realizar un convenio con estas organizaciones con el fin de realizar las labores a nombre de la Municipalidad.
