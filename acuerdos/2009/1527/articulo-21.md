@@ -1,0 +1,1 @@
+Artículo 21.—La Unidad del Mecanismo Nacional de Prevención mantendrá actualizada la información a incluir dentro del link del mismo nombre, ubicado en el sitio Web de la Defensoría de los Habitantes. Para dichos efectos coordinará con la Comisión de Comunicación Informática.

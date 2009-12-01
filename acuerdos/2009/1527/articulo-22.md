@@ -1,0 +1,1 @@
+Artículo 22.—Con el propósito de sensibilizar a las instituciones públicas relevantes sobre la labor de la Unidad del Mecanismo Nacional de Prevención, ésta realizará talleres periódicos con las autoridades con el fin de informar y distribuir materiales relevantes. La elaboración de los materiales se efectuará en coordinación con la Dirección de Promoción y Divulgación.

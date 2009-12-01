@@ -1,0 +1,1 @@
+Artículo 23.—Con el fin de promover el tema de la prevención de la tortura y de otros tratos o penas crueles, inhumanos o degradantes, el Despacho de la Defensoría de los Habitantes tendrá a su cargo la inclusión de esta temática en las agendas de los foros regionales e internacionales relevantes, con el fin de participar en los mismos.

@@ -1,0 +1,1 @@
+Artículo 17.—La Unidad del Mecanismo Nacional de Prevención deberá preparar un Informe Anual al Estado Costarricense con el fin de informar acerca de la labor realizada, el cual será revisado y firmado por el Despacho.

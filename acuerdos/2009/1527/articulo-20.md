@@ -1,0 +1,1 @@
+Artículo 20.—La Oficina de Prensa de la Defensoría de los Habitantes elaborará y ejecutará estrategias de comunicación y prensa, con el fin de difundir ante los medios de comunicación colectiva los Informes Anuales de la Unidad del Mecanismo Nacional de Prevención.

@@ -1,0 +1,1 @@
+Artículo 5º—La Unidad del Mecanismo Nacional de Prevención deberá estar conformada por un equipo interdisciplinario con amplia experiencia en visitas en lugares de privación de libertad, detención o custodia.

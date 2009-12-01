@@ -1,0 +1,1 @@
+Artículo 10.—Como parte del planeamiento de la visita, la Unidad del Mecanismo Nacional de Prevención realizará un proceso de coordinación con las Áreas de Defensa, la Dirección de Oficinas Regionales, y el Área Médica, para solicitar información o su acompañamiento durante la visita, en caso de considerarse necesario.

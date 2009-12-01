@@ -1,0 +1,1 @@
+Artículo 16.—El personal de la Unidad del Mecanismo Nacional de Prevención deberá guardar la confidencialidad en relación con la información brindada por parte de personas privadas de libertad o del personal de los lugares de privación de libertad, detención o custodia.
