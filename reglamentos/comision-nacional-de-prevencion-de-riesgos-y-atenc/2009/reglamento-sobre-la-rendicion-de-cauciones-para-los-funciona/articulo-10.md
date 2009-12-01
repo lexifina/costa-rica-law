@@ -1,0 +1,1 @@
+Artículo 10.—Caucionantes ad honorem o sin salario. Los caucionantes que ocupen puestos públicos en condición ad honorem que no perciban un salario mensual por parte de la CNE, pero que devenguen otros incentivos económicos, deberán rendir una caución mínima, la cual tendrá que estar acorde con el nivel de riesgo que representa.

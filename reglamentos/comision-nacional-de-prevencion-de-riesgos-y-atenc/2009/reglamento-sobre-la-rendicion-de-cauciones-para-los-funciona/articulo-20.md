@@ -1,0 +1,1 @@
+Artículo 20.—Prescripción de la garantía. La prescripción de la garantía dependerá de la naturaleza jurídica de la caución seleccionada de acuerdo con el artículo 5° del presente Reglamento, por lo que deberá mantenerse estricto control sobre los vencimientos que le corresponderá al Departamento de Recursos Humanos.

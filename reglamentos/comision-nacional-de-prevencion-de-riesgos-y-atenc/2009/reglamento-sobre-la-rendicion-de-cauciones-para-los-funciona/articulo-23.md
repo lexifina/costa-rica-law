@@ -1,0 +1,1 @@
+Artículo 23.—Responsabilidad Solidaria. El encargado del control de las cauciones del Departamento de Recursos Humanos que por culpa, negligencia o dolo no informe mediante oficio y de manera oportuna cualquier anomalía respecto al cumplimiento de esta normativa, será solidariamente responsable por el monto de los daños o perjuicios ocasionados al patrimonio de la CNE.

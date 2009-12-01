@@ -1,0 +1,1 @@
+Artículo 6º—Para el ocupante de más de un cargo sujeto a caución. El ocupante de un puesto que por Ley, Decreto, o disposición interna, le corresponda asumir funciones y/o recargo de funciones en donde se recaude, administre o custodie fondos públicos, deberá rendir una única caución. En este caso el funcionario deberá rendir la mayor caución asignada a ese doble cargo.

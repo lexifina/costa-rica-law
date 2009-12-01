@@ -1,0 +1,1 @@
+Artículo 11.—Reconocimiento de intereses. No se reconocerán intereses por las garantías en depósito de dinero, mantenidas en custodia y control por la administración de la CNE. En cuanto a los intereses que devenguen los títulos valores hasta el momento en que se ejecuten, pertenecerán al caucionante.

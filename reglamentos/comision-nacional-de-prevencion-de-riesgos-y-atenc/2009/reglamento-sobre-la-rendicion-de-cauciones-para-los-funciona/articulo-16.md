@@ -1,0 +1,5 @@
+Artículo 16.—Competencias de la Comisión de Cauciones. Corresponde a dicha Comisión determinar el monto de la caución que debe rendir los funcionarios obligados a ello conforme a lo establecido en el presente Reglamento, además de:
+a) Mantener actualizados los montos de las cauciones.
+b) Establecer el procedimiento respectivo que permita fijar los requisitos mínimos para la suscripción de la garantía, fijación de los montos, actualización de las garantías por cada funcionario y el monto mínimo aceptable. Para ello deberá considerar todos aquellos requisitos que garanticen el efectivo cumplimiento de esta normativa como mecanismo para proteger el patrimonio institucional de la CNE. Se exceptúa de la fijación del monto de las cauciones relativas a la Presidencia y la Dirección Ejecutiva de la CNE.
+c) Informar al Departamento de Recursos Humanos cualquier incumplimiento observado en la aplicación del presente reglamento.
+d) Velar por el cumplimiento del presente reglamento y la actualización del mismo, de tal manera que se ajuste a las condiciones y la rendición oportuna y adecuada de las cauciones.

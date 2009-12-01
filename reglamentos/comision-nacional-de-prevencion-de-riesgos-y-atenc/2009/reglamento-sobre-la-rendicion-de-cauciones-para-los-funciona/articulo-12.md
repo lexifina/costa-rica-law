@@ -1,0 +1,1 @@
+Artículo 12.—Deber de solventar la garantía. Es deber del caucionante, asumir el costo íntegro de la garantía a favor de la CNE, el cual deberá provenir de su propio peculio, bajo cualquiera de las formas previstas en el artículo 5° del presente Reglamento.

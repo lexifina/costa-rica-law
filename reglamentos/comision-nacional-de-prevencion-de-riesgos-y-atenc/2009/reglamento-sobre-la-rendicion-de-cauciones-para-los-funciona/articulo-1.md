@@ -1,0 +1,30 @@
+COMISIÓN NACIONAL DE PREVENCIÓN DE RIESGOS Y ATENCIÓN DE EMERGENCIAS
+(CNE)
+REGLAMENTO SOBRE LA RENDICIÓN DE CAUCIONES PARA LOS FUNCIONARIOS DE
+LA COMISIÓN NACIONAL DE PREVENCIÓN DE RIESGOS Y ATENCIÓN
+DE EMERGENCIAS (CNE)
+Disposiciones generales
+Con base en lo establecido en el artículo 13º de la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley 8131 del 18 de setiembre del 2001, la Ley General de la Administración Pública, Ley 6727 del 2 de mayo de 1978; la Ley General de Control Interno, Ley 8292 del 4 de setiembre del 2002, la Ley Nacional de Emergencias y Prevención del Riesgo, Ley 8488 del 11 de enero del 2006, y su Reglamento; así como las directrices emitidas al efecto por la Contraloría General de la República, mediante Resolución R-CO-10-2007 de las trece horas del diecinueve de marzo del dos mil siete, y demás normas conexas.
+Considerando:
+I.—Que el artículo 13º de la “Ley de Administración Financiera de la República y Presupuestos Públicos”, Ley 8131 del 18 de setiembre del 2001, establece que todo encargado de recaudar, custodiar o administrar fondos y valores públicos, deberá rendir garantía con cargo a su propio peculio, a favor de la Hacienda Pública o la entidad respectiva, para asegurar el correcto cumplimiento de sus deberes y obligaciones.
+II.—Que conforme lo dispuesto en la citada norma jurídica, las leyes y reglamentos determinarán, tanto la clase y montos de las garantías, así como los procedimientos aplicables, en orden a los niveles de responsabilidad, el monto administrado y el salario del funcionario correspondiente.
+III.—Que el artículo 110° inciso l) de la citada Ley, establece como hecho generador de responsabilidad administrativa, el nombramiento de un servidor con facultades de uso y disposición de recursos públicos, que no reúna las condiciones exigidas por el ordenamiento jurídico o los manuales y las reglamentaciones internas, o darle al servidor posesión del cargo sin rendir previamente la caución que ordena esta Ley.
+IV.—Que el objetivo general del control interno es proteger y conservar el patrimonio institucional, siendo responsabilidad de la Administración, en especial al Jerarca y los Titulares Subordinados, implementar y ejecutar medidas efectivas para administrar en forma adecuada el nivel de riesgo existente en las labores de custodia y administración de fondos y valores públicos, teniéndose como un mecanismo idóneo para proteger el patrimonio del Estado, el proceso de rendición de garantías por parte de quienes tienen la responsabilidad de administrar y custodiar esos fondos y valores públicos.
+V.—Que es necesario contar con una normativa actualizada que regule el accionar de los funcionarios de la CNE que recauden, custodien o administren fondos públicos, todo en virtud de las disposiciones del Artículo 13 y 20 de la Ley de Administración Financiera y Presupuestos Públicos Nº 8131 del 18 de setiembre del 2001; Artículos 19° y 20° de la Ley de Emergencias y Prevención del Riesgo, Ley 8488; Artículo 16° del Decreto Ejecutivo 34361-MP “Reglamento a la Ley de Emergencias y Prevención del Riesgo”; Artículo 39° del Estatuto del Servicio Civil, Artículos 50° y 22° bis del Reglamento del Estatuto del Servicio Civil; Artículo 71° del Código de Trabajo; y el Artículo 3° la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley Nº 8422.
+Por tanto se emite:
+REGLAMENTO SOBRE LA RENDICIÓN DE CAUCIONES PARA LOS FUNCIONARIOS DE
+LA COMISIÓN
+NACIONAL DE PREVENCIÓN DE RIESGOS Y ATENCIÓN DE EMERGENCIAS(CNE)
+CAPÍTULO I
+Ámbito de aplicación y funcionarios obligados a rendir cauciones
+Artículo 1º—Definiciones. Para efecto de la aplicación del presente Reglamento, se entiende por:
+a) Administrador: Se reconoce con el calificativo de administrador de fondos públicos a aquellos funcionarios o servidores que ejecutan objetivos y políticas de la CNE, a quienes se les ha encomendado mediante el ejercicio de las funciones administrativas la tarea de ejercer el gobierno y cuidado de estos fondos.
+b) Administrar: Gobierno de los intereses o bienes. Es un conjunto de reglas para gestionar bien los negocios, en un sentido amplio se conceptúa como aplicación de medios a fines; comprende la realización oportuna, eficaz y efectiva de las funciones administrativas, entendiéndose éstas como planear, organizar, dirigir, coordinar y controlar las actividades que orientarán la organización hacia el logro de los fines establecidos por la Ley Nacional de Emergencias y Prevención del Riesgo y definidos por las autoridades superiores.
+c) Caución: Garantía que rinde el caucionante en las distintas formas permitidas en este Reglamento para cumplir con las funciones asignadas en favor de la Hacienda Pública.
+d) Caucionante: Todo servidor de la CNE encargado de recaudar, custodiar y administrar fondos y valores públicos.
+e) Custodiar: Guardar o tener fondos públicos que se administran o conservan con el cuidado, esmero y vigilancia que aplica un buen padre para con sus hijos (In vigilando). Ello implica preservar y resguardar los recursos de manera que con ellos se garantice la eficiencia, eficacia y economía de las operaciones, bajo un principio de sana política administrativa y rendición de cuentas.
+f) Custodio: Será custodio de los fondos públicos el funcionario que por la naturaleza de las responsabilidades asignadas, se encargue de la guarda o tenencia de recursos, valores, bienes o derechos, propiedad de la CNE.
+g) Fondos públicos: Son aquellos recursos monetarios, valores y demás bienes circulantes propiedad del Estado, de órganos, de empresas o de entidades públicas.
+h) Recaudar: Cobranza de rentas públicas. Percepción de fondos públicos.
+i) Recaudador: Funcionario al cual se le encargue llevar a cabo la cobranza de rentas públicas y/o percibir los fondos públicos a cargo de una entidad.
+j) Salario bruto: Remuneración percibida por un caucionante, compuesta por los salarios ordinarios y extraordinarios devengados en un período determinado sin excluir las deducciones obligatorias y voluntarias.

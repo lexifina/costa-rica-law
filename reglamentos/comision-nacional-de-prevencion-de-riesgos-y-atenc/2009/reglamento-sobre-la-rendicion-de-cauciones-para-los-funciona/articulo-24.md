@@ -1,0 +1,1 @@
+Artículo 24.—Oportunidad para exigir la devolución. Las garantías rendidas por los caucionantes serán devueltas al finalizar el plazo dispuesto en el artículo 120 de la Ley de Administración Financiera y Presupuestos Públicos Nº 8131 del 18 de setiembre del 2001.

@@ -1,0 +1,1 @@
+Artículo 9°—Resarcimiento de daños. La Administración podrá tomar medidas adicionales para el resarcimiento de daños y perjuicios incurridos por el caucionante contra el patrimonio de la CNE, sin perjuicio de la responsabilidad administrativa y penal que corresponda.
