@@ -14,3 +14,4 @@ Plan Regulador de La Fortuna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-05 | la propia norma |
+| 2 | 2009-12-02 | SINALEVI (sin norma nombrada) |

@@ -1,4 +1,5 @@
 (Anulada)
+(Anulado este Reglamento Municipal mediante resolución de la Sala Constitucional N° 18358 del 2 de diciembre del 2009.)
 MUNICIPALIDAD DE SAN CARLOS
 La Municipalidad de San Carlos avisa que el Concejo Municipal de San Carlos, mediante sesión ordinaria realizada el 26 de setiembre del 2005, mediante acuerdo Nº 05, Acta Nº 56, acordó: aprobar el Plan Regulador de La Fortuna, tal y como fue presentado por el Instituto Nacional de Vivienda y Urbanismo. Acuerdo definitivamente aprobado.
 Distrito de La Fortuna
@@ -114,10 +115,12 @@ La administración local presenta los siguientes aspectos, diferentes a la consi
 2. Se adiciona la extensión de servicios básicos como la red de agua potable, la protección de nacientes y fuentes de agua, la ampliación de servicios de salud (Hospital), y fortalecimiento de la Educación.
 3. Se hace la propuesta del saneamiento ambiental con un colector sanitario, y
 4. Se incluye el mantenimiento y dotación de facilidades y equipamiento de la red vial local (mejoras viales, drenaje pluvial, señalamiento, dotación de facilidades urbanas y arborización).
+[imagen]
 Tendencias de Desarrollo en el Distrito de La Fortuna
 Esta sección contiene un corto resumen de las tendencias de desarrollo y temas significativos del Distrito de La Fortuna.
 1) La mayor Parte del Distrito La Fortuna se ubica en terrenos con poca pendiente, de relieve plano con ondulaciones en la parte central y este del mismo; al oeste se encuentra el Volcán Arenal como característica topográfica predominante, con una conformación cónica completa, que le da el carácter escénico principal, constituyéndose en el aspecto topográfico mayor tanto en tamaño como en altura, y junto con el Volcán Chato forman la cadena de montañas de La Fortuna; el embalse con fines hidroeléctricos se ubica hacia el oeste del Volcán y juntos forman, el gran atractivo turística de la zona. Estos sitios presentan grandes limitantes para el desarrollo urbano, con fuertes pendientes en los terrenos, alta precipitación, susceptibilidad de erosión, y zona de gran peligrosidad por estar expuesta a la actividad que presenta actualmente el Volcán Arenal (lanzamiento de lavas, cenizas y gases) etapa que persiste al presente de este informe.
 La parte central y el este del distrito, está ocupada por una llanura de pendiente muy reducida. Toda el área de estudio, tiene numerosas cuencas de variada magnitud, y de las cuales cabe destacar el sistema de subcuencas formadas o pertenecientes a los ríos Arenal y Peñas Blancas como las principales, con las partes tributarias de afluentes como, río Tabacón, quebrada Palma, quebrada Costalazo y río Burio (que nace en el Volcán Chato y drena la ciudad de Fortuna), quebrada Calle de Arena, quebrada Cristalina, quebrada Agua Azul, quebrada Tanque afluentes del río Arenal; río La Fortuna, quebrada Flores, río Fortunita, quebrada Habana, quebrada Lorenza, quebrada Cedral, río Burro, quebrada Pajuila, quebrada Lirio Blanco, afluentes del río Peñas Blancas. Los principales productos de estas tierras son los cultivos de tubérculos, la ganadería, frutas y granos básicos. Las poblaciones principales son La Fortuna, El Tanque, Los Ángeles, Zeta 13, Zona Fluca con una cantidad de otros centros de población como Agua Azul, Tres Esquinas, Troya (San Cristóbal), San Jorge, San Isidro, La Perla, Linda Vista, La Palma, El Castillo, Jilguero.
+[imagen]
 2) Área de Planificación
 La propuesta de planeamiento es para todo el Distrito de La Fortuna, con especial énfasis en las áreas de mayor desarrollo urbano, que coinciden con los centros de población mencionadas y los desarrollos comunales de carácter rural. La ordenanza se vuelve de observación cuidadosa en aquellos temas que hay limitantes y restricciones en los usos admisibles, por tratarse de zonas con factores ambientales a proteger, o de riesgo natural donde hay también terrenos de gran interés turístico, así como el de priorizar el uso agrícola de aquellos lugares de cultivos asociados con la tradición del lugar, y que hacen del mismo una fuente de actividades e ingresos de primer orden.
 3) Prevenir condiciones de peligrosidad y riesgos naturales
@@ -132,6 +135,7 @@ Dada la importancia del recurso del agua, este componente básico que brinda un 
 Especial importancia tiene en este Plan Promover y Facilitar el uso ordenado y racional de sitios, parajes y accidentes geográficos naturales, que por sus características se constituyen en lugares de un gran valor paisajístico, o ambiental, donde concurren además otros elementos como flora y fauna únicos a preservar, y de gran interés científico y de esparcimiento. Se debe agregar a estos sitios el lugar correspondiente al legado cultural arqueológico que se ha encontrado en La Fortuna, y que tiene una referencia particular en los alcances de esta Ordenanza.
 7) Promover alternativas de administración y evaluación locales
 Debido a las condiciones especiales señaladas y propias del Distrito de La Fortuna, y al aumento continuado de la población y sus actividades, se proponen las ordenanzas con las alternativas de proyectos de desarrollo de manera que se pueda ir adaptando el crecimiento y la previsión de riesgos y conservación de los recursos naturales dentro del mismo planteamiento urbano, enmarcadas en los procedimientos de la Norma Ambiental ISO-14000.
+[imagen]
 CAPÍTULO I
 Propósitos generales y aplicación de la propuesta de ordenamiento de Uso de Suelo
 Parte I contiene una descripción general y cobertura del Uso de Suelo propuesto como ordenamiento urbano. Los mapas muestran el área planificada y el esquema general propuesto.
@@ -150,4 +154,6 @@ Verde representa cubierta de vegetación, parques o zonas recreativas, mientras 
 I.6. Aprobaciones
 6 Modificaciones y nueva Aprobación
 Para la incorporación de cualquier modificación a las ordenanzas será necesario formalmente revocar este esquema en las áreas que afecte, para poder tomar precedencia sobre la reglamentación. El procedimiento efectivo se hará de acuerdo a la Ley de Planificación Urbana, artículos 17 y conexos para la implementación de planes reguladores, específicamente aplicado para el Distrito de La Fortuna.
+[imagen]
 Fortuna - (1976)
+[imagen]
