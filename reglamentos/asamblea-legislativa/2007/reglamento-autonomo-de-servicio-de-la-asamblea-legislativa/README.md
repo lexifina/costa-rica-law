@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio de la Asamblea Legislativa
 | --- | --- | --- |
 | 1 | 2007-02-20 | la propia norma |
 | 2 | 2007-10-10 | Acuerdo 42 (2007-10-10) |
+| 3 | 2009-12-02 | SINALEVI (sin norma nombrada) |

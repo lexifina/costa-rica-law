@@ -1,1 +1,2 @@
-ARTICULO 50.- El servidor que permaneciere enfermo por un período de tres meses o más, podrá a juicio del máximo jerarca de la institución, ser separado de su puesto, mediante el pago del importe del preaviso y del auxilio de cesantía correspondientes.
+ARTICULO 50.- Anulado
+(Anulado este artículo mediante resolución de la Sala Constitucional N° 18356 del 2 de diciembre de 2009.)
