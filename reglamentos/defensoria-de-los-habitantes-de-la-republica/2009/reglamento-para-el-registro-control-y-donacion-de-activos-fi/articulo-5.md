@@ -1,0 +1,1 @@
+Artículo 5º—Concepto de bienes muebles. Se consideran bienes muebles todos aquellos activos adquiridos por la Defensoría de los Habitantes de la República o los provenientes de donaciones, tales como maquinaria, mobiliario y el equipo utilizado en la ejecución de sus funciones y actividades conexas.

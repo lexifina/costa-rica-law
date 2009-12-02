@@ -1,0 +1,1 @@
+Artículo 18.—Inscripción de bienes. El Departamento de Proveeduría y Servicios Generales velará para que se realicen las gestiones necesarias, para inscribir los bienes que por su naturaleza requieran ser inscritos en los respectivos registros públicos existentes.

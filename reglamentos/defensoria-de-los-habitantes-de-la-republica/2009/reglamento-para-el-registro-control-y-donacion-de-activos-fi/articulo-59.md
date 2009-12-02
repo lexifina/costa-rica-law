@@ -1,0 +1,6 @@
+Artículo 59.—Baja por desmantelamiento de máquinas, equipos, vehículos, aparatos, etc. Se podrá dar de baja por desmantelamiento a toda aquella maquinaria, equipo, vehículo, aparatos, etc., con el fin de aprovechar sus partes utilizables. Para dar baja por este fin, los activos deben estar en pérdida total o parcial, el costo de mantenimiento debe ser alto, o por inutilidad o grave daño que haga aconsejable esta medida. Se cumplirán los siguientes requisitos:
+a) Solicitud escrita al Defensor(a) de los Habitantes de la República, hecha por el Jefe(a) del Departamento de Proveeduría y Servicios Generales. Se debe incluir una descripción de los activos que se quieren desmantelar, clase, marca, número, capacidad, valor de inventario y la justificación del desmantelamiento;
+b) Escrito de autorización firmado por el Defensor(a) de los Habitantes de la República;
+c) Nombramiento por parte del Defensor(a) de los Habitantes de la República de una Comisión que deba intervenir en la diligencia de desmantelamiento;
+d) Expedición de la orden de baja de los activos desmantelados;
+e) Inventario de las partes utilizables; las piezas que sean sobrantes podrán ser donadas o destruidos siguiendo el procedimiento estipulado en el presente Reglamento.

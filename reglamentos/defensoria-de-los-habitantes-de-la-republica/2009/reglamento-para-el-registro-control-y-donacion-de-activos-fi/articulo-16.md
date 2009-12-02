@@ -1,0 +1,1 @@
+Artículo 16.—Sistema Informático. La Dirección Administrativa de la Institución, implementará un sistema informático para que el Departamento de Proveeduría y Servicios Generales pueda efectuar el registro respectivo de los bienes de la Defensoría de los Habitantes de la República.

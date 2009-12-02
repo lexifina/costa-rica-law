@@ -1,0 +1,1 @@
+Artículo 13.—Coordinación interdepartamental. El Departamento de Proveeduría y Servicios Generales deberá trasladar a la Dirección de Asuntos Jurídicos de la institución los documentos que por ley tengan que contar con su participación.

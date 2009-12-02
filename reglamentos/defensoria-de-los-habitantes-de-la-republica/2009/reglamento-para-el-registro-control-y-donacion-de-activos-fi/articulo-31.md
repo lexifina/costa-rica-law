@@ -1,0 +1,3 @@
+CAPÍTULO III
+Alta de Bienes
+Artículo 31.—Alta de Activos. Es la entrada o ingreso de bienes a la Defensoría de los Habitantes de la República, por compra, permuta, donación, inventario inicial, aparición de bienes dados de baja, o por aprovechamiento de inservibles. Además es la operación física, fiscal y contable que registra el valor de los activos que ingresen al almacén por conceptos distintos a la compra o recibo por traspaso, cuyo valor no se encuentre registrado en la contabilidad y el origen o procedencia no responda a operaciones realizadas corrientemente. Ejemplo: Elementos encontrados por fuera de inventario, cuyo origen es difícil de establecer, los reavalúos, las donaciones recibidas, etc.

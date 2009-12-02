@@ -1,0 +1,1 @@
+Artículo 35.—Aparición de activos dados de baja. Cuando se ubica o recupera un activo que anteriormente haya sido dado de baja se deberá inventariar nuevamente, registrando el bien con un número nuevo de patrimonio.

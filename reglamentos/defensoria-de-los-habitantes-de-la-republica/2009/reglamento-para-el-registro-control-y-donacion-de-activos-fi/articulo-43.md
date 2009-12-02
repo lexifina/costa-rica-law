@@ -1,0 +1,1 @@
+Artículo 43.—Traslado de activos en desuso o mal estado. El traslado de activos de la Defensoría de los Habitantes de la República que estén en desuso o mal estado, a otra institución pública o privada, deberá hacerse mediante los mecanismos establecidos expresamente por ley y según lo normado en éste Reglamento.

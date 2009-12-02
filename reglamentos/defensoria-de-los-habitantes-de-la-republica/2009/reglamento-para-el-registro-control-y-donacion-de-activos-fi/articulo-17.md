@@ -1,0 +1,1 @@
+Artículo 17.—Formularios. El Departamento de Proveeduría y Servicios Generales contará con los formularios correspondientes para tramitar las altas de bienes, asignación, reasignación, préstamo concesión y baja de bienes, así mismo, podrá contar con otros formularios internos necesarios para dichos trámites.
