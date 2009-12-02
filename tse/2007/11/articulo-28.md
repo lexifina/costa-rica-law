@@ -1,3 +1,4 @@
-CAPÍTULO VII
+(*)CAPÍTULO VII
 Fiscales
-Artículo 28.—Derecho de fiscalizar. Los partidos políticos tendrán derecho a fiscalizar el proceso de referéndum mediante representantes debidamente acreditados ante el Tribunal Supremo de Elecciones, de acuerdo con lo dispuesto, en lo conducente, por los artículos 90 y siguientes del Código Electoral.
+(*)(Este Capítulo fue derogado por el artículo 33 del Reglamento para la fiscalización de los Procesos Electivos y Consultivos, decreto del Tribunal Supremo de Elecciones N° 26 del 2 de diciembre de 2009)
+Artículo 28.—(Derogado por el artículo 33 del Reglamento para la fiscalización de los Procesos Electivos y Consultivos, decreto del Tribunal Supremo de Elecciones N° 26 del 2 de diciembre de 2009)

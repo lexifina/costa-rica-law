@@ -15,3 +15,4 @@ Reglamento para los Procesos de Referéndum
 | --- | --- | --- |
 | 1 | 2007-06-26 | la propia norma |
 | 2 | 2009-11-03 | Decreto TSE 20 (2009-11-03) |
+| 3 | 2009-12-02 | Decreto TSE 26 (2009-12-02) |
