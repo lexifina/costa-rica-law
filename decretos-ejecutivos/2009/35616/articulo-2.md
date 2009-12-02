@@ -1,0 +1,1 @@
+Artículo 2º—Definición de Empresas Públicas: Se entenderá por Empresa Pública, toda aquella que se adapte a la definición y características establecidas en las Normas Internacionales de Contabilidad para el Sector Público (NICSP).

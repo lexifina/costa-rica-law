@@ -1,0 +1,2 @@
+Transitorio III.—Hasta tanto no se implementen definitivamente las Normas Internacionales de Información Financiera, cada una de las Empresas Públicas incluidas en el alcance del presente Decreto bajo la función de Rectoría de la Contabilidad Nacional, deberán seguir aplicando los Principios de Contabilidad aplicables al Sector Público Costarricense, establecidos en el Decreto Ejecutivo 34460-H del 14 de febrero del 2008 o el marco normativo que vengan aplicando.
+Dado en la Presidencia de la República.—San José, a los cuatro días del mes de noviembre del dos mil nueve

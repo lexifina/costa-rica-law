@@ -1,0 +1,1 @@
+Artículo 7º—Suministro de Información: La empresas públicas que no están sujetas al Subsistema de Contabilidad deberán suministrar la información contable requerida de acuerdo con los parámetros que establezca la Contabilidad Nacional.
