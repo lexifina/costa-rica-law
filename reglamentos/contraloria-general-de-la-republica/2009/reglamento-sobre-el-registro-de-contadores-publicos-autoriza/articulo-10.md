@@ -1,0 +1,1 @@
+Artículo 10.—Permanencia en el registro. El contador público autorizado se mantendrá activo en el registro por un plazo de cuatro años a partir de su registro, excepto que se den condiciones que acrediten su exclusión, según se establece en el artículo siguiente.

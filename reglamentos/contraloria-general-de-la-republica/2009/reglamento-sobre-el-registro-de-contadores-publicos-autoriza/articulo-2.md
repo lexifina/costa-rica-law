@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento es aplicable a la Contraloría General de la República, los partidos políticos con derecho a recibir la contribución estatal y al contador público autorizado interesado en brindar servicios a dichos partidos políticos.
