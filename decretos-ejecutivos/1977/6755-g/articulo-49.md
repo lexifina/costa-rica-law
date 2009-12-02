@@ -1,2 +1,2 @@
-Artículo 49.— Las resoluciones de la Sección de Patentes que ordenen la suspensión de la patente por falta de pago, no tendrá recurso alguno, y su tramitación no admitirá prueba en contrario, salvo la excepción de pago.
-.
+Artículo 49.— Anulado.
+(Anulado este artículo mediante resolución de la Sala Constitucional N° 18359 del 2 de diciembre de 2009.)

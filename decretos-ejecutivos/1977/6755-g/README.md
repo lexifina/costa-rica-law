@@ -17,3 +17,4 @@ Reglamento de Patentes Municipales del Cantón Central de San José
 | 2 | 1978-01-23 | Decreto Ejecutivo 7953 (1978-01-23) |
 | 3 | 1998-12-01 | SINALEVI (sin norma nombrada) |
 | 4 | 2004-05-18 | SINALEVI (sin norma nombrada) |
+| 5 | 2009-12-02 | SINALEVI (sin norma nombrada) |
