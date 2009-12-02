@@ -14,3 +14,4 @@ Reglamento de Servicios Notariales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-20 | la propia norma |
+| 2 | 2009-12-02 | Reglamento 5781 (2009-12-02) |
