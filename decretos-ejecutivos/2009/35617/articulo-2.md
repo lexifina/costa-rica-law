@@ -1,0 +1,1 @@
+Artículo 2º—Derógase el artículo 13 bis del Decreto Ejecutivo Nº 30900-COMEX-MAG de fecha 20 de diciembre de 2002, denominado Reglamento General sobre la Distribución Asignación de Contingentes Arancelarios de Importación, publicado en el Diario Oficial La Gaceta Nº 3 del 06 de enero de 2003.
