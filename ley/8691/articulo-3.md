@@ -15,3 +15,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 35514 del 7 de setiembre de 2009).
 (Modificado por el artículo 1° del decreto ejecutivo N° 35561 del 21 de octubre de 2009)
 (Reformado por el artículo 3° de la Ley N° 8785 del 28 de octubre del 2009).*(Mediante el artículo 1° del decreto ejecutivo N° 35612 del 13 de noviembre de 2009, se modificó el artículo 3 de la ley N° 8785 del 28 de octubre de 2009, que reformo este artículo)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35632 del 23 de noviembre de 2009)
