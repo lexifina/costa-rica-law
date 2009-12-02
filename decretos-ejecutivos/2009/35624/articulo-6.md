@@ -1,0 +1,1 @@
+Artículo 6º—Las empresas extranjeras que acojan trabajadores costarricenses para su capacitación en sus instalaciones, dentro y fuera del país, firmarán un convenio marco de cooperación con el MICIT, en el que se establecerán claramente los alcances de la cooperación entre las partes.
