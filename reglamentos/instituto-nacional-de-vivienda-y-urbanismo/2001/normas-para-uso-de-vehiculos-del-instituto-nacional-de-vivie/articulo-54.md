@@ -1,1 +1,0 @@
-Artículo 54.—Cualquier pérdida o sustracción de implementos debe reportarse mediante la fórmula "Reporte de averías, daños y pérdidas" a la Unidad, dentro de los tres días de ocurrida la misma. Al, cabo de este termino, el conductor responde automáticamente por los implementos extraviados.
