@@ -15,3 +15,4 @@ Reglamento para la Administración y Operación del Sistema de Estacionamiento e
 | --- | --- | --- |
 | 1 | 2009-10-19 | la propia norma |
 | 2 | 2009-10-19 | Reglamento municipal 181 (2009-10-19) |
+| 3 | 2009-12-03 | Reglamento municipal 188 (2009-12-03) |
