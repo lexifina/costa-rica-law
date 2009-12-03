@@ -26,7 +26,8 @@ b. el deudor cumpla, simultáneamente, las siguientes condiciones:
 3. se presente una morosidad igual o menor a 30 días.
 iv) las operaciones de tarjeta de crédito,
 (*)(Así reformado el numeral anterior mediante sesión N° 720 del 30 de mayo de 2008).
-4. la operación de pago único de principal a la fecha de vencimiento con un plazo mayor a seis meses y la operación de pago único de principal e intereses a la fecha de vencimiento con un plazo mayor a tres meses;
+4. La operación de pago único de principal a la fecha de vencimiento con un plazo mayor a seis meses y la operación de pago único de principal e intereses a la fecha de vencimiento con un plazo mayor a tres meses. Se exceptúa de esta disposición, las operaciones crediticias cuya fuente de repago sea mediante la liquidación de bonos de deuda política.
+(Así reformado el numeral anterior mediante sesión N° 821 de 03 de diciembre del 2009).
 5. la operación que a juicio de la entidad califique como operación crediticia especial; y
 6. la operación crediticia que a juicio de la SUGEF está siendo utilizada para evitar la mora o, por las modificaciones que ha sufrido, está ocultando la mora de la operación.
 Se excluye la operación Back to Back, las operaciones contingentes, la operación de pago único de principal a la fecha de vencimiento con un plazo mayor a seis meses y menor a un año, cuyo destino sea exclusivamente el sector agrícola, para los cultivos que a juicio de la SUGEF presenten usualmente un flujo de caja que hace necesario una operación crediticia de pago único de principal a la fecha de vencimiento. Estos cultivos deben ser definidos por la SUGEF en los Lineamientos Generales.
