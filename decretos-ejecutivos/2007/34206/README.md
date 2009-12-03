@@ -15,3 +15,4 @@ Creación del Centro Nacional de Recursos para la Educación Inclusiva
 | --- | --- | --- |
 | 1 | 2008-01-11 | la propia norma |
 | 2 | 2009-09-16 | SINALEVI (sin norma nombrada) |
+| 3 | 2009-12-03 | Decreto Ejecutivo 35746 (2009-12-03) |
