@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue Derogada por el artículo 30 de la Ley Tarifa de Impuestos Municipales del Cantón de Talamanca, N° 8778 del 16 de octubre de 2009)
 TARIFA DE IMPUESTOS MUNICIPALES
 DEL CANTON DE TALAMANCA
 ARTICULO 1.- Obligatoriedad del impuesto
