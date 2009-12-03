@@ -1,5 +1,0 @@
-Artículo 5º—Integración. El Comité estará conformado por tres integrantes de la Junta Directiva Nacional, los cuales serán de nombramiento y remoción de la Asamblea de Accionistas y los únicos con derecho a voto, uno de los cuales deberá ser especializado en el área financiera o contable, con grado académico en el área de administración de negocios o contaduría pública y experiencia mínima de cinco años.
-Los integrantes del Comité durarán en su cargo cuatro años. Ellos nombrarán en su seno un Presidente por el plazo de un año quien podrá ser reelecto.
-En el Comité participarán los fiscales, los auditores internos y los Gerentes de cada Sociedad, el Gerente General Corporativo o su representante cuando se discutan asuntos propios de cada Sociedad o cuando el Comité así lo considere.
-Cuando se analicen temas del Banco, participarán en el Comité el Gerente General Corporativo o su representante y el Auditor General del Banco, o cuando el Comité así lo considere.
-Cuando dicho Comité así lo requiera, podrán participar el Auditor Externo y cualquier otro funcionario del Conglomerado.

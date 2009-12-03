@@ -1,1 +1,0 @@
-Artículo 3º—Comité de Auditoría. Es el órgano de apoyo del Banco y sus Sociedades. Le compete apoyar a las respectivas Juntas Directivas en el control y seguimiento de las políticas, procedimientos y controles necesarios para procurar la confiabilidad de la información financiera de la entidad supervisada.
