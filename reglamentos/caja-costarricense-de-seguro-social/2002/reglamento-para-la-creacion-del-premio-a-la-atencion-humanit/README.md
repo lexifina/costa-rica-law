@@ -14,3 +14,4 @@ Reglamento para la creación del premio a la atención humanitaria para los trab
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-17 | la propia norma |
+| 2 | 2009-12-03 | Reglamento 8404 (2009-12-03) |
