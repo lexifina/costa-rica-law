@@ -1,0 +1,3 @@
+ARTÍCULO 16.- Donaciones y crédito fiscal
+Se reconocerán como crédito fiscal, deducibles del pago de los impuestos municipales, cuando expresamente los interesados lo soliciten por escrito, las donaciones que previa autorización del Concejo Municipal realicen los contribuyentes. La deducción se aplicará al pago del impuesto establecido en la presente Ley y al derivado de la Ley N.º 7509, Impuestos sobre bienes inmuebles, por los inmuebles ubicados en el cantón de Talamanca; precisamente, en el apartado de inmuebles se actuará conforme lo regula el artículo 5 de la Ley N.º 7509.
+Las donaciones podrán ser efectuadas en dinero, bienes muebles e inmuebles, corporales o incorporales, especies o valores.
