@@ -1,0 +1,1 @@
+Artículo 9º—Nombramientos y potestades. El Comité Corporativo de Cumplimiento es presidido por uno de los miembros de la Junta Directiva General. Cada miembro tiene derecho a voz y voto, quienes son responsables de cumplir a cabalidad las funciones encomendadas en este Reglamento y lo estipulado por el Acuerdo SUGEF 12-04 mencionado.

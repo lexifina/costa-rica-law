@@ -1,0 +1,1 @@
+Artículo 7º—Orientación de la Gestión. Corresponde al Comité Corporativo de Cumplimiento, fiscalizar y evaluar las necesidades de recursos, apoyar la gestión de la Oficialía de Cumplimiento, así como remitir a la Junta Directiva los acuerdos adoptados, según lo establecido en el artículo 13 de la Normativa para el cumplimiento de la Ley N° 8204.
