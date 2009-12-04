@@ -1,4 +1,6 @@
+(Derogado)
 N°28216
+(Este decreto fue Derogado por el inciso b) del artículo 67 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
 Con fundamento en los artículos 7,50 y 140 incisos 3) y 18) de la Constitución Política, ley Nº 7142 del 8 de marzo de 1990, ley Nº 2694 del 22 de noviembre de 1960, ley Nº 7476 del 3 de febrero de 1975, Ley de la Promoción de la Igualdad Social de la Mujer y decreto Nº 25554-MINAE.
