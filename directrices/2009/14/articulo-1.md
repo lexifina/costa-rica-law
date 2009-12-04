@@ -1,0 +1,14 @@
+SERVICIO NACIONAL DE SALUD ANIMAL
+DIRECCIÓN GENERAL
+DIRECTRIZ SENASA-DG-D014-2009
+Considerando:
+1º—Que mediante Ley Nº 8495 del 6 de abril del 2006, se creó el Servicio Nacional de Salud Animal, (SENASA), como un órgano de desconcentración y personería jurídica instrumental del Ministerio de Agricultura y Ganadería y le corresponde, entre otras competencias “…Administrar, planificar, dirigir y tomar las medidas veterinarias o sanitarias pertinentes sobre el control de la seguridad e inocuidad de los productos y subproductos de origen animal, en las etapas de captura, producción, industrialización y comercialización, considerando aditivos alimentarios, residuos de medicamentos veterinarios, plaguicidas y otros contaminantes químicos, biológicos o de origen biotecnológico...”
+2º—Que a través del Servicio Nacional de Salud Animal (SENASA) se brindan una serie de servicios a los productores y establecimientos agropecuarios y con cuya venta se generan los recursos necesarios para la sostenibilidad del Servicio, permitiéndose con ello cubrir gastos relativos a salarios y cargas sociales, la reposición y compra de equipos, materiales, reactivos y otros insumos necesarios para la buena marcha y la atención oportuna de los requerimientos que se le formulan al Servicio.
+3º—Que mediante Decreto Nº 35604-MAG del 28 de octubre del 2009, publicado en La Gaceta Nº 236 del 4 de diciembre del presente año, se publicaron las tarifas que deberían cobrarse por los servicios antes indicados.
+4º—Que por razones de carácter tecnológico para su implementación en los sistemas de información y de coordinación con otras instituciones públicas no es posible aplicar en forma inmediata las tarifas establecidas en dicho decreto.
+5º—Que en razón de lo anterior y a los efectos de no causar un severo e irreparable daño al Sistema Sanitario Nacional y por ello al servicio público que se presta a través del SENASA, ante la eventual pérdida de recursos económicos, necesarios para financiar su actividad ordinaria y dada la aplicación del principio de imposibilidad material para poner en ejecución dicho decreto, es necesario establecer una moratoria en su aplicación, restituyendo temporalmente la vigencia de las anteriores tarifas , mientras se realizan los ajustes técnicos para su implementación dicta un nuevo decreto que corrija las situaciones apuntadas. Por tanto,
+EL DIRECTOR GENERAL
+DEL SERVICIO NACIONAL DE SALUD ANIMAL
+DEL MINISTERIO DE AGRICULTURA Y GANADERÍA
+Emite la siguiente Directriz Institucional:
+1º—Se establece una moratoria en la aplicación de las tarifas establecidas en el Decreto Nº 35604-MAG del 28 de octubre del 2009, hasta el 10 de enero del 2010, salvo para las establecidas en el Acápite C.15, cuya moratoria llegará hasta el 01 de abril del 2010.
