@@ -1,1 +1,0 @@
-Artículo 3°—Del cumplimiento de sus funciones. El Ministerio del Ambiente y Energía podrá solicitar a los organismos y entes de la Administración Pública la información y la cooperación necesaria en materia de personal y recursos necesarios para el cumplimiento de sus funciones, a través de los correspondientes convenios interinstitucionales.

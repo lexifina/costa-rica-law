@@ -1,5 +1,0 @@
-Artículo 36.—De las funciones del Instituto Meteorológico Nacional. Sin perjuicio de las funciones asignadas por las leyes y reglamentos ejecutivos respectivos, serán funciones primordiales del Instituto Meteorológico Nacional:
-Recopilar, estudiar, analizar y divulgar, mediante publicaciones periódicas, toda la información climatológica y meteorológica que se registre y mida en el país, para el conocimiento general y la toma de decisiones de las organizaciones correspondientes.
-Disponer y resolver sobre el dominio, aprovechamiento, utilización, gobierno y vigilancia de las aguas y sus cauces, garantizando el mejor uso del agua para la producción hidroeléctrica, el riego, el consumo humano o cualquier otro uso de provecho para el hombre.
-Mantener sistemas permanentes de telecomunicaciones con los centros meteorológicos internacionales.
-Participar en labores dirigidas a la depuración del medio ambiente y en particular en las de defensa frente a la contaminación de la atmósfera y las aguas.

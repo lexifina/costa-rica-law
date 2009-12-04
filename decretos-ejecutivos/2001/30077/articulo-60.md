@@ -1,4 +1,0 @@
-Artículo 60.—De las funciones del Parque Marino del Pacífico. De conformidad con la Ley de Creación del Parque Marino, Ley N° 8065 del 27 de enero de 2001, publicada en La Gaceta N° 25 del 5 febrero de 2001, son funciones del Parque Marino del Pacífico, las siguientes:
-Promoverá la generación de conocimiento científico básico y aplicado para la conservación y manejo de la biodiversidad marina y el intercambio del mismo con entidades públicas y privadas, nacionales o extranjeras, que tengan o promuevan objetivos similares a los del Parque Marino del Pacífico.
-Fomentará el desarrollo de la capacidad de gestión y producción sostenible del recurso marino costero por parte y para las comunidades y las zonas marinas y costeras del litoral Pacífico.
-Promoverá el turismo nacional e internacional basado en la recreación, aprendizaje y en la valoración de los recursos marinos y costeros.

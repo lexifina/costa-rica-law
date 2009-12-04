@@ -1,1 +1,0 @@
-Artículo 41.—De la Comisión Plenaria. La Comisión Plenaria es el órgano decisorio de la SETENA, correspondiéndole la aprobación o rechazo de los estudios de impacto ambiental que se presenten a trámite de evaluación de impacto ambiental.

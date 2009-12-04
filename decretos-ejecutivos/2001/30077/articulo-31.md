@@ -1,2 +1,0 @@
-Artículo 31.—De los recursos. Contra por los actos de trámite emitidos en los procedimientos administrativos emitidas por la Dirección General de Transporte y Comercialización de Combustible, podrá interponerse recurso de revocatoria ante la Dirección General y de apelación ante el jerarca del Ministerio del Ambiente y Energía.
-Cabrá recurso de reposición contra los actos finales que emita el Ministro del Ambiente y Energía en atención a las recomendaciones que reciba de la Dirección General de Hidrocarburos. La decisión del mismo agotará la vía administrativa.

@@ -1,2 +1,0 @@
-Artículo 64.—De los recursos. Contra los actos de trámite emitidos en los procedimientos administrativos de la Dirección General de Gestión de Calidad Ambiental, podrá interponerse recurso de revocatoria ante la Dirección General de Gestión de Calidad Ambiental y de apelación ante el jerarca del Ministerio de Ambiente y Energía.
-(Adicionado mediante Decreto Ejecutivo N°31628 del 09 de octubre de 2003)

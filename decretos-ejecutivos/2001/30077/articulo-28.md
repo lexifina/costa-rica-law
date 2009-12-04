@@ -1,2 +1,0 @@
-Artículo 28.—De los recursos. Podrá interponerse recurso de revocatoria ante el Director General de Hidrocarburos y de apelación ante el Ministro del Ambiente y Energía por los actos de trámite en los procedimientos administrativos que se tramiten ante la Dirección General de Hidrocarburos.
-Cabrá recurso de reposición contra los actos finales que emita el Ministro del Ambiente y Energía en atención a las recomendaciones que reciba de la Dirección General de Hidrocarburos. La decisión del mismo agotará la vía administrativa.

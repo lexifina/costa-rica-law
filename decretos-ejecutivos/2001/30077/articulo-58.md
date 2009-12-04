@@ -1,1 +1,0 @@
-Artículo 58.—De los recursos. Contra los actos emanados de la Junta Directiva cabrá recurso de revocatoria. Cabrá recurso de apelación ante la junta Directiva de las decisiones adoptadas por la Dirección Ejecutiva, salvo que se disponga otra cosa vía reglamento orgánico delo FONAFIFO.

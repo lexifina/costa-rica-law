@@ -1,2 +1,0 @@
-Artículo 75.—Derogatorias. Deróguense todas las disposiciones de rango reglamentario que regulen en forma diferente la estructura y relaciones administrativas a lo interno del Ministerio del Ambiente y Energía. Deróguese específicamente el Decreto Ejecutivo N° -24652-MIRENEM.
-(Así modificada su numeración mediante Decreto Ejecutivo N° 31628 del 09 de octubre de 2003, que adicionó los artículos 62, 63 y 64, ordenando correr la numeración, por lo que este artículo pasó del N° 72 al N°75)

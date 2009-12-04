@@ -1,1 +1,0 @@
-Artículo 52.—De los recursos. De las resoluciones de otorgamiento de permisos otorgadas por la Oficina Técnica cabrá el recurso de revocatoria y apelación ante la Comisión Plenaria, quien agotará la vía administrativa.

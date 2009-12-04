@@ -1,3 +1,0 @@
-Artículo 73.—Del seguimiento de las denuncias ambientales. Cada órgano del Ministerio del Ambiente y Energía responderá al Contralor Ambiental, dentro de los términos legales, cual ha sido el seguimiento a cada una de las denuncias que están en trámite. Cuando corresponda presentarán copia de la denuncia ante el Ministerio Público.
-El Contralor Ambiental presentará un informe mensual al Jerarca Ministerial y al servicio 192, sobre la cantidad de denuncias recibidas, tramitadas y el seguimiento específico a cada una de ellas.
-(Así modificada su numeración mediante Decreto Ejecutivo N° 31628 del 09 de octubre de 2003, que adicionó los artículos 62, 63 y 64, ordenando correr la numeración, por lo que este artículo pasó del N° 70 al N°73)
