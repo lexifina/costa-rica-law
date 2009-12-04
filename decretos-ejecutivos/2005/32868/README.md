@@ -15,3 +15,4 @@ Canon por Concepto de Aprovechamiento de Aguas
 | --- | --- | --- |
 | 1 | 2006-01-30 | la propia norma |
 | 2 | 2009-02-23 | Decreto Ejecutivo 35097 (2009-02-23) |
+| 3 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |
