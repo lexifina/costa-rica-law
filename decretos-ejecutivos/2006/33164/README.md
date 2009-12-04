@@ -14,3 +14,4 @@ Reforma Oficina Ejecutora del Plan de Inversiones en Infraestructura Física del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-06 | la propia norma |
+| 2 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |
