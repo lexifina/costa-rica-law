@@ -14,3 +14,4 @@ Reforma Decreto Ejecutivo N° 27763 del 10 de marzo de 1999 "Fijación de tarifa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-04 | la propia norma |
+| 2 | 2009-12-04 | Directriz 14 (2009-12-04) |

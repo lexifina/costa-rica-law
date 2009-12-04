@@ -1,4 +1,5 @@
 Nº 35604-MAG
+(Nota de Sinalevi: Mediante el artículo 1 de la directriz N° SENASA-DG-D014-209, del 4 de diciembre de 2009, se establece una moratoria en la aplicación de las tarifas establecidas en este decreto, hasta el 10 de enero de 2010, con la salvedad de las tarifas establecidas en el acápite C.15 cuya moratoria será hasta el 1 de abril de 2010)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
 En ejercicio de las facultades que les confieren los artículos 140, incisos 3), 8) y 18) y 146 de la Constitución Política; la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978; la Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, Nº 7064 del 29 de abril de 1987; la Ley General del Servicio Nacional de Salud Animal, Nº 8495 del 6 de abril 2006; la Ley de Presupuesto Extraordinario, Nº 7138 del 16 de noviembre de 1989, artículo 46, inciso 22, que autoriza la apertura de Cuentas Especiales para recursos provenientes de venta de servicios de Mercadeo, Salud y Producción Pecuaria e Investigación Agrícola; el Acuerdo de Medidas Sanitarias y Fitosanitarias aprobado mediante Ley de Ejecución de los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales, Nº 7473 del 20 de diciembre del 1994; Ley de la Promoción de la Competencia y Defensa Efectiva al Consumidor, Nº 7472 del 20 de diciembre de 1994.
@@ -47,7 +48,7 @@ C.11 | Constancia de inspección de otras especies animales en importación, exp
 C.12 | Toma de muestra en animales, productos y subproductos de origen animal importados (en puestos cuarentenarios, en horas hábiles) | ¢3.156
 C.13 | Inspección de reinas y séquito real en importación por reina | ¢2.500
 C.14 | Inspección de reinas y séquito real con panal para exportación por reina | ¢4.000
-C.15 | Fumigación, nebulización y/o aspersión, por medio de los métodos procedentes a los medios de transporte (contenedores y vehículos) en proceso de importación. No se cobran los DUA de la modalidad de a granel. No se incluyen en esta tarifa los contenedores vacíos. | 0.15% del valor aduanero por Documento Único Aduanero (DUA) generado
+C.15 | Fumigación, nebulización y/o aspersión, por medio de los métodos procedentes a los medios de transporte (contenedores y vehículos) en proceso de importación. No se cobran los DUA de la modalidad de a granel. No se incluyen en esta tarifa los contenedores vacíos. (Nota de Sinalevi: Mediante el artículo 1 de la directriz N° SENASA-DG-D014-209, del 4 de diciembre de 2009, se establece una moratoria en la aplicación de esta tarifa que será hasta el 1 de abril de 2010) | 0.15% del valor aduanero por Documento Único Aduanero (DUA) generado
 D | EPIDEMIOLOGÍA |
 D.01 | Análisis de riesgo: Consulta Técnica | ¢84.850
 D.02 | Análisis de riesgo: Cualitativo | ¢1.500.000
