@@ -1,0 +1,3 @@
+Artículo 23.—Operación de los puestos transitorios:
+1. Los puestos transitorios serán permitidos en el caso de que el permiso o autorización sea otorgado por el Concejo Municipal, siempre que la solicitud revista de interés público o cultural y por el plazo de tres días como máximo.
+2. A las personas que se les haya otorgado un derecho de piso se les identificará con un gafete que tenga el nombre y apellidos y el número de identificación del permisionario, la actividad que desarrolla, la fecha de vencimiento y los sellos municipales así como la firma del funcionario responsable. Solo podrán operar en la Terminal de Buses y en todos los casos están prohibidos dentro del Mercado Municipal.

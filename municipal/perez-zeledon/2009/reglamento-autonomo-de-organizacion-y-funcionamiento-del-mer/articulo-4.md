@@ -1,0 +1,3 @@
+Artículo 4º—Naturaleza jurídica del inmueble:
+1. Considérese tanto al Mercado como a la Terminal de Buses Municipales, para cualquier efecto jurídico y en específico los que regula este Reglamento, como bienes demaniales municipales existentes dentro del Patrimonio Público de la Municipalidad de Pérez Zeledón.
+2. Por esta misma naturaleza estos inmuebles estarán sujetos a los principios de inembargabilidad, imprescriptibilidad e inmatriculación conforme lo determina el Ordenamiento Jurídico vigente, tanto en las relaciones propias de la Municipalidad, como de ésta con terceros y con los concesionarios de locales comerciales y de servicios allí instalados y de éstos últimos con terceros o con cualquier otro sujeto de derecho público o privado.
