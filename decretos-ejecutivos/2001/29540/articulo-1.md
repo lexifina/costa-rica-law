@@ -11,4 +11,5 @@ Considerando:
 6º—Que el artículo 52 de la Ley de Hidrocarburos faculta a la Dirección de Hidrocarburos a recibir información por parte de RECOPE y a disponer de ella para la consecución de los fines de esa Dirección.
 7º—Que la Ley Orgánica del Ambiente le impone al Ministerio del Ambiente y Energía, como ente rector de los recursos naturales, el establecimiento del ordenamiento territorial del país para armonizar el bienestar de la población y la preservación del ambiente y para tal efecto es indispensable la creación de un centro que genere y procese la información que permita el planeamiento y la toma de decisiones en esta materia. Por tanto,
 Decretan:
-Artículo 1º—Constituir el Centro Nacional de Información Geoambiental como un órgano de la Dirección General de Hidrocarburos del Ministerio de Ambiente y Energía.
+Artículo 1º—Constituir el Centro Nacional de Información Geoambiental, CENIGA como ente adscrito a la Dirección de Tecnología de la Información.
+(Así reformado por el inciso a) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
