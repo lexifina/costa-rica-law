@@ -1,0 +1,2 @@
+Artículo 9º—Actas. Los acuerdos del Comité de gestión de riesgos deben quedar documentados y fundamentados, y las sesiones deben hacerse constar en actas. Los acuerdos en firme deben ser llevados en un libro electrónico de conformidad con lo establecido por el Superintendente General de Valores mediante acuerdo de alcance general. Los acuerdos en firme deben registrarse en el libro electrónico a más tardar 10 días hábiles siguientes de ocurrida la sesión.
+Las actas deben ser firmadas por el Coordinador del Comité y el Gestor de Riesgo de Popular SAFI.
