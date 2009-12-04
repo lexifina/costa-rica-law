@@ -1,0 +1,2 @@
+Artículo 6º—Momento para rendir la caución. Los Directores deberán rendir caución al momento de integrarse a su Puesto. Los funcionarios obligados deberán rendirla una vez notificados por Recursos Humanos de su designación en el puesto y antes de asumir las funciones de recaudación, custodia, administración o disposición de los fondos públicos encargados.
+Corresponderá al Jefe de Recursos Humanos velar porque la persona obligada haya rendido la garantía correspondiente al momento de asumir el cargo, de conformidad con este reglamento.

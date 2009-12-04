@@ -1,0 +1,1 @@
+Artículo 4º—Forma de rendir la caución. La caución a favor de CONAPE se hará mediante la suscripción con cargo al peculio del Director o del funcionario obligado a rendirla caución, de una póliza de fidelidad ante las entidades o empresas aseguradoras autorizadas por la Súper Intendencia de Seguros (SUGESE).

@@ -1,0 +1,1 @@
+Artículo 18.—Revisión y actualización de procedimiento para el cálculo de la caución. Cada tres años a partir de la vigencia de este Reglamento, la Comisión de Control Interno realizará un estudio de actualización o ratificación del procedimiento de cálculo del monto de la garantía que deben rendir los caucionantes.

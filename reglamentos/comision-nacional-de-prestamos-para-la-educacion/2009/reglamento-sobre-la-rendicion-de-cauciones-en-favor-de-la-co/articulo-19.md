@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la responsabilidad
+Artículo 19.—Responsabilidad por la no presentación o renovación de la caución. La falta de presentación de la garantía será causal para el cese en el cargo sin responsabilidad patronal, en los términos contemplados en el artículo 120 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, para aquellos casos en que, prevenido al efecto el funcionario(a), mantenga su incumplimiento por más de veinte días hábiles.
+Conforme lo dispuesto en los artículos 110 inciso l) y 113 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, en el caso de los funcionarios(a) encargados de recibir, custodiar y controlar la presentación de cauciones, constituirá un hecho generador de responsabilidad administrativa y la aplicación del régimen sancionatorio correspondiente al darle al servidor obligado posesión del cargo sin rendir previamente la caución dispuesta.
