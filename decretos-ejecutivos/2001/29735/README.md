@@ -15,3 +15,4 @@ Crea Oficina Ejecutora del Plan de Inversiones en Infraestructura Física del Mi
 | --- | --- | --- |
 | 1 | 2001-08-30 | la propia norma |
 | 2 | 2006-05-10 | Decreto Ejecutivo 33164 (2006-05-10) |
+| 3 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |
