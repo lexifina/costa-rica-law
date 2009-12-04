@@ -32,7 +32,7 @@ C.11 | Constancia de inspección de otras especies animales en importación, exp
 C.12 | Toma de muestra en animales, productos y subproductos de origen animal importados (en puestos cuarentenarios, en horas hábiles) | ¢3.156
 C.13 | Inspección de reinas y séquito real en importación por reina | ¢2.500
 C.14 | Inspección de reinas y séquito real con panal para exportación por reina | ¢4.000
-C.15 | Fumigación, nebulización y/o aspersión, por medio de los métodos procedentes a los medios de transporte (contenedores y vehículos) en proceso de importación. No se cobran los DUA de la modalidad de a granel. No se incluyen en esta tarifa los contenedores vacíos. | 0.15% del valor aduanero por Documento Único Aduanero (DUA) generado
+(*)C.15 (*)(Nota de Sinalevi: Mediante directriz N° 014 del 4 de diciembre de 2009, se establece una moratoria en la aplicación de la anterior tarifa hasta el 01 de abril de 2010.) | Fumigación, nebulización y/o aspersión, por medio de los métodos procedentes a los medios de transporte (contenedores y vehículos) en proceso de importación. No se cobran los DUA de la modalidad de a granel. No se incluyen en esta tarifa los contenedores vacíos. | 0.15% del valor aduanero por Documento Único Aduanero (DUA) generado
 D | EPIDEMIOLOGÍA |
 D.01 | Análisis de riesgo: Consulta Técnica | ¢84.850
 D.02 | Análisis de riesgo: Cualitativo | ¢1.500.000
@@ -266,4 +266,5 @@ L | LABORATORIO DE PARASITOLOGIA |
 L.01 | Prueba de eficacia “in Vitro” de garrapaticidas | ¢1.468.125
 Toda prueba de laboratorio que haya sido acreditada ante el Ente Costarricense de Acreditación ( ECA ), tendrá un recargo de un veinte por ciento sobre el valor estipulado.
 Las tarifas enumeradas deben ser canceladas al momento de solicitar el servicio.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35604 del 28 de octubre de 2009)
+(Así reformado por el artículo 1° del decreto ejecutivo N° (*)35604 del 28 de octubre de 2009)
+(*)(Nota de Sinalevi: Mediante directriz N° 014 del 4 de diciembre de 2009, se establece una moratoria en la aplicación de las tarifas establecidas en el decreto ejecutivo N° 35604 del 28 de octubre de 2009, hasta el 10 de enero de 2010, salvo la tarifa establecida en el acápite c.15 cuya moratoria será hasta el 01 de abril de 2010. De conformidad con lo anterior y de acuerdo con el punto 2 de la referida directriz se restituyen para todos los efectos y en forma provisional hasta el 10 de enero del 2010 las tarifas contenidas en este artículo, después de esa fecha las tarifas que presenta este numeral son las indicadas por el decreto ejecutivo N° 35604 del 28 de octubre de 2009)

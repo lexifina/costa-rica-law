@@ -39,4 +39,5 @@ Cód. | Descripción | Fumig. | Aspers. | Nebuliz. | Inmer. |
 37 | Pesqueros | 16.50 | 16.50 | 16.50 | |
 38 | Ganado en pie (Baño desparasitador c/u) | 3.00 | 3.00 | | |
 39 | Por cada kilo tratado de desechos de importancia cuarentenaria (incineración) 0.75
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35604 del 28 de octubre de 2009)
+(Así reformado por el artículo 1° del decreto ejecutivo N° (*)35604 del 28 de octubre de 2009)
+(*)(Nota de Sinalevi: Mediante directriz N° 014 del 4 de diciembre de 2009, se establece una moratoria en la aplicación de las tarifas establecidas en el decreto ejecutivo N° 35604 del 28 de octubre de 2009, hasta el 10 de enero de 2010. De conformidad con lo anterior y de acuerdo con el punto 2 de la referida directriz, las tarifas establecidas en este numeral se mantendrán vigentes hasta el 31 de marzo de 2010.Así mismo las tarifas que presenta este artículo son las indicadas por el decreto ejecutivo N° 35604 del 28 de octubre de 2009)
