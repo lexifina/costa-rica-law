@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio I.—La tarifa C15 establecida para fumigación, nebulización, aspersión de contenedores y vehículos en proceso de importación por primera vez y las tarifas establecidas en el artículo 4 bis, regirán para todos los efectos a partir del 1 de enero del 2010. En ese ínterin, los servicios prestados por fumigación, nebulización y aspersión se cobrarán conforme a las tarifas establecidas en el artículo 4 del Decreto Nº 27763-MAG vigente.
