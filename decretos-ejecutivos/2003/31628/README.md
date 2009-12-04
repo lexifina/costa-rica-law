@@ -14,3 +14,4 @@ Reforma Reglamento General del Ministerio de Ambiente y Energía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-11 | la propia norma |
+| 2 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |

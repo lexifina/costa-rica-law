@@ -4,7 +4,8 @@ En ejercicio de las facultades que les confiere el artículo 140, incisos 3) y 1
 Considerando:
 1º—Que existen compromisos internacionales que nos obligan a revisar los actuales mecanismos de regulación de carácter preventivo y disuasivo de las acciones contaminantes, que actúen directamente sobre la fuente para que sirvan de complemento a los mecanismos tradicionales de control.
 2º—Que si bien existe un inequívoco referente institucional para proveer servicios en las áreas que tradicionalmente ha cubierto el Ministerio, específicamente en materia forestal, vida silvestre y áreas protegidas, existen áreas de la gestión ambiental en los que no se ha incursionado con la misma eficacia y se requiere entonces una acción institucional decidida para subsanar esta debilidad y presentar rápida y eficientemente, respuestas a las demandas de la sociedad internacional y nacional sobre todo en aras de garantizar las acciones prácticas, las normas legales, la capacidad institucional para aplicar la legislación ambiental del país, y las políticas que permitan mejorar la calidad ambiental en todo el territorio nacional.
-3º—Que el Plan Nacional de Desarrollo, en su apartado de Aspectos relevantes en materia de ambiente, recursos naturales y energía, ha considerado que se quiere una Costa Rica respetuosa del ambiente, donde se garantice la preservación de nuestro patrimonio ecológico y ambiental. Dentro de los retos se ha establecido la necesidad de tomar las medidas necesarias para establecer un marco institucional adecuado, con el surgimiento de la Dirección General de Gestión de Calidad Ambiental dentro del Ministerio de Ambiente y Energía, que tendrá a su cargo el desarrollo de las acciones requeridas en la materia, tanto en el nivel estratégico (definición de políticas; desarrollo de normativas y planes nacionales de ejecución; interrelación e interacción con otros entes nacionales de acción ambiental, y fiscalización y coordinación de procesos ambientales de tipo operativo) como en el operativo (acciones relacionadas de forma directa y específica con el control y la prevención de la contaminación por parte de las acciones productivas y el uso de los recursos naturales aire, agua, suelo, recursos minerales y energéticos, así como flora y fauna, paisaje, etc.).
+3º—Que el Plan Nacional de Desarrollo, en su apartado de Aspectos relevantes en materia de ambiente, recursos naturales y energía, ha considerado que se quiere una Costa Rica respetuosa del ambiente, donde se garantice la preservación de nuestro patrimonio ecológico y ambiental. Dentro de los retos se ha establecido la necesidad de tomar las medidas necesarias para establecer un marco institucional adecuado, con el surgimiento de la (*)Dirección de Gestión de Calidad Ambiental dentro del Ministerio de Ambiente y Energía, que tendrá a su cargo el desarrollo de las acciones requeridas en la materia, tanto en el nivel estratégico (definición de políticas; desarrollo de normativas y planes nacionales de ejecución; interrelación e interacción con otros entes nacionales de acción ambiental, y fiscalización y coordinación de procesos ambientales de tipo operativo) como en el operativo (acciones relacionadas de forma directa y específica con el control y la prevención de la contaminación por parte de las acciones productivas y el uso de los recursos naturales aire, agua, suelo, recursos minerales y energéticos, así como flora y fauna, paisaje, etc.).
+(*)(Modificada su denominación por el inciso b) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
 4º—El Plan Nacional de Desarrollo prevé que esta nueva unidad técnica del Ministerio de Ambiente y Energía deberá desarrollar novedosos instrumentos de gestión ambiental que promuevan el autocumplimiento y los esfuerzos voluntarios de los agentes productivos, con miras a mejorar su desempeño ambiental; también promoverá la aplicación de instrumentos económicos y de mercado de gestión ambiental, que sirvan de base para la sostenibilidad financiera del sistema nacional de gestión de calidad ambiental.
 5º—Se ha decretado ya el Reglamento de Creación del Canon ambiental por Vertidos, Decreto Ejecutivo Nº 31176-MINAE, del 22 de abril del dos mil tres, el cual se fundamenta en el principio de quien contamina paga y en este caso concreto por el uso de los cuerpos de agua para verter en ellos sustancias nocivas que de algún modo alteren o generen daños en la calidad del ambiente o de la sociedad. Esta nueva norma tiene disposiciones transitorias que cumplir durante los próximos meses, con el fin de crear toda la logística necesaria para la implementación del mismo, mecanismos sin los cuales no podrá hacerse efectiva la regulación y consiguiente cobro del canon por el uso del recurso hídrico como un bien de dominio público, haciendo incurrir a la administración en incumplimiento de deberes.
 Por tanto, DECRETAN:
@@ -20,16 +21,21 @@ DSE: Dirección Sectorial de Energía.
 IMN: Instituto Meteorológico Nacional.
 TAA: Tribunal Ambiental Administrativo.
 CONAGEBIO: Comisión Nacional para la Gestión de la Biodiversidad.
-DIGECA: Dirección General de Gestión de Calidad Ambiental.
-Artículo 6º—Organización. Se adiciona un inciso l) que se denominará Dirección General de Gestión de Calidad Ambiental (DIGECA).
+DIGECA: (*)Dirección de Gestión de Calidad Ambiental.
+(*)(Modificada su denominación por el inciso b) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
+Artículo 6º—Organización. Se adiciona un inciso l) que se denominará (*)Dirección de Gestión de Calidad Ambiental (DIGECA).
+(*)(Modificada su denominación por el inciso b) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
 CAPÍTULO XVI
-Dirección General de Gestión de Calidad Ambiental
-Artículo 62.—De la conformación de la Dirección General de Gestión de Calidad Ambiental. La Dirección de Gestión de Calidad Ambiental (DIGECA), estará conformada de la siguiente manera:
+(*)Dirección de Gestión de Calidad Ambiental
+(*)(Modificada su denominación por el inciso b) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
+Artículo 62.—De la conformación de la (*)Dirección de Gestión de Calidad Ambiental. La Dirección de Gestión de Calidad Ambiental (DIGECA), estará conformada de la siguiente manera:
+(*)(Modificada su denominación por el inciso b) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
 1. Dirección General.
 2. Área Técnica
 3. Área Legal.
 4. Área Administrativa
-Artículo 63.—De las funciones de la Dirección de Gestión de Calidad Ambiental (DIGECA). Sin perjuicio de las funciones asignadas por las leyes y reglamentos ejecutivos respectivos, serán funciones primordiales de la Dirección General de Gestión de Calidad Ambiental, las siguientes:
+Artículo 63.—De las funciones de la Dirección de Gestión de Calidad Ambiental (DIGECA). Sin perjuicio de las funciones asignadas por las leyes y reglamentos ejecutivos respectivos, serán funciones primordiales de la (*)Dirección de Gestión de Calidad Ambiental, las siguientes:
+(*)(Modificada su denominación por el inciso b) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
 1- Diseñar y poner en funcionamiento un sistema de coordinación interinstitucional para la protección del medio ambiente.
 2- Elaboración de normas técnicas y regulaciones de calidad ambiental para evitar la contaminación del agua, el aire y el suelo.
 3- Establecer los mecanismos y procedimientos de control ambiental.
@@ -37,4 +43,5 @@ Artículo 63.—De las funciones de la Dirección de Gestión de Calidad Ambient
 5- Promover mecanismos de autorregulación voluntaria y sistemas de mejoramiento del desempeño ambiental de los agentes productivos.
 6- Impulsar programas y proyectos de producción más limpia.
 7- Promoción del uso de instrumentos económicos en la gestión ambiental.
-Artículo 64.—De los recursos. Contra los actos de trámite emitidos en los procedimientos administrativos de la Dirección General de Gestión de Calidad Ambiental, podrá interponerse recurso de revocatoria ante la Dirección General de Gestión de Calidad Ambiental y de apelación ante el jerarca del Ministerio de Ambiente y Energía.
+Artículo 64.—De los recursos. Contra los actos de trámite emitidos en los procedimientos administrativos de la (*)Dirección de Gestión de Calidad Ambiental, podrá interponerse recurso de revocatoria ante la (*)Dirección de Gestión de Calidad Ambiental y de apelación ante el jerarca del Ministerio de Ambiente y Energía.
+(*)(Modificada su denominación por el inciso b) del artículo 66 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
