@@ -1,0 +1,2 @@
+Transitorios
+Artículo 33.—Se establece que lo referente a la participación de las ONGs en cuanto a la implementación de este Reglamento se dará de pleno derecho, posterior a que la Administración activa presente para su aprobación al Concejo Municipal una Directriz que establezcan lo relacionado a los controles financieros, idoneidad, legitimidad, evaluación y registro de las ONGs. Para que dicha directriz municipal surta el efecto legal correspondiente deberá ser publicada en el Diario Oficial La Gaceta.

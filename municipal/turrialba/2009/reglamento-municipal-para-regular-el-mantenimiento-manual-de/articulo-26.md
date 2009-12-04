@@ -1,0 +1,1 @@
+Artículo 26.—Funciones del Coordinador de la Unidad Técnica de Gestión Vial Municipal. El Coordinador de la Unidad respectiva, será responsable de dar seguimiento a las denuncias planteadas por los vecinos en las actividades de mantenimiento manual, en coordinación con el Promotor Social Municipal.
