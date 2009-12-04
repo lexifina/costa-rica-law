@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de competencia: La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles actos de corrupción o cualquier situación irregular en relación con el uso y manejo de fondos públicos o que incidan sobre la Hacienda Pública, en lo que corresponde a su competencia institucional.
