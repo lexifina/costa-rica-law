@@ -1,0 +1,2 @@
+Artículo 8º—Plazo de Nombramientos. Los miembros Directores que conforman el Comité durarán en su cargo por el período que defina la Junta Directiva General.
+El comité nombrará de su seno un coordinador y subcoordinador; el plazo del nombramiento de estos será de un año, pudiendo ser reelectos, a los cuales les corresponderá la definición de la agenda de este Comité, en la cual se deberá incluir los temas a tratar referentes a las Sociedades.
