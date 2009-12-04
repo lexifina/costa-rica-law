@@ -1,0 +1,1 @@
+Artículo 34.—Asesoría. La Asesoría Jurídica del Ministerio de Cultura y Juventud brindará a la Auditoría Interna un oportuno y efectivo servicio de asesoría legal, cuando así lo requiera, conforme lo estipula el artículo 33, inciso c) de la Ley General de Control Interno.

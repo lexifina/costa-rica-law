@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente Reglamento tiene como finalidad regular la organización y funcionamiento de la Auditoría Interna del MAC, de acuerdo con el artículo 23 de la Ley General de Control Interno, de manera tal que su accionar coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados.

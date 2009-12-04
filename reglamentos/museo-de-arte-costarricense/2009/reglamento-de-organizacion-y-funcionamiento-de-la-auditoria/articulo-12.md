@@ -1,0 +1,1 @@
+Artículo 12.—Asistencia a las sesiones de la Junta Administrativa. Cuando sea expresamente convocado, el Auditor Interno asistirá a las sesiones de la Junta Administrativa en calidad de asesor, con derecho a voz pero sin voto.
