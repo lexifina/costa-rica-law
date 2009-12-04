@@ -1,5 +1,7 @@
+(Derogado)
 DECRETOS
 N° 30024
+(Este decreto fue Derogado por el inciso c) del artículo 67 del decreto ejecutivo N° 35669 del 4 de diciembre de 2009)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
 Con fundamento en las facultades constitucionales que les confieren los artículos 140, incisos 3) y 18) de la Carta Magna, el artículo 28, inciso 2 b) de la Ley General de la Administración Pública y los artículos 4 y 9.
