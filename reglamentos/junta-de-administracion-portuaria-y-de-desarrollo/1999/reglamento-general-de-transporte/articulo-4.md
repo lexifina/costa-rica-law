@@ -1,0 +1,1 @@
+Artículo 4º—Los usuarios de los vehículos de uso discrecional responderán directamente ante el Presidente Ejecutivo y éste ante la Junta Directiva por el correcto y adecuado uso de los respectivos vehículos.

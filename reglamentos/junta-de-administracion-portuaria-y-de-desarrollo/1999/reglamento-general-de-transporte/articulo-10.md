@@ -1,0 +1,1 @@
+Artículo 10.—Ningún vehiculo de uso administrativo podrá circular sin que el conductor porte la boleta de autorización escrita, (formula de permiso de circulación), dicha boleta deberá emitirse en forma especifica para el caso, no podrá de ser de carácter permanente y deberá ser firmada por el responsable de la unidad de transportes”.

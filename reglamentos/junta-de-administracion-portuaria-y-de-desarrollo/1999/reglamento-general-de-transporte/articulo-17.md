@@ -1,0 +1,2 @@
+Artículo 17.—Los únicos funcionarios autorizados para retirar combustible de los lugares donde éste es entregado son los que tienen vehículo de uso discrecional y los encargados de vehículos de uso administrativo.
+Cada uno de estos funcionarios, deberá solicitar por escrito al encargado de entregar gasolina, diesel, la cantidad de combustible que desea para su vehículo mediante requisición que llenará el empleado o funcionario que retire dicho combustible.

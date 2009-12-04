@@ -1,0 +1,6 @@
+Artículo 2º—Los vehículos de la Institución se clasifican en dos grupos:
+A- Vehículos de uso discrecional.
+B- Vehículos de uso administrativo.
+Se entienda por vehículos de uso discrecional aquellos asignados a funcionarios de nivel Gerencial, es decir, aquellos que ocupen un nivel jerárquico superior dentro de la Institución, quines podrán hacer uso de los mismos para el mejor cumplimiento de las funciones propias de su cargo. El funcionario de JAPDEVA que tenga asignado un vehículo de uso discrecional responderá por su custodia, uso, conservación y mantenimiento; sin embargo, la Administración aplicará controles mínimos como los establecidos para otros activos de la institución. Estos vehículos están asignados únicamente a: el Presidente Ejecutivo, el Auditor, Sub Auditor, Gerente General, Gerente de la Administración de Desarrollo y Gerente de la Administración Portuaria (de conformidad con lo dispuesto por el artículo 225 de la Ley de Tránsito).
+Dichos vehículos estarán sujetos al presente reglamento en lo que les resulte aplicable (obligaciones), así como a los deberes de los conductores, asignación de combustible, normas relativas a accidentes de tránsito, etc.
+Estos vehículos circularán con placas particulares.

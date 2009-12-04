@@ -1,0 +1,1 @@
+Artículo 6º—Todos los vehículos de JAPDEVA deberán ser utilizados por personas autorizadas y exclusivamente en el desempeño de funciones propias de la Institución. Por lo que el servicio de bus es exclusivo de la institución para las labores propias de la operación.

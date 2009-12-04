@@ -1,0 +1,1 @@
+Artículo 24.—Las infracciones a la Ley de Tránsito (exceso de velocidad, estacionarse en zonas prohibidas, etc.), cometidas por los conductores de la Institución y en las que hayan boletas de infracción, deberá ser canceladas por el conductor respectivo, presentando luego el recibo de cancelación a la Sección de Transportes.
