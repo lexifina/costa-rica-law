@@ -15,3 +15,4 @@ Reglamento de Cuentas Corrientes
 | --- | --- | --- |
 | 1 | 2008-04-29 | la propia norma |
 | 2 | 2008-05-29 | Reglamento 4578 (2008-05-29) |
+| 3 | 2009-12-07 | Reglamento 4720 (2009-12-07) |
