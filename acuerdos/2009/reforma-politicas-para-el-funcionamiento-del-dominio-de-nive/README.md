@@ -14,3 +14,4 @@ Reforma Políticas para el Funcionamiento del Dominio de Nivel Superior, CR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-19 | la propia norma |
+| 2 | 2009-12-07 | Acuerdo 0 (2009-12-07) |
