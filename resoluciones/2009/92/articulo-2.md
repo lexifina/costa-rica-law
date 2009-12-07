@@ -1,0 +1,1 @@
+2º—Informar que la publicación íntegra del referido Reglamento estará disponible en el sitio web de la Contraloría General de la República (www.cgr.go.cr) y que se deroga cualquier regulación existente sobre gastos de viaje en el sector público que se oponga a este Reglamento.
