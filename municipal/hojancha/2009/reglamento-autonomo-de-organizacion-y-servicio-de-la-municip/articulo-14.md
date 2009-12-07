@@ -1,0 +1,1 @@
+Artículo 14.—El Departamento de Recursos Humanos confeccionará un prontuario con el propósito de llevar un registro expedito de todos aquellos datos y registros derivados de la relación de servicio en asuntos tales como: asistencia, evaluación del desempeño, aspectos disciplinarios, capacitación recibida, y calidades del funcionario o funcionaria.

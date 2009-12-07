@@ -1,0 +1,1 @@
+Artículo 92.—Los funcionarios (as) podrán acogerse o no al pago por concepto de Dedicación Exclusiva, de acuerdo también con el interés que en ello tenga la Administración, y tendrán derecho al pago de la Carrera Profesional de conformidad con la normativa vigente.
