@@ -1,0 +1,1 @@
+Artículo Segundo.—Coordínese institucionalmente de acuerdo a las competencias legales, un ordenamiento territorial de las tierras que conforman la vertiente del Caribe de Costa Rica, lo anterior en armonía con el medio ambiente y amparado a los más sagrados principios del desarrollo sostenible, el cual tiene como su base esencial al ser humano.
