@@ -1,0 +1,3 @@
+11. Idioma del procedimiento
+a) A menos que las partes decidan lo contrario y a reserva de lo que se establezca en las Políticas para el Funcionamiento del Dominio de Nivel Superior .cr, el idioma del procedimiento administrativo será el idioma (español) de dichas Políticas, a reserva de la facultad del grupo de expertos de tomar otra resolución, teniendo en cuenta las circunstancias del procedimiento administrativo.
+b) El grupo de expertos podrá exigir que los documentos presentados en idiomas distintos al del idioma del procedimiento administrativo vayan acompañados de una traducción total o parcial al idioma del procedimiento administrativo.

@@ -1,0 +1,3 @@
+18. Efecto de los procedimientos judiciales
+a) En caso de que se inicien procedimientos judiciales antes o durante la resolución de un procedimiento administrativo respecto de una controversia en materia de nombres de dominio que sea el objeto de la demanda, el grupo de expertos estará facultado para decidir si suspende o termina el procedimiento administrativo, o continua con el mismo hasta adoptar una resolución.
+b) En caso de que una parte inicie procedimientos judiciales durante el período de resolución de un procedimiento administrativo respecto de una controversia en materia de nombres de dominio que sea el objeto de la demanda, lo notificará inmediatamente al grupo de expertos y al proveedor. Véase el apartado 8.
