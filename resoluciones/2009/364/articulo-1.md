@@ -1,0 +1,11 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-364-2009.—Dirección General de Aduanas.—San José, a las ocho horas del día veinte de noviembre del dos mil nueve.
+Procede esta Dirección a modificar la resolución RES-DGA-352-2009 de las doce horas del día dieciocho de noviembre del año dos mil nueve, en lo relativo a la implementación del Procedimiento del Régimen de Zonas Francas en el Sistema de Información para el Control Aduanero TICA.
+Considerando:
+I.—Que el artículo 6 de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº 212 del 8 de noviembre de 1995 y sus reformas, establece que uno de los fines del régimen jurídico es facilitar y agilizar las operaciones de comercio exterior.
+II.—Que el artículo 9 de la Ley General de Aduanas, establece como funciones del Servicio Nacional de Aduanas, actualizar los procedimientos aduaneros y proponer las modificaciones de las normas, para adaptarlas a los cambios técnicos, tecnológicos y a los requerimientos del Comercio Internacional.
+III.—Que el artículo 11 de la Ley General de Aduanas, señala que la Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera, que en el uso de su competencia le corresponde la dirección técnica y administrativa de las funciones aduaneras que esta ley y las demás disposiciones del ramo le conceden al Servicio Nacional de Aduanas, la emisión de políticas y directrices para las actividades de las aduanas y dependencias a su cargo.
+IV.—Que el artículo 157 de la Ley General de Administración Pública indica que en cualquier tiempo podrá la Administración rectificar los errores materiales o de hecho y los aritméticos.
+V.—Que procede esta Dirección a modificar la resolución RES-DGA-352-2009, de las doce horas del día dieciocho de noviembre de dos mil nueve, el punto 1 de la parte dispositiva referente al internamiento de mercancías al régimen. Por tanto:
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+Modificar la resolución RES-DGA-352-2009, de las doce horas del día dieciocho de noviembre de dos mil nueve, para que en adelante se lea correctamente, en el punto 1 de la parte dispositiva 1º de febrero de 2010 y no como erróneamente se consignó 1º de febrero de 2009
