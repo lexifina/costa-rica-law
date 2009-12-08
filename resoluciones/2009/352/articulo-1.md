@@ -12,7 +12,8 @@ Con fundamento en las consideraciones de hecho y derecho de cita, potestades y d
 EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
 1º—Modificar el programa de implementación del Procedimiento del Régimen de Zonas Francas en el Sistema de Información para el Control Aduanero TICA, de la siguiente manera:
 Aduana Santamaría
-• 01 de febrero de 2009, Internamiento de Mercancías al Régimen.
+• 01 de febrero de 2010, Internamiento de Mercancías al Régimen.
+(Así reformado el punto anterior mediante resolución N° RES-DGA-364-2009, del 20 de noviembre de 2009)
 • 01 de marzo de 2010, Movilización de Mercancías, Exportación de Mercancías, Donación y Destrucción de mercancías del Régimen y ajustes al procedimiento de nacionalización y ventas locales que ya opera en el TICA.
 Resto de las Aduanas
 • 12 de abril de 2010, Internamiento de Mercancías, Movilización de Mercancías, Exportación de Mercancías, Donación y Destrucción de Mercancías del Régimen.

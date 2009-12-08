@@ -14,3 +14,4 @@ Reforma Comunica que a partir del mes de noviembre del presente año, se iniciar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-08 | la propia norma |
+| 2 | 2009-12-08 | Resolución 364 (2009-11-20) |
