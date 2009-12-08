@@ -1,0 +1,4 @@
+2. Aprobar la reforma al artículo 6 del Reglamento para el Cobro de Tarifas por Servicios Brindados por la Omisión de los Propietarios de Bienes Inmuebles, el cual se recomienda que quede de la siguiente manera:
+Artículo 6.—Por los servicios que preste la Municipalidad cobrará precios que se fijarán con base en un estudio técnico que será aprobado por el Concejo Municipal y deberá publicarse en La Gaceta para entrar en vigencia.
+Se acuerda por unanimidad y en forma definitiva: Primero: Avalar el Dictamen de la Comisión de Hacienda y Presupuesto. Segundo: Aprobar en todos sus extremos la propuesta tarifaria del precio de chapea de lotes y otros rubros, presentada por la Unidad Tributaria y la Alcaldía al concejo Municipal. Tercero: Publicar en el Diario Oficial La Gaceta, para su entrada en vigencia.
+Belén, 25 de noviembre del 2009
