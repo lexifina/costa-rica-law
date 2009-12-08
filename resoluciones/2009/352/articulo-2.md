@@ -1,0 +1,1 @@
+2º—Establecer la semana del 14 al 18 de diciembre de 2009, para la certificación de empresas desarrolladoras de software para operar con TICA. Previa cita con el Lic. Roberto Acuña B. al correo electrónico acunabr@hacienda.go.cr o el Lic. Marvin Álvarez A. al correo electrónico alvarezam@hacienda.go.cr.
