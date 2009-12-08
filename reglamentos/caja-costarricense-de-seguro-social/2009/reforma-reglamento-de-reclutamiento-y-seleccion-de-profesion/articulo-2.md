@@ -1,0 +1,2 @@
+Acuerdo Segundo.—las oficinas de recursos humanos, en un plazo máximo de sesenta días contados a partir de la publicación del texto de Transitorio en el Diario Oficial La Gaceta, deberán verificar el cumplimiento de los requisitos señalados en el Transitorio aprobado para los profesionales en Farmacia, Nutrición, Odontología, Psicología y Trabajo Social, para que inmediatamente se proceda con los nombramientos en propiedad, según corresponda.
+Esta resolución adquirió firmeza en el artículo 17 de la citada sesión número 8401 de fecha 26 de noviembre del año 2009.
