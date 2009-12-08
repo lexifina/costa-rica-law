@@ -1,0 +1,1 @@
+Artículo 25.—Pasos de alcantarilla: En las entradas y salidas de inmuebles, los dueños de propiedades deberán instalar un paso de alcantarilla cuyo diámetro deberá ser aprobado de acuerdo al criterio técnico de la Unidad Técnica de Gestión Vial Municipal.

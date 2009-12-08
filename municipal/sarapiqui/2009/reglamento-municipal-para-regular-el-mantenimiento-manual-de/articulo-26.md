@@ -1,0 +1,1 @@
+Artículo 26.—Funciones de la Unidad Técnica de Gestión Vial Municipal: La Unidad Técnica de Gestión Vial Municipal, será responsable de dar seguimiento a todo el proceso con el fin de hacer cumplir a los propietarios este Reglamento de Mantenimiento Manual, de conformidad con lo que establece la Ley 8114.

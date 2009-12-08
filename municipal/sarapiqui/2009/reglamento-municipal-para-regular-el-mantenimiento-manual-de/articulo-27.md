@@ -1,0 +1,1 @@
+Artículo 27.—Promoción: La Unidad Técnica de Gestión Vial Municipal promoverá, en coordinación con las Organizaciones Comunales, la ejecución de las actividades generales de mantenimiento manual como lo es el bacheo manual, limpieza de alcantarillas o cabezales, así como cualquier otra que no estipule la Ley General de Caminos Públicos o el Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 24.—Tarifa para el cobro de obras realizadas por la Municipalidad: El cálculo de las tarifas se realizará por la unidad de medida correspondiente, considerando el estudio de costos actualizado, que está dirigido a las vías públicas, los cuales serán revisados y modificados anualmente por la Unidad Técnica de Gestión Vial Municipal, en asocio con la Jefatura Financiera.

@@ -1,0 +1,1 @@
+Artículo 23.—Constitución de gravamen a la propiedad: En caso de que los propietarios no cancelen la deuda por los trabajos realizados por los Comités de Caminos o las Asociaciones de Desarrollo, o bien directamente por la Municipalidad, se procederá conforme señala el artículo 75 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 7º—Omisión de pagos: En materia de la omisión de pagos por trabajos realizados por parte de la Municipalidad o las Organizaciones No Gubernamentales Comunales (ONGC), autorizadas para ese fin por la institución municipal, serán aplicables los artículos 70, 74 y 76 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 18.—Procedimiento de pago: Los cobros de los montos correspondientes por trabajos realizados por la Municipalidad, los Comités de Caminos amparados a las Asociaciones de Desarrollo, u otras ONGC debidamente legalizadas, deberán ser depositados por el infractor en las cajas recaudadoras de la Municipalidad.

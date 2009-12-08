@@ -1,0 +1,1 @@
+Artículo 16.—Realización de las obras de oficio: En caso de que el vecino no realice las obras en el periodo establecido, la Municipalidad podrá realizar un convenio con los Comités de Caminos amparados a las Asociaciones de Desarrollo, u otras ONGC debidamente legalizadas, con el fin de que éstos realicen el trabajo pendiente.

@@ -1,0 +1,1 @@
+Artículo 21.—Ejecución de obras por ONGC: Las ONGC autorizadas, podrán ejecutar cualquier actividad de mantenimiento manual cuando obedezca al incumplimiento de los vecinos, previa nota escrita por el director de la Unidad Técnica de Gestión Vial Municipal y el Alcalde Municipal.

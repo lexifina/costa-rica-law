@@ -1,0 +1,1 @@
+Artículo 31.—Omisión: En caso de que el vecino haga caso omiso a la notificación, la Municipalidad realizará por sus propios medios, la ampliación del derecho de vía, siempre y cuando haya notificación previa al involucrado, y se haya realizado el debido procedimiento que se establece en el artículo 30° de este Reglamento y el artículo 33 de la Ley General de Caminos Públicos.
