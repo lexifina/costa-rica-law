@@ -14,3 +14,4 @@ Reglamento variaciones al presupuesto del Instituto Nacional de Innovación y Tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-26 | la propia norma |
+| 2 | 2009-12-08 | Reglamento 199 (2009-12-08) |
