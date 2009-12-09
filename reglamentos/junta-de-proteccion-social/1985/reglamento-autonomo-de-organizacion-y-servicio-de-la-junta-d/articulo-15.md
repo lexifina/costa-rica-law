@@ -1,9 +1,9 @@
-Artículo 15.—En la Junta regirán los siguientes horarios básicos para el personal Administrativo y de Servicios Generales:
-De 6,00 a.m. a 2,00 p.m.
-De 2,00 p.m. a 10,00 p.m.
-De 10,00 p.m. a 6,00 a.m.
-De 7,00 a.m. a 3,30 p.m.
-De 8,15 a.m. a 330 p.m.
-De 8,45 a.m. a 4,00 p.m.
-De 8,30 a.m. a 5,00 p.m.
-Todos los servidores de la Junta durante las jornadas de trabajo disfrutarán de descansos remunerados así: Se concederán quince minutos de refrigerio y media hora de almuerzo o cena.
+Artículo 15.—De conformidad con lo establecido en los artículos 135 y 136 del Código de Trabajo, se regula la jornada laboral y horario de trabajo de los funcionarios de la Junta de Protección Social de la siguiente manera:
+Jornada diurna: de ocho horas diarias y comprendida entre las cinco horas y las diecinueve horas pudiéndose extender hasta diez horas si los trabajos no son insalubres ni peligrosos. Esta jornada será por un máximo de cuarenta y cuatro horas semanales.
+Jornada mixta: de siete horas que comprende parte de la jornada diurna y nocturna hasta las diecinueve horas. En caso de superarse tres horas y media entre las diecinueve horas de un día y las cinco horas del día siguiente esta jornada será considera como nocturna. Esta jornada podrá extenderse hasta por un máximo de ocho horas si los trabajos no son peligrosos ni insalubres.
+Jornada nocturna: de seis horas comprendidas entre las diecinueve horas y las cinco horas. Esta jornada podrá extenderse hasta por un máximo de siete horas si los trabajos no son peligrosos ni insalubres.
+Todos los servidores de la Junta durante las jornadas de trabajo disfrutarán de descansos remunerados. Se concederán quince minutos de refrigerio y media hora de almuerzo o cena.
+La jornada diurna ordinaria de trabajo comprende un máximo de cuarenta y cuatro horas semanales y su horario de trabajo quedará estipulado en el respectivo contrato de trabajo, de acuerdo con las características propias del servicio que se presta, previa justificación de la jefatura de la dependencia correspondiente y resolución técnica del Departamento de Recursos Humanos considerando la necesidad del servicio público que se brinda. En ningún caso se considerará derecho adquirido de un trabajador la disminución de la jornada de trabajo, a menos que esa disminución haya ocurrido simultáneamente con la disminución del salario en lo que corresponda.
+Las jornadas y horarios de trabajo deberán ajustarse estrictamente a las necesidades del servicio público que brinda la Junta y deben establecerse de manera tal que se evite -en lo posible- el pago por servicios especiales (asistencia a sorteos, devolución y/o compra de excedentes y cualquier otro servicio necesario para el funcionamiento institucional). Es responsabilidad absoluta de la jefatura correspondiente fijar una jornada y un horario de trabajo acorde con las necesidades de la dependencia respectiva.
+La jornada laboral de los funcionarios asignados a Seguridad y Vigilancia y los Camposantos se mantiene de forma invariable y rotativa conforme los horarios actuales, incluyendo el de 8:00 a. m. a 4:00 p. m., según necesidad del servicio.
+(Así reformado y publicado en La Gaceta N° 241 del 11 de diciembre de 2009)
