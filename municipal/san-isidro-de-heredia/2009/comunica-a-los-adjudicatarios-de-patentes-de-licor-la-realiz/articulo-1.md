@@ -1,0 +1,3 @@
+MUNICIPALIDAD SAN ISIDRO DE HEREDIA
+El Concejo Municipal de San Isidro de Heredia, comunica a los adjudicatarios de patentes de licor, la realización del Bienio 2009-2011, según artículos 12, 13 y 14 de la Ley de Licores Nº 10, que deben presentarse a renovar sus patentes los días 10 y 11 de diciembre de 2009, de 8:00 a. m. a 12:00 m. d. y de 1:00 p. m. 4:30 p. m. El o los interesados, deberán estar al día con el pago de los impuestos municipales y presentar la respectiva certificación ante la Secretaría Municipal. Solamente en los días y horas antes señaladas, hay oportunidad de cumplir con la renovación de patentes.
+San Isidro de Heredia, 2 de diciembre de 2009.
