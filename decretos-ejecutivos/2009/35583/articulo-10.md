@@ -1,0 +1,1 @@
+Artículo 10.—Los integrantes y los ex integrantes del CORACLAP, así como los miembros de los Consejos Locales serán miembros de la Asamblea General, con derecho a voz pero sin derecho a voto; con excepción del caso en que su participación sea en calidad de miembros acreditados por un sector.

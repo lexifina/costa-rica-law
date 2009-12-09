@@ -1,0 +1,1 @@
+Artículo 25.—En caso de que los miembros del CORACLAP no cumplan las obligaciones encomendadas, el Consejo Regional tomará el acuerdo de remoción, otorgándole la oportunidad de defensa mediante el debido proceso.

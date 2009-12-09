@@ -1,0 +1,1 @@
+Artículo 29.—El Reglamento del CORACLAP, en primera instancia, podrá ser modificado por acuerdo de dicho Consejo, pero las mismas deberán ser avaladas por el Consejo Nacional de Áreas de Conservación.
