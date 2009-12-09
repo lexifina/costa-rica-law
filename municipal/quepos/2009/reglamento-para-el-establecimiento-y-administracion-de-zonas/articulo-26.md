@@ -1,0 +1,2 @@
+Artículo 26.—Sanción por el uso incorrecto de espacio: La Municipalidad podrá revocar el contrato cuando compruebe que el arrendatario está haciendo uso indebido del espacio para lo cual fue arrendado o esté incumpliendo con las obligaciones establecidas en este reglamento.
+Para la revocatoria del contrato se comunicara al interesado, quien tendrá un plazo de cinco días hábiles para pronunciarse al respecto, dirigiendo sus alegatos ante la sección de estacionamientos.

@@ -1,0 +1,1 @@
+Artículo 10º—Del horario de cobro: Por el uso de los espacios de estacionamiento establecidos se deberá pagar de lunes a viernes entre las 06:00 y 18:00 horas el precio fijado; los días sábados, domingos, feriados de Ley y fiestas nacionales, el horario será de las 07:00 a las 15:00 horas.

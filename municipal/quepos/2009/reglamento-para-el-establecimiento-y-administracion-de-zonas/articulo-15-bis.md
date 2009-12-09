@@ -1,0 +1,1 @@
+Artículo 15 Bis.—Aplicación en el tiempo y costos de remoción vehicular: Una vez infraccionado un vehículo por aplicación de las presentes disposiciones normativas, la Municipalidad, coordinará con las autoridades de tránsito la remoción del vehículo de la zona respectiva.
