@@ -14,7 +14,8 @@ i) Observar durante el trabajo buenas costumbres, conducta disciplinada, guardan
 j) Someterse durante la relación laboral, al reconocimiento médico, a solicitud del patrono o a petición de un organismo de Salubridad Pública o de Previsión Social, para comprobar que no padecen de alguna incapacidad permanente o de alguna enfermedad profesional o contagiosa, que ponga en riesgo su integridad o la de los demás servidores, y que permita su eventual reubicación o readecuación de funciones;
 k) Observar rigurosamente las medidas preventivas que acuerden las autoridades competentes y las que señale el patrono, para seguridad y protección del personal, maquinaria y útiles que se utilicen en las labores;
 l) Prestar los auxilios necesarios en caso de siniestro o riesgo inminente, en que las personas o intereses del patrono o de algún compañero (a) de trabajo, estén en peligro, nada de lo cual les dará derecho a remuneración adicional;
-m) Guardar rigurosamente los secretos y las noticias confidenciales de las cuales tengan conocimiento por razón del trabajo que ejecutan, así como cumplir con el deber de confidencialidad dispuesto en el artículo 79 del presente Reglamento;
+m) Guardar rigurosamente los secretos y las noticias confidenciales de las cuales tengan conocimiento por razón de trabajo que ejecutan, así como cumplir con el deber de confidencialidad en el artículo 82 del presente Reglamento.
+(Así reformado el inciso anterior por acuerdo N° 68 del 9 de diciembre de 2009)
 n) Trabajar, cuando fuere necesario, tiempo extraordinario, de acuerdo con lo dispuesto por el artículo 11 de este Reglamento;
 ñ) En todas formas guardar al público, en sus relaciones con él motivadas por el trabajo, y a sus compañeros(as) de labores, toda la consideración debida, de modo que no se ocasione queja justificada por mal servicio o atención o por maltrato o irrespeto.
 o) Vestir correcta y aseadamente, de acuerdo con el cargo que desempeñan;
