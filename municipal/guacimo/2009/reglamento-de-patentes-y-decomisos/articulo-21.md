@@ -1,0 +1,2 @@
+Artículo 21.—Traslado de lugar de la Patente. Cualquier patente podrá ser trasladada del lugar en que fue otorgada o que existe actualmente siempre y cuando este cambio no implique la violación o incumplimiento de lo establecido en la legislación vigente.
+Para el traslado es necesario que se cumpla con los requisitos establecidos en el Reglamento de Trámites y Requisitos de la Municipalidad de Guácimo.

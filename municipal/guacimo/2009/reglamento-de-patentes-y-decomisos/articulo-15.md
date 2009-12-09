@@ -1,0 +1,1 @@
+Artículo 15.—Determinación de Oficio. La determinación de oficio del monto del Impuesto por Licencia Municipal se hará de acuerdo a los criterios que establecen los artículos 9 siguientes y concordantes de la Ley de Tarifas de Impuestos Municipales del Cantón de Guácimo.

@@ -1,0 +1,2 @@
+Artículo 17.—Recurso de Apelación. La resolución que resuelva el Recurso de Revocatoria tendrá recurso de apelación dentro del quinto día para ante el Concejo Municipal. También deberá presentarse en escrito motivado en que consten los antecedentes del caso, los hechos, los argumentos, criterios, opiniones y fundamentos legales y probatorios del recurso.
+Esta resolución además agotará la vía administrativa.

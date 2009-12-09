@@ -1,0 +1,1 @@
+Artículo 7º—Requisitos Generales ordinarios. Bajo pena de inadmisibilidad todas las solicitudes para los trámites de patente deberán contener los requisitos, establecidos en el Reglamento de Trámites y Requisitos de la Municipalidad de Guácimo, el cual fue debidamente publicado en el Diario Oficial la Gaceta número 79, del 26 de abril de 2005.

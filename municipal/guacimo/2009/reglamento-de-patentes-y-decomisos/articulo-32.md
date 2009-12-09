@@ -1,0 +1,6 @@
+Artículo 32.—Sanciones relacionadas con patente de licores. Quedan facultados los funcionarios municipales para denunciar ante los Tribunales de Justicia del Poder Judicial y ejercer la querella y la acción civil resarcitoria correspondiente ante esas mismas instancias, cuando los patentados, administradores, propietarios o dependientes que ejerzan actividades lucrativas relacionadas con la venta de licores incurrieren en las siguientes conductas:
+a) Vender licor, en cualquier forma o presentación existente, a menores de edad para consumir dentro o fuera de los establecimientos comerciales en que se ejerce la actividad.
+b) Tolerar o permitir la permanencia de menores dentro de locales cuya principal actividad sea la venta de licores.
+c) Vender licor fuera de los horarios establecidos en la ley. La sanción a aplicar en este caso será de una multa de siete salarios base de acuerdo a lo establecido en el artículo 6º de la Ley de Funcionamiento en Expendios de Bebidas Alcohólicas.
+d) Vender licor a personas en evidente estado de embriaguez. La sanción que se aplicará en este caso será la que dispone el artículo 24 de la Ley de Licores.
+e) Vender licor en horarios y fechas prohibidas por la ley.
