@@ -1,3 +1,0 @@
-Artículo 23.—Realizada la actividad en general, el Grupo Organizado debe rendir un informe económico general de ingresos y gastos, además se debe adjuntar a dicho informe la constancia del depósito realizado al Banco, de lo anterior no mayor a un mes calendario.
-La Organización que no rinda dicho Informe Económico será sancionado NO otorgándole permiso para otra actividad regulada en este reglamento, todo mientras no haya transcurrido un (1) año, quienes estén sancionados podrán presentar solicitudes para realizar fiestas, pero para realizar fiestas fuera del período de sanción, cumpliendo para ello con los requisitos establecidos del tiempo señalado en el inciso i, del artículo 1, del presente Reglamento.
-(Así reformado mediante sesión N° 13 del 27 de julio de 2007)

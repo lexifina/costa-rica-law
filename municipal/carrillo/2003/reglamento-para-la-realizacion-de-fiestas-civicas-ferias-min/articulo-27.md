@@ -1,2 +1,0 @@
-Artículo 27.—Las fechas de realización de Fiestas Cívicas Populares y/o Patronales en cada distrito, serán fijas e invariables, de manera tal, que deberán ajustarse a los días y fechas que anualmente marque el calendario. No podrá el Concejo de Distrito recomendar ajustes en las fechas previamente establecidas, caso contrario, serán sancionados con la no-aprobación de las mismas por el Concejo Municipal.
-(Así reformado mediante sesión N° 13 del 27 de julio de 2007)

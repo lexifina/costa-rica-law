@@ -1,1 +1,0 @@
-Artículo 6º—La Comisión de Fiestas deberá someterse a todos los requerimientos que le indique el Inspector Municipal, a la hora de la monta; el desacato a cualquier indicación podrá paralizar la corrida de toros, sin ninguna responsabilidad para el funcionario y el Ente Municipal.
