@@ -1,2 +1,3 @@
-Artículo 3º—Rige a partir de su adopción. Publíquese en el Diario Oficial La Gaceta y en la página web del Servicio Nacional de Salud Animal.
-Dada en Barreal de Ulloa, a las ocho horas del doce de noviembre del dos mil nueve
+Artículo 3º—La inmunización de la población equina contra encefalomielitis equina se hará de acuerdo al siguiente recomendación:
+a. Las vacunas a utilizar serán las registradas en la Dirección de Medicamentos Veterinarios del SENASA.
+b. Se recomienda aplicar dos dosis con un intervalo de 21 días.

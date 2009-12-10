@@ -1,0 +1,1 @@
+Artículo 5º—Los equinos de la zona infectada solo podrán ser movilizados a otras zonas del país con el certificado veterinario de vacunación de encefalomielitis equina, 30 días después de la aplicación de la última vacuna. Además, deberán cumplir con los otros requisitos de movilización establecidos.

@@ -1,0 +1,1 @@
+Artículo 7º—Se recomienda a los organizadores de actividades donde son reunidos equinos como cabalgatas, topes, competencias ecuestres, exposiciones de equinos y cualquier otra actividad, solicitar el certificado veterinario de vacunación.

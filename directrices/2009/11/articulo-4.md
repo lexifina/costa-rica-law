@@ -1,0 +1,1 @@
+Artículo 4º—Se deberá instaurar una cuarentena de 30 días a todos los equinos del establecimiento, cuando sea detectado un animal sospechoso o enfermo de encefalomielitis equina, en la finca, haras o cuadra donde estos animales residan.

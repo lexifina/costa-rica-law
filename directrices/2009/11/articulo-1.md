@@ -9,13 +9,5 @@ Considerando:
 EL DIRECTOR GENERAL
 DEL SERVICIO NACIONAL DE SALUD ANIMAL
 Emite la siguiente Directriz Sanitaria:
-Artículo 1º—Se instruye a los funcionarios del SENASA informar en general a los propietarios de los equinos y a la población en general, así como a coordinar con las autoridades de salud locales las siguientes medidas sanitarias a fin de que conozcan la realidad sanitaria presente con respecto a la Encefalomielitis Equina:
-I. La educación en materia sanitaria con respecto la Encefalomielitis Equina, para propietarios y personas físicas y morales relacionadas con la actividad ecuestre y de fauna silvestre;
-II. La inmunización de la población equina;
-III. El reporte inmediato de casos sospechosos;
-IV. El control de la movilización de equinos, aves domésticas y silvestres en cautiverio de explotaciones con resultados positivos.
-V. El diagnóstico e identificación de la Encefalomielitis Equina
-VI. La cuarentena y el aislamiento de los animales afectados;
-VII. Participar en los programas de control de vectores en conjunto con el Ministerio de Salud;
-VIII. La vigilancia e investigación epidemiológica, y
-IX. Las demás que se regulan en la Ley SENASA Nº 8495, así como las que conforme a la tecnología y a los adelantos científicos sean eficientes para la vigilancia, diagnóstico, prevención y control de la Encefalomielitis Equina.
+(Nota de Sinalevi: El texto de esta directriz fue reformada por directriz N° 012 del 10 de diciembre de 2009 y publicada en La Gaceta N° 1 del 4 de enero de 2010, por lo que se reproduce a continuació:)
+Artículo 1º—Se define la zona infectada los cantones Liberia, Santa Cruz, Abangares, Bagaces y Cañas de la provincia Guanacaste.

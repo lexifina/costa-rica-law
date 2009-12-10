@@ -14,3 +14,4 @@ Comunica medidas sanitarias a fin de que conozcan la realidad sanitaria respecto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-12 | la propia norma |
+| 2 | 2009-12-10 | Directriz 12 (2009-12-10) |
