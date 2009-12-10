@@ -1,0 +1,4 @@
+Artículo 8º—Adquisiciones y/ o actualizaciones de las TI.
+a. Le compete al DTII recomendar a la instancia correspondiente las tecnologías o soluciones informáticas que se deban adquirir. Las ampliaciones, modificaciones, actualizaciones o adquisiciones de tecnologías (hardware, software, sistemas, redes) se realizarán con base a las recomendaciones técnicas del DTII, incluso cuando se trate de accesorios para las tecnologías existentes.
+b. Toda adquisición de recurso tecnológico realizada a través de vale de Caja Chica o Solicitud de Compra, deberá contar con la aprobación y recomendación del DTII.
+c. El DTII, deberá al menos una vez al año, remitir al Jerarca, un diagnóstico de la Plataforma Tecnológica del INCOP. Este diagnóstico, deberá incluir las recomendaciones que garanticen un desempeño fiable de la plataforma, apegado a las necesidades institucionales.

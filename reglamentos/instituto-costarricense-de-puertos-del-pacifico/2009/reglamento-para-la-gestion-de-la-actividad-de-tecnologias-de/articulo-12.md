@@ -1,0 +1,7 @@
+Artículo 12.—Solicitud de cuentas de usuario.
+a. El DTII, deberá definir el procedimiento por medio del cual, se llevará a cabo la creación de la solicitud de cuenta.
+b. Se autoriza a la Administración Activa solicitar al Departamento de TI la creación de cuentas de usuario.
+Para estos efectos, el Departamento de TI, tendrá la potestad de definir para las cuentas, los niveles de privilegios y la asignación de los roles de seguridad que considere convenientes.
+c. El DTII, creará cuentas de usuario cuando haya recibido una solicitud –de conformidad con el procedimiento oficial- de creación realizada por algún miembro de la Administración Activa.
+d. En los casos de creación de cuentas para personal bajo la modalidad de contrato, nombramiento interino, jornal, o cualquier trato laboral de carácter temporal, en la solicitud de creación de cuenta, el solicitante deberá especificar la fecha de inicio del tratado y la fecha de su finalización. La fecha especificada como terminación, fungirá como fecha máxima de vigencia para la cuenta. En los casos de renovación de trato, se deberá volver a solicitar al DTII la habilitación de la cuenta con la nueva fecha de caducidad.
+e. Toda cuenta de usuario, quedará vigente cuando el titular de la misma, firme como acto de recibir a conformidad el memorando de Responsabilidades con Respecto al Uso de las TI del INCOP. En el caso de terceros, deberán firmar como acto de conformidad, el Acuerdo de Confidencialidad y Uso de las TI propiedad del INCOP.

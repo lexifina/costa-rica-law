@@ -1,0 +1,9 @@
+Artículo 43.—Protección de equipos.
+a. El DTII, deberá definir y divulgar medidas de seguridad que provean protección física y lógica a los recursos tecnológicos propiedad de INCOP. Es obligación del usuario acatarlas sin excepción.
+b. El Departamento de TI, podrá divulgar las medidas por correo electrónico, por apersonamiento o por escrito, o según conveniencia.
+c. Se prohíbe el uso de los recursos tecnológicos de la institución por parte de terceros no autorizados. Las únicas excepciones serán los proveedores de servicios y/o productos que hayan firmado un Acuerdo de Confidencialidad y Uso de las TI de INCOP.
+d. El DTII podrá mediante la entrega de un documento oficial de Responsabilidades del Usuario con Respecto al Uso de la Plataforma Tecnológica del INCOP especificarle y endosarle al usuario, todas las responsabilidades y recomendaciones orientadas a proveer seguridad física y lógica a los recursos tecnológicos. Las cuales, serán de acatamiento obligatorio para el usuario.
+e. El DTII, deberá entregar a los usuarios un Documento Oficial donde especifique las responsabilidades sobre el uso de la plataforma tecnológica de la institución. Cada vez que haya cambios, el DTII deberá ejecutar una divulgación efectiva a través del medio que crea conveniente.
+f. Todo recurso informático, deberá tener un responsable debidamente designado en el atestado del punto “e”. Cualquier daño que ocurra al mismo, éste deberá responder por los perjuicios ocasionados.
+g. Para los equipos de uso compartido por un área o más, por ejemplo, impresoras o escáneres, etc., tendrán como responsables a los superiores de área beneficiados con el uso del recurso.
+h. El DTII le recomendará a la Gerencia General los mecanismos de seguridad que se deberán implementar para el aseguramiento de la plataforma tecnológica. Esta última, deberá facilitar los recursos necesarios para la implementación.

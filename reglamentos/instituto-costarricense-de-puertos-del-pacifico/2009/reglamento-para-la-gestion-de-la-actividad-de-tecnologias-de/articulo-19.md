@@ -1,0 +1,4 @@
+Artículo 19.—Cuentas de usuario con máximos privilegios.
+a. Sólo el DTII, tendrá acceso a la gestión de las cuentas con máximos Privilegios. La Junta Directiva, Presidencia Ejecutiva y Gerencia General podrán sugerir los privilegios que se otorguen a los usuarios. Las demás entidades del INCOP no podrán sugerir el uso de cuentas con estas calidades. Quedará a criterio exclusivo del DTII el uso que se le dé a este tipo de cuentas.
+b. El DTII, deberá implementar medidas de seguridad que garanticen la confidencialidad de las credenciales con calidades administrativas de máximos privilegios. Sobre este mismo orden, el DTII, no deberá revelar bajo ninguna circunstancia los valores de estas credenciales.
+c. El DTII, deberá garantizar que las cuentas con Máximos Privilegios, son usadas de manera razonable y ética y para fines de gestión técnica de la plataforma.

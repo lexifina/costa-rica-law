@@ -1,0 +1,9 @@
+Artículo 66.—Gestión técnica de cuentas de correo electrónico.
+a. Al ser el correo electrónico un medio de transmisión oficial de información, el DTII, deberá garantizar la disponibilidad del servicio tanto dentro como fuera de las instalaciones de las oficinas de INCOP.
+b. El DTII, deberá implementar las mejores prácticas en Gestión de Correo Electrónico para garantizar la integridad de la información y su privacidad cuando ésta sea transmitida a través de Internet.
+c. El DTII, deberá minimizar la recepción de correo basura en los buzones de los usuarios.
+d. El DTII, deberá mantener las configuraciones de los servidores de correos en concordancia con las necesidades institucionales.
+El Departamento de Tecnologías de Información podrá suspender de manera temporal o permanente el servicio de correo electrónico a aquellos usuarios que entorpezcan el uso adecuado de la herramienta y que por su particular manipulación pongan en riesgo la seguridad del servicio de correo.
+e. Compete exclusivamente al Departamento de Tecnologías de Información, definir las capacidades de almacenamiento de los buzones de cada usuario. Estas capacidades incluyen: Almacenamiento total de correos (tanto en Bandeja de Entrada, Bandeja de Salida, Elementos Enviados, Borradores y Elementos Eliminados) en el buzón y tamaño máximo de los correos de envío y recepción cuando estos contengan archivos adjuntos.
+f. Será responsabilidad de Tecnologías de Información definir las capacidades de correo óptimas que permitan un funcionamiento lo más eficaz y eficiente posible del servicio.
+g. Compete al Departamento de Tecnologías de Información, definir qué tipos de archivos pueden ser considerados adjuntos válidos tanto en los correos de entrada como en los de salida. Pudiendo así, impedir la entrada o salida de los correos cuyo tipo de archivos adjuntos se encuentren en la categoría de no permitidos.

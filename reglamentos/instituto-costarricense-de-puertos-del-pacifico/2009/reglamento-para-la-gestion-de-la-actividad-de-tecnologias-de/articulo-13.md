@@ -1,0 +1,3 @@
+Artículo 13.—Eliminación de cuentas de usuario.
+a. Las cuentas de usuario a las que se le haya definido fecha de caducidad, pasarán a estado inactivo en la fecha definida. Transcurridos 2 meses calendario sin que se haya solicitado renovación de cuenta, ésta será eliminada definitivamente.
+b. En el caso de los funcionarios del INCOP a quienes se les otorgue permiso con o sin goce de salario o para aquellos que concluyen su relación laboral con la institución, el coordinador del Departamento de Capital Humano, de inmediato, deberá informarlo al DTII, con el fin de que las correspondientes cuentas de usuario, incluyendo el buzón de correo, sean temporalmente inhabilitadas o eliminadas, según corresponda.

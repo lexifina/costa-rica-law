@@ -1,0 +1,9 @@
+Artículo 69.—Disposiciones de uso de Internet.
+a. La Administración Activa, podrá solicitar al Departamento de TI acceso a INTERNET para los funcionarios a cargo. Corresponde al departamento de Tecnologías de Información aprobar o improbar estas solicitudes con base a criterios técnicos de seguridad, capacidades del recurso y factibilidad. En caso de no aprobarse la solicitud, el Departamento de TI, comunicará a los interesados las justificaciones según el caso.
+b. Los usuarios autorizados a utilizar este servicio, no deberán almacenar información en sus equipos, ni harán uso de ellos en actividades contrarias a la moral y las buenas costumbres, excepto que esa información se requiera para el desempeño de labores propias del cargo. El uso indebido de este servicio se comunicará al encargado del Departamento de Administración de Personal para la eventual aplicación de las medidas del caso según correspondan.
+c. Tecnologías de Información podrá mediante software de monitoreo, inspeccionar los sitios a los que los usuarios de Internet acceden. La inspección podrá realizarse en el momento en que el usuario está visitando el sitio o en tiempo diferido según lo determine la instancia técnica respectiva.
+d. Tecnologías de Información, podrá almacenar los registros (dirección del sitio, hora, fecha, usuario, estación de trabajo) de las páginas que los usuarios visitan el tiempo que así lo crea conveniente.
+e. Tecnologías de Información, determinará de manera exclusiva, qué tipo de archivos podrán ser obtenidos desde Internet y qué usuarios tendrán el respectivo permiso.
+f. En el caso de detectarse usos no permitidos a los usuarios, se procederá de la siguiente manera:
+i. Se suspenderá el acceso a Internet.
+ii. Se notificará tanto al Superior de área inmediato como al Coordinador de Capital Humano para que se proceda según las competencias correspondientes.

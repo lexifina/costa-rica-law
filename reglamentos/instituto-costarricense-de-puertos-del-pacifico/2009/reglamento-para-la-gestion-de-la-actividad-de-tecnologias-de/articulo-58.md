@@ -1,0 +1,4 @@
+Artículo 58.—Seguimiento de contrataciones.
+a. Toda contratación, deberá ser fiscalizada por un personero del DTII. Este, deberá velar por la ejecución completa de la contratación, por la calidad del servicio o producto y por la realización total del alcance de la misma.
+b. Para efectos de terminación del contrato, el proveedor, deberá emitir un informe sobre las actividades desarrolladas. El responsable de fiscalizarlo, deberá revisar el informe y emitir los criterios que den lugar a la conformidad o disconformidad sobre el trabajo realizado en función de lo acordado.
+c. El responsable de la contratación deberá documentar los niveles de satisfacción respecto al trabajo realizado por el proveedor a fin de contar con un banco de información que permita evaluar a futuro el desempeño de los proveedores.

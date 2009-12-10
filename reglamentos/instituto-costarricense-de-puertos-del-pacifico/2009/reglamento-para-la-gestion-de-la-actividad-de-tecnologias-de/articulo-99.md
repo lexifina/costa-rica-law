@@ -1,0 +1,1 @@
+Artículo 99.—Derogaciones. Se deroga El Reglamento para la Administración y Uso de las Tecnologías de Información de INCOP, aprobadas por Junta Directiva en acuerdo Nº 1, sesión Nº 3468, celebrada el 7 de enero de 2008 y publicada en La Gaceta Nº 20, del 29 de enero del 2008. Rige a partir de su publicación en el Diario Oficial La Gaceta

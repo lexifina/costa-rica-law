@@ -1,0 +1,1 @@
+Artículo 86.—Puesta en producción de los sistemas. El DTII, deberá definir un procedimiento y las políticas que apliquen para el proceso de puesta en producción de los sistemas desarrollados, adquiridos, adaptados, etc.

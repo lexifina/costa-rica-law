@@ -1,0 +1,4 @@
+Artículo 26.—Acceso a los datos almacenados en las estaciones de trabajo.
+a. Los datos contenidos en las estaciones de trabajo, se consideran de interés institucional, por lo tanto, con autorización expresa de la Gerencia General, el DTII podrá acceder los archivos de cualquier estación de trabajo y manipularlos de acuerdo a las necesidades.
+b. El DTII, no está autorizado a abrir documentos para los que no cuente con la debida autorización por parte de los creadores de los datos o dueños de la información o en su defecto, con la autorización expresa de la Gerencia General.
+c. Una vez concluida la relación laboral de los empleados con INCOP, éstos, no podrán acceder a sus archivos personales almacenados en las tecnologías de información propiedad de INCOP. De igual manera, aplica para personal bajo la modalidad de Contrato.

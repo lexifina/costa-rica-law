@@ -1,0 +1,3 @@
+Artículo 46. Custodia de licencias de software.
+a. Toda la licencia física y lógica de software, estará en custodia del Departamento de Tecnologías de Información. Éste, podrá tomar las medidas que crea convenientes para resguardar la integridad física y lógica de las mismas. Sobre este mismo orden, la Gerencia General, deberá facilitar todo equipamiento especial que el Departamento de TI requiera para lograr este objetivo.
+b. El custodio de licencias, deberá tenerlas tanto en formato Digital como en formato impreso. Ambos medios, deberán contar con los controles necesarios para asegurar su integridad, confidencialidad y disponibilidad.
