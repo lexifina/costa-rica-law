@@ -1,0 +1,4 @@
+Transitorio Único.—En tanto no se habilite en Tributación Digital el pago electrónico del Impuesto Solidario, los sujetos pasivos indicados en el inciso a) del artículo 14 de esta resolución podrán pagar por cualquiera de los siguientes medios:
+a) Los contribuyentes que tengan domiciliada una cuenta cliente en Tribunet deberán realizar el pago en forma electrónica a través de ese medio.
+b) Los que no tengan domiciliada una cuenta cliente en Tribunet, deberán realizar el pago utilizando el formulario D-110 Recibo Oficial de Pago en la versión que para este efecto estará disponible únicamente en las Administraciones Tributarias, presentándolo y cancelándolo en cualquiera de las entidades recaudadoras autorizadas.
+(Así addicionado por el artículo 2° de la resolcuión N° DGT-034-2009, del 11 de diciembre de 2009)
