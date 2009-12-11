@@ -1,0 +1,93 @@
+Artículo 12.—Los porcentajes a reconocer para efectos de zonaje de conformidad con lo establecido en el artículo 3 del presente Reglamento serán los siguientes:
+DESGLOSE PORCENTUAL POR PROVINCIAS
+Provincia Cabeceras de cantones Porcentaje asignado
+SAN JOSÉ SAN JOSÉ CENTRO (ÁREA METROPOLITANA) 20%
+DESAMPARADOS 20%
+SAN JUAN DE TIBÁS 20%
+SAN VICENTE DE MORAVIA 20%
+AJAJUELITA 20%
+ASERRÍ 20%
+CIUDAD COLÓN 20%
+SANTA ANA 20%
+SAN PEDRO DE MONTES DE OCA 20%
+Provincia Cabeceras de cantones Porcentaje asignado
+GUADALUPE 20%
+ESCASA 20%
+CURRIDABAT 20%
+SAN ISIDRO DE PÉREZ ZELEDÓN 80%
+SANTA MARIA DE DOTA 80%
+TURRUBARES 90%
+TARRAZÚ 80%
+PURISCAL 80%
+SAN IGNACIO DE ACOSTA 60%
+SAN PABLO DE LEÓN CORTÉS 80%
+SAN ISIDRO DE CORONADO 20%
+ALAJUELA
+ALAJUELA CENTRO 20%
+SAN RAMÓN 70%
+GRECIA 70%
+SAN MATEO 90%
+ATENAS 70%
+NARANJO 70%
+PALMARES 70%
+SAN PEDRO DE POÁS 70%
+OROTINA 80%
+CIUDAD QUESADA 80%
+ZARCERO 80%
+SARCHÍ NORTE 70%
+UPALA 100%
+LOS CHILES 100%
+SAN RAFAEL DE GUATUZO 100%
+CARTAGO
+CARTAGO CENTRO 20%
+PARAÍSO 60%
+TRES RÍOS DE LA UNIÓN 20%
+JUAN VIÑAS 70%
+TURRIALBA 80%
+PACAYAS DE ALVARADO 80%
+SAN RAFAEL DE OREAMUNO 60%
+TEJAR DE EL GUARCO 20%
+HEREDIA
+HEREDIA CENTRO 20%
+BARBA 20%
+SANTO DOMINGO 20%
+SANTA BÁRBARA 20%
+SAN RAFAEL 20%
+SAN ISIDRO 20%
+SAN ANTONIO DE BELÉN 20%
+SAN JOAQUÍN DE FLORES 20%
+SAN PABLO 20%
+PUERTO VIEJO 100%
+GUANACASTE
+LIBERIA 80%
+NICOYA 80%
+SANTA CRUZ 90%
+BAGACES 90%
+FILADELFIA 90%
+CAÑAS 80%
+LAS JUNTAS 90%
+TILARÁN 80%
+CARMONA (NANDAYURE) 80%
+LA CRUZ 100%
+HOJANCHA 90%
+PUNTARENAS
+PUNTARENAS CENTRO 80%
+ESPARZA 80%
+BUENOS AIRES 90%
+MIRAMAR 90%
+CIUDAD CORTES 90%
+QUEPOS 100%
+GOLFITO 90%
+SAN VITO 100%
+PARRITA 100%
+CIUDAD NEILY 90%
+JACÓ 80%
+LIMÓN
+LIMÓN CENTRO 90%
+GUÁPILES 90%
+SIQUIRRES 90%
+BIBRÍ 100%
+MATINA 90%
+GUÁCIMO 90%
+El porcentaje a aplicar por concepto de zonaje será del 20%en los lugares del Área Metropolitana así señalados para los casos tramitados a partir de la vigencia del presente decreto.
+Asimismo, a los funcionarios que laboren en las Áreas Silvestres Protegidas y que cumplan con lo indicado en el artículo 1º del presente reglamento se les reconocerá el 100% de zonaje, independientemente de la categoría de manejo que ostente.

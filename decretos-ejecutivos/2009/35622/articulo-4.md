@@ -1,0 +1,1 @@
+Artículo 4º—El reconocimiento de pago de zonaje se hará mediante acción de personal por la Oficina de Recursos Humanos correspondiente, con rige a partir de la fecha en que el mismo corresponda al funcionario, y que así se haya demostrado con el aporte de la documentación pertinente que compruebe el cumplimiento de los requisitos respectivos, según sea el caso.

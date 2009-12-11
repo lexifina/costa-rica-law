@@ -1,0 +1,2 @@
+Artículo 3º—El cálculo porcentual se fija según la división territorial de Cantones de Provincias.
+El monto correspondiente a cada porcentaje, luego de que la Contraloría General de la República haga cualquier variación en el monto total citado en el artículo precedente, será variado por la Oficina de Recursos Humanos del SINAC previa determinación de la existencia de contenido económico para dicho ajuste.

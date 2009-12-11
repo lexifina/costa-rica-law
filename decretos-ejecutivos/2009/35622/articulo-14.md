@@ -1,0 +1,1 @@
+Artículo 14.—La Oficina de Recursos Humanos del SINAC será la encargada de ejecutar y velar por el fiel cumplimiento del presente Reglamento, quedando obligados todos los funcionarios del Sistema Nacional de Áreas de Conservación a observar y acatar los procedimientos que a tal efecto se dicten.

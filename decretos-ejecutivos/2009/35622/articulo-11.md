@@ -1,0 +1,1 @@
+Artículo 11.—Será competencia de la Comisión fiscalizar e implementar los mecanismos idóneos de control, a fin de determinar la procedencia del beneficio a otorgar y del que ya disfruten los servidores.

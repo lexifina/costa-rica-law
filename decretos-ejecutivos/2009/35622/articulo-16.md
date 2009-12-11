@@ -1,0 +1,1 @@
+Artículo 16.—El presente reglamento será de aplicación para los funcionarios del Sistema Nacional de Áreas de Conservación, por lo que aquellos decretos promulgados para funcionarios del Ministerio de Ambiente, Energía y Telecomunicaciones, en adelante no será de aplicación para los funcionarios del SINAC.

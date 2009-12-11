@@ -1,0 +1,1 @@
+Artículo 7º—El pago de zonaje se regulará de manera independiente a los montos que el funcionario pueda recibir por concepto de viaje y transporte (viáticos), cuando así le correspondan, de conformidad con las disposiciones contenidas en el reglamento respectivo, promulgado por la Contraloría General de la República.

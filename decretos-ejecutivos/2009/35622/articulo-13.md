@@ -1,0 +1,1 @@
+Artículo 13.—La tabla del artículo anterior será revisada anualmente en el mes de abril por la Comisión de Zonaje del SINAC, para que sus recomendaciones, previa modificación del presente reglamento, rijan a partir del primero de enero del año siguiente.
