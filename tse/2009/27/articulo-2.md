@@ -1,0 +1,1 @@
+Artículo 2º—Medios de Comunicación Colectiva. Para los efectos de este reglamento, se entenderán como medios de comunicación colectiva la televisión, la radio y los medios de prensa escrita, debidamente inscritos ante el Tribunal Supremo de Elecciones, en los cuales pueden pautarse los mensajes navideños.

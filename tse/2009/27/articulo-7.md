@@ -1,0 +1,1 @@
+Artículo 7º—Plan de Medios. Los candidatos a la Presidencia de la República, cinco días hábiles antes del inicio del período de veda señalado en el presente reglamento, deberán remitir por escrito a este Tribunal el respectivo plan de medios que detalle la pauta publicitaria referida; si no fuesen a divulgar este tipo de mensajes durante el citado período, así lo informarán.

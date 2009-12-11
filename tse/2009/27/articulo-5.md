@@ -1,0 +1,1 @@
+Artículo 5º—Mensaje Radiofónico. El mensaje radiofónico podrá pautarse en no más de tres radioemisoras individuales, por una única vez en cada una y con una duración máxima de dos minutos no fraccionables.

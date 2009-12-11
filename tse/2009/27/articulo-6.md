@@ -1,0 +1,1 @@
+Artículo 6º—Mensaje en Prensa Escrita. El mensaje en prensa escrita podrá pautarse en no más de tres medios individuales, por una única vez en cada uno y con un tamaño máximo de una página, que no será fraccionable.

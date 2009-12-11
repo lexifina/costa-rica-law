@@ -1,0 +1,1 @@
+Artículo 8º—Obligación de los medios. En cualquier momento el Tribunal podrá requerir informes de los medios de comunicación individuales, que le permitan verificar la información suministrada por los candidatos en lo que respecta al plan de medios para la divulgación de los mensajes navideños.
