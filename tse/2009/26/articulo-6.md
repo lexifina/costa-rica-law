@@ -1,0 +1,2 @@
+Artículo 6º—Fiscal de Junta Receptora de Votos. Tendrá carácter de fiscal de junta receptora de votos quien sea acreditado para llevar a cabo las labores propias de fiscalización durante el proceso electoral en una determinada junta receptora de votos, exclusivamente.
+Cada partido político podrá acreditar un máximo de dos fiscales por junta receptora de votos: un propietario y su respectivo suplente.
