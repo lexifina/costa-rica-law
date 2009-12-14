@@ -1,0 +1,1 @@
+Artículo 49.—Para fijar el monto del impuesto, el Departamento de Patentes solicitará al interesado quien estará obligado a suministrar la información necesaria para establecer los factores de imposición a que se refiere el párrafo segundo del artículo 15 de la Ley.

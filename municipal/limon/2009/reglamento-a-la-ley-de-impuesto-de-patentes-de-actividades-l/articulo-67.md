@@ -1,0 +1,1 @@
+Artículo 67.—El no pago de impuestos de patente en los términos fijados en la Ley y este Reglamento generará multas de 2% por cada mes o fracción de atraso, sin que pueda exceder en cada caso del 24% del monto adeudado, más intereses que acordará el Concejo Municipal.

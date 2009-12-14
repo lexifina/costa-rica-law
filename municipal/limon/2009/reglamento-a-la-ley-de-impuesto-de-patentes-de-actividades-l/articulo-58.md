@@ -1,0 +1,1 @@
+Artículo 58.—Denegada la revocatoria, el Departamento de Patentes elevara el expediente ante el Concejo Municipal que deberá pronunciarse en el término de que establece la Ley General de la Administración Publica. Denegada la apelación o transcurrido el término sin pronunciamiento del Concejo, se tendrá por agotada la vía administrativa.

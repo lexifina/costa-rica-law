@@ -1,0 +1,1 @@
+Artículo 57.—Las recalificaciones tendrán los recursos de revocatoria y apelación para ante el Concejo Municipal. Podrán estar fundadas en motivos de seguridad o inoportunidad y no suspenderá la ejecución del acto.

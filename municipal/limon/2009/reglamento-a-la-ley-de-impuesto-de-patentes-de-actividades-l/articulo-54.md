@@ -1,0 +1,1 @@
+Artículo 54.—El patentado estará en la obligación de tener en lugar visible de donde realiza su actividad lucrativa, el recibo o documento original de la Municipalidad donde se indique que es patentado.

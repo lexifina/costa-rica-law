@@ -1,0 +1,1 @@
+Artículo 63.—Las resoluciones del Departamento de Patentes que ordenen el cierre definitivo o clausura del establecimiento comercial en cumplimiento de órdenes emanadas por el Poder Ejecutivo y de instituciones de derecho público no tendrán recurso alguno.

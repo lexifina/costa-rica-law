@@ -1,0 +1,1 @@
+Artículo 16.—La licencia sólo podrá suspenderse por incumplimiento de los requisitos que exigen las leyes y este Reglamento, para el desarrollo de la respectiva actividad. La suspensión de la licencia implicará el cierre del local o el impedimento de comerciar ambulantemente, medidas que se ejecutarán a través de las autoridades de policía.

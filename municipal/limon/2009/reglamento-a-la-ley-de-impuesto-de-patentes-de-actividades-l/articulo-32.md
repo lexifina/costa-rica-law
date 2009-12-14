@@ -1,0 +1,1 @@
+Artículo 32.—Resolución y notificación: Verificado el cumplimiento de los requisitos y trámites precedentes, el Departamento de Patentes, mediante resolución razonada otorgará o denegará la licencia. Dicha resolución debe ser notificada al interesado.

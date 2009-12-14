@@ -1,0 +1,1 @@
+Artículo 56.—El patentado podrá impugnar la recalificación hecha por el Departamento de Patentes de conformidad con las disposiciones del capítulo sobre materia tributaria de la Ley reguladora de la jurisdicción de lo Contencioso Administrativo. Para tales efectos, la vía administrativa se agotará mediante la alzada que interponga directamente ante el Concejo Municipal.

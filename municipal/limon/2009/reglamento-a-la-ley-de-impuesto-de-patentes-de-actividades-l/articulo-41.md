@@ -1,0 +1,1 @@
+Artículo 41.—Los patentados deberán presentar la declaración jurada durante el período del primero de noviembre al 31 de diciembre de cada año. Los que hayan sido autorizados por Tributación Directa para efectuar el cierre al 31 de diciembre lo deberán presentar antes del 31 de marzo siguiente al cierre.

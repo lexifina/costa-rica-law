@@ -1,0 +1,1 @@
+Artículo 6º—Para la determinación mediante declaración jurada se aplicará el procedimiento establecido en la Ley y el Capítulo II de este Reglamento; para la imposición directa en el Capítulo II , y por disposición expresa de la Ley, la aplicación de los casos contemplados en los artículos 15, 16, 17, 18 y 19 de la Ley.

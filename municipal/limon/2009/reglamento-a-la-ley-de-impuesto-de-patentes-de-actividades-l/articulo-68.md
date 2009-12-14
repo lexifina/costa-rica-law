@@ -1,0 +1,1 @@
+Artículo 68.—Realización de operativos: Los funcionarios municipales junto con autoridades de la Fuerza Pública, la Dirección de Migración y Extranjería, el Patronato Nacional de la Infancia, la Dirección de Tránsito del MOPT y el Ministerio de Salud o cualquier otra entidad afín, podrán realizar operativos para comprobar el adecuado cumplimiento de las normas de las Leyes

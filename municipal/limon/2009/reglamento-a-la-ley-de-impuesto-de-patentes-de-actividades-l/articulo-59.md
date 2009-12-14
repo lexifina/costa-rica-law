@@ -1,0 +1,1 @@
+Artículo 59.—El patentado podrá impugnar la recalificación hecha por el Departamento de Patentes de conformidad con las disposiciones del capítulo sobre materia tributaria de la Ley Reguladora de la jurisdicción de lo contencioso administrativo. Para tales efectos, la vía administrativa se agotará mediante la alzada que se interponga directamente ante el Concejo Municipal.

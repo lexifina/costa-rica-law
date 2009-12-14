@@ -1,0 +1,3 @@
+Articulo 69.—Defraudación: El Departamento de Patentes podrá denunciar ante los Tribunales de Justicia o al Ministerio Público, los casos comprobados de defraudación o perjuicio a los cuales les serán aplicables los artículos 88, 89 y 91 del Código de Normas y Procedimientos Tributarios, así como el artículo 309 del Código Penal.
+La Municipalidad del cantón Central de Limón de conformidad con el artículo 43 del Código Municipal, hace del conocimiento de los interesados el presente proyecto de reglamento sometiéndolo a consulta pública por un plazo de diez días hábiles a partir de su publicación.
+Limón, octubre del 2009

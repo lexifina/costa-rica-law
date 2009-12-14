@@ -1,0 +1,1 @@
+Artículo 29.—Permisos especiales: El Departamento indicará dentro del formulario de solicitud a los interesados, cuales permisos de funcionamiento deben acompañarse con la solicitud de licencia. Únicamente se tramitarán las solicitudes que presenten todos los requisitos que se exijan.

@@ -1,0 +1,1 @@
+Artículo 8º—El impuesto de patente se pagará durante todo el tiempo que se haya tenido establecimiento abierto o ejercido el comercio en forma ambulante y durante el tiempo en que haya poseído licencia, aunque la actividad no se hubiese realizado.
