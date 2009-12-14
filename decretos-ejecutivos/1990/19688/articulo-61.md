@@ -1,1 +1,0 @@
-Articulo 61°.-De conformidad con lo establecido por la ley N° 1810 del 15 de octubre de 1954, además de lo dispuesto por el articulo 37 y siguientes del Reglamento del Estatuto del Servicio Civil, la Junta Administrativa podrá conceder licencias que los servidores regulares asistan a cursos de estudios o de adiestramiento por formalización del contrato.

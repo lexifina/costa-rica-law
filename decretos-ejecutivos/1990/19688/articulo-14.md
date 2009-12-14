@@ -1,1 +1,0 @@
-Artículo 14.-Los servidores del Museo están obligados al desempeño de sus cargos durante los días hábiles y las horas reglamentarias y no se podrá por lo mismo conceder privilegios, prerrogativas o licencia alguna que autorice una asistencia irregular, excepto lo establecido específicamente en este Reglamento y en otras disposiciones legales.

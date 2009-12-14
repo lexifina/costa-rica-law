@@ -1,1 +1,0 @@
-Artículo 27°.-Se establece como derecho de los trabajadores la carrera administrativa debiendo preferirse, en igualdad de condiciones y requisitos en cada plaza ante los servidores regulares más antiguos del Museo que por su capacidad y responsabilidad resulten idóneos para el cargo a juicio de la Dirección General Administrativa de Servicio Civil

@@ -1,2 +1,0 @@
-Artículo 36°-Se considerará ausencia la inasistencia a un día completo de labor. La inasistencia a una fracción de la jornada se computará como la mitad de una ausencia. Dos ausencias de media jornada se consideraran como una ausencia. El ingreso después de dos horas de iniciadas las labores, se tomarán como ausencia a la fracción de jornada correspondiente.
-No se pagará el salario que corresponda a las ausencias, excepción hecha de los casos señalados por la ley o que se justifiquen debidamente.

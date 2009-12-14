@@ -1,1 +1,0 @@
-Artículo 64°.-El presente Reglamento no perjudica los derechos adquiridos de los servidores del Museo. Se presumirá de conocimiento de estos y será de observancia obligatoria para todos desde el día de su vigencia. inclusive para los que en el futuro trabajen para él.

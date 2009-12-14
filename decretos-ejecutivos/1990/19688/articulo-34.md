@@ -1,1 +1,0 @@
-Artículo 34°-La llegada tardía que exceda de veinte minutos, contados a partir de la hora de ingreso estipulada y quien a juicio del jefe superior inmediato carezca de justificación, acarreará al servidor la pérdida de la fracción de jornada, para efecto de jornada de salario.

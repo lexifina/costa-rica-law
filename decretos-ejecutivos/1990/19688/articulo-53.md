@@ -1,1 +1,0 @@
-Articulo 53°.-Constituyen riesgos del trabajo, los accidentes y enfermedades que ocurran a los trabajadores con ocasión, o por consecuencia del trabajo que desempeñan en forma subordinada y remunerada, así como la reagravación que resulte como consecuencia directa, inmediata e ineludible de esos accidentes y enfermedades.

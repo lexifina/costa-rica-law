@@ -1,4 +1,0 @@
-CAPITULO XVI
-Disposiciones finales
-Articulo 62°.-EI Departamento de Administración y Finanzas llevara un expediente de cada uno de los servidores del Museo. En ellos se guardarán los documentos relativos a su empleo y la constancia de todos aquellos datos que sirvan para mantener un historial de sus servicios lo más exacto posible. Igualmente contendrá una fotografía del servidor, quien estará obligado a suministrarla en el momento que le sea solicitada. Dicha fotografía deberá ser renovada por el funcionario cada cinco años.
-También llevará un prontuario para cada servidor en el que se anotarán las calificaciones periódicas, las ausencias y llegadas tardías, indicándose su observación cuando fueren justificadas, las correcciones disciplinarias y los datos más importantes de todas las acciones de personal, iniciando el prontuario con el ingreso al trabajo.

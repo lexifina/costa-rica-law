@@ -1,1 +1,0 @@
-Artículo 3°-EI Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre el Museo y sus servidores, pero la representación inmediata está delegada en el Ministerio de Cultura, Juventud y Deportes, en adelante Ministerio.

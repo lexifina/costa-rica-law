@@ -1,8 +1,0 @@
-Artículo 22.-Además de las contempladas en el artículo 20 y otros del presente Reglamento los chóferes al servicio del Museo tendrán las siguientes obligaciones:
-1) Contar con la autorización escrita del funcionario responsable del control de los vehículos, previa a su salida y acatar las órdenes del jefe que les asigne para su servicio en zona urbana o rural y por el tiempo que las necesidades del trabajo así lo requieran.
-2) Velar por la custodia, limpieza y conservación del vehículo que se le asigna durante el desempeño de sus funciones.
-3) Velar porque el Vehículo se encuentre en buen estado de funcionamiento y portar las herramientas e implementos necesarios.
-4) Informar al Departamento de Administración y finanzas de todo accidente que ocurra, suministrando los nombres y apellidos de los ocupantes del vehículo y de las personas que resulten afectadas con ocasión del mismo, así como los daños que sufra el vehículo, el lugar y las circunstancias en que se produjo el accidente. Este informe debe rendirse a la mayor brevedad posible, enviando copia del mismo a la Dirección General.
-5) Informar por escrito al responsable del control de los vehículos de cualquier desperfecto que observe en el vehiculo a su cuidado. La falta inexcusable de aviso oportuno lo hará incurrir en la responsabilidad por la agravación del daño y los perjuicios que su omisión provoque.
-6) Guardar el vehículo en el garaje especialmente destinado al efecto, al término de cada jornada, excepto cuando esté en gira o misiones especiales de trabajo en cuyo caso deberá entregar las llaves del vehículo al funcionario responsable de la gira.
-7) Mantener la licencia al día, así como conducir con prudencia, a velocidad reglamentaria y acatar las normas de tránsito respectivas.

@@ -1,3 +1,0 @@
-CAPÍTULO XIII
-De las condiciones de higiene
-Articulo 48°.-De conformidad con el articulo 208 del Código de Trabajo, en la Institución se establecerán las comisiones de seguridad que sean necesarias. Dichas comisiones tendrán por finalidad investigar las causas de los riesgos profesionales, proponer medidas para prevenirlos y vigilar que las mismas se cumplan. La constitución de las mismas se pondrá en conocimiento del Departamento de Medicina. Higiene y Seguridad Ocupacional del Ministerio de Trabajo y Seguridad Social, al cual se sujetarán en lo relativo al asesoramiento.

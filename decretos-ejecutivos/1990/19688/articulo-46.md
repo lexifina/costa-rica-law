@@ -1,2 +1,0 @@
-Artículo 46°-Las faltas no señaladas, en este Reglamento serán sancionadas conforme lo establezca el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes conexas y supletorias.
-Los despidos de los trabajadores amparados por el Régimen del Servicio Civil se tramitarán conforme lo dispuesto por el Estatuto del Servicio Civil, su Reglamento y las disposiciones contenidas en este Reglamento.

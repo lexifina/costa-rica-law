@@ -1,1 +1,0 @@
-Artículo 32°.-Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta al inicio y finalización de la jornada de trabajo hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el servidor no la justifique a más tardar en el transcurso de la semana siguiente.

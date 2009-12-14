@@ -1,1 +1,0 @@
-Artículo 35°-Se considerará abandono del servidor el hacer dejación, dentro de la jornada de trabajo, de la labor objeto del contrato o relación de servicio. Para efectos de calificar el abandono no es necesario que el trabajador salga del lugar donde presta sus servicios, sino que bastará que de manera injustificada abandone la labor que le ha sido encomendada.

@@ -1,1 +1,0 @@
-Articulo 4°-El Director General, los jefes de departamento y en general todos aquellos servidores que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante el Museo de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

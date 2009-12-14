@@ -1,6 +1,0 @@
-Artículo 24°-Además de las contempladas en el artículo 23 anterior y en otros del presente Reglamento, queda absolutamente prohibido a los chóferes de las dependencias del Museo:
-1)Tomar licor durante las horas de trabajo, conducir vehículos en estado de embriaguez, bajo cualquier otra condición análoga o presentarse a laborar en estas condiciones.
-2) Conducir a velocidades superiores a las permitidas por las leyes o reglamentos del tránsito, así como incumplir disposiciones que las mismas contemplen.
-3) Usar el vehículo en lugares diferentes al del itinerario que corresponda. Cuando por circunstancias muy calificadas el conductor se vea obligado a salirse de la ruta señalada, al término de la jornada deberá dar el informe del caso al Director General o al jefe del Departamento de Administración y Finanzas.
-4) Ceder la conducción del vehículo a otros funcionarios o particulares, salvo razones muy calificados o de fuerza mayor.
-5) Ocupar o permitir que se utilice el vehículo en actividades ajenas a servicios de la Institución así como transportar a funcionarios o particulares que no tengan relación con el servicio que se presta, salvo los casos que por la índoles del transporte o el propósito del viaje así lo obliguen.

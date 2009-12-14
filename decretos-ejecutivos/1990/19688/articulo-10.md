@@ -1,1 +1,0 @@
-Artículo 10°.-La Dirección General podrá autorizar a los jefes de departamento para que de común acuerdo con los servidores puedan modificar la jornada ordinaria de trabajo, siempre y cuando no se cause perjuicio al servicio público ni a la duración de la misma, previa notificación a quien corresponda.

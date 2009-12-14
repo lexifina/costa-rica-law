@@ -1,1 +1,0 @@
-Artículo 31°.-EI control de la entrada y salida de tiempo destinado al almuerzo, queda bajo la responsabilidad de cada jefe de departamento, quien establecerá los mecanismos necesarios de manera que no se ocasione menoscabo en la prestación del servicio. Quedará a juicio del Director General, determinar que el mencionado control se registre por medio del reloj marcador.

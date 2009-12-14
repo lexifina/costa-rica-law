@@ -1,1 +1,0 @@
-Articulo 57°.-Las gestiones de los servidores. de acuerdo con el articulo anterior deberán plantearse por escrito y resueltas, en la misma forma, no obstante podrá hacerse verbalmente cuando así lo exija la urgencia de una resolución o cuan menor importancia del asunto, justifique este procedimiento.

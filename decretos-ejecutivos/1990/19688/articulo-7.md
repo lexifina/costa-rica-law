@@ -1,1 +1,0 @@
-Artículo 7°-Terminarán igualmente sin responsabilidad para el Museo aquellos nombramientos que se efectúen en puestos amparados por el Régimen del Servicio Civil con carácter de interino, de conformidad con lo establecido en el Estatuto de Servicio Civil y su Reglamento.

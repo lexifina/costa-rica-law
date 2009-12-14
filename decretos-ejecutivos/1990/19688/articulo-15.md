@@ -1,4 +1,0 @@
-Artículo 15°.-Cuando necesidades imperiosas del Museo lo requieran los servidores quedan en la ineludible obligación de laborar horas extraordinarias dentro de los límites señalados por los artículos 140 y 141 del Código de Trabajo, salvo causa justa o fuerza mayor para negarse.
-La jornada ordinaria sumada a la extraordinaria, no podrá exceder de doce horas diarias excepto situaciones muy especiales e imprevisibles.
-El jefe superior deberá comunicar a los servidores con la debida anticipación, la jornada extraordinaria que debe laborar, la cual será remunerada conforme con lo establecido por ley. La negativa injustificada para laborar tiempo extraordinario se sancionará como falta grave.
-Para reconocer el trabajo extraordinario es necesaria la autorización previa de la Comisión de Recursos Humanos, la cual es solicitada por el Departamento de Administración y Finanzas.
