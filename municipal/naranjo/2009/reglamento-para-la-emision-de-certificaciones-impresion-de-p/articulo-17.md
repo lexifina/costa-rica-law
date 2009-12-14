@@ -1,0 +1,1 @@
+Artículo 17.—Para tal efecto el Tesorero podrá delegar en las cajeras la custodia de tales timbres. Distribuirá las especies fiscales a cada cajera, en grupos según cada tipo de certificación, con un inventario de existencias.

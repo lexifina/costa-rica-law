@@ -1,0 +1,1 @@
+Artículo 24.—La venta de timbres a lo interno de la Municipalidad, se realiza tomando en cuenta que es un servicio nuevo que se le brindará al contribuyente, evitándole largas filas para la adquisición en Bancos y agilizando la entrega de las certificaciones.

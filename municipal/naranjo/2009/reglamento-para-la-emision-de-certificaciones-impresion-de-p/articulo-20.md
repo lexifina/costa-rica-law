@@ -1,0 +1,1 @@
+Artículo 20.—El Tesorero será el responsable directo por el manejo, cualquier pérdida o entrega no autorizada de los timbres, para lo cual deberá realizar un arqueo de tales valores, y deberá remitirlo a la Auditoría Municipal para lo que corresponda.
