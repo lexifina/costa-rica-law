@@ -410,7 +410,7 @@ CONDICIONES GENERALES:
 - Puede requerir experiencia previa.
 - Puede corresponderle trabajar en cadena o equipo dentro de un proceso con subdivisión de tareas, motivado por la complejidad del puesto o volumen de la producción.
 - Según el puesto de que se trate requiere de discreción, memorización de datos, facilidad de palabra, buena dicción, tacto, buena presentación.
-TRABAJADORES CALIFICADOS (Genéricos)
+(*)TRABAJADORES CALIFICADOS (Genéricos)
 Definición de título:
 Se definen como Trabajador Calificado a aquel trabajador cuyas tareas tienen un regular grado de dificultad mental o física y requieren conocimientos específicos sobre una determinada materia, ya sean estos requeridos por estudios o una larga práctica, que hacen posible que el trabajador conozca bien una ocupación.
 Generalmente realiza diversas tareas, total o parcialmente, de complejidad similar a las que a continuación se señalan:
@@ -430,6 +430,7 @@ CONDICIONES GENERALES:
 - Según el puesto de que se trate requiere la memorización de cantidades, medidas, referencias, direcciones, conocer leyes, estatutos, reglamentos, y otros datos.
 - Requiere buena presentación, facilidad de palabra, tacto, discreción.
 - Puede correspondiere ejercer supervisión sobre otros trabajadores de menor o igual calificación.
+(*)(Nota: El Consejo Nacional de Salarios, mediante resolución N° 04 y publicada en La Gaceta N° 24 del 4 de febrero de 2010, acordó: “…ubicar salarialmente a los Guardas Custodios de Valores y Porta Valores, en la categoría Salarial de Trabajadores Calificados de Genéricos, y hacer las modificaciones en los perfiles ocupaciones)
 TÉCNICOS MEDIOS EN EDUCACIÓN DIVERSIFICADA
 (Genéricos)
 Para efectos de ubicación y fijación de los salarios mínimos, se clasifican como Técnicos medios en Educación Diversificada, a aquellos trabajadores graduados de un colegio técnico o profesional reconocido y autorizado por el Estado, en algunas de las diversas especialidades aprobadas por el Ministerio de Educación Pública y cuyos estudios comprenden la educación formal media y la educación técnica en la especialidad, con una duración de 6 años, que comprenden del sétimo al doceavo año, de los cuales el último ciclo de tres años incluye además de la educación tradicional o académica, la técnica en la especialidad de que se trate.
