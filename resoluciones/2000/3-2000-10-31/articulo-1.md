@@ -446,7 +446,8 @@ Hacer pedidos para mantener cantidades adecuadas de mercaderías.
 Visitar clientes para cobrar los pagos de cuentas o cancelaciones, recibir el importe y cotejar el monto con la factura, extender el recibo correspondiente o factura cancelada, entregar el dinero recaudado y hacer el informe correspondiente.
 Cobrar el importe del servicio por prendas o mercancías que guarda hasta que le sean solicitadas con la contraseña apropiada, de acuerdo a las normas de seguridad y control definidas por la empresa.
 Recibir prendas de vestir para lavado o teñido, revisarlas y definir si se pueden someter a los procesos que sigue la empresa, entregar un recibo e indicar el monto a pagar,
-Vigilar y evitar el hurto de mercancías en supermercados, tiendas y otros establecimientos; vigilar y evitar el ingreso de personas no autorizadas en lugares bajo su responsabilidad; proteger valores, ya sea tanto en locales como en vehículos o cualquier otro medio de transporte; proteger edificios, equipos, maquinarias, etc.; detectar posibles focos de incendio o situaciones riesgosas y avisar a quien corresponda.
+Vigilar y evitar el hurto de mercancías en supermercados, tiendas y otros establecimientos; vigilar y evitar el ingreso de personas no autorizadas en lugares bajo su responsabilidad; proteger edificios, equipos, maquinarias, etc.; detectar posibles focos de incendio o situaciones riesgosas y avisar a quien corresponda.
+(Así reformado el párrafo anterior por acta N° 5101 del 14 de diciembre de 2009)
 Recolectar información y datos en formularios para muestreos, encuestas y censos.
 Condiciones generales:
 Recibe instrucciones del trabajo a realizar, pero puede decidir el procedimiento más eficaz para cumplirlas.
@@ -467,6 +468,9 @@ Llevar registros auxiliares de contabilidad, que tengan su respectiva cuenta de 
 Cobrar a clientes o usuarios, los bienes o servicios que ha adquirido, por pagos o abonos, utilizando una caja registradora u otro método para guardar el dinero, según la empresa de que se trate y tener la responsabilidad del dinero que recibe, hacer "cierres de cajas" y rendir cuentas del dinero recibido inicialmente, del cobrado contra comprobantes entregados o montos registrados; cerrar adecuadamente las diferencias; puede comprobar los montos a pagar por los clientes y corregir las sumas o totales equivocados.
 Ser responsable de una caja chica en el lugar donde realiza sus labores, para el pago inmediato de ciertos gastos de la empresa o de los funcionarios y rendir cuentas periódicas de los dineros gastados contra comprobantes y del sobrante, respondiendo por la correcta coincidencia de los totales.
 Gestionar la venta de bienes o servicios, en forma personal, por teléfono u otro medio, en representación del patrono; según su criterio y de acuerdo a las normas establecidas por la empresa, puede conceder crédito, acordar condiciones y plazos de entrega, hacer descuentos y otros acuerdos de pago.
+Custodiar y proteger valores que se transportan en vehículos o cualquier otro medio de transporte, incluye exclusivamente a los Guardas Custodios y Porta Valores. 1
+(1) Se entiende por guardas custodios de valores y porta valores a los encargados de custodiar y proteger valores que se transportan en medios de transporte de empresas debidamente autorizados por parte del Ministerio de Seguridad Pública para ese fin.
+(Así adicionado el párrafo anterior por acta N° 5101 del 14 de diciembre de 2009)
 Condiciones generales:
 Recibe instrucciones de tipo general, realiza el trabajo con relativa independencia; se le evalúa por los resultados obtenidos.
 Puede corresponderle realizar razonamientos complejos para determinar porcentajes, calcular impuestos, áreas, volúmenes, cuadros estadísticos, presentación de gráficos, etc.
