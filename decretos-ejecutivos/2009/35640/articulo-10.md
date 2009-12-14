@@ -1,0 +1,2 @@
+Artículo 10.—Forma y medios de pago. El impuesto deberá ser cancelado en su totalidad, en moneda de curso legal ante cualquier entidad bancaria del sistema bancario nacional o la que designe el I.C.T.
+Cuando el pago se hiciere a través de depósito, transferencia u otro medio electrónico, el contribuyente deberá enviar simultáneamente por el medio que defina el I.C.T, o presentar directamente ante éste, la declaración jurada correspondiente, con copia del comprobante de pago respectivo.

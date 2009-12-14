@@ -1,0 +1,1 @@
+Transitorio II.—Todos aquellos boletos cuyo origen de ruta sea Costa Rica, para cualquier clase de viajes internacionales vía aérea, marítima o terrestre, sobre los cuales no se haya cobrado el impuesto que establece el artículo 46, inciso a) de la Ley, que hayan sido emitidos antes de la entrada en vigencia del presente reglamento, no estarán sujetos al cobro del impuesto.

@@ -1,0 +1,1 @@
+Transitorio I.—Sin perjuicio de su obligación de inscribirse, el I.C.T. procederá a integrar de oficio un registro de contribuyentes, con las empresas de transporte autorizadas para operar en Costa Rica.

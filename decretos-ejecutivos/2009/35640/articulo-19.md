@@ -1,0 +1,1 @@
+Artículo 19.—Obtención de información de trascendencia tributaria por parte de terceros. El I.C.T requerirá para efectos de la adecuada fiscalización y recaudación del tributo, información de trascendencia tributaria a terceros, en virtud de sus actividades y relaciones con el contribuyente.
