@@ -1,0 +1,1 @@
+Artículo 22.—Los recursos generados ya sea por tarifas u otras actividades realizadas por La Junta Administradora del Cementerio serán depositados en las cuentas de la Asociación y su uso será exclusivamente para el fin que fueron generados.

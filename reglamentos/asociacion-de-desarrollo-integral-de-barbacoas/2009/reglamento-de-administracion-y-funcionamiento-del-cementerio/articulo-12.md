@@ -1,0 +1,1 @@
+Artículo 12.—Cuando los nichos de la Asociación o bóvedas privadas se encuentren en un estado de deterioro avanzado o amenacen la salud pública, se prohibirá su uso para nuevos entierros y se demolerán.

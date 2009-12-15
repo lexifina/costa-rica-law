@@ -1,0 +1,1 @@
+Artículo 21.—La Junta Administradora del Cementerio podrá realizar actividades como rifas, solicitud de donaciones, ferias, bingos, entre otras para sufragar gastos adicionales generados por la operación y mantenimiento del cementerio.

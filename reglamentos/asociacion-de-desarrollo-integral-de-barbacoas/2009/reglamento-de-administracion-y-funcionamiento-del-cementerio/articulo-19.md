@@ -1,0 +1,1 @@
+Artículo 19.—En caso de emergencia, una situación socioeconómica de pobreza extrema debidamente comprobada técnica o públicamente, la Junta Administradora del Cementerio podrá aplicar un criterio distinto para el cobro del valor de este derecho.

@@ -1,0 +1,1 @@
+Artículo 11.—Los trabajos de reparación y mejoras de las bóvedas que realicen los arrendatarios deben ser comunicados previamente a La Junta y no podrán implicar una modificación estructural de la bóveda.

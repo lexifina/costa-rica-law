@@ -1,0 +1,1 @@
+Artículo 2º—Propósito del presente Reglamento. La presente regulación reglamentaria tiene como fines primordiales la organización de la administración, operación, mantenimiento y nuevas inversiones en el Cementerio de Barbacoas.

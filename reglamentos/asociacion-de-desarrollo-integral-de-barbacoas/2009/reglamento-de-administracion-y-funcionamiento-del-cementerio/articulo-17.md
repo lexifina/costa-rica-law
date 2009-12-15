@@ -1,0 +1,1 @@
+Artículo 17.—Para sufragar los costos de estas actividades, la Junta Administradora del Cementerio cobrará anualmente una tarifa mantenimiento de ¢2.000 (dos mil colones) por nicho y ¢3.000 (tres mil colones) en el caso de planché que se incrementarán anualmente en un 15%.

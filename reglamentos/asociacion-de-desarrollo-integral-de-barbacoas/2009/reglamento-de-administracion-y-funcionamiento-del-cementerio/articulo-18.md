@@ -1,0 +1,1 @@
+Artículo 18.—La compra de derecho de arrendamiento de cementerio tendrá un costo de ¢10.000 (diez mil colones) por metro cuadrado que se pagarán una única vez y otorgan una vigencia de por vida. El costo por metro cuadrado será revisable y ajustable anualmente.

@@ -1,0 +1,1 @@
+Artículo 20.—Ante una situación de no pago de la tarifa anual de mantenimiento o abandono del contrato de arrendamiento, la Junta Administradora del Cementerio procederá a realizar la notificación respectiva a los familiares y de no solventarse la situación, se procederá a realizar la exhumación del caso siguiendo para ello el procedimiento y en acato a la normativa vigente.
