@@ -15,3 +15,4 @@ Reglamento para la Ejecución de garantías del Banco de Costa Rica
 | --- | --- | --- |
 | 1 | 2008-07-17 | la propia norma |
 | 2 | 2008-11-10 | Reglamento 53 (2008-11-10) |
+| 3 | 2009-12-15 | Reglamento 0 (2009-12-15) |

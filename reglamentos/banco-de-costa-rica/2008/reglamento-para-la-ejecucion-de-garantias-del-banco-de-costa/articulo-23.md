@@ -1,5 +1,5 @@
 SECCIÓN IV
 Evaluación
 Artículo 23.—La gestión de los abogados será evaluada cada año por el Gerente del CSOR, para determinar la celeridad en el trámite del proceso y los resultados de sus servicios, siendo estos valores los indicadores de gestión, los cuales se detallan en la Disposición administrativa para la ejecución de garantías.
-Cuando se determine que no se está cumpliendo con los indicadores de gestión, o como resultado del seguimiento normal de los procesos se detecten deficiencias en su tramitación, el funcionario responsable deberá solicitar a la Contraloría de Cobro Judicial la realización de un Estudio de Campo, lo cual comprende una selección de juicios para la revisión de los expedientes en las oficinas judiciales; con el objetivo de establecer el estado del juicio y el cumplimiento de las gestiones cobratorias del abogado.
-De comprobarse mediante estudio de campo que han habido deficiencias en los trámites, la Gerencia del CSOR, conjuntamente con el Gerente de Zona 2 de la División Comercial correspondiente, lo elevarán a conocimiento de la Gerencia General para que resuelva si prórroga o no el Contrato de Servicios Profesionales al abogado. Lo anterior sin perjuicio de la aplicación de cualquier otra sanción administrativa y/o civil correspondiente.
+Esta evaluación podrá ser tomada en cuenta por la administración para efectos de decidir si prorroga o no el contrato de servicios profesionales, de conformidad con lo indicado en el artículo 3 de este Reglamento.
+(Así reformado y publicado en La Gaceta N° 15 del 22 de enero de 2010)
