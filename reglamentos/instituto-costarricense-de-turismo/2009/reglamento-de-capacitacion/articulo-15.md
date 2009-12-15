@@ -1,0 +1,1 @@
+Artículo 15.—Es obligación del beneficiario trasladar sus conocimientos a otros servidores del ICT, mediante el trabajo práctico y la enseñanza teórica; con la coordinación previa entre sus superiores y el proceso de Recursos Humanos

@@ -1,0 +1,1 @@
+Artículo 23.—En el evento de producirse una causal de despido sin responsabilidad patronal contra un funcionario que se encuentre disfrutando de un curso, éste deberá reintegrar al I.C.T. el monto invertido en el beneficio.

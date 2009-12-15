@@ -1,0 +1,1 @@
+Artículo 3.—Refrendo. El Proceso de Recursos Humanos, elaborará y someterá a conocimiento y aprobación de la Gerencia General, el plan institucional de capacitación, a fin de que sea refrendado. Cada unidad deberá de incluir en su Plan Operativo Institucional el contenido presupuestario para realizar las actividades descritas en el plan institucional de capacitación.

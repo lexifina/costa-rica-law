@@ -1,0 +1,1 @@
+Artículo 22.—Los beneficios contenidos en este Reglamento, no son salario en especie ni constituirán derechos adquiridos. Para efectos de la carrera profesional, los estudios obtenidos mediante beneficios reconocidos por el presente Reglamento, se regirán por los Reglamentos específicos que existen en la materia respectiva.

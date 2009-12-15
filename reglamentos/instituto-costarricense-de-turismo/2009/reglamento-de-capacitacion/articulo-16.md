@@ -1,0 +1,1 @@
+Artículo 16.—El beneficiario de curso de preparación complementaria en el exterior deberá rendir a la Gerencia General con copia al Proceso de Recursos Humanos, un informe sobre los resultados obtenidos en el curso.
