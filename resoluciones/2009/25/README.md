@@ -14,3 +14,4 @@ Establece modelos formularios electrónico D-164 "Declaración semestral de liqu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-01 | la propia norma |
+| 2 | 2009-12-15 | Resolución 35 (2009-12-15) |
