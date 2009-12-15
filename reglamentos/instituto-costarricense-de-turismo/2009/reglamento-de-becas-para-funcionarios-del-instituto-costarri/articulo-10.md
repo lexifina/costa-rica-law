@@ -1,0 +1,1 @@
+Artículo 10.—Competencia de atención de las becas y su respectivo análisis. Toda beca deberá ser canalizada a través de la Comisión, la cual tendrá la responsabilidad de investigar la utilidad de los estudios en relación con la labor del funcionario dentro del ICT. así como, las condiciones de la beca y cualquier otro dato que le permita decidir acerca de su tramitación.

@@ -1,0 +1,1 @@
+Artículo 5º—Secretaria auxiliar de la comisión. El Proceso de Recursos Humanos asignará un analista que asistirá a las sesiones de la Comisión en calidad de Secretario y le corresponderá preparar las convocatorias, tramitar los acuerdos tomados por la Comisión y elaborar el Acta de cada sesión. El libro de Actas lo mantendrá al día la Secretaria del proceso de Recursos Humanos.

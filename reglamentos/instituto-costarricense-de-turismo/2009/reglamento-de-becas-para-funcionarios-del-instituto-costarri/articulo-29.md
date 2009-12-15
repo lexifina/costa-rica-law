@@ -1,0 +1,1 @@
+Artículo 29.—Obligación de mantener beca. En el caso de que a un funcionario se le conceda una beca, el ICT. deberá mantener el beneficio por el tiempo para el cual fue concedido, a no ser que el funcionario incumpla con lo establecido en el contrato de estudios.

@@ -1,0 +1,1 @@
+Artículo 33.—Compromiso. El funcionario que haya obtenido un título acogiéndose a los beneficios concedidos por este Reglamento queda comprometido a continuar laborando a tiempo completo la suma de los tiempos que disfrutó de permiso con goce de salario y a cumplir con todos los compromisos adquiridos en el contrato de beca.

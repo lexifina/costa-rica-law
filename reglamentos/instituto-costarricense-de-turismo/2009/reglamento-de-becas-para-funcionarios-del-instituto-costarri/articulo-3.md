@@ -1,0 +1,1 @@
+Artículo 3º—Recursos y presupuesto. Cada unidad deberá proyectar dentro de su Plan Operativo institucional, el contenido presupuestario en la partida de Becas, si lo considera pertinente para el desarrollo de sus funciones.

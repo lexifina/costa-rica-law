@@ -1,0 +1,1 @@
+Artículo 32.—Levantamiento del beneficio de beca. En el caso de que un funcionario deje de laborar para el Instituto o que disfrute de permiso sin goce de salario para laborar bajo otro patrono, dejará de disfrutar los beneficios que este Reglamento otorga.

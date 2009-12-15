@@ -1,0 +1,1 @@
+Artículo 7º—Falta de quórum. En caso de no contar con el quórum a la hora fijada para la sesión, se dará un periodo de espera de quince minutos para que se complete. De no complementarse durante ese lapso, se levantará el acta correspondiente en que se indicarán los miembros presentes y ausentes.
