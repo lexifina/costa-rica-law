@@ -13,4 +13,5 @@ Considerando:
 11.—Que esa resolución constituye el marco jurídico general que regula los aspectos comunes de las resoluciones específicas para cada declaración informativa.
 12.—Que por medio de la presente resolución se regula la presentación de las declaraciones informativas electrónicas de impresión de facturas y otros documentos. Por tanto:
 RESUELVE:
-Artículo 1º—Modelo de formulario informativo. Se establece el modelo de formulario electrónico D-160 “Declaración trimestral impresión de facturas y otros documentos”, con el propósito de que los obligados que se indican en el artículo siguiente, suministren a la Administración Tributaria, la información de la impresión de facturas y otros documentos que tramiten a personas físicas y jurídicas obligadas a entregar comprobantes autorizados.
+Artículo 1º—Modelo de formulario informativo. Se establece el modelo de formulario electrónico D-160 (*)“Declaración semestral impresión de facturas y otros documentos”, con el propósito de que los obligados que se indican en el artículo siguiente, suministren a la Administración Tributaria, la información de la impresión de facturas y otros documentos que tramiten a personas físicas y jurídicas obligadas a entregar comprobantes autorizados.
+(*)(Así reformado por el artículo 2° de la Resolución N° DGT-035-2009 del 15 de diciembre de 2009)

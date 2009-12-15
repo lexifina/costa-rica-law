@@ -14,3 +14,4 @@ Establece modelo de formulario electrónico D-160 "Declaración semestral de imp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-01 | la propia norma |
+| 2 | 2009-12-15 | Resolución 35 (2009-12-15) |
