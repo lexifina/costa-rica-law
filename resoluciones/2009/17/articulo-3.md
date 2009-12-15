@@ -1,6 +1,7 @@
 Artículo 3º—Suministro general de información. En esta declaración se debe suministrar la información de las personas físicas o jurídicas a las cuales se efectuó ventas de combustibles, con la indicación del número de cédula y nombre o razón social del cliente, tipo de cliente, tipo de combustible, cantidad de litros vendida y el monto de la venta.
 El detalle de los registros por cliente, debe contener la siguiente información:
-i. Período. Es el trimestre y el año al cual corresponde la información suministrada.
+i. Período. Es el semestre y el año al cual corresponde la información suministrada.
+(Así reformado el inciso anterior por el artículo 2° de la Resolución N° DGT-035-2009 del 15 de diciembre de 2009)
 ii. Número de cédula del cliente. Corresponde al número de cédula de persona física o jurídica, se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
 iii. Nombre completo o razón social del cliente. Según se trate de persona física o jurídica, será identificado cuando se registre el número de identificación del cliente o bien debe ser digitado cuando no esté registrado en las bases de datos correspondientes.
 iv. Tipo de cliente. Los clientes deben clasificarse conforme con los siguientes códigos:

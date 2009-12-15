@@ -10,4 +10,5 @@ Considerando:
 8º—Que esa resolución constituye el marco jurídico general que regula los aspectos comunes de las resoluciones específicas para cada declaración informativa.
 9º—Que por medio de la presente resolución se regula la presentación de las declaraciones informativas electrónicas de ventas de combustible. Por tanto:
 RESUELVE:
-Artículo 1º—Modelos de formularios informativos. Se establece el modelo de formulario electrónico D-156 “Declaración trimestral de ventas de combustibles - RECOPE” con el propósito de que esa entidad informe a la Administración Tributaria, de las ventas por combustible que realice a nivel nacional e internacional.
+Artículo 1º—Modelos de formularios informativos. Se establece el modelo de formulario electrónico D-156 (*)“Declaración semestral de ventas de combustibles - RECOPE” con el propósito de que esa entidad informe a la Administración Tributaria, de las ventas por combustible que realice a nivel nacional e internacional.
+(*)(Así reformado por el artículo 2° de la Resolución N° DGT-035-2009 del 15 de diciembre de 2009)
