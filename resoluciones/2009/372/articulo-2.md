@@ -1,0 +1,1 @@
+2º—Déjese sin efecto la resolución RES-DGA-153-2004 del 24 de diciembre de 2004, denominada “Manual de Procedimientos Ingreso de Viajeros y sus Mercancías” publicada en La Gaceta N° 31 del 14 de febrero de 2005, así como sus anexos.
