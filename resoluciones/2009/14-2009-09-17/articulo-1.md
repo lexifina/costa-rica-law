@@ -9,4 +9,5 @@ Considerando:
 7º—Que esa resolución constituye el marco jurídico general que regula los aspectos comunes de las resoluciones específicas para cada declaración informativa.
 8º—Que por medio de la presente resolución se regula la presentación de las declaraciones informativas electrónicas de retenciones por pago a cuenta del impuesto sobre la renta. Por tanto:
 RESUELVE:
-Artículo 1º—Modelos de formularios informativos. Se establecen los modelos de formularios electrónicos D-150 “Declaración trimestral retenciones por pago a cuenta del impuesto sobre la renta” y D-152 “Declaración trimestral de retenciones únicas y definitivas del impuesto sobre la renta”, con el propósito de que se suministre trimestralmente información de retenciones en la fuente, tal como se define en los artículos siguientes.
+Artículo 1º—Modelos de formularios informativos. Se establecen los modelos de formularios electrónicos D-150 "Declaración semestral retenciones pago a cuenta del impuesto sobre la renta”;” y D-152 “Declaración semestral retenciones únicas y definitivas del impuesto sobre la renta”, con el propósito de que se suministre trimestralmente información de retenciones en la fuente, tal como se define en los artículos siguientes.
+(Así reformado por el artículo 2° de la resolución DGT-035 del 15 de diciembre de 2009)

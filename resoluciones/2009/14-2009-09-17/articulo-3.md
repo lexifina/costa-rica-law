@@ -1,8 +1,10 @@
 Artículo 3º—Suministro general de información
 Modelo electrónico D-150
 Deberá suministrarse la información correspondiente a las retenciones efectuadas como pago a cuenta del impuesto sobre la renta durante el período, con el detalle de los datos identificativos de los retenidos (personas físicas o jurídicas a las que se les efectuó la retención), a saber, número de cédula de identidad o jurídica, razón o denominación social completa si es sociedad o apellidos y nombre si es persona física, así como el tipo de retención practicada, el monto de la base de la retención y el impuesto retenido durante el período.
-El detalle trimestral de la declaración debe contener un registro por cada retenido con la suma total de las retenciones realizadas.
-i. Trimestre de la retención efectuada. Corresponde al trimestre sobre el que se suministra la información.
+El detalle semestral de la declaración debe contener un registro por cada retenido con la suma total de las retenciones realizadas.
+(Así reformado el párrafo anterior por el artículo 2° de la Resolución N° DGT-035-2009 del 15 de diciembre de 2009)
+i. Semestre de la retención efectuada. Corresponde al semestre sobre el que se suministra la información.
+(Así reformado el inciso anterior por el artículo 2° de la Resolución N° DGT-035-2009 del 15 de diciembre de 2009)
 ii. Número de cédula del retenido. Corresponde al número de cédula física o jurídica de la persona a la cual se le efectúa la retención y se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
 iii. Nombre del retenido. (razón o denominación social completa si es sociedad, o apellidos y nombre (s) si es persona física), será identificado cuando se registre el número de identificación del retenido o bien debe ser digitado cuando el número de cédula del retenido, no esté registrado en las bases de datos correspondientes.
 iv. Tipo de operación. Los montos deben clasificarse conforme a los siguientes códigos:
@@ -11,8 +13,10 @@ iv. Tipo de operación. Los montos deben clasificarse conforme a los siguientes 
 Para todos los efectos, en la información a suministrar, prevalecerá el criterio del devengado, salvo que el informante cuente con autorización formal de la Dirección General de Tributación para la utilización de otro sistema de registro contable.
 Modelo electrónico D-152
 Se deberá suministrar la información correspondiente a las retenciones efectuadas a título de impuesto único y definitivo durante el período, con el detalle de los datos identificativos de los retenidos (personas físicas o jurídicas a las que se les efectuó la retención), a saber, número de cédula de identidad o jurídica, razón o denominación social completa si es sociedad o apellidos y nombre si es persona física, así como el tipo de retención practicada, el monto de la base de la retención y el impuesto retenido durante el período.
-El detalle trimestral de la declaración debe contener un registro por cada retenido con la suma total de las retenciones realizadas.
-i. Trimestre de la retención efectuada. Corresponde al trimestre sobre el que se suministra la información.
+El detalle semestral de la declaración debe contener un registro por cada retenido con la suma total de las retenciones realizadas.
+(Así reformado el párrafo anterior por el artículo 2° de la Resolución N° DGT-035-2009 del 15 de diciembre de 2009)
+i. Semestre de la retención efectuada. Corresponde al semestre sobre el que se suministra la información.
+(Así reformado el inciso anterior por el artículo 2° de la Resolución N° DGT-035-2009 del 15 de diciembre de 2009)
 ii. Número de cédula del retenido. Corresponde al número de cédula física o jurídica de la persona a la cual se le efectúa la retención y se registra tal y como consta en el documento de identificación. En el caso de extranjeros, debe consignarse el número de identificación especial que le otorgó la Administración Tributaria.
 iii. Nombre del retenido (razón o denominación social completa si es sociedad, o apellidos y nombre (s) si es persona física), será identificado cuando se registre el número de identificación del retenido o bien debe ser digitado cuando el número de cédula del retenido, no esté registrado en las bases de datos correspondientes.
 iv. Tipo de operación. Los montos deben clasificarse conforme a los siguientes códigos:
