@@ -1,1 +1,2 @@
-Artículo 14.—Salario Base. Cuando en las resoluciones que regulan las declaraciones informativas se haga referencia al salario base, éste debe entenderse según el concepto indicado en el artículo 2 de la Ley Nº 7337, vigente para el periodo sobre el cual se suministra la información.
+Artículo 14.—Salario Base. Cuando en las resoluciones que regulan las declaraciones informativas se haga referencia al salario base, éste debe entenderse según el concepto indicado en el artículo 2 de la Ley Nº 7337, vigente al vencimiento del periodo de presentación de la información, conforme se indica en el artículo 5º de la presente resolución.
+(Así reformado por el artículo 1° de la resolución DGT-035-2009 del 15 de diciembre de 2009)
