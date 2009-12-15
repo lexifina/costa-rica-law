@@ -1,0 +1,1 @@
+Artículo 13.—Queda prohibido al inquilino introducir mejoras a los puestos objeto de contrato de cualquier clase y modificar sus instalaciones sin el previo permiso escrito de la Junta Directiva de la Asociación.

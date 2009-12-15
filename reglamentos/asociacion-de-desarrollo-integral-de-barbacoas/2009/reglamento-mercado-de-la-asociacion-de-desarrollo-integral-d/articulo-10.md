@@ -1,0 +1,1 @@
+Artículo 10.—Solamente serán reconocidos como inquilinos permanentes aquellas personas con derechos legales o que hayan sido favorecidos con las adjudicaciones que hayan firmado el contrato respectivo y que se encuentren al día en el pago del valor del arrendamiento.

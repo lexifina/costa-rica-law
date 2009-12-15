@@ -1,0 +1,1 @@
+Artículo 4º—La Asociación coordinará y resolverá todos los asuntos pendientes por medio de la Junta Directiva; no obstante las modificaciones parciales o totales del presente Reglamento deberán ser aprobadas por la Asamblea General.

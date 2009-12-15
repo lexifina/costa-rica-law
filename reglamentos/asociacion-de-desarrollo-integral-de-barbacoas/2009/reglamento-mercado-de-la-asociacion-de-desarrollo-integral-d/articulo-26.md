@@ -1,0 +1,1 @@
+Artículo 26.—En caso de muerte del inquilino, la Junta Directiva concederá el rango de nuevo inquilino al beneficiario que estableció el inquilino en el momento de la firma del contrato de arrendamiento.

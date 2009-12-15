@@ -1,0 +1,1 @@
+Artículo 6º—Únicamente en caso de fuerza mayor o caso fortuito debidamente calificado la Junta Directiva podrá acordar la no prestación del servicio del mercado sin previa comunicación a los interesados.

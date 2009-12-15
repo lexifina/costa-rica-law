@@ -1,0 +1,1 @@
+Artículo 8º—El adjudicatario que no se presente dentro del plazo indicado en el artículo anterior, perderá el derecho además de cualquier adelanto de dinero que al respecto hubiese depositado, quedando la Asociación facultada para sacar a remate nuevamente el local.

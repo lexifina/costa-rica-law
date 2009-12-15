@@ -1,0 +1,1 @@
+Artículo 14.—En caso de daños o reparaciones en los servicios públicos los inquilinos están obligados a facilitar la entrada al puesto de los operarios para las labores de reparación respectiva ya sea en sus puestos o en los de los demás inquilinos.

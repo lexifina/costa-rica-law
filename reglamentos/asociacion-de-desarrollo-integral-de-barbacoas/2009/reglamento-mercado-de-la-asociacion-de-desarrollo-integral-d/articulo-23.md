@@ -1,0 +1,9 @@
+Artículo 23.—La Asociación de Desarrollo se reserva el derecho de terminación, sin lugar o indemnización de ninguna clase, el contrato celebrado con el adjudicatario por las causas establecidas en este reglamento:
+a) Por incumplimiento por parte del inquilino de alguna o algunas de las obligaciones que le imponga el contrato o este reglamento.
+b) Por embargo judicial del derecho de arrendamiento cuando su dueño no obtenga el levantamiento del embargo dentro de un plazo razonable fijado por la Junta Directiva.
+c) Por remate de la mercadería o artículos que expanda en el puesto que tenga como consecuencia el cierre del negocio por más de ocho días naturales.
+d) Por incapacidad económica del inquilino, la cual se presume cuando se interponga juicio de insolvencia o se le compruebe incumplimiento notarial de sus obligaciones comerciales o mala fe en su negocio.
+e) Por venta de artículos alterados o que tenga un peso menor al que corresponde de acuerdo con las disposiciones legales vigentes o se haya impuesto al inquilino por estos motivos alguna sanción por las autoridades competentes.
+f) Por cesión del puesto sin el cumplimiento total de los requisitos establecidos en el presente reglamento o por darlo en uso a otra persona, o a cualquier título, en todo o en parte o por el hecho de permitir la administración o manejo del negocio en condiciones o personas distintas a las autorizadas por este Reglamento.
+g) Por garantizar con el puesto obligaciones a favor de terceros o haber obtenido la adjudicación o cesión para un tercero y tener en consecuencia la condición de inquilino permanente.
+h) Por demolición o reforma al mercado, no obstante los inquilinos que por razones expuestas en este inciso se vean afectados conservarán el derecho de prioridad para ocupar nuevamente los locales cuando el mercado se rehabilite. Todo lo anterior desde luego en concordancia con la ley y reglamentos vigentes.
