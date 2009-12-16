@@ -14,3 +14,4 @@ Directrices para la autoevaluación anual y la evaluación externa de calidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-31 | la propia norma |
+| 2 | 2009-12-16 | Resolución 119 (2009-12-16) |
