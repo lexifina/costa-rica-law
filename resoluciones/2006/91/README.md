@@ -14,3 +14,4 @@ Lineamientos Requisitos de Cargos de Auditor Subauditor Internos, condiciones pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-08 | la propia norma |
+| 2 | 2009-12-16 | Resolución 119 (2009-12-16) |
