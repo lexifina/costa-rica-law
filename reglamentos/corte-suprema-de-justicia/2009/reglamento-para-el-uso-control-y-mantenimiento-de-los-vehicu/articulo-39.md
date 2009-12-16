@@ -1,0 +1,1 @@
+Artículo 39.—Será responsabilidad de la Fiscalía General de la República y de la Dirección de la Defensa Pública, la asignación de los vehículos del Ministerio Público y de la Defensa Pública respectivamente a las diferentes sedes y dependencias que lo conforman, señalando los servidores que tendrán su aprobación para conducirlos en cada caso.

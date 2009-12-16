@@ -1,0 +1,1 @@
+Artículo 37.—Con el fin de lograr un mejor aprovechamiento de los vehículos disponibles, se podrán agrupar en un mismo viaje, varias solicitudes de diferentes servidores u oficinas al mismo sitio o ruta, previo aviso a los interesados.

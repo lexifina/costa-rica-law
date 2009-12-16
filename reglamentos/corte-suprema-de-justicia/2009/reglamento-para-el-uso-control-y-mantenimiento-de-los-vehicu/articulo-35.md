@@ -1,0 +1,1 @@
+Artículo 35.—Cuando las solicitudes cumplan con los requisitos estipulados, el encargado deberá decidir sobre la disponibilidad del vehículo y tenerlo debidamente preparado para su uso con la anticipación necesaria.

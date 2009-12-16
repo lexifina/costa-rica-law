@@ -1,0 +1,2 @@
+Artículo 11.—Vehículos destinados al servicio de la policía judicial e investigadores de la Defensa Pública. Estos vehículos deberán ser utilizados exclusivamente para el cumplimiento de los deberes propios de las labores de investigación, portarán placas particulares y no estarán rotulados.
+Por las necesidades y por la índole del servicio que se presta, los vehículos para el servicio de la policía judicial y de la Unidad de Investigación de la Defensa Pública no tendrán limitación en cuanto al horario de servicio.

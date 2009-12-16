@@ -1,0 +1,2 @@
+Artículo 21.—Administraciones Regionales y demás oficinas a cargo de vehículos del Poder Judicial.
+El control de los vehículos destinados para el servicio de las Administraciones Regionales y demás oficinas a cargo de los vehículos del Poder Judicial para el cumplimiento de sus funciones administrativas o jurisdiccionales, corresponderá respectivamente al Administrador, Jefe inmediato o encargado al que se le haya asignado el vehículo.

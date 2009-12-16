@@ -1,0 +1,1 @@
+Artículo 43.—El servicio de transporte que se facilite para el desempeño de las funciones, deben desarrollarse dentro del territorio nacional; no obstante, cuando por circunstancias especiales se requieran que circulen fuera de éste, se debe previamente requerir autorización debidamente justificada en los casos que corresponda.

@@ -1,0 +1,1 @@
+Artículo 18.—Los vehículos destinados a prestar servicio a las oficinas administrativas y jurisdiccionales no podrán ser usados para fines diferentes, salvo casos excepcionales autorizados por la Dirección Ejecutiva.

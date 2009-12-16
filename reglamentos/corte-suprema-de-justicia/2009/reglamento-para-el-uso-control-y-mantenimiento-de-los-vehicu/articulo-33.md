@@ -1,0 +1,1 @@
+Artículo 33.—No se permite alteraciones o modificaciones de los vehículos propiedad del Poder Judicial, salvo que por las necesidades en el cumplimiento de las funciones se requieran, para lo cual se deberá contar con autorización expresa de la Dirección Ejecutiva.

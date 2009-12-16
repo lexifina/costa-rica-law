@@ -1,0 +1,1 @@
+Artículo 40.—Cuando los vehículos estén en uso, no deberán dejarse sin vigilancia, por ningún motivo. En el caso de vehículos destinados a la investigación penal deberá haber siempre por lo menos un servidor que vele por el cuidado de los mismos, salvo caso fortuito o fuerza mayor.

@@ -1,0 +1,1 @@
+Artículo 6º—Corresponde a la Dirección Ejecutiva, definir las normas y los procedimientos de control interno, tendentes a lograr un adecuado uso racional, control y mantenimiento de los vehículos del Poder Judicial. Sin perjuicio de las responsabilidades que le caben a los subordinados.

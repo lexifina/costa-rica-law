@@ -1,0 +1,3 @@
+Artículo 27.—Se prohíbe, con excepción de los vehículos de uso discrecional, el traslado en vehículos del Poder Judicial. Lo anterior, de personas que no sean servidores judiciales, salvo casos muy calificados que por la índole del transporte o el propósito del aviso lo justifiquen y siempre que tengan íntima relación con el trabajo que se ejecuta.
+El conductor deberá informar a quien tenga a su cargo el control de los vehículos, los nombres de las personas que utilizaron la unidad y las razones que mediaron para ello.
+Se exceptúa de esta prohibición el traslado de reos, heridos, víctimas y testigos ligados directamente a las investigaciones que realicen los servidores de la Oficina de Localización y los investigadores de la Defensa Pública.

@@ -1,0 +1,2 @@
+Artículo 16.—Por razones de seguridad los vehículos de la Sección de Transportes del Organismo de Investigación Judicial destinados a la investigación y al transporte de detenidos no serán rotulados y portarán placas particulares, salvo los que a criterio de la Dirección de ese Organismo, deben llevar placa oficial del Poder Judicial y el emblema del Organismo de Investigación Judicial.
+Los vehículos dedicados a la prestación del servicio de transporte de cadáveres deben llevar placa oficial del Poder Judicial y el emblema del Organismo de Investigación Judicial.

@@ -1,0 +1,1 @@
+Artículo 20.—La Administración del Ministerio Público o Fiscal Coordinador en cada Fiscalía Adjunta, tendrá a su cargo el control de los vehículos destinados a prestar servicio a las oficinas del Ministerio Público. De igual forma se procederá en la Defensa Pública.

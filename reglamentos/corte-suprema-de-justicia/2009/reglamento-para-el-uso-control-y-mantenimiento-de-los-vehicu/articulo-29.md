@@ -1,0 +1,1 @@
+Artículo 29.—Es prohibido a los conductores de vehículos del Poder Judicial utilizarlos de manera arbitraria, facilitar la movilización particular de los servidores o ceder su conducción a otras personas, salvo por razones muy calificadas, en cuyo caso, una vez finalizado el viaje deberá informar los motivos que lo llevaron a tomar esa decisión.

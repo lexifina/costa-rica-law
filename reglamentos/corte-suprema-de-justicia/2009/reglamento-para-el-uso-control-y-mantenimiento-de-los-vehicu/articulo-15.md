@@ -1,0 +1,2 @@
+Artículo 15.—De la Sección de Transportes del Organismo de Investigación Judicial.
+El Jefe de la Sección de Transportes del Organismo de Investigación Judicial, tendrá a su cargo el control de los vehículos destinados a la investigación y al transporte de detenidos y cadáveres. Ejercerá el control necesario sobre los vehículos destacados en las Delegaciones, Subdelegaciones, Oficinas y Unidades del Organismo de Investigación Judicial, sin perjuicio de las obligaciones que corresponden a los Jefes y encargados de esas dependencias.

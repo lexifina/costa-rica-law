@@ -1,0 +1,1 @@
+Artículo 31.—En el traslado de detenidos, los conductores de los vehículos para el traslado de éstos, no podrán efectuar paradas que no estén debidamente autorizadas. En caso de desperfecto del vehículo, lo comunicará inmediatamente a su superior y por ningún motivo abrirán la puerta trasera de la unidad, salvo casos de emergencia.
