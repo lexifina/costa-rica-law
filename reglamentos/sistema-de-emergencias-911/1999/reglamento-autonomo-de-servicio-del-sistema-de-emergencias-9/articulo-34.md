@@ -1,1 +1,5 @@
-Artículo 34: A los funcionarios que administren fondos de trabajo superiores a un millón de colones, se les hará un reconocimiento económico semestral, igual al 20% del salario base mensual del puesto que desempeñen.
+Artículo 34.—En cuanto a las incapacidades otorgadas por el Instituto Nacional de Seguros, el SISTEMA se compromete a ajustar el monto necesario al subsidio otorgado, para que el trabajador reciba la totalidad de su salario ordinario normal mensual. En cuanto al pago de incapacidades otorgadas por la Caja Costarricense de Seguro Social, se pagarán de la siguiente manera:
+- Los tres primeros días se pagará, a manera de subsidio, el cincuenta por ciento (50%) del salario ordinario normal.
+- Del cuarto día en adelante se pagará, a manera de subsidio, el monto restante al subsidio otorgado por la CCSS, de manera que el trabajador reciba la totalidad de su salario ordinario normal mensual.
+El SISTEMA mediante los convenios que existan con la Caja Costarricense de Seguro Social, cancelará el subsidio por incapacidad que corresponda, para evitar que el funcionario se desplace a los lugares de pago. Igualmente lo hará con el subsidio que paga el Instituto Nacional de Seguros en el caso de accidentes laborales.
+(Así reformado y publicado en La Gaceta N° 244 del 16 de diciembre de 2009)
