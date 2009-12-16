@@ -1,1 +1,0 @@
-II.—Las presentes directrices derogan los “Lineamientos generales que deben observarse en la promulgación del reglamento de organización y funciones de las unidades de auditoría interna de las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República”, publicados en La Gaceta Nº 14 del 21 de enero de 1988.
