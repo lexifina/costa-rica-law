@@ -1,0 +1,1 @@
+Artículo 36.—Dentro de su jornada habitual de trabajo, se pondrá a disposición un teléfono para uso exclusivo de reportar cualquier emergencia o necesidad que se presente, o cualquier otra eventualidad que ponga en peligro su seguridad personal y del centro de trabajo.

@@ -1,0 +1,1 @@
+Artículo 12.—La llegada tardía que exceda de veinte minutos contados a partir de la hora de ingreso estipulada y que, a juicio del superior jerárquico, carezca de justificación, acarreará al servidor la pérdida de media jornada (fracción correspondiente) equiparándose esta falta a la mitad de su ausencia para efectos de sanción.

@@ -1,0 +1,1 @@
+Artículo 14.—Las ausencias al trabajo por enfermedad deberá el o la Agente de Seguridad y Vigilancia incapacitado, justificarlas mediante un certificado médico o comprobante extendido por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros o por un médico particular.

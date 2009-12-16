@@ -1,0 +1,1 @@
+Artículo 54.—Es obligación del director del centro de trabajo, extender al Agente de Seguridad y Vigilancia, en el caso de accidentes laborales o riesgos de trabajo, la correspondiente boleta para ser atendida (o) en el Instituto Nacional de Seguros.
