@@ -1,1 +1,0 @@
-Transitorio único.—Desde la fecha de vigencia, la Auditoría Interna contará con dieciocho meses para establecer las medidas que estime necesarias a fin de poner en práctica lo regulado en esta normativa. Durante ese periodo la fiscalización se orientará a evaluar la puesta en marcha de tales medidas.
