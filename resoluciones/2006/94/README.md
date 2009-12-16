@@ -15,3 +15,4 @@ Manual de Normas Generales de Auditoría para el Sector Público
 | --- | --- | --- |
 | 1 | 2007-01-15 | la propia norma |
 | 2 | 2008-07-11 | Resolución 33 (2008-07-11) |
+| 3 | 2009-12-16 | Resolución 119 (2009-12-16) |
