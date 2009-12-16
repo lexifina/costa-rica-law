@@ -13,3 +13,4 @@ Reglas Prácticas para facilitar el acceso a la justicia de las Poblaciones Ind�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-05 | la propia norma |
+| 2 | 2009-12-16 | Circular 145 (2009-12-16) |
