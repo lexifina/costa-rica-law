@@ -1,0 +1,1 @@
+Artículo 11.—La solicitud de emisión, modificación de características y parámetros de consumo, cancelación, reemplazo o reposición de la Tarjeta de Pago Institucional, debe realizarse utilizando los formularios diseñados para estos efectos, los cuales serán firmados por el Autorizador de la Tarjeta de Pago Institucional, aportando las justificaciones correspondientes.

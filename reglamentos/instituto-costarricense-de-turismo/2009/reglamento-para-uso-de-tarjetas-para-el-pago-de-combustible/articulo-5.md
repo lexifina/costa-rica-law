@@ -1,0 +1,1 @@
+Artículo 5º—Es responsabilidad de los Líderes de Macroproceso, Coordinadores de Regionales o Líderes de Proceso, velar por el cumplimiento de este Reglamento y denunciar ante el Proceso Administrativo, el uso inadecuado de la Tarjeta de Pago Institucional por parte de un funcionario.

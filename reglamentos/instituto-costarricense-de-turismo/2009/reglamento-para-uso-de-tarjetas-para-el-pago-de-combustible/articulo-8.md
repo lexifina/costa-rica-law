@@ -1,0 +1,1 @@
+Artículo 8º—Los líderes de Macro-proceso, los Coordinadores de Regionales y Líderes de Proceso serán los responsables de solicitar la emisión de la Tarjeta de Pago de combustibles por medio de tarjeta para los funcionarios a su cargo, al Proceso Administrativo.

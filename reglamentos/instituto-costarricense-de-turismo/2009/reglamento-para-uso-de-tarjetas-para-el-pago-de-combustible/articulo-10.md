@@ -1,0 +1,1 @@
+Artículo 10.—El Líder del Proceso Administrativo o la persona que éste designe será el responsable de registrar en el sistema SITRA, las autorizaciones señaladas en los artículos 8º y 9º, mediante el formulario denominado “Registro de Autorizaciones Tarjeta de Pago Institucional”.

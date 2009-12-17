@@ -1,0 +1,1 @@
+Artículo 7º—El Líder del Proceso Administrativo designará a los funcionarios encargados de tramitar ante el Banco todas las solicitudes de emisión, modificación, cancelación, reemplazo y reposición de Tarjeta de Pago Institucional. Los contratos individuales que generen cada tarjeta emitida estarán a cargo del Proceso Administrativo.

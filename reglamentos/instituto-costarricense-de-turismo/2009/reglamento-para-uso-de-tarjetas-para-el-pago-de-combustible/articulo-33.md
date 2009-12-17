@@ -1,0 +1,1 @@
+Artículo 33.—El encargado verificará que la documentación soporte (voucher, factura) no contengan alteraciones, tachaduras, borrones o cualquier otro tipo de situación que pueda causar duda de su legitimidad. Cualquier error en el cupón interno, debe salvarse con una nota aclaratoria debidamente firmada por el tarjeta habiente.

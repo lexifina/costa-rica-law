@@ -1,0 +1,1 @@
+Artículo 34.—El encargado revisará que la firma del funcionario que autoriza la Liquidación de Gasto de Combustible, corresponda al funcionario autorizado para este efecto. Las firmas de los funcionarios autorizados para aprobar estos documentos, deben estar registradas ante el revisor mediante los controles del Proceso Financiero.

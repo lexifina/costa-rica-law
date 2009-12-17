@@ -1,0 +1,1 @@
+Artículo 6º—Cada Líder de Macroproceso, Coordinador de Regionales y Líderes de Proceso, deberán asignar al funcionario responsable de suministrar oportunamente los reportes, conciliaciones y cualquier otra documentación que requiera el Proceso Financiero para tramitar el pago respectivo de la factura mensual al ente bancario.

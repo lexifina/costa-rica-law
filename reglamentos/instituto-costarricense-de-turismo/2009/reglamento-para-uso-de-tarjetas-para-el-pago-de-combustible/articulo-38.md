@@ -1,0 +1,1 @@
+Artículo 38.—Los Líderes de Proceso Administrativo y Financiero, deben establecer las medidas de control que permitan cumplir con las fechas para presentar oportunamente las Liquidaciones de Gastos de Combustible, efectuar las conciliaciones del Estado de Cuenta de cada tarjeta habiente y apertura de la cuenta por pagar al banco.

@@ -1,0 +1,1 @@
+Artículo 12.—Serán los Lideres de Proceso, Lideres de Macro-Proceso y Coordinadores de Regionales quienes le comuniquen al beneficiario de la tarjeta electrónica para que este proceda con su retiro de la Sucursal o Agencia Bancaria.

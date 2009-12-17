@@ -1,0 +1,1 @@
+Artículo 29.—La Liquidación de Gastos de Combustible deberá contener nombre y firma del tarjeta habiente y debe adjuntar los documentos que respaldan cada compra: factura, voucher de combustible. El formulario de Liquidación de Gastos de Combustible y la factura, deben contener la firma de la jefatura respectiva o quien autoriza la compra.

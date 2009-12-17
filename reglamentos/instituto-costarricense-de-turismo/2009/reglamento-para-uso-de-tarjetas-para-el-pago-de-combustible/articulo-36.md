@@ -1,0 +1,1 @@
+Artículo 36.—El funcionario que haya sido designado por el Proceso Financiero, para realizar la conciliación del estado de cuenta de cada tarjeta deberá investigar las partidas pendientes de conciliación, realizar los ajustes o gestiones que correspondan, a efecto de certificar la exactitud de la cuenta por pagar al Banco, antes del cierre de cada mes.
