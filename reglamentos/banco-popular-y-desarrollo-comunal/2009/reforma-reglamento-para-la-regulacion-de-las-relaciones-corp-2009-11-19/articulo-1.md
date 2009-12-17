@@ -1,0 +1,20 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional, actuando como tal y en el ejercicio de las funciones propias de Asamblea de Accionistas de “Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A.”, “ Popular Valores Puesto de Bolsa S. A.”, “Popular Fondos de Inversión S. A.” y “Popular Agencia de Seguros S. A “., en Sesión 4715 del 19 de noviembre del 2009, modificó los artículos 1, 4 y 6 del “Reglamento para la Regulación de las Relaciones Corporativas del Banco Popular y de Desarrollo Comunal y sus Sociedades Anónimas” y el artículo 5 del “Reglamento del Comité Corporativo de Riesgo “los cuales se leerán de la siguiente manera:
+a. Del Reglamento para la Regulación de las Relaciones Corporativas del Banco Popular y de Desarrollo Comunal y sus Sociedades Anónimas.
+“Artículo 1º—Del Grupo Corporativo del Banco Popular y de Desarrollo Comunal.
+El presente Reglamento se dicta con fundamento en los artículos 24 b de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, 4 del Decreto del Poder Ejecutivo 27.503-H, 2 b y 24 del Reglamento Sobre el Grupo Vinculado a la Entidad y del Reglamento de Auditorías Externas y Medidas de Gobierno Corporativo Aplicable a los Sujetos Fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE, emitidos por el Consejo Superior de Supervisión del Sistema Financiero en sesiones 480–2004, 491–2005 y 492-2005 de 4 de noviembre del 2004 y 20 de enero del 2005 respectivamente, y tiene como fin regular las relaciones entre las entidades que forman el Conglomerado Financiero Banco Popular y de Desarrollo Comunal, así denominado por el CONASSIF y formado por el Banco Popular y de Desarrollo Comunal, Popular Valores Puesto de Bolsa S. A., Popular, Sociedad Administradora de Fondos de Inversión S. A., la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A., la Sociedad Agencia de Seguros S. A. del Banco Popular y de Desarrollo Comunal, y cualquiera otra que llegare a ser propiedad del Banco Popular en su totalidad, Conglomerado que para los efectos de este Reglamento, se denominará Grupo Corporativo del Banco Popular y de Desarrollo Comunal.
+Artículo 4º—De la Integración de las Juntas Directivas.
+Las Juntas Directivas de las Sociedades propiedad del Banco Popular estarán integrada por cinco miembros, salvo la de la Operadora de Pensiones, que se conformará con siete miembros, todos nombrados por la Junta Directiva Nacional en ejercicio de sus funciones de Asamblea de Accionistas, y la de la Sociedad Agencia de Seguros, S. A.; que estará compuesta por cinco miembros.
+Artículo 6º—De la organización de las Juntas Directivas.
+Las Juntas Directivas estarán conformadas por un presidente, un vicepresidente, un secretario, un tesorero y un vocal, salvo en el caso de la Operadora de Pensiones, donde existirán tres vocales.”
+b. Del Reglamento del Comité Corporativo de Riesgo
+“Artículo 5º—Integración del Comité.
+El Comité estará integrado por:
+El Coordinador del Proceso Gerencial de Administración del Riesgo del Banco, quien lo presidirá, por lo que en caso de empate ejercerá el doble voto. En sus ausencias será suplido por su inmediato inferior.
+El Gestor de Riesgo de Popular Valores Puesto de Bolsa S. A.
+El Gestor de Riesgo de la Sociedad Administradora de Fondos de Inversión del Banco Popular y de Desarrollo Comunal S. A.
+El Gestor de la Unidad de Riesgos de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A.
+El Gestor de la Unidad de Riesgos de la Sociedad Agencia de Seguros del Banco Popular y de Desarrollo Comunal S. A.
+El Gerente General Corporativo y los Gerentes de las Sociedades Anónimas podrán asistir a las sesiones cuando lo estimen pertinente. El Comité podrá disponer, acordándolo por unanimidad, brindar acceso a sus sesiones al público en general. Las personas señaladas en este párrafo tendrán voz pero no voto. “
+Todas las modificaciones rigen a partir de su publicación en La Gaceta.
+San José, 9 de diciembre del 2009
