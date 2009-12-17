@@ -1,1 +1,1 @@
-Artículo 26.—Del salario en especie. La asignación o utilización de vehículos propiedad de la institución, no constituirá salario en especie.
+Artículo 26.—Coordinación del servicio de transporte. Para lograr un mayor aprovechamiento de las unidades disponibles y bajo los criterios de razonabilidad, oportunidad y economía, se deberá agrupar en un solo viaje varias solicitudes de transporte que se generen hacia un mismo sitio o rumbo, dando aviso oportuno a los interesados para lograr una adecuada coordinación del viaje.

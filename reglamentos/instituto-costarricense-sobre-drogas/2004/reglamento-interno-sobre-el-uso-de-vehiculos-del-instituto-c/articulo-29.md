@@ -1,20 +1,17 @@
-Artículo 29.—De los deberes y responsabilidades de Servicios Generales. Serán responsabilidades y deberes del encargado de Servicios Generales los siguientes:
-a. Planificar, organizar y controlar todas las actividades de orden administrativo relacionadas con el uso y disposición de los vehículos.
-b. Atender las solicitudes de transporte.
-c. Asignar los vehículos de conformidad con las características del servicio, considerando criterios de utilidad y uso racional.
-d. Vigilar que los vehículos se usen satisfactoriamente.
-e. Supervisar la labor de los chóferes y del taller de mantenimiento y reparación.
-f. Llevar todos los registros necesarios para lograr un estricto control de los vehículos.
-g. Realizar inspecciones diarias de todas las unidades.
-h. Llevar un expediente de cada vehículo.
-i. Llevar diariamente los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y establecer las responsabilidades del caso cuando se detecten daños.
-j. Llevar el control de vehículos que se encuentren fuera de servicio.
-k. Realizar el trámite para la adquisición de las pólizas de seguro y llevar el control de las pólizas de seguro
-l. Controlar la distribución de boletas de combustible, kilometraje recorrido y motivo de viaje.
-m. Velar por la conservación y mantenimiento de todos los vehículos, siguiendo la normativa de la Ley de Tránsito y este reglamento.
-n. Realizar los trámites para la adquisición de los derechos de circulación y revisiones técnicas.
-o. Gestionar cuando corresponda ante los órganos competentes, los permisos de salida de los vehículos.
-p. Investigar, atender y tramitar todos los aspectos administrativos y de análisis técnico que sea necesario, con motivo de accidentes de tránsito.
-q. Recibir nuevas adquisiciones y constatar que las condiciones reales correspondan a las especificaciones de los documentos de compra.
-r. Sacar de circulación los vehículos que no se encuentren en condiciones aptas para circular.
-s. Cualquier otra que en el futuro la Dirección General determine mediante resolución.
+Artículo 29.—De los deberes y responsabilidades del conductor. El conductor a quien se le asigne o tenga bajo su custodia un vehículo, será responsable por la seguridad del mismo, además deberá:
+a) Conocer y cumplir estrictamente con lo establecido en la Ley de Tránsito por Vías Públicas Terrestres y otras leyes aplicables en este reglamento.
+b) Conservar mientras conduce la mayor compostura y la debida prudencia para no poner en peligro su propia vida ni la seguridad de sus acompañantes u otros vehículos.
+c) Revisar los frenos, dirección, luces, lubricantes, combustible, presión de llantas y estado general del vehículo antes de conducirlo.
+d) Conducir el vehículo con el mayor cuidado y responsabilidad, aplicando las mejores técnicas y conocimientos para el buen manejo, evitando daños o el desgaste acelerado de la unidad.
+e) Portar siempre y actualizada la licencia de conducir, así como el carné del Instituto.
+f) Transportar únicamente a funcionarios u otras personas con la autorización respectiva.
+g) Portar en el vehículo la tarjeta de circulación y de propiedad. En el caso de los decomisados portar los documentos legales necesarios que determinen que el Instituto es el depositario judicial del bien.
+h) Portar, cuando corresponda, el permiso para conducir fuera de días y horas no hábiles.
+i) Mantener el mejor estado de conservación y limpieza del vehículo bajo su responsabilidad.
+j) Cuidar las herramientas, repuestos y otras piezas complementarias de que disponga el vehículo.
+k) Comunicar al superior inmediato cualquier irregularidad que se presente en el cumplimiento de su función.
+l) Cubrir las multas por infracciones a la Ley de Tránsito y otras regulaciones que sean penalizadas a través de los procedimientos judiciales o administrativos, en los cuales se demuestre que ha existido falta al debido cuidado atribuible al conductor.
+m) Cumplir con los programas de mantenimiento establecidos para el vehículo.
+n) Guardar el vehículo al finalizar la jornada de trabajo, bajo llave y en el lugar donde se haya asignado.
+o) Reportar a más tardar un día hábil después de cualquier desperfecto que haya sufrido el vehículo. Asimismo, la desaparición o extravío de accesorios o repuestos, los cuales deberán ser restituidos si fueron extraviados por negligencia, descuido o imprudencia.
+p) Presentar las facturas y comprobantes del pago del combustible mediante la tarjeta entregada para ese fin, liquidando así el gasto de combustible.

@@ -1,2 +1,1 @@
-Artículo 25.—De la custodia de los vehículos. Una vez concluidas las labores diarias, todos los vehículos deberán ser guardados en el estacionamiento del Instituto y las llaves permanecerán bajo custodia del encargado de Servicios Generales.
-Por las labores propias del Instituto, los vehículos que se encuentren en el cumplimiento de giras o en misiones de trabajo, podrán circular en horas no hábiles de trabajo, siempre y cuando cuenten con la autorización de la Dirección General.
+Artículo 25.—Del salario en especie. La asignación o utilización de vehículos propiedad de la institución, no constituirá salario en especie.

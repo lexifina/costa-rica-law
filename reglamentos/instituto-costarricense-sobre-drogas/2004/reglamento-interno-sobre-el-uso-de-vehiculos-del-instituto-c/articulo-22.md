@@ -1,1 +1,4 @@
-Artículo 22.—Solicitud de cupones. Para la solicitud de cupones será necesario presentar ante Servicios Generales, la fórmula debidamente llena, por parte del encargado de la conducción del vehículo. No se otorgarán cupones de combustible solicitados hasta tanto no se hayan liquidado las facturas pendientes. La liquidación de cupones de combustible se hará de acuerdo a lo que establece el artículo 15 del presente reglamento.
+CAPÍTULO IV
+Utilización de servicios
+Artículo 22.—De las autorizaciones para conducir. Todo vehículo del Instituto deberá ser conducido por las personas autorizadas para ello y exclusivamente en el desempeño de sus labores. Si por cualquier circunstancia no se encuentre ninguna persona autorizada, el administrador de Servicios Generales podrá autorizar a cualquier funcionario del Instituto, quien tendrá las mismas obligaciones y responsabilidades.
+Podrán utilizar los vehículos aquellos funcionarios de otras instituciones que se encuentren en préstamo con el I.C.D., quienes tendrán las mismas obligaciones y responsabilidades.

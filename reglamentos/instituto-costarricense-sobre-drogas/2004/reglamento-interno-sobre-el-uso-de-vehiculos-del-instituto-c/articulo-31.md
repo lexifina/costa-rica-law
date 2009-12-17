@@ -1,6 +1,17 @@
-Artículo 31.—De los deberes y responsabilidades de los usuarios. Son deberes y responsabilidades de los usuarios:
-a. Conocer y cumplir las disposiciones establecidas en el correspondiente reglamento de transportes del Instituto Costarricense sobre Drogas.
-b. Utilizar los servicios de transporte, únicamente en aquellas funciones y actividades propias del cargo que ejerce y necesarias para el logro de los fines del Instituto.
-c. Solicitar el servicio de transporte con antelación al encargado de Servicios Generales.
-d. Portar durante la utilización del vehículo el carné del Instituto.
-e. Informar sobre cualquier irregularidad que se presente durante la utilización del servicio.
+CAPÍTULO VI
+De las prohibiciones y sanciones
+Artículo 31.—De las prohibiciones. Queda absolutamente prohibido:
+La operación de vehículos por parte de particulares o por funcionarios no autorizados.
+Que el responsable del vehículo permita a otra persona conducir sin causa justificada o la debida autorización, sin perjuicio de las sanciones disciplinarias que se puedan imponer.
+Ceder la conducción del vehículo a personas no autorizadas.
+Utilizar los automotores en actividades personales o ajenas a las labores del Instituto, o fuera del horario al que el vehículo está sujeto.
+Conducir bajo los efectos del licor u otras sustancias enervantes.
+Conducir a velocidades superiores que las permitidas por leyes o reglamentos.
+Transportar a particulares sin la debida autorización.
+Utilizar indebidamente los combustibles, herramientas y repuestos asignados al vehículo, así como hacer intercambio de los mismos, sin contar con la debida autorización del administrador de Servicios Generales.
+Irrespetar el horario de operación al que debe estar sujeto el vehículo.
+Hacer abandono del automotor sin causa justificada.
+Operar el vehículo sin la autorización respectiva.
+Mantener estacionado el vehículo en lugares donde exista peligro para su seguridad, accesorios, materiales o equipo que transporta.
+Causar alteraciones o daños a los vehículos.
+Sustraer cualquier tipo de herramienta, repuesto o accesorio del automotor, lo cual será considerado falta grave y se aplicará las normas del debido proceso.

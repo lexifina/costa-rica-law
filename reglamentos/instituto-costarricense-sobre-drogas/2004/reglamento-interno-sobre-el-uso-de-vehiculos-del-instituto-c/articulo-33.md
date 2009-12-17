@@ -1,5 +1,1 @@
-Artículo 33.—Del régimen disciplinario. Para la imposición del régimen disciplinario se deben evaluar los siguientes aspectos:
-a. El grado de dolo o culpa en la conducta constitutiva de la falta.
-b. El modo de participación sea como autor, cómplice o instigador.
-c. El grado de perturbación real en el funcionamiento normal de la prestación del servicio y su trascendencia para la Institución.
-d. Los daños y perjuicios ocasionados.
+Artículo 33.—Sanciones. Las infracciones a este Reglamento serán sancionadas de conformidad con lo establecido en el Estatuto del Servicio Civil y su Reglamento, la Ley General de la Administración Pública, la Ley de Tránsito, el Reglamento Interno de Organización y Servicio del Instituto Costarricense sobre Drogas y leyes concordantes, sin perjuicio de las otras leyes civiles y penales aplicables al infractor.

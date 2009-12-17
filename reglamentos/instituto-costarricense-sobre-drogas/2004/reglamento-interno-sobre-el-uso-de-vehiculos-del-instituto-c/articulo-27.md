@@ -1,1 +1,3 @@
-Artículo 27.—Coordinación del servicio de transporte. Para lograr un mayor aprovechamiento de las unidades disponibles y bajo los criterios de razonabilidad, oportunidad y economía, se deberá agrupar en un solo viaje varias solicitudes de transporte que se generen hacia un mismo sitio o rumbo, dando aviso oportuno a los interesados para lograr una adecuada coordinación del viaje.
+CAPÍTULO V
+Deberes y responsabilidades
+Artículo 27.—De los deberes y responsabilidades del superior jerárquico. Será responsabilidad de la Dirección General, así como de la Unidad Administrativa velar que el administrador de Servicios Generales cumpla con las normas de control interno necesarias, a efecto de garantizar un uso adecuado, racional y eficiente de los vehículos.

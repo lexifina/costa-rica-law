@@ -14,3 +14,4 @@ Reglamento interno sobre el uso de vehículos del Instituto Costarricense sobre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-05 | la propia norma |
+| 2 | 2009-12-17 | Reglamento 0 (2009-12-17) |

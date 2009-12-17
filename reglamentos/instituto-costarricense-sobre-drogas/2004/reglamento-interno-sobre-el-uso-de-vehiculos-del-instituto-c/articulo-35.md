@@ -1,11 +1,6 @@
-CAPITULO VII
-Procedimiento en caso de accidentes o infracciones
-a la Ley de Tránsito
-Artículo 35.—Obligaciones de los conductores. Los conductores que durante la circulación por vías públicas se vean involucrados en un accidente de tránsito, deberán seguir las siguientes instrucciones:
-a. Llamar y esperar al inspector de tránsito, con la finalidad de que se elabore la boleta de citación correspondiente; asimismo esperar las instrucciones del inspector del Instituto Nacional de Seguros, con el propósito de que se realice la inspección del accidente.
-b. Velar porque el vehículo permanezca en el lugar del accidente y guardar todas las medidas de seguridad que sean convenientes.
-c. Llamar y comunicar de inmediato el accidente al encargado de Servicios Generales y si no es posible, al día siguiente hábil de ocurrido el suceso.
-d. Preparar junto con el encargado de Servicios Generales el aviso de accidente para ser presentado al INS, dentro de los 5 días hábiles siguientes al percance.
-e. Declarar ante los tribunales de tránsito cuando sea necesario.
-f. Anotar el número de placa del vehículo con el cual colisionó, de ser posible el nombre, número de cédula; así como los testigos presenciales si los hubiera.
-g. Aportar al encargado de Servicios Generales las copias de las piezas judiciales que conforman la infracción de tránsito.
+Artículo 35.—Procedimiento. El administrador de Servicios Generales realizará una investigación con los datos e información que logre recabar del accidente o la infracción a la Ley de Tránsito en donde haya participado algún vehículo propiedad o en uso por el Instituto, dando plena participación y oportunidad de defensa al funcionario involucrado.
+El área de Servicios Generales deberá rendir un informe sobre los hechos a la Unidad Administrativa dentro de los 10 días hábiles siguientes al accidente o infracción, la cual sin más trámite trasladará por escrito el documento a la Dirección General.
+En caso de que la investigación previa llevada a cabo por el administrador de Servicios Generales determine el incumplimiento de alguna de las disposiciones establecidas en el presente Reglamento, la Dirección General ordenará el respectivo procedimiento administrativo con el fin de determinar la verdad real de los hechos investigados y su consecuente responsabilidad.
+En casos de accidentes de tránsito, corresponderá al Juzgado de Tránsito de la respectiva localidad, determinar las responsabilidades en que incurrió el funcionario del ICD. Una vez finalizado el respectivo proceso judicial, en caso de que se haya encontrado al funcionario del ICD responsable de los hechos investigados, la Dirección General procederá a ordenar la apertura del respectivo procedimiento cobratorio.
+La Dirección General tendrá 5 días hábiles para trasladar las piezas a la Unidad de Asesoría Legal para la apertura de un procedimiento administrativo en contra del funcionario, o podrá archivar el expediente en aquellos casos en que se trate de un hecho insignificante o un daño de escasa cuantía que no implique la afectación del interés público, y que se haya cumplido debidamente con las responsabilidades y obligaciones tipificadas en este Reglamento. En caso de archivo, el ICD deberá hacerse cargo de la reparación.
+Lo anterior, sin detrimento de la responsabilidad civil o penal en la sede correspondiente, así mismo se guiará por la normativa y los plazos que establece la Ley General de la Administración Pública para el caso concreto.

@@ -11,6 +11,9 @@ V.—Que conforme a la Directriz Nº 12 emitida en la Presidencia de la Repúbli
 VI.—Que mediante el acuerdo Nº 42-6-2004, tomado en la sesión ordinaria número 6, celebrada el lunes 19 de abril del año 2004, el Consejo Directivo del Instituto Costarricense sobre Drogas, aprobó el siguiente;
 “REGLAMENTO INTERNO SOBRE EL USO DE VEHÍCULOS
 DEL INSTITUTO COSTARRICENSE SOBRE DROGAS”
+(Nota de Sinalevi: Este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, mediante acuerdo número cero ochenta y nueve-cero seis-dos mil nueve y publicado en La Gaceta N° 245 del 17 de diciembre de 2009, por lo que se reproduce a continuación. Posteriormente mediante Fe de Erratas, publicada en La Gaceta N° 32 del 16 de febrero de 2010, se corrige la numeración de este reglamento, a partir de su numeral 23 al 39, de manera que pasan a ser respectivamente los artículos 22 al 38, para continuar correctamente con el numeral 39 “Inscripción de vehículos”)
+REGLAMENTO INTERNO SOBRE EL USO DE VEHÍCULOS
+DEL INSTITUTO COSTARRICENSE SOBRE DROGAS
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Del ámbito de aplicación del reglamento. El presente reglamento establece las condiciones generales y específicas que regulan el uso de vehículos, propiedad del Instituto Costarricense sobre Drogas o que se encuentren a su disposición.
+Artículo 1º—Del ámbito de aplicación del Reglamento. El presente Reglamento establece las condiciones generales y específicas que regulan el uso de vehículos, propiedad del Instituto Costarricense sobre Drogas o que se encuentren a su disposición.
