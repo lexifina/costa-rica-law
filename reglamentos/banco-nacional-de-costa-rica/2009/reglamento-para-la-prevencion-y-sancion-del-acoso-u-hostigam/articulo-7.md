@@ -1,0 +1,3 @@
+Artículo 7º—Orientación Profesional: Conforme a lo establecido en el presente reglamento, quien considere ser sujeto de hostigamiento o acoso sexual podrá solicitar a la Dirección de Recursos Humanos asesoría para aclarar y canalizar su situación.
+Para estos efectos, la Dirección de Recursos Humanos, previa valoración del caso, podrá designar el apoyo requerido para su atención, según lo estime conveniente. La persona o grupo de apoyo designado, estará bajo la tutela de la Dirección de Recursos Humanos.
+La Dirección de Recursos Humanos y a quien ésta designe, estará obligada a proporcionar información y asesoría en condiciones de absoluta confidencialidad.

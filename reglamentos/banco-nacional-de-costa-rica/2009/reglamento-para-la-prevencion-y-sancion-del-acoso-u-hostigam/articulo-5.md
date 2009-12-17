@@ -1,0 +1,7 @@
+Artículo 5º—Formas de Divulgación: Con el objeto de prevenir, desalentar, evitar y sancionar las conductas de acoso sexual, los mecanismos con que contará el Banco para la divulgación referida en el artículo anterior serán:
+1) Promover una sistemática y activa divulgación de la Ley entre el personal y distribuir toda clase de materiales informativos y educativos sobre el hostigamiento sexual.
+2) Informar a todo el personal sobre el procedimiento a seguir en caso de sufrir hostigamiento o acoso sexual.
+3) Desarrollar actividades como charlas, talleres, seminarios, conferencias y otras actividades capacitadoras tendientes a la sensibilización del personal en esta problemática y su prevención.
+4) Brindar asesoramiento a las víctimas, dándoles la orientación necesaria, así como la asistencia psicológica que se requiera, según lo que determine la Dirección de Recursos Humanos, quien tomará en cuenta la gravedad y complejidad de cada caso en particular. Para estos efectos la Dirección de Recursos Humanos podrá designar el profesional de apoyo o Grupo de apoyo que estime conveniente para la atención del caso.
+5) Publicar este reglamento en el medio oficial que la institución designe e informar a la organización mediante circulares, comunicados o cualquier otro mecanismo su vigencia, así como toda la normativa que al respecto se disponga.
+6) Cualquier otro mecanismo que se estime necesario para el cumplimiento de los fines de la Ley y el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 18.—Prescripción: Una vez realizada la notificación de la denuncia respectiva y hasta la resolución final del caso, se suspenderán los términos de prescripción para sancionar a las personas involucradas.

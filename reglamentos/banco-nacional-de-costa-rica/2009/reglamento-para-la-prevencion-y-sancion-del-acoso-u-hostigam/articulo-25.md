@@ -1,0 +1,1 @@
+Artículo 25.—Denuncia ante Tribunales de Trabajo: Una vez que se haya cerrado la investigación en la Institución, el denunciante o denunciado que no esté satisfecho con el resultado al que se llegue, puede presentar la denuncia correspondiente ante los Tribunales de Trabajo, dentro del término de prescripción que señala el título X, sección I del Código de Trabajo.

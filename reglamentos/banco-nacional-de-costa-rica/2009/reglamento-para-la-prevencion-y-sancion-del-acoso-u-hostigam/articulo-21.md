@@ -1,0 +1,7 @@
+Artículo 21.—Otras obligaciones: Fuera de las contenidas en otros artículos del presente reglamento, y las demás disposiciones legales aplicables, así como el contrato de trabajo, son obligaciones de los colaboradores:
+a) Guardar la consideración y respeto debidos a sus jefaturas, subalternos(as), compañeros(as), practicantes y público en general, de acuerdo con los principios éticos, morales y de buenas costumbres, en las relaciones de empleo y servicio.
+b) No emitir comentarios, expresiones o conductas hacia los mismos sujetos señalados en el inciso anterior, que resulten degradantes, abusivos, lesivos, o que afecten la moral y las buenas costumbres.
+c) Denunciar toda conducta, situación o hecho, que de acuerdo con las presentes disposiciones pueda ser considerado acoso u hostigamiento sexual.
+d) Cuando el encargado de llevar a cabo la investigación así lo requiera, el colaborador deberá rendir testimonio sobre los hechos que se investigan.
+e) No incurrir en actuaciones o prácticas, de contenido sexual, que pueda contribuir al deterioro de las condiciones de empleo, servicio, o que afecten el estado general de bienestar personal, y que constituyan incumplimiento de sus obligaciones laborales, derivadas de la Ley N° 7476 y el presente Reglamento.
+Ante una denuncia falsa o falso testimonio, además de lo establecido en los artículos 23,24 y 25 del presente reglamento, quien haya cometido en dichas conductas podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal.

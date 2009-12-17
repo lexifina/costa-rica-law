@@ -1,0 +1,6 @@
+Artículo 14.—Garantías Procedimentales. Medidas precautorias: En cualquier estado del procedimiento, hasta tanto no adquiera firmeza la resolución final o bien la declaratoria con lugar de las eventuales diligencias de despido, la Oficina de Relaciones Laborales, el Órgano Instructor, las Direcciones Corporativas, las Direcciones Regionales y/o el Supervisor Jerárquico del denunciado, podrán recomendar ante la Dirección de Recursos Humanos la adopción o revocación de las siguientes medidas cautelares:
+a. Suspensión provisional del denunciado(a) (s) con goce de salario.
+b. Traslado temporal del denunciado (a) (s) a otro departamento, siempre que no se cause grave perjuicio.
+c. Reubicación provisional del denunciado (a) (s) en otras dependencias del Banco para asumir funciones compatibles con sus condiciones personales y profesionales siempre que no se le cause grave perjuicio.
+d. Traslado de la presunta víctima o de algún testigo, previa solicitud suya o de sus representantes legales, cuando exista una relación de subordinación al respecto del denunciado (a) (s), o se presuma la continuación de las presuntas conductas de Hostigamiento Sexual, denunciadas por aquella.
+e. Traslado del o la denunciante a otro lugar del Banco, previa solicitud formal y por escrito de la misma o de sus representantes legales.
