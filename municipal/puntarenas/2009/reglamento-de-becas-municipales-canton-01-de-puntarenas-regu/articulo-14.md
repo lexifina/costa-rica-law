@@ -1,0 +1,1 @@
+Artículo 14.—Desembolsos: La Tesorería Municipal hará efectivo el beneficio con el acuerdo del Concejo, mediante depósito en la cuenta de ahorro que para tal efecto el beneficiario o beneficiaria deberá aportar.

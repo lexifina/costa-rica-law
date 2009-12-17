@@ -1,0 +1,1 @@
+Artículo 2º—El objeto: La razón de ser del presente reglamento es regular el otorgamiento de becas para estudio a los estudiantes residentes de los quince distritos que cuenten con instituciones educativas públicas del cantón 01 de Puntarenas considerando los criterios de: equidad, oportunidad y género.

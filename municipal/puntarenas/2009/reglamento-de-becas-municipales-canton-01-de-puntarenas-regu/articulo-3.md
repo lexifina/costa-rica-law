@@ -1,0 +1,1 @@
+Artículo 3º—Financiamiento: Las becas otorgadas serán financiadas del monto recaudado por la Municipalidad en los Puertos de los Cantones de Puntarenas y Esparza por cada tonelada de carga movilizada. Un 4% de dicho monto se asignará a becas.

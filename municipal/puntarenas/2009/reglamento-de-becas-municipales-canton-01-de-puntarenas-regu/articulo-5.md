@@ -1,0 +1,1 @@
+Artículo 5º—Sujetos y Sujetas de beneficio de Beca: Las becas serán otorgadas a los y las estudiantes residentes en el cantón 01 de Puntarenas que se encuentren cursando la Enseñanza General Básica y Diversificada (Primaria y Secundaria) y Enseñanza Superior del sistema educativo costarricense.

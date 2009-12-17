@@ -1,0 +1,2 @@
+Artículo 13.—Mecanismos de aprobación: Las solicitudes de beca serán recibidas, analizadas, aprobadas o denegadas por la Comisión de Becas nombrado por el Concejo Municipal, según lo establecido en este reglamento.
+Queda entendido que por el hecho de recibir la solicitud de beca la comisión municipal de becas y el Concejo Municipal no adquieren compromiso y obligación con el solicitante y que la aprobación del mismo queda sujeta de conformidad con los parámetros o requisitos establecidos en el presente reglamento.

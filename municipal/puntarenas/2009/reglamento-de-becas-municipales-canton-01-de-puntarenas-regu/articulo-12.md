@@ -1,0 +1,5 @@
+CAPÍTULO II
+Formalización, aprobación y desembolso
+Artículo 12.—Formalización: El período de recepción de las solicitudes se hará los días hábiles del mes de diciembre y hasta el quince de enero, los y las estudiantes interesados(as) solicitarán mediante la fórmula suministrada por la Municipalidad la beca correspondiente llenando en su totalidad la información requerida y presentando todos los requisitos que se les indiquen. En caso de menores de edad la solicitud debe también ser firmada por el padre/madre o encargado. No se tramitaran solicitudes incompletas, ni las presentadas fuera de los plazos establecidos, así como las presentadas en otro tipo de formulario. La gestión de cada solicitante se iniciará cuando se hayan presentado todos los requisitos y la documentación requerida contemplada en el presente reglamento, así como otros documentos adicionales que se hayan solicitado en procura de salvaguardar los intereses del municipio.
+La Comisión tendrá un plazo de quince días naturales para resolver y adjudicar las respectivas becas.
+La gestión de la solicitud de beca no necesariamente implica la aprobación de la misma.

@@ -1,0 +1,1 @@
+Artículo 4º—Modalidad: La municipalidad otorgará becas consistentes en dinero en forma mensual, durante el período lectivo por el que hayan sido aprobadas. El Concejo Municipal por acuerdo razonado determinará el monto asignado a cada beca según el nivel de estudio.
