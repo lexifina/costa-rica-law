@@ -1,0 +1,2 @@
+Artículo 12.—Inversiones en valores emitidos por emisores extranjeros. Toda inversión en valores emitidos por entidades extranjeras deberá cumplir con lo establecido en la Ley 7983, el Reglamento de Inversiones de las Entidades Reguladas, la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas, Ley Nº 8204.
+Las inversiones a realizar en el exterior se harán al amparo del Reglamento de Popular Pensiones para invertir en los Mercados Financieros Internacionales, aprobado por la Junta Directiva de la Operadora de Pensiones.
