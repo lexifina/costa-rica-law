@@ -1,0 +1,2 @@
+Articulo 2°.-Modifícase el artículo 2° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico para el año 2009, Ley No.8691, publicada en el Alcance No. 56 a La Gaceta No. 253 de 31 de diciembre de 2008, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por el tipo de formato y lo extenso de su contenido consultar La Gaceta N° 246 del 18 de diciembre de 2009)
