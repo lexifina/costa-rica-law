@@ -14,3 +14,4 @@ Lineamientos par al captación de recursos financieros mediante la emisión de t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-26 | la propia norma |
+| 2 | 2009-12-18 | Reglamento 96 (2009-12-18) |
