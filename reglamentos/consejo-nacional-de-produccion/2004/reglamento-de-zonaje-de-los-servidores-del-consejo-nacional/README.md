@@ -14,3 +14,4 @@ Reglamento de zonaje de los servidores del Consejo Nacional de Producción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-25 | la propia norma |
+| 2 | 2009-12-19 | Reglamento 2758 (2009-12-19) |
