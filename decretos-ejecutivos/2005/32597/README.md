@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio del Instituto Costarricense sob
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-16 | la propia norma |
+| 2 | 2009-12-21 | Decreto Ejecutivo 35733 (2009-12-21) |

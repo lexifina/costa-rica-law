@@ -1,1 +1,1 @@
-Artículo 5º—Nombramiento. Los funcionarios entrarán al servicio del ICD mediante nombramiento, de conformidad con el presente reglamento, por contrato a plazo .jo o por obra determinada, y por tiempo indeterminado con excepción de los nombramientos interinos. El ICD en el nombramiento de sus funcionarios debe garantizar igualdad de oportunidades a aquellas personas con alguna discapacidad.
+Artículo 5º—(Derogado por el artículo 68, del decreto ejecutivo N° 35733 del 21 de diciembre de 2009)
