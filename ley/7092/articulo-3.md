@@ -12,3 +12,5 @@ Además, los ingresos que se obtengan, así como su patrimonio, se destinarán e
 (Así reformado por el artículo 15 de la ley No. 7293 de 31 de marzo de 1992).
 h) Las personas micro, pequeñas y medianas productoras orgánicas registradas ante la oficina correspondiente del Ministerio de Agricultura y Ganadería, que durante un año hayan estado en transición para ser certificados como tales, por un período de diez años y mientras se mantengan las condiciones que dieron origen a la exoneración.
 (Así adicionado el inciso anterior por el artículo 35 de la ley Nº 8542 del 27 de setiembre del 2006. Posteriormente se volvió a adicionar con su texto reformado, mediante el artículo 35 de la ley N° 8591 del 28 de junio del 2007).
+i) Las juntas de educación y las juntas administrativas de las instituciones públicas de enseñanza
+(Así adicionado el inciso anterior por el artículo 2° de la Ley 8788 del 18 de noviembre del 2009).
