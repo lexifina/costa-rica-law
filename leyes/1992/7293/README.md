@@ -1,6 +1,6 @@
 # Ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones
 
-Ley N° 7293 del 1992-03-31. SINALEVI, ficha 32135: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32135&param2=73509&param3=1>.
+Ley N° 7293 del 1992-03-31. SINALEVI, ficha 32135: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32135&param2=79084&param3=1>.
 
 Publicada en La Gaceta N° 66 del 1992-04-03.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 9 | 2001-07-09 | Ley 8114 | 2001-07-04 |
 | 5 de 9 | 2005-05-23 | Ley 8444 | 2005-05-17 |
 | 6 de 9 | 2008-08-07 | Ley 8653 | 2008-07-22 |
+| 7 de 9 | 2009-12-22 | Ley 8788 | 2009-11-18 |
