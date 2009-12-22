@@ -1,0 +1,2 @@
+Artículo 4º—Rige a partir de su publicación.
+Dado en la Presidencia de la República, el día dieciocho de diciembre del dos mil nueve.
