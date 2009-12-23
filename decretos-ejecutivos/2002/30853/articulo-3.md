@@ -1,1 +1,0 @@
-Artículo 3º—Con la observancia de los procedimientos previstos en los Reglamentos vigentes, los sectores procederán a integrar sus delegaciones, correspondiéndole a la Comisión de Integración, la verificación de lo actuado en su condición coordinadora general del proceso.

@@ -1,1 +1,0 @@
-Artículo 4º—Para el cumplimiento de los fines de la Comisión de Integración, el Banco Popular y de Desarrollo Comunal, estará obligado a brindar toda la asistencia que esta requiera, para garantizar la transparencia del proceso. Dicha Comisión podrá solicitar asistencia para los procedimientos electorales del Tribunal Supremo de Elecciones.

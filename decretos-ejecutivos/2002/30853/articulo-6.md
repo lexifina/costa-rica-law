@@ -1,1 +1,0 @@
-Artículo 6º—La Comisión procederá a publicar en el Diario Oficial La Gaceta, la integración de la Asamblea de los Trabajadores dentro de los quince días naturales posteriores al vencimiento del término de conformación de las delegaciones.

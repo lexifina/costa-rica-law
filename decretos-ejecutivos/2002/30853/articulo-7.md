@@ -1,1 +1,0 @@
-Artículo 7º—Concluido el término establecido en el artículo anterior, el Presidente en ejercicio, convocará a la Asamblea de los Trabajadores, para que se reúna dentro del mes siguiente a la publicación dispuesta, con el fin exclusivo de que ésta elija su Directorio definitivo y a los cuatro miembros que integrarán la Asamblea de los Trabajadores para el período 2002-2006.

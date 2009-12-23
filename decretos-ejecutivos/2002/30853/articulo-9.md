@@ -1,1 +1,0 @@
-Artículo 9º—Este Decreto deroga el Reglamento emitido mediante decreto número 30471 del 23 de mayo del 2002, en cuanto a las disposiciones que se le opongan y sin perjuicio de lo que dispone el artículo 8º de este decreto.
