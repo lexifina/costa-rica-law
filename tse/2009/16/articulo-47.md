@@ -1,0 +1,1 @@
+Artículo 47.—Recibido conforme de un bien mueble reparado. Una vez reparado el bien mueble, la Proveeduría lo entregará a la jefatura de la unidad administrativa correspondiente, quien firmará el formulario de reporte de activo en mal estado dando por recibido el bien mueble reparado.

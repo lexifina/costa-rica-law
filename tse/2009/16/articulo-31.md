@@ -1,0 +1,1 @@
+Artículo 31.—Baja de bienes muebles por venta, remate, permuta o dación en pago. La venta, remate, permuta o dación en pago de bienes muebles se sujetará al trámite establecido en la Ley de Contratación Administrativa y su Reglamento y, una vez concluido, la Proveeduría aplicará la baja en el sistema informático de bienes.

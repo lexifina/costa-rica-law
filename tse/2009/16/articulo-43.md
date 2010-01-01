@@ -1,0 +1,3 @@
+CAPÍTULO X
+Ingreso de bienes muebles de dominio personal del funcionario
+Artículo 43.—Ingreso de bienes muebles personales. Aquellos equipos, mobiliario, obras de arte, maquinaria, herramientas y otros de condiciones similares propiedad de los funcionarios, que ingresen o se encuentren en las instalaciones del Tribunal, deben reportarse a la Oficina de Seguridad Integral y contar con la aprobación de la jefatura correspondiente. Su egreso de la Institución se concretará mediante nota visada por la jefatura inmediata dirigida a la Oficina de Seguridad Integral. El Tribunal, en estos casos, no asumirá responsabilidad alguna frente a los propietarios por la pérdida, hurto, daños, deterioro u otras circunstancias que puedan afectar esos bienes.
