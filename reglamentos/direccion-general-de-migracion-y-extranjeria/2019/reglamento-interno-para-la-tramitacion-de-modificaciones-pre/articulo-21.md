@@ -1,0 +1,1 @@
+Artículo 21.—El encargado de la Unidad Administrativa solicitará a Planificación Institucional, indique mediante oficio si la modificación presupuestaria pretendida afecta o no los objetivos o metas establecidas en el Plan Anual Operativo.

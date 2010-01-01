@@ -1,0 +1,1 @@
+Artículo 11.—Cada solicitud de modificación presupuestaria debe presentar los cuadros al mismo nivel de detalle en que fue aprobado el presupuesto ordinario y deben ser presentados oportunamente para poder trámite a las modificaciones presupuestarias.

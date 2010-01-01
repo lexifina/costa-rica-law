@@ -1,0 +1,1 @@
+Artículo 12.—Todas las modificaciones deben sujetarse a las disposiciones de política presupuestaria establecida por la Contraloría General de la República, conforme a lo establecido por esta Entidad en las directrices emitidas cada año.

@@ -1,0 +1,1 @@
+Artículo 20.—El encargado de la Unidad Administrativa mediante oficio solicitará a la Gestión de Recursos Financieros que le certifique los saldos correspondientes, indicando las sumas que estén comprometidas por licitaciones o contratos, así como de los recursos con fines específicos o comprometidos por leyes.

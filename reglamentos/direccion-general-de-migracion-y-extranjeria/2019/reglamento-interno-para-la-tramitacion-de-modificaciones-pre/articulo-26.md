@@ -1,0 +1,1 @@
+Artículo 26.—Para asegurar que las modificaciones presupuestarias se ajustan a lo establecido en este Reglamento y a la normativa que rige la materia, corresponderá a la Gestión de Recursos Financieros, Subproceso de Presupuesto la responsabilidad y custodia del expediente de cada modificación presupuestaria.

@@ -1,0 +1,1 @@
+Artículo 24.—La Gestión de Recursos Financieros deberá digitar en el Sistema de Información sobre Presupuestos Públicos SIPP toda modificación que se apruebe, a más tardar cinco días hábiles contados a partir de su aprobación por parte de la Junta Administrativa o el Director General y ser validados dentro de los tres días siguientes a su registro

@@ -1,0 +1,1 @@
+Artículo 25.—Le corresponderá a Planificación Institucional una evaluación o revisión de los mecanismos y procedimientos empleados en la formulación y aprobación presupuestaria interna de las modificaciones presupuestarias con el propósito de establecer, mantener y perfeccionar el proceso, dejando evidencia de esto en el expediente respectivo.

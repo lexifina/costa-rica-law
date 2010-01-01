@@ -1,0 +1,2 @@
+Artículo 27.—El incumplimiento de lo establecido en éste Reglamento, dará lugar a la aplicación de las responsabilidades que establece la Ley de la Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno, La Ley Contra la Corrupción y el Enriquecimiento Ilícito y las demás disposiciones concordantes.
+Este Reglamento rige a partir del 1 de enero de 2010.
