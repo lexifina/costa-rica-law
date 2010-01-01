@@ -1,0 +1,1 @@
+7. Las tarifas establecidas estarán sujetas a revisión y ajuste cuando ello fuere procedente, por parte del INCOPESCA. Las licencias que no sean pagadas en el periodo correspondiente, deberán ser canceladas con la tarifa vigente al momento de realizar el trámite ante la institución.

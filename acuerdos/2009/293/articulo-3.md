@@ -1,0 +1,1 @@
+3. Para las inspecciones la tarifa ordinaria corresponde a las realizadas dentro del horario ordinario de trabajo del Instituto, sea de las 8:00 a. m a las 4:00 p. m. La tarifa extraordinaria corresponde a las inspecciones realizadas de 4:01 p. m a 7:59 a. m. así como las efectuadas en días feriados, sábados, domingos o asuetos.
