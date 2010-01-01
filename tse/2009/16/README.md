@@ -14,3 +14,4 @@ Reglamento de Administración de Bienes Muebles del Tribunal Supremo de Eleccion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
+| 2 | 2010-01-01 | Decreto TSE 21 (2009-11-05) |

@@ -11,6 +11,8 @@ Inventario general: lista ordenada de bienes muebles que contiene, como mínimo,
 Jefatura: titular subordinado a cargo de una unidad administrativa.
 Proveeduría: unidad administrativa que tramita y efectúa las compras de bienes muebles que sean necesarios para el Tribunal, vigila y fiscaliza la administración de los bienes muebles confiados a las jefaturas y usuarios y lleva su inventario completo. Lo anterior de conformidad con lo que establece la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil.
 Traslado de bienes muebles: es el traspaso puro y simple o por reasignación de bienes, que implica cambiar provisional o definitivamente de lugar y custodia los bienes de las unidades administrativas, sin que se modifique cuantitativamente o cualitativamente el patrimonio institucional. Los bienes trasladados mantienen el mismo número de identificación.
-Tribunal o la Institución: Tribunal Supremo de Elecciones y Registro Civil.
+Tribunal o la Institución: Tribunal Supremo de Elecciones y todas sus dependencias.
+(Así reformado el concepto anterior por el artículo 2° del decreto del Tribunal Supremo de Elecciones N° 21 del 5 de noviembre de 2009)
 Unidad Administrativa: órgano del Tribunal Supremo de Elecciones a cargo de una jefatura, responsable de la administración de los bienes muebles que conforman el inventario de la Unidad.
-Usuario(a): funcionario(a) del Tribunal que recibe de su jefatura un bien mueble para la ejecución de tareas específicas.
+Usuario(a): Funcionario(a) del Tribunal que recibe un bien mueble para el desempeño de sus funciones.
+(Así reformado el concepto anterior por el artículo 2° del decreto del Tribunal Supremo de Elecciones N° 21 del 5 de noviembre de 2009)
