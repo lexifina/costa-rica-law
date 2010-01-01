@@ -1,0 +1,1 @@
+Artículo 2º—Se exceptúa de este incentivo al puesto de Secretario 2 de la Oficina de Seguridad Integral o cualquier otro que integre dicha dependencia, que ejerza una función exclusivamente administrativa.
