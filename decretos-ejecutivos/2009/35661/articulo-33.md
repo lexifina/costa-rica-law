@@ -1,0 +1,1 @@
+Artículo 33.—A las sesiones de Asamblea General podrán asistir sin derecho a voz ni voto los miembros temporales y honorarios. Asimismo pueden estar presentes los funcionarios del Colegio que fungen como auxiliares de la Junta Directiva. El derecho a voz y voto lo ejercerán únicamente los miembros activos que se encuentren al día.

@@ -1,0 +1,1 @@
+Artículo 18.—La Junta Directiva ordenará la publicación en el Diario Oficial La Gaceta de la lista de colegiados suspendidos al menos cada seis meses . También podrá hacerla de conocimiento público por otros medios, tales como: escritos, radiales, televisivos o de difusión electrónica.

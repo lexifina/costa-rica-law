@@ -1,0 +1,1 @@
+Artículo 47.—La Junta Directiva conocerá el informe que le remita el Tribunal de Ética Profesional, en la sesión siguiente al recibo de éste. La Junta Directiva podrá solicitar la ampliación del informe para lo cual el Tribunal de Ética Profesional contará con un plazo no mayor de treinta días naturales para completarlo.

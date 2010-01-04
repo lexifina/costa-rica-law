@@ -1,0 +1,1 @@
+Artículo 7 bis.—En materia de ejercicio profesional el recurso de revocatoria en contra de las resoluciones de la Junta Directiva relativas a los incumplimientos de los principios de ética profesional, y el de apelación en contra de estas mismas de conformidad con el artículo 33 de la Ley Orgánica, se presentará en un plazo de diez días hábiles siguientes a la notificación.

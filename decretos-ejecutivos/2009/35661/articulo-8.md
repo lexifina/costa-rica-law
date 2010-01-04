@@ -1,0 +1,1 @@
+Artículo 8º—Las normas de administración financiera del Colegio, incluidas las de contrataciones, la forma de pago de cuotas y los mecanismos de gestión de cobro serán incorporadas en el Reglamento Administrativo.

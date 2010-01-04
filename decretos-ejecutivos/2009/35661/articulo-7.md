@@ -1,0 +1,1 @@
+Artículo 7º—Los recursos de revocatoria y de apelación contra los actos administrativos de los órganos del Colegio, deberán presentarse por escrito en un plazo de tres días hábiles a partir de la notificación del acto, ante el órgano correspondiente, todo de conformidad con la Ley General de Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 15.—La Junta Directiva conocerá cada mes la lista de los colegiados que incurran en un atraso igual o superior a seis meses en el pago de las cuotas ordinarias. Los colegiados que aparezcan en esa lista serán suspendidos por acuerdo de Junta Directiva. Es responsabilidad del Colegio mantener actualizada la lista de colegiados suspendidos.

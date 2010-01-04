@@ -1,0 +1,1 @@
+Artículo 12.—En caso que el colegiado que se encuentre separado del Colegio por retiro y solicite su reincorporación, deberá solicitarlo por escrito a la Junta Directiva, actualizando su expediente personal y cumpliendo todos los requisitos administrativos establecidos por el Colegio en el procedimiento correspondiente.

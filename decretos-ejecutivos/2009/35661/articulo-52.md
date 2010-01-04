@@ -1,0 +1,1 @@
+Artículo 52.—Anualmente la Junta Directiva revisará los montos de afiliación y cuotas ordinarias y planteará los ajustes necesarios que con base a los estudios de costos a la fecha de revisión, sean requeridos, lo que será sometido a la Asamblea General para su aprobación.

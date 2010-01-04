@@ -1,0 +1,1 @@
+Artículo 26.—El Colegio resolverá toda solicitud de inscripción dentro del plazo de un mes, una vez que las solicitudes cumplan con los requisitos establecidos. Para ello el interesado previamente deberá cumplir con las exigencias del curso-taller de Ética Profesional y de juramentación ante el Colegio.

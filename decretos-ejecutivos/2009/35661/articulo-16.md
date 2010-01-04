@@ -1,0 +1,2 @@
+Artículo 16.—El miembro suspendido por falta de pago de sus cuotas ordinarias, perderá su calidad o condición de colegiado. Dicha suspensión no inhibe los deberes de pago de cuotas.
+Para recuperar la condición normal, se deberá cancelar la totalidad de las cuotas pendientes, más un 20% de multa, de conformidad con el artículo 11 de la Ley Orgánica. El levantamiento de la suspensión será aprobado por la Junta Directiva.

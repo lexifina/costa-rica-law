@@ -1,0 +1,1 @@
+Artículo 17.—La Junta Directiva cuando lo considere necesario, ordenará la publicación en el Diario Oficial “La Gaceta” de la lista de los colegiados indicando el estado en que se encuentran con respecto al Colegio.

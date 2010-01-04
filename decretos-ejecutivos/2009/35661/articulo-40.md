@@ -1,0 +1,1 @@
+Artículo 40.—El Tribunal Electoral estará formado por cinco miembros que durarán en sus cargos dos años y podrán ser reelectos por una sola vez en forma consecutiva. Estos miembros deberán tener por lo menos cinco años de estar incorporados al Colegio. El Tribunal Electoral nombrará en su seno a un Presidente, un Secretario, un Tesorero y dos Vocales en su primera sesión.
