@@ -14,3 +14,4 @@ Reforma Régimen tarifario para servicios no aeronáuticos en el Aeropuerto Inte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-29 | la propia norma |
+| 2 | 2010-01-04 | Decreto Ejecutivo 35754 (2010-01-04) |
