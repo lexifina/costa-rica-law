@@ -14,3 +14,4 @@ Procedimientos Aceptación Certificados Productos Aeronáuticos (RAC 21)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-18 | la propia norma |
+| 2 | 2010-01-04 | Decreto Ejecutivo 35806 (2010-01-04) |
