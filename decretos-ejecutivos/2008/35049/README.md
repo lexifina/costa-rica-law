@@ -14,3 +14,4 @@ Reglamento para la Afiliación Voluntaria, Renovación y Retiro de Comerciantes 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-19 | la propia norma |
+| 2 | 2010-01-04 | Decreto Ejecutivo 35682 (2010-01-04) |
