@@ -15,3 +15,4 @@ Régimen Tarifario para Servicios no Aeronaúticos en el Aeropuerto Internaciona
 | --- | --- | --- |
 | 1 | 2005-03-08 | la propia norma |
 | 2 | 2005-10-31 | Decreto Ejecutivo 32763 (2005-10-31) |
+| 3 | 2010-01-04 | Decreto Ejecutivo 35754 (2010-01-04) |
