@@ -1,0 +1,1 @@
+Artículo 22.—Estrategia de Defensa. El/la profesional responsable valorará y elaborará la estrategia de defensa idónea para cada caso, tomando en cuenta la pretensión del/la habitante y el riesgo de daño, según corresponda. Una vez valorada la estrategia para abordar el caso, deberá realizar las gestiones que correspondan en un plazo no mayor de tres días hábiles.

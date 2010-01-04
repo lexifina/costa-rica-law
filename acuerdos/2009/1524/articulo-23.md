@@ -1,0 +1,2 @@
+Artículo 23.—Reporte de Gestión Sumaria de Defensa. Si para la atención de una Forma de Intervención se requiere realizar una inspección, reunión con las partes, visita a una comunidad u otras gestiones, se deberá elaborar una minuta, reporte o acta, según sea el caso, de los resultados de la misma se dejará constancia en el expediente.
+En el caso de las actas deberán reunir los requisitos establecidos en el artículo 270 de la Ley General de Administración Pública.

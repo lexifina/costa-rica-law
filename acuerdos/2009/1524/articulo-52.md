@@ -1,0 +1,1 @@
+Artículo 52.—Deber de dar traslado ante hechos nuevos. Cuando del recurso de reconsideración se deriven hechos nuevos o circunstancias que no fueron consideradas o conocidas durante la investigación se dará traslado de lo alegado en el recurso a las partes involucradas para que se refieran según corresponda.

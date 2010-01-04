@@ -1,0 +1,1 @@
+Artículo 53.—Consulta a la Dirección Jurídica. Cuando el recurso de reconsideración verse sobre la aplicación de normas jurídicas y su alcance, podrá ser consultado a la Dirección de Asuntos Jurídicos, la cual deberá externar su criterio en un término de ocho días hábiles.

@@ -1,0 +1,2 @@
+Artículo 76.—Coordinación y plazos de respuesta. La necesidad y pertinencia de plantear acciones judiciales podrá ser valorada por las Direcciones de Defensa, la Dirección Jurídica o el/la Jerarca de la Institución. La elaboración de la demanda, acción o recurso corresponderá a la Dirección de Defensa conjuntamente con la Dirección Jurídica y su aprobación y firma al/la Defensor/ de la Institución.
+Cada parte interviniente dispondrá de no menos de un tercio del plazo concedido en la audiencia judicial para realizar lo que le corresponde.

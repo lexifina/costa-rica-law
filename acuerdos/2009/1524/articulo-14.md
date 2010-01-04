@@ -1,0 +1,1 @@
+Artículo 14.—No interrupción de plazos. Cuando para la restitución del derecho se requiera de un procedimiento administrativo o judicial con plazos perentorios, se le indicará a la persona interesada que debe iniciar el procedimiento en sede administrativa y/o judicial, para evitar el vencimiento de éstos.

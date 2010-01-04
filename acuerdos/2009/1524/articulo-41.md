@@ -1,0 +1,1 @@
+Artículo 41.—Borrador Informe Final. Una vez que el o la profesional de defensa obtenga la información necesaria para dilucidar el asunto sometido a su consideración, procederá a analizarla y a elaborar un borrador del informe final.

@@ -1,0 +1,1 @@
+Artículo 30.—De la Atención Inmediata. Cuando de la Solicitud de Intervención se infiera que de no actuarse de inmediato el daño sería irreversible, o dada su inminencia -aunque no sea grave- se requiera de la presencia inmediata de la Defensoría por razones de oportunidad, será calificada como de “atención inmediata”.

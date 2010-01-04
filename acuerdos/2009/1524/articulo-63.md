@@ -1,0 +1,1 @@
+Artículo 63.—Incumplimiento de las recomendaciones. En caso de incumplimiento injustificado de las recomendaciones, la Dirección a cargo del caso lo pondrá en conocimiento de la Dirección de Asuntos Jurídicos para valorar en conjunto el trámite administrativo o judicial que corresponda.

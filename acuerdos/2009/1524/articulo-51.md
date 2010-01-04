@@ -1,0 +1,3 @@
+Artículo 51.—Trámite inicial del recurso. Los recursos de reconsideración ingresarán a la Dirección que emitió el acto final, la cual determinará si la gestión fue interpuesta dentro del plazo establecido por ley.
+El/la Director/a de Admisibilidad, el/la director/a de Oficinas Regionales o el/la director/a de Defensa según sea el caso, asignará el análisis y propuesta de resolución del recurso de reconsideración a un o una profesional distinto al que tuvo a su cargo el asunto.
+El o la Profesional que conozca del recurso deberá informar del mismo a todas las partes involucradas en la reconsideración.

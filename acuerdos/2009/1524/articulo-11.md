@@ -1,0 +1,2 @@
+Artículo 11.—De la resolución de admisibilidad. La resolución de admisibilidad debe: describir los hechos denunciados, las gestiones previas realizadas por el/la habitante, la pretensión concreta, la fundamentación y el alcance de la intervención de la Defensoría.
+En caso de que algunos de los hechos denunciados no sean de conocimiento de la Defensoría deberá orientarse al/la habitante sobre las vías oportunas para reclamar sus derechos.

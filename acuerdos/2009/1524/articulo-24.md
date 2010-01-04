@@ -1,0 +1,1 @@
+Artículo 24.—Inspecciones. La necesidad y conveniencia de realizar inspecciones debe ser determinada en cada caso específico por la Dirección de Defensa o la Oficina Regional a cargo de la Forma de Intervención. Para estos efectos y de ser necesario se coordinará con las Oficinas Regionales.

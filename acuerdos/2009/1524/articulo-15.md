@@ -1,0 +1,1 @@
+Artículo 15.—Omisión de respuesta. Cuando la Solicitud de Intervención verse sobre la omisión de respuesta por parte de un Órgano o Ente del Sector Público, será tramitada de acuerdo con la pretensión del (la) habitante. De advertirse un problema de fondo se le hará saber al habitante, para que decida si le interesa que sea incluido en la investigación de su queja.

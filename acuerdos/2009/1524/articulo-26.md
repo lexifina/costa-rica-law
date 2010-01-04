@@ -1,0 +1,1 @@
+Artículo 26.—Coordinación entre las Direcciones de Defensa y la Dirección de Oficinas Regionales. En caso de que ser requerido, tanto las Direcciones de Defensa como las Oficinas Regionales, podrán solicitar la colaboración mutua para la mejor resolución de los asuntos bajo su conocimiento, a través de la Dirección de Oficinas Regionales.

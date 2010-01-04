@@ -1,0 +1,1 @@
+Artículo 6º—Recepción, registro y valoración en las Direcciones de Defensa. Las Direcciones de Defensa que reciban Solicitudes de Intervención, en temas de su competencia, podrán recibirlas, registrarlas, numerarlas, valorarlas y declarar su admisibilidad. Cuando no sean de su competencia, las trasladarán a la Dirección de Admisibilidad para el trámite respectivo.

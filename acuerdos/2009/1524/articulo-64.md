@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del seguimiento a las denuncias por hostigamiento sexual
+Artículo 64.—Registro y confidencialidad de las denuncias. Cuando la institución pública remite la apertura de un procedimiento disciplinario administrativo por hostigamiento sexual, la Defensoría de la Mujer registrará esta notificación y procederá a realizar la apertura de la solicitud de intervención con el fin de proporcionarle seguimiento a la denuncia. De igual forma se procede si la persona denunciante, luego de interpuesta su denuncia ante la entidad correspondiente, se presenta a la Defensoría para solicitar su intervención. Se debe resguardar la confidencialidad de las partes a través de todo el proceso.

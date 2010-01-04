@@ -1,0 +1,1 @@
+Artículo 37.—Recordatorios y otras gestiones. De no recibirse respuesta en el plazo señalado, la Defensoría de los Habitantes podrá realizar gestiones conducentes a la remisión del informe tales como: recordatorios, inspecciones en las oficinas públicas, gestiones telefónicas u otras gestiones.

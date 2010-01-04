@@ -1,0 +1,2 @@
+Artículo 43.—Revisión y aprobación de Informe Final. Los informes finales serán revisados por la Dirección de Defensa respectiva. La aprobación definitiva y firma del informe final con recomendaciones corresponderá al o la Defensor/a de los Habitantes o el/la Defensor/a Adjunto/a por delegación del primero.
+En aquellos casos en que la pretensión del/la habitante sea resuelta satisfactoriamente se emitirá un informe final que podrá ser firmado por el/la Directora de Defensa, si así lo delegare el/la Jerarca.

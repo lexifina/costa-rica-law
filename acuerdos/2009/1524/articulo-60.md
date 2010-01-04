@@ -1,0 +1,2 @@
+Artículo 60.—Estrategia de seguimiento. Las acciones de seguimiento responderán a la naturaleza y particularidades del caso en concreto, con base en la cual cada profesional diseñará una estrategia para cada caso.
+Semestralmente el o la profesional de defensa en coordinación con el o la Directora respectiva, analizará el grado de cumplimiento de las recomendaciones para ajustar la estrategia de seguimiento a las metas planteadas en los planes anuales de trabajo de la Institución.

@@ -1,0 +1,2 @@
+Artículo 34.—Del cierre por Gestiones Sumarísimas de Defensa. En el caso de que una Solicitud de Intervención se resuelva mediante este tipo de gestiones, el/la profesional a cargo de la Solicitud procederá a elaborar un informe de cierre.
+Cuando el asunto haya sido resuelto de manera rápida y ha satisfacción del/la habitante, las gestiones realizadas se consignarán en un cierre en el Sistema Electrónico de Defensa Institucional, prescindiéndose del informe de cierre

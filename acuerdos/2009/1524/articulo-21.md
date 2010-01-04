@@ -1,0 +1,1 @@
+Artículo 21.—Plazo de asignación de la Forma de Intervención. El/la Directora de Defensa o el/la Coordinadora Regional asignará y recomendará la Forma de Intervención a el/la profesional en un plazo no mayor de dos días hábiles.

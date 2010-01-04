@@ -1,0 +1,5 @@
+Artículo 10.—Criterios de trámite. De la evaluación de una Solicitud de Intervención se derivan cuatro posibilidades de trámite a seguir:
+a) Si la Solicitud de Intervención es declarada admisible, se remite a la Dirección de Defensa o el órgano correspondiente de acuerdo con la tipología institucional; esta gestión debe serle notificada a la persona interesada.
+b) Si la Solicitud de Intervención corresponde a una situación de riesgo o de violación inminente de derechos, se actuará conforme a lo establecido en el presente manual, respecto al procedimiento de Atención Inmediata.
+c) Si la Solicitud de Intervención es omisa en cuanto a documentos probatorios o gestiones necesarias para valorar su admisión, se solicitará información adicional al o la habitante que deberá presentar en un plazo máximo de 8 días hábiles a partir de la notificación efectiva.
+d) Si la Solicitud de Intervención es inadmisible, se emitirá resolución fundada que así lo declare. En el mismo acto, se orientará al o la habitante sobre los procedimientos a seguir para la posible solución de su pretensión.
