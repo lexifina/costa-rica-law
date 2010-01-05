@@ -14,3 +14,4 @@ Reglamento de Construcciones dentro de la Jurisdicción de la Municipalidad del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-06 | la propia norma |
+| 2 | 2010-01-05 | Reglamento municipal 0 (2010-01-05) |
