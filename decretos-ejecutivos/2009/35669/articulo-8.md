@@ -1,0 +1,1 @@
+Artículo 8º—De las funciones de las dependencias adscritas al Despacho del Ministro. El control y dirección de ellas corresponderá al Ministro, salvo delegación expresa del superior jerarca a favor del Viceministro de su especialidad, de conformidad con lo regulado en la Ley General de la Administración Pública.

@@ -1,0 +1,19 @@
+Nº 35669-MINAET
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE, ENERGÍA
+Y TELECOMUNICACIONES
+En ejercicio de las facultades que les confieren los artículos 140, inciso 3) y 18) y 146 de la Constitución Política y de conformidad con lo dispuesto en la Ley General de la Administración Pública Nº 6227, del 2 de mayo del 1978, Ley de Planificación Nacional Nº 5525 del 2 de mayo del 1974, Ley Orgánica del Ministerio de Ambiente, Energía y Telecomunicaciones, Nº 7152 del 5 de junio de 1990, Ley Forestal Nº 7575 de 13 de febrero de 1996, Ley del Servicio de Parques Nacionales, Nº 6084 del 24 de agosto de 1977, Ley de Conservación de la Vida Silvestre, Nº 7317 del 30 de octubre de 1992, Ley de Hidrocarburos Nº 7399 de 3 de mayo de 1994, Ley de Creación del Instituto Meteorológico Nacional, Ley Nº 5222 del 26 de junio de 1973, Código de Minería Nº 6797 del 4 de octubre de 1982, Ley de Creación del Parque Marino del Pacifico, Nº 8065 del 27 de enero del 2001, Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995, Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, Ley de Regulación del Uso Racional de la Energía, No. 7447 del 3 noviembre de 1994, Ley de la Autoridad Reguladora de los Servicios Públicos Nº 7593 del 9 de agosto de 1996, Ley de Administración Financiera de la República y Presupuestos Públicos, Nº 8131 del 18 de setiembre del 2001, Ley de Reforma del inciso a) del artículo 3 de la Ley N° 5100, y sus reformas, y Creación de la Junta Directiva del Parque Recreativo Nacional Playas de Manuel Antonio, Nº 8133 del 19 de setiembre del 2001, Ley General de Control Interno Nº 8292, del 31 de julio del 2002, Ley Orgánica de la Contraloría General de la República, Nº 7428 del 7 de setiembre de 1994, Ley General de Telecomunicaciones Nº 8642, del 4 de junio de 2008, Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Ley Nº 8660 del 8 de agosto de 2008, y el Decreto Ejecutivo Nº 34997-MINAET, del 16 de enero de 2009.
+Considerando:
+I.—Que corresponde al Poder Ejecutivo reglamentar las leyes de la República.
+II.—Que el Poder Ejecutivo entiende que la estructura orgánica del Ministerio de Ambiente, Energía y Telecomunicaciones, en lo sucesivo (MINAET), es de gran relevancia para su eficiente y eficaz gestión administrativa.
+III.—Que el MINAET, y los órganos de desconcentración máxima que lo integran, cuentan con un marco legal sustentado por medio de leyes y decretos ejecutivos.
+IV.—Que el presente reglamento es acorde con el documento “Lineamientos y Macroproceso de Reorganizaciones Administrativas”, oficializado por el MIDEPLAN el día 2 de diciembre de 2008.
+V.—Que en cumplimiento de los Lineamientos y Macroproceso de Reorganizaciones Administrativas del Ministerio de Planificación y Política Económica, mediante DM-1897-2009, fue remitido a dicho Ministerio el Estudio Técnico de la nueva estructura del MINAET.
+VI.—Que mediante oficio DM-843-09, del 30 de noviembre de 2009, suscrito por el señor Roberto J. Gallardo Núñez, Ministro de Planificación Nacional y Política Económica, se procedió a registrar la modificación a la estructura interna del Ministerio de Ambiente, Energía y Telecomunicaciones, de acuerdo con las disposiciones normativas: Leyes Nº 5525, Nº 7668, Decretos Nº 33713 y Nº 33783 y la Directriz 021. Por tanto,
+Decretan:
+Reglamento Orgánico del Ministerio de Ambiente,
+Energía y Telecomunicaciones
+TÍTULO I
+CAPÍTULO ÚNICO
+Disposiciones generales
+Artículo 1º—Del objeto. El presente reglamento tiene por objeto describir la estructura del Ministerio de Ambiente, Energía y Telecomunicaciones, y determinar las relaciones administrativas de los órganos que lo conforman para el cumplimiento de las funciones y competencias asignadas por las leyes y los reglamentos ejecutivos vigentes.

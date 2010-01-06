@@ -1,0 +1,1 @@
+Artículo 52.—De la organización del Viceministerio de Telecomunicaciones. Refiérase al Reglamento de Organización del Viceministerio de Telecomunicaciones, Decreto Ejecutivo Nº 34997-MINAET, del 16 de enero de 2009.

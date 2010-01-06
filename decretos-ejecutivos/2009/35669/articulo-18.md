@@ -1,0 +1,1 @@
+Artículo 18.—De la Dirección de Tecnología de la Información. Créase la Dirección de Tecnología de la Información, teniendo a su cargo cuatro dependencias, Departamento de Telemática y Soporte Técnico, Departamento de Sistemas de Información, Centro de Documentación y Centro Nacional de Información Geoambiental.

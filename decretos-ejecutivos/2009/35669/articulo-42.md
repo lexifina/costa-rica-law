@@ -1,0 +1,1 @@
+Artículo 42.—De la estructura y funciones del Instituto Meteorológico Nacional. Refiérase a la Ley de Creación del Instituto Meteorológico Nacional Nº 5222 del 26 de junio de 1973, y a la Ley Orgánica del Ministerio del Ambiente, Energía y Telecomunicaciones, Nº 7152 del 5 de junio de 1990.

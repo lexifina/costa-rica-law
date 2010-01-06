@@ -1,0 +1,1 @@
+Artículo 26.—De la Dirección de Geología y Minas. Refiérase al Código de Minería, Ley Nº 6797 del 4 de octubre de 1982 y a la Ley Orgánica del Ministerio del Ambiente, Energía y Telecomunicaciones, No. 7152 del 5 de junio de 1990.

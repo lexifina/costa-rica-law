@@ -1,0 +1,1 @@
+Transitorio.—Todas las Direcciones y órganos adscritos al MINAET, deberán en el plazo máximo de seis meses, someter ante el Despacho Ministerial, su respectivo reglamento interno de organización y funcionamiento.

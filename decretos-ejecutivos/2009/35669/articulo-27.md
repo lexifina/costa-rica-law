@@ -1,0 +1,1 @@
+Artículo 27.—De la conformación y funciones del Sistema Nacional de Áreas de Conservación. Refiérase a la Sección II de la Ley de Biodiversidad Nº 7788, del 30 de abril de 1998 y a su Reglamento, Decreto Ejecutivo Nº 34433-MINAE, del 11 de marzo de 2008.

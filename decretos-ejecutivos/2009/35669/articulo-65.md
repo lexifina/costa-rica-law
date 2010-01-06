@@ -1,0 +1,1 @@
+Artículo 65.—De la regionalización. El Ministerio de Ambiente, Energía y Telecomunicaciones regionalizará en forma progresiva las diferentes instancias que así lo requieran acorde a sus facultades y necesidades.

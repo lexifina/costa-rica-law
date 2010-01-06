@@ -1,0 +1,1 @@
+Artículo 37.—De la Dirección de Agua. Créase la Dirección de Agua amparada en la naturaleza jurídica del Departamento de Aguas de conformidad con el artículo 177 de la Ley de Aguas Nº 276 del 26 de agosto de 1942.

@@ -1,0 +1,1 @@
+Artículo 43.—De las funciones de la Comisión de Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón. Refiérase a la Ley de Ordenamiento y Manejo de la Cuenca Alta del Río Reventazón, Nº 8023 del 27 de setiembre de 2000.
