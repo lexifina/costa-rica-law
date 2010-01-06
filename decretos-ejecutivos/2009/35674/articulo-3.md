@@ -1,0 +1,1 @@
+Artículo 3º—Derogatoria. Deróguense los incisos ñ), o) y p) del artículo 28 del Decreto Ejecutivo Nº 31636-MEP, Reglamento para el Uso, Control y Mantenimiento de Vehículos del Ministerio de Educación Pública.
