@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 400:2006. Etiquetado de la carne cruda, molida, marinad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-18 | la propia norma |
+| 2 | 2010-01-06 | Decreto Ejecutivo 35854 (2010-01-06) |
