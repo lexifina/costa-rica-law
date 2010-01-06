@@ -1,0 +1,2 @@
+Transitorio 2º—Para los efectos de la instalación de la Comisión que ejerza funciones en el periodo 2010-2014, la acreditación de representantes sectoriales deberá efectuarse a partir de la publicación de este Reglamento y hasta el 15 de enero del 2010. Entrará en funciones el primer día hábil de febrero del 2010.
+Dado en la Presidencia de la República.—San José, a las doce horas del veintitrés de diciembre del dos mil nueve.

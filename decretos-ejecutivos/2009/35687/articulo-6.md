@@ -1,0 +1,1 @@
+Artículo 6º—Trabajadores independientes. Concepto. Para los efectos del presente Reglamento, integrarán el sector de trabajadores independientes aquellos ahorrantes obligatorios por disposición de la Ley de Protección al Trabajador.

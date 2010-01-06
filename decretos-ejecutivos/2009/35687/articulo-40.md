@@ -1,0 +1,1 @@
+Artículo 40.—Integración y convocatoria de la Asamblea de Trabajadores y Trabajadoras. Una vez acreditados ante la Comisión la totalidad de delegados propietarios, dicha Comisión convocará a la primera Asamblea Plenaria del cuatrienio en un plazo no mayor a quince días hábiles a partir de que estén todos los delegados y delegadas acreditadas.

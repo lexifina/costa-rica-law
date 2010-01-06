@@ -1,0 +1,2 @@
+Artículo 8º—Principios aplicables. Para garantizar la transparencia del proceso, dichos representantes deberán actuar con estricto apego a los principios de legalidad, imparcialidad, razonabilidad, proporcionalidad y racionalidad.
+En su condición de órgano de carácter electoral esta Comisión ejercerá sus funciones con absoluta independencia de los distintos órganos jerárquicos y de dirección del Banco Popular y de Desarrollo Comunal.

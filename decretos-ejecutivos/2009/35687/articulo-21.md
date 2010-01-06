@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Designación de los Delegados y Delegadas por Sector
+Artículo 21.—Nombramientos de delegados y delegadas. De conformidad con este Reglamento cada sector definirá interna y democráticamente quienes ejercerán la condición de delegados propietarios y suplentes a la Asamblea de Trabajadores por un período de cuatro años, de conformidad con las normas del presente Reglamento. Todos los delegados deberán ser mayores de edad al momento de su acreditación y figurar como copropietarios del Banco Popular en los términos dispuestos en la ley y este reglamento y con al menos un mes de anticipación a la integración cuatrienal de la Asamblea.
