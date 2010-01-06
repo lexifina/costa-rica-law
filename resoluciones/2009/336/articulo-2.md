@@ -1,0 +1,1 @@
+2º—Que con la emisión de la presente resolución se deja sin efecto la circular DGT-140-2008 del 10 de Octubre de 2008 y todas las circulares señaladas en la misma y la resolución número RES-DGA-208-2006 del 10 de Marzo de 2006.
