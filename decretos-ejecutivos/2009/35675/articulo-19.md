@@ -1,0 +1,5 @@
+CAPÍTULO III
+De la concesión de subsidios individualizados
+por medio de la junta administrativa
+Artículo 19.—La concesión de subsidios consiste en aquellas transferencias de dineros que realiza el Ministerio de Educación Pública a la Junta Administrativa de la Institución en la cual opera una ruta de transporte estudiantil y que ésta posteriormente entrega la ayuda económica de forma individualizada a los estudiantes beneficiarios según la selección realizada previamente, para que cubran sus necesidades de transporte al centro educativo.
+En estos casos la Junta Administrativa entregará el monto correspondiente al subsidio de transporte a cada uno de los estudiantes beneficiarios, el cual será responsable de satisfacer sus necesidades de transporte al centro educativo. El procedimiento para entregar los subsidios a los estudiantes deberá ser definido por cada Junta Administrativa y en su práctica, por tratarse de fondos públicos, deben prevalecer mecanismos internos de control que justifiquen cada uno de los giros de dinero efectuados.

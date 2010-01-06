@@ -1,0 +1,7 @@
+CAPÍTULO VI
+Creación de nuevas rutas de transporte estudiantil
+Artículo 27.—Para la creación de nuevas rutas de transporte estudiantil en las diferentes modalidades de ejecución del Programa de Transporte Estudiantil se deberá cumplir con los siguientes requisitos mínimos:
+a) Gestión escrita del Director del centro educativo, con el visto bueno del asesor supervisor del circuito al cual pertenece el centro educativo en donde se justifique la necesidad de creación de la nueva ruta de transporte estudiantil.
+b) Elaboración de un informe técnico del Departamento de Transporte Estudiantil o en quién se delegue dicha función, que determine la procedencia de la solicitud y el cumplimiento de los requisitos establecidos al efecto. El informe técnico deberá valorar cuál es la institución más cercana al hogar del estudiante y las circunstancias idóneas de accesibilidad a los centros educativos, asimismo deberá considerar la organización comunal y estudiantil, cercanía de la institución educativa a las oficinas de los Bancos Estatales, organización y conformación de la Junta Administrativa, existencia de transporte público adecuado, entre otros.
+c) La existencia de disponibilidad presupuestaria para el período correspondiente.
+Cuando proceda la solicitud y constatado el cumplimiento de los requisitos anteriores, el Departamento de Transporte Estudiantil aprobará en el plazo de un mes la creación de la ruta nueva, e indicará la modalidad de ejecución bajo la cual se atenderá la ruta y ordenará la afectación presupuestaria correspondiente.

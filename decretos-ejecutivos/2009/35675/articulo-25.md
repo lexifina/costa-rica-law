@@ -1,0 +1,1 @@
+Artículo 25.—El importe económico de la beca del estudiante beneficiario deberá incluir el importe necesario para que una persona responsable acompañe al estudiante beneficiario en razón de las necesidades educativas especiales, lo anterior de conformidad al criterio técnico del Departamento de Transporte Estudiantil y según la disponibilidad presupuestaria.

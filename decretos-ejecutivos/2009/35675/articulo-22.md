@@ -1,0 +1,1 @@
+Artículo 22.—El pago de las Becas de Transporte del Fondo Nacional de Becas se realizará siguiendo el procedimiento dispuesto al efecto por este órgano y en lo pertinente se acatarán las directrices y recomendaciones emitidas por el Departamento de Transporte Estudiantil.

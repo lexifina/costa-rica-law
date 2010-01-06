@@ -1,0 +1,1 @@
+Artículo 41.—De conformidad con lo establecido en la Ley de Contratación Administrativa y en el Reglamento General de Contratación Administrativa, el Ministerio de Educación Pública podrá rescindir unilateralmente los contratos suscritos para la prestación del servicio de transporte estudiantil, por motivos de interés público, caso fortuito o fuerza mayor.
