@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT 10-09 del 2 de julio del 2009, publicada en La Gaceta Nº 139 del 20 de julio del 2009.
