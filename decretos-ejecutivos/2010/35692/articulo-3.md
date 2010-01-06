@@ -1,0 +1,1 @@
+Artículo 3º—De previo a la conformación de la Comisión de Traspaso de Poderes adscrita al Ministerio de Relaciones Exteriores y Culto, este último nombrará a dos personas como Coordinador y Coordinador Adjunto de Enlace Logístico, con motivo de los actos y ceremonias relativas a la Transmisión de Mando Presidencial, el 8 de mayo del 2010.
