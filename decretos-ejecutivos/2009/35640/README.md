@@ -14,3 +14,4 @@ Reglamento para la Percepción, Control, Administración y Fiscalización del Im
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-14 | la propia norma |
+| 2 | 2010-01-07 | Directriz 1 (2010-01-07) |
