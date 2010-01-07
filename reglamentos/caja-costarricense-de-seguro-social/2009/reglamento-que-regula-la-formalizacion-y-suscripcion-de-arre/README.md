@@ -14,3 +14,4 @@ Reglamento que regula la formalización y suscripción de arreglos y convenios d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-01 | la propia norma |
+| 2 | 2010-01-07 | Reglamento 8411 (2010-01-07) |
