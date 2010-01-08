@@ -1,4 +1,6 @@
+(Derogado)
 Nº 33476
+(Este decreto fue Derogado por el artículo 3°, punto 4 del decreto ejecutivo N° 35789 del 8 de enero de 2010)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, y la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.
