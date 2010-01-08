@@ -1,4 +1,5 @@
-Artículo 4º—Funciones del MRREE. Le corresponde al MRREE establecer la congruencia de los proyectos y programas de Cooperación Internacional con la política exterior del país y presentarlas a los respectivos gobiernos y organismos internacionales, en coordinación estrecha con MIDEPLAN. Sus funciones en materia de Cooperación Internacional son:
+Artículo 4º—Funciones del MRREE. Le corresponde al MRREE la rectoría externa en materia de Cooperación Internacional, teniendo la competencia exclusiva en la negociación diplomática y formalización de esta., Asimismo, establece la congruencia de los proyectos y programas de Cooperación Internacional con la política exterior del país. Sus funciones en materia de Cooperación Internacional son:
+(Así reformado el párrafo anterior por el artículo 1 del decreto ejecutivo N° 35777 del 8 de enero del 2010)
 a) Identificar las Fuentes de Cooperación Internacional para el país, mediante las misiones diplomáticas de Costa Rica acreditadas ante gobiernos extranjeros u organismos internacionales, u otros medios idóneos.
 b) Comunicar la información sobre ofertas de Cooperación Internacional, así como otras acciones relacionadas a MIDEPLAN.
 c) Negociar la Cooperación Internacional con gobiernos y organismos internacionales, de lo cual informará y participará a MIDEPLAN.

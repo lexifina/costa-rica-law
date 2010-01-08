@@ -14,3 +14,4 @@ Reglamento del Artículo 11 de la Ley de Planificación Nacional N° 5525 del 2 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-18 | la propia norma |
+| 2 | 2010-01-08 | Decreto Ejecutivo 35777 (2010-01-08) |
