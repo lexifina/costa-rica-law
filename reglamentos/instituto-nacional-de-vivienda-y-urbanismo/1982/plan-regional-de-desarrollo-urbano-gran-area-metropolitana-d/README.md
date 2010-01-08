@@ -25,3 +25,4 @@ Plan Regional de Desarrollo Urbano "Gran Area Metropolitana": Delimitación del 
 | 10 | 2001-03-28 | Decreto Ejecutivo 29415 (2001-03-28) |
 | 11 | 2007-04-11 | Decreto Ejecutivo 33757 (2007-04-11) |
 | 12 | 2009-03-06 | SINALEVI (sin norma nombrada) |
+| 13 | 2010-01-08 | Decreto Ejecutivo 35748 (2010-01-08) |
