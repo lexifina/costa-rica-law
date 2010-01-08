@@ -35,15 +35,14 @@ a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energí
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
 c) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 d) (Derogado por el artículo 3° del decreto ejecutivo N° 35578 del 1 de octubre de 2009)
-e) (Derogado por el artículo 3° del decreto ejecutivo N° 35577 del 1 de octubre de 2009)
+e) (Derogadopor el artículo 3° del decreto ejecutivo N° 35577 del 1 de octubre de 2009)
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
 g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008, posteriormente se volvio a derogar por el artículo 3 del decreto ejecutivo N° 35582 del 1° de octubre de 2009)).
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
 i) (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009).
 j. Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
 (Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo N° 34643 del 12 de mayo del 2008)
-k) Grace García Muñoz, Representante de la Federación Costarricense para la Conservación del Ambiente
-(Así reformado el inciso anterior mediante el artículo 2° del decreto ejecutivo N° 33476 del 1 de noviembre del 2006).
+k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8 de enero de 2010)
 (NOTA. mediante el artículo 1° del decreto ejecutivo N° 34793 del 1° de setiembre de 2008, se nombra como miembros propietario de esta Comisión al señor Rafael Salazar Murillo representante de la Asociación Mesa Nacional Campesina.)
 (NOTA. mediante el artículo 1° del decreto ejecutivo N° 34895 de 14 de octubre del dos mil ocho, se nombra como miembros suplente de esta Comisión al señor Hugo Lázaro Estrada, representante de la Asociación Mesa Nacional Indígena).
 (NOTA: mediante el artículo 1° del decreto ejecutivo N° 35125 del 3 de marzo de 2009, se nombra como mientro suplente de esta Comisión, a la señora Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura).
@@ -53,3 +52,4 @@ k) Grace García Muñoz, Representante de la Federación Costarricense para la C
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35578 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión al Señor Jorge Mena Arce, representante del Ministerio de Salud).
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35582 del 1 de octubre de 2009, se nombra como miembro suplente de esta Comisión al Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009, se nombra como miembro suplente de esta Comisión a la Señora Zayda Trejos Esquivel, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35789 del 8 de enero de 2010, se nombra como miembro suplente de esta Comisión a la Señora Grace García Muñoz, representante de la Federación Costarricense para la Conservación del Ambiente)
