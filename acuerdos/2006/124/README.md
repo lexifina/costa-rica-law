@@ -15,3 +15,4 @@ Acuerdo sobre requerimientos mínimos de Tecnología de la Información (TI)
 | --- | --- | --- |
 | 1 | 2006-09-01 | la propia norma |
 | 2 | 2009-11-23 | Acuerdo 163 (2009-11-23) |
+| 3 | 2010-01-08 | Acuerdo 165 (2010-01-08) |
