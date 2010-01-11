@@ -18,9 +18,12 @@ A) En el momento de la transmisión del DUA el MAG ya ha transmitido la constanc
 1. Para transmitir la Declaración Aduanera, el agente aduanero deberá utilizar el código de excepción número 0017 y deberá incluir en el bloque de documentos los datos correspondientes de la constancia del MAG, dichos datos serán validados por el sistema antes de la aceptación. Los procedimientos posteriores se efectuarán conforme se establece en el Manual de Procedimientos Aduaneros, Resolución RES- DGA 203- 2005 de la Dirección General de Aduanas, publicada en el Alcance 23 a La Gaceta 143 del 26 de julio del 2005.
 Modalidad B
 B) En el momento de la transmisión del DUA de importación, el MAG no ha transmitido la constancia de inspección.
-1. Para transmitir la Declaración Aduanera de importación, el agente aduanero deberá utilizar el código de excepción número 0018, lo que permite la aceptación de la Declaración Aduanera sin contar con la constancia de inspección, la cual se validará antes del levante.
-2. En su oportunidad, el MAG deberá transmite al sistema TIC@ la constancia de inspección posterior a la aceptación y el sistema valida la misma
-3. El agente aduanero una vez que verifica que el MAG ha transmitido la constancia de inspección, deberá proceder a la transmisión del mensaje de asociación, denominado "Mensaje Me-Asociación V1.1" (en adelante mensaje de asociación), el cual contará con los siguientes datos: número de Declaración Aduanera, nombre del declarante, nombre del agente, número de línea, código de documento, número de documento y número de línea de documento.
+1. Para transmitir la Declaración Aduanera de importación, el agente aduanero deberá utilizar el código de excepción número 0017, lo que permite la aceptación de la Declaración Aduanera sin contar con la constancia de inspección, la cual se validará antes del levante.
+(Así reformado el punto anterior mediante aparte 1° de la resolución N° RES-DGA-009-2010 del 11 de enero de 2010)
+2. En su oportunidad, el MAG deberá transmitir al sistema TIC@ la constancia de inspección posterior a la aceptación y el sistema valida la misma.
+(Así reformado el punto anterior mediante aparte 1° de la resolución N° RES-DGA-009-2010 del 11 de enero de 2010)
+3. El agente aduanero una vez que verifica que el MAG ha transmitido la constancia de inspección, deberá proceder a la transmisión del mensaje de asociación, denominado “Asociación DUA - Documentos Previos al Levante” versión 1.2. (en adelante mensaje de asociación).
+(Así reformado el punto anterior mediante aparte 1° de la resolución N° RES-DGA-009-2010 del 11 de enero de 2010)
 4. El sistema TIC@ automáticamente notificará el levante de las mercancías una vez cumplido lo establecido en el punto 3 y el proceso de verificación aduanera.
 En la presente modalidad se podrán dar los siguientes eventos:
 a) Cuando en el proceso de verificación al DUA de importación le corresponde algún tipo de revisión.

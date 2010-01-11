@@ -14,3 +14,4 @@ Establece Procedimiento en la Aplicación de la Constancia de Inspección para l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-17 | la propia norma |
+| 2 | 2010-01-11 | Resolución 9 (2010-01-11) |
