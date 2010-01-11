@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Ámbito de acción
-Artículo 20.—El ámbito de acción de la Auditoría Interna está conformado por el Banco de Costa Rica y sus subsidiarias: BCR-Pensiones S. A., BCR-Valores Puesto de Bolsa S. A., BCR-Sociedad Administradora de Fondos de Inversión S. A., y Banco Internacional de Costa Rica S. A. (BICSA); el Fondo de jubilación de los empleados del Banco de Costa Rica y la Asociación solidarista de empleados del Banco de Costa Rica, lo anterior de acuerdo a lo establecido en el artículo 22, inciso a) de la Ley general de control interno. El auditor general será el responsable de su definición y actualización.

@@ -1,1 +1,0 @@
-Artículo 2º—La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que regirán el accionar de la auditoría interna y velar por su actualización. La misión y visión serán incorporadas en el plan estratégico de la Auditoría Interna que está respaldado en el Manual de la Auditoría Interna del Banco de Costa Rica.
