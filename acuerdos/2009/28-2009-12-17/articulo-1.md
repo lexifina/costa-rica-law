@@ -1,4 +1,3 @@
-CORTE SUPREMA DE JUSTICIA
 AVISO Nº 28-09
 ASUNTO: Plan de Vacaciones Colectivas del Poder Judicial 2009-2010.
 A LAS INSTITUCIONES, ABOGADOS, SERVIDORES
@@ -73,12 +72,43 @@ DISPOSICIONES SOBRE SUSTITUCIONES 2009/2010
 9 Lineamientos generales
 9.1 Los servidores judiciales que laboran en plazas ordinarias podrán ser sustituidos, por cualquier motivo, siempre y cuando el período de sustitución sea igual o mayor a siete días hábiles, y el Jefe del despacho considere necesaria tal medida.
 9.2 Salvo los casos excepcionales aprobados por el Consejo Superior, solo se realizarán sustituciones si el motivo inicial o bien la combinación de factores en forma continuada (incapacidades, vacaciones, permisos sin goce), sean iguales o mayores a siete días hábiles.
-9.3 Se eliminan las posibilidades de excepción de sustitución establecidas históricamente de un día y cuatro días respectivamente, en concordancia con lo establecido a raíz de la crisis económica por la Corte Plena en la sesión 22-09 del 10 de junio del 2009 y acuerdo del Consejo Superior del 12 de mayo del 2009, en donde se indico “Se mantiene una política restrictiva en materia de sustituciones; únicamente se sustituye por períodos mayores a 7 días, se limitan las excepciones y para ningún caso se admiten las cadenas de nombramiento. Lo anterior por la situación presupuestaria que atraviesa el país, por lo que se sugiere que todas las sustituciones sean mayores a 7 días hábiles.
+(*)9.3 Se autoriza la sustitución en las siguientes plazas hasta por un día:
+• Choferes (siempre que sólo exista una plaza).
+• Auxiliar de Servicios Generales 3 (Guardas).
+• Conductores de Detenidos.
+• Notificadores en aquellos despachos que sólo tienen una plaza de esta clase.
+• Conserje del Departamento de Patología en labores propias del proceso de autopsias.
+• Oficiales de Localización en aquellas oficinas que sólo cuentan con una plaza de este tipo.
+• Fiscales, Fiscales Auxiliares y Defensores Públicos; en despachos con una sola plaza.
+• Juez; en las oficinas unipersonales, cuando no sea posible asignar las funciones del despacho a otro de igual jurisdicción territorial.
+• Todos los puestos de los Juzgados; Fiscalía y Defensa Pública de Turno Extraordinario, de los Tribunales de Flagrancia, Juzgados Contravencionales de Flagrancia y Centro Judicial de Intervención de las Comunicaciones.
+• Técnico Criminalístico 2 de las Delegaciones Regionales del Organismo de Investigación Judicial, que cuenten con una sola plaza de esta clase.
+• Auxiliares de Servicios Informáticos en las oficinas de todo el país, que cuenten con una sola plaza de esta clase.
+• Auxiliares judiciales del Ministerio Público que cuenten con una plaza de este tipo.
+• Plazas de secretarios (as) de las Oficinas de la Defensa Pública, donde únicamente cuentan con un servidor en el personal de apoyo.
+• Los Inspectores Generales Judiciales.
+• Servidores de Oficina de Recepción de Denuncias.
+• Servidores de Oficinas de Recepción de Documentos.
+• Auxiliares de enfermería (siempre que sólo exista una plaza).
+• Encargados de bodega y archivo (siempre que sólo exista una plaza).
+• Encargados de grupo de celdas del Segundo Circuito Judicial de San José.
+• Técnicos en Rayos X (siempre que sólo exista una plaza).
+• Técnicos Disectores.
+• Recepcionistas de morgue.
+• Radio Operadores del Organismo de Investigación Judicial.
+• Encargados de Unidad del Organismo de Investigación Judicial.
+• Los administradores de bases de datos destacados en los diversos circuitos judiciales.
+• Operador del Equipo de Cómputo del Departamento de Tecnología de la Información.
+• Auxiliares de Servicios Generales 2 en Delegaciones y Subdelegaciones Regionales del Organismo de Investigación Judicial que cuentan con sólo una plaza y deban realizar el aseo de las celdas.
+• En jefaturas únicas (oficina, departamento, sección, unidad).
+• En despachos jurisdiccionales donde el personal subalterno se conforma con sólo dos personas. Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.
+(*)(Así reformado el punto anterior en sesión N° 02 del 7 de enero de 2010, artículo IV, y publicada en el Boletín Judicial N° 16 del 25 de enero de 2010, mediante aviso N° 01 del 11 de enero de 2010)
 9.4 Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.
 10 Otras disposiciones sobre sustituciones
-10.1 El Consejo Superior en sesión Nº 38-06 celebrada el 30 de mayo de 2006, artículo XXXI, acordó: “Limitar las cadenas de sustituciones provocadas en permisos con goce de salario otorgados con base en el Art.44 de la Ley Orgánica de Poder Judicial, de la siguiente forma:
+(*)10.1 El Consejo Superior en sesión N° 38-06 celebrada el 30 de mayo de 2006, artículo XXX, acordó: “Limitar las cadenas de sustituciones provocadas en permisos con goce de salario otorgados con base en el Art. 44 de la Ley Orgánica del Poder Judicial, de la siguiente forma:
 a) En el caso de la persona sobre la cual recae el permiso se establece la posibilidad de ser sustituida por vacaciones, incapacidades y ascensos a otro puesto.
-b) No se autoriza la sustitución para la persona que sustituye al titular del puesto en razón del permiso con goce de salario por ningún plazo ni motivo.
+b) No se autoriza la sustitución para la persona que sustituye al titular del puesto en razón del permiso con goce de salario por ningún plazo ni motivo. Excepcionalmenle, y en casos debidamente justificados, este Órgano podría aprobar un segundo movimiento en la cadena de sustituciones.
+(*)(Así reformado el punto anterior en sesión N° 02 del 7 de enero de 2010, artículo IV, y publicada en el Boletín Judicial N° 16 del 25 de enero de 2010, mediante aviso N° 01 del 11 de enero de 2010)
 10.2 Las jefaturas, pueden conceder directamente a sus empleados, permiso hasta por un día, sin sustitución y con goce de salario, para atender asuntos personales urgentes y debidamente justificados en casos de citas médicas u otros de fuerza mayor, igual regla regirá para los casos en que el servidor deba asistir a capacitaciones o actividades de interés institucional. Esta disposición implica que los puestos de excepción citados en este plan, no podrán ser sustituidos en las circunstancias descritas con anterioridad [3].
 [3] Sesión del Consejo Superior N° 18-09 del 14 de marzo de 2006, artículo II.
 10.3 Las jefaturas de los distintos programas en general, Ministerio Público, Defensa Pública, Dirección General del Organismo de Investigación Judicial y Dirección Ejecutiva, concederán permisos con goce de salario sin sustitución hasta por cinco días, a los servidores a su cargo, únicamente para cuando estos requieran asistir a cursos de capacitación tanto dentro como fuera del país [4].
@@ -149,8 +179,8 @@ Es importante indicar que en los períodos de cierre anteriores del presente añ
 En razón del que el Consejo Superior definió cual juzgado es el competente para la atención de los asuntos de Violencia Doméstica para la Zona de Buenos Aires, le corresponderá al Juzgado Civil, Trabajo, Familia y Penal Juvenil de Buenos Aires realizar la apertura efectiva durante la vacaciones colectivas de fin y principio de año, para la atención de los asuntos que se presenten bajo esta modalidad.
 De la misma manera, el Juzgado Contravencional y de Menor Cuantía de Buenos Aires, deberá realizar la apertura efectiva durante el cierre colectivo para la atención de los asuntos que se generen en la materia de Pensiones Alimentarias.
 Para el presente año, se crearon o se especializaron varios despachos jurisdiccionales, de los cuales los siguientes que se mencionan están en proceso de búsqueda y adecuación de una planta física para inicio de operaciones:
- Juzgado Contravencional y de Menor Cuantía de Parrita (Para atender Violencia Doméstica, Pensiones Alimentarias, Contravenciones y Tránsito).
- Juzgado Contravencional y Pensiones Alimentarias de Santa Cruz (Para atender Pensiones Alimentarias, Contravenciones y Tránsito).
+Ø Juzgado Contravencional y de Menor Cuantía de Parrita (Para atender Violencia Doméstica, Pensiones Alimentarias, Contravenciones y Tránsito).
+Ø Juzgado Contravencional y Pensiones Alimentarias de Santa Cruz (Para atender Pensiones Alimentarias, Contravenciones y Tránsito).
 Por lo que en caso de que estos despachos, inicien operaciones en sus propios locales antes del periodo de vacaciones colectivas de Fin y Principio año 2009-2010, les corresponderá realizar de la apertura efectiva del despacho para brindar la atención respectiva en la competencia indicada entre paréntesis.
 Conforme lo anterior, la apertura efectiva se realizará durante los días hábiles incluidos en ese lapso. Los días feriados, de asueto y fines de semana ubicados en ese mismo período, se atenderán bajo la modalidad de disponibilidad.
 DETALLE DE LAS OFICINAS QUE PERMANECERÁN ABIERTAS
@@ -175,11 +205,11 @@ Tribunal del Circuito Judicial de Puntarenas25 25 En esta sede también se atend
 Tribunal del I Circuito Judicial de la Zona Atlántica | 2799-1434 2799-1435
 Tribunal del II Circuito Judicial de la Zona Atlántica26 26 En esta sede también se atenderán los asuntos de Siquirres. | 2713-6170 2713-6168
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
- Medidas cautelares en los asuntos en etapa de juicio
- Apelaciones en materia de medidas cautelares
- Extradiciones
- Rebeldías
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Medidas cautelares en los asuntos en etapa de juicio
+· Apelaciones en materia de medidas cautelares
+· Extradiciones
+· Rebeldías
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 2. MATERIA PENAL-JUZGADOS
 Juzgado Penal del Segundo Circuito Judicial de San José27 27 En este despacho se atenderán además los asuntos de las jurisdicciones de los Juzgados Penales del Primer y Tercer Circuito Judicial de San José y Pavas. Dentro del rol de apertura deberán considerarse los Jueces y Auxiliares Judiciales de los Juzgados Penales de estas localidades. | 2247-9137 2247-9138
 Juzgado Penal de Puriscal | 2416-6594
@@ -210,33 +240,33 @@ Juzgado Penal del Primer Circuito Judicial de la Zona Atlántica (*) | 2799-1402
 Juzgado Penal del Segundo Circuito Judicial de la Zona Atlántica (*) | 2713-6053
 Juzgado Penal de Siquirres | 2768-9294
 (*) Estos despachos además de atender los asuntos de la materia Penal, brindarán atención de la materia Penal Juvenil durante el período de Vacaciones Colectivas, específicamente en los siguientes asuntos:
- Allanamientos
- Medidas Cautelares
- Órdenes de Captura emitidas por el Juzgado de Ejecución de las Sanciones Penales Juveniles
- Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil.
+· Allanamientos
+· Medidas Cautelares
+· Órdenes de Captura emitidas por el Juzgado de Ejecución de las Sanciones Penales Juveniles
+· Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil.
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 Penal
- Levantamiento de Cuerpos
- Allanamientos
- Reos Presos
- Medidas Cautelares
- Prisiones Preventivas
- Inspecciones
- Intervenciones telefónicas
- Actos preliminares del procedimiento en asuntos que se inicien en ese período
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Levantamiento de Cuerpos
+· Allanamientos
+· Reos Presos
+· Medidas Cautelares
+· Prisiones Preventivas
+· Inspecciones
+· Intervenciones telefónicas
+· Actos preliminares del procedimiento en asuntos que se inicien en ese período
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 3. MATERIA PENAL JUVENIL
 Juzgado Penal Juvenil del I Circuito Judicial de San José | 2295-3548
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
- Allanamientos
- Medidas Cautelares
- Órdenes de Captura emitidas por el Juzgado de Ejecución de las Sanciones Penales Juveniles
- Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil.
+· Allanamientos
+· Medidas Cautelares
+· Órdenes de Captura emitidas por el Juzgado de Ejecución de las Sanciones Penales Juveniles
+· Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil.
 Juzgado de Ejecución de las Sanciones Penales Juveniles29 29 Este Despacho atenderá de los asuntos que se susciten en las provincias de San José (incluye los tres Circuitos Judiciales, la Periferia y la zona de Puriscal), Alajuela (incluye el Primer y el Tercer Circuito Judicial y Grecia), Cartago y Heredia (no incluye Sarapiquí). | 2295-4388
 Asuntos que deberá atender durante la apertura, en el período colectivo de vacaciones:
- Órdenes de Captura
- Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Órdenes de Captura
+· Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 4. MATERIA DE CONTRAVENCIONES Y TRÁNSITO
 Juzgado Contravencional del Segundo Circuito Judicial, San José30 30 Le corresponde atender la competencia del Juzgado Contravencional del Primer Circuito Judicial de San José, por tanto deberán conformar un rol entre los Jueces y Auxiliares Judiciales de ambos despachos. | 2247-9240
 Juzgado Contravencional de Cartago | 2550-0385
@@ -251,16 +281,16 @@ Juzgado Contravencional del I Circuito Judicial de la Zona Atlántica | 2799-137
 Juzgado Contravencional y Menor Cuantía de Siquirres | 2768-3044
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 Contravenciones
- Imputados presentados
- Prisiones preventivas
- Asuntos nuevos
- Rebeldías
- Medidas Cautelares
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Imputados presentados
+· Prisiones preventivas
+· Asuntos nuevos
+· Rebeldías
+· Medidas Cautelares
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Tránsito
- Devolución de Placas y Vehículos
- Levantar la restricción de salida del país de automotores
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Devolución de Placas y Vehículos
+· Levantar la restricción de salida del país de automotores
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 5. MATERIA DE PENSIONES ALIMENTARIAS
 Juzgado de Pensiones Alimentarias del I Circuito Judicial de San José | 2295-3199 2295-3196
 Juzgado de Pensiones Alimentarias del II Circuito Judicial de San José | 2247-9264 2247-9255
@@ -271,12 +301,12 @@ Juzgado de Pensiones Alimentarias de Cartago | 2550-0378 2550-0379
 Juzgado de Pensiones Alimentarias del I Circuito Judicial de la Zona Atlántica | 2799-1376
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 Pensiones Alimentarias
- Solicitud de Apremios
- Levantamiento de órdenes de apremio
- Entrega de cheques
- Órdenes de giro o autorizaciones
- Permiso de salida del país
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Solicitud de Apremios
+· Levantamiento de órdenes de apremio
+· Entrega de cheques
+· Órdenes de giro o autorizaciones
+· Permiso de salida del país
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 6. MATERIA VIOLENCIA DOMÉSTICA
 Juzgado de Violencia Doméstica del II Circuito Judicial de San José31 31 En este despacho se atenderán los asuntos de las jurisdicciones de los Juzgados de Violencia Doméstica del I y III Circuito Judicial de San José. | 2247-9452
 Juzgado de Violencia Doméstica del I Circuito Judicial de Alajuela | 2437-0407
@@ -288,10 +318,10 @@ Juzgado de Violencia Doméstica del II Circuito Judicial de Alajuela (San Carlos
 Juzgado de Violencia Doméstica del I Circuito Judicial de la Zona Atlántica | 2799-1392
 Juzgado de Violencia Doméstica del II Circuito Judicial de la Zona Atlántica | 2713-6074
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
- Medidas de Protección (para adultos, niños y adolescentes)
- Notificaciones
- Manifestaciones
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Medidas de Protección (para adultos, niños y adolescentes)
+· Notificaciones
+· Manifestaciones
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 7. MATERIA DE VIOLENCIA DOMÉSTICA Y PENAL JUVENIL
 Juzgado de Familia, Violencia Doméstica y Penal Juvenil del Primer Circuito Judicial de Guanacaste (Liberia) | 2690-0169
 Juzgado de Familia, Violencia Doméstica y Penal Juvenil Santa Cruz | 2681-4045
@@ -309,18 +339,18 @@ Juzgado de Familia, Penal Juvenil y de Violencia Doméstica del II Circuito Judi
 (**) Estos despachos no atenderán lo relacionado con órdenes de captura emitidas por el Juzgado de Ejecución de las Sanciones Penales Juveniles, ni medidas de contención solicitadas por los Centros Penales en materia Penal Juvenil por cuanto será Juzgado de Ejecución de las Sanciones Penales Juveniles el encargado de la atención.
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 Penal Juvenil
- Capturas
- Menores detenidos
- Allanamientos (incluye los solicitados por asuntos de familia por el PANI)
- Medidas Cautelares
- Órdenes de Captura emitidas por el Juzgado de Ejecución de las Sanciones Penales Juveniles
- Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Capturas
+· Menores detenidos
+· Allanamientos (incluye los solicitados por asuntos de familia por el PANI)
+· Medidas Cautelares
+· Órdenes de Captura emitidas por el Juzgado de Ejecución de las Sanciones Penales Juveniles
+· Medidas de Contención solicitadas por los Centros Penales en materia Penal Juvenil
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Violencia Doméstica
- Medidas de Protección (para adultos, niños y adolescentes)
- Notificaciones
- Manifestaciones
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Medidas de Protección (para adultos, niños y adolescentes)
+· Notificaciones
+· Manifestaciones
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 8. MATERIA DE PENSIONES ALIMENTARIAS,
 CONTRAVENCIONES Y TRÁNSITO
 Juzgado Contravencional y de Menor Cuantía de San Sebastián | 2227-0467
@@ -346,23 +376,23 @@ Juzgado Contravencional y de Menor Cuantía de Buenos Aires35 35 A este Despacho
 Juzgado Contravencional y de Menor Cuantía del II Circuito Judicial de Zona Sur (Corredores) | 2785-9939
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 Pensiones Alimentarias
- Solicitud de Apremios
- Levantamiento de órdenes de apremio
- Entrega de cheques
- Órdenes de giro o autorizaciones
- Permiso de salida del país
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Solicitud de Apremios
+· Levantamiento de órdenes de apremio
+· Entrega de cheques
+· Órdenes de giro o autorizaciones
+· Permiso de salida del país
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Contravenciones
- Imputados presentados
- Prisiones preventivas
- Asuntos nuevos
- Rebeldías
- Medidas Cautelares
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Imputados presentados
+· Prisiones preventivas
+· Asuntos nuevos
+· Rebeldías
+· Medidas Cautelares
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Tránsito
- Devolución de Placas y Vehículos
- Levantar la restricción de salida del país de automotores
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Devolución de Placas y Vehículos
+· Levantar la restricción de salida del país de automotores
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 9. MATERIA DE PENSIONES, CONTRAVENCIONES
 VIOLENCIA DOMÉSTICA Y TRÁNSITO
 Juzgado Contravencional y de Menor Cuantía de Aserrí | 2230-3383
@@ -408,28 +438,28 @@ Juzgado Contravencional y de Menor Cuantía de Hojancha | 2659-8110
 Juzgado Contravencional y de Menor Cuantía de Parrita36 36 Una vez que empiece operaciones este despacho judicial le corresponderá realizar la apertura efectiva para la atención de los asuntos que se generen en su competencia. | 2777-0159
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 Pensiones Alimentarias
- Solicitud de apremios
- Levantamiento de órdenes de apremio
- Entrega de cheques
- Órdenes de giro o autorizaciones
- Permiso de salida del país
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Solicitud de apremios
+· Levantamiento de órdenes de apremio
+· Entrega de cheques
+· Órdenes de giro o autorizaciones
+· Permiso de salida del país
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Violencia Doméstica
- Medidas de protección (para adultos, niños y adolescentes)
- Notificaciones
- Manifestaciones
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Medidas de protección (para adultos, niños y adolescentes)
+· Notificaciones
+· Manifestaciones
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Contravenciones
- Imputados presentados
- Prisiones preventivas
- Asuntos nuevos
- Rebeldías
- Medidas Cautelares
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Imputados presentados
+· Prisiones preventivas
+· Asuntos nuevos
+· Rebeldías
+· Medidas Cautelares
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Tránsito
- Devolución de Placas y Vehículos
- Levantar la restricción de salida del país de automotores
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Devolución de Placas y Vehículos
+· Levantar la restricción de salida del país de automotores
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 10. MATERIA DE PENSIONES Y VIOLENCIA DOMÉSTICA
 Juzgado de Pensiones y Violencia Doméstica de La Unión | 2279-5064
 Juzgado de Pensiones y Violencia Doméstica de Pavas | 2290-8659
@@ -438,17 +468,17 @@ Juzgado de Pensiones y Violencia Doméstica de San Joaquín de Flores | 2265-875
 Juzgado de Pensiones y Violencia Doméstica de Siquirres | 2768-9204
 Asuntos que deberán atender durante la apertura, en el período colectivo de vacaciones:
 Pensiones Alimentarias
- Solicitud de apremios
- Levantamiento de órdenes de apremio
- Entrega de cheques
- Órdenes de giro o autorizaciones
- Permiso de salida del país
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Solicitud de apremios
+· Levantamiento de órdenes de apremio
+· Entrega de cheques
+· Órdenes de giro o autorizaciones
+· Permiso de salida del país
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 Violencia Doméstica
- Medidas de protección (para adultos, niños y adolescentes)
- Notificaciones
- Manifestaciones
- Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
+· Medidas de protección (para adultos, niños y adolescentes)
+· Notificaciones
+· Manifestaciones
+· Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el funcionario estime que el tema no debe ser resuelto en este período de modalidad de apertura efectiva, deberá dictar resolución debidamente fundamentada y proceder a su comunicación por cualquier medio.
 ÁMBITO AUXILIAR DE JUSTICIA
 8. MINISTERIO PÚBLICO
 Fiscalía del II Circuito Judicial de San José37 37 En esta Fiscalía se atenderán además los asuntos de las Fiscalías del I y III Circuito Judicial de San José y Pavas. La sede de atención será en la Fiscalía de Turno Extraordinario. | 2247-9469
