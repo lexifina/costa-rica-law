@@ -1,0 +1,18 @@
+Artículo 4º—Funciones de la Comisión. Las siguientes son funciones específicas de la Comisión:
+a) Elaborar el Plan Operativo Institucional en materia de discapacidad y presentarlo al Jerarca para su debida aprobación.
+b) Dar seguimiento al Plan Operativo Institucional en materia de discapacidad.
+c) Velar por que la Institución incluya en sus reglamentos, políticas institucionales, planes, programas, proyectos y servicios, los principios de igualdad de oportunidades para las personas con discapacidad, mujeres en estado de gravidez y para la persona adulta mayor.
+d) Formular lineamientos, recomendar y coordinar en el Ministerio de Economía, Industria y Comercio la eliminación de cualquier acción o disposición que promueva la discriminación o impida a las personas en situación de discapacidad, el acceso a los programas o servicios que se brindan.
+e) Presentar al Jerarca de la Institución para su aprobación, las medidas necesarias a fin de coordinar y promover la provisión de servicios de apoyo y ayudas técnicas que requieran los funcionarios con discapacidad para el desempeño de sus funciones, y los usuarios con discapacidad para el acceso a los servicios.
+f) Promover y fiscalizar que las unidades administrativas del Ministerio implementen las medidas correspondientes a fin de cumplir lo indicado en el inciso e) anterior.
+g) Velar porque la información que se brinde tanto a los funcionarios como a los administrados sea asequible a la población con discapacidad.
+h) Tutelar la imagen de la población con discapacidad, en cualquier tipo de información que se difunda.
+i) Brindar al Departamento de Recursos Humanos los informes técnico-jurídicos que solicite en relación a la equidad e igualdad de oportunidades para las personas con discapacidad, mujeres en estado de gravidez y la persona adulta mayor, así como aquellos que sean necesarios para sensibilizar y capacitar a los funcionarios del Ministerio en aras de brindar una correcta atención a los usuarios que presenten alguna discapacidad.
+j) Rendir al Ministro, un informe anual de labores dentro de los primeros quince días de enero de cada año.
+k) Identificar las áreas de carácter estratégico de la institución, con el fin de impulsar la equiparación de oportunidades para personas con discapacidad que accesan los servicios que presta la institución.
+l) Apoyar a las autoridades del Ministerio en la toma de decisiones claves para el desarrollo integral de las personas con discapacidad en el ámbito de competencia de la institución.
+m) Establecer alianzas estratégicas con instancias claves de la institución fomentando valores y prácticas institucionales de equiparación de oportunidades y no discriminación a personas con discapacidad.
+n) Coordinar con el Consejo Nacional de Rehabilitación y Educación Especial y con el Consejo Nacional de la Persona Adulta Mayor, la promoción y aplicación de políticas públicas para la equiparación de oportunidades y no discriminación a personas con discapacidad en el ámbito sectorial e institucional.
+o) Respaldar el diseño de un mecanismo de seguimiento y evaluación de las acciones que realiza el Ministerio, dentro del marco de la Ley Nº 7600 y su Reglamento.
+p) Recibir y canalizar para su evacuación o resolución hacia las instancias competentes; consultas o quejas de funcionarios o usuarios, en razón de discriminación por discapacidad ó dificultad de acceso a los servicios institucionales.
+q) Brindar atención, orientación y seguimiento a los casos de denuncia por discriminación en el empleo de las personas con discapacidad, en estado de gravidez o adulta mayor, que hayan sido presentadas ante la Unidad correspondiente y canalizadas hacia las instancias competentes.
