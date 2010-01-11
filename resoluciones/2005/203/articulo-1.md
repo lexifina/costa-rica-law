@@ -2440,9 +2440,12 @@ A) En el momento de la transmisión del DUA el MAG ya ha transmitido la constanc
 1. Para transmitir la Declaración Aduanera, el agente aduanero deberá utilizar el código de excepción número 0017 y deberá incluir en el bloque de documentos los datos correspondientes de la constancia del MAG, dichos datos serán validados por el sistema antes de la aceptación. Los procedimientos posteriores se efectuarán conforme se establece en el Manual de Procedimientos Aduaneros, Resolución RES- DGA 203- 2005 de la Dirección General de Aduanas, publicada en el Alcance 23 a La Gaceta 143 del 26 de julio del 2005.
 Modalidad B
 B) En el momento de la transmisión del DUA de importación, el MAG no ha transmitido la constancia de inspección.
-1. Para transmitir la Declaración Aduanera de importación, el agente aduanero deberá utilizar el código de excepción número 0018, lo que permite la aceptación de la Declaración Aduanera sin contar con la constancia de inspección, la cual se validará antes del levante.
-2. En su oportunidad, el MAG deberá transmite al sistema TIC@ la constancia de inspección posterior a la aceptación y el sistema valida la misma
-3. El agente aduanero una vez que verifica que el MAG ha transmitido la constancia de inspección, deberá proceder a la transmisión del mensaje de asociación, denominado "Mensaje Me-Asociación V1.1" (en adelante mensaje de asociación), el cual contará con los siguientes datos: número de Declaración Aduanera, nombre del declarante, nombre del agente, número de línea, código de documento, número de documento y número de línea de documento.
+1. Para transmitir la Declaración Aduanera de importación, el agente aduanero deberá utilizar el código de excepción número 0017, lo que permite la aceptación de la Declaración Aduanera sin contar con la constancia de inspección, la cual se validará antes del levante.
+(Así reformado el punto anterior mediante aparte 1° de la resolución N° RES-DGA-009-2010 del 11 de enero de 2010)
+2. En su oportunidad, el MAG deberá transmitir al sistema TIC@ la constancia de inspección posterior a la aceptación y el sistema valida la misma.
+(Así reformado el punto anterior mediante aparte 1° de la resolución N° RES-DGA-009-2010 del 11 de enero de 2010)
+3. El agente aduanero una vez que verifica que el MAG ha transmitido la constancia de inspección, deberá proceder a la transmisión del mensaje de asociación, denominado “Asociación DUA - Documentos Previos al Levante” versión 1.2. (en adelante mensaje de asociación).
+(Así reformado el punto anterior mediante aparte 1° de la resolución N° RES-DGA-009-2010 del 11 de enero de 2010)
 4. El sistema TIC@ automáticamente notificará el levante de las mercancías una vez cumplido lo establecido en el punto 3 y el proceso de verificación aduanera.
 En la presente modalidad se podrán dar los siguientes eventos:
 a) Cuando en el proceso de verificación al DUA de importación le corresponde algún tipo de revisión.
@@ -2452,7 +2455,7 @@ b) Cuando en el proceso de verificación se determinó que no corresponde ningú
 1. De no corresponder algún tipo de revisión el sistema informático en forma automática identifica la Declaración Aduanera en estado (PEL).
 2. Para cambiar el estado (PEL) el Agente Aduanero deberá enviar el mensaje de asociación que asocia los datos de la Declaración Aduanera contra el permiso transmitido por el MAG, para que el sistema proceda a dar el levante en forma automática.
 II. Declaración Aduanera de Importación que por factores sanitarios y fitosanitarios el MAG no otorga la constancia de inspección.
-En el caso de que el MAG no otorgue la constancia de inspección debido a situaciones sanitarias o fitosanitarias, el MAG emitirá una nota de no autorización y el agente deberá presentarse a la aduana correspondiente para que se efectúe los trámites de reversión respectiva que en derecho corresponda, sin perjuicio del cumplimiento de los plazos de abandono".)
+En el caso de que el MAG no otorgue la constancia de inspección debido a situaciones sanitarias o fitosanitarias, el MAG emitirá una nota de no autorización y el agente deberá presentarse a la aduana correspondiente para que se efectúe los trámites de reversión respectiva que en derecho corresponda, sin perjuicio del cumplimiento de los plazos de abandono.
 (*)PROCEDIMIENTO: DESPACHO DE MERCANCÍAS BAJO LA
 MODALIDAD DE ENTREGA RÁPIDA
 (*)(Mediante resolución DGA-021 del 1° de febrero de 2006, se adiciona este Procedimiento)
