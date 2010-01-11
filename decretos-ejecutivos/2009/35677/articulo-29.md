@@ -1,0 +1,1 @@
+Artículo 29.—Rectificaciones. La Oficina podrá rectificar el contenido de las inscripciones que consten en los libros del Registro, siempre que haya errores de forma relativos a los documentos registrables.

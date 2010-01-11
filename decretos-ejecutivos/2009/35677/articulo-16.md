@@ -1,0 +1,3 @@
+Artículo 16.—Examen de fondo de la variedad. La Oficina examinará la solicitud en cuanto a su fondo a fin de comprobar, sobre la base de las informaciones suministradas en la solicitud, que la variedad es nueva y que se cumplen los requisitos estipulados en la Ley y el reglamento.
+Si el examen revela un obstáculo para la concesión del derecho de obtentor, la solicitud será rechazada. Esta decisión puede ser objeto de recurso en virtud del artículo 35 del presente Reglamento.
+Sin embargo, si el examen de fondo de la variedad revela que la denominación propuesta no es utilizable se procederá de conformidad con lo indicado en el párrafo final del artículo 20.

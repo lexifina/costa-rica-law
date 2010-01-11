@@ -1,0 +1,4 @@
+Artículo 32.—Control del mantenimiento de la variedad.
+1.- La Oficina se encargará de controlar que la variedad y, cuando proceda, sus componentes hereditarios, se mantengan durante todo el período de protección.
+2.- Cuando haya indicios, con base en criterios técnicos de que la variedad no está siendo mantenida y que esos indicios no se disipen mediante la información y los documentos presentados por el titular de conformidad con el artículo 7 de este reglamento, la Oficina ordenará un control del mantenimiento de la variedad y fijará sus modalidades. El control incluirá ensayos en cultivo u otros ensayos en los que el material suministrado por el titular se comparará a la descripción oficial o a la muestra oficial de la variedad.
+3.- Cuando el control sugiera que el titular no ha mantenido la variedad se procederá a la cancelación del derecho de obtentor de acuerdo con el artículo 37 de este reglamento.

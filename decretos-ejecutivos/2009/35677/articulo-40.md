@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Licencias
+Artículo 40.—Inscripción de licencias contractuales. La Oficina creará dentro del Registro de variedades protegidas, un Registro de licencias de explotación a efecto de que los titulares de certificados de obtentor que hayan concedido licencias a terceros las inscriban. El asiento contendrá la siguiente información: el nombre del titular del certificado de obtentor, el del licenciante y el licenciatario, la especie y variedad objeto de la licencia, el número de inscripción de esa variedad. Para el registro de las licencias se deberá aportar una solicitud de inscripción de licencia con esta información.

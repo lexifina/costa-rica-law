@@ -1,0 +1,3 @@
+Artículo 14.—Oposición. Una vez publicada la solicitud, cualquiera que estime que no se debería otorgar el certificado de obtentor al solicitante podrá presentar a la Oficina, en el plazo de dos meses contados a partir de la fecha de publicación, la oposición. Esta, deberá estar debidamente fundamentada y acompañada de las pruebas correspondientes.
+En el caso que se presente una oposición, la Oficina lo comunicará al solicitante para que pueda responder a los alegatos en un plazo de treinta días posteriores a su notificación.
+Transcurrido el plazo para presentar oposiciones sin haberlas interpuesto o para responder los alegatos se procederá al examen de fondo. En la resolución de rechazo o admisión la Oficina resolverá la oposición.

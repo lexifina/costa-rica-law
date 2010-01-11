@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. La protección se extenderá a las variedades de todos los géneros y especies vegetales, exceptuándose las plantas silvestres de la biodiversidad costarricense que no hayan sido mejoradas por las personas.

@@ -1,0 +1,1 @@
+Artículo 28.—Copias certificadas. A pedido de cualquier interesado y previo pago de la tasa respectiva, la Oficina podrá expedir copias certificadas de los asientos e inscripciones que consten en el Registro, así como certificaciones de existencia o de no inscripción de una variedad.

@@ -1,0 +1,1 @@
+Artículo 12.—Retiro de la solicitud. El solicitante podrá retirar la solicitud mediante una manifestación por escrito dirigida a la Oficina. Si el retiro se tramita antes de la publicación tendrá derecho al reembolso del 50% de las tasas que se hubieren pagado.

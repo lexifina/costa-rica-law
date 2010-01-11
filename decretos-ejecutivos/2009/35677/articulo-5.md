@@ -1,0 +1,1 @@
+Artículo 5º—Cooperación en materia de examen. La Oficina estará facultada para concertar acuerdos administrativos de cooperación en materia de examen técnico de las variedades, y de control del mantenimiento de las variedades con las autoridades de aquellos países con los que se tengan convenios de colaboración.

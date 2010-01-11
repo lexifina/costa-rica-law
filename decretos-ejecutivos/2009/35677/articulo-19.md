@@ -1,0 +1,1 @@
+Artículo 19.—Protección provisional. La indemnización por daños y perjuicios a que tiene derecho el titular, con base en el artículo 9 de la ley, deberá ser reclamada en la vía jurisdiccional una vez concedido el certificado de obtentor.

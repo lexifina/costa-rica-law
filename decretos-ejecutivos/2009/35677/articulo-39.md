@@ -1,0 +1,1 @@
+Artículo 39.—Extinción del derecho. La extinción del derecho de obtentor por cualquier causa, conllevará la cancelación del certificado de obtentor vegetal en el Registro de variedades protegidas y la entrada de la variedad en el dominio público, sin perjuicio de las responsabilidades que se hubiesen podido derivar durante su vigencia.

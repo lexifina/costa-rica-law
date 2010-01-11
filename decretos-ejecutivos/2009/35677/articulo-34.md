@@ -1,0 +1,1 @@
+Artículo 34.—Visitas de verificación. Para ejercer las potestades que le confieren la Ley y este Reglamento y corroborar o comprobar el cumplimiento de éstas, la Oficina directamente o a través de alguna delegación, podrá ordenar y practicar visitas de verificación en todo tiempo y lugar.

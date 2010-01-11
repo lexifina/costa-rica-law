@@ -1,0 +1,1 @@
+Artículo 23.—Responsabilidad. El hecho de que el obtentor no haya ejercido razonablemente su derecho no exime de las responsabilidades a que hubiera lugar en contra de aquél o aquellas personas físicas o jurídicas que iniciaron la producción o la multiplicación de material de su variedad sin su autorización.
