@@ -28,3 +28,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 7. Informar costarricense estrategias Cuentas). a los Poderes de la República, a la ciudadanía y a la comunidad internacional, sobre los planes y estrategias de desarrollo adoptadas por el Gobierno (Rendición de cuentas).
 8. Dotar a la ciudadanía de las competencias lingüisticas que le permitan un mayor desarrollo personal y profesional como un interés legitimo del Estado.
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 52 a La Gaceta N° 254 del 31 de diciembre del 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35699 del 11 de enero de 2010)

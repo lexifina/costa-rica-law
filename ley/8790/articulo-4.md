@@ -25,3 +25,4 @@ INDICADORES DE RESULTADOS:
 2009 2010 2011 2012 2013
 01. Cobertura de la fiscalización integral hacia los riesgos prioritarios del universo de fiscalización. 0.00 71.00 72.00 73.00 74.00
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 52 a La Gaceta N° 254 del 31 de diciembre del 2009)
+(Modificado por el artículo 2° del decreto ejecutivo N° 35699 del 11 de enero de 2010)
