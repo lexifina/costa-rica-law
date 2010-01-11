@@ -14,3 +14,4 @@ Crea Registro de Importadores de Vegetales y Productos de Origen Vegetal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-12 | la propia norma |
+| 2 | 2010-01-11 | Decreto Ejecutivo 35753 (2010-01-11) |
