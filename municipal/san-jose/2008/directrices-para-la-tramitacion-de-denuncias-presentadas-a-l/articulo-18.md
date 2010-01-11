@@ -1,0 +1,2 @@
+Artículo 18.—La atención de denuncias trasladadas por la Contraloría General de la República: La Auditoría Interna atenderá, de acuerdo con su plan de trabajo, las denuncias que le sean remitidas por el Ente Contralor. No obstante, de acuerdo con el contenido de éstas, podrá dar prioridad a su atención en el menor tiempo posible.
+La Auditoría Interna deberá comunicar a la CGR lo de rigor.

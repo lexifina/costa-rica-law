@@ -1,0 +1,3 @@
+Artículo 8º—Requerimientos de recursos para la atención de denuncias: Para el ejercicio de las competencias asignadas por ley, en relación con las denuncias recibidas, la Auditoría Interna podrá requerir de criterios técnicos externos de laboratorios especializados, o profesionales de otras especialidades diferentes a la auditoría, para lo cual:
+a. Se gestionará la asignación presupuestaria de recursos ante las instancias pertinentes de la municipalidad.
+b. Se realizarán las solicitudes o requerimiento de recursos (profesionales o contratación de laboratorios especializados), ante otras instituciones públicas o al Departamento de Recursos y Materiales de la Municipalidad.

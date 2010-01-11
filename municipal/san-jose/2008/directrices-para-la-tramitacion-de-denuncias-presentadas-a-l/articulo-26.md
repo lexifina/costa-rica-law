@@ -1,0 +1,1 @@
+Artículo 26.—De los procedimientos de Auditoría. La Auditoría Interna utilizará los procedimientos establecidos en el Manual para el Ejercicio de la Auditoría, en el manual de Normas Generales de Auditoría para el Sector Público o aquellos que sean necesarios, cumpliendo con el ordenamiento jurídico.
