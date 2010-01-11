@@ -18,3 +18,4 @@ Productos y servicios, Ley de Protección del Exceso de Requisitos y Tramites Ad
 | 3 | 2007-04-02 | Acuerdo 0 (2007-04-02) |
 | 4 | 2008-07-18 | Acuerdo 0 (2008-07-18) |
 | 5 | 2009-04-27 | Acuerdo 0 (2009-04-27) |
+| 6 | 2010-01-11 | Acuerdo 0 (2010-01-11) |
