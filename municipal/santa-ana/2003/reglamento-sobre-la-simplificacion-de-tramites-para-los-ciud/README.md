@@ -14,3 +14,4 @@ Reglamento sobre la Simplificación de Trámites para los Ciudadanos del Cantón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-17 | la propia norma |
+| 2 | 2010-01-12 | Reglamento municipal 184 (2010-01-12) |
