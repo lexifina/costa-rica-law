@@ -1,1 +1,0 @@
-Artículo 4º.- El Plan Anual de Trabajo de cada entidad deberá especificar los planes, políticas, programas y proyectos a su cargo, sus objetivos, la gestión institucional para desarrollarlos, y los resultados esperados de su ejecución.

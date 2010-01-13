@@ -1,1 +1,0 @@
-Artículo 12.- MIDEPLAN seleccionará anualmente los planes, políticas, programas y proyectos que por su impacto estratégico en el desarrollo del País y de acuerdo con lo establecido en el artículo 1º requerirán de un proceso de evaluación externa.

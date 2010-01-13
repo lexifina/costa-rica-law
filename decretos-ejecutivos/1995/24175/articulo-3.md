@@ -1,1 +1,0 @@
-Artículo 3º.- Con base en los lineamientos de la estrategia y las prioridades establecidas en el Plan Nacional de Desarrollo, todas las instituciones públicas a que se refiere el artículo 1º de este Decreto, deberán elaborar, aprobar y adoptar un Plan Anual de Trabajo.
