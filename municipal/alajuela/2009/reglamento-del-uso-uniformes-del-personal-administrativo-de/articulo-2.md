@@ -1,0 +1,1 @@
+Artículo N° 2º—El uniforme será utilizado de lunes a viernes, por los funcionarios que reciban el beneficio del uniforme, cumpliendo el rol asignado por el Comité, el cual se les informará con la carta de compromiso que cada funcionario firme a la hora de la entrega del mismo.
