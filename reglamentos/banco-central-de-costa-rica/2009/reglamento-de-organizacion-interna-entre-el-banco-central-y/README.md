@@ -14,3 +14,4 @@ Reglamento de Organización Interna entre el Banco Central y sus Órganos de Des
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-01 | la propia norma |
+| 2 | 2010-01-13 | Reglamento 5447 (2010-01-13) |
