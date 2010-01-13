@@ -1,0 +1,13 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+COMUNICADO DE ACUERDO Nº SJD-886-2009
+En Sesión Ordinaria de Junta Directiva Nº 5613, Artículo 5, Inciso IV, celebrada el día 24 de noviembre del 2009, se tomó el siguiente acuerdo que textualmente dice:
+Se acuerda: De conformidad con el oficio Nº MPD-P-1278-2009 / AL-2101-2009, suscrito por el Macroproceso de Planeamiento y Desarrollo en conjunto con la Asesoría Legal, en ejecución de los Acuerdos N° SJD-412-2009 y SJD-818-2009 sobre ampliación del plazo para iniciar obras en la Zona Marítimo Terrestre, según las inquietudes planteadas por el Lic. Juan José Echeverría Alfaro del Bufete Echeverría y el Sr. José Espinach Mendieta de ICICOR S.A:
+1) Modificar el Acuerdo N° SJD-1194-2005 de fecha 16 de diciembre del 2005, en el inciso c, en lo que corresponde al plazo para iniciar obras en zona marítimo terrestre, quedando en veinticuatro meses, para que de ahora en adelante dicho acuerdo se lea de la siguiente manera:
+a) Incorporar dentro de los contratos de concesión una cláusula donde se detalle el porcentaje del monto de la garantía de ejecución del proyecto que pretende desarrollar todo concesionario, mismo que se recomienda en un 5%.
+b) Establecer como fecha última para el depósito de la garantía de cumplimiento el día de la firma del contrato de concesión.
+c) Solicitar a las municipalidades que dentro de los contratos de concesión se establezca un plazo perentorio para el inicio de las obras del proyecto que ofrece ejecutar el concesionario, bajo pena de que se inicie el procedimiento de cancelación de la concesión, el cual no debe ser mayor a veinticuatro meses después de formalizado el contrato.
+d) Ante el incumplimiento de algunas de estas condiciones, la Municipalidad deberá iniciar el proceso de cancelación de la concesión a efecto de otorgarla a otra persona física o jurídica con capacidad y disposición real de ejecutar el proyecto.
+2) Solicitar al Macroproceso Administrativo publicar en el Diario Oficial La Gaceta, el acuerdo aprobado como una modificación al Acuerdo SJD-1194-2005, que se había publicado en La Gaceta N° 29 del 7 de febrero del 2006.
+3) Instruir al Macroproceso de Planeamiento y Desarrollo comunicar a las Municipalidades con jurisdicción en zona marítimo terrestre, el acuerdo tomado que amplía el plazo para el inicio de obras en la zona marítimo terrestre, para que a partir de su publicación en La Gaceta, lo incorporen en los contratos de concesión que confeccionan
+4) Comunicar el presente acuerdo a los señores Lic. Juan José Echeverría Alfaro del Bufete Echeverría y al Sr. José Espinach Mendieta de ICICOR S. A.
+San José, 2 de diciembre del 2009.
