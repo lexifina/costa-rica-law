@@ -1,0 +1,27 @@
+Nº 35703-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 27 párrafo primero de la Ley General de Administración Pública; 1, 2, 3, 4, 7, 150 y siguientes, y 345 de la Ley 5395 del 30 de octubre de 1973 “Ley General de Salud; y 46 del Código Civil.
+Considerando:
+1º—Que de conformidad con el artículo 1 de la Ley General de Salud, la salud de la población es un bien de interés público tutelado por el Estado.
+2º—Que el artículo 2 de la Ley General de Salud le otorga al Ministerio de Salud, actuando a nombre del Estado, la función esencial de velar por la salud de la población.
+3º—Que mediante decreto ejecutivo Nº 35217-MP-S de 28 de abril de 2009, publicado en el Alcance a La Gaceta Nº 82 del 29 de abril de 2009, el Poder Ejecutivo decretó emergencia sanitaria nacional la atención de la epidemia humana de influenza A H1N1. Por ende, las autoridades públicas y la población en general quedan en la obligación de cumplir las disposiciones que, de carácter general o particular, dicten las autoridades de salud, para combatir o evitar la propagación de la epidemia.
+4º—Que la vacunación es una medida preventiva que busca que las personas adquieran inmunidad ante enfermedades producidas por microorganismos específicos.
+5º—Que el artículo 3 de la Ley General de Salud establece que todo habitante tiene derecho a las prestaciones de salud, en la forma que las leyes y reglamentos especiales determinen y el deber de proveer a la conservación de su salud y de concurrir al mantenimiento de la de su familia y la de la comunidad.
+6º—Que el artículo 150 de la Ley General de Salud establece que son obligatorias la vacunación y revacunación contra las enfermedades transmisibles que el Ministerio de Salud determine.
+7º—Que el artículo 345 de la Ley General de Salud establece que, sin perjuicio de las demás atribuciones inherentes a su cargo, corresponde especialmente al Ministro de Salud, en representación del Poder Ejecutivo, declarar obligatorios la vacunación contra ciertas enfermedades así como ciertos exámenes o prácticas que se estimen necesarios para prevenir o controlar enfermedades.
+8º—Que el artículo 46 del Código Civil establece que toda persona puede negarse a ser sometida a un examen o tratamiento médico o quirúrgico, con excepción de los casos de vacunación obligatoria o de otras relativas a la salud pública, entre otras.
+9º—Que el principio legal de protección de la salud de la población no es una recomendación o una intención que da la Ley General de Salud, sino que, por el contrario, es un derecho de aplicación inmediata, por lo que existe una obligación por parte de los organismos gubernamentales de vigilar porque se cumplan las disposiciones legales que tiendan a proteger la salud, teniendo el Ministerio de Salud la competencia para detectarlos y proceder de conformidad, todo con el fin de cumplir con su obligación de vigilante y garante de la salud de todos los ciudadanos del país.
+10.—Que las normas legales que establecen la competencia del Ministerio de Salud en materia de salud, consagran potestades de imperio implícitas para que aquel pueda dictar todas las medidas legales que fueren necesarias para enfrentar y resolver los estados de emergencia sanitarios.
+11.—Que en caso de peligro de epidemia, o de epidemia declarados por el Poder Ejecutivo, toda persona queda obligada a colaborar activamente con las autoridades de salud y, en especial, los funcionarios de la administración pública y los profesionales en ciencias de la salud.
+12.—Que las autoridades públicas están obligadas a aplicar el principio precautorio en materia sanitaria en el sentido de que deben tomar las medidas preventivas que fueren necesarias para evitar daños graves o irreparables a la salud de los habitantes.
+13.—Que la Caja Costarricense de Seguro Social ha adquirido un primer grupo de 200.000 dosis de vacunas contra el virus de la Influenza Humana A-H1N1.
+14.—Que el Ministerio de Salud, asesorado por la Comisión Nacional de Vacunación y Epidemiología, ha revisado el comportamiento epidemiológico y clínico a nivel nacional e internacional, para determinar cuál debe ser la población a vacunar en nuestro país. Estas recomendaciones están acordes con las emitidas por las autoridades sanitarias de la Organización Panamericana de la Salud/Organización Mundial de la Salud. Por tanto,
+Decretan:
+Declaratoria de vacunación obligatoria contra
+el Virus de la Influenza Humana A-H1N1
+Artículo 1º—Declárase obligatoria la vacunación contra el virus de la Influenza Humana A-H1N1 y se establecen las siguientes prioridades de vacunación:
+a) Mujeres embarazadas en el último trimestre del mismo.
+b) Niños mayores de 6 meses, adolescentes y adultos, que cuenten todos con condiciones de riesgo como asma, enfermedad pulmonar obstructiva crónica, oxigeno dependientes, diabéticos, hipertensos, cardiópatas con cardiopatías congénitas o adquiridas, inmunosuprimidos a quienes su médico tratante recomiende la vacuna, en apego a los lineamientos específicos emitidos por el Ministerio de Salud.
+c) Personal sanitario de atención directa a las personas ya sea a nivel hospitalario o extrahospitalario.
+Los casos de excepción, por razón médica debidamente comprobada mediante dictamen, serán autorizados sólo por el médico correspondiente de la Caja Costarricense de Seguro Social.
