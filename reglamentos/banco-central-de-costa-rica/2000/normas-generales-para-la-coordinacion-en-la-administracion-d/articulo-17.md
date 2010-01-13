@@ -1,1 +1,0 @@
-Artículo 17.—Los bienes inmuebles donde se encuentran instaladas las colecciones del Banco Central de Costa Rica, así como los objetos y colecciones que las conforman, seguirán siendo de su propiedad. Consecuentemente, le corresponderá velar y cubrir los costos relacionados con el mantenimiento, restauración, reparaciones y seguros.

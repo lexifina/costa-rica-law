@@ -1,2 +1,0 @@
-Artículo 11.—El inventario de los objetos de las colecciones ubicadas en los Museos del Banco Central de Costa Rica, que serán administradas por la Fundación, será llevado a cabo por la Gerencia del Banco Central.
-La Gerencia del Banco Central de Costa Rica, así como la Fundación, deberán mantener debidamente actualizado un registro fotográfico de todos los objetos que conforman las distintas colecciones, bajo la responsabilidad de esa Fundación, con todas sus características técnicas.

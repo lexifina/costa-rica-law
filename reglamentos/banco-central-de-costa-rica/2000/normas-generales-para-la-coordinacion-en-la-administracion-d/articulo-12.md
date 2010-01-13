@@ -1,1 +1,0 @@
-Artículo 12.—El traspaso al patrimonio de la Fundación del mobiliario y el equipo de oficina adscritos al Departamento de Museos del Banco Central de Costa Rica, se efectuará con base en un inventario que realizarán conjuntamente las dependencias indicadas en el artículo anterior. Dichos bienes serán excluidos del patrimonio del Banco.

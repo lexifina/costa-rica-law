@@ -1,1 +1,0 @@
-Artículo 15.—La Gerencia del Banco deberá establecer y llevar los controles de inventario correspondientes a las colecciones del Banco Central de Costa Rica y velar por el correcto aseguramiento de éstas; dichos costos serán asumidos por el Banco Central.

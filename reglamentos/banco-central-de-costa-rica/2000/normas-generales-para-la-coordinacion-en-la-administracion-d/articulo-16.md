@@ -1,4 +1,0 @@
-Artículo 16.—
-a) La Fundación se encargará de todos los aspectos relativos a la conservación, restauración y valoración de los objetos de las colecciones bajo su responsabilidad, de conformidad con los procedimientos establecidos. Sobre ese tipo de trabajos, semestralmente enviará un informe detallado a la Gerencia del Banco Central de Costa Rica.
-b) Para efectos de la movilización externa de tales objetos (que implique su salida del edificio de los Museos), con el propósito de llevar a cabo alguna actividad de la propia Fundación, ésta deberá contar previamente con una autorización expresa de la Gerencia del Banco Central de Costa Rica.
-c) La Gerencia del Banco Central de Costa Rica será la encargada del mantenimiento, conservación, restauración y valoración de los bienes inmuebles en donde se encuentran instalados los Museos del Banco Central.
