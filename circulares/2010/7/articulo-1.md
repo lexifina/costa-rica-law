@@ -1,0 +1,8 @@
+CIRCULAR Nº 007-10
+Asunto: Salario base sobre el cual se definen las penas a aplicar por la comisión de diversas figuras delictivas contenidas en el Código Penal, y a) Ley N° 7983 “Ley de Protección al Trabajador”, que reformó el artículo 614 del Código de Trabajo; b) Ley N° 8656 “Modificación de varios artículos de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual N° 8039” y c) Ley 8779 “Reforma de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331 de 13 de abril de 1993 y sus reformas”, durante el 2010.
+A LAS AUTORIDADES JUDICIALES QUE TRAMITAN
+LA MATERIA PENAL, INSTITUCIONES, ABOGADOS
+Y PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 00-10 celebrada el 12 de enero de 2010, artículo XLV, de conformidad con el párrafo 3° del artículo 2° de la Ley N° 7337 de 5 de mayo de 1993, que reformó varios artículos del Código Penal; Ley N° 7983 “Ley de Protección al Trabajador” del 16 de febrero del 2000, que reformó el artículo 614 del Código de Trabajo; Transitorio I de la Ley N° 8656 denominada “Modificación de varios artículos de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual N° 8039” de 18 de julio del 2008, y Ley N° 8779 “Reforma de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331 de 13 de abril de 1993 y sus reformas”, del 17 de setiembre de 2009; acordó comunicarles que a partir del 01 de enero del 2010, el salario base a aplicar para definir las penas por la comisión de diversas figuras delictivas contenidas en el referido Código y las citadas Leyes, es de ¢ 293.400,00 (doscientos noventa y tres mil cuatrocientos colones exactos).
+San José, 13 de enero de 2010.
