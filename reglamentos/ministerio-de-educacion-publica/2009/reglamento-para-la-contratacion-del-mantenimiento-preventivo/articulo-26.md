@@ -1,0 +1,1 @@
+Artículo 26.—Procedimiento de pago. Los pagos al contratista se harán por la forma usual de la institución. (mediante acuerdo de pago y depósito en la cuenta corriente del Contratista), dentro de los siguientes 30 días naturales a la entrega del bien y/o prestación del servicio, según Directriz Nº 033-H, publicada en La Gaceta Nº 64 del 01 de abril del 2009.

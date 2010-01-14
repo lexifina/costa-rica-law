@@ -1,0 +1,1 @@
+Artículo 21.—Precios. Los precios ofrecidos se entenderán firmes, definitivos e irrevocables, por lo tanto, no deben estar sujetos a confirmación o condición alguna. Los impuestos que afectan la cotización deberán estar incluidos en el precio.
