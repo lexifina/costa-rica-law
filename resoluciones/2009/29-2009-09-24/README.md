@@ -15,3 +15,4 @@ Obligación de los sujetos pasivos del Impuesto Solidario de registrarse y hacer
 | --- | --- | --- |
 | 1 | 2009-09-29 | la propia norma |
 | 2 | 2009-12-11 | Resolución 34 (2009-12-11) |
+| 3 | 2010-01-14 | Resolución 3 (2010-01-14) |
