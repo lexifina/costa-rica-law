@@ -1,0 +1,2 @@
+Estructura de numeración – códigos de preselección
+VII.—Que de conformidad con el artículo 12.3.b inciso i) del Plan Nacional de Numeración, Decreto 35187-MINAET se establecen los códigos de preselección de operador como el código que se digita de previo a la marcación del destino nacional o internacional, que identifica la red del operador o proveedor a través del cual se desea realizar la comunicación, que será asignado por la SUTEL y que consta de un máximo de 5 dígitos.

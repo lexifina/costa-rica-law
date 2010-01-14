@@ -1,0 +1,2 @@
+Registro de Numeración vigente
+XIV.—Que con la finalidad de promover el uso eficiente del recurso numérico y de conformidad con lo establecido en el pliego tarifarlo vigente para los servicios móviles en modalidad prepago publicado en La Gaceta Nº 71 del 11 de abril del 2008, los operadores y proveedores deberán reutilizar la numeración asignada a sus clientes en modalidad prepago, si estos no han efectuado la recarga respectiva de su servicio dentro de los 5 días posteriores al vencimiento de su plan de consumo.

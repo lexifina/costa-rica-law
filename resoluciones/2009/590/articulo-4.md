@@ -1,0 +1,2 @@
+IV.—Que de acuerdo con lo anterior, la estructura de los números especiales será de la forma 1XYZ (donde XYZ son dígitos del 0 al 9).
+(Nota de Sinalevi: Mediante resolución RCS-412 del 2 de setiembre de 2010, se establece que el cambio de números especiales de 3 a 4 dígitos y la asignación de códigos de preselección manual de operador, para el próximo 11 de enero del 2011, de conformidad con las condiciones establecidas en este punto)

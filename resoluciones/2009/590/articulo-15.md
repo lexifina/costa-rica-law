@@ -1,0 +1,1 @@
+XV.—Que el Registro de Numeración de asignación vigente, considera la numeración para todos los servicios de telecomunicaciones disponibles al público, incluyendo la asignación de códigos de preselección de operador, números especiales, números 800, 900, 905, numeración para servicios de mensajería corta SMS y MMS.
