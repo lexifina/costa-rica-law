@@ -1,0 +1,1 @@
+Artículo 5º—Fiscales. Son fiscales, los ciudadanos designados por los partidos políticos para que los representen ante las juntas electorales. Tendrán las atribuciones establecidas en el Código Electoral y en las demás disposiciones normativas emitidas por el TSE.

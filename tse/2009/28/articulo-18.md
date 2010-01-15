@@ -1,0 +1,1 @@
+Artículo 18.—Ubicación de partidos en la papeleta. Los partidos políticos se ubicarán en dos filas, una bajo la otra, siguiendo el orden establecido previamente en la rifa realizada en presencia de los representantes de los partidos políticos. Se ubicarán de acuerdo al formato previamente aprobado por el TSE.

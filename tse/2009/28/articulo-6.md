@@ -1,0 +1,1 @@
+Artículo 6º—Auxiliares Electorales. Son auxiliares electorales, los ciudadanos nombrados por el TSE para que asesoren a las juntas receptoras e informen al TSE de cualquier incidencia que se produzca. No forman parte de las juntas receptoras; no obstante, ante la ausencia temporal o permanente de todos los miembros de dichas juntas, deberán asumir sus funciones.

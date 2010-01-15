@@ -1,0 +1,2 @@
+Artículo 15.—Custodia de la documentación y material electoral. Una vez finalizada la votación, la totalidad de la documentación electoral y el material electoral deberán ser entregados a la junta cantonal correspondiente, la que a su vez los entregarán, a la brevedad posible, al TSE o a los representantes que éste designe.
+Deberá prestarse especial cuidado en no introducir en las bolsas plásticas ni en los sacos de tula el “Mensaje oficial para transmisión de datos” ni la “Certificación de votos junta receptora de votos”.
