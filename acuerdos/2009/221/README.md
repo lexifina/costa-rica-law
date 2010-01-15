@@ -14,3 +14,4 @@ Ordenamiento de la Actividad Pesquera en las Aguas Marinas Jurisdiccionales, med
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-30 | la propia norma |
+| 2 | 2010-01-15 | Acuerdo 16 (2010-01-15) |

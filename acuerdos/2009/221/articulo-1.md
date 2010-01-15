@@ -23,7 +23,8 @@ Aprobar el:
 ORDENAMIENTO DE LA ACTIVIDAD PESQUERA EN LAS AGUAS
 MARINAS JURISDICCIONALES, MEDIANTE EL OTORGAMIENTO
 DE LICENCIAS DE PESCA COMERCIAL POR PRIMERA VEZ
-Artículo 1º—La Junta Directiva del INCOPESCA autoriza renovar de manera extemporánea y el otorgamiento y emisión de Licencias de Pesca Comercial por Primera Vez, excepto Flota SemiIndustrial, de conformidad con las regulaciones del presente acuerdo, a aquellas personas físicas que en un plazo improrrogable de 90 días hábiles a partir de la publicación del presente acuerdo, cumplan con los siguientes requisitos:
+(*)Artículo 1º—La Junta Directiva del INCOPESCA autoriza renovar de manera extemporánea y el otorgamiento y emisión de Licencias de Pesca Comercial por Primera Vez, excepto Flota SemiIndustrial, de conformidad con las regulaciones del presente acuerdo, a aquellas personas físicas que en un plazo improrrogable de 90 días hábiles a partir de la publicación del presente acuerdo, cumplan con los siguientes requisitos:
+(*)(Nota de Sinalevi: Mediante el acuerdo N° A.J.D.L.P./016-2010 del 15 de enero de 2010, se establece como plazo último, definitivo e improrrogable en la presentación de requisitos para la obtención de licencias de pesca por primera vez, el día 28 de febrero de 2010)
 a) Fórmula de solicitud debidamente completada.
 b) Presentar cédula de identidad vigente en original y aportar fotocopia por ambos lados o cédula de residencia vigente, y aportar fotocopia completa.
 c) Aportar una certificación de propiedad de la embarcación a su nombre, del Registro Nacional de Buques vigente, con no más de dos meses calendario de haber sido emitida.
