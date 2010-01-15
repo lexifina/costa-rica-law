@@ -47,3 +47,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 18.Capacitar a los servidores judiciales a través de la Escuela Judicial; las comisiones deben coordinar lo pertinente con esta dependencia en esa materia.
 19.Plantear un sistema de Evaluación del Desempeño de los servidores judiciales, donde se integren los diferentes ámbitos institucionales que permita unir los esfuerzos bajo una dirección común.
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 52 a La Gaceta N° 254 del 31 de diciembre del 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35699 del 11 de enero de 2010)
