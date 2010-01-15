@@ -1,3 +1,1 @@
-CAPÍTULO IV
-De los requisitos de construcción de las terminales
-Artículo 13.—En todo proceso de trámites y construcción se deberán respetar íntegramente la Ley de Igualdad de Oportunidades para personas con discapacidad Nº 7600, la Ley de Construcciones y su Reglamento, los reglamentos especiales de la Municipalidad y la presente normativa.
+Artículo 13.—Demarcación interna. Todo automotor que circule dentro del estacionamiento tendrá la obligación de respetar los espacios demarcados.

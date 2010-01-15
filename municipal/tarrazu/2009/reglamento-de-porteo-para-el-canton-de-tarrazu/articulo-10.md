@@ -1,1 +1,4 @@
-Artículo 10.—Medidas de entradas y salidas. Las cuales deberán ser independientes, al ancho mínimo permitido de las entradas y salidas será de 2,50 m para cada una. Los radios de giro deberán ajustarse mínimo a 4,66 m de trayectoria de la saliente trasera y los carriles de circulación deberán medir por lo menos 3,00 m de ancho.
+DE LAS TERMINALES
+CAPÍTULO III
+Del espacio físico de las terminales
+Artículo 10.—Capacidad: Las terminales de porteo no podrán albergar un número de vehículos que exceda de la capacidad establecida en el Reglamento de Construcciones y autorizada por la Municipalidad, mediante el Departamento de Ingeniería. Por tanto, los patentados deberán vigilar que se cumpla con esta disposición bajo entera responsabilidad.

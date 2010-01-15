@@ -1,1 +1,3 @@
-Artículo 15.—Los servicios sanitarios deberán ir precedidos por vestíbulos, independientes para hombres y mujeres, a razón de un mingitorio, un inodoro y un lavamanos respectivamente.
+CAPÍTULO IV
+De los requisitos de construcción de las terminales
+Artículo 15.—En todo proceso de trámites y construcción se deberán respetar íntegramente la Ley de Igualdad de Oportunidades para personas con discapacidad Nº 7600, la Ley de Construcciones y su Reglamento, los reglamentos especiales de la Municipalidad y la presente normativa.

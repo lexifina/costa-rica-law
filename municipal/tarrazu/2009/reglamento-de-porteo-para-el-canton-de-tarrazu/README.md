@@ -14,3 +14,4 @@ Reglamento de Porteo para el cantón de Tarrazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-09 | la propia norma |
+| 2 | 2010-01-15 | Reglamento municipal 0 (2010-01-15) |

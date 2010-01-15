@@ -1,6 +1,1 @@
-Artículo 19.—Infracciones. Además de las infracciones contempladas en la Ley y el Reglamento de Construcciones, se considerarán como tal:
-a) No obedecer órdenes sobre modificaciones, suspensión o destrucción de obras debidamente notificadas por la Municipalidad.
-b) Usar indebidamente la vía pública.
-c) Usar indebidamente los servicios públicos.
-d) Ocupar o usar una construcción antes de haber dado aviso de la terminación de la obra.
-e) Impedir o estorbar a los Inspectores Municipales cumplir su cometido.
+Artículo 19.—Toda construcción deberán contar con ventilación y luz natural, dicha condición deberá especificarse claramente en los planos de construcción.

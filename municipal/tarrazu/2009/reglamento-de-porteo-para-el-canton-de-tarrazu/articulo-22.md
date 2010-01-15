@@ -1,1 +1,1 @@
-Artículo 22.—Si el propietario presenta el proyecto respectivo y el mismo es aceptado, la Municipalidad deberá comprobar si la obra ha sido ejecutada de acuerdo con el proyecto y si ambos, satisfacen los requisitos exigidos por la normativa correspondiente. En tal caso, se autorizará de inmediato el funcionamiento.
+Artículo 22.—Las multas y otras penas relacionadas con las terminales de porteo se impondrán al propietario de la Terminal, o al patentado que infrinja la normativa vigente y este Reglamento.

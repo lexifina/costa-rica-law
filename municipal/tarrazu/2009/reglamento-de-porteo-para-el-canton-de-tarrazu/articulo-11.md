@@ -1,1 +1,1 @@
-Artículo 11.—Demarcación interna. Todo automotor que circule dentro del estacionamiento tendrá la obligación de respetar los espacios demarcados.
+Artículo 11.—Tamaño de espacios. Las dimensiones mínimas de cada espacio de estacionamiento dentro de la Terminal serán de 2,50 m de ancho por 5,00 m de largo. El diez por ciento (10%) del total del área de estacionamiento se destinará a espacios de 3,00 m de ancho por 6,00 m de largo.

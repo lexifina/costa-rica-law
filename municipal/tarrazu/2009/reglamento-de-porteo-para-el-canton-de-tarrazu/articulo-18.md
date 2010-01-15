@@ -1,6 +1,1 @@
-CAPÍTULO V
-Régimen disciplinario
-SECCIÓN ÚNICA
-Sanciones
-Artículo 18.—Facultades. La Municipalidad puede imponer sanciones por las infracciones a las reglas de este Reglamento en concordancia con las que al efecto establece la Ley de Construcciones Nº 833 y su Reglamento.
-Las Sanciones según el caso podrán ser entre otras: multas, clausuras, suspensión, cancelación de la patente, desocupación, destrucción de la obra.
+Artículo 18.—En todos los casos la casetilla de control deberá contar con un área de espacio para atención al público no menor de cuatro metros cuadrados ( 4 m² ).
