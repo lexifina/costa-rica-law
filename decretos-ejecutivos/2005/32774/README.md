@@ -14,3 +14,4 @@ Código de Moral Profesional del Contador Privado Incorporado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-30 | la propia norma |
+| 2 | 2010-01-17 | Reglamento 127 (2010-01-17) |

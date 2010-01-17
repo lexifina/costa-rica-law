@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32774
+(Este decreto fue Derogado mediante el artículo 30 del Código de Deberes Morales, Éticos y Jurídicos del Colegio de Contadores Privados de Costa Rica, aprobado en asamblea general extraordinaria N° 127 del 17 de enero de 2010)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En ejercicio de las atribuciones que les confiere los artículos 140 incisos 3) y 18) y 146 de la Constitución Política y en cumplimiento de lo dispuesto en los artículos 21, 23, 25, 27 inciso 1) y 28.2, acápite b) de la Ley N° 6227 General de la Administración Pública del 2 de mayo de 1978; Ley N° 1269 del dos de marzo de 1951, Ley Orgánica del Colegio de Contadores Privados de Costa Rica, así como lo establecido en el Decreto Ejecutivo Nº 16311-P, del cuatro de junio de 1985,
