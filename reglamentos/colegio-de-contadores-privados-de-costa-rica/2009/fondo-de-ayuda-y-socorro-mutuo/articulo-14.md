@@ -1,1 +1,0 @@
-Artículo 14.—Aquellos Mutualistas que hayan sido separados del Fondo por morosidad o renuncia y que deseen reingresar al mismo deberán cancelar todas las cuotas dejadas de pagar desde su separación hasta la fecha de reingreso, así como las multas, intereses y gastos administrativos que la Junta Directiva del Colegio establezca.

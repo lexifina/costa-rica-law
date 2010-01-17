@@ -1,1 +1,0 @@
-Artículo 13.—Todo reclamo por inconformidad de los mutualistas o beneficiarios de estos, sobre una resolución del FASMU deberá presentarse ante la Junta Directiva del Colegio, en un plazo no mayor de tres días hábiles, esta tendrá facultad para resolver en alzada, previa consulta al FASMU y con el sustento jurídico pertinente o técnico respectivo.

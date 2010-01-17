@@ -1,1 +1,0 @@
-Artículo 32.—En caso de atraso reiterado por parte de la Administración en el reintegro del dinero recaudado por cuenta del FASMU, el Consejo tendrá facultad para solicitar a la Junta Directiva, que convoque a asamblea general.

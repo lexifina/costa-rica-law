@@ -1,1 +1,0 @@
-Artículo 37.—En el caso de que el Colegio exima parcialmente al Colegiado de su colegiatura este está en la obligación de continuar pagando los aportes mensuales y consecutivos del Fondo de Ayuda y Socorro Mutuo en vista de que no existe exoneración de los aportes mensuales y consecutivos del FASMU, para no perder los beneficios que este Fondo otorga.
