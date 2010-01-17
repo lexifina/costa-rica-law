@@ -1,0 +1,3 @@
+Transitorio único
+Con el único propósito de adecuar los nombramientos de los miembros de las Juntas Directivas y Fiscales de los Consejos Regionales, a la reforma aprobada en la asamblea Nº 126-2009 del 23 de agosto del 2009, al artículo 13 del Reglamento, en todas las Asambleas que se celebren en el año 2010, se elegirá a todos los miembros, por un período de dos años, independientemente de que cumplan o no el período al momento de celebrar dichas asambleas. Aprobado en sesión ordinaria 3347-2010, celebrada por la junta directiva el 12 de enero de 2010. A
+(Así adicionado en sesión N° 127 del 17 de enero de 2010)

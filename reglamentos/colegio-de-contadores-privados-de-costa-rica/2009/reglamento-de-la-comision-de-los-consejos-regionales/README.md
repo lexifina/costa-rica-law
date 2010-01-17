@@ -14,3 +14,4 @@ Reglamento de la Comisión de los Consejos Regionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-04 | la propia norma |
+| 2 | 2010-01-17 | Reglamento 127 (2010-01-17) |
