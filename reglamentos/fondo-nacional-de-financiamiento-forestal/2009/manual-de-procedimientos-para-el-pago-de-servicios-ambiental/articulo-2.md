@@ -1,5 +1,6 @@
-2. Criterios de priorización de proyectos. Las áreas prioritarias para el Pago de Servicios Ambientales (PSA), en las modalidades de reforestación, protección de bosque, protección de bosque en vacíos de conservación, protección de recurso hídrico, recuperación de cobertura mediante regeneración natural y plantación de árboles forestales en SAF, serán las establecidas en este Manual y el respectivo Decreto, las cuales serán aplicadas para la selección de los proyectos que se considerarán en el programa de PSA. Solamente, cuando la demanda nacional de las áreas prioritarias ha sido satisfecha, se aceptarán proyectos en otras áreas que oportunamente el FONAFIFO dará a conocer.
+2. Criterios de priorización de proyectos. Las áreas prioritarias para el Pago de Servicios Ambientales (PSA), serán las establecidas mediante el Decreto Ejecutivo que emitirá el Poder Ejecutivo, en las modalidades de protección, reforestación, recuperación de cobertura mediante regeneración natural, manejo de bosque y plantación de árboles forestales en SAF, los cuales serán aplicados para la selección de los proyectos que se considerarán en el programa de PSA. Solamente, en aquellos casos cuando la demanda nacional de las áreas prioritarias ha sido satisfecha, se aceptarán proyectos en otras áreas que oportunamente el FONAFIFO dará a conocer.
 Para inmuebles que se encuentren sobre el límite de las áreas prioritarias se considerarán para efectos del Programa de PSA aquellas que al menos tengan un 30% dentro de dichas áreas.
+(Así reformado los dos párrafos anteriores en sesión N° 01 del 18 de enero de 2010)
 Las presolicitudes de PSA se regirán por los siguientes criterios de priorización considerado en el siguiente orden de prioridad:
 2.1. Proyectos de Reforestación.
 2.1.1 Los sitios que presenten un alto potencial productivo para el desarrollo de plantaciones forestales a excepción de las clases de capacidad de uso VII y VIII (Metodología para la Determinación de la Capacidad de Uso de las Tierras de Costa Rica, Nº 23214-MAG-MIRENEM).
@@ -25,9 +26,13 @@ c. Como prioridad 3 los vacíos de conservación en terrenos privados fuera de A
 2.3.3 Áreas de bosque que tengan como función principal la protección del recurso hídrico, consideradas de interés para acueductos rurales, proyectos de Acueductos y Alcantarillado y las empresas de servicios públicos, los cuales deben estar respaldados mediante una certificación emitida por el administrador del acueducto respectivo.
 2.4. Proyectos de Establecimiento de Árboles Forestales en SAF.
 2.4.1 Se dará prioridad a proyectos tramitados por organizaciones que tengan convenio vigente con el FONAFIFO.
-2.4.2 Tierras con capacidad de uso2 VI, V, IV, III, II, I.
-2 Ministerio de Agricultura y Ganadería. 1995. Metodología para la Determinación de la Capacidad de Uso de las Tierras de Costa Rica. San José, Costa Rica. 60p.
+2.4.2 Tierras con capacidad de uso2, I, II, III, IV, V y VI.
+(2) Ministerio de Agricultura y Ganadería. 1995. Metodología para la Determinación de la Capacidad de Uso de las Tierras de Costa Rica. San José, Costa Rica. 60p.
+(Así reformado el inciso anterior en sesión N° 01 del 18 de enero de 2010)
 2.4.3 Áreas en convenios específicos con FONAFIFO.
 2.5. Proyectos de Regeneración Natural.
 2.5.1 Proyectos de regeneración natural en pastos y potreros, que se podrán realizar solo en áreas definidas como tierras Kyoto u otras que se reconozca un pago adicional por los créditos de carbono que el FONAFIFO pueda comercializar, que hayan sido deforestadas antes del 31 de diciembre de 1989.
 2.5.2 Proyectos de regeneración natural con potencial productivo o potreros abandonados, en sitios con al menos un año de abandono y libres de pastoreo, (Anexo 15).
+(*)2.6. Proyectos de Manejo de Bosque.
+2.6.1 Inmuebles que tienen planes de manejo aprobados por la Administración Forestal del Estado, en los cuales se realizó la cosecha de acuerdo a los Estándares de Sostenibilidad para Manejo de Bosques Naturales: Principios, Criterios e Indicadores, Código de Prácticas y Manual de Procedimientos, de acuerdo al Decreto Ejecutivo Nº 34559-MINAE, publicado en La Gaceta Nº 115 del día lunes 16 de junio del 2008, la Administración Forestal de Estado (AFE) certificará el cumplimiento de lo establecido en el plan de manejo.
+(*)(Así adicionado el inciso anterior en sesión N° 01 del 18 de enero de 2010)

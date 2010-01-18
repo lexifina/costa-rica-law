@@ -14,3 +14,4 @@ Manual de Procedimientos para el pago de Servicios Ambientales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-06 | la propia norma |
+| 2 | 2010-01-18 | Reglamento 1 (2010-01-18) |
