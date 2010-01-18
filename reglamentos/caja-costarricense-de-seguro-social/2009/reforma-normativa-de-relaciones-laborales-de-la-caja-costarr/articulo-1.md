@@ -1,0 +1,16 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 11 de la sesión Nº 8397, celebrada el 12 de noviembre del 2009, acordó reformar el artículo 21 de la Normativa de Relaciones Laborales, para que en lo sucesivo disponga:
+NORMATIVA DE RELACIONES LABORALES
+“Artículo 21.—La Caja pagará por concepto de cesantía a todo trabajador (a) que cese sus funciones, cuando la terminación de contrato sea por:
+Pensión por vejez o invalidez del Régimen de la CCSS y a otros regímenes del Estado.
+Fallecimiento del trabajador (a).
+Despido por reorganización o por falta de fondos.
+Despido con responsabilidad patronal por incapacidad física o mental del trabajador (a), a causa de un riesgo de trabajo que le imposibilite desempeñar sus labores habituales, que no haya habido pronunciamiento de invalidez y que no hubiera sido posible su reubicación en otra clase de labor. Para estos casos debe observarse lo que al respecto establece el artículo 46 de estas Normas.
+El monto por reconocer por cesantía se calculará según los años de servicio. El monto máximo se incrementará progresivamente, de acuerdo con las siguientes disposiciones:
+a. Trabajadores que cumplen con los supuestos para el reconocimiento de la cesantía a partir del 1º de julio del año 2009, un beneficio equivalente a un mes de sueldo por cada año o fracción no menor a seis meses de servicio hasta un máximo de 15 (quince) meses.
+b. Trabajadores que cumplen con los supuestos para el reconocimiento de la cesantía a partir del 1º de julio del año 2010 y cuenten con al menos 18 (dieciocho) años de servicio, el beneficio equivaldrá a un máximo de 16 (dieciséis) meses.
+c. Trabajadores que cumplen con los supuestos para el reconocimiento de la cesantía a partir del 1º de julio del año 2011 y cuenten con al menos 21 (veintiún) años de servicio, el beneficio equivaldrá a un máximo de 17 (diecisiete) meses.
+d. Trabajadores que cumplen con los supuestos para el reconocimiento de la cesantía a partir del 1º de julio del año 2012 y cuenten con al menos 24 (veinticuatro) años de servicio, el beneficio equivaldrá a un máximo de 18 (dieciocho) meses. A partir del 1º de julio del año 2013, para gozar el beneficio de 18 (dieciocho) meses de sueldo, se deberá contar con al menos 27 (veintisiete) años de servicio.
+e. Trabajadores que cumplen con los supuestos para el reconocimiento de la cesantía a partir del 1º de julio del año 2014, y cuenten con al menos 30 (treinta) años de servicio, el beneficio equivaldrá a un máximo de 19 (diecinueve) meses. A partir del 1º de julio de 2015, para gozar el beneficio de 19 (diecinueve) meses de sueldo, se deberá contar con al menos 33 (treinta y tres) años de servicio.
+f. Trabajadores que cumplen con los supuestos para el reconocimiento de la cesantía a partir del 1º de julio del año 2016 y cuenten con al menos 36 (treinta y seis) años de servicio, el beneficio equivaldrá a un máximo de 20 (veinte) meses.
+Conforme se cumplan las fechas establecidas en cada uno de los incisos anteriores, los trabajadores que no cuenten con los años de servicio para obtener el monto máximo de cesantía, se les cancelará por este concepto, según el inciso correspondiente, en función de sus años de servicio.”
