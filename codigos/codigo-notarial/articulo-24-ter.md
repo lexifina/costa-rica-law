@@ -1,0 +1,3 @@
+Artículo 24 ter.-Financiamiento
+Para el cumplimiento de sus fines, la Dirección Nacional de Notariado se financiará de conformidad con lo dispuesto en el artículo 185 de este Código, así como mediante el producto del cobro de los servicios administrativos que realice la Dirección por medio de sus órganos, tales como autorización de tomos de protocolo, la autenticación de firmas y la reposición de tomos. Las tarifas para el cobro de los servicios administrativos se definirán por medio del reglamento que deberá emitir el Consejo Superior Notarial.
+(Así adicionado por el aparte b) del artículo 1º de la ley N° 8795 del 4 de enero de 2010)
