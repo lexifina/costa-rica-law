@@ -1,0 +1,2 @@
+TRANSITORIO I.-
+El personal de la Dirección Nacional de Notariado que se encuentre laborando con nombramiento en propiedad, en el momento en que se lleve a cabo la ubicación de esa dependencia fuera del Poder Judicial, mantendrá el derecho de continuar cotizando para el Fondo de Pensiones y Jubilaciones del Poder Judicial. Quien tenga derecho a acogerse al beneficio de la jubilación, por reunir los requisitos o por contar con su aprobación, podrá ejecutarlo en el momento del traslado o continuar cotizando para dicho Fondo y jubilarse cuando lo considere pertinente.
