@@ -1,15 +1,6 @@
-ARTICULO 141.- La Secretaría de la Corte Suprema de Justicia es el
-órgano de comunicación entre el Poder Judicial y los otros Poderes del
-Estado, así como entre estos y los funcionarios judiciales. Además, se
-encargará de comunicar los acuerdos de la Corte Plena y el Consejo.
-El Secretario de la Corte se encargará de autenticar firmas de los
-notarios y funcionarios judiciales en los documentos que deban enviarse
-al exterior, sin perjuicio de que también pueda hacerlo el Presidente del
-Poder Judicial.
-Además, el Secretario asistirá al Presidente de la Corte en las
-funciones administrativas asignadas a él y será el secretario del
-Consejo.
-Tanto los Secretarios de la Corte como los de las Salas deberán ser
-abogados.
-(Así reformado por el artículo 5º de la Ley de Reorganización
-Judicial No.7728 de 15 de diciembre de 1997)
+ARTICULO 141.- La Secretaría de la Corte Suprema de Justicia es el órgano de comunicación entre el Poder Judicial y los otros Poderes del Estado, así como entre estos y los funcionarios judiciales. Además, se encargará de comunicar los acuerdos de la Corte Plena y el Consejo.
+El secretario de la Corte se encargará de autenticar firmas de los funcionarios judiciales en los documentos que deban enviarse al exterior, sin perjuicio de que también pueda hacerlo el presidente del Poder Judicial.
+(Así reformado el párrafo anterior por el artículo 2º de la ley N° 8795 del 4 de enero de 2010)
+Además, el Secretario asistirá al Presidente de la Corte en las funciones administrativas asignadas a él y será el secretario del Consejo.
+Tanto los Secretarios de la Corte como los de las Salas deberán ser abogados.
+(Así reformado por el artículo 5º de la Ley de Reorganización Judicial No.7728 de 15 de diciembre de 1997)
