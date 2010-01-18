@@ -1,0 +1,4 @@
+Artículo 24 bis.- Recursos y agotamiento de la vía administrativa
+Las resoluciones del Consejo Superior Notarial tendrán únicamente recurso de reconsideración. Las resoluciones que dicte el director ejecutivo tendrán únicamente recurso de reconsideración, excepto las que impliquen la denegatoria de habilitación, la inhabilitación o cualquier otra sanción disciplinaria contra el notario, las cuales tendrán recurso de revocatoria con apelación en subsidio ante el Consejo Superior Notarial.
+Todos los recursos deberán interponerse conjuntamente dentro de los cinco días hábiles siguientes a la notificación del acto que se recurre. Resueltos definitivamente los recursos formulados, se tendrá por agotada la vía administrativa, como acto final, tal como lo dispone el inciso c) del artículo 36 del Código Procesal Contencioso Administrativo, Ley N.° 8508, de 28 de abril de 2006.
+(Así adicionado por el aparte b) del artículo 1º de la ley N° 8795 del 4 de enero de 2010)
