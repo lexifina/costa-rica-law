@@ -1,6 +1,6 @@
 # Crea Timbre del Colegio de Abogados y Reforma Ley Timbre Forense
 
-Ley N° 3245 del 1963-12-03. SINALEVI, ficha 3363: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3363&param2=66531&param3=1>.
+Ley N° 3245 del 1963-12-03. SINALEVI, ficha 3363: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3363&param2=79302&param3=1>.
 
 Publicada en La Gaceta N° 277 del 1963-12-05.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1998-11-22 | SINALEVI (2 normas) | 1963-12-03 |
 | 3 de 5 | 2006-05-31 | Sala Constitucional, resolución 06-07965 (2006-05-31) | 2006-05-31 |
 | 4 de 5 | 2006-06-14 | SINALEVI | 2006-06-14 |
+| 5 de 5 | 2010-01-18 | Ley 8795 | 2010-01-04 |
