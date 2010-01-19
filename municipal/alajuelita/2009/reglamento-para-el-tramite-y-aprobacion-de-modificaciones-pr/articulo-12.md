@@ -1,0 +1,1 @@
+Artículo 12.—Para cada modificación presupuestaria se abrirá un expediente debidamente foliado y se custodiará en el Departamento de Contabilidad Municipal el que deberá remitir copia a las Oficinas de Planificación, Proveeduría, Tesorería, Auditoria y Secretaria del Concejo.

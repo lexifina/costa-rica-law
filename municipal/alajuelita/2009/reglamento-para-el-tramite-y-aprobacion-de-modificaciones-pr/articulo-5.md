@@ -1,0 +1,1 @@
+Artículo 5º—Responsabilidades relacionadas con la aprobación presupuestaria interna. El Concejo Municipal o Alcalde Municipal (según sea el caso), deberá de manera oportuna conocer, verificar y pronunciarse mediante acto razonado sobre el cumplimiento del bloque de legalidad aplicable a las modificaciones presupuestarias.

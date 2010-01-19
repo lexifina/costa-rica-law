@@ -1,0 +1,1 @@
+Artículo 18.—Obligatoriedad de lo establecido en este Reglamento. Lo establecido en el presente Reglamento es de carácter vinculante para la Municipalidad de Alajuelita en su ámbito de acción y aplicación.
