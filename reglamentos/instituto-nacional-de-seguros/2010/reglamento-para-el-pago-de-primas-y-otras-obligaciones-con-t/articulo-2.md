@@ -1,0 +1,1 @@
+Artículo 2º—El Instituto Nacional de Seguros, en adelante INS, podrá suscribir contratos con Empresas Procesadoras de Tarjetas de Crédito, Débito, y cualquier otro tipo de tarjetas similar, (denominadas para efectos del presente reglamento como el Procesador), con la finalidad de utilizar dicho medio de pago en sus diferentes modalidades.
