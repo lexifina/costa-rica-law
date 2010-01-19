@@ -1,2 +1,3 @@
-Artículo 4°—Sistema nacional de capacitación y formación profesional
-El sistema nacional de capacitación y formación profesional está constituido por las actividades de esta clase que realizan el INA directamente o por intermedio de terceros, así como las instituciones y empresas particulares de capacitación y formación profesional debidamente autorizadas, tengan o no fines de lucro. Es a la vez un subsistema educativo nacional.
+Artículo 4º—Sistema Nacional de Capacitación y Formación Profesional SINAFOR
+El Sistema Nacional de Capacitación y Formación Profesional SINAFOR, está constituido por las actividades de esta clase que realizan el INA directamente o por intermedio de terceros, así como las instituciones y empresas particulares de capacitación y formación profesional debidamente autorizadas por el INA, tengan o no fines de lucro, con base en el diseño y desarrollo de las políticas y estrategias que la Institución defina para el Sistema, en ejecución de las funciones dispuestas por su Ley Orgánica. Es a la vez un subsistema educativo nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35731 del 19 de enero de 2010)
