@@ -15,3 +15,4 @@ Fija Tarifa de Ingreso al Balneario Ojo de Agua
 | --- | --- | --- |
 | 1 | 2009-09-03 | la propia norma |
 | 2 | 2009-09-03 | Acuerdo 1 (2009-08-25) |
+| 3 | 2010-01-19 | Acuerdo 5 (2010-01-19) |
