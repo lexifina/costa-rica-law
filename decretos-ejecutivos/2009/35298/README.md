@@ -14,3 +14,4 @@ Aranceles de servicios de peritaje y avalúos del Colegio de Federado de Ingenie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-17 | la propia norma |
+| 2 | 2010-01-19 | Acuerdo 12 (2010-01-19) |
