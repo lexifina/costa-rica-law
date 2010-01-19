@@ -1,0 +1,1 @@
+Artículo 16.—El Concejo Municipal se reserva el derecho de declarar desierta alguna de las categorías señaladas. No pueden otorgarse distinciones a personas físicas o jurídicas que se encuentren en relación directa de trabajo, como tampoco a los Jerarcas en ejercicio de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 11.—En la categoría de Empresa Privada será distinguida aquella persona física o jurídica que se destaque por su servicio, desinteresado, serio, responsable, y ejemplar en beneficio del Cantón de Nandayure.

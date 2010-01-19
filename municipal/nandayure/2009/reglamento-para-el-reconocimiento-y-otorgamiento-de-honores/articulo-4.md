@@ -1,0 +1,1 @@
+Artículo 4º—Se otorgará el título de Hijo(a) Predilecto(a) del Cantón a aquellas personas que desde su nacimiento hayan vivido en el Cantón de Nandayure y destaquen por sus cualidades o méritos personales y singularmente por su trabajo o aportaciones culturales, científicas, sociales, políticas, o económicas en beneficio de la localidad.

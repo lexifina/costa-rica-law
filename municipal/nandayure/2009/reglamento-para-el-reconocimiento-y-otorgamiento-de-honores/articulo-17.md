@@ -1,0 +1,1 @@
+Artículo 17.—El Concejo Municipal deberá incluir en el Plan Anual Operativo y el Presupuesto Municipal una suma para celebrar una ceremonia de entrega oficial de los premios así como la compra y confección de un presente para cada una de las distinciones.

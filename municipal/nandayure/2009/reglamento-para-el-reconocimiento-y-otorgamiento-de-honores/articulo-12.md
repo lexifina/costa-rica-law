@@ -1,0 +1,1 @@
+Artículo 12.—Las personas físicas o jurídicas honradas con tal distinción, recibirán un presente donde se señale el año, la categoría premiada, y su nombre, así como que tal reconocimiento lo otorga la Municipalidad de Nandayure.
