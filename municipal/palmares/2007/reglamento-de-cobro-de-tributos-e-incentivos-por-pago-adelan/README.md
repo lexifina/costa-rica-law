@@ -14,3 +14,4 @@ Reglamento de Cobro de Tributos e Incentivos por Pago Adelantado de la Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-01 | la propia norma |
+| 2 | 2010-01-19 | Reglamento municipal 193 (2010-01-19) |
