@@ -1,0 +1,1 @@
+Artículo 5º—Proceso de elección de quienes representarán a las municipalidades ante la Junta Directiva del IFAM: La selección de sus representantes por parte de las Municipalidades, se realizará en Asamblea de representantes, que se realizará cada cuatro años, mediante votación secreta.

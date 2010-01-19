@@ -1,0 +1,1 @@
+Articulo 11.—Requisitos para ser elegido como miembro de la Junta Directiva del IFAM: Cada persona propuesta por la Asamblea de representantes para ocupar un cargo de dirección ante la Junta Directiva del IFAM, deberá ser: miembro de la Asamblea, mayor de edad, con solvencia moral y preferiblemente con reconocida capacidad y probada experiencia en asuntos municipales.

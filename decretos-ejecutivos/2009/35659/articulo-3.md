@@ -1,0 +1,1 @@
+Artículo 3º—De la Junta Directiva del IFAM. La Junta Directiva del Instituto de Fomento y Asesoría Municipal (IFAM), es el órgano supremo de la institución, de naturaleza colegiada, integrado por siete miembros, y cuyas competencias están definidas en el artículo 11 de la Ley N° 4716 (Ley de Organización y funcionamiento del IFAM).

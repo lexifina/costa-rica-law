@@ -1,0 +1,1 @@
+Artículo 17.—De los recursos contra los actos del Tribunal Ad - Hoc. Durante la realización de la Asamblea, contra los actos del Tribunal Ad - Hoc, únicamente cabrá el recurso de reconsideración, el cual deberá ser resuelto inmediatamente, y de previo a cualquier otro acto.

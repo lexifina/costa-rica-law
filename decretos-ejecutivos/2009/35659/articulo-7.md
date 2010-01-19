@@ -1,0 +1,1 @@
+Artículo 7º—Integración de la Asamblea de representantes: La Junta de representantes, estará integrada por dos representantes de cada municipalidad del país designados por acuerdo del Concejo Municipal.

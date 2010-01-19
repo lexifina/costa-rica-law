@@ -1,0 +1,1 @@
+Artículo 6º—De la Asamblea de representantes: La Asamblea de representantes constituye la instancia dentro de la cual se elegirán los tres representantes del sector municipal ante la Junta Directiva del Instituto de Fomento y Asesoría Municipal.

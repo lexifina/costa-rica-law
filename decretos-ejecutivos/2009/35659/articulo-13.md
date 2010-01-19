@@ -1,0 +1,1 @@
+Artículo 13.—Quórum: Para su validez en una primera convocatoria, la Asamblea requerirá de la presencia de la mitad más uno de los miembros acreditados formalmente en el padrón electoral. En una segunda convocatoria, una hora después, la asamblea será válida con el número de los delegados presentes.

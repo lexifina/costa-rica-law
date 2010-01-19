@@ -1,0 +1,1 @@
+Artículo 22.—Obligaciones y derechos de los directores electos: Una vez juramentados por el Consejo de Gobierno, cada persona elegida tendrá todos los derechos y obligaciones derivadas de su naturaleza de director de la Junta Directiva del IFAM, y contenidas en la Ley N° 4716.
