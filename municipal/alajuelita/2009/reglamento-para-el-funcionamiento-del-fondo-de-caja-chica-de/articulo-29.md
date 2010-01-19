@@ -1,0 +1,1 @@
+Artículo 29.—Se confeccionarán reintegros de caja chica cuando se haya gastado el 70% del fondo establecido por el Concejo Municipal. Además de un reintegro adicional el último día hábil de diciembre, de acuerdo con las fechas de corte establecido por la administración para el cierre presupuestario

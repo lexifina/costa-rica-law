@@ -1,0 +1,1 @@
+Artículo 4º—Se establece el fondo de caja chica cuyo monto será hasta por un monto máximo ¢ 300.000,00 (trescientos mil colones exactos). Creado de conformidad con el capítulo 133 del Reglamento a la Ley de Contratación Administrativa y como complemento al Reglamento de Adquisición bienes y Servicios de la Municipalidad.
