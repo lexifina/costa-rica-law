@@ -1,0 +1,1 @@
+Artículo 5º—Supervisión del cumplimiento: La Dirección de Gestión Administrativa-Financiera será la unidad administrativa dentro del Instituto Costarricense de Puertos del Pacífico encargada de velar por el cumplimiento del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo: El presente Reglamento tiene como objetivo establecer las disposiciones de acatamiento obligatorio para la asignación, uso y control de teléfonos celulares, propiedad del Instituto Costarricense de Puertos del Pacífico, sujetos a los principios de razonabilidad y sana administración.
