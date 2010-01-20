@@ -16,3 +16,4 @@ Reglamento Junta Directiva de RECOPE, S.A
 | 1 | 2002-09-12 | la propia norma |
 | 2 | 2006-05-19 | Reglamento 4045 (2006-05-19) |
 | 3 | 2007-12-12 | Reglamento 4218 (2007-12-12) |
+| 4 | 2010-01-20 | Reglamento 4418 (2010-01-20) |
