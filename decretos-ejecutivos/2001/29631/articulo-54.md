@@ -1,4 +1,2 @@
-CAPÍTULO IV
-De la inspección
-SECCIÓN ÚNICA
-Artículo 54.—El presente Capítulo tiene por objeto establecer los principios, las normas y los procedimientos que debe seguir el Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP), en el cumplimiento de su obligación de inspección de las universidades privadas, que se establece expresamente en el artículo 79 de la Constitución Política y en el artículo 3º de la Ley Nº 6693.
+Artículo 54.—Recibidos los criterios solicitados, la Secretaría Técnica de inmediato concederá a la gestionante audiencia por una única vez y por un plazo de 15 días naturales contados a partir del recibido de la gestionante, a fin de que atienda las observaciones que le señalen. Transcurrido dicho plazo, la Secretaría Técnica dentro de los quince días siguientes preparará un informe que contendrá un resumen de todo lo actuado, de las principales observaciones realizadas y de las conclusiones producto de su propio análisis, el cual remitirá de inmediato al Consejo para su resolución. Las partes interesadas gozarán de un plazo de ocho días para hacer cualquier observación ante el Consejo sobre este informe, de previo a su resolución.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 44 al 54 actual)

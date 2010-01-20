@@ -1,0 +1,2 @@
+Artículo 66.—La labor de inspección la ejercerá el CONESUP por medio de su Secretaría Técnica con el apoyo de profesionales debidamente investidos para ejecutar tal labor, según los requerimientos y directrices del CONESUP, el cual propondrá al Ministro de Educación, para estos efectos, la contratación de profesionales en diversas disciplinas, cuando el caso lo amerite.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 56 al 66 actual)

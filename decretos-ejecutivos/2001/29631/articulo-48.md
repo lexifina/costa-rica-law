@@ -1,1 +1,4 @@
-Artículo 48.—El procedimiento que se seguirá a los efectos de determinar la verdad real, será el procedimiento ordinario establecido por la Ley General de la Administración Pública, con las particularidades contenidas en los artículos 17, 18 y 19 de la Ley Nº 6693 del 27 de noviembre de 1981.
+Artículo 48.—Serán requisitos para optar a un examen por suficiencia:
+a) Que el estatuto o los reglamentos de la Universidad, autoricen su ejecución.
+b) Haber cumplido con los prerrequisitos de la asignatura que se desea aprobar mediante este examen.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 35810 del 20 de enero de 2010)

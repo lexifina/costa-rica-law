@@ -1,0 +1,2 @@
+Artículo 70.—Será obligación de las autoridades universitarias, facilitar el acceso a sus instalaciones centrales o regionales y a sus fuentes de información a los personeros que designe el CONESUP para llevar a cabo la inspección, y suministrarles toda la información y documentación que requieran.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 60 al 70 actual)

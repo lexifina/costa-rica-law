@@ -1,1 +1,2 @@
-Artículo 42.—Si el análisis de la solicitud demuestra que se cumplen a cabalidad todos los requisitos, la Secretaría Técnica declarará su admisibilidad, lo comunicará por escrito al CONESUP y a la entidad gestionante e iniciará de inmediato el proceso de estudio académico del expediente.
+Artículo 42.—En caso de que la universidad tenga aprobada la carrera en forma presencial, sólo deberá hacerse una Ampliación de Oferta Académica en los aspectos relacionados con la modalidad virtual. Si la carrera es nueva deberá presentar los documentos estipulados por la ley de creación del CONESUP y este Reglamento para su debida autorización, sin la cual no se pueden iniciar las actividades.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 35810 del 20 de enero de 2010)

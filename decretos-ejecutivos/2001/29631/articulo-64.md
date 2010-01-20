@@ -1,9 +1,6 @@
-Artículo 64.—Como resultado de cada inspección que se realice a una universidad privada deberá elaborarse un informe detallado que conocerá el CONESUP y que debe contener, entre otros:
-i. un juicio valorativo sobre la calidad de las carreras o programas académicos;
-ii. las fortalezas y debilidades que perciban;
-iii. los aspectos presentes y ausentes de conformidad con lo que señala la Ley y este Reglamento;
-iv. los elementos que planteen dudas, en el presente o a futuro;
-v. la descripción del ambiente académico, la actitud profesional y la calidad del personal y de los alumnos;
-vi. el uso de las instalaciones y los servicios que ofrece; y
-vii. si los inspectores lo juzgan oportuno, sugerencias de mejoramiento.
-Este Consejo analizará el informe y dará traslado del mismo a la universidad objeto de inspección, a efecto de que dentro del plazo de 10 días hábiles contados a partir del recibo del informe, se pronuncie sobre las observaciones que se le hagan. Conferida la audiencia el CONESUP decidirá lo pertinente de conformidad con la Ley y el presente Reglamento.
+CAPÍTULO IV
+De la inspección
+SECCIÓN ÚNICA
+Artículo 64: Recibidos los criterios solicitados, la Secretaría Técnica de inmediato concederá a la gestionante audiencia por una única vez y por un plazo de 15 días naturales contados a partir del recibido de la gestionante, a fin de que atienda las observaciones que le señalen. Transcurrido dicho plazo, la Secretaría Técnica dentro de los quince días siguientes preparará un informe que contendrá un resumen de todo lo actuado, de las principales observaciones realizadas y de las conclusiones producto de su propio análisis, el cual remitirá de inmediato al Consejo para su resolución. Las partes interesadas gozarán de un plazo de ocho días para hacer cualquier observación ante el Consejo sobre este informe, de previo a su resolución, y éste resolverá lo correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35810 del 20 de enero de 2010)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 54 al 64 actual)

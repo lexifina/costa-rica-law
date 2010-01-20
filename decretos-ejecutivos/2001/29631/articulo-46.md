@@ -1,1 +1,5 @@
-Artículo 46.—El órgano asesor jurídico deberá rendir dictamen dentro de los quince días hábiles siguientes a la fecha en que reciba la solicitud y en él hará constar si las reformas o modificaciones propuestas armonizan con los principios y disposiciones, que al efecto contiene la Ley y el presente Reglamento. Recibido el dictamen legal, la Secretaría Técnica pondrá de inmediato el asunto en conocimiento del CONESUP para su resolución final.
+(*)SECCION UNDÉCIMA
+Exámenes por Suficiencia
+(*)(Así adicionado esta sección por el artículo 4° del decreto ejecutivo N° 35810 del 20 de enero de 2110)
+Artículo 46.—Para que una Universidad pueda realizarle válidamente a un estudiante, exámenes por suficiencia debe entender estos como una modalidad de evaluación mediante la cual el estudiante puede demostrar los conocimientos y aptitudes requeridas de acuerdo con los objetivos de una determinada asignatura. Esta modalidad no implica la asistencia sistemática a lecciones. La suficiencia se comprobará mediante instrumentos de medición acordes al caso.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 35810 del 20 de enero de 2010)

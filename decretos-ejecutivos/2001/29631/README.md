@@ -16,3 +16,4 @@ Reglamento General del Consejo Nacional de Enseñanza Superior Universitaria Pri
 | 1 | 2001-07-11 | la propia norma |
 | 2 | 2001-09-03 | Decreto Ejecutivo 29907 (2001-09-03) |
 | 3 | 2005-10-03 | Decreto Ejecutivo 32784 (2005-10-03) |
+| 4 | 2010-01-20 | Decreto Ejecutivo 35810 (2010-01-20) |

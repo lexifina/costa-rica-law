@@ -1,4 +1,2 @@
-SECCIÓN SEGUNDA
-Para la modificación de Estatutos y Disposiciones Reglamentarias
-de las Universidades Privadas
-Artículo 45.—Recibida en forma una solicitud conducente a modificar disposiciones estatutarias o reglamentarias ya aprobadas de una universidad, la Secretaría Técnica requerirá sin más trámite el dictamen del órgano asesor jurídico del CONESUP.
+Artículo 45.—El CONESUP podrá integrar Comisiones Ad Hoc periódicas con el objetivo de analizar y actualizar la normativa de Educación Universitaria Virtual a la luz de su evolución.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 35810 del 20 de enero de 2010)
