@@ -1,1 +1,0 @@
-Artículo 14.— No se permitirá a los buhoneros que ocupen espacios normalmente dedicados al uso y disfrute de los ciudadanos, como bancas ubicadas en terminales de ómnibus y los poyos de los parques públicos y de la misma manera aceras y espaldones de las vías de uso del transporte automotor.

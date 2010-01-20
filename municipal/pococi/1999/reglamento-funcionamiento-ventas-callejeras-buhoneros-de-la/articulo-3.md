@@ -1,1 +1,0 @@
-Artículo 3°— Los vendedores ambulantes en adelante llamados buhoneros, están obligados a estar en circulación constante, de forma que no permanezcan en un mismo sitio y no se obstaculicen el libre tránsito de las personas, consagrado expresamente en nuestra Carta Magna.

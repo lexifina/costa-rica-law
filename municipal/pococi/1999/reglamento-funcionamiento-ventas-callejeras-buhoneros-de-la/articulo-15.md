@@ -1,1 +1,0 @@
-Artículo 15.— Las situaciones no contempladas en el presente Reglamento, se regirán por lo dispuesto en los Códigos Municipal, de Normas y Procedimientos Tributarlos y toda la normativa jurídica concordante.
