@@ -13,3 +13,4 @@ Pago de Póliza de fidelidad que garantiza funciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-17 | la propia norma |
+| 2 | 2010-01-20 | Acuerdo 2 (2010-01-20) |
