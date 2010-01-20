@@ -14,3 +14,4 @@ Reglamentos para préstamos hipotecarios, de conformidad con la Ley N° 8448 de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-10 | la propia norma |
+| 2 | 2010-01-20 | Reglamento 5787 (2010-01-20) |
