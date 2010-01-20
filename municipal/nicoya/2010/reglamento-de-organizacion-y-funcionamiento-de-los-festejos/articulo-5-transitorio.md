@@ -1,0 +1,1 @@
+5º—Para los Festejos Populares del año 2010, no se utilizará la partida de presupuesto municipal a préstamo para la Comisión, sino que esta trabajará con los ingresos que generen los festejos, siempre mantenido los demás controles que establece el presente Reglamento.

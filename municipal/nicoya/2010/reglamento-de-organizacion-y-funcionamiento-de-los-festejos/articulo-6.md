@@ -1,0 +1,1 @@
+Artículo 6º—Las comisiones de Festejos Populares del Cantón de Nicoya se nombran con el propósito de planificar, organizar y administrar los Festejos Populares que sirviendo de recreación y esparcimiento de la comunidad, logren la obtención de una utilidad destinada en la ejecución de obras comunales a definir por el Concejo Municipal respectivo.
