@@ -14,3 +14,4 @@ Crea Comisión Especial Mixta para Analizar e Informar al Rector del Sector de T
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-21 | la propia norma |
+| 2 | 2010-01-20 | Decreto Ejecutivo 35771 (2010-01-20) |
