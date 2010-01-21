@@ -14,3 +14,4 @@ Reglamento de Regulaciones para gastos de viaje y de transporte dentro del país
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-17 | la propia norma |
+| 2 | 2010-01-21 | Decreto TSE 1 (2010-01-21) |

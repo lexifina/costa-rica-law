@@ -1,11 +1,10 @@
-Artículo 11.—Reconocimiento de gastos por concepto de servicio de lavado y planchado de ropa. El funcionario tendrá derecho a que se le reconozca el importe de lavado y planchado de ropa, en los siguientes supuestos:
-1. Cuando la permanencia tenga una duración mínima de catorce días naturales continuos, se le reconocerá un servicio de lavado y planchado de ropa.
-2. Cuando la permanencia tenga una duración mínima de veintiún días naturales continuos se le reconocerán dos servicios de lavado y planchado de ropa.
-Para que obtenga el reconocimiento de los gastos originados por la utilización de esos servicios, deberá consignar:
-1. El monto en una factura timbrada por una suma máxima de tres mil colones por cada servicio.
-2. En su defecto, también se reconocerá el importe de lavado y planchado de ropa al funcionario que presente una boleta de justificación que le suministrará la Administración, por un monto máximo de mil colones, la cual contendrá al menos los siguientes datos:
-2.1. Nombre completo, documento de identificación idóneo y firma de la persona que prestó el servicio.
-2.2. Fecha.
-2.3. Valor expresado en letras y números de la suma gastada por concepto de la utilización del servicio de lavado y planchado.
-2.4. Nombre completo, cédula y firma del servidor que realizó el gasto.
-El Tribunal, mediante reforma al presente reglamento, podrá actualizar los montos máximos a reconocer por concepto de un servicio de lavado y planchado de ropa con base en un estudio técnico de la Contaduría institucional.
+Artículo 11.—Reconocimiento de gastos por concepto de servicio de lavado y planchado de ropa. El funcionario tendrá derecho a que se le reconozca un importe de lavado y planchado de ropa al sétimo día, cuando la permanencia tenga una duración mínima de doce días naturales continuos y se le continuará reconociendo un servicio de lavado y planchado de ropa cada vez que transcurran siete días en forma continua.
+Para que se obtenga el reconocimiento de los gastos originados por la utilización de esos servicios, deberá consignar:
+1. El monto en una factura timbrada por una suma máxima de seis mil colones exactos (¢6.000,00) por cada servicio.
+2. En su defecto, también se reconocerá el importe de lavado y planchado de ropa al funcionario que presente una boleta de justificación que le suministrará la Administración, por un monto máximo de tres mil colones (¢3.000,00), la cual contendrá al menos los siguientes datos:
+a. Nombre completo, documento de identificación idóneo y firma de la persona que prestó el servicio,
+b. Fecha,
+c. Valor expresado en letras y números de la suma gastada por concepto de la utilización del servicio de lavado y planchado,
+d. Nombre completo, cédula y firma del servidor que realizó el gasto.
+En el transcurso de los dos primeros meses de cada año, la Contaduría, como órgano técnico, realizará un estudio de mercado del servicio de lavado y planchado que presten diferentes personas físicas o jurídicas en el país, a fin de obtener un valor real de éste. Podrá solicitar además, información a las dependencias institucionales que realizan giras, a fin de recomendar a la Dirección Ejecutiva si consideran procedente o no la actualización de los montos. La citada Dirección, previo análisis de la propuesta técnica, recomendará su aprobación o desaprobación al Tribunal, quien finalmente adoptará la decisión que corresponda en términos de aprobar, improbar u ordenar la realización de más estudios para adoptar la decisión final.
+(Así reformado por el artículo 1 del decreto del Tribunal Supremo de Elecciones, N° 01 del 21 de enero de 2010)
