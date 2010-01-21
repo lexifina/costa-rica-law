@@ -1,0 +1,6 @@
+CIRCULAR N° 15-2010
+Asunto: Sobre la obligación que tienen los jefes de despacho de remitir el Acta de Recepción de Bienes y Servicios a la Unidad de Subproceso de Verificación y Ejecución Contractual del Departamento de Proveeduría y los efectos del incumplimiento a dicho deber.
+A TODOS LOS JEFES DE DESPACHO DEL PODER JUDICIAL
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 04-10, de las ocho horas del catorce de enero del dos mil diez, artículo LXXVII, acordó comunicarles que como responsables directos de la recepción adecuada de los bienes y servicios, incluyendo la revisión de cumplimiento con lo pactado contractualmente, deberán remitir el Acta de Recepción de Bienes y Servicios a la Unidad de Subproceso de Verificación y Ejecución Contractual del Departamento de Proveeduría; lo anterior, en un plazo máximo de 2 días hábiles, contados a partir del recibido de tales bienes. Si ese plazo transcurre sin que haya sido remitido el Acta referida, dicha Unidad, por única vez, instará al encargado a remitir dicha documentación, y en caso de no recibir respuesta se archivará el asunto, dejando en manos de éste la responsabilidad que implica no llevar a cabo el procedimiento correspondiente para establecer las sanciones pecuniarias y administrativas que resulten procedentes.
+San José, 21 de enero de 2010.
