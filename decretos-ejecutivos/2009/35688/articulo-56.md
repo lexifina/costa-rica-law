@@ -1,0 +1,21 @@
+Artículo 56.—Dirección de Valoraciones Administrativas y Tributarias. Corresponde a esta Dirección realizar las siguientes funciones:
+a) Participar en la formulación del Plan Estratégico de la Dirección General de Tributación.
+b) Elaborar el plan táctico de la Dirección de Valoraciones Administrativas y Tributarias de conformidad con el plan estratégico de la Dirección General de Tributación para su aprobación por parte del Director General.
+c) Elaborar el plan anual operativo de la Dirección de Valoraciones Administrativas y Tributarias para su aprobación por parte del Director General.
+d) Dirigir y emitir los lineamientos generales para la elaboración de los planes anuales operativos por parte de las Direcciones Regionales y la Dirección de Grandes Contribuyentes Nacionales.
+e) Consolidar el plan anual operativo de la Dirección de Valoraciones Administrativas y Tributarias como resultado de la actuación conjunta entre la Dirección de Valoraciones Administrativas y Tributarias y las Direcciones Regionales en el proceso de la planificación operativa para su aprobación por parte del Director General.
+f) Valorar y aprobar las propuestas de planes especiales de control tributario sobre sectores económicos y clases de contribuyentes que presenten las Direcciones Regionales y la Dirección de Grandes Contribuyentes Nacionales para su incorporación en el plan operativo regional.
+g) Establecer y actualizar sus propios indicadores de gestión, y estándares de rendimiento para la planificación y seguimiento del desempeño.
+h) Elaborar y canalizar los proyectos de circulares, resoluciones, directrices interpretativas, para la aprobación del Director General. Los proyectos de decretos y leyes, así como reformas a la normativa vigente, relacionada con materia técnica jurídica de la función de su competencia, deberán contar con el aval del Director General, y éste proponerlos para su aprobación al Despacho del señor Ministro(a).
+i) Propiciar el desarrollo profesional de los funcionarios asignados a esta función, estableciendo estrategias que fortalezcan las habilidades y conocimientos necesarios para su correcto desempeño en coordinación con el Centro de Investigación y Formación Hacendaria.
+j) Brindar apoyo técnico en valoraciones administrativas a solicitud de entes públicos costarricenses para: compra, venta, remates, canjes, donaciones, alquileres, concesiones en Zona Marítimo Terrestre, expropiaciones; como en las valoraciones tributarias atribuidas por ley.
+k) Definir las estrategias de análisis y valoración de bienes muebles e inmuebles para satisfacer las necesidades de los entes públicos.
+l) Definir estrategias para identificar y establecer los requerimientos y prioridades de atención de solicitudes de valoraciones internas y externas.
+m) Definir las estrategias de intercambio de información con los colegios profesionales y establecer los procedimientos que en valoración de bienes deben aplicarse.
+n) Analizar y proponer necesidades de desarrollos informáticos o modificaciones a desarrollos existentes relacionados con la materia de su competencia, ante la Subdirección Centro de Competencias para su estudio.
+o) Identificar, recomendar y promover las necesidades normativas en el campo de la valoración de bienes.
+p) Identificar y recomendar las alianzas estratégicas y convenios para el intercambio tecnológico en coordinación con la Subdirección de Centro de Competencias.
+q) Atender consultas técnicas relacionadas con avalúos administrativos y tributarios formuladas por la Contraloría General de la República, el Poder Judicial, la Procuraduría General de la República y otros.
+r) Mantener actualizados los procedimientos para la realización de los diferentes trámites en materia de su competencia.
+s) Identificar oportunidades de mejora tanto en los planes y procedimientos como en la legislación aplicable a la materia de su competencia y presentar ante las instancias que corresponda para su valoración, las necesidades o los proyectos de reforma.
+t) Realizar cualesquiera otras tareas incluyendo las que le asigne el Director (a) o Subdirector (a) General de Tributación, no expresadas anteriormente, pero que puedan incluirse dentro del ámbito de sus competencias y responsabilidades.

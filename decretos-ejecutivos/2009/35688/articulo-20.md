@@ -1,0 +1,8 @@
+Artículo 20.—Subdirección de Programación y Selección. Corresponde a esta Subdirección realizar las siguientes funciones:
+a) Proponer al Director de Fiscalización los sectores económicos y las clases de contribuyentes que serán objeto de fiscalización, así como las cantidades de actuaciones a realizar y los recursos necesarios.
+b) Elaborar los procedimientos y criterios para la selección singular de los contribuyentes a fiscalizar, analizando y explotando la información disponible, de forma tal que provea una orientación precisa a los procedimientos de fiscalización y técnica tributaria a aplicar por la Dirección de Fiscalización.
+c) Establecer las necesidades de información de los programas de fiscalización que se planee desarrollar, en coordinación con la Subdirección de Información y Coordinación Informática.
+d) Definir el desarrollo de actuaciones de investigación conducentes a la detección de probables focos de fraude o incumplimiento Tributario en coordinación con las Direcciones Regionales y Dirección de Grandes Contribuyentes Nacionales.
+e) Controlar que en la ejecución de los planes de fiscalización, se acaten todos los lineamientos establecidos en esos planes y se respeten los valores éticos institucionales.
+f) Establecer y mantener actualizado el procedimiento para la atención y el control de denuncias por incumplimiento de deberes materiales de los sujetos pasivos, que se presenten.
+g) Realizar cualesquiera otras tareas incluyendo las que le asigne el Director (a) de Fiscalización, no expresadas anteriormente, pero que se puedan incluir dentro del ámbito de sus competencias y responsabilidades.

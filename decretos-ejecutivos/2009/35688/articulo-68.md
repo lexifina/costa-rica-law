@@ -1,0 +1,1 @@
+Artículo 68.—Derogatorias. Deróguese el Decreto Ejecutivo Nº 27146-H, Reglamento de Organización y Funciones de la Dirección General de Tributación publicado en La Gaceta Nº 136 de fecha quince de julio de mil novecientos noventa y ocho.

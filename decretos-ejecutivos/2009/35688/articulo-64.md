@@ -1,0 +1,16 @@
+Artículo 64.—Direcciones Regionales. Se crean las siguientes Direcciones Regionales: Pacífico, Norte, Centro y Sur, conformadas por las Subdirecciones de Control del Cumplimiento Tributario Regional y Subdirección de Relaciones con el Contribuyente y Entes Locales.
+Corresponde a estas Direcciones realizar las siguientes funciones:
+a) Acatar los lineamientos generales dictados por las Direcciones Técnico-Normativas para la elaboración y ejecución del plan anual operativo de la Dirección Regional y la Dirección de Grandes Contribuyentes Nacionales.
+b) Elaborar y someter a aprobación de Directores Técnico-Normativos las propuestas de planes especiales de control tributario sobre sectores económicos y clases de contribuyentes, para su incorporación en el plan anual operativo regional.
+c) Consolidar en forma conjunta con los Directores Técnico-Normativos los planes operativos de las Direcciones respectivas.
+d) Participar en la formulación del Plan Estratégico de la Dirección General de Tributación.
+e) Consolidar el plan anual operativo de la Dirección Regional para el conocimiento de la Dirección General.
+f) Ejecutar a través de las Administraciones Tributarias Territoriales adscritas los programas y planes en los que se desagreguen los Planes Anuales Operativos y en la Dirección Regional propiamente, cuidar de dicha ejecución por las correspondientes.
+g) Propiciar el desarrollo profesional de los funcionarios asignados a esta función, estableciendo estrategias que fortalezcan las habilidades y conocimientos necesarios para su correcto desempeño en coordinación con el Centro de Investigación y Formación Hacendaria.
+h) Realizar estudios, investigaciones dentro de su ámbito, generales y sectoriales, para la fundamentación de los respectivos planes y actuaciones regionales, la adecuada valoración tributaria de las situaciones y en general la mejor recaudación de tributos.
+i) Realizar estudios y análisis de riesgo fiscal para identificar tendencias, patrones, impactos fiscales, modos de operación e indicios de comportamiento de los contribuyentes, a fin de detectar y orientar la dirección de las gestiones de riesgo a realizar, la prevención de conductas evasivas y la mejor clasificación por tipo de contribuyente, conforme a los principios y buenas prácticas de aprovechamiento de los recursos disponibles.
+j) Coordinar y asistir a las Administraciones Tributarias Territoriales y Oficinas de Servicios de sus territorios en la ejecución de tareas que deban realizarse a nivel regional por razones de economía y eficacia.
+k) Constituir el canal ordinario de relación, para los aspectos que así se establezca, entre los órganos de la Administración Territorial y los de la Administración Central.
+l) Coordinar las relaciones externas del ámbito territorial.
+m) Coadyuvar con la Subdirección General en la detección de necesidades y requerimientos para la mejor operación de la Dirección Regional y sus órganos componentes, así como con la evaluación del apoyo administrativo y tecnológico, que en razón, de los acuerdos de servicios se reciba para el correcto desempeño de las funciones asignadas.
+n) Realizar cualesquiera otras tareas incluyendo las que le asigne el Director (a) o Subdirector (a) General de Tributación, no expresadas anteriormente, pero que puedan incluirse dentro del ámbito de sus competencias y responsabilidades.

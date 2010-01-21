@@ -1,0 +1,17 @@
+Artículo 35.—Subdirección de Administración de Cuenta Integral y Devoluciones. Corresponde a esta Subdirección realizar las siguientes funciones:
+a) Definir y mantener actualizado el plan de cuentas de la cuenta integral y controlar la consistencia de la información.
+b) Definir los programas y procedimientos que deben ejecutar las Administraciones Territoriales, para corregir inconsistencias en la cuenta integral.
+c) Establecer las normas y procedimientos que deben cumplir las áreas operativas en cuanto a los programas de devoluciones.
+d) Elaborar los procedimientos para que las Administraciones Tributarias procedan con el trámite de reconocimiento de créditos por pagos debidos o indebidos, con la tramitación de las compensaciones y devoluciones de esos saldos acreedores, ya sea a solicitud de parte o de oficio.
+e) Coordinar y ejecutar con la unidad Técnica de Recursos Financieros y la Tesorería Nacional los procesos de agregación contable de la información tributaria.
+f) Definir los planes anuales y programas en concordancia con las metas de la Dirección General y las políticas institucionales.
+g) Elaborar los procedimientos para mantener actualizada y depurada la cuenta integral de los contribuyentes, declarantes o responsables.
+h) Controlar y dar seguimiento al cumplimiento efectivo de la normativa relacionada con la materia por parte de las Administraciones Tributarias.
+i) Controlar que los documentos de autoliquidación de tributos y de pago de impuestos y sanciones ingresen correctamente a la base de datos de los contribuyentes; y se genere la respectiva liquidación para determinar las deudas o saldos acreedores de los contribuyentes, declarantes o responsables. Tratándose de la validación de los documentos en bases temporales del sistema informático, esta función se realizará principalmente a través del subproceso de Documentación y Archivo.
+j) Proponer al Director de Recaudación el desarrollo y mantenimiento de los módulos del sistema informático necesarios para la mejora del registro de las transacciones y visualización de las mismas por parte de los usuarios finales de las Administraciones Tributarias.
+k) Coordinar con la Subdirección el Centro de Competencias y la Dirección de Tecnología de Información el desarrollo y mantenimiento de las validaciones o filtros de control de calidad, que regulan el ingreso a las bases alternativas de registro, de los documentos de autoliquidación y de pago presentados por los contribuyentes, o declarantes, ante los cambios de normativa o tecnología.
+l) Realizar la actualización de los diferentes parámetros básicos (tasas de interés, fechas de vencimiento entre otros), en el sistema informático que se utilizan como criterios para la aceptación de las declaraciones y documentos de pago presentados por los contribuyentes o declarantes.
+m) Evaluar los resultados de la gestión de las Administraciones Tributarias, de acuerdo con los indicadores definidos en el campo de sus funciones.
+n) Evaluar permanentemente la calidad de la información que ingresa a las bases de datos relacionadas con los procesos de la Subdirección mediante estadísticas e informes periódicos de resultados.
+o) Proponer ante el Director de Recaudación el desarrollo y mantenimiento de las bitácoras y estadísticas para ejercer el debido control.
+p) Realizar cualesquiera otras tareas incluyendo las que le asigne el Director (a) de Recaudación, no expresadas anteriormente, pero que se puedan incluir dentro del ámbito de sus competencias y responsabilidades.

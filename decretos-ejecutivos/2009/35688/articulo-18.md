@@ -1,0 +1,14 @@
+Artículo 18.—Dirección de Fiscalización. Corresponde a esta Dirección realizar las siguientes funciones:
+a) Participar en la formulación del Plan Estratégico de la Dirección General de Tributación.
+b) Elaborar el plan táctico de la Dirección de Fiscalización de conformidad con el plan estratégico de la Dirección General de Tributación y para su aprobación por parte del Director General.
+c) Elaborar el plan anual operativo de la Dirección de Fiscalización para su aprobación por parte del Director General.
+d) Dirigir y emitir los lineamientos generales para la elaboración de los planes anuales operativos por parte de las Direcciones Regionales y la Dirección de Grandes Contribuyentes Nacionales.
+e) Consolidar el plan anual operativo de la Dirección de fiscalización como resultado de la actuación conjunta entre la Dirección de Fiscalización y las Direcciones Regionales en el proceso de la planificación operativa para su aprobación por parte del Director General.
+f) Valorar y aprobar las propuestas de planes especiales de control tributario sobre sectores económicos y clases de contribuyentes que presenten las Direcciones Regionales y la Dirección de Grandes Contribuyentes Nacionales para su incorporación en el plan operativo regional.
+g) Establecer y actualizar sus propios indicadores de gestión, y estándares de rendimiento para la planificación y seguimiento del desempeño.
+h) Controlar la ejecución de los planes, buscando asegurar el cumplimiento de los objetivos y metas trazadas, así como que las decisiones individuales se tomen de acuerdo con los valores y objetivos institucionales.
+i) Elaborar y canalizar los proyectos de circulares, resoluciones, directrices interpretativas, para la aprobación del Director General. Los proyectos de decretos y leyes, así como reformas a la normativa vigente, relacionada con materia técnica jurídica de la función de su competencia, deberán contar con el aval del Director General, y éste proponerlos para su aprobación al Despacho del señor Ministro(a).
+j) Mantener actualizados los procedimientos para la realización de los diferentes trámites en materia de su competencia.
+k) Identificar oportunidades de mejora tanto en los planes y procedimientos como en la legislación aplicable a la materia de su competencia y presentar ante las instancias que corresponda para su valoración, las necesidades o los proyectos de reforma legal.
+l) Propiciar el desarrollo profesional de los funcionarios asignados a esta función, estableciendo estrategias que fortalezcan las habilidades y conocimientos necesarios para su correcto desempeño en coordinación con el Centro de Investigación y Formación Hacendaria.
+m) Realizar cualesquiera otras tareas incluyendo las que le asigne el Director (a) o Subdirector (a) General de Tributación, no expresadas anteriormente, pero que puedan incluirse dentro del ámbito de sus competencias y responsabilidades.
