@@ -1,0 +1,1 @@
+Artículo 8º—Justificaciones e Impacto en el Plan Anual Operativo: Los recursos presupuestarios recibidos por las unidades ejecutoras provenientes del Fondo deben incluirse, justificarse y evaluarse en el plan anual operativo.

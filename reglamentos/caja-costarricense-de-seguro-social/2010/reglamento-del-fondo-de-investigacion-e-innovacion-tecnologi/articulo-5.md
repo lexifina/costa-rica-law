@@ -1,0 +1,2 @@
+Artículo 5º—De los Proyectos por financiar: Se financiarán, por parte de la Institución, los proyectos que cumplan con la normativa que se establezca y que mantengan un adecuado alineamiento entre el Plan Estratégico Institucional, los planes operativos anuales, el presupuesto, y la planificación estratégica establecida en cada unidad ejecutora.
+Los recursos presupuestarios que se asignen a estos proyectos no forman parte de las bases de estimaciones ordinarias para la formulación anual.

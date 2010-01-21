@@ -1,0 +1,3 @@
+SECCIÓN IV
+Normativa aplicable
+Artículo 6º—Base legal: Lo previsto en este Reglamento se regirá por lo establecido en la Ley Nº 8292, Ley General Control Interno, por la Ley Nº 8422-2004, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. Además, los órganos aquí regulados actuarán, conforme con la Ley General de la Administración Pública y la Ley 8220, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, la normativa relativa al proceso presupuestario y el Reglamento Interior de Trabajo de la CCSS.
