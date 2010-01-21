@@ -9,7 +9,7 @@ a) Fondo de Reserva para Pensiones en Curso de Pago.
 b) Fondo de Reserva para Beneficios en Formación.
 c) Fondo de Reserva para Contingencias.
 d) Fondo de Reserva para Sentencias Judiciales.
-e) Fondo de reserva para beneficio de separación.
+e) (Derogado este inciso en sesión 8416 del 21 de enero del 2010)
 Anualmente se realizará una evaluación actuarial del FRE con corte a la fecha establecida por la Superintendencia de Pensiones, para estimar los niveles actuariales de las reservas técnicas e investigar el equilibrio financiero y actuarial del Fondo. Si en dicha evaluación se determina que existe un déficit, éste será aportado por la Caja , dentro del límite establecido por el artículo 21 de su Ley Constitutiva.
 Mensualmente se realizará los ajustes contables a la Reserva para Pensiones en Curso de Pago, para lo cual durante los primeros cinco días del mes la Dirección Actuarial informará a la Subárea Contable del FRAP el monto estimado para dicha reserva. Los ajustes a las inversiones de respaldo a esta reserva se realizarán anualmente.
 El sistema de Protección Adicional se financiará con el aporte voluntario del servidor, que en ningún caso será menor del 1% (uno por ciento) del salario total.
