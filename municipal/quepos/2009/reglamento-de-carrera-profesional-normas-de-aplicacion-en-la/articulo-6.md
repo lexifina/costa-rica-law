@@ -1,0 +1,1 @@
+Artículo 6º—Si alguno de los anteriores miembros de dicha comisión presenta una solicitud, a la hora de debatir y resolver por parte de la comisión dicha solicitud aquel que la presentó deberá abstenerse de participar para ese caso en particular.

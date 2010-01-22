@@ -1,0 +1,1 @@
+Artículo 30.—Las resoluciones del Alcalde de la Municipalidad de Aguirre serán comunicadas a la Comisión, al Encargado de Personal, a Contabilidad y a los interesados, a fin de que se tramite la respectiva acción de personal para hacer efectivo el pago del incentivo por Carrera Profesional cuando proceda.
