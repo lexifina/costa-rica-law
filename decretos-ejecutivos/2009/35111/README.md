@@ -33,3 +33,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 18 | 2009-12-04 | Decreto Ejecutivo 35655 (2009-12-04) |
 | 19 | 2009-12-07 | Decreto Ejecutivo 35667 (2009-12-07) |
 | 20 | 2010-01-14 | Decreto Ejecutivo 35709 (2010-01-14) |
+| 21 | 2010-01-22 | Decreto Ejecutivo 35719 (2010-01-22) |
