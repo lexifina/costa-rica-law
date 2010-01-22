@@ -36,3 +36,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 21 | 2010-01-22 | Decreto Ejecutivo 35719 (2010-01-22) |
 | 22 | 2010-01-22 | Decreto Ejecutivo 35720 (2010-01-22) |
 | 23 | 2010-01-22 | Decreto Ejecutivo 35721 (2010-01-22) |
+| 24 | 2010-01-22 | Decreto Ejecutivo 35722 (2010-01-22) |
