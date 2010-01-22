@@ -1,0 +1,1 @@
+Artículo 9º—El custodio, el coordinador de área de donde ésta opera y las personas que autoricen el uso de estos fondos, serán los responsables de que la caja chica funcione de acuerdo con el presente Reglamento.

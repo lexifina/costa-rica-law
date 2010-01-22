@@ -1,0 +1,3 @@
+Artículo 12.—En todo vale definitivo deberán adjuntarse las respectivas facturas timbradas o dispensadas de timbraje o tiquete de caja que respalde la compra realizada. Estos documentos tienen que cumplir con las normas definidas por la Dirección General de Tributación y ser expedidas por persona física o jurídica ajena a Popular SAFI.
+Los casos en que por la naturaleza del bien y/o servicio adquirido no sea posible contar con una factura que cumpla con lo definido por la Dirección General de Tributación serán debidamente justificados por la Gerencia General.
+Para todo lo anterior deberá tenerse presente el cumplimiento de lo que establecen los artículos 22 y 22 bis de la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 4º—Se entenderá por caja chica aquella cuyo fondo puede ser utilizado por las diversas áreas de Popular SAFI autorizadas para la compra de cualquier bien o servicio dentro de las especificaciones establecidas en el artículo 2 del presente Reglamento.

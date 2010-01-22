@@ -1,0 +1,1 @@
+Artículo 5º—La apertura de la caja chica, el monto del fondo que se asigne, el custodio, sus variaciones posteriores, y la dependencia en donde estas operen serán autorizadas por la Gerencia General, la cual informará a la Auditoría Interna para los fines de control que le corresponden.
