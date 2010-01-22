@@ -9,4 +9,4 @@ I.—Que la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, creó la Comi
 II.—Que la citada Ley le asigna a esa Comisión, funciones referentes a la conservación, el uso ecológicamente sostenible y la restauración de la biodiversidad, que son de vital importancia para el desarrollo sostenible del país.
 III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que se integrará la Comisión, de acuerdo al nombramiento realizado por los entes y organizaciones que señala la ley. Por tanto,
 DECRETAN:
-Artículo 1º—(Derogado por el artículo 3° del decreto ejecutivo N° 35578 del 1 de octubre de 2009)
+Artículo 1º—(Derogado por el artículo 3° del decreto ejecutivo N° 35578 del 1 de octubre de 2009. Posteriormente por el artículo 3° punto 4 del decreto ejecutivo N° 35786 del 22 de enero de 2010 se vuelve a derogar este numeral)

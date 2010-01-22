@@ -18,3 +18,4 @@ Reforma Integración de la Comisión Nacional para la Gestión de la Biodiversid
 | 3 | 2008-09-01 | Decreto Ejecutivo 34793 (2008-09-01) |
 | 4 | 2009-10-01 | Decreto Ejecutivo 35578 (2009-10-01) |
 | 5 | 2010-01-08 | Decreto Ejecutivo 35789 (2010-01-08) |
+| 6 | 2010-01-22 | Decreto Ejecutivo 35786 (2010-01-22) |
