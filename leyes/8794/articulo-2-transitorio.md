@@ -1,0 +1,2 @@
+TRANSITORIO II.-
+Lo dispuesto en el transitorio 1 modifica en lo pertinente el alcance y los plazos de las exoneraciones y los incentivos previstos en el artículo 20 de la Ley de régimen de zonas francas, N.° 7210, de 23 de noviembre de 1990, en cuanto a las empresas indicadas en el inciso a) del artículo 17 de la citada Ley, y debe entenderse incorporado a los respectivos acuerdos de otorgamiento del régimen de zonas francas, sin perjuicio de derechos adquiridos de buena fe, si en algún caso existen.
