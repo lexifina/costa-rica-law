@@ -1,1 +1,0 @@
-Artículo 2º—Para los efectos del plazo contemplado en el artículo 15 de la Ley de Biodiversidad, esta prórroga en el nombramiento se realiza por un plazo completo de tres años, contados a partir del 10 de agosto del 2007.
