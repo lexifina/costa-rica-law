@@ -21,3 +21,4 @@ Reforma a la Integración de la Comisión Nacional para la Gestión de la Biodiv
 | 6 | 2008-03-13 | Decreto Ejecutivo 34437 (2008-03-13) |
 | 7 | 2009-10-01 | Decreto Ejecutivo 35577 (2009-10-01) |
 | 8 | 2010-01-08 | Decreto Ejecutivo 35789 (2010-01-08) |
+| 9 | 2010-01-22 | Decreto Ejecutivo 35786 (2010-01-22) |
