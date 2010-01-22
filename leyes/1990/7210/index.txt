@@ -14,12 +14,16 @@ articulo-13.md
 articulo-14.md
 articulo-15.md
 articulo-16.md
+articulo-16-bis.md
 articulo-17.md
 articulo-18.md
 articulo-19.md
 articulo-20.md
 articulo-20-bis.md
 articulo-21.md
+articulo-21-bis.md
+articulo-21-ter.md
+articulo-21-quater.md
 articulo-22.md
 articulo-23.md
 articulo-24.md
@@ -37,8 +41,8 @@ articulo-35.md
 articulo-36.md
 articulo-37.md
 articulo-38.md
+articulo-39.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
-articulo-39.md
 articulo-4-transitorio.md
