@@ -15,3 +15,4 @@ Reglamento de la Policía Municipal de la Municipalidad de Heredia
 | --- | --- | --- |
 | 1 | 2004-08-09 | la propia norma |
 | 2 | 2009-10-19 | Reglamento municipal 316 (2009-10-19) |
+| 3 | 2010-01-25 | Reglamento municipal 0 (2010-01-25) |
