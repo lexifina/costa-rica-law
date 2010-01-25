@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 69:2.000. Cebolla Seca.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-14 | la propia norma |
+| 2 | 2010-01-25 | Decreto Ejecutivo 35852 (2010-01-25) |

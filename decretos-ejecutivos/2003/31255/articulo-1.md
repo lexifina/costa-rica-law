@@ -24,7 +24,8 @@ RTCR 69:2.000. Cebolla seca
 2.2 Bulbo curado: es aquel bulbo seco que se ha expuesto a una temperatura elevada durante un corto tiempo, con el fin de ayudar a la formación del color de la cubierta externa.
 2.3 Cebolla seca: es el bulbo de las variedades de Allium cepa convenientemente secado, caracterizado por presentar las cáscaras externas secas y quebradizas (que le proporcionan protección) y el follaje seco, si lo presenta.
 2.4 Daño mecánico: es toda lesión causada por instrumentos agrícolas o mala manipulación, tales como cortes o magulladuras.
-2.5 Deformaciones o mellizas: todo bulbo que resulte doble.
+2.5 Deformaciones o mellizas: todo bulbo que resulte doble y cuyas catáfilas protectoras o binzas se encuentren deterioradas, propiciando la contaminación por agentes externos, el crecimiento de hongos y otros agentes patógenos.
+(Así reformado el subinciso anterior por el artículo 1° del decreto ejecutivo N° 35852 del 25 de enero de 2010)
 2.6 Embarque: envío de mercancía por un mismo medio de transporte, el cual puede tener varias partidas o lotes.
 2.7 Producto empacado o preempacado: producto almacenado en bolsas o arpillas o cualquier otra fibra natural o artificial.
 2.8 Granel: es una cantidad de bulbos o trenzas que ocupan un volumen.
@@ -44,12 +45,8 @@ RTCR 69:2.000. Cebolla seca
 3.2.1 Categoría primera (I). Es todo lote de cebolla que cumple con las especificaciones detalladas en los numerales 3, 4 y 5 y no sobrepase los límites de tolerancias ni el Porcentaje Máximo en defectos permitidos, definidos para esta categoría en la Tabla 2.
 3.2.2 Categoría segunda (II). Es todo lote de cebolla que cumple con las especificaciones detalladas en los numerales 3, 4 y 5 y no sobrepase los límites de tolerancia ni el Porcentaje Máximo en defectos permitidos, definidos para esta categoría en la Tabla 2.
 3.2.3 Categoría tercera (III). Es todo lote de cebolla que cumple con las especificaciones detalladas en los numerales 3, 4 y 5 y no sobrepase los límites de tolerancia ni el Porcentaje Máximo en defectos permitidos, definidos para esta categoría en la Tabla 2.
-4) DISPOSICIONES SOBRE LA CLASIFICACIÓN POR CALIBRE. El calibre se determina por su diámetro mayor en la sección ecuatorial del bulbo de acuerdo con la siguiente tabla.
-Tabla 1. Clasificación de la cebolla según su diámetro
-Calibre Diámetro (cm)
-Grande Mayor de 8,6
-Mediana 5,1 a 8,5
-Pequeña 3, 0 a 5,0
+4) DISPOSICIONES SOBRE LA CLASIFICACIÓN POR CALIBRE. El calibre se podrá determinar por su diámetro mayor en la sección ecuatorial del bulbo de acuerdo con la tabla 1 del Anexo 1 “Disposiciones relativas al calibre”, de este Reglamento técnico.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35852 del 25 de enero de 2010)
 5) DISPOSICIONES SOBRE TOLERANCIAS
 5.1 Tolerancias de calidad. Las tolerancias respecto a la calidad, se establecen para cada empaque, o en cada lote, partida, o embarque de producto a granel o empacado, de acuerdo a lo establecido en este Reglamento.
 5.1.1 Defectos permitidos.
@@ -101,3 +98,12 @@ Para la redacción de este documento se tomaron en cuenta los siguientes documen
 - Costa Rica. Consejo Nacional de la Producción. Norma de calidad de cebolla de consumo nacional. Control de Calidad, CNP, San José: 1992.
 - Costa Rica. Bolsa de Productos Agropecuarios S. A. Norma comercial de cebolla. Bolpro, San José: 1994.
 - Costa Rica. Ministerio de Salud. Dirección de Registro y Controles. Unidad Técnica Especializada. Oficio DRC-UT-082-05-2000 de 29 de mayo del 2000 de la Dra. María de los Ángeles Morales.
+Anexo 1
+Disposiciones relativas al calibre
+(Informativo)
+Tabla 1. Clasificación de la cebolla según diámetro
+Calibre Diámetro (cm)
+Grande Mayor de 8.6
+Mediana 5.1 a 8.5
+Pequeña 3.0 a 5.0
+(Así adicionado el anexo anterior por el artículo 2° del decreto ejecutivo N° 35852 del 25 de enero de 2010)

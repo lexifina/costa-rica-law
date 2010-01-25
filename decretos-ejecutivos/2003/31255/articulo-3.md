@@ -1,1 +1,2 @@
-Artículo 3º—Se debe restringir la comercialización e internamiento al país de la cebolla seca que no cumpla con las exigencias relativas a podredumbre, según lo establecido en el punto 5.1.1, Tabla 2, del aparte 5 de Disposiciones sobre Tolerancias.
+Artículo 3º—Se debe restringir la comercialización e internamiento al país de la cebolla seca que no cumpla con las exigencias relativas a daños por hongo, mecánico, insecto, podredumbre, deformaciones o con brotes externos, según lo establecido en el punto 5.1.1, Tabla 2, del aparte 5 de Disposiciones sobre Tolerancias.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35852 del 25 de enero de 2010)
