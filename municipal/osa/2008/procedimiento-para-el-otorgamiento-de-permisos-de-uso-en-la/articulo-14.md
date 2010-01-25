@@ -1,2 +1,0 @@
-Artículo 14.—Prohibición de traspaso de los permisos de uso.
-Los permisos de uso no confieren ningún derecho subjetivo, por lo que no pueden ser traspasados, vendidos, cedidos ni subarrendados. Ningún administrado podrá disfrutar de más de un permiso de uso a la vez.

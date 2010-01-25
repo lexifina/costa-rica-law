@@ -1,2 +1,0 @@
-Artículo 8º—Precariedad del permiso de uso.
-El permiso de uso es un acto unilateral de carácter precario mediante el cual, la Municipalidad autoriza a un particular el uso privativo sobre una parcela del dominio público, conforme a los lineamientos que se establecen en el artículo 6.
