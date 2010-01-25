@@ -16,3 +16,4 @@ Reglamento Operativo del Fondo de Capital de Riesgo
 | 1 | 2007-11-22 | la propia norma |
 | 2 | 2008-02-25 | Reglamento 4554 (2008-02-25) |
 | 3 | 2009-04-23 | Reglamento 4658 (2009-04-23) |
+| 4 | 2010-01-25 | Reglamento 4725 (2010-01-25) |
