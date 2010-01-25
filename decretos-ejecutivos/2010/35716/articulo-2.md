@@ -1,0 +1,1 @@
+Artículo 2º—Declárense de interés público y nacional, las acciones y actividades que llevan a cabo las autoridades públicas, para corregir las deficiencias físico sanitarias del edificio que alberga las oficinas del puesto fronterizo de Peñas Blancas, cantón de La Cruz, Guanacaste.
