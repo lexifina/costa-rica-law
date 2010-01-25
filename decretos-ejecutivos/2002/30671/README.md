@@ -14,3 +14,4 @@ Reglamento a la Ley Nº 7406, de 3 de mayo de 1994, denominada "Emisión de Bono
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-05 | la propia norma |
+| 2 | 2010-01-25 | Decreto Ejecutivo 35785 (2010-01-25) |
