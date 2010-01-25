@@ -1,0 +1,1 @@
+IV.—Establecer que el proceso de homologación deberá asegurar que todos los equipos terminales de telefonía móvil se puedan activar, conectar y ser reconocidos con la totalidad de funciones y aplicaciones disponibles en las distintas redes de los operadores y proveedores de servicios de telecomunicaciones.

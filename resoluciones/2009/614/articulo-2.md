@@ -1,0 +1,1 @@
+II.—Definir que todos los operadores y proveedores de redes móviles activarán en sus redes únicamente equipos homologados por la SUTEL. En caso de que algún usuario desee activar dispositivos móviles no homologados, deberá firmar de previo a la activación, un acuerdo con el proveedor donde manifieste que renuncia a futuras reclamaciones por problemas de calidad.

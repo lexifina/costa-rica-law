@@ -1,0 +1,1 @@
+V.—Asegurar que no se requieran códigos especiales de desbloqueo o modificaciones en el hardware o software (o firmware) de los terminales de telefonía móvil para que estos puedan ser totalmente operables con todas sus funcionalidades y aplicaciones en las redes de otros operadores y proveedores.
