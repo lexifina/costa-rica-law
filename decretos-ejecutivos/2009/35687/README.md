@@ -14,3 +14,4 @@ Reglamento al inciso c) artículo 14 bis de Ley Orgánica del BPDC "Determinaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-06 | la propia norma |
+| 2 | 2010-01-26 | Decreto Ejecutivo 35717 (2010-01-26) |
