@@ -1,0 +1,2 @@
+Artículo 116.—Peritajes, avalúos, investigaciones, dictámenes e inspecciones. De conformidad con los artículos 18 y 51 inciso e) de la Ley 8412, todos los peritajes, avalúos, investigaciones, dictámenes e inspecciones en los campos correspondientes a las profesiones incorporadas al Colegio, deberán ser efectuados por profesionales colegiados, activos o eméritos.
+El Colegiado firmará los documentos correspondientes como profesional responsable y los debe refrendar en el Colegio.

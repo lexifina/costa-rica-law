@@ -1,0 +1,1 @@
+Artículo 65.—Consultas Supremos Poderes. Las consultas formuladas por los Supremos Poderes, a través de sus Jerarcas, no devengarán honorarios. Para las instituciones de beneficencia o de evidente beneficio social podrán fijarse honorarios más bajos, en atención a sus posibilidades, que los generalmente dispuestos para labores similares.

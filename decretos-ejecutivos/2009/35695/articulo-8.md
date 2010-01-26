@@ -1,0 +1,2 @@
+Artículo 8º—Profesionales extranjeros. Para gestionar la acreditación profesional como miembro activo, los extranjeros graduados en Costa Rica deberán presentar los documentos a los que se refiere el artículo 6 de este reglamento, incisos del b) al i), así como su cédula de residencia al día.
+Los extranjeros graduados en el exterior deberán cumplir además los requisitos a los que se hace referencia en el artículo 7.

@@ -1,0 +1,1 @@
+Artículo 336.—Reforma al Reglamento. Trámite: Toda reforma a este Reglamento, deberá aprobarla la Asamblea General, por simple mayoría de los votos presentes para que tenga validez. Una vez aprobada se someterá al Poder Ejecutivo para su promulgación.

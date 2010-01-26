@@ -1,0 +1,1 @@
+Artículo 54.—Solicitudes de adición y aclaración. Son gestiones cuyo objetivo es aclarar una resolución que es oscura o confusa, o adicionar una que es omisa en cuanto a la resolución de todos los puntos de la petición.

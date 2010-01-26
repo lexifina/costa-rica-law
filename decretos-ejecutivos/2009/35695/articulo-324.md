@@ -1,0 +1,1 @@
+Artículo 324.—Perfil profesional. Ejercicio de la profesión: Los profesionales acreditados al Colegio de Ingenieros Químicos y de Profesionales Afines, ejercerán la profesión en que estén acreditados de acuerdo a su perfil profesional.

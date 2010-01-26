@@ -1,0 +1,2 @@
+Artículo 164.—Establecimientos de investigación y diagnóstico. Publicidad y promoción: El Colegio publicará la lista de los establecimientos de investigación y diagnóstico con indicación de la o las especialidades en que están autorizados para operar.
+Un establecimiento de investigación y diagnóstico podrá efectuar publicidad y promoción de sus servicios, ajustándose a emblemas y leyendas que señalen en forma concisa la naturaleza de los servicios que ofrece.

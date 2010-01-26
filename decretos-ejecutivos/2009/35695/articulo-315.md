@@ -1,0 +1,2 @@
+Artículo 315.—Administración del Fondo de Mutualidad y Subsidio: El Fondo de Mutualidad y Subsidio será administrado por la Junta Directiva del Colegio, de conformidad con la Ley 8412, Título I y de este Reglamento.
+La Asamblea General del Colegio, podrá encargar el manejo de los fondos, a una entidad financiera nacional, pero la Junta Directiva conservará el control administrativo de dichos fondos.

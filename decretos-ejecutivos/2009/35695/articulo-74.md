@@ -1,0 +1,2 @@
+Artículo 74.—Informe. Honorarios: La Junta Directiva girará los honorarios a quien corresponda, una vez rendido el informe a entera satisfacción de la Comisión de consultas y arbitrajes ingresará el porcentaje correspondiente a los fondos del Colegio y devolverá cualquier sobrante, si lo hubiere, al solicitante.
+Para el pago de los honorarios a quien corresponda, éste deberá presentar la factura respectiva.

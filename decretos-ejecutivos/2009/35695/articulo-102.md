@@ -1,0 +1,1 @@
+Artículo 102.—Integración de Órganos. Ternas: La Junta Directiva, en la misma comunicación escrita, invitará a los miembros a participar dentro del tiempo establecido en el concurso para la integración de la respectiva terna o nómina.

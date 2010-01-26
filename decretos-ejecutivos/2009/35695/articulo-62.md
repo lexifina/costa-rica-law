@@ -1,0 +1,4 @@
+Artículo 62.—Escogencia de miembros del Colegio. Trámite: La Comisión de consultas y arbitrajes, mediante resolución razonada, escogerá al o los miembros del Colegio que harán el estudio de la solicitud de patente o de quienes se propongan como candidatos para que evacuen la consulta. La escogencia la hará de entre las personas cuyas especialidades y aceptación presumida se dispone, conforme al artículo 61, dentro de los quince días naturales siguientes a la presentación ante la Dirección Administrativa de la gestión del organismo solicitante.
+En la misma resolución razonada de escogencia, la Comisión de consultas y arbitrajes establecerá:
+a) La obligación de rendir el informe dentro de un plazo razonable que se inicia cuando el o los profesionales nominados hallan aceptado el encargo.
+b) El monto de los honorarios a que tendrá derecho el o los dictaminadores una vez cumplida satisfactoriamente su labor, a juicio de la Comisión de consultas y arbitrajes.

@@ -1,0 +1,1 @@
+Artículo 220.—Reportes de análisis: Los análisis elaborados por miembros activos o eméritos del Colegio de Ingenieros Químicos y Profesionales Afines de Costa Rica, con carácter de documento público, deberán cumplir la normativa interna que dictará la Asamblea General del Colegio.

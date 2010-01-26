@@ -1,0 +1,1 @@
+Artículo 156.—Empresas Consultoras, de diseño, de montaje, de instalación y de puesta en marcha. Inscripción. Solicitud: En la solicitud de inscripción, la empresa debe indicar para que cada una de las especialidades que solicite le sean reconocidas el nombre del miembro activo o emérito del Colegio, registrado en dicha especialidad, quien tendrá la responsabilidad profesional.

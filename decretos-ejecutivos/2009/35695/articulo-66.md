@@ -1,0 +1,1 @@
+Artículo 66.—Miembros de Junta Directiva. Prohibición: Los miembros de la Junta Directiva, el Fiscal y el Director Administrativo no podrán participar como dictaminadores remunerados, en asuntos sometidos al conocimiento del Colegio por terceras personas, sean éstas públicas o privadas.

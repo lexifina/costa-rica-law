@@ -1,0 +1,3 @@
+Artículo 244.—Asambleas Generales Ordinarias o Extraordinarias. Asistencia: La asistencia a las Asambleas Generales es obligatoria para los miembros activos del Colegio. Los miembros activos del Colegio y los miembros eméritos tendrán derecho a voto en ellas.
+El voto para las elecciones es secreto, en fórmulas especiales que se entregarán a los Colegiados con derecho a voto.
+La ausencia no justificada a las Asambleas Generales, ordinarias o extraordinarias del Colegio, será causal de una multa cuyo monto se establecerá en el Reglamento de Tarifas y Costos, conforme al Transitorio II de este Reglamento.

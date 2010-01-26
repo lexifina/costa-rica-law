@@ -1,0 +1,1 @@
+Artículo 98.—Acciones Legales. Reserva económica: Antes de emprender las acciones legales correspondientes, la Junta Directiva que las autoriza y el Presidente de la Junta Directiva que las tramita deberán evaluar las consecuencias económicas y hacer las reservas monetarias para hacerle frente al juicio respectivo.

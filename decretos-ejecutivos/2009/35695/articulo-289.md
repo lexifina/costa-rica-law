@@ -1,0 +1,1 @@
+Artículo 289.—Presentación de denuncias por el ejercicio ilegal de la profesión: Las denuncias sobre el ejercicio ilegal de la profesión se presentarán ante el Director Administrativo o el Fiscal, quienes informarán a la Junta Directiva para que se tomen las medidas correspondientes.

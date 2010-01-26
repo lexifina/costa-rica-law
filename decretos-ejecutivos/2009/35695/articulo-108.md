@@ -1,0 +1,1 @@
+Artículo 108.—Constitución de terna por Asamblea General. Cuando sea la Asamblea General la encargada de confeccionar una terna o nómina deberá convocarse a sus miembros a asamblea general extraordinaria, con ese objeto exclusivo. En lo procedente, serán aplicables las disposiciones de los artículos anteriores.

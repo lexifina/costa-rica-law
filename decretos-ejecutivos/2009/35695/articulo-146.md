@@ -1,0 +1,2 @@
+Artículo 146.—Actividad de Consultoría. Contratos. Remuneración: En el contrato se debe establecer la modalidad de remuneración conforme con alguna de las establecidas en el presente Reglamento, o con una combinación de ellas.
+Los honorarios que el cliente debe cubrir al consultor, tendrán que quedar establecidos, ya fuere de manera provisional, orientadora o definitiva, según se trate respectivamente de remuneración mediante tarifas, “costo plus” o suma alzada, según se definen en el Reglamento de costos, tarifas y honorarios, conforme al Transitorio II.

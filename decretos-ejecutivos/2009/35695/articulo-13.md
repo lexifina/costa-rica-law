@@ -1,0 +1,14 @@
+Artículo 13º—Autorización para el ejercicio temporal de la profesión. Requisitos: La Junta Directiva del Colegio podrá autorizar a ejercer temporalmente la profesión, luego de comprobar los documentos correspondientes:
+a) Por un plazo máximo de seis meses, a costarricenses graduados en las universidades nacionales y a los graduados en universidades extranjeras que sólo tengan pendiente su juramentación ante este colegio.
+b) Por un plazo no mayor de un año, a los profesionales extranjeros que vengan al país a prestar servicios profesionales, por no contarse en el país con profesionales con formación específica a la especialidad requerida; o bien, ausencia de profesionales disponibles para los servicios requeridos en forma temporal, en una institución pública o privada; para ello deberán cumplir con el trámite de presentar solicitud escrita de permiso para ejercer la profesión en forma temporal, con indicación de sus calidades personales y acompañada de lo siguiente:
+i- Certificación de la entidad, pública o privada, que demanda sus servicios, con indicación de la naturaleza de la asesoría que prestará, del plazo en que lo hará y de las sumas de cualquier índole que percibirá por ello.
+ii- Constancia emitida por el Ministerio de Trabajo de no contarse en el país con formación específica a la especialidad requerida o ausencia de profesionales disponibles para los servicios requeridos, que debe ser demostrada fehacientemente por la institución que requiere los servicios.
+iii- Copia cerificada del respectivo título o grado universitario y una copia fotostática fiel del mismo, que quedará en su expediente personal.
+iv- Constancia de no tener juzgamientos en su país de origen.
+v- Tres fotografías recientes de tamaño pasaporte, de frente y sin retoque.
+vi- Recibo de cancelación de la cuota de autorización, definida en el Reglamento de Tarifas y Costos, conforme al Transitorio II.
+vii- Certificación de que el respectivo título o grado ha sido reconocido y homologado por el Consejo Nacional de Rectores (CONARE) o el Consejo Nacional de la Educación Superior Privada (CONESUP).
+viii- Currículum vitae.
+ix- Declaración jurada del profesional en la cual se obliga a trabajar en el país junto a un Ingeniero Químico o Profesional Afín costarricense, acreditado al Colegio y de transmitirle todos los conocimientos posibles relacionados con su campo de actividad e incluir la firma de conformidad del profesional que trabajará junto a él.
+x- Compromiso escrito de que una vez vencida la autorización temporal, en caso de requerirse tiempo adicional del trabajo, cumplirá los trámites de reconocimiento de su título ante el Consejo Nacional de Rectores y de incorporarse al Colegio para ejercer la profesión.
+Los documentos señalados en los puntos iii y iv deberán presentarse debidamente autenticados por las autoridades consulares costarricenses correspondientes y legalizados.

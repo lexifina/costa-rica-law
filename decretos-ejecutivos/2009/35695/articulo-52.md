@@ -1,0 +1,1 @@
+Artículo 52.—Admisibilidad de Recurso de Apelación. El órgano que conoce de la apelación resolverá sobre la admisibilidad del recurso. De ser admitido el recurso, se confirmará, modificará o revocará el acto impugnado.

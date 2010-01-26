@@ -1,0 +1,1 @@
+Artículo 227.—Registro de empresas y establecimientos. Costos administrativos: Los costos administrativos de inscripción o de renovación se pagarán en forma anual de acuerdo al Reglamento de Tarifas y Costos.

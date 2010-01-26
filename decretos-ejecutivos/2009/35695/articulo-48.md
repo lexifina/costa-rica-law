@@ -1,0 +1,2 @@
+Artículo 48.—Recurso de apelación. Trámite: Presentado el recurso de apelación en tiempo y forma, se deberá emplazar al gestionante y a los afectados para que concurran a hacer valer sus derechos ante el órgano correspondiente, advirtiéndoles que pueden apersonarse a las deliberaciones respectivas con voz pero sin voto.
+La convocatoria de la comparecencia deberá notificarse conforme se establece en este Reglamento.

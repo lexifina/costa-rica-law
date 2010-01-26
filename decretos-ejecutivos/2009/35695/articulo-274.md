@@ -1,0 +1,1 @@
+Artículo 274.—Ente encargado de los servicios para la promoción de la pequeña y mediana empresa: La Junta Directiva nombrará un ente encargado de la coordinación de los diferentes servicios señalados en el Artículo 273.

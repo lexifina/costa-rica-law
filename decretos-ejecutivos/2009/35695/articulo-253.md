@@ -1,0 +1,1 @@
+Artículo 253.—Comisiones. Quórum: El quórum para las sesiones de las Comisiones del Colegio, ordinarias o extraordinarias, estará formado para la primera y segunda convocatoria por no menos de la mayoría simple de sus miembros, realizada una hora después.

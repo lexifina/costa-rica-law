@@ -1,0 +1,1 @@
+Artículo 177.—Regencias. Causales de suspensión: El incumplimiento de funciones, comprobado por la Fiscalía, será causal de la suspensión de la Autorización de Regencia conforme a las regulaciones del Colegio.

@@ -1,0 +1,1 @@
+Artículo 79.—Tribunal de Honor. Deliberaciones y Votaciones: Todas aquellas deliberaciones y votaciones, en materia disciplinaria del Tribunal de Honor, serán secretas y el resultado final se inscribirá en un libro especial que deberá llevar el Tribunal de Honor.

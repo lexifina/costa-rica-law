@@ -1,0 +1,1 @@
+Artículo 261.—Encargado de caja chica: El Director Administrativo nombrará un encargado de caja chica que manejará el fondo y solicitará reembolsos cada vez que tenga agotado aproximadamente el cincuenta por ciento (50%) del fondo.

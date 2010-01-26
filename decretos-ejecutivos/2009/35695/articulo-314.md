@@ -1,0 +1,1 @@
+Artículo 314.—Fondo de Mutualidad y Subsidio. Contabilidad independiente: Las reservas acumuladas por el Fondo deben contabilizarse independientemente de la contabilidad general del Colegio, y se mantendrá una cuenta bancaria especial y exclusiva para el manejo de estos fondos.

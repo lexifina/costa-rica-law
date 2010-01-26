@@ -1,0 +1,1 @@
+Artículo 172.—Establecimientos de investigación y diagnóstico. Regente. Requisito de presencia física: El tiempo de presencia física del Regente será determinado mediante la aplicación de lo dispuesto en el capítulo de servicios de regencia en relación con el tipo de servicios ofrecidos y tamaño del establecimiento de investigación y diagnóstico.

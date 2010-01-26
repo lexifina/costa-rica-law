@@ -1,0 +1,2 @@
+Artículo 47.—Revocatoria. Resolución: Presentado en tiempo y forma el recurso de revocatoria, el órgano procederá a dictar la resolución que corresponda dentro de los ocho días hábiles siguientes, pudiendo reservarla para cuando vierta el acto final, lo cual deberá notificar por escrito a los interesados.
+En la resolución deberá expresarse claramente, en forma razonada y por escrito, si se admite el recurso y, en consecuencia, que se revoca o se deja pendiente de ejecución la resolución anterior. Si se rechaza el recurso, debe decirse que se mantiene lo actuado.

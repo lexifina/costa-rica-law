@@ -1,0 +1,1 @@
+Artículo 138.—Cancelación de Regencia. Comunicación: Cuando el Colegio cancele una Regencia se comunicará la resolución a los Ministerios de Salud, de Agricultura y Ganadería; de Economía, Industria y Comercio, de Hacienda y a las demás instituciones, para que no se tramite ningún documento que deba ser obligatoriamente firmado por el Regente

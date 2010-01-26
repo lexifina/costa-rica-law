@@ -1,0 +1,1 @@
+Artículo 90.—Procedimiento administrativo. Diligencias previas: con carácter previo al levantamiento de un expediente disciplinario, la Junta Directiva podrá acordar la instrucción de diligencias informativas previas en un plazo máximo de 30 días hábiles.

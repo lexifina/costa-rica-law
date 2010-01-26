@@ -1,0 +1,1 @@
+Artículo 148.—Actividad de Consultoría. Honorarios provisionales: Cuando los honorarios se hayan establecido de manera provisional deberán ajustarse una vez que se conozca el monto final del valor de la inversión de capital, de conformidad con lo establecido en el artículo 152.

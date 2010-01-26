@@ -1,0 +1,150 @@
+Artículo 322.—Perfil profesional de la Ingeniería en Metalurgia, de la Ciencia en Materiales y de la Ingeniería en materiales: Los profesionales en Ingeniería en Metalurgia, de la Ciencia en Materiales y de la Ingeniería en Materiales en sus diferentes énfasis, están cubiertos bajo la clasificación en la Ley 8412 como Ingeniería en Metalurgia o Ciencia e Ingeniería en Materiales.
+El campo profesional de los Ingenieros en Metalurgia, en Ciencia en Materiales y en Ingeniería en Materiales en sus diferentes énfasis, están definidos por los perfiles profesionales siguientes:
+A. Ingeniero en Metalurgia: Su quehacer profesional se enfoca a la selección y operación de los procesos de manufactura en las áreas de metalurgia extractiva de materiales ferrosos y no ferrosos y procesamiento, metalurgia química, metalurgia física, refinación por electrólisis, fundición, procesos de soldadura y aplicación de polvos metálicos, control de la calidad de la materia prima, procesos metalúrgicos y sus productos, incluye además el análisis de fallas en metales, estudio de la corrosión y métodos de protección mediante técnicas de protección electrolítica y de recubrimientos metálicos u otros. Gestión regulatoria estatal en el campo de control, regulación y seguimiento de establecimientos e industria en el campo de su ejercicio profesional. Su perfil profesional incluye las siguientes áreas:
+1. Participación en la investigación y desarrollo de los materiales, procesos de fabricación de materiales, estructura y propiedades de los materiales, fuentes de materias primas y su tratamiento, análisis estructural de materiales, sus aplicaciones y tratamientos, sistemas de protección ambiental y seguridad operacional en su campo de acción. Incluye otras áreas relacionadas, tales como:
+a. Investigación de fuentes de energía o mejoramiento de las existentes, que se utilizan en la producción y tratamiento de los materiales.
+b. Desarrollo y establecimiento de modelos de operación más eficiente y segura en las industrias relacionadas con el desarrollo y utilización de los materiales.
+c. Investigación y desarrollo de la aplicación del procesamiento y uso de materias primas nuevas, así como la elaboración de productos nuevos.
+d. Investigación y desarrollo de especificaciones de materiales y productos.
+e. Investigación y Desarrollo de métodos de investigación y control de materiales y sus aplicaciones.
+2. Planificación de la instalación de plantas para el procesamiento de materiales incluidos en el área de su quehacer profesional, equipos o procesos operativos nuevos, incluyendo el desarrollo, preparación y investigación de estudios técnicos y económicos, que pueden incluir simulación y optimización de procesos productivos de materiales. Se incluye, entre otros:
+a) Optimización del o de los procesos que se aplicarán en la fabricación, procesamiento y uso de los materiales de su quehacer profesional, así como el equipo adecuado para la eficiencia y menor costo.
+b) Planificar los procedimientos, controles operativos y análisis de control de las instalaciones de su quehacer profesional.
+c) Elaboración del estudio de factibilidad correspondiente a proyectos relacionados a su quehacer profesional y planificación de fuentes de financiamiento.
+d) Establecimiento de las especificaciones y parámetros para el diseño de proyectos en lo relacionado con su quehacer profesional.
+e) Establecer los diagramas de planificación de las etapas del proyecto.
+f) Planificación de la normativa que se deberá cumplir.
+g) Estudio de la mejor ubicación de las instalaciones y de los requisitos a aplicar.
+h) Elaboración de los carteles de participación para el diseño del proceso.
+3. Diseño y planificación de montaje de instalaciones del ámbito de su quehacer profesional, para la fabricación y el procesamiento de materias primas, así como materiales, equipos, productos y establecimientos de investigación y diagnóstico de control. Se incluyen entre otros:
+a) Diseño y investigación de procesos productivos, que incluyen las operaciones y procesos tales como: piro metalurgia, hidrometalurgia, electrometalurgia, procesos de unión y fundición, procesos de extracción y procesamiento, procesos de tratamiento térmico, etc.
+b) Investigación de las plantas y equipos para el tratamiento de efluentes residuales, emisiones atmosféricas, desechos sólidos y otros.
+c) Diseño y preparación de manuales y especificaciones de operación, según corresponda.
+d) Diseño de equipos de acreditación profesional, sobre mejoras en los procesos de extracción, refinación y fabricación de materiales.
+e) Investigación del diseño de equipos de acreditación profesional, sobre mejoras en los procesos metalúrgicos.
+f) Especificación de los requisitos de control del proceso productivo.
+g) Diseño, especificación y elaboración de los procedimientos y manuales requeridos para la seguridad e higiene industrial, el combate de incendios, prevención de la contaminación ambiental (aire, agua, tierra y otros) y ahorro energético, en las áreas de su quehacer profesional.
+h) Coordinación con otros profesionales, que se encargarán de elaborar los planos completos de la planta.
+i) Trámite de los permisos requeridos para las instalaciones a su cargo.
+4. Coordinación de la construcción y montaje de equipos de procesamiento, en las instalaciones relacionadas con su quehacer profesional.
+5. Dirección y supervisión del arranque y funcionamiento de los equipos, de las instalaciones y la calidad de los productos obtenidos. Incluye, entre otros:
+a) Coordinación y control de las pruebas de cada equipo y análisis de los resultados obtenidos.
+b) Investigación del funcionamiento general de la instalación.
+c) Investigación de la calidad de los productos obtenidos y trámite de su aceptación.
+d) Emitir los reportes de aceptación o rechazo de los equipos o procesos, así como la recomendación de los cambios operativos o de equipo que se requieran.
+6. Dirección de la operación de las instalaciones industriales de su quehacer profesional, tales como instalaciones de pirometalurgia, hidrometalurgia, electrometalurgia, procesos de unión y fundición, procesos de extracción y procesamiento de metales, procesos de tratamiento térmico, etc. También administrando las operaciones en cuanto a: la operación normal del equipo y desempeño del proceso, a la planificación, al análisis y programación de la producción, al control de la productividad, de la calidad, de los inventarios, del manejo de personal, costos y control de presupuesto, etc. Incluyendo, entre otros:
+a) Administración y optimización de las plantas, teniendo como objetivo lograr una industria eficiente y rentable.
+b) Supervisión y control de procesos y equipos, incluyendo sus variables operativas y solución de los problemas que se presenten.
+c) Aplicación de normas y procedimientos de seguridad e higiene en la industria de su quehacer profesional.
+d) Control del tratamiento de efluentes residuales, emisiones atmosféricas, disposición de desechos sólidos y todo tipo de contaminación en la industria correspondiente a su quehacer profesional.
+e) Supervisión de la calidad de materias primas y productos, elaborando los reportes correspondientes, tales como: certificaciones, dictámenes y hojas de seguridad de los mismos.
+f) Investigaciones sobre potencial de materiales e insumos nacionales.
+g) Supervisión y adiestramiento del personal a su cargo.
+h) Coordinación de sus labores con otras secciones de la empresa.
+i) Proponer inversiones a la industria, de acuerdo a la renovación u optimización del equipo y procesos.
+7. Operación, dirección y administración de establecimiento de investigación y diagnóstico s, especializados en el área metalúrgica, efectuando pruebas destructivas y no destructivas, análisis físicos y químicos, en los materiales de su quehacer profesional. Incluye, entre otros:
+a) Análisis radiográficos, de ultrasonido, líquidos penetrantes y otros, así como su interpretación.
+b) Análisis físicos de tracción, compresión, torsión, fatiga, dureza y otros similares, así como su interpretación.
+c) Análisis del avance y causa de la corrosión y las medidas para su tratamiento y prevención.
+d) Ejecución y investigación de la composición de los materiales de su quehacer profesional.
+e) Ejecución de investigaciones de recubrimientos metálicos, tales como: electrodeposición, inmersión en caliente y otros.
+8. Consultoría para la investigación y cuantificación del riesgo, supervisión y auditoria de los tratamientos y plantas para el control de la contaminación ambiental (agua, aire, suelos y otros) en los establecimientos relacionados con su quehacer profesional. Establecimiento de los procedimientos de control requeridos en las empresas relacionadas con su quehacer profesional, incluyendo la edición de los manuales operacionales y de mantenimiento, junto con los permisos oficiales requeridos. Se incluyen, entre otros:
+a) Elaboración de manuales y controles operativos en las diferentes empresas relacionadas con su quehacer profesional, mediante los cuales se estandarizan las normas de calidad, de trabajo y de seguridad requeridas.
+b) Investigación y control de las condiciones ambientales y de seguridad de las empresas industriales relacionadas con su quehacer profesional, preparando planes de gestión ambiental, emitiendo reportes operacionales, así como preparando planes de seguridad e higiene industrial. Incluye el trámite de los informes efectuados ante las oficinas públicas y privadas.
+c) Auditoria de calidad de procesos y productos, relacionados con su quehacer profesional.
+d) Servicios de control y análisis de procesos y calidad de materiales relacionados con su quehacer profesional y el cumplimiento de las normativas vigentes.
+e) Investigación y control de las condiciones ambientales y de seguridad de los establecimientos relacionados con su quehacer profesional.
+9. Labores en ventas y mercadeo: Se desarrollarán en cuatro áreas, tales como: investigación de mercado, desarrollo de productos, técnicos en ventas y servicios técnicos al consumidor, asistiendo a los clientes en resolver problemas específicos, supliendo productos, equipos y servicios de su quehacer profesional.
+10. Consultoría para trámites y registros: elaboración de los trámites oficiales o institucionales que requieren los establecimientos relacionados con su quehacer profesional, para cumplir la normativa establecida, participando en la implementación, ejecución y control de las políticas de apoyo empresarial y tecnológicas para que el cliente cumpla con las normativas, acreditaciones y otros trámites que se deban satisfacer.
+11. Consultoría en labores relacionadas con la seguridad del proceso y ambiente: Supervisión y mantenimiento de las instalaciones productivas relacionadas con su quehacer profesional, de tal forma que sean seguras para los trabajadores y comunidades aledañas. Elaboración y dictamen de reportes de seguridad para equipos nuevos o existentes o para un proceso global. Entrenamiento y elaboración de manuales para los empleados en la operación y manejo seguro de equipos, procesos o productos. Elaboración y dirección de los planes de respuesta a situaciones de emergencia.
+En cuanto a los aspectos ambientales, desarrollo de técnicas para reducir la contaminación al ambiente y recobrar materiales recuperables de desecho que se producen en la manufactura de un producto. Supervisión del almacenaje de desechos y de las facilidades de tratamiento, esto de acuerdo a las estrategias de control y protección de la salud y el ambiente en la operación de la planta. Responsabilizarse de monitorear los sistemas en una instalación productiva del campo de su quehacer profesional, para cumplir con las regulaciones del Estado sobre el ambiente. Preparación de planes de gestión ambiental, estudios de impacto ambiental, emitiendo los reportes operacionales correspondientes en los establecimientos relacionados con su quehacer profesional.
+Formulación, desarrollo y control de normativas, teniendo en cuenta los factores que puedan afectar el ambiente y la salud de la población.
+12. Efectuar trabajos de investigación y preparar informes de asuntos técnicos, que se requieran para emitir un dictamen profesional en campos diversos de su quehacer profesional, requeridos por instituciones o empresas públicas o privadas.
+13. Capacitación y adiestramiento de personas en instituciones educativas de enseñanza superior, trabajadores de empresas incluidas en su quehacer profesional, preparación e impartir seminarios, conferencias y cursos.
+14. Funciones Complementarias tales como:
+a) Procura de equipos y materiales.
+b) Gerencia y administración.
+c) Participar, en el ámbito gubernamental, en las políticas de apoyo para la creación de empresas.
+El profesional está circunscrito en su campo de competencia profesional a lo establecido en la Ley 8412 Título I y no podrá invadir competencias reservadas a otros profesionales.
+B. Ingeniero en Materiales en sus diferentes énfasis: Su quehacer profesional se enfoca en el desarrollo de materiales desde el nivel atómico, hasta los materiales y productos finales, entre los que se incluyen materiales metálicos y aleaciones, materiales cerámicos, materiales electrónicos, materiales poliméricos, materiales nano estructurados, materiales con funcionalidad química, teniendo en cuenta su estructura y microestructura, sus propiedades específicas requeridas, así como las técnicas de producción, análisis y control. Gestión regulatoria estatal en el campo de control, regulación y seguimiento de establecimientos e industria en el campo de su ejercicio profesional. Su perfil profesional incluye las siguientes áreas:
+1. Participación en la investigación y desarrollo de los materiales, procesos de fabricación de materiales, estructura y propiedades de los materiales, fuentes de materias primas y su tratamiento, análisis estructural de materiales, sus aplicaciones y tratamientos, sistemas de protección ambiental y seguridad operacional en su campo de acción. Incluye otras áreas relacionadas tales como:
+a) Desarrollo o mejoramiento de modelos matemáticos que representen en forma adecuada los procesos de transformación de los materiales.
+b) Desarrollo y establecimiento de modelos de operación más eficiente y segura en las industrias relacionadas con el desarrollo y utilización de los materiales.
+c) Investigación y desarrollo de la aplicación del procesamiento y uso de materias primas nuevas, así como la elaboración de productos nuevos.
+d) Investigación y desarrollo de especificaciones de materiales y productos.
+e) Investigación y desarrollo de métodos de investigación y control de materiales, así como sus aplicaciones.
+2. Planificación de la instalación de plantas para el procesamiento de materiales incluidos en el área de su quehacer profesional, equipos o procesos operativos nuevos, incluyendo el desarrollo, preparación y investigación de estudios técnicos y económicos, que pueden incluir simulación y optimización de procesos productivos de materiales. Se incluye, entre otros:
+a) Optimización del o de los procesos que se aplicarán en la fabricación, procesamiento y uso de los materiales de su quehacer profesional, así como del equipo adecuado para la eficiencia y menor costo.
+b) Planificar los procedimientos, controles operativos y análisis de control de los materiales y su proceso.
+c) Elaboración del estudio de factibilidad correspondiente a proyectos relacionados a su quehacer profesional y planificación de fuentes de financiamiento.
+d) Establecimiento de las especificaciones y parámetros para el diseño de proyectos relacionados.
+e) Establecer los diagramas de planificación de las etapas del proyecto.
+f) Planificación de la normativa que se deberá cumplir.
+g) Estudio de la mejor ubicación de las instalaciones y de los requisitos a aplicar.
+h) Elaboración de los carteles de participación para el diseño de las instalaciones.
+3. Diseño y planificación de montaje de instalaciones industriales, para la fabricación y el procesamiento de materias primas y materiales, equipos y productos, establecimientos de investigación y diagnóstico de control. Se incluyen entre otros:
+a) Diseño y investigación de procesos productivos, que incluyen las operaciones y procesos para los materiales incluidos en su quehacer profesional.
+b) Diseño y preparación de manuales y especificaciones de operación y control, según corresponda.
+c) Diseño de equipos y acreditación profesional de mejoras en la fabricación de materiales y productos.
+d) Investigación del diseño de equipos y acreditación profesional de mejoras en los procesos de los materiales.
+e) Especificación de los requisitos de control del proceso productivo.
+f) Coordinación con otros profesionales, que se encargarán de elaborar los planos completos de las instalaciones relacionadas con su quehacer profesional.
+g) Trámite de los permisos requeridos para la instalación de las facilidades relacionadas con su quehacer profesional.
+4 Dirección y supervisión del arranque y funcionamiento de los equipos de las instalaciones, y calidad de los materiales y productos obtenidos. Incluye, entre otros:
+a) Coordinación y control de las pruebas de cada equipo y análisis de los resultados obtenidos.
+b) Investigación del funcionamiento general de las instalaciones relacionadas con su quehacer profesional.
+c) Investigación de la calidad de los materiales y productos obtenidos y trámite de su aceptación.
+d) Emitir los reportes de aceptación o rechazo de los equipos o procesos, así como la recomendación de los cambios operativos o de equipo que se requieran.
+5. Dirección de la operación de los establecimientos relacionados con su quehacer profesional, administrando las operaciones en cuanto a: la operación normal del equipo y desempeño del proceso, a la planificación, al análisis y programación de la producción, control de la productividad, de la calidad, de los inventarios, del manejo de personal, costos y control de presupuesto. Incluyendo, entre otros:
+a) Administración y optimización de las instalaciones, teniendo como objetivo lograr un proceso eficiente y rentable.
+b) Supervisión y control de procesos y equipos de las instalaciones, incluyendo sus variables operativas y solución de los problemas que se presenten.
+c) Aplicación de normas y procedimientos de seguridad e higiene en los establecimientos relacionados con su quehacer profesional.
+d) Supervisión de la calidad de materias primas y productos, elaborando los reportes correspondientes, tales como: certificaciones, dictámenes y hojas de seguridad de los mismos.
+e) Investigaciones sobre potencial de materiales e insumos nacionales.
+f) Supervisión y adiestramiento del personal a su cargo.
+g) Coordinación de sus labores con otras secciones de la empresa.
+h) Proponer inversiones a la industria relacionada con su quehacer profesional, de acuerdo a la renovación u optimización del equipo y procesos.
+6. Operación, dirección y administración de establecimientos de investigación y diagnóstico especializados en el área de materiales, efectuando pruebas destructivas y no destructivas, análisis físicos y químicos en los materiales de su quehacer profesional. Incluye, entre otros:
+a) Análisis radiográficos, de ultrasonido, líquidos penetrantes y otros, así como su interpretación.
+b) Análisis físicos de tracción, compresión, torsión, fatiga, dureza y otros similares así como su interpretación.
+c) Análisis del avance y causa de la corrosión y las medidas para su tratamiento y prevención.
+d) Ejecución y investigación de la composición de los materiales de su quehacer profesional.
+e) Ejecución de investigaciones de recubrimientos metálicos, tales como: electrodeposición, inmersión en caliente y otros.
+7. Consultoría para el establecimiento de los procedimientos de control requeridos en los establecimientos de su quehacer profesional, incluyendo la edición de los manuales operacionales y de mantenimiento, junto con los permisos oficiales requeridos. Se incluyen, entre otros:
+a) Elaboración de manuales y controles operativos en las diferentes empresas relacionadas con su quehacer profesional, mediante los cuales se estandarizan las normas de calidad, de trabajo y de seguridad requeridas.
+b) Auditoria de la calidad de los procesos y productos, relacionados con su quehacer profesional.
+c) Servicios de control y análisis de procesos y calidad de materiales relacionados con su quehacer profesional y el cumplimiento de las normativas vigentes.
+d) Investigación y control de las condiciones ambientales y de seguridad de los establecimientos relacionados con su quehacer profesional.
+8. Labores en ventas y mercadeo: se desarrollarán en cuatro áreas, tales como: investigación de mercado, desarrollo de productos, técnicos en ventas y servicios técnicos al consumidor, asistiendo a los clientes en resolver problemas de producción y proceso de su quehacer profesional.
+9. Consultoría para trámites y registros: Elaboración de los trámites oficiales o institucionales que requieren los establecimientos relacionados con su quehacer profesional, para cumplir la normativa establecida, participando en la implementación, ejecución y control de las políticas de apoyo empresarial y tecnológicas para que el cliente cumpla con las normativas, acreditaciones y otros trámites que se deban satisfacer.
+10. Consultoría en labores relacionadas con la seguridad del proceso y del ambiente de las instalaciones relacionadas con su quehacer profesional, de tal forma que sean seguras para los trabajadores y comunidades aledañas. Entrenamiento y elaboración de manuales para los empleados en la operación y manejo seguro de equipos, procesos o productos. Elaboración y dirección de los planes de respuesta a situaciones de emergencia. Desarrollo de técnicas para reducir la contaminación al ambiente y recobrar materiales recuperables de desecho que se producen en la manufactura de un producto.
+11. Efectuar trabajos de investigación y preparar informes de asuntos técnicos, que se requieran para emitir un dictamen profesional en campos diversos de su quehacer profesional, requeridos por instituciones o empresas públicas o privadas.
+12. Capacitación y adiestramiento de personas en instituciones educativas de enseñanza superior, trabajadores de empresas incluidas en su quehacer profesional, preparación e impartir seminarios, conferencias y cursos.
+13. Funciones complementarias tales como:
+a) Procura de equipos y materiales.
+b) Gerencia y administración.
+c) Participar, en el ámbito gubernamental, en lo que refiere a las políticas de apoyo para la creación de empresas.
+El profesional está circunscrito en su campo de competencia profesional a lo establecido en la Ley 8412 Título I y no podrá invadir competencias reservadas a otros profesionales.
+C. Profesional en Ciencia de los Materiales: Su quehacer profesional se enfoca a la disciplina científica encargada de investigar los fundamentos fisicoquímicos de los procesos homogéneos y heterogéneos de los materiales, y su aplicación a las características y comportamientos, aplicando los conocimientos adquiridos para el desarrollo de un proceso determinado para materiales metálicos, materiales no metálicos, materiales cerámicos, materiales poliméricos, nanomateriales, materiales con funcionalidad química y materiales electrónicos. Su perfil profesional incluye las siguientes áreas:
+1. Investigación y desarrollo de los materiales, procesos de fabricación de materiales, estructura y propiedades de los materiales, tratamientos de materias primas y su aplicación, análisis estructural de materiales, sus aplicaciones y tratamientos en su campo de acción. Incluye entre otras áreas relacionadas:
+a) Establecer la relación existente entre el procesamiento, estructura, propiedades y funcionamiento de los materiales metálicos, no metálicos y cerámicos.
+b) Investigación y desarrollo de procesamiento y tratamiento de los materiales.
+c) Analizar e identificar áreas susceptibles de innovación dentro de los procesos tecnológicos de elaboración y transformación de materiales metálicos, no metálicos y cerámicos.
+d) Desarrollar modelos teóricos enfocados a explicar aspectos microestructurales de los sólidos y sus relaciones con las propiedades físicas y químicas detectadas experimentalmente.
+e) Desarrollo o mejoramiento de modelos matemáticos que representen en forma adecuada los procesos de transformación de los materiales.
+f) Desarrollo y establecimiento de modelos de operación más eficiente y segura en las instalaciones relacionadas con el desarrollo y utilización de los materiales.
+g) Investigación de la síntesis y caracterización microestructural de materiales nuevos y convencionales (metálicos, no metálicos y cerámicos).
+h) Investigación y desarrollo de materiales con funcionalidad química, tales como catalizadores y membranas.
+i) Investigación y desarrollo de materiales nanoestructurados, microcristalización, estructuras cristalinas, conductores iónicos, materiales magnéticos duros y blandos, fibras ópticas y láseres, todo aplicando métodos de difracción, de microscopía, de espectroscopía y otros métodos analíticos relacionados con su quehacer profesional.
+j) Investigación y desarrollo de la aplicación del procesamiento y uso de materias primas nuevas, así como la elaboración de productos nuevos.
+k) Investigación y desarrollo de especificaciones de materiales y productos.
+l) Investigación y desarrollo de métodos de investigación y control de materiales, así como sus aplicaciones.
+2. Operación, dirección y administración de establecimiento de investigación y diagnóstico s especializados en el área de la Ciencia de los Materiales, efectuando pruebas destructivas y no destructivas, análisis físicos y químicos en los materiales de su quehacer profesional. Incluye, entre otros:
+a) Análisis radiográficos, de ultrasonido, difracción, microscopías, espectroscopías y otros métodos analíticos relacionados con su quehacer profesional y la interpretación y aplicación de los resultados obtenidos.
+b) Análisis físicos de tracción, compresión, torsión, fatiga, dureza y otros similares y su interpretación.
+c) Análisis del avance y causa de la corrosión y las medidas para su tratamiento y prevención.
+d) Ejecución y investigación de la composición de los materiales metálicos, no metálicos, cerámicos y otros de su quehacer profesional.
+e) Ejecución de investigaciones de recubrimientos metálicos, láminas delgadas, capas protectoras, vidrios metálicos, conductores iónicos, fibras ópticas y cerámicas e interpretación y aplicación de los resultados.
+3. Efectuar trabajos de investigación y preparar informes de asuntos técnicos, que se requieran para emitir un dictamen profesional en campos diversos de su quehacer profesional, requeridos por instituciones o empresas públicas o privadas.
+4. Capacitación y adiestramiento de personas en instituciones educativas de enseñanza superior, trabajadores de empresas incluidas en su quehacer profesional, preparación e impartir seminarios, conferencias y cursos.
+El profesional está circunscrito en su campo de competencia profesional a lo establecido en la Ley 8412 Título I y no podrá invadir competencias reservadas a otros profesionales.

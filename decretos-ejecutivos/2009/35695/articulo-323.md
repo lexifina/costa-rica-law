@@ -1,0 +1,60 @@
+Artículo 323.—Profesional en Ingeniería en Maderas. Perfil: Su quehacer profesional se enfoca en proyectar, calcular, evaluar y controlar las instalaciones, maquinarias e instrumentos de los establecimientos industriales y comerciales, en los que se comprenda la fabricación, transformación y tratamiento de productos finales o intermedios de la madera o bien madera combinada con otros materiales, asegurando la calidad y máximo aprovechamiento de la materia prima y estimando su impacto socioeconómico y ambiental. Gestión regulatoria estatal en el campo de control, regulación y seguimiento de establecimientos e industria en el campo de su ejercicio profesional. Su perfil profesional incluye las siguientes áreas:
+1. Participación en la investigación y desarrollo de procesos de fabricación de la madera y combinación de la misma con otros materiales, estructura y propiedades de la madera y sus combinaciones con otros materiales, fuentes de materia prima y su tratamiento, análisis estructural de la madera, sus aplicaciones y tratamientos, sistemas de protección ambiental y seguridad operacional en el campo de su quehacer profesional. Incluye otras áreas relacionadas, tales como:
+a) Desarrollo y establecimiento de modelos de operación más eficiente y segura en las industrias relacionadas con el desarrollo y utilización de la madera y de la madera combinada con otros materiales.
+b) Investigación y desarrollo de la aplicación y uso de materias primas nuevas, así como la elaboración de productos nuevos.
+c) Investigación y desarrollo de especificaciones de productos derivados de la madera.
+d) Investigación y desarrollo de métodos de investigación y control de materiales derivados de la madera y sus aplicaciones.
+2. Planificación de la instalación de plantas de la madera y de la madera combinada con otros materiales, equipos y nuevos procesos operativos, incluyendo el desarrollo, preparación y investigación de estudios técnicos y económicos. Se incluye, entre otros:
+a) Optimización de los procesos que se aplicarán en la fabricación, procesamiento y uso de los materiales de su quehacer profesional, así como del equipo adecuado a su eficiencia y menor costo.
+b) Planificar los procedimientos, controles operativos y análisis de control de las instalaciones de su quehacer profesional.
+c) Elaboración del estudio de factibilidad correspondiente a proyectos relacionados a su quehacer profesional y planificación de fuentes de financiamiento.
+d) Establecimiento de las especificaciones y parámetros para el diseño de proyectos en lo relacionado con su quehacer profesional.
+e) Establecer los diagramas de planificación de etapas del proyecto.
+f) Planificación de la normativa que se deberá cumplir.
+g) Estudio de la mejor ubicación de las instalaciones y de los requisitos a aplicar.
+h) Elaboración de los carteles de participación para el diseño de las instalaciones.
+3. Diseño y planificación de montaje de las instalaciones del ámbito de su quehacer profesional, para el procesamiento de la madera, equipos y productos. Se incluyen, entre otros:
+a) Participación en el diseño y investigación de las plantas y equipos para el tratamiento de efluentes residuales, emisiones atmosféricas, desechos sólidos y otros.
+b) Diseño y preparación de manuales y especificaciones de operación según corresponda.
+c) Diseño de equipos y acreditación profesional de mejoras en los procesos de la madera y de la madera combinada con otros materiales.
+d) Especificación de los requisitos de control del proceso productivo.
+e) Diseño, especificación y elaboración de los procedimientos y manuales requeridos para la seguridad e higiene industrial, el combate de incendios, prevención de la contaminación ambiental (aire, agua, tierra y otros), y ahorro energético en las áreas de su quehacer profesional.
+f) Coordinación con otros profesionales para la elaboración de los planos completos de la planta.
+g) Trámite de los permisos requeridos para las instalaciones a su cargo.
+4. Coordinación del montaje de equipos de procesamiento en las instalaciones relacionadas con su quehacer profesional.
+5. Dirección y supervisión del arranque y funcionamiento de los equipos, de las instalaciones y la calidad de los productos obtenidos, relacionados con su quehacer profesional. Incluye, entre otros:
+a) Coordinación y control de las pruebas de cada equipo y análisis de los resultados obtenidos.
+a) Investigación del funcionamiento general de la instalación.
+b) Investigación de la calidad de los productos obtenidos y trámite de su aceptación.
+c) Emitir los reportes de aceptación o rechazo de los equipos o procesos, así como la recomendación de los cambios operativos o de equipo que se requieran en el ámbito de su quehacer profesional.
+6. Dirección de la operación de las instalaciones industriales relacionadas con su quehacer profesional, tales como: industrias de aserrado de madera, de secado e impregnado, tableros reconstituidos y maderas compensadas, producción de chapas y láminas, uso estructural de la madera, tratamientos químicos a la madera, administrando las operaciones en cuanto a la operación normal del equipo y desempeño del proceso, a la planificación, al análisis y programación de la producción, control de la productividad, de la calidad, de los inventarios, del manejo de personal, costos y control de presupuesto. Incluyendo, entre otros:
+a) Administración y optimización de las instalaciones relacionadas con su quehacer profesional, teniendo como objetivo lograr una industria eficiente y rentable.
+b) Supervisión y control de procesos y equipos de planta, incluyendo sus variables operativas y solución de los problemas que se presenten.
+c) Aplicación de normas y procedimientos de seguridad e higiene en la industria.
+d) Control del tratamiento de efluentes residuales, emisiones atmosféricas, disposición de desechos sólidos y todo tipo de contaminación en la industria a su cargo.
+e) Supervisión de la calidad de materias primas y productos, elaborando los reportes correspondientes, tales como: certificaciones, dictámenes y hojas de seguridad de los mismos.
+f) Supervisión y adiestramiento del personal a su cargo.
+g) Coordinación de sus labores con otras secciones de la empresa.
+h) Proponer inversiones a la industria, de acuerdo a la renovación u optimización del equipo y procesos.
+7. Operación, dirección y administración de establecimientos de investigación y diagnóstico especializados en el área de maderas, efectuando pruebas destructivas y no destructivas, análisis físicos y químicos en los materiales de su quehacer profesional. Incluye, entre otros:
+a) Análisis físicos de tracción, compresión, torsión, fatiga, dureza y otros similares y su interpretación.
+b) Análisis del avance y causas de la degeneración de la madera y las medidas para su tratamiento y prevención.
+c) Ejecución y investigación de la composición de los materiales de su quehacer profesional.
+d) Ejecución de investigaciones de recubrimientos, modificadores, selladores y otros productos aplicados a la madera.
+8. Consultoría para la investigación y cuantificación del riesgo y supervisión de los tratamientos y plantas para el control de la contaminación ambiental (agua, aire, suelos y otros), en los establecimientos relacionados con su quehacer profesional, estableciendo los procedimientos de control requeridos en las empresas a su cargo, incluyendo la edición de los manuales operacionales y de mantenimiento, junto con los permisos oficiales requeridos. Se incluye entre otros:
+a) Elaboración de manuales y controles operativos en las diferentes empresas relacionadas con su quehacer profesional, mediante los cuales se estandarizan las normas de calidad, de trabajo y de seguridad requeridas.
+b) Investigación y control de las condiciones ambientales y de seguridad de las empresas industriales, relacionadas con su quehacer profesional, preparando planes de gestión ambiental, emitiendo reportes operacionales, así como, preparando planes de seguridad e higiene industrial. Incluye el trámite de los informes efectuados ante las oficinas públicas y privadas en lo que corresponda, preparando planes de gestión ambiental, emitiendo reportes operacionales. Preparación de planes de seguridad e higiene industrial. Incluye el trámite de los informes efectuados ante las oficinas públicas y privadas.
+c) Investigación y control de las condiciones ambientales y de seguridad de los establecimientos industriales en lo que corresponda.
+9. Labores de ventas y mercadeo: se desarrollarán en cuatro áreas, tales como: investigación de mercado, desarrollo de productos, técnicos en ventas y servicios técnicos al consumidor, asistiendo a los clientes en resolver problemas de producción y proceso, supliendo productos y servicios, para llenar las necesidades específicas de su quehacer profesional.
+10. Consultoría para trámites y registros: elaboración de los trámites oficiales o institucionales que requieren los establecimientos relacionados con su quehacer profesional, para cumplir la normativa establecida, participando en la implementación, ejecución y control de las políticas de apoyo empresarial y tecnológicas para que el cliente cumpla con las normativas, acreditaciones y otros trámites que se deban satisfacer.
+11. Consultoría en labores relacionadas con la seguridad del proceso y ambiente: supervisión y mantenimiento de las instalaciones relacionadas con su quehacer profesional, de tal forma que sean seguras para los trabajadores y comunidades aledañas. Elaboración y dictamen de análisis de seguridad para equipos nuevos o existentes o para un proceso global. Entrenamiento y elaboración de manuales para los empleados en la operación y manejo seguro de equipos, procesos o productos. Elaboración y dirección de los planes de respuesta a situaciones de emergencia.
+En cuanto a los aspectos ambientales, desarrollo de técnicas para reducir la contaminación al ambiente y recobrar materiales recuperables de desecho que se producen en la manufactura de un producto a base de madera. Supervisión del almacenaje de desechos, y las facilidades de tratamiento, esto de acuerdo a las estrategias de control y protección de la salud y el ambiente en la operación de la planta. Responsabilizarse de monitorear todos los sistemas en una planta industrial, para cumplir con las regulaciones del Estado sobre el ambiente. Preparación de planes de gestión ambiental y estudios de impacto ambiental, emitiendo los reportes operacionales correspondientes en los establecimientos relacionados con su quehacer profesional.
+Formulación, desarrollo y control de normativas, teniendo en cuenta los factores físicos y químicos que puedan afectar el ambiente y la salud de la población.
+12. Efectuar trabajos de investigación, valorización y preparar informes de asuntos técnicos, que se requieran para emitir un dictamen profesional en campos diversos de su quehacer profesional, requeridos por instituciones o empresas públicas o privadas. También se especializa en investigaciones de propiedad intelectual, de patentes, transferencia de tecnología, cumplimiento ambiental y regulaciones de seguridad.
+13. Capacitación y adiestramiento de personas en instituciones educativas de enseñanza superior, trabajadores de empresas industriales, preparación e impartir seminarios, conferencias y cursos.
+14. Funciones complementarias tales como:
+a) Procura de equipos y materiales.
+b) Gerencia y administración.
+c) Planificación y programación.
+d) Participar, en el ámbito gubernamental, en lo que refiere a las políticas de apoyo para la creación de empresas.
+El profesional está circunscrito en su campo de competencia profesional a lo establecido en la Ley 8412 Título I y no podrá invadir competencias reservadas a otros profesionales.

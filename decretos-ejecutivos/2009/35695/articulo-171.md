@@ -1,0 +1,1 @@
+Artículo 171.—Establecimientos de investigación y diagnóstico. Profesional responsable: El Profesional Responsable o Regente deberá llevar el cuaderno de bitácora al día, mantenerla al alcance de la Fiscalía del Colegio y presentarla durante las auditorías que efectuará el Fiscal del Colegio.

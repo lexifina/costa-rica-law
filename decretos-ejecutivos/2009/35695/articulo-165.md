@@ -1,0 +1,1 @@
+Artículo 165.—Establecimientos de investigación y diagnóstico. Tarifas: Los establecimientos de investigación y diagnóstico observarán las tarifas mínimas establecidas en el Reglamento de Tarifas y Costos, según el transitorio II de este Reglamento.

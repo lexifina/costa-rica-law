@@ -1,0 +1,1 @@
+Artículo 110.—Contratación de profesionales. Obligatoriedad de colegiatura: Las instituciones y empresas estatales están obligadas, en relación con los funcionarios de los campos profesionales regulados por este Colegio, a contratar profesionales debidamente colegiados. Esta norma es obligatoria, en igual forma, para las empresas e instituciones privadas.

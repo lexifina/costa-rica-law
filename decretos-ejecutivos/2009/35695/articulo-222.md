@@ -1,0 +1,2 @@
+Artículo 222.—Documento público. Procedimiento de control: Cuando un documento público no cumpla con los requisitos de trámite del Colegio, el Fiscal preparará la denuncia correspondiente contra el responsable del documento y contra el funcionario público que permitió el trámite.
+Luego de la aprobación de la denuncia por la Junta Directiva, el Presidente y el Fiscal procederán a presentar las denuncias judiciales correspondientes de acuerdo a la legislación vigente.

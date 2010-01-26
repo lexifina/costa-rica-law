@@ -1,0 +1,1 @@
+Artículo 210.—Comisión. Gastos: Todos aquellos gastos debidamente justificados y documentados en que debe incurrir la Comisión, serán aprobados a priori por la Junta Directiva, mediante una partida de presupuesto.

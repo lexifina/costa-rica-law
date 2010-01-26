@@ -1,0 +1,1 @@
+Artículo 37.—Ausencias injustificadas. La ausencia injustificada a la Asamblea del Colegio será causante de que el Colegiado deba pagar el costo que se establece en el Reglamento de Tarifas y Costos, conforme lo establece el artículo 14.2 inciso b de la ley 8412 y el transitorio II del presente Reglamento.

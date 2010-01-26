@@ -1,0 +1,2 @@
+Artículo 231.—Propuesta de modificación de la Ley o Reglamento. Trámite: La propuesta a la modificación a la Ley, requiere mayoría calificada de los miembros presentes.
+La elección de la Junta Directiva, el Tribunal de Honor, el Fiscal, miembros de comisiones, delegados, modificación a este Reglamento y la aprobación de acuerdos, se efectuarán por mayoría simple de votos de los miembros presentes. En caso de empate el presidente de la Asamblea tendrá doble voto.

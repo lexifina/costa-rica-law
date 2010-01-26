@@ -1,0 +1,1 @@
+Artículo 189.—Establecimientos de investigación y diagnóstico. Subcontratación: Cuando un establecimiento de investigación y diagnóstico subcontrata cualquier análisis o parte del análisis, este trabajo se deberá realizar en un establecimiento que cumpla con los requisitos de este Reglamento o con la normativa de otro Colegio Profesional, según corresponda.

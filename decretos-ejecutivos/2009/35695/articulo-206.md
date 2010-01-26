@@ -1,0 +1,1 @@
+Artículo 206.—Constancia e inscripción de contratos profesionales: Todo contrato de servicio profesional, en los extremos que se refieren exclusivamente a la prestación del servicio y su remuneración, deberá hacerse constar en las fórmulas que al efecto expedirá el Colegio, e inscribirse en los registros del mismo.

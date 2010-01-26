@@ -1,0 +1,1 @@
+Artículo 329.—Emblema y Logotipo del Colegio. Prohibición: Es deseable que el emblema y el logotipo se utilicen lo máximo posible, pero el emblema y el logotipo no pueden utilizarse de manera que sugiera el patrocinio de productos o servicios particulares.

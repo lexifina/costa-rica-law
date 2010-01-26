@@ -1,0 +1,1 @@
+Artículo 328.—Emblema y Logotipo del Colegio. Identidad del Colegio.—El emblema y el logotipo se utilizarán para marcar todas las comunicaciones del Colegio, para ofrecer una identidad visual a todas las personas que participen en actividades del Colegio y para que los colegiados muestren su apoyo y participación.

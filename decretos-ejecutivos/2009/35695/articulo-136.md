@@ -1,0 +1,1 @@
+Artículo 136.—Regencia Compartida. Obligación de informar al Colegio: La Regencia de un establecimiento o empresa puede ser compartida por dos o más profesionales, siempre y cuando las funciones de cada regente estén definidas en lo correspondiente, lo cual deberá ser de conocimiento del Colegio.

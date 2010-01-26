@@ -1,0 +1,1 @@
+Artículo 214.—Peritajes, avalúos y otros. Normalización: Cumpliendo con la Legislación Nacional, el Colegio normalizará la presentación y trámite de los peritajes, los avalúos, las certificaciones, los planos, los análisis, los dictámenes u otros documentos que emitan los ingenieros químicos y los profesionales afines.

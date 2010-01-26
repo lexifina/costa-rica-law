@@ -1,0 +1,2 @@
+Artículo 213.—Profesional firmante. Responsabilidades: El profesional firmante del documento es el único responsable del contenido técnico y científico de los peritajes, los avalúos, las certificaciones, los planos, los análisis, los dictámenes u otros documentos que emita.
+Las normas para la elaboración y presentación de documentos establecidas por el Colegio deben ser cumplidas por el profesional.

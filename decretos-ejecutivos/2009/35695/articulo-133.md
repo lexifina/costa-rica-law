@@ -1,0 +1,1 @@
+Artículo 133.—Regencia. Determinación del número de Regencias: Las Regencias por profesional serán determinadas por la suma de horas inscritas hasta un máximo de 48 horas semanales, o 12 regencias externas, lo que se alcance primero.

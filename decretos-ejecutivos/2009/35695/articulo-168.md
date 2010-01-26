@@ -1,0 +1,2 @@
+Artículo 168.—Establecimientos de investigación y diagnóstico. Obligaciones: El establecimiento de investigación y diagnóstico deberá tener personal suficiente con la educación técnica, entrenamiento y experiencia necesarios para las funciones que les fueren asignadas; y además deberá capacitar a su personal de manera que se asegure su actualización.
+La Fiscalía del Colegio vigilará el cumplimiento de estas obligaciones.

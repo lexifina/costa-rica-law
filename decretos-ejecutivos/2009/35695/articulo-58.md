@@ -1,0 +1,1 @@
+Artículo 58.—Consignación de hora y fecha de presentación de documentos. El interesado tendrá derecho, cuando presenta sus escritos, a que en copia de los mismos se consigne la hora y fecha de su presentación al igual que en los documentos, cosas o pruebas que aporte en este acto.

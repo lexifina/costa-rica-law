@@ -1,0 +1,2 @@
+Artículo 254.—Miembros de Junta Directiva, Tribunal de Honor, Comités. Ausencia a reuniones: Los miembros de la Junta Directiva, de los comités y del Tribunal de Honor, perderán su condición de miembros por tres ausencias consecutivas injustificadas, y por ausencia a cinco sesiones alternas injustificadas durante su período de nombramiento.
+La ausencia injustificada a las sesiones, causará la aplicación de una multa, establecida en el Reglamento de Tarifas y Costos.

@@ -1,0 +1,1 @@
+Artículo 59.—Responsabilidad del funcionario receptor. Cuando se presenten escritos, documentos, cosas o pruebas en general, el funcionario del Colegio que los recibe deberá asentar en el expediente, bajo su responsabilidad, la razón correspondiente de recibo, en la cual deberá firmar y anotar la fecha y hora de recibo.

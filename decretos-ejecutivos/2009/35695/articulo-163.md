@@ -1,0 +1,8 @@
+Artículo 163.—Autorización, registro de establecimientos de investigaciones y diagnóstico. Solicitud: Para solicitar la autorización y registro de establecimientos de investigaciones y diagnóstico, el interesado deberá presentar la solicitud ante la Dirección Administrativa del Colegio y cumplir con las disposiciones del Reglamento del Capítulo XIV. Además deberá indicar:
+a) Solicitud por escrito, en formulario oficial del Colegio, y con indicación de la o las especialidades en que desea registrarse. La información que se suministre será dada bajo juramento por el apoderado o representante debidamente acreditado.
+b) Los servicios que brindará el establecimiento de investigación y diagnóstico.
+c) Nombre y calificaciones de los profesionales, asistentes y auxiliares que laborarán en el establecimiento de investigación y diagnóstico.
+d) Nombre del establecimiento de investigación y diagnóstico que subcontrate, si los tuviere.
+La Fiscalía del Colegio emitirá constancia de que el personal técnico, el local, las instalaciones, dotación mínima de equipo, materiales y reactivos disponibles corresponden a lo indicado en la solicitud y que facilitan su competencia técnica.
+Una vez extendida la autorización y registro el establecimiento de investigación y diagnóstico deberá circunscribir los servicios que preste a los que indicó en su solicitud y fueron aprobados.
+Para ampliar la oferta de servicios, el establecimiento de investigación y diagnóstico deberá dirigir una solicitud a la Dirección Administrativa del Colegio, refrendada por el Regente, indicando los servicios adicionales que se desean ofrecer.

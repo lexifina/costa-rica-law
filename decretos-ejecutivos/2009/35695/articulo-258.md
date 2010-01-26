@@ -1,0 +1,1 @@
+Artículo 258.—Presupuesto. Confección: El presupuesto de ingresos y de gastos se confeccionará clasificando por separado los distintos rubros, de acuerdo al pronóstico de ingresos por recibir y gastos máximos planeados.

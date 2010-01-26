@@ -1,0 +1,2 @@
+Artículo 201.—Cuaderno de Bitácora. Custodia: El Cuaderno de Bitácora permanecerá en la sede del servicio que dio origen al Contrato Profesional respectivo y su custodia será responsabilidad del Profesional Responsable.
+Podrá ser requerido por funcionarios del Colegio que la Junta Directiva autorice y su no-presentación dará lugar a una notificación a este profesional, para que subsane su falta, en un plazo de ocho días hábiles. De no ser corregida la situación, se presumirá que se ha violado el Código de Ética Profesional.

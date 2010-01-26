@@ -1,0 +1,1 @@
+Artículo 67.—Honorarios Trámite. Patentes: Por el estudio de toda solicitud de patente nueva, haya habido o no oposiciones, los honorarios serán los fijados por el Reglamento de Honorarios Tarifas y Costos conforme al Transitorio II de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 11º—Miembros Ausentes. Para quedar en la condición de miembro ausente del Colegio bastará que el interesado, o su representante debidamente acreditado, presente solicitud por escrito en la sede del Colegio exponiendo los motivos en que fundamenta su petición, acompañada de los elementos probatorios que la respaldan, así como una manifestación expresa de reconocer que perderá los derechos y obligaciones de los miembros activos mientras se encuentre fuera del país.
+Para otorgarle la condición de miembro ausente el solicitante debe estar al día en sus pagos al Colegio.

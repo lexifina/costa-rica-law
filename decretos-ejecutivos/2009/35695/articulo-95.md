@@ -1,0 +1,1 @@
+Artículo 95.—Sanciones. Prescripción: Las sanciones prescribirán en los plazos establecidos para la prescripción de las faltas, de acuerdo con el artículo anterior, contados desde la fecha en que adquiera firmeza el acuerdo de imposición.

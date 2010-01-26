@@ -1,0 +1,1 @@
+Artículo 233.—Junta Directiva. Nombramiento: La Asamblea General nombrará a la Junta Directiva, de conformidad con las disposiciones de la Ley vigente en cuanto a rotación de puestos y funciones, de conformidad con el Artículo 234 de este reglamento.

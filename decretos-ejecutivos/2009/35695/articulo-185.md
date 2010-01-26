@@ -1,0 +1,1 @@
+Artículo 185.—Establecimientos de investigación y diagnóstico. Informe. Correcciones o adiciones: Las correcciones o adiciones al informe de análisis después de su emisión deberán hacerse mediante un documento adicional titulado apropiadamente (anexo o enmienda al informe número) y deberá de cumplir con los requisitos anteriores.

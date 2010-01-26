@@ -1,0 +1,2 @@
+Artículo 161.—Empresas Consultoras, de diseño, de montaje, de instalación y de puesta en marcha. Publicidad y promoción: El Colegio publicará la lista de las empresas consultoras inscritas, con indicación de la o las especialidades en las cuales están autorizadas para operar.
+La empresa consultora, de diseño o de construcción, podrá efectuar publicidad y promoción de sus servicios, ajustándose a emblemas y leyendas que señalen en forma concisa la naturaleza de los servicios que ofrece.

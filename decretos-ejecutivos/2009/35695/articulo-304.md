@@ -1,0 +1,1 @@
+Artículo 304.—Fondo de Mutualidad y Subsidio. Renuncia: Cualquier afiliado al Fondo de Mutualidad y Subsidio, puede renunciar al mismo, perdiendo sus derechos adquiridos. Un colegiado que haya renunciado al fondo, podrá reingresar a éste, pagando las cuotas correspondientes desde el momento en que se retiró.

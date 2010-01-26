@@ -1,0 +1,1 @@
+Artículo 45.—Gestiones Extemporáneas. Las gestiones extemporáneas, impertinentes y evidentemente improcedentes, deberán rechazarse de plano por el órgano que las conoce, mediante resolución razonada. La resolución que así lo disponga tendrá los recursos que la Ley y este Reglamento señalen.

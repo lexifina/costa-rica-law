@@ -1,0 +1,1 @@
+Artículo 252.—Comisiones. Actas: En cada sesión de la Comisión se levantará un acta, debidamente foliada en consecutivo histórico, en el cual se consignarán las resoluciones tomadas. Será firmada por quien haya coordinado la sesión, por quien haya actuado como secretario y por los asistentes que deseen hacerlo.

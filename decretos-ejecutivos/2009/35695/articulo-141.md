@@ -1,0 +1,2 @@
+Artículo 141.—Actividad de consultoría. Integración con otras disciplinas: La actividad de la consultoría, diseño y desarrollo de proyectos es, por su naturaleza, muchas veces multidisciplinaria, lo cual obliga a una relación permanente entre los profesionales pertenecientes a diversas disciplinas.
+En todos los casos, las relaciones entre profesionales deberán sujetarse a lo que se indica en la Ley y el Código de Ética Profesional del Colegio de Ingenieros Químicos y Profesionales Afines, y en la aplicación de los artículos 142 y 144 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 75.—Consultas. Atribución de Junta Directiva: Cualquier aspecto relativo a las consultas sobre patentes u otras cuestiones técnicas que no pudieren resolverse con arreglo a las disposiciones que anteceden, será resuelto por la Junta Directiva del Colegio.

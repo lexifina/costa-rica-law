@@ -1,0 +1,1 @@
+Artículo 105.—Constitución de la Terna. Plazo: La confección definitiva de la terna o nómina será realizada por acuerdo firme en la Junta Directiva dentro de los quince días siguientes al cierre del concurso a que se refiere el artículo 102 y su composición deberá comunicarse por escrito a quien corresponda efectuar la designación y a todos los participantes en él.

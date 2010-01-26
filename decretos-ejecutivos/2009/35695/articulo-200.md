@@ -1,0 +1,2 @@
+Artículo 200.—Cuaderno de Bitácora. Originales: El Profesional Responsable presentará los tantos originales de los Cuadernos de Bitácora que tenga en uso en las oficinas del Colegio, para registrar su cierre, durante los treinta días naturales siguientes a la finalización de la relación contractual, o a los ocho siguientes al agotamiento de sus folios.
+El incumplimiento de este requisito impedirá a los profesionales del Colegio la obtención de Cuadernos de Bitácora nuevos.

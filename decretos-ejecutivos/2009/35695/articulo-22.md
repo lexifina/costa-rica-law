@@ -1,0 +1,2 @@
+Artículo 22.—Especialidades. Requisitos: Las especialidades deberán tener el reconocimiento de master, perito, auditor o técnico debidamente reconocido por una universidad o instituto del país o de una universidad del exterior homologada por las autoridades educativas de Costa Rica o experiencia práctica equivalente.
+La Junta Directiva fijará las especialidades con base en una lista de campos o áreas de especialidad que sean sometidas a su aprobación por cada profesión colegiada.

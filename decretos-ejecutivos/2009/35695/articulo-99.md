@@ -1,0 +1,1 @@
+Artículo 99.—Acciones Legales. Consecuencias económicas no cubiertas: Si las acciones legales pudiesen tener consecuencias no cubiertas en el presupuesto de egresos del Colegio, se deberá convocar a la Asamblea General y establecer una cuota extraordinaria para obtener la reserva requerida para hacer frente al juicio.

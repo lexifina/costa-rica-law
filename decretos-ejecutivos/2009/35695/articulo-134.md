@@ -1,0 +1,1 @@
+Artículo 134.—Regencia. Obligación del Profesional de informar: La información de la cantidad de regencias, horas acumuladas y horas contratadas es responsabilidad del profesional, pero estarán sujetas a la investigación del Fiscal del Colegio.

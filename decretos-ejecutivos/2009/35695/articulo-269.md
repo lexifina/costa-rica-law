@@ -1,0 +1,3 @@
+Artículo 269.—Revista del Colegio y Boletines. Coordinación y financiamiento: La coordinación de la publicación de la revista y los boletines, estará a cargo del Director Administrativo y de un Consejo Editor de tres colegiados, nombrados por la Junta Directiva y que durarán en sus funciones tres años, pudiendo ser reelectos.
+El financiamiento de la revista deberá contemplarse dentro del presupuesto del Colegio y podrá incluir como parte de su plan de financiación, la publicación de anuncios hasta por un cuarenta y cinco por ciento del total de páginas de la publicación.
+Los boletines oficiales del Colegio deberán financiarse en forma total, mediante el presupuesto del Colegio.

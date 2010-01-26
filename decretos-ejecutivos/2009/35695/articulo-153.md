@@ -1,0 +1,2 @@
+Artículo 153.—Actividad de Consultoría. Obligatoriedad de los Aranceles: Los presentes aranceles son de cumplimiento obligatorio en la prestación de servicios profesionales de consultoría. Deberán considerarse como mínimos y, por lo tanto, no se podrán cobrar sumas inferiores a las que resulten de su correcta aplicación y cálculo.
+El Ingeniero Químico o Profesional Afín, actuando como consultor, podrá cobrar sumas superiores a las consideradas mínimas, siendo su obligación, en estos casos, hacer la debida advertencia previa al cliente o interesado.

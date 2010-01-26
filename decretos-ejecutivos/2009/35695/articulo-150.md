@@ -1,0 +1,1 @@
+Artículo 150.—Actividad de Consultoría. Caso Fortuito o Fuerza Mayor: El profesional tendrá derecho a que se le reconozca pago proporcional al trabajo entregado y aceptado si, por caso fortuito o fuerza mayor debidamente comprobada, no pudiere cumplir o entregar la totalidad del trabajo encomendado.

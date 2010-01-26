@@ -1,0 +1,1 @@
+Artículo 232.—Asamblea General. Miembros. Formulación de propuestas: Los miembros de la Asamblea General formularán sus propuestas en forma de moción, ya sea en forma oral o bien proponer modificaciones en forma escrita.

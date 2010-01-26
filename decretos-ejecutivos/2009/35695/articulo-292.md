@@ -1,0 +1,1 @@
+Artículo 292.—Patrimonio del Colegio. Contabilidad: El Colegio tendrá el patrimonio social que posea o adquiera conforme a la ley y sus derechos correspondientes, debidamente contabilizado e inscrito en los Libros del Colegio, de conformidad con las disposiciones legales vigentes.

@@ -1,0 +1,1 @@
+Artículo 32.—Separación Temporal. Comunicación: La separación de cualquier miembro del Colegio, decretada por la Junta Directiva, se comunicará por escrito al colegiado y a su patrono y se publicará en el diario oficial La Gaceta. Esta separación, mientras se mantenga, causará que la persona afectada pierda todos sus derechos como colegiado.

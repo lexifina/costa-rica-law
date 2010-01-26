@@ -1,0 +1,1 @@
+Artículo 300.—Fondo de Mutualidad y Subsidio. Pertenencia no es obligatoria: El Colegio establecerá un fondo de mutualidad y subsidio y la pertenencia a este fondo será de opción libre para los Colegiados. El Colegio podrá administrar el fondo o bien contratar su administración a una entidad pública o privada de reconocido prestigio y avalada por la Asamblea General del Colegio.

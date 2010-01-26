@@ -1,0 +1,1 @@
+Artículo 81.—Tribunal de Honor. Información y pruebas: El Tribunal de Honor conocerá del fondo del asunto encomendado, para lo que se informará de la manera más amplia posible, recabando toda la información disponible, pruebas y testimonios sobre los hechos.

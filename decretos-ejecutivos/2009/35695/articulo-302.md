@@ -1,0 +1,2 @@
+Artículo 302.—Fondo de Mutualidad y Subsidio. Solicitud de pertenencia: La solicitud de pertenencia al Fondo de Mutualidad y Subsidio deberá tramitarse simultáneamente con la acreditación profesional en el Colegio.
+En caso que un colegiado activo no formare parte del Fondo de Mutualidad y Subsidio, para la aceptación de su pertenencia al Fondo, deberá cancelar las cuotas de membresía a partir de la fecha de acreditación profesional en el Colegio.

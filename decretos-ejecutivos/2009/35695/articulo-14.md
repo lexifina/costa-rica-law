@@ -1,0 +1,1 @@
+Artículo 14.—Solicitud de acreditación profesional en el Colegio. Órgano Competente: Toda solicitud de acreditación profesional en el Colegio, en cualquiera de las categorías de sus Miembros, será resuelta por la Junta Directiva, debiendo quedar asentada en actas la resolución respectiva.

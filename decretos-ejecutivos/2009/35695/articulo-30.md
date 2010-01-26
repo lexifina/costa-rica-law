@@ -1,0 +1,5 @@
+CAPÍTULO VI
+De la separación y del reingreso de los colegiados
+Artículo 30.—Atraso en el pago de cuotas. El colegiado que se atrasare en el pago de seis cuotas, ordinarias y extraordinarias de colegiatura obligatoria que establezca la asamblea general, perderá su calidad de miembro activo y sus derechos al ejercicio de la profesión. Estos profesionales recuperarán sus derechos como miembros activos conforme lo establece la Ley 8412, Título I, en el artículo 14, inciso 2, apartado d).
+La suspensión como miembro activo la acordará la Junta Directiva luego de efectuar los trámites del debido proceso, mediante acuerdo firme y se le comunicará dicha suspensión al colegiado en forma escrita, enviándole copia de dicha comunicación al empleador o al contratante. Dicha suspensión se publicará en el Diario Oficial La Gaceta, una vez, dentro de los quince días hábiles a partir del acuerdo.
+En caso de no poder ubicarse la persona para entregarle la notificación escrita en forma personal, se tendrá por notificado con la publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 316.—Fondo de Mutualidad y Subsidio. Cumplimiento de objetivos: La Junta Directiva rendirá un informe económico organizado por meses, sobre la marcha del Fondo de Mutualidad y Subsidio, a la Asamblea General, en sesión ordinaria.

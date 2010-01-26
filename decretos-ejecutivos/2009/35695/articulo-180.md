@@ -1,0 +1,2 @@
+Artículo 180.—Establecimientos de investigación y diagnóstico. Muestras. Requisitos: El establecimiento de investigación y diagnóstico, deberá velar por la procedencia de la muestra, de forma que sea concordante el resultado con el lote. Deberá indicarse y registrarse el nombre y número de colegiado bajo cuya responsabilidad se tomaron las muestras para análisis.
+Cuando el establecimiento de investigación y diagnóstico no pueda garantizar la procedencia de la muestra deberá hacerlo notar en el informe donde emite sus resultados.

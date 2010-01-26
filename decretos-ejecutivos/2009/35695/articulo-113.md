@@ -1,0 +1,1 @@
+Artículo 113.—Ordenamiento Jurídico aplicable. Todo miembro del Colegio está obligado, en su ejercicio profesional, a acatar estrictamente la Constitución Política de la República, las leyes y Reglamentos de la República, la Ley 8412, Título I y sus reglamentos, el Código de Ética y las normas que, dentro de sus atribuciones, dicten los diferentes órganos del Colegio.

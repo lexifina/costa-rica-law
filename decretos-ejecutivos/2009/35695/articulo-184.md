@@ -1,0 +1,1 @@
+Artículo 184.—Establecimientos de investigación y diagnóstico. Informe. Contenido: Únicamente, a solicitud expresa del remitente o cliente, el informe de análisis podrá contener criterio, diagnóstico, consejo o recomendación proveniente de los resultados del análisis.

@@ -1,0 +1,1 @@
+Artículo 46.—Notificaciones. Cuando se deba notificar una resolución o acto, se indicarán en ella los recursos que tenga y el órgano de alzada que la conocerá. Se indicará además el plazo que se tiene para concurrir.

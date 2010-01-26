@@ -1,0 +1,2 @@
+Artículo 308.—Fondo de Mutualidad y Subsidio. Caso de fallecimiento de colegiado: Requisitos. El Fondo girará el subsidio señalado, siempre y cuando el colegiado no tenga más de seis cuotas atrasadas, deduciéndose éstas del monto de las cuotas atrasadas.
+El estado de morosidad, no impedirá el giro del dinero, en aquellos casos en los que haya sido previamente justificado por el colegiado o su apoderado. En este caso, se deducirán, del monto del subsidio a entregar, las cuotas atrasadas.

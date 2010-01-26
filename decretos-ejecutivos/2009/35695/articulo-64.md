@@ -1,0 +1,1 @@
+Artículo 64.—Depósito de honorarios. Las labores encaminadas a rendir el informe encomendado al profesional designado por el Colegio, no se iniciarán mientras el monto completo de los respectivos honorarios no haya sido depositado en la cuenta del Colegio.

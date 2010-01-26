@@ -1,0 +1,2 @@
+Artículo 284.—Denuncias. Confidencialidad del denunciante: La identidad de la persona que presente denuncias por violaciones a la Ley Orgánica, a sus Reglamentos, a disposiciones de la Asamblea General y de la Junta Directiva, estarán protegidas por confidencialidad.
+Únicamente se perderá la condición de confidencialidad cuando lo solicite una autoridad competente o el afectado lo solicite y que la Junta Directiva lo acepte, previo informe de la Fiscalía.

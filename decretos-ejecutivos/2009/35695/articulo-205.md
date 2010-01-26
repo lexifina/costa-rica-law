@@ -1,0 +1,7 @@
+CAPÍTULO XIX
+De la presentación de los peritajes, los avalúos, las certificaciones,
+los planos, los análisis, los dictámenes u otros documentos
+Artículo 205.—Registro: Los peritajes, los avalúos, las certificaciones, los planos, los análisis, los dictámenes u otros documentos que emitan los ingenieros químicos y los profesionales afines sobre un determinado asunto referido a su campo de competencia y cuyo objeto sea expresar una verdad científica o tecnológica y que dan fe pública, serán el resultado de un contrato para el ejercicio de la Ingeniería Química y de las Profesiones Afines y deberá inscribirse en el Colegio (Artículo 20 de la Ley 8412, Título I) Este registro constará en el refrendo del documento.
+Para ser refrendados por el Colegio, todos los documentos deberán presentarse firmados y acompañados del número de registro del profesional responsable y su sello, y acompañarse del documento de solicitud de trámite que establecerá el Colegio.
+En el caso de los planos, se deberá presentar la valuación de las instalaciones que representan, ya sea en el ámbito de inversión o del valor actualizado de la instalación, declaración con carácter de fe pública del profesional responsable y estos planos deberán cumplir con el formato que se detalla en el Artículo 218 de este Reglamento.
+Para efectos de trámite, el fiscal del Colegio, deberá emitir el visto bueno de conformidad de cumplimiento de requisitos. Estos requisitos se deben cumplir para que el Colegio emita el refrendo correspondiente.

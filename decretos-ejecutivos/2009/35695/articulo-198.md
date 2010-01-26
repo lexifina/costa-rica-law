@@ -1,0 +1,1 @@
+Artículo 198.—Cuaderno de Bitácora. Asiento de inscripción: Para efectos de control del Colegio, cada Cuaderno de Bitácora tendrá un asiento de inscripción, firmado por el Profesional Responsable, en un registro que llevará el Colegio. Esta inscripción identificará adecuadamente al Cuaderno de Bitácora.

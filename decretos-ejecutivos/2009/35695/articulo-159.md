@@ -1,0 +1,1 @@
+Artículo 159.—Empresas Consultoras, de diseño, de montaje, de instalación y de puesta en marcha. Tarifas: En las labores propias de consultoría la empresa aplicará las tarifas fijadas en el Reglamento de Tarifas y Costos, conforme al Transitorio II del presente Reglamento.

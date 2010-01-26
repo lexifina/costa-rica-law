@@ -1,0 +1,1 @@
+Artículo 145.—Actividad de Consultoría. Registro de Contratos: Los contratos de consultoría, diseño y desarrollo de proyectos deben registrarse en el Colegio, de conformidad con lo indicado en el artículo 19 de la Ley.

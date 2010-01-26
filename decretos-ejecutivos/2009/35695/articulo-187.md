@@ -1,0 +1,1 @@
+Artículo 187.—Regente. Obligaciones: El Regente deberá velar por el almacenamiento, uso y disposición correctos de aquellos productos que impliquen riesgo y deberá mantener bajo su responsabilidad los materiales; las sustancias peligrosas identificarlas claramente con la letra y la simbología que indica la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 297.—Pago de cuota ordinaria. Descuento: La cuota ordinaria será mensual. El Colegiado que pague en efectivo, por adelantado en forma semestral o anual recibirá un descuento del diez por ciento (10%).

@@ -1,0 +1,1 @@
+Artículo 143.—Actividad de Consultoría. Propiedad Intelectual: La consultoría, el diseño y desarrollo de proyectos, por ser una labor profesional creativa, producto de la ciencia, la técnica y la creatividad del consultor, se constituye en propiedad intelectual y como tal está sujeta a la protección de las leyes vigentes en esta materia.

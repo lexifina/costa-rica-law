@@ -1,0 +1,1 @@
+Artículo 176.—Regentes. Registro de ausencias: Las ausencias del Regente deberán estar consignadas en el cuaderno de bitácora y la presencia de un sustituto ajustarse a las regulaciones existentes para estos casos.

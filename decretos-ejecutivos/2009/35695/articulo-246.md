@@ -1,0 +1,2 @@
+Artículo 246.—Asamblea General Ordinaria o Extraordinaria. Actas: En cada sesión de la Asamblea General, se levantará un acta, debidamente foliada en consecutivo, en el Libro de Actas de Asamblea General, debidamente legalizado, en el cual se consignarán las resoluciones tomadas. Será firmada por el Presidente, el Secretario, el Fiscal y por los asistentes que deseen hacerlo.
+En el acta se deberá dejar constancia de los Colegiados asistentes y deberá crearse un archivo con la constancia de asistencia de Colegiados a cada Asamblea específica.

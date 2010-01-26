@@ -1,0 +1,1 @@
+Artículo 5º—Colegiatura en varias profesiones. Cada profesional se acreditará en el Colegio en la profesión que se graduó. En caso de haberse graduado en otra profesión regulada por el Colegio, debe registrarse en ambas, lo cual lo autoriza para ejercerlas.

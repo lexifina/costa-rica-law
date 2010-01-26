@@ -1,0 +1,3 @@
+Artículo 218.—Documento público. Planos: Todos los documentos públicos que constituyan un plano, deben tener la presentación estándar en cuanto a tamaño, simbología, identificación, balances de materia y energía, según lo establece la normativa ISO-TC 10/SC 10. Alternativamente se aplicará la normativa interna aprobada por la Asamblea General del Colegio de Ingenieros Químicos y Profesionales Afines de Costa Rica.
+Los planos que se tramiten ante el Colegio requieren la presentación de al menos dos copias de las cuales una copia permanecerá en archivo confidencial del Colegio.
+Las copias de planos se podrán sustituir por archivos electrónicos con firmas digitales y el colegio conservará copia confidencial de este archivo.

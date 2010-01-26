@@ -1,0 +1,1 @@
+Artículo 190.—Establecimientos de investigación y diagnóstico. Manual de Investigación: La Junta Directiva nombrará una Comisión que redacte el Manual de Investigación de establecimientos de investigación y diagnóstico.

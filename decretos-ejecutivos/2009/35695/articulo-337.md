@@ -1,0 +1,1 @@
+Artículo 337.—Reforma al Reglamento. Comunicación: La Junta Directiva deberá hacer del conocimiento de todos los miembros, luego de la aprobación del Poder Ejecutivo, en un plazo no mayor de treinta días, cualquier reforma al Reglamento. La reforma tendrá vigencia en la fecha de publicación en el Diario Oficial, La Gaceta.

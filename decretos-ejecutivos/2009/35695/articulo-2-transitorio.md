@@ -1,0 +1,1 @@
+Transitorio II.—En todo artículo de este Reglamento que se haga mención al Reglamento de Honorarios, Tarifas y costos, la vigencia de dicha normativa, quedará sujeta a la efectiva publicación precisamente de esa normativa, monto a partir del cual tendrán plena vigencia.

@@ -1,0 +1,2 @@
+Artículo 188.—Establecimientos de investigación y diagnóstico. Auditorías: La Fiscalía del Colegio efectuará auditorías externas periódicas a los establecimientos de investigación y diagnóstico, para verificar el cumplimiento de este Reglamento.
+La Fiscalía pondrá a disposición de los establecimientos de investigación y diagnóstico un Manual de Investigación que cumpla con los requisitos establecidos en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 194.—Cuaderno de Bitácora. Personas autorizadas para su uso: El Profesional Responsable está en la obligación de procurar que solamente las personas autorizadas en este Reglamento utilicen el Cuaderno de Bitácora.

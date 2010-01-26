@@ -1,0 +1,1 @@
+Artículo 93.—Sanciones. Comunicación: En todos los casos de imposición de sanciones firmes por faltas graves y muy graves se deberá divulgar la resolución tomada en el Diario Oficial, La Gaceta, y en los medios de difusión que se consideren oportunos.

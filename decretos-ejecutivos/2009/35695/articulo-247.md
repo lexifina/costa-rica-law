@@ -1,0 +1,3 @@
+Artículo 247.—Responsabilidades del Presidente y Secretario de la Junta Directiva y del Fiscal. Asamblea General Ordinaria o Extraordinaria: Es responsabilidad del Presidente de La Junta Directiva, actuando como Presidente de la Asamblea, la dirección de la Asamblea y el conteo de votos.
+Es responsabilidad del secretario de la Junta Directiva, actuando como secretario de la Asamblea, levantar el acta respectiva.
+Es responsabilidad del Fiscal del Colegio, el verificar quien tiene derecho a voto en la Asamblea, en caso de ausencia del Fiscal este control estará a cargo del Director Administrativo.

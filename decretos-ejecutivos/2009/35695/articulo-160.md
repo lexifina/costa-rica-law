@@ -1,0 +1,2 @@
+Artículo 160.—Empresa Consultora, de diseño, de montaje, de instalación y de puesta en marcha. Cancelación de Inscripción: La Junta Directiva procederá a cancelar la inscripción de una Empresa Consultora que, después del debido procedimiento administrativo, se compruebe que ha incurrido en falta grave en el cumplimiento de sus obligaciones.
+El Colegio hará pública la resolución que así lo acuerde en el Diario Oficial, La Gaceta.

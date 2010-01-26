@@ -1,0 +1,1 @@
+Artículo 207.—Comprobante: A efecto de acreditar el cumplimiento de la inscripción de lo establecido en el ordinal 206 precedente, y la tenencia del cuaderno de control de actividades el Colegio emitirá el comprobante respectivo.

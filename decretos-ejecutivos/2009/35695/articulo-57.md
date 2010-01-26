@@ -1,0 +1,1 @@
+Artículo 57.—Recursos ante la asamblea general. Plazo para resolver: La Asamblea General deberá resolver dentro de los treinta días hábiles siguientes a la convocatoria y al haber sus miembros recibido el expediente disponible para consulta.

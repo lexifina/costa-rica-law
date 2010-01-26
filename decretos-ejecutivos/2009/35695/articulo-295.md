@@ -1,0 +1,1 @@
+Artículo 295.—Patrimonio social del Colegio: El patrimonio social referido sólo podrá ser utilizado para fines institucionales. Así mismo, está prohibida la distribución de las rentas, directa o indirectamente, entre los Colegiados.

@@ -1,0 +1,1 @@
+Artículo 29.—Especialidades. Actualización de Registro: El Colegio mantendrá una lista de las especialidades en que se desempeñan sus miembros activos y eméritos, como resultado de sus estudios académicos o experiencia laboral, la que deberá ser actualizada por la Dirección Administrativa del Colegio al menos una vez al año.

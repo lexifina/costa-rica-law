@@ -1,0 +1,1 @@
+Artículo 209.—Comisión. Integración: La Comisión estará integrada por tres miembros activos del Colegio y entre ellos elegirán un coordinador que deberá velar por una relación eficaz entre la Comisión y la Administración del Colegio.

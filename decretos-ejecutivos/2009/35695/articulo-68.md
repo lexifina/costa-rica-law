@@ -1,0 +1,1 @@
+Artículo 68.—Solicitud de patente nueva. Toda solicitud de patente nueva, para su admisión a estudio, deberá venir acompañada de todas las oposiciones que se hubieren planteado en su contra dentro del término respectivo.

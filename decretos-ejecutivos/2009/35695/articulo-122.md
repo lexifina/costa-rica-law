@@ -1,0 +1,1 @@
+Artículo 122.—Requerimiento de Regente. Todo Establecimiento, de acuerdo al artículo 20 de la Ley y definido en los artículos 117, 118, 120 y caracterizado en el artículo 123 estará obligado a contar con los servicios de, al menos, un Regente.

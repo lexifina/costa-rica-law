@@ -1,0 +1,2 @@
+Artículo 111.—Ejercicio profesional. Control: Todo contrato de servicio profesional, en los extremos que se refieren exclusivamente a la prestación del servicio y su remuneración, deberá hacerse constar en las fórmulas que expedirá el Colegio e inscribirse en los registros del mismo.
+En caso de incumplimiento del cliente, el Colegio tiene competencia para exigir judicialmente, a través del Director Administrativo, su cumplimiento en nombre del profesional afectado, a menos que el profesional notifique al Colegio su deseo de exigir tal cumplimiento por sí mismo.
