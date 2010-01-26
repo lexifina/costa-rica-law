@@ -1,3 +1,0 @@
-CAPÍTULO V
-De la adjudicación de los locales
-Artículo 17.—Los locales se adjudicarán conforme a la legislación vigente. De todo acto adjudicador se levantará un acta que será firmada por el Presidente y Secretario del acto del remate, deberá contener los detalles necesarios para la identificación de los favorecidos. Toda persona física que resulte adjudicataria deberá presentarse ante el Alcalde Municipal o ante quien éste designe, dentro de los tres días hábiles siguientes después de la adjudicación para la firma del contrato de arrendamiento. Si no lo hiciere en el plazo indicado, la Municipalidad podrá sacar a remate nuevamente el local, perdiendo el interesado cualquier suma que haya adelantado por concepto de garantía de participación como cláusula penal.

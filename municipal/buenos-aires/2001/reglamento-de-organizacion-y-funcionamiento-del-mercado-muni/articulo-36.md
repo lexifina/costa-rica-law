@@ -1,1 +1,0 @@
-Artículo 36.—Para renovaciones de contrato y cesiones de arrendamiento, solamente procederán, siempre y cuando no conste en el expediente del adjudicatario la aplicación del Artículo 29, inciso a) o b).

@@ -1,1 +1,0 @@
-Artículo 11.—Se tendrán como inquilinos quienes resulten adjudicatarios de un local y los cesionarios del adjudicatario, cuyo traspaso haya sido aprobado por el Concejo Municipal y quienes hayan firmado el contrato respectivo y se encuentren al día en el pago previo del arrendamiento.
