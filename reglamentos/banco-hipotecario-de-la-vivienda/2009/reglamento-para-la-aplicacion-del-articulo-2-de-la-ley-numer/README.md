@@ -14,3 +14,4 @@ Reglamento para la aplicación del artículo 2 de la ley Número 8693 del 19 de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-16 | la propia norma |
+| 2 | 2010-01-27 | Reglamento 8 (2010-01-27) |
