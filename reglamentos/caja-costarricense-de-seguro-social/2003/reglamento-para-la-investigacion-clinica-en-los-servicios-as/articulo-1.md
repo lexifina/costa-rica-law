@@ -1,5 +1,6 @@
 (Anulada)
 (El presente Reglamento fue Derogado mediante sesión 8009 celebrada el 17 de Noviembre de 2005)
+(Anulado este Reglamento mediante resolución de la Sala Constitucional N° 1668 del 27 de enero del 2010.)
 CAJA COSTARRICENSE DE SEGURO SOCIAL
 JUNTA DIRECTIVA
 (NOTA: La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 8º de la sesión 7989, celebrada el 1º de setiembre del año 2005, acordó prorrogar hasta el 31 de octubre del año 2005 la vigencia de este Reglamento).
