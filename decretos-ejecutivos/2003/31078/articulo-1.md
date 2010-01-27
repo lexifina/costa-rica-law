@@ -1,4 +1,5 @@
 (Anulada)
+(Anulado este Decreto mediante resolución de la Sala Constitucional N° 1668 del 27 de enero del 2010.)
 Nº 31078-S
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD

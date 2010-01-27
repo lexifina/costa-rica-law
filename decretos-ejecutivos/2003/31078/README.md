@@ -15,3 +15,4 @@ Reglamento para las Investigaciones en que Participan Seres Humanos.
 | --- | --- | --- |
 | 1 | 2003-03-27 | la propia norma |
 | 2 | 2005-07-22 | Decreto Ejecutivo 32648 (2005-07-22) |
+| 3 | 2010-01-27 | SINALEVI (sin norma nombrada) |
