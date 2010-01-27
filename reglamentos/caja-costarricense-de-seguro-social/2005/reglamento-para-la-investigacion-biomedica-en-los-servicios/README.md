@@ -15,3 +15,4 @@ Reglamento para la investigación biomédica en los servicios asistenciales de l
 | --- | --- | --- |
 | 1 | 2005-12-02 | la propia norma |
 | 2 | 2006-01-19 | Reglamento 8026 (2006-01-19) |
+| 3 | 2010-01-27 | SINALEVI (sin norma nombrada) |

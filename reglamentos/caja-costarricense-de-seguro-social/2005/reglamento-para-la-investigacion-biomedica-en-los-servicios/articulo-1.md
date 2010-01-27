@@ -1,5 +1,7 @@
 (Anulada)
+(Anulado este Reglamento mediante resolución de la Sala Constitucional N° 1668 del 27 de enero del 2010.)
 CAJA COSTARRICENSE DE SEGURO SOCIAL
+(Nota de Sinalevi: La Costarricense de Seguro Social, aprobó un nuevo Reglamento de investigación biomédica de la Caja Costarricense de Seguro Social, en sesión N° 9159 del 25 de febrero de 2021)
 JUNTA DIRECTIVA
 APROBACIÓN REGLAMENTO
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el
