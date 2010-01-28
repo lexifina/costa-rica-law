@@ -1,10 +1,2 @@
-ARTÖCULO 27.-Para ejecutar lo dispuesto en el art¡culo 16
-de la ley
-N§ 7200, los bancos comerciales deber n solicitar la autorizaci¢n
-correspondiente al Banco Central de Costar Rica, una vez que el
-proyecto
-que deseen financiar haya cumplido con todos los requisitos
-establecidos
-en dicha ley debiendo regirse por lo dispuesto en el art¡culo 85,
-inciso
-1), literal B de la Ley Org nica del Banco Central de Costa Rica.
+Artículo 27.-Para la ejecución de lo dispuesto en el artículo 16 de la Ley N° 7200, el Banco Central, directamente o a través del Consejo Nacional de Supervisión del Sistema Financiero, definirá la categoría de las empresas o industrias que estarán exentas de los !imites máximos de crédito estipulados en el artículo 61, inciso 5) de la Ley Orgánica del Sistema Bancario Nacional, el artículo 135 de la Ley Orgánica del Banco Central de Costa Rica y los reglamentos y normativa relacionados.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35787 del 28 de enero de 2010)
