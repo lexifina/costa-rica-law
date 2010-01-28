@@ -1,0 +1,1 @@
+Artículo 18.—La Auditoría Interna deberá dar seguimiento a las recomendaciones que hayan sido aceptadas por la Junta Directiva, con la finalidad de verificar si esas recomendaciones han sido puestas en práctica por las respectivas dependencias administrativas.

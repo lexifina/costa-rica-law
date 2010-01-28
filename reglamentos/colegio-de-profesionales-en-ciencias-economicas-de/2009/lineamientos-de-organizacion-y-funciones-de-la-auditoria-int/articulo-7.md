@@ -1,0 +1,1 @@
+Artículo 7º—El nombramiento del Auditor Interno lo realizará la Junta Directiva, por tiempo definido, de conformidad con el respectivo contrato. El Auditor Interno dependerá y responderá directamente por su gestión ante esa autoridad y sólo podrá ser removido del cargo por los motivos que contractualmente se estipulen.

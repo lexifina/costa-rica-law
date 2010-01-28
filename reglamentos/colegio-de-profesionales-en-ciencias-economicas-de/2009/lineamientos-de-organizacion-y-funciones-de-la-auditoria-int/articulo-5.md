@@ -1,0 +1,1 @@
+Artículo 5º—En el Colegio existirá una sola Auditoría Interna, regulada de acuerdo con las disposiciones, normas, políticas, procedimientos y otros preceptos emitidos, o que en el futuro emita la Junta Directiva.

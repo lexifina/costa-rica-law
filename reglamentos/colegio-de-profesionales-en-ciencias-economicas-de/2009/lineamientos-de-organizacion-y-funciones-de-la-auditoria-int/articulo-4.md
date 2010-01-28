@@ -1,0 +1,1 @@
+Artículo 4º—Será responsabilidad exclusiva de la Administración Activa del Colegio, establecer, mantener y perfeccionar el control interno. La Junta Directiva como órgano superior será responsable del ejercicio del mismo.

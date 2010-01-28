@@ -1,0 +1,1 @@
+Artículo 8º—La Auditoría Interna estará conformada por el Auditor Interno y el personal administrativo auxiliar que se le asigne para el cumplimiento de sus funciones, sobre el cual tendrá las potestades de superior jerárquico inmediato.

@@ -1,0 +1,1 @@
+Artículo 10.—La Auditoría Interna deberá contar, de acuerdo con los recursos existentes del Colegio, humanos, materiales, tecnológicos, asesoría técnica y capacitación para el desarrollo profesional de sus funciones, y para ese propósito presentará su plan anual de trabajo con su respectivo presupuesto ante la Junta Directiva.
