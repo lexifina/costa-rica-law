@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Permisos de Construcción de la Municipalidad
 | --- | --- | --- |
 | 1 | 2006-04-19 | la propia norma |
 | 2 | 2006-04-19 | Reglamento municipal 424 (2006-04-04) |
+| 3 | 2010-01-28 | Reglamento municipal 106 (2010-01-28) |
