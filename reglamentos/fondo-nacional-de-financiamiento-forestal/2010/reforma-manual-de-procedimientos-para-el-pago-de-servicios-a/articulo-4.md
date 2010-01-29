@@ -1,0 +1,3 @@
+Artículo 4º—Para que se adicione en el punto dos, un nuevo inciso 2.6 que en lo sucesivo se lea de la siguiente forma:
+2.6. Proyectos de Manejo de Bosque.
+2.6.1 Inmuebles que tienen planes de manejo aprobados por la Administración Forestal del Estado, en los cuales se realizó la cosecha de acuerdo a los Estándares de Sostenibilidad para Manejo de Bosques Naturales: Principios, Criterios e Indicadores, Código de Prácticas y Manual de Procedimientos, de acuerdo al Decreto Ejecutivo Nº 34559-MINAE, publicado en La Gaceta Nº 115 del día lunes 16 de junio del 2008, la Administración Forestal de Estado (AFE) certificará el cumplimiento de lo establecido en el plan de manejo.
