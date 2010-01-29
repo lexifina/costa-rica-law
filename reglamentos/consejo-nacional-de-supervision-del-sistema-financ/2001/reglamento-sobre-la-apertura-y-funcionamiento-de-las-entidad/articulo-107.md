@@ -1,2 +1,3 @@
-Artículo 107. Del incumplimiento
-Cuando una entidad autorizada incumpla con los procedimientos o plazos establecidos en este Capítulo, el afiliado podrá denunciar su caso ante la Superintendencia, quién procederá a ordenar el traslado, de acuerdo con lo establecido por el Artículo 10 de la Ley 7983 y a imponer las sanciones administrativas que corresponda.
+Artículo 107.—Responsabilidades de las entidades autorizadas.
+Constituye una obstaculización al derecho del afiliado de transferirse a otra entidad autorizada, el incumplimiento de los plazos establecidos para el traslado de recursos.
+(Así reformado en sesión N° 830-2010 del 29 de enero del 2010)
