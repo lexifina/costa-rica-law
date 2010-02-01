@@ -1,0 +1,1 @@
+Transitorio I.—La elección de miembros del Tribunal de Elecciones que se realice después de la vigencia de la presente reforma, deberá nombrar necesariamente por lo menos, a dos miembros propietarios del Tribunal Electoral saliente.

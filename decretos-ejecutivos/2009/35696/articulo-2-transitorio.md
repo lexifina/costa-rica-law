@@ -1,0 +1,2 @@
+Transitorio II.—El Tribunal de Elecciones en coordinación con el Colegio de Médicos y Cirujanos impulsará la implementación del Voto Electrónico en las elecciones de Junta de Gobierno.
+Una vez estructurada la realización del Voto Electrónico, el Tribunal de Elecciones hará las modificaciones y adaptaciones reglamentarias que correspondan para que la Junta de Gobierno tramite su aprobación en una Asamblea General, así como dar información amplia de los procedimientos de votación para todo el Cuerpo Medico Nacional.
