@@ -1,0 +1,1 @@
+Artículo 4º—Todas las llaves del gimnasio, de las puertas de acceso, estantería que albergue implementos deportivos, guardarropas y otros, serán administradas por la Administración Regional a través del Encargado. Ningún servidor podrá portar llaves que no le han sido asignadas por la Administración Regional.

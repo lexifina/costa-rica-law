@@ -1,0 +1,1 @@
+Artículo 3º—La limpieza de las instalaciones deberá realizarla la empresa contratada para brindar estos servicios. Se efectuará dos veces al día de previo al inicio de la primera audiencia y en horas de la tarde.

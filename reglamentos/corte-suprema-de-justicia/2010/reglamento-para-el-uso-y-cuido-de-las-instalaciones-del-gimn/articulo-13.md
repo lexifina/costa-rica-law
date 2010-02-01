@@ -1,0 +1,1 @@
+Artículo 13.—Los servidores judiciales que hagan uso del gimnasio, deben colocar en el lugar correspondiente el equipo móvil que utilizaron, una vez finalizado el ejercicio (pesas, tablas, discos, etc.).

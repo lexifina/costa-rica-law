@@ -1,0 +1,1 @@
+Artículo 7º—El Encargado podrá restringir el ingreso de los servidores cuando su vestimenta sea inadecuada para la práctica deportiva. De igual manera, podrá disponer el retiro de los mismos, en caso de que su comportamiento sea indecoroso, atente contra las buenas costumbres y no observe las disposiciones sobre el aseo y mantenimiento de las instalaciones.

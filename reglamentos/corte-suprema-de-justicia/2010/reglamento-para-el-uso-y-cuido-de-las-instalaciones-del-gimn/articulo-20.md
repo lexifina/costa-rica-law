@@ -1,0 +1,1 @@
+Artículo 20.—El gimnasio deberá ser usado solo para actividades deportivas y culturales, acordes a las facilidades que las instalaciones ofrecen. Por tanto, no se permitirá el uso para otros fines ni prácticas de otros deportes que puedan dañar las instalaciones.

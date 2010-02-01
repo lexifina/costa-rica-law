@@ -1,0 +1,1 @@
+Artículo 30.—Los servidores judiciales podrán contratar los servicios privados de un instructor, asumiendo la erogación que corresponde. Previo a la contratación se debe obtener la autorización por parte de la Administración Regional de la Ciudad Judicial, quien tendrá la responsabilidad de fiscalizar y supervisar esa actividad, en aras de la seguridad de esa área.

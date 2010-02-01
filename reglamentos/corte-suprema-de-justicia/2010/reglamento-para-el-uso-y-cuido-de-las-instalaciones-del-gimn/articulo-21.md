@@ -1,0 +1,1 @@
+Artículo 21.—Una vez desocupado el gimnasio, el Encargado deberá hacer una revisión del estado de las instalaciones, reportando cualquier anomalía a la Administración Regional de la Ciudad Judicial a fin de que sean definidas las medidas correctivas a tomar.

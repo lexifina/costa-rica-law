@@ -1,0 +1,1 @@
+Artículo 26.—La asignación de los casilleros lo realizará la Administración Regional de la Ciudad Judicial, entregando la llave al interesado. Semestralmente esa Administración realizará una supervisión de estos con la finalidad de garantizar el adecuado uso.
