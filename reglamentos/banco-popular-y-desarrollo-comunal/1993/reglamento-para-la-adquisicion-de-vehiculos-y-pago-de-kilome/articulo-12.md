@@ -1,1 +1,0 @@
-Artículo 12.—No se concederá un nuevo crédito en esta línea si no ha transcurrido al menos dos años de haber formalizado el crédito anterior, salvo casos debidamente justificados, los que serán resueltos por la Gerencia General.

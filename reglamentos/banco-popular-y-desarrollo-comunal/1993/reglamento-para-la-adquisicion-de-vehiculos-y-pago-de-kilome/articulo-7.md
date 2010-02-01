@@ -1,2 +1,0 @@
-Artículo 7°—E1 vehículo deberá asegurarse simultáneamente con la compra cuando se trate de garantía prendaria, contra los riesgos que el banco indique y la respectiva póliza deberá hacerse con addendum de acreedor prendario. Los gastos que lo anterior ocasione correrán por cuenta del dueño del vehículo. Los gastos de formalización podrán ser financiados por el Banco siempre y cuando no se excedan de los límites establecidos.
-La póliza debe ser renovada puntualmente cada 6 meses y si ésta no se renueva, se dará por vencida la obligación.

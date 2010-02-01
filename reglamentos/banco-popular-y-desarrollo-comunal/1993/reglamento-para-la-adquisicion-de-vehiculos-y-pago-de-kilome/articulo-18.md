@@ -1,1 +1,0 @@
-Artículo 18.—La comprobación del kilometraje recorrido será responsabilidad directa del jefe inmediato del empleado debiendo acatarse estrictamente las regulaciones que al efecto se establezcan. Para los efectos de liquidación del pago de kilometraje se deberá usar el formulario correspondiente.

@@ -1,1 +1,0 @@
-Artículo 14.—El Banco podrá inspeccionar y comprobar el estado de uso y conservación de la garantía durante toda la vigencia del crédito, sometiendo el vehículo a revisión en cualquier momento por los técnicos que el designe.

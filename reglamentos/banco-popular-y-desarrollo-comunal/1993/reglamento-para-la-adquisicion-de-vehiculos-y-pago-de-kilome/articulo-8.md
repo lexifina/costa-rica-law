@@ -1,1 +1,0 @@
-Artículo 8°—E1 servidor que adquiera un vehículo acogiéndose al presente reglamento, lo utilizará en el desempeño de sus funciones en el tiempo y lugar que el Banco indique, no podrá hacer ninguna transacción o arrendamiento con él, sin previa autorización de la Gerencia General. Deberá suscribir un contrato que regule el uso del vehículo.

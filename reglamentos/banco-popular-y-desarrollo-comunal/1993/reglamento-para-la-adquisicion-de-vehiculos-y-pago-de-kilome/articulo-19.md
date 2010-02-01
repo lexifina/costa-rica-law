@@ -1,1 +1,0 @@
-Artículo 19.—Para efectos de gozar de los beneficios de este reglamento, los funcionarios deberán suscribir un Contrato especial con el Banco en el que se deben incorporar en forma textual, las condiciones de los artículos 8, 9 y 10 de este Reglamento.
