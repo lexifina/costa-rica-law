@@ -14,3 +14,4 @@ Envío de Campos Modificables en el DUA de Exportación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-17 | la propia norma |
+| 2 | 2010-02-01 | Resolución 32 (2010-02-01) |

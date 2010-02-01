@@ -26,7 +26,7 @@ B13 | COD_BANCO | Entidad Financiera
 B14 | COD_CUENTA | Número de Cuenta (sin los 3 dígitos del banco)
 B17 | NUM_GARAN | Número de Garantía
 B18 | TOT_GARAN | Monto Total de Garantía
-B28 | TIPO_TRAN | Normal y Correlación para importación (y Repetitivo solo para granel)/consolidación, normal o repetitivo para tránsito
+B28 | TIPO_TRAN | Normal y Correlación para importación (y Repetitivo solo para granel)/consolidación, normal o repetitivo para tránsito), si se permita la modificación en segundos mensajes. (Así reformado mediante resolución DGA-032 del 1° de febrero de 2010)
 B31 | MON_ASOC | Momento de Declaración del Inventario
 B32 | TIPO_CARGA | Origen del Tipo de Inventario
 B33 | AFORO_INM | Solicitud de Asignación del tipo de revisión.
