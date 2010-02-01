@@ -14,3 +14,4 @@ Reglamento autónomo de servicio del ministerio de gobernación y policía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-16 | la propia norma |
+| 2 | 2010-02-01 | Decreto Ejecutivo 35796 (2010-02-01) |
