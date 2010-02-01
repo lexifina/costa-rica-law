@@ -14,3 +14,4 @@ Reforma formularios BN Servicios Bancarios para persona física y persona juríd
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-19 | la propia norma |
+| 2 | 2010-02-01 | Acuerdo 0 (2010-02-01) |
