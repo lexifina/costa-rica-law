@@ -1,0 +1,1 @@
+2º—Adiciónese el Procedimiento de Zona Franca al Manual de Procedimientos Aduaneros publicado mediante resolución RES-DGA-203-2005, del 22 de junio del 2005, de la Dirección General de Aduanas, publicada en el Alcance Nº 23 a La Gaceta Nº 143 de fecha 26 de julio del 2005, mismo que se anexa a la presente.
