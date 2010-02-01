@@ -1,0 +1,1 @@
+Artículo 10.—Normativa de aplicación supletoria. En lo no regulado expresamente por las disposiciones del presente reglamento, se aplicará supletoriamente lo dispuesto en la Ley de Correos y su Reglamento, el Código de Comercio, el Código Civil, y demás normas conexas.

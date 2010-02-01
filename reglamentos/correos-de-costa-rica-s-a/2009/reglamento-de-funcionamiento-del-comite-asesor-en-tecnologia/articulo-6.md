@@ -1,0 +1,1 @@
+Artículo 6º—Sesiones del Comité. El CATI sesionará en forma ordinaria una vez cada tres meses, siempre y cuando existan puntos a tratar o en caso de existir algún asunto extraordinario, se podrá convocar a reunión, si fuera el caso. Cada sesión se llevará a cabo siguiendo el orden del día y se levantará el acta respectiva.

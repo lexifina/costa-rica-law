@@ -1,0 +1,12 @@
+CORREOS DE COSTA RICA S. A.
+REGLAMENTO DE FUNCIONAMIENTO DEL COMITÉ
+ASESOR EN TECNOLOGÍAS DE INFORMACIÓN
+De conformidad con la Ley de Correos Nº 7768 del 24 de abril de 1998 publicada en La Gaceta Nº 103 del 29 de mayo de 1998, y el Decreto Nº 27238-G (Reglamento a la Ley de Correos) publicado en La Gaceta Nº 165 del 25 de agosto de 1998, y
+Considerando:
+I.—Que mediante Resolución Nº R-CO-26-2007 del 7 de junio del 2007 del Despacho de la Contralora General de la República, publicada en La Gaceta Nº 119 del 21 de junio del 2007, fueron emitidas las “Normas Técnicas para la Gestión y el Control de las Tecnologías de Información”, de acatamiento obligatorio para los órganos que conforman la Hacienda Pública, cuyo objetivo es fortalecer la administración de recursos invertidos en Tecnologías de Información mediante el establecimiento de criterios básicos de control que deben ser observados en la gestión institucional de esas tecnologías y que, a su vez, coadyuven en el control y fiscalización que realice el Órgano Contralor.
+II.—Que el numeral 1.6 de esas normas dispone que el jerarca debe apoyar sus decisiones sobre asuntos estratégicos de Tecnologías de Información en la asesoría de una representación razonable de la organización que coadyuve a mantener la concordancia con la estrategia institucional, a establecer la prioridades de los proyectos de Tecnologías de Información, a lograr un equilibrio en la asignación de recursos y a la adecuada atención de los requerimientos de todas las unidades de la organización.
+III.—Que en el acuerdo 4935 de la sesión ordinaria Nº 988, celebrada el 5 de octubre del 2009, la Junta Directiva de Correos de Costa Rica acordó que se constituyera el Comité Asesor en Tecnologías de Información, el cual ha estado funcionando hasta la fecha.
+IV.—Que se hace necesario contar con un instrumento normativo que especifique y regule la organización y funciones del Comité Asesor en Tecnologías de Información, dentro de las pautas establecidas por las “Normas Técnicas para la Gestión y el Control de las Tecnologías de Información”, en atención a las necesidades y objetivos propios de la Institución. Por tanto, se aprueba el siguiente:
+REGLAMENTO DE FUNCIONAMIENTO DEL COMITÉ
+ASESOR EN TECNOLOGÍAS DE INFORMACIÓN
+Artículo 1º—Del Comité Asesor en Tecnologías de Información. El Comité Asesor en Tecnologías de Información (pudiéndose abreviar CATI) constituye un órgano asesor de Correos de Costa Rica en las decisiones sobre asuntos estratégicos de Tecnologías de Información (en adelante TI).
