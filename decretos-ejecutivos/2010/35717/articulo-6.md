@@ -1,0 +1,3 @@
+Artículo 6º—Modifíquese el artículo 35 para que se lea de la siguiente manera:
+“Artículo 35.—Sector Trabajadores Independientes. El nombramiento de los representantes del Sector de Trabajadores Independientes será realizado mediante asambleas de sector, convocadas por la Comisión de conformidad con el artículo 26 de este Reglamento.
+Las impugnaciones sobre la designación de los delegados y delegadas propietarias y suplentes serán resueltas en primera instancia por la misma asamblea de bloque y definitiva por el Ministerio de Trabajo y Seguridad Social, según lo dispuesto en el artículo 38 de este Reglamento”.
