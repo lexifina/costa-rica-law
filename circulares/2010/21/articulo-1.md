@@ -1,0 +1,11 @@
+CIRCULAR Nº 021-10
+ASUNTO: Impedimento para el ejercicio del notariado respecto de los servidores del Poder Judicial. Obligación de cesar en el ejercicio del notariado y depositar el tomo de protocolo. Se deja sin efecto la circular Nº 73-07.
+A TODOS LOS SERVIDORES QUE LABORAN EN EL PODER JUDICIAL
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión Nº 07-10 celebrada el 26 de enero de 2010, artículo LXXI, de conformidad con el inciso f) del artículo 4º y los inciso b) y d) del artículo 5, ambos numerales del Código Notarial, así como los artículos 9 y 244 de la Ley Orgánica del Poder Judicial, la jurisprudencia vinculante y reiterada de la Sala Constitucional (resoluciones 649-1993, 444-2000, 5417-2003, 13672-2004, 9968-2008, 18452-2007), la jurisprudencia administrativa de la Sala Segunda (pronunciamientos 952-2009, 590-2009, 634-2005), acordó comunicarles que:
+a.- Todo servidor judicial que cuente con nombramiento en propiedad en cualquier puesto, está impedido para el ejercicio del notariado.
+b.- Únicamente magistrados y jueces suplentes, nombrados por períodos inferiores a tres meses, pueden ejercer el notariado y una vez superado dicho plazo, deberán proceder al depósito de su tomo de protocolo ante el Departamento de Archivo Notarial de la Dirección General del Archivo Nacional, y presentar el cese de funciones notariales ante la Dirección Nacional de Notariado o el órgano contralor del notariado costarricense que disponga la ley para tal momento.
+c.- Salvo disposición expresa en contrario emitida por la Dirección Nacional de Notariado, ningún servidor judicial que ocupe un cargo diferente a los señalados en el punto b.- anterior, que estuviere nombrado aún interinamente por menos de tres meses, podrá ejercer el notariado.
+d.- En razón de que las resoluciones aquí indicadas evidencian un viraje en el criterio jurisprudencial, que afecta directamente lo dispuesto en su oportunidad en circular Nº 73-07, se deja esta última sin efecto.
+Por los motivos expuestos, quienes no se encuentren en el supuesto señalado en el punto b.- antes referido, deberán presentar la solicitud de cese en sus funciones notariales ante la Dirección Nacional de Notariado y depositar su correspondiente tomo de protocolo en el Archivo Notarial; de lo contrario se expondrán a las sanciones que correspondan.
+San José, 2 de febrero del 2010.
