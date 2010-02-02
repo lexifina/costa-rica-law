@@ -14,3 +14,4 @@ Reglamento General a la Ley Sobre Estupefacientes, Sustancias Psicotrópicas, Dr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-12 | la propia norma |
+| 2 | 2010-02-02 | Decreto Ejecutivo 35761 (2010-02-02) |
