@@ -14,3 +14,4 @@ Procedimiento Conformación del Equipo evaluador”, aplicable mediante el códi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-29 | la propia norma |
+| 2 | 2010-02-02 | Acuerdo 0 (2010-02-02) |

@@ -1,45 +1,57 @@
-ENTE COSTARRICENSE DE ACREDITACIÓN
 El Ente Costarricense de Acreditación (ECA), comunica a todos los interesados que se ha modificado el “Procedimiento Conformación del Equipo evaluador”, aplicable mediante el código ECA-MC-P10, emitido el 07 de Octubre del 2009, de la siguiente manera:
-TABLA DE CONTENIDO
-TABLA DE CONTENIDO 21
-1. OBJETIVO 22
-2. ALCANCE 22
-3. DOCUMENTOS DE REFERENCIA 22
-4. DEFINICIONES 22
-5. RESPONSABILIDADES 22
-6. DESIGNACIÓN DEL EQUIPO EVALUADOR 23
-8. ANEXOS 26
-1. OBJETIVO
+(Nota de Sinalevi: Este procedimiento fue reformado y reproducido su texto en forma íntegra, y publicado en La Gaceta N° 32 del 16 de febrero de 2010, por lo que se reproduce a continuación:)
+Conformación del equipo evaluador
+1. OBJETIVO 2
+2. ALCANCE 2
+3. DOCUMENTOS DE REFERENCIA 2
+4. DEFINICIONES 2
+5. RESPONSABILIDADES 2
+6. DESIGNACIÓN DEL EQUIPO EVALUADOR 3
+7. IDENTIFICACION DE CAMBIOS 7
+8. ANEXOS 7
+1. Objetivo
 Establecer los criterios y mecanismos para conformar el equipo evaluador que realiza las actividades de evaluación del ECA y de los otros organismos de acreditación que tengan convenio con ECA para los OEC.
-2. ALCANCE
-Este procedimiento aplica para la designación del equipo evaluador en las evaluaciones iniciales, ampliación, seguimiento y reevaluación de la acreditación de los OEC en Costa Rica y en otros países interesados, que soliciten la acreditación ante el ECA
-3. DOCUMENTOS DE REFERENCIA
-- ECA-MC Manual de Calidad.
-- ECA-MC-P09 Procedimiento general de evaluación y acreditación.
-- ECA-MC-P11 Procedimiento de Testificación a OC.
-- ECA-MC-P13 Ejecución de la evaluación.
-- ECA-MC-P13-I01 Instructivo de muestreo.
-- ECA-MC-MA-P01 Convocatoria, selección, evaluación, calificación e integración al cuerpo de evaluadores y expertos técnicos.
-- ECA-MC-MA-P03 Inducción.
-- ECA-MC-P10-F01 Verificación de proveedores de evaluadores y expertos técnicos para laboratorios de ensayo y calibración.
-- ECA-MC-P10-F02 Verificación de proveedores de evaluadores y expertos técnicos para organismos de inspección.
-- ECA-MC-P10-F03 Verificación de proveedores de evaluadores y expertos técnicos para organismos de certificación.
-4. DEFINICIONES
-- CEE: Cuerpo de Evaluadores y Expertos Técnicos del ECA.
+2. Alcance
+Este procedimiento aplica para la designación del equipo evaluador en las evaluaciones iniciales, ampliación, seguimiento y reevaluación de la acreditación de los OEC en Costa Rica y en otros países interesados, que soliciten la acreditación ante el ECA.
+3. Documentos de referencia
+- ECA-MC Manual de Calidad
+-- ECA-MC-P09 Procedimiento general de evaluación y
+acreditación
+-- ECA-MC-P11 Procedimiento de Testificación a OC.
+-- ECA-MC-P13 Ejecución de la evaluación
+-- ECA-MC-P13-I01 Instructivo de muestreo
+-- ECA-MC-MA-P01 Convocatoria, selección, evaluación,
+calificación e integración al cuerpo de
+evaluadores y expertos técnicos
+-- ECA-MC-MA-P03 Inducción
+-- ECA-MC-P10-F01 Verificación de proveedores de
+evaluadores y expertos técnicos para
+laboratorios de ensayo y calibración
+-- ECA-MC-P10-F02 Verificación de proveedores de
+evaluadores y expertos técnicos para
+organismos de inspección
+-- ECA-MC-P10-F03 Verificación de proveedores de
+evaluadores y expertos técnicos para
+organismos de certificación
+4. Definiciones
+- CEE: Cuerpo de Evaluadores y Expertos Técnicos del ECA
 - OEC: Organismos de Evaluación de la Conformidad.
-- Admisibilidad técnica: Es el nombramiento en firme del Equipo Evaluador designado para realizar las evaluaciones al OEC solicitante dentro de un alcance de acreditación específico.
+- Admisibilidad técnica: Es el nombramiento en firme del Equipo
+Evaluador designado para realizar las evaluaciones al –OEC
+solicitante dentro de un alcance de acreditación específico.
 - OHA: Oficina Hondureña de Acreditación.
-5. RESPONSABILIDADES
+5. Responsabilidades
 Las responsabilidades se detallan en cada actividad incluida dentro del procedimiento. La simbología utilizada es la siguiente:
 - Responsable Gestoría de Calidad: [GC]
 - Responsable Secretaría de Acreditación: [SA]
 - Responsable Comité Asesor Técnico: [CAT]
-- Responsable Organismo de Evaluación de la Conformidad: [OEC]
+- Responsable Organismo de Evaluación de la Conformidad:
+[OEC]
 - Responsable Evaluador Líder: [EL]
 - Responsable Equipo Evaluador: [EE]
 - Responsable Oficina Hondureña de Acreditación: [OHA]
-6. DESIGNACIÓN DEL EQUIPO EVALUADOR
-6.1. Instrucciones Generales:
+6. Designación del equipo evaluador
+6.1. Instrucciones generales:
 6.1.1. El equipo evaluador se conforma en función del grado de la complejidad de la evaluación a realizar. [SA]
 6.1.2. Se integra el equipo evaluador con personas con experiencia en la norma a acreditar y con experiencia técnica relacionada con el alcance de acreditación. [SA]
 6.1.3. La designación del equipo evaluador se hace con base en el listado del CEE vigente, excepto en los casos de inopia, según lo establece el artículo 38 del Reglamento de Estructura Interna y Funcionamiento del ECA, tomando en consideración lo indicado en este procedimiento y los criterios establecidos en ECA-MC-MA-P01, casos en los que ECA puede contratar evaluadores y expertos técnicos de organismos internacionales homólogos o de otras instituciones o empresas. [SA]
@@ -79,10 +91,13 @@ Para la selección de los evaluadores/expertos técnicos se debe tomar en consid
 6.3.2. Los integrantes del equipo evaluador deben confirmar su participación en los siguientes 5 días hábiles, caso contrario la Secretaría de Acreditación procede al nombramiento de un nuevo integrante. Si alguno de los miembros del equipo presenta conflicto de interés, debe notificar de inmediato a la Secretaría de Acreditación quien procederá a realizar la sustitución respectiva. [EE]
 6.3.3. Todo cambio en algún integrante del equipo evaluador debe ser realizado por la Secretaría de Acreditación y aprobado por el OEC y se da a conocer al respectivo Comité Asesor en la reunión inmediata siguiente. [SA]
 6.3.4. La evaluación iniciará hasta que el equipo evaluador esté de acuerdo, el OEC haya aceptado el equipo evaluador y las notificaciones estén por escrito. [EE] y [OEC]
-6.4. Verificación de la competencia del Evaluadores o Expertos Técnicos designados en caso de Inopia:
-6.4.1. En caso de que se requieran evaluadores o expertos técnicos por inopia es necesario que dicho integrante complete, uno de los siguientes formularios según sea el caso [EE]:
+6.4. Verificación de la competencia de Evaluadores o Expertos Técnicos designados en caso de Inopia:
+6.4.1. En caso de que se requieran evaluadores o expertos técnicos por inopia es necesario que dicho integrante complete el formulario ECA-MC-MA-P01-F04 Curriculum Vitae y uno de los siguientes formularios según sea el caso [EE]:
 - ECA-MC-P10-F01: Verificación de proveedores de evaluadores y expertos técnicos para laboratorios de ensayo y calibración
-- ECA-MC-P10-F02: Verificación de proveedores de evaluadores y expertos técnicos para organismos de inspección
-- ECA-MC-P10-F03: Verificación de proveedores de evaluadores y expertos técnicos para organismos de certificación
-8. ANEXOS
+-- ECA-MC-P10-F02: Verificación de proveedores de evaluadores y expertos técnicos para organismos de inspección
+-- ECA-MC-P10-F03: Verificación de proveedores de evaluadores y expertos técnicos para organismos de certificación
+6.4.2. Una vez revisada la información por la secretaria de acreditación respectiva se traslada la documentación a la gestoría de calidad para que se proceda a registrar el nuevo experto por inopia.
+6.4.3. La Gestoría de Calidad registra el nuevo experto por inopia en el ECA-MC-P10-F04 Cuerpo de Evaluadores y Expertos Técnicos del ECA por Inopia.
+7. Identificación de cambios
+8. Anexos
 No aplica.
