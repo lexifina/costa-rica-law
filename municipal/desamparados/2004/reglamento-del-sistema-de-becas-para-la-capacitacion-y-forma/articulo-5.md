@@ -1,1 +1,0 @@
-Artículo 5º—El Departamento de Recursos Humanos atenderá todo lo relacionado al otorgamiento de becas que instituciones públicas o privadas, nacionales o extranjeras ofrezcan a la Municipalidad de Desamparados, de conformidad con lo regulado en el presente reglamento.

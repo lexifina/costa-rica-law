@@ -1,1 +1,0 @@
-Artículo 10.—La municipalidad podrá establecer convenios con instituciones universitarias y para-universitarias con el fin de lograr la capacitación de los funcionarios en aquellas áreas de interés institucional.

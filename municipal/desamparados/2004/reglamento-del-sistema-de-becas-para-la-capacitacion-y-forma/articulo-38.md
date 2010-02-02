@@ -1,1 +1,0 @@
-Artículo 38.—La revisión periódica del presente Reglamento, estará a cargo del Departamento de Recursos Humanos. Toda modificación deberá contar con un dictamen favorable de la Comisión de Becas y la posterior aprobación de la Alcaldía y el respectivo acuerdo municipal.

@@ -1,1 +1,0 @@
-Artículo 41.—El trabajador que participe en los programas de capacitación y formación, deberá cumplir con los requisitos, aceptar las obligaciones estipuladas en este Reglamento y para todos los efectos se le considerará en el ejercicio de sus funciones y la asistencia será tratada según lo estipulado en los reglamentos existentes para tal efecto.

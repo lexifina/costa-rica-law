@@ -1,1 +1,0 @@
-Artículo 29.—Todo contrato debe especificar claramente su objetivo, duración, estimación del monto del beneficio concedido, así como el compromiso del beneficiario de cancelar las sumas de manera directa o autorizando a la Administración para proceder a su rebajo y demás circunstancias especiales correspondientes al caso.

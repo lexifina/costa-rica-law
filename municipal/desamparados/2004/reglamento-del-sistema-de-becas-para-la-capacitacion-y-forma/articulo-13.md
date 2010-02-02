@@ -1,1 +1,0 @@
-Artículo 13.—Se entiende por subsidio para estudio, el aporte parcial o total en dinero que hace la Municipalidad a un trabajador para cumplir gastos de matricula, costos de estudios, impresión de documentos, estudios de campo, u otros que deben sufragarse por concepto de los mismos.

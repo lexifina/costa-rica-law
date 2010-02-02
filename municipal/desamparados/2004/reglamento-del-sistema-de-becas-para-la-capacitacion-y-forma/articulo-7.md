@@ -1,1 +1,0 @@
-Artículo 7º—Para que un trabajador pueda disfrutar de cualquiera de los beneficios que otorga este Reglamento, deberá firmar el respectivo contrato con la Municipalidad ante el Departamento de Recursos Humanos.
