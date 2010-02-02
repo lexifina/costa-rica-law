@@ -16,3 +16,4 @@ Reglamento para Uso de Vehículos del Ministerio de Seguridad Pública
 | 1 | 1997-07-01 | la propia norma |
 | 2 | 2004-12-01 | Decreto Ejecutivo 32177 (2004-12-01) |
 | 3 | 2009-07-08 | Decreto Ejecutivo 35414 (2009-07-08) |
+| 4 | 2010-02-02 | Decreto Ejecutivo 35805 (2010-02-02) |

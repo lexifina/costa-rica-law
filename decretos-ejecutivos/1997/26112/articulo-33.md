@@ -1,1 +1,2 @@
-Artículo 33.—Derogación. Se deroga el Reglamento para Uso de Vehículos del Ministerio de Seguridad Pública, decreto ejecutivo No 25492-SP del 16 de agosto de 1996.
+Artículo 33.—De la responsabilidad del Ministerio. En aquellos casos en que algún vehículo perteneciente al Ministerio hubiere causado daños a terceros que no hayan participado en forma directa en el accidente los reclamos se tramitarán de conformidad con lo que establece el libro primero, título sétimo, capítulos primero y segundo de la Ley General de la Administración Pública.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 30 al 33 actual)

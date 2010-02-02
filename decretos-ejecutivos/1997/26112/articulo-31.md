@@ -1,3 +1,3 @@
-CAPITULO VII
-Disposiciones finales
-Artículo 31.—Aplicación del reglamento. El Jefe del Departamento de Transportes, los jefes de cada dependencia, así como de las unidades policiales, deberán vigilar porque el presente reglamento sea aplicado.
+Artículo 31.—Responsabilidad del conductor en caso de condenatoria. El conductor que sea declarado responsable por los Tribunales de Justicia con motivo de un accidente en que hubiera participado, con un vehículo perteneciente al Ministerio, debe pagar el monto correspondiente al deducible, que fije el Instituto Nacional de Seguros o las indemnizaciones que deba hacer el Ministerio en favor de terceros afectados.
+Es igualmente responsable cuando previa investigación se logre determinar por parte de la Sección de Colisiones, que el conductor del vehículo incurrió en alguna de las situaciones prohibidas en el artículo 18. Lo anterior sin perjuicio de las sanciones de tipo disciplinario a que eventualmente se pueda hacer acreedor el servidor.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 28 al 31 actual)

@@ -1,3 +1,2 @@
-CAPITULO II
-Del Departamento de Transportes
-Artículo 16.—Departamento de Transportes. (Derogado por el inciso 9) del artículo 177 (actual artículo 188) del decreto ejecutivo N° 32177 del 1° de diciembre del 2004.)
+Artículo 16.—Vehículos para el transporte y seguridad de los funcionarios policiales que conforman la Escala de Oficiales superiores de la Fuerza Pública. En esta categoría se comprenden los vehículos de uso de la Fuerza Pública destinados al transporte y seguridad de los funcionarios policiales que conforman la Escala de Oficiales Superiores de la Fuerza Pública quienes desempeñan cargos de Directores y Subdirectores Generales, Directores y Subdirectores Regionales y Directores y Subdirectores de unidades policiales especializadas. Los vehículos deben ser utilizados exclusivamente para las funciones asignadas a dichos servidores, pudiendo ser trasladados por razones de seguridad de su residencia a su lugar de trabajo y viceversa.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010)

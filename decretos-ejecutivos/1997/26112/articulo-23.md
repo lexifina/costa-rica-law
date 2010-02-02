@@ -1,14 +1,8 @@
-CAPITULO V
-De las prohibiciones y sanciones
-Artículo 23.—Prohibiciones. Está absolutamente prohibido:
-a) Utilizar los vehículos para fines diferentes aquellos para los cuales han sido designados.
-b) Permitir que personas no autorizadas para la función o servicio que se propone brindar viajen en vehículos pertenecientes al Ministerio, salvo en los casos que por aspectos de trabajo o emergencia se justifique.
-c) Conducir en estado de ebriedad o bajo el efecto de cualquier droga que disminuya su capacidad física o mental o en forma temeraria.
-d) Hacer intercambio de accesorios entre las unidades, sin contar con la autorización respectiva del Departamento de Control y Fiscalización de Activos.
-e) Permitir que personas no autorizadas conduzcan los vehículos asignados a cada una de las dependencias ministeriales y las unidades policiales.
-f) Hacer abandono de los vehículos de este Ministerio sin causa justificada.
-g) Irrespetar la Ley de Tránsito por Vías Públicas Terrestres y demás reglamentos.
-h) Utilizar los automotores en actividades personales o ajenas a las labores de la institución o fuera del horario al que éste se encuentre sujeto.
-i) Utilizar indebidamente los combustibles, herramientas y repuestos asignados al vehículo.
-j) Adherir a los vehículos rótulos que no sean oficiales.
-k) Conducir vehículos oficiales sin tener las respectiva licencia.
+Artículo 23.—Del adecuado uso de los vehículos. Para lograr un adecuado uso y control de los vehículos del Ministerio cada dependencia u oficina administrativa y unidades policial a la que se le haya asignado o prestado un vehículo deberá cumplir con lo siguiente:
+a) Supervisar la labor de los chóferes y verificar que su licencia de conducir esté al día.
+b) Autorizar el uso de los vehículos de conformidad con las características del servicio que se presta y las demandas de este.
+c) Controlar el kilometraje y motivo de uso del vehículo.
+d) Comunicar en forma inmediata a la Sección de Colisiones en caso de accidentes en que intervenga un vehículo perteneciente al Ministerio de Seguridad Pública.
+e) Llevar una tarjeta de control para cada vehículo asignado o prestado que contenga al menos los siguientes datos: número de placa o patrimonio, que tenga número de motor, número de chasis, marca, modelo, y código interno, si lo tuviere.
+f) Preparar y remitir puntualmente los informes que le solicita el Departamento de Transportes.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 20 al 23 actual)

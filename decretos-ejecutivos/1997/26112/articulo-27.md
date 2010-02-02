@@ -1,1 +1,2 @@
-Artículo 27.—De los arreglos extrajudiciales. Ningún conductor de vehículos pertenecientes al Ministerio, está autorizado para efectuar arreglos extrajudiciales.
+Artículo 27.—Sanciones. Las infracciones al presente Reglamento de conformidad con su gravedad serán sancionadas según lo dispuesto en el Código de Trabajo, Ley General de la Administración Pública, Ley General de Policía, Ley Orgánica del Ministerio de Seguridad Pública, Reglamento Autónomo de Servicio del Ministerio de Seguridad Pública y demás disposiciones vigentes, sin perjuicio de las responsabilidades civiles o penales que deba asumir el infractor.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 24 al 27 actual)

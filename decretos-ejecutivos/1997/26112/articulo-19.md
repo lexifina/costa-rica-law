@@ -1,1 +1,4 @@
-Artículo 19.—Control del uso de los vehículos del Ministerio. Los jefes de cada una de las diferentes dependencias u oficinas administrativas así como de las unidades policiales a los cuales se les asignen vehículos, deberán ejercer los controles adecuados para que el uso de los automotores sea en forma adecuada y acorde con los fines públicos para los cuales han sido destinados.
+CAPITULO II
+Del Departamento de Transportes
+Artículo 19.—Departamento de Transportes. (Derogado por el inciso 9) del artículo 177 (actual artículo 188) del decreto ejecutivo N° 32177 del 1° de diciembre del 2004.)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 16 al 19 actual)

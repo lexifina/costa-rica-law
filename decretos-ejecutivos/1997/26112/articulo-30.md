@@ -1,1 +1,2 @@
-Artículo 30.—De la responsabilidad del Ministerio. En aquellos casos en que algún vehículo perteneciente al Ministerio hubiere causado daños a terceros que no hayan participado en forma directa en el accidente los reclamos se tramitarán de conformidad con lo que establece el libro primero, título sétimo, capítulos primero y segundo de la Ley General de la Administración Pública.
+Artículo 30.—De los arreglos extrajudiciales. Ningún conductor de vehículos pertenecientes al Ministerio, está autorizado para efectuar arreglos extrajudiciales.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 27 al 30 actual)

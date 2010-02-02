@@ -1,4 +1,2 @@
-CAPITULO III
-Administración y uso de los vehículos del Ministerio
-Artículo 18.—De la asignación de vehículos a las oficinas y dependencias administrativas y a las unidades policiales. Corresponderá al superior jerárquico del Ministerio, o a quien este designe determinar el número de vehículos que se asignará a las diferentes dependencias del Ministerio, atendiendo a criterios de racionalidad, oportunidad, disponibilidad de recursos y necesidad del servicio público que se presta en cada una de ellas.
-Igualmente determinará cual de las oficinas o dependencias administrativas, tendrán vehículos de uso permanente u ocasional tomando en cuenta primordialmente el tipo de servicio que prestan. Cuando la asignación ya se haya realizado, deberá comunicárselo por escrito al Departamento de Transportes, para que este inicie los controles correspondientes.
+Artículo 18.—Movilizaciones o traslados distantes del lugar habitual de trabajo. Cuando en virtud de alguna movilización, traslado o reubicación del funcionario, el mismo deba desplazarse a lugares distantes de donde habitualmente presta servicio, los vehículos deben quedar en custodia de la Delegación Policial de la zona, debiendo registrar su ingreso y posterior salida en los libros de Oficialía de Guardia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010)

@@ -1,1 +1,2 @@
-Artículo 22.—Responsabilidades del conductor. El conductor que con conocimiento de la existencia de un daño causado a un vehículo propiedad del Ministerio lo oculte, asumirá la responsabilidad legal que por su conducta pueda imputársele.
+Artículo 22.— Control del uso de los vehículos del Ministerio. Los jefes de cada una de las diferentes dependencias u oficinas administrativas así como de las unidades policiales a los cuales se les asignen vehículos, deberán ejercer los controles adecuados para que el uso de los automotores sea en forma adecuada y acorde con los fines públicos para los cuales han sido destinados.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 35805 del 2 de febrero de 2010, que lo traspasó del antiguo artículo 19 al 22 actual)
