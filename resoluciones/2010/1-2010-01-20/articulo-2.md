@@ -1,0 +1,1 @@
+2º—Si la consulta no cumple con los requisitos indicados, la SUGEF prevendrá por una única vez al consultante para que complete la información, otorgándole un plazo de 5 días hábiles. Si pasado ese plazo, el consultante no ha completado los requisitos, se procederá al archivo de la consulta sin más trámite.
