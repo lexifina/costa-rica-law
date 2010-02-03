@@ -13,3 +13,4 @@ Sobre el deber de utilizar el Formulario N° F-441 "Solicitud de préstamo de ex
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-04 | la propia norma |
+| 2 | 2010-02-03 | Circular 25 (2010-02-03) |
