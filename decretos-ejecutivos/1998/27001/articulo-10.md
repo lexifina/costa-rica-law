@@ -5,8 +5,8 @@ Artículo 10.—Del transporte
 10.4 Los vehículos deberán estar acondicionados por lo menos con los requisitos mínimos mostrados en el ANEXO 4.
 10.5 Como se indica en el decreto No 24715-MOPT-MEIC-S. todo vehículo automotor que se dedique al transpone de desechos -peligrosos deberá penar, además de los documentos requeridos por la Ley de tránsito para vías públicas terrestres, aquellos otros que se establecen en:
 a. Documento denominado "Manifiesto de Transporte de Desechos Peligrosos" (Anexo 5)
-b. Documentos o (*)Guía de Respuesta en Caso de Emergencia las cuales deberán estar firmadas por un profesional regente (químico o ingeniero químico), incorporado al respectivo colegio profesional (ANEXO 5)
-(*)(Así reformado por el artículo 3° del decreto ejecutivo N° 35505 del 24 de abril de 2009)
+b. Documentos o (*) Ficha de Emergencia para el Transporte de Productos Peligrosos las cuales deberán estar firmadas por un profesional regente (químico o ingeniero químico), incorporado al respectivo colegio profesional (ANEXO 5)
+(*)(Así reformado por el artículo 2° del decreto ejecutivo N° 35861 del 4 de febrero de 2010)
 c. Un certificado del generador del desecho peligroso, el que tendrá que incluir la información contenida en el ANEXO 1.
 10.6 Los transportistas deberán limpiar cualquier desecho peligroso que permanezca posterior a la descarga que ocurra durante la etapa de transporte. Todos estos desechos peligrosos, y productos de limpieza del transpone deben ser tratados como tales, por lo cual en caso de realizarse una descarga en una instalación de tratamiento se deberá contar con una zona para realizar la limpieza del mismo y que las corrientes de esa limpieza se lleven a las corrientes de la planta de tratamiento.
 10.7 En la etapa de carga, descarga y limpieza se debe seguir siempre las medidas de seguridad del personal necesarias para asegurar la salud de los operarios involucrados en cada una de esas etapas. El equipo de seguridad necesario dependerá de la característica de peligrosidad de cada desecho manejado.

@@ -3,7 +3,7 @@ A. MANIFIESTO DE DESECHOS PELIGROSOS
 _________________________________________________________________________________________________________________________________
 Fecha: : Lugar de Expedición (envío):
 Fecha estimada de arribo: Lugar de destino:
-DATOS GENERALES DE INVOLUCRADOS
+A. DATOS GENERALES DE INVOLUCRADOS
 Nombre del generador: Dirección:
 Tel- :
 Nombre y Firma del generador encargado:
@@ -13,7 +13,7 @@ Nombre y Firma receptor/consignatario encargado:
 Nombre del transportista/compañía: Dirección:
 Tel: :
 Nombre y Firma transportista encargado:
-DESCRIPCIÓN DEL DESECHO PELIGROSO
+B. DESCRIPCIÓN DEL DESECHO PELIGROSO
 1 Nombre del desecho:: Código Identificación:
 2 Proceso de generación del desecho:
 3 Características de peligrosidad (tóxico, combustible, reactivo, inflamable, etc.):
@@ -21,9 +21,9 @@ DESCRIPCIÓN DEL DESECHO PELIGROSO
 Estado físico : pH : _ Gravedad específica :
 Punto ignición :
 Composición Química %
-: ___
-: ___
-: ___
+A. : ___
+B. : ___
+C. : ___
 Otros:
 Metales pesados:
 Otros componentes (ppft):
@@ -42,8 +42,8 @@ El generador del desecho declara que la información en el presente documento es
 Firma y Fecha conforme.
 _____________________________________________________________________________________________________________________________________________
 .Nota Se debe adjuntar al presente manifiesto un certificado que indique como se trataran y eliminarán los desechos(método).
-B. (*)Guía de Emergencia en Caso de Emergencia
-(*)(Así reformado por el artículo 3° del decreto ejecutivo N° 35505 del 24 de abril de 2009)
+B. (*) Ficha de Emergencia para el Transporte de Productos Peligrosos
+(*)(Así reformado por el artículo 2° del decreto ejecutivo N° 35861 del 4 de febrero de 2010)
 A. Información sobre el desecho peligroso:
 Nombre del desecho
 Propiedades físicas del desecho peligroso (densidad, punto de fusión, punto de ebullición, punto de inflamación, punto crítico, volatilidad, coeficiente de difusividad, etc.)
@@ -55,6 +55,6 @@ Cantidad máxima transportada y cantidad mínima regulada
 Acciones a tomar en caso de incendio.
 Información general:
 Números telefónicos en caso de emergencia, disponible
-las 24 horas del día ‘ • Protocolo por Incidentes
+las 24 horas del día Protocolo por Incidentes
 Instrucciones de respuesta a incidentes, según especificaciones internacionales, tipo de extintor, plan de evacuación, materiales para recoger el producto derramado, cuidados generales, etc.
 Fuente: REGLAMENTO PARA EL TRANSPORTE TERRESTRE DE PRODUCTOS PELIGROSOS (No 24715-MOPT-MEIC-S)
