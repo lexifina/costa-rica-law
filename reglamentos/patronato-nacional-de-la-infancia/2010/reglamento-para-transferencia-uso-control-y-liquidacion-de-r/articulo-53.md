@@ -1,0 +1,1 @@
+Artículo 53.—El Hogar Solidario Subvencionado recibirá un aporte mensual por parte del PANI, el cual deberá ser debidamente justificado por la Oficina Local por medio de estudio psico-social, el cual deberá ser elaborado previamente a la ubicación del niño o niña en el Hogar Solidario.

@@ -1,0 +1,1 @@
+Artículo 31.—Los sujetos privados garantizarán la emisión en forma oportuna de las conciliaciones bancarias de la cuenta corriente correspondiente, las cuales deberán contar con la firma del contador privado que las emite y archivarse en orden cronológico.
