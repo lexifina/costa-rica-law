@@ -193,6 +193,8 @@ a) Asalariados: Constancia expedida por el patrono del salario bruto y del salar
 b) Independientes y patronos: Certificación o estudio de ingresos netos emitida por un Contador Público Autorizado.
 Este documento debe actualizarse por lo menos una vez al año.
 c) Asalariados, independientes y patronos: documentación sobre el ingreso por capital de los últimos tres años. Esta información debe actualizarse cuando se realice un análisis de capacidad de pago.
+En el caso de deudores que mantenga en la entidad una operación crediticia con garantía hipotecaria residencial habitada por él mismo, el requerimiento de actualización de la información de ingresos indicada en los incisos a y b anteriores, podrá ser modificado por la entidad de conformidad con sus propias políticas y procedimientos de crédito.
+(Así adicionado el párrafo anterior por acuerdo SUGEF-R-003 del 04 de febrero de 2010)
 2. Personas jurídicas
 a) Estados financieros anuales, auditados o internos, de los tres periodos anteriores a la fecha de estudio y estados
 financieros internos al menos del último periodo semestral.
