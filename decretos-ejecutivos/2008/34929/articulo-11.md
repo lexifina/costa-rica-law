@@ -1,2 +1,0 @@
-Artículo 11.—De la pérdida de la condición de miembro. Perderá su condición de miembro de la Comisión, aquel miembro propietario que no asista a las sesiones ordinarias y extraordinarias, ni se haga representar por su suplente, durante tres sesiones consecutivas o cinco alternas, dentro de un período de seis meses.
-El Director del SFE comunicará esta situación a la institución o sector de que se trate, con el objeto de que se rectifique la irregularidad, o en su defecto, se tomen las medidas correspondientes, procediéndose al cambio o sustitución del representante.

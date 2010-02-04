@@ -1,2 +1,0 @@
-Artículo 19.—De la obligación de colaborar. Para poder ejercer las facultades que la Ley de Protección Fitosanitaria, su reglamento y este Decreto Ejecutivo indican, los funcionarios del SFE estarán obligados a colaborar con la Comisión y brindarles la información que éstos requieran, de una manera ágil y transparente, siempre que sea canalizada a través del Director del SFE.
-El Director del SFE actuará como ente de enlace entre el Servicio y las diferentes instancias de este.
