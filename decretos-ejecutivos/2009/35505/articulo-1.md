@@ -20,5 +20,6 @@ Decretan:
 “OFICIALIZACIÓN DE GUÍA DE RESPUESTA EN CASO
 DE EMERGENCIA PARA EL TRANSPORTE DE
 MATERIALES PELIGROSOS 2008”
-Artículo 1º—Oficialícese para efectos de aplicación obligatoria la siguiente “Guía de Respuesta en Caso de Emergencia para el Transporte de Materiales Peligrosos 2008”, la cual estará publicada y disponible en las siguientes direcciones web: http://www.mopt.go.cr/; http://www.ministeriodesalud.go.cr; http://www.reglatec.go.cr/ y http://www.minae.go.cr/.
+Artículo 1º— Oficialícese para efectos de aplicación obligatoria para la confección de la Ficha de Emergencias para el Transporte de Productos Peligrosos, la “Guía de Respuesta en Caso de Emergencia”, última versión vigente a nivel internacional, la cual estará publicada y disponible en las siguientes direcciones web: http://www.mopt.go.cr/; http://www.ministeriodesalud.go.cr;http://www.reglatec.go.cr/ y http://www.minae.go.cr/”.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35861 del 4 de febrero de 2010)
 (Nota de Sinalevi: Debido a lo extenso de la norma y su formato, el contenido de la “Guía de Respuesta en Caso de Emergencia para el Transporte de Materiales Peligrosos 2008” puede ser accedido en el siguiente enlace: Guía de Respuesta…archivo pdf )
