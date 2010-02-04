@@ -1,0 +1,3 @@
+Artículo 10.—Presentación de ofertas: Para participar en el concurso interno, los o las interesadas deberán presentar su respectiva oferta de servicios ante la Sección de Recursos Humanos, en un plazo de diez días hábiles, a partir de la fecha de apertura del concurso, conforme la información que se indica en el artículo 16 de este Reglamento.
+Tanto en el concurso interno, como en el concurso externo, no se admitirán ofertas que no cumplan con los requisitos mínimos establecidos en el artículo 2º del presente Reglamento, o que se presenten fuera del plazo concedido en el concurso respectivo.
+En el caso de simples errores u omisiones, la Sección de Recursos Humanos concederá a los concursantes dos días hábiles para subsanarlos.

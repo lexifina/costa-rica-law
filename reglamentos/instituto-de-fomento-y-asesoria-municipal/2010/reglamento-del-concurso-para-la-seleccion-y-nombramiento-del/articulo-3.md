@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos adicionales: Los requisitos mínimos indicados en el artículo anterior, se complementan con otros requisitos que se incluyen en los criterios de evaluación de los participantes en los concursos para designar al Auditor Interno o la Auditora Interna, que se señalan en el Capítulo IV de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 15.—Publicación del aviso: A la Sección de Recursos Humanos le corresponde elaborar el aviso alusivo al concurso público para nombrar Auditor Interno o Auditora Interna; y además coordinar lo pertinente para su publicación en uno de los diarios de circulación nacional, en el cual deberá informarse sobre los aspectos relevantes del concurso.
+El contenido de la publicación deberá de ser previamente aprobado por la Junta Directiva o por quien esta designe.
