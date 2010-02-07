@@ -1,0 +1,1 @@
+Artículo 5º—Derogación. Deróguese el “Decreto Ejecutivo: N° 23480-MEIC-S. NCR 211:1994. Crema láctea (nata) para consumo directo y crema láctea ácida (natilla) del 01 de enero de 1994, publicado en La Gaceta Nº 139 de 21 de julio de 1994”.
