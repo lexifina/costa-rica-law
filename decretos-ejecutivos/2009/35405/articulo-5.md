@@ -1,0 +1,1 @@
+Artículo 5º—Derogación. Deróguese el “Decreto Ejecutivo Nº 6 Reglamento de Elaboración, Almacenamiento, Transporte, Expendio y Normalización de Helados y Sorbetes del 27 de junio de 1966, publicado en La Gaceta Nº 154 del 09 de julio de 1966.”
