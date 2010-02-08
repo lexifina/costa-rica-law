@@ -1,1 +1,0 @@
-Artículo 28.—Todo arreglo de pago conllevará la suscripción de un título ejecutivo a modo de garantía de conformidad con el Libro III Título I del Código de Comercio y las disposiciones que al efecto emita la DESAF.
