@@ -1,0 +1,2 @@
+Artículo 16.—Otros Gastos de transporte conexos a las giras. Cuando en la gira se utilice un vehículo del CNREE o alquilado, los gastos extraordinarios y justificados que se realicen para atención del vehículo, tales como compra de combustibles, lubricantes, líquido de baterías, reparación de llantas, así como el uso de “ferry” o peajes, deberán ser liquidados contra la presentación de los justificantes respectivos.
+Rige a partir de su publicación.

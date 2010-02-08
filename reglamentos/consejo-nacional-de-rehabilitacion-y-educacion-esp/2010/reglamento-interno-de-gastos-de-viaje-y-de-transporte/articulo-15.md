@@ -1,0 +1,6 @@
+CAPÍTULO III
+Gastos de transporte
+Artículo 15.—Pago de taxis: El uso del servicio de transporte en modalidad taxi será autorizado con la debida justificación por parte del funcionario (a) a la Jefatura del Programa respectivo; tomando en consideración la hora de salida o de regreso de una gira o el traslado de una terminal de Transporte a la Sede Regional, y solo en los casos en que no se cuente con otro medio de transporte, siempre que la jornada laboral termine después de las 8:00 p. m. o en caso de urgencia comprobada.
+El taxi por terminación de jornada laboral después de las 8:00 p. m. al lugar de residencia de la persona que lo requiere se hará contando con la autorización de la Jefatura inmediata y el visto bueno de la Jefatura Administrativa.
+En todo caso, se requiere la presentación de recibo extendido por quien brindó el servicio, para ello, se dispondrá de un talonario individualizado que será revisado mensualmente por la Jefatura correspondiente. En dicho talonario se indicará los kilómetros recorridos por el taxi, para verificar la razonabilidad del cobro del servicio, según las tarifas aprobadas para este medio de transporte público. Este comprobante debe adjuntarse a la liquidación de gastos.
+En casos de urgencia el funcionario deberá dejar constancia de la situación que justifique el uso del transporte en modalidad taxi.

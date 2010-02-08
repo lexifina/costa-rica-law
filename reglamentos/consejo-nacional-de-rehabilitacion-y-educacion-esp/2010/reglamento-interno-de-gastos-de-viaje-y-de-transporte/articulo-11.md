@@ -1,0 +1,1 @@
+Artículo 11.—Especificación de gastos realizados en el país. Los gastos de viaje dentro del país se liquidarán desagregando los distintos tiempos de comidas (desayuno, almuerzo o cena) y con la factura respectiva los de hospedaje.

@@ -1,0 +1,1 @@
+Artículo 5º—Tarifas: El pago de los gastos de hospedaje, alimentación y otros gastos menores, se regirá por el sistema de tablas de tarifas máximas, establecidas por la Contraloría General de la República.
