@@ -1,2 +1,0 @@
-Artículo 21.—El Área de Evaluación, con base en sus investigaciones y la información resultante del proceso evaluativo, desarrollará un informe anual el cual deberá ser remitido a la Dirección General, para su revisión y remisión al Ministro de Trabajo y a la Comisión Nacional de Solidaridad y Desarrollo Humano, dentro del primer semestre del año siguiente".
-(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 33309 del 04 de agosto del 2006)

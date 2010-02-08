@@ -1,1 +1,0 @@
-Artículo 11.—El Ministro de Trabajo y Seguridad Social es el superior jerárquico de la DESAF y como tal ejerce las potestades y atribuciones que le encomiendan la ley 5662, este reglamento y demás normativa aplicable, ejerciendo la representación legal de DESAF y será el superior inmediato del Director General.

@@ -1,2 +1,0 @@
-Artículo 19.—El Área de Evaluación tiene a su cargo la realización de las evaluaciones relacionadas con los programas sociales financiados con recursos del FODESAF en sus fases ex ante, durante y ex post a fin de velar por que el uso de los recursos contribuya al aumento del bienestar de las poblaciones atendidas.
-(Así reformado por el artículo 1º del Decreto Ejecutivo Nº 33309 del 04 de agosto del 2006)

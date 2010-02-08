@@ -1,1 +1,0 @@
-Artículo 23.—Toda institución ejecutora de programas financiados con recursos del FODESAF deberá informar a la DESAF sobre los recursos utilizados, el costo unitario y la cantidad de servicios o productos brindados en forma mensual.

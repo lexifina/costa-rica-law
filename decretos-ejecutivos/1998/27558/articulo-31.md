@@ -1,1 +1,0 @@
-Artículo 31.—Las unidades ejecutoras de programas financiados el FODESAF, están obligadas a cumplir estrictamente con las posiciones de la ley 5662 y este reglamento, y con las normas, procedimientos y requisitos, que la DESAF en el cumplimiento de sus funciones, establezca y requiera.

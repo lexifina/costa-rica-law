@@ -1,1 +1,0 @@
-TRANSITORIO IV.—A todo el personal que, como consecuencia de lo dispuesto en este Reglamento, sea reubicado en otras dependencias ministeriales, se le reconocerá la antigüedad por los servicios prestados en la DESAF y gozará de estabilidad y demás derechos que les otorga su condición específica de funcionarios del Ministerio de Trabajo y Seguridad Social.

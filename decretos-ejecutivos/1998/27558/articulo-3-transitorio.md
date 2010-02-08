@@ -1,1 +1,0 @@
-TRANSITORIO III.—Se suprime la Asesoría de Divulgación y Prensa de la DESAF. Sus funciones y su personal serán asumidos por el Departamento de Comunicación del Ministerio de Trabajo y Seguridad Social.

@@ -1,4 +1,0 @@
-CAPITULO III
-De la estructura organizacional de la DESAF
-Artículo 13.—La DESAF está conformada por una Dirección General a cargo de un Director General y un Subdirector General. La Dirección General tendrá a su cargo las siguientes Áreas funcionales: Área de Tesorería, Área de Presupuesto y Área de Evaluación quienes le brindarán el apoyo necesario para el cumplimiento de sus funciones. El Director General será nombrado por un periodo de hasta cuatro años, por el respectivo Ministro de Trabajo y Seguridad Social, de acuerdo con las normas de Servicio Civil para los servidores de confianza. Dicho nombramiento vencerá al finalizar la Administración en que haya sido realizado.
-Durante sus ausencias el Director General será sustituido con las mismas atribuciones y facultades por el Subdirector.
