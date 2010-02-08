@@ -1,0 +1,1 @@
+Artículo 3º—Las instituciones del Sector Público y el Sector Privado, dentro del marco legal respectivo, podrán contribuir con cualquier tipo de recursos o alternativas de colaboración, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, con las actividades del curso.

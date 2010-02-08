@@ -1,0 +1,1 @@
+Artículo 2º—Consecuentemente se autoriza al Ministerio de Salud y se insta a la Caja Costarricense de Seguro Social para que, sin desatender el servicio público, concedan a su personal calificado, el permiso correspondiente para asistir a las diversas actividades del curso.
