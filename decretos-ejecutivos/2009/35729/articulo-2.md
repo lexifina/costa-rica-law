@@ -1,0 +1,1 @@
+Artículo 2º—Cobertura: La aplicación de este reglamento cubrirá a todos los funcionarios del Ministerio de Economía, Industria y Comercio que en el ejercicio de sus funciones, sean autorizados a utilizar el vehículo de su propiedad para realizarlas, siempre y cuando cumpla con los requisitos y condiciones aquí establecidas.

@@ -1,0 +1,1 @@
+Artículo 30.—Una vez autorizado la Liquidación de Pago de Kilometraje por parte del jefe inmediato o Director, el arrendante deberá presentar la documentación anterior al Departamento Financiero Contable.

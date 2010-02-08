@@ -1,0 +1,1 @@
+Artículo 23.—La Institución le reintegrará al funcionario previa presentación de la factura respectiva los gastos por peaje, trasbordo y otro de similar naturaleza, siempre y cuando corresponda a la ruta que le fue autorizada y presente el respectivo formulario de “Liquidación de Gastos de Transporte y otros Gastos en el Interior del País”.

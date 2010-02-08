@@ -1,0 +1,1 @@
+Artículo 17.—Le corresponde al Departamento Financiero Contable del MEIC efectuar el control contable pertinente, el registro y el pago, para lo cual se utilizarán los formularios de pagos y tarjetas que se confeccionen al efecto.

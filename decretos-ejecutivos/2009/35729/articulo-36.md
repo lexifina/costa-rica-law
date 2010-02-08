@@ -1,0 +1,1 @@
+Artículo 36.—Derogar el Decreto Ejecutivo Nº 34778, “Reglamento para el Arrendamiento de Servicios de Transporte a los funcionarios DIGEPYME del Ministerio de Economía, Industria y Comercio, del 29 de agosto de 2008, publicado en La Gaceta Nº 194 del 08 de octubre de 2008.

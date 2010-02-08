@@ -1,0 +1,1 @@
+Artículo 28.—El arrendante deberá realizar un informe de la gira en el formulario “Informe de Visita”, detallando para cada una de las visitas a empresas, reunión, charla, capacitación u otros que se solicita en el formulario.
