@@ -1,0 +1,1 @@
+Artículo 2º—Quedan autorizados el Servicio Nacional de Salud Animal y el Servicio Fitosanitario del Estado para que utilicen los mecanismos de emergencia que sus correspondientes Leyes constitutivas les autorice, a los efectos de atender las necesidades y requerimientos que se planteen en todas las etapas.
