@@ -1,0 +1,5 @@
+Artículo 20.—La DDHO es el área técnica responsable de la administración del BDP que se norma en este Reglamento, y le corresponde:
+a) Definir el procedimiento, metodologías, formularios físicos o electrónicos que permitan la correcta aplicación del BDP, concertados previamente con SIBANPO.
+b) Implementar el sistema de evaluación BDP y realizar revisiones periódicas de las Bitácoras de Seguimiento y Mejora, así como de la documentación que respalda la evaluación de los trabajadores y trabajadoras, a fin de dar validez a la evaluación producto del BDP.
+c) Elaborar y presentar reportes de avance y finales sobre los resultados de las áreas y de los BDP correspondientes, así como el reconocimiento a la productividad a pagar cuando proceda.
+d) Informar a la Dirección de Soporte Financiero sobre los requerimientos presupuestarios para el pago del reconocimiento a la productividad, a fin de que dicha Dirección ejecute las acciones que sean pertinentes para contar oportunamente con el presupuesto correspondiente para el pago del incentivo

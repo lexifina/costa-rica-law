@@ -1,0 +1,4 @@
+Artículo 19.—Cuando el trabajador o trabajadora sea ascendido o trasladado de área se aplicarán los siguientes criterios:
+a) El BDP deberá ser formulado en un plazo no mayor a 15 días hábiles después de formalizado el traslado.
+b) Si el ascenso o el traslado se da después de finalizado el primer semestre, la evaluación del periodo vigente se hará con base en el BDP y la calificación de equipo de la dependencia de procedencia.
+c) En caso de que el ascenso o traslado se dé durante el primer semestre, la nueva jefatura realizará la evaluación. La evaluación del equipo a aplicar en estos casos, es decir, la evaluación del área, será aquella donde el trabajador o trabajadora se ha desempeñado por más tiempo. En caso de que coincida el tiempo laborado en cada área, se aplicará la calificación con el mejor resultado.

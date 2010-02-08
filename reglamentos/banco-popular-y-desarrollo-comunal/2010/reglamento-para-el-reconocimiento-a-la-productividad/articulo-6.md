@@ -1,0 +1,1 @@
+Artículo 6º—El BDP se aplicará a todo trabajador o trabajadora del Banco Popular que: a) Haya completado un total de seis meses de estar laborando para el Banco, b) Que haya laborado de forma ininterrumpida durante el periodo de evaluación o durante los seis meses indicados en el artículo cinco.

@@ -1,0 +1,1 @@
+Artículo 21.—Toda persona evaluada tendrá derecho a que se le suministre copia de todo documento o herramienta que se le aplique durante el periodo de evaluación, incluyendo copia de la Bitácora de Seguimiento y Mejora, los cuales contendrán la firma del evaluador y de la persona evaluada, que servirán de fundamento para las partes en caso de reclamos y apelaciones.
