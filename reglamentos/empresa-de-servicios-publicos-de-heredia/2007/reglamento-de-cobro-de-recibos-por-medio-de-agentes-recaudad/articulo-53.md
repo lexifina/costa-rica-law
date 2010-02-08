@@ -1,1 +1,1 @@
-Artículo 53.—El medio de comunicación que se utilizará para el traslado de datos es un enlace Frame Relay con RACSA (racsa net), o el que ESPH estime conveniente. El agente recaudador es el responsable de la administración y pago de la línea de comunicación conectada entre su local y ESPH.
+Artículo 53.—En caso de que ESPH S. A. optare por realizar la conectividad por medio de un multirecaudador externo, se comunicará al agente recaudador, las condiciones del servicio, comisiones y procedimientos de implementación que conformarán el plan de trabajo respectivo.

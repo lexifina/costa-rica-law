@@ -1,2 +1,1 @@
-Artículo 27.—El agente recaudador velará por la seguridad del dinero que recaude y depositará los montos recaudados el día hábil siguiente de su recepción, en cualquiera de las cuentas corrientes de ESPH en el Sistema Bancario Nacional. Las recaudaciones de los días viernes, sábado y domingos se depositarán el día lunes siguiente.
-La comisión de dichos montos, será pagada de conformidad con el Capítulo Sétimo de El Reglamento.
+Artículo 27.—El agente recaudador velará por la seguridad del dinero que recaude y depositará los montos recaudados al día hábil siguiente de su recepción, en cualesquiera de las cuentas corrientes de la ESPH S. A. en el Sistema Bancario Nacional. La comisión de dichos montos, será pagada de conformidad con el capítulo sétimo del Reglamento.

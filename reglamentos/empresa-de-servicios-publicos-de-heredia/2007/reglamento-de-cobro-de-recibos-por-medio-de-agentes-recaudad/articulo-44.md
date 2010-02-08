@@ -1,6 +1,4 @@
-CAPÍTULO UNDÉCIMO
-Contingencia
-Artículo 44.—Cuando se trate de cajas recaudadoras en que opere el sistema de conectividad, si por alguna razón se cae la comunicación directa con la caja externa, el recaudador está autorizado para actuar según alguna de las siguientes opciones:
-a) Continuar cobrando las facturas en forma manual, y en el momento que se restaurare la comunicación, ingresar la información cobrada manualmente. Bajo responsabilidad del recaudador.
-b) Enviar a las oficinas de ESPH las colillas con la hoja de cobro y la transferencia respectiva, el día hábil siguiente a la suspensión del servicio, bajo responsabilidad del recaudador. En tales circunstancias no se podrá cobrar facturas vencidas.
-c) No cobrar las facturas en tanto no se restablezca la comunicación
+Artículo 44.—Cuando el agente recaudador reciba cheques sin consignar al dorso de los mismos la información indicada en El Reglamento se aplicará:
+a) La primera vez, cobro del 3% de gastos administrativos sobre el importe del cheque.
+b) La segunda vez, lo indicado en el inciso a) y el cierre temporal de la caja por 8 días naturales.
+c) La tercera vez, lo indicado en el inciso a) y el cierre definitivo de la caja, sin ninguna responsabilidad para la ESPH S. A. Este acto autoriza a la ESPH S. A. para llevar a cabo las sanciones administrativas o judiciales pertinentes a efectos de hacer efectivo el monto insoluto. De no ser cancelado por la caja recaudadora, se podrá aplicar la garantía existente.

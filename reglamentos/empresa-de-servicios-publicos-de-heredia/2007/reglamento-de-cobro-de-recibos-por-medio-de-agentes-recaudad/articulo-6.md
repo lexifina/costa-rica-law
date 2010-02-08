@@ -1,1 +1,1 @@
-Artículo 6º—ESPH podrá aceptar o rechazar las ofertas de prestación de servicios de recaudación, tomando en consideración los requisitos exigidos y la conveniencia de sus interese institucionales.
+Artículo 6º—La ESPH S. A., podrá aceptar o rechazar las ofertas de prestación de servicios de recaudación, tomando en consideración los requisitos exigidos y la conveniencia de sus intereses institucionales.

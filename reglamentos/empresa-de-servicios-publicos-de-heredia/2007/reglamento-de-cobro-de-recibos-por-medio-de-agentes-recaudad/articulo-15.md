@@ -1,1 +1,1 @@
-Artículo 15.—Si la Gerencia General aprueba las recomendaciones citadas en el artículo anterior, ésta solicitará a Asuntos Jurídicos el visto bueno del contrato correspondiente y enviará copia de dicha solicitud a Tesorería.
+Artículo 15.—Si la Gerencia General aprueba las recomendaciones citadas en el artículo anterior, ésta solicitará a la Asesoría Jurídica, el visto bueno del contrato correspondiente y enviará copia de dicha solicitud a Tesorería.

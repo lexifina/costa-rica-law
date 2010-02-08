@@ -1,1 +1,1 @@
-Artículo 16.—Asuntos Jurídicos, previo el análisis de los aspectos legales pertinentes , procederá a revisar el contrato de servicios indicado y; paralelamente Tesorería gestionará la formalización de la garantía respectiva.
+Artículo 16.—La Asesoría Jurídica, previo el análisis de los aspectos legales pertinentes, procederá a revisar el contrato de servicios indicado y; paralelamente Tesorería gestionará la formalización de la garantía respectiva.

@@ -1,3 +1,7 @@
-CAPÍTULO 10
-Capacitación
-Artículo 43.—El Agente recaudador está obligado a nombrar las personas encargadas de realizar las funciones de gestión de cobro de facturas por servicios, para que reciban la debida capacitación por parte de ESPH, cuando ésta así se lo solicite. Para tales efectos ESPH le remitirá comunicación escrita indicándole hora y fecha en que se efectuará la capacitación. Por su parte el agente recaudador designará el personal que recibirá la capacitación y mantendrá a disposición de ESPH la lista de los empleados a cuyo cargo está la realización de las funciones de recaudación, para la actualización de la base de datos de ESPH.
+Artículo 43.—Si el Agente Recaudador no cumple con lo dispuesto en los artículos de cobranza, remisión de información y reintegro oportuno de cobros realizados, se le amonestará de la siguiente manera:
+a) Cobro de multa que contemplará el valor de el recibo según su naturaleza y además tendrá que cubrir los gastos administrativos correspondientes a 5 veces el monto mínimo de pago del servicio en cuestión, así como los costos de la reconexión del servicio y mora si éstas se hubiesen producido o la visita fallida realizada por el proveedor encargado, así como los daños y prejuicios ocasionados a terceros si éstos los reclamasen.
+b) La primera y segunda vez se amonestará en forma escrita y se cobrará la multa del inciso a).
+c) La tercera vez se amonestará en forma escrita, el no cobro de las facturas por una semana y se cobrará la multa del inciso a).
+d) La cuarta vez la amonestación será el no cobro de las facturas de la ESPH S. A. por quince días y se cobrará la multa del inciso a).
+e) La quinta vez, resolución del contrato sin responsabilidad alguna para la ESPH S. A.
+Además si no fueran cancelados los montos adeudados, la ESPH S.A., podrá aplicar la garantía existente.

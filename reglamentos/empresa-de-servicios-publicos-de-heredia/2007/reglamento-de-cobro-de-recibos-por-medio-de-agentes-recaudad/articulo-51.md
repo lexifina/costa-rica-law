@@ -1,1 +1,1 @@
-Artículo 51.—El agente recaudador y ESPH, se obligan a realizar el mantenimiento de sus sistemas de información, base de datos, tecnología de información y telecomunicaciones, en horarios que afecten lo menos posible el servicio al cliente. En todos los casos, estas labores serán comunicadas con anticipación y acordadas entre las partes.
+Artículo 51.—ESPH S. A., establecerá con el Agente Recaudador el tipo de conectividad a utilizar, el cual puede ser por medio de un multirecaudador externo: web-service o socket.

@@ -4,4 +4,4 @@ b- Certificación del Registro Público o de Notario Público de su inscripción
 c- Dirección exacta del local donde se prestará el servicio.
 d- Croquis del área disponible para brindar el servicio.
 e- Horario de atención al público.
-f- Declaración jurada que demuestre lo indicado en el inciso c) del artículo 10 de El Reglamento.
+f- Certificación de Contador Público Autorizado que demuestre lo indicado en el artículo 10, inciso b).

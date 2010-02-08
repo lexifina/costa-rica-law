@@ -14,3 +14,4 @@ Reglamento de Cobro de Recibos por medio de Agentes Recaudadores Externos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-10 | la propia norma |
+| 2 | 2010-02-08 | Reglamento 3050 (2010-02-08) |

@@ -1,0 +1,2 @@
+Artículo 58.—Al día hábil siguiente de la recaudación, antes de las doce horas del día, el agente recaudador emitirá y entregará al funcionario que así designe ESPH S. A. un informe electrónico de las transacciones realizadas.
+Si por algún motivo se encontrara diferencia en la recaudación, ESPH S. A. podrá solicitar al agente recaudador un listado con el detalle de los totales de la recaudación, y en los casos que aplique por separado, de cada Agencia o Sucursal.
