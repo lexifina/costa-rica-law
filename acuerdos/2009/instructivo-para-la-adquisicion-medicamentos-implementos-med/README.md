@@ -14,3 +14,4 @@ Instructivo para la Adquisición Medicamentos, Implementos Médicos e Instrument
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-30 | la propia norma |
+| 2 | 2010-02-09 | Acuerdo 0 (2010-02-09) |
