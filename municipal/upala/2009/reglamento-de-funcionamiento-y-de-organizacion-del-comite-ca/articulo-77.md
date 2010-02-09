@@ -1,0 +1,1 @@
+Artículo 77.—Los designados como miembros del Comité Distrital de Deporte y Recreación se reunirán posteriormente y de su seno se integrará el Directorio con su respectivo cargo. Serán juramentados por el delegado del Comité Cantonal de Deportes y Recreación presente.

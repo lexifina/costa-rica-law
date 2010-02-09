@@ -1,0 +1,1 @@
+Artículo 16.—De la juramentación de los miembros del comité cantonal de deportes. El comité cantonal de deportes y recreación, en pleno será juramentado por el concejo municipal, en la primera quincena del mes de diciembre de cada dos años, y asumirán sus cargos, a partir del primero de enero del año siguiente.

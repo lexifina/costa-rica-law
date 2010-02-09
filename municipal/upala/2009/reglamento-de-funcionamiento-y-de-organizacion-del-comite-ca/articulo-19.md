@@ -1,0 +1,1 @@
+Artículo 19.—La Junta Directiva del Comité Cantonal de Deportes y Recreación no devengaran dietas ni remuneración alguna serán nombrados en la primera semana del mes de de Enero que finaliza la gestión del Comité Cantonal vigente. Estará integrada por cinco miembros que durarán en sus cargos dos años, pudiendo ser reelectos, y deberán ser mayores de edad.

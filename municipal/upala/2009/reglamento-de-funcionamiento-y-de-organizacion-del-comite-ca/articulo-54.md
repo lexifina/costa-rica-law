@@ -1,0 +1,14 @@
+Artículo 54.—El Comité Cantonal de Deportes y Recreación implementará las comisiones que considere oportunas.
+CAPÍTULO XI
+Instalaciones deportivas
+Artículo 51.—Por encargo de la Municipalidad, el comité cantonal de Deportes y Recreación será el encargado de velar por la construcción, administración y mantenimiento de los campos deportivos propiedad municipal, así mismo queda autorizado para delegar dichas funciones, en los Comités Comunales o juntas administradoras, quienes deberán darle participación a todos los grupos que representen esa comunidad o al Cantón en torneos, campeonatos, cursos, talleres y todos los servicios que sean coordinados por el Comité Cantonal de Deportes y Recreación. Privilegio especial tendrán las organizaciones de liga menor cuyo requisito, que no les cobren a los niños y niñas, para quienes los administradores, deben fijar las horas de las mañanas como una forma de impulsar el deporte y la recreación. La programación será respetada y se harán ajustes periódicamente según las necesidades.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces los artículos 51)
+Artículo 52.—El Comité Cantonal de Deportes propondrá clasificación de las instalaciones en categorías, de acuerdo con la infraestructura con que cuenta cada una, así mismo ordenará a los usuarios de acuerdo al tipo de actividad que realicen a definir las tarifas por derecho de uso de las instalaciones y el período que abarca dicha cuota. Las tarifas son de uso máximo, obligatorio y no podrán ser alteradas sin previa autorización del Comité Cantonal. Para entrenamientos se cobrará un 50% de la tarifa señalada, los equipos de Liga Menor de la localidad negociarán la cuota por el uso de las instalaciones, esta podrá ser en dinero o en especias. En todo caso el entrenamiento deberá estar bajo la dirección de un monitor o entrenador.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces los artículos 52)
+Artículo 53.—En las instalaciones deportivas tendrán prioridad los grupos de la comunidad reconocidos por el Comité Cantonal. Las actividades organizadas por el Comité Cantonal y el Comité Comunal estarán exentas del pago de tarifas. Los campeonatos o competencias organizadas por organismos nacionales deberán incluirse dentro de la programación anual de uso de instalaciones. Las competencias aficionadas tendrán preferencia sobre las no aficionadas o profesionales.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces los artículos 53)
+Artículo 54.—No será permitido dentro de las instalaciones deportivas o recreativas:
+a) El expendio o venta de bebidas alcohólicas (Ley 5817 del 15/10/65)
+b) La publicidad de bebidas alcohólicas o tabaco.
+c) La utilización de calzado inadecuado para la instalación utilizada.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces los artículos 54)

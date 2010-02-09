@@ -1,0 +1,1 @@
+Artículo 96.—De no aportar las organizaciones deportivas, recreativas y organizaciones comunales sus miembros ante el Concejo Municipal, el Concejo tendrá la potestad de elegir y llenar las vacantes con las personas que muestren interés y cumplan los requisitos correspondientes.

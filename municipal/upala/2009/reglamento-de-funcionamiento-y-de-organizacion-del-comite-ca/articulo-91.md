@@ -1,0 +1,1 @@
+Artículo 91.—El Comité Cantonal de Deportes y Recreación deberá comunicar al ICODER y al Concejo Municipal los nombramientos de los Comités Distritales (comunales), las Juntas Administrativas de Instalaciones y Comités Administradores de instalaciones de centros educativos.

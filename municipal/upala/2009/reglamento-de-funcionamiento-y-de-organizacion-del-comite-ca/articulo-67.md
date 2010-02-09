@@ -1,0 +1,1 @@
+Artículo 67.—Los recursos del comité cantonal, solamente podrán invertirse en obras de interés deportivo y recreativo que se desarrollen dentro de los límites de su Cantón, así como en capacitaciones, promoción y participación de atletas, entrenadores árbitros y dirigentes, quienes deben retribuir la inversión mediante capacitación y entrenamiento.

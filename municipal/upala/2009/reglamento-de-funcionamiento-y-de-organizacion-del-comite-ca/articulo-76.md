@@ -1,0 +1,1 @@
+Artículo 76.—El quórum de la misma debe estar constituido por un número no menor de quince (15) personas presentes, a la hora de la Primera Convocatoria. Se procederá con la segunda convocatoria con la asistencia que se cuente y que no podrá ser menor a los puestos de elección.

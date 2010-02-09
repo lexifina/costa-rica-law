@@ -1,0 +1,1 @@
+Artículo 66.—El comité cantonal de deportes, debe respetar y promover el principio de equidad a la hora de asignar recursos a las diferentes actividades y organizaciones afiliadas, tales como asociaciones deportivas, comités comunales, juegos comunales, juegos regionales, juegos nacionales entre otros.

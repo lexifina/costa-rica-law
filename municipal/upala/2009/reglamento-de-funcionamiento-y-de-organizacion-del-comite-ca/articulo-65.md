@@ -1,0 +1,1 @@
+Artículo 65.—El presupuesto del comité debe ser consecuente con las políticas que dicte el Concejo Municipal, así deberá reflejar las necesidades de las Asociaciones, comités comunales, juegos nacionales, juegos regionales, juegos comunales, en procesos deportivos ( Escuelas deportivas ) o cualquier otra política que dicte el ente superior.

@@ -1,0 +1,1 @@
+Artículo 34.—El quórum para sesionar está integrado por tres miembros. Los acuerdos se tomarán por simple mayoría de votos presentes salvo cuando se estipule en este reglamento un número mayor de votos, en caso de empate en una votación, el asunto se someterá a una segunda votación, en la siguiente sesión ordinaria del comité.

@@ -1,0 +1,1 @@
+Artículo 31.—En la primera sesión posterior a su nombramiento, el Comité Cantonal de Deportes y Recreación, mediante votación secreta, conformará el directorio, que de inmediato asumirán sus funciones que desempeñarán por espacio de dos años. Una vez electa la junta directiva, se leerán las funciones que a cada uno de los miembros de confiere este Reglamento.

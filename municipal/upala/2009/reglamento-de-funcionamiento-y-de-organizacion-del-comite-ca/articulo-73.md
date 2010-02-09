@@ -1,0 +1,1 @@
+Artículo 73.—El nombramiento del Comité Distrital de Deporte y Recreación se llevará a cabo mediante Asamblea Publica de vecinos, convocada y presidida por el personero del Comité Cantonal de Deportes y Recreación.

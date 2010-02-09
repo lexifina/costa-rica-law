@@ -1,0 +1,1 @@
+Artículo 80.—En ausencia de nombramiento, o bien por alguna circunstancia especial de legitimidad o legalidad de funcionamiento del Comité Cantonal de Deportes y Recreación, es facultad de la Municipalidad resolver y asumir estas obligaciones que no vayan en contraposición del presente Reglamento, de las Leyes o Decretos vigentes.

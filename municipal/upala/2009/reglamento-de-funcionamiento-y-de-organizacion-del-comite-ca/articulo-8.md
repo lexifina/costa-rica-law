@@ -1,0 +1,7 @@
+CAPÍTULO II
+Elección de los miembros del comité cantonal
+de deportes y recreación
+Artículo 8º—Definiciones. Para efectos de este reglamento, se emiten las siguientes definiciones:
+Organizaciones deportivas y recreativas. Entiéndase por organizaciones deportivas y recreativas aquellas asociaciones deportivas que se encuentran debidamente inscritas y vigentes ante el Registro de Asociaciones Deportivas del Instituto Costarricense del Deporte y/o el Registro Público, cuya sede y radio de acción sea el cantón de Upala y los Comités Comunales de Deportes Distritales.
+Organizaciones comunales: Se entenderá por organizaciones comunales, las asociaciones de desarrollo integral, las asociaciones de desarrollo específico y asociaciones de bien social, que tengan su radio de acción en el cantón de Upala, y posean cédula jurídica y personería jurídica al día, lo cual debe ser certificado por abogado.
+Comisión observadora: Comisión conformada por el Presidente(a) Municipal, o a quien éste designe para el acto, quien la presidirá; el Alcalde Municipal o a quien éste designe para el acto; el Jefe del Departamento Legal y otro miembro del Concejo Municipal, o a quien éste designe para el acto, y el presidente del Comité Cantonal de Deportes y Recreación, o quién éste designe para el acto, con la finalidad de fiscalizar la asamblea de organizaciones deportivas y recreativas y organizaciones comunales.
