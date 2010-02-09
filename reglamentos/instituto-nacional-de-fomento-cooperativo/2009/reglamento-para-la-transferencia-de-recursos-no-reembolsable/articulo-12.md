@@ -1,0 +1,1 @@
+Artículo 12.—De la transferencia de fondos. Una vez que el Convenio esté debidamente firmado por ambas partes; corresponderá a la Unidad de Administración y Finanzas realizar la transferencia de los fondos aprobados al Organismo Cooperativo, de acuerdo con los Convenios firmados y la solicitud de transferencia de fondos de la Unidad Organizacional.

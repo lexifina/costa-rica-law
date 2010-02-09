@@ -1,0 +1,1 @@
+Artículo 6º—De la unidad organizacional que realizará el estudio técnico. Corresponde a la Dirección Ejecutiva designar y comunicar a la Unidad Organizacional del INFOCOOP los acuerdos tomados por la Junta Directiva, a fin de que prepare el Informe técnico y Convenio para la transferencia de fondos al Organismo Cooperativo competente.

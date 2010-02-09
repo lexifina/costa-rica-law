@@ -1,0 +1,107 @@
+ANEXO Nº 1
+Formulario para solicitar fondos no reembolsables
+FORMULARIO SOLICITUD FONDOS NO REEMBOLSABLES
+PARA TRANSFERENCIAS NO REEMBOLSABLES CON RECURSOS DEL “PROGRAMA DE MEJORAMIENTO ADMINISTRATIVO-FINANCIERO DEL SECTOR COOPERATIVO COSTARRICENSE”
+Número de solicitud: ______ Fecha: _________________
+Entrega para trámite: ________________Recibe para trámite: _______________________________________________________
+DATOS GENERALES
+A. DEL ORGANISMO COOPERATIVO
+1. Siglas: _______________________R.L. Nº Resolución: _______ Fecha inscripción:
+2. Nombre: _________________________, R.L.
+3. Cédula jurídica: _________________ Vence: _________________
+4. Tipo de cooperativa: __________ Clase:_____________________
+5. Mes de Asamblea: _____________ Tipo de asamblea: _________
+6. Dirección Exacta: Provincia: _______ Cantón: ________________ Distrito: _______________
+7. Otras señas:____________________________________________
+_____________________________________________________
+8. Teléfono: __________,__________ Fax: _______________
+Apartado Postal: ___________E mail: ______________________
+9. Sector: _______ Región: ______ Unión Regional: _____________
+10. Asociados: Fundadores: __________ Actuales: ___________ Pleno goce de sus derechos: __________
+11. Composición de base asociativa: Hombres: _______ Mujeres:_______ Discapacitados:_______ Adulto mayor:______ Jóvenes: ______
+12. Breve descripción de la base asociativa:
+________________________________________________________
+________________________________________________________
+________________________________________________________
+Capital social inicial: ¢ _______________ Actual ¢_______________
+13. Política de capitalización:  Si  No
+14. Detalle: ______________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
+15. Organismos cooperativos a los cuales es afiliada: _____________,
+16. Organismos no cooperativos a los cuales es afiliada: ___________,
+B. DEL REPRESENTANTE LEGAL
+17. Nombre:_________________________________________ Cédula: ____________
+18. Dirección Exacta: Provincia: ________ Cantón: ______________ Distrito: _______________
+19. Otras señas:__________________,__________ Fax: __________
+20. Apartado Postal: ____________E mail: _____________________
+INFORMACION DEL PROYECTO O PROGRAMA.
+21. Nombre del Proyecto o programa a desarrollar con apoyo de los recursos del Fondo para la reconversión productiva:
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+Breve descripción del Proyecto o programa a desarrollar con apoyo de los recursos del Fondo del Programa de fondos no reembolsables:
+Problemas a resolver | _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________
+Proceso de reconversión productiva | _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________
+Resumen de actividades a realizar | _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________
+Logros y mejoras esperados | _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________ _____________________________________________________
+Beneficios | __________________________________________________________________________________________________________ _____________________________________________________ __________________________________________________________________________________________________________ _____________________________________________________
+1. Objetivos: (Responder como e de inversión contribuye al plan de Reconversión productiva y Mejoramiento Administrativo de la Cooperativa).
+a. General:
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+b. Específicos:
+1. _________________________________________________
+___________________________________________________
+___________________________________________________
+___________________________________________________
+___________________________________________________
+2. _________________________________________________
+___________________________________________________
+___________________________________________________
+___________________________________________________
+___________________________________________________
+3. _________________________________________________
+___________________________________________________
+___________________________________________________
+2. Antecedentes e historial del programa o proyecto cuando éstos sean plurianuales, o actividad permanente.
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+______________________________________________________
+Resumen general del proyecto o programa y Plan de Inversión:
+[imagen]
+4. Total de beneficiarios que se estima generará el proyecto:
+Directos: ‪ Indirectos: ‪
+Meses que genera trabajo: (Indique el número de trabajo que genera la cooperativa, con y sin proyecto)
+[imagen]
+6. Tipo de beneficiario para los puestos de trabajo que genera el organismo cooperativo:
+[imagen]
+7. Factores de riesgo o críticos de éxito: (Son los factores que pueden afectar el logro de objetivos)
+Proyecto 1.
+FACTOR | DETALLES
+Financiero |
+Actividad / Operativo |
+Mercado |
+Organizacionales |
+22. Breve descripción de la organización administrativa con que se cuenta para desarrollar el Proyecto o Programa.
+______________________________________________________
+______________________________________________________
+NOTA: En aquellos casos en donde al valorar se define que parte de los recursos deben de destinarse al fortalecimiento de los Organismos Cooperativos, el organismo Cooperativo deberá de establecer los mecanismos necesarios para promover dicho fortalecimiento.
+PLAN DE TRABAJO
+23. Detalle el Plan de trabajo para el cumplimiento de los objetivos del programa o proyecto.
+El suscrito declara bajo juramento que la información brindada en este formulario es verdadera, lo cual puede ser verificado en cualquier momento, y acepto que, en caso de comprobarse lo contrario, la solicitud de apoyo de nuestra representada sea suspendida el trámite.
+Nombre: ______________________________________________
+Firma: ___________________________ Cédula: ______________
+Nombre, firma y número de del Representante Legal
+Se instruye a la Dirección Ejecutiva para que proceda con los trámites pertinentes de publicación en el Diario Oficial La Gaceta.
+El texto del referido reglamento se consigna en los folios del Nº 34.173 al Nº 34.189, del archivo de referencia.
+Acuerdo firme”

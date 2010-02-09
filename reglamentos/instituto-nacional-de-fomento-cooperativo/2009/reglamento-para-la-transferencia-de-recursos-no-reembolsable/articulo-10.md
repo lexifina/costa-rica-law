@@ -1,0 +1,1 @@
+Artículo 10.—De la aprobación de los fondos a los organismos cooperativos beneficiarios. Corresponde a la Junta Directiva del INFOCOOP la aprobación de los fondos no reembolsables a los entes cooperativos beneficiarios con base en los Informes técnicos y Convenios remitidos por la Dirección Ejecutiva del INFOCOOP.

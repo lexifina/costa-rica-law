@@ -1,0 +1,1 @@
+Artículo 11.—Del cumplimiento de las condiciones previas. Corresponde a la Unidad Organizacional revisar el cumplimiento de las condiciones previas a la Formalización del Convenio y preparar el convenio con la firma del organismo cooperativo beneficiario; seguidamente deberá ser remitido a la Dirección Ejecutiva para su respectiva firma.

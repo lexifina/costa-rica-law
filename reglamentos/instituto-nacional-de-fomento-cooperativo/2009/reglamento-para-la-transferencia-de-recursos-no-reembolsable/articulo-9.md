@@ -1,0 +1,4 @@
+Artículo 9º—Del envío a la junta directiva de los informes tecnicos y convenios.
+a)Cuando la Unidad organizacional tiene listo el estudio técnico y la propuesta del Convenio, lo remite a la Dirección Ejecutiva, con copia a la Auditoría Interna, Asesoría Legal y Subdirección Ejecutiva; para las posibles observaciones que tuvieren las mismas.
+b) La Unidad Organizacional recibe las observaciones y realiza los ajustes, posteriormente envía a la Dirección Ejecutiva con copia a la Auditoría Interna, Asesoría Legal y Subdirección Ejecutiva.
+c) Corresponde a la Dirección Ejecutiva del INFOCOOP de acuerdo con las disponibilidades presupuestarias y los Informes técnicos preparados por la Unidad Organizacional, presentar ante la Junta Directiva la documentación necesaria para que se conozca y resuelva sobre la transferencia de los fondos del Programa a los organismos cooperativos.
