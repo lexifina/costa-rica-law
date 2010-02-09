@@ -1,0 +1,14 @@
+Artículo 5º—Disposiciones comunes que deben observase en el trámite de formulación, aprobación y ejecución de las modificaciones presupuestarias. El procedimiento de formulación, aprobación y ejecución de cualquier tipo de modificación presupuestaria regulado en este reglamento, deberá sujetarse a las siguientes reglas:
+1. Las modificaciones de cualquier tipo se formularán respetando la estructura presupuestaria y el clasificador de gastos establecida por la Contraloría y se presentará según corresponda, a nivel de programa, partida, grupo y subgrupo.
+2. Los traslados de asignaciones presupuestarias entre programas, así como el rebajo o aumento de éstos, deberán vincularse cuando corresponda, con los objetivos y metas establecidos. En tales casos, la modificación deberá acompañarse del ajuste respectivo al plan operativo anual de la Municipalidad.
+3. Toda modificación deberá indicar, al menos sucintamente la razón que la justifica y deberá reflejar claramente los rubros presupuestarios afectados ya sea por aumento o disminución.
+4. Las modificaciones presupuestarias deberán ser presentadas al Concejo Municipal y deberán ser aprobadas previo dictamen de comisión, salvo expresa exención de ese trámite, el los términos previstos por el Código Municipal.
+5. Todas las modificaciones presupuestarias, deberá trascribirse íntegramente en el acta de correspondiente a la sesión en que fue aprobada.
+6. Las modificaciones presupuestarias que sean improbadas por el Concejo Municipal por razones formales, podrán ser presentadas nuevamente a su conocimiento, por medio de un nuevo documento en el que hayan sido corregidas las causas de su rechazo o improbación.
+7. De toda modificación presupuestaria se levantará un expediente que estará bajo custodia del Subproceso de Contabilidad, en el que se incluirá el documento respectivo junto con el acuerdo un acta de aprobación respectiva.
+8. Toda modificación presupuestaria deberá ser numerada independientemente según su tipo, en forma consecutiva, iniciando con el número uno seguido del año correspondiente.
+9. La aplicación de fondos que por ley tienen destino específico, sólo podrá modificarse para cubrir gastos contemplados dentro del destino previsto por la ley.
+10. No podrán rebajarse los montos asignados para hacer frente a compromisos legales o contractuales, salvo que se acredite que éstos ya han sido atendidos.
+11. Las modificaciones presupuestarias de cualquier tipo, sólo podrán efectuarse cuando los programas, proyectos, partidas o subpartidas que se rebajen, tengan el contenido presupuestario necesario.
+12. No se podrán efectuar modificaciones presupuestarias para aumentar partidas o subpartidas, con el fin de dar contenido o cubrir gastos ya ejecutados.
+13. No podrá ejecutarse ninguna modificación presupuestaria, si previamente ésta no ha sido aprobada por el órgano competente, según las disposiciones de este reglamento.
