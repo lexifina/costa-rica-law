@@ -15,3 +15,4 @@ Reglamento Autónomo de Trabajo
 | --- | --- | --- |
 | 1 | 2001-09-28 | la propia norma |
 | 2 | 2005-09-14 | Reglamento 2444 (2006-05-17) |
+| 3 | 2010-02-09 | Reglamento 2771 (2010-02-09) |
