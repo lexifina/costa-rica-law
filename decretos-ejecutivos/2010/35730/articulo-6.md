@@ -1,0 +1,1 @@
+Artículo 6º—Para los efectos de este decreto se considerarán “de mayor representatividad” a las organizaciones sindicales o gremiales del Sector Público, debidamente inscritas, con su personería vigente y que tengan afiliadas al mayor número de personas físicas, situación que se verificará cada vez que se requiera nombrar el representante.

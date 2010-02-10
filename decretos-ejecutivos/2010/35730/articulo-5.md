@@ -1,0 +1,5 @@
+Artículo 5º—Los (as) representantes propietarios (as) o suplentes (as) de las organizaciones sindicales y magisteriales o gremiales de los (as) empleados (as) del sector público serán:
+a) Un (a) representante, elegido (a) de manera directa y permanente, por cada una de las Confederaciones Sindicales, debidamente inscritas en el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social y cuyas personerías jurídicas se encuentren vigentes al momento de la integración y durante el periodo de su nombramiento.
+b) Un (a) representante elegido (a) de manera directa y permanente por la Asociación Nacional de Educadores (ANDE).
+c) Un (a) representante elegido (a) de manera directa y permanente por la Asociación de Profesores de Segunda Enseñanza (APSE).
+d) Un (a) representante elegido(a) de manera directa entre las cinco organizaciones sindicales más representativas de los Funcionarios del Sector Público, que no estén incorporados en las Confederaciones Sindicales, el cual será elegido(a) por un periodo de dos años, pudiendo ser reelecto.

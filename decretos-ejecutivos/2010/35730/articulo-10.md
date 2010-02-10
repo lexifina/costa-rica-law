@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión Negociadora de Salarios del Sector Público se reunirá ordinariamente dos veces por semestre y extraordinariamente cuando la convoque el Coordinador a solicitud de uno de los sectores. El coordinador deberá convocar a sesión dentro de los diez días hábiles siguientes de recibida la solicitud.

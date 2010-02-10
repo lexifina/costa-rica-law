@@ -1,0 +1,1 @@
+Artículo 13.—La Comisión Negociadora de Salarios del Sector Público contará con el apoyo de una Secretaría Técnica designada por el Ministerio de Trabajo y Seguridad Social y será la encargada de levantar actas de las sesiones de la Comisión y demás funciones que se le designen.

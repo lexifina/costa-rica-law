@@ -1,0 +1,1 @@
+Artículo 8º—Los Representantes de las Organizaciones Sindicales y Magisteriales podrán ser cesados de sus cargos, cuando las confederaciones o Sindicatos que los designaron les retiren la representación.
