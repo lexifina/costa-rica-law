@@ -1,3 +1,2 @@
-Artículo 9º—El Departamento de Recursos Humanos ajustará de oficio el monto por concepto de zonaje, de conformidad con los montos que establezca la Contraloría General de la República, según lo dispuesto en el artículo 3º del “Reglamento Para el Pago de Zonaje a los Servidores de la Administración Pública” Decreto Ejecutivo Nº 90-S. C., del 13 de diciembre de 1965 y sus reformas.
-Las acciones de personal que contemplen dichos ajustes deberán ser previamente aprobadas por la Dirección General de Servicio Civil, de conformidad con los mecanismos establecidos al efecto.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 32379 del 20 de abril del 2005)
+Artículo 9º—Así derogado por el artículo 1° del decreto ejecutivo N° 32379 del 20 de abril del 2004)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 35842 del 10 de febrero de 2010, que lo traspasó del anterior artículo 8° al 9° actual).

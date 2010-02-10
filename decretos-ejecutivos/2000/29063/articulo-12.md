@@ -1,2 +1,11 @@
-Artículo 12.—Si un servidor que disfruta de zonaje se traslada a prestar servicios en lugar distinto a aquel en que realiza su trabajo habitual, por un período no mayor de treinta días, tendrá derecho al pago de los viáticos respectivos.
-Si el traslado es temporal, por un lapso mayor al indicado, se le reconocerá el zonaje correspondiente a esa nueva zona o lugar.
+Artículo 12.—Cuando lo considere conveniente para el mejor servicio público y a fin de lograr mayor seguridad para sus activos, de conformidad con lo consignado en el artículo 9 de la Ley de Salarios de la Administración Pública, el Ministerio de Trabajo y Seguridad Social, previo acuerdo con el propietario del inmueble, podrá autorizar el alojamiento en los inmuebles que arrienda, a los funcionarios (as) que se desempeñan en el mismo lugar o circunscripción territorial en que estén ubicados dichos inmuebles.
+En tales casos, la Administración Superior a través de la Comisión de Zonaje del Ministerio, establecerá por escrito las reglas de ocupación, a saber:
+a) La Comisión determinará el espacio para la oficina, la cual bajo ninguna circunstancia se puede modificar, excepto cuando la administración lo considere necesario.
+b) Cuando se disfrute de este beneficio, queda absolutamente prohibido ingerir dentro del inmueble bebidas alcohólicas, drogas o sustancias psicotrópicas de uso no autorizado.
+c) En el recinto no se permitirá reuniones que violenten la paz y tranquilidad de los alrededores,
+d) Cuando exista un cambio en las condiciones que dieron origen al presente beneficio y el (los) funcionario (s) (as) desee cambiar de estatus deberá comunicarlo a su jefe inmediato, para la debida autorización, de forma inmediata so pena de que se ordene un procedimiento administrativo en su contra.
+e) La casa o departamento debe mantenerse en perfectas condiciones de cuidado, higiene y limpieza, tanto internas como externas, por cuenta del (los) (las) funcionario (os) (as).
+f) Los daños ocasionados por negligencia imprudencia o descuido del funcionario (os), correrán por cuenta del mismo.
+g) La autorización para ocupar el espacio en el inmueble, sea para habitar o para la atención al público no creará ningún derecho para el servidor (es), pudiendo la administración revocar la medida por razones de conveniencia y oportunidad tales como: aumento de número de funcionarios designados a la Regional, remodelaciones necesarias, caso fortuito o fuerza mayor.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35842 del 10 de febrero de 2010)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 35842 del 10 de febrero de 2010, que lo traspasó del anterior artículo 11 al 12 actual).
