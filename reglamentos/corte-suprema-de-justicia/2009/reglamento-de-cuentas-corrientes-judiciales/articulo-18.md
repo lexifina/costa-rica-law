@@ -1,0 +1,1 @@
+Artículo 18.—Depósitos activos. Las constancias de depósitos activas, en poder del despacho y de las oficinas administrativas, se custodiarán en un archivo que se deberá llevar para estos efectos, con las medidas de seguridad necesarias y de manera que se facilite su pronta localización.

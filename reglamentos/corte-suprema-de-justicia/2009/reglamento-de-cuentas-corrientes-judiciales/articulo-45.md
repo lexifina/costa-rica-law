@@ -1,0 +1,1 @@
+Artículo 45.—Asientos de ajuste. Cuando sea necesario, después de constatar su procedencia, -con ajuste a la técnica contable- el encargado de la conciliación elaborará los asientos de diario respectivos, a fin de ajustar el saldo del libro de caja o tesorería, sea éste físico o electrónico debidamente autorizado - o del registro de la cuenta, con el saldo del banco.

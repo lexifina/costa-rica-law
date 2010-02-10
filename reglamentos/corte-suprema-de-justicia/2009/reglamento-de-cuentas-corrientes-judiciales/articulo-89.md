@@ -1,0 +1,1 @@
+Artículo 89.—Trámite de pago de intereses. Los intereses citados en el artículo anterior, se cancelarán previa solicitud de las partes interesadas ante el despacho judicial correspondiente, quien emitirá la resolución judicial respectiva y la correspondiente orden para la confección de cheque o Transferencia Electrónica de Fondos (TEF).

@@ -1,0 +1,13 @@
+Artículo 8º—Jefe del Subproceso de Ingresos. El jefe del Subproceso de Ingresos, tendrá las siguientes funciones:
+a. Establecer los mecanismos de control que garanticen que los depósitos judiciales, sean cancelados una sola vez, de forma que no produzcan sobregiros en las cuentas corrientes judiciales.
+b. Velar porque se cumpla con lo dispuesto en el artículo 24 de este Reglamento, en relación con la autenticidad de los depósitos judiciales.
+c. Establecer mecanismos de coordinación y comunicación eficientes con las autoridades administrativas del Banco, de forma que la ínter actuación entre ambas instituciones sea fluida y efectiva.
+d. Establecer los mecanismos y procedimientos eficaces y seguros para la custodia y archivo de los depósitos judiciales, que faciliten su pronta localización y la información que respecto de ellos interesa.
+e. Velar porque se documente, agregando la respectiva constancia o boleta de depósito judicial, las órdenes de giro y las copias de los cheques.
+f. Recibir, verificar y dar la conformidad de recibido al banco, respecto de las constancias o boletas de depósito que éste le remite.
+g. Mantener en custodia y perfecto archivo, las constancias o boletas de los depósitos judiciales, que permanecen activos. Asimismo, establecer un consecutivo numérico estricto de los cheques girados contra las cuentas corrientes judiciales junto con los documentos soporte y de respaldo.
+h. Rehabilitar las constancias de los depósitos judiciales, cuando los cheques girados contra ellas fueren anulados.
+i. A solicitud del titular del despacho judicial, certificar las boletas de depósito judicial, que este no haya recibido por parte del banco. El juzgado o tribunal agotará todos los medios a su alcance para determinar que la boleta de interés no se encuentra en ese despacho, y que con anterioridad no ha sido girada.
+j. Propiciar en todo momento el traslado, con carácter devolutivo, a la cuenta corriente judicial “Procesos abandonados”, los depósitos judiciales pertenecientes a juicios en abandono o fenecidos con al menos tres meses sin impulso procesal, correspondientes a las Oficinas Judiciales del Primer Circuito Judicial de San José y su Periferia. Para ello previamente establecerá la coordinación con el despacho judicial pertinente y la revisión respectiva de los depósitos.
+k. Establecer los procedimientos de control interno que garanticen el correcto resguardo y custodia de la copia de los cheques entregados y en donde consta el recibido del beneficiario, sea esta mediante firma autógrafa o huella digital.
+l. Cualquier otra en lo que a su competencia funcional corresponda.

@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Del proceso de pensiones alimentarias
+Artículo 81.—Auto que ordena girar. Tratándose de procesos de pensión alimentaria, las autoridades judiciales emitirán una resolución judicial en que se ordene el pago sucesivo de los depósitos, a efecto de que por cada depósito (s) judicial (es) que se reciba, se confeccione de inmediato el cheque, sin que medie solicitud de parte.
+Se debe dejar establecido en las sentencias de pensiones alimenticias, la obligación de pagar el “Salario Escolar”, según las circunstancias y si el obligado lo percibe, con indicación del porcentaje que deba entregarse, del mismo modo que se hace con el aguinaldo. También se debe advertir en la sentencia judicial, la aplicación futura y sin gestión de parte, de lo dispuesto en el artículo 58 de la Ley de Pensiones Alimenticias, que regula el reajuste semestral de la obligación alimentaria conforme se decreten los aumentos salariales por el Gobierno de la República.

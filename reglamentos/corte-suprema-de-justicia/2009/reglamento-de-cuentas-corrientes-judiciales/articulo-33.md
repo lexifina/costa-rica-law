@@ -1,0 +1,1 @@
+Artículo 33.—Facultad. Únicamente el jefe o titular del despacho judicial que conoce la causa y a cuyo nombre se encuentra el o los depósitos, está autorizado para ordenar girar contra la cuenta corriente judicial respectiva.

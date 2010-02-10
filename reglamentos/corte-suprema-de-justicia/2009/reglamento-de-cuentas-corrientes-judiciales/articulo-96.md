@@ -1,0 +1,1 @@
+Artículo 96.—Derogaciones. Se deroga el Reglamento de Cuentas Corrientes Judiciales aprobado por la Corte Plena en sesión celebrada el dieciocho de junio del año dos mil uno, Artículo LX, y sus reformas, así como cualquier otra disposición que se le oponga.

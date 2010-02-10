@@ -1,0 +1,1 @@
+Artículo 46.—Informes y evaluación. A más tardar el último día del mes siguiente al período conciliado, las oficinas encargadas de la elaboración de los estados de conciliación deberán enviar en forma física o electrónica el original y los anexos al Departamento Financiero Contable, Administraciones Regionales, según corresponda.

@@ -1,0 +1,3 @@
+Artículo 68.—Emisión. Únicamente podrá confeccionarse cheques contra una resolución judicial u orden de giro válidamente emitida por los funcionarios autorizados, y con cargo a específicas boletas de depósitos correctamente determinadas y pertenecientes al proceso o causa en la que se ordena girar.
+Con excepción de las pensiones alimentarias, los cheques los ordenará emitir el despacho judicial únicamente a solicitud de los interesados y cuando haya ingresado la boleta de depósito del banco.
+En los casos de pensiones alimentarias, una vez hecha la primera resolución que ordena girar, en lo sucesivo, para todo depósito que se reciba deberá confeccionarse de inmediato el cheque, sin que medie solicitud de parte.

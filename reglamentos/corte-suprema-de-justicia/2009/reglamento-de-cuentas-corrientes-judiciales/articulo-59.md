@@ -1,0 +1,1 @@
+Artículo 59.—Coordinación. Corresponde al Departamento Financiero Contable y a las Administraciones Regionales, mantener la relación de coordinación en la materia con las autoridades bancarias que atienden el sistema de cuentas corrientes judiciales, lo mismo que atender las consultas y asuntos que planteen los despachos judiciales.

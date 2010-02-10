@@ -1,0 +1,1 @@
+Artículo 32.—Archivo. Dentro del expediente del proceso y debidamente foliado deberá conservarse el original de la resolución judicial que ordena girar, tal y como ocurre con toda actuación del despacho judicial.

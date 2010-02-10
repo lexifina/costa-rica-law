@@ -1,0 +1,1 @@
+Artículo 24.—Inconsistencias y errores. En aquellos depósitos que difiera el nombre de la dependencia y el número de cuenta corriente judicial, el Departamento Financiero Contable o las Administraciones Regionales, según corresponda, gestionará ante el banco, previo estudio al respecto, el traspaso correspondiente.

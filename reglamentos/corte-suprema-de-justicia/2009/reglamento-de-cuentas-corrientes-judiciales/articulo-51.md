@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del control de sumas embargadas
+Artículo 51.—Hasta completar suma determinada. Cuando dentro de un proceso, un despacho judicial ordene el embargo de sumas de dinero hasta completar una determinada cantidad, corresponde que ésta misma Autoridad lleve un control del saldo por embargar y de las sumas giradas. Este control permitirá levantar los efectos de la ejecución del embargo y hacer cesar en tiempo las retenciones a salarios y los tractos sucesivos. Para los fines de este control se utilizará un formulario especialmente diseñado que será deber del titular del despacho judicial velar porque se mantenga siempre dentro del expediente.
