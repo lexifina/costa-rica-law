@@ -1,0 +1,1 @@
+Transitorio segundo. Las auditorías internas deben continuar enviando sus planes de trabajo anual y las respectivas modificaciones, en la forma y plazo como lo han venido haciendo a la fecha de emisión de estas normas. Lo anterior se mantendrá hasta que la División de Fiscalización Operativa y Evaluativa determine las regulaciones adicionales correspondientes.

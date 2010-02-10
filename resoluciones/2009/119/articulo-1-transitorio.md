@@ -1,0 +1,1 @@
+Transitorio primero. Durante el período de ajuste para la implementación, establecido en el artículo V anterior, se mantendrán en aplicación el “Manual de normas para el ejercicio de la auditoría interna en el Sector Público” y los demás cuerpos normativos derogados por esta resolución.

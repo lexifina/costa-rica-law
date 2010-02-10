@@ -1,0 +1,1 @@
+V.—Informar que las auditorías internas contarán con un período máximo improrrogable de un año a partir de la entrada en vigencia de esta normativa para realizar los ajustes necesarios a fin de incorporarla en su gestión.
