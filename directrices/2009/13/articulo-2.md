@@ -1,0 +1,1 @@
+2º—Transitorio Único: Todos los ixodicidas de uso en bovinos, inscritos en la Dirección de Medicamentos Veterinarios deberán aplicar y pasar la prueba de eficacia realizada en el LANASEVE como requisito para su Renovación de Registro.
