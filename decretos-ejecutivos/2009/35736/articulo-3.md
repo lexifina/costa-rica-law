@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese los Decretos Ejecutivos Nº 34428-S de 3 de marzo del 2008 publicado en La Gaceta Nº 65 de 3 de abril del 2008 y Nº 34576-S de 26 de mayo del 2008 publicado en La Gaceta Nº 121 de 24 de junio del 2008.
