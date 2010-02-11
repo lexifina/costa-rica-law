@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Controles
+El Ministerio de Educación Pública, en ejercicio de sus potestades de inspección, vigilará la necesidad y la pertinencia del estímulo estatal, para cuyo efecto contará con amplias facultades para evaluar en forma constante y permanente el cumplimiento de los propósitos que dieron origen a su otorgamiento. Con base en los resultados, hará las prevenciones correspondientes u ordenará la apertura del procedimiento conducente a la revocación del estímulo.
