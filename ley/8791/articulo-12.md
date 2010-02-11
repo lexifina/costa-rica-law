@@ -1,0 +1,8 @@
+ARTÍCULO 12.- Procedimiento para comprobar el incumplimiento
+El procedimiento especial de comprobación de incumplimiento se desarrollará de la siguiente forma:
+a) Dará inicio por denuncia de cualquier interesado, o bien, de oficio por parte del Ministerio de Educación Pública, mediante la integración de un órgano director del procedimiento que hará el jerarca.
+b) El órgano director, en un plazo que no excederá de quince días hábiles siguientes a su conformación, desarrollará la investigación preliminar correspondiente.
+c) Cuando el órgano director determine la existencia de mérito suficiente para continuar el procedimiento, citará al representante legal de la entidad u organización correspondiente a una audiencia oral y privada, oportunidad en la que se recibirá e incorporará la prueba pertinente.
+d) La citación a la audiencia oral y privada deberá hacerse por lo menos con quince días de anticipación, contendrá expresa indicación del asunto y referencia inequívoca de la prueba acopiada por el órgano director.
+e) Terminada la comparecencia, el asunto quedará listo para el dictado del acto final que emitirá el jerarca; para este efecto, el órgano director le remitirá el expediente conformado, con un informe relativo a los hechos que estime como demostrados.
+f) El acto final deberá emitirlo el jerarca dentro de los ocho días hábiles siguientes al recibo del expediente. Cuando el acto implique la revocación del estímulo estatal no regirá antes de la finalización del respectivo curso escolar, pero deberá comunicarse a la institución y a los padres y madres de familia por lo menos treinta días antes al inicio del período de matrícula de las instituciones educativas estatales.
