@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Aplicación del estímulo
+En caso de aprobarse el estímulo estatal, el Ministerio de Educación Pública asumirá, en forma directa, la remuneración del personal que determine. La remuneración se ajustará a la escala salarial del personal que labora para el sector público, de conformidad con el grupo profesional que ostente. La remuneración deberá depositarse en forma directa en las respectivas cuentas bancadas individuales de cada trabajador.
+En ningún caso se remunerarán lecciones que no correspondan al plan oficial de estudios, las cuales deberán ser asumidas por la organización beneficiaria.
