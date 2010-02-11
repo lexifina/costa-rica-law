@@ -1,6 +1,8 @@
 A LAS AUTORIDADES JUDICIALES, INSTITUCIONES,
 ABOGADOS Y PÚBLICO EN GENERAL
 SE LES HACE SABER QUE:
+(Nota de Sinalevi: El Consejo Superior del Poder Judicial aprobó la nueva Tabla de honorarios por servicios médicos forenses, especialidades médicas y tabla de tarifas médicas por honorarios que regirá a partir del 1° de marzo de 2011, y publicada en el Boletín Judicial N° 16 del 23 de enero de 2012)
+(Nota de Sinalevi: La Dirección Ejecutiva del Poder Judicial aprobó una nueva Actualización anual de tablas de Tarifas Médicas por honorarios, Tarifas de honorarios por Servicios Médicos Forenses y Especialidades Médicas, honorarios de Peritos y honorarios para Ejecutores, publicada en el Boletín Judicial N° 42 del 1 de marzo de 2011)
 El Consejo Superior en sesión celebrada el 3 de setiembre de 2009, artículo LIII dispuso que la Dirección Ejecutiva proceda actualizar anualmente las diferentes tablas de honorarios. Por lo anterior, a partir del 1º de enero del 2010, regirá la siguiente tabla de honorarios de Peritos:
 TABLA ACTUALIZADA DE TARIFAS MÉDICAS POR HONORARIOS
 Inciso | Montos actuales ¢ | Porcentaje de actualización (9,14%) ¢ | Montos actuales ¢ (Redondeado a la unidad inferior próxima)
@@ -28,24 +30,25 @@ Radiografía de columna lumbosacra | Hasta 10.800,00 | Hasta 11.787,12 | Hasta 1
 Ultrasonido | Hasta 24.400,00 | Hasta 26.630,16 | Hasta 26.600,00
 Antropología Forense | 136.700,00 | 149.194,38 | 149.100,00
 Publíquese dos veces más en el Boletín Judicial.
-(*)El Consejo Superior en sesión celebrada el 3 de setiembre de 2009, artículo LIII dispuso que la Dirección Ejecutiva proceda actualizar anualmente las diferentes tablas de honorarios. Por lo anterior, a partir del 1° de enero del 2010, regirá la siguiente tabla de honorarios de Peritos:
-TABLA ACTUALIZADA DE HONORARIOS DE PERITOS
-| MONTO ACTUALES ¢ | PORCENTAJE DE ACTUALIZACIÓN (9.14%) | | HONORARIOS ACTUALIZADOS ¢ | MONTOS ACTUALIZADOS ¢ (REDONDEADO A LA UNIDAD INFERIOR PRÓXIMA)
-| Hasta ¢545.600,00 | Hasta ¢595.467.84 | 5% máx. | 29.774.89 | 29.700.00
-Sobre Exceso | Hasta ¢ 818.400,00 | Hasta ¢893.201.76 | 4% máx. | 41.684.25 | 41.600.00
-Sobre Exceso | Hasta ¢1.091.200,00 | Hasta ¢1.190.935.68 | 3% máx. | 50.616.27 | 50.600.00
-Sobre Exceso | Hasta ¢1.364.000,00 | Hasta ¢1.488.669.60 | 2% máx. | 56.570.95 | 56.500.00
-Sobre Exceso | Hasta ¢2.728.000,00 | Hasta ¢2.977.339.20 | 1% máx. | 71.457.65 | 71.400.00
-Sobre Exceso | Hasta ¢6.820.000,00 | Hasta ¢7.444.348.00 | 0,75% máx. | 104.960.22 | 104.900.00
-Sobre Exceso | Hasta ¢13.640.000,00 | Hasta ¢14.886.696.00 | 0,50% máx. | 142.171.96 | 142.100.00
-Sobre Exceso | Hasta ¢34.100.000,00 | Hasta ¢37.216.740.00 | 0,25% máx. | 197.997.07 | 197.900.00
-Sobre Exceso | Hasta ¢68.200.000,00 | Hasta ¢74.433.480.00 | 0,20% máx. | 272.430.55 | 272.400.00
-Sobre Exceso | Hasta ¢102.300.000,00 | Hasta ¢111.650.220.00 | 0,15% máx. | 328.255.66 | 328.200.00
-Sobre Exceso | Hasta ¢136.400.000,00 | Hasta ¢148.866.960.00 | 0,10% máx. | 365.472.40 | 365.400.00
-Sobre Exceso | | | 0,05% | Que representan ¢5.347.76 por cada ¢5 millones adicionales | Que representan ¢5.300.00 por cada ¢5 millones
-(*)(Nota de Sinalevi: La Dirección Ejecutiva del Poder Judicial, mediante publicación efectuada en el Boletín Judicial N° 16 del 25 de enero de 2010, informa que por un error en la publicación de la Tabla de Honorarios de Peritos, la misma se vuelve a publicar.)
+El Consejo Superior en sesión celebrada el 3 de setiembre de 2009, artículo LIII dispuso que la Dirección Ejecutiva proceda actualizar anualmente las diferentes tablas de honorarios. Por lo anterior, a partir del 1° de enero del 2010, regirá la siguiente tabla de honorarios de Peritos:
+(*) TABLA ACTUALIZADA DE HONORARIOS DE PERITOS
+| Monto actuales ¢ | | Honorarios actuales | Porcentaje de actualización (9,14%) | Montos actualizados ¢ (redondeado a la unidad inferior próxima)
+| Hasta ¢545.600,00 | 5% máx. | 39.400,00 | 43.001,16 | 43.000,00
+Sobre exceso | Hasta ¢ 818.400,00 | 4% máx. | 55.200,00 | 60.245,28 | 60.200,00
+Sobre exceso | Hasta ¢1.091.200,00 | 3% máx. | 67.100,00 | 73.232,94 | 73.200,00
+Sobre exceso | Hasta ¢1.364.000,00 | 2% máx. | 75.000,00 | 81.855,00 | 81.800,00
+Sobre exceso | Hasta ¢2.728.000,00 | 1% máx. | 94.700,00 | 103.355,58 | 103.300,00
+Sobre exceso | Hasta ¢6.820.000,00 | 0,75% máx. | 139.100,00 | 151.813,74 | 151.800,00
+Sobre exceso | Hasta ¢13.640.000,00 | 0,50% máx. | 188.400,00 | 205.619,79 | 205.600,00
+Sobre exceso | Hasta ¢34.100.000,00 | 0,25% máx. | 263.500,00 | 287.583,90 | 287.500,00
+Sobre exceso | Hasta ¢68.200.000,00 | 0,20% máx. | 361.100,00 | 394.104,54 | 394.100,00
+Sobre exceso | Hasta ¢102.300.000,00 | 0,15% máx. | 436.200,00 | 476.068,68 | 476.000,00
+Sobre exceso | Hasta ¢136.400.000,00 | 0,10% máx. | 485.500,00 | 529.874,70 | 529.800,00
+Sobre exceso | | 0,05% | Que representan ¢4.900,00 por cada ¢5 millones adicionales | Que representan ¢5.347,86 por cada ¢5 millones | Que representan ¢5.300,00 por cada ¢5 millones
+(*) (Así reformada y publicada por un error de publicación la anterior tabla de Honorarios de Períto, efectuada en el Boletín Judicial N° 29 del 11 de febrero de 2010.)
 Publíquese dos veces más en el Boletín Judicial.
 El Consejo Superior en sesión celebrada el 3 de setiembre de 2009, artículo LIII dispuso que la Dirección Ejecutiva proceda actualizar anualmente las diferentes tablas de honorarios. Por lo anterior, a partir del 1º de enero del 2010, regirá la siguiente tabla de honorarios de Peritos:
+(Nota de Sinalevi: El Consejo Superior del Poder Judicial aprobó una nueva Tabla de honorarios para ejecutores que regirá a partir del 1° de enero de 2012, publicada en el Boletín Judicial N° 16 del 23 de enero de 2012)
 TABLA ACTUALIZADA DE HONORARIOS RARA EJECUTORES
 Detalle | Montos actuales ¢ | Porcentaje de actualización (9,14%) ¢ | Montos actualizados ¢ (Redondeado a la unidad inferior próxima)
 Embargos hasta ¢ 100.000,00 de capital, más el porcentaje de Ley. | 5.300,00 | 5.784,42 | 5.700,00

@@ -13,3 +13,4 @@ Comunica actualización anual de tablas de Tarifas Médicas por honorarios, Tari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
+| 2 | 2010-02-11 | Acuerdo 0 (2010-02-11) |
