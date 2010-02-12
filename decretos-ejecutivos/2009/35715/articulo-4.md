@@ -1,0 +1,1 @@
+Artículo 4º—Servicios Complementarios. Estos serán reconocidos cuando por las funciones inherentes al cargo del funcionario lo justifiquen, para lo cual quien autoriza la asignación deberá hacer un estudio previo que determine si procede o no su asignación, y además cuáles de estos servicios complementarios deben de reconocerse a cada funcionario en concreto.

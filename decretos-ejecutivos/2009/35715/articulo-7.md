@@ -1,0 +1,1 @@
+Artículo 7º—Tarifas a reconocer. Dado que el teléfono celular es asignado única y exclusivamente para funciones propias del SENASA, se reconocerá a todos los funcionarios el pago del cien por ciento de la facturación.

@@ -1,0 +1,2 @@
+Artículo 3º—Funcionarios responsables de asignar los servicios celulares propiedad del SENASA. Tanto el Director General como el Subdirector del SENASA, en forma individual y en ejercicio del cargo que ostentan, serán los responsables de la asignación; así mismo estará facultado el Director Administrativo Financiero, para realizarla por delegación.
+En el caso de la firma del Convenio para asignación de servicio celular propiedad del SENASA al Director General y/o al Subdirector, uno de ellos deberá firmar a nombre del Servicio y el otro como funcionario de la Institución.

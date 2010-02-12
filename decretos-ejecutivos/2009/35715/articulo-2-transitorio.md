@@ -1,0 +1,1 @@
+Transitorio II.—Se reconoce el pago de un 75% de la facturación telefónica móvil al Director y al Subdirector General del SENASA, sobre sus respectivas líneas telefónicas particulares, hasta tanto no les sea debidamente asignado el servicio celular al que hace mención el presente reglamento.

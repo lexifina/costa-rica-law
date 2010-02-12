@@ -1,0 +1,1 @@
+Artículo 11º—Retiro del servicio celular. El uso del teléfono celular propiedad del SENASA, no crea derechos, por lo tanto, el Servicio Nacional de Salud Animal puede retirar su asignación en cualquier momento, ya sea por la necesidad Institucional, incumplimiento de este Reglamento, limitaciones presupuestarias o cualquier otra razón que el Servicio determine.

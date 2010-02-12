@@ -1,0 +1,1 @@
+Artículo 14.—Uso del teléfono celular en vacaciones o incapacidad. Se prohíbe el uso del teléfono celular propiedad del Servicio, cuando el funcionario se encuentre en vacaciones o incapacitado y se superen los cinco días hábiles. En este caso, se depositará el aparato telefónico y accesorios en la Dirección Administrativa Financiera del SENASA para su custodia temporal.
