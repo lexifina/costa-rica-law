@@ -1,0 +1,1 @@
+Artículo 22.—Una vez presentada completa la solicitud anterior ante la Municipalidad con todos los requisitos, la administración tendrá treinta días naturales para emitir la resolución final a la gestión de la licencia. El interesado contará con la posibilidad de impugnar esta resolución, mediante los recursos previstos en el Código Municipal.

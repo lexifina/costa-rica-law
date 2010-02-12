@@ -1,0 +1,15 @@
+Artículo 4º—Para los efectos de la presente normativa se adoptan las siguientes definiciones:
+1. Ampliación y modificación de la estructura: Cualquier cambio al proyecto autorizado por la municipalidad.
+2. Bienes de Dominio público: Son aquellos que por voluntad expresa del legislador, tienen un destino especial de servir a la comunidad, al interés público.
+3. Canon por utilización de espacio público de administración municipal: De conformidad con el Artículo 79, de la Ley 7593 “Ley de la Autoridad Reguladora de los Servicios Públicos”, es el monto a cancelar por la utilización de los espacios públicos municipales.
+4. Federación Metropolitana de Municipalidades de San José (FEMETROM): Es la asociación de municipalidades a la que se encuentre afiliada la municipalidad.
+5. Licencias Municipales: Autorización expedida por la Municipalidad para la construcción instalación, ampliación y/o modificación de las estructuras, e infraestructura y o explotación comercial de las estructuras para telecomunicaciones, previo pago correspondiente.
+De Construcción: Es la otorgada para la instalación de las obras constructivas de telecomunicaciones.
+De Explotación comercial: Es la otorgada para la explotación comercial de las obras constructivas de telecomunicaciones y los servicios prestados por las mismas.
+6. Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET): Ente rector del sector público de telecomunicaciones, creado mediante el Artículo 38, de la Ley 8660, encargado de otorgar las concesiones en telecomunicaciones conforme al mandato constitucional del Artículo 121, y cuyas funciones están establecidas en el Artículo 39, de dicha ley.
+7. Operador: Persona física o jurídica, pública o privada, que explota redes de telecomunicaciones con la debida concesión o autorización, las cuáles podrán prestar o no servicios de telecomunicaciones disponibles público en general.
+8. Patente comercial: Impuesto a pagar por la realización y explotación de una actividad comercial, industrial o de servicios dentro de la jurisdicción del cantón, de conformidad con la ley de patentes vigente y su reglamento.
+9. Proveedor: Persona física o jurídica, pública o privada, que proporciona servicios de telecomunicaciones disponibles al público sobre una red de telecomunicaciones con la debida concesión o autorización, según corresponda.
+10. Proveedor de infraestructura: Es aquel intermediario, persona física o jurídica ajeno a la figura del concesionario, proveedor u operador que regula la ley, que solamente colocará el poste/torre o estructura que cuente con la debida licencia municipal.
+11. Superintendencia de Telecomunicaciones (SUTEL): La Sutel es el órgano de desconcentración máxima adscrito a la Autoridad Reguladora de los Servicios Públicos, que le corresponde regular, aplicar, vigilar y controlar el ordenamiento jurídico de las telecomunicaciones, cuyas funciones están establecidas en los Artículos 60 y 73, de la ley 7593.
+12. Torre, o poste y/o estructura: Elemento estructural soportante que sirven para satisfacer los requerimientos de instalación de antenas, soporte de cableado, iluminación pública, entre otros.

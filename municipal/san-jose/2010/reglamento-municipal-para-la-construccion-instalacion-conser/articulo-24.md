@@ -1,0 +1,1 @@
+Artículo 24.—El Concejo municipal podrá incorporar a este reglamento las reformas que se ajusten a sus necesidades. La reforma que se proponga se comunicará a la Federación de Municipalidades a la que se encuentre afiliada, con el propósito de que el resto de municipalidades valoren la posibilidad de adoptarla regionalmente.
