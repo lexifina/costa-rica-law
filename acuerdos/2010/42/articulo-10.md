@@ -1,0 +1,1 @@
+Artículo 10.—No se autorizará la descarga, comercialización ni exportación de recursos hidrobiológicos, cuya captura provenga de embarcaciones que se encuentren en listas de embarcaciones que realizan pesca ilegal, no declarada, no reglamentada.

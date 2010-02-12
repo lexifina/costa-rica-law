@@ -1,0 +1,1 @@
+Transitorio segundo.—Los formularios a utilizar citados en la presente regulación, serán puestos a disposición de los interesados en la Oficina del Departamento de Protección y Registro, en las oficinas regionales del INCOPESCA ubicadas en todo el país y en el CENADA.

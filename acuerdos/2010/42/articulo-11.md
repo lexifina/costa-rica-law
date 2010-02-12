@@ -1,0 +1,1 @@
+Artículo 11.—Para efecto de lo anterior se utilizará como única fuente de verificación, los listados oficiales generados por las Organizaciones Regionales de Ordenamiento Pesquero, de la Unión Europea, la Organización de las Naciones Unidas para la Agricultura y la Alimentación, o de cualquier Estado que cuente con listas oficiales de pesca INDNR.

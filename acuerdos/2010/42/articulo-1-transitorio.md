@@ -1,0 +1,1 @@
+Transitorio primero.—En el tanto el INCOPESCA no defina el costo del Certificado de Captura, se aplicará la tarifa establecida mediante el Acuerdo N° AJDIP/293-2009, publicado en el Diario Oficial La Gaceta Nº 226 del 20/11/2009, vigente para el año 2010, en el rubro denominado Certificación (otros tipos).

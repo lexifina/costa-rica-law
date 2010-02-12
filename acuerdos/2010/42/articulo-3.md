@@ -1,0 +1,1 @@
+Artículo 3º—Los formularios correspondientes al Certificado de Captura podrán ser solicitados por los interesados en el Departamento de Protección y Registro o en las Oficinas Regionales del INCOPESCA.

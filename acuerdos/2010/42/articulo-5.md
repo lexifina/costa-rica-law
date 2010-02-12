@@ -1,0 +1,1 @@
+Artículo 5º—Para efectos de la emisión del Certificado de Captura, el INCOPESCA se fundamentará en la descarga de aquellos recursos hidrobiológicos que hayan sido previamente inspeccionados, en cuyo caso los interesados deberán sujetarse a los procedimientos de solicitud de inspección establecidos por el Instituto.

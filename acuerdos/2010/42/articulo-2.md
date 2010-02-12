@@ -1,0 +1,1 @@
+Artículo 2º—Todo producto pesquero desembarcado por embarcaciones de bandera costarricense, deberán solicitar el Certificado de Captura para efectos de comercialización al mercado de la Unión Europea o cualquier otro mercado de destino que lo requiera.
