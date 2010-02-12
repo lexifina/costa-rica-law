@@ -1,0 +1,11 @@
+La Junta Directiva del Banco Central de Costa Rica en los numerales del 1 al 4, artículo 5 del acta de la sesión 5451-2010, celebrada el 10 de febrero del 2010,
+considerando que:
+a. El Banco Central de Costa Rica está en el proceso de migrar hacia un esquema monetario basado en metas de inflación, con el propósito de alcanzar una tasa de inflación baja y estable, similar a la de los principales socios comerciales de Costa Rica,
+b. En dicho esquema, la tasa de interés vigente en el mercado interbancario a corto plazo constituye el principal mecanismo de transmisión de la política monetaria y el Banco Central debe estar en capacidad de afectarla, mediante la fijación de la Tasa de Política Monetaria (TPM) y sus intervenciones en dicho mercado,
+c. Es necesario separar la administración de las operaciones de deuda del Banco Central de sus operaciones para el afinamiento de la política monetaria y dotar al mercado de instrumentos para el manejo de la liquidez de corto plazo (1, 7 y 14 días) en el Mercado Integrado de Liquidez (MIL).
+d. La alta concentración de recursos por parte de los intermediarios financieros en depósitos a un plazo entre 0 y 269 días, en la ventanilla de Central Directo, dificulta la adecuada gestión de las operaciones para el afinamiento de la política monetaria,
+e. En el artículo 10 del acta de la sesión 5426-2009, del 10 de junio del 2009, esta Junta Directiva dispuso que las personas jurídicas que se dedican a la intermediación financiera y que deben constituir una reserva de liquidez, deberán mantenerla en instrumentos del Banco Central de Costa Rica, incluyendo los ofrecidos en la ventanilla de Central Directo,
+f. El Banco Central de Costa Rica, en ejercicio de sus potestades legales como Autoridad Monetaria, puede definir límites de aplicación general en los montos mínimos o máximos que pueden colocarse en Central Directo,
+g. Dados los rezagos con que actúa la política monetaria, se requiere seguir actuando para consolidar la convergencia de los precios internos hacia el objetivo inflacionario,
+resolvió en firme:
+1.Dejar sin efecto lo dispuesto por esta Junta Directiva en los artículos 5 del acta de la sesión 5381-2008, del 11 de junio del 2008 y 12 del acta de la sesión 5387-2008, celebrada el 16 de julio del 2008.
