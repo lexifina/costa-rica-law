@@ -1,0 +1,14 @@
+REGISTRO NACIONAL
+REGLAMENTO SOBRE USO DE SISTEMA BANCOBCR EMPRESAS
+POR PARTE DE LOS USUARIOS DEL REGISTRO NACIONAL
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Con fundamento en el Acuerdo Firme J377 tomado por la Junta Administrativa del Registro Nacional, en la sesión ordinaria N° 29-2009 celebrada el día dieciséis de julio de dos mil nueve, y a la Aprobación Interna N° 063-2009 del once de agosto de dos mil nueve del Departamento de Asesoría Jurídica en la que se aprueba el Contrato para el Uso del Sistema Banco BCR Empresas y al contrato suscrito con el Banco de Costa Rica, emite el presente “REGLAMENTO SOBRE USO DE SISTEMA BANCOBCR EMPRESAS POR PARTE DE LOS USUARIOS DEL REGISTRO NACIONAL”.
+Artículo 1º—Se definirá como “Sistema Bancobcr Empresas” aquel servicio que brinda el Banco de Costa Rica a la Junta Administrativa del Registro Nacional, al canal transaccional en Internet por medio del cual el Banco permite a sus clientes empresariales realizar entres otros servicios, consultas, pagos, inversiones, reporte de cheques y transferencia de fondos, por medios electrónicos, que consta de siete módulos.
+a) Módulo uno “Administración” consiste en la estructuración de todas las reglas del negocio bajo las cuales operará el Registro Nacional: Datos del Registro Nacional, Operadores, Cuentas, Cuentas de Otros Bancos, Conjunto Permisos de Cuentas, Conjunto Permisos de Grupos de Cuentas, Esquemas de Firma, Desbloqueo.
+b) Módulo dos “Personalización” dentro de la opción de personalización el usuario encontrara la opción de “Datos Personales” y “Cambio de Clave”.
+c) Módulo tres “Cuentas” dentro de la opción de cuentas el usuario del sistema podrá realizar transacciones de consulta de información general, consulta de saldos, movimientos de la cuenta, valores en tránsito entre otros.
+d) Módulo cuatro “Transferencias” este módulo Transferencias posee un menú horizontal que está compuesto por los ítems: Confección Transferencias BCR, Confección Transferencias a Otros Bancos, Autorización, Listado de Transferencias.
+e) Módulo cinco “Programación de Transferencias” la programación de transferencias es una modalidad que posee BCR Empresarial mediante la cual el usuario del Registro Nacional podrá programar transferencias a futuro, de manera tal que podrá decidir si la transacción se sigue efectuando según los parámetros que él mismo establezca con fecha y hora específicas.
+f) Módulo seis “Cheques” la opción de cheques en BANCO BCR EMPRESARIAL esta enfocada a la consulta que realicen los usuarios autorizados del Registro Nacional del estado de los cheques emitidos y al servicio de reporte que deseen hacer de los mismos.
+g) Módulo siete “Tipo de Cambio” mediante la opción de tipo de cambio los usuarios del Registro Nacional podrán ejecutar consultas del tipo de cambio vigente de compra y venta de dólares así como un histórico de tipo de cambio.

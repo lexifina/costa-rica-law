@@ -1,0 +1,1 @@
+Artículo 8º—Los encargados de realizar las confirmaciones de las transferencias, serán responsables de la correcta operación de estos fondos, ante la Junta Administrativa del Registro Nacional. Estos funcionarios no tienen acceso al Registro de las transferencias.
