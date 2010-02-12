@@ -1,0 +1,1 @@
+Artículo 3º—El SENASA dará el mantenimiento necesario, pudiendo realizar las mejoras y los cambios que se requieran y que sean necesarios para optimizar el uso de dicho predio, reconociendo que las mejoras realizadas no serán objeto de reclamo pasando a integrar este bien patrimonial del MAG, así mismo, como realizar la contratación de la seguridad de la finca.

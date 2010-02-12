@@ -1,0 +1,1 @@
+Artículo 2º—El Director General del SENASA queda autorizado por este medio para realizar cualesquiera acción administrativa o judicial que sea necesaria a fin de restituir y recuperar la posesión de la totalidad de la finca y excluir de la misma a todo precarista que ocupe dicho predio.

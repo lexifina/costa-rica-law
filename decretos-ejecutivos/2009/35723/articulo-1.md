@@ -1,0 +1,16 @@
+Nº 35723-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, la Ley Nº 8495 del 6 de abril del 2006, Ley General del Servicio Nacional de Salud Animal; y
+Considerando:
+1º—Que el Ministerio de Agricultura y Ganadería (MAG) es usufructuario de las Fincas del Partido de Cartago con Matrícula número 120180-000, 120181-000 y 120182-000 ubicadas en el Fierro de El Alto de Ochomogo, Provincia de Cartago, según consta en Plano Catastrado número C-803279-89 y conocidas como la Finca del Alto, y en la cual se encuentra ubicado el Centro de Inseminación Artificial, el Centro de Capacitación Dr. Edwin Pérez Chaverri, ambos del Servicio Nacional de Salud Animal (SENASA) y el Centro de Comunicación para Desarrollo (CENCODD), los laboratorios de suelos y forrajes, ambos del INTA.
+2º—Que en dichas fincas existe una instalación que consiste en un edificio administrativo donde tiene asiento la Dirección Regional Metropolitana del SENASA y el CENCOOD del INTA, al norte del Centro de Capacitación del SENASA, Dr. Edwin Pérez Chaverri.
+3º—Que en los actuales programas que el MAG se encuentra implementando, dichas instalaciones no están siendo contempladas y por ello permanecen sin un formal mantenimiento, lo que constituye una grave pérdida para el Sector Agropecuario y el país en general.
+4º—Que en la finca se han identificado invasores en precario, un alto deterioro de cercas perimetrales y otros problemas de seguridad y mantenimiento.
+5º—Que el MAG, a través del SENASA y el Servicio Fitosanitario del Estado (SFE) están desarrollando con la Unión Europea el “Programa de Apoyo al Cumplimiento de Medidas Sanitarias y Fitosanitarias, CRIS/2007/019-740” de gran prioridad para el país y que como contrapartida nacional existe el compromiso de dotar a su Unidad Ejecutora de una sede administrativa.
+6º—Que siendo imperioso encontrar soluciones inmediatas a los problemas antes citados y teniendo conocimiento que las edificaciones antes descritas están subutilizadas y tampoco cuentan con el mantenimiento debido y por ello se encuentran en proceso de deterioro y las mismas pueden ser habilitadas y con ello solucionar el problema de espacio del “Programa de Apoyo al Cumplimiento de Medidas Sanitarias y Fitosanitarias, CRIS/2007/019-740”. Por tanto,
+Decretan:
+OTORGAR EN ADMINISTRACIÓN LA FINCA DEL ALTO
+DE OCHOMOGO AL SERVICIO NACIONAL
+DE SALUD ANIMAL (SENASA)
+Artículo 1º—Se otorga al SENASA a título de préstamo gratuito y sin ningún tipo de restricción o limitación la administración sobre la totalidad de las fincas del Partido de Cartago con Matrícula número 120180-000, 120181-000 y 120182-000, ubicadas en el Fierro de El Alto de Ochomogo, Provincia de Cartago según consta en Plano Catastrado número C-803279-89 y conocida como El Alto con todas sus instalaciones y edificaciones, con el fin de que el SENASA ubique ahí oficinas y administre el inmueble como buen padre de familia.
