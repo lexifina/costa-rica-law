@@ -1,1 +1,0 @@
-Articulo 33. —Cuando un abogado justifique que tiene imposibilidad para dirigir alguna gestión de cobro que le haya sido asignada, deberá hacerlo por escrito con la respectiva explicación a fin de que se analice la situación y se le sustituya. Este caso será reasignado de acuerdo con el respectivo.

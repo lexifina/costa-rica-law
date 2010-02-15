@@ -1,1 +1,0 @@
-Articulo 28.—El abogado director podrá realizar arreglos de pago debidamente autorizados por la Sección de Cobro Administrativo y Judicial, Dirección Financiera o por el Alcalde Municipal. La Institución establecerá las directrices que se deben observar en es[os casos.

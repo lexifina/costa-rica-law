@@ -1,1 +1,0 @@
-Articulo 36.— La Auditoria Municipal debe presentar un informe trimestral que contenga el estado de lodos los juicios que lleva la Municipalidad y verificar el cumplimiento del rol de adjudicación a juicios o casos.

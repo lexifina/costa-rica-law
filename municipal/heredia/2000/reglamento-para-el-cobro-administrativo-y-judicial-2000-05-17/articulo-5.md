@@ -1,1 +1,0 @@
-Articulo 5°—El cobro administrativo comprenderá las acciones que se realicen administrativamente para normalizar las cuentas morosas, tales como avisos en periódicos, votantes, perifoneo, cartas, etc. a conveniencia de la Municipalidad.

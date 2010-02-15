@@ -1,1 +1,0 @@
-Artículo 25.—Todo pago de impuestos, mullas e intereses lo realizará el contribuyente ante la oficina de cobro de la Municipalidad y le entregará una copia del recibo al ahogado director del proceso judicial a efecto de que sea suspendido el juicio respectivo.

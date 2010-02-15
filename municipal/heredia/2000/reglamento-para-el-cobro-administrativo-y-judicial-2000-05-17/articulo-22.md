@@ -1,1 +1,0 @@
-Articulo 22.— El abogado deberá excusarse de atender la dirección de un juicio, cuando tuviere vinculo de parentesco o incluso de amistad, lo cual comunicara por escrito a la oficina correspondiente dentro de las cuarenta v ocho horas siguientes al recibo de la documentación de cobro.

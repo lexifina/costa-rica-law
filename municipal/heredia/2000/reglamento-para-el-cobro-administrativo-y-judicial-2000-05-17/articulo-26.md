@@ -1,2 +1,0 @@
-Articulo 26. —Los abogados deberán iniciar los trámites judiciales a más tardar dentro de los cinco días posteriores al recibo del caso. Cada tres meses y durante los primeros ocho días de los meses de enero, abril, julio y octubre de cada año deberán presentar un informe del estado de los procesos a su cargo, y su cumplimiento lo hará acreedor de la suspensión del rol de entrega de casos hasta la efectiva entrega del informe omitido.
-Cuando esto suceda por tres veces, la Municipalidad podrá dar por terminado el contrato.
