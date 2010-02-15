@@ -1,4 +1,6 @@
+(Suspendida)
 DGT-26-09.—Dirección General de Tributación, a las once horas veinte minutos del día dieciocho de setiembre del dos mil nueve.
+(Nota de Sinalevi: Mediante el artículo 1° de la resolución N° DGT-06-2010 del 15 de febrero de 2010, se suspende en forma temporal los efectos contemplados en esta resolución. De conformidad con lo anterior y de acuerdo con el artículo 3° de la referida resolución la Dirección General de Tributación, mediante resolución razonada de alcance general, determinará la eficacia de esta resolución)
 Considerando:
 1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria para dictar normas generales tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
 2º—Que el artículo 105 del Código de Normas y Procedimientos tributarios establece que toda persona física o jurídica, pública o privada, estará obligada a proporcionar a la Administración Tributaria, la información de trascendencia tributaria, deducida de sus relaciones económicas, financieras y profesionales con otras personas.
