@@ -14,3 +14,4 @@ Reforma Resolución N° DGT-13-09 del 17 de setiembre de 2009 "Uso Obligatorio d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-01 | la propia norma |
+| 2 | 2010-02-15 | Resolución 6 (2010-02-15) |
