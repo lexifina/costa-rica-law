@@ -14,3 +14,4 @@ DGT: Obligatoriedad Formulario D.161 Declaración Cajas Registradoras(Se Aplicar
 | --- | --- | --- |
 | 1 | 2000-06-28 | la propia norma |
 | 2 | 2009-09-17 | Resolución 13 (2009-09-17) |
+| 3 | 2010-02-15 | Resolución 6 (2010-02-15) |
