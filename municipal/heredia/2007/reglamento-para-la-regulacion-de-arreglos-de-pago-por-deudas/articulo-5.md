@@ -1,1 +1,0 @@
-Artículo 5º—Monto mínimo para realizar arreglos de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas correspondan como mínimo a un salario base establecido en el Artículo 2 de la Ley Nº 7337 de 5 de mayo de 1993.
