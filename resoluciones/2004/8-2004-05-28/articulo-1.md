@@ -1,6 +1,5 @@
-(Derogado)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
-(Derogada por el artículo N° 15 de la resolución N° 13 del 17 de setiembre de 2009 "Uso Obligatorio de los Servicios Electrónicos de Tributación Digital en lo que respecta al suministro de información de trascendencia tributaria")
+(Nota de Sinalevi: La resolución N° 13 del 17 de setiembre de 2009, que derogó esta resolución fue suspendida en forma temporal por el artículo 1° de la resolución N° 06 del 15 de febrero de 2010. De conformidad con lo anterior y de acuerdo al artículo 2° de la resolución N° 06 del 15 de febrero de 2010, se restablece la obligatoriedad de esta resolución)
 N° 08.—San José, a las ocho horas del veintiocho de mayo del dos mil cuatro.
 Considerando:
 1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales tendientes a lograr la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
