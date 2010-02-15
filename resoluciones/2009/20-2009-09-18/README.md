@@ -14,3 +14,4 @@ Establece modelo de formulario electrónico D-159 "Declaración anual de donacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-01 | la propia norma |
+| 2 | 2010-02-15 | Resolución 6 (2010-02-15) |
