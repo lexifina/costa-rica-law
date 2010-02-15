@@ -1,4 +1,6 @@
+(Suspendida)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Nota de Sinalevi: Mediante el artículo 1° de la resolución N° DGT-06-2010 del 15 de febrero de 2010, se suspende en forma temporal los efectos contemplados en esta resolución. De conformidad con lo anterior y de acuerdo con el artículo 3° de la referida resolución la Dirección General de Tributación, mediante resolución razonada de alcance general, determinará la eficacia de esta resolución)
 Nº DGT-13-09.—Dirección General de Tributación.—San José, a las quince horas treinta minutos del diecisiete de setiembre del dos mil nueve.
 Considerando:
 1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales para la correcta aplicación de las leyes tributarias dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
