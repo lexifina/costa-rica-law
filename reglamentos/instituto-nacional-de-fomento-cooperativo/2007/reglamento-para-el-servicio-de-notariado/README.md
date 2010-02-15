@@ -14,3 +14,4 @@ Reglamento para el Servicio de Notariado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-14 | la propia norma |
+| 2 | 2010-02-15 | Reglamento 3772 (2010-02-15) |
