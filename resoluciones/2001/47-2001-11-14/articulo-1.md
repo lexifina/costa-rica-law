@@ -1,6 +1,5 @@
-(Derogado)
 HACIENDA
-(Derogada por el artículo N° 15 de la resolución N° 13 del 17 de setiembre de 2009 "Uso Obligatorio de los Servicios Electrónicos de Tributación Digital en lo que respecta al suministro de información de trascendencia tributaria")
+(Nota de Sinalevi: La resolución N° 13 del 17 de setiembre de 2009, que derogó esta resolución fue suspendida en forma temporal por el artículo 1° de la resolución N° 06 del 15 de febrero de 2010. De conformidad con lo anterior y de acuerdo al artículo 2° de la resolución N° 06 del 15 de febrero de 2010, se restablece la obligatoriedad en la presentación de los formularios contemplados en esta resolución)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
 No 47.—San José, a las ocho horas del día catorce de noviembre del dos mil uno.
 Considerando:
