@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE ADUANAS
+(Nota de Sinalevi: Mediante el punto 4° de la resolución Res-DGA-057 del 16 de febrero de 2010, se deja sin efecto esta resolución, únicamente en lo correspondiente a los lineamientos procedimentales para el uso del precinto electrónico, manteniéndose incólume la aplicación del Precinto Electrónico en las aduanas en las que se ha ordenado este mecanismo de seguridad, así como las fechas establecidas para ello)
 Res-DGA-615.—San José, a las quince horas con cincuenta minutos del diecinueve de octubre del dos mil cinco.
 Considerando:
 I.—Que mediante resolución RES-DGA-512-05 de las catorce horas con treinta minutos del veintinueve de setiembre del dos mil cinco, se reguló la obligación del transportista aduanero que efectué operaciones en la Aduana Central, utilizar el precinto electrónico en el ciento por ciento (100%) de las unidades de transporte que tengan como fin el traslado de mercancías hacia del Depósito Libre Comercial de Golfito.

@@ -14,3 +14,4 @@ Aplicar en todas las aduanas, el mecanismo de seguridad y control denominado "Ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-03 | la propia norma |
+| 2 | 2010-02-16 | Resolución 57 (2010-02-16) |
