@@ -47,3 +47,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 32 | 2010-01-11 | Resolución 7 (2010-01-11) |
 | 33 | 2010-01-11 | Resolución 9 (2010-01-11) |
 | 34 | 2010-02-01 | Resolución 32 (2010-02-01) |
+| 35 | 2010-02-16 | Resolución 57 (2010-02-16) |
