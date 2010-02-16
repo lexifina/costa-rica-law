@@ -14,3 +14,4 @@ Reforma Obligación del Transportista Aduanero que Opera en la Aduana de Caldera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-04-25 | la propia norma |
+| 2 | 2010-02-16 | Resolución 57 (2010-02-16) |
