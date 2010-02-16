@@ -1,0 +1,1 @@
+Transitorio Segundo.—Durante los primeros seis meses de implementación del presente decreto habrá un acompañamiento en los procesos de contratación por parte de la Proveeduría Institucional del Ministerio de Agricultura y Ganadería hacia la Proveeduría Institucional del Servicio Fitosanitario del Estado, aunque la responsabilidad propiamente es del SFE.
