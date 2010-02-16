@@ -1,0 +1,9 @@
+CIRCULAR N° 026-2010
+Asunto: Reiteración de la circular N° 157-2004, publicada en el Boletín Judicial N° 232 del 26 de noviembre de 2004, sobre el uso de teléfono celular por parte de los servidores judiciales en horas laborales. Disposiciones sobre el uso del teléfono celular mientras se atiende al público en despachos judiciales.
+A TODOS LOS SERVIDORES DEL PODER JUDICIAL
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión N° 04-10, celebrada el 14 de enero de este año, artículo LXXIV, acordó reiterar a los Jueces Coordinadores y Jefes de Oficina, su deber de velar por el cumplimiento de la circular N° 157-2004, publicada en el Boletín Judicial N° 232 del 26 de noviembre de 2004, sobre el uso racional del teléfono celular por parte de los servidores judiciales en horas de oficina, que al efecto indica:
+“El Consejo Superior, en sesión N° 79-2004, celebrada el 14 de octubre de 2004, artículo LXIX, dispuso comunicarles que si bien no se ha prohibido el uso del teléfono celular durante las horas de trabajo, este debe ser moderado y en los casos estrictamente necesarios -con mayor razón tratándose de los empleados encargados de atender al usuario-, lo anterior con el fin de mantener el buen servicio público.
+Asimismo, se les hace saber a los jefes de los despachos judiciales, que están en la obligación de controlar el uso racional de ese aparato por parte de sus subalternos, y en caso de abuso aplicar el régimen disciplinario.”
+También se les recuerda que en sesión N° 15-09 del 19 de febrero del 2009, artículo XXXVIII, se dispuso que los servidores deben abstenerse de contestar llamadas en su teléfono celular mientras se atiende público, por cuanto esto interfiere en la prestación adecuada del servicio; sin perjuicio de que en casos de urgencia, tomen las medidas que resulten prudentes para ello.
+San José, 16 de febrero de 2010.
