@@ -1,6 +1,6 @@
 # Ley de Contratación Administrativa
 
-Ley N° 7494 del 1995-05-02. SINALEVI, ficha 24284: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=24284&param2=75407&param3=1>.
+Ley N° 7494 del 1995-05-02. SINALEVI, ficha 24284: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=24284&param2=79623&param3=1>.
 
 Publicada en La Gaceta N° 110 del 1995-06-08.
 
@@ -26,3 +26,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 16 de 40 | 2008-03-03 | Resolución 7 (2008-02-15) | 2008-02-15 |
 | 17 de 40 | 2009-04-30 | Ley 8701 | 2009-01-13 |
 | 18 de 40 | 2009-04-30 | Resolución 10 (2009-01-27) | 2009-01-27 |
+| 19 de 40 | 2010-02-17 | Resolución 27 (2010-02-09) | 2010-02-09 |
