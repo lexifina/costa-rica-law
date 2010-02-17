@@ -14,3 +14,4 @@ Establece montos máximos y mínimos para el Bono Familiar de Vivienda en cada u
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-18 | la propia norma |
+| 2 | 2010-02-17 | Acuerdo 7 (2010-02-17) |

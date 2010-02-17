@@ -1,4 +1,5 @@
 BANCO HIPOTECARIO DE LA VIVIENDA
+(Nota de Sinalevi: El Banco Hipotecario de la Vivienda aprobó un nuevo acuerdo N° 1 Establece montos máximos y mínimos para el Bono Familiar de Vivienda en cada uno de sus programas de financiamiento , en la sesión 44-2011 del 16 de junio del 2011)
 (Nota de Sinalevi: Sobre este tema El Banco Hipotecario de la Vivienda había emitido anteriormente el acuerdo N° 2 Montos máximos y mínimos para el Bono Familiar de Vivienda en cada uno de sus programas de financiamiento en la sesión N° 01 de fecha 7 de enero de 2009)
 JUNTA DIRECTIVA
 La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 04-2010, artículo 2, del 13 de enero del año en curso, tomó el acuerdo Nº 1, que indica lo siguiente:
@@ -26,9 +27,10 @@ Bono ABC-Vivienda Vertical
 - Hasta estrato 4,0 4.488.000,00 No se aplica
 Bono RAMT
 - Ordinario 5.300.000,00 1.325.000,00
-- Minusvalía 7.950.000,00 3.337.000,00
-- Adulto Mayor 7.950.000,00 3.337.000,00
+* - Minusvalía 5.300.000,00 1.325.000,00
+* - Adulto Mayor 5.300.000,00 1.325.000,00
 - Muro Retención 3.590.000,00 1.325.000,00
+* (Así reformado los casos anteriores del Bono RAMT mediante sesión N° 14-2010, tomado en acuerdo N° 7 del 17 de febrero de 2010)
 Bono CBA
 - Hasta estrato 1,5 5.300.000,00 No se aplica
 - Hasta estrato 2,0 4.638.000,00 No se aplica
