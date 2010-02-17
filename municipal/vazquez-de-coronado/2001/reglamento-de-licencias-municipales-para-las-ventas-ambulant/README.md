@@ -16,3 +16,4 @@ Reglamento de Licencias Municipales para las Ventas Ambulantes y Estacionarias d
 | 1 | 2001-08-30 | la propia norma |
 | 2 | 2007-06-04 | Reglamento municipal 58 (2007-06-04) |
 | 3 | 2007-11-05 | Reglamento municipal 80 (2007-11-05) |
+| 4 | 2010-02-17 | SINALEVI (sin norma nombrada) |
