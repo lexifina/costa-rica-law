@@ -1,6 +1,6 @@
 # Patentes para ventas ambulantes y estacionarias en las vías públicas
 
-Ley N° 6587 del 1981-07-30. SINALEVI, ficha 2483: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2483&param2=2639&param3=1>.
+Ley N° 6587 del 1981-07-30. SINALEVI, ficha 2483: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2483&param2=81509&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1981-07-30 | Ley 6587 | 1981-07-30 |
 | 2 de 3 | 1981-07-30 | SINALEVI | 1981-07-30 |
+| 3 de 3 | 2010-02-17 | Sala Constitucional, resolución 3298 (2010-02-17) | 2010-02-17 |
