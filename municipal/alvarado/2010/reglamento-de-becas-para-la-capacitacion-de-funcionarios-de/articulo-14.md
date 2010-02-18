@@ -1,0 +1,1 @@
+Artículo 14.—No será incumplimiento del contrato por parte del becario, el abandono de sus estudios, por causa de salud, lo cual deberá hacer constar con certificación médica de la Caja Costarricense del Seguro Social, constancia que presentará en LA OFICINA O COMISIÓN

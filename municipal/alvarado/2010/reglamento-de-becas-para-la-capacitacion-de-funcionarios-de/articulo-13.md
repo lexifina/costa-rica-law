@@ -1,0 +1,1 @@
+Artículo 13.—El becario que por causa imputable a él, haya incumplido alguna de las obligaciones establecidas en el presente reglamento, no podrá volver a disfrutar de cualquier beca o subsidio durante dos años.
