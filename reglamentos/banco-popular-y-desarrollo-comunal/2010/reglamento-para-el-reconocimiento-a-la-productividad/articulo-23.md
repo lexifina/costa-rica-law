@@ -1,0 +1,2 @@
+Artículo 23.—Para los niveles gerenciales y de jefaturas (titulares subordinados), el reconocimiento de incentivos económicos por productividad será a través directrices gerenciales establecidas por la Gerencia General Corporativa para los niveles de jefaturas subordinadas y por la Junta Directiva Nacional para los niveles gerenciales.
+(Así adicionado mediante sesión N° 4732 del 18 de febrero de 2010)

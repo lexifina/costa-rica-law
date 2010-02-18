@@ -1,1 +1,2 @@
-Artículo 2º—Las normas de este Reglamento deberán aplicarse para todos los trabajadores y las trabajadoras que presten servicios en forma permanente y bajo cualquier tipo de contratación laboral en el Banco Popular y de Desarrollo Comunal, según el artículo 1 de la IV Reforma a la III Convención Colectiva de Trabajo, con las excepciones que se establecen en la misma Convención y en este Reglamento.
+Artículo 2º—Las normas de este Reglamento deberán aplicarse para todos los trabajadores y las trabajadoras que presten servicios en forma permanente y bajo cualquier tipo de relación de empleo en el Banco Popular y de Desarrollo Comunal.
+(Así reformado mediante sesión N° 4732 del 18 de febrero de 2010)

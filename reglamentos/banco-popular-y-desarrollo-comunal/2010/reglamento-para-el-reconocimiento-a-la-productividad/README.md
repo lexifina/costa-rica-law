@@ -14,3 +14,4 @@ Reglamento para el Reconocimiento a la Productividad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-08 | la propia norma |
+| 2 | 2010-02-18 | Reglamento 4732 (2010-02-18) |
