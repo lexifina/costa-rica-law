@@ -1,0 +1,1 @@
+Artículo 15.—Dentro de los aspectos que se deberán tomar en cuenta a la hora de hacer la solicitud está el de indicar la actividad a realizar, persona que los acompañará en el caso de ser así, el tiempo promedio que va a utilizar en la gestión.

@@ -1,0 +1,1 @@
+Artículo 21.—Los vehículos de uso administrativo y la maquinaria deberán contar con una autorización para circular, la cual portarán en todo momento extendida por el jefe de la unidad encargada del uso, control y mantenimiento de vehículos y maquinaria o persona designada.
