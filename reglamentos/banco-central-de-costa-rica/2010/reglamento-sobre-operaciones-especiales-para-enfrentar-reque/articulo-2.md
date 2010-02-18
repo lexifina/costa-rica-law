@@ -1,0 +1,1 @@
+Artículo 2º—Mecanismo de financiamiento. El Banco Central pondrá a disposición una línea especial de financiamiento en moneda nacional, de carácter revolutivo, a la cual podrán acceder las entidades financieras sujetas a la supervisión de la Superintendencia General de Entidades Financieras, que cumplan con lo dispuesto en el presente reglamento.
