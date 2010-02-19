@@ -1,0 +1,1 @@
+2º—Que por razones de seguridad y conveniencia se hace necesario establecer y fortalecer los controles de ingreso y salida de vehículos de la parte posterior de los locales del Depósito Libre Comercial de Golfito, sobre lo cual debe efectuarse un estricto control.
