@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Promociones, traslados y reubicaciones
+Artículo 58.—De la promoción a un puesto de grado superior. Se considerará promoción el ascenso a un puesto de grado superior, de conformidad con el Manual Descriptivo de Empleos del Servicio Civil o el Manual Institucional de Clases o cualquier otro manual que sea emitido por la Dirección General del Servicio Civil.
+Estos ascensos deberán tramitarse mediante concurso interno institucional, de acuerdo con las regulaciones establecidas en este Reglamento.
+La toma de decisión final le corresponderá a la Comisión de Reclutamiento y Selección, con fundamento en el Informe que realice la Oficina de Recursos Humanos, producto del estudio de las calificaciones periódicas de los candidatos a la promoción; su antigüedad, carrera profesional y el estudio de su expediente personal, para determinar si el candidato a la promoción cumple con los requisitos de la clase a que va a ser promovido, así como cualquier otro requisito incluido en el Manual que al efecto se encuentre vigente.

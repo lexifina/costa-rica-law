@@ -1,0 +1,1 @@
+Artículo 43.—De la determinación de los rangos de calificación. La Comisión de Reclutamiento y Selección acordará los rangos de calificación cuantitativos y cualitativos de las pruebas psicométricas y los estudios sociolaborales.

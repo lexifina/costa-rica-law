@@ -1,0 +1,1 @@
+Artículo 56.—De la asignación de la plaza. El servidor interino será nombrado en la plaza en propiedad, dentro de los 15 días hábiles siguientes a la fecha del correspondiente Acuerdo de la Comisión de Reclutamiento y Selección.

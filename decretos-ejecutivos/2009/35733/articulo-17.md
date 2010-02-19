@@ -1,0 +1,4 @@
+Artículo 17.—De la consignación de las Actas en el Libro de Actas de la Comisión. Las Actas se deberán llevar en un libro que debe ser legalizado mediante razón de apertura por la Auditoría Interna del ICD. En la primera página de cada tomo del Libro de Actas, se consignará una razón donde conste el número del tomo, los folios que contiene, su estado y la fecha de apertura.
+El funcionario que autoriza el uso del Libro de Actas; así como el Presidente de la Comisión y el Secretario firmarán la razón del mismo, con la finalidad que conste que el tomo se recibe con sus hojas completas, limpias y en buen estado.
+Las Actas se deben registrar en orden cronológico y llevarán una numeración consecutiva separada para cada tipo de sesión.
+Si el Libro de Actas fuere de folios sueltos, se conformará con quinientas hojas. Los folios deben ser numerados en forma consecutiva y sellados por la Auditoría Interna del ICD.

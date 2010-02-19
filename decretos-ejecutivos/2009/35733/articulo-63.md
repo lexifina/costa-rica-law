@@ -1,0 +1,1 @@
+Artículo 63.—Del periodo de prueba. Tratándose de ascensos o traslados se aplicará un período de prueba de tres meses. En caso de no aprobarse el período de prueba por parte del funcionario ascendido o trasladado, en el mismo acto de cese del movimiento realizado, se ordenará el retorno del servidor a su puesto de origen.

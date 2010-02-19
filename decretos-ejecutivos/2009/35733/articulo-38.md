@@ -1,0 +1,1 @@
+Artículo 38.—Del Proceso de Evaluación. Para poder determinar en el concurso externo al candidato idóneo para la plaza vacante, el Instituto aplicará un proceso de evaluación; el cual está constituido por cinco etapas: el análisis curricular, la entrevista preliminar, la batería de test psicométricos, el estudio sociolaboral y la prueba específica para el puesto.

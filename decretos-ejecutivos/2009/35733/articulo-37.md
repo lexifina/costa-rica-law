@@ -1,0 +1,3 @@
+Artículo 37.—Del concurso externo. El concurso externo es el proceso que llevará a cabo el ICD para llenar plazas vacantes, mediante el reclutamiento y selección de personal.
+Lo antecede siempre un concurso interno institucional donde se declaró inopia, o una plaza vacante recientemente creada o vacante por renuncia, pensión, despido o fallecimiento; con requisitos o atinencias que no posee ningún colaborador de la Institución.
+Al finalizar el plazo de recepción de los currículums, la Oficina de Recursos Humanos se encargará de verificar que los interesados cumplan con los requisitos académicos y legales establecidos en el concurso, según cada oferta de servicios, dándose así inicio al proceso de selección de personal.
