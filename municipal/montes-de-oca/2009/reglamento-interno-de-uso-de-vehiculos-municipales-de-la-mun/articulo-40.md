@@ -1,0 +1,1 @@
+Artículo 40.—El Oficial de Seguridad Interna del plantel municipal no entregará ningún vehículo en horas no hábiles a funcionarios de la Municipalidad, sin la autorización de la Dirección Administrativa o del Alcalde Municipal directamente.

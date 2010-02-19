@@ -1,0 +1,1 @@
+Artículo 13.—Únicamente en casos de calificada excepción y por razones de fuerza mayor, previa aprobación del Departamento de Servicios Generales, el vehículo podrá pernoctar en un parqueo público o en lugares que brinden condiciones de seguridad adecuadas, cuando realicen giras a lugares distantes de las sedes autorizadas o en misiones de trabajo.

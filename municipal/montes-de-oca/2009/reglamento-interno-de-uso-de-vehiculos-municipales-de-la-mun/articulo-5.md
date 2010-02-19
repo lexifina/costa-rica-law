@@ -1,0 +1,1 @@
+Artículo 5º—Son vehículos de uso administrativo todos los utilizados por la Municipalidad, para prestar servicios regulares de transporte en el desarrollo normal de sus funciones y actividades de las diferentes oficinas y dependencias, como medio de transporte de personas, materiales y equipo, incluyendo la maquinaria y equipos de vías públicas y recolección.

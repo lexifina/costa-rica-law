@@ -1,0 +1,1 @@
+Artículo 19.—Cada chofer con vehículo y equipo especial asignado es responsable tanto de mantenerlo en perfecto estado, como también de entregarlo aseado (lavado); de conformidad con lo que se señala en el Capítulo VIII de este Reglamento. Los vehículos de recolección de basura deben lavarse diariamente.

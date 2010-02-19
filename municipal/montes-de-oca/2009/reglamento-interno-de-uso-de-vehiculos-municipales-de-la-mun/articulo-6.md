@@ -1,0 +1,1 @@
+Artículo 6º—Todos los vehículos de uso administrativo deberán estar rotulados de manera permanente, con una leyenda que diga “MUNICIPALIDAD DE MONTES DE OCA. USO OFICIAL”, y llevar una placa permanente de matrícula especial con carácter de oficial en los lugares donde reglamentariamente ésta debe colocarse.

@@ -1,0 +1,1 @@
+Artículo 39.—El Oficial de Seguridad Interna del plantel municipal y el edificio anexo, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando a los departamentos correspondientes cualquier anomalía.

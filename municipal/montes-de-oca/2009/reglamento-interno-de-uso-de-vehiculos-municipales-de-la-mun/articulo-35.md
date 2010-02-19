@@ -1,0 +1,2 @@
+Artículo 35.—Será responsabilidad de la Dirección Administrativa, según las investigaciones de accidentes de tránsito, en la que participe un vehículo de la Municipalidad, solicitar la asistencia profesional necesaria por parte de la asesoría del Departamento Legal de la Institución.
+El cumplimiento de lo anterior debe hacerse dentro del plazo perentorio judicial, de forma tal que se posibilite una adecuada u oportuna defensa de los intereses de la Municipalidad. El involucrado en un accidente deberá poner a disposición de la Asesoría Legal los testigos con que se cuente.

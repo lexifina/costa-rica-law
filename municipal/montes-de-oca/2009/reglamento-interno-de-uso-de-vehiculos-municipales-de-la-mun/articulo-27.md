@@ -1,0 +1,1 @@
+Artículo 27.—Los conductores no deben estacionar los vehículos en lugares donde se ponga en peligro la seguridad de los mismos, o locales cuyas características riñan con la moral y buenas costumbres que pudieran lesionar la imagen de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 4º—De uso discrecional es el vehículo asignado al Alcalde Municipal, que por razón de su cargo podrá utilizar un vehículo de esa naturaleza; beneficio que no podrá ser considerado bajo ninguna circunstancia como salario en especie.

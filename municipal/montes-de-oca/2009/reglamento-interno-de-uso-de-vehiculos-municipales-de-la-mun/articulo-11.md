@@ -1,0 +1,1 @@
+Artículo 11.—Cuando, por razones especiales, el servicio de transporte se requiera en horas y días no hábiles, deberá ser autorizada por escrito por el Alcalde Municipal y ser suscrita por el superior jerárquico de la unidad que solicita el servicio.
