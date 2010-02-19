@@ -1,0 +1,1 @@
+Artículo 7º—Seguimiento y fiscalización. Cada tres meses, el Coordinador del Proceso de Hacienda Municipal remitirá al Alcalde y éste a su vez al Concejo Municipal, un informe sobre la ejecución presupuestaria.

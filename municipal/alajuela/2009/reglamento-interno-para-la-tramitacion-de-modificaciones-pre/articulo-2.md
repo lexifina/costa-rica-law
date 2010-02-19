@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente reglamento establece las disposiciones aplicables en el ámbito de la Municipalidad de Alajuela para el trámite y aprobación de las modificaciones al presupuesto municipal.
