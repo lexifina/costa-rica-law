@@ -1,0 +1,1 @@
+Artículo 2º—El método para elaborar los análisis de riesgo se fundamentará en las normas establecidas en el Código Terrestre y Código Acuático de la OIE, según el caso. Además, la Guía Práctica de Análisis de Riesgo, elaborada por el Grupo Ad hoc sobre análisis de riesgo de la Comisión Regional de la OIE para América.

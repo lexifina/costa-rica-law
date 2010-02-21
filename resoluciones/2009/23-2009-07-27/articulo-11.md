@@ -1,0 +1,1 @@
+Artículo 11.—Cuando sea necesario, el Director de la Dirección de Cuarentena Animal del SENASA notificará a la Autoridad Veterinaria del País de Origen (AVPO) para manifestarle el interés de importar mercancías de ese país o región, así como de la necesidad de elaborar un análisis de riesgo como requisito para tal fin.

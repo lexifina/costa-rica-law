@@ -1,0 +1,1 @@
+Artículo 15.—Para el reconocimiento de país o zona libre de alguna(s) enfermedad(es), o de un país o región del cual nunca se ha importado o ha cambiado el estado sanitario en los últimos años, se utilizará el formulario AR01. En caso de animales vivos se utilizará el formulario AR02, si es semen y/o embriones el AR03 y para productos y subproductos de origen animal el AR04.

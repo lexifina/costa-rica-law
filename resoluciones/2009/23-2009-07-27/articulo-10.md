@@ -1,0 +1,1 @@
+Artículo 10.—Presentadas que fueren observaciones a la Unidad de Epidemiología por parte de los receptores del riesgo antes indicados, mediante resolución administrativa fundamentada se dará respuesta a las mismas pudiendo incluso modificar la resolución de aceptación de análisis de riesgo.

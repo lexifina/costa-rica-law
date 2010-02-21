@@ -1,0 +1,1 @@
+Artículo 18.—Los análisis de riesgo, dentro del término de un mes calendario, deberán ser revisados, aprobados o rechazados por la Comisión .Asimismo esta podrá recomendar a la Dirección General del SENASA, la verificación, vía inspección in situ de la información suministrada por las AVPO en el país o región de origen de la mercancía y la cual decidirá lo correspondiente.

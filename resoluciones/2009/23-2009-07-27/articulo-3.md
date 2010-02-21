@@ -1,0 +1,1 @@
+Artículo 3º—Corresponde a las respectivas instancias técnicas de la Dirección de Salud Animal de Costa Rica, fijar los criterios y requisitos que deberán cumplir las mercancías de origen animal para consumo humano, así como los medicamentos y biológicos para uso en el país y serán las que fijarán el nivel apropiado de protección en cada caso.

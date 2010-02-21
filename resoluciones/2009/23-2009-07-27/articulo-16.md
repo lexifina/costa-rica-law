@@ -1,0 +1,1 @@
+Artículo 16.—El Análisis de Riesgo elaborado por la Unidad de Epidemiología, o por funcionarios de la Autoridad Veterinaria del país de origen de la mercancía o por Médicos Veterinarios calificados nacionales o extranjeros, será revisado por una Comisión de Evaluación de Análisis de Riesgos.

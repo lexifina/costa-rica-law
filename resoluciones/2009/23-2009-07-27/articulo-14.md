@@ -1,0 +1,1 @@
+Artículo 14.—El Administrado para los casos establecidos en los incisos a), b) y c) del artículo 5 anterior, deberá asumir y cubrir el costo de su realización conforme a la tarifa establecida en el correspondiente Decreto de Tarifas del Servicio Nacional de Salud Animal.

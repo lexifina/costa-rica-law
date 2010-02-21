@@ -1,0 +1,5 @@
+Artículo 7º—Las solicitudes de elaboración de análisis de riesgo, serán analizadas por la Unidad de Epidemiología y en un plazo de diez días hábiles deberá comunicar al solicitante (Dirección General o Dirección de Cuarentena Animal) la decisión que corresponda, sea esta la de recomendar rechazar la solicitud, recomendar la importación sin necesidad de análisis de riesgo o realizar un análisis de riesgo. El analista de riesgo deberá fundamentar la decisión.
+La recomendación de rechazo de solicitudes de análisis de riesgo podrá fundamentarse entre otras en las siguientes razones:
+a) que la mercancía representa un alto riesgo para el país y ya existe información nacional o internacional sobre el riesgo de importar tal mercancía.
+b) que no amerite la realización de un análisis de riesgo porque ya se han realizado otros estudios previos y/o existe información nacional e internacional que compruebe que el riesgo para el país es insignificante.
+En el caso del inciso b) la solicitud de análisis ser resolverá como una consulta técnica.

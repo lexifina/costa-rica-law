@@ -1,0 +1,1 @@
+Artículo 6º—El usuario puede aportar como insumo el análisis de riesgo elaborado en el país de origen de la mercancía, por funcionarios de la Autoridad Veterinaria de ese país o por Médicos Veterinarios calificados nacionales o extranjeros y avalados por la Autoridad Veterinaria correspondiente.
