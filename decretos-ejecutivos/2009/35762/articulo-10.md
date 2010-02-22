@@ -1,0 +1,1 @@
+Artículo 10.—Se autoriza al Fondo Nacional de Financiamiento Forestal a considerar y aprobar proyectos de pago por servicios ambientales en todas las modalidades según el establecimiento de áreas prioritarias a todos los poseedores y propietarios que se encuentren dentro de la zona fronteriza creada mediante el inciso f, artículo 7 de la Ley Nº 2825.

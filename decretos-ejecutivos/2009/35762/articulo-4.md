@@ -1,0 +1,34 @@
+Artículo 4º—Las áreas prioritarias para el trámite de las presolicitudes del año 2010 en las diferentes modalidades serán las siguientes:
+1.Proyectos de Reforestación: Se establecen como prioritarias para la ejecución de proyectos de reforestación las áreas sin bosque en los sitios que presenten un alto potencial productivo para el desarrollo de plantaciones forestales.
+a) Para los proyectos de reforestación con especies contenidas en los decretos de vedas y especies amenazadas o en peligro de extinción (Decreto Nº 25663-MINAE y Decreto Nº 25700-MINAE), se establece como prioritario todo el país.
+b) Para proyectos de reforestación establecidos en las áreas de protección según el artículo 33 de la Ley Forestal N° 7575, se considerará como prioritario todo el país.
+c) Sitios donde haya un alto potencial de bloques de plantación dando especial prioridad a los proyectos que utilicen material genético mejorado y a los proyectos que utilicen semilla certificada por la Oficina Nacional de Semillas.
+d) Se podrán incluir áreas en donde se ejecutaron proyectos de reforestación financiados por medio de incentivos y que hayan cumplido con los planes de manejo aprobados y el período de vigencia.
+2. Proyectos de Protección de Bosque y Protección de Bosque en Vacíos de Conservación: Se establecen como prioritarias para la ejecución de proyectos de protección de bosque las áreas con los siguientes criterios:
+a) Los terrenos privados ubicados dentro de los vacíos de conservación identificados por la Propuesta de Ordenamiento Territorial para la Conservación de la Biodiversidad en Costa Rica (GRUAS II), serán prioritarias:
+- Como prioridad 1 los vacíos de conservación en terrenos privados dentro de Áreas Silvestres Protegidas (ASP).
+- Como prioridad 2 los vacíos de conservación en terrenos privados dentro de Corredores Biológicos.
+- Como prioridad 3 los vacíos de conservación en terrenos privados fuera de ASP y de Corredores Biológicos.
+- Terrenos privados dentro de ASP y fuera de vacíos de conservación.
+b) Terrenos privados dentro de Corredores Biológicos y fuera de vacíos de conservación.
+c) Terrenos ubicados dentro de los Territorios Indígenas del país.
+d) Proyectos de protección sobre inmuebles que en el pasado hayan suscrito contratos de pago de servicios ambientales, con la condición de que cumplan con lo establecido en el Manual de Procedimientos Administrativos para el Pago de Servicios Ambientales publicado en la Resolución 01-2009 en La Gaceta Nº 46 del viernes 6 de marzo del 2009. La vigencia de los nuevos contratos iniciará al día siguiente de la fecha de vencimiento del contrato anterior.
+e) Inmuebles que tienen planes de manejo de bosque aprobado con informe de cierre aprobado por el SINAC y que presenten presolicitud de ingreso a la modalidad de protección de bosque siempre que cumplan con los demás requisitos establecidos en el citado Manual.
+f) Inmuebles de propiedad privada ubicados dentro de Parques Nacionales o Reservas Biológicas y que aún no han sido comprados o expropiados por el Estado.
+g) Los sitios con bosque ubicados en los distritos con Índice de Desarrollo Social (IDS) menor a 40% según la determinación realizada por MIDEPLAN (2007).
+3. Proyectos de Protección de Recurso Hídrico: Se establecen como prioritarias para la ejecución de proyectos de protección de bosque las áreas con los siguientes criterios:
+a) Terrenos privados con bosque dentro de la cuenca donde se genere el servicio ambiental de protección del agua y se ubiquen en zonas de importancia para la sostenibilidad comprobada del régimen hídrico, de acuerdo con los criterios que se definan en los Planes y Programas Nacionales en esta materia, según se establece en el artículo 14 del Decreto Ejecutivo Nº 32868-MINAE, publicado en La Gaceta Nº 21, del 30 de enero de 2006 (Canon por Concepto de Aprovechamiento de Aguas).
+b) Terrenos privados con bosque ubicados en las zonas de importancia hídrica identificadas por la Dirección de Aguas y FONAFIFO, u otras instancias del MINAET.
+c) Áreas de bosque que tengan como función principal la protección del recurso hídrico, consideradas de interés para acueductos rurales, proyectos de Acueductos y Alcantarillado y las empresas de servicios públicos, los cuales deben estar respaldados mediante una certificación emitida por el administrador del acueducto respectivo.
+4. Proyectos de Establecimiento de Árboles Forestales en Sistemas Agroforestales (SAF): Se establecen como prioritarias para la ejecución de proyectos de establecimiento de árboles en SAF las áreas sin bosque con los siguientes criterios:
+a) Tierras con capacidad de uso I, II, III, IV, V, VI, según dispone la Metodología para la Determinación de la Capacidad de Uso de las Tierras en Costa Rica, Decreto Ejecutivo Nº 23214-MAG-MIRENEM.
+b) Áreas en convenios específicos con FONAFIFO.
+c) Se dará prioridad a proyectos tramitados por organizaciones que tengan convenio vigente con el FONAFIFO.
+5. Proyectos de Regeneración Natural: Se establecen como prioritarias para la ejecución de proyectos de regeneración natural las áreas sin bosque con los siguientes criterios:
+a) Proyectos de regeneración natural en pastos y potreros, según lo establecido en los incisos b y c en áreas definidas como tierras Kyoto u otras que se reconozca un pago adicional por los créditos de carbono que el FONAFIFO pueda comercializar, que hayan sido deforestadas antes del 31 de diciembre de 1989.
+b) Proyectos de regeneración natural en pastos y potreros, que se podrán realizar fuera de áreas definidas como tierras Kyoto, con al menos un año de abandono y libres de pastoreo.
+c) Proyectos de regeneración natural con potencial productivo en sitios con al menos un año de abandono y libres de pastoreo.
+d) Para la regeneración natural en las áreas de protección según el artículo 33 de la Ley Forestal Nº 7575, se considerará como prioritario todo el país.
+6. Proyectos de Manejo de Bosque: Se establecen como prioridades para proyectos de manejo de bosque las áreas con el siguiente criterio:
+a) Inmuebles que tienen planes de manejo aprobados por la Administración Forestal del Estado, en los cuales se realizó la cosecha de acuerdo a los Estándares de Sostenibilidad para Manejo de Bosques Naturales: Principios, Criterios e Indicadores, Código de Prácticas y Manual de Procedimientos, Decretos Ejecutivos Nº 27388-MINAE publicado el 2 de noviembre de 1998, Decreto Nº 30763-MINAE publicado el 9 octubre del 2002 y Decreto Ejecutivo Nº 34559-MINAE, publicado en La Gaceta Nº 115 del 16 de junio del 2008, el SINAC certificará el cumplimiento de lo establecido en el Plan de Manejo.
+En cada una de las Oficinas Subregionales del SINAC y Regionales del FONAFIFO, se mantendrá un mapa actualizado con las áreas prioritarias para ubicar las fincas que apliquen al Programa de Pago por Servicios Ambientales en la modalidad de protección de bosque.
