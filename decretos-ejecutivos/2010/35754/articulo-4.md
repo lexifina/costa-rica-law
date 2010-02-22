@@ -1,0 +1,1 @@
+Artículo 4º—Este Decreto deroga las tarifas establecidas mediante el artículo 3 bis del Decreto Ejecutivo Nº 32252-MOPT del 2 de marzo del 2005 y mediante el artículo 1º del Decreto Ejecutivo Nº 32763-MOPT del 31 de octubre del 2005.
