@@ -1,0 +1,3 @@
+Artículo 8º—El SINE funcionará a través de dos módulos transversales, interrelacionados y complementarios:
+a) “Módulo de autoevaluación”: dirigido a desarrollar una cultura de evaluación en los niveles institucional, sectorial, regional y otros, con inclusión del seguimiento y la rendición de cuentas de las prioridades contenidas en el PND o de cualquier otra política, plan, programa o proyecto de carácter estratégico.
+b) “Módulo de evaluación estratégica”: destinado a evaluar las políticas, los planes, los programas y los proyectos de interés público que determinan los objetivos y las metas del PND y otros instrumentos de planificación, como medio para garantizar la eficiencia y la transparencia del accionar de las instituciones públicas.

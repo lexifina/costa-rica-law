@@ -1,0 +1,1 @@
+Artículo 5º—Los Poderes Judicial y Legislativo, con inclusión de sus órganos auxiliares, el Tribunal Supremo de Elecciones, las municipalidades y las empresas municipales podrán contribuir con la operación del SINE, en procura de los procesos de rendición de cuentas, del análisis del desarrollo del país y del bienestar ciudadano.

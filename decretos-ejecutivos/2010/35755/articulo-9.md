@@ -1,0 +1,4 @@
+Artículo 9º—Las y los máximos jerarcas institucionales, y, las y los Ministros Rectores deberán adoptar, al nivel institucional, sectorial o regional, la autoevaluación de acuerdo con las estrategias, lineamientos y metodologías establecidas por MIDEPLAN.
+MIDEPLAN deberá adoptar, asesorar y orientar la evaluación estratégica conforme las estrategias, los lineamientos y las metodologías que al respecto disponga.
+Las Secretarías Sectoriales y las Unidades de Planificación Institucional actuarán como enlaces dentro del SINE. Los enlaces del SINE serán las instancias operativas e interlocutoras para desarrollar las actividades de evaluación, bajo la supervisión de las y los Ministros Rectores, y, de las y los jerarcas institucionales.
+Los órganos, entes y empresas del SINE deberán establecer dentro de sus dependencias las funciones de monitoreo y evaluación según los lineamientos dados por SINE, con el fin de fortalecer la gestión estratégica institucional y sectorial.
