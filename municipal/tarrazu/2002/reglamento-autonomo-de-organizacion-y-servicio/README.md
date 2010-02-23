@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-08 | la propia norma |
+| 2 | 2010-02-23 | Reglamento municipal 196 (2010-02-23) |
