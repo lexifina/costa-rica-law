@@ -15,3 +15,4 @@ Reforma Comunica que a partir del mes de noviembre del presente año, se iniciar
 | --- | --- | --- |
 | 1 | 2009-12-08 | la propia norma |
 | 2 | 2009-12-08 | Resolución 364 (2009-11-20) |
+| 3 | 2010-02-23 | Resolución 67 (2010-02-23) |
