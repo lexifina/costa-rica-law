@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios del Instituto Costarricense de Puertos del Pac
 | --- | --- | --- |
 | 1 | 2008-11-19 | la propia norma |
 | 2 | 2009-09-01 | Reglamento 3585 (2009-09-01) |
+| 3 | 2010-02-23 | Reglamento 3620 (2010-02-23) |
