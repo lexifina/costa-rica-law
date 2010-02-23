@@ -6,13 +6,12 @@ Los honorarios para proyectos de edificaciones, tanto en la Fase 1 como en la Fa
 a) Honorarios provisionales
 Se Establecen para efectuar el pago parcial, previo al inicio de la etapa o de las etapas que se contraten, con base en una estimación del costo de la obra que se proyectar o diseñar . Este costo
 estimado no podrá ser menor que el valor de tasación que utiliza el Colegio Federado con apoyo en las características básicas de la obra.
-b) Honorarios definitivos.
--Anteproyecto
-Si se contrata únicamente esta etapa del proyecto, los honorarios se calcularán con base en el presupuesto que se elabore a partir de los planos del anteproyecto. Si el contrato incluye la etapa de planos de
-construcción y especificaciones, los honorarios se calcularán como se establece en el apartado siguiente.
--Planos de construcción y especificaciones:
-Los honorarios se calcular n con base en el monto de la adjudicación, siempre y cuando no hayan transcurrido más de seis meses con posterioridad a la fecha de elaboración de los planos, en cuyo caso se
-Calcularán de acuerdo con el presupuesto que elabore el consultor, tomándose como referencia los planos finales de la segunda etapa (planos de construcción y especificaciones).
+(*)b) Honorarios definitivos.
+Anteproyecto.
+Si se contrata únicamente esta etapa del proyecto, los honorarios se calcularán con base en el presupuesto que se elabore a partir de los planos del anteproyecto. Si el contrato incluye la etapa de planos de construcción y especificaciones, los honorarios se calcularán como se establece en el apartado siguiente.
+- Planos de construcción y especificaciones:
+Los honorarios se calcularán con base en el monto de la adjudicación de la construcción, siempre y cuando no hayan transcurrido más de seis meses con posterioridad a la fecha de elaboración de los planos, en cuyo caso se calcularán de acuerdo con el presupuesto que elabore el consultor, tomándose como referencia los planos finales de la segunda etapa (planos de construcción y especificaciones, o sea sobre la totalidad de la obra).
+(*)(Así reformado el inciso anterior mediante acuerdo N° 12 de la sesión N° 02 del 23 de febrero de 2010)
 -Presupuesto. Programa de obra
 Los honorarios se calcular n con base en el presupuesto que elabore el consultor a partir de los planos finales de la segunda etapa o del monto de la adjudicación, según sea el caso.
 -Asesoría para licitación y adjudicación

@@ -20,3 +20,4 @@ Arancel de Servicios Profesionales de Consultoría para Edificaciones
 | 5 | 2008-04-15 | Acuerdo 42 (2008-04-15) |
 | 6 | 2009-05-05 | Acuerdo 24 (2009-05-05) |
 | 7 | 2010-01-19 | Acuerdo 12 (2010-01-19) |
+| 8 | 2010-02-23 | Reglamento 2 (2010-02-23) |
