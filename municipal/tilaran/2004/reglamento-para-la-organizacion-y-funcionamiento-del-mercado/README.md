@@ -14,3 +14,4 @@ Reglamento para la Organización y Funcionamiento del Mercado Municipal de Tilar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-26 | la propia norma |
+| 2 | 2010-02-23 | Reglamento municipal 200 (2010-02-23) |
