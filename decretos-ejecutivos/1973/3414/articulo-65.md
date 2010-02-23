@@ -1,1 +1,2 @@
-ARTÍCULO 65.- (DEROGADO por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 26)
+ARTÍCULO 65.- La Junta Directiva General regulará mediante un Reglamento, los casos especiales en los cuales se podrá autorizar a un profesional a no cobrar honorarios. Corresponderá al Director Ejecutivo del Colegio Federado de Ingenieros y de Arquitectos, o a quien éste delegue, la aprobación de la exoneración del cobro de honorarios profesionales.
+(Así reformado mediante sesión N° 02 del 23 de febrero de 2010. Anteriormente este artículo había sido derogado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 26)
