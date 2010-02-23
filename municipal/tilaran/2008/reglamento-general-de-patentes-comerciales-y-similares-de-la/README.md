@@ -14,3 +14,4 @@ Reglamento general de patentes comerciales y similares de la Municipalidad de Ti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-02 | la propia norma |
+| 2 | 2010-02-23 | Reglamento municipal 200 (2010-02-23) |
