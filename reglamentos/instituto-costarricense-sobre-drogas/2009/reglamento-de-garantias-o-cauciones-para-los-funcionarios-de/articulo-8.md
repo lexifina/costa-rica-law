@@ -1,0 +1,1 @@
+Artículo 8º—Funcionarios interinos. Los funcionarios que ejerzan cargos públicos en condición de interinos, y que realicen funciones de recaudación, custodia o administración de fondos públicos deberán rendir garantía o caución, salvo disposición en contrario.

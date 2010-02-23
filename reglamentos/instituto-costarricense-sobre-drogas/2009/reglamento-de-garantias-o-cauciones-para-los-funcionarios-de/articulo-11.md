@@ -1,0 +1,5 @@
+Artículo 11.—Ejecución de la garantía. Cuando se comprueben hechos que deben ser reparados conforme a la finalidad de la garantía y una vez firme la resolución dictada por la instancia competente donde corresponda el resarcimiento de daños y perjuicios, se deberá ordenar la ejecución de la garantía que el caucionante haya rendido de la siguiente manera:
+a) Le corresponderá al Consejo de Gobierno cuando el caucionante forme parte del Consejo Directivo.
+b) Le corresponderá al Consejo Directivo cuando el caucionante sea el Director General, Director General Adjunto o la Auditoría.
+c) Le corresponderá al Director General o Director General Adjunto en el caso de los demás funcionarios.
+Lo anterior sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan. Cuando la garantía sea insuficiente, el Consejo de Gobierno o en su defecto el Consejo Directivo valorará el caso en concreto, con el fin de acudir a la vía ejecutiva simple a efecto de cobrar el saldo pendiente.

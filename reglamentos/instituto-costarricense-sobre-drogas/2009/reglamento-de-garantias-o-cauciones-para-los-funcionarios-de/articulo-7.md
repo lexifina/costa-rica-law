@@ -1,0 +1,1 @@
+Artículo 7º—Obligación de mantener garantía por cambio de nombre de puesto. Los funcionarios que ocupen los puestos citados en los artículos 3º y 5º y los otros a juicio del I.C.D., deben mantener su obligación de presentar garantía cuando el nombre o título de la clase de puesto que ocupan sea variado, siempre que se mantenga la naturaleza de las funciones que realizan.

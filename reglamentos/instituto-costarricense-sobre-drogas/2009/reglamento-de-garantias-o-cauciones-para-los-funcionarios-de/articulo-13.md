@@ -1,0 +1,1 @@
+Artículo l3.—Vigencia de la caución. En cuanto a la vigencia de la garantía deberá ser actualizada de forma anual, conforme a lo establecido en la Ley de Administración Financiera y Presupuestos Públicos, según lo dispuesto el artículo 120 y otras relacionadas.
