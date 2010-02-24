@@ -1,0 +1,1 @@
+Artículo 11.—Quórum funcional. La resolución sobre la solicitud para descartar material documental, de acuerdo con lo estipulado en este Reglamento, se tomará por mayoría de votos presentes. En caso de un empate, decidirá la coordinadora de la Biblioteca Municipal con doble voto.

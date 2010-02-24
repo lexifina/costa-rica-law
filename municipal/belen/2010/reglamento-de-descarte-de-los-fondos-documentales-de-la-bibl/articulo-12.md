@@ -1,0 +1,5 @@
+Artículo 12.—De los lineamientos para realizar el descarte. Los criterios para el descarte del material documental son los siguientes:
+1. Documentos con información desactualízada, caduca, obsoleta o con desfase científico, no consultados ni solicitados al menos por diez años o más, en el área de ciencias puras o naturales, en el área tecnológica o ciencias aplicadas y en las ciencias sociales siempre y cuando no sea el único ejemplar en esa temática o considerado patrimonio histórico.
+2. Documentos con presentación impresa defectuosa (mala legibilidad, papel manchado, mutilaciones) y deterioro físico severo (encuademaciones rotas, hojas sueltas o faltante de hojas que hagan costosa su restauración), siempre y cuando no sea material patrimonial histórico.
+3. Números sueltos de publicaciones seriadas.
+4. Documentos duplicados de una misma edición (más de dos) o de otras ediciones y/o reimpresiones (más de uno por cada edición o reimpresión) que superen la demanda de las personas usuarias.

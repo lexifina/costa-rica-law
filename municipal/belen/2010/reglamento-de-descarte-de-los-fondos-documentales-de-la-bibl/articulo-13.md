@@ -1,0 +1,1 @@
+Artículo 13.—Prescindencia del material. La Municipalidad de Belén prescindirá del material descartado mediante la donación, reciclaje o destrucción del mismo, para lo cual se requeriría la suscripción de convenios con personas físicas, instituciones públicas, fundaciones o asociaciones.

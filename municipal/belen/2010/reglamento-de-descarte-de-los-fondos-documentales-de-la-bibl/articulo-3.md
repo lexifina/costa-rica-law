@@ -1,0 +1,1 @@
+Artículo 3º—Responsabilidad institucional. La Municipalidad de Belén a través de la Biblioteca Municipal, es la responsable de que se lleve a cabo el expurgo y descarte del material documental y velará porque la Biblioteca cumpla con las políticas y procedimientos establecidos en este Reglamento.
