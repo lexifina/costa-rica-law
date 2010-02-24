@@ -1,0 +1,1 @@
+Artículo 13.—Para los casos de Traspaso de cuotas del Poder Judicial, la Dirección Jurídica del Ministerio de Hacienda realizará las gestiones necesarias ante las instancias correspondientes para la incorporación de la información y documentación necesarias para resolver.
