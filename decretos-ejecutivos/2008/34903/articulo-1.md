@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34903-MAG-S-MINAET-MEIC-COMEX
+(Este decreto fue derogado por el artículo 1° del decreto jecutivo N° 35828 del 25 de febrero de 2010)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE AGRICULTURA Y GANADERÍA,
 LA MINISTRA DE SALUD,
