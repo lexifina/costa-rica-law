@@ -14,3 +14,4 @@ Requisitos y Trámites Administrativos del Concejo Municipal Distrito de Lepanto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-28 | la propia norma |
+| 2 | 2010-02-25 | Acuerdo municipal 0 (2010-02-25) |

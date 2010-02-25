@@ -8,6 +8,18 @@ El Concejo Municipal del Distrito de Lepanto, acuerda con cinco votos aprobar y 
 5) Planos de construcción originales y 2 copias sellados por el Colegio Federado de Ingenieros y Arquitectos de C.R., el Ministerio de Salud y el ICE.
 6) Cuando se trate de construcciones menores a 30 metros cuadrados, se debe adjuntar un cróquis detallado de la misma.
 7) Adicionar ¢100 de timbres municipales y ¢5 de timbres fiscales.
+(*)1) Disponibilidad de agua del acueducto correspondiente.
+2) Disponibilidad de Electricidad por parte de Coopeguanacaste R. L. o el ICE.
+3) La construcción de edificaciones que brinden servicios públicos, deberán de cumplir con la normativa establecida en la Ley Nº 7600 y su Reglamento, para el diseño del espacio físico.
+4) Obras de 300 metros cuadrados o más en delante de construcción deberá aportar la Viabilidad Ambiental del SETENA.
+5) Para desfogues pluviales en urbanizaciones y condominios debe de solicitar permiso al Concejo Municipal o en caso de las Rutas Nacionales debe dirigirse al MOPT.
+6) Alineamientos de construcción del Ministerio de Obras Públicas y Transportes en caso de Rutas Nacionales (Ley General de Caminos Públicos Nº 7575).
+7) Alineamientos en zonas de protección de nacientes de ríos, quebradas, arroyos, lagos y embalses naturales, artificiales o acuíferos, revisados por la Dirección de Urbanismo del INVU en caso que la propiedad esté afectada (Ley Forestal Nº 7575).
+8) Estar al día con la declaratoria de Bienes Inmuebles.
+9) Comprobante de pago por derechos de inspección.
+10) Certificación de estar al día con la CCSS.
+11) El Concejo si así lo requiere puede solicitar cualquier requisito adicional al indicado en este listado, según condiciones específicas del lugar o del proyecto a desarrollar.
+(*)(Nota de Sinalevi: Así adicionados los anteriores requisitos del 1) al 11) mediante acuerdo tomado en sesión N° 396 del 25 de febrero de 2010. No obstante; se repite la numeración de los nuevos requisitos con los ya existes)
 002: Requisitos para solicitud de patentes comerciales
 1) Llenar solicitud.
 2) El interesado debe estar al día con el pago de los impuestos, tasas y pagos de servicios municipales respectivos.
