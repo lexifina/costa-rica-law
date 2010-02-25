@@ -1,0 +1,1 @@
+Artículo 111.—La Municipalidad de Turrubares debe propiciar las facilidades necesarias con el fin de que todos los servidores (as), sin discriminación alguna, puedan capacitarse y superarse en el desempeño de sus puestos.

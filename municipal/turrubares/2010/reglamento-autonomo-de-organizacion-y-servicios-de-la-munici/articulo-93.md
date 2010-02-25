@@ -1,0 +1,1 @@
+Artículo 93.—La Municipalidad de Turrubares para efectos del pago de la Prohibición, la Dedicación Exclusiva, Disponibilidad Laboral y la Carrera Profesional, se regirán con base en el reglamento, reformas y la normativa existente sobre la materia.

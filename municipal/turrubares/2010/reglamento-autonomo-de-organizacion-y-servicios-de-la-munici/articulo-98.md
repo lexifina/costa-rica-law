@@ -1,0 +1,1 @@
+Artículo 98.—La Municipalidad de Turrubares a través del departamento de Recursos Humanos, dentro de sus posibilidades materiales y profesionales reales, brindará los servicios médicos requeridos a todos los funcionarios (as) de la Municipalidad de Turrubares.
