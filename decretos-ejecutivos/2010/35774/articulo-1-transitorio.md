@@ -1,0 +1,2 @@
+Transitorio Único.—Al entrar en vigencia el presente Reglamento, la primera distribución del volumen de compras se hará de acuerdo con la participación relativa de las empresas industrializadoras en sus ventas al mercado interno y su volumen de inventarios nacionales durante el último período fiscal.
+Dado en la Presidencia de la República.—San José, a los veintiséis días del mes de enero del dos mil diez.

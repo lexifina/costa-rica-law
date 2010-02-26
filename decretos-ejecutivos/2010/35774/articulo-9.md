@@ -1,0 +1,1 @@
+Artículo 9º—Sobre la asignación de los volúmenes de importación. Para proceder a la autorización de importación con arancel preferencial reducido, el CNP comprobará que los beneficiarios cumplan con los requisitos de desempeño, de conformidad con las disposiciones de la ley y este reglamento.

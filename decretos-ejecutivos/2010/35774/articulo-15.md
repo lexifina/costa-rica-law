@@ -1,0 +1,1 @@
+Artículo 15.—Excepciones: No procederá la aplicación de requisitos de desempeño, para las importaciones de frijol y maíz blanco amparadas a los compromisos establecidos en tratados comerciales internacionales vigentes.

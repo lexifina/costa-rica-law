@@ -1,0 +1,1 @@
+Artículo 8º—Verificación de la información. La información de las compras reportadas por la industria que solicite un derecho de importación con arancel reducido, será verificada con la información que consta en el registro de productores del Área de Información e Inteligencia de Mercados del CNP.

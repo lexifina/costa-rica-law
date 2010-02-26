@@ -1,0 +1,1 @@
+Artículo 10.—De la no compra de la totalidad de la cosecha. Si la totalidad de la cosecha que cumple con la norma de compra al productor no es adquirida por los industriales de frijol o de maíz blanco, el porcentaje no adquirido no será otorgado de ninguna manera para su importación con arancel preferencial.
