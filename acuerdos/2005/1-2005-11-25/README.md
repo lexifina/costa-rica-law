@@ -18,3 +18,4 @@ Lineamientos Generales para la aplicación del Reglamento para la Calificación 
 | 3 | 2007-03-02 | Acuerdo 6 (2007-03-02) |
 | 4 | 2008-04-29 | Acuerdo 8 (2008-04-29) |
 | 5 | 2010-02-04 | Acuerdo 3 (2010-02-04) |
+| 6 | 2010-02-26 | Acuerdo 5 (2010-02-26) |
