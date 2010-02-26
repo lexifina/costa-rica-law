@@ -1,0 +1,1 @@
+Artículo 4º—Se otorga un plazo de hasta tres meses a partir de la entrada en vigencia de esta modificación para que las empresas importadoras o compradoras locales de precursores pongan al día u obtengan sus respectivas licencias.
