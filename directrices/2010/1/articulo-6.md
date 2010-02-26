@@ -1,0 +1,1 @@
+Artículo 6°. EI servicio de respaldo no debe de ser usado para fines personales, y queda estrictamente prohibido utilizar cualquier aplicación y dispositivo para realizar respaldos sobre información personal, tales como imágenes, música, software, y cualquier archivo cuyo contenido no sea referente a fines labores.

@@ -1,0 +1,1 @@
+Artículo 2°. La presente directriz es aplicable y extensiva a todos los funcionario/as del Ministerio de Economía Industria y Comercio, que tengan acceso a los recursos de computo y comunicación electrónica de la Institución.

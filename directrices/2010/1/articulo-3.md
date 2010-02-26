@@ -1,0 +1,1 @@
+Artículo 3°. Es responsabilidad del Departamento de Servicios de Tecnología y Comunicaciones (STC) de la Dirección de Gestión de Información la estricta observancia en el ámbito de su competencia, tomando las medidas preventivas y correctivas para que se cumplan.
