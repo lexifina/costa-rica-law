@@ -1,0 +1,9 @@
+Artículo 3º—Lineamientos de acción:
+a) El Comité Técnico de la REDNIA definirá los procedimientos para mejorar el flujo de información documental de las áreas generadoras hacia las unidades de información, de acuerdo con las características de cada una las instituciones involucradas.
+b) Las Instituciones participantes en REDNIA, dentro de sus posibilidades, deben reforzar con recursos humanos, tecnológicos, físicos y financieros a las unidades de información para que sean competentes frente a los requerimientos y demandas de los usuarios(as).
+c) REDNIA deberá establecer e implementar un marco normativo para la gestión de información documental, que incluya tipología documental, metodología, herramientas y procedimientos para su funcionamiento dentro de la estructura pública agropecuaria.
+d) REDNIA desarrollará la Biblioteca Digital Agropecuaria de Costa Rica, como un servicio de información cooperativo de acceso libre, en apoyo a las actividades que realizan las Instituciones del Sector y sus usuarios(as).
+e) El Comité Técnico de REDNIA designará centros depositarios de documentación para aquellas instituciones que no cuentan con unidades de información, para asegurar el acceso a la información generada. Para ello se deberán firmar convenios entre las instituciones involucradas.
+f) REDNIA reforzará los vínculos de cooperación con otros sistemas de información y organismos nacionales e internacionales para aprovechar sus conocimientos y experiencia, las tecnologías informáticas desarrolladas, las fuentes de financiamiento y otros recursos, en procura de una mayor eficiencia en el servicio y evitar la duplicidad de funciones.
+g) REDNIA deberá establecer estrategias adecuadas para la divulgación y mercadeo de los servicios y productos que se generen.
+h) El Comité Técnico de REDNIA definirá mecanismos de evaluación y seguimiento para asegurar la continuidad y sostenibilidad de los servicios.

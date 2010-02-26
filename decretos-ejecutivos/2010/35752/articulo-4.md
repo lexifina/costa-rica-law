@@ -1,0 +1,1 @@
+Artículo 4º—Se deberá garantizar de manera razonable la confidencialidad, integridad y disponibilidad de la información, lo que implica protegerla contra uso, divulgación o modificación no autorizada, daño, pérdida u otros factores disfuncionales.
