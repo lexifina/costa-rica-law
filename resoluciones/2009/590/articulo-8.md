@@ -15,3 +15,4 @@ PRESEL: código de preselección conformado por el prefijo 19YZ, con “Y” y �
 AC: Código de acceso, 00 para larga distancia internacional, el cual no se digita para efectos de tráfico nacional.
 CC: Código de país, este código no se digita para efectos de tráfico nacional.
 N(S)N: Número Nacional (significativo).
+(Así reformado el aparte anterior mediante resolución N° RCS-131-2010 del 26 de febrero de 2010)

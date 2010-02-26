@@ -196,8 +196,7 @@ I.—De conformidad con los artículos 10 y siguientes del Plan Nacional de Nume
 [imagen]
 Donde:
 CC: Indicativo de país para redes (506)
-NDC: Indicativo nacional de destino
-SN: Número de abonado, (T + IA)
+IND : Indicativo nacional de destino
 N(S)N: Número Nacional (significativo).
-T: Tipo de servicio cualquier dígito del 1 a 9 (servicios especiales, telefonía fija, telefonía móvil, Telefonía IP, servicios troncalizados, beeper, entre otros).
-IA: Identificador de abonado, conformado por 7 dígitos de 0 a 9.
+NA: Identificador de abonado, conformado por 4 dígitos
+(Así reformado mediante resolución N° RCS-131-2010 del 26 de febrero de 2010)

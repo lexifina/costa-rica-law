@@ -14,3 +14,4 @@ Procedimiento de solicitud de numeración, establecimiento de números especiale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-14 | la propia norma |
+| 2 | 2010-02-26 | Resolución 131 (2010-02-26) |
