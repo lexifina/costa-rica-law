@@ -1,1 +1,1 @@
-ARTÍCULO 24.- (Así Derogado por el artículo 264 de la Ley N° 8487 del 22 de noviembre de 2005)
+Artículo 24.- (Derogado por el artículo 264 de la Ley General de Migración y Extranjería, N° 8487 del 22 de noviembre de 2005, “Ley de Migración y Extranjería del 19 de agosto de 2009”. Posteriormente vuelto a derogar por el artículo 267 de la Ley General de Migración y Extranjería, N° 8764 del 19 de agosto de 2009)
