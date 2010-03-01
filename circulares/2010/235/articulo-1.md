@@ -1,0 +1,22 @@
+DIRECCIÓN GENERAL DE MIGRACIÓN Y EXTRANJERÍA
+(Nota de Sinalevi: Esta circular fue publicada nuevamente en Las Gacetas N°s 48 y 49 del 10 y 11 de marzo de 2010)
+CIRCULAR AJUR-0235-2010
+PARA: Todo el personal de la Dirección General de Migración y Extranjería, público en general.
+DE: Lic. Mario Zamora Cordero, Director General.
+ASUNTO: Entrada en vigencia de la Ley de Migración y Extranjería Nº 8764.
+FECHA: 26 de febrero del 2010.
+Rige a partir del 1º de marzo del 2010.
+Considerando:
+I.—Que el Reglamento de la Ley de Migración Nº 8764 se encuentra todavía en revisión, considera esta Dirección que se deben emitir a las diversas Direcciones, Gestiones y Subprocesos de la Dirección General lineamientos claros para la adecuada interpretación y ejecución de la nueva normativa en ausencia del Reglamento.
+II.—De conformidad con el transitorio II de la Ley de Migración Nº 8764 la cual entra en vigencia a partir del 1 de marzo del presente año, se establece lo siguiente, se transcribe literalmente:
+Transitorio II.—“Las personas extranjeras que hayan obtenido su permanencia legal al amparo de la legislación migratoria anterior, continuarán gozando de dicho beneficio en las condiciones autorizadas originalmente. No obstante, para efectos de la renovación de su condición y del documento de permanencia en calidad de residente, deberán acreditar su adscripción a los seguros de la CCSS, de conformidad con lo dispuesto en el inciso 7) del artículo 7 y los artículos 78 y 80 de la presente Ley. Asimismo, deberán cancelar los pagos migratorios contemplados en los incisos 4) y 5) del artículo 33 y en los artículos 252, 253 y 254 de la presente Ley”.
+Este transitorio dispone en lo que interesa que las personas extranjeras que ya se les haya otorgado el beneficio de permanecer legalmente en el país, podrán continuar gozando ese beneficio en las condiciones en que les fue autorizado. Se hace referencia a las situaciones jurídica consolidadas, en las que se ha permitido el ingreso de los extranjeros y se les ha autorizado su permanencia legal bajo ciertas condiciones.
+La Sala Constitucional ha indicado que la situación jurídica consolidada, representa no tanto un plus patrimonial, sino un estado de cosas definido plenamente en cuanto a sus características jurídicas y a sus efectos, aun cuando esto no se hayas extinguido todavía”
+No obstante este transitorio dirige estas situaciones consolidadas al cumplimiento de nuevos requisitos como es el caso de la adscripción a la Caja y del pago de los nuevos rubros por este concepto. Pero en lo demás condiciones se rige por la normativa anterior.
+III.—El artículo 13 de la nueva normativa dispone entre algunas de las competencias y funciones que se le asignan al Director General en su inciso 19) lo siguiente:
+“Otorgar y renovar los documentos que acrediten la permanencia migratoria legal de personas extranjeras, incluso de las personas cuya condición de apátridas sea determinada por el Ministerio de Relaciones Exteriores y Culto”.
+De cara a lo anterior se considera necesario fijar el plazo de renovación de los documentos migratorios para los residentes permanentes que obtengan su status a partir del primero de marzo. Por tanto:
+▪ Se deja sin efecto las Circulares DG-0459-2010 y DG-0460-2010 del 25 de febrero del 2010.
+▪ Se establece de conformidad con la Ley Nº 8764, que las personas extranjeras que hayan obtenido su permanencia legal al amparo de la legislación migratoria anterior Ley Nº 8487, continuarán gozando de dicho beneficio en las condiciones autorizadas originalmente. En todos los casos que se resolvió antes del 1 de marzo del 2010 se aplicarán las condiciones autorizadas de la Ley Nº 8784 para cada caso específico.
+▪ En los casos que se resuelvan a partir del 1 de marzo del 2010, se aplicará lo que establezca la nueva Ley de Migración Nº 8764 y su respectivo Reglamento. Fijándose el periodo de renovación autorizado para los residentes permanentes cada dos años.
+▪ En aras de no causar la paralización del servicio y en beneficio del usuario, se resuelve de conformidad con la normativa citada anteriormente, que todas procedimientos y requisitos para las diversas solicitudes de permanencia legal en Costa Rica y otras gestiones propias de las labores de la institución, continuarán sin alteración, con la excepción de aquellas que se opongan o resulten incompatibles con la aplicación de la nueva Ley de conformidad con el artículo 268 de la Ley Nº 8764, en espera de la publicación del nuevo Reglamento.
