@@ -1,1 +1,0 @@
-Artículo 138.—Si una persona costarricense se encuentra en el exterior y su pasaporte se destruye, es sustraído, hurtado, robado o extraviado, el cónsul podrá extenderle un documento de viaje, previa autorización expresa de la Dirección General. En este caso, la persona interesada deberá pagar el doble de los impuestos que graven los actos este tipo.

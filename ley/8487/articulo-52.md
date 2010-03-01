@@ -1,1 +1,0 @@
-Artículo 52.—Contra la denegatoria de la visa no cabrá recurso alguno. Sin embargo, a instancia de parte legitimada, el Ministro de Gobernación y Policía podrá revisar la denegatoria de la visa, previa recomendación del Consejo, criterio que deberá rendirse dentro de un plazo máximo de diez días naturales, contados a partir de la solicitud de reconsideración.

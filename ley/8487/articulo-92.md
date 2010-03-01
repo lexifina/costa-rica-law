@@ -1,1 +1,0 @@
-Artículo 92.—Las personas extranjeras admitidas bajo las categorías especiales no podrán cambiar de categoría mientras estén en el país, salvo las que cuenten con vínculo conyugal con ciudadano costarricense o vínculo consanguíneo de primer grado con costarricense o salvo lo dispuesto por convenios internacionales vigentes ratificados y en Costa Rica.

@@ -1,1 +1,0 @@
-Artículo 172.—Todo empleador, intermediario o contratista, al contratar o proporcionar trabajo u ocupación a una persona extranjera, deberá verificar la permanencia legal en el país de la persona extranjera y que se encuentre autorizada para ello, así como exigirle el documento que acredite su condición migratoria para tales efectos.

@@ -1,1 +1,0 @@
-Artículo 241.—Con los dineros que integran el Fondo específico, la Dirección General podrá efectuar inversiones en títulos valores en bancos comerciales del Estado. Los intereses que dichas inversiones generen se depositarán en la cuenta fondo específico de la Dirección General de Migración y Extranjería.

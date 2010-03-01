@@ -1,1 +1,0 @@
-Artículo 249.—La Dirección General podrá cobrar el costo de los documentos y accesorios que extienda. Los fondos integrarán el fondo específico establecido por la presente Ley y se utilizarán en la compra de materiales y equipo para la confección de dichos documentos y accesorios.

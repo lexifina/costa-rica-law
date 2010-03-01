@@ -1,1 +1,0 @@
-Artículo 116.—En los casos anteriores, la Dirección General o el Poder Ejecutivo, según corresponda, cancelarán la condición de refugiado o de asilado a la persona extranjera y a los familiares que convivan con ella, cuando la condición migratoria legal se haya reconocido por extensión del titular.

@@ -1,1 +1,0 @@
-Artículo 35.—Las regulaciones sobre ingreso, egreso y permanencia para las personas extranjeras que soliciten asilo o la condición de refugiado, se regirán conforme a la Constitución Política, los convenios ratificados y vigentes en Costa Rica, y la demás legislación vigente.

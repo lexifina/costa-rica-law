@@ -1,5 +1,0 @@
-Artículo 6º—La formulación de la política migratoria estará orientada principalmente a lo siguiente:
-a. Seleccionar los flujos migratorios, con el objeto de incrementar la inversión de capital extranjero y fortalecer el conocimiento científico, tecnológico, cultural y profesional, en las áreas que para el Estado se definan como prioritarias.
-b. Facilitar el retorno de las personas nacionales residentes en el exterior que deseen regresar al país y, en particular, promover el retorno de quienes posean altas calificaciones profesionales o técnicas, cuando su reinserción en el país los posibilite, según los requerimientos del mercado de trabajo y lo aconsejen las razones científicas, tecnológicas, económicas, educacionales o sociales.
-c. Controlar el ingreso de personas extranjeras al país, su permanencia en él, así como su egreso, en concordancia con la seguridad pública, y con los mejores intereses del país.
-d. Orientar la inmigración a las zonas cuyo desarrollo se considere prioritario, hacia actividades y ramas económicas que para el Estado resulte de interés favorecer.

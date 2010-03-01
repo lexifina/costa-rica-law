@@ -1,1 +1,0 @@
-Artículo 169.—En caso de reincidencia, en un año calendario, en el incumplimiento de las normas establecidas por la presente Ley por parte de un medio de transporte, la Dirección General de Migración y Extranjería remitirá formal denuncia a los entes competentes del Ministerio de Obras Públicas, a fin de que se inicie el procedimiento administrativo correspondiente.
