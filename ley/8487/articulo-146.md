@@ -1,1 +1,0 @@
-Artículo 146.—Las compañías, empresas o agencias propietarias, representantes, explotadoras o consignatarias de medios de transporte internacional, serán responsables del transporte de pasajeros y tripulantes en condiciones legales. Dicha responsabilidad subsiste hasta que hayan pasado el control migratorio y sean admitidos en el territorio de la República.

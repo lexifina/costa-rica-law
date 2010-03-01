@@ -1,1 +1,0 @@
-Artículo 165.—La Dirección General de Migración y Extranjería en coordinación con la Policía de Tránsito u otras oficinas competentes del Ministerio de Obras Públicas y Transportes, podrá detener los medios de transporte terrestre, por el tiempo estrictamente necesario, para efectuar el control migratorio dentro del país.

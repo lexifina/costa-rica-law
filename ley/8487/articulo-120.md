@@ -1,1 +1,0 @@
-Artículo 120.—Transcurridos tres años de haberse reconocido la condición de refugiado, asilado o apátrida, la Dirección General, a solicitud de parte, autorizará el cambio de categoría migratoria, bajo las categorías de residente temporal o permanente, siempre que la persona solicitante cumpla los requisitos establecidos en esta Ley.

@@ -1,1 +1,0 @@
-Artículo 190.—La Dirección General, de oficio o a solicitud de parte, podrá dictar las medidas cautelares razonables y necesarias para garantizar el resultado de los procedimientos administrativos que deba realizar en aplicación de la presente Ley. Podrá solicitarse la colaboración de las distintas policías para ejecutar medidas cautelares.

@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Policía de Migración y Extranjería
-Artículo 15.—La Policía de Migración y Extranjería será el cuerpo policial especializado de la fuerza pública, adscrito al Ministerio de Gobernación y Policía, competente para controlar y vigilar el ingreso y el egreso de personas al territorio nacional, así como la permanencia y las actividades de las personas extranjeras, según las disposiciones de la presente Ley y su Reglamento. Operativamente, estará a cargo del Director General, cuyas instrucciones, órdenes y directrices serán de acatamiento obligatorio. El Poder Ejecutivo dictará el Reglamento por el cual se regirán la organización, las funciones y las obligaciones de la Policía de Migración y Extranjería.

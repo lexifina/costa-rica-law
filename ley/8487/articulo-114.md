@@ -1,1 +1,0 @@
-Artículo 114.—La denegatoria de asilo será definitiva y contra ella no cabrá recurso alguno. Los recursos administrativos contra la denegatoria del refugio se regularán por lo establecido en la presente Ley.

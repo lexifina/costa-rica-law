@@ -1,1 +1,0 @@
-Artículo 132.—La Dirección General, excepcionalmente y mediante resolución fundada de conformidad con el Reglamento de la presente Ley, podrá rebajar el depósito de garantía indicado en el presente capítulo. Bajo ninguna circunstancia el rebajo será superior al cincuenta por ciento (50%) del depósito normal.
