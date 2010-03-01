@@ -1,1 +1,0 @@
-Artículo 58.—La determinación y ejecución del rechazo no requieren procedimiento administrativo previo. Contra la decisión de la autoridad migratoria de ejecutar el rechazo, no cabrá la interposición de recurso administrativo alguno.

@@ -1,1 +1,0 @@
-Artículo 76.—Los residentes temporales únicamente podrán realizar las actividades remuneradas o lucrativas, por cuenta propia o en relación de dependencia, que la Dirección General les autorice, de conformidad con los estudios técnicos del Ministerio de Trabajo y de Seguridad Social.

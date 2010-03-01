@@ -1,1 +1,0 @@
-Artículo 117.—La declaratoria, los derechos y las obligaciones de la persona apátrida, se regirán por lo dispuesto en los convenios internacionales sobre la materia, debidamente ratificados por Costa Rica, que se encuentren vigentes y en el Reglamento de la presente Ley.

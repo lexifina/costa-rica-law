@@ -1,1 +1,0 @@
-Artículo 45.—Las personas extranjeras que pretendan ingresar bajo las categorías especiales, a excepción de las subcategorías de refugiados o asilados, requerirán la correspondiente visa de ingreso, según el procedimiento y por el plazo que establezca la Dirección General.

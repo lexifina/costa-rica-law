@@ -1,1 +1,0 @@
-Transitorio II.—Las personas extranjeras que hayan obtenido su residencia legal al amparo de la legislación migratoria anterior, continuarán gozando de ese beneficio, en las condiciones originalmente autorizadas. Para efectos de la renovación de su condición y del documento de permanencia en calidad de residente, se aplicará lo dispuesto en la presente Ley y su Reglamento.

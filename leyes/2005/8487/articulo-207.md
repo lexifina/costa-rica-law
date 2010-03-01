@@ -1,1 +1,0 @@
-Artículo 207.—Completado el trámite inicial del procedimiento, y comprobada la ilegalidad del ingreso o la permanencia de la persona extranjera, la Dirección General dictará la resolución de deportación que corresponda, la cual deberá ser notificada debidamente. Dicha resolución será ejecutada por la Policía de Migración y Extranjería.

@@ -1,1 +1,0 @@
-Artículo 130.—Exonerase del pago del depósito de garantía al refugiado, el asilado y el apátrida. Si optan por un cambio de categoría, la Dirección General les fijará discrecionalmente el monto de la garantía, el cual no podrá exceder de un veinte por ciento (20%) de un salario base, conforme se define en la Ley N° 7337, de 5 de mayo de 1993.

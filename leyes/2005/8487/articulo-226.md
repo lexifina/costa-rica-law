@@ -1,1 +1,0 @@
-Artículo 226.—De haberse interpuesto el recurso de apelación en forma subsidiaria, los autos automáticamente pasarán a conocimiento del Ministro de Gobernación y Policía, para su conocimiento y resolución, en un plazo máximo de quince días.

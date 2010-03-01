@@ -1,1 +1,0 @@
-Artículo 60.—El otorgamiento de la categoría migratoria pretendida estará condicionado a presupuestos de seguridad pública y al desarrollo económico y social del país, además de los requisitos que determine el Reglamento de la presente Ley.

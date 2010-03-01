@@ -1,1 +1,0 @@
-Artículo 37.—Las personas extranjeras que posean la documentación y cumplan los requisitos de ingreso establecidos en la presente Ley, tendrán derecho a ingresar al país y a que la autoridad migratoria competente haga constar el comprobante de autorización de ingreso correspondiente.

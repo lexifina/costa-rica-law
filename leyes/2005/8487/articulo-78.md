@@ -1,1 +1,0 @@
-Artículo 78.—Las personas interesadas deberán tramitar sus solicitudes para obtener los beneficios de esta Ley por medio de los funcionarios consulares acreditados en el extranjero, salvo lo dispuesto en el artículo 61 de esta Ley.

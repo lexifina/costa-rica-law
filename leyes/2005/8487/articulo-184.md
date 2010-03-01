@@ -1,1 +1,0 @@
-Artículo 184.—La resolución que ordene la expulsión de una persona extranjera implicará la pérdida de su condición migratoria legal, sin que ello conlleve la necesidad de realizar un procedimiento administrativo adicional de cancelación.
