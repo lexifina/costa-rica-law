@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8487
+(Este ley fue Derogada por el artículo 266 de la Ley General de Migración y Extranjería, N° 8764 del 19 de agosto de 2009)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
