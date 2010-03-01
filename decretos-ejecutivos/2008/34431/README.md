@@ -14,3 +14,4 @@ Reglamento del Canon Ambiental por Vertidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-18 | la propia norma |
+| 2 | 2010-03-01 | Decreto Ejecutivo 35992 (2010-03-01) |
