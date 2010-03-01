@@ -1,0 +1,18 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RES-DGA-027-2010.—San José, a las ocho horas con diez minutos del día veintiocho de enero de dos mil diez.
+Considerando:
+I.—Que el artículo 6 de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº 212 del 08 de noviembre de 1995 y sus reformas, establece que uno de los fines del régimen jurídico es facilitar y agilizar las operaciones de comercio exterior.
+II.—Que el artículo 9 de la Ley General de Aduanas, establece como funciones del Servicio Nacional de Aduanas, actualizar los procedimientos aduaneros y proponer las modificaciones de las normas, para adaptarlas a los cambios técnicos, tecnológicos y a los requerimientos del Comercio Internacional.
+III.—Que el artículo 11 de la Ley General de Aduanas, señala que la Dirección General de Aduanas es el órgano superior jerárquico nacional en materia aduanera, que en el uso de su competencia le corresponde la dirección técnica y administrativa de las funciones aduaneras que esta ley y las demás disposiciones del ramo le conceden al Servicio Nacional de Aduanas, la emisión de políticas y directrices para las actividades de las aduanas y dependencias a su cargo.
+IV.—Que le corresponde al Departamento de Procesos Aduaneros, preparar las directrices, normas, formatos y documentos que asociados a los procesos aduaneros estandaricen los criterios y unifiquen la aplicación de las normas técnicas vigentes, tendientes a facilitar el comercio.
+V.—Que con la resolución RES-DGA-352-2009 de las doce horas del 18 de noviembre de 2009, se comunicó el programa de implementación para el Régimen de Zona Franca.
+VI.—Que mediante la Ley Nº 8794 publicada en La Gaceta Nº 15 del 22 de enero de 2010, se modifica la Ley de Régimen de Zonas Francas, número 7210 del 23 de noviembre de 1990.
+VII.—Que en razón de lo indicado en los dos puntos anteriores, procede esta Dirección a modificar “Formato de Mensaje Declaración Única Aduanera Versión 3.4.2”, en lo relacionados con la eliminación de la solicitud de prenda aduanera, para los internamientos al territorio aduanero nacional de maquinaria, vehículos y equipos provenientes de las empresas de Zonas Francas y lo relativo a las modalidades 04-71 “Internamiento temporal para ferias, reparación, entrenamiento de personal o demostraciones”, 04-72 “Internamiento temporal de bienes para actividades fuera del área habilitada”. Además habilitar el envío de modificaciones al DUA en el régimen de tránsito aduanero. Por tanto:
+Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6, 9, 11, y 22 de la Ley General de Aduanas Nº 7557 del 20 de octubre 1995 y sus reformas:
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+1º—Modificar el mensaje “Formato de Mensaje Declaración Única Aduanera Versión 3.4.2”, en lo relacionados con la eliminación de la solicitud de prenda aduanera, para los internamientos al territorio aduanero nacional de maquinaria, vehículos y equipos provenientes de las empresas de Zonas Francas y lo relativo a las modalidades 04-71 “Internamiento temporal para ferias, reparación, entrenamiento de personal o demostraciones”, 04-72 “Internamiento temporal de bienes para actividades fuera del área habilitada” y lo relativo a la modificación del DUA en el régimen de tránsito aduanero.
+2º—El mensaje completo con las modificaciones indicadas, estará disponible en las siguientes direcciones electrónicas:
+www.hacienda.go.cr/Msib21/Espanol/tica/tc_mensajes.htm
+https://www.hacienda.go.cr/Msib21/Espanol/Direccion+General+de+Aduanas/MENSAJES+Y+CODIGOS+TICA.htm
+3º—Rige a partir del 1 de marzo de 2010.
+4º—Comuníquese y publíquese en el Diario Oficial La Gaceta
