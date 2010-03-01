@@ -1,0 +1,7 @@
+FONDO NACIONAL DE FINANCIAMIENTO FORESTAL
+Acuerdo segundo:
+Modificar el Manual de Procedimientos 2009 en los siguientes aspectos: El inciso a) punto 7.1.6 para que se lea:
+a) Certificación del plano catastrado del inmueble en posesión o plano elaborado por el Instituto de Desarrollo Agrario IDA. Sin excepción alguna los planos catastrados que se aporten deberán ser certificados por el MINAE por medio del SINAC, el cual deberá dar fe de el inmueble se encuentra dentro de Áreas Silvestres Protegidas o fuera de ellas.
+Recibida la presolicitud, el Encargado de la Oficina Regional de FONAFIFO remitirá el plano catastrado al funcionario competente del Área de Conservación respectiva, quien emitirá la certificación respectiva.
+El punto 7.2.1 para que se lea:
+Valorada la ubicación del inmueble, si éste se encuentra dentro de un Área Silvestre Protegida, se procederá a solicitarle al Director del Área de Conservación una nota de “no objeción de ingreso del inmueble a PSA”. La nota será remitida a la Oficina Regional de FONAFIFO en un plazo de 10 días hábiles posteriores a la notificación. De existir objeción por parte del Director del Área de Conservación para el ingreso del inmueble a PSA, el Encargado de la Oficina Regional, dará traslado de la “nota de objeción” al interesado, a quien se le otorgará un plazo no mayor a 15 días hábiles para que cumpla con tal requisito, de no presentarse la nota de “no objeción” dentro del plazo conferido, se procederá con el archivo de la presolicitud.
