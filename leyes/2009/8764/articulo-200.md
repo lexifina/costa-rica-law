@@ -1,0 +1,2 @@
+ARTÍCULO 200.-
+La Dirección General contará con un plazo máximo de tres meses para resolver, a partir del momento en que se hayan cumplido todos los requisitos. Cuando se trate de peticiones para optar por la condición migratoria legal, este plazo correrá a partir del recibo de la documentación, en las oficinas centrales de la Dirección General.

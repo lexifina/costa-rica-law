@@ -1,0 +1,2 @@
+ARTÍCULO 169.-
+La Dirección General podrá autorizar el ingreso al país y la permanencia en él de una persona extranjera que labore para un medio de transporte terrestre internacional, según las directrices generales de visas de ingreso y permanencia para no residentes, en razón de sus funciones activas. Cuando la persona extranjera ingrese al país, deberá cumplir los requisitos y las condiciones de ingreso dispuestos en la presente Ley y su Reglamento.

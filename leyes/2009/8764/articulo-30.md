@@ -1,0 +1,2 @@
+ARTÍCULO 30.-
+El Tribunal Administrativo Migratorio estará obligado a procurar el asesoramiento que considere idóneo y necesario cuando por la tecnicidad lo amerite, a fin de resolver cada extremo planteado, pues sus resoluciones deberán ser siempre razonadas. El asesoramiento podrá provenir de cualquier organismo, nacional e internacional o de personas, jurídicas o físicas, no relacionadas con el asunto por resolver o interesadas en él.

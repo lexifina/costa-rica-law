@@ -1,0 +1,2 @@
+ARTÍCULO 149.-
+Ningún medio de transporte internacional podrá salir del país sin la autorización expresa de la Dirección General, previo control migratorio y cumplimiento de los requisitos de egreso, por parte de los pasajeros y su personal. El incumplimiento de esta normativa acarreará, para el infractor, una multa equivalente a diez mil dólares moneda de los Estados Unidos de América (US $10 000,00).

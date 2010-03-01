@@ -1,0 +1,5 @@
+ARTÍCULO 80.-
+Los residentes temporales únicamente podrán realizar las actividades remuneradas o lucrativas, por cuenta propia o en relación de dependencia, que la Dirección General les autorice. Tal autorización tomará en cuenta los dictámenes de carácter recomendativo elaborados por el Ministerio de Trabajo y Seguridad Social, así como otros criterios de conveniencia y oportunidad.
+Asimismo, los dependientes de dichos residentes temporales podrán estudiar o laborar, previa autorización de la Dirección. Además, deberán cancelar el pago migratorio correspondiente.
+Los residentes temporales comprendidos en las categorías 1), 2), 5) y 6) del artículo 79 de esta Ley, quedarán exentos del pago migratorio contemplado en el inciso 4) del artículo 33 de esta Ley.
+Para efectos de renovación de su condición migratoria y cuando corresponda, los residentes temporales deberán acreditar su aseguramiento a los seguros de la CCSS, desde el momento en que se les otorga dicha residencia y en forma ininterrumpida hasta el momento de renovar su cédula de extranjería. Las excepciones a esta norma serán establecidas vía reglamento.

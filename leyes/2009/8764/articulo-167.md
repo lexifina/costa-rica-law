@@ -1,0 +1,4 @@
+CAPÍTULO IV
+TRANSPORTE TERRESTRE
+ARTÍCULO 167.-
+La Dirección General de Migración y Extranjería podrá impedir, el ingreso al país o la salida de él, de todo medio de transporte terrestre, nacional o internacional en el que viajen personas que no cumplan las disposiciones de la presente Ley y su Reglamento. Para tales efectos, contará con la ayuda del Ministerio de Seguridad Pública y el MOPT, por medio de la Dirección General de Tránsito, la cual procederá a la detención provisional del medio de transporte, cuando así lo solicite la Dirección General, hasta que sus ocupantes cumplan los requisitos y las condiciones migratorias fijados para egresar del país o ingresar a él, o hasta que desistan del viaje.

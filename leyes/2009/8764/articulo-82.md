@@ -1,0 +1,3 @@
+ARTÍCULO 82.-
+Para obtener la permanencia legal bajo la subcategoría de rentistas, las personas extranjeras deberán comprobar que disfrutan rentas mensuales, permanentes y estables, provenientes o generadas del exterior o de los bancos del Sistema Bancario Nacional, por un monto mínimo de dos mil quinientos dólares moneda de los Estados Unidos de América (US $2500,00) o su equivalente, por mes. Las personas extranjeras que deseen optar por estas subcategorías podrán amparar a sus dependientes para efectos migratorios.
+Con dicho monto, el interesado podrá solicitar su permanencia legal, la de su cónyuge y la de sus hijos menores de veinticinco años o los hijos mayores con discapacidad.

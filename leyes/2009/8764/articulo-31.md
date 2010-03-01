@@ -1,0 +1,20 @@
+TÍTULO IV
+DERECHOS, LIMITACIONES Y OBLIGACIONES
+DE LAS PERSONAS EXTRANJERAS
+CAPÍTULO I
+DERECHOS Y LIMITACIONES
+ARTÍCULO 31.-
+Las personas extranjeras gozarán de los derechos y las garantías individuales y sociales reconocidos para las personas costarricenses en la Constitución Política, salvo las limitaciones que esta establezca. Las normas relativas a los derechos fundamentales de las personas extranjeras se interpretarán conforme a los convenios en materia de derechos humanos y a los tratados y acuerdos internacionales ratificados que se encuentren vigentes y, específicamente, por lo siguiente:
+1) Toda persona extranjera tendrá derecho de acceso a la justicia, al respeto de las garantías del debido proceso, al derecho de defensa y al derecho de petición y respuesta.
+2) Las personas extranjeras que cuenten con autorización para permanecer en el país podrán circular libremente por el territorio nacional, por el tiempo que defina la autorización.
+3) Las personas extranjeras estarán sujetas a los requisitos fijados en esta Ley, su Reglamento y en otras normas jurídicas aplicables, para ingresar al país, permanecer en él o egresar de él.
+4) Las personas extranjeras podrán ser compelidas a abandonar el país, cuando sean sujetas a sanciones administrativas, según lo dispuesto en la presente Ley o cuando así lo disponga la autoridad judicial.
+5) Las personas extranjeras únicamente podrán ser detenidas según lo dispuesto por la Constitución Política, las leyes y las disposiciones contempladas en la presente Ley. Para la aplicación de la legislación migratoria, este derecho podrá ser limitado bajo los siguientes supuestos y condiciones de carácter excepcional, siempre y cuando no exista otra medida menos gravosa:
+a) Aprehensión cautelar por un máximo de veinticuatro horas, para efectos de verificar su condición migratoria. Este plazo podrá ser ampliado en situaciones especiales y bajo resolución justificada y emitida por el director general. Confirmada la infracción migratoria y al descartase otra medida menos gravosa, la Dirección General deberá dictar el procedimiento de deportación.
+b) Una vez resuelta la identificación de la persona extranjera, por parte del consulado de su país de origen, la detención administrativa no podrá exceder el plazo máximo de treinta días naturales y en dicho término deberá ejecutarse la deportación dictada. Este plazo podrá ser ampliado en situaciones especiales y justificadas por parte de la Dirección General.
+c) En caso de detención administrativa, la persona extranjera tendrá derecho a permanecer durante el período de aprehensión en un lugar que cuente con las condiciones necesarias para garantizar un trato digno y respetuoso, así como las especificidades de género, generacional o discapacidad.
+6) Las personas extranjeras tendrán acceso al sistema de seguridad social costarricense, de acuerdo con la legislación vigente y su categoría migratoria. Asimismo, tendrán el deber de contribuir con la sostenibilidad del sistema de seguridad social y de contribuir con los gastos públicos.
+7) Toda persona extranjera que se encuentre sometida al control y los procedimientos migratorios deberá ser informada de las razones de su aprehensión, ofrecérsele posibilidad de comunicación, incluida la requerida para la asistencia consular, acceso a un abogado por cuenta propia; además, deberá contar con un intérprete, en caso de que sea necesario, así como el pleno acceso al expediente administrativo. En caso de aprehensión, tendrá derecho a que se le garantice un trato digno y adecuado, tomando en cuenta las especificidades en razón de género, edad, discapacidad y otros.
+8) Toda persona extranjera tiene derecho a buscar y recibir asilo en el territorio nacional, en razón de los convenios internacionales suscritos y ratificados por el país.
+9) Ningún extranjero solicitante de refugio o que se le haya otorgado dicha condición, podrá ser expulsado, deportado o rechazado a otro país, sea o no de origen, donde su derecho a la vida esté en riesgo.
+10) Toda persona extranjera autorizada a permanecer legalmente en el país tiene derecho a integrarse plenamente a la sociedad costarricense.

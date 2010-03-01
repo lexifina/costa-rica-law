@@ -1,0 +1,2 @@
+ARTÍCULO 257.-
+Para ser beneficiarios de visa múltiple, según lo establecido en la presente Ley, las personas extranjeras deberán pagar la suma de cien dólares en moneda de los Estados Unidos de América (US$100,00) o su equivalente en colones al tipo de cambio de referencia “venta”, que diariamente calcula y publica el Banco Central de Costa Rica, a favor del Estado, mediante entero a favor del Gobierno de la República o en otra forma idónea que garantice una adecuada recaudación.

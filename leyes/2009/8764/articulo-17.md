@@ -1,0 +1,3 @@
+ARTÍCULO 17.-
+El personal de la Policía Profesional de Migración y Extranjería estará sujeto a la presente Ley y su Reglamento, a la Ley general de policía y su Reglamento, y a la Ley general de la Administración Pública, en lo aplicable a ese cuerpo policial, sin perjuicio de los derechos laborales adquiridos.
+Quienes ocupen la jefatura y la subjefatura de la Policía Profesional de Migración y Extranjería serán empleados de confianza nombrados por el director general de Migración y Extranjería, deberán cumplir los requisitos que para su cargo se establecen en la Ley general de policía y su Reglamento, y desempeñarán las tareas específicas que este les asigne. La organización, la cadena de mando y sus signos distintivos serán definidos en el reglamento respectivo.

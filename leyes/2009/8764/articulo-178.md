@@ -1,0 +1,2 @@
+ARTÍCULO 178.-
+La verificación de la infracción de lo dispuesto en la presente Ley o su Reglamento, no exime a los empleadores del cumplimiento de las obligaciones inherentes al régimen de seguridad social, ni del pago de salarios u otro tipo de remuneración al que tenga derecho el personal que haya sido contratado; para ello, se le comunicará al Ministerio de Trabajo y Seguridad Social lo correspondiente.

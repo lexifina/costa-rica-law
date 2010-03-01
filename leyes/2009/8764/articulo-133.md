@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+DEPÓSITOS DE GARANTÍA
+ARTÍCULO 133.-
+Toda persona extranjera autorizada para ingresar al país y permanecer en él como residente permanente, residente temporal, trabajadores temporales o como no residente, esta última categoría cuando corresponda, según el Reglamento de la presente Ley, deberá depositar una garantía en dinero efectivo, de conformidad con el monto que fije la Dirección General, el cual no podrá exceder el valor del boleto aéreo, terrestre o marítimo al país de origen del usuario, cotizado en temporada alta. Este depósito podrá ser realizado en colones o dólares, moneda de los Estados Unidos de América. El monto, la forma de pago y el tipo de tiquete de viaje al que se refiere el presente artículo, serán definidos por el Reglamento de la presente Ley, así como los casos de exoneración definidos tanto en la presente Ley como en dicho Reglamento.

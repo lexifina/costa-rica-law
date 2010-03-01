@@ -1,0 +1,2 @@
+ARTÍCULO 21.-
+Quienes sean representantes consulares de Costa Rica deberán cumplir funciones de agentes de migración en el exterior y estarán obligados a acatar y cumplir las disposiciones de la Dirección General, la presente Ley, su Reglamento y las directrices generales de visas de ingreso y permanencia para no residentes. Serán evaluados anualmente mediante la presentación al director general de Migración, de un informe de gestión.

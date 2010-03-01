@@ -1,0 +1,2 @@
+ARTÍCULO 126.-
+Transcurridos tres años de haberse reconocido la condición de refugiado, asilado o apátrida, la Dirección General, a solicitud de parte, autorizará el cambio de categoría migratoria, bajo la categoría de residente permanente, siempre que la persona solicitante cumpla los requisitos establecidos en esta Ley. Tal variación no implicará la renuncia de la condición de refugiado de la persona interesada, salvo que esta lo manifieste así expresamente.

@@ -1,0 +1,2 @@
+ARTÍCULO 209.-
+Cuando existan indicios de que una persona extranjera se encuentra ilegal en suelo costarricense, la Dirección General, por sí o por medio de la Policía de Migración y Extranjería, dará inicio al procedimiento que corresponda, mediante la indicación de los hechos y cargos que se imputan y el objeto del procedimiento, en el cual otorgará, de manera inmediata, audiencia oral para que la persona extranjera pueda ejercer su derecho de defensa.

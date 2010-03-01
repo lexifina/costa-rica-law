@@ -1,0 +1,2 @@
+ARTÍCULO 203.-
+La Dirección General podrá delegar las funciones determinadas por la presente Ley y su Reglamento. Se autoriza la delegación no jerárquica. El acto correspondiente deberá hacer expresa manifestación de la función delegable, así como el órgano y las personas sobre quienes recaiga la obligación. La delegación de estas funciones, determinadas no jerárquicas, deberá ser publicada en el diario oficial La Gaceta.

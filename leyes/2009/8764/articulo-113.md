@@ -1,0 +1,2 @@
+ARTÍCULO 113.-
+Concedido el asilo por el Ministerio de Relaciones Exteriores y Culto, la Dirección General deberá documentar al asilado, conforme al procedimiento que establezca el Reglamento de la presente Ley.

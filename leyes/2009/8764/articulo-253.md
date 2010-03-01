@@ -1,0 +1,2 @@
+ARTÍCULO 253.-
+Por la emisión de cualquier documento que acredite la permanencia legal de una persona extranjera, así como del duplicado, el interesado deberá cancelar a favor del Estado la suma de treinta dólares en moneda de los Estados Unidos de América (US$30,00) o su equivalente en colones al tipo de cambio de referencia “venta”, que diariamente calcula y publica el Banco Central de Costa Rica. El monto establecido deberá cancelarse mediante entero a favor del Gobierno de la República o en otra forma idónea que garantice una adecuada recaudación.

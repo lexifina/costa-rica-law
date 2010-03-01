@@ -1,0 +1,2 @@
+ARTÍCULO 261.-
+Todos los estudios y las recomendaciones dispuestos en la presente Ley por inopia laboral o de otra índole, deberán emitirse con base en investigaciones de exclusivo carácter técnico y con el parecer de los sectores sociales involucrados; para ello, podrán gestionar la participación de equipos interdisciplinarios de otras instituciones públicas, así como de instancias de la sociedad civil que garanticen la actualidad y veracidad de la información.

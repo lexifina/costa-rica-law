@@ -1,0 +1,4 @@
+ARTÍCULO 49.-
+La Comisión de Visas Restringidas y Refugio estará integrada por el ministro de Trabajo y Seguridad Social o su representante, el ministro de Seguridad Pública o su representante y el ministro de Relaciones Exteriores y Culto o su representante. El Reglamento de la presente Ley establecerá lo relativo a su funcionamiento y organización.
+La Comisión de Visas Restringidas y Refugio tendrá a su cargo la determinación del otorgamiento de visas restringidas y de la condición de refugio de las personas que así lo soliciten ante la Dirección General.
+Las personas miembros de la Comisión devengarán dietas, salvo que sesionen con interposición horaria de su trabajo. El monto, los incrementos y el número de estas dietas serán iguales a los que el Poder Ejecutivo determine para las personas miembros de las juntas de las instituciones autónomas.

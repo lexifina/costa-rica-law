@@ -1,0 +1,2 @@
+ARTÍCULO 158.-
+La persona extranjera que labore en un medio de transporte internacional, no podrá permanecer en territorio costarricense después de la salida del transporte en que arribó al país, sin autorización expresa de la Dirección General. En caso de deserción del tripulante o el personal de dotación, las empresas o agencias propietarias, representantes, explotadoras o consignatarias de transporte internacional quedarán obligadas a sufragar los gastos de su estadía y a trasladarlo por su cuenta fuera del territorio nacional.

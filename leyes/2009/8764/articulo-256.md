@@ -1,0 +1,2 @@
+ARTÍCULO 256.-
+La persona extranjera que ingrese al país bajo la categoría migratoria de no residente, y solicite prórroga del plazo de permanencia legal autorizado, deberá cancelar la suma de cien dólares en moneda de los Estados Unidos de América (US $100,00) o su equivalente en colones al tipo de cambio de referencia “venta”, que diariamente calcula y publica el Banco Central de Costa Rica, mediante entero a favor del Gobierno de la República o en otra forma idónea que garantice su pago efectivo. Sin la comprobación de este pago, no se dará trámite a la solicitud.

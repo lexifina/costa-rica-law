@@ -1,0 +1,2 @@
+ARTÍCULO 180.-
+Los empleadores están obligados a enviar a la Dirección General, cuando esta lo solicite, un reporte de las personas extranjeras que trabajen en sus empresas y a no obstaculizar las inspecciones que realicen las autoridades migratorias en los centros de trabajo. Asimismo, deberán firmar el acta de inspección respectiva. En caso de negativa, la Dirección de Migración remitirá al Ministerio Público para lo correspondiente.

@@ -1,0 +1,3 @@
+ARTÍCULO 28.-
+El Tribunal Administrativo Migratorio deberá realizar sus funciones sujeto a los principios de oralidad, oficialidad, celeridad e inmediación de la prueba, sin perjuicio de la implementación de medios supletorios para la evacuación de la prueba, cuando las circunstancias así lo ameriten.
+El Tribunal deberá ajustar su actuación al procedimiento y las normas de funcionamiento establecidos en la presente Ley y su Reglamento, y supletoriamente, por la Ley general de la Administración Pública, N.º 6227, de 2 de mayo de 1978; el Código Procesal Contencioso-Administrativo, N.º 8508, de 28 de abril de 2006, y la Ley N.º 8220, Protección al ciudadano del exceso de requisitos y trámites administrativos, de 4 de marzo de 2002.

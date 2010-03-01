@@ -1,0 +1,3 @@
+ARTÍCULO 116.-
+La interposición de una solicitud para el reconocimiento de la condición de refugiado o asilado, tendrá efecto suspensivo sobre la ejecución de la extradición de la persona extranjera, hasta que el procedimiento correspondiente haya sido completado, mediante resolución firme.
+El reconocimiento de la condición de refugiado o asilado tendrá el efecto de terminar cualquier procedimiento de extradición iniciado contra la persona refugiada o asilada, a petición del gobierno del país donde se haya cometido el supuesto delito, basado en los mismos hechos que justificaron dicho reconocimiento.
