@@ -1,5 +1,6 @@
 DECRETO EJECUTIVO
 29393-MINAE
+(Nota de Sinalevi: Mediante sesión N° 02 del 1° de marzo de 2010, el Sistema Nacional de Áreas de Conservación, acordó modificar este decreto en lo referente: "...al aprovechamiento maderable en terrenos de uso agropecuario y sin bosque dentro de las Áreas Silvestres Protegidas, tratándose de reservas forestales, zonas protectoras y refugios de vida silvestre, cuando el pago o la expropiación no se haya efectuado y mientras se efectúan, por lo que solo se podrá efectuar el aprovechamiento maderable, cuando haya cumplido a satisfacción de la Administración Forestal del Estado, lo establecido en la Guía Ambiental diseñada para tal efecto (ANEXO 5.)")
 EL PRESIDENTE DE LA REPÚBLICA Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
 En ejercido de las facultades que le otorgan los incisos 3) y 18) del artículo 140 de la Constitución Política y en acatamiento al artículo 37 de la Ley Orgánica del Ambiente.
 CONSIDERANDO

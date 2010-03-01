@@ -14,3 +14,4 @@ Plan de Ordenamiento Ambiental
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-15 | la propia norma |
+| 2 | 2010-03-01 | Reglamento 2 (2010-03-01) |
