@@ -14,3 +14,4 @@ Reglamento sobre modificaciones al Presupuesto de la Municipalidad de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-25 | la propia norma |
+| 2 | 2010-03-01 | Reglamento municipal 200 (2010-03-01) |

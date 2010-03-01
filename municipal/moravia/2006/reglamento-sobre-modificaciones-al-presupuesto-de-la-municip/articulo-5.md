@@ -1,5 +1,6 @@
 Artículo 5º—Disposiciones específicas de las modificaciones presupuestarias.
-1) En la formulación y aprobación de las modificaciones presupuestarias serán solicitadas por escrito por el Alcalde Municipal, con su respectiva justificación de rebajo y aumento de las partidas de egresos. Estas serán elaboradas por el Contador Municipal, las mismas llevarán una numeración consecutiva y estar debidamente foliadas.
+1) En la formulación y aprobación de las modificaciones presupuestarias serán solicitadas por escrito por el Alcalde Municipal y la Dirección Financiera, con su respectiva justificación de rebajo y aumento de las partidas de egresos. Estas serán elaboradas por la Unidad de Presupuesto, las mismas llevarán una numeración consecutiva y estar debidamente foliadas.
+(Así reformado el inciso anterior mediante sesión N° 200 del 1 de marzo de 2010)
 2) La secretaria municipal debe llevar un archivo de cada modificación que incluirá los documentos de la modificación en sí misma, una nota del Contador en donde indique que se cumple con toda la formativa legal, una nota del Tesorero donde da constancia del contenido de las partidas a modificar así como todo otro documento que se relacione con la modificación.
 3) El Concejo Municipal de Moravia conocerá toda modificación presupuestaria que sea presentada por la Administración, independientemente de su monto o la partida que modifique.
 4) La aplicación de fondos que por ley tienen un destino específico solo podrán modificarse para cubrir gastos dentro del destino señalado por ley.
