@@ -1,0 +1,2 @@
+Artículo 5 (Anexos del Proyecto)
+Cuando las Partes decidan llevar a cabo actividades de colaboración o intercambio de información técnica bajo este Memorando de Entendimiento, dichas actividades deberán ser descritas como un Proyecto Anexo a este Memorando de Entendimiento. Cada Proyecto Anexo deberá establecer un plan de trabajo, requerimientos de personal, costos estimados, fuentes de financiamiento y otras obligaciones o condiciones propias del proyecto no incluidas en este Memorando de Entendimiento.

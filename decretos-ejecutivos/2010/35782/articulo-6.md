@@ -1,0 +1,2 @@
+Artículo 6 (Derechos de Propiedad Intelectual)
+Si surgieran disputas concernientes a derechos de propiedad intelectual en cualquier actividad cooperativa llevada a cabo bajo este Memorando de Entendimiento, las Partes deberán tomar; medidas para cumplir con las leyes y regulaciones de sus respectivos países, así como con normas establecidas en acuerdos internacionales que hayan sido suscritas por ambos países.
