@@ -1,0 +1,4 @@
+De los Recursos:
+Artículo 144.—En materia de recursos contra los actos y decisiones que se adopten en la Gestión de Recursos Humanos que formalizan las Oficinas de Gestión Institucional de Recursos Humanos en general, serán aplicables las disposiciones del Estatuto de Servicio Civil y el presente Reglamento, además de las resoluciones y otras normas conexas complementarias, entendiéndose que compete a esas instancias el conocimiento de los recursos cuando en dichos cuerpos normativos se refieren al órgano que resolvió el acto.
+Las Oficinas de Gestión Institucional de Recursos Humanos en todos los casos, coadyuvarán en el seguimiento que se requiera a fin de que los recursos que se interpongan sean resueltos por quien corresponda, dentro de los plazos y de conformidad con el ordenamiento jurídico.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35865 del 2 de marzo de 2010)

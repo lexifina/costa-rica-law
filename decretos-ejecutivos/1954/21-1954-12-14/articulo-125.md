@@ -1,0 +1,3 @@
+Definición funcional de Asamblea de Jefes de Gestión de Recursos Humanos:
+Artículo 125.— La Asamblea de Jefes de Gestión de Recursos Humanos es la instancia constitutiva de participación del Sistema de Gestión de Recursos Humanos que gestiona y nombra los representantes ante el Consejo Técnico Consultivo de Gestión de Recursos Humanos y propone, además, la discusión y valoración de asuntos que interesen al respectivo Ministerio, Institución u Órgano Adscrito cubierto por el Régimen de Servicio Civil, relacionados con dicho Sistema.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35865 del 2 de marzo de 2010)

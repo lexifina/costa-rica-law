@@ -1,0 +1,2 @@
+Artículo 140.—Cada uno de los procesos detallados en los artículos anteriores de este apartado deberá considerar como proceso de entrada, las salidas resultantes del proceso de Planificación de Recursos Humanos, y asegurar que estas respondan directamente a la definición de políticas coherentes y alineadas a la estrategia institucional. Lo anterior considerando además una integración sectorial que a su vez vincule los objetivos de desarrollo nacional.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35865 del 2 de marzo de 2010)

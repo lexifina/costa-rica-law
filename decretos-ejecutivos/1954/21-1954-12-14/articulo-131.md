@@ -1,0 +1,3 @@
+Del Funcionamiento Básico General de las Oficinas de Gestión Institucional de Recursos Humanos:
+Artículo 131.—Las Oficinas de Gestión Institucional de Recursos Humanos deben implantar y constituir un esquema de funcionamiento básico general que les permita gerenciar y cumplir en forma eficiente y oportuna con los procesos de Gestión de Recursos Humanos, para lo cual cada Ministerio, Institución u Órgano Adscrito cubierto por el Estatuto de Servicio Civil debe adoptar las medidas que correspondan y dotar a dichas unidades del contingente humano, recursos físicos, económicos y materiales indispensables para su adecuado funcionamiento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35865 del 2 de marzo de 2010)

@@ -1,4 +1,7 @@
-Artículo 121.- En casos de inopia comprobada o por razones técnicas que lo hagan imprescindible para el buen servicio público, la Dirección General de Servicio Civil, podrá , mediante resolución razonada, variar o sustituir provisionalmente los requisitos de los puestos.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 14 del 24 de abril de 1961)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 17793 del 20 de octubre de 1987)
-(Nota de Sinalevi: Mediante la reforma realizada por el artículo 7° del decreto ejecutivo N° 22422 del 5 de agosto de 1993, al capítulo XI “Clasificación de puestos”, lo contemplado en este numeral, se encuentra regulado en el artículo 119 actual de este decreto)
+(*)CAPÍTULO XII
+(*)(Así adicionado este capítulo por el artículo 1° del decreto ejecutivo N° 35865 del 2 de marzo de 2010)
+Sistema de la Gestión de Recursos Humanos
+(SIGEREH)
+Definición funcional del Sistema de Gestión de Recursos Humanos en el Régimen de Servicio Civil:
+Artículo 121.—El Sistema de Gestión de Recursos Humanos es el conjunto de órganos e instancias competentes bajo el ámbito del Régimen de Servicio Civil, necesarios para gerenciar y desarrollar los procesos de dicha gestión aplicables en los Ministerios, Instituciones u Órganos Adscritos cubiertos por éste, autorizados para realizar y ejecutar dichos procesos derivados de las competencias conferidas por el Estatuto de Servicio Civil.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 35865 del 2 de marzo de 2010)
