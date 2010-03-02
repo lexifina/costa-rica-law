@@ -1,0 +1,1 @@
+Artículo 10.—Del traslado de la denuncia a la Auditoría Interna. La junta directiva o la gerencia general podrán, cuando lo consideren oportuno, no realizar por sí mismos una investigación, y determinar que lo que corresponde es su traslado a la Auditoría Interna para que tramite lo que corresponda.

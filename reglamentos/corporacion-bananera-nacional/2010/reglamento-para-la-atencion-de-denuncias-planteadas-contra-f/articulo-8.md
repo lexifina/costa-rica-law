@@ -1,0 +1,1 @@
+Artículo 8º—Finalización de la investigación. En caso que se lleve a cabo una investigación esta finalizará como una decisión razonada sobre si existió el hecho denunciado y si corresponde aplicar una sanción.

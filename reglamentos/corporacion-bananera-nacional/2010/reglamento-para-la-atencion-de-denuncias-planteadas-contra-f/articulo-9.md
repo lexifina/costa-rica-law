@@ -1,0 +1,1 @@
+Artículo 9°—De la conformación de un expediente. Tanto la junta directiva como la gerencia general deberán ordenar conformar un expediente en el que se incorpore la información, documentación, y otras evidencias relacionadas con la denuncia recibida, en orden cronológico.

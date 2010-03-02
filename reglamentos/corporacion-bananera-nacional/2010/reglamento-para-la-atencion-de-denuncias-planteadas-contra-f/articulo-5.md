@@ -1,0 +1,1 @@
+Artículo 5º—De la confidencialidad del denunciante. La identidad del denunciante, así como las pruebas que aporte se mantendrá confidencial durante la investigación, salvo que este manifieste que no existe problema en dar a conocer su identidad.
