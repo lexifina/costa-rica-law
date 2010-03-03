@@ -1,1 +1,0 @@
-Artículo 19: Los miembros de la Junta de Relaciones Laborales, debidamente autorizados tendrán acceso a todos los departamentos, secciones u oficinas con el fin de investigar conflictos laborales o violaciones a la Convención Colectiva , así como obtener los documentos necesarios para el estudio del caso.

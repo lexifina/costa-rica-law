@@ -1,1 +1,0 @@
-Artículo 13: Para cada sesión se confeccionará un orden de conocimiento, fundamentándose en las prioridades de presentación. El Presidente remitirá copia de los documentos a cada uno de los miembros con veinticuatro horas de anticipación.

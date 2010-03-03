@@ -1,1 +1,0 @@
-Número 2: Este Reglamento entrará en vigencia a partir del día veintidós de febrero de 1995, a excepción de aquellos artículos mencionados en el transitorio número 1, los cuales entrarán a regir a partir de que se cumpla éste.

@@ -1,3 +1,0 @@
-Artículo 16: Los conflictos de trabajo individuales que deben ser conocidos por la Junta se limitarán al análisis de la documentación presentada y toda aquella que la Junta tenga a bien solicitar. Sin embargo la Junta podrá resolver por mayoría de los presentes invitar a una próxima sesión a cualquiera de las partes interesadas y testigos para mejor resolver.
-La inasistencia injustificada de las partes, previa citación, será considerada como falta a sus deberes para erectos de la resolución.
-Las pruebas que la Junta no pudiese recibir dentro de los cinco días posteriores a su ofrecimiento, se declararán inevacuables, siempre que el atraso sea imputable al oferente.

@@ -1,1 +1,0 @@
-Artículo 7: La Junta podrá solicitar a la parte representada, la sustitución de alguno de sus miembros, cuando deje de asistir injustificadamente a más de cuatro sesiones consecutivas, sean estas ordinarias y extraordinarias.
