@@ -1,1 +1,2 @@
-Artículo 68.—(Derogado por el artículo 1° del decreto ejecutivo N° 35495 del 21 de julio de 2009)
+Artículo 68.—Periodo de prueba en el exterior. De acuerdo con lo establecido en el artículo 8° del Estatuto, en caso de existir inopia de funcionarios de carrera en alguna de las sedes diplomáticas o consulares, la persona elegible podrá ser destinada para realizar su año de prueba en el servicio diplomático o consular, siempre que cumpla con el perfil académico y. profesional del puesto que desempeñará. Para estos nombramientos deberá aplicarse lo establecido en los artículos 44 y 51 de este reglamento.
+(Así reestablecida su vigencia por el artículo 2° del decreto ejecutivo N° 35857 del 3 de marzo de 2010)

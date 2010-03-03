@@ -21,3 +21,4 @@ Reglamento al Estatuto del Servicio Exterior de la República.
 | 6 | 2006-06-14 | Decreto Ejecutivo 33177 (2006-06-14) |
 | 7 | 2007-01-23 | Decreto Ejecutivo 33767 (2007-01-23) |
 | 8 | 2009-07-21 | Decreto Ejecutivo 35495 (2009-07-21) |
+| 9 | 2010-03-03 | Decreto Ejecutivo 35857 (2010-03-03) |
