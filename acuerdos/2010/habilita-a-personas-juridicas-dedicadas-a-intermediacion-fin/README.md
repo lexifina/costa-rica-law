@@ -14,3 +14,4 @@ Habilita a personas jurídicas dedicadas a intermediación financiera, a la capt
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-12 | la propia norma |
+| 2 | 2010-03-03 | Reglamento 5454 (2010-03-03) |

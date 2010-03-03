@@ -1,1 +1,2 @@
-3.Reformar los instrumentos disponibles mediante Central Directo, de manera que el denominado DEP180 corresponda a las colocaciones entre 180 y 269 días, ambos inclusive, y crear un instrumento denominado DEP270, con las mismas características de los Depósitos Electrónicos a Plazo (DEP), con un plazo de colocación entre 270 a 359 días.
+3.Reformar los instrumentos disponibles mediante Central Directo y CAF, de manera que el denominado DEP 180 corresponda a las colocaciones entre 180 y 269 días, ambos plazos inclusive, y crear un instrumento denominado DEP270, con las mismas características de los Depósitos Electrónicos a Plazo (DEP), con un plazo de colocación entre 270 y 359 días, ambos plazos inclusive.
+(Así reformado mediante sesión N° 5454 del 3 de marzo de 2010)

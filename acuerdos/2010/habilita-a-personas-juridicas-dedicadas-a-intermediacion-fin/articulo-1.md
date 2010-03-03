@@ -8,4 +8,5 @@ e. En el artículo 10 del acta de la sesión 5426-2009, del 10 de junio del 2009
 f. El Banco Central de Costa Rica, en ejercicio de sus potestades legales como Autoridad Monetaria, puede definir límites de aplicación general en los montos mínimos o máximos que pueden colocarse en Central Directo,
 g. Dados los rezagos con que actúa la política monetaria, se requiere seguir actuando para consolidar la convergencia de los precios internos hacia el objetivo inflacionario,
 resolvió en firme:
-1.Dejar sin efecto lo dispuesto por esta Junta Directiva en los artículos 5 del acta de la sesión 5381-2008, del 11 de junio del 2008 y 12 del acta de la sesión 5387-2008, celebrada el 16 de julio del 2008.
+1.Dejar sin efecto lo dispuesto por esta Junta Directiva en el numeral I del literal B del artículo 5 del acta de la sesión 5381-2008, del II de junio del 2008 y en el artículo 12 del acta de la sesión 5387-2008, celebrada el 1 6 de julio del 2008.
+(Así reformado mediante sesión N° 5454 del 3 de marzo de 2010)
