@@ -14,3 +14,4 @@ Reglamento del Concurso de Oposición para el Ingreso a la Carrera del Servicio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-02 | la propia norma |
+| 2 | 2010-03-03 | Decreto Ejecutivo 35850 (2010-03-03) |

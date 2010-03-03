@@ -1,3 +1,4 @@
 CAPÍTULO III
 Condiciones Laborales de los Funcionarios en Período de Prueba
-Artículo 19.—Los aspirantes a ingresar a la carrera del Servicio Exterior una vez seleccionados por el Ministro de Relaciones Exteriores y Culto, serán nombrados por el Poder Ejecutivo en período de prueba en el servicio interno, según lo dispone el artículo 16 del Estatuto del Servicio Exterior de la República.
+Artículo 19.—Los aspirantes a ingresar a la carrera del Servicio Exterior, una vez seleccionados por el Ministro de Relaciones Exteriores y Culto, serán nombrados por el Poder Ejecutivo en período de prueba en el servicio interno, según lo dispone el artículo 16 del Estatuto del Servicio Exterior de la República. En caso de inopia de plazas en el servicio interno, o de inopia de funcionarios de carrera para desempeñar cargos en el servicio exterior, los aspirantes aprobados en los concursos de ingreso podrán ser nombrados para efectuar el período de prueba en el exterior, pero no adquirirán por ello en la carrera una categoría superior a la de agregado, una vez que concluyan dicho período.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35850 del 3 de marzo de 2010)
