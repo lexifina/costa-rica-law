@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 35538-H de fecha 23 de setiembre del 2009, publicado en el Diario Oficial La Gaceta Nº 198 de fecha 13 de octubre del 2009, a partir de la vigencia del presente decreto.
