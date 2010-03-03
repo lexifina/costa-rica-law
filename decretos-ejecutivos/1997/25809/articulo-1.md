@@ -11,4 +11,5 @@ PERMANENTE DE COSTA RICA ANTE LA
 ORGANIZACION MUNDIAL DEL COMERCIO
 CAPITULO I
 Integración de la Delegación
-Artículo 1°-La Delegación Permanente de Costa Rica ante la Organización Mundial del Comercio (en adelante OMC) estará integrada por un Jefe de la Delegación quien tendrá la condición de representante permanente con rango de embajador, los asesores que se requieran para las negociaciones comerciales y el personal de apoyo que se requiera.
+Artículo 1°-La Delegación Permanente de Costa Rica ante la Organización Mundial del Comercio (en adelante OMC) estará integrada por un Jefe de Delegación, quien tendrá la condición de representante permanente con rango de Embajador; los asesores que se requieran para las negociaciones comerciales con rango de Ministros Consejeros, dicho rango será otorgado por el Ministerio de Relaciones Exteriores y Culto de conformidad con las facultades que la ley le otorga, y únicamente por el tiempo que dure el nombramiento y, además, por el personal de apoyo que se requiera.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35856 del 3 de marzo de 2010)

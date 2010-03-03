@@ -14,3 +14,4 @@ Reglamento sobre la Delegación Permanente de Costa Rica ante la Organización M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-01 | la propia norma |
+| 2 | 2010-03-03 | Decreto Ejecutivo 35856 (2010-03-03) |
