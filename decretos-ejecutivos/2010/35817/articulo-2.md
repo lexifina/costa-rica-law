@@ -1,0 +1,1 @@
+Artículo 2º—Estructurar la citada Comisión de la siguiente manera: Presidencia Colegiada, Presidencia Honoraria Colegiada, Secretaría Ejecutiva Colegiada, Secretaría Colegiada de Coordinación y Enlace con el Ministerio de Relaciones Exteriores y Culto y Secretaría Financiera Colegiada.
