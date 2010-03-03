@@ -1,0 +1,1 @@
+Artículo 11.—Registro de caucionantes. La Dirección de Recursos Humanos, deberá registrar todo movimiento de personal que se realice en la Institución, en referencia a aquellos puestos enunciados en el numeral 6 del presente reglamento, para los efectos de actualización del registro de caucionantes.

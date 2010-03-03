@@ -1,0 +1,1 @@
+Artículo 16.—Vigencia de la Garantía: En cuanto a la vigencia de la garantía, deberá ser conforme a lo establecido en el artículo 120 de la Ley de Administración Financiera de la República y Presupuestos Públicos, y otras relacionadas.

@@ -1,0 +1,1 @@
+Artículo 19.—Responsabilidad solidaria. El encargado del control de las garantías o cauciones que por dolo o culpa no informe cualquier anomalía, será solidariamente responsable del perjuicio ocasionado.

@@ -1,0 +1,1 @@
+Artículo 8º—De los deberes del funcionario. Los funcionarios, llamados a caucionar deberán tomar precauciones adecuadas y constantes para controlar la exactitud de las cuentas del dinero y de los valores a su cargo, así como dar aviso a su Jefe Inmediato de la pérdida, defraudación o situación ocurrida que afecte a la Hacienda Pública, para iniciar los trámites pertinentes.

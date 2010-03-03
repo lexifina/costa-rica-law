@@ -1,0 +1,6 @@
+Artículo 3º—De los criterios de selección: Para determinar las clases y montos de las garantías, así como la obligación de prestar caución por parte de los funcionarios de este Ministerio, se deberá aplicar, al menos, los siguientes criterios, tal y como se establece en la resolución R-CO-10-2007.
+a) Nivel de responsabilidad: se relaciona con la jerarquía, la supervisión y el grado de autoridad en la disposición de los fondos públicos a su cargo. La capacidad de ordenar o autorizar las ejecuciones o emisiones de gastos, la captación de ingresos, decidir en los procesos de contratación administrativa, la supervisión de todos estos procesos, así como la suscripción de convenios o contratos los cuales signifiquen un flujo de fondos para la institución.
+b) Monto Administrado: se refiere a la sumatoria total del valor promedio en dinero por mes de los fondos que administra el funcionario.
+c) Salario del Funcionario: está determinado por el salario mensual que percibe el funcionario en el cumplimiento de sus labores.
+d) Puestos que tengan a su cargo funciones o procesos con niveles de riesgo que se hayan determinado menos que aceptables.
+e) Medidas de control implantadas y su efectividad.
