@@ -14,3 +14,4 @@ Reglamento para el pago de incapacidades por enfermedad y maternidad a empleados
 | --- | --- | --- |
 | 1 | 2002-07-17 | la propia norma |
 | 2 | 2007-01-17 | Circular 5 (2007-01-17) |
+| 3 | 2010-03-03 | SINALEVI (sin norma nombrada) |
