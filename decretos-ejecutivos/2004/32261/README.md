@@ -16,3 +16,4 @@ Reglamentación de Características y Condiciones Generales de los vehículos ta
 | 1 | 2005-03-16 | la propia norma |
 | 2 | 2005-07-26 | Decreto Ejecutivo 32589 (2005-07-26) |
 | 3 | 2007-11-08 | Decreto Ejecutivo 34103 (2007-11-08) |
+| 4 | 2010-03-04 | Decreto Ejecutivo 35824 (2010-03-04) |
