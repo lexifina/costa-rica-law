@@ -1,0 +1,10 @@
+002-2010-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Con fundamento en los artículos 140, incisos 3), 18) y 20), 146 de la Constitución Política; los artículos 25, 27.1 y 28.2.b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; artículo 24 de la Ley de Uso, Manejo y Conservación de Suelos, Nº 7779 del 30 de abril de 1998; Ley de fomento a la Producción Agropecuaria FODEA y Orgánica del Ministerio de Agricultura y Ganadería, Nº 7064 del 29 de abril de 1987; artículo 24 del Reglamento para Quemas Agrícolas Controladas Decreto Nº 35368-MAG-S-MINAET, publicado en el Diario Oficial La Gaceta Nº 147 del 30 de julio del 2009.
+ACUERDAN:
+Artículo 1º—De conformidad con lo dispuesto en el artículo 24 del Reglamento que Regula las Quemas Agrícolas Controladas, Decreto Ejecutivo Nº 35368-MAG-S-MINAET, se integra el Comité Interinstitucional Permanente de la siguiente manera:
+• Rafael Ángel Mena Villavicencio, cédula de identidad número 6-098-1297, como representante titular, quien lo presidirá, y al señor Roberto Azofeifa Rodríguez, cédula de identidad número 1-491-629, como representante suplente, ambos del Ministerio de Agricultura y Ganadería.
+• Luis Diego Román Madriz, cédula de identidad número 1-927-380 y Julio Díaz Orias, cédula de identidad número 5-193-208 como representantes titular y suplente, respectivamente del Sistema Nacional de Áreas de Conservación del Ministerio de Ambiente, Energía y Telecomunicaciones.
+• Marco Chaves Solera, cédula de identidad número 9-034-844 y Rigoberto Vega Arias, cédula de identidad número 1-801-938 como representantes titulares de la Cámara Nacional de Agricultura y Agroindustria y Martín Calderón Chaves, cedula de identidad número 1-1067-0093 y Edgar Osvaldo de la Mata Ramírez, cédula de identidad número 1-763-880 como representantes suplentes de la Cámara Nacional de Agricultura y Agroindustria.
+• Juan Carlos Calvo Arias, cédula de identidad número 1-541-496 y Orlando Rodríguez Baltodano, cédula de identidad número 5-110-129 como representantes titular y suplente, respectivamente, del Ministerio de Salud.
