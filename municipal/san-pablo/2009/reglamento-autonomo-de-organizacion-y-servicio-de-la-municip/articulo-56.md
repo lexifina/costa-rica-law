@@ -1,0 +1,1 @@
+Artículo 56.—Todo programa de capacitación, en que organismos o instituciones públicas o privados, ofrezcan becas o bien la municipalidad las otorgue, se canalizará a través del departamento de recursos humanos.

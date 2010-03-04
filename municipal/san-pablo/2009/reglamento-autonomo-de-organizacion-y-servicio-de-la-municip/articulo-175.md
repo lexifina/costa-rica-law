@@ -1,0 +1,4 @@
+CAPÍTULO XXX
+Del régimen disciplinario y disposiciones varias
+de las medidas disciplinarias
+Artículo 175.—La inobservancia de los deberes y obligaciones o la violación de las prohibiciones por parte de los funcionarios de la municipalidad en el desempeño de sus funciones, las cuales se encuentran debidamente establecidas en el Código Municipal, el Código de Trabajo, y este reglamento, se sancionará de acuerdo con la gravedad de la falta cometida y siguiendo el procedimiento que en adelante se indica.

@@ -1,0 +1,1 @@
+Artículo 98.—La Municipalidad a través del departamento de Recursos Humanos, dentro de sus posibilidades económicas, materiales y profesionales reales, brindará los servicios médicos requeridos a todos los funcionarios (as) de la Municipalidad.

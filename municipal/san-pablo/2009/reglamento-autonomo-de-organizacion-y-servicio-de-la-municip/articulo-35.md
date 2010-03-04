@@ -1,0 +1,1 @@
+Artículo 35.—Corresponde al Alcalde Municipal o quien éste haya delegado esa función, realizar nombramientos, promociones y remoción de los empleados municipales, con excepción de los empleados que dependan directamente del Concejo Municipal, así mismo, los empleados ocasionales contratados con cargo a las partidas presupuestarias de Servicios Especiales o Jornales Ocasionales.

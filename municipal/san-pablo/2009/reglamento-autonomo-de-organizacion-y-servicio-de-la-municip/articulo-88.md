@@ -1,0 +1,1 @@
+Artículo 88.—En adelante la Municipalidad seguirá aplicando las sumas y porcentajes de aumento de salarios a todos sus empleados en las mismas condiciones y cantidades como mínimo, según el aumento en el índice de precios al consumidor. Las partes (empleados-Municipalidad), para la ejecución de los aumentos de salario firmarán un convenio de trabajo, concretando dicho aumento.

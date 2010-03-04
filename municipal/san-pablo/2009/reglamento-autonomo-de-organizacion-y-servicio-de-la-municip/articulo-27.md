@@ -1,0 +1,1 @@
+Artículo 27.—Los usuarios de los equipos no podrán mantener documentos ni software de carácter personal que atenten contra las buenas costumbres y el uso eficiente del equipo. Para éstos efectos, los funcionarios encargados de los sistemas de cómputo de la Municipalidad, podrán realizar revisiones del equipo al azar y sin previo aviso.

@@ -1,0 +1,1 @@
+Artículo 164.—Se dotará a todos los trabajadores sin excepción al menos 2 veces al año, en el caso de las mujeres, de dos pantalones o enaguas, dos blusas y dos pares de zapatos, a los varones, dos pantalones, dos camisas y dos pares de zapatos.
