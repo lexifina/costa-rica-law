@@ -1,0 +1,1 @@
+Transitorio I.—Se establece un plazo de sesenta días naturales para que los contribuyentes a quienes alude el artículo 1 de este decreto, se inscriban en el régimen tradicional o en el régimen simplificado, según corresponda.
