@@ -1,0 +1,1 @@
+Articulo 23.—Ejecución de Obras por ONGs. La ONGs autorizadas podrán ejecutar cualquier actividad de mantenimiento manual, cuando obedezca al incumplimiento de los vecinos previo convenio firmado con la Municipalidad.

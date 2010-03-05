@@ -1,0 +1,1 @@
+Artículo 6º—Documentación de información. Será responsabilidad de la Organización comunal realizar la entrega de la información correspondiente a la Unidad Técnica de Gestión vial Municipal de la ejecución de las diversas actividades de mantenimiento manual que se realizan en cada una de las comunidades en la última semana de cada mes.

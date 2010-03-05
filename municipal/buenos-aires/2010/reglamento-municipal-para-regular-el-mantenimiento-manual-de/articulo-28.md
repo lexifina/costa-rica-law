@@ -1,0 +1,1 @@
+Artículo 28° —Funciones del Director de la Unidad de técnica de Gestión Vial municipal. El director de la Unidad respectiva municipal, será responsable de dar seguimiento a las denuncias planteadas por los vecinos en actividades de mantenimiento manual en coordinación con el responsable del área social.

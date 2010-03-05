@@ -1,0 +1,1 @@
+Artículo 13.—Motivación a los vecinos. Los comités de caminos deberán motivar a los vecinos que incumplan con la ley y con este reglamento en las labores de mantenimiento de caminos ,acerca de las resoluciones que emita la Unidad Técnica de Gestión Vial Municipal de conformidad con lo que establece este Reglamento y las leyes vigentes.

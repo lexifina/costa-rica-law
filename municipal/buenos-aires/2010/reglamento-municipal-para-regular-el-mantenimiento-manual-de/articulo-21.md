@@ -1,0 +1,1 @@
+Articulo 21.—Pagos a las ONGs. Los pagos por omisión de deberes, cuyas obras sean realizadas por las mismas ONGs, serán tramitados a través de la Asociación de Desarrollo y canalizados hacia los comités de caminos involucrados y ejecutores directos de las actividades de mantenimiento manual.

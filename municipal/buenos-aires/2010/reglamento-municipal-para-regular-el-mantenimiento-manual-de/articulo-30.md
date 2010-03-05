@@ -1,0 +1,2 @@
+Artículo 30.—Convergencia de Aguas. Será obligación de los vecinos implicados en áreas donde haya convergencia, proceder con el encauzamiento de las aguas dentro de sus propios terrenos.
+ara proceder a dichas canalizaciones los vecinos deberán solicitar por escrito la correspondiente asesoría técnica a la Unidad Técnica de Gestión Vial municipal, que deberá brindarla en plazo no mayor a los 5 días hábiles.

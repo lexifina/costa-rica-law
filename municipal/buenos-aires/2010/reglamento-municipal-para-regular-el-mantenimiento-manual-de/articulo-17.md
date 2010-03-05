@@ -1,0 +1,1 @@
+Artículo 17.—Realización de las Obras de Oficio. En caso de que el vecino o la vecina no realice las obras en el periodo establecido por la Municipalidad, se establecerá un convenio con los comités de caminos amparados en las Asociaciones de Desarrollo, u otras ONGs debidamente legalizadas, con el fin de que éstos realicen el trabajo pendiente.
