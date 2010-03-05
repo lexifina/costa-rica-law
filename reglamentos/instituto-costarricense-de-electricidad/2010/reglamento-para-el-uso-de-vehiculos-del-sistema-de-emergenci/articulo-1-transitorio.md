@@ -1,0 +1,1 @@
+Transitorio I.—Mientras el autobús destinado a Centro de operaciones Móvil no sea objeto del proceso de conversión necesario, podrá ser utilizado para transporte de personal, bajo las condiciones establecidas en los artículos 3 y 4 anteriores, mediando para estos fines las demás disposiciones contempladas en esta normativa.
