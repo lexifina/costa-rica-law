@@ -1,0 +1,1 @@
+Artículo 13.—Todas las personas físicas o jurídicas, públicas o privadas que importen, exporten o reexporten SAO, equipos o tecnologías que los contengan, sea como distribuidores, fabricantes o talleres de equipo o tecnología, deberán inscribirse en el Registro de Importadores, y Exportadores de SAO, que al efecto llevará la DIGECA.

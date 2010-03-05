@@ -1,0 +1,1 @@
+Artículo 9º—Cuando las Autoridades de Aduanas tengan duda sobre el cumplimiento de los requisitos y procedimientos de importación, exportación o reexportación de una SAO, equipo o tecnología que las contenga, de acuerdo a las normas de este Reglamento, deberá consultar a la DIGECA antes de autorizar su nacionalización o bien antes de permitir su exportación o reexportación.

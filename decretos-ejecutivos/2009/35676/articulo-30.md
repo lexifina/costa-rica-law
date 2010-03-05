@@ -1,0 +1,1 @@
+Artículo 30.—Toda empresa o taller cuyo giro de actividades sea el manejo de gases refrigerantes, deberá acreditar ante la Oficina Técnica del Ozono, adscrita a la DIGECA, que su personal cuenta con la capacitación necesaria para realizar tal manejo de refrigerantes en una forma adecuada.

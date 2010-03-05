@@ -1,0 +1,1 @@
+Artículo 42.—El importador que no haga uso de la totalidad de la cantidad autorizada en sus permisos durante el año calendario siguiente a la fijación de la cuota de importación correspondiente, no podrá acumular el saldo para el año siguiente.

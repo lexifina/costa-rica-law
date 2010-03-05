@@ -1,0 +1,1 @@
+Artículo 21.—Usos especiales del bromuro de metilo: En los procesos en los cuales se utilice bromuro de metilo, se deberá reducir al mínimo las emisiones y su uso aplicando en la mayor medida posible métodos de confinamiento y recuperación y reciclado. El uso de emergencia se deberá autorizar únicamente para un máximo de 20 toneladas.

@@ -1,0 +1,1 @@
+Artículo 12.—El Ministro del Ambiente, Energía y Telecomunicaciones tiene la facultad de prohibir la importación, exportación, reexportación y el uso de nuevas sustancias que se identifiquen como agotadoras de la capa de ozono, siempre y cuando la misma sea incluida en el Protocolo de Montreal.

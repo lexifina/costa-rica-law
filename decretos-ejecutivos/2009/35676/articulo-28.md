@@ -1,0 +1,1 @@
+Artículo 28.—Se prohíbe el establecimiento de fábricas y ensambladoras de equipos de aire acondicionado, de equipos de refrigeración y fábricas de espumas que utilicen los gases refrigerantes incluidos dentro de las sustancias prohibidas por el Protocolo de Montreal y sus enmiendas.

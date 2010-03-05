@@ -1,0 +1,1 @@
+Artículo 49.—Ante cualquier inobservancia de prohibiciones de importación contenida en este Reglamento, o incumplimiento del procedimiento respectivo, la DIGECA cancelará el permiso de importación temporalmente y hasta que el particular regularice la situación que origina esta sanción, para lo cual tendrá el plazo de diez días.

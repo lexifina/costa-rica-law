@@ -1,0 +1,1 @@
+Artículo 36.—La DIGECA emitirá dos tipos de permisos uno para desalmacenaje de SAO, de equipos o tecnología que las contengan, y otro para efectos de exportación o reexportación de SAO o equipos o tecnología que las contengan.

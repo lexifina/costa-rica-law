@@ -1,0 +1,1 @@
+Artículo 57.—Se respetarán los acuerdos de uso e importación suscritos entre el gobierno y las empresas comprometidas para la definición de cuotas anuales de importación de SAO. Una vez cumplido el plazo de tales acuerdos entrarán a regir las normas de este reglamento en cuanto a las cuotas de importación y su distribución en el país.

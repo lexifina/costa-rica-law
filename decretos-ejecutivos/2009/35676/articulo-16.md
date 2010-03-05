@@ -1,0 +1,1 @@
+Artículo 16.—A partir de la promulgación de este Reglamento, se prohibirá el ingreso al país de toda aquella sustancia contemplada en el Protocolo de Montreal o sus Enmiendas, y que nunca habían ingresado al país antes de la fecha de suscripción de dicho Protocolo.

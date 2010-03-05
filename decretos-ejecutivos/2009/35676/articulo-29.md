@@ -1,0 +1,1 @@
+Artículo 29.—Toda empresa o taller en cuyo giro de actividades esté el manejo de gases refrigerantes, deberá registrarse en el Registro de Importadores, Exportadores, y Usuarios de SAO, que al efecto llevará la DIGECA.

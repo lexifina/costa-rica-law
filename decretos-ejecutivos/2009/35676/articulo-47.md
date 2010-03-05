@@ -1,0 +1,1 @@
+Artículo 47.—En el caso que se presente información falsa en el formulario de desalmacenaje, según los artículos 43 y 44 de este Reglamento, se aplicará la pena establecida en el artículo 219 de la Ley General de Aduanas, por constituirse en la acción contemplada en dicho artículo.

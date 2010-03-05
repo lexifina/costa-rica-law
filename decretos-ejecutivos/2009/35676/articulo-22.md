@@ -1,0 +1,3 @@
+Artículo 22.—Excepciones de uso crítico para el bromuro de metilo. Para efectos de aplicar las medidas de control estipuladas en el artículo 2 del Protocolo, el empleo del bromuro de metilo sólo debería calificarse de “crítico” si:
+1) El MINAET, a través de la DIGECA considera que el uso específico es esencial porque la falta de disponibilidad del bromuro de metilo para dicho uso provocaría una importante alteración del bienestar público; y
+2) No existe ningún producto alternativo o sustitutivo técnica y económicamente viable para el usuario que sea aceptable desde el punto de vista ambiental y sanitario, y apropiado para los cultivos y las circunstancias de la propuesta.

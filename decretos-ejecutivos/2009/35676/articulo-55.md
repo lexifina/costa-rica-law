@@ -1,0 +1,1 @@
+Artículo 55.—Para la regulación del uso de CFC en aerosoles, se aplicará el Decreto Ejecutivo Reglamento Uso Aerosoles Incluidos en Protocolo Montreal, Nº 19797-S del 17 de julio de 1990, publicado en La Gaceta el 6 de agosto de 1990.

@@ -1,0 +1,1 @@
+Artículo 54.—La DIGECA procurará el apoyo técnico y financiero necesario para el diseño y desarrollo de programas y proyectos que fomenten la reconversión a tecnologías, equipos y sustancias alternativas, en coordinación con las instituciones competentes.

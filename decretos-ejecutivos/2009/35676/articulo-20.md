@@ -1,0 +1,1 @@
+Artículo 20.—De acuerdo con los procedimientos establecidos por la DIGECA todos los usos denominados esenciales serán solicitados por las autoridades oficiales, o particulares, oficializados en forma previa a su uso.

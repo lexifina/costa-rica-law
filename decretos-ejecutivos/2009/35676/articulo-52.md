@@ -1,0 +1,1 @@
+Artículo 52.—La DIGECA publicará anualmente el listado de personas físicas o jurídicas registradas como usuarios de sustancias SAO. En especial publicará en un diario de circulación nacional, los talleres de reparación y recarga de aires acondicionados y de equipos de refrigeración inscritos como usuarios en el Registro.

@@ -1,0 +1,1 @@
+Artículo 56.—Una vez cumplidas las metas de reducción y eliminación total de importación y uso de SAO que el país ha definido conforme a los mecanismos del Protocolo, el Ministro del Ambiente, Energía y Telecomunicaciones deberá emitir un nuevo reglamento para tales sustancias, el cual tenga como fin evitar el tráfico ilegal de sustancias controladas.

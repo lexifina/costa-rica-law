@@ -1,0 +1,1 @@
+Artículo 40.—Para la definición de las aprobaciones de permisos previos, la DIGECA aplicará el criterio de distribución equitativa, basado en el número de solicitudes presentadas que cumplan con los requisitos y procedimientos definidos en este Reglamento, así como en el tipo de usos que tales solicitudes representan.
