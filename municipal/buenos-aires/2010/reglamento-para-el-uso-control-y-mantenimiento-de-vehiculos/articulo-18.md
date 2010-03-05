@@ -1,0 +1,1 @@
+Artículo 18.—Prohibición de intercambio de accesorios. Los conductores o chóferes de vehículos institucionales no podrán hacer intercambio de accesorios entre las unidades, si no cuentan con la aprobación de la Administración.

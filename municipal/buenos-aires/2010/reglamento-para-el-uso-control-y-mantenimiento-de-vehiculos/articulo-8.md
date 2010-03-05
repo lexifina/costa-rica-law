@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Uso y disposición de los vehículos
+Artículo 8º—Para el uso. Antes de su salida, el chofer o conductor anotará en la fórmula: lugares a visitar, objeto de la gira, el kilometraje, el día y hora de salida al reverso de la boleta, así como el combustible que reporta el vehículo y cuando esté de regreso anotará la hora y el kilometraje marcado al reverso de la boleta y el funcionario responsable del servicio la firmará y anotará su nombre. Cuando el vehículo haya regresado a la Institución y los datos estén completos, el chofer o conductor, deberá firmar la fórmula y la remitirá a la Administración.

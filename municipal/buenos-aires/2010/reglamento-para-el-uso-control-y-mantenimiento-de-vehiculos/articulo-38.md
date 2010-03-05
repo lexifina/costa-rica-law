@@ -1,0 +1,1 @@
+Artículo 38.—Cumplimiento de la normativa. Es responsabilidad exclusiva de cada conductor o chofer y de la Institución como tal, en lo que corresponda a cada uno, el cumplimiento de lo establecido en el presente Reglamento.
