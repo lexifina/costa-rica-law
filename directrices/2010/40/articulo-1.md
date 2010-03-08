@@ -1,0 +1,17 @@
+DIRECTRIZ
+N° 040-PLAN
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE PLANIFICACIÓN NACIONAL
+Y POLÍTICA ECONÓMICA
+En ejercicio de las facultades que les confieren los artículos 11, 140 incisos 3), 8), 18) y 20), 146, 169 y 170 de la Constitución Política; 25, 27, 99 y 100 de la Ley General de la Administración Pública (Nº 6227 del 2 de mayo de 1978); 5º, 6º, 13, inciso k) del Código Municipal (Ley Nº 7794 del 30 de abril de 1998); 1º, inciso b); 2º, incisos c) y d); 3º, inciso c); 16, 18, 19 y 21 de la Ley de Planificación Nacional (Nº 5525 del 2 de mayo de 1974); y disposiciones contenidas en el Reglamento Orgánico del Poder Ejecutivo (Decreto Ejecutivo Nº 34582-MP-PLAN del 4 de junio de 2008); y en el Reglamento de Creación de los Consejos Cantonales, Consejos Distritales y Consejos Regionales de Coordinación Interinstitucional (Decreto Ejecutivo Nº 35388-PLAN del 2 de julio de 2009).
+Considerando:
+I.—Que conforme las potestades de dirección política del Poder Ejecutivo consagradas en el artículo 140 de la Constitución Política, le corresponde velar por la unidad del Estado, como aquella actividad unitaria, coordinada y de orientación política para asegurar la unidad estatal en el ejercicio pleno de su funcionalidad, a través de sus potestades de planificación, dirección y coordinación administrativa que ejerce no sólo en la Administración Central sino en la Descentralizada. Potestades que son necesarias para mantener el Principio de Unidad del Estado, que se regula en la Ley General de la. Administración Pública en sus artículos 26, inciso b) y 27, inciso 1), relativo a la facultad de dirección y coordinación del Poder Ejecutivo en la Administración Pública institucional, centralizada y descentralizada
+II.—Que las municipalidades conjuntamente con las instituciones de la Administración Pública deben coordinar sus acciones y desarrollar instancias de colaboración interinstitucionales, según disposiciones de los artículos 5º y 6º del Código Municipal.
+III.—Que el Plan Nacional de Desarrollo 2006-2010 “Jorge Manuel Dengo Obregón” dispuso dentro de sus metas el refuerzo de la capacidad de coordinación política y de planificación de la acción institucional, en su Capítulo V: “Eje de Reforma Institucional”. Dentro de los objetivos de esa meta está el evitar la duplicidad de funciones y mejorar la prestación de servicios públicos, alcanzando mayor articulación y coordinación en la gestión pública.
+IV.—Que el “Reglamento de Creación de los Consejos Cantonales, Consejos Distritales y Consejos Regionales de Coordinación Interinstitucional”, tiene como objetivo mejorar la coordinación y dirección de las políticas publicas nacionales en relación con las necesidades y demandas que mantienen los gobiernos locales y los concejos municipales de distrito. En esa línea de dirección, el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) es institución co-rectora del “Sector Coordinación Gubernamental”, según “Reglamento Orgánico del Poder Ejecutivo”.
+Emite la siguiente
+DIRECTRIZ A LOS JERARCAS DE LOS ÓRGANOS, ENTES Y EMPRESAS
+PÚBLICAS PARA PROMOVER EL FUNCIONAMIENTO DE LOS
+CONSEJOS CANTONALES, DISTRITALES Y REGIONALES
+DE COORDINACIÓN INTERINSTITUCIONAL
+Artículo 1º—Las disposiciones contenidas en la presente Directriz Ejecutiva son complementarias a las regulaciones establecidas en el Reglamento de Creación de los Consejos Cantonales, Consejos Distritales y Consejos Regionales de Coordinación Interinstitucional, emitido mediante Decreto Ejecutivo Nº 35388-PLAN del 2 de julio de 2009.

@@ -1,0 +1,5 @@
+Artículo 5º—Los órganos, entes y empresas públicas deben promover y desarrollar un ambiente propicio para facilitar los procesos de planificación, ejecución y evaluación del desarrollo local. En ese ambiente propicio se adoptarán y adaptarán medidas que permitan una adecuada participación de los diferentes actores nacionales, regionales y locales que intervienen en el desarrollo de cada cantón. Para lograr lo anterior, se insta a los jerarcas de los órganos, entes y empresas públicas para que implementen las siguientes acciones:
+a) Divulgar a lo interno de sus instituciones las competencias y funciones de los Consejos Cantonales, los Consejos Distritales y los Consejos Regionales de Coordinación Interinstitucional.
+b) Divulgar a lo interno de sus instituciones la normativa legal que rige el proceso de Planificación del Desarrollo Local, para lo cual MIDEPLAN proporcionará el apoyo que resulte necesario.
+c) Establecer mecanismos ágiles y expeditos que faciliten lo establecido en el artículo 4° de esta Directriz.
+d) Corroborar la asistencia y participación de los representantes institucionales en el seno de los Consejos de Coordinación Interinstitucional.
