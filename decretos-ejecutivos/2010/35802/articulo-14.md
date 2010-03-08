@@ -1,0 +1,1 @@
+Artículo 14.—Renovación de la certificación. Para solicitar la renovación de la certificación de OEA, la persona física o jurídica deberá presentar el formulario de renovación que la DGA establezca mediante resolución de alcance general, en cuyo caso la DGA verificará el cumplimiento de las obligaciones y requisitos contenidos en este Reglamento.
