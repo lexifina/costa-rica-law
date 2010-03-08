@@ -1,0 +1,10 @@
+DEPARTAMENTO DE SALARIOS
+AVISO
+El Consejo Nacional de Salarios, de acuerdo con lo aprobado en el acta Nº 5101 del 14 de diciembre del 2009, comunica que debido a una solicitud específica de revisión salarial presentada por los trabajadores “Guardas de Seguridad Privados”, acordó modificar los Perfiles Ocupacionales, publicados en La Gaceta Nº 233 del 5 de diciembre del 2000, en cuanto a lo establecido en el capitulo V, respecto a las definiciones de Trabajadores Semicalificados Genéricos y Trabajadores Calificados de Genéricos, quedando de la siguiente forma:
+Se sustituye el siguiente párrafo original de los perfiles ocupacionales de la definición de trabajadores semicalificados genéricos.
+“Vigilar y evitar el hurto de mercancías en supermercados, tiendas y otros establecimientos; vigilar y evitar el ingreso de personas no autorizadas en lugares bajo su responsabilidad; proteger valores, ya sea tanto en locales como en vehículos o cualquier otro medio de transporte; proteger edificios, equipos, maquinarias, etc.; detectar posibles focos de incendio o situaciones riesgosas y avisar a quien corresponda.”
+Quedando de la siguiente manera:
+“Vigilar y evitar el hurto de mercancías en supermercados, tiendas y otros establecimientos; vigilar y evitar el ingreso de personas no autorizadas en lugares bajo su responsabilidad; proteger edificios, equipos, maquinarias, etc.; detectar posibles focos de incendio o situaciones riesgosas y avisar a quien corresponda.”
+Se incluye en la definición de trabajadores calificados genéricos, de dichos perfiles el siguiente párrafo antes de las condiciones generales. “Custodiar y proteger valores que se transportan en vehículos o cualquier otro medio de transporte, incluye exclusivamente a los Guardas Custodios y Porta Valores. 1
+(1) Se entiende por guardas custodios de valores y porta valores a los encargados de custodiar y proteger valores que se transportan en medios de transporte de empresas debidamente autorizados por parte del Ministerio de Seguridad Pública para ese fin”
+Rige diez días después de su publicación.
