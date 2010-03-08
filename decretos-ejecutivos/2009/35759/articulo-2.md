@@ -1,0 +1,1 @@
+Artículo 2º—Las Instituciones Públicas, en la medida de sus posibilidades y en el marco legal de sus competencias, colaborarán y coordinarán con el Instituto Costarricense de Acueductos y Alcantarillados, para ejecutar la construcción de las obras necesarias para resolver en forma integral el problema de conducción y disposición de aguas residuales.
