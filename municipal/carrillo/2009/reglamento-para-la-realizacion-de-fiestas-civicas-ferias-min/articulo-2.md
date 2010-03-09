@@ -1,0 +1,1 @@
+Artículo 2º—Si en la actividad van a operar carrouselles, el propietario o encargado del mismo deberá entregar el original o copia de la póliza respectiva extendida por el INS, que en ningún caso podrá ser de una cobertura menor a diez millones (¢10.000.000.00) de colones.

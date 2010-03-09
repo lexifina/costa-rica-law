@@ -1,0 +1,1 @@
+Artículo 24.—Queda prohibido otorgar permisos para ferias, turnos, corridas de toros, mini-ferias y otras actividades que así lo considere el Concejo Municipal, con fechas o días de manera interrumpida, esto es que no se permitirá hacer actividades en tres fines de semanas consecutivos a la misma organización.

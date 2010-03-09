@@ -1,0 +1,3 @@
+Artículo 33.—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Se acuerda: Sometido a votación el Reglamento para la Realización de Fiestas Cívicas, Ferias, Mini-Ferias, Corridas de Toros, Carreras de Cintas, Topes, Motocross y Actividades Bailables en el Cantón de Carrillo, este Concejo Municipal por unanimidad de votos le da su aprobación, quedando debidamente autorizados la Administración, Tesorería y Proveeduría Municipales para que procedan a su publicación en el Diario Oficial “La Gaceta”. Acuerdo definitivamente aprobado.
+Filadelfia, Carrillo, Guanacaste, 2 de marzo del 2010

@@ -1,0 +1,1 @@
+Artículo 29.—Ninguna población podrá realizar actividades reguladas en este reglamento dentro de un período de sesenta (60) días, a partir de la finalización de la última actividad realizada en la comunidad
