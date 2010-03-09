@@ -15,3 +15,4 @@ Reglamento para el Cobro de Intereses Moratorios y Multas por Obligaciones Tribu
 | --- | --- | --- |
 | 1 | 1998-10-09 | la propia norma |
 | 2 | 2010-03-09 | Reglamento municipal 202 (2010-03-09) |
+| 3 | 2010-03-09 | SINALEVI (sin norma nombrada) |
