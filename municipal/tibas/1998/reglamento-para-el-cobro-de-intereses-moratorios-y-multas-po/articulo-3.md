@@ -1,4 +1,4 @@
 CAPITULO SEGUNDO
 Determinación de los intereses y multas
-Articulo 3°—Se establecen en un treinta por ciento anual (o si 2.5% mensual) los intereses moratorios. Dicha tasa se aplica genéricamente, salvo cuando el contribuyente demuestre error por parte de la Administración Tributaria.
-Esta tasa se establece con base en los índices promedio del último quinquenio, para la tasa de interés pasiva, determinada por el Banco Central de Costa Rica.
+Artículo 3: El pago del tributo adeudado efectuado fuera del plazo previsto por la Municipalidad de Tibás (sea trimestral, semestral o anual) generará conjuntamente con la obligación de pagar los intereses que señala el artículo 57 del Código de Normas y Procedimientos Tributarios. La condonación de intereses procederá mediante resolución administrativa y única y exclusivamente cuando se determine que el cobro de dichos intereses, tuvieron como origen error atribuible a la Administración Tributaria.
+(Así reformado mediante acuerdo N° III-3 tomado en sesión N° 202 del 9 de marzo de 2010)

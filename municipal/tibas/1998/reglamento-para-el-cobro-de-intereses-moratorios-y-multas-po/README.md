@@ -14,3 +14,4 @@ Reglamento para el Cobro de Intereses Moratorios y Multas por Obligaciones Tribu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-09 | la propia norma |
+| 2 | 2010-03-09 | Reglamento municipal 202 (2010-03-09) |
