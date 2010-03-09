@@ -20,3 +20,4 @@ INDICADORES DE RESULTADOS:
 0.01.03 Porcentaje del total de solicitudes de información requeridas por la Defensoría de los Habitantes por primera vez ante los entes denunciados, que son interpuestos en un plazo máximo de cinco días hábiles después de asignada la investigación al (la) profesional de defensa. 75.00 80.00 90.00 100.00 100.00
 0.01.04 Porcentaje del total de actividades educativas programas en el año, que son impartidas por la Defensoría de los Habitantes en derechos humanos a niños, niñas y adolescentes de centros educativos públicos del país . 50.00 50.00 50.00 50.00 50.00
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 52 a La Gaceta N° 254 del 31 de diciembre del 2009)
+(Modificado por el artículo 1° del decreto ejecutivo N° 35858 del 9 de marzo de 2010)
