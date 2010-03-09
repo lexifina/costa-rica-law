@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el artículo 4 del Decreto Ejecutivo Nº 35369-MINAET, para que en adelante se lea de la siguiente manera:
+“Artículo 4º—El Consejo Nacional de Áreas de Conservación del Sistema Nacional de Áreas de Conservación de conformidad con el artículo 12 inciso d) del Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433-MINAE aprobará los Planes de Manejo para las Reservas Marinas y las Áreas Marinas de Manejo donde se determinen las actividades permitidas y prohibidas dentro de cada una de ellas, de acuerdo a los objetivos de manejo y conservación.”
