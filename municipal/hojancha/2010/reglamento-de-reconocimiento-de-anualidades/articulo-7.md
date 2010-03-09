@@ -1,0 +1,1 @@
+Artículo 7º—La Alcaldía Municipal debe realizar las debidas comprobaciones en los diferentes Departamentos Municipales y dará visto bueno en caso de proceder el pago, mediante pronunciamiento en un plazo de 15 días hábiles incluyendo el cálculo del importe por reconocer y la fecha a partir de la cual se hace el reconocimiento.

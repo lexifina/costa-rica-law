@@ -1,0 +1,1 @@
+Artículo 5º—La Municipalidad reconocerá hasta un máximo de 20 anualidades a cada funcionario municipal por años completos de servicios, sean o no continuos de labor en las diferentes Instituciones Públicas.

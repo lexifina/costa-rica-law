@@ -1,0 +1,1 @@
+Artículo 8º—La Alcaldía Municipal informará sobre el importe a reconocer y a la vez autorizara a! Departamento de Contabilidad a presupuestar las sumas correspondientes en los presupuestos del ejercicio económico.
