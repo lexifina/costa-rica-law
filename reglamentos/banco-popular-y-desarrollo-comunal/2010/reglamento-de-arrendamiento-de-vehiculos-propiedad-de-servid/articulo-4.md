@@ -1,0 +1,2 @@
+Artículo 4º—En ningún caso, la remuneración, facilidades o ventajas que pueda representar este sistema para los funcionarios se considerará salario en especie, beneficio, mejora salarial o parte del contrato de trabajo, ni dará origen a derechos adquiridos de ninguna naturaleza para quienes se encuentren bajo dicho sistema.
+El funcionamiento del sistema no obliga al Banco a otorgar espacios de parqueo en las zonas de estacionamiento de su propiedad o que hayan sido arrendadas.
