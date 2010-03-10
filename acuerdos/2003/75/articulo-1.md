@@ -31,7 +31,7 @@ Cuadro resumen de títulos valores recibidos o entregados al portador | Mensual 
 (El artículo 3° del acuerdo N° 159 del 31 de julio de 2009, se adiciona al anexo 31 Suficiencia Patrimonial y Control de Límites, la siguiente cuenta:
 ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA
 31 | SP_SAFI | 20260000 | Ajuste por categoría del custodio Tipo B)
-(El artículo 3° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, adiciona al anexo 31 Se adicionan las siguientes cuentas al Reporte de Suficiencia patrimonial y control de límites del anexo 31, según se describe a continuación:
+(El artículo 3° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, adiciona al anexo 31 las siguientes cuentas a "Las cuentas al Reporte de Suficiencia patrimonial y control de límites", según se describe a continuación:
 ...a) Se adicionan las siguientes cuentas al Reporte de Suficiencia patrimonial y control de límites del anexo 31:
 Cuenta | Nombre de la cuenta
 60000000 | % Límite al financiamiento
@@ -40,7 +40,7 @@ Cuenta | Nombre de la cuenta
 60300000 | Monto del financiamiento otorgado a clientes individuales con garantía
 60400000 | Monto del financiamiento otorgado a grupos de interés económico con garantía
 (El artículo 3° aparte b) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el nombre de la siguiente cuenta del anexo 31 "Las cuentas al Reporte de Suficiencia patrimonial y control de límites", según se describe a continuación:
-..b) Se modifica el nombre de la siguiente cuenta del Reporte de Suficiencia patrimonial y control de límites del anexo 31:.
+... b) Se modifica el nombre de la siguiente cuenta del Reporte de Suficiencia patrimonial y control de límites del anexo 31:
 CUENTA | NOMBRE DE LA CUENTA ANTERIOR | NOMBRE DE LA CUENTA MODIFICADO
 20115400 | (menos) Participaciones en el capital de otras empresas | (menos) Participaciones en acciones de otras empresas del grupo financiero
 (El artículo 3° aparte c) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 10 "Reporte de inversiones propias Puesto de Bolsa para aclarar la moneda en que deben reportarse los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumuados", "Ganancias o pérdidas no realizadas", "Valor en Libors", y "Intereses Acumulados", según se describe a continuación:
@@ -50,7 +50,7 @@ a. El caso de reportos tripartitos, estos campos se deben expresar en la moneda 
 b. En el caso de títulos expresados en unidades de desarrollo, el campo “Valor facial” se expresa en unidades de desarrollo, mientras que los restantes se expresan en colones.
 ii) Se modifica la validación a la columna llamada “Código ISIN”, para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
 iii) Se incluye el dato del “Premio del título” en las lista de campos que deben guardar consistencia con el código ISIN.
-(El artículo 3° aparte d) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el nombre del campo 5 del anexo 12 "Reporte de las Posiciones abiertas a plazo" para que se lea " Fecha de Operación")
+(El artículo 3° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el nombre del campo 5 del anexo 12 "Reporte de las Posiciones abiertas a plazo" para que se lea " Fecha de Operación")
 (El artículo 4° aparte a) del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 18 "Plantillas de Carteras" aclarar la moneda en que deben reportarse los campos "Valor Facial", "Costo de Adquisición", "Primas y descuentos acumuados", "Ganancias o pérdidas no realizadas", "Valor en Libors", y "Intereses Acumulados", según se describe a continuación:
 a) Se modifica el contenido del anexo 18 “Plantilla de Carteras” de las sociedades administradoras de fondos de inversión para aclarar la moneda en que deben reportarse los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados”, así como las reglas de validación relacionadas con la moneda, según se describe a continuación:
 i) Los campos “Valor Facial”, “Costo de Adquisición”, “Primas y descuentos acumulados”, “Ganancias o pérdidas no realizadas”, “Valor en libros” y “Intereses acumulados” se deben expresar en la moneda en que está denominado el instrumento. En el caso de reportos tripartitos, estos campos se deben expresar en la moneda en que se liquidará la operación.
@@ -59,6 +59,46 @@ b. En el caso de títulos expresados en unidades de desarrollo, el campo valor f
 ii) Se modifica la validación a la columna llamada “Código ISIN”, para que el caso de inversiones en reporto tripartito (indicador = RV) o en el mercado de dinero (Indicador = ML), se exceptúe de la revisión de la consistencia del ISIN también la moneda.
 iii) Se incluye el dato del “Premio del título” en las lista de campos que deben guardar consistencia con el código ISIN.
 (El artículo 5° del acuerdo N° 162 del 23 de noviembre de 2009, modifica el contenido del anexo 19 "Informe de operaciones bursátiles" para definir los nuevos requerimientos de información de conformidad con la nueva plataforma tecnológica que incorpora cambios en los sistemas de negociación y en la estructura de la base de datos de transacciones, dicha modificación puede consultarse en el sitio Web http://www.sugeval.fi.cr/ )
+(El artículo 1° aparte a) del acuerdo N° 168 del 10 de marzo de 2010, modifica el anexo 13 Reporte Diario de fondos de inversión RD_FONDOS, debido a lo extenso de su contenido y tipo de formato, los mismos pueden ser consultados en la siguiente dirección: http://www.pgrweb.go.cr/Scij/Busqueda/Normativa/Normas/nrm_texto_completo.aspx?param1=NRM&nValor1=1&nValor2=69140&nValor3=83162&strTipM=FN)
+(El artículo 1° aparte b) del acuerdo N° 168 del 10 de marzo de 2010, adiciona cuentas al anexo 15 "Balance General de fondos de inversión BG_FONDOS", según se describe a continuación:
+b) Se adicionan las siguientes cuentas al Balance General de fondos de inversión BG_FONDOS (Anexo 15):
+ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA
+15 | BG_FONDOS | 751010010101 | Obligaciones por pagar Operaciones diferidas de liquidez
+751015010105 | Obligaciones por recursos tomados del mercado de liquidez
+751015010106 | Obligaciones por operaciones diferidas de liquidez
+751015020105 | Obligaciones por recursos tomados del mercado de liquidez
+751015020106 | Obligaciones por operaciones diferidas de liquidez
+(El artículo 1° aparte c) del acuerdo N° 168 del 10 de marzo de 2010, se modifica el nombre de las cuentas del anexo 15 "Balance General de fondos de inversión BG_FONDOS", según se describe a continuación:
+c) Se modifica el nombre de las siguientes cuentas del Balance General de fondos de inversión BG_FONDOS (Anexo 15):
+ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA ANTERIOR | NOMBRE DE LA CUENTA MODIFICADO
+15 | BG_FONDOS | 751015010102 | Por las operaciones de recompra con posición omprador a plazo | Obligaciones por pagar Reporto tripartito de valores - comprador a plazo
+751015020102 | Por las operaciones de recompra con posición comprador a plazo | Obligaciones por pagar Reporto tripartito de valores – comprador a plazo
+701002010100 | Márgenes aportados por operaciones de recompra | Márgenes aportados por operaciones de reporto
+701002020100 | Márgenes aportados por operaciones de recompra | Márgenes aportados por operaciones de reporto
+701005010110 | Dados en Garantía de recompras | Dados en Garantía de reportos
+701005010210 | Dados en Garantía de recompras | Dados en Garantía de reportos
+701005020110 | Dados en Garantía de recompras | Dados en Garantía de reportos
+701005020210 | Dados en Garantía de recompras | Dados en Garantía de reportos
+701006020110 | Dados en Garantía de recompras | Dados en Garantía de reportos
+701006020210 | Dados en Garantía de recompras | Dados en Garantía de reportos
+701007010200 | Operaciones de recompra opcionales | Operaciones de reporto opcionales
+701007020200 | Operaciones de recompra opcionales | Operaciones de reporto opcionales
+702010010102 | Por operaciones de recompra | Por operaciones de reporto
+702010020102 | Por operaciones de recompra | Por operaciones de reporto
+751015010101 | Por la compra de títulos valores (no incluye recompras) | Por la compra de títulos valores (no incluye reportos)
+751015020101 | Por la compra de títulos valores (no incluye recompras) | Por la compra de títulos valores (no incluye reportos)
+751020010200 | Por la cesión de títulos en operaciones de recompra | Por la cesión de títulos en operaciones de reporto
+751020020200 | Por la cesión de títulos en operaciones de recompra | Por la cesión de títulos en operaciones de reporto
+751030010200 | Operaciones de recompra opcionales | Operaciones de reporto opcionales
+751030020200 | Operaciones de recompra opcionales | Operaciones de reporto opcionales
+(El artículo 1° aparte d) del acuerdo N° 168 del 10 de marzo de 2010, elimina cuentas del anexo 15 "Balance General de fondos de inversión BG_FONDOS", según se describe a continuación:
+ANEXO | CATÁLOGO | Nº CUENTA | NOMBRE DE LA CUENTA
+15 | BG_FONDOS | 751015010700 | Por Mercado de Liquidez
+751015020600 | Por Mercado de Liquidez
+(El artículo 1° aparte f) del acuerdo N° 168 del 10 de marzo de 2010, modifica el contenido del anexo 18 "Plantilla de Carteras" para agregar un nuevop campo denominado "Tipo de Mercado" lsegún de describe a continuación:
+f) Se modifica el contenido del anexo 18 “Plantilla de Carteras” de las sociedades administradoras de fondos de inversión para agregar un nuevo campo denominado “Tipo de Mercado”, el cual identificará si la transacción corresponde a una negociación realizada en el mercado primario o en el mercado secundario. Este campo es requerido para todas las operaciones y los valores válidos son “P” = Mercado Primario y “S” = Mercado Secundario.
+(El artículo 2° del acuerdo N° 168 del 10 de marzo de 2010, modifica el contenido del anexo 10 "Reporte de inversiones propias Puestos de Bolsa" para agregar un nuevo campo denominado "Tipo de Mercado", según se describe a continuación:
+...Modificaciones relativas a Puestos de Bolsa. Se modifica el contenido del anexo 10 “Reporte de inversiones propias Puestos de Bolsa” de las sociedades administradoras de fondos de inversión para agregar un nuevo campo denominado “Tipo de Mercado”, el cual identificará si la transacción corresponde a una negociación realizada en el mercado primario o en el mercado secundario. Este campo es requerido para todas las operaciones y los valores válidos son “P” = Mercado Primario y “S” = Mercado Secundario.
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante articulo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.

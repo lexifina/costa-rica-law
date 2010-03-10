@@ -81,3 +81,8 @@ iv) Se modifica las notas aclaratorias para los Estados financieros no auditados
 TIPO DE ENTIDAD | Grupos Financieros
 INFORME O REPORTE | NOTAS ACLARATORIAS ANTERIOR | NOTAS ACLARATORIAS MODIFICADO
 Estados financieros no auditados de grupos financieros y empresas individuales del grupo | n.a. | “Las notas que acompañan los estados financieros no auditados trimestrales, deben incluir entre otros aspectos, si las políticas contables continúan siendo las mismas con respecto al último estado financiero auditado, si existen variaciones significativas con respecto al estado trimestral anterior y detallar las partidas llamadas “Otros” cuando éstas tengan una importancia relativa, lo anterior de conformidad con lo establecido en la NIC 34 “Información Financiera Intermedia. La información de estos estados debe remitirse en miles.”
+(Nota de Sinalevi: Mediante el artículo 1° apartes e) del acuerdo N° 168 del 10 de marzo de 2010, se modifica este artículo de la siguiente manera:
+e) Se modifica el artículo 2, para incorporar al “Cuadro de Información Periódica” la obligación de las sociedades administradoras de remitir la siguiente información cuando se realice la adquisición de una nota estructurada por parte de un fondo de inversión, según se indica en el artículo 2 del acuerdo SGV-A-138:
+TIPO DE ENTIDAD | Sociedades Administradoras de Fondos de Inversión
+INFORME O REPORTE | Periodicidad | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío | Notas aclaratorias
+Condiciones de las Notas Estructuradas | Cada vez que ocurra | Cinco días hábiles después de la adquisición de una nota | n/a | Papel | -
