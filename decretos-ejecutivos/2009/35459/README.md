@@ -14,3 +14,4 @@ Reglamento a la Limitación Territorial del Gasto de Viaje y Transporte (viátic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-31 | la propia norma |
+| 2 | 2010-03-11 | Decreto Ejecutivo 35851 (2010-03-11) |
