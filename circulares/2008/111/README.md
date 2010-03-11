@@ -13,3 +13,4 @@ Indicaciones generales sobre el proceso de selección y eliminación de document
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-25 | la propia norma |
+| 2 | 2010-03-11 | Circular 36 (2010-03-11) |
