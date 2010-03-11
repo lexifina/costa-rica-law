@@ -1,0 +1,1 @@
+Artículo 16.—Como medida de control de las especies silvestres que son objeto de casería y que permanezcan en cautiverio, cada usuario deberá costear el mareaje por medio de microchip en el momento de la inscripción, por lo tanto, los interesados deberán identificar un establecimiento, sea una veterinaria o tienda de mascotas, para la obtención de dicho microchip.
