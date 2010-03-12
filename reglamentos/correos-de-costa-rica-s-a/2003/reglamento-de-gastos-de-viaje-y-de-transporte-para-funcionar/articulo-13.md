@@ -1,6 +1,6 @@
-Artículo 13.—Del pago por desayuno, almuerzo, cena y hospedaje. La suma a cobrar por concepto de desayuno, almuerzo, cena y hospedaje se hará de conformidad con las tarifas establecidas en el Reglamento de la Contraloría. Además, para esos efectos se observarán las siguientes reglas:
-a) Desayuno: Se cubrirá cuando el viaje se inicie antes de o a las seis horas, siempre y cuando, luego de finalizada ésta, el trabajador continúe laborando hasta la finalización de la jornada ordinaria de trabajo.
-b) Almuerzo: Se reconocerá cuando la partida se realice antes de las diez horas y el regreso sea después de las catorce horas.
-Podrá ampliarse el límite de partida hasta las once horas, siempre y cuando el regreso se produzca después de las quince horas y el trabajador haya laborado en forma continua antes de dicha partida. También se pagará si la salida ocurrió antes de las diez horas y el regreso se realizó entre las trece horas y las catorce horas, siempre y cuando el trabajador hubiese laborado en forma continua hasta la finalización de su jornada ordinaria de trabajo.
-c) Cena: Se pagará cuando la partida se realice antes de las dieciséis horas y el regreso después de las diecinueve horas. Sin embargo, en casos especiales, podrá ampliarse el límite de partida hasta las dieciocho horas, siempre y cuando el regreso se produzca después de las veintiuna horas y el trabajador hubiese laborado en forma continua antes de su partida.
-d) Hospedaje: Se pagará cuando el trabajador estuviere obligado a pernoctar en lugar distinto al de su residencia, en razón del viaje.
+Artículo 13.—Del pago del desayuno, almuerzo, cena y hospedaje. La suma a pagar por los conceptos detallados anteriormente se hará en base a lo que establece el artículo Nº 5 del presente Reglamento. Además, para estos efectos se observarán las siguientes reglas:
+a) Desayuno: Se reconocerá cuando la gira se inicie antes de o a las siete horas, siempre y cuando, luego de finalizada ésta, el funcionario continúe laborando hasta la finalización de la respectiva jornada de trabajo.
+b) Almuerzo: Se cubrirá cuando la partida se realice antes de las once horas y el regreso después de las catorce horas.
+c) Cena: Se pagará cuando la partida se realice antes de las diecisiete horas y el regreso después de las veinte horas.
+d) Hospedaje: Se reconocerá cuando el servidor se viere obligado a pernoctar fuera de su domicilio, en razón de la gira.
+(Así reformado y publicado en La Gaceta N° 50 del 12 de marzo de 2010)
