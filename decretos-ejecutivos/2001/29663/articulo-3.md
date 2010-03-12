@@ -1,1 +1,1 @@
-Artículo 3º—Atribuciones y deberes. Los miembros de la Policía de Control Fiscal, en el cumplimiento de sus funciones, además de las atribuciones otorgadas por la Ley General de Policía, tendrán las mismas atribuciones, deberes y prohibiciones otorgadas a los funcionarios de la Administración Tributaria del Ministerio de Hacienda.
+Artículo 3º—(Derogado por el artículo 22 del Reglamento de Organización y Funciones de la Dirección de la Policía de Control Fiscal, aprobado mediente decreto ejecutivo N° 35940 del 12 de marzo de 2010)

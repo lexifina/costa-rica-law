@@ -1,2 +1,1 @@
-Artículo 6º—Organización. La Policía de Control Fiscal estará integrada por una Dirección, un Consejo Asesor y las siguientes áreas: Área Técnico-Legal, Área de Operaciones, Área de Planificación e Inteligencia y el Área de Administración y Logística. Cada área estará a cargo de un Coordinador de Proceso.
-La Dirección es el órgano superior jerárquico de la Policía de Control Fiscal, y estará encabezada por un Director.
+Artículo 6º—(Derogado por el artículo 22 del Reglamento de Organización y Funciones de la Dirección de la Policía de Control Fiscal, aprobado mediente decreto ejecutivo N° 35940 del 12 de marzo de 2010)

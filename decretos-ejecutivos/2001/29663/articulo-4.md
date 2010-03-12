@@ -1,1 +1,1 @@
-Artículo 4º—Integración. La Policía de Control Fiscal estará conformada por un equipo interdisciplinario de profesionales y técnicos, cuya formación será acorde con las funciones establecidas en este Reglamento.
+Artículo 4º—(Derogado por el artículo 22 del Reglamento de Organización y Funciones de la Dirección de la Policía de Control Fiscal, aprobado mediente decreto ejecutivo N° 35940 del 12 de marzo de 2010)
