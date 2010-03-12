@@ -14,3 +14,4 @@ Esquema de Operación del Sistema Tic@, internamiento al Régimen de Zonas Franc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-01 | la propia norma |
+| 2 | 2010-03-12 | Resolución 93 (2010-03-12) |
