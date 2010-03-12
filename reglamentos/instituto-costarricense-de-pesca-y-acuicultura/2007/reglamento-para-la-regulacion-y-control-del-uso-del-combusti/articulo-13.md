@@ -1,2 +1,0 @@
-Artículo 13.—La Orden de Compra de combustible tendrá una vigencia de 60 días calendario a partir de su fecha de emisión, vencido el plazo de su vigencia sin haberse hecho efectiva, la misma caducará de pleno derecho.
-Sin embargo, en casos excepcionales ante solicitud expresa del interesado en donde conste justificación razonable, en un plazo máximo de 10 días hábiles contados a partir de la fecha de vencimiento, el Jefe de la SCAC podrá emitir una nueva Orden de Compra de combustible por un plazo igual.

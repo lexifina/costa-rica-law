@@ -1,1 +1,0 @@
-Artículo 15.—Las Organizaciones Pesqueras con tanques propios o arrendados, estaciones de servicio y centros de almacenamiento debidamente autorizados, deberán llevar un Registro de Firmas de apoderados especiales, que realicen retiros de combustible en representación del permisionario, de conformidad con el formato suministrado por el INCOPESCA.

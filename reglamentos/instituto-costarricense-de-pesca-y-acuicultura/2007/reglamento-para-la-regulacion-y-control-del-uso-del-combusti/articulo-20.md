@@ -1,1 +1,0 @@
-Artículo 20.—En caso de solicitudes de inactividades o sus prórrogas, se seguirá el mismo procedimiento indicado en el Artículo 18 y la Orden de Compra de Combustible a Precio Preferencial será emitida una vez vencido el plazo de la misma y se hará constar en el expediente respectivo la solicitud y su documentación.
