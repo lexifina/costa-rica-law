@@ -1,1 +1,0 @@
-Artículo 5º—En caso de que el beneficiario decida efectuar un cambio respecto a los apoderados especiales mediante las cuales ha autorizado la realización de su trámite de combustible a precio competitivo, deberá presentar ante el INCOPESCA, un nuevo poder especial y notificación legal de derogación del poder otorgado anteriormente para esos efectos.

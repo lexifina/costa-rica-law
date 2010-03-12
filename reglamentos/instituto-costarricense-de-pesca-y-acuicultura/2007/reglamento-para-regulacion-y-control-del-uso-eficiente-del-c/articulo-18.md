@@ -1,1 +1,0 @@
-Artículo 18.—De los documentos anteriores una vez revisados, se devolverá al interesado la copia de la solicitud debidamente firmada y sellada por el funcionario (opcional), una copia de la orden de compra emitida y original (es) de la (s) factura (s) de compra de combustible del (los) viaje (s) anterior (es).

@@ -1,2 +1,0 @@
-Artículo 42.—A partir de la publicación del presente Reglamento en el Diario Oficial La Gaceta, la Dirección General Técnica del INCOPESCA conjuntamente con la jefatura de la DCAC y los Directores Regionales de Limón y Guanacaste, contarán con tres meses calendario para validar el estudio realizado en el año 2003 sobre el gasto de combustible tipo gasolina para aquellas embarcaciones cuya base de operación es el Golfo de Nicoya, Limón y Guanacaste.
-Corresponderá a la Dirección General Técnica, establecer la metodología a seguir para la validación de dicho estudio.

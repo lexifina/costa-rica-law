@@ -1,1 +1,0 @@
-Artículo 29.—Para las embarcaciones pertenecientes a la flota mediana escala, avanzada y semi-industrial, se considerarán días de ausencia los días transcurridos en términos de 24 horas desde la salida hasta el regreso de la embarcación y de existir fracciones de día superiores a 12 horas, se contabilizará como un día adicional de pesca.
