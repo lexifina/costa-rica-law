@@ -1,0 +1,1 @@
+Artículo 4º—Concepto de funcionario, trabajador o colaborador. Para efectos de este código se entiende como Colaborador, Funcionario, Trabajador o Colaborador a toda persona física, hombre o mujer, que realice ocasional o permanentemente funciones públicas en el Colegio Universitario de Cartago, independientemente de la modalidad de su nombramiento.

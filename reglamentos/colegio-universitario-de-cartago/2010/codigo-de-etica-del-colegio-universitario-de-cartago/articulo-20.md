@@ -1,0 +1,1 @@
+Artículo 20.—Deber de armonía laboral. El colaborador del CUC debe fomentar un clima de armonía en sus relaciones laborales, proyectar siempre una imagen positiva de los colaboradores de la institución e impulsar el desarrollo de una cultura institucional.

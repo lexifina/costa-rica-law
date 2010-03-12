@@ -1,0 +1,1 @@
+Artículo 19.—Deber de respetabilidad. El colaborador del CUC tiene derecho a la dignidad, la honra, el buen nombre, la buena reputación y la intimidad personal y familiar, así como el deber de respetar esos derechos en los demás.

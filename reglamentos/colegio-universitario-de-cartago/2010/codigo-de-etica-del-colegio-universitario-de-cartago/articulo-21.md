@@ -1,0 +1,1 @@
+Artículo 21.—Deber de superación. El colaborador del CUC debe promover la autoestima, reconociendo su valor como ser humano y funcionario institucional, y procurando la maestría personal y superación profesional con el fin de aumentar sus conocimientos, experiencia y solidez moral.

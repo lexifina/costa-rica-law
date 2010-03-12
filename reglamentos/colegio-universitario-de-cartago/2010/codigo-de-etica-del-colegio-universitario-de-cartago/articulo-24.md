@@ -1,0 +1,1 @@
+Artículo 24.—Deber de rendición de cuentas. Deberán rendir cuentas ante los órganos públicos correspondientes, la prensa, las organizaciones de al sociedad civil y la ciudadanía en general por los actos y decisiones realizados en el ejercicio del cargo y someterse a cualquier forma de escrutinio que resulte apropiada par su cargo

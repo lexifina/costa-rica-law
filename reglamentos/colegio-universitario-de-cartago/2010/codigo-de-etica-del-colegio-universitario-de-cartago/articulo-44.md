@@ -1,0 +1,1 @@
+Artículo 44.—Integración de la comisión. Para efectos de este Código, la comisión institucional de rescate y formación de valores estará integrada por un mínimo de cinco miembros. La elección y plazo de nombramiento sus miembros será definida por el Consejo de Decanatura con estricta sujeción a factores de idoneidad, capacidad, responsabilidad y espíritu de servicio.

@@ -1,0 +1,1 @@
+Artículo 37.—El denunciante no contraerá obligación que le ligue al proceso de investigación ni incurrirá en responsabilidad penal alguna, excepto en los casos de denuncia escrita maliciosa, temeraria o calumniosa. En estos casos si el colaborador involucrado lo considera pertinente puede solicitar el expediente para ejercer las acciones legales correspondientes.

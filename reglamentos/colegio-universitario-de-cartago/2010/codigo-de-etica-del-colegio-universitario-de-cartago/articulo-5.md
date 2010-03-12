@@ -1,0 +1,1 @@
+Artículo 5º—Definición de función pública. Para efectos de este código la función pública se entiende como toda aquella actividad que brinda la institución con el propósito de satisfacer el interés público que señala la ley.

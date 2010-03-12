@@ -1,0 +1,1 @@
+Artículo 9º—Deber de lealtad. El colaborador del CUC debe ser leal al Estado y a la Institución en la que presta sus servicios, y fiel a los principios éticos expresados en el artículo 6 de este código. Desempeñará sus labores en procura del cumplimiento de sus fines y con plena conciencia y voluntad de servicio a la colectividad.

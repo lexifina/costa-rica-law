@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones incluidas en este código se aplican a todos los trabajadores del Colegio Universitario de Cartago, sin detrimento de normas especiales que otras leyes estipulen en situaciones similares para algunas categorías de trabajadores en particular.

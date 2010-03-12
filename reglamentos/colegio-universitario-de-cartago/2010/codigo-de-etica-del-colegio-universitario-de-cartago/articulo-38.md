@@ -1,0 +1,1 @@
+Artículo 38.—Cuando del resultado de la investigación se deduzca o establezca que la denuncia es falsa o revela intención de dañar, se levantará la reserva y se correrá traslado con el expediente al colaborador público que se pretendió perjudicar, a fin de que ejerza las acciones legales pertinentes.

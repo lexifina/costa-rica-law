@@ -1,0 +1,3 @@
+Artículo 33.—Deberes especiales. Además de lo especificado en el capítulo anterior, es deber de todo funcionario institucional con potestad de dirección y decisión que implique el uso de recursos públicos lo siguiente:
+Declarar bajo juramento ante la Contraloría General de la República, al asumir el cargo y al abandonarlo por cualquier circunstancia, su situación patrimonial así como cualquier modificación durante el ejercicio del cargo, en la forma y según los procedimientos que por reglamento disponga la Contraloría.
+Presentar, antes de asumir el cargo, declaración jurada ante la Contraloría General de la República sobre la inexistencia de incompatibilidades legales e inconstitucionales.

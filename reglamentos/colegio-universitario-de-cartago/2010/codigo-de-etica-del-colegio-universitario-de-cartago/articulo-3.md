@@ -1,0 +1,1 @@
+Artículo 3º—Alcance. El presente código guía la conducta de los colaboradores del Colegio Universitario de Cartago en sus actividades laborales y en las de carácter oficial que se realicen dentro o fuera del campus institucional con ocasión del ejercicio de su función pública, cualquiera sea la denominación del puesto o jerarquía que ostente.

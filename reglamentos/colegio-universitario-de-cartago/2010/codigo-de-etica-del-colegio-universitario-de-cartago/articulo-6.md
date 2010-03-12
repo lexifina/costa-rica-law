@@ -1,0 +1,5 @@
+Artículo 6º—Principios éticos de la función y el servicio institucional.
+La ética de los colaboradores del CUC tiene como propósito único el bien común. Para su consecución se implementarán los valores de Excelencia, Trabajo en Equipo, Compromiso y Transparencia.
+La lealtad al CUC y al Estado, la legalidad, la dignidad, la probidad, la integridad, la eficiencia, la responsabilidad, la veracidad de la información, la confidencialidad, la imparcialidad, la respetabilidad, la armonía laboral, la iniciativa, la creatividad y el espíritu de superación son valores esenciales propios del ejercicio de la función pública. Los deberes así como las prohibiciones que deben acatar los funcionarios del CUC se fundamentan en dichos valores y principios.
+El colaborador del CUC es un representante del Estado, y es la persona mediante la cual la institución brinda sus servicios a los administrados.
+El colaborador del CUC debe mantener una conducta intachable, para ello ha de cumplir la ley y someterse a los principios de la Ética del Colaborador Público, estén o no regulados por la ley.

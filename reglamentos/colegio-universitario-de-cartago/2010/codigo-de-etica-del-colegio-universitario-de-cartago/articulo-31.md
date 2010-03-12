@@ -1,0 +1,1 @@
+Artículo 31.—Prohibiciones como ex-funcionario. Le es prohibido al ex-funcionario del Colegio Universitario de Cartago hacer uso de sus influencias o relaciones con personal de su antigua oficina o puesto con el propósito de obtener ventajas indebidas para sí, para familiares hasta el segundo grado de consanguinidad o afinidad, o para terceros

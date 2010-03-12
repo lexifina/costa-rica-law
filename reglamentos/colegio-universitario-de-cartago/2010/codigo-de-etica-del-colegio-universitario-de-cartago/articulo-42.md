@@ -1,0 +1,1 @@
+Artículo 42.—La comisión institucional de rescate y formación de valores se regirá en su organización por los lineamientos que al efecto ha dispuesto y en lo futuro disponga la Comisión Nacional de Rescate y Formación de Valores; además, tendrán las funciones que estipula el siguiente artículo.

@@ -1,0 +1,6 @@
+Artículo 43.—Funciones de la comisión. Además de las funciones que, conforme al Plan Nacional de Rescate de Valores, le corresponde a las comisiones institucionales de rescate y formación de valores, en lo que respecta a esta Ley. Dicha comisión tendrá las siguientes funciones:
+Divulgar y promover, entre los funcionarios de la institución, los principios éticos que deben practicar.
+Para lograr este objetivo realizará periódicamente las actividades pertinentes para el mejoramiento de la calidad de los valores institucionales.
+Asesorar a los funcionarios de la institución en lo relativo a la aplicación de este Código de Ética, atendiendo y resolviendo las consultas que los funcionarios planteen por escrito respecto de las dudas sobre los alcances de un deber o una prohibición en un caso concreto. Las consultas deberán resolverse dentro de los siguientes 30 días naturales a su presentación.
+Tramitar y rendir un informe al jerarca respectivo, recomendando las medidas administrativas, laborales o penales aplicables sobre las denuncias que formulen los colaboradores o terceras personas por el incumplimiento de deberes y prohibiciones a este Código.
+Programar y ejecutar la capacitación integral del colaborador del CUC, procurando la vocación del servicio, eficacia y eficiencia en la labor diaria.
