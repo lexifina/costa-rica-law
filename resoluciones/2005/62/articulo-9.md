@@ -1,2 +1,0 @@
-9º—Régimen sancionatorio. El incumplimiento de estas Directrices por los funcionarios involucrados podrá implicar la aplicación de los regímenes de responsabilidad que establecen la Ley de Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno y las demás disposiciones concordantes.
-Asimismo, las acciones irregulares que realice algún funcionario o particular que por su gravedad pudiera configurar algún delito serán puestas en conocimiento del Ministerio Público para lo que corresponda.
