@@ -1,0 +1,6 @@
+INSTITUTO NACIONAL DE LAS MUJERES
+A.J.D. 010-2010.—Junta Directiva del Instituto Nacional de las Mujeres. Acuerdo número cuatro del acta Nº 4-2010 del 28 de enero del 2010.
+SE ACUERDA:
+1 1- Modificar el inciso g) del artículo 23 del Reglamento de Capacitación y Becas para el Desarrollo del Recurso Humano, para que diga:
+Permiso con goce de salario para efectuar el Informe Final de Tesis de Grado o Postgrado, el cual puede ser por un máximo de 10 horas semanales durante 6 meses o por un 1 mes calendario, a elección de la persona funcionaria. A partir del vencimiento de este permiso, la persona que obtenga esta licencia, contará con el plazo improrrogable de un año, para presentar a la CCAD el título expedido por el Centro Educativo, correspondiente al grado académico para el cual se otorgó este beneficio. En caso de incumplimiento de este plazo, deberá reintegrar el monto equivalente a la licencia disfrutada, a valor actual y con los intereses correspondientes, conforme lo establece el Manual de Normas y Procedimientos del Reglamento de Capacitación y Becas para el Desarrollo del Recurso Humano. Este beneficio se otorgará solo una vez por cada grado profesional.
+2 2- Rige a partir de su publicación en el Diario Oficial La Gaceta.
