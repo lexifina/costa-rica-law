@@ -1,0 +1,1 @@
+Artículo 4º—Dependencia responsable: Corresponderá a la Actividad de Alcantarillado Pluvial de la Municipalidad, la prestación de dicho servicio y el ejercicio de las actividades indicadas en el artículo anterior, sin perjuicio de que en el cumplimiento de esas tareas requiere el concurso de otras dependencias institucionales.

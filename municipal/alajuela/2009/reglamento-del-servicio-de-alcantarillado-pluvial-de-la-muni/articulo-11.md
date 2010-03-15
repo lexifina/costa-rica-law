@@ -1,0 +1,10 @@
+CAPÍTULO IV
+De los usuarios
+Artículo 11.—Obligaciones: Con el fin de garantizar el buen estado de los sistemas pluviales, los usuarios tendrán las siguientes obligaciones:
+a) Solicitar autorización al municipio para conectarse a los sistemas pluviales o para canalizar mediante entubado el flujo de acequias no administradas calificadas como colectores pluviales y que deberá estar sustentada en los correspondientes estudios de factibilidad.
+b) Construir en sus edificaciones los elementos apropiados para la recolección y disposición de las aguas pluviales desde los techos hasta el cordón de caño, cuneta o sistema de alcantarillado pluvial, de acuerdo con lo establecido en el artículo IV. 17 del Reglamento de Construcciones.
+c) Garantizar que las rampas de acceso vehicular a predios, construidas desde el cordón de caño, no constituyan un cuello de botella producido por el uso de tubería con diámetros inadecuados para tal fin; cumpliendo además con los establecido en el artículo IV.4.2 del Reglamento de construcciones y la ley 7600 referente a la construcción de aceras y rampas.
+d) Dar mantenimiento a las parrillas empleadas para dar acceso a predios desde la vía pública, eliminando los desechos sólidos y sedimentos que se acumulen, para evitar la obstaculización del sistema pluvial.
+e) Vigilar el uso y reportar el hurto e parrillas, tapas y en general, cualquier daño producido a cualquiera de los elementos que conforman el sistema de alcantarillado pluvial.
+f) Dar mantenimiento a las zanjas, canales a cielo abierto o acequias no administradas consideradas como colectores pluviales que atreviesen sus propiedades, a fin de eliminar la vegetación, los sedimentos o los desechos que disminuyan su cauce y puedan ser causantes de desbordamiento.
+g) Permitir el discurso a través de sus predios, de las aguas pluviales provenientes de predios superiores según la pendiente natural del terreno, cuando no sea posible canalizar dichas aguas mediante obras de infraestructura, a un colector público.

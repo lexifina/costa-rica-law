@@ -1,0 +1,1 @@
+Artículo 10.—Aprobación y vigencia: Las tarifas relativas al servicio de alcantarillo pluvial serán autorizadas por el Concejo y aprobadas por la Contraloría General de la República. Entrarán a regir treinta días después de su publicación en el Diario Oficial La Gaceta.
