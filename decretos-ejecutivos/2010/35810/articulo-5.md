@@ -1,0 +1,1 @@
+Artículo 5º—Deróguese el inciso h) del Artículo 14 del Decreto Ejecutivo Nº 29631-MEP del 18 de junio de 2001, publicado en La Gaceta Nº 133 del 11 de julio de 2001, Reglamento General del Consejo Nacional de Enseñanza Superior Universitaria Privada.

@@ -1,0 +1,1 @@
+Artículo 6º—Se deja sin efecto todo acuerdo, que haya tomado el CONESUP, que se contraponga en materia de Educación Universitaria Virtual a la presente reforma, sin perjuicio de situaciones jurídicas consolidadas según el artículo 34 de la Constitución Política.

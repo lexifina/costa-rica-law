@@ -1,0 +1,1 @@
+Transitorio II.—Las solicitudes de aprobación de carreras de grado y postgrado de la Educación Universitaria Virtual, actualmente en trámite en el CONESUP, en un plazo de seis meses, deberán adecuarse a la presente reforma, sin perjuicio de situaciones jurídicas consolidadas conforme lo dispone el numeral 34 de la Constitución Política.
