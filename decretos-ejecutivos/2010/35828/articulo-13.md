@@ -1,0 +1,3 @@
+Artículo 13.—Adiciónese un último párrafo al apartado 7.2.2.2 “Análisis por parte del SFE (Segunda Etapa)” del artículo 2 del Decreto Ejecutivo N° 33495-MAG-S-MINAE-MEIC “Reglamento sobre el Registro, Uso y Control de Plaguicidas Sintéticos Formulados, Ingrediente Activo Grado Técnico, Coadyuvantes y Sustancias Afines de Uso Agrícola” del 31 de octubre de 2006, publicado en el Diario Oficial La Gaceta N° 7 del 10 de enero de 2007, para que se lea de la siguiente forma:
+“[…]
+En esta etapa el oficial de registro verificará la protección de los datos de prueba indicada en la sección 7 de este Reglamento.”
