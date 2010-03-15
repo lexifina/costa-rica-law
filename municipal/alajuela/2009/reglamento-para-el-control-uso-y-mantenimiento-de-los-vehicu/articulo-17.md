@@ -1,0 +1,1 @@
+Artículo 17.—La Unidad de Transportes analizará todo accidente de Tránsito, en que participe un vehículo municipal y rendirá un informe a la Administración del que quedará copia en el expediente abierto al efecto, con la recomendación respectiva.

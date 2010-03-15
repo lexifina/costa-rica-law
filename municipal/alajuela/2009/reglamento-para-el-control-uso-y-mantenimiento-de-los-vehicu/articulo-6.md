@@ -1,0 +1,1 @@
+Artículo 6º—El control, uso y mantenimiento de los vehículos municipales estará a cargo del encargado de la Unidad de Transportes o en su defecto por el Coordinador del Subproceso de Servicios Administrativos o de la dependencia institucional a la que el Alcalde (sa) designe.

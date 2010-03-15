@@ -1,0 +1,1 @@
+Artículo 22.—Las disposiciones contenidas en el presente Reglamento son aplicables a todos los funcionarios que en razón de sus cargos usen, controlen o administren los recursos de transporte de la municipalidad, incluso al Alcalde (sa) y los miembros del Concejo. Cualquier reforma o adición a este Reglamento deberá ser aprobado por el Concejo Municipal.
