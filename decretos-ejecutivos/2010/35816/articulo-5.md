@@ -1,0 +1,1 @@
+Artículo 5º—Momento para rendir la canción. La caución deberá de ser rendida cuando sea designada la persona en el puesto sujeto a rendir la garantía, durante los quince días hábiles siguientes al momento en que asume el cargo. El núcleo de Recursos Humanos de la institución prevendrá de la obligación de rendir la caución al momento de nombrar al funcionario.

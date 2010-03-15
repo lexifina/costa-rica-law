@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución a favor de la Procuraduría General de la República sólo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad; sin embargo, la Procuraduría General de la República podrá disponer mediante resolución razonada otros medios que resulten idóneos para ese fin.
