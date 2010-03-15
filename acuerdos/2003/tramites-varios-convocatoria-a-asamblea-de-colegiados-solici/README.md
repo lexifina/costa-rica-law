@@ -14,3 +14,4 @@ Trámites Varios: Convocatoria a Asamblea de Colegiados, Solicitud de Certificac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-17 | la propia norma |
+| 2 | 2010-03-15 | Acuerdo 0 (2010-03-15) |
