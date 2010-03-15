@@ -1,0 +1,1 @@
+Artículo 19.—Proselitismo político. Los funcionarios de la DIS tienen prohibido participar, ayudar o apoyar a un determinado grupo o fracción política, según lo dispuesto por el artículo 146 del Código Electoral y artículos 10 inciso c) y 76 inciso b) de la Ley General de Policía.

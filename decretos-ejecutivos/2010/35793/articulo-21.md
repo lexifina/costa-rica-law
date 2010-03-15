@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 21.—El incumpliendo de cualquier artículo del presente Código de Ética constituye falta susceptible de sanción disciplinaria, dando origen a las sanciones contempladas en la Ley General de Policía, en el Reglamento de Organización y Funcionamiento de la Dirección de Inteligencia y Seguridad Nacional, Decreto 32522-MP y en el Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y del Ministerio de la Presidencia, Decreto Ejecutivo 32300-MP. Sin perjuicio de otras sanciones de orden civil y/o penal cuando resulten procedentes.

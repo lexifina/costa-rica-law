@@ -1,0 +1,1 @@
+Artículo 12.—Uso adecuado de los bienes. Proteger y conservar los bienes de la DIS, utilizando los que le fueran asignados para el estricto cumplimiento de sus funciones de manera racional, evitando su abuso, derroche o desaprovechamiento.

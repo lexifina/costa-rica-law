@@ -1,0 +1,1 @@
+Artículo 17.—Colusión. Está prohibida cualquier forma de colusión con los proveedores, prestadores de servicios o empresas, rigiéndose el mismo por el principio de imparcialidad e independencia del empleado público.

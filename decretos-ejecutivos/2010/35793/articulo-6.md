@@ -1,0 +1,1 @@
+Artículo 6º—Servicio. Disposición para ayudar a los demás. Conducirse en todo momento con respeto y corrección, en su trato con los usuarios internos y externos. Deberán ser respetuosos en todas sus actuaciones, absteniéndose de utilizar términos despectivos, irrespetuosos o peyorativos, ya sea en forma escrita o verbal.
