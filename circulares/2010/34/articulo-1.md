@@ -3,7 +3,7 @@ ASUNTO: Listas de Curadores, Notarios Inventariadores e Interventores
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
 El Consejo Superior en sesión Nº 04-10, celebrada el 14 de enero de 2010, artículo X, dispuso hacer de su conocimiento las siguientes listas de Curadores, Notarios Inventariadores e Interventores para los procesos mercantil y civil, los que, de conformidad con lo que establecen los artículos 1º y 4º del Reglamento respectivo, fueron designados en sesión Nº 112-09 del 9 de diciembre del 2009, artículo XXVII, por un período de cinco años, contados a partir del 7 de enero del 2010, fecha de la firmeza del acuerdo adoptado en la sesión antes referida.
-CURADORES
+(*)CURADORES
 | NOMBRE | ZONA DE INTERÉS
 1 | Arauz Centeno Efrén | Todo el país
 2 | Arguedas Pérez Roberto | Todo el país
@@ -55,6 +55,7 @@ CURADORES
 48 | Vega Herrera Patricia | Todo el país
 49 | Vignoli Chessler Piero | Todo el país
 50 | Villegas Arce Miguel | Todo el país
+(*)(Nota de Sinalevi:Mediante circular N° 037 del 15 de marzo de 2010, se aclara que en el listado de curadores indicado en esta circular, aplica para la materia concursal)
 NOTARIOS INVENTARIADORES
 | NOMBRE | ZONA DE INTERÉS
 1 | Arguedas Pérez Roberto | Todo el país
@@ -138,6 +139,7 @@ INTERVENTORES
 27 | Mata Centeno Juan Ignacio | Todo el país
 28 | Medina Medina Alonso | Todo el país
 29 | Meléndez Cortés Edwin | Todo el país
+30 | Mora Córdoba Jorge A. (Así adicionado mediante circular N° 037 del 15 de marzo de 2010) | Todo el país
 31 | Muñoz Quesada Mario | Todo el país
 32 | Murillo Vega Franklin Gerardo | Todo el país
 33 | Padilla Cerdas Roy | Todo el país

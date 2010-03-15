@@ -13,3 +13,4 @@ Listas de Curadores, Notarios Inventariadores e Interventores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-09 | la propia norma |
+| 2 | 2010-03-15 | Circular 37 (2010-03-15) |
