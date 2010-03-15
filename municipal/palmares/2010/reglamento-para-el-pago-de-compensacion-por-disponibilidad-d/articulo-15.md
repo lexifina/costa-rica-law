@@ -1,0 +1,1 @@
+Artículo 15.—Vigencia: El presente reglamento sólo será aplicable a los servidores municipales nombrados en propiedad. Y en cumplimiento del artículo 43, del Código Municipal, entrará en vigencia a los cinco días de su publicación.
