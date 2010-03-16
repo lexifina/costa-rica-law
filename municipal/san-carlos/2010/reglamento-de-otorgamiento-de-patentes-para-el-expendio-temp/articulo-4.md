@@ -1,0 +1,1 @@
+Artículo 4º—Quien solicite una patente temporal para la venta de licores se obliga a presentar una carta de compromiso para el cumplimiento de lo que para tal efecto establece la Ley de Licores y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 3º—Queda prohibido para la organización beneficiada vender, ceder, arrendar, o transferir por cualquier medio una patente provisional de licores y en igual forma consentir o autorizar la explotación de un tercero en su condición de patentado, dentro de las instalaciones de las actividades autorizadas ya sean éstas propias, arrendadas o prestadas.
