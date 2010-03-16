@@ -1,0 +1,1 @@
+Artículo 9º—Responsabilidades relacionadas con la aprobación presupuestaria interna. El jerarca u órgano con la competencia necesaria, deberá de manera oportuna conocer, verificar y pronunciarse mediante acto razonado sobre el cumplimiento del bloque de legalidad aplicable a los presupuestos extraordinarios y modificaciones presupuestarias.
