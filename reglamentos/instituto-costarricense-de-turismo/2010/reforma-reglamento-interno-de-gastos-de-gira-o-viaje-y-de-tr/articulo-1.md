@@ -1,0 +1,8 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+La Junta Directiva del Instituto Costarricense de Turismo, en sesión ordinaria N° 5626, artículo 2º, inciso V), celebrada el día 16 de febrero del 2010, mediante acuerdo N° 105-2010, aprobó la siguiente modificación:
+SE ACUERDA:
+A) De conformidad con el oficio N° AG-P-As-003-2010, suscrito por la Auditoría General, aprobar la modificación presentada al Artículo I del Reglamento Interno de Gastos de Viaje y Transporte del ICT, en su párrafo final según oficio N° AL-0139-2010 de la Asesoría Legal, relacionado con el pago de viáticos de los funcionarios de las Oficinas Centrales y Regionales, para que se lea de la siguiente forma:
+“Artículo 1°—Obligación de tramitar la solicitud del adelanto. ...
+Cuando por razones de la índole del trabajo a desarrollar, los funcionarios de oficinas centrales deban desplazarse a zonas con distancia mayor a diez kilómetros del lugar ordinario de trabajo o que por la naturaleza de la labor no puedan trasladarse a las instalaciones del ICT para alimentarse; se podrán reconocer gastos de viaje y transporte. En el caso de los servidores de Oficinas Regionales, la Gerencia General, por resolución previa y genérica, debidamente fundamentada para cada oficina en particular, determinará la forma en que se autorizará el pago de gastos de viaje y transporte. En ambos casos se deberá contar de previo para cada situación específica con el refrendo del jefe inmediato. Todo de conformidad con lo dispuesto por el artículo 17 del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos de la Contraloría General de la República ...”
+Instruir a la Administración proceda con su aplicación y publicación en el Diario Oficial La Gaceta.
+Acuerdo firme
