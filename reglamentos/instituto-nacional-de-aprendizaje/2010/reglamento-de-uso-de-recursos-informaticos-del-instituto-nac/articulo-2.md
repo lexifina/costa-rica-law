@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de acción. Lo enunciado en el presente Reglamento es aplicable a todos los funcionarios del INA y usuarios de los recursos informáticos. Será responsabilidad de los usuarios en general de los recursos informáticos conocer y cumplir lo aquí estipulado.
