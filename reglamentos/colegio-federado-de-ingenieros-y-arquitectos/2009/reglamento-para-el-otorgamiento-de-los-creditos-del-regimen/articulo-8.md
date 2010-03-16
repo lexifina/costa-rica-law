@@ -1,11 +1,14 @@
 CAPÍTULO IV
 Uso y destino de los créditos
-Artículo 8º— El Régimen dispondrá al menos de las siguientes líneas de crédito para uso de sus miembros:
+Artículo 8º—El Régimen dispondrá al menos de las siguientes líneas de crédito para uso de sus miembros:
 a. Auxilio: Para resolver situaciones de emergencia. Su trámite será más expedito, los intereses más bajos y podrá tener un período de gracia para cancelación. Entre dichas situaciones están: enfermedad o muerte de parientes en primer grado de consanguinidad y cónyuge, accidente que le impida laborar al agremiado, robo, caso de sismo, incendio o inundación de la casa de habitación u oficina de trabajo, reparación de vehículo o equipo cuando estos sean herramientas esenciales para el trabajo, o los casos especiales que requieran el análisis de la Junta Administradora. Como requisito para el otorgamiento de esta línea de crédito, se debe aportar los documentos de respaldo correspondientes a los gastos (facturas, proformas, certificados médicos, constancia de nacimiento de los hijos o de matrimonio, si fueran gastos familiares y en caso de robo, la denuncia realizada ante el O.I.J. u otros reportes de organismos competentes correspondientes a cada caso.) y contar con la recomendación de los profesionales asignados por el Régimen de Mutualidad justificando la necesidad.
 (Así reformado el inciso anterior mediante sesión N° 42 del 18 de agosto del 2009).
 b. Personal: para diferentes necesidades personales dentro de los topes que se establezcan.
 c. Desarrollo Profesional: para ser utilizado en los siguientes casos: Cursos de capacitación, giras técnicas, estudios, congresos, seminarios, compra vehículo para trabajo, compra equipo oficina, remodelación de la oficina y compra de equipo para desarrollar el trabajo profesional.
 d. Crédito personal sin fiador: para diferentes necesidades personales con la facilidad de que el agremiado se auto avala, regulado por los requisitos que establezca la Administración del Régimen de Mutualidad y sean aprobados por la Junta Administradora del Régimen. Plazo máximo doce meses, excelente récord de crédito tipo A y otros que la Junta Administradora indique. En estos casos el deudor garantizará la deuda con un pagaré o una letra de cambio.
-e. Compra de Nichos: en los diferentes cementerios del país.
+e) Crédito de Servicios Fúnebres: Esta línea de crédito cubre:
+• Servicios funerarios (féretro, capilla de velación o casa de habitación, libro de firmas, servicio de cafetería, arreglos florales en la capilla de velación, tributo, cuña televisiva, alfombra en el templo, servicio religioso (Iglesia o templo a escoger), traslados, parqueo, trámites en el Registro Civil, apertura de nichos, traslados, y otros servicios fúnebres).
+• Cremación (féretro para cremación, traslados, permisos ante el Ministerio de Salud, proceso decremación, urna estándar para cenizas, embalaje para urna, trámites en el Registro Civil, autopsia, servicios funerarios, entre otros).
+• Compra de nichos (escritura, impuestos, y otros)
+(Así reformado el inciso e) anterior mediante acuerdo N° 16 tomado en sesión N° 23 del 16 de marzo del 2010).
 f. Y aquellas líneas que la Junta Administradora del Régimen recomiende y sean aprobadas por la Junta Directiva General del Colegio Federado de Ingenieros y de Arquitectos.
-C
