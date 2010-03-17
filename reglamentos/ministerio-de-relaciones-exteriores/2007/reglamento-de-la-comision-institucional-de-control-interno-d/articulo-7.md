@@ -1,3 +1,0 @@
-Artículo 7º—De las sesiones de la comisión. La Comisión se reunirá con la frecuencia que sea necesaria, como mínimo una reunión al mes ordinaria y las extraordinarias que sean necesarias.
-Previo a cada reunión se establecerá una agenda con el orden del día, la cual deberá hacerse del conocimiento de todos los miembros que integran la Comisión y serán convocados por el Coordinador de esta o bien por cualquiera de sus miembros cuando medie solicitud dirigida al Coordinador de la Comisión, por considerarse así necesario.
-En cada reunión se levantará un acta en la cual se consigne la fecha, la hora, la asistencia, así como todos los acuerdos tomados.

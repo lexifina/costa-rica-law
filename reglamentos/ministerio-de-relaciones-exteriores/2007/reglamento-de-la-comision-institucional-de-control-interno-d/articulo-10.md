@@ -1,1 +1,0 @@
-Artículo 10.—De la toma de decisiones: Los acuerdos tomados por la Comisión Institucional de Control Interno (CICI) se darán por mayoría calificada de la mitad más uno de los presentes en la sesión. En caso de empate decidirá con doble voto el coordinador de la misma. Para que haya quórum se requerirá al menos la mitad más un miembro del total.
