@@ -1,0 +1,1 @@
+Artículo 16.—Cualquier miembro de la CONAFI podrá solicitar revisión de los acuerdos adoptados en la sesión anterior. Dicha solicitud deberá hacerse efectiva al momento de lectura y discusión del acta de la sesión anterior.

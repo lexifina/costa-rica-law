@@ -1,0 +1,1 @@
+Artículo 7º—El Poder Ejecutivo procederá a emitir el Acuerdo y publicar en el Diario Oficial La Gaceta el nombramiento respectivo. Los integrantes de la CONAFI no percibirán dietas, ni emolumento alguno por participar e integrar dicho órgano colegiado.

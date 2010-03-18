@@ -1,0 +1,1 @@
+Artículo 14.—Los integrantes de la CONAFI, tendrán la obligación de declarar su inhabilidad o incompatibilidad real o moral, respecto de cualquier tema sobre el que tengan interés directo, tener vínculo de parentesco con el patrocinante de algún tema, o prestar asesoría profesional sobre el mismo.

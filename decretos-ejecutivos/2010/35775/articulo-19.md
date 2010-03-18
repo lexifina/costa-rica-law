@@ -1,0 +1,2 @@
+Artículo 19.—Para poder ejercer las facultades que la Ley de Protección Fitosanitaria, su Reglamento y este Decreto Ejecutivo indican, los funcionarios del SFE deberán colaborar con la CONAFI y brindarles la información que éstos requieran de una manera ágil y transparente, siempre que no sea clasificada como confidencial; estas solicitudes se canalizarán a través del Director del SFE.
+El Director del SFE actuará como ente de enlace hacia las diferentes instancias de este.

@@ -1,0 +1,1 @@
+Artículo 20.—El presente Decreto Ejecutivo no crea cargos ni compromete los recursos presupuestarios del SFE. El apoyo que se ofrece a la CONAFI consiste únicamente en el aporte de un funcionario que ejercerá la Secretaría y el aporte de un asesor legal, sólo cuando sea solicitado por acuerdo de la CONAFI. Ambos funcionarios participarán con voz pero sin voto.

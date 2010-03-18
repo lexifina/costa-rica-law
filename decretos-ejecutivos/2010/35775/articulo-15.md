@@ -1,0 +1,2 @@
+Artículo 15.—Las actas de las sesiones, serán aprobadas por la CONAFI y firmadas en la sesión siguiente por el Presidente y la Secretaría, dando fe de ello.
+Los acuerdos declarados en firme podrán ejecutarse a partir de la fecha en que fueron adoptados. Éstos podrán declararse en firme en la misma sesión donde se tomó la resolución. La CONAFI designará quién los ejecuta, la Secretaría dará seguimiento.

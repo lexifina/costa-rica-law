@@ -1,0 +1,2 @@
+Artículo 5º—El Ministro de Agricultura y Ganadería delega en la persona del Director del SFE, la potestad de solicitar a las entidades que conforman la CONAFI, la designación de su representante propietario y suplente. Con excepción del representante de los pequeños y medianos productores, que será designado por el Ministro.
+El Director General del SFE deberá enviar la solicitud de postulación a las organizaciones que conforman la CONAFI en un plazo no mayor de ocho días hábiles cada vez que se presente una vacante.

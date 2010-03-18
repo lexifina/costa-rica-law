@@ -1,0 +1,1 @@
+Artículo 3º—La CONAFI podrá convocar a organizaciones y técnicos especializados para que actúen como órganos consultivos, quiénes podrán participar en las sesiones como invitados especiales con voz pero sin voto.

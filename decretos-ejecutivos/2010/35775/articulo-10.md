@@ -1,0 +1,1 @@
+Artículo 10.—La CONAFI se reunirá ordinariamente una vez cada mes en el lugar que se acuerde en la reunión anterior, o donde defina la presidencia. También podrá reunirse extraordinariamente cada vez que sea convocada por la presidencia o por tres de sus miembros.
