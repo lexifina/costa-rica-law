@@ -1,0 +1,13 @@
+SUPERINTENDENCIA GENERAL DE ENTIDADES FINANCIEAS
+SUGEF-R-06-2010.—Superintendencia General de Entidades Financieras.—Despacho del Superintendente General de Entidades Financieras, a las nueve horas del 8 de marzo del 2010.
+El Superintendente General de Entidades Financieras:
+Considerando que:
+1. Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento de Gobierno Corporativo mediante el literal B), de los artículos 16 y 5, de las actas de las sesiones 787-2009 y 788-2009, celebradas el 19 de junio del 2009, el cual fue publicado en el Diario Oficial La Gaceta N° 129, del lunes 6 de julio del 2009;
+2. El artículo 19 del Reglamento de Gobierno Corporativo dispone que la junta Directiva u órgano equivalente debe aprobar, remitir y publicar, por los medios que disponga el superintendente respectivo, el informe anual de gobierno corporativo con corte a131 de diciembre de cada año.
+3. Es necesario establecer el medio y la forma sobre la publicación del Informe de Gobierno Corporativo a que se refiere el artículo 19 del Reglamento de Gobierno Corporativo.
+Dispone:
+1. Las entidades supervisadas por esta Superintendencia deberán publicar en su sitio Web el Informe Anual de Gobierno Corporativo a que hace referencia el artículo 19 del Reglamento de Gobierno Corporativo, el cual deberá ser accesible a través de un vínculo directo desde su página principal de tal manera que se pueda imprimir o descargar hacia los dispositivos de los interesados; adicionalmente, deberán mantener, a disposición del público, una copia física en sus oficinas centrales, sucursales, agencias y asociadas. Dicho informe deberá estar disponible permanentemente por un plazo mínimo de 5 años.
+2. Las entidades supervisadas por esta Superintendencia publicarán en al menos un medio escrito de circulación nacional, a más tardar dentro del plazo de 5 días hábiles siguientes al vencimiento del plazo para la aprobación, remisión y publicación del Informe Anual de Gobierno Corporativo con corte al 31 de diciembre de 2009, un aviso al público comunicando que el Informe Anual de Gobierno Corporativo con corte al 31 de diciembre de 2009, se encuentra a disposición en su sitio Web y para consulta física en sus oficinas centrales, sucursales, agencias, asociadas y demás oficinas.
+3. Sin perjuicio de la remisión del Informe Anual de Gobierno Corporativo a la Superintendencia, de conformidad con lo que establece el artículo 19 del Reglamento de Gobierno Corporativo, las entidades deben remitir a la Superintendencia copia del aviso publicado de conformidad con lo dispuesto en el inciso anterior, dentro de los 3 días hábiles siguientes a su publicación.
+Rige a partir de su comunicación.
+8 de marzo del 2010.—
