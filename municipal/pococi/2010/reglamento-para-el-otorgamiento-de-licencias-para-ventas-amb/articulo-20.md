@@ -1,0 +1,1 @@
+Artículo 20.—Prohibición de ceder o traspasar. Queda prohibida la cesión, donación, venta o cualquier forma de traspaso de los puestos para ventas estacionarias o sus licencias. Al que se le comprobare tal negociación se le cancelará de inmediato la Licencia.

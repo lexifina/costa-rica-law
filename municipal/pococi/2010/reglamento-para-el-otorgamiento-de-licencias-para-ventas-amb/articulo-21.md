@@ -1,0 +1,1 @@
+Artículo 21.—Cambio de línea comercial. La solicitud de cambio de línea comercial, deberá ser tramitada en el Departamento de Patentes y este valorara si procede o no aprobar el cambio de línea. En dicha solicitud deberá describirse el producto o la nueva línea comercia!. El rechazo de la solicitud deberá hacerse en resolución motivada.

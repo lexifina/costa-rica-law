@@ -1,0 +1,1 @@
+Artículo 2º—Obligatoriedad de licencia comercial. Cuando se trate de actividades lucrativas en forma estacionaria en las vías publicas del cantón de Pococí, nadie podrá realizarlas sin contar con el permiso de uso y la respectiva licencia municipal de conformidad con la Ley N° 6587 del 30 de julio de 1981 (Ley de Patentes para Ventas Ambulantes y Estacionarias) y este Reglamento.

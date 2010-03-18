@@ -1,0 +1,1 @@
+Artículo 6º—Ubicación. La ubicación de los puestos estacionarios será de un máximo de uno por cada cincuenta metros lineales, siempre y cuando las condiciones lo permitan a juicio del departamento encargado. Únicamente se permitirá ejercer la actividad que se indique en la solicitud.

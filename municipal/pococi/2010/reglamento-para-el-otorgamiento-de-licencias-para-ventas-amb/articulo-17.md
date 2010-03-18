@@ -1,0 +1,1 @@
+Artículo 17.—Adjudicación de licencias revocadas o renunciadas. En caso de revocación o renuncia de una licencia o permiso de uso por cualquier motivo, el Departamento de Patentes procederá a la adjudicación de la misma, siguiendo el orden consecutivo de las solicitudes pendientes.

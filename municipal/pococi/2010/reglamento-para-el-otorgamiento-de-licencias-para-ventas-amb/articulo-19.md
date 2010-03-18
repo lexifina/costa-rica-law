@@ -1,0 +1,1 @@
+Artículo 19.—Traslado de puesto. Queda prohibido el traslado de un puesto estacionario a cualquier otro sitio sin la autorización del Departamento de Patentes, previa coordinación con el Departamento de Desarrollo y Control Urbano.

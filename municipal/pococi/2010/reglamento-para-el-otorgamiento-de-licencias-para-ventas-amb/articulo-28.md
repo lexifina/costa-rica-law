@@ -1,0 +1,1 @@
+Artículo 28.—De las ventas ambulantes. la Municipalidad de Pococí, en aras evitar el congestionamiento en las vías de nuestro cantón, se reserva el derecho y la potestad de renovar, otorgar o denegar, licencias para ventas ambulantes, y ejercerá mediante los respectivos operativos los controles necesarios para evitar la proliferación ilegal de tales ventas.

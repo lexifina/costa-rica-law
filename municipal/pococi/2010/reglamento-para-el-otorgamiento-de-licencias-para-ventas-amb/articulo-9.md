@@ -1,0 +1,1 @@
+Artículo 9º—Costo de la licencia. El costa de la licencia municipal o el permiso de use, se determinara con base en la ley de impuestos municipales vigente, al momento en que la misma se concede. Las licencias o permisos de uso, a que se refiere este Reglamento, podrán ser cobradas trimestralmente. La falta de pago de dos o más trimestres, provocara la suspensión de la misma.

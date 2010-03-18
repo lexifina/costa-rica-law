@@ -1,0 +1,1 @@
+Artículo 22.—Reubicación de puestos. El Departamento de Patentes en coordinación con el Departamento de Desarrollo y Control Urbano, se reserva el derecho de reubicar los puestos cuando las condiciones de transito o peatonal así lo ameriten; cuando la construcción de obras nuevas lo requieren, la vigencia del plan regulador, o cualquier otra causa de interés publico lo amerite.

@@ -1,0 +1,11 @@
+Artículo 3º—Requisitos. Todo interesado en contar con una licencia para venta estacionaria, e as regulada en esta norma, deberá solicitar la misma ante el Departamento de Patentes y cumplir con los siguientes requisitos:
+1- Ser mayor de edad, costarricense por nacimiento o naturalizado con más de 10 años de residencia en el país, lo cual debe ser demostrado con documentación idónea.
+2- Llenar el formulario de solicitud de licencia de venta estacionaria. La solicitud debe ser firmada por el solicitante de la licencia o quien legítimamente Ie represente.
+3- Presentar fotocopia de la cedula de identidad del solicitante.
+4- Aportar dos fotos tamaño pasaporte, una para el respectivo carnet de identificación del vendedor estacionario o ambulante, en el cual se indicara el tipo de actividad y el producto a vender, y otra para el expediente respectivo. Queda entendido que el costo de la emisión del carnet será cubierto por el patentado. El monto del mismo será fijado y comunicado por la Administración atendiendo al valor de mercado de este tipo de documentos.
+5- Permiso sanitario de funcionamiento, extendido por el Ministerio de Salud.
+6- Póliza de Riesgos de Trabajo extendida por el INS, o en su defecto la exoneración correspondiente.
+7- A esta solicitud deben adjuntársele las especies fiscales de ley.
+8- Someterse a un estudio socioeconómico el cual será determinante para el otorgamiento o rechazo de la licencia o del permiso de uso. Este estudio será realizado por la Comisión Municipal para el funcionamientote las ventas estacionarias.
+9- Carta de aceptación en la que indique que el cubículo de la venta estacionaria, se ajustara al diseñado por el Departamento de Desarrollo y Control Urbano de esta Municipalidad, quienes para tal diseño tomaran en cuenta la armonía del paisaje y el ornato del lugar. El área que ocupe un puesto estacionario no podrá ampliarse de ninguna forma, ni siquiera con toldos o plásticos o cualquier otro objeto que tienda a la protección del mismo contra la lluvia o luz solar. No obstante, el patentado podrá instalar los servicios públicos como son la electricidad, línea telefónica y agua potable, cuyo trámite y pago del servicio corresponderá exclusivamente a este.
+El caso omiso a este inciso dará lugar a que se tenga por cancelada de pleno derecho la licencia para el permiso de usa de ventas estacionarias.

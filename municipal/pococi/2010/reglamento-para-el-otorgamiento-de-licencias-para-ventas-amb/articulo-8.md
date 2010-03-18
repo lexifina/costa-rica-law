@@ -1,0 +1,1 @@
+Artículo 8º—Licencias temporales. El Departamento de Patentes con resolución debidamente razonada y circunstanciada se reserva el derecho de poder otorgar Ciencias o permisos de uso temporales, a beneficio social, religioso, educativo, deportivo o cultural debidamente justificado y siempre cumpliéndose lo dispuesto en el presente Reglamento.
