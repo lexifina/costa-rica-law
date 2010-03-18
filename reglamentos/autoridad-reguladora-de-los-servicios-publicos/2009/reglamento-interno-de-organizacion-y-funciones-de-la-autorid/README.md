@@ -14,3 +14,4 @@ Reglamento interno de organización y funciones de la Autoridad Reguladora de lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-08 | la propia norma |
+| 2 | 2010-03-18 | Reglamento 10 (2010-03-18) |

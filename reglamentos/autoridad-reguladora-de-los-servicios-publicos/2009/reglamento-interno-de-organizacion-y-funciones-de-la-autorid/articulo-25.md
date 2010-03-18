@@ -1,40 +1,32 @@
-Artículo 25.—Funciones. Son funciones propias de SUTRANSPORTE:
-1. En materia de regulación:
-a. Mantener un diagnóstico actualizado del estado de la situación del mercado de cada tipo de transporte regulado, de los puertos, aeropuertos y servicio postales.
-b. Mantener un diagnóstico actualizado del sistema de concesión de obra pública, en la materia de su competencia.
-c. Realizar la regulación integral, tanto técnica como económica, de los servicios marítimos y aéreos en puertos nacionales, servicios de carga por ferrocarril y los servicios postales.
-d. Conocer las técnicas y procesos para suministrar los servicios públicos de su competencia, propiciando altos niveles de eficiencia y eficacia, de manera que sean respetuosos con la naturaleza.
-e. Otorgar o denegar el refrendo a los contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos.
-f. Analizar y resolver las solicitudes de estudios técnicos que justifiquen la necesidad de licitar concesiones para explotar nuevas rutas de transporte remunerado de personas en vehículos automotores.
-g. Regular el servicio de comunicación postal.
-h. Aprobar o improbar las tarifas de peaje que a este efecto someta el Consejo Nacional de Vialidad.
-i. Conocer las técnicas y procesos para suministrar los servicios públicos de su competencia, propiciando altos niveles de eficiencia y eficacia así como de respeto a la naturaleza.
-j. Mantener un diagnóstico actualizado del sistema de concesión de obra pública, en la materia de su competencia.
-k. Conocer las técnicas y procesos con que los regulados suministran los servicios públicos con el fin de ejercer una adecuada regulación.
-l. Fijar de manera ordinaria y extraordinaria, a solicitud de parte y de oficio, los precios y tarifas para los servicios regulados, autorizando el cobro de servicios ambientales cuando corresponda.
-m. Regular la calidad, la cantidad, la confiabilidad, la continuidad, la oportunidad, la diversidad y la sostenibilidad ambiental de los servicios públicos regulados, en la perspectiva de promover los derechos de los usuarios y la protección del ambiente.
-n. Velar por el cumplimiento de las condiciones del título habilitante, de la normativa técnica, las obligaciones tributarias y cargas sociales por parte de los prestadores de los servicios públicos, con todos los instrumentos y medios otorgados por la ley.
-ñ. Establecer un sistema de seguimiento y registro del comportamiento del mercado de los sectores regulados y los prestadores de tales servicios, bajo el enfoque de regulación por redes.
-o. Declarar la caducidad y revocatoria de las concesiones otorgadas para la prestación de los servicios públicos de su competencia cuando corresponda.
-p. Participar en conjunto con el Centro de Desarrollo de la Regulación y la Asesoría Jurídica y Regulatoria en la elaboración de los reglamentos técnicos que se requieran para la correcta aplicación del marco regulatorio de los servicios públicos regulados.
-q. Rendir dictamen con respecto a los estudios técnicos que justifiquen la necesidad de licitar concesiones y los contratos de adhesión, cuando le sean remitidos para este efecto a la ARESEP.
-r. Instruir los procedimientos de refrendo y concesiones que se sometan a consideración de la Autoridad Reguladora, según los servicios de su competencia.
-s. Atender y evacuar las consultas con respecto a los servicios de su competencia que no hayan sido evacuadas por la Dirección General de Participación del Usuario.
-t. Proporcionar a la Dirección General de Participación del Usuario los informes y apoyo que le solicite para brindar a los usuarios y consumidores de los servicios públicos un acceso oportuno a la información.
-u. Resolver los recursos de revocatoria que se presenten contra los actos emitidos.
-v. Atender las solicitudes relacionadas con la concesión de obra pública en el sector de su competencia de acuerdo con lo que establece la ley.
-w. Gestionar las relaciones con los organismos nacionales e internacionales que guarden relación con la regulación de su sector.
-x. Emitir el acto administrativo de admisibilidad, rechazo o prevención de requisitos para las gestiones realizadas por las entidades reguladas.
-2. En materia de procedimientos administrativos:
-a. Realizar las investigaciones preliminares en las quejas y controversias que no hubieran sido resueltas o conciliadas mediante la participación de la Dirección General de Participación del Usuario.
-b. Realizar las investigaciones preliminares en las denuncias.
-c. Determinar la existencia de mérito en quejas, controversias y denuncias, para la instrucción formal de un procedimiento administrativo y solicitar dicha instrucción a la Dirección General de Asesoría Jurídica y Regulatoria cuando corresponda.
-d. Resolver, como órgano decisor, las quejas, controversias y denuncias que se presenten ante la ARESEP, así como proporcionar la información que se le solicite en su instrucción.
-3. En materia de gestión:
-a. Diseñar, documentar y mejorar los procesos y procedimientos que garanticen una aplicación de la normativa institucional equitativa, transparente, eficiente y segura desde el punto de vista de la gestión del riesgo.
-b. Apoyar a las Direcciones Generales en lo siguiente:
-i. A la Dirección General de Participación del Usuario en las gestiones que requiera para evacuar las consultas, aconsejar a los usuarios y desarrollar campañas de educación.
-ii. Al Centro de Desarrollo de la Regulación en la elaboración de los estudios y los reglamentos que se definan de común acuerdo.
-iii. A la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
-iv. A la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
-Adicionalmente, todas aquellas otras funciones que le asignen las leyes y otras normas jurídicas o técnicas de carácter vinculante así como la Junta Directiva.
+Artículo 25.—Funciones de la Dirección de mercados. Son funciones de esta dirección las siguientes:
+1) Tramitar y recomendar al Consejo de la Sutel las fijaciones tarifarias del servicio telefónico básico tradicional y sus redes, de conformidad con lo señalado en el artículo 28 de la Ley 8642.
+2) Promover los principios de competencia en el mercado nacional de telecomunicaciones.
+3) Analizar el grado de competencia efectiva en los mercados de telecomunicaciones.
+4) Determinar cuándo las operaciones o los actos que se ejecuten o celebren fuera del país, por parte de los operadores o proveedores, pueden afectar la competencia efectiva en el mercado nacional.
+5) Evitar los abusos y las prácticas monopolísticas por parte de operadores o proveedores en el mercado.
+6) Preparar de oficio o por denuncia, los estudios técnicos necesarios para que el Consejo pueda conocer de las prácticas monopolísticas cometidas por operadores o proveedores que tengan por objeto o efecto limitar, disminuir o eliminar la competencia en el mercado de las telecomunicaciones.
+7) Intercambiar información con las autoridades reguladoras de telecomunicaciones de otras jurisdicciones.
+8) Establecer los parámetros de confidencialidad a las personas que, producto del intercambio de información, tengan conocimiento de la información generada.
+9) Tomar en cuenta en sus análisis, el criterio de la Comisión para Promover la Competencia que sea aportado dentro del procedimiento.
+10) Solicitar a la Comisión para Promover la Competencia los criterios técnicos correspondientes, de previo a que se resuelva sobre la procedencia o no del procedimiento y de dictar la resolución final.
+11) Desarrollar e implementar los mecanismos e instrumentos necesarios para vigilar la conducta y actuaciones de los operadores y proveedores en relación con el régimen de acceso e interconexión y recomendar al Consejo sobre las interpretaciones de los acuerdos de acceso e interconexión y las acciones y medidas para asegurar que el acceso e interconexión sea provisto en forma oportuna y en términos y condiciones no discriminatorias, razonables transparentes, proporcionadas al uso.
+12) Recibir la notificación de los operadores cuando inicien negociaciones para el acceso e interconexión. Promover la diversidad de los servicios de telecomunicaciones y la introducción de nuevas tecnologías.
+13) Asegurar el cumplimiento de las obligaciones de acceso e interconexión que se impongan a los operadores de redes de telecomunicaciones, así como la interoperabilidad de dichas redes.
+14) Emitir criterio sobre expropiación forzosa o la imposición de servidumbres que le solicite el Ministerio de Ambiente, Energía y Telecomunicaciones.
+15) Aprobar los contratos de acceso a la capacidad de cables submarinos.
+16) Suplir los criterios técnicos al Poder Ejecutivo para que autorice la ruta de cada cable submarino.
+17) Proponer las razones para apartarse de los criterios de la Comisión para Promover la Competencia.
+18) Recibir y tramitar las solicitudes de autorización de concentración, de los operadores de redes y los proveedores de servicios de telecomunicaciones.
+19) Recomendar si la concentración es necesaria para alcanzar economías de escala desarrollar eficiencias o para evitar la salida, en perjuicio de los usuarios, de un operador o proveedor, y cualquier otra circunstancia prevista reglamentariamente.
+20) Solicitar y conocer el criterio técnico de la Comisión para Promover la Competencia de previo a emitir su recomendación al Consejo.
+21) Conocer y sancionar, cuando corresponda las infracciones administrativas en que incurran los operadores o proveedores y también los que exploten redes de telecomunicaciones o presten servicios de telecomunicaciones de manera ilegítima.
+22) Realizar los estudios necesarios para determinar la necesidad y factibilidad del otorgamiento de las concesiones de frecuencias para la operación y explotación de redes públicas de telecomunicaciones, de conformidad con el Plan nacional de desarrollo de las telecomunicaciones y las políticas sectoriales.
+23) Instruir el procedimiento de concurso público para que el Poder Ejecutivo otorgue las concesiones de frecuencias para la operación y explotación de redes públicas de telecomunicaciones.
+24) Recibir las ofertas en el concurso público de otorgamiento de concesiones de frecuencias para la operación y explotación de redes públicas de telecomunicaciones.
+25) Evaluar las ofertas elegibles como acto preparatorio para que el Consejo recomiende al Poder Ejecutivo si procede o no la adjudicación de frecuencias.
+26) Instruir el procedimiento para que el Poder Ejecutivo otorgue directamente la concesión de frecuencias para la operación de redes privadas y de las que no requieran asignación exclusiva para su óptima utilización.
+27) Hacer constar en el Registro Nacional de Telecomunicaciones los servicios que brindan los operadores de redes públicas y de los proveedores de servicios disponibles al público, según éstos lo hayan informado.
+28) Recibir la información de los operadores y proveedores cuando amplíen la oferta de servicios que prestan.
+29) Requerir la información adicional, aclaraciones o ajustes necesarios para verificar que la prestación de los nuevos servicios se ajuste a lo previsto en la ley, a la concesión o autorización otorgada y al Plan nacional de desarrollo de las telecomunicaciones.
+30) Instruir los procedimientos de otorgamiento de autorizaciones.
+(Así adicionado en sesión ordinaria N° 010-2010 del 18 de marzo de 2010)

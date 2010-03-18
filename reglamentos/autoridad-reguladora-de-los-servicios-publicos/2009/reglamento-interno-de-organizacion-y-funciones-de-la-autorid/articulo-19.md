@@ -19,3 +19,5 @@ p. Informar al ministro rector de Telecomunicaciones, para lo que corresponda, d
 q. Someter, a la aprobación de la Junta Directiva de la Autoridad Reguladora, las estrategias del órgano, los planes anuales operativos, los estados financieros y las normas generales de organización de la SUTEL.
 r. Elaborar las normas técnicas, con la consulta de la Autoridad Reguladora y proponerlas al Poder Ejecutivo, para su aprobación.
 s. Fijar las tarifas de telecomunicaciones, de conformidad con lo que dicte la ley y los reglamentos técnicos atinentes.
+Del Consejo. La SUTEL está a cargo de un Consejo integrado por tres miembros propietarios. De entre sus miembros le corresponde al presidente la representación judicial y extrajudicial de la superintendencia; para lo cual tendrá facultades de apoderado generalísimo sin límite de suma; así como ejercer las facultades de organización y coordinación del funcionamiento del órgano que le asigne el Consejo.
+(Así adicionado el párrafo anterior en sesión ordinaria N° 010-2010 del 18 de marzo de 2010)

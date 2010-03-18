@@ -1,5 +1,3 @@
-Artículo 28.—Naturaleza y estructura de las Direcciones Generales. Las Direcciones Generales son las áreas técnicas encargadas de brindar servicios especializados a la Junta Directiva, el Regulador General, las Superintendencias y la Gerencia General. La Autoridad Reguladora cuenta con las siguientes cuatro Direcciones Generales:
-a. Dirección General de Participación del Usuario.
-b. Centro de Desarrollo de la Regulación.
-c. Dirección General de Asesoría Jurídica y Regulatoria.
-d. Dirección General de Estrategia y Evaluación.
+De la Superintendencia de Agua y Saneamiento (SUAGUA)
+Artículo 28.—Competencia. SUAGUA ejerce la regulación integral, tanto técnica como económica, del suministro de los servicios de acueductos y alcantarillados, la recolección, el tratamiento y la evacuación de las aguas negras, las residuales, las aguas pluviales, hidrantes, riego y avenamiento cuando se preste por medio de empresa pública, por concesión o permiso. También incluye la recolección y tratamiento de desechos sólidos e industriales, salvo los que presten las municipalidades y estén cubiertos por la autonomía municipal (artículo 5 incisos c), e), i), de la ley 7593).
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 20 al 28 actual)

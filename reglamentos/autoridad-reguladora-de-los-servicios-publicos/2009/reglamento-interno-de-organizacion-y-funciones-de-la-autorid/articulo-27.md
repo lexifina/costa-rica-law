@@ -1,12 +1,11 @@
-Artículo 27.—Funciones de la Gerencia General.
-a. Ejercer la dirección de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación para que su accionar contribuya al desarrollo de la regulación en el mejor interés de los usuarios de los servicios públicos, así como para que cumplan en tiempo con las instrucciones de la Junta Directiva y el Regulador así como con las solicitudes de las Superintendencias.
-b. Velar por la calidad y la oportunidad de los servicios al resto de la organización brindados por las Direcciones Generales a su cargo.
-c. Facilitar la coordinación entre las Superintendencias y las Direcciones Generales a su cargo para que éstas brinden sus servicios con la mayor oportunidad y la mayor diligencia.
-d. Tomar las medidas necesarias para que se ejecuten los acuerdos tomados por la Junta Directiva.
-e. Dictar instrucciones en materia administrativa de acatamiento obligatorio para toda la institución.
-f. Administrar los recursos de la Institución para establecer la política integral de desarrollo institucional.
-g. Dictar como órgano decisor, las resoluciones en el ámbito de su competencia definido en este artículo.
-h. Apoyar a la Dirección General de Estrategia y Evaluación en el proceso de planeación estratégica con criterios de eficiencia, productividad y calidad, de acuerdo con los lineamientos fijados por la Junta Directiva, en procura de la sostenibilidad y el desarrollo integral de ARESEP.
-i. Apoyar a la Dirección General de Estrategia y Evaluación en el diseño, la integración y el seguimiento de los planes y proyectos estratégicos institucionales.
-j. Coordinar la elaboración de los proyectos de cánones y de los proyectos de presupuesto, con la colaboración de la Dirección General de Estrategia y Evaluación, así como llevarlos a la Junta Directiva para su conocimiento y aprobación.
-k. Cualesquiera otras competencias que le encomiende el Regulador General, la Junta Directiva o que sean propias de su actividad y rango.
+Artículo 27.—Funciones de la Dirección del Fondo Nacional de Telecomunicaciones.
+Son funciones de esta dirección las siguientes:
+1) Garantizar que los operadores y proveedores cumplan lo establecido en el Capítulo I del Título II sobre acceso universal, servicio universal y solidaridad de la ley y lo que reglamentariamente se establezca.
+2) Administrar los recursos de Fonatel.
+3) Establecer reglamentariamente los requisitos para que los operadores o proveedores que ejecuten recursos de Fonatel, mantengan un sistema de contabilidad de costos separado.
+4) Acreditar las firmas de contadores públicos autorizados que anualmente auditarán el sistema de contabilidad de costos separados.
+5) Establecer los mecanismos de control interno para administrar los recursos de Fonatel.
+6) Tener disponible la información sobre la operación y el funcionamiento de Fonatel, para la auditoría interna de la Autoridad Reguladora.
+7) Administrar el Fondo Nacional de Telecomunicaciones y garantizar el cumplimiento de las obligaciones de acceso y servicio universal que se impongan a los operadores de redes y proveedores de servicios de telecomunicaciones.
+8) Elaborar los estudios y preparar la propuesta como recomendación del Consejo para la fijación de la tarifa de la contribución especial parafiscal de conformidad con lo previsto en el artículo 39 de la ley.
+(Así adicionado en sesión ordinaria N° 010-2010 del 18 de marzo de 2010)

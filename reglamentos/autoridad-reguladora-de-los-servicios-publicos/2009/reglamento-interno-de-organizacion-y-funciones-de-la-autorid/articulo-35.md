@@ -1,5 +1,13 @@
-Artículo 35.—Funciones gerenciales de Comunicación Institucional.
-a. Diseñar y coordinar una estrategia de comunicación de la institución.
-b. Asesorar a la Junta Directiva, al Regulador General y a los Superintendentes en sus acciones de comunicación externa.
-c. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
-d. Apoyar a la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
+Artículo 35.—Funciones de la Gerencia General.
+a. Ejercer la dirección de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación para que su accionar contribuya al desarrollo de la regulación en el mejor interés de los usuarios de los servicios públicos, así como para que cumplan en tiempo con las instrucciones de la Junta Directiva y el Regulador así como con las solicitudes de las Superintendencias.
+b. Velar por la calidad y la oportunidad de los servicios al resto de la organización brindados por las Direcciones Generales a su cargo.
+c. Facilitar la coordinación entre las Superintendencias y las Direcciones Generales a su cargo para que éstas brinden sus servicios con la mayor oportunidad y la mayor diligencia.
+d. Tomar las medidas necesarias para que se ejecuten los acuerdos tomados por la Junta Directiva.
+e. Dictar instrucciones en materia administrativa de acatamiento obligatorio para toda la institución.
+f. Administrar los recursos de la Institución para establecer la política integral de desarrollo institucional.
+g. Dictar como órgano decisor, las resoluciones en el ámbito de su competencia definido en este artículo.
+h. Apoyar a la Dirección General de Estrategia y Evaluación en el proceso de planeación estratégica con criterios de eficiencia, productividad y calidad, de acuerdo con los lineamientos fijados por la Junta Directiva, en procura de la sostenibilidad y el desarrollo integral de ARESEP.
+i. Apoyar a la Dirección General de Estrategia y Evaluación en el diseño, la integración y el seguimiento de los planes y proyectos estratégicos institucionales.
+j. Coordinar la elaboración de los proyectos de cánones y de los proyectos de presupuesto, con la colaboración de la Dirección General de Estrategia y Evaluación, así como llevarlos a la Junta Directiva para su conocimiento y aprobación.
+k. Cualesquiera otras competencias que le encomiende el Regulador General, la Junta Directiva o que sean propias de su actividad y rango.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 27 al 35 actual)
