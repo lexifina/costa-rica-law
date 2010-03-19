@@ -1,0 +1,7 @@
+CIRCULAR Nº 045-2010
+ASUNTO: Reiteración del procedimiento a seguir en casos en que se tenga que solicitar la intervención de un traductor.
+A TODOS LOS DESPACHOS JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en la sesión Nº 11-10, celebrada el 9 de febrero del año en curso, artículo LXIV, acordó reiterar a los despachos judiciales el procedimiento a seguir en casos en que se tenga que solicitar la intervención de un traductor. Con dicha finalidad y tomando en consideración que los traductores figuran entre los peritos oficiales, se transcribe el párrafo quinto de la circular de Dirección Ejecutiva número 02-2009, que regula el tema de peritos y que en el tema de interés indica:
+“Los nombramientos por inopia son de carácter excepcional. Esta modalidad es utilizada cuando el despacho judicial no logra ubicar dentro de la lista oficial de peritos un profesional o especialista en una área requerida, o si existiendo personas inscritas en aquella ninguno acepta el nombramiento. En ese caso, el Juez debe proceder a localizar un profesional que reúna los requisitos necesarios para que realice la experticia, y después de comprobar su idoneidad, procederá a nombrarlo por inopia para que realice la pericia requerida. Únicamente si ese profesional desea incluirse a la lista de peritos de forma permanente, deberá presentar a esta oficina una solicitud formal, debiendo cumplir para ello con todos los requisitos definidos para tales efectos”.
+San José, 19 de marzo del 2010.
