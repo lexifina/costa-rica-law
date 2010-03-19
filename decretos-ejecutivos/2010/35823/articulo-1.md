@@ -1,0 +1,83 @@
+Nº 35823-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25, inciso 1), 27, inciso 1), y 28, inciso 2), acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; los artículos 1º, 21, 23, 24 y 25 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001, sus reformas y su Reglamento, el Decreto Ejecutivo Nº 32988-H-MP-PLAN de 31 de enero de 2006 y sus reformas.
+Considerando:
+1º—Que de conformidad con el artículo 21 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 del 16 de octubre de 2001, le corresponde a la Autoridad Presupuestaria (AP) formular y presentar a conocimiento del Consejo de Gobierno y aprobación del Presidente de la República, las Directrices Generales de Política Salarial, Empleo y Clasificación de Puestos, para las entidades públicas, ministerios y demás órganos según corresponda, las cuales fueron promulgadas mediante Decreto Ejecutivo.
+2º—Que con el propósito de que la AP vele por el cumplimiento de las directrices mencionadas en el considerando anterior, según lo dispone el inciso c) del artículo 21 de la Ley Nº 8131, es necesario que el Poder Ejecutivo establezca los procedimientos a seguir para la aplicación de estas.
+3º—Que con fundamento en los artículos 3º, inciso b), 57 y 125 de la Ley Nº 8131, es necesario que las entidades públicas, ministerios y demás órganos suministren la información en materia de nivel de empleo, en el Sistema de Consolidación de Cifras del Sector Público Costarricense (SICCNET).
+4º—Que el Estatuto de Servicio Civil, sus Reglamentos y la normativa que emite la Dirección General de Servicio Civil (DGSC) regulan las relaciones de los funcionarios cubiertos por el Régimen de Servicio Civil.
+5º—Que la AP acordó modificar los Procedimientos para velar por la aplicación de las Directrices Generales de Política Salarial, Empleo y Clasificación de Puestos debidamente promulgadas, mediante el acuerdo Nº 8830, tomado en la sesión ordinaria Nº 03-2010, celebrada el 25 de febrero de 2010. Por tanto,
+Decretan:
+Procedimientos para la Aplicación y Seguimiento
+de las Directrices Generales de Política Salarial,
+Empleo y Clasificación de Puestos para las
+Entidades Públicas, Ministerios y Demás
+Órganos Según Corresponda, Cubiertos
+por el Ámbito de la Autoridad
+Presupuestaria
+CAPÍTULO I
+Glosario de términos
+Artículo 1º—Para efectos de la aplicación de las Directrices Generales de Política Salarial, Empleo y Clasificación de Puestos y de estos procedimientos se consideran:
+1) Administración activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico, es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluyen a los jerarcas, como última instancia.
+2) Ajuste técnico: Revaloración salarial específica de una clase o grupo de estas, basada en razones técnico-jurídicas distintas al costo de vida.
+3) AP: Autoridad Presupuestaria.
+4) Ascenso en propiedad: Promoción de un puesto a otro de nivel superior, en forma permanente, considerando las vías de carrera administrativa dictadas al efecto.
+5) Ascenso interino: Promoción a un puesto de clase o nivel superior, en forma temporal, implicando un número de puesto diferente.
+6) Cambio de nomenclatura: Variación en la clasificación de puestos de confianza subalternos definidos por la Autoridad Presupuestaria manteniéndose dentro de la misma condición; o cambio en la clasificación de puestos de servicios especiales de proyectos de inversión.
+7) Cargo: Nomenclatura interna con la que se conoce a cada uno de los puestos de la organización.
+8) Categoría salarial: Código que identifica a un conjunto o rango de valoraciones salariales ordenadas en forma ascendente, entre un valor mínimo y otro máximo.
+9) Clase: Grupo de puestos suficientemente similares con respecto a deberes, responsabilidades y autoridad, de manera que pueda utilizarse el mismo título descriptivo para designar cada puesto comprendido en esta y que exijan los mismos requisitos (académicos, experiencia, capacidad, conocimientos, eficiencia, habilidad y otros), que permita aplicar el mismo tipo de exámenes o pruebas de aptitud para escoger a los nuevos empleados, asignándoles con equidad el mismo nivel de remuneración bajo condiciones de trabajo similares. Se ordenan en series de clases que se diferencian por la importancia, dificultad, responsabilidad, retribución salarial y autoridad asignadas a las mismas.
+10) Clase ancha (homologada): Grupo de clases angostas lo suficientemente similares con respecto a deberes, responsabilidades y autoridad, de manera que pueda utilizarse el mismo título descriptivo para designarlas, que exija a quienes las ocuparán un nivel similar o equivalente de requisitos de educación académica, experiencia, capacidad, conocimientos, eficiencia, habilidad y otros; que permita usar exámenes o pruebas de aptitud similares para escoger a los nuevos empleados, asignándoles el mismo nivel de remuneración bajo condiciones de trabajo equitativas.
+Las clases anchas de puestos se ordenan en series de clases determinadas por las diferencias en importancia, dificultad, responsabilidad y retribución salarial.
+11) Clase angosta (homologada): Grupo de puestos suficientemente similares con respecto a deberes, responsabilidades y autoridad, de manera que pueda utilizarse el mismo título descriptivo para designar cada puesto comprendido en esta y que exija a quienes las ocuparán los mismos requisitos académicos, experiencia, capacidad, conocimientos, eficiencia, habilidad y otros; que permita aplicar el mismo tipo de exámenes o pruebas de aptitud para escoger a los nuevos empleados, asignándoles con equidad el mismo nivel de remuneración bajo condiciones de trabajo similares.
+Estas clases angostas de puestos se ordenan en series de clases determinadas por las diferencias en importancia, dificultad, responsabilidad y retribución salarial.
+12) Clase genérica (homologada): Conjunto de clases anchas y angostas lo suficientemente similares con respecto al nivel organizacional, importancia relativa, características generales del proceso a desarrollar, deberes y responsabilidades, de manera que pueda utilizarse el mismo título descriptivo para designar las clases comprendidas en la clase genérica, que permita determinar requisitos genéricos a quienes las ocuparán, que sirvan de orientación para las clases anchas o angostas y que puedan aplicarse exámenes o pruebas de aptitud generales para escoger a los nuevos empleados.
+Las clases genéricas se ordenan en estratos determinados previamente por las características específicas de los procesos de trabajo a desarrollar, importancia relativa, responsabilidad y otros factores análogos.
+13) Conversión de puestos de cargos fijos a puestos de confianza subalternos: Cambio de naturaleza de puestos vacantes u ocupados de cargos fijos, a puestos de confianza definidos por la AP.
+14) Dependencia: Oficina pública subordinada a otra superior.
+15) DGSC: Dirección General de Servicio Civil.
+16) Entidad pública: Figura organizativa con personalidad jurídica propia, que incluye a los órganos y entes de la administración descentralizada no empresarial y empresas públicas.
+17) Estrato: División organizativa ocupacional para fines metodológicos, orientada a enmarcar procesos de trabajo, niveles organizacionales, factores generales de clasificación y clases genéricas.
+18) Estructura ocupacional: Organización jerárquica de los puestos que posee una entidad pública, ministerio u órgano, basada en la naturaleza del trabajo, niveles de complejidad, responsabilidades, requisitos y condiciones organizacionales entre otros factores, que se desprenden de los procesos que esta ejecuta.
+19) Estudio integral de puestos: Análisis de la totalidad de los puestos por cargos fijos de una entidad pública, ministerio u otro órgano según corresponda, o de una o varias de sus dependencias, exceptuando los docentes, el cual se podrá realizar cuando ocurran cambios en al menos el 60% (sesenta por ciento) de los puestos.
+20) Factores de clasificación: Elementos que definen una clase dentro de un manual, tales como: naturaleza del trabajo, actividades, condiciones organizacionales y ambientales, características personales y requisitos académicos y legales, entre otros.
+21) Funcionario en propiedad: Aquel que de conformidad con la normativa o regulaciones vigentes, es nombrado en un puesto por plazo indefinido.
+22) Funcionario interino: Aquel que de conformidad con la normativa o regulaciones vigentes, es nombrado en un puesto por un plazo definido.
+23) Grupo de especialidades: Conjunto de tareas afines que componen un campo de actividad que integra una disciplina, que se adquiere mediante los estudios formales o la experiencia.
+24) Grupo ocupacional: Conjunto de series relacionadas o complementarias, agrupadas bajo una denominación común y amplia que corresponde a determinada área ocupacional, tales como: servicios, técnico, profesional, administrativo, ejecutivo y superior.
+25) Homologar: Equiparar la clasificación de las clases de puestos de un sistema de clasificación y valoración, diferente al que se utiliza en el Régimen de Servicio Civil, adquiriendo para todos los efectos posteriores una referencia específica con las clases anchas y genéricas de ese Régimen, debiendo ajustar el proceso para que coincida en cuanto a valoración y orientación general de requisitos académicos y legales.
+26) Jerarca ejecutivo: es el órgano unipersonal, subordinado al jerarca supremo, encargado de la operación y funcionamiento cotidiano de la Administración.
+27) Jerarca supremo: Es el órgano superior o máxima autoridad que dirige la entidad pública, ministerio u órgano. Puede ser colegiado o unipersonal, según lo establezca la normativa vigente.
+28) Jornales: Remuneración que se paga por la prestación de servicios, al personal ocasional o temporal, no profesional, técnico o administrativo, contratado para efectuar labores primordialmente de carácter manual; como labores agrícolas, de zanjeo u otras similares, estipulado por jornada de trabajo, sea por hora, día o a destajo.
+29) Manual de cargos: Conjunto de descripciones y especificaciones de los cargos propios de una entidad pública, ministerio u órgano, según corresponda.
+30) Manual institucional de clases: Conjunto de clases de puestos específicos de la entidad pública, ministerio u órgano, que ordena los procesos de trabajo en que participan los diferentes puestos de la organización.
+31) Meta de empleo: Cantidad de plazas autorizadas por la Autoridad Presupuestaria, a las entidades públicas, ministerios u órganos.
+32) MH: Ministerio de Hacienda.
+33) MIDEPLAN: Ministerio de Planificación Nacional y Política Económica.
+34) Ministerio: Organización integrada por una pluralidad de dependencias, bajo la dirección político-administrativa de los Ministros. Incluye a los órganos desconcentrados sin personalidad jurídica instrumental.
+35) Nivel de empleo: Cantidad de plazas autorizadas por la Autoridad Presupuestaria, debidamente incorporadas en los presupuestos de las entidades públicas, ministerios u órganos.
+36) Nivel gerencial: Ubicación de las clases gerenciales de una entidad pública, en función del monto de ingresos permanentes tributarios y no tributarios, debidamente aprobados en su Presupuesto Ordinario.
+37) Nivel salarial: Código con que se identifica a cada uno de los salarios base que se determinan en forma ascendente en lo interno de las categorías salariales.
+38) Órgano: Figura organizativa adscrita a un ministerio o a una entidad, creada por ley a la que se le atribuye personalidad jurídica instrumental, que le faculta a tener su presupuesto propio y administrar los recursos que le corresponden.
+39) Puesto: Conjunto de actividades, deberes y responsabilidades asignadas por una autoridad competente para que sean realizadas por un funcionario durante la totalidad o una parte de la jornada de trabajo, para el cual existe el contenido presupuestario para su pago.
+40) Puestos de cargos fijos: Plazas permanentes con que cuenta una entidad pública, ministerio u órgano para el cumplimiento de sus objetivos.
+41) Puestos de confianza de nivel superior: Plazas autorizadas y valoradas por la Autoridad Presupuestaria, que comprenden presidentes ejecutivos, gerentes, subgerentes generales, ministros, viceministros y directores excluidos del Régimen de Servicio Civil.
+42) Puestos de confianza subalternos: Plazas autorizadas por la AP, que están a disposición permanente y son de nombramiento directo de los presidentes ejecutivos, los gerentes, los ministros, viceministros y directores, según corresponda.
+43) Puestos de servicios especiales: Plazas autorizadas por la AP, con el fin de contar con personal profesional, técnico o administrativo, contratado por un periodo determinado para realizar trabajos de carácter transitorio o temporal.
+44) Reasignación de puestos: Cambio en la clasificación de un puesto de cargos fijos que conlleva a un nivel salarial mayor, menor o igual, con motivo de haber experimentado una variación sustancial y permanente en sus tareas y niveles de responsabilidad.
+45) Recargo de funciones: Asumir temporalmente funciones de un puesto de mayor nivel salarial, adicionales a las actividades propias del puesto permanente del funcionario, en casos de vacaciones, licencias con goce de salario e incapacidades, entre otros. Serán sujeto de remuneración aquellas que excedan un mes calendario ininterrumpidamente.
+46) Reestructuración de clases: Cambio que afecta a puestos o clases, al variarse la estructura ocupacional de una serie, o la conformación de una clase.
+47) Reorganización administrativa: Proceso político, administrativo y técnico, dirigido al fortalecimiento de la gestión pública, que podría conllevar la modificación de unidades administrativas en cuanto a su gestión, normativa, tecnología, infraestructura, recursos humanos y estructura de una entidad pública, ministerio u órgano del sector público.
+48) Relación de puestos: Documento técnico legal que refleja la agrupación de todos los puestos ocupados y vacantes según clasificación, unidades administrativas y la asignación presupuestaria mensual y anual, correspondiente a los salarios base y pluses salariales legalmente establecidos.
+49) Revaloración por costo de vida: Modificación del salario de las clases de puestos por concepto del aumento decretado por el Poder Ejecutivo.
+50) Revaloración por ajuste técnico: Revaloración salarial específica de una clase o grupo de estas, basada en razones técnico-jurídicas distintas al costo de vida.
+51) Serie: Conjunto de clases comprendidas en un mismo campo de trabajo y que se distinguen entre sí por el grado de dificultad y responsabilidad de las tareas, determinando diferentes niveles.
+52) Serie de fiscalización superior: Conformada por las clases de puestos de Auditor y Subauditor de las entidades públicas, ministerios y demás órganos cubiertos por el ámbito de la AP.
+53) Serie gerencial: Puestos de confianza conformados por las clases de puestos de Presidente Ejecutivo, Gerente y Subgerente de las entidades públicas cubiertas por el ámbito de la AP.
+54) SICCNET: Sistema de Consolidación de Cifras del Sector Público Costarricense.
+55) STAP: Secretaría Técnica de la Autoridad Presupuestaria.
+56) Suplencia o sustitución: Nombramiento de un funcionario en forma temporal que sustituye al titular de un puesto, que se encuentra ausente por motivo de licencias, vacaciones, incapacidades u otros que impliquen el goce de salario del titular, por un periodo predefinido e implica relación laboral.
+57) Ubicación por reestructuración: Fijación en la clasificación de los puestos que ocurre como consecuencia de una variación en el Manual de Clases Anchas o en los Manuales de la institución (de Clases y de Cargos), al adaptarse estos instrumentos a variaciones fundamentales y que tiene los mismos efectos de una reasignación.
+58) Vacante: Puesto en el que no existe persona nombrada para el desempeño de sus deberes y responsabilidades, sea interina o en propiedad.
+59) Valoración: Proceso mediante el cual se asignan las remuneraciones a las clases de puestos, tomando en consideración el estudio de los factores de clasificación, los índices de costo de vida, encuestas de salarios y otros elementos de juicio de uso condicionado.
