@@ -1,0 +1,2 @@
+Artículo 17.—Con la anuencia del jerarca ejecutivo, se podrán realizar cambios de nomenclatura en puestos de servicios especiales de proyectos de inversión y en puestos de confianza subalternos, de acuerdo con las necesidades de las entidades públicas, ministerios y demás órganos según corresponda.
+Es responsabilidad de la administración activa la verificación de la procedencia técnico-jurídica de tales cambios.
