@@ -1,0 +1,1 @@
+Artículo 6º—Las entidades públicas y demás órganos que utilicen líneas de crédito, deberán seguir el procedimiento establecido en el Reglamento para Gestionar la Autorización para la Contratación del Crédito Público del Gobierno de la República, Entidades Públicas y demás Órganos según corresponda publicado mediante D. E. Nº 35222-H.
