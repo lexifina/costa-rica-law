@@ -1,0 +1,3 @@
+Artículo 2º—Para los efectos del cobro de esta tasa se divide el cantón de Puriscal en zona céntrica y zona no céntrica, se denomina zona céntrica la ubicada en la avenida tercera y cuarta y de la calle siete a la calle cuatro.
+Comentario: De conformidad con el artículo 2 de la Ley 3580 se debe dividir la zona de Puriscal en zona céntrica y no céntrica, por medio de reglamento. Siendo que el Concejo Municipal es quien tiene la potestad de dictar reglamentos (artículo 13 inciso C), consideramos que es el Concejo quien debe establecer –en este reglamento– las zonas céntricas y no céntricas.
+Además, las tarifas que se cobran en las zonas céntricas y no céntricas deben ser fijadas por el Concejo y refrendas por la Contraloría General de la República.

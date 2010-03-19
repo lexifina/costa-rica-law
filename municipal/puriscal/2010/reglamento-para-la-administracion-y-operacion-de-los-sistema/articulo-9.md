@@ -1,0 +1,1 @@
+Artículo 9º—Las tarjetas de estacionamiento deberán colocarse en la parte interior de la ventana que da a la acera exhibiéndose de una manera bien visible desde el exterior o bien en el parabrisas delantero indicado además en las tarjetas mediante lapicero el mes, día, la hora y minutos de llegada al lugar de estacionamiento.
