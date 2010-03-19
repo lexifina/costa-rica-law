@@ -1,0 +1,1 @@
+Artículo 4º—En el caso de los recursos asignados a proyectos de inversión, de conformidad con el artículo 1 de las Directrices de Política Presupuestaria, las entidades públicas y demás órganos deben remitir un detalle por partida y subpartida, de los gastos asociados a cada proyecto.
