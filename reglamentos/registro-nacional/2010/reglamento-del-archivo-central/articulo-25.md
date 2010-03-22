@@ -1,0 +1,1 @@
+Artículo 25.—Ordenación documental: el sistema de ordenación que se utilizará en los archivos de gestión del Registro Nacional será el cronológico y numérico. En los casos necesarios se utilizará la combinación de cronológico, numérico y alfabético.

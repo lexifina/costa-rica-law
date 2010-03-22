@@ -1,0 +1,1 @@
+Artículo 22.—Documentos esenciales: es responsabilidad del Archivo Central mantener un programa de documentos esenciales o vitales, para ello deberá contar con un lugar que reúna las condiciones necesarias de acceso y seguridad de la información.

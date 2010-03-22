@@ -1,0 +1,1 @@
+Artículo 31.—Tablas de plazos de conservación de documentos: El Archivo Central coordinará con cada jefatura del Registro Nacional la elaboración del formulario Tabla de Plazos de Conservación de Documentos. En el cual se fijará el valor administrativo y legal de los documentos.

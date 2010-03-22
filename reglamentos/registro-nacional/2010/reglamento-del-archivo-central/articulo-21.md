@@ -1,0 +1,1 @@
+Artículo 21.—Uso de tecnologías: La tecnología utilizada para salvaguardar, facilitar y conservar la información de los documentos en soportes electrónicos debe garantizar la seguridad de no permitir alteraciones en los documentos, ni la consultas de información a personas no autorizadas.

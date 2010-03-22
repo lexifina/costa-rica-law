@@ -1,0 +1,1 @@
+Artículo 17.—Custodia en el Archivo Central: En el Archivo Central se custodiarán y administrarán los documentos hasta que estos finalicen su vigencia administrativa y legal. Los documentos que tengan como mínimo veinte años de antigüedad y posean valor científico cultural, se custodiarán hasta tanto sean transferidos al Archivo Nacional, previa autorización.

@@ -1,0 +1,1 @@
+Artículo 52.—Obligatoriedad de la administración: La administración en la medida que el presupuesto lo permita dotará al Archivo Central del Registro Nacional de los instrumentos y herramientas necesarias para que pueda llevar adelante su cometido, a efectos de que se pueda manipular en forma apropiada la documentación.

@@ -1,0 +1,1 @@
+Artículo 14.—Lista de remisión: Lista de Remisión se contemplarán los datos mínimos de: nombre del documento, breve contenido, fecha extremas y cantidad. Y debe presentarse al Archivo Central por triplicado.
