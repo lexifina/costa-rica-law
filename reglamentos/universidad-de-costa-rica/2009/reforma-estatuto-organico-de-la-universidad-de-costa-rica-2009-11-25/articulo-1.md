@@ -1,0 +1,3 @@
+UNIVERSIDAD DE COSTA RICA
+En la sesión Nº 132 de la Asamblea Colegiada Representativa, celebrada el 25 de noviembre del 2009, se aprobó la modificación del artículo 26 del Estatuto Orgánico de la Universidad de Costa Rica, que dice:
+Artículo 26.—Constituirá causal de pérdida del cargo para los miembros del Consejo Universitario la inasistencia injustificada a tres sesiones consecutivas. Asimismo, cuando se complete en cualquier momento el 33% de ausencias a las sesiones, justificadas o no, excepto en el caso en que cumplan funciones universitarias, sea por delegación del propio Consejo o en representación de la Universidad de Costa Rica, o que disfruten de licencia de maternidad o incapacidad por enfermedad o accidente.
