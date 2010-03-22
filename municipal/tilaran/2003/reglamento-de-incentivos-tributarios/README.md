@@ -14,3 +14,4 @@ Reglamento de Incentivos Tributarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-13 | la propia norma |
+| 2 | 2010-03-22 | Reglamento municipal 0 (2010-03-22) |
