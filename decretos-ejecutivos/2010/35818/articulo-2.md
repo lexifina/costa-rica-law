@@ -1,0 +1,2 @@
+Artículo 2º—En virtud de la presente declaratoria, el Área de Conservación Arenal Huetar Norte, velará por la conservación del medio ambiente, tomándose en consideración que el Proyecto requiere de Evaluación de Impacto Ambiental ante la SETENA.
+En caso de requerirse corta de árboles se debe tramitar la autorización de la oficina correspondiente del Sistema Nacional de Áreas de Conservación, para proceder a la corta de árboles ubicados en las áreas del proyecto, que así lo requieran.
