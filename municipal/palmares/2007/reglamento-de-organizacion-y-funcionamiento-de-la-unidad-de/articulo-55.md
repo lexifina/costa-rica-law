@@ -1,0 +1,2 @@
+Artículo 55º—Recibo de la denuncia. La Auditoría Interna recibirá las denuncias en las oficinas de la Municipalidad de Palmares, las cuales deberán venir dirigidas directamente hacia la Auditoría Interna. La Auditora Interna valorará la admisibilidad de las denuncias presentadas, de conformidad con lo que se establece en el presente documento.
+(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)

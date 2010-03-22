@@ -1,0 +1,2 @@
+Artículo 63.—En el caso de las denuncias recibidas por teléfono, fax y correo electrónico, debe levantarse un documento donde se anoten todos los pormenores de la denuncia, según lo indicado en el artículo 60, inciso b) de este documento. Las denuncias recibidas por estos medios se asimilarán a las anónimas, mientras el denunciante no comparezca a refrendarlas, o en el tanto no esté en funcionamiento la firma electrónica.
+(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)

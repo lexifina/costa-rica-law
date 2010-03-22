@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Unidad de Auditoría Interna 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-15 | la propia norma |
+| 2 | 2010-03-22 | Reglamento municipal 0 (2010-03-22) |

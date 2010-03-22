@@ -1,0 +1,2 @@
+Artículo 82.—De la comunicación al denunciante. Únicamente se remitirá copia del informe al denunciante cuando él mismo haya presentado y firmado la denuncia, y siempre que los resultados del estudio no involucren procesos administrativos o judiciales para determinar eventuales responsabilidades, y que los plazos definidos en los artículos 36, 37 y 38 de la Ley General de Control Interno se hayan cumplido y no existan conflictos en trámite.
+(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)

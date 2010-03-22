@@ -7,22 +7,40 @@ Ambiente del control: Conjunto de factores a nivel organizacional que debe estab
 Asesoría: Consejo profesional o criterio de la auditoría interna acerca de un tema de su competencia y conocimiento.
 Atribuciones: Facultades o poderes que corresponden a cada una de las partes de la organización pública o privada.
 Autorización de libros: Autorizar, mediante firma del Auditor o Subauditor Internos, la apertura de los libros de contabilidad, de actas y cualquier otro que se considere necesario.
+Auditor Interno: Funcionario de mayor jerarquía dentro de la Auditoría Interna.
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
 Auditoría Interna: Unidad de Auditoría Interna de la Municipalidad de Palmares.
 Concejo Municipal: Concejo Municipal de la Municipalidad de Palmares.
 Conferencia Final: Reunión en la que el Auditor Interno o Auditor Encargado de un estudio de auditoría expone a la contraparte de la Administración Activa los resultados de la revisión, conclusiones y recomendaciones, con el fin de obtener una aceptación de las observaciones expuestas y un compromiso para la implementación de las medidas correctivas y preventivas sugeridas.
 Control interno: Es un proceso ejecutado por la Administración Activa, diseñado específicamente para proporcionar seguridad razonable respecto a la consecución de los siguientes objetivos: efectividad y eficiencia de las operaciones, confiabilidad de la información financiera y cumplimiento de las leyes y regulaciones aplicables.
 Contraloría General: Contraloría General de la República.
+Cuidado Profesional: Propósito de realizar las cosas bien, con toda integridad y responsabilidad en el desempeño de sus funciones, estableciendo una adecuada supervisión y control en la labor que realice.
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
 Ética: Interiorización de normas y principios que hacen responsable al individuo de su propio bienestar y, consecuentemente, del de los demás, mediante un comportamiento basado en conductas morales socialmente aceptadas, para comportarse consecuentemente con éstas.
+Fiscalizar: Actividad que verifica el cumplimiento de determinadas actividades o funciones realizadas por otros.
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
 Información y comunicación: Conjunto de actividades que se realizan para garantizar que la información contenida en los sistemas de información es confiable y oportuna.
+Independencia: Libertad profesional que le asiste al auditor para expresar su opinión funcional y de criterio con respecto al jerarca y a los demás órganos de la administración activa, por lo que:
+a) No podrán ser empleado ni ejercer funciones en ninguna otra unidad administrativa del Municipio.
+b) No podrán ser miembros de juntas directivas, comisiones de trabajo o similares, ni formar parte de órganos directores de procesos, de conformidad con las disposiciones y prohibiciones que al respecto establece la Ley General de Control Interno, en su artículo 34.
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
 Institución: Municipalidad de Palmares.
 Jerarca: Concejo Municipal de la Municipalidad de Palmares.
 Ley N° 7428: Ley Orgánica de la Contraloría General de la República.
 Ley N° 8422: Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
 Ley N° 8292: Ley General de Control Interno
 Ley N° 7794: Código Municipal
+Objetividad: Mantenimiento de una actitud imparcial por parte del auditor, en el desarrollo de las funciones de su competencia, para ella debe gozar de total independencia en sus relaciones, no debe permitir ningún tipo de influencia o perjuicio.
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
+Órgano: Unidad administrativa integrada por una o más personas que desarrollan diferentes competencias, con el propósito de llevar a cabo y ejercer determinadas funciones
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
+Pericia: Conocimientos y actitudes requeridas para realizar cierto tipo de trabajo.
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
 Plan anual de Auditoría: Cronograma de las actividades que deberán realizar los funcionarios de Auditoría Interna en determinado período de tiempo.
 Planificación estratégica: Proceso que permite a la organización y a sus dependencias establecer su misión, visión, valores y demás ideas rectoras, así como definir sus propósitos y elegir las estrategias para la consecución de sus objetivos, a efecto de satisfacer las necesidades a las cuales se orientan sus bienes y servicios.
 Planificación operativa: Proceso mediante el cual la organización selecciona alternativas y cursos de acción, en función de los objetivos y metas generales, tomando en consideración la disponibilidad de recursos reales y potenciales para concretar programas y acciones específicas en el tiempo y el espacio.
+Potestades: Facultades del auditor para realizar el trabajo en función de la naturaleza de su función.
+(Así adicionada la definición anterior y publicada en La Gaceta Nº 168 del 30 de agosto de 2010)
 Rendición de cuentas: Obligación de responder por la responsabilidad conferida. Incluye la obligación de explicar y justificar acciones específicas realizadas con el patrimonio público.
 Riesgo: Probabilidad de que un factor, acontecimiento o acción, sea de origen interno o externo, afecte de manera inversa a la organización, área, proyecto o programa y perjudique el logro de sus objetivos.
 Seguimiento del Sistema de Control Interno: Son todas aquellas actividades que se realizan para valorar la calidad el funcionamiento del sistema de control interno, a lo largo del tiempo, para asegurar que los hallazgos de auditoría y los resultados de otras revisiones se atienden oportunamente.

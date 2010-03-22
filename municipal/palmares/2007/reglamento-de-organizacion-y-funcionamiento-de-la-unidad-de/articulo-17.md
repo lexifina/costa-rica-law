@@ -1,1 +1,2 @@
-Artículo 17.—El personal de la Auditoría Interna, mantendrá un rango superior a los demás funcionarios de la Institución, al ejercer funciones de fiscalización, por lo que su nomenclatura debe ser diferente al resto del personal administrativo.
+Artículo 17.—La auditoría interna se organizará y funcionará conforme lo disponga el auditor interno, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, las cuales serán de acatamiento obligatorio.
+(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 14 al 17 actual)

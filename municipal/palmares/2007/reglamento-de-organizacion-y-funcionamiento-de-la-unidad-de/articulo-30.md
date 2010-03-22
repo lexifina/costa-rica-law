@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Desempeño de la Auditoría Interna
-Artículo 30.—Planificación estratégica. La Auditoría Interna contará con la determinación de un proceso de planificación estratégica integral, el cual culmina en la formulación del plan estratégico, contar con un adecuado sistema de administración de los riesgos y potencialidades atribuibles a la Auditoría Interna, así como un análisis de aspectos tales como sus competencias, su universo auditable, sus factores claves de éxito, el aporte a las ideas rectoras y objetivos estratégicos institucionales (misión, visión, valores, etc.)
+Artículo 30.—Idoneidad de los funcionarios de Auditoría Interna: Los demás funcionarios de la Unidad de Auditoría Interna, excepto el puesto de la secretaria, que ejecuten labores de auditoría, deberán ser profesionales capacitados en materia de auditoría interna, con conocimientos en el ámbito contable y administrativo y en algunos casos en áreas especializadas como son: de informática, ingeniería civil y derecho y administración.
+(Así corrida su numeración y publicado en La Gaceta Nº 168 del 30 de agosto de 2010, que lo traspasó del antiguo artículo 27 al 30 actual)

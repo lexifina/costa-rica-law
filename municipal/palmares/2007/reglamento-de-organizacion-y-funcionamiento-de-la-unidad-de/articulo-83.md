@@ -1,0 +1,2 @@
+Artículo 83.—Del seguimiento de los resultados y atención de las denuncias. La Auditoría Interna , como componente del sistema de control interno, de acuerdo con los procedimientos establecidos, dará seguimiento a los resultados producto de las denuncias presentadas ante esta Unidad, para verificar el cumplimiento de las recomendaciones emitidas al respecto, así como de las denuncias que remita a la Administración activa para verificar que las mismas sean cumplidas.
+(Así adicionado y publicado en La Gaceta Nº 168 del 30 de agosto de 2010)
