@@ -1,0 +1,1 @@
+Artículo 5º—Incorporación Ordinaria. Es aquel acto que se realiza dentro de los periodos establecidos y acordados por la Junta Directiva. El mismo, se llevará a cabo única y exclusivamente cuando el acuerdo de incorporación del profesional en enfermería conste y esté en firme en las Actas de Junta Directiva.

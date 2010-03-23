@@ -1,0 +1,1 @@
+Artículo 17.—Para efectos de las/os profesionales incorporadas (os) antes de la emisión del presente reglamento, se establece que ellas/ellos podrán solicitar el cambio de licencia cancelando el importe de la emisión del certificado y la licencia.
