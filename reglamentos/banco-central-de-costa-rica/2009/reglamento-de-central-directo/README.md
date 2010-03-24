@@ -14,3 +14,4 @@ Reglamento de Central Directo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-28 | la propia norma |
+| 2 | 2010-03-24 | Reglamento 5457 (2010-03-24) |
