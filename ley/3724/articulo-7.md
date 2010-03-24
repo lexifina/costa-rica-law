@@ -1,6 +1,6 @@
 CAPITULO IV
 Del Régimen de Sueldos
-Artículo 7°-Se establece la siguiente escala de sueldos con sesenta categorías y un incremento anual absoluto para cada una de ellas, y con treinta pasos consecutivos:
+Artículo 7°-Se establece la siguiente escala de sueldos con sesenta categorías y un incremento anual absoluto para cada una de ellas:
 Categoría | Salario base ¢ | Aumento anual ¢
 1 | 2.900,00 | 135
 2 | 3.000.00 | 140
@@ -63,3 +63,4 @@ Categoría | Salario base ¢ | Aumento anual ¢
 59 | 17.000,00 | 425
 60 | 17.400,00 | 430
 (Así reformado por el artículo 1° de la ley N° 6785 del 6 de agosto de 1982)
+(Así reformado este artículo de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N° 5892 del 24 de marzo de 2010.)
