@@ -1291,6 +1291,7 @@ Capítulo Diecinueve
 Administración del Tratado y Creación de Capacidades Relacionadas con el Comercio
 Capítulo Veinte
 Solución de Controversias
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 36601 del 26 de mayo de 2011, la Comisión de Libre Comercio del Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos, aprobó la Decisión de la Comisión de Libre Comercio para establecer las Reglas Modelo de Procedimiento, de fecha 23 de febrero de 2011, mediante la cual se establecen las reglas que se aplicarán en los procedimientos de solución de controversias de conformidad con el Capítulo 20 (Solución de Controversias) del Tratado de Libre Comercio República Dominicana-Centroamérica- Estados Unidos, dichas reglas pueden ser consultadas aquí)
 Capítulo Veintiuno
 Excepciones
 Capítulo Veintidós
