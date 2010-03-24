@@ -28,3 +28,4 @@ Reglamento a la Ley Forestal
 | 13 | 2008-03-11 | Decreto Ejecutivo 34433 (2008-03-11) |
 | 14 | 2008-07-15 | Decreto Ejecutivo 34761 (2008-07-15) |
 | 15 | 2008-11-12 | SINALEVI (sin norma nombrada) |
+| 16 | 2010-03-24 | Decreto Ejecutivo 35868 (2010-03-24) |
