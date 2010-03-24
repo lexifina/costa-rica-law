@@ -1,2 +1,2 @@
-Transitorio Único.—Al entrar en vigencia el presente Reglamento, la primera distribución del volumen de compras se hará de acuerdo con la participación relativa de las empresas industrializadoras en sus ventas al mercado interno y su volumen de inventarios nacionales durante el último período fiscal.
+Transitorio Único.—(Derogado por el artículo 1º del decreo ejecutivo Nº 35907 del 24 de marzo de 2010)
 Dado en la Presidencia de la República.—San José, a los veintiséis días del mes de enero del dos mil diez.
