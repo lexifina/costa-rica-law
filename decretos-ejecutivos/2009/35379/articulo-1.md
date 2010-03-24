@@ -48,4 +48,5 @@ Reglamento al Artículo 38 bis. de la Ley de Tránsito por
 Vías Públicas Terrestres, N° 7331, para la Regulación
 de la Circulación Vehicular mediante el Esquema
 Hora/Placa en el Centro de San José
-Artículo 1º—Fundamento técnico. El presente reglamento se fundamenta técnicamente en el informe denominado: “Evaluación del impacto producido por eliminar la restricción vehicular por número de placa en San José” elaborado por la Dirección de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes, remitido mediante oficio Nº DGIT-0626-2009 del 9 de julio del 2009.
+Artículo 1º—Fundamento técnico. El presente reglamento se fundamenta técnicamente en el informe denominado: “Evaluación del impacto producido por eliminar la restricción vehicular por número de placa en San José” elaborado por la Dirección de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes, remitido mediante oficio Nº DGIT-0626-2009 del 9 de julio del 2009 y en el informe técnico N° DGIT-ED1842-2010 del 16 de marzo del 2010 del Departamento de Estudios y Diseños de la Dirección General de Ingeniería de Transito.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35874 del 24 de marzo de 2010)

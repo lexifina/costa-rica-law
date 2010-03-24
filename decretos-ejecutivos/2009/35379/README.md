@@ -15,3 +15,4 @@ Reglamento al Artículo 38 bis. de la Ley de Tránsito por Vías Públicas Terre
 | --- | --- | --- |
 | 1 | 2009-07-20 | la propia norma |
 | 2 | 2010-02-02 | Decreto Ejecutivo 35804 (2010-02-02) |
+| 3 | 2010-03-24 | Decreto Ejecutivo 35874 (2010-03-24) |
