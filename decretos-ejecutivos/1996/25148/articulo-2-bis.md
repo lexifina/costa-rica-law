@@ -1,0 +1,2 @@
+Artículo 2 bis.—El plazo de la vigencia del Contrato Turístico otorgado dentro del régimen de incentivos contenido en la Ley N° 6990 del 15 de julio de 1985, Ley de Incentivos para el Desarrollo Turístico, para el caso particular de las empresas de arrendamiento de vehículos a turistas nacionales y extranjeros, será establecido por el Instituto según la definición técnica correspondiente al “Estudio de Plazos de Consolidación de Empresas Turísticas.
+(Así adicionado por el artículo 9° del decreto ejecutivo N° 35970 del 24 de marzo de 2010)

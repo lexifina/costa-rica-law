@@ -19,3 +19,4 @@ Regula Arrendamiento de Vehículos a Turistas Nacionales y Extranjeros
 | 4 | 2001-01-19 | Decreto Ejecutivo 29215 (2001-01-19) |
 | 5 | 2004-03-15 | Decreto Ejecutivo 32015 (2004-03-15) |
 | 6 | 2007-12-17 | Decreto Ejecutivo 34476 (2007-12-17) |
+| 7 | 2010-03-24 | Decreto Ejecutivo 35970 (2010-03-24) |

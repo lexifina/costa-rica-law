@@ -1,16 +1,4 @@
 CAPITULO III
 De los incentivos y beneficios
-Artículo 15.- Las empresas arrendantes que suscriban un contrato
-turístico al amparo de la reforma introducida a la Ley Nº 6990 mediante
-la Ley Nº 7293, tendrán derecho a la exoneración del cincuenta por ciento
-(50%) del monto total resultante de aplicar los impuestos vigentes que
-afecten la importación de los vehículos automotores nuevos destinados
-exclusivamente a arrendarlos a los turistas.
-Las empresas arrendantes con contratos suscritos con anterioridad a la
-vigencia de la Ley Nº 7293, y que de acuerdo con las regulaciones
-aplicables les corresponda la exoneración del ciento por ciento de los
-tributos de importación, podrán renovar la respectiva flotilla con
-exoneración del ciento por ciento de los citados tributos. En caso de
-prórroga del Contrato, para los nuevos vehículos a adquirir, solo se
-concederá exoneración del cincuenta por ciento de los tributos conforme
-lo estipulado en reforma introducida mediante la Ley Nº 7293.
+Artículo 15.—Para los nuevos vehículos a adquirir, se concederá exoneración sólo del cincuenta por ciento (50%) del monto total resultante de aplicar los impuestos vigentes que afecten la importación de los vehículos automotores nuevos destinados exclusivamente a arrendarlos a los turistas, excepto en lo que se refiere al Impuesto General sobre las Ventas que se liquida en su totalidad, conforme lo estipulado en la reforma establecida mediante la Ley N° 7293 del 31 de marzo de 1992, Ley de Todas las Exoneraciones Vigentes, sus Derogatorias y Excepciones.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 35970 del 24 de marzo de 2010)
