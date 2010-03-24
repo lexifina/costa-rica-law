@@ -1,4 +1,6 @@
+(Derogado)
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
+(Esta disposición fue derogado por el artículo 14 del Manual para la clasificación de tierras dedicadas a la conservación de los recursos naturales dentro de la Zona Marítimo Terrestre en Costa Rica, aprobado mediante decreto ejecutivo N° 35869 del 24 de marzo de 2010)
 CONSEJO NACIONAL DE ÁREAS DE CONSERVACIÓN
 SECRETARÍA EJECUTIVA
 R-SINAC-035-2009.—Consejo Nacional de Áreas de Conservación, del Sistema Nacional de Áreas de Conservación, a las siete horas de los veinte días del mes de junio del dos mil nueve.
