@@ -1,13 +1,1 @@
-Artículo 5º.. La Comisión para el cumplimiento de sus funciones,
-deberá reunirse ordinariamente como mínimo dos veces al mes y
-extraordinariamente cuando fuera necesario. Habrá quórum con la
-asistencia de tres miembros, de los cuales dos obligatoriamente serán del
-Sector Público y uno del Sector Privado, sus acuerdos los tomarán por
-simple mayoría los cuales quedarán firmes en la sesión siguiente, según
-lo dispone la Ley General de la Administración Pública, a menos que los
-miembros presentes acuerden su firmeza por votación de dos tercios de la
-totalidad de los miembros.
-Las abstenciones, votos en blanco y nulos no serán contabilizados
-para efecto de la votación, en caso de empate el Presidente someterá a
-segunda votación y si persiste el empate el voto del Presidente se
-computará como doble.
+Artículo 5º—Los miembros de la Comisión deben ser juramentados por el Presidente de la República , de previo al inicio de sus funciones, comprometiéndose a cumplir con eficiencia y plena responsabilidad las obligaciones que les asignan la Ley y este reglamento. Su función estará sujeta a las disposiciones que para los órganos colegiados establece la Ley General de la Administración Pública , independientemente de las demás acciones administrativas, civiles y penales que le puedan ser aplicadas.

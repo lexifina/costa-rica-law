@@ -1,17 +1,2 @@
-CAPITULO II
-De la Comisión
-Artículo 2º.. La Comisión integrada conforme a lo estipulado en el
-artículo 4º de la Ley tendrá igual número de miembros titulares y
-suplentes, será presidida por el representante del Instituto, habrá un
-vicepresidente nombrado por la Comisión. Estos miembros serán nombrados
-por la Presidencia de la República por períodos de dos años, renovables
-por períodos iguales. Los representantes de las entidades públicas serán
-propuestos por los ministros respectivos y por el Presidente Ejecutivo
-del Instituto, quienes los eligirán de entre los funcionarios de alto
-nivel técnico y jerárquico con capacidad y poder de decisión.
-Los representantes del sector privado serán escogidos de las ternas
-presentadas por las cámaras y asociaciones empresariales a nivel nacional
-del sector turismo, quienes deberán estar directamente relacionados con
-alguna de las actividades enumeradas en el Artículo 3º de la Ley y
-deberán representar actividades diferentes. Las ternas deberán
-acompañarse de los respectivos currícula.
+Artículo 2º—Sobre los bienes indispensables para las actividades turísticas establecidas en el artículo 7º de la Ley. Dentro de los bienes considerados indispensables para las actividades incentivadas en el artículo 7º de la Ley , no se incluye el equipo o maquinaria utilizado únicamente para la construcción, ni materiales y papelería de oficina, excepto facturas de sistema especial u otros que la Comisión considere que son indispensables, mediante resolución fundada. No se incluye además dentro de este concepto, vehículos automotores ni combustibles.
+En cuanto a los bienes e instalaciones necesarias para brindar el servicio de alimentación y de bebidas en hotelería al tenor de los incentivos del artículo 7º, inciso a) de la Ley , se exonerarán aquéllos que se refieran a dicha actividad, siempre y cuando ésta se encuentre integrada en forma funcional y estructural a la empresa de hotelería, su propietario y único responsable legal para todos los efectos sea la empresa titular del Contrato Turístico y constituya por lo tanto, un servicio complementario y accesorio al principal, sea, al de hospedaje.

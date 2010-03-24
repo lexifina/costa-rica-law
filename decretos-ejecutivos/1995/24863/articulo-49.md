@@ -1,16 +1,3 @@
-Artículo 49.. Este Reglamento rige a partir de su publicación.
-TRANSITORIO I
-En cuanto a los incentivos contenidos en contratos firmados con
-anterioridad a la promulgación de la Ley Nº 7293 de fecha 31 de marzo de
-1992, se regirán por las normas legales y reglamentarias vigentes a la
-fecha de su suscripción salvo que ley posterior contenga un trato más
-favorable. En los demás aspectos, tales como trámite y control de las
-exoneraciones, se aplicará lo establecido en este Decreto.
-TRANSITORIO II
-La reglamentación para la actividad de arrendamiento de vehículos,
-cuyos beneficios se establecen en el inciso d) del artículo 7 de la Ley,
-será regulado por medio de otro Decreto.
-TRANSITORIO III
-Dado en la Presidencia de la República. San José, a los cinco días
-del mes de diciembre de mil novecientos noventa y cinco.
-.e
+Artículo 49.— La Comisión podrá autorizar el traspaso de aquellos bienes adquiridos por una empresa con contrato Turístico a otra del mismo régimen, siempre que gocen de los mismos beneficios, previa solicitud de la empresa, excepto para vehículos y naves acuáticas. La Comisión remitirá copia de la autorización al Departamento de Exenciones de la Dirección.
+Si los bienes a traspasar son vehículos y naves acuáticas, la empresa deberá tramitar la solicitud ante el Departamento de Exenciones de la Dirección , previa recomendación de la Comisión.
+Los traspasos de bienes exonerados a terceros que no gocen de los mismos beneficios fiscales, obligan al pago de los respectivos tributos y sobretasas, de conformidad con lo indicado en el segundo párrafo del artículo 45 de la Ley N º 7293 del 31 de marzo de 1992, Ley Reguladora de todas las Exoneraciones Vigentes, su Derogatoria y Excepciones. Esto siempre y cuando la empresa no haya incurrido en incumplimientos que ameriten la iniciación de los respectivos procedimientos administrativos. La depreciación, merma o avena se hará conforme a las reglas vigentes y de acuerdo con el estado del bien en la fecha de liquidación. La Comisión recomendará el traspaso y al Departamento de Exenciones le corresponde lo relativo a la autorización del mismo.

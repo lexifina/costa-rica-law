@@ -1,8 +1,10 @@
-Artículo 14.. Contra los acuerdos emitidos por la Comisión, el
-interesado podrá interponer los recursos de revocatoria y apelación: la
-revocatoria la presentará ante la misma Comisión dentro del término de 3
-días contados a partir de la comunicación del acuerdo. En caso de que la
-Comisión declare sin lugar la revocatoria, se enviará ante la Junta
-Directiva del Instituto para que conozca la apelación, lo que podrá dar
-por agotada la vía administrativa, de conformidad con las disposiciones
-vigentes de la Ley General de la Administración Pública.
+Artículo 14.— La Secretaría deberá implantar y mantener actualizado un sistema de información que contenga al menos lo siguiente:
+a) Listado que consigne datos generales de las empresas: nombre, número de contrato, vigencia del contrato y beneficios otorgados.
+b) Solicitudes de contrato recibidas y aprobadas.
+c) Contratos aprobados (documentos originales).
+d) Informes anuales.
+e) Otros informes solicitados por la Comisión.
+f) Correspondencia enviada y recibida.
+g) Contratos cancelados y suspendidos.
+h) Listado de empresas sancionadas o que incumplan con su Contrato Turístico.
+i) Otros que la Secretaría considere necesarios para su funcionamiento.

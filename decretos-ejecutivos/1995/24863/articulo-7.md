@@ -1,7 +1,2 @@
-Artículo 7º.. La Comisión llevará los siguientes registros:
-a) Registro de Actas de sus sesiones.
-b) Registro de las solicitudes presentadas, enumeradas con anotación
-de la hora y la fecha de recibo.
-c) Registro de Contratos Turísticos aprobados, por orden cronológico
-y alfabético.
-d) Registro de los incentivos otorgados a cada una de las empresas.
+Artículo 7º— La Comisión para el cumplimiento de sus funciones, deberá reunirse ordinariamente como mínimo dos veces al mes y extraordinariamente cuando fuera necesario. Habrá quórum con la asistencia de tres miembros, de los cuales dos obligatoriamente serán del Sector Público y uno del Sector Privado, sus acuerdos los tomarán por simple mayoría los cuales quedarán firmes en la sesión siguiente, según lo dispone la Ley General de la Administración Pública , a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros.
+Las abstenciones, votos en blanco y nulos no serán contabilizadas para efecto de la votación, en caso de empate el Presidente someterá a segunda votación y si persiste el empate el voto del Presidente se computará como doble.

@@ -1,5 +1,1 @@
-Artículo 46.. La Refinadora Costarricense de Petróleo (RECOPE)
-enviará un informe anual al Instituto con copia a la Dirección de las
-ventas de combustible a las aerolíneas con incentivos turísticos,
-detallando mensualmente el combustible vendido a precio preferencial en
-litros y colones a cada una de las empresas.
+Artículo 46.—Cuando por causas de fuerza mayor, tales como incendio, terremoto, hubiere pérdidas o destrucción total de los bienes exonerados, el interesado deberá a la mayor brevedad comunicarlo a la Comisión y remitir copia a la Dirección y presentar ante la Comisión , cuando lo considere necesario, la solicitud de reposición, para que ésta última resuelva en firme lo que estime procedente en cada caso.

@@ -1,0 +1,5 @@
+Artículo 18.—Para solicitar el Contrato Turístico las personas físicas o jurídicas deberán haber obtenido la declaratoria turística y presentar al Instituto los requisitos legales, técnicos y económicos detallados en los Anexos 1, 2 y 3 del presente reglamento.
+Las Guías de Requisitos para Contrato Turístico detalladas en los Anexos 1, 2 y 3, son parte normativa integrante de este Reglamento y su contenido establece la forma completa de cumplir los requisitos en él establecidos.
+Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar.
+Firmado el contrato y de previo a que la empresa inicie el trámite de la primera exoneración de un bien, deberá presentar un plan de compras, que incluya un detalle de los bienes a exonerar y sus respectivas cantidades, requeridos en las actividades y proyectos objeto del contrato turístico.
+En caso de bienes no incluidos en el plan de compras original, deberá presentar la respectiva ampliación a dicho plan para que sea aprobado por la Comisión.

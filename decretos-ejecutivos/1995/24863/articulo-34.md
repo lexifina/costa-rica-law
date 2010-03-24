@@ -1,36 +1,13 @@
-Artículo 34.. Transporte acuático de Turistas.
-Las empresas dedicadas al Transporte Acuático de Turistas tienen
-derecho a los siguientes incentivos:
-a) Exención de todo tributo y sobretasa que se aplique a la
-importación o compra local de bienes indispensables para la
-construcción, ampliación o remodelación de muelles y otros
-lugares destinados al embarque o desembarque de turistas, así
-como para la construcción y mantenimiento de marinas, balnearios
-y acuarios destinados a la atención del turismo, siempre y cuando
-los bienes que se vayan a importar no se fabriquen en el
-territorio de los países signatarios del Convenio sobre Régimen
-Arancelario y Aduanero Centroamericano, en condiciones
-competitivas de precio, cantidad, calidad y oportunidad, a juicio
-del Ministerio de Economía Industria y Comercio.(*)
-b) Depreciación acelerada, de conformidad con la Ley de Impuesto
-sobre la Renta.
-c) Exoneración de todo tributo y sobretasa, excepto de los derechos
-arancelarios a la importación, cuya tarifa se fija en un veinte
-por ciento (20%), a la importación o compra local de naves
-acuáticas destinadas exclusivamente al transporte turístico de
-pasajeros, para lo que se deberá contar con facilidades adecuadas
-para el atraque, embarque y desembarque de pasajeros. En casos de
-excepción y debido a la no existencia en la zona en la cual
-operará la empresa, de ese tipo de facilidades, se podrá
-autorizar otro tipo de facilidades o maneras alternas para el
-atraque, embarque y desembarque de pasajeros.
-Las actividades de cabotaje turístico en cualquiera de sus formas,
-de puerto a puerto costarricense, quedarán única y exclusivamente
-reservadas a los yates, barcos tipo crucero turístico y similares de
-bandera nacional.
-No se exonerarán los avíos, ni los bienes que se adicionen o
-aquellos a usar en reposición de otros exonerados que formaban parte
-componente de la nave.
-(*) (Derogado parcial y tácitamente, respecto de las excenciones del impuesto sobre las ventas,
-por el inciso b) del artículo 17 de la Ley N° 8114,
-Ley de Simplificación y EficienciaTributaria de 4 de julio del 2001).
+Artículo 34.— Las empresas dedicadas al transporte aéreo de turistas internacional y nacional, tienen derecho a los siguientes incentivos:
+a) Suministro de combustible bajo un precio competitivo que se determinará con las siguientes fórmulas:
+i. Para el Jet-Fuel, se tomará el precio promedio FOB semanal (de viernes a jueves) reportado, para la Costa del Golfo a granel, publicado en el Platt’s Global Alert, más US $ 0,0368/litro, para cubrir los costos directos de manejo de combustible.
+ii. Para el Av-Gas, se tomará el precio promedio FOB semanal de la gasolina de alto octanaje (de viernes a jueves) reportado en Platt’s Global Alert más el premium respectivo, más US $ 0,0964/litro para cubrir los costos directos de manejo de combustible.
+En ambos casos el cálculo se efectuará el día viernes de cada semana y el tipo de cambio de compra a utilizar será el vigente al día del cálculo del precio promedio, rigiendo a partir del sábado inmediato.
+La Refinadora Costarricense de Petróleo realizará al menos una vez al año en el primer trimestre, una revisión del factor adicional, para cubrir los costos directos de los combustibles de aviación de Jet Fuel y Av Gas, con base en los registros contables anuales de la Refinadora Costarricense de Petróleo del último período fiscal cerrado.
+iii. Asimismo, deberá adicionarse, al resultado obtenido en los cálculos anteriores, los siguientes rubros:
+- Los impuestos de importación de ley.
+- Las tarifas de Aviación Civil vigentes por derecho de explotación para la venta y uso de instalaciones en el aeropuerto, aprobadas por la Autoridad Reguladora de los Servicios Públicos.
+- El costo de la comisión por pago mediante tarjetas de crédito que los emisores cobran a RECOPE, S. A. Este costo será trasladado al comprador únicamente si éste efectúa la compra acogiéndose a esta forma de pago, siempre y cuando el emisor de la tarjeta utilizada cobre dicha comisión a RECOPE.
+- El Canon de ARESEP.
+Estos rubros serán actualizados en forma automática conforme lo modifique el ente competente o, en el caso del costo de la comisión de las tarjetas de crédito, conforme al acuerdo entre RECOPE y el ente emisor.
+b) Exención de todo tributo, exceptuando el impuesto de ventas, en la importación o compra local de los repuestos necesarios para el correcto funcionamiento de las aeronaves.

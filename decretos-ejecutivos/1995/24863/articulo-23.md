@@ -1,7 +1,1 @@
-Artículo 23.. Las empresas deben presentar un informe anual ante la
-Secretaría, con copia a la Dirección, en el cual se indique el uso y
-destino de los bienes exonerados durante ese período. Este informe tendrá
-carácter de declaración jurada y se presentará durante los primeros tres
-meses posteriores a la finalización del período fiscal previamente
-autorizado por la Dirección General de la Tributación Directa para cada
-empresa.
+Artículo 23.—Los plazos de los contratos turísticos otorgados por la Institución , según el caso de cada servicio o actividad susceptible de incentivos, sean, hotelería, transporte aéreo de turistas, internacionales y nacionales, transporte acuáticos de turistas, turismo receptivo de agencias de viajes y arrendamiento de vehículos a turistas extranjeros y nacionales, serán los establecidos en el instrumento técnico denominado “Estudio de Plazos de Consolidación de Empresas Turísticas” y se determinarán para cada caso concreto, mediante resolución motivada que emita la Gerencia General de la Institución.

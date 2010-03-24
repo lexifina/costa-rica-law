@@ -1,7 +1,2 @@
-Artículo 28.—Una vez concluido el procedimiento, el órgano director remitirá el expediente a la Comisión Reguladora, la cual emitirá la recomendación final a la Gerencia del Instituto, a efectos de que ésta decida en primera instancia sobre la aplicación de las sanciones. Lo anterior sin perjuicio de las sanciones de tipo fiscal que pueda aplicar la Dirección en virtud de las disposiciones vigentes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32219 del 16 de setiembre del 2004)
-CAPITULO VI
-De los incentivos y beneficios
-Artículo 29.. A las empresas calificadas para obtener los beneficios
-de la ley, se les podrá otorgar total o parcialmente los incentivos
-establecidos en este capítulo, según la actividad de que se trate.
+Artículo 28.— La Dirección General de Hacienda o el órgano administrativo en que ésta delegue tal función, será el ente encargado de realizar el procedimiento administrativo correspondiente para la eventual aplicación de las sanciones del presente régimen, en aquellos casos en que el incumplimiento o sanción se refiera al correcto uso y destino de los bienes exonerados, según las condiciones previstas en la Ley , el presente Reglamento y el respectivo contrato.
+Una vez finalizado el procedimiento de la resolución respectiva se remitirá copia a la Comisión Reguladora.

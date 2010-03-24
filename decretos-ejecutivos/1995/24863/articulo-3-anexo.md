@@ -1,68 +1,67 @@
 ANEXO 3
 GUÍA DE REQUISITOS PARA OBTENER EL CONTRATO
-TURÍSTICO DETALLE DE REQUISITOS
-POR ACTIVIDAD
-A.—ACTIVIDAD HOSPEDAJE
-I.—Requisitos Legales
-1) Solicitud escrita para la obtención del contrato turístico suscrita por el interesado o por el representante legal en caso de ser persona jurídica y con las firmas debidamente autenticadas.
-2) Copia de la resolución que otorga la declaratoria turística.
-3) Certificación de Personería Jurídica, si:
-a) la presentada en el trámite de declaratoria tiene más de tres meses desde su expedición.
-b) han cambiado los personeros de la empresa después del otorgamiento de la declaratoria turística, deberán actualizar la información relacionada con dichos personeros.
+TURÍSTICO DETALLE DE REQUISITOS POR ACTIVIDAD
+A. Actividad hospedaje
+I. Requisitos legales:
+1. Solicitud escrita para la obtención de los beneficios de la Ley 6990 de Incentivos para el Desarrollo Turístico y/o de la Ley 8724 de Fomento de Turismo Rural Comunitario, suscrita por el interesado o por el representante legal de la empresa o de la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, respectivamente. Dicha(s) firma(s) en el escrito de solicitud deberá(n) estar debidamente autenticada(s).
+2. Ostentar la declaratoria turística.
+3. Certificación de personería jurídica de la sociedad, empresa o la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, si:
+a) la presentada en el trámite previo de la declaratoria turística tiene antigüedad de más de tres meses contados desde su expedición.
+b) han cambiado sus personeros después del otorgamiento de la declaratoria turística, caso en el que deberán actualizar la información relacionada con dichos personeros.
 Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma.
-4) Declaración Jurada: esta deberá ser otorgada por el interesado, si es persona física o del representante legal de la entidad, en el caso de personas jurídicas. Dicha declaración notarial deberá contener los siguientes compromisos:
-a) que la empresa tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
-b) que se compromete a iniciar operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
-II.—Requisitos Técnicos
-1. Las empresas de alojamiento que deseen obtener los beneficios de la Ley de Incentivos, otorgados mediante el Contrato Turístico, deben cumplir con las siguientes características:
-a) Empresas Hoteleras: Mínimo 20 habitaciones.
-i) Hoteles
-ii) Hoteles residencia
-iii) Apartoteles con un mínimo de 10 unidades
-b) Empresas Parahoteleras:
-i) Pensiones y Casa de Huéspedes con un mínimo de 10 habitaciones
-ii) Albergues con un mínimo de 10 habitaciones.
-iii) Cabinas con un mínimo de 10 unidades compuestas de sala, comedor, cocina, servicio sanitario, 1 ó 2 dormitorios y un aparcamiento por unidad.
-2. Las empresa de hospedaje que van a desarrollar infraestructura deberán cumplir con los requisitos de planos especificados en la Guía "Requisitos para planos constructivos de proyectos turísticos para empresas que desean optar por el contrato turístico", según corresponda.
-III.—Requisitos Económicos
-Las empresas de este tipo deberán presentar estudio económico según las especificaciones de la Guía "Requisitos para confeccionar un estudio económico".
-Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar, los cuáles deberán ser aportados por el solicitante y presentados de una sola vez y no en forma parcial.
-B.—AGENCIA DE VIAJES RECEPTIVA, LÍNEAS AÉREAS Y ARRENDADORAS DE VEHÍCULOS
-I.—Requisitos Legales:
+4. Declaración jurada: Esta deberá ser otorgada por el interesado, si éste es persona física o bien por el representante legal de la entidad, en el caso de personas jurídicas, o de la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, para el caso de empresas del TRC. En todo caso, dicha declaración notarial deberá contener los siguientes compromisos:
+a) Que la empresa o bien la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
+b) Que se compromete a iniciar operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
+c) Efectuar además, de conformidad con lo dispuesto en la Ley de Notificaciones Judiciales Nº 8687, artículos 19, 20 y 22, del 4 de diciembre del 2008, señalamiento expreso del domicilio contractual de su empresa o Asociación o Cooperativa conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, a fin de atender notificaciones, el cual se refiere a la casa de habitación, el domicilio real de la persona física o el domicilio social o real de la persona jurídica o Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas. La información del domicilio contractual constará además en el texto del Contrato Turístico a suscribir por el interesado, una vez finalizado el trámite.
+II. Requisitos técnicos
+1. Las empresas de alojamiento, que deseen obtener los beneficios de la Ley de Incentivos para el Desarrollo Turístico del 15 de julio de 1985, o bien de la Ley de Fomento de Turismo Rural Comunitario Ley 8724 del 17 de julio del 2009, otorgados mediante el Contrato Turístico, deben cumplir con lo que establece el Reglamento de Empresas de Hospedaje Turístico.
+2. Las empresas o Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, de hospedaje que van a desarrollar infraestructura deberán cumplir con los requisitos de planos especificados en la Guía “Requisitos para planos constructivos de proyectos turísticos para empresas que desean optar por el contrato turístico”, (Anexo 1 del Reglamento de la Ley de Incentivos para el Desarrollo Turístico) según corresponda.
+III. Requisitos económicos Las personas físicas, empresas, o Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, deberán de presentar un estudio económico o perfil económico, así como la información necesaria para la calificación de los Parámetros económicos, culturales, y ambientales, según las especificaciones del Anexo 2 del Reglamento de la Ley de Incentivos para el Desarrollo Turístico.
+Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar, los cuales deberán ser aportados por el solicitante y presentados de una sola vez y no en forma parcial.
+B. Agencia de viajes receptiva, líneas aéreas y arrendadoras de vehículos.
+I. Requisitos legales:
 1) Solicitud escrita para la obtención del contrato turístico suscrita por el interesado o por el representante legal en caso de ser persona jurídica y con las firmas debidamente autenticadas.
-2) Copia de la resolución que otorga la declaratoria turística.
+2) Ostentar la Declaratoria Turística
 3) Certificación de Personería Jurídica, si:
-a) la presentada en el trámite de declaratoria tiene más de tres meses desde su expedición.
-b) han cambiado los personeros de la empresa después del otorgamiento de la declaratoria turística, deberán actualizar la información relacionada con dichos personeros.
+a. La presentada en el trámite de declaratoria tiene más de tres meses desde su expedición.
+b. Han cambiado sus personeros después del otorgamiento de la declaratoria turística, caso en el que deberán actualizar la información relacionada con dichos personeros.
+4) Declaración jurada: Esta deberá ser otorgada por el interesado, si es persona física o del representante legal de la entidad, en el caso de personas jurídicas. Dicha declaración notarial deberá contener los siguientes compromisos:
+a. Que la empresa o bien la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
+b. Que se compromete a iniciar operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
+c. Efectuar además, de conformidad con lo dispuesto en la Ley de Notificaciones Judiciales Nº 8687, artículos 19, 20 y 22, del 4 de diciembre del 2008, señalamiento expreso del domicilio contractual de su empresa a fin de atender notificaciones, el cual se refiere a la casa de habitación, el domicilio real de la persona física o el domicilio social o real de la persona jurídica. La información del domicilio contractual constará además en el texto del Contrato Turístico a suscribir por el interesado, una vez finalizado el trámite.
 Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma.
-4) Declaración Jurada: esta deberá ser otorgada por el interesado, si es persona física o del representante legal de la entidad, en el caso de personas jurídicas. Dicha declaración notarial deberá contener los siguientes compromisos:
-a) Que la empresa tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
-b) Que la empresa iniciará operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
 Para las empresas arrendadoras de vehículos es necesario que adicionalmente:
-1. Aporten certificación de Contador Público Autorizado sobre
-a) la composición de su capital social según libros contables, la cual debe indicar: el monto total del capital social, el número de acciones y el porcentaje de participación de los socios
-b) la capacidad de la empresa para invertir en la actividad un monto mínimo que garantice la operación de una flotilla propia no inferior a veinte vehículos nuevos.
+1. Aporten certificación de Contador Público Autorizado sobre la composición de su capital social, según libros contables, la cual debe indicar: El monto total del capital social, el número de acciones y el porcentaje de participación de los socios.
+a) La capacidad de la empresa para invertir en la actividad un monto mínimo que garantice la operación de una flotilla propia no inferior a veinte vehículos nuevos.
 Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma.
-2. En la Declaración Jurada que indique el compromiso de la empresa e renovar los vehículos exonerados, dentro de un plazo máximo de tres años, contados a partir de la fecha de la inscripción en el Registro Público. Para estos efectos no se computarán los plazos que la Administración tarde en resolver las respectivas peticiones de los beneficiarios de las exenciones.
-II.—Requisitos Técnicos
-Para Empresas Arrendadora de vehículos: El solicitante indicará la cantidad y descripción detallada de los vehículos y estilos que utilizará en la actividad de arrendamiento, cantidad que no podrá ser inferior en ningún caso a veinte vehículos de su propiedad.
-III.—Requisitos Económicos
-Presentar estudio económico según las especificaciones del Anexo 2 "Guía de Requisitos para confeccionar un estudio económico."
-Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar, los cuáles deberán ser aportados por el solicitante y presentados de una sola vez y no en forma parcial.
-C.—TRANSPORTE ACUÁTICO
-I.—Requisitos Legales
+2. En la declaración jurada que indique el compromiso de la empresa y renovar los vehículos exonerados, dentro de un plazo máximo de tres años, contados a partir de la fecha de la inscripción en el Registro Público. Para estos efectos no se computarán los plazos que la Administración tarde en resolver las respectivas peticiones de los beneficiarios de las exenciones.
+Requisitos legales para la actividad de agencia de viajes receptiva, incluyendo la de agencia de viajes especializada en turismo rural comunitario:
+1) Solicitud escrita para la obtención de los beneficios de la Ley 6990 de Incentivos para el Desarrollo Turístico y/o de la Ley 8724 de Fomento de Turismo Rural Comunitario, suscrita por el interesado o por el representante legal de la empresa o de la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, respectivamente. Dicha (s) firma(s) en el escrito de solicitud deber(n) estar debidamente autenticada(s).
+2) Ostentar la declaratoria turística.
+3) Certificación de personería jurídica de la sociedad, empresa o la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, si:
+a) la presentada en el trámite previo de la declaratoria turística tiene antigüedad de más de tres meses contados desde su expedición.
+b) han cambiado sus personeros después del otorgamiento de la declaratoria turística, caso en el que deberán actualizar la información relacionada con dichos personeros.
+Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma.
+4) Declaración jurada: Esta deberá ser otorgada por el interesado, si éste es persona física o bien por el representante legal de la entidad, en el caso de personas jurídicas, o de la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, para el caso de empresas del TRC. En todo caso, dicha declaración notarial deberá contener los siguientes compromisos:
+a) Que la empresa o bien la Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
+b) Que se compromete a iniciar operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
+c) Efectuar además, de conformidad con lo dispuesto en la Ley de Notificaciones Judiciales Nº 8687, artículos 19, 20 y 22, del 04 de diciembre del 2008, señalamiento expreso del domicilio contractual de su empresa o Asociación o Cooperativa conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, a fin de atender notificaciones, el cual se refiere a la casa de habitación, el domicilio real de la persona física o el domicilio social o real de la persona jurídica o Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas. La información del domicilio contractual constará además en el texto del Contrato Turístico a suscribir por el interesado, una vez finalizado el trámite.
+II. Requisitos técnicos: Para empresas arrendadoras de vehículos: El solicitante debe de realizar una descripción detallada de la infraestructura y servicios que brinda (Ejemplo: Cantidad de vehículos, tipos, marca, modelos, cilindrada, instalaciones y servicios con que cuenta para la prestación de (l) servicio (s)), entre otros aspectos que se consideren de importancia para dar a conocer el producto turístico que ofrece el establecimiento de arrendamiento de vehículos.
+III. Requisitos económicos: Las personas físicas, empresas o Asociación o Cooperativa, conformada por la Ley de Asociaciones Nº 218 y la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, Ley Nº 4179 y sus reformas, deberán presentar un estudio económico o perfil económico, así como la información necesaria para la calificación de los Parámetros económicos, culturales, y ambientales, según las especificaciones del Anexo 2 del Reglamento de la Ley de Incentivos para el Desarrollo Turístico.
+Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar, los cuales deberán ser aportados por el solicitante y presentados de una sola vez y no en forma parcial.
+C. Transporte acuático
+I. Requisitos legales
 1) Solicitud escrita para la obtención del contrato turístico suscrita por el interesado o por el representante legal en caso de ser persona jurídica y con las firmas debidamente autenticadas.
-2) Copia de la resolución que otorga la declaratoria turística.
-Certificación de Personería Jurídica, si:
-a) la presentada en el trámite de declaratoria tiene más de tres meses desde su expedición.
-b) han cambiado los personeros de la empresa después del otorgamiento de la declaratoria turística, deberán actualizar la información relacionada con dichos personeros.
+2) Ostentar la Declaratoria Turística
+3) Certificación de Personería Jurídica, si:
+a. La presentada en el trámite de declaratoria tiene más de tres meses de antigüedad contados desde su expedición.
+b. Han cambiado los personeros de la empresa después del otorgamiento de la declaratoria turística deberán actualizar la información relacionada con dichos personeros.
+4) Declaración jurada: Esta deberá ser otorgada por el interesado, si es persona física o del representante legal de la entidad, en el caso de personas jurídicas. Dicha declaración notarial deberá contener los siguientes compromisos:
+a. Que la empresa tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
+b. Que se compromete a iniciar operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
+c. Efectuar además, de conformidad con lo dispuesto en la Ley de Notificaciones Judiciales Nº 8687, artículos 19, 20 y 22, del 4 de diciembre del 2008, señalamiento expreso del domicilio contractual de su empresa a fin de atender notificaciones, el cual se refiere a la casa de habitación, el domicilio real de la persona física o el domicilio social o real de la persona jurídica. La información del domicilio contractual constará además en el texto del Contrato Turístico a suscribir por el interesado, una vez finalizado el trámite.
 Toda certificación que se presente deberá tener una antigüedad no mayor a tres meses contados a partir de la fecha de expedición de la misma.
-4) Declaración Jurada: esta deberá ser otorgada por el interesado, si es persona física o del representante legal de la entidad, en el caso de personas jurídicas. Dicha declaración notarial deberá contener los siguientes compromisos:
-a) que la empresa tendrá como objeto exclusivo la actividad turística y que en caso de dedicarse a otros giros, los llevará contable y administrativamente por separado.
-b) que se compromete a iniciar operaciones o construcción, dentro de un plazo máximo de seis meses contados a partir de la firma del contrato turístico. Este plazo sólo podrá ser ampliado por la Comisión mediante acto razonado en atención a solicitud debidamente justificada del interesado.
-II.—Requisitos Técnicos
-En caso de proyectos nuevos deberán cumplir con lo establecido en el punto c) del Anexo 1 "Guía de Requisitos para planos constructivos de proyectos turísticos para empresas que desean optar por contrato turístico".
-III.—Requisitos Económicos
-Presentar estudio según las especificaciones del Anexo 2 "Guía Requisitos para confeccionar un estudio económico".
+II. Requisitos técnicos: En caso de proyectos nuevos deberá cumplir con lo establecido en el punto c) del Anexo I “Guía de Requisitos para planos constructivos de proyectos turísticos para empresas que desean optar por contrato turístico”.
+III. Requisitos económicos: Presentar estudio según las especificaciones del Anexo 2 “Guía Requisitos para confeccionar un estudio económico”.
 Una vez efectuada la revisión de los documentos, el Instituto deberá especificar por escrito y por única vez la lista de requisitos o documentos pendientes de aportar los cuales deberán ser aportados por el solicitante y presentados de una sola vez y no en forma parcial.
-(Así adicionado por decreto ejecutivo N° 29215 del 19 de enero de 2001)
+(Así reformado por el artículo 2º del decreto ejecutivo Nº 35971 del 24 de marzo de 2010)

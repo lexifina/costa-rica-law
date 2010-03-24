@@ -1,4 +1,1 @@
-Artículo 20.. Si una persona física o jurídica gestiona por separado
-o simultáneamente los beneficios dos o más actividades turísticas de las
-previstas en el artículo 3 de la Ley y se le aprueba dicha solicitud se
-deberá suscribir un contrato por cada actividad.
+Artículo 20.—El contrato debe ser firmado por la persona física o el representante legal de la persona jurídica, según sea el caso y el representante del Instituto, éste último en representación del Estado.

@@ -1,2 +1,7 @@
-Artículo 21.. Los plazos máximos de vigencia de los contratos turísticos serán en el caso de Servicio de Hotelería, 25 años; para Transporte Aéreo de Turistas, Internacional o Nacional, 12 años; para Turismo Receptivo de Agencia de Viaje, 12 años y para Transporte Acuático de Turistas, 12 años; contados a partir de la fecha de la firma del mismo, pudiendo ser renovados automáticamente a su vencimiento por períodos iguales, a menos que una de las partes manifieste lo contrario dentro del plazo de dos meses anteriores a su vencimiento.
-(La Sala Constitucional mediante resolución N° 18966-10 del 17 de noviembre de 2010, estableció que este artículo no es inconstitucional, siempre y cuando se interprete que “el beneficiario podrá gozar de las exenciones, beneficios e incentivos previstos en la Ley de Incentivos para el Desarrollo Turístico No. 6990 del 15 de julio de 1985 y sus reformas, en tanto se encuentre en ejecución efectiva un programa o proyecto importante, nuevo, de ampliación o de remodelación.”)
+Artículo 21.—El contrato contendrá como mínimo, los siguientes aspectos:
+a) Nombre o razón social del beneficiario, con la información necesaria para su identificación y ubicación, así como la de su representante legal si se tratare de una persona jurídica.
+b) Descripción de la actividad del beneficiario.
+c) Detalle de los incentivos otorgados.
+d) Enumeración detallada de las obligaciones que contrae el beneficiario.
+e) Indicación de la fecha de inicio de operaciones y de la vigencia del contrato.
+f) Otros aspectos adicionales que se consideren necesarios para su mejor aplicación.
