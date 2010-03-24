@@ -1,2 +1,2 @@
-Artículo 4°—Las empresas que se dediquen a la actividad aquí regulada, deberán llevar a bordo y en perfecto estado de funcionamiento los elementos de seguridad para el rango de autonomía asignado a la embarcación y para el caso de botes, balsas, motos acuáticas y Kayacs los pasajeros deberán llevar en todo momento los chalecos salvavidas.
-(Así reformado por el artículo 2° del Decreto Ejecutivo 26678, del 9 de mayo de 1997)
+Artículo 4º—Las empresas que se dediquen a la actividad aquí regulada, deberán llevar a bordo y en perfecto estado de funcionamiento los elementos de seguridad para el rango de autonomía asignado a la embarcación y para el caso de botes, los pasajeros deberán llevar puestos en todo momento los chalecos salvavidas.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 35969 del 24 de marzo de 2010)
