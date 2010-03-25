@@ -14,3 +14,4 @@ División Territorial Electoral que regirá para las elecciones del 7 de febrero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-31 | la propia norma |
+| 2 | 2010-03-25 | Decreto TSE 2 (2010-03-25) |
