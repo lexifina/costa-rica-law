@@ -14,3 +14,4 @@ Modifica para el Colegio Universitario de Limón (CUNLIMON) el gasto presupuesta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-23 | la propia norma |
+| 2 | 2010-03-25 | Decreto Ejecutivo 35897 (2010-03-25) |
