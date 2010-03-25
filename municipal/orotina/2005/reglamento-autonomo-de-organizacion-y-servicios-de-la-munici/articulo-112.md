@@ -1,7 +1,16 @@
 Artículo 112.—El Alcalde Municipal otorgará permiso con goce de salario al trabajador que se encuentre en las siguientes situaciones:
-a. En caso de fallecimiento de sus padres, hijos, entenados, hermanos, cónyuge, compañero, compañera de vida, hasta por 5 días hábiles, a disfrutar en forma inmediata; a partir del día de fallecimiento, previa constancia extendida por autoridad competente.
+a. En caso de fallecimiento de sus padres, hijos, entenados, abuelos, nietos, hermanos, cónyuge, compañero, compañera de vida, hasta por 5 días hábiles, a disfrutar en forma inmediata; a partir del día de fallecimiento. Por muerte de cualquier otro pariente hasta cuarto grado de consanguinidad, o afinidad un día natural para asistir al sepelio. En todo caso deberá demostrar documento que demuestre el deceso.
+(Así reformado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)
 b. En caso de nupcias cinco días hábiles, a partir del día en que fue celebrado el acto y para su disfrute debe de presentar la solicitud ante su jefe y este trasladará la solicitud a la Unidad de Recursos Humanos quien la dirigirá al Alcalde Municipal para su aprobación.
 Una copia de la certificación de matrimonio debe ser entregada sin prórroga alguna a más tardar el sexto día hábil de haber contraído nupcias.
 La certificación anterior, emitida por autoridad competente se tiene como válida cuando provenga de sacerdotes católicos, notarios públicos, jueces de la republica, autoridades de policía y capitanes de naves y aeronaves.
 c. En caso de nacimiento de niño vivo, de la esposa o compañera del trabajador, 5 días hábiles, que se disfrutarán en forma inmediata al nacimiento, o a partir del momento que la madre sea dada de alta en el hospital respectivo, se presentará documento respectivo que compruebe el nacimiento al regresar el primer día hábil.
 d. Hasta 8 días al trabajador que sufra calamidad doméstica, incendio, inundación, terremoto, derrumbe, explosión o cualquiera similar. Todas las situaciones anteriormente indicadas presentarán prueba documental, fotos, video, etc., necesarios para demostrarlo.
+e. Un día al trabajador que cambie de domicilio, a cuyo efecto deberá solicitar el permiso por lo menos con una semana de anticipación, debiendo indicar por escrito a su jefatura, el nuevo domicilio para incorporarlo al expediente personal.
+(Así adicionado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)
+f. Para matrícula del trabajador o de sus hijos en centros educativos y para atender reuniones en la escuela y colegio de los hijos: el tiempo prudencial para asistir a la actividad, en el entendido de que el trabajador presentará justificante (circular del centro educativo que llame a estas reuniones o constancia de asistencia), y si no lo hace, se le rebajará el salario correspondiente, sin perjuicio de la sanción disciplinaria que pueda corresponder.
+(Así adicionado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)
+g. Otros permisos discrecionales para ausentarse durante la jornada diaria de trabajo, pueden solicitarse verbalmente y ser resueltos de la misma forma, bajo la responsabilidad de la jefatura inmediata.
+(Así adicionado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)
+h. En otros casos no contemplados en los incisos anteriores, cuando sea de suma urgencia y exista plena justificación a juicio de la jefatura inmediata, hasta por tres días naturales, lo cual debe hacerse constar en el expediente personal.
+(Así adicionado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)

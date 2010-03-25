@@ -1,5 +1,6 @@
 Artículo 43.—En la Municipalidad se trabajarán los días de lunes a viernes, en jornada continua atendiendo al siguiente horario:
-a. Para empleados administrativos: de lunes a jueves de 7.00 a.m. a 4.00 p. m y viernes de 7.00 a. m a 3.00 p. m: tendrán derecho a una hora para descanso y alimentación, además tendrán derecho a 15 minutos para tomar café.
+a. Para empleados administrativos: de lunes a jueves de 7:00 a. m. a 4:00 p. m y viernes de 7:00 a. m. a 3:00 p. m. tendrán derecho a una hora para descanso y alimentación, además tendrán derecho a 15 minutos para tomar un refrigerio en la mañana y 15 minutos para tomar café en la tarde.
+(Así reformado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)
 b. Para los empleados que presten servicios fuera del Palacio Municipal de lunes a jueves de 6.00 a.m. a 3.00 p. m y los días viernes de 6.00 a.m. a 2.00 p. m tendrán derecho a una hora para descanso y alimentación y 15 minutos de café en la mañana.
 c. Para los empleados del mercado la jornada de trabajo será de la siguiente manera:
 1) Administrador del Mercado: de lunes a sábado de las 6.00 a. m. a 2.00 p. m.

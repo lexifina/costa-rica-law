@@ -15,6 +15,8 @@ k. Contarán con remuneración decorosa acorde a sus responsabilidades y exigenc
 l. Tendrán derecho a vacaciones anuales, licencias con goce de salario o sin él de estudio de forma excepcional.
 m. Gozar licencias de cursos para estudios siempre que no perjudiquen el servicio público
 n. Tendrán derecho a una evaluación anual de desempeño de sus labores.
-o. Derecho a un sueldo adicional en el mes de diciembre, conforme a la ley.
-p. Toda servidora embarazada o que adopte a un menor de edad gozará de licencia, descritas en el artículo 95 del Código de Trabajo.
+o. Los funcionarios que en su desempeño sea necesario un grado académico de bachiller universitario o superior, serán exonerados de marca de entrada y salida de la institución, igualmente como estímulo para el resto de los empleados que cuenten con veinte años o más de servicio se le exonerará de dicha marca, sin embargo si se logra comprobar un mal uso o abuso por parte del empleado, podrá revocársele el privilegio, por lo que las jefaturas velarán por el fiel cumplimiento por parte del empleado.
+(Así reformado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)
+p. Los funcionarios de la municipalidad, podrán celebrar el día del Régimen Municipal los 31 de agosto de cada año. Podrá realizar actividades y la Municipalidad otorgará un reconocimiento como estímulo a los empleados que en cada determinado año logren cumplir veinte años de servicio o más. La suspensión total de los servicios públicos ese día estará sujeta a decisión del Consejo Municipal.
+(Así reformado el inciso anterior en sesión Nº 321 del 25 de marzo de 2010)
 q. Los funcionarios municipales disfrutarán del tiempo necesario para asistir a sus citas medicas, así como a la de sus hijos menores de edad, a las Instituciones del Seguro Social u otras de carácter privado, debiendo acreditar el tiempo utilizado mediante el respectivo comprobante de asistencia médica que emita la entidad que lo trata, a fin de que no proceda el rebajo salarial, para tal efecto deberá presentar el comprobante respectivo.
