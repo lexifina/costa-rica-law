@@ -15,3 +15,4 @@ Reglamento de Gobierno Corporativo
 | --- | --- | --- |
 | 1 | 2009-07-06 | la propia norma |
 | 2 | 2009-11-26 | Reglamento 819 (2009-11-26) |
+| 3 | 2010-03-26 | Reglamento 842 (2010-03-26) |
