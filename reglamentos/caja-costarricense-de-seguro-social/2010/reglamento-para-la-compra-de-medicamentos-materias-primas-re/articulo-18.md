@@ -1,0 +1,2 @@
+Artículo 18.—Del procedimiento de precalificación. Corresponde a la Gerencia de Logística establecer, en conjunto con las diferentes instancias técnicas institucionales, el procedimiento de precalificación de medicamentos, materias primas, reactivos y materiales de acondicionamiento y empaque que regirán el registro de proveedores.
+Los proveedores interesados podrán gestionar su precalificación en cualquier momento.

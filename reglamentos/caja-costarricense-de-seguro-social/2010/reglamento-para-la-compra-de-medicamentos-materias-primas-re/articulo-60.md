@@ -1,0 +1,2 @@
+Artículo 60.—Debido proceso. La imposición de las sanciones administrativas contra proveedores aquí referidas se aplicará con observancia al principio constitucional debido proceso y el trámite dispuesto por el Reglamento a la Ley de Contratación Administrativa y las normas institucionales dispuestas al efecto.
+En caso del cobro de cláusulas penales y multas se aplicará lo dispuesto por el Reglamento a la Ley de Contratación Administrativa.

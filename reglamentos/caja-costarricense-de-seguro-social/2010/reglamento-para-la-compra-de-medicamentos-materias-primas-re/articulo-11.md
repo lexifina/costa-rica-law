@@ -1,0 +1,2 @@
+Artículo 11.—Comunicación del acto final. El acto final del procedimiento se comunicará por fax a todos los participantes del concurso, independientemente del medio empleado para invitar, salvo en aquellos casos donde se invite mediante el modelo de compras electrónicas, en cuyo caso regirá lo dispuesto para tal efecto.
+En dicha comunicación se indicará el número de concurso, descripción sucinta del objeto, adjudicatario, cantidades y monto adjudicado.

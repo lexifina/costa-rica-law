@@ -1,0 +1,1 @@
+Artículo 63.—Derogatoria. Se deroga el Reglamento para la compra de medicamentos y materias primas, materiales de acondicionamiento y empaque y reactivos aprobado por Junta Directiva en el artículo 2º de la sesión Nº 7586, celebrada el 4 de octubre del 2001 y sus reformas.

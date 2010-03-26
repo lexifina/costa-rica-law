@@ -1,0 +1,1 @@
+Transitorio I.—Los procedimientos de compra de medicamentos, materias primas, reactivos y materiales de acondicionamiento y empaque se concluirán conforme a las disposiciones vigentes al momento en que se adopte la decisión de iniciar el concurso.
