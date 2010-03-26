@@ -1,4 +1,5 @@
-Artículo 34.—Organización. Para cumplir con sus funciones la Dirección de Mejora Regulatoria y Reglamentación Técnica estará organizada por los siguientes Departamentos:
-Departamento de Mejora Regulatoria.
-Departamento de Reglamentación Técnica.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 32590 de 03 de agosto de 2005).
+Artículo 34.—Organización. Para cumplir con sus funciones la Dirección de Mejora Regulatoria y Reglamentación Técnica, estará organizada por los siguientes Departamentos:
+a) Departamento de Mejora Regulatoria.
+b) Departamento de Reglamentación Técnica.
+c) Departamento de Codex.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 35966 del 26 de marzo de 2010)
