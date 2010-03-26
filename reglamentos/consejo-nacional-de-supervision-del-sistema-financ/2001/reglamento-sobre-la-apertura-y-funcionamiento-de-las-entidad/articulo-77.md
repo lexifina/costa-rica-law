@@ -1,2 +1,1 @@
-Artículo 77. De las obligaciones de la entidad aseguradora
-La entidad aseguradora es la única responsable del pago de las rentas vitalicias. La operadora de pensiones podrá asumir la función de agente pagador de la compañía aseguradora.
+Artículo 77.(Derogado por el artículo 60 del Reglamento de Beneficios del Régimen de Capitalización Individual, aprobado mediante sesión N° 842 del 26 de marzo de 2010)

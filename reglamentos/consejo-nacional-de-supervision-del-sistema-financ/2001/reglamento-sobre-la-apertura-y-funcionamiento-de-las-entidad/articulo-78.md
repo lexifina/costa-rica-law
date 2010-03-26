@@ -1,3 +1,1 @@
-Artículo 78. Del monto mínimo de la renta
-El pago de esta pensión será sobre la base de trece mensualidades anuales. La mensualidad adicional se entregará en el mes de diciembre junto con la regular y corresponderá a una especie de aguinaldo.
-El Superintendente velará porque el monto inicial de la pensión proveniente de la renta vitalicia sea mayor a la cantidad que pudiera generar una perpetuidad calculada sobre la misma base, a una tasa de interés equivalente a la tasa anual de cambio del Índice de Precios calculado por el Instituto Nacional de Estadísticas y Censos más un 1%, a la fecha de ser otorgada.
+Artículo 78.(Derogado por el artículo 60 del Reglamento de Beneficios del Régimen de Capitalización Individual, aprobado mediante sesión N° 842 del 26 de marzo de 2010)

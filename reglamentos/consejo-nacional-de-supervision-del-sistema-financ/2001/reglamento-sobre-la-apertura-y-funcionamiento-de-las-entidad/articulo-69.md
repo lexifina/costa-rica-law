@@ -1,4 +1,1 @@
-Artículo 69.—De los Planes de beneficio en el Régimen Voluntario de Pensiones Complementarias. Los beneficios del Régimen Voluntario de Pensiones se administrarán por medio de planes de beneficios autorizados. Las Operadoras podrán ofrecer estos planes, previo cumplimiento del trámite de autorización, bajo las modalidades de renta permanente y renta temporal. El plazo mínimo de los contratos de estos productos será de tres años. El afiliado también podrá optar por la adquisición de una renta vitalicia ofrecida por una entidad de seguro autorizada.
-Los planes de renta permanente podrán convertirse a renta temporal.
-El Superintendente podrá autorizar otras modalidades de beneficio voluntaria siempre que el plazo sea al menos de tres años y su administración sea consistente con el objeto de un producto de pensión.
-(Así reformado mediante sesion 488 del 6 de enero del 2005)
+Artículo 69.—(Derogado por el artículo 60 del Reglamento de Beneficios del Régimen de Capitalización Individual, aprobado mediante sesión N° 842 del 26 de marzo de 2010)

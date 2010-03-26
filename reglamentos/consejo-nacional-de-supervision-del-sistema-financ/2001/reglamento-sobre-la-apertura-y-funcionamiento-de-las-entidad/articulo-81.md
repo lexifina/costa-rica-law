@@ -1,4 +1,3 @@
 Sección IV
 Renta permanente
-Artículo 81. De la suscripción del contrato
-El contrato de renta permanente lo suscribirá el afiliado pensionado con la operadora de pensiones, la cual lo administrará y se encargará de otorgar los beneficios que en él se establecen. Dicho contrato deberá, especificar las condiciones, deberes y obligaciones de las partes y una copia quedará en el expediente del afiliado.
+Artículo 81.(Derogado por el artículo 60 del Reglamento de Beneficios del Régimen de Capitalización Individual, aprobado mediante sesión N° 842 del 26 de marzo de 2010)

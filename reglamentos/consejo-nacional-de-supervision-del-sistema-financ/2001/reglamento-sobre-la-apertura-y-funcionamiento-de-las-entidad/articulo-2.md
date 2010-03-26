@@ -1,7 +1,7 @@
 Artículo 2. De las abreviaturas y definiciones. Para efectos de este Reglamento se utilizarán las mismas definiciones contempladas en el Artículo 2 de la Ley de Protección al Trabajador, además de las definiciones y abreviaturas que se indican a continuación:
 a. Planes de acumulación para pensiones: Planes ofrecidos por las Operadoras con el fin de acumular recursos, en las cuentas individuales de los afiliados al Régimen de Pensiones Complementarias, para ser destinados a la adquisición de un plan de beneficios.
 b. Planes de acumulación de capitalización laboral: Planes ofrecidos por las Entidades Autorizadas con el fin de acumular recursos en las cuentas individuales de los afiliados al Fondo de Capitalización Laboral.
-c. Planes para el retiro de los beneficios: Planes ofrecidos por las Operadoras con el fin de otorgar las prestaciones establecidas en el Régimen de Pensiones Complementarias.
+c. (Derogado por el artículo 60 del Reglamento de Beneficios del Régimen de Capitalización Individual, aprobado mediante sesión N° 842 del 26 de marzo de 2010)
 d. CCSS: Caja Costarricense de Seguro Social.
 e. Ley 7523: Ley del Régimen Privado de Pensiones Complementarias.
 f. Ley 7983: Ley de Protección al Trabajador.
@@ -11,4 +11,3 @@ i. SUGEF: Superintendencia General de Entidades Financieras.
 j. SUGEVAL: Superintendencia General de Valores.
 k. SUPEN: Superintendencia de Pensiones.
 l. Superintendente: Superintendente de Pensiones.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 346-2002, celebrada el 19 de diciembre de 2002, publicada en La Gaceta N° 16 de 23 de enero de 2003.)

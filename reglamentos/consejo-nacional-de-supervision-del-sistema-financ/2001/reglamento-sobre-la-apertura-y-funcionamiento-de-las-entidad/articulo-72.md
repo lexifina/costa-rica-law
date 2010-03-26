@@ -1,5 +1,1 @@
-Artículo 72. De los plazos máximos para resolver las solicitudes de acceso a los beneficios
-a. Beneficios del Régimen Obligatorio de Pensiones Complementarias.
-Cada operadora tendrá un máximo de treinta días naturales para hacer efectivos los beneficios del afiliado.
-b. Beneficios del Régimen Voluntario de Pensiones Complementarias.
-Cada operadora tendrá un máximo de treinta días naturales para hacer efectivos los beneficios del afiliado.
+Artículo 72. (Derogado por el artículo 60 del Reglamento de Beneficios del Régimen de Capitalización Individual, aprobado mediante sesión N° 842 del 26 de marzo de 2010)

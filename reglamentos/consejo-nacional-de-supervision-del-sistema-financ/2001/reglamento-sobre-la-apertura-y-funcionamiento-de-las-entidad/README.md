@@ -41,3 +41,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 26 | 2008-09-12 | Reglamento 743 (2008-09-12) |
 | 27 | 2009-03-27 | Reglamento 780 (2009-03-27) |
 | 28 | 2010-01-29 | Reglamento 830 (2010-01-29) |
+| 29 | 2010-03-26 | Reglamento 842 (2010-03-26) |
