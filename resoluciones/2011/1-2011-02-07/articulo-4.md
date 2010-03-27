@@ -1,0 +1,1 @@
+d) Hacer la respectiva publicación de esta Resolución en el Diario Oficial La Gaceta, la cual entrará a regir 10 días después de la publicación, según lo dispuesto en la Ley 832 del 4 de noviembre de 1949 y en el Reglamento de esa Ley.

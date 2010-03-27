@@ -1,0 +1,1 @@
+b) Establecer que los Clubes de Segunda División y sus respectivos jugadores definirán el salario correspondiente, en función de la cantidad de días que entre ambos convengan trabajar, teniendo como base el salario mínimo por jornada establecido de ¢8.193,77.
