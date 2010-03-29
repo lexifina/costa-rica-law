@@ -1,0 +1,16 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+ASESORÍA JURÍDICA
+Nº SC-004-2010.—San José, 15 de marzo de 2010
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-070-2010. Modifica el Manual Descriptivo de Especialidades del Régimen de Servicio Civil, con el fin de que la atinencia de la especialidad Ingeniería Industrial denominada Maestría en Ingeniería Industrial.
+DG-071-2010. Modifica el Manual Descriptivo de Especialidades de Régimen de Servicio Civil, con el fin de incluir la carrera de Química, con el apartado Atinencia Académica de la Especialidad Laboratorista Químico.
+DG-074-2010. Modifica el Manual Descriptivo de Especialidades de Régimen de Servicio Civil (Resolución DG-221-2004), con el fin de modificar la Especialidad Criminología.
+DG-075-2010. Modifica el Manual Descriptivo de Especialidades de Régimen de Servicio Civil, con el fin de incluir la Carrera de Técnico Medio en la modalidad Agropecuaria de la especialidad Agroecología y el Diplomado en Guía Naturalista, en el apartado Atinencia académica de la especialidad Protección Ambiental y Manejo de Área de Conservación.
+DG-092-2010. Derogar por inaplicabilidad la Resolución DG-083-85 de las trece horas del veintiocho de mayo de mil novecientos ochenta y cinco, por la cual se incluyó al Régimen de Servicio Civil los puestos del Teatro Nacional.
+DG-093-2010. Modifica el Manual Descriptivo de Especialidades de Régimen de Servicio Civil, con el fin de variar las especialidades de Promoción Social, Educación para la Salud, Manejo y Conservación del Recurso Hídrico Nacional, específicamente en el apartado de Atinencias, para que únicamente se consideren como tales, las que se indican en el detalle en sus diferentes niveles académicos (diplomado, bachiller, licenciatura, maestría)
+DG-102-2010. Se adicionarán a las clases de puesto que se tramitarán según lo establecido en el artículo 15 del Reglamento del Estatuto de Servicio Civil, las incluidas en el Manual Institucional de la Imprenta Nacional.
+DG-103-2010. Modifica el Manual Descriptivo de Especialidades de Régimen de Servicio Civil, con el fin de incluir el título de Magister Scientiae en Comunicación, en el apartado Atinencia Académica de la especialidad Fomento de Actividades Culturales.
+DG-104-2010. Modifica el Manual Descriptivo de Especialidades de Régimen de Servicio Civil, con el fin de incluir la carrera de Ingeniería Agronómica con énfasis en Producción, Manejo y Comercialización de Semillas para la clase Formador para el Trabajo 1 (A, B, C, y D), 2, 3, y 4 para la especialidad Formación Profesional, subespecialidades Instrucción y Generalista, específicamente para el Núcleo Agropecuario del Instituto Nacional de Aprendizaje
+DG-105-2010. Modifica el Manual Descriptivo de Especialidades de Régimen de Servicio Civil, con el fin de incluir la carrera de Maestría en Administración de Negocios con énfasis en Dirección Empresarial dentro de las atinencias académicas de la especialidad Valuación Tributaria, subespecialidad Generalista.
+Además le informamos que se encuentra a disposición en la página web www.sercivil.go.cr el Informe rendido por el Director General de Servicio Civil al Presidente de la República, esto en cumplimiento con lo que establece el artículo 13, inciso j) del Estatuto de Servicio Civil.
+Publíquese.
