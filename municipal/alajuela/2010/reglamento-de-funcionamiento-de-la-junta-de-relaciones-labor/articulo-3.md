@@ -1,0 +1,1 @@
+Artículo 3º—Si algún representante en propiedad dejare de pertenecer a la Junta de Relaciones Laborales, por cualquier circunstancia, se sustituirá por su suplente, en tanto la parte a la cual representa le ratifique en el cargo, lo cual deberá de comunicarse a la presidencia de la Junta de Relaciones Laborales, ocho días posteriores al nombramiento.

@@ -1,0 +1,1 @@
+Artículo 22.—La persona que asuma la secretaría o prosecretaría en su caso, a través de cada sesión levantará un acta, que será asentada en el libro que para el efecto esté autorizado por la Secretaria Municipal.

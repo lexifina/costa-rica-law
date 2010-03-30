@@ -1,0 +1,3 @@
+CAPÍTULO X
+Recursos
+Artículo 26.—Contra los acuerdos de la Junta de Relaciones Laborales, cabrá el recurso de revisión y revocatoria, salvo en el caso de materia disciplinaria (despidos, suspensiones), en el cual tienen carácter vinculante a partir de la fecha de la sesión en que se conoció, con las verdades que señala el artículo 154, literal ch) del Código Municipal. Los recursos señalados en el inciso anterior, deberán de ser presentados dentro de los cinco días hábiles posteriores a la fecha en que fue notificado. En el caso de no hacer uso del derecho de recurrir, se tendrá por firme la resolución tomada.

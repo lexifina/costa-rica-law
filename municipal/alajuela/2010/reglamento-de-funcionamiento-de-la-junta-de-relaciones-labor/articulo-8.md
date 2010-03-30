@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Organización y elección
+Artículo 8º—La Junta de Relaciones Laborales, funcionará en forma permanente con un/a presidente, un/a vicepresidente, un/a secretario/a y un/a prosecretario/a, quienes deberán ser integrantes en propiedad de su seno.
+Quienes asuman los cargos de Presidencia, Vicepresidencia, Secretaría y Pro Secretaría, de la Junta de Relaciones Laborales, serán electos para un periodo de un año, en votación por las personas representantes en propiedad y suplentes. Podrán ser parte del Directorio de la Junta de Relaciones Laborales cualquier representante en propiedad con la acreditación ante este órgano.

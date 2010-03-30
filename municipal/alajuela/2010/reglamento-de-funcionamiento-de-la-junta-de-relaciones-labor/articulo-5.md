@@ -1,0 +1,1 @@
+Artículo 5º—La Junta de Relaciones Laborales, funcionará permanentemente en el local que le sea asignado, por la Administración, con la asistencia de una persona funcionaria que se ocupe de labores secretariales administrativas, y el mobiliario necesario, recursos éstos que serán proporcionados por la Municipalidad de Alajuela, con cargo al presupuesto ordinario.
