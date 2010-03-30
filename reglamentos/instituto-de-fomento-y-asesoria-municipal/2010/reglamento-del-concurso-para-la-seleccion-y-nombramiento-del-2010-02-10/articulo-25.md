@@ -1,0 +1,1 @@
+Artículo 25.—Registro de elegibles: Se considerarán elegibles para el cargo los oferentes que obtengan una calificación mínima del 80% (ochenta por ciento), en la sumatoria total de todos los criterios de evaluación del concurso correspondiente.

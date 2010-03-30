@@ -1,0 +1,1 @@
+Artículo 9º—Cartel del concurso interno: Corresponderá a la Sección de Recursos Humanos elaborar el cartel para el concurso interno y elevarlo a la Junta Directiva para su aprobación. Una vez aprobado por la Junta Directiva la Sección de Recursos Humanos procederá a su divulgación y promoción.

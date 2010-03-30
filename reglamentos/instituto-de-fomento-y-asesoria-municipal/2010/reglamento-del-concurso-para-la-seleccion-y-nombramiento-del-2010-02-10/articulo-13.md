@@ -1,0 +1,2 @@
+Artículo 13.—Nombramiento interino: Una vez recibido el oficio de autorización por parte de la Contraloría General de la República, y dentro de los diez días hábiles siguientes, la Junta Directiva efectuará el nombramiento interino del Auditor Interno o la Auditora Interna, y lo comunicará al Órgano Contralor a más tardar el primer día hábil siguiente al inicio de funciones.
+El nombramiento interino será por un plazo máximo de un año, salvo cuando haya recargo de funciones, en cuyo caso deberá rebajarse el tiempo de dicho recargo.

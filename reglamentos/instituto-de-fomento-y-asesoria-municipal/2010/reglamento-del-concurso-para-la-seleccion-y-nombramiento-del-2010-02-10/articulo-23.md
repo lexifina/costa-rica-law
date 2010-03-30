@@ -1,0 +1,1 @@
+Artículo 23.—Experiencia en puestos de jefatura (5 puntos): La experiencia en puestos de jefatura se valorará de la siguiente manera: Al o la concursante que tenga más tiempo de experiencia demostrada en puestos de jefatura, se le asignará el máximo puntaje (5%), y a los o las demás se les asignará la calificación en forma proporcional.

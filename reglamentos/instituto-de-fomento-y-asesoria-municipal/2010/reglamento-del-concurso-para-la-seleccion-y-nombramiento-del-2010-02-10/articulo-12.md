@@ -1,0 +1,2 @@
+Artículo 12.—Resultados del concurso interno: El informe con los resultados del concurso interno, incluyendo la terna respectiva, será presentado por la Sección de Recursos Humanos a la Junta Directiva.
+La Junta Directiva seleccionará a la persona que ocupará interinamente el cargo de Auditor Interno o Auditora Interna, y solicitará a la Dirección Ejecutiva realizar los trámites correspondientes ante la Contraloría General de la República, para obtener la autorización correspondiente.
