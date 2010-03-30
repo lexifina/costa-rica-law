@@ -1,0 +1,1 @@
+Artículo 2º—Sobre presentación incompleta y prevención de requisitos: en el caso de que el interesado no adjunte alguno de los documentos requeridos, se procederá a realizar mediante oficio y en ese mismo acto la prevención correspondiente.
