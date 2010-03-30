@@ -1,0 +1,1 @@
+Artículo 36.—Sobre la devolución de documentos. Al término de la relación contractual el emisor deberá gestionar la devolución de los documentos, que le fueron dados en garantía del crédito asociado a la tarjeta de crédito y ponerlos a disposición del cliente.

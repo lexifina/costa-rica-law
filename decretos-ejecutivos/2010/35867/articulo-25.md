@@ -1,0 +1,2 @@
+Artículo 25.—Protección de datos personales y banca electrónica. Las entidades financieras deberán adoptar las medidas técnicas de seguridad, que requieran las transacciones realizadas con tarjetas de débito y de crédito por medios electrónicos, a fin de asegurar la protección de datos personales.
+En el caso de envío por parte de los emisores de publicidad a los tarjetahabientes, a través de la red o por cualquier otro medio, estos tendrán la posibilidad de rechazar, por el mismo medio y forma, la remisión de la misma.

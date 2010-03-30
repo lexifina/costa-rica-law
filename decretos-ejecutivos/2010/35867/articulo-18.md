@@ -1,0 +1,1 @@
+Artículo 18.—Cargos por gestión de cobro. La gestión de cobro deberá realizarse conforme con las limitaciones establecidas en el artículo 35 de este reglamento. Los cargos por dicha gestión aplican solamente para las cuentas en mora y deberán incluirse de manera separada y detallada en el estado de cuenta. Tales cargos no podrán exceder el costo de tres avisos o comunicaciones.

@@ -1,0 +1,1 @@
+Artículo 33.—Procedimiento de las reclamaciones. El emisor deberá dar al tarjetahabiente el número de registro o de gestión bajo el cual se reportó la reclamación, el cual contendrá fecha y hora del recibo, así como, la indicación del procedimiento a seguir sobre la gestión presentada.

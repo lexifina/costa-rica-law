@@ -1,0 +1,1 @@
+Artículo 12.—Publicación de contratos. En las áreas de servicio al cliente y en la página web, los emisores deberán mantener publicados los modelos de contratos vigentes y los folletos informativos a fin de que los tarjetahabientes puedan informarse sobre el contenido de los mismos.

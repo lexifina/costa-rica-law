@@ -1,0 +1,1 @@
+Artículo 37.—Sobre la verificación de cumplimiento. El Ministerio de Economía, Industria y Comercio podrá efectuar verificaciones en el mercado orientadas a determinar el cumplimiento de las disposiciones del presente Reglamento.

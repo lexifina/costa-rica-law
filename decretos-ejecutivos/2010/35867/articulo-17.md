@@ -1,0 +1,1 @@
+Artículo 17.—Otras líneas de crédito. La información correspondiente a otras líneas de crédito otorgadas en forma paralela al uso de la tarjeta de crédito y para las cuales prevalecen plazos y tasas de interés distintas de las pactadas contractualmente, deberá presentarse en estado de cuenta separado, en un mismo cuerpo documental, según Anexo I del Reglamento.

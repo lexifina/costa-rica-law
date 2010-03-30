@@ -1,0 +1,1 @@
+Transitorio II.—Del Estado de Cuenta. Dentro de los tres (3) meses calendario a partir de la publicación del presente Reglamento, los emisores de tarjetas de crédito y débito, deberán tener ajustados los sistemas de cómputo, para el cumplimiento de los requisitos exigidos en la presentación de sus respectivos estados de cuenta.

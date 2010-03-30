@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del estado de cuenta
+Artículo 13.—De los estados de cuenta. Las empresas emisoras de tarjetas de crédito, están obligadas a enviar un estado de cuenta a sus tarjetahabientes todos los meses y en los cinco días hábiles siguientes a la fecha de corte, en el que se detallen las transacciones realizadas. Este envío, deberá realizarse por el medio de comunicación elegido por el tarjetahabiente.
+A los tarjetahabientes de débito, los estados de su cuenta corriente o de ahorro le serán enviados al menos cada tres meses, pero no se podrá negar información actualizada al tarjetahabiente que lo solicite en cualquier momento. Este envío deberá realizarse por el medio de comunicación elegido por el tarjetahabiente. En iguales condiciones deberá estar a disposición del tarjetahabiente en sus oficinas o agencias.

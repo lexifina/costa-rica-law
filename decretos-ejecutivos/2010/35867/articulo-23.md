@@ -1,0 +1,2 @@
+Artículo 23.—Derechos de acceso, rectificación y cancelación. Los usuarios de servicios financieros tienen derecho, cuando así lo requieran, a acceder a su información personal contenida en la base de datos del emisor y su fuente, así como a reclamar la inmediata rectificación como en derecho corresponda.
+Cuando la información personal se encuentre desactualizada o se fundamente en causas legales perentorias, deberá ser eliminada de las bases de datos de los emisores o de su fuente, por representar una afectación al acceso en los servicios financieros.

@@ -1,0 +1,1 @@
+Artículo 39.—Derogatorias. Deróguense los Decretos Ejecutivos Nº 28712-MEIC del 26 de mayo del 2000, publicado en La Gaceta Nº 122 del 26 de mayo del 2000 “Reglamento Tarjetas de Crédito”, y Decreto Ejecutivo Nº 31322 del 16 de julio del 2003, publicado en La Gaceta Nº 159 del 20 de agosto del 2003 “Reforma Reglamento Tarjeta de Crédito”.

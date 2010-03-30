@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Disposiciones relativas al servicio al cliente
+Artículo 31.—Servicio de atención al cliente. Los entes emisores de tarjetas de crédito y débito deben contar con un servicio de atención al cliente, que permita a los usuarios obtener información rápida y confiable sobre los productos y servicios ofrecidos, así como, sobre los procedimientos relativos a los mismos, de conformidad con el Decreto Ejecutivo N° 35358-MEIC “Reglamento sobre el catálogo de trámites y plataformas de servicios”, publicado en La Gaceta N° 136 del 15 de julio de 2009.
+Los emisores pondrán a disposición del cliente servicios adicionales de información, entre los cuales podrán tener números telefónicos y de fax, servicio automático de autoconsulta, correo electrónico y otros similares. La entrega de una copia fiel del estado de cuenta original.
+Los emisores que cuenten con políticas de arreglos de pago deberán ponerlas a disposición de los tarjetahabientes por medios suficientes y claros que les permitan accederlas de manera ágil y oportuna.

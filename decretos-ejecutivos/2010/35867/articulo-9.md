@@ -1,0 +1,1 @@
+Artículo 9º—Sobre la prohibición de condicionar la contratación. Se prohíbe a los emisores de tarjetas de crédito y débito condicionar el otorgamiento de éstas, a la contratación de los seguros o de cualquier otro servicio accesorio que ellos ofrezcan, pudiendo el tarjetahabiente contratar libremente la póliza y otros servicios en cualquiera de las entidades que lo comercialicen.

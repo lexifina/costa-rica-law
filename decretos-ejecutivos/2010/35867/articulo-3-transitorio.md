@@ -1,0 +1,1 @@
+Transitorio III.—De los Cajeros Automáticos. Dentro de los seis (6) meses calendario a partir de la publicación del presente Reglamento los cajeros automáticos deberán exhibir la información de las comisiones, según las disposiciones del artículo 28 de la presente regulación.

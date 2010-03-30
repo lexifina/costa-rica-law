@@ -1,0 +1,2 @@
+Artículo 28.—Sobre las comisiones de uso de los cajeros automáticos. Las entidades que operen cajeros automáticos deberán informar, en las pantallas de éstos, de manera previa a realizar cualquier transacción, el costo específico de ésta según la tarjeta de crédito o débito que demande, en ese momento, la transacción.
+Además, dichas entidades deberán tener a disposición en sus sucursales o establecimientos, en carteles, listas, folletos, así como, en la página electrónica de la entidad, la información detallada sobre dichas comisiones.

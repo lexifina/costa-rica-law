@@ -1,0 +1,1 @@
+Artículo 38.—Sobre las sanciones. Las infracciones al presente Reglamento se sancionarán de conformidad con lo establecido en la Ley N° 7472 “Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor” y su Reglamento.

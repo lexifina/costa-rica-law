@@ -1,0 +1,2 @@
+Artículo 24.—Procedimiento de acceso, rectificación y cancelación. Para hacer posible su ejercicio, el responsable de estos registros y de su tratamiento, deberá brindar al interesado al menos una referencia del asiento o anotación, facilitándole el derecho a recabar información de la totalidad de ellos.
+El pago de las deudas efectuadas por los usuarios determinará la cancelación de los asientos practicados en estos Registros.
