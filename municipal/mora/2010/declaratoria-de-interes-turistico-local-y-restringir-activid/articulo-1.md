@@ -1,0 +1,15 @@
+MUNICIPALIDAD DE MORA
+La Corporación Municipal del Cantón de Mora, transcribe acuerdo tomado en la sesión ordinaria Nº 94-2008-2010, celebrada el 15 de febrero del 2010, que textualmente dice:
+Artículo quince: El Concejo acuerda publicar el acuerdo relacionado con la declaratoria de interés turístico del Cantón de Mora que se detalla a continuación:
+“II.—Texto de la moción: Primero: Para que se acuerde declarar de interés turístico local, el circuito conformado por las siguientes comunidades y zonas del cantón: Circuito Este: Distritos Colón con las siguientes localidades: 1.Casco Urbano, 2.Zona Protectora C. de Escazú, 3. Jaris, 4. El Rodeo, 5. Quitirrisí, distrito Guayabo con las siguientes localidades: 6. Guayabo, 5. Quitirrisí, distrito Tabarcia con las siguientes localidades: 5. Quitirrisí, 7. Bustamante, distrito Piedras Negras: 8. Piedras Negras, 9. La Palma, Circuito Oeste: distrito Picagres: 10. Picagres, 11. Jateo, 12. Cordel, 13. Balsilla de Mora, 14. Llano Grande.
+Segundo: Para que se acuerde restringir las actividades lucrativas que se realicen en esas zonas a las que sean compatibles con el desarrollo del ecoturismo y sus modalidades como turismo rural comunitario, agro ecoturismo y otras; y la vocación residencial.
+Tercero: Adicionalmente, para realizar proyectos que requieran limpieza de terreno, excavaciones y rellenos mayores a 500m3 o de área menor pero con cierto grado de peligrosidad, se deberá contar con un índice de Fragilidad Ambiental específico para el área del proyecto y su zona de impacto potencial, un dictamen actualizado extendido por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias en el que se indiquen los riesgos o afectaciones presentes en el terreno y sus recomendaciones de mitigación o control, dictamen actualizado extendido por el MINAE en el que se indique si el terreno está afectado por nacientes o similares y plan de manejo de materiales o escombros, donde se describa:
+a. Características del material a remover o desplazar.
+b. Maquinaria y equipo a utilizar, con sus respectivos responsable o encargado.
+c. Todo sitio utilizado para la disposición final de los desechos o escombros debe presentarse copia del permiso respectivo extendido por las instituciones competentes (MINAE o municipalidad).
+d. Descripción de las medidas de mitigación y control del polvo, gases u otros deshechos para su transporte o desplazamiento.
+e. Descripción de la ruta a utilizar para el desplazamiento del material.
+Cuarto: Publíquese en La Gaceta.
+III.—Fundamentos de Derecho: Fundamento la presente moción, en la normativa dispuesta por los artículos 17 inciso a), 44 y 45 del Código Municipal y Ley General de la Administración Pública, Nº 6227.
+IV.—Petitoria: En virtud de las consideraciones expuestas, solicito a ese honorable Concejo Municipal acoger en todos sus extremos la presente moción, dispensando del trámite de dictamen y declarando el acuerdo como definitivamente aprobado. Con dispensa de Comisión, acuerdo firme y de fondo, el Concejo acuerda aprobar esta moción”. Acuerdo definitivo.
+Ciudad Colón, 16 de febrero del 2010.
