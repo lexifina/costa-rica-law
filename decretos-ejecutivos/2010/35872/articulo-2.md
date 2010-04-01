@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 35697-H de fecha 7 de diciembre del 2009, publicado en el Diario Oficial La Gaceta Nº 18 de fecha 27 de enero del 2010, a partir de la vigencia del presente decreto.
