@@ -1,1 +1,2 @@
-Artículo 60.—Las salidas injustificadas antes de la hora acordada como horario de la Presidencia o del Ministerio, para medias jornadas o completas, se considerarán para todo efecto como abandono del trabajo.
+Artículo 60.—Todo servidor deberá comunicar, en las primeras horas de la jornada correspondiente, por el medio que considere más idóneo a su superior inmediato, que durante esa jornada va a estar ausente de sus labores, sin perjuicio de lo dispuesto en el artículo anterior.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 55 al 60 actual)

@@ -1,2 +1,2 @@
-Artículo 91.—Los servidores que, en el ejercicio de sus funciones, deban viajar dentro o fuera del país tendrán derecho a que se les reconozcan los gastos de transporte y viáticos, consistentes en pasajes, alimentación y hospedaje, de acuerdo con la tabla de viáticos vigente. Ese reconocimiento deberá efectuarse antes del inicio de la gira respectiva.
-Los pagos señalados en el párrafo anterior no se considerarán salario para ningún efecto legal.
+Artículo 91.—Para llenar una plaza vacante en forma definitiva, la Presidencia o el Ministerio recurrirá a lo dispuesto en el Estatuto del Servicio Civil y en apego a lo establecido en el artículo 21 del Reglamento del Estatuto del Servicio Civil.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 86 al 91 actual)

@@ -1,1 +1,2 @@
-Artículo 44.—Los servidores de la Presidencia y del Ministerio, disfrutarán los días feriados establecidos en nuestra normativa jurídica vigente; además tendrán derecho a disfrutar de los asuetos, establecidos por el Poder Ejecutivo y que les resulten aplicables.
+Artículo 44.- El Teletrabajo deberá implementarse por medio de programas previamente establecidos y en coordinación con el Equipo Coordinador Interinstitucional adscrito a la Secretaría Técnica de Gobierno Digital de acuerdo con el Decreto Ejecutivo N° 34704 - MP-MTSS del 31 de julio de 2008 y publicado en La Gaceta N ° 162 del 22 de agosto del 2008.
+(Así adicionado por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril del 2010)

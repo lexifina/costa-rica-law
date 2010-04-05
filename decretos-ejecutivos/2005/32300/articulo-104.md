@@ -1,7 +1,5 @@
-Artículo 104.—Serán tipificadas como manifestaciones de Acoso Sexual las siguientes.
-1º Requerimientos de favores sexuales que impliquen:
-a) Promesa, implícita o explícita de un trato preferencial, respecto de la situación actual o futura, de empleo de quien la reciba.
-b) Amenazas, explícitas o implícitas, físicas o morales, de daños o castigos referidos a la situación, actual o futura, de empleo de quien la reciba.
-c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma explícita o implícita, condición para el empleo.
-2º Uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes y ofensivas para quien las reciba.
-3º Acercamientos corporales u otras conductas de naturaleza sexual, indeseados u ofensivos para quien los recibe.
+Artículo 104.—En la aplicación de la calificación de servicios se deberán observar las siguientes normas:
+a) El superior inmediato deberá incluir una breve explicación de las causas que originen los niveles de desempeño regular y deficiente en los factores indicados en el formulario de evaluación. Además deberá proporcionarle a los servidores una serie de indicaciones que lo estimulen a mejorar su evaluación.
+b) Es obligación de los servidores firmar oportunamente el documento "Evaluación del Desempeño" y manifestar por escrito su conformidad o no, con la apreciación hecha por el superior inmediato, de acuerdo con las instrucciones del Manual de Procedimientos para la Evaluación del Desempeño. El incumplimiento de esta obligación no invalida el resultado de la evaluación, por lo que el servidor asumirá las consecuencias que se derivan por causas de esta omisión, establecidas en el artículo 41 y 42 en lo que concierne del Estatuto de Servicio Civil.
+c) Cuando el resultado de la evaluación anual de los servidores fuere calificada de regular por dos veces consecutivas o si previas las advertencias o sanciones del caso, la evaluación anual fuere por sólo una vez calificada deficiente, se considerará el hecho como falta grave de conformidad con lo dispuesto en el artículo 43 del Estatuto de Servicio Civil. En estos casos el jefe respectivo, la Dirección de Recursos Humanos o el Viceministro, promoverán las diligencias de despido.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 99 al 104 actual)

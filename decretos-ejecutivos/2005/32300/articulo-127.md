@@ -1,1 +1,5 @@
-Artículo 127.—Se considerará falta de alguna gravedad para efectos de la sanción respectiva, la infracción a las siguientes disposiciones contempladas en el presente reglamento: del artículo 11, incisos "c", "d", "e", "f", "h" y "k"; del artículo 12, incisos "a", "b", "c", "d", "h", "i", "j","k", "o", "p", "s", "t", "u", "v" e "y"; del artículo 13, incisos "a" y "g"; del artículo 14, incisos "a", "c", "f", "j", y "v". Esto rige, sin perjuicio que de manera justificada, se considere que por las implicaciones de la falta cometida o por la reincidencia, merezca una calificación de gravedad superior.
+CAPÍTULO XXI
+(Corrida la numeración de este capitulo por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo capítulo XX al XXI actual)
+Condiciones de Salud Ocupacional
+Artículo 127.—Es deber de la Presidencia y del Ministerio procurar el bienestar físico, mental y social de sus servidores, para lo cual deberá prestar especial interés en lo relacionado con la seguridad, salud e higiene del trabajo.
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 118 al 123 y posteriormente del numeral 123 al 127 actual)

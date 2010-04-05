@@ -1,3 +1,2 @@
-CAPÍTULO XII
-De las licencias
-Artículo 68.—Los servidores regulares o interinos de la Presidencia o del Ministerio, disfrutarán de licencia con goce de salario por una semana por motivo de matrimonio del servidor, o por el fallecimiento de sus padres, hermanos, hijos, cónyuge o compañero(a) de hecho, así como también por el nacimiento de hijos, sean habidos dentro o fuera del matrimonio.
+Artículo 68.—Se entenderá como vacaciones proporcionales aquellas a que tiene derecho un servidor únicamente cuando, al no cumplir las cincuenta semanas de trabajo por terminación de su relación de servicio, deben ser remuneradas en el tanto de un día de salario por cada mes trabajado. En los demás casos, y para efectos de remuneración, se aplicarán los incisos b), c) y d) del artículo 29 del Reglamento del Estatuto de Servicio Civil.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 63 al 68 actual)

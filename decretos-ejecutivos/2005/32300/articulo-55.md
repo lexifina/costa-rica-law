@@ -1,1 +1,2 @@
-Artículo 55.—Todo servidor deberá comunicar, en las primeras horas de la jornada correspondiente, por el medio que considere más idóneo a su superior inmediato, que durante esa jornada va a estar ausente de sus labores, sin perjuicio de lo dispuesto en el artículo anterior.
+Artículo 55.—La Dirección de Recursos Humanos tendrá a cargo los registros de control y asistencia de los servidores, así como la tramitación de los procedimientos correspondientes, salvo disposición en contrario dictada por la Dirección General.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 50 al 55 actual)

@@ -1,1 +1,2 @@
-Artículo 70.—Las licencias concedidas de acuerdo con lo dispuesto en el artículo 69 de este Reglamento, tendrán vigencia por el período lectivo que se estipule en el convenio, cuyo tiempo será el necesario para asistir a las lecciones y para el traslado al centro educativo correspondiente, debiéndose asistir al trabajo durante el período en que oficialmente no debe asistir a clases.
+Artículo 70.—Los servidores de la Presidencia y del Ministerio, gozarán sin interrupción de su período de vacaciones. Las vacaciones se disfrutarán de conformidad con lo establecido en el artículo 158 del Código de Trabajo.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 65 al 70 actual)

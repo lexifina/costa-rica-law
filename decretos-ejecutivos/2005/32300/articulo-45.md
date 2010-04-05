@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-Registro y Control de Asistencia
-Artículo 45.—La asistencia de los servidores a su trabajo se controlará por el medio más idóneo que consideren las autoridades competentes. Se excluyen de la obligación de control de asistencia a los servidores autorizados expresamente por el Ministro, el Viceministro o el Director General. Se exceptúan de la obligación de registrar la asistencia, aquellos días en los que con ocasión del cumplimiento de sus funciones, los servidores deban prestar sus servicios fuera del lugar habitual de trabajo, siempre y cuando resulte imposible registrar su ingreso o salida, lo cual deberá ser debidamente justificado por el superior inmediato del servidor.
+Artículo 45.- Los diseños de los programas y las condiciones laborales, se establecerán de acuerdo con lo indicado en el Decreto N° 34704-MP-MTSS.
+(Así adicionado por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril del 2010)

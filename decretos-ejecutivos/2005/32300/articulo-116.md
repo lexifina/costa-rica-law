@@ -1,1 +1,4 @@
-Artículo 116.—La Presidencia y el Ministerio establecerán procesos de capacitación a las personas con discapacidad, para que éstas se superen en el desempeño del cargo.
+Artículo 116.—Procedimiento para la denuncia: Quien quiera denunciar acoso u hostigamiento sexual contra una persona o personas, cualquiera que sea su rango, podrá hacerlo en forma oral o escrita ante la Dirección de Recursos Humanos, ofreciendo en el mismo acto toda la prueba que considere oportuna. El Director de Recursos Humanos tendrá el plazo de tres días hábiles para elevar a conocimiento del Viceministro el caso.
+El Viceministro en el plazo de ocho días hábiles nombrará el órgano director correspondiente.
+(Así reformado por el artículo 6º del decreto ejecutivo N° 35979 del 5 de abril del 2010)
+(Así corrida la numeración por los artículos 4º y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 107 al 112 y posteriormente del numeral 112 al 116 actual)

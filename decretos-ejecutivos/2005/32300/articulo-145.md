@@ -1,2 +1,3 @@
-Artículo 145.—Rige a partir de su publicación.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 32355 del 4 de mayo del 2005)
+Artículo 145.—Los directores y superiores inmediatos están obligados a reportar al Ministro las faltas cometidas por sus subalternos, cuando ameriten despido. Dicho reporte deberá efectuarse dentro de los tres días hábiles posteriores a aquel en que se cometió la falta o en que se conocieron los hechos correspondientes.
+El incumplimiento injustificado de esta obligación se reputará falta grave por parte del servidor que debió ejecutarla.:
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 136 al 141 y posteriormente del numeral 141 al 145 actual)

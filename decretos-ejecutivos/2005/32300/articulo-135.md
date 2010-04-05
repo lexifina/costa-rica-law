@@ -1,6 +1,2 @@
-Artículo 135.—Salvo lo dispuesto en el artículo anterior, la aplicación de sanciones disciplinarias corresponderá:
-a) Al Ministro o Viceministro, según se trate de Directores, Jefes o servidores directamente dependientes de cada uno de ellos.
-b) A los superiores Inmediatos respectivos, cuando se trate de amonestación oral o de apercibimiento escrito.
-c) A la Dirección General, cuando se trate de suspensiones disciplinarias, previo procedimiento administrativo en donde se observe la garantía constitucional del debido proceso y los principios que la conforman, en especial el derecho de defensa.
-En casos de despido por justa causa y de suspensión previa mientras se tramita la correspondiente gestión de despido, se seguirán los trámites establecidos por el Estatuto de Servicio Civil y su Reglamento.
-Cuando la sanción fuere escrita, se deberá enviar copia a la Dirección de Recursos Humanos, para efectos de su inclusión en el expediente de servicios.
+Artículo 135.—Se considerará falta leve para efectos de la sanción respectiva, la infracción a las siguientes disposiciones contempladas en el presente reglamento: del artículo 11, incisos "a", "b", "j" y "l"; del artículo 12, incisos "e", "l", "q" y "w"; del artículo 13, incisos "c" y "e"; del artículo 14, incisos "g", "n" y "p". Esto rige, sin perjuicio que de manera justificada, se considere que por las implicaciones de la falta cometida o por la reincidencia, merezca una calificación de gravedad superior.
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 126 al 131 actual y posteriormente del numeral 131 al 135 actual)

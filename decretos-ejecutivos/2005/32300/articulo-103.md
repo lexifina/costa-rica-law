@@ -1,7 +1,2 @@
-CAPÍTULO XVIII
-Acoso y Hostigamiento sexual en el Empleo
-Artículo 103.—De conformidad con el artículo 3º de la Ley Nº 7476 de fecha 3 de febrero de 1995 se entenderá por acoso y hostigamiento sexual, toda conducta sexual indeseada por quien lo recibe, reiterada y que provoca efectos perjudiciales en los siguientes casos:
-a) Condiciones materiales de empleo.
-b) Desempeño y cumplimiento en la prestación de servicio.
-c) Estado general de bienestar personal.
-También se considerará acoso sexual, la conducta grave que habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+Artículo 103.—El resultado de la evaluación del desempeño de servicios, será un factor por considerar, aparte de la eficiencia, para efectos de aumento anual, ascensos, carrera profesional, vacaciones, concesión de permisos, reducción forzosa de personal, adiestramiento, capacitación, entre otros. Debido a lo anterior, el superior inmediato deberá responder por los perjuicios que, como consecuencia de la omisión de la evaluación del desempeño se le ocasione al personal subalterno.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 98 al 103 actual)

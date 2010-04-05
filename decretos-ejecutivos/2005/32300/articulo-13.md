@@ -8,3 +8,5 @@ e) Informar por escrito al encargado de vehículos cualquier desperfecto que det
 f) Gestionar el mantenimiento preventivo del vehículo a su cargo.
 g) Salvo cuando se encuentre en giras o misiones especiales de trabajo que les impidan regresar al término de la jornada, deben guardar el vehículo en el lugar especialmente destinado al efecto y entregar las llaves del mismo al encargado de transportes para su custodia.
 h) Cumplir con lo dispuesto en la Ley de Tránsito por Vías Públicas Terrestres y con el Reglamento Interno sobre el uso de vehículos de la Presidencia o el Ministerio, y con cualquier otra disposición administrativa interna vigente.
+i) Utilizar las tarjetas de compra de combustible dentro de los parámetros autorizados y establecidos para cada tarjeta, y presentar la documentación necesaria a la Unidad de Transportes correspondiente, para el control de combustible, cumpliendo con las disposiciones establecidas en el Reglamento de Uso Interno de Vehículos de la Presidencia de la República y Ministerio de la Presidencia.
+(Así adicionado el inciso anterior por el artículo 2º del decreto ejecutivo N° 35979 del 5 de abril del 2010)

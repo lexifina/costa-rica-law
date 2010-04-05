@@ -1,1 +1,3 @@
-Artículo 88.—Los servidores al servicio de la Presidencia o del Ministerio, incluidos o no en el Régimen de Servicio Civil, tendrán derecho a que se les reconozca las revaloraciones generales, que se decretan para los servidores del Poder Ejecutivo.
+Artículo 88.—Todo traslado de funcionarios que se dé temporalmente en la Presidencia o en el Ministerio, deberá contar con la formalización de la figura jurídica correspondiente.
+Si el traslado es externo, ya sea de la Presidencia o del Ministerio a otra institución pública o bien de esta hacia la Presidencia o Ministerio, se deberá efectuar bajo la figura del convenio Interinstitucional y en observancia de lo que al respecto establezcan la normativa de ambas instituciones.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 83 al 88 actual)

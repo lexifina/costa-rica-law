@@ -1,1 +1,5 @@
-Artículo 48.—Salvo los casos de excepción previstos en este Reglamento, la omisión de registrar la asistencia a labores, a cualquiera de las horas establecidas en este Reglamento, hará presumir la inasistencia a la correspondiente jornada o fracción. A solicitud del servidor interesado, el superior inmediato podrá justificar dicha inasistencia, a más tardar dentro del lapso improrrogable de los tres días hábiles siguientes a la notificación por parte de la Dirección de Recursos Humanos.
+CAPÍTULO VIII
+(Corrida la numeración de este capitulo por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo capítulo VII al VIII actual)
+Descanso semanal, días feriados y asuetos
+Artículo 48.—Salvo casos especiales en que por la naturaleza de sus funciones tengan otro tipo de jornada, todos los servidores de la Presidencia o del Ministerio disfrutarán del domingo como día fijo de descanso absoluto, después de cada semana continua de servicios.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 43 al 48 actual)

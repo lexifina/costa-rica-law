@@ -1,1 +1,2 @@
-Artículo 47.—Salvo desperfecto del reloj marcador o del sistema que se utilice, según el caso, el registro defectuoso o confuso de la asistencia a labores se tendrá por no realizado, para los efectos legales correspondientes.
+Artículo 47.- Las funcionarías de la Presidencia de la República y del Ministerio de la Presidencia en estado de gravidez, podrán optar por la opción de Teletrabajo, siempre que acrediten con dictamen médico tal situación y cuando la naturaleza de su trabajo permita realizarlo a distancia, todo en concordancia con el Decreto N° 35434-S-MTSS del 12 de agosto de 2009, publicado en La Gaceta N ° 162 del 20 de agosto del 2009.
+(Así adicionado por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril del 2010)

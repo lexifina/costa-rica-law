@@ -1,8 +1,2 @@
-CAPÍTULO XI
-Vacaciones
-Artículo 61.—Los servidores regulares e interinos disfrutarán de vacaciones anuales de acuerdo con el tiempo servido, en la forma siguiente:
-a) Si ha prestado servicios durante un tiempo de cincuenta semanas a cuatro años y cincuenta semanas, gozará de quince días hábiles de vacaciones.
-b) Si ha prestado servicios durante un tiempo de cinco años y cincuenta semanas a nueve años y cincuenta semanas, gozará de veinte días hábiles de vacaciones.
-c) Si ha prestado servicios durante un tiempo de diez años y cincuenta semanas o más, gozará de veintiséis días de vacaciones.
-Para efectos de cómputo de vacaciones, no se tomarán en cuenta como hábiles los sábados, los días de descanso, los feriados, ni los días de asueto que disponga el Poder Ejecutivo.
-Para el otorgamiento de vacaciones se tomarán en cuenta los servicios prestados por el servidor en cualquiera de las dependencias, instituciones o empresas del Estado.
+Artículo 61.—En casos muy calificados, no contemplados en el Estatuto de Servicio Civil y su Reglamento, ni en el presente Reglamento, los superiores inmediatos podrán justificar las ausencias hasta por dos días, que no sean por enfermedad del servidor, a fin de evitar la sanción disciplinaria, sin que tal justificación signifique el pago de salarios. La justificación de ausencias mayores de dos días que no sean por enfermedad comprobada del servidor, requerirá la aprobación del Viceministro o del Director General, sin perjuicio por lo dispuesto en el artículo anterior.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 56 al 61 actual)

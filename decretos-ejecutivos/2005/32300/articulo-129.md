@@ -1,3 +1,2 @@
-Artículo 129.—La amonestación verbal se aplicará en los siguientes casos:
-a) Cuando los servidores en forma expresa o tácita, cometan alguna falta leve a las obligaciones que le impone la relación de servicio.
-b) Cuando los servidores acumulen cuatro llegadas tardías injustificadas en un mismo mes calendario.
+Artículo 129.—La Presidencia y el Ministerio conformarán una Comisión de Salud Ocupacional a la cual brindarán el apoyo necesario para el cumplimiento de sus funciones, tareas y actividades, de acuerdo con lo establecido en la normativa aplicable.
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 120 al 125 y posteriormente del numeral 125 al 129 actual)

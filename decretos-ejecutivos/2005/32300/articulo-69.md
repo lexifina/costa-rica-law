@@ -1,7 +1,5 @@
-Artículo 69.—La Presidencia o el Ministerio podrá conceder licencia con goce de sueldo a los servidores para que realicen estudios en centros de educación del país, siempre que:
-a) No se cause perjuicio o menoscabo al servicio público y lo permitan las condiciones administrativas y exigencias de trabajo de la Presidencia o del Ministerio.
-b) Los estudios capaciten al servidor para el mejor desempeño de su cargo o para ocupar puestos superiores en la Administración Pública.
-c) El comportamiento del servidor lo justifique y dé motivo para esperar de él un buen aprovechamiento del estudio.
-d) El número de horas solicitadas no sobrepase las veinticuatro semanales.
-e) Se formalice el respectivo contrato de licencia para estudiar.
-f) En todos los casos deberá tener estudio técnico por parte de la Dirección de Recursos Humanos y su contenido deberá ser afín a las funciones que realiza.
+Artículo 69.—Como regla general, la remuneración durante las vacaciones será de acuerdo con el sueldo correspondiente asignado vigente a la fecha en que el servidor disfrute del descanso anual.
+No obstante, dicha remuneración se calculará con base en el tiempo de trabajo efectivo y el promedio de los salarios ordinarios y extraordinarios devengados durante las respectivas cincuenta semanas de relación laboral -incluyendo los subsidios recibidos por el servidor, de parte del Estado o de sus instituciones de seguridad social si ha estado incapacitado- en los dos casos siguientes:
+a) Cuando el servidor hubiere disfrutado de licencia sin goce de sueldo por más de treinta días consecutivos o no.
+b) Cuando el servidor hubiere estado incapacitado para trabajar por razón de enfermedad o riesgo profesional, durante un período mayor de seis meses.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 64 al 69 actual)

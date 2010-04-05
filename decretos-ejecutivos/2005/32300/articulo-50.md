@@ -1,1 +1,5 @@
-Artículo 50.—La Dirección de Recursos Humanos tendrá a cargo los registros de control y asistencia de los servidores, así como la tramitación de los procedimientos correspondientes, salvo disposición en contrario dictada por la Dirección General.
+CAPÍTULO IX
+(Corrida la numeración de este capitulo por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo capítulo VIII al IX actual)
+Registro y Control de Asistencia
+Artículo 50.—La asistencia de los servidores a su trabajo se controlará por el medio más idóneo que consideren las autoridades competentes. Se excluyen de la obligación de control de asistencia a los servidores autorizados expresamente por el Ministro, el Viceministro o el Director General. Se exceptúan de la obligación de registrar la asistencia, aquellos días en los que con ocasión del cumplimiento de sus funciones, los servidores deban prestar sus servicios fuera del lugar habitual de trabajo, siempre y cuando resulte imposible registrar su ingreso o salida, lo cual deberá ser debidamente justificado por el superior inmediato del servidor.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 45 al 50 actual)

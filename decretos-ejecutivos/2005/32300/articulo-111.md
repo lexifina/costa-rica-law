@@ -1,1 +1,2 @@
-Artículo 111.—El denunciante o el denunciado podrá solicitar un traslado provisional a otro departamento, oficina o dirección de la Presidencia o del Ministerio, previa exposición de motivos ante la Dirección General.
+Artículo 111. —El acoso psicológico y moral en el trabajo se considerará falta grave y todo funcionario a quien se le compruebe haber incurrido en ésta, podrá ser despedido sin responsabilidad patronal, de conformidad con las normas sancionatorias de estos comportamientos, establecidas en este Reglamento y en la legislación vigente.
+(Así adicionado por el artículo 5º del decreto ejecutivo N° 35979 del 5 de abril del 2010)

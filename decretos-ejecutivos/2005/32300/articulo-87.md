@@ -1,3 +1,2 @@
-Artículo 87.—La Presidencia o el Ministerio, podrán realizar nombramientos interinos cuando lo estime necesario en virtud de la urgencia del servicio que brinde, en los siguientes casos:
-a) Cuando el titular del puesto se encuentre disfrutando licencia sin goce de salario.
-b) Mientras se cumple con el concurso, del puesto de que se trate.
+Artículo 87.—Cuando un funcionario estime que han variado sustancial y permanentemente sus tareas y responsabilidades de un puesto, podrá solicitar a la Dirección de Recursos Humanos, previo visto bueno del superior inmediato, el trámite para el estudio de reasignación de dicho puesto y de acuerdo con lo que dispone el capítulo XI del Reglamento del Estatuto de Servicio Civil.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 82 al 87 actual)

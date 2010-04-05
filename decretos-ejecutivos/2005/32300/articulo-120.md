@@ -1,1 +1,2 @@
-Artículo 120.—La Presidencia y el Ministerio conformarán una Comisión de Salud Ocupacional a la cual brindarán el apoyo necesario para el cumplimiento de sus funciones, tareas y actividades, de acuerdo con lo establecido en la normativa aplicable.
+Artículo 120.—El denunciante o el denunciado podrá solicitar un traslado provisional a otro departamento, oficina o dirección de la Presidencia o del Ministerio, previa exposición de motivos ante la Dirección General.
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 111 al 116 y posteriormente del numeral 116 al 120 actual)

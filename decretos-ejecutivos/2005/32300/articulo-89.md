@@ -1,4 +1,2 @@
-CAPÍTULO XIV
-De los salarios y viáticos
-Artículo 89.—Los salarios de los servidores no podrán ser inferiores a los mínimos legales establecidos por la Ley de Salarios de la Administración Pública. Serán los que correspondan según la Ley de Presupuesto Ordinario y Extraordinario, para el período fiscal de que se trate o, en su caso, según los presupuestos que autoricen las leyes o convenios especiales.
-Los pagos se realizarán en las fechas y condiciones que establezca la Tesorería Nacional, para los servidores pagados por medio de esa Oficina, o en las fechas que determine la dependencia autorizada en los demás casos.
+Artículo 89.—En los casos de ascenso y de traslados, de acuerdo a lo establecido en el Estatuto del Servicio Civil y para todos los casos, se aplicará el período de prueba, a fin de garantizar los servicios que brinda la institución. Durante ese período el servidor gozará de licencia en su puesto anterior el cual será aplicable también a su sustituto.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 84 al 89 actual)

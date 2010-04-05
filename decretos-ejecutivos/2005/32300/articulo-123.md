@@ -1,8 +1,2 @@
-CAPÍTULO XXI
-Régimen Disciplinario
-Artículo 123.—Las faltas en que incurran los servidores serán sancionadas de la siguiente forma:
-a) Amonestación verbal.
-b) Amonestación escrita.
-c) Suspensión del trabajo sin goce de salario hasta por 8 días, previo procedimiento administrativo en donde se observe la garantía constitucional del debido proceso y los principios que la conforman, en especial el derecho de defensa.
-d) Suspensión del trabajo sin goce de salario hasta por 15 días previo procedimiento administrativo en donde se observe la garantía constitucional del debido proceso y los principios que la conforman, en especial el derecho de defensa.
-e) Despido sin responsabilidad para el Estado.
+Artículo 123.—La Presidencia y el Ministerio procurarán la eliminación de barreras arquitectónicas que impidan o dificulten la atención e ingreso de las personas con discapacidad.
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 114 al 119 y posteriormente del numeral 119 al 123 actual)

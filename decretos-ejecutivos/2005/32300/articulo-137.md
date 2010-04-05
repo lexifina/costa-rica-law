@@ -1,4 +1,3 @@
-Términos para la imposición de las sanciones disciplinarias
-Artículo 137.—Las amonestaciones orales o el apercibimiento escrito deberán imponerse dentro del término de un mes posterior a aquel en que se cometió la falta.
-Si fuese necesaria una investigación preliminar, dicho plazo se interrumpirá hasta por un mes y se aplicará sin perjuicio de lo que establecen el Estatuto y otras leyes conexas.
-Para los efectos de este artículo, la desatención del citado término implicará la prescripción correspondiente.
+Artículo 137.—Se considerará falta grave para efectos de la sanción respectiva, la infracción a las siguientes disposiciones contempladas en el presente reglamento: del artículo 11, incisos "g", "i" y "m"; del artículo 12, incisos "f", "g", "m", "n", "r" y "x"; del artículo 13, incisos "b", "d", "f' , "i" ; del artículo 14, incisos "b", "d", "e", "h", "i", "k", "1", "m", "o", "q", "r", "s", "t", "u", "w", "x", del artículo 108, 112, 113. Esto rige, sin perjuicio que de manera justificada, se considere que por las implicaciones de la falta cometida o por la reincidencia, merezca una calificación de gravedad superior.
+(Así reformado por el artículo 7º del decreto ejecutivo N° 35979 del 5 de abril del 2010)
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 128 al 133 y posteriormente del numeral 133 al 137 actual)

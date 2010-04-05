@@ -1,3 +1,2 @@
-CAPÍTULO XIII
-Movimiento de Personal
-Artículo 80.—Para utilizar las plazas que queden vacantes en los programas de la Presidencia o del Ministerio, y realizar los movimientos de personal, se seguirá lo que al efecto señalan el Estatuto de Servicio Civil y su Reglamento u otras disposiciones legales. La Dirección de Recursos Humanos realizará los trámites correspondientes y comunicará los resultados.
+Artículo 80.—No obstante lo establecido en el presente capítulo, la concesión de licencias para estudios podrá ser denegada, cuando así lo justifiquen las necesidades del servicio, sin responsabilidad para la Presidencia o el Ministerio y sin que por ello se puedan alegar derechos adquiridos por concesiones similares anteriores, o aquellos dados a otros funcionarios.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 75 al 80 actual)

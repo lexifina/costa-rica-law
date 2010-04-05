@@ -1,3 +1,3 @@
-CAPÍTULO VII
-Descanso semanal, días feriados y asuetos
-Artículo 43.—Salvo casos especiales en que por la naturaleza de sus funciones tengan otro tipo de jornada, todos los servidores de la Presidencia o del Ministerio disfrutarán del domingo como día fijo de descanso absoluto, después de cada semana continua de servicios.
+(Nota de Sinalevi: Mediante el artículo 4º del decreto ejecutivo Nº 35979 del 5 de abril del 2010, se adiciona un nuevo capitulo VII para que en adelante se lea "Opción de Teletrabajo", con el numeral 43. No obstante, en la publicación realizada en la dirección www.gobiernofacil.go.cr, el artículo a incluir junto con su capítulo y texto aparecen de forma incompleta, por lo que se transcribe tal y como fue publicado)
+administración e instrumento para incrementar la productividad del funcionario, el ahorro de combustibles, la protección del medio ambiente, y favorecer la conciliación de la vida personal, familiar y laboral, mediante la utilización de las Tecnologías de la Información y las Comunicaciones (TIC).
+(Así adicionado por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril del 2010.)

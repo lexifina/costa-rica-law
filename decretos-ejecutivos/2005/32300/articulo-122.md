@@ -1,1 +1,2 @@
-Artículo 122.—Los servidores tendrán derecho a contar con los servicios médicos asistenciales dentro de la Presidencia o del Ministerio.
+Artículo 122.—La Presidencia y el Ministerio dentro del marco de respeto a la Ley 7600, procurará la inserción laboral de las personas con discapacidad, adaptando las condiciones ambientales y físicas, para el buen desempeño de los servidores que posean algún tipo de discapacidad.
+(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 113 al 118 y posteriormente del numeral 118 al 122 actual)

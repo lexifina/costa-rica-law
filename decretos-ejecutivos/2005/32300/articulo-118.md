@@ -1,3 +1,2 @@
-CAPÍTULO XX
-Condiciones de Salud Ocupacional
-Artículo 118.—Es deber de la Presidencia y del Ministerio procurar el bienestar físico, mental y social de sus servidores, para lo cual deberá prestar especial interés en lo relacionado con la seguridad, salud e higiene del trabajo.
+Artículo 118.—Contra la resolución final que se dicte cabrá el recurso de reposición, el cual deberá interponerse ante el Despacho del Ministro, dentro de los dos meses siguientes al de su notificación y deberá ser resuelto dentro de los ocho días siguientes a su recibo.
+(Así corrida la numeración por los artículos 4º y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo 109 al 114 y posteriormente del numeral 114 al 118 actual)

@@ -1,3 +1,2 @@
-CAPÍTULO X
-De las Ausencias
-Artículo 53.—Se considera ausencia, la inasistencia a un día completo de labores. La inasistencia injustificada a una mitad de jornada se computará como media ausencia, sin perjuicio de la sanción disciplinaria que la misma pueda acarrear. No se pagará el salario que corresponda a las ausencias, excepto en los casos señalados en este Reglamento, en el Estatuto de Servicio Civil y su Reglamento y en el Código de Trabajo.
+Artículo 53.—Salvo los casos de excepción previstos en este Reglamento, la omisión de registrar la asistencia a labores, a cualquiera de las horas establecidas en este Reglamento, hará presumir la inasistencia a la correspondiente jornada o fracción. A solicitud del servidor interesado, el superior inmediato podrá justificar dicha inasistencia, a más tardar dentro del lapso improrrogable de los tres días hábiles siguientes a la notificación por parte de la Dirección de Recursos Humanos.
+(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 48 al 53 actual)
