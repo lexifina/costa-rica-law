@@ -1,0 +1,2 @@
+Artículo 3º—Áreas Excluidas de la aplicación del presente procedimiento. Aquellos sectores de la Zona Marítimo Terrestre del Cantón de Osa que tengan declaratoria de Uso del ICT, la demarcatoria de la zona publica del IGN y cuenten con su respectivo plan regulador vigente que, en conjunto, permitan a la Municipalidad el otorgamiento de concesiones quedan excluidas de la aplicación de éste procedimiento.
+La Municipalidad no otorgara permiso de uso sobre porciones en la zona marítima terrestre cubiertas de bosque o cuando se trate de terrenos forestales o con ésa aptitud.
