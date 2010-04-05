@@ -1,0 +1,1 @@
+Artículo 4º—Parámetros utilizados para el cálculo. Se calcula un Valor en Riesgo histórico, con un nivel de confianza del 95% y un horizonte de tiempo de 21 días hábiles. El tamaño de la serie histórica de precios es de 521 observaciones.

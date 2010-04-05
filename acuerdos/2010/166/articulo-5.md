@@ -1,0 +1,11 @@
+Artículo 5º—Lineamientos generales para el cálculo del VeR.
+a. El Valor en Riesgo aplica para todos los títulos de la cartera de inversiones de la entidad, fondos de inversión financieros y carteras individuales de clientes cuando se divulgue. El valor de mercado de los títulos que conforman las carteras se determina utilizando el precio limpio.
+b. En el caso de emisiones extranjeras que disponen de precios históricos, se considera el precio al cierre del mercado internacional (Px_Last) reportado por Bloomberg Generic (BGN).
+c. Los reportos tripartitos posición compradora a plazo se incluyen dentro del cálculo del VeR. Se considera la serie de precios del activo subyacente. Las posiciones vendedoras a plazo se excluyen del cálculo.
+d. Los derivados financieros, productos estructurados, y títulos que no hayan sido negociados en bolsa o que no tengan un código ISIN asignado, se excluyen del cálculo del VeR.
+e. No será requerido el cálculo del VeR para los fondos de inversión del mercado de dinero.
+f. El precio de las participaciones de fondos de inversión financieros abiertos, corresponde al valor de la participación que reporta la sociedad administradora de dicho fondo de inversión a la Superintendencia General de Valores, vía sistema ingresador (Catálogo de información diaria RD_FONDOS), y que se publicará en el sitio Web de esta Superintendencia. De manera adicional, esta información puede ser obtenida a través de un proveedor de precios que brinde precios para esos instrumentos.
+g. Si las series de precios de las emisiones no están completas, se aproxima su precio diario de manera que se cuente con observaciones para cada uno de los días que intervienen en el cálculo, de conformidad con lo indicado en el artículo 8 de este Acuerdo. La aproximación del precio se realiza en los siguientes casos:
+i. Si el precio de una emisión no está incluido en la información suministrada por la fuente proveedora de precios.
+ii. Si el título fue emitido durante el periodo de la muestra de los escenarios, por lo que no se puede contar con una serie histórica de sus precios.
+iii. Si la serie de precios de alguna emisión está incompleta en algún lapso del periodo de cálculo del VeR.

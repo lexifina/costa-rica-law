@@ -1,0 +1,1 @@
+Transitorio I.—El tamaño de la serie histórica de precios una vez entrado en vigencia el presente Acuerdo será de 273 observaciones, y a partir del 1 de abril de 2011 la cantidad de observaciones para el cálculo del VeR pasará a 521.

@@ -1,0 +1,1 @@
+Transitorio II.—El factor de corrección utilizado en el requerimiento de capital por riesgo precio asumirá un valor de 1,5 al momento de la entrada en vigencia del presente Acuerdo, y a partir del 1 de abril de 2011 este factor asumirá un valor de 3.
