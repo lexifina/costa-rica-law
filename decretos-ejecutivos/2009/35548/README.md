@@ -14,3 +14,4 @@ Reformas y adiciones al Reglamento de la Ley de Promoción de la Competencia y D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-27 | la propia norma |
+| 2 | 2010-04-05 | Decreto Ejecutivo 35937 (2010-04-05) |

@@ -1,4 +1,5 @@
 Nº 35548-MEIC
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35937 del 5 de abril de 2010, se suspende por un plazo de doce meses la aplicación de este decreto. Dicha suspensión es únicamente en cuanto a la venta a plazo de bienes inmuebles tales como, apartamentos, casas y proyectos futuros de desarrollo de urbanizaciones)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
 En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 y artículo 146 de la Constitución Política del 7 de noviembre de 1949; inciso 2.b). del artículo 28 de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Nº 7472 del 20 de diciembre de 1994, la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley Nº 8220 del 4 de marzo de 2002, y la Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley Nº 6054 del 14 de junio de 1977 y sus reformas.
