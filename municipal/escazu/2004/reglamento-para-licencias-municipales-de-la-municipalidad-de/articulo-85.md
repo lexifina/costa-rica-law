@@ -17,7 +17,7 @@ h) Aportar especies fiscales para la emisión de la constancia municipal, en la 
 i) Aportar especies fiscales para la emisión de las certificaciones municipales, tanto del solicitante de la explotación, el dueño de la licencia de licores y el propietario del inmueble, en el caso de que el local sea alquilado, en la cual se indique que se encuentran al día en el pago de todos los tributos municipales.
 j) Comprobante que demuestre que se encuentra al día en el pago del impuesto de la cerveza ante la Junta de Educación correspondiente.
 k) Copia de la licencia comercial del establecimiento en donde se pretende explotar la patente de licores.
-l) Certificación extendida por la Asociación de Compositores Musicales (ACAM), en la cual se autorice o exonere del uso de repertorio musical.
+l) (Derogado mediante sesión N° 206 del 5 de abril de 2010)
 m) Devolución del certificado de la licencia de licores.
 n) La Administración municipal deberá practicar las mediciones correspondientes así como la inspección del local cuando sea una solicitud por primera vez, sin perjuicio de la labor de fiscalización de la Sección de Licencias Municipales.
 Las fotocopias de los documentos supra citados, deberán venir certificadas por notario público, o bien, el solicitante podrá aportar las copias y presentar los documentos originales ante el funcionario municipal respectivo, quién confrontará los mismos y dejará constancia de dicho acto al dorso de las copias citadas.
