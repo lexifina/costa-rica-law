@@ -5,4 +5,4 @@ Asimismo, deberán contener detalle de los activos y las garantías privilegiada
 Para los casos en que se presenten aumentos en el capital social o en el patrimonio, se deberán aportar los respaldos legales correspondientes.
 3. Copia de las pólizas de seguro con que cuente el comerciante o proveedor para el aseguramiento de la provisión de bienes o prestación futura de servicios, si existieren.
 4. Borrador del contrato que pretenda celebrar con el usuario
-(Así adicionado por el artículo 3° del decreto ejecutivo N° 35548 del 06 de agosto del 2009).
+(La adición practicada a este artículo por el artículo 3° del decreto ejecutivo N° 35548 del 6 de agosto de 2009, fue suspendida posteriormente, en forma parcial, por el artículo 1° del decreto ejecutivo N° 35937 del 5 de abril de 2010. Dicha suspensión es por un plazo de doce meses, y únicamente en cuanto a la venta a plazo de bienes inmuebles tales como apartamentos, casas y proyectos futuros de desarrollo de urbanizaciones.)

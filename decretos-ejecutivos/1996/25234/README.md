@@ -21,3 +21,4 @@ Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consu
 | 6 | 2009-06-24 | Decreto Ejecutivo 35446 (2009-06-24) |
 | 7 | 2009-08-06 | Decreto Ejecutivo 35548 (2009-08-06) |
 | 8 | 2009-09-08 | Decreto Ejecutivo 35608 (2009-09-08) |
+| 9 | 2010-04-05 | Decreto Ejecutivo 35937 (2010-04-05) |
