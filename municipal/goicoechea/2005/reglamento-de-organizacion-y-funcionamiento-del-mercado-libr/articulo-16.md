@@ -7,4 +7,5 @@ d) Conducirse o actuar en forma contraria o con desprecio a las normas de morali
 e) Ingerir o consumir bebidas alcohólicas o sustancias enervantes no autorizadas.
 f) Alterar la tranquilidad y el orden con radios, equipos de sonido o cualquier otro tipo de artefacto sonoro.
 g) Vender animales vivos.
-h) Contratar menores de edad, sin la respectiva licencia para laborar dentro del Mercado Libre.
+h) El trabajo de las personas menores de 15 años, de acuerdo a lo estipulado en el artículo 92 del Código de la Niñez y Adolescencia.
+(Así reformado el inciso anterior en sesión Nº 14-10 del 5 de abril de 2010)

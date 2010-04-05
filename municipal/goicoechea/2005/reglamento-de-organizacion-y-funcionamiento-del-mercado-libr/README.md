@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Mercado Libre de Guadalupe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-28 | la propia norma |
+| 2 | 2010-04-05 | Reglamento municipal 14 (2010-04-05) |
