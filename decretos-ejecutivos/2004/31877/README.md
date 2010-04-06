@@ -14,3 +14,4 @@ Emite el documento denominado "Clasificador Económico del Gasto del Sector Púb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-19 | la propia norma |
+| 2 | 2010-04-06 | Circular 0 (2010-04-06) |
