@@ -4,11 +4,11 @@ A LAS INSTITUCIONES, ABOGADOS, SERVIDORES
 JUDICIALES Y PÚBLICO EN GENERAL
 SE LES HACE SABER QUE;
 El Consejo Superior, en sesión N° 02-10 celebrada el 7 de enero en curso, artículo IV, dispuso modificar el “Plan de Vacaciones Colectivas del Poder Judicial 2009-2010”, específicamente el apartado de “Disposiciones sobre Sustituciones 2009/2010”, punto 9, inciso 3, para que en adelante se lea de la siguiente manera:
-“9.3. Se autoriza la sustitución en las siguientes plazas hasta por un día:
+(*)“9.3. Se autoriza la sustitución en las siguientes plazas hasta por un día:
 • Choferes (siempre que sólo exista una plaza).
 • Auxiliar de Servicios Generales 3 (Guardas).
 • Conductores de Detenidos.
-• Notificadores en aquellos despachos que sólo tienen una plaza de esta clase.
+• Notificadores en aquellos Despachos que sólo tienen una plaza de esta clase.
 • Conserje del Departamento de Patología en labores propias del proceso de autopsias.
 • Oficiales de Localización en aquellas oficinas que sólo cuentan con una plaza de este tipo.
 • Fiscales, Fiscales Auxiliares y Defensores Públicos; en despachos con una sola plaza.
@@ -17,7 +17,7 @@ El Consejo Superior, en sesión N° 02-10 celebrada el 7 de enero en curso, art�
 • Técnico Criminalístico 2 de las Delegaciones Regionales del Organismo de Investigación Judicial, que cuenten con una sola plaza de esta clase.
 • Auxiliares de Servicios Informáticos en las oficinas de todo el país, que cuenten con una sola plaza de esta clase.
 • Auxiliares judiciales del Ministerio Público que cuenten con una plaza de este tipo.
-• Plazas de secretarios (as) de las Oficinas de la Defensa Pública, donde únicamente cuentan con un servidor en el personal de apoyo.
+• Plazas de secretarios (as) de las Oficinas de la Defensa Pública , donde únicamente cuentan con un servidor en el personal de apoyo.
 • Los Inspectores Generales Judiciales.
 • Servidores de Oficina de Recepción de Denuncias.
 • Servidores de Oficinas de Recepción de Documentos.
@@ -33,7 +33,9 @@ El Consejo Superior, en sesión N° 02-10 celebrada el 7 de enero en curso, art�
 • Operador del Equipo de Cómputo del Departamento de Tecnología de la Información.
 • Auxiliares de Servicios Generales 2 en Delegaciones y Subdelegaciones Regionales del Organismo de Investigación Judicial que cuentan con sólo una plaza y deban realizar el aseo de las celdas.
 • En jefaturas únicas (oficina, departamento, sección, unidad).
-• En despachos jurisdiccionales donde el personal subalterno se conforma con sólo dos personas. Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.”
+• En despachos jurisdiccionales donde el personal subalterno se conforma con sólo dos personas. Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.
+• Plaza de Recepción de Indicios del Departamento de Ciencias Forenses”.
+(*)(Así reformado el punto anterior en sesión N° 24 del 11 de marzo de 2010, artículo LIII, y publicada en el Boletín Judicial N° 73 del 16 de abril de 2010, mediante aviso N° 007 del 06 de abril de 2010)
 Asimismo, acordó realizar una adición al apartado de “Otras disposiciones sobre sustituciones”, punto 10, inciso l), para que en adelante se lea de la siguiente manera:
 “10.1 El Consejo Superior en sesión N° 38-06 celebrada el 30 de mayo de 2006, artículo XXX, acordó: “Limitar las cadenas de sustituciones provocadas en permisos con goce de salario otorgados con base en el Art. 44 de la Ley Orgánica del Poder Judicial, de la siguiente forma:
 a) En el caso de la persona sobre la cual recae el permiso se establece la posibilidad de ser sustituida por vacaciones, incapacidades y ascensos a otro puesto.

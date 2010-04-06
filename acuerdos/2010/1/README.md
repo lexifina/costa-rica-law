@@ -13,3 +13,4 @@ Modificación y adición al Aviso 028-09 sobre "Plan de Vacaciones Colectivas de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-11 | la propia norma |
+| 2 | 2010-04-06 | Acuerdo 7 (2010-04-06) |
