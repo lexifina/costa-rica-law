@@ -4,11 +4,11 @@ A LAS INSTITUCIONES, ABOGADOS, SERVIDORES
 JUDICIALES Y PÚBLICO EN GENERAL
 SE LES HACE SABER QUE:
 El Consejo Superior en sesión N° 24-10, celebrada el 11 de marzo del 2010, artículo LIII, dispuso autorizar la sustitución por incapacidad y vacaciones en la plaza de Recepción de Indicios del Departamento de Ciencias Forenses, por períodos menores a 7 días; en razón de lo anterior, se deberá adicionar el “Plan de Vacaciones Colectivas del Poder Judicial 2009-2010”, específicamente el apartado de “Disposiciones sobre Sustituciones 2009/2010”, punto 9, inciso 3), para que en su parte final se agregue un ítem que contemple el puesto antes referido. Así, el punto adicionado deberá leerse en adelante de la siguiente manera:
-“9.3. Se autoriza la sustitución en las siguientes plazas hasta por un día:
+(*) "9.3. Se autoriza la sustitución en las siguientes plazas hasta por un día:
 • Choferes (siempre que sólo exista una plaza).
 • Auxiliar de Servicios Generales 3 (Guardas).
 • Conductores de Detenidos.
-• Notificadores en aquellos Despachos que sólo tienen una plaza de esta clase.
+• Notificadores en aquellos despachos que sólo tienen una plaza de esta clase.
 • Conserje del Departamento de Patología en labores propias del proceso de autopsias.
 • Oficiales de Localización en aquellas oficinas que sólo cuentan con una plaza de este tipo.
 • Fiscales, Fiscales Auxiliares y Defensores Públicos; en despachos con una sola plaza.
@@ -34,5 +34,7 @@ El Consejo Superior en sesión N° 24-10, celebrada el 11 de marzo del 2010, art
 • Auxiliares de Servicios Generales 2 en Delegaciones y Subdelegaciones Regionales del Organismo de Investigación Judicial que cuentan con sólo una plaza y deban realizar el aseo de las celdas.
 • En jefaturas únicas (oficina, departamento, sección, unidad).
 • En despachos jurisdiccionales donde el personal subalterno se conforma con sólo dos personas. Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.
-• Plaza de Recepción de Indicios del Departamento de Ciencias Forenses”.
+• Plaza de Recepción de Indicios del Departamento de Ciencias Forenses.
+• Auxiliar Administrativo 1 de la Subdelegación Regional del Organismo de Investigación Judicial de Garabito (siempre que sea una plaza única)".
+(*)(Así reformado el punto anterior en sesión N° 28 del 23 de marzo de 2010, artículo LVII, y publicada en el Boletín Judicial N° 115 del 15 de junio de 2010, mediante aviso N° 008 del 6 de abril de 2010)
 San José, 06 de abril de 2010.

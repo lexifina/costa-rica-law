@@ -13,3 +13,4 @@ Adición al Aviso 001-10, que a su vez adicionó y modificó el “Plan de Vacac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-06 | la propia norma |
+| 2 | 2010-04-06 | Acuerdo 8 (2010-04-06) |
