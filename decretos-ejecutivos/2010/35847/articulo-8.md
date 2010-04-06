@@ -1,0 +1,4 @@
+Artículo 8º—Derechos de los concesionarios. Dentro de los derechos de los concesionarios para las bases de operación especiales se encuentran los siguientes:
+a) Los concesionarios del servicio de transporte público modalidad de taxi, para las bases de operación especiales tendrán el derecho a exonerar su vehículo de acuerdo con el régimen establecido en los transitorios VII y VIII de la Ley 7969, y demás actos que emita el Poder Ejecutivo tendientes a regular esta actividad.
+b) Los concesionarios de taxi tendrán derecho a recibir por el transporte realizado el monto de la tarifa oficial fijada por la Autoridad Reguladora de los Servicios Públicos que determine el taxímetro.
+c) A que se respete la base de operación, de tal forma que solo pueda brindar el servicio el operador debidamente autorizado.

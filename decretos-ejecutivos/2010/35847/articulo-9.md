@@ -1,0 +1,1 @@
+Artículo 9º—Año modelo de las unidades. Los vehículos para brindar el servicio en una base de operación especial deben tener un rango máximo de antigüedad de seis años previos al año y mantenerse en perfectas condiciones de servicio y buena presentación.

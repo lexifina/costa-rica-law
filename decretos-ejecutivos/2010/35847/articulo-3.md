@@ -1,0 +1,3 @@
+Artículo 3º—Bases de Operación. En las bases de operación especial se tendrá una parada terminal, que será definida en el cartel de licitación, por lo que será desde dicho lugar que se realizará el servicio.
+En razón de lo anterior queda terminantemente prohibido al concesionario circular en las carreteras, fuera de la base de operación especial, en demanda de pasajeros.
+El operador de una base de operación especial podrá prestar el servicio al usuario desde un punto diferente de la base de operación, siempre que se trate de un servicio hacia la base de operación especial para la cual se encuentra autorizado. No podrá realizar la prestación del servicio entre puntos diferentes que no correspondan desde y hacia la base de operación respectiva.
