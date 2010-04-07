@@ -15,3 +15,4 @@ Obligación del Transportista Aduanero que efectúe operaciones en la Aduana Cen
 | --- | --- | --- |
 | 1 | 2005-09-30 | la propia norma |
 | 2 | 2010-02-16 | Resolución 57 (2010-02-16) |
+| 3 | 2010-04-07 | Resolución 122 (2010-04-07) |
