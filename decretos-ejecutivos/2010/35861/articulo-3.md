@@ -1,0 +1,1 @@
+Artículo 3º—Modifíquese el artículo 4 del Decreto Ejecutivo Nº 35505- MOPT-S-MEIC-MINAET publicado en el Diario Oficial La Gaceta 185 del 23 de setiembre de 2009, para que en donde se indica: “Al servicio de Emergencias Integrado, número telefónico 911, se lea correctamente: “Al Sistema de Emergencias 9-1-1”.
