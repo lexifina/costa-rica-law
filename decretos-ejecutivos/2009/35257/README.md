@@ -14,3 +14,4 @@ Plan Nacional de Atribución de Frecuencias (PNAF)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-29 | la propia norma |
+| 2 | 2010-04-07 | Decreto Ejecutivo 35866 (2010-04-07) |

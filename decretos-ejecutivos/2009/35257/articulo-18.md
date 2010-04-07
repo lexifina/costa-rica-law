@@ -80,7 +80,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 Región 2 (UIT) | | Costa Rica | Nota
 5 900 – 5 950 RADIODIFUSIÓN 5.134 5.136 | | 5 900 – 5 950 RADIODIFUSION | CR 018
 5 950 – 6 200 RADIODIFUSIÓN | 5 950 – 6 200 RADIODIFUSION |
-6 200 – 6 525 MÓVIL MARÍTIMO 5.109 5.110 5.130 5.132 5.137 | 5 950 – 6 200 MOVIL MARITIMO |
+6 200 – 6 525 MÓVIL MARÍTIMO 5.109 5.110 5.130 5.132 5.137 | (*)6 200 – 6 525 MOVIL MARITIMO (*)(Así reformado por el artículo 2°; inciso 1 del decreto ejecutivo N° 35866 del 7 de abril de 2010) |
 6 525 – 6 685 MÓVIL AERONÁUTICO (R) | 6 525 – 6 685 MOVIL AERONAUTICO (R) |
 6 685 – 6 765 MÓVIL AERONÁUTICO (OR) | 6 685 – 6 765 MOVIL AERONAUTICO (OR) |
 6 765 – 7 000 FIJO Móvil terrestre 5.138 5.138A 5.139 | 6 765 – 7 000 FIJO Móvil Terrestre |
@@ -187,7 +187,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 37,5 – 38,25 FIJO MÓVIL Radioastronomía 5.149 | 37,5 – 38,25 FIJO MOVIL Radioastronomía | CR 021 CR 022
 38,25 – 39,986 FIJO MÓVIL | 38,25 – 39,986 FIJO MOVIL | CR. 021
 39,986 – 40,02 FIJO MÓVIL Investigación espacial | 39,986 – 40,02 FIJO MOVIL Investigación espacial | CR 021
-40,02 – 40,98 FIJO MÓVIL 5.150 | 40,02 – 40,98 FIJO MOVIL | CR 021
+40,02 – 40,98 FIJO MÓVIL 5.150 | 40,02 – 40,98 FIJO MOVIL 5.150 (Así reformado por el artículo 2°; inciso 2 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 021 CR 081 (Así reformado por el artículo 2°; inciso 2 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 40,98 – 41,015 FIJO MÓVIL Investigación espacial 5.160 5.161 | 40,98 – 41,015 FIJO MOVIL Investigación espacial | CR 021
 41,015 – 44 FIJO MÓVIL 5.160 5.161 | | 41,015 – 44 FIJO MOVIL | CR 021
 44 – 47 FIJO MÓVIL 5.162 5.162A | | 44 – 47 FIJO MOVIL | CR 021
@@ -260,7 +260,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 438 – 440 RADIOLOCALIZACIÓN Aficionados 5.271 5.276 5.277 5.278 5.279 | 430 – 440 RADIOLOCALIZACION Aficionados | CR 013
 440 – 450 FIJO MÓVIL salvo móvil aeronáutico Radiolocalización 5.269 5.270 5.271 5.284 5.285 5.286 | | 440 – 450 MOVIL FIJO | CR 033
 450 – 455 FIJO MÓVIL 5.2095.2715.2865.286A5.286B5.286C5.286D5.286E | 450 – 455 FIJO MOVIL | CR 052 CR 033
-455 – 456 FIJO MÓVIL MÓVIL POR SATÉLITE (Tierra-espacio) 5.209 5.286A 5.286B 5.286C | 455 – 456 FIJO | CR 052
+455 – 456 FIJO MÓVIL MÓVIL POR SATÉLITE (Tierra-espacio) 5.209 5.286A 5.286B 5.286C | 455 – 456 FIJO | CR 033 CR 052 (Así reformado por el artículo 2°; inciso 3 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 456 – 459 FIJO MÓVIL 5.271 5.287 5.288 | | 456 – 459 FIJO MOVIL | CR 033
 459 – 460 FIJO MÓVIL MÓVIL POR SATÉLITE (Tierra-espacio) 5.209 5.286A 5.286B 5.286C | 459 – 460 FIJO MOVIL MOVIL POR SATELITE (Espacio Tierra) | CR 033
 460 MHz – 1164 MHz
@@ -271,7 +271,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 608 – 614 RADIOASTRONOMÍA Móvil por satélite salvo móvil aeronáutico por satélite (Tierra-espacio) | 608 – 614 RADIOASTRONOMIA | CR 055
 614 – 806 RADIODIFUSIÓN Fijo Móvil 5.293 5.309 5.311 | 614 – 806 RADIODIFUSION TELEVISIVA FIJO | CR 056 CR 057 CR 058
 806 – 890 FIJO MÓVIL RADIODIFUSIÓN 5.317 5.137A 5.318 | | 806 – 890 MOVIL FIJO | CR 059 CR 060 CR 061
-890 – 902 FIJO MÓVIL salvo móvil aeronáutico Radiolocalización 5.317ª 5.318 5.325 | | 890 – 902 FIJO MOVIL | CR 061 CR 061A
+890 – 902 FIJO MÓVIL salvo móvil aeronáutico Radiolocalización 5.317ª 5.318 5.325 | | 890 – 902 FIJO MOVIL | CR 059 CR 061 CR 061A (Así reformado por el artículo 2°; inciso 4 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 902 – 928 FIJO Aficionados Móvil salvo móvil aeronáutico Radiolocalización 5.150 5.325 5.325A 5.326 | 902 – 928 FIJO | CR 061 CR 061B
 928 – 942 FIJO MOVIL salvo móvil aeronáutico Radiolocalización 5.325 | | 928 – 942 FIJO | CR 061 CR 061C
 942 – 960 FIJO MOVIL 5.317A | | 942 – 960 FIJO | CR 061 CR 061D CR 061E
@@ -298,7 +298,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 Región 2 (UIT) | | Costa Rica | Nota
 1 610,6 – 1 613,8 MÓVIL POR SATÉLITE (Tierra-espacio) RADIOASTRONOMÍA RADIONAVEGACIÓN AERONÁUTICA RADIODETERMINACIÓN POR SATÉLITE (Tierra-espacio) 5.149 5.341 5.351A 5.364 5.366 5.367 5.368 5.370 5.372 | | 1 610,6 – 1 613,8 MOVIL POR SATELITE (Tierra – Espacio) |
 1 613,8 – 1 626,5 MÓVIL POR SATÉLITE (Tierra-espacio) RADIONAVEGACIÓN AERONÁUTICA RADIODETERMINACIÓN POR SATÉLITE (Tierra-espacio) Móvil por satélite (espacio-Tierra) 5.341 5.351A 5.364 5.365 5.366 5.367 5.368 5.370 5.372 | 1 613,8 – 1 626,5 MOVIL POR SATELITE (Tierra Espacio) |
-1 626,5 – 1 660 MÓVIL POR SATÉLITE (Tierra-espacio) 5.3415.3515.353A5.3545.3555.357A5.3595.362A5.3745. 3755.376 | 1 626,5 – 1 660 MOVIL POR SATELITE (Tierra Espacio) |
+1 626,5 – 1 660 MÓVIL POR SATÉLITE (Tierra-espacio) 5.3415.3515.353A5.3545.3555.357A5.3595.362A5.3745. 3755.376 | 1 626,5 – 1 660 MOVIL POR SATELITE (Tierra Espacio) 5.353A (Así reformado por el artículo 2°; inciso 5 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | C R 064 (Así adicionado por el artículo 2°; inciso 5 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 1 660 – 1 660,4 MÓVIL TERRESTRE POR SATÉLITE (Tierra-espacio) RADIOASTRONOMÍA 5.149 5.341 5.351 5.351A 5.354 5.362A 5.376A | 1 660 – 1 660,4 MOVIL POR SATELITE (Espacio Tierra) RADIOASTRONOMIA |
 1 660,4 – 1 670 AYUDAS A LA METEOROLOGÍA FIJO MÓVIL salvo móvil aeronáutico MÓVIL POR SATÉLITE tierra-espacio MOD 5.379 B 5.379 C RADIOASTRONOMÍA 5.149 5.341 5.379D MOD 5.379A | | 1 660,4 – 1 670 AYUDAS A LA METEOROLOGÍA FIJO MÓVIL salvo móvil aeronáutico MÓVIL POR SATÉLITE tierra-espacio RADIOASTRONOMÍA |
 1 670 – 1 675 AYUDAS A LA METEOROLOGÍA FIJO METEOROLOGÍA POR SATÉLITE (espacio-Tierra) MÓVIL 5.380 MOVIL salvo móvil aeronáutico 5.341 5.379D 5.379E 5.380 5.380A | 1 670 – 1 675 AYUDAS A LA METEOROLOGIA FIJO METEOROLOGIA POR SATELITE (Espacio Tierra) MÓVIL |
@@ -361,23 +361,23 @@ Región 2 (UIT) | | Costa Rica | Nota
 5 570-5 650 RADIONAVEGACIÓN MARÍTIMA MÓVIL salvo móvil aeronáutico RADIOLOCALIZACIÓN 5.446A 5.450 5.450A 5.450B 5.4515.452
 5 650 – 5 725 RADIOLOCALIZACIÓN MOVIL salvo móvil aeronáutico Aficionados Investigación espacial (espacio lejano) 5.282 5.446A 5.450A 5.451 5.453 5.454 5.455 | 5 650 – 5 725 RADIOLOCALIZACIÓN MÓVIL salvo móvil aeronáutico | CR 081
 5 725 – 5 830 RADIOLOCALIZACIÓN Aficionados 5.150 5.453 5.455 | 5 725 – 5 830 RADIOLOCALIZACION Aficionados | CR 081 CR 013C
-5 830 – 5 850 RADIOLOCALIZACIÓN Aficionados Aficionados por satélite (espacio-Tierra) 5.150 5.453 5.455 | 5 830 – 5 850 RADIOLOCALIZACION Aficionados Aficionados por satélite (Espacio Tierra ) | CR 013 CR 013C
-5 850 – 5 925 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL Aficionados Radiolocalización 5.150 | 5 850 – 5 925 FIJO FIJO POR SATELITE (Tierra Espacio) | CR 083
+5 830 – 5 850 RADIOLOCALIZACIÓN Aficionados Aficionados por satélite (espacio-Tierra) 5.150 5.453 5.455 | 5 830 – 5 850 RADIOLOCALIZACION Aficionados Aficionados por satélite (Espacio Tierra ) (*)5.150 (*)(Así reformado por el artículo 2°; inciso 6 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 013 CR 013C (*)CR 081 (*)(Así adicionado por el artículo 2°; inciso 6 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+5 850 – 5 925 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL Aficionados Radiolocalización 5.150 | 5 850 – 5 925 FIJO FIJO POR SATELITE (Tierra Espacio) (*)5.150 (*)(Así adicionado por el artículo 2°; inciso 6 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | (*)CR 081 CR 083 (*)(Así adicionado por el artículo 2°; inciso 6 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 5 925 – 6 700 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL 5.149 5.440 5.458 | 5 925 – 6 700 FIJO FIJO POR SATELITE (Tierra Espacio) MOVIL | CR 084 CR 085 CR 087
-6 700 – 7 075 FIJO FIJO POR SATÉLITE (Tierra-espacio) (espacio-Tierra) MÓVIL 5.441 5.458 5.458A 5.458B 5.458C | | 6 700 – 7 075 FIJO MOVIL | CR 086 CR 087
+6 700 – 7 075 FIJO FIJO POR SATÉLITE (Tierra-espacio) (espacio-Tierra) MÓVIL 5.441 5.458 5.458A 5.458B 5.458C | | 6 700 – 7 075 FIJO MOVIL | (*)CR 085 CR 086 CR 087 (*)(Así adicionado por el artículo 2°; inciso 6 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 7075 MHz – 8175 MHz
 Región 2 (UIT) | | Costa Rica | Nota
 7 075-7 145 FIJO MÓVIL 5.4585.459 | | 7 075 – 7 250 FIJO MOVIL | CR 086
 7 145-7 235 FIJO MÓVIL INVESTIGACIÓN ESPACIAL (Tierra-espacio) 5.4585.459 5.460
 7 235-7 250 FIJO MÓVIL 5.458
 7 250 – 7 300 FIJO FIJO POR SATÉLITE (espacio-Tierra) MÓVIL 5.461 | 7 250 – 7 300 FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL | CR 086
-7 300 – 7 450 FIJO FIJO POR SATÉLITE (espacio-Tierra) MÓVIL salvo móvil aeronáutico 5.461 | 7 300 – 7 450 FIJO MOVIL | CR 086
+7 300 – 7 450 FIJO FIJO POR SATÉLITE (espacio-Tierra) MÓVIL salvo móvil aeronáutico 5.461 | 7 300 – 7 450 FIJO MOVIL | CR 086 (*)CR 088 (*)(Así adicionado por el artículo 2°; inciso 7 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 7 450 – 7 550 FIJO FIJO POR SATÉLITE (espacio-Tierra) METEOROLOGÍA POR SATÉLITE (espacio-Tierra) MÓVIL salvo móvil aeronáutico 5.461A | 7 450 – 7 550 FIJO FIJO POR SATELITE (Espacio Tierra) METEOROLOGIA POR SATELITE (Espacio Tierra) MOVIL salvo móvil aeronáutico | CR 087 CR 088
 7 750-7 850 FIJO METEOROLOGÍA POR SATÉLITE (espacio-Tierra) MÓVIL salvo móvil aeronáutico 5.461B | 7 550 – 7 750 FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL salvo móvil aeronáutico | CR 088
 7 850-7 900 FIJO MÓVIL salvo móvil aeronáutico | 7 750 – 7 850 FIJO MOVIL salvo móvil aeronáutico METEOROLOGIA POR SATELITE (Espacio Tierra) | CR 088
-7 850 – 7 900 FIJO MOVIL salvo móvil aeronáutico |
-7 900 – 8 025 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL 5.461 | 7 900 – 8 025 FIJO |
-8 025 – 8 175 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (espacio-Tierra) FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL 5.462A 5.463 | 8 025 – 8 175 EXPLORACION DE LA TIERRA POR SATELITE /(Espacio Tierra) FIJO FIJO POR SATELITE (Tierra Espacio) MOVIL |
+7 850 – 7 900 FIJO MOVIL salvo móvil aeronáutico | CR 088 (Así adicionado por el artículo 2°; inciso 7 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+7 900 – 8 025 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL 5.461 | 7 900 – 8 025 FIJO | CR 088 (Así adicionado por el artículo 2°; inciso 7 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+8 025 – 8 175 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (espacio-Tierra) FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL 5.462A 5.463 | 8 025 – 8 175 EXPLORACION DE LA TIERRA POR SATELITE /(Espacio Tierra) FIJO FIJO POR SATELITE (Tierra Espacio) MOVIL | CR 088 (Así adicionado por el artículo 2°; inciso 7 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 8175 MHz – 9500 MHz
 Región 2 (UIT) | | Costa Rica | Nota
 8 175 – 8 215 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (espacio-Tierra) FIJO FIJO POR SATÉLITE (Tierra-espacio) METEOROLOGÍA POR SATÉLITE (Tierra-espacio) MÓVIL 5.462A 5.463 | | 8 175 – 8 215 FIJO FIJO POR SATELITE (Tierra Espacio) METEOROLOGIA POR SATELITE (Tierra Espacio) MOVIL | CR 088
@@ -409,16 +409,16 @@ Región 2 (UIT) | | Costa Rica | Nota
 12,2 – 12,7 FIJO MÓVIL salvo móvil aeronáutico RADIODIFUSIÓN RADIODIFUSIÓN POR SATÉLITE 5.487A 5.488 5.490 5.492 | | 12,2 – 12,7 FIJO MOVIL salvo móvil aeronáutico RADIODIFUSION RADIODIFUSION POR SATELITE | CR 094
 12,7 – 12,75 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL salvo móvil aeronáutico | 12,7 – 12,75 FIJO FIJO POR SATELITE (Tierra Espacio) MOVIL salvo móvil aeronáutico | CR 094
 12,75 – 13,25 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL Investigación espacial (espacio lejano) (espacio-Tierra) 5.441 | 12,75 – 13,25 FIJO FIJO POR SATELITE (Tierra Espacio) MOVIL Investigación espacial (Espacio lejano) | CR 095
-13,25-13,4 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIONAVEGACIÓN AERONÁUTICA INVESTIGACIÓN ESPACIAL (activo) 5.497 5.498A5.499 | 13,25 – 13,4 RADIONAVEGACION AERONAUTICA EXPLORACION TIERRA POR SATELITE (activo) INVESTIGACION ESPACIAL (activo) |
-13,4-13,75 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIOLOCALIZACIÓN INVESTIGACIÓN ESPACIAL Frecuencias patrón y señales horarias por satélite (Tierra-espacio) 5.4995.5005.501 5.501A 5.501B | 13,4 – 13,75 RADIOLOCALIZACION EXPLORACION TIERRA POR SATELITE (activo) INVESTIGACION ESPACIAL (activo) Frecuencias patrón y señales Horarias por satélite /(Tierra Espacio) |
+13,25-13,4 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIONAVEGACIÓN AERONÁUTICA INVESTIGACIÓN ESPACIAL (activo) 5.497 5.498A5.499 | 13,25 – 13,4 RADIONAVEGACION AERONAUTICA EXPLORACION TIERRA POR SATELITE (activo) INVESTIGACION ESPACIAL (activo) | CR 096 (Así adicionado por el artículo 2°; inciso 8 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+13,4-13,75 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIOLOCALIZACIÓN INVESTIGACIÓN ESPACIAL Frecuencias patrón y señales horarias por satélite (Tierra-espacio) 5.4995.5005.501 5.501A 5.501B | 13,4 – 13,75 RADIOLOCALIZACION EXPLORACION TIERRA POR SATELITE (activo) INVESTIGACION ESPACIAL (activo) Frecuencias patrón y señales Horarias por satélite /(Tierra Espacio) | CR 096 (Así adicionado por el artículo 2°; inciso 8 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 13,75 – 14 FIJO POR SATÉLITE (Tierra-espacio) RADIOLOCALIZACIÓN Exploración de la Tierra por satélite Frecuencias patrón y señales horarias por satélite (Tierra-espacio) Investigación espacial 5.484A 5.499 5.500 5.501 5.502 5.503 | 13,75 – 14 FIJO POR SATELITE (Tierra Espacio) RADIOLOCALIZACION Frecuencias patrón y señales horarias Investigación espacial (Tierra Espacio) | CR 097
 14 – 14,25 FIJO POR SATÉLITE (Tierra-espacio) RADIONAVEGACIÓN Móvil por satélite (Tierra-espacio) Investigación espacial 5.457A 5.457B 5.484A 5.504 5.504A 5.504C 5.505 5.506 5.506A 5.506B | 14 – 14,25 FIJO POR SATELITE (Tierra Espacio) RADIONAVEGACION Móvil por satélite (Tierra Espacio) salvo móvil Aeronáutica por satélite Investigación espacial | CR 098
 14,25 GHz – 15,7 GHz
 Región 2 (UIT) | | Costa Rica | Nota
 14,25 – 14,3 FIJO POR SATÉLITE (Tierra-espacio) RADIONAVEGACIÓN Móvil por satélite (Tierra-espacio) Investigación espacial 5.457A 5.457B 5.484A 5.504 5.504A 5.505 5.506 5.506A 5.506B 5.508 5.508A 5.509 | | 14,25 – 14,3 FIJO POR SATELITE (Espacio Tierra) RADIONAVEGACION Móvil por satélite (Tierra Espacio) salvo móvil aeronáutico por satélite Investigación espacial | CR 098
 14,3 – 14,4 FIJO POR SATÉLITE (Tierra-espacio) Móvil por satélite (Tierra-espacio) Radionavegación por satélite 5.504A | 14,3 – 14,4 FIJO POR SATELITE (Tierra Espacio) Móvil por satélite (Tierra Espacio) salvo móvil aeronáutico por satélite Radionavegación por satélite | CR 098
-14,4 – 14,47 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL salvo móvil aeronáutico Móvil por satélite (Tierra-espacio) Investigación espacial (espacio-Tierra) 5.457A 5.457B 5.504A 5.484A 5.506 5.506A 5.506B 5.509A | | 14,4 – 14,47 FIJO FIJO POR SATELITE (Tierra Espacio) MOVIL salvo móvil aeronáutico Móvil por satélite (Tierra Espacio) salvo móvil aeronáutico por satélite Investigación espacial (Espacio Tierra) | CR 098
-14,47-14,5 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL salvo móvil aeronáutico Móvil por satélite (Tierra-espacio) Radioastronomía 5.149 5.457A5.457B5.484A5.504A 5.504B 5.506 5.506A 5.506B 5.509A | 14,47 – 14,5 FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL salvo móvil por aeronáutico Móvil por satélite (Tierra Espacio) salvo móvil Aeronáutico por satélite Radioastronomía | CR 098
+14,4 – 14,47 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL salvo móvil aeronáutico Móvil por satélite (Tierra-espacio) Investigación espacial (espacio-Tierra) 5.457A 5.457B 5.504A 5.484A 5.506 5.506A 5.506B 5.509A | | 14,4 – 14,47 FIJO FIJO POR SATELITE (Tierra Espacio) MOVIL salvo móvil aeronáutico Móvil por satélite (Tierra Espacio) salvo móvil aeronáutico por satélite Investigación espacial (Espacio Tierra) | CR 099 (Así reformado por el artículo 2°; inciso 9 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+14,47-14,5 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL salvo móvil aeronáutico Móvil por satélite (Tierra-espacio) Radioastronomía 5.149 5.457A5.457B5.484A5.504A 5.504B 5.506 5.506A 5.506B 5.509A | 14,47 – 14,5 FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL salvo móvil por aeronáutico Móvil por satélite (Tierra Espacio) salvo móvil Aeronáutico por satélite Radioastronomía | CR 099 (Así reformado por el artículo 2°; inciso 9 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 14,5 – 14,8 FIJO FIJO POR SATÉLITE (Tierra-espacio) MÓVIL Investigación espacial 5.510 | 14,5 – 14,8 FIJO FIJO POR SATELITE (Tierra Espacio) | CR 099
 14,8 – 15,35 FIJO MÓVIL Investigación espacial 5.339 | 14,8 – 15,35 FIJO | CR 099
 15,35 – 15,4 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) RADIOASTRONOMÍA INVESTIGACIÓN ESPACIAL (pasivo) 5.340 5.511 | 15,35 – 15,4 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) RADIOASTRONOMIA INVESTIGACION ESPACIAL (pasivo) | CR 063
@@ -427,10 +427,10 @@ Región 2 (UIT) | | Costa Rica | Nota
 15,63-15,7 RADIONAVEGACIÓN AERONÁUTICA 5.511D
 15,7 GHz – 18,6 GHz
 Región 2 (UIT) | | Costa Rica | Nota
-15,7 – 16,6 RADIOLOCALIZACIÓN 5.512 5.513 | | 15,7 – 16,6 RADIOLOCALIZACION |
-16,6 – 17,1 RADIOLOCALIZACIÓN Investigación espacial (espacio lejano) (Tierra-espacio) 5.512 5.513 | 16,6 – 17,1 RADIOLOCALIZACION Investigación espacial (Espacio lejano) (Tierra Espacio) |
-17,1 – 17,2 RADIOLOCALIZACIÓN 5.512 5.513 | 17,1 – 17,2 RADIOLOCALIZACION |
-17,2 – 17,3 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIOLOCALIZACIÓN INVESTIGACIÓN ESPACIAL (activo) 5.512 5.513 5.513A | | 17,2 – 17,3 RADIOLOCALIZACION EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) INVESTIGACIÓN ESPACIAL (activo) |
+15,7 – 16,6 RADIOLOCALIZACIÓN 5.512 5.513 | | 15,7 – 16,6 FIJO MÓVIL 5.512 (Así reformado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 100 (Así adicionado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+16,6 – 17,1 RADIOLOCALIZACIÓN Investigación espacial (espacio lejano) (Tierra-espacio) 5.512 5.513 | 16,6 – 17,1 FIJO MÓVIL 5.512 (Así reformado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 100 (Así adicionado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+17,1 – 17,2 RADIOLOCALIZACIÓN 5.512 5.513 | 17,1 – 17,2 FIJO MÓVIL 5.512 (Así reformado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 100 (Así adicionado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+17,2 – 17,3 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) RADIOLOCALIZACIÓN INVESTIGACIÓN ESPACIAL (activo) 5.512 5.513 5.513A | | 17,2 – 17,3 FIJO MÓVIL 5.512 (Así reformado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 100 (Así adicionado por el artículo 2°; inciso 10 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 17,3 – 17,7 FIJO POR SATÉLITE (Tierra-espacio) RADIODIFUSIÓN POR SATÉLITE Radiolocalización 5.514 5.515 5.516 5.517 | 17,3 – 17,7 FIJO POR SATELITE (Tierra Espacio) RADIODIFUSION POR SATELITE Radiolocalización | CR 101
 17,7 – 17,8 FIJO FIJO POR SATÉLITE (espacio-Tierra) (Tierra-espacio) RADIODIFUSIÓN POR SATÉLITE Móvil 5.515 5.516 5.517 5.518 | 17,7 – 17,8 FIJO FIJO POR SATELITE (Espacio Tierra) RADIODIFUSION POR SATELITE Móvil | CR 102
 17,8 – 18,1 FIJO FIJO POR SATÉLITE (espacio-Tierra) (Tierra-espacio) MÓVIL 5.484A 5.516 | 17,8 – 18,1 FIJO FIJO POR SATELITE (Espacio Tierra) (Tierra Espacio) MOVIL | CR 102
@@ -441,9 +441,9 @@ Región 2 (UIT) | | Costa Rica | Nota
 18,6 – 18,8 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) FIJO FIJO POR SATÉLITE (espacio-Tierra) MÓVIL salvo móvil aeronáutico INVESTIGACIÓN ESPACIAL (pasivo) 5.516B 5.522A 5.522B | | 18,6 – 18,8 ) FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL salvo móvil aeronáutico | CR 102
 18,8 – 19,3 FIJO FIJO POR SATÉLITE (espacio-Tierra) MÓVIL 5.516A 5.523A | 18,8 – 19,3 FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL | CR 102
 19,3 – 19,7 FIJO FIJO POR SATÉLITE (espacio-Tierra) (Tierra -espacio) MÓVIL 5.523B 5.523C 5.523D 5.523E | 19,3 – 19,7 FIJO FIJO POR SATELITE (Espacio Tierra) (Tierra Espacio) MOVIL | CR 102
-19,7 – 20,1 FIJO POR SATÉLITE (espacio-Tierra) MÓVIL POR SATÉLITE (espacio-Tierra) 5.484A 5.516B 5.524 5.525 5.526 5.527 5.528 5.529 | | 19,7 – 20,1 FIJO POR SATELITE (Espacio Tierra) MOVIL POR SATELITE (Espacio Tierra) |
-20,1 – 20,2 FIJO POR SATÉLITE (espacio-Tierra) MÓVIL POR SATÉLITE (espacio-Tierra) 5.484A 5.516B 5.524 5.525 5.526 5.527 5.528 | 20,1 – 20,2 FIJO POR SATELITE (Espacio Tierra) MOVIL POR SATELITE (Espacio Tierra) |
-20,2 – 21,2 FIJO POR SATÉLITE (espacio-Tierra) MÓVIL POR SATÉLITE (espacio-Tierra) Frecuencias patrón y señales horarias por satélite (espacio-Tierra) 5.524 | 20,2 – 21,2 FIJO POR SATELITE (Espacio Tierra) MOVIL POR SATELITE (Espacio Tierra) Frecuencias patrón y señales horarias por satélite /(Tierra Espacio) |
+19,7 – 20,1 FIJO POR SATÉLITE (espacio-Tierra) MÓVIL POR SATÉLITE (espacio-Tierra) 5.484A 5.516B 5.524 5.525 5.526 5.527 5.528 5.529 | | 19,7 – 20,1 FIJO MOVIL 5.524 (Así reformado por el artículo 2°; inciso 11 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 102 (Así adicionado por el artículo 2°; inciso 11 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+20,1 – 20,2 FIJO POR SATÉLITE (espacio-Tierra) MÓVIL POR SATÉLITE (espacio-Tierra) 5.484A 5.516B 5.524 5.525 5.526 5.527 5.528 | 20,1 – 20,2 FIJO MOVIL 5.524 (Así reformado por el artículo 2°; inciso 11 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 102 (Así adicionado por el artículo 2°; inciso 11 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+20,2 – 21,2 FIJO POR SATÉLITE (espacio-Tierra) MÓVIL POR SATÉLITE (espacio-Tierra) Frecuencias patrón y señales horarias por satélite (espacio-Tierra) 5.524 | 20,2 – 21,2 FIJO MOVIL 5.524 (Así reformado por el artículo 2°; inciso 11 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 102 (Así adicionado por el artículo 2°; inciso 11 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 21,2 – 21,4 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) FIJO MÓVIL INVESTIGACIÓN ESPACIAL (pasivo) | 21,2 – 21,4 FIJO MOVIL INVESTIGACION ESPACIAL (pasivo) | CR 103
 21,4 – 22 FIJO MÓVIL | 21,4 ‑ 22 FIJO | CR 103
 22 – 22,21 FIJO MÓVIL salvo móvil aeronáutico 5.149 | 22 – 22,21 FIJO | CR 103
@@ -454,8 +454,8 @@ Región 2 (UIT) | | Costa Rica | Nota
 22,55 – 23,55 FIJO ENTRE SATÉLITES MÓVIL 5.149 | 22,55 – 23,55 FIJO | CR 103
 23,55 – 23,6 FIJO MÓVIL | | 23,55 – 23,6 FIJO MOVIL | CR 103
 23,6 – 24 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) RADIOASTRONOMÍA INVESTIGACIÓN ESPACIAL (pasivo) 5.340 | 23,6 – 24 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) RADIOASTRONOMIA INVESTIGACION ESPACIAL (pasivo) | CR 063
-24 – 24,05 AFICIONADOS AFICIONADOS POR SATÉLITE 5.150 | 24 – 24,05 AFICIONADOS AFICIONADOS POR SATELITE | CR 013 CR 013C
-24,05 – 24,25 RADIOLOCALIZACIÓN Aficionados Exploración de la tierra por satélite (activo) 5.150 | 24,05 – 24,25 RADIOLOCALIZACION Aficionados Exploración de la Tierra por satélite (activo) | CR 013 CR 013C
+24 – 24,05 AFICIONADOS AFICIONADOS POR SATÉLITE 5.150 | 24 – 24,05 AFICIONADOS AFICIONADOS POR SATELITE 5.150 (Así reformado por el artículo 2°; inciso 12 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 013 CR 013C CR 081 (Así reformado por el artículo 2°; inciso 12 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+24,05 – 24,25 RADIOLOCALIZACIÓN Aficionados Exploración de la tierra por satélite (activo) 5.150 | 24,05 – 24,25 RADIOLOCALIZACION Aficionados Exploración de la Tierra por satélite (activo) 5.150 (Así reformado por el artículo 2°; inciso 12 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 013 CR 013C CR 081 (Así reformado por el artículo 2°; inciso 12 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 24,25 – 24,45 RADIONAVEGACIÓN | 24,25 – 24,45 RADIONAVEGACION |
 24,45 – 24,65 ENTRE SATÉLITES RADIONAVEGACIÓN 5.533 | 24,45 – 24,65 ENTRE SATELITES RADIONAVEGACION |
 24,65 – 24,75 ENTRE SATÉLITES RADIOLOCALIZACIÓN POR SATÉLITE (Tierra-espacio) | 24,65 – 24,75 ENTRE SATELITES RADIOLOCALIZACION POR SATELITE /(Tierra Espacio) |
@@ -521,7 +521,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 59 GHz – 76 GHz
 Región 2 (UIT) | | Costa Rica | Nota
 59-59,3 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) FIJO ENTRE SATÉLITES MÓVIL RADIOLOCALIZACIÓN INVESTIGACIÓN ESPACIAL (pasivo) 5.556A 5.558 5.559 | | 59 – 59,3 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) INVESTIGACION ESPACIAL (pasivo) FIJO ENTRE SATELITES MOVIL RADIOLOCALIZACION |
-59,3-64 FIJO ENTRE SATÉLITES MÓVIL RADIOLOCALIZACIÓN 5.138 5.558 5.559 | 59,3 – 64 FIJO ENTRE SATELITES MOVIL RADIOLOCALIZACION |
+59,3-64 FIJO ENTRE SATÉLITES MÓVIL RADIOLOCALIZACIÓN 5.138 5.558 5.559 | 59,3 – 64 FIJO ENTRE SATELITES MOVIL RADIOLOCALIZACION 5.138 (Así reformado por el artículo 2°; inciso 13 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 081 (Así adicionado por el artículo 2°; inciso 13 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 64-65 FIJO ENTRE SATÉLITES MÓVIL salvo móvil aeronáutico 5.5475.556 | 64 – 65 FIJO ENTRE SATELITES MOVIL excepto móvil aeronáutico |
 65-66 EXPLORACIÓN DE LA TIERRA POR SATÉLITE FIJO ENTRE SATÉLITES MÓVIL salvo móvil aeronáutico INVESTIGACIÓN ESPACIAL 5.547 | 65 – 66 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) INVESTIGACION ESPACIAL (pasivo) ENTRE SATELITES FIJO MOVIL excepto móvil aeronáutico |
 66-71 ENTRE SATÉLITES MÓVIL MÓVIL POR SATÉLITE RADIONAVEGACIÓN RADIONAVEGACIÓN POR SATÉLITE 5.553 5.554 5.558 | 66 – 71 MOVIL MOVIL POR SATELITE RADIOLOCALIZACION RADIOLOCALIZACION POR SATELITE ENTRE SATELITES |
@@ -553,7 +553,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 Región 2 (UIT) | | Costa Rica | Nota
 116 – 119,98 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) ENTRE SATÉLITES INVESTIGACIÓN ESPACIAL (pasivo) 5.341 5.562C | | 116 – 119,98 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) FIJO ENTRE SATELITES MOVIL 5.558 INVESTIGACION ESPACIAL (pasivo) |
 119,98-122,25 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) ENTRE SATÉLITES INVESTIGACIÓN ESPACIAL (pasivo) 5.1385.341 5.562C | 119,98 – 120,02 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) FIJO ENTRE SATELITES MOVIL INVESTIGACION ESPACIAL (pasivo) Aficionados |
-122,25-123 FIJO ENTRE SATÉLITES MÓVIL Aficionados 5.138 5.558 | 120,02 – 126 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) FIJO ENTRE SATELITES MOVIL S5.558 INVESTIGACION ESPACIAL (pasivo) |
+122,25-123 FIJO ENTRE SATÉLITES MÓVIL Aficionados 5.138 5.558 | 120,02 – 126 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) FIJO ENTRE SATELITES MOVIL S5.558 INVESTIGACION ESPACIAL (pasivo) 5.138 (Así reformado por el artículo 2°; inciso 14 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 081 (Así adicionado por el artículo 2°; inciso 14 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 123-130 FIJO POR SATÉLITE (espacio-Tierra) MÓVIL POR SATÉLITE (espacio-Tierra) RADIONAVEGACIÓN RADIONAVEGACIÓN POR SATÉLITE Radioastronomía 5.149 5.554 5.562D
 130-134 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (activo) FIJO ENTRE SATÉLITES MÓVIL RADIOASTRONOMÍA 5.149 5.5585.562A 5.562E | 126 – 134 FIJO ENTRE SATELITES MOVIL RADIOLOCALIZACION |
 134-136 AFICIONADOS AFICIONADOS POR SATÉLITE Radioastronomía | 134 – 142 MOVIL MOVIL POR SATELITE RADIONAVEGACION RADIONAVEGACION POR SATELITE Radiolocalización | CR 063
@@ -590,7 +590,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 235-238 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) FIJO POR SATÉLITE (espacio-Tierra) INVESTIGACIÓN ESPACIAL (pasivo) 5.563A5.563B | 235 – 238 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL INVESTIGACION ESPACIAL (pasivo) |
 238-240 FIJO FIJO POR SATÉLITE (espacio-Tierra) MÓVIL RADIOLOCALIZACIÓN RADIONAVEGACIÓN RADIONAVEGACIÓN POR SATÉLITE | 238 – 241 FIJO FIJO POR SATELITE (Espacio Tierra) MOVIL Radiolocalización |
 240-241 FIJO MÓVIL RADIOLOCALIZACIÓN
-241-248 RADIOASTRONOMÍA RADIOLOCALIZACIÓN Aficionados Aficionados por satélite 5.1385.149 | 241 – 248 RADIOLOCALIZACION Aficionados Aficionados por satélite |
+241-248 RADIOASTRONOMÍA RADIOLOCALIZACIÓN Aficionados Aficionados por satélite 5.1385.149 | 241 – 248 RADIOLOCALIZACION Aficionados Aficionados por satélite 5.138 (Así reformado por el artículo 2°; inciso 15 del decreto ejecutivo N° 35866 del 7 de abril de 2010) | CR 081 (Así adicionado por el artículo 2°; inciso 15 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 248-250 AFICIONADOS AFICIONADOS POR SATÉLITE Radioastronomía 5.149 | 248 – 250 AFICIONADOS AFICIONADOS POR SATELITE |
 250-252 EXPLORACIÓN DE LA TIERRA POR SATÉLITE (pasivo) RADIOASTRONOMÍA INVESTIGACIÓN ESPACIAL (pasivo) 5.3405.563A | 250 – 252 EXPLORACION DE LA TIERRA POR SATELITE /(pasivo) INVESTIGACION ESPACIAL (pasivo) |
 252 GHz – 1000 GHz
