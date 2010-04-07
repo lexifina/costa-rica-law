@@ -19,3 +19,4 @@ Reglamento General del Ministerio de Planificación Nacional y Política Económ
 | 4 | 2003-07-14 | Decreto Ejecutivo 31324 (2003-07-14) |
 | 5 | 2006-07-07 | Decreto Ejecutivo 33206 (2006-07-07) |
 | 6 | 2007-03-26 | Decreto Ejecutivo 33713 (2007-03-26) |
+| 7 | 2010-04-07 | Decreto Ejecutivo 35976 (2010-04-07) |
