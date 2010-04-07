@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT 31-09 del 5 de octubre del 2009, publicada en La Gaceta Nº 204 del 21 de octubre del 2009.
