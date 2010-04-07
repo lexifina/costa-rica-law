@@ -1,5 +1,5 @@
 DIRECCIÓN GENERAL DE ADUANAS
-(Nota de Sinalevi: Mediante el punto 4° de la resolución Res-DGA-057 del 16 de febrero de 2010, se deja sin efecto esta resolución, únicamente en lo correspondiente a los lineamientos procedimentales para el uso del precinto electrónico, manteniéndose incólume la aplicación del Precinto Electrónico en las aduanas en las que se ha ordenado este mecanismo de seguridad, así como las fechas establecidas para ello)
+(Nota de Sinalevi: Mediante el aparte 3) de la resolución Res-DGA-122 del 7 de abril de 2010, se deja sin efecto esta resolución, únicamente en lo correspondiente a los lineamientos procedimentales para el uso del precinto electrónico, manteniéndose incólume la aplicación del Precinto Electrónico en las aduanas en las que se ha ordenado este mecanismo de seguridad, así como las fechas establecidas para ello.)
 Res. DGA-274-06.—San José, a las diez horas del treinta y uno de marzo de dos mil seis.
 Considerando:
 I.—Que el ingreso o salida de personas, mercancías y medios de transporte del territorio aduanero debe efectuarse por los lugares y en los horarios habilitados, debiendo presentarse ante la autoridad aduanera competente y cumplir las medidas de control vigentes.
