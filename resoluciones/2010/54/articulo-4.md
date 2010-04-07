@@ -1,0 +1,1 @@
+IV. —Derogar las “Directrices generales a los sujetos pasivos de la Contraloría General de la República para el adecuado registro y validación en el Sistema de Información sobre Presupuestos Públicos (SIPP) (D-2-2005-CO-DFOE)”, emitidas por Contraloría General de la República, mediante la resolución R-CO-62, publicada en el Diario Oficial La Gaceta Nº 131 del 7 de julio de 2005.

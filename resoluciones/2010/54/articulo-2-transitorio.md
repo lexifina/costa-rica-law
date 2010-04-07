@@ -1,0 +1,2 @@
+Transitorio II.—El Ministerio de Hacienda deberá suministrar para su incorporación en el SIPP, la información sobre el plan de los órganos cuyos presupuestos forman parte del Presupuesto Ordinario y Extraordinario de la República, a partir del presupuesto correspondiente al período 2012.
+La información del presupuesto de esos órganos para los años 2010 y 2011 se incorporará en el SIPP como se ha realizado en períodos anteriores. Para el año 2012 y siguientes, regirá el plazo definido según lo dispuesto en el artículo 8 de estas directrices.

@@ -1,0 +1,1 @@
+Transitorio IV.—El plan y el presupuesto de las juntas de educación, juntas administrativas de colegios y los comités cantonales de deportes, se registrará en el SIPP a partir del comunicado que por orden singular realice la Gerencia de la División de Fiscalización Operativa y Evaluativa.

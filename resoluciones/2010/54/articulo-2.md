@@ -1,0 +1,1 @@
+II.—Establecer que las presentes directrices y el Manual modular del usuario externo del SIPP, son de carácter vinculante para los sujetos pasivos señalados en su ámbito de aplicación. El superior jerarca y los titulares subordinados respectivos deberán establecer los mecanismos que aseguren su cumplimiento.

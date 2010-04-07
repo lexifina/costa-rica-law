@@ -1,0 +1,1 @@
+Transitorio I.—El registro en el SIPP de la información correspondiente al plan del período 2010, se deberá realizar en un plazo máximo de 4 meses a partir de la vigencia de las presentes directrices.
