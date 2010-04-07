@@ -1,1 +1,0 @@
-Artículo 10.—El Comité Técnico estará integrado por el personal técnico del ICT que designe el Presidente de la Comisión siendo indispensable que esté conformado al menos por especialistas en los campos de la sociología, ingeniería o arquitectura, turismo, biología y administración.

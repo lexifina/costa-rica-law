@@ -1,1 +1,0 @@
-Artículo 19.—El resultado de la categorización y toda la información relacionada con el proceso de certificación deberá estar disponible para que los usuarios del servicio, funcionarios del ICT o personas interesadas puedan consultarlo y cotejarlo con la situación real de la empresa.
