@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a las instituciones de la administración pública central y descentralizada, para que dentro del marco de sus posibilidades legales, proporcionen el apoyo del que puedan disponer, para la realización de la “Cumbre Iberoamericana de Ministros, Secretarios y Encargados de la Planificación”.
