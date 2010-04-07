@@ -1,0 +1,2 @@
+Artículo 5º—Sesiones de la Comisión. La Comisión Nacional de Plátano sesionará por lo menos una vez cada dos meses de manera ordinaria y extraordinariamente cuando sea convocada por el representante del MAG; quien también convocará a las sesiones ordinarias. El quórum para sesionar válidamente será de la mitad más uno de los representantes acreditados.
+Sus acuerdos serán recomendativos y no vinculantes para las partes y se tomarán por simple mayoría de votos de los participantes. En caso de empate, el Representante del MAG definirá con doble voto.

@@ -1,0 +1,1 @@
+Artículo 10.—De lo no regulado en este Decreto. En lo no regulado por el Presente Decreto en materia de órganos colegiados, rige supletoriamente lo dispuesto en la Ley General de la Administración Pública.

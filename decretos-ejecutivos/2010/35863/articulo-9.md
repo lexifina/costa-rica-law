@@ -1,0 +1,1 @@
+Artículo 9º—De la organización interna de la Comisión. Queda autorizada la Comisión Nacional de Plátano para que conformen subcomisiones asesoras o técnicas u otros organismos internos que garanticen su efectivo funcionamiento.

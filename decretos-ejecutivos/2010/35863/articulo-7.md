@@ -1,0 +1,1 @@
+Artículo 7º—De la revisión de los acuerdos. Cualquier miembro de la Comisión Nacional de Plátano podrá solicitar la revisión de los acuerdos adoptados en la sesión anterior, dicha solicitud deberá hacerse efectiva al momento de la lectura y discusión del acta de la sesión anterior.
