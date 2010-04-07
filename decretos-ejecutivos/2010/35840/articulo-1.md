@@ -1,0 +1,18 @@
+Nº 35840-C
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140, inciso 20) y 146 de la Constitución Política de la República de Costa Rica; 25.1 de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley Nº 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica del 4 de octubre de 1995, publicada en el Diario Oficial La Gaceta Nº 199 del 20 de octubre de 1995; y el Decreto Ejecutivo Nº 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica (Nº 7555) del 14 de marzo del 2005, publicado en el Diario Oficial La Gaceta Nº 219 del 14 de noviembre del 2005, y
+Considerando:
+1º—Que la edificación del inmueble conocido como “Casa Felipe González Flores”, es una edificación representativa del estilo de vida de las clases adineradas, del Barrio González Lahmann, durante el período comprendido entre 1930 y 1941; de influencias estilísticas victorianas y neo-clásicas, cuya ejecución materializada en el edificio, constituye una tipología de vivienda propia del sector social cosmopolita de la provincia de San José de aquella época.
+2º—Que contextual y urbanísticamente, el inmueble armoniza con su entorno inmediato, si se consideran las viviendas antiguas con influencias del estilo victoriano y neo-clásico existentes en el barrio González Lahmann; y al mismo tiempo, contrasta significativamente con los nuevos estilos arquitectónicos, conformados por grandes edificios modernos racionalistas y de la arquitectura internacional.
+3º—Que la ocupación del inmueble por el Patronato Nacional de la Infancia, le agrega simbolismo e importancia social a la edificación, por los valores que representa para los costarricenses.
+4º—Que la recuperación y puesta en valor de la denominada “Casa Felipe González Flores”, es una motivación para que otros propietarios de inmuebles con valor histórico- arquitectónico, conserven sus edificaciones en este Centro Cívico Nacional, ubicado en la Zona de Control Especial.
+5º—Que por las condiciones histórico-arquitectónicas citadas, y con fundamento en la Ley Nº 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y el Decreto Ejecutivo Nº 32749-C, Reglamento a dicha Ley; el Ministerio de Cultura y Juventud realizó la instrucción del procedimiento administrativo para declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble en cuestión.
+6º—Que por Acuerdo Primero de la Sesión Ordinaria Nº 21-2009, la Comisión Nacional de Patrimonio Histórico-Arquitectónico de Costa Rica rindió la opinión favorable establecida en el artículo Nº 9 inciso b) del Decreto Ejecutivo Nº 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica Nº 7555; para culminar el procedimiento de declaratoria e incorporación al Patrimonio Histórico-Arquitectónico de Costa Rica, del inmueble conocido como “Casa Felipe González Flores”.
+7º—Que es deber del Estado salvaguardar el patrimonio histórico-arquitectónico y cultural del país. Por tanto,
+DECRETAN:
+DECLARATORIA E INCORPORACIÓN AL PATRIMONIO
+HISTÓRICO-AQUITECTÓNICO DE COSTA RICA,
+DEL INMUEBLE DENOMINADO
+“CASA FELIPE GONZÁLEZ FLORES”
+Artículo 1º—Declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido como “Casa Felipe González Flores”, ubicado en el barrio González Lahmann inscrito en el Registro Nacional, Sección de Bienes Inmuebles, partido de San José, cantón central, distrito Catedral, bajo el folio real Nº 584806, propiedad del Patronato Nacional de la Infancia, cédula jurídica Nº 3-007-042039.
