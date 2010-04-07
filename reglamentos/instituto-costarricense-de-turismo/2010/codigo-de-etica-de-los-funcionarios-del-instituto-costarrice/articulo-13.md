@@ -1,0 +1,1 @@
+Artículo 13.—Deber de brindar un servicio ágil y de calidad. Todo servidor del Instituto Costarricense de Turismo debe brindar a los clientes o administrados un servicio que ofrezca confiabilidad, calidad así como agilidad, con el fin de no causar retrasos innecesarios.
