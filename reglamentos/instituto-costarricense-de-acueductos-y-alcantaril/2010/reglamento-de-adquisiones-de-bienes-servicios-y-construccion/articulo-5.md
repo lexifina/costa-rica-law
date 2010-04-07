@@ -1,0 +1,1 @@
+Artículo 5º—Las adquisiciones por medio del fondo de caja chica procederán hasta por el monto inferior al establecido para la retención de la renta, dispuesto por el Ministerio de Hacienda, el primer día hábil de año, redondeado al mil inmediato anterior terminado en cero o cinco.

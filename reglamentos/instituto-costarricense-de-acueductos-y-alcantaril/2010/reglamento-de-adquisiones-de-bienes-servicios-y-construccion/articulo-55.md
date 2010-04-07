@@ -1,0 +1,1 @@
+Artículo 55.—La labor del administrador del contrato iniciará con su designación en la solicitud de inicio de procedimiento de contratación o licitación y hasta la firma del finiquito de la contratación.

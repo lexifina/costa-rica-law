@@ -1,0 +1,1 @@
+Artículo 19.—En el caso de servicios continuos, en los cuales se emitan pedidos abiertos, la Dirección de Proveeduría extenderá la orden de entrega correspondiente para el año en ejercicio completo, de manera que será obligación de la unidad solicitante aportar previamente a la emisión del documento indicado, todo el contenido presupuestario.

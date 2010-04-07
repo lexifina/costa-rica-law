@@ -1,0 +1,1 @@
+Artículo 7º—En aquellos casos en que se haya promovido una contratación por escasa cuantía o alguna licitación para la adquisición de artículos para inventario y algunas líneas hayan sido declaradas infructuosas o desiertas y el monto de las mismas no sobrepasen en conjunto el límite establecido para la modalidad de FT, podrá adquirirse mediante tal procedimiento.

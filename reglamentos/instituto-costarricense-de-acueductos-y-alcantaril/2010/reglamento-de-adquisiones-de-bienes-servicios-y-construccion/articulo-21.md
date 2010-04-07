@@ -1,0 +1,1 @@
+Artículo 21.—Además toda compra por Caja Chica deberá estar debidamente justificada por escrito por el técnico en la materia cuando proceda y aprobada por el Director de Área, de UEN o de Zona, o quien estos designen formalmente, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 53.—En la Proveeduría Institucional y en los distintos Fondos de Trabajo deberá contarse con un espacio físico destinado exclusivamente a la custodia de los expedientes de los distintos procedimientos.
