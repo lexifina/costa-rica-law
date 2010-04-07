@@ -1,7 +1,7 @@
 N° 6979
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
-Artículo 1°—Ratificase el Convenio sobre cooperación financiera, suscrito entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federal de Alemania, firmado en San José el 30 de setiembre de 1983.
+Artículo 1°—Ratifícase el Convenio sobre cooperación financiera, suscrito entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federal de Alemania, firmado en San José el 30 de setiembre de 1983.
 CONVENIO ENTRE EL GOBIERNO DE LA REPUBLICA DE COSTA RICA
 Y EL GOBIERNO DE LA REPUBLICA FEDERAL DE ALEMANIA
 SOBRE COOPERACION FINANCIERA
@@ -11,9 +11,10 @@ CON EL PROPOSITO de contribuir al desarrollo social y económico en la Repúblic
 HAN CONVENIDO LO SIGUIENTE:
 ARTICULO I
 (1) El Gobierno de la República Federal de Alemania otorgará al Gobierno de la República de Costa Rica o a otros prestatarios que ambos Gobiernos designen de común acuerdo la posibilidad de obtener del Kreditanstalt fur Wiederaufbau (Instituto de Crédito para la Reconstrucción ), Frankfurt/Main,préstamos hasta un total de DM 19.000.000,00 (en letras diecinueve millones Deutsche Mark).
-(2) Los préstamos serán destinados para la financiación de los siguientes proyectos:
-a) Un préstamo hasta DM 2.500.000,00 (en letras dos millones quinientos mil Deutsche Mark) para el proyecto "Taller de Servicio en Puerto Limón";
+(*)(2) Los préstamos serán destinados para la financiación de los siguientes proyectos:
+a) Un préstamo hasta DM 2.500.000,00 (en letras dos millones quinientos milDeutsche Mark) para el proyecto "Taller de Servicio en Puerto Limón";
 b) Préstamos hasta un total de DM 16.500.000,00 (en letras dieciséis millones quinientos mil Deutsche Mark) para proyectos aún por determinar si, después de examinados, resultan dignos de apoyo.
+(*) (Nota de Sinalevi: Mediante el artículo 7° de la ley Convenio entre el Gobierno de la República de Costa Rica y el Gobierno de la República Federal de Alemania sobre Cooperación Financiera, ley N° 8797 del 7 de abril de 2010, la Asamblea Legislativa interpreta que el objetivo del artículo 5° del Convenio aprobado es modificar el inciso anterior, según se indica literalmente: "Del préstamo por un monto total de 16.500.000,- DM (en letras: dieciséis millones quinientos mil Deutsche Mark; equivalentes a 8.436.316. EUR) previsto en el Convenio sobre Cooperación Financiera entre el Gobierno de la República Federal de Alemania y el Gobierno de la República de Costa Rica del 30 de septiembre de 1983 para proyectos todavía por determinar se asignaron 14.500.000,-- DM (en letras: catorce millones quinientos mil Deutsche Mark; equivalentes a 7.413.732.28 EUR) al proyecto “Programa de equipos para el mantenimiento vial”. De dicho monto se reprogramará un importe de 105.581,78 EUR (en letras: ciento cinco mil quinientos ochenta y un euros y setenta y ocho céntimos) que se destinará adicionalmente al proyecto “Programa de rehabilitación de la red vial cantonal”, si dicho proyecto, después de examinado, resulta digno de apoyo.")
 (3) Los proyectos por determinar conforme al párrafo 2 letra b) podrán ser reemplazados por otros si el Gobierno de la República de Costa Rica y el Gobierno de la República Federal de Alemania así lo convienen.
 ARTICULO II
 (1) El empleo de las sumas mencionadas en el artículo I, así como las condiciones de su concesión, se fijarán por los contratos que habrán de concertarse entre el Kreditanstalt für Wiederaufbau y el receptor de los préstamos, contratos que estarán sujetos a las disposiciones legales vigentes en la República Federal de Alemania.
