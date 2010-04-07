@@ -1,1 +1,0 @@
-Artículo 25.—La solicitudes de permiso del perforación del subsuelo (piezómetros) que tengan como fin la investigación, deberán cumplir con los requisitos establecidos en este Reglamento, y además el Departamento de Aguas condicionará el permiso a que el propietario del pozo suministre en forma periódica la información e informe técnico producto de la investigación.

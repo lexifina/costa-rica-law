@@ -1,1 +1,0 @@
-Artículo 20.—El SENARA con base en la información suministrada según el artículo anterior, y de la información disponible, rendirá informe técnico al Departamento de Aguas, referente al caudal máximo recomendado de explotación del acuífero por medio del pozo referido.

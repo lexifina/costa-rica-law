@@ -1,1 +1,0 @@
-Artículo 4º—Una vez recibida la solicitud de inscripción de cada empresa el Departamento de Aguas la revisará y si fuere necesario información adicional se procederá a solicitarla, de previo a inscribir y emitir licencia cuando corresponda.

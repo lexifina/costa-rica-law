@@ -1,1 +1,0 @@
-Artículo 28.—El incumplimiento de las disposiciones técnicas que se han establecido para la perforación de pozos, dará motivo a la administración para aplicar las disposiciones establecidas en la Ley Nº 5516, Ley Nº 7554, Ley Nº 276, Ley Nº 6227, Ley Nº 6877, para proceder a cancelar la licencia de perforación, en forma parcial, total, permanente o temporal.

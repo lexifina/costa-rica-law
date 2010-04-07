@@ -1,1 +1,0 @@
-Artículo 9º—El SENARA asignará el número de pozo respectivo, para lo cual utilizará como nomenclatura las dos primeras letras en mayúscula de la Hoja Cartográfica correspondiente guión número consecutivo en orden ascendente y lo registrará en el Registro Nacional de Pozos que lleva esa institución.

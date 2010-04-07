@@ -1,1 +1,0 @@
-Artículo 17.—Deberá la empresa instalar un tubo de un diámetro mínimo de treinta y ocho milímetros, con el objeto de realizar las mediciones de niveles de agua, debe ser instalado desde la superficie del terreno hasta dos metros debajo del nivel dinámico, así mismo debe dejar previsto un sistema de tubería que permita la medición de caudal, desde la superficie del terreno.

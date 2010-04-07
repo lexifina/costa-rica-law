@@ -1,1 +1,0 @@
-Artículo 24.—Cuando no sea viable la explotación de agua por pozo perforado, deberá la empresa proceder inmediatamente a sellar el mismo, utilizando para ello tapa metálica, de tal forma que cubra el hueco y asegure el no ingreso de posibles agentes contaminantes.

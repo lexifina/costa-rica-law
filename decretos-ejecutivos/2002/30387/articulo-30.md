@@ -1,1 +1,0 @@
-Artículo 30.—A la hora de resolver sobre los permisos de perforación del subsuelo y la explotación de aguas subterráneas le serán aplicables las leyes y reglamentos atinentes a la regulación y protección de las fuentes de agua respecto a su manejo y a posibles fuentes de contaminación.

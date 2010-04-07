@@ -1,1 +1,0 @@
-Artículo 8º—El criterio técnico emitido por el SENARA es vinculante y de acatamiento obligatorio, este debe ser fundamentado y sustentado tanto técnicamente como legalmente, de conformidad con su ley.
