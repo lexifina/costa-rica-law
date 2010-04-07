@@ -2,6 +2,7 @@ DIRECCIÓN GENERAL DE ADUANAS
 RESOLUCIÓN DGA-203-2005. DIRECCIÓN GENERAL DE ADUANAS. SAN JOSÉ A LAS NUEVE HORAS DEL DÍA VEINTIDÓS DE JUNIO DE DOS MIL CINCO.
 (NOTA: Mediante resolución RES-DGA-360 del 14 de agosto de 2008, se comunica que a partir del 1° de setiembre de 2008, se implementará en la Aduana de Peñas Blancas el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA)
 (NOTA: Mediante resolución RES-DGA-430-2008 de 6 de octubre de 2008, se comunica que a partir del 20 de octubre del 2008 se implementará en la Aduana de Paso Canoas el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA)
+i
 (NOTA: Mediante resolución RES - DGA-477-2008 de 7 de noviembre de 2008, se indica que las actuaciones asociadas al sistema TICA, tendrán vigencia en la Aduana Central a partir del 08 de diciembre del 2008).
 (NOTA: Mediante Resolución RES-DGA-053 de 19 de febrero de 2009 se comunica que a partir del 16 de marzo de 2009 se implementará en la Aduana Santamaría el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA).
 (NOTA: Mediante Resolución RES-DGA-127-2009 de 13 de abril de 2009, se comunica que a partir del 18 de mayo de 2009 se implementará en la Aduana de Limón el Régimen de Exportaciones en el Sistema de Información para el Control Aduanero TICA.)
@@ -74,7 +75,7 @@ Este capítulo comprende las definiciones correspondientes a los procedimientos 
 APLICACIÓN INFORMÁTICA: sistema o sistemas informáticos utilizados por el SNA como herramienta de apoyo a la gestión aduanera e interactuar con los auxiliares, instituciones públicas y demás usuarios.
 ACTUACIÓN A PRIORI: control ejercido por funcionarios de la División de Fiscalización con base en criterios predefinidos sobre operaciones aduaneras durante el despacho de mercancías y antes de la asignación del tipo de verificación.
 Activación del precinto electrónico: registro realizado por la empresa homologada que se hace mediante el envío de un mensaje a la aplicación informática del SNA de manera inmediata a la colocación del precinto electrónico.
-(Así adicionada la definición anterior mediante resolución N° RES-DGA-057 del 16 de febrero de 2010)
+(Así adicionada la definición anterior mediante resolución RES-DGA-057 del 16 de febrero de 2010. Posteriormente mediante resolución RES-DGA-122-2010 del 7 de abril de 2010, se vuelve a adicionar la definición anterior)
 ADUANA DE CONTROL: aduana a la que le corresponde ejercer control aduanero sobre las operaciones aduaneras en que interviene el auxiliar. Salvo disposición en contrario, se entiende por tal, aquella aduana que tiene competencia territorial en el lugar donde se efectúa la operación aduanera.
 ADUANA DE DESTINO: aduana bajo cuya jurisdicción termina una operación de transito aduanero.
 ADUANA DE INGRESO: aduana bajo cuya jurisdicción se encuentran los puestos aduaneros y demás lugares habilitados para el ingreso de personas, vehículos y unidades de transporte al territorio nacional.
@@ -111,7 +112,7 @@ DOMICILIACIÓN: autorización por parte del auxiliar o declarante, propietario d
 ENDOSO: acto jurídico mediante el cual el consignatario traslada la totalidad de la propiedad de las mercancías indicadas en el título representativo de las mismas, emitido por el transportista o consolidador.
 ENTIDAD RECAUDADORA: entidad financiera sujeta a la supervisión de la Superintendencia General de Entidades Financieras, que brinda los servicios de recaudación de rentas aduaneras al Ministerio de Hacienda.
 Empresa homologada: es aquella empresa autorizada por la DGA a colocar y retirar el precinto electrónico, previo cumplimiento de los requisitos establecidos mediante la RES -DGA-640-2005 del 2 de noviembre de 2005, publicada en Alcance 41 a la Gaceta N° 216 del 9 de noviembre del 2005, denominada “Procedimiento para la Homologación de Precintos Electrónicos.
-(Así adicionada la definición anterior mediante resolución N° RES- DGA-057 del 1 6 de febrero de 2010)
+(Así adicionada la definición anterior mediante resolución RES-DGA-057 del 16 de febrero de 2010. Posteriormente mediante resolución RES-DGA-122-2010 del 7 de abril de 2010, se vuelve a adicionar la definición anterior)
 FRACCIONAMIENTO: tipo de operación en la que se dividen bultos de un movimiento de inventario para formar uno o varios grupos de bultos, bajo nuevos números de movimiento de inventario, que es comunicada por el responsable del depósito a través de un mensaje electrónico.
 GESTOR INTERESADO: persona jurídica, que mediante concesión otorgada por el Estado como auxiliar de la función pública aduanera, supervisa y controla el proceso de carga y descarga, permanencia, manipulación y entrega de las paletas y bultos, con mercancías, en el Centro de Tránsito Rápido de Mercancías, que ingresen o egresen por este puerto aduanero aéreo, bajo la supervisión y el control de la autoridad aduanera.
 HORARIO DE ASIGNACIÓN DE TIPO DE REVISIÓN: horario dentro del que la aplicación informática de conformidad con los criterios de riesgo predefinidos, asignará el tipo de verificación aduanera correspondiente a cada DUA, comprende desde el comienzo del horario administrativo de cada aduana y hasta una hora antes de finalizado el mismo.
@@ -164,12 +165,12 @@ En el caso de ingreso terrestre, la fecha real de arribo será la del registro e
 12) El transportista internacional, cuando así le sea informado por parte del consignatario, deberá consignar en el manifiesto de carga en una nueva línea dentro del mismo conocimiento de embarque, las envolturas, empaques, envases, cilindros, estañones y otros elementos de transporte reutilizables y plenamente identificables, que ingresan temporalmente al país, lo anterior con el objetivo de identificar el inventario correspondiente y utilizarlo cuando estos elementos de transporte y las mercancías que contienen sean sometidos a regímenes aduaneros diferentes.
 13) El transportista internacional es responsable de que las mercancías indicadas en el manifiesto, lleguen al destino final autorizado o salgan de él intactas sin modificar su naturaleza ni embalaje, hasta la entrega efectiva y la debida recepción en el destino final, por parte del auxiliar autorizado. Igualmente es responsable por el pago de los tributos que correspondan a las mercancías declaradas en el manifiesto de carga, descargadas del medio de transporte y no entregadas en destino. Una vez recibida la mercancía, el depositario o receptor, asumirá las mismas responsabilidades ante el fisco.
 14) A partir de la oficialización del manifiesto e inicio de la descarga el transportista internacional deberá iniciar el proceso de movilización de todas las UT y sus mercancía ingresadas en el medio de transporte hacia los estacionamientos transitorios y depósitos aduaneros indicados como destino inmediato en el manifiesto, con excepción de las mercancías que serán sometidas a los regímenes de depósito en bodegas de aduana o estén amparadas a declaraciones aduaneras presentadas en forma anticipada. El tiempo de recorrido para cada UT, desde el puerto de arribo hasta la ubicación de destino dentro de la jurisdicción de la aduana de ingreso, no debe superar el plazo de una hora, contado desde el inicio del viaje registrado en la aplicación informática.
-(*)14º) bis. Para aquellos casos que no se ajusten a lo establecido en el punto anterior, se deberá seguir el siguiente procedimiento:
-a. Si el transportista internacional (naviera) declara en el manifiesto de carga como destino final el puerto de ingreso, el agente aduanero o el transportista aduanero, podrán transmitir electrónicamente la movilización de las mercancías (viaje) hacia las siguientes ubicaciones dentro de la misma jurisdicción de la aduana de ingreso:
-i. Un estacionamiento transitorio.
-ii. Un depósito aduanero.
-b. Si el transportista internacional (naviera) declara en el manifiesto de carga como destino final un ET, el agente aduanero o el transportista aduanero podrán transmitir electrónicamente la movilización de las mercancías (viaje) únicamente hacia un depósito aduanero de misma la jurisdicción.
-(*)(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho numeral el mismo fue adicionado)
+(*)14º) bis.. Para aquellos casos que no se ajusten a lo establecido en el punto anterior, se deberáseguir el siguiente procedimiento:
+a. Si el transportista internacional (naviera) declara en el manifiesto de carga como destino final el puerto de ingreso, el agente aduanero autorizado para declarar tránsito o el transportista aduanero, podrán transmitir la declaración electrónicamente para el traslado de las mercancías a un depósito aduanero de la misma jurisdicción.
+b.Si el transportista internacional (naviera) declara en el manifiesto de carga como destino final un ET, el agente aduanero autorizado para declarar tránsito o el transportista aduanero podrán transmitir electrónicamente la declaración de traslado si las mercancías se someten al régimen de depósito aduanero en la misma la jurisdicción.
+c. Si el transportista internacional (naviera) declara en el manifiesto de carga como destino final el puerto o un ET y el consignatario requiere someter las mercancías a un tránsito aduanero, previo cambio de la ubicación final declarada en el manifiesto, el transportista aduanero o el agente aduanero autorizado para declarar tránsito deberá transmitir electrónicamente la declaración de tránsito.
+d.Si el transportista internacional (naviera) declara en el manifiesto de carga como destino final el puerto o un ET y el consignatario corresponde a una empresa de perfeccionamiento activo ubicada en la jurisdicción de la aduana de ingreso, previo cambio de la ubicación final declarada en el manifiesto, el transportista aduanero o el agente aduanero autorizado para declarar tránsito deberá transmitir electrónicamente la declaración de traslado.
+(*)(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho numeral fue adicionado. Posteriormente mediante resolución RES-DGA-122 del 7 de abril de 2010, se reforma el inciso 14 bis) anterior)
 15) Cuando del medio de transporte se hayan descargado bultos sueltos, para autorizar su movilización desde la zona de ingreso, será necesario que se embalen y se coloquen en las UT que reúnan las condiciones de seguridad, con excepción de las personas fallecidas, los animales vivos, las mercancías inflamables, corrosivas, contaminantes, tóxicas, peligrosas, radioactivas y aquellas que por su volumen, características o peso no puedan ser embaladas.
 (*)16) Las mercancías que permanezcan en bodegas y zonas administradas por autoridades aduaneras, deberán ser descargadas, almacenadas, custodiadas e incluidas en el inventario por parte del funcionario aduanero responsable de dichas instalaciones. Tratándose de mercancías que permanezcan en zona portuarias, por un plazo superior a 15 días hábiles desde su arribo a puerto de ingreso, sin que hayan sido destinadas a un régimen aduanero, deberán ser movilizadas de manera inmediata por el transportista aduanero responsable de su ingreso, a un depositario aduanero de la jurisdicción para ser registradas en condición de abandono.
 (*)(Así reformado mediante resolución DGA-132 del 21 de abril de 2009)
@@ -195,22 +196,22 @@ b. Si el transportista internacional (naviera) declara en el manifiesto de carga
 (*)31) Los cambios en la información declarada que puedan surgir producto de las operaciones aduaneras, serán notificados al declarante a través de mensajes a su casillero electrónico, lo anterior en observancia a lo establecido en la normativa vigente. Cuando el mensaje del manifiesto o de la DTI se reciba por medio del representante del declarante dichos cambios le serán notificados a representante, quien deberá coordinar con el declarante lo correspondiente.
 (*)(Así adicionado mediante resolución DGA-672 del 6 de febrero de 2006)
 32) Ver observaciones a la norma.
-33) (Ver obaservaciones a la norma.) Mediante la aplicación de criterios de riesgo y a través del sistema informático del SNA, se admitirá cuáles UT y sus mercancías, deben colocárseles precinto electrónico, lo anterior, una vez oficializado el manifiesto de ingreso.
-(Así reformado mediante resolución RES-DGA-057 del 16 de febrero de 2010)
+33) Ver obaservaciones a la norma.
+(Derogado el punto 33) anterior mediante resolución RES-DGA-122 del 7 de abril de 2010)
 34) Todo contenedor que no contenga carga, manifestado por el transportista en esa condición, para su salida de la zona portuaria deberá estar asociado con un control de viaje tipo MIC.
 (Así adicionado el inciso anterior mediante resolución N° RES-DGA-262-2009 del 8 de setiembre de 2009)
 35) Los viajes tipo MIC, asociados con unidades contenedoras que no contengan carga, adquirirán el estado de completo (COM) a partir del momento en que la persona encargada del portón de salida de la zona portuaria, registre la salida del contenedor en el Módulo de Control de Viajes del Sistema TICA.
 (Así adicionado el inciso anterior mediante resolución N° RES-DGA-262-2009 del 8 de setiembre de 2009)
 36º) Una vez oficializado el manifiesto de ingreso marítimo, el transportista naviero deberá verificar en la consulta WEB o en su casillero, las UT seleccionadas por la aplicación informática para la colocación de precinto electrónico, en cuyo caso deberá de manera inmediata coordinar con la empresa homologada a efectos de que ésta se presente en la zona portuaria a la colocación del mismo.
-(Así adicionado el inciso anterior mediante resolución N° RES-DGA-057 del 16 de febrero de 2010)
+(La adición practicada al inciso anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de esta norma al estado anterior a dicha adición)
 37º) La empresa homologada una vez descargada la UT del medio de transporte, deberá colocar el precinto electrónico en un plazo no mayor de dos minutos, sin necesidad que dicha UT interrumpa la continuidad del proceso descarga, movilización y salida en la zona portuaria.
-(Así adicionado el inciso anterior mediante resolución N° RES-DGA-057 del 16 de febrero de 2010)
+(La adición practicada al inciso anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de esta norma al estado anterior a dicha adición)
 38º) La empresa homologada una vez colocado el precinto electrónico en las puertas de cierre de la UT, deberá activarlo en un plazo máximo de cinco minutos, mediante el envío de un mensaje a la aplicación informática, dicha actuación deberá realizarla de previo a la salida de la UT de la zona portuaria y registro del inicio del viaje por parte de las Autoridades Portuarias.
-(Así adicionado el inciso anterior mediante resolución N° RES-DGA-057 del 16 de febrero de 2010)
+(La adición practicada al inciso anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de esta norma al estado anterior a dicha adición)
 39º) El auxiliar de la función pública aduanera que declare en el sistema informático la movilización de la UT y sus mercancías hacia el destino final, será el que responda ante el SNA por la colocación del precinto electrónico y los posibles eventos que registre dicho dispositivo.
-(Así adicionado el inciso anterior mdiante resolución N° RES-DGA-057 del 16 de febrero de 2010)
+(La adición practicada al inciso anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de esta norma al estado anterior a dicha adición)
 40º) El precinto electrónico, se colocará solo en UT cerradas y para transporte de mercancías secas, lo anterior, hasta tanto se cuente con precintos electrónicos que puedan colocarse en UT abiertas tales como plataformas y arañas.
-(Así adicionado el inciso anterior mediante resolución N° RES-DGA-057 del 16 de febrero de 2010)
+(La adición practicada al inciso anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de esta norma al estado anterior a dicha adición)
 II. De la Transmisión del Manifiesto de Carga
 A. Actuaciones del Transportista Internacional y Consolidador de Carga
 (*)1) El transportista aduanero internacional transmitirá en forma electrónica el manifiesto de ingreso con la antelación que se desee pero siempre antes de los plazos que a continuación se detallan:
@@ -287,12 +288,12 @@ C. Actuaciones de la Aduana
 4) La aplicación informática oficializará la información del manifiesto de salida 48 horas naturales después de la salida efectiva del medio de transporte.
 5) En ingreso por vía terrestre, el funcionario ubicado en el portón de entrada de los medios de transporte, las UT y mercancías, introducirá en la aplicación informática el nombre del transportista aduanero, el número de la matrícula del camión, el número de UT y los números de precintos de alta seguridad.
 6) Al momento de la oficialización del manifiesto de ingreso, la aplicación informática determinará, con base en los criterios de riesgo, si corresponde participación de la aduana en el proceso de descarga o en la recepción de la UT en ingreso terrestre, información que le será comunicada al transportista en forma inmediata y además quedará disponible en el sitio Web de la DGA. En el caso de ingreso marítimo, se comunicará por los mismos medios la asignación de precinto electrónico a la UT y sus mercancías.
-(Así reformado el punto anterior mediante resolución RES-DGA-057 del 16 de febrero de 2010)
+(La reforma practicada al inciso anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de este inciso al estado anterior a dicha reforma)
 IV. De la Descarga del Medio de Transporte
 A. Actuaciones del Transportista Internacional
 1) Si corresponde participación de la autoridad aduanera en el proceso de descarga, le entregará al funcionario aduanero un ejemplar del manifiesto de carga cuya información debe ser idéntica a la transmitida. De no presentarse el funcionario designado, podrá iniciar con el proceso de descarga sin su presencia.
 1º) bis. Una vez oficializado el manifiesto de ingreso marítimo, verifica en el reporte de UT las que fueron seleccionadas para portar precinto electrónico y de manera inmediata coordina con la empresa homologada.
-(Así adicionado el punto anterior mediante resolución N° RES-DGA-057 del 16 de febrero de 2010)
+(La adición practicada al inciso anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de esta norma al estado anterior a dicha adición)
 2) De corresponder participación de alguna otra autoridad gubernamental, por haber sido ingresada una observación en el manifiesto de carga, coordinará con el funcionario encargado de la entidad gubernamental, previo al inicio del proceso de descarga.
 3) Si no corresponde participación de la autoridad aduanera u otra de carácter gubernamental, en forma inmediata y en coordinación con la autoridad portuaria o aeroportuaria, procederá a descargar la mercancía, verificando contra la información del manifiesto transmitido al menos lo siguiente:
 a) la cantidad de UT y/o bultos sueltos descargados.
@@ -340,13 +341,13 @@ B Actuaciones de la Autoridad Portuaria o Aeroportuaria
 9) Cuando se trate de granel o “mercancías en sacos o bultos no paletizados”, digitará la fecha de fin de la descarga. Esta fecha se tomará para la contabilización del plazo para la caída en abandono para este tipo de mercancías.
 10) Lo relacionado con la salida de las UT y sus mercancías del puerto aduanero, se incluyen en los apartes denominados “De la salida de mercancías del canal de tránsito para la importación de la terminal de carga aérea” y “De la salida de mercancías del puerto de arribo marítimo”.
 (*)D.- Actuaciones de la Empresa Homologada
-1º)Al recibir la comunicación del auxiliar de la función pública aduanera, de manera inmediata se presenta a la zona portuaria con el listado de las UT a las que debe colocar precinto electrónico.
-2º)Una vez descargada la UT del medio de transporte coloca en las puertas de cierre, el precinto electrónico asegurándose la colocación correcta el mismo.
+1º) Al recibir la comunicación del auxiliar de la función pública aduanera, de manera inmediata se presenta a la zona portuaria con el listado de las UT a las que debe colocar precinto electrónico.
+2º) Una vez descargada la UT del medio de transporte coloca en las puertas de cierre, el precinto electrónico asegurándose la colocación correcta el mismo.
 3º) De manera inmediata a la colocación, envía el mensaje electrónico al sistema de monitoreo del SNA, con los siguientes datos:
 i. número del DUA o número de viaje cuando solo exista éste.
 ii. número de la UT donde se colocó el precinto electrónico.
 iii. número del precinto electrónico, que corresponde al número de precinto aduanero (precinto de botella) que porta la UT.
-(*)(Así adicionado el punto d) anterior mediante resolución RES-DGA-057 del 16 de febrero de 2010)
+(*)(La adición practicada al punto d) anterior por resolución RES-DGA-057 del 16 de febrero de 2010, posteriormente fue derogada por resolución RES-DGA-122 del 7 de abril de 2010. Se advierte que dicha derogación no se ha practicado a este inciso, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver el texto de esta norma al estado anterior a dicha adición)
 V. De los Faltantes y Sobrantes
 A. Actuaciones del Transportista o del Consolidador de Carga
 (*)1) Una vez finalizada la descarga y en caso de detectarse UT y/o bultos faltantes o sobrantes, pondrá estos últimos a disposición de la autoridad aduanera en forma inmediata y de así solicitarse los movilizará a las instalaciones del depósito indicado. En ingreso terrestre los bultos sobrantes deberán ser movilizados a la bodega de la aduana de ingreso para su registro en esa condición.
@@ -584,22 +585,27 @@ I. Políticas Generales
 12) No será necesaria la presentación a la aduana de una forma impresa del DUA, ni de los documentos obligatorios, sin embargo cada unidad de transporte con mercancía en tránsito aduanero deberá movilizarse acompañada de un “comprobante de salida” que se imprimirá en el portón de salida.
 13) El declarante deberá imprimir el “comprobante del DUA”, documento que utilizará únicamente para comunicar al responsable del lugar de ubicación de las mercancías, el número de DUA y viaje autorizados. La recepción de dicho documento no exime al auxiliar de la función pública aduanera que custodia las mercancías, de la responsabilidad de verificar en la aplicación informática la veracidad de la información mediante el envío del mensaje de salida y espera de su respectiva respuesta, si se trata de un depositario aduanero o mediante consulta en la WEB si se trata de otro tipo de auxiliar.
 14) El intercambio de información entre el SNA y los auxiliares de la función pública aduanera se realizará a través de la aplicación informática. Por ese medio se enviarán mensajes al casillero electrónico del auxiliar y también se pondrá a su disposición información relacionada con las operaciones aduaneras a través de la página Web de la DGA. Es obligación del auxiliar estar atento a la recepción de mensajes electrónicos y consultar permanentemente la información puesta a su disposición.
-(*)15) Cuando se realicen movimientos de mercancías entre dos ubicaciones se confeccionarán DUA con viaje o solamente viajes (sin DUA) de acuerdo a los siguientes criterios:
-de puerto a ET | Solo viaje
-de puerto a depósito misma jurisdicción | solo viaje
-de puerto a depósito de otra jurisdicción | DUA
-de ET a depósito misma jurisdicción | solo viaje
-de ET a depósito otra jurisdicción | DUA
-de depósito a depósito de la misma jurisdicción | DUA
-de depósito a depósito de jurisdicciones diferentes | DUA
-de depósito de desconsolidación a depósito misma jurisdicción | solo viaje
-de depósito de desconsolidación a depósito otra jurisdicción | DUA
-de puerto de ingreso a puerto de egreso | DUA
-k) de empresa a puerto de egreso | DUA
-l) de depósito de jurisdicción a puerto de egreso | DUA
-m) de depósito otra jurisdicción a puerto de egreso | DUA
-n) de depósito o puerto de salida a Golfito o Tiendas libres | DUA
-(*)(Así reformado mediante resolución DGA-672 del 6 de setiembre de 2006)
+(*)15º) Cuando se realicen movimientos de mercancías entre dos ubicaciones se confeccionarán DUA con viaje o solamente viajes (sin DUA) de acuerdo a los siguientes criterios:
+a) de puerto a ET viaje
+b) de puerto a depósito misma jurisdicción DUA
+c) de puerto a depósito de otra jurisdicción DUA
+d) de ET a depósito misma jurisdicción DUA
+e) de ET a depósito otra jurisdicción DUA
+f) de depósito a depósito de la misma jurisdicción DUA
+g) de depósito a depósito de jurisdicciones diferentes DUA
+h) de puerto de ingreso aéreo a depósito de
+desconsolidación viaje
+i) de depósito de desconsolidación a depósito
+misma jurisdicción viaje
+j) de depósito de desconsolidación a depósito
+otra jurisdicción DUA
+k) de puerto de ingreso a puerto de egreso de otra
+jurisdicción DUA
+l) de empresa a puerto de egreso DUA
+m) de depósito a puerto de egreso DUA
+n) de depósito o puerto de salida a Golfito
+o Tiendas libres DUA
+(*)(Así reformado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 (*)16) Los documentos obligatorios que sustentan la declaración aduanera, según la modalidad de tránsito no serán digitalizados, no obstante los mismos deberán presentarse ante el funcionario aduanero responsable del proceso de supervisión cuando haya correspondido y permanecer adjuntos al comprobante de salida durante la operación de tránsito. Asimismo una copia de la documentación deberá ser archivada y custodiada por el auxiliar de la función pública aduanera o su representante para los transportistas de los países signatario, durante el plazo que establece la legislación vigente.
 (*)(Así reformado mediante resolución DGA-672 del 6 de setiembre de 2006)
 (*)17) El inventario de las mercancías destinadas a tránsito aduanero podrán ser asociados al DUA en distintos momentos durante el proceso de autorización del régimen, para lo que deberán declarar en el campo denominado “momento de declaración del inventario”, la opción según el siguiente detalle:
@@ -639,17 +645,41 @@ Las operaciones de consolidación, carga y descarga de mercancías que requieran
 38) Los envases, cilindros y estañones reutilizables y otros elementos de transporte que contienen o embalan mercancías de importación y que por su naturaleza deben ser reexportados posteriormente, deberán declararse en dos líneas del DUA de tránsito, a efectos de facilitar los trámites posteriores de importación definitiva y temporal.
 (*)39) Por regla general el mensaje del DUA de tránsito será realizado el transportista aduanero, no obstante para el caso de DTI dicho intercambio también podrá ser realizado por su representante.
 (*)(Así adicionado mediante resolución DGA-672 del 6 de setiembre de 2006)
-(*)40) Hasta tanto el Reglamento Tránsito Internacional Terrestre no disponga lo contrario, para movilizarse en el territorio aduanero de los países signatarios será necesario la presentación impresa de la DTI y los documentos de respaldo establecidos en dicho Reglamento.
+(*)40) Todas las UT y sus mercancías que se movilicen entre depósitos aduaneros, sean o no de la misma jurisdicción, deberán movilizarse bajo precinto electrónico, previa autorización de la aduana. También deberá utilizarse el precinto electrónico, en el caso de un DUA de importación definitiva modalidad Golfito o tiendas libres. En ambos casos, la colocación y activación del mismo, se deberá hacer de previo a la salida del depósito aduanero o ubicación autorizada e inicio del viaje del DUA.
 (*)(Así adicionado mediante resolución DGA-672 del 6 de setiembre de 2006)
-41º) Todas las UT y sus mercancías que se movilicen al amparo de un DUA de tránsito entre depósitos aduaneros de la misma jurisdicción o con un DUA de importación definitiva modalidad Golfito o tiendas libres, deberán viajar con precinto electrónico, estos últimos indistintamente de la aduana donde se nacionalicen. En ambos casos, la colocación del mismo se deberá hacer de previo a la salida del depósito aduanero o ubicación autorizada e inicio del viaje del DUA.
-(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho punto el mismo fue adicionado)
-42º) Para las UT que en aplicación de los criterios de riesgos, se seleccionan para colocación de precinto electrónico, el sistema informático generará un reporte de cada una de las UT, mismo que será comunicado al transportista por medio del casillero electrónico del TIC@ y quedará disponible en la página WEB de DGA.
-(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho punto el mismo fue adicionado)
-43º) Las UT que no fueron seleccionadas para la colocación de precinto electrónico deberán seguir portando los dispositivos de seguridad con que ingresaron hasta su destinación final.
-(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho punto el mismo fue adicionado)
-44°) ver observaciones a la norma.
-45º) Aquellas UT y sus mercancías que inicien una operación de tránsito internacional terrestre no requieran ser movilizadas con precinto electrónico.
-(Así adicionado el inciso anterior mediante resolución RES-DGA-057 del 16 de febrero de 2010 )
+(Así reformado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+41º) Para los DUA de tránsito que en aplicación de criterios de riesgos, son seleccionados para la colocación de precinto electrónico, el sistema informático generará junto con el mensaje de respuesta del tipo de revisión asignado al DUA, la indicación de si debe o no portar precinto electrónico.
+(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho punto el mismo fue adicionado. Posteriormente mediante resolución RES-DGA-122 del 7 de abril de 2010, se reforma el inciso 41) anterior)
+42º) Los DUA de tránsito que no fueron seleccionadas para la colocación de los precintos electrónicos, la UT deberá seguir portando los precintos de alta seguridad que hasta la fecha se han utilizado.
+(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho punto el mismo fue adicionado. Posteriormente mediante resolución RES-DGA-122 del 7 de abril de 2010, se reforma el inciso 42) anterior)
+43º) Para que las mercancías puedan destinarse a otro régimen aduanero procedente, el responsable de la ubicación destino, debe completar el viaje generado por el DUA.
+(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reformar el inciso anterior. No obstante; al no existir dicho punto el mismo fue adicionado. Posteriormente mediante resolución RES-DGA-122 del 7 de abril de 2010, se reforma el inciso 43) anterior)
+44º) ver observaciones a la norma
+El responsable de la ubicación donde se localicen las mercancías amparadas al DUA seleccionado para portar precinto electrónico y el declarante, serán los responsable de comprobar que la UT y sus mercancías, se les haya colocado dicho dispositivo. En todos los casos, el declarante será el responsable ante el SNA por la instalación y adecuado uso del precinto electrónico. La custodia de las mercancías durante el recorrido será responsabilidad del transportista aduanero encargado de la movilización.
+(Así reformado mediante resolución RES-DGA-122 del 7 de abril de 2010)
+45º) La empresa homologada deberá disponer de una cuenta de correo electrónico por medio de la cual, el declarante del tránsito deberá contactarlo y solicitarle la colocación y retiro del precinto electrónico en el día y hora que este lo requiera. Dichas cuentas de correo estarán disponibles en la página WEB del Ministerio de Hacienda, en la siguiente dirección http://www. hacienda.go.cr/Msib21/Espanol/TICA/tc_marchamo.htm.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-057 del 16 de febrero de 2010. Posteriormente mediante resolución RES-DGA-122 del 7 de abril de 2010, se vuelve a adicionar el inciso anterior)
+46º) Si la empresa homologada no se presenta al lugar de ubicación en la fecha y hora acordada con el declarante o no cuenta con suficientes precintos electrónicos para colocarle a los DUA seleccionados, el declarante deberá coordinar con las demás empresas homologadas a efecto de cumplir con el requisito. A manera de excepción y de ser difícil o materialmente imposible cumplir con el requerimiento, deberá reportarlo a la aduana de control, por medio de un correo electrónico creado para esos efectos, para que ésta determine si autoriza o no el inicio de tránsito sin portar dicho dispositivo. Las cuentas de correo, según la aduana de control, se encuentran disponibles en la dirección http://www.hacienda.go.cr/Msib21/Espanol/TICA/tc_marchamo.htm.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+47º) El funcionario aduanero responsable de la supervisión de los correos electrónicos, establecidos para que el declarante comunique el incumplimiento de la empresa homologada, deberá resolver la solicitud en el plazo máximo de una hora hábil. De no recibirse respuesta dentro del plazo establecido, el responsable del lugar de ubicación podrá autorizar la salida del medio de transporte previa indicación de lo correspondiente en el mensaje de inicio del viaje.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+48º) Los correos electrónicos enviados por el declarante, solicitando la autorización del inicio del tránsito aduanero sin portar el precinto electrónico, deberán enviarse dentro del horario hábil de la aduana de control, considerando el plazo de una hora que dispone el funcionario para resolver la solicitud. El responsable de la ubicación donde se localice la UT, deberá verificar el cumplimiento de este requisito con la impresión de los correos enviados por el declarante.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+49º) Para los DUA de tránsito aduanero que en aplicación de criterios de riesgo hayan sido seleccionados para portar precinto electrónico, los momentos de colocación y activación del mismo serán los siguientes:
+i. En la revisión documental, una vez autorizado el levante y antes del inicio del tránsito.
+ii. En la revisión documental y reconocimiento físico, finalizada la revisión por parte del funcionario aduanero en el lugar de ubicación y en presencia de este.
+iii. Sin revisión, una vez autorizado el levante y antes del inicio del tránsito.
+(Así adicionado el inciso anterior mediante resoluciónRES-DGA-122-2010 del 7 de abril de 2010)
+50º) El precinto electrónico, se utilizará en tránsito aduanero que se ejecute en UT cerradas, lo anterior, hasta tanto se cuente con precintos electrónicos que puedan colocarse en UT abiertas tales como plataformas y arañas.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+51º) La empresa homologada deberá colocar el precinto electrónico en los DUA seleccionados y una vez colocado el mismo en las puertas de cierre de la UT, deberá activarlo, mediante el envío del mensaje correspondiente a la aplicación informática. Dicha actuación deberá realizarla de previo a la salida de la UT del lugar de ubicación donde se localice las mercancías.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+52º) Cuando en aplicación de los criterios de riesgo, un DUA de tránsito ha sido seleccionado para portar precinto electrónico y este a su vez es correlacionado con otros DUA, a efectos de tener un mismo viaje, a la UT se le deberá colocar dicho dispositivo hasta el destino final del DUA seleccionado, el resto del recorrido de los demás DUA, se podrá realizar con los precintos de alta seguridad utilizados hasta la fecha.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+53º) Cuando en aplicación de los criterios de riesgo, un DUA de tránsito ha sido seleccionado para portar precinto electrónico y las mercancías se encuentren contenidas en más de una UT, la totalidad de las mismas deberán portar dicho dispositivo.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+54º) Para las mercancías de ingreso marítimo que hayan sido sometidas a tránsito anticipado y que se encuentren en estado VIA , una vez oficializado el manifiesto de ingreso y que en aplicación de criterios de riesgo deben portar precinto electrónico, la colocación de dicho dispositivo podrá realizarse dentro del puerto de ingreso o en las instalaciones del ET, si fueron movilizadas en forma masiva por el transportista naviero. De colocarse el precinto electrónico en las instalaciones del ET, la colocación y activación del dispositivo deberá realizarse en el plazo máximo de una hora, contada a partir del ingreso de la UT a dicha ubicación. El declarante, deberá tomar las previsiones del caso para cumplir el plazo establecido para la finalización del tránsito aduanero.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 II. De la Elaboración, Envío de Imágenes y Aceptación de la Declaración
 A. Actuaciones del Declarante
 1) Elaboración de la Declaración
@@ -774,10 +804,11 @@ a) si lo envía dentro del horario de asignación del tipo de revisión, recibir
 b) si lo envía fuera del horario descrito en el punto anterior, recibirá la comunicación sobre el tipo de revisión asignado y el funcionario responsable, a través de un mensaje de notificación electrónica o de la página WEB de la DGA, al inicio del horario de asignación del tipo de revisión del día hábil siguiente.
 4) De haber indicado en el mensaje del DUA que solicitaba la asignación del tipo de revisión en forma posterior y no haber enviado el mensaje de solicitud, la información relacionada con el tipo de revisión y funcionario asignado la recibirá a través de un mensaje de notificación electrónica o de la página WEB de la DGA, al inicio del horario de asignación del tipo de revisión del día hábil siguiente.
 5) Según criterios de riesgo y parámetros predefinidos, como resultado podrá recibir un mensaje con indicación de que le corresponde alguno de los siguientes criterios de revisión:
-a) “revisión documental”
-b) “revisión documental y física”
-c) “sin revisión”
-además se le indicará el nombre e identificación del funcionario responsable para los DUA que les correspondió revisión documental y revisión documental y física.
+a) “revisión documental”,
+b) “revisión documental y física”,
+c) “sin revisión”;
+además se le indicará el nombre e identificación del funcionario responsable para los DUA que les correspondió revisión documental y revisión documental y física y si debe portar o no precinto electrónico.
+(Así reformado el inciso 5) anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 B. Actuaciones de la Aduana
 (*)1) Al momento de recibir un mensaje intermedio de solicitud del tipo de revisión, la aplicación informática validará que en el mensaje del DUA se hubiera optado por no solicitar dicha asignación en forma inmediata, que el DUA esté aceptado, y que se haya recibido el mensaje de correlación cuando corresponda, caso contrario, la aplicación informática indicará en el mensaje de respuesta el código de error correspondiente.
 (*)(Así reformado mediante resolución DGA-672 del 6 de setiembre de 2006)
@@ -790,10 +821,11 @@ b) si dicha solicitud se recibe fuera del horario de asignación del tipo de rev
 4) De haber indicado el declarante en el mensaje del DUA que solicitaba el tipo de revisión en forma posterior y no haberse recibido el mensaje intermedio de solicitud, la aplicación informática pondrá a disposición del declarante la información relacionada con el tipo de revisión y funcionario asignado, a partir del inicio del horario de asignación del tipo de revisión del día hábil siguiente, a través de un mensaje de notificación electrónica o de la página WEB de la DGA.
 5) En el caso anterior, la aplicación asignará el tipo de revisión y lo comunicará al funcionario responsable en caso de revisión documental y revisión documental y reconocimiento físico, al inicio del horario administrativo del día hábil siguiente.
 6) La aplicación informática, según criterios de riesgo y parámetros predefinidos, asignará alguno de los siguientes criterios de revisión:
-a) “revisión documental”
-b) “revisión documental y física”
-c) “sin revisión”
-además asignará el funcionario responsable en caso de revisión documental y revisión documental y física.
+a) “revisión documental”,
+b) “revisión documental y física”,
+c) “sin revisión”;
+además indicará el nombre del funcionario responsable en caso de revisión documental y revisión documental y reconocimiento físico y si al DUA se le asignó precinto electrónico.
+(Así reformado el inciso 6) anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 7) El jefe de Departamento Técnico de la aduana de control deberá mantener actualizada la información de los funcionarios designados para los procesos de revisión según el lugar de ubicación de las mercancías.
 8) Del conjunto de funcionarios designados para realizar las revisiones documentales y documentales y físicas, la aplicación informática seleccionará en forma aleatoria al funcionario correspondiente.
 VI. De la Revisión Documental
@@ -852,6 +884,8 @@ Tratándose de tránsito internacional terrestre de paso deberá aportar la docu
 6) Cuando no se realice el pago de un ajuste en el tributo por concepto de la Ley Caldera dentro del plazo de cinco días, tendrá adicionalmente que cancelar el monto de los intereses adeudados a la fecha del pago.
 (*)7) El declarante consultará a través de la WEB el resultado de la revisión documental y el correspondiente cambio del DUA al estado de “autorizado”, para proceder al inicio del tránsito de las mercancías dentro de un plazo máximo de 72 horas naturales contadas a partir de dicha autorización. Tratándose de tránsito internacional terrestre de paso deberá iniciar la movilización en forma inmediata.
 (*)(Así reformado mediante resolución DGA-672 del 6 de setiembre de 2006)
+8º) El declarante conociendo el cambio de estado del DUA ( VIA ) que le permite el inicio del tránsito aduanero, coordina con la empresa homologada para la colocación y activación del precinto electrónico en la UT en el lugar de ubicación donde se localicen las mercancías.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 VII. De la Revisión Documental y el Reconocimiento Físico
 A. Actuaciones de la Aduana
 1) La aplicación informática asignará los DUA entre los funcionarios encargados de realizar la verificación exterior de la UT y/o bultos autorizados en el régimen de tránsito aduanero.
@@ -874,6 +908,8 @@ d) tratándose de bultos sueltos y/o mercancías que fueron descargadas previame
 e) levantará y firmará un acta de las mercancías sobrantes o faltantes, la que también deberá estar firmada por el declarante. Tratándose de faltantes realizará los ajustes correspondientes en la aplicación informática. Para el caso de sobrantes, una vez incluido el sobrante en el manifiesto de ingreso, el funcionario incluirá una nueva línea en el DUA de tránsito con dicha mercancía y luego autorizará la continuación de la movilización del tránsito por la totalidad de los bultos, incluidos los sobrantes; mientras lo anterior no se realice toda la mercancía permanecerá en custodia del depositario en que se efectuó la revisión.
 f) si determina que la mercancía requiere del cumplimiento de un requisito no arancelario (nota técnica) verificará que se haya satisfecho tal requerimiento, caso contrario no autorizará el inicio del tránsito.
 g) de existir diferencias entre lo declarado y lo verificado en el reconocimiento, que no sean de faltantes o sobrantes, el funcionario aduanero realizará los ajustes en el DUA, enviará un mensaje al declarante con las observaciones respectivas no autorizando el tránsito y las mercancías se mantendrán bajo custodia en las instalaciones del depositario de revisión. Transcurrido el plazo de tres días hábiles para presentar impugnaciones, se procederá conforme a derecho.
+h.) de haber sido seleccionadas las mercancías amparadas al DUA de tránsito para portar precinto electrónico, finalizado el proceso de reconocimiento físico, verifica que se coloque el mismo en la puertas de la UT por parte de la empresa homologada, adicionalmente deja constancia en la aplicación informática que dicho dispositivo fue colocado y activado.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 8) La información de los DUA objeto de modificaciones quedarán identificados en la aplicación informática a efectos de facilitar el inicio de los procedimientos sancionatorios correspondientes.
 9) Si la verificación física es conforme, el funcionario encargado deberá introducir el resultado en la aplicación informática, con lo que se autorizará el DUA tránsito y la salida de la UT y sus mercancías.
 10) Si el resultado de la revisión documental y física no es conforme, se seguirá en lo pertinente, el procedimiento establecido en el numeral A.-) 5°) de la sección VI “De la Revisión Documental”.
@@ -897,10 +933,13 @@ A. Actuaciones de la Aduana
 B. Actuaciones del Declarante
 1) Cuando el sistema asigne sin revisión el declarante, se debe presentar e identificar en la ubicación de salida de las mercancías y solicitará el despacho de la UT, de acuerdo con lo establecido en la sección siguiente de este manual.
 2) En todos los casos el declarante podrá consultar a través de la WEB el estado en que se encuentra el DUA y el avance en los distintos procesos de revisión.
+3º) El declarante conociendo el cambio de estado del DUA que le permite el inicio del tránsito aduanero ( VIA ), coordina con la empresa homologada para la colocación y activación del precinto electrónico en la UT en el lugar de ubicación donde se localicen las mercancías.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 IX. Del Inicio del Tránsito
 A. Actuaciones del Transportista Terrestre
 1) Autorizado el DUA de tránsito de las mercancías, el transportista se presentará ante el funcionario aduanero o representante de la zona de operación aduanera en donde se encuentran las mercancías y solicitará la salida de las mercancías y/o UT con la presentación del comprobante del DUA impreso.
-2) Si se trata de un DUA de tránsito presentado en forma anticipada al arribo del medio de transporte, inmediatamente después de oficializado el manifiesto y autorizado el inicio de la movilización, deberá presentarse al lugar de descarga para proceder al despacho directo de la UT y/o mercancías.
+2) Si se trata de un DUA de tránsito presentado en forma anticipada al arribo del medio de transporte, inmediatamente después de oficializado el manifiesto y autorizado el inicio de la movilización, deberá presentarse al lugar de descarga para proceder al despacho directo de la UT y mercancías, previa verificación de que porta el precinto electrónico, si le ha correspondido.
+(Así reformado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 3) Tratándose de mercancía ubicada en instalaciones portuarias o estacionamientos transitorios, el transportista movilizará el medio de transporte hacia el portón de salida y solicitará al encargado del portón, la salida de la UT y/o mercancías, mediante la presentación del comprobante de DUA, o comunicación en forma verbal del número de viaje para el caso de movilizaciones desde el puerto de arribo a ubicaciones dentro de la misma jurisdicción, según se detalla en las políticas generales de este procedimiento.
 4) Tratándose de mercancía ubicada en instalaciones de un depósito aduanero solicitará al encargado del mismo, mediante la presentación del comprobante de DUA, la salida de las mercancías, supervisará su carga y marchamará la UT.
 (*)5) Una vez autorizado el tránsito aduanero, el transportista deberá iniciar la movilización de la UT y/o mercancías dentro del término de las setenta y dos horas naturales siguientes, contadas a partir de su autorización. Tratándose de tránsito internacional terrestre de paso deberá iniciar la movilización en forma inmediata.
@@ -908,6 +947,8 @@ A. Actuaciones del Transportista Terrestre
 6) Cuando haya tenido que movilizar la UT con mercancías a las instalaciones de un depositario aduanero de la misma jurisdicción de la aduana de ingreso, a efectos de que se realice la verificación de la cantidad de bultos y peso o el reconocimiento físico de las mercancías, deberá esperar que este proceso se ejecute y una vez autorizado por la autoridad aduanera, deberá precintar de nuevo la UT y continuar con el tránsito hacia el lugar de destino final.
 7) Por cada UT y/o mercancías que movilice con un DUA de tránsito, de ingreso al régimen de zona franca o de perfeccionamiento activo o de importación definitiva con forma de despacho VAD o DAD, recibirá del representante del lugar de ubicación, un comprobante de salida, el que contendrá la información del transportista, del chofer, de la UT, mercancías que transporta, números de precintos, así como el trayecto que debe realizar y el tiempo máximo autorizado para llegar al destino dentro del territorio nacional y lo entregará junto con las mercancías, al responsable del deposito de destino.
 8) El transportista deberá velar porque el registro de los conductores, matrículas y registro de los medios de transporte se encuentren debidamente actualizado ante el SNA.
+9º) El transportista responsable de la movilización verificará que en caso de que el DUA de tránsito haya sido seleccionado para portar precinto electrónico, el mismo se haya colocado en la UT, caso contrario deberá comunicarlo al declarante.
+(Así adicionado el inciso anterior mediante RES-DGA-122-2010 del 7 de abril de 2010)
 B. Actuaciones del lugar de ubicación de la UT y sus mercancías
 1) Recibirá por parte del transportista terrestre el comprobante del DUA para el egreso de las mercancías y/o UT.
 2) Tratándose de mercancía ubicada en instalaciones de un depositario aduanero, con la información del comprobante del DUA como referencia, verificará que los datos de número de inventario, la cantidad de bultos y peso que deba cargar coincidan con sus registros.
@@ -920,6 +961,8 @@ b) autorizada la salida, el representante del lugar de ubicación imprimirá un 
 c) autorizará el inicio de la movilización hasta que se hayan subsanado las diferencias encontradas.
 (*)d) adicionalmente completará en el o lo(s) formulario(s) de las DTI la información relacionada con el inicio de la operación de tránsito aduanero internacional o el control de paso de frontera.
 (*)(Así reformado mediante resolución DGA-672 del 6 de setiembre de 2006)
+e) verificará cuando al DUA le haya correspondido la colocación del precinto electrónico, que el mismo se encuentre colocado correctamente en la UT, caso contrario no autorizará el inicio del tránsito, salvo que la aduana de control haya autorizado el inicio de la movilización sin dicho dispositivo.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 C. Actuaciones de la Aduana
 1). Para UT y/o mercancías ubicadas en instalaciones portuarias o ET:
 1) Para el caso de aduanas de ingreso terrestre, el funcionario aduanero ubicado en el portón de salida del recinto aduanero, recibirá por parte del transportista la solicitud de egreso de la UT, mediante la presentación del comprobante del DUA.
@@ -935,11 +978,14 @@ a) para el caso de aduanas de ingreso terrestre y cuando se trate de una salida 
 b) en los casos que corresponda, controlará el número y el estado general del (los) precinto(s) para determinar que no existen señales de daño o apertura del contenedor, si todo está correcto, autorizará la salida, caso contrario, impedirá la movilización y lo comunicará al transportista y a la jefatura inmediata, para lo procedente
 (*)c) completará en el o lo(s) formulario(s) de las DTI la información relacionada con el inicio de la operación de tránsito aduanero internacional o el control de paso de frontera.
 (*)(Así adicionado mediante resolución DGA-672 del 6 de setiembre de 2006)
+d) verificará que para los DUA que hayan sido seleccionados para portar precinto electrónico, el mismo se encuentre colocado correctamente en la UT.
+(Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 2). Para UT y/o mercancías ubicadas en depositarios aduaneros:
 1) Recibido el mensaje de salida por parte del depositario, la aplicación informática validará la información y devolverá un mensaje de respuesta con la indicación de si se autorizará o no la salida.
 2) Si el documento de salida corresponde a un DUA de tránsito, DUA de importación con control de tránsito, exportación o de reexportación, la aplicación informática recibirá además del mensaje de salida, el del viaje, validará la información y de estar todo conforme autorizará el inicio de la movilización.
 3) Con la recepción del mensaje de salida del viaje, la aplicación informática registrará automáticamente la fecha y hora de inicio del tránsito aduanero.
-4) De recibir una comunicación de parte del depósito de la detección de alguna irregularidad, la jefatura de la Sección Técnica Operativa de la aduana de control, designará un funcionario para que efectúe la supervisión que corresponda.
+4) De recibir una comunicación de parte del depósito de la detección de alguna irregularidad, incluida la falta de colocación del precinto electrónico, la jefatura de la Sección Técnica Operativa de la aduana de control, designará un funcionario para que efectúe la supervisión que corresponda.
+(Así reformado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 5) El funcionario aduanero cuando haya participado en la supervisión de la carga de la mercancía a salir en tránsito aduanero, una vez finalizado dicho proceso deberá confeccionar el acta con los resultados, que firmarán el transportista aduanero y el depositario, introducirá los resultados de su actuación en la aplicación informática y remitirá los documentos firmados, a la jefatura inmediata a efectos de valorar los resultados obtenidos y acciones procedentes. Si alguno de los involucrados no estuviere presente, se dejará constancia de esta situación en el acta respectiva.
 X. De las Incidencias durante el Trayecto
 A. Actuaciones del Transportista
@@ -1023,13 +1069,31 @@ C. Actuaciones del Depósito
 D. Actuaciones de la Autoridad Portuaria o del Lugar de Ubicación de las mercancías
 1) Tránsito masivo
 1) La autoridad portuaria deberá para cada salida de UT amparada a un DUA de tránsito masivo, comprobar mediante la opción de consulta que el DUA tenga autorizada la salida y con el número de viaje como referencia verificará al menos los siguientes datos: número de UT, matrícula del cabezal, matrícula del chasis o plataforma según el caso, precintos, nombre e identificación del chofer y transportista y el código de la ubicación de destino inmediato y de existir diferencias registrarlas en la aplicación informática.
-(*)XIII. Procedimiento para el Retiro del Precinto Electrónico
+(*)XIII. Procedimiento para la Colocación del Precinto Electrónico
+A.- Actuaciones de la Empresa Homologada
+1º) Al recibir la comunicación del declarante con la que le informa, que un DUA debe portar precinto electrónico, en la hora y fecha acordada con el declarante, se presenta al lugar de ubicación de la UT y colocará dicho dispositivo. Cuando al DUA le haya correspondido revisión documental y reconocimiento físico, esperará a que el funcionario aduanero le solicite la colocación del precinto electrónico una vez que el funcionario aduanero haya terminado la revisión.
+2º) De manera inmediata a la colocación del precinto electrónico, envía el mensaje electrónico al sistema de monitoreo del SNA , para activar el dispositivo con los siguientes datos:
+i. número del DUA,
+ii. número de la UT a la que se colocó el precinto electrónico,
+iii. número del precinto electrónico, que corresponde al número de precinto aduanero (precinto de botella) que porta la UT.
+B.- Actuaciones de la Aduana
+1º) El funcionario aduanero designado para la revisión documental y el reconocimiento físico, verificará la colocación correcta y activación del precinto electrónico, antes del ingreso del resultado a la aplicación informática. El precinto se encuentra activo y no presenta ninguna anomalía, cuando muestra una luz en color verde.
+2º) De no presentarse la empresa homologada o de no contar ésta con precintos electrónicos suficientes, se aplicará lo establecido en las políticas generales 45º) a la 48º) inclusive.
+C.- Actuaciones del lugar de ubicación de la UT y sus mercancías
+1º) El responsable de la ubicación de inicio del tránsito aduanero, verificará previo a la salida de la UT que la misma se encuentre cerrada con precinto electrónico, cuando al DUA le corresponda utilizarlo.
+2º) El responsable de la ubicación de inicio indicará en el mensaje de inicio del viaje el tipo de precinto que porta la UT asociada al DUA de tránsito.
+3º) El responsable de la ubicación de inicio verificará que el precinto electrónico se encuentra activo y no presenta ninguna anomalía, comprobando que muestre una luz en color verde.
+(*)(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reforma toda la sección XIII). No obstante; al no existir dicha sección se ha adicionado. Posteriormente mediante resolución RES-DGA-122 del 7 de abril de 2010, se reforma la sección XIII) anterior)
+(*)XIV. Procedimiento para el Retiro del Precinto Electrónico
 A.- Actuaciones de la Ubicación de Destino
-1º) El responsable de empresa ZF, PA o depósito aduanero recibirá el comprobante del tránsito aduanero, la UT y sus mercancías y deberá corroborar que la ubicación de destino corresponda con la suya.
-2º) El responsable de empresa ZF, PA o depósito aduanero, revisará el estado del o los precintos y de la UT y confrontará la información del número de precinto, de la UT, de la matrícula del vehículo, de la identificación del conductor, entre otros datos con la contenida en la documentación presentada. Debe identificar la existencia de incidencias tales como que el precinto electrónico tenga luz roja, esté roto, la UT abierta o con signos de haber sido abierta durante el recorrido, el comprobante de tránsito esté alterado, entre otros aspectos. De presentarse alguna situación como las descritas, de forma inmediata lo comunica a la aduana de control.
-3º) El responsable de empresa ZF, PA o depósito aduanero consultará a la aduana de control si la descarga de la UT se realizará con intervención o no de funcionario aduanero. Si corresponde participación de la aduana, la empresa ZF, PA o depósito aduanero mantendrá la UT intacta, precintada electrónicamente y sin descargar y deberá esperar la presencia del funcionario aduanero en la fecha y hora indicada y del empleado de la empresa homologada responsable del retiro del precinto electrónico.
-4º) De estar todo correcto y habiendo coordinado con la aduana de control la finalización de tránsito, se comunica con la empresa homologada que colocó y activó el precinto electrónico, para el retiro del mismo. Dicho retiro deberá realizarse en presencia del funcionario aduanero cuando corresponda participación de la aduana de control y dentro del plazo autorizado para descargar las mercancías de la UT.
-(*)(Mediante resolución RES-DGA-057 del 16 de febrero de 2010, se indica reforma toda la sección XIII) anterior. No obstante; al no existir dicha sección se ha adicionado)
+1º) El responsable de la ubicación de destino recibirá el comprobante del viaje, la UT y sus mercancías y deberá corroborar que la ubicación corresponda con la suya.
+2º) El responsable de la ubicación destino, revisará el estado de los precintos y de la UT y confrontará la información del número de precinto, de la UT, de la matrícula del vehículo, de la identificación del conductor, entre otros datos con la contenida en la documentación presentada. Debe identificar la existencia de incidencias tales como que el precinto electrónico tenga luz roja, esté roto, la UT abierta o con signos de haber sido abierta durante el recorrido, el comprobante de tránsito esté alterado, entre otros aspectos. De presentarse alguna situación como las descritas, de forma inmediata lo comunica a la aduana de control.
+3º) El responsable de la ubicación destino, deberá dar fin al viaje, indicando que la UT porta o no precinto electrónico y consultará a la aduana de control si la descarga de la UT se realizará con intervención o no de funcionario aduanero. Si corresponde participación de la aduana, el responsable de la ubicación de destino mantendrá la UT intacta, precintada electrónicamente y sin descargar y deberá esperar la presencia del funcionario aduanero en la fecha y hora indicada y del empleado de la empresa homologada responsable del retiro del precinto electrónico.
+B.- Actuaciones del Declarante.
+1º) De estar todo correcto y habiéndose coordinado con la aduana de control la finalización de movilización, se comunica con la empresa homologada que colocó y activó el precinto electrónico, para el retiro del mismo en la hora y fecha programada para la descarga de la UT.
+C.- Actuaciones de la Empresa Homologada.
+1º) Al recibir la comunicación del declarante informándole que se presente a la ubicación destino para retirar el precinto electrónico, en la hora y fecha programada para la descarga, se presenta y retirará dicho dispositivo. Cuando corresponda participación de funcionario aduanero en la descarga de la UT, el retiro deberá realizarse en presencia de este.
+(Así adicionada la sección XIV) anterior por resolución RES-DGA-122 del 7 de abril de 2010)
 PROCEDIMIENTO DE DEPÓSITO
 Capitulo I - Base Legal
 1) Ley No. 8360 de fecha 24 de junio de 2003, publicada en La Gaceta No. 130 del 8 de julio de 2003, “Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano”.
