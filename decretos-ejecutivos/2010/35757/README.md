@@ -14,3 +14,4 @@ Arancel consular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-22 | la propia norma |
+| 2 | 2010-04-08 | Decreto Ejecutivo 35983 (2010-04-08) |
