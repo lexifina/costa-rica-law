@@ -1,0 +1,1 @@
+Artículo 6°—Posterior a la entrada en vigencia del presente decreto, la Dirección General de Geología y Minas dará por archivada toda solicitud de concesión minera que se encuentren en trámite dentro del área reservada en el artículo anterior, en razón de la prioridad por Conveniencia Nacional e Interés Público del Proyecto Hidroeléctrico Reventazón.

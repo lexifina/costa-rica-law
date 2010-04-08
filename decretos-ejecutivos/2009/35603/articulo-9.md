@@ -1,0 +1,1 @@
+Artículo 9°—Que a los efectos de esta declaratoria se exceptúa además al Instituto Costarricense de Electricidad del cumplimiento de los requisitos establecidos en el artículo 89 del Decreto Ejecutivo Nº 25721 para demostrar la propiedad en los inmuebles en los que se desarrollarán estas obras.

@@ -1,0 +1,1 @@
+Artículo 11.—Así mismo se exceptúa al ICE en la construcción del Proyecto Hidroeléctrico Reventazón de los artículos 4º y 5º del Decreto Ejecutivo Nº 33959, sobre el procedimiento técnico y ambiental para los movimientos de tierras, del Manual de Instrumentos Técnicos para el Proceso de Evaluación de Impacto Ambiental (Manual de EIA)-Parte V.
