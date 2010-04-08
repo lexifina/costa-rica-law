@@ -1,0 +1,1 @@
+Artículo 3º—El estudio técnico se realizará con base a la Metodología Para el Desarrollo de Proyectos de Distritalización de la Fuerza Pública con las Comunidades, establecida en el documento de Distritalización Policial Distrital.

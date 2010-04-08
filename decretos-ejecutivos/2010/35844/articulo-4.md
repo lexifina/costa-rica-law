@@ -1,0 +1,1 @@
+Artículo 4º—La Delegación Policial Distrital se constituye en la unidad policial encargada de la coordinación, articulación y control de la actividad operativa policial en su área de responsabilidad. Las delegaciones distritales estarán subordinadas a las delegaciones cantonales, éstas a las Direcciones Regionales y dichas Regiones a la Dirección General de la Fuerza Pública.

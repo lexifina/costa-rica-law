@@ -1,0 +1,5 @@
+Artículo 6º—Los Jefes de Delegación Distrital y sus colaboradores tendrán como principal cometido, cumplir con los siguientes preceptos doctrinarios:
+a) La aplicación de estrategias de seguridad basadas en la proximidad de la Policía con los habitantes de su distrito, que implica una relación de correspondencia con la población que da sustento a la política de seguridad comunitaria.
+b) La aplicación de la estrategia de Distritalización basado en los siguientes aspectos: máxima sectorización, alta especialización, respeto al deber de probidad, debido aprovechamiento del recurso humano y material, óptima adaptación a la demanda, acercamiento al ciudadano, adaptabilidad y ausencia de rigidez, estandarización de un modelo de trabajo sostenible en el plazo establecido.
+c) Relacionarse con las organizaciones comunales, según principios generales de rendición de cuentas ante la respectiva comunidad.
+d) Rescatar y fortalecer los valores fundamentales de la actuación policial, en primer lugar la disciplina, respeto a la cadena de mando, desarrollo de hábitos de ornato y aseo en las unidades policiales, así como el deber de probidad en su servicio.

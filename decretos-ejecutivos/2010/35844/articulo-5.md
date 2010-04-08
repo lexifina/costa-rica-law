@@ -1,0 +1,1 @@
+Artículo 5º—Las delegaciones distritales tendrán el personal de apoyo, administrativo y técnico, y los recursos materiales necesarios para el desempeño de sus funciones, de acuerdo a las posibilidades.
