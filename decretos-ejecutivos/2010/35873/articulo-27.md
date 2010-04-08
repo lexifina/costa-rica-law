@@ -1,0 +1,1 @@
+Artículo 27.—Las Unidades Ejecutoras que administran programas, proyectos y servicios, financiados con recursos del FODESAF, deberán planificar y documentar los procesos de identificación y selección de beneficiarios, someterlos al criterio técnico de la DESAF y atender las recomendaciones que la DESAF les formule, si es del caso.

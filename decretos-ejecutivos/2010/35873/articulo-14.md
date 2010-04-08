@@ -1,0 +1,1 @@
+Artículo 14.—La DESAF asignará como mínimo, un 4% del presupuesto ordinario del FODESAF al Instituto Mixto de Ayuda Social, (IMAS), para sus programas de asistencia y bienestar social. Para lo cual deberá aportar anualmente, el Plan Presupuesto del Programa, conforme a los artículos 10 del presente reglamento y 14 de la Ley Nº 5662 y su reforma, Ley Nº 8783.

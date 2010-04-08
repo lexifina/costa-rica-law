@@ -1,0 +1,1 @@
+Artículo 22.—El origen de los recursos para la contratación de personal a la que hacen referencia los artículos anteriores, no da lugar a establecer una responsabilidad patronal ni con FODESAF, ni la DESAF, en el tanto ninguna de las dos contrata al personal; no dirige la labor de éste y no realiza remuneración alguna, por lo tanto no podrá existir una relación de subordinación.

@@ -1,0 +1,1 @@
+Artículo 11.—Los recursos del FODESAF asignados por la DESAF, a las Instituciones Estatales, y a otras organizaciones para la ejecución de programas y servicios, no podrán ser utilizados para atender gastos administrativos, salvo las excepciones establecidas en la Ley Nº 5662 y su reforma, Ley Nº 8783.

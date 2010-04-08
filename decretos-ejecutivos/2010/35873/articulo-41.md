@@ -1,0 +1,1 @@
+Artículo 41.—Todas las instituciones a las cuales se les asignen recursos del FODESAF, deberán mantener de manera exclusiva, una cuenta bancaria, en uno de los bancos del sistema bancario nacional, para la administración de éstos.
