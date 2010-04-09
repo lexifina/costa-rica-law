@@ -1,26 +1,5 @@
 SECCION TERCERA:
 Otras disposiciones
-ARTÍCULO 24.- Alcances de la eliminación de restricciones no
-arancelarias a las importaciones y exportaciones.
-La eliminación de las restricciones no arancelarias a las
-importaciones y exportaciones de productos, a que se refiere el párrafo
-segundo del artículo 6 de la Ley, se entiende referida a toda licencia o
-permiso establecido por ley o reglamento. Se exceptúan los permisos
-previstos en las regulaciones que se mantengan por ser esenciales para la
-protección de la seguridad nacional, para la prevención de prácticas que
-puedan inducir a error, la protección de la salud o la seguridad humanas,
-de la vida o la salud animal o vegetal, o del medio ambiente. Igualmente,
-se exceptúan los expresamente previstos en leyes especiales o convenios
-internacionales, en particular todos aquellos permisos, licencias o
-contingentes contemplados en los Acuerdos de la Ronda Uruguay de
-Negociaciones Comerciales Multilaterales y en la Ley de Ejecución de los
-Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales,
-Nº 7473 de 19 de diciembre de 1994.
-En este mismo sentido, las normas administrativas sobre etiquetado
-de productos importados deberán estructurarse y aplicarse de modo que no
-puedan llegar a convertirse en una barrera no arancelaria, ya sea por su
-excesiva complejidad, porque otorguen atribuciones de interpretación
-discrecional a la Administración u otro motivo semejante. La CPC tendrá
-competencia para examinar y solicitar la revisión de estas normas cuando,
-en su criterio, violen lo dispuesto en este artículo, tanto de oficio
-como a petición de parte interesada.
+Artículo 24.- Alcances de la eliminación de restricciones no arancelarias a las importaciones y exportaciones. La eliminación de las restricciones no arancelarias a las importaciones y exportaciones de productos, a que se refiere el párrafo segundo del artículo 6 de la Ley , se entiende referida a toda licencia o permiso establecido por ley o reglamento. Se exceptúan los permisos previstos en las regulaciones que se mantengan por ser esenciales para la protección de la seguridad nacional, para la prevención de prácticas que puedan inducir a error, la protección de la salud o la seguridad humanas, de la vida o la salud animal o vegetal, o del medio ambiente. Igualmente, se exceptúan los expresamente previstos en leyes especiales o convenios internacionales, en particular todos aquellos permisos, licencias o contingentes contemplados en los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales y en la Ley de Ejecución de los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales, Nº 7473 de 19 de diciembre de 1994.
+En este mismo sentido, las normas administrativas sobre etiquetado de productos importados deberán estructurarse y aplicarse de modo que no puedan llegar a convertirse en una barrera no arancelaria, ya sea por su excesiva complejidad, porque otorguen atribuciones de interpretación discrecional a la Administración u otro motivo semejante. La CMR tendrá competencia para examinar y solicitar la revisión de estas normas cuando, en su criterio, violen lo dispuesto en este artículo, tanto de oficio como a petición de parte interesada.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

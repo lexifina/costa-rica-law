@@ -1,13 +1,8 @@
-ARTÍCULO 34.- Calificación de admisibilidad
-Recibida una denuncia, la Unidad Técnica deberá preparar un informe
-preliminar para la CPC, incluyendo un análisis de aspectos tales como la
-legitimación del denunciante, la observancia de los requisitos mínimos
-previstos en la LGAP y los elementos probatorios existentes.
-La Unidad Técnica deberá poner en conocimiento de la CPC la denuncia
-en la sesión inmediata siguiente a la fecha de presentación de la misma.
-En dicha sesión la Unidad Técnica presentará el informe preliminar a que
-se refiere el párrafo anterior, salvo que requiera más tiempo para
-prepararlo, caso en el cual la CPC podrá acordarlo así.
-Al conocer la denuncia, o en cualquier momento antes del acto formal
-de inicio del procedimiento, la CPC podrá acordar el rechazo de plano de
-la denuncia, en los supuestos previstos en la LGAP.
+Artículo 34.- Resolución final y sanción. Una vez cumplidos los trámites procedimentales previstos en este Reglamento y en la LGAP , incluyendo la celebración de la o las comparecencias correspondientes, la Unidad Técnica trasladará el caso a conocimiento de la CPC con su recomendación, para que ésta última proceda a dictar la resolución final.
+La Unidad Técnica deberá observar en todo momento los plazos establecidos en la LGAP para el procedimiento administrativo.
+La resolución final podrá imponer la o las sanciones que corresponda según el artículo 28 de la Ley , cuando se haya demostrado en el procedimiento la existencia de prácticas monopólicas absolutas, prácticas monopólicas relativas o concentraciones, en la forma dispuesta en la Ley.
+En cuanto a la graduación porcentual que se indica en ese numeral en los supuestos de infracciones que revistan gravedad particular, la CPC si así lo acuerda, procederá a establecer el monto de la multa correspondiente de la siguiente manera:
+a. Si las ventas anuales obtenidas por el infractor durante el ejercicio fiscal anterior son superiores al valor de sus activos, se impondrá una multa equivalente al diez por ciento (10%) de las ventas.
+b. Caso contrario, si el valor de los activos es superior al diez por ciento (10%) de las ventas anuales del infractor en los términos supraindicados, la CPC impondrá la multa respectiva utilizando como parámetro aquellos. En este supuesto, la multa a imponer podrá ser de hasta un diez por ciento (10%) el valor de los activos del infractor, siendo que bajo ninguna circunstancia el monto de la misma será inferior al diez por ciento (10%) de las ventas anuales del infractor obtenidas durante el ejercicio fiscal anterior.
+Tratándose de los actos de competencia desleal a que se refiere el artículo 17 de la Ley , se remitirá a las partes a la vía correspondiente.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

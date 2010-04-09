@@ -1,8 +1,2 @@
-ARTÍCULO 10.- Criterios y formato de los análisis costo beneficio.
-La CPC definirá los criterios en los cuales deben basarse los
-análisis costo-beneficio a que se refiere el párrafo primero del artículo
-4 de la Ley, así como el formato al que deben ajustarse. Lo anterior será
-comunicado por la CPC a todos los entes y órganos de la Administración
-Pública responsables de elaborar esos análisis. La comunicación se hará
-al menos tres meses antes del vencimiento del plazo de un año contemplado
-en el transitorio I de la Ley.
+Artículo 10.- Criterios y formato de los análisis costo beneficio. De conformidad con el artículo 4 de la Ley de 7472, los entes de la Administración Pública deberán realizar un Análisis Costo Beneficio de las regulaciones que establecen nuevos trámites, modifican los existentes o eliminan trámites. Para ello se deberá dar cumplimiento a las disposiciones contenidas en el Reglamento de Metodología para la Evaluación Costo-Beneficio de las regulaciones que establecen nuevos trámites, modifican los existentes o los eliminan, Decreto Ejecutivo Nº 32689-MP-MEIC, publicado en el Diario Oficial La Gaceta N º 199 del 17 de octubre de 2005, el cual establece los criterios por los cuales se deben basar los análisis costo-beneficio a que se refiere el párrafo primero de este artículo así como el formato al que deben ajustarse.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

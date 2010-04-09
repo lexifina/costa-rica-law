@@ -1,4 +1,2 @@
-ARTÍCULO 86.- Recursos
-Contra los acuerdos de las Comisiones sólo cabrá el recurso de
-reconsideración o reposición en los términos del artículo 31 de la Ley
-Reguladora de la Jurisdicción Contencioso Administrativa.
+Artículo 86.- Recursos. Contra las resoluciones finales o que le pongan término al proceso, dictadas por las Comisiones, sólo cabrá recurso de reposición dentro del plazo de tres días hábiles, contados a partir de la última comunicación del acto.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

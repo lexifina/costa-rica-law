@@ -1,10 +1,2 @@
-ARTÍCULO 35.- Inicio del procedimiento
-Con base en el informe preliminar presentado por la Unidad Técnica,
-la CPC, si estimare que hay mérito suficiente y cuando la resolución
-final pueda resultar en la imposición de alguna de las sanciones
-previstas en el artículo 25 de la Ley, acordará el inicio formal del
-procedimiento administrativo.
-Si no se diese alguna de las circunstancias indicadas en el párrafo
-anterior, la CPC acordará el rechazo de la denuncia y el archivo del
-expediente o, en su caso, la remisión del asunto a la vía que
-corresponda.
+Artículo 35.- Casos de infracción al artículo 67 de la Ley. En los casos de infracción al artículo 67 de la Ley , la CPC tramitará el asunto mediante procedimiento administrativo sumario previsto en la Ley General de la Administración Pública .
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

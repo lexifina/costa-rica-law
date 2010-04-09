@@ -1,8 +1,5 @@
-ARTÍCULO 39.- Contenido de la resolución final
-La resolución final podrá imponer la o las sanciones que corresponda
-según el artículo 25 de la Ley, cuando se haya demostrado fehacientemente
-en el procedimiento la existencia de prácticas monopólicas absolutas,
-prácticas monopólicas relativas o concentraciones, en la forma dispuesta
-en la Ley.
-Tratándose de los actos de competencia desleal a que se refiere el
-artículo 17 de la Ley, se remitirá a las partes a la vía correspondiente.
+Artículo 39. Efectos de la comunicación voluntaria. La Comisión podrá examinar nuevamente las concentraciones que hayan obtenido su aval favorable, o implementen las medidas correctivas recomendadas, únicamente cuando esa decisión se haya emitido con base en información incompleta o falsa, siempre y cuando se ejecuten en las condiciones que fueron notificadas a la CPC.
+Si una concentración comunicada no contara con el aval de la CPC o se le hubiere recomendado alguna medida correctiva que no fuera implementada, eso no prejuzgará sobre los efectos que pueda generar la concentración una vez realizada.
+La resolución favorable es independiente de la realización de otras prácticas monopolísticas prohibidas por esta ley, por lo que no releva de otras responsabilidades a los agentes económicos involucrados.
+La omisión de comunicar una concentración en forma voluntaria no implica presunción sobre su ilegalidad.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

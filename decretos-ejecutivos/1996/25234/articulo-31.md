@@ -1,3 +1,6 @@
-ARTÍCULO 31.- Responsabilidad del denunciante
-La responsabilidad del denunciante, en caso de denuncia calumniosa,
-se regirá por lo previsto en la legislación penal correspondiente.
+Artículo 31.- Calificación de admisibilidad. Recibida una denuncia, la Unidad Técnica deberá preparar un informe preliminar para la CPC , incluyendo un análisis de aspectos tales como la legitimación del denunciante y del denunciado, la observancia de los requisitos mínimos previstos en la LGAP y los elementos probatorios existentes.
+La Unidad Técnica deberá poner en conocimiento de la CPC la denuncia en la sesión inmediata siguiente a la fecha de presentación de la misma. En dicha sesión la Unidad Técnica presentará el informe preliminar a que se refiere el párrafo anterior, salvo que requiera más tiempo para prepararlo, caso en el cual la CPC podrá acordarlo así.
+Al conocer la denuncia, o en cualquier momento antes del acto formal de inicio del procedimiento, la CPC podrá acordar el rechazo de plano de la denuncia, en los supuestos previstos en la LGAP.
+Con base en el informe preliminar presentado por la Unidad Técnica , la CPC , si estimare que hay mérito suficiente y cuando la resolución final pueda resultar en la imposición de alguna de las sanciones previstas en el artículo 28 de la Ley , acordará el inicio formal del procedimiento administrativo.
+Si no se diese alguna de las circunstancias indicadas en el párrafo anterior, la CPC acordará el rechazo de la denuncia y el archivo del expediente o, en su caso, la remisión del asunto a la vía que corresponda.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

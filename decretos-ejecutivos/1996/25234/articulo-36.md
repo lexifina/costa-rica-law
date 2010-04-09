@@ -1,14 +1,6 @@
-ARTÍCULO 36.- Notificaciones por telefacsímil
-Las notificaciones del procedimiento podrán enviarse por vía de
-telefacsímil (fax) a las partes que así lo hayan solicitado expresamente.
-En estos casos, valdrá como prueba de la notificación la constancia del
-funcionario encargado de la Unidad Técnica de que envió la notificación.
-En todos los casos el funcionario encargado deberá corroborar que la
-notificación fue recibida en forma completa, por la vía telefónica, e
-incluirá en la constancia el nombre de la persona que haya confirmado la
-recepción.
-Para efectos de lo dispuesto en el párrafo anterior, las partes que
-soliciten que se les envíen notificaciones por vía de facsímil deberán
-indicar expresamente tanto el número de facsímil como el número de
-teléfono y el nombre de la o las personas responsables de confirmar la
-recepción.
+Artículo 36.- Comunicación voluntaria de concentraciones. Previo a su realización, las concentraciones podrán ser sometidas al análisis de la CPC , con el fin de que ésta determine si pueden generar efectos anticompetitivos que posteriormente impliquen la ilegalidad de la transacción.
+Podrán ser sometidas a este trámite aquellas concentraciones que cumplan alguna de las siguientes condiciones:
+a. Las que la suma del total de los activos productivos de todos los agentes económicos involucrados, exceda cincuenta mil salarios mínimos, en el territorio nacional.
+b. Las que la suma de los ingresos totales generados en el territorio nacional durante el último año fiscal, de todos los agentes involucrados exceda treinta mil salarios mínimos
+c. En las que esté involucrado o resulte en un agente económico que tenga una participación mayor al cuarenta por ciento del mercado afectado por la concentración.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)

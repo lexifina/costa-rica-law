@@ -1,7 +1,3 @@
-ARTÍCULO 32.- Requisitos
-La denuncia ante la CPC deberá constar por escrito, en idioma
-español y ser firmada por el interesado u otra persona a su ruego. El
-denunciante también podrá presentarse directamente -ante la CPC o
-cualquier otra dependencia del MEIC. En este caso, el funcionario
-correspondiente levantará acta de la denuncia, que suscribirá el
-interesado, y la remitirá de inmediato a la Unidad Técnica de la CPC.
+Artículo 32.- Notificaciones por telefacsímil. Las notificaciones del procedimiento podrán enviarse por vía de telefacsímil (fax) a las partes que así lo hayan solicitado expresamente. En estos casos, valdrá como prueba de la notificación la constancia del funcionario encargado de que envió la notificación. En todos los casos el funcionario encargado deberá corroborar que la notificación fue recibida en forma completa, por la vía telefónica, e incluirá en la constancia el nombre de la persona que haya confirmado la recepción.
+Para efectos de lo dispuesto en el párrafo anterior, las partes que soliciten que se les envíen notificaciones por vía de facsímil deberán indicar expresamente tanto el número de facsímil como el número de teléfono y el nombre de la o las personas responsables de confirmar la recepción.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)
