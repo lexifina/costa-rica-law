@@ -1,0 +1,2 @@
+Artículo 14.—En el caso de los servidores/as judiciales, se aplicará lo dispuesto en el Título VIII de la Ley Orgánica del Poder Judicial que trata acerca del régimen disciplinario. Además de las sanciones previstas en el artículo 195 de esa ley, se podrá prohibir el ingreso del servidor/a a las instalaciones de la Finca.
+En el caso de los visitantes se procederá a prohibirles el ingreso a las instalaciones de la Finca, hasta que se cancelen los daños ocasionados o transcurra un plazo, el cual será fijado por la Administración Regional.

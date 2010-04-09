@@ -1,0 +1,1 @@
+Artículo 10.—Las personas usuarias deberán velar por el cuidado de las instalaciones y la flora y fauna del lugar, además de asegurarse de no dejar desechos ni basura fuera de los recipientes colocados para ese fin.

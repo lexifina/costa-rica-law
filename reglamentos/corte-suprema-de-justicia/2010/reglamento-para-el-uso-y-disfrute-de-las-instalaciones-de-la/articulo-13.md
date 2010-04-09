@@ -1,0 +1,1 @@
+Artículo 13.—El Administrador Regional o el encargado de la Finca, estarán facultados para desalojar de las instalaciones de la finca a las personas usuarias que hayan incurrido en comportamientos indebidos, sin perjuicio de cualquier otra sanción que se les pueda imponer.

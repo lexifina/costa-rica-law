@@ -1,0 +1,1 @@
+Artículo 23.—Tratándose de cualquier otro aspecto sobre acceso y utilización de las instalaciones de la Finca La Soledad, no previstos en este Reglamento, se estará a lo dispuesto por el Consejo Superior del Poder Judicial.
