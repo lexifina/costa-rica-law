@@ -1,0 +1,17 @@
+CAPÍTULO II
+Del funcionamiento de la Auditoría Interna
+SECCIÓN I
+Competencias
+Artículo 24.—Las competencias de la Auditoría Interna, está regulada en la Ley General de Control Interno Nº 8292, la Ley Orgánica de la Contraloría General de la República Nº 7428, el presente Reglamento de Organización y Funcionamiento para la Auditoría Interna de FONABE, y todas las normas, lineamientos, disposiciones, criterios técnicos u otros emitidos por el Órgano Contralor y supletoriamente por las normas y prácticas profesionales y técnicas pertinentes; asimismo por los manuales de funciones y procedimientos, instrucciones, metodologías y prácticas formalizadas por el auditor interno.
+Dentro de dichas competencias están las siguientes:
+a) Realizar las auditorías o estudios especiales, relacionados con los fondos públicos sujetos a la competencia del FONABE.
+b) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de esto y proponer las medidas correctivas que sean pertinentes.
+c) Asesorar, en materia de su competencia, al jerarca del cual depende.
+d) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio del auditor interno, sean necesarios para el fortalecimiento del sistema de control interno.
+e) Preparar los planes de trabajo y sus modificaciones y darlos a conocer primero al jerarca y luego al Órgano Contralor, de conformidad con los lineamientos que establece la Contraloría General de la República.
+f) Elaborar como mínimo un informe anual de la ejecución de su gestión; sin perjuicio de que se elaboren informes con mayor periodicidad y se presenten al jerarca cuando las circunstancias lo ameriten; haciendo referencia a la asignación y cumplimiento de su Plan Anual Operativo (PAO)-Presupuesto; al plan anual de trabajo, al plan estratégico y sus respectivas modificaciones; al logro de los objetivos, alcance de los productos o servicios desarrollados y el grado de cumplimiento de las recomendaciones emitidas por la Auditoría Interna u otros entes externos de fiscalización y control, cuando sean de su conocimiento y de las disposiciones de la Contraloría General de la República.
+g) Mantener debidamente actualizado el Reglamento organización y funcionamiento de la Auditoría Interna y corresponde al auditor interno cumplir y hacer cumplir el citado Reglamento.
+h) Dar trámite y atender debidamente las denuncias recibidas por escrito de presuntos hechos irregulares, cometidos en perjuicio del patrimonio público por funcionarios, exfuncionarios o terceros que sean custodios o administren fondos públicos; lo que se hará conforme lo dispone el Reglamento de denuncias, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública (Ley 8422) y su Reglamento.
+i) Comprobar que se cumplan los trámites y se observen los plazos en torno a los informes que emita y los requerimientos y gestiones que plantee la Auditoría Interna, para lo cual deberá hacer el seguimiento respectivo y documentarlo debidamente, sin perjuicio de los deberes que le corresponden al jerarca y a los titulares subordinados.
+j) Comunicar mediante un informe de relación de hechos, los resultados de los estudios en los que evidencien eventuales responsabilidades.
+k) Las demás competencias que contemplen la normativa legal, reglamentaria y técnica aplicable, con las limitaciones que establece el artículo 34 de la Ley General de Control Interno.

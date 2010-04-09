@@ -1,0 +1,7 @@
+Artículo 37.—La Auditoría Interna emitirá informes sobre asuntos de los que puedan derivarse presuntas responsabilidades cuando desarrolle estudios especiales originados en denuncias por actos de corrupción (Artículo 8º Ley contra la corrupción y el enriquecimiento ilícito en la función pública).
+Los informes de auditoría deben incluir los objetivos, el alcance, hallazgos, conclusiones y recomendaciones y demás resultados del trabajo, según la naturaleza de éste y con observancia de las disposiciones legales y normativa emitida por la Contraloría General de la República.
+Los informes sobre los servicios de auditoría versarán sobre diversos asuntos de su competencia y sobre asuntos de los que puedan derivarse posibles responsabilidades. Los primeros, denominados informes de control interno, que contienen hallazgos con sus correspondientes conclusiones y recomendaciones; los segundos, llamados de relaciones de hechos. Ambos tipos de informe deben cumplir con la normativa legal, técnica y reglamentaria pertinente.
+Los informes de relaciones de hechos, se exceptúan del proceso de comunicación oral de resultados, y podrán recomendar:
+ü Efectuar una valoración para establecer si corresponde la apertura de un procedimiento administrativo.
+ü La apertura de un procedimiento administrativo.
+ü La denuncia ante el Ministerio Público.

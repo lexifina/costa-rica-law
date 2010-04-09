@@ -1,0 +1,4 @@
+Artículo 29.—La Auditoría Interna dará prioridad al uso de información electrónica para el máximo aprovechamiento de sus sistemas automatizados, sin perjuicio de aquella información que por su naturaleza sea conveniente obtener en forma física.
+Para la administración de esta información se deberá considerar lo siguiente:
+a) Los legajos electrónicos de papeles de trabajo se almacenarán en discos compactos u otros medios similares, los cuales, junto con sus complementos físicos, si los hubiere, se custodiarán en los archivos de la Auditoría Interna y podrán ser transferidos a custodia en el archivo central del FONABE.
+b) La información electrónica relacionada con presuntas responsabilidades se procesará utilizando medios de acceso exclusivo de la Auditoría Interna (discos duros, discos compactos u otros) atendiendo su característica de confidencialidad.

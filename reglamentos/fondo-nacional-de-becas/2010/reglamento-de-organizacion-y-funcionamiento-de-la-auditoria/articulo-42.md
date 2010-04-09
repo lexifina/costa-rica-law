@@ -1,0 +1,1 @@
+Artículo 42.—Las denuncias recibidas serán examinadas dentro de un plazo razonable, para lo cual se comunicará lo pertinente al denunciante que hubiere señalado lugar para notificaciones, informándole sobre la decisión adoptada, sea, si la denuncia fue admitida o desestimada.

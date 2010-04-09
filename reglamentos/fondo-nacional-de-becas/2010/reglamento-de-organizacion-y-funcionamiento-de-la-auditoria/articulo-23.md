@@ -1,0 +1,9 @@
+SECCIÓN VII
+Relaciones y coordinaciones
+Artículo 23.—El Auditor Interno tendrá las siguientes facultades para establecer relaciones y coordinaciones entre la Auditoría Interna y la administración activa, la Contraloría General de la República y otros entes.
+a) Establecer las pautas para las relaciones y coordinaciones entre los funcionarios de la Auditoría con los auditados.
+b) Proveer e intercambiar información con la Contraloría, así como con otros entes y órganos de control que conforme a la ley correspondan y en el ámbito de sus competencias, sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la Auditoría Interna.
+c) Coordinar con la unidad responsable de la formulación del presupuesto institucional, a efecto de asegurar que se asignen los recursos necesarios, de conformidad con los artículos 27 y 39 de la Ley Nº 8292.
+d) Coordinar con la unidad responsable del control del presupuesto institucional, a efecto de que se mantenga un registro separado del monto asignado y aprobado a la Auditoría Interna, detallado por objeto del gasto, de manera que se pueda controlar la ejecución y las modificaciones de los recursos presupuestados para esa unidad.
+e) Requerir el criterio de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a los trabajos que realice la Auditoría Interna.
+f) Coordinar con la Administración, a través del Departamento de Recursos Humanos, a fin de implementar y mantener programas de capacitación para los servidores de la Auditoría Interna, en las áreas que lo requiera para el ejercicio de sus funciones. Para ello el Auditor Interno presentará un plan anual de capacitación, diseñado en concordancia con su Plan Anual de Trabajo, en el que expondrá las necesidades de capacitación de su personal.

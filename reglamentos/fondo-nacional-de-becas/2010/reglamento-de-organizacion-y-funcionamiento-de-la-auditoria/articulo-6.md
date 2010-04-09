@@ -1,0 +1,4 @@
+SECCIÓN II
+Independencia y objetividad
+Artículo 6º—El Auditor Interno y demás personal de la auditoría ejercerá sus funciones bajo un estado de total independencia funcional y de criterio respecto de la Junta Directiva, del resto de la administración activa de la institución, de los jerarcas y demás personal de las otras organizaciones que son parte de su universo fiscalizable, lo anterior conforme LGCI, Artículo 25, el artículo 62 de la Ley Orgánica de la Contraloría General de la República.
+Los servidores de la Auditoría Interna tendrán la responsabilidad de estar alerta sobre cualquier circunstancia, situación o hecho, personales o externos, que puedan disminuir o poner en duda su independencia, o cuando se presente un conflicto de intereses; de ser así, deben comunicarlo a su superior inmediato para que éste asigne otro servidor a la labor encomendada.

@@ -1,0 +1,4 @@
+Artículo 32.—La presentación de los resultados de los servicios de auditoría se regirá de la siguiente manera:
+Los hallazgos obtenidos en el transcurso de la auditoría o estudio especial de auditoría deben ser comentados con los funcionarios responsables, previo a emitir las conclusiones y recomendaciones definitivas, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier acción correctiva que sea necesaria.
+Se exceptúan los casos de auditoría con carácter reservado, en la que sus resultados no deberán discutirse, o cuando la auditoría o estudio es de índole ordinaria y se obtenga información de naturaleza confidencial, en que la discusión debe ser parcial.
+La comunicación de resultados oral la dispone el Auditor Interno, de previo a la comunicación escrita del informe, excepto en los casos de informes especiales relativos a las relaciones de hechos y otros que la normativa contemple.
