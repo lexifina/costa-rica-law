@@ -1,0 +1,1 @@
+Artículo 2º—El propósito del presente reglamento es regular el funcionamiento de los Concejos de Distrito del Cantón de Garabito, la Comisión Especial que los atiende y el trámite de las partidas especificas asignadas al Cantón.
