@@ -1,2 +1,3 @@
 Artículo 24.—Corresponderá a la Junta Directiva imponer la cancelación de la concesión, previo informe del Consejo Director.
-Será atribución del Consejo Director la imposición de las restantes sanciones, cuyas decisiones serán recurribles dentro de los ocho días hábiles siguientes a la comunicación de la misma, ante la Junta Directiva.
+Será atribución del Consejo Director la imposición de las restantes sanciones, cuyas decisiones serán recurribles dentro de los ocho días hábiles siguientes a la comunicación de la misma, ante la Junta Directiva. En los casos en que el Consejo Director imponga alguna de las sanciones de su competencia, contra dichas resoluciones cabrán los recursos previstos en la Ley General de la Administración Pública, dentro del plazo indicado en este artículo.
+(Así reformado por el artículo 1 del decreto ejecutivo Nº 35962 del 12 de abril de 2010)

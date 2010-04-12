@@ -9,4 +9,5 @@ decretan:
 El siguiente Reglamento a la Ley 6758, Ley para el Desarrollo y Ejecución del Proyecto Turístico Golfo de Papagayo.
 CAPITULO I
 Disposiciones generales
-Artículo 1°—Este Reglamento se emite para regular las concesiones que se otorguen conforme a la ley 6758 del 6 de mayo de 1982.
+Artículo 1º—El presente Reglamento regula las funciones y responsabilidades de la Oficina Ejecutora del Polo Turístico Golfo de Papagayo, así como el procedimiento para el otorgamiento de las concesiones y cesiones de concesiones en el área destinada para la ejecución y desarrollo del Proyecto, cuya materialización descansa en los proyectos turísticos específicos a desarrollar por los particulares.
+(Así reformado por el artículo 1 del decreto ejecutivo Nº 35962 del 12 de abril de 2010)
