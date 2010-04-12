@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Banco 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-08 | la propia norma |
+| 2 | 2010-04-12 | Reglamento 18 (2010-04-12) |
