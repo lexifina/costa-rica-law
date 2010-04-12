@@ -1,0 +1,1 @@
+Artículo 2º—Coordínese institucionalmente de acuerdo a las competencias legales de cada institución, el ordenamiento territorial de las tierras que conforman la Zona Norte de Costa Rica, lo anterior en armonía con el medio ambiente y amparado a los más sagrados principios del desarrollo sostenible, el cual tiene como su base esencial al ser humano y su armonía con el ambiente.
