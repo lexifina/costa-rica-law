@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de competencia. El presente reglamento se aplicará a toda persona física o jurídica, privada o pública que desee desalinizar el agua marina para utilizarla para consumo humano o en los demás usos del agua.

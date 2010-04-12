@@ -1,0 +1,4 @@
+Artículo 9º—Definiciones. Para los efectos del presente reglamento se entenderá por:
+Agua salobre: al agua que tiene más sal disuelta que el agua dulce, pero menos que el agua de mar. Técnicamente, se considera agua salobre la que posee entre 0,5 y 30 gramos de sal por litro, expresados más frecuentemente como de 0.5 a 30 partes por mil.
+Salmuera: es agua con una alta concentración de sal disuelta, en especial cloruro de sodio (NaCl).
+Aguas marinas: Todas las aguas bajo jurisdicción costarricense situadas en el interior y exterior de las líneas de base determinadas, de conformidad con lo establecido en el artículo 6, primer párrafo de la Constitución Política y la Convención de las Naciones Unidas sobre el Derecho del Mar de 10 de diciembre de 1982. Es salada por la concentración de sales minerales disueltas que contiene, un 35 %o (paites por mil) como media, entre las que predomina el cloruro sódico.
