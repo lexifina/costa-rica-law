@@ -1,0 +1,13 @@
+Nº 35860-MINAET
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE, ENERGÍA
+Y TELECOMUNICACIONES
+Con fundamento en las atribuciones y facultades conferidas en los artículos, 50, 89,140, incisos 3) y 18) y 146 de la Constitución Política; artículos 6º, 11, 16 y 27 de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978 y 71 de la Ley Orgánica del Ambiente, Ley No. 7554 del 4 de octubre de 1995.
+Considerando
+I.—Que la contaminación ha sido definida por el artículo 59 de la Ley Orgánica del Ambiente como “Toda alteración o modificación del ambiente que pueda perjudicar la salud humana atentar contra los recursos naturales o afectar el ambiente en general de la Nación”, y por la Sala Constitucional, en su Voto N° 3705-93, como “La presencia en el medio ambiente de uno o más contaminantes, o combinación de ellos, en concentraciones tales y con un tiempo de permanencia tal, que causen en dicho ambiente características negativas para la vida humana, la salud o el bienestar del hombre, la flora o fauna, o produzcan en el habitat de los seres vivos, aire, agua, suelos, paisajes o recursos naturales en general, un deterioro importante”.
+II.—Que la Sala Constitucional, en su Voto N° 2002-6515, definió la contaminación visual como “El cambio o desequilibrio del paisaje, que afecta las condiciones de vida y las funciones vitales de los seres vivientes” y por su parte el Artículo 71 de la Ley Orgánica del Ambiente define la contaminación visual como “Las acciones, obras o instalaciones que sobrepasen, en perjuicio temporal o permanente del paisaje, los límites máximos admisibles por las normas técnicas establecidas o que se emitan en el futuro”, y establece que “El Poder Ejecutivo dictará las medidas adecuadas y promoverá su ejecución mediante los organismos, los entes públicos y las municipalidades, para prevenir este tipo de contaminación”.
+III.—Que mediante resolución número 2008-011696 de las once horas y veintinueve minutos del veinticinco de julio de dos mil ocho, dictada en expediente de Recurso de Amparo Nº 08-006824-0007-CO, se declara con lugar el recurso por la omisión del Poder Ejecutivo, de reglamentar el artículo 71 de la Ley Orgánica del Ambiente, número 7554 publicada en La Gaceta número 215 del trece de noviembre de mil novecientos noventa y cinco, concediéndole al Poder Ejecutivo el plazo de dos meses para proceder a la reglamentación del artículo 71 de la Ley Orgánica del Ambiente. Por tanto,
+Decretan:
+Reglamento para la prevención
+de la contaminación Visual
+Artículo 1º—Objetivo del Reglamento. El presente reglamento tiene por objeto establecer los lineamientos técnicos generales en la evaluación ambiental, para prevenir los efectos de la contaminación visual.

@@ -1,0 +1,1 @@
+Artículo 5º—Planificación del paisaje en las ciudades. Todas las municipalidades, en sus respectivos planes reguladores cantonales, deberán respetar los lineamientos técnicos generales establecidos en este reglamento y en el resto de la regulación existente en la materia, para la prevención de la contaminación visual.

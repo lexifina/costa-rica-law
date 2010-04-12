@@ -1,0 +1,1 @@
+Artículo 6º—Colocación de vallas y publicidad en derecho de vía. Se deberá actuar de conformidad con el Decreto Ejecutivo Nº 29253-Mopt del 20 de diciembre de 2000, Reglamento de los Derechos de Vía y Publicidad Exterior.

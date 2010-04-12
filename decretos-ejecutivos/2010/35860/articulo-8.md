@@ -1,0 +1,2 @@
+Artículo 8º—Colocación de vallas y publicidad en zonas de dominio privado. Las vallas y publicidad en terrenos privados, deberán apegarse a las condiciones del presente reglamento y a las disposiciones locales establecidas en los planes reguladores cantonales.
+Respecto a las ya existentes, una vez cumplidos los compromisos que pudieran haber sido pactados, deberán adecuarse a lo establecido anteriormente.

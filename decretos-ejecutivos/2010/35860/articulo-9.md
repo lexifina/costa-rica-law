@@ -1,0 +1,1 @@
+Artículo 9º—Guías de evaluación y de buenas prácticas ambientales. Los diversos tipos de guías ambientales para la evaluación de impacto ambiental y guías de buenas prácticas ambientales, deberán incluir un apartado sobre prevención de la contaminación visual, según los lineamientos establecidos en este reglamento.

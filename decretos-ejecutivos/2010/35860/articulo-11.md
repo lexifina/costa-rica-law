@@ -1,0 +1,1 @@
+Artículo 11.—Incumplimiento de regulaciones y sanciones. Las infracciones por acción u omisión a las regulaciones aquí especificadas, serán sancionadas por los órganos competentes con base en lo establecido en los artículos 99, 100 y 101 de la Ley Orgánica del Ambiente, y/o de conformidad con otra normativa existente.

@@ -1,0 +1,1 @@
+Artículo 2º—Alcance del Reglamento. Los lineamientos establecidos en este reglamento, se aplicarán a las actividades, obras o proyectos que se encuentren en su fase de diseño, en caso de que no exista un plan regulador cantonal con la variable ambiental aprobada.
