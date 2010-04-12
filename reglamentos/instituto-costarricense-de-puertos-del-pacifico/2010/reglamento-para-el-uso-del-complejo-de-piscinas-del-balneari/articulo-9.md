@@ -1,0 +1,1 @@
+Artículo 9º—Quedan facultados el Presidente Ejecutivo, el Gerente General para otorgar el derecho de entrada gratuita al Balneario a instituciones debidamente formalizadas y para actividades sin fines de lucro.

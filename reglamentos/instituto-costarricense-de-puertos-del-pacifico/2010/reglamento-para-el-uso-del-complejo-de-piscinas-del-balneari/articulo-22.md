@@ -1,0 +1,1 @@
+Artículo 22.—Responsabilidad del cliente en la plataforma de lanzamiento: El uso de la plataforma de lanzamiento queda a entera responsabilidad del usuario. Mismo que deberá a catar las recomendaciones de los guardavidas.

@@ -1,0 +1,1 @@
+Artículo 12.—Toda persona que asista al Balneario está obligada a observar una conducta correcta, apegada a las más estrictas normas de moralidad, buenas costumbres y seguridad, debiendo acatar las prohibiciones indicadas por la Administración a través de carteles ubicados en lugares visibles.

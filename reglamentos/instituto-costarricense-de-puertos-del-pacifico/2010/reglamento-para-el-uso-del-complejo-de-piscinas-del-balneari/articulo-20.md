@@ -1,0 +1,1 @@
+Artículo 20.—Del cumplimiento de estas normas. Los salvavidas, debidamente uniformados serán los responsables de que se cumplan las disposiciones que emanan de este reglamento, función que estará asistida y fiscalizada por el cuerpo de vigilancia del Balneario.

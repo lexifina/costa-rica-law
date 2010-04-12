@@ -1,0 +1,1 @@
+Artículo 6º—Del aseo del balneario. Se contratará a empresas especializadas en brindar servicio de limpieza y mantenimiento a las áreas del balneario con el propósito de garantizar las condiciones idóneas de funcionamiento a los usuarios en cumplimiento de la normativa vigente.

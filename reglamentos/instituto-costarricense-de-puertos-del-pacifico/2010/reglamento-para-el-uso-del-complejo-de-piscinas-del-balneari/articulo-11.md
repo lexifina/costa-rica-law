@@ -1,0 +1,1 @@
+Artículo 11.—El Balneario de Ojo de Agua estará abierto al público todos los días del año de 6:00 a.m. a 4:00 p.m., excepto jueves y viernes santos o cuando por eventos o actividades especiales autorice la Gerencia General.
