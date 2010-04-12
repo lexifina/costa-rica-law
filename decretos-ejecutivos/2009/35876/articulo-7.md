@@ -1,0 +1,1 @@
+Artículo 7º—El Consejo Nacional de la Niñez y la Adolescencia ejercerá la coordinación de la acción interinstitucional e intersectorial en la implementación del modelo aprobado, que incluye el seguimiento y monitoreo de los avances en el cumplimiento, mediante indicadores de proceso e impacto.
