@@ -1,1 +1,0 @@
-Artículo 6°—En caso que la administración compruebe que el servidor no ha cumplido con los términos pactados en el contrato por causas achacables al servidor, el PIMA procederá al levantamiento del beneficio y a aplicar la sanción correspondiente al servidor.

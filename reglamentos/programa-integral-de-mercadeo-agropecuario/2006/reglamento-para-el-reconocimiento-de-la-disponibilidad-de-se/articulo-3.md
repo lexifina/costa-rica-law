@@ -1,1 +1,0 @@
-Artículo 3°—Para acogerse a este régimen deberá el funcionario dirigir por escrito la solicitud al Departamento de Recursos Humanos, el cual una vez comprobados los requisitos lo remitirá a Gerencia para un Visto Bueno del mismo. Una vez cumplido el trámite anterior remitirá la solicitud de confección y firma del contrato a la Asesoría Legal del PIMA.

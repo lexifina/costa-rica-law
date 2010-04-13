@@ -1,1 +1,0 @@
-Artículo 4°—La solicitud deberá contener las justificaciones del caso, además de indicar el beneficio para la institución de otorgar tal beneficio. Acompañará a la solicitud de reconocimiento del beneficio de disponibilidad un oficio del Director de Área de estar de acuerdo con la misma.
