@@ -1,0 +1,1 @@
+Artículo 17.—Votos disidentes. Cada persona integrante del Consejo Institucional, hace constar en el acta su voto disidente al acuerdo adoptado y los motivos que lo justifiquen. En este caso firma el acta correspondiente

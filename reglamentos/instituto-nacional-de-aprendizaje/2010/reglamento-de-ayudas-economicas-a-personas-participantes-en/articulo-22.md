@@ -1,0 +1,2 @@
+Artículo 22.—Quórum y funcionamiento del Comité Regional de Ayudas Económicas. El quórum para que el Comité Regional de Ayudas Económicas sesione válidamente será la totalidad de sus miembros.
+En lo aplicable la normativa contenida en el capítulo III del presente Reglamento regirá para el funcionamiento de los Comités Regionales de Ayudas Económicas excepto, en lo referente a sesiones, dado que el Comité Regional podrá sesionar cuando lo considere pertinente.
