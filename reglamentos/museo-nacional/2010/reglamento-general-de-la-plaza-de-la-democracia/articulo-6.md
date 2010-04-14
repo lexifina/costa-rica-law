@@ -1,0 +1,1 @@
+Artículo 6º—El incumplimiento por parte del visitante de cualquiera de las normas establecidas en este Reglamento o de las directrices que se emitan posteriormente facultará a la administración para solicitar el cese de la conducta y a denunciar al infractor ante las autoridades pertinentes.

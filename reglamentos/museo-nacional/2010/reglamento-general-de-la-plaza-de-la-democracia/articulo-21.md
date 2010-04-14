@@ -1,0 +1,1 @@
+Artículo 21.—Venta de materiales. El permisionario podrá llevar a cabo durante la actividad, la venta de materiales o artículos derivados o relacionados con la actividad principal, no obstante ello estará sujeto a la aprobación previa de la Dirección General.

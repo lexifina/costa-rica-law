@@ -1,0 +1,2 @@
+Artículo 13.—Compromiso del Usuario. Una vez aprobada la solicitud de préstamo de las instalaciones por la Dirección General, el interesado deberá suscribir un documento en el que se establecerán las condiciones que el usuario debe respetar producto del uso de las instalaciones.
+Por constituir un préstamo a título precario dicho escrito no reviste la formalidad de contrato, sino únicamente un documento en el que se le indica al usuario la manera de coordinar, utilizar y conservar las instalaciones que se le facilitarán.

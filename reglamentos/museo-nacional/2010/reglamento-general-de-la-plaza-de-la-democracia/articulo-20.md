@@ -1,0 +1,1 @@
+Artículo 20.—Uso de instalaciones durante la jornada. Podrá autorizarse el uso de la plaza de la Democracia para la realización de actividades durante la jornada ordinaria de trabajo del Museo Nacional de Costa Rica, siempre y cuando no interfieran con el desarrollo normal de sus labores.

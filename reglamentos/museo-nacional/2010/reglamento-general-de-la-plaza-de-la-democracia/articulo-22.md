@@ -1,0 +1,1 @@
+Artículo 22.—Utilización de equipos técnicos. La utilización de cualquier equipo de grabación o reproducción dentro de las instalaciones producto de la actividad o espectáculo autorizado, queda sujeto a la aprobación previa de la de la Dirección General.

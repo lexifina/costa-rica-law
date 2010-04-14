@@ -1,0 +1,1 @@
+Artículo 15.—Cantidad de personas. La capacidad máxima de la Plaza de la Democracia es de 2000 (dos mil) personas, sin embargo el conjunto de personas que se encuentren en las instalaciones, no deberá exceder la cantidad recomendada por la Dirección General para cada actividad en particular.

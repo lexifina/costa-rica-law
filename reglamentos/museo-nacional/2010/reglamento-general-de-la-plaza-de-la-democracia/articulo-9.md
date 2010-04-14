@@ -1,0 +1,1 @@
+Artículo 9º—Gastos derivados del préstamo. El préstamo de las instalaciones no implicará la cancelación de suma alguna por los prestatarios, no obstante, el Museo Nacional de Costa Rica solicitará al prestatario que cubra en efectivo o especie, los gastos de mantenimiento derivados del préstamo tales como seguridad, limpieza y servicios básicos.
