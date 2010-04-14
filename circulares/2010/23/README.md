@@ -13,3 +13,4 @@ Deber de remitir información al Registro Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-02 | la propia norma |
+| 2 | 2010-04-14 | Circular 56 (2010-04-14) |
