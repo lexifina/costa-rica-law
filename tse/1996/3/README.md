@@ -25,3 +25,4 @@ Reglamento Autónomo Servicios del Tribunal Supremo de Elecciones
 | 10 | 2007-08-28 | Decreto TSE 15 (2007-08-28) |
 | 11 | 2008-07-08 | Decreto TSE 4 (2008-07-08) |
 | 12 | 2009-05-26 | Decreto TSE 4 (2009-05-26) |
+| 13 | 2010-04-15 | Decreto TSE 3 (2010-04-15) |

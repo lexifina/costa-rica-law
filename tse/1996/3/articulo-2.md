@@ -7,7 +7,8 @@ c) Ser disciplinado y observar las reglas de urbanidad con sus Superiores, con e
 d) Ser discretos y leales a la Institución, guardando la más absoluta reserva sobre los asuntos de orden interno de la misma;
 e) Presentar certificado de salud cuando lo requiera el Superior;
 f) Suministrar cualquier dato o informe propio que fuera necesario para el respectivo archivo de información sobre el personal;
-g) Rendir las declaraciones que se les pida con respecto al trabajo de su oficina;
+g) Rendir las declaraciones que se les pida con respecto al trabajo de su oficina, así como los informes y reportes relacionados con las labores que ejecuten dentro de los plazos señalados al efecto.
+(Así reformado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 03 de 15 de abril de 2010)
 h) Informar al Jefe respectivo la dirección exacta de su domicilio y todo cambio que ocurra;
 i)Observar, dentro y fuera del lugar de trabajo, una conducta honesta y temperante.
 j) Mantener una excelente presentación personal durante las horas hábiles de labores.
