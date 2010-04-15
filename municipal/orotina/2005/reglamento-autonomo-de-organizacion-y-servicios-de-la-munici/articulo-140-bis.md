@@ -1,0 +1,3 @@
+Artículo 140. Bis.—Créase como norma especial el estipendio por concepto de carrera profesional. Esta tendrá como objetivo lo siguiente:
+Estimular el desarrollo profesional de los funcionarios municipales, profesionalizar los servicios públicos municipales y con ello aumentar la eficiencia y eficacia en la prestación de los mismos al ciudadano. Esta se regirá por la reglamentación que se confeccionará en Aplicación de Carrera Profesional o en forma analógica en normas reglamentarias vigente, la aplicación en el paso de este rubro queda supeditada a la disponibilidad presupuestaria con que cuente la institución.
+(Así adicionado en sesión Nº 324 del 15 de abril de 2010)
