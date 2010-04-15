@@ -1,0 +1,1 @@
+Artículo 71.—Suscripción de servicios o facilidades no solicitadas. Los operadores y proveedores deberán garantizar que los servicios y facilidades que brindan a sus usuarios responden a su solicitud expresa y en ningún caso instalarán o activarán servicios o facilidades no solicitadas por éstos.
