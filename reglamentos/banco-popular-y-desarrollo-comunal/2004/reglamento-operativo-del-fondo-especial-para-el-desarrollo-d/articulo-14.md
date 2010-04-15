@@ -1,1 +1,0 @@
-Artículo 14.—Gastos Administrativos. La Unidad Técnica podrá cobrar solo excepcionalmente a la MIPYME y atendiendo las circunstancias especiales del caso concreto, que haya solicitado el aval o garantía cualquier gasto extraordinario que se haya generado.

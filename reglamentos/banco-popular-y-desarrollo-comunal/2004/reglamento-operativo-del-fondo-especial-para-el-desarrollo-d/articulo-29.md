@@ -1,1 +1,0 @@
-Artículo 29.—Comunicación de lo resuelto. La resolución final sobre la solicitud de aval o garantía será comunicada al Banco y al solicitante y de ser procedente, se indicarán los recursos que quepan, el plazo dentro del cual deben ser interpuestos, y el órgano ante el cual se deben presentar.

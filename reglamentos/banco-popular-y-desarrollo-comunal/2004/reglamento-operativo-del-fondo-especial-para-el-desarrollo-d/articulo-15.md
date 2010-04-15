@@ -1,1 +1,0 @@
-Artículo 15.—Porcentajes de comisión. Los porcentajes de las comisiones serán revisados por la Unidad Técnica al menos cada año, considerando parámetros de sostenibilidad del fondo. En caso necesario propondrá a la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal los ajustes requeridos.
