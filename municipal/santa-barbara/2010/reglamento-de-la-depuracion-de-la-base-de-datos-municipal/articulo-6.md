@@ -1,0 +1,1 @@
+Artículo 6º—De los informes. El Coordinador de la Depuración llevará en forma diaria a través de hoja electrónica de Excel, un registro de los casos que han sido analizados como inconsistentes. La tercera semana de cada mes presentará un informe al Alcalde Municipal para su conocimiento y del Concejo Municipal, según modelo incluido en el Anexo Nº 2.
