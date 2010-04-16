@@ -1,0 +1,15 @@
+Artículo 13.—El método de observación del desove de tortugas marinas, en las zonas autorizadas en el artículo 9º, se regirá mediante el sistema de rastreo de tortugas, cuyas disposiciones se establecerán vía resolución administrativa la cual debe contemplar al menos lo siguiente:
+a) En el sector de Tortuguero:
+I. El Área de Conservación Tortuguero establecerá sectores debidamente numerados en la playa pública del Pueblo de Tortuguero como en el área de uso público del Parque.
+II. El Área de Conservación Tortuguero contará con el apoyo de personas dedicadas al rastreo de tortugas marinas, quienes indicarán a los promotores turísticos de los grupos de visitantes hacia dónde dirigirse para la observación del desove. Por lo tanto, dicha Área de Conservación realizará las gestiones necesarias para obtener los recursos materiales y humanos para contar con este apoyo.
+III. A cada promotor turístico de los grupos de visitantes le será asignado un sector para la observación del desove. El Área de Conservación Tortuguero se lo comunicará al solicitar su permiso de observación de tortugas marinas.
+IV. Solo se permitirá el ingreso de personas en grupos a la playa por los sitios que el Área de Conservación designe para tal fin. Los grupos de visitantes estarán compuestos por un máximo de 11 personas incluyendo el promotor turístico.
+V. Los grupos de visitantes deberán estar acompañados por un promotor turístico debidamente autorizado por el Área de Conservación Tortuguero.
+VI. El horario de observación será en dos turnos, de las 8:00 p. m. las 10:00 p. m. y de las 10.00 p. m. a las 12:00 m. El número máximo en cada sector lo definirá el Área de Conservación Tortuguero de acuerdo al límite de cambio aceptable así establecido en el Plan de Manejo de Visitantes.
+b) En sector Jalova:
+I) Para la observación de tortugas en este sector, sólo se permitirá la presencia de grupos de visitantes no mayores de 11 personas, incluyendo el promotor turístico.
+II) El Área de Conservación Tortuguero contará con el apoyo de personas dedicadas al rastreo de tortugas marinas, quienes indicarán a los promotores turísticos de los grupos de visitantes hacia dónde dirigirse para la observación del desove. Para tal efecto el Área de Conservación Tortuguero realizará las gestiones necesarias para obtener los recursos materiales y humanos para contar con este apoyo. Sólo se permitirá el ingreso de personas en grupos a la playa por los sitios que dicha Área de Conservación designe para tal fin.
+III) Los grupos de visitantes deberán estar acompañados por un promotor turístico debidamente autorizado por el Área de Conservación Tortuguero.
+IV) Se establecerá una cantidad máxima de dos grupos de visitantes por tortuga, en el mismo momento, para observar el proceso de anidación.
+V) El horario de observación de las tortugas será de las 8:00 p. m. a las 10:00 p. m.
+El Área de Conservación Tortuguero por razones de conveniencia y oportunidad y con el fin de garantizar la protección de las tortugas marinas podrá establecer, otro sistema de observación vía resolución administrativa.

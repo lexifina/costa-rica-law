@@ -1,0 +1,1 @@
+Artículo 24.—Bajo criterios de prevención, control y protección, el Área de Conservación Tortuguero tendrá la potestad de revisar en el Puesto de Jalova todas las lanchas en tránsito del Sector de Tortuguero hacia Limón y otras comunidades.

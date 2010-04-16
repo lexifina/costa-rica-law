@@ -1,0 +1,1 @@
+Artículo 20.—El Área de Conservación Tortuguero queda facultada para el uso de equipo especializado de movilización acuática, exclusivamente para la ejecución de actividades de control y protección de la biodiversidad, dentro del Parque Nacional Tortuguero.

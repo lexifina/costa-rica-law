@@ -1,0 +1,1 @@
+Artículo 4º—El horario de atención a los visitantes será de las 5:30 a. m a las 6:00 p. m. En temporada de anidamiento de las tortugas marinas, el horario de observación del desove será de las 8:00 p. m. a las 12:00 p.m. en la zona de Tortuguero y de 8:00 p. m. a las 10:00 p. m. en la zona de Jalova.

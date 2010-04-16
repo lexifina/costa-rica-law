@@ -1,0 +1,1 @@
+Artículo 25.—Deróguese el Reglamento de uso público para regular las actividades en el Parque Nacional Tortuguero, Decreto Ejecutivo Nº 29628-MINAE del 24 de enero del 2001, publicado en La Gaceta número 130 del 6 de julio del 2001.

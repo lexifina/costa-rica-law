@@ -1,0 +1,1 @@
+Artículo 21.—Para que una persona opere como promotor turístico dentro del Parque Nacional deberá contar con un carné emitido por el Área de Conservación Tortuguero, el cual deberá portar en todo momento durante su visita al área silvestre protegida.

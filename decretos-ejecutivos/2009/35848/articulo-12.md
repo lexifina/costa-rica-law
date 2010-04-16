@@ -1,0 +1,6 @@
+CAPÍTULO V
+Actividades en temporada de anidación de tortugas
+Para la observación del desove de tortugas marinas, se establecerán las siguientes disposiciones:
+Artículo 12.—Según lo dispuesto en la Ley de Conservación de la Vida Silvestre Nº 7317 del 30 de octubre de 1992 y con base en las Normas Protección Desove Tortuga Verde, Parque Nacional Tortuguero, Decreto Ejecutivo Nº 20226-MIRENEM del 7 de enero de 1991, se definirán las siguientes temporadas para la observación de tortugas marinas:
+a) La temporada de observación de tortuga baula (Dermochelys coriacea) y tortuga verde (Chelonia mydas), se permitirá a partir del 1º de marzo al 31 de octubre. Cuando estudios científicos indiquen que las especies están siendo impactadas negativamente, el Área de Conservación Tortuguero de acuerdo a su criterio técnico y jurídico podrá modificar el período de observación, vía resolución administrativa, la cual será divulgada en la página Web acto.go.cr que para tal efecto tiene el Área de Conservación Tortuguero.
+b) La temporada de observación de nacimientos de tortuga baula (Dermochelys coriacea) y tortuga verde (Chelonia mydas), se permitirá a partir del 1 de abril hasta el 15 de diciembre. Los permisos de observación se extenderán con base en estudios científicos a criterio del Área de Conservación Tortuguero.

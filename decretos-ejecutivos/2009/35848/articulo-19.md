@@ -1,0 +1,1 @@
+Artículo 19.—En los senderos de uso público aquí indicados sólo podrá incrementarse la velocidad de las lanchas con motor, en caso de crecidas o emergencia médica. Cuando se amerite utilizar estos caños como se describe en este artículo, las personas se deberán reportar a los puestos operativos de Jalova o Cuatro Esquinas, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 18.—Con el propósito de proteger al manatí (Trichechus manatus), según fundamento técnico- científico, y dado el aumento de tránsito de embarcaciones, la velocidad máxima para las lanchas y botes con motor que transiten en Caño Negro será de 15 km/hora.

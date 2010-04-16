@@ -1,0 +1,1 @@
+Artículo 17.—Se exceptúa de la aplicación del artículo anterior a los dueños de inmuebles, ubicados dentro de las zonas aledañas al Parque, que deban utilizar los senderos para ingresar y salir de ellos; así como a los funcionarios de instituciones del Estado que ejerzan acciones propias de su cargo o acciones de control y protección de carácter interinstitucional.
