@@ -1,0 +1,9 @@
+COBRO DE EXCEDENTES EN LA TARIFA
+Artículo 22.—El cobro de los excedentes, por concepto de telefonía celular, se realizará de la siguiente forma:
+a) El Instituto Costarricense de Electricidad (ICE) remitirá todos los recibos por servicio telefónico celular directamente a la Tesorería General. Si por alguna circunstancia especial la facturación se entrega en las unidades, éstas deberán remitir los recibos en forma inmediata a la Sección Control de Pagos del Departamento de Tesorería General, para su registro y cancelación.
+b) El Área Tesorería General procederá a realizar los registros y trámites respectivos y emitirá un solo documento de pago por la totalidad de la suma a cancelar. Paralelamente, informará a la Subárea de Contabilidad Operativa el gasto por unidad ejecutora, para la confección de los asientos de diario correspondientes.
+c) Las unidades de trabajo que dispongan de los servicios telefónicos celulares serán responsables de coordinar con la Subárea Gestión Compras Bienes y Servicios del Área de Tesorería General el estado en que se encuentran los recibos telefónicos de las líneas asignadas.
+d) La Subárea Gestión Compras Bienes y Servicios del Área de Tesorería General deberá verificar la tarifa mensual autorizada para el funcionario beneficiado y determinar el excedente por cobrar.
+e) Una vez identificado el monto por cobrar, procederá a comunicarlo por escrito al interesado y adjuntará una copia del recibo telefónico para su verificación, quien dispondrá de dos días hábiles para solicitar la revisión del monto señalado como excedente.
+f) Posterior a la comunicación, el funcionario dispondrá de un plazo de tres días hábiles para cancelar el excedente en la tesorería respectiva.
+g) El encargado de recibir el dinero en la Tesorería, deberá emitir un comprobante donde se indique la partida presupuestaria que se afecta.

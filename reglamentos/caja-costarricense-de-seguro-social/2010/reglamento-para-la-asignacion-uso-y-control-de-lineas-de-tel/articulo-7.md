@@ -1,0 +1,1 @@
+Artículo 7º—A los funcionarios que se les asigne un teléfono celular deben formalizar el convenio mencionado con su superior jerárquico y remitir una copia de él al Área Contabilidad y Control Activos y Suministros, para su inclusión en el expediente respectivo y a la Subárea Gestión Compras Bienes y Servicios, para la cancelación de los recibos correspondientes.

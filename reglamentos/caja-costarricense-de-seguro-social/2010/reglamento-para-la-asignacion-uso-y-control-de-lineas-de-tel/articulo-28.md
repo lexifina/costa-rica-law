@@ -1,0 +1,1 @@
+Artículo 28.—El presente Reglamento deroga el Reglamento para la Asignación, Uso y Control de Líneas y Aparatos de Telefonía Móvil, aprobado por la Junta Directiva en el artículo 2º de la sesión Nº 7937, celebrada el 3 de marzo del año 2005, y sus reformas”.

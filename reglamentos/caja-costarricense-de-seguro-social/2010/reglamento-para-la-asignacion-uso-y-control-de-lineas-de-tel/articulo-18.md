@@ -1,0 +1,1 @@
+Artículo 18.—El funcionario responsable del equipo telefónico celular está en la obligación de presentarlo a la administración cuando ésta así lo solicite (Auditoría, Sección de Bienes Muebles y Suministros o el supervisor jerárquico respectivo).

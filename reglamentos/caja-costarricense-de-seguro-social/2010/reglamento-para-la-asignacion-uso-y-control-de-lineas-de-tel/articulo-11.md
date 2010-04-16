@@ -1,0 +1,1 @@
+Artículo 11.—Corresponderá a la Subgerencia de Tecnologías de Información y Comunicaciones, establecer las especificaciones técnicas para la adquisición y/o actualización de teléfonos celulares, para lo cual se considerarán criterios de calidad, oportunidad y economía.

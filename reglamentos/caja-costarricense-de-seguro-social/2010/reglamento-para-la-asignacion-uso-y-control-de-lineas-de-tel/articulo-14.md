@@ -1,0 +1,1 @@
+Artículo 14.—La compra del activo “teléfono celular”, no podrá cancelarse bajo ninguna circunstancia, mediante el Sistema de Caja Chica, debido a que esta adquisición se cataloga como un gasto de inversión.

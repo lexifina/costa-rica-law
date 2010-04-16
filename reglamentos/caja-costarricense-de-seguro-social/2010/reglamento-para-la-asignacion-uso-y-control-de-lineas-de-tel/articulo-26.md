@@ -1,0 +1,1 @@
+Artículo 26.—Todas las líneas de telefonía celular propiedad de la Caja Costarricense de Seguro Social, son “intransferibles” para uso de cualquier persona física o jurídica, salvo un acuerdo de la Junta Directiva de la Institución que expresamente lo señale.

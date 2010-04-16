@@ -1,0 +1,3 @@
+AUTORIZACIÓN
+Artículo 3º—La asignación de la telefonía móvil (línea, aparato y accesorios) se realizará a los funcionarios de la Institución señalados en el artículo 9º del presente Reglamento.
+Para el caso de los empleados que califiquen en el numeral d) y e) del artículo 9º, se requerirá de un estudio técnico, por parte de la Subgerencia de Tecnologías de Información y Comunicaciones, y su aprobación será potestad de la Gerencia respectiva. Este acto se otorgará de forma excepcional y restrictiva, siempre que exista una necesidad comprobada y manifiesta de que el funcionario por sus responsabilidades, debe mantener un contacto constante y exclusivo con el área de trabajo.

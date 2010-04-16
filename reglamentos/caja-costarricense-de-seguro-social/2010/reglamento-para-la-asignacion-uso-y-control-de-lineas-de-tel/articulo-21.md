@@ -1,0 +1,1 @@
+Artículo 21.—El Área Contabilidad y Control Activos y Suministros, y la Subárea Gestión Compras Bienes y Servicios deben controlar los cambios generados por traslado, robo y/o pérdida de líneas y teléfonos celulares, y evidenciarán la acción realizada.
