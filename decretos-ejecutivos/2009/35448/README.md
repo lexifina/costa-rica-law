@@ -15,3 +15,4 @@ Reglamento para participar en la licitación pública tendiente a concesionar 10
 | --- | --- | --- |
 | 1 | 2009-08-25 | la propia norma |
 | 2 | 2010-03-19 | Decreto Ejecutivo 35875 (2010-03-19) |
+| 3 | 2010-04-16 | Decreto Ejecutivo 35985 (2010-04-16) |
