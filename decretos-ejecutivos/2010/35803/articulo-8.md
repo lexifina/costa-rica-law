@@ -1,0 +1,15 @@
+Artículo 8º—Para lo que respecta a la identificación y clasificación de los humedales dentro de la zona marítima terrestre, se debe seguir el siguiente procedimiento:
+El Sistema Nacional de Áreas de Conservación asignará un profesional en recursos naturales (biología, forestal, manejo de áreas protegidas) con el fin de proceder a identificar y delimitar los ecosistemas de humedales en la zona marítimo terrestre.
+A continuación se presentan los lineamientos para la identificación y clasificación de los distintos tipos de humedales en la zona marítima terrestre.
+a) Manglares: generalmente los manglares están definidos y ubicados en la cartografía oficial. Sin embargo, se debe verificar por el profesional responsable en el campo si existe una recuperación natural del manglar, lo cual tiene como efecto una ocupación de áreas mayores a las indicadas en la hoja cartográfica o caso contrario, donde parte de este ha desaparecido y el área en el campo va a ser menor.. Para la identificación de un manglar se tomará como parámetro la presencia de árboles de alguna de las especies indicadas en la tabla de abajo, así mismo se incluyen dentro de estos ecosistemas los esteros y canales existentes. El límite se va a establecer hasta donde se extienda la vegetación asociada con este ecosistema. Ver Anexo 1 Listado de flora por tipo de humedal de acuerdo a clasificación paisajística Humedales Esturianos y Bosques Inundados Salados (manglares)
+Tipos de Mangle que se encuentra en Costa Rica
+Nombre científico | Nombre común
+Rhizophora Mangle | Mangle rojo, colorado, gateador
+Rhizophora racemosa | Mangle, caballero, gigante
+Pelliciera Rhizophora | Mangle piñuela, piña, piñuelo
+Laguncularia racemosa | Mangle Blanco, mariquita
+Avicennia germinans | Mangle negro, salado, palo de sal
+Avicennia bicolor | Mangle sal, negro, palo de sal
+Conocarpus erecta | Mangle Botoncillo, botón
+b) Bosques anegados o inundados por agua dulce o dulceacuícolas: estos bosques se desarrollan en las márgenes de lagos o lagunas, así como también en algunos ríos. Se caracterizan por una estructura no muy compleja con un sotobosque dominado por palmas, algunos helechos y juveniles (plántulas) de las especies hidrófilas como el cativo (Prioria copaifera), el orey (Campnosperma panamensis), el sangrilla (Ptercarpus officinalis) y muy comúnmente la palma de yolillo (Raphia taedigera). En el caso de los yolillales aparece representado en las hojas cartográficas con ese nombre, en los otros casos es necesario verificar en el campo las condiciones indicadas anteriormente y la presencia de alguna de las especies vegetales citadas. El límite se demarca hasta donde llegue la presencia de plantas asociadas a este ecosistema.
+d) Una vez finalizados los estudios técnicos correspondientes que identifiquen un terreno como ecosistema humedal, se deberá incluir en el catálogo oficial de ecosistemas de humedales que deberá llevar el MINAET. Este catálogo servirá para cumplir los fines de protección y conservación que indica el artículo l de este decreto

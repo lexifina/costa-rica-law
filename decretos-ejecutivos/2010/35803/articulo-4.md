@@ -1,0 +1,6 @@
+Artículo 4º—Ubicación, identificación y clasificación de ecosistemas de humedales. Para la identificación y clasificación de los ecosistemas de los humedales se seguirán los criterios técnicos establecidos en los artículos 6, 7 y 8 de este decreto. Como herramientas de apoyo se utilizarán para la delimitación, y ubicación de los ecosistemas de humedales, inventarios de humedales entre otras.
+a) A partir de la información de campo y el uso de sistemas de información geográfica, se obtendrán los polígonos que delimiten los terrenos donde se ubican los ecosistemas de humedales.
+b) Con la información resultante del punto anterior deberán elaborarse mapas impresos y digitales que contengan escala (no menor a 1:15.000), coordenadas geográficas visibles, utilizar proyección CRTM 05.
+c) Cada Área de Conservación debe manejar esta información sobre la ubicación, delimitación y clasificación de humedales en su Sistema de Información Geográfica (SIG).
+d) A nivel de la Secretaria Ejecutiva del SINAC debe establecerse un Sistema de Información Geográfica oficial que contenga la información a nivel nacional.
+e) Los ecosistemas de humedales que forman parte del Patrimonio Natural del Estado deben ser incluidos en dentro de los mapas catastrales correspondientes.

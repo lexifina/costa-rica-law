@@ -1,0 +1,1 @@
+Artículo 2º—Ecosistemas de Humedales Continentales. Los ecosistemas de humedales continentales que forman parte del Patrimonio Natural del Estado son aquellos que cuenten con una declaratoria de Área Silvestre Protegida.

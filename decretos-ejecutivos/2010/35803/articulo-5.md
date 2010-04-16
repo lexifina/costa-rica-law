@@ -1,0 +1,8 @@
+Artículo 5º—Definiciones.
+(a) Vegetación Hidrófila
+Las especies de plantas florísticas que crecen y se desarrollan en ambientes acuáticos son llamadas hidrófilas. Se definen como aquellas plantas cuyos ciclos de vida, particularmente en los aspectos reproductivos, se realizan asociados al medio acuático. Estas plantas han desarrollado adaptaciones estructurales además de tener una tolerancia limitada a factores ambientales, tales como temperatura, grados de acidez, luminosidad y concentración de oxígeno
+(b) Suelos Hídricos
+Se define un suelo hídrico o suelo hidromórfico aquel que en sus condiciones naturales está saturado, inundado o represado con agua o empozado por largo tiempo, situación que permite desarrollar condiciones anaeróbicas en las secciones superiores del mismo. La determinación de si un suelo tiene características hídricas puede ser muy importante para la cartografía, clasificación y delimitación de un humedal.
+En base a la Clasificación por Capacidad de Uso de las Tierras (Decreto Ejecutivo Nº 23214-MAG-MIRENEM) por lo general los suelos de los humedales corresponden a la Clase VII y VIII. Por lo tanto, estas tierras tienen utilidad sólo como zonas de preservación de flora y fauna, protección de áreas de recarga acuífera, reserva genética y belleza escénica.
+(c) Condición Hídrica
+Todos los humedales usualmente tienen como mínimo una abundancia estacional de aguas, estas pueden originarse por precipitación, inundación inusual, por agua de escorrentía superficial debido a la precipitación, descargas del agua del suelo, o por mareas. La frecuencia y duración de inundación y saturación del suelo varia en forma amplia de permanentemente inundado o saturado a irregularmente inundado.

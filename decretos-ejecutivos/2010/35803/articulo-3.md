@@ -1,0 +1,1 @@
+Artículo 3º—Ecosistemas de Humedales Marinos. Los ecosistemas de humedales marinos que forman parte del Patrimonio Natural del Estado, son aquellos que cuenten con una declaratoria como Área Silvestre Protegida los cuales serán administrados por el MINAET a través del Sistema Nacional de Áreas de Conservación.
