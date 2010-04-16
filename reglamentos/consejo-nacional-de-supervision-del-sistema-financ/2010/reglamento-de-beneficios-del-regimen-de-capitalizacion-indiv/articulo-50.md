@@ -1,0 +1,5 @@
+Artículo 50.—Comisiones de Administración.
+La OPC podrá cobrar una comisión máxima sobre saldo de 0,35% anual. La comisión deberá ser aprobada previamente por el Superintendente de Pensiones.
+El porcentaje de comisión que cobre la OPC deberá ser divulgado a los pensionados y al público en general, por los medios y en la oportunidad que establezca el Superintendente. Cada vez que una comisión se modifique al alza deberá comunicarse a los pensionados con una antelación de, al menos, treinta días hábiles antes de su entrada en vigor.
+Las modificaciones a la baja entrarán en vigencia en la fecha que señale la OPC y se comunicarán a los pensionados y público en general, en las condiciones que establezca el Superintendente.
+Las comisiones aplicables a los planes de beneficio voluntarios se determinarán de conformidad con lo establecido punto 3 del artículo 37 del Reglamento sobre la apertura y funcionamiento de las entidades autorizadas y el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador.

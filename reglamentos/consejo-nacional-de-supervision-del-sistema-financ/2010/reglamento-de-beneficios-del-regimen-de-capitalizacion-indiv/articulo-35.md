@@ -1,0 +1,3 @@
+Artículo 35.—Obligatoriedad de Elección de Modalidad de Pensiones para el ROP.
+Si el afiliado al ROP no ha manifestado su elección, transcurrido el plazo de cinco días hábiles, contados a partir de la comunicación de los resultados de la cotización, se entenderá que ha seleccionado la modalidad de renta permanente en la operadora donde está adscrito.
+Es deber de la OPC informar al afiliado o beneficiario de la asignación en esta modalidad de pensión resultante de no realizar la elección dentro del plazo indicado en el párrafo anterior. La OPC deberá dejar constancia en el expediente de la recepción de la comunicación por parte del afiliado.

@@ -1,0 +1,2 @@
+Artículo 34.—Uso de aplicaciones automatizadas para la cotización de las modalidades de pensión complementaria.
+El Superintendente de Pensiones podrá implementar, mediante acuerdo de alcance general, el uso de plataformas tecnológicas que permitan la remisión y recepción, de forma desintermediada y anónima, de cotizaciones de modalidades de pensión con el propósito de que los afiliados accedan a la mayor cantidad de información posible para la toma de sus decisiones de compra de una modalidad de pensión complementaria.

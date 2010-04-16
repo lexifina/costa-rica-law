@@ -1,0 +1,4 @@
+Artículo 38.—Medios de Pago.
+En el formulario de solicitud de la pensión, tanto en el ROP como en el RVPC, los afiliados y/o beneficiarios indicarán un número de Código de Cuenta Cliente donde realizar la transferencia de los fondos a través del Sistema Interbancario de Negociación y Pagos Electrónicos (SINPE).
+Las operadoras de pensiones integrantes de grupos o conglomerados financieros que cuenten con un intermediario financiero supervisado por la Superintendencia General de Entidades Financieras, podrán realizar la transferencia directa de los fondos a las cuentas que posean los afiliados en dicha entidad financiera, si estos últimos así lo solicitaren de manera expresa.
+Queda absolutamente prohibida la transferencia de recursos a cuentas cuyo titular no sean las del propio pensionado y/o beneficiario.

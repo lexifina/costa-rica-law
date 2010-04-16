@@ -1,0 +1,16 @@
+# Reglamento (2010-03-26)
+
+Reglamento de Beneficios del Régimen de Capitalización Individual, reforma Regl. sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el Funcionamiento de los Fondos de Pensiones, Capitalización Laboral y Ahorro Voluntario
+
+- Tipo: Reglamento
+- Número: 842
+- Fecha: 2010-03-26
+- Ente emisor: Consejo Nacional de Supervisión del Sistema Financiero
+- Publicación: La Gaceta N° 73 del 2010-04-16
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=67681&param2=80289&param3=1 (ficha 67681)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2010-04-16 | la propia norma |

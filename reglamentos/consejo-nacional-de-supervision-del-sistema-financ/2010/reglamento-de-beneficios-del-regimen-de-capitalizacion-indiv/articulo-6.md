@@ -1,0 +1,3 @@
+Artículo 6º—Condición para optar por las modalidades de pensión complementaria.
+Los pensionados del ROP deberán contratar retiros programados, rentas permanentes o rentas vitalicias siempre y cuando el cálculo mensual del monto de la pensión a recibir, determinado por un retiro programado personal, sea igual o mayor a un 10% del monto de la pensión otorgada por el Régimen Básico al que pertenece el trabajador. De no ser ese el caso, podrán adquirir una de las modalidades de pensión dispuestas en este Reglamento o, un retiro total del capital para la pensión.
+En el caso del RVPC el afiliado o beneficiario podrá adquirir una de las modalidades de pensión definidas en este Reglamento. Esa elección no estará sujeta a ninguna restricción.

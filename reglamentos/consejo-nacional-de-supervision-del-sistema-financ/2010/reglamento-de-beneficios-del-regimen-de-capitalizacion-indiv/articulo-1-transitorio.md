@@ -1,0 +1,2 @@
+Transitorio I.—De la Administración.
+Durante los primeros cinco años de vigencia de este Reglamento, los recursos correspondientes a las distintas modalidades de pensión complementaria se administrarán dentro del fondo correspondiente al Régimen Obligatorio de Pensiones de cada entidad. La administración de estos recursos estará sometida, sin excepción alguna, a todas las disposiciones que resulten aplicables a dicho fondo, en especial, pero no exclusivamente, en lo relativo a las políticas de inversión y comisiones de administración.

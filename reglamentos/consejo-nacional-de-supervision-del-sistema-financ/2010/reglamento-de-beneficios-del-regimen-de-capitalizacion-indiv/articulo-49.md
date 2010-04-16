@@ -1,0 +1,3 @@
+Artículo 49.—Plazos para los traslados.
+a. El traslado de los recursos de la cuenta individual administrada en un fondo de acumulación a un fondo que corresponde a una modalidad de pensión o a una compañía aseguradora, se hará dentro de los horarios y procedimientos establecidos en el acuerdo del Superintendente para regular los ciclos de compensación y liquidación de recursos.
+b. Los recursos que corresponden al ejercicio del traslado deberán enviarse a la OPC de destino dentro de los horarios y procedimientos establecidos en el acuerdo del Superintendente para regular los ciclos de compensación y liquidación de recursos.

@@ -1,0 +1,2 @@
+Artículo 33.—Traslado del saldo acumulado de la cuenta de capitalización individual a las OPC y compañías de seguros.
+Una vez que la OPC reciba de las restantes operadoras de pensiones o de las compañías de seguros los contratos debidamente suscritos por el afiliado o beneficiario, deberá remitir los recursos acumulados en la cuenta de capitalización individual a la Compañía de Seguros o a la OPC elegida, en un plazo máximo de cinco días hábiles después de recibida la documentación indicada.
