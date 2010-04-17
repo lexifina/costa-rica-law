@@ -1,0 +1,26 @@
+Nº 35842-MTSS
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los incisos 3), 18) y 20) del artículo 140 de la Constitución Política y con fundamento en los numerales 25, 27, 28 y 103 de la Ley General de la Administración Pública y 5° del Decreto Ejecutivo Nº 90-S.C., del 13 de diciembre de 1965 y sus reformas, Reglamento para el Pago del Zonaje a los Servidores de la Administración Pública.
+Considerando:
+1º—Que en el Decreto Ejecutivo Nº 29063-TSS de 16 de octubre de 2000 y sus reformas, se regula el beneficio del zonaje del Ministerio de Trabajo y Seguridad Social, los términos en que sus funcionarios y funcionarias pueden disfrutar del beneficio de zonaje, según lo establecido en el Reglamento para el pago de zonaje a los Servidores de la Administración Pública.
+2º—Con el fin de lograr mayor seguridad de los activos de la Administración Pública, en respeto a lo preceptuado por la normativa referida a control interno, debe autorizarse el alojamiento de funcionarios de la administración en los bienes inmuebles que ocupe la Administración, cuando así se considere prudente y a su vez tomarse en cuenta como pago de zonaje proporcional de acuerdo con lo consignado en el artículo 9 de la Ley de Salarios.
+3º—Que para lograr un equilibrio entre los montos que corresponden a cada funcionario y funcionaria por concepto de zonaje y la debida utilización y cuidado de los inmuebles que ocupan las oficinas regionales de este Ministerio, se hace necesario regular el uso y habitación de estos inmuebles por parte de los funcionarios y funcionarias y el monto porcentual que tal beneficio tiene en relación con las sumas que corresponden por tal concepto.
+4º—Para una sana administración y una valoración equitativa en los rubros antes señalados, debe crearse una Comisión de Zonaje, y regularse expresamente su integración, competencias, y demás aspectos que se consideren necesarios para su optimo y objetivo funcionamiento.
+5º—Que en la mayoría de los casos los funcionarios (as) regionalizados que habitan casa o apartamento facilitado por el Ministerio realizan la función de celadores al vivir contiguo a oficinas pertenecientes a esta Institución. Además deben atender las consultas de ciudadanos que requieren sus servicios en horas o días no hábiles.
+6º—Que es necesario realizar modificaciones a la reglamentación, con el propósito de que se adapte a la realidad actual, tomando en cuenta el progreso que han tenido algunas zonas del país que se consideraban de difícil acceso y que no reunían aspectos básicos necesarios, pero esas condiciones variaron, por lo que es recomendable cambiar los porcentajes de ciertas zonas.
+7º—Que mediante oficio AJ-730-2009 del 15 de diciembre del 2009, la Asesoría Jurídica de la Dirección General de Servicio Civil, aprueba el presente Decreto. Por tanto,
+DECRETAN:
+MODIFICACIÓN DEL ARTÍCULO 11 Y CREACIÓN
+DE LOS ARTÍCULOS 8, 8 BIS Y 9 BIS DEL DECRETO EJECUTIVO
+Nº 29063-TSS DEL 16 DE OCTUBRE DEL 2000 Y SUS REFORMAS
+Artículo 1º—Se modifica el artículo 11 del Decreto Ejecutivo Nº 29063-MTSS del 16 de octubre del 2000 y sus reformas, para que en su lugar se lea:
+Artículo 11.—Cuando lo considere conveniente para el mejor servicio público y a fin de lograr mayor seguridad para sus activos, de conformidad con lo consignado en el artículo 9 de la Ley de Salarios de la Administración Pública, el Ministerio de Trabajo y Seguridad Social, previo acuerdo con el propietario del inmueble, podrá autorizar el alojamiento en los inmuebles que arrienda, a los funcionarios (as) que se desempeñan en el mismo lugar o circunscripción territorial en que estén ubicados dichos inmuebles.
+En tales casos, la Administración Superior a través de la Comisión de Zonaje del Ministerio, establecerá por escrito las reglas de ocupación, a saber:
+a) La Comisión determinará el espacio para la oficina, la cual bajo ninguna circunstancia se puede modificar, excepto cuando la administración lo considere necesario.
+b) Cuando se disfrute de este beneficio, queda absolutamente prohibido ingerir dentro del inmueble bebidas alcohólicas, drogas o sustancias psicotrópicas de uso no autorizado.
+c) En el recinto no se permitirá reuniones que violenten la paz y tranquilidad de los alrededores,
+d) Cuando exista un cambio en las condiciones que dieron origen al presente beneficio y el (los) funcionario (s) (as) desee cambiar de estatus deberá comunicarlo a su jefe inmediato, para la debida autorización, de forma inmediata so pena de que se ordene un procedimiento administrativo en su contra.
+e) La casa o departamento debe mantenerse en perfectas condiciones de cuidado, higiene y limpieza, tanto internas como externas, por cuenta del (los) (las) funcionario (os) (as).
+f) Los daños ocasionados por negligencia imprudencia o descuido del funcionario (os), correrán por cuenta del mismo.
+g) La autorización para ocupar el espacio en el inmueble, sea para habitar o para la atención al público no creará ningún derecho para el servidor (es), pudiendo la administración revocar la medida por razones de conveniencia y oportunidad tales como: aumento de número de funcionarios designados a la Regional, remodelaciones necesarias, caso fortuito o fuerza mayor.
