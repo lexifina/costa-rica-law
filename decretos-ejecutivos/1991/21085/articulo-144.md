@@ -1,2 +1,0 @@
-ARTICULO 144
-Todos los registros o copias de ellos deben estar disponibles de inmediato para la inspección autorizada durante el período de retención en el establecimiento donde se realizan las actividades descritas en los registros. Estos documentos pueden ser reproducidos por fotocopia o por otros medios de reproducción como parte de la inspección. Los registros que pueden ser recuperados de inmediato desde otro local por medio de computadora u otro recurso electrónico deben reunir todos los requisitos de los documentos originales.

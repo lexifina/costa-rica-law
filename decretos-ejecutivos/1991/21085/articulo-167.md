@@ -1,6 +1,0 @@
-CAPITULO II
-RECUPERACIÓN DE PRODUCTOS
-ARTICULO 167
-No deberán recuperarse ni devolverse al mercado los productos medicinales que hayan estado sujetos a condiciones inapropiadas de almacenamiento como temperatura o humedad fuera de los límites permitidos para su conservación, humo, gases, presión, envejecimiento o radiaciones a causa de incendios, accidentes o fallas de equipo. Cuando exista una duda o posibilidad de que los productos sometidos a condiciones como las mencionadas puedan ser recuperados, se diseñará un programa de recuperación con base en las siguientes evidencias:
-a) pruebas y ensayos de laboratorio cuyos resultados garanticen que el producto cumple con las especificaciones establecidas acerca de identidad, seguridad, fuerza, calidad y pureza;
-b) inspección de las instalaciones donde estuvo almacenado el producto y de cuya evaluación se pueda aceptar que el producto no estuvo sometido a condiciones inadecuadas de almacenamiento a causa del desastre o accidente. Las pruebas organolépticas serán aceptadas únicamente como evidencia suplementaria de que los productos cumplen con las especificaciones referentes a identidad, fuerza, calidad y pureza. Se mantendrán registros con el nombre, número de lote y toda la información relacionada con las disposiciones tomadas para los productos mantenidos en esta condición.

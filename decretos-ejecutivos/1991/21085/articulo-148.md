@@ -1,4 +1,0 @@
-CAPITULO II
-REGISTRO DEL USO Y LIMPIEZA DEL EQUIPO
-ARTICULO 148
-Habrá un registro escrito del mantenimiento, uso y limpieza (excepto el mantenimiento de rutina como la lubricación y los ajustes) del equipo mayor en cuadernos individuales que mostrarán la fecha, tiempo, producto y número de lote de cada partida procesada. Si el equipo se dedica a un solo producto no se necesitan cuadernos individuales para el equipo tomando en cuenta que los lotes o partidas de cada producto siguen un orden numérico y se manufacturan también en secuencia numérica. Cuando se use un solo equipo los registros de limpieza, mantenimiento y uso serán parte del registro del lote. Las personas que supervisan la limpieza y mantenimiento deberán fechar y firmar el cuaderno de registro indicando que el trabajo está ejecutado. Los registros en el cuaderno se harán en orden cronológico.

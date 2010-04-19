@@ -1,2 +1,0 @@
-ARTICULO 64
-Cada partida de componentes, productos, envases y cierres que ingrese a la fábrica será identificada con su correspondiente número de control de acuerdo con el orden de ingreso y la codificación establecida. Ese numero de control continuará identificando los materiales durante la cuarentena y su aprobación o rechazo hasta su uso devolución o destrucción. El mencionado número de control interno permitirá localizar toda la información con que ingresa cada partida de mercadería.

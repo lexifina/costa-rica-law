@@ -1,2 +1,0 @@
-ARTICULO 128
-Los productos que no cumplen con las especificaciones escritas y con cualquier criterio relevante establecido de control de calidad serán rechazados. Se harán reprocesos únicamente cuando sea técnicamente posible y aceptable y el material reprocesado será aceptado únicamente si cumple con las especificaciones y otros criterios relevantes de calidad establecidos y vigentes para el material o producto terminado que se está tratando de obtener.

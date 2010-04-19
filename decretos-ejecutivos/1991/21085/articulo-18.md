@@ -1,2 +1,0 @@
-ARTICULO 18
-Los alimentos deben ser guardados, preparados y consumidos únicamente en las áreas acondicionadas para estos fines y claramente identificadas. Estas instalaciones deben estar separadas de las áreas de producción. Por consiguiente no se pueden mantener alimentos fuera de las instalaciones mencionadas ni ingerir alimentos y bebidas en horas y lugares no autorizados. Las disposiciones anteriores son aplicables para cualquier persona sin excepción dentro de la planta farmacéutica.

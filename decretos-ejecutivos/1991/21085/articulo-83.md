@@ -1,2 +1,0 @@
-ARTICULO 83
-Dentro de los almacenes de materias primas debe existir un área específica, aislada, cerrada y limpia destinada a las operaciones de pesar y medir los ingredientes. Debe estar convenientemente iluminada, dotada con los utensilios y facilidades para dispensar los componentes, con las condiciones adecuadas de temperatura y con los sistemas de extracción de aire y de control de presión para evitar contaminaciones.
