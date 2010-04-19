@@ -1,1 +1,2 @@
-Artículo 33.—No se permitirá hacer ampliaciones ni reparaciones, etc., en los nichos a que se refiere el artículo anterior, las reformas a disminuir el número de nichos pueden ser permitidas o no a juicio de la Municipalidad.
+Artículo 33.—Corresponde a los arrendatarios de los lotes mantener a su costa en estado sólido y decoroso las construcciones y monumentos originados en ellas.
+(Mediante sesión N° 867 del 19 de abril de 2010, se ordena eliminar el artículo 28 original y correr la numeración de los artículos siguientes, por lo que el artículo 34 paso a ser el numeral 33 actual)

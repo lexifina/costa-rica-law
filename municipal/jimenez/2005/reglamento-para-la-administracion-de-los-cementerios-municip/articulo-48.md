@@ -1,1 +1,2 @@
-Artículo 48.—Los restos de ofrendas florales o de plantas naturales, deberán ser retirados por los arrendatarios y los frascos donde se almacenen deben ser llenados con tierra o arena; en caso de que no fueran retirados por los interesados, lo hará el Encargado del Cementerio sin que este ni la Municipalidad asuma ninguna responsabilidad por el retiro de estos restos.
+Artículo 48.—Todo cementerio queda sujeto a la inspección de las autoridades tanto administrativas como sanitarias y a las disposiciones sobre póliza mortuoria que determine el Reglamento Sanitario.
+(Mediante sesión N° 867 del 19 de abril de 2010, se ordena eliminar el artículo 28 original y correr la numeración de los artículos siguientes, por lo que el artículo 49 paso a ser el numeral 48 actual)

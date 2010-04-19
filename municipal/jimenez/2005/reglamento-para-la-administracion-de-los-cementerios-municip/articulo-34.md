@@ -1,1 +1,2 @@
-Artículo 34.—Corresponde a los arrendatarios de los lotes mantener a su costa en estado sólido y decoroso las construcciones y monumentos originados en ellas.
+Artículo 34.—Cuando una sepultura de familia amenace ruina por negligencia o por muerte de los que en ella tengan derecho, la Municipalidad puede ordenar la demolición de los monumentos ruinosos. Los materiales provenientes de la demolición serán de propiedad municipal y se emplearán en trabajos del mismo cementerio.
+(Mediante sesión N° 867 del 19 de abril de 2010, se ordena eliminar el artículo 28 original y correr la numeración de los artículos siguientes, por lo que el artículo 35 paso a ser el numeral 34 actual)

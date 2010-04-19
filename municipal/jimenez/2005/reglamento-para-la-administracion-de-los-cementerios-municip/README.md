@@ -14,3 +14,4 @@ Reglamento para la Administración de los Cementerios Municipales del cantón de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-01 | la propia norma |
+| 2 | 2010-04-19 | Reglamento municipal 867 (2010-04-19) |

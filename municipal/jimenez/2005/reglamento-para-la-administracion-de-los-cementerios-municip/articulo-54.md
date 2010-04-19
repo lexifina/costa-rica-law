@@ -1,1 +1,2 @@
-Artículo 54.—En todo lo no previsto en este Reglamento se acatará la Ley de Cementerios vigente, el Reglamento de Cementerios, La Ley General de Salud y todas las disposiciones pertinentes al Código Sanitario.
+Artículo 54.—Este Reglamento deroga cualquier otro anterior.
+(Mediante sesión N° 867 del 19 de abril de 2010, se ordena eliminar el artículo 28 original y correr la numeración de los artículos siguientes, por lo que el artículo 55 paso a ser el numeral 54 actual)

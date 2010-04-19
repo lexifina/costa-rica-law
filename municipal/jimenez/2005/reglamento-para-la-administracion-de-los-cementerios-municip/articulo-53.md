@@ -1,1 +1,2 @@
-Artículo 53.—El presente Reglamento puede ser aplicado en los demás cementerios del Cantón Jiménez, a juicio de sus administradores y de acuerdo con la Municipalidad.
+Artículo 53.—En todo lo no previsto en este Reglamento se acatará la Ley de Cementerios vigente, el Reglamento de Cementerios, La Ley General de Salud y todas las disposiciones pertinentes al Código Sanitario.
+(Mediante sesión N° 867 del 19 de abril de 2010, se ordena eliminar el artículo 28 original y correr la numeración de los artículos siguientes, por lo que el artículo 54 paso a ser el numeral 53 actual)

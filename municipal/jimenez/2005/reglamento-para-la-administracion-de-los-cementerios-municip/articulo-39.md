@@ -1,1 +1,2 @@
-Artículo 39.—Por cada servicio de inhumación deberán los interesados cancelar la suma acordada por ese servicio, posteriormente con un mínimo de dos horas de antelación a la inhumación, deberán presentar al Encargado de Cementerio el recibo debidamente cancelado.
+Artículo 39.—Los cadáveres que se sepulten en los lotes de inhumación, deberán presentarse en cajas de madera livianas. No se permitirá la inhumación de más de un cadáver en la misma caja y en la misma fosa, salvo cuando se tratare de madre y recién nacido muertos en el acto del parto.
+(Mediante sesión N° 867 del 19 de abril de 2010, se ordena eliminar el artículo 28 original y correr la numeración de los artículos siguientes, por lo que el artículo 40 paso a ser el numeral 39 actual)

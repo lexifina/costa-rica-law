@@ -1,1 +1,3 @@
-Artículo 38.—Los particulares a quienes corresponda el dominio sobre alguna porción del terreno, pueden completar las construcciones que tengan derecho a repararlas o reedificarlas de modo conveniente con tal que se ajusten a las condiciones de su adquisición de acuerdo con la ley y el presente Reglamento.
+Artículo 38.—Por cada servicio de inhumación deberán los interesados cancelar la suma acordada por ese servicio, posteriormente con un mínimo de dos horas de antelación a la inhumación, deberán presentar al Encargado de Cementerio el recibo debidamente cancelado. En caso de ocurrir en un día no laboral la suma correspondiente deberá ser cancelada el día hábil siguiente a la inhumación.
+(Así reformado en sesión N° 867 del 19 de abril de 2010)
+(Mediante sesión N° 867 del 19 de abril de 2010, se ordena eliminar el artículo 28 original y correr la numeración de los artículos siguientes, por lo que el artículo 39 paso a ser el numeral 38 actual)
