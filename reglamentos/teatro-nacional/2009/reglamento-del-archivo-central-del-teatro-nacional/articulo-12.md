@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del manejo de la documentación y expedientes administrativos
+Artículo 12.—Mesa de entrada. El Archivo Central, a través de la “MESA DE ENTRADA” (receptor externo de la correspondencia), será el único medio oficial por la que saldrá e ingresará la correspondencia externa emitida o recibida por los programas o departamentos del Teatro Nacional, independientemente de su origen o forma de entrega. Dicha correspondencia será revisada de acuerdo a los lineamientos y procedimientos que se establezcan al respecto y será clasificada en dos grandes conceptos: 1- Correspondencia General y 2- Expediente Administrativos.

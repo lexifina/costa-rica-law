@@ -1,0 +1,1 @@
+Artículo 14.—Custodia y administración de documentos. Toda información que se refiera a expedientes administrativos, estará bajo la custodia y administración de la oficina productora y conformará los expedientes espejo en versión electrónica, antes de ser transferidos al Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 33.—Acuerdos del comité. Los acuerdos del comité se tomarán por consenso de mayoría, debiendo levantarse un acta de los mismos en cada reunión. El acuerdo tomado se comunicará al programa o departamento gestor de la documentación que se trate.
