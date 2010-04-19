@@ -15,7 +15,8 @@ K. Procurar que haya representación del organismo cooperativo en las actividade
 L. Solicitar autorización a Junta Directiva del INFOCOOP para ausentarse a una o varias sesiones del Consejo de Administración del organismo cooperativo, salvo que su ausencia obedezca a causas impredecibles. Igualmente deberá informar de sus ausencias con las justificaciones debidas en un plazo no mayor a 8 días hábiles.
 M. Emitir su voto en los asuntos sometidos al Consejo de Administración del Organismo Cooperativo, sin que le sea permitido abstenerse, salvo que requiera de información adicional para mejor resolver, supuesto en el cual solicitará que el asunto se posponga.
 N. Guardar confidencialidad frente a terceros, sobre la información que adquiera por ésta representación.
-O. Emitir un informe mensual sobre su gestión ante la Junta Directiva del INFOCOOP.
+O. Emitir un informe mensual sobre su gestión ante el Macroproceso de Desarrollo Integral Cooperativo o a la dependencia que designe la Dirección Ejecutiva del INFOCOOP conforme a la guía estipulada para tal efecto y a las condiciones contractualmente establecidas.
+(Así reformado el inciso anterior en sesión N° 3779 del 19 de abril de 2010)
 P. Reportar de forma inmediata y por escrito al INFOCOOP y al Contralor o al Auditor Interno sobre cualquier hecho que ponga en riesgo los intereses institucionales.
 Q. Avisar por escrito a la Junta Directiva del INFOCOOP y al Consejo de Administración del Organismo Cooperativo, con un mes de anticipación, en caso de que decida renunciar a la representación.
 R. Para el representante con perfil técnico se incorporan aquellos deberes que indique el contrato entre este representante y el Organismo Cooperativo.

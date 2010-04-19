@@ -1,3 +1,2 @@
-Artículo 4º—Reelección y prórroga. El representante con perfil técnico podrá ser reelegido para nuevos períodos para lo cual se elaborará un dictamen técnico, por parte del Proceso de Desarrollo Humano, sobre su desempeño y basado en ese dictamen se podrá realizar la respectiva prórroga contractual o iniciar un nuevo proceso de selección de acuerdo a la metodología de selección, evaluación y reclutamiento que siga dicho Proceso.
-En el caso del representante de la Junta Directiva su reelección será decidida a discreción de ese Órgano Colegiado.
-( Así reformado mediante sesión N° 3727 del 8 de diciembre del 2008 )
+Artículo 4º—Prórroga. El contrato de los representantes podrá ser prorrogado para nuevos períodos para lo cual se elaborará un dictamen técnico, por parte del Macroproceso de Desarrollo Integral Cooperativo o la dependencia que la Dirección Ejecutiva designe, sobre su desempeño y basado en ese dictamen la Dirección Ejecutiva autorizará la respectiva prórroga contractual o iniciar un nuevo proceso de contratación.
+(Así reformado en sesión N° 3779 del 19 de abril de 20109

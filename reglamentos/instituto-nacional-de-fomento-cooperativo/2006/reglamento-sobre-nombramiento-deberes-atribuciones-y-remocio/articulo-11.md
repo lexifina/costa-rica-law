@@ -3,7 +3,8 @@ a. Tener relación de parentesco por consanguinidad o afinidad hasta tercer grad
 b. Aceptar el cargo de presidente del Consejo de Administración del Organismo cooperativo.
 c. Recibir obsequios o dádivas cuando lo comprometa en el cumplimiento de sus deberes como representante institucional.
 d. Incurrir en ilícitos penales o actos contrarios a la moral pública.
-e. En caso de ausencia deberá comunicar al INFOCOOP sobre las causas que la originaron, para que la Junta Directiva decida si justifica la ausencia.
+e. En caso de ausencia temporal deberá comunicar previamente a la Dirección Ejecutiva del INFOCOOP sobre las causas que la originan, para que ésta decida si justifica la ausencia y proceda a notificar al suplente.
+(Así reformado el inciso anterior en sesión N° 3779 del 19 de abril de 2010)
 f. Para el representante con perfil técnico se incorporan aquellas prohibiciones que se indiquen en el contrato entre este representante y el organismo cooperativo.
 g. Para el representante de la Junta Directiva que haya sido contratado bajo la modalidad de servicios profesionales, se incorporan aquellas prohibiciones que se indiquen en el contrato.
 h. Representar al Organismo Cooperativo en el plenario del CONACOOP, o en algún otro organismo de integración cooperativa.
