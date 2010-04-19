@@ -15,3 +15,4 @@ Reglamento de Participación Asociativa
 | --- | --- | --- |
 | 1 | 2006-07-27 | la propia norma |
 | 2 | 2007-10-26 | Reglamento 3675 (2007-10-26) |
+| 3 | 2010-04-19 | Reglamento 3779 (2010-04-19) |
