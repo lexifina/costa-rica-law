@@ -64,7 +64,7 @@ G.03. | Certificado Veterinario de Operación. (Exonerados establecimientos de s
 G.03.01 | Certificado Veterinario de Operación para Establecimiento grande (con excepción de fincas de ganado bovino) | ¢50.000
 G.03.02 | Certificado Veterinario de Operación para Establecimiento mediano (con excepción de fincas de ganado bovino) | ¢35.000
 G.03.03 | Certificado Veterinario de Operación para Establecimiento pequeño (con excepción de fincas de ganado bovino) | ¢25.000
-G.03.04 | Certificado Veterinario de Operación para Transporte automotor de animales, productos y subproductos de origen animal. | ¢20.000
+(*) G.03.04 (*) (Mediante Resolución DGR-009-2010 del 19 de abril de 2010, se exime del pago de hasta un 50% de la tarifa aquí fijada a los transportistas de ganado bovino para el otorgamiento del CVO para transporte automotor de animales, productos y subproductos de origen animal hasta el 4 de diciembre de 2010) | Certificado Veterinario de Operación para Transporte automotor de animales, productos y subproductos de origen animal. | ¢20.000
 | Las presentes tarifas relativas al otorgamiento del CVO podrán ser diferidas en su cobro a sectores, grupos u actividades que se encuentren atravesando temporalmente situaciones difíciles por razones de la naturaleza, la producción o la comercialización, mediante Resolución Administrativa que dictará la Dirección General del SENASA atendiendo a criterios de interés público, conveniencia y oportunidad. En dicha resolución se fijarán las condiciones de excepción y temporalidad que se aplicarán a dichos sectores, grupos u actividades. |
 G.03.05 | Establecimientos de subsistencia con un máximo de 10 animales | NO PAGA
 G.03.06 | Fincas de ganado bovino con hato de 11 a 100 animales | ¢12.000
