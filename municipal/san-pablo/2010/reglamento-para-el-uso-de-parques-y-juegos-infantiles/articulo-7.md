@@ -1,0 +1,1 @@
+Artículo 7º—La instalación de carruseles y puestos comerciales de carácter temporal solo será permitida previo permiso otorgado por el Concejo Municipal, y con la anuencia si existiese, de la organización que lo administra, de conformidad con el art. 2 de este Reglamento.

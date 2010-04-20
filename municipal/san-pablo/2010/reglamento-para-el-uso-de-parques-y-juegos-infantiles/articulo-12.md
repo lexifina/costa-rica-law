@@ -1,0 +1,1 @@
+Artículo 12.—El horario de uso del área infantil dentro del parque será de las seis (6) horas a las dieciocho (18) horas, todos los días. Los niños deben de estar acompañados de un adulto padre o encargado.

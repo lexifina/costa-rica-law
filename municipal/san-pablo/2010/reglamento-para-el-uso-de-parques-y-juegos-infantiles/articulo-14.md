@@ -1,0 +1,1 @@
+Artículo 14.—Se prohíbe en todos los parques el juego de personas adultas con bolas, implementos deportivos u otros objetos que pongan en peligro a otras personas, o que puedan dañar las plantas o instalaciones del parque, cuando no existan áreas para ello.

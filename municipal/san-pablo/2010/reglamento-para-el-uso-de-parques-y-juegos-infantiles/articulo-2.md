@@ -1,0 +1,1 @@
+Artículo 2º—Corresponde a la Municipalidad podrá administrar directamente los parques públicos o bien delegar ésta en organizaciones constituidas en el ámbito comunal, local, distrital o cantonal, mediante convenios formales, dando prioridad a las Asociaciones de Desarrollo Comunal.

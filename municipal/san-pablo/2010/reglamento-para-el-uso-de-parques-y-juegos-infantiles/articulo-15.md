@@ -1,0 +1,1 @@
+Artículo 15.—La Policía de Proximidad y la Policía Municipal deberán hacer cumplir con las disposiciones que regulan el uso de los parques. Quienes hagan mal uso de las instalaciones o causen daño por cualquier origen (imprudencia) deberán ser denunciados ante las autoridades competentes para que los responsables paguen por los costos de reparación o sustitución de lo dañado.

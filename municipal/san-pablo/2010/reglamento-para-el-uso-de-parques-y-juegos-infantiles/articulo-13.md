@@ -1,0 +1,1 @@
+Artículo 13.—Siempre que el espacio, las condiciones y los recursos lo permitan, en los parques públicos existirá infraestructura común de servicio al público la cual puede constar de: módulo de servicios sanitarios, toma de agua, recipientes para el depósito de basura, y para el reciclaje de desechos sólidos.

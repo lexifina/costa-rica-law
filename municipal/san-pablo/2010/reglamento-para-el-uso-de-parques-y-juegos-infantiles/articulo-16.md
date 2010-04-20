@@ -1,0 +1,1 @@
+Artículo 16.—La Municipalidad regulará por los mecanismos que estime conveniente, la siembra de árboles y plantas en alamedas, parques y zonas verdes por razones de seguridad y protección a la infraestructura pública.
