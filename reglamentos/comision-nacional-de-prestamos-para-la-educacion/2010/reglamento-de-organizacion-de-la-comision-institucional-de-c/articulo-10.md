@@ -1,0 +1,1 @@
+Artículo 10.—Funcionamiento. La Comisión sesionará ordinariamente, una vez cada tres meses y extraordinariamente cuando Ip convoque el Presidente, con al menos veinticuatro horas de anticipación. El quorum se formará con la asistencia de tres de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 4º—Función general. La Comisión tiene como función general proponer al Jerarca los lineamientos necesarios para establecer, mantener, perfeccionar y evaluar el sistema de control interno y aplicable a todas las unidades orgánicas de CONAPE.

@@ -1,0 +1,1 @@
+Artículo 9º—Organización. La Comisión será presidida por el Secretario Ejecutivo, en calidad de Presidente y un Secretario que será el Jefe del Departamento de Planificación y en su ausencia el funcionario que designe el Secretario Ejecutivo.

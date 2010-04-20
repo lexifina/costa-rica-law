@@ -1,0 +1,1 @@
+Artículo 7º—Autoevaluación. La autoevaluación del control interno será aplicada por cada Jefatura o titular subordinado, al menos una vez al año, en fecha previamente establecida por la Comisión, debiendo presentar un informe al Jerarca, sobre los resultados de dicha evaluación.

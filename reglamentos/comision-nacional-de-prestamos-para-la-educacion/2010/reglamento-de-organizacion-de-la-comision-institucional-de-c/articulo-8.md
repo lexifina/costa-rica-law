@@ -1,0 +1,7 @@
+Artículo 8º—Atribuciones. Las atribuciones de la Comisión serán las siguientes:
+a) Solicitar informes a los titulares subordinados y el criterio del Profesional de Control Interno.
+b) Acceder a toda la información que se considere necesaria, con el fin de encomendar al Profesional de Control Interno efectuar una valoración idónea de los riesgos que amenacen a CONAPE; siendo obligatorio para todos los funcionarios, dar pronta atención a las solicitudes de información y consultas avaladas por la comisión, en el plazo que ésta defina.
+c) Solicitar al profesional de control interno los resultados obtenidos una vez efectuada la valoración de riesgo mediante el Sistema Específico de Valoración de Riesgos (SEVRI), adoptado por la Institución, para el análisis correspondiente a fin de corroborar su efectividad y promover su perfeccionamiento o mejoramiento continuo con la participación del Jerarca y la Administración Activa en general.
+d) Solicitar al profesional en Control Interno investigar e informar a la Comisión, del eventual incumplimiento de la Ley General de Control Interno, con el fin de que se aplique lo establecido en los artículos 41, 42 y 43 de la Ley supracitada.
+e) Solicitar la presencia de algún funcionario de la Institución en las reuniones ordinarias o extraordinarias que realice, con el objetivo de que se brinde asesoría a la Comisión en algún tema técnico específico de importancia para el control interno.
+f) Validar los Instrumentos que se propongan a nivel Institucional en materia de autoevaluación de Control Interno y de SEVRI.
