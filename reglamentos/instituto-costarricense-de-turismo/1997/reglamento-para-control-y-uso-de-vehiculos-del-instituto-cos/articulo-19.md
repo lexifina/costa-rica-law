@@ -1,4 +1,4 @@
-Artículo 19.—Son vehículos de uso discrecional aquellos asignados para el uso exclusivo de los funcionarios autorizados por la Ley de Tránsito Nº 7331; a efectos de facilitar el desempeño de funciones propias de su cargo, dentro o fuera de la jornada laboral ordinaria, en días hábiles o inhábiles.
-Queda expresamente prohibido el uso del vehículo de uso discrecional para personas diferentes al funcionario al cual se le asignó el mismo, salvo en casos de los choferes al servicio de cada uno de los jerarcas, o cuando para situaciones especiales y mantenimiento del vehículo, el Departamento Administrativo asigne un chofer con la anuencia del funcionario autorizado.
-El funcionario al cual se le haya asignado un vehículo de uso discrecional, velará por su custodia, uso, conservación y mantenimiento.
-(Así reformado por acuerdo de Junta Directiva, tomado en Sesión N° 5217 de 3 de diciembre de 2002)
+Artículo 19.—Son vehículos de uso discrecional aquellos asignados para el uso exclusivo de los funcionarios autorizados por la Ley de Tránsito Nº 7331 y sus reformas; a efectos de facilitar el desempeño de funciones propias de su cargo, dentro o fuera de la jornada laboral ordinaria, en días hábiles o inhábiles.
+Su utilización se regirá por lo dispuesto en la Ley de Tránsito vigente, en el presente Reglamento y en la normativa de la Contraloría General de la República en lo que a esta materia se refiere.
+Los beneficios que representen o hayan representado para los funcionarios la utilización de vehículos de uso discrecional, bajo ninguna circunstancia podrán considerarse como salario en especie.
+(Así reformado mediante sesión N° 5636 del 20 de abril del 2010)
