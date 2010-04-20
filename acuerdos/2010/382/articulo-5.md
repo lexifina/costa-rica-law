@@ -1,0 +1,1 @@
+V.—Derogatoria y vigencia: Estas normas derogan las dictadas por esta Junta de Gobierno en sesión ordinaria Nº 20-6-2000, celebrada el 20 de junio del 2000 y entran en vigencia a partir de su publicación en el Diario Oficial La Gaceta
