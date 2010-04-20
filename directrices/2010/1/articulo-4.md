@@ -1,1 +1,0 @@
-Artículo 4°. El respeto a las normas legales vigentes, al orden público, a los Estatutos y Reglamentos del MEIC, al derecho al trabajo, al derecho a la intimidad y privacidad deben ser una constante en la utilización de los recursos proporcionados por el MEIC.

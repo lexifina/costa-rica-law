@@ -1,1 +1,0 @@
-Artículo 7°. EI personal del Departamento de Servicios de Tecnología y Comunicaciones, realizara respaldo sobre sistemas de misión crítica diariamente (Imágenes Incrementales de servidores tales como: ISAS Servers, Controladores de Dominio, Servidores Web y Bases de Datos), del resto de los sistemas con un periodo de 4 semanas como máximo.

@@ -1,1 +1,0 @@
-Artículo 5°. Esta política se aplica a los equipos que se encuentren en el patrimonio del Ministerio de Economía, Industria y Comercio, sean de su propiedad, arrendados o adquiridos como préstamo en virtud de un convenio de cooperación, bases de datos, archivos y documentos digitales del MEIC.
