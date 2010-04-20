@@ -17,3 +17,4 @@ Reglamento Fondo Mutual Beneficio Social a Vendedores Lotería
 | 2 | 2002-05-07 | Reglamento 0 (2002-05-07) |
 | 3 | 2004-03-09 | Reglamento 9 (2004-03-09) |
 | 4 | 2006-05-16 | Reglamento 18 (2006-05-16) |
+| 5 | 2010-04-20 | Reglamento 14 (2010-04-20) |
