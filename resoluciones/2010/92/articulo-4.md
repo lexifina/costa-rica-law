@@ -1,0 +1,1 @@
+4º—Adicionar en el apartado D-POLITICAS como punto 23, lo siguiente: La solicitud de criterio original quedará como documento de respaldo del formulario Emisión de Criterio y en este último el interesado dejará constancia de recibido y la confirmación del recibo de la muestra si la hubiere.
