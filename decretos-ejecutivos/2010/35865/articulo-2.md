@@ -1,0 +1,1 @@
+Artículo 2º—Este Decreto Ejecutivo modifica o deroga cualquier otra norma de igual o similar rango que se le oponga, en tanto el mismo pueda contravenir el esquema de funcionamiento del Sistema de Gestión de Recursos Humanos bajo el Régimen de Servicio Civil y de sus Componentes Constitutivos.
