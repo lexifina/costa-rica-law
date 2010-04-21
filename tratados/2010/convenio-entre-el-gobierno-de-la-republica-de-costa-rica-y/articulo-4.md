@@ -1,0 +1,2 @@
+ARTÍCULO 4
+Respecto a los transportes marítimos y aéreos de personas y mercancías resultantes de la concesión del préstamo, el Gobierno de la República de Costa Rica permitirá a los pasajeros y proveedores elegir libremente entre las empresas de transporte, no adoptará medidas que excluyan o dificulten la participación con igualdad de derechos de las empresas de transporte con sede en la República Federal de Alemania, y otorgará en su caso las autorizaciones necesarias para la participación de dichas empresas.
