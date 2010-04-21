@@ -1,0 +1,1 @@
+Artículo 3º—Autorización al sector médico. Se autoriza a la Caja Costarricense de Seguro Social y al Ministerio de Salud, para que, sin desatender el servicio público, concedan a su personal calificado, el permiso correspondiente para asistir a las diversas actividades del Congreso.
