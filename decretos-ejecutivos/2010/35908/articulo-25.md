@@ -1,0 +1,1 @@
+Artículo 25.—Cronograma de actividades. Para todos los convenios, independientemente de la actividad a ejecutar o su cuantía, la Dirección Regional deberá realizar un Cronograma de Actividades, el cual se elaborará tomando en consideración la programación trimestral de labores.

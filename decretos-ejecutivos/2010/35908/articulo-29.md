@@ -1,0 +1,2 @@
+Artículo 29.—Sobre el Informe de Ejecución. El Director Regional deberá confeccionar un informe de ejecución de las actividades, que detalle la cuantificación de los recursos invertidos en la obra, de acuerdo con los aportes suministrados durante su ejecución.
+En el expediente administrativo, se deberá incluir copias de los Reportes diarios y otros acontecimientos suscitados, tales como suspensiones, reanudaciones y cierres.

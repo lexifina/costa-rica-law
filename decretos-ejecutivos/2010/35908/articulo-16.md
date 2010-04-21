@@ -1,0 +1,1 @@
+Artículo 16.—Definición del Cronograma de Actividades. El Cronograma de Actividades se elaborará tomando en consideración la programación trimestral de labores de la Dirección Regional correspondiente, para lo cual podrá utilizarse el modelo que al efecto elabore la Administración.

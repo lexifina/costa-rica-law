@@ -1,0 +1,1 @@
+Artículo 26.—Orden de Inicio de los Proyectos. La Dirección Regional deberá incluir en el expediente, el documento mediante el cual se emite la “Orden de Inicio” de las obras, el cual deberá ser firmado por las partes involucradas en la ejecución de éstas.

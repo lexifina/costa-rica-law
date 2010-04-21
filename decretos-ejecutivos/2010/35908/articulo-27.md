@@ -1,0 +1,2 @@
+Artículo 27.—Registro en sistema informático de la gestión vial. Todas las obras a realizar mediante los convenios de mutua cooperación se deberán registrar en el sistema informático instaurado (Sigvi, “Sistema integrado de la gestión vial”) o sistema equivalente.
+El control respectivo se efectuará por medio de las “Boletas de Reporte Diario de Actividades”, en las cuales se registrarán los aportes de las entidades involucradas en el convenio.
