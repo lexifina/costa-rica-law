@@ -1,0 +1,3 @@
+ARTÍCULO 5.-
+La Asamblea Legislativa de la República de Costa Rica interpreta que en la fijación del contrato que se dé entre el KfW y el Banco Nacional, según consta en el artículo 2 del Convenio, se establecerá que las líneas de crédito que se definan se dedicarán el cuarenta por ciento (40%) a otorgar créditos directos y el sesenta por ciento (60%) restante a los otros bancos.
+Además, como complemento del crédito, el Banco Nacional dispondría de un componente de Fondo de Asistencia Técnica (FAT), el cual se utilizaría en asesorar empresas en la conveniencia de créditos ambientales, asesorar a los bancos en evaluación ambiental, así como cofinanciar estudios de factibilidad.
