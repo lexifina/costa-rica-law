@@ -1,0 +1,1 @@
+Artículo 10.—De las funciones de los vocales. De conformidad con el artículo 44 del Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433-MINAE, las funciones no establecidas en dicho reglamento serán las establecidas por la Ley General de Administración Pública Nº 6227 y por ende, aplicarán para el caso de los vocales del CORAC-CVC.

@@ -1,0 +1,1 @@
+Artículo 12.—Formalidad de las convocatorias. Las convocatorias se deberán realizar formalmente por fax o correo electrónico, con al menos quince días naturales de anticipación y los miembros del CORAC-CVC deberán confirmar su participación al menos tres días hábiles antes de la fecha fijada para la celebración de la sesión respectiva.

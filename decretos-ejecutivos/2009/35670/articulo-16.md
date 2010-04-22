@@ -1,0 +1,1 @@
+Artículo 16.—Validez de los acuerdos del CORAC-CVC. Los acuerdos se tomarán por mayoría simple de los presentes, en caso de empate, la Presidencia ejercerá el doble voto. Cuando ello ocurra, deberá consignarse en el acta respectiva el razonamiento pertinente.

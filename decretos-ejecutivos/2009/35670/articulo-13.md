@@ -1,0 +1,1 @@
+Artículo 13.—Asistencia de los representantes propietarios. Los representantes propietarios deL CORAC-CVC deberán asistir a todas las sesiones ordinarias y extraordinarias. En caso de no poder asistir por fuerza mayor, deberán informarlo así al Secretario Ejecutivo y gestionar la participación del respectivo suplente.

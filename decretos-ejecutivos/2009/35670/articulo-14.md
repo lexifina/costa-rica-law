@@ -1,0 +1,1 @@
+Artículo 14.—Asistencia de los suplentes. Los representantes suplentes de los diferentes sectores ante el CORAC-CVC podrán participar en todas las sesiones ordinarias y extraordinarias con voz pero sin voto, en tanto su participación no se dé en representación del miembro propietario del sector.
