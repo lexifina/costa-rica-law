@@ -1,0 +1,1 @@
+Artículo 14.—Agotado el proceso de cobro administrativo, sin que el patrono moroso asuma el pago total o arreglo de pago de la deuda, la operación será trasladada al Departamento de Cobro Judicial, para iniciar el proceso de cobro ante los Tribunales de Justicia.

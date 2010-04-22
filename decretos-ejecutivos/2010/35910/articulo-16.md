@@ -1,0 +1,7 @@
+Artículo 16.—De los requisitos para el arreglo de pago. Procederá el arreglo de pago si se cumplen los siguientes requisitos:
+a) Cancelar al momento de formalizar el arreglo al menos un 20% del total de la deuda y obligarse al pago del saldo en un plazo que no exceda los 36 meses. Este tipo de arreglos podrán ser autorizados por el Departamento de Cobro.
+- La Dirección General, vía excepción y a solicitud del patrono moroso, podrá autorizar el pago de un porcentaje no menor al 20% del total de la deuda y la cancelación del saldo a un plazo no mayor de 72 meses.
+Las solicitudes de arreglo de pago que propongan una cancelación menor al 20% y un plazo que exceda los 72 meses deberán ser autorizadas por la Dirección General mediante un acuerdo debidamente fundamentado y motivado.
+b) Presentar una o más garantías reales o personales. Las garantías personales se documentarán mediante constancias que demuestren un ingreso neto que cubra al menos el 40% del total de la deuda. En el caso de que se presenten sólo garantías reales o una combinación de ambos tipos, se deberá cubrir al menos el 80% del total de la deuda.
+c) Cancelar junto a la prima respectiva por concepto de arreglo de pago, los honorarios de los abogados externos y las costas personales, así como procesales de la ejecución si las hubiere.
+d) Haber entregado los documentos solicitados para el arreglo de pago ante el Departamento de Cobro.
