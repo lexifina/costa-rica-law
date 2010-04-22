@@ -1,0 +1,4 @@
+Artículo 17
+De la devolución de los títulos valores.
+Los títulos valores que garantizaron un arreglo de pago cancelado totalmente, serán devueltos a la persona física o jurídica que suscribió el arreglo de pago, o a la persona autorizada, luego de que se identifique con documento idóneo. Para ello, el deudor deberá presentar una solicitud expresa a la unidad que realizó el trámite de arreglo de pago.
+El encargado del trámite, verificado la cancelación del arreglo, deberá solicitar a la Sub Área Caja y Custodia de Valores, el título correspondiente para realizar la devolución correspondiente. En Sucursales, dicho trámite se debe solicitar al encargado de la caja de seguridad. El documento original se entregará al solicitante por medio de un acta donde quede evidencia escrita de que dicho título fue devuelto.
