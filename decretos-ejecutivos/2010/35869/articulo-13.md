@@ -1,0 +1,1 @@
+XIII.—Derogúese el Decreto Ejecutivo N° 34295, del 29 de enero del año 2008, publicado en La Gaceta N° 28, del 08 de febrero de 2008: “Manual para la Clasificación de Tierras dedicadas a la Conservación de los Recursos Naturales dentro de la Zona Marítimo Terrestre en Costa Rica.”

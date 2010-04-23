@@ -1,0 +1,1 @@
+III.—Alcance (Delimitación del área de estudio). El área de estudio serán los terrenos dentro de la Zona Marítimo Terrestre (ZMT), a lo largo de la franja litoral de ambas costas, excepto las porciones de tierra que se ubican dentro de Áreas Silvestres Protegidas (ASP) o que fueron legalmente inscritas, según el Transitorio VI de la Ley 6043.
