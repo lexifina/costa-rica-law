@@ -1,1 +1,0 @@
-Artículo 13.—De la Juramentación del Comité Cantonal de Deportes. El Comité Cantonal de Deportes y Recreación, en pleno será juramentado por el Concejo Municipal el primero de diciembre de cada dos, o en la primer sesión ordinaria del mes de diciembre de cada dos años.
