@@ -1,0 +1,1 @@
+Artículo 10.—De los convenios interinstitucionales. Los convenios interinstitucionales que suscriba el Ministerio de Vivienda y Asentamientos Humanos para identificar los asentamientos en precario; la ubicación de propiedades e individualización de los beneficiarios se hará observando las competencias correspondientes del MIVAH, así como lo que al efecto establece la Ley Nº 7052.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento regula lo pertinente solo para aquellos terrenos ocupados por personas físicas en carácter de precaristas así identificados según la Ley Nº 8680.
