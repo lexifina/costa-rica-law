@@ -1,0 +1,1 @@
+Artículo 6º—Invitados: La Comisión podrá recibir a funcionarios del Ministerio con la finalidad de facilitarse asesoría técnica u opinión sobre asuntos relacionados con el tema de los planes de la gestión ambiental. La audiencia se concederá previa solicitud ante el Presidente, quién fijará el día y la hora de la reunión.
