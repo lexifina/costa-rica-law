@@ -1,0 +1,1 @@
+Artículo 5º—Ámbito de aplicación. El PREMIO y el RECONOCIMIENTO se dirigen a los órganos del Estado, a los entes públicos, territoriales y no territoriales, estatales y no estatales, y a las empresas públicas.
