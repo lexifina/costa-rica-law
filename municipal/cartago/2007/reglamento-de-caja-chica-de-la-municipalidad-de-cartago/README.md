@@ -14,3 +14,4 @@ Reglamento de Caja Chica de la Municipalidad de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-15 | la propia norma |
+| 2 | 2010-04-27 | Reglamento municipal 0 (2010-04-27) |
