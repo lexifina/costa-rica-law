@@ -14,3 +14,4 @@ Reglamento para el funcionamiento e instalación de máquinas Pin Ball y Saca Pe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-10 | la propia norma |
+| 2 | 2010-04-27 | Reglamento municipal 24 (2010-04-27) |

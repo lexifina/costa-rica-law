@@ -1,2 +1,2 @@
-Artículo 11.—De acuerdo con la población total por área geográfica del cantón de San Isidro, se autoriza un máximo de 1 máquina por cada 500 habitantes en cada distrito.
-Según último censo de población realizado por el Instituto Nacional de Estadística y Censos se presenta la siguiente distribución máxima que pueden ubicarse por distrito, a la fecha: San Isidro 12 máquinas, San José 11 máquinas, Concepción 4 máquinas, San Francisco 8 máquinas.
+Artículo 11.—Máximo de licencias por autorizar. De acuerdo con la población total por área geográfica del cantón de San Isidro, se autoriza un máximo de 01 máquina por cada 500 habitantes en cada distrito.
+(Así reformado en sesión ordinaria N° 24 mediante acuerdo N° 437 y publicado en La Gaceta N° 110 del 8 de junio de 2010)
