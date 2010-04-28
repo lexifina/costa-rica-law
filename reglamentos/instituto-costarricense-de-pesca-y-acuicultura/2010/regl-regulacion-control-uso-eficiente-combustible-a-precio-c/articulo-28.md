@@ -1,0 +1,2 @@
+Artículo 28.—A las embarcaciones cuya base de operación se encuentre en la Zona Externa del Golfo de Nicoya, incluyendo Chacarita y ciudad de Puntarenas y con motores superiores a los 29.8281 Kw, se les otorgará combustible como si su potencia fuera de 29.8280 Kw (equivalente a 40 Hp).
+A las embarcaciones cuya base de operación se encuentre fuera del Golfo de Nicoya, es decir, en los litorales Pacífico o Caribe costarricenses y con motores superiores a los 48.4706 Kw, se les otorgará combustible como si su potencia fuera de 48.4705 Kw (equivalente a 65 Hp).
