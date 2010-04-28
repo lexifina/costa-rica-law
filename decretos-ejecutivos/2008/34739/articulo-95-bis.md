@@ -1,6 +1,5 @@
 Artículo 95 Bis.—Interrupción del tránsito internacional o interno con fines comerciales en instalaciones de empresas de zona franca. Se podrá solicitar a la autoridad aduanera la interrupción del tránsito internacional o interno por más de una vez, para proceder a la descarga, desconsolidación, consolidación y carga de mercancías destinadas al internamiento, la exportación, o reexportación.
-Las operaciones indicadas se podrán realizar en las instalaciones de la aduana, de un depósito aduanero o en las instalaciones del beneficiario.
-El beneficiario dará por recibida la mercancía y comunicará su conformidad al transportista y a la aduana de control, de manera inmediata. De encontrarse diferencias entre las mercancías declaradas en el tránsito y las recibidas, el beneficiario deberá comunicarlo dentro del plazo de 3 horas, contado a partir de la finalización del tránsito.
-El ingreso al Régimen deberá presentarse al día hábil siguiente de la finalización del tránsito.
-La inobservancia de los procedimientos correspondientes por parte del beneficiario implicará que la empresa no podrá seguir haciendo uso de la misma, con solo una comunicación que efectúe la autoridad aduanera.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 35422 del 7 de agosto de 2009)
+Las operaciones indicadas podrán realizarse en las instalaciones de la aduana, de un depósito aduanero, las instalaciones del beneficiario o de un Operador Económico Autorizado, cuando haya sido habilitado para ello.
+El beneficiario dará por recibida la mercancía y comunicará su conformidad al transportista y a la aduana de control de manera inmediata. De encontrarse diferencias entre las mercancías declaradas en el tránsito y las recibidas mediante la declaración de internamiento, el beneficiario deberá cumplir con lo establecido al efecto por la Dirección.
+La inobservancia de los procedimientos correspondientes por parte del beneficiario implicará que la empresa no podrá seguir haciendo uso de la misma.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 36000 del 28 de abril de 2010)

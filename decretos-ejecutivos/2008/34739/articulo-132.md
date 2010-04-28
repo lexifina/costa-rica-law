@@ -1,0 +1,2 @@
+Artículo 132.—Requisitos de ingreso de empresas proveedoras. Las empresas procesadoras que provean a las empresas de zonas francas al menos el 40% de sus ventas totales podrán ingresar al Régimen de Zonas Francas. Estas empresas deberán cumplir con los requisitos de inversión nueva y total establecidos en los artículos 5º y 7º del presente Reglamento pero no deberán cumplir con los demás requisitos establecidos en el artículo 131 de este reglamento.
+(Así adicionado por el artículo 6° del decreto ejecutivo N° 36000 del 28 de abril de 2010)

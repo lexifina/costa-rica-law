@@ -1,0 +1,2 @@
+Transitorio IV.—Dada la derogatoria efectuada del párrafo quinto del inciso g) del artículo 20 de la Ley, y la consecuente derogatoria del artículo 73 del Reglamento modificado por el presente Decreto, se dispone que para los efectos de cualquier fiscalización, sobre los períodos fiscales concluidos antes de la entrada en vigencia de la derogatoria de la norma legal citada, se aplicará en lo conducente el citado artículo 73 reglamentario en todos sus extremos.
+(Así adicionado por el artículo 7° del decreto ejecutivo N° 36000 del 28 de abril de 2010)

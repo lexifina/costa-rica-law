@@ -1,2 +1,2 @@
-Artículo 82.- Informe de proyección de ventas
-Previo a la realización de estas ventas, la empresa beneficiaria deberá remitir a PROCOMER un detalle de la proyección de ventas que se realizarán durante el período correspondiente, en el formato establecido para tal efecto.
+Artículo 82.—Informe de proyección de ventas. Previo a la realización de estas ventas, la empresa beneficiaria deberá remitir a PROCOMER un detalle de la proyección de ventas que se realizarán durante el período correspondiente, en el formato establecido para tal efecto. PROCOMER deberá remitir por los medios establecidos a la Dirección dicha información.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 36000 del 28 de abril de 2010)

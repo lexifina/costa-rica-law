@@ -16,3 +16,4 @@ Reglamento a la Ley de Régimen de Zonas Francas
 | 1 | 2008-09-19 | la propia norma |
 | 2 | 2009-08-07 | Decreto Ejecutivo 35422 (2009-08-07) |
 | 3 | 2009-10-26 | Decreto Ejecutivo 35607 (2009-10-26) |
+| 4 | 2010-04-28 | Decreto Ejecutivo 36000 (2010-04-28) |

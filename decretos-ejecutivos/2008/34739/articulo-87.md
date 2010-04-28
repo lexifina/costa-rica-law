@@ -1,2 +1,2 @@
-Artículo 87.- Plazo de subcontratación
-El plazo autorizado para la subcontratación será fijado por PROCOMER de acuerdo con las necesidades del interesado y podrá prorrogarse si PROCOMER estima que las razones que motivaron la autorización se mantienen.
+Artículo 87.—Plazo de subcontratación. El plazo autorizado para la subcontratación será fijado por PROCOMER de acuerdo con las necesidades del interesado y podrá prorrogarse si dicha institución estima que las razones que motivaron la autorización se mantienen. PROCOMER comunicará dicho plazo a la Dirección por los medios establecidos.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 36000 del 28 de abril de 2010)

@@ -1,0 +1,2 @@
+Artículo 129.—Internamiento al régimen de mercancías por empresas de servicios de logística. Cuando la empresa de servicios de logística requiera entregar las mercancías internadas temporalmente a otra empresa beneficiaria del Régimen o a empresas del Régimen de Perfeccionamiento Activo, estas últimas deberán tramitar la declaración aduanera de internamiento al Régimen, siguiendo al efecto el procedimiento aduanero establecido.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 36000 del 28 de abril de 2010)

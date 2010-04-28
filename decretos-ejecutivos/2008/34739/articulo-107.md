@@ -1,3 +1,3 @@
-Artículo 107.-Ejecución de títulos de prenda aduanera
-Transcurrido el plazo de cinco días hábiles previsto en el artículo anterior, sin que el beneficiario hubiese cancelado el adeudo correspondiente, la aduana procederá en forma inmediata a la efectiva ejecución de la prenda aduanera mediante el remate de los bienes dados en prenda, cuyo precio base para la venta estará constituido por el monto del adeudo más los intereses, multas y demás cargos aplicables.
-El procedimiento para efectuar la subasta será el establecido por la Ley General de Aduanas y su Reglamento.
+Artículo 107.—Procedimiento para el cobro de los tributos, En cualquiera de los supuestos previstos en el presente Reglamento, la aduana de control, procederá al cobro de los tributos dejados de percibir, siguiendo el procedimiento establecido en la Ley General de Aduanas.
+Firme el acto emitido por la aduana de control que ordene el pago del adeudo, el beneficiario contará con un plazo de cinco días hábiles, de conformidad con el artículo 61 de la Ley General de Aduanas, a partir de la notificación respectiva, para pagar el adeudo tributario.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
