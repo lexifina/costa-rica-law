@@ -1,6 +1,6 @@
 Artículo 13. — Son atribuciones del concejo:
-a)Fijar la política y las prioridades del desarrollo municipal, en cada período del gobierno municipal electo, garantizando la incorporación de la perspectiva de género y el enfoque de derechos humanos desde la diversidad. Para su cumplimiento podrá aprobar la creación de oficinas especializadas, con su respectivo presupuesto.
-(Así reformado el inciso anterior por aparte c) del artículo único de la Ley N° 8679 del 12 de noviembre de 2008).
+a) Fijar la política y las prioridades de desarrollo del municipio, conforme al programa de gobierno inscrito por el alcalde municipal para el período por el cual fue elegido y mediante la participación de los vecinos.
+(Así reformado el inciso anterior por el artículo 17 de la ley General de transferencia de competencias del Poder Ejecutivo a las Municipalidades, N° 8801 del 28 de abril de 2010)
 b) Acordar los presupuestos y aprobar las contribuciones, tasas y precios que cobre por los servicios municipales, así como proponer los proyectos de tributos municipales a la Asamblea Legislativa.
 c) Dictar los reglamentos de la Corporación, conforme a esta ley.
 d) Organizar, mediante reglamento, la prestación de los servicios municipales.
