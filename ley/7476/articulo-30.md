@@ -1,1 +1,2 @@
-ARTICULO 30.- Normas supletorias. Para todo lo que no se regula en la presente Ley, si no existe incompatibilidad con este texto, se aplicarán, supletoriamente, el Código de Trabajo y las leyes laborales conexas. Se aplicará el Código Civil cuando no existan normas reguladoras.
+Artículo 30.- Marco legal de la demanda. Presentada la demanda, se procederá conforme a lo estipulado en los artículos 464 y 468 del Código de Trabajo, salvo en lo referente al plazo de la audiencia que el juez conferirá a la parte demandada, el cual será de tres a ocho días.
+(Así corrida la numeración por el artículo 2º de la ley Nº 8805 del 28 de abril de 2010, que lo traspasó del antiguo artículo 21 al 30)
