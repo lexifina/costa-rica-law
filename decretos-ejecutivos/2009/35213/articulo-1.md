@@ -1,4 +1,5 @@
 Nº 35213-MG
+(Nota de Sinalevi: El Poder Ejecutivo aprobó un nuevo decreto ejecutivo N° 37559 del 31 de enero del 2013 que Declara oficial para efectos administrativos la División Territorial Administrativa de la República)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE GOBERNACIÓN Y POLICÍA
 En uso de las facultades que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política y el artículo 27 inciso 1) de la Ley General de la Administración Pública.
@@ -859,7 +860,8 @@ Poblados: Bajillo, Caño Ciego, Cedros, Chambacú, Delicias, La Unión, Maquenca
 Barrios: Fátima, Parajeles, Tres Perlas, Valle Hermoso.
 Poblados: Acapulco, Aldea, Ángeles, Azucena, Banderas, Boca Providencia (parte), Brisas, Buenavista, Buenos Aires, Carrizal, Ceiba, Conchito, Concho, Cuatro Esquinas, Esterito, Estero, Estrella, Guaria, Jazmín, Jocote, Juanilama, Luisa, Llano Verde, Morazán, Nieves, Paraíso, Paso Real, Plomo, Pocosol, Providencia (San Luis), Pueblo Nuevo, Pueblo Santo, Rancho Quemado, Rubí, San Alejo, San Bosco, San Cristobal, San Diego, San Gerardo, San Isidro, San Martín, San Rafael, Santa Cecilia, Santa Esperanza, Santa María, Terrón Colorado (parte), Tiricias, Tres y Tres.
 Hojas del mapa básico, 1:50 000(IGN): Aguas Zarcas, Arenal, Cutris, Chaparrón, Fortuna, Infiernito, Medio Queso, Monterrey, Poás, Pocosol, Quesada, Río Cuarto, San Jorge, San Lorenzo, Tilarán, Tres Amigos.
-CANTÓN 211: ALFARO RUIZ
+(*)CANTÓN 211: ALFARO RUIZ
+(*)(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 8808 del 28 de abril de 2010, se denomina el cantón XI de la provincia de Alajuela con el nombre de "Zarcero")
 Leyes y decretos de creación y modificaciones:
 - Ley 27 de 21 de junio de 1915 (creación, división distrital y límite, segregado del cantón Naranjo).
 - Decreto 28 de 24 de julio de 1918 (confiere título de ciudad a la villa Zarcero).

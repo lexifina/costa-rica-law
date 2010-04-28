@@ -14,3 +14,4 @@ Se declara oficial para efectos administrativos, la aprobación de la División 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-02 | la propia norma |
+| 2 | 2010-04-28 | Ley 8808 |
