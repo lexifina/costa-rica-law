@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que el constituyente moroso incumpliere el compromiso adquirido de arreglo de pago, la Municipalidad procederá de inmediato, presentar a los Tribunales de Justicia la solicitud de demolición de la Construcción.

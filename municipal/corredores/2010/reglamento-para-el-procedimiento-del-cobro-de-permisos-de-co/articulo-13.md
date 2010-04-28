@@ -1,0 +1,1 @@
+Artículo 13.—Toda la documentación relativa a arreglos de pago estará en custodia de la oficina de cobros, la que en su oportunidad y de ser necesario, la remitirá al abogado para iniciar el trámite Judicial correspondiente.

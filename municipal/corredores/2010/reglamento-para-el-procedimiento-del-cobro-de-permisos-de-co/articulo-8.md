@@ -1,0 +1,1 @@
+Artículo 8º—La Oficina de Cobros debe rendir informes trimestrales al Acalde Municipal, sobre las gestiones Judiciales realizadas y el estado en que se encuentran las acciones de cada gestión, a la fecha de referencia.
