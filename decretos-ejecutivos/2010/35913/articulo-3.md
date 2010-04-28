@@ -1,0 +1,1 @@
+Artículo 3º—Que para la designación de los reconocimientos mencionados en los artículos 1º y 2º del presente Decreto, se tomará en cuenta la Metodología de Evaluación Integral a cargo de la Direcciones del Ministerio de Relaciones Exteriores y Culto implicadas en el proceso de evaluación y según los criterios de análisis establecidos.

@@ -1,0 +1,1 @@
+Artículo 2º—Créase una “Mención Honorífica”, con ocasión de la entrega de los Premios a la Excelencia “Mariano Montealegre Bustamante”, a aquellas Embajadas que han demostrado un constante esfuerzo en posicionar al país y han dado prueba de creatividad, compromiso, disciplina y entusiasmo.

@@ -1,0 +1,1 @@
+Artículo 4º—Que los reconocimientos mencionados en los artículos 1º y 2º del presente Decreto, se otorgarán cada dos años, en un acto oficial en las Instalaciones del Ministerio de Relaciones Exteriores y Culto, el cual consistirá en un pergamino que será entregado por el Ministro de Relaciones Exteriores y Culto.
