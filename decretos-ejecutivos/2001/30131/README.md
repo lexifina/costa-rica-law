@@ -16,3 +16,4 @@ Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización
 | 1 | 2002-03-31 | la propia norma |
 | 2 | 2003-09-29 | Decreto Ejecutivo 31502 (2003-09-29) |
 | 3 | 2006-08-09 | Decreto Ejecutivo 33601 (2006-08-09) |
+| 4 | 2010-04-28 | Decreto Ejecutivo 36011 (2010-04-28) |
