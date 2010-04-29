@@ -1,0 +1,9 @@
+Artículo 4º—Funciones de la Secretaría Técnica de Control Interno. Son funcione de la Secretaría, las siguientes:
+a) Depurar, tabular, documentar y divulgar la información relativa a riesgos y auto evaluaciones del Sistema de Control Interno a nivel institucional, remitida por los miembros de la Comisión.
+b) De conformidad con las directrices que emita la Coordinación, capacitar, fomentar y promover a nivel ministerial el más amplio conocimiento del significado e implicaciones del control interno y la planificación con base en la valoración del riesgo, así como la conciencia de la responsabilidad administrativa de autoevaluarse.
+c) Atender y resolver consultas verbales y escritas que le presentan sus superiores, subalternos y compañeros en materia de Control Interno.
+d) Desarrollar y proponer a la Coordinación metodologías que permitan realizar labores preventivas en materia de control interno.
+e) Asesorar, tanto a las Autoridades Superiores como a las diferentes direcciones y unidades funcionales, en cuanto al fortalecimiento de la estructura del Sistema de Control Interno, que minimice los riesgos de pérdidas, desviación o inadecuada utilización de los recursos públicos, así como el incumplimiento de los fines y objetivos institucionales.
+f) Colaborar, coordinar y facilitar las actividades relacionadas con la autoevaluación del Sistema de Control Interno y la aplicación y seguimiento del Sistema Específico de Valoración del Riesgo, de su área respectiva.
+g) Revisar y recomendar el ajuste de los procesos de control interno existentes en la institución, con el fin de que no constituyan trabas innecesarias a la prestación de los servicios públicos, de acuerdo con lo estipulado en la Ley General de Control Interno.
+h) Asesorar a la Dirección General en temas varios acorde con la materia y realizar todas aquellas funciones que se le asignen.

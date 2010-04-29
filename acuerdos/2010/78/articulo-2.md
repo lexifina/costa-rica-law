@@ -1,0 +1,2 @@
+Artículo 2º—Coordinación e integración: La Secretaria Técnica de Control Interno, estará coordinada por quien ejerza el puesto de Director (a) General del Ministerio de la Presidencia, e integrada por al menos tres funcionarios técnicos o profesionales con experiencia y conocimiento en áreas afines, conforme las funciones que se les asignen.
+El Director General podrá convocar para que se integre en la Secretaría Técnica de Control Interno a representantes de otras unidades funcionales según corresponda.
