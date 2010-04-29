@@ -18,3 +18,4 @@ Reglamento Autónomo de Organización y funcionamiento del Comité Cantonal Depo
 | 3 | 2006-10-09 | Reglamento municipal 58 (2006-10-09) |
 | 4 | 2007-01-15 | Reglamento municipal 3 (2007-01-15) |
 | 5 | 2007-07-09 | Reglamento municipal 42 (2007-07-09) |
+| 6 | 2010-04-29 | Reglamento municipal 183 (2010-04-29) |
