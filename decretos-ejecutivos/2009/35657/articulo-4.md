@@ -6,5 +6,6 @@ Artículo 4º—La Comisión estará integrada de la siguiente manera:
 5) Un representante de las instituciones de Educación Superior Estatal, señor Rodrigo Arias Camacho y su suplente señor Roberto Román González.
 6) Un representante de la Sutel, señor George Miley Rojas y su suplente Maryleana Méndez Jiménez.
 7) Un representante de la Universidad de Costa Rica y su suplente. En este caso, una vez publicado este Decreto, dicha entidad contará con plazo no mayor a tres días hábiles para remitir al Ministro Rector los nombres de su representante y su respectivo suplente.
-La Presidencia de la Comisión contará con un equipo de asesores que estará integrado por funcionarios del Poder Ejecutivo, el señor Carlos Freer Valle y un funcionario del Sistema Nacional de Radio y Televisión (SINART), señor Alfonso Estevanovich González. En calidad de asesoría la Comisión podrá recibir aportes o participaciones de otras entidades pertenecientes al sector de telecomunicaciones.
+La Presidencia de la Comisión contará con un equipo de asesores que estará integrado por funcionarios del Poder Ejecutivo, y el señor Carlos Freer Valle. En calidad de asesoría la Comisión podrá recibir aportes o participaciones de otras entidades pertenecientes al sector de telecomunicaciones.
+(Así reformado el párrafo anterior por el artículo 2º del decreto ejecutivo Nº 36009 del 29 de abril de 2010)
 (Así reformado por el artículo 1 del decreto ejecutivo N° 35771 del 20 de enero de 2010)

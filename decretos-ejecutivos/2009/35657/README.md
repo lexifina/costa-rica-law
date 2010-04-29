@@ -15,3 +15,4 @@ Crea Comisión Especial Mixta para Analizar e Informar al Rector del Sector de T
 | --- | --- | --- |
 | 1 | 2009-12-21 | la propia norma |
 | 2 | 2010-01-20 | Decreto Ejecutivo 35771 (2010-01-20) |
+| 3 | 2010-04-29 | Decreto Ejecutivo 36009 (2010-04-29) |
