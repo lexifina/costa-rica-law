@@ -1,0 +1,4 @@
+Artículo 37.—Animales muertos y desechos biológicos
+1. Queda prohibida la entrega de animales muertos o partes restantes de ellos al servicio de recolección municipal de desechos. Estos deberán ser enterrados por cuenta de los sujetos dueños en sus propiedades.
+2. No se recibirán excretas de animales provenientes de fincas, granjas, locales comerciales o criaderos, ni los desechos provenientes de plantas de tratamiento de aguas negras o industriales, biodigestores o tanques sépticos.
+3. Queda prohibida la entrega de excretas de personas al servicio de recolección de la basura.

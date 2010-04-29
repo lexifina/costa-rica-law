@@ -1,0 +1,3 @@
+Artículo 14.—Comunicación entre municipalidad y responsables
+1. Las observaciones que la Municipalidad realice a toda organización con más de diez sujetos empleados o personas que permanezcan en ellas, serán dirigidas a la persona responsable de la gestión de manejo discriminado de desechos sólidos con copia al jerarca de la institución y a la persona titular de la Unidad local del Ministerio de Salud.
+2. Igualmente las comunicaciones de las organizaciones hacia la Municipalidad serán canalizadas a través de los sujetos responsables designados sin obviar que la representación legal de las mismas puede actuar conforme a sus potestades otorgadas por el Ordenamiento Jurídico.

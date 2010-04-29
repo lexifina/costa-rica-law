@@ -1,0 +1,7 @@
+Artículo 48.—Construcciones
+1. En el caso de las construcciones que se realicen en el cantón, serán las personas dueñas de las construcciones las responsables de disponer adecuadamente los desechos no cotidianos, tierra y escombros que generen estas construcciones.
+2. Queda prohibido tener este tipo de desechos sobre la vía pública, en la acera o en lotes baldíos que no sean de su propiedad.
+3. En caso de incumplimiento de este artículo, se le notificará la anomalía a la persona dueña de la propiedad y se le dará un plazo de tres (3) días naturales para resolver la situación. De no resolverse la anomalía de acuerdo a lo notificado, la Municipalidad procederá a clausurar la construcción a través del Subproceso de Planificación Urbana y Control Constructivo, hasta que se corrija la anomalía.
+4. La recolección y disposición final de desechos provenientes de las construcciones podrá ser realizada por personas físicas o jurídicas, privadas, que estén autorizadas por la Municipalidad para tal fin y podrán ser escogidas por el sujeto munícipe que construye en su predio.
+5. El sujeto munícipe generador de los desechos de la construcción será responsable ante la Municipalidad de que los desechos se van a disponer adecuadamente en un depósito técnico o lugar afín, con la finalidad de evitar daños al ambiente y molestias a terceras personas.
+6. La recolección final de los desechos de las construcciones, es responsabilidad de la persona dueña de la propiedad y no podrán ser dispuestos mediante el servicio regular de la recolección de desechos no aprovechables.

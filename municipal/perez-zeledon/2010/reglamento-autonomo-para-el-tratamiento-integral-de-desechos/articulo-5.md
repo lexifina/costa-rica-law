@@ -1,0 +1,7 @@
+Artículo 5º—Potestades y competencias de la Municipalidad
+1. Es potestad de la Municipalidad, de acuerdo con lo dispuesto en la Ley General de Salud en sus artículos 278, 280, 281 y el Código Municipal en el artículo 74, ejecutar la recolección de los desechos sólidos cantonales, previa separación en la fuente, cobrar las tasas respectivas, y reglamentar todo lo referente a la prestación de este servicio.
+2. El Concejo Municipal, a través de la Comisión Ampliada de Apoyo y Control como órgano técnico bajo su dependencia, será el órgano institucional encargado de la rectoría y planificación, así como del control, supervisión y del dictado de las políticas públicas referentes al Programa de Tratamiento Integral de Desechos Sólidos de la Municipalidad.
+3. La Alcaldía Municipal por su parte será la encargada de la dirección y administración generales de Programa. Tendrá bajo su cargo la adecuada utilización de los recursos de toda índole que sean necesarios para hacer efectivo y oportuno este Programa.
+4. El Proceso de Desarrollo, Control Urbano y Servicios Municipales, a través del Subproceso de Tratamiento de Desechos Sólidos quien a su vez se servirán de las Actividades de Recolección, Saneamiento y Medio Ambiente, serán los encargados de la ejecución de las actividades necesarias para lograr de manera efectiva y oportuna el desarrollo del Programa en todas sus fases.
+5. La estructura organizacional del Programa de Tratamiento Integral de Desechos Sólidos Municipal se establece según la figura siguiente:
+[imagen]

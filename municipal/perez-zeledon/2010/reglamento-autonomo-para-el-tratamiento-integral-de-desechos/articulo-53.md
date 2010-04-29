@@ -1,0 +1,4 @@
+Artículo 53.—Requerimientos del tratamiento
+1. Durante el proceso biotecnológico de degradación de desechos biodegradables, no se permitirá la generación de molestias por malos olores, proliferación de insectos u otras plagas que puedan transmitir enfermedades a la población, producción de líquidos o lixiviados que contaminen el suelo, cursos de agua y nacientes o la inadecuada disposición final de desechos.
+2. En el caso de biodegradación por fermentación, no se permitirá que el biogás producido por el proceso contamine el aire. El gas metano o biogás, deberá ser incinerado para producir dióxido de carbono y agua o recolectado en contenedores para su aprovechamiento en procesos domésticos, comerciales, institucionales o industriales.
+3. En ambos casos se deberán tomar las medidas de precaución necesarias para que este gas no sea un riesgo potencial de catástrofe para las instalaciones y los alrededores.

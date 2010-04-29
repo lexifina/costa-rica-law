@@ -1,0 +1,1 @@
+Artículo 20.—Cuidados atendibles por el sujeto generador de desechos. Durante la generación y almacenamiento primario o intermedio, el sujeto generador y manipulador de desechos estará obligado a evitar que los desechos sólidos se mojen o queden al descubierto.

@@ -1,0 +1,3 @@
+Artículo 17.—Coordinación entre la Municipalidad y los entes públicos de educación
+1. Todas las organizaciones de educación existentes en el cantón estarán comprometidas a coordinar con la Municipalidad el desarrollo de las estrategias de formación ciudadana necesarias para la implementación del Programa.
+2. La Municipalidad, conjuntamente con las autoridades respectivas del Ministerio de Educación Pública, con la colaboración de otras instituciones afines establecerán y realizarán un programa permanente de Formación Ciudadana que promueva la concientización y capacitación relacionado con los temas afines al Manejo Integral de Desechos Sólidos de la Municipalidad, en el marco del currículo de la educación formal.

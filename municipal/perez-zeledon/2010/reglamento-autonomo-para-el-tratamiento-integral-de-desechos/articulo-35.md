@@ -1,0 +1,1 @@
+Artículo 35.—Incentivos a los sujetos generadores comerciales o industriales. Se podrá otorgar un reconocimiento a la empresa agrícola, comercial o industrial que dispongan en forma adecuada sus desechos dentro de su propia industria.

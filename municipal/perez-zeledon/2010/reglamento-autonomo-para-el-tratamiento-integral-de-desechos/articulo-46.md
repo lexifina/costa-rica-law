@@ -1,0 +1,8 @@
+Artículo 46.—Vehículos de recolección
+1. Los vehículos utilizados para la recolección de desechos deberán contar con un sistema que evite el derrame de lixiviados o la dispersión de desechos por las vías por donde transiten.
+2. Además deberán estar adecuadamente rotulados como maquinaria que presta el servicio público de recolección.
+3. La Municipalidad realizará la recolección de desechos sólidos con su propio equipo y personal, o podrá contratar los servicios de entidades externas para que presten este servicio y en áreas definidas, cumpliendo con lo que establece la Ley de Contratación Administrativa en lo referente a la contratación externa del servicio.
+4. Tanto la Municipalidad como el sujeto contratista público encargados del servicio deberán mantener en condiciones higiénicas las unidades de recolección que dispongan para este fin.
+5. No se recibirán aquellos desechos sólidos que de alguna forma puedan dañar los sistemas compactadores de las unidades recolectoras municipales o de las empresas recolectoras, o aquellos que atenten contra la integridad física del personal que labora en esta actividad.
+6. Queda prohibido transportar al descubierto desechos sólidos que contengan desechos biodegradables, que generen polvo o puedan dejar caer objetos que dañen a personas o vehículos en las vías públicas. Como mínimo, el vehículo de transporte deberá tener un manteado o lona que cubra totalmente los desechos mientras se transportan.
+7. Quedan excluidos de los anterior los desechos sólidos peligrosos, que deben transportarse de acuerdo a lo que establece el presente Reglamento.

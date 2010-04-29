@@ -1,0 +1,5 @@
+Artículo 13.—Capacitación a las personas auxiliares de gestión
+1. Los sujetos responsables del manejo de desechos sólidos de cada organización funcionarán como auxiliares de gestión ad honorem de la Municipalidad en la implementación del Programa Municipal y dentro del marco de los lineamientos municipales.
+2. La Municipalidad promoverá el desarrollo de Programa de Capacitación y Formación en el Tratamiento Integral de los Desechos Sólidos dirigidos a las personas responsables de las organizaciones a fin de que estas se conviertan en agentes multiplicadores de esta información y conocimiento en sus organizaciones.
+3. Igualmente promoverá la divulgación del conocimiento en materia de Tratamiento Integral de Desechos Sólidos a través de folletos, libros, documentos, volantes, afiches y cualquier otro tipo de material digital o gráfico como soporte a la función de las personas responsables de cada organización.
+4. La persona que se nombre como responsable del manejo discriminado de desechos sólidos de cada organización, deberá haber aprobado los cursos que la Municipalidad convoque con el fin de lograr la gestión adecuada del Programa.
