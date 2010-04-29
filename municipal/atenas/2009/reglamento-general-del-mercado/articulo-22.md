@@ -1,0 +1,1 @@
+Artículo 22.—Se exime a la Municipalidad por la responsabilidad de accidentes, robos de bienes de propiedad privada dentro del los locales. La Municipalidad solo brindará seguridad cuando el mercado permanezca cerrado en sus instalaciones. Cada inquilino deberá proteger sus pertenencias.

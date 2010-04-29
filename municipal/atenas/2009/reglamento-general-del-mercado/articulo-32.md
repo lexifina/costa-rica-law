@@ -1,0 +1,1 @@
+Artículo 32.—Todo inquilino deberá sacar su basura en forma oportuna en los horarios establecidos por la Administración. En casos de días feriados o festividades especiales o que se amplié el horario de funcionamiento, los inquilinos en forma solidaria pagarán los costos de las recolecciones extras, por mutuo convenio con la Administración del Mercado.

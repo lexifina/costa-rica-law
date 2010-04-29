@@ -1,0 +1,1 @@
+Artículo 12.—Todo inquilino deberá estar el día en el pago de las obligaciones tributarias y de cualquier índole para con la Municipalidad, de forma que el atraso de dos o más periodos constituirá causal de cancelación del contrato de arrendamiento.

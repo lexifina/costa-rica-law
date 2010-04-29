@@ -1,0 +1,1 @@
+Artículo 9º—Todo adjudicatario de un local podrá tener los dependientes que estime necesarios para la atención de su negocio. Todos los dependientes deberán cumplir con los requisitos establecidos en los incisos a), b), y c) del artículo anterior, además de contar con los regímenes exigidos por el Instituto Nacional de Seguros y la Caja Costarricense de Seguro Social.

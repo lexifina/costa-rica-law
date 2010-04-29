@@ -1,0 +1,1 @@
+Artículo 38.—Por cancelación del contrato se entenderá la finalización del mismo por falta imputable al arrendatario, en los términos regulados en el presente Reglamento. En tal caso el arrendamiento no tendrá derecho a indemnización económica de ninguna clase y procederá al desalojo del local en un plazo no mayor a ocho días a partir la notificada del acto final.

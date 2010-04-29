@@ -1,0 +1,1 @@
+Artículo 16.—Queda expresamente prohibido a los arrendatarios, su personal y proveedores, colocar cualquier tipo de producto u objeto en los pasillos, piso o callejones del mercado. El incumplimiento de esta disposición acarreará amonestación escrita la primera vez y cancelación del contrato en caso de reincidencia.
