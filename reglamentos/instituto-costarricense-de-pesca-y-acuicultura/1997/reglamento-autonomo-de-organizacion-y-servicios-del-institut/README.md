@@ -18,3 +18,4 @@ Reglamento Autónomo de Organización y Servicios del Instituto Costarricense de
 | 3 | 2000-01-06 | Acuerdo 4 (2000-01-06) |
 | 4 | 2007-08-24 | Acuerdo 317 (2007-08-24) |
 | 5 | 2007-08-24 | Acuerdo 318 (2007-08-24) |
+| 6 | 2010-04-29 | Acuerdo 139 (2010-04-29) |
