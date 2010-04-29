@@ -1,0 +1,24 @@
+N° 35941-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE EDUCACIÓN PÚBLICA
+En uso de las facultades que les confieren los numerales 11, 140 incisos 3) y 18) y 146 de la Constitución Política, los artículos 11, 25 inciso 1), 27 inciso 1) y 28 inciso 2 acápite b de la Ley General de la Administración Pública, Ley Nº 6227 del dos de mayo de mil novecientos setenta y ocho y con fundamento en lo dispuesto por la Ley Nº 6693 del 27 de noviembre de 1981, “Creación del Consejo Nacional de Enseñanza Superior Universitaria Privada CONESUP.
+Considerando:
+1º—Que mediante la Ley Nº 6693 del 27 de noviembre de 1981 se creó el Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP), adscrito al Ministerio de Educación Pública, para que conozca, con carácter determinativo, los asuntos que por esta ley y sus reglamentos se le encomiendan.
+2º—Que mediante el Decreto Ejecutivo Nº 29631-MEP, publicado en La Gaceta Nº 133 del 11 de julio de 2001, se promulgó el Reglamento General del Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP).
+3º—Que por medio del artículo 6 del Decreto Ejecutivo Nº 29631-MEP, publicado en La Gaceta Nº 133 del 11 de julio de 2001, se establece que el Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP) contará, para el cumplimiento de sus funciones, con una Secretaría Técnica que estará bajo la responsabilidad de un Director Ejecutivo.
+4º—Que para fortalecer la capacidad de gestión técnica y administrativa de la Secretaría Técnica del CONESUP, dados los cambios que ha experimentado el sistema educativo costarricense y, consecuentemente, el sector universitario tanto público como privado, se requiere actualizar su organización administrativa, como base para promover un modelo de gestión moderno, ágil y estratégico, capaz de responder de manera oportuna y eficiente ante las demandas y necesidades de los usuarios, de conformidad con el ordenamiento jurídico establecido para tales efectos.
+5º—Que de acuerdo con lo establecido en los artículos 2 y 3 del Decreto Ejecutivo Nº 33713 del 26 de marzo de 2007, publicado en el Diario Oficial La Gaceta Nº 73 del 17 de abril de 2007, Reforma del Reglamento a la Ley Marco para la Transformación Institucional y Reforma a la Ley de Sociedades Anónimas Laborales, la Dirección de Planificación Institucional (DPI) del Ministerio de Educación Pública, por medio del oficio DPI-0165-2010, del 21 de enero de 2010, brindó el criterio técnico favorable al Proyecto de Reorganización Administrativa del Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP), aprobado por el Ministro de Educación Pública en su calidad de Ministro Rector.
+6º—Que de acuerdo con lo establecido en el artículo 5 del Decreto Ejecutivo Nº 33713 del 26 de marzo de 2007, publicado en el Diario Oficial La Gaceta Nº 73 del 17 de abril de 2007, Reforma del Reglamento a la Ley Marco para la Transformación Institucional y Reforma a la Ley de Sociedades Anónimas Laborales, el Ministerio de Educación Pública (MEP) remitió al Ministerio de Planificación Nacional y Política Económica (MIDEPLAN, por medio del oficio DM-0298-01-10 del 25 de enero de 2010, copia de la nueva organización administrativa del Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP) y del correspondiente informe técnico, para que se cumpla con el requisito establecido para tales efectos en la normativa vigente.
+7º—Que de acuerdo con lo establecido en el 5 del Decreto Ejecutivo Nº 33713 del 26 de marzo de 2007, publicado en el Diario Oficial La Gaceta Nº 73 del 17 de abril de 2007, Reforma del Reglamento a la Ley Marco para la Transformación Institucional y Reforma a la Ley de Sociedades Anónimas Laborales, el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), por medio del oficio DM-101-10 del 10 de marzo de 2010, verifica y comunica que el Ministerio de Educación Pública (MEP) ha cumplido con los requisitos establecidos por la normativa vigente para el registro de la nueva Organización Administrativa de la Secretaría Técnica del Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP). Por tanto;
+Decretan:
+ORGANIZACIÓN ADMINISTRATIVA DE LA SECRETARÍA
+TÉCNICA DEL CONSEJO NACIONAL DE ENSEÑANZA
+SUPERIOR UNIVERSITARIA PRIVADA (CONESUP)
+CAPÍTULO ÚNICO
+Artículo 1º—La Secretaría Técnica del Consejo Nacional de Enseñanza Superior Universitaria Privada, en lo sucesivo el CONESUP o el Consejo, se ejercerá por medio de la Dirección Ejecutiva. Para el cumplimiento de sus funciones esta Secretaría Técnica contará con la siguiente organización administrativa:
+a) Dirección Ejecutiva.
+b) Secretaría de Actas.
+c) Asesoría Jurídica.
+d) Departamento de Análisis Técnico y Curricular.
+e) Departamento de Inspección e Inscripción de Títulos.
+f) Departamento de Gestión Administrativa.

@@ -1,0 +1,1 @@
+Artículo 9º—El personal asignado por el MEP para el funcionamiento de la Secretaría Técnica del CONESUP, formará parte del programa presupuestario correspondiente y debidamente articulado a la relación de puestos que al efecto exista para el CONESUP.
