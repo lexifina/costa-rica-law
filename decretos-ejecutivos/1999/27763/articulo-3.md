@@ -6,8 +6,9 @@ A.02 | Servicios profesionales en horas inhábiles (por hora, excepto feriados) 
 A.03 | Por servicios técnicos en horas inhábiles (por hora, excepto feriados) | ¢3.357
 A.04 | Por servicios profesionales en horas inhábiles (por hora, días feriados) | ¢11.898
 A.05 | Por servicios técnicos en horas inhábiles (por hora, días feriados) | ¢4.475
-| ASESORIA JURIDICA |
+| ASESORÍA JURÍDICA |
 A.06 | Autenticación de firma en certificado veterinario | ¢3.000
+A.07 | Retención para cubrir gastos administrativos en ejecución forzosa de medidas sanitarias | 10% del producto económico que se genere
 B | INSPECCIÓN Y CERTIFICACIÓN DE PRODUCTOS DE ORIGEN ANIMAL |
 B.01 | Certificado de exportación o reexportación de productos y subproductos de origen animal | ¢9.827
 B.02 | Marchamo o sello oficial (metal, papel o plástico) para medios de transporte, plantas, almacenes, empaques o embalajes y otros | ¢3.156
@@ -19,20 +20,21 @@ B.07 | Sello SENASA de sanidad o inocuidad. La presente tarifa anual cubre todos
 B.08 | Certificación anual del programa de gestión de inocuidad de establecimientos que manufactura para consumo nacional | ¢10.000
 C | CUARENTENA ANIMAL |
 C.01 | Certificado de exportación o reexportación de animales, material biológico y reproductivo | ¢9.827
-C.02 | Autorización previa para importación o tránsito de animales, productos y subproductos de origen animal, alimentos para animales y materias primas | ¢9.474
+C.02 | Autorización previa para importación o tránsito de animales, productos y subproductos de origen animal, alimentos para animales y materias primas que no ingresen al país en contenedor | ¢9.474
 C.03 | Registro anual de establecimientos importadores | ¢44.162
 C.04 | Inspección de carga en transporte marítimo de alimentos para animales (por TM) | ¢14
 C.05 | Constancia de inspección para importación de muestras de productos y subproductos de origen animal (menos de 30 kg) | ¢773
 C.06 | Registro individual de pruebas serológicas en equino para exportación | ¢8.943
 C.07 | Incineración, destrucción o desnaturalización de animales, productos y subproductos, medicamentos, alimentos y otros (por kilogramo) | ¢1.112
 C.08 | Inspección cuarentenaria a barcos pesqueros | ¢26.290
-C.09 | Constancia de inspección cuarentenaria de productos y subproductos de origen animal en importación. exportación y tránsito (en horas hábiles y en transporte exclusivo o consolidado) | ¢18.024
-C.10 | Constancia de inspección cuarentenaria de animales en importación, exportación y tránsito (por animal en especies mayores) | ¢1.574
-C.11 | Constancia de inspección de otras especies animales en importación, exportación y tránsito (por embarque en especies menores) | ¢4.717
-C.12 | Toma de muestra en animales, productos y subproductos de origen animal importados (en puestos cuarentenarios, en horas hábiles) | ¢3.156
+C.09 | Inspección cuarentenaria a embarcaciones de recreo (yates, veleros, cruceros) | ¢26.290
+C.10 | Constancia de inspección cuarentenaria de productos y subproductos de origen animal en exportación y tránsito (en horas hábiles y en transporte exclusivo o consolidado) | ¢18.024
+C.11 | Constancia de inspección cuarentenaria de animales en importación, exportación y tránsito (por animal en especies mayores) | ¢1.574
+C.12 | Constancia de inspección de otras especies animales en importación, exportación y tránsito (por embarque en especies menores) | ¢4.717
 C.13 | Inspección de reinas y séquito real en importación por reina | ¢2.500
 C.14 | Inspección de reinas y séquito real con panal para exportación por reina | ¢4.000
-(*)C.15 (*)(Nota de Sinalevi: Mediante directriz N° 014 del 4 de diciembre de 2009, se establece una moratoria en la aplicación de la anterior tarifa hasta el 01 de abril de 2010.) | Fumigación, nebulización y/o aspersión, por medio de los métodos procedentes a los medios de transporte (contenedores y vehículos) en proceso de importación. No se cobran los DUA de la modalidad de a granel. No se incluyen en esta tarifa los contenedores vacíos. | 0.15% del valor aduanero por Documento Único Aduanero (DUA) generado
+C.15 | Servicios Cuarentenarios tales como: Toma de muestras de productos y subproductos de origen animal, excluidos los animales vivos, Trámite de documentos, Constancia de inspección en importaciones, Certificaciones de vigilancia, Fumigación, aspersión o nebulización a productos y subproductos de origen animal, a mercancías que se importen a través de puestos terrestres, marítimos o aeropuertos por vía de contenedor de cualquier tipo, carreta o lowboy. Incluye vehículos importados por primera vez, nuevos o usados, así como bultos sueltos. Se excluye inspección de alimentos para animales por contar con su propia tarifa. Los pick ups, automóviles, microbuses de uso familiar y motocicletas inscritas y pertenecientes a la Flota Nacional, que hayan salido del país y reingresen al mismo y aquellos de flotas de otros países en tránsito (de paso) por Costa Rica se exoneran de pago de la presente tarifa. Igualmente no aplica para contenedores vacíos y en tránsito internacional. | Sobre peso bruto que genere DUA: De 0 a menos del 2.500 kg, tarifa única mínima de ¢5.000; Del 2.500 kg a 50.000 kg, tarifa de ¢2/ kg; Mayor a 50.000 kg tarifa de 500 x raíz cuadrada del peso en kg.
+Cuando por razones del sistema informático aduanero no sea posible cobrar la anterior tarifa establecida por DUA, en su defecto se aplicarán las tarifas que correspondan y establecidas en el presente Decreto 27763- MAG bajo el artículo 4 bis.
 D | EPIDEMIOLOGÍA |
 D.01 | Análisis de riesgo: Consulta Técnica | ¢84.850
 D.02 | Análisis de riesgo: Cualitativo | ¢1.500.000
@@ -57,16 +59,16 @@ F.04 | Registro bianual de empresas elaboradoras de materias primas para aliment
 F.05 | Registro o renovación de registro de materias primas, mezclas, premezclas y alimentos balanceados para animales (por producto, cada 5 años) | ¢28.658
 F.06 | Inspección de carga en vehículos que transportan materias primas, premezclas, alimentos balanceados y aditivos para alimentación animal (por vehículo) | ¢6.312
 F.07 | Ampliación o modificación de registros en alimentos para animales (empresas, productos, etiquetas) | ¢12.493
-G | OPERACIONES NACIONALES |
+G | COORDINACIÓN REGIONAL |
 G.01 | Certificado Oficial de Salud Animal | ¢8.922
 G.02 | Supervisión de cuarentena domiciliar para los animales que se importan (por embarque) | ¢8.922
-G.03. | Certificado Veterinario de Operación. (Exonerados establecimientos de subsistencia) |
+G.03. | Certificado Veterinario de Operación. |
 G.03.01 | Certificado Veterinario de Operación para Establecimiento grande (con excepción de fincas de ganado bovino) | ¢50.000
 G.03.02 | Certificado Veterinario de Operación para Establecimiento mediano (con excepción de fincas de ganado bovino) | ¢35.000
 G.03.03 | Certificado Veterinario de Operación para Establecimiento pequeño (con excepción de fincas de ganado bovino) | ¢25.000
-(*) G.03.04 (*) (Mediante Resolución DGR-009-2010 del 19 de abril de 2010, se exime del pago de hasta un 50% de la tarifa aquí fijada a los transportistas de ganado bovino para el otorgamiento del CVO para transporte automotor de animales, productos y subproductos de origen animal hasta el 4 de diciembre de 2010) | Certificado Veterinario de Operación para Transporte automotor de animales, productos y subproductos de origen animal. | ¢20.000
+G.03.04 | Certificado Veterinario de Operación para Transporte automotor de animales, productos y subproductos de origen animal. | ¢20.000
 | Las presentes tarifas relativas al otorgamiento del CVO podrán ser diferidas en su cobro a sectores, grupos u actividades que se encuentren atravesando temporalmente situaciones difíciles por razones de la naturaleza, la producción o la comercialización, mediante Resolución Administrativa que dictará la Dirección General del SENASA atendiendo a criterios de interés público, conveniencia y oportunidad. En dicha resolución se fijarán las condiciones de excepción y temporalidad que se aplicarán a dichos sectores, grupos u actividades. |
-G.03.05 | Establecimientos de subsistencia con un máximo de 10 animales | NO PAGA
+G.03.05 | Establecimientos de subsistencia (máximo de 10 animales) | NO PAGA
 G.03.06 | Fincas de ganado bovino con hato de 11 a 100 animales | ¢12.000
 G.03.07 | Fincas de ganado bovino con hato de 101 a 500 animales | ¢24.000
 G.03.08 | Fincas de ganado bovino con hato de 501 animales en adelante | ¢36.000
@@ -75,8 +77,8 @@ G.04.01 | Registro anual de establecimiento grande con CVO (con excepción de fi
 G.04.02 | Registro anual de establecimiento mediano con CVO (con excepción de fincas de ganado bovino) | ¢17.500
 G.04.03 | Registro anual de establecimiento pequeño con CVO (con excepción de fincas de ganado bovino) | ¢10.000
 G.04.04 | Registro anual de CVO para Transporte automotor de animales, productos y subproductos de origen animal. | ¢5.000
-| Las presentes tarifas relativas al registro anual de establecimiento con CVO podrán ser diferidas o exoneradas por periodos anuales en su cobro a sectores, grupos u actividades que se encuentren atravesando temporalmente situaciones difíciles por razones de la naturaleza, la producción o la comercialización. Lo anterior mediante Resolución Administrativa que dictará la Dirección General del SENASA atendiendo a criterios interés público, conveniencia y oportunidad. En dicha resolución se fijarán las condiciones de excepción y temporalidad que se aplicarán a dichos sectores, grupos u actividades. |
-G.04.05 | Establecimientos de subsistencia con menos de 10 animales | No paga
+| Las presentes tarifas relativas al registro anual de establecimiento con CVO podrán ser diferidas o exoneradas por períodos anuales en su cobro a sectores, grupos u actividades que se encuentren atravesando temporalmente situaciones difíciles por razones de la naturaleza, la producción o la comercialización. Lo anterior mediante Resolución Administrativa que dictará la Dirección General del SENASA atendiendo a criterios interés público, conveniencia y oportunidad. En dicha resolución se fijarán las condiciones de excepción y temporalidad que se aplicarán a dichos sectores, grupos u actividades. |
+G.04.05 | Registro de establecimiento de subsistencia con menos de 10 animales | No paga
 G.04.06 | Fincas de ganado bovino con un hato mayor a 11 animales e inferior a 100 animales | ¢6.000
 G.04.07 | Fincas de ganado bovino con un hato superior a 101 animales e inferior a 500 animales | ¢12.000
 G.04.08 | Fincas de ganado bovino con un hato superior a 501 animales | ¢18.000
@@ -113,6 +115,10 @@ G.34 | Diagnóstico de enfermedades en animales acuáticos en fresco (in situ) |
 G.35 | Inspección de aves para transporte en vehículo pequeño | ¢1.781
 G.36 | Inspección de aves para transporte en vehículo mediano | ¢2.679
 G.37 | Inspección de aves para transporte en vehículo grande | ¢3.578
+G.38 | Guía Oficial de Movilización de animales | ¢100 c/u
+G.39 | Guía Oficial de Movilización de productos y subproductos de origen animal | ¢100 c/u
+G.40 | Sello de matanza para movilización de canales y medias canales | ¢50.000
+G.41 | Bitácora Transportista de animales | ¢500 (bloque)
 H | SALUD REPRODUCTIVA E INSEMINACIÓN ARTIFICIAL |
 H.01 | Venta de semen de toros nacionales para exportación (por pajilla) | ¢5.875
 H.02 | Venta de semen de toros Brahman importados para exportación (por pajilla) | ¢14.680
@@ -125,6 +131,7 @@ H.08 | Análisis de semen congelado (por pajilla) | ¢1.781
 H.09 | Examen andrológico a un macho | ¢8.922
 H.10 | Servicio de extracción, procesamiento y congelamiento de semen en finca (por pajilla) | ¢891
 H.11 | Identificación de pajillas de 0,5cc para almacenamiento de semen (por pajilla) | ¢34
+H.12 | Venta de semen importada de ovinos (por pajilla) | ¢23.500
 I | ACREDITACIÓN GANADERÍA ORGÁNICA |
 I.01 | Registro anual de Inspectores de Ganadería Orgánica | ¢44.860
 I.02 | Registro anual de plantas procesadoras de productos orgánicos de origen animal | ¢44.860
@@ -262,9 +269,8 @@ KH.03 | PCR tiempo real para detección de ADN | ¢23.155
 KH.04 | PCR tiempo real para detección de ARN | ¢27.540
 KH.05 | PCR convencional para detección de ADN | ¢21.641
 KH.06 | PCR convencional para detección de ARN | ¢26.026
-L | LABORATORIO DE PARASITOLOGIA |
+L | LABORATORIO DE PARASITOLOGÍA |
 L.01 | Prueba de eficacia “in Vitro” de garrapaticidas | ¢1.468.125
 Toda prueba de laboratorio que haya sido acreditada ante el Ente Costarricense de Acreditación ( ECA ), tendrá un recargo de un veinte por ciento sobre el valor estipulado.
 Las tarifas enumeradas deben ser canceladas al momento de solicitar el servicio.
-(Así reformado por el artículo 1° del decreto ejecutivo N° (*)35604 del 28 de octubre de 2009)
-(*)(Nota de Sinalevi: Mediante directriz N° 014 del 4 de diciembre de 2009, se establece una moratoria en la aplicación de las tarifas establecidas en el decreto ejecutivo N° 35604 del 28 de octubre de 2009, hasta el 10 de enero de 2010, salvo la tarifa establecida en el acápite c.15 cuya moratoria será hasta el 01 de abril de 2010. De conformidad con lo anterior y de acuerdo con el punto 2 de la referida directriz se restituyen para todos los efectos y en forma provisional hasta el 10 de enero del 2010 las tarifas contenidas en este artículo, después de esa fecha las tarifas que presenta este numeral son las indicadas por el decreto ejecutivo N° 35604 del 28 de octubre de 2009)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 35987 del 29 de abril de 2010)
