@@ -1,0 +1,1 @@
+Artículo 12.—El costo de la valoración realizada por el profesional, así como la emisión del respectivo certificado, la asignará la Junta Directiva del Colegio con un incremento por año del 10% a partir de la aprobación de este Reglamento.
