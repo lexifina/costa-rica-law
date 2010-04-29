@@ -1,0 +1,1 @@
+Artículo 2º—Se declara de interés público la creación del Centro Nacional de Geomática cuyo desarrollo y administración, estará a cargo del Ministerio de Ciencia y Tecnología en colaboración con las Instituciones de Educación Superior, Instituciones generadoras de información Geoespacial e Instituciones de Investigación que se integren como miembros del Centro.

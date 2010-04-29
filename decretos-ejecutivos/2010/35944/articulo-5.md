@@ -1,0 +1,1 @@
+Artículo 5º—A estas entidades públicas participantes del Centro se les facilitará el intercambio y el uso de datos geoespaciales, que satisfaga con calidad las expectativas y necesidades de la información geoespacial.

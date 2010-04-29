@@ -1,0 +1,1 @@
+Artículo 7º—La utilización de esta información será para lograr armonizar el desarrollo socioeconómico con el desarrollo científico y tecnológico y lograr un mayor bienestar para la sociedad costarricense en general de uso para aplicaciones académicas y de investigación.
