@@ -6,7 +6,8 @@ Artículo 1º—Terminología:
 MUNICIPALIDAD: Municipalidad de Sto. Domingo.
 CONCEJO: Concejo Municipal de Sto. Domingo. BECA: Ayuda económica en dinero circulante o en especie.
 BENEFICIARIO: Persona que recibirá la beca.
-CENTRO EDUCATIVO PÚBLICO: Escuela o Colegio público.
+CENTRO EDUCATIVO PÚBLICO Y PRIVADOS: Escuela o Colegio público.
+(Así reformado la definición anterior en sesión N° 183 del 29 de abril de 2010)
 MEP: Ministerio de Educación Pública.
 PAE-EER Programa de asistencia a la Educación para estudiantes de escasos recursos.
 FONDO: Fondo de Becas para la Educación. ESTUDIANTE: Alumno que cursa en un Centro Educativo público.

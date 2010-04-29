@@ -14,3 +14,4 @@ Reglamento del Programa de Asistencia a la Educación para Estudiantes de Escaso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-13 | la propia norma |
+| 2 | 2010-04-29 | Reglamento municipal 183 (2010-04-29) |
