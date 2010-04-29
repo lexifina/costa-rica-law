@@ -1,4 +1,0 @@
-9. VALIDEZ DE LOS CERTIFICADOS Y REEVALUACIÓN
-a. En caso de que la persona evaluada se considerada apta para portar armas, los certificados tienen una validez de dos años, a partir de la fecha de emisión.
-b. En caso de que una persona resulte no apta para poseer o portar armas de fuego, la prueba se podrá volver a aplicar dos años después de aplicada la primera vez (artículo 34 del Decreto Ejecutivo Nº 31383- SP del 6 de octubre de 2003, donde se modifica el Reglamento a la Ley de Armas y Explosivos). La modificación de este artículo se encuentra en trámite ante la Asamblea Legislativa, para que los plazos estipulados en a y b sean de un año y seis meses, respectivamente.
-c. Cuando no se cumplan algunos de los requisitos establecidos en el artículo 29 de la ley de portación de Armas y Explosivos, el formulario de evaluación se anula, lo que da pie a una sanción disciplinaria.

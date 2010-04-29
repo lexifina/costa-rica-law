@@ -1,3 +1,0 @@
-8. ANULACIÓN DE CERTIFICADO Y COMUNICACIÓN DE ROBO O EXTRAVÍO
-a. En caso de que un certificado deba ser anulado por equivocación a la hora de completarlo, este deberá ser entregado en su totalidad (original y copias) al Colegio, con la respectiva leyenda de ANULADO. En estos casos, el Colegio no repondrá física o económicamente el certificado anulado.
-b. En caso de robo o extravío del formulario o de los certificados, el Psicólogo(a) deberá comunicarlo al Colegio Profesional de Psicólogos de Costa Rica y al Ministerio de Seguridad Pública, dentro de 24 horas, como máximo, después de haber ocurrido el hecho.
