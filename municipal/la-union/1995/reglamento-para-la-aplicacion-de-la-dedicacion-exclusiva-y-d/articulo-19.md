@@ -1,1 +1,2 @@
-Artículo 19.-Se entenderá por disponibilidad para efectos del presente Reglamento, la compensación económica retribuida a los trabajadores que desempeñen puestos a nivel de jefatura de sección, oficina, departamento o dirección, en los cuales su presencia puede ser requerida por la Institución en cualquier momento.
+Artículo 19.-Se entenderá por disponibilidad para efectos del presente Reglamento, la compensación económica retribuida a los trabajadores que desempeñen puestos a nivel de jefatura de sección, oficina, departamento o dirección, (*)o cualquier otro a juicio del Alcalde, debidamente justificado, en los cuales su presencia puede ser requerida por la Institución en cualquier momento.
+(*)(Así adicionada la frase anterior en sesión N° 312 del 29 de abril de 2010)
