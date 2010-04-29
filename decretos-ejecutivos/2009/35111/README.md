@@ -51,3 +51,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 36 | 2010-03-25 | Decreto Ejecutivo 35899 (2010-03-25) |
 | 37 | 2010-03-25 | Decreto Ejecutivo 35938 (2010-03-25) |
 | 38 | 2010-04-08 | Decreto Ejecutivo 35990 (2010-04-08) |
+| 39 | 2010-04-29 | Decreto Ejecutivo 35988 (2010-04-29) |
