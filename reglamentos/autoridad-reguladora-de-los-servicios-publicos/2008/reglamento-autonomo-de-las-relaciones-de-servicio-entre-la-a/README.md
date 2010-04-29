@@ -16,3 +16,4 @@ Reglamento autónomo de las relaciones de servicio entre la Autoridad Regulador 
 | 1 | 2008-09-26 | la propia norma |
 | 2 | 2009-04-16 | Reglamento 0 (2009-04-16) |
 | 3 | 2009-12-17 | Reglamento 80 (2009-12-17) |
+| 4 | 2010-04-29 | Reglamento 18 (2010-04-29) |
