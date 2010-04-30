@@ -1,0 +1,2 @@
+ARTÍCULO 3.-
+Del presupuesto nacional de la República, el Poder Ejecutivo podrá girarle al Sistema Nacional de Acreditación de la Educación Superior (Sinaes), cédula de persona jurídica N.° 3-007-36218, un monto anual destinado a su financiamiento. Este monto se calculará como equivalente al cero coma cincuenta por ciento (0,50%) del Fondo especial para el financiamiento de la educación superior estatal (FEES).

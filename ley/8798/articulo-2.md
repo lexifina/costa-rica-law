@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Declárase de interés público la acreditación oficial de las instituciones, las carreras y los programas, tanto universitario! como parauniversitarios, que realiza el Sinaes. Corresponderá a este emitir los reglamentos y los manuales necesarios para regular estas materias. Los criterios y estándares definidos por el Sinaes tendrán carácter oficial de norma académica nacional de calidad.
