@@ -1,0 +1,1 @@
+Artículo 5º—Para los efectos correspondientes, el INCOEPSCA realizará ante el IMAS los trámites y acciones que permitan otorgar un subsidio a los pescadores artesanales en pequeña escala y los ayudantes, por pobreza coyuntural, en razón de la veda definida.
