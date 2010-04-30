@@ -1,0 +1,2 @@
+Artículo 26.—Para cubrir la indemnización por incendio se creará un fondo, mediante un aporte mensual por parte de cada mutualista.
+Si la reserva indica que el monto disponible supera las necesidades para el otorgamiento de este beneficio, con base en una baja siniestralidad, el excedente pasará a formar parte de la reserva general del FASMU.

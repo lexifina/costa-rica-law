@@ -1,0 +1,2 @@
+Artículo 14.—Todo reclamo por inconformidad de los mutualistas o beneficiarios de estos, sobre una resolución del FASMU deberá presentarse ante la junta directiva del Colegio, en un plazo no mayor de tres días hábiles después de recibida la notificación de la resolución, esta tendrá facultad para resolver en alzada, previa consulta al FASMU y con el sustento jurídico pertinente o técnico respectivo.
+El plazo para reclamar la indemnización por defunción del mutualista es de diez años contados a partir de la fecha real del suceso.

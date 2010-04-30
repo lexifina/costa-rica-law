@@ -1,0 +1,1 @@
+Artículo 33.—En caso de atraso reiterado por parte de la Administración en el reintegro del dinero recaudado par concepto de cuotas del FASMU, el Consejo tendrá facultad para solicitar a la Junta Directiva, que convoque a Asamblea General.
