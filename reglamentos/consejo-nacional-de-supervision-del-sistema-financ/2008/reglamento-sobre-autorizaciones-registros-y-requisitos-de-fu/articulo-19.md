@@ -1,7 +1,8 @@
 Artículo 19.—Inscripción y registro. El cumplimiento de la información para la inscripción o desinscripción relacionados con los actos sujetos a autorización implica el registro, o actualización de éste, por parte de la Superintendencia.
 Se establecen los siguientes registros obligatorios:
 a) Registro de entidades de seguros:
-i. Entidades aseguradoras, sean de seguros personales, generales o mixtas.
+i. Entidades aseguradoras, sean de seguros personales, generales o mixtas, incluido el registro de sucursales de entidades aseguradoras constituidas con arreglo a las leyes de otros países autorizadas para operar en Costa Rica.
+(Así reformado el subinciso anterior en sesión N° 849 del 30 de abril de 2010)
 ii. Entidades Reaseguradoras.
 b) Registro de intermediarios de seguros:
 i. Sociedades agencias de seguros.

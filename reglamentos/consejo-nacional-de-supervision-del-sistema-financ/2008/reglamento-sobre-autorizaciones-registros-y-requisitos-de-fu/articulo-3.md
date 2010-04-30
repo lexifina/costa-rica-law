@@ -4,8 +4,10 @@ b) Categorías de seguros: Las categorías definidas por ley son seguros general
 c) CONASSIF: Consejo Nacional de Supervisión del Sistema Financiero creado por Ley 7732, Ley Reguladora del Mercado de Valores.
 d) Director: Cualquier persona física integrante de una junta directiva, de un consejo de administración o de cualquier otro órgano directivo equivalente en sus funciones a los dos primeros.
 e) Ejecutivo: Cualquier persona física que, por su función, cargo o posición en una entidad, intervenga o tenga la posibilidad de intervenir en la toma de decisiones importantes dentro de la entidad.
-f) Entidad supervisada: Entidades aseguradoras, entidades reaseguradoras, y los intermediarios de ambas.
-g) Entidad de seguros: Entidades aseguradoras y entidades reaseguradoras.
+f) Entidad supervisada: Entidades de seguros y los intermediarios de estas.
+(Así reformado el inciso anterior en sesión N° 849 del 30 de abril de 2010)
+g) Entidad de seguros: Entidades aseguradoras, sucursales de entidades aseguradoras constituidas con arreglo a las leyes de otros países autorizadas para operar en Costa Rica y entidades reaseguradoras.
+(Así reformado el inciso anterior en sesión N° 849 del 30 de abril de 2010)
 h) Entidad resultante: Entidad nueva que resulta de dos o más personas jurídicas que se fusionan para formar una sola y que cesan en el ejercicio de sus personalidades jurídicas individuales.
 i) Entidad prevaleciente: Entidad participante en un proceso de fusión por absorción, cuya personalidad jurídica prevalece después de finalizado ese proceso.
 j) Gerente: Cualquier persona física que por disposición de ley, o que por sus funciones, cargo o posición, ejerza o represente la máxima autoridad administrativa en una persona jurídica.

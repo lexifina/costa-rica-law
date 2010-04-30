@@ -11,12 +11,25 @@ B. ENTIDADES ASEGURADORAS Y REASEGURADORAS (LEY REGULADORA DEL MERCADO DE SEGURO
 5. En materia de administración y organización interna: Artículo 25, literales m, n, s y v.
 6. En materia de capital mínimo: Artículo 11.
 7. Cooperativas de seguros: Artículo 7 y 48.
-II. DOCUMENTACIÓN QUE DEBE ACOMPAÑAR LA SOLICITUD DE CONSTITUCIÓN DE UNA NUEVA ENTIDAD ASEGURADORA O REASEGURADORA
-A. INFORMACIÓN GENERAL
-1. Carta de solicitud de autorización para constituir la nueva entidad firmada por el solicitante o su representante legal. La firma debe estar autenticada por un notario público. La carta debe indicar el nombre propuesto para la entidad (debe ser un nombre que no pueda generar confusión en el consumidor respecto otra entidad aseguradora o reaseguradora en operación, lo cual verificará la Superintendencia) y una dirección y número de fax para notificaciones.
+II. Documentación que debe acompañar la solicitud de constitución de una nueva entidad de seguros
+(Así reformado el título anterior en sesión N° 849 del 30 de abril de 2010)
+(*)A. Información General
+Entidades a constituir en Costa Rica
+1. Carta de solicitud de autorización para constituir la nueva entidad firmada por el solicitante o su representante legal. La firma debe estar autenticada por un notario público. La carta debe indicar el nombre propuesto para la entidad (debe ser un nombre que no pueda generar confusión en el consumidor respecto de otra entidad de seguros en operación, lo cual verificará la Superintendencia) y una dirección, número de fax y correo electrónico para notificaciones.
 2. Cuando el solicitante actúe en nombre de una persona jurídica deberá aportar certificación de personería jurídica en la que se acredite la capacidad de actuar del representante legal del solicitante, ésta debe ser extendida por el Registro Público, por notario público o por la autoridad competente. Si quien presenta la solicitud lo hace en razón de un poder otorgado por el solicitante, éste debe haber sido otorgado ante notario público y además deberá aportar copia certificada del mismo. Todos los documentos deben tener una antigüedad no mayor a tres meses.
-3. Copia del proyecto de escritura de constitución de la sociedad. En el caso de que la sociedad se constituya como una sucursal de una sociedad extranjera, debe presentarse la documentación que acredite tal condición. Carta expedida por autoridad competente señalando que la entidad es supervisada en su jurisdicción de origen y se encuentra autorizada para realizar las operaciones propuestas.
-4. Calificación de riesgo en el caso de sucursales de entidades del exterior.
+3. Copia del proyecto de escritura de constitución de la sociedad.
+Sucursales de Entidades Constituidas con arreglo a las leyes de otros países
+1. Carta de solicitud de autorización para constituir la sucursal firmada por el representante legal de la entidad solicitante. La firma debe estar autenticada por un notario público. La carta debe indicar una dirección, número de fax y correo electrónico para notificaciones.
+2. Certificación de existencia y personería jurídica de la entidad solicitante, en la que se acredite la capacidad de actuar del representante legal. Esta debe ser extendida por el homólogo extranjero del Registro Público, por notario público o por la autoridad competente. Si quien presenta la solicitud lo hace en razón de un poder otorgado por la entidad solicitante, éste debe haber sido otorgado ante notario público y además deberá aportar copia certificada del mismo.
+3. Carta expedida por autoridad competente señalando que la entidad solicitante es supervisada en su jurisdicción de origen y se encuentra autorizada para realizar las operaciones propuestas. Debe hacerse remisión del último informe de supervisión.
+4. Calificación internacional de riesgo de la entidad solicitante vigente, emitida por una empresa calificadora de riesgo reconocida internacionalmente, adjuntando el fundamental de la calificación obtenida.
+5. Copia certificada de los estatutos vigentes de la entidad solicitante.
+6. Certificación extendida por un contador público autorizado sobre el monto del capital social suscrito y pagado y el número de acciones de la entidad solicitante, emitido dentro de los seis meses anteriores a la fecha de presentación de la solicitud
+7. Autorización expresa por escrito del representante legal de la entidad solicitante en la que faculta a la Superintendencia y al supervisor o regulador de origen para que investiguen las operaciones de la compañía en cualquier instancia u organismo nacional y/o internacional. Dicha autorización deberá tener una vigencia abierta hasta por dos años posteriores al cese de actividades de la Sucursal cuya apertura se solicita. Además, debe autorizar al regulador de origen y a la Superintendencia para que intercambien y compartan toda la información que cualquiera de los reguladores requiera del otro. La firma del representante legal deberá ser autenticada por un notario público.
+8. Autorización por escrito del representante legal de cada una de las personas jurídicas en las que la entidad solicitante posea el 50% o más del capital social, en la que faculta al órgano supervisor responsable para que la investigue en cualquier instancia u organismo nacional y/o internacional. La firma del representante legal deberá ser autenticada por un notario público.
+9. Estados Financieros auditados completos de la entidad solicitante, elaborados con base en las Normas Internacionales de Contabilidad (NIC) o US GAAP, para el ejercicio económico inmediato anterior a la fecha en que se presenta la solicitud. Los Estados Financieros deben estar auditados por un contador público autorizado o profesional equivalente en el país donde sean expedidos.
+10. Copia del proyecto de escritura de constitución de la sucursal.
+(*)(Así reformada la Sección anterior en sesión N° 849 del 30 de abril de 2010)
 B. INFORMACIÓN SOBRE LA ESTRUCTURA DE PROPIEDAD
 Socios personas físicas
 1. Lista con detalle del nombre completo, nacionalidad e indicación del domicilio permanente de los socios personas físicas.
@@ -56,10 +69,12 @@ a) Estados financieros proforma que incluyan el balance de situación y el estad
 b) Estados financieros consolidados auditados del último periodo económico correspondientes al conglomerado internacional al que pertenece.
 c) Proyecciones financieras anuales para los primeros tres años de operación y estimación del plazo para alcanzar el punto de equilibrio e indicación de fuentes de financiamiento.
 d) Proyección de amortización de gastos de organización e instalación.
-e) Cálculo y análisis de indicadores proyectados del modelo de solvencia vigente, calificación de riesgo proyectada y suficiencia de requerimiento patrimonial, para los primeros 12 meses.
+e) Cálculo y análisis de indicadores proyectados del modelo de solvencia vigente y suficiencia del requerimiento patrimonial, para los primeros 12 meses.
+(Así reformado el inciso anterior en sesión N° 849 del 30 de abril de 2010)
 f) Identificación y análisis de los principales riesgos (mercado, crédito, tasa de interés, cambiario, imagen, liquidez, técnico) aplicando escenarios de sensibilización a las proyecciones financieras.
 Organización, gobernabilidad y sistemas de administración y control
-a) Copia del proyecto de estatutos en los que se indique por lo menos:
+a) Salvo en el caso de sucursales, se debe aportar copia del proyecto de escritura de constitución de la sociedad, en la que se indique por lo menos:
+(Así reformado el inciso anterior en sesión N° 849 del 30 de abril de 2010)
 i. Condiciones personales requeridas para ser miembro del órgano directivo.
 ii. Incompatibilidades e incapacidades.
 iii. Causales de cesación en el cargo.

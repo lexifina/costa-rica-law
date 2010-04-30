@@ -16,3 +16,4 @@ Reglamento sobre Autorizaciones, Registros y Requisitos de Funcionamiento de Ent
 | 1 | 2008-09-24 | la propia norma |
 | 2 | 2009-09-11 | Reglamento 805 (2009-09-11) |
 | 3 | 2009-12-23 | Reglamento 825 (2009-12-23) |
+| 4 | 2010-04-30 | Reglamento 849 (2010-04-30) |
