@@ -1,0 +1,1 @@
+Artículo 14.—Cuando un Contador Privado Incorporado, que ejerza independientemente, acepte llevar una contabilidad, deberá rendir los informes financieros conforme con las normas contables y requerimientos del cliente, y mantener actualizados los registros legales definidos en la legislación tributaria.

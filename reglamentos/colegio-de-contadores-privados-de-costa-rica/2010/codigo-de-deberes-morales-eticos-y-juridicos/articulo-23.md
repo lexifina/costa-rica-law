@@ -1,0 +1,1 @@
+Artículo 23.—El Contador Privado Incorporado, que acepta a estudiantes de Contabilidad en calidad de colaboradores, debe proveerlos de un ámbito de trabajo adecuado y decoroso para su preparación profesional, retribuyéndoles económicamente de igual forma.
