@@ -14,3 +14,4 @@ Lista de Trámites y Requisitos que deben de ser gestionados ante la Empresa de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-14 | la propia norma |
+| 2 | 2010-05-03 | Acuerdo 118 (2010-05-03) |
