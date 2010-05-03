@@ -1,0 +1,1 @@
+Artículo 6º—Para el cumplimiento del objetivo propuesto, la Comisión deberá coordinar con las respectivas municipalidades de cada cantón involucrado y demás instituciones que tengan competencia en el asunto, para lo cual podrá designar equipos técnicos de trabajo a nivel regional, según sea la competencia territorial de las zonas ocupadas por campesinos y trabajadores rurales.

@@ -1,0 +1,1 @@
+Artículo 7º—Dentro de las posibilidades legales que correspondan, se autoriza a las instituciones públicas a traspasar al Instituto de Desarrollo Agrario, los recursos necesarios para la adquisición de terrenos, con el fin de resolver la problemática de tenencia de la tierra de agricultores y trabajadores rurales.
