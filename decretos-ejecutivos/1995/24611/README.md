@@ -15,3 +15,4 @@ Reglamento a la Ley de Derechos de Autor y Derechos Conexos
 | 1 | 1995-10-24 | la propia norma |
 | 2 | 1995-10-24 | Decreto Ejecutivo 26882 (1998-04-20) |
 | 3 | 2008-11-21 | Decreto Ejecutivo 34904 (2008-11-21) |
+| 4 | 2010-05-03 | Decreto Ejecutivo 36014 (2010-05-03) |

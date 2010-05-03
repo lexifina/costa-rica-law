@@ -1,8 +1,4 @@
-Artículo 47.- Los organismos de radiodifusión en el ejercicio de su derecho podrán autorizar o prohibir sus emisiones, respecto de:
-a) La transmisión;
-b) La retransmisión;
-c) La distribución simultánea o diferida, por cable o cualquier otro sistema;
-d) La fijación sobre un soporte material;
-e) La reproducción de las fijaciones, y;
-f) La comunicación pública por cualquier medio y forma con fines directos de lucro.
+Artículo 47.- De conformidad con la Ley N ° 6683 de 14 de octubre de 1982 y sus reformas, sin perjuicio de los derechos de autor, y observando los límites y excepciones que la Ley establece, los organismos de radiodifusión tendrán, con respecto a sus emisiones o transmisiones, el derecho de autorizar o prohibir los usos a que se refiere el artículo 86 de la indicada Ley.
+De conformidad con los artículos 50 y 83 de la Ley N° 6683, cuando la radiodifusión o cualquier otra forma de comunicación pública no interactiva, se produzca directamente en locales frecuentados por el público, como parte de una audición o espectáculo público en que se ejecuten o utilicen fonogramas publicados con fines comerciales, o reproducciones de esos fonogramas, el usuario deberá obtener una autorización previa del productor del fonograma y pagarle a este una remuneración única y equitativa por esa utilización. El productor o su representante, distribuirá aquella remuneración con los artistas intérpretes o ejecutantes de las obras fijadas en los fonogramas utilizados, en la forma dispuesta en la Ley.
 (Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 26882 del 20 de abril de 1998, se reformo este numeral. Asimismo se traslada este numeral para formar parte del Titulo VIII “Derechos Conexos”. De lo anterior el Titulo IX “La Gestión Colectiva” que empezaba con el artículo 47, empezará ahora del numeral 48 de este decreto)
+(Así reformado por el artículo 5º del decreto ejecutivo N° 36014 del 3 de mayo de 2010)
