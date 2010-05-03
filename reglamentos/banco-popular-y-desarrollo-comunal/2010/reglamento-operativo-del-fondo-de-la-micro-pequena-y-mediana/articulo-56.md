@@ -1,0 +1,7 @@
+Artículo 56.—Del monitoreo y seguimiento de los proyectos. En atención a sus responsabilidades de buen administrador de estos recursos públicos la Unidad Técnica deberá:
+a) Llevar un registro de los proyectos recibidos, recomendados, no recomendados, aprobados y rechazados por la Junta Directiva, con los montos de cada uno e informar cada tres meses al MEIC.
+b) Coadyuvar con la Junta Directiva para que a los proponentes de los proyectos les sea comunicada debidamente la decisión de la Junta Directiva.
+c) Evaluar y aprobar los informes de avance y finalización del proyecto, recibidos de las entidades proponentes según el cronograma de informes propuesto en el proyecto aprobado por la Junta Directiva Nacional; así como emitir las recomendaciones emanadas de esta evaluación, incluyendo medidas correctivas cuando corresponda.
+d) Una vez aprobados los informes de avance y finalización del proyecto, autorizar los pagos que correspondan.
+e) Hacer evaluaciones de avance en cualquier momento que lo considere pertinente, para garantizar el logro de los objetivos y el buen uso de los recursos.
+f) Dar seguimiento y sistematizar los resultados y la incidencia obtenida con cada proyecto en relación con los objetivos planteados, así como hacer las recomendaciones necesarias para darle sostenibilidad en el tiempo a los logros obtenidos y/o garantizar el crecimiento y competitividad de las empresas atendidas.

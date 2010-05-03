@@ -1,0 +1,1 @@
+Artículo 49.—Propuestas de programas y proyectos. Las propuestas de proyectos para implementar programas o servicios de desarrollo no financieros, deben tener un enfoque de demanda y seguir los lineamientos del MEIC, para brindar una solución integral a los requerimientos y las necesidades detectadas de las empresas beneficiarias de este fondo.

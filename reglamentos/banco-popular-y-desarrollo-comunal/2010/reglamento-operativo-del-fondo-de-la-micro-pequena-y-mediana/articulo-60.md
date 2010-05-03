@@ -1,0 +1,5 @@
+CAPÍTULO 5
+Aspectos contables y administrativos de FODEMIPYME
+Artículo 60.—De la contabilidad independiente. Los resultados de Fodemipyme se registrarán contablemente como una cuenta de orden en el balance financiero del Banco Popular. Por estar fuera de normativa SUGEF, la calificación de riesgo de la cartera del fondo, será independiente de la calificación de cartera del Banco.
+Fodemipyme deberá mantener una contabilidad totalmente separada e individualizada, donde se tendrá detalle exacto y oportuno de cada partida contable que conforme su situación financiera.
+Las utilidades que genere el Fodemipyme serán reinvertidas en él y no estarán sujetas al impuesto sobre la renta.

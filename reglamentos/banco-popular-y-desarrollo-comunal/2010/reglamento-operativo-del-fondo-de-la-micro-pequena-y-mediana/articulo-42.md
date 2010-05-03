@@ -1,0 +1,4 @@
+Artículo 42.—Del Comité Resolutivo. En lo referente al Comité Resolutivo para el otorgamiento de los créditos o negociaciones de pago, se aplicará lo siguiente:
+Hasta US$30.000, un comité bipersonal conformado por un ejecutivo de Fodemipyme que no sea el que realizó el análisis, y el Director Ejecutivo o el Coordinador Operativo de la Unidad Técnica de Fodemipyme. En caso de empate, la solicitud de crédito será elevada al Comité resolutivo tripartito.
+Más de US$30.000, Comité Colegiado Ejecutivo, conformado por tres personas: dos ejecutivos de Fodemipyme designados por el Director Ejecutivo, quienes serán suplidos por quien designe dicho Director y el Coordinador Operativo de la Unidad Técnica, cuyas ausencias serán suplidas por el Director Ejecutivo.
+No podrá participar de las decisiones del Comité Colegiado Ejecutivo quien haya realizado el análisis del crédito sometido a la aprobación de ese Comité.
