@@ -14,3 +14,4 @@ Reglamento al Título II de la Ley de Fortalecimiento y Modernización de las En
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-15 | la propia norma |
+| 2 | 2010-05-03 | Decreto Ejecutivo 36010 (2010-05-03) |

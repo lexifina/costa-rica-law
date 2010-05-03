@@ -1,4 +1,7 @@
 Artículo 152.—Recurso de apelación. El recurso de apelación deberá presentarse ante la Contraloría General de la República en el caso de las licitaciones públicas y procedimientos de cuantía inestimable.
-Dicho recurso cabrá únicamente en contra del acto de adjudicación deberá presentarse dentro de los cinco días hábiles siguientes a la publicación del respectivo acto.
+Dicho recurso cabrá en contra del acto de adjudicación y de declaratoria de desierto o infructuosa; deberá presentarse dentro de los cinco días hábiles siguientes a la publicación del respectivo acto.
+(Así reformado el párrafo anterior por el artículo 2º inciso g) del decreto ejecutivo Nº 36010 del 3 de mayo de 2010)
 La revocación regulada en el artículo referente a los actos no firmes de este Reglamento, no tiene recurso alguno, sin embargo el acto originado con posterioridad a una revocación, puede ser recurrido. En tal caso, el plazo para interponer el recurso comenzará a correr a partir de que sea publicado o notificado el nuevo acto. En estos supuestos, aquellos recursos de apelación presentados en contra de la adjudicación anterior a la revocación, serán rechazados de plano sin mayor trámite.
 Cuando el procedimiento estuviere conformado por líneas independientes, la Administración continuará con la tramitación de las líneas no apeladas.
+Cuando se haya declarado desierto o infructuoso la totalidad de un concurso, o bien, algunas de sus líneas, para determinar el recurso a interponer, se considerará el monto ofertado por quien decide recurrir.
+(Así adicionado el párrafo anterior por el artículo 1º inciso e) del decreto ejecutivo Nº 36010 del 3 de mayo de 2010)
