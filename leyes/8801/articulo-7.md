@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Coordinación
+Los ministerios y sus órganos adscritos deberán coordinar con el ministro de Planificación Nacional y Política Económica sus acciones específicas para desarrollar con eficiencia y eficacia el proceso de transferencia de competencia y recursos, la elaboración de los planes correspondientes y verificar que sean ejecutados de conformidad con lo dispuesto por la Constitución Política y esta Ley.

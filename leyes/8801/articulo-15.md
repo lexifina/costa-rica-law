@@ -1,0 +1,3 @@
+ARTÍCULO 15.- Presupuestos y participación ciudadana
+Una vez transferidos los recursos, la Alcaldía, con al menos tres meses de anticipación a la formulación del proyecto de presupuesto al concejo municipal, invitará a los munícipes y a sus organizaciones a emitir su parecer con respecto a la cartera de proyectos a ejecutar por el gobierno municipal y el presupuesto para cumplirlos.
+Las opiniones de los ciudadanos deberán sistematizarse y ponerse en conocimiento del concejo municipal en un informe técnico por medio del cual se evidencie que hubo una valoración de las opiniones emitidas por los vecinos.
