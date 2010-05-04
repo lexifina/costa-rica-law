@@ -1,0 +1,1 @@
+Artículo 10.—Deróguense los artículos números 17 y 17 bis del Decreto Ejecutivo Nº 25148-H-TUR del 20 de marzo de 1996, Disposiciones Reguladoras para la Actividad de las Empresas de Arrendamiento de Vehículos a Turistas Nacionales y Extranjeros y sus reformas.
