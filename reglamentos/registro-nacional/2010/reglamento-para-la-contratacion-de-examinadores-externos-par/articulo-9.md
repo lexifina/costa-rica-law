@@ -1,0 +1,1 @@
+Artículo 9º—Informe técnico. En el momento que se asigne la solicitud de concesión de una patente, modelo de utilidad o diseño industrial, para su respectivo examen de fondo, cada examinador recibirá en formato digital, el documento técnico que acompaña la solicitud así como los demás documentos que conforman el expediente.

@@ -1,0 +1,1 @@
+Artículo 11.—Derechos de autor. El informe técnico no generará propiedad ni autoría de derechos de autor alguno a favor del examinador. Por tanto, El Registro Nacional podrá utilizar los productos entregados por los examinadores conforme a sus intereses y para su uso exclusivo, sin requerir de aviso previo o autorización por parte de éstos.

@@ -1,0 +1,1 @@
+Artículo 8º—Asignación de expedientes. Una vez conformado el equipo de examinadores externos acreditados, a cada uno le serán asignados un máximo de dos expedientes de acuerdo a un rol establecido previamente y tomando en cuenta las áreas en las cuales exista solicitudes pendientes de analizar.
