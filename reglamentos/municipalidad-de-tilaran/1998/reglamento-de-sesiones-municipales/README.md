@@ -14,3 +14,4 @@ Reglamento de Sesiones Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-26 | la propia norma |
+| 2 | 2010-05-04 | Reglamento municipal 1 (2010-05-04) |
