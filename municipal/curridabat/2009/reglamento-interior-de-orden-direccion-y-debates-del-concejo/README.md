@@ -14,3 +14,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-31 | la propia norma |
+| 2 | 2010-05-04 | Reglamento municipal 1 (2010-05-04) |
