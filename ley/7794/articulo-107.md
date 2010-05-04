@@ -1,1 +1,2 @@
-Artículo 107. — En el período económico siguiente, podrán cubrirse compromisos adquiridos en el anterior cuando la partida correspondiente tenga suficiente saldo para soportarlos.
+Artículo 107.—Los compromisos efectivamente adquiridos que queden pendientes del período que termina pueden liquidarse o reconocerse dentro de un término de seis meses, sin que la autorización deba aparecer en el nuevo presupuesto vigente.
+(Así reformado por el artículo 17 de la ley General de transferencia de competencias del Poder Ejecutivo a las Municipalidades, N° 8801 del 28 de abril de 2010)
