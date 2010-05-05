@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones transitorias
+Transitorio I.—Las personas físicas o jurídicas que figuren como dueños, arrendatarios y administradores de un centro de recuperación de residuos valorizables que se encuentren en funcionamiento antes de la publicación del presente decreto y que no cumplan con lo estipulado en el presente reglamento, se les otorgará un plazo de un año a partir de la publicación, a fin de que se ajusten a las exigencias del mismo. Si transcurrido el plazo indicado, la actividad no se ajusta; el Ministerio procederá de oficio a la clausura del establecimiento, sin derecho de indemnización alguna al interesado por parte del Estado.
