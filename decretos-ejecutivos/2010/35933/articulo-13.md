@@ -1,0 +1,1 @@
+Artículo 13.—Cumplimiento de Indicadores de los productores: Cada productor debe reportar al Coordinador del CEGIRE anualmente el peso de los equipos electrónicos recuperados en su Plan de Cumplimiento.

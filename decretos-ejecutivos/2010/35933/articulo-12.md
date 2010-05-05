@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad extendida del productor: Los productores tienen la responsabilidad del producto a través de todo el ciclo de vida del mismo, incluyendo los impactos inherentes a la selección de los materiales, del proceso de producción de los mismos, así como los relativos al uso y disposición de estos.

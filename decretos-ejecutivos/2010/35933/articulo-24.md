@@ -1,0 +1,1 @@
+Artículo 24.—Sanciones. En caso de incumplimientos del presente Reglamento se harán acreedores a las sanciones estipuladas en el Capítulo II “De las medidas especiales” de la Ley General de Salud Nº 5395 del 30 de octubre de 1973.

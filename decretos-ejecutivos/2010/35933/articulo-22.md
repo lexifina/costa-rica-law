@@ -1,0 +1,1 @@
+Artículo 22.—Verificación de la Implementación del Plan de cumplimiento: El Ministerio de Salud verificará la implementación del Plan de cumplimiento en el sitio, el cual deberá estar a disposición de los funcionarios del Ministerio en el momento en que lo soliciten.

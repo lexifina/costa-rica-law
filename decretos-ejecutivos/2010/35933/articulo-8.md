@@ -1,0 +1,3 @@
+Artículo 8º—Conformación de las Unidades de Cumplimiento: Las Unidades de Cumplimiento se conformarán a partir de un productor o una agrupación de varios productores, bajo la figura legal que determinen, para el cumplimiento de las responsabilidades establecidas en el presente reglamento. Estas Unidades deben estar registradas en el Ministerio de Salud.
+Los productores de equipos electrónicos contemplados en el anexo I del presente reglamento dispondrán de un máximo de tres meses para registrarse bajo la forma de unidad de cumplimiento, una vez definidos los mecanismos de registro establecidos en las guías técnicas.
+(Corregido mediante Fe de Erratas, y publicada en La Gaceta Nº 104 del 31 de mayo de 2010)

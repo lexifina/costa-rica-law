@@ -1,0 +1,1 @@
+Artículo 14.—Obligaciones de información de los productores: Los productores deberán informar a los consumidores finales sobre los procesos de gestión integral de residuos electrónicos y acerca de los sitios de recolección autorizados.
