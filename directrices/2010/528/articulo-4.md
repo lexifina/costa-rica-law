@@ -1,0 +1,1 @@
+Artículo 4º—En lo que respecta a los permisos pequeños, la determinación de la cantidad máxima de árboles a ser cortados, deberá ser calculada en promedio, tomando como referencia el área efectiva de terreno que cumpla con las condiciones indicadas anteriormente.

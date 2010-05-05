@@ -1,0 +1,1 @@
+Artículo 6º—Los jerarcas de los órganos del Ministerio de Ambiente, Energía y Telecomunicaciones, a lo interno de sus instituciones, deben difundir e inducir al acatamiento de las disposiciones contenidas en la presente Directriz Ejecutiva.
