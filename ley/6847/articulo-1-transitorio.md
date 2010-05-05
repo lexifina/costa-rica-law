@@ -1,2 +1,2 @@
-Transitorio.- La Contraloría General de la República preparará y publicará el reglamento a que se refiere el párrafo tercero del artículo 7º de esta ley, dentro de los cinco meses siguientes a su publicación.
-El Poder Ejecutivo reglamentará esta ley en los otros aspectos, dentro de los cinco meses siguientes a su publicación.
+Transitorio.- El Poder Ejecutivo reglamentará esta Ley en los otros aspectos, dentro de los cinco meses siguientes a su publicación.
+(Así reformado por el artículo 22° de la ley N° 8823 del 5 de mayo de 2010)
