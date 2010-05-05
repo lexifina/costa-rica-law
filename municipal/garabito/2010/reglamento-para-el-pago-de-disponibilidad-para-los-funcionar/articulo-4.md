@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de ser sujeto de este régimen de disponibilidad, considérense necesidad institucional, el estar nombrado como parte del cuerpo de trabajadores de la Policía Municipal, previo haber demostrado y aprobado su idoneidad.

@@ -1,0 +1,1 @@
+Artículo 10.—El servidor deberá abstenerse de participar en actividades remuneradas o no, ajenas a la institución que le impidan cumplir la obligación que contrae, en virtud del régimen de disponibilidad.

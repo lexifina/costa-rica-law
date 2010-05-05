@@ -1,0 +1,1 @@
+Artículo 12.—Entiéndase como “rol de disponibilidad” los horarios en los cuales, el servidor debe prestar el servicio. Este rol deberá definirse por escrito entre las Jefaturas del Departamento de Policía, los Supervisores de Turno (Escuadra) y el trabajador, según lo demanden las necesidades del servicio. Las modificaciones a este acuerdo deberán pactarse por escrito.

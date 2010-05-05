@@ -1,0 +1,1 @@
+Artículo 15.—El servidor tiene derecho durante cuatro días por mes, en común acuerdo con la Institución, a no estar disponible, salvo las excepciones contenidas en los artículos 11 y 12 de este Reglamento.

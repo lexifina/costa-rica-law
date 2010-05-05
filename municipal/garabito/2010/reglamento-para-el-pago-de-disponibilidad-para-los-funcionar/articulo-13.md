@@ -1,0 +1,1 @@
+Artículo 13.—No obstante lo indicado en los artículos 11 y 12 anteriores, cuando por imperativo de las necesidades del servicio así lo demanden, los límites y horarios establecidos podrán ser variados para atender situaciones especiales de excepción.

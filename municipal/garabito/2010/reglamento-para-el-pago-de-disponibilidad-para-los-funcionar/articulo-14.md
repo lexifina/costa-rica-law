@@ -1,0 +1,1 @@
+Artículo 14.—Por causa justificada el servidor podrá solicitar en forma previa la no disponibilidad en cierto horario, en cuyo caso la Jefatura del Departamento de Policía, determinará la posibilidad de acceder a dicha petición. De ser ésta aceptada el servidor señalará otro horario similar en que estará disponible.

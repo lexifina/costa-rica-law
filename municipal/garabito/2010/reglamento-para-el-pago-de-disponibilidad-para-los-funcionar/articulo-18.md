@@ -1,0 +1,2 @@
+Artículo 18.—La compensación por Disponibilidad al ser contractual y temporal, no genera derechos permanentes para el servicio afectado.
+Al ser un derecho no permanente, el mismo no se aplicará cuando el servidor de la Policía Municipal, se encuentre en vacaciones, incapacitado o disfrute de un permiso con goce de salario, toda vez que la naturaleza de este se desvirtúa en tales estados de la relación laboral, por la procedencia del mismo.
