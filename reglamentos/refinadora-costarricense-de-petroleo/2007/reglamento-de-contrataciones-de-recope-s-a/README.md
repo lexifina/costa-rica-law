@@ -15,3 +15,4 @@ Reglamento de Contrataciones de RECOPE S.A.
 | --- | --- | --- |
 | 1 | 2007-02-16 | la propia norma |
 | 2 | 2008-03-05 | Reglamento 4240 (2008-03-05) |
+| 3 | 2010-05-05 | Reglamento 4446 (2010-05-05) |

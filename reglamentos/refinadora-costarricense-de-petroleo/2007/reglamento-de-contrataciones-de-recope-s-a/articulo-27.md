@@ -1,5 +1,6 @@
 Artículo 27.—Requisitos de la oferta. La oferta deberá contener al menos los siguientes requisitos:
-27.1 Nombre de la persona física o razón social de la persona jurídica.
+27.1 Nombre y apellidos de la persona física o razón social de la persona jurídica. En caso que el firmante de la oferta no sea el representante legal, deberá aportarse un poder especial que lo faculte para tal acto, autenticado por abogado u otorgado ante Notario Público.
+(Así reformado el punto anterior mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)
 27.2 Número del documento de identidad o cédula jurídica, según corresponda.
 27.3 Redactada en idioma español.
 27.4 Las unidades y medidas deberán expresarse en el Sistema Internacional de Unidades, basado en el sistema métrico decimal.

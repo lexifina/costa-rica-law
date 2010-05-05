@@ -1,0 +1,5 @@
+Artículo 28 bis.—Subsanaciones a las ofertas. RECOPE solicitará por escrito a los oferentes por medio de la Dirección de Suministros, que corrijan errores o suplan información sobre aspectos subsanables o insustanciales, siempre y cuando con ello no se conceda una ventaja indebida en relación con los demás oferentes.
+Dichas subsanaciones deberán presentarse por escrito dentro de un plazo máximo de dos (2) días hábiles a partir del día hábil siguiente de la solicitud y constituirán parte integrante de la oferta. En casos excepcionales, la Jefatura del Departamento de Contratación de Bienes y Servicios podrá otorgar un plazo de hasta cinco (5) días hábiles para atender la subsanación.
+Las ventajas, mejoras y descuentos sometidos por los interesados con posterioridad a la apertura, obligarán a quien las formule, pero no serán tomados en cuenta en la comparación o ponderación de las propuestas, por tanto sólo surtirán efecto una vez firme la adjudicación.
+(Artículos del RLCA relacionados: 28, 28 BIS , 79, 80, 81 y 82)
+(Así adicionado mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)
