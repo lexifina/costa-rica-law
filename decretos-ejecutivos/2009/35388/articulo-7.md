@@ -1,1 +1,0 @@
-Artículo 7º—Operatividad y Funcionamiento. Los Consejos Distritales de Coordinación Interinstitucional aplicarán para su operatividad y funcionamiento, lo dispuesto en los artículos 2º, 3º, 4º y 5º de este Decreto Ejecutivo, en lo que sea procedente para el ámbito distrital.
