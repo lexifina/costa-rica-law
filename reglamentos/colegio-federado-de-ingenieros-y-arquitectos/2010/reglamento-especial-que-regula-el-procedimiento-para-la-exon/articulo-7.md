@@ -1,0 +1,1 @@
+Artículo 7º—Cuando la solicitud de exoneración del cobro de honorarios sea presentada en alguna de las sedes regionales del Colegio Federado, dicha oficina deberá remitir la solicitud a las oficinas centrales del CFIA, en el término de 5 días hábiles, para la respectiva aprobación del trámite.

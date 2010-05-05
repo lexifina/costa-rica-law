@@ -1,0 +1,1 @@
+Artículo 2º—La exoneración del cobro de honorarios profesionales solamente procederá en los casos que expresamente se indiquen en el presente Reglamento, previo cumplimiento del procedimiento establecido.

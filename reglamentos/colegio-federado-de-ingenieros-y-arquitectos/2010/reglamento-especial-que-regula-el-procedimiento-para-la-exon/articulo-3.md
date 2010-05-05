@@ -1,0 +1,1 @@
+Artículo 3º—La exoneración del cobro de honorarios profesionales deberá ser aprobada por el Director Ejecutivo del Colegio Federado de Ingenieros y de Arquitectos, o por la persona en quien éste delegue la aprobación de la solicitud.
