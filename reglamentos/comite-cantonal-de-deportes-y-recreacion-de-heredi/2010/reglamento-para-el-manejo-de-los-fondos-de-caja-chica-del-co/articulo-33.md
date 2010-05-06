@@ -1,0 +1,1 @@
+Artículo 33.—La persona encargada de los fondos de caja chica no podrá guardar documentos, efectivo o cheques que sean dé propiedad particular o de otra persona en los lugares destinados para tal fin; no podrán suplir el dinero de su peculio para compras o pagos que correspondan al Comité Cantonal, salvo en emergencia justificada, razonada y avalada por el Administrador.

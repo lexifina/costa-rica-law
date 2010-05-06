@@ -1,0 +1,1 @@
+Artículo 44.—Las sanciones correspondientes serán aplicadas por la Junta Directiva del Comité Cantonal, conforme lo establece el Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Heredia.

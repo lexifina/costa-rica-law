@@ -1,0 +1,1 @@
+Artículo 4º—Cuando por razón justificada sea necesario trasladar la custodia y manejo de este fondo a un funcionario distinto al designado en forma permanente, el traspaso se hará estando el Tesorero del Comité cantonal presente y el Administrador; al momento de mismo se efectuará un arqueo del cual se dejará constancia escrita, con la firma de los tres funcionarios mencionados.
