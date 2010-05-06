@@ -1,0 +1,1 @@
+ARTÍCULO 16: Ningún servidor puede alegar derecho, cuando el PIMA por error o violación legal haya otorgado un beneficio que no corresponda, todo lo anterior sin perjuicio de las sanciones establecidas en la ley contra la corrupción y el enriquecimiento ilícito en la función pública.

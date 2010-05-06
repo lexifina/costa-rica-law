@@ -1,0 +1,1 @@
+ARTÍCULO 80: El Área de Recursos Humanos dictará los lineamientos necesarios para la evaluación del desempeño, para lo cual elaborará un procedimiento que será de aprobación de la Gerencia General, en donde se indicarán los parámetros correspondientes.

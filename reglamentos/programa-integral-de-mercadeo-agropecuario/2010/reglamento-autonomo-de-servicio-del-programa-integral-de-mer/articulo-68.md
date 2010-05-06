@@ -1,0 +1,1 @@
+ARTICULO 68: El área de Recursos Humanos velará por mantener los salarios mínimos conforme a los lineamientos y legislación vigente y cuando algún nivel de la Escala Salarias sea menor al mínimo hará los planteamientos del caso a las Autoridades o Entes correspondientes, con el fin de ajustar los mismos a la Escala de Salarios mínimos.

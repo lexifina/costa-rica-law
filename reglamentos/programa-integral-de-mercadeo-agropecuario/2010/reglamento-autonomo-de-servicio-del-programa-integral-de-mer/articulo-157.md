@@ -1,0 +1,1 @@
+ARTÍCULO 157: Una vez dictada la resolución por parte del Jerarca de la Institución, ella deberá remitirse a las instancias externas del PIMA para el trámite de rigor. Es responsabilidad del gestionante efectuar los trámites correspondientes para su efectivo pago en caso de corresponderle.

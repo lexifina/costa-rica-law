@@ -1,0 +1,1 @@
+ARTÍCULO 26: La jornada ampliada no podrá sumar semanalmente más de 48 horas laborales, para los servidores y servidoras que presten sus servicios bajo dicha jornada se mantendrá un contrato actualizado, o en su lugar se establecerán los términos en la respectiva Acción de Personal.

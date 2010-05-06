@@ -1,0 +1,1 @@
+ARTÍCULO 106: La Comisión Institucional de Salud Ocupacional en conjunto con el área de Recursos Humanos, establecerá los medios adecuados que permitan a los servidores y servidoras de la Institución disponer de lugares de recreación en sus Centros de Trabajo.

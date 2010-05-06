@@ -1,0 +1,1 @@
+ARTÍCULO 23: Cuando el Gerente General o el superior jerarca al efecto lo estime necesario, los servidores y servidoras quedarán en la obligación de trabajar horas extraordinarias hasta el máximo permitido por ley, salvo que por razones de índole grave, debidamente comprobada por el Superior Jerárquico, se le faculte para no hacerlo.

@@ -1,0 +1,1 @@
+ARTÍCULO 93: Prohíbase a los funcionarios y funcionarias, personeros o personeras o apoderados o apoderadas del Estado, suscribir contratos o otorgar permisos para la realización de trabajos, sin la previa presentación, por parte de los interesados, del seguro contra riesgos del trabajo.

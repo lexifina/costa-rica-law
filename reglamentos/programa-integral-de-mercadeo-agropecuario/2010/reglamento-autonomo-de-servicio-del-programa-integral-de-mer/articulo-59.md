@@ -1,0 +1,1 @@
+ARTÍCULO 59- Todo lo relacionado con el Artículo anterior se regirá por el Reglamento de Becas y Desarrollo Humano para el personal del PIMA, que el Área de Recursos Humanos, dispondrá para tal efecto, previa aprobación del Consejo Directivo

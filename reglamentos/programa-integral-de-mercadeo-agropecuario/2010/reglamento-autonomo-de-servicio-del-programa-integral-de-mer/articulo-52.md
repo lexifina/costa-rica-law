@@ -1,0 +1,3 @@
+ARTÍCULO 52: Los servidores y servidoras del PIMA tendrán derecho a gozar sin interrupción su periodo de vacaciones, y sólo estarán obligados a dividirlas hasta un máximo de tres fracciones cuando se trata de labores de índole especial que no permitan una ausencia muy prolongada.
+Si vencido el periodo vacacional no se hubiese disfrutado el mismo, el Superior Jerárquico en coordinación con el Área de Recursos Humanos le indicarán al servidor la fecha para el disfrute de las mismas.
+El trámite de vacaciones deberá efectuarse con cinco días de anticipación salvo casos de urgencia. La solicitud deberá contar con el visto bueno del Área de Recursos Humanos, previa aprobación del Superior Jerárquico.

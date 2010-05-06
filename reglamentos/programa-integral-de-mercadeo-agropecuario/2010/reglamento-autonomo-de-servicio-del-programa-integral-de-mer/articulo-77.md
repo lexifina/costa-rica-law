@@ -1,0 +1,1 @@
+ARTÍCULO 77: El Área de Recursos Humanos deberá velar por la confidencialidad de los expedientes, a los cuales tendrán accesos únicamente el interesado, así como el Gerente General, la Asesoría Legal y el Auditor Interno.

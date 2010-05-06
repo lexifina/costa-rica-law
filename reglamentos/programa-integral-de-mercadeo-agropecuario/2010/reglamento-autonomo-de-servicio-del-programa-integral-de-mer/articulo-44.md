@@ -1,0 +1,1 @@
+ARTÍCULO 44: En aquellos casos calificados y no incluidos en este Reglamento, quedara a juicio del Director de Área, el justificar la ausencia para efectos de no aplicación del régimen disciplinario, hasta por un periodo de dos días al mes. No obstante en estos casos se procederá al rebajo automático de salario de los días no laborados.

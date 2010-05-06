@@ -1,0 +1,1 @@
+ARTÍCULO 104: La elección de los representantes de la Comisión Institucional se hará de conformidad son lo establecido en el Decreto Ejecutivo N° 18979-TSS del 9 de junio de 1998 y sus reformas, el cual suplirá este reglamento en lo concerniente a esta materia.

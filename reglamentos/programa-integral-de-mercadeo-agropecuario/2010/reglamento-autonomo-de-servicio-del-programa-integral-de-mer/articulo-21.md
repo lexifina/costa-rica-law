@@ -1,0 +1,1 @@
+ARTÍCULO 21: Los servidores y servidoras del PIMA deberán laborar todos los días hábiles del año durante las horas reglamentarias establecidas. No podrán concederle privilegios, ni prerrogativas o licencia alguna que autorice una asistencia irregular, con excepción de los dispuesto por este reglamento, o en su caso en los contratos especiales de servicio.

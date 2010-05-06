@@ -1,0 +1,1 @@
+ARTÍCULO 89: El Órgano receptor de la denuncia será el Área de Recursos Humanos quien lo hará de conocimiento del Gerente, salvo que el denunciado sea el mismo Gerente, para lo cual se remitirá el caso a la Junta Directiva.

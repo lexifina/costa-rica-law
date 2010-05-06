@@ -1,0 +1,1 @@
+ARTÍCULO 30: En caso de no existir medio electrónico para marcar en los centros de trabajo, el Superior Jerárquico dispondrá la forma en que se lleve el control de asistencia, de acuerdo con los lineamientos que para tal efecto establecerá el Área de Recursos Humanos.

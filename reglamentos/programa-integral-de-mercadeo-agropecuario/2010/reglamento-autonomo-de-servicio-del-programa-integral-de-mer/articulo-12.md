@@ -1,0 +1,1 @@
+ARTÍCULO 12: Los servidores y servidoras nombrados en propiedad, podrán solicitar al Área de Recursos Humanos, el trámite de reasignación siempre que se considere que las funciones del mismo han variado sustancial y permanentemente, abarcando los niveles de responsabilidad y esté conforme a la normativa vigente.

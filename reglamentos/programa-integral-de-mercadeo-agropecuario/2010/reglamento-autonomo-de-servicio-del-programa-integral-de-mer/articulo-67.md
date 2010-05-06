@@ -1,0 +1,1 @@
+ARTCULO 67: El PIMA mantendrá actualizado el Manual Descriptivo de Puestos, el cual determinará de forma clara y precisa las Áreas cotidianas y suplementarias de los puestos. Este Manual a su vez contendrá los deberes, las obligaciones y los requisitos mínimos de cada clase de puesto.

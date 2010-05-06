@@ -1,0 +1,1 @@
+ARTÍCULO 160: El Recurso de revocatoria deberá interponerse ante el Órgano que dictó el acto, en un plazo de cinco días hábiles contados a partir del momento en que tuvo conocimiento de la disposición o resolución al momento en que el vicio fue cometido, salvo posibilidad de saneamiento o convalidación.

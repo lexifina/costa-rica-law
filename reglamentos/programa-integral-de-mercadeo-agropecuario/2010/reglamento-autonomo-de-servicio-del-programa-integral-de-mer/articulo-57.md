@@ -1,0 +1,1 @@
+ARTÍCULO 57: Las licencias sin goce de salario menor o igual a cinco días podrán concederse por el Director de Área por escrito, debiendo comunicarlo con antelación al disfrute de la licencia, al Área de Recursos Humanos, con la debida justificación de mérito.

@@ -1,0 +1,1 @@
+ARTCULO 110: La convocatoria a participar en los procesos externos deberá publicarse en un periódico de circulación nacional. Para los concursos internos bastará la exposición del cartel en al menos tres lugares distintos de manera visible a los funcionarios y funcionarias.

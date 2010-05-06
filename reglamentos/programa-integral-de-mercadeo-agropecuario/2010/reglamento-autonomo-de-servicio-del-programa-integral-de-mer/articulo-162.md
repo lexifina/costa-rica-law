@@ -1,0 +1,1 @@
+ARTÍCULO 162: El Recurso de Reposición contra el acto final del Jerarca se regulará por las disposiciones contenidas en la Ley Reguladora de la Jurisdicción y Contencioso Administrativa y Ley General de la Administración Pública.

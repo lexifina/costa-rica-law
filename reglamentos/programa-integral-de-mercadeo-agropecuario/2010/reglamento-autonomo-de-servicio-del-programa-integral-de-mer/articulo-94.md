@@ -1,0 +1,1 @@
+ARTÍCULO 94: Es obligación del superior inmediato indagar todos los detalles, circunstancias referentes a riesgos del trabajo que ocurran a sus trabajadores y remitir el informe al Área de Salud Ocupacional, que permita presentar la denuncia al INS sobre todo riesgo de trabajo que ocurra, dentro de los ocho días hábiles siguientes a su acaecimiento.

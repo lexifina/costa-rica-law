@@ -1,0 +1,1 @@
+Artículo 95: El trabajador que hiciere abandono de la asistencia médica sanitaria o de rehabilitación que se le otorga, o que se negare, sin causa justificada, a seguir las prescripciones médicas, perderá el derecho a las prestaciones que dispone el Código de Trabajo.

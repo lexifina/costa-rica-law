@@ -1,0 +1,1 @@
+ARTÍCULO 53: La prestación efectiva de servicio, para efectos del cálculo de las vacaciones anuales, no será afectada por las licencias que se concedan a las servidoras por concepto de maternidad y por adoptar un niño menor de tres años, según lo establecido por el artículo 55, incisos 2 y 3, de este Reglamento.

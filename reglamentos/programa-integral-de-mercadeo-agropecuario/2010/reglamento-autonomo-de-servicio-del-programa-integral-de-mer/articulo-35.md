@@ -1,0 +1,1 @@
+ARTÍCULO 35: En caso de que por irregularidades en la asistencia proceda el despido sin responsabilidad patronal, el Área de Recursos Humanos remitirá todos los atestados a la Gerencia General, a efecto de que si lo considera, solicite al Área Legal el proceso disciplinario correspondiente.

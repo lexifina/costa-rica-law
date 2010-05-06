@@ -1,0 +1,1 @@
+ARTÍCULO 32: El servidor que por dolo o complacencia marque el carné o registros de asistencia que no le corresponden incurrirá en falta grave a sus obligaciones y deberes. Igual falta cometerá el servidor que haya permitido a otro marcar su carné de asistencia.

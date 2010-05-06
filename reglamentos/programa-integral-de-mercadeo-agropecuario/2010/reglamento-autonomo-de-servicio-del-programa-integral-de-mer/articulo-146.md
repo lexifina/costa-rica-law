@@ -1,0 +1,2 @@
+ARTÍCULO 146: Una vez emitida la recomendación, se enviará al Superior Jerárquico correspondiente, quien dictará el acto final, comunicará a Recursos Humanos la decisión final, para su aplicación dentro del término de Ley.
+La recomendación en el proceso por acoso u hostigamiento sexual se remitirá al Jerarca de la Institución, para los efectos correspondientes e informará a la Defensoría de los Habitantes el resultado del proceso.

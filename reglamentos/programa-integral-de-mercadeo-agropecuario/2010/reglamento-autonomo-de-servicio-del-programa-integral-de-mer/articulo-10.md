@@ -1,0 +1,1 @@
+ARTÍCULO 10: Se establece la prohibición de mantener laborando en una misma oficina o departamento, a servidores y servidoras que se encuentren ligados por parentesco de consanguinidad o afinidad hasta cuarto grado inclusive y que entre ellos exista relación jerárquica inmediata.

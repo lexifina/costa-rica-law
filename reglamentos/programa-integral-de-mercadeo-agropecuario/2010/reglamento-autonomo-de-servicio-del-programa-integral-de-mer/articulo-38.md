@@ -1,0 +1,1 @@
+ARTÍCULO 38: De acuerdo con el artículo anterior, la justificación de las llegadas tardías tendrá como efecto la no aplicación del régimen disciplinario. No obstante, el Departamento de Recurso Humanos, deberá proceder tal como se indica en el artículo 41 y 45 del presente reglamento, en cuanto al aspecto salarial.

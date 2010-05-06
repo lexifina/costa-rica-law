@@ -1,0 +1,1 @@
+ARTÍCULO 166: Si existiere algún vicio de forma de los que originan nulidad, conforme se indica en la Ley General de la Administración Pública, se ordenará retrotraer el expediente al momento en que el vicio fue cometido, salvo posibilidad de saneamiento yo convalidación.

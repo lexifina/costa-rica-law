@@ -1,0 +1,1 @@
+ARTÍCULO 4: Todos aquellos servidores y servidoras que tengan bajo su responsabilidad Áreas de administración o supervisión de personal, son responsables ante el PIMA de velar por la correcta aplicación de las disposiciones del presente reglamento.

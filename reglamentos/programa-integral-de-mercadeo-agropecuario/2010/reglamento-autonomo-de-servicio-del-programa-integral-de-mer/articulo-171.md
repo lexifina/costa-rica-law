@@ -1,0 +1,1 @@
+ARTÍCULO 171: Producto de lo anterior el funcionario firmará un contrato de disponibilidad con el PIMA, en el cual se establecerá una compensación entre un diez a un veinte por ciento de su salario base a discreción de la Gerencia General, el cual no generará derechos adquiridos y podrá establecerse hasta por un año, sin perjuicio de posibles prórrogas.

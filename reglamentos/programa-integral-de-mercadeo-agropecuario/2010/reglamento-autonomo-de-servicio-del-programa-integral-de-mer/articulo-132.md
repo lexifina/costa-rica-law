@@ -1,0 +1,1 @@
+ARTÍCULO 132: Cualquier infidencia de una persona del Órgano Director o de cualquier otro servidor vinculado directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este Reglamento.

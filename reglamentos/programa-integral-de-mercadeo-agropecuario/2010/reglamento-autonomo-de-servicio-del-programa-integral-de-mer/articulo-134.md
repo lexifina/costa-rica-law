@@ -1,0 +1,1 @@
+ARTÍCULO 134: Si el involucrado no ejerce su defensa en el término establecido, se continuará con el procedimiento hasta su conclusión, debiendo notificarse la resolución final en forma personal en su domicilio o lugar de trabajo.

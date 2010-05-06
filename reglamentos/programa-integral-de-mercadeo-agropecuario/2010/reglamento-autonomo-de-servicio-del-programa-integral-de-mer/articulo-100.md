@@ -1,0 +1,5 @@
+Artículo 100: Se denomina accidente de trabajo a todo accidente que le suceda al trabajador como causa de la labor que ejecuta o como consecuencia de éste, durante el tiempo que permacen bajo la dirección y dependencia del patrono o sus representantes y que puede producirle la muerte o pérdida o reducción, temporal o permanente de la capacidad para el trabajo.
+También se calificará de accidente de trabajo, el que ocurra al trabajador en las siguientes circunstancias:
+1-En el trayecto usual de su domicilio al trabajo y viceversa, cuando el recorrido que efectúa no haya sido interrumpido o variado, por motivo de su interés personal siempre que el patrono proporcione directamente o pague el transporte.
+2-En el cumplimiento de órdenes del patrono o en la prestación de un servicio bajo su autoridad, aunque el accidente ocurra fuera del lugar de trabajo y después de finalizada la jornada.
+3-En el curso de una interrupción del trabajo, antes de empezarlo o después de terminarlo, si el trabajador se encontrase en el lugar de trabajo o en el local de la empresa, con consentimiento expreso o tácito del patrono o de sus representantes.
