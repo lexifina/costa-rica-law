@@ -1,0 +1,1 @@
+Artículo 8º—Previo al trámite de pago, el Departamento Administrativo deberá verificar el cumplimiento de todos los requisitos señalados, y que los gastos de representación hayan sido realizados según lo establecido en el presente Reglamento. No se tramitará ningún pago cuando se incumplan los requisitos indicados.

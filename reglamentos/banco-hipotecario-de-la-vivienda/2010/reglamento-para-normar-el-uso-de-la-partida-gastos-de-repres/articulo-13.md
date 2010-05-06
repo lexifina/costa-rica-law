@@ -1,0 +1,1 @@
+Artículo 13.—El presente reglamento deja sin efecto el Reglamento para normar el uso de la partida de Gastos de Representación, aprobado por la Junta Directiva mediante el acuerdo 5 de la sesión 47-2006 del 17 de julio de 2006.
