@@ -1,0 +1,1 @@
+Artículo 10.—Vigilancia y verificación. La vigilancia y verificación de la aplicación y cumplimiento del presente Reglamento Técnico corresponde al Ministerio de Ambiente, Energía y Telecomunicaciones en tanto el alcohol carburante sea utilizado como combustible.

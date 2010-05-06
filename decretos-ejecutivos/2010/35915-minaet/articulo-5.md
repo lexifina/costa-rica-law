@@ -1,0 +1,1 @@
+Artículo 5º—Ente Nacional Competente. Ente Nacional Competente del presente Reglamento Técnico corresponde al Ministerio de Ambiente, Energía y Telecomunicaciones en tanto el alcohol carburante sea utilizado como combustible.
