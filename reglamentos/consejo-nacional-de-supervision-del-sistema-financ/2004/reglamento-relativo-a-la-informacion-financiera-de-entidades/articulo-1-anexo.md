@@ -122,78 +122,79 @@ Los rubros están asociados a los códigos de grupo, cuenta y subcuenta que lo c
 (1) Cuando se trata de estado financieros consolidados, debe indicarse “y subsidiarias” | | |
 [imagen]
 [imagen]
-(Así adicionado el modelo 1A en sesión N° 811 del 2 de octubre de 2009)
+(Así adicionado el modelo 1a anterior mediante sesión N° 811 del 2 de octubre de 2009)
 [imagen]
 [imagen]
-(Así adicionado el modelo 1B en sesión N° 811 del 2 de octubre de 2009)
-MODELO N° 2 NOMBRE DE LA ENTIDAD ESTADO DE RESULTADOS Para el _____ terminado el ___ de _______ de Período 2 y Período 1 (En colones sin céntimos)
-| NOTA | Período 2 | Período 1
-Ingresos Financieros | | |
-Por disponibilidades (511) | | |
-Por inversiones en instrumentos financieros (512) | | |
-Por cartera de créditos (515 + 514+513 - (513.07+514.07)) | | |
-Por arrendamientos financieros (513.07 + 514.07) | | |
-Por ganancia por diferencias de cambios y UD (518) | | |
-Por ganancia instrumentos financieros mantenidos para negociar (519.07 + 519.09 + 519.10) | | |
-Por ganancia instrumentos financieros disponibles para la venta (519.11 + 519.13) | | |
-Por ganancia inversión en propiedades (519.17 + 519.18) | | |
-Por ganancia en instrumentos derivados (517 + 519.14) | | |
-Por otros ingresos financieros (519.20 + 519.21 + 519.22 + 519.99) | | |
-Total de Ingresos Financieros | | |
-Gastos Financieros | | |
-Por Obligaciones con el Público (411) | | |
-Por Obligaciones con el Banco Central de Costa Rica (412) | | |
-Por Obligaciones con Entidades Financieras (413) | | |
-Por otras cuentas por pagar diversas (414) | | |
-Por Obligaciones Subordinadas, Convertibles y Preferentes (416) | | |
-Por pérdidas por diferencias de cambio y UD (418) | | |
-Por pérdidas por instrumentos financieros mantenidos para negociar (419.07 + 419.10) | | |
-Por pérdidas por instrumentos financieros disponibles para la venta (419.11 + 419.13) | | |
-Por pérdidas en inversión en propiedades (419.17 + 419.18) | | |
-Por pérdida en instrumentos derivados (417 + 419.14) | | |
-Por otros gastos financieros (419.01 a 419.03 + 419.20 a 419.23 + 419.99) | | |
-Total de Gastos Financieros | | |
-Por estimación de deterioro de activos (420) | | |
-Por recuperación de activos y disminución de estimaciones y provisiones (520) | | |
-RESULTADO FINANCIERO | | |
-Otros Ingresos de Operación | | |
-Por comisiones por servicios (531) | | |
-Por bienes realizables (532) | | |
-Por ganancia por participaciones en el capital de otras empresas (533) | | |
-Por ganancia por participaciones en el capital de entidades supervisadas por SUGEVAL | | |
-Por ganancia por participaciones en el capital de entidades supervisadas por SUPEN | | |
-Por cambio y arbitraje de divisas (534) | | |
-Por otros ingresos con partes relacionadas (538) | | |
-Por otros ingresos operativos (539) | | |
-Total Otros Ingresos de Operación | | |
-Otros Gastos de Operación | | |
-Por comisiones por servicios (431) | | |
-Por bienes realizables (432) | | |
-Por pérdida por participaciones de capital en otras empresas (433) | | |
-Por pérdida por participaciones en el capital de entidades supervisadas por SUGEVAL | | |
-Por pérdida por participaciones en el capital de entidades supervisadas por SUPEN | | |
-Por bienes diversos (434) | | |
-Por provisiones (435) | | |
-Por cambio y arbitraje de divisas (437) | | |
-Por otros gastos con partes relacionadas (438) | | |
-Por otros gastos operativos (439) | | |
-Total Otros Gastos de Operación | | |
-RESULTADO OPERACIONAL BRUTO | | |
-Gastos Administrativos | | |
-Por gastos de personal (441) | | |
-Por otros gastos de Administración (440-441) | | |
-Total Gastos Administrativos | | |
-RESULTADO OPERACIONAL NETO ANTES DE IMPUESTOS Y PARTICIPACIONES SOBRE LA UTILIDAD | | |
-Participaciones sobre la Utilidad (452) | | |
-Impuesto sobre la renta (451) | | |
-RESULTADO DEL PERIODO | | |
-Resultados del período atribuidos a los intereses minoritarios | | |
-Resultados del período atribuidos a la controladora | | |
-| | |
-_________________________________ | _________ | | _________
-Gerente General o Representante Legal | Contador General o Director Financiero | | Auditor Interno o análogo
-| | |
-Nota: Los rubros están asociados a los códigos de cuenta que lo conforman según el “Plan de Cuentas para Entidades Financieras” y no es necesario indicarlos para efecto de publicación
+(Así adicionado el modelo 1b anterior mediante sesión N° 811 del 2 de octubre de 2009)
+MODELO N° 2
+NOMBRE DE LA ENTIDAD
+ESTADO DE RESULTADOS
+Para el _____ terminado el ___ de _______ de Período 2 y Período
+Ingresos financieros | Periodo 2 | Periodo 1
+Por disponibilidades (511) | |
+Por inversiones en instrumentos financieros (512) | |
+Por cartera de créditos (514+513 - (513.07+514.07)) | |
+Por arrendamientos financieros (513.07 + 514.07) | |
+Por ganancia por diferencias de cambios y UD (cuando la diferencia entre el saldo de la cuenta 518 menos el saldo de la cuenta 418, es positiva) | |
+Por ganancia instrumentos financieros mantenidos para negociar (519.07 + 519.09 + 519.10) | |
+Por ganancia instrumentos financieros disponibles para la venta (519.11 + 519.13) | |
+Por ganancia inversión en propiedades (519.17 + 519.18) | |
+Por ganancia en instrumentos derivados (517 + 519.14) | |
+Por otros ingresos financieros (519 - 519.07 - 519.09 - 519.10 - 519.11 - 519.13 - 519.14 - 519.17 - 519.18) | |
+Total de Ingresos Financieros | |
+Gastos Financieros | |
+Por Obligaciones con el Público (411) | |
+Por Obligaciones con el Banco Central de Costa Rica (412) | |
+Por Obligaciones con Entidades Financieras (413) | |
+Por otras cuentas por pagar diversas (414) | |
+Por Obligaciones Subordinadas, Convertibles y Preferentes (416) | |
+Por pérdidas por diferencias de cambio y UD (cuando la diferencia entre el saldo de la cuenta 518 menos el saldo de la cuenta 418, es negativa) | |
+Por pérdidas por instrumentos financieros mantenidos para negociar (419.07 + 419.10) | |
+Por pérdidas por instrumentos financieros disponibles para la venta (419.11 + 419.13) | |
+Por pérdidas en inversión en propiedades (419.17 + 419.18) | |
+Por pérdida en instrumentos derivados (417 + 419.14) | |
+Por otros gastos financieros (419 - 419.07 - 419.10 - 419.11 - 419.13 - 419.14 - 419.17 - 419.18) | |
+Total de Gastos Financieros | |
+Por estimación de deterioro de activos (420) | |
+Por recuperación de activos y disminución de estimaciones (520 - 524) | |
+RESULTADO FINANCIERO | |
+Otros Ingresos de Operación | |
+Por comisiones por servicios (531) | |
+Por bienes realizables (532) | |
+Por ganancia por participaciones en el capital de otras empresas (533) | |
+Por ganancia por participaciones en el capital de entidades supervisadas por SUGEVAL | |
+Por ganancia por participaciones en el capital de entidades supervisadas por SUPEN | |
+Por cambio y arbitraje de divisas (534) | |
+Por otros ingresos con partes relacionadas (538) | |
+Por otros ingresos operativos (539 + 524) | |
+Total Otros Ingresos de Operación | |
+Otros Gastos de Operación | |
+Por comisiones por servicios (431) | |
+Por bienes realizables (432) | |
+Por pérdida por participaciones de capital en otras empresas (433) | |
+Por pérdida por participaciones en el capital de entidades supervisadas por SUGEVAL | |
+Por pérdida por participaciones en el capital de entidades supervisadas por SUPEN | |
+Por bienes diversos (434) | |
+Por provisiones (435) | |
+Por cambio y arbitraje de divisas (437) | |
+Por otros gastos con partes relacionadas (438) | |
+Por otros gastos operativos (439) | |
+Total Otros Gastos de Operación | |
+RESULTADO OPERACIONAL BRUTO | |
+Gastos Administrativos | |
+Por gastos de personal (441) | |
+Por otros gastos de Administración (440-441) | |
+Total Gastos Administrativos | |
+RESULTADO OPERACIONAL NETO ANTES DE IMPUESTOS Y PARTICIPACIONES SOBRE LA UTILIDAD | |
+Impuesto sobre la renta (451-451.02) | |
+Impuesto sobre la renta diferido (451.02) | |
+Disminución de Impuesto sobre renta (551) | |
+Participaciones sobre la Utilidad (452) | |
+Disminución de Participaciones sobre la Utilidad (552) | |
+RESULTADO DEL PERIODO | |
+Resultados del período atribuidos a los intereses minoritarios | |
+Resultados del período atribuidos a la controladora | |
+(Así adicionado el modelo Nº 2 anterior mediante sesión N° 850-2010 del 7 de mayo de 2010).
 MODELO N° 3 NOMBRE DE LA ENTIDAD ESTADO DE FLUJOS DE EFECTIVO Para el _____ terminado el ___ de _______ de Período 2 y Período 1 (En colones sin céntimos)
 | Nota | Período 2 | Período 1
 Flujo de efectivo de las actividades de operación | | |

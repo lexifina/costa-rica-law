@@ -15,8 +15,8 @@ viii. Número de trabajadores al final del período.
 2. Notas sobre la declaración de las bases para la elaboración de los estados financieros, así como las políticas contables específicas seleccionadas y aplicadas para las transacciones y sucesos significativos.
 Nota: Base de preparación de los estados financieros y principales políticas contables utilizadas:
 Deben revelarse las bases de preparación de los estados financieros e indicar que se elaboraron de acuerdo con la legislación aplicable, la reglamentación emitida por el Consejo Nacional de Supervisión del Sistema Financiero y otras disposiciones de la SUGEF, y en los aspectos no previstos, con las Normas Internacionales de Contabilidad.
-Cuando las disposiciones emitidas por el CONASSIF o por la SUGEF difieran de lo dispuesto por las Normas Internacionales de Contabilidad se debe informar sobre las normas internacionales que se ha dejado de cumplir, la naturaleza de la divergencia, y el impacto económico financiero que ha supuesto el abandono descrito en los resultados netos, en los activos, pasivos, patrimonio neto
-y flujos de efectivo para cada periodo sobre el que se presente información.
+Cuando las disposiciones emitidas por el CONASSIF difieran de lo dispuesto por las Normas Internacionales de Información Financiera se debe informar sobre las normas internacionales que se han dejado de cumplir y la naturaleza de la divergencia para cada periodo sobre el que se presente información.
+(Así reformado el párrafo anterior mediante sesión N° 850-2010 del 7 de mayo de 2010).
 Efectivo y equivalentes a efectivo.
 Se considera como efectivo y equivalente a efectivo el saldo del rubro de disponibilidades; los depósitos a la vista y a plazo, así como las inversiones en valores con la intención de convertirlos en efectivo en un plazo no mayor a dos meses, y negociables en una bolsa de valores regulada.
 Utilidad Neta por Acción.
