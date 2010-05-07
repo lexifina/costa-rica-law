@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE VALVERDE VEGA
+COMUNICA
+Que mediante el artículo VI inciso f) de la sesión ordinaria Nº 197 celebrada el día 27 de abril de 2010, el Concejo Municipal por unanimidad, acuerda: Modificar el artículo 3 del Reglamento de Caja Chica de la Municipalidad, publicado en La Gaceta Nº 61 del día 27 de marzo de 1996, que en lo sucesivo dirá:
+“Gastos menores indispensables y urgente. Concepto. Se considerarán gastos menores indispensables y urgentes, aquellos que no excedan el monto máximo fijado por el artículo 4, inciso a) de este Reglamento, que se requieran para cubrir una necesidad de manera rápida, cuya solución no pueda esperar” la dilatación en tiempo y trámites que requieran otros procedimientos de compra, u otros que corresponden a adquisiciones que se efectúen de manera excepcional por medio de este fondo. Entre los gastos menores se consideran además los gastos por viáticos y transporte, tanto al interior como al exterior del país, así como los gastos de representación y gastos conexos (similares), adicionalmente todos estos gastos estarán sujetos a lo que indica el artículo 133 de lo que indica el Reglamento de Contratación Administrativa.
+Así mismo refórmense los artículos 1° y 5 del Reglamento de Caja Chica de la Municipalidad de Valverde Vega, publicado en La Gaceta Nº 61 del día 27 de marzo de 1996, para que en lugar de “Ejecutivo Municipal” se lea Alcalde Municipal.
+Acuerdo definitivamente aprobado. Comuníquese, y publíquese en el Diario Oficial La Gaceta.
+Sarchí Norte, 28 de abril del 2010.
