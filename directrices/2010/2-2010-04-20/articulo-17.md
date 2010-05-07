@@ -1,0 +1,1 @@
+Articulo 17°. Las Jefaturas y Direcciones del MEIC indicarán al Departamento de STC, quienes serán los funcionarios encargados de realizar los respaldos de la información sensible, según la prioridad, vigencia y lineamientos establecidos.

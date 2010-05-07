@@ -1,0 +1,1 @@
+Artículo 9°. Es responsabilidad de STC llevar a cabo los procesos de respaldos de aquellos sistemas, información y aplicaciones que, están almacenados en los dispositivos de los Centros de Datos del MElC de acuerdo a los lineamientos y procedimientos establecidos.

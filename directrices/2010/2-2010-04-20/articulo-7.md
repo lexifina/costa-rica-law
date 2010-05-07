@@ -1,0 +1,1 @@
+Artículo 7°. Los respaldos se realizarán sobre unidades de almacenamiento de datos con tecnología avanzada que, podrán ser sustituidos en el momento de que haya un avance tecnológico significativo para tal fin.

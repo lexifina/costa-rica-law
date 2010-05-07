@@ -1,0 +1,1 @@
+Artículo 16°. Queda estrictamente prohibido utilizar el servicio de respaldo, cualquier aplicación y dispositivo, para realizar respaldos de información personal, cuyo contenido no se relacione a las labores que le fueron asignadas.

@@ -1,0 +1,1 @@
+Artículo 6°. Cada Jefatura de Departamento u Oficina del MEIC deberá dar importancia a la información que será respaldada con base al nivel de prioridad que demande el activo. Ejemplo: Nivel Alto, Nivel Medio, Nivel Bajo.

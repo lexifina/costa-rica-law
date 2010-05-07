@@ -1,0 +1,1 @@
+Artículo 18°. Es responsabilidad de cada funcionario identificar, clasificar y definir, cual es la información relevante a respaldar en los medio de almacenamiento que vaya a utilizar, con el fin de mantener una copia fiel de los datos importantes, evitando así que, la información sea objeto de pérdida, alteración o daño.

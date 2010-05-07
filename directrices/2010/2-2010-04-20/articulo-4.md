@@ -1,0 +1,1 @@
+Artículo 4°. La información Pública del MElC, ya sea mediante documentación escrita, digital o en línea puede ser visualizada por cualquier persona dentro o fuera de la institución, siempre y cuando, este dentro del alcance institucional y en lo concerniente al Ministerio.

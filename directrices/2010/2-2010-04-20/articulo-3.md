@@ -1,0 +1,1 @@
+Artículo 3°. EI Departamento de STC definirá los lineamientos y procedimientos de respaldos para usuarios y de los servidores instalados en los Centros de Datos del MEIC, y será responsabilidad de las autoridades competentes del Ministerio brindar los recursos necesarios y suficientes para el cumplimiento de este artículo.
