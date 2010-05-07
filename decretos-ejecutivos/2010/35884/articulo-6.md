@@ -1,0 +1,1 @@
+Artículo 6º—Renovación de licencia para perforar. La perforadora interesada en renovar la licencia, un mes antes del vencimiento, debe presentar solicitud escrita a la Dirección de Agua del MINAET, quien en el plazo de 3 días verificado que se mantengan las condiciones originales, renovará la licencia por períodos iguales de cuatro años.

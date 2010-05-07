@@ -1,0 +1,1 @@
+Artículo 22.—De la prórroga para iniciar la perforación. El gestionante podrá solicitar ante la Dirección de Agua con 10 días naturales de anticipación al vencimiento del plazo de inicio de la perforación, una única prórroga. Esta se podrá otorgar por un plazo máximo de un mes.

@@ -1,0 +1,1 @@
+Transitorio II.—En el plazo de tres meses a partir de la publicación del presente Decreto, las personas que tenga ingresada en la Dirección de Agua solicitud de permiso de perforación, deberán de adecuar la información de conformidad con el Capítulo V.

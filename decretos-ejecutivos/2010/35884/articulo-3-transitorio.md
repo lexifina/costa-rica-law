@@ -1,0 +1,1 @@
+Transitorio III.—Las perforadores que a la fecha de vigencia de este Reglamento, se encuentren debidamente inscritas en la Dirección de Agua y al día con sus obligaciones, la Dirección de Agua en el plazo de 10 días hábiles procederá a emitir la Licencia de perforación de conformidad con lo dispuesto en el artículo 5º del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 2º—Sujetos y ámbito de aplicación. Este Reglamento se aplicará a todo sujeto de derecho público o privado que desee perforar el subsuelo para la exploración y aprovechamiento de aguas subterráneas en todo el territorio nacional.

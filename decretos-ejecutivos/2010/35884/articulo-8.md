@@ -1,0 +1,1 @@
+Artículo 8º—De los cambios en el registro de las perforadoras. La perforadora deberá informar a la Dirección de Agua de cualquier cambio en la información suministrada en el artículo 4 de este Reglamento.
