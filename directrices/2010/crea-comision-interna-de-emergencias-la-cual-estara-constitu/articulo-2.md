@@ -1,0 +1,2 @@
+Artículo 2º—Dicha Comisión estará integrada por los siguientes funcionarios: Harold Soto Ramírez, cédula de identidad 1-0573-0691; Yasinny Rodríguez Barboza, cédula de identidad 2-0583-0935; Maureen Álvarez Arrieta, cédula de identidad 1-1100-0585; Ricardo Soto Arroyo, cédula de identidad 2-0292-0273; y Rosalyn Guerrero Sánchez, cédula de identidad 1-1063-0945.
+Lo anterior, sin perjuicio de que a futuro se puedan integrar más funcionarios o bien sustituir los anteriores.
