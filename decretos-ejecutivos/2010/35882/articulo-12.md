@@ -1,0 +1,1 @@
+Artículo 12.—Del informe de recomendación a emitir por la Dirección de Agua. La Dirección de Agua con base en la información aportada emitirá el informe de recomendación, sin perjuicio de posteriormente verificar la información en campo.

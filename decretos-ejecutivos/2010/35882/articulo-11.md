@@ -1,0 +1,1 @@
+Artículo 11.—De la resolución de la concesión. La concesión se resolverá conforme lo dispuesto en la Ley de Aguas Nº 276 del 26 de agosto de 1942. El Ministro del MINAET emitirá la resolución de concesión previo informe de la Dirección de Agua.

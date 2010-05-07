@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente reglamento tiene por objeto establecer el procedimiento para la inscripción y registro regulado de pozos perforados sin permiso y el trámite respectivo para la obtención de la concesión de aguas.

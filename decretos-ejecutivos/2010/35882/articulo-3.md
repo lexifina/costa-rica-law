@@ -1,0 +1,1 @@
+Artículo 3º—Sujetos y ámbito de aplicación. Este reglamento se aplicará a nivel nacional a todo sujeto de derecho público o privado que tenga un pozo sin inscribir en el Ministerio de Ambiente, Energía y Telecomunicaciones (MINAET) y el Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA).
