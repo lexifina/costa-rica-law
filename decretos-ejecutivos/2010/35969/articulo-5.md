@@ -1,0 +1,1 @@
+Artículo 5º—Deróguese el artículo 8º del Decreto Ejecutivo Nº 25833-H-TUR del 10 de febrero de 1997, Reglamento sobre Naves Acuáticas dedicadas Exclusivamente al Transporte Turístico de Pasajeros y sus reformas.

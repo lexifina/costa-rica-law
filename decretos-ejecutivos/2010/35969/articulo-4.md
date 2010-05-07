@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el artículo 9º del Decreto Ejecutivo Nº 25833-H-TUR del 10 de febrero de 1997, Reglamento sobre Naves Acuáticas dedicadas Exclusivamente al Transporte Turístico de Pasajeros y sus reformas, para que dicho artículo se lea de la siguiente forma:
+Artículo 9º—Las empresas con contratos turísticos dedicadas al transporte acuático de turistas deberán cumplir en lo conducente con las regulaciones establecidas en la Ley de Incentivos para el Desarrollo Turístico, Ley Nº 6990 del 15 de julio de 1985 y su Reglamento.
