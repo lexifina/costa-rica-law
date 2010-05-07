@@ -1,0 +1,1 @@
+Artículo 4º—Se exceptúan de la aplicación del decreto a los funcionarios del Aeropuerto Internacional Juan Santamaría y a los miembros de la Fuerza Pública del Ministerio de Seguridad Pública y de la Policía de Tránsito del Ministerio de Obras Públicas y Transportes.

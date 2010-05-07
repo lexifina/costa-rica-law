@@ -1,0 +1,1 @@
+Artículo 7º._ En virtud de lo anterior y siguiendo las medidas de seguridad requeridas para este tipo de actividades, la Fuerza Pública y la Policía de Tránsito, deberán implementar operativos de cierres de calles, procurando mitigar lo más posible las aglomeraciones y congestionamientos viales que se puedan suscitar.

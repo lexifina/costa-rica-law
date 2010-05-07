@@ -1,0 +1,1 @@
+Artículo 3º—Se exceptúan de la aplicación del decreto al Banco Central de Costa Rica, en virtud de la continuidad del servicio que presta por medio de la plataforma tecnológica del Sistema Nacional de Pagos Electrónicos a fin de no afectar las operaciones financieras a nivel interinstitucional de pago, cobro y liquidación de cheques.
