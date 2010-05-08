@@ -8,4 +8,8 @@ a. Ordenar la apertura de los expedientes tarifarios, fijar las tarifas de los s
 b. Resolver lo que corresponda en materia de quejas y denuncias y conocer en primera instancia los recursos de revocatoria que se presenten contra sus actuaciones,
 c. Resolver los procedimientos administrativos sancionatorios a que se refieren los artículos 38 y 41 de la Ley 7593 y conoce de los recursos de revocatoria que se presenten contra sus actuaciones,
 d. Coordinar los actos preparatorios necesarios para remitir a la Junta Directiva, para su resolución, las apelaciones a las fijaciones de tarifas, cánones, tasas y contribuciones de telecomunicaciones de la Superintendencia de Telecomunicaciones.
+e. Otorgar o denegar el refrendo a los contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos.
+(Así adicionado el inciso anterior por acuerdo Nº 026 aprobado en sesión Nº 019-2010 del 7 de mayo de 2010)
+f. Ratificar o no los contratos que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos.
+(Así adicionado el inciso anterior por acuerdo Nº 026 aprobado en sesión Nº 019-2010 del 7 de mayo de 2010)
 Rige a partir del 8 de mayo del 2010 y hasta la primera sesión que lleve a cabo la nueva Junta Directiva.
