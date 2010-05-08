@@ -1,6 +1,7 @@
 Nº 34492-MINAE
 EL PRESIDENTE DE LA REPÚBLICA,
 Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+(Nota de Sinalevi: Mediante el artículo 2º del decreto ejecutivo Nº 36019 del 8 de mayo de 2010, se indica que se deroga en este decreto, únicamente en lo que se refiere a la actividad de minería metálica de oro.)
 En uso de las facultades que les confieren los artículos 140 incisos 3), 18) y 20); y 146 de la Constitución Política; el Código de Minería Ley Nº 6797 del 4 de octubre de 1982; la Ley Orgánica del Ambiente Ley Nº 7554 del 4 de octubre de 1995, publicada en La Gaceta número 215 del 13 de noviembre de 1995 y el Reglamento Orgánico del Poder Ejecutivo, Decreto Ejecutivo Nº 33151-MP del 8 de mayo del 2006 publicado en La Gaceta número 95 del 18 de mayo de 1995 y sus reformas.
 Considerando:
 I.—Que el Estado tiene el dominio absoluto, inalienable e imprescriptible de todos los recursos minerales que existen en el territorio nacional y en su mar patrimonial cualquiera que sea el origen, estado físico o naturaleza de las sustancias que contengan.

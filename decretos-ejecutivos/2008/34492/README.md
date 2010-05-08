@@ -14,3 +14,4 @@ Salvaguarda ambiental para la minería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-04 | la propia norma |
+| 2 | 2010-05-08 | Decreto Ejecutivo 36019 (2010-05-08) |
