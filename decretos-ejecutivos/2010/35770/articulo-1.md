@@ -1,0 +1,18 @@
+Nº 35770-MP-RE-COMEX
+EL PRESIDENTE DE LA REPÚBLICA,
+LOS MINISTROS DE LA PRESIDENCIA, DE RELACIONES
+EXTERIORES Y CULTO Y LA MINISTRA DE COMERCIO EXTERIOR
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; 27 y 28 de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”.
+Considerando:
+1º—Que “Los Caminos para la Prosperidad en las Américas” es una iniciativa lanzada el 24 de setiembre del 2008 por los Jefes de Gobierno de Canadá, Chile, Colombia, Costa Rica, República Dominicana, El Salvador, Guatemala, Honduras, México, Panamá, Perú y los Estados Unidos, concebida como un Foro para el diálogo político multilateral, que pretende apoyar los esfuerzos para profundizar la asociación y cooperación entre los países miembros, para garantizar que los beneficios del libre comercio y la apertura a la inversión sean más ampliamente compartidos por la sociedad, así como ofrecer un espacio de trabajo para mejorar la competitividad en la región.
+2º—Que este Foro constituye una plataforma para el intercambio de mejores prácticas, así como para coordinar esfuerzos regionales para conectar el crecimiento y los mercados abiertos con oportunidades económicas reales para todos los sectores de la sociedad, así como ampliar las colaboraciones técnicas existentes entre sus miembros.
+3º—Que se ha acordado realizar la próxima reunión en Costa Rica, con el propósito de evaluar los avances alcanzados para implementar la presente Declaración, tanto en las áreas temáticas establecidas en Panamá como los nuevos elementos que se acordaron en San Salvador, definiéndose la realización de la III Reunión Ministerial Caminos para la Prosperidad en las Américas los días 3 y 4 de marzo de 2010, en San José.
+4º—Como objetivo de esta reunión se encuentra el de revisar el grado de avance en el trabajo desarrollado para los cuatro pilares de la Iniciativa definidos en la I Reunión Ministerial celebrada en Panamá y ratificados en la II Reunión Ministerial celebrada en El Salvador. En particular, se analizarán las áreas estratégicas definidas como prioritarias para cada pilar en la Reunión Abierta de Países Coordinadores de la Iniciativa, celebrada en Washington DC el pasado 22 de octubre. De igual manera, se evaluarán las actividades especificas asociadas a cada una de esas áreas estratégicas que los países han venido desarrollando en el marco de la Iniciativa, las cuales constituyen esfuerzos concretos que materializan los objetivos acordados en las Declaraciones Ministeriales.
+5º—Que en esta Reunión se prevé la asistencia de 13 Ministros de Relaciones Exteriores y 13 Ministros de Comercio Exterior. Asistirá la Secretaria de Estado de Estados Unidos de América, Hillary Rodham Clinton, con una delegación de 75 personas, aproximadamente. Por la importancia del evento, se ha cursado invitación a los presidentes de importantes organismos internacionales.
+6º—Que la realización de la III Reunión Ministerial Caminos para la Prosperidad en las Américas los días 3 y 4 de marzo de 2010 en San José, se consideran de importancia para el país en materia de relaciones exteriores y comercio exterior. Por tanto,
+Decretan:
+SE DECLARAN DE INTERÉS PÚBLICO Y NACIONAL,
+LAS ACTIVIDADES QUE SE LLEVARÁN A CABO CON
+MOTIVO DE LA III REUNIÓN MINISTERIAL CAMINOS
+PARA LA PROSPERIDAD EN LAS AMÉRICAS
+Artículo 1º—Se declaran de interés público y nacional, las actividades que se llevarán a cabo con motivo de la III Reunión Ministerial Caminos para la Prosperidad en las Américas los días 3 y 4 de marzo de 2010, a celebrarse en San José.
