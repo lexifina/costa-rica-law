@@ -20,6 +20,8 @@ a.1.1) Acetaminofén, hasta 750 mg por tableta o cápsula, solo o combinado con 
 a.1.2) Ácido acetilsalicílico, hasta 500 mg por tableta o cápsula, solo o combinado con cafeína, y o antiácidos en las concentraciones reguladas en el apartado correspondiente.
 a.2) Alivio de dismenorrea.
 a.2.1) Ibuprofeno 200 mg por tableta o cápsula.
+a.2.2) Naproxeno 220 mg por tableta o cápsula”.
+(Así adicionado el subinciso anterior por el artículo 1º del decreto ejecutivo Nº 36041 del 10 de mayo de 2010)
 a.3) Alivio del dolor de la boca, dentición, úlceras bucales:
 a.3.1) Benzocaína hasta 2% en ungüento, gel o solución.
 a.3.2) Extracto de flores de manzanilla hasta 37% en aerosol.

@@ -14,3 +14,4 @@ Declara Medicamentos de Venta Libre al Consumidor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-25 | la propia norma |
+| 2 | 2010-05-10 | Decreto Ejecutivo 36041 (2010-05-10) |
