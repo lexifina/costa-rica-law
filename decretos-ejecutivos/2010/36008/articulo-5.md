@@ -1,0 +1,1 @@
+Artículo 5º—El Ministerio de la Presidencia designará un Coordinador de alto nivel, de la Comisión, quien será el responsable de establecer los mecanismos interinstitucionales y proyectos conjuntos que propicien el logro de los objetivos del Programa Agua para Guanacaste.
