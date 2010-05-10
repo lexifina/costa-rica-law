@@ -6,7 +6,8 @@ Coordinar y contribuir en la formulación del Plan Estratégico y el Plan Operat
 Revisar y redefinir de acuerdo con la dinámica institucional, la estructura programática en coordinación con otras instancias del Ministerio, como base para la formulación presupuestaria.
 Evaluar la ejecución del presupuesto institucional.
 Brindar a los funcionarios del ministerio, asesoría y capacitación en materia de planificación.
-Colaborar en la formulación, ejecución y evaluación de convenios y proyectos de cooperación nacional e internacional.
+Colaborar en la formulación, ejecución y evaluación de convenios y proyectos de inversión pública de la Institución.
+(Así reformado el inciso anterior por el artículo 3 del decreto ejecutivo Nº 36053 del 10 de mayo de 2010)
 Vigilar la debida prestación de servicios, identificando deficiencias y situaciones de conflicto con el propósito de emitir las recomendaciones pertinentes ante el superior jerárquico que corresponda.
 Atender y establecer un sistema de control, seguimiento, resolución y respuesta oportuna a las consultas, sugerencias, reclamos y quejas.
 Elaboración y evaluación del Plan Nacional de Desarrollo, en concordancia con los lineamientos girados por el Ministerio de Planificación Nacional.
