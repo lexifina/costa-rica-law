@@ -6,4 +6,4 @@ d) Número de Contratación
 e) Descripción del bien o servicio
 f) Cantidad, precio unitario y monto total
 g) Tiempo de entrega
-h) Autorización de la Unidad de Presupuesto y código del rubro presupuestario afectado.
+h) (Derogado en sesión N° 3944 del 10 de mayo de 2010)
