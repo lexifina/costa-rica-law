@@ -1,6 +1,7 @@
 Artículo 3°—Atribuciones y responsabilidades:
 a) Autorizar las órdenes de compra para combustible a precio competitivo con el precio internacional y las autorizaciones de consolidados de órdenes de combustible.
-b) Ejecutar los acuerdos emanados por la Junta Directiva del INCOPESCA en esta materia, cualquier otra disposición legal establecida o las regulaciones derivadas de los Contratos suscritos para estos efectos.
+b) Ejecutar los acuerdos emanados por la Junta Directiva del INCOPESCA en esta materia, cualquier otra disposición legal establecida o las regulaciones derivadas de los Convenios suscritos para estos efectos.
+(Así reformado por acuerdo A.J.D.I.P./151-2010 del 11 de mayo de 2010)
 c) Llevar un archivo adicional de los originales del contrato de combustible.
 d) Llevar un archivo adicional de los registros originales de firma de los beneficiarios, así como un archivo de las autorizaciones de consolidación de órdenes de compra combustible a precio preferencial por cliente autorizado por RECOPE.
 e) Llevar un expediente físico manual por cada embarcación beneficiaria, en el que constarán todos los documentos o requisitos establecidos en el presente Reglamento conforme al instructivo.

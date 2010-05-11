@@ -1,4 +1,5 @@
-Artículo 11.—Los contratos suscritos entre los beneficiarios y el INCOPESCA, se suspenderán con respeto al debido proceso:
+Artículo 11.—Los convenios suscritos entre los beneficiarios y el INCOPESCA, se suspenderán con respeto al debido proceso:
+(Así reformado el párrafo anterior por acuerdo A.J.D.I.P./151-2010 del 11 de mayo de 2010)
 Por un mes cuando:
 a) Nieguen el acceso a la información concerniente al tema de combustible;
 b) Impidan la inspección o el abordaje de sus embarcaciones, o

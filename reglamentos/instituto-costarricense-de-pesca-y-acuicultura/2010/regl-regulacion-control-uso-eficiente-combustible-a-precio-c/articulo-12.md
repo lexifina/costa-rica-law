@@ -1,4 +1,5 @@
-Artículo 12.—Los contratos suscritos entre las Organizaciones Pesqueras y el INCOPESCA, se suspenderán con respeto al debido proceso:
+Artículo 12.—Los convenios suscritos entre las Organizaciones Pesqueras y el INCOPESCA, se suspenderán con respeto al debido proceso:
+(Así reformado el párrafo anterior por acuerdo A.J.D.I.P./151-2010 del 11 de mayo de 2010)
 Por un mes cuando:
 a) Nieguen el acceso a la información concerniente al tema de combustible a precio competitivo.
 b) Nieguen la revisión o inspección de los tanques de almacenamiento de combustibles propios o arrendados a las estaciones de servicio.

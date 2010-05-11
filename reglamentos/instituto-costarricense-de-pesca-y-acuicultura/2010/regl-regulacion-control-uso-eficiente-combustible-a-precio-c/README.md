@@ -14,3 +14,4 @@ Regl. regulación, control uso eficiente combustible a precio competitivo nivel 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-28 | la propia norma |
+| 2 | 2010-05-11 | Acuerdo 151 (2010-05-11) |
