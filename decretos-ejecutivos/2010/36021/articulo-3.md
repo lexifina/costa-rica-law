@@ -1,0 +1,1 @@
+Artículo 3.- La Presidencia de la República, en el proceso de elaboración de la Política Integral de Seguridad Ciudadana, procurará la consulta a los diversos actores sociales del país antes enumerados, desarrollando mecanismos que faciliten una amplia participación de las instituciones oficiales y la sociedad civil.

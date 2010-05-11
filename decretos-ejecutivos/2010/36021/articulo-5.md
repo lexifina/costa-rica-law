@@ -1,0 +1,1 @@
+Artículo 5.- La Presidencia de la República, procurará la suscripción de un acuerdo entre el Gobierno de la República y el Programa de las Naciones Unidas para el Desarrollo (PNUD), para que sea este Programa la instancia encargada de apoyar la organización de la consulta y la elaboración del documento de Política Integral y Sostenible de Seguridad Ciudadana.

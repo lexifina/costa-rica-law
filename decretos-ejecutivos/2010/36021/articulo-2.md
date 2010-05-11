@@ -1,0 +1,1 @@
+Artículo 2.- Se crea el Comité Consultivo del proceso de elaboración y adopción de la Política Integral y Sostenible de Seguridad Ciudadana, como un órgano de consulta y orientación, integrado por representantes del Consejo de Seguridad Nacional del Gobierno de la República, del Poder Judicial y de la Comisión Especial de Seguridad Ciudadana de la Asamblea Legislativa.

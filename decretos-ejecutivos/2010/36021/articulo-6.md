@@ -1,0 +1,1 @@
+Artículo 6.- Todos estos procesos tendrán lugar durante los primeros 100 días de la presente administración, y sus resultados se presentarán en actos organizados para tal propósito a más tardar en el mes de agosto del presente año.
