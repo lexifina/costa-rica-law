@@ -14,3 +14,4 @@ Reglamento para la organización y funcionamiento de la Casa de la Cultura de Ti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-11 | la propia norma |
+| 2 | 2010-05-11 | Reglamento municipal 2 (2010-05-11) |
