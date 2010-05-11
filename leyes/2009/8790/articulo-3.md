@@ -14,3 +14,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 35773 del 9 de febrero de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35858 del 9 de marzo de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35968 del 21 de abril de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36006 del 3 de mayo de 2010)

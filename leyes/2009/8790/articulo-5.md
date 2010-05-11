@@ -21,3 +21,4 @@ INDICADORES DE RESULTADOS:
 0.01.04 Porcentaje del total de actividades educativas programas en el año, que son impartidas por la Defensoría de los Habitantes en derechos humanos a niños, niñas y adolescentes de centros educativos públicos del país . 50.00 50.00 50.00 50.00 50.00
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 52 a La Gaceta N° 254 del 31 de diciembre del 2009)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35858 del 9 de marzo de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36006 del 3 de mayo de 2010)
