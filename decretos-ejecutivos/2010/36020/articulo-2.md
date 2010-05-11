@@ -1,0 +1,1 @@
+Artículo 2º—Las acciones tendientes a la realización de estudios, el diseño, la reglamentación, la constitución y la formulación de los planes de desarrollo de la “Red Nacional de Cuido y Desarrollo Infantil”, serán coordinadas por el Ministerio de Bienestar Social y Familia; esto sin perjuicio de las potestades que la ley otorga en esta materia a diversas instituciones públicas.
