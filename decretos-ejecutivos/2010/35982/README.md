@@ -14,3 +14,4 @@ Se decreta Moratoria en Minería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-11 | la propia norma |
+| 2 | 2010-05-11 | Decreto Ejecutivo 36019 (2010-05-08) |
