@@ -15,3 +15,4 @@ Reglamento a la Ley Reguladora de los Servicios Públicos
 | --- | --- | --- |
 | 1 | 2001-08-29 | la propia norma |
 | 2 | 2009-02-24 | Decreto Ejecutivo 35148 (2009-02-24) |
+| 3 | 2010-05-11 | Decreto Ejecutivo 36167 (2010-05-11) |
