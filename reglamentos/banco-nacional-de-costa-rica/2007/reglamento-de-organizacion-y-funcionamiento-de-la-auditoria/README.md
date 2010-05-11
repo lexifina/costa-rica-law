@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría General
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-24 | la propia norma |
+| 2 | 2010-05-11 | Reglamento 11613 (2010-05-11) |
