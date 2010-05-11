@@ -1,0 +1,4 @@
+Artículo 3º— Serán funciones del Comisionado Nacional Antidrogas:
+1) Coordinar de manera interinstitucional, intersectorial y entre los Supremos Poderes de la República, la respuesta del país al fenómeno de las drogas en cada una de sus manifestaciones y demás materias descritas en el artículo 1º del presente decreto.
+2) Apoyar, dar seguimiento, y evaluar el cumplimiento del Plan Nacional sobre Drogas, Legitimación de Capitales y Financiamiento al Terrorismo.
+Para el cumplimiento de esta función podrá dar seguimiento a todas las políticas preventivas y represivas que desarrollen las instituciones centralizadas y descentralizadas de la Administración del Estado, los Gobiernos Locales, así como las organizaciones sin fines de lucro legalmente establecidas dedicadas a las acciones señaladas en el Artículo 1° de este Decreto; y procurará obtener de estas instancias, información sobre los avances y logros obtenidos como resultado del trabajo efectuado.
