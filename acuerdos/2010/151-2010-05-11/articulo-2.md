@@ -1,0 +1,1 @@
+2º—En todo el texto del Reglamento de Combustible indicado, AJDIP/085-2010 del 12 de marzo del 2010, en que aparezca o se utilice la palabra “contratos”, deberá leerse correctamente según la modificación realizada “convenios”.
