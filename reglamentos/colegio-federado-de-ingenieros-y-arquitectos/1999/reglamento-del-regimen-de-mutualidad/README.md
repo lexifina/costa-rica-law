@@ -15,3 +15,4 @@ Reglamento del Régimen de Mutualidad
 | --- | --- | --- |
 | 1 | 2001-02-05 | la propia norma |
 | 2 | 2009-09-14 | Reglamento 44 (2009-09-14) |
+| 3 | 2010-05-11 | Reglamento 3 (2010-05-11) |
