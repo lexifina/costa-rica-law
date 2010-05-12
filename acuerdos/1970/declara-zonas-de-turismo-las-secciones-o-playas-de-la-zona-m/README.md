@@ -14,3 +14,4 @@ Declara zonas de turismo las secciones o playas de la zona marítimo -terrestre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-10-02 | la propia norma |
+| 2 | 2010-05-12 | Acuerdo 339 (2010-05-12) |
