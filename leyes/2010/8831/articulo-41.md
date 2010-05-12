@@ -1,0 +1,6 @@
+ARTÍCULO 41.- Pérdida de la condición de integrantes de la Junta Directiva y del Tribunal Electoral
+Un director o un miembro del Tribunal Electoral perderá tal condición cuando:
+a) Se separe o sea separado del Colegio, o pierda su condición de colegiado.
+b) Sin causa justificada, a juicio de la Junta Directiva, deje de concurrir a tres sesiones ordinarias consecutivas o se ausente del país por más de tres meses, sin permiso de la Junta Directiva.
+c) Haya infringido alguna de las disposiciones contenidas en esta Ley y su Reglamento.
+En cualquiera de los casos enumerados en los incisos a) y b) de este artículo, la Junta Directiva levantará la información correspondiente por medio de la Fiscalía y hará la convocatoria a Asamblea Extraordinaria, con el fin de que el caso se conozca y la Asamblea elija, si procede, al sustituto o los sustitutos por el resto del período legal, a más tardar un mes después de producirse la vacante. Se procederá en igual forma en caso de muerte o renuncia de directores o miembros del Tribunal Electoral. La condición podrá ser recuperada dos años después de haberse perdido. Dicha condición podrá ser recuperada solamente mediante el proceso de elección corriente que manda esta Ley.

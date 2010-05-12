@@ -1,0 +1,2 @@
+ARTÍCULO 12.- Ejercicio de la profesión
+Ante las autoridades de la República y las instituciones públicas o las privadas, solo podrán ejercer como profesionales en Criminología las personas miembros que permanezcan activas en el Colegio, siempre que no se encuentren suspendidas en el ejercicio profesional por cualquiera de las causas establecidas en esta Ley, y se ajusten a lo establecido en esta Ley y sus reglamentos. Es obligatorio que se colegien las personas profesionales en Criminología que pretendan ejercer su profesión en cualquier punto de la República.

@@ -1,0 +1,4 @@
+ARTÍCULO 43.- Audiencia
+Vencido el término anterior, se citará a las partes a una audiencia, que deberá celebrarse dentro de los quince días hábiles siguientes al vencimiento del último emplazamiento, con el fin de evacuar las pruebas ofrecidas por ellas. La Secretaría del Tribunal de Honor deberá levantar un acta detallada de lo manifestado en la audiencia.
+Terminada la evacuación de la prueba, se permitirá alegar de bien probado a los profesionales en Derecho que representen a las partes y se cerrará la vista. Dentro de los tres días hábiles siguientes, el Tribunal de Honor deberá emitir la correspondiente resolución motivada, so pena de nulidad.
+En cuanto a lo no estipulado de modo expreso en este procedimiento, supletoriamente se aplicará la Ley general de la Administración Pública, siempre y cuando sea compatible con esta normativa.
