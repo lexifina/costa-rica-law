@@ -1,7 +1,10 @@
 Artículo 18º.- Tarifas en el interior del país. Las sumas a cobrar por los diferentes conceptos, serán las siguientes:
-a) Desayuno: ¢ 2.800,00
-b) Almuerzo: ¢ 4.500,00
-c) Cena: ¢ 4.500,00
+a) Desayuno: ¢ 3.000,00
+(Así reformado la tarifa anterior por R-DC-84-2010 del 12 de mayo de 2010)
+b) Almuerzo: ¢4.800,00
+(Así reformado la tarifa anterior por R-DC-84-2010 del 12 de mayo de 2010)
+c) Cena: ¢ 4.800,00
+(Así reformado la tarifa anterior por R-DC-84-2010 del 12 de mayo de 2010)
 d) Hospedaje: según la localidad de que se trate, de acuerdo con las siguientes disposiciones y tabla:
 i. La Administración reconocerá, en cada caso, el monto que estipula la correspondiente factura de hospedaje, hasta una suma que no sobrepase el máximo que indica la columna III de la siguiente tabla, exceptuando los funcionarios discapacitados, quienes tendrán derecho al reconocimiento del 100% de la factura, cuando deban pagar tarifas mayores que la máxima autorizada en la columna III, correspondiente a hoteles o similares que cuenten con las facilidades de acceso y alojamiento que ellos requieran, en salvaguarda del principio de igualdad de oportunidades consagrado en la Ley Nº 7600 del 2 de mayo de 1996. Para ello, los funcionarios tendrán que presentar, adjunto a la respectiva liquidación, la (s) factura (s) original (es) extendida (s) por el (los) establecimiento (s) de hospedaje.
 ii. Si mediante una sola factura se ampara el hospedaje de más de un funcionario en una misma habitación, uno de ellos presentará la factura original adjunta a su respectiva liquidación y el otro (o los otros) adjuntará(n) fotocopia de ésta con indicación del número de liquidación en que queda la factura original. Para efectos del reconocimiento del gasto, la Administración distribuirá el monto de la factura entre el número de funcionarios que ésta ampare, siempre que el monto resultante para cada uno no exceda el máximo que indica la columna III de la tabla siguiente.
