@@ -1,0 +1,3 @@
+ARTICULO 2.- Adiciónese el inciso i al artículo 13 del Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y del Ministerio de la Presidencia, para que se lea de la siguiente forma:
+Artículo 13. —Los servidores que ocupen puestos de operadores de equipos móviles o choferes, tendrán además las siguientes obligaciones: (...)
+i) Utilizar las tarjetas de compra de combustible dentro de los parámetros autorizados y establecidos para cada tarjeta, y presentar la documentación necesaria a la Unidad de Transportes correspondiente, para el control de combustible, cumpliendo con las disposiciones establecidas en el Reglamento de Uso Interno de Vehículos de la Presidencia de la República y Ministerio de la Presidencia.

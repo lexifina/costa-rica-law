@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Refórmese el inciso o) del artículo 14 del Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y del Ministerio de la Presidencia, para que se lean de la siguiente forma:
+Artículo 14. —Además de lo dispuesto en los artículos 40 del Estatuto de Servicio Civil, 51 de su Reglamento y otras disposiciones del presente Reglamento, es absolutamente prohibido a todos los servidores: (...)
+o) En el caso de los choferes u operadores de equipos móviles irrespetar o no cumplir la Ley de Tránsito, sus reglamentos y la normativa contemplada en el Reglamento de Uso Interno de Vehículos de la Presidencia de la República y Ministerio de la Presidencia, y normativa conexa.

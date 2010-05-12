@@ -1,0 +1,3 @@
+ARTÍCULO 6.- Modifiqúese el artículo 116 para que en adelante se lea de la siguiente manera:
+Artículo 116.—Procedimiento para la denuncia: Quien quiera denunciar acoso u hostigamiento sexual contra una persona o personas, cualquiera que sea su rango, podrá hacerlo en forma oral o escrita ante la Dirección de Recursos Humanos, ofreciendo en el mismo acto toda la prueba que considere oportuna. El Director de Recursos Humanos tendrá el plazo de tres días hábiles para elevar a conocimiento del Viceministro el caso.
+El Viceministro en el plazo de ocho días hábiles nombrará el órgano director correspondiente.
