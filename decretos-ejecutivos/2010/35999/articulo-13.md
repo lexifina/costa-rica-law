@@ -1,0 +1,4 @@
+Artículo 13.- Convocatorias
+Las convocatorias a las sesiones ordinarias y extraordinarias deberán realizarse por escrito, utilizando medios electrónicos en primera instancia; sin embargo cuando las circunstancias lo ameriten, tanto la convocatoria como la documentación relacionada, se enviarán el día hábil siguiente a aquél en que se efectuó la convocatoria, por medio de fax o haciendo entrega de los mismos en la sede de los miembros correspondientes.
+Las sesiones ordinarias serán convocadas con un plazo de diez días hábiles de antelación y las sesiones extraordinarias se convocarán con cinco días hábiles de anticipación. Ambas convocatorias se acompañarán de la agenda propuesta, del documento de seguimiento de gestiones en proceso y cualesquiera otros documentos pertinentes.
+El Coordinador General deberá convocar a sesiones extraordinarias cuando así lo soliciten tres o más miembros de la Comisión.

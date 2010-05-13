@@ -1,0 +1,4 @@
+Artículo 16.- De las Actas
+De cada sesión, la Secretaría Técnica de Apoyo levantará un acta que contendrá la indicación de las personas asistentes y la entidad u organización que representan, las circunstancias del lugar, la hora y el tiempo en que se ha celebrado, los puntos principales que se discutieron de conformidad con la agenda aprobada y el contenido de los acuerdos tomados, en caso de que existan.
+Las actas firmadas quedarán a disposición de los restantes miembros de la Comisión, para su consulta, en la sede de la Secretaría Técnica de Apoyo.
+En lo no previsto en este capítulo se aplicarán en lo conducente las disposiciones sobre órganos colegiados contempladas en la Ley General de la Administración Pública. Las actas serán remitidas a los miembros de la Comisión utilizando medios electrónicos en un plazo máximo de cinco días hábiles después de realizada cada sesión.
