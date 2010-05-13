@@ -1,1 +1,0 @@
-Artículo 10.—Competencia de la Subdirección General Técnica-Operativa: Es la instancia que dirige, supervisa y evalúa en las Direcciones Regionales del SFE las acciones resultantes de la implementación de la normativa, lineamientos, planes, programas y proyectos.
