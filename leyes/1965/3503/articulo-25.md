@@ -1,15 +1,8 @@
 CAPITULO XII
 Permisos para Explotar el Servicio de Transporte Automotor de Personas
-Artículo 25.- Los permisos para explotar el transporte automotor de
-personas en vehículos colectivos, excepto los automóviles de servicio
-público que se contraten por viaje o por tiempo, serán expedidos por la
-Comisión Técnica de Transportes. Cada permiso podrá amparar uno o varios
-vehículos, de acuerdo con la naturaleza del servicio que se pretenda
-prestar y lo dispuesto en la presente ley y su reglamento. Los permisos
-serán revocables por incumplir las condiciones incluidas en ellos o por
-disposición justificada de la Comisión Técnica de Transportes. Por eso,
-se entenderá que los permisos no conceden derechos subjetivos al titular.
-Los permisos se prolongarán por un plazo hasta de dos años y podrán ser
-prorrogados si se ajustan a las ordenanzas de la citada Comisión.
-( Así reformado por el artículo 64 de la Ley Nº 7593 de 9 de agosto
-de 1996).
+Artículo 25.- Los permisos para explotar el servicio terrestre de transporte remunerado de personas en vehículos automotores, modalidad autobús, buseta o microbús serán otorgados y regulados por el Consejo de Transporte Público. Cada permiso podrá amparar uno o varios vehículos, de acuerdo con la naturaleza del servicio que se pretenda prestar y lo dispuesto en la presente Ley y su Reglamento. Los permisos serán revocables por incumplir las condiciones incluidas en ellos o por disposición justificada del Consejo de Transporte Público, previo debido proceso y derecho de la defensa. Por su carácter precario, se entenderá que los permisos no conceden derecho subjetivo al titular, ni pueden perpetuarse en el tiempo. Los permisos se prolongarán por un plazo de tres años y podrán ser prorrogables, si la necesidad del servicio público así lo exige, todo mediante acuerdo razonado del Consejo de Transporte Público, debidamente fundamentado en el reglamento de esta disposición.
+Para los efectos de la presente Ley, los permisos se clasifican en dos modalidades:
+a) Los permisos para servicios especiales de estudiantes, trabajadores y turismo.
+b) Los servicios de operación de líneas regulares, nuevas o existentes. Los que se concederán excepcionalmente y por un plazo de tres años, mientras se preparan los procesos licitatorios tendientes a otorgar las concesiones, con arreglo a esta Ley y las disposiciones conexas, se resuelven las impugnaciones, se adjudican en firme los concursos y entran en plena operación los concesionarios adjudicatarios.
+(Así reformado por el artículo único de la ley Nº 8826 de 5 de mayo de 2010)
+(Nota de Sinalevi: el Dictamen C-483-2020 de 17 de diciembre de 2020 concluyó que el numeral 49 de Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 del 4 de octubre de 2012 derogó tácitamente y de forma parcial el presente artículo, en lo concerniente al plazo y prórrogas de los permisos de servicios especiales de transporte remunerado de personas. Así, debe entenderse que el plazo aplicable para los permisos de transporte, en modalidad de servicios especiales, es de dos años, pudiendo ser prorrogables bajo el cumplimento de los parámetros legales exigidos por el ordenamiento.)
