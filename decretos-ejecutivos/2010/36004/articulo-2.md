@@ -1,0 +1,1 @@
+Artículo 2º.- Entes beneficiarios de las transferencias. Se considerarán sujetos beneficiarios de las transferencias de competencias y recursos las Municipalidades y los Concejos Municipales de Distrito.

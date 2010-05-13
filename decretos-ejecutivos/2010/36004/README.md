@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 36004
+
+Reglamento a la Ley General de Transferencia de Competencias del Poder Ejecutivo a las Municipalidades
+
+- Tipo: Decreto Ejecutivo
+- Número: 36004
+- Fecha: 2010-05-05
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 92 del 2010-05-13
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=67947&param2=80735&param3=1 (ficha 67947)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2010-05-13 | la propia norma |

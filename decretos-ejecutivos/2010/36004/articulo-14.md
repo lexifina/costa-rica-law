@@ -1,0 +1,1 @@
+Artículo 14.- Integración. Estará de pleno derecho conformado por todo ente público que desarrolle actividades en la localidad y Sociedades Anómimas-empresas públicas. Representará a cada ente su jerarca ejecutivo o quien este designe.

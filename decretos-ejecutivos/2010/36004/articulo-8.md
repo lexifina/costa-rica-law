@@ -1,0 +1,1 @@
+Artículo 8º.- Participación de los vecinos en el proceso. Corresponderá a cada ente local reglamentar la participación de los vecinos en el proceso de transferencias y en el ejercicio de las competencias transferidas.

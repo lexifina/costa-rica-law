@@ -1,0 +1,2 @@
+Artículo 12.- Mejoramiento de la capacidad de gestión local. MIDEPLAN implementará o promoverá en coordinación con los entes y órganos competentes, el desarrollo de un programa para el mejoramiento de la capacidad de gestión, respecto de los entes locales que denoten deficiencias que puedan dificultar una administración satisfactoria de las competencias transferidas.
+El programa comprenderá todo tipo de apoyos útiles del Poder Ejecutivo y de otras organizaciones nacionales e internacionales.

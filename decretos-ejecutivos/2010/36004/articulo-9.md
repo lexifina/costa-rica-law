@@ -1,0 +1,1 @@
+Artículo 9º.- Monto de la transferencia de fondos. La suma total a transferir cada año a los entes locales se determinará según el porcentaje correspondiente y en referencia al total de los ingresos ordinarios estimados en el Presupuesto de la República que contemple las transferencias.
