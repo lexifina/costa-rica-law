@@ -15,3 +15,4 @@ Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado
 | --- | --- | --- |
 | 1 | 2006-04-04 | la propia norma |
 | 2 | 2009-11-20 | Decreto Ejecutivo 35668 (2009-11-20) |
+| 3 | 2010-05-13 | Decreto Ejecutivo 36029 (2010-05-13) |
