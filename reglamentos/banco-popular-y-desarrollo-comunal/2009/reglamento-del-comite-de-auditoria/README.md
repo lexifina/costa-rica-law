@@ -14,3 +14,4 @@ Reglamento del Comité de Auditoría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-04 | la propia norma |
+| 2 | 2010-05-13 | Reglamento 4755 (2010-05-13) |
