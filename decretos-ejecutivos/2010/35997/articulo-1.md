@@ -1,0 +1,14 @@
+N° 35997-MEIC
+EL PRESIDENTE DE LA REPUBLICA Y
+EL MINISTRO DE ECONOMIA INDUSTRIA Y COMERCIO
+En el uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978, los artículos 8 y 9 de la Ley del Sistema Nacional para la Calidad, Ley Nº 8279 del 02 de mayo de 2002; Reglamento al Capítulo III de la Ley Nº 8279 del Sistema Nacional para la Calidad. Creación del Laboratorio Costarricense de Metrología, Decreto Ejecutivo Nº 31819- MEIC del 30 de abril del 2004; y el Reglamento para la Regulación Transporte y Acarreo de Derivados del petróleo; y sus reformas, Decreto Ejecutivo Nº 24813-MAE del 23 de noviembre de 1995.
+Considerando:
+I-. Que mediante Decreto Ejecutivo Nº DE-21020-MEIC, del 14 de enero de 1992, publicado en el Diario Oficial La Gaceta Nº 45, el día 04 de marzo de 1992, el Poder Ejecutivo aprobó la norma NCR 145:1991. Metrología, Llenado de tanques usados en el transporte de Combustible, el cual tiene como objetivo primordial garantizar la seguridad metrológica para las transacciones comerciales, basados en volúmenes de hidrocarburos transportados por medio de cisternas.
+II-. Que mediante el artículo 08 de la Ley del Sistema Nacional para la Calidad, Ley Nº 8279, del 02 de mayo del 2002, publicada en el Diario Oficial La Gaceta Nº 96 del 21 de mayo del 2002, se crea el Laboratorio Costarricense de Metrología (LACOMET).
+III-. Que al tenor de las estipulaciones legales contenidas en el artículo 29, inciso a) del Reglamento DE-31819-MEIC, al capítulo III de la Ley Nº 8279 “Sistema Nacional para la Calidad”, publicado en el Diario Oficial La Gaceta Nº 112 del 09 de junio del 2004, a Lacomet se le atribuye la facultad, por medio del Departamento de Metrología Legal, de verificar el cumplimiento de reglamentos técnicos en el campo de la metrología, abarcando la recolección de muestras en el mercado, y la verificación de equipos de medición.
+IV-. Que se hace necesario la derogatoria del Decreto Ejecutivo Nº DE-21020-MEIC, del 14 de enero de 1992, publicado en el Diario Oficial La Gaceta Nº 45, el día 04 de marzo de 1992, denominado “Aprueba Norma NCR 145:1991. Metrología, Llenado de Tanques usados en el Transporte de Combustibles”, con el fin de optimizar las funciones atribuidas legalmente al Lacomet mediante la Ley Nº 8279 y su reglamento DE-31819-MEIC, en concordancia con el cumplimiento de requisitos y gestiones en las que estén vinculadas otras entidades gubernamentales, para llevar a cabo el trámite de permiso de transporte de combustible denominado TC. Por tanto;
+DECRETAN:
+PROCEDIMIENTO PARA LA VERIFICACIÓN DE TANQUES USADOS EN EL
+TRANSPORTE DE COMBUSTIBLES
+Artículo 1º-. Objetivo y ámbito de aplicación.
+Este reglamento tiene por objeto garantizar la seguridad metrológica, en el transporte de hidrocarburos transportados por medio de cisternas.
