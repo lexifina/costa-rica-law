@@ -93,6 +93,52 @@ programa: Instituto Costarricense sobre Drogas
 Financiamiento: $76,000 Costa Rica
 Este programa apoyará la capacitación y asistencia técnica para fortalecer la capacidad institucional del Gobierno de Costa Rica en materia de investigaciones financieras; contrarrestar el lavado de dinero proveniente de actividades ilícitas, apoyar la apertura de procesos judiciales penales, dar soporte a los programas de confiscación/incautación de bienes y aumentar su efectividad, asegurar que la regulación, supervisión y capacitación del personal sea la adecuada para resguardar al sector financiero de malversación y abuso por parte de criminales. El programa proporcionará asesoría y supervisión a la Unidad de Investigaciones Financieras y a los funcionarios encargados de la implementación del software para el manejo de casos.
 (*)(Así adicionado por el artículo 1° del decreto ejecutivo N° 35596 del 13 de octubre de 2009)
+(*)Nombre del Proyecto: Políticas de mejoramiento para la
+inspección de fronteras
+Agencia del Gobierno de los
+Estados Unidos de América
+responsable de implementar
+el programa: Agencia de Asuntos Internacionales
+de Estupefacientes y Aplicación de la
+Ley (INL)
+Agencia del Gobierno de Costa Rica
+responsable de implementar el
+programa: Ministerio de Seguridad Pública
+Financiamiento: $65.000 (dólares)
+Las estaciones de inspección de fronteras y las estaciones móviles juegan un importante papel en impedir y detectar el tráfico de estupefacientes y el flujo de dinero en efectivo en grandes cantidades. Utilizando tecnología simple y dispositivos relativamente de bajo costo, fuerzas policiales capacitadas de manera adecuada pueden efectuar inspecciones de inteligencia y al azar al los vehículos que se desplazan por el istmo, incluyendo estupefacientes lanzados fuera de las embarcaciones que transitan por los corredores del Pacífico y el Caribe.
+El programa fortalecerá la seguridad fronteriza y la detección de contrabando a través de Centroamérica. En vista de que muchos puertos de entrada no están específicamente en la frontera, sino más bien están localizados internamente en los países (de manera frecuente sobre la carretera interamericana) este programa incrementará la seguridad de las fronteras y mejorará la detección de contrabando en Centroamérica.
+Nombre del Programa: Políticas de mejoramiento de las
+capacidades (capacitación en el
+puesto de trabajo, incluyendo
+prevención contra pandillas)
+Agencia del Gobierno de los
+Estados Unidos de América
+responsable de implementar
+el programa: Agencia de Asuntos Internacionales
+de Estupefacientes y Aplicación de la
+Ley (INL)
+Agencia del Gobierno de Costa Rica
+responsable de implementar el
+programa: Ministerio de Seguridad Pública
+Financiamiento: $475.000 (dólares)
+El apoyo de la Iniciativa Mérida ayudará a fortalecer la capacidad operativa de los actores en las instancias policiales y judiciales en toda Centroamérica, a través de capacitación en los puestos de trabajos, profesionalización de la policía y prevención contra las pandillas. Se ofrecerá capacitación en los puestos de trabajo en profesionalización policial para mandos medios, operaciones, seguridad del oficial, policía comunitaria, así como otros cursos. Esta capacitación complementará el curso de gerencia impartido por ILEA (Academia para el Cumplimiento de la Ley) e introducirá conceptos que se enseñan a los nuevos oficiales en las academias.
+(*)(Así adicionado el anterior proyecto por el artículo 1° del decreto ejecutivo N° 36061 del 13 de mayo de 2010, dicho proyecto será administrado por el Ministerio de Seguridad Pública)
+(*)Nombre del Proyecto: Desarrollo de destrezas en procesos
+penales
+Agencia del Gobierno de los
+Estados Unidos de América
+responsable de implementar
+el programa: Agencia de Asuntos Internacionales
+de Estupefacientes y Aplicación de la
+Ley (INL)
+Agencia del Gobierno de Costa Rica
+responsable de implementar el
+proyecto: Organismo de Investigación Judicial
+(OIJ)
+Financiamiento: $400.000 (dólares)
+Este programa mejorará la capacidad de los Tribunales de Justicia para garantizar las sentencias condenatorias y para proteger los derechos humanos. Se incrementará la transparencia y la rendición de cuentas de las instituciones del sector seguridad. Este programa tendrá un impacto significativo y positivo en la seguridad de la región centroamericana y de los Estados Unidos de América, al fortalecer la capacidad de las agencias de la aplicación de la Ley y su personal, para investigar y perseguir de manera eficaz los delitos violentos y la criminalidad organizada. Además impulsará la coordinación y cooperación entre las agencias que se desempeñan en la aplicación de la ley en cada país, a través de la región y con los Estados Unidos de América.
+La capacitación práctica incluirá la investigación y persecución de delitos financieros complejos, lavado de dinero, incautación de bienes y corrupción. Participarán representantes de todos los sectores de la justicia penal incluyendo jueces, policías y fiscales con el objetivo de incrementar la posibilidad de resultados sostenibles.
+(*)(Así adicionado el anterior proyecto por el artículo 1° del decreto ejecutivo N° 36061 del 13 de mayo de 2010, dicho proyecto será administrado por el Organismo de Investigación Judicial (OIJ))
 III.—METAS DE RENDIMIENTO Y MEDICIÓN DE LA EFECTIVIDAD
 Las metas del rendimiento general de los proyectos de la Iniciativa Mérida y sus medidas de efectividad se detallan en el Anexo 1 (Metas, Objetivos e Indicadores Estratégicos de la Iniciativa Mérida).
 Para proyectos específicos, las Partes acuerdan que el propósito de las metas de rendimiento y las medidas de efectividad es demostrar a sus respectivos ciudadanos que los recursos comprometidos, para los esfuerzos de cooperación descritos en esta Carta de Entendimiento (LOA), se están utilizando de manera eficiente. Para lograrlo, las Partes acuerdan establecer objetivos y medidas adecuadas para los proyectos cubiertos conforme a los términos de esta Carta de Entendimiento (LOA) e incorporar, en los casos que resulte apropiado, los objetivos y medidas descritas en la Iniciativa Mérida. Para el primer año de operación, cada uno de estos programas incluirá las siguientes medidas de desempeño.
@@ -110,6 +156,14 @@ Evaluación del Sistema Penitenciario completo.
 La meta del proyecto es la conducción de investigaciones financieras, disminuir el lavado de dinero procedente de actividades ilícitas, apoyar la apertura de procesos judiciales penales, dar soporte a los programas de confiscación/incautación de bienes y aumentar su efectividad, asegurar que la regulación, supervisión y capacitación del personal sea la adecuada para resguardar al sector financiero de malversación y abuso por parte de criminales.
 Para finales del año 2010, por lo menos 115 miembros del Gobierno de la República de Costa Rica serán capacitados en materia de lavado de dinero y confiscación de bienes. Los funcionarios capacitados abrirán 25 investigaciones ante el Ministerio Público. Para finales del año 2011, 15 investigaciones serán concluidas.
 (*)(Así adicionado por el artículo 1° del decreto ejecutivo N° 35596 del 13 de octubre de 2009)
+(*)Mejoramiento en la Inspección de Fronteras
+La meta del proyecto es el fortalecimiento de la seguridad fronteriza y la detección de contrabando a través de Centroamérica. Para finales del año 2010, al menos 50 oficiales del Gobierno de la República de Costa Rica serán capacitados en el manejo de equipo para detección de contrabando y drogas. Los oficiales que recibieron el curso aplicarán las técnicas y el equipo en la forma en que fueron capacitados, según lo determinen las pruebas al azar de su desempeño que realizarán sus supervisores.
+Mejoramiento de las capacidades
+La meta de este proyecto es fortalecer las capacidades de las Agencias para el cumplimiento de la ley en Costa Rica, por medio de la profesionalización de las fuerzas policiales y la capacitación en el lugar de trabajo. A finales del 2011, al menos 150 oficiales del Gobierno de Costa Rica habrán recibido la capacitación en profesionalización de policial. El desempeño será evaluado por medio de pruebas del curso, simulaciones y pruebas al azar que realizarán los supervisores.
+(*)(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 36061 del 13 de mayo de 2010, para el proyecto denominado "Políticas de mejoramiento para la inspección de fronteras", que será adiministrado por el Ministerio de Seguridad Pública)
+(*) Programa de desarrollo de destrezas en procesos penales
+El objetivo del proyecto es mejorar la capacidad de los Tribunales de Justicia para garantizar las sentencias condenatorias y la protección de los derechos humanos, mediante investigaciones y procesamientos eficaces de delitos violentos y del crimen organizado. Para finales del año 2010, al menos 115 funcionarios del Gobierno de la República de Costa Rica serán capacitados en materia de investigación y enjuiciamiento. Los funcionarios capacitados iniciarán 25 investigaciones en el Ministerio Público. Para finales del año 2011, se concluirán 15 investigaciones.
+(*)(Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 36061 del 13 de mayo de 2010, para el proyecto denominado "Desarrollo de destrezas en procesos penales", que será adiministrado por el Organismo de Investigación Judicial (OIJ))
 IV.—PLAN DE EVALUACIÓN
 Los representantes del Gobierno de los Estados Unidos de América y del Gobierno de la República de Costa Rica se reunirán cada tres meses para revisar el avance relacionado con el logro de las metas y objetivos del proyecto. El avance se evaluará de acuerdo con las medidas de éxito descritas anteriormente que son aplicables específicamente a Costa Rica. La información que debe tomarse en cuenta al realizar estas evaluaciones incluirá indicadores cualitativos y cuantitativos. Se preparará un informe de manera conjunta para resumir los resultados de estas evaluaciones, las cuales son adicionales a la supervisión actual de los programas y actividades realizada por personal relevante de ambos gobiernos.
 V.—CLÁUSULAS BÁSICAS
