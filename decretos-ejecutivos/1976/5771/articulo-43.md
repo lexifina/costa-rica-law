@@ -7,3 +7,5 @@ d) Asegurarse de que todos los servidores subalternos lleven al día y en la deb
 (El inciso anterior había sido reformado por el artículo 1° del decreto N° 10137 del 30 de mayo de 1979. Dicha modificación fue suspendida por decreto ejecutivo N° 10230 del 5 de mayo de 1979. Nótese que la fecha de la norma que suspende es anterior a la del decreto afectado. Por tanto, el texto vigente de este inciso es anterior a la modificación realizada por el artículo 1° del decreto N° 10137 del 30 de mayo de 1979.)
 e) Dictar las disposiciones necesarias para el trabajo de su departamento o sección y someterlas a la aprobación del respectivo jefe de dependencia; y
 f) Planear las labores y preparar los anteproyectos de presupuesto correspondiente, para someterlos a la aprobación de sus superiores jerárquicos.
+g) Analizar e implantar, de inmediato, las observaciones, recomendaciones y disposiciones formuladas por la auditoría interna, la Controlaría General de la República , la auditoría externa y las demás instituciones de control y fiscalización que correspondan.
+(Así adicionado el inciso anterior por el artículo 1º del decreto ejecutivo Nº 36028 del 13 de mayo de 2010)

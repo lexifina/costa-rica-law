@@ -18,3 +18,4 @@ Reglamento Autónomo de Servicios del Ministerio de Educación Pública
 | 3 | 1996-09-11 | Decreto Ejecutivo 25673 (1996-09-11) |
 | 4 | 1997-07-04 | Decreto Ejecutivo 26180 (1997-07-04) |
 | 5 | 2001-11-16 | Decreto Ejecutivo 29999 (2001-11-16) |
+| 6 | 2010-05-13 | Decreto Ejecutivo 36028 (2010-05-13) |
