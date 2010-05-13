@@ -1,0 +1,20 @@
+Artículo 6º—Director. El Director es el funcionario de mayor jerarquía dentro de la Dirección. Le corresponde planear, dirigir, organizar, coordinar, evaluar y supervisar el funcionamiento de la Dirección, bajo un enfoque de planeación estratégica, teniendo que realizar las siguientes funciones específicas:
+a. Planear, dirigir, organizar, supervisar y controlar las actividades propias de los procesos de investigación e inspección para prevenir y detectar delitos fiscales.
+b. Velar por el cumplimiento de la legislación vigente en materia de su competencia.
+c. Establecer y mantener la comunicación y la coordinación necesarias con las Dependencias competentes del Ministerio de Hacienda, Poder Judicial, fuerzas policiales y demás instituciones públicas o privadas, nacionales o internacionales, para su correcto funcionamiento.
+d. Establecer conjuntamente con el Viceministro de Ingresos, las políticas y directrices generales relativas al funcionamiento de la Policía de Control Fiscal.
+e. Analizar y determinar los casos en que de oficio o de acuerdo a los planes de la organización, este cuerpo policial realizará diligencias o efectuará investigaciones.
+f. Integrar los sistemas internos de información y coordinarlos con los sistemas de otras Dependencias para el análisis y el seguimiento de las investigaciones fiscales, así como para la definición de estrategias preventivas para combatir la delincuencia, determinar la posible comisión de actos ilícitos contra los intereses fiscales y la identificación de sus posibles autores.
+g. Emitir las directrices internas para la asignación, ejecución y control de los trabajos.
+h. Diseñar, conjuntamente con los Directores de Divisiones el plan anual operativo, el control y seguimiento de las necesidades de recursos materiales, financieros, tecnológicos y humanos, así como orientar la conducción de las acciones de los procesos, para el logro de las metas y de los objetivos establecidos.
+i. Diseñar y organizar la aplicación de medios, instrumentos metodológicos, sistemas de trabajo, que permitan acelerar los trámites y asegurar la prestación de los servicios a los usuarios en el momento oportuno.
+j. Evaluar la realización de las actividades de los Directores de Divisiones y velar por el cumplimiento de las directrices.
+k. Rendir los informes requeridos por los superiores jerarcas.
+l. Gestionar y promover proyectos de convenios con otros cuerpos policiales, tanto nacionales como internacionales, en materia de obtención de recursos, capacitación y transferencia de tecnología para la verificación, fiscalización y control de los ilícitos en la materia de su competencia.
+m. Comunicar oportunamente a los funcionarios de ésta Policía los procedimientos que se deben observar en las actuaciones que se lleven a cabo en procura de actuar conforme a los procedimientos legales.
+n. Representar a la Dirección y a la Subdirección en las diferentes comisiones que se integren en el Ministerio de Hacienda u otras instituciones internas o externas.
+o. Realizar otras funciones propias del cargo, así como aquellas previstas en la normativa vigente y ejecutar otras labores encomendadas por el superior jerárquico.
+p. Proponer las necesidades de capacitación de los funcionarios de la Policía de Control Fiscal al Centro de Investigación y Formación Hacendaria.
+q. Aprobar el Plan Estratégico y el Plan Anual Operativo (PAO) de la Policía de Control Fiscal, el cual es desarrollado por el Subdirector en coordinación con los Directores de Divisiones.
+r. Aprobar los Manuales de Procedimientos de la Policía de Control Fiscal, cuando estos sean modificados o bien cuando surja la necesidad de la creación de nuevos manuales.
+s. Acatar las recomendaciones hechas por la Auditoría Interna del Ministerio de Hacienda o cualquier otro ente de control, sea interno o externo a la institución, cuando sea necesario mejorar el control interno.

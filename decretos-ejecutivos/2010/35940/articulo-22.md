@@ -1,0 +1,1 @@
+Artículo 22.—Derogatorias. Deróguense los artículos del 1 al 16 del Decreto Ejecutivo Nº 29663-H de fecha 15 de mayo del 2001, denominado Reglamento de la Policía de Control Fiscal del Ministerio de Hacienda.
