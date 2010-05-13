@@ -1,1 +1,0 @@
-Artículo 5º—El SENASA, en asocio con el Servicio Fitosanitario del Estado (SFE), iniciarán el 4 de enero del 2010 el acondicionamiento de la sede del “Programa de Apoyo al Cumplimiento de Medidas Sanitarias y Fitosanitarias, CRIS/2007/019-740”.

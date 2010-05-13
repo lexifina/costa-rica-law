@@ -1,1 +1,0 @@
-Artículo 6º—El SENASA respetará las áreas ocupadas por otras instituciones, especialmente los laboratorios de suelos y forrajes del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA) que permanecerán bajo su administración y dirección.
