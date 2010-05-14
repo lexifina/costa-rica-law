@@ -1,0 +1,1 @@
+Artículo 2º—Nombrar como Representantes del Estado, ante el Consejo Nacional de Salarios a María Gabriela Sancho Carpio, cédula 1-865-419, como representante propietaria y a Joaquín Gerardo Villalobos Durán, cédula 2-259-118 como representante suplente.
