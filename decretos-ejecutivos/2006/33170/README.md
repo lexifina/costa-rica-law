@@ -14,3 +14,4 @@ Establece en el Ministerio de Seguridad Pública las clases de "Oficial Jefe de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-15 | la propia norma |
+| 2 | 2010-05-14 | Decreto Ejecutivo 36063 (2010-05-14) |
