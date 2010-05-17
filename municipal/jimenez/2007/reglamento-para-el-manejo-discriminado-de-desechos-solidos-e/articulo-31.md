@@ -1,1 +1,0 @@
-Artículo 31.—La entidad recolectora establecerá un horario de recolección para los diferentes sectores del Cantón, el cual será comunicado por escrito a cada usuario del servicio. Cualquier modificación permanente del horario de recolección deberá ser comunicada por escrito a los usuarios con ocho días naturales de anticipación.

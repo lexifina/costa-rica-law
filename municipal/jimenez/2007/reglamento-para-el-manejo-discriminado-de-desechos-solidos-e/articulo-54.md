@@ -1,1 +1,0 @@
-Artículo 54.—Los centros de acopio deben presentar condiciones, higiénicas y no provocar molestias por malos olores, mal aspecto a las personas que en ellos trabajan o ajenas al mismo. Además del cumplir con las normas de salud ocupacional establecidas por el Ministerio de Salud.

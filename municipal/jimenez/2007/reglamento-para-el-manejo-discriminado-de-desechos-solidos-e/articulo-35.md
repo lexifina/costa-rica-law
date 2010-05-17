@@ -1,1 +1,0 @@
-Artículo 35.—En caso que los desechos sean esparcidos en la vía pública , o municipal antes de ser recolectados, el generador de desecho o usuario del servicio de recolección, está en la obligación de recogerlos, empacarlos y depositarios nuevamente en un recipiente que cumpla con lo estipulado en los artículos 11°, 12°, 13°, 14° y 19° del presente reglamento.

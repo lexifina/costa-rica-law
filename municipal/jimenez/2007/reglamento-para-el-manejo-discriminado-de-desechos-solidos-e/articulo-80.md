@@ -1,1 +1,0 @@
-Artículo 80.—En aquellas propiedades en donde existan casas de habitación y negocios comerciales, se cobrarán por separado las tasas de recolección a cada generador, de acuerdo con la generación de desechos que se de, sea a nivel comercial o domiciliar.

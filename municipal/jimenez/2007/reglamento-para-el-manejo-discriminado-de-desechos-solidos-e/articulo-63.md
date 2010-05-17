@@ -1,1 +1,0 @@
-Artículo 63.—Se deberá presentar un estudio de impacto ambiental que cumpla con los requisitos dictaminados por la normativa ambiental nacional. Dicho estudio deberá ser aprobado por el Ministerio del Ambiente y Energía, Ministerio do Salud y por la Municipalidad de Jiménez, como requisito para poder otorgar el permiso de funcionamiento del depósito técnico.

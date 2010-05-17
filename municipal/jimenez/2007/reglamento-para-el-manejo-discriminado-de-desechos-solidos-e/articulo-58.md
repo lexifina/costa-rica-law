@@ -1,1 +1,0 @@
-Artículo 58.—En el depósito técnico se discriminarán los siguientes grupos: Escombros y cerámica (que se podrán negociar o material para drenajes y otros), empaques, compuestos por más de láminas de materiales, tierra, metales y plásticos.

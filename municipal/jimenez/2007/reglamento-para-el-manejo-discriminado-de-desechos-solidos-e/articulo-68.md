@@ -1,1 +1,0 @@
-Artículo 68.—La instancia asesora del Concejo Municipal en el establecimiento de políticas y lineamientos sobre el manejo de desechos sólidos será la Comisión de Asuntos Ambientales y el funcionario que la administración nombre para tal efecto.

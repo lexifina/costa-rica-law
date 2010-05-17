@@ -1,1 +1,0 @@
-Artículo 82.—La Municipalidad tendrá obligación de tener actualizada la contabilidad de costos de los servicios de recolección municipal de desechos sólidos, antes de solicitar una actualización de tasas de recolección. Esta contabilidad de costos deberá realizarse de acuerdo a las normativas de contabilidad generales aceptadas.

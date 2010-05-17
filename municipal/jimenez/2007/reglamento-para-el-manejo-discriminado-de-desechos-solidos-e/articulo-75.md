@@ -1,1 +1,0 @@
-Artículo 75.—La persona que se nombre como responsable del manejo discriminado de desechos sólidos de la entidad deberá haber aprobado un curso de capacitación de al menos 10 horas lectivas de una entidad autorizada por la Municipalidad para impartirlo y se le denominará responsable de la gestión de manejo discriminado de desechos sólidos.

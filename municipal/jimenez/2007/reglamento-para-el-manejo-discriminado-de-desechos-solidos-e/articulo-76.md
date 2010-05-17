@@ -1,1 +1,0 @@
-Artículo 76.—Las observaciones que la Municipalidad realice a toda institución con más de 10 empleados, serán dirigidas al responsable de la gestión de manejo discriminado de desechos sólidos con copia al jerarca de la institución y al jefe de la Unidad local del Ministerio de Salud.
