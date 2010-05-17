@@ -1,2 +1,2 @@
-Artículo 6º—Ningún pago por caja chica podrá exceder la suma de ¢60.000,00 (sesenta mil colones con cero céntimos).
-(Así reformado en sesión N° 193 del 18 de enero de 2010)
+Artículo 6º—Ningún pago por caja chica podrá exceder el 10% del límite de contratación directa (para obra pública).
+(Así reformado mediante acuerdo N° 1 tomado en sesión N° 3 del 17 de mayo de 2010)
