@@ -1,1 +1,0 @@
-Artículo 11.—Formularios. El sistema de información para el registro y control de bienes contará con los formularios correspondientes para tramitar las altas de bienes, asignación, reasignación, préstamo y baja de bienes.

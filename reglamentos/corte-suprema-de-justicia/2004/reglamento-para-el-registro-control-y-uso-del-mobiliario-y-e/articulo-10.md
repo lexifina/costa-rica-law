@@ -1,1 +1,0 @@
-Artículo 10.—Sistema Informático. El Departamento de Proveeduría utilizará un sistema de información para la administración y control del mobiliario y equipo de oficina. Todos los bienes deberán estar debidamente registrados y actualizados en este sistema.

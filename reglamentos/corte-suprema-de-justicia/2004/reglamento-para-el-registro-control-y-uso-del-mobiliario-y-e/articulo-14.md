@@ -1,1 +1,0 @@
-Artículo 14.—Control de entrega del mobiliario y equipo. El Proceso de Administración de Bienes del Departamento de Proveeduría, bajo ninguna circunstancia entregará mobiliario y equipo, sin el respectivo documento de despacho de mercadería y sin que esté debidamente patrimoniado.
