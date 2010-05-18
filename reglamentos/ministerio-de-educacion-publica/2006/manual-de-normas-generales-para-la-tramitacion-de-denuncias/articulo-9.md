@@ -1,1 +1,1 @@
-9º—Toda denuncia recibida será numerada consecutivamente, para dar cumplimiento a lo establecido en el artículo 15 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.
+Artículo 9º—Toda denuncia recibida será numerada consecutivamente, para dar cumplimiento a lo establecido en el artículo 15 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.

@@ -14,3 +14,4 @@ Manual de Normas Generales para la Tramitación de Denuncias presentadas en la A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-27 | la propia norma |
+| 2 | 2010-05-18 | Reglamento 0 (2010-05-18) |

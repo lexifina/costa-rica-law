@@ -1,4 +1,4 @@
-4º—La denuncia escrita contendrá:
+Artículo 4º—La denuncia escrita contendrá:
 a) Nombre y apellidos del denunciante, número de cédula de identidad, teléfono y lugar y medio para recibir notificaciones.
 b) Descripción de los hechos u omisiones denunciados, con indicación de las personas u órganos contra quienes se presenta cuando sea posible su identificación, los datos de los posibles afectados si los conoce, mención aproximada de la fecha y lugar en que sucedieron, así como de los elementos de prueba que tenga para sustentar la denuncia. Si se trata de prueba testimonial deberá indicar el nombre y dirección donde se localizarán los testigos, y los hechos a los que se referirán. En caso de conocer de la existencia de prueba documental y no poder aportarla deberá indicarse donde puede ser ubicada.
 c) El denunciante deberá indicar cuál es su pretensión en relación con el hecho denunciado.
