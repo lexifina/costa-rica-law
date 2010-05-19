@@ -14,3 +14,4 @@ Reglamento para las Funciones de la Unidad de Presupuesto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-05 | la propia norma |
+| 2 | 2010-05-19 | Reglamento 3639 (2010-05-19) |
