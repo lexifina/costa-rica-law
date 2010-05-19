@@ -1,0 +1,5 @@
+4. Políticas de uso del correo electrónico
+4.1. El servicio de correo electrónico institucional constituye un medio de comunicación formal, y los usuarios deberán maximizar su aprovechamiento.
+4.2. La información contenida en los correos electrónicos es privada y pertenece al usuario titular de la cuenta. Por lo tanto, nadie puede accederla, excepto la Administración, mediante el debido proceso u orden judicial.
+4.3. Se prohíbe la utilización del servicio de correo electrónico con fines comerciales, políticos, lucrativos, de entretenimiento, distribución de información no solicitada por el receptor del mensaje, propagación intencional de virus informáticos o cualquier otro que no sea estrictamente de asuntos laborales.
+4.4. El usuario deberá velar por el correcto uso del espacio asignado para él en el disco duro, manteniendo almacenados el número mínimo de mensajes posibles, para evitar su saturación. Si la aplicación local lo permite el usuario deberá copiar (“bajar”) al equipo personal los mensajes recibidos y borrarlos del servidor principal de correo. La administración de los mensajes ubicados en el computador personal es responsabilidad del usuario.

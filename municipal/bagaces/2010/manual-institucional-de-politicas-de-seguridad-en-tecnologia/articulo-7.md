@@ -1,0 +1,3 @@
+7. Políticas de seguridad en la administración y control ambiental del centro de cómputo
+7.1. El Departamento de TIC será el responsable de definir e implementar los controles relacionados con la administración, las condiciones de ambiente y el acceso físico al centro de cómputo y cuartos de comunicaciones (espacio destinado para ubicar los equipos de comunicaciones de la red institucional).
+7.2. Se deberán implementar las recomendaciones que resulten procedentes, según las prioridades y disponibilidad presupuestaria, relacionadas con el control ambiental del centro de cómputo (indicadas en el Anexo 3 de este documento).
