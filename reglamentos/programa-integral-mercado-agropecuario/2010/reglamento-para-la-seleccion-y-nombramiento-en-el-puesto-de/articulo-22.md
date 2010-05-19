@@ -1,0 +1,1 @@
+Artículo 22.—La precalificación. El cartel establecerá los sistemas de precalificación, para que aquellas personas que obtengan un porcentaje igual o superior a un 80% del total de los primeros tres rubros de la tabla anterior, puedan realizar la fase segunda o final, correspondiente a Prueba Psicodiagnóstica y Entrevista.

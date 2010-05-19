@@ -1,0 +1,1 @@
+Artículo 19.—Plazo adicional para completar ofertas. Se concederá un plazo de hasta cuatro días hábiles a partir de la fecha establecida para la recepción de ofertas, a los oferentes que, a requerimiento del Área de Recursos Humanos, deban aclarar aspectos contenidos en su solicitud.

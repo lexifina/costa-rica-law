@@ -1,0 +1,1 @@
+Artículo 23.—Aplicación de la entrevista. La entrevista será realizada por la Comisión Especial con el apoyo de Recursos Humanos. De lo cual dejarán referencia de ellas en el expediente administrativo elaborado al efecto.

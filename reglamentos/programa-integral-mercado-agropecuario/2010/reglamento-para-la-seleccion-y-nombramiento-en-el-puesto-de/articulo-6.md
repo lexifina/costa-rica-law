@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del perfil el puesto de Auditor o Auditora Interna
+Artículo 6º—Ética profesional. El Auditor o Auditora Interna deberán mantener elevados valores de conducta para ejercer la actividad de la auditoría interna, entre otros los de justicia, equidad, oportunidad, servicio, lealtad, objetividad, independencia, integridad, respeto y motivación para el aprendizaje y la mejora continua. Tales valores habrán de ponerse de manifiesto en sus actuaciones y prevenir cualquier posibilidad de duda en su gestión.
+Además, deberán actuar de conformidad con las leyes, reglamentos y las disposiciones que emita la Contraloría General de la República, entre otra normativa aplicable. En cuanto a las normas de la profesión de auditoría utilizarán supletoriamente las normas de auditoría acogidas por el Colegio de Contadores Públicos de Costa Rica y las normas para el ejercicio profesional de la auditoría interna acogidas por el Instituto de Auditores Internos de Costa Rica.

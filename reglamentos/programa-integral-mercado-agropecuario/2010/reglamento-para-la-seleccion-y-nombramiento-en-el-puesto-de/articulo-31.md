@@ -1,0 +1,1 @@
+Artículo 31.—Reconocimiento de tiempo laborado. En aquellos casos en que la persona que fue nombrada en forma interina en la clase en concurso se le nombra en propiedad; el período de interinidad se podrá tomar como parte del período de prueba en el tanto se mantenga en el ejercicio de las mismas funciones.

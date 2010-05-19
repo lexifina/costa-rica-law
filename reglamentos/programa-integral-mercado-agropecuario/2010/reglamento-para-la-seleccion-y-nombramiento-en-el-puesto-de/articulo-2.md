@@ -1,0 +1,1 @@
+Artículo 2º—Facultad de nombramiento. Compete a la Junta Directiva del PIMA nombrar por tiempo definido o indefinido al Auditor o Auditora Interna, bajo las normas establecidas en el presente Reglamento.
