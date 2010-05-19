@@ -1,0 +1,1 @@
+Artículo 10.—De la custodia del fondo de caja chica. El fondo de caja chica autorizado por el Concejo Municipal estará bajo la custodia del Tesorero o del funcionario que lo sustituya en sus ausencias.
