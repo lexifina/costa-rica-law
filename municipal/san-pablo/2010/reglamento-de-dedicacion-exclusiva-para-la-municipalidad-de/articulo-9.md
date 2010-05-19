@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad de San Pablo a través de la Auditoría Interna, verificará cuando lo considere necesario y conveniente, de conformidad con los procedimientos que al respecto establece, el fiel cumplimiento de todas las disposiciones de este Reglamento por parte del trabajador.

@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE SAN PABLO DE HEREDIA
+REGLAMENTO DE DEDICACIÓN EXCLUSIVA
+PARA LA MUNICIPALIDAD DE SAN PABLO
+CAPÍTULO I
+De las definiciones
+Artículo 1º—Se entenderá por dedicación exclusiva para efectos del presente reglamento, aquella obligación que adquiere el profesional en forma voluntaria y por vía contractual, permanente o durante el período que se contrate con la Municipalidad de San Pablo de Heredia, de no ejercer en forma particular o liberal la profesión por la cual está contratado, con las siguientes excepciones:
+a) Cuando se trate del ejercicio profesional relacionado con los asuntos personales, de los de su cónyuge o compañero(a) si convive en unión libre (comprobado esto último mediante declaración jurada otorgada ante notario público), ascendientes y descendientes hasta un tercer grado de consanguinidad, hermanos, suegros, yernos y cuñados, siempre y cuando la actividad emanada de dicho interés no conlleve propósitos de lucrar por parte del funcionario o de sus familiares aquí mencionados. Para acogerse a estas excepciones, el interesado deberá comunicarlo por escrito al jefe de la dependencia respectiva y solicitar, por el mismo medio la anuencia previa del Proceso de Recursos Humanos, señalando el tipo de trabajo que efectuará así como las fechas de inicio y finalización de la prestación del servicio y ubicación y esperar su respuesta.
+b) Cuando sea necesaria su colaboración al Estado en forma ad honorem, en la atención de desastres naturales, siempre que lo hagan a nombre y con el respaldo de la Institución para la cual laboran.
+Este régimen incluye la dedicación del profesional a su trabajo con la Municipalidad de San Pablo, en razón de tal Régimen, la Municipalidad se compromete a retribuir al profesional que se acoja a éste, el porcentaje adicional sobre el salario base mensual contemplado en los artículos siguientes:
