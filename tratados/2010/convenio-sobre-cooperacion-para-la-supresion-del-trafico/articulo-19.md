@@ -1,0 +1,6 @@
+ARTÍCULO 19 - PROGRAMAS POLICIALES DE COOPERACIÓN Y
+COORDINACIÓN MARÍTIMA PARA EL ÁREA DEL CARIBE
+1. Las Partes establecerán programas policiales de cooperación y coordinación marítima regional y subregional entre sus respectivas autoridades policiales. Cada una de las Partes designará un coordinador para organizar su participación y para identificar frente a las otras Partes a las embarcaciones, aeronaves y funcionarios policiales involucrados en el programa.
+2. Las Partes se esforzarán por llevar a cabo operaciones bilaterales, subregionales y regionales programadas, con el fin de ejercer los derechos y obligaciones derivados de este Convenio.
+3. Las Partes se comprometen a asignar personal calificado a los centros de coordinación regional y subregional, establecidos con el propósito de coordinar la detección, vigilancia y monitoreo de las embarcaciones y aeronaves e intercepción de embarcaciones que se dediquen al tráfico ilícito por y sobre el mar.
+4. Se insta a las Partes para que desarrollen procedimientos operacionales estandarizados para las operaciones policiales que se realicen conforme a este Convenio y para que, de ser apropiado, celebren consultas con otras Partes, con el fin de armonizar esos procedimientos operacionales estandarizados para realizar operaciones policiales conjuntas.

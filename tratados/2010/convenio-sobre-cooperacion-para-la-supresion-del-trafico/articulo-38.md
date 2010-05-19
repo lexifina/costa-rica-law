@@ -1,0 +1,2 @@
+ARTÍCULO 38 - DECLARACIONES Y MANIFESTACIONES
+El Artículo 37 no excluye la posibilidad de que un Estado, al firmar, ratificar, aceptar o aprobar el presente Convenio, haga declaraciones o manifestaciones, como quiera que se redacten o se denominen, con vistas, entre otras cosas, a armonizar sus leyes y regulaciones con las disposiciones del presente Convenio, siempre que tales declaraciones o manifestaciones no pretendan excluir o modificar el efecto legal de las disposiciones del presente Convenio en su aplicación al Estado en cuestión.

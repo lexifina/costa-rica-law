@@ -1,0 +1,2 @@
+ARTÍCULO 34 - ARREGLO DE CONTROVERSIAS
+Si entre dos o más Partes surgiera una cuestión o controversia relativa a la interpretación o aplicación del presente Convenio, las Partes celebrarán consultas con el fin de solucionar la controversia a través de negociaciones, investigaciones, mediación, conciliación, arbitraje, recurso a los cuerpos regionales, procesos judiciales o cualquier otro medio pacífico que puedan elegir.

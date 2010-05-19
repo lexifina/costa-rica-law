@@ -1,0 +1,3 @@
+ARTÍCULO 31 - RELACIÓN CON OTROS CONVENIOS
+1. Se insta a las Partes para que celebren entre ellas convenios bilaterales o multilaterales acerca de los asuntos tratados en el presente Convenio, con el propósito de confirmar o complementar sus disposiciones o de reforzar la aplicación de los principios expresados en el Artículo 17 de la Convención de 1988.
+2. Ninguna de las disposiciones del presente Convenio alterará o afectará de ninguna forma los derechos y obligaciones de una de las Partes, que se deriven de convenios que versen sobre el mismo tema y que estén en vigor entre la mencionada Parte y una o más de las otras Partes.

@@ -1,0 +1,4 @@
+ARTÍCULO 24 - JURISDICCIÓN SOBRE EMBARCACIONES
+Y PERSONAS DETENIDAS
+1. En todos los casos que se produzcan en las aguas de una de las Partes o que conciernan a embarcaciones bajo la bandera de una de las Partes, que se encuentren fuera del mar territorial de cualquier Estado, la Parte en cuestión tendrá jurisdicción sobre la embarcación detenida, la carga y las personas a bordo, incluyendo la incautación, confiscación, detención y el proceso judicial. Con sujeción a su Constitución y sus leyes, la Parte en cuestión podrá permitir el ejercicio de la jurisdicción por otro Estado, de acuerdo con el Derecho internacional y de conformidad con las condiciones que establezca el Estado que concede.
+2. Cada Parte garantizará el cumplimiento de sus obligaciones de notificación, de conformidad con la Convención de Viena sobre Relaciones Consulares.

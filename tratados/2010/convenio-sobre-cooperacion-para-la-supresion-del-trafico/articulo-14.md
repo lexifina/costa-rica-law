@@ -1,0 +1,3 @@
+ARTÍCULO 14 - OTRAS SITUACIONES
+1. Ninguna de las disposiciones comprendidas en el presente Convenio excluye la posibilidad de que cualquiera de las Partes autorice expresamente la realización de operaciones policiales, por cualquier otra Parte, para suprimir el tráfico ilícito en su territorio, aguas o espacio aéreo, o que impliquen embarcaciones o aeronaves sospechosas de tráfico ilícito que sean de su nacionalidad.
+2. Se animará a las Partes para que apliquen las disposiciones pertinentes de este Convenio, cuando la evidencia de tráfico ilícito sea presenciada por las embarcaciones y aeronaves policiales de las Partes.

@@ -1,0 +1,3 @@
+ARTÍCULO 8 - AUTORIDAD DE LOS FUNCIONARIOS POLICIALES
+1. Cuando los funcionarios policiales se encuentren dentro de las aguas o del territorio de otra Parte, o bien a bordo de una embarcación o aeronave policial de otra Parte, respetarán las leyes, las costumbres y las tradiciones navales y aéreas de esa otra Parte.
+2. Con el fin de llevar a cabo los objetivos del presente Convenio, cada una de las Partes faculta a sus funcionarios policiales y de aviación designados o a su autoridad nacional competente, si se ha notificado al Depositario, para que autoricen, según el presente Convenio, la entrada en sus aguas y espacio aéreo de las embarcaciones y aeronaves policiales y de las aeronaves que apoyen las operaciones policiales.

@@ -1,0 +1,2 @@
+ARTÍCULO 15 - AMPLIACIÓN A LAS AGUAS INTERIORES
+En el momento de la firma, ratificación, aceptación o aprobación del presente Convenio o en cualquier momento posterior, una Parte podrá notificar al Depositario que ha extendido la aplicación del presente Convenio a todas o parte de sus aguas interiores directamente adyacentes a su mar territorial o aguas achipielágicas, según sea especificado por dicha Parte.

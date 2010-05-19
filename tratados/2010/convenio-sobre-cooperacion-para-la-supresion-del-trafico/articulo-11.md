@@ -1,0 +1,6 @@
+OPERACIONES POLICIALES EN Y SOBRE AGUAS TERRITORIALES
+ARTÍCULO 11 - PRINCIPIOS GENERALES
+1. Las operaciones policiales destinadas a suprimir el tráfico ilícito en y sobre las aguas de una Parte estarán sujetas a la autoridad de esa Parte.
+2. Ninguna Parte llevará a cabo operación policial alguna para suprimir el tráfico ilícito en las aguas o el espacio aéreo de cualquier otra Parte si no cuenta con la autorización de la Parte en cuestión, concedida en virtud de este Convenio, o de conformidad con su ordenamiento jurídico interno. Las peticiones para efectuar ese tipo de operaciones se decidirán rápidamente. La autorización podrá estar sujeta a determinadas directrices y condiciones que deberán ser respetadas por la Parte que lleve a cabo las operaciones.
+3. Las operaciones policiales destinadas a suprimir el tráfico ilícito en y sobre las aguas de una Parte, las llevarán a cabo las autoridades policiales de esa Parte o se efectuarán bajo la dirección de esas autoridades policiales.
+4. Ninguna de las disposiciones de este Convenio será interpretada como una autorización para que una embarcación policial o una aeronave policial de una Parte patrulle de forma independiente dentro de las aguas o del espacio aéreo de otra Parte.
