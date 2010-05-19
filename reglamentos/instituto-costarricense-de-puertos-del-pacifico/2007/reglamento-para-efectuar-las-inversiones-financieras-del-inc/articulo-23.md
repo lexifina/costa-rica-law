@@ -1,1 +1,0 @@
-Artículo 23.—De la asistencia a las sesiones. La participación de los miembros del Comité forma parte de sus obligaciones ordinarias y se considera falta grave la inasistencia injustificada a las sesiones.
