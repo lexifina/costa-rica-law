@@ -14,3 +14,4 @@ Modifica para el Instituto Costarricense sobre Drogas (ICD) el gasto presupuesta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-26 | la propia norma |
+| 2 | 2010-05-20 | Decreto Ejecutivo 36030 (2010-05-20) |
