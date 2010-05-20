@@ -14,3 +14,10 @@ La calificación de cada aspecto de evaluación se obtiene mediante el siguiente
 4. Se suman los cuatro resultados determinados en el numeral anterior, resultando la puntuación del aspecto de evaluación. Dicha puntuación definirá la ubicación del aspecto de conformidad con lo que establece la tabla adjunta al artículo 16 de este acuerdo.
 (Consultar cuadros en Gaceta N° 15 de 22 de enero de 2003)
 (Así reformado mediante sesión N° 345 de 10 de diciembre de 2002)
+(Nota de Sinalevi: Mediante sesión N° 852 del 20 de mayo de 2010, se dispuso: "...XVI-Eliminar el inciso 7, del Aspecto “Planificación”, del Anexo 3 del Acuerdo SUGEF 27-00, y correr la numeración del siguiente inciso.".
+XVII.—Modificar el inciso 6, del Aspecto “Políticas y Procedimientos”, del Anexo 3 del Acuerdo SUGEF 27-00, de conformidad con el siguiente texto:
+“6. Existencia y cumplimiento de políticas, normas y procedimientos debidamente aprobados por la Junta Directiva o el Consejo de Administración o la Plana Gerencial.”.
+XVIII.—Modificar el inciso 5, del Aspecto “Administración del Personal”, del Anexo 3 del Acuerdo SUGEF 27-00, de conformidad con el siguiente texto:
+“5. Existencia, ejecución y cumplimiento de un programa permanente de capacitación del personal, que incluya entre los tópicos, temas relacionados con la identificación, medición, control y monitoreo de los riesgos.”)
+XIX.—Eliminar el inciso 17, del Aspecto “Sistemas de Control”, del Anexo 3 del Acuerdo SUGEF 27-00, y correr la numeración del siguiente inciso."
+XX.—Eliminar el inciso 6, del Aspecto “Sistemas de Información Gerencial (SIG)”, del Anexo 3 del Acuerdo SUGEF 27-00, y correr la numeración del siguiente inciso.”)

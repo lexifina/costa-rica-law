@@ -48,3 +48,7 @@ SENSIBILIDAD A RIESGOS DE MERCADO | | | | | | | | | |
 Riesgo por tasa de interés en colones | 25.0% | | | 5.00% | | 20.00% | | 35.00% | |
 Riesgo por tasa de interés en moneda extranjera | 25.0% | | | 5.00% | | 20.00% | | 35.00% | |
 Riesgo cambiario | 5 0.0% | | | 5 .00% | | 20.00% | | 35.00%) | |
+(Nota de Sinalevi: Mediante sesión N° 852 del 20 de mayo de 2010, se dispuso: "...XIV-Modificar la sección correspondiente a “Evaluación de Rendimientos” del Anexo 1 del Acuerdo SUGEF 27-00, de conformidad con el siguiente texto:
+Códi-go | Nombre del indicador | Ponderación 1/ | | Catego ría de riesgo | | Nivel Normal | | Nivel 1 | | Nivel 2 | | Nivel 3 | | Califica- ción
+EVALUACIÓN DE RENDIMIENTOS
+| Utilidad o Pérdida Acumulada Trimestral | 100.00% | | | | | Utilidades acumuladas trimestrales iguales o mayores al 0% | | Pérdidas acumuladas trimestrales iguales o menores al 5% del patrimonio promedio trimestral | | Pérdidas acumuladas trimestrales mayores al 5% pero iguales o menores al 15% del patrimonio promedio trimestral | | Pérdidas acumuladas trimestrales mayores al 15% del patrimonio promedio trimestral | 1.00
