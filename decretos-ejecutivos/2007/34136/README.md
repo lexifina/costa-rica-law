@@ -14,3 +14,4 @@ Reglamento de Procedimiento del Tribunal Ambiental Administrativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-05 | la propia norma |
+| 2 | 2010-05-20 | Decreto Ejecutivo 36035 (2010-05-20) |
