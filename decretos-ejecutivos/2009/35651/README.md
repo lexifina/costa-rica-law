@@ -14,3 +14,4 @@ Modifica para la Refinadora Costarricense de Petróleo Sociedad Anónima el gast
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-11 | la propia norma |
+| 2 | 2010-05-20 | Decreto Ejecutivo 36031 (2010-05-20) |
