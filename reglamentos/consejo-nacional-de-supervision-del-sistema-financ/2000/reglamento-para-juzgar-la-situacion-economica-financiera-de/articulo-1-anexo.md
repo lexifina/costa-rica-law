@@ -52,18 +52,11 @@ Gastos Administración / Utilidad Operacional Bruta 2/
 -- %
 100.00%
 -- %
+(*)EVALUACIÓN DE RENDIMIENTOS
+Códi-go | Nombre del indicador | Ponderación 1/ | | Categoría de riesgo | | Nivel Normal | | Nivel 1 | | Nivel 2 | | Nivel 3 | | Calificación
 EVALUACIÓN DE RENDIMIENTOS
-Rentabilidad s/ Activo Productivo Promedio (RAP) 2/
-50.0%
--- %
-0.00%
--- %
-Rentabilidad nominal s/ Patrimonio Promedio (RSP) 2/
-30.0%
--- %
-0.00%
--- %
-1.00
+| Utilidad o Pérdida Acumulada Trimestral | 100.00% | | | | | Utilidades acumuladas trimestrales iguales o mayores al 0% | | Pérdidas acumuladas trimestrales iguales o menores al 5% del patrimonio promedio trimestral | | Pérdidas acumuladas trimestrales mayores al 5% pero iguales o menores al 15% del patrimonio promedio trimestral | | Pérdidas acumuladas trimestrales mayores al 15% del patrimonio promedio trimestral | 1.00
+(*)(Así reformado en sesión N° 852 del 20 de mayo de 2010)
 LIQUIDEZ
 Calce de plazos a un mes ajustado por la volatilidad
 50.0%

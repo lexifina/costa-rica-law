@@ -31,3 +31,4 @@ Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fisc
 | 16 | 2008-12-19 | Reglamento 762 (2008-12-19) |
 | 17 | 2009-03-06 | Reglamento 777 (2009-03-06) |
 | 18 | 2009-03-27 | Reglamento 781 (2009-03-27) |
+| 19 | 2010-05-20 | Reglamento 852 (2010-05-20) |
