@@ -1,0 +1,28 @@
+Nº 35973-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Con fundamento en las facultades que les confieren los artículos 11, 140 incisos 3), 8), 18) y 20), y 146 de la Constitución Política; los artículos 11, 25, 27 y 28, párrafo 2, inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; la Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, Ley Nº 7064 del 29 de abril de 1987 y;
+Considerando:
+1º—Que el medio rural del país viene experimentando significativas transformaciones productivas de las cuales han sido partícipes un número importante de productores familiares, quedando excluidos de estos procesos otros pobladores rurales a los que se deben brindar los servicios requeridos para su integración en los procesos de desarrollo territorial.
+2º—Que esta situación provoca que prevalezcan importantes asimetrías en los índices de desarrollo económico y social en los territorios rurales y urbanos de esta sociedad.
+3º—Que las políticas económicas y productivas implementadas en el país han sido formuladas en los ámbitos nacional y sectorial, con limitada adecuación a las características particulares de los territorios rurales en desventaja.
+4º—Que en concordancia con las condiciones del país resulta fundamental contemplar el desarrollo de los territorios rurales como uno de los ejes de la planificación y de la acción institucional.
+5º—Que pese a los esfuerzos que se vienen llevando a cabo por impulsar la descentralización, prevalece aún una acción acentuadamente centralista por parte del Estado costarricense.
+6º—Que es necesario fortalecer la capacidad de gestión y el liderazgo de los gobiernos locales y las federaciones municipales en el impulso de los procesos de desarrollo territorial, en conjunto con las asociaciones de desarrollo, los representantes de la sociedad civil, el sector privado y otras entidades estatales.
+7º—Que las opciones de desarrollo de los territorios rurales no han permitido una mayor integración de los productores familiares a los procesos de exportación, ni la inclusión y la cohesión territorial requeridas para evitar la migración de la población a los diversos centros urbanos del país y al exterior.
+8º—Que se requiere desarrollar las capacidades de la población rural de tal manera que puedan aprovechar las oportunidades que se creen y propiciar el acceso a nuevas opciones productivas y su desarrollo socioeconómico.
+9º—Que se deben brindar respuestas integradas a las demandas y necesidades de la población rural, lo que hace imprescindible la articulación institucional alrededor del diseño, la ejecución y la evaluación de los planes de desarrollo territorial.
+10.—Que es necesario garantizar que las comunidades organizadas tengan el acceso y la participación para definir y conducir sus propios procesos de desarrollo.
+11.—Que los cambios vividos en el medio rural costarricense, en el contexto de la globalización, exigen impulsar acciones de apoyo para el avance de la innovación, competitividad y sostenibilidad.
+12.—Que el crecimiento de la inversión en el país no ha logrado generar suficientes encadenamientos con las actividades productivas de las comunidades rurales, de tal forma que permitan la integración horizontal y vertical de los procesos económicos y la incorporación de las comunidades en ellos.
+13.—Que no se han generado las condiciones institucionales y políticas requeridas para el desarrollo de capacidades y habilidades de gestión e interacción de los actores públicos y privados en los ámbitos regionales y locales.
+14.—Que dentro del desarrollo rural es necesario priorizar la generación de oportunidades y emprendimientos de la juventud y la mujer rural.
+15.—Que los pueblos y territorios indígenas requieren de un esfuerzo continuado para evitar que queden al margen de los procesos de desarrollo y de los beneficios que de éste se derivan.
+16.—Que los territorios rurales cumplen un papel estratégico en el conjunto del desarrollo de la sociedad con el suministro de servicios ambientales fundamentales y la generación de actividades productivas, agrícolas y no agrícolas, que brindan una significativa contribución a la economía nacional.
+17.—Que tomando en cuenta las significativas modificaciones sufridas por los diferentes territorios rurales del país, los cambios enfrentados en su entorno, la necesidad de hacer partícipes de las oportunidades a todos los habitantes de los espacios rurales, se aprueban las siguientes políticas de desarrollo territorial rural, fundamentadas en un conjunto de aspiraciones de mejoramiento por parte de la población rural, el fortalecimiento de la competitividad y la diversificación de las actividades económicas llevadas a cabo en el medio rural, en un marco de sostenibilidad ambiental y revitalización del sistema institucional.
+18.—Que el Instituto de Desarrollo Agrario forma parte del Sector Agropecuario cuyo Rector es el Ministro de Agricultura y Ganadería. Que el Instituto de Desarrollo Agrario se encuentra anuente a colaborar, dentro del ámbito de sus competencias, en el cumplimiento de los fines y objetivos del Sector Agropecuario en materia de desarrollo rural territorial. Por tanto,
+Decretan:
+APROBACIÓN DE POLÍTICAS DE DESARROLLO TERRITORIAL
+RURAL EN UN MARCO DE SOSTENIBILIDAD AMBIENTAL
+Y REVITALIZACIÓN DEL SISTEMA INSTITUCIONAL
+Artículo 1º—Se aprueban las siguientes “Políticas Públicas en Materia de Desarrollo Territorial Rural, en un Marco de Sostenibilidad Ambiental y Revitalización del Sistema Institucional, que deberán ser implementadas, de acuerdo con sus posibilidades, por la Administración Pública.
