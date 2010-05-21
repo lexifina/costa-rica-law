@@ -1,0 +1,2 @@
+Artículo 4º—Los prestatarios de estos servicios se comprometen a tener las pólizas vigentes de seguro correspondientes sobre las mercancías que trasladan, con el fin de que en caso de ocurrir algún imprevisto ya sea accidente, robo y otra causa, no se vean afectados los compradores adquirientes de estas mercancías.
+Este seguro debe cubrir la manipulación de estas mercancías dentro del Depósito Libre de Golfito por parte de los empleados de cada una de las empresas u organizaciones que presten estos servicios.

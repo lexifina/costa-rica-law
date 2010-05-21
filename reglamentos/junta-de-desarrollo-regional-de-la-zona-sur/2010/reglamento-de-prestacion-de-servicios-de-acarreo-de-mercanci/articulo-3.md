@@ -1,0 +1,3 @@
+CAPÍTULO III
+Obligaciones de los prestatarios de los servicios
+Artículo 3º—La prestación de este servicio de acarreo se establece para que las empresas u organizaciones debidamente adjudicadas por JUDESUR mediante un proceso licitatorio presten los servicios de acarreo de mercancías dentro de las instalaciones del Depósito y lo brinden para los compradores del Depósito, y que este servicio sea pronto, adecuado, eficiente, con tarifas razonables, debidamente aprobadas por JUDESUR en forma previa y el mejor trato para los compradores y se les garantice el traslado de estas mercancías, sin que bajo ninguna razón se cause un daño a estas.

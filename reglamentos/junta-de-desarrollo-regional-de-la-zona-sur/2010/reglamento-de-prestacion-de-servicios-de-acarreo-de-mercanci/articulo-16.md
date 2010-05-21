@@ -1,0 +1,3 @@
+Artículo 16.—Este contrato de concesión podrá ser rescindido por JUDESUR cuando el concesionario incumpla lo estipulado en el presente contrato y se demuestre que se está afectando la prestación de estos servicios para los compradores del Depósito, y asimismo cuando se produzca el atraso en más de diez días en el pago de una mensualidad del derecho de concesión para JUDESUR.
+Para estos efectos se aplicará lo dispuesto en la Ley de la Contratación Administrativa y su Reglamento, la Ley General de Administración Pública, la Ley Nº 7730 de Creación de JUDESUR y otras leyes que le fueren aplicables.
+Aprobado en la Sesión Ordinaria de JUDESUR Nº 537-2010, celebrada el 9 de abril del 2010. Acuerdo en firme por unanimidad. ACU-30-537-2010.

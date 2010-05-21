@@ -1,0 +1,1 @@
+Artículo 9º—Cada uno de los prestatarios de estos servicios se comprometen a mantener en condiciones óptimas de limpieza y dar el mantenimiento y conservación adecuada al equipo y herramientas que utilizan y asimismo aplicar las normas de cortesía y servicio para el desempeño de estas labores dentro del Depósito.

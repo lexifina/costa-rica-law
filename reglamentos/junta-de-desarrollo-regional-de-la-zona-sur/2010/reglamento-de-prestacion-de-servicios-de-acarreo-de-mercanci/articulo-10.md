@@ -1,0 +1,2 @@
+Artículo 10.—Las empresas u organizaciones adjudicadas deben mantener a todos sus empleados debidamente asegurados con una póliza de riesgos del trabajo, y mantener al día sus obligaciones con la Caja Costarricense del Seguro Social.
+Además deberán mantener vigentes y actualizadas las pólizas del Instituto Nacional de Seguros que protegen las diferentes mercancías que trasladan dentro del depósito y siendo que al faltar a este requisito provocaría la rescisión de a concesión otorgada, sin ninguna responsabilidad para JUDESUR.

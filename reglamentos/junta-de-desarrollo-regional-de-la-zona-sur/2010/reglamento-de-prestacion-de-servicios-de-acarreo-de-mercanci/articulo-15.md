@@ -1,0 +1,2 @@
+Artículo 15.—Cualquier situación no prevista en el presente Reglamento se regirá por lo establecido en la Ley de la Contratación Administrativa y su Reglamento, el decreto 30251 PH “Reglamento de Organización y Servicios de JUDESUR”, la Ley Nº 7730 y cualesquiera otras leyes que le fueren aplicables.
+Asimismo el presente Reglamento formará parte integral de los Contratos de Concesión que sobre estos servicios suscriba JUDESUR.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De las tarifas del servicio para los compradores
+Artículo 11.—Las tarifas que se establezcan para esta actividad serán aprobadas por la Junta Directiva de JUDESUR y serán las únicas que se podrán cobrar por la prestación de estos servicios para lo cual las empresas u organizaciones que lo brinden al amparo de los contratos con JUDESUR deberán ponerse de acuerdo y ninguna de estas unilateralmente podrá modificar el monto de esta tarifa, salvo que JUDESUR así lo haya autorizado por escrito, mediante solicitud por escrito que se haya presentado, la cual deberá venir suscrita por el representante legal de la empresa u organización o por el concesionario, que justifique el aumento de la tarifa y así lo considere JUDESUR.
+Lo anterior será conocido en el seno de la Junta Directiva de JUDESUR quien valorará la procedencia o no del incremento solicitado.

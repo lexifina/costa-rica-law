@@ -1,0 +1,6 @@
+Artículo 14.—JUDESUR mantendrá actualizado un Reglamento del Servicio de Acarreo de Mercancías para el Depósito Libre de Golfito, que garantice el otorgamiento de un buen servicio a los clientes del Depósito.
+CAPÍTULO VI
+Sobre el plazo y precio
+Artículo 14.—El derecho de Arriendo que se pagará mensualmente a JUDESUR por el otorgamiento de cada concesión tendrá una base de cincuenta mil colones mensuales y podrá ser modificada mediante acuerdo de la Junta Directiva de JUDESUR cuando las condiciones económicas y de prestación de estos servicios así lo exijan. El plazo será de cinco años y tendrá un incremento anual del 15% sobre el último pago mensual.
+Este pago debe efectuarse en las cuentas corrientes que al efecto le indique JUDESUR, o bien mediante pago en la Tesorería de JUDESUR, del cual se deja constancia o se expide un recibo, siendo que el precio corresponde única y exclusivamente por el derecho a la prestación de los servicios de acarreo de mercancías dentro del Depósito y para estos efectos se confeccionarán los contratos y los Addendum a los contratos correspondientes si se ameritara.
+(Nota de SInalevi: En la publicación de este reglamento, se consigna dos veces el numeral 14)
