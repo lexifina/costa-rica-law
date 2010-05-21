@@ -1,3 +1,0 @@
-Artículo 14.—La votación de los asuntos se hará en forma pública, salvo que el miembro que presida disponga lo contrario o se trate de asuntos que ameriten realizarla en forma privada.
-Una vez discutido el asunto, quien preside lo someterá a votación que será necesariamente negativa o positiva, y la cual será nominal si así se acuerda.
-Las abstenciones o discensiones no se computarán para efectos de determinar la mayoría o minoría, aunque los miembros podrán hacer constar en el acta los motivos de abstención o disensión, quedando en tal caso exento de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

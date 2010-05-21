@@ -1,2 +1,0 @@
-Artículo 12.—El quórum para que el Órgano esté válidamente integrado, lo conformará la asistencia de la mayoría absoluta de sus miembros.
-Si no hubiere quórum, el órgano podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la fecha señalada para la primera, salvo casos de urgencia en que podrá sesionar después de treinta minutos, para lo cual será suficiente la asistencia de la tercera parte de sus miembros.

@@ -1,1 +1,0 @@
-Artículo 15.—El Director deberá asistir a las sesiones del CETAC con voz pero sin voto. Además podrán asistir otros funcionarios de la Institución, previa aprobación del Órgano y quienes, en tal caso, tendrán voz pero no voto.

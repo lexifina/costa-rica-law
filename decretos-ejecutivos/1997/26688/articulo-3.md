@@ -1,2 +1,0 @@
-Artículo 3°—El CETAC estará dotado de espacio suficiente, equipo de oficina, personal profesional y secretarial y tendrá en forma permanente a su cuidado los archivos, libros y documentos propios, de los cuales será depositario y directamente responsable.
-La Secretaría será la encargada de comunicar los acuerdos del Consejo, una vez que hayan quedado firmes y estén suscritos por el Director General o en su defecto por quien lo sustituya y serán ejecutados por éste o por quien aquél designe.

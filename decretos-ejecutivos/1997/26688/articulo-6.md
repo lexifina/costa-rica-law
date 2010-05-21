@@ -1,1 +1,0 @@
-Artículo 6°—El Consejo elegirá de su seno un presidente que durará en el ejercicio de la titularidad del Órgano un año, pudiendo ser reelecto; así como un Vicepresidente, quien sustituirá al Presidente en su ausencia.

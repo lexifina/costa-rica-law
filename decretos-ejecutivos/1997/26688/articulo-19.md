@@ -1,1 +1,0 @@
-Artículo 19.—Las dietas de los Directores se regirán por las regulaciones establecidas para los miembros de Juntas Directivas de instituciones autónomas o semiautónomas y no podrán exceder de ocho sesiones al mes.
