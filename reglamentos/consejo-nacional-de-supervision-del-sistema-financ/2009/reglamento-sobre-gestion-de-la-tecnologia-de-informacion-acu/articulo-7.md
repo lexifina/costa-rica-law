@@ -1,4 +1,5 @@
-Artículo 7º—Comité de TI y funciones. Cada entidad debe designar un Comité de Tecnología de Información (Comité de TI), el cual debe contar con un reglamento interno de funcionamiento formalmente aprobado. Dicho comité de TI es una instancia asesora y de coordinación en temas de tecnología y su gestión.
+Artículo 7º—Comité de TI y funciones. Cada entidad debe designar un Comité de Tecnología de Información (Comité de TI), el cual debe contar con un reglamento interno de funcionamiento formalmente aprobado por su Junta Directiva o autoridad equivalente. Dicho comité de TI es una instancia asesora y de coordinación en temas de tecnología y su gestión.
+(Así reformado el párrafo anterior en sesión N° 853 del 21 de mayo de 2010)
 El comité responde a la Junta Directiva o autoridad equivalente y le corresponde entre otras funciones, las siguientes:
 a) Asesorar en la formulación del plan estratégico de TI.
 b) Proponer las políticas generales sobre TI.

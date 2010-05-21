@@ -1,7 +1,8 @@
 Artículo 3º—Definiciones. Para los propósitos de este reglamento se entiende como:
 a) Autenticación: Conjunto de técnicas y procedimientos utilizados para verificar la identidad y autorización de clientes.
 b) Autoridad equivalente: Órgano directivo equivalente a la Junta Directiva en sus funciones, según la naturaleza jurídica de la entidad; por ejemplo: Consejo de Administración para las cooperativas de ahorro y crédito y Directorio para las asociaciones mutualistas.
-c) Banca electrónica: Servicios bancarios suministrados a través de medios electrónicos.
+c) Banca electrónica: Servicios financieros suministrados a través de medios electrónicos. Comprende un conjunto de canales de comunicación compuestos por hardware y software, mediante los cuales, las personas físicas o jurídicas pueden acceder vía remota a una entidad financiera para obtener información o realizar operaciones financieras.
+(Así reformado el inciso anterior en sesión N° 853 del 21 de mayo de 2010)
 d) Cobit®: Marco de referencia de buenas prácticas para el control de TI. Acrónimo en inglés de Objetivos de Control para la Información y la Tecnología Relacionada, emitido por el IT Governance Institute®.
 e) Director: Cualquier persona física integrante de una junta directiva, de un consejo de administración o de cualquier otro órgano directivo equivalente en sus funciones a los dos primeros.
 f) Dominio: Cada una de las áreas lógicas del ciclo de gestión de TI, utilizadas por Cobit® para agrupar los procesos y objetivos de control. Los cuatro dominios son: Planear y Organizar (PO), Adquirir e Implementar (AI), Entregar y Dar Soporte (DS), y Monitorear y Evaluar (ME).

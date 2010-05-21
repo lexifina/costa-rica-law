@@ -1,12 +1,4 @@
-Artículo 21.—Tercerización de TI. La entidad puede contratar parte o la totalidad de sus procesos a proveedores locales o extranjeros de tecnologías de información.
-La entidad debe comunicar a la SUGEF dentro del mes siguiente al inicio de la relación con el proveedor, la siguiente información:
-a) Objetivos estratégicos y operativos que se persigue con la contratación.
-b) Alcance de las funciones, procesos, servicios, actividades o recursos contratados.
-c) Duración del contrato.
-d) Causales de rescisión, cuando hayan sido pactadas de manera expresa en el contrato.
-e) Nombre comercial del proveedor(es) del servicio, ubicación geográfica, tiempo de existencia, cédula jurídica o registro análogo según sea local o extranjero y nombre del representante legal.
-f) Acuerdo del nivel de servicio.
-g) Descripción del plan de contingencia y continuidad de operación, para los servicios contratos relacionados con el procesamiento de información y desarrollo de sistemas.
-h) Nombre de los encargados de operación y control.
-La entidad, mediante declaración jurada, emitida por su representante legal, en los primeros diez días hábiles del mes de junio de cada año, actualizará la información suministrada a la SUGEF. En el caso de que el proveedor del servicio sea una entidad supervisada, la entidad deberá adjuntar una certificación expedida por el organismo supervisor, en la que se indique que tiene conocimiento de prestación de este tipo de servicios y especificar si las mismas son sujetas de revisión.
-La contratación a que se refiere este artículo no exime a la entidad de su responsabilidad de mantener, a disposición de la SUGEF, las bases de datos, que ésta requiera, en razón de las revisiones que deba realizar en virtud de su competencia.
+Artículo 21. Tercerización de TI
+La entidad que contrate parte o la totalidad de uno o varios procesos o servicios de TI, relacionados con el procesamiento y almacenamiento de datos, independientemente del lugar en donde se lleven a cabo esas actividades, debe mantener las bases de datos actualizadas y las aplicaciones vigentes físicamente en el territorio nacional, accesibles por la SUGEF sin ningún tipo de restricción o condición.
+La entidad supervisada es responsable de suministrar la información que le sea requerida por la SUGEF y proveer las facilidades para la ejecución de actividades de supervisión, indistintamente de que los procesos o servicios sean provistos por ella misma, otra empresa del grupo o conglomerado financiero o por un proveedor externo, o que sean llevados a cabo dentro o fuera del territorio costarricense.
+(Así reformado en sesión N° 853 del 21 de mayo de 2010)
