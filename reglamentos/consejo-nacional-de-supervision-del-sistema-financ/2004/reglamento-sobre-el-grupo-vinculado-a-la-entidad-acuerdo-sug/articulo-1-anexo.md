@@ -13,6 +13,7 @@ a. Para el cálculo del capital ajustado en entidades reguladas por la SUGEF, ex
 341 | Reserva Legal
 350 | Resultados Acumulados de ejercicios anteriores (Cuando su saldo sea deudor, o hasta el monto de la cuenta 351.02 “Utilidades de ejercicios anteriores afectadas para capitalizar”, cuando su saldo sea acreedor).
 360 | Resultado del Periodo, solo cuando su saldo sea deudor (1) (1) Cuenta utilizada por entidades que llevan a cabo un cierre contable semestral.
+(*) 380 | CLASE PATRIMONIO GRUPO CÓDIGO 380 NOMBRE: PATRIMONIO DEL FONDO DE FINANCIAMIENTO PARA EL DESARROLLO Concepto: En este grupo se registran los rubros que conforman el patrimonio del Fondo de Financiamiento para el Desarrollo ( FFD ), de conformidad con lo dispuesto en el artículo 32 de la Ley 8634 “Ley Sistema de Banca para el Desarrollo. (*) (Así adicionada la cuenta anterior por el aparte VI. de la sesión N° 853 del 21 de mayo de 2010)
 500 – 400 | Resultado de las cuentas 500 “Ingresos” menos las 400 “Gastos”; cuando el resultado sea negativo
 b. Para el cálculo del capital ajustado en mutuales de ahorro y préstamo
 323 | Donaciones y otras contribuciones no capitalizables
@@ -42,4 +43,5 @@ c. Para el cálculo del capital ajustado en el grupo y conglomerado financiero c
 360 | Resultado del Periodo, solo cuando su saldo sea deudor (1) (1) Cuenta utilizada por entidades que llevan a cabo un cierre contable semestral.
 500 – 400 | Resultado de las cuentas 500 “Ingresos” menos las 400 “Gastos”; cuando el resultado sea negativo
 370 | Interés Minoritario (2) (2) Únicamente la porción del interés minoritario que se origina en partidas patrimoniales de naturaleza similar a las indicadas en la sección A de este anexo, correspondientes a las empresas integrantes del grupo o conglomerado financiero en las cuales su entidad controladora participa en menos de un 100% en su capital social.
+(*) 380 | CLASE PATRIMONIO GRUPO CÓDIGO 380 NOMBRE: PATRIMONIO DEL FONDO DE FINANCIAMIENTO PARA EL DESARROLLO Concepto: En este grupo se registran los rubros que conforman el patrimonio del Fondo de Financiamiento para el Desarrollo ( FFD ), de conformidad con lo dispuesto en el artículo 32 de la Ley 8634 “Ley Sistema de Banca para el Desarrollo. (*) (Así adicionada la cuenta anterior por el aparte VI. de la sesión N° 853 del 21 de mayo de 2010)
 (Así reformado mediante sesión N° 690 del 10 de diciembre de 2007)
