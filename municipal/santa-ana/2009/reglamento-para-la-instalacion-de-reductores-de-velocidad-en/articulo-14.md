@@ -1,0 +1,1 @@
+Artículo 14.—Los reductores de velocidad construidos por las comunidades o entidades públicas o privadas pasarán a formar parte como propiedad del gobierno local, bajo custodia de la Municipalidad de Santa Ana.

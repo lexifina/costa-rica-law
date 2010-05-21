@@ -1,0 +1,3 @@
+Artículo 5º—La Unidad Técnica de Gestión Vial calificara la solicitud con el fin de determinar si tomando en cuenta los datos en aquella consignados y de acuerdo con el estudio técnico llevado a cabo, puede otorgarse el permiso para la construcción del reductor de velocidad bajo los lineamientos correspondientes, caso de que terceras personas ofrecieran su instalación.
+Si razones de orden técnico imposibilitaran el otorgamiento del permiso o autorización respectiva, la Unidad Técnica de Gestión Vial lo notificará por escrito al interesado.
+En el caso de que se autorice la construcción, la Unidad Técnica de Gestión Vial, velará por que se cumplan cabalmente los criterios que dispone este Reglamento.
