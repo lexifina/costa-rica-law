@@ -50,4 +50,5 @@ En caso de instrumentos redimibles en tractos, cada tracto debe ser tratado como
 Pueden formar parte de los instrumentos indicados en este inciso, la deuda subordinada convertible en acciones comunes o en acciones preferentes no acumulativas, en cuyo caso, además de los requisitos establecidos, los términos y condiciones del instrumento y el prospecto, si lo hubiere, deben establecer la fórmula de convertibilidad o repago hacia acciones comunes o acciones preferentes no acumulativas.
 Los instrumentos de deuda subordinada a que se refiere este inciso, serán computables dentro del capital secundario de la entidad como máximo hasta un 50% del monto del capital primario.
 (Así reformado el inciso k) anterior en sesión N° 851 del 13 de mayo de 2010)
-l) (Derogado en sesión N° 851 del 13 de mayo de 2010)
+l) El patrimonio del Fondo de Financiamiento para el Desarrollo constituido por cada banco público, de conformidad con lo dispuesto en el artículo 32 de la Ley 8634 "Ley del Sistema de Banca para el Desarrollo.
+(Así adicionado el inciso anterior en sesión N° 853 del 21 de mayo de 2010. Anteriormente este inciso había sido derogado en sesión N° 851 del 13 de mayo de 2010)
