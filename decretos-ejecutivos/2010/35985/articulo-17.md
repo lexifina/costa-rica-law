@@ -1,0 +1,2 @@
+Artículo 17.—Modifíquese el artículo 8º del Decreto Ejecutivo Nº 35448-MOPT “Reglamento para participar en la Licitación Pública tendiente a concesionar 1034 placas para transporte público en modalidad Taxi, con vehículos adaptados para personas con discapacidad” para que en adelante se lea así:
+Artículo 8º—Tabla de evaluación de ofertas. Las ofertas serán evaluadas de conformidad con el artículo 33 de la Ley Nº 7969 “Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en la Modalidad de Taxi”.

@@ -1,0 +1,5 @@
+Artículo 11.—Requisitos subjetivos de los oferentes. El transporte remunerado de personas en la modalidad de taxi en esta base de operación especial, únicamente podrá ser explotado por personas físicas que reúnan los siguientes requisitos:
+a) Acreditar, mediante la certificación respectiva, las condiciones de capacitación para conducir los vehículos del transporte remunerado de personas en la modalidad de taxi.
+b) Verificar la idoneidad para prestar el servicio de taxi con la constatación en el Consejo de Seguridad Vial de que posee la licencia C-1, conforme a la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 y el código de conductor.
+c) Comprometerse, mediante declaración jurada rendida ante notario público, a conducir personalmente, al menos durante una jornada de ocho horas diarias, el vehículo amparado por la concesión.
+d) Presentar declaración jurada de que no ha cedido contratos de concesión o permisos para el transporte remunerado de personas en la modalidad de taxi, durante los diez años previos al otorgamiento de la concesión.

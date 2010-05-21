@@ -1,0 +1,23 @@
+CAPÍTULO IV
+Derechos y obligaciones de los concesionarios
+Artículo 12.—Obligaciones de los concesionarios. Dentro de las obligaciones de los concesionarios de la base de operación especial del Aeropuerto Internacional Juan Santamaría se encuentran las siguientes:
+a) Plazo de formalización: Notificado formalmente el acto de adjudicación de la concesión del servicio de taxi, el concesionario cuenta con un plazo de 90 días hábiles para formalizar el contrato de concesión. Las causas de terminación del contrato de concesión serán aquellas que se encuentren establecidas en el artículo 40 de la Ley 7969 y en el mismo contrato.
+b) Prestar el servicio bajo los principios del servicio público, para asegurar su continuidad, eficiencia y adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen, seguridad y uniformidad en igualdad de condiciones de los usuarios.
+c) Tomar las medidas necesarias para que los choferes brinden un trato respetuoso y cortés a los usuarios y que su presentación personal sea la adecuada. Asimismo, adoptar las medidas para que en la prestación del servicio se garantice la seguridad y comodidad de los usuarios.
+d) A mantener vigente durante todo el período de la concesión, la póliza de seguros que cubra íntegramente su responsabilidad civil por lesión o muerte de terceros y por daños a la propiedad de terceros.
+e) Cumplir con la normativa vigente que regula la materia en cuanto a la circulación del vehículo de servicio público, a mantener la revisión técnica, pólizas de seguro, y derechos de circulación al día, requisitos respecto al color, los distintivos internos y externos, características de seguridad, taxímetro, y régimen tarifario establecido.
+f) Mantener la unidad autorizada en óptimas condiciones de funcionamiento y estado de limpieza, corrigiendo las deficiencias mecánicas y estructurales en el momento oportuno.
+g) Mantener la licencia C1- vigente, placa de identificación, así como la de los conductores inscritos en la autorización operacional, además utilizar el uniforme de rigor, y a velar por su capacitación técnica pertinentes para los prestatarios del servicio, procurando mejorar su condición personal y las operativas del servicio.
+h) A utilizar el taxímetro como instrumento de cuantificación de la tarifa a pagar por el usuario por el servicio, cobrando únicamente la tarifa autorizada por la Autoridad Reguladora de los Servicios Públicos. Así mismo deberá acatar cualquier modificación que se disponga en los sistemas de cálculo tarifario, originadas en cambios organizativos del transporte cuyo objeto es buscar mayor eficiencia en beneficio del usuario y del sector en general, en los términos establecidos por la Ley Nº 7593.
+i) A conducir personalmente, al menos una jornada de ocho horas diarias, el vehículo amparado a esta concesión, con las excepciones que procedan.
+j) A utilizar el taxímetro como único sistema de cobro. Cuando el taxímetro no se encuentre en buenas condiciones, el operador deberá sacar de circulación la unidad vehicular y reparar tal dispositivo al menor plazo posible.
+k) A activar el dispositivo del taxímetro; cada vez que se solicite un servicio nuevo y una vez que el usuario se encuentre dentro del vehículo.
+1) A sufragar los costos de compra, instalación, programación, calibración, mantenimiento y las eventuales reparaciones del taxímetro, el cual además deberá cumplir con las condiciones técnicas, establecidas por los medios legales pertinentes.
+m) A dar cumplimiento a las obligaciones a su cargo que se desprenden de la legislación fiscal y laboral en vigencia, conforme con los artículos 6 y 30 de la Ley 7593 y al artículo 40 de la Ley 7969.
+n) A comunicar la suspensión del servicio en caso de reparación del vehículo, informando el plazo aproximado de su reparación.
+o) Cancelar el canon de regulación a favor del Consejo de Transporte Público dentro de los plazos y formas establecidas para tal fin.
+p) Mantener una actitud cortés y educada frente a los usuarios y demás conductores y peatones, en términos de buenos modales y sentido común.
+q) El conductor deberá durante la prestación del servicio vestir el uniforme que se establece en el inciso c) del artículo 13 del Decreto Ejecutivo 28913-MOPT.
+r) Respetar y cumplir la normativa vigente sobre características de taxis en lo que aplique.
+s) El concesionario deberá respetar en todo momento la base de operación especial que le sea adjudicada, no se permitirá cambio de base de operación especial salvo que se trate de una permuta.
+t) Las demás que se deriven de la Ley Nº 7969 y normativa complementaria que sea de aplicación a la materia.

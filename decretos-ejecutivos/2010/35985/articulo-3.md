@@ -1,0 +1,1 @@
+Artículo 3º—De la recepción de ofertas. Los participantes del presente procedimiento contarán con un plazo de un mes calendario para presentar sus ofertas, siendo que en la publicación referida en el artículo 1 se establecerá además, la fecha, horario y lugar para la presentación de las ofertas.
