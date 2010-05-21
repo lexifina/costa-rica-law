@@ -6,8 +6,7 @@ Nota. Información general
 La entidad debe revelar la siguiente información:
 i. Domicilio y forma legal.
 ii. País de constitución.
-iii. Naturaleza de las operaciones y sus actividades
-principales.
+iii. Naturaleza de las operaciones y sus actividades principales.
 iv. Nombre de la empresa controladora, siempre y cuando pertenezca a un grupo o conglomerado financiero.v. Número de sucursales y agencias.
 vi. Número de cajeros automáticos bajo su control.
 vii. Dirección del sitio Web.
@@ -83,3 +82,14 @@ Presentar cuadro de calces de plazos para activos y pasivos en moneda extranjera
 4. Notas sobre partidas extra balance, contingencias, otras cuentas de orden y otra información adicional que no se presenta en el cuerpo principal de los estados financieros necesaria para la presentación razonable.
 Nota: Fideicomisos y comisiones de confianza
 Revelar mediante esta nota a los estados financieros el valor contable, naturaleza de los fideicomisos y comisiones de confianza administrados por la entidad, identificando los activos en los cuales se encuentran invertidos los capitales fideicometidos o administrados.
+5. Nota sobre situación del Fondo de Financiamiento para el Desarrollo creado mediante Ley 8634 “Ley Sistema de Banca para el Desarrollo”.
+Los bancos que administren Fondos de Financiamiento para el Desarrollo ( FFD ) deben incluir un balance de situación y un estado de resultados de este fondo. El Balance de situación deberá reflejar los activos relevantes asociados a la administración de los recursos del Fondo, según correspondan a disponibilidades, inversiones, créditos, bienes realizables y otros activos. Asimismo, deberán identificarse los diferentes rubros que conforman el patrimonio del Fondo, de acuerdo con la Ley.
+Se debe separar el activo entre moneda nacional y extranjera e incluir un informe del estado de la morosidad y de la cartera, clasificada de conformidad con los criterios que establece el Acuerdo SUGEF 1-05.
+El estado de resultados del FFD debe mostrar el rendimiento financiero, los gastos de operación, los gastos por estimaciones y cualquier otro rubro asociado a la administración de los recursos del Fondo.
+(Así adicionada la nota anterior por el aparte III de la sesión N° 853 del 21 de mayo de 2010)
+6. Nota sobre situación del Fondo de Crédito para el Desarrollo creado mediante Ley 8634 “Ley Sistema de Banca para el Desarrollo”.
+El banco administrador del Fondo de Crédito para el Desarrollo (FCD) creado mediante Ley 8634 “Ley Sistema de Banca para el Desarrollo”, deberá revelar el alcance del contrato para la administración del Fondo de Crédito para el Desarrollo, el plazo que resta para la finalización del contrato y los riesgos que asume en calidad de entidad administradora.
+Asimismo, deberá incluir un balance de situación y un estado de resultados de este fondo. El Balance de situación deberá reflejar los activos relevantes asociados a la administración de los recursos del Fondo, según correspondan a disponibilidades, inversiones, créditos, bienes realizables y otros activos. El pasivo deberá reflejar la obligación del banco administrador con los bancos privados.
+Se debe separar el activo y el pasivo entre moneda nacional y extranjera e incluir un informe del estado de la morosidad y de la cartera, clasificada de conformidad con los criterios que establece el Acuerdo SUGEF 1-05.
+El estado de resultados del FCD debe mostrar los rubros de ingresos, gastos y costos que reflejen claramente el desempeño del FCD, así como el suficiente detalle para verificar el cálculo del monto que debe ser trasladado al FINADE conforme a la Ley.
+(Así adicionada la nota anterior por el aparte III de la sesión N° 853 del 21 de mayo de 2010)
