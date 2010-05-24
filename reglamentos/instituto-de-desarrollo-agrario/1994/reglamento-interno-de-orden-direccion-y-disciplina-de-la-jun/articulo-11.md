@@ -1,2 +1,2 @@
 Artículo 11.—Si a los quince minutos después de la hora fijada para iniciar una sesión no hubiere quórum, ésta se pospondrá hasta la siguiente fecha.
-La Secretaría tomará la nómina de los Directores presentes a fin de que sea acreditada su presencia para los fines del pago de dietas.
+(El párrafo segundo original fue derogado por acuerdo N° 55 de la sesión N° 019 del 24 de mayo de 2010)
