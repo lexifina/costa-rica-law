@@ -14,3 +14,4 @@ Traspaso en Propiedad Fiduciaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-29 | la propia norma |
+| 2 | 2010-05-24 | Directriz 6 (2010-05-24) |
