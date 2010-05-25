@@ -1,0 +1,16 @@
+CAPÍTULO III
+De las atribuciones y responsabilidades
+Artículo 6º—Para los efectos del presente Reglamento la Unidad Administrativo Financiera del ICD tendrá las siguientes atribuciones y responsabilidades.
+a) Preparar los documentos presupuestarios que sean necesarios para dar cumplimiento a los objetivos y metas o cubrir las necesidades instituciones, que serán presentados en primera instancia a la Dirección General para su revisión.
+b) Asignar numeración consecutiva a las variaciones presupuestarias (modificaciones y presupuestos extraordinarios), de conformidad con lo establecido en el “Reglamento sobre variaciones al presupuesto de los Entes y Órganos Públicos, Municipalidades y Entidades de carácter Municipal, Fideicomisos y Sujetos Privados”.
+c) Remitir los documentos presupuestarios que correspondan a la Presidencia del Consejo Directivo, para que estos sean posteriormente analizados y aprobados o improbados por el Consejo Directivo del ICD.
+d) Remitir los documentos presupuestarios que correspondan a la Dirección General del ICD, para que estos sean analizados y aprobados o improbados por ese órgano.
+e) Verificar que el documento elaborado cumpla con el bloque de legalidad del presupuesto.
+f) Preparar la Guía Interna de Verificación de Requisitos que Deben Cumplirse en Relación con el Presupuesto de los Órganos, Unidades Ejecutoras, Fondos, Programas y Cuentas que están Exentos de la Presentación de sus Presupuestos a la Aprobación de la Contraloría General, cuando así corresponda.
+g) Remitir a la oficina de Planificación Institucional el documento presupuestario para que esta revise y realice los ajustes que correspondan en el Plan Operativo Institucional (POI).
+h) Remitir al Presidente del Consejo Directivo la respectiva Certificación de Verificación de Requisitos del Bloque de Legalidad que Deben Cumplir los Presupuestos de los Órganos, Unidades Ejecutoras, Fondos, Programas y Cuentas que están Exentos de la Presentación de sus Presupuestos a la Aprobación de la Contraloría General, junto con una copia de la Guía indicada en el inciso e.- del presente artículo, cuando así corresponda.
+i) Registrar los ajustes presupuestarios aprobados, en los sistemas que disponga la entidad y organismos fiscalizadores, para llevar el control del presupuesto.
+j) Incluir en el Informe de Ejecución Presupuestaria que trimestralmente se presenta al Consejo Directivo, el consolidado de variaciones presupuestarias tramitadas por el ICD y aprobadas, por el ente u órgano competente.
+k) Registrar en el Sistema de Información sobre Presupuestos Públicos (SIPP) de la Contraloría General de la República, las variaciones presupuestarias aprobadas.
+l) Archivar y custodiar todos los documentos presupuestarios aprobados (modificaciones y presupuestos extraordinarios), con sus respectivos justificantes, aprobaciones de la Dirección General, acuerdos de Consejo Directivo o aprobaciones de la Contraloría General de la República, según corresponda.
+m) Remitir a la Secretaría Técnica de la Autoridad Presupuestaria (STAP) las modificaciones presupuestarias y presupuestos extraordinarios que corresponda, debidamente aprobados, para que se verifique el cumplimiento del límite de gasto presupuestario.

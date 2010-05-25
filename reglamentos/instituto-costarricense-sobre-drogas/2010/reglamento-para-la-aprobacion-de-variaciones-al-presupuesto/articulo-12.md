@@ -1,0 +1,3 @@
+Artículo 12.—Serán obligaciones del Consejo Directivo:
+a) Dejar constancia mediante el acuerdo respectivo, de las aprobaciones o improbaciones que realicen de los documentos presupuestarios que se les presente.
+b) Verificar el debido cumplimiento de la normativa técnica y el bloque de legalidad vigente, para lo cual delegará en el Presidente del Consejo la revisión y firma de la Certificación de Verificación de Requisitos del Bloque de Legalidad que Deben Cumplir los Planes-Presupuestos de los Órganos, Unidades Ejecutoras, Fondos, Programas y Cuentas que están Exentos de la Presentación de sus Presupuestos a la Aprobación de la Contraloría General.

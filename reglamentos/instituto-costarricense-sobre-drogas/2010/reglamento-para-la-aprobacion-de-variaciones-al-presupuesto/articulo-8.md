@@ -1,0 +1,1 @@
+Artículo 8º—Será responsabilidad de las Unidades Institucionales, remitir a la Unidad Administrativo Financiera todos los documentos que esta requiera para justificar las variaciones presupuestarias que se deberán realizar, para dar cumplimiento a las solicitudes que efectúen.

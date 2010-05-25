@@ -1,0 +1,1 @@
+Artículo 11.—Corresponderá al Consejo Directivo del ICD, aprobar aquellas modificaciones presupuestarias que se realicen entre grupos y partidas, y todos los presupuestos extraordinarios que se elaboren.
