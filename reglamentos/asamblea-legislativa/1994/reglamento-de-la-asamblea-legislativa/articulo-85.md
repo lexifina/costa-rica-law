@@ -1,5 +1,6 @@
-Artículo 85.—Atribuciones. Las comisiones de Honores, Redacción, Relaciones Internacionales y de Comercio Exterior, de la Mujer, de la Juventud, de Nombramientos, de Ambiente y deTurismo, tendrán a su cargo:
-(Así reformado el párrafo anterior mediante sesión N°13 del 18 de mayo del 2006).
+Artículo 85.—Atribuciones
+Las comisiones de Honores, Municipalidades y Desarrollo Local Participativo Redacción, Relaciones Internacionales y Comercio Exterior, de la Mujer, de la Juventud, Niñez y Adolescencia, de Nombramientos de Ambiente, de Turismo y Comisión de Derechos Humanos y Comisión de Ciencia, Tecnología y Educación tendrán a su cargo: (Modificado mediante Acuerdos N° 6293, de 22 de mayo de 2006 y N° 6359, de 28 de febrero de 2008).
+(Así reformado el párrafo anterior mediante sesión N°17 del 25 de mayo del 2010).
 a) Comisión de Honores:
 Los asuntos indicados en el artículo 195 de este Reglamento.
 b) Comisión de Asuntos Municipales y Desarrollo Local Participativo:
@@ -36,3 +37,7 @@ i) Comisión de Turismo:
 2. Impulsará y presentará la legislación necesaria para remover los obstáculos y promover los estímulos necesarios.
 3. Conocerá y dictaminará todos los proyectos de ley que estén relacionados con la actividad turística.
 (Así adicionado el inciso anterior mediante sesión N°13 del 18 de mayo del 2006).
+j) Comisión de Derechos Humanos: Su objeto será conocer, estudiar, dictaminar y denunciar los asuntos relacionados con la violación de los derechos humanos.
+(Así adicionado el incisos anterior mediante sesión N°17 del 25 de mayo del 2010).
+k) Comisión de Ciencia, Tecnología y Educación: Tendrá por objeto recopilar, estudiar, dictaminar y proponer las reformas legales necesarias para fomentar el impulso y desarrollo de la Ciencia, Tecnología e Innovación, así como estudiar, dictaminar y proponer las reformas legales necesarias para mejorar la educación ciudadana; para mejorar las políticas en educación y fortalecer el sistema educativo costarricense.
+(Así adicionado el incisos anterior mediante sesión N°17 del 25 de mayo del 2010).
