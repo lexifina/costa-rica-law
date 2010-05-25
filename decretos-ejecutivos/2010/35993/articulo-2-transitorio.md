@@ -1,0 +1,1 @@
+Transitorio II.—Los convenios interinstitucionales y cartas firmadas por el Ministro Rector del SAET para la creación y apoyo a la oficina del Plan de Acción para el Desarrollo Sostenible de la Región Huetar Norte (PADES), mantendrán su vigencia para los fines del presente decreto.

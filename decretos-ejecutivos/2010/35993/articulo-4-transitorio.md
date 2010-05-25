@@ -1,0 +1,1 @@
+Transitorio IV.—Mientras se reglamento lo señalado en el Transitorio III, los representantes del MINAET en el Comité MAB de Costa Rica, serán los Directores de las Reservas de Biosfera: Agua y Paz, La Amistad y Cordillera Volcánica Central.

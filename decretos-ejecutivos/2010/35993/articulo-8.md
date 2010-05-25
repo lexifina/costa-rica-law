@@ -1,0 +1,1 @@
+Articulo 8º—La Comisión Técnica conformará un Órgano Consultivo, con la finalidad de dar respuesta a las responsabilidades que se derivan de los principios de conservación, desarrollo y conocimiento establecidos por la UNESCO.
