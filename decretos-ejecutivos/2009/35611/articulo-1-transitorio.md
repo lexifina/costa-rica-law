@@ -1,0 +1,2 @@
+Transitorio único: El Servicio Nacional de Salud Animal (SENASA) del Ministerio de Agricultura y Ganadería mediante resolución, establecerá en un plazo no mayor de 30 días naturales, después de publicado el presente reglamento, los métodos de muestreo y análisis de inocuidad utilizados para la verificación.
+Dado en la Presidencia de la República.—San José, a los dos días del mes de junio del 2009.

@@ -1,0 +1,1 @@
+Artículo 5°—Derogación. Deróguese el Decreto Ejecutivo: Decreto Ejecutivo N° 19235-MEIC de 27 de septiembre de 1989, Norma para la leche entera en polvo, publicada en La Gaceta Nº 198 del 19 de octubre de 1989.
