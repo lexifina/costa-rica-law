@@ -1,4 +1,0 @@
-Artículo 41.- Obligatoriedad del cargo e inmunidad
-El cargo de miembro de las Juntas Electorales es honorífico y obligatorio; con la salvedad del artículo 17, lleva adscrita inmunidad y por ello, desde el nombramiento hasta la declaratoria de elección correspondiente, no podrá detenerse a ningún miembro de una Junta, excepto si mediare orden escrita de juez competente o el caso de haber sido sorprendido por la autoridad en flagrante delito. Igual protección tendrá el elector durante el día de las elecciones.
-Por ser las juntas órganos electorales, sus miembros deberán actuar con absoluta imparcialidad y acatar solamente las instrucciones del Tribunal Supremo de Elecciones y las disposiciones legales que rigen la materia sin atender, en el ejercicio de sus funciones, a la circunstancia de que un partido político los haya propuesto.
-(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)
