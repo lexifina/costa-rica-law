@@ -1,6 +1,6 @@
 Artículo 60.- Organización de los partidos políticos
 En su organización, los partidos comprenderán:
-a) Una Asamblea de Distrito en cada distrito administrativo;
+a) (Anulado por resolución de la Sala Constitucional N° 9340 del 26 de mayo de 2010. Dicho numeral disponía: “Una Asamblea de Distrito en cada distrito administrativo;”)
 b) Una Asamblea de Cantón en cada cantón;
 c) Una Asamblea de Provincia en cada provincia;
 d) La Asamblea Nacional.
