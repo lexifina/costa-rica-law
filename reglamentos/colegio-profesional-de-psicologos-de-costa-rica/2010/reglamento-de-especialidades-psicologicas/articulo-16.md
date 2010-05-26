@@ -1,0 +1,1 @@
+Artículo 16.—El quórum de la Comisión de Especialidades Psicológicas lo constituyen tres miembros y las resoluciones se tomarán por mayoría de votos de los presentes. En caso de empate, quien actúe como coordinador de la Comisión decidirá con doble voto.

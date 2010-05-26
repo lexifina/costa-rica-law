@@ -1,0 +1,1 @@
+Artículo 4º—Para el ejercicio de las especialidades psicológicas aquí establecidas o que se lleguen a establecer es indispensable la inscripción en el registro de especialidades psicológicas juramentarse como especialista con certificado expedido por la Junta Directiva que lo reconozca como tal.

@@ -1,0 +1,1 @@
+Artículo 3º—Se considera Profesional en Psicología especialista al miembro activo del Colegio Profesional de Psicólogos de Costa Rica, que reúna los requisitos del presente reglamento y esté inscrito en el Registro de Especialidades Psicológicas.

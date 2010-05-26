@@ -1,0 +1,1 @@
+Artículo 26.—Corresponde a la Junta Directiva, previa consulta a la Comisión el emitir criterio técnico, cuando así se le solicite, sobre las áreas o ámbitos de ejercicio profesional las especialidades psicológicas.

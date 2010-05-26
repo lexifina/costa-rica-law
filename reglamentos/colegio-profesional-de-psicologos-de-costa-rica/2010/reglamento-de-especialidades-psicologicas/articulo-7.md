@@ -1,0 +1,1 @@
+Artículo 7º—El Colegio Profesional de Psicólogos de Costa Rica organizará y dotará de los recursos necesarios a la Unidad de Especialidades Psicológicas, para que brinde apoyo administrativo a la Comisión de Especialidades Psicológicas en el cumplimiento de sus funciones.
