@@ -1,3 +1,0 @@
-Artículo 99.- Número de representantes
-En cuanto al número de representantes a la Asamblea Legislativa, a una Asamblea Constituyente y a losConcejos Municipales que corresponda elegir, se estará a lo dispuesto en el decreto de convocatoria, el cual fijará este número con estricta observancia de la Constitución Política en cuanto a los Diputados y en lo que disponga, para el efecto, el Código Municipal respecto a regidores, alcaldes, síndicos y miembros de los Concejos de Distrito.
-(Así reformado por el artículo 184 (actual 197) aparte g) del Código Municipal N° 7794 del 30 de abril de 1998. El artículo afectante anteriormente era el 175 pero, por la adición efectuada por el numeral único de la ley N° 7812 del 8 de julio de 1998, paso a ser el 184 (actual 197))
