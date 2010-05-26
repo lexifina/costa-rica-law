@@ -1,1 +1,0 @@
-Artículo 13.—Los (as) colegiados (as) que se anuncien o se hagan pasar como especialistas en algún campo de la psicología, para efectos de concursos de trabajo, publicaciones, eventos académicos y científicos u otros motivos, sin haber sido reconocidos como tales por el Colegio, podrán ser sancionados de acuerdo a las disposiciones del Código de Ética del Colegio.

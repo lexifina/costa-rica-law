@@ -1,1 +1,0 @@
-Transitorio único.—Durante los primeros dos años de vigencia del presente Reglamento, la Comisión de Especialidades puede estar constituida por miembros que no tengan una especialidad debidamente reconocida, pero que cuenten con conocimientos y experiencia en una o más áreas de especialización.

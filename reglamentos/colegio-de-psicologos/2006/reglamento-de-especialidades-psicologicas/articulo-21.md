@@ -1,1 +1,0 @@
-Artículo 21.—El reconocimiento de una sub-especialidad se puede dar simultáneamente con el reconocimiento de una especialidad o con posterioridad a la misma. Cuando la Junta Directiva deniegue el reconocimiento de una sub-especialidad se podrá proceder como se estipula en el artículo 19, incisos k) y l).

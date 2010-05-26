@@ -1,1 +1,0 @@
-Artículo 10.—Los especialistas tienen el compromiso de realizar una actualización, perfeccionamiento, revisión y reflexión permanente en el área de las teorías e instrumentos con los cuales desarrollan el ejercicio de su especialidad.
