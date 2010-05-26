@@ -1,0 +1,1 @@
+Artículo 11.—Comunicaciones. Las comunicaciones que se realicen con entidades del sector público y privado y con terceros se harán por medio de su Presidente o de su Secretario, según está estipulado en este reglamento. Los demás miembros también podrán hacerlo siempre que el CTAM los haya facultado para ello y no exista disposición en contrario del Poder Ejecutivo.

@@ -1,0 +1,2 @@
+Artículo 2º—Actuaciones del CTAM. El CTAM contará con independencia técnica y operativa para el ejercicio de las acciones y cumplimiento de los objetivos que le fueron legalmente asignados y que se deriven de su deber de órgano asesor del Poder Ejecutivo en materia de minería.
+El CTAM podrá actuar en nombre del Poder Ejecutivo en aquellas relaciones formales de comunicación y notificación de actos previos y definitivos siempre que éstas sean expresamente encargadas por el órgano superior o que se estipulen en este Reglamento.

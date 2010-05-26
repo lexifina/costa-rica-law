@@ -1,0 +1,1 @@
+Artículo 5º—Organización del CTAM. El CTAM contará con un Presidente, un Vicepresidente y un Secretario de Actas, elegidos entre sus miembros por mayoría simple, en la primera sesión de cada año calendario.

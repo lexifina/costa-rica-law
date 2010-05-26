@@ -1,0 +1,1 @@
+Artículo 9º—Sesiones del CTAM. El quórum necesario para que sesione el CTAM será de cinco de sus integrantes y los acuerdos se tomarán por mayoría simple de sus miembros presentes en la sesión. El CTAM sesionará, como mínimo, una vez al mes, en fecha y hora que sus miembros designen.

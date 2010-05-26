@@ -1,0 +1,1 @@
+Artículo 10.—Financiamiento del CTAM. Le corresponderá al Despacho del Ministro de Ambiente, Energía y Telecomunicaciones proveer el financiamiento necesario para que el CTAM cumpla con sus funciones, así como asignar el personal de apoyo a éste y los recursos materiales que se requieran para su adecuado desempeño.
