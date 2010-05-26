@@ -1,5 +1,0 @@
-Artículo 46.- Integración de las Juntas Cantonales
-Las Juntas Cantonales estarán integradas por un elector delegado de cada uno de los partidos políticos participantes en la elección con candidaturas inscritas.
-Tres meses antes de una elección y por medio del Presidente del Comité Ejecutivo Superior del Partido o del Presidente del Comité Ejecutivo de la Asamblea de Cantón, cada partido comunicará por escrito, al Tribunal Supremo de Elecciones, los nombres de los delegados propietario y suplente del respectivo cantón. El partido renuente a designarlos perderá todo derecho a representación en la respectiva Junta.
-Dentro de los tres días siguientes al vencimiento del término antes dicho, el Tribunal Supremo de Elecciones acogerá necesariamente la designación de los partidos interesados y publicará el acuerdo en que declare integradas las Juntas Cantonales, siguiendo el mismo orden de la División Territorial Electoral.
-(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

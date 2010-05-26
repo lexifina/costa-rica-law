@@ -1,3 +1,0 @@
-Artículo 189.- Entrega del aporte estatal. La Tesorería Nacional entregará a los partidos políticos lo que les corresponda por concepto de liquidación del aporte estatal, dentro de los ocho días siguientes a la fecha en que el Ministerio de Hacienda reciba la comunicación de aceptación del Tribunal Supremo de Elecciones, referida en el artículo 188. Se reconocerán intereses a partir de la declaratoria indicada en el artículo 187 anterior. Quedan a salvo las cesiones efectuadas de conformidad con este Código.
-(Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
-(Así reformado por el artículo único de la ley N° 8123 del 1° de agosto de 2001)

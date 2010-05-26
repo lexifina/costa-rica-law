@@ -1,6 +1,0 @@
-Artículo 22.-Listas provisionales de electores
-Seis meses antes de una elección, el Registro Civil preparará las listas provisionales de electores. Con la mayor brevedad, deberá enviar la lista correspondiente a la autoridad de policía de cada distrito administrativo, y entregará copia de todas a cada uno de los partidos inscritos en escala nacional.
-En estas listas, se seguirá el orden alfabético de apellido. Los sufragantes estarán numerados en forma corrida, del uno en adelante. Al pie de cada lista, se expresará el número de electores que contiene y se advertirá a los ciudadanos el término dentro del cual se oirán reclamaciones.
-Las autoridades estarán obligadas a colocar de inmediato esas listas en lugares visibles donde permanecerán durante cuatro meses; además, a hacerlas custodiar.
-El Registro Civil deberá entregar, a los partidos políticos, una copia del Padrón actualizado, escrita o confeccionada por el medio técnico idóneo para reproducirlo, cuando la solicitare algún miembro de su Comité Ejecutivo Superior, con el propósito de utilizarla en los procesos de convención para escoger el candidato a la Presidencia de la República.
-(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

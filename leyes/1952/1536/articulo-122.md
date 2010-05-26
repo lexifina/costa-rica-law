@@ -1,4 +1,0 @@
-Artículo 122.-Comunicación del resultado de la elección
-Los Presidentes de las Juntas Receptoras estarán obligados a comunicar el resultado de la elección, a la mayor brevedad posible, al Tribunal Supremo de Elecciones, con expresión clara, en letras, del número de votos emitidos a favor de cada partido ante la Junta. Esta comunicación se realizará por la vía más rápida con que se cuente y que el Tribunal disponga para ese efecto. El Presidente de la Junta Receptora será responsable, personalmente, de la fidelidad del mensaje y de su entrega.
-Las instituciones estatales encargadas de las comunicaciones deberán prestar, al Tribunal Supremo de Elecciones, la colaboración que requiera para transmitir ágil y rápidamente el resultado de las elecciones.
-(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

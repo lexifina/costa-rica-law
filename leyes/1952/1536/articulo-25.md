@@ -1,4 +1,0 @@
-Artículo 25.- Distribución de los electores
-Corresponderá al Registro fijar el número de Juntas Receptoras de Votos en cada distrito y distribuir a los electores que habrán de votar en cada una, procurando que los ciudadanos no tengan que recorrer largas distancias para emitir su voto y tomando en cuenta las condiciones y los medios de comunicación. Los electores de cada distrito podrán dirigirse al Registro para sugerirle las modificaciones que consideren necesarias acerca de estos puntos.
-El Tribunal Supremo de Elecciones establecerá el número de electores correspondiente a cada Junta Receptora, a fin de contar con el tiempo necesario para que todos los ciudadanos voten, conforme a lo que establece el artículo 113 de este Código.
-(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

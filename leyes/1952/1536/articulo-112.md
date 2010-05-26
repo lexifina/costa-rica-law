@@ -1,4 +1,0 @@
-Artículo 112.- Presentación de los electores
-A cada elector que se presente, se le preguntará su nombre y apellidos. Si apareciere inscrito en el Padrón-Registro, se le requerirá presentar su cédula de identidad para cotejar el número con que aparece en el citado padrón. Constatada la identidad del elector, se le entregarán las papeletas firmadas y se le indicará el local secreto donde debe votar.
-Cada papeleta deberá estar firmada por todos los miembros presentes de la Junta. Las firmas se estamparán en uno de los extremos, al dorso de cada papeleta, agrupadas de modo que sean visibles al doblarla el elector para introducirla en la urna. Este sistema se empleará mientras no se incorporen medios de votación electrónicos.
-(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)
