@@ -15,3 +15,4 @@ Reglamento de Junta Directiva del Instituto Costarricense de Puertos del Pacífi
 | --- | --- | --- |
 | 1 | 2009-03-06 | la propia norma |
 | 2 | 2010-05-11 | Reglamento 3637 (2010-05-11) |
+| 3 | 2010-05-26 | Reglamento 3641 (2010-05-26) |
