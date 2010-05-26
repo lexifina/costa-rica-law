@@ -1,3 +1,4 @@
-CAPÍTULO II
-De los participantes
-Artículo 152.—Participantes del servicio. En el servicio Traspaso de Valores deben participar las entidades de custodia y los miembros liquidadores.
+CAPÍTULO V
+De las responsabilidades
+Artículo 152.—Información de los archivos. Los emisores, cuando negocien valores directamente, y las entidades de compensación y liquidación de valores, son responsables de la información contenida en los archivos de liquidación enviados a través del servicio. El BCCR actuará bajo el principio de buena fe registral y no podrá modificar la información de tales archivos.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 146 al 145 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 145 al 152 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 153 pasa a ser el 152 actual)

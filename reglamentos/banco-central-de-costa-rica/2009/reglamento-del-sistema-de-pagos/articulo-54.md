@@ -1,5 +1,2 @@
-CAPÍTULO II
-De los usuarios de las cuentas de fondos
-Artículo 54.—Estructura de las cuentas. Las cuentas de fondos mantienen la siguiente estructura:
-a) Cuentas de reserva: Mantenidas por las entidades financieras para cumplir con requerimientos de encaje mínimo legal o bien para participar en el SINPE.
-b) Cuentas institucionales: Mantenidas por instituciones públicas nacionales y otras entidades que, no estando sujetas a requerimientos de política monetaria, cuentan con acuerdos o leyes especiales que requieren de su apertura.
+Artículo 54.—Plazos de acreditación. Las entidades representadas que administren cuentas de fondos están obligadas a cumplir con los plazos de acreditación que rigen para los asociados del SINPE, por lo cual también se encuentran sujetas a las responsabilidades que se deriven de dicha obligación.
+(Así adicionado en sesión N° 5462-2010 del 26 de mayo de 2010)

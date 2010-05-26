@@ -1,7 +1,3 @@
-CAPÍTULO X
-De las relaciones con los entes supervisores
-Artículo 43.—Convenio de entendimiento. El BCCR y los entes supervisores deberán suscribir un convenio de entendimiento mediante el cual se regule lo siguiente:
-a) Aspectos del desarrollo del Sistema de Pagos definidos por el BCCR, que deben ser sujetos de supervisión.
-b) El suministro de información bilateral para el cumplimiento de las funciones que le competen a cada institución.
-c) Los procedimientos a seguir con los servicios del SINPE, en caso que algunos de los entes supervisores intervenga alguna entidad financiera asociada.
-d) Las facilidades de acceso, capacitación y cualesquiera otras que el SINPE deba proveer a los supervisores para apoyar sus funciones.
+Artículo 43.—Comunicación de incumplimientos. El incumplimiento por parte de un asociado de las regulaciones establecidas por el BCCR en el presente reglamento y sus normas complementarias, será comunicado por el BCCR al ente supervisor que corresponda para que realice la investigación pertinente, con copia a la junta directiva y gerencia general de la entidad involucrada.
+El BCCR definirá en las normas complementarias del Sistema de Pagos las conductas y los hechos que ameritan ser comunicados a los entes supervisores, en razón de sus consecuencias respecto al funcionamiento normal y la seguridad del sistema.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010., que lo traspaso del antiguo artículo 44 al 43 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración)

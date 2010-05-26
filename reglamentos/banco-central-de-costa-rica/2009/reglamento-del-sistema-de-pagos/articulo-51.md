@@ -1,6 +1,3 @@
-SERVICIOS DE LIQUIDACIÓN EN TIEMPO REAL
-LIBRO II
-Cuentas de fondos
-CAPÍTULO I
-Del servicio
-Artículo 51.—Definición del servicio. Se define Cuentas de Fondos como el servicio por medio del cual se administran las cuentas mantenidas por los asociados en el BCCR, las cuales se estructuran conforme con la naturaleza y funcionalidad para la que son constituidas.
+Artículo 51.—Prestación de servicios. Las entidades representantes deben proveer a sus representadas todos los servicios de movilización de fondos establecidos como obligatorios en el presente reglamento. Adicionalmente, podrán prestarles los servicios que el BCCR autorice mediante norma complementaria.
+Las entidades representantes deberán realizar la prestación de los servicios observando las condiciones establecidas en el presente reglamento y bajo los lineamientos que el BCCR defina en los libros de la Serie de Normas y Procedimientos del SINPE.
+(Así adicionado en sesión N° 5462-2010 del 26 de mayo de 2010)

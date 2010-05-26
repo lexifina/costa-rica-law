@@ -1,3 +1,4 @@
-CAPÍTULO II
-De los participantes
-Artículo 178.—Participantes del servicio. En el servicio Ventanilla de Valores podrá participar el BCCR como emisor y los asociados del SINPE como inversionistas, siempre de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones. Cuando así lo disponga, el MHDA también podrá participar como emisor.
+CAPÍTULO V
+De las responsabilidades
+Artículo 178.—Principios de la negociación. El emisor deberá garantizar a los inversionistas igualdad en las condiciones de acceso a la negociación de valores, y transparencia en los procedimientos de convocatoria, la asignación de ofertas, la difusión de los resultados de las negociaciones y la formación de precios, todo ello de conformidad con las condiciones que establezca para los procesos de negociación.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 172 al 171 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 171 al 178 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 179 pasa a ser el 178 actual)

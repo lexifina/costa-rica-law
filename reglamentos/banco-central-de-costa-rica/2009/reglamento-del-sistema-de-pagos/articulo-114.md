@@ -1,1 +1,7 @@
-Artículo 114.—Manejo del saldo de las cuentas. El saldo de las cuentas de valores se mantiene por cantidad de valores para cada emisión y por el valor nominal del total de los valores anotados, siempre en la moneda que corresponda para la emisión.
+ANOTACIÓN EN CUENTA
+LIBRO XII
+Cuentas de valores
+CAPÍTULO I
+Del servicio
+Artículo 114.—Definición del servicio. Se define Cuentas de Valores como el servicio por medio del cual se administra el registro de los valores anotados en cuenta, conforme con el Título VII de la Ley 7732.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 108 al 107 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 107 al 114 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 115 pasa a ser el 114 actual)

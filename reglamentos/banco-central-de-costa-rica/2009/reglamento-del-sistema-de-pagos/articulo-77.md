@@ -1,3 +1,2 @@
-CAPÍTULO IV
-Del truncamiento de cheques
-Artículo 77.—Cheques truncados. Todos los cheques menores al monto de truncamiento anual definido para el servicio CLC, no serán sujetos de intercambio físico para su pago, por lo que la entidad destino utilizará para su validación únicamente la información contenida en el registro electrónico intercambiado.
+Artículo 77.—Horario del servicio. El servicio DTR estará disponible durante el horario de operación del SINPE.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 71 al 70 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 70 al 77 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 78 pasa a ser el 77 actual)

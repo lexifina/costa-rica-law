@@ -1,3 +1,2 @@
-CAPÍTULO II
-De los participantes
-Artículo 348.—Participantes del servicio. En el servicio ADA deben participar como entidad origen y destino las entidades financieras que administren cuentas de fondos, y podrán participar como entidad origen todos los asociados del SINPE.
+Artículo 348.—Mecanismos de control interno. Los participantes deberán establecer y mantener mecanismos de control interno para asegurar el correcto funcionamiento de sus OR, los cuales deberán guardar correspondencia con la responsabilidad que implica entregar a sus clientes la capacidad jurídica de firma digital al amparo de la Ley 8454.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 342 al 341 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 341 al 348 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 349 pasa a ser el 348 cuyo texto se reformó)

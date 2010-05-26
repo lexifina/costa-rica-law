@@ -1,4 +1,5 @@
-Artículo 271.—Redención anticipada. Con la redención anticipada de una inversión o depósito para cubrir un incumplimiento a cargo de un asociado, el BCCR procederá de la siguiente manera:
-a) Podrá realizar la liquidación parcial de operaciones, hasta completar el monto necesario para cubrir la obligación financiera. La operación que resulte liquidada parcialmente se mantendrá por el saldo restante, en las mismas condiciones financieras pactadas originalmente.
-b) Cobrará una comisión de liquidez equivalente a un 5% de los intereses pendientes de devengo a la fecha de la liquidación, calculados sobre el monto de principal redimido anticipadamente.
-En ningún caso la comisión de liquidez podrá ser inferior al 0.0250% ni superior al 0.1500% del total redimido.
+CAPÍTULO VI
+De las condiciones de los valores en garantía
+Artículo 271.—Características de los valores. Para constituir la garantía en valores se admitirán únicamente valores emitidos por el BCCR y el MHDA, que estén debidamente admitidos a cotización en un mercado organizado de bolsa.
+El plazo al vencimiento de los valores no podrá ser inferior a 7 días naturales. Asimismo, en las normas complementarias del servicio se establecerán los tipos de valores admisibles como garantía.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 265 al 264 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 264 al 271 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 272 pasa a ser el 271 actual)

@@ -1,1 +1,4 @@
-Artículo 80.—Intercambio de cheques truncados. Los cheques sujetos al esquema de truncamiento serán intercambiados en los plazos y la forma que en que lo establezca la norma complementaria del servicio.
+CAPÍTULO II
+De los participantes
+Artículo 80.—Participantes del servicio. En el servicio CLC deben participar como entidad destino los bancos comerciales, y podrán participar como entidad origen todas las entidades financieras asociadas al SINPE.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 74 al 73 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 73 al 80 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 81 pasa a ser el 80 actual)

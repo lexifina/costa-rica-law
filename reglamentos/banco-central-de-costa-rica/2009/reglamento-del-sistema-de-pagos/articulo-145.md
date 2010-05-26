@@ -1,3 +1,2 @@
-CAPÍTULO IV
-De los registros y la información
-Artículo 145.—Irrevocabilidad de los registros. Las instrucciones de liquidación no podrán ser revocadas por su ordenante o por terceros a partir del envío del archivo respectivo. Los listados y registros del servicio Liquidación de Mercados serán prueba de los movimientos registrados en dicho servicio.
+Artículo 145.—Conciliación de cuentas. El emisor, o su representante, es responsable de conciliar diariamente sus emisiones, debiendo comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 139 al 138 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 138 al 145 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 146 pasa a ser el 145 actual)

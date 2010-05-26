@@ -1,3 +1,2 @@
-CAPÍTULO IX
-Del cumplimiento de la legislación sobre legitimación de capitales
-Artículo 38.—Número de identificación del cliente. Toda cuenta cliente abierta por una entidad financiera deberá tener asociado el número de identificación de su propietario. En el caso de personas extranjeras, la cuenta cliente deberá asociar el número de identificación del documento emitido por la Dirección General de Migración y Extranjería o de su pasaporte.
+Artículo 38.—Incorporación del número de identificación. Con su participación en los servicios del SINPE, los asociados deberán cumplir y aplicar las leyes y normas vigentes en materia de legitimación de capitales. Para estos efectos, toda transacción tramitada a través del SINPE debe incorporar el número de identificación tanto del cliente origen como del cliente destino.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010., que lo traspaso del antiguo artículo 39 al 38 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración)

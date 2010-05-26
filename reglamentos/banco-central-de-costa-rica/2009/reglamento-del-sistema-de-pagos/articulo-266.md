@@ -1,4 +1,2 @@
-CAPÍTULO VI
-De las condiciones de los valores en garantía
-Artículo 266.—Características de los valores. Para constituir la garantía en valores se admitirán únicamente valores emitidos por el BCCR y el MHDA, que estén debidamente admitidos a cotización en un mercado organizado de bolsa.
-El plazo al vencimiento de los valores no podrá ser inferior a 7 días naturales. Asimismo, en las normas complementarias del servicio se establecerán los tipos de valores admisibles como garantía.
+Artículo 266.—Retención de vencimientos. Cuando sea necesario liquidar vencimientos que provoquen que el requerimiento de garantía descienda por debajo de su nivel mínimo, los vencimientos se mantendrán retenidos en una cuenta de fondos en garantía y no serán girados hasta que el acreedor aporte nuevos valores que restituyan el faltante de garantía.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 260 al 259 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 259 al 266 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 267 pasa a ser el 266 actual)

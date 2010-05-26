@@ -1,5 +1,3 @@
-LIBRO VII
-Compensación de Otros Valores (COV)
-CAPÍTULO I
-Del servicio
-Artículo 84.—Definición del servicio. Se define COV como el servicio de compensación multilateral neta, por medio del cual un asociado realiza el cobro de los valores recibidos de sus clientes a cargo de otro asociado.
+Artículo 84.—Vigencia del monto de truncamiento. El monto de truncamiento será fijado en las normas complementarias del servicio y operará para períodos anuales.
+Las actualizaciones del monto de truncamiento deberán comunicarse a los participantes dentro de los últimos 15 días naturales de cada año y su entrada en vigencia será a partir del ciclo del primer día hábil del año siguiente.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 78 al 77 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 77 al 84 actual. or su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 85 pasa a ser el 84 actual)

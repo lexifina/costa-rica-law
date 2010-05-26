@@ -1,4 +1,2 @@
-CAPÍTULO XII
-De los mecanismos de exclusión para
-la liquidación multilateral neta
-Artículo 289.—Exclusiones por insuficiencia de fondos. Un asociado será excluido de la liquidación de un multilateral cuando no pueda pagar el débito neto calculado en su contra, o cuando siendo una entidad financiera tampoco posea garantías suficientes para que el BCCR le otorgue un crédito intradiario que le permita solventar la insuficiencia.
+Artículo 289. Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 283 al 282 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 282 al 289 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 290 pasa a ser el 289 actual)

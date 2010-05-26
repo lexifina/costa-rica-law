@@ -1,3 +1,4 @@
-CAPÍTULO II
-De los participantes
-Artículo 159.—Participantes del servicio. En el servicio Captación de Fondos participa el BCCR como el receptor de las inversiones y depósitos, y podrán participar como inversionistas las entidades asociadas al SINPE, siempre de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones.
+CAPÍTULO IV
+De los traspasos
+Artículo 159.—Irrevocabilidad del registro. Las instrucciones de traspaso ingresadas por los participantes no podrán ser revocados por su ordenante o por terceros a partir del momento de su aceptación. Los listados y registros del servicio Traspaso de Valores serán prueba de los movimientos registrados en dicho servicio.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 153 al 152 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 152 al 159 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 160 pasa a ser el 159 actual)

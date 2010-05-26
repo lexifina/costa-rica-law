@@ -1,1 +1,1 @@
-Transitorio V.—Cumplimiento del requerimiento mínimo de garantía. Las entidades financieras que mantengan como garantías del sistema de pagos un aporte menor a la suma que establece el artículo 256, cuentan a partir de la publicación del presente reglamento con tres meses para cumplir con el nuevo monto mínimo fijado.
+Transitorio IV.— (Nota de Sinalevi: El texto de este transitorio debe consultarse en el transitorio II de esta norma)

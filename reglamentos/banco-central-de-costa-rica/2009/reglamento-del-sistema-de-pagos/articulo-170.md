@@ -1,4 +1,2 @@
-CAPÍTULO IV
-Del ciclo de la segunda ronda de negociación
-Artículo 170.—Convocatoria de segunda ronda. El emisor podrá convocar a una segunda ronda de negociación cuando lo considere necesario.
-Esta ronda estará sujeta a los límites autorizados para las emisiones y únicamente podrá considerar los códigos ISIN para los que el emisor requiere ampliar la negociación, luego de asignada la primera ronda.
+Artículo 170.—Conciliación de operaciones. Los inversionistas son responsables de conciliar diariamente el estado de sus operaciones y de comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 164 al 163 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 163 al 170 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 171 pasa a ser el 170 actual)

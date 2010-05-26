@@ -1,6 +1,5 @@
 CAPÍTULO III
-Del esquema tarifario
-Artículo 392.—Esquema tarifario. Se establece un esquema tarifario que será utilizado para definir las tarifas interbancarias aplicables a todas las transacciones procesadas por el SINPE, con las siguientes condiciones:
-a) La entidad que demanda el servicio (entidad origen) paga por cada transacción ordenada en el servicio.
-b) No se cobra tarifa alguna al cliente destino.
-c) El cobro al cliente origen es libre (relación privada entidad financiera-cliente).
+De la información
+Artículo 392.—Información consultada. Por medio del servicio los participantes pueden consultar los datos e imágenes de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones y con base en los cuales emite las cédulas de identidad como medio oficial de identificación de las personas nacionales.
+Las consultas se harán conforme con los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 381 al 380 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 380 al 387 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 388 pasa a ser el 387 actual. Nuevamente se adicionan 4 artículos volviéndose a correr su numeración, pasando así el artículo 387 a ser el 391 actual. Agregándose otro numeral con lo que se corre la numeración y el artículo 391 pasa a ser el actual 392. En esa misma sesión se deroga el numeral 392 por lo que se corre nuevamente la numeración pasando el antiguo artículo 393 a ser el 392 actual cuyo texto se reformó)

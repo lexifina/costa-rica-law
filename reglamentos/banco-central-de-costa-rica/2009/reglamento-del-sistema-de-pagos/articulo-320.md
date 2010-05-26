@@ -1,1 +1,4 @@
-Artículo 320.—Responsabilidad sobre transacciones. El asociado asume total responsabilidad sobre cualquier transacción realizada por un usuario que haya sido autorizado por sus RST o RSP, así como cuando no pueda operar en el sistema debido a la falta de los RST o RSP requeridos para asignar derechos a los usuarios internos.
+CAPÍTULO II
+De los participantes
+Artículo 320.—Participantes del servicio. En el servicio AES participan los asociados del SINPE.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 314 al 313 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 313 al 320 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 321 pasa a ser el 320 actual)

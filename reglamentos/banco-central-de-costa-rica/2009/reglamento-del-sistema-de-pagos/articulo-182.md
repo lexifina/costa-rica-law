@@ -1,1 +1,6 @@
-Artículo 182.—Suficiencia de fondos. Los inversionistas son responsables de mantener en su cuenta los fondos necesarios para que el emisor pueda liquidar en tiempo y forma las colocaciones realizadas. El incumplimiento en la liquidación de una oferta implicará la suspensión automática de la condición de inversionista en el servicio, por un período de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.
+LIBRO XVIII
+Ventanilla de valores
+CAPÍTULO I
+Del servicio
+Artículo 182.—Definición del servicio. Se define Ventanilla de Valores como el servicio por medio del cual se colocan valores estandarizados a través de ventanilla.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 176 al 175 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 175 al 182 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 183 pasa a ser el 182 actual)

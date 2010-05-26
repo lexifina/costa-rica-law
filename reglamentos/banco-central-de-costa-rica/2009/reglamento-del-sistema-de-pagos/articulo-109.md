@@ -1,6 +1,6 @@
-ANOTACIÓN EN CUENTA
-LIBRO XII
-Cuentas de valores
+LIBRO XI
+Liquidación de Servicios Externos (LSE)
 CAPÍTULO I
 Del servicio
-Artículo 109.—Definición del servicio. Se define Cuentas de Valores como el servicio por medio del cual se administra el registro de los valores anotados en cuenta, conforme con el Título VII de la Ley 7732.
+Artículo 109.—Definición del servicio. Se define LSE como el servicio de compensación multilateral neta por medio del cual se liquida, en las cuentas de fondos de dos o más entidades financieras, el resultado producido por un servicio de compensación externo u operado por el BCCR.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 103 al 102 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 102 al 109 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 110 pasa a ser el 109 actual)

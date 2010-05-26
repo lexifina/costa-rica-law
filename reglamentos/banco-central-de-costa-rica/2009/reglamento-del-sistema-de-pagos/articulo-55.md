@@ -1,1 +1,3 @@
-Artículo 55.—Código de entidad representada. Las entidades financieras o públicas que participen en el SINPE bajo la condición de representadas, tendrán un código de entidad únicamente para que puedan asignar cuentas cliente a sus clientes y operar en el SINPE dentro de los términos dispuestos para dicha condición. La asignación del código de entidad se hará de conformidad con las disposiciones establecidas en las respectivas normas complementarias.
+Artículo 55.—Reclamaciones. Las reclamaciones que promuevan las representadas contra su entidad representante serán tramitadas mediante el mecanismo de reclamaciones que establece el presente reglamento.
+El BCCR podrá publicar en la página Web del SINPE el resultado final de los procedimientos administrativos que se lleven contra una entidad representante, en virtud de las reclamaciones que promuevan sus representadas.
+(Así adicionado en sesión N° 5462-2010 del 26 de mayo de 2010)

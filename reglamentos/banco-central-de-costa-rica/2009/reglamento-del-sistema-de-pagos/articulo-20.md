@@ -7,7 +7,8 @@ iv. Suministrar al BCCR la información sobre otros sistemas de compensación y 
 v. Participar en las reuniones del Comité de Avance o en cualquier otra a la que se le convoque.
 vi. Supervisar que su entidad revise, evalúe y formule las observaciones que procedan, sobre los documentos de los servicios del SINPE que se le suministren para su revisión, tales como: reglamento, reglas de negocio, visión, arquitectura y normas complementarias, entre otros.
 vii. Ser usuario del SINPE, al menos a modo de consulta de la información del boletín y demás facilidades, para que conozca el sistema y pueda emitir criterio sobre el marco normativo del Sistema de Pagos.
-viii. Remitir al SINPE las observaciones y sugerencias de su entidad, sobre la mejora de los servicios en operación o cualquier nuevo servicio o funcionalidad que se incorpore al sistema.
+viii. Remitir al BCCR las observaciones y sugerencias de su entidad, sobre la mejora de los servicios en operación o cualquier nuevo servicio o funcionalidad que se incorpore al sistema.
+(Así reformado el aparte anterior mediante sesión N° 5462-2010 del 26 de mayo de 2010)
 ix. Dentro de las funciones asignadas en su entidad, debe dar prioridad a las labores de coordinación del SINPE, con el fin de garantizar la participación activa de la entidad en la operación y desarrollo del sistema.
 b) Responsable Informático de los Servicios del SINPE: Representante a cargo de las siguientes funciones:
 i. Procurar que en su entidad se haga una adecuada operación de las aplicaciones utilizadas en los servicios del SINPE.

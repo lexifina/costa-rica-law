@@ -1,2 +1,6 @@
-Artículo 202.—Participantes del mercado. La Junta Directiva del BCCR determinará por acuerdo el tipo de personas físicas y jurídicas que pueden participar en el Monex, además de las entidades autorizadas que lo hacen a través del SINPE.
-Las personas que no estén autorizadas por el BCCR para realizar actividades de intermediación cambiaria, podrán acceder al Monex únicamente para realizar operaciones destinadas a satisfacer sus necesidades propias de transacción de divisas.
+LIBRO XX
+Mercado de Monedas Extranjeras (MONEX)
+CAPÍTULO I
+Del servicio
+Artículo 202.—Definición del servicio. Se define Monex-SINPE como el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 196 al 195 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 195 al 202 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 203 pasa a ser el 202 actual cuyo texto se reformó)

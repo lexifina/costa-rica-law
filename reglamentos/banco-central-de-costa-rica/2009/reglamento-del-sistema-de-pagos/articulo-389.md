@@ -1,4 +1,6 @@
-CAPÍTULO VI
-De las suspensiones
-Artículo 389.—Suspensión por incumplimientos. Será suspendida por un periodo de tres meses la participación en el servicio de la entidad que incumpla las responsabilidades establecidas por el presente libro, así como las disposiciones contenidas en sus normas complementarias, las cuales los participantes se obligan a cumplir. La suspensión será de seis meses cuando la entidad incurra en un segundo incumplimiento dentro de un mismo año calendario.
-En ambos casos, la restitución al servicio se dará siempre y cuando el participante corrija, a entera satisfacción del BCCR, la situación por la cual se dio la suspensión. El BCCR podrá en estos casos solicitar al participante las pruebas que considere pertinentes para demostrar su situación a derecho.
+LIBRO XXXI
+Consulta de identificación ciudadana
+CAPÍTULO I
+Del servicio
+Artículo 389.—Definición del servicio. Se define Consulta de Identificación Ciudadana como el servicio por medio del cual se accede a la información de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 379 al 378 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 378 al 385 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 386 pasa a ser el 385 actual. Nuevamente se adicionan 4 artículos volviéndose a correr su numeración, pasando así el artículo 385 a ser el 389 actual cuyo texto se reformó)

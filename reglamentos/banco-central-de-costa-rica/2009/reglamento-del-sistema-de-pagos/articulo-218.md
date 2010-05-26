@@ -1,5 +1,2 @@
-LIBRO XXII
-Custodia de Numerario (CAN)
-CAPÍTULO I
-Del servicio
-Artículo 218.—Definición del servicio. El servicio CAN constituye el conjunto de procesos operativos, la logística y la plataforma electrónica en la que operan las Custodias de Numerario, mediante las cuales el BCCR atiende los requerimientos de numerario de las entidades financieras y mantiene parte de su disponibilidad de numerario en las bóvedas de tales entidades bajo su absoluta responsabilidad, para usarlo según el BCCR lo determine.
+Artículo 218.—Procesamiento del billete. Proceso que comprende al menos la verificación de la autenticidad del billete, su conteo físico y su clasificación en una de las categorías establecidas en este capítulo.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 212 al 211 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 211 al 218 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 219 pasa a ser el 218 actual)

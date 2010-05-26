@@ -1,3 +1,3 @@
-CAPÍTULO XIV
-De la Sala Alterna de Operaciones
-Artículo 297.—Disponibilidad de la Sala Alterna de Operaciones. El SINPE pondrá a disposición de los asociados una Sala Alterna de Operación (SAO), para que puedan ejecutar sus procesos de operación en el sistema cuando enfrenten alguna situación contingente que les imposibilite hacerlo desde sus propias oficinas.
+Artículo 297.—Aplazamiento de las devoluciones. El plazo para enviar las devoluciones se extenderá por veinticuatro horas entre días hábiles y podrá ampliarse por veinticuatro horas adicionales, para lo cual la entidad en falta deberá comunicar la reincidencia de la situación a través del SINPE.
+Una vez transcurrido el plazo máximo de cuarenta y ocho horas, la entidad deberá realizar la acreditación de los fondos a sus clientes.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 291 al 290 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 290 al 297 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 298 pasa a ser el 297 actual)

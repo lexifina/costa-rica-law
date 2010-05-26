@@ -1,3 +1,4 @@
-CAPÍTULO VI
-Del procedimiento de cobro de las comisiones
-Artículo 400.—Casos especiales de cobro. Cuando la cuenta de fondos en colones del asociado no disponga de dinero suficiente, el cobro se realizará sobre la cuenta de fondos que mantenga en cualquier otra moneda, utilizando para ello el tipo de cambio de referencia de venta del día en que se realiza el cobro. Si la insuficiencia de fondos persiste, el BCCR intentará realizar el cobro una vez por día, hasta lograr su liquidación.
+CAPÍTULO II
+De los participantes
+Artículo 400.—Participantes del servicio. En el servicio TCS participan todos los asociados del SINPE.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 389 al 388 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 388 al 395 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 396 pasa a ser el 395 actual. Nuevamente se adicionan 4 artículos volviéndose a correr su numeración, pasando así el artículo 395 a ser el 399 actual. Agregándose otro numeral con lo que se corre la numeración y el artículo 399 pasa a ser el actual 400. En esa misma sesión se deroga el numeral 392 por lo que se corre nuevamente la numeración pasando el antiguo artículo 401 a ser el 400 actual)

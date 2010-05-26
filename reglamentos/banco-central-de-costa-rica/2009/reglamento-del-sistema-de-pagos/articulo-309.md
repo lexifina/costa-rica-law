@@ -1,3 +1,2 @@
-CAPÍTULO III
-Del esquema de operación
-Artículo 309.—Carácter exclusivo del servicio. Todo servicio financiero o mercado que involucre la liquidación de fondos y valores, debe ser liquidado por medio del SIL.
+Artículo 309.—Liberaciones de software. El BCCR procurará realizar la liberación de nuevas versiones de software del SINPE o de actualización de su plataforma tecnológica, en horarios que no afecten la operativa normal del sistema.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 303 al 302 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 302 al 309 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 310 pasa a ser el 309 actual)

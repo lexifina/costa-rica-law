@@ -1,3 +1,2 @@
-CAPÍTULO III
-De las operaciones sobre cuentas de fondos
-Artículo 56.—Autorización de movimientos. Todo movimiento regular sobre las cuentas de fondos que deba realizar el BCCR, en virtud de las transacciones que ordenen los asociados o alguna empresa que le provea servicios de compensación a los asociados, o por cualquier otra afectación derivada de los servicios ofrecidos por el BCCR, quedará autorizado con la sola incorporación del asociado al SINPE.
+Artículo 56.—Vigilancia del BCCR. La entidad representante y sus representadas deben proveer al BCCR todas las facilidades que este les requiera, con el propósito de llevar a cabo su función de vigilancia del sistema de pagos y realizar investigaciones y estudios relacionados con el cumplimiento de los principios básicos del Banco de Pagos Internacionales.
+(Así adicionado en sesión N° 5462-2010 del 26 de mayo de 2010)

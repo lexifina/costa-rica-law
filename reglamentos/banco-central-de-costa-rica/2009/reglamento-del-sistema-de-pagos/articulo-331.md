@@ -1,1 +1,6 @@
-Artículo 331.—Funcionamiento del certificador del SINPE. El funcionamiento del certificador del SINPE se rige de acuerdo con los lineamientos establecidos en su PC y su DPC, así como por lo que establecen el presente reglamento y las normas complementarias del servicio.
+LIBRO XXVII
+FIRMA DIGITAL (FDI)
+CAPÍTULO I
+EL SERVICIO
+Artículo 331.—Definición del servicio. Se define Firma Digital como el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación y verificación de certificados digitales, de conformidad con la Ley 8454 y su reglamento.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 325 al 324 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 324 al 331 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 332 pasa a ser el 331 actual cuyo texto se reformó)

@@ -1,3 +1,4 @@
-CAPÍTULO III
-De los instrumentos financieros
-Artículo 160.—Aprobación de instrumentos. La Junta Directiva del BCCR determinará el tipo de instrumentos de captación que pondrá a disposición de los inversionistas, así como sus características financieras y las condiciones bajo las cuales serán ofrecidos.
+Artículo 160.—Tipo de traspasos. Los traspasos de valores que ordenen los participantes podrán ser de dos tipos:
+a) Traspaso sin cambio de titularidad: Cuando el movimiento de los valores se realiza entre cuentas pertenecientes al mismo titular.
+b) Traspaso con cambio de titularidad: Cuando el movimiento de los valores se realiza a la cuenta de otro titular.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 154 al 153 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 153 al 160 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 161 pasa a ser el 160 actual)

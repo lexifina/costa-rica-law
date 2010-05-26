@@ -1,3 +1,2 @@
-CAPÍTULO IV
-De las responsabilidades
-Artículo 337.—Responsabilidad del certificador del SINPE. El certificador del SINPE es responsable de registrar y autorizar a las entidades que deseen funcionar como registradores.
+Artículo 337.—Funciones de las OR. Las OR son las encargadas de validar la identidad de los suscriptores y de registrarlos, así como de tramitar las solicitudes de emisión, revocación, renovación y entrega de los certificados digitales.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 331al 330 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 330 al 337 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 338 pasa a ser el 337 actual cuyo texto se reformó)

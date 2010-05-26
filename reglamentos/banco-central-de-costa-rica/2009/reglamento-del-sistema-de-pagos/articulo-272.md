@@ -1,4 +1,2 @@
-CAPÍTULO VIII
-De la facilidad crediticia intradiaria
-Artículo 272.—Límites de crédito. El BCCR otorgará a las entidades financieras supervisadas por la SUGEF, una facilidad crediticia intradiaria hasta por un 5% de su activo realizable, determinado este rubro de conformidad con el artículo 53 de la Ley 7558.
-El límite de crédito para las entidades financieras no supervisadas por la SUGEF estará determinado por el requerimiento mínimo de garantía que deben aportar de conformidad con las disposiciones del presente libro.
+Artículo 272.—Valoración. Los valores aportados en garantía serán valorados diariamente a precios de mercado. Por lo tanto, las emisiones que carezcan de una referencia de mercado sin que razonablemente pueda determinarse su precio por otros medios, no podrán admitirse como garantía.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 266 al 265 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 265 al 272 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 273 pasa a ser el 272 actual)

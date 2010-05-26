@@ -1,8 +1,10 @@
 CAPÍTULO III
 Del ciclo del servicio
-Artículo 71.—Ciclo de operación del servicio. El ciclo del servicio DTR se efectuará de conformidad con las siguientes etapas:
-a) Envío del cobro: La entidad origen emite una instrucción de cobro para que se debiten los fondos de la cuenta cliente del cliente destino, previa autorización emitida por éste.
-b) Aceptación o rechazo del débito: Después de recibida la comunicación electrónica, la entidad destino confirma a la entidad origen, en tiempo real y de manera automática, la aceptación o rechazo del débito.
-En caso de que la entidad destino presente problemas en su plataforma tecnológica que le imposibiliten la aceptación o rechazo del débito en forma automática, la transacción será devuelta por el SINPE a la entidad origen con la especificación de la naturaleza del problema.
-c) Liquidación del débito: El SIL efectúa la liquidación en firme utilizando el mecanismo de liquidación bilateral bruta, luego de recibida la aceptación de la instrucción de cobro.
-d) Acreditación de fondos: La entidad origen debe acreditar en tiempo real la cuenta cliente del beneficiario (o dar valor a la operación de contrapartida), por el monto de los débitos cobrados a través del servicio.
+Artículo 71.—Ciclo de operación del servicio. El ciclo del servicio TFT se efectuará de conformidad con las siguientes etapas:
+a) Envío de la transferencia: La entidad origen emite, por mandato de su cliente o por cuenta propia, una instrucción para transferir dinero de su cuenta de fondos a la cuenta de fondos de una entidad destino, con la indicación expresa de que se acredite en una cuenta cliente en dicha entidad.
+b) Aceptación o rechazo de la transferencia: Después de recibida la comunicación electrónica, la entidad destino confirma a la entidad origen, en tiempo real y de manera automática, la aceptación o rechazo de la transferencia.
+En caso de que la entidad destino presente problemas en su plataforma tecnológica que le imposibiliten la aceptación o rechazo de la transferencia en forma automática, la transacción será devuelta por el SINPE a la entidad origen con la especificación de la naturaleza del problema.
+c) Liquidación de la transferencia: El SIL efectúa la liquidación en firme utilizando el mecanismo de liquidación bilateral bruta en tiempo real, luego de recibida la aceptación de la transferencia.
+En caso de rechazo de la transferencia, el SIL procederá a liberar los fondos que habían sido previamente inmovilizados a la entidad origen.
+d) Acreditación de la transferencia en la cuenta cliente destino: Si la transferencia es aceptada por la entidad destino, deberá acreditar en tiempo real el total del monto en la cuenta cliente respectiva.
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 65 al 64 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 64 al 71 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 72 pasa a ser el 71 actual)

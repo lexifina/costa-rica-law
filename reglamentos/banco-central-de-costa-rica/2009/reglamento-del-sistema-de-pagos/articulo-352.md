@@ -1,1 +1,2 @@
-Artículo 352.—Prenotificación en el SINPE. La entidad origen deberá enviar a través del SINPE una prenotificación con la información de las domiciliaciones recibidas de sus clientes. El envío de la prenotificación lo deberá hacer a la entidad destino, a más tardar el día hábil siguiente de haber recibido la domiciliación de su cliente.
+Artículo 352.—Validación de la llave pública. Las partes confiantes deben validar o solicitar la validación de la llave pública contenida en un certificado, antes de confiar en el mismo.
+(Así adicionado en sesión N° 5462-2010 del 26 de mayo de 2010)
