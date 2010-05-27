@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá al Ministerio de Cultura y Juventud llevar a cabo las acciones legales pertinentes a efecto de resguardar y vigilar el inmueble que le han sido asignado.

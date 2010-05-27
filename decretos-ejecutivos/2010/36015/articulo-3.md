@@ -1,0 +1,1 @@
+Artículo 3º—La Proveeduría Institucional del Ministerio de Hacienda realizará todos los trámites para dar de baja de los Inventarios del Ministerio, los bienes inmuebles que mediante el presente Decreto se asignan al Ministerio de Cultura y Juventud.
