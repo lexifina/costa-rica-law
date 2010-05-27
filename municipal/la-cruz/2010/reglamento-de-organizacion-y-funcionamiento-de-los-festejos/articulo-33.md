@@ -1,0 +1,1 @@
+Artículo 33.—Los formatos de contratos, comprobantes, mayor auxiliar de ingresos y egresos y orden de pago que se utilicen serán los claramente definidos dentro del Manual de Operaciones para las comisiones de festejos populares, emitido por la Contraloría General de la República.

@@ -1,0 +1,2 @@
+Artículo 28.—Los miembros de la Comisión de Festejos Populares devengarán dietas, todo de acuerdo al Manual de Operaciones para las comisiones de Festejos Populares, emitido por la Contraloría General de la República, inciso 3.7.
+El costeo por concepto de Recolección de Desechos Sólidos, Aseo de Vías, Riego, Lavado de Campo Ferial y la alimentación de los funcionarios que participen, en dicha actividad, estará a cargo de la Comisión de Festejos Populares. No se autoriza el pago de recargos de funciones.

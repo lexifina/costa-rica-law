@@ -1,0 +1,2 @@
+4º—Todo lo que no se encuentre regulado dentro de este Reglamento será regulado con el Manual de Operaciones para las Comisiones de Festejos Populares, emitido por la Contrataría General de la República.
+Rige a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado, según acuerdo Nº 1-1 de la sesión extraordinaria Nº 05-2010, celebrada el día 15 de abril del 2010.
