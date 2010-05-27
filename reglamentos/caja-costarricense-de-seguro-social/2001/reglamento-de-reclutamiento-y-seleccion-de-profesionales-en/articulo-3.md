@@ -1,2 +1,0 @@
-Artículo 3º—Ocupación de los puestos. Los puestos vacantes del personal Profesional de Farmacia, Nutrición, Odontología, Trabajo Social y Psicología, se otorgarán mediante el procedimiento establecido en este Reglamento. Primero se constituirá el registro de elegibles, posteriormente, deberán apersonarse los candidatos elegibles que estén interesados en optar por ocupar la plaza en propiedad.
-La Caja garantizará la igualdad de condiciones y lo dispuesto en las leyes que pretenden la igualdad de género y de las personas con discapacidad.

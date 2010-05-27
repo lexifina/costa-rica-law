@@ -1,1 +1,0 @@
-Artículo 7º—Periodicidad de los concursos. La convocatoria a concursos para la confección del Registro de Elegibles, mejorar la calificación establecida en el mismo, o bien, llenar todas las plazas nuevas y vacantes, de conformidad con la modalidad de concurso establecida para los respectivos puestos, deberá efectuarse por lo menos una vez al año.
