@@ -1,1 +1,0 @@
-Artículo 25.—Vigencia. Vigencia: Este Reglamento debidamente aprobado por el Consejo Nacional del Deporte y la Recreación, deroga y sustituye toda disposición reglamentaria que se le oponga y entrará en vigencia a partir del 1º de enero del 2008.

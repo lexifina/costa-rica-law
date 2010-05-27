@@ -1,2 +1,0 @@
-Artículo 12.—Caucionantes ad honórem o sin salario. los caucionantes que ocupen puestos públicos en condición ad honorem, miembros de órganos colegiados u otros que no perciban salario mensual por parte de ICODER y que no reciban dietas, no deberán rendir caución, en el caso de los Directivos del Consejo Nacional del Deporte y la Recreación deberán caucionar igual al Director Nacional.
-(Así reformado mediante acuerdo N° 8 de la sesión N° 587 del 6 de marzo de 2008)
