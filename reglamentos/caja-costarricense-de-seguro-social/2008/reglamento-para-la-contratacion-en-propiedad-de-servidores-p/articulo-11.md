@@ -1,4 +1,0 @@
-Artículo 11.—Facultades de los órganos de representación de los trabajadores. Los sindicatos que representen los intereses de afiliados afectados por la aplicación del presente Reglamento, dispondrán de las siguientes facultades:
-a) La obligación a cargo de la Dirección de Recursos Humanos de notificarles la convocatoria de un concurso que afecte sectores de trabajadores representados por la respectiva organización. En el caso de sindicatos de empresa o industria (definidos al amparo del artículo 342 inciso b del Código de Trabajo) se deberán notificar todas las convocatorias.
-b) Establecer en forma directa los recursos regulados en el presente Reglamento en contra del cartel del concurso, por medio de los delegados acreditados ante la Dirección de Recursos Humanos.
-c) Libre acceso a los expedientes de los concursos en trámite que afecten los intereses de sus agremiados, tanto para efectos de consulta como de fotocopia.

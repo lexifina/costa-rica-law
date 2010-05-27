@@ -1,3 +1,0 @@
-TERCERO.—En el plazo máximo de 3 (tres) meses a partir de la vigencia del presente Reglamento, la Dirección de Recursos Humanos deberá someter a la aprobación de la Gerencia Administrativa los protocolos que resulten necesarios para la realización de las pruebas de aptitud psicológica y médica concordantes con las disposiciones del presente Reglamento.
-DEROGATORIAS
-Este Reglamento deja sin efecto todas las normas vigentes en la Caja Costarricense de Seguro Social que se le opongan. Especialmente, se entiende derogado por estas disposiciones el artículo 25 del Estatuto de Servicios de la Caja Costarricense de Seguro Social así como las Normas y Procedimientos en Concursos Administrativos”.
