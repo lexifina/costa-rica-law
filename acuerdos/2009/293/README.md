@@ -14,3 +14,4 @@ Establece tarifas por la venta de bienes y servicios que brinda y genera el INCO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
+| 2 | 2010-05-28 | Acuerdo 177 (2010-05-28) |
