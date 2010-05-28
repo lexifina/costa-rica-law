@@ -1,0 +1,1 @@
+Artículo 37.—A aquel estudiante que participe en alguna actividad de interés institucional y que no pertenezca a un grupo permanente se le otorgara para el cuatrimestre siguiente al de su participación, una beca de estímulo correspondiente a la exoneración del 50% del pago de aranceles según lo descrito en el artículo 2.

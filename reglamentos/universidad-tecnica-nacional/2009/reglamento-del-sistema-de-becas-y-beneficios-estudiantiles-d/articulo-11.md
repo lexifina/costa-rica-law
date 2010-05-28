@@ -1,0 +1,1 @@
+Artículo 11.—Del cambio de carrera. El beneficiario podrá cambiar de carrera una sola vez manteniendo el beneficio otorgado. En caso de realizar un segundo cambio de carrera el beneficiario perderá la beca o becas aplicadas.

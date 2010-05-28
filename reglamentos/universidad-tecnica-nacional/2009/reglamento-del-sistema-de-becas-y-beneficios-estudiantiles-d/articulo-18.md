@@ -1,0 +1,1 @@
+Artículo 18.—De los manuales de procedimientos. La Vicerrectoría respectiva formulará y tramitará la aprobación de los Manuales y Procedimientos necesarios para regular los trámites administrativos y los procedimientos técnicos para el estudio de las solicitudes de beca socioeconómica, y los demás que sean requeridos para la aplicación de este Reglamento.

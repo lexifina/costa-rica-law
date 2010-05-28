@@ -1,0 +1,1 @@
+Artículo 20.—De la exclusividad de la beca socioeconómica. La beca socioeconómica se concede para el estudio de una sola carrera. Un estudiante no puede realizar solicitud de beca socioeconómica para el estudio de una segunda carrera, sea en forma simultánea o consecutiva.

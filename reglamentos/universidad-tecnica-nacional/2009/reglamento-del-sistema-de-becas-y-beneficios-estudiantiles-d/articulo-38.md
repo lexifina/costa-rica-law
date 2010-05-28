@@ -1,0 +1,3 @@
+Artículo 38.—De los requisitos para becas en grupos de interés institucional. Para obtener la beca por participación en grupos de interés institucional, el estudiante debe cumplir con los requisitos y normativas establecidas para el ingreso y permanencia del grupo al que pertenece. Además debe cumplir los siguientes requisitos:
+a) Cumplir con la asistencia requerida en las actividades programadas para el grupo.
+b) Matricular al menos nueve créditos en el primer cuatrimestre que gozan de la beca y aprobar al menos nueve créditos en los siguientes cuatrimestres de la carrera para continuar gozando de la beca.

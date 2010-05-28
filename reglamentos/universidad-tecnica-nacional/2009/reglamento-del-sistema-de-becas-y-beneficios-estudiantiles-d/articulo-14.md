@@ -1,0 +1,1 @@
+Artículo 14.—De la matrícula. Los ingresos que se deriven de la Cuota de Bienestar Estudiantil, por concepto de matrícula de cada Sede, serán destinados a un fondo adicional de beneficios estudiantiles, administrados por la Comisión de Becas y Beneficios Estudiantiles de la misma Sede.

@@ -1,0 +1,1 @@
+Artículo 12.—De las exenciones. El pago por concepto de la cuota de Bienestar Estudiantil, Póliza Estudiantil, Carné, Fondo de Garantía de Residencias y Matrícula no están sujetas a ningún tipo de exoneración.

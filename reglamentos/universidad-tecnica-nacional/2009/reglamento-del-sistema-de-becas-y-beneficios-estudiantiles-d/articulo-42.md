@@ -1,0 +1,1 @@
+Artículo 42.—Para el otorgamiento del incentivo definido en el artículo anterior es requisito indispensable matricular al menos 9 créditos en el primer cuatrimestre que gozan de la beca y aprobar al menos nueve créditos en los siguientes cuatrimestres de la carrera para continuar gozando de la beca.

@@ -1,0 +1,1 @@
+Artículo 10.—De la vigencia. El período de vigencia de cualquier tipo de beca, se extiende durante un período máximo de beneficio de siete cuatrimestres consecutivos, siempre y cuando el beneficiario cumpla con los requisitos establecidos.
