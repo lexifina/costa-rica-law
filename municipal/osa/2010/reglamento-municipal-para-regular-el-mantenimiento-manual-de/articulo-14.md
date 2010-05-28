@@ -1,0 +1,1 @@
+Artículo 14.—Inspección ocular. Una vez concluido el término de 10 días hábiles el Comité de Caminos, o la ONG correspondiente, a instancia de la Unidad de Gestión Vial Municipal de la Municipalidad de Osa, procederá a realizar una inspección ocular en el lugar con el fin de corroborar si la correspondiente notificación fue acatada por el propietario.

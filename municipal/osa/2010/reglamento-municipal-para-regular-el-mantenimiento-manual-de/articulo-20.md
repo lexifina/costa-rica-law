@@ -1,0 +1,1 @@
+Artículo 20.—Ejecución Municipal de las obras. La Municipalidad en caso de que el Comité de Caminos no asuma la responsabilidad de ejecutar las actividades contratará ONGs para la realización de las mismas o las realizara la Municipalidad de Osa, por cuenta propia.

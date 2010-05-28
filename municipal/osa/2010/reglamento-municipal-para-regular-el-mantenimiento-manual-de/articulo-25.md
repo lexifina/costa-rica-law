@@ -1,0 +1,1 @@
+Artículo 25.—Pasos de Alcantarilla. En los pasos de accesos a propiedades privadas o servidumbre, ya sean entradas o salidas, los dueños de propiedades deberán instalar un paso de alcantarilla no inferior a los 30cm de diámetro, siempre considerando los criterios técnicos que en última instancia deberán ser emitidos por la Unidad Técnica de Gestión Vial Municipal.

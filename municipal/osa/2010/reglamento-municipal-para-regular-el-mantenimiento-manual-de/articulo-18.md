@@ -1,0 +1,1 @@
+Artículo 18.—Cobro administrativo y judicial. El administrado que no cancele sus deudas por los trabajos de mantenimiento ejecutados por la Municipalidad de Osa, será sometido a los procedimientos de cobro administrativo y judicial, en los cuales se pueden cargar a los impuestos municipales.
