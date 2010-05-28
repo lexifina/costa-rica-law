@@ -54,20 +54,58 @@ d) Realice una descripción de las políticas para la remuneración de los miemb
 e) Si la entidad ha dispuesto voluntariamente una política interna sobre rotación, realice una descripción de las políticas sobre rotación de los miembros de los comités de apoyo.
 f) Realice una descripción de las políticas aprobadas por la entidad mediante las cuales los miembros de los comités de apoyo se ven obligados a abstenerse a votar o participar en las reuniones del comité, o inclusive a dimitir de su nombramiento.
 g) Indique la cantidad de sesiones que realizó cada comité de apoyo durante el periodo.
-IV. Operaciones vinculadas
-a) Detalle las operaciones relevantes que supongan una transferencia de recursos u obligaciones entre la entidad y los miembros de Junta Directiva u órgano equivalente de alguna de las entidades del grupo o conglomerado, incluyendo la controladora. Revele al menos:
-i. Nombre del director.
-ii. Tipo de operación.
-iii. Moneda y monto de la operación.
-b) Detalle las operaciones relevantes que supongan una transferencia de recursos u obligaciones entre la entidad y otras empresas de su grupo vinculado. Revele al menos:
-i. Nombre de la entidad.
-ii. Tipo de operación.
-iii. Moneda y monto de la operación.
-c) En el caso de emisores de valores accionarios, detalle las operaciones relevantes que supongan una transferencia de recursos u obligaciones entre la entidad y los accionistas con influencia significativa de la entidad. Revele al menos:
-i. Nombre del accionista con influencia significativa.
-ii. Tipo de operación.
-iii. Moneda y monto de la operación.
-Las operaciones relevantes que se incluyen en este apartado se refieren a aquellas operaciones cuyo monto sea igual o supere el cinco por ciento (5%) del total del patrimonio a la fecha de cierre del periodo, si se trata de partidas relacionadas con activos o pasivos, o del diez por ciento (10%) de total de ingresos de los resultados acumulados del periodo, si se trata de partidas relacionadas con ingresos o gastos.
+(*)IV. Operaciones vinculadas
+a) Detalle las operaciones relevantes que supongan una transferencia de recursos u obligaciones entre la entidad y los miembros de Junta Directiva u órgano equivalente y los ejecutivos de alguna de las entidades del grupo o conglomerado, incluyendo la controladora. Revele en forma agregada para cada empresa que comprende el informe, lo siguiente:
+ENTIDAD: _____________________ Fecha de Corte: __________________
+Operaciones de los miembros de Junta Directiva u Órgano equivalente y ejecutivos
+1. Operaciones Relacionadas con activos o pasivos | Porcentaje respecto al patrimonio de la entidad | Número de miembros de Junta Directiva contemplada en la participación
+Créditos otorgados | |
+Inversiones | |
+Otras operaciones activas | |
+Captaciones a la vista | |
+Captaciones a plazo | |
+Captaciones a través de Bonos de oferta pública | |
+Otras operaciones pasivas | |
+2. Operaciones Relacionadas con ingresos o gastos | Porcentaje respecto a los Ingresos totales de la entidad | Cantidad de Miembros de Junta Directiva contemplados en participación
+Ingresos financieros | |
+Otros ingresos | |
+Gastos financieros | |
+Otros gastos | |
+A efectos de este inciso, se debe utilizar la definición de ejecutivo establecida en el inciso b) del artículo 3 del Reglamento de Gobierno Corporativo.
+b) Detalle las operaciones relevantes que supongan una transferencia de recursos u obligaciones entre la entidad y otras empresas o personas de su grupo vinculado, no contempladas en el inciso a anterior. Revele en forma agregada para cada empresa que comprende el informe, lo siguiente:
+ENTIDAD: _____________________ Fecha de Corte: __________________
+Operaciones con otras empresas o personas de su grupo vinculado, no contempladas en el inciso a) anterior
+1. Operaciones Relacionadas con activos o pasivos | Porcentaje respecto al patrimonio de la entidad | Cantidad de empresas contempladas en la participación
+Créditos otorgados | |
+Inversiones | |
+Otras operaciones activas | |
+Captaciones a la vista | |
+Captaciones a plazo | |
+Captaciones a través de Bonos de oferta pública | |
+Otras operaciones pasivas | |
+2. Operaciones Relacionadas con ingresos o gastos | Porcentaje respecto a los Ingresos totales de la entidad | Cantidad de Empresas contempladas en la participación
+Ingresos financieros | |
+Otros ingresos | |
+Gastos financieros | |
+Gastos financieros | |
+c) En el caso de emisores de valores accionarios, detalle las operaciones relevantes que supongan una transferencia de recursos u obligaciones entre la entidad y los accionistas con influencia significativa de la entidad. Revele en forma agregada para cada empresa que comprende el informe, lo siguiente:
+ENTIDAD: _____________________ Fecha de Corte: __________________
+Operaciones con accionistas con influencia significativa de la entidad
+1. Operaciones Relacionadas con activos o pasivos | Porcentaje respecto al patrimonio de la entidad | Cantidad de accionistas contemplados en la participación
+Créditos otorgados | |
+Inversiones realizadas | |
+Otras operaciones activas | |
+Captaciones a la vista | |
+Captaciones a plazo | |
+Captaciones a través de Bonos de oferta pública | |
+Otras operaciones pasivas | |
+2. Operaciones Relacionadas con ingresos o gastos | Porcentaje respecto a los Ingresos totales de la entidad | Cantidad de accionistas contemplados en la participación
+Ingresos financieros | |
+Otros ingresos | |
+Gastos financieros | |
+Otros gastos | |
+Las operaciones relevantes que se incluyen en este apartado se refieren a todas las operaciones sin importar su cuantía. En el caso partidas relacionadas con activos o pasivos corresponde al saldo a la fecha de corte, en relación con el patrimonio de la entidad; si se trata de partidas relacionadas con ingresos o gastos corresponde al saldo acumulado en el periodo en ejercicio que se reporta, en relación con los ingresos totales. Si se presenta un informe anual de gobierno corporativo elaborado por la controladora que aplica para todo el grupo o conglomerado, se debe revelar dicha información para cada entidad del grupo en forma individual.
+(Así reformado el aparte IV)anterior en sesión Nº 854-2010 del 28 de mayo de 2010)
 V. Auditoría externa
 a) Nombre de la firma de auditoría externa contratada para la auditoría de los estados financieros del periodo.
 b) Indique el número de años que la firma de auditoría externa lleva de forma ininterrumpida realizando la auditoría de los estados financieros de la entidad y/o su grupo.
