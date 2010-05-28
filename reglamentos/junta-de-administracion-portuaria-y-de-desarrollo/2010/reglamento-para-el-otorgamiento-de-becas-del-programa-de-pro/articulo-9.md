@@ -1,0 +1,1 @@
+Artículo 9º—Procedimiento de aprobación de las becas. Previa ratificación por parte de CONAPE, de que existe disponibilidad presupuestaria y satisfechos todos los requisitos anteriores, CONAPE aprobará el préstamo y la beca respectiva y lo notificará al FODELI.
