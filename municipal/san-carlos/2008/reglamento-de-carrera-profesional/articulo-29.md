@@ -1,0 +1,1 @@
+Artículo 29.—Una vez aprobado y definido el monto del incentivo, la Comisión informará al Departamento de Recursos Humanos para que se presupueste el respectivo pago y se haga efectivo el mismo; y regirá a partir de la fecha de presentación de la solicitud del profesional, con la respectiva documentación ante la Comisión.

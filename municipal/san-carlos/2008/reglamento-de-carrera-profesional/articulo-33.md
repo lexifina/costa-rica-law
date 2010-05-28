@@ -1,0 +1,4 @@
+Articulo 33.—Los ajustes a la Carrera Profesional podrán ser solicitados a la respectiva Comisión, en cualquier momento, siempre y cuando el interesado demuestre que tiene derecho al reconocimiento de un mayor número de puntos en alguno o varios de los factores.
+No obstante, la Municipalidad, cuando lo considere pertinente, podrá aplicar en cualquier momento, a los servidores que demuestren que tienen derecho al reconocimiento de un mayor número de puntos, en la aplicación de los factores que se autoricen en este reglamento, sujeto a la capacidad financiera de la Municipalidad.
+Aprobado por el Concejo Municipal en sesión ordinaria celebrada el lunes 28 de abril del 2008, en el salón de sesiones de la Municipalidad de San Carlos mediante artículo 14 acta 27.
+Ciudad Quesada, San Carlos, 3 de marzo del 2010

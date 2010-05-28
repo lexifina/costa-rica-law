@@ -1,0 +1,2 @@
+Artículo 28.—Si la resolución de la Comisión no fuera aceptada por el interesado, ésta podrá presentar un recurso de revisión para ante la Comisión, en el Departamento de Recursos Humanos, dentro de los seis días hábiles siguientes a su notificación, la que tendrá un plazo igual para pronunciarse.
+Si la resolución de la Comisión fuera negativa u omisa, el profesional podrá apelar, dentro de seis días hábiles siguientes, ante el Concejo Municipal, quien agotará la vía administrativa.

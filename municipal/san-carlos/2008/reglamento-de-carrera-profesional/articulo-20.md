@@ -1,0 +1,2 @@
+De los idiomas
+Artículo 20.—El reconocimiento de uno o más idiomas diferentes al español, se hará siempre que el profesional demuestre el dominio completo (oral y escrito), del idioma para lo cual el interesado debe presentar ante la Comisión la Certificación o Título extendida por la institución que impartió el idioma. La calificación certificada por este concepto, debe contemplar comprensión y expresión escrita y oral.

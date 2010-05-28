@@ -1,0 +1,1 @@
+Artículo 27.—La Comisión estudiará la solicitud y si la aprobare, determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará por medio del Departamento de Recursos Humanos al interesado su resultado.

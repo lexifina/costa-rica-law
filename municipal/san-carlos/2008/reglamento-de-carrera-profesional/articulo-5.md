@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión de Carrera Profesional no hará estudios de oficio, solo revisará solicitudes que ingresen y se tramiten por su medio. Sesionará cuando las condiciones así lo ameriten a través de la solicitud expresa de dos de sus miembros que la convoquen. Los asuntos tratados serán votados y resueltos por simple mayoría.

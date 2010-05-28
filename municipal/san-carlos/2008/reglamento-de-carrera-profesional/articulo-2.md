@@ -1,0 +1,15 @@
+Artículo 2º—La Carrera Profesional tendrá como objetivos básicos los siguientes:
+a) Propiciar el ingreso, permanencia, desarrollo, superación académica y laboral de los profesionales, con el fin de que puedan ofrecer de forma eficaz y eficiente sus servicios a la Municipalidad de San Carlos.
+b) Retener en la Institución a los profesionales mejor calificados con los cuales pueda ejecutar sus programas, lograr sus metas y objetivos estratégicos institucionales.
+CAPÍTULO II
+Definiciones
+Para efecto del presente Reglamento, rigen las siguientes definiciones:
+Comisión de carrera profesional: La Comisión estará integrada por el Alcalde o por quien éste designe, y dos representantes de los profesionales que laboran para la Municipalidad de San Carlos.
+Carrera profesional: Denomínese “Carrera Profesional” al incentivo económico aplicable a los funcionarios/as de nivel profesional que trabajen en la Municipalidad de San Carlos, concedido en sus grados académicos, especialidades y postgrados académicos.
+Personal profesional: Se trata de toda aquella persona que labore en la Municipalidad de San Carlos, que posea al menos el grado académico de Bachillerato Universitario
+Grado académico: Es el nivel profesional dentro de la escala creada por las Instituciones de Educación Superior, para indicar la profundidad y amplitud de conocimientos y habilidades por las autoridades superiores de la entidad educativa correspondiente. Queda entendido que al funcionario una vez cumplidos los requisitos antes apuntados y cuyo pago regirá a partir del momento en que el funcionario presente la documentación completa a la Comisión de Carrera Profesional, según artículos Nos. 4, 5 y 6 de este Reglamento.
+Experiencia profesional: Este se considera como aquel tiempo mediante el cual el profesional, con posterioridad a la obtención del Bachillerato Universitario o Licenciatura, haya laborado en la Institución.
+Cursos y seminarios de capacitación: Asistencia a actividades que tienen como objeto el estudio y actualización de algún aspecto específico y atinente con la actividad desempeñada en la Municipalidad de San Carlos relativa con una materia o disciplina relacionado con la referida preparación, ya sea de materiales de orden didáctico, atención a estudiantes en la elaboración y corrección de pruebas y supervisión de prácticas. Dichos cursos serán organizados por el área de Recursos Humanos de la Entidad Municipal.
+Experiencia en organismos internacionales: Tiempo laborado con posterioridad a la obtención del Bachillerato Universitario o Licenciatura en un organismo Internacional, realizando labores afines a su especialidad.
+Dominio de idiomas: Conocimiento y práctica tanto escrita como oral de idiomas diferentes al Español.
+Trabajos administrativos: Elaboración de trabajos administrativos que en virtud de su ejecución, demuestren un mejoramiento sustancial de los servicios que presta el Municipio o que conduzcan a una significativa racionalidad de los recursos disponibles para brindar esos servicios y valorados por la Comisión de Carrera Profesional.

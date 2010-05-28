@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los factores del incentivo por carrera profesional
+Artículo 8º—Se tomarán como factores objeto de incentivo por la Carrera Profesional, los siguientes: Grado Académico, Estudios Adicionales al Bachillerato y a la Licenciatura, experiencia profesional en el servicio público y privado debidamente acreditada, cursos de capacitación, participación como instructor, publicaciones calificadas, experiencia docente en instituciones de Educación Superior Universitaria y Para-Universitaria, experiencia en organismos internacionales relacionados con la actividad propia de la Municipalidad y el dominio de idiomas debidamente acreditada así como la realización de trabajos técnico-administrativos.

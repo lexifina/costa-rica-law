@@ -1,0 +1,1 @@
+Artículo 21.—La elaboración e implementación de trabajos administrativos, se reconocerá siempre que el profesional demuestre que hubo racionalización de recursos o bien mejoramiento de servicios, tanto con razones cuantitativas como cualitativas ante la Comisión.

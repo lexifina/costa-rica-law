@@ -1,0 +1,1 @@
+Artículo 24.—El profesional podrá recuperar el incentivo de la Carrera Profesional que disfrutaba, si el año siguiente de la calificación de servicios que motivó la suspensión requerida, obtuviera en la calificación de servicios una nota igual o mayor a la tercera mejor nota.
