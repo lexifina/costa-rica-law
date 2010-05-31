@@ -14,3 +14,4 @@ Reglamento Interno de Sesiones y Comisiones del Concejo de la Municipalidad del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-04 | la propia norma |
+| 2 | 2010-05-31 | Reglamento municipal 22 (2010-05-31) |
