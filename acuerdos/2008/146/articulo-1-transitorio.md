@@ -1,1 +1,0 @@
-Transitorio I.—En un plazo de tres meses posteriores a la entrada en vigencia de este acuerdo, las sociedades administradoras deben cumplir con el calce de activos y obligaciones a un mes en los fondos de inversión abiertos que utilicen el esquema de operación dispuesto en el inciso c) del artículo 61 del Reglamento general sobre sociedades administradoras y fondos de inversión.
