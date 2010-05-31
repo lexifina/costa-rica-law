@@ -1,0 +1,1 @@
+Transitorio III.—Se mantiene en vigencia el período de amnistía, de un año calendario, que finaliza el 4 de diciembre del 2010, en el cobro de la tramitación del CVO para las fincas de ganado bovino, establecida en el Transitorio III del Decreto Nº 35604-MAG del 28 de octubre del 2009.
