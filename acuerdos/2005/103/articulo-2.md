@@ -1,4 +1,0 @@
-Artículo 2º—Advertencias y leyendas para el inversionista. La página Web deberá contar con advertencias y leyendas para que el inversionista conozca con claridad sobre el producto en el cual invierte o desea invertir. Las advertencias y leyendas deberán estar disponibles en las secciones donde se despliegue la información requerida en el artículo 1º de este acuerdo y como mínimo se deberán considerar las siguientes:
-a. Leyendas dispuestas en el artículo 91, 93, 94 y 95 del Reglamento general sobre Sociedades administradoras y Fondos de inversión.
-b. Leyenda: “Un fondo de inversión no es un depósito bancario, por lo que no está asegurado ni garantizado por el Estado Costarricense, ni por la sociedad administradora o su grupo financiero”.
-c. Leyenda: “Para obtener mayor información sobre los fondos de inversión, se pueden realizar consultas a cualquier oficina de la sociedad administradora o a la Superintendencia General de Valores”.
