@@ -1,1 +1,1 @@
-Artículo 13.-A las personas físicas o jurídicas que no hayan presentado la declaración sobre la renta, teniendo la obligación de hacerlo, o a las que estén excluidas de tal obligación, se les aplicará la tarifa que establece el artículo 18 de esta ley.
+Artículo 13.-(Derogado por el artículo 9º de la ley Nº 8817 del 3 de mayo de 2010)

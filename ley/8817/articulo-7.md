@@ -1,0 +1,5 @@
+ARTÍCULO 7.-
+Refórmase el artículo 16 de la Ley N.º 6717, de 10 de marzo de 1982. El texto dirá:
+“Artículo 16.-
+A excepción de lo dispuesto en el artículo 15 de esta Ley, la actividad expresamente descrita a continuación pagará por impuesto de patente, tal como se describe.
+Embarcaciones, excepto las de bandera costarricense, que arriben a la jurisdicción de la Municipalidad de Limón, pagarán por concepto de zarpe el equivalente a cinco centavos de dólar moneda de los Estados Unidos de América (US $ 0,05) por cada unidad de tonelaje de registro bruto (TRB). Para el cálculo de valor en moneda costarricense se tomará el tipo de cambio para la venta del día anterior al zarpe, determinado por el Banco Central de Costa Rica o el interbancario, según se trate. La Capitanía de Puerto no autorizará el zarpe de naves que no hayan pagado el impuesto municipal.”

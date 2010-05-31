@@ -1,1 +1,1 @@
-Artículo 23.-Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 687-96 del 07 de febrero de 1996)
+Artículo 23.-(Derogado por el artículo 9º de la ley Nº 8817 del 3 de mayo de 2010)
