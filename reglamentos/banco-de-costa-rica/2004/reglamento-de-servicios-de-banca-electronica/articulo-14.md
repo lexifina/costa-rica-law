@@ -1,1 +1,0 @@
-Artículo 14.—Todas aquellas transacciones realizadas en los diferentes canales que ofrece la Banca Electrónica, mediante el uso de la clave de identificación o PIN correcto, se reputarán para todos los efectos, como efectuadas por el cliente.

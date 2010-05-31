@@ -1,1 +1,0 @@
-Artículo 9º—Constituye plena prueba los registros físicos, digitales, lógicos o de cualquier otro tipo, que refleje el Banco cuando se efectúan transacciones por medio de la Banca Electrónica, que requieren del uso de número de clave o PIN u otros que en un futuro el Banco le entregue al cliente.

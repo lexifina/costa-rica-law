@@ -1,1 +1,0 @@
-Transitorio I.—Dentro de los tres meses siguientes a la entrada en vigencia de este reglamento, el Banco deberá tener ajustado los sistemas de cómputo, para el cumplimiento de los requisitos exigidos para la divulgación y aceptación de parte de los clientes de estas disposiciones.

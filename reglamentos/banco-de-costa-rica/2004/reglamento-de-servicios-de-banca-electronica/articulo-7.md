@@ -1,1 +1,0 @@
-Artículo 7º—El usuario se obliga a conocer y aplicar en forma correcta las instrucciones de operación de los sistemas ofrecidos por el Banco. El Banco queda relevado de toda responsabilidad por los daños que al usuario le puedan resultar a causa del desconocimiento o mal uso de dichos sistemas.

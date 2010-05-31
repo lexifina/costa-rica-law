@@ -1,1 +1,0 @@
-Artículo 62.—Antes del vencimiento del plazo en cualquier momento el cliente podrá solicitar la cancelación de la tarjeta virtual. Para ello el Banco pondrá a su disposición en la Oficina Virtual una opción mediante la cual podrá realizar automáticamente este trámite.

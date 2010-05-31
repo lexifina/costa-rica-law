@@ -1,1 +1,0 @@
-Artículo 21.—No será obligación del BANCO habilitar en todos los casos la totalidad de los Servicios Bancarios que ofrezca a través de sus Sistemas Electrónicos, por lo que se reserva el derecho de ampliar o disminuir el número de Servicios Bancarios ofrecidos.
