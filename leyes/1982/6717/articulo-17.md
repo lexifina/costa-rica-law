@@ -1,5 +1,3 @@
-Artículo 17.-Los establecimientos que se dediquen principalmente al hospedaje momentáneo se regirán conforme a la siguiente clasificación.
-a)Hoteles y similares (hospedaje, casa, pensiones alojamientos).
-Establecimientos cuya actividad principal sea permitir el hospedaje momentáneo; pagarán trimestralmente ¢ 1.070,50 por cada habitación.
-b)Hoteles o similares (hospedaje, casa, pensiones), con servicios (restaurante, piscina, y otros) pagarán trimestralmente ¢ 711,20 por cada habitación.
-(Así reformado por resolución de la Contraloría General de la República, Nº 1 del 13 de octubre de 1995)
+Artículo 17.-
+Por cada pasajero en tránsito, los transportistas marítimos encargados de la atención de naves dedicadas al transporte de pasajeros en modalidad turistas, que atraquen en las instalaciones portuarias de la jurisdicción de la Municipalidad de Limón, pagarán el equivalente a un dólar con cincuenta centavos de Estados Unidos de América (US $ 1,50), según la nómina de registro de la nave. Se exceptúa del pago a la tripulación, según la nómina de registro presentada ante la Capitanía de Puerto.
+(Así reformado por el artículo 8º de la ley Nº 8817 del 3 de mayo de 2010)

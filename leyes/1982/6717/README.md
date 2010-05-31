@@ -1,6 +1,6 @@
 # Ley Impuestos Municipales de Limón
 
-Ley N° 6717 del 1982-03-10. SINALEVI, ficha 68024: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68024&param2=80874&param3=1>.
+Ley N° 6717 del 1982-03-10. SINALEVI, ficha 68024: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68024&param2=80939&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 1987-07-29 | Ley 7067 | 1987-07-29 |
 | 4 de 6 | 1995-11-03 | Resolución 1 (1995-10-13) | 1995-10-13 |
 | 5 de 6 | 1996-02-07 | Sala Constitucional, resolución 687-96 (1996-02-07) | 1996-02-07 |
+| 6 de 6 | 2010-05-31 | Ley 8817 | 2010-05-03 |

@@ -1,1 +1,3 @@
-Artículo 3º-El impuesto de patente será fijado por la Municipalidad, de acuerdo con lo establecido en los artículos 15, 16, 17, 18 Y 19 de esta ley, y con el reglamento que para ese efecto dicte la Municipalidad.
+Artículo 3.-
+El impuesto de patente será fijado por la Municipalidad de acuerdo con lo establecido en esta Ley. Se faculta a la Municipalidad para que emita el reglamento correspondiente.
+(Así reformado por el artículo 1º de la ley Nº 8817 del 3 de mayo de 2010)
