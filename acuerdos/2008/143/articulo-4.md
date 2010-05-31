@@ -1,1 +1,0 @@
-Artículo 4º—Políticas para las inversiones por cuenta propia. La junta directiva de la sociedad administradora debe definir las políticas para las inversiones por cuenta propia de la entidad. Estas políticas deben especificar los objetivos, los parámetros de diversificación y tipos de valores autorizados.

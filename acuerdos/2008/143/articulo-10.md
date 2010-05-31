@@ -1,1 +1,0 @@
-Artículo 10.—Fondos activos e inactivos. En el sistema de información de la sociedad administradora debe mostrar el estado de cada fondo como activo si se encuentra en operación o inactivo si fue desinscrito. En este último caso también debe mostrarse la fecha del último cierre.
