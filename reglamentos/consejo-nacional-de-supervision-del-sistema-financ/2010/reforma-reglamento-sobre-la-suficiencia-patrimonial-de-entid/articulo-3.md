@@ -1,0 +1,1 @@
+3. Modificar el inciso c) del artículo 9 del Acuerdo SUGEF 3-06 “Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras”, de conformidad con el siguiente texto: “c. Deuda subordinada que cumpla con las condiciones y requerimientos dispuestos en el artículo 7 de este reglamento.”

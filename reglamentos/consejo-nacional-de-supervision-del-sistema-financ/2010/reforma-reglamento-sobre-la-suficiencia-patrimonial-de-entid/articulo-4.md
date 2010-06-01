@@ -1,0 +1,1 @@
+4. Eliminar el inciso d) del artículo 9 del Acuerdo SUGEF 3-06 “Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras” y modificar el párrafo siguiente a dicho inciso d) de conformidad con el siguiente texto: “Al monto que resulte de la suma de los incisos a), b), y c) anteriores deben deducirse los siguientes elementos.”
