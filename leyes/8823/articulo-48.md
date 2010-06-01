@@ -1,0 +1,2 @@
+ARTÍCULO 48.- Refórmase el artículo 3 de la Ley N.º 3418 conocida con el nombre Obligación de las instituciones autónomas del Estado a contribuir con el pago de las cuotas para organismos internacionales, de 3 de octubre de 1964. El texto dirá:
+“Artículo 3.- Para determinar los montos a que se refiere el artículo anterior, el Poder Ejecutivo solicitará a las instituciones sujetas a esta Ley las cifras bases correspondientes a los presupuestos administrativos indicados en el artículo 2.”

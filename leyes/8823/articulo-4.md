@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Refórmase el artículo 2 bis de la Ley de rifas y loterías, N.º 1387, de 21 de noviembre de 1951, adicionado por el artículo 4 de la Ley N.º 6463, de 18 de setiembre de 1980. El texto dirá:
+“Artículo 2 bis.- Toda rifa de vehículos automotores, exonerados de impuestos, que autorice la Asamblea Legislativa a las agrupaciones de ayuda social, tales como clubes de leones, juniors, rotarios, damas voluntarias u otras, deberá producir una suma de dinero igual o superior al precio que tenga el vehículo por rifarse, incluidos los impuestos respectivos, en el mercado nacional.
+La Dirección General de Tributación velará por la aplicación de la presente norma.”

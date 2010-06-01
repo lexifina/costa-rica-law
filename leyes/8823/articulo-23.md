@@ -1,0 +1,2 @@
+ARTÍCULO 23.- Refórmase el artículo 18 de la Ley orgánica del Instituto Nacional de Aprendizaje (INA), N.º 6868, de 6 de mayo de 1983. El texto dirá:
+“Artículo 18.- La adquisición de bienes y servicios que requiera el Instituto, así como la venta de los bienes y servicios que produzca con sus actividades de capacitación y formación profesional se regulará por lo dispuesto en la Ley de contratación administrativa.”

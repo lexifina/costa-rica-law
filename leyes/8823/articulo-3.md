@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Refórmase el artículo 58 del Código de Educación, N.° 181, de 18 de agosto de 1944, reformado por el artículo 1 de la Ley N.º 2949, de 18 de diciembre de 1961. El texto dirá:
+“Artículo 58.- Los tesoreros escolares tendrán como honorarios un cinco por ciento (5%) sobre las cantidades que mensualmente recauden, salvo sobre las sumas directamente entregadas por el tesoro público. Las juntas pagarán las primas de las fianzas de los tesoreros. En todo caso, los honorarios indicados no podrán exceder de mil colones mensuales.”

@@ -1,0 +1,2 @@
+ARTÍCULO 26.- Refórmase el artículo 5 de la Ley N.° 6957, de 13 de marzo de 1984, que autoriza al Ministerio de Hacienda a girar la diferencia resultante de la emisión de bonos autorizada mediante el artículo 6 de la Ley N.º 6839, de 5 de enero de 1983. El texto dirá:
+“Artículo 5.- Autorízase al Ministerio de Educación Pública para que contrate la adquisición de equipo destinado a promover y desarrollar las actividades productivas de los colegios agropecuarios o técnicos profesionales, especialmente de aquellos donde estén funcionando cooperativas juveniles.”

@@ -1,0 +1,2 @@
+ARTÍCULO 12.- Refórmase el artículo 28 de la Ley de creación del Instituto Mixto de Ayuda Social (IMAS), N.º 4760, de 4 de mayo de 1971. El texto dirá:
+“Artículo 28.- El IMAS podrá celebrar empréstitos con autorización de la Asamblea Legislativa cuando vayan a realizarse con entidades extranjeras o cuando se efectúen en el país con capital extranjero y en los demás casos lo que determine la Ley de administración financiera de la República y presupuestos públicos.”
