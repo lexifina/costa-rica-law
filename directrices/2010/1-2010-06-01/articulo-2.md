@@ -1,0 +1,1 @@
+Artículo 2º—Los ministros, presidentes ejecutivos y demás jerarcas institucionales asumirán como prioritaria la actividad relacionada con el proceso de elaboración, ejecución, seguimiento y evaluación, así como la asignación de los recursos para el cumplimiento de las metas establecidas en el PND.

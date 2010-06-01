@@ -1,0 +1,2 @@
+Artículo 12.—Los programas y proyectos serán ordenados de acuerdo con las prioridades establecidas por cada ministro rector y avalados por el Consejo Presidencial respectivo de forma tal que se facilite la asignación de los recursos, el seguimiento, evaluación y verificación de resultados. Las actividades de carácter rutinario u operativo de las instituciones no serán consideradas en el PND.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 135 del 13 de julio de 2010)

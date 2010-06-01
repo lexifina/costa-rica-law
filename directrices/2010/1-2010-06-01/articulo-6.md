@@ -1,0 +1,1 @@
+Artículo 6º—El MIDEPLAN brindará la metodología para orientar la elaboración de las propuestas sectoriales a ser incorporadas en el PND, que una vez aprobadas por el rector y avaladas por el Consejo Presidencial respectivo.

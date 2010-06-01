@@ -1,0 +1,1 @@
+Artículo 19.—Los ministros rectores de cada sector remitirán a MIDEPLAN las modificaciones, así como los informes periódicos y finales de seguimiento y evaluación del PND y los harán de conocimiento del Consejo Presidencial.

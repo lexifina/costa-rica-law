@@ -1,0 +1,1 @@
+Artículo 16.—El PND se podrá modificar bajo las orientaciones establecidas en el Decreto Ejecutivo 31.324-PLAN de fecha 14 de julio de 2003 y sus reformas, de tal forma que conserve su carácter estratégico.

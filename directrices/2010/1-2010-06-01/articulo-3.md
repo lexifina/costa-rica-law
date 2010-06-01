@@ -1,0 +1,1 @@
+Artículo 3º—Con el propósito de fomentar el diálogo social, la confianza y la cooperación entre los sectores, instituciones y los actores de la sociedad, cada sector en el marco de la elaboración del PND invitará a los actores sociales en la construcción de las propuestas que se van a incorporar en el Plan.

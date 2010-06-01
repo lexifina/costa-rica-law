@@ -1,0 +1,1 @@
+Artículo 18.—En el caso de las acciones intersectoriales, cada sector formulará la meta que le corresponde ejecutar de acuerdo con sus competencias y responsabilidades. No se aceptarán metas iguales en diferentes sectores para tal efecto MIDEPLAN definirá en cual sector se mantiene.

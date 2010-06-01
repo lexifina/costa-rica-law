@@ -1,0 +1,1 @@
+Artículo 5º—Dado que el presupuesto tanto del Gobierno Central, como de las instituciones descentralizadas, debe reflejar las prioridades contempladas en el PND, el Ministerio de Hacienda y la Contraloría General de la República asegurarán que en las aprobaciones presupuestarias se asignen los recursos necesarios para la ejecución de sus metas y acciones estratégicas.

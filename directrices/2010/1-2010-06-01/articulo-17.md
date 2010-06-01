@@ -1,0 +1,1 @@
+Artículo 17.—En el marco de los compromisos Internacionales asumidos por el país como la Declaración del Milenio y otros, las instituciones que tengan responsabilidad en su cumplimiento incluirán las acciones con sus correspondientes metas en las propuestas sectoriales.
