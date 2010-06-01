@@ -1,0 +1,9 @@
+CAPÍTULO QUINTO
+De la operación y los aportes del Subsector Energía
+Artículo 12.—El Consejo Subsectorial de Energía actuará conforme las siguientes condiciones:
+a) El Consejo Subsectorial de Energía sesionará al menos una vez cada cuatro meses en sesiones ordinarias y en sesiones extraordinarias cuando sea convocada por el respectivo Ministro Rector.
+b) Las convocatorias las hará el Ministro Rector por medio de la Secretaría Ejecutiva de Planificación del Subsector Energía, la cual deberá hacerse por escrito, especificando el orden del día.
+c) El Ministro Rector recurrirá a la Secretaría Ejecutiva de Planificación del Subsector Energía cuando requiera cualquier documentación relacionada con los acuerdos, resoluciones, planes o programas del Consejo Subsectorial de Energía.
+d) Las sesiones del Consejo Subsectorial de Energía serán privadas, pero, cuando se considere pertinente, podrá autorizarse la participación de ciudadanos, asesores, colaboradores o especialistas en temas de interés para el Consejo. Igualmente, se permitirá la presencia del Director de la Secretaría como Secretario de la sesión y del personal de apoyo logístico necesario.
+e) De cada sesión ordinaria o extraordinaria, se levantará un acta que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, los resultados y el contenido de los acuerdos.
+f) Los órganos, entes, instituciones y empresas públicas del Subsector Energía deberán presentar al Ministro Rector un informe anual sobre los resultados de ejecución de los acuerdos tomados por el Consejo Subsectorial de Energía con copia a la Secretaría Ejecutiva de Planificación del Subsector Energía. El Ministro Rector, a su vez, presentará al Presidente de la República el informe consolidado, comentado y analizado de su sector.

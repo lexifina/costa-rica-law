@@ -1,0 +1,1 @@
+Artículo 15.—El Director de la SEPSE, será un profesional especializado en las áreas de ingeniería o ciencias económicas. Será nombrado y removido por el Ministro Rector, previa consulta al Consejo Subsectorial de Energía, quien tomará la decisión en sesión ordinaria o extraordinaria por mayoría simple.

@@ -1,0 +1,1 @@
+Artículo 14.—Las instituciones y empresas públicas integrantes del Subsector Energía proveerán a la Secretaría de Planificación Subsectorial, mediante convenio, de los recursos humanos, técnicos y financieros, así como los materiales y equipos necesarios para la realización de sus funciones de conformidad con las disposiciones legales vigentes.
