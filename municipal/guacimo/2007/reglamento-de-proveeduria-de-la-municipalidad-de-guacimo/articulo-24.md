@@ -1,4 +1,2 @@
-Artículo 24.—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Acuerdo Nº 4. Aprobado por unanimidad.
-(Acuerdo tomado en la sesión ordinaria Nº 15-07, Acta Nº 19-07, celebrada el día 10 de abril 2007).
-Guácimo, 24 de abril del 2007.
+Artículo 24.—Para garantizar la rotación de proveedores, la Administración de forma aleatoria, según sea la naturaleza del objeto de contratación, invitara en subgrupos, siendo que para la implementación de futuros procesos, incluirá la invitación a los subgrupos de los oferentes, que no fueron tomados en cuenta en el proceso previo, formula que aplicará rotativamente y que deberá documentarse adecuadamente. Para tal efecto se tiene por claro que en el caso de contrataciones directas al menos se formarán subgrupos de tres, y en el caso de licitaciones abreviadas serán subgrupos de cinco. En todo caso, dependiendo el número total de oferentes que para un tipo de servicio, disponga el registro de proveedores de esta Municipalidad, podrá optar el Departamento de Proveeduría por invitar a la totalidad de los inscritos. Finalmente, a la hora de seleccionar aleatoriamente los subgrupos, se dispondrá el que en contrataciones consecutivas cuyo objeto sea de la misma naturaleza, no se repetirá la invitación a un mismo proveedor.
+(Así adicionado en sesión N° 22 del 1° de junio de 2010)
