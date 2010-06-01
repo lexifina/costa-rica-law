@@ -14,3 +14,4 @@ Unificación de criterio traspaso en Propiedad Fiduciaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-20 | la propia norma |
+| 2 | 2010-06-01 | Directriz 4 (2010-06-01) |
