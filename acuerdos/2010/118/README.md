@@ -14,3 +14,4 @@ Se prohíbe de manera total a Flotas Pesqueras Nacionales Comerciales, excepto f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-30 | la propia norma |
+| 2 | 2010-06-01 | Acuerdo 178 (2010-06-01) |
