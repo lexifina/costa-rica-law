@@ -1,7 +1,2 @@
-Artículo 23.- El fondo, de que habla el artículo anterior, se
-depositará en una cuenta especial, abierta en cualquiera de los bancos
-del Sistema Bancario Nacional y la revisión, reglamentación y control de
-ella estará a cargo de la Contraloría General de la República. Los
-procedimientos relativos a la apertura, forma de llevar la contabilidad y
-la operación en general de dicha cuenta, se hará a través del reglamento
-de la presente ley.
+Artículo 23.- El Fondo mencionado en el artículo anterior se depositará en una cuenta especial, abierta en cualquiera de los bancos del Sistema Bancario Nacional. Los procedimientos relativos a la apertura, la forma de llevar la contabilidad y la operación en general de dicha cuenta se harán mediante el Reglamento de la presente Ley.
+(Así reformado por el artículo 18° de la ley N° 8823 del 5 de mayo de 2010)

@@ -9,7 +9,8 @@ f) Conocer en alzada de los recursos presentados contra las decisiones del Presi
 g) Dictar, reformar e interpretar los reglamentos internos del Instituto, los cuales, para su eficacia, deberán publicarse en el Diario Oficial La Gaceta.
 h) Crear las direcciones técnicas y los departamentos que considere necesarios para el desempeño eficiente del Instituto.
 i) Regular los márgenes de utilidad para las empresas comercializadoras y exportadoras, para lo cual tomará en consideración el dictamen de la Comisión de Mercadeo.
-j) Autorizar la adquisición, el gravamen o la enajenación de bienes y resolver las licitaciones, con el visto bueno de la Contraloría General de la República.
+j) Autorizar la adquisición, el gravamen o la enajenación de bienes y resolver las licitaciones.
+(Así reformado por el artículo 36° de la ley N° 8823 del 5 de mayo de 2010)
 k) Establecer los montos por cobrar por la venta de bienes y servicios que preste y genere el Instituto.
 l) Nombrar de su seno al Vicepresidente en la primera sesión.
 ll) Elaborar los proyectos de ley que se estime necesarios para lograr mejor y con mayor rapidez, los objetivos establecidos en esta Ley.

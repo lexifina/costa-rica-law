@@ -1,6 +1,6 @@
 # Ley de Donaciones al Museo Nacional de Costa Rica
 
-Ley N° 7429 del 1994-09-14. SINALEVI, ficha 20747: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=20747&param2=22071&param3=1>.
+Ley N° 7429 del 1994-09-14. SINALEVI, ficha 20747: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=20747&param2=80903&param3=1>.
 
 Publicada en La Gaceta N° 191 del 1994-10-07.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1994-10-07 | Ley 7429 | 1994-09-14 |
 | 2 de 3 | 1994-10-07 | Ley 5 | 1994-09-14 |
+| 3 de 3 | 2010-06-01 | Ley 8823 | 2010-05-05 |

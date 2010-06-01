@@ -1,6 +1,6 @@
 # Regula la Ejecución del Proyecto Turístico de Papagayo
 
-Ley N° 6758 del 1982-06-04. SINALEVI, ficha 38228: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38228&param2=40302&param3=1>.
+Ley N° 6758 del 1982-06-04. SINALEVI, ficha 38228: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38228&param2=80878&param3=1>.
 
 Publicada en La Gaceta N° 122 del 1982-06-25.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1982-06-25 | Ley 6758 | 1982-06-04 |
 | 2 de 3 | 1982-06-25 | SINALEVI | 1982-06-04 |
+| 3 de 3 | 2010-06-01 | Ley 8823 | 2010-05-05 |

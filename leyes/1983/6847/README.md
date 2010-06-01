@@ -1,6 +1,6 @@
 # Ley Fomento Industrias Rurales
 
-Ley N° 6847 del 1983-02-01. SINALEVI, ficha 8998: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8998&param2=9654&param3=1>.
+Ley N° 6847 del 1983-02-01. SINALEVI, ficha 8998: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8998&param2=80879&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1983-02-01 | Ley 6847 | 1983-02-01 |
 | 2 de 3 | 1983-02-01 | SINALEVI | 1983-02-01 |
+| 3 de 3 | 2010-06-01 | Ley 8823 | 2010-05-05 |

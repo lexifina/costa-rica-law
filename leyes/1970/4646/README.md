@@ -1,6 +1,6 @@
 # Modifica Integración de Juntas Directivas de Instituciones Autónomas
 
-Ley N° 4646 del 1970-10-20. SINALEVI, ficha 3239: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3239&param2=3424&param3=1>.
+Ley N° 4646 del 1970-10-20. SINALEVI, ficha 3239: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3239&param2=80864&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 5 | 1983-05-06 | SINALEVI (1 normas) | 1970-10-20 |
 | 2 de 5 | 1983-05-06 | Ley 5507 | 1970-10-20 |
+| 3 de 5 | 2010-06-01 | Ley 8823 | 2010-05-05 |

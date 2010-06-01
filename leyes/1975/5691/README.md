@@ -1,6 +1,6 @@
 # Obligación de Reglamentar Uso de Vehículos Oficiales
 
-Ley N° 5691 del 1975-05-19. SINALEVI, ficha 5078: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5078&param2=5385&param3=1>.
+Ley N° 5691 del 1975-05-19. SINALEVI, ficha 5078: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5078&param2=80926&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1993-04-22 | SINALEVI (1 normas) | 1975-05-19 |
 | 2 de 4 | 1993-04-22 | SINALEVI | 1975-05-19 |
 | 3 de 4 | 1999-07-14 | Sala Constitucional, resolución 5445-99 (1999-07-14) | 1999-07-14 |
+| 4 de 4 | 2010-06-01 | Ley 8823 | 2010-05-05 |
