@@ -14,3 +14,4 @@ Reglamento para el Pago de Dedicación Exclusiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-05 | la propia norma |
+| 2 | 2010-06-01 | Reglamento municipal 10 (2010-06-01) |
