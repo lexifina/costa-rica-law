@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Controles para la Dirección de CEN-Cinai
+La Dirección de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral (CEN-Cinai) estará sujeta a todos los controles establecidos por la Contraloría General de la República y por la legislación que regula la materia, sin perjuicio de los controles internos que la propia Dirección ejerza para asegurar el cumplimiento de sus fines.

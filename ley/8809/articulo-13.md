@@ -1,0 +1,3 @@
+ARTÍCULO 13.- Comités de CEN-Cinai
+En cada localidad en la que opere un CEN-Cinai deberá integrarse un comité CEN-Cinai, como órgano de apoyo para la ejecución de las actividades de la Dirección Nacional de CEN-Cinai. Para tal efecto, a los referidos comités se les dotará de personería jurídica de acuerdo con la legislación vigente.
+Las personas integrantes de los referidos comités serán elegidas por medio de asambleas comunales, debidamente convocadas, de acuerdo con las normas y los procedimientos establecidos en el Reglamento de esta Ley. Podrán ser reelegidas y desempeñarán sus cargos ad honórem.
