@@ -1,0 +1,2 @@
+ARTÍCULO 29.- Refórmase el artículo 61 de la Ley de presupuesto extraordinario, N.° 7097, de 18 de agosto de 1988. El texto dirá:
+“Artículo 61.- Autorízase a la Procuraduría General de la República para que cree un fondo especial con los recursos que genere la venta de la revista Procuraduría General de la República. Dichos fondos serán utilizados en la compra de libros para la biblioteca que funciona en la Procuraduría General de la República.”

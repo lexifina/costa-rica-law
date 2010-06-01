@@ -1,0 +1,2 @@
+ARTÍCULO 25.- Refórmase el artículo 58 de la Ley para el equilibrio financiero del sector público, N.º 6955, de 24 de febrero de 1984. El texto dirá:
+“Artículo 58.- El personal nombrado para la vigilancia y el mantenimiento del orden público desempeñará, exclusivamente, las funciones propias de su cargo. A partir de la vigencia de la presente Ley, los códigos presupuestarios de plazas para el servicio de la seguridad y el orden público, que se encuentren ocupados por servidores que desempeñen otras funciones, deberán destinarse a acatar lo dispuesto por el párrafo anterior.”

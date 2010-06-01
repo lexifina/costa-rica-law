@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Refórmase el artículo 23 de la Ley N.º 6289, sobre la Oficina Nacional de Semillas, de 4 de diciembre de 1978. El texto dirá:
+“Artículo 23.- El Fondo mencionado en el artículo anterior se depositará en una cuenta especial, abierta en cualquiera de los bancos del Sistema Bancario Nacional. Los procedimientos relativos a la apertura, la forma de llevar la contabilidad y la operación en general de dicha cuenta se harán mediante el Reglamento de la presente Ley.”

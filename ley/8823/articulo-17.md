@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Refórmase el artículo 5 de la Ley N.º 6135 que ratifica el Acuerdo entre las Naciones Unidas y el Gobierno de Costa Rica para el establecimiento del Instituto Latinoamericano para la Prevención del Delito y Tratamiento del Delincuente de 18 de noviembre de 1977. El texto dirá:
+“Artículo 5.- Si por cualquier motivo y en cualquier momento, el Instituto dejara de tener su sede en Costa Rica, todos sus bienes muebles o inmuebles, títulos o valores de cualquier clase pasarán a ser propiedad del Gobierno de Costa Rica.”

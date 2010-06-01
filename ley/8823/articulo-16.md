@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Refórmase el artículo 2 de la Ley N.º 5883, sobre el peaje entre Limón-Siquirres, N.º 5883, de 12 de enero de 1976. El texto dirá:
+“Artículo 2.- El Poder Ejecutivo determinará y reglamentará el derecho de peaje a que se refiere esta Ley, de acuerdo con los estudios técnicos correspondientes y ajustándose al efecto a las disposiciones del párrafo tercero del artículo 4 del Código de Normas y Procedimientos Tributarios.”

@@ -70,4 +70,5 @@ articulo-6-transitorio.md
 articulo-7-transitorio.md
 articulo-8-transitorio.md
 articulo-9-transitorio.md
+articulo-10-transitorio.md
 articulo-1-anexo.md

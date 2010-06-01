@@ -1,21 +1,8 @@
-ARTÍCULO 25.- Cálculos del canon
-Por cada actividad regulada, el Consejo cobrará un canon consistente
-en un cobro anual que se dispondrá así:
-a) El Consejo calculará el canon de cada actividad según el principio
-de servicio al costo y deberá establecer un sistema de costeo apropiado
-para cada actividad regulada.
-b) Cuando la regulación por actividad involucre varias empresas, la
-distribución del canon seguirá criterios de proporcionalidad y equidad.
-c) Cada junio el Consejo presentará, ante la Contraloría General de
-la República, para su aprobación el proyecto de cánones para el año
-siguiente, con su justificación técnica. Recibido el proyecto, la
-Contraloría dará audiencia, por un plazo de diez días hábiles, a las
-empresas reguladas para que expongan sus observaciones al proyecto de
-cánones. Transcurrido el plazo, se aplicará el silencio positivo.
-d) El proyecto de cánones deberá aprobarse a más tardar el último día
-hábil de agosto del mismo año. Vencido este término sin el pronunciamiento
-de la Contraloría, el proyecto se incluirá dentro del Ministerio de Obras
-Públicas y Transportes y se tendrá por aprobado en la forma presentada por
-el Consejo y el Tribunal.
-El Consejo determinará los medios y procedimientos adecuados para
-recaudar los cánones referidos en esta ley.
+Artículo 25.- Cálculos del canon
+Por cada actividad regulada, el Consejo cobrará un canon consistente en un cobro anual que se dispondrá de la siguiente manera:
+a) El Consejo calculará el canon de cada actividad según el principio de servicio al costo y deberá establecer un sistema de costeo apropiado para cada actividad regulada.
+b) Cuando la regulación por actividad involucre varias empresas, la distribución del canon seguirá criterios de proporcionalidad y equidad.
+c) En el mes de junio de cada año, el Consejo presentará ante la Autoridad Reguladora de Servicios Públicos, para su aprobación, el proyecto de cánones para el año siguiente, con su justificación técnica. Recibido el proyecto, la Autoridad Reguladora dará audiencia, por un plazo de diez días hábiles, a las empresas reguladas para que expongan sus observaciones al proyecto de cánones. Transcurrido el plazo, se aplicará el silencio positivo.
+d) El proyecto de cánones deberá aprobarse a más tardar el último día hábil de agosto del mismo año. Vencido este término sin el pronunciamiento de la Autoridad Reguladora, el proyecto se incluirá dentro del Ministerio de Obras Públicas y Transportes y se tendrá por aprobado en la forma presentada por el Consejo y el Tribunal. El Consejo determinará los medios y los procedimientos adecuados para recaudar los cánones referidos en esta Ley.
+(Así reformado por el artículo 46° de la ley N° 8823 del 5 de mayo de 2010)
+(Nota de SINALEVI: La Sala Constitucional mediante resolución N° 2007 del 11 de febrero de 2009, aclaró el considerando VII de la resolución N° 15716 del 16 de noviembre de 2005 en el sentido que: “la personalidad jurídica instrumental puede estar reconocida de manera razonablemente implícita en la ley, a partir de una interpretación sistemática del texto normativo.” Es así como, a partir de los artículos 16, 22, 24, 25, 26, 27 y 28 de la Ley N° 7969 del 22 de diciembre de 1999, “se puede concluir, sin duda que el Tribunal Administrativo de Transporte sí tiene personalidad jurídica instrumental.”)

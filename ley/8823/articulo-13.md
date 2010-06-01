@@ -1,0 +1,3 @@
+ARTÍCULO 13.- Refórmase el artículo 5 de la Ley orgánica del Instituto Tecnológico de Costa Rica, N.º 4777, de 10 de junio de 1971. El texto dirá:
+“Artículo 5.- Podrá ofrecer bienes y servicios dentro de los campos de actividad que sean objeto de sus carreras profesionales, directamente o mediante sociedades en las que ejerza el control mayoritario y que podrán formar con establecimientos u organismos públicos de desarrollo, tanto nacionales como extranjeros. Para este efecto, se faculta a las instituciones nacionales para que puedan participar en dichas sociedades con el Instituto.
+La constitución de sociedades deberá ser aprobada por el Consejo Directivo del Instituto, por dos tercios de sus votos.”

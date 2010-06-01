@@ -1,8 +1,2 @@
-ARTICULO 58.- El personal nombrado para la vigilancia y
-mantenimiento del orden público desempeñará, exclusivamente, las
-funciones propias de su cargo. A partir de la vigencia de la presente
-ley, los códigos presupuestarios de plazas para el servicio de la
-seguridad y el orden público, que se encuentren ocupados por servidores
-que desempeñen otras funciones, deberán destinarse a acatar lo dispuesto
-por el párrafo anterior. La Contraloría General de la República
-fiscalizará el exacto cumplimiento de esta norma.
+Artículo 58.- El personal nombrado para la vigilancia y el mantenimiento del orden público desempeñará, exclusivamente, las funciones propias de su cargo. A partir de la vigencia de la presente Ley, los códigos presupuestarios de plazas para el servicio de la seguridad y el orden público, que se encuentren ocupados por servidores que desempeñen otras funciones, deberán destinarse a acatar lo dispuesto por el párrafo anterior.
+(Así reformado por el artículo 25° de la Ley que Reforma varias leyes sobre la participación de la Contraloría General de la República para la simplificación y el Fortalecimiento de la Gestión Pública, N° 8823 del 5 de mayo de 2010)

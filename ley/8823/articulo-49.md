@@ -1,0 +1,4 @@
+ARTÍCULO 49.- Refórmase el párrafo segundo del artículo 2 de la Ley del Benemérito Cuerpo de Bomberos del Instituto Nacional de Seguros, N.º 8228, de 19 de marzo de 2002, y sus reformas. El texto dirá:
+“Artículo 2.- Personería jurídica
+[...]
+Para asegurar el cumplimiento de esos fines, el órgano desconcentrado máximo que se crea en esta Ley dispondrá de la potestad de ejecutar su asignación presupuestaria, sujeto al mandato de las leyes que regulan dicho ejercicio. En adición a la obligación establecida en el inciso a) del artículo 40 de esta Ley, la Junta Directiva del INS deberá ordenar el giro oportuno, al Fondo del Cuerpo de Bomberos, de las sumas de dinero que determine como necesarias, según justificación aportada por el Cuerpo de Bomberos, para que dicho órgano pueda brindar servicios en forma eficaz y eficiente a la población de Costa Rica. Dichos aportes se considerarán como gasto deducible del impuesto sobre la renta que debe pagar el INS.”

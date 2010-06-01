@@ -1,0 +1,2 @@
+ARTÍCULO 33.- Refórmase el artículo 2 de la Ley de prórroga del plazo social de Radiográfica Costarricense S.A. -Racsa-, N.º 7298, de 5 de mayo de 1992. El texto dirá:
+“Artículo 2.- El Instituto Costarricense de Electricidad no podrá realizar ningún tipo de acto de venta, cesión, traspaso, concesión o gravamen, total o parcial, en el nivel nacional o en el internacional, de la empresa de su propiedad, Radiográfica Costarricense S.A., salvo que de manera previa se promulgue una ley que lo autorice expresamente.”

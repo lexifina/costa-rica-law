@@ -1,0 +1,3 @@
+ARTÍCULO 35.- Refórmase el artículo 5 de la Ley que autoriza el traslado de la administración de los zoológicos Parque Simón Bolívar y el de Santa Ana, N.º 7369, de 23 de noviembre de 1993. El texto dirá:
+“Artículo 5.- La parte con quien se contrate la administración de los zoológicos, conforme a lo dispuesto en esta Ley, deberá presentar, semestralmente, un informe técnico y contable de su gestión al ministro de Ambiente, Energía y Telecomunicaciones.
+En el contrato de administración deberán indicarse, entre otras cosas, los plazos de cumplimiento de las diferentes etapas del proyecto de administración y el Estado quedará en capacidad de hacer una rescisión parcial del contrato sobre las fases pendientes.”
