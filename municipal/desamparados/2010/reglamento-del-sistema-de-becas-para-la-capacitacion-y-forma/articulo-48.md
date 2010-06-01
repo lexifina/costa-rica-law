@@ -1,0 +1,1 @@
+Artículo 48.—El trabajador que incumpliere los deberes y obligaciones de cualesquiera de los contratos que establece este Reglamento, por causas evidentemente imputables a él, quedará excluido de los beneficios por un período de cinco años, con base en el criterio del Departamento de Recursos Humanos, según sea el caso.

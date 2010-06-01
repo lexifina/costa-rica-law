@@ -1,0 +1,1 @@
+Artículo 26.—El rendimiento debe ajustarse al mínimo solicitado por la entidad donde se realiza la capacitación; en caso de no ser así, una vez concluido el periodo correspondiente, la Municipalidad se reserva el derecho de revocar dicha licencia.

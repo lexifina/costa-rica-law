@@ -1,0 +1,1 @@
+Artículo 5º—Se entiende por beca, al apoyo financiero y económico y a las facilidades (licencia-permiso institucional) que se brinda al trabajador para realizar estudios formales y no formales de índole especializada, técnica, administrativa y operativa, con el fin de contribuir al mejoramiento de los procesos y servicios de conveniencia a los fines de la Municipalidad.

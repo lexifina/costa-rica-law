@@ -1,0 +1,1 @@
+Artículo 21.—Para cada período lectivo corresponderá un único subsidio, cuyo monto estará determinado en función de la tabla establecida en el artículo 43 de este reglamento y de los recursos disponibles en el momento de la solicitud. La Municipalidad de Desamparados no se hace responsable de compromisos adquiridos por cualquier funcionario.

@@ -1,0 +1,1 @@
+Artículo 52.—El presente reglamento deja sin efecto el anterior Reglamento del Sistema de Becas para la Capacitación y Formación de los Trabajadores, aprobado mediante acuerdo Nº 3, de la sesión Nº 204 del 20 de diciembre de 2004, publicado en La Gaceta Nº 15 del 21/01/2005.

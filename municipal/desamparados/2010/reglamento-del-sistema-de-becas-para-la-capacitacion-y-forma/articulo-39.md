@@ -1,0 +1,1 @@
+Artículo 39.—El Plan de Estudios o de Capacitación deberá contener lo siguiente: Temario desglosado por materia según contenido, horas, modalidad de instrucción -presencial, a distancia- comprobante de matrícula y costo por materia a cursar; acompañado de un presupuesto de desembolsos del apoyo financiero y facilidades solicitadas.

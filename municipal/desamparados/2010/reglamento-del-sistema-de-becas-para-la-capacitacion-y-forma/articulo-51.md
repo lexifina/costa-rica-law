@@ -1,0 +1,1 @@
+Artículo 51.—A falta de disposiciones aplicables en este Reglamento se aplicarán supletoriamente las leyes especiales que regulan la materia y sus respectivos reglamentos (Convención Colectiva, Código Municipal, Código de Trabajo y otros).

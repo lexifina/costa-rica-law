@@ -1,0 +1,1 @@
+Artículo 20.—La licencia con goce de salario se otorga por el periodo lectivo de acuerdo con el plan de estudios o capacitación aprobado, se podrá conceder prórroga por única vez, en el entendido de que la vigencia de la misma no podrá ser mayor a lo establecido en dicho plan de estudios o de capacitación.

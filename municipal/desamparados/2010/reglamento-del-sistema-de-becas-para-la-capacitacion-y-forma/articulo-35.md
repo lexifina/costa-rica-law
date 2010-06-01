@@ -1,0 +1,1 @@
+Artículo 35.—En caso de denegación de la beca, la Comisión de Becas informará por escrito al trabajador solicitante de beca, las razones de índole técnica, administrativa y legal que justifican lo actuado.
