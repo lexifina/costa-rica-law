@@ -14,3 +14,4 @@ Modifica para el Museo de Arte y Diseño Contemporáneo el gasto presupuestario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-22 | la propia norma |
+| 2 | 2010-06-01 | Decreto Ejecutivo 36048 (2010-06-01) |
