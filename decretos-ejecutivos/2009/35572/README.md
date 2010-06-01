@@ -14,3 +14,4 @@ Modifica para el Instituto Costarricense de Investigación y Enseñanza en Nutri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-19 | la propia norma |
+| 2 | 2010-06-01 | Decreto Ejecutivo 36067 (2010-06-01) |
