@@ -1,0 +1,2 @@
+TRANSITORIO III.-
+Las liquidaciones presupuestarias y la atención de los compromisos financieros relacionados con los CEN-Cinai, ejecutados antes de la entrada en vigencia de la presente Ley, serán responsabilidad del Ministerio de Salud. Una vez entrada en vigencia esta Ley, la Dirección de CEN-Cinai asumirá la responsabilidad de realizar las liquidaciones presupuestarias y de atender sus propios compromisos financieros.
