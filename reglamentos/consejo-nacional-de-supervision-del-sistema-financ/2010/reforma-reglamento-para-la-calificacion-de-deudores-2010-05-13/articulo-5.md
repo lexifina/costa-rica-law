@@ -1,0 +1,2 @@
+5.- Modificar la penúltima oración del numeral 2), del artículo 25, del Acuerdo SUGEF 1-05, “Reglamento para la Calificación de Deudores”, de manera que se sustituya la palabra “estructurar por la palabra “mínima”, de conformidad con el siguiente texto:
+“2) (...) En el siguiente mes, cuando se cumpla con lo indicado en el numeral 4) de este Articulo, la entidad puede reversar el monto de las estimaciones adicionales originadas en la aplicación de este Artículo, y que excedan el monto de la estimación mínima en ese momento. (...).”

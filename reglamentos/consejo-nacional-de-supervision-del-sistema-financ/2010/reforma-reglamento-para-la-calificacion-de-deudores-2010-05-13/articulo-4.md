@@ -1,0 +1,2 @@
+4.- Modificar el numeral 1), del artículo 25, del Acuerdo SUGEF 1-05, “Reglamento para la Calificación de Deudores”, de manera que se sustituya la palabra “estructural por la palabra “mínima”, de conformidad con el siguiente texto:
+“1) Determinar para el último mes de envío completo de la información, el porcentaje que representa el monto de la estimación mínima respecto de la cartera de crédito sujeta a estimación de ese mismo mes.”
