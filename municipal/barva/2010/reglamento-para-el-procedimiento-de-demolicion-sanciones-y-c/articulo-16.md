@@ -1,0 +1,3 @@
+Artículo 16.—Los sellos de clausura se colocarán en lugares visibles y fácilmente identificables del inmueble clausurado.
+Artículo 16.—Procedimientos para aplicar sanciones administrativas: La Municipalidad de Barva, en el ejercicio de su función de control y planificación del desarrollo urbano del Cantón de Barva, podrá aplicar cualquiera de las sanciones que describe este capítulo siempre y cuando lo haga saber así al administrado por medio de resolución motivada y ésta quede firme de acuerdo al procedimiento que describe este Reglamento.
+(Nota de Sinalevi: En la publicación de este reglamento municipal, se consignó dos veces el artículo Nº 16)
