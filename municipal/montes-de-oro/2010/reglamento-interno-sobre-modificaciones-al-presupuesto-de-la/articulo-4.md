@@ -1,0 +1,1 @@
+Artículo 4º—La administración deberá mantener actualizada en el Sistema de Información de Presupuestos Públicos, la inclusión y validación de las modificaciones debidamente aprobadas que operen al presupuesto de la Institución según los lineamientos y procedimientos establecidos en la normativa que al efecto haya dictado o llegue a dictar el órgano contralor.

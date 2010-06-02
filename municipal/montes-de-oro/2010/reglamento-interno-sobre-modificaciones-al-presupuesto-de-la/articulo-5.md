@@ -1,0 +1,1 @@
+Artículo 5º—Los jerarcas y titulares subordinados que intervienen en el proceso de las Modificaciones Presupuestarias, serán responsables de velar por el fiel cumplimiento de este reglamento, así como las disposiciones legales y directrices emanadas por la Contraloría General de la República en materia presupuestaria.

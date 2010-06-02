@@ -1,0 +1,1 @@
+Artículo 3º—La comunicación de la aprobación de las modificaciones presupuestarias, serán comunicadas por la Secretaria(o) Municipal al Alcalde, Tesorera y Contador, para efectos de que éstas sean consideradas en sus acciones y en la formulación de futuros presupuestos y/o modificaciones.
