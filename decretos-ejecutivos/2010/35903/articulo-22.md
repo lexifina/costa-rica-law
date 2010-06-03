@@ -1,0 +1,1 @@
+Artículo 22.—Trámite. Toda solicitud para el pago o reconocimiento por laborar tiempo extraordinario deberá ser presentada por el servidor interesado ante el Departamento de Recursos Humanos, dentro de los tres días hábiles siguientes posteriores al mes en que se trabajó el tiempo extraordinario. Después de ese plazo no se tramitará pago por hora extra.

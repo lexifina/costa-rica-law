@@ -1,0 +1,4 @@
+Artículo 13.—Son responsabilidades de los Directores y/ o Jefes:
+a) Aplicar los principios de economía, eficiencia, eficacia de la Administración Pública, así como la sana administración de los recursos públicos asignados, para la programación y autorización de la jornada extraordinaria.
+b) Verificar que las horas extras aprobadas a los servidores a su cargo, estén en concordancia con las autorizadas por la Oficialía Mayor y Dirección Administrativa. En aquellos casos en el que el Jefe por negligencia haya autorizado al funcionario a trabajar horas extras sin contar con la debida autorización y el contenido presupuestario incurrirá en responsabilidad disciplinaria
+c) Asumir la responsabilidad por aquellos casos tipificados como riesgo inminente, de conformidad con lo señalado en el artículo 2, inciso i y el artículo 3 del presente Reglamento
