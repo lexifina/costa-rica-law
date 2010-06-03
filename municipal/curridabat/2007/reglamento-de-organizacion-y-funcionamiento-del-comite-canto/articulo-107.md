@@ -2,4 +2,5 @@ CAPÍTULO XII
 De la elección de los miembros
 nombrados por el Concejo
 Municipal
-Artículo 107.—El Concejo Municipal debe elegir a sus representantes ante el Comité Cantonal durante la segunda quincena del mes de febrero de cada dos años, a más tardar el último día del mes de febrero de cada dos años.
+Artículo 107.—Para la elección de sus representantes, el Concejo abrirá un concurso para asegurar la mayor participación posible de interesados y lo dará a conocer en un diario de circulación nacional, al menos ocho días antes de que se tome el acuerdo respectivo. La designación se efectuará en la segunda quincena de julio, cada dos años, y requerirá de mayoría absoluta de los miembros del Concejo.
+(Así reformado y fusionado Mediante sesión Nº 005 del 3 de junio de 2010)
