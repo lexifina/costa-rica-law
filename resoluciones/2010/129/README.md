@@ -14,3 +14,4 @@ Excluye el 13% del impuesto General sobre las Ventas a incisos arancelarios, del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-04 | la propia norma |
+| 2 | 2010-06-04 | Resolución 190 (2010-05-31) |
