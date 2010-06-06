@@ -14,3 +14,4 @@ Reglamento de Administración de los Cementerios Municipales del Cantón de Barv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-17 | la propia norma |
+| 2 | 2010-06-06 | Reglamento municipal 40 (2010-07-06) |
