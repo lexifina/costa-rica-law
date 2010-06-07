@@ -1,0 +1,3 @@
+Artículo 39- Otros Rendimientos en el caso de fondos cerrados
+Los fondos cerrados pueden reportar en forma adicional el rendimiento total calculado con base en el precio de las participaciones negociadas en mercado secundario. La sociedad debe revelar claramente que se trata de un cálculo de rentabilidad obtenido a partir de las observaciones de precio de las participaciones en el mercado secundario de valores.
+El cálculo de los rendimientos con base en el precio de las participaciones negociadas en mercado secundario, se realiza utilizando las fórmulas descritas en el artículo 36 de este acuerdo, para lo cual la sociedad administradora debe utilizar el precio de la participación en el mercado secundario en lugar del valor de la participación contable.

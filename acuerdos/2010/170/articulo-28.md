@@ -1,0 +1,3 @@
+Artículo 28- Estados de cuenta de fondos extranjeros que se comercializan en Costa Rica
+Los estados de cuenta a los inversionistas de fondos extranjeros que se encuentren autorizados para comercialización en Costa Rica, deben cumplir con las disposiciones establecidas en el país de origen sobre estados de cuenta, y deben presentarse con la misma periodicidad y plazo de entrega.
+No es requerido que los estados de cuenta u otra información adicional de fondos extranjeros que genere el administrador del fondo en su país de origen, incluyan la leyenda establecida en el inciso b del artículo 21 de este acuerdo. Lo anterior no exime a la entidad comercializadora en Costa Rica de incluir las leyendas establecidas en el artículo 21.

@@ -1,0 +1,4 @@
+Artículo 3- Contratación de servicios
+La sociedad puede subcontratar a un tercero la prestación de servicios operativos y servicios administrativos. En tal caso, se deben firmar los contratos correspondientes que incluyan un desglose de los servicios contratados, los deberes y obligaciones de cada una de las partes, y los costos respectivos, velando por el cumplimiento de lo establecido en la normativa.
+La sociedad debe tomar las previsiones del caso para garantizar la confidencialidad de la información, tanto de la entidad como de los inversionistas, así como el cumplimiento de los deberes y obligaciones de los servicios contratados
+La sociedad debe conservar la documentación relativa a los contratos incluyendo aquella que demuestre la idoneidad de la persona (física o jurídica) contratada. La contratación de entidades, no exime a la sociedad administradora de la responsabilidad establecida en el artículo 73 de la Ley Reguladora del Mercado de Valores.

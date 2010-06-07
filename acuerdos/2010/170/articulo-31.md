@@ -1,0 +1,3 @@
+Artículo 31- Informe Trimestral de Fondos de Desarrollo Inmobiliario
+En el caso de los fondos de desarrollo inmobiliario, durante la etapa de construcción el informe trimestral corresponde al informe de avance dispuesto en el acuerdo SGV-A-150 Guía para la elaboración de la adenda de proyectos para fondos de desarrollo inmobiliario.
+Una vez concluido el proyecto, si el fondo de desarrollo inmobiliario opera como un fondo inmobiliario, debe cumplir con lo dispuesto en el artículo anterior respecto al informe trimestral de fondos inmobiliarios. Para el cómputo de las fechas de presentación de este informe se debe considerar la fecha de conclusión del proyecto.

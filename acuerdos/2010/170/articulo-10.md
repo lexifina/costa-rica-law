@@ -1,0 +1,11 @@
+SECCION IV
+DOCUMENTACIÓN EN MEDIOS ELECTRÓNICOS
+Artículo 10- Requerimientos técnicos para el registro electrónico de la documentación que debe conservar la sociedad administradora en función de sus procesos básicos operativos
+El proceso automatizado para el registro electrónico de la documentación puede ser implementado a través de sus sistemas de información de bases de datos o de un sistema de gestión electrónica de documentos que posean mecanismos de control de acceso o seguridad. Para ello, la sociedad administradora debe cumplir con al menos lo siguiente:
+a. Establecer y documentar políticas y procedimientos que permitan identificar, autenticar y autorizar el acceso al proceso automatizado para dichos fines.
+b. Definir un mecanismo de control, donde los documentos operativos o técnicos definitivos en forma electrónica, no sufran ninguna variación. Además, este mecanismo debe permitir identificar el usuario que ingresa el documento al sistema y la fecha y hora del ingreso.
+c. Definir los accesos y perfiles correspondientes a los usuarios autorizados para la inclusión, lectura, modificación, eliminación o anulación de documentos operativos del proceso automatizado para dichos fines, así como los usuarios administradores del mismo.
+d. Mantener activas bitácoras de control y de auditoría, que permitan registrar al menos el detalle de los eventos ejecutados para el proceso de mantenimiento de documentación operativa o técnica (ingreso, lectura o actualización) y que incluya como mínimo la fecha y hora del evento ejecutado y la identificación del usuario que originó dicho evento. En caso de modificación, incluir la fecha y hora de modificación, el usuario que modificó, el motivo o justificación del cambio, el nombre del campo que se modificó, y el valor antes y después del cambio.
+e. Proveer la facilidad para anexar imágenes, documentos en papel, archivos elaborados en procesadores de palabras, hojas electrónicas, documentos electrónicos firmados digitalmente, entre otros.
+f. Mantener información histórica de la documentación operativa de la sociedad administradora, que sea de fácil acceso a través de la base de datos y de los sistemas utilizados.
+g. Mantener disponibles y actualizados manuales de usuario y técnico para el uso y mantenimiento del proceso automatizado para dichos fines.

@@ -1,0 +1,3 @@
+Artículo 32- Otras disposiciones
+El idioma, la forma de presentación y los medios para remitir el informe trimestral, se deben regir de conformidad con lo establecido en los artículos del 25 al 27 de este acuerdo.
+Para el envío de los informes trimestrales por medios electrónicos, las sociedades administradoras pueden optar por remitir el documento a las direcciones electrónicas de los inversionistas o remitir un vínculo directo al sitio web de la sociedad administradora, de tal manera que los inversionistas puedan consultar el informe trimestral, así como imprimirlo o descargarlo hacia los dispositivos de los interesados.
