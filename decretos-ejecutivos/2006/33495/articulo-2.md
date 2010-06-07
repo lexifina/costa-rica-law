@@ -20,10 +20,13 @@ f) Personas físicas o jurídicas que almacenan, distribuyen y manipulanplaguici
 Los términos y conceptos utilizados en este reglamento serán definidos, interpretados y aplicados en la forma y sentido en que se indican seguidamente:
 3.1 Adulterado: calificativo para el plaguicida sintético formulado, ingrediente activo grado técnico, coadyuvantes y sustancias afines que presenta una cantidad del ingrediente activo diferente al porcentaje declarado en la etiqueta o si alguno de sus componentes ha sido sustituido total o parcialmente o contiene ingredientes no declarados.
 3.2 Almacenamiento: acción de almacenar, reunir, conservar, guardar o depositar plaguicida sintético formulado, ingrediente activo grado técnico, coadyuvantes y sustancias afines en bodegas, almacenes, aduanas o vehículos bajo las condiciones estipuladas en el presente Reglamento.
+3.2. BIS Auxiliares de formulación (Inertes): Sustancias sin actividad biológica contra la plaga o de regulación del metabolismo de las plantas, que se utiliza como portador o como acondicionador de una sustancia afín o coadyuvante. No se considera necesariamente inerte desde el punto de vista toxicológico y ecotoxicológico.
+(Así adicionada la definición anterior por el artículo 4° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
 3.3 Clase de plaguicida: determina si el producto es un insecticida, fungicida, herbicida, nematicida u otros.
 3.4 Coadyuvante: sustancia química que contribuye, asiste o ayuda a realizar una mejor acción cuando se mezcla en forma correcta con un plaguicida sintético formulado.
-3.5 Combate especial: combate de una plaga o enfermedad
-declarada de emergencia por el Ministerio.
+3.5 Combate especial: combate de una plaga o enfermedad declarada de emergencia por el Ministerio.
+3.5 BIS Componente de la sustancia afín o coadyuvante: Sustancia(s) que ejerce(n) la acción principal para el uso que está destinado el producto.
+(Así adicionada la definición anterior por el artículo 4° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
 3.6 Concentración letal media (CL50): la concentración de una sustancia que causa el 50% de mortalidad en los animales de prueba, usualmente bajo exposición de un período determinado.
 Se expresa en miligramos o gramos por decímetro cúbico litro o metro cúbico de aire.
 3.6 BIS. Datos de Prueba: Información no divulgada que incluye la información, datos o documentos sobre la seguridad y eficacia de un ingrediente activo grado técnico o de un plaguicida sintético formulado, cuya elaboración suponga un esfuerzo considerable, que no hayan sido divulgados al público y sean exigidos por la AC con el fin de otorgar el registro en el país de dicho ingrediente activo grado técnico o plaguicida sintético formulado. Esta información, datos o documentos, incluye lo siguiente: los estudios toxicológicos, los estudios eco-toxicológicos, los estudios de eficacia biológica, los estudios sobre los efectos en el medio abiótico, y las propiedades físico-químicas y los métodos analíticos sobre la seguridad y la eficacia de un ingrediente activo grado técnico o un plaguicida sintético formulado.
@@ -77,7 +80,8 @@ reglamento, terceros a los que la ley les confiera ese derecho y los autorizados
 3.43 Perfil toxicológico: resumen de los resultados críticos toxicológicos que pueden traer consecuencias a la salud humana debido a exposición por varias vías, para un plaguicida determinado.
 3.44 Permiso de funcionamiento: permiso que deben obtener los establecimientos comerciales, industriales o de servicios, expedido por el Ministerio de Salud, luego de haber cumplido con todos los requisitos pedidos en la reglamentación vigente.
 3.45 Plaga: cualquier organismo vivo que compite u ocasiona daños a las plantas o a sus productos y que pueden considerarse como tal, debido a su carácter económico, invasor o extensivo.
-3.46 Plaguicida: cualquier sustancia o mezcla de sustancias destinadas a prevenir, destruir o controlar cualquier plaga, incluyendo los vectores de enfermedades humanas o de los animales, las especies de plantas o animales indeseables que causan perjuicio o que interfieren de cualquier otra forma en la producción, elaboración, almacenamiento, transporte o comercialización de alimentos, productos agrícolas, madera y productos de madera o alimentos para animales, o que pueden administrarse a los animales para combatir insectos, arácnidos u otras plagas en o sobre sus cuerpos. El término incluye las sustancias destinadas a utilizarse como reguladoras del crecimiento de las plantas, defoliantes, desecantes, agentes para reducir la densidad de fruta o agentes para evitar la caída prematura de la fruta, y las sustancias aplicadas a los cultivos antes o después de la cosecha para proteger el producto contra la deterioración durante el almacenamiento y transporte.
+3.46 Plaguicida: Entiéndase para efectos de este reglamento, cualquier sustancia o mezcla de sustancias con acción biocida o fisiológica, destinadas a prevenir, destruir o controlar cualquier plaga, que afecte la siembra, los cultivos y sus cosechas, o que interfieren de cualquier otra forma en la producción así mismo incluye aquellas sustancias aplicadas al producto después de la cosecha. Este término incluye las sustancias sintéticas destinadas a utilizarse como reguladores de crecimiento e inductores florales de plantas que no se producen en ellas de forma natural.
+(Así reformado el apartado anterior por el artículo 1° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
 3.47 Plaguicida de venta y uso restringido: cualquier plaguicidaque por su nivel de riesgo, su uso esté condicionado a prácticas especiales de manejo especificadas por los Ministerios mediante Decreto Ejecutivo.
 3.48 Plaguicida prohibido: plaguicida del que se han prohibido todos los usos mediante una medida definitiva de reglamentación, con el fin de proteger la salud humana o el ambiente, ya que aún utilizados bajo la práctica agrícola correcta, representan riesgo inaceptable a la salud humana y al ambiente. Estos deben estar publicados mediante Decreto Ejecutivo.
 3.49 Plaguicida sintético formulado: producto comercial que ha sido preparado a partir de un ingrediente activo grado técnico más los otros componentes de la formulación siguiendo las normas de calidad establecidas, en la forma en la que se envasa y se vende.
@@ -94,11 +98,14 @@ reglamento, terceros a los que la ley les confiera ese derecho y los autorizados
 3.60 Residuo: cualquier sustancia específica presente en alimentos, productos agrícolas o alimentos para animales, como consecuencia del uso de un plaguicida sintético formulado, ingrediente activo grado técnico, coadyuvantes y sustancias afines. El término incluye cualquier derivado deun plaguicida sintético formulado, ingrediente activo grado técnico, coadyuvantes y sustancias afines, como productos de conversión, metabolitos y productos de reacción, y las impurezas consideradas de importancia toxicológica.
 3.61 Retención: acción de mantener bajo prohibición de traslado, uso o consumo en condiciones de seguridad, ya sea mediante el traslado de los mismos a las bodegas del Ministerio o bien bajo sellos de seguridad en el local comercial, bienes materiales que hayan incumplido el presente Reglamento, para su posterior decomiso o liberación, según corresponda.
 3.62 Reválida: proceso mediante el cual los titulares de los registrosde ingredientes activos grado técnico, registrados como tales o como componentes de una formulación registrada, otorgados antes de la promulgación del presente reglamento y que se encuentren vigentes, aportan ante el SFE, en los plazos indicados en este reglamento la información requerida por este, como requisito para mantener la vigencia de sus registros.
-3.63 Sustancias afines a coadyuvantes: aquellas sustancias que sin ser coadyuvantes se pueden registrar con sus mismos requisitos, clasifican en esta denominación las ceras agrícolas y otros.
+3.63 Sustancias a fin: sustancias destinadas a utilizarse en los cultivos como repelentes de origen sintético, feromonas, atrayentes, protectores solares, sustancias aplicadas al producto después de la cosecha para protegerlo contra el deterioro durante el almacenamiento y transporte, pegamentos o gomas, así como los reguladores de crecimiento e inductores florales que se producen en forma natural en las plantas y que se han logrado sintetizar.
+(Así reformado el apartado anterior por el artículo 1° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
 3.64 Tipo de plaguicida: grupo químico al cual pertenece un producto, tales como organofosforados, carbamatos, piretroides, sulfonilureas, entre otros.
 3.65 Titular del registro: persona física o jurídica propietaria del registro de un plaguicida sintético formulado, ingrediente activo grado técnico, coadyuvantes y sustancias afines ante el Ministerio.
 3.66 Tolerancia: límite máximo de residuos químicos de plaguicida sintético formulado o sus metabolitos cuya presencia es legalmente permitida, en productos de consumo humano o animal.
 3.67 Toxicidad: propiedad que tiene una sustancia y sus productos metabólicos o de degradación, de provocar a dosis determinadas y en contacto con la piel o las mucosas, un daño a la salud, luego de haber ingresado en el organismo biológico por cualquier vía.
+3.68 Vehículo Físico: Aquellos materiales inertes que contengan sustancias afines incorporadas.
+(Así adicionada la definición anterior por el artículo 4° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
 4. Abreviaturas
 Para los efectos de este Reglamento se entenderá por:
 AC: Autoridad Competente
@@ -201,7 +208,8 @@ A los efectos de los procedimientos necesarios para la obtención del Registro, 
 2- Registro de ingrediente activo grado técnico.
 3- Registro de ingrediente activo grado técnico por equivalencia.
 4- Registro de plaguicidas sintéticos formulados.
-5- Registro de coadyuvantes y sustancias afines de uso agrícola.
+5- Registro de Coadyuvantes, Sustancias Afines y Vehículos Físicos que contengan sustancias afines.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
 De la protección a los datos de prueba.
 La protección a los datos de prueba, de conformidad con lo establecido en este Reglamento, en la Ley de Información No Divulgada, Ley N° 7975 del 4 de enero del 2000, incluyendo lo indicado en el artículo 8 de esa Ley, y con el Reglamento a la Ley de Información No Divulgada, incluyendo lo indicado en el artículo 6 de dicho Reglamento, será aplicable a los productos agroquímicos nuevos, tal como se definen en este Reglamento.
 En cuanto al régimen de protección de los datos de prueba, de conformidad con este Reglamento, con la Ley de Información No Divulgada, y con el Reglamento a la Ley de Información No Divulgada, la AC prevendrá que terceros sin autorización del registrante o el titular del registro usen y accedan los datos de prueba protegidos.
@@ -746,7 +754,7 @@ Solo en los casos en que aún no se cuente con un ingrediente activo grado técn
 a. Como segunda opción se elegirá el Perfil que contenga la información confidencial, el legajo administrativo y los estudios de toxicidad aguda y ecotoxicidad y estudios adicionales de toxicología crónica, estudios ecotoxicológicos y otros estudios de efectos sobre el medio abiótico que hayan sido solicitados por la autoridad competente, mediante resolución debidamente fundada durante el proceso de reválida que establece el presente reglamento.
 b. Como tercera opción se elegirá el Perfil que contenga la información confidencial, el legajo administrativo y los estudios de toxicidad aguda y ecotoxicidad, presentados durante el proceso de reválida que establece el presente reglamento.
 En el caso que en cualquiera de las opciones anteriores (data completa o los perfiles de los incisos a y b), se cuente con más de un ingrediente activo registrado, se elegirá como perfil de referencia, aquel ingrediente activo grado técnico que posea el mejor perfil de pureza / impureza.
-Toda información que se utilice como perfilde referencia en los términos de los incisos anteriores, deberá ser propia y aplicable al producto que se va a registrar.
+Toda información que se utilice como perfil de referencia en los términos de los incisos anteriores, deberá ser propia y aplicable al producto que se va a registrar.
 7.3.2.1 Casos en que se debe realizar la evaluación de equivalencia
 a) Cuando el ingrediente activo grado técnico proviene de un nuevo fabricante.
 b) Cuando un ingrediente activo grado técnico cambia de escala laboratorio/piloto a escala comercial.
@@ -1131,94 +1139,203 @@ d) Por el contrario, en una resolución en la cual se rechaza la solicitud de re
 e) Una vez firme, la resolución dictada, en caso que se rechace la inscripción se procede a archivar el expediente, en caso que sea positiva, es decir que acoja la solicitud y ordene la inscripción del producto, el expediente se pasa a la unidad que administra el registro para que proceda a inscribir el producto en el libro de inscripciones y se le asigna el respectivo número de registro; al registrante se le otorgará el correspondiente certificado de registro.
 f) Para la valoración, análisis, dictado de la resolución administrativa, emisión del certificado de registro y notificación al MINSA y MINAE, el SFE cuenta con un plazo máximo de quince días hábiles contados a partir de finalizado el plazo para recibir los alegatos y argumentos contra las oposiciones, o una vez vencido el plazo de las oposiciones en caso de no haberse presentado ninguna.
 g) Inscrito el producto se procederá a notificar a MINSA y MINAE con propósito de información sobre la inscripción del producto.
-7.5 REGISTRO DE COADYUVANTES Y SUSTANCIAS AFINES DE USO AGRÍCOLA
-7.5.1 DOCUMENTOS GENERALES A ADJUNTAR A LA SOLICITUD DE REGISTRO
-Para el registro de coadyuvantes y sustancias afines para uso agrícola, se debe cumplir con los siguientes requisitos:
-a) Solicitud de registro, la cual será válida para un sólo producto.
-b) Certificado de registro y libre venta del país de origen, emitido por la Autoridad Nacional Competente (ANC). Si el producto no se encuentra registrado o no tiene libre venta en el país de origen deberá adjuntarse constancia extendida por la ANC de Origen, donde se indiquen las razones específicas por las que no esta registrado o no tiene libre venta. Si el certificado proviene del extranjero, debe ser legalizado por el Ministerio de Relaciones Exteriores, si la legislación interna de cada país así lo establece.
-c) Certificado de composición cualicuantitativa.
-d) Información perteneciente al producto que se registra:
-Propiedades físicas y químicas del o los ingredientes principales que constituyen el coadyuvante o sustancias afines para uso agrícola:
-d.1) Nombre(s) químico(s) de los ingredientes y concentraciones de los mismos expresados en m/v o m/m.
-d.2) Fórmula empírica y masa molecular, cuando proceda.
-d.3) Punto de fusión en º C, cuando proceda.
-d.4) Punto de descomposición en º C, cuando proceda.
-d.5) Punto de ebullición en º C (para los productos que lo tengan), cuando proceda.
-d.6) Solubilidad en agua, a temperaturas que oscilen entre 10 y 30º C.
-d.7) Solubilidad del o los ingredientes principales en varios solventes.
-d.8) Densidad, a cualquier temperatura entre 10 y 30º C.
-d.9) Estado físico.
-d.10) Indicar la estabilidad del producto y las condiciones para su almacenamiento, como temperatura, humedad y aireación. Indicando si presentan acción química sobre los envases.
-e) Características del producto, cuando proceda:
-e.1) Inflamabilidad.
-e.2) Explosividad.
-e.3) Hidrólisis.
-e.4) Oxidación.
-e.5) Índice de resistencia a la temperatura y a la luz (sólo en caso que los ingredientes constituyentes sean sensibles).
-e.6) Color.
-e.7) Corrosividad.
-e.8) Incompatibilidad con otros productos químicos de uso agrícola y otras sustancias.
-e.9) Indicar si produce espuma.
-e.10) Período de vida media.
-e.11) Otras propiedades pertinentes.
-f) Uso recomendado:
-f.1) Dosis recomendada.
-f.2) Métodos adecuados para preparar el material de aplicación.
-f.3) Método analítico.
-7.5.2. REQUISITOS Y CLASIFICACIÓN DE LA INFORMACIÓN Y LA DOCUMENTACIÓN PARA EL REGISTRO DE COADYUVANTES Y SUSTANCIAS AFINES DE USO AGRÍCOLA
-Toda solicitud de registro de un coadyuvante y sustancia afín debe ser acompañada por dos copias del proyecto de etiqueta que exhibirá el producto, redactada en español y que contenga claramente impresa la siguiente información:
-a) Nombre y dirección del fabricante, formulador y distribuidor.
-b) Nombre, del producto.
-c) Nombre común.
-d) Clase y Tipo.
-e) Composición del producto, indicando los ingredientes en orden decreciente, expresado peso por peso o en peso por volumen.
-f) Contenido neto del empaque o envase, expresado en unidades del Sistema Métrico Decimal.
-g) Condiciones de uso adecuado concordante con lo declarado en la solicitud de registro, indicando la dosis y la forma adecuada de aplicación.
-h) Método para la preparación del material final de aplicación.
-i) Compatibilidad y fitotoxicidad.
-j) Advertencias y precauciones para su uso relativas a la toxicidad de los ingredientes para seres humanos y animales, con indicaciones de los síntomas de intoxicación, primeros auxilios y medidas aplicables en caso de intoxicación oral, dermal o por inhalación, así como los antídotos e indicaciones para el tratamiento médico.
-k) La leyenda con letra mayúscula y en color negro: EN CASO DE INTOXICACIÓN LLEVE EL PACIENTE AL MÉDICO Y DELE ESTA ETIQUETA.
-l) La clasificación toxicológica, la que se determinará con base en la clasificación toxicológica vigente de la OMS.
-m) El número y fecha de registro del coadyuvante o sustancia afín.
-n) Indicaciones sobre el equipo de protección personal a utilizar y las medidas de precaución para su uso.
-o) Indicaciones sobre medidas para la protección de la salud y del ambiente.
-p) Peligros físicos y químicos que presenta y las precauciones que se deben tomar para su manejo.
-q) Indicaciones sobre las condiciones de almacenamiento y transporte.
-r) Indicación del equipo recomendado para la aplicación del producto y su acción sobre el mismo.
-s) La leyenda que diga: Alto: lea la etiqueta antes de usar el producto.
-t) Recomendación para eliminación de envases y remanentes.
-7.5.3 PROCEDIMIENTO PARA EL REGISTRO DE COADYUVANTES Y SUSTANCIAS AFINES DE USO AGRÍCOLA
-7.5.3.1 RECEPCIÓN Y REVISIÓN DE LA INFORMACIÓN (PRIMERA ETAPA):
-a) El registrante deberá presentar ante la unidad que administra el registro del SFE, la solicitud de registro.
-b) La unidad que administra el registro del SFE procederá a extender un recibo que indique lo siguiente: hora y fecha de la presentación de la solicitud, muestras del producto y los envases presentados.
-c) Siempre dentro de esta etapa y cumplido el trámite de presentación y extensión del recibo de presentación, la unidad que administra el registro del SFE procede a abrir un expediente administrativo, debidamente foliado, el cual deberá ser trasladado al oficial asignado de la unidad que administra el registro del SFE, para su revisión.
-d) El oficial de registro asignado, contará con un plazo de cinco días hábiles, para revisar que se haya presentado todos los documentos y estudios indicados en el punto anterior, sin entrar analizar el contenido de dicha información.
-e) Finalizada la revisión y si la solicitud está completa, se procede a notificar al registrante el número de solicitud y se procederá a llevar a cabo el asiento de inscripción de la solicitud de registro, todo ello dentro del plazo indicado en el inciso d).
-Si la solicitud está incompleta por no aportarse alguno de los documentos o requisitos, se procede a notificar al registrante, dentro del plazo indicado en el inciso d), el rechazo de la solicitud y se emite una resolución en la que se devuelva toda la documentación aportada indicando los motivos del rechazo de la solicitud.
-f) Si la documentación esta completa se asigna el asiento de presentación.
-El asiento de presentación incluirá la siguiente información:
-f.1) Hora y fecha de presentación de la solicitud.
-f.2) Nombre y calidades del registrante o del representante legal.
-f.3) Nombre y demás cualidades del producto a registrar y la constancia de que se han presentado todos los documentos reglamentarios.
-El asiento de presentación será de numeración corrida y firmado por el encargado del registro o su subalterno debidamente autorizado.
-7.5.3.2 ANÁLISIS POR PARTE DEL SFE (SEGUNDA ETAPA):
-a) El oficial de registro a cargo del expediente administrativo, contará con un plazo de treinta días hábiles, para llevar a cabo el análisis, revisión y comprobación de la documentación, evalúa las pruebas de identidad y calidad que estime necesarias, a efecto de comprobar la veracidad de la información presentada, incluso podría ordenar la realización ensayos de campo con este propósito, siempre y cuando existe justificación técnica y científica para ello.
-b) En caso de que se comprobará que falta información o esta incompleta, dentro del plazo indicado en el inciso anterior, el SFE podrá hacer observaciones por escrito y por única vez al administrado indicando que cumpla con los requisitos o documentos omitido.
-El administrado contará con un plazo de sesenta días hábiles, para completar la información o requisitos faltantes. Transcurrido el plazo y en caso de no subsanar la omisión se procederá a dictar la respectiva resolución ordenando el rechazo y el archivo definitivo de la solicitud. Esta resolución tendrá los recursos de revocatoria y apelación ante el Director Ejecutivo del SFE, así como recurso de revisión ante el Ministro de Agricultura y Ganadería.
-c) En aquellos casos en que se requiera la realización de pruebas o estudios adicionales para la toma de decisiones, se podrá dar un plazo mayor dependiendo de la complejidad de las pruebas o estudios solicitados, todo lo cual debe estar justificado técnica y científicamente.
-d) Cumplido lo anterior, ya sea porque la solicitud está completa o porque el registrante subsanó los defectos u omisiones, la unidad que administra el registro procede a anotar la solicitud de registro en un libro de presentaciones, que al efecto lleva el registro, por medio de un asiento de numeración corrida.
-7.5.3.3 CONSULTA MINSA Y MINAE (TERCERA ETAPA):
-a) Comprobado que la información es veraz, el expediente se remite a MINSA específicamente a la Dirección de Registros y Controles y a la unidad que administra el registro del MINAE, para que analicen la documentación, según sus competencias.
-b) Ambos Ministerios proceden a analizar la información que propia de sus competencias. En
-aras de verificar que el producto no afecta la salud humana o el ambiente, para lo cual deberá emitir un criterio técnico sobre la información requerida, la cual deberá ser remitida a la unidad que administra el registro del SFE, junto con el expediente que se remitió en el plazo de treinta días hábiles, contados a partir del recibido de la información que es propia de su competencia.
-c) En aquellos casos en que se requiera la realización de pruebas o estudios adicionales para la
-toma de decisiones, se podrá dar un plazo mayor dependiendo de la complejidad de las pruebas o estudios solicitados, todo lo cual debe estar justificado técnica y científicamente.
-7.5.3.4 VALORACIÓN, ANÁLISIS Y DICTADO DE LA RESOLUCIÓN ADMINISTRATIVA (CUARTA ETAPA):
-a) El oficial del registro, que tenga en estudio el expediente, procedería a realizar el análisis y valoración del caso, debiendo resolver en forma integral con base en los criterios técnicos emitidos por las unidades técnicas del SFE, así como los criterios vertidos por MINSA y MINAE.
-b) Realizado el análisis se procede a dictar y a notificar, la resolución de fondo, ya sea ordenando el registro, o por el contrario rechazando la solicitud planteada, expresando las razones técnicas y jurídicas en las que fundamenta su criterio.
-c) Una vez firme, la resolución dictada, en caso que se rechace la inscripción se procede a archivar el expediente, en caso que sea positiva, es decir que acoja la solicitud y ordene la inscripción del producto, el expediente se pasa a la unidad que administra el registro para que proceda a inscribir el producto en el libro de inscripciones y se le asigna el respectivo número de registro; al registrante se le otorgará el correspondiente certificado de registro.
-d) Para la valoración, análisis, dictado de la resolución administrativa, emisión del certificado de registro y notificación al MINSA y MINAE, el SFE cuenta con un plazo de quince días hábiles contados a partir de finalizado el plazo para recibir los alegatos y argumentos contra las oposiciones, o una vez vencido el plazo de las oposiciones en caso de no haberse presentado ninguna.
-e) Inscrito el producto se procederá a notificar a MINSA y MINAE sobre la inscripción del producto.
+(*) 7.5- Registro de coadyuvantes, sustancias afines y vehículos físicos que contengan sustancias afines.
+7.5.1. Documentos generales a adjuntar a la solicitud de registro.
+Para el registro de coadyuvantes, sustancias afines y vehículos físicos que las contengan, de uso agrícola, se debe cumplir con los siguientes requisitos:
+I.—Legajo administrativo del expediente:
+a) Solicitud de registro (Anexo I).
+b) Presentar una certificación extendida por la Autoridad Competente o cualquier otra entidad facultada legalmente para la emisión de los mismos, que haga constar que el establecimiento se encuentra registrado o en su defecto autorizado para realizar actividades de formulación en su país de origen, y acompañada del certificado de origen del producto del país de formulación.
+c) Certificado de análisis de la sustancia afín o coadyuvante en original, emitido por el fabricante o formulador, según corresponda y firmado por el profesional responsable, el cual contendrá únicamente el detalle acerca de la concentración nominal del (los) componentes de la sustancia afín o coadyuvante expresados en porcentaje(s) masa/masa o masa/volumen, según corresponda el estado físico.
+d) Hoja de Datos de Seguridad que debe contener:
+1) Identificación del producto:
+1.1) Producto (Marca, concentración y formulación).
+1.2) Nombre del Formulador y dirección.
+1.3) Nombre químico aceptado o propuesto por IUPAC del componente(s) de la sustancia afín o coadyuvante, si existe.
+1.4) Nº CAS del componente(s) de la sustancia afín o coadyuvante, si existe.
+1.5) Fórmula molecular del componente(s) de la sustancia afín o coadyuvante.
+1.6) Masa molecular del componente(s) de la sustancia afín o coadyuvante.
+1.7) Uso: Clase y tipo.
+2) Propiedades físicas y químicas.
+2.1) Estado físico.
+2.2) Color.
+2.3) Presión de vapor.
+2.4) Punto de fusión. (No aplica para mezclas)
+2.5) Punto de ebullición. (No aplica para mezclas)
+2.6) Solubilidad g/L en agua, a veinte grados CELSIUS ( 20 ºC ).
+2.7) Solubilidad en otros solventes.
+2.8) Temperatura de descomposición.
+2.9) Inflamabilidad.
+2.10) Explosividad.
+2.11) Corrosividad.
+3) Primeros auxilios.
+3.1) Inhalación.
+3.2) Piel.
+3.3) Ojos.
+3.4) Ingestión.
+4) Medidas contra el fuego.
+4.1) Medios de extinción.
+4.2) Procedimientos de lucha específicos.
+5) Manipuleo y almacenamiento.
+5.1) Medidas de precaución personal.
+5.2) Condiciones adecuadas de almacenamiento.
+6) Estabilidad y reactividad.
+6.1) Estabilidad.
+6.2) Reactividad.
+7) Potenciales efectos en la salud.
+7.1) Inhalación.
+7.2) Ojos.
+7.3) Piel.
+7.4) Ingestión.
+8) Información toxicológica aguda.
+8.1) Oral DL50.
+8.2) Dérmica DL50.
+8.3) Inhalación CL50.
+8.4) Irritación de la piel.
+8.5) Irritación para los ojos.
+8.6) Sensibilización de la piel.
+9) Información ecotoxicológica.
+9.1) Efectos agudos sobre organismos acuáticos: peces y Daphnia.
+9.2) Toxicidad para aves.
+9.3) Toxicidad para abejas.
+9.4) Toxicidad para lombrices.
+9.5) Toxicidad para algas.
+10) Acciones de emergencia.
+10.1) Derrames.
+10.2) Fuego.
+10.3) Disposición final.
+11) Información para el transporte.
+11.1) Terrestre.
+11.2) Aéreo.
+11.3) Marítimo.
+Nota 1: La información de la hoja de seguridad en esta modalidad de registro se presentará de acuerdo a la información presentada en la solicitud de registro.
+12) Comprobante de pago del arancel vigente.
+II.—Legajo de información técnica del expediente:
+a) Propiedades físicas y químicas de cada uno de los componentes principales, excluyendo los inertes que constituyen la sustancia afín o coadyuvante:
+1) Nombre(s) químico(s) según IUPAC y concentraciones de los mismos expresados en porcentajes masa/masa o masa/volumen, según el estado físico del producto. Indicar además el número CAS.
+2) Fórmula molecular y masa molecular.
+3) Punto de fusión en ºC para sólidos a temperatura ambiente ( 20 ºC ).
+4) Temperatura de descomposición en ºC. (En caso de que se descomponga antes del punto de fusión o ebullición).
+5) Punto de ebullición en ºC para líquidos a temperatura ambiente ( 20 ºC ).
+6) Estado físico.
+b) Características del producto formulado:
+1) Inflamabilidad (punto de inflamación en ºC para el caso de líquidos y para el caso de sólidos indicar si es o no inflamable).
+2) Explosividad.
+3) Color.
+4) Corrosividad (reacción con otros materiales, con propósitos de manejo del producto) indicar además si presenta acción química sobre el material de los envases recomendados.
+5) Solubilidad en agua en g/L, a una temperatura entre 10 y 30 ºC .
+6) Solubilidad en otros disolventes orgánicos.
+7) Densidad en g/mL, a cualquier temperatura entre 10 y 30 ºC .
+8) Período de estabilidad del producto en el almacenamiento. Indicar además las condiciones para su almacenamiento, como temperatura, humedad y ventilación.
+9) Incompatibilidad con otros productos químicos de uso agrícola y otras sustancias.
+10) Indicar si produce espuma.
+11) Presión de vapor.
+c) Uso Agronómico, según el tipo de producto:
+1) Ámbito de Aplicación (condiciones de campo y en condiciones controladas).
+2) Cultivos (nombre común y científico).
+3) Plagas a controlar (nombre común y científico) o efecto fisiológico sobre la planta.
+4) Modo y mecanismo de acción sobre los cultivos, cosecha y plaga.
+5) Dosis recomendadas (por unidad de área, por volumen a utilizar, por planta u otros).
+6) Método de aplicación.
+7) Época, intervalo y máximo número de aplicaciones por ciclo de cultivo.
+8) Intervalo entre la última aplicación y la cosecha.
+9) Tiempo de reingreso al área tratada.
+10) Incompatibilidad de uso con otros productos.
+11) Fitotoxicidad del producto.
+12) Información del tipo de equipo a utilizar en la aplicación del producto.
+13) Información sobre la preparación de la mezcla: Indicar el orden de mezcla, el pH adecuado del agua o de la mezcla a utilizar, éste último de acuerdo al tipo de producto o al efecto que se quiera obtener del producto sobre la planta y forma de aplicación del producto.
+14) Advertencias y precauciones de uso del producto para seres humanos, animales y ambiente.
+d) Ensayo de eficacia biológica para cada uno de los usos solicitados, el cual debe de haberse realizado de acuerdo al protocolo patrón para ensayos de eficacia según el anexo IX. La Unidad que administra el registro del SFE valorará la presentación o no de dichos ensayos según sea el uso del producto. El SFE podrá aceptar ensayos de otros países realizados en condiciones agroecológicas similares a las de Costa Rica, los cuales deberán ser validados por la Unidad que administra el registro del SFE.
+e) Envases:
+1) Tipo.
+2) Material.
+3) Capacidad.
+4) Información sobre el sistema del cierre: sello de seguridad, hermeticidad del envase u otra.
+5) Procedimientos para la descontaminación y destino final de los envases vacíos.
+f) Métodos químicos de análisis.
+1) Para identificar, caracterizar y cuantificar el o (los) componente(s) de la sustancia afín o coadyuvante. Para el caso de los vehículos físicos que contengan sustancias afines se debe presentar para la sustancia afín y no para el vehículo físico.
+g) Estudios de Toxicidad aguda para mamíferos:
+1) Dosis letal media oral aguda (DL50), expresada en mg/kg de peso corporal. Guía Técnica OECD 423. Se recomienda esta guía para establecer con mayor claridad la clasificación toxicológica aguda, de acuerdo a la clasificación vigente de la OMS /FAO.
+Este estudio se requerirá en todos los casos excepto si el producto es un gas o es altamente volátil.
+2) Dosis letal dérmica aguda (DL50) expresada en mg/kg de peso corporal. Guía Técnica número 402 OECD.
+Este estudio se requerirá en todos los casos, excepto cuando:
+2.1) El producto es un gas o es altamente volátil.
+2.2) El producto es corrosivo para la piel o presenta un pH menor a 2 o mayor a 11,5.
+3) Concentración letal media aguda por inhalación (CL50), expresada en mg/l o mg/m3. Guía Técnica OECD 403.
+Este estudio se requerirá solamente cuando el producto sea: un gas o un gas licuado, pueda utilizarse como fumigante, pueda incluirse en un aerosol o un preparado que desprenda vapor, pueda utilizarse con un equipo de nebulización, tenga una presión de vapor mayor a 1x10-2 Pa y vaya a incluirse en preparados empleados en espacios cerrados, pueda incluirse en preparados en forma de polvo con una proporción mayor al 1% de peso de partículas de un diámetro menor a 50 micrómetros, o pueda incluirse en preparados que se apliquen de forma que se genere una cantidad mayor al 1% en peso de partículas o gotas de un diámetro menor a 50 micrómetros.
+4) Estudio de irritación dérmica. La prueba debe mostrar el potencial de irritación a piel, incluyendo reversibilidad potencial de los efectos observados. Guía Técnica OECD 404.
+Este estudio se requerirá en todos los casos, excepto cuando:
+4.1) Se conozca de antemano que el material es corrosivo.
+4.2) Presente un pH menor a 2 o mayor a 11.5.
+4.3) Se conozca que no causa efectos en la piel.
+4.4) Sea un gas o altamente volátil.
+5) Irritación ocular. La prueba debe mostrar el potencial de irritación a piel, incluyendo reversibilidad potencial de los efectos observados. Guía Técnica OECD 405.
+Este estudio se requerirá en todos los casos, excepto cuando:
+5.1) Se conozca de antemano que el material es corrosivo.
+5.2) Presente un pH menor a 2 o mayor a 11.5.
+5.3) Se conozca que no causa efectos oculares.
+6) Sensibilización de piel. Guía Técnica OECD 406. Este estudio se requerirá en todos los casos, excepto cuando se conozca que el producto es un conocido sensibilizante, o cuando se trate de un gas o de una sustancia altamente volátil.
+h) Clasificación Toxicológica: De acuerdo con la tabla de clasificación toxicológica vigente de la OMS /FAO (Anexo XVII).
+Nota 1: Para aquellos productos que no cuenten con información toxicológica aguda oral y dérmica se clasificarán en la categoría IV (banda verde).
+i) Información médica obligatoria:
+1) Síntomas que presentan las intoxicaciones agudas: por la vía oral, dérmica e inhalatoria propias del producto.
+2) Vías de absorción del producto y el posible modo de acción tóxico si se conoce.
+3) Procedimientos para emergencia y primeros auxilios en caso de intoxicación aguda por cualquier vía de absorción.
+4) Información sobre antídotos, tratamiento médico y contraindicaciones.
+j) Estudios Ecotoxicológicos:
+1) Toxicidad oral aguda en alguna de las siguientes especies de aves: faisán, codorniz, pato mallard u otra especie validada. OPPTS 850.2100 Avian Acute Oral Toxicity Test. EPA.
+2) Toxicidad aguda en peces, CL50 en alguna de las siguientes especies: trucha arco iris, carpa o cualquier otra especie validada que habite en aguas con temperaturas entre 10 y 30 grados Celsius. Guía OECD 203.
+3) Toxicidad aguda en abejas (vía oral y por contacto). Guía OECD 213 y 214.
+4) Toxicidad en Lombriz de tierra Eisseina foetida. Concentración letal media (LC50). Guía OECD 207 y EPA OPPTS No. 8506200
+5) Toxicidad aguda en Daphnia magna. Guía OECD 202.
+6) Estudio sobre el efecto en el crecimiento de algas, tales como Selenastrum capricornutum u otras especies de plantas acuáticas validadas. Guía OECD 201.
+k) Efectos sobre el medio abiótico:
+k.1) Estudio en las tasas y en las vías de degradación en medio acuoso, así como en aire y suelo, incluyendo los valores de vidas medias, metabolitos y productos resultantes de la degradación en agua y suelo.
+El registrante podrá justificar la no presentación de alguno(s) del o los requisitos indicados en los incisos j) y k), cuando demuestre que el ambiente no va a sufrir un riesgo inaceptable por la AC , considerando alguno(s) de los siguientes condicionantes:
+a) Que de acuerdo al modo de uso del producto (evaluación de la exposición) no habrá riesgos inaceptables para los organismos no objetivos.
+b) Que por extrapolación de información generada para moléculas químicas de estructura similar, se fundamente que el producto a registrar no presente datos de preocupación toxicológica.
+c) Que se demuestre a través de otros estudios científicos sobre el producto a registrar que el riesgo de afectación no es significativo.
+Para los requisitos solicitados en los incisos g), j) y k se deberá presentar el resumen respectivo en español de cada investigación que deberá contener además de la información en la guía utilizada lo siguiente: título, autor e institución que realizó el ensayo, patrocinador, fecha de la prueba, guía o protocolo de referencia, la identidad de la sustancia de prueba (nombre químico según IUPAC, nombre común, Número CAS, concentración), condiciones de la prueba, metodología, resultados y conclusiones descritos según lo especificado por la guía utilizada en esta prueba.
+l) Para las solicitudes de registro de coadyuvantes y sustancias afines, con excepción de lo indicado en los incisos j y k, el solicitante del registro podrá justificar basado en criterios técnicos y científicos, ante la AC , el no cumplimiento de algún requisito específico de la información técnica del expediente, adjuntando la información y los estudios correspondientes. Para el efecto la AC valorará los argumentos bajo criterios técnicos y científicos, debiendo emitir la resolución correspondiente. No obstante, la autoridad competente quedará facultada para solicitar, previa justificación técnica o legal, otros estudios que considere pertinentes.
+III.—Legajo de información confidencial del expediente:
+a) Declaración de la composición cuali-cuantitativa en original, emitida por la entidad formuladora la cual debe haber sido emitida dentro de un período que no exceda de un año, a la fecha de su presentación ante la AC. La declaración debe contener la siguiente información:
+a.1) Identidad y contenido nominal de cada componente de la sustancia afín o coadyuvante expresado en porcentaje masa/masa o masa/volumen.
+a.2) Identidad y contenido nominal de cada uno de los demás aditivos e inertes incluidos en la formulación.
+Nota: Se debe indicar la identidad de acuerdo a su nombre químico según IUPAC y su número CAS.
+b) Para el caso de vehículos físicos que contengan sustancias afines se deberá presentar el proceso de producción del vehículo físico con la sustancia afín.
+7.5.2. Del etiquetado.
+Toda solicitud de registro debe ser acompañada del proyecto de etiqueta y panfleto que exhibirá el producto, redactada en español y que contenga claramente impresa la información indicada en los anexos X, XI, XII, XIII, XIV, XV, XVI, de acuerdo con las presentaciones de los envases o empaques y tipo de producto. Para el caso de Coadyuvantes el tipo se refiere a la acción principal para la cual está destinado el coadyuvante.
+7.5.3. Registro de vehículos físicos que contengan sustancias afines.
+Para el caso de sustancias afines incorporadas en un vehículo físico, se deberá presentar además de la información indicada en los numerales 7.5.1 y 7.5.2, la siguiente información:
+1. Características generales del vehículo físico:
+1.1- Material usado
+1.1.1- Tipo (caracterización)
+1.1.2.- Características descriptivas (color, dimensiones)
+1.1.3- Certificación de la Reactividad de la sustancia afín con el vehículo físico. (Si el vehículo físico es resistente a la acción química o física de la sustancia afín, si se mantiene la estabilidad de ambos). Esta debe de ser emitida por un químico.
+7.5.4 Procedimiento para el registro de coadyuvantes, sustancias afines y vehículos físicos que contengan sustancias afines
+7.5.4.1 Recepción y revisión de la información (Primera etapa):
+a) El registrante deberá presentar ante la unidad que administra el registro de la AC el expediente acompañado del legajo administrativo, técnico y confidencial.
+b) La unidad que administra el registro de la AC procederá a extender un recibo que indique lo siguiente: hora y fecha de la presentación de la solicitud, nombre del solicitante, el nombre y número de identificación personal de quién lo entrega, constancia de los documentos presentados, así como el nombre y número de identificación personal del funcionario que recibe el expediente.
+c) Siempre dentro de esta etapa y cumplido el trámite de presentación y extensión del recibo de presentación, la unidad que administra el registro de la AC procederá a abrir un expediente de trámites administrativos, debidamente foliado, el cual deberá ser trasladado junto con el expediente al oficial asignado para su revisión.
+7.5.4.2 Análisis por parte de los ministerios (Segunda etapa):
+a) La AC enviará a consulta la copia del expediente de acuerdo a sus competencias al Ministerio de Salud y al Ministerio de Ambiente, Energía y Telecomunicaciones.
+b) Los Ministerios tendrán un plazo de 1 mes para analizar la información, contados a partir del recibo de la misma.
+c) Los dictámenes del Ministerio de Salud y del Ministerio de Ambiente, Energía y Telecomunicaciones serán remitidos por esas carteras ministeriales a la unidad que administra el registro de la AC y tendrán carácter vinculante.
+d) Obtenidos los criterios respectivos, la AC notificará al interesado mediante resolución en el plazo establecido en el inciso b), previniéndole para que presente en un plazo no mayor a 60 días hábiles, los documentos omitidos o subsane lo señalado por tales criterios. En caso de incumplimiento se procederá al archivo definitivo del expediente y se le comunicará al solicitante por medio de resolución.
+e) En aquellos casos en que la AC requiera la realización de pruebas o estudios adicionales (según lo hayan manifestado en sus criterios los Ministerios involucrados en este proceso de registro) para la toma de decisiones, se podrá dar un plazo mayor a solicitud de parte el cual deberá estar justificado, y dependerá del tipo de prueba o estudio de que se trate. De autorizarse un tiempo adicional y cumplido este plazo sin que se haya presentado la información solicitada se procederá al archivo definitivo del expediente, y se le comunicará al solicitante por medio de resolución.
+f) Presentados los documentos o subsanados los defectos señalados, los Ministerios que lo solicitaron tendrán un plazo de un mes para emitir un nuevo criterio.
+7.5.4.3 Publicación de edictos y oposiciones (Tercera etapa):
+a) Si la recomendación de los Ministerios es la aprobación de la información presentada en la solicitud de registro, la AC procede a confeccionar el edicto, el cual se notificará en un plazo de ocho días naturales al interesado mediante resolución para que sea retirado en la AC. El mismo deberá
+ser publicado por una única vez en el Diario Oficial La Gaceta por parte del interesado. Dicho edicto deberá contener una breve descripción del producto a registrar.
+b) Publicado el edicto se abre el plazo para oposiciones, el cual es de 10 días hábiles contados a partir del día siguiente de la publicación, dentro del cual cualquier tercero que demuestre interés legítimo podrá oponerse al registro del producto.
+c) Las oposiciones deberán ser razonadas y fundamentadas, así como expresar con claridad y precisión los aspectos y puntos por los cuales se opone a la solicitud de registro. Además el opositor deberá aportar toda la prueba documental y fundamentación jurídica, técnica o científica que sirva de sustento a su oposición.
+d) El escrito de oposición deberá indicar, el nombre y calidades de quien se opone, el lugar o medio para recibir notificaciones.
+e) La AC , en un término de siete días naturales, a partir del recibido de la oposición, notificará al registrante para que éste se pronuncie sobre las oposiciones en un plazo de quince días hábiles, y aporte la prueba de descargo que considere pertinente, en defensa de sus intereses.
+f) Cerrado el plazo para oposiciones el oficial de registro que tenga a cargo el expediente, procederá a realizar el análisis y valoración del caso en materia de su competencia. De versar la oposición sobre materia de competencia del Ministerio de Salud y del Ministerio de Ambiente, Energía y Telecomunicaciones, comunicará al Ministerio respectivo para que emita criterio técnico al respecto.
+7.5.4.4 Valoración, análisis y dictado de la resolución administrativa (Cuarta etapa):
+a) La AC en un plazo de veintidós días naturales a partir de la recepción de los descargos de la oposición, evaluará la oposición y los descargos, o en caso de que no se presenten oposiciones, la AC procederá a dictar y a notificar la resolución de fondo, ya sea ordenando el registro, o por el contrario rechazando la solicitud planteada, expresando las razones técnicas y jurídicas en las que fundamenta su criterio. Una vez resuelto los recursos indicados en el apartado 8.2 de este reglamento, o pasado el plazo de interposición de los recursos sin que el interesado recurra la resolución de fondo, la misma adquirirá firmeza.
+b) Una vez firme, la resolución dictada, en caso que se rechace la inscripción se procede a archivar el expediente, comunicándosele al registrante vía resolución, o en caso que sea positiva, es decir, que se acoja la solicitud y se ordene la inscripción del producto, el expediente se pasa a la unidad que administra el registro de la AC para que proceda a inscribir el producto en el libro de inscripciones y se le asigne el respectivo número de registro; al registrante se le comunicará vía resolución y se le otorgará el correspondiente certificado de registro.
+c) Inscrito el producto se procederá a notificar al Ministerio de Salud y al Ministerio de Ambiente, Energía y Telecomunicaciones, sobre su inscripción.
+(*)(Así reformado la subsección 7.5 anterior por el artículo 3° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
 8. ASPECTOS GENERALES DE LOS PROCEDIMIENTOS
 En casos de excepción los Ministerios podrán solicitar información o estudios adicionales de los ya aportados en la solicitud por el administrado, siendo que esta información resulte imprescindible para la resolución del registro y re-registro. Dicho requerimiento se hará por escrito e indicando las justificaciones técnicas y científicas de dicho requerimiento.
 8.1 EXCEPCIONES A LOS PLAZOS
@@ -1386,8 +1503,11 @@ El funcionario a cargo de la supervisión deberá rendir un informe final sobre 
 18.1 PROPÓSITOS, FINES Y OBJETIVOS.
 18.1.1 La fiscalización de sustancias químicas y afines de uso en la agricultura, tiene como propósito el control sobre la inscripción, exportación, importación, fabricación, formulación, reempaque, reenvase, distribución, almacenamiento, transporte, comercialización, uso y aplicación de plaguicidas.
 El objetivo principal de la fiscalización radica en controlar y vigilar la comercialización, importación, fabricación, formulación, almacenamiento, transporte, reempaque, reenvase, calidad y residuos, de toda sustancia química de uso en la agricultura, procurando al mismo tiempo proteger la salud humana y el ambiente.
-18.1.2 Todas las personas físicas o jurídicas, sujetas a este reglamento y conforme a lo dispuesto en el artículo 25 de la Ley de Protección Fitosanitaria Nº 7664, deben estar inscritas como tal en el registro de personas físicas y jurídicas que para este efecto lleva el SFE. Además esas mismas personas físicas o jurídicas deberán estar inscritas en el registro actualizado de establecimientos agropecuarios del Colegio de Ingenieros Agrónomos y contar con los servicios de un Regente Agrícola profesional en ciencias agrícolas incorporado al mismo Colegio.
+18.1.2. Generalidad posterior al registro: Los Ministerios podrán examinar de oficio o por solicitud justificada técnica y científicamente de terceros, los registros aprobados de ingrediente activo grado técnico, plaguicida sintético formulado, coadyuvantes y sustancias afines y vehículos que los contengan, en los siguientes casos: a) Cuando se conozca información que no se haya considerado como un requisito durante la evaluación que otorgó el registro o fuere posterior a éste, y que ésta tenga importancia para salvaguardar la salud, el ambiente y la agricultura, b) Cuando cualquier información que se encuentra en el expediente de registro, haya sido modificada o actualizada y que ésta sea indispensable para sustentarlo y c) cuando se evidencie la posibilidad de afectación a la salud humana, el ambiente o la agricultura se podrá requerir cualquier tipo de información previa justificación técnica y científica. Para todo lo anterior los Ministerios podrán requerir información o análisis adicionales y documentación de apoyo durante la vigencia del registro.
+(Así adicionado el numeral anterior por el artículo 5° del decreto ejecutivo N° 36190 del 7 de junio de 2010).
+18.1.3 Todas las personas físicas o jurídicas, sujetas a este reglamento y conforme a lo dispuesto en el artículo 25 de la Ley de Protección Fitosanitaria Nº 7664, deben estar inscritas como tal en el registro de personas físicas y jurídicas que para este efecto lleva el SFE. Además esas mismas personas físicas o jurídicas deberán estar inscritas en el registro actualizado de establecimientos agropecuarios del Colegio de Ingenieros Agrónomos y contar con los servicios de un Regente Agrícola profesional en ciencias agrícolas incorporado al mismo Colegio.
 Dicha información debe ser remitida trimestralmente al SFE.
+(Así corrida la numeración del numeral anterior por el artículo 5 del decreto ejecutivo N° 36190 del 7 de junio de 2010, que lo traspasó del antiguo numeral 18.1.2 al 18.1.3 actual)
 18.2 FABRICACIÓN, FORMULACIÓN, REEMPACADO O Y REENVASADO.
 18.2.1 Las actividades de fabricación, formulación, reempacado y reenvasado deben efectuarse bajo estrictas precauciones, con el fin de conservar la salud de las personas que intervengan en dichas actividades, así como el medio ambiente. El Poder Ejecutivo de acuerdo con sus respectivas competencias dictarán las regulaciones correspondientes de acuerdo con sus respectivas competencias, para que tales actividades se cumplan apropiadamente por parte de los involucrados.
 18.2.2 Toda persona física o jurídica que desarrolle actividades de fabricación, formulación, reempacado o reenvasado, sobre plaguicidas sintéticos formulados, ingrediente activo grado técnico, coadyuvantes y sustancias afines, debe inscribirse como tal en el registro que al efecto lleva el SFE.
