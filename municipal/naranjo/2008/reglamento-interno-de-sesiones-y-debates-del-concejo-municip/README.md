@@ -14,3 +14,4 @@ Reglamento Interno de Sesiones y Debates del Concejo Municipal de la Municipalid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-14 | la propia norma |
+| 2 | 2010-06-07 | Reglamento municipal 23 (2010-06-07) |
