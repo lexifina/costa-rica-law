@@ -1,0 +1,1 @@
+II.—Establecer que esta tarifa también podrá ser aplicable a cualquier otro tipo de compraventa de energía con base en energía hidroeléctrica; mientras no existan otros modelos específicos; siempre que se cumplan con las premisas y consideraciones establecidas en el modelo, especialmente lo referente a que se trate de plantas con inversión ya amortizada.
