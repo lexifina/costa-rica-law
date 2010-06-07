@@ -14,3 +14,4 @@ Registro de Proveedores específico para la adquisición de materiales genérico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-05 | la propia norma |
+| 2 | 2010-06-07 | Acuerdo 0 (2010-06-07) |
