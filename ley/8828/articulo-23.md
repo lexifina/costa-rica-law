@@ -1,0 +1,2 @@
+ARTÍCULO 23.- Autorización para invertir
+Previo acuerdo adoptado por mayoría calificada de los concejos municipales respectivos, las municipalidades participantes quedan autorizadas para invertir en estas empresas. Para tal efecto, el monto requerido será presupuestado en un solo período o en varios períodos; además, podrán hacer aportes en especie. De igual manera lo podrán hacer las instituciones del Estado.

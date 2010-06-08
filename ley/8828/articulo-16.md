@@ -1,0 +1,3 @@
+ARTÍCULO 16.- Incompatibilidades
+No podrán participar como socios privados de las municipalidades, las empresas en cuyo capital posean acciones los alcaldes municipales propietarios o vicealcaldes, los intendentes y viceintendentes municipales, los regidores propietarios o suplentes, los síndicos propietarios y suplentes, los empleados directos de las municipalidades y los parientes por afinidad o consanguinidad, hasta el tercer grado inclusive, de estos funcionarios o empleados.
+Además, no podrán integrar la junta directiva los ex servidores o ex funcionarios de algunas de esas municipalidades, que hayan sido despedidos o destituidos por causa justificada, cuando no hayan transcurrido al menos diez años a partir de la firmeza del despido.

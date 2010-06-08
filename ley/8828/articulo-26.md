@@ -1,0 +1,2 @@
+ARTÍCULO 26.- Financiamiento bancario
+Para la implementación y el desarrollo de los proyectos a ejecutar, por las sociedades municipales de economía mixta, el Sistema Bancario Nacional o privado podrá prestar las sumas requeridas y estará sujeto a lo dispuesto en el inciso 5) del artículo 61 de la Ley orgánica del Sistema Bancario Nacional, N.º 1644, quedando expresamente autorizados por esta norma; para ello, se tomará en cuenta la situación socioeconómica de la región respectiva.
