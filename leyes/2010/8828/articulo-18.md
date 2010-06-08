@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Inhibición y recusación
+Ningún directivo podrá asistir a la sesión en la que se resuelvan asuntos de interés propio o de cualquier pariente suyo, por consanguinidad o afinidad, hasta el tercer grado inclusive o que interesen a una empresa en la que él o sus parientes, en los grados mencionados, sean socios, asociados, directores, funcionarios o empleados. En el caso de no cumplirse esta disposición, se le aplicará la sanción establecida en la Ley contra la corrupción y el enriquecimiento ilícito en la función pública, Ley N.º 8422, para esos efectos.

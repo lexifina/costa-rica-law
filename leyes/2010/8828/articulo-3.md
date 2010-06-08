@@ -1,0 +1,4 @@
+ARTÍCULO 3.- Naturaleza jurídica
+Las SPEM se organizarán y funcionarán conforme a las normas que rigen a las sociedades anónimas, sin perjuicio de su sujeción al Derecho público, cuando corresponda, de conformidad con nuestro ordenamiento jurídico. Para su creación se requiere la aprobación de dos tercios del total de los miembros que integran el concejo municipal respectivo.
+El acuerdo del concejo que autoriza la constitución de la SPEM deberá señalar, al menos, el objeto de la sociedad, la forma como se escogerán los socios, la manera como se conformará la junta directiva, la distribución de los poderes entre sus órganos, la propiedad de las acciones, la forma como se liquidará la SPEM, en caso de disolución, así como los aspectos que sean relevantes para la constitución de la sociedad.
+El alcalde o los alcaldes verificarán la inclusión de estos aspectos en la escritura constitutiva.
