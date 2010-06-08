@@ -14,3 +14,4 @@ Reglamento sobre los Programas de Mejora Regulatoria y Simplificación de Trámi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-10 | la propia norma |
+| 2 | 2010-06-08 | Decreto Ejecutivo 36046 (2010-06-08) |
