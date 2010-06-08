@@ -1,0 +1,1 @@
+Artículo 13.—Acceso a puestos de confianza para personal externo a la institución. Las personas que no laboran para el ICE y que se nombraren exclusivamente para ocupar un puesto de confianza, estarán exentas de cumplir con el procedimiento de reclutamiento y selección normal de la Institución. La responsabilidad de la idoneidad recaerá sobre la autoridad superior que lo nombre.

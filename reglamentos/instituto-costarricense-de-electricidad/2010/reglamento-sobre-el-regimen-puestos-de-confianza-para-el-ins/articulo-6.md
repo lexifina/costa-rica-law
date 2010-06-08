@@ -1,0 +1,1 @@
+Artículo 6º—Cantidad de puestos de confianza. El número de puestos de confianza en el ICE será de hasta cinco Asesores, un Director de Despacho, un Asistente y un chofer para la Presidencia Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 14.—Causas de remoción y cesación. Los empleados de confianza pueden ser cesados en forma discrecional por la instancia competente, por la sola pérdida de la confianza o la comisión de alguna falta administrativa laboral. En caso de remoción del funcionario, la instancia competente debe comunicarle claramente a éste, la causa que motiva su destitución.

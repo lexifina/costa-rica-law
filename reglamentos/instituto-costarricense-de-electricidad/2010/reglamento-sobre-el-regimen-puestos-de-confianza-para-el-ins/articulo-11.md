@@ -1,0 +1,1 @@
+Artículo 11.—Requisitos académicos. Los requisitos académicos y la experiencia serán establecidos de acuerdo con las razones objetivas de necesidad del área contratante, en relación con las funciones por desempeñar y el salario que se le fije.
