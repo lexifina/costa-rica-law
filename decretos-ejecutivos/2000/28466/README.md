@@ -26,3 +26,4 @@ Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos
 | 11 | 2008-11-27 | Decreto Ejecutivo 34925 (2008-11-27) |
 | 12 | 2009-02-10 | Decreto Ejecutivo 35080 (2009-02-10) |
 | 13 | 2010-01-26 | Decreto Ejecutivo 35996 (2010-01-26) |
+| 14 | 2010-06-08 | Decreto Ejecutivo 36068 (2010-06-08) |
