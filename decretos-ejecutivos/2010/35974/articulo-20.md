@@ -1,0 +1,1 @@
+Artículo 20.—Contra los acuerdos del CORAC-AHN cabrá recurso de revocatoria ante el mismo Consejo de conformidad a lo dispuesto en el artículo 47 del Reglamento a la Ley de Biodiversidad y el artículo 58 de la Ley General de la Administración Pública.

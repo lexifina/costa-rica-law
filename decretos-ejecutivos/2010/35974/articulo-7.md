@@ -1,0 +1,2 @@
+Artículo 7º—La acreditación de los asambleístas será gestionada por el Director del ACAHN en su carácter de Secretario Ejecutivo del CORAC-AHN, el cual realizará la respectiva convocatoria de conformidad a lo dispuesto en el artículo 5 de este reglamento.
+Cada entidad reportará en documento firmado y sellado, los nombres y calidades de sus representantes. Los integrantes del CORAC-AHN vigente serán miembros ex oficios de la Asamblea General.

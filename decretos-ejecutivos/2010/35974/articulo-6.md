@@ -1,0 +1,3 @@
+Artículo 6º—Previo a la celebración de la Asamblea General, las organizaciones no gubernamentales y comunales interesadas, las Municipalidades y las instituciones públicas presentes en el ACAHN deberán acreditar ante la Secretaria Ejecutiva del CORAC-AHN dos representantes: un titular y un suplente.
+La Asamblea dará inicio con los representantes acreditados que se hallen presentes, los cuales deberán ser al menos cinco miembros de distintos sectores.
+Cada representante titular debidamente acreditado tendrá derecho a voz y voto, así como a participar en los puestos de elección, los cuales serán elegidos por mayoría simple, nombrando siempre un representante titular de cada organización o sector y su respectivo suplente.
