@@ -1,0 +1,6 @@
+Artículo VIII
+1. El presente Convenio estará abierto a la firma de todos los Estados en la Sede de las Naciones Unidas, en Nueva York. Todo Estado que no firmare este Convenio antes de su entrada en vigor de conformidad con el párrafo 3 de este artículo podrá adherirse a él en cualquier momento.
+2. El presente Convenio estará sujeto a ratificación por los Estados signatarios. Los instrumentos de ratificación y los instrumentos de adhesión serán depositados en poder del Secretario General de las Naciones Unidas.
+3. El presente Convenio entrará en vigor entre los Estados que hayan depositado instrumentos de ratificación cuando se deposite en poder del Secretario General de las Naciones Unidas el quinto instrumento de ratificación.
+4. Para los Estados cuyos instrumentos de ratificación o de adhesión se depositaren después de la entrada en vigor del presente Convenio, éste entrará en vigor en la fecha del depósito de sus instrumentos de ratificación o de adhesión.
+5. El Secretario General informará sin tardanza a todos los Estados signatarios y a todos los Estados que se hayan adherido a este Convenio de la fecha de cada firma, la fecha de depósito de cada instrumento de ratificación de este Convenio y de adhesión a este Convenio, la fecha de su entrada en vigor y cualquier otra notificación.
