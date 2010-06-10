@@ -2,7 +2,7 @@ CAPÍTULO IV
 ORGANIZACIÓN Y COMPETENCIAS DE LOS ÓRGANOS PARTIDARIOS
 ARTÍCULO 67.- Órganos de los partidos políticos
 Sin perjuicio de la potestad autorreglamentaria de los partidos políticos para delimitar su propia organización interna, necesariamente esta deberá comprender al menos:
-a) Una asamblea distrital en cada distrito administrativo, formada por los electores de cada distrito afiliados al partido.
+a) (Anulado por resolución de la Sala Constitucional N° 9340 del 26 de mayo de 2010. Dicho numeral disponía: “Una asamblea distrital en cada distrito administrativo, formada por los electores de cada distrito afiliados al partido.”)
 b) Una asamblea cantonal en cada cantón, constituida por cinco delegados de cada distrito, electos por las respectivas asambleas de distrito.
 c) Una asamblea provincial en cada provincia, integrada por cinco delegados de cada una de las asambleas cantonales de la respectiva provincia.
 d) Una asamblea nacional como autoridad máxima del partido, integrada por diez delegados de cada asamblea provincial.
