@@ -1,0 +1,2 @@
+Artículo 2º—Se modifica el artículo 19 del Decreto N° 34431-MINAE-S, para que se lea de la siguiente manera:
+“Artículo 19.—Trámite del permiso de vertidos. La solicitud de permiso de vertidos deberá hacerla el interesado ante el MINAET, siguiendo para ello las disposiciones que se establezcan mediante resolución administrativa. Dichos trámites serán resueltos por el MINAET en un plazo máximo de 2 meses.”
