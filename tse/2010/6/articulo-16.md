@@ -1,0 +1,4 @@
+CAPÍTULO III
+Sobre las papeletas en particular
+Artículo 16.—Distintivo de las papeletas. Las papeletas que se utilizarán el próximo 5 de diciembre de 2010 para la elección de alcaldes, síndicos, concejales de distrito, intendentes y miembros de los concejos municipales de distrito, tendrán las dimensiones y diseño que apruebe el TSE mediante acuerdo que se publicará en el Diario Oficial La Gaceta.
+Las papeletas para alcaldes y vicealcaldes se imprimirán en papel blanco con detalles de seguridad en cyan y negro; para concejales de distrito y síndico, color cyan con detalles en blanco y negro; para intendentes, color magenta con detalles en blanco y negro. El color será el mismo por ambos lados de la papeleta. Se utilizará una trama exclusivamente diseñada para el retiro (dorso) de las papeletas, cuyo diseño es el mismo para las tres papeletas, variando sólo el color.

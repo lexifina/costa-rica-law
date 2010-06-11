@@ -1,0 +1,1 @@
+Artículo 27.—De la instalación. Se tendrá por instalada una junta receptora de votos cuando dos de sus miembros se encuentren debidamente juramentados, acto que se realizará el día en que fueren convocados para la capacitación, sin perjuicio de que luego se complete la juramentación de los otros miembros.
