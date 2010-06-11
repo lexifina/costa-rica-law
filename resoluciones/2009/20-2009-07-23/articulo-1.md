@@ -1,3 +1,5 @@
+(Derogado)
+(Esta resolución fue derogada por el punto V de la resolución R-DC-101-2010 del 11 de junio de 2010 "Crea Área de Fiscalización de Servicios Ambientales y de Energía y establece las atribuciones de las Áreas de Fiscalización Superior que integrarán la División de Fiscalización Operativa y Evaluativa (DFOE"))
 CONTRALORÍA GENERAL DE LA REPÚBLICA
 (Nota de Sinalevi: La Contraloría General de la República, mediante aviso publicado en La Gaceta N° 148 del 31 de julio de 2009, informa que mediante la presente resolución se procedió a realizar un ajuste en la conformación de la División de Fiscalización Operativa y Evaluativa, dicho aviso puede ser consultado en el sistema)
 R-DC-20-2009. CONTRALORÍA GENERAL DE LA REPÚBLICA. Despacho Contralor. San José, a las nueve horas del veintitrés de julio de dos mil nueve.

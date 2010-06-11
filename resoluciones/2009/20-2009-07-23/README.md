@@ -14,3 +14,4 @@ Establece Áreas de Fiscalización Superior de la División de Fiscalización Op
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-01 | la propia norma |
+| 2 | 2010-06-11 | Resolución 101 (2010-06-11) |
