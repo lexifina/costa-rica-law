@@ -1,3 +1,2 @@
-CAPITULO VII
-DISPOSICIONES FINALES
-ARTICULO 29.- Prescripción. El cómputo, la suspensión, la interrupción y los demás extremos relativos a la prescripción se regirán por lo que se estipula en el Título X del Código de Trabajo.
+Artículo 29.- Demanda por hostigar a menores. Cuando la persona ofendida sea menor de edad, podrán interponer la demanda sus padres, sus representantes legales o el Patronato Nacional de la Infancia. No obstante, si se trata de una persona mayor de quince años pero menor de dieciocho, estará legitimada para presentar directamente la demanda.
+(Así corrida la numeración por el artículo 2º de la ley Nº 8805 del 28 de abril de 2010, que lo traspasó del antiguo artículo 20 al 29)

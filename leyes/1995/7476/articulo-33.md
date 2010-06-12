@@ -1,0 +1,2 @@
+Artículo 33.- Actuación del juez. Para apreciar la prueba y determinar si la conducta denunciada constituye hostigamiento sexual, el juez deberá considerar, de conformidad con las reglas de la sana crítica, todas las circunstancias en que ocurrieron los hechos, sin incluir consideraciones relativas a los antecedentes del comportamiento sexual de la persona ofendida.
+(Así corrida la numeración por el artículo 2º de la ley Nº 8805 del 28 de abril de 2010, que lo traspasó del antiguo artículo 24 al 33)

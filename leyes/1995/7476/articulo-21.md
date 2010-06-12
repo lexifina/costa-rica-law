@@ -1,1 +1,2 @@
-ARTICULO 21.- Marco legal de la demanda. Presentada la demanda, se procederá conforme a lo estipulado en los artículos 464 y 468 del Código de Trabajo, salvo en lo referente al plazo de la audiencia que el juez conferirá a la parte demandada, el cual será de tres a ocho días.
+Artículo 21.- Las partes. La persona denunciante y la persona denunciada se consideran partes del procedimiento.
+(Así adicionado por el artículo 2º de la ley Nº 8805 del 28 de abril de 2010)

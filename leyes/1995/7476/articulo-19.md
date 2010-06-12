@@ -1,1 +1,2 @@
-ARTICULO 19.- Presentación de la demanda. Las personas ofendidas por hostigamiento sexual podrán demandar a quien las hostiga o al patrono o jerarca de éste, en los casos previstos en esta Ley, ante el juez correspondiente, de acuerdo con lo estipulado en el Código de Trabajo.
+Artículo 19.- Recepción de la denuncia. La máxima autoridad de la instancia pública o privada definirá el organismo responsable de recibir la denuncia. Una vez asignada la denuncia, dicha autoridad deberá proceder de conformidad, sin recurrir a la ratificación de la denuncia, ni a la investigación preliminar de los hechos.
+(Así adicionado por el artículo 2º de la ley Nº 8805 del 28 de abril de 2010)
