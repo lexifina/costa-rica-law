@@ -1,1 +1,2 @@
-ARTICULO 28.- Indemnización por daño moral. Cuando, mediante sentencia, se compruebe el hostigamiento, la persona ofendida tendrá derecho a una indemnización por daño moral, si ha sido acreditado, lo cual también será de conocimiento del Juez de Trabajo.
+Artículo 28.- Presentación de la demanda. Las personas ofendidas por hostigamiento sexual podrán demandar a quien las hostiga o al patrono o jerarca de éste, en los casos previstos en esta Ley, ante el juez correspondiente, de acuerdo con lo estipulado en el Código de Trabajo.
+(Así corrida la numeración por el artículo 2º de la ley Nº 8805 del 28 de abril de 2010, que lo traspasó del antiguo artículo 19 al 28)
