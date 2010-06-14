@@ -14,3 +14,4 @@ Reglamento Corporativo para la Prevención y Control de Legitimación de Capital
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-11 | la propia norma |
+| 2 | 2010-06-14 | Reglamento 4764 (2010-06-14) |
