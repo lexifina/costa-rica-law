@@ -1,0 +1,6 @@
+CAPÍTULO VI
+PROCEDIMIENTO PARA LA CONDONACIÓN Y PLAZOS
+ARTÍCULO 11.- Autorización al SBD para condonar deudas
+Autorízase al SBD para que condone total o parcialmente las deudas provenientes de los programas Fidagro y Reconversión productiva hasta por un monto de diez millones de colones (¢10.000.000) por concepto de fondos reembolsables, así como del componente de fondos no reembolsables y de los intereses corrientes y moratorios de ambos componentes. Esta condonación solo podrá efectuarse a las operaciones que califiquen para tal efecto, de acuerdo con el informe técnico de la CTE y las disposiciones contenidas en los artículos 6 y 7 de la presente Ley.
+En el caso de las deudas que cumplan las condiciones indicadas en el párrafo anterior, pero cuyo componente de recursos reembolsables sobrepase los diez millones de colones (¢10.000.000), el SBN podrá realizar una condonación parcial de este componente y readecuar el saldo, si lo considera procedente y necesario con fundamento en las conclusiones y las recomendaciones emitidas por la CTE y el historial de los proyectos financiados, con el propósito de garantizar su éxito.
+En el caso de las operaciones que no sean sujetas de condonación, el SBD podrá readecuarlas o reestructurarlas con el propósito de garantizar el éxito de los proyectos desarrollados por los productores y sus organizaciones.
