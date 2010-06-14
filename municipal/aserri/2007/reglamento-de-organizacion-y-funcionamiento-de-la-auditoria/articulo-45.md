@@ -1,1 +1,4 @@
-Artículo 45.—Modificaciones al Manual Descriptivo de puestos. El Auditor Interno deberá gestionar ante la administración activa las modificaciones correspondientes al Manual Descriptivo de Puestos, para que el mismo sea ajustado conforme a los lineamientos que al respeto emita la Contraloría General de la República.
+TÍTULO III
+Disposiciones finales
+Artículo 45.—Aplicación del Reglamento a otras unidades de la Municipalidad. En lo que corresponda, las disposiciones de este reglamento serán de aplicación en todas las unidades que conforman la estructura organizacional de la Municipalidad.
+(Así corrida su numeración mediante sesión Nº 7 del 14 de junio de 2010, que lo traspasó del antiguo artículo 43 al 45 actual)

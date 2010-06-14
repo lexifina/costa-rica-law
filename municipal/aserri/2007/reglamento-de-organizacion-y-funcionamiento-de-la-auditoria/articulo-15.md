@@ -1,3 +1,2 @@
-CAPÍTULO V
-Del personal de la Auditoría Interna
-Artículo 15.—Superior Jerárquico de la Auditoría Interna. El Auditor Interno es el Superior Jerárquico de la Auditoría Interna y responsable directo de las actuaciones de la Unidad.
+Artículo 15.—Vacaciones, permisos y otros del Auditor o Auditora Interna. Las vacaciones, permisos y otros asuntos del Auditor Interno deberán ser conocidos y aprobados por el Concejo Municipal. Sin embargo, en los casos en que dichos permisos o vacaciones no superen los 5 días hábiles y no puedan ser tramitados con anticipación, será suficiente la comunicación previa a la Coordinación de Recursos Humanos.
+(Así adicionado mediante sesión Nº 7 del 14 de junio de 2010)

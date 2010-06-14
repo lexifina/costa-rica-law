@@ -1,1 +1,4 @@
-Artículo 17.—Creación de plazas y requerimiento de recursos. El Auditor Interno deberá gestionar oportunamente ante el Concejo Municipal, la creación de plazas y los requerimientos de otros recursos que considere indispensables para el cumplimiento de su plan anual de Auditoría y en general para el buen funcionamiento de su unidad, de conformidad con los artículos 27 y 28 de la Ley General de Control Interno. Asimismo, de acuerdo con lo establecido en la norma 2.1.2. del Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, el Auditor Interno deberá comunicar, en caso de ser necesario, el impacto que sobre la fiscalización y el control correspondientes produce la limitación de recursos.
+CAPÍTULO V
+Del personal de la Auditoría Interna
+Artículo 17.—Superior Jerárquico de la Auditoría Interna. El Auditor Interno es el Superior Jerárquico de la Auditoría Interna y responsable directo de las actuaciones de la Unidad.
+(Así corrida su numeración mediante sesión Nº 7 del 14 de junio de 2010, que lo traspasó del antiguo artículo 15 al 17 actual)

@@ -1,3 +1,3 @@
-TÍTULO III
-Disposiciones finales
-Artículo 43.—Aplicación del Reglamento a otras unidades de la Municipalidad. En lo que corresponda, las disposiciones de este reglamento serán de aplicación en todas las unidades que conforman la estructura organizacional de la Municipalidad.
+Artículo 43.—Programa e informe de seguimiento de recomendaciones. La Auditoría Interna formulara y ejecutará un programa de seguimiento de recomendaciones y obtendrá la evidencia necesaria, suficiente y competente para comprobar si las recomendaciones, ordenadas por la Administración se están aplicando en la práctica, o de lo contrario, determinará las causas de incumplimiento. Para comunicar lo que corresponda.
+En el programa citado se incluirá, el seguimiento de las disposiciones contenidas en los informes de la Contraloría General de la República, en los de los auditores externos, las instituciones de control, cuando sean de su conocimiento. Sobre el particular la Auditoría debe realizar un informe al Jerarca, mínimo anualmente.
+(Así corrida su numeración mediante sesión Nº 7 del 14 de junio de 2010, que lo traspasó del antiguo artículo 41 al 43 actual)

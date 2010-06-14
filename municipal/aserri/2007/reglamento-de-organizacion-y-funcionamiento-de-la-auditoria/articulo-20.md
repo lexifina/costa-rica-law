@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Ámbito de acción
-Artículo 20.—Sujetos fiscalizados. Le corresponderá a la Auditoría Interna de la Municipalidad de Aserrí fiscalizar los procesos y actividades ejecutadas en la Municipalidad, así como en relación con los recursos que por Ley deben ser girados a otros órganos públicos y privados y los recursos que sean girados al Comité Cantonal de Deportes y Recreación de Aserrí. Lo anterior de conformidad con las competencias establecidas en el artículo 22 inciso a) de la Ley General de Control Interno Nº 8292.
+Artículo 20.—Cumplimiento de normativa jurídica y técnica. El Auditor Interno deberá vigilar y tomar las decisiones que correspondan para que los funcionarios de la auditoría interna cumplan en el ejercicio de sus competencias, con la normativa jurídica y técnica pertinente, así como con las políticas, procedimientos, prácticas y demás disposiciones administrativas (institucionales y de la auditoría interna) que les sean aplicables.
+(Así corrida su numeración mediante sesión Nº 7 del 14 de junio de 2010, que lo traspasó del antiguo artículo 18 al 20 actual)
