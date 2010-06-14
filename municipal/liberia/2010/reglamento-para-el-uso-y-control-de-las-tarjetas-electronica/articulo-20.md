@@ -1,0 +1,1 @@
+Artículo 20.—Unidad Administradora de Tarjetas. La Unidad Administradora de Tarjetas es la encargada de supervisar, administrar y controlar, el uso apropiado de las tarjetas electrónicas asignadas a cada centro de costo y el consumo interno de combustible en Planteles.

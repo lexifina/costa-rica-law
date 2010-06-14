@@ -1,0 +1,6 @@
+Artículo 13.—Solicitud de compra de combustible.
+Solicitud de compra de combustible ordinaria.
+Semestralmente, La Proveeduría Municipal realizará la solicitud de compra de combustible, que será de un 100% de la cuota semestral asignada y la cual se hará automáticamente, después de haberse realizado el corte semestral anterior. El monto de la solicitud se calcula en base a la cuota asignada semestralmente en litros por el precio vigente de la gasolina regular. Esta solicitud debe ser autorizada por la Coordinación de cada Unidad.
+Después de emitida y autorizada la solicitud, se remite a la Unidad Administradora de Tarjetas Municipal para que ésta tramite la información de todas las Unidades donde se procede a la facturación y aumento de la cuenta maestra. Esta solicitud deberá presentarse el primer día hábil del semestre que corresponda.
+Solicitud de compra de combustible extraordinaria.
+Se podrá emitir una solicitud de compra extraordinaria, solo para casos especiales cuando no alcanzó la cuota asignada o para emergencias calificadas. Esta emisión deberá ser justificada mediante una nota avalada por el Alcalde, y se remitirá a la Tesorería Municipal junto con la solicitud de compra de combustible para que realice la respectiva facturación.

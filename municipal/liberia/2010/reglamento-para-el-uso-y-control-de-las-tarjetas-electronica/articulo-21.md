@@ -1,0 +1,1 @@
+Artículo 21.—Incumplimiento de disposiciones. El incumplimiento de cualquiera de las disposiciones contenidas en este Reglamento será causal para apertura de expediente por violación al régimen disciplinario de la Municipalidad, cuya apertura y estudio estará a cargo de la Unidad de Recursos Humanos, u Órgano Director en el caso que así se determine.

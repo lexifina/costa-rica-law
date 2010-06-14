@@ -1,0 +1,11 @@
+Artículo 5º—Trámite para adquirir la tarjeta electrónica para compra de combustible:
+Solicitud de la tarjeta electrónica para compra de combustible.
+Cada Unidad (Coordinador o Jefe) que tenga asignado un chofer o personal administrativo con permiso para conducir (previamente definido y autorizado por la jefatura) deberá solicitar completar el formulario “Solicitud de tarjeta individual” que se encuentra en Recopenet, y remitirlo a la Unidad Administradora de Tarjetas para que esta a su vez la envíe al Departamento de Relaciones Comerciales de RECOPE.
+El Departamento de Relaciones Comerciales de RECOPE es el responsable de enviar esta información al BNCR, a través de sistema TECC para la emisión de las tarjetas correspondientes.
+2. Autorización para la emisión de la tarjeta electrónica.
+Las personas que autoricen la emisión de tarjetas electrónicas para la compra de combustible serán los Coordinadores de los Procesos de la Municipalidad, previa solicitud de las Jefaturas, debiendo contar en cada caso con la aprobación del Alcalde de la Municipalidad de Liberia.
+3. Entrega de la tarjeta electrónica.
+El tarjeta habiente deberá desplazarse a la agencia o sucursal bancaria que se indicó en el formulario “Solicitud de Tarjeta Individual”, para el retiro de la tarjeta y firma de registro del ente bancario.
+4. Tarjeta habientes con permanencia temporal en la Municipalidad de Liberia.
+Cada dependencia deberá enviar al Encargado de la Coordinación al que pertenece, además del formulario “Solicitud de Tarjeta Individual” una copia de la solicitud de trámite del funcionario que se encuentre realizando suplencia por incapacidad, vacaciones u ocupando una plaza en forma interina en la Municipalidad y que por sus funciones requieren la tarjeta electrónica.
+Cuando el funcionario deje de laborar para la Municipalidad (finalice su periodo de nombramiento o por cualquier otra causa), devolverá la tarjeta al superior que corresponda con una nota de entrega para su respectiva custodia, siendo que este ultimo deberá de remitirlo a la unidad de Administración de Tarjetas a fin de bloquear la tarjeta en el sistema y enviarla al Departamento de Tesorería de la Municipalidad de Liberia, que será el Departamento responsable de realizar la custodia de todas las tarjetas que se retiren.
