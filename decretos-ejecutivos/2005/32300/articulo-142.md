@@ -1,2 +1,3 @@
-Artículo 142.—Además de las conductas ya descritas en este Reglamento, se podrán aplicar y sancionar conductas específicas, tipificadas en otras reglamentaciones internas. Para tales efectos, cada reglamento deberá establecer la gravedad de cada conducta, de conformidad con el artículo 123 del presente Reglamento.
+Artículo 142.—Además de las conductas ya descritas en este Reglamento, se podrán aplicar y sancionar conductas específicas, tipificadas en otras reglamentaciones internas. Para tales efectos, cada reglamento deberá establecer la gravedad de cada conducta, de conformidad con el artículo 132 del presente Reglamento.
+(Así reformado por el artículo 1º del decreto ejecutivo N° 36070 del 14 de junio del 2010)
 (Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 133 al 138 y posteriormente del numeral 138 al 142 actual)

@@ -6,7 +6,8 @@ b) Suspensión de hasta por ocho días naturales:
 1- Por abandono de labores sin causa justificada o sin contar con el permiso del superior inmediato, si es la segunda vez que se comete.
 2- Por siete llegadas tardías injustificadas.
 3- Por una ausencia y media consecutiva o dos ausencias alternas injustificadas.
-4- Por cometer alguna falta de cierta gravedad o grave, conforme a los artículos 126 y 127 de este Reglamento.
+4- Por cometer alguna falta de cierta gravedad o grave, conforme a los artículos 136 y 137 de este Reglamento.
+(Así reformado el inciso anterior por el artículo 1º del decreto ejecutivo N° 36070 del 14 de junio del 2010)
 5- Al haber cometido en tres ocasiones, o más, una de las faltas consideradas como leves.
 Todo lo anterior computable en un mismo mes calendario.
 c) Suspensión de hasta por quince días naturales:

@@ -16,3 +16,4 @@ Reglamento Autónomo de Organización y Servicio de la Presidencia de la Repúbl
 | 1 | 2005-04-20 | la propia norma |
 | 2 | 2005-05-04 | Decreto Ejecutivo 32355 (2005-05-04) |
 | 3 | 2010-04-05 | Decreto Ejecutivo 35979 (2010-04-05) |
+| 4 | 2010-06-14 | Decreto Ejecutivo 36070 (2010-06-14) |
