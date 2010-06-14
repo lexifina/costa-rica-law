@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Programa Integral de Mercadeo Agropecuario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-06 | la propia norma |
+| 2 | 2010-06-14 | Reglamento 2668 (2010-06-14) |
