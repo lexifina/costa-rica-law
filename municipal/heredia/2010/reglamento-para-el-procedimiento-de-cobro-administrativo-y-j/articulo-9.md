@@ -1,0 +1,1 @@
+Artículo 9º—Una vez trasladada las cuentas de los contribuyentes morosos por parte del Departamento de Rentas y Cobranzas, la empresa tendrá un plazo de ocho días hábiles para que realice las gestiones de cobro.

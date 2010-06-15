@@ -1,0 +1,3 @@
+CAPÍTULO 5
+De la terminación y suspensión de la acción judicial
+Artículo 33.—Una vez que el cobro judicial haya sido iniciado solo podrá darse por terminado o suspendido el juicio, por el pago total de la suma adeudada a la municipalidad incluyendo las costas de juicio y cualquier otro gasto generado por tal acción, sin embargo, en casos excepcionales debidamente fundamentados podrá la Municipalidad valorar pagos fraccionados de la deuda, lo cual no significa dar por terminado el proceso y sus embargos, ya que este continuará hasta el dictado de la sentencia y se dará por terminado el proceso una vez cancelado la deuda. Los pagos que se realicen se imputarán de conformidad con el artículo*** de la Ley de Cobro Judicial.

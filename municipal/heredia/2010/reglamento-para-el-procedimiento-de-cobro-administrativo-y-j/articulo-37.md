@@ -1,0 +1,1 @@
+Artículo 37.—Por el incumplimiento a las disposiciones del presente reglamento, el funcionario municipal responsable incurrirá en las faltas y sanciones previstas en los artículos 147, 149 y 150 del Código Municipal y el artículo 81 del Código de Trabajo, previo garantía del debido proceso.

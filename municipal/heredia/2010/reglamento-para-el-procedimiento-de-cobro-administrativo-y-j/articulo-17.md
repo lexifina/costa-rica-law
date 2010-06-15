@@ -1,0 +1,3 @@
+CAPÍTULO 4
+De los Abogados
+Artículo 17.—La contratación de los abogados para realizar gestiones de cobro judicial se hará de acuerdo a los lineamientos establecidos en la Ley de Contratación Administrativa y su Reglamento, bajo la figura de servicios profesionales. Entre la municipalidad y el profesional no existe ninguna relación de servicio y no genera responsabilidad de tipo laboral. Es obligación de los abogados mantener una oficina abierta al público dentro del Gran Área Metropolitana y disponer de los medios tecnológicos necesarios para su debida localización y comunicación. Igualmente mantener una comunicación fluida con la sección de cobro Judicial.
