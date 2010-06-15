@@ -1,0 +1,4 @@
+Artículo 2º—Modifíquese el artículo 4º del Decreto Ejecutivo Nº 34739-COMEX-H del 29 de agosto de 2008, publicado en el Alcance Nº 35 al Diario Oficial La Gaceta Nº 181 del 19 de setiembre de 2008, denominado Reglamento a la Ley de Régimen de Zonas Francas, para que las definiciones que se indican a continuación se lean de la siguiente manera:
+“Ley Nº 7210 y sus reformas o Ley: la Ley de Régimen de Zonas Francas, Ley Nº 7210 del 23 de noviembre de 1990 y sus reformas.”
+“Declaración Aduanera: declaración realizada mediante transmisión electrónica de datos que respaldará todo ingreso, salida y movilización de materias, mercancías, maquinaria y equipo desde y hacia el Régimen de Zonas Francas.”
+“Deshabilitación de áreas: Es la disminución del área previamente autorizada para el beneficiario, ya sea por reestructuración, cierre total de una de las ubicaciones o reducción del área de una o más ubicaciones.”
