@@ -17,3 +17,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2009-2010 y Lineamientos genera
 | 3 | 2010-03-19 | Circular 46 (2010-03-19) |
 | 4 | 2010-04-06 | Acuerdo 7 (2010-04-06) |
 | 5 | 2010-04-06 | Acuerdo 8 (2010-04-06) |
+| 6 | 2010-06-15 | Acuerdo 13 (2010-06-15) |
