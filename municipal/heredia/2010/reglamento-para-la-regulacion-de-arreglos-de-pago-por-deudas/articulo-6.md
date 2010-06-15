@@ -1,0 +1,2 @@
+Artículo 6º—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente ante el pago total de la obligación vencida. Una vez cancelado el arreglo de pago, el Departamento de Rentas y Cobranzas entregará al deudor, un día después del pago, el documento de garantía que respalda la obligación.
+Cuando el deudor se haya retrasado quince días naturales en el cumplimiento de su obligación, se remitirá inmediatamente el expediente a cobro judicial, con la finalidad de proceder al cobro del saldo adeudado.

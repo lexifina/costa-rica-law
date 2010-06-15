@@ -1,0 +1,1 @@
+Artículo 10.—Derogase en su totalidad, el Reglamento para Regulación de Arreglos de Pago por deudas en Tributos de la Municipalidad de Heredia, Aprobado por el Concejo Municipal en la sesión ordinaria número 90-2007, celebrada el día 23 de abril del 2007, artículo IV, publicado en el en el Diario Oficial Gaceta número 92 del 15 de mayo del 2007.
