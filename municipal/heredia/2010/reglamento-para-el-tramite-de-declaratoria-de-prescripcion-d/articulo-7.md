@@ -1,0 +1,1 @@
+Artículo 7º—Emitida la resolución administrativa que declara la prescripción de lo adeudado, la Sección de Cobros de la Municipalidad hará constar en el expediente que la prescripción procede y coordinará con las instancias administrativas respectivas para que lo dispuesto se haga efectivo en el sistema de cobro municipal.
