@@ -1,0 +1,1 @@
+Artículo 12.—Corresponderá al IMAS y al Incopesca, la supervisión y control del Servicio de Trabajo Comunal que realizarán los pescadores en los períodos de vedas, de conformidad con la normativa que regule dicha actividad.

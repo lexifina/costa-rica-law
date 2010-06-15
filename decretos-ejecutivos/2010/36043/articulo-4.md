@@ -1,0 +1,1 @@
+Artículo 4º—Para recibir la ayuda económica que sea otorgada por el IMAS, los pescadores y ayudantes afectados, sea que realicen actividades de pesca o no, deberán someterse al Programa de Servicio de Trabajo Comunal, bajo las condiciones que para este efecto las organizaciones de pescadores coordinarán con el Incopesca.

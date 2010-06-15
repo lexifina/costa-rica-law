@@ -1,0 +1,1 @@
+Artículo 11.—El IMAS otorgará la ayuda a los beneficiarios que cumplan con las condiciones estipuladas en el artículo anterior. Dicha ayuda será pagada en los eventos o tractos según sean programados, de acuerdo a la duración de los períodos de veda.

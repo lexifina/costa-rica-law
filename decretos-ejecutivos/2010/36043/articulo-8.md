@@ -1,0 +1,1 @@
+Artículo 8º—Serán beneficiarias de los recursos destinados por el IMAS, únicamente aquellas personas que se encuentren expresamente comprendidas dentro de la lista de pescadores con Licencia o Autorización de Pesca Comercial vigente y sus ayudantes, remitida por el Incopesca a dicha Institución.

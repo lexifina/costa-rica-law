@@ -1,0 +1,1 @@
+Artículo 7º—Se autoriza al Instituto Mixto de Ayuda Social a otorgar beneficios económicos en calidad de ayuda temporal a las personas indicadas en el artículo anterior, en apego a las condiciones que se establecen en el presente Decreto.
