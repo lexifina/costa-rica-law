@@ -1,0 +1,1 @@
+VI. Modificar los literales a. y c. del Anexo 1 “Capital Ajustado” del Acuerdo SUGEF 4-04 “Reglamento sobre el Grupo Vinculado a la Entidad” y SUGEF 5-04 “Reglamento sobre Límites de Crédito a Personas Individuales y Grupos de Interés Económico” para incluir la cuenta 380 “Patrimonio del Fondo de Financiamiento para el Desarrollo”.
