@@ -1,0 +1,3 @@
+XV.—Modificar la sección correspondiente a “Rentabilidad sobre el patrimonio promedio” y eliminar la sección correspondiente a “Rentabilidad sobre el activo productivo de intermediación promedio” del Anexo 2 de los Acuerdos SUGEF 24-00 y SUGEF 27-00, de conformidad con el siguiente texto:
+INDICADOR | NUMERADOR | DENOMINADOR
+Utilidad o Pérdida Acumulada Trimestral | Saldo acumulado para los últimos tres meses de las cuentas: [C(500.00) – C(400.00)] | [ Promedio de los últimos tres meses de las siguientes cuentas: C(310.00) + C(320.00) + C(330.00) + C(340.00) + C(350.00) ] Más: C(500.00) – C(400.00)

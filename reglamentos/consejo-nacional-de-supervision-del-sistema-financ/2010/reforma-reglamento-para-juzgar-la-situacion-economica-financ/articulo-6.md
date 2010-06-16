@@ -1,0 +1,8 @@
+VI.—Adicionar un párrafo final al artículo 21 del Acuerdo SUGEF 24-00 y al Artículo 22 del Acuerdo SUGEF 27-00, para que en adelante se lea de la siguiente manera:
+“Artículo 21. (Acuerdo SUGEF 24-00)
+Artículo 22. (Acuerdo SUGEF 27-00)
+Una entidad se encuentra en situación de inestabilidad o irregularidad financiera de grado uno cuando presente alguna de las siguientes situaciones:
+a. Cuando el intermediario obtenga una calificación global en puntos entre 1.76 y 2.50, ambos inclusive, conforme lo establece el Capítulo I de este Reglamento.
+b. Cuando como resultado de la aplicación del Capítulo I de este Reglamento el intermediario obtenga una calificación global igual o menor a 1.75, pero cualquiera de los elementos de evaluación, incluyendo la evaluación cualitativa, presente una calificación individual de inestabilidad o irregularidad financiera de grado dos ó tres.
+c. Cuando como resultado de la aplicación del Capítulo I de este Reglamento el intermediario obtenga una calificación global igual o menor a 1.75, pero dos o más elementos de evaluación, incluyendo la evaluación cualitativa, presenten calificaciones individuales de inestabilidad o irregularidad financiera de grado uno.
+d. Cuando una entidad financiera esté ubicada en operación normal y el resultado de la suficiencia patrimonial del grupo o conglomerado financiero al cual pertenece, presenta una situación de déficit patrimonial.

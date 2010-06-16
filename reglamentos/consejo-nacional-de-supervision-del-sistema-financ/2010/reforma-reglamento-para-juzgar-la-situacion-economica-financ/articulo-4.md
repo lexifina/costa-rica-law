@@ -1,0 +1,5 @@
+IV.—Modificar el artículo 19 del Acuerdo SUGEF 24-00 y artículo 20 del Acuerdo SUGEF 27-00, de conformidad con el siguiente texto:
+“Artículo 19. (Acuerdo SUGEF 24-00)
+Artículo 20. (Acuerdo SUGEF 27-00)
+La calificación global resultará de sumar el puntaje de la calificación cuantitativa luego de aplicarle su porcentaje de ponderación, más el puntaje obtenido en la calificación cualitativa luego de aplicarle su porcentaje de ponderación. El puntaje de la calificación cuantitativa tendrá una ponderación del 80% y el puntaje de la calificación de gestión (calificación cualitativa) tendrá una ponderación del 20%.
+Independientemente de la calificación global de la entidad y sin perjuicio del procedimiento establecido en el Capítulo III de este Reglamento, el Superintendente podrá requerir que en un plazo prudencial, la entidad comunique sobre las medidas correctivas y precautorias que implementará con el propósito de solventar las debilidades señaladas por el Superintendente, así como requerir la presentación de cronogramas e informes de avance cuando el Superintendente determine.
