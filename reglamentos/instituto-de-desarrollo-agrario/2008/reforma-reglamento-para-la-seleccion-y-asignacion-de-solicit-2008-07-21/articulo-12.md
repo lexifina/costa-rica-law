@@ -1,2 +1,0 @@
-Artículo 12.—Modifíquese el Artículo 83 del Reglamento para la Selección y Asignación de Solicitantes de Tierras para que en adelante se lea de la siguiente manera:
-Artículo 83.—Una vez autorizada la segregación en cabeza de su dueño, deberá recurrir ante notario para el trámite de inscripción ante el Registro Público de la Propiedad. La escritura pública donde se materialice dicha segregación deberá cumplir con el trámite de referendo y requisitos a que hace referencia el Artículo 79 de este Reglamento.

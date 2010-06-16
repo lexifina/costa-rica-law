@@ -1,2 +1,0 @@
-Artículo 14.—Modifíquese el Artículo 96 del Reglamento para la Selección y Asignación de Solicitantes de Tierras para que en adelante se lea de la siguiente manera:
-Artículo 96.—El Instituto no aceptará ninguna renuncia sobre predios inscritos, si sobre la propiedad existen deudas con Garantía Hipotecaria Externas al IDA o deudas con crédito rural a las que hace referencia el Artículo 94 de este Reglamento .
