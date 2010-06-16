@@ -1,1 +1,0 @@
-Artículo 5º—Todo expediente que se conforme para los efectos del presente reglamento debe estar debidamente foliado, ordenado cronológicamente e identificado con un número específico en donde se identifique el año, la oficina generadora y el correspondiente consecutivo.

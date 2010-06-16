@@ -1,2 +1,0 @@
-Artículo 80.—Si la Junta Directiva denegara el traspaso, la Oficina Subregional correspondiente deberá darle seguimiento, a fin de verificar si el mismo se ha efectuado ilegalmente, en cuyo caso iniciará los trámites de desalojo, revocatoria y subsecuente nulidad de título.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 74 al 80 actual).

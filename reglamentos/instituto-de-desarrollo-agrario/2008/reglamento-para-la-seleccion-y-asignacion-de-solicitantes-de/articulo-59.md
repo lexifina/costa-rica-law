@@ -1,3 +1,0 @@
-Artículo 59.—Otorgado el título de propiedad, las personas asignatarias de lotes para vivienda o para otros fines, tendrán un plazo de un año para iniciar su construcción así como de seis meses adicionales, para concluirla. En caso de no hacerlo en los términos indicados, la Oficina Subregional procederá a iniciar el respectivo procedimiento revocatoria de la asignación y subsecuente nulidad de título.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 53 al 59 actual).
-(Así reformado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).

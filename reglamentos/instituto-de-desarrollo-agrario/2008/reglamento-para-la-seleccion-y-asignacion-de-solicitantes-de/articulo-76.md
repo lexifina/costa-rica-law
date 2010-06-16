@@ -1,2 +1,0 @@
-Artículo 76.—Comprobado en la Dirección Regional que el expediente administrativo esté completo y que se han cumplido los procedimientos establecidos, en un plazo máximo de quince días hábiles remitirá la solicitud de traspaso con la recomendación respectiva a la Junta Directiva a efecto de que resuelva lo que proceda. Copia de lo anterior deberá ser remitida obligatoriamente al Área de Selección de Familias para su control y archivo.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 70 al 76 actual).

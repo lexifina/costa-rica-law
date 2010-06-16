@@ -1,3 +1,0 @@
-Artículo 68.—Las personas jurídicas asignatarias de tierras tendrán un máximo de seis meses, a partir de la notificación de la asignación, para empezar a desarrollar las actividades previstas en el predio. Las Oficinas Subregionales velarán por el cumplimiento de estas disposiciones.
-Si por alguna razón injustificada la persona jurídica asignataria no pudiera iniciar el desarrollo del proyecto en el plazo fijado, se procederá con el trámite correspondiente de revocatoria y subsecuente nulidad de título, si lo hubiera.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 62 al 68 actual).

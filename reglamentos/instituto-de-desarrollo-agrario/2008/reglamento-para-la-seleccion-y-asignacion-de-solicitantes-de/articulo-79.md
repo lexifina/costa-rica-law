@@ -1,2 +1,0 @@
-Artículo 79.—Autorizado el traspaso por la Junta Directiva, las personas adquirentes deberán presentar a la Dirección de Asuntos Jurídicos del Instituto, el Primer Testimonio (original y una copia), así como dos copias del acuerdo correspondiente, a fin de obtener el refrendo respectivo. Todo de conformidad con lo establecido en el Decreto Ejecutivo 5820-G del 24 de febrero de 1976.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 73 al 79 actual).

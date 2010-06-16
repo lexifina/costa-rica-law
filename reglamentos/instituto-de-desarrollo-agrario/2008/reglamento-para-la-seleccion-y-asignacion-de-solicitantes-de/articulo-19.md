@@ -1,1 +1,0 @@
-Artículo 19.—El estudio socioeconómico se inicia con una reunión con las personas solicitantes y sus respectivas parejas, cuando las haya, a fin de explicar los detalles y alcances del proceso al que se van a someter y hacer entrega de los requisitos que deben de cumplir.

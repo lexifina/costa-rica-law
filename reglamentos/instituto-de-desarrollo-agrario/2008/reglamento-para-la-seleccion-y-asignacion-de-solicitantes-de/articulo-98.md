@@ -1,2 +1,0 @@
-Artículo 98.—La oficina subregional emitirá un informe recomendatorio previa verificación de que no existen deudas del asignatario o la asignataria con el Instituto por crédito rural cuya inversión no se materializó en el predio a renunciar. El informe recomendatorio será remitido por la Oficina Subregional.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 92 al 98 actual).

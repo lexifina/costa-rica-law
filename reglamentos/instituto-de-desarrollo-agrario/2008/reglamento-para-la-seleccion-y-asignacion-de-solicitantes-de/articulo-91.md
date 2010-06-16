@@ -1,2 +1,0 @@
-Artículo 91.—La solicitud de renuncia, la cual podrá ser confeccionada por la misma Oficina Subregional, deberá contener todas las calidades de los solicitantes, motivo de la renuncia, así como un medio donde atenderán notificaciones. Además deberá de adjuntarse copia de la cédula de identidad y si es posible el contrato de asignación suscrito con el Instituto.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 85 al 91 actual).

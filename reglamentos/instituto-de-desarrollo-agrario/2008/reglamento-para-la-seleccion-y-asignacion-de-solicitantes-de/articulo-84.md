@@ -1,2 +1,0 @@
-Artículo 84.—La solicitud y documentación adjunta, deberá ser remitida a la Dirección Regional conjuntamente con el informe y recomendación correspondiente, para su resolución o trámite ante la Junta Directiva, cuando la solicitud de segregación sea a favor de familiares en primer grado, en cuyo caso se deberá de seguir el procedimiento normal de traspaso ante el órgano competente.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 78 al 84 actual).

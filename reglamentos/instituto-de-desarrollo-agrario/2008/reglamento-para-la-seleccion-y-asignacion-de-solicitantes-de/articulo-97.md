@@ -1,3 +1,0 @@
-Artículo 97.—La oficina subregional confeccionará un expediente debidamente identificado y foliado en donde adicionará las respectivas constancias del Instituto de no tener deudas pendientes, de no encontrarse el inmueble en proceso de revocatoria y subsecuente nulidad de título y además la copia del acuerdo de Junta Directiva o al menos los datos correspondientes, por medio de los cuales se asignó el predio a los solicitantes, así como los datos de la inscripción en el Registro Público.
-(Así reformado mediante sesión N° 009 del 21 de abril de 2008).
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 91 al 97 actual).

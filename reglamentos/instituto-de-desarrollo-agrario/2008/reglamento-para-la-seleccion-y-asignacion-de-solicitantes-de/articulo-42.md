@@ -1,1 +1,0 @@
-Artículo 42.—Para la evaluación del período de prueba los funcionarios o las funcionarias de las Oficinas Subregionales deberán aplicar el formulario de evaluación del periodo de prueba a los asignatarios y las asignatarias de acuerdo al Manual de Procedimientos de Selección de Familias.

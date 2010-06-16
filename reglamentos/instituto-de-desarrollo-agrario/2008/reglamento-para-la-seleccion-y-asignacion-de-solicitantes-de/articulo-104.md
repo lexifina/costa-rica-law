@@ -1,2 +1,0 @@
-Artículo 104.—Finalizado el plazo del permiso temporal, los asignatarios o propietarios deben de reintegrarse al predio y continuar con la explotación o uso del mismo. En caso de no hacerlo, sin que exista una justificación válida, la oficina subregional procederá a iniciar el respectivo procedimiento de revocatoria de la asignación o la nulidad del título de propiedad.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 98 al 104 actual).

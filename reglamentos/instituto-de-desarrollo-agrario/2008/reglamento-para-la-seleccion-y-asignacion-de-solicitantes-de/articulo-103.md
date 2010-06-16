@@ -1,3 +1,0 @@
-Artículo 103.—En caso de que la imposibilidad para atender el predio sea temporal, la persona asignataria y su pareja deberán realizar la solicitud de permiso a la Oficina Subregional correspondiente, a fin de que esta pueda otorgar, por medio del (a) jefe respectivo (a), y en los casos en que sea procedente, el permiso pedido y a su vez para que esta tome las previsiones del caso en lo concerniente a la fiscalización agraria del predio. El plazo de los permisos temporales se ajustara a la justificación del o la solicitante.
-(Así reformado mediante sesión N° 009 del 21 de abril de 2008).
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 97 al 103 actual).

@@ -1,2 +1,0 @@
-Artículo 10.—Para los estudios de selección se aplicarán, entre otros, los siguientes instrumentos: Encuesta para la Selección de Solicitantes de Tierras, Escalas de Ponderación y Consulta al Sistema de Selección y Asignación de Tierras y Sistema de Titulación. Además, se adjuntará al estudio las constancias o certificaciones necesarias entre las que se incluirán invariablemente las indicadas en el Artículo 70 de este Reglamento, en lo que a la familia adquirente se refiere.
-(Así reformado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).

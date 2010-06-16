@@ -1,2 +1,0 @@
-Artículo 14.—Cuando el número de elegibles sea mayor que la capacidad de asentamiento de la finca para granjas familiares, lotes para vivienda o parcelas, en primer lugar se aplicará el orden de prelación que establece el Artículo 63 de la Ley de Tierras y en segundo lugar, se dará preferencia a quienes hayan obtenido mayor puntaje. Las restantes personas elegibles serán consideradas conforme a la disponibilidad de tierras
-(Así reformado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).

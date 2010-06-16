@@ -1,1 +1,0 @@
-Artículo 37º—En los contratos de asignación como de arriendo de predios, debe indicarse expresamente que los mismos quedan sujetos a las condiciones y limitaciones establecidas en los artículos 67 y 68 de la Ley de Tierras y la eventual perdida de derecho sobre los mismos ante el incumplimiento de esas condiciones y limitaciones.

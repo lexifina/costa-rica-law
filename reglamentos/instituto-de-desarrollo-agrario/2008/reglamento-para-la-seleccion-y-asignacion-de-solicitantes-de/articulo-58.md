@@ -1,2 +1,0 @@
-Artículo 58.—Las familias asignatarias de parcelas podrán optar por un lote para vivienda o predio para otros fines, siempre y cuando demuestren su necesidad, en razón de las condiciones de la parcela con respecto a la ubicación de servicios públicos tales como transporte, educación, salud, agua potable y servicio eléctrico para lo cual se le aplicará, en lo que corresponda, lo establecido en este capítulo.
-(Así corrida su numeración por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008, que lo traspaso del antiguo artículo 52 al 58 actual).

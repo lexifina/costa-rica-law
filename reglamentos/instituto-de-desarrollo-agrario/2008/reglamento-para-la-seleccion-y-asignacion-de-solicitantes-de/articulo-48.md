@@ -1,2 +1,0 @@
-Artículo 48. Para la selección de solicitantes de granjas familiares, se aplicarán las disposiciones y procedimientos generales establecidos en los Capítulos I y II de este Reglamento, así como lo estipulado en el presente Capítulo. Además, se contará con una escala de ponderación específica para este caso, distinta a las que se aplican para la selección de solicitantes de parcelas y de lotes para vivienda.
-(Así adicionado por acuerdo 2° de la sesión N° 021 del 21 de julio de 2008).
