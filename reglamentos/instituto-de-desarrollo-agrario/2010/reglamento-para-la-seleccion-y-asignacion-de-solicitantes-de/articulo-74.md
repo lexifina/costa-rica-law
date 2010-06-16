@@ -1,0 +1,1 @@
+Artículo 74.—El funcionario o la funcionaria una vez recibida la solicitud de traspaso de un predio, contará con un plazo máximo de treinta días hábiles para analizar y estudiar el expediente completo y emitir la recomendación que corresponda conforme a las disposiciones legales y reglamentarias vigentes.

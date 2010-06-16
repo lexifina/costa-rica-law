@@ -1,0 +1,1 @@
+Artículo 102.—La Dirección Regional queda facultada para aceptar la renuncia a la asignación del predio por medio de resolución fundamentada. La Dirección Regional cuando proceda indicará a la Oficina Subregional los requisitos que debe subsanar para su aceptación.

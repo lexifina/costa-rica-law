@@ -1,0 +1,1 @@
+Artículo 120.—Para un mejor cumplimiento de lo indicado en el artículo anterior, cada Oficina Subregional deberá mantener un banco de elegibles, ello con la finalidad de que los predios puedan ser asignados en el menor tiempo posible y puestos en posesión de los y las nuevas personas asignatarias.

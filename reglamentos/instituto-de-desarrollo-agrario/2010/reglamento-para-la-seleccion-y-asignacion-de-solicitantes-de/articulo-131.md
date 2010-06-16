@@ -1,0 +1,1 @@
+Artículo 131.—Habiendo sido dictado el informe de inspección por parte de la Oficina Subregional, ésta deberá remitir el mismo en un plazo de tres días hábiles a la Asesoría Legal Regional respectiva para que realice el estudio legal correspondiente.

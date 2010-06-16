@@ -1,0 +1,15 @@
+Artículo 55.—Seguido el debido proceso, se dará por descalificada una familia solicitante de lote para vivienda, aún cuando haya obtenido el puntaje mínimo a que se hace referencia en el artículo 14 de este Reglamento, si se comprobare el encontrarse en una o más de las siguientes razones de exclusión:
+a) La persona solicitante y su pareja si lo hubiere, u otros dependientes posean vivienda propia.
+b) Incumplimiento de obligaciones crediticias de la persona solicitante o su pareja si lo hubiere, con el Instituto, Sistema Bancario Nacional u otras entidades, en forma injustificada para lo que se solicitarán las constancias que a juicio del Instituto sean necesarias.
+c) Comprobación de que la persona solicitante y su pareja si lo hubiere, se dedican al comercio de tierras.
+d) Comprobación de que la persona solicitante o miembros del núcleo familiar poseen propiedades aptas que le permiten establecer su propia vivienda.
+e) Comprobación de que la persona solicitante o miembros del núcleo familiar han vendido mejoras o abandonado un predio del Instituto, sin razones justificadas, o haber vendido en forma ilegal.
+f) Que la persona solicitante o su pareja si lo hubiere, hayan declarado información falsa en la entrevista o por haber aportado u omitido aportar documentación, que por su relevancia hubiera hecho que variara el puntaje a que se hace referencia en el Artículo 14 de este Reglamento.
+g) Comprobación de que el solicitante y su pareja si lo hubiere, hayan renunciado sin causa justificada a un lote de vivienda que le fue asignado con anterioridad.
+h) Comprobación de que la persona solicitante o miembros de su núcleo familiar sean de conducta reprochable, o que riña con la ley, la moral, las buenas costumbres y además que atenten contra las buenas relaciones con los demás pobladores del asentamiento. De igual forma, si la persona solicitante y su pareja si lo hubiere, obtiene una condena en materia penal, cuya sentencia conlleve a prisión.
+i) Comprobación de que la persona solicitante o su pareja si lo hubiere, han poseído bienes muebles o inmuebles que les permitían un nivel socioeconómico estable y seguro y que dejaron de poseerlos por razones injustificadas.
+j) Comprobación de que posteriormente a la aplicación de la encuesta, una familia sujeto de análisis se ha desintegrado, en cuyo caso debe efectuarse con las nuevas condiciones existentes a solicitud de la parte interesada.
+k) Comprobación de que la persona solicitante, su pareja si lo hubiere o miembros del núcleo familiar poseen ingresos mayores a dos salarios mínimos mensuales de un Trabajador no Calificado dentro del Sector Agrícola.
+l) Personas extranjeras que no tengan su status de residente permanente conforme a lo establecido en el artículo 18 de este Reglamento.
+m) Comprobación de que la persona solicitante, su pareja si lo hubiere o miembros de su núcleo familiar son asignatarios o asignatarias de una granja familiar o lote para vivienda.
+n) Que la persona solicitante o su pareja si lo hubiere, esté en la condición de casada y no conviva con su cónyuge.

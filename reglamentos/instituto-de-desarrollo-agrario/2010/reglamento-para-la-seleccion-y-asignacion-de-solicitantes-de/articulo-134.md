@@ -1,0 +1,1 @@
+Artículo 134.—Recibido el informe por parte de la Dirección Regional y su Asesoría Legal, la Junta Directiva procederá a analizar la procedencia o no de la legalización de la ocupación del gestionante. El acuerdo que declare la procedencia será emitido mediante resolución fundamentada.

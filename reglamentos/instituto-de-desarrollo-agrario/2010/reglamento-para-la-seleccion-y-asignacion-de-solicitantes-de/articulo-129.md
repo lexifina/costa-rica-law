@@ -1,0 +1,1 @@
+Artículo 129.—La Oficina Subregional se encuentra obligada a realizar una revisión preliminar de la documentación presentada por el gestionante, a efecto de determinar si éste puede acceder al procedimiento de legalización de su ocupación.

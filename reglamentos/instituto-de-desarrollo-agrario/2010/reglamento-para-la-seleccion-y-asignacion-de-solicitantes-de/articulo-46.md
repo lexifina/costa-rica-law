@@ -1,0 +1,1 @@
+Artículo 46.—Los asignatarios o las asignatarias en período de prueba deben comprometerse a explotar la parcela personalmente y con sus descendientes, hasta el segundo grado de consanguinidad y que vivan con ellos, de conformidad con lo establecido en el artículo 62 de la Ley de Tierras.

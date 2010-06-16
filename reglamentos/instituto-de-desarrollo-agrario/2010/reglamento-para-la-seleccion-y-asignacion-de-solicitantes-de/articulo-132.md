@@ -1,0 +1,1 @@
+Artículo 132.—Recibido el informe, la Asesoría Legal Regional procederá con el estudio del caso respectivo, pudiendo de considerarlo necesario recibir la prueba testimonial aportada por el gestionante o realizar las inspecciones que considere necesarios a efectos de verificar la información que le fue remitida.

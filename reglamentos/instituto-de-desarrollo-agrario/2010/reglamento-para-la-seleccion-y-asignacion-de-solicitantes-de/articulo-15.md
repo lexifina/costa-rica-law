@@ -1,0 +1,1 @@
+Artículo 15.—Al momento de adquirir una finca para conformar un asentamiento a fin de solventar la necesidad de tierra para un grupo solicitante determinado, el Instituto destinará un diez por ciento del mismo para su asignación a solicitantes individuales, los que se tomarán del banco de elegibles de la región respectiva.

@@ -1,0 +1,1 @@
+Artículo 96.—Revisada la solicitud y verificado el cumplimiento de requisitos la Oficina Subregional emitirá un informe recomendatorio dirigido a la Dirección Regional. en caso de que sobre el predio existan deudas por crédito rural, está a su vez deberá comunicar al Área de Crédito Rural para el trámite que corresponda.

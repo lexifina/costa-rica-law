@@ -1,0 +1,1 @@
+Artículo 91.—Contra la resolución negativa que emita el Director Regional cabrá recurso de apelación ante la Junta Directiva del Instituto, el cual deberá interponerse en los términos y plazos que establece los artículos 28 y 29 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 92.—Una vez autorizada la segregación en cabeza de su dueño, deberá recurrir ante Notario para el trámite de inscripción ante el Registro Público de la Propiedad. La escritura pública donde se materialice dicha segregación deberá cumplir con el trámite de refrendo y requisitos a que hace referencia el artículo 81 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 85.—Para dicha segregación, la persona solicitante y su pareja deberán llenar el formulario de solicitud correspondiente y aportar los requisitos que establece el artículo 71 de este Reglamento, además copia del plano catastrado del área a segregar.

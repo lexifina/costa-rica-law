@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.—Los trámites de estudios, traspasos y segregaciones iniciados con anterioridad a la entrada en vigencia de este Reglamento, se concluirán conforme a los procedimientos del Reglamento para la Selección y Asignación de Solicitantes de Tierras, publicado en el Diario Oficial La Gaceta Nº 38 del 22 de febrero del 2008, incluidas modificaciones publicadas en La Gaceta Nº 94 del 16 de mayo del 2008, Nº 111 del 10 de junio del 2008 y 155 del 12 de agosto del 2008.

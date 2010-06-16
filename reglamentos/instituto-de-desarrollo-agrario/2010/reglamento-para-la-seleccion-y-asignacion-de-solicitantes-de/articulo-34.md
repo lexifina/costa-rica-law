@@ -1,0 +1,1 @@
+Artículo 34.—La Secretaría General comunicará a la Oficina Subregional con copia a la Dirección Regional, al Área de Selección de Familias y al Área de Escrituración y Notariado, los acuerdos de asignación de predios. Las Oficinas Subregionales notificarán por escrito a cada familia interesada dichos acuerdos, en un plazo no mayor a quince días hábiles.

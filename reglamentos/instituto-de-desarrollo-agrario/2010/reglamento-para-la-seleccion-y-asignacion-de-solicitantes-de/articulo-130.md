@@ -1,0 +1,1 @@
+Artículo 130.—La Oficina Subregional, una vez realizada la revisión preliminar de la documentación presentada por el gestionante, procederá a realizar una inspección del terreno sobre el cual se ejerce la ocupación, debiendo rendir un informe en un plazo máximo de dos meses contados a partir de la citada inspección.

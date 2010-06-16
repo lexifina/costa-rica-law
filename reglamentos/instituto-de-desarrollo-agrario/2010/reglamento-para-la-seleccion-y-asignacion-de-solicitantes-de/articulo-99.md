@@ -1,0 +1,1 @@
+Artículo 99.—En los casos en que exista título de propiedad, la persona renunciante y su pareja deberán hacer su solicitud en forma expresa ante la Oficina Subregional, en los términos del artículo 94.

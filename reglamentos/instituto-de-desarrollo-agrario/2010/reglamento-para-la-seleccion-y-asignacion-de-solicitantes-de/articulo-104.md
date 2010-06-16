@@ -1,0 +1,1 @@
+Artículo 104.—Revertido el inmueble a nombre del Instituto, la Dirección de Asuntos Jurídicos deberá comunicarlo a la Oficina Subregional, a la Dirección Regional y al Área de Selección de Familias para su conocimiento.

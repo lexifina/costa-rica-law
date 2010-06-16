@@ -1,0 +1,1 @@
+Artículo 95.—De la renuncia presentada, la Oficina Subregional confeccionará un expediente debidamente identificado y foliado en donde adicionará los datos correspondientes a la asignación, por medio de los cuales se declaró elegibles y asignatarios a los solicitantes y copia del contrato de asignación de tierras.

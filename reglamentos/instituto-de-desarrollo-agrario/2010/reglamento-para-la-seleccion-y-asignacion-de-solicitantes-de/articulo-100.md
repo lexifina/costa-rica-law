@@ -1,0 +1,1 @@
+Artículo 100.—La oficina subregional confeccionará un expediente debidamente identificado y foliado en donde adicionará copia del acuerdo de Junta Directiva o al menos los datos correspondientes, por medio de los cuales se asignó el predio a los solicitantes, así como los datos de la inscripción en el Registro Público.

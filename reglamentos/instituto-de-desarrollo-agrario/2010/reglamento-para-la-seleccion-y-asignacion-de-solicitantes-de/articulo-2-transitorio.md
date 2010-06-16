@@ -1,0 +1,3 @@
+Transitorio II.—El plazo de dos años establecido en el artículo 13 de este Reglamento, se hace extensivo a todas aquellas personas solicitantes de tierras que hayan sido declaradas elegibles con antelación y que no hayan sido asignadas.
+Derogatorias
+Artículo único—Este Reglamento deroga el Reglamento para la Selección y Asignación de Solicitantes de Tierras, publicado en el Diario Oficial La Gaceta Nº 38 del 22 de febrero del 2008 incluidas modificaciones publicadas en Las Gacetas números 94 del 16 de mayo del 2008, 111 del 10 de junio del 2008 y 155 del 12 de agosto del 2008 así como cualquier otra disposición reglamentaria que se le oponga.

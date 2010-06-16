@@ -1,0 +1,1 @@
+Artículo 3º—A falta de disposición expresa en este Reglamento, en la Ley de Tierras y la Ley del IDA, se aplicarán por su orden: los principios de la empresa agraria dotacional, los principios del derecho agrario, el derecho público, la jurisprudencia y la costumbre.

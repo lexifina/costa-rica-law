@@ -1,0 +1,1 @@
+Artículo 62.—Para el estudio de una solicitud de persona jurídica sin fines de lucro (cooperativas, empresas comunitarias de autogestión campesina y otras formas asociativas) se aplicarán las disposiciones y procedimientos generales establecidos en los Capítulos I y II de este Reglamento en lo que corresponda y en especial lo estipulado en el presente Capítulo.

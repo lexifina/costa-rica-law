@@ -1,0 +1,1 @@
+Artículo 119.—Los predios que quedasen disponibles por renuncias, revocatorias o nulidades de títulos, serán asignados nuevamente entre las personas solicitantes de la región, dando prelación a los restantes calificados a los cuales se refiere el artículo 63 de la Ley de Tierras y el artículo 16 de este Reglamento.

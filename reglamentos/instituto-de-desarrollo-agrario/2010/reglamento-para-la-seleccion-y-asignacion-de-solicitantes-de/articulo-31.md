@@ -1,0 +1,1 @@
+Artículo 31.—El sorteo se efectuará en reunión con las familias elegibles que se convocarán por escrito, por medio de la Oficina Subregional, de conformidad con la capacidad de asentamiento de la finca. El procedimiento a seguir en dicho sorteo, será aquel delimitado por el Manual de Procedimientos de Selección de Familias.
