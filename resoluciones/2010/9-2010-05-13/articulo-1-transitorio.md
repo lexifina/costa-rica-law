@@ -1,0 +1,1 @@
+Transitorio.—Aquellas solicitudes de legalización de libros que se hubieren presentado con anterioridad a la vigencia de la presente resolución y estuvieren pendientes de resolver al momento de su publicación, deberán tramitarse conforme a los presupuestos establecidos en la resolución DGT-23-07 supra citada.
