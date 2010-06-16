@@ -1,1 +1,2 @@
-Artículo 210.—Servicio de ingreso de vehículos al recinto portuario: Consiste en las actividades administrativas y operativas del Prestatario del Servicio de carga para controlar el ingreso de vehículos al recinto portuario. La tarifa es por cada ingreso que haga el vehículo.
+Artículo 210.—Servicio de ingreso de vehículos al recinto portuario: Consiste en las actividades administrativas y operativas del Prestatario del Servicio de carga para controlar los vehículos de transporte de carga o turistas debidamente autorizado que ingrese al recinto portuario. La tarifa es por cada ingreso que haga el vehículo.
+(Así reformado en sesión N° 3644 del 16 de junio de 2010)

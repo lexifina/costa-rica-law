@@ -11,7 +11,7 @@ i) Servicio a contenedores refrigerados
 j) Servicio de transferencia de contenedores en patios
 k) Servicio de movimiento de contenedores en patios
 l) Servicio de reestiba de carga a bordo o vía muelle.
-m) Servicio de reembalaje y rotulación
+m)Servicio de personal de refuerzo
 n) Servicio de ingreso de vehículos a la zona portuaria
 o) Servicio de báscula
 p) Servicio de consolidación y desconsolidación de contenedores
@@ -19,4 +19,5 @@ q) Servicio de atención a naves de pasajeros
 r) Servicio de embarque y desembarque de pasajeros
 s) Servicio de suministro de agua potable.
 t) Servicio de alquiler de equipos y maquinaria
-u) Servicio de maquinaria abordo
+u) Servicio de maquinaria a bordo
+(Así reformado en sesión N° 3644 del 16 de junio de 2010)

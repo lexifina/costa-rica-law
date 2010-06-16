@@ -1,2 +1,4 @@
-Artículo 216.—Servicio de embarque y desembarque de pasajeros: Los pasajeros que desembarquen o aborden embarcaciones de pasajeros en puerto, deberán pagar por uso de las instalaciones portuarias. Los pasajeros en tránsito pagarán una sola vez pudiendo entrar o salir del Puerto cualquier número de veces, mientras el buque se encuentra atracado.
+Artículo 216.—Servicio de embarque y desembarque de pasajeros: Los pasajeros que desembarquen o aborden embarcaciones de pasajeros en puerto, deberán pagar por uso de las instalaciones portuarias.
+Los pasajeros en tránsito pagarán una sola vez pudiendo entrar o salir del Puerto cualquier número de veces, mientras el buque se encuentra atracado.
 Los miembros de la tripulación están exentos de este pago.
+(Así reformado en sesión N° 3644 del 16 de junio de 2010)

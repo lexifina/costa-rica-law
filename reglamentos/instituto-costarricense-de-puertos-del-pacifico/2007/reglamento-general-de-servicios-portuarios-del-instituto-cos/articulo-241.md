@@ -40,3 +40,5 @@ Términos y siglas empleados
 31) BL: Conocimiento de embarque.
 32) PBIP: Código para la Protección de Buques e Instalaciones Portuarias
 33) OMI: Organización Marítima Internacional
+34) HORA O FRACCIÓN: Para efectos de cobro, el término “fracción” se entenderá como una hora.
+(Así adicionado el punto anterior en sesión N° 3644 del 16 de junio de 2010)
