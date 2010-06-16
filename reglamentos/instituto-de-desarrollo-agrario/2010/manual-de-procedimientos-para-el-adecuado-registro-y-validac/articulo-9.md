@@ -1,0 +1,4 @@
+Artículo 9º—Asimismo, las acciones irregulares que realice algún funcionario que por su gravedad pudiera configurar algún delito, puede ser de conocimiento del Ministerio Público, según lo establecido en las Directrices que sobre este tema ha emitido el órgano contralor.
+Disposiciones finales. Este Manual de Procedimientos se fundamentó en las “Directrices Generales a los sujetos pasivos de la Contraloría General de la República para el adecuado registro o incorporación y validación de información en el Sistema de Información sobre Presupuestos Públicos” (SIPP), D-2-2005-CO-DFOE, publicada en La Gaceta Nº 131 del jueves 7 de julio del 2005.
+Aprobado por la Junta Directiva del Instituto de Desarrollo Agrario, artículo Nº 3, de la sesión ordinaria 019-2010, celebrada el 24 de mayo del 2010. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Acuerdo aprobado por unanimidad. Comuníquese. Acuerdo firme.
