@@ -24,3 +24,4 @@ Reglamento de Créditos del INFOCOOP
 | 9 | 2006-07-03 | Reglamento 3556 (2006-07-03) |
 | 10 | 2007-04-27 | Reglamento 3632 (2007-04-27) |
 | 11 | 2008-04-01 | Reglamento 0 (2008-04-01) |
+| 12 | 2010-06-17 | Reglamento 3783 (2010-06-17) |
