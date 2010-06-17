@@ -16,3 +16,4 @@ Reglamento de Caja Chica
 | 1 | 2007-03-21 | la propia norma |
 | 2 | 2008-06-30 | Reglamento 1877 (2008-06-30) |
 | 3 | 2009-05-11 | Reglamento 1919 (2009-05-11) |
+| 4 | 2010-06-17 | Reglamento 1971 (2010-06-17) |
