@@ -14,3 +14,4 @@ Integración de las Comisiones Permanentes y Especiales para la legislatura 2010
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-17 | la propia norma |
+| 2 | 2010-06-17 | Acuerdo 4 (2010-05-20) |

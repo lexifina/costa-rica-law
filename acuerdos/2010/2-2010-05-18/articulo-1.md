@@ -57,15 +57,13 @@ Gustavo Arias Navarro
 Adonay Enríquez Guevara
 Víctor Danilo Cubero Corrales
 Luis Alberto Rojas Valerio
-Comisión Permanente Especial de Asuntos Municipales
+(*)Comisión Permanente Especial de Asuntos Municipales
 y Desarrollo Local Participativo
-Fabio Molina Rojas
-Siany Villalobos Argüello
-Juan Bosco Acevedo Hurtado
-Manuel Hernández Rivera
-Patricia Pérez Hegg
-María Jeannette Ruiz Delgado
+Fabio Molina Rojas Siany Villalobos Argüello
+Juan Bosco Acevedo Hurtado Manuel Hernández Rivera
+Mirna Patricia Pérez Hegg Yolanda Acuña Castro
 Wálter Céspedes Salazar
+(*)(Así reformado por el acuerdo Nº 04-10-11 del 20 de mayo de 2010)
 Comisión Especial de Reglamento
 Francisco Chacón González
 Viviana Martín Salazar
