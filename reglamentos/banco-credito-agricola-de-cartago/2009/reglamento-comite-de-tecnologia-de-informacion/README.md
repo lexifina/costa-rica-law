@@ -14,3 +14,4 @@ Reglamento Comité de Tecnología de Información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-03 | la propia norma |
+| 2 | 2010-06-17 | Reglamento 0 (2010-06-17) |
