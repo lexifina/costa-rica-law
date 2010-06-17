@@ -1,0 +1,4 @@
+Artículo 3º—Agréguese la siguiente definición al artículo 3 del Reglamento a la Ley de Derechos de Autor y Derechos Conexos, N° 24611-J de 4 de setiembre de 1995, publicado en el Diario Oficial La Gaceta N° 201 del 24 de octubre de 1995, y sus reformas, que será numerada 29 bis, que a partir de este momento dirá:
+“Artículo 3- (…)
+29 BIS.—Radiodifusión Tradicional: Es la divulgación de sonidos, de imágenes sincronizadas con sonidos, o de la representación de estos a través de programas, mediante transmisiones no interactivas, consideradas por la Ley como un servicio de interés público, que se ofrecen y pueden ser recibidas sin pago de suscripción ni de ninguna otra ventaja económica, de forma que la generalidad de las personas pueda tener libre acceso a esas emisiones en forma gratuita en el momento y en lugar que ellas elijan.
+(…)”
