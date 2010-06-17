@@ -4,12 +4,11 @@ DE LA REPÚBLICA DE COSTA RICA
 En uso de las facultades que le confieren los artículos 84, 85, 86, 89, 90 y 91 del Reglamento de la Asamblea Legislativa.
 ACUERDA:
 Integrar las Comisiones Permanentes y Especiales para la legislatura 2010-2011, de la siguiente manera:
-Comisión Permanente Especial de Redacción
-Annie Alicia Saborío Mora
-Alicia Fournier Vargas
-Siany Villalobos Argüello
-Claudio Enrique Monge Pereira
+(*)Comisión Permanente Especial de Redacción
+Annie Alicia Saborío Mora Alicia Fournier Vargas
+Siany Villalobos Argüello María Eugenia Venegas Renauld
 Martín Alcides Monestel Contreras
+(*)(Así reformado por el acuerdo Nº 04-10-11 del 20 de mayo de 2010)
 Comisión Permanente Especial de la Mujer
 Alicia Fournier Vargas
 Ileana Brenes Jiménez
