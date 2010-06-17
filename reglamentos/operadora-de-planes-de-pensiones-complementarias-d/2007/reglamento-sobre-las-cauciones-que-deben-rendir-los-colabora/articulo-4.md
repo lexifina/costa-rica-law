@@ -1,1 +1,0 @@
-Artículo 4º—Nombramiento y cese de personal. El Área de Recursos Humanos informará a la Jefatura del Departamento de Administración y Finanzas por escrito, el nombramiento, cese o traslado del personal en puestos que requieran presentar caución.
