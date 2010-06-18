@@ -1,0 +1,5 @@
+ARTÍCULO 13.- Sanciones
+Existirán tres tipos de sanciones:
+a) El impuesto de patentes se pagará por trimestre adelantado, por lo que el atraso en el pago generará el pago de intereses, que se regirá por lo establecido en el Código de Normas y Procedimientos Tributarios. Tanto en este caso como en el siguiente, la Municipalidad podrá certificar las deudas por estos conceptos. Esta certificación constituirá título ejecutivo, según lo establece el artículo 71 del Código Municipal.
+b) La falta de pago de dos o más trimestres del impuesto de patente faculta a la Municipalidad a suspender temporal o definitivamente la licencia a que se refiere esta Ley, de conformidad con el artículo 81 bis del Código Municipal.
+c) Los contribuyentes que no presenten la declaración jurada de ingresos dentro del término establecido en el artículo 6 de esta Ley serán sancionados con una multa. En ningún caso, esta multa será inferior a un salario base del auxiliar de administración uno del Poder Judicial según la relación de puestos, de la Ley del presupuesto ordinario de la República vigente al momento de aplicar dicha multa.

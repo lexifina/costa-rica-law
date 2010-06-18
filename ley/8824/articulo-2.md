@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Monto del impuesto
+El monto del impuesto será fijado por la Municipalidad de acuerdo con lo establecido en la presente Ley y su Reglamento. El impuesto será pagado el tiempo que se mantenga abierto el establecimiento o se ejerza el comercio en forma de distribución de casas internacionales y nacionales, por el período en que se haya obtenido la licencia, aunque la actividad no se haya realizado.

@@ -1,0 +1,2 @@
+ARTÍCULO 14.- Revisión y recalificación
+Toda declaración queda sujeta a ser revisada por los medios establecidos en la ley. Si se comprueba que los datos suministrados son incorrectos por cuya causa se determine una variación en el tributo, se procederá a la recalificación correspondiente. Asimismo, la declaración que deben presentar los patentados ante la Municipalidad queda sujeta a lo establecido en el Código Penal en lo referente al delito de perjurio.
