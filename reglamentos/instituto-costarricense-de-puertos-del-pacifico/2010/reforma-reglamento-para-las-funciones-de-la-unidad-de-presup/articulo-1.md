@@ -1,0 +1,10 @@
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+Que la Junta Directiva de esta Institución mediante Acuerdo N° 9, tomado en la sesión N° 3639, celebrada el día 19 de mayo del año en curso, acordó realizar modificaciones al Reglamento para las Funciones de la Unidad de Presupuesto para que se lea así:
+ACUERDO 9:
+1. Agregar un inciso h) en el Artículo 2º del Reglamento para las funciones de la Unidad de Presupuesto, el cual se leerá como sigue:
+h) Ajustes internos (Modificaciones internas al POI): Con el visto bueno por escrito de la Presidencia Ejecutiva o Gerencia General, las unidades podrán solicitar a la Unidad de Presupuesto y Planificación el traslado de recursos y la creación o eliminación de metas de su POI, siempre y cuando no se afecten las subpartidas o los programas presupuestarios de la institución.
+2. Modificar los incisos a), b) y c) y eliminar el inciso d) del Artículo 9 del Reglamento para las Funciones de la Unidad de Presupuesto, que se leerán como sigue:
+a) Solicitudes de compra: Las unidades ingresan en el Sistema Integrado Administrativo-Financiero (SIAF), las solicitudes de compra llegan a presupuesto provenientes de la unidad aprobadora para su autorización y luego pasan al Área de Proveeduría.
+b) Vales de caja chica. La Unidad de Presupuesto revisa a posteriori toda la documentación ya cuando se ha dado todo el proceso (unidades solicitan, jefatura les aprueban, la caja entrega dinero, las unidades liquidan y la caja liquida por medio de un reintegro), en ese caso si existen errores en la utilización de las subpartidas, se reversan en el sistema.
+c) Emisiones de cheque: La Unidad de Presupuesto revisa a posteriori toda la documentación ya cuando se ha dado todo el proceso (unidades realizan la emisión, jefatura les aprueban, la caja entrega cheque,), en ese caso si existen errores en la utilización de las subpartidas, se reversan en el sistema.
+En lo relativo al reverso de las subpartidas, corresponderá realizarlo al responsable del manejo del presupuesto de cada unidad.
