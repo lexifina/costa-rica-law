@@ -1,0 +1,1 @@
+Artículo 8º—La Oficialía Mayor será responsable del trámite administrativo ante el Instituto Costarricense de Electricidad, el cual comprenderá la activación de los servicios celulares requeridos, a su vez deberá informar a la Dirección de Servicios Generales para la correspondiente previsión presupuestaria.

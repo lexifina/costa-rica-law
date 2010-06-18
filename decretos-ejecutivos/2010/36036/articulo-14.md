@@ -1,0 +1,1 @@
+Artículo 14.—Sanciones. El incumplimiento de las disposiciones contenidas en este Reglamento facultará a la Administración de tener al servidor como infractor, por lo cual será responsable y se le acreditará de las medidas disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidades que, conforme al ordenamiento jurídico, le sean aplicables.
