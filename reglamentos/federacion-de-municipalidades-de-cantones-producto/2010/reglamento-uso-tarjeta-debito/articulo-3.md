@@ -1,0 +1,1 @@
+3. Cuando por las razones apuntadas anteriormente, no se pudiere obtener la factura timbrada y/o autorizada por la Tributación Directa, obligatoriamente se tendrá que emitir un comprobante interno o similar que respalde la erogación correspondiente, misma que deberá ser refrendada por el Tesorero o Tesorera y el Director Ejecutivo.

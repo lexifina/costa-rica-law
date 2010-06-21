@@ -1,0 +1,1 @@
+7. El encargado de la tarjeta de débito será el jerarca superior. No podrá realizar ningún gasto que no contenga contenido presupuestario. En todos los casos deberá respetar las disposiciones de este reglamento y la normativa del control interno.
