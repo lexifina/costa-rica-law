@@ -1,0 +1,1 @@
+14. En el artículo 47 en el quinto renglón que se cambie la frase “un año” por “seis meses”, en el renglón sétimo se cambie la frase “acuerdo municipal” por “resolución de la Alcaldía Municipal” y en el renglón catorce se cambie la frase “un año” por “seis meses”.

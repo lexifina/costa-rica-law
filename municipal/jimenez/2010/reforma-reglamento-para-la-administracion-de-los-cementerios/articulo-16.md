@@ -1,0 +1,1 @@
+16. En el artículo 52º a partir del segundo renglón se cambia la frase “de las 6 a.m. a las 2 p.m. con una hora de almuerzo, y los sábados de 6,00 a 11,00 a.m.” por “Lunes a Viernes de 6 a.m. a 3 p.m.”

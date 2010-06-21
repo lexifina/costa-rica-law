@@ -1,0 +1,1 @@
+7. En el artículo 17 en el primer renglón luego de la palabra “cementerio” agregar “realizar contratos con” y eliminar la frase “contratar un arrendamiento a”. En el cuarto renglón eliminar la frase “a menos que lo autorice la Municipalidad.” Y luego de la palabra comunes, agregar “dentro o fuera de la jornada laboral”.

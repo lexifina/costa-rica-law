@@ -1,0 +1,1 @@
+5. En el artículo 13 que se elimine del cuarto renglón la frase “o tonos similares al blanco” y en el renglón quinto que se elimine la frase “o cualquier material que se autorice” y se agregue luego de la palabra “madera” “,en caso de utilizar un material diferente a los estipulados anteriormente deberá obtener la autorización respectiva del Encargado del Cementerio.”

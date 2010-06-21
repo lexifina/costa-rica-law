@@ -1,0 +1,1 @@
+8. Que se elimine en su totalidad el artículo 25 y en su lugar se lea “25º- Los trabajos se podrán efectuar cualquier día de la semana en horario de 7 a.m. a 5 p.m. Los trabajos que no se ajusten a lo estipulado en este reglamento serán demolidos, sin responsabilidad de la Municipalidad.”
