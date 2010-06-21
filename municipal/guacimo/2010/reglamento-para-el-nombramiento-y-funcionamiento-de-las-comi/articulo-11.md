@@ -1,0 +1,1 @@
+Artículo 11.—Para celebrar festejos populares en plazas o campos de deportes, deberá contarse con una autorización previa del Instituto Costarricense del Deporte y la Recreación o del comité cantonal de deportes, respectivo, los cuales podrán conceder el permiso con la garantía de que la plaza o el campo deportivo quedará en perfecto estado después de la actividad.

@@ -1,0 +1,1 @@
+Artículo 4º—Para los efectos de la liquidación de cuentas que señala el artículo anterior, los ingresos y los egresos deberán acompañarse de sus correspondientes comprobantes y justificantes. Asimismo, la Comisión deberá acatar los lineamientos que en materia de fiscalización les remita por escrito y con copia al Concejo, el Departamento de Auditoría Municipal de Guácimo.

@@ -1,0 +1,1 @@
+Artículo 10.—A los miembros de la comisión les serán aplicables, en lo que corresponda, las prohibiciones y sanciones consagradas en el artículo 22 y en el capítulo X de la Ley Nº 7494, Contratación administrativa, de 2 de mayo de 1995. Asimismo, las contrataciones que promueva la comisión se regirán, en lo conducente, por dicha Ley y su Reglamento.

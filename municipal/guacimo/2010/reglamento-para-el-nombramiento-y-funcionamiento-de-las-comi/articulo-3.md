@@ -1,0 +1,2 @@
+Artículo 3º—La comisión elaborará la liquidación de cuentas de los festejos populares y la presentará, para su revisión, a la auditoría interna municipal, a más tardar treinta días después de la finalización de los festejos.
+La auditoría municipal tendrá un plazo de sesenta días, como máximo, para revisar la liquidación y trasladaría al Concejo, el cual deberá aprobarla, a más tardar, en quince días hábiles.

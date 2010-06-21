@@ -1,0 +1,1 @@
+Artículo 6º—La municipalidad ejercerá las acciones administrativas que se requieran para sentar las responsabilidades del caso, cuando se compruebe incorrección o irregularidad en el manejo de los fondos; de ser necesario, deberá remitir el asunto a las autoridades judiciales competentes.
