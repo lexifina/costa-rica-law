@@ -1,5 +1,1 @@
-Transitorio II.- Durante el año fiscal de 1955, el Instituto
-Costarricense de Turismo recibirá la suma proporcional que le
-corresponda, por los meses de vigencia de la presente ley, durante dicho
-período, de la subvención anual de un millón de colones que establece el
-artículo 7º, en su inciso b) de esta ley.
+Transitorio II.- Durante el año fiscal de 1955, el Instituto Costarricense de Turismo recibirá la suma proporcional que le corresponda, por los meses de vigencia de la presente ley, durante dicho período, de la subvención anual de un millón de colones que establece el artículo 7º, en su inciso b) de esta ley.
