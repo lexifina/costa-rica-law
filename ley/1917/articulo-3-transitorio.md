@@ -1,10 +1,1 @@
-Transitorio III.- Tan pronto como haya sido promulgada la presente
-ley, el Consejo de Gobierno designará los cuatro miembros que indica el
-inciso b) del artículo 14 de esta ley. Para los efectos de renovación de
-los miembros electivos a que se refiere el artículo 18 de la presente
-ley, la Junta Directiva, en su sesión de instalación, procederá a
-sortear, entre sus miembros, aquellos para quienes venza su período al
-primer año, al segundo, al tercero y al cuarto. Procederá igualmente a
-nombrar Presidente y Vicepresidente. Los períodos legales de los
-miembros de la Junta Directiva, así como el de Gerente y Auditor,
-comenzarán a contarse a partir del 1º de enero de 1955.
+Transitorio III.- Tan pronto como haya sido promulgada la presente ley, el Consejo de Gobierno designará los cuatro miembros que indica el inciso b) del artículo 14 de esta ley. Para los efectos de renovación de los miembros electivos a que se refiere el artículo 18 de la presente ley, la Junta Directiva, en su sesión de instalación, procederá a sortear, entre sus miembros, aquellos para quienes venza su período al primer año, al segundo, al tercero y al cuarto. Procederá igualmente a nombrar Presidente y Vicepresidente. Los períodos legales de los miembros de la Junta Directiva, así como el de Gerente y Auditor, comenzarán a contarse a partir del 1º de enero de 1955.
