@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones públicas podrán brindar, dentro de sus posibilidades y conforme la normativa vigente, todas las facilidades y medidas de cooperación que estimen pertinentes para la realización del evento.
