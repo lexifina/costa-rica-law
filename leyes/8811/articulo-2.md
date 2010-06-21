@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Definición
+La RSCT se define como el cumplimiento de los deberes legales, económicos propios de la empresa y la adopción del compromiso de ser socialmente responsable con criterios de sostenibilidad, contribuyendo con el desarrollo económico, social y ambiental; laborando con las personas trabajadoras, sus familias, la comunidad local y la sociedad en general, para implementar conjuntamente proyectos de desarrollo social.

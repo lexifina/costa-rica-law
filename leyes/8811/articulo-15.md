@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Promoción del turismo social
+El Instituto Costarricense de Turismo, con apoyo y en coordinación con las dependencias y entidades públicas y privadas competentes, promoverá la constitución y operación de empresas miembros del sector social que tengan por objeto la prestación de servicios turísticos accesibles a la población. Asimismo, promoverá la conjunción de esfuerzos para mejorar la atención y el desarrollo de los lugares en que pueda ser susceptible elevar su nivel económico de vida, mediante la industria turística.
