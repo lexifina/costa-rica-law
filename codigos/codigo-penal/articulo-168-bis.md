@@ -1,0 +1,2 @@
+Artículo 168 bis.- Se impondrá la inhabilitación para el ejercicio del comercio de tres a diez años al dueño, gerente o encargado de una agencia de viajes, de un establecimiento de hospedaje, de una aerolínea, de un tour operador o de un transporte terrestre que promueva o facilite la explotación sexual comercial de personas menores de dieciocho años.
+(Así adicionado por el artículo 21 de le ley Incentivo de la Responsabilidad ocial Corporativa Turística, Nº 8811 del 12 de mayo de 2010)
