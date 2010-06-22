@@ -1,0 +1,1 @@
+5º-La Dirección de Gestión de la DMP contará con treinta días para resolver lo pertinente sobre el procedimiento que aplicarán para poner en práctica el beneficio de prioridad de paso, una vez entregado a esa Dirección por las Administraciones de los servicios de transbordadores, de acuerdo con el aparte 3 inciso i) anterior.

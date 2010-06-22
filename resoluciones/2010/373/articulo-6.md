@@ -1,0 +1,1 @@
+6º-Queda reservada a la Dirección de Gestión el derecho de corregir o subsanar cualquier circunstancia que las administraciones de los servicios de cabotaje estén inobservando en perjuicio de los beneficiarios de la prioridad de paso objeto de la presente resolución.

@@ -1,0 +1,1 @@
+7º-Los permisos de prioridad de paso otorgados por la Dirección de Navegación y Seguridad de la División Marítima Portuaria que estén vigentes a la fecha, mantendrán su validez hasta la fecha de su vencimiento, después de lo cual los interesados deberán regirse por lo estipulado en la presente resolución.

@@ -1,0 +1,7 @@
+3º-Obligaciones de los permisionarios y concesionarios de los servicios de cabotaje nacionales. Los permisionarios y concesionarios de los servicios de cabotaje nacionales que deben aplicar el derecho que en la presente se regula, tendrán las siguientes obligaciones:
+i. Establecer un procedimiento de prioridad de paso en sus embarcaciones dentro del plazo de un mes calendario, el cual deberá ser aprobado por la DMP; en ausencia de éste, la Dirección de Gestión establecerá dicho procedimiento.
+ii. Establecer un registro de los vehículos que son objeto de dicho beneficio.
+iii. Establecer, con criterios de razonabilidad, prudencia y equidad el número de unidades que abordarán un transbordador con prioridad de paso en un mismo horario.
+iv. Controlar que solo las unidades autorizadas de los permisionarios � concesionarios mencionados en esta resolución y previamente avalados por la Dirección de Gestión de la DMP, aborden sus transbordadores con prioridad de paso, según el procedimiento establecido por la administración del servicio y aprobado por la DMP. En ningún otro caso se debe dar preferencia de paso a otros vehículos en detrimento de los que se encuentren esperando el ingreso al transbordador.
+v. Respetar el orden de preferencia de paso establecido en el punto Nº 1 de esta resolución.
+vi. Velar porque las unidades con prioridad de paso se ubiquen correctamente en los transbordadores de manera que faciliten su salida prioritaria en el puerto de destino.
