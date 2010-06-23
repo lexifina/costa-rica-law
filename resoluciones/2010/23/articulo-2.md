@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución Nº 39-09 de las quince horas del día 10 de junio del dos mil mueve, de la Dirección General de Hacienda, publicada en La Gaceta Nº 132 del 09 de julio del 2009.
