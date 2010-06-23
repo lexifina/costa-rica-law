@@ -1,6 +1,3 @@
-ARTICULO 7º.- Es prohibido a los barcos atuneros de bandera
-extranjera realizar la pesca de especies no autorizadas o descargar otros
-productos o subproductos pesqueros, distintos a los contemplados en la
-licencia de pesca correspondiente. De comprobarse la infracción, se
-procederá a la cancelación de dicha licencia, sin derecho a indemnización
-alguna.
+ARTICULO 7º.- Es prohibido a los barcos atuneros de bandera extranjera realizar la pesca de especies no autorizadas o descargar otros productos o subproductos pesqueros, distintos a los contemplados en la licencia de pesca correspondiente. De comprobarse la infracción, se procederá a la cancelación de dicha licencia, sin derecho a indemnización alguna.
+Para los efectos de la descarga del producto en puertos Costarricenses, con el cumplimiento de los requisitos normativos y la posibilidad del otorgamiento de licencias posteriores sin el pago correspondiente según lo dispuesto en la Ley Nº 8436, los barcos atuneros de bandera extranjera que durante la vigencia de la licencia, tuvieren por razones de fuerza mayor o caso fortuito, debidamente justificados y reportados ante el INCOPESCA, que arribar a cualquier puerto del Pacifico Oriental, tendrán derecho a que los días que deban permanecer en puerto bajo las circunstancias indicadas, debidamente acreditados y documentados, les sean habilitados y extendidos por el INCOPESCA en el plazo original de la licencia de pesca, al igual que aquellos plazos en que tuvieren que suspender las actividades de pesca por aplicación de periodos de veda oficialmente declarados por Estados miembros de la CIAT.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36081 del 23 de junio de 2010)

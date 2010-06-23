@@ -16,3 +16,4 @@ Reglamento Licencias Pesca Buques Extranjeros en Aguas de Costa Rica
 | 2 | 1995-01-13 | Decreto Ejecutivo 24120 (1995-02-28) |
 | 3 | 2007-08-27 | Decreto Ejecutivo 34085 (2007-08-27) |
 | 4 | 2009-10-15 | Decreto Ejecutivo 35827 (2009-10-15) |
+| 5 | 2010-06-23 | Decreto Ejecutivo 36081 (2010-06-23) |
