@@ -680,6 +680,10 @@ iii. Sin revisión, una vez autorizado el levante y antes del inicio del tránsi
 (Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
 54º) Para las mercancías de ingreso marítimo que hayan sido sometidas a tránsito anticipado y que se encuentren en estado VIA , una vez oficializado el manifiesto de ingreso y que en aplicación de criterios de riesgo deben portar precinto electrónico, la colocación de dicho dispositivo podrá realizarse dentro del puerto de ingreso o en las instalaciones del ET, si fueron movilizadas en forma masiva por el transportista naviero. De colocarse el precinto electrónico en las instalaciones del ET, la colocación y activación del dispositivo deberá realizarse en el plazo máximo de una hora, contada a partir del ingreso de la UT a dicha ubicación. El declarante, deberá tomar las previsiones del caso para cumplir el plazo establecido para la finalización del tránsito aduanero.
 (Así adicionado el inciso anterior mediante resolución RES-DGA-122-2010 del 7 de abril de 2010)
+55º) Cuando en aplicación de las políticas generales 5º) y 6º) anteriores, se requiera un segundo tránsito interno de mercancías ingresadas al Régimen de depósito fiscal, el declarante deberá gestionar la autorización ante la aduana de control utilizando el mensaje denominado “Mensaje de Solicitud de Autorizaciones de Operaciones de Inventario” consignando en el campo denominado “Tipo de Solicitud” (YSKTPOPERA) el código M: “Movilización.
+(Así adicionado el punto anterior mediante resolución RES-DGA-216 del 24 de junio de 2010)
+56º) Una vez aprobada la solicitud, el segundo tránsito interno se efectuará mediante el DUA de tránsito modalidad 80-16, que deberá contener en el bloque de documentos obligatorios, el documento denominado “Autorización de Segundos Tránsitos”, código 0322 y el número de autorización.
+(Así adicionado el punto anterior mediante resolución RES-DGA-216 del 24 de junio de 2010)
 II. De la Elaboración, Envío de Imágenes y Aceptación de la Declaración
 A. Actuaciones del Declarante
 1) Elaboración de la Declaración
