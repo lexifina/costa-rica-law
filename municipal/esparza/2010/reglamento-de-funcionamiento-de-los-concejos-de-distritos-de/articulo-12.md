@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad ejecutará sus obras o servicios públicos en cada distrito, atendiendo fundamentalmente las propiedades fijadas en el Plan de Desarrollo Municipal. La Municipalidad les brindar informe trimestrales sobre los recursos invertidos y disponibles para el distrito.

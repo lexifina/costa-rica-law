@@ -1,0 +1,1 @@
+Artículo 2º—Los Concejos de Distritos estarán integrados por cinco miembros propietarios donde uno será el síndico propietario, y cinco miembros suplentes donde uno será el síndico suplente; todos elegidos popularmente.

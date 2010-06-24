@@ -1,0 +1,1 @@
+Artículo 9º—El lugar de reuniones o sesiones debe cumplir con las condiciones de acceso público como pueden ser una escuela, liceo, edificio de asociaciones de desarrollo o cualquier otro con condiciones de accesibilidad idóneas. No pueden Sesionar en lugares donde se expendan bebidas alcohólicas ni en lugares de culto.

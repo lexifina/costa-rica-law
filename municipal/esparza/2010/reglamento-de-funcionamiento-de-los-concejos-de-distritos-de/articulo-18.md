@@ -1,0 +1,1 @@
+Artículo 18.—Las sesiones deberán iniciarse dentro de los quince minutos siguientes a la hora señalada y el quórum se formará con tres miembros, y en caso de ausencia del presidente, ejercerá este cargo el miembro de mayor edad.

@@ -1,0 +1,1 @@
+Artículo 21.—Los acuerdos serán tomados por simple mayoría de votos de los miembros propietarios presentes y se mantendrá por firme. En caso de empate se someterá por el presidente a la suerte a través de la moneda que decidirá.

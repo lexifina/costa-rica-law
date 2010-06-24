@@ -1,0 +1,1 @@
+Artículo 4º—De cada sesión el secretario (a) levantará un acta donde se hace constar al menos, la fecha de realización, nombre y firma de los presente, la agenda a desarrollar y la descripción de cada uno de los acuerdos tomados. Todas las actas al final serán firmadas por el Secretario (a) y por el Presidente.

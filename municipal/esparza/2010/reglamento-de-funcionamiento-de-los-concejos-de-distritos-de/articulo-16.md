@@ -1,0 +1,1 @@
+Artículo 16.—Los acuerdos y resoluciones del Concejo de Distrito serían ejecutados por su Presidente en ejercicio o quien delegue por acuerdo, en coordinación con los organismos de base correspondiente.

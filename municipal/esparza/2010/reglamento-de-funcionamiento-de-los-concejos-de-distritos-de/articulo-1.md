@@ -1,0 +1,7 @@
+(Nota de Sinalevi: Sobre este tema el Concejo Municipal de Esparza había emitido anteriormente el Reglamento para Nombramiento y Funcionamiento de los Concejos de Distrito del cantón de Esparza, número 10 del 15 de junio de 1998)
+(NOTA SINALEVI: La Municipalidad de Esparza mediante publicación realizada en La Gaceta N° 122 del 24 de junio de 2010 comunicó “Que no habiendo conocido objeciones, dentro del plazo de ley, al Reglamento de Funcionamiento de los Concejos de Distrito del Cantón de Esparza, aprobado en la sesión ordinaria Nº 48, celebrada el 24 de marzo de 2010, y publicado para su consulta en La Gaceta Nº 99 del 24 de mayo de 2010, el mismo queda definitivamente aprobado”, por lo tanto, de acuerdo a lo trascrito el texto del referido reglamento es el siguiente:
+REGLAMENTO PARA EL FUNCIONAMIENTO
+DE LOS CONCEJOS DE DISTRITO DEL CANTÓN DE ESPARZA
+El Concejo Municipal de Esparza, con fundamento en las potestades que le confieren los artículos 13, inciso C, y 43 del Código Municipal, establece el presente reglamento, para regular el funcionamiento de los Concejos de Distritos.
+Disposiciones Generales
+Artículo 1º—Los Concejos de Distritos son órganos que fomentarán la participación ciudadana, permitiendo el ejercicio del poder a la ciudadanía en la forma de decisiones que afecten su jurisdicción territorial. Coordinará la participación de los líderes comunales de su distrito y fomentará los más altos valores éticos, morales y culturales en el ejercicio de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 17.—Las sesiones ordinarias deben efectuarse en la cabecera del Distrito o en otro lugar que por acuerdo designen, en el día y hora indicados, según el articulo 7° de este reglamento, pudiendo celebrar sesiones extraordinarias en otros distritos del mismo cantón para tratar asuntos de interés interdistrital.

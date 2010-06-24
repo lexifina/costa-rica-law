@@ -1,0 +1,1 @@
+Artículo 3º—Los Concejos de Distrito tendrán como presidente al síndico propietario y durante las sesiones el Síndico Suplente sustituirá al Presidente en sus ausencias, asumiendo sus deberes y derechos.
