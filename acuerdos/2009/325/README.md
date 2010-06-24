@@ -14,3 +14,4 @@ Plan de Premios de Loterías Ordinarias y Extraordinarios 2010
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-03 | la propia norma |
+| 2 | 2010-06-24 | Acuerdo 287 (2010-06-24) |

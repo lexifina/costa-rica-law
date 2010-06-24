@@ -213,40 +213,31 @@ por billete ¢ por fracción ¢
 50 Premios de 250.000 25.000
 Total: 91 premios por emisión
 San José, 18 de noviembre del 2009.
-SORTEO EXTRAORDINARIO DE NAVIDAD
-Nº 4113 DEL 19 DE DICIEMBRE 2010
-PLAN DE PREMIOS POR EMISIÓN
-Emisión: 100.000 billetes cada una (Emisión Séxtuple): Total 600,000 billetes
-El billete consta de 40 fracciones con un valor de ¢40,000 el billete y ¢1.000 la fracción
+(*)SORTEO EXTRAORDINARIO DE NAVIDAD Nº 4113 DEL 19 DE DICIEMBRE 2010 PLAN DE PREMIOS POR EMISIÓN
+Emisión: 100.000 billetes cada una (Emisión Quíntuple): total 500,000 billetes
+El billete consta de 40 fracciones con un valor de ¢ 50,000 el billete y ¢1.250 la fracción
 PLAN DE PREMIOS POR PAGAR EN CADA EMISIÓN
-Premio Premio
-por billete ¢ por fracción ¢
-Premio Mayor 725.000.000 18.125.000
-Serie del Mayor con el número anterior
-(Aproximación) 1.500.000 37.500
-Serie del Mayor con el número posterior
-(Aproximación) 1.500.000 37.500
-Los billetes con la Serie igual al Mayor,
-con diferente número 510.000 12.750
-Los billetes con el Número igual al Mayor,
-con diferente serie 500.000 12.500
-Los billetes con la última cifra del Mayor
-(Terminación) 80.000 2.000
-Número igual al Segundo Premio
-excepto su serie 80.000 2.000
-Número igual al Tercer Premio
-excepto su serie 40.000 1.000
+| Premio por billete ¢ | Premio por fracción ¢
+Premio mayor | 1.000.000.000 | 25.000,000
+Serie del mayor con el número anterior (aproximación) | 1,500,000 | 37,500
+| Premio por billete ¢ | Premio por fracción ¢
+Serie del mayor con el número posterior (aproximación) | 1,500,000 | 37,500
+Los billetes con la serie igual al mayor, con diferente número | 630,000 | 15.750
+Los billetes con el número igual al mayor, con diferente serie | 620.000 | 15.500
+Los billetes con la última cifra del mayor (terminación) | 100,000 | 2.500
+Número igual al segundo premio excepto su serie | 100,000 | 2,500
+Número igual al tercer premio excepto su serie | 50,000 | 1,250
 PREMIOS DIRECTOS
-Premio Premio
-por billete ¢ por fracción ¢
-1 Premio de 46.000.000 1.150.000
-1 Premio de 27.000.000 675.000
-10 Premios de 2.500.000 62.500
-15 Premios de 1.500.000 37.500
-27 Premios de 1.000.000 25.000
-80 Premios de 750.000 18.750
-Total: 135 premios por emisión
-San José, 18 de noviembre del 2009.
+| Premio por billete ¢ | Premio por fracción ¢
+1 premio de | 50,000,000 | 1,250,000
+1 premio de | 30,000,000 | 750,000
+10 premios de | 2,000,000 | 50.000
+15 premios de | 1,500,000 | 37,500
+| Premio por billete ¢ | Premio por fracción ¢
+25 premios de | 1,000,000 | 25,000
+80 premios de | 750,000 | 18,750
+Total: 133 premios por emisión | |
+(*)(Sustituido mediante acuerdo N° 287 de la sesión N° 19 del 24 de junio de 2010)
 PRIMER SORTEO EXTRAORDINARIO DE CONSOLACIÓN
 Nº 4114 EL 26 DE DICIEMBRE 2010
 PLAN DE PREMIOS POR EMISION
