@@ -1,0 +1,2 @@
+Artículo 8º—Designación de Vicepresidente y Secretario de Consejo. El Consejo elegirá de su seno, un miembro quien ejercerá como Vicepresidente, que será el encargado de sustituir al Presidente en sus ausencias temporales y ejercerá sus mismas funciones y atribuciones. Dicha designación será anual y se realizará en la primera sesión de cada año.
+Asimismo el Consejo designará un (a) Secretario (a), quien se encargará de llevar un estricto control de las actas levantadas para cada sesión, así como de la conformación de los expedientes correspondientes a ella.

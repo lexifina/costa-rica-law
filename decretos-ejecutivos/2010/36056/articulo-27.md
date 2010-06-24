@@ -1,0 +1,2 @@
+Artículo 27.—Quórum para sesionar. El quórum para que pueda sesionar válidamente el Consejo lo integran cuatro miembros.
+Las sesiones del Consejo deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada al efecto. Pasados los treinta minutos indicados, si no hubiere quórum, se dejará constando en el libro de actas el nombre de los directores presentes. Verificado lo anterior, el Consejo podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera.

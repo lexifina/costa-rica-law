@@ -1,0 +1,1 @@
+Artículo 22.—Llegadas tardías. Iniciada la sesión el o los directores ausentes tendrán un período de gracia de un máximo de treinta minutos contados a partir de la hora del inicio de la sesión, para que ocupen su lugar e integren el Consejo. Pasado ese tiempo se tendrán por ausentes.

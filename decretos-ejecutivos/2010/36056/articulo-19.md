@@ -1,0 +1,1 @@
+Artículo 19.—Del personal administrativo: Para el cumplimiento de sus funciones la Secretaría contará con el espacio físico y el recurso humano técnico y profesional necesario para el cumplimiento de sus funciones, los nombramientos del personal requerido, serán competencia del Consejo.

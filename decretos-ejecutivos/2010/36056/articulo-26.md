@@ -1,0 +1,2 @@
+Artículo 26.—Privacidad de las sesiones. Las sesiones del Consejo serán siempre privadas salvo que, los miembros presentes acuerden por unanimidad, que el público en general o ciertas personas, puedan tener acceso a la sesión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+Cualquier funcionario o empleado de la Dirección General de Aviación Civil está obligado a asistir a las sesiones del Consejo, cuando fuere citado, con el propósito de verter criterio técnico sobre algún asunto o simplemente brindar mayor información.
