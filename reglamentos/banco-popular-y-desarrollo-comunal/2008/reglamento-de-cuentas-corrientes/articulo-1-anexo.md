@@ -1,12 +1,9 @@
-Anexo Nº 1
-Tabla de Modalidades y sus Características
-Conceptos | Modalidad Popular Personal y Asociaciones de desarrollo Comunal | Modalidad Popular Empresarial | Modalidad Personal Dólares y Asociaciones de Desarrollo Comunal | Modalidad Empresarial Dólares
-1. MONTO DE APERTURA | ¢50.000 | ¢150.000 | $250 | $1.000
-2. CHEQUERA: (FORMULARIO DE 25 CHEQUES, AL TIPO DE CAMBIO VENTA) | $3,50 | $3,50 | $3,50 | $3,50
-3. LIBROS DE DEPÓSITOS | Sin costo | Sin costo | Sin costo | Sin costo
-4. SALDO MÍNIMO MENSUAL | ¢50.000 | ¢150.000 | $250 | $1.000
-5. NÚMERO DE CHEQUES POR CHEQUERA | 25 cheques | Ilimitado | 25 cheques | Ilimitado
-6. CANTIDAD DE CHEQUES POR CHEQUERA | 25 cheques | 25 cheques | 25 cheques | 25 cheques
-7. CUENTA INACTIVA (TIPO DE CAMBIO VENTA | $2 mensuales (estado de inactividad definido en el artículo 5º de este Reglamento) | $2 mensuales (estado de inactividad definido en el artículo 5º de este Reglamento) | $2 mensuales (estado de inactividad definido en el artículo 5º de este Reglamento) | $2 mensuales (estado de inactividad definido en el artículo 5º de este Reglamento)
-8. LÍMITE ANUAL DE CHEQUES SIN FONDOS, CON FONDOS INSUFICIENTES O CON FONDOS EN TRÁNSITO PERMITIDOS ANTES DE PROCEDER A CERRAR UNA CUENTA | 7 cheques | 10 cheques | 7 cheques | 10 cheques
-(Así reformado mediante sesión N° 4736 del 1 de marzo de 2010)
+ANEXO Nº 1
+TABLA DE MODALIDADES Y SUS CARACTERÍSTICAS
+Concepto | Cuentas en colones | Cuentas en dólares
+Popular | Clásica Personal y Asociaciones Desarrollo Comunal | Oro | Clásica Empresarial | Corporativa | Corporativa Plus
+1. MONTO DE APERTURA. | ¢20.000 | ¢40.000 | ¢40.000 | ¢40.000 | ¢40.000 | ¢40.000 | $250 Personal y Asociaciones Desarrollo Comunal $500 Empresarial
+2. SALDO MÍNIMO MENSUAL | ¢20.000 | ¢40.000 | ¢200.000 | ¢1.300.000 | ¢1.500.000 | ¢5.000.000 | $250 Personal y Asociaciones Desarrollo Comunal $500 Empresarial
+3. NÚMERO DE CHEQUES MENSUALES EMITIDOS PERMITIDOS SIN COMISIÓN | 4 por mes | 25 por mes | ILIMITADO | ILIMITADO | ILIMITADO | ILIMITADO | 15 por mes Personal y Asociaciones Desarrollo Comunal ILIMITADO Empresariales
+4. LÍMITE ANUAL DE CHEQUES SIN FONDOS, CON FONDOS INSUFICIENTES O CON FONDOS EN TRÁNSITO PERMITIDOS ANTES DE PROCEDER A CERRAR UNA CUENTA | 5 | 7 | 7 | 7 | 15 | 20 | 10 Personal y Asociaciones Desarrollo Comunal 20 Empresariales
+(Así reformado mediante sesión Nº 4767 del 24 de junio de 2010)

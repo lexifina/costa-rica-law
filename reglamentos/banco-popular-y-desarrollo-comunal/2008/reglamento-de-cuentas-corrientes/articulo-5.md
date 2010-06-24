@@ -1,4 +1,3 @@
-Artículo 5º—Cuentas inactivas.Toda cuenta corriente que permanezca sin movimiento durante tres meses consecutivos y presente saldos inferiores al mínimo establecido según la modalidad de cada cuenta (dado en el anexo 1) será considerada como inactiva.
-El Banco estará facultado a cobrar una comisión periódica al cliente por todo el plazo que se mantenga la cuenta en ese estado.
-La comisión por cobrar se regirá por el Reglamento de Comisiones de Productos de Captación aprobado por la Junta Directiva.
-(Así reformado mediante acuerdo N° 508 de la sesión N° 4578 del 29 de mayo de 2008)
+Artículo 5º—Cuentas inactivas
+Toda cuenta que permanezca sin movimiento y con saldos inferiores a ¢20.000 para las cuentas en colones o de $100 para las cuentas en dólares, por dos (2) meses consecutivos cuando la modalidad sea “Popular” o tres (3) meses para las otras modalidades según lo establecido en el anexo Nº 1 de este reglamento, será considerada inactiva. Esta condición será comunicada al cuentacorrentista y se cobrará una comisión mensual según lo establecido en el reglamento de “Tarifas y Comisiones para los productos de captación” mientras la cuenta se encuentre bajo esta condición.
+(Así reformado mediante sesión Nº 4767 del 24 de junio de 2010)
