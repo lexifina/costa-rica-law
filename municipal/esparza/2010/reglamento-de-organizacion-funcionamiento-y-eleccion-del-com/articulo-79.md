@@ -1,0 +1,2 @@
+Artículo 79.—Los casos y necesidades normativas no contempladas en este reglamento serán elevados por el Comité Cantonal ante el Concejo municipal, mediante escrito debidamente razonado, para que previa aprobación, proceda a realizar el trámite correspondiente para su debida incorporación al articulado reglamentario.
+Las reformas que se originen por iniciativa propia del Concejo municipal, se pondrán en conocimiento del Comité Cantonal para su análisis y recomendación dentro del plazo conferido al efecto y que nunca podrá ser menor a quince días naturales.

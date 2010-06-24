@@ -1,0 +1,2 @@
+Artículo 6º—El Comité Cantonal deberá presentar su programa de actividades, obras e inversión para el año siguiente al Concejo Municipal para su aprobación, a una fecha límite hasta la primera semana de julio de cada año.
+El Comité Cantonal deberá presentar un informe de los resultados de la gestión correspondiente al año anterior y dentro del mes siguiente a la finalización de ese período, un informe de ejecución presupuestaria así como un informe sobre el cumplimiento del plan de trabajo.

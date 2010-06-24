@@ -1,0 +1,1 @@
+Artículo 59.—El presupuesto del Comité Cantonal y sus organismos debe formularse en forma objetiva donde se reflejen los planes y programas que se van a ejecutar durante el periodo que cubre. En ningún caso los gastos presupuestados pueden exceder los ingresos corrientes probables.

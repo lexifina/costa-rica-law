@@ -1,0 +1,2 @@
+Artículo 47.—El Presidente concederá la palabra en el orden que se la soliciten, salvo moción de orden, en tal caso podrán hacer uso de ella, el proponente y cualquier otro miembro que la apoye y dos que se opongan, la presidencia observará el orden en que se pidió la palabra para cumplir con esta norma.
+El uso de la palabra dada a un miembro del Comité no podrá ser interrumpido, a menos que este lo permita, para efectos de una intervención breve sobra el tema y deberá ser aprobada por el presidente. Queda absolutamente prohibido en las discusiones apartarse del tema.

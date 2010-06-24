@@ -1,0 +1,1 @@
+Artículo 73.—El Comité Cantonal y los Comités Comunales podrán colocar rótulos hacia el interior en las instalaciones deportivas bajo su administración, previa autorización del Concejo Municipal, siempre y cuando se obtenga beneficio económico por tal colocación y lo permita la normativa aplicable al caso y no atenten contra los principios éticos y morales de la comunidad.

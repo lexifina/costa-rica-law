@@ -1,0 +1,1 @@
+Artículo 55.—Podrá el Comité Cantonal de Deportes y Recreación contratar con el personal indispensable según sus posibilidades presupuestarias. El área administrativa se organizará según lo requieran sus programas de trabajo y sus necesidades en general.

@@ -1,0 +1,3 @@
+CAPÍTULO X
+Personal y oficina central
+Artículo 54.—Para todo efecto legal se considerará al personal que presta servicios al Comité Cantonal como funcionarios municipales, por lo que les resultará aplicable el Título V del Código Municipal y demás disposiciones jurídicas correspondientes. De igual forma resultan aplicables las demás disposiciones previstas en la normativa municipal interna en materia laboral.

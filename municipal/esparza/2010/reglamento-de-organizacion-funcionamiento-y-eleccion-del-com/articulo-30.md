@@ -1,0 +1,1 @@
+Artículo 30.—Cuando el Comité Comunal en coordinación con el Comité Cantonal organice torneos internos del poblado, deberán confeccionarse los procedimientos de desarrollo de los mismos, los cuales deben ser aprobados previamente por el Comité Cantonal.

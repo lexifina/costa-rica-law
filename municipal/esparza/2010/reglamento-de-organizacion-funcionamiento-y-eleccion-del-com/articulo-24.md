@@ -1,0 +1,1 @@
+Artículo 24.—Los Comités Comunales deberán reunirse en sesión pública, al menos dos veces al mes, y extraordinariamente cuando así lo convoque el presidente o conjuntamente por tres de sus miembros con al menos 24 horas de anticipación bajo el entendido de que durante éstas únicamente se conocerá lo incluido en la convocatoria.
