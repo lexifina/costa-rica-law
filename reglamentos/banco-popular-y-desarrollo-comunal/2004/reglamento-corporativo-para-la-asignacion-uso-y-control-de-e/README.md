@@ -17,3 +17,4 @@ Reglamento Corporativo para la Asignaci√≥n, Uso y Control de equipos de telefon√
 | 2 | 2006-03-27 | Reglamento 4382 (2006-03-27) |
 | 3 | 2008-02-18 | Reglamento 4552 (2008-02-18) |
 | 4 | 2009-11-19 | Reglamento 4715 (2009-11-19) |
+| 5 | 2010-06-24 | Reglamento 4767 (2010-06-24) |
