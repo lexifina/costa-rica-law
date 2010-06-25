@@ -1,0 +1,1 @@
+Artículo 10.—De las actas. Se debe confeccionar una acta por cada sesión que se realice, sea ordinaria o extraordinaria, las cuales se identificarán con un número consecutivo, debiéndose entregar copia de la misma a cada integrante y una copia debe adjuntarse al expediente que fue sometido a consideración. Las actas deberán ser firmadas por la Presidencia y por la Secretaría.

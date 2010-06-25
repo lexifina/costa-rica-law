@@ -1,0 +1,1 @@
+Artículo 24.—Del apoyo logístico. La Administración Superior del IFAM, dotará a la Junta de Relaciones Laborales, de un espacio físico y debidamente equipado para que pueda celebrar sus sesiones y brindará el apoyo logístico necesario para el desempeño de sus funciones.

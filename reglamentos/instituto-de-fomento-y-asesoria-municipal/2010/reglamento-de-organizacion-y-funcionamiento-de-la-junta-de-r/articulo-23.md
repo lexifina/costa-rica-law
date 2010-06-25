@@ -1,0 +1,1 @@
+Artículo 23.—Acceso a documentos. Por mandato de la Junta de Relaciones Laborales, sus integrantes tendrán acceso a los documentos de naturaleza laboral relacionados con el trabajador o trabajadora y el caso sometido a su consideración. Asimismo, las partes tendrán acceso al expediente principal que se encuentra en la Junta de Relaciones Laborales.

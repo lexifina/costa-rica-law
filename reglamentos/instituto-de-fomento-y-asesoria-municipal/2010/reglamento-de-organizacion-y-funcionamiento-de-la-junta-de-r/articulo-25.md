@@ -1,0 +1,1 @@
+Artículo 25.—Del resguardo de expedientes. Se conformarán tres expedientes de cada caso; un original que será resguardado en la Sección de Recursos Humanos y dos copias que serán distribuidas a las dos partes representadas en la Junta de Relaciones Laborales.

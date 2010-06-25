@@ -1,0 +1,2 @@
+Artículo 12.—De las resoluciones. Las resoluciones que se tomen quedarán en firme en la misma sesión, en que sean tratados los puntos, siempre y cuando así lo convenga la mayoría de las y los miembros presentes en la sesión de la Junta de Relaciones Laborales a la hora de la votación correspondiente.
+Cada una de las y los miembros de la Junta de Relaciones Laborales podrá emitir adjunto al criterio de mayoría, el criterio de minoría.
