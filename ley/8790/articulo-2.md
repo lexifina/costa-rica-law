@@ -40,3 +40,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 36032 del 18 de mayo de 2010)
 (Modificado por el artículo 1° y 2° del decreto ejecutivo N° 36055 del 11 de junio de 2010)
 (Reformado por el artículo 2° y 3° de la ley N° 8841 del 22 de junio de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36080 del 25 de junio de 2010)
