@@ -15,4 +15,12 @@ k) Montos nominales de la operación, en colones y en divisas.
 l) Monto de las garantías, cuando existan.
 m) Nombre de la persona autorizada por el cliente o contraparte, que realiza la operación.
 n) Nombre de la persona autorizada por el intermediario, que realiza la operación.
+o) Tamaño del contrato de futuros.
+(Así adicionado el inciso anterior en sesión N° 862 del 25 de junio de 2010)
+p) Fecha de vencimiento del contrato de futuros.
+(Así adicionado el inciso anterior en sesión N° 862 del 25 de junio de 2010)
+q) Margen inicial y llamadas a margen.
+(Así adicionado el inciso anterior en sesión N° 862 del 25 de junio de 2010)
+r) Modalidad de contrato (financiero o efectivo).
+(Así adicionado el inciso anterior en sesión N° 862 del 25 de junio de 2010)
 Cada operación deberá comunicarse al Banco Central de Costa Rica de conformidad con lo que se establezca en el “Instructivo para suministrar información sobre las operaciones cambiarias al Banco Central de Costa Rica”.

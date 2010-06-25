@@ -2,3 +2,5 @@ Artículo 6º—Productos autorizados. Los productos que podrán ofrecer los int
 a) Contratos a plazo o forward,
 b) Permuta Cambiaria o FX Swap, y
 c) Permuta de Monedas o Currency Swap
+d) Contratos de futuros
+(Así adicionado el inciso anterior en sesión N° 862 del 25 de junio de 2010)

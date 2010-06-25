@@ -1,7 +1,8 @@
 Artículo 23.—Lineamientos sobre administración. Los intermediarios deberán cumplir al menos los siguientes lineamientos sobre administración:
 a) Los miembros de la Junta Directiva deberán contar con un entendimiento claro del papel de las operaciones con derivados en la estrategia de negocios y en la gestión integral de riesgos de la entidad, de la observancia de los límites y del impacto de dichas operaciones sobre la suficiencia patrimonial.
 b) La Junta Directiva deberá aprobar un plan de operaciones que incluya al menos:
-i) Definición de estrategia, políticas, objetivos, metas, tipo de operaciones por ofrecer, asignación de recursos, sistemas para la administración de riesgos, planes de capacitación y procedimientos generales para la ejecución de operaciones de derivados cambiarios con clientes y otros intermediarios.
+i) Definición de estrategia, políticas, objetivos, metas, tipo de operaciones por ofrecer, asignación de recursos, sistemas para la administración de riesgos, planes de capacitación y procedimientos generales para la ejecución de operaciones de derivados cambiarios con clientes y contrapartes autorizadas.
+(Así reformado el inciso anterior en sesión N° 862 del 25 de junio de 2010)
 ii) Los límites operativos de riesgo de mercado, de crédito, contraparte y otros riesgos considerados como aceptables para la entidad. Estos límites deberán ser consistentes con el volumen y complejidad de operaciones y el perfil de negocios de la entidad.
 iii) Los procedimientos de aprobación de nuevos productos financieros relacionados con operaciones con derivados cambiarios.
 c) La Junta Directiva deberá aprobar la creación de una Unidad de Riesgos, la cual deberá ser independiente de las áreas tomadoras de riesgo, a fin de evitar conflictos de interés y asegurar una adecuada separación de responsabilidades. La Unidad de Riesgos deberá contar con al menos una persona competente, debidamente capacitada y entrenada para la administración del riesgo en operaciones de derivados y, en relación con estas operaciones, la unidad de riesgos deberá:
@@ -9,7 +10,7 @@ i) Medir, evaluar y dar seguimiento a los riesgos de mercado, de crédito y de c
 ii) Comunicar, en el momento que se conozcan, a la Gerencia General y a las áreas tomadoras de riesgo cualquier desviación a los límites establecidos para que se tomen las acciones correctivas que corresponda.
 iii) Reportar diariamente a la Gerencia General y a las áreas tomadoras de riesgo y al menos mensualmente al comité de riesgos sobre la operación del intermediario en el mercado. El reporte deberá informar, como mínimo, sobre la utilización de los límites regulatorios y operacionales; y el VeR total de las operaciones con derivados.
 d) La Junta Directiva deberá designar un comité de riesgos, el cual deberá velar oportunamente por el cumplimiento de las políticas, objetivos y lineamientos sobre la administración de riesgos de mercado, de crédito, contraparte y otros que consideren relevantes. En materia de operaciones con derivados cambiarios, el comité de riesgos deberá al menos:
-i) Proponer para aprobación o modificación a la Junta Directiva:
+i) Proponer para aprobación o modificación a la Junta Directiva
 1) Objetivos, lineamientos y políticas para la administración integral de riesgos, incluyendo las operaciones con derivados cambiarios;
 2) Límites globales y específicos de exposición al riesgo, los cuales deberán ser congruentes con los establecidos en este Reglamento;
 3) Mecanismos para la implementación de acciones correctivas.
