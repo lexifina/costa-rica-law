@@ -14,3 +14,4 @@ Regulaciones temporales para la realización de servicio s de trabajo comunal po
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-18 | la propia norma |
+| 2 | 2010-06-25 | Acuerdo 199 (2010-06-25) |
