@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento será de aplicación obligatoria tanto para el Departamento de Administración Tributaria Municipal como para los abogados externos que sean contratados por la Municipalidad de San Ramón, para gestionar el cobro judicial y/o judicial de las obligaciones pecuniarias que se le adeuden a ésta.
