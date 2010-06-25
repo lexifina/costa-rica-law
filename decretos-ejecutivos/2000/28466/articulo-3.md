@@ -78,6 +78,6 @@ Prueba de disolución: Determinación de carácter farmacopeico de la velocidad 
 Registro sanitario: Acto administrativo mediante el cual se establece que el producto farmacéutico a registrar cumple los requisitos sanitarios de la normativa vigente relativos a la calidad, eficacia y seguridad.
 Reglamento: Es el presente Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos.
 Representante legal: Persona física con domicilio en Costa Rica que y quien representa los intereses, en calidad de agente de una persona física o jurídica para llevar cabo gestiones administrativas y judiciales en relación con el objetivo del presente reglamento y de cualquier otra normativa conexa.
-Persona Autorizada; Persona física con domicilio en Costa Rica que ha sido debidamente autorizada por escrito, por una persona física o jurídica, para que realice en su nombre gestiones administrativas en relación con el presente reglamento y de cualquier otra normativa conexa.
-(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 35996 del 26 de enero de 2010)
+Persona Autorizada: Persona física con domicilio en Costa Rica que ha sido debidamente autorizada por escrito, por una persona física o jurídica, para que realice en su nombre gestiones administrativas en relación con el presente reglamento y de cualquier otra normativa conexa.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36170 del 25 de junio de 2010)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 34925 del 27 de noviembre del 2008.)
