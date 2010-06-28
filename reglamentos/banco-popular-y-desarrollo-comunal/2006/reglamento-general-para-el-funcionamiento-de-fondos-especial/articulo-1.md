@@ -28,4 +28,7 @@ Aprobar el Reglamento General para el funcionamiento de Fondos Especiales, cuyo 
 REGLAMENTO GENERAL PARA EL FUNCIONAMIENTO DE FONDOS ESPECIALES
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Del objeto: Se dicta el presente Reglamento con fundamento en los artículos 2, 24 b. y 40 de la Ley Orgánica del BPDC, con el fin de establecer los lineamientos generales que permitan implementar y reglamentar los objetivos, mecanismos e instrumentos necesarios para el funcionamiento de los Fondos Especiales que la Junta Directiva Nacional llegare a constituir con las utilidades de conformidad con el artículo 40 de la Ley Orgánica.
+Artículo 1º—Del objeto:
+Se dicta el presente Reglamento con fundamento en los artículos 2, 24 b. y 40 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, con el fin de establecer los lineamientos generales que permitan implementar y reglamentar los objetivos, mecanismos e instrumentos necesarios para el funcionamiento de los Fondos Especiales que la Junta Directiva Nacional llegare a constituir con las utilidades de conformidad con el artículo 40 de la Ley Orgánica.
+Adicionalmente, la Gerencia General Corporativa podrá emitir políticas para orientar el accionar de los Fondos Especiales en todos los ámbitos administrativos y de gestión, sin que tales políticas puedan oponerse a este reglamento o a otro reglamento aplicable, ni regular asuntos reservados a los reglamentos.
+(Así reformado mediante sesión Nº 4768 del 28 de junio de 2010)

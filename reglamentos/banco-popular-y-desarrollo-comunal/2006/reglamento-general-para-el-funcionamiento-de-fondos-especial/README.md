@@ -14,3 +14,4 @@ Reglamento General para el Funcionamiento de Fondos Especiales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-23 | la propia norma |
+| 2 | 2010-06-28 | Reglamento 4768 (2010-06-28) |
