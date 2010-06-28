@@ -9,7 +9,7 @@ Considerando:
 Decretan:
 Artículo 1º—Se integra la Comisión Nacional para la Gestión de la Biodiversidad con los siguientes miembros:
 1. Miembros propietarios:
-a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009)
+a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009, y posteriormente se vuelve a derogar por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35346 del 18 de mayo de 2009)
 c. (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 d) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35786 del 22 de enero de 2010)
@@ -31,8 +31,7 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35786 del 22 de enero 2010, se nombra como miembro propietario de esta Comisón al Señor Esteban Cerdas Quirós, representante de la Ministra de Salud)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36090 del 1º de junio 2010, se nombra como miembro propietario de esta Comisón a la Señora Ana Lorena Guevara Fernández, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
 2. Miembros suplentes:
-a) Jorge Rodríguez Quirós, representante del Ministerio del Ambiente y Energía.
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 33434 del 1° de junio de 2006)
+a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
 c) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 d) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35786 del 22 de enero de 2010)
@@ -55,3 +54,4 @@ k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35689 del 27 de noviembre de 2009, se nombra como miembro suplente de esta Comisión a la Señora Zayda Trejos Esquivel, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35786 del 22 de enero 2010, se nombra como miembro suplente de esta Comisión al Señor Jorge Valverde Quesada, representante de la Ministra de Salud)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35789 del 8 de enero de 2010, se nombra como miembro suplente de esta Comisión a la Señora Grace García Muñoz, representante de la Federación Costarricense para la Conservación del Ambiente)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010, se nombra como miembro suplente de esta Comisión al Señor Gustavo Induni Alfaro, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
