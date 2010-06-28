@@ -1,0 +1,1 @@
+Artículo 5º—De las Zonas destinadas al transporte colectivo y de uso oficial. La Municipalidad por medio de la sección encargada de regular las zonas de estacionamiento establecerá los espacios dedicados al transporte público de personas y los necesarios para zonas oficiales.

@@ -1,0 +1,1 @@
+Artículo 21.—Vigencia. El presente Reglamento entra en vigencia una vez aprobado por el Concejo Municipal y rige a partir de su publicación en el Diario Oficial. San Juan de Tibás, 12 de noviembre del 2009.

@@ -1,0 +1,1 @@
+Artículo 3º—Demarcación del espacio para estacionar: A cada zona de estacionamiento autorizado se le demarcará claramente el espacio dentro de la cual deberán estacionarse los vehículos. Dicho espacio tendrá las siguientes dimensiones; un largo de 7 metros máximo y 5 metros mínimo con un ancho de 2 metros.

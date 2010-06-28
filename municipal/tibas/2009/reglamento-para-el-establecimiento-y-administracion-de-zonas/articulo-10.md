@@ -1,0 +1,1 @@
+Artículo 10.—Del horario de cobro: Por el uso de los espacios de estacionamiento establecidos se deberá pagar de lunes a sábado entre las 6:00 y 18:00 horas la tasa fijada; se exceptúa de este cobro los días domingos, feriados de ley y fiestas nacionales.

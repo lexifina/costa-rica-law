@@ -1,0 +1,3 @@
+Artículo 2º—De las Zonas de Estacionamiento: Para los efectos del cobro de esta tasa, se divide el Distrito 1º San Juan en Zona Céntrica y como Zona no Céntrica se designan los Distritos de Cinco Esquinas, Llorente, León XIII y Colima.
+La Zona no Céntrica se ubicará inmediatamente siguiente de la Zona Céntrica hasta los límites del Cantón.
+En las Zonas Céntricas y No Céntricas se cobrará el impuesto de estacionamiento en todas aquellas vías que por sus medidas y condiciones sean aptas para el estacionamiento de vehículos, en el resto de las vías el estacionamiento será gratuito, en el tanto que no esté prohibido por las regulaciones de Tránsito.
