@@ -1,2 +1,2 @@
-Artículo 5º—Una vez aprobada la reorganización administrativa de una institución, el jerarca institucional enviará a MIDEPLAN una copia de la estructura aprobada y del estudio técnico que dio lugar a ella, a efecto de que este ministerio disponga de la información que le permita retroalimentar sus instrumentos de asesoría en esta materia.
+Artículo 5º—(Derogado por el artículo 1º del decreto ejecutivo N°36086 del 28 de junio del 2010)
 (Así adicionado mediante el artículo 1° del decreto ejecutivo N°33713 del 26 de marzo del 2007)

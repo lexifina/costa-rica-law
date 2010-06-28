@@ -17,3 +17,4 @@ Reglamento a la Ley Marco para la Transformación Institucional y Reformas a la 
 | 2 | 2007-03-26 | Decreto Ejecutivo 33713 (2007-03-26) |
 | 3 | 2007-05-14 | Decreto Ejecutivo 33783 (2007-05-14) |
 | 4 | 2007-11-29 | Decreto Ejecutivo 34300 (2007-11-29) |
+| 5 | 2010-06-28 | Decreto Ejecutivo 36086 (2010-06-28) |
