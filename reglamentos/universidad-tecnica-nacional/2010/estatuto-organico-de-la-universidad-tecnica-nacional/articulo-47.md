@@ -1,0 +1,2 @@
+Artículo 47.—Del financiamiento. La FEUTN contará para su funcionamiento y operación con un presupuesto anual ordinario aportado por la Universidad, equivalente a un cero punto cero cero dos (0.002) del presupuesto ordinario de operaciones de la Universidad.
+Este presupuesto, será distribuido entre todos los órganos de representación tanto de sedes como de carreras, según el Estatuto y Reglamentos de la FEUTN

@@ -1,0 +1,1 @@
+Artículo 49.—Inscripción y personeros: La Federación de Estudiantes debe estar debidamente inscrita en la Vicerrectoría de Vida Estudiantil de la Universidad Técnica Nacional, con su personería jurídica actualizada. En los casos de las organizaciones de representación de Sedes y de Carreras, la inscripción debe realizarse ante el Decano de Sede.

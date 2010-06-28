@@ -1,0 +1,3 @@
+Artículo 31.—De los principios de ingreso y estabilidad en el puesto. El ingreso en propiedad de los nuevos funcionarios docentes y administrativos a la Universidad se realizará mediante el procedimiento de concurso público y comprobación de la idoneidad requerida, sujeto a un período de prueba de tres meses, conforme lo establezcan los reglamentos respectivos.
+Para todo el personal que ingrese en propiedad, se garantiza el derecho de estabilidad en el puesto y la remoción solo por justa causa y con respeto al debido proceso.
+La Universidad podrá realizar las contrataciones temporales que requiera para cumplir sus funciones.

@@ -1,0 +1,1 @@
+Artículo 41.—Los estudiantes tendrán igualdad de oportunidades en los procesos de acceso, permanencia y graduación, tomando en cuenta su situación social, económica, cultural y educativa, y su merito académico.

@@ -1,0 +1,1 @@
+Transitorio IV.—La designación de los representantes estudiantiles (titular y suplente) del primer Tribunal Electoral Universitario, será realizada por la Comisión de Conformación de la Federación de Estudiantes de la Universidad Técnica Nacional.

@@ -1,0 +1,1 @@
+Transitorio II.—La aplicación del plazo establecido para el desempeño de las funciones de Director de Carrera no afectará los derechos adquiridos de los actuales Directores o Coordinadores de Carrera que hayan sido nombrados en propiedad o plazo indefinido, conforme a los procedimientos legales pertinentes, quienes continuarán en sus cargos conforme a su nombramiento.

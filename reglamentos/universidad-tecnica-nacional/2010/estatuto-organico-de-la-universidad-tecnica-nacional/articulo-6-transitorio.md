@@ -1,0 +1,1 @@
+Transitorio VI.—De conformidad con la ley y mientras no quede integrado el Consejo Universitario, la Comisión de Conformación, continuará desempeñando esas funciones. Una vez constituido el Consejo, la Comisión Conformadora realizará el acto formal de traspaso del gobierno, la dirección y administración de la Universidad a las nuevas autoridades en el plazo máximo de un mes.

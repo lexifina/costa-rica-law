@@ -1,0 +1,1 @@
+Transitorio III.—Por excepción y por una única vez, para la primera elección de las autoridades correspondientes a las sedes y las carreras, participarán los docentes nombrados interinamente por dos ciclos lectivos consecutivos, previos al de la fecha de la elección y con una jornada de al menos un cuarto de tiempo.

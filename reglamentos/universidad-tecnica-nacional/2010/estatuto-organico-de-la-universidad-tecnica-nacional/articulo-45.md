@@ -1,0 +1,2 @@
+Artículo 45.—De la organización estudiantil. La Federación de Estudiantes de la Universidad Técnica Nacional (FEUTN) es el órgano de gobierno estudiantil. Se regirá por su propio Estatuto Orgánico y Reglamentos específicos que deben respetar los principios democráticos en que se sustenta la organización de la Universidad y la vida universitaria en su conjunto.
+Además, existirán órganos de representación en todas las Sedes y en todas las carreras que se imparten. Dicha representación debe estar descrita en el Estatuto Orgánico y Reglamentos correspondientes.

@@ -1,0 +1,3 @@
+Artículo 46.—De la representación estudiantil en los órganos de toma de decisiones de la universidad. Según corresponda, la representación estudiantil en los diferentes órganos de gobierno de la Universidad será de un 25% del total de los miembros que integren ese órgano, salvo que este Estatuto establezca una representación porcentual diferente.
+Estos representes serán electos según el Estatuto de la FEUTN.
+Para los efectos la representación y participación estudiantil que prevé este Estatuto de los diversos órganos de la Universidad y de la Federación de Estudiantes de la Universidad, solo podrán elegir y ser electos los estudiantes regulares.

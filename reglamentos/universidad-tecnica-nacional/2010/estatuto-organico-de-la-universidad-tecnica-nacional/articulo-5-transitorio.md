@@ -1,0 +1,1 @@
+Transitorio V.—Los recursos, bienes, activos y el patrimonio del antiguo Centro de Investigación y Perfeccionamiento para la Educación Técnica -CIPET-, serán administrados directamente por el Centro de Formación Pedagógica y Tecnológica Educativa.

@@ -1,0 +1,1 @@
+Artículo 40.—Los estudiantes son el eje fundamental de la gestión institucional, por lo que se debe responder eficazmente a sus necesidades de formación académica, desarrollo integral y ubicación laboral.

@@ -1,0 +1,13 @@
+Artículo 6º—Funciones. Para dar cumplimiento a sus fines, la Universidad Técnica Nacional tendrá las siguientes funciones y atribuciones:
+a) Desarrollar programas académicos de docencia, investigación y extensión en todos los campos.
+b) Preparar profesionales e investigadores de nivel superior en el ámbito científico y tecnológico que demanda el país.
+c) Otorgar grados, títulos y títulos honoríficos.
+d) Reconocer y equiparar estudios, títulos y grados universitarios otorgados por las universidades extranjeras, cuando se refieran a carreras afines a las que ofrece.
+e) Reconocer estudios de instituciones y programas de educación superior, de conformidad con los requisitos vigentes en la Universidad, para efectos de continuar estudios en esta Institución.
+f) Propiciar el mejor aprovechamiento de los recursos educativos del país, mediante la suscripción de convenios de cooperación con instituciones y empresas públicas o privadas, nacionales o extranjeras, para el desarrollo de programas conjuntos de docencia, investigación o extensión.
+g) Modernizar y revisar, en forma sistemática, el contenido de los currículos y planes de estudio de las carreras que ofrece en todos los niveles y modalidades de enseñanza, para garantizar su pertinencia y adaptación a las necesidades del desarrollo nacional.
+h) Impulsar acciones formativas, integrales o específicas, dirigidas al desarrollo de habilidades y competencias empresariales.
+i) Fomentar la transferencia de resultados de investigaciones científicas y tecnológicas, nacionales o extranjeras, al sistema productivo, a la sociedad nacional o a la comunidad local, y promover el emprendimiento a partir de la investigación y el desarrollo de procesos de innovación y modernización técnica.
+j) Ofrecer la venta de bienes y servicios a la comunidad en el campo de actividades relacionadas con las carreras que brinda la Universidad, directamente o mediante sociedades que podrá formar con instituciones y organismos públicos de desarrollo, tanto nacionales como extranjeros, así como participar en otras sociedades comerciales en las cuales debe tener participación mayoritaria en el capital social.
+k) Consultar en forma permanente a los sectores productivos la pertinencia de las carreras y programas que se ofrecen.
+l) La Universidad Técnica Nacional podrá coordinar y articular sus programas de docencia, investigación y extensión con otras Instituciones de educación superior, públicas, privadas, nacionales y extranjeras y también con los programas de educación técnica del Ministerio de Educación Pública y con el Instituto Nacional de Aprendizaje, de conformidad con el Reglamento correspondiente y los convenios que se suscriban.

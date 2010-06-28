@@ -1,0 +1,1 @@
+Transitorio VIII.—Mientras no se constituyan escuelas u otros órganos de coordinación e integración, el Vicerrector de Docencia dispondrá lo necesario para garantizar una acción académica coordinada de las carreras iguales o afines que se imparten en las diversas Sedes, y en sus diferentes niveles.

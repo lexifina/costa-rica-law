@@ -1,0 +1,16 @@
+# Reglamento (2010-04-30)
+
+Estatuto Orgánico de la Universidad Técnica Nacional
+
+- Tipo: Reglamento
+- Número: 5
+- Fecha: 2010-04-30
+- Ente emisor: Universidad Técnica Nacional
+- Publicación: La Gaceta N° 124 del 2010-06-28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68218&param2=81231&param3=1 (ficha 68218)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2010-06-28 | la propia norma |

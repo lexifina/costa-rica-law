@@ -1,0 +1,1 @@
+Artículo 17.—Los nombramientos de los Miembros del Consejo Universitario, durarán cuatro años, excepto los representantes estudiantiles quienes desempeñarán su función durante el periodo de un año y siempre que conserven la condición de estudiante regular.
