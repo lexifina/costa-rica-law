@@ -58,3 +58,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 43 | 2010-06-01 | Decreto Ejecutivo 36065 (2010-06-01) |
 | 44 | 2010-06-01 | Decreto Ejecutivo 36066 (2010-06-01) |
 | 45 | 2010-06-01 | Decreto Ejecutivo 36067 (2010-06-01) |
+| 46 | 2010-06-28 | Decreto Ejecutivo 36089 (2010-06-28) |
