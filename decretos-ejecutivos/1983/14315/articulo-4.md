@@ -1,3 +1,0 @@
-Artículo 4°—El monto del zonaje se fijará con base en las disposiciones del artículo 8°.
-Cuando se trate de servicios de asistencia especial a las oficinas judiciales donde se reconoce zonaje, podrá concederse una suma adicional a esa compensación, por el mismo concepto, hasta por la mitad del salario base, si así lo justifican las circunstancias previo estudio del Consejo Administrativo y con la aprobación de la Corte. Este beneficio adicional no podrá cubrirse cuando al mismo tiempo se reconocen viáticos y el monto a reconocerse no podrá ser superior a aquellos en ningún caso.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 20124 del 10 de diciembre de 1990)
