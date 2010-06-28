@@ -10,8 +10,10 @@ Por tanto, se acuerda:
 REGLAMENTO GENERAL PARA LA ADMINISTRACIÓN DE RIESGOS
 CAPÍTULO I
 De la gestión de riesgos en el banco hipotecario de la vivienda
-Artículo 1º—Estructura organizacional: Para la gestión de riesgos del Banco se establecerá una estructura organizacional, para cuyos integrantes se delimitarán claramente las obligaciones, funciones y responsabilidades. Esta estructura estará conformada por:
+Artículo 1º—Estructura organizacional. Para la gestión de riesgos del Banco se establecerá una estructura organizacional, para cuyos integrantes se delimitarán claramente las obligaciones, funciones y responsabilidades. Esta estructura estará conformada por:
 a) Junta Directiva
-b) Gerencia General
+b) Administración Superior
 c) Comité de Riesgos
 d) Unidad de Riesgos
+e) Dependencias operativas
+(Así reformado mediante acuerdo 7 de la sesión N° 38 del 28 de junio de 2010)

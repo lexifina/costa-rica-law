@@ -14,3 +14,4 @@ Reglamento General para la Administración de Riesgos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-23 | la propia norma |
+| 2 | 2010-06-28 | Reglamento 38 (2010-06-28) |
