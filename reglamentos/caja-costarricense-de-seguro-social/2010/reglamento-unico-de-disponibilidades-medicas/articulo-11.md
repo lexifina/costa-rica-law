@@ -1,0 +1,6 @@
+CAPÍTULO 4
+De los procedimientos del sistema de disponibilidad
+Artículo 11.—De la localización del especialista en el sistema de disponibilidad.
+11.1 Localización del especialista en disponibilidad. Por solicitud del médico tratante del área médica correspondiente, el encargado de la central telefónica o el funcionario designado al efecto, realizará el o los llamados al especialista, al número telefónico o medio de localización registrado para tal fin.
+11.2 Para el caso de no localización del especialista disponible. En caso de que el médico disponible no responda al llamado, el funcionario asignado deberá consignarlo así en el sistema o en su defecto el formulario correspondiente (ver anexo Nº 1 “formulario de atención”), realizando un máximo de tres llamadas en un período de quince minutos con espacios de cinco minutos entre cada una de ellas al número telefónico o medio de localización registrado.
+De no obtenerse respuesta, el encargado designado lo comunicará de inmediato al médico que solicitó la localización del médico en disponibilidad, dejando constancia de ello en el sistema, en un registro especialmente creado para tal fin. A criterio del médico tratante y una vez agotadas todas las instancias locales y cuando la emergencia no admita dilación, se procederá al traslado del paciente, previa coordinación con el establecimiento correspondiente.

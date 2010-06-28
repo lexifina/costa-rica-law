@@ -1,0 +1,1 @@
+Artículo 10.—De la creación de disponibilidad. Se prohíbe al médico director la creación y/o autorización de disponibilidades en todos aquellos casos que la especialidad esté siendo cubierta por profesionales en jornada ordinaria, guardia u otra forma de prestación de servicio.

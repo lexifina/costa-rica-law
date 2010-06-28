@@ -1,0 +1,2 @@
+Transitorio 2º—Estudio de la pertinencia de especialidades en disponibilidad. A partir de la entrada en vigencia de este Reglamento, los directores médicos en un plazo de tres meses deberán realizar un análisis de las especialidades en disponibilidad, con el objeto de plantear ante la Gerencia Médica las especialidades que, con base en el estudio realizado, ameriten su exclusión u otra medida de estrategia para su cobertura.
+En el Anexo N° 3 se muestran las disponibilidades médicas vigentes al momento de la aprobación del presente Reglamento.

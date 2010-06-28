@@ -1,0 +1,4 @@
+Artículo 8º—Del período y horario de disponibilidad. El inicio y la finalización de la disponibilidad, se regulará de la siguiente forma:
+• De lunes a jueves, la disponibilidad iniciará una vez finalizada la jornada ordinaria y será de quince horas, iniciando a las cuatro de la tarde del día programado. El día viernes, será de dieciséis horas iniciando a las tres de la tarde y finalizando en ambos casos, a las siete de la mañana del día siguiente.
+• Los días sábados, domingos y feriados, el período de disponibilidad será de veinticuatro horas, iniciando a las siete de la mañana del día programado y finalizando a las siete de la mañana del día siguiente.
+• En los casos de jornadas ordinarias que finalizan después de las horas establecidas en los puntos anteriores, la disponibilidad dará inicio en el momento en que finalice ésta.
