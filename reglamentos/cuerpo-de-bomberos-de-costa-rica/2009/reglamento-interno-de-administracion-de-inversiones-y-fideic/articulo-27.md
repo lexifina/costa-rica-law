@@ -1,0 +1,6 @@
+CAPÍTULO VI
+Valoración y tratamiento de excesos
+Artículo 27.—De los excesos de inversión. La Dirección Administrativa verificará de manera diaria, que no se sobrepasen los parámetros de inversión establecidos en el presente Reglamento.
+Cuando se compruebe la presencia de incumplimientos o excesos a los límites de inversión, los responsables serán requeridos por la Dirección Administrativa, para que brinden por escrito, el informe donde se detallen las razones por las cuales se incumplieron las normas establecidas en este Reglamento, así como las medidas correctivas implementadas o por implementar para ajustar la cartera a los límites reglamentados, luego de lo cual se establecerá el procedimiento administrativo correspondiente, para valorar la eventual imposición de sanciones. Corresponderá a la Dirección Administrativa comunicar al Consejo Directivo el resultado de dicha investigación.
+En todas las inversiones nacionales se debe tomar la calificación de riesgo más baja emitida por las Calificadoras de Riesgo.
+Cuando se realicen operaciones de reporto, recompras, operaciones a plazo o cualquiera otra que contemple como subyacente un título valor, éstos deben incluirse o tomarse en cuenta al momento de verificar los límites establecidos.

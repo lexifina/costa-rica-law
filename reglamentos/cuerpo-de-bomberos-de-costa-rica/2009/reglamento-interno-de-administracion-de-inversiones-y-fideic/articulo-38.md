@@ -1,0 +1,2 @@
+Artículo 38.—De los réditos, frutos u otros beneficios. Todos los réditos, intereses o beneficios económicos producto de la liquidez del Fideicomiso, se incorporarán al Fondo del Cuerpo de Bomberos para su respectiva disposición conforme a los términos del presente Reglamento.
+En el caso de obtenerse algún beneficio que no sea líquido, el Director General de Bomberos lo informará en su oportunidad al Consejo Directivo par que sea éste el que disponga del mismo.

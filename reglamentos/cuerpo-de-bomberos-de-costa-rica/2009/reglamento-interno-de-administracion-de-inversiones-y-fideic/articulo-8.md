@@ -1,0 +1,6 @@
+Artículo 8º—De los requisitos genéricos de los valores. Las emisiones del mercado de valores costarricense en que se inviertan los recursos del Cuerpo de Bomberos, deberán cumplir con los siguientes requisitos:
+1) Los emisores deben estar inscritos en el Registro Nacional de Valores e Intermediarios, igualmente, supervisados por la Superintendencia General de Entidades Financieras.
+2) Los valores de deuda emitidos en serie, deberán tener una calificación de riesgo asignada por una entidad calificadora autorizada por la Superintendencia General de Valores. En ambos casos, la calificación deberá ser al menos de “AA” o su equivalente.
+3) Los valores pueden ser denominados en moneda nacional, en dólares o en otra unidad de cuenta, siempre y cuando, se cuente con el personal idóneo y los medios adecuados para evaluar, medir y gestionar los riesgos inherentes a este tipo de inversiones en monedas distintas a la nacional.
+4) Las operaciones que se realicen deberán ser al contado, a excepción de las recompras o los reportos.
+Se exceptúan de dichos requisitos, las emisiones de valores del Estado e instituciones públicas, sean o no bancarias, así como cualquier otra que expresamente se establezca en este Reglamento.
