@@ -1,0 +1,2 @@
+Artículo 14.—Vigilancia del cumplimiento. Los superiores inmediatos de los servidores sujetos a la disponibilidad deben velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento. Ante cualquier inobservancia deberán realizar la notificación respectiva a la Dirección de Recursos Humanos.
+El incumplimiento injustificado, ya sea en todo o en parte de las obligaciones aquí estipuladas, se considerará para todos los efectos legales, como un incumplimiento a sus obligaciones laborales ordinarias o generales.

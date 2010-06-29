@@ -1,0 +1,2 @@
+Artículo 9º—Facilidades para la prestación del servicio. El Banco cancelará los gastos en que incurra el servidor con motivo de su traslado desde donde se encuentre hacia la Institución y viceversa, de conformidad con lo dispuesto en la normativa vigente en materia de trasporte para funcionarios públicos, emitida por la Contraloría General de la República.
+El Banco brindará a los funcionarios sometidos a este régimen los equipos que considere necesarios para su localización, reporte de anomalías y el buen desempeño de su labor.
