@@ -1,1 +1,1 @@
-Artículo 7°—Los acuerdos se tomarán por mayoría simple, excepto en aquellos casos en que este Reglamento u otras leyes o reglamentos señalen una mayoría especial. En todos los casos de empate, el Presidente tendrá voto de calidad.
+Artículo 7°—(Anulado mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010)

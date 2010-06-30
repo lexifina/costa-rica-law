@@ -18,3 +18,4 @@ Reglamento Orgánico de la Junta de Protección Social
 | 3 | 2008-09-02 | Decreto Ejecutivo 34731 (2008-09-02) |
 | 4 | 2009-02-17 | Ley 8718 |
 | 5 | 2010-04-20 | Decreto Ejecutivo 35947 (2010-04-20) |
+| 6 | 2010-06-30 | SINALEVI (sin norma nombrada) |

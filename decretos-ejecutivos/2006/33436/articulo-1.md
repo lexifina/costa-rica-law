@@ -1,4 +1,6 @@
+(Anulada)
 Nº 33436
+(Mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010, se anuló este decreto ejecutivo. De acuerdo con la resolución indicada la nulidad del reglamento impugnado tendrá efectos únicamente hacia el futuro a partir de la firmeza de la resolución antes mencionada)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE LA PRESIDENCIA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
@@ -7,11 +9,10 @@ Considerando:
 1°—Que la (*) Junta de Protección Social es un ente descentralizado con personería jurídica propia.
 2°—Que el Reglamento Orgánico de la (*) Junta de Protección Social, es el instrumento legal vigente que dicta las pautas a seguir para el gobierno de las diferentes dependencias de la institución.
 3°—Que la (*) Junta de Protección Social, es considerada por el Gobierno de la República como una de las instituciones pilares para el desarrollo de programas de reactivación social y para ello, considera necesario efectuar modificaciones e inclusiones a la reglamentación vigente con el fin de ajustaría a los propósitos que se pretenden dar. Por tanto,
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
 DECRETAN:
 Reglamento Orgánico de la (*) Junta de Protección
 Social
 CAPÍTULO I
 De la Junta Directiva
-Artículo 1°—La (*) Junta de Protección Social, que para los efectos de este Reglamento se denominará “La Junta”, es la Institución de Bien Social más antigua de Costa Rica, que lucha por contribuir con el fortalecimiento del sistema de seguridad social y el mejoramiento de la calidad de vida de la población beneficiaría producto de las actividades que administra. Es un ente descentralizado con autonomía técnica, administrativa, funcional y organizacional, del Área Social del sector público, con personería jurídica propia, que tiene a su cargo la administración de todas las Loterías que existen en el territorio nacional. cualesquiera que sean las modalidades. Le corresponde, asimismo, la Administración de los Cementerios General y Metropolitano de Pavas y de cualquier otro u otros que decida establecer, así como todas aquellas funciones que las leyes y los reglamentos le atribuyan.
-La Junta, de acuerdo con sus posibilidades y los lineamientos del área social, contribuirá con sus rentas propias, para coadyuvar en los programas gubernamentales de desarrollo social y asistencial y cooperar con organismos que presten servicios de interés público. Todo lo anterior conforme a las leyes y normas que rijan la materia.
-(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
+Artículo 1°—(Anulado mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010)

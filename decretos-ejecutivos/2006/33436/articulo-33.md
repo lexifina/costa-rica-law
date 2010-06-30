@@ -1,1 +1,1 @@
-Artículo 33.—El Departamento de Imprenta y Litografía es el responsable de elaborar y ejecutar el programa anual de producción de loterías de imprenta y litografía.
+Artículo 33.—(Anulado mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010)

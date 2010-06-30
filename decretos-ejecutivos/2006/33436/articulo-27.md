@@ -1,1 +1,1 @@
-Artículo 27.—La Sección de Servicios Generales estará integrado por las unidades de Seguros, Archivo Central, Correspondencia, Mantenimiento, Transporte, Aseo y Limpieza, y debe suministrar un servicio eficiente en las áreas que lo requiera la Institución.
+Artículo 27.—(Anulado mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010)

@@ -1,1 +1,1 @@
-Artículo 32.—El Departamento de Inspectores tiene la función de fiscalizar el cumplimiento de las Leyes y Reglamentos vigentes, en materia de Loterías.
+Artículo 32.—(Anulado mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010)

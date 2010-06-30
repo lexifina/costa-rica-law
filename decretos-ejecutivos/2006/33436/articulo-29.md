@@ -1,1 +1,1 @@
-Artículo 29.—La Unidad de Seguros es responsable de proporcionar y mantener al día, una cobertura de seguros que cubra en forma adecuada los recursos humanos, así como los de carácter material y económico de la Institución.
+Artículo 29.—(Anulado mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010)

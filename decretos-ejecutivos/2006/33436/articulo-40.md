@@ -1,2 +1,1 @@
-Artículo 40.—Se deroga el Decreto Ejecutivo Nº 28025-MTSS-MP del 23 de julio de 1999 y sus reformas “Reglamento Orgánico de la (*) Junta de Protección social.
-(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).
+Artículo 40.—(Anulado mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010)
