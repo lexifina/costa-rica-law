@@ -1,6 +1,5 @@
-(Derogado)
 No 28025-MTSS-MP
-(Este decreto fue derogado por el artículo 40 del “Reglamento Orgánico de la Junta de Protección Social”, aprobado mediante decreto ejecutivo N° 33436 del 26 de julio de 2006)
+(Nota de Sinalevi: Este decreto ejecutivo anteriormente había sido derogado por el artículo 40 del Reglamento Orgánico de la Junta de Protección Social, aprobado mediante decreto ejecutivo N° 33436 del 26 de julio de 2006. Posteriormente mediante resolución del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta, N° 2461-2010 del 30 de junio de 2010), se anuló la norma antes referida.)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE LA PRESIDENCIA Y DE TRABAJO
 Y SEGURIDAD SOCIAL

@@ -19,3 +19,4 @@ Reglamento Orgánico de la Junta de Protección Social
 | 4 | 2004-10-22 | Decreto Ejecutivo 32142 (2004-10-22) |
 | 5 | 2005-07-15 | Decreto Ejecutivo 32641 (2005-07-15) |
 | 6 | 2006-07-26 | Decreto Ejecutivo 33436 (2006-07-26) |
+| 7 | 2010-06-30 | SINALEVI (sin norma nombrada) |
