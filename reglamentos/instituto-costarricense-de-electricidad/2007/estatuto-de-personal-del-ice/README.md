@@ -14,3 +14,4 @@ Estatuto de Personal del ICE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-03 | la propia norma |
+| 2 | 2010-06-30 | Reglamento 5915 (2010-06-30) |
