@@ -14,3 +14,4 @@ Aprueba las tarifas de los servicios en Plantas para la venta de servicios de al
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-19 | la propia norma |
+| 2 | 2010-06-30 | Acuerdo 37933 (2010-06-30) |
