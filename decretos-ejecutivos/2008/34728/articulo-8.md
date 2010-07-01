@@ -4,7 +4,8 @@ Artículo 8º—Condiciones previas: Todas las personas interesadas, independien
 1. Resolución Municipal de Ubicación emitida por autoridad competente del gobierno local.
 2. Visado de planos del proyecto, cuando medie alguna construcción nueva, modificación o ampliación.
 3. Viabilidad (Licencia) ambiental, a excepción de los establecimientos o actividades que no están contemplados en la lista taxativa definida en los Anexos 1 y 2 del Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA), oficializado mediante el Decreto Nº 31849-MINAE-S-MOPT-MAG-MEIC, del 24 de mayo del 2004 y sus reformas.
-4.Certificación de descarga del EAAS correspondiente cuando el establecimiento o actividad vierta aguas residuales directamente a la red del alcantarillado sanitario, a excepción de las actividades exoneradas según el Reglamento de Vertido y Reuso de Aguas Residuales.
+4.Constancia de que cuenta con la disponibilidad de Alcantarillado Sanitario del EAAS correspondiente, cuando el establecimiento o actividad vierta aguas residuales directamente a la red del alcantarillado sanitario, a excepción de las actividades exoneradas según el Reglamento de Vertido y Reuso de Aguas Residuales.
+(Así reformado el inciso anterior por el artículo 6 del decreto ejecutivo N° 36304 del 1° de julio de 2010)
 5. Permiso de vertido otorgado por el MINAE, si corresponde, según Decreto Ejecutivo Nº 34431-MINAE-S de 4 de marzo del 2008 “Reglamento del Canon Ambiental por Vertidos”.
 6. Permiso de ubicación y funcionamiento para calderas otorgado por el Ministerio de Trabajo y Seguridad Social, cuando la actividad o establecimiento utilice calderas.
 7. Los que cuenten con equipos emisores de radiaciones ionizantes o que utilicen material natural o artificialmente radiactivo deben contar para su funcionamiento con una autorización previa otorgada por el Ministerio, para el funcionamiento del equipo y uso del material radioactivo.
