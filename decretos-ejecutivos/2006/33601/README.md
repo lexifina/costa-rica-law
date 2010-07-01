@@ -14,3 +14,4 @@ Reglamento de Vertido y Reuso de Aguas Residuales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-19 | la propia norma |
+| 2 | 2010-07-01 | Decreto Ejecutivo 36304 (2010-07-01) |

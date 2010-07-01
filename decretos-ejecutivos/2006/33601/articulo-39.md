@@ -1,2 +1,2 @@
-Artículo 39.—Muestreo por el laboratorio habilitado. Es responsabilidad del laboratorio habilitado establecer el método de muestreo con base en los métodos de referencia citados en el artículo 38 a fin de garantizar la representatividad de la muestra.
-El muestreo compuesto elegido debe estar dentro de la jornada diaria tendiendo a lograr la representatividad de los valores de los parámetros de calidad. Dicho muestreo compuesto deberá efectuarse en un período no menor de dos horas con muestras tomadas cada treinta minutos por lo que se deberán tomar al menos cinco sub-muestras.
+Artículo 39.—Muestreo por el laboratorio. Es responsabilidad del laboratorio que cuente con el Permiso Sanitario de Funcionamiento vigente establecer el método de muestreo con base en los métodos de referencia citados en el artículo 38 a fin de garantizar la representatividad de la muestra.
+(Así reformado por el artículo 3 del decreto ejecutivo N° 36304 del 1° de julio de 2010)

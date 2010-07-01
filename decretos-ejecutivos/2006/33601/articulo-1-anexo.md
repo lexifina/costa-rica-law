@@ -892,3 +892,15 @@ Organizaciones y órganos extraterritoriales
 99000 Organizaciones y órganos extraterritoriales
 Nota:
 n.c.eo.p.: no clasificados en otra parte.
+Elaboración de productos de panadería
+15410 Elaboración de productos de panadería (únicamente horneado)1
+(1) Los establecimientos que se encuentren en estas actividades deberán verter caudales mensuales menores a 30 metros cúbicos y contar con unidades separadoras de grasas y aceites en número y capacidad necesarios para el caudal de aguas residuales generadas. Los funcionarios del Ministerio de Salud encargados del visado sanitario de planos de construcción y permisos de funcionamiento por primera vez o de su renovación, velarán por el cumplimiento de esta disposición.
+(Así adicionada la actividad anterior por el artículo 1° del decreto ejecutivo N° 36304 del 1° de julio de 2010)
+Restaurantes, sodas, bares y cantinas
+55201-55202 Restaurantes, sodas, bares y cantinas1
+(1) Los establecimientos que se encuentren en estas actividades deberán verter caudales mensuales menores a 30 metros cúbicos y contar con unidades separadoras de grasas y aceites en número y capacidad necesarios para el caudal de aguas residuales generadas. Los funcionarios del Ministerio de Salud encargados del visado sanitario de planos de construcción y permisos de funcionamiento por primera vez o de su renovación, velarán por el cumplimiento de esta disposición.
+(Así adicionada la actividad anterior por el artículo 1° del decreto ejecutivo N° 36304 del 1° de julio de 2010)
+Elaboración y venta de comidas en casas
+55300 Elaboración y ventas de comidas en casas1
+(1) Los establecimientos que se encuentren en estas actividades deberán verter caudales mensuales menores a 30 metros cúbicos y contar con unidades separadoras de grasas y aceites en número y capacidad necesarios para el caudal de aguas residuales generadas. Los funcionarios del Ministerio de Salud encargados del visado sanitario de planos de construcción y permisos de funcionamiento por primera vez o de su renovación, velarán por el cumplimiento de esta disposición.
+(Así adicionada la actividad anterior por el artículo 1° del decreto ejecutivo N° 36304 del 1° de julio de 2010)
