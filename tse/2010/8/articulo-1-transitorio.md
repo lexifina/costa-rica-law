@@ -1,0 +1,1 @@
+Transitorio 1.—En los casos de gestiones de cédula de identidad presentadas con anterioridad a la vigencia de este reglamento, en donde las fotografías no cumplen con los parámetros y dimensiones establecidas, no se aplicará esta normativa en perjuicio de los solicitantes.

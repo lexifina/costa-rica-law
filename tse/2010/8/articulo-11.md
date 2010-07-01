@@ -1,0 +1,2 @@
+Artículo 11.—Estandarización del fondo para la toma de la fotografía. Tanto en la Sede Central como en las Sedes Regionales donde se capturan las imágenes, el fondo de los cubículos de toma de fotografía deberá ser del mismo tono y color que, para tal efecto, disponga el Tribunal Supremo de Elecciones.
+A fin de generalizar, mantener y mejorar la calidad de las imágenes en el documento de identidad, los Ceduladores Ambulantes y los Funcionarios Consulares deberán contar con fondos del mismo tono y color que los de los cubículos de la Sede Central.

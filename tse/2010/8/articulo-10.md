@@ -1,0 +1,3 @@
+CAPÍTULO III
+Estandarización de las herramientas empleadas
+Artículo 10.—Enfoques de las cámaras fotográficas. Los funcionarios responsables de la recepción de las imágenes fotográficas de las solicitudes de cédula, deberán mantener calibrados los enfoques de las cámaras fotográficas. Para tal fin, las esquinas inferiores del recuadro deben estar ajustadas al nivel de los hombros del solicitante, sin exceder los cinco centímetros por debajo de la horquilla esternal y la parte superior dos centímetros por encima de la cabeza; permitiendo ver el color del fondo, centrando en el cuadro en que se forma el rostro de la persona.

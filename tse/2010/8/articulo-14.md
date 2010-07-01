@@ -1,0 +1,1 @@
+Artículo 14.—Requisitos de las fotografías. El ciudadano deberá aportar dos fotografías a color recientes, con la imagen de frente de la persona, tamaño pasaporte de 4.5 centímetros de alto por 4 centímetros de ancho aproximadamente, con el tono y color de fondo que se establezca para la toma de la fotografía.

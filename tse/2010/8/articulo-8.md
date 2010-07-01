@@ -1,0 +1,1 @@
+Artículo 8º—Consignación de comentarios o excepciones en la gestión de cédula. Cuando los datos aportados durante la solicitud de cédula de identidad generen duda al funcionario encargado de su recepción, éste dejará constancia de ello en el espacio denominado excepciones y comentarios en la solicitud digital y observaciones en su correspondiente solicitud física.
