@@ -1,0 +1,1 @@
+Artículo 8º—De la custodia de los expedientes. Una vez realizada la desafectación de la base de datos, los expedientes serán remitidos al archivo central (Bienes Inmuebles) con el propósito de custodiarlos como el resto de la documentación institucional.
