@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Plazo para resolver
+Artículo 7º—Del plazo para resolver. Las inconformidades o denuncias interpuestas por los clientes, deberán ser tramitadas con la mayor diligencia. La Contraloría de Servicios estará obligada a contestar en un plazo de cinco (5) días naturales y en caso de que la resolución de la inconformidad planteada exceda éste plazo, se le dará una respuesta preliminar al cliente, disponiendo de hasta quince días hábiles más para su resolución y excepcionalmente, podrá prorrogarse por quince días hábiles más si se requiere de mayor tiempo para la investigación, dejando en ambos casos, constancia de las razones en el expediente, amparado en el Decreto Nº 34587-PLAN.
