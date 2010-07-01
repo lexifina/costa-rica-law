@@ -1,0 +1,10 @@
+CAPÍTULO III
+De los documentos que deben aportar las organizaciones
+beneficiarias (asadas) para tramitar una exoneración
+Artículo 6º—Documentación a presentar ante el Ministerio de Hacienda para acogerse al beneficio de exoneración. Las ASADAS interesadas en acogerse al beneficio de exoneración deberán presentar ante el Departamento de Gestión de Exenciones de la Dirección General de Hacienda del Ministerio de Hacienda, la solicitud de exoneración de tributos de importación ó de compra local en los formularios que para tal efecto fueron diseñados por la Dirección General de Hacienda, los cuales deberán presentarse debidamente sellados y firmados al dorso por el funcionario de la Subgerencia de Sistemas Delegados del AyA que recomendó la respectiva exoneración.
+Las ASADAS deberán estar al día con las obligaciones patronales, para los efectos del artículo 74, de la Ley Constitutiva de la Caja Costarricense de Seguro Social, Nº 17 de 23 de octubre de 1943, reformado por el artículo 85 de la Ley de Protección al Trabajador, Ley Nº 7983 de fecha 16 de febrero del 2000 y el Decreto Ejecutivo Nº 28770-MP-MTSS, de 06 de julio de 2000. El Departamento de Gestión de Exenciones realizará la verificación de este requisito en el sistema SICERE (requisito a revisar en cada solicitud).
+Adicionalmente se deberá aportar copia de los siguientes documentos:
+a. Certificación notarial o registral de personería jurídica de la ASADA (requisito a solicitar cada vez que expire su vigencia o sufra alguna modificación).
+b. Documento expedido por el representante legal de la beneficiaria de la exención consignando: nombre, número de cédula de identidad y firma de la persona con poder suficiente para solicitar a nombre de ella la autorización de exoneraciones tributarias (requisito a solicitar cada vez que expire su vigencia o sufra alguna modificación).
+c. Copia del documento de identidad del representante legal de la ASADA (requisito a solicitar cada vez que expire su vigencia o sufra alguna modificación).
+d. Convenio de delegación suscrito con AyA (requisito a solicitar cada vez que expire su vigencia o sufra alguna modificación).
