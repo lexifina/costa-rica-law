@@ -14,3 +14,4 @@ Cambio en el formato de respuesta de los archivos.POR para la creación de DUAs 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-01 | la propia norma |
+| 2 | 2010-07-01 | Resolución 223 (2010-07-01) |

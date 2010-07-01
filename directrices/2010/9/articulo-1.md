@@ -1,5 +1,6 @@
 DIRECCIÓN GENERAL DE ADUANAS
-Directriz DIR-DGT-007-2010
+Directriz DIR-DGT-(*)009-2010
+(*)(Asi reformado por resolución RES-DGA-223 del 1° de julio de 2010)
 Señores
 Auxiliares de la Función Pública
 Desarrolladores de Software
