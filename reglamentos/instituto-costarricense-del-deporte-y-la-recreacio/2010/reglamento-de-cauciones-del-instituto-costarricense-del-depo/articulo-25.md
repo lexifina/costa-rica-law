@@ -1,0 +1,1 @@
+Artículo 25.—Vigencia.: Este Reglamento y sus reformas debidamente aprobado por el Consejo Nacional del Deporte y la Recreación, deroga y sustituye toda disposición reglamentaria que se le oponga y entrará en vigencia a partir de su publicación en diario oficial La Gaceta.

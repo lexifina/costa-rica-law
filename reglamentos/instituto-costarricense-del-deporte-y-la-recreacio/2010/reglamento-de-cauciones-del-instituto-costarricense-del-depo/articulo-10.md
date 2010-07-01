@@ -1,0 +1,2 @@
+Artículo 10.—Obligación de mantener garantía por cambio de nombre de puesto.
+Los caucionantes que ocupen los puestos citados en el artículo 8 y 9 y a otros a juicio de la administración, mantendrán su obligación de presentar garantía cuando el nombre o título de la clase de puesto que ocupan sea variado, siempre que se mantenga la naturaleza de las funciones que realizan de acuerdo con la definición de caucionante contemplada en este reglamento.

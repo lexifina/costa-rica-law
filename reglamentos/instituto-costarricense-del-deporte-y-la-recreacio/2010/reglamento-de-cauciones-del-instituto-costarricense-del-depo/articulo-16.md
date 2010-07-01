@@ -1,0 +1,1 @@
+Artículo 16.—Custodia de las garantías. El Departamento de Recursos Humanos deberá designar una dependencia para que se encargue de la custodia de valores que se presenten como garantía; dicho proceso deberá rendir condiciones adecuadas de seguridad, mientras se nombra custodio la responsabilidad recaerá sobre la jefatura del departamento.

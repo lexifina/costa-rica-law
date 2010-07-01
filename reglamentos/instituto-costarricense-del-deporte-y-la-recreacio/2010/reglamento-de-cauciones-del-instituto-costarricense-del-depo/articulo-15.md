@@ -1,0 +1,4 @@
+Artículo 15.—Deber de informar sobre movimientos de los caucionantes.
+Corresponde al Departamento de Recursos Humanos informar por escrito a la Dirección Nacional, respecto del nombramiento, cese o traslado del personal en puestos que por la índole de sus funciones se encuentran obligados a presentar caución.
+Velará el Departamento de Recursos Humanos, porque de previo al ejercicio de su funciones la persona cumpla con obligación de rendir la caución y dejará en el expediente personal constancia expresa que el funcionario se encuentran afecto a otorgar caución a favor del ICODER.
+Todas las dependencias que cuenten con personal obligado a rendir caución, tendrán un plazo de cinco días hábiles posteriores para informar al Departamento de Recursos Humanos cualquier cambio que se produzca a lo interno en relación con estos.

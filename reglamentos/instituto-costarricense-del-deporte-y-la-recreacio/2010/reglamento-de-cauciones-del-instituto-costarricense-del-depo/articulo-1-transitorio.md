@@ -1,0 +1,1 @@
+Transitorio I.—Los funcionarios con el deber de caucionar de acuerdo con este Reglamento y sus modificaciones, tendrán ocho días para formalizar su garantía, contados a partir de su publicación en el Diario Oficial La Gaceta.
