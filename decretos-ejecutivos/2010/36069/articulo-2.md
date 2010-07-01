@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 35872-H de fecha 3 de marzo del 2010, publicado en el Diario Oficial La Gaceta Nº 62 de fecha 30 de marzo del 2010, a partir de la vigencia del presente decreto.
