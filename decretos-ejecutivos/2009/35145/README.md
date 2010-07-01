@@ -14,3 +14,4 @@ Reformas y Derogatorias al Decreto Ejecutivo N° 34728-S de 28 de mayo de 2008 "
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-20 | la propia norma |
+| 2 | 2010-07-01 | Decreto Ejecutivo 36304 (2010-07-01) |
