@@ -1,0 +1,1 @@
+Artículo 27.—Conservación del Informe de Valoración de Documentos y del Acta de Eliminación de Documentos. Los informes de valoración, así como las actas de eliminación de documentos, deberán conservarse de manera permanente en el Archivo Central, en los Archivos de Gestión y en las unidades ejecutoras.

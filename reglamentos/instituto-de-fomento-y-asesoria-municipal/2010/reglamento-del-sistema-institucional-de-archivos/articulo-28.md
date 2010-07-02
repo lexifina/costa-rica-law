@@ -1,0 +1,1 @@
+Artículo 28.—Transformación de Documentos en Material No Legible. En el proceso de eliminación de documentos, los encargados deberán verificar que los documentos se transformen en material no legible mediante las técnicas establecidas en la Ley Nº 7202 y su reglamento (trituradora de papel, incineración, u otro).

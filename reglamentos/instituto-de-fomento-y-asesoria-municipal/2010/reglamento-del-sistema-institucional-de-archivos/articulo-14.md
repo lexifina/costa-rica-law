@@ -1,0 +1,1 @@
+Artículo 14.—Acceso al Depósito del Archivo Central. El acceso al depósito del Archivo Central es restringido, excepto para el personal que allí labora, los que autorice la jefatura y para los que la ley en razón de sus funciones les faculte expresamente su ingreso.

@@ -1,0 +1,1 @@
+Artículo 15.—Consulta de Documentos Custodiados y Conservados en el Archivo Central. La documentación custodiada en el depósito del Archivo Central podrá ser consultada por funcionarios de la institución, estudiantes y particulares, salvo que se trate de documentación confidencial. Para este último caso se tendrá que demostrar interés legítimo o derecho subjetivo.

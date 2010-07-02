@@ -1,0 +1,6 @@
+Artículo 4º—Competencia del Sistema Institucional de Archivo. A cada uno de los integrantes del Sistema Institucional de Archivos, le corresponde:
+a) Reunir, clasificar, ordenar, seleccionar, describir, administrar, conservar y facilitar, dentro de su área de competencia, los documentos producidos y recibidos en cualquier soporte, de conformidad con lo establecido en la Ley 7202, su reglamento y demás leyes conexas y las políticas, los lineamientos, las normas, los procedimientos y las disposiciones vigentes en materia archivística derivadas de las diferentes leyes, en la materia, así como las emanadas por la Dirección General del Archivo Nacional y el Archivo Central del Instituto de Fomento y Asesoría Municipal.
+b) Elaborar los instrumentos descriptivos necesarios para el debido control de la documentación.
+c) Proteger la documentación de factores químicos, biológicos, físicos, materiales y ambientales, que puedan afectar su conservación.
+d) Permitir la consulta de la documentación que custodia, salvo que se trate de documentación confidencial, en cuyo caso se tendrá que demostrar interés legítimo o derecho subjetivo.
+e) Otras atribuciones de conformidad con lo establecido en este reglamento, en los manuales de procedimientos y la legislación sobre la materia.

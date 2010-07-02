@@ -1,0 +1,1 @@
+Artículo 10.—Información Automatizada y Digitalizada. La documentación declarada con valor permanente e histórico en el informe de valoración emitido por la Dirección General del Archivo Nacional, podrá automatizarse o digitalizarse solamente como respaldo de la información y no como medio sustitutivo del soporte en papel.

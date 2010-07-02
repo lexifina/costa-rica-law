@@ -1,0 +1,3 @@
+Artículo 7º—Objetivos de los Archivos de Gestión. Son objetivos de los archivos de gestión los siguientes:
+a) Administrar los documentos con base en la Ley Nº 7202 y su reglamento, leyes conexas y de acuerdo con las directrices emanadas por la Dirección General del Archivo Nacional y por el Archivo Central del Instituto de Fomento y Asesoría Municipal, de manera que sirvan para la toma de decisiones, transparencia administrativa, rendición de cuentas, control interno, apoyo legal, administrativo y para la memoria institucional.
+b) Organizar la documentación producida y recibida en función de las actividades de cada oficina.

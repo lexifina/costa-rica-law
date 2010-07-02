@@ -1,0 +1,1 @@
+Artículo 31.—Organización de los Documentos que se van a Transferir. Los documentos que se transfieran al Archivo Central de Gestión, deberán ir clasificados por tipos documentales, asuntos y ordenados en forma cronológica y consecutiva y los expedientes serán debidamente identificados de acuerdo con el asunto.

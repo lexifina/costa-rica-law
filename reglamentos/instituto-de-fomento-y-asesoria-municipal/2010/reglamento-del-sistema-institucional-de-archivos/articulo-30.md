@@ -1,0 +1,1 @@
+Artículo 30.—Transferencia de Documentos Considerados de Uso Restringido. El superior jerárquico de la unidad ejecutora deberá indicar en la lista de remisión, sí la documentación transferida es considerada de uso restringido.

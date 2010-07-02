@@ -1,0 +1,1 @@
+Artículo 26.—Organización de los Documentos por Eliminar. El Comité Institucional de Selección y Eliminación de Documentos establecerá los procedimientos para la selección y eliminación de documentos, dentro de los cuales se debe contemplar los requisitos que deben cumplirse para la elaboración de las actas que necesariamente se deben levantar para eliminar un documento.
