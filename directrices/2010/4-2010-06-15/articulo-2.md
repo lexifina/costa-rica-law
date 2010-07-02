@@ -1,0 +1,1 @@
+Artículo 2º—Con base en dicho estudio deberán proponer la derogatoria formal de aquella normativa que sustente los órganos interinstitucionales Ad Hoc que no estén en funciones, que no hayan cumplido con la misión encomendada o que no convenga mantener.
