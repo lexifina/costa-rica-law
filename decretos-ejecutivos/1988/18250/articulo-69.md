@@ -1,1 +1,0 @@
-Artículo 69.-Se considerará abandono del servicio dejar dentro de la jornada de trabajo, la labor objeto de la prestación o relación de servicio, Para efectos de calificar el abandono. no es necesario que el trabajador salga riel lugar donde presta sus servicios, bastará que, de manera injustificada, abandone la función que .se le encomendara.

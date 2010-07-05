@@ -1,2 +1,0 @@
-Descensos :
-Artículo 36.-Cuando un servidor que no estuviere incluido en el sistema de méritos del Servicio Civil resultare descendido por reclasificación, podrá continuar desempeñando el puesto hasta por un periodo de 6 meses, durante el cual tendrá preferencia para ser trasladado a otro de igual clase. Si el traslado no fuere posible dentro del lapso indicado y el servidor lo aceptare el descenso, tendrá derecho al pago de sus prestaciones legales.

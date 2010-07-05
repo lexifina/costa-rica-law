@@ -1,2 +1,0 @@
-Artículo 30.-Los datos, documentos u otras informaciones, tendrán carácter confidencial, por lo tanto, los funcionarios que en forma ilícita brinden información del proceso, con el fin de dar preferencia y protección a los concursantes acarrean la responsabilidad y serán sancionados de conformidad con este reglamento Interno de Trabajo.
-(Corregido mediante Fe de Erratas publicada en la Colección de Leyes y Decretos Año 1988, Semestre II, Tomo I, página 125).

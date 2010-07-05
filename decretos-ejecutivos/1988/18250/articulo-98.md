@@ -1,6 +1,0 @@
-Artículo 98.-Las ausencias por enfermedad y por tratamiento médico de los servidores del Ministerio, se regularán por las siguientes disposiciones:
-a) El servidor recibirá el ochenta por ciento de su salario, cuando las ausencias no excedan de tres días hábiles y se originen por enfermedad que lo incapacite por el período indicado. Dicha incapacidad deberá ser extendida por las instituciones aseguradoras. La incapacidad extendida por médico particular sólo servirá para justificar, en cuanto a efectos disciplinarios las ausencias del servidor hasta por cuatro días.
-El monto del subsidio será de un noventa por ciento si la incapacidad excede de tres días, pero es menor de treinta; y de un ciento por ciento de su salario durante el periodo de incapacidad que exceda de treinta días naturales. por un máximo señalado de seis meses;
-(Corregido mediante Fe de Erratas publicada en la Colección de Leyes y Decretos Año 1988, Semestre II, Tomo I, página 125).
-b) Cuando la incapacidad hasta por cuatro días fuera extendida por el Dispensario Médico del Ministerio, el salario del servidor no sufrirá ninguna deducción; y
-c) Las incapacidades por riesgos profesionales deberán comprobarse con certificados del Instituto Nacional de Seguros.

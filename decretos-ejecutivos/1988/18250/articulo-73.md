@@ -1,1 +1,0 @@
-Artículo 73.-En todos los casos, el servidor deberá notificar lo antes posible a su jefe inmediato, verbalmente o por. escrito, las causas que le piden asistir a su trabajo. Por ninguna razón, salvo de fuerza mayor, deberá esperar hasta el tercer día de la ausencia, para notificarlo.

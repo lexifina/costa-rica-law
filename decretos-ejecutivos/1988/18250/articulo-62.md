@@ -1,1 +1,0 @@
-Artículo 62.-Las marcas de las tarjetas de asistencia deberán hacerse personalmente, con el debido cuidado y de manera que queden impresas con claridad. Las marcas defectuosas, confusas o manchadas que no se deban a desperfectos en el reloj marcador. se tendrán por no realizadas.

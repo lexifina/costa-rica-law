@@ -1,1 +1,0 @@
-Artículo 56.-Para efecto de determinar la fecha en que se adquiere derecho a vacaciones, no interrumpirán la continuidad de la relación de servicio las licencias cún goce de salario, las interrupciones laborales legalmente aceptadas, las incapacidades debidamente justificadas, las prórrogas o renovación inmediata de la prestación de servicio u otra causa análoga.

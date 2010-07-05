@@ -1,1 +1,0 @@
-Artículo 106.-La Dirección General de Adiestramiento será responsable de ve~ar por el cumplimiento de las anteriores normas y no dará trámite a nuevas licencias para estudios, sin antes verificar 9ue el servidor se haya hecho acreedor a ésta de conformidad con las prescripciones anteriores.

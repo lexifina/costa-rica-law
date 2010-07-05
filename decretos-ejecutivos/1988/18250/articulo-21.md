@@ -1,1 +1,0 @@
-Artículo 21.-La Dirección General de Personal procederá a estudiar las ofertas presentadas, con el propósito de verificar los requisitos previamente establecidos y desechará aquellas ofertas que no cumplen con lo fijado.

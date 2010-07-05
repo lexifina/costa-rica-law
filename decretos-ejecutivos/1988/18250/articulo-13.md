@@ -1,1 +1,0 @@
-Artículo 13.-Cuando el Ministro o su representante lo estimen necesario, los servidores quedarán en la ineludible obligación de trabajar horas extraordinarias hasta el máximo permitido por ley salvo que por razones de índole grave debidamente comprobada por el Jefe inmediato. se les faculte para no hacerlo.

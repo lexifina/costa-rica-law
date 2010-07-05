@@ -1,1 +1,0 @@
-Artículo 46.-Las servidoras en época de lactancia, podrán disponer de media hora al inicio de la jornada y de media hora a su' finalización. con el objeto de amamantar a su hijo. Para el otorgamiento de esta licencia será necesaria la recomendación médica oficial.

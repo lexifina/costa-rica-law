@@ -1,4 +1,0 @@
-Artículo 52.-Para tener derecho a la vacación anual, es necesario que el servidor haya prestado sus servicios durante cincuenta semanas continuas. excepto las regulaciones estipuladas en el artículo 56 de este Reglamento. Sin embargo, si por cualquier causa el funcionario no completare ese plazo por terminación de su relación de servicio, tendrá derecho al pago de días por este mismo concepto. de acuerdo con la siguiente proporción: número de días que le corresponden de conformidad con lo dispuesto en el artículo anterior según sea el caso, entre doce, por el número de meses trabajados.
-(Corregido mediante Fe de Erratas publicada en la Colección de Leyes y Decretos Año 1988, Semestre II, Tomo I, página 125).
-El resultado del cálculo anterior será redondeado al numeral entero más próximo.
-Cuando se labore jornada semanal acumulativa. el día sábado no será considerado como día hábil para estos efectos.

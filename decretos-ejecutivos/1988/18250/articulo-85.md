@@ -1,1 +1,0 @@
-Artículo 85.-El Ministerio. por medio del Departamento de Salud Ocupacional y de las comisiones y subcomisiones de Seguridad e Higiene, está en la obligación de instruir a los servidores en todo lo referente a la prevención de los riesgos del trabajo, según lo establecido por la Ley.

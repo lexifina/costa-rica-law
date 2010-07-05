@@ -1,1 +1,0 @@
-Artículo 23.-La Dirección General de Personal podrá efectuar pruebas de idoneidad cuando la plaza objeto del concurso interno así lo demande. Cuando se tratare de puestos de mano de obra especializada, donde se requiere destreza manual, fuerza física o dominio de una actividad mecánica. el Departamento de Reclutamiento y Selección hará una prueba teórico-práctica.

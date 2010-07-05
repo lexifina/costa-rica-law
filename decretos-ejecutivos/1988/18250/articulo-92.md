@@ -1,1 +1,0 @@
-Artículo 92.-Para los efectos de imponer la sanción disciplinaria correspondiente, el término de prescripción de un mes comenzará a correr una vez ljue el Departamento de Accidentes haya finalizado la investigación del accidente e informado a la Dirección General de Personal.

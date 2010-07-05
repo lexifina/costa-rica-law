@@ -1,2 +1,0 @@
-Artículo 131.-El presente Reglamento no perjudica los derechos jurídicamente adquiridos por los servidores del Ministerio. Se presumirá de conocimiento de éstos y. será de observancia obligatoria para todos desde el día de su vigencia, inclusive para los que en el futuro trabajen en él, salvo disposición contraria de norma superior.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996, que lo traspasó del anterior artículo 119 al 131 actual).

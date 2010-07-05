@@ -1,3 +1,0 @@
-CAPITULO XXI
-De las reclamaciones
-Artículo 114.-Todas las quejas, peticiones, reclamos, sugerencias y otras, nacidas de la relación de servicio. .deberán ser dirigidas por los servidores al jefe inmediato, quien resolverá en el término de ocho días hábiles. No obstante. cuando el jefe inmediato superior se considere incompetente para resolver algún asunto especial podrá autorizar al servidor para que éste se dirija al jefe del grado superior, debiéndose seguir, en todo caso, el estricto orden jerárquico. En su defecto, deberá obtenerse un primer pronunciamiento de la dependencia de que se trate y un segundo del Ministro.

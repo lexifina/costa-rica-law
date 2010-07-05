@@ -1,2 +1,0 @@
-Artículo 76.-Además de las contenidas en otros artículos del presente Reglamento se considerarán faltas leves las infracciones a las disposiciones de 103 artículos 37, incisos 5), 7), 11), 12), 13). 14), 24). 28), 29) y 31) 38 inciso e); 40 incisos b), d) y l) del presente Reglamento. las cuales se computarán en un lapso de tres meses y se sancionarán conforme con el articulo anterior.
-(Corregido mediante Fe de Erratas publicada en la Colección de Leyes y Decretos Año 1988, Semestre II, Tomo I, página 125).

@@ -1,2 +1,0 @@
-Transitorio único: A aquellos servidores que a la fecha de entrar en vigencia este Reglamento hubieren adquirido el derecho a. vacaciones. éstas le serán otorgadas de conformidad con las escalas establecidas en el capítulo correspondiente, siempre y cuando no las hubiera disfrutado, o no se le hubieren compensado, parcial o totalmente. Quedan excluidos los períodos acumulados a que tenga derecho el servidor.
-Dado en la Presidencia de la República.-San José, a los veintitrés días del mes de junio de mil novecientos ochenta y ocho.

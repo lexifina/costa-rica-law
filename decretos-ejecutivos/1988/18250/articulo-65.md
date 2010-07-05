@@ -1,1 +1,0 @@
-Artículo 65.-Dejará de imponerse la sanción disciplinaria que corresponda al trabajador que por error marcó la tarjeta de otro o aquel a quien se !a marcaron, si informa del hecho a la Dirección General de Personal o su jefe inmediato, a más tardar en el curso de la jornada de trabajo siguiente a aquella en que el hecho sucedió.

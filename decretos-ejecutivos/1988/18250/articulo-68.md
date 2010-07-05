@@ -1,2 +1,0 @@
-Artículo 68.-La llegada tardía que exceda de veinte minutos, contados a partir de la hora de ingreso estipulada y que a juicio de la Dirección General de Personal carezca de justificación. acarreará al servidor la pérdida de media jornada, para efectos de rebajo de salario.
-La presentación al trabajo después de veinte minutos de iniciadas las labores se tomará como media ausencia de la jornada respectiva,

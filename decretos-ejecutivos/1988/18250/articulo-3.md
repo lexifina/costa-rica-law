@@ -1,1 +1,0 @@
-Artículo 3°-El Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre el Ministerio y sus servidores, pero la representación inmediata estará delegada en el Titular de la Cartera Ministerial.

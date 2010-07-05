@@ -1,1 +1,0 @@
-Artículo 115.-Las gestiones de los servidores, de acuerdo con el articulo anterior, deberán ser planteadas por escrito; pero, podrán hacerse en forma verbal, cuando así lo exija la ausencia de una resolución. o la menor importancia del asunto indique este procedimiento.

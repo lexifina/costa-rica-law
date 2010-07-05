@@ -1,2 +1,0 @@
-Artículo 80.-Las llegadas tardías injustificadas, computables dentro de un mismo mes calendario, se sancionarán en la siguiente forma:
-Por tres amonestación escrita; hasta seis. suspensión del servidor hasta por tres días hábiles, hasta ocho, suspensión hasta por cinco días hábiles; hasta diez. suspensión hasta por ocho días hábiles; y por más de diez, despido con cama justificada. Las sanciones se aplicarán en el mes calendario siguiente, .

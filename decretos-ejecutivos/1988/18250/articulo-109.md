@@ -1,1 +1,0 @@
-Artículo 109.-Todo acto de admini5tración de personal que implique el otorgamiento de derechos o la aplicación de sanciones, salvo lo específicamente dispuesto en este Reglamento, deberá hacerse constar en el formulario de estilo denominado "Acción de Personal". el cual deberá contar con el visto bueno de la Dirección de Personal.

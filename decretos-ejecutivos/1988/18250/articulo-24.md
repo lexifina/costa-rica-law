@@ -1,1 +1,0 @@
-Artículo 24.-En los cargos de índole profesional, así como aquellos otros para cuyo ejercicio se requiera ser egresado de una carrera universitaria, el establecimiento de los criterios para su escogimiento, estarán a cargo del Director General donde ocurre la vacante, el Director General de Personal y el Jefe del Departamento de Reclutamiento y Selección.

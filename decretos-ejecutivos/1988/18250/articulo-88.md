@@ -1,1 +1,0 @@
-Articulo 88.-Si el lugar donde ocurre el accidente queda distante de la ciudad capital o de la agencia regional del INS más cercana. imposibilitando que la denuncia llegue el mismo día o el inmediato siguiente, el encargado deberá dar aviso telegráfico por radiograma al Instituto enviando copia por correo a la Dirección General de Personal.

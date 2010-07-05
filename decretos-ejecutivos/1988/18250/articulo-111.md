@@ -1,1 +1,0 @@
-Artículo 111. -Los superiores jerárquicos calificarán los servicios de sus empleados en la primera quincena del mes de julio. Caso contrario. el servidor interesado podrá solicitar a su superior inmediato quien estará obligado, a hacerlo, que realice su calificación, dentro de los quince días siguientes del mismo mes.

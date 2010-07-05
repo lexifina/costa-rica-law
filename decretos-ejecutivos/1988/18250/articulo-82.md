@@ -1,1 +1,0 @@
-Artículo 82.-Las faltas no señaladas en este Reglamento, serán sancionadas conforme con lo que establece el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes conexas y supletorias.

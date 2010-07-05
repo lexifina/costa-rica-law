@@ -1,2 +1,0 @@
-Artículo 64.-Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta al inicio y finalización de la jornada de trabajo. hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el servidor no la justifique conforme con lo que establece el inciso 16) del artículo 37 de este Reglamento.
-(Corregido mediante Fe de Erratas publicada en la Colección de Leyes y Decretos Año 1988, Semestre II, Tomo I, página 125).

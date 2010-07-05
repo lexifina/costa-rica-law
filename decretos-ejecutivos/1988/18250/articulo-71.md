@@ -1,3 +1,0 @@
-Artículo 71. -Las ausencias por enfermedad que excedan en cuatro días, deberá justificarlas, el servidor incapacitado con certificado médico extendido por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.
-Las ausencias que no excedan de cuatro días podrán ser justificadas por el superior inmediato del servidor afectado, a falta de la respectiva constancia médica siempre y cuando ello sea debidamente aprobado por la Dirección General de Personal, sin que lo anterior implique obligación de pago del salario.
-Sin embargo, a los servidores que sean incapacitados por, el Dispensario médico de la institución se le girará el 10:1% de su salario hasta por cuatro días.

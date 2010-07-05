@@ -1,1 +1,0 @@
-Artículo 45.-El Ministerio deberá condicionar un local adecuado para que los servidores puedan tomar los alimentos y bebidas durante el tiempo de descanso, según lo dispuesto por el artículo 97 del Decreto Ejecutivo N° 1 de 2 de enero de 1968 (Reglamento de Seguridad e Higiene en el Trabajo).

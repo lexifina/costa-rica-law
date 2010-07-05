@@ -1,3 +1,0 @@
-CAPITULO XI
-Del descanso semanal, días feriados y del aguinaldo
-Artículo 58.-Los funcionarios del Ministerio sujetos a la jornada semanal acumulativa, disfrutaran de dos días fijos de descanso absoluto después de cada cinco días de trabajo continuo, excepto en aquellos casos que por la índole del servicio que prestan, deban sujetarse a un día de descanso absoluto luego de .seis días de trabajo continuo. No obstante lo anterior en casos muy calificados, a fin de preservar los principios fundamentales del servicio público, tales descansos podrán ser otorgados en forma acumulativa mensual o quincenal.

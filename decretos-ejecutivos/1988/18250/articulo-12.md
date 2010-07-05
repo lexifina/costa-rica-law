@@ -1,2 +1,0 @@
-Artículo 12.-Los empleados del Ministerio estarán obligados al desempeño de sus cargos durante todos los días hábiles y las horas reglamentarias y no se podrá, por lo mismo, conceder privilegio o licencia alguna que autorice una asistencia irregular, con excepción de lo establecido especifica. mente en otras disposiciones de este Reglamento, o en los contratos individuales de servicio.
-Por día hábil de servicio se entenderán todos aquellos días laborales, de acuerdo con el respectivo horario de trabajo. según lo establecido en el articulo 99 de este Reglamento..

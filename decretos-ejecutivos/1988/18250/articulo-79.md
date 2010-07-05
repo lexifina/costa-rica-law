@@ -1,2 +1,0 @@
-Artículo 79.-Las amonestaciones verbales o escritas deberá imponerlas el jefe inmediato o superior, dentro de los ocho días siguientes a aquel en que se cometió la falta; las suspensiones o despidos, en el transcurso del mes calendario posterior al día en que se cometió la falta o la Dirección General de Personal la conociere.
-Los despidos se harán de conformidad con lo dispuesto en el Capítulo IX del Reglamento del Estatuto de Servicio Civil. En cuanto a los servidores no cubiertos por este Régimen su despido se hará de acuerdo con lo que establece el Código de Trabajo.

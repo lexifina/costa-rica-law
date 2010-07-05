@@ -1,2 +1,0 @@
-Del régimen de viático corrido, gastos de viaje y pasajes:
-Artículo 49.-A efecto de regular lo referente al pago de viáticos. Gastos de viaje y pasajes. se estará a lo dispuesto por el Reglamento para el pago de viáticos y viáticos corridos a los servidores del Ministerio de Obras Públicas y Transportes N° 5697-T de fecha 26 de enero de 1976 y demás disposiciones que para tal efecto negaren a dictarse.
