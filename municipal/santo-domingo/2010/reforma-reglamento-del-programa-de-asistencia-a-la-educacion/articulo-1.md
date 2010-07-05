@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SANTO DOMINGO
+El Concejo conoce y aprueba se incluya en el Reglamento de Becas, lo siguiente: a.- en el Artículo I. Terminología en Centros Educativos Públicos, -Agregar- y Privados. En el capítulo cuarto de los beneficiarios, Artículo 8 inciso c.- que asistan a Centros Educativos Públicos y Privados, preferiblemente de secundaria. Se dispensa de trámite de comisión. Acuerdo definitivamente aprobado. Votos de los señores regidores Ramírez Zamora, Madrigal Ledezma y Araya Nájar, Fallas Cordero y Salas Quesada. Sesión número 183-2010 de fecha 29 de abril de 2010, Artículo l inciso 2).
+9 de junio del 2010
