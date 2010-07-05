@@ -1,1 +1,1 @@
-Artículo 2º—Tarifas y/o comisiones. Por el trámite de cualquiera de los servicios que el Subproceso Internacional del Banco ofrezca a sus clientes, las tarifas y/o comisiones las fijará el Comité indicado en el artículo 8 de este Reglamento.
+Artículo 2º—Tarifas y/o comisiones. Por el trámite de cualquiera de los servicios que el Subproceso Internacional del Banco ofrezca a sus clientes, las tarifas y/o comisiones las fijará el Comité indicado en el artículo 8º de este Reglamento.

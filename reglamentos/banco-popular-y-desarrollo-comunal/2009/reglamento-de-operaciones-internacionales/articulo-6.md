@@ -1,1 +1,1 @@
-Artículo 6º—Reporte de compra y venta de divisas al Banco Central de Costa Rica. La información que deba ser reportada al Banco Central se deberá hacer dentro de los plazos y condiciones que la normativa legal disponga.
+Artículo 6º—Períodos de congelamiento de cheques internacionales. Los cheques internacionales en dólares de los EE.UU. u otras monedas, serán congelados dependiendo de la ubicación geográfica del banco girado. Los períodos para este trámite serán definidos por el Comité Internacional.

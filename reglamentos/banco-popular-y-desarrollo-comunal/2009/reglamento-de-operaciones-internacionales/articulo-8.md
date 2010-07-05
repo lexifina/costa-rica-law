@@ -1,1 +1,18 @@
-Artículo 8º—Comité Internacional. Se crea el Comité Internacional, conformado por el Subgerente General de Negocios, quien lo presidirá; el Director de Diseño y Producción y el Coordinador del Subproceso Internacional, quienes no podrán delegar su competencia. Este Comité tendrá la responsabilidad de fijar las tarifas y/o comisiones basándose para ello en las condiciones que dicta el mercado al momento del estudio y revisará al menos anualmente las tarifas y/o comisiones a que se refiere el artículo 2 de este Reglamento, a fin de ajustarlas de acuerdo con los movimientos del mercado. Las tarifas y/o comisiones se comunicarán en un término de 5 días hábiles a los usuarios de la información, ya sea vía correo electrónico, mensajero, pizarra o cualquier otro medio disponible.
+Artículo 8º—Registro internacional de firmas. Quedan autorizados para firmar documentos e instrumentos de pago internacionales los funcionarios que a continuación se indican, los que se identificarán con las letras de código que para cada caso se enuncian:
+Funcionario | Letra de código
+Gerente General Corporativo | A
+Subgerente General de Operaciones | A
+Subgerente General de Negocios | A
+Director Administración Productos y Servicios | A
+Gerentes de Sucursal y Centros de Servicios Financieros y Coordinadores de Oficinas Periféricas | A
+Coordinador del Subproceso de Internacional | A
+Asistente del Subproceso de Internacional | B
+Asistente de la Dirección de Administración de Productos y Servicios | B
+Coordinador de la Unidad de Mercado Libre del Subproceso de Internacional | B
+Coordinador de la Unidad de Cambios y Telecomunicaciones del Subproceso de Internacional | B
+Coordinador de Unidad de Comercio Exterior | B
+Subgerente de Sucursal, Centros de Servicios Financieros. | B
+Contador de Sucursal, Centros de Servicios Financieros y Oficina Periférica. | B
+Para efectos de lo establecido en este artículo se aplicará lo siguiente:
+a) Los giros internacionales, deberán ser firmados por al menos dos funcionarios autorizados y al menos uno de ellos debe ser categoría A.
+b) Cada funcionario autorizado para firmar en el Registro Internacional de Firmas deberá utilizar el código alfanumérico que al efecto se asigne. Este código deberá anotarse inmediatamente debajo de la respectiva firma.

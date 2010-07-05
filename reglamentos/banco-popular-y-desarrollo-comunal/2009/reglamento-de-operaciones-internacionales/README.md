@@ -14,3 +14,4 @@ Reglamento de Operaciones Internacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-11 | la propia norma |
+| 2 | 2010-07-05 | Reglamento 4770 (2010-07-05) |
