@@ -15,3 +15,4 @@ Aranceles de servicios de peritaje y avalúos del Colegio de Federado de Ingenie
 | --- | --- | --- |
 | 1 | 2009-06-17 | la propia norma |
 | 2 | 2010-01-19 | Acuerdo 12 (2010-01-19) |
+| 3 | 2010-07-05 | Decreto Ejecutivo 36150 (2010-07-05) |
