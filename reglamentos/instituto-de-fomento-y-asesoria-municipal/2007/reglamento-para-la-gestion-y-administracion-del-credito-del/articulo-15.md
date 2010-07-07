@@ -1,1 +1,0 @@
-Artículo 15.—Cuando sea preciso realizar estudios de preinversión, éstos podrán ser financiados en forma parcial o total, mediante un contrato con el solicitante, siempre y cuando se disponga de recursos presupuestados en la Institución en la cartera de “Fondos de Preinversión”, de conformidad con lo establecido en la Política de Crédito.
