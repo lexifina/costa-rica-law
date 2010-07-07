@@ -1,0 +1,3 @@
+2º—En el caso de la tarifa establecida en el Acuerdo AJDIP/293-2009, para el otorgamiento de carné de identificación de pesca para. el Capitán p tripulante de todo tipo de embarcación nacional o residente, los Señores Directores consideran procedente acoger la propuesta de la Comisión de Tarifas de modificar dicha tarifa, con el objetivo de que la misma se aplique a las mismas figuras o por los conceptos que se han venido aplicando, por lo que en lo sucesivo se debe leer de la siguiente manera:
+CARNÉ DE IDENTIFICACIÓN DE PESCA (Por año / Por trámite) | | |
+Capitán o Tripulante, todo tipo embarcación (nacional o residente) | carné | colones | 2.600,00
