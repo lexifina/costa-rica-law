@@ -1,0 +1,1 @@
+Artículo Nº 5º—El Departamento de Tesorería, al final de cada juego de lotería instantánea, debe realizar un cierre de los premios convalidados de acuerdo al plan de premios aprobado por la Junta Directiva y pagados en el Departamento de Tesorería y rendir el informe respectivo ante la Gerencia General de la Junta de Protección Social.
