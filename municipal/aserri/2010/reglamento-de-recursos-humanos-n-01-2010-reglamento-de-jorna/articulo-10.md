@@ -1,0 +1,1 @@
+Artículo 10.—Tiempo extraordinario oficial es aquel cuyo gasto este debidamente presupuestado y aprobado por el órgano contralor. El incumplimiento de este requisito y de los artículos 9 y 10 de este Reglamento, salva a la institución de reclamos pecuniarios, legales y de seguridad laboral, responsabilidad que recaerá en el funcionario que lo autorizó.

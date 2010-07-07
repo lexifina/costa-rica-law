@@ -1,0 +1,1 @@
+Artículo 9º—El jefe inmediato determinará la existencia del rubro presupuestario suficiente para cubrir dicho pago, con el Departamento de la Tesorería Municipal, para lo cual deberá utilizar la boleta conocida como “Formula de Autorización para la Jornada Extraordinaria”, mencionada en el artículo 9º del presente Reglamento.

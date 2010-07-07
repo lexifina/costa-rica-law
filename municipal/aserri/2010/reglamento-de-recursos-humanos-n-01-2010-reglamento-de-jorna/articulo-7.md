@@ -1,0 +1,1 @@
+Artículo 7º—El funcionario (a) que no cuente con la “Formula de Autorización para la Jornada Extraordinaria” debidamente llena y firmada por todas las partes, no podrá realizar la jornada extraordinaria ni percibir su retribución económica, salvo en los casos de excepción previstos en el artículo 3 de este Reglamento.

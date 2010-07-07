@@ -1,0 +1,1 @@
+Artículo 11.—Cuando sea menester ocupar equipo municipal de cualquier índole que tenga que salir de los lugares o planteles de custodia, para cumplir con labores asignadas en tiempo extraordinario, debe el Alcalde Municipal o Jefe Inmediato, girar ordenes escritas del equipo que se utilizará donde indique quien lo va a usar y la hora que lo deben de entregar.
