@@ -1,0 +1,2 @@
+Artículo 23.—Le corresponderá a la Jefatura del Departamento de Servicios Administrativos mantener un registro actualizado de los trabajadores que se encuentran admitidos para el “Pago de Kilometraje”, así como llevar un registro y control de los reportes de pago.
+Los trabajadores que por motivación propia resuelvan retirarse del sistema para el “Pago de Kilometraje”, deberán comunicarlo formalmente a su jefatura inmediata y ésta a la Jefatura del Departamento de Servicios Administrativos.

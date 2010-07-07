@@ -1,0 +1,11 @@
+Artículo 8º—La Jefatura del Departamento de Servicios Administrativos, una vez recibidos los documentos por parte del jefe inmediato del solicitante, deberá efectuar, en el plazo de cinco días hábiles, el registro en la nómina de autorizados para el “Pago de Kilometraje” y realizará una verificación de las condiciones y requisitos necesarios para la inclusión en el sistema.
+Una vez verificados los requisitos que acreditan al trabajador como usuario del sistema de arrendamiento, éste deberá firmar un “Contrato de Arrendamiento”, en el cual se incluirán todos los derechos y deberes que se generan del pago de kilometraje tanto para la Administración como para el trabajador; así como que se tienen como incorporadas todas las disposiciones del presente Reglamento y que Popular Valores S. A. se encuentra exenta de cualquier tipo de responsabilidad.
+En el expediente de cada trabajador aceptado en el sistema de arrendamiento deben incluirse los siguientes documentos:
+a) Copia de licencia al día.
+b) Copia de la revisión técnica del vehículo al día y debidamente aprobada
+c) Copia de los derechos de circulación al día
+d) Copia de las pólizas del vehículo al día y de los recibos de renovación
+e) Declaración jurada eximiendo a Popular Valores S. A. de cualquier responsabilidad por todos los posibles daños que podría sufrir el vehículo no cubiertos por las pólizas solicitadas en este Reglamento.
+f) Contrato de arrendamiento.
+g) Solicitudes de servicio de kilometraje.
+h) Copia de las liquidaciones de kilometraje recorrido.
