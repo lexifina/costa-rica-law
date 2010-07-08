@@ -1,0 +1,1 @@
+Artículo 3º—Aprobaciones de la Junta Directiva. La Junta Directiva, mediante acto motivado, aprobará el estudio técnico, los términos de referencia y, los informes a que se refieren los artículos 5° y 7° de este procedimiento y, podrá ordenar que se les introduzcan las modificaciones que considere necesarias para el mejor cumplimiento de los objetivos que se buscan alcanzar.

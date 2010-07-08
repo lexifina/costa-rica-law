@@ -1,0 +1,1 @@
+Artículo 2º—Conformación de expediente. Todas las actuaciones y actos concernientes a los trámites a que se refieren presente procedimiento, deberán estar debidamente documentados y recopilarse en un expediente debidamente foliado, que se mantendrá en óptimo estado físico, al que tendrán acceso todas las personas que el ordenamiento jurídico indique.

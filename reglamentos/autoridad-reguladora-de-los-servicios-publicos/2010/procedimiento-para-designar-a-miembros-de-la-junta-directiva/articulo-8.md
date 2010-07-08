@@ -1,0 +1,3 @@
+Artículo 8º—Selección, consulta, designación y tiempo. Establecida y verificada de la idoneidad de la persona o de las personas; la Junta Directiva, previa consulta escrita a cada una de ellas, sobre su interés en realizar las tareas, trabajos o proyectos.
+Si hubiera más de un Miembro de la Junta Directiva que haya manifestado por escrito su interés en realizar las tareas, trabajos o proyectos, la Junta Directiva decidirá a cuál de ellas designará.
+Sobre la base del estudio técnico y, de los términos de referencia indicados en los artículos 5° y 7° de este procedimiento, la Junta Directiva, mediante acto motivado, decidirá si las tareas, labores o proyectos los realizará la persona designada, a tiempo completo o a medio tiempo.
