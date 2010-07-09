@@ -1,0 +1,1 @@
+Artículo 9º—Una vez aprobada la solicitud por la Junta Directiva del Colegio de Contadores Públicos, previo al Acto Formal de Incorporación, el o la nuevo(a) colegiado(a) deberá asistir al curso de Inducción Profesional que se impartirá por una única vez con una duración de 5 horas mínimo.
