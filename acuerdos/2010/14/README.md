@@ -13,3 +13,4 @@ Detalle de los despachos que debe atender la modalidad de apertura efectiva, en 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-02 | la propia norma |
+| 2 | 2010-07-09 | Acuerdo 15 (2010-07-09) |

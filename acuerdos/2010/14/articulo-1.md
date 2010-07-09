@@ -302,6 +302,8 @@ Violencia Doméstica
 • Fiscalía de Bribrí
 • Fiscalía de Pococí-Guácimo
 • Fiscalía de Siquirres
+• Oficina de Atención a las Víctimas del Delito
+(Así adicionado el punto anterior mediante sesión Nº 65-10, celebrada el 6 de julio de 2010, artículo XLVIII, y publicada en el Boletín Judicial Nº 147 del 29 de julio de 2010, mediante aviso 15-10 del 9 de julio de 2010)
 En razón de la apertura de la Fiscalía en el I Circuito Judicial de San José, debe reforzarse el personal, de forma tal que en el I Circuito atiendan 2 Fiscales y 2 Auxiliares y en el II Circuito 4 Fiscales y 4 Auxiliares.
 9. DEFENSA PÚBLICA
 • Defensa Pública I Circuito Judicial de San José22
