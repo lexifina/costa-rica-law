@@ -3,7 +3,8 @@ LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL
 En ejercicio de las potestades conferidas en el artículo 140, incisos 3) y 18) de la Constitución Política y la Ley Nº 832 del 4 de noviembre de 1949 y sus reformas.
 Considerando:
-I.—Que el Consejo Nacional de Salarios, en el ejercicio de las potestades conferidas en la Ley Nº 832 del 4 de noviembre de 1949 y el Reglamento a dicha ley que fue publicado mediante el Decreto Nº 25619 y su reformas, en Acta Nº 5093 de 29 de octubre de 2009, aprobó la respectiva determinación de Salarios Mínimos que han de regir a partir del 1º julio del año 2010. Por tanto
+I.—Que el Consejo Nacional de Salarios, en el ejercicio de las potestades conferidas en la Ley Nº 832 del 4 de noviembre de 1949 y el Reglamento a dicha ley que fue publicado mediante el Decreto Nº 25619 y su reformas, en Acta Nº 5107 del 23 de junio del 2010, aprobó la respectiva determinación de Salarios Mínimos que han de regir a partir del 1º julio del año 2010. Por tanto
+(Así reformado por el artículo 1º del decreto ejecutivo Nº 36105 del 9 de julio de 2010)
 Decretan:
 FIJACIÓN DE SALARIOS MÍNIMOS QUE REGIRÁN
 A PARTIR DEL 1º DE JULIO DE 2010
