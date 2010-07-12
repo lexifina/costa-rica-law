@@ -15,3 +15,4 @@ Reglamento a la Ley Nacional de Vacunación
 | --- | --- | --- |
 | 1 | 2005-11-04 | la propia norma |
 | 2 | 2007-01-17 | Decreto Ejecutivo 33564 (2007-01-17) |
+| 3 | 2010-07-12 | Decreto Ejecutivo 36165 (2010-07-12) |
