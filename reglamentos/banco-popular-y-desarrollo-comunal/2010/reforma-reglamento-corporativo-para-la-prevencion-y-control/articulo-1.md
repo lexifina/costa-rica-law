@@ -1,0 +1,5 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional, actuando como tal y en el ejercicio de las funciones propias de Asamblea de Accionista de “Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A.” “Popular Valores Puesto de Bolsa S. A.”, “Popular Fondos de Inversión S. A.”, y “Popular Sociedad Agencia de Seguros S.A.”, en sesión 4764 del 14 del junio del 2010, modificó el artículo 13 del “Reglamento Corporativo para la Prevención y Control de Legitimación de Capitales y Financiamiento al Terrorismo del Conglomerado Financiero Banco Popular”. Consecuentemente, ese artículo debe leerse de la siguiente manera:
+“Artículo 13. Revisión y Actualización.
+Este Reglamento debe ser revisado y actualizado, en forma conjunta con la revisión anual del Manual Corporativo de Políticas y Procedimiento para la Prevención y Control de Legitimación de Capitales y Financiamiento al Terrorismo, o cuando se considere necesario”.
+Rige a partir de su publicación en el Diario Oficial “La Gaceta”.
