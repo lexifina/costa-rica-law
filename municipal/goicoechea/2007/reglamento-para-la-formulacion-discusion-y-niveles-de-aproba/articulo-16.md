@@ -1,0 +1,2 @@
+Artículo 16.—Límite de acción en el uso y disposición de los recursos públicos. El presupuesto constituye el límite de acción de la Municipalidad de Goicoechea en el uso y disposición de sus recursos públicos y sólo podrá ser variado mediante los mecanismos que el ordenamiento jurídico prevé, incluidos los que la Contraloría General dicte al respecto, dentro del campo específico de su competencia.
+(Así adicionado mediante sesión Nº 28-10 del 12 de julio de 2010)

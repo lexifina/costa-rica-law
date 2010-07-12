@@ -1,0 +1,2 @@
+Artículo 19.—Justificación de los ajustes al presupuesto y su relación con el Plan Anual Operativo. Las variaciones que se realicen al presupuesto, ya sea por presupuesto extraordinario o modificación, deberán estar debidamente justificadas e incorporar como parte de la información que las sustenta, la relación de las variaciones presupuestarias con el cumplimiento de los objetivos y metas del plan anual operativo.
+(Así adicionado mediante sesión Nº 28-10 del 12 de julio de 2010)

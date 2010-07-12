@@ -1,0 +1,2 @@
+Artículo 31.—Régimen sancionatorio. El incumplimiento de lo establecido en este Reglamento y en la normativa conexa dará lugar a la aplicación de las responsabilidades que se establecen en la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley General de Control Interno, Ley Contra la Corrupción y el Enriquecimiento Ilícito y demás disposiciones concordantes.
+(Así adicionado mediante sesión Nº 28-10 del 12 de julio de 2010)

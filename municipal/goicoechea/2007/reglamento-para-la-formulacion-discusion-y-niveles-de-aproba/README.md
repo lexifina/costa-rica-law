@@ -14,3 +14,4 @@ Reglamento para la Formulación, Discusión y Niveles de Aprobación del Presupu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-19 | la propia norma |
+| 2 | 2010-07-12 | Reglamento municipal 28 (2010-07-12) |
