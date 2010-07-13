@@ -14,3 +14,4 @@ Modifica para el Patronato de Construcciones, Instalaciones y Adquisición de Bi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-18 | la propia norma |
+| 2 | 2010-07-13 | Decreto Ejecutivo 36112 (2010-07-13) |
