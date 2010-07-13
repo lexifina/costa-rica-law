@@ -1,0 +1,1 @@
+Artículo 55.—Será sancionado con suspensión de un mes a un año, el que cometiera cualquier otra infracción contra el presente reglamento; será el comité Cantonal de Deportes y Recreación en sesión ordinaria quien decide el lapso de dicha sanción o el procedimiento a seguir según la gravedad de la infracción.

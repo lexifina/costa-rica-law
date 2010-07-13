@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros del Comité Cantonal de Deportes y Recreación durarán en sus cargos dos años, pudiendo ser reelectos y no devengarán dietas ni remuneración alguna, según lo establece el Art. Nº 168 del Código Municipal.

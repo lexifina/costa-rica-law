@@ -1,0 +1,1 @@
+Artículo 37.—Cada Comisión de Apoyo deberá nombrar su junta directiva, llevar libro de actas, debidamente refrendado por el comité Cantonal de Deportes y Recreación y sesionará por lo menos una vez al mes.

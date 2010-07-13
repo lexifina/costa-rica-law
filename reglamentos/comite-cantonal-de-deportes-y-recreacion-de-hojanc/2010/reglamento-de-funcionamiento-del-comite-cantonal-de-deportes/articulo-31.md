@@ -1,0 +1,1 @@
+Artículo 31.—El Comité Cantonal de Deportes y Recreación, deberá someter su presupuesto a la aprobación del Concejo Municipal, sujeto a las disposiciones de la ley orgánica de la Contraloría General de República. Debe presentarlo en la fecha indicada.

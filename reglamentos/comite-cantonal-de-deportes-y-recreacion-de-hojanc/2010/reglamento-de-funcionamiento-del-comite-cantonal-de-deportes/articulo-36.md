@@ -1,0 +1,1 @@
+Artículo 36.—La vigencia de cada miembro de las Comisiones de Apoyo, serán la misma del Comité Cantonal de Deportes y Recreación, y servirán en sus cargos sin percibir dietas ni remuneración alguna, pudiendo ser reelecto para un nuevo período.

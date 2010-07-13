@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Cantonal de Deportes y Recreación de Hojancha, tendrá como finalidad organizar, dirigir, capacitar, promover y estimular los deportes y la recreación en todos sus aspectos, procurando el aprovechamiento el tiempo libre de sus habitantes mediante una recreación saludable y se regirá por las disposiciones del presente reglamento.

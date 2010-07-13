@@ -1,0 +1,1 @@
+Artículo 21.—Los asuntos que conozca el Comité, se decidirán por simple mayoría de los miembros presentes, salvo en lo que respecta al presupuesto, el cual se acordará por mayoría calificada: 2/3 de la totalidad de los miembros del Comité Cantonal.

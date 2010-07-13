@@ -1,0 +1,2 @@
+Artículo 44.—Para nombrar los cinco (5) miembros de los comités comunales de deportes y recreación, se convocará a Asamblea General por el Comité Cantonal y la Asamblea General que estará formado por dos representantes de cada una de las asociaciones Deportivas, Recreativas y Comunales, existentes en la comunidad.
+Una vez realizada la escogencia de las personas que integrarán el comité comunal de deportes y recreación, deberán juramentarse ante el Comité Cantonal de Deportes y Recreación y éste a su vez, comunicará al Concejo Municipal.

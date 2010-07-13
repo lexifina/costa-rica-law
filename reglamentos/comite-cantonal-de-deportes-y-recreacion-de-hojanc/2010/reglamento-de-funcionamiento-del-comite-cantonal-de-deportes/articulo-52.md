@@ -1,0 +1,1 @@
+Artículo 52.—El Presidente del Comité Comunal podrá convocar a reunión extraordinaria por iniciativa propia, o a petición de tres miembros del Comité; los asuntos por tratar se conocerán conforme al orden del día, previamente elaborada por el Presidente y aprobada por los presentes.

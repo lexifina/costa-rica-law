@@ -1,0 +1,1 @@
+Artículo 32.—Podrá el Comité Cantonal de Deportes y Recreación, incluir en su presupuesto, con la aprobación de la Municipalidad, las partidas necesarias para la adquisición de implementos deportivos, siempre que estos se refieran a planes y programas previamente establecidos (programa de trabajo).

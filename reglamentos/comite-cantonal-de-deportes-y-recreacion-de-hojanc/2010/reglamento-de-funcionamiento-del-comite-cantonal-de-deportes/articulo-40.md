@@ -1,0 +1,1 @@
+Artículo 40.—Una vez cada tres meses, el Comité Cantonal de Deportes y Recreación, convocará a plenario a todas las Comisiones de Apoyo, con la finalidad del intercambio necesario de impresiones y con el propósito de unificar criterios.

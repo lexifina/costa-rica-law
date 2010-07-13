@@ -1,0 +1,1 @@
+Artículo 59.—Para realizar y fiscalizar el desarrollo de la asamblea de elección del representante de las organizaciones comunales se conformará un tribunal de elecciones integrado por dos representantes del Concejo Municipal, uno lo presidirá y un representante de los grupos organizados, escogido en una asamblea especial, convocada para tal efecto.

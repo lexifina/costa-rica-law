@@ -1,0 +1,2 @@
+Artículo 61.—Cada organización comunal podrá presentar tantos candidatos como lo tengan a bien, los cuales deberán registrarse ante el tribunal electoral a más tardar dos días antes de la asamblea de cada dos años, quien no cumpla con tal disposición no podrá participar como candidato para el Comité Cantonal de Deportes.
+Una vez finalizado el período concedido para recibir postulaciones se levantará una lista que se hará visible el día de la Asamblea.

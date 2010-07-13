@@ -1,0 +1,1 @@
+Artículo 18.—Las sesiones extraordinarias del Comité Cantonal de Deportes y Recreación, serán convocadas por el Presidente de la Junta Directiva a solicitud de por lo menos tres miembros con veinticuatro horas de antelación y deberá indicar el día y hora de la sesión y los asuntos por tratar, asimismo el lugar donde se realizará la reunión.
