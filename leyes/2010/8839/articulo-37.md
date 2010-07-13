@@ -1,0 +1,2 @@
+ARTÍCULO 37.- Repatriación
+Autorízase a la Dirección General de Aduanas a devolver o repatriar los residuos o los productos que hayan sido importados sin autorización o contraviniendo prohibiciones y regulaciones de la normativa vigente y, en caso de que esto no resulte factible, para que cobre el costo tratamiento y disposición final que sea necesario. Todos los costos correrán por cuenta del importador.

@@ -1,0 +1,3 @@
+ARTÍCULO 51.- Principios de legalidad y del debido proceso
+Para la aplicación de estas sanciones, el Ministerio del Ambiente, Energía y Telecomunicaciones, el Ministerio de Salud, las municipalidades o cualquier otra autoridad de policía deberán presentar la denuncia respectiva ante el Tribunal Ambiental Administrativo, el cual deberá conceder previa audiencia al interesado, de conformidad con lo establecido en la Ley orgánica del ambiente y el reglamento de procedimientos de dicho Tribunal.
+No obstante lo anterior, además de los funcionarios antes citados, cualquier persona, física o jurídica, podrá presentar de igual forma denuncias al Tribunal Ambiental Administrativo y a las instancias judiciales correspondientes por violaciones a esta Ley.

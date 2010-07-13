@@ -1,0 +1,4 @@
+ARTÍCULO 14.- Programas de residuos por parte de los generadores
+Todo generador debe contar y mantener actualizado un programa de manejo integral de residuos. En caso de que el programa incluya la entrega de residuos a gestores autorizados, el generador debe vigilar que esté autorizado para el manejo sanitario y ambiental de acuerdo con los principios de esta Ley.
+Este programa debe ser elaborado e implementado por el generador para el seguimiento y monitoreo por parte de los funcionarios del Ministerio de Salud.
+El Reglamento de esta Ley determinará los contenidos del programa de manejo integral de residuos, el cual deberá coadyuvar al cumplimiento de la política nacional, el Plan Nacional, el plan municipal y los objetivos de esta Ley. Además, establecerá cuáles generadores, dependiendo de su actividad, estarán exentos de presentar los programas de manejo que indica este artículo. Quedan exentas de la elaboración de dicho programa las viviendas unifamiliares.

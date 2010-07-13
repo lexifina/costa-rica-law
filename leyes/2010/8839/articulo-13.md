@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Planes sectoriales de residuos o por la naturaleza del residuo
+Los diferentes sectores de la sociedad podrán desarrollar programas para la gestión integral de un determinado sector o residuo de su interés, que considere la cantidad y la composición de los residuos. Estos programas deberán coadyuvar al cumplimiento de la política nacional, el Plan Nacional y los objetivos de esta Ley. Estos programas serán presentados ante el Ministerio de Salud para su registro, seguimiento y monitoreo.

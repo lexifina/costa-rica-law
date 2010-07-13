@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Sistemas de gestión ambiental
+Las instituciones de la Administración Pública, empresas públicas y municipalidades implementarán sistemas de gestión ambiental en todas sus dependencias, así como programas de capacitación para el desempeño ambiental en la prestación de servicios públicos y el desarrollo de hábitos de consumo y el manejo adecuado que tendrán por objeto prevenir y minimizar la generación de residuos.

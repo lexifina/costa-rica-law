@@ -1,0 +1,1 @@
+ARTÍCULO 39.- Generadores de residuos ordinaries Los generadores de residuos ordinarios estarán obligados a separarlos, clasificarlos y entregarlos a las municipalidades para su valorización o disposición final, en las condiciones en que determinen los reglamentos respectivos.

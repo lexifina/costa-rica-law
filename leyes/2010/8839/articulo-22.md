@@ -1,0 +1,12 @@
+ARTÍCULO 22.- Medidas especiales
+El Ministerio de Salud, en coordinación con el Ministerio de Ambiente, Energía y Telecomunicaciones, podrá adoptar, vía reglamento o decreto ejecutivo, medidas para lo siguiente:
+a) Promover la importación, fabricación y comercialización de productos que favorezcan la gestión integral de residuos.
+b) Prohibir la importación de materiales cuya valorización o gestión integral sea limitada o inexistente en el país.
+c) Restringir o prohibir, en coordinación con los sectores y de acuerdo con las metas que se fijen al efecto, la importación, fabricación y comercialización de productos que dificulten el cumplimiento de las políticas nacionales para la gestión integral de residuos.
+d) Crear sistemas de depósito, devolución y retorno para los residuos de difícil valorización que no estén sujetos a un programa de manejo.
+e) Promover las estructuras de comercialización de residuos valorizables y de los productos de ellos obtenidos.
+f) Solicitar al productor o importador de un determinado producto, ante la duda razonable de que este pueda ocasionar daños a la salud y al ambiente, que utilice el análisis de ciclo de vida u otro instrumento de evaluación del riesgo, de conformidad con los estándares y requisitos que se establezcan vía reglamento. El propósito de esta medida es la observancia del principio precautorio, la autorización o no del ingreso de estos productos, su fabricación o comercialización en el país, así como la definición de los términos, los límites y las condiciones en que estas actividades podrán llevarse a cabo, en caso de ser autorizadas.
+g) Promover estructuras socialmente justas y ambientalmente adecuadas de comercialización de residuos valorizables y de los productos de ellos obtenidos, con la finalidad de evitar prácticas monopolísticas.
+h) Coordinar con las autoridades del Ministerio de Seguridad Pública, el Organismo de Investigación Judicial y las municipalidades la regulación de la comercialización de materiales valorizables. Se podrá restringir este tipo de actividad cuando esta promueva actos ilícitos contra bienes de dominio público o dedicado a un servicio público.
+i) Prohibir o limitar temporalmente la exportación de residuos cuando tengan valor estratégico para el país.
+El Ministerio de Salud queda autorizado para coordinar con otros ministerios o entes públicos, vía reglamento o decreto ejecutivo, las medidas especiales necesarias para el cumplimiento de esta Ley.
