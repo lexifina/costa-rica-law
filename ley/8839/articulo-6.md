@@ -1,0 +1,16 @@
+ARTÍCULO 6.- Definiciones
+Para los efectos de esta Ley se define lo siguiente:
+Análisis de ciclo de vida: herramienta para evaluar el desempeño ambiental de un sistema o proceso, promover mejoras para un producto o servicio y tomar una decisión enfocada en las diferentes etapas desde la extracción de recursos hasta el fin de su vida útil.
+(Corregida la definición anterior mediante Fe de Erratas, y publicada en La Gaceta Nº 153 del 9 de agosto de 2010)
+Generador: persona física o jurídica, pública o privada, que produce residuos al desarrollar procesos productivos, agropecuarios, de servicios, de comercialización o de consumo.
+Gestión integral de residuos: conjunto articulado e interrelacionado de acciones regulatorias, operativas, financieras, administrativas, educativas, de planificación, monitoreo y evaluación para el manejo de los residuos, desde su generación hasta la disposición final.
+Gestor: persona física o jurídica, pública o privada, encargada de la gestión total o parcial de los residuos, y autorizada conforme a lo establecido en esta Ley o sus reglamentos.
+Manejo integral: medidas técnicas y administrativas para cumplir los mandatos de esta Ley y su Reglamento.
+Producción más limpia: estrategia preventiva integrada que se aplica a los procesos productivos, productos y servicios, a fin de aumentar la eficiencia y reducir los riesgos para los seres humanos y el ambiente.
+Residuos de manejo especial: son aquellos que por su composición, necesidades de transporte, condiciones de almacenaje, formas de uso o valor de recuperación, o por una combinación de esos, implican riesgos significativos a la salud y degradación sistemática de la calidad del ecosistema, por lo que requieren salir de la corriente normal de residuos ordinarios.
+Residuo: material sólido, semisólido, líquido o gas, cuyo generador o poseedor debe o requiere deshacerse de él, y que puede o debe ser valorizado o tratado responsablemente o, en su defecto, ser manejado por sistemas de disposición final adecuados.
+Residuos peligrosos: son aquellos que por su reactividad química y sus características tóxicas, explosivas, corrosivas, radioactivas, biológicas, bioinfecciosas e inflamables, o que por su tiempo de exposición puedan causar daños a la salud y al ambiente.
+Residuos ordinarios: residuos de carácter doméstico generados en viviendas y en cualquier otra fuente, que presentan composiciones similares a los de las viviendas. Se excluyen los residuos de manejo especial o peligroso, regulados en esta Ley y en su Reglamento.
+Separación: procedimiento mediante el cual se evita desde la fuente generadora que se mezclen los residuos, para facilitar el aprovechamiento de materiales valorizables y se evite su disposición final.
+Valorización: conjunto de acciones asociadas cuyo objetivo es recuperar el valor de los residuos para los procesos productivos, la protección de la salud y el ambiente.
+Reciclaje: transformación de los residuos por medio de distintos procesos de valorización que permiten restituir su valor económico y energético, evitando así su disposición final, siempre y cuando esta restitución implique un ahorro de energía y materias primas sin perjuicio para la salud y el ambiente.

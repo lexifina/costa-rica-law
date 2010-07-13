@@ -1,0 +1,3 @@
+ARTÍCULO 9.- Construcción participativa
+Para la formulación de la política, el plan y los reglamentos técnicos, el Ministerio de Salud deberá garantizar la participación de los sectores vinculados a la gestión integral de residuos en el ámbito nacional, y quedan facultados para crear las comisiones ad hoc que consideren necesarias para el cumplimiento de los objetivos de esta Ley.
+El Reglamento de esta Ley desarrollará las disposiciones para la participación de las personas y de las organizaciones legalmente constituidas, para la construcción participativa de los instrumentos descritos en el párrafo anterior, tendientes a proteger y mejorar el ambiente, en cumplimiento de esta Ley.

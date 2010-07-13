@@ -1,0 +1,2 @@
+TRANSITORIO VI.-
+En el plazo de un año a partir de la publicación de esta Ley, las proveedurías de las instituciones de la Administración Pública, empresas públicas y municipalidades deberán incluir en los carteles de licitación o de compra directa criterios ambientales y de ciclo de vida de los productos para la valoración de las licitaciones, de conformidad con los criterios establecidos en el Reglamento de esta Ley.
