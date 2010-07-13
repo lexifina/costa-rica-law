@@ -1,10 +1,1 @@
-ARTICULO 283.- Queda prohibida la recuperación de desechos y
-residuos sólidos en lugares no aprobados por la autoridad de salud para
-tales efectos.
-Las personas naturales o jurídicas que se ocupen de la
-recuperación, aprovechamiento, comercio o industrialización de tales
-materias, deberán solicitar permiso previo a la autoridad de salud y ésta
-podrá otorgarlo cuando se compruebe que los trabajos de selección,
-recolección y aprovechamiento de los desechos y residuos no impliquen
-peligro de contaminación del ambiente o riesgos para la salud de las
-personas que trabajan en tales faenas o de terceros.
+ARTICULO 283.- (Derogado por el artículo 59 (actual 64) aparte a) de la ley para la Gestión Integral de Residuos, N° 8839 del 24 de junio de 2010)

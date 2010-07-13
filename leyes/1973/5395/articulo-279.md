@@ -1,5 +1,1 @@
-ARTICULO 279.- Queda prohibido a toda persona natural o jurídica
-arrojar o acumular desechos sólidos en lugares no autorizados para el
-efecto, utilizar medios inadecuados para su transporte y acumulación y
-proceder a su utilización, tratamiento o disposición final mediante
-sistemas no aprobados por el Ministerio.
+ARTICULO 279.- (Derogado por el artículo 59 (actual 64) aparte a) de la ley para la Gestión Integral de Residuos, N° 8839 del 24 de junio de 2010)
