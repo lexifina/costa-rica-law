@@ -1,0 +1,9 @@
+Artículo 4º—Etapas del procedimiento. El procedimiento constará de 8 etapas para su análisis sin que exista un orden previo de ejecución, aun cuando se sugiere aplicar en el orden propuesto, a saber:
+1) La primera consistirá en realizar un análisis a los contribuyentes no traspasados, crear expedientes para eliminar datos duplicados o incluir datos faltantes.
+2) La segunda en un análisis de los números de cédula, buscando inconsistencias en el uso de las mismas. Ya sean cédulas físicas como jurídicas y pasaportes.
+3) La tercera consistirá en un análisis de los nombres de las personas registradas en la Base de Datos, de manera duplicada pera con diferente número de cédula.
+4) La cuarta consistirá en un estudio de inconsistencias en el Impuesto sobre Bienes Inmuebles, en donde por cada análisis que se realice partiendo de este tributo, implicará de manera obligatoria, analizar la aplicación de los servicios que por definición institucional se brindan en el sector donde se ubica la finca en análisis
+5) La quinta consistirá en el estudio de inconsistencias en el cobro por servicios municipales, en donde por cada análisis que se realice partiendo de este tributo, implicará de manera obligatoria, analizar la aplicación de los servicios que por definición institucional se brindan en el sector donde se ubica la finca en análisis.
+6) Pendientes de bienes inmuebles, analizando inconsistencias de los pendientes que tenga la base de datos, para eliminar aquellos que no se puedan relacionar con una propiedad.
+7) Fincas inexistentes, se realizara un estudio para poder eliminar todas aquellas fincas que por error han generado pendientes pero no existen en el registro público o no tengan documentación para corroborar su existencia.
+8. Cualquier otra que a criterio del Encargado de Informática sea conveniente analizar y que cuente con la debida aprobación por parte de los responsables.
