@@ -1,0 +1,1 @@
+ARTÍCULO 54.- Cancelación de permisos y licencias. El Ministerio de Salud podrá suspender, revocar o cancelar las licencias, los permisos y los registros necesarios para la realización de las actividades que hayan dado lugar a la comisión de la infracción.

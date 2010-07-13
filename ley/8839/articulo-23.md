@@ -1,0 +1,7 @@
+ARTÍCULO 23.- Participación ciudadana
+El Ministerio de Salud y las municipalidades, en el marco de sus competencias, promoverán la participación de todas las personas en forma activa, consciente, informada y organizada en la gestión integral de residuos. Para ello deberán:
+a) Convocar, fomentar y apoyar la conformación, consolidación y operación de grupos intersectoriales interesados en participar en el diseño e instrumentación de políticas y programas correspondientes.
+b) Apoyar a los grupos sociales organizados en la realización de programas, proyectos y otras iniciativas sociales para la gestión integral de residuos.
+c) Fomentar la aplicación de la presente Ley, mediante la realización de acciones conjuntas con la comunidad para la gestión integral de residuos, con énfasis en la valorización de los materiales contenidos en ellos. Para tal fin, podrán establecer convenios de cooperación con comunidades urbanas y rurales, instituciones académicas, micro y pequeñas empresas, cooperativas y otras formas de organización social, de la gestión integral de residuos.
+d) Fomentar y garantizar la participación ciudadana en el control y la fiscalización del cumplimiento de esta Ley, de la política y el Plan Nacional, así como de otros programas y proyectos en la materia.
+El Reglamento de esta Ley desarrollará las disposiciones para la participación de las personas y de las organizaciones legalmente constituidas, en la toma de decisiones y las acciones tendientes a proteger y mejorar el ambiente, en cumplimiento de esta Ley.

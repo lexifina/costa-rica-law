@@ -1,6 +1,1 @@
-ARTICULO 281.- Las empresas agrícolas, industriales y comerciales,
-deberán disponer de un sistema de separación y recolección, acumulación y
-disposición final de los desechos sólidos provenientes de sus
-operaciones, aprobado por el Ministerio cuando por la naturaleza, o
-cantidad de éstos, no fuere sanitariamente aceptable el uso del sistema
-público o cuando éste no existiere en la localidad.
+ARTICULO 281.- (Derogado por el artículo 59 (actual 64) aparte a) de la ley para la Gestión Integral de Residuos, N° 8839 del 24 de junio de 2010)
