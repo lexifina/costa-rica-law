@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Hacienda deberá cumplir con el trámite estipulado en los artículos 24 y siguientes del Decreto Nº 30720-H que es el “Reglamento para el Registro y Control de Bienes de la Administración Central” a fin de dar de baja en su inventario la propiedad que mediante este Decreto Ejecutivo se dona a la Municipalidad de Liberia.
