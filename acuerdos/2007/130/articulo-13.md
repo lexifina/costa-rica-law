@@ -13,6 +13,10 @@ a) Originado por situaciones especiales como:
 -Adjudicación judicial o extrajudicial en procesos de restitución de bienes, ejecución de garantías o distribución de bienes gananciales.
 -Laudo arbitral.
 -Error al asignar el código de inversionista en un contrato bursátil, cuando se demuestre que la asignación no se efectuó correctamente debido a problemas en los sistemas de asignación de contratos de las bolsas de valores y las sociedades de compensación y liquidación que presten el servicio.
+-Aporte de valores al Fideicomiso de garantía del Sistema de Pagos (SINPE).
+(Así adicionado el punto anterior mediante acuerdo SGV-A-173 del 14 de julio de 2010)
+-Devolución de valores del Fideicomiso de garantía del Sistema de Pagos (SINPE).
+(Así adicionado el punto anterior mediante acuerdo SGV-A-173 del 14 de julio de 2010)
 (*)b) En el caso de fondos de pensión, originado por situaciones especiales como: [1]
 1 Inciso acondicionado por el acuerdo del Superintendencia SGV-A-144 del 12 de marzo del 2008. Rige a partir del 14 de marzo del 2008 y modificado por el SGV-A-149 al ser las doce horas del catorce de octubre del dos mil ocho. Rige a partir del 20 de octubre de 2008.
 • Traslado del Fondo de capitalización laboral al Régimen obligatorio de pensiones, siempre y cuando el dinero se mantenga en la misma Operadora de pensiones.
