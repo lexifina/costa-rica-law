@@ -1,0 +1,371 @@
+Nº 36080-H
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978 y sus reformas; la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre de 2001 y sus reformas; su Reglamento, el Decreto Ejecutivo Nº 32988-H-MP-PLAN del 31 de enero de 2006 y sus reformas y la Ley Nº 8790, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del Año 2010 de 8 de diciembre de 2009 y sus reformas.
+Considerando:
+1º—Que el inciso b) del artículo 45 de la Ley Nº 8131, publicada en La Gaceta Nº 198 de 16 de octubre de 2001 y sus reformas, autoriza al Poder Ejecutivo a realizar las modificaciones presupuestarias no contempladas en el inciso a) del mismo artículo, según la reglamentación que se dicte para tal efecto.
+2º—Que mediante el Decreto Ejecutivo Nº 32988-H-MP-PLAN, publicado en La Gaceta Nº 74 de 18 de abril de 2006 y sus reformas, se establece la normativa técnica, referente a las modificaciones presupuestarias que el Gobierno de la República y sus dependencias pueden efectuar a través de Decreto Ejecutivo.
+3º—Que el artículo 61 del Decreto Ejecutivo Nº 32988-H-MP-PLAN citado, autoriza para que mediante decreto ejecutivo elaborado por el Ministerio de Hacienda, se realicen traspasos de partidas presupuestarias entre los gastos autorizados en las leyes de presupuesto ordinario y extraordinario de la República del ejercicio que se tratare, sin modificar el monto total de los recursos asignados al programa.
+4º—Que el Ministerio de Hacienda ha solicitado la confección de este decreto ejecutivo, mediante oficio DM-3030-2010, cumpliendo en todos los extremos con lo dispuesto en la normativa técnica y legal vigente.
+5º—Que se hace necesario realizar la presente modificación presupuestaria a efectos de contratar la Creación de la Imagen Corporativa del Ministerio de Hacienda y atender otras necesidades de carácter ineludible para la Institución. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el artículo 2 de la Ley Nº 8790, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del Año 2010, publicada en el Alcance Nº 52 a La Gaceta Nº 254 de 31 de diciembre de 2009 y sus reformas, en la forma en que se indica a continuación:
+REBAJAR
+Título: 206
+Ministerio de Hacienda
+Programa: 132-00
+ADMINISTRACIÓN SUPERIOR
+Registro Contable: 206-132-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 133.316.250
+001 REMUNERACIONES BÁSICAS 133.316.250
+00101 001 1111 1112 SUELDOS PARA CARGOS FIJOS 133.316.250
+1 SERVICIOS 168.800.000
+101 ALQUILERES 168.800.000
+10101 001 1120 1112 ALQUILER DE EDIFICIOS,
+LOCALES Y TERRENOS 168.800.000
+Total Rebaja
+del Programa: 132-00 302.116.250
+Programa: 134-00
+ADMINISTRACIÓN DE INGRESOS
+Subprograma/Proyecto: 03
+GESTIÓN ADUANERA
+Registro Contable: 206-134-03
+1 SERVICIOS 4.500.000
+104 SERVICIOS DE GESTIÓN Y APOYO 4.500.000
+10406 001 1120 1112 SERVICIOS GENERALES
+(PARA PAGO DE CONTRATOS
+DE MANTENIMIENTO DE
+ZONAS VERDES, SEGURIDAD,
+LIMPIEZA Y OTROS). 4.500.000
+Total Rebaja
+del Subprograma/Proyecto: 134-03 4.500.000
+Total Rebaja
+del Programa: 134-00 4.500.000
+Total Rebaja
+del Título: 206 306.616.250
+Total Rebajar 306.616.250
+AUMENTAR
+Título: 206
+Ministerio de Hacienda
+Programa: 132-00
+ADMINISTRACIÓN SUPERIOR
+Registro Contable: 206-132-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 REMUNERACIONES 115.000.000
+001 REMUNERACIONES BÁSICAS 15.000.000
+00101 001 1111 1112 SUELDOS PARA CARGOS FIJOS 15.000.000
+002 REMUNERACIONES EVENTUALES 100.000.000
+00201 001 1111 1112 TIEMPO EXTRAORDINARIO 100.000.000
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS 168.800.000
+104 SERVICIOS DE GESTIÓN
+Y APOYO 168.800.000
+10402 001 1120 1112 SERVICIOS JURÍDICOS
+(CON EL PROPÓSITO DE
+CONTRATAR SERVICIOS
+JURÍDICOS EN MATERIA
+ADUANERA, TRIBUTARIA Y
+DERECHO ADMINISTRATIVO). 58.000.000
+10404 001 1120 1112 SERVICIOS EN CIENCIAS
+ECONÓMICAS Y SOCIALES
+(PARA CONTRATACIÓN
+DE SERVICIOS
+PROFESIONALES
+PARA LA CREACIÓN DE
+LA IMAGEN
+CORPORATIVA DEL
+MINISTERIO DE HACIENDA). 104.800.000
+10499 001 1120 1112 OTROS SERVICIOS
+DE GESTIÓN Y APOYO
+(RECURSOS DESTINADOS
+PARA LA ADQUISICIÓN DEL
+SERVICIO DE MONITOREO
+DEL EDIFICIO CENTRAL DEL
+MINISTERIO DE HACIENDA) 6.000.000
+6 TRANSFERENCIAS CORRIENTES 18.316.250
+603 PRESTACIONES 18.316.250
+60399 001 1320 1112 OTRAS PRESTACIONES
+(PREVISIÓN PARA PAGO
+DE SUBSIDIOS POR
+CONCEPTO DE
+INCAPACIDAD DE
+FUNCIONARIOS). 18.316.250
+Total Aumento
+del Programa: 132-00 302.116.250
+Programa: 134-00
+ADMINISTRACIÓN DE INGRESOS
+Subprograma/Proyecto: 03
+GESTIÓN ADUANERA
+Registro Contable: 206-134-03
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS 4.500.000
+103 SERVICIOS COMERCIALES
+Y FINANCIEROS 4.500.000
+10305 001 1120 1112 SERVICIOS ADUANEROS 4.500.000
+Total Aumento del
+Subprograma/Proyecto: 134-03 4.500.000
+Total Aumento del
+Programa: 134-00 4.500.000
+Total Aumento
+del Título: 206 306.616.250
+Total Aumentar 306.616.250
+REBAJAR
+206 - Ministerio de Hacienda
+RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2010
+Cuota Cuota
+Código Clase Detalle de los puestos Mensual Anual
+206.132 ADMINISTRACIÓN SUPERIOR
+206.132-00.01 UNIDAD DE DIR. Y ADM. 133.316.250
+206.132-00.01.0001 OFICINA DEL MINISTRO 133.316.250
+Cuota Cuota
+Código Clase Detalle de los puestos Mensual Anual
+11734 1 PROF. JEFE SERVICIO
+CIVIL 3 a
+736,600 Cls c/u (5.00 meses)
+(Puesto: 353849) 736,600 3.683.000
+11733 1 PROF. JEFE SERVICIO
+CIVIL 2 a
+673,850 Cls c/u (5.50 meses)
+(Puesto: 1322) 673,850 3.706.175
+11733 1 PROF. JEFE SERVICIO
+CIVIL 2 a
+673,850 Cls c/u (5.50 meses)
+(Puesto: 353850) 673,850 3.706.175
+11732 1 PROF. JEFE SERVICIO
+CIVIL 1 a
+633,250 Cls c/u (5.50 meses)
+(Puesto: 8811) 633,250 3.482.875
+11731 1 PROFESIONAL SERVICIO
+CIVIL 3 a
+574,700 Cls c/u (5.00 meses)
+(Puesto: 353863) 574,700 2.873.500
+11731 1 PROFESIONAL SERVICIO
+CIVIL 3 a
+574,700 Cls c/u (5.50 meses)
+(Puesto: 353957) 574,700 3.160.850
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 353867) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360322) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360323) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360324) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360325) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360326) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360327) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360328) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360329) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360330) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.00 meses)
+(Puesto: 360331) 527,900 2.639.500
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 9118) 527,900 2.903.450
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 98355) 527,900 2.903.450
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 108738) 527.900 2.903.450
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 351223) 527.900 2.903.450
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 353953) 527.900 2.903.450
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 353955) 527.900 2.903.450
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 353986) 527.900 2.903.450
+11730 1 PROFESIONAL SERVICIO
+CIVIL 2 a
+527,900 Cls c/u (5.50 meses)
+(Puesto: 353994) 527.900 2.903.450
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 353969) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 353975) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 353976) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 353977) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 353978) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360332) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360333) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360334) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360335) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360336) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360337) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360338) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360339) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360340) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.00 meses)
+(Puesto: 360341) 464.600 2.323.000
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.50 meses)
+(Puesto: 110281) 464.600 2.555.300
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.50 meses)
+(Puesto: 112702) 464.600 2.555.300
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.50 meses)
+(Puesto: 353973) 464.600 2.555.300
+11729 1 PROFESIONAL SERVICIO
+CIVIL 1-B a
+464,600 Cls c/u (5.50 meses)
+(Puesto: 353974) 464.600 2.555.300
+11728 1 PROFESIONAL SERVICIO
+CIVIL 1-A a
+393,750 Cls c/u (5.00 meses)
+(Puesto: 353990) 393.750 1.968.750
+11728 1 PROFESIONAL SERVICIO
+CIVIL 1-A a
+393,750 Cls c/u (5.00 meses)
+(Puesto: 353991) 393.750 1.968.750
+11728 1 PROFESIONAL SERVICIO
+CIVIL 1-A a
+393,750 Cls c/u (5.00 meses)
+(Puesto: 353992) 393.750 1.968.750
+11728 1 PROFESIONAL SERVICIO
+CIVIL 1-A a
+393,750 Cls c/u (5.00 meses)
+(Puesto: 353993) 393.750 1.968.750
+11728 1 PROFESIONAL SERVICIO
+CIVIL 1-A a
+393,750 Cls c/u (5.00 meses)
+(Puesto: 353996) 393.750 1.968.750
+11728 1 PROFESIONAL SERVICIO
+CIVIL 1-A a
+393,750 Cls c/u (5.50 meses)
+(Puesto: 353995) 393.750 2.165.625
+10615 1 OFICINISTA DE SERVICIO
+CIVIL 1 a
+213,400 Cls c/u (5.00 meses)
+(Puesto: 47388) 213.400 1.067.000
+10333 1 OFICIAL DE SEG.
+DE SERV. CIVIL 1 a
+209,000 Cls c/u (5.50 meses)
+(Puesto: 10255) 209.000 1.149.500
+10333 1 OFICIAL DE SEG.
+DE SERV. CIVIL 1 a
+209,000 Cls c/u (5.50 meses)
+(Puesto: 10773) 209.000 1.149.500
+TOTAL REBAJAR
+SUELDOS PROGRAMA: 132
+ADMINISTRACIÓN
+SUPERIOR 133.316.250
+TOTAL REBAJAR
+SUELDOS TÍTULO: 206
+MINISTERIO DE
+HACIENDA 133.316.250
+TOTAL REBAJAR
+SUELDOS 133.316.250
+AUMENTAR
+206 Ministerio de Hacienda
+206.132 ADMINISTRACIÓN SUPERIOR
+180 101 PARA DAR FINANC. A RESOL.
+DE REASIG. ASIGNAC. Y
+REAJ. DE SALARIOS,
+EMITIDAS POR
+LA DGSC, AUTORID.
+PRESUP. LOS PODERES Y
+SUS ÓRGANOS AUX.,
+ASÍ COMO EL T.S.E.,
+PROD. DE EST. INDIVID.
+DE PUESTOS Y
+REESTR. INSTIT.
+(A DISTRIB. POR RESOL.
+ADMINIST. APROB.
+POR DGPN) 15.000.000
+TOTAL AUMENTAR
+SUELDOS PROGRAMA: 132
+ADMINISTRACIÓN SUPERIOR 15.000.000
+TOTAL AUMENTAR
+SUELDOS TÍTULO: 206
+MINISTERIO DE HACIENDA 15.000.000
+TOTAL AUMENTAR SUELDOS 15.000.000
