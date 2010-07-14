@@ -19,3 +19,4 @@ Reglamento de Organización de la Fábrica Nacional de Licores
 | 4 | 2006-05-03 | Acuerdo 36593 (2006-05-03) |
 | 5 | 2006-08-30 | Reglamento 2647 (2006-08-30) |
 | 6 | 2010-04-21 | Reglamento 2768 (2010-04-21) |
+| 7 | 2010-07-14 | Reglamento 2771 (2010-07-14) |
