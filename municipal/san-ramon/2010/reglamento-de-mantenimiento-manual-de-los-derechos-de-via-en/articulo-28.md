@@ -1,0 +1,2 @@
+Artículo 28.—Convergencia de Aguas. Será obligación de los vecinos implicados en áreas donde haya convergencia, proceder con el encausamiento de las aguas dentro de sus propios terrenos.
+Para proceder a dichas canalizaciones los vecinos deberán solicitar por escrito la correspondiente asesoría técnica a la Unidad Técnica de Unidad de Gestión Vial Municipal, que deberá brindarla en plazo no mayor a los 10 días hábiles.
