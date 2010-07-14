@@ -1,0 +1,1 @@
+Artículo 14.—Presentación extemporánea del formulario. Aquellos formularios de solicitud de inscripción de candidaturas que se presenten fuera del plazo indicado en el artículo anterior, se tendrán por extemporáneos y serán rechazados de plano mediante resolución emitida por la Dirección.

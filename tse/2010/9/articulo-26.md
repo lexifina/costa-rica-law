@@ -1,0 +1,1 @@
+Artículo 26.—Firma del acta de distribución de las posiciones en las papeletas. Una vez definida la posición del partido político participante en la papeleta, el representante del partido deberá firmar el “Acta de distribución de las posiciones en las papeletas”.

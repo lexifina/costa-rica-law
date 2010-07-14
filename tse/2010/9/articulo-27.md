@@ -1,0 +1,1 @@
+Artículo 27.—Diseño individual de las diferentes papeletas. Finalizado el sorteo, se preparará un diseño específico de las diferentes papeletas, el cual será mostrado a los presentes utilizando los medios disponibles que permitan visualizar la posición obtenida por cada partido.

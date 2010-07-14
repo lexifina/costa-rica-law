@@ -1,0 +1,1 @@
+Artículo 25.—Los partidos políticos sin representación en el sorteo. En caso de que un partido político no designe representante, corresponderá al Director General hacer girar la esfera y tomar la balota que definirá la posición de ese partido.

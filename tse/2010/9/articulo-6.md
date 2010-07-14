@@ -1,0 +1,1 @@
+Artículo 6º—Inscripción de domicilio electoral. Los plazos de inscripción electoral previa establecidos en los artículos 15 inciso c) y 22 inciso c) del Código Municipal se contarán en relación con la fecha en la que se deba asumir el cargo.

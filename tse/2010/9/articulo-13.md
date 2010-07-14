@@ -1,0 +1,1 @@
+Artículo 13.—Plazo para la presentación del formulario. Los formularios de inscripción de candidaturas serán presentados en el periodo comprendido entre el día en que el Tribunal Supremo de Elecciones realice la convocatoria a elecciones y hasta tres meses y quince días naturales antes del día de la elección que corresponda.

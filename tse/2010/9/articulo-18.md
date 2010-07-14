@@ -1,0 +1,4 @@
+CAPÍTULO V
+Notificaciones y régimen recursivo
+Artículo 18.—Notificación de las resoluciones o autos dictados por la Dirección General del Registro Electoral y Financiamiento de Partidos Políticos. Las resoluciones que dicte la Dirección en materia de inscripción de candidaturas serán notificadas mediante exposición en estrados de copia literal de la resolución, durante un mínimo de cinco horas de labor ordinaria correspondientes al mismo día, de conformidad con lo dispuesto en los artículos 10 inciso b) del Código Electoral y 104 párrafo segundo de la Ley Orgánica del Tribunal Supremo de Elecciones y Registro Civil.
+Sin perjuicio de lo anterior, se publicará la resolución en la página Web del Tribunal y se enviará una copia a aquellos partidos que señalen correo electrónico para tales efectos, en el entendido de que la remisión de esa copia no se equipara ni sustituye el procedimiento de notificación por estrados indicado en el párrafo anterior de este artículo.

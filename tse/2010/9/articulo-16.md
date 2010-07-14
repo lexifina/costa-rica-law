@@ -1,0 +1,1 @@
+Artículo 16.—Plazo para el cumplimiento de las prevenciones. Se concederá a los partidos políticos un plazo improrrogable de ocho días hábiles, contados a partir del día hábil siguiente a aquel en que se tenga por hecha la notificación, para dar cumplimiento a lo prevenido.

@@ -1,0 +1,1 @@
+Artículo 3º—Verificación de requisitos. La Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos (en adelante La Dirección), por intermedio del órgano que ésta designe, verificará el cumplimiento de los requisitos formales y legales exigidos por el ordenamiento jurídico para la inscripción de candidaturas en los procesos de elección popular.

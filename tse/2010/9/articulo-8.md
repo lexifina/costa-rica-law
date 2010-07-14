@@ -1,0 +1,1 @@
+Artículo 8º—Las nóminas para las candidaturas municipales. Se inscribirán las nóminas de candidaturas para puestos municipales aún cuando no contengan la totalidad de los candidatos correspondientes (resolución del Tribunal Nº 2430-E-2001 del 13/11/2001).

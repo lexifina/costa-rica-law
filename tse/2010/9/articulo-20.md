@@ -1,0 +1,1 @@
+Artículo 20.—Forma de contar los términos. Los términos se contarán a partir del día hábil siguiente a aquel en el que se tenga por notificada la resolución. Para efecto del cómputo de los plazos se considerarán solamente días hábiles.

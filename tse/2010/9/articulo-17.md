@@ -1,0 +1,1 @@
+Artículo 17.—Vencimiento del plazo. Vencido el plazo otorgado, si el partido político no cumple con lo dispuesto en la prevención, la Dirección resolverá sin más trámite lo que en derecho corresponda.
