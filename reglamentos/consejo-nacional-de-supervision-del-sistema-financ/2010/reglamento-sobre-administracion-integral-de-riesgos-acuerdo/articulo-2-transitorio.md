@@ -1,0 +1,1 @@
+Transitorio II.—Las entidades supervisadas disponen de 9 meses contados a partir de la entrada en vigencia de este Reglamento, para contar con el Manual de Administración Integral de Riesgos, según lo dispuesto en el artículo 11 de este Reglamento.

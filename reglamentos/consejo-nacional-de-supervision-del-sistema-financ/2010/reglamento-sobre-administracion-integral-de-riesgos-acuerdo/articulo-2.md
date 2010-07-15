@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones establecidas en el presente Reglamento son de aplicación para todas las entidades supervisadas por la Superintendencia General de Entidades Financieras (en adelante “SUGEF”).

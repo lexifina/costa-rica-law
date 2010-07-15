@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Unidad o función de riesgos
+Artículo 14.—Conformación de la Unidad o Función de Riesgos. Cada entidad financiera supervisada por la SUGEF deberá contar con una unidad o función de riesgos, cuya estructura y conformación sea adecuada a las características y perfil de riesgo de la entidad, la cual deberá ser independiente de las áreas comerciales y de negocios, a fin de evitar conflictos de interés y asegurar una adecuada separación de responsabilidades. La unidad o función de riesgos no podrá depender de la Auditoría Interna ni asumir funciones inherentes a esta dependencia, deberá contar con autonomía propia y reportar directamente al comité de riesgos.
+El personal de la unidad o función de riesgos debe poseer un perfil académico y experiencia que lo faculten para el desarrollo de las funciones dispuestas en el artículo 15 de este reglamento.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Gobierno Corporativo y Administración Integral de Riesgos
+Artículo 6º—Gobierno corporativo. En línea con las disposiciones establecidas en el Capítulo II y III del “Reglamento de Gobierno Corporativo”, es responsabilidad de la Junta Directiva o autoridad equivalente de cada entidad establecer las políticas y, en los casos que proceda, los procedimientos que regirán su proceso de Administración Integral de Riesgos, así como proveer las condiciones y estructuras necesarias que propicien una cultura de administración de riesgos que fluya hacia todas las instancias de la organización, incluyendo la vigilancia por parte de la Junta Directiva, u órgano equivalente en sus funciones, y de la administración superior de la entidad.

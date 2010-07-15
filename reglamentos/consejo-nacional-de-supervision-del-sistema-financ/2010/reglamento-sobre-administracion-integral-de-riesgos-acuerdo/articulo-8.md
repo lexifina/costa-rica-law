@@ -1,0 +1,6 @@
+Artículo 8º—Estructura para la administración integral de riesgos. La entidad debe establecer una estructura que le permita desarrollar el proceso de Administración Integral de Riesgos, la cual debe ser congruente con la naturaleza, complejidad y volumen de sus operaciones.
+Entre otros aspectos, pero no limitados a estos, la estructura que soporte el proceso de Administración Integral de Riesgos debe garantizar que:
+a) Exista una clara segregación entre la gestión normal del negocio y la gestión de la unidad de riesgo respecto de las funciones asociadas a la toma de riesgos. Debe aplicarse un juicio crítico sobre el equilibrio que debe existir entre la segregación de funciones y la integralidad que exige el proceso de administración de riesgos, de manera que lo primero no vaya en detrimento de lo segundo.
+b) Existan mecanismos de comunicación hacia lo interno de la entidad financiera de los alcances y resultados del proceso de Administración Integral de Riesgos, así como para determinar que su aplicación es efectiva.
+c) Se cuente con personal con los conocimientos y habilidades necesarios para desempeñar sus funciones dentro del proceso de administración de riesgos.
+d) El proceso provea tecnologías de información acordes con la sofisticación de las metodologías y de las actividades del proceso de Administración Integral de Riesgos.

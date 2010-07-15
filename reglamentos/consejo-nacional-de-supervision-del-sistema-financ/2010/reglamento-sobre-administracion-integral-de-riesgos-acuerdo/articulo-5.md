@@ -1,0 +1,1 @@
+Artículo 5º—Lineamientos generales. El Superintendente podrá emitir, mediante resolución razonada, los lineamientos generales que considere necesarios para la aplicación de este Reglamento. Estos lineamientos generales podrán ser modificados por el Superintendente.
