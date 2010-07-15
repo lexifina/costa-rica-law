@@ -1,5 +1,0 @@
-Artículo 71.- En la realización de eventos especiales y de
-espectáculos en los que acude el público en forma masiva, se deberá
-disponer de un sistema de almacenamiento y recolección de las basuras que
-ahí se generen, para lo cual la entidad organizadora deberá coordinar las
-acciones con la entidad de aseo.
