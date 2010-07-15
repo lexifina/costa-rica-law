@@ -1,0 +1,1 @@
+Artículo 76.—Es requisito además para el cierre por mantenimiento comunicarlo a los usuarios por medio de carteles, volantes o cualquier otro medio efectivo con al menos 15 días de anticipación al cierre.
