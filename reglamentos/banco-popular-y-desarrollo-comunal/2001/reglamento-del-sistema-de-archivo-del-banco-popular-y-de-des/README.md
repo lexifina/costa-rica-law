@@ -14,3 +14,4 @@ Reglamento del Sistema de Archivo del Banco Popular y de Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-15 | la propia norma |
+| 2 | 2010-07-15 | Reglamento 4770 (2010-07-15) |

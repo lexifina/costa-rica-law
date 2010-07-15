@@ -1,4 +1,6 @@
+(Derogado)
 BANCO POPULAR Y DE DESARROLLO COMUNAL
+(Este Reglamento fue Derogado por el artículo 29 del Reglamento del Sistema Archivístico Institucional del Banco Popular y de Desarrollo Comunal aprobado en sesión Nº 4770 del 15 de julio de 2010)
 La Junta Directiva Nacional en sesión ordinaria No 3811, acordó por unanimidad:
 RECLAMENTO DEL SISTEMA DE ARCHIVO DEL
 BANCO POPULAR Y DE DESARROLLO COMUNAL
