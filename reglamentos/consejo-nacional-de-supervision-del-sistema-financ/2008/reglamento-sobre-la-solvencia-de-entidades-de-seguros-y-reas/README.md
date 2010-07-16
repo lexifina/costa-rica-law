@@ -14,3 +14,4 @@ Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-24 | la propia norma |
+| 2 | 2010-07-16 | Reglamento 865 (2010-07-16) |

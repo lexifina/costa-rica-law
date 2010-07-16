@@ -1,7 +1,5 @@
-Artículo 14.—Niveles de cumplimiento. Se definen los siguientes niveles de cumplimiento del régimen de solvencia:
-| Fórmula
-Nivel 1 | [imagen] [imagen] [imagen] [imagen]
-Nivel 2
-Nivel 3
-Nivel 4
-En los niveles 1, 2 y 3 el CB deberá ser mayor o igual a CM de lo contrario se considerará Nivel 4.
+Artículo 14. Niveles de cumplimiento
+Se definen los siguientes niveles de cumplimiento del índice de suficiencia de capital:
+[imagen]
+En los niveles 1, 2 y 3 el capital social más la reserva legal debe ser mayor o igual al CM, en caso de ser menor, se considerará Nivel 4.
+(Así reformado mediante el aparte a) de la sesión Nº 865-2010 del 16 de julio de 2010)

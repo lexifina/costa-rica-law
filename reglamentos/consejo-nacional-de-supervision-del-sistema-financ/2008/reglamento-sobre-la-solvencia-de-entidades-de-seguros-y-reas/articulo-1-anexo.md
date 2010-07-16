@@ -1,7 +1,8 @@
 ANEXO PT-1
 Cálculo de provisiones técnicas
 Provisión para primas no devengadas (PPND)
-El cálculo de la provisión de primas no consumidas (PPND) se realizará conforme a los siguientes parámetros:
+El cálculo de la provisión de primas no devengadas (PPND) se realizará conforme a los siguientes parámetros:
+(Así reformado el párrafo anterior mediante el aparte d) de la sesión Nº 865-2010 del 16 de julio de 2010)
 a) Método. La provisión de primas no devengadas deberá estar constituida por la fracción de las primas directas en el ejercicio que deba imputarse al período comprendido entre la fecha del cierre y el término del período de cobertura.
 La provisión de primas no devengadas se calculará póliza a póliza.
 b) Base de cálculo. La base de cálculo de esta provisión estará constituida por las primas comerciales del ejercicio, deducido el recargo de seguridad.
@@ -13,15 +14,24 @@ El cálculo de la provisión de riesgos en curso (PRC) se realizará conforme a 
 1) Método. El importe de la provisión de riesgos en curso se calculará por cada línea o producto comercial, entendiendo por tal la garantía concreta o el conjunto agrupado de garantías conectadas entre sí, que puedan referirse a los riesgos derivados de una misma clase de objeto asegurado. La metodología específica debe ser registrada ante la Superintendencia.
 2) Base de cálculo. En su cálculo se seguirán los siguientes lineamientos:
 a) El periodo de referencia será de dos años: el ejercicio al que se refiere el cálculo y el inmediato anterior.
-b) Se calculará la diferencia entre las siguientes magnitudes correspondientes al seguro directo, netas de reaseguro cedido:
-i. Con signo positivo: las primas devengadas, en el periodo de referencia, netas de recargos de seguridad y corregidas por la variación de la provisión de primas no devengadas. Debe ajustarse también por la provisión para primas pendientes de cobro constituida al cierre del último ejercicio por razón de las primas devengadas en dicho periodo de referencia. Asimismo, se incluirán con signo positivo los ingresos de las inversiones generados por los activos afectos a las provisiones técnicas del ramo o producto de que se trate y otros ingresos técnicos de acuerdo con la imputación realizada en la contabilidad.
-ii. Con signo negativo: exclusivamente por los siniestros ocurridos en el periodo de referencia, el importe de los siniestros pagados, los gastos imputables a las prestaciones y la provisión de prestaciones al término de dicho periodo. Asimismo, con signo negativo se incluirán los gastos de gestión y otros gastos técnicos, así como los gastos de inversiones generados por las inversiones afectas a las provisiones técnicas del ramo o producto de que se trate de acuerdo con la imputación realizada en la contabilidad.
+(*)b) Se calculará la diferencia entre las siguientes magnitudes correspondientes al seguro directo, netas de reaseguro cedido:
+i. Con signo positivo, los siguientes rubros:
+a. Las primas suscritas, en el periodo de referencia, netas de recargos de seguridad y corregidas por la variación de la provisión de primas no devengadas. Debe ajustarse también por la provisión para primas pendientes de cobro constituida al cierre del último ejercicio por razón de las primas suscritas en dicho periodo de referencia,
+b. Los ingresos de las inversiones generados por los activos afectos a las provisiones técnicas del ramo o producto de que se trate y
+c. Otros ingresos técnicos de acuerdo con la imputación realizada en la contabilidad.
+ii. Con signo negativo, los siguientes rubros:
+a. El importe pagado de los siniestros ocurridos al término en el periodo de referencia,
+b. Los gastos imputables a las prestaciones y la provisión de prestaciones al término del periodo de referencia y
+c. Los gastos de gestión y otros gastos técnicos, así como los gastos de inversiones generados por las inversiones afectas a las provisiones técnicas, del ramo o producto de que se trate de acuerdo con la imputación realizada en la contabilidad.
 iii. Las anteriores magnitudes recogerán acumuladamente las de todos los años que formen parte del periodo de referencia con la información al momento en que se realice el cálculo.
-c) Si la suma obtenida conforme a la letra b) anterior fuese negativa, se calculará el porcentaje que represente dicha diferencia respecto del volumen, en el periodo de referencia, de las primas devengadas por el seguro directo netas de reaseguro cedido, corregidas por la variación de la provisión de primas no devengadas y por la provisión para primas pendientes de cobro constituida al cierre del último ejercicio por razón de las primas devengadas en dicho periodo de referencia.
+(*)(Así reformado el punto b) anterior mediante el aparte e) de la sesión Nº 865-2010 del 16 de julio de 2010)
+c) Si la suma obtenida conforme a la letra b) anterior fuese negativa, se calculará el porcentaje que represente dicha diferencia respecto del volumen, en el periodo de referencia, de las primas suscritas por el seguro directo netas de reaseguro cedido, corregidas por la variación de la provisión de primas no devengadas y por la provisión para primas pendientes de cobro constituida al cierre del último ejercicio por razón de las primas devengadas en dicho periodo de referencia.
+(Así reformado el punto c) anterior mediante el aparte e) de la sesión Nº 865-2010 del 16 de julio de 2010)
 d) En el caso de que se calcule el porcentaje del inciso c) la cuantía por la que se dotará esta provisión será igual al valor absoluto resultante del producto de los factores siguientes:
 i. El porcentaje obtenido de acuerdo con el apartado c).
-ii. La provisión para primas no consumidas del seguro directo, netas de la misma provisión correspondiente al reaseguro cedido del ejercicio de cálculo.
+ii. La provisión para primas no devengadas del seguro directo (PPND), menos la porción de la provisión para primas no devengadas correspondiente al reaseguro cedido del ejercicio de cálculo.
 Si el porcentaje resultante de los cálculos anteriores no resultara adecuado, teniendo en cuenta evoluciones recientes y significativas de la siniestralidad o de la tarificación u otras circunstancias especiales que concurran en el producto de que se trate, la Superintendencia podrá modificar el citado porcentaje a petición de la entidad o de oficio mediante resolución motivada.
+(Así reformado el punto d) anterior mediante el aparte e) de la sesión Nº 865-2010 del 16 de julio de 2010)
 e) La provisión de riesgos en curso por operaciones de reaseguro aceptado deberá dotarse conforme a lo dispuesto en los apartados precedentes. No obstante, cuando las entidades no dispongan de la información sobre el año de ocurrencia del siniestro, podrá realizarse el cálculo atendiendo a la fecha comunicada por la entidad cedente.
 3) Informe actuarial. La entidad deberá presentar a la Superintendencia un informe actuarial, sobre la revisión necesaria de las bases técnicas para alcanzar la suficiencia de la prima, cuando durante dos ejercicios consecutivos sea necesario dotar la provisión regulada en este anexo. Dicho informe debe al menos identificar las causas que han provocado la insuficiencia, las medidas adoptadas por la entidad y el plazo estimado en el que surtirán efecto.
 ANEXO PT-3
