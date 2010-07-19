@@ -14,3 +14,4 @@ Reglamento Orgánico de la Contraloría General de la República (RES-R-CO-34-20
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-01 | la propia norma |
+| 2 | 2010-07-19 | Reglamento 123 (2010-07-19) |
