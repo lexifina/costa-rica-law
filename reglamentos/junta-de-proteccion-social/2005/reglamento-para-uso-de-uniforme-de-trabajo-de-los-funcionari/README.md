@@ -16,3 +16,4 @@ Reglamento para Uso de Uniforme de Trabajo de los Funcionarios de la Junta de Pr
 | 1 | 2005-05-30 | la propia norma |
 | 2 | 2005-08-16 | Reglamento 30 (2005-08-16) |
 | 3 | 2009-02-17 | Ley 8718 |
+| 4 | 2010-07-20 | Reglamento 23 (2010-07-20) |

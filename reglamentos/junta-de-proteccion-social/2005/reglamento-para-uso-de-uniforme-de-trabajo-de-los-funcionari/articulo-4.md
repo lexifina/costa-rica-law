@@ -51,7 +51,7 @@ ll. Inspectores de loterías
  Un abrigo tipo jacket, impermeable o semi-impermeable.
  Un par de zapatos con suela antiderrapante.
 m. Funcionarios asistentes a sorteos de loterías (anotadores y cantantes)
- Un chaleco sencillo sin bolsillos (para hombre o mujer, según el caso).
- Dos camisas o blusas blancas, manga corta.
- Un pantalón gris o negro.
- Una corbata roja con el logotipo de la institución incorporado.
+• Dos camisas o blusas, manga corta, color blanco
+• Dos pantalones color gris
+• Dos corbatas o pañoletas, color rojo
+(Así reformado el inciso m) anterior mediante sesión Nº 23-2010 del 20 de julio de 2010)
