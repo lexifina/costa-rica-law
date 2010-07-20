@@ -1,0 +1,1 @@
+Artículo 15.—El quórum de la Junta Directiva se formará con tres de sus miembros. Los acuerdos se tomarán con la mayoría de los votos presentes; salvo los acuerdos “en forme” que requieren de un mínimo de cuatro personas. En caso de empates, el Presidente tendrá voto de calidad.

@@ -1,0 +1,1 @@
+Artículo 20.—Al inicio de cada sesión, sea está ordinaria o extraordinaria, los miembros de la Junta Directiva aprobarán por simple mayoría, el orden del día, el cual deberá ser respetado durante el desarrollo de la sesión; salvo que se apruebe moción para alterar la agenda del día.

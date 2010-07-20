@@ -1,0 +1,1 @@
+Artículo 3º—Previo a la creación de una Filial, se requerirá presentar una solicitud formal a la Junta Directiva del Colegio, firmada, por los colegiados de la región correspondiente. La Junta Directiva del Colegio se reservará el derecho de aceptar o denegar la solicitud.

@@ -1,0 +1,1 @@
+Artículo 28.—El Colegio podrá aportar una asignación presupuestaria a cada Filial, la cual no podrá ser mayor del % de las cuotas que les corresponde cubrir a los Contadores Públicos Autorizados Miembros de la Filial.

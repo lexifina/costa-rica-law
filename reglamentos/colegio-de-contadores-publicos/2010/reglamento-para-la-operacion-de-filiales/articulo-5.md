@@ -1,0 +1,1 @@
+Artículo 5º—Aprobada la solicitud para la creación de la Filial por parte de la Junta Directiva del Colegio, se deberá efectuar una Asamblea Constitutiva, con la presencia de los colegiados integrantes de la región. En dicha Asamblea se procederá a elegir la Junta Directiva de la Filial.

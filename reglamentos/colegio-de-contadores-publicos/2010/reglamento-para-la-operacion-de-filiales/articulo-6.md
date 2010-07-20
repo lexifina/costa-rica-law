@@ -1,0 +1,3 @@
+Artículo 6º—Podrán ser miembros de la Filial los colegiados que residan y/o ejerzan la profesión en la Zona de influencia de la Filial. Para ello deben llenar y firmar la correspondiente fórmula de afiliación.
+No podrá ser miembro de ninguna Filial, el colegiado que por cualquier motivo esté suspendido del Colegio, Cuando la Junta Directiva del Colegio, acuerde la suspensión de algún miembro, hará el correspondiente comunicado a las Filiales, para que procedan a desinscribirlo de su nómina, si es que se encuentra afiliado a alguna de ellas.
+Ningún miembro del Colegio podrá pertenecer a dos o más Filiales al mismo tiempo.

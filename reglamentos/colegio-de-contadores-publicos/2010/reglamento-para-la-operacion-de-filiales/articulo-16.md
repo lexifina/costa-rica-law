@@ -1,0 +1,1 @@
+Artículo 16.—La ausencia injustificada de cualquier de los miembros a tres sesiones consecutivas o alternas en un periodo de seis meses, dará lugar para que la Junta Directiva de la Filial requiera su sustitución ante la Junta Directiva del Colegio por el resto del periodo, haciendo mención del candidato propuesto.

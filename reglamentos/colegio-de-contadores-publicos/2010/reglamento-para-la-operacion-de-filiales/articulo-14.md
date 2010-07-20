@@ -1,0 +1,1 @@
+Artículo 14.—Los integrantes de la Junta Directiva de la Filial serán nombrados para un periodo de dos años y podrán ser reelectos, en forma consecutiva por una única vez. No existiendo limitación para que ocupen puestos en ésta.

@@ -1,0 +1,1 @@
+Artículo 2º—En adelante, se menciona la palabra Colegio, en referencia al Colegio de Contadores Públicos de Costa Rica y Filiales en referencia a las Filiales del Colegio de Contadores Públicos de Costa Rica.
