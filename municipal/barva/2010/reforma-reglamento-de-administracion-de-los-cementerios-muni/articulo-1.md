@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE BARVA
+EL Concejo Municipal mediante el acuerdo Nº 811-2010, adoptado en su sesión ordinaria Nº 40-2010, aprueban la modificación al artículo 16 del Reglamento Procedimientos de Administración de los Cementerios Municipales del Cantón de Barva, para que de ahora en adelante se lea de la siguiente forma:
+Artículo 16.—Salvo acuerdo de partes se tendrá por aceptado como plazo de arrendamiento de parcelas, nichos comunes o nichos municipales de alquiler un periodo de 5 años prorrogables por periodos iguales de manera indefinida y contados a partir de la firma del otorgamiento del derecho. En el caso de los derechos prorrogables si el titular, previamente intimidado por la Municipalidad no ejecuta la prorroga, el derecho de arrendamiento de cementerio volverá a poder de la Municipalidad quien determinará lo que corresponda.
+Barva, 6 de julio del 2010.—
