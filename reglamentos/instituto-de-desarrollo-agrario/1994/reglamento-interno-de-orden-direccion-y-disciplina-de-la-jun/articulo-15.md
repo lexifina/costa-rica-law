@@ -1,1 +1,1 @@
-Articulo 15.—Cuando por razones de oportunidad, mérito y conveniencia se requiera ejecutar en forma inmediata un acuerdo tomado en la sesión, por decisión de la mayoría de los presentes, se podrá dejar constancia en el acta respectiva y ordenar la ejecución inmediata del acuerdo.
+Artículo 15.—Cuando por razones de oportunidad, mérito y conveniencia se requiera ejecutar en forma inmediata un acuerdo tomado en le sesión, por decisión de la mayoría de los presentes, se podrá dejar constancia en el acta respectiva y ordenar la ejecución inmediata del acuerdo.

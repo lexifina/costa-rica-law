@@ -15,3 +15,4 @@ Reglamento Interno de Orden, Dirección y Disciplina de la Junta Directiva Insti
 | --- | --- | --- |
 | 1 | 1994-08-29 | la propia norma |
 | 2 | 2010-05-24 | Reglamento 19 (2010-05-24) |
+| 3 | 2010-07-20 | Reglamento 21 (2010-07-20) |

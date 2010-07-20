@@ -1,1 +1,1 @@
-Artículo 22.—Los documentos o comunicaciones que deban ser conocidos por la Junta Directiva y cuya presentación y resolución esté sujeta a término, se entregarán directamente al Secretario General o al Presidente para que éste sin dilación alguna lo someta al conocimiento de la Junta.
+Artículo 22.—Los documentos o comunicaciones que deban ser reconocidos por la Junta Directiva y cuya presentación y resolución esté sujeta a término, se entregarán directamente al Secretario (a) General o al Presidente para que éste sin dilación alguna lo someta al conocimiento de la Junta.

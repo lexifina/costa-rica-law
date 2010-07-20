@@ -1,1 +1,1 @@
-Artículo 28.—El Director que hubiere emitido un voto particular sobre cualquier acuerdo de la Junta , tendrá derecho a que su voto conste en el acta. También tiene derecho a que se consigne en el acta su voto positivo o negativo.
+Artículo 28.—El Director o Directora que hubiere emitido un voto particular sobre cualquier acuerdo de la Junta , tendrá derecho a que su voto conste en el acta. También tiene derecho a que se consigne en el acta su voto positivo o negativo.

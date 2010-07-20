@@ -1,1 +1,1 @@
-Artículo 20.—Tienen derecho los Directores de pedir al Presidente que se llame a cualquier funcionario de la Institución , para qué dé los informes, las explicaciones y asesoría que se requiera sobre los asuntos que se discuten.
+Artículo 20.—Tienen derecho las y los Directores de pedir al Presidente de la Junta Directiva que se llame a cualquier funcionario (a) de la Institución , para que dé los informes, las explicaciones y asesoría que se requiera sobre los asuntos que se discuten.

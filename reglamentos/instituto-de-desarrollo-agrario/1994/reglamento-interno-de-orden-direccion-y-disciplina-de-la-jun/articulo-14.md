@@ -1,4 +1,4 @@
-Artículo 14.—Para los efectos de sesionar válidamente y despachar los asuntos sometidos a su conocimiento, la Secretaría , en cada caso, corresponderá con el Presidente en la elaboración del orden del día, con arreglo al siguiente orden:
+Artículo 14.—Para los efectos de sesionar válidamente y despachar los asuntos sometidos a su conocimiento, la Secretaría en coordinación con la Presidencia de la Junta Directiva elaborará el orden del día, de acuerdo al siguiente orden:
 a) Discusión y aprobación del acta de la sesión anterior.
 b) La correspondencia.
 c) Informes de la Presidencia Ejecutiva.

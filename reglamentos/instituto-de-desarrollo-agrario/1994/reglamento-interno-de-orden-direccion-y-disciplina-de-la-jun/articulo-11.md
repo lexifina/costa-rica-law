@@ -1,2 +1,1 @@
-Artículo 11.—Si a los quince minutos después de la hora fijada para iniciar una sesión no hubiere quórum, ésta se pospondrá hasta la siguiente fecha.
-(El párrafo segundo original fue derogado por acuerdo N° 55 de la sesión N° 019 del 24 de mayo de 2010)
+Artículo 11.—Si a los quince minutos después de la hora fijada para iniciar una sesión no hubiere quórum, ésta se pospondrá hasta la siguiente fecha. (Modificado mediante el acuerdo Nº 55 de la Sesión Ordinaria Nº 19-2010 celebrada el 24 de mayo del 2010, publicado en La Gaceta N º 116 del 16 de junio de 2010.)
