@@ -19,3 +19,4 @@ Reglamento de Crédito
 | 4 | 2007-10-16 | Reglamento 41 (2007-10-16) |
 | 5 | 2008-03-13 | Reglamento 12 (2008-03-13) |
 | 6 | 2009-10-20 | Reglamento 46 (2009-10-20) |
+| 7 | 2010-07-20 | Reglamento 29 (2010-07-20) |
