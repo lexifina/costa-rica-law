@@ -3,13 +3,15 @@ Aprobar, de conformidad con lo que se copia a continuación y con fundamento en 
 1.- A partir del cese de funciones del Regulador General y la Junta Directiva, el Gerente General asumirá las funciones que considere apropiadas y necesarias para garantizar la continua y eficiente prestación del servicio público que la Institución está llamada a brindar, salvo en aquellas competencias que la Ley reserva para la Junta Directiva, el Regulador General o la Superintendencia de Telecomunicaciones.
 2.- Disponer que los asesores de la Junta Directiva, los funcionarios de la Secretaría de Junta Directiva, la Dirección General de Estrategia y Evaluación y el Despacho del Regulador General están subordinados jerárquicamente al Gerente General, quien les asignará las responsabilidades que considere apropiadas para el cumplimiento de las funciones asignadas a la Gerencia y las necesarias para garantizar la continua y eficiente prestación del servicio público que, por Ley, está llamada a brindar la Autoridad Reguladora de los Servicios Públicos.
 3.- Crear el Comité de Regulación, como un órgano colegiado, que estará integrado por tres funcionarios titulares y un suplente nombrados por el Regulador General. Dichos funcionarios contarán con la asesoría técnica de los órganos que requieran y con la asesoría permanente de la Dirección General de Asesoría Jurídica y Regulatoria.
-4.- Al Comité de Regulación, se le asignarán las siguientes funciones:
-a. Ordenar la apertura de los expedientes tarifarios, fijar las tarifas de los servicios públicos y resolver los recursos de revocatoria que se presente contra sus actuaciones,
-b. Resolver lo que corresponda en materia de quejas y denuncias y conocer en primera instancia los recursos de revocatoria que se presenten contra sus actuaciones,
-c. Resolver los procedimientos administrativos sancionatorios a que se refieren los artículos 38 y 41 de la Ley 7593 y conoce de los recursos de revocatoria que se presenten contra sus actuaciones,
-d. Coordinar los actos preparatorios necesarios para remitir a la Junta Directiva, para su resolución, las apelaciones a las fijaciones de tarifas, cánones, tasas y contribuciones de telecomunicaciones de la Superintendencia de Telecomunicaciones.
-e. Otorgar o denegar el refrendo a los contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos.
+(Nota de Sinalevi:Mediante acuerdo N° 010 del 20 de julio de 2010, se prorroga la vigencia del inciso anterior hasta el 8 de octubre de 2010)
+(*)4.- Al Comité de Regulación, se le asignarán las siguientes funciones:
+a. Ordenar la apertura de los expedientes tarifarios, fijar las tarifas de los servicios públicos y resolver los recursos de revocatoria que se presente contra sus actuaciones;
+b.Resolver lo que corresponda en materia de quejas y denuncias y conocer en primera instancia los recursos de revocatoria que se presenten contra sus actuaciones;
+c. Resolver los procedimientos administrativos sancionatorios a que se refieren los artículos 38 y 41 de la Ley 7593 y conocer de los recursos de revocatoria que se presenten contra sus actuaciones;
+d. Coordinar los actos preparatorios necesarios para remitir a la Junta Directiva , para su resolución, las apelaciones a las fijaciones de tarifas, cánones, tasas y contribuciones de telecomunicaciones de la Superintendencia de Telecomunicaciones;
+e. Otorgar o denegar el refrendo de contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos.
 (Así adicionado el inciso anterior por acuerdo Nº 026 aprobado en sesión Nº 019-2010 del 7 de mayo de 2010)
 f. Ratificar o no los contratos que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos.
 (Así adicionado el inciso anterior por acuerdo Nº 026 aprobado en sesión Nº 019-2010 del 7 de mayo de 2010)
+(*)(Nota de Sinalevi:Mediante acuerdo N° 010 del 20 de julio de 2010, se prorroga la vigencia del inciso 4) anterior hasta el 8 de octubre de 2010)
 Rige a partir del 8 de mayo del 2010 y hasta la primera sesión que lleve a cabo la nueva Junta Directiva.

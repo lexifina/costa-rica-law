@@ -15,3 +15,4 @@ Disposiciones generales para normar el funcionamiento de la Autoridad Reguladora
 | --- | --- | --- |
 | 1 | 2010-05-08 | la propia norma |
 | 2 | 2010-05-08 | Acuerdo 26 (2010-05-07) |
+| 3 | 2010-07-20 | Acuerdo 10 (2010-07-20) |
