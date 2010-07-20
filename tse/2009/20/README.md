@@ -14,3 +14,4 @@ Reglamento para la Observación de Procesos Electivos y Consultivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-12 | la propia norma |
+| 2 | 2010-07-20 | Decreto TSE 11 (2010-07-20) |
