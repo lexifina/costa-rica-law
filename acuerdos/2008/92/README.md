@@ -14,3 +14,4 @@ Acuerda dispensar el acatamiento obligatorio de los dictámenes C-445-2007 y C-0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-05 | la propia norma |
+| 2 | 2010-07-21 | SINALEVI (sin norma nombrada) |
