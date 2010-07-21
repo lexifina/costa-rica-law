@@ -1,0 +1,1 @@
+Artículo 13.—Los vehículos municipales o alquilados tendrán prioridad de estacionamiento en el Plantel Municipal. Dicha prioridad será definida por la Alcaldía Municipal, mediante la emisión de un procedimiento relacionado con la utilización del citado estacionamiento. Será responsabilidad del personal de vigilancia el cumplimiento de lo aquí dispuesto.

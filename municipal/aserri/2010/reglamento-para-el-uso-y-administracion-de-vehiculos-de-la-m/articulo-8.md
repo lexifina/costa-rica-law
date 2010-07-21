@@ -1,0 +1,3 @@
+Artículo 8º—Delegación de Responsabilidades, se darán según los siguientes apartados:
+a) Con la aprobación previa del Alcalde y con los jefes de departamentos u unidades, podrán delegar parcialmente en otras dependencias institucionales, la ejecución de las funciones indicadas en el artículo anterior, toda vez que con ello se logre una mayor oportunidad y eficiencia en la prestación del servicio, sin que esto implique la duplicación de funciones y la perdida en el control administrativo sobre los vehículos.
+b) La Alcaldía y la Dirección Financiera de la Municipalidad podrán solicitar a La Dirección Administrativa de la Municipalidad y a los jefes de departamentos u unidades, los informes que estime convenientes.

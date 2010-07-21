@@ -1,0 +1,2 @@
+Artículo 16.—Es requisito indispensable para que un automotor propiedad de la Municipalidad circule, el contar con un rótulo visible del logotipo de la Municipalidad en ambas puertas delanteras. Las dimensiones de los rótulos arriba citados, serán las mínimas establecidas en el artículo 26 de la Ley de Tránsito Nº 7331.
+En caso de motocicletas, u otros vehículos similares la rotulación se efectuará en aquellas secciones de la carrocería que permitan una adecuada y visible identificación.

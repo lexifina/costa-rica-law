@@ -1,0 +1,2 @@
+Artículo 20.—Ningún funcionario podrá conducir un tipo de vehículo diferente al autorizado en la licencia Municipal. Solamente la Alcaldía o la Dirección Administrativa de la Municipalidad podrán autorizar o no alguna excepción a lo anterior.
+La Alcaldía o la Dirección Administrativa de la Municipalidad, podrán suspender el permiso de conducir vehículos Municipales a cualquier conductor de la institución, que contravenga lo dispuesto en la Ley de Tránsito, así como otras leyes vigentes en la materia, este Reglamento o los procedimientos establecidos.

@@ -1,0 +1,1 @@
+Artículo 39.—Las discrepancias o diferencias de criterio que surjan en la aplicación de este Reglamento por parte de La Dirección Administrativa, las jefaturas y los conductores serán resueltas por el Alcalde Municipal.

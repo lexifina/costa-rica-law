@@ -1,0 +1,1 @@
+Artículo 2º—Los vehículos de uso administrativo propio o al servicio de la Municipalidad, son todas aquellas unidades utilizadas en la institución para el desarrollo normal como medio de transporte de personas, materiales, desechos sólidos y equipos.

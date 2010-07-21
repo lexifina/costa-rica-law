@@ -1,0 +1,2 @@
+Artículo 40.—Las infracciones a este reglamento serán sancionadas de acuerdo a la gravedad de las faltas y conforme a los dispuesto en la Ley de Tránsito, Ley General de la Administración Pública, la Ley Orgánica de la Contraloría General de la República el Código Municipal, el Código de Trabajo, el Reglamento Autónomo de Servicios de la Municipalidad, y demás disposiciones vigentes, sin perjuicio de las responsabilidades civiles o penales que deberá asumir el infractor.
+El presente reglamento rige a partir de su publicación.

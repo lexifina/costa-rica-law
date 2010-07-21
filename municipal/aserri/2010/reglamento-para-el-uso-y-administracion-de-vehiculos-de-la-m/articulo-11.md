@@ -1,0 +1,1 @@
+Artículo 11.—Una vez concluidas las labores diarias, todo vehículo deberá ser guardado en el Plantel Municipal, en caso de que el vehículo se halle realizando una gira, inspección u trabajo especial y que deba guardarse en otras instalaciones u localidades, deberá contar con el permiso respectivo del Alcalde, justificando por escrito ante el mismo, dicha situación.
