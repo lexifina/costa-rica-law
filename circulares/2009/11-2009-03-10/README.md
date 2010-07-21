@@ -14,3 +14,4 @@ Comunica que mediante resolución n° 839-2009 se emitió "Lineamientos Generale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-20 | la propia norma |
+| 2 | 2010-07-21 | Resolución 7 (2010-07-21) |
