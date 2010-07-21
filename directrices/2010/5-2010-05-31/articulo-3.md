@@ -1,0 +1,1 @@
+Artículo 3º—Registro actualizado. Tanto el Ministerio de Obras Públicas y Transportes como sus órganos dotados de desconcentración máxima, deberán así mismo, implementar los mecanismos de control interno que sean necesarios para que el registro a que se refiere el artículo precedente se mantenga debidamente actualizado.
