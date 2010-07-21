@@ -1,2 +1,0 @@
-Artículo 8º—De la Sede. La sede de las reuniones del Consejo estará ubicada en las oficinas del Ministerio de Obras Públicas y Transportes, División de Puertos, pero dada la naturaleza de este órgano facilitador y coordinador de acciones, podrá sesionar también en cualquier otro lugar del territorio nacional, cuando el Presidente así lo estime y lo comunique en forma oportuna a los miembros del Consejo.
-Para las sedes de la Comisión Asesora Portuaria y de Cruceros Turísticos se aplicara el mismo criterio.
