@@ -1,0 +1,1 @@
+Artículo 4º—Derogaciones. Deróguese la Directriz Nº DM-EC-3035-08, publicada en La Gaceta Nº 114 del 13 de junio del 2008, mediante la cual se publicó el Marco Orientador del Sistema Específico de Valoración del Riesgo Institucional.

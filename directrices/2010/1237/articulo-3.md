@@ -1,0 +1,1 @@
+Artículo 3º—Orientaciones para el funcionamiento del SEVRI. El funcionamiento del SEVRI en el Ministerio de Salud se ajustará a lo dispuesto en el documento Marco Orientador del Sistema de Valoración de Riesgo Institucional en el Ministerio de Salud, el cual se adjunta y es parte integrante de la presente directriz.
