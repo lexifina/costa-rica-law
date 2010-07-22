@@ -89,6 +89,7 @@ Nota: Al costo de colocación del implante y del poste se le debe adicionar el c
 Prótesis Híbrida 6 implantes: 1onz. Oro + 6 postes | $ 4.480 | $ 4.670 | $ 4.670
 Barra 4 implantes: 4 postes + 2 sistema ERA | $ 3.368 | $ 3.558 | $ 3.558
 Sistema Locator o similares 2 implantes: PT + 2 sistema ERA | $ 1.300 | $ 1.570 | $ 1.570
+Coronas implanto soportadas (Así adicionado el punto anterior y publicado en La Gaceta Nº 142 del 22 de julio de 2010) | $ 550 | |
 Prótesis Parcial Removible | | |
 Removible metálico | ¢ 180.000 | ¢ 245.000 | $ 643
 Prótesis total superior o inferior | ¢ 112.000 | ¢ 148.000 | $ 500

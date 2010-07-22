@@ -14,3 +14,4 @@ Colegio de Cirujanos Dentistas de Costa Rica establece las tarifas mínimas para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-02 | la propia norma |
+| 2 | 2010-07-22 | Acuerdo 0 (2010-07-22) |
