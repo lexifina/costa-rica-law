@@ -1,1 +1,0 @@
-Artículo 28.—Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el Reglamento de Inversiones Financieras del Banco Popular y de Desarrollo Comunal publicado el 12 de enero del 2001, y cualquier otro que se le oponga.
