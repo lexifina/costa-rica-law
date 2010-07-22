@@ -1,0 +1,21 @@
+MUNICIPALIDAD DE DESAMPARADOS
+La Municipalidad de Desamparados comunica que mediante acuerdo Nº 3 de la sesión Nº 23-2010, celebrada por el Concejo Municipal de Desamparados el día 13 de abril de 2010, se aprobó el siguiente reglamento:
+REGLAMENTO SOBRE VARIACIONES AL PRESUPUESTO
+DE LA MUNICIPALIDAD DEL CANTÓN DE DESAMPARADOS
+La Municipalidad de Desamparados, con sustento en lo establecido en los numerales 169 y 170 de la Constitución Política, artículos 13, inciso c) y del Código Municipal, y con el propósito de dar cumplimiento a lo Ordenado por la Contraloría General de la República en Reglamento R-CO-67-2006 de la Contraloría General de la República, publicado en La Gaceta Nº 170 el día 05 de setiembre del 2006, aprueba el presente “Reglamento sobre Variaciones al Presupuesto de la Municipalidad del Cantón de Desamparados”.
+CAPÍTULO I
+Disposiciones generales
+Definiciones
+Artículo 1º—Para los efectos de este Reglamento se entiende por:
+a. Municipalidad de Desamparados: Persona jurídica estatal, con patrimonio propio y personalidad, y capacidad jurídica plenas para ejecutar todo tipo de actos y contratos necesarios para cumplir sus fines.
+b. Jerarca: Concejo Municipal, superior jerárquico colegiado, quien ejerce la máxima autoridad.
+c. Autoridad superior administrativa: Alcaldía Municipal.
+d. Aprobación presupuestaria interna: Proceso por medio del cual el jerarca conoce y estudia el contenido del presupuesto formulado o de las variaciones que se le presenten, en función de los objetivos y metas institucionales, así como verifica el cumplimiento de las disposiciones legales y técnicas que le son aplicables. Como resultado de este proceso, el jerarca emite mediante el acto administrativo establecido para el efecto, su aprobación o improbación, parcial o total, al presupuesto inicial y sus variaciones. Esta aprobación otorgará validez y eficacia jurídica, permitiendo su ejecución para el período respectivo, únicamente en aquellos casos en que no se requiera de la aprobación presupuestaria externa.
+e. Aprobación presupuestaria externa: Proceso a cargo de la Contraloría General de la República, por medio del cual conoce, verifica y se pronuncia mediante acto razonado sobre el cumplimiento de las disposiciones legales y técnicas aplicables al presupuesto inicial y sus variaciones, formuladas y aprobadas por los sujetos pasivos para el cumplimiento de sus objetivos y metas, otorgándole validez y eficacia jurídica y permitiendo su ejecución para el período respectivo.
+f. Bloque de legalidad: Conjunto de normas jurídicas, escritas y no escritas, a cuya observancia se encuentra obligada la Administración Pública, el cual comprende tanto la ley como las normas de rango superior, igual o inferior a ésta, incluidos los principios generales y las reglas de la ciencia o de la técnica.
+g. Clasificador de ingresos: Instrumento normativo que ordena y agrupa los recursos con que cuenta la Municipalidad, en categorías homogéneas definidas en función de la naturaleza y características de las transacciones que dan origen a cada una de las fuentes de recursos.
+h. Clasificador por objeto del gasto: Conjunto de cuentas de gastos, ordenadas y agrupadas de acuerdo con la naturaleza del bien o servicio que se esté adquiriendo o a la operación financiera que se esté efectuando.
+i. Modificación presupuestaria: Es toda aquella variación que se realice en los egresos presupuestados y que tenga por objeto disminuir o aumentar los diferentes conceptos de estos o incorporar otros que no habían sido incorporados, sin que se altere el monto global del presupuesto aprobado.
+j. Nivel de aprobación presupuestaria externa: Nivel de detalle de los ingresos y de los egresos del presupuesto inicial y sus variaciones, sobre el cual se ejerce la aprobación presupuestaria externa por parte de la Contraloría General de la República, el cual es definido por esta.
+k. Nivel de Aprobación Presupuestaria interna: Nivel de detalle de los ingresos y los egresos del presupuesto inicial y sus variaciones, sobre el cual se ejerce la aprobación presupuestaria interna por parte del jerarca.
+l. Presupuesto: Instrumento que expresa en términos financieros el plan operativo anual de la Municipalidad, mediante la estimación de los ingresos y egresos necesarios para cumplir con los objetivos y las metas de los programas establecidos.

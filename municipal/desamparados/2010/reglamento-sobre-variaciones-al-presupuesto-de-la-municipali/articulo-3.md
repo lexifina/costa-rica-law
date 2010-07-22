@@ -1,0 +1,1 @@
+Artículo 3º—Mecanismos de variación al presupuesto. Los presupuestos extraordinarios y las modificaciones presupuestarias constituyen los mecanismos legales y técnicos para realizar la inclusión de ingresos y egresos aprobados en el presupuesto par parte de la instancia competente, acatando para ello el bloque de legalidad que les aplica.
