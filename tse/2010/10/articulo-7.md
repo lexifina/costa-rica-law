@@ -1,0 +1,2 @@
+Artículo 7º—Naturaleza de la legalización de libros. La legalización de los libros de actas permitirá presumir juris tantum la autenticidad de los acuerdos que en el se asienten, pero no supone una validación previa, por parte de este Tribunal, de lo que la agrupación política llegue a registrar con posterioridad.
+Para que los partidos puedan acreditar cualquier acuerdo ante el TSE o su Registro Electoral, necesariamente deberán estar debidamente asentados en el respecto libro legalizado.

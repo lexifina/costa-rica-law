@@ -1,0 +1,1 @@
+Artículo 10.—Custodia temporal. El comité ejecutivo superior designará a las personas responsables de la custodia temporal y conservación de los libros de actas de cada órgano partidario. En su defecto, será responsable el secretario del órgano partidario respectivo.

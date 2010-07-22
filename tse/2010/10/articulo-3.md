@@ -1,0 +1,1 @@
+Artículo 3º—Condiciones de forma. Los libros de actas podrán ser encuadernados o de hojas sueltas pero, en ambos casos, deberán contar con portada y contraportada de pasta dura y con los folios numerados de forma consecutiva y en perfecto estado de conservación y limpieza.

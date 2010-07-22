@@ -1,0 +1,3 @@
+Artículo 16.—Reposición total. Cuando se trate de la reposición íntegra de un libro de actas y cumplido lo anterior, el Departamento de Registro de Partidos Políticos procederá como si se tratará de la apertura de un nuevo tomo, con las siguientes salvedades:
+a) En la razón de apertura se indicará, además del número de tomo que se repone, que se trata de una reposición y el motivo de ella.
+b) En caso de que se hayan recuperado documentos que permitan la reconstrucción total o parcial del libro, tal situación deberá constar en la razón de reposición indicándose, en forma expresa, el número de folio o folios reconstruidos; éstos deberán ser agregados inmediatamente después bajo la foliatura del nuevo libro.

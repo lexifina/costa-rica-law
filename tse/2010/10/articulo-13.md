@@ -1,0 +1,1 @@
+Artículo 13.—Cancelación de la inscripción electoral. En caso de que se cancele la inscripción electoral de un partido político, sus representantes procederán de forma inmediata a depositar los libros de actas vigentes de todos sus órganos colegiados.

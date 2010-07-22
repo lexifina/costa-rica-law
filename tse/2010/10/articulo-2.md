@@ -1,0 +1,1 @@
+Artículo 2º—Obligación de visado. Para garantizar la autenticidad y veracidad de su contenido, todos los libros que utilicen los partidos para consignar las actas relativas a las sesiones de sus órganos colegiados, deberán contar con el visado previo del Departamento de Registro de Partidos Políticos.

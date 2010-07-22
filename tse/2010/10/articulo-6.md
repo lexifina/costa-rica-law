@@ -1,0 +1,4 @@
+Artículo 6º—Procedimiento de legalización. Presentada en forma una solicitud, el Departamento de Registro de Partidos Políticos contará con un plazo de cinco días hábiles para legalizar los libros de actas.
+Para tales efectos, la jefatura de ese Departamento visará con su firma el acta de apertura que debe constar en el primer folio del libro, y además, marcará con tinta indeleble cada uno de los folios con el distintivo que disponga.
+Cumplido ese procedimiento, se deberá comunicar de forma inmediata al partido político gestionante para que proceda, en el plazo máximo de un mes, al retiro de los libros. La notificación se practicará en los términos del Reglamento de Notificación a los Partidos Políticos por correo electrónico.
+Aquellos libros que no se retiren transcurrido ese lapso, podrán ser destruidos, en cualquier momento.
