@@ -1,0 +1,1 @@
+Artículo 8°— Las garantías ofrecidas deberán mantenerse vigentes mientras ocupen sus cargos, así como por el lapso de prescripción de la responsabilidad civil y/o mientras se encuentre pendiente un procedimiento administrativos por daños y perjuicios.

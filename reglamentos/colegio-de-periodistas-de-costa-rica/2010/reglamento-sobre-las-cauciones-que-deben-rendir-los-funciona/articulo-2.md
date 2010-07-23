@@ -1,0 +1,1 @@
+Artículo 2°—Finalidad de la caución: tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio del Colegio, sin que ello limite la eventual responsabilidad civil.

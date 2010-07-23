@@ -1,0 +1,2 @@
+Artículo 11.—La responsabilidad de renovar la póliza de fidelidad corresponderá a cada funcionario, quien será notificado por la Dirección Ejecutiva sobre su deber de renovarla, por lo menos con un mes de antelación a su vencimiento.
+La omisión por parte de la Dirección Ejecutiva en efectuar tal comunicación, no exime al funcionario de su deber de mantener vigente la póliza de fidelidad respectiva.
