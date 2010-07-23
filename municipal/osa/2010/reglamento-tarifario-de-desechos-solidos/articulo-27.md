@@ -1,0 +1,1 @@
+Artículo 27.—La municipalidad podrá realizar un estudio específico para todo usuario que se considere que el factor de ponderación que se le está aplicando no está de acuerdo a la cantidad de basura que está generando.

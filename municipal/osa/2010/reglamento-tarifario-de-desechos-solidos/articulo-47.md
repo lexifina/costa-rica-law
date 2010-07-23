@@ -1,0 +1,1 @@
+Artículo 47.—La mezcla de desechos especiales con desechos ordinarios o tradicionales se considera como desechos especiales, por tanto, su manejo y disposición final, le corresponde a cada usuario o generador.
