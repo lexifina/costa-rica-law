@@ -1,15 +1,10 @@
-Artículo 16.-De los requisitos de participación de las Organizaciones No Gubernamentales en la ejecución de los programas institucionales: Serán requisitos mínimos para obtener la calificación de idoneidad para que una Organización No Gubernamental Intermediaria pueda participar en la ejecución de los programas sociales los siguiente:
-a) Solicitud de inscripción como Organización No Gubernamental Intermediaria, Organización Comunal o lBS interesada en participar en la ejecución de programas institucionales, firmada por el representante legal y los documentos que se están apol1ando.
-b) Fotocopia de la escritura constitutiva de la respectiva entidad, con las correspondientes reformas, si la hubiere.
-c) Certificación original vigente de la personería jurídica de la entidad, que incluya nombre y cargos de la Junta Directiva y Fiscalía cuando este órgano exista, con no más de tres meses de expedida.
-d) Fotocopia por ambos lados de la cédula jurídica al día.
-e) Dirección postal con referencias claras para su fácil localización, apartado postal y número de fax, número telefónico de la entidad o de las personas encargadas de la administración.
-f) Constancia de contar con los libros de actas debidamente legalizados al día, suscrita por el secretario de la junta directiva.
-g) Constancia extendida por un contador privado incorporado al Colegio respectivo de que posee los libros contables legalmente exigidos (diario, mayor y registros auxiliares) debidamente legalizados y al día.
-h) Descripción general de la estructura administrativa con que cuenta la entidad.
-i) Descripción de la experiencia de la Organización No Gubernamental y del recurso profesional con que cuenta.
-j) Descripción del tipo de proyecto (s) específico (s) que estarían en capacidad de ejecutar con recursos asignados por el IMAS y el monto aproximado de éstos.
-k) Autorización de los órganos competentes (Asamblea o Junta Directiva) de la Organización No Gubernamental para la suscripción de convenios con el IMAS, cuando el poder de que disponen sea limitado o se establezca ese requisito por ley.
-1) Acreditar la apertura de una cuenta corriente en cualquiera de los bancos estatales, exclusiva para la administración de los fondos públicos que se le lleguen a girar, de conformidad con el Artículo 5 párrafo segundo de la Ley Orgánica de la Contraloría General de la República.
-m) Compromiso escrito de actualizar la información y documentación suministrada en el momento en que pierdan su vigencia.
-(Reformado por Acuerdo 073-2000. del artículo 4°, del acta 014 -2000. del 16 de febrero de 2000)
+Artículo 16.—De los requisitos mínimos para la asignación de beneficios patrimoniales gratuitos o sin contraprestación para la ejecución de proyectos institucionales por parte de los sujetos privados:
+a) Solicitud firmada por el representante legal.
+b) Plan de trabajo para el cumplimiento de los objetivos del programa o proyecto.
+c) Presupuesto de ingresos y egresos del programa o proyecto.
+d) Certificación de la personería jurídica vigente de la entidad extendida por el Registro Público o Notario Público con no más de tres meses de expedida en la que consten los nombres y los cargas de la Junta Directiva y Fiscalía si este último cargo existe.
+e) Fotocopia de la cédula jurídica, certificada por un Notario Público.
+f) Copia certificada por notario del acta o trascripción del acuerdo del órgano superior del sujeto privado (v.g. Junta Directiva, Consejo de Administración, Junta Administrativa), en el cual conste la aprobación del plan de trabajo del programa o proyecto y del presupuesto respectivo.
+g) Copia de los estados financieros, firmados por el Contador y por el representante legal del sujeto privado, con una certificación emitida por un Contador Público Autorizado indicando que los estados financieros corresponden a los que están contenidos en los registros contables de la entidad.
+h) Organigrama de la organización respectiva.
+(Así reformado por acuerdo CD-275-2010 del acta 055-2010 del 26 de julio de 2010, publicada en La Gaceta N° 168 del 30 de agosto de 2010)
