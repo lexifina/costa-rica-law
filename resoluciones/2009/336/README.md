@@ -14,3 +14,4 @@ Comunica actualización de horarios de atención de las aduanas y puestos aduane
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-06 | la propia norma |
+| 2 | 2010-07-26 | Resolución 252 (2010-07-26) |
