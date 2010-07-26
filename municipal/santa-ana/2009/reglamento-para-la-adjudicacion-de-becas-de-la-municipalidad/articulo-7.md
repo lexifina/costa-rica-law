@@ -1,0 +1,1 @@
+Artículo 7º—Durante el proceso de entrega de formularios de solicitud de beca, los y las encargadas de este proceso deberán aclarar a los y las solicitantes que el llenar la solicitud no les da automáticamente derecho a obtener la beca. Esta aclaración debe estar contenida en los formularios que se pongan a disposición del público.

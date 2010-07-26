@@ -1,0 +1,1 @@
+Artículo 5º—Si en un distrito hubiese un número superior de solicitudes que califican para el derecho a beca con relación a la cantidad asignada a éste. La comisión determinará la adjudicación de las mismas tomando en cuenta, el criterio técnico y el índice de desarrollo social elaborado por el Ministerio de Planificación.

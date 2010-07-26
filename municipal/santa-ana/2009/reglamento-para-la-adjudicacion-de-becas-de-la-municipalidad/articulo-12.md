@@ -1,0 +1,1 @@
+Artículo 12.—El Concejo Municipal determinará con base en el dictamen que presente la Comisión Municipal de Becas, quienes serán los y las estudiantes con derecho a beca, para estos efectos deberá emitir el respectivo acuerdo.
