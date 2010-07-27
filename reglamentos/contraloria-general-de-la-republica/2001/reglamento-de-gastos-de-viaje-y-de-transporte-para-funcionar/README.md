@@ -24,3 +24,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos
 | 9 | 2009-04-16 | Resolución 26 (2009-04-16) |
 | 10 | 2009-11-19 | Resolución 92 (2009-11-19) |
 | 11 | 2010-05-12 | Reglamento 84 (2010-05-12) |
+| 12 | 2010-07-27 | Resolución 131 (2010-07-27) |
