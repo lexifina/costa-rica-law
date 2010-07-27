@@ -14,3 +14,4 @@ Reforma Reglamento para el pago de Compensación por Disponibilidad, Dedicación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-28 | la propia norma |
+| 2 | 2010-07-27 | Reglamento municipal 13 (2010-07-27) |

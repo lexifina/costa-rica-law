@@ -21,3 +21,4 @@ c. Para que se eliminen los Artículos 16 y 17 y se corra la enumeración.
 Segundo: Enviar a la respectiva publicación y siendo que es un reglamento interno se prescinde del trámite de audiencia pública y se acuerda que entre a regir a partir de su publicación”.
 Acuerdo firme.- 15, Artículo IV, de la Sesión Ordinaria 128, celebrada por la Corporación Municipal del Cantón Central de San José, el 7 de octubre del 2008.
 San José, 17 de octubre del 2008.
+(Nota de Sinalevi: La Municipalidad de San José, mediante acuerdo N° 7 tomado en sesión N° 13 del 27 de julio de 2010, realiza correcciones a la presente reforma, en el sentido de que la modificación que hace referencia al artículo 21 del Reglamento para el Pago de Compensación por Disponibilidad, Dedicación Exclusiva y Prohibición de la Municipalidad de San José, aprobado en sesión N° 37 del 9 de enero de 2007, en realidad corresponde al artículo 19 del Reglamento citado")
