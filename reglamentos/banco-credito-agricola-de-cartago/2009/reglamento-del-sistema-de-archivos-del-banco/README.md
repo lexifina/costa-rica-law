@@ -14,3 +14,4 @@ Reglamento del Sistema de Archivos del Banco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-27 | la propia norma |
+| 2 | 2010-07-27 | Reglamento 8359 (2010-07-27) |
