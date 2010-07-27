@@ -1,0 +1,1 @@
+Artículo 2º—Se derogan los Decretos Ejecutivos 33175-MOPT y 33176-MOPT publicados en La Gaceta N° 118 del 20 de junio del 2006, Decreto Ejecutivo 35126-MOPT publicado en La Gaceta Nº 66 del 3 de abril del 2009 y Decreto Ejecutivo 35183-MOPT publicado en La Gaceta Nº 82 del 29 de abril del 2009, quedando los mismos sin efecto ni valor alguno.

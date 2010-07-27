@@ -1,0 +1,21 @@
+Nº 36179-MOPT
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política, artículos 28.1 y 28.2.b de la Ley Nº 6227 del 2 de mayo de 1978 Ley de la Administración Pública, Reforma a la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 4786 del 5 de julio de 1971 y sus reformas, Ley Nº 7969 del 22 de diciembre de 1999. “Ley Reguladora de Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad Taxi”.
+Considerando:
+I.—Que mediante Ley Nº 7969 del 22 de diciembre de 1999 publicada en La Gaceta Nº 20 del 28 de enero del 2000 denominada “Ley Reguladora de Servicio Público de Transporte Remunerado de Personas en Vehículos en la modalidad de Taxi”, se creó el Consejo de Transporte Público, como órgano de desconcentración máxima adscrito al Ministerio de Obras Públicas y Transportes con personalidad jurídica instrumental.
+II.—Que el artículo 9 de la citada Ley, regula el procedimiento de conformación e integración del Consejo de Transporte Público, nombramiento que será por un plazo máximo equivalente al del nombramiento del Presidente de la República, pudiendo ser reelegidos.
+III.—Que siguiendo el procedimiento legal correspondiente, la Presidenta de la República y el Ministro de la Presidencia, realizaron la convocatoria para la conformación e integración del Consejo de Transporte Público, mediante publicación en el Diario Oficial La Gaceta Nº 84 de fecha 3 de mayo del 2010.
+IV.—Que por Decreto Ejecutivo Nº 36037-MOPT del 21 de mayo de 2010, se designa como Presidenta del Consejo de Transporte Público a la Viceministra de Transporte Terrestre y Seguridad Vial.
+V.—Que de conformidad con la convocatoria citada en el considerando tercero, el Consejo de Gobierno mediante acuerdo del artículo segundo de la sesión ordinaria número once del trece de julio del dos mil diez y acuerdo del artículo segundo de la sesión ordinaria número catorce del veintisiete de julio del dos mil diez, atendiendo criterio de idoneidad y por facultad regulada en el artículo 9 de la Ley Nº 7969 del 22 de diciembre de 1999, dispuso determinar los nombramientos para conformar el Consejo de Transporte Público.
+VI.—Que por oficio DM-174-2010 del 8 de julio del 2010 del Ministro del Ambiente, Energía y Telecomunicaciones, se designa como representante del MINAET en el Consejo de Transporte Público, al Viceministro del Sector Energía.
+VII.—Que por oficio DMOPT-2958-2010 de fecha 09 de julio del año 2010, del Despacho del Ministro de Obras Públicas y Transportes, se designa a la persona con experiencia en materias relacionadas con el Consejo de Transporte Público, señor Víctor Calderón Mayorga. Por tanto,
+Decretan:
+Artículo 1º—Se conforma la integración del Consejo de Transporte Público, de la siguiente manera:
+a) Maristella Vaccari Gil, portadora de la cédula de identidad Nº 1-761-319, en su condición de Viceministra de Transporte Terrestre y Seguridad Vial del Ministerio de Obras Públicas y Transportes, como delegada del señor Ministro de Obras Públicas y Transportes, quien presidirá la Junta Directiva del Consejo de Transporte Público.
+b) Víctor Calderón Mayorga, portador de la cédula de identidad Nº 1-0479-0070, en razón de su experiencia y conocimiento en las materias relacionadas con el Consejo de Transporte Público, designado por el Ministro de Obras Públicas y Transportes.
+c) Andrei Bourrouet Vargas, portador de la cédula de identidad Nº 1-672-652, representante del Ministerio de Ambiente, Energía y Telecomunicaciones, designado por el Ministro del Ramo.
+d) Jorge Arturo Herrera Ocampo, portador de la cédula de identidad Nº 2-306-544, representante del Sector Empresarial de Transporte Remunerado de Personas en Vehículos Automotores, Buses, Microbuses o Busetas.
+e) Gilberth Ureña Fonseca, portador de la cédula de identidad Nº 3-208-649, representante del Sector Empresarial de Transporte Remunerado de Personas en Vehículos Automotores en la Modalidad de Taxi.
+f) Alberto Camacho Pereira, portador de la cédula de identidad Nº 3-183-124, representante de la Unión Nacional de Gobiernos Locales.
+g) Sara Corrales Corrales, portadora de la cédula Nº 1-396-541, representante de los usuarios.
