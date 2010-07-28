@@ -30,7 +30,7 @@ c) Anotación en cuenta
 Servicio | Suscripción mensual | Otros conceptos
 Cuentas de Valores (sobre saldos en custodia): | 295.000 |
 a) De ¢0 y hasta ¢40.000.000.000 | | 0,003%
-b) De ¢40.000.000.001 y hasta ¢100.000.000.00 | | 0,002%
+b) De ¢40.000.000.001 y hasta (*) ¢100.000.000.000 (*)(Así reformado en monto anterior mediante sesión N° 5467-2010 del 28 de julio de 2010) | | 0,002%
 c) Más de ¢100.000.000.000 | | 0,001%
 Registro de Emisiones | 295.000 | No aplica
 Liquidación de Mercados | 175.000 | No aplica
@@ -88,4 +88,4 @@ Estación no actualizada con la última versión del SINPE | No aplica | 6.000 c
 Gestión de Riesgo: | No aplica | | No aplica
 a) Costo administrativo por el uso del crédito intradiario | | 60.000 c/día |
 b) Administración del incumplimiento diario de los mecanismos de garantía | | 30.000 c/tipo de moneda |
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 400 al 399 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 399 al 406 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 407 pasa a ser el 406 actual. Nuevamente se adicionan 4 artículos volviéndose a correr su numeración, pasando así el artículo 406 a ser el 410 actual. Agregándose otro numeral con lo que se corre la numeración y el artículo 410 pasa a ser el actual 411. En esa misma sesión se deroga el numeral 392 por lo que se corre nuevamente la numeración pasando el antiguo artículo 412 a ser el 411 actual cuyo texto se reformó)
+(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 400 al 399 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 399 al 406 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 407 pasa a ser el 406 actual. Nuevamente se adicionan 4 artículos volviéndose a correr su numeración, pasando así el artículo 406 a ser el 410 actual10 actual. Agregándose otro numeral con lo que se corre la numeración y el artículo 410 pasa a ser el actual 411. En esa misma sesión se deroga el numeral 392 por lo que se corre nuevamente la numeración pasando el antiguo artículo 412 a ser el 411 actual cuyo texto se reformó)

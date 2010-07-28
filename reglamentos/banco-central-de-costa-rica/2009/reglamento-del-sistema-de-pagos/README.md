@@ -17,3 +17,4 @@ Reglamento del Sistema de Pagos
 | 2 | 2009-05-06 | Reglamento 5422 (2009-05-06) |
 | 3 | 2009-07-08 | Reglamento 5429 (2009-07-08) |
 | 4 | 2010-05-26 | Reglamento 5462 (2010-05-26) |
+| 5 | 2010-07-28 | Reglamento 5467 (2010-07-28) |
