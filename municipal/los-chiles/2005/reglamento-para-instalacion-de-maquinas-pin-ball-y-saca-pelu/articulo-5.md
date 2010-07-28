@@ -1,1 +1,2 @@
-5º—Horario de funcionamiento. De lunes a viernes de las 16 horas a las 22 horas, sábados, domingos y feriados de las 13 horas a las 23 horas. Autorizado el uso de las máquinas únicamente a personas mayores de 12 años, según Ley de Juegos Nº 1387 del 21 de noviembre de 1951 y del Reglamento de Juegos Decreto Ejecutivo Nº 3510-G del 24 de enero de 1974.
+5º—Se aplicará el horario establecido por la Ley Nº 8767, (desde las 10:00 horas hasta las 22:00 horas).
+(Así reformado mediante sesión extraordinaria N° 268 del 28 de julio de 2010)

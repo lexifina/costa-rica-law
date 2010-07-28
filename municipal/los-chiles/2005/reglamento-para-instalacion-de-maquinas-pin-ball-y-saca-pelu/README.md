@@ -14,3 +14,4 @@ Reglamento para Instalación de Máquinas Pin Ball y Saca Peluches
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-27 | la propia norma |
+| 2 | 2010-07-28 | Reglamento municipal 268 (2010-07-28) |
