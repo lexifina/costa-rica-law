@@ -302,7 +302,7 @@ c) Anotación en cuenta
 Servicio | Suscripción mensual | Otros conceptos
 Cuentas de Valores (sobre saldos en custodia): | 295.000 |
 a) De ¢0 y hasta ¢40.000.000.000 | | 0,003%
-b) De ¢40.000.000.001 y hasta ¢100.000.000.00 | | 0,002%
+b) De ¢40.000.000.001 y hasta (*) ¢100.000.000.000 (*)(Así reformado el monto anterior mediante sesión N° 5467-2010 del 28 de julio de 2010) | | 0,002%
 c) Más de ¢100.000.000.000 | | 0,001%
 Registro de Emisiones | 295.000 | No aplica
 Liquidación de Mercados | 175.000 | No aplica

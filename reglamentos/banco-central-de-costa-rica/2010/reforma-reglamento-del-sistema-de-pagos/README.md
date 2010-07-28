@@ -14,3 +14,4 @@ Reforma Reglamento del Sistema de Pagos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-23 | la propia norma |
+| 2 | 2010-07-28 | Reglamento 5467 (2010-07-28) |
