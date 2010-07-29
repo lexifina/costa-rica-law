@@ -1,0 +1,1 @@
+Artículo 8º—Área de Información al Ciudadano. Será este un mecanismo de enlace entre la Administración y el ciudadano, promoviendo el que los (as) ciudadanos se encuentren plenamente informados de la gestión pública.
