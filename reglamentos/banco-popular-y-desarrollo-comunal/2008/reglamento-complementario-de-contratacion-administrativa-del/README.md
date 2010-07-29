@@ -15,3 +15,4 @@ Reglamento Complementario de Contratación Administrativa del Conglomerado Banco
 | --- | --- | --- |
 | 1 | 2008-09-29 | la propia norma |
 | 2 | 2009-06-08 | Reglamento 4671 (2009-06-08) |
+| 3 | 2010-07-29 | Reglamento 4777 (2010-07-29) |
