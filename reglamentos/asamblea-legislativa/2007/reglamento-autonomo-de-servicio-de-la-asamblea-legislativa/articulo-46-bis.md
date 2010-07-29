@@ -1,0 +1,2 @@
+Artículo 46 bis.—El Director Ejecutivo de la Institución podrá autorizar, como medida de excepción, una flexibilización del horario laboral para la atención de situaciones familiares, cuando se esté en presencia de situaciones justificadas y calificadas y en el tanto no se comprometa la prestación del servicio público. Estos permisos no podrán ser permanentes, deberán hacerse por escrito y contar con el visto bueno del superior jerárquico correspondiente.
+(Así adicionado por acuerdo N° 09 del 29 de julio de 2010)
