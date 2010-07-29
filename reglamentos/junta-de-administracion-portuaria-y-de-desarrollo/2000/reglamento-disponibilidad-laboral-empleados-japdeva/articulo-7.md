@@ -1,1 +1,2 @@
-Artículo 7º— La Disponibilidad laboral se aprobará hasta por dos años si las labores a ejecutar son de carácter continuo, o hasta por un año si son de carácter temporal para trabajos específicos o por tiempo determinado. Sin embargo, en los casos en que la condición del funcionario no varía su disponibilidad se mantendrá y renovará automáticamente hasta por todo el tiempo que sean necesario.
+Artículo 7º— La disponibilidad laboral se aprobará hasta por un año si las labores a ejecutar son de carácter continuo.
+(Así refromado mediante sesión Nº 26-10 del 29 de julio de 2010)
