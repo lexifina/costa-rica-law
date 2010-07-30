@@ -1,0 +1,1 @@
+Artículo 6°—En atención al artículo anterior, el Concejo solicitará a los inquilinos el nombramiento de dos de sus compañeros, para que los representen en una comisión especial que éste nombrará para la atención de casos de alta dificultad.

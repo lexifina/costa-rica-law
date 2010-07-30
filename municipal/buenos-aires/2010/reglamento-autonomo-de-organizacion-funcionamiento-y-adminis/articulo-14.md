@@ -1,0 +1,1 @@
+Artículo 14—Toda mejora que se introduzca con la autorización respectiva, pasará a ser parte del patrimonio municipal del mercado y se incluirá como parte de la infraestructura total del edificio, sin que la Municipalidad tenga que pagar o indemnizar esas mejoras en caso de conflictos de rescisión de contrato, desalojos u otros aspectos legales propios del arrendamiento otorgado.
