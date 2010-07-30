@@ -14,3 +14,4 @@ Reglamento de Gastos de Viaje y Transporte para miembros del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-09 | la propia norma |
+| 2 | 2010-07-30 | Reglamento municipal 24 (2010-07-30) |
