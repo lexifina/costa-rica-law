@@ -1,0 +1,1 @@
+Artículo 2º. Se deja sin efecto el acto administrativo emitido por el Director de Agua sobre publicación de “Metodología Hidrogeológica para la Evaluación del Recurso Hídrico”, en el Diario Oficial La Gaceta Nº 243 del 15 de diciembre de 2010 y su Fe de Erratas publicada en el Diario Oficial La Gaceta Nº 4 del 6 de enero de 2011.
