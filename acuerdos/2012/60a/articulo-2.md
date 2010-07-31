@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Las Metodologías Hidrogeológicas serán aplicadas por las personas físicas o jurídicas, públicas o privadas, que deban utilizar metodologías hidrogeológicas para la evaluación de los recursos hídricos.
