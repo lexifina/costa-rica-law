@@ -1,0 +1,2 @@
+Artículo 25.- Coordinación con la Dirección de Asuntos Jurídicos.
+Las Direcciones de Defensa, Admisibilidad y Oficinas Regionales, podrán requerir asesoría jurídica formal a la Dirección de Asuntos Jurídicos para aclarar u orientar respecto a un asunto en trámite que podría requerir una intervención judicial, sin perjuicio de las funciones que son propias de éstas y de la coordinación para la interposición de acciones judiciales que se establece en el capítulo XII de este manual.

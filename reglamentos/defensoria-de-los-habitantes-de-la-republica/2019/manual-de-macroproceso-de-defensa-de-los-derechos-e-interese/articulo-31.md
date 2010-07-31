@@ -1,0 +1,6 @@
+Artículo 31.- De la Atención Inmediata.
+La atención inmediata es la máxima expresión de la sumariedad e informalidad de las intervenciones institucionales que involucra a toda la estructura institucional. Se caracteriza por ser una estrategia de defensa que podrá utilizarse indistintamente por cualquier persona profesional de la institución en cualquier intervención de la Defensoría, sea por denuncia o de oficio, cuando el asunto refiera a una situación de riesgo, daño inminente o actual y que de no actuarse de inmediato la afectación a un derecho sería irreversible.
+El procedimiento para tramitar los asuntos de "Atención Inmediata" será el siguiente:
+a. Una vez determinado el caso que requiera atención inmediata, las direcciones involucradas coordinarán para definir la forma de abordaje concreta.
+b. Atendida la inmediatez del asunto y concluida la intervención se deberá consignar en el sistema bajo la estrategia de defensa “Atención Inmediata” y se elaborará un registro de todo lo actuado, así como un reporte indicando los resultados obtenidos, el cual se notificará a la o las personas interesadas.
+c. Si transcurrido un plazo máximo de 72 horas el asunto no ha sido resuelto, se continuará el trámite bajo la estrategia de defensa que corresponda en la Dirección competente o en la Oficina Regional respectiva, según sea el caso.

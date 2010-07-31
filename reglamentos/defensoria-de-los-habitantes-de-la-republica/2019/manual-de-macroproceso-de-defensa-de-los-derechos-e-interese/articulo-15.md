@@ -1,0 +1,5 @@
+Artículo 15.- Criterios de admisión para asuntos en trámite o resueltos.
+Cuando el asunto verse sobre hechos que estén en conocimiento o hayan sido conocidos por la Defensoría, se procederá de la siguiente manera:
+a. Cuando no haya concluido el procedimiento de investigación y haya identidad de objeto y causa, la Intervención se acumulará al expediente existente; se trasladará a la dirección u Oficina Regional donde se está realizando la investigación y se le notificará al o la habitante la admisibilidad y acumulación de su caso.
+b. Si la Defensoría ha emitido un informe final con recomendaciones sobre los mismos hechos (coincidencia de tiempo, modo y lugar), su solicitud será acumulada a la investigación en fase de seguimiento, le remitirá una copia del informe al habitante y le comunicará sobre el estado.
+c. Cuando la Defensoría haya emitido un informe final relacionado con la misma causa, si la persona interesada denuncia hechos nuevos y plantea pretensiones particulares, que no se resuelvan con el informe emitido, se procederá con la apertura de una nueva Intervención.

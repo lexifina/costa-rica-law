@@ -1,0 +1,2 @@
+Artículo 60.- Archivo de las Solicitudes de Intervención.
+Una vez aprobado el cierre de la Intervención por el o la Directora o el o la Jerarca de la Institución en la etapa de investigación o de seguimiento, según sea el caso, la persona profesional de defensa verificará para proceder a su archivo que los oficios emitidos por la Defensoría hayan sido notificados a las partes involucradas, que el plazo de reconsideración haya vencido, que el expediente físico esté debidamente completo, ordenado, foliado y respaldado digitalmente en el SOL.

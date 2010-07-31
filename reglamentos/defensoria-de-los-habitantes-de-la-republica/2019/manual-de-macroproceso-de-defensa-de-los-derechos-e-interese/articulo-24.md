@@ -1,0 +1,2 @@
+Artículo 24.- Coordinación entre Direcciones.
+Todas las direcciones procurarán una defensa integral e interdependiente de todos los derechos y coordinarán con las demás direcciones, cuando sea necesario; para ello generarán espacios de discusión y coordinación técnica entre las personas profesionales responsables, así como la conformación de equipos inter-áreas y trabajo interdisciplinario para casos complejos, con la asistencia del Despacho, cuando fuera requerido o por instrucción del o la jerarca.

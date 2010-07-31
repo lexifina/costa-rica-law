@@ -1,0 +1,10 @@
+CAPITULO XII ESTRATEGIAS DE DEFENSA EN SEDE JUDICIAL
+Artículo 87.- Legitimación y alcances.
+El o la Defensora de los Habitantes está legitimada para interponer de oficio o facultativamente, a solicitud de la persona interesada, cualquier tipo de acción judicial que tenga por finalidad el cumplimiento de sus atribuciones y funciones en los siguientes supuestos:
+a. cuando en el marco de la o las estrategias de defensa que se consideraron idóneas conforme a la pretensión de la persona denunciada, resulte infructuoso el ejercicio de la magistratura de influencia;
+b. cuando la presencia de daño inminente, la gravedad del caso o por un criterio de oportunidad del o la jerarca, aconseja la interposición de la acción judicial como estrategia inicial para tutelar los derechos e intereses;
+c. cuando la recurrencia de los asuntos atendidos, evidencia la necesidad de atacar las causas estructurales del problema en la vía judicial.
+En todo caso, de previo a interponer la acción judicial, se deberán valorar las siguientes condiciones:
+a. Que la solicitud de la persona interesada se encuentre debidamente fundada en hechos y pruebas pertinentes y suficientes. En caso de que no se aporten las pruebas necesarias, la Dirección de Admisibilidad, Oficinas Regionales o Direcciones de Defensa según fuera el caso, podrán requerírselas al propio habitante mediante Gestiones Previas o bien, realizar la solicitud de información a la entidad denunciada.
+b. Que la investigación llevada a cabo por la Defensoría y reflejada en el expediente sustente de manera sólida la posición institucional que se presentará ante la autoridad judicial.
+c. Si la Defensoría tiene conocimiento de que una situación podría constituir delito deberá comunicarlo al Ministerio Público en forma inmediata. Para tal efecto, la persona funcionaria que conozca del hecho remitirá los antecedentes del caso a su director o directora, quien a su vez los remitirá a la Dirección de Asuntos Jurídicos para que formule la denuncia penal correspondiente que, en tal caso, será firmada por el o la Jerarca. Lo anterior sin perjuicio de que la persona funcionaria interponga directamente la denuncia.

@@ -1,0 +1,3 @@
+Artículo 45.- Del procedimiento de trabajo de las Investigaciones Estructurales.
+Una vez aprobada la propuesta investigativa, se procederá a la elaboración del plan de trabajo de la investigación que contemplará los mecanismos de coordinación, información y seguimiento del proyecto, así como las responsabilidades asignadas de forma individual. Asimismo, incluirá en el plan sesiones bimensuales de presentación de avances al o la Jerarca; quien aprobará el plan de trabajo.
+Las investigaciones estructurales tendrán un período máximo de seis meses y por excepción, previa aprobación del o la Jerarca, podrán extenderse máximo tres meses más.

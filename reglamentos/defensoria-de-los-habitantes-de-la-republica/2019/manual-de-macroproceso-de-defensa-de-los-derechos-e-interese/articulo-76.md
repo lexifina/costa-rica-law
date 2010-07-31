@@ -1,0 +1,2 @@
+Artículo 76.- Intervenciones interlocutorias.
+Durante todo el proceso se podrá solicitar información sobre el estado y documentación del caso. Si del seguimiento al procedimiento de hostigamiento sexual, la Defensoría detecta una violación de derechos podrá intervenir interlocutoriamente con el fin de incidir de forma inmediata ante la administración para corregir el procedimiento que se está llevando a cabo, de manera que se ajuste a los objetivos y principios previstos en la Ley.

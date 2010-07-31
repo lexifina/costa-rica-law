@@ -1,0 +1,2 @@
+Artículo 29.- Del registro de las actuaciones en las estrategias de defensa informales.
+Si la atención de un asunto requiere realizar solicitudes de información a través de llamadas telefónicas, correos electrónicos, inspecciones, visitas o reuniones u otras gestiones informales, de cada una de ellas se deberá elaborar un reporte, una minuta o un acta, según corresponda, y de los resultados se dejará constancia en el expediente físico y electrónico.

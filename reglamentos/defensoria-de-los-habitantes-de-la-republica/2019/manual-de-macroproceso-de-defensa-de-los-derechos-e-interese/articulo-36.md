@@ -1,0 +1,2 @@
+Artículo 36.- Del plazo de la Intervención por Denuncia.
+Todas las personas funcionarias involucradas en la estrategia de defensa de Intervención por Denuncia incluyendo aquellos a cargo de las actividades de recepción, registro, valoración de admisibilidad, apertura, asignación, desarrollo, revisión y aprobación final de la intervención; así como las actividades de notificación y correspondencia, deberán planificar sus gestiones con miras a ajustar el proceso de defensa al plazo de los dos meses que establece la Ley de la Defensoría de los Habitantes.

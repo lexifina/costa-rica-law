@@ -1,0 +1,2 @@
+Artículo 106.- De los procesos de Diálogo Social.
+Cuando exista una situación de amenaza, conflicto o lesión a los derechos e intereses de diferentes grupos de población, que estén disconformes con las omisiones, actuaciones o actos materiales de las autoridades públicas, las partes en conflicto podrán solicitar la intervención de la Defensoría de los Habitantes, la que podrá convocarlas para generar un espacio de diálogo y facilitar acuerdos entre las partes. A tal efecto, el o la Jerarca definirá las personas responsables institucionales de llevar adelante el proceso.

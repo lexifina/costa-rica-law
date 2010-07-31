@@ -1,0 +1,2 @@
+| Artículo 74.- De la confidencialidad de las denuncias.
+En todos los casos y durante todo el procedimiento se debe resguardar la confidencialidad de las partes. Una vez finalizado el procedimiento la resolución de la Defensoría reservará los datos sensibles, nombre de la persona denunciante, los contenidos del relato que garanticen el derecho a la intimidad. El acceso al expediente total en caso de ser requerido deberá tramitarse ante la institución activa.

@@ -1,0 +1,3 @@
+Artículo 38.- Pérdida de Interés del habitante.
+En los casos en que el o la habitante manifieste pérdida de interés en la tramitación de su denuncia, o cuando no sea posible comunicarse con éste o con ésta para conocer su criterio sobre los resultados de la intervención, o por haberse resuelto su pretensión, se emitirá un informe de cierre por pérdida de interés, siempre y cuando no afecte derechos colectivos o difusos.
+En caso de que se desconozca la localización de la persona denunciante, se podrán consignar las gestiones realizadas y los resultados logrados, que justifican el cierre, en el SOL, prescindiéndose de la notificación de un informe final escrito.

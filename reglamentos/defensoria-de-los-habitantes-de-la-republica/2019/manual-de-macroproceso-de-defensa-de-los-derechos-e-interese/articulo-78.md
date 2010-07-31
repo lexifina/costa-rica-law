@@ -1,0 +1,2 @@
+Artículo 78.- Plazo y cierre de la intervención.
+A partir de la notificación de la resolución final por parte de la administración activa la Defensoría inicia el análisis respectivo para determinar si emite un acuse de recibo y cierre sin ningún tipo de observación; un informe con recomendaciones o un informe sin recomendaciones, según lo requiera el caso para el logro de los objetivos de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia. En todos los casos, el acto de cierre podrá realizarse de forma individual o de manera acumulada por institución.

@@ -1,0 +1,5 @@
+CAPÍTULO XIII OTRAS ESTRATEGIAS DE DEFENSA
+Artículo 101.- Solicitud de criterio sobre Proyectos de Ley.
+Cuando la Asamblea Legislativa solicite a la Institución criterio sobre un proyecto de Ley, el o la Jerarca ordenará en el plazo de 24 horas siguientes a su ingreso, el registro de la Solicitud en el SOL mediante el cual se asignará a la Dirección que corresponda la elaboración de propuesta de criterio en el plazo de cinco días hábiles. En atención a la complejidad del proyecto, el o la jerarca podrá pedir prórroga a la comisión legislativa consultante. El criterio será emitido por el o la Jerarca.
+Cuando el tema al cual refiera el proyecto de ley involucre a varias direcciones, la Dirección de Despacho coordinará conjuntamente la elaboración de la propuesta de criterio dentro del plazo fijado por la Asamblea Legislativa.
+Cuando el proyecto de ley refiera a derechos de las personas con discapacidad o pueda afectarlos, le corresponderá emitir el criterio a la Dirección correspondiente en conjunto con el Mecanismo Nacional de Supervisión de la Convención sobre los Derechos de las Personas con Discapacidad.

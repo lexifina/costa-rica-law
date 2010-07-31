@@ -1,0 +1,3 @@
+Artículo 70.- Estrategia de seguimiento.
+Las acciones de seguimiento responderán a la naturaleza y particularidades del caso concreto, con base en lo cual cada profesional diseñará la estrategia correspondiente. Trimestralmente la persona profesional de defensa en coordinación con la jefatura respectiva, analizará el grado de cumplimiento de las recomendaciones para ajustar la estrategia de seguimiento a las metas planteadas en los planes anuales de trabajo de la Institución.
+Se mantendrá informada a la parte interesada del avance de las gestiones de cumplimiento para conocer su criterio y a cualquier otra persona, ente u órgano interesado en el caso.

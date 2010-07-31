@@ -1,0 +1,4 @@
+Artículo 40.- Intervención de oficio
+Cuando se haga de conocimiento de la Defensoría de los Habitantes, sea por un medio de comunicación u otra forma no individualizada, un asunto que por el interés que reviste, amerita la intervención de la Defensoría de los Habitantes en situaciones concretas, se procederá en forma oficiosa.
+Las intervenciones de oficio serán abiertas a solicitud del o la Defensora de los Habitantes o de los directores de defensa, admisibilidad o de las oficinas regionales. La apertura y trámite en el sistema SOL la realizará la dirección encargada del asunto particular.
+Para los efectos de trámite, se podrá gestionar en forma célere siguiendo las mismas disposiciones establecidas para las Intervenciones por Denuncia y, sus resultados se darán a conocer a la institución relacionada, según así corresponda.

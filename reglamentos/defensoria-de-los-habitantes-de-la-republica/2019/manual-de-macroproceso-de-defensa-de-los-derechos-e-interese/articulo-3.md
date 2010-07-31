@@ -1,0 +1,20 @@
+Artículo 3.- Estrategias de Defensa.
+Las estrategias de defensa son las formas de intervención que utiliza la Defensoría de los Habitantes para velar y proteger los derechos e intereses de las y los habitantes; estas se clasifican en:
+a. Orientación y Asesoría al Habitante (OAH)
+b. Atención Inmediata (AI)
+c. Intervención Informal (II)
+d. Intervención por Denuncia (ID)
+e. Intervención de Oficio (IO)
+f. Investigación Temática (IT)
+g. Investigación Estructural (IE)
+h. Seguimiento a Procedimientos Disciplinarios por Hostigamiento Sexual en el Sector Público (HS)
+i. Audiencias Públicas (AP)
+j. Acciones Judiciales (AJ)
+k. Proyectos de Ley (PL)
+l. Procesos de Diálogo Social (PDS)
+m. Acompañamiento y Trabajo Interinstitucional (ATI)
+n. Alertas Tempranas (AT)
+o. Intervenciones ante instancias internacionales de Derechos Humanos
+i. Informes ante Organismos Internacionales (IOI)
+ii. Amicus Curiae (AC)
+iii. Solicitud de medidas cautelares ante la Comisión Interamericana de Derechos Humanos (SMC)

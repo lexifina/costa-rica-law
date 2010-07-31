@@ -1,0 +1,2 @@
+Artículo 79.- Políticas contra el Hostigamiento Sexual.
+En cumplimiento a las atribuciones conferidas a la Defensoría en la Ley Contra el Hostigamiento Sexual en el Empleo y la docencia la Defensoría también podrá hacer seguimiento a las instituciones de las obligaciones de prevención en relación con las políticas internas, reglamentos y otras normativas que prevengan, desalienten, eviten y/o sancionen las conductas de hostigamiento sexual. Para tal efecto podrá coadyuvar en la promoción de derechos y brindar capacitaciones.

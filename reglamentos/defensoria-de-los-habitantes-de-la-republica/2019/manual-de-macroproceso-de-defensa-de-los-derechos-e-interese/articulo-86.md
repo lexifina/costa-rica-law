@@ -1,0 +1,2 @@
+Artículo 86.- Coordinación entre Direcciones de Defensa.
+Cuando en el expediente de solicitud tarifaria se incluyan temas que sean abordados por otras Direcciones de Defensa, se coordinará con éstas para una defensa integral de los intereses económicos de los y las habitantes
