@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-08-10 del 7 de abril del 2010, publicada en La Gaceta Nº 79 del 26 de abril del 2010.
