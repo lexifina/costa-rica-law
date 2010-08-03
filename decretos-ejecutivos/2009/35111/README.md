@@ -62,3 +62,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 47 | 2010-07-13 | Decreto Ejecutivo 36112 (2010-07-13) |
 | 48 | 2010-07-29 | Decreto Ejecutivo 36135 (2010-07-29) |
 | 49 | 2010-08-03 | Decreto Ejecutivo 36136 (2010-08-03) |
+| 50 | 2010-08-03 | Decreto Ejecutivo 36137 (2010-08-03) |
