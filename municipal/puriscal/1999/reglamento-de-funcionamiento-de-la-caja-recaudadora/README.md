@@ -14,3 +14,4 @@ Reglamento de Funcionamiento de la Caja Recaudadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-20 | la propia norma |
+| 2 | 2010-08-03 | Reglamento municipal 21 (2010-08-03) |
