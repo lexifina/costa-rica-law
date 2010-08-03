@@ -14,3 +14,4 @@ Modifica para el Museo de Arte y Diseño Contemporáneo el gasto presupuestario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-12 | la propia norma |
+| 2 | 2010-08-03 | Decreto Ejecutivo 36137 (2010-08-03) |
