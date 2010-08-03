@@ -1,0 +1,3 @@
+JUNTA DE PROTECCIÓN SOCIAL
+PROCEDIMIENTO PARA LA PROMOCIÓN PREMIOS ESPECIALES CON LOS SORTEOS DE LA LOTERÍA POPULAR “DÍA DE LA MADRE”
+Artículo 1º—Objeto. El objeto del presente procedimiento es el de regular los aspectos relacionados con la promoción establecida para la promoción premios especiales “Día de la Madre”, con motivo de la realización de los sorteos de la Lotería Popular, aprobado por la Junta Directiva de la Junta de Protección Social según acuerdo JD-361, correspondiente al artículo III) de la sesión extraordinaria Nº 12-2010 celebrada el 22 de julio del 2010, como parte de la estrategia de comercialización para este producto.

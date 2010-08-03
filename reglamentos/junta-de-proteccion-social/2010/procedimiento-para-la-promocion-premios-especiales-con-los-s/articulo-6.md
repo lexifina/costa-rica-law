@@ -1,0 +1,2 @@
+Artículo 6º—Mecánica de juego. La Junta realizará un sorteo en “El Programa La Rueda de la Fortuna” del Sábado 14 de agosto del 2010, el ganador se elegirá de manera electrónica, mediante un sorteo aleatorio entre todas las personas que hayan activado su Lotería Popular por medio telefónico o por la página WEB.
+La entrega del premio se realizará el sábado 21 de agosto en “El Programa de La Rueda de la Fortuna” o en fecha y lugar conveniente de acuerdo con la fecha de reclamo del premio.
