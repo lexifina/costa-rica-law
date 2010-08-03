@@ -1,1 +1,3 @@
-Artículo 53.—Cuando el denunciante lo solicite y la Comisión de Relaciones Laborales lo considere conveniente, podrá ser reubicado, en forma temporal, en cualquier momento del proceso.
+Artículo 53.—Cuando el denunciante lo solicite y la Comisión de Relaciones Laborales lo considere conveniente, deberán resolverse y aplicarse prevalentemente y con carácter de urgencia, en forma temporal en cualquier momento del proceso, las medidas cautelares que la Ley especial sobre la materia de hostigamiento sexual establece; para cuyos efectos deberán respetarse los derechos laborales de los obligados a la disposición preventiva, pudiendo ser aplicadas a ambas partes de la relación procesal, procurando mantener la seguridad de la víctima.
+Para la aplicación de las medidas cautelares, deberá efectuarse mediante resolución fundada y su vigencia será determinada por su instrumentalidad para el proceso.
+(Así reformado en sesión N° 558 del 3 de agosto de 2010).

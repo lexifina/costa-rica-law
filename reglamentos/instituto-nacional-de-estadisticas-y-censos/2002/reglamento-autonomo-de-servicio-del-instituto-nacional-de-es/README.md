@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio del Instituto Nacional de Estadística y Censos
 | --- | --- | --- |
 | 1 | 2002-07-15 | la propia norma |
 | 2 | 2003-04-08 | Reglamento 237 (2003-04-08) |
+| 3 | 2010-08-03 | Reglamento 558 (2010-08-03) |
