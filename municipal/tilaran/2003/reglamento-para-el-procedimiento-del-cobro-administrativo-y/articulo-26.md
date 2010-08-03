@@ -1,1 +1,2 @@
-Artículo 26.—Para la formalización de los arreglos de pago, el contribuyente moroso deberá aportar una garantía fiduciaria, que respalde su compromiso de pago.
+Artículo 26.—Para la formalización de los arreglos de pago, el contribuyente moroso deberá aportar una garantía fiduciaria, que respalde su compromiso de pago. El fiador (es) debe ser asalariado, o ser trabajador independiente activo registrado en la Caja. Además el salario líquido del fiador (es) debe cubrir al menos el 15% de la deuda.
+(Así reformado mediante sesión N° 07 del 3 de agosto de 2010)
