@@ -1,16 +1,10 @@
-Artículo 24. Sanciones: De probarse alguna de estas faltas, se aplicarán las sanciones correspondientes a amonestación, apercibimiento, suspensión sin goce de salario hasta por 8 días, o el despido.
-Para la aplicación de las sanciones se tomarán los siguientes criterios:
-a) Por relación de poder:
-• Relación desigual de poder: Jefe/a – Subalterno/a
-Subalterno/a – Jefe/a
-• Relación de Igual nivel: Subalterno/a – Subalterno/a
-Jefe/a – Jefe/a
-a) De acuerdo a la manifestación:
-• Leve Verbal: chistes vulgares, piropos constantes y pasados de tono, conversaciones de contenido sexual.
-• Moderado no verbal y sin contacto físico: Miradas y gestos lascivos.
-Serán consideradas como faltas graves las siguientes conductas:
-• Fuerte Verbal: Llamadas telefónicas, cartas, correos electrónicos, presiones para salir o proposiciones de índole sexual.
-Serán consideradas como faltas muy graves las siguientes conductas:
-• Fuerte con contacto físico: Manoseos, abrazos forzados, persecuciones, acorralamientos, aprisionamiento.
-• Muy Fuerte: Presión tanto física como sicológica para tener contacto físico o relaciones sexuales.
-Si la falta se considera grave o se identifican circunstancias agravantes en la conducta incurrida, se aplicará la sanción más drástica correspondiente.
+Artículo 24.—Circunstancias agravantes: Para determinar la gravedad de la falta cometida y a efecto de graduar las sanciones aplicables, se tendrán como circunstancias agravantes, y ante ello se considerará falta grave aquellas situaciones donde:
+a) El denunciado (a) (s) sea reincidente en la comisión de actos de acoso u hostigamiento sexual.
+b) Existan dos o más víctimas por conductas de esta naturaleza.
+c) La víctima sea menor de edad o sufra de algún tipo de discapacidad física o mental.
+d) Se demuestren conductas intimidatorias hacia las víctimas, testigos o compañeros de trabajo.
+Para calificar la gravedad de la falta, deberán considerarse entre otros aspectos, las siguientes condiciones personales del colaborador (a) responsable:
+a) Naturaleza de las funciones.
+b) Impacto en el servicio
+Se entiende que, respecto de los incisos a y b, conforme mayor sea la jerarquía, mayor nivel técnico de las funciones, y mayor el impacto hacia el servicio, mayor será la gravedad de la falta y la correspondiente responsabilidad.
+Para efectos del presente reglamento se considerará reincidente al investigado que en un periodo de hasta 3 meses, posterior a la verificación de una falta anteriormente cometida, la cual haya sido sancionada mediante apercibimiento o la suspensión sin goce de salario, se le demuestre haber incurrido nuevamente en una falta cuya sanción corresponda a las señaladas anteriormente.

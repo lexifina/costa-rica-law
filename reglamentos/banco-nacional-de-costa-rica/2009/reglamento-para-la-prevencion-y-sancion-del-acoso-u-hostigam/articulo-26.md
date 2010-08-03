@@ -1,2 +1,1 @@
-Artículo 26.—Aplicación supletoria: Para todo lo que no se regule en el presente reglamento, se aplicará la Ley Nº 7476 Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, la Ley General de la Administración Pública, el Código de Trabajo, la Convención Colectiva vigente y demás normativa vigente y aplicable en el Banco.
-La Uruca, 8 de diciembre del 2009
+Artículo 26.—Denuncia ante Tribunales de Trabajo: Una vez que se haya cerrado la investigación en la Institución, el denunciante o denunciado que no esté satisfecho con el resultado al que se llegue, puede presentar la denuncia correspondiente ante los Tribunales de Trabajo, dentro del término de prescripción que señala el título X, sección I del Código de Trabajo.
