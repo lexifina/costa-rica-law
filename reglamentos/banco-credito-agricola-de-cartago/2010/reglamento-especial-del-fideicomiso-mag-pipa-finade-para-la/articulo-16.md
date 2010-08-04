@@ -1,0 +1,1 @@
+Artículo 16.—De los recursos. La adquisición de los bienes y servicios, y contratación del personal temporal y de confianza según el presente Reglamento, serán cubiertos de acuerdo al presupuesto extraordinario que para tal efecto apruebe la Contraloría General de la República.

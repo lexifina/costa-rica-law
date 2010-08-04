@@ -1,0 +1,1 @@
+Artículo 3º—Actividad de Adquisición de Bienes y Servicios. La Unidad Técnica del Fideicomiso MAG-PIPA/FINADE es la dependencia autorizada para tramitar la contratación de los bienes y servicios que se adquieran, y la contratación de personal, todo al amparo del presente Reglamento, bajo los lineamientos e instrucciones del Consejo Rector del SBD y su Secretaría Técnica.
