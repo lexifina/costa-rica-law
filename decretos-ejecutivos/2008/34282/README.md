@@ -14,3 +14,4 @@ Rectifica, delimita y amplia los límites del Refugio Nacional de Vida Silvestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-08 | la propia norma |
+| 2 | 2010-08-04 | SINALEVI (sin norma nombrada) |
