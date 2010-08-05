@@ -1,0 +1,1 @@
+Artículo 15.—La Unidad Centro de Documentos deberá capacitar y asesorar a los encargados de los archivos de gestión de las diferentes unidades administrativas y los archivos regionales, o a cualquier otro funcionario relacionado con la actividad documental, para que organicen los archivos de conformidad con las políticas y técnicas reguladas por la Unidad Centro de Documentos.

@@ -1,0 +1,1 @@
+Artículo 23.—El responsable del archivo regional deberá administrar las funciones archivísticas de su unidad y de todas las unidades administrativas que la componen, así como servir de enlace con la Unidad Centro de Documentos y el Comité Institucional de Selección y Eliminación de Documentos.

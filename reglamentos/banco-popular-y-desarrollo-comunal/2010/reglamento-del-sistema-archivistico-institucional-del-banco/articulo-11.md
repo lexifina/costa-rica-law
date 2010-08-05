@@ -1,0 +1,1 @@
+Artículo 11.—El responsable de la Unidad Centro de Documentos será un profesional en Archivística, a quien le corresponderá administrar las funciones archivísticas de su unidad y de todos los archivos del sistema, así como servir de enlace con el Sistema Nacional de Archivos, de conformidad con lo que establece la Ley del Sistema Nacional de Archivos y su Reglamento.

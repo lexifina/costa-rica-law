@@ -1,0 +1,4 @@
+Artículo 24.—Serán funciones de los archivos regionales, entre otras, las siguientes:
+a) Reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar la documentación de las diferentes unidades administrativas que integran la región.
+b) Coordinar con la Unidad Centro de Documentos del Banco Popular y de Desarrollo Comunal la ejecución de políticas archivísticas de la Institución en concordancia con la Ley 7202 y su Reglamento.
+c) Capacitar y asesorar a los encargados de los archivos de gestión de las diferentes unidades administrativas de los archivos que integran la región, o a cualquier otro funcionario relacionado con la actividad documental, para que organicen los archivos de conformidad con las políticas y técnicas reguladas por la Unidad Centro de Documentos.
