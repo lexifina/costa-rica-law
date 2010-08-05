@@ -1,0 +1,6 @@
+Artículo 7º—De los requisitos para la presentación de solicitudes. El interesado deberá presentar la solicitud de condonación y la declaración jurada en las Direcciones Regionales del MAG, adjuntando la siguiente información:
+a) Personas físicas: fotocopia por ambos lados de la cédula de identidad vigente.
+b) Personas jurídicas: certificación notarial o certificación expedida por autoridad competente, que contenga el nombre, domicilio social exacto; número de cédula jurídica, y nombre, calidades, domicilio exacto, y número de cédula del representante legal y el poder que ostenta. Así mismo debe certificarse y acreditarse por los medios idóneos que la misma se encuentra vigente.
+c) Declaración Jurada, según el Formularios 2 (a) y 2 (b) del Anexo 3 y 4, según corresponda, mediante el cual declara bajo la fe del juramento, que cumple con los requisitos establecidos en el artículo 7 de la Ley Nº 8835.
+d) Certificación de ingresos brutos emitida por un CPA, con la información solicitada en el Formulario 3 del Anexo 5.
+La firma de los documentos correspondientes a la solicitud y a la declaración jurada, deberá realizarse ante el funcionario competente del MAG, quien dará fe de que la firma fue puesta en su presencia; en caso que tal entrega la realice una tercera persona, ambos documentos deberán ser autenticados por un abogado.

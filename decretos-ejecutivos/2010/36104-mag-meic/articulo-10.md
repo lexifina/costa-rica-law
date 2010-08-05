@@ -1,0 +1,9 @@
+Artículo 10.—De los requisitos para la presentación de solicitudes. El interesado deberá presentar la solicitud de condonación en las Direcciones Regionales del CNP, adjuntando la siguiente información:
+a) Personas físicas: fotocopia por ambos lados de la cédula de identidad vigente.
+b) Personas jurídicas: certificación notarial o certificación expedida por autoridad competente que contenga: nombre, domicilio social exacto; número de cédula de persona jurídica y nombre, calidades, domicilio exacto y número de cédula de identidad del representante legal de la persona jurídica y poder que ostenta. Asimismo, debe certificarse y acreditarse por los medios idóneos que la misma se encuentra vigente.
+c) Declaración jurada del interesado según el Formulario 5(a) para personas físicas (Anexo 9) o Formulario 5(b) para personas jurídicas (Anexo 10), según corresponda, mediante el cual declara bajo la fe del juramento que cumple con los requisitos establecidos en el artículo 7 de la Ley No 8835, con las siguientes obligaciones:
+i. Se declarará que son pequeños o medianos productores, según la definición que se encuentra en el artículo 2 del presente Reglamento
+ii. Que sus actividades agropecuarias fueron afectadas por un desastre natural o fuerza mayor, o por condiciones adversas del mercado.
+iii. Que en la actualidad tienen en riesgo su patrimonio, a causa de las deudas originalmente contraídas.
+La firma de los documentos correspondientes a la solicitud y a la declaración jurada, deberá realizarse ante el funcionario competente del CNP, quien dará fe de que la firma fue puesta en su presencia. En caso que tal entrega la realice una tercera persona los documentos deberán autenticarse por un abogado.
+d) Certificación de ingresos brutos anuales emitida por un CPA, según el Formulario 6 (Anexo 11).

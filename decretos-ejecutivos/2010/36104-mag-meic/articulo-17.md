@@ -1,0 +1,14 @@
+CAPÍTULO V
+De la Comisión Técnica Evaluadora
+Artículo 17.—De las atribuciones de la CTE: Además de las atribuciones establecidas en el artículo 10 de la Ley Nº 8835, la CTE debe:
+a) Analizar las solicitudes de condonación, así como el proyecto financiado y el efectivo cumplimiento de las condiciones y los requisitos exigidos en la Ley N° 8835, debiendo analizar los siguientes factores:
+Aspectos Jurídicos:
+i. Que esté acreditado, de acuerdo con el presente Reglamento, como un pequeño o mediano productor agropecuario.
+ii. Que se aportan los documentos válidos de acuerdo con este Reglamento, para acreditar su condición.
+iii. Otros aspectos legales a juicio de la CTE.
+Aspectos técnicos y financieros del proyecto:
+i. Se debe revisar de acuerdo con el expediente respectivo, las razones y la documentación aportada para demostrar que son productores afectados por desastres naturales, o por fuerza mayor, o por condiciones adversas de mercado. Para realizar este estudio se debe revisar toda la documentación de los expedientes, de tal forma que asegure el cabal y fiel cumplimiento de la verdad real de las condiciones, de tal forma que si tiene que solicitar información adicional, lo pueda realizar para corroborar fielmente el cumplimiento de estas condiciones.
+ii. Deberá solicitar al CNP, Finade o al Banco Nacional de Costa Rica, según corresponda, los expedientes correspondientes en donde se acredite la deuda inicial y actual de los solicitantes, así como la lista de los miembros de la agrupación cuando se formalizó el crédito y los miembros actuales.
+b) Elaborar el Informe técnico-jurídico: Una vez finalizada la evaluación respectiva y comprobada la exactitud, completitud, valoración y existencia de la información para establecer la verdad real de la viabilidad y la legalidad de acuerdo con la Ley Nº 8835 y este Reglamento, procederá a la elaboración del informe técnico-jurídico, sobre los casos de condonaciones y de readecuaciones de la deuda, el cual debe remitir al CR, órgano que procederá a revisar la recomendación de dicho estudio.
+c) Elaborar el Informe de gestión: La CTE debe elaborar un informe de fin de su gestión en donde se identifique claramente los logros, los resultados, los objetivos, los recursos usados, el procedimiento realizado, con fundamento en la información debidamente custodiada, se agregarán otros aspectos que a criterio del CR deban establecerse, este informe primero se aprobará por el CR y después se remite a la CGR para lo que corresponda.
+d) Custodiar la Información: Los expedientes deben estar ordenados, codificados, con la información ubicada en forma cronológica, foliados y custodiados por una persona como responsable, que brinde apoyo logístico a la CTE mientras esté vigente ésta. En el momento de su finalización se debe efectuar un inventario de los expedientes y la información será traslada a quien defina el CR.
