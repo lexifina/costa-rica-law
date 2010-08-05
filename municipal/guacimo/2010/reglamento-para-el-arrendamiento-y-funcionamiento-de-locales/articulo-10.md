@@ -1,0 +1,1 @@
+Artículo 10.—Los arrendatarios deberán estar al día en el pago del arrendamiento, así como el pago de las patentes municipales, el atraso en la cancelación de dichas obligaciones, será causal de conclusión del contrato de arrendamiento.

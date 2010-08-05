@@ -1,0 +1,1 @@
+Artículo 12.—El arrendatario deberá permitir el ingreso de los Funcionarios Municipales debidamente acreditados y autorizados para realizar inspecciones, pagar regular el buen funcionamiento y uso del bien dado en arrendamiento.

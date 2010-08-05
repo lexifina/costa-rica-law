@@ -1,0 +1,1 @@
+Artículo 3º—Que los usos comerciales de las actividades a que se destinara cada local, será definida desde el momento del remate por parte del Concejo Municipal, ningún inquilino podrá variar dicho uso, salvo que de previa obtenga autorización por escrito por parte del Concejo Municipal.

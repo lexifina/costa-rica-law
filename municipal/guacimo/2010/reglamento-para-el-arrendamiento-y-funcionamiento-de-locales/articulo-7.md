@@ -1,0 +1,1 @@
+Artículo 7º—Una misma persona física o jurídica no podrá tener más de un local municipal en arrendado, dicha medida afecta a los familiares de los actuales arrendatarios, inclusive hasta el segundo grado de consanguinidad y afinidad.

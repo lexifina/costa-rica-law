@@ -1,0 +1,1 @@
+Artículo 15.—En aras de tutelar las medidas de orden y seguridad, los arrendatarios deberán ajustar el funcionamiento de sus establecimientos, en el siguiente horario de 6:00 a.m. a 6:00 p.m., el que incumpla dicha disposición será prevenido por una sola vez, siendo que en caso de reincidencia procederá gestionar la resolución contractual por incumplimiento.

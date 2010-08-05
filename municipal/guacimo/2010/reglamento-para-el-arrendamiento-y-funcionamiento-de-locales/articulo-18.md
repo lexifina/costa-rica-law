@@ -1,0 +1,1 @@
+Artículo 18.—En el caso de los remates públicos, se aplicará el régimen de prohibiciones establecidos en el artículo 22 de la Ley de Contratación Administrativa, con respecto a los altos jerarcas de esta Municipalidad.

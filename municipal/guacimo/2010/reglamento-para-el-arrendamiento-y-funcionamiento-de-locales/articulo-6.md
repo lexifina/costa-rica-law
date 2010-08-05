@@ -1,0 +1,1 @@
+Artículo 6º—Que le corresponde a la Municipalidad, velar por el mantenimiento, que con motivo del uso ordinario, del bien se desprenda, dichas obras consistirán en pintura, pisos, techo, etc., siempre y cuando no obedezca a reparaciones de daños provocados por el arrendatario por un mal uso, del local dado en arriendo.
