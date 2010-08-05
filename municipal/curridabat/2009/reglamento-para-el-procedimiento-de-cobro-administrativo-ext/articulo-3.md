@@ -1,0 +1,14 @@
+Artículo 3º—Definiciones: Para los efectos del presente Reglamento, se entienden por:
+a. Reglamento: El Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Curridabat.
+b. Municipalidad: La Municipalidad de Curridabat.
+c. Unidad de Gestión de Cobro: Corresponde a la Unidad de Gestión de Cobro encargada de la función de recaudación de la Municipalidad.
+d. Dirección de Fiscalía Tributaria: Es la dependencia municipal encargada de realizar y coordinar todas las gestiones de cobranza administrativas o judiciales de la Municipalidad.
+e. Obligaciones vencidas: Las obligaciones dinerarias vencidas, o bien, créditos exigibles de plazo vencido a favor de la Municipalidad. Obligaciones que pueden provenir tanto de obligaciones tributarias municipales o de administración municipal, así como de cánones, arrendamientos o cualquier crédito existente de plazo vencido a favor de la Municipalidad.
+f. Obligaciones Tributarias Municipales: Correspondientes a todas aquellas prestaciones en dinero por los contribuyentes o responsables a la Municipalidad como consecuencia de impuestos municipales, o de administración municipal, tasa o contribuciones especiales.
+g. Sujeto activo: Es sujeto activo de la relación jurídica el ente acreedor del tributo.
+h. Sujeto pasivo: La persona obligada al cumplimiento de la obligación vencida, sea en calidad de contribuyente, responsable o deudor de la Municipalidad.
+i. Abogados(as) externos: Licenciados en Derecho que habiendo cumplido con los requisitos que la Municipalidad exige, y concursado para ofrecer sus servicios profesionales a la institución, bajo la normativa de este Reglamento realicen la gestión de cobro extrajudicial y judicial respectiva, para la recuperación de las obligaciones vencidas de esta Municipalidad.
+j. Cobro administrativo: Las acciones que se realizan administrativamente por parte de la Unidad de Gestión de Cobro, para que las obligaciones vencidas sean canceladas por parte de los sujetos pasivos.
+k. Cobro extrajudicial: Las acciones realizadas extrajudicialmente por los abogados externos en casos calificados, para la cancelación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro, previo a iniciar la gestión judicial correspondiente.
+l. Cobro judicial: Las acciones que se realicen por parte de los abogados externos, vía judicial, en aras de obtener la recuperación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro.
+m. Arreglo de pago: Es el compromiso que adquiere el sujeto pasivo con la Unidad de Gestión de Gestión de Cobro de la Municipalidad de pagar dentro del tiempo convenido por ambos, que no podrá exceder de seis meses, la obligación vencida adeudada a la Municipalidad. Solo en casos calificados se podrá extender plazo no mayor a un año con el visto bueno del Director Tributario.

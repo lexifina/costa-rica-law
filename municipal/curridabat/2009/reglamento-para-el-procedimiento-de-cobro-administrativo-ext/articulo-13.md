@@ -1,0 +1,3 @@
+Artículo 13.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la Dirección, para lo cual serán valoradas las siguientes condiciones del sujeto pasivo:
+a. Capacidad económica: El sujeto pasivo debe comprobar a la Dirección, que su situación económica impide cancelar, en forma total e inmediata, las obligaciones vencidas.
+b. Monto adeudado: De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente, y el plazo para la cancelación total de la obligación vencida, no podrá exceder de seis meses. Solo en casos calificados se podrá con el visto bueno del Director Tributario, extender plazo no mayor a un año.
