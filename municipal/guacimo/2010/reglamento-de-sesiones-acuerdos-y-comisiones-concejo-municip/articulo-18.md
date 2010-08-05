@@ -1,0 +1,1 @@
+Artículo 18º—Cuando concurrieren al Concejo, miembros de los supremos poderes, invitados especiales, representantes de organismos oficiales y extranjeros, representantes de instituciones autónomas o semi autónomas, se les recibirá en el salón de sesiones en la hora fijada para el efecto y después del saludo de rigor se les podrá conceder la palabra.

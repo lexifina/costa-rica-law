@@ -1,0 +1,6 @@
+Artículo 35.—Los dictámenes de las Comisiones deberán presentarse por escrito y firmados por el coordinador y/o Secretario de la Comisión que lo emite. Cuando no existiere acuerdo unánime sobre un dictamen, los miembros de la Comisión que no lo aprueben, podrán rendir dictamen de minoría por separado, si lo estiman conveniente. Todos los dictámenes deberán presentarse siguiendo un formato único pero sencillo que incluirá al menos las siguientes partes:
+1. Si es Comisión Especial la cita del encargo que se le hizo mediante el acuerdo correspondiente. Si es Comisión Permanente una síntesis ejecutiva del caso, documento o tema acerca de lo que se le traslado para pronunciarse.
+2. Un análisis de los antecedentes del tema, citando la documentación consultada o aportada para su recomendación.
+3. Un breve aporte de los hallazgos encontrados en el proceso de investigación o análisis.
+4. Un aparte conteniendo las conclusiones y recomendaciones para mejor resolver por parte del Concejo Municipal o hacia donde considera la Comisión que deba trasladarse el asunto.
+5. Un aparte con las firmas, nombres y apellidos de los comisionados que participaron en el tratamiento del tema o la Sesión correspondiente de la Comisión.

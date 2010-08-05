@@ -1,0 +1,1 @@
+Artículo 33.—Una vez designadas las Comisiones por el Presidente Municipal, éste señalará quienes serán los Coordinadores en la sesión de instalación, sus miembros nombrarán un Secretario y definirán su modus operandi.

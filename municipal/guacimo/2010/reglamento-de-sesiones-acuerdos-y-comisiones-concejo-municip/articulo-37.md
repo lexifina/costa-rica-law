@@ -1,0 +1,1 @@
+Artículo 37.—Los acuerdos de las Comisiones se tomarán con el carácter de firmes y se decidirán por simple mayoría. Los coordinadores de Comisión administraran el uso de la palabra bajo los mismos criterios de participación y tiempo (minutos y réplicas, de uso regulados, anteriormente, para el caso del Concejo Municipal, los visitantes, el público, regidores y síndicos.

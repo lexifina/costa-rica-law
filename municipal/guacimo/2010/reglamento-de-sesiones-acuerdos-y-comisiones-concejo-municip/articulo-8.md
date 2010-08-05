@@ -1,0 +1,1 @@
+Artículo 8º—Si en el curso de la sesión se rompiera el quórum, el Presidente por medio del secretario, instará a los Regidores que se hubieren retirado sin permiso para que ocupen sus curules. Transcurridos diez minutos sin que pueda reestablecerse el quórum, se levantará la sesión. Los Regidores remisos perderán el derecho a devengar la dieta correspondiente.
