@@ -1,0 +1,2 @@
+ARTÍCULO 70.- Realización de operativos
+La Municipalidad de Pérez Zeledón junto con las autoridades de la Fuerza Pública, la Dirección General de Migración y Extranjería, el Patronato Nacional de la Infancia, la Dirección de Tránsito del Ministerio de Obras Públicas y Transportes (MOPT), y el Ministerio de Salud o cualquier otra entidad afín, podrá realizar operativos para comprobar el adecuado cumplimiento de las normas de esta Ley y del Reglamento para el funcionamiento de las ventas estacionarias y ambulantes en vías públicas.

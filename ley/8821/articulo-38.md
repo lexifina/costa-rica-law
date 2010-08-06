@@ -1,0 +1,4 @@
+ARTÍCULO 38.- Facultad de los funcionarios municipales para emitir y hacer cumplir órdenes municipales
+Los funcionarios municipales están facultados, por el ejercicio de su cargo conforme a las leyes vigentes, sus funciones y su relación de jerarquía dentro de la Institución, para emitir órdenes, previamente fundadas y por escrito, a los administrados y velar por el fiel cumplimiento de estas.
+Además, están facultados para hacer cumplir las órdenes que emanan de otros funcionarios municipales y que se les encarga ejecutar. El mal uso de esta facultad podrá hacer incurrir al funcionario en falta grave, que se sancionará de conformidad con el Reglamento Autónomo de Organización y Servicios de la Municipalidad.
+El incumplimiento por parte del administrado de una orden municipal válidamente emitida y notificada, le hará incurrir en el delito de desobediencia a la autoridad, sancionado de conformidad con el Código Penal.

@@ -1,0 +1,4 @@
+ARTÍCULO 57.- Verificación de las declaraciones juradas
+Cuando la Municipalidad dude de la veracidad de la declaración jurada de patentes podrá exigir, por medio de orden municipal motivada a las personas físicas o jurídicas declarantes o no del impuesto sobre la renta, una certificación sobre el volumen de los ingresos brutos anuales, extendida por un contador público autorizado.
+El costo de esta certificación correrá por cuenta del contribuyente. Si se encuentra que efectivamente existen inexactitudes, la Municipalidad, de oficio, podrá determinar las tarifas de conformidad con los criterios establecidos en este artículo.
+La modificación de la base imponible del impuesto surgida a consecuencia de la declaración del contribuyente o de la tasación de oficio de la Municipalidad, entrará a regir a partir del segundo trimestre inmediato posterior.
