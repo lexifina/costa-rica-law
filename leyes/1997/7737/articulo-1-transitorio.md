@@ -1,2 +1,0 @@
-TRANSITORIO I.- Autorízase, por única vez, a la Municipalidad de Pérez Zeledón para que condone las obligaciones accesorias de todos los impuestos, tasas y servicios a su cargo, tales como intereses, recargos y multas de ley, a los contribuyentes que cancelen sus obligaciones en mora, dentro de los tres meses calendario posteriores a la publicación de la presente ley.
-Rige a partir de su publicación.
