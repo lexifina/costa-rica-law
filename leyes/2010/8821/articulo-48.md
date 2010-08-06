@@ -1,0 +1,2 @@
+ARTÍCULO 48.- Autorización a la administración tributaria municipal
+Autorízase a la administración tributaria municipal para que proceda a sancionar a los contribuyentes, a los declarantes, así como a los administrados afectos a una licencia municipal, que eludan ilegítimamente, evadan o no paguen este impuesto, de acuerdo con el título III del Código de Normas y Procedimientos Tributarios vigente.

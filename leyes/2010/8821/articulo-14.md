@@ -1,0 +1,3 @@
+ARTÍCULO 14.- Condiciones en que se otorgan las licencias
+Las licencias municipales se otorgan, únicamente, para el ejercicio de la actividad que ellas mismas determinan y en las condiciones que establece la resolución administrativa que se dicte con ese fin. Serán otorgadas por plazos de cinco años, los cuales podrán ser prorrogados previa solicitud del interesado y una vez que la administración municipal haya verificado la conveniencia o no del mantenimiento de la actividad conforme a esta Ley.
+Ningún administrado podrá ejercer un derecho distinto o adicional del que consagra una licencia municipal, so pena de revocación de esta.

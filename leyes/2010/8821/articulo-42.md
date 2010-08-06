@@ -1,0 +1,2 @@
+ARTÍCULO 42.- Confidencialidad de la información
+La información suministrada a la Municipalidad, tanto por los contribuyentes del impuesto de patentes municipales como por los administrados afectos a una licencia municipal, tendrá carácter confidencial, de acuerdo con el artículo 117 del Código de Normas y Procedimientos Tributarios. Esta información solo podrá brindársele al administrado o a quien él autorice debidamente, o por requerimiento formal de la autoridad judicial.

@@ -1,0 +1,4 @@
+ARTÍCULO 24.- Impugnación de la resolución administrativa
+La resolución que deniegue o apruebe la solicitud de licencia o el permiso podrá ser impugnada mediante recurso de revocatoria y apelación dentro del término de quinto día, de conformidad con lo que establece el artículo 162 del Código Municipal. Los recursos deberán presentarse en escrito motivado donde consten los antecedentes del caso, los hechos, los argumentos, los criterios, las opiniones y los fundamentos legales y probatorios del recurso.
+La resolución que resuelva estos recursos deberá contener los mismos requisitos formales que se describen en el artículo 23 de esta Ley.
+La resolución administrativa del alcalde municipal que resuelva el recurso de apelación, previa declaración expresa en este sentido, agotará la vía administrativa.

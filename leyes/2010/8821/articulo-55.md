@@ -1,0 +1,2 @@
+ARTÍCULO 55.- Documentos requeridos para la declaración jurada municipal
+Cuando los contribuyentes del impuesto de patentes no sean declarantes del impuesto sobre la renta, y en los casos de duda sobre la información obtenida en la declaración jurada, la Municipalidad podrá solicitarles la fotocopia del último recibo de pago de planilla a la Caja Costarricense de Seguro Social (CCSS), una constancia de la agencia respectiva de dicha Institución o, en su defecto, una declaración jurada explicativa de las razones que los eximen de cotizar para la Caja.

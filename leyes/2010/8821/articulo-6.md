@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Propiedad de las licencias municipales
+Las licencias municipales son un activo intangible propiedad de la Municipalidad. El otorgamiento de una de ellas a una persona no traslada el dominio de esta, sino que tan solo cede, de manera directa al beneficiario, el derecho de explotación que ella contiene. Este derecho podrá ser cedido por el beneficiario a un tercero previa autorización por parte de la Municipalidad, si este último cumple los requisitos de ley y reglamentarios establecidos para el ejercicio de la actividad.
