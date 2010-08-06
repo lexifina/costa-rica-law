@@ -1,0 +1,2 @@
+ARTÍCULO 49.- Licencia y tributos municipales
+En toda solicitud de otorgamiento, traslado, traspaso, cesión o renuncia de una licencia municipal, será requisito sine qua non que tanto el solicitante como el propietario del inmueble donde se llevará a cabo la actividad estén al día en el pago de los tributos municipales. Mientras esta situación de morosidad o de endeudamiento persista, el funcionario municipal no podrá darle trámite a ninguna solicitud y así se lo hará saber al interesado en resolución motivada.

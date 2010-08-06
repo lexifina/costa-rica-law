@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Obligación del administrado de señalar lugar o medio idóneo para atender notificaciones
+Todo administrado tiene la obligación de señalar lugar o medio idóneo para atender notificaciones por parte de la Municipalidad, dentro del perímetro establecido por ella al efecto y de conformidad con lo que señala la legislación vigente en materia de notificaciones. De no hacerlo, la Municipalidad puede tener por notificado lo resuelto en un término de veinticuatro horas transcurridas después de dictado el acto administrativo.

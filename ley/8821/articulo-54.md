@@ -1,0 +1,4 @@
+ARTÍCULO 54.- Copia de declaración jurada del impuesto sobre la renta
+En caso de duda sobre la veracidad de la información que aporta el patentado en su declaración jurada, la Municipalidad de Pérez Zeledón podrá exigirle al administrado, dentro del término de cinco días después de revisada su declaración y en orden municipal motivada al efecto, una copia de la declaración del impuesto sobre la renta, presentada a la Dirección General de Tributación.
+Si el administrado se niega a suministrar esta información, o si por cualquier motivo no puede presentarla a tiempo, la Municipalidad podrá solicitarla de manera directa a la Dirección General de Tributación, la cual se la suministrará en un término máximo de diez días hábiles después de solicitada.
+Para el cumplimiento de esta disposición, la Municipalidad de Pérez Zeledón queda autorizada a firmar un convenio de colaboración y ayuda mutua con la Dirección General de Tributación, del Ministerio de Hacienda.

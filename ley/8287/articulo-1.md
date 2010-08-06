@@ -1,5 +1,6 @@
-LEYES
+(Derogado)
 Nº 8287
+(Esta norma fue derogada por el artículo 74 de la ley Regulación de Licencias y Patentes de Pérez Zeledón, Nº 8821 del 3 de mayo de 2010)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:

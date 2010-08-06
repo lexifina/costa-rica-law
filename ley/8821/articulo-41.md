@@ -1,0 +1,2 @@
+ARTÍCULO 41.- Principio de solidaridad comunitaria
+El impuesto de patentes municipales se establece con el fin de desarrollar el principio de solidaridad comunitaria que establece la necesidad de que todos los que realizan actividades productivas, sin importar del tipo que estas sean, deberán contribuir al desarrollo de los servicios públicos del cantón y a la protección de los intereses locales afectados por el desarrollo, el crecimiento, la necesidad de control y la consolidación de estas actividades.
