@@ -1,0 +1,1 @@
+Artículo 16.—Notificaciones. Las resoluciones del Tribunal Administrativo de la Seguridad Social del Régimen de Pensiones y Jubilaciones del Magisterio Nacional se notificarán en los términos indicados en los artículos 239 siguientes y concordantes de la Ley General de Administración Pública y supletoriamente de conformidad con la Ley de Notificaciones Judiciales.

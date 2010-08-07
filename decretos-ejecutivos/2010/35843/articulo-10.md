@@ -1,0 +1,2 @@
+Artículo 10.—Facultades y atribuciones del Vicepresidente: El Vicepresidente del Tribunal tendrá las siguientes facultades y atribuciones:
+El Vicepresidente sustituirá al presidente en sus ausencias temporales, con las respectivas facultades y atribuciones. En caso de renuncia, destitución, incapacidad permanente, o muerte ejercerá la presidencia durante el periodo que le restaba cumplir al presidente.

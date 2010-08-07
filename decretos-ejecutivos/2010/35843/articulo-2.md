@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza Jurídica: el Tribunal Administrativo de la Seguridad Social del Régimen de Pensiones y Jubilaciones del Magisterio Nacional es un órgano desconcentrado del Ministerio de Trabajo y Seguridad Social con competencia exclusiva e independencia funcional, administrativa y financiera en el desempeño de sus atribuciones.

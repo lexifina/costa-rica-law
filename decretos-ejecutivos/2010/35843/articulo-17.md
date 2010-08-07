@@ -1,0 +1,1 @@
+Artículo 17.—Recursos contra la resolución final. Las resoluciones que emita el Tribunal Administrativo de la Seguridad Social del Régimen de Pensiones y Jubilaciones del Magisterio Nacional no tendrán más recurso y darán por agotada la vía administrativa.
