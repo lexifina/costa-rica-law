@@ -1,0 +1,1 @@
+Artículo 19.—Acceso al expediente administrativo. Las partes y sus representantes y cualquier abogado, tendrán derecho a examinar, leer y fotocopiar cualquier pieza del expediente, así como solicitar certificación de la misma, con las salvedades que indica el artículo 273 de la Ley General de la Administración Pública.

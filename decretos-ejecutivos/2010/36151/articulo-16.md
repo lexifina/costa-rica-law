@@ -1,0 +1,4 @@
+Artículo 16.—Sesiones y actas: Los miembros del Tribunal Administrativo del Servicio Civil, sesionarán al menos una vez por semana o cuantas veces sea necesario, para cumplir con las atribuciones encomendadas y garantizar la adecuada prestación del servicio público.
+De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de tiempo y lugar donde se celebró la sesión, puntos de deliberación, el resultado de la votación con indicación expresa de los votos salvados y los acuerdos tomados.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de mayoría simple.
+El acta será firmada por el Presidente y el Secretario del Tribunal y por aquellos miembros que hubiesen hecho constar su voto disidente.

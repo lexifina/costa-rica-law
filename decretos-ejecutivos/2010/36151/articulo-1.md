@@ -1,0 +1,16 @@
+N° 36151-MP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las facultades que les conceden los incisos 3) y 18), del artículo 140 y 146 de la Constitución Política y el artículo 28 punto 2 inciso b) de la Ley General de la Administración Pública.
+Considerando:
+I.—Que el artículo 12 de la Ley 8777 del 7 de octubre del 2009, publicada en el Diario Oficial La Gaceta 219 del 11 de noviembre de 2009, denominada Ley de Creación de los Tribunales Administrativos del Régimen de Pensiones y Jubilaciones del Magisterio Nacional y del Servicio Civil, establece el deber de reglamentar dicha Ley.
+II.—Que conforme lo dispone el Transitorio Único de la Ley 8777 supra citada, el Tribunal Administrativo de la Seguridad Social del Régimen de Pensiones y Jubilaciones del Magisterio Nacional y el Tribunal Administrativo del Servicio Civil entrarán en operación una vez vencido el plazo de transitoriedad establecido en el voto dictado por la Sala Constitucional de la Corte Suprema de Justicia, número 6866-2005 del 01 de junio del 2005, mismo que se impuso en tres años contados a partir de la notificación de dicha sentencia, el cual se concreta el 7 de agosto del 2010.
+III.—Que previo a la publicación de la mencionada Ley 8777, hasta el 7 de agosto del 2010, el Tribunal Superior de Trabajo era el Superior Jerárquico Impropio y el competente para conocer en alzada los recursos presentados contra las resoluciones dictadas en conocimiento de derechos de pensión del Régimen de Pensiones y Jubilaciones del Magisterio Nacional y de las apelaciones formuladas contra las resoluciones dictadas por el Tribunal de Servicio Civil.
+IV.—Que la mencionada Ley 8777, crea dos Tribunales Administrativos cada uno con su propia competencia. El Tribunal Administrativo de la Seguridad Social del Régimen de Pensiones y Jubilaciones del Magisterio Nacional se crea para conocer los recursos de apelación que se presenten contra las resoluciones dictadas por la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social, dentro de los procesos declaratorios de derechos del Régimen de Pensiones y Jubilaciones del Magisterio Nacional, así como los demás asuntos que por normativa sean sometidos a su conocimiento. El Tribunal Administrativo del Servicio Civil, se crea para conocer de los recursos de apelación contra las resoluciones que dicte el Tribunal de Servicio Civil en materia de despido y reclamos de los funcionarios sujetos al Régimen de Servicio Civil, así como los demás asuntos que por ley o reglamento deban ser conocidos por este Tribunal.
+V.—Que por la naturaleza de los asuntos sometidos a su conocimiento, y de acuerdo con lo que establece el artículo 12 de la citada Ley 8777, es necesario regular de forma independiente el funcionamiento del Tribunal Administrativo del Servicio Civil. Por tanto;
+Decretan:
+Reglamento Orgánico y Operativo
+del Tribunal Administrativo del Servicio Civil
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objeto. Este reglamento tiene por objeto regular la organización y el funcionamiento del Tribunal Administrativo del Servicio Civil, creado en el artículo 6 de la Ley 8777 del 7 de octubre del 2009, publicada en el Diario Oficial La Gaceta 219 del 11 de noviembre del 2009.
