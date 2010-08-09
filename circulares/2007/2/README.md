@@ -13,3 +13,4 @@ Aclaración de la circular 41-2006 sobre la prohibición de brindar a particular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-05 | la propia norma |
+| 2 | 2010-08-09 | Circular 91 (2010-08-09) |

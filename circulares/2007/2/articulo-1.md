@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR Nº 002-2007
+(Esta norma fue dejada sin efecto mediante sesión N° 56 del 3 de junio de 2010 y publicada en el Boletín Judicial N° 165 del 25 de agosto de 2010, mediante circular N° 91 del 9 de agosto de 2010)
 ASUNTO: Aclaración de la Circular Nº 41-2006.
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
