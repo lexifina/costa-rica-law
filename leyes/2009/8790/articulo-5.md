@@ -22,3 +22,4 @@ INDICADORES DE RESULTADOS:
 (NOTA: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 52 a La Gaceta N° 254 del 31 de diciembre del 2009)
 (Modificado por el artículo 1° del decreto ejecutivo N° 35858 del 9 de marzo de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36006 del 3 de mayo de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36087 del 8 de julio de 2010)
