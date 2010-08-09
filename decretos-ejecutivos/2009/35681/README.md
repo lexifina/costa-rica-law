@@ -14,3 +14,4 @@ Modifica para el Consejo de Seguridad Vial el gasto presupuestario máximo fijad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-20 | la propia norma |
+| 2 | 2010-08-09 | Decreto Ejecutivo 36142 (2010-08-09) |
