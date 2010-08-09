@@ -1,1 +1,0 @@
-Artículo 4º—Ámbito de aplicación. Este Reglamento se aplicará a la adquisición de obras, bienes y servicios mediante los procedimientos ordinarios de contratación, y las contrataciones de materias excluidas de los procedimientos ordinarios que se lleven a cabo en el INA.
