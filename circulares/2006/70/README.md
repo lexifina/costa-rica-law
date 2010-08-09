@@ -13,3 +13,4 @@ Aclaración de la Circular N° 41-2006, sobre acceso a los expedientes judiciale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-23 | la propia norma |
+| 2 | 2010-08-09 | Circular 91 (2010-08-09) |
