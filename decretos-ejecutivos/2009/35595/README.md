@@ -15,3 +15,4 @@ Declara Medicamentos de Venta Libre al Consumidor
 | --- | --- | --- |
 | 1 | 2009-11-25 | la propia norma |
 | 2 | 2010-05-10 | Decreto Ejecutivo 36041 (2010-05-10) |
+| 3 | 2010-08-09 | Decreto Ejecutivo 36288 (2010-08-09) |
