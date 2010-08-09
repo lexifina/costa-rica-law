@@ -14,3 +14,4 @@ Modifica para Colegio Universitario de Cartago el gasto presupuestario máximo f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-11 | la propia norma |
+| 2 | 2010-08-09 | Decreto Ejecutivo 36140 (2010-08-09) |
