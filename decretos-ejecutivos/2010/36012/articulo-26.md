@@ -1,0 +1,1 @@
+Artículo 26.—El resultado de la categorización y toda la información relacionada con el proceso de certificación -excepto aquélla que competa estrictamente a la empresa turística-, deberá estar disponible para que los usuarios del servicio, funcionarios del ICT o personas interesadas puedan consultarlo y cotejarlo con la situación real de la empresa.

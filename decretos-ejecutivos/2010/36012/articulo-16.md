@@ -1,0 +1,1 @@
+Artículo 16.—Cuando existan incongruencias o anomalías en la evaluación realizada por un OEE, el Comité Técnico de Ejecución auditará la empresa evaluada con el fin de determinar la gravedad del reporte y tendrá la potestad de auditar la cartera de las empresas en proceso de evaluación por dicho OEE.

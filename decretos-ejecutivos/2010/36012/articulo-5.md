@@ -1,0 +1,8 @@
+Artículo 5º—La CNA estará integrada por un representante de cada una de las siguientes entidades y sus suplentes:
+a) Instituto Costarricense de Turismo (ICT), quien la presidirá.
+b) Instituto Nacional de Biodiversidad (INBIO)
+c) Instituto Centroamericano de Administración de Empresas (INCAE)
+d) Unión Internacional para la Conservación de la Naturaleza (UICN)
+e) Cámara Nacional de Turismo (CANATUR)
+f) Universidad de Costa Rica (UCR)
+g) Ministerio del Ambiente, Energía y Telecomunicaciones (MINAET)

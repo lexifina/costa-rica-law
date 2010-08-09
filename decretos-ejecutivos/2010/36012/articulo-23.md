@@ -1,0 +1,1 @@
+Artículo 23.—Para la evaluación de las empresas interesadas en certificarse en el Programa del CST, éstas podrán contratar los servicios de los OEE en cuyo caso el costo de dicha evaluación será cubierto por el interesado, quién pagará directamente a la empresa evaluadora. Ello procurando tener en cuenta las recomendaciones en materia tarifaria que haga la CNA.
