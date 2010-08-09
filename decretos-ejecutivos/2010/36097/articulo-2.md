@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria, la Empresa de Servicios Públicos de Heredia, ESPH S. A., previa autorización de la oficina correspondiente del Sistema Nacional de Áreas de Conservación, procederá a la corta de árboles ubicados en las áreas del proyecto, que así lo requieran.
