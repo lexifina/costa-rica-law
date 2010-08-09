@@ -1,0 +1,1 @@
+Artículo 23.—En eventos de poca participación, a criterio de la Comisión, se podrán utilizar recibos membretados de la Comisión, para consignar el recibo de dinero y entregarlo al interesado como comprobante de inscripción o participación en el evento. En el recibo se debe indicar el monto, concepto y nombre de la persona que paga o participa.

@@ -1,0 +1,1 @@
+Artículo 12.—En todo espectáculo público, llámese corrida de toros, bailes y en todo evento público la Municipalidad por medio del Departamento de Rentas cobrará el impuesto a espectáculos públicos respectivos.

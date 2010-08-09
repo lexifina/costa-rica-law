@@ -1,0 +1,1 @@
+Artículo 49.—La liquidación de ingresos y gastos de la Comisión será remitida por la Comisión a la Auditoría Municipal, dentro del plazo indicado el artículo 45, contados a partir del día de finalización de los Festejos, acompañada de la documentación antes relacionada.

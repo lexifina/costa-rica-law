@@ -1,0 +1,1 @@
+Artículo 11.—La documentación que se ordene imprimir, puede ser confeccionada por empresas privadas o si fuese conveniente y posible, por la de la Imprenta de la Municipalidad de Siquirres, en cuyo caso, necesariamente, esta debe cobrar por su trabajo, cuando menos el costo.

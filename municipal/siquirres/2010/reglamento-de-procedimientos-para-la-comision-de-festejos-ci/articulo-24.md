@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los egresos
+Artículo 24.—Todos los pagos, excepto los realizados por caja chica, deberán hacerse mediante cheque, los cuales se registrarán y clasificarán en el Mayor Auxiliar de Gastos, por orden numérico consecutivo. Cada gasto deberá ser comprobado mediante justificante original, nítido, debidamente cancelado, extendido a nombre de la Comisión que indique el recibido conforme de los bienes y servicios por parte de la Comisión. Los miembros de la Comisión autorizados para firmar los cheques, deben revisar los justificantes de gastos que los amparan antes de firmarlos. En todos los cheques emitidos deberá tacharse la leyenda “o al portador”.

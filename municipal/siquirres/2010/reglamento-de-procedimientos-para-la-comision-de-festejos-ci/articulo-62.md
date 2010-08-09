@@ -1,0 +1,1 @@
+Artículo 62.—En forma transitoria para las fiestas del 2010 todo los recursos que generen las fiestas serán en su totalidad para el albergue de Ancianos de Siquirres y en los años sucesivos la distribución será un cincuenta por ciento para el albergue de ancianos, un 25 por ciento para el centro diurno de ancianos y un veinticinco por ciento a programas ambientales del Cantón.

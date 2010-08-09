@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión, en su primera sesión debe nombrar un directorio, integrado por un presidente, un secretario, un tesorero y dos vocales. Dentro de las tres primeras sesiones, la Comisión designará a los integrantes de la misma, que serán responsables de la dirección de cada una de las subcomisiones que la Comisión resuelva nombrar.

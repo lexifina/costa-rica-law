@@ -1,0 +1,1 @@
+Artículo 25.—Todas las erogaciones que requieran emisión de cheques serán autorizadas de previo por la Comisión y constar en actas y por cada uno se debe emitir una orden de pago, en que conste la autorización de la Comisión.

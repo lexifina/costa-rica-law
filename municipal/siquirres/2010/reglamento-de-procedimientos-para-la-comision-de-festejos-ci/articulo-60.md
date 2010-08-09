@@ -1,0 +1,1 @@
+Artículo 60.—El Concejo Municipal, podrá disponer, en casos calificados como graves, la suspensión temporal, de uno o varios miembros de la Comisión de Festejos Populares, en cuyo caso ordenará la inmediata instalación de un órgano director de proceso, que investigue los hechos acusados, garantizando el debido proceso a las partes.

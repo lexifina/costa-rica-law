@@ -1,0 +1,1 @@
+Artículo 64.—Quedan totalmente prohibidas los remates o actividades posteriores a la finalización de fiestas, todo para lo cual la Municipalidad de Siquirres y la Comisión de Festejos Populares deberá coordinar con la Fuerza Pública del Cantón de Siquirres para la supervisión de dichos actos no autorizados.

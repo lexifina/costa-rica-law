@@ -1,0 +1,1 @@
+Artículo 36.—El tesorero de la Comisión, deberá presentar a esta en la tercera semana de cada mes, un informe de cuenta de caja chica, cualquiera que sea la suma gastada a la fecha del informe, con el fin de que se controle el adecuado uso de este fondo.

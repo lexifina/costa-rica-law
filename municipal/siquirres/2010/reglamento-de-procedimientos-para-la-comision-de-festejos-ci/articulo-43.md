@@ -1,0 +1,1 @@
+Artículo 43.—La Comisión deberá elaborar contratos que respalden las negociaciones efectuadas, para la venta de puestos, comercialización de vallas publicitarias, patrocinio de las actividades organizadas, tales como carnaval, corridas de toros, etc., y por cualquier otro gasto o convenio que autorice y que no sea una simple compra de un bien.

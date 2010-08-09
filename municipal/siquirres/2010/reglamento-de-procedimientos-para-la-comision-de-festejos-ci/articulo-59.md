@@ -1,0 +1,1 @@
+Artículo 59.—Por medio de acuerdo el Concejo Municipal, aprobará las patentes temporales que se utilizarán para desarrollo de los festejos populares y se cobrara la respectiva patente por el Departamento de Patentes, para lo cual tomará como parámetro los puestos rematados. Estas patentes serán emitidas por el Departamento de Patentes.

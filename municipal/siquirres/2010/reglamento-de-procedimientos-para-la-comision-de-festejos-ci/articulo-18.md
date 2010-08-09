@@ -1,0 +1,1 @@
+Artículo 18.—Al efectuar los depósitos de los ingresos recaudados, el tesorero anotará en los comprobantes de ingreso, el número del depósito bancario y el número de los comprobantes de ingreso que componen la suma total depositada.

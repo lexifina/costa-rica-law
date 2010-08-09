@@ -1,0 +1,2 @@
+Artículo 58.—El Concejo Municipal, una vez juramentada la Comisión de Festejos, procederá al nombramiento de una Comisión Fiscalizadora de los Festejos Populares, integrada por un representante de cada una de las fracciones políticas presentes en el Concejo Municipal, la cual tendrá amplias funciones de control y fiscalización de las actividades de la Comisión de Festejos, sin que pueda interferir en sus decisiones.
+El período de cada Comisión Fiscalizadora, finalizará en el momento en que se nombre la Comisión de Festejos del año siguiente.

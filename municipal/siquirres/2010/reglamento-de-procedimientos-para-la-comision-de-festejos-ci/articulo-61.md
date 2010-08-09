@@ -1,0 +1,1 @@
+Artículo 61.—De conformidad con lo establecido en el artículo 43 del Código Municipal, este Reglamento, entrará en vigencia a partir del día de la juramentación de la Comisión de Festejos Populares período 2010.

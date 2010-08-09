@@ -1,0 +1,1 @@
+Artículo 14.—La cuenta corriente de la Comisión, debe ser conciliada, como mínimo mensualmente, según las normas comunes aplicables a este tipo de actos, de lo cual se debe dejar constancia ante la Comisión, la que lo hará constar en el acta respectiva.

@@ -1,0 +1,1 @@
+Artículo 53.—Toda la documentación prenumerada, tal como entradas de toros, servicios sanitarios, inscripciones, comprobantes de ingresos, egresos, cheques, etc., deben hacerse acompañar de un listado que detalle el total emitido, los documentos utilizados, sobrantes y nulos. Por su parte los mismos deben presentarse en orden numérico, en bloques y en buen estado de presentación.
