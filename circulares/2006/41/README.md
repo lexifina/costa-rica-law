@@ -13,3 +13,4 @@ Aclaración a la Circular N° 152-02, sobre “Dejar sin efecto la Circular N° 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-29 | la propia norma |
+| 2 | 2010-08-09 | Circular 91 (2010-08-09) |

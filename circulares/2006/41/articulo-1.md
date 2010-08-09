@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR No. 41-2006
+(Esta norma fue dejada sin efecto mediante sesión N° 56 del 3 de junio de 2010 y publicada en el Boletín Judicial N° 165 del 25 de agosto de 2010, mediante circular N° 91 del 9 de agosto de 2010)
 ASUNTO: Aclaración a la Circular N° 152-02, sobre “Dejar sin efecto la Circular N° 144-02, sobre la prohibición brindar a particulares información de expedientes”, publicada en el Boletín Judicial N° 19 del 28 de enero de 2003.-
 A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
