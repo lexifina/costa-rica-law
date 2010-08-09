@@ -13,3 +13,4 @@ Acceso a la información que se puede brindar en una causa penal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-08 | la propia norma |
+| 2 | 2010-08-09 | Circular 91 (2010-08-09) |
