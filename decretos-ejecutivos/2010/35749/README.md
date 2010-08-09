@@ -14,3 +14,4 @@ Modifica para la Junta Administrativa del Archivo Nacional el gasto presupuestar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-03 | la propia norma |
+| 2 | 2010-08-09 | Decreto Ejecutivo 36141 (2010-08-09) |
