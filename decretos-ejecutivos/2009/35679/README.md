@@ -14,3 +14,4 @@ Modifica para el Instituto Costarricense de Acueductos y Alcantarillados el gast
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-25 | la propia norma |
+| 2 | 2010-08-09 | Decreto Ejecutivo 36143 (2010-08-09) |
