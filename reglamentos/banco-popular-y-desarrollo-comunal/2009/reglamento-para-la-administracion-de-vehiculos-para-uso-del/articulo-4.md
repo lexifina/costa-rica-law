@@ -1,0 +1,1 @@
+Artículo 4º—Los vehículos propiedad del Banco o de las Sociedades deberán estar convenientemente asegurados a criterio de la respectiva Gerencia. Asimismo, ella establecerá el procedimiento a seguir en casos de accidente y demás eventos cubiertos por la póliza.
