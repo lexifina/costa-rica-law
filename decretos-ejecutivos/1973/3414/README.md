@@ -36,3 +36,4 @@ Reglamento Interior General Colegio Federado Ingenieros y Arquitectos
 | 21 | 2010-05-11 | Reglamento 3 (2010-05-11) |
 | 22 | 2010-05-11 | Reglamento 3 (2010-05-11) |
 | 23 | 2010-05-11 | Reglamento 3 (2010-05-11) |
+| 24 | 2010-08-10 | Reglamento 4 (2010-08-10) |

@@ -1,2 +1,3 @@
-ARTICULO 38.- En la sesión inaugural de la nueva Junta Directiva General se elegirá de su seno el Presidente, Vicepresidente y Contralor.
-En esta sesión se tomará el acuerdo, señalando la hora y día en que se sesionará ordinariamente, quedando todos sus miembros obligados a concurrir sin que sea obligatoria una nueva convocatoria. Luego se juramentará a los nuevos delegados a la asamblea de representantes.
+ARTICULO 38.- En la sesión inaugural de la nueva Junta Directiva General se elegirá de su seno al Presidente, Vicepresidente y Contralor.
+Posteriormente, se juramentará a los nuevos delegados a la Asamblea de Representantes.
+(Así reformado mediante sesión ordinaria N° 04-09/10 del 10 de agosto de 2010)
