@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE VALVERDE VEGA
+Se comunica que mediante el artículo VII inciso b) de la sesión ordinaria Nº 8, celebrada por el Concejo Municipal el día 22 de junio del 2010, por unanimidad, acordó: Adherirse a la Ley Nº 8818 que corresponde a una autorización para que las municipalidades condonen deudas por concepto de recargos, intereses y multas, a partir del 10 de agosto del año 2010 y hasta el 31 de marzo del año 2011, cumpliendo lo estipulado en dicha ley. Acuerdo definitivamente aprobado con dispensa de trámite de comisión. Publíquese en el Diario Oficial La Gaceta.
+Sarchí Norte, 24 de junio del 2010.
