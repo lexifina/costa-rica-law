@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PUNTARENAS
+El Concejo Municipal en sesión extraordinaria Nº 20 celebrada el día 7 de julio de 2010, en su artículo 3, inciso A., acordó definitivamente aprobado siete votos, autorizar a la Administración Municipal a la aplicación de la Ley Nº 8818, la cual dispensa del pago de intereses, multas y recargos de los impuestos municipales a los contribuyentes del Cantón de Puntarenas, que se encuentran morosos a la fecha de promulgación de la presente iniciativa y se otorga un plazo que comprende desde el 10 de agosto 2010 hasta el 30 de abril del 2011 y con arreglos de pagos en tractos de seis meses.
+Puntarenas, 5 de agosto de 2010.—
