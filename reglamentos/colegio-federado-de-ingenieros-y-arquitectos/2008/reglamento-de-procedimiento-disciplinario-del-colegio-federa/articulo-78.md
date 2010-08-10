@@ -1,1 +1,1 @@
-Artículo 78.—A los efectos del inciso a) del artículo anterior, el Departamento de Régimen Disciplinario podrá convocar a la parte denunciante y a la parte denunciada, por separado, a declarar sobre los hechos denunciados. Una vez concluida su investigación rendirá el informe correspondiente a la Junta Directiva General, la cual considerará instaurar el tribunal de honor o archivar el expediente, en virtud de la recomendación que realice el citado departamento.
+Artículo 78.— (Derogado mediante acuerdo 11 de la sesión N° 04-09/10 del 10 de agosto de 2010)

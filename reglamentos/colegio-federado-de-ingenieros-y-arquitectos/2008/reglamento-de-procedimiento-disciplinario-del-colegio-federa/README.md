@@ -14,3 +14,4 @@ Reglamento de Procedimiento Disciplinario del Colegio Federado de Ingenieros y d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-20 | la propia norma |
+| 2 | 2010-08-10 | Reglamento 4 (2010-08-10) |
