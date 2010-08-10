@@ -1,0 +1,3 @@
+Disposiciones finales
+Artículo 18.—Indexación. Cada año a partir de la entrada en vigencia de la presente Guía, la comisión de Aranceles del Colegio de Enfermeras deberá solicitar al Banco Central de Costa Rica, la tasa oficial de inflación para dicho período, por razón de la cual podrá sugerir a la Junta Directiva del Colegio, mediante resolución motivada, actualizar las tarifas de la presente Guía, en el mismo porcentaje indicado por el Banco Central de Costa Rica.
+Las nuevas tarifas deberán ser enviadas por la Junta Directiva del Colegio de Enfermeras para su correspondiente publicación en el Diario Oficial y entrarán a regir a partir de su publicación.
