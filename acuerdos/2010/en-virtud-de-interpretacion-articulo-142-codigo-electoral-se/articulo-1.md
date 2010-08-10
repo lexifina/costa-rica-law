@@ -1,0 +1,7 @@
+TRIBUNAL SUPREMO DE ELECCIONES
+ACUERDOS
+Lic. Alejandro Bermúdez Mora, Secretario certifica que el Tribunal Supremo de Elecciones en su Sesión Ordinaria Nº 065-2010, celebrada el veintisiete de julio de dos mil diez, en el artículo octavo, tomó el acuerdo que a continuación se transcribe:
+“Artículo octavo.—Se dispone: en virtud de la interpretación oficiosa del artículo 142 del Código Electoral, de conformidad con la resolución de este Tribunal Nº 5027-E8-2010 de las trece horas del veintiséis de julio de dos mil diez, según la cual la veda publicitaria ahí establecida no aplica para las elecciones municipales, se ordena la modificación del cronograma aprobado por este Tribunal, relativo al proceso que culminará el 05 de diciembre de 2010, de forma tal que se suprime de lo establecido para el día 06 de agosto de 2010, lo siguiente:
+“A partir de esta fecha y hasta el día de las elecciones, se prohíbe a las instituciones del Poder Ejecutivo, la administración descentralizada y las empresas del Estado, a las alcaldías y los concejos municipales, difundir mediante cualquier medio de comunicación, información publicitaria relativa a la obra pública realizada (artículo 142 del Código Electoral)”.
+Publíquese el presente acuerdo en el Diario Oficial. Tomen nota para lo de sus cargos la Oficina de Comunicación y el Administrador del sitio Web de estos organismos electorales. Acuerdo firme”.
+San José, a las catorce horas y treinta y cinco minutos del veintisiete de julio del dos mil diez
