@@ -1,2 +1,0 @@
-Artículo 14.—Para las áreas con participación abierta, todas las solicitudes de inscripción serán aceptadas siempre y cuando cumpla con los requisitos establecidos en el Reglamento y el Manual de Recaudadores de cada Sector. En caso de denegatoria, se aplicarán los recursos establecidos en la Ley General de la Administración Pública.
-En las áreas con participación restringida, no hay inscripción sino invitación a participar, caso en el cual se aplican los recursos de la Ley de Contratación Administrativa y su Reglamento.

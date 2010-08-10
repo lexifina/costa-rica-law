@@ -1,1 +1,0 @@
-Artículo 27.—El Agente Recaudador es totalmente responsable ante el ICE por los daños y perjuicios ocasionados a terceros, en razón de la suspensión de su servicio derivada de la no comunicación a tiempo del recibo cancelado. Lo anterior, sin perjuicio de las disposiciones especiales que se regulan en el Manual de Recaudadores.

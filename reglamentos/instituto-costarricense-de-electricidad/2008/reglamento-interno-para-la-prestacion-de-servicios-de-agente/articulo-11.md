@@ -1,2 +1,0 @@
-Selección de Agentes Recaudadores
-Artículo 11.—De previo a emitir la recomendación para contratar al Agente Recaudador, el área responsable de la contratación, según el Manual Interno para la Prestación de Servicios de Agentes Recaudadores, deberá cerciorarse de que el interesado cumpla con los requisitos indicados en el artículo 9º de este Reglamento y sus Manuales, además deberá tomar en cuenta, criterios de oportunidad, conveniencia y necesidad que establezca el ICE, cuya concurrencia deberá ser debidamente motivada.
