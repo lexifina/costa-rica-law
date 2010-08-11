@@ -11,5 +11,6 @@ DEL COBRO ADMINISTRATIVO
 Artículo 7º—Por cobro administrativo se entiende toda acción cobratoria que realice el Banco para normalizar situaciones irregulares que presenten las operaciones de crédito, antes de recurrir a la vía judicial.
 La normativa de cobro será la siguiente:
 Para las operaciones contempladas en el inciso “1”, del artículo tercero de este Reglamento, las gestiones deben iniciarse a partir del primer día de atraso y hasta un plazo de sesenta días naturales. Sin embargo, dicho plazo podrá ampliarse a noventa días si existe un arreglo de pago presentado.... El resto del articulado permanece invariable.
-Esta modificación es parcial, transitoriamente y su vigencia vence hasta el 30 de junio del 2010.
+Esta modificación es parcial, transitoriamente y su vigencia vence hasta el (*)30 de junio del 2010.
+(*)(Nota de Sinalevi: Mediante sesión Nº 11637 del 11 de agosto de 2010, se acuerda ampliar por un año más la vigencia de esta modificación, sea hasta el 30 de junio de 2011)
 La Uruca, 12 de agosto del 2009

@@ -14,3 +14,4 @@ Modifica Segundo Párrafo del artículo siete del Reglamento para el Cobro de Pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-24 | la propia norma |
+| 2 | 2010-08-11 | Reglamento 11637 (2010-08-11) |
