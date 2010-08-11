@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE VALVERDE VEGA
+El Concejo Municipal de Valverde Vega, acuerda: Con dispensa de trámite, de emisión y con fundamento en la potestad reglamentaria del Concejo Municipal, como complemento al acuerdo tomado mediante el artículo VII, inciso b) de la sesión ordinaria Nº 8, celebrada por este Concejo Municipal el día 22 de junio de 2010, se acuerda la siguiente redacción para el reglamento que delimitará las condiciones en que se aplicarán las disposiciones de la Ley Nº 8818 Autorización para que las Municipalidades y Concejos Municipales de Distrito Condonen Deudas por Concepto de Recargos, Intereses y Multas
+REGLAMENTO PARA LA APLICACIÓN
+DE LAS DISPOSICIONES DE LA LEY Nº 8818
+Con fundamento en las disposiciones del artículo 4º del Código Municipal y el artículo 170 de la Constitución Política de la República de Costa Rica, el Concejo Municipal de Valverde Vega emite el siguiente reglamento para la aplicación de las disposiciones de la Ley Nº 8818.
+1. Considérese la autorización que concede la Ley Nº 8818, como la potestad de la Municipalidad, en función de la autonomía que le otorga el artículo 170 de la Constitución Política, para rechazar, aplicar total o parcialmente, y regular la amnistía tributaria.

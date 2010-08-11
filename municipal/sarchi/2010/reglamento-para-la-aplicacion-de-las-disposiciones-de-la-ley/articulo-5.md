@@ -1,0 +1,1 @@
+5. La condonación será efectiva solo en el caso de que los sujetos pasivos cancelen la totalidad del principal adeudado, por tanto se excluye del alcance de esta ley, las cancelaciones por medio de pagos parciales y los arreglos de pago.

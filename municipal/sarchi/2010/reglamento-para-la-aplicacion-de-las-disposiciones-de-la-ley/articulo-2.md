@@ -1,0 +1,1 @@
+2. Con base en el artículo anterior, la Municipalidad de Valverde Vega acoge la autorización legislativa para condonar la totalidad de las deudas por concepto de intereses que los sujetos pasivos tengan sobre los impuestos, tasas, servicios y demás obligaciones de carácter municipal, bajo las siguientes condiciones:
