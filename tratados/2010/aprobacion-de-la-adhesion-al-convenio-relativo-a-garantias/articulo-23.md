@@ -1,0 +1,3 @@
+Artículo 23 — Lista de declaraciones y derechos o garantías
+no contractuales declarados
+El Registrador mantendrá una lista de declaraciones, retiros de declaraciones y de las categorías de derechos y garantías no contractuales comunicadas al Registrador por el Depositario como que han sido declaradas por los Estados contratantes de conformidad con los Artículos 39 y 40 y la fecha de cada declaración o retiro de declaración. Dicha lista será registrada de forma que pueda ser consultada por el nombre del Estado declarante y estará a disposición de cualquier persona que la solicite, de conformidad con las modalidades prescritas en el Protocolo y el reglamento.

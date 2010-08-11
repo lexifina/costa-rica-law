@@ -1,0 +1,3 @@
+Artículo 38 — Subrogación
+1. Con sujeción al párrafo 2, ninguna de las disposiciones del presente Convenio afecta a la adquisición de derechos accesorios y de la correspondiente garantía internacional por subrogación legal o contractual en virtud de la ley aplicable.
+2. Los titulares de un derecho comprendido en el párrafo anterior y de un derecho concurrente pueden modificar el rango de sus respectivos derechos mediante acuerdo escrito, pero el cesionario de una garantía subordinada no está obligado por un acuerdo de subordinación de esa garantía, salvo que en el momento de la cesión se haya inscrito una subordinación relativa a ese acuerdo.

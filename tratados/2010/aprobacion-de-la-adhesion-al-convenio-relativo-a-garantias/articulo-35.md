@@ -1,0 +1,3 @@
+Artículo 35 — Rango de las cesiones concurrentes
+1. En caso de que haya cesiones concurrentes de derechos accesorios y de que al menos una de las cesiones incluya la correspondiente garantía internacional y esté inscrita, las disposiciones del Artículo 29 se aplican como si las referencias a una garantía inscrita fueran referencias a la cesión de los derechos accesorios y la correspondiente garantía internacional y como si las referencias a una garantía inscrita o no inscrita fueran referencias a una cesión inscrita o no inscrita.
+2. El Artículo 30 se aplica a una cesión de derechos accesorios como si las referencias a una garantía internacional fueran referencias a una cesión de derechos accesorios y la correspondiente garantía internacional.

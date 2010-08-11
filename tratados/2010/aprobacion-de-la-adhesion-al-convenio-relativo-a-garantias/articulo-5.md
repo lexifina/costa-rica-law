@@ -1,0 +1,5 @@
+Artículo 5 — Interpretación y ley aplicable
+1. En la interpretación del presente Convenio se tendrán en cuenta sus fines, tal como se enuncian en el preámbulo, su carácter internacional y la necesidad de promover su aplicación uniforme y previsible.
+2. Las cuestiones relativas a las materias regidas por el presente Convenio y que no estén expresamente resueltas en el mismo se resolverán de conformidad con los principios generales en los que se funda o, a falta de tales principios, de conformidad con la ley aplicable.
+3. Las referencias a la ley aplicable son referencias a las normas de derecho interno de la ley aplicable en virtud de las normas de derecho internacional privado del Estado del tribunal que conoce el caso.
+4. Cuando un Estado abarca varias unidades territoriales, cada una de las cuales tiene sus propias normas jurídicas con respecto al asunto que debe decidirse, y cuando no hay indicación de la unidad territorial pertinente, la ley de ese Estado decide cuál es la unidad territorial cuyas normas regirán. A falta de esas normas, se aplicará la ley de la unidad territorial con la cual el caso tenga un nexo más estrecho.

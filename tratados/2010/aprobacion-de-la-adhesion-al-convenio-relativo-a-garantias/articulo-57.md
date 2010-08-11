@@ -1,0 +1,4 @@
+Artículo 57 — Declaraciones ulteriores
+1. Un Estado parte podrá formular una declaración ulterior, que no sea una declaración autorizada en virtud del Artículo 60, en cualquier momento a partir de la fecha en que el presente Convenio haya entrado en vigor para ese Estado, notificando al Depositario a tal efecto.
+2. Toda declaración ulterior tendrá efecto el primer día del mes siguiente a la expiración de un período de seis meses posterior a la fecha en que el Depositario reciba la notificación. Cuando en la notificación se especifique un período más extenso para que esa declaración tenga efecto, la misma tendrá efecto al expirar dicho período después de su recepción por el Depositario.
+3. No obstante las disposiciones de los párrafos anteriores, el presente Convenio continuará aplicándose, como si no se hubieran hecho declaraciones ulteriores, respecto a todos los derechos y garantías que tengan origen antes de la fecha en que tenga efecto una declaración ulterior.

@@ -1,0 +1,7 @@
+Capítulo VII
+Responsabilidad del Registrador
+Artículo 28 — Responsabilidad y garantías financieras
+1. El Registrador será responsable de la indemnización compensatoria por la pérdida que sufra una persona como resultado directo de un error u omisión del Registrador, y de sus funcionarios y empleados, o del mal funcionamiento del sistema de inscripción internacional, excepto cuando el mal funcionamiento sea causado por un hecho de carácter inevitable e irresistible, que no pueda evitarse mediante la utilización de las mejores prácticas actualmente en uso en el campo del diseño y funcionamiento de los registros electrónicos, incluyendo las relativas a las copias de reserva y a la seguridad y funcionamiento en red de los sistemas.
+2. El Registrador no será responsable, con arreglo al párrafo anterior, por la inexactitud factual de la información recibida por el Registrador o transmitida por el Registrador en la forma en que fue recibida, ni por actos o circunstancias de los cuales ni el Registrador ni sus funcionarios y empleados son responsables, anteriores a la recepción de la información relativa a la inscripción en el Registro internacional.
+3. La compensación prevista en el párrafo 1 puede reducirse en la medida en que la persona perjudicada haya causado el daño o haya contribuido al mismo.
+4. El Registrador contratará un seguro o una garantía financiera que cubra la responsabilidad mencionada en este Artículo en la medida determinada por la Autoridad supervisora de conformidad con el Protocolo.

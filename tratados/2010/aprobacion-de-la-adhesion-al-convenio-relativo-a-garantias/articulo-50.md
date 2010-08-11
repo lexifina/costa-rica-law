@@ -1,0 +1,4 @@
+Artículo 50 — Transacciones internas
+1. Un Estado contratante puede declarar en el momento de la ratificación, aceptación o aprobación del Protocolo, o en el de la adhesión al mismo, que el presente Convenio no se aplicará a una transacción que es una transacción interna con relación a ese Estado respecto a todos los tipos de objetos o a algunos de ellos.
+2. No obstante lo previsto en el párrafo anterior, las disposiciones del párrafo 4 del Artículo 8, del párrafo 1 del Artículo 9, del Artículo 16, del Capítulo V, del Artículo 29 y todas las disposiciones del presente Convenio relativas a las garantías inscritas se aplicarán a una transacción interna.
+3. Cuando se haya inscrito una garantía nacional en el Registro internacional, la prioridad del titular de esa garantía en virtud del Artículo 29 no resultará afectada por el hecho de que la garantía se ha transferido a otra persona por cesión o subrogación en virtud de la ley aplicable.
