@@ -1,3 +1,3 @@
-Artículo 18.—Período de prueba. Todo nombramiento de nuevo ingreso, ascenso, traslado y permuta estará sujeto a un período de prueba de hasta tres meses. También estarán sujetos al período de prueba los nombramientos a plazo fijo, para estos el período de prueba será de tres meses.
-Quince días naturales antes del vencimiento del período de prueba, la jefatura inmediata rendirá ante la jefatura superior respectiva, un informe sobre el desempeño del (de la) funcionario(a), aquélla lo conocerá y luego lo remitirá a Recursos de Humanos
-( Así reformado y publicado en la Gaceta N° 73 del 16 de abril del 2009)
+Artículo 18.—Período de prueba. Todo nombramiento de nuevo ingreso, ascenso, traslado y permuta, o a plazo determinado, estará sujeto a un periodo de prueba de hasta seis meses, en el cual cualquiera de las partes puede dar por terminada la relación de servicio sin responsabilidad.
+Quince días naturales antes del vencimiento del período de prueba, la jefatura inmediata rendirá ante la jefatura superior respectiva, un informe sobre el desempeño del (de la) funcionario (a), aquella lo conocerá y luego lo remitirá a Recursos Humanos
+(Así reformado en sesión N° 025 del 11 de agosto de 2010)
