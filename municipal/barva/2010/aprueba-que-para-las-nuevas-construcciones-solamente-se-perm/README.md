@@ -14,3 +14,4 @@ Aprueba que para las nuevas construcciones solamente se permitirá la construcci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-15 | la propia norma |
+| 2 | 2010-08-11 | Acuerdo municipal 1166 (2010-08-11) |
