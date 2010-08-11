@@ -1,0 +1,3 @@
+Artículo XIX — Designación de puntos de acceso
+1. Con sujeción al párrafo 2, un Estado contratante podrá en todo momento designar una entidad o entidades en su territorio como puntos de acceso por medio de los cuales se transmitirá o se podrá transmitir al Registro internacional la información necesaria para la inscripción que no sea la inscripción de un aviso de una garantía nacional o de un derecho o garantía en virtud del Artículo 40, en uno u otro caso que tengan origen en las leyes de otro Estado.
+2. Una designación efectuada en virtud del párrafo anterior podrá permitir, pero no imponer, el uso de un punto de acceso o de puntos de acceso designados para la información requerida para las inscripciones con respecto a los motores de aeronaves.

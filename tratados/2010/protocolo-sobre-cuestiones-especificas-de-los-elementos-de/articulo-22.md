@@ -1,0 +1,3 @@
+Artículo XXII — Renuncia a la inmunidad de jurisdicción
+1. Con sujeción a lo previsto en el párrafo 2, la renuncia a la inmunidad de jurisdicción respecto a los tribunales indicados en el Artículo 42 o en el Artículo 43 del Convenio, o respecto a las medidas de ejecución de derechos y garantías sobre un objeto aeronáutico en virtud del Convenio, será obligatoria y, si se cumplen las demás condiciones para la atribución de jurisdicción o para la ejecución, la renuncia conferirá jurisdicción y permitirá las medidas de ejecución, según el caso.
+2. Una renuncia con arreglo al párrafo precedente debe hacerse por escrito y contener la descripción del objeto aeronáutico.

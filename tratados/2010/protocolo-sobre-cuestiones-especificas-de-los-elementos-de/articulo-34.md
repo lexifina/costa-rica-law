@@ -1,0 +1,3 @@
+Artículo XXXIV — Retiro de declaraciones
+1. Todo Estado parte que formule una declaración de conformidad con lo previsto en el presente Protocolo, que no sea una declaración formulada de conformidad con el Artículo XXXI en virtud del Artículo 60 del Convenio, podrá retirarla en cualquier momento notificando al Depositario. Dicho retiro tendrá efecto el primer día del mes siguiente a la expiración de un período de seis meses posterior a la fecha en que el Depositario reciba la notificación.
+2. No obstante las disposiciones del párrafo anterior, el presente Protocolo continuará aplicándose, como si no se hubiera retirado la declaración, respecto a todos los derechos y garantías que tengan origen antes de la fecha en que tenga efecto un retiro anterior.

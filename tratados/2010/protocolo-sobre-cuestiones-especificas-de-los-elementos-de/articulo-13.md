@@ -1,0 +1,6 @@
+Artículo XIII — Autorización para solicitar la cancelación
+de la matrícula y el permiso de exportación
+1. Este Artículo se aplica únicamente cuando un Estado contratante ha formulado una declaración de conformidad con el párrafo 1 del Artículo XXX.
+2. Cuando el deudor haya otorgado una autorización irrevocable para solicitar la cancelación de la matrícula y el permiso de exportación siguiendo sustancialmente el formulario anexo al presente Protocolo y la haya presentado a la autoridad del registro para su inscripción, dicha autorización deberá inscribirse.
+3. La persona en cuyo favor se haya otorgado la autorización (la “parte autorizada”) o quien ésta certifique que designó será la única persona facultada para adoptar las medidas previstas en el párrafo 1 del Artículo IX, y podrá hacerlo únicamente de conformidad con la autorización y las leyes y los reglamentos sobre seguridad aeronáutica aplicables. Dicha autorización no podrá ser revocada por el deudor sin el consentimiento escrito de la parte autorizada. La autoridad del registro eliminará una autorización del registro a petición de la parte autorizada.
+4. La autoridad del registro y otras autoridades administrativas de los Estados contratantes cooperarán con la parte autorizada y la asistirán con prontitud, para la aplicación de las medidas previstas en el Artículo IX.
