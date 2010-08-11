@@ -1,0 +1,1 @@
+Artículo 2º—Todas las dependencias e instituciones públicas, con objetivos o finalidades afines al evento mencionado en el artículo 1, o que de algún modo tengan relación con su ejercicio, quedan autorizados, dentro de los límites legales establecidos, para prestar todo tipo de ayuda para su realización.
