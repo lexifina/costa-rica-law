@@ -1,0 +1,14 @@
+Nº 36102-RE-MICIT
+LA PRESIDENTA DE LA REPÚBLICA
+EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+Y LA MINISTRA DE CIENCIA Y TECNOLOGÍA
+En uso de las facultades que les confieren los artículos 140, incisos 3, 8 y 18 y 146 de la Constitución Política.
+Considerando:
+1º—Que durante los últimos años diversas iniciativas públicas y particulares han evidenciado el gran potencial de nuestro país en el campo de la industria aeroespacial, razón por la cual, el Gobierno de la República considera de gran interés impulsar dicho sector, con el propósito de propiciar la generación de innovaciones tecnológicas, de las cuales puedan desarrollarse aplicaciones para esa área y derivar incluso en nuevas alternativas para otros campos de la ciencia y el conocimiento.
+2º—Que la vertiginosa evolución del mercado aeroespacial y las consecuentes oportunidades que ello implica, deben ser aprovechadas para marcar un paso decidido hacia el desarrollo tecnológico de vanguardia e impulsar el crecimiento económico de nuestro país.
+3º—Que el Gobierno de la República debe impulsar la realización de actividades innovadoras, con el propósito de facilitar la creación de nuevas iniciativas productivas, ambientalmente responsables y que a su vez fomenten un modelo de desarrollo sostenible, con el propósito apoyar e incentivar la creación de tecnologías limpias, y que contribuyan con el objetivo gubernamental de ser un país carbono neutral para el año 2021, medida que se ha planteado para hacer frente, de manera responsable, al cambio climático, fenómeno que constituye una de las principales amenazas para la continuación de la vida en la Tierra.
+4º—Que resulta de especial interés para el Gobierno de la República fomentar la creación de empleos de alta calidad, así como promover una sociedad con un mayor conocimiento científico y tecnológico; lo cual demanda la implementación de cambios trascendentales en el sistema educativo, con el objetivo de incrementar la formación de capital humano calificado.
+5º—Que Costa Rica debe aprovechar la oportunidad de darse incidir en el campo aeroespacial, gracias al desarrollo por parte de la industria nacional del Cohete de Impulso Específico Variable de Magnetoplasma (conocido como VASIMR, por sus siglas en inglés), el cual constituirá un gran avance para la industria aeroespacial a nivel mundial y que marca el inicio de este tipo de actividades en el país.
+6º—Que resulta necesaria la coordinación entre las diferentes entidades del sector público, privado y académico, con el objeto de estimular la industria aeroespacial costarricense. Por tanto,
+Decretan:
+Artículo 1º—Constitúyase el Consejo Nacional de Investigación y Desarrollo Aeroespacial, en adelante conocido como “CONIDA”, órgano que se encargará de diseñar las políticas necesarias para impulsar el desarrollo de esta industria.

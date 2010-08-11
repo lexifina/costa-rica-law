@@ -1,0 +1,1 @@
+Artículo 5º—CONIDA establecerá su propio programa de trabajo con el propósito de garantizar el cumplimiento de sus objetivos, para lo cual podrá establecer las comisiones y los grupos de trabajo que considere necesarios en concordancia con sus proyectos y tareas.

@@ -1,0 +1,1 @@
+Artículo 6º—Se declaran de interés público, las actividades del Consejo Nacional de Investigación y Desarrollo Aeroespacial. En virtud de dicha declaratoria, las entidades públicas y privadas quedan autorizadas, para que dentro de sus posibilidades y sin afectar el cumplimiento de sus propios objetivos, apoyen el trabajo que desarrollará el CONIDA.
