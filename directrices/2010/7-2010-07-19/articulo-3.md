@@ -1,0 +1,2 @@
+3º—Corresponde a cada una de las instancias administrativas de las citadas Instituciones verificar que con la implementación de esta licencia no se afecten los servicios esenciales de los centros de enseñanza involucrados.
+San José, a los diecinueve días del mes de julio de dos mil diez.

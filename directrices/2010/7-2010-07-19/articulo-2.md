@@ -1,0 +1,1 @@
+2º—Conceder permiso para no asistir a clases el día lunes 26 de julio del 2010, a las y los estudiantes de los centros educativos citados en el aparte anterior, que hayan participado de las actividades el día 25 de julio del 2010.
