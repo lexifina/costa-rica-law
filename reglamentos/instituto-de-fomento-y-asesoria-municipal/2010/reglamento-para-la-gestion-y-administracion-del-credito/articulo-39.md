@@ -1,0 +1,1 @@
+Artículo 39.—Los pagos extraordinarios que realice el prestatario, se imputarán al principal y la Sección de Contabilidad y Finanzas, elaborará una tabla de pagos para distribuir el nuevo saldo en el plazo y los pagos que aún resten del préstamo.

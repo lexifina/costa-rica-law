@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las comisiones y las garantías
+Artículo 35.—El IFAM cobrará una comisión por la administración financiera y la fiscalización técnica del crédito, sobre los préstamos que otorgue. Dicha comisión es del 3,0% y estará aplicada por una sola vez y sobre el monto del préstamo. Esta Comisión se incluirá como parte del crédito, la misma será rebajada en el primer desembolso, debiendo el prestatario realizar los respectivos registros contables. La comisión por administración financiera y fiscalización técnica que autoriza este artículo, no se aplicará a los créditos de compra de saldos regulados por el Artículo 4 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 49.—En las obras civiles financiadas por el IFAM, una vez concluidas éstas, el prestatario deberá colocar una placa con la siguiente leyenda: “Financiado por el IFAM”. Con la misma leyenda, deberán ser rotulados los vehículos, maquinarias y otros equipos financiados por el IFAM.
