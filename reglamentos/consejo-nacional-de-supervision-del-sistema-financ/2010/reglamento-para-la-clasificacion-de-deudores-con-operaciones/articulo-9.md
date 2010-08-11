@@ -1,0 +1,1 @@
+Artículo 9º—Estimación contable. Al cierre de cada mes la entidad debe registrar contablemente, como mínimo, el monto de la estimación mínima que corresponde a las operaciones del Sistema de Banca de Desarrollo.

@@ -1,0 +1,5 @@
+CAPÍTULO II
+Calificación de los deudores
+Artículo 4º—Análisis de Deudores. Es responsabilidad de cada entidad financiera establecer los procesos y controles para identificar y evaluar los riesgos crediticios y operacionales de las operaciones otorgadas con recursos del Sistema de Banca para el Desarrollo, Ley 8634; en especial para la evaluación de la capacidad de pago de los deudores de previo al otorgamiento del crédito y durante la vigencia del mismo, así como para el monitoreo de la atención de las operaciones del Sistema de Banca para el Desarrollo.
+La entidad debe evaluar la viabilidad y factibilidad técnica, económica, legal, financiera y ambiental de los proyectos, de conformidad con lo establecido en la Ley 8634 “Ley del Sistema de Banca para el Desarrollo”, sus reglamentos y las directrices del Consejo Rector del Sistema de Banca para el Desarrollo.
+En el caso de operaciones en moneda extranjera, la entidad debe determinar la condición del deudor como generador o no generador de divisas, según lo dispuesto en los Lineamientos Generales del Acuerdo SUGEF 1-05, así como evaluar el riesgo asociado a esta condición.
