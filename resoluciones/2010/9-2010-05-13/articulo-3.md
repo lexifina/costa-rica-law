@@ -9,6 +9,4 @@ d. Libros de actas en hojas sueltas: Se autoriza el uso de hojas sueltas únicam
 Cada Administración Tributaria contará con un registro de rúbricas de funcionarios autorizados para firmar tanto las hojas sueltas como la autorización de los libros empastados, para efectos de control en el proceso de fiscalización.
 Al igual que en los libros empastados, en los libros de hojas sueltas la razón de legalización deberá ir en el folio No 1. Además, en los casos de transformación y cierre de libros, deberá observarse lo establecido en los incisos b) y c) de este artículo.
 Previo a la presentación ante la Administración Tributaria para el cierre, el libro de actas en hojas sueltas deberá ser encuadernado y empastado para su debida conservación.
-e. Libros de sociedades inactivas: además de los requisitos señalados en el artículo 2 de esta resolución, deberá cumplirse con los siguientes requisitos:
-i. Aportar certificación de personería jurídica reciente (con no más de tres meses de emitida) y su fotocopia.
-ii. Indicar en el formulario D-406, casilla 16 que se trata de una sociedad inactiva.
+e. (Derogado mediante resoluciòn Nº DGT-12-2010 del 12 de agosto de 2010).
