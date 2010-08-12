@@ -18,3 +18,4 @@ Reglamento de Operaciones Portuarias.
 | 3 | 2006-02-09 | Reglamento 0 (2006-02-09) |
 | 4 | 2006-04-06 | Reglamento 14 (2006-04-06) |
 | 5 | 2006-04-11 | Reglamento 15 (2006-04-11) |
+| 6 | 2010-08-12 | Reglamento 28 (2010-08-12) |
