@@ -14,3 +14,4 @@ Reglamento para el trámite y pago de tiempo extraordinario de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-25 | la propia norma |
+| 2 | 2010-08-13 | Reglamento municipal 28 (2010-08-13) |

@@ -1,1 +1,2 @@
-Artículo 7°— (NOTA DE SINALEVI: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto)
+Artículo 7º—Toda solicitud para laborar en tiempo extraordinario, será autorizada por el Alcalde Municipal y/o Recursos Humanos y tramitada por medio de Recursos Humanos y/o la Oficina de Personal, lo anterior con cinco días naturales de antelación previa a la realización de los trabajos, salvo casos de urgencia a juicio de la Alcaldía o Jefatura.
+(Así adicionado en sesión ordinaria N° 28 del 13 de agosto del 2010)

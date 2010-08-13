@@ -1,1 +1,2 @@
-Artículo 4°— (NOTA DE SINALEVI: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto)
+Artículo 4º—No se podrá autorizar jornada extraordinaria a un mismo servidor(a) en forma sucesiva durante más de tres meses, en virtud de que desnaturaliza el carácter extraordinario de este tipo de jornada. Salvo la Secretaria del Concejo Municipal, que por la naturaleza de sus funciones y horario, no puede supeditarse a este artículo del presente Reglamento; al igual que el guarda municipal en días de sesiones (si existiera dicha plaza).
+(Así adicionado en sesión ordinaria N° 28 del 13 de agosto del 2010)
