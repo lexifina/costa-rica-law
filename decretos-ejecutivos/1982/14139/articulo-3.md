@@ -1,1 +1,0 @@
-Artículo 3°-De acuerdo con lo que disponen los artículos 9° y 12 del Decreto Ejecutivo N° 3892-MEIC del 18 de junio de 1974, la Norma Oficial a que se refiere este decreto es de cumplimiento obligatorio.
