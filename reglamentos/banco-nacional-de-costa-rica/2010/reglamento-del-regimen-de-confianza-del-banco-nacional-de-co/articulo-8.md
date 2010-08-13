@@ -1,0 +1,1 @@
+Artículo 8º—En aquellos casos en los que el nombramiento sea por una fracción de jornada, la determinación del salario a pagar corresponderá a la Dirección de Recursos Humanos, tomando como base los salarios que para dicha escala determine la Junta Directiva

@@ -1,0 +1,1 @@
+Artículo 5º—El nombramiento y remoción de los funcionarios del régimen será exclusivo de la Junta Directiva en cuanto a sus asesores o consultores y de la Gerencia General en los puestos que se asignen a ésta.

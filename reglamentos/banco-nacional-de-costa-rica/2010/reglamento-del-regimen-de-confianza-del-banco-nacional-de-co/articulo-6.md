@@ -1,0 +1,1 @@
+Artículo 6º—El contrato de trabajo de los integrantes del régimen será por tiempo indefinido, pero dicho contrato podrá ser terminado por la simple voluntad patronal en cualquier momento mediando el pago de los extremos laborales que correspondan.
