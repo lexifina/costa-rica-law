@@ -1,0 +1,13 @@
+CONTABILIDAD NACIONAL
+AVISO
+En cumplimiento de sus deberes y funciones como Órgano Rector del Subsistema de Contabilidad, atribuidos por disposición expresa de la Ley de la Administración Financiera de la República y Presupuestos Públicos Nº 8131, la Contabilidad Nacional informa a los órganos y entes que se encuentran bajo el ámbito de aplicación de la citada ley, según su artículo 1, que se ha emitido la Directriz CN-003-2010, de fecha 08 de julio del 2010, denominada “Registros Contables de Arrendamientos”, la cual es de acatamiento obligatorio. El documento se encuentra disponible en la siguiente dirección electrónica:
+https://www.hacienda.co.cr/NR/rdonlyres/A458BFAE-DCEC-4959-9AB4-3F102DC07BFl/25858/DirectrizCN0032010_ Arrendamientos.pdf.
+(Nota de Sinalevi: La presente norma se extrajo del sitio Web de Contabilidad Nacional del Ministerio de Hacienda https://www.hacienda.go.cr/NR/rdonlyres/A458BFAE-DCEC-4959-9AB4-3F102DC07BF1/25858/DirectrizCN0032010_Arrendamientos.pdf, y se transcribe a continuación:)
+DIRECTRIZ Nº CN-003-2010
+LA CONTADORA NACIONAL
+Con fundamento en las potestades conferidas en los artículos 90, 91, 93 y 94 de la Ley de Administración Financiera de la República y Presupuestos Públicos Nº 8131; así como lo establecido en el Decreto Ejecutivo número 32988-H-MP-PLAN, publicado en La Gaceta número 74 del 18 de abril de 2006, denominado Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos, en la Ley N° 6227, Ley General de la Administración Pública y lo establecido en el artículo 6 de la Ley General de Arrendamientos Urbanos y Suburbanos, No. 7527, el cual reza, que El Estado, los entes públicos descentralizados y las municipalidades, en calidad de arrendadores o arrendatarios, están sujetos a esta ley, salvo disposición expresa de su propio ordenamiento jurídico
+Se emite la siguiente Directriz.
+DIRECTRIZ
+REGISTROS CONTABLES DE ARRENDAMIENTOS
+Artículo 1°- Ámbito de aplicación. La presente directriz es de acatamiento obligatorio para todas las instituciones que se encuentran bajo la rectoría del Subsistema de Contabilidad, de conformidad con lo establecido en el artículo 1 de la Ley de Administración Financiera de la República y Presupuestos Públicos.
+La finalidad de la misma es dar una orientación sobre el tratamiento contable a utilizar en los arrendamientos tanto financieros como operativos de activos, exceptuando los Activos para la explotación o uso de recursos minerales, renovables o similares; licencias de películas, grabaciones en video, manuscritos, patentes y derechos de autor; propiedades contabilizadas como propiedades de inversión, y Activos Biológicos.
