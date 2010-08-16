@@ -1,0 +1,1 @@
+Artículo 2º—Las modificaciones presupuestarias no requerirán ser sometidas al trámite previo de aprobación por parte de la Contraloría General de la República, salvo las excepciones que ésta llegará a establecer mediante resolución motivada de la Gerencia de la División de Fiscalización Operativa y Evaluativa. No obstante corresponde al jerarca su análisis y aprobación razonada.
