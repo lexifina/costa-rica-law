@@ -1,1 +1,0 @@
-Artículo 13.—Salida de equipo informático. Los equipos informáticos no pueden ser trasladados a otras oficinas u otros lugares fuera del ámbito de la Oficina a la cual fueron asignados, salvo que se cuente de previo con la debida autorización de la Dirección Ejecutiva.

@@ -1,1 +1,0 @@
-Artículo 19.—Acciones disciplinarias. Las infracciones al presente reglamento darán motivo para iniciar el correspondiente procedimiento administrativo disciplinario de conformidad con lo que dispone la ley Orgánica del Poder Judicial y la legislación supletoria.
