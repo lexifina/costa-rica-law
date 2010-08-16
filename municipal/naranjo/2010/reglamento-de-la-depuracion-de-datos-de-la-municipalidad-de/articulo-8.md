@@ -1,0 +1,1 @@
+Artículo 8º—Las Direcciones involucradas en el proceso, analizaran el informe de la Dirección Administrativa y de Planificación, así como aquellos atenuantes que no se identificaron en el informe y en caso de ser necesario solicitaran al Alcalde la aplicación del reglamento autónomo de organización y servicio laboral de la Municipalidad de Naranjo.
