@@ -14,3 +14,4 @@ Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trám
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-30 | la propia norma |
+| 2 | 2010-08-16 | Decreto Ejecutivo 36263 (2010-08-16) |
