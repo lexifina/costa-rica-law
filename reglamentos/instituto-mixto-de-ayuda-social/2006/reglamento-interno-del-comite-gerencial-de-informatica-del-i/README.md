@@ -14,3 +14,4 @@ Reglamento interno del Comité Gerencial de Informática del Instituto Mixto de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-23 | la propia norma |
+| 2 | 2010-08-16 | Reglamento 0 (2010-08-16) |
