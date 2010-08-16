@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE OROTINA
+El Concejo Municipal de Orotina, en el acta de la sesión ordinaria N° 24, celebrada el 30 de julio de 2010, en su artículo VII, acuerdo 1, acordó autorizar la modificación del Reglamento de gastos de viaje de los miembros del Concejo Municipal y que en los textos en donde se indique “servicio modalidad taxi”, se pueda leer, todo servicio de transporte terrestre autorizado por las autoridades correspondientes sea CTP, etc...
+Orotina, 4 de agosto del 2010.—
