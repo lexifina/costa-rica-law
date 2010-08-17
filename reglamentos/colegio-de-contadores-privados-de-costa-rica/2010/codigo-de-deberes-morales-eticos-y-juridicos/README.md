@@ -14,3 +14,4 @@ Código de Deberes Morales, Éticos y Jurídicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-30 | la propia norma |
+| 2 | 2010-08-17 | Acuerdo 0 (2010-08-17) |

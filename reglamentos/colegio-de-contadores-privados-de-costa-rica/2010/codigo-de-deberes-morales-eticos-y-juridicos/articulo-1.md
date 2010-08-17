@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO DE CONTADORES PRIVADOS DE COSTA RICA
+(Mediante comunicado en La Gaceta N° 165 del 25 de agosto de 2010, se deja sin efecto la presente norma)
 El Colegio de Contadores Privados de Costa Rica informa que de conformidad a lo aprobado en asamblea general extraordinaria 127-2010 celebrada el 17/01/2010, a partir de esta publicación el Código de Deberes Morales, Éticos y Jurídicos que rige al Contador Privado Incorporado es el siguiente:
 COLEGIO DE CONTADORES PRIVADOS DE COSTA RICA
 CÓDIGO DE DEBERES MORALES, ÉTICOS Y JURÍDICOS
