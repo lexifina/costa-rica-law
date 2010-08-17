@@ -1,0 +1,5 @@
+Artículo 11.—De los lineamientos para realizar los procedimientos de descarte y expurgo. Los criterios que se deben seguir para ejecutar los procedimientos para descartar o expurgar acervo bibliográfico o catálogo de obras de la Editorial son los siguientes:
+1- Libros con información caduca, obsoleta o desfasada científicamente, que no han sido consultados ni solicitados por los clientes y lectores al menos por cinco años o más, en los géneros de teatro, novela, poesía, cuento, ensayo, infantiles, científicos o misceláneos.
+2- Presentación impresa defectuosa (mala legibilidad, papel manchado, mutilaciones) y deterioro físico severo (encuadernaciones rotas, hojas sueltas o faltante de hojas).
+3- Números sueltos de publicaciones seriadas.
+En cualquiera de las situaciones anteriores la Editorial estará exenta del pago de los Derechos de Autor, en virtud de la eximente de fuerza mayor establecida por el artículo 190 inciso 1 de la Ley General de la Administración Pública Nº 6227 de 2 de mayo de 1978.

@@ -1,0 +1,1 @@
+Artículo 13.—Una vez aprobada la propuesta de descarte que presente la Gerencia, se procederá a registrar en los libros contables, basado en el Acuerdo del Consejo Directivo, la pérdida por deterioro de libros y el rebajo de la cuenta de Inventario Comercial.
