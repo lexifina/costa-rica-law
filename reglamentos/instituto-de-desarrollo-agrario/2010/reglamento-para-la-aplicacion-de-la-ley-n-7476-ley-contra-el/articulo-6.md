@@ -1,0 +1,3 @@
+Del procedimiento en sede administrativa
+Artículo 6º—A los fines de realizar el procedimiento administrativo de las denuncias que, por acoso u hostigamiento sexual, presenten los trabajadores del Instituto de Desarrollo Agrario en sede administrativa, se seguirá el procedimiento establecido en el Reglamento de la Unidad Relaciones Laborales.
+Antes de presentar cualquier tipo de denuncia por este concepto, ante Recursos Humanos, la persona afectada podrá recurrir inicialmente ante la jefatura inmediata, tratando de solucionar el problema y de inmediato podrá recurrir a la presentación de la denuncia formal ante el Departamento de Recursos Humanos.

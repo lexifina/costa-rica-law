@@ -1,0 +1,1 @@
+Artículo 2º.—De conformidad con la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia N° 7476 del 3 de febrero de 1995, se prohibe y sanciona el acoso u hostigamiento sexual como práctica discriminatoria por razón del sexo, contra la dignidad de la mujer y del hombre en las relaciones laborales.
