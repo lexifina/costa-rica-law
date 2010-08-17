@@ -1,0 +1,1 @@
+Artículo 3º—La Secretaria del Consejo Directivo mantendrá para la atención de los miembros del Consejo Directivo, funcionarios y personeros visitantes bebidas (agua, café, té y refrescos) los cuales serán adquiridos una vez al mes según las necesidades. Tales gastos deberán ser aprobados por la Gerencia y tramitados por la Unidad de Proveeduría.
