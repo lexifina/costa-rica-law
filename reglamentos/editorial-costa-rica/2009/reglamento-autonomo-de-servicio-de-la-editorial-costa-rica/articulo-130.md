@@ -1,0 +1,2 @@
+Artículo 130.—Las amonestaciones orales y escritas, así como la suspensión sin goce de salario, deberán imponerse dentro del término de un mes posterior a la fecha en que se cometió la falta o en que, la persona con competencia para imponer la sanción, la conoció.
+Si fuese necesaria una investigación o procedimiento administrativo, dicho plazo empezará a correr desde el momento en que el jerarca con competencia para imponer la sanción tiene conocimiento del resultado de dicha investigación, sin perjuicio de lo dispuesto en el Estatuto y otras leyes conexas.

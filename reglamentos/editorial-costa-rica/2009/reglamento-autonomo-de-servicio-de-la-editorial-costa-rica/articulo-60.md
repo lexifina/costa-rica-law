@@ -1,0 +1,2 @@
+Artículo 60.—Queda prohibido acumular las vacaciones. Por vía de excepción, podrán acumularse por una sola vez cuando el servidor desempeñe labores técnicas, de dirección, de confianza u otras análogas que dificulten especialmente su reemplazo.
+Para ello deberá presentarse solicitud por escrito ante el superior inmediato; quien, en caso de estar de acuerdo, la enviará exponiendo sus razones a la Sección de Recursos Humanos, a fin de que esta resuelva lo que corresponda.

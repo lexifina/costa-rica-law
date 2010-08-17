@@ -1,0 +1,3 @@
+Artículo 125.—La suspensión disciplinaria se aplicará hasta por quince días sin goce de salario, cuando se dé alguno de los siguientes casos:
+1. Cuando el servidor, después de que se le haya apercibido por escrito, incurra de nuevo en la falta que motivó dicha sanción, en un período de tres meses.
+2. Cuando el servidor incurra en alguna de las faltas graves establecidas en los artículos 14, 15, 16, 17, 18, 19 y 122 de este Reglamento, salvo que la falta diere mérito para el despido, según los criterios de valoración citados en el anterior artículo 120 o por así estipularse en otra disposición legal.

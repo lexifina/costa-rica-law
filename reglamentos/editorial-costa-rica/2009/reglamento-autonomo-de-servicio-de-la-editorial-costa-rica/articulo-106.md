@@ -1,0 +1,1 @@
+Artículo 106.—Dicho procedimiento deberá concluir con acto final emitido por la Gerencia o el Consejo Directivo, según se trate, en un término no mayor a dos meses, contado a partir del día de interposición de la denuncia.

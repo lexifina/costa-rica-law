@@ -1,0 +1,2 @@
+Artículo 79.—El servidor que permaneciere enfermo por un período de tres meses o más, podrá a juicio del máximo jerarca, ser separado de su puesto, mediante el pago del preaviso y del auxilio de cesantía correspondientes, de conformidad con lo dispuesto en los artículos 79 y 80 del Código de Trabajo y artículo 36 del Reglamento del Estatuto de Servicio Civil.
+Cuando se trate de un servidor incapacitado por riesgo del trabajo, se observarán las disposiciones del artículo 254 del Código de Trabajo.

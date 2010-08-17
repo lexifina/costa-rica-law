@@ -1,0 +1,1 @@
+Artículo 94.—La evaluación del desempeño del servidor, será realizada por el jefe inmediato respectivo, según las disposiciones contenidas en los artículos 41, 42, 43, 44 y 44 bis del Reglamento del Estatuto de Servicio Civil.

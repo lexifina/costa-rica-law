@@ -1,0 +1,3 @@
+CAPÍTULO XXII
+Acoso psicológico y moral en el trabajo
+Artículo 110.—Se entiende por acoso psicológico y moral en el trabajo, toda aquella situación en la que una o varias personas, sean superiores o no, ejerzan violencia psicológica extrema en forma sistemática y recurrente, durante un tiempo prolongado, sobre una o varias personas en el lugar de trabajo, sea mediante comportamientos, palabras o actitudes, con el fin de degradar sus condiciones de trabajo, destruir sus redes de comunicación, su reputación, perturbar el ejercicio de sus labores y conseguir su desmotivación laboral. Incluye el proceso de atormentar, hostigar o aterrorizar psicológicamente a otros en el trabajo.

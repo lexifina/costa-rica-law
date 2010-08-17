@@ -1,0 +1,1 @@
+Artículo 24.—Los servidores de la Editorial tienen derecho a que se les brinde la debida capacitación y formación, mediante cursos, seminarios, charlas, becas y otros. A estos efectos, se aplicará estrictamente la legislación específica vigente en esta materia.

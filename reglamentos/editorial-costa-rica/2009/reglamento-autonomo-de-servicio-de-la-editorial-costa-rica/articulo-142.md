@@ -1,0 +1,1 @@
+Artículo 142.—Se deroga el Reglamento Interno de la Editorial Costa Rica, aprobado por la División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social, a las 13 horas del 21 de agosto de 1972, y por el Consejo Directivo mediante Artículo Nº 3, inciso a) de la Sesión Nº 488 del 29 de agosto de 1972.

@@ -1,0 +1,1 @@
+Artículo 121.—Se considerarán faltas leves las infracciones de las disposiciones del artículo 14 incisos 8), 13), 15), 18), 20), 22), 35) y artículo 17 incisos 5), 10), 11), 13), 14), 19), 23) y 27) del presente Reglamento.

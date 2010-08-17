@@ -1,0 +1,5 @@
+Artículo 118.—La Sección de Recursos Humanos dará audiencia al servidor en los tres días hábiles siguientes a la fecha de notificación, en la primera semana del mes siguiente al que se cometió la infracción debidamente consignada en el registro de asistencia y puntualidad, para que aporte la justificación que corresponda, firmada por su jefe inmediato.
+Es entendido que, aunque se justifique la inasistencia a labores, se rebajará el salario correspondiente al período no laborado, en los casos que esto proceda.
+En caso de que el servidor no haya justificado la infracción en el registro de asistencia, las sanciones se aplicarán en el transcurso del siguiente mes calendario al que se cometió la infracción.
+Cuando se considere necesario realizar un proceso administrativo para verificar la verdad real de los hechos, el plazo para imponer la sanción empezará a regir una vez que el jerarca con facultad para sancionar, tenga conocimiento del resultado de dicho proceso.
+Sanciones o correcciones disciplinarias en general:

@@ -1,0 +1,1 @@
+Artículo 131.—En los casos de suspensión disciplinaria sin goce de salario, una vez firme el acto que la acuerde, se hará la rebaja de salario en la forma y oportunidad que establezca la Sección de Recursos Humanos.

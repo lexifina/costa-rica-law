@@ -1,0 +1,1 @@
+Artículo 133.—Las faltas no contempladas en este Reglamento se sancionarán conforme lo establezcan el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes supletorias y conexas.

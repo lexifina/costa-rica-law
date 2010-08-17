@@ -1,0 +1,4 @@
+Artículo 12.—Todo puesto vacante se llenará en lo que resulte aplicable de conformidad con los siguientes actos administrativos:
+1. Ascenso Directo: Acto mediante el cual un servidor es ascendido de forma directa al grado inmediato superior, para lo cual deben considerarse las disposiciones contempladas en el artículo 33 del Estatuto de Servicio Civil y artículo 20 de su Reglamento.
+2. Concurso Interno: Es el acto mediante el que la Editorial Costa Rica, a través de la Sección de Recursos Humanos convoca a los servidores de la entidad, que posean las condiciones y requisitos necesarios para que participen en los procesos técnicos de selección que permitan llenar los puestos vacantes.
+3. Concurso Externo: Es el acto mediante el cual la Editorial Costa Rica a través de la Sección de Recursos Humanos convoca a un concurso externo para el reclutamiento y selección de personal que permita llenar los puestos vacantes.

@@ -1,0 +1,1 @@
+Artículo 40.—Salvo causa justificada, todo servidor está obligado a prestar sus servicios en las Oficinas Centrales de la Editorial y de forma temporal, en cualquier otro lugar del país, cuando situaciones de emergencia, de oportunidad o conveniencia, así lo exijan, siempre que se le reconozcan los gastos de transporte y de permanencia o viáticos correspondientes.

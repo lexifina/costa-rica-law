@@ -1,0 +1,1 @@
+Artículo 34.—La Gerencia podrá modificar los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y en tanto no se cause perjuicio grave a sus servidores. El cambio de horario deberá comunicarse a los afectados, con un mínimo de tres días de anticipación.

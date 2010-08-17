@@ -1,0 +1,1 @@
+Artículo 10.—Los nombramientos de los servidores que se efectúen con sujeción a lo establecido en los artículos 1º y 8 de este Reglamento, se entenderán por tiempo indefinido. Los nombramientos a que se refiere los incisos 9), 10) y 11) del artículo segundo de este Reglamento, se realizarán por el período que la normativa jurídica, así lo indique.

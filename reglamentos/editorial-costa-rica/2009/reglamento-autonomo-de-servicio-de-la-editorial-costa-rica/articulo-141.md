@@ -1,0 +1,1 @@
+Artículo 141.—Para resolver un caso determinado, a falta de disposiciones de este Reglamento deberán tenerse como normas supletorias el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo y demás Leyes y Reglamentos supletorios y conexos.

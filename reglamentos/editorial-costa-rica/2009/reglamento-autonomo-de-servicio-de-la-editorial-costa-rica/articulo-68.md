@@ -1,0 +1,1 @@
+Artículo 68.—No podrán concederse licencias continuas mayores a un mes, argumentando motivos iguales o diferentes, hasta después de haber transcurrido por lo menos seis meses del reintegro del servidor al trabajo, excepto casos muy calificados a juicio de la Gerencia o del máximo jerarca de la entidad, sin que se perjudiquen los fines de la Administración.

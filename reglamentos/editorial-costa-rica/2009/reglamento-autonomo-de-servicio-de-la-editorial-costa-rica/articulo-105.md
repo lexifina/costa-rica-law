@@ -1,0 +1,1 @@
+Artículo 105.—El Órgano Director designará como notificador un funcionario que no esté vinculado ni directa ni indirectamente con el procedimiento, que será el encargado de trasladar personalmente todos los documentos relacionados con éste.

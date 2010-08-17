@@ -1,0 +1,1 @@
+Artículo 100.—Una vez presentada la denuncia ante el coordinador de Recursos Humanos de la Editorial, corresponderá a ésta informar al jerarca del Departamento, en un plazo no mayor de 3 días hábiles, sobre la denuncia planteada.

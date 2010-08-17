@@ -1,0 +1,1 @@
+Artículo 65.—Serán también con goce de salario las licencias concedidas a aquellos trabajadores que, por los cargos que ocupan, sigan cursos especializados en los que la Editorial tenga interés, para lo que deberán suscribir contrato, según el artículo 37 del Reglamento del Estatuto de Servicio Civil.

@@ -1,0 +1,12 @@
+Artículo 16.—Además de las contempladas en el artículo 14 y en otros de este Reglamento, los choferes y los servidores autorizados para manejar vehículos de la Editorial, tendrán las siguientes obligaciones específicas:
+1. Obedecer las normas de tránsito vigentes.
+2. Contar, previo a su salida, con la autorización escrita del Coordinador de Servicios Administrativos o la Gerencia, así como acatar las órdenes impartidas por este para que presten sus servicios en los lugares y por el tiempo que las necesidades de las labores así lo requieran.
+3. Seguir las instrucciones que sobre la buena marcha de la misión, indique el servidor encargado de esta.
+4. Velar por la custodia, limpieza y conservación del vehículo que se les asigne durante el ejercicio de sus labores, así como verificar que se encuentre en buen estado de funcionamiento y que posea las herramientas e implementos necesarios para su uso idóneo.
+5. Informar a la sección de Servicios Administrativos respecto de cualquier accidente e incidente que les ocurra, por leve que sea, suministrando los nombres y apellidos de las personas afectadas, los daños que sufra el vehículo y el lugar y las circunstancias en que se produjo el accidente, robo o hurto. Salvo causa justificada, este informe debe rendirse inmediatamente después de ocurrido el hecho, con copia para el Departamento responsable de la misión y para la Gerencia.
+6. En caso de accidente de tránsito debe esperar a la Policía de Tránsito para los trámites respectivos, así como dar aviso al Instituto Nacional de Seguros.
+7. Informar por escrito al responsable del control de vehículos, de cualquier desperfecto que observe en el vehículo a su cuidado. La falta inexcusable de aviso oportuno lo hará incurrir en responsabilidad por la agravación del daño y los perjuicios que su omisión provoque.
+8. Guardar el vehículo en el lugar destinado para ese efecto y entregar las llaves al Jefe de Transportes o al encargado respectivo, para su debida custodia, salvo cuando estén en gira o en misiones especiales del servicio, en este caso deberá entregar las llaves del vehículo al funcionario responsable de la gira.
+9. Contar con la respectiva licencia de conducir al día.
+10. Trasladar únicamente a aquellos funcionarios y particulares que previamente han sido solicitados por el coordinador de servicios administrativos o la Gerencia.
+11. Cumplir con lo dispuesto en el Reglamento Interno de Uso, Control y Mantenimiento de los Vehículos de la Editorial Costa Rica vigente y con cualquier otra disposición jurídica que al respecto se emita.

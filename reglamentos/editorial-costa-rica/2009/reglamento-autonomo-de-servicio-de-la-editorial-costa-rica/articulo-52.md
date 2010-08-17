@@ -1,0 +1,1 @@
+Artículo 52.—En todos los casos, el servidor deberá informar a su Jefe inmediato lo antes posible, oralmente o por escrito, las causas que le impiden asistir a sus labores. Por ninguna razón, deberá esperar hasta el segundo día de ausencia para informarlo, salvo fuerza mayor que deberá probar debidamente.

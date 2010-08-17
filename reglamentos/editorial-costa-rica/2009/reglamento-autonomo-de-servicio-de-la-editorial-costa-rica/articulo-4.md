@@ -1,0 +1,1 @@
+Artículo 4º—Los Jefes de Departamento, encargados y en general, todos aquellos funcionarios que tengan bajo su responsabilidad tareas de administración y supervisión de personal son responsables ante la Gerencia y el Consejo Directivo, de velar por la correcta aplicación de todas las disposiciones de este Reglamento.

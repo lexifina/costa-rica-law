@@ -1,0 +1,3 @@
+Artículo 86.—Cada vez que haya una nueva fijación de salarios, la sección de Recursos Humanos revisará los salarios básicos acordados por el Poder Ejecutivo, toda vez que la Autoridad Presupuestaria haya hecho extensiva la Resolución emitida por la DGSC, a fin de que ningún servidor devengue menos del salario que le corresponde según su categoría.
+Dicha sección hará los trámites correspondientes ante la Autoridad Presupuestaria para realizar los ajustes necesarios, para equiparar los salarios de aquellos puestos cuyo salario sea menor al establecido para dicha categoría.
+Una vez recibida la aprobación de la Autoridad Presupuestaria la Unidad de Recursos Humanos realizará los ajustes de oficio.

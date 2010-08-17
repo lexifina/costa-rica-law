@@ -1,0 +1,1 @@
+Artículo 132.—El despido sin responsabilidad patronal del personal especializado a que se refiere el artículo 22 de la Ley Nº 2366, Ley de Creación de la Editorial Costa Rica, se hará de conformidad con el Procedimiento Administrativo dispuesto en Libro Segundo de la Ley General de la Administración Pública, observando el término señalado en los artículos anteriores.

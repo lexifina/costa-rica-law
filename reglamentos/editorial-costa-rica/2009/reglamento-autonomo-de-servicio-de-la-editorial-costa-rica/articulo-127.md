@@ -1,0 +1,2 @@
+Artículo 127.—Excepto que se trate del despido, en cuyo caso la gestión correspondiente estará a cargo del Gerente o el Consejo Directivo, la aplicación de sanciones, tanto por infracciones al registro de control de puntualidad y asistencia, como por las otras faltas estipuladas en este Reglamento, corresponde al Coordinador de la sección de Recursos Humanos de la Editorial.
+Cuando se trate de amonestación oral, ésta corresponde a los Jefes Inmediatos respectivos.

@@ -1,0 +1,2 @@
+Artículo 87.—Los servidores que, en el ejercicio de sus funciones, deban viajar dentro o fuera del país tendrán derecho a que se les reconozcan los gastos de transporte y viáticos, consistentes en pasajes, alimentación y hospedaje, de acuerdo con la tabla de viáticos vigente, autorizada por la Contraloría General de la República. Ese reconocimiento deberá efectuarse antes del inicio de la gira respectiva.
+Los pagos señalados en el párrafo anterior no se considerarán salario para ningún efecto legal.

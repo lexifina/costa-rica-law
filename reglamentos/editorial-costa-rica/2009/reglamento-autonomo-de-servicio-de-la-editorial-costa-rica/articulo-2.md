@@ -1,0 +1,13 @@
+Artículo 2º—Para los efectos de este Reglamento, se entiende por:
+1. Patrono: La Editorial Costa Rica, representada en este caso específico por su Gerente o su representante legal.
+2. Máximo Jerarca: El Consejo Directivo de la Editorial Costa Rica.
+3. Gerencia: La gerencia de la Editorial Costa Rica, de conformidad con la Ley de Creación de la Editorial Nacional (Actual Editorial Costa Rica) y las disposiciones pertinentes de la Ley General de la Administración Pública y demás normativa jurídica aplicable.
+4. Relación de servicio: El conjunto de obligaciones, derechos, atribuciones, funciones y tareas que corresponden al servidor o funcionario, en relación con el Estado y los administrados, de acuerdo con el ordenamiento jurídico.
+5. Estatuto: El Estatuto de Servicio Civil, Ley Nº 1581 del 30 de mayo de 1953 y sus reformas, en lo que resulte aplicable en virtud de la naturaleza jurídica de la Editorial Costa Rica.
+6. Reglamento del Estatuto: El Reglamento del Estatuto de Servicio Civil, Decreto Ejecutivo Nº 21 del 14 de diciembre de 1954 y sus reformas, en lo que resulte aplicable en virtud de la naturaleza jurídica de la Editorial Costa Rica.
+7. Sección de Recursos Humanos: La sección especializada; que forma parte de las labores de la coordinación de servicios administrativos responsable de la aplicación de los principios, de las normas técnicas y de los procedimientos propios del Sistema de Administración de Recursos Humanos, para favorecer la productividad, la eficiencia y el desarrollo de la organización y del factor humano que la compone.
+8. Servidor: La persona física que presta sus servicios a la Editorial como parte de su organización, en virtud de acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o transitorio de la actividad respectiva.
+Para los efectos de este Reglamento son equivalentes los términos “funcionario público”, “servidor público”, “empleado público” y demás similares.
+9. Servidor interino en plaza vacante: El nombrado para llenar una plaza vacante, por el tiempo que se requiera para resolver los respectivos pedimentos de personal, mientras no existan candidatos elegibles en la Sección de Recursos Humanos.
+10. Servidor interino sustituto: El nombrado para sustituir temporalmente a uno regular con licencia o ausente por cualquier causa de suspensión de la relación de servicios.
+11. Servidor de confianza: Quien ha sido nombrado libremente, con entera discrecionalidad por parte del jerarca que hace la escogencia, de acuerdo con la descripción que sobre estos cargos establece el artículo 4 del Estatuto de Servicio Civil y de conformidad con lo dispuesto en el artículo 140 inciso 1) de la Constitución Política de Costa Rica.

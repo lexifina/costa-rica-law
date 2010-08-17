@@ -1,0 +1,2 @@
+Artículo 128.—En casos de despido por justa causa y de suspensión previa mientras se tramita la correspondiente gestión de despido, se seguirá el Procedimiento Administrativo dispuesto en Libro Segundo de la Ley General de la Administración Pública y en lo que resulte aplicable, los trámites establecidos por el Estatuto de Servicio Civil y su Reglamento.
+La suspensión disciplinaria se aplicará una vez de haberse seguido el debido proceso.

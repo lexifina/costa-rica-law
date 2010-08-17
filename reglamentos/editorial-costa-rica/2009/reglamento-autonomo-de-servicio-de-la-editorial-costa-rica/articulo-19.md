@@ -1,0 +1,7 @@
+Artículo 19.—Además de lo contemplado en el artículo 17 y en otros de este Reglamento, queda absolutamente prohibido a los choferes y a los servidores autorizados para conducir vehículos de la Editorial:
+1. Conducir a velocidades superiores a las permitidas por las leyes o reglamentos de tránsito o incumplir sus disposiciones.
+2. Conducir los vehículos oficiales cuando haya ingerido algún tipo de bebida alcohólica o alguna otra clase de drogas.
+3. Utilizar el vehículo oficial en lugares diferentes al itinerario que corresponda. De darse lo anterior, por circunstancias muy calificadas, el chofer deberá, al término de la jornada o de la gira, brindar un informe al funcionario encargado del área de transportes.
+4. Ceder la conducción del vehículo a otras personas, salvo razones muy calificadas o de fuerza mayor. El servidor que incurra en esta falta se hará acreedor a las mismas responsabilidades que tiene el conductor autorizado.
+5. Ocupar o permitir que se use el vehículo en actividades ajenas al servicio de la Editorial, así como transportar a servidores o particulares que no tengan relación con el servicio que presta, excepto los casos que así se lo indique el funcionario responsable del área de transporte o la Gerencia, o amerite, a requerimiento del funcionario responsable de la misión, por la índole o el propósito del viaje.
+6. Inobservar lo dispuesto en el Reglamento Interno de Uso, Control y Mantenimiento de los Vehículos de la Editorial Costa Rica vigente y con cualquier otra disposición jurídica que al respecto se emita.

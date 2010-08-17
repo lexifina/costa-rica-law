@@ -1,0 +1,5 @@
+CAPÍTULO XI
+Registro y control de puntualidad y asistencia a labores
+Artículo 43.—Es obligación personal e insustituible de todo servidor asistir puntualmente y registrar correctamente su asistencia a labores.
+El registro de asistencia se llevará a cabo por medio del sistema de registro de marcas que se establezca, debiendo los servidores registrar personalmente su asistencia al inicio y terminación de la jornada de trabajo. El control de entrada y salida del tiempo destinado al almuerzo, queda bajo la responsabilidad de cada Jefe inmediato, quien establecerá el medio de control para tal efecto, de manera que no se ocasione menoscabo de la prestación del servicio, en el entendido que por tal motivo no podrá interrumpirse el mismo o cerrarse la oficina. En todo caso, la Administración podrá utilizar cualquier otro medio de registrar la asistencia, que resulte idóneo a dichos efectos, según las circunstancias.
+En aquellas dependencias cuya naturaleza de los servicios lo requiera, el Jefe respectivo establecerá el control de asistencia adecuado, el cual debe ser avalado por la Sección de Recursos Humanos.

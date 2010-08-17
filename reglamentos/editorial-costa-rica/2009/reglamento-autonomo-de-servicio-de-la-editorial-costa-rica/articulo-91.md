@@ -1,0 +1,1 @@
+Artículo 91.—Corresponde a la Sección de Recursos Humanos o a los Encargados Auxiliares, cuando así se haya acordado, la emisión de constancias o certificaciones de tipo laboral que requieran sus empleados o los diferentes Departamentos o Secciones de la Editorial, en el ejercicio propio de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 88.—El pago por concepto de zonaje se regulará por lo dispuesto en el Reglamento de viajes y de transporte para funcionarios públicos de la Contraloría General de la República. Tales sumas deberán utilizarse para los fines que fueron aprobados.

@@ -1,0 +1,2 @@
+Artículo 9º—Son servidores de la Editorial los nombrados con apego a lo establecido en los artículos 1º y 8 de este Reglamento, sean en propiedad o interinos, los excluidos de dicho Régimen y los empleados de confianza, los cuales deben ser investidos mediante acto válido y eficaz de nombramiento que ha de cumplir los requisitos legales pertinentes.
+La Editorial y su máximo jerarca en el nombramiento de sus servidores, debe garantizar igualdad de oportunidades a aquellas personas con algún tipo de discapacidad.
