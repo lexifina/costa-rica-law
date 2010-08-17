@@ -1,1 +1,2 @@
-Artículo 18.—Incumplimiento del arreglo de pago. Cuando se proceda a realizar el arreglo de pago mensualmente y el contribuyente incumpla con una de las cuotas, la Municipalidad tendrá derecho a cobrarle un 5% sobre el monto adeudado en calidad de interés por incumplimiento, y si las cuotas incumplidas son mas de dos aparte del 5% mensual, se podrá reiniciar el proceso de cobro judicial, no procediendo un nuevo arreglo de pago.
+Artículo 18.—Cuando el sujeto pasivo incumpla tres cuotas consecutivas de pago, se reiniciará el proceso de cobro administrativo o judicial, según corresponda.
+(Así reformado en sesión N° 33 del 17 de agosto de 2010)
