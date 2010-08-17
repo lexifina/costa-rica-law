@@ -22,5 +22,6 @@ Reglamento para la Presentación de Índices
 CAPÍTULO I
 Aspectos generales
 Artículo 1º—Periodo de presentación:
-a- El índice de instrumentos públicos se presentará dentro de cinco días hábiles siguientes a los días 15 y último de cada mes.
+a- El índice de instrumentos públicos se presentará dentro de los cinco días hábiles siguientes a los días 15 y último de cada mes.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36246 del 17 de agosto de 2010)
 b- Si el índice de instrumentos públicos se presenta en forma extemporánea, el Notario deberá comprobar su depósito ante la Dirección Nacional de Notariado a través del medio que esta Dirección señale.

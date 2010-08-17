@@ -14,3 +14,4 @@ Reglamento para la Presentación de Índices
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-30 | la propia norma |
+| 2 | 2010-08-17 | Decreto Ejecutivo 36246 (2010-08-17) |
