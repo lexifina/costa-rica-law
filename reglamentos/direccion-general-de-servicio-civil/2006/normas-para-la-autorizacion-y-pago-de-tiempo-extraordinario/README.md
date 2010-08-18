@@ -14,3 +14,4 @@ Normas para la Autorización y Pago de Tiempo Extraordinario en las Entidades de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-23 | la propia norma |
+| 2 | 2010-08-18 | SINALEVI (sin norma nombrada) |

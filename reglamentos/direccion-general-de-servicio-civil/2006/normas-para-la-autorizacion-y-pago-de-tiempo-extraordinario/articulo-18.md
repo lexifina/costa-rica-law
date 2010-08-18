@@ -1,1 +1,1 @@
-Artículo 18.- La autorización y pago de jornada extraordinaria a los servidores que perciben compensación económica por "disponibilidad" es improcedente. En toda solicitud de autorización de jornada extraordinaria debe indicarse si se percibe o no tal sobresueldo.
+Artículo 18.- Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 13705 del 18 agosto de 2010.)
