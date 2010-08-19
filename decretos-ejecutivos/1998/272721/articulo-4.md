@@ -1,2 +1,0 @@
-Artículo 4°—Los delegados serán de nombramiento del Poder Ejecutivo; los representantes de los trabajadores y los patronos serán elegidos libremente por las organizaciones de trabajadores más representativas, según se definen en el artículo 1 de este Reglamento, y por las cámaras patronales respectivamente. Si no se presentaren nóminas o se presentare más de una alternativa, de alguna representación, el Poder Ejecutivo hará la elección libremente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 27644 del 4 de enero de 1999)
