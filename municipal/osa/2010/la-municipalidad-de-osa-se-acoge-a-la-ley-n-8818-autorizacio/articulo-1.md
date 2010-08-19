@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE OSA
+La Municipalidad de Osa avisa a todos los contribuyentes que con base a la Ley Nº 8818 de la Asamblea Legislativa de la República de Costa Rica, el Concejo Municipal de Osa acuerda condonar la totalidad de las deudas por conceptos de recargos, intereses y multas que los sujetos pasivos tengan por conceptos de impuestos, tasas, servicios y demás obligaciones de carácter Municipal, incluso sobre bienes inmuebles. El cual regirá a partir de su publicación en el Diario Oficial La Gaceta y el tiempo de vigencia es hasta el 31 de diciembre de 2010.
+Ciudad Cortés, 16 de agosto del 2010.—
