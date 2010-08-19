@@ -14,3 +14,4 @@ Modifica mensaje "Formato Mensaje Declaración Única Aduanera Versión 3.4.2, e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-18 | la propia norma |
+| 2 | 2010-08-19 | Resolución 282 (2010-08-19) |

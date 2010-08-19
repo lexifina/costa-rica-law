@@ -16,7 +16,8 @@ XII.—Que en razón de lo indicado en los puntos anteriores, procede esta Direc
 Con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6, 9, 11, 22 y 24 de la Ley General de Aduanas Nº7557 del 20 de octubre 1995 y sus reformas:
 EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
 1º—Informar sobre la modificación del mensaje “Formato de Mensaje Declaración Única Aduanera Versión 3.4.2”, en lo relacionado con la incorporación de los campos que se necesitan para la correcta declaración de los productos digitales en aplicación del TLC CAFTA-RD y el cobro por fumigación realizado por el MAG. Lo anterior, con el fin de que los desarrolladores informáticos externos preparen los ajustes correspondientes a los programas que utilizan para la transmisión al TICA del mensaje del DUA.
-2º—Que el proceso de cobro por fumigación a través del Sistema Informático TICA inicia a partir de 9 de agosto de 2010.
+2º—Que el proceso de cobro por fumigación a través del Sistema Informático TICA inicia a partir de (*)9 de agosto de 2010.
+(*)(Nota de Sinalevi: Mediante resolución RES-DGA-282-2010 del 19 de agosto de 2010, se dispuso que en relación a la fecha de incio para el cobro de servicio de fumigación de mercancías por medio del sistema Informático TICA, quede temporalmente suspendida hasta nuevo aviso por el Servicio Nacional de Salud Animal.)
 3º—Que la fecha en que el Sistema Informático TICA se habilite para la declaración de productos digitales en aplicación del TLC CAFTA-RD, será comunicado oportunamente.
 4º—Que el mensaje “Formato de Mensaje Declaración Única Aduanera Versión 3.4.3 se encuentra disponible en las siguientes direcciones electrónicas:
 www.hacienda.go.cr/Msib21/Espanol/tica/tc_mensajes.htm.
