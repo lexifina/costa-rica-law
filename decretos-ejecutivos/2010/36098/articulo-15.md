@@ -1,0 +1,1 @@
+Artículo 15.—Para la adopción de sus decisiones y en lo que no estuviere previsto en el presente reglamento, el funcionamiento del CORACAT se regirá por las disposiciones de la Ley General de la Administración Pública.

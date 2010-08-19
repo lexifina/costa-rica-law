@@ -1,0 +1,1 @@
+Artículo 6º—La Fiscalía será ocupada por un propietario y un suplente quienes serán nombrados en la misma Asamblea, indicada en el artículo anterior; pudiendo ser reelectos cada tres años. Tendrán voz pero no voto, de conformidad a lo indicado en el artículo 30 del Reglamento a la Ley de Biodiversidad Decreto Ejecutivo Nº 34433-MINAE.

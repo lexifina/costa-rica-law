@@ -1,0 +1,1 @@
+Artículo 8º—Se crearán Consejos Locales por acuerdo del CORACAT en los lugares que por su complejidad e interés de las comunidades se considere necesario. Para ello se tomará como referencia lo indicado en el artículo 49 del Reglamento a la Ley de Biodiversidad Decreto Ejecutivo Nº 34433-MINAE.
