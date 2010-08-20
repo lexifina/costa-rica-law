@@ -14,3 +14,4 @@ Modifica para el Instituto Nacional de Estadística y Censos el gasto presupuest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-14 | la propia norma |
+| 2 | 2010-08-20 | Decreto Ejecutivo 36212 (2010-08-20) |
