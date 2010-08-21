@@ -1,0 +1,3 @@
+JUNTA DE PROTECCIÓN SOCIAL
+Procedimiento para la promoción de premios especiales con los sorteos de la Lotería Popular.
+Artículo 1º—Objeto. El objeto del presente procedimiento es el de regular los aspectos relacionados con la promoción establecida para el otorgamiento de premios especiales, con motivo de la realización de los sorteos de la Lotería Popular del año 2010, aprobado por la Junta Directiva de la Junta de Protección Social según acuerdo JD-361, correspondiente al artículo III) de la sesión extraordinaria Nº 12-2010 celebrada el 22 de julio del 2010 como parte de la estrategia de comercialización para este producto.

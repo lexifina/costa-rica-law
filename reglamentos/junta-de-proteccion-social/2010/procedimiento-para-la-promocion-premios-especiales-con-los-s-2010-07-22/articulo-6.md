@@ -1,0 +1,4 @@
+Artículo 6º—Mecánica de juego. La Junta realizará un sorteo semanal en la Rueda de la Fortuna, en el cual se hará la rifa y entrega de los dos combos de premios.
+Un ganador se elegirá de manera electrónica, mediante un sorteo aleatorio entre todas las personas que hayan activado su Lotería Popular por medio telefónico o por la página WEB.
+Un segundo ganador se elegirá de las personas que hayan enviado sus sobres por medio de Correos de Costa Rica al apartado 1979-100 o en forma personal en los buzones de las oficinas centrales de la Junta o en la Sucursal de Cartago.
+La entrega del premio se efectuará a la semana siguiente de haber salido favorecido, en la Rueda de la Fortuna o en el Auditorio de la Junta con toma de fotografía para publicar en redes sociales y en la Web de la Junta, de acuerdo con el objetivo de ésta promoción y el mercado meta al cual va dirigido, y respetando el derecho de imagen.
