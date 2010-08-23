@@ -15,3 +15,4 @@ Reglamento de Garantías que deben rendir los Funcionarios del Ministerio de Cul
 | --- | --- | --- |
 | 1 | 2007-11-23 | la propia norma |
 | 2 | 2008-04-22 | Decreto Ejecutivo 34627 (2008-04-22) |
+| 3 | 2010-08-23 | Decreto Ejecutivo 36411 (2010-08-23) |
