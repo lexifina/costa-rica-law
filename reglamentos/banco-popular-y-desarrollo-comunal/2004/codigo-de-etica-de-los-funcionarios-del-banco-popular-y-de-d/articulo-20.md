@@ -1,1 +1,0 @@
-Artículo 20.—El interés general de la Corporación Popular, está por encima del interés del funcionario; por tanto, evitaré que las metas comerciales sean utilizadas como pretexto para permitir operaciones de lavado de activos.
