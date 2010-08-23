@@ -1,0 +1,14 @@
+ANEXO 4.
+Consideraciones técnicas especiales necesarias para el uso óptimo del Mapa de Cobertura Boscosa de Costa Rica
+para el año 2000
+Las consideraciones especiales para el uso del Mapa de Cobertura Boscosa de Costa Rica para el año 2000 son:
+a) Presencia y/o sombras de nubes: cuando la imagen concuerde con la presencia de nubes crea sombras que no permiten verificar la cobertura presente en parte o la totalidad de los predios.
+b) Error óptico de la imagen: (± 30 m): depende generalmente de la dirección del satélite a la hora de captar la imagen (ej: parte norte efecto sombra) y se presenta frecuentemente en áreas cercanas a bosques.
+c) Cultivos agrícolas permanentes: algunos de éstos cultivos se pueden interpretar como bosque, debido a los doseles que ha desarrollado (ejemplo: cacaotales, café arbolados, naranjales etc.)
+d) Pendientes: las pendientes de las serranías crean un factor óptico que refleja una imagen de cobertura continua que tiende a confundirse con áreas de bosque.
+e) Áreas boscosas inferiores a 2 hectáreas: para la elaboración del Mapa de Cobertura se consideraron las áreas boscosas iguales o superiores a 2 hectáreas, por tanto; algunas áreas con cobertura boscosa inferiores a dicha cantidad de hectáreas, no se registran en este Mapa.
+f) Áreas de regeneración natural de rodales puros y Plantaciones Forestales: el Mapa de Cobertura Boscosa de Costa Rica para el año 2000, los interpreta en su mayoría como bosque debido a sus características particulares de cobertura de doseles.
+Procedimiento
+1. Para los apartados del a) al d), se permitirá al propietario del inmueble, la comprobación del NO cambio de uso del suelo, mediante la verificación del Mapa de Cobertura Boscosa de Costa Rica para el año 2000 o con la presentación de fotografías aéreas que corroboren la existencia de las condiciones actuales para el citado año. Para los casos en que persista la nubosidad en las fotos, deberá realizarse la inspección de campo con la finalidad de buscar evidencias que comprueben la condición del predio en el año 2000.
+2. En el caso e), donde el uso identificado en el Mapa de Cobertura Boscosa de Costa Rica para el año 2000, sea categorizado como no forestal, pero la realidad en el campo demuestre ser otra debido a la presencia de áreas con cobertura boscosa (áreas de bosque mayores a 2 hectáreas), el técnico deberá elaborar un levantamiento perimetral (Anexo Nº 10) con el fin de determinar la categoría de permiso a solicitar.
+3. Para los casos en los que el propietario del inmueble no pueda demostrar que las condiciones actuales del predio era las mismas que prevalecían en el año 2000, la AFE estará en plena facultad de aplicar el artículo 11 de la Ley de Biodiversidad (indubio pro natura), que favorece la naturaleza al no poder establecerse lo contrario.

@@ -1,0 +1,4 @@
+ANEXO 1
+FORMULARIO DE RECEPCIÓN DE DOCUMENTOS
+[imagen]
+[imagen]

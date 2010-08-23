@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Disposiciones finales
+1º—Con lo establecido en el presente reglamento, se modifica el Plan de Ordenamiento Ambiental, Decreto Ejecutivo Nº 29393-MINAE, Alcance Nº 34, de La Gaceta Nº 92 del 15 de mayo del 2001, referente al aprovechamiento maderable en terrenos de uso agropecuario y sin bosque dentro de las Áreas Silvestres Protegidas, tratándose de reservas forestales, zonas protectoras y refugios de vida silvestre, cuando el pago o la expropiación no se haya efectuado y mientras se efectúan, por lo que solo se podrá efectuar el aprovechamiento maderable, cuando haya cumplido a satisfacción de la Administración Forestal del Estado, lo establecido en la Guía Ambiental diseñada para tal efecto (ANEXO 5.)
+2º—Se deja sin efecto la resolución administrativa Nº 054-SINAC, de las quince horas del veintinueve de noviembre de 1999 y publicada en La Gaceta Nº 17 del día veinticinco de enero del año dos mil.
+3º—El presente Manual fue aprobado por el Consejo Nacional de Áreas de Conservación en Acuerdo Nº 11 de la Sesión Ordinaria Nº 02-2010 del 01 de marzo del 2010, ello de conformidad con el artículo 12 inciso c) del Reglamento a la Ley de Biodiversidad Nº 7788, Decreto Ejecutivo Nº 34433-MINAE.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
