@@ -1,4 +1,0 @@
-Artículo 7º—Las y los funcionarios y demás personas que prestan servicios al Conglomerado en los términos expresados en el primer párrafo del artículo 1° de este Código, tienen los siguientes deberes hacia otras entidades financieras:
-1) Observar una conducta leal frente a sus homólogos, por lo tanto, queda prohibido todo acto que implique competencia desleal, así como aquellos que atenten contra la ética comercial y la libre empresa.
-2) Evitar todo intento de manipulación que tenga como objeto la variación de información por medios no idóneos, que quebrante los principios éticos fundamentales del mercado financiero. Se considerarán medios no idóneos tanto la difusión de información falsa, exagerada o tendenciosa, como el uso de cualquier otro método que tenga como fin la distorsión o simulación de las operaciones normales.
-3) No promover la difusión de rumores y comentarios falsos sobre otras entidades participantes del mercado financiero.
