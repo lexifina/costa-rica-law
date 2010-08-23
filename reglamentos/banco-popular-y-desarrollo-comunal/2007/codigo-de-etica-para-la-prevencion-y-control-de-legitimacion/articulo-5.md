@@ -1,1 +1,0 @@
-Artículo 5º—Los funcionarios, colaboradores y agentes corredores en sus actuaciones ante las autoridades judiciales o administrativas, procederán con respeto y decencia; serán cooperadores y facilitarán su labor.

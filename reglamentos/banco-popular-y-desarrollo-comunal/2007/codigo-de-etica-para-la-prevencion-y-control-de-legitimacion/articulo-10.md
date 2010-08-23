@@ -1,1 +1,0 @@
-Artículo 10.—Los funcionarios, colaboradores y agentes corredores deben abstenerse de recibir regalos o dádivas de los clientes, para evitar que las organizaciones criminales y los blanqueadores de dinero involucren a los funcionarios, a realizar acciones indebidas, con el fin de eludir los controles a la legitimación de capitales.

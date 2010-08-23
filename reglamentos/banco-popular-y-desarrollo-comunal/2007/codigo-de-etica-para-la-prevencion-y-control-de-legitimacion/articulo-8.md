@@ -1,1 +1,0 @@
-Artículo 8º—Los funcionarios, colaboradores y agentes corredores deben reportar las transacciones inusuales o atípicas al Oficial de Cumplimiento del Conglomerado, cuando sea notorio el manejo inusual o indebido de una cuenta o servicio por parte del cliente.
