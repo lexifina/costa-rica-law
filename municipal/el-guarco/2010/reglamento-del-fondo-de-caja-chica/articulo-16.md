@@ -1,0 +1,1 @@
+Artículo 16.—El funcionario que incurra en un pago por los conceptos anteriores, cargará a título personal con la erogación, es decir, la factura de liquidación del vale de Caja Chica se aceptará por el subtotal sin impuesto.

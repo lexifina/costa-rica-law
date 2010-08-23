@@ -1,0 +1,1 @@
+Artículo 14.—El procedimiento establecido para la ejecución y funcionamiento del fondo fijo es de carácter obligatorio para todas las personas involucradas en el mismo. Su incumplimiento se reportará al Alcalde Municipal para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 15.—Por ningún motivo, la Municipalidad de El Guarco cargará con pagos de impuestos, contribuciones, tasas y derechos, por estar exenta según el artículo 08 del código municipal. El funcionario interesado en la adquisición de los bienes o servicios deberá solicitar al encargado del fondo municipal un comprobante de exoneración.

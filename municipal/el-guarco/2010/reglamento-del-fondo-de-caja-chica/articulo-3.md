@@ -1,0 +1,1 @@
+Artículo 3º—El Tesorero(a) puede delegar la responsabilidad del manejo operativo de dicho fondo a un funcionario de su confianza, el cual se definirá en adelante como el encargado o custodio del manejo del fondo fijo de Caja Chica.

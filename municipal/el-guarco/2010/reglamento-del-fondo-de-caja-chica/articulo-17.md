@@ -1,0 +1,1 @@
+Artículo 17.—El presente reglamento y sus procedimientos podrán ser sometidos a futuras revisiones por el Concejo Municipal, la Auditoria Interna o por la Contraloría General de la República, cuando la circunstancia así lo establezca, debidamente justificada.

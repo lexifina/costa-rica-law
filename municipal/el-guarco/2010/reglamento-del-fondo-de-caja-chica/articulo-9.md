@@ -1,0 +1,1 @@
+Artículo 9º—Todo justificante que se presente en el momento de hacer la liquidación debe contar con la aprobación del Proveedor Municipal, de conformidad con el procedimiento adjunto, salvo las liquidaciones de viáticos, para lo cual se aplicará el procedimiento correspondiente.

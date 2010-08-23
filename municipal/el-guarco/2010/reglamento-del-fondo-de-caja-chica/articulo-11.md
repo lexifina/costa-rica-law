@@ -1,0 +1,1 @@
+Artículo 11.—Para realizar un reintegro de Caja Chica se contará con un formulario denominado “REINTEGRO DE CAJA CHICA”, el cual debe ser debidamente codificado para las aplicaciones presupuestarias y contables e indicar el monto total del mismo.
