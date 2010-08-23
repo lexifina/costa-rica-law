@@ -15,3 +15,4 @@ Reglamento General para la Administración de Riesgos
 | --- | --- | --- |
 | 1 | 2009-11-23 | la propia norma |
 | 2 | 2010-06-28 | Reglamento 38 (2010-06-28) |
+| 3 | 2010-08-23 | Reglamento 47 (2010-08-23) |

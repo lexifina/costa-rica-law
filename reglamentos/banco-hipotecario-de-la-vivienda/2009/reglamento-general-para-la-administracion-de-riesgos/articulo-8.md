@@ -1,9 +1,7 @@
 Artículo 8º—El Comité estará integrado por los siguientes miembros:
-a) Un Director de Junta Directiva o su reemplazante
+a) Dos Directores de Junta Directiva
 b) El Gerente General
-c) El Subgerente de Operaciones
-d) El Subgerente Financiero
-e) El titular de la Dirección Administrativa Financiera
-f) El titular de la Dirección FONAVI
-g) El titular de la Unidad de Planificación Institucional
-h) El titular de la Unidad de Riesgos
+c) El titular de la Unidad de Riesgos
+d) Un miembro externo a la entidad
+Los responsables de las áreas de negocio pueden participar en las sesiones del Comité de Riesgos, con derecho a voz pero sin voto.
+(Así reformado mediante acuerdo 1 de la sesión N° 47 del 23 de agosto de 2010)
