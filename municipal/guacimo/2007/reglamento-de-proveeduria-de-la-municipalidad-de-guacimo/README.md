@@ -15,3 +15,4 @@ Reglamento de Proveeduría de la Municipalidad de Guácimo
 | --- | --- | --- |
 | 1 | 2007-05-25 | la propia norma |
 | 2 | 2010-06-01 | Reglamento municipal 22 (2010-06-01) |
+| 3 | 2010-08-24 | Reglamento municipal 34 (2010-08-24) |
