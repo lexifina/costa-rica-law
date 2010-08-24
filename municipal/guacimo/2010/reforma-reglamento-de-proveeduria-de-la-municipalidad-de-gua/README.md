@@ -14,3 +14,4 @@ Reforma Reglamento de Proveeduría de la Municipalidad de Guácimo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-06 | la propia norma |
+| 2 | 2010-08-24 | Reglamento municipal 34 (2010-08-24) |
