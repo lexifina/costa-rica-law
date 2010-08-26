@@ -1,1 +1,0 @@
-Artículo 3º—Derogatoria. Derógase la resolución Nº 05-2001 de las doce horas del veinticuatro de abril del dos mil uno, emitida por la Dirección General de Tributación y publicada en el Diario Oficial La Gaceta Nº 90 de 11 de mayo del 2001.
