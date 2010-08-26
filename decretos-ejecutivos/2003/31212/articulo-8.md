@@ -10,3 +10,5 @@ Cada instancia deberá nombrar un suplente para cada representante, quien actuar
 El quórum para sesionar lo integran cinco representantes. En caso de urgencia, la Comisión podrá sesionar válidamente después de media hora de la hora señalada en la convocatoria, y para ello será suficiente la asistencia de tres de sus miembros. Para efectos de votación en caso de empate, el Presidente tendrá derecho a doble voto.
 (Así reformado el párrafo anterior por el artículo 11° del decreto ejecutivo N° 35305 del 29 de Mayo del 2009).
 (*)(Modificada su denominación por el artículo 10° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).
+g) Un representante del Sindicato del Ministerio de Hacienda que agrupe la mayor cantidad de funcionarios afiliados.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 36327 del 26 de agosto del 2010).

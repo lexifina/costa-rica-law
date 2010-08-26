@@ -17,3 +17,4 @@ Reglamento para la Adjudicación de Becas o Facilidades a Servidores del Ministe
 | 2 | 2006-05-31 | Decreto Ejecutivo 33200 (2006-05-31) |
 | 3 | 2006-06-01 | Decreto Ejecutivo 33208 (2006-06-01) |
 | 4 | 2009-05-29 | Decreto Ejecutivo 35305 (2009-05-29) |
+| 5 | 2010-08-26 | Decreto Ejecutivo 36327 (2010-08-26) |

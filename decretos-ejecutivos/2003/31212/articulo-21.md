@@ -44,3 +44,10 @@ punto por investigaciones o publicaciones.
 6.1 En el Ministerio de Hacienda (un punto por cada evento). 10%
 6.2 En otras instituciones del Régimen del Servicio Civil (0.5 por cada evento) 5%
 (*)(Modificada su denominación por el artículo 10° del decreto ejecutivo N° 35305 del 29 de mayo del 2009).
+7. Factores adicionales
+En todos los casos se computarán los siguientes factores:
+7.1) Dos puntos por cada evaluación del desempeño de excelente, durante los últimos tres años.
+7.2) Un punto por cada evaluación del desempeño de muy bueno, durante los últimos tres años.
+7.3) Un punto por cada año de experiencia relacionada con el tema del evento.
+La Comisión de Becas podrá acordar la inclusión de otros parámetros de calificación específicos, para aplicar en el proceso de selección de candidatos para un concurso determinado, de acuerdo con los requerimientos propios de cada evento.
+(Así adicionado el inciso 7) anterior por el artículo 2° del decreto ejecutivo N° 36327 del 26 de agosto del 2010)
