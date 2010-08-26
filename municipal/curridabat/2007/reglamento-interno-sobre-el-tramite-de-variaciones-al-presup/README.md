@@ -14,3 +14,4 @@ Reglamento Interno sobre el Trámite de Variaciones al Presupuesto de la Municip
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-22 | la propia norma |
+| 2 | 2010-08-26 | Reglamento municipal 17 (2010-08-26) |
