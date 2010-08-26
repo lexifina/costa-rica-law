@@ -19,3 +19,4 @@ Reglamento de Crédito y Cobro de Correos de Costa Rica
 | 4 | 2003-09-18 | Reglamento 440 (2003-09-18) |
 | 5 | 2005-06-27 | Reglamento 605 (2005-06-27) |
 | 6 | 2007-06-25 | Reglamento 790 (2007-06-25) |
+| 7 | 2010-08-26 | Reglamento 1038 (2010-08-26) |
