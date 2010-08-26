@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Reglamento regirá para todos(as) los(as) trabajadores(as) y funcionarios(as) del Banco Popular y de Desarrollo Comunal en sus relaciones de trabajo o servicio en el ámbito interno, con oferentes, proveedores, clientes u otros terceros.
