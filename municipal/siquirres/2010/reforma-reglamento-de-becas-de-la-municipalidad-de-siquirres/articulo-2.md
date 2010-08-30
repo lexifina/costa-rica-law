@@ -1,0 +1,1 @@
+2- Se acuerda apegar el artículo XIII, que literalmente dice; “Quedó, expresamente prohibido al Alcalde, Vicealcalde, Regidores propietarios y suplentes, Síndicos y suplentes ser beneficiarios a una beca, su cónyuge y algún pariente hasta el tercer grado de consanguinidad o afinidad.

@@ -1,0 +1,1 @@
+4- Se acuerda modificar el artículo IX y léase literalmente; “Todos los estudiantes beneficiados con beca municipal deberán presentar a la Comisión de Becas el informe de calificaciones de sus respectivos Centros Educativos”.
