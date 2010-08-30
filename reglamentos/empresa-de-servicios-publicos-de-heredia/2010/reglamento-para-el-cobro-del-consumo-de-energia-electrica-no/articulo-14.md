@@ -1,0 +1,1 @@
+Artículo 14.—Si el cliente presenta las pruebas de descargo y las mismas lo eximen de toda responsabilidad por el uso ilícito, la Dirección UEN Comercialización de la ESPH S. A. deberá notificarle al cliente tal resolución y el caso será archivado con toda la documentación respectiva.

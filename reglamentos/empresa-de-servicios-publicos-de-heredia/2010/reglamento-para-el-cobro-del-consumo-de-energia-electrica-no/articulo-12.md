@@ -1,0 +1,1 @@
+Artículo 12.—La UEN Comercialización de la ESPH S. A. deberá llevar un archivo con las copias de recibido de los comunicados enviados al cliente. Las mismas deben incluir los siguientes datos: nombre y firma del notificador; nombre, firma y número de cédula de quien recibe la notificación; fecha y hora en que se efectuó dicha notificación.

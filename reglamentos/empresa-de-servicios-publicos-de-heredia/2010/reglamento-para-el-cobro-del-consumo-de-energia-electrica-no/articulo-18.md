@@ -1,0 +1,1 @@
+Artículo 18.—Generación de la Orden de Reconexión: Una vez cancelada la deuda, o bien se haya establecido un convenio de pago con el deudor, el Área de Control de Cuentas emitirá la debida orden de reinstalación del servicio.

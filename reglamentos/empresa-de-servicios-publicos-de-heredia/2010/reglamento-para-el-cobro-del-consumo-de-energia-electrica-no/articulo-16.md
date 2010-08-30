@@ -1,0 +1,1 @@
+Artículo 16.—Si el cliente interpone contra el acto los recursos ordinarios de revocatoria o apelación en subsidio, se seguirá lo establecido para tales casos en la Ley General de la Administración Pública, en vista de lo cual la Dirección de la UEN Comercialización de la ESPH S. A. deberá coordinar lo pertinente con la Asesoría Jurídica Institucional.

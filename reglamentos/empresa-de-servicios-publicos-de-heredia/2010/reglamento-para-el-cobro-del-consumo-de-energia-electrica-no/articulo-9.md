@@ -1,0 +1,1 @@
+Artículo 9º—Remoción de la conexión irregular: El personal del Laboratorio de Medidores o el personal técnico, debidamente autorizado, debe hacer la remoción de la conexión irregular, una vez que se haya coordinado con el cliente y/o se haya cumplido el plazo otorgado de 3 días hábiles indicados en el artículo 8 anterior.

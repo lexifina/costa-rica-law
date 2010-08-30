@@ -1,0 +1,1 @@
+Artículo 2º—Aplicación: Esta normativa es de aplicación a toda conexión irregular verificada y comprobada por el personal de la ESPH S. A., que no cumpla con las condiciones técnicas y los requisitos administrativos establecidos para la prestación del servicio eléctrico por parte de la Empresa.

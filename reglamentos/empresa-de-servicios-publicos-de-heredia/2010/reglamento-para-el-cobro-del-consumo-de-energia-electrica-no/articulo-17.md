@@ -1,0 +1,1 @@
+Artículo 17.—Retiro del medidor: En el caso de que el cliente no realice ninguna gestión con respecto a la conexión irregular que le ha sido notificada, el personal del Laboratorio de Medidores de la ESPH S. A., realizará el retiro del servicio.
