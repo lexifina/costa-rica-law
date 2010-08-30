@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el artículo 49 (anterior 46) del Reglamento de Organización y Funcionamiento de la Unidad de Auditoría Interna, para que en adelante se lea de la siguiente manera:
+“Artículo 49.—Aprobado por el Concejo Municipal, mediante acuerdo de la sesión ordinaria N° 64, Capítulo V, Artículo 6, inciso 1, celebrada el 23 de julio del 2007 y por la Contraloría General de la República, mediante oficio N° 15043.”

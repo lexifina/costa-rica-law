@@ -1,0 +1,9 @@
+Artículo 2º—Incluir los siguientes artículos al Reglamento de Organización y Funcionamiento de la Unidad de Auditoría Interna.
+“Artículo 11.—Objetividad y ética profesional. Todos los funcionarios de la Auditoría Interna deberán tener una actitud neutral e imparcial, con el propósito de mantener su independencia de criterio y evitar un eventual conflicto de intereses.
+Artículo 12.—Impedimentos al personal de la Auditoría Interna. Con el propósito de que no se interfiera con la objetividad y los principios éticos el personal de la Auditoría deberá:
+a) Rechazar todo tipo de dádiva que pudiera influir sobre la independencia de criterio e integridad, sin perjuicio de la obligación de la denuncia de tales hechos ante las instancias correspondientes.
+b) No utilizar el cargo oficial con otros fines que no sean los propios del cargo.
+c) No auditar operaciones en las que previamente haya sido responsable como funcionario de la Administración.
+d) Informar por escrito al Jerarca y otras partes involucradas cuando se pudieran suscitar dudas o se viesen comprometidas la integridad u objetividad de la Auditoría.
+Artículo 13.—Alcance de la participación en comisiones. Cuando se requiera de la participación del Auditor Interno o de otros funcionarios de la Auditoría Interna, en alguna comisión, la actuación de éstos, debe ser conforme al nivel de asesor, según la normativa establecida por la Contraloría General de la República al respecto. Por regla, los y las funcionarias de la Auditoría Interna, incluyendo al Auditor Interno asistirán a dichas reuniones con voz pero sin voto.”
+Con la inclusión de estos tres nuevos artículos al Reglamento de Organización y Funcionamiento de la Unidad de Auditoría Interna de la Municipalidad de Palmares, la numeración de cada artículo se debe de correr, a partir del artículo 11, el cual se leerá artículo 14 y así consecutivamente hasta contemplar el último artículo del citado reglamento.
