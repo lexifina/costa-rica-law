@@ -41,8 +41,8 @@ a Los servidores que hayan adquirido legalmente su derecho de vacaciones y que e
 3.7 A los servidores que ingresaron a la luz de la reforma del artículo 39 de la Ley Orgánica del Poder Judicial, no se les reconocerá como vacaciones los días laborados durante los cierres colectivos; no obstante deberán de comunicar al Departamento-Gestión Humana su asistencia utilizando la Proposición Electrónica de Nombramiento; de otra manera, se le rebajará de su saldo de vacaciones los días del cierre colectivo que no estén reportados como trabajados.
 4 Uso de la Proposición Electrónica de Nombramiento, en adelante PIN:
 4.1 La PIN será de uso obligatorio, por lo que todas aquellas oficinas que tengan acceso a ella deberán hacer uso de esta herramienta.
-4.2 El Departamento de Personal no incluirá en el sistema ningún movimiento relacionado con vacaciones, nombramientos e incapacidades que sea recibido en forma física, salvo aquellas oficinas que no cuenten con la PIN.
-4.3 Cuando un servidor judicial suspenda sus vacaciones por incapacidad, licencia con goce de sueldo, ascensos, o bien por disposiciones propias de la jefatura, esta última deberá comunicar la variación mediante la PIN.
+4.2 El Departamento de Personal no incluirá en el sistema ningún movimiento relacionado con vacaciones, nombramientos e incapacidades que sea recibido en forma física, salvo aquellas oficinas que no cuenten con la PIN
+4.3 Cuando un servidor judicial suspenda sus vacaciones por incapacidad, licencia con goce de sueldo, ascensos, o bien por disposiciones propias de la jefatura, esta última deberá comunicar la variación mediante la PIN
 5 Magistrados, Jueces y servidores de la Sala Constitucional
 5.1 De conformidad con el artículo 4° de la Ley de la Jurisdicción Constitucional, y el artículo 40 de la Ley Orgánica del Poder Judicial, la Sala Constitucional dispondrá lo relativo a las vacaciones de sus Magistrados y de los servidores que deben asistirlos en sus funciones dentro del período de cierre general.
 5.2 Los Magistrados de las Salas Primera, Segunda y Tercera se regirán de conformidad con el Reglamento de Vacaciones aprobado para esos efectos, en la sesión celebrada por la Corte Plena el 27 de septiembre de 1999, artículo XXX.
@@ -73,38 +73,40 @@ DISPOSICIONES SOBRE SUSTITUCIONES 2009/2010
 9.1 Los servidores judiciales que laboran en plazas ordinarias podrán ser sustituidos, por cualquier motivo, siempre y cuando el período de sustitución sea igual o mayor a siete días hábiles, y el Jefe del despacho considere necesaria tal medida.
 9.2 Salvo los casos excepcionales aprobados por el Consejo Superior, solo se realizarán sustituciones si el motivo inicial o bien la combinación de factores en forma continuada (incapacidades, vacaciones, permisos sin goce), sean iguales o mayores a siete días hábiles.
 (*) 9.3. Se autoriza la sustitución en las siguientes plazas hasta por un día:
-• Choferes (siempre que sólo exista una plaza).
-• Auxiliar de Servicios Generales 3 (Guardas).
-• Conductores de Detenidos.
-• Notificadores en aquellos despachos que sólo tienen una plaza de esta clase.
-• Conserje del Departamento de Patología en labores propias del proceso de autopsias.
-• Oficiales de Localización en aquellas oficinas que sólo cuentan con una plaza de este tipo.
-• Fiscales, Fiscales Auxiliares y Defensores Públicos; en despachos con una sola plaza.
-• Juez; en las oficinas unipersonales, cuando no sea posible asignar las funciones del despacho a otro de igual jurisdicción territorial.
-• Todos los puestos de los Juzgados; Fiscalía y Defensa Pública de Turno Extraordinario, de los Tribunales de Flagrancia, Juzgados Contravencionales de Flagrancia y Centro Judicial de Intervención de las Comunicaciones.
-• Técnico Criminalístico 2 de las Delegaciones Regionales del Organismo de Investigación Judicial, que cuenten con una sola plaza de esta clase.
-• Auxiliares de Servicios Informáticos en las oficinas de todo el país, que cuenten con una sola plaza de esta clase.
-• Auxiliares judiciales del Ministerio Público que cuenten con una plaza de este tipo.
-• Plazas de secretarios (as) de las Oficinas de la Defensa Pública, donde únicamente cuentan con un servidor en el personal de apoyo.
-• Los Inspectores Generales Judiciales.
-• Servidores de Oficina de Recepción de Denuncias.
-• Servidores de Oficinas de Recepción de Documentos.
-• Auxiliares de enfermería (siempre que sólo exista una plaza).
-• Encargados de bodega y archivo (siempre que sólo exista una plaza).
-• Encargados de grupo de celdas del Segundo Circuito Judicial de San José.
-• Técnicos en Rayos X (siempre que sólo exista una plaza).
-• Técnicos Disectores.
-• Recepcionistas de morgue.
-• Radio Operadores del Organismo de Investigación Judicial.
-• Encargados de Unidad del Organismo de Investigación Judicial.
-• Los administradores de bases de datos destacados en los diversos circuitos judiciales.
-• Operador del Equipo de Cómputo del Departamento de Tecnología de la Información.
-• Auxiliares de Servicios Generales 2 en Delegaciones y Subdelegaciones Regionales del Organismo de Investigación Judicial que cuentan con sólo una plaza y deban realizar el aseo de las celdas.
-• En jefaturas únicas (oficina, departamento, sección, unidad).
-• En despachos jurisdiccionales donde el personal subalterno se conforma con sólo dos personas. Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.
-• Plaza de Recepción de Indicios del Departamento de Ciencias Forenses.
-• Auxiliar Administrativo 1 de la Subdelegación Regional del Organismo de Investigación Judicial de Garabito (siempre que sea una plaza única).”
-(*)(Así reformado el punto anterior en sesión N° 28 del 23 de marzo de 2010, artículo LVII, y publicada en el Boletín Judicial N° 115 del 15 de junio de 2010, mediante aviso N° 008 del 6 de abril de 2010)
+§ Choferes (siempre que sólo exista una plaza).
+§ Auxiliar de Servicios Generales 3 (Guardas).
+§ Conductores de Detenidos.
+§ Notificadores en aquellos despachos que sólo tienen una plaza de esta clase.
+§ Conserje del Departamento de Patología en labores propias del proceso de autopsias.
+§ Oficiales de Localización en aquellas oficinas que sólo cuentan con una plaza de este tipo.
+§ Fiscales, Fiscales Auxiliares y Defensores Públicos; en despachos con una sola plaza.
+§ Juez; en las oficinas unipersonales, cuando no sea posible asignar las funciones del despacho a otro de igual jurisdicción territorial.
+§ Todos los puestos de los Juzgados; Fiscalía y Defensa Pública de Turno Extraordinario, de los Tribunales de Flagrancia, Juzgados Contravencionales de Flagrancia y Centro Judicial de Intervención de las Comunicaciones.
+§ Técnico Criminalístico 2 de las Delegaciones Regionales del Organismo de Investigación Judicial, que cuenten con una sola plaza de esta clase.
+§ Auxiliares de Servicios Informáticos en las oficinas de todo el país, que cuenten con una sola plaza de esta clase.
+§ Auxiliares judiciales del Ministerio Público que cuenten con una plaza de este tipo.
+§ Plazas de secretarios (as) de las Oficinas de la Defensa Pública, donde únicamente cuentan con un servidor en el personal de apoyo.
+§ Los Inspectores Generales Judiciales.
+§ Servidores de Oficina de Recepción de Denuncias.
+§ Servidores de Oficinas de Recepción de Documentos.
+§ Auxiliares de enfermería (siempre que sólo exista una plaza).
+§ Encargados de bodega y archivo (siempre que sólo exista una plaza).
+§ Encargados de grupo de celdas del Segundo Circuito Judicial de San José.
+§ Técnicos en Rayos X (siempre que sólo exista una plaza).
+§ Técnicos Disectores.
+§ Recepcionistas de morgue.
+§ Radio Operadores del Organismo de Investigación Judicial.
+§ Encargados de Unidad del Organismo de Investigación Judicial.
+§ Los administradores de bases de datos destacados en los diversos circuitos judiciales.
+§ Operador del Equipo de Cómputo del Departamento de Tecnología de la Información.
+§ Auxiliares de Servicios Generales 2 en Delegaciones y Subdelegaciones Regionales del Organismo de Investigación Judicial que cuentan con sólo una plaza y deban realizar el aseo de las celdas.
+§ En jefaturas únicas (oficina, departamento, sección, unidad).
+§ En despachos jurisdiccionales donde el personal subalterno se conforma con sólo dos personas. Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita. (Modificado por el Consejo Superior en sesión Nº 02-10 del 7 de enero de 2010, artículo IV, comunicado mediante Aviso Nº 1-2010).
+§ Jueces que integran tribunales en materia penal (Agregado por el Consejo Superior en sesión Nº 05-10 del 19 de enero de 2010, artículo LXXV).
+§ Auxiliar Administrativo 1 de la Subdelegación Regional del Organismo de Investigación Judicial de Garabito (siempre que sea una plaza única). (Agregado por el Consejo Superior en sesión N° 28-10, del 23 de marzo del 2010, artículo LVII, comunicado mediante el Aviso Nº 8-2010).
+§ Secretarias de Magistrados y Magistradas (Agregado por el Consejo Superior en sesión Nº 106-10 del 24 de noviembre de 2010, artículo XXII, comunicado mediante Aviso Nº 13-2010)
+§ Asistentes de Sala
+(*)(Así reformado el punto anterior mediante aviso N° 19-2010 del 30 de agosto de 2010)
 9.4 Los Jefes de Despacho y Oficina deberán incluir en las proposiciones de nombramiento el período de descanso semanal, cuando el motivo de sustitución así lo permita.
 10 Otras disposiciones sobre sustituciones
 (*)10.1 El Consejo Superior en sesión N° 38-06 celebrada el 30 de mayo de 2006, artículo XXX, acordó: “Limitar las cadenas de sustituciones provocadas en permisos con goce de salario otorgados con base en el Art. 44 de la Ley Orgánica del Poder Judicial, de la siguiente forma:

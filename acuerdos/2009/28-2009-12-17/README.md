@@ -18,3 +18,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2009-2010 y Lineamientos genera
 | 4 | 2010-04-06 | Acuerdo 7 (2010-04-06) |
 | 5 | 2010-04-06 | Acuerdo 8 (2010-04-06) |
 | 6 | 2010-06-15 | Acuerdo 13 (2010-06-15) |
+| 7 | 2010-08-30 | Acuerdo 19 (2010-08-30) |
