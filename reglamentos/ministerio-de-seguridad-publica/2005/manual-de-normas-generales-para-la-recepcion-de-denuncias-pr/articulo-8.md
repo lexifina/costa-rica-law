@@ -1,3 +1,8 @@
-8º—Desestimación y archivo de la denuncia. Se desestimará y archivará cualquier denuncia cuando carezca de fundamento. También, podrá desestimarse en cualquier momento la denuncia, incluso desde su presentación, cuando se considere que existen motivos suficientes, cuando no existan elementos para iniciar una investigación, cuando se trate de la simple reiteración o reproducción de una gestión anterior igual o similar rechazada, siempre que no haya nuevas evidencias u otros motivos para variar de criterio o razones de interés público que justi.que reconsiderar la cuestión. Para lo anterior, se dará parte al denunciante por cinco días para que se mani.este y aporte, si a bien lo tiene, elementos que sustenten su denuncia.
-La desestimación se hará mediante resolución debidamente motivada, en la que se dispondrá su archivo y se comunicará al denunciante.
-La desestimación no perjudica la facultad del denunciante, de presentar la misma denuncia ante otra instancia competente, siempre y cuando aporte nuevos elementos que sustenten su denuncia.
+8º—Del curso de la denuncia:
+7.1) Se dará curso a las siguientes denuncias:
+7.1.1. Las escritas u orales firmadas por el denunciante.
+7.1.2. Las escritas u orales anónimas, si a criterio de la dependencia receptora contienen elementos que permitan la clara identificación de los hechos acontecidos y de los presuntos responsables.
+7.1.3. Las escritas anónimas que sean trasladadas a las dependencias receptoras por el Ministro de Seguridad Pública, por la Contraloría General de la República, y demás instancias de control debidamente acreditadas.
+En caso de que el hecho u omisión denunciada haya sido objeto de análisis en anteriores estudios o investigaciones realizadas por los órganos de control o por aquellos encargados de recibir denuncias, se revisará si existen nuevos elementos que ameriten otro análisis, de lo contrario no se realizará nuevo estudio, salvo que la dependencia que conozca del asunto lo estime necesario para mayor claridad del caso.
+En todo caso en que se resuelva dar curso a la denuncia, la dependencia tramitadora deberá informar al denunciante al respecto.
+(Así corrida su numeración mediante acuerdo N°430-2010 del 30 de agosto de 2010, que lo traspasó del antiguo aparte 7 al 8 actual)

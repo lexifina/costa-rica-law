@@ -1,4 +1,5 @@
-CAPÍTULO IV
-Disposiciones finales
-12.—Etapa de seguimiento de la Auditoría Interna. La etapa de seguimiento consistirá en la ejecución de todas aquellas acciones de la Auditoría Interna, que tienden a veri.car el cumplimiento de las recomendaciones emitidas por parte de la misma para cada caso en concreto.
-En los casos de denuncia trasladadas por el Jerarca de esta Cartera, así como de la Contraloría General de la República, Defensoría de los Habitantes, instancias judiciales y otras dependencias del Estado, se les informará oportunamente de su avance y estado de la investigación, en los casos que así se requiera o lo soliciten expresamente.
+12.—Remisión y recepción del informe. Estudiado el informe, el Departamento Disciplinario Legal ordenará la instrucción o el archivo del asunto, según corresponda.
+En el caso de la Auditoría Interna, el informe deberá ser remitido al Ministro con las respectivas recomendaciones.
+Si del informe se desprende la posible existencia de un hecho delictivo, el asunto también deberá remitirse al Ministerio Público para lo de su competencia.
+La Auditoría Interna remitirá al Ministro o a las instancias correspondientes, los informes, documentos de asesoría y demás productos que se generen durante la investigación, guardando la con.dencialidad del caso. Únicamente se remitirá copia de estos productos al denunciante cuando él mismo haya presentado y .rmado la denuncia, siempre que los resultados del estudio no involucren procesos administrativos o judiciales para determinar eventuales responsabilidades.
+(Así corrida su numeración mediante acuerdo N°430-2010 del 30 de agosto de 2010, que lo traspasó del antiguo aparte 10 al 12 actual)

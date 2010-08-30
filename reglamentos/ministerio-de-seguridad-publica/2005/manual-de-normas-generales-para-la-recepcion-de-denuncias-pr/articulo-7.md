@@ -1,7 +1,9 @@
-7º—Del curso de la denuncia:
-7.1) Se dará curso a las siguientes denuncias:
-7.1.1. Las escritas u orales firmadas por el denunciante.
-7.1.2. Las escritas u orales anónimas, si a criterio de la dependencia receptora contienen elementos que permitan la clara identificación de los hechos acontecidos y de los presuntos responsables.
-7.1.3. Las escritas anónimas que sean trasladadas a las dependencias receptoras por el Ministro de Seguridad Pública, por la Contraloría General de la República, y demás instancias de control debidamente acreditadas.
-En caso de que el hecho u omisión denunciada haya sido objeto de análisis en anteriores estudios o investigaciones realizadas por los órganos de control o por aquellos encargados de recibir denuncias, se revisará si existen nuevos elementos que ameriten otro análisis, de lo contrario no se realizará nuevo estudio, salvo que la dependencia que conozca del asunto lo estime necesario para mayor claridad del caso.
-En todo caso en que se resuelva dar curso a la denuncia, la dependencia tramitadora deberá informar al denunciante al respecto.
+CAPÍTULO II
+De la admisibilidad, tramitación, desestimación
+y archivo de la denuncia
+7º—Admisibilidad de la denuncia. La oficina que reciba la denuncia, analizará su contenido y determinará si procede su admisión para investigación.
+Deberá determinar si se trata de una actuación material o de una omisión, el régimen al que pertenece el servidor (policial o administrativo), la gravedad y relevancia de los hechos denunciados y cualquier otro aspecto de importancia que se desprenda de la denuncia. Los encargados de las oficinas receptoras de denuncias deberán determinar de acuerdo con su criterio profesional, las acciones a seguir y la prioridad de su atención. Para lo anterior, la Auditoría Interna deberá tomar en cuenta, además, los aspectos contenidos en su Plan Anual de Labores.
+Si la denuncia es presentada ante la Auditoría Interna y versa sobre hechos que por su naturaleza y materia resultan ajenos a su competencia, será trasladada al Departamento Disciplinario Legal, para que determine sobre su admisibilidad y proceda de conformidad.
+Si la denuncia versa sobre una materia ajena a la competencia de la dependencia receptora, de inmediato se deberá trasladar el expediente a la oficina competente para que determine sobre su admisibilidad y proceda como corresponde. El traslado del expediente se hará en sobre cerrado en resguardo de la confidencialidad de los datos. En la parte externa del sobre deberá consignarse la leyenda que diga "CONFIDENCIAL".
+Admitida la denuncia se procederá a darle el curso respectivo, y se informará al denunciante de esa circunstancia en el domicilio o dirección que señale para ese efecto.
+(Así corrida su numeración mediante acuerdo N°430-2010 del 30 de agosto de 2010, que lo traspasó del antiguo aparte 6 al 7 actual)

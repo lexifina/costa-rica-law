@@ -14,3 +14,4 @@ Manual de normas generales para la recepción de denuncias presentadas contra lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-25 | la propia norma |
+| 2 | 2010-08-30 | Acuerdo 430 (2010-08-30) |

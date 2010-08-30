@@ -1,4 +1,7 @@
-10.—Remisión y recepción del informe. Estudiado el informe, el Departamento Disciplinario Legal ordenará la instrucción o el archivo del asunto, según corresponda.
-En el caso de la Auditoría Interna, el informe deberá ser remitido al Ministro con las respectivas recomendaciones.
-Si del informe se desprende la posible existencia de un hecho delictivo, el asunto también deberá remitirse al Ministerio Público para lo de su competencia.
-La Auditoría Interna remitirá al Ministro o a las instancias correspondientes, los informes, documentos de asesoría y demás productos que se generen durante la investigación, guardando la con.dencialidad del caso. Únicamente se remitirá copia de estos productos al denunciante cuando él mismo haya presentado y .rmado la denuncia, siempre que los resultados del estudio no involucren procesos administrativos o judiciales para determinar eventuales responsabilidades.
+10.—Rechazo de denuncias. La oficina que reciba la denuncia rechazará en cualquier momento, incluso desde su presentación y mediante resolución motivada:
+a) Las denuncias que no sean de su competencia, en cuyo caso deberá canalizarlas a las instancias competentes de conformidad con la Ley de protección al ciudadano del exceso de requisitos y trámites administrativos (Ley N° 8220 del 4 del marzo del 2002).
+b) Las denuncias que sean manifiestamente improcedentes o infundadas.
+c) Las denuncias reiterativas que contengan aspectos que hayan sido atendidos, en cuyo caso se comunicará al interesado lo ya resuelto.
+d) Las denuncias que se refieran únicamente a intereses particulares del ciudadano, con relación a conductas u omisiones de la Administración que les resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente.
+e) Las gestiones que bajo el formato de denuncia, sean presentadas con la única finalidad de ejercer la defensa personal sobre situaciones cuya discusión corresponda a otras sedes, ya sean administrativas o judiciales.
+(Así adicionado mediante acuerdo N° 430-2010 del 30 de agosto de 2010)
