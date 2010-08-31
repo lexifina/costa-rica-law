@@ -14,3 +14,4 @@ Reglamento Institucional para la Administración de Pasajes Aéreos Nacionales e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-06 | la propia norma |
+| 2 | 2010-08-31 | Reglamento 5655 (2010-08-31) |
