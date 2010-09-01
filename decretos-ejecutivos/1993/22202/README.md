@@ -15,3 +15,4 @@ Reforma Reserva Indígena Guaymí de Osa
 | --- | --- | --- |
 | 1 | 1993-06-07 | la propia norma |
 | 2 | 2001-10-26 | Decreto Ejecutivo 29957 (2001-10-26) |
+| 3 | 2010-09-01 | SINALEVI (sin norma nombrada) |
