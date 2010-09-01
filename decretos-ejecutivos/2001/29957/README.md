@@ -14,3 +14,4 @@ Reforma Reserva Indígena Guaymí de Osa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-16 | la propia norma |
+| 2 | 2010-09-01 | SINALEVI (sin norma nombrada) |

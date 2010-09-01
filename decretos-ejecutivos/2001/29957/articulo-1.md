@@ -1,4 +1,6 @@
+(Anulada)
 Nº 29957
+(Anulado mediante resolución de la Sala Constitucional N° 14772-10 del 01 de setiembre de 2010. Pos u parte dicha sentencia indica: “Se dimensionan los efectos en el sentido de que la inconstitucionalidad declarada no afecta las prácticas agrícolas que actualmente se realizan al amparo del decreto ejecutivo impugnado, pero tendrán una vigencia de un año a partir del momento en que se notifica la presente sentencia, una vez vencido el plazo dado deberá cesar dicha actividad en su totalidad.”)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA Y SEGURIDAD PÚBLICA
 Con fundamento en los incisos 3) y 18) del artículo 140 de la Constitución Política y de conformidad con la Ley Nº 5251 del 11 de julio de 1973 y sus reformas, Ley Indígena Nº 6172 del 29 de noviembre de 1977 y Ley Nº 7316 del 12 de octubre de 1992, del Convenio Nº 169 de la OIT, y
