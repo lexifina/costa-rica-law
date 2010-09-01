@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LOS CHILES
+El Concejo Municipal de Los Chiles, mediante acta de la sesión ordinaria Nº 271, celebrada el día 13 de agosto del 2010, acuerda: A efectos del cumplimiento de la Ley Nº 8818, que autoriza a las municipalidades a condonar los intereses de las deudas atrasadas, publicada en La Gaceta Nº 112 del 10 de junio del 2010, con vigencia a partir del 10 de agosto del presente año, realizar la aplicación de la misma a partir del día 1º de setiembre y hasta el día 23 de diciembre, ambos del presente año.
