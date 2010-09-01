@@ -16,3 +16,4 @@ Agrega a la Reserva Indígena Guaymí de Conteburica la Reserva Indígena Guaym�
 | 1 | 1988-10-18 | la propia norma |
 | 2 | 1993-04-01 | Decreto Ejecutivo 22202 (1993-04-01) |
 | 3 | 2001-10-26 | Decreto Ejecutivo 29957 (2001-10-26) |
+| 4 | 2010-09-01 | SINALEVI (sin norma nombrada) |

@@ -1,39 +1,22 @@
-Artículo 2°—La Reserva Indígena Guaymí de Osa, se localiza en las hojas topográficas del Instituto Geográfico Nacional, escala 1:50.000, Llorona 3441 I Y Golfo Dulce 3541 IV. La Reserva Indígena Guaymí de Osa está delimitada por los puntos de las coordenadas siguientes:
-Parte del punto de coordenadas N 285 975 E 519 640, punto de intersección en el mapa, de la quebrada, dando con el río Rincón. Continúa el límite de la reserva aguas arriba por el río Rincón, hasta su confluencia con el río Pavón en coordenadas N 284 380 E 518 440. De este punto se sigue aguas arriba por el río Pavón, hasta su naciente en el mapa en coordenadas N 284 600 E 510 500. Continúa el lindero por una naciente del río Pavón, dibujada por curvas de nivel en el mapa, que toma rumbo suroeste, hasta el punto de coordenadas N 284 050 E 509 825. De ahí se sigue por los puntos de coordenadas siguientes:
-N 284 320 | E 509 625 | (Cerro, 390 m)
-N 284 350 | E 509 500 |
-N 284 550 | E 509 375 |
-N 284 850 | E 509 300 |
-N 285 150 | E 509 120 |
-N 285 225 | E 509 050 |
-N 285 475 | E 508 875 |
-Este último punto interseca el río Corcovado, por el cual se sigue aguas arriba hasta el punto de coordenadas N 286 710 E 509270.
-De ahí se continúa con una recta al punto de coordenadas N 286 925 E 508 710 (Cerro 505) para seguir en parte por la fila divisoria de aguas entre el río Corcovado y la quebrada Vaquedano, pasando por los puntos de coordenadas:
-N 287 575 | E 508 695 |
-N 287 650 | E 508 450 |
-N 287 725 | E 508 400 |
-N 287 800 | E 508 300 | (Cerro, 590 m)
-N 287 900 | E 508 250 |
-N 288 120 | E 508 225 |
-N 288 275 | E 508 000 |
-N 288 640 | E 507 725 |
-N 288 740 | E 507 785 | (Cerro, 599 m)
-N 289 000 | E 507 610 |
-N 289 225 | E 507 650 | (Hito Aguja, 617 m, Cerro Brujo)
-N 289 600 | E 507 180 |
-Este último punto interseca la naciente en el mapa, del río Drake continuando el lindero de la reserva por este río aguas abajo, hasta el punto de coordenadas N 291 000 E 507 650. Punto donde confluye una quebrada (definida en el mapa por curvas de nivel) sobre el río Drake.
-El límite sigue con una recta al punto de coordenadas N 290 775 E 509 020 (Cerro, 621 m). Punto ubicado en parte de la fila divisoria de aguas de los ríos Drake y Riyito.
-A partir de ahí, el lindero pasa por los puntos de coordenadas:
-N 290 000 | E 509 000 |
-N 289 850 | E 509 398 | (Cerro, 679 m)
-N 289 747 | E 510 250 |
-N 289 625 | E 510 425 |
-N 289 580 | E 510 550 | (Cerro, 630 m)
-De este punto, una recta hasta la naciente de una pequeña quebrada dibujada en el mapa por curva de nivel, en coordenadas N 289600 E 510 875.
-De allí, se sigue aguas ab~o por esta quebrada, hasta su desembocadura en el río Riyito (Nuchi), en coordenadas N 290 125 E 512 225. Se continúa aguas abajo por el río Riyito, hasta al punto de coordenadas N 288 150 E 517 198. De este último punto, la reserva indígena continúa en su linero por las coordenadas:
-N 287 375 | E 517 050
-N 287300 | E 517 650
-N 287398 | E 517 850
-N 287150 | E 518 247
-Este último punto interseca una quebrada (§in nombre en el mapa) conocida como quebrada Agua Sucia (Nudebrare), en el terreno. Se sigue aguas abajo por esta quebrada hasta el punto de coordenadas N 287 646 E 518 985. Se continúa con el límite pasando por los puntos de coordenadas N 287 050 E 519 075, N 286 825 E 519 445. De este punto se sigue hasta el punto de coordenadas N 285 975 E 519 640. Punto inicial de la presente descripción.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 29957 del 26 de octubre del 2001. Asimismo mediante el artículo 3° se establece que queda vigente el artículo 3° del decreto ejecutivo N° 22202 el cual indica que la Reserva Indígena Guaymí de Osa constituye una zona de amortiguamiento al Parque Nacional Corcovado y es una zona de vocación forestal).
+Artículo 2°—La Reserva Indígena Guaymí de Osa, se localiza en las hojas topográficas del Instituto Geográfico Nacional, escala 1:50.000, Llorona 3441-1 y Golfo Dulce 3541 IV. La Reserva Indígena Guaymí de Osa está delimitada por los puntos cuyas coordenadas son:
+Partiendo del punto de coordenadas 284-400 N 518-500 E, ubicado en la confluencia de los ríos Pavón y Rincón, se sigue aguas arriba el río Pavón (que es la colindancia con el Parque Nacional Corcovado), hasta su confluencia con la quebrada Vaquedano, en coordenadas 283-660 N - 517 - 225 E.
+Se continúa aguas arriba la quebrada Vaquedano (siempre en colindancia con el Parque Nacional Corcovado), hasta un punto cerca de su naciente, en coordenadas 289 -.400 N - 508 - 650 E.
+De allí una recta hasta el punto de coordenadas 289-450 N-507 - 925 E (Cerro Brujo), donde termina la colindancia con el Parque Nacional Corcovado.
+De este punto, se continúa por una fila divisoria de aguas pasando por los puntos de coordenadas:
+289 600 N | 507 980 E |
+289 7I0 N | 508 350 E |
+289 900 N | 508 375 E |
+290 000 N | 509 000 E |
+289 850 N | 509 375 E | (cota 679 m)
+289 580 N | 510 550 E | (cota 630 m)
+De este punto, una recta hasta la naciente de una pequeña quebrada (no dibujada en el mapa, pero definida por las curvas de nivel), en coordenadas 289 600 N -510 875 E.
+De allí se sigue aguas abajo por esta quebrada hasta su desembocadura en el río Riyito (Nuchi), en coordenadas 290 125 N - 512 225 E.
+Se continúa aguas bajo por el río Riyito hasta la confluencia de una pequeña quebrada, en coordenadas 287 850 N - 515 000 E. Partiendo de este punto, se sigue aguas arriba de esta quebrada hasta su naciente en el mapa, en coordenadas 286 450 N-514 450 E.
+De allí una recta hasta el punto de coordenadas 286 - 525 N - 514 750 E (Cerro, cota 370 m). De allí, una recta hasta la naciente en el mapa, de la quebrada Sucia (Nudebrare) (sin nombre en el mapa), en coordenadas 286 150 N - 514 750 E.
+Se continúa aguas abajo por la quebrada Sucia hasta la desembocadura de un pequeño afluente (definido en el mapa por curvas de nivel), en coordenadas 286 775 N-517 150 E.
+De este punto se sigue aguas arriba de la pequeña quebrada hasta el punto de confluencia de los dos brazos que la forman, en coordenadas 286 125 N 516 950 E.
+De allí se sigue aguas arriba por el brazo este de esta quebradita, hasta el punto de coordenadas 285 - 850 N - 517 325 E.
+De este punto se continúa por los puntos de coordenadas: 285 350 N - 517 725 E 285 025 N-517 740 E.
+De allí, una recta hasta la confluencia de los ríos Pavón y Rincón, punto de partida de la descripción de los límites, en coordenadas 284 400 N518 500 E.
+superficie de la Reserva: 2 757 hectáreas.
+(El presente artículo había sido reformado anteriormente por el artículo 1° del decreto ejecutivo N° 29957 del 26 de octubre de 2001, misma que fue anulada por resolución de la Sala Constitucional N° 14772-10 del 01 de setiembre de 2010, razón por la cual el presente numeral recobra su texto original antes de dicha afectación. El texto que se muestra es la reforma efectuada por el artículo 1° del decreto ejecutivo N° 22202 del 1 de abril de 1993. Asimismo mediante el artículo 2° del decreto N° 22202, se indica que la Reserva Indígena Guaymí de Osa constituye una zona de amortiguamiento al Parque Nacional Corcovado y es una zona de vocación forestal).
