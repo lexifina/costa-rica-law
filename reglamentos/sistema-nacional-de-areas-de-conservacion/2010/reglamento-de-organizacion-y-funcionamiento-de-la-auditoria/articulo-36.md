@@ -1,0 +1,1 @@
+Artículo 36.—Potestades de la Auditoría Interna. El Auditor o Auditora, el Subauditor Interno o Subauditora Internos y el personal de la Unidad, para el desempeño de sus competencias, tendrán las potestades que se establecen en el artículo 33 de la Ley Nº 8292.
