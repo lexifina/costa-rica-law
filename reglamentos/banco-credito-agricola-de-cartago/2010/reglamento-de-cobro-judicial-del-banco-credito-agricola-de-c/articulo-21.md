@@ -1,0 +1,1 @@
+Artículo 21.—Firmeza del remate. Una vez obtenida la firmeza en remate de los bienes que garantizan el crédito objeto del cobro, el abogado queda obligado a informar de inmediato al Banco el resultado, aportando copia del acta correspondiente.
