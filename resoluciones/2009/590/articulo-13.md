@@ -74,6 +74,15 @@ b. En caso de ampliación de la numeración asignada; el solicitante deberá dem
 c. Indicación expresa por parte del solicitante, de que su red y los enlaces de interconexión con otros operadores, cuentan con la señalización que permite la identificación del recurso numérico por parte de otros operadores, proveedores y usuarios al momento de recibir una comunicación.
 d. En todo caso la SUTEL estudiará la documentación aportada para verificar si las condiciones expuestas justifican la asignación de la numeración solicitada.
 e. A criterio de la SUTEL se podrá solicitar ampliación o aclaración de la información aportada, en cuyo caso se suspenderá los plazos establecidos para brindar la admisibilidad de la solicitud.
+f. Ambos operadores interconectados deberán presentar ante la SUTEL el reporte de pruebas de intercambio de tráfico entre redes en el que se evalúo al menos los siguientes aspectos:
+i. Que el sistema de señalización utilizado en el enlace de interconexión permita el reconocimiento y extracción de los dígitos del número de destino y origen de la comunicación.
+ii. Tiempo mínimo tasable en comunicaciones nacionales (3seg) e internacionales (6seg), (artículo 24, Reglamento sobre el Régimen de Protección al Usuario Final de los Servicios de Telecomunicaciones; La Gaceta Nº 72, 15 de abril del 2010).
+iii. Proceso de liquidación de tráfico entre operadores (artículo Nº 37, Reglamento de Acceso e interconexión (Alcance Nº 40, La Gaceta Nº 201, 17 de octubre del 2008).
+- Acceso y tasación a números especiales ICE.
+- Acceso y tasación a números 800 y números 900.
+- Acceso y tasación tráfico bidireccional entre redes.
+- Acceso y tasación tráfico bidireccional internacional.
+(Así adicionado el inciso f) anterior por resolución RCS-412-2009 del 2 de setiembre de 2010)
 4) Realización de pruebas
 a. La realización de pruebas considera los siguientes aspectos:
 b. Realización y recepción de comunicaciones telefónicas, envío y recepción de mensajes de texto y multimedia; a los distintos destinos nacionales, números de prueba, números especiales (4 dígitos), número de emergencia 911, números 800, 900, 905 para todos los operadores y proveedores de servicios de telecomunicaciones disponibles al público en el territorio nacional, a la hora de máximo tráfico de las redes de destino de la comunicación.
