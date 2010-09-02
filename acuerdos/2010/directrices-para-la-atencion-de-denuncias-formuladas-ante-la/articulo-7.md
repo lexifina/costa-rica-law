@@ -1,0 +1,2 @@
+Artículo 7º—De los resultados de la investigación producto de las denuncias.
+La respectiva AI del Grupo ICE informará al Titular Subordinado de la empresa correspondiente del Grupo ICE según corresponda, así como al denunciante, sobre el resultado de la investigación producto de la denuncia. La Administración activa deberá resolver con fundamento en los tiempos regulados en la LGCI, para atender las recomendaciones formuladas.

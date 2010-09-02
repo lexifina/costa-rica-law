@@ -1,0 +1,2 @@
+Artículo 10.—Del seguimiento de los resultados y atención de las denuncias.
+La respectiva AI del Grupo ICE, como componente orgánico del sistema de control interno, de acuerdo con sus procedimientos internos establecidos, dará seguimiento a los resultados producto de las denuncias presentadas ante esta Unidad, para verificar el cumplimiento de las recomendaciones emitidas al respecto, así como de las denuncias que remita a la Administración activa para verificar que las mismas sean atendidas.
