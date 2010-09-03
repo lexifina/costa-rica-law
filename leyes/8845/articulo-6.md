@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Requisitos para suscribir contratos
+Toda persona, física o jurídica, que pretenda suscribir cualquier tipo de contrato con cargo a los recursos del Contrato de préstamo, o con recursos públicos presupuestados como contrapartida de este, deberá demostrar estar al día en sus obligaciones con la Caja Costarricense de Seguro Social y estar inscrita como contribuyente ante la Dirección General de Tributación del Ministerio de Hacienda.
