@@ -1,0 +1,1 @@
+Artículo 8º—El procedimiento administrativo se substanciará de conformidad con lo dispuesto en el Título Segundo de la Ley General de la Administración Pública, con la particularidad de que en caso de que los denunciados sean miembros o dependan jerárquicamente del Concejo Municipal, corresponderá a este órgano colegiado resolver en definitiva.

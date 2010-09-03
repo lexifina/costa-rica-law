@@ -1,0 +1,1 @@
+Artículo 7º—El procedimiento deberá ser llevado a cabo resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa, bajo apercibimiento de que en caso de incumplimiento serán sancionados según la naturaleza y gravedad de la falta.
