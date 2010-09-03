@@ -1,0 +1,1 @@
+Artículo 7º—Normalización de obras, bienes y servicios. El PPCO se encargará de la normalización de la descripción de los códigos de las obras, bienes y servicios que requiera la Institución, con la información proporcionada por las unidades técnicas especializadas y coordinada con las unidades solicitantes, según corresponda.

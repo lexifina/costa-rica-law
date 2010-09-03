@@ -1,0 +1,1 @@
+Artículo 8º—Registro de Proveedores Institucional. El PPCO se encargará de la actualización del Registro de Proveedores. Todo lo relacionado con dicho registro se regirá por lo establecido en el Reglamento de Registro de Proveedores del INA y la LCA y su Reglamento.

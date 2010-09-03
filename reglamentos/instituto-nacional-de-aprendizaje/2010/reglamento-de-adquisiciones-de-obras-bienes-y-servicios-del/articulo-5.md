@@ -1,0 +1,1 @@
+Artículo 5º—Actualización del sistema. La UCI es la responsable del sistema de adquisición de obras, bienes y servicios. Deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de las obras, bienes y servicios que requieran las diversas dependencias institucionales.
