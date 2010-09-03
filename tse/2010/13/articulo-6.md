@@ -1,0 +1,1 @@
+Artículo 6º—Sobre el informe periódico de contribuciones presentado ante el Tribunal Supremo de Elecciones. El tesorero de cada partido político incluirá en el reporte de contribuciones, donaciones o aportes, al que hace referencia el artículo 132 del Código Electoral, un detalle con las contribuciones recibidas mediante este mecanismo de captación de donaciones.

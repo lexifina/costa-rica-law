@@ -1,0 +1,1 @@
+Artículo 7º—Condiciones adicionales. El presente reglamento no exime a los partidos políticos de cumplir con las condiciones particulares que, para efectos de hacer efectiva la aplicación de cargos automáticos, establezcan las entidades bancarias emisoras de tarjetas.
