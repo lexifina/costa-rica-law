@@ -1,0 +1,5 @@
+ARTÍCULO 8.- Expropiaciones
+Los procedimientos de adquisiciones directas de bienes y/o derechos inmuebles y las expropiaciones correspondientes a estos, deberán realizarse en la forma más expedita posible y se considerarán de interés público primordial.
+Para los efectos anteriores, se observarán las disposiciones respectivas de la Ley de expropiaciones, N.º 7495, de 3 de mayo de 1995, publicada en el Alcance N.º 20 de La Gaceta N.º 110, de 8 de junio de 1995, procurando la mayor celeridad.
+En cuanto a la confección de planos y el catastro de los bienes o derechos inmuebles por expropiar, necesarios para el desarrollo de los diversos proyectos que se financiarán total o parcialmente con los recursos de este empréstito, el MOPT y sus consejos u órganos adscritos realizarán las contrataciones necesarias para la obtención de los servicios pertinentes o establecer unidades particulares dentro de su estructura organizativa, a efecto de suplir tales servicios en forma oportuna y expedita.
+La valoración administrativa de los bienes o los derechos inmuebles necesarios la realizará la Dirección General de Tributación.

@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Exención de pago de impuestos
+No estarán sujetos al pago de ninguna clase de impuestos, tasas, contribuciones o derechos, los documentos que se requieran para formalizar el Contrato de préstamo y su Addendum, suscritos entre la República de Costa Rica y la Corporación Andina de Fomento (CAF). Asimismo, la inscripción de estos documentos en los registros correspondientes queda exonerada de todo tipo de pago.
