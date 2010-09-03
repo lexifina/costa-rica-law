@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Procedimientos de contratación administrativa
+Para la adquisición de obras, bienes y servicios se aplicará la legislación vigente en materia de contratación administrativa que rige al Organismo Ejecutor, respetando lo establecido por “La Corporación”, en el Anexo A “Condiciones Generales de Contratación”, específicamente lo establecido en la cláusula 24 sobre Adquisición de bienes y contratación de bienes y servicios.
