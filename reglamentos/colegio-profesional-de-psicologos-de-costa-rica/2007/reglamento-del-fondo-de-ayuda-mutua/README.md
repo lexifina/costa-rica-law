@@ -14,3 +14,4 @@ Reglamento del Fondo de Ayuda Mutua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-22 | la propia norma |
+| 2 | 2010-09-04 | Reglamento 71 (2010-09-04) |

@@ -1,1 +1,1 @@
-Artículo 28.—Cada dos años se realizará un Estudio Actuarial, can el fin de medir la suficiencia de cuota y beneficios brindados. Para tal efecto, se abrirá un concurso público con el fin de escoger la mejor oferta de servicios profesionales en consonancia con la Ley de Contratación Administrativa
+Artículo 28.—Cada tres años se realizará un Estudio Actuarial, con el fin de medir la suficiencia de cuota y beneficios brindados.

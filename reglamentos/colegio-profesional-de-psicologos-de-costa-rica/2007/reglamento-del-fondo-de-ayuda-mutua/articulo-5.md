@@ -1,1 +1,1 @@
-Artículo 5º—Los miembros del Comité del Fondo de Ayuda Mutua, electos por Asamblea General, durarán en sus cargos dos años y podrán ser reelectos hasta por tres períodos consecutivos.
+Artículo 5.—Los miembros del Comité del Fondo de Ayuda Mutua, electos por Asamblea General, durarán en sus cargos dos años y podrán ser reelectos. En la primera sesión anual del Comité, los (as) miembros del mismo, elegirán la Presidencia y la Secretaría de éste, para el respectivo periodo.

@@ -1,5 +1,5 @@
-Artículo 8º—Corresponde a la Secretaría, del Comité del Fondo de Ayuda Mutua:
-a) La elaboración del acta de cada sesión, la cual debe ser foliada
+Artículo 8.—Corresponde a la Secretaría, del Comité del Fondo de Ayuda Mutua:
+a) La elaboración del Acta de cada sesión, la cual debe ser foliada.
 b) El control de asistencia de los miembros a cada sesión.
 c) Llevar un archivo actualizado de los acuerdos.
 d) Tramitar, en conjunto con la Presidencia, la correspondencia respectiva.
