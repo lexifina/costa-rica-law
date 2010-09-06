@@ -42,3 +42,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (Reformado por el artículo 2° y 3° de la ley N° 8841 del 22 de junio de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36080 del 25 de junio de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36087 del 8 de julio de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36158 del 9 de agosto de 2010)
