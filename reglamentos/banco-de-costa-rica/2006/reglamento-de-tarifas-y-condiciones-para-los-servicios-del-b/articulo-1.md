@@ -1,16 +1,21 @@
 REGLAMENTO DE TARIFAS Y CONDICIONES
 PARA LOS SERVICIOS DEL BCR
 NOTA: Este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 25 del 25 de mayo de 2009, y publicado en La Gaceta N° 127 del 2 de julio de 2009, por lo que se reproduce a continuación:
-1. Productos de colocación
-1.1.- Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo.
-Colones y dólares: de 0.25% a un máximo del 3%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, el gerente general, subgerentes y directores comerciales.
+1) Productos de colocación
+(*)1.1- Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo.
+Colones y Dólares: De 0,25 % a un máximo del 3 %. Quedan abiertos los márgenes de negociación para el Comité de Crédito, el Gerente General, Subgerentes y Directores Comerciales.
+Esto aplica para todas las modalidades de créditos directos y créditos abiertos.
 Notas:
-1- Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas al vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
-2- No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a las tarjetas de crédito.
+1- Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas el vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
+En estos casos de créditos abiertos se cobrará cada vez que se realice una operación derivada del contrato de crédito abierto.
+2- No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a las Tarjetas de Crédito.
 3- Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR.
-1.2.- Comisión de manejo de líneas de crédito revolutivas
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
+(*)1.2.- Comisión de manejo de Líneas de Crédito Revolutivas.
+Esta comisión aplica para las líneas de crédito revolutivas y se cobra al formalizar cada giro de forma anualizada.
 Colones: 1.50% anualizado al formalizar
 Dólares: 1.00% anualizado al formalizar
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 1.3.- Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares.
 3% para todos excepto:
 1. Líneas de crédito revolutivas a corto plazo (12 meses)

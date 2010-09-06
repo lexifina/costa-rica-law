@@ -51,21 +51,27 @@ $20.00 *Los empleados deberán pagar el 100%.
 1.5% s/ el total adeudado de cada operación.
 Mínima $20.00
 Máxima $120.00
-2.24.- Venta de cheques de gerencia $10.00.
-(*) 2.25.- Recolección depósitos especiales en cuenta corriente
-1- Para clientes cuyos depósitos son contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM).
-Hasta ¢ 6.000.000,00 cobrar la suma de:
-a) $ 7,00 remeseras propias/recolección.
-b) $ 8,00 remeseras externas/recolección.
-Sobre el exceso se aplicará la siguiente fórmula:
-$ 2,00 por cada $ 3.500,00 o fracción.
-2- Para clientes cuyos depósitos son contabilizados en las tesorerías regionales ubicadas fuera del GAM.
-Hasta ¢ 6.000.000,00 cobrar la suma de:
-a) $ 9,00 remeseras propias/recolección.
-b) $ 10,00 remesas externas/recolección
-Sobre el exceso se aplicará la siguiente fórmula:
-$ 2,00 por cada $ 3.500,00 o fracción
-(*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
+(*)2.24.- Venta de Cheques de Gerencia $25.00.
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
+(*) 2.25.- Recolección depósitos especiales en cuenta corriente.
+1- Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), y planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
+Hasta ¢ 6.000.000.00 cobrar la suma de:
+a) $ 7.00 remeseras propias/recolección.
+Sobre el exceso de los ¢ 6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
+Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
+Este factor corresponde a los $2,00 por cada $3.500,00 adicionales.
+Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
+2- Para clientes cuyos depósitos son recolectados y contabilizados y para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera del (GAM) a los clientes:
+Hasta ¢ 6.000.000.00 cobrar la suma de:
+a) $9,00 remeseras propias/recolección.
+Sobre el exceso de los ¢6.000.000,00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
+Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
+Este factor corresponde a los $ 2.00 por cada $3.500,00 adicionales.
+Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
+[imagen]
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 2.26- Comisión para la recepción de efectivo para instituciones del sector financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios
 Colones Comisión por millón
@@ -117,7 +123,8 @@ c. Si el CDP anulado tenía asignado algún plus de tasa la pierde, pues la emis
 d. El cobro de la comisión se deberá generar mediante proceso manual.
 2.33.- Reposición de títulos, certificados y bonos.
 Reposición certificados de depósito: 0.25% sobre el valor del título con un mínimo de $7.50 y un máximo de $74.50.
-2.34.- Certificación o constancia de operación cancelada $12.00 cada una.
+2.34.- Certificación o constancia de operación cancelada. $5 cada una.
+(así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 2.35.-Traslado de expedientes judiciales a cuenta corriente o ahorros para cobros masivos.
 $1.00 por traspaso.
 2.36.-Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas y entidades financieras y no financieras
@@ -127,11 +134,13 @@ De $0 hasta $3.000.000….... 0.12%
 De $3.001.000 hasta $5.000.000…. 0.09%
 De $5.001.000 hasta $7.000.000…... 0.07%
 De $7.001.000 en adelante…... 0.065%
-2.38- Órdenes de pago (transferencia) a otras oficinas bancarias -colones y dólares
+(*)2.38- Ordenes de Pago (Transf.) a otras oficinas bancarias
+-Colones y Dólares Mínimo $3,00
 Montos % Acumulado
-Hasta $200.00 2.0% $4.00
-Exceso $200.00 a $1.800.00 1.5% $28.00
-De $1.800.00 en adelante 0.5% mínimo $3.00
+Hasta $ 200.00 2.0 % $4,00
+Exceso $200.00 a $1.800.00 1.5 % $27,00
+De $1,801.00 en adelante 0.5 %
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 20)
 2.39.-Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros.
 a. US $ 2.00 con un máximo de 3 fotocopias.
 b. Sobre exceso $ 0.50 por folio.
@@ -144,3 +153,10 @@ Por cada depósito realizado a una cuenta $ 1.00.
 2.43.-Comisión por mantenimiento de saldos mínimos en cuentas corrientes.
 Mantener saldos promedios mensuales, de $50 ó ¢100.000 en las cuentas corrientes, con código de clase 1, que son las cuentas comunes.
 La comisión por mantener un saldo promedio inferior al establecido, sería de $10.
+(*)2.44-Divisas depositadas cuenta corriente/ Ahorros
+Depósito Cta. En dólares 1.5%, mínima $10,00
+Depósito Cta. En colones 1.0%, mínimo $7,00
+(*)(Así adicionado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
+(*)2.45-Cheques devueltos en dólares
+Servicio $12,00 más gastos del corresponsal.
+(*)(Así adicionado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)

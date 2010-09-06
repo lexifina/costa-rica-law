@@ -5,9 +5,10 @@ Dentro de las comisiones de confianza están los Mandatos, los fideicomisos y ot
 6.1.1- Cobro de documentos (pagarés, letras, créditos hipotecarios o similares) en gestión de cobro aunque el Banco tenga en garantía esos documentos
 Tarifa (porcentaje) a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades del mandato.
 Mínimo $50.00 mensual
-6.1.2.-Remesas directas de dinero al o del exterior
--10% sobre el principal - mínimo $25.00 o equivalente
+(*)6.1.2.-Remesas directas de dinero al o del exterior
+10% sobre el principal - mínimo $5,00 o equivalente
 La comisión se negociará si es parte de un servicio integral al cliente
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 6.2.- Custodias
 6.2.1- Custodia física de valores: servicio que se brinda para el depósito, cuidado y conservación de valores físicos.
 De 0 hasta $12.500.00 $5.00 mensual

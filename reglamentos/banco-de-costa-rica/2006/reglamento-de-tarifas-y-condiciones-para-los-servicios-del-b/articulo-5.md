@@ -1,22 +1,15 @@
 5. Servicios Comercio Exterior
-5.1.-Carta de crédito de importación. Apertura 0.45%, mínima $35.00
-Swift apertura $17.00
-Swift modificación $8.00
-Modificaciones $22.00 c/u, si es al valor se aplica la comisión de apertura.
+(*)5.1.-Carta de Crédito de Importación
+Modificaciones $25.00 c/u, si es al valor se aplica la comisión de apertura.
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 (*)5.2.- Cobranzas de importación documentaria (cobranza del exterior)
-Cobranza 0,27% del monto, mínima $ 30,00, máxima $ 80,00
-Devolución $ 30,00
-Porte aéreo $ 5,00
-Traslado 50% de la comisión
-Swift $ 8,00
-Courier De acuerdo con el destino y la tarifa del servicio Courier
-(*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
-(*)5.3.- Cobranza simple (cheques en dólares por cuentacorrentista)
-0,30% mínima $ 7,00, máxima $ 55,00
-Devolución $ 15,00 c/u
-Swift $ 8,00
-Porte aéreo $ 5,00
-(*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
+Cobranza 0.30 % del monto, mínima $30.00, máxima $100.00
+Traslado 50% de la comisión de apertura
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
+(*)5.3.-Cobranza simple (cheques en dólares por cuentacorrentista) 0.30 %
+Mínima $ 25,00
+Máxima $55,00
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 5.4.-Cartas de crédito de exportación
 Confirmación 0.12% por cada mes o fracción. Mínima $45.00
 Modificación $30.00 cada uno
@@ -27,11 +20,10 @@ Aviso traslado $30.00
 Courier según el destino
 Traslado $35.00
 (*)5.5.- Cobranzas al exterior (cobros sobre el exterior)
-Apertura y pago 0,25%, mínima $ 30,00, máxima $80,00
-Swift $ 8,00
-Courier de acuerdo con el destino y tarifa del servicio Courier
-Porte aéreo $ 5,00
-(*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
+Apertura y pago 0.25 %
+Mínima $30,00
+Máxima $100,00
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 (*)5.6.- Cartas de garantía por cuenta corresponsal y Stand By
 Emisión o Confirmación 0,125% por cada mes o fracción, mínima $ 30,00
 Únicamente avisadas $ 50,00
@@ -67,10 +59,12 @@ Swift $8,00
 5.10.- Divisas depositadas cuenta corriente/ ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $7.00
-5.11.- Cheques enviados cobro por cuenta clientes
-Pago en colones 0.75%, mínima $20.00, máxima $80.00
-Pago en dólares 1.5%, mínima $20.00, máxima $80.00
-Swift $8,00
+(*)5.11.-Detención de pago a giros bancarios
+Bicsa Miami / Panamá 1,0 %
+Mínimo $10,00
+Máximo $50,00
+Citibank New York $7,00
+(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 (*)5.12.- Venta Giros
 En dólares $ 12,00
 En otras monedas $ 15,00

@@ -23,10 +23,12 @@ $35.00 anual membresía
 $10.00 cada bolso de cuero
 Nota:
 El costo por reposición de llaves y cambio de llavín será asumido totalmente por el cliente
-9.8.- Servicio por examinar videos BCR
-$19.25 por examinar cada video de seguridad.
+9.8.- Servicio por examinar vídeos BCR
+$25.00 por examinar cada video de seguridad.
 Nota:
 Se cobra esta comisión por cada video revisado en cassette o digital.
+San José, 14 de setiembre del 2010.
+(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
 9.9.- Trámite de licencias y pasaporte $ 5,00
 (Así adicionado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 ASPECTOS GENER ALE S
