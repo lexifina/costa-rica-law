@@ -1,0 +1,1 @@
+Artículo 11.—El Área responsable de la contratación, tendrá un máximo de 30 días naturales para recomendar o desestimar la contratación. En caso de que la recomendación no fuera aprobada, el Área responsable deberá informar por escrito al interesado sobre dicha denegatoria, la cual tendrá los recursos establecidos en la Ley General de la Administración Pública.

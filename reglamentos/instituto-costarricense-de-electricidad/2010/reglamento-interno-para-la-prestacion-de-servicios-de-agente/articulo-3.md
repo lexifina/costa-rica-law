@@ -1,0 +1,2 @@
+Disposiciones generales
+Artículo 3º—Están autorizados para contratar Agentes Recaudadores, el Director de la Unidad Estratégica de Negocios Servicio al Cliente y los Directores Regionales (conocidos en el régimen de Recursos Humanos como Jefes Nivel 1) de la UEN Servicio al Cliente del Sector Electricidad y el Jefe de la División Clientes y el Director de la Dirección Técnica de Facturación y Gestión de los Ingresos del Sector Telecomunicaciones.

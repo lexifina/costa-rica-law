@@ -1,0 +1,1 @@
+Artículo 14.—Esta forma de contratación se encuentra exenta del requisito de refrendo ante el Órgano Contralor, según la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones 8660 y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 26.—El Agente Recaudador no podrá disponer o ceder total o parcialmente los derechos u obligaciones que por este contrato adquiere, salvo que lo realice según lo indicado en el artículo 28 de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones y 187 de su Reglamento.

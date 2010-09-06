@@ -1,0 +1,1 @@
+Artículo 28.—Durante todo el plazo de la ejecución del contrato, será de acatamiento obligatorio para el Agente Recaudador todas y cada una de las disposiciones contenidas en este Reglamento, los Manuales y el contrato suscrito con este Instituto.

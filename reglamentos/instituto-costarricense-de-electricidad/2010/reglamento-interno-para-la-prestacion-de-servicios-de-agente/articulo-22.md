@@ -1,0 +1,1 @@
+Artículo 22.—Le corresponde al Agente Recaudador velar por la seguridad del dinero que recaude y deberá depositarlo conforme lo establecido en los Manuales y en el contrato que suscriba con el ICE, en cualquiera de las cuentas corrientes que el Instituto le indique.

@@ -1,0 +1,1 @@
+Artículo 23.—En caso de extravío o sustracción del monto de la recaudación, el Agente Recaudador deberá reponer la totalidad del monto al Instituto siguiendo los parámetros establecidos en los Manuales.

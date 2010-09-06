@@ -1,0 +1,3 @@
+Comisión por el servicio
+Artículo 29.—El Agente Recaudador devengará una comisión por los servicios brindados según lo establecido en los Manuales y en cada contrato. Del monto a pagar por comisión al recaudador se le deducirá el porcentaje de los impuestos que corresponda, salvo aquellos recaudadores que se encuentren exentos, en cuyo caso deberá aportar los documentos de exoneración que acrediten tal condición. El recaudador deberá acreditar ante el ICE tal condición al menos una vez al año.
+Cualquier aumento a la comisión definida en los Manuales deberá ser aprobada por el Subgerente del Sector que corresponda, la cual deberá estar debidamente justificada con base a referencias de mercado sobre actividades similares y estudios de costo internos.

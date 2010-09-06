@@ -1,0 +1,1 @@
+Artículo 16.—Dada la naturaleza de los contratos de recaudación, el ICE podrá solicitar adicionalmente una garantía colateral que asegure la recuperación de los fondos públicos que el recaudador tendrá bajo su custodia, según lo dispongan los Manuales.

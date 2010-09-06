@@ -1,0 +1,2 @@
+Selección de agentes recaudadores
+Artículo 10.—El ICE establece la participación libre de recaudadores en todo el país, en cualquier momento del año, y su elección depende de los criterios de conveniencia institucional de acuerdo a sus intereses y planes de desarrollo y los requisitos exigidos por este Reglamento, los Manuales, lo cual deberá ser verificado por el Área responsable de la contratación previo a emitir la recomendación.

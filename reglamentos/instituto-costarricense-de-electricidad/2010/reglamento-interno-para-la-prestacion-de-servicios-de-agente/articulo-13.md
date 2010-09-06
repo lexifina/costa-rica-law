@@ -1,0 +1,1 @@
+Artículo 13.—Una vez formalizado y aprobado el contrato, el Administrador del Contrato conformará y custodiará el expediente según lo dispone la Directriz Institucional para el Manejo de Expedientes Administrativos 0150-0703-2008 del 29 de agosto del 2008, emitida por la Gerencia General.

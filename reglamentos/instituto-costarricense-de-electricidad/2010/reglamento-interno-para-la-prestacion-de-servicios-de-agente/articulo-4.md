@@ -1,0 +1,1 @@
+Artículo 4º—La contratación de Agentes Recaudadores Externos permite a la Institución ofrecer a sus clientes y abonados la facilidad para el pago de los servicios públicos de ambos sectores, por medio de contratos que se suscriben con estos Agentes.

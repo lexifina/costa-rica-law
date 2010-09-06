@@ -1,0 +1,1 @@
+Artículo 5º—La contratación de nuevos recaudadores por parte del ICE será facultad exclusiva de este Instituto tomando en consideración los criterios de conveniencia institucional de acuerdo a sus intereses y planes de desarrollo, para lo cual deberán cumplir con los requisitos exigidos por este Reglamento y el Manual de cada Sector.

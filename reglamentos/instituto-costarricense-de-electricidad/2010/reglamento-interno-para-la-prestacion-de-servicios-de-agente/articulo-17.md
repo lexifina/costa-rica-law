@@ -1,0 +1,1 @@
+Artículo 17.—La forma de rendir las garantías se rige por lo dispuesto en los artículos 38 y 40 del Reglamento al Título II de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones.
