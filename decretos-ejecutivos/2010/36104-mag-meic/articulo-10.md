@@ -7,3 +7,5 @@ ii. Que sus actividades agropecuarias fueron afectadas por un desastre natural o
 iii. Que en la actualidad tienen en riesgo su patrimonio, a causa de las deudas originalmente contraídas.
 La firma de los documentos correspondientes a la solicitud y a la declaración jurada, deberá realizarse ante el funcionario competente del CNP, quien dará fe de que la firma fue puesta en su presencia. En caso que tal entrega la realice una tercera persona los documentos deberán autenticarse por un abogado.
 d) Certificación de ingresos brutos anuales emitida por un CPA, según el Formulario 6 (Anexo 11).
+Todas las personas que soliciten la condonación de sus deudas de conformidad con lo dispuesto en este Reglamento deberán presentar, en el plazo establecido por la Ley 8835, toda la documentación solicitada en este Reglamento de forma completa, todo bajo su absoluta responsabilidad en caso de que transcurra el plazo para la presentación de las solicitudes.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36173 del 6 de setiembre de 2010)

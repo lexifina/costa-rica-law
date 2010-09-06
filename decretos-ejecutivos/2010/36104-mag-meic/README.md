@@ -14,3 +14,4 @@ Reglamenta a la Ley Apoyo y Fortalecimiento del Sector Agrícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-05 | la propia norma |
+| 2 | 2010-09-06 | Decreto Ejecutivo 36173 (2010-09-06) |
