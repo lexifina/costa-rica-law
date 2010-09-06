@@ -17,3 +17,4 @@ Reglamento para la Explotación de Servicios Especiales de Transporte Automotor 
 | 2 | 1990-12-14 | Decreto Ejecutivo 20141 (1990-12-14) |
 | 3 | 2001-03-22 | Decreto Ejecutivo 29584 (2001-03-22) |
 | 4 | 2004-05-05 | SINALEVI (sin norma nombrada) |
+| 5 | 2010-09-06 | Decreto Ejecutivo 36223 (2010-09-06) |

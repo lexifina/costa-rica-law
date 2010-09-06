@@ -1,5 +1,3 @@
-Artículo 5º.—Para la explotación de los servicios especiales regulados en el presente reglamento, deberán utilizarse únicamente los vehículos autorizados por el Consejo de Transporte Público, los cuales deberán tener el rango de antigüedad máximo permitido que sea establecido, según la normativa que para tales efectos emita el Consejo de Transporte Público.
-Los vehículos autorizados para la transportación de servicios especiales de estudiantes de educación primaria y secundaria, *(así como de transportación de turismo), deberán tener una capacidad mínima de 15 (quince) asientos.
+Artículo 5º.—(Derogado por el artículo 18 del Reglamento para la Regulación y Explotación de Servicios de Transporte Terrestre de Turismo, aprobado mediante decreto ejecutivo N° 36223 del 6 de setiembre de 2010)
 (*) Por resolución de la Sala Constitucional N° 2236 de las 14:38 hrs. del 2 de marzo del 2005, se anula la frase de este párrafo segundo que dice: "...así como de transportación de turismo..."
 (Por resolución de la Sala Constitucional N° 846 de las 11:28 hrs. del 28 de enero del 2005, se anuló el párrafo tercero de éste articulo).
-(Así reformado por el artículo 1° del decreto ejecutivo N° 29584 del 22 de marzo de 2001)
