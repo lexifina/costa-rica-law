@@ -19,6 +19,7 @@ O. Emitir un informe mensual sobre su gestión ante el Macroproceso de Desarroll
 (Así reformado el inciso anterior en sesión N° 3779 del 19 de abril de 2010)
 P. Reportar de forma inmediata y por escrito al INFOCOOP y al Contralor o al Auditor Interno sobre cualquier hecho que ponga en riesgo los intereses institucionales.
 Q. Avisar por escrito a la Junta Directiva del INFOCOOP y al Consejo de Administración del Organismo Cooperativo, con un mes de anticipación, en caso de que decida renunciar a la representación.
-R. Para el representante con perfil técnico se incorporan aquellos deberes que indique el contrato entre este representante y el Organismo Cooperativo.
+R. Para el representante con perfil técnico se incorporan aquellos deberes que indique el contrato entre este representante y el INFOCOOP.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 3794 del 6 de setiembre de 2010)
 S. Para el representante de la Junta Directiva que haya sido contratado bajo la modalidad de servicios profesionales, se incorporan aquellos deberes que indique el contrato.
 ( Así reformado mediante sesión N° 3727 del 8 de diciembre del 2008 )
