@@ -747,7 +747,8 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 5201 - 5203 Cambio a esta partida desde cualquier otro capítulo.
 5204 - 5206 Cambio a esta partida desde cualquier otra partida.
 5207 Cambio a esta partida desde cualquier otra partida, excepto de la partida 5205 a 5206.
-5208 - 5212 Esta norma se establecerá en un protocolo a este Tratado.
+5208 - 5212 Un cambio a la partida 5208 a 5212 desde cualquier otra partida
+(Así reformado el código arancelario anterior por la decisión N° 16/2010 del 10 de agosto de 2010, emitida por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana Centroamérica y puesta en vigencia por el decreto ejecutivo N° 36189 del 06 de setiembre de 2010)
 CAPÍTULO 53: LAS DEMÁS FIBRAS TEXTILES VEGETALES; HILADOS DE PAPEL Y TEJIDOS DE HILADOS DE PAPEL
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
@@ -802,17 +803,21 @@ Nota de Capítulo:
 61-1 Esta nota se establecerá en un protocolo a este Tratado.
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-6101 - 6117 Esta norma se establecerá en un protocolo a este Tratado.
+6101 - 6117 Un cambio a la partida 6101 a 6117 desde cualquier otra pacida (sic), excepto del capítulo 60.
+(Así reformado el código arancelario anterior por la decisión N° 16/2010 del 10 de agosto de 2010, emitida por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana Centroamérica y puesta en vigencia por el decreto ejecutivo N° 36189 del 06 de setiembre de 2010)
 CAPÍTULO 62: PRENDAS Y COMPLEMENTOS (ACCESORIOS) DE VESTIR, EXCEPTO LOS DE PUNTO
 Nota de Capítulo:
 62-1 Esta nota se establecerá en un protocolo a este Tratado.
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-6201 - 6217 Esta norma se establecerá en un protocolo a este Tratado.
+6201 - 6217 Un cambio a la partida 6201 a 6217 desde cualquier otra partida.
+(Así reformado el código arancelario anterior por la decisión N° 16/2010 del 10 de agosto de 2010, emitida por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana Centroamérica y puesta en vigencia por el decreto ejecutivo N° 36189 del 06 de setiembre de 2010)
 CAPÍTULO 63: LOS DEMÁS ARTÍCULOS TEXTILES CONFECCIONADOS; JUEGOS, PRENDERÍA Y TRAPOS
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-6301 - 6310 Esta norma se establecerá en un protocolo a este Tratado.
+6301.10 - 6305.32 Un cambio a la subpartida 6301.10 a 6305.32 desde cualquier otra partida.
+6305.39 - 6310.90 Un cambio a la subpartida 6305.39 a 6310.90 desde cualquier otra partida.
+(Así adicionado el código arancelario anterior por la decisión N° 16/2010 del 10 de agosto de 2010, emitida por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana Centroamérica y puesta en vigencia por el decreto ejecutivo N° 36189 del 06 de setiembre de 2010)
 SECCIÓN XII
 (DEL CAPÍTULO 64 AL 67)
 CALZADO, SOMBREROS Y DEMÁS TOCADOS, PARAGUAS, QUITASOLES, BASTONES, LÁTIGOS, FUSTAS Y SUS PARTES; PLUMAS PREPARADAS Y ARTÍCULOS DE PLUMAS; FLORES ARTIFICIALES; MANUFACTURAS DE CABELLO
