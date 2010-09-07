@@ -1,0 +1,6 @@
+DECRETOS
+N° 12-2010
+EL TRIBUNAL SUPREMO DE ELECCIONES
+De conformidad con lo establecido en los artículos 9, 99, 102 inciso 1), 169 y 172 de la Constitución Política; 52 inciso k), 147, 148, 151, 166, 201, 202, 203, 104 y 105 del Código Electoral; 12, 14, 54 y 55 del Código Municipal; 6 y 7 de la Ley General de Concejos Municipales de distrito y según lo dispuesto por este Tribunal en la Resolución N° 405-E8-2008 de las siete horas con veinte minutos del ocho de febrero del año dos mil ocho.
+Decreta:
+Artículo 1º—Se convoca a todos los ciudadanos inscritos como electores en el departamento electoral del registro civil para que, ejerciendo el derecho constitucional al sufragio en votación obligatoria, directa y secreta, concurran a las respectivas juntas receptoras de votos el día domingo cinco de diciembre del año dos mil diez, a fin de que procedan a elegir alcaldes, vicealcaldes primeros y segundos, síndicos propietarios y suplentes, miembros propietarios y suplentes de los concejos de distrito, miembros propietarios y suplentes de los concejos municipales de distrito en los lugares que corresponda, así como a los intendentes y viceintendentes de este último órgano, para el período legal que se iniciará el siete de febrero de dos mil once y que concluirá el treinta de abril de dos mil dieciséis.

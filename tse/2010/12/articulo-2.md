@@ -1,0 +1,1 @@
+Artículo 2º—Las votaciones se efectuarán en todo el territorio nacional, sin interrupción, desde las seis hasta las dieciocho horas de ese día, según lo establece el artículo 166 del Código Electoral.
