@@ -1,0 +1,6 @@
+2) OBJETIVOS.
+2.1) Objetivo general. Contar con políticas institucionales en materia de las tecnologías de información y comunicaciones debidamente formuladas y aprobadas, como el marco y la guía que normen y regulen todas las actividades de la gestión de las TI institucionales, desde la conceptualización de las diferentes soluciones, su adquisición, implementación y puesta en marcha, hasta la operación posterior de la plataforma instalada.
+2.2) Objetivos específicos.
+• Apoyar a la Administración en la toma de decisiones para la alineación de las TIC’s a los objetivos institucionales, por medio de lineamientos claros en procura del uso eficiente y eficaz de los recursos informáticos y tecnológicos institucionales.
+• Informar a todos los funcionarios de AyA las políticas, directrices y lineamientos básicos que rigen el tema de las tecnologías de información y comunicaciones, para lograr la mayor eficiencia en materia de prestación de servicios y la utilización de los recursos.
+• Informar a clientes, funcionarios, terceros contratados y proveedores de TI los alcances de la responsabilidades de cada uno, y las consecuencias del incumplimiento de dichas políticas, directrices y lineamientos.
