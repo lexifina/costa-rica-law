@@ -1,3 +1,4 @@
-Artículo 14.—Del desglose de las llamadas. El Banco tiene la facultad de solicitar directamente al proveedor del servicio, un desglose de las llamadas que se efectúan de los teléfonos celulares asignados.
+Artículo 14.—Del desglose de las llamadas. El Banco tiene la facultad de solicitar directamente al proveedor del servicio, un desglose de las llamadas que se efectúan de los teléfonos celulares asignados en los grupos D a H, citados en el artículo 11 de este Reglamento.
 En el caso de que la línea celular sea propiedad del colaborador, éste deberá solicitar, a pedido de la Unidad de Servicios Generales, el reporte mencionado y presentarlo a esa dependencia en el término de tres días hábiles posteriores a la solicitud.
 Cada año, la Unidad de Servicios Generales hará una evaluación de las autorizaciones que se hayan otorgado al amparo de este Reglamento, con el fin de determinar si mantiene la necesidad de esas autorizaciones.
+(Así reformado mediante sesión N° 8371/10 del 7 de setiembre de 2010)

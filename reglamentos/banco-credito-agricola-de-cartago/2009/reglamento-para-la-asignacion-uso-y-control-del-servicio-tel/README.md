@@ -14,3 +14,4 @@ Reglamento para la asignación, uso y control del servicio telefónico celular d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-19 | la propia norma |
+| 2 | 2010-09-07 | Reglamento 8371 (2010-09-07) |
