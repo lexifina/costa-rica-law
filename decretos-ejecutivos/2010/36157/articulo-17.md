@@ -1,0 +1,4 @@
+Artículo 17.—Temas de la agenda
+a) Los temas de la agenda serán propuestos y aprobados por los consejeros en el pleno del consejo. Los temas estarán a cargo del sector que lo propone, el cual tendrá bajo su responsabilidad la descripción del problema y la elaboración de las propuestas o planes de acción en torno a su solución.
+b) El orden de discusión de los temas de la agenda deberá establecerse de manera que se traten de forma alterna los propuestos por los distintos sectores.
+c) No será permitida la discusión de temas ajenos a la agenda aprobada. No obstante, el consejo podrá dividir sus sesiones en dos partes, de forma que en la segunda parte, o en sesión extraordinaria convocada al efecto, puedan ser discutidos aquellos temas de carácter coyuntural que cualquiera de los sectores someta al conocimiento del pleno.

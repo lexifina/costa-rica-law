@@ -1,0 +1,2 @@
+Artículo 27.—Colaboración de otras instituciones. Será obligación de todas las instituciones brindar al Consejo Superior de Trabajo, la colaboración que este requiera para el mejor cumplimiento de sus fines, a solicitud de su Presidente.
+Así mismo, el Consejo podrá solicitar el apoyo técnico económico de cualquier institución relacionada con la temática planteada, tales como la Organización Internacional del Trabajo, las universidades o cualquier organización afín.

@@ -1,0 +1,1 @@
+Artículo 2º—Sede. El Consejo Superior de Trabajo sesionará en el Ministerio de Trabajo y Seguridad Social. Sin embargo, para el mejor cumplimiento de sus funciones, podrá sesionar válidamente en cualquier lugar del territorio nacional, previo acuerdo aprobado por mayoría simple.
