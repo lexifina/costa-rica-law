@@ -1,0 +1,1 @@
+Artículo 12.—Sistema Informático. El Departamento de Proveeduría será el responsable de administrar el sistema de información (C.A.F.) para que sea utilizado para el registro y control del mobiliario y equipo de oficina. Todos los bienes deberán estar debidamente registrados y actualizados en este sistema.

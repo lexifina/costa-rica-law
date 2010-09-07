@@ -1,0 +1,4 @@
+CAPÍTULO XII
+Destrucción, robos y desaparición de activos
+Artículo 63.—Robo o desaparición de activos. Cuando la Jefatura de la dependencia judicial advierta el robo o la desaparición del mobiliario y equipo a su cargo, deberá interponer en forma inmediata la denuncia ante el Organismo de Investigación Judicial o el Ministerio Público según corresponda, para que se determine la eventual responsabilidad del caso. Además, para determinar la eventual responsabilidad civil pecuniaria administrativa, le corresponderá informar a la Dirección Ejecutiva para que inicie el procedimiento ordinario correspondiente.
+Lo anterior sin perjuicio de la comunicación al Tribunal de la Inspección Judicial para determinar la responsabilidad disciplinaria y al Departamento de Proveeduría o Administración Regional, para la afectación de los registros correspondientes y excluir los bienes del inventario de la oficina por medio del CAF.

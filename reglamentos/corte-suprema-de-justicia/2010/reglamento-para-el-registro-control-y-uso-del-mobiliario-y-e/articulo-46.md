@@ -1,0 +1,1 @@
+Artículo 46.—Equipo dañado. Cuando un servidor o servidora judicial ingrese a un puesto de trabajo y encuentre equipo dañado tendrá que comunicarlo a la jefatura inmediata, ésta a su vez, al Departamento de Proveeduría o a la Administración Regional en aquellas dependencias judiciales que cuenten con ésta, para que proceda a su reparación.

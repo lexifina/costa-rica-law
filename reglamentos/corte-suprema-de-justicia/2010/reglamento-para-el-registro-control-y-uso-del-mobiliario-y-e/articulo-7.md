@@ -1,0 +1,1 @@
+Artículo 7º—Será responsabilidad de la dependencia judicial que recibe el bien objeto de donación, comunicar al Departamento de Proveeduría o Administración Regional para la asignación de placa de identificación y su registro en el sistema de control de activos (CAF).

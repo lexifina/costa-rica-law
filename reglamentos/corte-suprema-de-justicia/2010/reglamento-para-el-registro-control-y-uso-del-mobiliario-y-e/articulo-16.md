@@ -1,0 +1,1 @@
+Artículo 16.—Control de entrega del mobiliario y equipo. El Proceso de Administración de bienes del Departamento de Proveeduría y las Administraciones Regionales, bajo ninguna circunstancia entregarán mobiliario y equipo sin el respectivo documento de despacho de mercadería y sin que esté debidamente patrimoniado (plaqueado).

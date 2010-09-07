@@ -1,0 +1,1 @@
+Artículo 61.—Control e informe sobre donaciones. En los meses de enero y julio de cada año, el Departamento de Proveeduría elaborará un informe con el número de acta, nombre del beneficiado, ubicación por Circuito Judicial y bienes donados. Este informe deberá ser enviado al Consejo Superior para lo que corresponda.
