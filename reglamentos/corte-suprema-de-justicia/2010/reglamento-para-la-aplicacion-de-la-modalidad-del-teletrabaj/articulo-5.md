@@ -1,0 +1,1 @@
+Artículo 5º—Perfil de la persona teletrabajadora. Corresponde al Departamento de Gestión Humana definir el perfil de la persona teletrabajadora y al Consejo Superior, establecer el proceso de evaluación y estudio.

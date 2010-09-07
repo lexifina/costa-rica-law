@@ -1,0 +1,1 @@
+Artículo 16.—Sobre los puestos vacantes teletrabajables. Cuando un puesto teletrabajable quede vacante, se procederá a llenar la plaza correspondiente considerando a las personas servidoras judiciales que hayan solicitado ingresar a dicho plan. En los procesos de selección, será un factor determinante el cumplimiento del perfil respectivo.
