@@ -1,0 +1,11 @@
+N° 36144-J
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones N° 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Administradora Acueducto Rural el Carmen, El Silencio y Canadá de La Suiza de Turrialba, cédula de persona jurídica número 3-002-215635, se inscribió en el Registro de Asociaciones del Registro Público desde el día veintiocho de mayo de dos mil cuatro, bajo el expediente N° 9401.
+III.—Que los fines que persigue la Asociación, según el artículo tercero de sus Estatutos, son: “Artículo Tercero: (...) Construir un acueducto en El Carmen de La Suiza, Turrialba y dar servicio de agua potable a la comunidad de El Carmen, El Silencio y Canadá de La Suiza, Turrialba; Administrar operar y conservar en buenas condiciones el acueducto, de acuerdo con las disposiciones y Reglamentos que al respecto emita AyA (sic); Obtener la participación efectiva de la comunidad en la construcción y mantenimiento del acueducto; Colaboración en los programas y campañas de índole educativas que se emprendan; Ayudar a explicar y divulgar en la comunidad las disposiciones y Reglamentos de AyA (sic); Cooperar con los planes, proyectos y obras que emprenda AyA (sic) en la comunidad; Participar en la vigilancia y protección de las fuentes de abastecimiento del acueducto, evitar las contaminaciones de las mismas y ayudar a la protección de las cuencas hidrográficas de la región.”
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+DECRETAN:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado la Asociación Administradora Acueducto Rural El Carmen, El Silencio y Canadá de La Suiza de Turrialba, cédula de persona jurídica número 3-002-215635.
