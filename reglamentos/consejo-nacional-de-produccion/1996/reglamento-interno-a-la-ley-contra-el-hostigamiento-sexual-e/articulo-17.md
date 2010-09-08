@@ -1,0 +1,2 @@
+Artículo 17.—En caso de que el Acuerdo emanado de la Junta de Relaciones Laborales sea un empate deberá remitirse a la Presidencia Ejecutiva de la Institución para su resolución, la que deberá emitirse dentro de un plazo de ocho días hábiles contados a partir de la notificación del acuerdo.
+(Así corrida su numeración en sesión N°2775 del 8 de setiembre de 2010, que lo traspasó del antiguo artículo 14 al 17 actual)

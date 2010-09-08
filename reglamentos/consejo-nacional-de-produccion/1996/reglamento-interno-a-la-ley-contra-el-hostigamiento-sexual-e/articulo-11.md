@@ -1,1 +1,2 @@
-Artículo 11.—La resolución final tendrá recurso de revocatoria para ante la Gerencia General que será interpuesto en un plazo de tres días hábiles siguientes a la notificación de ésta.
+Artículo 11—Transcurrido el plazo de los ocho días hábiles indicados en el artículo precedente, el Órgano Director hará comparecer a las partes recibiendo los distintos medios de prueba pertinentes así como las respectivas declaraciones.
+(Así corrida su numeración en sesión N°2775 del 8 de setiembre de 2010, que lo traspasó del antiguo artículo 8 al 11 actual)

@@ -14,3 +14,4 @@ Reglamento Interno a la ley Contra el Hostigamiento Sexual en el empleo y la doc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-29 | la propia norma |
+| 2 | 2010-09-08 | Reglamento 2775 (2010-09-08) |
