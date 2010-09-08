@@ -1,3 +1,1 @@
-ARTÍCULO 14.- Ninguna persona que retire pensión del Estado, por cualquier concepto que sea, de derecho o de gracia, puede ser nombrada para el desempeño de un empleo o cargo público remunerado, salvo que renuncie expresamente a la pensión que le correspondería durante el tiempo que ocupe tal puesto o cargo. Dicha renuncia será comunicada oficialmente al Centro de Control (*), a la Secretaría de Hacienda y a la Junta Consultiva de Pensiones (**).
-(*) Actualmente "Contraloría General de la República".
-(**) Sobre esta Junta, ver artículo 6º, párrafo 2º de la presente ley.
+ARTÍCULO 14.-(Anulado mediante resolución de la Sala Constitucional N° 15058 del 08 de setiembre de 2010.)

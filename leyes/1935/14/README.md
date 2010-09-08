@@ -1,6 +1,6 @@
 # Ley General de Pensiones
 
-Ley N° 14 del 1935-12-02. SINALEVI, ficha 35336: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35336&param2=140031&param3=1>.
+Ley N° 14 del 1935-12-02. SINALEVI, ficha 35336: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35336&param2=82750&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -22,3 +22,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 14 de 17 | 1995-09-14 | Ley 6975 | 1984-11-30 |
 | 15 de 17 | 1995-09-14 | Ley 7054 | 1986-12-19 |
 | 16 de 17 | 1995-09-14 | Ley 7302 | 1992-07-08 |
+| 17 de 17 | 2010-09-08 | Sala Constitucional, resolución 15058 (2010-09-08) | 2010-09-08 |
