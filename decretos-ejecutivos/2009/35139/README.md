@@ -14,3 +14,4 @@ Crea Comisión Intersectorial de Gobierno Digital
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-06 | la propia norma |
+| 2 | 2010-09-08 | Decreto Ejecutivo 36176 (2010-09-08) |

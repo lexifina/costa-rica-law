@@ -20,12 +20,18 @@ XIII.—Que es necesario fortalecer la Secretaría Técnica de Gobierno Digital 
 XIV.—Que en virtud del Convenio Marco de Cooperación interinstitucional, suscrito entre el Gobierno de la República de Costa Rica y el Grupo ICE el 5 de diciembre del 2006, este último apoyará la ejecución de las acciones destinadas a fortalecer el Gobierno Digital.
 XV.—Que transcurrido un espacio de tiempo razonable desde la conformación de la Comisión Intersectorial de Gobierno Digital, la Secretaría Técnica de Gobierno Digital y se torna necesario replantear su funcionamiento. Por tanto,
 Decretan:
-Artículo 1º—Créase la Comisión Interinstitucional de Gobierno Digital -en adelante denominada “la Comisión”- como un órgano interinstitucional de coordinación y definición política para diseñar, planificar y elaborar las políticas públicas en materia de Gobierno Digital.
+Artículo 1º—Créase la Comisión Interinstitucional de Gobierno Digital, en adelante denominada “la Comisión”, como un órgano interinstitucional de coordinación y definición política para diseñar, planificar y elaborar las políticas públicas en materia de Gobierno Digital.
 La Comisión Interinstitucional de Gobierno Digital estará integrada por:
-A) El Ministro o Viceministro de Planificación Nacional y Política Económica, quien presidirá;
-B) El Ministro o Viceministro de Ciencia y Tecnología;
-C) El Ministro o Viceministro de Comercio Exterior;
-D) El Ministro o Viceministro de Hacienda;
-E) El Asesor Presidencial en Competitividad y Mejora Regulatoria con rango de Ministro; y
-F) El Presidente Ejecutivo del Instituto Costarricense de Electricidad (ICE).
+A) La Presidenta de la República, quien la presidirá. Podrá ser sustituida por el Segundo Vicepresidente de la República, quien presidirá la Comisión ante esa eventualidad;
+B) El Ministro o el Viceministro de Planificación Nacional y Política Económica;
+C) El Ministro o el Viceministro de Ciencia y Teconología;
+D) El Ministro o el Viceministro de Economía, Industria y Comercio;
+E) El Presidente Ejecutivo del Instituto Costarricense de Electricidad (ICE).
 Podrán asistir a las sesiones de la Comisión, con derecho a voz pero sin voto: el Gerente de la Secretaría Técnica de Gobierno Digital y los representantes de otras instancias que determine la Comisión.
+La Comisión contará con un grupo de asesores ad-honorem que podrán ser funcionarios públicos o pertenecer al sector privado; se regirán por las siguientes disposiciones, así como por las instrucciones que para el estudio de cada caso determine la Comisión.
+1. Serán designados para cada caso por la Comisión, en número que considere prudente para el desarrollo de los temas correspondientes y de las especialidades que se estimen adecuadas para realizar los estudios que se les encomienden.
+2. La composición del grupo de asesores “ad honorem” podrá ser temporal o permanente. Podrá ser unipersonal.
+3. Podrán asistir a las sesiones en calidad de invitados, con voz pero sin voto. El dictamen que rindan los asesores debe considerarse un elemento de juicio y nunca será de carácter impositivo.
+4. Los servicios prestados por los asesores “ad honorem” no implicará el pago de dietas o emolumento alguno.
+5. Los asesores serán convocados para sus funciones; por la Comisión.
+(Así reformado por el artículo 1° del decreto ejecutivo 36176 del 8 de setiembre de 2010)
