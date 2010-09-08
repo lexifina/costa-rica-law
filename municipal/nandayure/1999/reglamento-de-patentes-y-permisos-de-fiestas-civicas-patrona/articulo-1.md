@@ -86,17 +86,18 @@ Esta Municipalidad recomienda dentro de la actividad un programa cultural y depo
 Horario: Abrirán la venta de licor a las 10,00 a.m. todos los días de los festejos hasta las 12,00 de la noche, los días sábados y domingos cerrarán a las 2,00 a.m. del día siguiente, excepto en la cabecera del cantón que las actividades se realizarán las 24 horas.
 El Concejo Municipal de Nandayure nombrará un fiscal para que ejerza la vigilancia en las corridas de toros, el cual tendrá plenos poderes para la aplicación de este Reglamento y resolver la aplicación del mismo.
 La Guardia de Asistencia Rural o Civil tendrá la obligación de prestar toda la colaboración a los fiscales, para la aplicación del Reglamento sobre las actividades taurinas.
-El fiscal que se nombre portará una autorización de la Municipalidad que 10 faculte como tal.
-Los honorarios que le corresponde al fiscal son de ocho mil colones por día.
+El fiscal que se nombre portará una autorización de la Municipalidad que lo faculte como tal.
 Dicho cargo será pagado por cuenta de los interesados en las corridas y tendrá las siguientes obligaciones:
 1) Vigilar que la construcción del redondel garantice la seguridad del público.
 2) Vigilar que la capacidad del redondel sea la autorizada por el ingeniero que hizo la inspección.
 3) Vigilar que los cachos de los toros deben estar debidamente desmochados y lijados o cubiertos con protectores y encontrarse en el toril por lo menos una hora antes de las corridas.
-4) No permitir el uso de espuelas prohibidas (chontaleñas, cresta de gallos y otras a criterio del Fiscal) salvo 10 establecido por ley.
+4) No permitir el uso de espuelas prohibidas (chontaleñas, cresta de gallos y otras a criterio del Fiscal) salvo lo establecido por ley.
 5) Vigilar que los montadores que evidencien haber ingerido licor y otras sustancias nocivas, sean desalojados del toril.
 6) La comisión de fiestas debe contar con dos pares de espuelas de reglamento disponibles y una desmochadora.
 7) La comisión de fiestas deberá tener por lo menos dos toreros o vaqueteros de reconocida experiencia en esa materia a fin de proteger al montador.
 8) En caso de que por motivos especiales, el fiscal nombrado por el Concejo no pueda asistir a una corrida, la responsabilidad de éste recaerá en el Delegado Cantonal o la autoridad pertinente.
 9) El fiscal que se nombre preferiblemente será un miembro del Concejo Municipal o empleado municipal.
+Los honorarios que le corresponde al fiscal son de quince mil colones por día.
+(Así adicionado el párrafo anterior mediante sesión N° 19 del 8 de setiembre del 2010).
 Este Reglamento fue aprobado en sesión ordinaria N° 51, celebrada el 12 de enero del presente año, publíquese en el Diario Oficial "La Gaceta" .
 Nandayure, 25 de enero de 1999.-
