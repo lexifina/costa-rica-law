@@ -1,0 +1,1 @@
+Artículo 6º—Red Pública de Telecomunicaciones. Según lo dispuesto por el artículo 6 inciso 21) de la Ley General de Telecomunicaciones, se considerará una red pública de telecomunicaciones aquella que se utiliza por parte de los operadores o proveedores, en su totalidad o principalmente, para la prestación de servicios de telecomunicaciones disponibles al público.

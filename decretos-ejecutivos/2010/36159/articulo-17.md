@@ -1,0 +1,1 @@
+Artículo 17.—Operadores y proveedores. En los casos en que un operador o proveedor requiera de la ampliación de sus redes de telecomunicaciones, éste deberá cumplir con los requisitos y procedimientos establecidos en el presente decreto.

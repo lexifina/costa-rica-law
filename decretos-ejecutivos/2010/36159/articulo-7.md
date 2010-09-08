@@ -1,0 +1,9 @@
+SECCIÓN II
+De las competencias
+Artículo 7º—Competencias de la Superintendencia de Telecomunicaciones. Según lo dispuesto en los artículos 59, 60 y 73 la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley Nº 7593 del 9 de agosto de 1996, el artículo 7 del Reglamento a la Ley General de Telecomunicaciones, Nº 34765-MINAET del 26 de setiembre de 2008, en materia de instalación y ampliación de redes de telecomunicaciones, le corresponde a la Superintendencia de Telecomunicaciones:
+1. La regulación, aplicación y vigilancia del ordenamiento jurídico de telecomunicaciones en materia de su competencia.
+2. El establecimiento de las condiciones de uso conjunto o compartido de instalaciones, de manera transparente, objetiva, equitativa y no discriminatoria de forma que se asegure la competencia efectiva, la optimización y aprovechamiento de los recursos.
+3. La determinación de los controles inherentes a las condiciones técnicas, comprendiendo el control sobre los umbrales de intensidad del campo electromagnético, los niveles de potencia, la factibilidad de proyectos de telecomunicaciones, el uso compartido de las estructuras, potencia, distancias y alturas necesarias para la propagación de las señales inalámbricas de cada uno de los operadores y proveedores de telecomunicaciones.
+4. La realización de los estudios técnicos para establecer los límites de operación y vigilancia del cumplimiento de los usos autorizados.
+5. La regulación en materia de interconexión, umbrales de intensidad del campo electromagnético, potencias y factibilidades de proyectos de telecomunicaciones, así como de los planes de redes y planes de ampliación.
+6. Dictar las normas técnicas que definan los estándares mínimos de calidad para las redes públicas y los servicios de telecomunicaciones disponibles al público, publicarlas, administrarlas y fiscalizar su cumplimiento.
