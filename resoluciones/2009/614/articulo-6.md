@@ -159,10 +159,10 @@ Mensaje de notificación cuando se envía un SMS a un centro de mensajería SMSC
 Orden de los últimos mensajes SMS enviados/recibidos (3 SMS) |
 Fecha y hora de los últimos SMS enviados/recibidos (3 SMS) |
 SMS con un FDN (Fixed Dialing Number) activo |
-Servicios de mensajería multimedia MMS (se deben realizar las pruebas hacia destinos de los diferentes operadores o proveedores autorizados) | Cumplimiento
+(*)Servicios de mensajería multimedia MMS (se realizaran las pruebas para los diferentes operadores o proveedores autorizados) (*)(Así reformado el aparte anterior por resolución N° RCS-427 del 8 de setiembre de 2010) | Cumplimiento
 Generación/Recepción de MMS |
 Alerta de mensaje recibido |
-Número de origen |
+Número de originación |
 Opción de responder MMS |
 Opción de reenviar MMS |
 Guardar imagen recibida |
@@ -173,40 +173,21 @@ Recepción de MMS al encender el terminal |
 Generar un MMS a un grupo de destinatarios |
 MMS MO (Mobile originated) con el número MSISDN (Mobile Subscriber Integrated Services Digital Network Number) en formato internacional |
 MMS MO (Mobile originated) con el número MSISDN (Mobile Subscriber Integrated Services Digital Network Number) en formato nacional |
-MMS MO (Mobile originated) a múltiples números |
-MMS MO (Mobile originated) con 40 caracteres en el espacio de asunto |
 MMS MO (Mobile originated) con texto |
-MMS MT (Mobile terminated) con texto |
+MMS MT (mobile terminated) con texto |
 Enviar MMS con el reporte de recepción encendido |
 Enviar MMS con el reporte de recepción apagado |
-MMS MO (Mobile originated) con un objeto polifónico (archivo MIDI) |
-MMS MT (Mobile terminated) con un objeto polifónico (archivo MIDI) |
-MMS MO (Mobile originated) con un objeto polifónico (archivo WAV) |
-MMS MT (Mobile terminated) con un objeto polifónico (archivo WAV) |
-MMS MO (Mobile originated) con un objeto polifónico (archivo AMR) |
-MMS MT (Mobile terminated) con un objeto polifónico (archivo AMR) |
-MMS MO (Mobile originated) con un objeto de audio (archivo MP3) |
+MMS MO (Mobile originated) con un objeto audio (archivo MP3) |
 MMS MT (Mobile terminated) con un objeto de audio (archivo MP3) |
-MMS MO (Mobile originated) con una imagen (resolución 640x480) |
-MMS MT (Mobile terminated) con una imagen (resolución 640x480) |
-MMS MO (Mobile originated) con objeto imagen (archivo GIF) |
-MMS MT (Mobile terminated) con objeto imagen (archivo GIF) |
-MMS MO (Mobile originated) con objeto imagen (archivo GIF Animado) |
-MMS MT (Mobile terminated) con objeto imagen (archivo GIF Animado) |
-MMS MO (Mobile originated) con objeto imagen (archivo JPEG) |
-MMS MT (Mobile terminated) con objeto imagen (archivo JPEG) |
-MMS MO (Mobile originated) con objeto imagen (archivo BMP) |
-MMS MT (Mobile terminated) con objeto imagen (archivo BMP) |
-MMS MO (Mobile originated) con objeto imagen (archivo WBMP) |
-MMS MT (Mobile terminated) con objeto imagen (archivo WBMP) |
-MMS MO (Mobile originated) con objeto video (archivo 3GPP) |
-MMS MT (Mobile terminated) con objeto video (archivo 3GPP) |
+MMS MO (Mobile originated) con un objeto imagen (archivo JPEG) |
+MMS MT (Mobile terminated) con un objeto imagen (archivo JPEG) |
+MMS MO (Mobile originated) con objeto video (archivo 3 GPP) |
+MMS MT (Mobile terminated) con un objeto video (archivo 3 GPP) |
 MMS MO (Mobile originated) con diapositivas con texto, audio e imagen |
 MMS MT (Mobile terminated) con diapositivas con texto, audio e imagen |
 MMS MO (Mobile originated) a email (con texto, audio e imagen) |
-MMS MT (Mobile terminated) a email (con texto, audio e imagen) |
-MT (Mobile terminated) SMIL |
-Generación/Recepción de MMS con una llamada de voz establecida |
+MMS MT (Mobile Terminated) a email (con texto, audio e imagen) |
+Generación/recepción de MMS con una llamada de voz establecida |
 Pruebas de servicio WAP/GPRS (se deben realizar las pruebas hacia destinos de los diferentes operadores o proveedores autorizados) | Cumplimiento
 Verificar el acceso y navegación mediante el protocolo WAP/GPRS |
 Visualización de contenido adecuado al tamaño de la pantalla |
@@ -243,3 +224,37 @@ Enviar un e-mail a una cuenta POP3/IMAP4 |
 Descargar un e-mail con archivos adjuntos |
 Configurar cuenta de email validar recepción y envío de email. |
 Configurar cuenta de email de Gmail, Hotmail, Yahoo entre otros y validar recepción y envío de email. |
+(*)PRUEBAS ADICIONALES (*)(Así adicionado el aparte anterior por resolución N° RCS-427 del 8 de setiembre de 2010) | STATUS | COMENTARIOS
+Rendimiento de la batería durante el desarrollo del protocolo de pruebas | |
+(*)Operación en las bandas de servicios de telefonía móvil establecidas en el PNAF
+Descripción: El laboratorio de homologación deberá generar portadoras de servicio para cada una de las bandas de telefonía móvil establecidas en el PNAF y verificar que dicho terminal se conecta con éstas
+Banda | Sub-banda según el PNAF (sentido TX Base a Móvil) | Cumplimiento de conexión
+850 MHz | A’’ | 869.3 MHz – 874.3 MHz |
+B | 874.1 MHz – 879.1 MHz |
+C | 878.9 MHz – 883.9 MHz |
+D | 883.7 MHz – 888.7 MHz |
+E | 888.5 MHz – 893.5 MHz |
+1800 MHz | A | 1805 MHz – 1820 MHz |
+B | 1820 MHz – 1835 MHz |
+C | 1835 MHz – 1850 MHz |
+D | 1850 MHz – 1865 MHz |
+E | 1865 MHz – 1880 MHz |
+2.1 GHz | A | 2110 MHz – 2125 MHz |
+B | 2125 MHz – 2135 MHz |
+C | 2135 MHz – 2150 MHz |
+D | 2150 MHz – 2160 MHz |
+E | 2160 MHz – 2170 MHz |
+Estas pruebas se realizarán para cada una de las bandas y tecnologías en las que según la descripción técnica opera el terminal. Los terminales deberán operar en la totalidad de las subbandas de las bandas indicadas en sus especificaciones técnicas.
+(*)(Así adicionado el protocolo de operación de subbandas de telefonía móvil establecidas en el PNAF, indicado en el aparte anterior por resolución RCS-427 del 8 de setiembre de 2010)
+(*)Transmisor/receptor en bandas de uso libre incluidos en el terminal de telefonía móvil
+Descripción: En caso de que el terminal incluya transmisores/receptores que operen en las bandas de uso libre establecidas en el PNAF, se debe verificar el cumplimiento de los rangos y niveles de potencia.
+Banda de frecuencias (MHz) | Máxima potencia de salida (dBm) | Máxima potencia isotrópica radiada aparente (EIRP o PIRE en dBm)
+2400 – 2483.5 | 30 | 36
+5150 - 5250 | 17 | 23
+5250 – 5350 | 24 | 30
+5470 – 5725 | 24 | 30
+5725 - 5850 | 30 | 36
+Descripción: En caso de que el terminal incluya transmisores/receptores que operen en las bandas de uso libre establecidas en el PNAF, se debe verificar el cumplimiento de los rangos y niveles de potencia
+Demás bandas | 24 | 30
+(*)(Así adicionado el aparte anterior en relación a un conjunto de pruebas aplicables cuando los terminales de telefonía móvil incluyan transmisores o receptores que operen en las bandas de uso libre de conformidad con lo establecido en el PNAF, por resolución RCS-427 del 8 de setiembre de 2010)
+(Nota de Sinalevi: Mediante resolución RCS-427 del 8 de setiembre de 2010, se aclara el punto VI) anterior en el sentido de que:"...se entienda que dicho protocolo se aplicará conforme con las especificaciones técnicas del terminal sujeto a homologación.")

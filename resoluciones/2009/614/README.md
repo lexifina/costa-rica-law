@@ -14,3 +14,4 @@ Procedimiento para la Homologación de Terminales de Telefonía Móvil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-25 | la propia norma |
+| 2 | 2010-09-08 | Resolución 427 (2010-09-08) |
