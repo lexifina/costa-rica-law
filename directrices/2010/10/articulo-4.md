@@ -1,0 +1,2 @@
+IV.- Fundamento legal
+Esta Directriz encuentra fundamento en los artículos 5, 6, 9, 11, 12, de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995, publicada en La Gaceta Nº 212 del 08 de noviembre de 1995 y sus reformas; y en el Capítulo IV y Transitorio III del Decreto Ejecutivo Nº 34740-H-COMEX “Reglamento del Régimen Devolutivo de Derechos” publicada en el Alcance 35 al Diario Oficial La Gaceta Nº 181 del 19-09-2008 y que entró en vigencia a partir del 19 de marzo del 2009 y Circulares Asociadas.
