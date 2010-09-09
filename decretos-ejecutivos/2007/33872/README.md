@@ -16,3 +16,4 @@ Reglamento para el funcionamiento sanitario de templos o locales de culto
 | 1 | 2008-01-26 | la propia norma |
 | 2 | 2008-05-05 | Decreto Ejecutivo 34646 (2008-05-05) |
 | 3 | 2009-07-22 | Decreto Ejecutivo 35521 (2009-07-22) |
+| 4 | 2010-09-09 | Decreto Ejecutivo 36236 (2010-09-09) |
