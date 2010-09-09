@@ -1,2 +1,0 @@
-Artículo 7º—Utilización de recursos por parte del ICD. La Dirección General del ICD, mediante oficio debidamente fundamentado, podrá aprobar recursos provenientes de la subpartida de gastos confidenciales para el desarrollo de actividades de coordinación en el área represiva que realice la misma institución. Dichas actividades deberán identificarse claramente indicando el objetivo general perseguido con dichos recursos así como los resultados esperados.
-No se podrán destinar los gastos confidenciales a otro tipo de actividades fuera de las aprobadas.

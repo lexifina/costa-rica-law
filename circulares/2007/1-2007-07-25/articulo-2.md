@@ -1,1 +1,0 @@
-Artículo 2º—Objetivo. La presente circular tiene como propósito establecer los parámetros necesarios para que a través de la partida de gastos confidenciales se logre proveer de recursos económicos al área represiva que contempla la Ley Nº 8204.

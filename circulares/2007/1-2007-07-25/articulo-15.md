@@ -1,1 +1,0 @@
-Artículo 15.—De los informes. El Área Administrativa Financiera rendirá informes trimestrales a la Dirección General, referentes al los recursos girados y gastos efectuados por ente beneficiario. Dichos informes deberán ser presentados por la Dirección General en los mismos períodos al Consejo Directivo del ICD.

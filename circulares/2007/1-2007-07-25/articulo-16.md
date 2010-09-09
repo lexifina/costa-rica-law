@@ -1,1 +1,0 @@
-Artículo 16.—Auditoría Interna. En cualquier momento la Auditoría Interna del ICD podrá solicitar documentación y emitir informes referentes a la correcta aplicación de la presente normativa, de conformidad con la Ley de Control Interno. Dichos informes deberán ser conocidos por la Dirección General y posteriormente el Consejo Directivo del ICD.
