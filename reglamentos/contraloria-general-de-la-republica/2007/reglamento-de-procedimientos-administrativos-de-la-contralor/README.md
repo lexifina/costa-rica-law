@@ -14,3 +14,4 @@ Reglamento de Procedimientos Administrativos de la Contraloría General de la Re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-20 | la propia norma |
+| 2 | 2010-09-09 | Reglamento 154 (2010-09-09) |
