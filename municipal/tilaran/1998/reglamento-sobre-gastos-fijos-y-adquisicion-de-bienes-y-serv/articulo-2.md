@@ -1,1 +1,2 @@
-Artículo 2°. Autorizar al AlcaldeMunicipal para realizar compras o adquisición de Bienes y Servicios, así como para suscribir gastos fijos hasta por la suma de ¢1.000.000,00 (un millón de colones).
+Artículo 2°. Autorícese al Alcalde Municipal a contratar y ordenar su pago por la adquisición de bienes y servicios hasta por el monto que se autorice a la Municipalidad de Tilarán, por las contrataciones directas, según resolución que emita la Contraloría General de la República en la segunda quincena del mes de febrero del cada año.
+(Así reformado mediante sesión ordinaria N° 19 del 9 de setiembre de 2010)
