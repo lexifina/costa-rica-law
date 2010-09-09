@@ -1,0 +1,1 @@
+Artículo 15.—De los informes. La Unidad Administrativa Financiera rendirá informes trimestrales a la Dirección General, referentes a los recursos girados y gastos efectuados por cada ente beneficiario. Dichos informes deberán ser presentados por la Dirección General en los mismos períodos al Consejo Directivo del ICD.

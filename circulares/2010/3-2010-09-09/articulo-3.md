@@ -1,0 +1,1 @@
+Artículo 3º—Destino. Los recursos económicos provenientes de la subpartida de gastos confidenciales del ICD se destinarán al aporte de investigaciones relacionadas con la persecución de los delitos contemplados en la Ley Nº 8204 y cualquier otra actividad enmarcada por el ICD dentro del área de la represión.
