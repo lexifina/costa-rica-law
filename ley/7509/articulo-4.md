@@ -18,3 +18,5 @@ l) Los inmuebles pertenecientes a las asociaciones declaradas de utilidad públi
 (Así adicionado este inciso por el artículo 2º, inciso a), de la ley No.7729 de 15 de diciembre de 1997)
 m) Las juntas de educación y las juntas administrativas de las instituciones oficiales de enseñanza.
 (Así adicionado el inciso anterior por el artículo único de la Ley N° 8619 del 1 de noviembre de 2007)
+n) Los inmuebles inscritos a nombre del Hospicio de Huérfanos de San José, en el tanto estén dedicados a los fines propios de esta Institución
+(Así adicionado el inciso anterior por el artículo 4º de la ley Pro Ayuda al Hospicio de Huérfanos de San José, N° 8810 del 3 de mayo de 2010 )
