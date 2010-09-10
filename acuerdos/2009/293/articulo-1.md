@@ -13,7 +13,7 @@ Reproductor de tilapia cualquier tipo, hasta 10,0 gramos | reproductor | colones
 Alevín tilapia monosexo (machos) hasta 10,0 gramos . Excepto tilapia roja | Alevín | colones | 48.00
 Alevin de tilapia, monosexo (machos) de 10,1 a 40 gramos . Excepto tilapia roja | Alevín | colones | 80.00
 Alevin de tilapia sin reversión, hasta 10,0 gramos | Alevín | colones | 45.00
-Alevin de tilapia roja monosexo ( Machos ) hasta 10 gramos . | Alevín | colones | 60.00
+Alevin de tilapia roja monosexo ( Machos ) hasta 10 gramos | Alevín | colones | 60.00
 Tilapia esvicerada | Kilo | colones | 1,980.00
 Semilla de almeja gigante hasta 2,5 centímetros de longitud. | Semilla | colones | 40.00
 Semilla almeja gigante hasta 150,0 gramos | Semilla | colones | 170.00
@@ -65,9 +65,11 @@ Inspección embarcación extranjera | | |
 Por hora o fracción (horario ordinario) | por hora | dólares | 40.00
 Por hora o fracción (horario extraordinario) | por hora | dólares | 45.00
 Por renovación o prórroga de licencia (horario ordinario) | por inspecc | dólares | 40.00
-Inspección embarcación nacional | | |
-Por hora o fracción (horario ordinario) | por hora | colones | 15,000.00
-Por hora o fracción (horario extraordinario) | por hora | colones | 23,400.00
+(**)(*)Inspección Embarcación Nacional (*)(Así modificadas mediante acuerdo AJDIP/306-2010.) | | |
+Inspección por hora o fracción-primera hora ordinaria | por hora | colones | ¢7.500,00
+Hora o fracción adicional ordinaria | por hora | colones | ¢2.700,00
+Inspección por hora o fracción-primera hora extraordinaria | | | ¢8.900,00
+Hora o fracción adicional extraordinaria (**)(Así reformado el aparte anterior por acuerdo .J.D.I.P./290-2010 del 10 de setiembre del 2010) | | | ¢4.100,00
 Otras inspecciones en horario ordinario: | | |
 Inspección por traspaso, sustitución, construcción o ampliación de embarcación | por inspecc | colones | 8,500.00
 Inspección por inactividad | por inspecc | colones | 8,500.00
@@ -108,11 +110,23 @@ Formulario Recomendación de Exportación | por formulario | colones | 1,700.00
 Fotocopias | por hoja | colones | 25.00
 SERVICIOS DE TRANSPORTE | | |
 Utilización del muelle para embarcaciones de bandera nacional y embarcaciones para pesca deportiva | metro eslora X hora | colones | 265.00
-Utilización del muelle para embarcaciones de pesca comercial | metro eslora X hora | colones | 180.00
-Yates y embarcaciones de pesca deportiva | metro eslora X hora | colones | 380.00
-Suministro de Agua Potable | metro cúbico | colones | 2,090.00
+(*)Utilización del muelle para embarcaciones de pesca comercial | | |
+Tarifa INCOPESCA por hora o fración =(A*B*C)+D | | |
+A=Costo x hora | | | 30.00
+B= Metro de Eslora de embarcación | | |
+C= Tiempo en horas de estadía | | |
+D= Costos administrativos (costo operativo) (*)(Así reformdo el aparte anterior mediante acuerdo N° AJDIP/290-2010 del 10 de setiembre de 2010) | | | 5100.00
+Yates y embarcaciones de pesca deportiva | | | 380.00
+(*)Suministro de Agua Potable | | |
+Tarifa INCOPESCA por m3 = (a*m3 consumido)+B | | |
+A= Costo del ayA por m3 8sujeto a tarifas fijadas por la ARESEP) | | | 956.00
+B= Costos Administrativos (costos operativos) (*)(Así reformado el aparte anterior mediante acuerdo N° AJDIP/290-2010 del 10 de setiembre de 2010) | | | 4000.00
 Embarque y desembarque de pasajeros de embarcaciones de placer (en dólares U.S.) | por persona | dólares | 3.00
-Movilización para carga de vehículos | por entrada | colones | 2,590.00
+(*)Movilización para carga de vehículos | | |
+Tarifa INCOPESCA por hora o fracción = (A*B) | | |
+A= Costo x hora | | | 500.00
+Suministro de Agua Potable | | |
+B= Tiempo en horas de permanencia (*)(Así reformado el aparte anterior mediante acuerdo N° AJDIP/290-2010 del 10 de setiembre de 2010) | | |
 LICENCIA PARA PESCA COMERCIAL (por año o por trámite) | | |
 Pesca Comercial Pequeña Escala | licencia | colones | 16,500.00
 Pesca Comercial Mediana Escala | licencia | colones | 50,000.00

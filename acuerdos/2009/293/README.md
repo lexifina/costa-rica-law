@@ -15,3 +15,4 @@ Establece tarifas por la venta de bienes y servicios que brinda y genera el INCO
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
 | 2 | 2010-05-28 | Acuerdo 177 (2010-05-28) |
+| 3 | 2010-09-10 | Acuerdo 290 (2010-09-10) |
