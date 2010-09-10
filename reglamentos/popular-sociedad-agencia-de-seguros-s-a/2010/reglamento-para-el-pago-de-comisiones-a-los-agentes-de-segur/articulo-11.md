@@ -1,0 +1,1 @@
+Artículo 11.—Esquema de comisiones para Agentes de Seguros Externos y Promotores. Por su gestión de venta, los Agentes de Seguros Externos acreditados y Promotores percibirán comisiones según el Esquema de Comisiones fijado por la Gerencia General.

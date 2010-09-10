@@ -1,0 +1,1 @@
+Artículo 10.—Delimitación de potestades. La Gerencia General de Popular Sociedad Agencia de Seguros S. A. será la competente para establecer los tipos de productos y servicios que podrán ser vendidos por parte de los Agentes externos y los Promotores de Seguros, en concordancia con lo que a su vez establezca la Aseguradora y en su caso la Superintendencia General de Seguros.

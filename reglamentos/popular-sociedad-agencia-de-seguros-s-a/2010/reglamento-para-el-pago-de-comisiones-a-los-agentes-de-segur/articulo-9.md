@@ -1,0 +1,1 @@
+Artículo 9º—El Agente de Seguros Externo representa a Popular Seguros en la venta de seguros. Formarán parte del contenido del contrato que se suscriba, todas aquellas regulaciones que por normativa interna o externa les apliquen a los Agentes de Seguros y Promotores de Seguros.

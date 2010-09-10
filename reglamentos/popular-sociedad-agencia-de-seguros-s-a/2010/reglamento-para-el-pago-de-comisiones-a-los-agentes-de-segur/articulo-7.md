@@ -1,0 +1,5 @@
+Artículo 7º—Requisitos mínimos para la operación de los Agentes de Seguros Externos Acreditados. Las personas físicas contratadas como intermediarios para la venta de seguros, deberán cumplir con los siguientes requisitos mínimos:
+a.- Rendir una garantía de cumplimiento para responder por sus obligaciones frente a Popular Sociedad Agencia de Seguros S. A. por un monto definido en el contrato que regulará la relación mercantil entre el Agente de Seguros externo y Popular Sociedad Agencia de Seguros S. A.
+b.- Suscribir y mantener vigente las pólizas de Responsabilidad Civil, de Riesgos del Trabajo y de Fidelidad respectivas, de dinero en tránsito u otra que contemple las coberturas antes descritas, a efecto de proteger la manipulación y trasiego de dineros, valores y documentos de Popular Sociedad Agencia de Seguros S. A.
+c- Firmar contrato de servicios con Popular Sociedad Agencia de Seguros S. A., donde quedarán establecidas las condiciones, deberes y obligaciones de las partes.
+d.- Cualquier otro que expresamente Popular Sociedad Agencia de Seguros S. A. le consigne.
