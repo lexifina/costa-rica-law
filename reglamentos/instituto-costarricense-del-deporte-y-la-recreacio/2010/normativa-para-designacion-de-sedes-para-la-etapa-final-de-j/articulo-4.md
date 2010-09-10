@@ -1,0 +1,2 @@
+Artículo 4
+Quedan facultados los Comités Cantonales de Deporte y Recreación, en representación del respectivo cantón, ya sea de manera individualizada o colectiva, para que presenten, ante el Consejo Nacional de Deportes, la solicitud formal de sede o sedes compartidas para la realización de la etapa final para cada edición de los Juegos Deportivos Nacionales y dentro de los periodos establecidos.

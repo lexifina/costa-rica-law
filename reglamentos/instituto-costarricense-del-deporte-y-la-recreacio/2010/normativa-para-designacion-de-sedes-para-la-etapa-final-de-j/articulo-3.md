@@ -1,0 +1,2 @@
+Artículo 3
+Para efecto de estudio y recomendación de las solicitudes, el Consejo Nacional de Deporte y la Recreación nombrará una comisión integrada por: un miembro del Consejo Nacional de Deporte y Recreación, el Director Nacional del ICODER, el Coordinador de la Dirección de Gestión de Instalaciones, un funcionario del Departamento de Competición Deportiva, el Coordinador de la Dirección de Deporte.
