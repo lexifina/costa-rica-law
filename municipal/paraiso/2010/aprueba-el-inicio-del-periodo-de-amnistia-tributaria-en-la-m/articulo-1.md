@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE PARAÍSO
+Que de conformidad con lo establecido por el Concejo Municipal de Paraíso, según consta en la sesión número 24 del 24 de agosto del año 2010 artículo 30, inciso I). Por unanimidad en firme y con carácter de definitivamente aprobado se acuerda: Aprobar el inicio del período de Amnistía Tributaria del 13 de setiembre del 2010 al 31 de enero del 2011, amparado en el Decreto Nº 8818.
