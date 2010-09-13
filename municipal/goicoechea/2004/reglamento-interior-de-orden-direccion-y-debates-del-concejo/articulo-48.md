@@ -13,7 +13,8 @@ k) Convocar al menos una vez por bimestre a los Presidentes de Comisiones, con l
 l) Declarar cerrado el período sesiones ordinarias, en su última sesión, rindiendo el correspondiente informe de gestión.
 m) Conceder audiencias, de acuerdo con lo dispuesto en el artículo diecinueve.
 n) Seleccionar aquellos asuntos que, de acuerdo con su criterio, deben ser de trámite urgente.
-o) Conceder permiso a los miembros del Concejo, a los síndicos, al Alcalde, el Auditor y a los asesores, para salir temporalmente de usa sesión, durante un lapso no mayor de quince minutos. Pasado este período el regidor o síndico que no se reintegre a la sesión perderá la dieta correspondiente.
+o) Conceder permiso a los miembros del Concejo, a los síndicos, al Alcalde, el Auditor, contador y a los asesores, para salir temporalmente de usa sesión, durante un lapso no mayor de quince minutos. Pasado este período el regidor o síndico que no se reintegre a la sesión perderá la dieta correspondiente.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 37-2010 del 13 de setiembre de 2010)
 p) Autorizar la entrada y permanencia de la prensa al Recinto Parlamentario.
 q) Coordinar con el Alcalde el nombramiento de los funcionarios que participen como asesores de comisiones del Concejo Municipal.
 r) Anunciar y proceder con las suplencias respectivas durante las sesiones.

@@ -9,10 +9,13 @@ Las comisiones permanentes son las siguientes:
 5. Asuntos Jurídicos.
 6. Asuntos Ambientales.
 7. Asuntos Culturales.
-8. Condición de la Mujer.
-9. Así Derogado en sesión N° 16 del 18 de abril del 2005.
-10. Asuntos Educativos.
-11. Asuntos de Salud Pública.
-12. Asuntos de Seguridad Ciudadana.
-Las comisiones permanentes se integrarán con un mínimo de cinco y un máximo de siete miembros.
-Serán comisiones especiales aquellas cuya constitución acuerde el Concejo e integre su Presidente con el fin de estudiar un asunto específico y elaborar un dictamen. Se integrarán con un mínimo de tres miembros de los cuales dos deben ser regidores propietarios o suplentes.
+8. Condición de la Mujer y Asuntos de Accesibilidad.
+Las comisiones especiales son:
+1- Mercado Libre
+2- Asuntos Educativos.
+3- Asuntos de Salud Pública.
+4- Asuntos de Seguridad Ciudadana.
+Las comisiones permanentes se integrarán con un mínimo de tres y un máximo de cinco regidores propietarios.
+Además de las comisiones especiales señaladas en este reglamento el Concejo Municipal podrá crear nuevas comisiones especiales con el fin de estudiar un asunto específico y elaborar un dictamen.
+Las comisiones especiales se integrarán con un mínimo de tres miembros de los cuales dos deben ser regidores propietarios o suplentes, los síndicos que integren dicha comisión tendrán derecho a participar en la votación. Cualquier comisión puede crear subcomisiones.
+(Así reformado mediante sesión ordinaria N° 37-2010 del 13 de setiembre de 2010)

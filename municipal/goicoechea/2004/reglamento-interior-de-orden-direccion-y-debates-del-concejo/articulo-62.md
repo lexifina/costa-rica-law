@@ -1,4 +1,4 @@
-Artículo 62.—Las comisiones permanentes analizarán, dictaminarán y recomendarán, sobre los siguientes asuntos:
+Artículo 62.—Las comisiones analizarán, dictaminarán y recomendarán, sobre los siguientes asuntos:
 1. COMISIÓN DE HACIENDA Y PRESUPUESTO
 1.1 La formulación, el análisis, la planificación, la evaluación y seguimiento del Pan Anual Operativo, del presupuesto ordinario, los extraordinarios, las modificaciones presupuestarias y todo lo relacionado con la Hacienda Municipal.
 1.2 Los Relacionados con la Contraloría General de la República, en tanto sea materia presupuestaria, hacendaria o financiera.
@@ -33,10 +33,12 @@ Artículo 62.—Las comisiones permanentes analizarán, dictaminarán y recomend
 4.9 El enlace con la Junta Administrativa de Cementerios del Cantón para dar seguimiento y apoyo a su labor.
 4.10 Los relacionados con nombramientos, excepto los de Juntas de Educación de escuelas o Juntas Administrativas de colegios.
 4.11 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
-4.12 Los relacionados con la Planificación Cantonal.
+4.12 Los relacionados con la Planificación Cantonal a excepción de la planificación urbana.
+(Así reformado el punto anterior mediante sesión ordinaria N° 37-2010 del 13 de setiembre de 2010)
 5. COMISIÓN DE ASUNTOS JURÍDICOS
 5.1 Los relacionados con el derecho y la justicia.
-5.2 Los proyectos de ley y proyectos de reglamentos.
+5.2 Los proyectos de ley, pronunciamientos de la procuraduría y proyectos de reglamentos.
+(Así reformado el punto anterior mediante sesión ordinaria N° 37-2010 del 13 de setiembre de 2010)
 5.3 Los asuntos de la Contraloría General de la República, en tanto sean en materia legal.
 5.4 Las apelaciones por decisiones tomadas por el Alcalde.
 5.5 Los recursos de revocatoria y de revisión interpuestos por administrados contra acuerdos de distinto tipo emanados del Concejo Municipal.
@@ -57,16 +59,33 @@ Artículo 62.—Las comisiones permanentes analizarán, dictaminarán y recomend
 7.6 Promoción y seguimiento del Programa de Banda Municipal.
 7.7 La formulación, presupuestación y seguimiento de los programas cívicos y culturales que organiza la Municipalidad.
 7.8 La promoción y desarrollo de la actividad turística.
-7.9 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
-8. COMISIÓN DE LA CONDICIÓN DE LA MUJER
+7.9 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento
+(*) 8. CONDICIÓN DE LA MUJER Y ASUNTOS DE ACCESIBILIDAD
 8.1 La promoción y desarrollo de la Mujer, en el entorno social, económico, laboral, político, etc.
 8.2 El desarrollo armónico de las familias del cantón.
 8.3 Proponer en el seno del Concejo Municipal, los dictámenes necesarios que garanticen los recursos financieros, humanos y materiales para el funcionamiento de la Oficina de la Mujer (OFIM).
 8.4 Impulsar proyectos específicos para la atención de necesidades de las mujeres del Cantón.
 8.5 Coordinar a través del Concejo Municipal, con diferentes instancias el desarrollo de proyectos que involucren a la mujer.
 8.6 Promover el apoyo municipal a las instancias locales, regionales y nacionales tendientes a favorecer la equidad de género.
-8.7 Los otros asuntos relacionados o afines o que le asigne el Concejo Municipal para su conocimiento.
-9. Así Derogado en sesión N° 16 del 18 de abril del 2005.
+8.7 Velar porque la Municipalidad incluya en sus reglamentos, políticas institucionales, planes, programas, proyectos y servicios, los principios de igualdad de oportunidades y accesibilidad para las personas con discapacidad en el cantón.
+8.8 Coordinar la formulación, ejecución y evaluación de las políticas municipales, en el marco de la política nacional de discapacidad.
+8.9 Coordinar la elaboración y evaluación del Plan y Presupuesto Municipal de Equiparación de Oportunidades con las diferentes instancias municipales, fundamentada en la ley 7600 y su reglamento, el Código Municipal, la Directriz No 27 y circulares de la Contraloría General de la República, que a su vez forme parte de los Planes Operativos de la Municipalidad y del Plan de Desarrollo Municipal.
+8.10 Garantizar la participación de las personas con discapacidad y de las organizaciones de personas con discapacidad en la formulación de las políticas municipales, así como en el diseño, ejecución y evaluación del Plan Municipal de Equiparación de oportunidades.
+8.11 Coordinar con las instancias correspondientes, la incorporación de la temática de discapacidad y equiparación de oportunidades en la capacitación, la divulgación y en los sistemas de información municipal.
+8.12 Organizar y promover la provisión de servicios de apoyo y ayudas técnicas que requieren los funcionarios, beneficiarios o usuarios con discapacidad de la municipalidad.
+8.13 Coordinar con otras instancias comunales, públicas y privadas, para que el cantón sea accesible y todos sus habitantes tengan iguales oportunidades.
+8.14 Los otros asuntos relacionados o afines que asigne el Concejo Municipal para su conocimiento.
+(*)(Así reformado el punto 8) anterior mediante sesión ordinaria N° 37-2010 del 13 de setiembre de 2010)
+(*) 9. COMISIÓN DE MERCADO LIBRE
+9.1 Proponer tarifas de los adjudicatarios del Mercado Libre de Guadalupe.
+9.2 Recomendar los lineamientos de salud e higiene que deben acatarse en el Mercado Libre.
+9.3 Recomendar los tipos de productos o servicios que se pueden comercializar en el Mercado Libre.
+9.4 Recomendar la frecuencia, el plazo y el día o días de operación de la feria.
+9.5 Recomendar las políticas y normativas para el tratamiento de los desechos sólidos que genera el Mercado Libre.
+9.6 Velar porque existan registros de todos los puestos asignados a los adjudicatarios, así como el respectivo historial de pago y eventos adicionales.
+9.7 Proponer y evaluar el presupuesto de operación e inversión del Mercado Libre.
+9.8 Los otros asuntos relacionados o afines que asigne el Concejo Municipal para su conocimiento.
+(*)(Así reformado el punto 9) anterior mediante sesión ordinaria N° 37-2010 del 13 de setiembre de 2010)
 10. COMISIÓN DE ASUNTOS EDUCATIVOS
 10.1 El análisis y dictamen de los nombramientos de las Junta de Educación de las escuelas y de las Juntas Administrativas de los colegios.
 10.2 La evaluación y recomendación de la infraestructura física con que operan los kínder, escuelas y colegios del cantón.
