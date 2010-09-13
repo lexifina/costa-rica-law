@@ -1,5 +1,7 @@
+(Derogado)
 INSTITUTO DE DESARROLLO AGRARIO
 REGLAMENTO AUTÓNOMO PARA LA ADQUISICIÓN DE TIERRAS
+(Este Reglamento fue derogado por el artículo 47 del Reglamento autónomo para la Adquisición de Tierras, aprobado mediante sesión N° 029-2010 del 13 de setiembre de 2010)
 A fin de que se sirva proceder a su ejecución, me permito comunicar el acuerdo tomado por la Junta Directiva del Instituto de Desarrollo Agrario, en el artículo N° 3 de la Sesión Extraordinaria 006-2008, celebrada el 24 de marzo de 2008.
 ARTÍCULO TRES
 Se presenta a consideración de los señores Directores los oficios DPI-031-08 y DFA-030-08, suscritos por el Ing. Carlos Díjeres Morales, Director de Planificación Institucional y el Ing. Rodolfo Schmidt Segura, Jefe del Departamento de Formación de Asentamientos, referentes a la modificación del Reglamento para la Adquisición de Tierras.
