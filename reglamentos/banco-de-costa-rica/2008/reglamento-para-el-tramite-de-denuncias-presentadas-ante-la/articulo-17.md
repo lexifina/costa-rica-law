@@ -1,1 +1,0 @@
-Artículo 17.—De los resultados de la investigación producto de las denuncias. La Auditoría Interna informará al funcionario u órgano colegiado en capacidad de resolver, sobre el resultado de la investigación realizada, quienes deberán resolver de acuerdo con los plazos establecidos en la Ley General de la Administración Pública.

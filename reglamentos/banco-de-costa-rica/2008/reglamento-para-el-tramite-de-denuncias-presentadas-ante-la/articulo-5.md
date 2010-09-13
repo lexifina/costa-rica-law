@@ -1,1 +1,0 @@
-Artículo 5º—Recibo de denuncia. La Auditoría Interna recibirá las denuncias en su oficina ubicada en las oficinas centrales del Banco de Costa Rica, o mediante correspondencia presentada en cualquiera de las oficinas, la cual deberá ser dirigida directamente a la Auditoría Interna.
