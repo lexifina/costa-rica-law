@@ -1,0 +1,1 @@
+Artículo 8º—Los bovinos deberán de identificarse con la marca registrada, estampada en la piel del animal con cualquier método físico o químico que garantice una marca indeleble, visible, legible e identificable.

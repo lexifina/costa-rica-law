@@ -1,0 +1,1 @@
+Artículo 32.—Será responsabilidad del médico veterinario regente o médico veterinario oficial y del responsable de recibo de ganado de los establecimientos referidos en el artículo anterior, velar por el cumplimiento de los requisitos establecidos en este Plan Piloto y denunciar cualquier irregularidad ante a la Dirección Regional Brunca del SENASA o ante la Fuerza Pública.

@@ -1,0 +1,1 @@
+Artículo 5º—En atención a la solicitud y de acuerdo con el procedimiento específico, la Dirección Regional Brunca del SENASA habilitará el registro oficial para todos los establecimientos contemplados en este plan piloto y les asignará un código único de registro que identificará el establecimiento de forma unívoca.

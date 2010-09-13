@@ -1,0 +1,1 @@
+Artículo 29.—Las autoridades del SENASA, Fuerza Pública o Policía de Tránsito, quedan facultados para solicitar y revisar en cualquier momento la documentación requerida para el transporte de animales y retener el cargamento de los animales y el vehículo, en caso de detectarse durante la inspección, irregularidades o incumplimiento.

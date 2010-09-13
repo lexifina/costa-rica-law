@@ -1,0 +1,5 @@
+Artículo 36.—Son obligaciones de los regentes de los centros de centros de comercialización de bovinos y mataderos en la Región Brunca a los presentes efectos:
+a) Verificar durante la inspección ocular que los animales se encuentren en buenas condiciones sanitarias.
+b) En caso de animales provenientes de rebaños sometidos a saneamiento por enfermedades infectocontagiosas e identificados como tales en la Región Brunca, el médico veterinario regente deberá de exigir la guía sanitaria emitida por el médico veterinario oficial o acreditado y deberá velar por el cumplimiento de las medidas que para estos casos indique la Dirección Regional Brunca del SENASA.
+c) Velar por el cumplimiento de las regulaciones establecidas en este Plan Piloto e informar inmediatamente a la Dirección Regional en caso de incumplimiento por parte de los responsables de los establecimientos de comercialización o de los mataderos según corresponda.
+d) Atender todas las demás obligaciones que correspondan de acuerdo con la Ley Nº 8495.

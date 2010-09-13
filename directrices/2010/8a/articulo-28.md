@@ -1,0 +1,2 @@
+Del control del transporte de bovinos en carretera
+Artículo 28.—Toda guía de movilización podrá ser convalidada en el puesto de control de la policía del Ministerio de Seguridad Pública más cercano al lugar de embarque de los animales. Les corresponde a las autoridades de policía de los puestos de control revisar y verificar que la información requerida sea completa y que exista correspondencia en cuanto al número de animales del embarque, su identificación y sus características, así como los datos del transportista y el vehículo.

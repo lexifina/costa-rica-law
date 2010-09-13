@@ -1,0 +1,2 @@
+Transitorio III.—Los establecimientos pecuarios en la Región Brunca que se encuentren en un programa oficial de prevención, control o erradicación de enfermedades, deberán de cumplir además de las obligaciones que impone este Plan Piloto, con las normas propias de cada programa en materia de identificación y rastreabilidad.
+Barreal de Ulloa, Heredia, a las diez horas del trece de setiembre del dos mil diez.

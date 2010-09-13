@@ -1,0 +1,20 @@
+SERVICIO NACIONAL DE SALUD ANIMAL
+DIRECCIÓN GENERAL
+DIRECTRIZ SENASA DG-D08-2010
+Considerando:
+1º—Que de conformidad con el inciso e) del artículo 6 de la Ley 8495 del 6 de abril del 2006, Ley del Servicio Nacional de Salud Animal (SENASA), es competencia de dicho Servicio “…Dictar las normas técnicas pertinentes, elaborar los manuales de procedimientos, así como ejecutar y controlar las medidas de bienestar animal, inspección veterinaria, desplazamiento interno, importación, exportación, tránsito, cordones sanitarios, prohibición de desplazamiento a zonas o locales infectados, prohibición o uso controlado de medicamentos veterinarios y reactivos de laboratorio veterinario, vigilancia e investigación epidemiológica y medidas sanitarias y veterinarias en general, de todo animal doméstico, silvestre, acuático u otros, su material genético, sus productos, subproductos, derivados, sus desechos, las sustancias peligrosas y los alimentos para animales. Se incluye en esta Ley, la competencia para conocer y regular cualquier otra medida o producto que la tecnología desarrolle y afecte la salud o la producción animal...”
+2º—Que igualmente el inciso k) del referido artículo 6 de la Ley 8495 antes citada, establece que es competencia del Servicio Nacional de Salud Animal (SENASA)”… Establecer el sistema nacional de trazabilidad/rastreabilidad de animales, sus productos y subproductos, y de los insumos utilizados en la producción animal…”
+3º—Que in fine el artículo 6 de la Ley 8495 referido establece que el SENASA se considerará una autoridad en salud y que por ello, toda persona, natural o jurídica, queda sujeta a los mandatos de esta Ley, sus Reglamentos y a las órdenes generales y particulares, ordinarias y de emergencia, que esta autoridad dicte en el ejercicio de sus competencias.
+4º—Que la Ley Nº 8799 del 17 de abril del 2010, Ley de Control de Ganado Bovino, Prevención y Sanción de su Robo, Hurto y su Receptación tiene por objeto definir los procedimientos, los mecanismos y las responsabilidades para controlar, regular, prevenir y sancionar el destace, la matanza, el apoderamiento, la movilización, el transporte, la comercialización, el contrabando y la negociación de ganado bovino, así como de sus productos y subproductos, en el territorio nacional.
+5º—Que la actividad ganadera es una de las actividades económicas históricamente más importantes siendo innegable su incidencia en la nutrición de la población, la seguridad alimentaria, la generación de empleo y el ingreso de divisas a la economía y por ello resulta clave para el Estado promoverla y apoyarla.
+6º—Que dado que la ley antes indicada establece una serie de medidas y procedimientos que provocan la necesidad de que a partir de su vigencia se modifiquen ciertos procesos de comercialización y movilización de ganado, el SENASA en asocio de Corporación de Fomento Ganadero (CORFOGA), la Cámara de Ganaderos Unidos del Sur (CGUS), la Cámara de Ganaderos Independientes del Sur y la Subasta Cotobruseña S.A. han desarrollado un plan piloto para el control de movilización y rastreabilidad de ganado bovino en la Región Brunca y cuya experiencia será de la mayor importancia a los efectos de estandarizar procesos en todo el país con ocasión de la entrada en vigencia de la Ley Nº 8799 antes indicada y eventualmente la implementación del Programa de Trazabilidad, que ordena la Ley Nº 8495 a cargo del SENASA, por lo que conviene oficializarlo dentro del marco de la Ley Nº 8495, así como al instrumento guía oficial de movilización desarrollado dentro del marco de dicho plan piloto. Por tanto,
+LA DIRECTORA GENERAL DEL SERVICIO NACIONAL
+DE SALUD ANIMAL DEL MINISTERIO DE
+AGRICULTURA Y GANADERÍA
+Emite la siguiente Directriz Sanitaria:
+ANEXO 1
+PLAN PILOTO DE CONTROL DE MOVILIZACIÓN
+Y RASTREABILIDAD GRUPAL DE GANADO
+BOVINO EN LA REGIÓN BUNCA
+Objeto y definiciones
+Artículo 1º—Objeto: El presente documento contiene las definiciones y procedimientos del Plan Piloto de Control de Movilización y Rastreabilidad Grupal de Bovinos a desarrollarse en la Región Brunca a cargo del Servicio Nacional de Salud Animal del Ministerio de Agricultura y Ganadería.

@@ -1,0 +1,1 @@
+Artículo 10.—Todo propietario de ganado que tenga una marca registrada deberá de asentarla en el o los establecimientos de producción primaria (fincas) donde permanecerán los animales. Para este trámite deberá de contar con la autorización del responsable del establecimiento cuando no se trate de la misma persona.

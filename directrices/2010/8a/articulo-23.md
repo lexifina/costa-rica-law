@@ -1,0 +1,1 @@
+Artículo 23.—Todo bovino que ingrese a un establecimiento de producción primaria (fincas) debe ser identificado de forma permanente con cualquier sistema que permita asociar con seguridad el animal con la guía de movilización, sin perjuicio de lo establecido en los artículos 8 y 9 de este Plan Piloto.

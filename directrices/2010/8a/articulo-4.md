@@ -1,0 +1,9 @@
+Del registro e identificación de establecimientos
+y operadores comerciales
+Artículo 4º—Los siguientes establecimientos deberán solicitar el CVO y registrarse ante el SENASA, de conformidad con lo establecido en el Decreto Ejecutivo Nº 34859-MAG, “Reglamento General para el Otorgamiento del Certificado Veterinario de Operación” y el procedimiento administrativo que para los fines específicos de este plan piloto específico se establezcan:
+a) Los establecimientos de producción primaria (fincas) que pueden ser origen o destino de los traslados de ganado bovino en pie.
+b) Los establecimientos de comercialización de ganado bovino en pie, sin perjuicio de lo establecido en el Decreto Ejecutivo Nº 34976-MAG-MEIC-SP, “Reglamento para Funcionamiento y Comercialización de Ganado en Pie en Subasta y Otorgamiento del Certificado Veterinario de Operación” y demás normativa conexa.
+c) Los transportistas de bovinos en pie o sus derivados. Los vehículos para el transporte de bovinos, incluyendo los remolques, deberán de cumplir además de las regulaciones propias del Ministerio de Obras Públicas y Transportes, con la aprobación del SENASA una vez que se hayan inspeccionado y constatado que cumplen con los requisitos específicos que aseguren condiciones sanitarias y de bienestar animal adecuadas.
+d) Los mataderos autorizados para la matanza y proceso de ganado bovino, sin perjuicio de lo establecido en el Decreto Nº 29588-MAG-S, “Reglamento Sanitario y de Inspección Veterinaria de Mataderos, Producción y Procesamiento de Carnes” y demás normativa conexa.
+Cualquier cambio en la condición de propiedad o titularidad del establecimiento deberá ser reportado al SENASA a la mayor brevedad.
+La información suministrada por el titular se utilizará únicamente con fines sanitarios y para efectos de este sistema.

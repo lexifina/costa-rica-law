@@ -1,0 +1,1 @@
+Artículo 38.—Las especies de animales diferentes a la bovina (Bos Taurus / Bos Indicus) continuarán siendo movilizadas conforme al documento y procedimientos establecidos para esos efectos en el Decreto Ejecutivo Nº 28432-MAG-SP del 13 de enero del dos mil.
