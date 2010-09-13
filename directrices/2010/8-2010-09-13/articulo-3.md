@@ -1,0 +1,1 @@
+Artículo 3º—El presente Plan Piloto de Control de Movilización y Rastreabilidad Grupal de Bovinos a desarrollarse en la Región Brunca se mantendrá en vigencia mientras no se emitan y entren en vigencia las regulaciones de carácter reglamentarias de la Ley Nº 8799 del 17 de abril del 2010, Ley de Control de ganado Bovino, prevención y sanción de su robo, hurto y su receptación.
