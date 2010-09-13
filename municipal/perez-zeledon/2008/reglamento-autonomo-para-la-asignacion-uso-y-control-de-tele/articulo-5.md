@@ -1,0 +1,4 @@
+Artículo 5º—Coordinación entre el Proveedor de Servicios y el Proveedor Municipal
+1) La Proveeduría Municipal será la encargada de realizar los trámites de servicios nuevos, traslados, desconexiones temporales o definitivas, programación o reprogramación de líneas o celulares, cambios de número, u otros ante el proveedor de servicios de la línea telefónica celular y radiolocalizadores, previa autorización del Alcalde o de quien este autorice para tal fin.
+2) Asimismo, deberá llevar en forma actualizada la lista de los asignatarios regulares de los teléfonos celulares y/o radiolocalizadores y las respectivas líneas propiedad de la Municipalidad.
+3) Además deberá realizar las estimaciones correspondientes sobre el consumo e informará a la Tesorería en forma oportuna, para la realización de los pagos respectivos.

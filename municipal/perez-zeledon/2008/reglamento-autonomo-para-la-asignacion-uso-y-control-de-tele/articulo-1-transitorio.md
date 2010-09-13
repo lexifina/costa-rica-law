@@ -1,0 +1,1 @@
+1. Una vez que este Reglamento haya entrado en vigencia formalmente, la asignación vigente de los teléfonos celulares y radiolocalizadores será revisada por el Alcalde y la Proveeduría Municipal , en un plazo máximo de dos meses, con el fin de actualizar y ajustar a las condiciones de éste reglamento o, en su lugar, revocar las asignaciones de equipo existentes a la fecha.

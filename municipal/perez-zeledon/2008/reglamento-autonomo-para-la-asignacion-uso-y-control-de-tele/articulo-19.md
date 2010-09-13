@@ -1,0 +1,3 @@
+Artículo 19.—Faltas y Sanciones
+1) El incumplimiento de las disposiciones, de los deberes y responsabilidades así como la violación de las prohibiciones contenidas en este Reglamento, se considerará como una falta grave del funcionario la primera vez y como falta gravísima la segunda vez que se cometan.
+2) Instruido el procedimiento respectivo al asignatario responsable se le atribuirán las sanciones disciplinarias correspondientes de conformidad con lo dispuesto en el Reglamento Autónomo de Organización y Servicios de la Municipalidad, sin perjuicio de cualquier otro tipo de responsabilidades que, conforme el ordenamiento jurídico, le sean aplicables.

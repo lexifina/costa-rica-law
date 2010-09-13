@@ -1,0 +1,4 @@
+Artículo 22.—Acceso a la información
+1) El Alcalde se reserva el derecho de tener acceso a toda la información que requiere o amerita para ejercer el control interno solicitando al respectivo proveedor del servicio el detalle de las llamadas, su duración y los destinos entre otros, realizados desde aparatos propiedad de la Municipalidad.
+2) En el caso que el Concejo requiera información sobre el particular, deberá solicitarla al Alcalde mediante acuerdo municipal.
+3) Esta información estará igualmente disponible, una vez procurada por la Alcaldía Municipal, a fin de ser conocida y revisada por los órganos internos y los entes externos de control y fiscalización y deberá ser remitida a los mismos cuando así lo requieran a través de los procedimientos y mecanismos que establece el bloque de legalidad.
