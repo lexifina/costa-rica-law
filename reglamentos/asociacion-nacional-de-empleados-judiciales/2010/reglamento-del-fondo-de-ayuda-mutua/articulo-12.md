@@ -1,0 +1,1 @@
+Artículo 12.—Cuando lo estime conveniente, la Junta Directiva de ANEJUD podrá solicitar la realización de auditorias externas sobre la situación financiera del Fondo de Ayuda Mutua. Todos los gastos de funcionamiento, operativos, legales y/o administrativos del Fondo de Ayuda Mutua, serán subsidiados con sus propios recursos.
