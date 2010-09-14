@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo Nº 35996-S de 26 de enero de 2010 publicado en La Gaceta Nº 98 de 21 de mayo de 2010, “Reformas al Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos”
