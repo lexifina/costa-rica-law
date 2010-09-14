@@ -1,0 +1,1 @@
+Artículo 6º—El usuario de la Red será responsable del mal uso que de la misma se haga desde el equipo asignado, por lo que debe mantener los aspectos básicos de seguridad para evitar que otra persona, utilizando su máquina o clave, pueda tener acceso a Internet o al Correo Electrónico sin estar autorizado.

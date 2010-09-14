@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento de Informática es el responsable de proporcionar asesoría y asistencia técnica a los funcionarios de JAPDEVA en materia de uso del servicio de Internet y Correo Electrónico.

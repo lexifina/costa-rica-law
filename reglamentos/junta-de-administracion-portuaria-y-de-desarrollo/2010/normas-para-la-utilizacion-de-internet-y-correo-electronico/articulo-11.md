@@ -1,0 +1,1 @@
+Artículo 11.—Ningún funcionario podrá utilizar la Red Internet para publicar información que se considere confidencial o de valor comercial para la Institución, NI mostrar una conducta en la red que perjudique de cualquier forma los intereses y la imagen de la Institución.

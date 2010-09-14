@@ -1,0 +1,1 @@
+Artículo 19.—La Unidad de Informática tiene la autoridad para controlar y negar el acceso a cualquiera que viole las políticas o interfiera con los derechos de otros usuarios. También tiene la responsabilidad de notificar a los jefes de aquellos funcionarios que se vean afectadas por las decisiones tomadas.

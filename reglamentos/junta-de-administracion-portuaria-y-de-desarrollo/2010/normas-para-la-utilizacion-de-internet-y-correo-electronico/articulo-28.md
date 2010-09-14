@@ -1,0 +1,1 @@
+Artículo 28.—Para poder accederlo es necesario digitar la clave de acceso. Los usuarios serán los responsables en cuanto al uso de la clave y bajo ninguna circunstancia debe revelarse. Ésta se deberá de cambiar periódicamente y cuando expire debe de cambiarse de inmediato.

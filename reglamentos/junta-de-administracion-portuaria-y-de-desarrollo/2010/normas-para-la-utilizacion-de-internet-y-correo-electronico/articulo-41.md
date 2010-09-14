@@ -1,0 +1,6 @@
+Artículo 41.—Será considerada falta grave a efectos de la aplicación de las sanciones contempladas en los artículos 72 y 81 del Código de Trabajo:
+a) Accesar a páginas de pornografía para observar, reproducir o transmitir el material contenido en las mismas.
+b) Ingresar a otros sistemas no autorizados, que puedan causar daños.
+c) Efectuar intentos no autorizados de irrumpir en cualquier computadora ya sea de JAPDEVA o de cualquier otra organización.
+d) Causar daños al sistema o pérdida de datos que pueda resultar de su proceder por la violación de las prohibiciones contenidas en este reglamento.
+e) Se aplicará también la presente causal a quien, habiendo recibido las sanciones establecidas en los artículos 38, 39 y 40 incurra nuevamente en alguna de dichas causales.

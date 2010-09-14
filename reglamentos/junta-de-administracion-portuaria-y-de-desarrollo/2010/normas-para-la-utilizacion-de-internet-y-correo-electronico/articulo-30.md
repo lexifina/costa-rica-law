@@ -1,0 +1,1 @@
+Artículo 30.—El espacio del disco duro del servidor de correo electrónico es limitado, por lo que los usuarios deben depurar los correos electrónicos almacenados en las diferentes carpetas, a fin de evitar la saturación de los buzones correspondientes.

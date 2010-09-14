@@ -1,0 +1,1 @@
+Artículo 2º—JAPDEVA permitirá el acceso a Internet a aquellos funcionarios que hayan sido autorizados por sus respectivos Jefes de Departamento o Unidad y con el visto bueno de la Gerencia respectiva.

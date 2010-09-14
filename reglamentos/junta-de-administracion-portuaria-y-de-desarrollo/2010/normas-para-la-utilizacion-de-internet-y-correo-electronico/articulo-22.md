@@ -1,0 +1,1 @@
+Artículo 22.—Los usuarios que accedan a servicios de otras redes a través de una conexión habilitada por la institución estarán sujetos a las normas que la institución receptora tenga estipuladas y las violaciones a las mismas serán penalizadas de acuerdo al reglamento de cada sitio.

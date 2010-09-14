@@ -1,0 +1,1 @@
+Artículo 7º—De la misma manera que el uso del correo electrónico, ningún acceso a esta Red podrá ser usado para propósitos contrarios al ordenamiento jurídico o contra las normas comunes de la ética y buena conducta normalmente reconocidas en la sociedad.

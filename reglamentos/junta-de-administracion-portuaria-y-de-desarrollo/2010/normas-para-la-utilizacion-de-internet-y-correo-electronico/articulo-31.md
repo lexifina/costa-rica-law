@@ -1,0 +1,1 @@
+Artículo 31.—Se debe verificar periódicamente el contenido en el buzón de entrada, con el propósito de mantener un control y seguimiento de la información transmitida por este medio y guardar la información que va a requerir posteriormente para el cumplimiento de sus labores en el disco duro de su equipo de cómputo.

@@ -1,0 +1,1 @@
+Artículo 38.—La amonestación verbal será aplicada por la Jefatura del Departamento o la Unidad respectiva, quien además tendrá la obligación de llevar un control de amonestaciones para efectos de la eventual aplicación de la sanción prevista en el inciso a) del artículo siguiente.

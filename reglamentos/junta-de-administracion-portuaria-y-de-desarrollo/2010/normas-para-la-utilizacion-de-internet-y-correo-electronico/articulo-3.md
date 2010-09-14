@@ -1,0 +1,1 @@
+Artículo 3º—El personal de JAPDEVA que desea hacer uso de la Red Internet deberá solicitar ante la jefatura de la dependencia autorización para el uso de la red con el fin de que se programe su utilización.

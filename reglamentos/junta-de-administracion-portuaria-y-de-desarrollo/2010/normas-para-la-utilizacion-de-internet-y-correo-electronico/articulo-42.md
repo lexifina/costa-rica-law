@@ -1,0 +1,1 @@
+Artículo 42.—En todos los casos de sanciones por escrito o superiores, se seguirá el procedimiento contenido en el CAPÍTULO XII de la Convención Colectiva de Trabajo vigente. Para los trabajadores no cubiertos por ella se aplicarán los procedimientos establecidos en el Libro Segundo de la Ley General de la Administración Pública.

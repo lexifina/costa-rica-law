@@ -1,0 +1,1 @@
+Artículo 25.—Esta suspensión no impide que se establezcan procedimientos administrativos, para aplicar sanciones disciplinarias por el uso indebido del equipo electrónico y las telecomunicaciones en la institución.

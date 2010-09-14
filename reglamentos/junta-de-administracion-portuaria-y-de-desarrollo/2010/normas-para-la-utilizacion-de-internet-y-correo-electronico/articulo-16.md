@@ -1,0 +1,1 @@
+Artículo 16.—Los particulares a quienes por alguna razón excepcional y específica se les autorice accesar la Red Internet, deberán obtener el visto bueno por escrito de la Gerencia respectiva. NO deberán permanecer solos en la sala en donde se este accesando la Red Internet y la persona que autoriza su uso deberá asumir la responsabilidad correspondiente.

@@ -1,0 +1,1 @@
+Artículo 10.—Será responsabilidad de la jefatura inmediata y del Departamento de Informática velar porque los funcionarios autorizados a utilizar los servicios de Internet, el uso correcto y racional de estos, de tal forma que se beneficie el desempeño de la Institución.

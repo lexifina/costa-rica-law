@@ -1,0 +1,1 @@
+Artículo 15.—Los interesados en utilizar la Red Internet darán un uso racional a esta herramienta y para los fines propios del quehacer institucional. Las jefaturas velarán por el cumplimiento de esta disposición.
