@@ -1,1 +1,0 @@
-Artículo 2°.-La ComisIón Nacional de Emergencia designará como Unidades Ejecutaras las que estime pertinentes, para la ejecucIón de las políticas. actividades y demás medidas necesarias que se acuerden para el cumplimiento del Plan Regulador que se elabore para atender las epiderrúas de dengue y de malaria.

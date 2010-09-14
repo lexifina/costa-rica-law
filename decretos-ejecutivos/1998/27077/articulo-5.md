@@ -1,1 +1,0 @@
-Artículo 5°- La declaratoria de necesidad y urgencia por calamidad pública se mantendrá hasta tanto la Unidad EJecutora no emita un pronunciamiento de que la situación ha sido definitivamente superada, el cual deberá estar basado en reportes o anáJisis técnicO cIentíficos que así lo demuestren. Dicho pronunciamiento debed estar avalado por la Comisión Nacional de Emergencia.
