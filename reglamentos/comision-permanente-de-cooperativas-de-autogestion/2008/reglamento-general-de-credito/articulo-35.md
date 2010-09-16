@@ -1,0 +1,2 @@
+Artículo 35.—Por razones de conveniencia y oportunidad el Directorio de la CPCA, podrá solicitar al INFOCOOP, que algún bien adjudicado o recibido en dación de pago y proveniente de operaciones financiadas por el FNA, sea conservado por la CPCA, para su propio uso. Para lo cual adoptará el acuerdo respectivo y lo comunicará a la Dirección Ejecutiva del INFOCOOP. Los gastos de traspaso de estos bienes, se cubrirán con recursos del presupuesto del FNA.
+(Así adicionado en sesión N° 031 del 16 de setiembre de 2010 )
