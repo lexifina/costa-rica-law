@@ -1,0 +1,1 @@
+Artículo 72.—Toda organización del cantón donde laboran más de diez (10) personas deberá nombrar una persona responsable del manejo selectivo de residuos sólidos, y esa persona responsable deberá coordinar con la Municipalidad. Ese nombramiento deberá ser comunicado a la Municipalidad.

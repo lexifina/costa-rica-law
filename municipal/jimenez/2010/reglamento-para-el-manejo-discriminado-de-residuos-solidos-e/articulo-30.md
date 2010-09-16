@@ -1,0 +1,1 @@
+Artículo 30.—Los contenedores de residuos que no cumplan con lo dispuesto en los artículos 25 y 29 del presente reglamento, deberán ser removidos o demolidos y los dueños deberán sustituirlos por un nuevo contenedor que sí cumpla las especificaciones del presente reglamento. En caso de persistir la anomalía.

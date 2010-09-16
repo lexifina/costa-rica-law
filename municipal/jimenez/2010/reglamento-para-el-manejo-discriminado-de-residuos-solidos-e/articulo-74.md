@@ -1,0 +1,1 @@
+Artículo 74.—Las observaciones que la Municipalidad realice a toda organización con más de 10 empleados, serán dirigidas al responsable de la gestión de manejo selectivo de residuos sólidos con copia al jerarca de la organización y al director del área rectora del Ministerio de Salud.

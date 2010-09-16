@@ -1,0 +1,1 @@
+Artículo 7°—La Municipalidad estará realizando periódicamente campañas de reciclaje en zonas residenciales, comerciales, escuelas, colegios, Ebais, Asociaciones Comunales, y otros, para ir educando a los usuarios en el manejo de los residuos sólidos.

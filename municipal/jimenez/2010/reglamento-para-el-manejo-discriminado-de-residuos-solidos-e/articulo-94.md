@@ -1,0 +1,1 @@
+Artículo 94.—Las personas que incluyan residuos punzocortantes sin darles el adecuado tratamiento, con cuya acción ponen en riesgo al recolector, serán multados con lo correspondiente a un salario base, sin detrimento de otra legislación que le sea aplicable.

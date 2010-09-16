@@ -1,0 +1,1 @@
+Artículo 85.—Por violación a las disposiciones de los artículos 20 y 25 del presente reglamento, se procederá a presentar denuncia a la Fiscalía Ambiental, sin perjuicio de aplicar las sanciones administrativas que establece el artículo 98 de la Ley Orgánica del Ambiente.

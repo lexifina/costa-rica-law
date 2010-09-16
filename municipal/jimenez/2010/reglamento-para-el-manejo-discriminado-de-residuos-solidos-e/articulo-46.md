@@ -1,0 +1,1 @@
+Artículo 46.—Queda prohibido transportar al descubierto residuos sólidos que contengan residuos biodegradables, que generen polvo o puedan dejar caer objetos que dañen a personas o vehículos en las vías públicas. Quedan excluidos de lo anterior los residuos sólidos peligrosos, que deben transportarse de acuerdo a lo que establece la legislación nacional.

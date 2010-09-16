@@ -1,0 +1,1 @@
+Artículo 65.—Se deberá presentar un estudio de impacto ambiental que cumpla con los requisitos dictaminados por la normativa ambiental nacional. Dicho estudio deberá ser aprobado por el Ministerio del Ambiente, Energía y Telecomunicaciones, Ministerio de Salud y por la Municipalidad de Jiménez, como requisito para poder otorgar el permiso de funcionamiento del depósito técnico.

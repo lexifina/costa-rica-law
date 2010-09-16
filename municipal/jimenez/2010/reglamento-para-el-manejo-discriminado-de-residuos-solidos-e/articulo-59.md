@@ -1,0 +1,1 @@
+Artículo 59.—En el depósito técnico sólo se podrán enterrar materiales que no pueden ser aprovechados en forma sostenible. Estos materiales deberían disponerse de tal forma que no causen problemas ambientales o de salud pública. Se seleccionarán los siguientes grupos: Escombros y cerámica (que se podrán negociar como material para drenajes y otros).

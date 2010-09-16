@@ -1,0 +1,1 @@
+Artículo 14.—Las cajas de cartón serán entregadas y amarradas en dimensiones que no excedan un metro de longitud de lado. El cartón así embalado, deberá ser entregado por separado del resto de los residuos sólidos aprovechables. No se aceptará cartón que se entregue contaminado con sustancias extrañas.

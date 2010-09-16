@@ -1,0 +1,1 @@
+Artículo 5º—Deberán cumplir el presente reglamento toda unidad habitacional, comercio patentado o ente de carácter estatal público o no público, que se encuentren dentro del área de cobertura del servicio de recolección de residuos, sea este municipal o privado; o bien que utilice el servicio de disposición final de residuos voluminosos.

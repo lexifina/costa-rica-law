@@ -1,0 +1,1 @@
+Artículo 20.—Las Entidades que manejen residuos peligrosos o altamente peligrosos a nivel del cantón, deberán proveer a los trabajadores de la recolección de todo el equipo e indumentaria de protección necesaria para asegurar que su salud no sea afectada por el manejo de este tipo de residuos, según la normativa legal existente.

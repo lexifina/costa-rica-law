@@ -1,0 +1,1 @@
+Artículo 3º—Los generadores de residuos sólidos serán responsables de tomar y acatar las medidas tendientes a evitar, reducir, separar y a manejar adecuada y sanitariamente los residuos sólidos, sin poner en riesgo a la población o al ambiente con dicho manejo.

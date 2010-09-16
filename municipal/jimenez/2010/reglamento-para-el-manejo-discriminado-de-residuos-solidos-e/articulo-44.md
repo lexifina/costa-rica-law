@@ -1,0 +1,1 @@
+Artículo 44.—Las concesiones de recolección de residuos sólidos en determinada ruta y efectuadas por entidades externas a la Municipalidad, o los permisos otorgados en ese sentido, podrán ser rescindidos en caso de que se demuestre un mal servicio de recolección de residuos a la comunidad.

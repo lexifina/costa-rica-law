@@ -1,0 +1,1 @@
+Artículo 56.—Los centros de acopio deben presentar condiciones higiénicas y no provocar malos olores, mal aspecto del centro a las personas que en ellos trabajan o ajenas al mismo. Además de cumplir con las normas de salud ocupacional establecidas por el Ministerio de Salud.

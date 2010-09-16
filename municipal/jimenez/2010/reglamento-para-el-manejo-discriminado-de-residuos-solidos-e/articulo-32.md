@@ -1,0 +1,1 @@
+Artículo 32.—La entidad recolectora establecerá los días de recolección para los diferentes sectores del cantón y por tipo de residuo, el cual será comunicado a cada usuario del servicio. Cualquier modificación permanente deberá ser comunicada a los usuarios con ocho días naturales de anticipación.

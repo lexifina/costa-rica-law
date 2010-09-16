@@ -1,0 +1,1 @@
+Artículo 93.—Quien incumpla el artículo 81 del presente reglamento se hará acreedor de una sanción de 2.000 colones por su incumplimiento para sector domiciliar y 10.000 colones para sector comercial e industrial y en caso de reincidencia, por cada vez que reincida pagará un 10% sobre la multa.

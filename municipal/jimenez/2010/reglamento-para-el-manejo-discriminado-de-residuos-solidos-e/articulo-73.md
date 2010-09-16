@@ -1,0 +1,1 @@
+Artículo 73.—La persona que se nombre como responsable del manejo selectivo de residuos sólidos de la entidad, deberá haber aprobado un curso de capacitación en gestión ambiental y residuos sólidos de al menos 40 horas lectivas, impartido por una entidad reconocida a nivel nacional.

@@ -1,0 +1,1 @@
+Artículo 80.—La Municipalidad deberá mantener actualizada la contabilidad de costos de los servicios de recolección municipal de residuos sólidos, antes de solicitar una actualización de tasas de recolección. Esta contabilidad de costos deberá realizarse de acuerdo a las normativas de contabilidad generales aceptadas.

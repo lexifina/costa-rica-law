@@ -1,0 +1,1 @@
+Artículo 95.—Aquella persona física o jurídica que acumule residuos en su propiedad de forma lesiva para el ambiente y no los entregue al camión recolector, se hará acreedora de una sanción de 2.000 colones por cada diez kilos de residuos acumulados, que corresponden al máximo en un día de recolección.

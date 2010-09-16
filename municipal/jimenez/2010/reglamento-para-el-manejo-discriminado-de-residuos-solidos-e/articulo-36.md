@@ -1,0 +1,1 @@
+Artículo 36.—En caso que los residuos sean esparcidos en la vía pública o municipal antes de ser recolectados, el usuario del servicio de recolección, está en la obligación de recogerlos, empacarlos y depositarlos nuevamente en un recipiente que cumpla con los lineamientos de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 31.—La entrega de residuos sólidos según corresponda al servicio de recolección, no podrá realizarse con más de ocho horas de antelación al horario que establezca la entidad recolectora para su recolección normal. Es prohibido dejar en la vía pública o en zonas municipales los residuos sólidos por períodos de tiempo mayores al establecido en este artículo.

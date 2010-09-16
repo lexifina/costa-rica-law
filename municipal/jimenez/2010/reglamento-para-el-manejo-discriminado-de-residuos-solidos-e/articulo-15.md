@@ -1,0 +1,1 @@
+Artículo 15.—Los residuos punzocortantes se deben depositar de manera separada en recipientes plásticos adecuados de manera tal que se reduzca al máximo el riesgo de que el personal de recolección de residuos o de los centros de acopio sufran lesiones. El recipiente debe ser rotulado para la identificación y posterior disposición.

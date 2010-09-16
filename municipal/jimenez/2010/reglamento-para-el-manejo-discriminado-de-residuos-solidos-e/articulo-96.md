@@ -1,0 +1,1 @@
+Artículo 96.—Quien incumpliere lo dispuesto en el artículo 17 del presente reglamento, será sancionado con multa de 20.000 colones por quema de residuos. Dicha multa se aumentará automáticamente cada año a razón de un 10%, y será responsabilidad de la Administración Tributaria mantenerlas actualizadas.

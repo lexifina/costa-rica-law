@@ -1,0 +1,1 @@
+Artículo 86.—Por la violación a las disposiciones de los artículos 15, 21, 23 y 46, se presentará la denuncia a la Fiscalía Ambiental por violación a la Ley General de Salud, con el propósito de aplicar las sanciones establecidas en el numeral 381 de dicha ley.

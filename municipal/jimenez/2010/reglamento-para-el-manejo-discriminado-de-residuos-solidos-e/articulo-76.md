@@ -1,0 +1,3 @@
+CAPÍTULO X
+Tasas de recolección
+Artículo 76.—La Municipalidad de Jiménez, establecerá tasas diferenciadas por la recolección y tratamiento de los residuos sólidos generados en el cantón. Estas tasas se diferenciarán en tasas domiciliares y comerciales. Las tasas comerciales y habitacionales se establecerán de acuerdo con la cantidad de residuos generados por cada establecimiento o casa, establecidos mediante estudios de campo. Mientras no se cuente con los parámetros establecidos para la implementación de tasas de acuerdo a la cantidad de residuos generados, se procederá al cobro vía estudio tarifario, como tradicionalmente se ha aplicado, conforme al artículo 74 del Código Municipal, Ley 7794.

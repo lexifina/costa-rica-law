@@ -1,0 +1,1 @@
+Artículo 22.—Todos los residuos deben colocarse en un lugar seco, bajo techo y de fácil acceso al recolector. En caso de que no se pueda colocar los residuos bajo techo, es responsabilidad del generador hacer entrega del material seco al recolector. Todos los residuos deben ser rotulados.

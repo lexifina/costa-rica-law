@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Multas, sanciones y reclamos
+Artículo 83.—Para el caso del incumplimiento de las obligaciones y prohibiciones, referentes a la separación, recolección y acumulación para el transporte y la disposición final de los residuos sólidos derivadas de toda actividad humana mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, se aplicará la sanción establecida en los incisos c) y f) del artículo 76 del Código Municipal. Sin perjuicio de ser acusado para que responda de las responsabilidades civiles y penales por violación del artículo 278 de la Ley General de Salud. El incremento en las multas se regirá por lo establecido por el artículo 76 ter. del Código Municipal.

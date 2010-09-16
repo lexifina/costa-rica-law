@@ -1,0 +1,1 @@
+Artículo 78.—En aquellas propiedades en donde existan varias casas de habitación o apartamentos y negocios comerciales, se cobrarán por separado las tasas de recolección a cada generador, de acuerdo con la generación de residuos, sea a nivel comercial o domiciliar.

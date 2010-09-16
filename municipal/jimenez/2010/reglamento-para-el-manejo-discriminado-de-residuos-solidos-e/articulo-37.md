@@ -1,0 +1,1 @@
+Artículo 37.—Para la recolección de residuos sólidos no tradicionales se podrá prescindir de la entrega en recipientes o bolsas impermeables. Estos residuos se acumularán en forma discriminada en un sitio prefijado e informado por la municipalidad y se recogerán el día que indique la entidad recolectora.
