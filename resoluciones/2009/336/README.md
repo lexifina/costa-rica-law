@@ -15,3 +15,4 @@ Comunica actualización de horarios de atención de las aduanas y puestos aduane
 | --- | --- | --- |
 | 1 | 2010-01-06 | la propia norma |
 | 2 | 2010-07-26 | Resolución 252 (2010-07-26) |
+| 3 | 2010-09-16 | Resolución 320 (2010-09-16) |
