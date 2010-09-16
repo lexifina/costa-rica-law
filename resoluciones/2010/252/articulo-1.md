@@ -20,13 +20,13 @@ SÁBADO DOMINGOS Y FERIADO | NA | NA | NA | NA | NA | NA | NA
 Recepción de Declaraciones Tránsito de Zona Franca y de Perfeccionamiento Activo de otras Aduanas | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 16:00 | 06:00 a 22:00 | NA | 08:00 a 16:00 | 06:00 a 22:00 | 08:00 a 16:00
 SÁBADO | NA | 08:00 a 12:00 | 06:00 a 22:00 | NA | 08:00 a 12:00 | 06:00 a 22:00 | NA
 DOMINGOS Y FERIADOS | NA | NA | 06:00 a 22:00 | NA | NA | 06:00 a 22.00 | NA
-Autorización de zarpes y de solvencias a embarcaciones | LUNES A VIERNES | NA | 08:00 a 16:00 | NA | NA | 08:00 a 16:00 | NA | 08:00 a 16:00
-SÁBADO | NA | 08:00 a 12:00 | NA | NA | NA (1) | NA | NA
-DOMINGOS Y FERIADOS | NA | NA | NA | NA | NA | NA | NA
+Autorización de zarpes y de solvencias a embarcaciones | LUNES A VIERNES | NA | 08:00 a 16:00 | NA | NA | 08:00 a 18:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | NA | 08:00 a 16:00
+SÁBADO | NA | 08:00 a 12:00 | NA | NA | 08:00 a 12:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | NA | NA
+DOMINGOS Y FERIADOS | NA | NA | NA | NA | 08:00 a 16:00 (solo los feriados) (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | NA | NA
 Recepción y descarga de medios de transporte (buques y aeronaves) | LUNES A DOMINGOS Y FERIADOS | NA | 24 horas | NA | 24 horas(2) | 24 horas | NA | 06:00 a 24:00 (Aéreo 09:00 a 14:00(Marítimo)(3) (4)
-Certificados de Importación Temporal de Vehículos | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 18:00 | 06:00 a 22:00 | 08:00 a 16:00 | 08:00 a 16:00 | 06:00 a 22:00 | 08:00 a 16:00 (Aéreo) 09:00 a 14:00 (Marítimo) (3)
-SÁBADO | NA | 08:00 a 12:00 | 06:00 a 22:00 | NA | NA | 06:00 a 22:00 | 08:00 a 16:00 (4)
-DOMINGOS Y FERIADOS | NA | NA | 06:00 a 22:00 | NA | NA | 06:00 a 22:00 | 08:00 a 16:00 (4)
+Certificados de Importación Temporal de Vehículos | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 18:00 | 06:00 a 22:00 | 08:00 a 16:00 | 08:00 a 18:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 22:00 | 08:00 a 16:00 (Aéreo) 09:00 a 14:00 (Marítimo) (3)
+SÁBADO | NA | 08:00 a 12:00 | 06:00 a 22:00 | NA | 08:00 a 12:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 22:00 | 08:00 a 16:00 (4)
+DOMINGOS Y FERIADOS | NA | NA | 06:00 a 22:00 | NA | 08:00 a 16:00 (solo los feriados) (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 22:00 | 08:00 a 16:00 (4)
 DUAs de Oficio | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 16:00 | 08:00 a 16:00 | 08:00 a 16:00 | 08:00 a 16:00 | 08:00 a 16:00 | 08:00 a 14:00
 SÁBADO | NA | NA | 08:00 a 16:00 | NA | NA | 08:00 a 16:00 | NA
 DOMINGOS Y FERIADOS | NA | NA | 08:00 a 16:00 | NA | NA | 08:00 a 16:00 | NA
@@ -34,20 +34,20 @@ Transbordos de Mercancías | LUNES A VIERNES | NA | 08:00 a 16:00 | 08:00 a 16:0
 SÁBADO DOMINGOS Y FERIADOS | NA | NA | 08:00 a 16:00 | NA | NA | 08:00 a 20:00 | NA
 Equipajes de Viajeros | LUNES A VIERNES | NA | 08:00 a 16:00 | 06:00 a 22:00 | 24 Horas | 24 Horas (5) | 06:00 a 22:00 | 08:00 a 20:00 (6)
 SÁBADO DOMINGOS Y FERIADOS | NA | NA | 06:00 a 22:00 | 24 Horas | 24 Horas (5) | 06:00 a 22:00 | 08:00 a 20:00 (6)
-DUAs de Perfeccionamiento Activo | LUNES A VIERNES | 08:00 a 17:00 | 08:00 a 16:00 | NA | 08:00 a 16:00 | 08:00 a 16:00 | 06:00 a 20:00 | 08:00 a 16:00
-SÁBADO | NA | 08:00 a 12:00 | NA | NA | NA | 06:00 a 20:00 | NA
-DOMINGOS Y FERIADOS | NA | NA | NA | NA | NA | NA | NA
+DUAs de Perfeccionamiento Activo | LUNES A VIERNES | 08:00 a 17:00 | 08:00 a 16:00 | NA | 08:00 a 16:00 | 08:00 a 18:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 20:00 | 08:00 a 16:00
+SÁBADO | NA | 08:00 a 12:00 | NA | NA | NA (1) (*)(1) En la aduana de Limón el trámite de DUAs de Perfeccionamiento Activo se realizrá los días sábado previa cordinación con dicha aduana. (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 20:00 | NA
+DOMINGOS Y FERIADOS | NA | NA | NA | NA | NA (1) (*)(1) En la aduana de Limón el trámite de DUAs de Perfeccionamiento Activo se realizrá los días sábado previa cordinación con dicha aduana. (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | A | NA
 DUAs de Zonas Francas | LUNES A VIERNES | 08:00 a 16:00(7) | 08:00 a 16:00 | 08:00 a 16:00 | Edificio Aduana: 08:00 a 16:00 Parques: 08:00 a 18:00(8) | 08:00 a 16:00 | 06:00 a 20:00 | 08:00 a 16:00
 SÁBADO | NA | 08:00 a 12:00 | 08:00 a 16:00 | NA | 08:00 a 12:00 | 06:00 a 20:00 | NA (9)
 DOMINGOS Y FERIADOS | NA | NA | 08:00 a 16:00 | NA | NA | NA | NA (9)
 Transmisión al TICA, Validación de mensajes, Aceptación de DUAs Asignación de semáforo y Autorización de levante en semáforo verde. | LUNES A DOMINGOS Y FERIADOS | 24 horas | 24 horas | 24 horas | 24 horas | 24 horas | 24 horas | 24 horas
 Proceso de Reconocimiento Físico de Mercancías y Verificación Documental |
-DUAs de ImportaciónDefinitiva y Temporal | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 18:00 | 08:00 a 20:00 | 08:00 a 16:00(10 | 08:00 a 16:00 | 08:00 a 20:00 | 08:00 a 16:00
-SÁBADO | NA | 08:00 a 12:00 | 08:00 a 20:00 | NA | NA | 08:00 a 20:00 | 08:00 a 12:00
-DOMINGOS Y FERIADOS | NA | NA | 08:00 a 20:00 | NA | 08:00 a 16:00 (solo los feriados) | NA(11) | NA
-DUAs deTránsito Aduanero | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 18:00 | 06:00 a 22:00 | 08:00 a 16:00 | 08:00 a 16:00 | 06:00 a 22:00 | 08:00 a 16:00
-SÁBADO | NA | 08:00 a 12:00 | 06:00 a 22:00 | NA | NA | 06:00 a 22:00 | 08:00 a 12:00
-DOMINGOS Y FERIADOS | NA | NA | 06:00 a 22:00 | NA | 08:00 a 16:00 (solo los feriados) | 06:00 a 22:00 | NA
+DUAs de ImportaciónDefinitiva y Temporal | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 18:00 | 08:00 a 20:00 | 08:00 a 16:00(10 | 08:00 a 18:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 08:00 a 20:00 | 08:00 a 16:00
+SÁBADO | NA | 08:00 a 12:00 | 08:00 a 20:00 | NA | 08:00 a 12:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 08:00 a 20:00 | 08:00 a 12:00
+DOMINGOS Y FERIADOS | NA | NA | 08:00 a 20:00 | NA | 08:00 a 16:00 (solo los feriados) (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | NA(11) | NA
+DUAs deTránsito Aduanero | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 18:00 | 06:00 a 22:00 | 08:00 a 16:00 | 08:00 a 18:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 22:00 | 08:00 a 16:00
+SÁBADO | NA | 08:00 a 12:00 | 06:00 a 22:00 | NA | 08:00 a 12:00 (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 22:00 | 08:00 a 12:00
+DOMINGOS Y FERIADOS | NA | NA | 06:00 a 22:00 | NA | 08:00 a 16:00 (solo los feriados) (Así reformado el punto anterior mediante resolución RES-DGA-320-2010 16 de setiembre de 2010 ) | 06:00 a 22:00 | NA
 DUAS de Exportación y Reexportación | LUNES A VIERNES | 08:00 a 16:00 | 08:00 a 18:00 | 06:00 a 22:00 | 08:00 a 16:00 | 08:00 a 16:00 | 06:00 a 20:00 | 08:00 a 16:00
 SÁBADO | NA | 08:00 a 12:00 | 06:00 a 22:00 | NA | NA | 06:00 a 20:00 | 08:00 a 12:00
 DOMINGOS Y FERIADOS | NA | NA | 06:00 a 20:00 | NA | 08:00 a 16:00 (solo los feriados) | NA(12) | NA(12)

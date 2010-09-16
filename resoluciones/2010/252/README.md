@@ -14,3 +14,4 @@ Modifica resolución Nº 336 del 17 de noviembre de 2009 "Comunica actualizació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-20 | la propia norma |
+| 2 | 2010-09-16 | Resolución 320 (2010-09-16) |
