@@ -1,0 +1,1 @@
+Artículo 49.—Del informe de matrícula. El Departamento de Registro entregará al estudiante previa solicitud de este, un comprobante del resultado de los cursos matriculados a más tardar un mes después de haber iniciado el curso lectivo.

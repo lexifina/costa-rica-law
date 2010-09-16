@@ -1,0 +1,1 @@
+Artículo 38.—De la responsabilidad del coordinador de carrera. Los Coordinadores de Carrera velarán porque a los estudiantes se les brinde las oportunidades necesarias de orientación y guía para la realización de la prueba comprensiva o examen de grado, de manera que estos se efectúen en el lapso señalado.

@@ -1,0 +1,2 @@
+Artículo 34.—Selección y autorización de graduación. Para optar por cualquiera de las opciones de graduación, todo estudiante del CUNLIMON debe; haber aprobado al menos un 90% de los créditos totales para su carrera.
+Para finalizar el proyecto, de la opción escogida por el estudiante, este contará con un plazo no mayor de catorce semanas, contadas después de habérsele autorizado el opción de Graduación, por parte del coordinador de la Carrera respectiva o después de matricular el curso correspondiente para aquellas carreras que lo contengan en el Plan de Estudios.

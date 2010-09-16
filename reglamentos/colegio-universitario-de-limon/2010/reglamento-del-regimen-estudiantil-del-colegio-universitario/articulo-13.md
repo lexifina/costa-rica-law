@@ -1,0 +1,2 @@
+Artículo 13.—De la asistencia y evaluación. La asistencia a los cursos regulares teóricos y prácticas de laboratorio son obligatorios, la reprobación del curso será con la acumulación de dos ausencias injustificadas. Es obligación de todo profesor llevar el control de la asistencia.
+La evaluación de los alumnos se hará a lo largo del ciclo lectivo correspondiente y las pruebas podrán ser colegiadas, en los casos en que las asignaturas se puedan integrar en cursos colegiados.

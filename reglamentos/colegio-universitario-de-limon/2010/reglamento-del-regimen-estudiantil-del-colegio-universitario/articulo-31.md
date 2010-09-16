@@ -1,0 +1,5 @@
+Artículo 31.—Integración del Órgano Director disciplinario y su función. Se creará un Órgano Director Disciplinario de carácter Institucional constituido por tres miembros nombrados: uno por la Dirección Académica; uno por la Dirección Administrativa y uno por la Decanatura. El Órgano contará con la Asesoría Legal o de cualquier otra índole que requiera y la Institución deberá proveerla. El Órgano Director Disciplinario tendrá las siguientes funciones:
+a. Dictar sus propias normas de funcionamiento, que serán conocidas, analizadas y aprobadas por el Consejo Directivo.
+b. Conocer las presuntas faltas cometidas por estudiantes de la Institución y dictar las resoluciones respectivas con las recomendaciones procedentes ante la Dirección Académica para que esta última aplique la sanción correspondiente cuando ello proceda.
+c. Aplicar en todos sus extremos las normas establecidas para el cumplimiento del debido Proceso, según establece la Ley General de la Administración Pública.
+d. Resolver los recursos de Revisión que se le planteen, los recursos de revocatoria serán resueltos por la Decanatura, según los términos de ley.

@@ -1,0 +1,1 @@
+Artículo 47.—Del horario de las dependencias académicas. Los horarios serán confeccionados según las necesidades académicas y las posibilidades financieras y físicas del CUNLIMON. Para tal efecto, el Coordinador de Carrera confeccionará los horarios de su respectiva oferta académica y los enviará a la Dirección Académica para su revisión y aprobación final.
