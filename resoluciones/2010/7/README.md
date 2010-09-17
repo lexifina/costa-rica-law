@@ -14,3 +14,4 @@ Reforma "Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-01 | la propia norma |
+| 2 | 2010-09-17 | Resolución 322 (2010-09-17) |
