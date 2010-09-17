@@ -1,0 +1,1 @@
+Artículo 15.—Devolución de sumas autorizadas. En el caso de que la suma autorizada en la autorización de viaje sea mayor a los gastos efectuados, el director o funcionario deberá reintegrar las sumas no gastadas según los procedimientos establecidos.

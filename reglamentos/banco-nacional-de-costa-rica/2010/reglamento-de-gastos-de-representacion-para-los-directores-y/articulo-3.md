@@ -1,0 +1,2 @@
+Artículo 3º—Responsables. La Dirección Corporativa de Gestión de Medios por medio de la unidad correspondiente, es la responsable de velar por el cumplimiento del presente Reglamento y de establecer, los controles necesarios para asegurar el correcto uso de los gastos de representación.
+Los responsables de cumplir con lo establecido en este reglamento, son las personas autorizadas en el artículo anterior.

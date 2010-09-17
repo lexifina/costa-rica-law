@@ -1,0 +1,1 @@
+Artículo 8º—Reconocimiento. Para el reconocimiento de sumas por concepto de gastos de representación, los directores y funcionarios autorizados, deberán preparar la respectiva liquidación, en las fórmulas confeccionadas al efecto, y presentarlas, dentro de los treinta días hábiles después de efectuado el gasto.

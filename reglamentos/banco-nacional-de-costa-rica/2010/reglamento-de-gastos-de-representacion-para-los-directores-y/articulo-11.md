@@ -1,0 +1,1 @@
+Artículo 11.—Incumplimiento. En ningún caso se tramitarán liquidaciones que no cumplan con lo dispuesto en el presente Reglamento o cuya liquidación se haya presentado extemporáneamente o contengan información incorrecta que no haya sido subsanada oportunamente.
