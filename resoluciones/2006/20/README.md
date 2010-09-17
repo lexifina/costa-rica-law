@@ -14,3 +14,4 @@ Devoluciones de Créditos originados en Retenciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-19 | la propia norma |
+| 2 | 2010-09-17 | Resolución 14 (2010-09-17) |

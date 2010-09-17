@@ -1,5 +1,3 @@
 SECCIÓN III
 Retenciones efectuadas por la Tesorería Nacional
-Artículo 11.—En el caso de retenciones indebidas, cuando el agente de retención sea la Tesorería Nacional, y dado la condición de no declarante y las imposiciones de la Ley 8131 Ley de Administración Financiera y Presupuestos Públicos, la devolución de lo erróneamente retenido durante el periodo presupuestario vigente podrá ser efectuado por la Tesorería Nacional, deduciendo lo devuelto de los ingresos por liquidar del periodo.
-En caso de que se refiera a reclamos de periodos presupuestarios ya liquidados, será de conocimiento del Gerente de la Administración Tributaria de San José, con fundamento en la liquidación que realice la Tesorería.
-Para tales efectos el interesado deberá presentar su solicitud ante la Tesorería Nacional, la cual deberá requerirle que indique lugar para atender notificaciones dentro del perímetro de un kilómetro de dicha Administración Tributaria o dirección de correo electrónico o número de fax para que efectúe la notificación respectiva. Los recursos de revocatoria los atenderála Gerencia indicada.
+Artículo 11.—(Derogado por resolución DGT-014-2010 del 17 de setiembre de 2010)
