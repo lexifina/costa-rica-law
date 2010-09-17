@@ -1,11 +1,5 @@
-Artículo 113.—Contenido del folleto. El contenido mínimo del folleto será el siguiente:
-1) Información sobre el oferente y la oferta
-a. Denominación y domicilio de la sociedad emisora.
-b. Valores a los que se extiende la oferta.
-c. Valoraciones realizadas y contraprestación ofrecida.
-d. Garantías constituidas por el oferente para la liquidación de la oferta.
-2) Elementos formales de procedimiento
-a. Plazo de aceptación de la oferta.
-b. Formalidades que deben cumplir los destinatarios de la oferta para manifestar su aceptación, así como la forma y plazo en que recibirán la contraprestación.
-c. Gastos de aceptación y liquidación de la oferta que corran a cargo de los destinatarios (comisión de venta).
-d. Designación de los puestos de bolsa que actúen por cuenta del oferente.
+Artículo 113.—Ofertas competidoras. Dentro de los quince días hábiles siguientes a la primera publicación de la oferta podrán presentarse ofertas competidoras. El Superintendente podrá prorrogar este plazo hasta por quince días hábiles adicionales, previa solicitud de un tercero que demuestre contar con un interés legítimo.
+Toda oferta competidora deberá cumplir con los requisitos establecidos en los Artículos 85 y 86 de este Reglamento.
+Estas ofertas estarán sujetas al mismo trámite de autorización dispuesto en el Artículo 87 de este Reglamento.
+Dentro del plazo para presentar ofertas competidoras, el oferente inicial podrá modificar las características de su oferta, siempre que tal modificación implique un trato más favorable para los destinatarios de la oferta ya sea porque extienda el número de valores a los cuales se dirige o porque mejore la contraprestación ofrecida. El Superintendente autorizará la modificación siempre y cuando se hayan aportado las garantías adicionales que correspondan.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 91 al 113 actual)

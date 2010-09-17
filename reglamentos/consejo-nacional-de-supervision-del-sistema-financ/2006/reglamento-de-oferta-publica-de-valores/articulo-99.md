@@ -1,1 +1,7 @@
-Artículo 99.—Información sobre las aceptaciones recibidas. Con la periodicidad que indique el Superintendente, cada oferente deberá informar a la SUGEVAL sobre el número de aceptaciones presentadas. Asimismo, durante el plazo de aceptación, los interesados podrán obtener información sobre el número de aceptaciones recibidas en el domicilio de cada oferente, con sus representantes, o en la SUGEVAL.
+TITULO V
+Oferta pública de adquisición
+CAPÍTULO I
+Disposiciones generales
+Artículo 99.—Ámbito de aplicación. Toda persona física o jurídica que pretenda adquirir a título oneroso, acciones de una sociedad cuyo capital esté autorizado para oferta pública y admitido a negociación en una bolsa de valores, u otros valores que directa o indirectamente puedan dar derecho a la suscripción o la adquisición de acciones, y que le permita alcanzar una participación significativa en el capital con derecho a voto de la sociedad emisora de esos valores, de conformidad con lo dispuesto en el Artículo 80 de este Reglamento, deberá promover una oferta pública de adquisición en los términos previstos en este Título.
+La reducción de capital de una sociedad cuyas acciones se encuentran autorizadas para oferta pública que se realice mediante la compra por ésta de sus propias acciones, estará sujeta a la presentación de una oferta pública de adquisición, que se regirá por las reglas dispuestas en este Título salvo lo dispuesto en el Artículo 79 de este Reglamento.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 77 al 99 actual)

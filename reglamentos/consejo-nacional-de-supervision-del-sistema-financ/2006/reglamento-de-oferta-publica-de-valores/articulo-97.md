@@ -1,3 +1,3 @@
-CAPÍTULO IV
-Aceptación de la oferta y liquidación de operaciones
-Artículo 97.—Plazo de aceptación. El plazo para la aceptación de las ofertas definitivas será de quince días hábiles contados a partir de su primera publicación.
+Artículo 97.—Requisitos para la inscripción de fondos de inversión de titularización. La autorización de oferta pública de fondos de titularización estará sujeta al cumplimiento de los requisitos exigidos para la autorización de fondos de inversión en el Reglamento General sobre Sociedades Administradoras y Fondos de Inversión. Adicionalmente, la sociedad administradora deberá presentar la documentación requerida en el Artículo anterior.
+Esta información deberá presentarse como parte del trámite de autorización de oferta pública de previo a la colocación de las participaciones. La incorporación posterior de paquetes de activos requerirá el mismo proceso de autorización previa de la Superintendencia y deberá incluirse al prospecto mediante un anexo.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 75 al 97 actual)

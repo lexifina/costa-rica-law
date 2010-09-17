@@ -1,4 +1,7 @@
-Artículo 118.—Requisitos para la negociación. Para la realización de las negociaciones a que se refieren estas disposiciones, las bolsas de valores y los puestos de bolsa deberán cumplir con los siguientes requisitos:
-a) Las operaciones deberán realizarse en transacciones separadas del mercado para valores de oferta pública.
-b) En las órdenes de inversión, así como en los contratos que se suscriban con los clientes, debe constar en forma expresa la aceptación y conocimiento del cliente sobre la naturaleza de estas operaciones. Asimismo, las boletas derivadas de estas transacciones, que se entregarán al cliente, deberán contener la siguiente leyenda en forma visible:
-"Esta operación se hizo bajo la responsabilidad exclusiva de las partes y los títulos o valores transados no están suj etos a la supervisión de la Superintendencia General de Valores, de conformidad con lo establecido en el Artículo 22 de la Ley Reguladora del Mercado de Valores, ni pueden formar parte de las carteras de los fondos de inversión."
+Artículo 118.—Obligaciones de abstenerse de realizar acciones para perturbar el desarrollo de una oferta. A partir de la notificación de la suspensión y hasta la comunicación de los resultados de las ofertas, el órgano de administración de la sociedad afectada se abstendrá de realizar cualquier operación que no sea propia de la actividad ordinaria de la sociedad o que tenga por objeto perturbar el desarrollo de las ofertas.
+En particular no podrá:
+a) Acordar la emisión de obligaciones, excepto cuando se trate de ejecutar acuerdos previos o los que corresponden a la actividad normal de la empresa.
+b) Efectuar directa o indirectamente operaciones sobre los valores afectados por las ofertas con la finalidad de perturbarlas.
+c) Enajenar, gravar o arrendar activos de la sociedad cuando puedan perturbar o frustrar las ofertas, excepto cuando se trate de ejecutar acuerdos previos.
+El Presidente del órgano de administración deberá rendir informes a la SUGEVAL sobre la administración de la sociedad, con el contenido y la periodicidad que determine el Superintendente por acuerdo de alcance general.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 96 al 118 actual)

@@ -1,12 +1,27 @@
-SECCIÓN II
-Valores accionarios
-Artículo 108.—Requisitos para la desinscripción de valores accionarios. El emisor deberá cumplir con las condiciones señaladas en el Artículo 105 y adicionalmente con lo siguiente:
-a) Solicitud formal de desinscripción de conformidad con el formulario que defina el Superintendente.
-b) Copia certificada de la convocatoria a la asamblea general extraordinaria y de los avisos de publicación a que se refiere este inciso. En estos casos la convocatoria deberá hacerse mediante comunicación por correo certificado a la dirección que cada uno de los accionistas ha manifestado corresponderá para sus notificaciones, en la cual deberá constar expresamente como orden del día la decisión sobre la exclusión de la emisión en el mercado de valores.
-c) Un aviso de la convocatoria deberá publicarse en un diario de circulación nacional, en el plazo que se establezca por acuerdo de alcance general del Superintendente. En caso de que la notificación personal no pueda realizarse por causas no imputables a la empresa y así lo haga constar a la Superintendencia, la publicación tendrá efectos supletorios.
-d) El acuerdo de la asamblea general deberá aprobarse por una cantidad de votos equivalente a no menos de las dos terceras partes de la totalidad de los tenedores de las acciones que son objeto de desinscripción. Se deberá presentar la certificación notarial del acuerdo en donde conste que la propuesta de desinscripción fue aprobada en dichos términos y se indique adicionalmente los porcentajes de los inversionistas en desacuerdo y los ausentes en la asamblea.
-e) En el acuerdo deberá constar que los inversionistas conocen y aceptan que una vez desinscrita la emisión, no contarán con información periódica regulada ni podrán negociar los valores en el mercado secundario; así como, la descripción de los mecanismos dispuestos para la protección de los intereses de los inversionistas en desacuerdo y ausentes en asamblea con su respectiva aprobación.
-f) En caso de que los inversionistas aprueben la recompra de los valores, tanto esta decisión como la aceptación del precio de recompra y de la fuente de los recursos que será utilizada, deben constar en la certificación notarial del acta de asamblea. Asimismo, se debe presentar la valoración financiera realizada por perito independiente, que incorpore los fundamentos y la metodología utilizados para la determinación de ese precio. La valoración debe cumplir con las disposiciones que al respecto emita el Superintendente por acuerdo de alcance general. En todo caso el emisor deberá respetar un trato igualitario a los inversionistas.
-g) Declaración Jurada rendida ante notario público por el Presidente . de la Junta Directiva en la que manifieste que hasta donde tiene conocimiento no existe ninguna oferta pública de adquisición en proceso o en ejecución.
-h) Aviso de desinscripción, de conformidad con el formato que establezca el Superintendente. Se exceptuarán de este requisito las emisiones eximidas de la publicación del aviso de inscripción.
-En el caso de que el emisor proponga la realización de una oferta pública de adquisición por exclusión, se presentarán los documentos requeridos para ella de conformidad con la sección siguiente de este Reglamento.
+Artículo 108.—Contenido del folleto. El contenido mínimo del folleto será el siguiente:
+1) Información del oferente y la sociedad afectada
+a. Denominación y domicilio de la sociedad afectada.
+b. Nombre y domicilio del oferente o, cuando sea persona jurídica, denominación o razón social, domicilio y objeto social.
+c. Entidades que pertenezcan al mismo grupo de interés económico del oferente, con indicación de la estructura del grupo.
+d. Personas responsables de la información que consta en el folleto.
+e. Valores de la sociedad afectada de los que sea titular directa o indirectamente el oferente, las sociedades de su grupo de interés económico, otras personas que actúen por cuenta del oferente o concertadamente con él y, de ser el oferente una persona jurídica, los miembros del consejo de administración, y administradores con indicación de los derechos de voto correspondientes a los valores.
+f. Cuando el oferente sea una persona jurídica, los valores de dicha sociedad en poder de la sociedad afectada, con indicación de los derechos de voto que le correspondan.
+g. Acuerdos entre el oferente y el consejo de administración de la sociedad afectada; ventajas específicas que el oferente haya reservado a los miembros del consejo de administración de la sociedad afectada.
+h. Información sobre la actividad y situación económico-financiera de la sociedad oferente, que contendrá como mínimo:
+i. Las actividades principales de la empresa, con una descripción
+de los productos o servicios que provee y las características
+del mercado que abastece. ii. Un análisis de la trayectoria de la empresa en términos de
+su situación financiera y de los resultados obtenidos en los
+últimos dos períodos fiscales.
+2) Información sobre la oferta
+a. Valores a los que se extiende la oferta.
+b. Contraprestación ofrecida. En el caso de que se ofrezcan acciones, deberá incorporarse la información solicitada en el inciso h. del punto 1. en relación con la empresa emisora de las acciones que se ofrecen en canje. Asimismo deberán incorporarse las valoraciones de la empresa, realizadas por un profesional independiente, de conformidad con las instrucciones que emita el Superintendente.
+c. Número máximo de valores a los que se extiende la oferta y, en su caso, número de mínimo de valores a cuya adquisición se condicione la efectividad de la oferta.
+d. Garantías constituidas por el oferente para la liquidación de la oferta.
+3) Elementos formales de procedimiento
+a. Plazo de aceptación de la oferta.
+b. Formalidades que deben cumplir los destinatarios de la oferta para manifestar su aceptación, así como la forma y plazo en que recibirán la contraprestación.
+c. Gastos de aceptación y liquidación de la oferta que corran a cargo de los destinatarios (comisión de venta).
+d. Designación de los puestos de bolsa que actúen por cuenta del oferente.
+En caso de que la sociedad oferente se encuentre inscrita en el Registro Nacional de Valores e Intermediarios, únicamente se requerirá la información no remitida a la Superintendencia de acuerdo con lo que defina el Superintendente.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 86 al 108 actual)

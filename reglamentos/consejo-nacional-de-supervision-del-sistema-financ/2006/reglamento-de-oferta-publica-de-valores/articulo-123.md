@@ -1,1 +1,2 @@
-Artículo 123.—Vigencia. Rige a partir de su publicación en el Diario Oficial "La Gaceta".
+Artículo 123.—Distribución y prorrateo. Cuando el número total de valores comprendidos en las declaraciones de aceptación supere el límite máximo de la oferta, a cada aceptación se adjudicará un número de valores que represente el porcentaje fijado como límite máximo para esa aceptación en particular.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 101 al 123 actual)

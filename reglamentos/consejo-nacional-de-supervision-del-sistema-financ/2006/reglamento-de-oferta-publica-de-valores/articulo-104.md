@@ -1,1 +1,4 @@
-Artículo 104.—Límites a la desinscripción. Las sociedades cuyo capital accionario haya sido objeto de una oferta pública de adquisición no podrán desinscribirse durante el plazo de un año contado a partir del cierre de la operación, salvo que presenten una oferta pública de adquisición por exclusión de conformidad con lo dispuesto en el Título VI de este Reglamento. Para efectos de la aplicación de esta norma, se tendrá por fecha de cierre de la operación la establecida en el Artículo 102 de este Reglamento.
+Artículo 104.—Valores a los que debe dirigirse. La oferta deberá dirigirse a:
+a) Los titulares de todas las acciones de la sociedad afectada con derecho a voto.
+b) Los titulares de todos los derechos de adquisición o suscripción de acciones con derecho a voto, así como los titulares de bonos convertibles en acciones con derecho a voto.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 82 al 104 actual)

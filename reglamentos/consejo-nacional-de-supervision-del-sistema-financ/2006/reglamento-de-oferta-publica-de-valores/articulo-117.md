@@ -1,6 +1,6 @@
-Artículo 117.—Requisitos de autorización. La negociación de valores no inscritos estará sujeta a la autorización previa del gerente general de la bolsa de valores respectiva. Esta autorización estará condicionada a la presentación por parte del puesto de bolsa solicitante de la siguiente información:
-a) Nombre del emisor y características del valor a negociar.
-b) Aspectos tributarios.
-c) Jurisdicción competente a efectos de reclamos de los inversionistas.
-d) Copia de los estados financieros auditados del emisor para el último período fiscal.
-e) Mecanismo de liquidación de las transacciones.
+CAPÍTULO III
+Obligaciones de los órganos de administración
+Artículo 117.—Informe del órgano de administración. Dentro de los cinco días hábiles siguientes a la comunicación que realice el Superintendente de las ofertas autorizadas, el órgano de administración de la sociedad afectada deberá remitir a la Superintendencia y a la bolsa de valores respectiva, un informe detallado con su opinión sobre las ofertas definitivas que hayan sido autorizadas. En el informe deberá hacerse constar la existencia de cualquier acuerdo entre la sociedad afectada y cualquiera de los oferentes o entre cualquiera de éstos y los miembros del órgano de administración, tal y como se establece para el oferente en el inciso g. del punto 1. del Artículo 86 de este Reglamento. En ese mismo plazo deberá, también, proceder a su publicación en al menos un diario de circulación nacional y al menos una copia del informe deberá estar disponible para su consulta en el domicilio del emisor.
+Si el órgano de administración no presentara el informe respectivo dentro del plazo señalado en el párrafo anterior o el informe no incluyera una opinión sobre cada una de las ofertas autorizadas, el Superintendente General de Valores apercibirá a los integrantes del órgano de administración para que en el plazo máximo de dos días hábiles procedan a su presentación o adición, según corresponda, bajo pena de que el incumplimiento de esta orden podrá ser constitutiva del delito de desobediencia a la autoridad.
+La falta de emisión, presentación o publicación de dicho informe no invalidará las ofertas; ello sin perjuicio de la responsabilidad penal, administrativa o de cualquier otra índole que pueda exigirse a los directores por el incumplimiento a los deberes de información para con los accionistas.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 95 al 117 actual)

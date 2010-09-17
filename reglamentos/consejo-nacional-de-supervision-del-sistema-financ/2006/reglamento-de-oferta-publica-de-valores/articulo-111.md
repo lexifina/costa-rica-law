@@ -1,3 +1,2 @@
-SECCIÓN III
-Oferta pública de adquisición por exclusión
-Artículo 111.—Sujeción a normativa especial. Las ofertas públicas de adquisición por exclusión estarán sujetas a la normativa dispuesta en esta Sección. En lo no previsto en ella y en cuanto resulte conducente, se les aplicará la normativa general de Oferta Pública de Adquisición.
+Artículo 111.—Comunicación a los accionistas. El órgano de administración de la sociedad afectada deberá comunicar a los accionistas la existencia de una oferta pública de adquisición autorizada, dentro del plazo máximo de tres días hábiles contados a partir de la comunicación que realice la Superintendencia de conformidad con el Artículo anterior. Esta comunicación deberá realizarse por los medios que defina el Superintendente.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 89 al 111 actual)

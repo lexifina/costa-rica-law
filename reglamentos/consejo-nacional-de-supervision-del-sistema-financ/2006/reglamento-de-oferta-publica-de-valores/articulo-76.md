@@ -1,7 +1,5 @@
-Artículo 76.—Requisitos para la inscripción de emisiones de productos estructurados ligados a un valor subyacente o a un índice. Se permitirá la inscripción en el RNVI de productos estructurados mediante oferta pública restringida.
-Se deberá presentar lo siguiente:
-a) Documentación requerida en el Artículo 18 de este Reglamento. En el caso de la calificación de riesgo establecida en el inciso c., únicamente se requerirá su actualización en forma anual.
-b) Información financiera requerida en el Artículo 23 de este Reglamento. Cuando se trate de empresas domiciliadas en el exterior se deberá presentar la información auditada y exceptuadas de las restantes disposiciones del Reglamento de auditores extemos y medidas de gobierno corporativo aplicable a los sujetos fiscalizados por SUGEVAL, SUGEF y SUPEN. En caso de emisores de oferta pública en mercados organizados se podrá presentar la fuente de consulta de la información.
-c) Documentación legal y de orden administrativa señalada en el Artículo 24 de este Reglamento. Asimismo deberá informar la fuente de consulta de la información de sus subyacentes.
-d) El contrato financiero del producto estructurado y del producto estructurado global del que este se derive, este último cuando aplique, deberán formar parte del prospecto.
-El requisito indicado en el inciso d. podrá presentarse en borrador junto con la solicitud de inscripción. No obstante, una vez emitida la resolución de autorización, deberá presentarse en original conforme a lo dispuesto en el Artículo 41 de este Reglamento.
+Artículo 76.—Partes del fideicomiso de desarrollo de obra pública. Las partes del fideicomiso de desarrollo de obra pública se deben ajustar a los siguientes lineamientos:
+a. El fideicomitente: Únicamente puede constituirse como fideicomitente la Administración Pública, según se define en el artículo 74 de este Reglamento.
+b. El fiduciario: Pueden constituirse como fiduciarios los bancos sujetos a la supervisión de la SUGEF, y los organismos financieros internacionales con participación del Estado costarricense.
+c. El fideicomisario: Serán fideicomisarios la Administración Pública para la que esté destinada el proyecto, así como los inversionistas tenedores de valores emitidos por el fideicomiso.
+(Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

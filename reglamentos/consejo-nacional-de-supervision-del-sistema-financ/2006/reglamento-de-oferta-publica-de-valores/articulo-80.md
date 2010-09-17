@@ -1,3 +1,7 @@
-Artículo 80.—Definición de participación significativa. Para la aplicación de este Título se entenderá por participación significativa aquella que represente un porcentaje igual o superior al veinticinco por ciento (25%) del capital en circulación y con derecho a voto de la sociedad afectada.
-Cuando el oferente pretenda alcanzar una participación igual o superior al veinticinco por ciento (25%), pero inferior o igual al cincuenta por ciento (50%), la oferta deberá realizarse sobre una cantidad de valores que represente como mínimo el diez por ciento (10%) del capital de la sociedad afectada.
-Cuando el oferente pretenda alcanzar una participación superior al cincuenta por ciento (50%), la oferta deberá realizarse sobre una cantidad de valores que le permita al adquirente alcanzar, al menos, el setenta y cinco por ciento (75%) del capital de la sociedad afectada.
+SECCIÓN II: ESTRUCTURA ADMINISTRATIVA Y
+FUNCIONAL DE LOS FIDEICOMISOS DE
+DESARROLLO DE OBRA PÚBLICA
+Artículo 80.—De la estructura administrativa y funcional del fideicomiso. El fideicomiso debe contar con una estructura adecuada a su objetivo, tanto a nivel administrativo como funcional, la cual se debe establecer en el contrato de fideicomiso, y se debe revelar a los inversionistas mediante un apartado en el prospecto.
+La estructura administrativa, debe contemplar la existencia de una unidad administradora de proyectos y del comité de vigilancia, según lo dispuesto en este capítulo.
+La estructura funcional debe incluir las políticas y procedimientos que rigen el fideicomiso y en particular a la unidad administradora y al comité de vigilancia. También debe definir en términos generales las políticas y criterios de selección para la contratación de los profesionales o empresas a participar en el proyecto. El contrato debe indicar quién o quiénes son los responsables de la elaboración y aprobación de las políticas y procedimientos que componen la estructura funcional. Dichos procedimientos y políticas deben estar a disposición del público inversionista.
+(Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

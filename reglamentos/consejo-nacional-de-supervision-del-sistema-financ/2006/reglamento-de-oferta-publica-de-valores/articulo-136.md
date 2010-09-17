@@ -1,0 +1,5 @@
+CAPÍTULO II
+Desinscripción obligatoria
+Artículo 136.—Desinscripción de oficio. Aquellos emisores que no posean emisiones vigentes autorizadas para oferta pública por un periodo superior a seis meses consecutivos desde el vencimiento de la última emisión, serán desinscritos de oficio del RNVI y se informará al mercado mediante un Comunicado de Hechos Relevantes. Se exceptúan de esta disposición el Gobierno Central y el Banco Central de Costa Rica.
+En caso de que deseen inscribir nuevas emisiones antes del vencimiento de ese plazo, esta Superintendencia podrá dar por válida únicamente la información vigente que consta en el expediente, siempre y cuando los requisitos no varíen en relación con la documentación presentada originalmente. El representante legal del emisor deberá remitir una declaración jurada en la que indique los documentos que procede considerar como vigentes para efectos de la nueva solicitud. Una vez transcurrido dicho plazo, aplicarán los requisitos dispuestos para un emisor nuevo.
+(Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 114 al 136 actual)

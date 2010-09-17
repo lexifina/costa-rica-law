@@ -1,26 +1,3 @@
-Artículo 86.—Contenido del folleto. El contenido mínimo del folleto será el siguiente:
-1) Información del oferente y la sociedad afectada
-a. Denominación y domicilio de la sociedad afectada.
-b. Nombre y domicilio del oferente o, cuando sea persona jurídica, denominación o razón social, domicilio y objeto social.
-c. Entidades que pertenezcan al mismo grupo de interés económico del oferente, con indicación de la estructura del grupo.
-d. Personas responsables de la información que consta en el folleto.
-e. Valores de la sociedad afectada de los que sea titular directa o indirectamente el oferente, las sociedades de su grupo de interés económico, otras personas que actúen por cuenta del oferente o concertadamente con él y, de ser el oferente una persona jurídica, los miembros del consejo de administración, y administradores con indicación de los derechos de voto correspondientes a los valores.
-f. Cuando el oferente sea una persona jurídica, los valores de dicha sociedad en poder de la sociedad afectada, con indicación de los derechos de voto que le correspondan.
-g. Acuerdos entre el oferente y el consejo de administración de la sociedad afectada; ventajas específicas que el oferente haya reservado a los miembros del consejo de administración de la sociedad afectada.
-h. Información sobre la actividad y situación económico-financiera de la sociedad oferente, que contendrá como mínimo:
-i. Las actividades principales de la empresa, con una descripción
-de los productos o servicios que provee y las características
-del mercado que abastece. ii. Un análisis de la trayectoria de la empresa en términos de
-su situación financiera y de los resultados obtenidos en los
-últimos dos períodos fiscales.
-2) Información sobre la oferta
-a. Valores a los que se extiende la oferta.
-b. Contraprestación ofrecida. En el caso de que se ofrezcan acciones, deberá incorporarse la información solicitada en el inciso h. del punto 1. en relación con la empresa emisora de las acciones que se ofrecen en canje. Asimismo deberán incorporarse las valoraciones de la empresa, realizadas por un profesional independiente, de conformidad con las instrucciones que emita el Superintendente.
-c. Número máximo de valores a los que se extiende la oferta y, en su caso, número de mínimo de valores a cuya adquisición se condicione la efectividad de la oferta.
-d. Garantías constituidas por el oferente para la liquidación de la oferta.
-3) Elementos formales de procedimiento
-a. Plazo de aceptación de la oferta.
-b. Formalidades que deben cumplir los destinatarios de la oferta para manifestar su aceptación, así como la forma y plazo en que recibirán la contraprestación.
-c. Gastos de aceptación y liquidación de la oferta que corran a cargo de los destinatarios (comisión de venta).
-d. Designación de los puestos de bolsa que actúen por cuenta del oferente.
-En caso de que la sociedad oferente se encuentre inscrita en el Registro Nacional de Valores e Intermediarios, únicamente se requerirá la información no remitida a la Superintendencia de acuerdo con lo que defina el Superintendente.
+Artículo 86.—Del comité de vigilancia. Para cada fideicomiso de desarrollo de obra pública debe constituirse un comité de vigilancia que vele por la calidad de la gestión de los proyectos a desarrollar y la adecuada administración de los flujos provenientes de los contratos de arrendamiento, por parte del fiduciario. Este comité debe ser un grupo de profesionales con experiencia en el desarrollo y administración de proyectos, de similar magnitud en relación con el objeto del fideicomiso, de las cuales al menos una debe ser representante del fideicomitente, y al menos una debe ser independiente del fideicomitente, de la entidad fiduciaria, de la entidad estructuradora y de sus respectivos grupos vinculados, de conformidad con lo establecido en los artículos 6 y 9 del Acuerdo SUGEF-4-04 “Reglamento sobre el grupo vinculado a la entidad”.
+La cantidad de miembros, los criterios y el procedimiento para su selección se deben estipular en el contrato de fideicomiso. Los miembros de la unidad administradora no pueden formar parte del comité.
+El comité de vigilancia debe llevar actas de sus reuniones, en los términos en que lo determine el Superintendente, mediante acuerdo de alcance general. Asimismo, debe someter a conocimiento del fideicomitente y fiduciario, informes de gestión del fideicomiso, al menos cada tres meses, o inmediatamente, tan pronto tenga conocimiento de situaciones o eventos trascendentales que incidan sobre la operativa del fideicomiso, sin perjuicio del cumplimiento de las otras obligaciones de remisión de información que le corresponden al fideicomiso como emisor de valores.
