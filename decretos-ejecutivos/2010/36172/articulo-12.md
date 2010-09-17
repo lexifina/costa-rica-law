@@ -1,0 +1,1 @@
+Artículo 12.—Del Coordinador de los Acuerdos del Consejo. El Consejo Portuario Nacional designará a un Coordinador, quien será el encargado de coordinar y dar formal seguimiento a la ejecución y cumplimiento de todos los acuerdos, resoluciones, recomendaciones, sugerencias y políticas sectoriales que el Consejo emita.
