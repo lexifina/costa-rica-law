@@ -14,3 +14,4 @@ Comunica a Transportistas Aduaneros Nacionales, Centroamericanos y Panamá su Ob
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-04 | la propia norma |
+| 2 | 2010-09-17 | Resolución 321 (2010-09-17) |
