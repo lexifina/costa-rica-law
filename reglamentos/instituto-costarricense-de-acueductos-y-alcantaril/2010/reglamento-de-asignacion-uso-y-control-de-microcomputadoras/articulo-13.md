@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Normativa aplicable
+Artículo 13.—Normativa aplicable. Además de este Reglamento, la asignación de microcomputadoras portátiles para uso y custodia de funcionarios y contratistas, estará sometida a la normativa que rige las actuaciones de la Administración Pública, según sea su jerarquía, lo cual incluye, y no se agota, en los principios constitucionales y legales en materia tecnológica de información, las disposiciones de la Ley de Control Interno que al efecto emita la Contraloría General de la República, activos del estado, contabilidad estatal y presupuesto, así como cualquier otra disposición de acatamiento general establecida por los jerarcas de la Institución en el ejercicio legítimo de sus potestades.

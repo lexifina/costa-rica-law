@@ -1,0 +1,8 @@
+Artículo 2º—Para efectos de este Reglamento se entiende por:
+a) AyA: Instituto Costarricense de Acueductos y Alcantarillados.
+b) Funcionario público responsable: persona que presta sus servicios al AyA en forma subordinada, retribuida salarialmente en propiedad o como interino, en virtud de un acto válido y eficaz de investidura, y que para la prestación de sus servicios le ha sido asignado en forma exclusiva y temporal, el uso y custodia de una microcomputadora portátil.
+c) Contratista responsable: persona contratada para la prestación de servicios técnicos o profesionales, siguiendo al efecto los procedimientos de licitación o contratación directa, cuyo pliego de condiciones y contrato de servicios establezca la entrega en depósito de una microcomputadora portátil para el cumplimiento exclusivo de las actividades objeto de su contratación con AyA.
+d) Microcomputadora portátil: es una computadora que por su tamaño, peso e integración de múltiples componentes es capaz de realizar las tareas que realizan las computadoras de escritorio pero con la facilidad de movilizarla y operar en lapsos considerables de tiempo dependiendo de sus propios recursos.
+e) Microcomputadora de uso organizacional: es una microcomputadora que no se asigna a ninguna persona física en particular, sino a una Dependencia, para su uso general.
+f) Reglamento de TI: Reglamento para la adquisición y administración de recursos informáticos.
+g) Servicios técnicos y profesionales: son los servicios diversos contratados, requeridos para estudios, servicios técnicos o profesionales, en proyectos y actividades propias de la gestión institucional.

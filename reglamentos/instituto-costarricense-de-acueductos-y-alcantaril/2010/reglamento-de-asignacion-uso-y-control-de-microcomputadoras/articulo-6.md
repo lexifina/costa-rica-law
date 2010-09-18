@@ -1,0 +1,1 @@
+Artículo 6º—La asignación de la microcomputadora portátil no genera ningún derecho, no se considera parte del salario, ni como atribución o beneficio personal. En consecuencia la Administración podrá retirar tal asignación en cualquier momento en que se den los motivos señalados en este Reglamento.
