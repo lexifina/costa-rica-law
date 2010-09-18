@@ -11,3 +11,9 @@ b) Que no han sido sancionados, los miembros de la papeleta, por ningún órgano
 c) La papeleta debe presentarse con una lista no menor del 3% de los miembros activos del Colegio indicando su apoyo a la papeleta. En dicha lista deben consignarse nombre, dos apellidos, número de código y firma de cada uno de los que apoyan dicha papeleta.
 El tribunal está facultado para analizar e investigar el expediente de cada uno de los integrantes de las diferentes papeletas, previo a aprobar su inscripción.
 (Así reformado este artículo mediante sesión de la Asamblea General Extraordinaria de fecha 8 de julio del 2004; así como mediante FE DE ERRATAS publicada en La Gaceta N° 145, de fecha 26 de julio del 2004, por la que se corrigen los textos de los artículos No. 19 y No. 26).
+(*)La lista debe presentarse en los formularios que suministrará gratuitamente el Tribunal Electoral, cada formulario estará en una hoja debidamente foliada, que llevará el sello del Tribunal y la firma del funcionario que la entrega, la que debe encabezarse con el siguiente texto:
+Colegio de Cirujanos Dentistas de Costa Rica
+Tribunal Electoral
+Los suscritos miembros activos del Colegio de Cirujanos Dentistas de Costa Rica apoyamos a la siguiente papeleta para las elecciones que se celebrarán el ….. de….. de….
+Cargos a elegir Nombre del Candidato.
+(*)(Así adicionado el párrafo anterior por Asamblea General Extraordinaria N° 46-2010 del 18 de setiembre de 2010)

@@ -15,3 +15,4 @@ Código Electoral del Colegio de Cirujanos Dentistas
 | 1 | 1995-02-02 | la propia norma |
 | 2 | 2001-03-15 | Reglamento 0 (2001-03-15) |
 | 3 | 2004-07-08 | Reglamento 0 (2004-07-08) |
+| 4 | 2010-09-18 | Reglamento 46 (2010-09-18) |
