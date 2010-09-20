@@ -14,3 +14,4 @@ Reglamento de Estacionamiento de Vehículos en las Vías Públicas del cantón d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-28 | la propia norma |
+| 2 | 2010-09-20 | Reglamento municipal 38 (2010-09-20) |

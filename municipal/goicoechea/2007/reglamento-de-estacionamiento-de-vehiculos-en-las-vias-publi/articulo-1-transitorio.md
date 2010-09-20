@@ -1,3 +1,4 @@
 CAPÍTULO VII
 Normas transitorias
 Transitorio único.—Para el inicio de la operación del sistema de estacionómetros se fija una tarifa de ciento noventa colones por media hora de estacionamiento y de trescientos setenta y cinco colones por una hora de estacionamiento. El horario inicial del sistema de estacionómetros será de lunes a sábado de las siete a las diecinueve horas.
+(Nota de Sinalevi: La Municipalidad de Goicoechea, en sesión N° 38-10, celebrada el día 20 de setiembre de 2010, Artículo 12, aprobó: "...El Concejo Municipal en sesión ordinaria Nº 23-10, celebrada el día 07 de junio del 2010, aprueba la ampliación de tres meses naturales del día 30 de setiembre del 2010, durante el cual no se cobrará estacionamiento con boleta en los sitios públicos; condiciones y otros quedan en los mismos términos de la publicación original.")
