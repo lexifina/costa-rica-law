@@ -17,3 +17,4 @@ Reglamento Orgánico del Consejo Técnico de Asistencia Médico-Social
 | 2 | 1987-08-04 | Decreto Ejecutivo 17696 (1987-08-04) |
 | 3 | 1988-06-23 | Decreto Ejecutivo 18205 (1988-06-23) |
 | 4 | 1995-05-18 | Decreto Ejecutivo 24347 (1995-05-18) |
+| 5 | 2010-09-20 | Decreto Ejecutivo 36225 (2010-09-20) |
