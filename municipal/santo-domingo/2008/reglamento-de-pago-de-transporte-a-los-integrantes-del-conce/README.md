@@ -14,3 +14,4 @@ Reglamento de pago de transporte a los integrantes del Concejo Municipal de la M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-05 | la propia norma |
+| 2 | 2010-09-20 | Reglamento municipal 34 (2010-09-20) |
