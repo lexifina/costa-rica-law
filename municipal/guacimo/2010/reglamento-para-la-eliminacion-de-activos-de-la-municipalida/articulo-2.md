@@ -1,0 +1,1 @@
+Artículo 2º—Cada activo deberá estar debidamente identificado y plaqueado, debiendo el Departamento Administrativo a cargo, mantener un registro documental, preferiblemente mediante expediente, en donde se señale las características del bien (fecha de adquisición, costo de la compra, etc), departamento al cual fue asignado, así como funcionario responsable de su uso.

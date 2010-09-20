@@ -1,0 +1,1 @@
+Artículo 3º—Salvo disposición expresa en contrario, corresponderá al Departamento de Proveeduría Municipal, llevar el control de los activos de esta Municipalidad, así como girar los lineamientos que garanticen el cumplimiento de lo dispuesto en el artículo 2 de este Reglamento.

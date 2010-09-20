@@ -1,0 +1,1 @@
+Artículo 7º—Cuando se trate de la eliminación de activos de equipo de cómputo, previamente mediante asistencia de los asesores en informática, que presten servicios a esta Municipalidad, de asegurar la obtención de los respaldos de información pertinentes.
