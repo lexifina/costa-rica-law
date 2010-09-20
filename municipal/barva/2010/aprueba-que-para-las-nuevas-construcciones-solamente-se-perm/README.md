@@ -15,3 +15,4 @@ Aprueba que para las nuevas construcciones solamente se permitirá la construcci
 | --- | --- | --- |
 | 1 | 2010-06-15 | la propia norma |
 | 2 | 2010-08-11 | Acuerdo municipal 1166 (2010-08-11) |
+| 3 | 2010-09-20 | Acuerdo municipal 1400 (2010-09-20) |
