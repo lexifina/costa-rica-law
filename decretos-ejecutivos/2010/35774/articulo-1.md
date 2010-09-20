@@ -21,9 +21,11 @@ c) Calendario Agrícola: Período de tiempo que comprende el momento de inicio d
 d) Costos de Producción: Valor monetario de los materiales, insumos, equipo, mano de obra, tierra, cargas sociales y financieras necesarias para la atención de un ciclo de cultivo y la obtención de una producción de grano puesta en el centro de compras en un periodo de tiempo determinado.
 e) Cosecha nacional: Salida de producción nacional de maíz blanco y frijol en el calendario agrícola.
 f) Desabasto: Faltante proyectado de frijol o de maíz blanco para cubrir la necesidades de consumo nacional dentro del calendario agrícola.
-g) Frijol: Frijol rojo o negro del género y especie Phaseolus_Vulgaris o frijol común con tamaño de 7mm a 12 mm. Inciso arancelario 0708.20.00.
+g) Frijol: Se refiere a frijoles rojos o negros (Vigna spp., Phaseolus spp.).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36178 del 20 de setiembre de 2010)
 h) Industrial de frijol o maíz: Personas físicas o jurídicas que participan en el mercado de frijol y maíz blanco, dándole al mismo un acondicionamiento para que éste pueda comercializarse en las etapas siguientes de la cadena.
-i) Maíz Blanco: Se refiere a grano blanco del género y especie Zea maíz. Inciso arancelario 1006.90.30.
+i) Maíz Blanco: Se refiere a grano blanco del género y especie Zea maíz
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36178 del 20 de setiembre de 2010)
 j) Norma de compra al productor: Son las especificaciones de calidad e inocuidad establecidas por el CNP para la compra del grano al productor, de manera que le permita en el proceso de industrialización que el producto cumpla con los reglamentos técnicos vigentes.
 k) Norma de venta en anaquel: Son las especificaciones de calidad e inocuidad establecidas en los Reglamentos Técnicos; RTCR 384:2004 Frijol en grano y NCR 182:1993 Maíz en grano.
 l) Nuevos participantes: Nuevos industrializadores de frijol o maíz blanco que no hayan tenido participación en la compra de cosecha nacional o en la importación de dichos granos.

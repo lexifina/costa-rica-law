@@ -15,3 +15,4 @@ Reglamento a la Ley de Requisitos de Desempeño para la Importación de Frijol y
 | --- | --- | --- |
 | 1 | 2010-02-26 | la propia norma |
 | 2 | 2010-03-24 | Decreto Ejecutivo 35907 (2010-03-24) |
+| 3 | 2010-09-20 | Decreto Ejecutivo 36178 (2010-09-20) |
