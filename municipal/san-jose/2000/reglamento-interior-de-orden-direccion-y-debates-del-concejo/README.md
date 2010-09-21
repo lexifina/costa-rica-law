@@ -16,3 +16,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Can
 | 1 | 2000-04-14 | la propia norma |
 | 2 | 2003-03-04 | Reglamento municipal 44 (2003-03-04) |
 | 3 | 2004-12-26 | Reglamento municipal 139 (2004-12-26) |
+| 4 | 2010-09-21 | Reglamento municipal 21 (2010-09-21) |

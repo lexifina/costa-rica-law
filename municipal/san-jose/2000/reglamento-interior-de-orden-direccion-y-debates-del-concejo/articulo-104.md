@@ -1,9 +1,6 @@
-CAPÍTULO XV
+CAPITULO XVI
 Disposiciones Generales
-Artículo 104.—Los Regidores y Síndicos, y todo funcionario que se encuentre en la sala de sesiones, usarán el ceremonial de ponerse de pie sólo en los siguientes casos:
-a) Cuando se introduzca el Pabellón Nacional al Plenario Municipal.
-b) Cuando se juramente el directorio del Concejo.
-c) Cuando se reciban miembros de los Supremos Poderes.
-d) En caso de guardar silencio, por el tiempo que establezca la Presidencia Municipal, con motivo del fallecimiento de algún ciudadano.
-e) Al hacer ingreso al plenario municipal cualquier persona, con motivo de una audiencia.
-f) Cuando se juramenten los Consejos de Distrito y cualquiera otro organismo nombrado por el Concejo.
+Artículo 104.—Para la elección de las Jefaturas de las Fracciones Políticas representadas en el Concejo, figura a la que hace alusión este Reglamento en varios acápites, y con el objeto de que sea aceptada su representación por éste, deberán acatarse los siguientes lineamientos:
+Los Regidores/as Propietarios o Suplentes, deberán haber sido electos por representación popular, como miembro del partido político a quien pretende representar; elección que deberá haber sido así confirmada mediante resolución del Tribunal Supremo de Elecciones.
+- Quienes contaran con el derecho de elegir a su jefe de fracción, o vocero, y representante ante el Concejo Municipal; deberán ser única y exclusivamente los miembros de su misma fracción política, electos mediante voto popular, como representantes del partido, para el cual eligen la jefatura de fracción; y nunca bajo ninguna circunstancia, disidentes de otras fracciones políticas, representadas o no en el seno del Concejo Municipal.
+(Así adicionado en sesión ordinaria N° 21 del 21 de setiembre de 2010)
