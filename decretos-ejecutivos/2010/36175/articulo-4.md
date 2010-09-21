@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de Eficiencia Administrativa trabajará conforme a una agenda anual que programará las actividades a realizar, los productos esperados, los responsables y los plazos de cumplimiento correspondientes a cada período gubernamental. Esta agenda deberá ser publicada en el sitio electrónico de MIDEPLAN.

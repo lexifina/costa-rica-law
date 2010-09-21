@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión de Eficiencia Administrativa se regirá por el Capítulo Tercero del Título Segundo del Libro Primero de la Ley General de la Administración Pública (Nº 6227 de 2 de mayo de 1978) en todo lo relacionado con los órganos colegiados.

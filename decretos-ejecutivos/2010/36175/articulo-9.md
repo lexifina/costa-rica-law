@@ -1,0 +1,1 @@
+Artículo 9º—El Área de Modernización del Estado de MIDEPLAN fungirá como Secretaría Técnica de la Comisión de Eficiencia Administrativa y la o el Director de esa Área fungirá como Secretaria o Secretario Técnico.

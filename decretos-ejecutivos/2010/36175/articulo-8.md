@@ -1,0 +1,1 @@
+Artículo 8º—Las recomendaciones de la Comisión de Eficiencia Administrativa deberán ser comunicadas a los responsables de su eventual aplicación, por medio de la o el Ministro de MIDEPLAN. La Secretaría Técnica de la Comisión dará seguimiento a las posibles medidas de aplicación de las recomendaciones por parte de las instituciones involucradas.

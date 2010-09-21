@@ -1,0 +1,1 @@
+Artículo 7º—Las recomendaciones de la Comisión de Eficiencia Administrativa se orientarán preferentemente hacia el mejoramiento de las actividades de planificación, gestión y organización institucional; de la administración financiera y los recursos humanos; y, del control y evaluación de la Administración Pública.
