@@ -1,0 +1,1 @@
+Artículo 10.—Régimen Sancionatorio: La infracción de las disposiciones contenidas en este Reglamento, la oferta y la realización de rifas ilegales serán sancionadas conforme con las disposiciones penales correspondientes.

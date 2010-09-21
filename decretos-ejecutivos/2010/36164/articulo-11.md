@@ -1,0 +1,2 @@
+Artículo 11.—Recursos: Contra el acuerdo de la Junta Directiva de la Junta de Protección Social que deniegue la autorización solicitada, cabe recurso de reposición, el cual debe ser interpuesto de conformidad con las reglas del Código Procesal Contencioso-Administrativo.
+Contra la decisión de rechazo ad portas tomada por la Gerencia General de conformidad con el artículo 7º de este Reglamento, caben los recursos de revocatoria con apelación en subsidio, los cuales se tramitarán de acuerdo con las reglas establecidas en la Ley General de la Administración Pública.

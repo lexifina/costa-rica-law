@@ -1,0 +1,1 @@
+Artículo 5º—Queda a discreción de la Junta Directiva de la Junta de Protección Social, o de cualquier dependencia de la Junta de Protección Social la posibilidad de exigir, por los medios pertinentes, la verificación de la autenticidad de la solicitud y los documentos agregados a ésta.

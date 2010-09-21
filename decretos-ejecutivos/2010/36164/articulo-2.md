@@ -1,0 +1,2 @@
+Artículo 2º—Órgano que emite la autorización: Corresponde a la Junta Directiva de la Junta de Protección Social emitir mediante acuerdo la autorización de rifas efectuadas por asociaciones, fundaciones y entidades de bien social, para cuyos efectos debe cumplirse con los requisitos establecidos en este Reglamento.
+En todos los casos las solicitudes efectuadas deben contar con el criterio legal respectivo y con una recomendación de la Gerencia General de la Junta.

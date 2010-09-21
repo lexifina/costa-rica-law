@@ -1,0 +1,4 @@
+Artículo 3º—Definiciones y Abreviaturas:
+Bien Social: Satisfacción de las necesidades básicas fundamentales de la sociedad costarricense, encaminadas a fortalecer el sistema de seguridad social y el mejoramiento de la calidad de vida de los sectores más vulnerables de la población, en los siguientes ámbitos: salud, asistencia médica, prevención y atención del cáncer, discapacidad, prevención y atención del VIH-SIDA, fármacodependencia y alcoholismo, personas menores de edad en condición de abandono y vulnerabilidad, adulto mayor y otros sectores que, luego de llevar a cabo los estudios correspondientes, por acuerdo de la Junta Directiva de la Junta de Protección Social deban incluirse.
+Rifa: Sorteo cuyo premio es una “cosa”, sin ánimo de lucro y en el tanto sus utilidades sean destinadas a los fines de las organizaciones mencionadas.
+Junta de Protección Social: Será denominada como “La Junta”.

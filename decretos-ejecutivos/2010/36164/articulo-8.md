@@ -1,0 +1,2 @@
+Artículo 8º—Obtenida la autorización los interesados mediante oficio deben presentar los talonarios a efecto de ser sellados por la Gerencia General de la Junta de Protección Social y suscribir un convenio comprometiéndose a cumplir los términos de la autorización otorgada.
+Este requerimiento no aplica en los casos en los cuales se utilicen medios tecnológicos para la venta y distribución de la rifa.

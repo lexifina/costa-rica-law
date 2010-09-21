@@ -1,0 +1,1 @@
+Artículo 6º—Los requisitos anteriores deben ser presentados con un plazo mínimo de tres meses de anticipación a la realización de la rifa. En el plazo máximo de un mes posterior a la presentación de todos los requisitos mencionados, la Junta de Protección Social estará obligada a dar contestación a las solicitudes planteadas.
