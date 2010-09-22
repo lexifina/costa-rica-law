@@ -16,3 +16,4 @@ Reglamento de Patentes y Permisos de Fiestas Cívicas, Patronales, Turnos, Feria
 | 1 | 1999-02-17 | la propia norma |
 | 2 | 2009-06-10 | Reglamento municipal 163 (2009-06-10) |
 | 3 | 2010-09-08 | Reglamento municipal 19 (2010-09-08) |
+| 4 | 2010-09-22 | Reglamento municipal 21 (2010-09-22) |

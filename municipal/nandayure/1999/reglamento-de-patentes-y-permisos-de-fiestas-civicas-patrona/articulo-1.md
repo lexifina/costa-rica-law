@@ -73,7 +73,8 @@ Contrato taurino y programación del evento.
 En caso de uso de pólvora, juegos pirotécnicos, autorización del
 Departamento de Armas y Explosivos del Ministerio de Seguridad Pública. Firma responsable del solicitante.
 Estar al día en el pago de los impuestos municipales.
-La solicitud junto con los requisitos deberá presentarse con un mes de tiempo. No se permite los juegos de azar, salvo los aceptados por la ley.
+La solicitud junto con los requisitos deberá presentarse con ocho días de anticipación(*). No se permite los juegos de azar, salvo los aceptados por la ley.
+(*)(Así reformado mediante sesión N° 21 del 22 de setiembre de 2010)
 El Concejo Municipal nombrará un fiscal para que ejerza vigilancia de las corridas.
 Deberá cancelarse a la Municipalidad el porcentaje establecido por la ley, por concepto de espectáculos públicos (corridas de toros, bailes, etc.).
 Veintidós días después de efectuada la actividad, deberá rendir un informe económico por escrito a esta Municipalidad, en forma detallada por actividad.
