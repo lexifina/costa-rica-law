@@ -1,0 +1,1 @@
+Artículo 12.—Se podrán construir infraestructura para telecomunicaciones en inmuebles públicos, inscritos o no, siempre y cuando no se perjudique su destino público final, sujeto al pago del canon correspondiente por ocupación de espacio público y el impuesto de construcciones; siendo factible prescindir del requisito del visado municipal previa resolución motivada.

@@ -1,0 +1,4 @@
+CAPÍTULO III
+De la ubicación e instalación de infraestructuras
+para telecomunicaciones
+Artículo 8°—La Municipalidad otorgará el certificado de uso de suelo una vez que haya sido aprobado el correspondiente visado municipal; debiendo entenderse que la infraestructura para telecomunicaciones constituye una obra que puede ser desarrollada en cualquier zonificación en razón a sus especificaciones y requerimientos técnicos. El CUS deberá indicarle al interesado como condicionante cuales son los alineamientos que deberá cumplir a efecto de obtener la respectiva licencia constructiva, así como las aprobaciones previas que deberá obtener de otras instituciones (INVU, INCOFER, MOPT, AyA, CNFL/ICE, MCJD, CFIA, INS/Bomberos, DGAC, SETENA, MINAET, SUTEL, Ministerio de Salud, Oficina del Ambiente de la MSJ, Hidrología de la MSJ, entre otras a valoración de la Municipalidad).

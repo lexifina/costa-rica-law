@@ -1,0 +1,6 @@
+Artículo 7°—Le corresponde a la municipalidad:
+a) Otorgar el Visado Municipal, y Certificado de Uso del Suelo y Alineamiento.
+b) Dictar las medidas necesarias para el cumplimiento de este Reglamento con el objeto de que, toda construcción, instalación y modificación en obras de telecomunicaciones cumpla con los alineamientos fundamentales, y demás normas de índole constructiva.
+c) Llevar un registro de las torres, postes, y demás estructuras para redes y/o sistemas de telecomunicación, que se encuentren ya instaladas y por instalar en la jurisdicción del cantón para el control y planificación interna.
+d) Emitir, tasar y fiscalizar la licencia y patente comercial cuando medie el ejercicio de una actividad lucrativa por parte de cualquiera de los interesados, comerciantes y desarrolladores de telecomunicaciones según lo dispone la Ley de Impuesto de Patentes de Actividades Lucrativas y su Reglamento. La municipalidad podrá corroborar u obtener la información necesaria para el cumplimiento de esta atribución con la Sutel o el Ministerio de Hacienda.
+e) Regular, otorgar, registrar, inspeccionar, denegar, anular y ejercer cualquier facultad sancionatoria en relación con las licencias municipales en caso de no sujetarse a lo dispuesto en este Reglamento y normativa conexa.

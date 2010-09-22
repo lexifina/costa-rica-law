@@ -1,0 +1,1 @@
+Artículo 13.—Se deberá mantener una franja de amortiguamiento alrededor de una torre de telecomunicaciones del diez por ciento (10%) de su altura, medido desde el borde externo de la base de la infraestructura respecto a los límites del predio en que se ubican las obras.

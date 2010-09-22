@@ -1,0 +1,1 @@
+Artículo 11.—No se permitirán construcciones e instalación de obras constructivas de telecomunicaciones en áreas de protección de ríos, monumentos públicos, zonas de protección histórico-patrimonial, o en aquellas que la Dirección General de Aviación Civil, e instituciones de gobierno emitan su criterio negativo.
