@@ -1,0 +1,1 @@
+XI.—Determinar que para la revocación de los certificados de homologación motivado por causa de quejas de los clientes, éstas deberán ser generalizadas y valoradas por la SUTEL siguiendo los procedimientos respectivos, de conformidad con lo establecido en el punto X aparte 9 de la parte dispositiva de la resolución en cuestión.
