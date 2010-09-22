@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Cultura y Juventud deberá llevar a los trámites pertinentes ante la Notaría del Estado, a efecto de que se proceda con la rectificación de medidas de las fincas, 1-82508-000 y 2-142098-000.
