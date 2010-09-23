@@ -1,2 +1,0 @@
-Artículo 24.—Desinscripciones: Después aceptada y ratificada la inscripción inicial por el órgano responsable, las inscripciones para completar cupo máximo, así como nuevas inscripciones por desinscripción, se realizaran ante la Oficina Regional del ICODER, o la Comisión Técnica por Deporte cuando le corresponda por etapa.
-Al desinscribir un participante ante el órgano respectivo, se deberá adjuntar su cédula de competición para ser anulada.

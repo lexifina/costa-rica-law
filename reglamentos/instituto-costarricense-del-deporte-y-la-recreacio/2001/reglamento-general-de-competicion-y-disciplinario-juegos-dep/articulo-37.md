@@ -1,1 +1,0 @@
-Artículo 37.—Publicidad de patrocinadores: Los uniformes, dispondrán de un espacio frontal o dorsal destinado para identificar a su patrocinador. Dicha espacio no puede exceder al área destinada con el nombre de la Agrupaciones Deportivas y/o Comités Cantonales de Deporte que representan.
