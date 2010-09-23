@@ -1,0 +1,1 @@
+III.—Que en atención al interés público, el ICE y la SUTEL realizarán una campaña publicitaría a partir del mes de octubre del presente año en la que informe a la ciudadanía en general el cambio de de números especiales de 3 a 4 dígitos, los números de emergencia 112 y 911 así como la nueva estructura de códigos de preselección de operador.

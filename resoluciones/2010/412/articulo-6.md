@@ -1,0 +1,1 @@
+VI.—En lo que corresponde a los códigos de preselección automática; se concede al ICE un plazo de 6 meses a partir de la notificación de la presente resolución, para que implemente en sus redes los cambios necesarios que permitan esta nueva modalidad de trasegar tráfico entre redes.
