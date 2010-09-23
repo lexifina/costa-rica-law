@@ -1,0 +1,1 @@
+Artículo 2º—Propósito. Tiene como propósito, incentivar la divulgación de las actividades propias de la Administración de Justicia y sus órganos auxiliares, a través de portales y sitios Web, de una manera unificada, ordenada y accesible a la población costarricense e internacional.

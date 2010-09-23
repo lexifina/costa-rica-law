@@ -1,0 +1,1 @@
+Artículo 7º—Publicación de actividades. La información sobre anuncios relacionados con actividades dentro del Poder Judicial deberá ser publicada en los espacios definidos institucionalmente para esto. El Portal, ofrecerá un apartado específico y orientado a la divulgación de este tipo de noticias.

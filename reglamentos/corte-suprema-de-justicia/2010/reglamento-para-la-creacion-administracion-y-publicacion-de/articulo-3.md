@@ -1,0 +1,4 @@
+Artículo 3º—Definiciones. Dominio de Internet: Es una red de identificación asociada a un grupo de dispositivos o equipos conectados a la red Internet.
+Página Web: También conocidas como página de Internet, es un documento adaptado para la Web y que normalmente forma parte de un sitio Web. Su principal característica son los hiperenlaces a otras páginas, siendo esto el fundamento de la Web.
+Sitio Web: Es un conjunto de páginas Web, típicamente comunes a un dominio de Internet o subdominio en la World Wide Web en Internet.
+World Wide Web: Red Global Mundial (WWW) es un sistema de documentos de hipertexto y/o hipermedios enlazados y accesibles a través de Internet. Con un navegador Web, un usuario visualiza sitios Web compuestos de páginas Web que pueden contener texto, imágenes, videos u otros contenidos multimedia, y navega a través de ellas usando hiperenlaces.

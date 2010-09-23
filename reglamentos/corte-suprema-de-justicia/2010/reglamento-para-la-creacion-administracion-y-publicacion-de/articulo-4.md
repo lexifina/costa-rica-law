@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de Cobertura. Este reglamento abarca a todos los servidores o ex-servidores judiciales, así como aquellas personas que en su quehacer profesional, incidan o hubiesen incidido en el ámbito jurídico nacional.

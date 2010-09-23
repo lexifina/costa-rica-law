@@ -1,0 +1,1 @@
+Artículo 8º—Imagen y aplicación de los símbolos institucionales. Todas las páginas Web que se publiquen en el Poder Judicial, deberán respetar los lineamientos gráficos definidos en la guía básica de servicios y apoyos del DTIC, en la que se señala que para la imagen externa del Poder Judicial se utilizará el uso del logo Institucional, sin excepciones.

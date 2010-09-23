@@ -1,0 +1,4 @@
+Artículo 5º—Responsabilidad de la información
+5.1. Cada una de las entidades con presencia en el Portal o Página Web del Poder Judicial, serán responsables de la información que publican, y designará como mínimo a dos personas como responsables operativos y contactos con el Departamento de Tecnología de Información y comunicaciones (DTIC). Además deberá designar un responsable de aprobar el contenido a publicar.
+5.2. La actualización de la información publicada por cada área es responsabilidad de la misma y deberá revisarse periódicamente.
+5.3. Sin excepción, cualquier entidad que publique información en la Página Web del Poder Judicial, deberá incluir en su página principal los siguientes datos: Dirección física de la dependencia, teléfono y fax del área, así como la fecha de la última actualización de los datos, y correo electrónico de la persona responsable de la página.
