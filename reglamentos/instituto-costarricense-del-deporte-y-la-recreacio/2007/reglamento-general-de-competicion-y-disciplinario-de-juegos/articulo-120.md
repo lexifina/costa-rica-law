@@ -1,4 +1,0 @@
-ARTICULO 120 DE LA ETAPA FINAL
-120.1 En la modalidad individual, clasificarán los ocho jugadores(as) por categoría y género que ocupen los primeros lugares del Torneo Clasificatorio realizado entre aquellas Agrupaciones Deportivas que no clasificaron en la modalidad por Equipos, además de los jugadores individuales inscritos
-120.2 Del Torneo clasificatorio nacional clasificarán a la etapa final los ocho mejores equipos por categoría y rama y tendrán derecho a participar en dicha final en las modalidades de dobles, dobles mixto e individual.
-120.3 Los equipos clasificados podrán participar con dos parejas como máximo en la modalidad dobles, hasta cuatro parejas de dobles mixtos, siempre que clasifiquen jugadoras de su misma Agrupación Deportiva y de su misma categoría inscrita y hasta cuatro jugadores(as) de la modalidad individual.
