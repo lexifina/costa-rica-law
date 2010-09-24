@@ -1,0 +1,1 @@
+Artículo 39.—Deber de informar. La institución beneficiada con la donación, deberá comunicar a la Unidad Contable Financiera en un plazo no mayor de treinta días naturales, contados a partir del acto de entrega de la donación, un detalle del beneficio o destino final de los bienes recibidos. En caso de no hacerlo, no se le tomará en cuenta en futuras donaciones.

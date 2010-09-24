@@ -1,0 +1,1 @@
+Artículo 25.—Alta por reposición de bienes muebles. La Unidad Contable Financiera efectuará un alta a un bien mueble por reposición, cuando esta sea autorizada por la Dirección Ejecutiva sobre un bien que fue extraviado o sustraído a un funcionario, previo debida investigación. El bien repuesto debe ser de igual al bien extraviado o sustraído al funcionario.

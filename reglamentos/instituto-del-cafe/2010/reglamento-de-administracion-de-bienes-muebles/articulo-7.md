@@ -1,0 +1,1 @@
+Artículo 7º—De la asignación de bienes muebles para uso individual y común. Los bienes muebles de uso individual deben ser asignados a cada funcionario para el cumplimiento de sus labores. Los bienes de uso común de las áreas operativas serán asignados a la respectiva jefatura, para utilización de todos los funcionarios del área.

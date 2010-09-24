@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Las disposiciones de este reglamento son de acatamiento obligatorio para todos los funcionarios del Instituto del Café de Costa Rica, terceros autorizados ha hacer uso de los bienes del ICAFE así como para aquellos que se encuentren comprendidos en los supuestos de este Reglamento.

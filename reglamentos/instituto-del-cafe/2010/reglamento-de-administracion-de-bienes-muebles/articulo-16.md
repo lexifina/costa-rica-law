@@ -1,0 +1,1 @@
+Artículo 16.—Control de bienes muebles. Sin perjuicio de los controles que debe ejercer la Unidad Contable Financiera, cada área operativa llevará un control de los bienes muebles asignados, por funcionario, descripción, ubicación, número de identificación y fecha de recibido.

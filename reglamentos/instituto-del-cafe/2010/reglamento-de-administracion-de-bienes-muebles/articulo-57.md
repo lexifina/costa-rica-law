@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Disposiciones finales
+Artículo 57.— Casos no previstos en este reglamento. Los casos no previstos en este reglamento se resolverán conforme a la Ley 2762 sobre el Régimen de Relaciones entre Productores, Beneficiadores y Exportadores de Café; la Ley General de la Administración Pública, Ley General de Control Interno, Ley de la Contratación Administrativa y su Reglamento, Las normas de control interno para el Sector Público y demás normativa en lo que resulte aplicable y de conformidad con la jurisprudencia administrativa y judicial que se emita y complemente sobre la materia de regulación de bienes muebles de la Administración Pública.

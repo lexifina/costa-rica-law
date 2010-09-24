@@ -1,0 +1,6 @@
+Artículo 28.—Baja de bienes muebles por destrucción o desecho. Para dar de baja bienes muebles por destrucción o desecho se debe cumplir con los siguientes requisitos:
+a) Solicitud de la baja del bien mueble por parte de la Unidad Contable Financiera, con fundamento en una valoración técnica por escrito e indicación de la estimación económica del bien.
+b) Autorización de baja por parte de la Junta Directiva.
+c) Una vez concedida la autorización de destrucción o desecho, la Unidad Contable Financiera considerará, en el caso de electrodomésticos, equipo de cómputo u otros sucedáneos, las respectivas normas ambientales.
+d) La Unidad Contable Financiera en conjunto con la Unidad de Asuntos Jurídicos y la Auditoría Interna, levantará un acta que reúna la siguiente información: número de activo, descripción, autorización de la Junta Directiva, destino final del bien, firma del encargado del proceso de patrimonio y el Proveedor en caso que corresponda.
+e) Para dar la baja del bien por destrucción o desecho en caso de un grupo numeroso de activos la Unidad Contable Financiera coordinará con la Unidad de Contratación Administrativa la contratación del servicio de traslado de chatarra o basura producida al depósito de desechos respectivo.

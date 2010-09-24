@@ -1,0 +1,1 @@
+Artículo 27.—Valoración técnica para declarar bienes en mal estado o en desuso. La Unidad ontable Financiera solicitará la valoración de los bienes en desuso o mal estado que reporten as jefaturas, a los técnicos calificados que designen, para establecer aquellos que sean susceptibles de destrucción, desecho o donación.

@@ -1,0 +1,1 @@
+Artículo 18.—Reporte para las área operativa. Las jefaturas de las áreas operativas del ICAFE podrán solicitar a la Unidad Contable Financiera, cuando lo consideren oportuno, la emisión de informes sobre los bienes muebles que les han sido asignados.

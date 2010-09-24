@@ -1,0 +1,1 @@
+Artículo 55.—Material bibliográfico. También se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás material bibliográfico específico propiedad del Instituto, lo que está a cargo de la Biblioteca y es regulado por su propia reglamentación.

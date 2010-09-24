@@ -1,0 +1,1 @@
+Artículo 9º—Utilización de los bienes muebles en general. Los bienes muebles serán utilizados solamente por los funcionarios de la Institución y por personas autorizadas de forma expresa por la Dirección Ejecutiva.

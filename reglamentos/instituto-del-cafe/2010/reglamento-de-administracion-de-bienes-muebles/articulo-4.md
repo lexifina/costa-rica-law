@@ -1,0 +1,18 @@
+CAPÍTULO II
+Deberes de los funcionarios en relación con los bienes muebles
+Artículo 4º—Obligaciones de las jefaturas. Serán las encargadas de administrar y vigilar el uso racional de los bienes muebles propiedad del Instituto asignados a su área operativa, para lo cual están obligadas a cumplir con lo siguiente:
+a) Velar por el buen estado físico y custodia de los bienes que tenga para uso de su área operativa.
+b) Hacer entrega a los funcionarios a su cargo, mediante inventario físico, de los bienes muebles que a cada uno se le confía para su uso, servicio o custodia o que se les suministre para el desarrollo normal de su trabajo.
+c) Realizar toma física de activos, al momento que un funcionario a su cargo inicie o concluya su relación laboral con el Instituto y remitir el resultado de este inventario a la Unidad Contable Financiera.
+d) Velar porque las solicitudes de mobiliario, maquinaria, equipo y otros, respondan adecuadamente a las necesidades del personal asignado para el desempeño de su funciones.
+e) Gestionar ante la Unidad de Contratación Administrativa del Instituto los servicios para la conservación y el mantenimiento adecuado de los bienes que administra. En los casos en que el mantenimiento pueda ser brindado por otra área operativa del ICAFE, deberá gestionarse ante ésta el servicio requerido.
+f) Realizar al menos un inventario físico de los bienes muebles en sus respectivas dependencias y reportar sus resultados a la Unidad Contable Financiera con la observaciones que considere pertinentes. Asimismo realizar el inventario de los bienes muebles y reportar los resultados cuando así lo solicite su superior, la Unidad Contable Financiera o la Auditoría Interna del ICAFE.
+g) Comunicar a la Unidad Contable Financiera mediante el formulario físico u electrónico respectivo cualquier traslado de un bien mueble a otra área operativa y autorizar los traslados dentro de la misma área operativa.
+h) Responder por los daños de los bienes en uso y a su cargo, siempre y cuando no provengan del deterioro natural de las cosas o de otra causa justificada.
+i) Reportar a la Unidad Contable Financiera los bienes que no estén siendo utilizados en su área operativa, con la finalidad de que puedan ser trasladados para cubrir necesidades de otras áreas operativas o donados a otras entidades, de conformidad con las leyes vigentes el
+presente reglamento.
+j) Cumplir con las disposiciones emitidas por la Gerencia de Administración y Finanzas o la Unidad Contable Financiera para controlar los bienes muebles que administra.
+k) Cuando una jefatura rinde su informe final de gestión, deberá hacer entrega del inventario de su área operativa mediante acta respectiva, a su sucesor o en su defecto a su jefe inmediato, en coordinación con la Unidad Contable Financiera. Quien los recibe asumirá la custodia en forma temporal o definitiva, según corresponda
+l) Si en el supuesto establecido en el inciso anterior existieren diferencias en el inventario, la jefatura que entrega dejará constancia de ello en un acta con copia a la Unidad Contable Financiera, con el fin de que esta realice el estudio respectivo, a fin de evaluar y solicitar en caso de ser procedente el debido proceso ante la instancia correspondiente.
+m) Velar porque los bienes asignados mantengan la placa de metal, adherible u otro sistema de seguridad; en caso de pérdida de esta identificación gestionará ante la Unidad Contable Financiera su reposición.
+n) Mantener a nivel de la propia área operativa un control de inventario que le permita conocer el destino final de los bienes que tiene a cargo, así como los ingresos y egresos qu se realicen.

@@ -1,0 +1,1 @@
+Artículo 14.—Control de garantías. La Unidad Contable Financiera llevará el control de las diferentes garantías de fábrica, agencia o post-venta otorgadas por los proveedores sobre los bienes. Para la custodia de estas garantías dispondrá de un archivo donde se almacenará los documentos originales debidamente conciliados con el control establecido.

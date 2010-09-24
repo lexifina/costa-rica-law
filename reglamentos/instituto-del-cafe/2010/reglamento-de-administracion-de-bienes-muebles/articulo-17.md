@@ -1,0 +1,1 @@
+Artículo 17.—Verificación de inventarios. La Unidad Contable Financiera verificará cuando lo estime necesario la existencia de los bienes inventariados y corregirá las discrepancias que se presenten con arreglo a lo dispuesto en este reglamento.

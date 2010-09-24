@@ -1,0 +1,1 @@
+Artículo 56.—Software. En materia de software se aplicarán las políticas y directrices que al efecto defina la Unidad Informática aprobadas por la Dirección Ejecutiva. En lo correspondiente al registro, se estará sujeto a lo dispuesto a este reglamento.

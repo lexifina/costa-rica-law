@@ -1,0 +1,6 @@
+Artículo 31.—Baja de bienes muebles por desmantelamiento y aprovechamiento de sus partes. Se podrá dar de baja por desmantelamiento toda maquinaria, mobiliario, equipo o similares, cuyas partes utilizables se puedan aprovechar, previo cumplimiento de los siguientes requisitos:
+a) Solicitud escrita al Director Ejecutivo por parte de la Jefatura que tiene a cargo el bien mueble, que contenga una justificación del desmantelamiento de bienes muebles y su descripción, la cual tendrá como fundamento el criterio de los técnicos respectivos.
+b) El Director Ejecutivo valorará la petición, si la aprueba designará a la jefatura que tendrá a cargo el desmantelamiento.
+c) La jefatura designada, deberá coordinar con el técnico respectivo el proceso de desmantelamiento y suscribirá un informe en el que indique a la Unidad Contable Financiera las partes utilizables y sujetas a inventario. En caso de que se haya reconstruido un bien, informará lo propio a la Unidad Contable Financiera a fin de que se efectúe su alta.
+d) Traspaso de los bienes muebles a la Unidad Contable Financiera, cuando corresponda, para que efectúe la baja, en caso de que no estén en su custodia.
+Las partes sobrantes no reutilizables se podrán destruir, desechar o donar de conformidad con lo establecido en la ley y en el presente Reglamento.
