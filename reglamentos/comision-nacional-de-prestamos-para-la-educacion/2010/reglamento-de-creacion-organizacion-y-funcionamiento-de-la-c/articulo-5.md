@@ -1,0 +1,1 @@
+Artículo 5º—Nombramiento del Contralor(a) y su personal. El Contralor será nombrado por el Consejo Directivo y su personal subordinado será nombrado por el Secretario Ejecutivo de CONAPE. Para estos nombramientos se utilizarán los mecanismos y procedimientos establecidos en materia de reclutamiento y selección de personal.

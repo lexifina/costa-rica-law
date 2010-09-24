@@ -1,0 +1,1 @@
+Artículo 20º—Casos de atención colectiva. Si en relación con un mismo tema o problema se presentan varias denuncias, la Contraloría tratará el tema en forma colectiva, y de tal circunstancia y su resultado, se informará a los usuarios.

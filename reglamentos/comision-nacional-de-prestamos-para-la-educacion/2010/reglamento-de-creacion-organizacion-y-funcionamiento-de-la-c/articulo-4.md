@@ -1,0 +1,1 @@
+Artículo 4º—Estructura. La Contraloría de Servicios estará a cargo de un Contralor de Servicios, quien contará con los recursos necesarios (incluye recursos humanos, materiales u otros), para la prestación eficiente de su labor.

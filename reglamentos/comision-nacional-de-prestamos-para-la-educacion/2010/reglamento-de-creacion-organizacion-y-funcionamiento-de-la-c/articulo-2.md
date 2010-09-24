@@ -1,0 +1,16 @@
+Artículo 2º—Definiciones. Para los efectos de este Reglamento, se entenderá por:
+a) CONAPE: Comisión Nacional de Préstamos para Educación.
+b) Contraloría de Servicios: Órgano adscrito al Consejo Directivo de CONAPE que facilita la comunicación entre las personas usuarias y la institución responsable de prestar los servicios públicos, con el fin de velar por la calidad de los servicios, la satisfacción de la persona usuaria y el uso racional de los recursos públicos.
+c) Contralor de Servicios: Es el funcionario responsable de atender, coordinar y/o resolver todas las actividades relacionadas con la Contraloría de Servicios de CONAPE.
+d) Eficacia: Es el grado en que una actividad o programa alcanza sus objetivos, metas y otros efectos que se ha propuesto.
+e) Eficiencia: Es la utilización eficaz de los recursos disponibles con los que se consigue la máxima producción posible.
+f) Inconformidad: Es la manifestación oral, escrita, electrónica, o por cualquier otro medio disponible de insatisfacción, presentada por él o los usuarios de CONAPE, respecto de un servicio que, según su criterio no satisface sus requerimientos.
+g) Denuncia: Es un acto formal y escrito por el cual los usuarios de los servicios de CONAPE, declaran el conocimiento de un hecho irregular relacionado con la prestación de los servicios o los actos internos que afecten injustamente sus intereses legítimos o derechos.
+h) Consejo Directivo: Órgano director, que representa la máxima autoridad, con representación colegiada, según su ley de creación Nº 6041, publicada en el Diario Oficial La Gaceta de fecha 18 de enero de 1977.
+i) Secretario Ejecutivo: Es el Jerarca Superior administrativo, subordinado al Consejo Directivo, encargado de la operación y funcionamiento cotidiano de la Administración.
+j) Manual: Manual de Normas de Atención y Servicio al Cliente.
+k) MIDEPLAN: Ministerio de Planificación Nacional y Política Económica.
+l) Usuario: Persona física o jurídica, que recurre a CONAPE para realizar trámites o gestiones, haciendo uso de los servicios que este brinda en virtud de su naturaleza.
+ll) Secretaría Técnica: Secretaría Técnica del Sistema Nacional de Contralorías de Servicios, adscrita a la Unidad del Área de Modernización del Estado.
+m) Sistema Nacional de Contralorías de Servicios: Sistema perteneciente a MIDEPLAN, que fungirá como órgano facilitador y especializado, que tiene a su cargo la Secretaría Técnica del Sistema y las Contralorías de Servicios de los órganos y los entes que conforman la Administración Pública, las Contralorías de Servicios pertenecientes a los Poderes Legislativo y Judicial, el Tribunal Supremo de Elecciones, sus dependencias y órganos auxiliares, las municipalidades, las universidades estatales, las empresas privadas que brindan servicios públicos y la Caja Costarricense del Seguro Social, que se integren al Sistema con la aprobación de los jerarcas respectivos.
+n) Enlace Institucional: Funcionario de CONAPE, designado por el jerarca, para que actué en representación de la institución, como enlace para dirigir y coordinar los esfuerzos de “Mejora Regulatoria y Simplificación de Trámites” a lo interno de cada institución ante la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio.

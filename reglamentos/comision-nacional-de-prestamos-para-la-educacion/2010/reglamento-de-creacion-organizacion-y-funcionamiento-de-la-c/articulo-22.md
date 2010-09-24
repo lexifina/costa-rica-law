@@ -1,0 +1,1 @@
+Artículo 22º—Sanciones. La violación a los deberes impuestos por este reglamento por cualquier funcionario incluyendo al Contralor de Servicios, serán sancionadas de conformidad con lo regulado en el Reglamento Autónomo de Trabajo de CONAPE, Código de Trabajo, y demás normas supletorias y concomitantes.
