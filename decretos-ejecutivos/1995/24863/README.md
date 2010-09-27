@@ -22,3 +22,4 @@ Reglamento Ley de Incentivos para el Desarrollo Turístico
 | 7 | 2007-12-17 | Decreto Ejecutivo 34435 (2007-12-17) |
 | 8 | 2009-07-13 | Decreto Ejecutivo 35479 (2009-07-13) |
 | 9 | 2010-03-24 | Decreto Ejecutivo 35971 (2010-03-24) |
+| 10 | 2010-09-27 | Decreto Ejecutivo 36273 (2010-09-27) |
