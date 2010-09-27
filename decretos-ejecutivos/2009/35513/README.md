@@ -14,3 +14,4 @@ Establece Organización Administrativa de las Direcciones Regionales de Educaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-25 | la propia norma |
+| 2 | 2010-09-27 | Decreto Ejecutivo 36202 (2010-09-27) |

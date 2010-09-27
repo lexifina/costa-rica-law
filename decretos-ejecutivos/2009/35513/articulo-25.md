@@ -22,11 +22,12 @@ Puntarenas | Esparza | Espíritu Santo
 Puntarenas | Montes de Oro | Miramar
 | | Unión
 | | San Isidro
-b) Dirección Regional de Educación Peninsular, con sede en el Distrito de Lepanto:
-Provincia | Cantón | Distrito Administrativo
+b) Dirección Regional de Educación Peninsular, con sede en el Distrito de Paquera:
+Provincia | Cantón | Distritos
 Puntarenas | Puntarenas | Lepanto
 | | Paquera
 | | Cóbano
+(Así reformado el inciso b) anterior por el artículo 2° del decreto ejecutivo N° 36202 del 27 de setiembre de 2010)
 c) Dirección Regional de Educación de Aguirre, con sede en el Cantón de Aguirre:
 Provincia | Cantón | Distrito Administrativo
 Puntarenas | Aguirre | Quepos

@@ -1,24 +1,24 @@
 Artículo 20.—Para organizar la prestación de los servicios de educación, la Provincia de San José contará con siete Direcciones Regionales de Educación, cuya conformación geográfica se detalla a continuación:
-a) Dirección Regional de Educación de San José-Central, con sede en el Cantón de San José:
-Provincia | Cantón | Distrito Administrativo
+a) Dirección Regional de Educación de San José-Central, con sede en el cantón de San José:
+Provincia | Cantón | Distritos
 San José | San José | Carmen
-| | Merced
-| | Catedral
 | | Hospital
-| | Mata Redonda
+| | Catedral
 | | Zapote
-| | Uruca
-| | Pavas
-San José | Montes de Oca | San Pedro
-| | Sabanilla
-| | Mercedes
-| | San Rafael
+| | Hatillo
+| | San Sebastián
 San José | Curridabat | Curridabat
 | | Granadilla
 | | Sánchez
 | | Tirrases
-b) Dirección Regional de Educación de San José-Norte, con sede en el Cantón de Goicoechea:
-Provincia | Cantón | Distrito Administrativo
+San José | Alajuelita | Alajuelita
+| | San Josecito
+| | San Antonio
+| | Concepción
+| | San Felipe
+(Así reformado el inciso a) anterior por el artículo 1° del decreto ejecutivo N° 36202 del 27 de setiembre de 2010)
+b) Dirección Regional de Educación de San José-Norte, con sede en el cantón de Goicoechea:
+Provincia | Cantón | Distritos
 San José | Goicoechea | Guadalupe
 | | San Francisco
 | | Calle Blancos
@@ -26,37 +26,40 @@ San José | Goicoechea | Guadalupe
 | | Ipís
 | | Rancho Redondo
 | | Purral
-San José | Vázquez de Coronado | San Isidro
+San José | Vásquez de Coronado | San Isidro
 | | San Rafael
 | | Dulce Nombre de Jesús
 | | Patalillo
 | | Cascajal
 San José | Moravia | San Vicente
 | | San Jerónimo
-| | La Trinidad
+| | Trinidad
 San José | Tibás | San Juan
 | | Cinco Esquinas
 | | Anselmo Llorente
-| | León XIII
-| | Colima
-c) Dirección Regional de Educación de San José Sur-Oeste, con sede en el Cantón de San José:
-Provincia | Cantón | Distrito Administrativo
-San José | San José | Hatillo
-| | San Sebastián
-San José | Alajuelita | Alajuelita
-| | San Josecito
-| | San Antonio
-| | Concepción
-| | San Felipe
-San José | San Ana | Santa Ana
-| | Salitral
-| | Pozos
+San José | Montes de Oca | San Pedro
+| | Sabanilla
+| | Mercedes o Betania
+| | San Rafael
+(Así reformado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 36202 del 27 de setiembre de 2010)
+c) Dirección Regional de Educación de San José-Oeste, con sede en el cantón de San José:
+Provincia | Cantón | Distritos
+San José | San José | Merced
+| | Mata Redonda
+| | Pavas
 | | Uruca
+San José | Tibás | León XIII
+| | Colima
+San José | Santa Ana | Santa Ana
+| | Salitral
+| | Pozos o Concepción
+| | Uruca o San Joaquín
 | | Piedades
 | | Brasil
 San José | Escazú | Escazú
 | | San Antonio
 | | San Rafael
+(Así reformado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 36202 del 27 de setiembre de 2010)
 d) Dirección Regional de Desamparados, con sede en el Cantón de Desamparados:
 Provincia | Cantón | Distrito Administrativo
 San José | San José | San Francisco de Dos Ríos
