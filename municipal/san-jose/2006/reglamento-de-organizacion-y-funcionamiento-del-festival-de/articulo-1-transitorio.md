@@ -1,4 +1,0 @@
-Transitorio.—Para los efectos de la organización del Festival de la Luz 2006, el Alcalde aplicará la normativa de este Reglamento en forma integral, a partir del momento en que sea aprobado en firme por el Concejo Municipal y procederá al nombramiento de la Comisión, dentro de los ocho días naturales siguientes. La Comisión, a partir de su nombramiento, queda igualmente obligada a aplicar la normativa de este instrumento de forma inmediata.
-Entrada en vigencia de este reglamento. Por tratarse éste, un Reglamento de orden interno, entrará en vigencia a partir del día siguiente a aquel en que sea publicado en La Gaceta.
-Acuerdo firme Nº 9, Artículo III, de la sesión ordinaria 203, celebrada por la Corporación Municipal del Cantón Central de San José, el 21 de marzo del año en curso.
-San José, 31 de marzo de 2006.
