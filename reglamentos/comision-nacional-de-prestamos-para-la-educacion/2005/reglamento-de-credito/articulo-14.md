@@ -1,7 +1,7 @@
 CAPÍTULO II
 Requisitos para el solicitante
-Artículo 14.—Los requisitos para tramitar un préstamo y los documentos por aportar los establece el Consejo Directivo. La documentación presentada, tendrá una vigencia máxima de 90 días calendario después de la fecha de emisión del documento. Los requisitos y documentos son:
-(Así reformado el párrafo anterior en sesión N° 46 del 20 de octubre de 2009)
+Artículo 14.—Los requisitos para tramitar un préstamo y los documentos por aportar los establece el Consejo Directivo. La documentación presentada, tendrá una vigencia máxima de 45 días calendario después de la fecha de emisión del documento, salvo que en otro artículo del presente Reglamento se disponga lo contrario.
+(Así reformado el párrafo anterior en sesión N° 39 del 28 de setiembre de 2010)
 1) Para cursos, programas, carreras técnicas, pregrados y grados en Costa Rica:
 a. Fórmula de solicitud de préstamo con los datos requeridos.
 b. Fotocopia de la cédula de identidad del solicitante. Si es menor de edad: certificación del asiento de nacimiento o cédula de identidad del menor.

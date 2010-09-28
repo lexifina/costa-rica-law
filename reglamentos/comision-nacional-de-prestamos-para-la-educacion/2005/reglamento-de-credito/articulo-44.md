@@ -4,7 +4,8 @@ El solicitante presentará la garantía disponible y ésta será analizada como 
 Se considerará la solicitud como Caso especial, cuando el porcentaje total de la garantía fiduciaria cumpla con la cobertura establecida en éste reglamento y cuando:
 a. Uno o más fiadores devenguen un salario menor al requerido para ser fiador, pero nunca inferior al mínimo embargable.
 b. Uno o más fiadores adquiera la condición de pensionado con la edad establecida por la Caja Costarricense del Seguro Social, antes de que el solicitante finalice el período de estudios financiable.
-c. Dos o más fiadores están otorgando fianza en otras operaciones en CONAPE.
+c. Dos o más fiadores están otorgando fianza en otras operaciones en CONAPE. Del monto total de garantía otorgada por el fiador, no se podrá exceder del 25% de su capacidad de fianza
+(Así reformado el inciso anterior en sesión N° 39 del 28 de setiembre de 2010)
 d. Uno o más fiadores no cumplen con el tiempo laborado establecido en este reglamento.
 e. La garantía propuesta es combinada: hipotecaria, fiduciaria o de títulos valores.
 f. Cuando la garantía hipotecaria propuesta presente situaciones no previstas en la reglamentación.
