@@ -1,1 +1,0 @@
-Artículo 11.—Sujeto pasivo. El sujeto pasivo para los efectos de este reglamento, lo constituirá el propietario o poseedor de bienes inmuebles dentro de la jurisdicción del cantón, omiso en el cumplimiento de los deberes previstos en el artículo 75 del Código Municipal.

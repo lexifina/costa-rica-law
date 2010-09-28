@@ -1,1 +1,0 @@
-Artículo 4º—Omisión de deberes. Se entenderá que el munícipe incurrió en el incumplimiento de dichos deberes cuando no realice las obras o trabajos que se indican en el artículo anterior, previa comunicación por parte de la Municipalidad de que deberá realizarlas.

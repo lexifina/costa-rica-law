@@ -1,1 +1,0 @@
-Artículo 14.—Comunicación. La Municipalidad comunicará al contribuyente el monto de la tarifa puesta al cobro, la cual deberá ser cancelada en un plazo máximo de ocho días hábiles siguientes a la notificación.
