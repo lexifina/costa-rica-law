@@ -1,2 +1,0 @@
-Artículo 3°—La Comisión se reunirá cada vez que sea necesario, previa convocatoria hecha por su presidente. Todos los integrantes tendrán derecho a voz y voto. Los acuerdos se tomarán por mayoría y en caso de empate el presidente tendrá voto de calidad. Para que la Comisión se reúna válidamente, deberán asistir todos sus miembros o la persona que éstos designen en casos calificados.
-Excepcionalmente, v en situaciones debidamente justificadas, la Comisión podrá sesionar con la mayoría de sus miembros.

@@ -1,9 +1,0 @@
-Artículo 5°—Son funciones básicas de la Comisión:
-a) Efectuar el análisis de las ofertas recibidas a un determinado concurso, con el propósito de definir cuáles deben ser admitidas a estudio y cuáles se deben excluir de la contratación, determinar los casos en que deban realizarse prevenciones para que los participantes subsanen defectos, y realizar la calificación de las ofertas de acuerdo con el sistema definido en el pliego de condiciones y las normas jurídicas vigentes.
-(Así reformado el inciso anterior mediante resolución N° 2200 del 21 de enero de 1997)
-b) Solicitar, cuando se considere necesario u oportuno, el criterio técnico de las unidades especializadas internas de la Contraloría General, o de organismos o instituciones externas afines con la materia de que se trate, sobre aspectos relevantes de las ofertas a evaluar.
-c) Preparar y presentar un informe escrito con los resultados del estudio de ofertas realizado y su recomendación de adjudicación.
-(Así reformado el inciso anterior mediante resolución N° 2200 del 21 de enero de 1997)
-d) Cuando se interpongan recursos de objeción al cartel de una licitación restringida, conocerlos, tramitarlos y recomendar su resolución conforme a las disposiciones vigentes.
-e) Cuando se interpongan recursos de apelación contra la adjudicación dictada en procedimientos concúrsales, elaborar y presentar el informe de contestación a la audiencia que conceda la Dirección General encargada de tramitar dichos recursos.
-f) Cuando por el monto lo que proceda sea el recurso de revocatoria para impugnar una adjudicación dictada, deberá elaborar y someter a conocimiento del Contralor General, un informe sobre lo actuado en el procedimiento de contratación realizado, incluyendo su recomendación en cuanto a la resolución que debe darse al recurso interpuesto.
