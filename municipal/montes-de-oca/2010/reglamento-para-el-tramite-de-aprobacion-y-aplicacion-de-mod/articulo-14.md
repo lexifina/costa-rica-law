@@ -1,0 +1,1 @@
+Artículo 14.—Ejecución. Las modificaciones presupuestarias debidamente aprobadas serán ejecutadas como partidas presupuestarias por la Unidad Administrativa que lo solicite y le corresponda, conforme con el Plan Anual Operativo.

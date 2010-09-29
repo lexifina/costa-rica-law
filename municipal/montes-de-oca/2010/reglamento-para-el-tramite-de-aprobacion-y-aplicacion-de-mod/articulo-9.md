@@ -1,0 +1,2 @@
+Artículo 9º—Traslado. La Dirección Administrativa recibirá el documento de modificación presupuestaria y lo remitirá a la persona del Jerarca Administrativo, con el informe final del mismo, que incluye el detalle de los movimientos a realizar.
+El documento de modificación presupuestaria debe ser revisado y aprobado por la persona del Jerarca Administrativo, y éste será el encargado de enviarlo al Jerarca Institucional y Presupuestario para su discusión y aprobación.

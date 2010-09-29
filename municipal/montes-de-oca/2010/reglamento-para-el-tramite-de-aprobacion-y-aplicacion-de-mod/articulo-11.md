@@ -1,0 +1,1 @@
+Artículo 11.—Custodia del expediente. La custodia del expediente del documento de modificación presupuestaria es responsabilidad de los Departamentos de Contabilidad y Control Presupuestario y de la Secretaria del Concejo Municipal de Montes de Oca.
