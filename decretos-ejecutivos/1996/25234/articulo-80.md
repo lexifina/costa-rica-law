@@ -1,1 +1,0 @@
-Artículo 80.- Designación de Presidente o Secretario ad hoc. En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el Presidente y el Secretario de la Comisión serán sustituidos por un Presidente o un Secretario ad hoc, designando al primero necesariamente de entre los restantes miembros propietarios o que estén fungiendo como tales en la sesión.

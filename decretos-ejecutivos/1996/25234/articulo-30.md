@@ -1,7 +1,0 @@
-SECCION SEGUNDA
-Procedimientos ante la Comisión para Promover la Competencia
-Artículo 30.- Inicio de los procedimientos. Los procedimientos ante la CPC , que puedan resultar en la imposición de alguna de las sanciones previstas en el artículo 28 de la Ley , se iniciarán por denuncia o de oficio.
-En caso de denuncia, la misma deberá ser presentada ante la Unidad Técnica de la CPC y deberá constar por escrito, en idioma español y ser firmada por el interesado u otra persona a su ruego. Si fuere presentada en otra dependencia del MEIC, el funcionario que la reciba deberá remitirla sin demora a la citada Unidad Técnica.
-Los procedimientos se iniciarán de oficio mediante acuerdo de la CPC , debidamente fundamentado.
-La responsabilidad del denunciante, en caso de denuncia calumniosa, se regirá por lo previsto en la legislación penal correspondiente.
-(Así reformado por el artículo 1 del decreto ejecutivo N° 35998 del 9 de abril de 2010)
