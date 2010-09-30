@@ -1,1 +1,0 @@
-Artículo 5°—En materia de relaciones de consumo, el Área de Comercio y Apoyo al Consumidor del Ministerio de Economía Industria y Comercio, actuará como rectora, brindado i asesoría, capacitación y registro de las mismas.

@@ -1,1 +1,0 @@
-Artículo 3°—Las asociaciones de desarrollo integral, para facilitar su trabajo, también podrán constituir diferentes comités de defensa de los derechos de los consumidores en las comunidades que representan.

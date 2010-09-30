@@ -1,1 +1,0 @@
-Artículo 2°—Dichas asociaciones podrán actuar como organizaciones de consumidores ante las instancias administrativas y judiciales correspondientes, en defensa de los legítimos derechos de los consumidores y usuarios.
