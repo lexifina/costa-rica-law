@@ -1,0 +1,1 @@
+Artículo 43.—Reparaciones mayores. Las reparaciones mayores, será determinada generalmente como resultado de las inspecciones trimestrales, como compresión de las máquinas y desgaste de las piezas y unidades. Las reparaciones mayores, comenzarán automáticamente después que se ha llegado a una cantidad fijada previamente de kilómetros recorridos o de horas de trabajo.

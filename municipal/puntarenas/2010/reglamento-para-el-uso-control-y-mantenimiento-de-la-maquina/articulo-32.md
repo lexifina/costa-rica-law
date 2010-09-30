@@ -1,0 +1,3 @@
+Artículo 32.—Organización Escalón 3º. Normalmente existirá un número fijo de talleres en situación de reserva o en trabajo; se cambiará de localidad o de situación según las necesidades de la Municipalidad de Puntarenas, y siempre por orden del jefe de maquinaria.
+En algún caso y previa autorización del citado jefe, se podrá reforzar en personal y maquinaria a un equipo B del escalón 2º que desempeñe la misión de un taller semifijo.
+La instalación de estos talleres se hará en forma progresiva, desde el primer momento de su llegada a la obra, deben estar dispuestos para trabajar, utilizando el mismo vehículo como taller. Sucesivamente, se podrán ir instalando las máquinas en locales o cobretizos que se destinen a este fin.

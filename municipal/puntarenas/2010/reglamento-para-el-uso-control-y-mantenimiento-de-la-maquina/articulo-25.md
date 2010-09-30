@@ -1,0 +1,2 @@
+Artículo 25.—Escalón 2º Equipo de obra. Este escalón será el primero en el que se efectúan reparaciones propiamente dichas, ya que las autorizadas a los conductores son circunstanciales.
+Sobre el escalón 2º recaerá la responsabilidad de las revisiones periódicas del material de obra, y en este aspecto desempeñará un cometido principal, ya que su intervención permitirá que las máquinas no tengan que sufrir otras reparaciones que las que obedezcan al desgaste normal de las piezas o accidentes fortuitos.

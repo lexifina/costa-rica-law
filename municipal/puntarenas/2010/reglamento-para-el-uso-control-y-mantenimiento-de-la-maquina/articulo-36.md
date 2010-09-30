@@ -1,0 +1,4 @@
+Artículo 36.—Organización Escalón 4º. Esos talleres se dividirán en las secciones de forja, inyección, eléctrico y carpintería.
+Las materias primas se obtendrán de la localidad por medio del proveedor municipal, que también se encargará de suministrar los pedidos de piezas fundidas que se necesiten para el posterior mecanizado de los talleres.
+Las operaciones de fundición, tallado de engranajes, rectificado de cigüeñales y camisas, cromado duro y tratamientos se harán normalmente en casas comerciales inscritas en el Registro de Proveedores de la Municipalidad de Puntarenas, por lo que dichas acciones dependen en sus relaciones del proveedor municipal.
+No obstante, el proveedor deberá ser asesorado en todo cuanto juzgue necesario por el jefe de taller, sin que este asesoramiento resulte vinculante en la adopción de una determinada casa proveedora, extremo que cae totalmente dentro de la responsabilidad del proveedor.

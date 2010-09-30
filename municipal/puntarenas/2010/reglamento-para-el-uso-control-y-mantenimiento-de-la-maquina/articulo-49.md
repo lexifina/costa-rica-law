@@ -1,0 +1,1 @@
+Artículo 49.—Los operadores de maquinaria municipal estarán en la obligación de revisar el formulario de control de campo realizado por el inspector y firmarlo una vez que se verifique el cumplimiento de los trabajos realizados, de incumplir este requisito el funcionario será objeto de las sanciones que correspondan por incumplimiento de deberes.
