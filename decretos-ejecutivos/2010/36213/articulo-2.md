@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 36069-H de fecha 2 de junio del 2010, publicado en el Diario Oficial La Gaceta Nº 128 de fecha 2 de julio del 2010, a partir de la vigencia del presente decreto.
