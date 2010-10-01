@@ -14,3 +14,4 @@ Modifica para el Teatro Popular Mélico Salazar, el gasto presupuestario máximo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-03 | la propia norma |
+| 2 | 2010-10-01 | Decreto Ejecutivo 36211 (2010-10-01) |
