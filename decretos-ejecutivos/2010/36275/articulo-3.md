@@ -1,0 +1,1 @@
+Artículo 3º—Se autoriza el traslado de los activos con que cuente el Programa Delegados Presidenciales al Programa Presupuestario Administración Superior del Ministerio de la Presidencia, con estricto apego al Reglamento para el Registro y Control de Bienes de la Administración Central.

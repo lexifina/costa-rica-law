@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de Cierre tendrá plazo hasta el 31 de diciembre del 2010, para concluir el cierre del Programa Presupuestario 035 y presentar a las autoridades superiores del Ministerio de la Presidencia el Informe final de cierre y la liquidación presupuestaria.

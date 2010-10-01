@@ -1,0 +1,1 @@
+Artículo 5º—Se autoriza el traslado de tres puestos con los siguientes números de códigos 12224, 12225 y 99783 del Programa Delegados Presidenciales, al Programa Administración Superior del Ministerio de la Presidencia. Para tal efecto se procederá conforme a las disposiciones del Decreto Ejecutivo Nº 22317-MP-H-MIDEPLAN del 1º de julio de 1993.
