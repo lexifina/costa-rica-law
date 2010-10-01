@@ -1,0 +1,1 @@
+Artículo 5º—Los jefes y encargados de los distintos departamentos y secciones del Colegio Universitario de Cartago, serán los responsables de la custodia, ordenación, clasificación y organización de los documentos de sus respectivas unidades, y prestarán asimismo la colaboración que se solicite para los fines de este reglamento.

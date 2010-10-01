@@ -1,0 +1,1 @@
+Artículo 27.—Todo aquel usuario del archivo central o funcionario del CUC a quien se le compruebe que por descuido o intención, dañe, elimine, altere, sustraiga, oculte cualquier documento que interfiera con la accesibilidad a la información se sancionara según la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 21.—Para el préstamo de documentos se debe llenar la boleta de préstamo, para así tener mayor control de la salida de documentos, evitando la perdida de información por extravío además de conocer a quién y a cuál departamento se le hará el préstamo.

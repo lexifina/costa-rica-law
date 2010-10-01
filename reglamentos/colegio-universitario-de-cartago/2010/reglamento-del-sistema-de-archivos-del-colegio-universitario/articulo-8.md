@@ -1,0 +1,1 @@
+Artículo 8º—El local que se destine al Archivo Central del Colegio Universitario de Cartago, deberá reunir las condiciones necesarias que garanticen la conservación óptima de los documentos, tomando en cuenta el grado de humedad relativa del aire, temperatura, polución, luz e insectos o situaciones similares.

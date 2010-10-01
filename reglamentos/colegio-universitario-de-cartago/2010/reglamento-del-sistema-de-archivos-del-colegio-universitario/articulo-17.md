@@ -1,0 +1,1 @@
+Artículo 17.—Los encargados de los archivos de gestión son los responsables de levantar la información requerida en las tablas de plazos de conservación, todo esto con la asesoría del archivo central.

@@ -1,0 +1,1 @@
+Artículo 22.—Para la devolución de la documentación en préstamo se debe entregar a la persona encargada del archivo central del Colegio Universitario de Cartago, para verificar la documentación que se prestó, tanto en la cantidad como en el estado físico, El encargado del archivo central, está obligado a poner un sello de recibido con fecha y firma.

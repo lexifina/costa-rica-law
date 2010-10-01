@@ -1,0 +1,1 @@
+Articulo 13.—El archivo central no aceptarán remisiones de documentos que no estén debidamente organizados, numerados, en unidades de conservación rotuladas y con la propuesta de ser material de eliminación.

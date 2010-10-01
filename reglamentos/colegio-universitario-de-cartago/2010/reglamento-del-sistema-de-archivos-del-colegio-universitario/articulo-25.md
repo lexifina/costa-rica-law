@@ -1,0 +1,1 @@
+Artículo 25.—Los usuarios del servicio serán responsables de los daños o pérdidas ocasionados a los documentos o materiales proporcionados para su consulta, asumiendo civil y penalmente la reparación.
