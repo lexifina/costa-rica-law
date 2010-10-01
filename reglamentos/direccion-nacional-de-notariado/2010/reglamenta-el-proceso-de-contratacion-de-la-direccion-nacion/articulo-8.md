@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De la planificación de las contrataciones
+Artículo 8°—Programa anual de adquisiciones. Todas las dependencias de la DNN deberán planificar sus necesidades de bienes y servicios.
+Los programas de adquisiciones serán confeccionados por cada unidad administrativa y remitidos al Área Administrativa a más tardar la segunda quincena del mes de noviembre, conteniendo la información solicitada en el artículo siete, inciso tercero del Reglamento General de la Contratación Administrativa. El Área Administrativa revisara e integrará toda la información y procederá a la publicación del mismo en el diario oficial La Gaceta en el primer mes de cada período presupuestario.
+Cualquier modificación al programa de adquisiciones deberá ser remitida al Área Administrativa, mediante solicitud formal, autorizada por la Dirección Ejecutiva en la que consten las razones de la no incorporación en el programa inicial de contrataciones y se procederá a la publicación de la modificación en el diario oficial La Gaceta, por parte del Área Administrativa.

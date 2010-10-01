@@ -1,0 +1,2 @@
+Artículo 9°—Informe trimestral de actividad contractual
+Órgano competente: Compete al Área Administrativa informar dentro de los quince días hábiles posteriores al vencimiento de cada trimestre, a la Contraloría General de la República, acerca de la actividad contractual desplegada durante el período respectivo. Todo de acuerdo con lo indicado en la Ley de Contratación Administrativa y su Reglamento.
