@@ -1,0 +1,1 @@
+Artículo 2º—Se declara la demanialidad del terreno en el cual se ubica el cementerio de Naranjito de modo tal que el derecho funerario sobre una sepultura no constituye derecho de propiedad, ya que es construido sobre parcelas que son de dominio público y por tanto están fuera del comercio de las personas.

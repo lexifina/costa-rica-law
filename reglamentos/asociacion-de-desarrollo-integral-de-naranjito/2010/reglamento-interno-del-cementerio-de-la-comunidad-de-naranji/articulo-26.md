@@ -1,0 +1,1 @@
+Artículo 26.—En todo lo que no esté previsto en este Reglamento, se aplicará supletoriamente el Reglamento General de cementerios, Decreto Ejecutivo número 32833-S del 19 de diciembre del 2005 y demás disposiciones conexas.

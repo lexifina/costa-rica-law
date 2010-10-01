@@ -1,0 +1,1 @@
+Artículo 5º—El Comité Administrador deberá presentar un informe anual a la Junta Directiva de la Asociación y a la Asamblea General que incluya: ingresos, egresos, saldos del período y todo aquello que consideren conveniente poner en conocimiento de la organización.

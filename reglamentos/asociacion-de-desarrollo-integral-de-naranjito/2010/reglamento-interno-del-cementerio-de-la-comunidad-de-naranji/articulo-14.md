@@ -1,0 +1,1 @@
+Artículo 14.—Los derechos de arrendamiento sobre parcelas o nichos del cementerio comunal, se hará exclusivamente a personas físicas o jurídicas por un plazo no menor de cinco años y no mayor de 50 años, prorrogables por períodos iguales, en cuyo caso se requerirá estar al día con las obligaciones relacionadas con el servicio del cementerio.

@@ -1,0 +1,1 @@
+Artículo 22.—En días inhábiles el Comité Administrador del Cementerio deberá garantizar la efectiva prestación del servicio. El interesado queda en la ineludible obligación de presentarse ante el Comité, el día hábil siguiente a completar el trámite respectivo.

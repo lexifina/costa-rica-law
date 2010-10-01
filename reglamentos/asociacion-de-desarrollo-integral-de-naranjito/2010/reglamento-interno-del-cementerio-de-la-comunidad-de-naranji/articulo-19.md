@@ -1,0 +1,1 @@
+Artículo 19.—Inhumación: Los cadáveres serán inmediatamente inhumados por el encargado del cementerio en presencia de las personas que integren el séquito mortuorio, o al menos ante un testigo, previa cancelación del monto correspondiente por dicho servicio.

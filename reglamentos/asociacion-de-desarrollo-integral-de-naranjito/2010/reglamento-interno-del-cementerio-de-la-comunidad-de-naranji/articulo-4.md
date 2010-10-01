@@ -1,0 +1,1 @@
+Artículo 4º—La Junta Directiva de la Asociación podrá nombrar un Comité Administrador del Cementerio, integrado por miembros los cuales deben ser afiliados a la Asociación de Desarrollo Integral de Naranjito para cumplir con las estipulaciones de este Reglamento. Se elegirá también un encargado del cementerio.
