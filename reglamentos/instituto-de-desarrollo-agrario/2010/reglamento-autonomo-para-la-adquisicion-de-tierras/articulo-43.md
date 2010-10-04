@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De los criterios para la calificación y selección de fincas
+Artículo 43.—Los elementos a considerar en el análisis evaluativo de las fincas serán analizados y definidos por la Junta Directiva del Instituto, para lo cual la Dirección Nacional Agraria, remitirá un informe técnico que recomiende modificaciones a la escala de ponderación para predios que se deseen dedicar a un proyecto de granjas familiares y otro para las fincas que se quieren dedicar para Asentamientos parcelarios de producción agropecuaria. El sistema de calificación entrará en vigencia luego de aprobado por la Junta Directiva.
+La escala de ponderación recomendada, señalará las condiciones mínimas que debe tener una finca para que su adquisición pueda ser considerada, siendo para todos los efectos que el puntaje mínimo no debe ser inferior a 60.0 puntos, de los cuales un mínimo de 19.00 puntos deben ser aportados por el elemento “Clases de Tierras”

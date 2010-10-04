@@ -1,0 +1,1 @@
+Artículo 35.—La calificación de las fincas, la Comisión, analizará los expedientes asignándole una puntuación a cada una de acuerdo a los criterios que se detallan en el Capítulo VI de este Reglamento.

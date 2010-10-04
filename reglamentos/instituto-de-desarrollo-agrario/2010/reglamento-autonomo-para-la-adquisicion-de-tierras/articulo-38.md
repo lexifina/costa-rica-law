@@ -1,0 +1,1 @@
+Artículo 38.—Si definitivamente no se lograra llegar a un acuerdo de compra en los términos de los artículos anteriores, el Instituto analizará la posibilidad de adquisición del inmueble, siempre y cuando se cumpla con los requisitos que se indican en los artículos siguientes.

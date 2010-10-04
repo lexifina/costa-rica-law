@@ -1,0 +1,1 @@
+Artículo 13.—La Dirección Regional correspondiente realizará una inspección preliminar de cada finca ofrecida en venta que sea de interés. El resultado de la inspección constará en un informe escrito respetando el formato establecido por la Comisión.

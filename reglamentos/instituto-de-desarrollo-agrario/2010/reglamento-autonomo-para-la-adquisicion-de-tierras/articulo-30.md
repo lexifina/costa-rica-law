@@ -1,0 +1,1 @@
+Artículo 30.—La Dirección Nacional Agraria preparará un resumen del informe de comprobación de área y lo enviará a la Dirección Administrativo Financiera, para efectuar la cancelación del monto retenido.

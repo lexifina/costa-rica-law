@@ -1,0 +1,1 @@
+dd. Artículo 22—Cuando la Junta Directiva acuerde no adquirir un bien determinado, la Secretaria General procederá a informar a la persona oferente, ordenando el registro de dicho acto en el Departamento Formación de Asentamientos, así como el archivo del expediente administrativo. Si la resolución es positiva, se procederá como se regula en los artículos siguientes.
