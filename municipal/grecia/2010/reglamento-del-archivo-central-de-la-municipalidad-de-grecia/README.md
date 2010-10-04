@@ -14,3 +14,4 @@ Reglamento del Archivo Central de la Municipalidad de Grecia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-09 | la propia norma |
+| 2 | 2010-10-04 | Reglamento municipal 0 (2010-10-04) |
