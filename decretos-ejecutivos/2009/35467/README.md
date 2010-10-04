@@ -16,3 +16,4 @@ Promulga teniendo como vigente para los efectos internos y externos la Carta de 
 | 1 | 2009-09-23 | la propia norma |
 | 2 | 2009-10-13 | Decreto Ejecutivo 35596 (2009-10-13) |
 | 3 | 2010-05-13 | Decreto Ejecutivo 36061 (2010-05-13) |
+| 4 | 2010-10-04 | Decreto Ejecutivo 36264 (2010-10-04) |
