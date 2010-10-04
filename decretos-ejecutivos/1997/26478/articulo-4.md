@@ -1,2 +1,0 @@
-Artículo 4°—El Ente Nacional de Certificación de Medicamentos (ENACEM) emitirá certificaciones oficiales de declaración de medicamentos, que sean requeridos por el Ministerio de Salud o terceros que así lo soliciten.
-El actual Jefe del Laboratorio de Control de Calidad Químico Farmacéutico del Ministerio de Salud será el Director del Ente Nacional de Certificación de Medicamentos (ENACEM) y tendrá la autorización para oficializar con su rubrica y sello los certificados que se emitan.

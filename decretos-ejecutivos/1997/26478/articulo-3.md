@@ -1,1 +1,0 @@
-Artículo 3°—El Ente Nacional de Certificación de Medicamentos (ENACEM), que dependerá técnica y administrativamente de la División de Servicios Médicos y Farmacia del Ministerio de Salud, estará localizado físicamente en el Instituto de Investigaciones Farmacéuticas (INIFAR) de la Facultad de Farmacia de la Universidad de Costa Rica, el que le brindará el apoyo logístico.

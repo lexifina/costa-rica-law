@@ -1,1 +1,0 @@
-Artículo 8°—El programa de trabajo anual del Consejo considerará las necesidades cualitativas y cuantitativas del Programa Nacional de Vigilancia Sanitaria de Medicamentos y la capacidad técnica de LANACCAME.

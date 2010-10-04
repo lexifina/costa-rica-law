@@ -1,2 +1,0 @@
-Artículo 7°—Será función del Consejo Coordinador establecer el plan de trabajo anual, apoyar al Programa Nacional de Vigilancia de Medicamentos en lo que competa, y vigilará en general su buena marcha.
-El Consejo sesionará ordinariamente una vez al mes, por convocatoria que al efecto establezca el Ente Nacional de Certificación de Medicamentos (ENACEM) y extraordinariamente cuando uno de sus miembros lo solicite.

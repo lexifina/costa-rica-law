@@ -1,1 +1,0 @@
-Artículo 5°—El Ministerio de Salud podrá reubicar en el Ente Nacional de Centificación (ENACEM) y en el LANACCAME a funcionarios de su Cartera para colaborar en la realización de los análisis y estudios técnicos.
