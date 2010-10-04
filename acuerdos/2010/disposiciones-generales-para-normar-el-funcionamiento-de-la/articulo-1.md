@@ -13,5 +13,5 @@ e. Otorgar o denegar el refrendo de contratos de concesión de transporte remune
 (Así adicionado el inciso anterior por acuerdo Nº 026 aprobado en sesión Nº 019-2010 del 7 de mayo de 2010)
 f. Ratificar o no los contratos que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos.
 (Así adicionado el inciso anterior por acuerdo Nº 026 aprobado en sesión Nº 019-2010 del 7 de mayo de 2010)
-(*)(Nota de Sinalevi:Mediante acuerdo N° 010 del 20 de julio de 2010, se prorroga la vigencia del inciso 4) anterior hasta el 8 de octubre de 2010)
+(*)(Nota de Sinalevi:Mediante sesión N° 039 del 4 de octubre de 2010, se adiciona al Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, un artículo 51 transitorio II, en donde se prorroga la vigencia del Comité de Regulación, por lo que dicho comité va atener una vigencia que rige a partir del 9 de octubre de 2010 y hasta por un plazo de seis meses.)
 Rige a partir del 8 de mayo del 2010 y hasta la primera sesión que lleve a cabo la nueva Junta Directiva.
