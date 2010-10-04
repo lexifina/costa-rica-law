@@ -1,0 +1,13 @@
+Nº 36187-MOPT
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+Con fundamento en lo establecido en los artículos 140, incisos 3), y 18), y 146 de la Constitución Política, los artículos 25 y 28 de la Ley General de la Administración Pública.
+Considerando:
+1º—Que el MOPT es el órgano rector del Sector Transportes y mediante la planificación, coordinación, regulación, control y fiscalización de dicho Sector; participa en la promoción tanto a nivel público como privado de medidas que contribuyan a fortalecer la seguridad vial, adoptando reformas institucionales que permitan la puesta en marcha de políticas regionales coordinadas para la mejora sistemática de la seguridad en carreteras y de esta manera reducir la incidencia de los accidentes de tránsito y mejorar la calidad de vida de los costarricenses.
+2º—Que se requiere de la creación de espacios de aprendizaje a nivel nacional donde las empresas públicas y privadas puedan tener acceso a nuevo conocimiento a través de ponencias y exposiciones de expertos nacionales e internacionales, y de esta manera los participantes puedan identificar las mejores prácticas, los mecanismos utilizados en el exterior, entre otros; con el fin de incorporar las acciones que se requieran a nivel nacional para el mejoramiento continuo de la seguridad vial en Costa Rica y Centroamérica.
+3º—Que bajo la filosofía arriba señalada nace “Seminario Internacional sobre Seguridad Vial”, promovido por la Asociación Mundial de la Carretera y Organizado por el Ministerio de Obras Públicas y Transportes (MOPT), a través del Centro de Transferencia de Tecnología, con el apoyo de la Asociación Costarricense de Ingeniería de Transportes (ACITRA).
+4º—Que el “Seminario Internacional de Seguridad Vial” se llevará a cabo del 10 al 12 de noviembre del 2010, en Costa Rica, siendo un reconocimiento para el país ser escogido como sede de tan importante actividad.
+5º—Que es de interés nacional el intercambio de ideas y experiencias así como el seguimiento de los programas y proyectos en materia de seguridad vial.
+6º—Que en esta actividad se expondrán y analizarán un número importante de trabajos científicos, permitiendo de esta manera la adquisición de nuevos conocimientos e intercambio de experiencias y la identificación de acciones a seguir, que sin duda alguna beneficiarán a nuestro país. Por tanto,
+Decretan:
+Artículo 1º—Declaratoria. Se declara de interés público y nacional, el “Seminario Internacional sobre Seguridad Vial de la Asociación Mundial de la Carretera (PIARC)”, que se llevará a cabo en San José, Costa Rica del 10 al 12 de noviembre del 2010.
