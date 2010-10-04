@@ -1,0 +1,1 @@
+Artículo 70.—De las disposiciones supletorias. La Circular Nº DCOP-1-98, “Manual Técnico para el Desarrollo de Obra Pública”, emitida por la Contraloría General de la República, será aplicado supletoriamente en lo que el presente reglamento guarde silencio, sea compatible y no se oponga a lo preceptuado en este reglamento.

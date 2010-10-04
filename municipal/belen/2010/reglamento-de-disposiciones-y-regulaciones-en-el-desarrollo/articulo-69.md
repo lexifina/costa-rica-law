@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 69.—De la aplicación obligatoria del Manual Técnico para el Desarrollo de Obra Pública, emitido por la Contraloría General de la República. Lo que respecta a las normas específicas para el Control de Obra Pública en Ejecución, será de observancia obligatoria lo dispuesto por la Contraloría General de la República mediante la Circular Nº DCOP-1-98, “Manual Técnico para el Desarrollo de Obra Pública”. Aparte III Normas Específicas para el Control de una Obra Pública.

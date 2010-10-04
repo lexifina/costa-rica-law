@@ -1,0 +1,1 @@
+Artículo 57.—Incorporación de las modificaciones de obra en los planos. Todas las modificaciones que se realicen en la obra deben incorporarse en los planos finales de construcción, con el fin de reflejar fielmente cómo se construyó y su localización exacta.

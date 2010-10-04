@@ -1,0 +1,1 @@
+Artículo 17.—Del Registro de costos para cada etapa. Para todas las etapas del proyecto se mantendrán registros contables, que permitan identificar el costo de cada una de ellas y de la obra en general.

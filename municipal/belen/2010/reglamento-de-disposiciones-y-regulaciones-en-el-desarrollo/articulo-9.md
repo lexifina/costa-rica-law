@@ -1,0 +1,1 @@
+Artículo 9º—Uso de los recursos asignados al desarrollo de proyectos. Los recursos asignados al proyecto en cada una de sus etapas, deberán ser utilizados en forma económica, eficiente y eficaz, según lo previsto en los respectivos planes y programas.

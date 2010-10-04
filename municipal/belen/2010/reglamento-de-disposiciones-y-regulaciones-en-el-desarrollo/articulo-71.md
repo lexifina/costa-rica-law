@@ -1,0 +1,1 @@
+Artículo 71.—De las derogatorias. El presente reglamento deroga cualquier otra disposición Municipal anterior que se le oponga. Y toda modificación total o parcial de este Reglamento deberá ser aprobado por mayoría simple del total de los miembros del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 5º—De los estudios previos en cada proyecto. Todo proyecto deberá tener un grado de profundidad en sus estudios, proporcional a su complejidad, magnitud, costo y premura, sin embargo, esta última no debe privar sobre los otros aspectos.

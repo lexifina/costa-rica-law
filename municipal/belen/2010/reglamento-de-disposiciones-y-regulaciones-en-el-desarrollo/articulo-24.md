@@ -1,0 +1,1 @@
+Artículo 24.—Uso de la evaluación financiera y socio-económica. La evaluación financiera y socio-económica de los proyectos debe utilizase como un elemento esencial para tomar la decisión de aceptar o rechazar cada proyecto individual, así como para establecer el orden de prioridad para ejecutar una “cartera” o grupo de proyectos.

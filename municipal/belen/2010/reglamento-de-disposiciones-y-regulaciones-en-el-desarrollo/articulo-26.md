@@ -1,0 +1,1 @@
+Artículo 26.—Etapa de Inversión. Esta etapa es donde se realiza el proyecto físicamente, tal y como fue concebido y especificado en la etapa de Preinversión; y se compone de dos fases principales: la de diseño y la de construcción.
