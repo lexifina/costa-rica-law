@@ -14,3 +14,4 @@ Procedimiento para la promoción premios especiales con los sorteos de la loter�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-21 | la propia norma |
+| 2 | 2010-10-05 | Acuerdo 0 (2010-10-05) |

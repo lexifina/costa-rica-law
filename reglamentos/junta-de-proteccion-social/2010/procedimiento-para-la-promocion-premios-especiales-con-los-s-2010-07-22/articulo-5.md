@@ -1,5 +1,9 @@
 Artículo 5º—Mecánica de participación. Para la mecánica de participación se tienen dos opciones:
 1. Activación telefónica al número 25-21-60-02, página WEB www.jps.go.cr y puestos autorizados de la Junta (Socios Comerciales y Canales Autorizados).
 Se activará para cada sorteo el número de sorteo, la serie y número que tiene en su poder, además, de la cédula de identidad o documento de identificación al día y vigente, así como el número telefónico. Para reclamar el premio debe presentar la lotería activada.
-2. Envío de sobres por medio de Correos de Costa Rica o entrega en las oficinas centrales de la Junta y en la Sucursal Cartago:
+Los datos personales deben indicarse al reverso de la lotería, sean nombre número de cédula o documento de identificación y número de teléfono. Si la persona envía varias fracciones, dicha información deberá indicarla en cada una de las fracciones.
+(Así adicionado el párrafo anterior por acuerdo de la Junta de Protección Social y publicado en La Gaceta N° 204 del 21 de octubre de 2010)
+2. Envío de sobres por medio de Correos de Costa Rica o entrega en las oficinas centrales de la Junta y en la Sucursal Cartago
 Las personas que deseen participar pueden enviar por medio de Correos de Costa Rica al apartado 1979-1000 un sobre que contenga 10 fracciones de Lotería Popular. Las personas que lo tengan a bien pueden depositar un sobre tamaño carta que contenga 10 fracciones de Lotería Popular en los buzones ubicados en las oficinas centrales de la Junta de Protección Social. Para realizar la rifa, se considerará como válida la lotería que cuente con dos semanas máximo respecto de la fecha de realización del sorteo, es decir, la lotería Popular participante corresponde a dos semanas anteriores al respectivo sorteo.
+(*) El sobre debe ser blanco.
+(*)(Así adicionado el texto anterior por acuerdo de la Junta de Protección Social y publicado en La Gaceta N° 204 del 21 de octubre de 2010)
