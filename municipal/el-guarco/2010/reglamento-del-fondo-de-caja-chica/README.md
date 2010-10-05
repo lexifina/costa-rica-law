@@ -14,3 +14,4 @@ Reglamento del Fondo de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-23 | la propia norma |
+| 2 | 2010-10-05 | Reglamento municipal 0 (2010-10-05) |
