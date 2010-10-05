@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Autorízase al Instituto Nacional de Vivienda y Urbanismo (INVU), cédula de persona jurídica número cuatro-cero cero cero- cero cuatro dos uno tres cuatro - uno dos (N.º 4-000-042134-12), para que done el bien inmueble descrito en el artículo 1 de esta Ley a la Asociación de Desarrollo Específica para la Atención de la Guardería Infantil en la reconstrucción del Salón Comunal Ana Frank, Purral Abajo, Goicoechea, San José, cédula de persona jurídica número tres- cero cero dos- cinco cinco seis cinco cuatro siete (N.º 3-002-556547).
