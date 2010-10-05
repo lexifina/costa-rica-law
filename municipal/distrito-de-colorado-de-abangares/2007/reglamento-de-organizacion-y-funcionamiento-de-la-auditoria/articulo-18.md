@@ -1,0 +1,1 @@
+Artículo 18.—Jornada laboral: La jornada laboral del auditor y subauditor interno, será de tiempo completo y con total independencia funcional con respecto del jerarca y demás órganos de la administración activa, de conformidad con los artículos 25 y 30 de la Ley General de Control Interno número 8292.
