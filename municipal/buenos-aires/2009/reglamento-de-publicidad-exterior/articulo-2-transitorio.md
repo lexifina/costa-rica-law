@@ -70,3 +70,4 @@ Anuncios en predios sin edificaciones contiguo a vías públicas: | 12% | 32.376
 | | |
 Vallas publicitarias: | 20% | 53.960,00 | 13.490,00
 Buenos Aires 21 de julio del 2010 –
+(Nota de Sinalevi: La Municipalidad de Buenos Aires, mediante sesión ordinaria N° 40-2010 del 5 de octubre de 2010, acuerda aprobar la adición al presente Reglamento de las siguientes excepciones: Se exceptúan del presente Reglamento aquellos rótulos que estén regulados por leyes específicas como las vallas publicitarias y otros ubicados en la Red Vial Nacional, y aquellos rótulos regulados por el Ministerio de Obras Públicas y Transportes, basados en la Ley General de Caminos, la Ley de Tránsito por Vías Públicas y Terrestres, y la Ley Vial.)

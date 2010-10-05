@@ -14,3 +14,4 @@ Reglamento de Publicidad Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-05 | la propia norma |
+| 2 | 2010-10-05 | Reglamento municipal 40 (2010-10-05) |
