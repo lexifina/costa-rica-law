@@ -1,0 +1,1 @@
+Artículo 31.—El ICAFE podrá realizar publicaciones en los diferentes medios de circulación nacional, para informar al consumidor sobre aquellas empresas Tostadoras que gozan de la autorización del uso del sello.

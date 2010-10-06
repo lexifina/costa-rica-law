@@ -1,0 +1,1 @@
+Artículo 16.—La firma tostadora que se encuentre en desacuerdo con la resolución emitida por el ICAFE, podrá interponer los recursos pertinentes de acuerdo con lo establecido en la Ley General de la Administración Pública.

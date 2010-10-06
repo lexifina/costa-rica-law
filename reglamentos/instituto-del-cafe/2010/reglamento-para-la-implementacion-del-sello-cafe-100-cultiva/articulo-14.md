@@ -1,0 +1,1 @@
+Artículo 14.—Como complemento a la carta de solicitud referida en el artículo anterior, la firma tostadora deberá adjuntar las certificaciones emitidas por el registro de la Propiedad Industrial, en la que se haga constar la titularidad de las marcas comerciales o nombres comerciales que ofrece la tostadora.

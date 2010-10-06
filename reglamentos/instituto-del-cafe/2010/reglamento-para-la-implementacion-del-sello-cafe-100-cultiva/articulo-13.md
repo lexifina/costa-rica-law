@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del procedimiento de inscripción
+Artículo 13.—La persona interesada en obtener el Sello deberá presentar ante la Unidad de Asuntos Jurídicos del ICAFE una carta de solicitud en la que refiera su código activo como empresa Tostadora, donde se describan los datos generales de la tostadora, los nombres de la (o las) marcas o nombres comerciales de la empresa, elaboradas con café 100% Cultivado y cosechado en Costa Rica, la cantidad de sellos que necesitan para cubrir su producción durante los primeros 6 meses del programa y demás requisitos establecidos en el artículo 9 del presente reglamento.

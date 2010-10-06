@@ -1,0 +1,1 @@
+Artículo 12.—El Sello estará sujeto a inspecciones periódicas realizadas por el Instituto del Café de Costa Rica. La infracción a alguna de las normas establecidas para verificar el origen del producto, será causal de pérdida en el uso del distintivo sello “Café 100% Cultivado y Cosechado en Costa Rica.”

@@ -1,0 +1,1 @@
+Artículo 6º—El logo y los diseños que identifican el distintivo sello “Café 100% Cultivado y Cosechado en Costa Rica, no pueden ser utilizados bajo ningún concepto, por ninguna persona o firma Tostadora sin previa autorización por escrito del Instituto del Café de Costa Rica.

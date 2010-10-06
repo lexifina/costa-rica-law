@@ -1,0 +1,1 @@
+Artículo 19.—Tanto el café de origen 100% costarricense, como el elaborado con materia prima de otro origen, deberá encontrarse debidamente empacado e identificado de acuerdo a lo establecido en el presente reglamento y en la normativa conexa que refiere al tema.

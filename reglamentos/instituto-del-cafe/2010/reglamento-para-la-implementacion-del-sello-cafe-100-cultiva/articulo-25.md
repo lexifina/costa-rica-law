@@ -1,0 +1,1 @@
+Artículo 25.—Las empresas tostadoras que decidan voluntariamente ingresar al Programa sello Café 100% Cultivado y Cosechado en Costa Rica, deberá declarar ante el ICAFE mediante una Declaración Jurada la cantidad de café que se encuentra en sus bodegas, con el fin de determinar las cantidades de café nacional y de origen extranjero.

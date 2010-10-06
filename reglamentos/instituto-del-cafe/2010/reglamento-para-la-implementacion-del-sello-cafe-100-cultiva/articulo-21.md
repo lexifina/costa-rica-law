@@ -1,0 +1,1 @@
+Artículo 21.—La firma tostadora que adquiera café de origen extranjero, deberá informar dicha compra ante el ICAFE, indicando la cantidad de café comprado, el tipo, calidad, origen del mismo y el destino para el cual se transó la compra.

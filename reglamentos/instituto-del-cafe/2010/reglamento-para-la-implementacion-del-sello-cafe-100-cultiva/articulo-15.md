@@ -1,0 +1,2 @@
+Artículo 15.—En un plazo de tres días hábiles, el ICAFE mediante la Unidad de Asuntos Jurídicos dará respuesta a la solicitud aceptándola o denegándola temporalmente hasta que cumpla con los requisitos solicitados para la inscripción.
+De rechazarse la misma, se remitirá una prevención a la firma tostadora para que en el plazo de ocho días hábiles subsane cumpla con los requisitos prevenidos; de no recibir respuesta a dicha prevención se dará por desistida la solicitud.

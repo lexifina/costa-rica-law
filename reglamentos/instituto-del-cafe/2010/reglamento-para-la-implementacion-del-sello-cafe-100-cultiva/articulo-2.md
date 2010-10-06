@@ -1,0 +1,1 @@
+Artículo 2º—El sello “Café 100% Cultivado y Cosechado en Costa Rica” tiene por objeto salvaguardar la producción y venta del café de origen costarricense dirigido al mercado interno, ofreciendo al mercado de consumo nacional café 100% de origen costarricense.
