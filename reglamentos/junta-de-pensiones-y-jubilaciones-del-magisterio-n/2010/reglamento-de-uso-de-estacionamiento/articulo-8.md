@@ -1,0 +1,1 @@
+Artículo 8º—La asignación de los estacionamientos no constituye un derecho laboral del funcionario que lo haya disfrutado ni tampoco salario en especie, salvo que contractualmente o por otra normativa especial se disponga lo contrario.

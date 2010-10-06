@@ -1,0 +1,1 @@
+Artículo 20.—Cuando hubiera una colisión o accidente de tránsito dentro del área de parqueo de JUPEMA, se observará lo dispuesto en la Ley de Tránsito vigente, en cuanto al levantamiento de la información correspondiente por parte de la Policía de Tránsito y la substanciación de los procedimientos legales pertinentes para determinar las responsabilidades penales y civiles.

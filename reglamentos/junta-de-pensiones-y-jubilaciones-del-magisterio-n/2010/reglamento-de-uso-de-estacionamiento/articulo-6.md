@@ -1,0 +1,1 @@
+Artículo 6º—Una vez asignados los estacionamientos permanentes, el Departamento Administrativo, asignará los estacionamientos con base en el interés institucional, para lo cual el criterio de la antigüedad de cada servidor será el elemento objetivo y determinante para la concesión del derecho a estacionamiento y en última instancia el nivel jerárquico del servidor.

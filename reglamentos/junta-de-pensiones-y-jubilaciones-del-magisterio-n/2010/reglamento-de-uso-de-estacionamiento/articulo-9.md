@@ -1,0 +1,1 @@
+Artículo 9º—Una vez al año o cuando sea necesario el Departamento Administrativo revisará la asignación y el uso de los estacionamientos y efectuará una reasignación considerando las nuevas solicitudes de parqueo así como la capacidad del mismo y la cesación de relación laboral de los titulares.

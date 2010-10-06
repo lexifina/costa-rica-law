@@ -1,0 +1,1 @@
+Artículo 17.—El Departamento Administrativo comunicará, con al menos un día de antelación y sin ninguna responsabilidad para JUPEMA, la necesidad de desocupar el parqueo para atender actividades propias de la Institución.
