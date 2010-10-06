@@ -14,3 +14,4 @@ Reglamento de la Educación Superior Parauniversitaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-23 | la propia norma |
+| 2 | 2010-10-06 | Decreto Ejecutivo 36289 (2010-10-06) |

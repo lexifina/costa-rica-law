@@ -1,5 +1,7 @@
+(Derogado)
 Nº 30431-MEP
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE EDUCACIÓN PÚBLICA
+(Este decreto fue derogado por el artículo 73 del Reglamento a la Ley que Regula las Instituciones de Enseñanza Superior Parauniversitaria, aprobado mediante decreto ejecutivo N°36289 del 6 de octubre de 2010)
 Con fundamento en lo establecido en el artículo 140 incisos 3) y 18), de la Constitución Política y en lo indicado en la Ley Nº 6541 del 19 de noviembre de 1980, que regula la creación y funcionamiento de Instituciones de Educación Superior Parauniversitaria, y
 Considerando:
 1º—Que mediante Ley Nº 6541 del 19 de noviembre de 1980, se promulgó la ley que regula la creación y funcionamiento de Instituciones de Educación Superior Parauniversitaria.
