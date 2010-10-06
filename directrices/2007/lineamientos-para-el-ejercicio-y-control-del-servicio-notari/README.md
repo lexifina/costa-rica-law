@@ -18,3 +18,4 @@ Lineamientos para el Ejercicio y Control del Servicio Notarial
 | 4 | 2007-12-18 | Resolución 1752 (2007-12-18) |
 | 5 | 2008-03-03 | Resolución 324 (2008-03-03) |
 | 6 | 2008-05-09 | Resolución 740 (2008-05-09) |
+| 7 | 2010-10-06 | Reglamento 27 (2010-10-06) |

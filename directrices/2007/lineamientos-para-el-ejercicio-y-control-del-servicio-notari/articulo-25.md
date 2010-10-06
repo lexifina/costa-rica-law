@@ -1,3 +1,3 @@
 CAPÍTULO II
 Notario institucional
-Artículo 25.—Concepto. Notario autorizado para brindar el servicio únicamente para el Estado, con remuneración fija, dedicación exclusiva y sujeto al régimen de empleo público. Está expuesto a control, publicidad, requisitos, prohibiciones, impedimentos y régimen disciplinario. Debe satisfacer mensualmente el fondo de garantía y usar los mecanismos de seguridad que establece el CN y los que determine la DNN.
+Artículo 25.—(Derogado por el artículo 10 de los "Lineamientos para el ejercicio y control del Notario Institucional", aprobado mediante sesión N° 27 del 6 de octubre de 2010)

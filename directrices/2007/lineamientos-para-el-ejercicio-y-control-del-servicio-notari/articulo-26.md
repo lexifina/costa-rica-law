@@ -1,1 +1,1 @@
-Artículo 26.—Prohibiciones, impedimentos y limitaciones. El notario institucional está obligado a brindar el servicio, protocolar y extraprotocolarmente, desde una oficina pública, con prohibición de ejercer el notariado privadamente y cobrar honorarios al Estado, autorizando actos ajustados a estos lineamientos y referidos en forma exclusiva a la Institución para la cual laboran.
+Artículo 26.—(Derogado por el artículo 10 de los "Lineamientos para el ejercicio y control del Notario Institucional", aprobado mediante sesión N° 27 del 6 de octubre de 2010)
