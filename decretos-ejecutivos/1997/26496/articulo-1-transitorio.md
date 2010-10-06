@@ -1,1 +1,2 @@
-Transitorio I.—Las becas otorgadas por las instituciones del Estado antes de la promulgación de la ley No 7658 y su Reglamento, incluyendo las que surjan por acuerdo de convenios bilaterales o multilaterales de cooperación, seguirán vigentes hasta su cumplimento, quedando su ejecución a vigilancia del Fondo Nacional de Becas.
+Transitorio I.—Las becas otorgadas por las instituciones del Estado antes de la promulgación de la ley No 7658 y su Reglamento, incluyendo las que surjan por acuerdo de convenios bilaterales o multilaterales de cooperación, seguirán vigentes hasta su cumplimento, quedando su ejecución a vigilancia del FONABE(*).
+(*)(Modificada su denominación por el artículo 3 del decreto ejecutivo N° 36278 del 6 de octubre de 2010)

@@ -1,2 +1,2 @@
-Artículo 13.—Responsabilidades de los organismos auxiliares
-Los organismos auxiliares quedan obligados a acatar y cumplir con los procedimientos, parámetros y directrices emitidos por el Fondo Nacional de Becas. Asimismo, deberán suministrar la información que el Director Ejecutivo del Fondo estime pertinente.
+Artículo 13.—Responsabilidades de los organismos auxiliares del FONABE y redes de colaboración. Los organismos auxiliares y redes de colaboración quedan obligados a acatar y cumplir con los procedimientos, parámetros, directrices y disposiciones emitidos por el FONABE. Asimismo, deberán suministrar la información que éste estime pertinente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36278 del 6 de octubre de 2010)

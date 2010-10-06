@@ -16,3 +16,4 @@ Reglamento a la Ley N° 7658 Creación del FONABE
 | 1 | 1997-12-08 | la propia norma |
 | 2 | 1998-06-12 | Decreto Ejecutivo 27114 (1998-06-12) |
 | 3 | 2003-07-30 | SINALEVI (sin norma nombrada) |
+| 4 | 2010-10-06 | Decreto Ejecutivo 36278 (2010-10-06) |
