@@ -1,0 +1,2 @@
+Artículo 13.—Salida de computadoras portátiles. Las computadoras portátiles podrán salir de la institución bajo la responsabilidad de la persona que la tiene asignada, únicamente con el fin de llevar a cabo labores para la Institución, sin necesidad de llenar la boleta de préstamo porque en el contrato que firmará se estipularán las responsabilidades que conlleva sacar este equipo.
+Si el equipo es usado para cualquier otro fin que no sea para el uso Institucional para el que fue asignado, se considerará falta grave a las obligaciones laborales.

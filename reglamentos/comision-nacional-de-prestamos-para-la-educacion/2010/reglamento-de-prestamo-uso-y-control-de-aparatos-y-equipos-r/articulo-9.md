@@ -1,0 +1,1 @@
+Artículo 9º—Entrega y devolución. La entrega y la devolución de los aparatos y equipos prestados será competencia de la Sección Administrativa que deberá comprobar ante los beneficiarios el estado de conservación, utilidad y operación de los aparatos y equipos.
