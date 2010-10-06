@@ -15,3 +15,4 @@ Reglamento para el Funcionamiento del Concejo Nacional de Áreas de Conservació
 | --- | --- | --- |
 | 1 | 2005-09-19 | la propia norma |
 | 2 | 2008-03-11 | Decreto Ejecutivo 34433 (2008-03-11) |
+| 3 | 2010-10-06 | Decreto Ejecutivo 36270 (2010-10-06) |
