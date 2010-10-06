@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE NANDAYURE
+El Concejo Municipal en sesión ordinaria Nº 19 celebrada el día 8 de setiembre del 2010, tomó los siguientes acuerdos:
+Inciso 29) del artículo XIII: Modificar el artículo Nº 2 del Reglamento para el Otorgamiento de Patentes Temporales de Licores y Aprobación de Permisos de Baile, para que el mismo rece: Las solicitudes para las actividades mencionadas en los artículos anteriores deberán ser presentadas a la Secretaría del Concejo Municipal, con al menos ocho días naturales de anticipación y con un máximo de dos solicitudes por mes, por cada interesado. Rige a partir de su publicación.
+Inciso 30) del artículo XIII: Aumentar el monto a cobrar por el permiso para actividades bailables y otorgamiento de patentes temporales de licores y que dicho monto pase a la suma de ¢15.000,00 por día. Rige a partir de su publicación.
+Inciso 31) del artículo XIII: Modificar el Reglamento de Permisos de Patentes y Permisos de Fiestas Cívicas, Patronales, Turnos y Ferias Rodeos, en lo que respecta los honorarios que se deben cancelar a los Fiscales para que el monto ascienda a la suma de ¢15.000,00 por día. Rige a partir de su publicación.
+Nandayure, 16 de setiembre del 2010
