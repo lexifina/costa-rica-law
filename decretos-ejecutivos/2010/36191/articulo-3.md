@@ -1,0 +1,1 @@
+Artículo 3º—La retribución salarial de los puestos de Dictaminador de Fondo Institucional de la Dirección de Propiedad Industrial del Registro Nacional, será establecida por la Autoridad Presupuestaria.
