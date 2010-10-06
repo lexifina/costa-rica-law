@@ -1,1 +1,0 @@
-Artículo 12.—El Sello estará sujeto a inspecciones periódicas realizados por el Instituto del Café de Costa Rica. La infracción a alguna de las normas establecidas para verificar el origen del producto, será causal de pérdida de uso del sello.

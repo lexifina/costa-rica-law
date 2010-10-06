@@ -1,1 +1,0 @@
-Artículo 10.—En los casos en que el tostador compre su café a un comparador comerciante y a efecto de mantener la trazabilidad del producto; el tostador deberá solicitar al comprador comerciante incluir en el formulario de “Carta de Traspaso o Cesiones de Venta de Café de Consumo Nacional” una declaración jurada sobre el origen del “Café 100% Cultivado y Cosechado en Costa Rica”.
