@@ -1,0 +1,1 @@
+Artículo 21.—El monto que la Municipalidad cobrará al propietario cuando ha procedido a realizar la obra o el servicio, será el costo efectivo del mismo, más un diez por ciento de utilidad (10%), de acuerdo al artículo 74 del Código Municipal.

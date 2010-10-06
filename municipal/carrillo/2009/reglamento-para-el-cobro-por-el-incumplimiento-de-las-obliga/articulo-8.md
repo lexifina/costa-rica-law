@@ -1,0 +1,7 @@
+Artículo 8º—De acuerdo al artículo 76 del Código Municipal las multas serán las siguientes:
+a) Por no limpiar la vegetación de sus predios situados a orillas de las vías públicas ni recortar la que perjudique el paso de las personas o lo dificulte, trescientos colones (¢300,00) por metro lineal del frente total de la propiedad.
+b) Por no cercar los lotes donde no haya construcciones o existan construcciones en estado de demolición, cuatrocientos colones (¢400,00) por metro lineal del frente total de la propiedad.
+c) Por no construir las aceras frente a las propiedades ni darles mantenimiento, quinientos colones (¢500,00) por metro cuadrado del frente total de la propiedad.
+d) Por no remover los objetos, materiales o similares de las aceras o los predios de su propiedad, que contaminen el ambiente u obstaculicen el paso, doscientos colones (¢200,00) por metro lineal del frente total de la propiedad.
+e) Por obstaculizar el paso por las aceras de acceso a viviendas o negocios comerciales con retenes, cadenas, rótulos, materiales de construcción o artefactos de seguridad en entradas de garajes, quinientos colones (¢500,00) por metro lineal del frente total de la propiedad.
+f) Por no instalar bajantes ni canoas para recoger las aguas pluviales de las edificaciones, cuyas paredes externas colinden inmediatamente con la vía pública, ochocientos colones (¢800,00) por metro lineal del frente total de la propiedad.

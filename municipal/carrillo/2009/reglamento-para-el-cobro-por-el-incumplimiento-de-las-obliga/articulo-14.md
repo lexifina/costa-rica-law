@@ -1,0 +1,1 @@
+Artículo 14.—Instituciones Gubernamentales. De tratarse de instituciones públicas la suma adeudada por concepto de multa se disminuirá en un veinticinco por ciento (25%); para las actividades agrícolas, ganaderas, industriales, comerciales y turísticas se aumentará un cincuenta por ciento (50%), de acuerdo al artículo 76 bis, del Código Municipal.
