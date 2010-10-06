@@ -1,0 +1,1 @@
+Artículo 34.—Inopia. En caso de inopia comprobada y debidamente documentada, mediante la formación del expediente respectivo, la Junta Directiva previa autorización de la Contraloría General de la República, aprobará la modificación de los requisitos establecidos para el puesto, antes de iniciar un nuevo concurso público.

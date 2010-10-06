@@ -1,0 +1,1 @@
+Artículo 29.—Integración de la nómina. Se integrará con los tres candidatos (as) que obtengan las calificaciones más altas, en caso de igualdad en las calificaciones entre los candidatos (as) a la terna final, se hará el desempate tomando en cuenta los años de experiencia en puestos de auditoría.

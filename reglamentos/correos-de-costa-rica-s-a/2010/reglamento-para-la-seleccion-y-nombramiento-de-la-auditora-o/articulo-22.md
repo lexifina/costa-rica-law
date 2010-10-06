@@ -1,0 +1,1 @@
+Artículo 22.—Sobre el plazo para la presentación de ofertas. El plazo para la presentación y recepción de ofertas será de diez días naturales a partir de la publicación del cartel, en la Dirección de Recursos Humanos en el Centro Postal Zapote.
