@@ -14,3 +14,4 @@ Reglamento de Becas para Estudios Formales y de Capacitación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-28 | la propia norma |
+| 2 | 2010-10-07 | Reglamento 4493 (2010-10-07) |
