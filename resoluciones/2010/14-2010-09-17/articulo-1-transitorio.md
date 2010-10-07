@@ -1,0 +1,1 @@
+Transitorio: todos los casos que actualmente se encuentren en trámite para emitir la resolución de devolución conforme al artículo que por esta resolución se deroga, serán resueltos por la Tesorería Nacional.—Publíquese.—
