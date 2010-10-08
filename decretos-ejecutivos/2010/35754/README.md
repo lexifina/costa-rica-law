@@ -14,3 +14,4 @@ Régimen Tarifario para Servicios No Aeronáuticos en el Aeropuerto Internaciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-22 | la propia norma |
+| 2 | 2010-10-08 | Decreto Ejecutivo 36249 (2010-10-08) |
