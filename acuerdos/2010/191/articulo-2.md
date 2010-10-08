@@ -1,0 +1,1 @@
+Artículo 2º—Aprobar de conformidad con lo que establece el Reglamento 138-2008 A.J.D.I.P., de fecha 04 de abril del 2008, la propuesta del “Plan de Ordenamiento Pesquero para el establecimiento del Área Marina para la Pesca Responsable del Golfo Dulce”.
