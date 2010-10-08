@@ -1,25 +1,12 @@
 ARTICULO 11.- Corresponderá al Viceministro:
-a) Colaborar con el Presidente de la República y con el Ministro en
-la conducción de la política exterior y las relaciones internacionales del
-Estado costarricense.
-b) Ejercer las potestades que le confiere su calidad de superior
-jerárquico subordinado.
-c) Dirigir y coordinar las actividades internas y externas del
-Ministerio, sin prejuicio de las potestades del Ministro.
-d) Ser el centro de comunicación del Ministerio, en lo interno y
-externo.
-e) Realizar los estudios y reunir la documentación necesaria para la
-buena marcha del Ministerio.
-f) Delegar, avocar, sustituir o subrogar funciones dentro de los
-límites de la ley.
-g) Requerir ayuda de todo el personal del Ministerio para el
-cumplimiento de sus deberes.
-h) Sustituir al Ministro en sus ausencias temporales y asistir en su
-lugar a sesiones del Consejo de Gobierno y otros organismos
-gubernamentales.
-i) Servir e enlace permanente entre el Ministerio y la Asamblea
-Legislativa y mantener contacto con sus diferentes fracciones políticas
-con el fin de velar porque los asuntos del Ministerio reciban un trámite
-adecuado.
-j) Conocer y realizar los trámites y gestiones de aquellos asuntos y
-funciones que de acuerdo a su alto rango le delegue el Ministro.
+a) Colaborar con el Ministro en la definición y la conducción de la Política Exterior y de las relaciones internacionales del Estado Costarricense.
+b) Dirigir y coordinar las actividades internas y externas del Ministerio para el cabal cumplimiento de la Política Exterior establecida y de las directrices emitidas por el Ministro.
+c) Apoyar al Ministro – y representarlo cuando proceda- en el manejo de las relaciones con las representaciones diplomáticas, consulares e internacionales acreditadas en el país.
+d) Representar al Gobierno de Costa Rica, por delegación expresa del Ministro, en reuniones y negociaciones con representantes de gobiernos extranjeros y Organismos Internacionales, para avanzar en el análisis y la adopción de acuerdos de carácter diplomático, comercial, económico y otros, sin perjuicio de las potestades que en campos específicos corresponden a Ministerios especializados con los de Comercio Exterior, Planificación Nacional y Política Económica, Cultura y Juventud, Deportes y otros.
+e) Supervisar en forma directa, por delegación del Ministro, la correcta aplicación y ejecución del Estatuto del Servicio Exterior de la República y su Reglamento, lo mismo que dictar cuando se requiera, las medidas necesarias para el cumplimiento de ese objetivo. En los casos en que por la particular naturaleza de situaciones específicas lo considere necesario, coordinará la aplicación de las medidas necesarias con el (la) Viceministro (a) Administrativo (a).
+f) Delegar, avocar, sustituir o subrogar funciones dentro de los límites de la ley y los reglamentos vigentes.
+g) Requerir ayuda del personal del ministerio para el cumplimiento de sus deberes en materia de política exterior.
+h) Sustituir al Ministro en sus ausencias temporales; en esos casos, asistir en su lugar a las sesiones del Consejo de Gobierno y de otros entes gubernamentales.
+i) Servir de enlace permanente, por delegación y en representación del Ministro, entre el Ministerio y la Asamblea Legislativa, así como mantener contacto con las diferentes fracciones parlamentarias con el fin de velar por la buena marcha de las iniciativas de ley de cualesquiera asuntos que interesen o puedan afectar al Ministerio; y
+j) Conocer y realizar los trámites y gestiones de aquellos asuntos y funciones que de acuerdo con su alto rango le delegue el Ministro.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36271 del 8 de octubre de 2010)

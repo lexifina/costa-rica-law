@@ -14,3 +14,4 @@ Reglamento Tareas y Funciones Ministerio Relaciones Exteriores
 | --- | --- | --- |
 | 1 | 1990-04-30 | la propia norma |
 | 2 | 1990-04-30 | SINALEVI (sin norma nombrada) |
+| 3 | 2010-10-08 | Decreto Ejecutivo 36271 (2010-10-08) |
