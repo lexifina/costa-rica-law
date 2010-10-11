@@ -1,0 +1,1 @@
+Artículo 2º—En el mismo sentido del Artículo 1, establecer una suspensión de hasta sesenta días hábiles, a partir de esta fecha para el cumplimiento del requisito de contar con dispositivos de seguimiento satelital a embarcaciones pesqueras atuneras de red de cerco de bandera internacional, debidamente integrado a la plataforma de seguimiento del INCOPESCA.
