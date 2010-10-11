@@ -3,7 +3,6 @@ MISION INSTITUCIONAL:
 Dirigir y coordinar las estrategias de desarrollo del país, procurando obtener el mayor bienestar para todos los habitantes; manteniendo la estabilidad política, económica, social y ambiental de la República; así como representar a la Nación en los actos de carácter oficial.
 VISION INSTITUCIONAL:
 Conformar un Estado Costarricense desarrollado dentro de un ambiente de democracia y paz en armonía con la naturaleza, donde el modelo de desarrollo socio-económico del país beneficie a sus habitantes y en especial a las personas en condición de pobreza
-.
 PRIORIDADES INSTITUCIONALES:
 1. Fortalecimiento de la Seguridad Social.
 2. Seguimiento y coordinación al accionar de la Comisión Nacional de Emergencias y los planes y programas para la atención y mitigación de emergencias nacionales.
@@ -46,3 +45,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 36180 del 31 de agosto de 2010)
 (Modificado por los artículos 1° y 2° del decreto ejecutivo N° 36182 del 7 de setiembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36197 del 10 de setiembre de 2010)
+(Modificado por el artículo 2° del decreto ejecutivo N° 36251 del 11 de octubre de 2010)
