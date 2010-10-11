@@ -1,1 +1,2 @@
-Articulo 38.- Corresponderá al Director Administrativo y Financiero de la Institución velar por el cumplimiento de este Reglamento, quien rendirá un informe trimestral de esta gestión al Alcalde Municipal.
+Articulo 38.- Corresponderá al Tesorero Municipal y demás titulares subordinados de la institución velar por el cumplimiento de este Reglamento, asimismo el Tesorero Municipal rendirá un informe trimestral de la gestión de la caja chica al Alcalde Municipal. En los casos de violaciones al reglamento, el Tesorero deberá rendir informe de inmediato al Alcalde Municipal para el inicio de los procedimientos disciplinarios correspondientes.
+(Así reformado mediante sesión ordinaria N° 023-2010 y publicado en La Gaceta N° 212 del 2 de noviembre de 2010)
