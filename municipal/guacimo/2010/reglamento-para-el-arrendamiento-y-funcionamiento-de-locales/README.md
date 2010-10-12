@@ -14,3 +14,4 @@ Reglamento para el Arrendamiento y Funcionamiento de Locales Comerciales Propied
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-05 | la propia norma |
+| 2 | 2010-10-12 | Reglamento municipal 41 (2010-10-12) |
