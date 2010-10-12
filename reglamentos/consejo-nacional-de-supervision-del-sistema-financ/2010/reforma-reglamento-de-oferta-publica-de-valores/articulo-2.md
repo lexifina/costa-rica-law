@@ -1,0 +1,1 @@
+II. Modificar el nombre del Capítulo I del Título IV del Reglamento sobre Oferta Pública de Valores, para que en adelante se lea “CAPÍTULO I VALORES PROVENIENTES DE PROCESOS DE TITULARIZACIÓN Y OTROS VALORES ESTRUCTURADOS”.
