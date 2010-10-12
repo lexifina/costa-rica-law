@@ -14,3 +14,4 @@ Procedimiento de Investigación aplicable mediante código ECA-MC-P16
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-19 | la propia norma |
+| 2 | 2010-10-12 | Acuerdo 0 (2010-10-12) |
