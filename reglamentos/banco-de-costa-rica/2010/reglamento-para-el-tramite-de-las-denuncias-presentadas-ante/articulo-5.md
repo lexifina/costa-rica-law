@@ -1,0 +1,1 @@
+Artículo 5º—Recibo de denuncia. Las denuncias serán presentadas a la Auditoría Interna del BCR, ubicada en el Edificio Central del Banco; ya sea en forma verbal, escrita, electrónica, o por cualquier otro medio que permita establecer la fecha de recepción.

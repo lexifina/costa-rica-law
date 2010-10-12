@@ -1,0 +1,1 @@
+Artículo 12.—De la desestimación de la denuncia. Cuando la Auditoría Interna desestime una denuncia, deberá motivar y dejar la respectiva evidencia en los expedientes correspondientes, sobre los motivos por los cuales se desestimó.
