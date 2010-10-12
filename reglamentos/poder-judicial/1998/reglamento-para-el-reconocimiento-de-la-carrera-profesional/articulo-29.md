@@ -1,1 +1,1 @@
-Artículo 30.—El reconocimiento de los puntos asignados para libros y ensayos, si estos han sido escritos por más de un autor, se hará distribuyendo proporcionalmente el número de puntos correspondientes entre coautores, de acuerdo con las disposiciones de este reglamento.
+Artículo 29.—El pago de este incentivo salarial será proporcional a la jornada laboral, siempre y cuando no se contravenga lo dispuesto en el artículo 3º, inciso a) del presente reglamento.

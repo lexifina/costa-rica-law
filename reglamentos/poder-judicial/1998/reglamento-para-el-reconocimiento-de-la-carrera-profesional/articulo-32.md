@@ -1,1 +1,1 @@
-Artículo 33.—Al profesional interino se le aplicará la anualidad profesional automática a partir del nombramiento en propiedad en puesto profesional.
+Artículo 32.—No tendrá derecho al beneficio económico del sistema de Carrera Profesional quién ya disfrutare de un incentivo igual por norma legal o convencional.

@@ -1,1 +1,1 @@
-Artículo 31.—No percibirán lo correspondiente a horas instructor, docencia o publicaciones, quienes por la naturaleza de su trabajo, tales actividades se configuren como tareas propias del cargo, o bien, quienes reciban ya alguna retribución por éstos conceptos.
+Artículo 30.—El reconocimiento de los puntos asignados para libros y ensayos, si estos han sido escritos por más de un autor, se hará distribuyendo proporcionalmente el número de puntos correspondientes entre coautores, de acuerdo con las disposiciones de este reglamento.

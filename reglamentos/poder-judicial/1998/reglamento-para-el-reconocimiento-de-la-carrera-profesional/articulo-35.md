@@ -1,2 +1,1 @@
-Artículo 36.—El presente reglamento rige a partir de su publicación en el Boletín Judicial y deja sin efecto el anterior, publicado el 7 de julio de 1989 en el Boletín Judicial No 129, así como las reformas y acuerdos que se contrapongan a la presente reglamentación.
-San José, 12 de abril de 1999.
+Artículo 35.—El valor del punto será revisado anualmente o en un plazo menor cuando así se justifique por requerirse su actualización de acuerdo a las fluctuaciones del mercado salarial.

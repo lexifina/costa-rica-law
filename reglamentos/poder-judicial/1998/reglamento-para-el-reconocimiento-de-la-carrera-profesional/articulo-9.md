@@ -1,2 +1,1 @@
-Artículo 9°—El Departamento de Personal reconocerá de oficio únicamente los casos de profesionales nombrados en propiedad, en cuanto a grado académico y antigüedad profesional en el Poder Judicial y otros documentos que consten en su expediente personal en ese momento.
-Cuando se trate de profesionales nombrados interinamente el reconocimiento se hará a solicitud expresa de los interesados, adjunto a la cual deberán aportar los documentos e información necesaria para su trámite.
+Artículo 9º—El Departamento de Personal reconocerá de oficio los casos de profesionales nombrados en propiedad o de manera interina, en cuanto a grado académico y antigüedad profesional en el Poder Judicial y otros documentos que consten en su expediente personal en ese momento.

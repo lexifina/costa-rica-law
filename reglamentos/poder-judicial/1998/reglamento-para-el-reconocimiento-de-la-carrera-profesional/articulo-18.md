@@ -1,4 +1,3 @@
 Artículo 18.—La experiencia profesional se reconocerá siempre que:
-a) El servidor haya ocupado cargos profesionales para cuyo desempeño se exija al menos el
-bachillerato universitario y él posea ese grado.
-b) La experiencia profesional acumulada en otras instituciones del Estado, será reconocida si es afín a las tareas que ejecuta en el Poder Judicial, siempre que cumpla con lo enunciado en el inciso anterior y el interesado aporte una constancia con la información necesaria (puestos ocupados, período de los nombramientos, requisitos vigentes a la fecha del nombramiento, permisos con o sin goce de salario y otros necesarios para su calificación), la cual deberá ser emitida por la Oficina de Recursos Humanos.
+a) El servidor haya ocupado cargos profesionales para cuyo desempeño se exija al menos el bachillerato universitario y él posea ese grado.
+b) La experiencia profesional acumulada en otras instituciones del estado, será reconocida si es afín a las tareas que ejecuta en el Poder Judicial, siempre que cumpla con lo enunciado en el inciso anterior y el interesado aporte una constancia con la información necesaria (puestos ocupados, período de los nombramientos, requisitos vigentes a la fecha del nombramiento, permisos con o sin goce de salario y otros necesarios para su calificación), la cual deberá ser emitida por la Oficina de Recursos Humanos.

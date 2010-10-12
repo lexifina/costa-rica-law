@@ -1,1 +1,1 @@
-Artículo 7°—La Sección de Salarios del Departamento de Personal es la responsable de realizar los trámites necesarios para hacer efectivo el pago, asimismo le compete llevar el control y mantener actualizado el “Maestro de Personal”, en lo pertinente a este plus.
+Artículo 7º—La Sección de Salarios del Departamento de Personal es la responsable de realizar los trámites necesarios para hacer efectivo el pago; asimismo le compete llevar el control y mantener actualizado el “Maestro de Personal”, en lo pertinente a este plus.

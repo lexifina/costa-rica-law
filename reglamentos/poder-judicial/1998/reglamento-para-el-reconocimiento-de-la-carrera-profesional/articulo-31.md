@@ -1,1 +1,1 @@
-Artículo 32.—No tendrá derecho al beneficio económico del sistema de Carrera Profesional quien ya disfrutare de un incentivo igual por norma legal o convencional.
+Artículo 31.—No percibirán lo correspondiente a horas instructor, docencia o publicaciones, quienes por la naturaleza de su trabajo, tales actividades se configuren como tareas propias del cargo, o bien, quienes reciban ya alguna retribución por éstos conceptos.

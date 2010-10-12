@@ -1,2 +1,1 @@
 Artículo 25.—Los Jefes de Departamento y Dirección así como los Miembros del Consejo Superior y los funcionarios que administran justicia están excluidos del proceso de calificación de servicios.
-Artículo 26.—Los efectos derivados del artículo 24 quedarán sin efecto si en el próximo período de calificación el profesional obtiene una nota no inferior a “MUY BUENO” o al criterio cuantitativo equivalente.

@@ -1,4 +1,4 @@
-CAPITULO V
+CAPÍTULO V
 Requisitos para optar por el beneficio
 Artículo 12.—Los grados académicos que presenten los profesionales para efectos de Carrera Profesional deberán ser:
 a) Relacionados directamente con la disciplina a que pertenece el cargo que ocupa en la Institución.
