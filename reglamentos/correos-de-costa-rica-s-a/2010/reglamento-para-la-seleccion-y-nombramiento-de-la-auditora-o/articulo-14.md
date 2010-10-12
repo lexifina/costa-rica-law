@@ -1,4 +1,5 @@
-Artículo 14.—Formación académica, experiencia, conocimientos complementarios y otros. El Auditor o Auditora, Subauditor o Subauditora Interno (a) en forma interina deberá cumplir los siguientes requisitos:
+Artículo 14.—Formación académica, experiencia, conocimientos complementarios y otros. El Auditor o Auditora, Subauditor o Subauditora Interno (a) en Propiedad (*) deberá cumplir los siguientes requisitos:
+(*)(Así reformado la frase anterior mediante acuerdo N° 5282 de la sesión N° 1046 del 12 de octubre de 2010, que anteriormente decía en "forma interina")
 Tipo de concurso: | Público
 Plaza: | Auditor o Auditora, Subauditor o Subauditora
 Cantidad de puestos: | Uno (1) para cada caso

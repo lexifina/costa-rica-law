@@ -14,3 +14,4 @@ Reglamento para la selección y nombramiento de la Auditora o Auditor, Subaudito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-06 | la propia norma |
+| 2 | 2010-10-12 | Reglamento 1046 (2010-10-12) |
