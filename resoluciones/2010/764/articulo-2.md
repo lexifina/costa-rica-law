@@ -1,0 +1,1 @@
+Artículo 2º—El ajuste de las tarifas correspondiente al mes de setiembre del 2010, entrará en vigencia el día siguiente de su publicación en el Diario Oficial La Gaceta y para su cálculo en colones se utilizará el tipo de cambio de venta del dólar del Banco Central de Costa Rica, del día anterior a su publicación.

@@ -1,0 +1,1 @@
+Artículo 4º—El ajuste de las tarifas correspondiente al mes de agosto del 2011, entrará en vigencia el día 1º de agosto del 2011, y para su cálculo en colones se utilizará el tipo de cambio de venta del dólar del Banco Central de Costa Rica, del día anterior.

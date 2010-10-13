@@ -1,0 +1,1 @@
+Artículo 5º—En todos los casos anteriores, para mejorar la atención recibida, el tiempo de la compra del tiquete y facilitar en pago de las tarifas por parte de los usuarios y su respectivo cobro; en la definición de las tarifas en colones, se redondeará a la centena inferior más próxima.
