@@ -1,2 +1,7 @@
-Artículo 41.—De la Dirección General de Asesoría Jurídica y Regulatoria (DJR). La Dirección General de Asesoría Jurídica y Regulatoria presta asesoría a la Junta Directiva, al Regulador General y al Gerente General, emite opinión y criterios en asuntos de su competencia y es responsable de los procesos judiciales y administrativos de la institución.
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 33 al 41 actual)
+Artículo 41.—Naturaleza y estructura de las Direcciones Generales. Las Direcciones Generales son las áreas técnicas encargadas de brindar servicios especializados a la Junta Directiva, el Regulador General, las Superintendencias y la Gerencia General.La Autoridad Reguladora cuenta con las siguientes cuatro Direcciones Generales:
+a. Dirección General de Participación del Usuario.
+b. Centro de Desarrollo de la Regulación.
+c. Dirección General de Asesoría Jurídica y Regulatoria.
+d. Dirección General de Estrategia y Evaluación.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 28 al 36 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 36 al 41 actual)

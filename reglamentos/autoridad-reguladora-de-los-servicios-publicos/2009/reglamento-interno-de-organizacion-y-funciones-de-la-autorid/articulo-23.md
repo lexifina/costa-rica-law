@@ -1,12 +1,16 @@
-Artículo 23.—Funciones de la Dirección de calidad. Son funciones de esta dirección las siguientes:
-1) Analizar la información que los operadores remitan a la SUTEL referida a los riesgos identificables en la seguridad de la red. En el caso de que se requieran tomar medidas para mitigar dichos riesgos, informará y recomendará al Consejo, las acciones y medidas a tomar, según corresponda.
-2) Velar para que los operadores y proveedores ofrezcan acceso a los usuarios finales con discapacidad a los servicios regulados en la ley 8642 en condiciones no discriminatorias, de conformidad con lo establecido en el artículo 45 de dicha ley.
-3) Analizar la comunicación de los operadores de redes públicas y los proveedores de servicios de telecomunicaciones disponibles al público, sobre los medios disponibles y los tiempos ofrecidos de atención de las reclamaciones que presenten los usuarios finales por violación a lo dispuesto en el Capítulo II del Título II de la Ley 8642, de conformidad con lo establecido en el artículo 47 de dicha ley.
-4) Tramitar, investigar y resolver las reclamaciones originadas por la violación a los derechos a que se refiere el Capítulo II del Título II de la Ley 8642.
-5) Establecer las disposiciones para que se corrijan las anomalías determinadas en el procedimiento administrativo de reclamación de violación de derechos de los usuarios y cuando en derecho corresponda, ordenar resarcir los daños y perjuicios en sede administrativa.
-6) Recomendar al Consejo de la Sutel la interposición de denuncias ante el Ministerio Público por las responsabilidades penales que se desprendan de las reclamaciones presentadas ante la Sutel.
-7) Velar por la sostenibilidad ambiental en la explotación de las redes y la prestación de los servicios de telecomunicaciones.
-8) Inspeccionar y evaluar las condiciones de uso y explotación de las redes y los servicios de telecomunicaciones, así como los demás equipos, aparatos e instalaciones. De igual manera, corresponderá inspeccionar y evaluar las redes de radiodifusión y televisión cuando estas sirvan de soporte para ofrecer servicios de telecomunicaciones.
-9) Efectuar cualquier acción directa de supervisión, verificación, inspección o vigilancia respecto de los operadores y proveedores, de conformidad con lo señalado en el artículo 76 de la Ley 7593.
-10) Realizar las comprobaciones técnicas de las emisiones radioeléctricas, así como la inspección, detección e identificación de las interferencias perjudiciales y los recursos de numeración, conforme a los planes respectivos.
+Artículo 23.—Funciones de la Unidad Jurídica. El Consejo de la Superintendencia de Telecomunicaciones, cuenta con el apoyo de una Coordinación jurídica como una unidad administrativa que está especializada en lo Jurídico con autoridad, dirección y responsabilidad para elaborar, sistematizar y difundir los criterios u opiniones necesarios para interpretar y aplicar el ordenamiento jurídico que sean requeridos para el funcionamiento de Superintendencia y el fiel cumplimiento de sus fines y funciones e implementar, divulgar, controlar y ejecutar estrategias, políticas, lineamientos y normas en materia de telecomunicaciones. Está a cargo de un o una Coordinador(a) con las siguientes funciones básicas:
+Formular y proponer las políticas, sobre aspectos jurídicos y legales de la SUTEL, asó como las normas de carácter legal y acciones judiciales necesarias para el mejor cumplimiento de los objetivos institucionales.
+Ejercer y/o supervisar el patrocinio de los procesos judiciales, los procedimientos administrativos en los que sea parte de la SUTEL;
+Emitir, sistematizar y difundir criterios y opiniones a fin de homogenizar las interpretaciones y aplicaciones del ordenamiento jurídico, de manera tal que se asegure la consistencia del criterio técnico jurídico de la SUTEL;
+Coordinar la asesoría jurídica de cada una de las Direcciones Generales;
+Colaborar y coordinar la asesoría jurídica en cada una de las Direcciones Generales de la SUTEL, especialmente en cuanto a:
+La Interpretación, concordancia y divulgación de las normas legales de interés para la gestión institucional que se publiquen, debiendo resolver las consultas correspondientes;
+La aplicación de la normativa, lineamientos y procedimientos establecidos del régimen sancionatorio de telecomunicaciones, para la determinación de infracciones y la imposición de sanciones según corresponda;
+Asesorar e informar oportunamente sobre asuntos jurídicos y sus implicaciones en el desarrollo de las funciones de las diferentes dependencias y del Consejo de la SUTEL;
+Elaborar y/o asesorar en la formulación de proyectos de normas legales, convenios, contratos y otros documentos afines;
+Preparar, revisar, mantener y compilar los instrumentos normativos de la SUTEL y ARESEP, incluyendo normas generales, circulares, instrucciones, directivas y memorandos administrativos;
+Coordinar la implementación de las disposiciones dadas por el Consejo y su presidente, en lo atinente a sus funciones;
+Llevar el archivo vigente y mantener bases de datos con la normativa y regulación vigente y establecer mecanismos ágiles y eficientes para sistematizar la jurisprudencia judicial y administrativa que incida en la actividad de la SUTEL;
+Cualesquiera otras funciones relacionadas con su ámbito de acción y que le sean asignadas por el Consejo.
+(Así reformado en sesión ordinaria N° 042-2010 del 13 de octubre de 2010)
 (Así adicionado en sesión ordinaria N° 010-2010 del 18 de marzo de 2010)

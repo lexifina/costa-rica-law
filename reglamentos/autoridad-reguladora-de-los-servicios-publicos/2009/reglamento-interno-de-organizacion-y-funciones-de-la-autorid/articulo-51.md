@@ -1,16 +1,11 @@
-Artículo 51.—Transitorio II
-Se prorroga la vigencia del Comité de Regulación, creado mediante acuerdo 003-15-2010 de la sesión 015-2010 del 15 de abril de 2010, publicado en el Diario Oficial La Gaceta Nº 84 del 3 de mayo del 2010 y modificado mediante acuerdos 026-019-2010 de la sesión 019-2010 del 7 de mayo del 2010, publicado en el Diario Oficial La Gaceta Nº 109 de 7 de junio del 2010 y 010-020-2010 de la sesión 020-2010 de 20 de julio de 2010, publicado en el Diario Oficial La Gaceta Nº 151 del 5 de agosto de 2010.
-Dicho órgano colegiado estará integrado por tres funcionarios titulares y un suplente nombrados por el Regulador General.
-Corresponderá al Comité de Regulación, ejercer las siguientes funciones:
-a. Ordenar la apertura de los expedientes tarifarios, fijar las tarifas de los servicios públicos y resolver los recursos de revocatoria que se presenten contra sus actuaciones;
-b. Resolver lo que corresponda en materia de quejas y denuncias y conocer en primera instancia los recursos de revocatoria que se presenten contra sus actuaciones;
-c. Resolver los procedimientos administrativos sancionatorios a que se refieren los artículos 38 y 41 de la Ley 7593 y conocer de los recursos de revocatoria que se presenten contra sus actuaciones;
-d. Coordinar los actos preparatorios necesarios para remitir a la Junta Directiva, para su resolución, las apelaciones a las fijaciones de tarifas, cánones, tasas y contribuciones de telecomunicaciones de la Superintendencia de Telecomunicaciones;
-e. Otorgar o denegar el refrendo de contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos,
-f. Ratificar o no los contratos que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos.
-Para el cumplimiento de las funciones asignadas en el punto anterior, dicho comité contará con la asesoría permanente de la Dirección de Servicios de Energía, la Dirección de Servicios de Agua y Ambiente y la Dirección de Servicios de Transportes, en cada una de sus áreas.
-Dichas Direcciones asumirán las funciones que el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora y sus órganos desconcentrados asigna a de las Superintendencias según corresponda, con excepción de las encomendadas al Comité de Regulación en este artículo.
-Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas que venían ejerciendo dichas Direcciones, éstas continuarán realizándolas durante el periodo de vigencia de esta medida transitoria.
-Una vez que entren en funcionamiento las Superintendencias, las respectivas Direcciones pasarán a formar parte de cada Superintendencia, según corresponda.
-Esta medida transitoria rige a partir del 9 de octubre de 2010 y hasta por un plazo de seis meses.
-(Así adicionado en sesión extraordinaria N° 039-2010 del 4 de octubre de 2010)
+Artículo 51.—Funciones gerenciales de Servicios Generales.
+a. Elaborar, divulgar e implantar con el apoyo de la Dirección, las políticas y los lineamientos en materia de Servicios Generales a nivel institucional.
+b. Velar por el adecuado funcionamiento del área de transportes, servicios de reproducción, mensajería, mantenimiento, vigilancia y aseo para que brinde un servicio de calidad y oportuno conforme a los recursos disponibles.
+c. Velar por el adecuado cumplimiento y calidad de los contratos continuados, concerniente a los servicios adquiridos por la Institución para las áreas de servicio y apoyo de su competencia.
+d. Efectuar los trámites para la adquisición de líneas de seguros para la protección de los activos fijos, conforme a las políticas dictadas por la Administración en resguardo de los mismos y mantener el control correspondiente.
+e. Ejercer una adecuada administración de la red de voz y llevar control del tráfico de llamadas entrantes y salientes a través de la central telefónica y procurar un eficiente enrutamiento y atención de las llamadas que se reciban.
+f. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
+g. Apoyar a la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
+h. Ejecutar las demás labores que le encomienden sus superiores.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 38 al 46 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 46 al 51 actual)

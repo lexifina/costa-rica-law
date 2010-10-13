@@ -1,13 +1,4 @@
-Artículo 35.—Funciones de la Gerencia General.
-a. Ejercer la dirección de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación para que su accionar contribuya al desarrollo de la regulación en el mejor interés de los usuarios de los servicios públicos, así como para que cumplan en tiempo con las instrucciones de la Junta Directiva y el Regulador así como con las solicitudes de las Superintendencias.
-b. Velar por la calidad y la oportunidad de los servicios al resto de la organización brindados por las Direcciones Generales a su cargo.
-c. Facilitar la coordinación entre las Superintendencias y las Direcciones Generales a su cargo para que éstas brinden sus servicios con la mayor oportunidad y la mayor diligencia.
-d. Tomar las medidas necesarias para que se ejecuten los acuerdos tomados por la Junta Directiva.
-e. Dictar instrucciones en materia administrativa de acatamiento obligatorio para toda la institución.
-f. Administrar los recursos de la Institución para establecer la política integral de desarrollo institucional.
-g. Dictar como órgano decisor, las resoluciones en el ámbito de su competencia definido en este artículo.
-h. Apoyar a la Dirección General de Estrategia y Evaluación en el proceso de planeación estratégica con criterios de eficiencia, productividad y calidad, de acuerdo con los lineamientos fijados por la Junta Directiva, en procura de la sostenibilidad y el desarrollo integral de ARESEP.
-i. Apoyar a la Dirección General de Estrategia y Evaluación en el diseño, la integración y el seguimiento de los planes y proyectos estratégicos institucionales.
-j. Coordinar la elaboración de los proyectos de cánones y de los proyectos de presupuesto, con la colaboración de la Dirección General de Estrategia y Evaluación, así como llevarlos a la Junta Directiva para su conocimiento y aprobación.
-k. Cualesquiera otras competencias que le encomiende el Regulador General, la Junta Directiva o que sean propias de su actividad y rango.
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 27 al 35 actual)
+De la Superintendencia de Energía (SUENERGÍA)
+Artículo 35.—Competencias. SUENERGÍA ejerce la regulación económica integral de los servicios de suministro de energía eléctrica en las etapas de generación, transmisión, distribución y comercialización, suministro de combustibles derivados de hidrocarburos (conforme se señalan en el artículo 5 incisos a) y d) de la Ley 7593).
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 22 al 30 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 30 al 35 actual)

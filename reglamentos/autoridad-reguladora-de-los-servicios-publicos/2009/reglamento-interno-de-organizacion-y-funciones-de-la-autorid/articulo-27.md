@@ -1,11 +1,3 @@
-Artículo 27.—Funciones de la Dirección del Fondo Nacional de Telecomunicaciones.
-Son funciones de esta dirección las siguientes:
-1) Garantizar que los operadores y proveedores cumplan lo establecido en el Capítulo I del Título II sobre acceso universal, servicio universal y solidaridad de la ley y lo que reglamentariamente se establezca.
-2) Administrar los recursos de Fonatel.
-3) Establecer reglamentariamente los requisitos para que los operadores o proveedores que ejecuten recursos de Fonatel, mantengan un sistema de contabilidad de costos separado.
-4) Acreditar las firmas de contadores públicos autorizados que anualmente auditarán el sistema de contabilidad de costos separados.
-5) Establecer los mecanismos de control interno para administrar los recursos de Fonatel.
-6) Tener disponible la información sobre la operación y el funcionamiento de Fonatel, para la auditoría interna de la Autoridad Reguladora.
-7) Administrar el Fondo Nacional de Telecomunicaciones y garantizar el cumplimiento de las obligaciones de acceso y servicio universal que se impongan a los operadores de redes y proveedores de servicios de telecomunicaciones.
-8) Elaborar los estudios y preparar la propuesta como recomendación del Consejo para la fijación de la tarifa de la contribución especial parafiscal de conformidad con lo previsto en el artículo 39 de la ley.
+Artículo 27.—De la Dirección General de Calidad. Es responsable de ejercer la regulación desde la perspectiva de calidad de servicio. Tramita, investiga y resuelve las quejas de los usuarios finales de los servicios de telecomunicaciones, para lo cual podrá contar con los servicios que prestan las áreas de apoyo de la Autoridad Reguladora. Evalúa la calidad del servicio de los operadores y proveedores, para lo cual realiza estudios técnicos programados así como aquellos que la resolución de quejas requiera. Monitorea constantemente el espectro radioeléctrico para garantizar su uso efectivo. Depende directamente del Consejo. Está conformada por dos unidades administrativas en materia de Calidad de Redes y en materia de Espectro Radioeléctrico.
+(Así reformado en sesión ordinaria N° 042-2010 del 13 de octubre de 2010)
 (Así adicionado en sesión ordinaria N° 010-2010 del 18 de marzo de 2010)

@@ -1,4 +1,11 @@
-Artículo 52.—Transitorio III
-Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas de la Autoridad Reguladora, la Dirección Administrativa Financiera asumirá las actividades y funciones gerenciales de administración financiera y de servicios generales, estipuladas en los artículos 45 y 46 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, mientras que la Gerencia General se prepara para asumir dichas funciones directamente.
-Esta medida transitoria rige a partir del 9 de octubre de 2010 y hasta por un plazo de seis meses.
-(Así adicionado en sesión extraordinaria N° 039-2010 del 4 de octubre de 2010)
+Artículo 52.—Funciones gerenciales de la Proveeduría Institucional.
+a. Proveer de manera eficiente, oportuna y suficiente, los insumos que demande la operación de la Institución.
+b. Elaborar los planes anuales de compras, en coordinación con las demás áreas de la institución y proponerlo al Gerente General.
+c. Instruir los procesos de contratación administrativa, siendo su deber llevar el control de la presentación y vigencia de las garantías presentadas.
+d. Llevar a cabo las evaluaciones operativas e inventarios de la bodega de la ARESEP.
+e. Apoyar a las Direcciones Generales en lo siguiente:
+i. A la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
+ii. A la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
+f. Todas aquellas que le asigne su superior.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 39 al 47 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 47 al 52 actual)

@@ -1,4 +1,12 @@
-Artículo 50.—Transitorio I(*). Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas de la Autoridad Reguladora, sus dependencias continuarán realizando las actividades, funciones y tareas que actualmente realizan, hasta que el Regulador General disponga otra cosa. El Regulador dispondrá de dieciocho meses a partir de la vigencia de este Reglamento para implementar los cambios
-(*)(Así reformado el título mediante sesión extraordinaria N° 039-2010 del 4 de octubre de 2010)
-(Así corrida su numeración por sesión ordinaria N° 010-2010 del 18 de marzo de 2010 que lo traspasó del antiguo artículo 42 al 50 actual)
-(Así reformado mediante sesión extraordinaria N° 013-2010 del 8 de abril de 2010)
+Artículo 50.—Funciones gerenciales de Administración Financiera.
+a. Implementar, divulgar, controlar y ejecutar los objetivos, políticas, estrategias, lineamientos y normas en materia de gestión financiera, contable, presupuestaria, tesorería y administración de activos institucionales.
+b. Elaborar los proyectos de presupuestos ordinarios y extraordinarios, las modificaciones presupuestarias, los presupuestos anuales, los proyectos anuales de cánones, los estados financieros, la liquidación presupuestaria y otros, que garanticen una gestión financiera transparente y útil para la toma de decisiones.
+c. Brindar información actualizada, oportuna y confiable, acerca de la situación económica-financiera de la institución y sobre los resultados de operación, de ejecución presupuestaria, de cobro de cánones y demás ingresos institucionales.
+d. Realizar los análisis, estudios e investigaciones que se requieran para la debida fiscalización de los recursos financieros.
+e. Planear, ejecutar y controlar todas las actividades relacionadas con los trámites y registros salariales y los movimientos del personal.
+f. Efectuar los trámites respectivos para la donación y desecho de activos de la Institución, conforme a las disposiciones de la Ley 6106, Ley Nº 8034 y demás disposiciones y política interna sobre la materia.
+g. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
+h. Apoyar a la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
+i. Todas aquellas que le asigne su superior.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 37 al 45 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 45 al 50 actual)
