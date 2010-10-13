@@ -1,0 +1,5 @@
+CAPITULO VIII
+Disposiciones finales
+(Nota de Sinalevi. Mediante el artículo 7° del decreto ejecutivo N° 36395 del 13 de octubre de 2010, se adiciona un capítulo XI al presente reglamento y se ordena correr la numeración de los siguientes. No obstante, en este capítulo no se ha efectuado la correspondiente adecuación de dicha numeración debido a que desde la publicación original se consignó erróneamente el número a este capítulo estableciéndose que era el capítulo VIII cuando en realidad correspondía al capítulo X, mismo actualmente corresponde al capítulo XII)
+Artículo 57.—Este decreto deroga el Decreto Ejecutivo N° 24008-S del 22 de diciembre de 1994, y sus reformas, y el Decreto Ejecutivo Nº 17968-S publicado en La Gaceta 39 del 25 de febrero de 1988.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 34925 que lo traspaso del antiguo artículo 50 al 52 actual. Posteriormente se corre nuevamente la numeración de este artículo por el artículo 7° del decreto ejecutivo N° 36395 del 13 de octubre de 2010, que lo traspasa de antiguo artículo 52 al artículo 57)
