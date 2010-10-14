@@ -14,3 +14,4 @@ Reglamento para la Compra de Medicamentos, Materias Primas, Reactivos y Material
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-26 | la propia norma |
+| 2 | 2010-10-14 | SINALEVI (sin norma nombrada) |

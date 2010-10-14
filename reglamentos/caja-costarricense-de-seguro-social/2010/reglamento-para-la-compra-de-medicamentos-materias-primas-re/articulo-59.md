@@ -1,1 +1,1 @@
-Artículo 59.—Sanciones. Las sanciones contra los proveedores serán las establecidas en la Ley de Contratación Administrativa, tanto en sus causales como consecuencias jurídicas. Estas sanciones son de naturaleza administrativa, por lo tanto su aplicación no excluye la imposición de las sanciones que prevé la legislación penal, ni el reclamo de responsabilidades civiles, por vía administrativa como judicial.
+Artículo 59.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

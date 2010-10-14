@@ -1,1 +1,1 @@
-Artículo 17.—Administración del registro. El registro al que se refiere el artículo anterior estará a cargo de la Gerencia de Logística, a través de la instancia que al efecto se designe, tanto para su constitución como actualización y control.
+Artículo 17.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

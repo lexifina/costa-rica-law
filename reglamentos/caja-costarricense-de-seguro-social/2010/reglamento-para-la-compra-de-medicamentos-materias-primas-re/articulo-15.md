@@ -1,1 +1,1 @@
-Artículo 15.—Alcances. Toda persona física o jurídica interesada en venderle a los distintos órganos de la Caja, acreditarán en el registro precalificado la capacidad de los proveedores para vender a la institución de acuerdo con aspectos administrativos, técnicos, jurídicos y financieros que corresponderá a la Gerencia de Logística definir de forma que se asegure la idoneidad del proveedor y la calidad del producto.
+Artículo 15.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

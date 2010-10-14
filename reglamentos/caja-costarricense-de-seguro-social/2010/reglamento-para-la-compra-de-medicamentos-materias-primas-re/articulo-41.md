@@ -1,1 +1,1 @@
-Artículo 41.—Otras modalidades de compra. Los procedimientos de contratación previstos en el presente Reglamento, no excluyen la posibilidad de adoptar las distintas modalidades de compra que establece la Ley de Contratación y su Reglamento, cuando convenga a los intereses institucionales.
+Artículo 41.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

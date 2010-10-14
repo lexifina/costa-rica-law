@@ -1,1 +1,1 @@
-Artículo 64.—Vigencia. El presente Reglamento rige a partir de su publicación en La Gaceta.
+Artículo 64.—Vigencia. (Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

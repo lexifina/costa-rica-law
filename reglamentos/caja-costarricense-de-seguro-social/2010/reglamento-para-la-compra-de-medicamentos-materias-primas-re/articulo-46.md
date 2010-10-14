@@ -1,1 +1,1 @@
-Artículo 46.—Ejecución. La ejecución del contrato observará las reglas contenidas en la Ley de Contratación Administrativa y su Reglamento, bajo la responsabilidad del encargado del contrato.
+Artículo 46.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

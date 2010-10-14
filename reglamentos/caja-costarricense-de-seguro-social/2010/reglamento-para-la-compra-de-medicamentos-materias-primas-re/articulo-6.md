@@ -1,1 +1,1 @@
-Artículo 6º—De las compras electrónicas. Los procedimientos de contratación administrativa podrán desarrollarse por medios electrónicos, de acuerdo con el desarrollo institucional y la normativa que al efecto se dicte.
+Artículo 6º—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

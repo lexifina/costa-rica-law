@@ -1,1 +1,1 @@
-Artículo 54.—Sospechas de fallas terapéuticas. El Departamento de Farmacoepidemiología deberá comunicar en forma oportuna a la Gerencia de Logística sobre los reportes sobre fallas terapéuticas emitidos por el Centro Nacional de Farmacovigilancia de Ministerio de Salud con el fin de que la Caja tome las medidas pertinentes y utilice esta información para los procesos futuros de compra.
+Artículo 54.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

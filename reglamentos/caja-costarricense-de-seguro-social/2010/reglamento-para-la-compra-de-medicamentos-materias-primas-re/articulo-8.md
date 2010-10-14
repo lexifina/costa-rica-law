@@ -1,1 +1,1 @@
-Artículo 8º—Mejoras de precios. En cualesquiera de los procedimientos establecidos en el presente Reglamento, conforme con el artículo 28 bis del Reglamento a la Ley de Contratación Administrativa, y de acuerdo con la metodología que disponga el cartel, será posible que el oferente mejore los precios cotizados.
+Artículo 8º—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

@@ -1,2 +1,1 @@
-Artículo 62.—Prescripción. La responsabilidad administrativa de los particulares por las infracciones previstas en este Reglamento, prescribirá de conformidad con lo establecido en el artículo 100 bis de la Ley de Contratación Administrativa.
-Cuando se requiera comprar a un proveedor inhabilitado, por razones de oportunidad y conveniencia debidamente acreditadas se podrá levantar dicha inhabilitación para ese único producto por el funcionario competente.
+Artículo 62.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

@@ -1,1 +1,1 @@
-Artículo 35.—Del dictado del acto final. El acto final del procedimiento será dictado por el órgano competente de acuerdo con lo dispuesto por el Modelo de distribución de competencias y facultades de adjudicación, dentro de los tres meses siguientes a la apertura de ofertas, pudiendo ser prorrogado dicho plazo por otro igual, de forma excepcional y justificada.
+Artículo 35.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

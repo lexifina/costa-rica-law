@@ -1,5 +1,1 @@
-Artículo 22.—Impedimentos. Será impedimento para aquellos proveedores interesados en precalificarse:
-a. Tener una deuda líquida, determinada, cierta y exigible con la Caja, producto de contrataciones administrativas anteriores incumplidas, total o parcialmente, por el mismo oferente que ahora requiere la inscripción en el registro precalificado de proveedores que regula el presente Reglamento.
-b. Estar en deuda con las cuotas obrero-patronales o no estar inscrito como patrono o trabajador independiente debiendo hacerlo según la legislación nacional vigente y los lineamientos sobre la aplicación del artículo 74 de la Ley Constitutiva de la Caja y el artículo 65 del Reglamento a la Ley de Contratación Administrativa, establecidos por la Caja Costarricense de Seguro Social dictados al efecto.
-c. El que esté sancionado con inhabilitación firme, de acuerdo con lo dispuesto por los artículos 100 y 100 bis de la Ley de Contratación Administrativa.
-d. No cumplir con los requisitos exigidos en la ficha técnica respectiva de precalificación y lo dispuesto en el presente Reglamento.
+Artículo 22.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

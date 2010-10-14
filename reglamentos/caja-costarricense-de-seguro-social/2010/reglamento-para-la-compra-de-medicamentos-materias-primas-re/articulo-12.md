@@ -1,2 +1,1 @@
-Artículo 12.—Revocación. Tomado el acuerdo de adjudicación o el que declara desierto o infructuoso el concurso, éste puede ser revocado por la Administración interesada por razones de oportunidad o legalidad, mediante resolución debidamente razonada, dentro de los siguientes cinco días hábiles a la notificación del acto, aún cuando no haya sido impugnado.
-Revocado el acto no firme, la Administración cuenta con un plazo máximo de 10 días hábiles para dictar el nuevo acto.
+Artículo 12.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

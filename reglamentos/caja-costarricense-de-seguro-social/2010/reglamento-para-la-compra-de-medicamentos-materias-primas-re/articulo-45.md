@@ -1,1 +1,1 @@
-Artículo 45.—Inicio. Una vez firme el acto de adjudicación, y aprobado por la unidad jurídica competente cuando corresponda de acuerdo con lo indicado en el artículo anterior, la unidad de compras comunicará el inicio de la ejecución contractual al contratista y al administrador del contrato que defina cada concurso. Se considerará el inicio de la ejecución contractual la comunicación de retiro de la orden de compra.
+Artículo 45.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

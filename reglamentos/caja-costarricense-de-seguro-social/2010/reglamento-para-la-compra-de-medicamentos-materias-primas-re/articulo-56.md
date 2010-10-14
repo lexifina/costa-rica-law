@@ -1,3 +1,3 @@
 SECCIÓN III
 Disposiciones finales
-Artículo 56.—Planificación. El encargado de planificación, por medio del SIGES o los recursos institucionales disponibles, deberá mantener un control y seguimiento de la mercadería contratada con el efecto de tomar medidas oportunas que eviten crisis en los inventarios de la institución.
+Artículo 56.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

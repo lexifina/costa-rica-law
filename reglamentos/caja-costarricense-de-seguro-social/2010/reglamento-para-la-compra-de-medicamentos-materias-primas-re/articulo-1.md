@@ -1,4 +1,6 @@
+(Anulada)
 CAJA COSTARRICENSE DE SEGURO SOCIAL
+(Mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010, se anuló este reglamento. De acuerdo con la resolución indica, la declaratoria es retroactiva a la fecha de entrada en vigencia del reglamento impugnado)
 JUNTA DIRECTIVA
 APROBACIÓN REGLAMENTO
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 2º de la sesión Nº 8431, celebrada el 18 de marzo del 2010, aprobó el siguiente “Reglamento para la compra de medicamentos, materias primas, reactivos, material de acondicionamiento y empaque”:
@@ -36,11 +38,4 @@ MATERIAS PRIMAS, REACTIVOS Y MATERIALES
 DE ACONDICIONAMIENTO Y EMPAQUE
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Ámbito de aplicación. El presente Reglamento regula las compras de medicamentos, materias primas, reactivos y materiales de acondicionamiento y empaque que realizan todas las unidades de compra, desconcentradas y no desconcentradas de la Caja, facultadas de acuerdo con el Modelo de Distribución de Competencias y Facultades de Adjudicación, la política general de compra de medicamentos y los artículos 71 y 72 de la Ley Constitutiva de la Caja, según la reforma introducida por Ley Nº 6914 del 28 de noviembre de 1983.
-Para los efectos del presente Reglamento, se entenderá las siguientes definiciones:
-1. Embalaje: son todos los materiales, procedimientos y métodos que sirven para acondicionar, presentar, manipular, almacenar, conservar y transportar una mercancía, de forma resistente y segura.
-2. Envase: todo recipiente o soporte que contiene o guarda un producto, protege mercancías, facilita su transporte, ayuda a distinguirla de otros artículos y presenta el producto para su venta al permitir su identificación.
-3. Materia prima: aquel elemento que se transforma e incorpora en un producto final.
-4. Material de acondicionamiento: se trata de todo soporte de presentación de un producto que sirve a la protección (física, química, biológica y ambiental) y ofrece información (sobre la preparación, utilización e identificación). Entre ellos se encuentra el envase, embalaje, entre otros.
-5. Medicamento: toda sustancia o productos naturales, sintéticos o semisintéticos y toda mezcla de esas sustancias o productos que se utilicen para el diagnóstico, prevención, tratamiento y alivio de las enfermedades o estados físicos anormales, o de los síntomas de los mismos y para el restablecimiento o modificación de funciones orgánicas en la personas.
-6. Reactivo: sustancia que interactúa con otra (también reactivo) en una reacción química que da lugar a otras sustancias de propiedades, características y conformación distinta, denominadas productos de reacción o simplemente productos, con fines de aplicaciones en el análisis clínico.
+Artículo 1º—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

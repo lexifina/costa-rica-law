@@ -1,2 +1,1 @@
-Artículo 29.—Trámite. Una vez determinada la necesidad, las características técnicas del bien por adquirir y el contenido presupuestario, la unidad de compras podrá invitar mediante diario de circulación nacional o medios electrónicos debidamente habilitados, a los proveedores interesados quienes cumplirán con los requisitos fijados en la respectiva ficha técnica y las condiciones generales y específicas de la respectiva compra.
-Cuando el proveedor no se encuentre precalificado y participe en concursos ampliados, deberá presentar toda la documentación requerida en cada uno de los concursos en los que participe.
+Artículo 29.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

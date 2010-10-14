@@ -2,5 +2,4 @@ CAPÍTULO III
 Otros procedimientos de compra
 SECCIÓN I
 Compras ampliadas
-Artículo 27.—Definición. Además de un concurso entre proveedores precalificados, la Administración podrá tramitar un procedimiento de compra ampliado con fundamento en la Ley Nº 6914 y el presente Reglamento.
-Se entiende como procedimiento de compra ampliado el concurso cuya invitación a proveedores permite la participación de oferentes precalificados y no precalificados.
+Artículo 27.—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)

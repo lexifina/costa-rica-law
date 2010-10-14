@@ -1,1 +1,1 @@
-Artículo 4º—Validez. Las normas y principios consagrados en el Libro Primero de la Ley General de la Administración Pública respecto de la validez de la actividad administrativa, se aplicarán en toda su extensión en la valoración de los actos de la contratación que regula el presente Reglamento.
+Artículo 4º—(Anulado mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010)
