@@ -1,0 +1,1 @@
+Artículo 10.—Cada unidad deberá portar dos placas metálicas de transporte público, así como un marchamo extendido por el Consejo de Transporte Público, que incluya además el número de certificación del Instituto Costarricense de Turismo.

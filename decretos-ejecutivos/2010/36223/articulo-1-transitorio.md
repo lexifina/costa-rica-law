@@ -1,0 +1,1 @@
+Transitorio Primero.—Los interesados en brindar el servicio de transporte terrestre de turistas, contarán con un plazo de seis (6) meses contados a partir de la publicación del presente Reglamento, para cumplir con lo establecido en los artículos 6 y 10 del mismo.

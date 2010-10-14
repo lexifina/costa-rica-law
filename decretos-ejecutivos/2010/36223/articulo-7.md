@@ -1,0 +1,6 @@
+Artículo 7º—Para solicitar por primera vez o renovar un permiso de transporte de turismo, el gestionante deberá presentar ante el Consejo de Transporte Público, formal escrito de solicitud, en el cual deberá constar lo siguiente:
+a) Calidades generales del solicitante.
+b) Características del o de los vehículos que brindarán el servicio, número (s) de placa, número (s) de motor, color, capacidad de pasajeros sentados y modelo (s).
+c) Declaración jurada del representante legal o del interesado, indicando que el chofer o choferes de la (s) unidad (es) contratada (s) para brindar los servicios, poseen licencia de conducir vigente y que la misma corresponde al servicio que brinda de acuerdo al tipo de vehículo aprobado y su respectivo código de conductor para transporte público. En caso de comprobarse el incumplimiento de esta disposición, se procederá a la cancelación del permiso y retiro de las placas que fueron otorgadas para brindar el servicio de transporte terrestre turístico, previo garantía del debido proceso.
+d) Declaración jurada del gestionante, señalando que utilizará la unidad indicada en su solicitud exclusivamente para el transporte de turismo.
+e) Certificación del Instituto Costarricense de Turismo, indicando que se cumple con los requerimientos exigidos por dicho Instituto para brindar los servicios solicitados.

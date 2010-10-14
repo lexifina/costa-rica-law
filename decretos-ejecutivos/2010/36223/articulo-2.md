@@ -1,0 +1,1 @@
+Artículo 2º—El Instituto Costarricense de Turismo, previa solicitud de los interesados, determinará técnicamente la necesidad de aumentar el número de unidades dedicadas al servicio de transporte terrestre de turistas, para lo cual el interesado deberá comprobar las razones de su gestión, aportando la documentación que demuestre la procedencia de su solicitud.

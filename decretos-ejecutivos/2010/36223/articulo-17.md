@@ -1,0 +1,2 @@
+Artículo 17.—Para la emisión de los permisos ocasionales, el solicitante deberá depositar a nombre del Consejo de Transporte Público la suma de siete mil quinientos colones por concepto de gastos administrativos, con sustento en los incisos a) y b) del artículo 2 de la Ley Reguladora del Transporte Público Remunerado de Personas en Vehículos Automotores, Ley N° 3503.
+Este monto será revisado anualmente por la Junta Directiva del Consejo con base en los cálculos de servicio al costo que al efecto realicen los órganos internos competentes.

@@ -1,0 +1,1 @@
+Artículo 18.—Deróguese el artículo 5 del Reglamento para la Explotación de Servicios Especiales de Transporte Automotor Remunerado de Personas, Decreto Ejecutivo Nº 15203-MOPT del 31 de enero de 1984 y sus reformas.
