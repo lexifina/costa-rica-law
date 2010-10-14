@@ -1,0 +1,1 @@
+Artículo 3°—Cotizaciones a traspasar. De conformidad con el artículo 3 de la Ley Nº 8721, se trasladarán al Fondo Especial de Pensiones del Régimen de Reparto que administra la Junta de Pensiones y Jubilaciones del Magisterio Nacional (JUPEMA), las cuotas obreras, patronales y estatales deducidas de los salarios de la población citada en el artículo 2° de este Reglamento.

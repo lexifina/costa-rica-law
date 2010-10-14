@@ -1,0 +1,1 @@
+Artículo 12°—Registro de cuotas. La JUPEMA deberá remitir a la Tesorería Nacional los montos a traspasar por cada funcionario, de las cuotas obreras, patronales y estatales (plasmados en cada una de las liquidaciones actuariales), de conformidad con lo que al respecto establezca la Tesorería Nacional.

@@ -1,0 +1,2 @@
+Artículo 5°—Exclusión e inclusión. Respecto de los plazos y trámites, debe tenerse que la exclusión del Régimen de Capitalización Colectiva del Magisterio Nacional y, en consecuencia, la inclusión en el Fondo Especial de Pensiones del Régimen de Reparto, será efectiva a partir del primer día del mes siguiente a la exclusión del Régimen de Capitalización Colectiva.
+Corresponderá a la JUPEMA velar porque el traslado se realice a quien efectivamente corresponda, como administradora del Régimen de Capitalización Colectiva.

@@ -1,0 +1,1 @@
+Artículo 11.—Aceptación del monto a trasladar. De conformidad con lo establecido en el artículo 7º de este reglamento, el Ministerio de Hacienda a través de la Tesorería Nacional, contará con un plazo de 5 días hábiles para comunicar a la JUPEMA la aceptación o no del monto certificado por esta, para ser trasladado al Fondo Especial de Pensiones del Régimen de Reparto.

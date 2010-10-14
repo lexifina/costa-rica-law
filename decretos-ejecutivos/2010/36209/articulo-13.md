@@ -1,0 +1,1 @@
+Artículo 13.—Deber de información a los cotizantes. La JUPEMA deberá de informar en La Gaceta y en un diario de alcance nacional, los nombres, apellidos y números de cédulas o de cualquier otro documento de identificación legalmente aceptado, de los interesados reubicados en el régimen correspondiente.

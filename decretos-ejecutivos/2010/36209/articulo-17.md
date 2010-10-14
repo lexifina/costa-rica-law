@@ -1,0 +1,1 @@
+Artículo 17°—Ámbito de inversión. Para efecto de lograr optimizar los recursos del Fondo Especial de Pensiones del Régimen de Reparto, la Tesorería Nacional podrá realizar inversiones en valores del Sector Público dentro del marco establecido por las políticas de inversión definidas.

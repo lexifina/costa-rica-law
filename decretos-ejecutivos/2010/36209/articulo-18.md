@@ -1,0 +1,1 @@
+Artículo 18°—Manejo de los recursos del Fondo Especial de Pensiones del Régimen de Reparto. La Tesorería Nacional deberá analizar las mejores opciones financieras y en tales operaciones, definir, los procedimientos aplicables a la negociación, implementando procedimientos garantes del cumplimiento de los principios de publicidad, seguridad y transparencia.
