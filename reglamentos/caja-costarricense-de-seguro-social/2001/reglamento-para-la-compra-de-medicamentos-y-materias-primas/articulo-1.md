@@ -1,6 +1,5 @@
-(Derogado)
 APROBACIÓN REGLAMENTO
-(Este Reglamento fue Derogado por el artículo 63 del Reglamento para la Compra de Medicamentos, Materias Primas, Reactivos, Material de Acondicionamiento y Empaque, aprobado en sesión N° 8431 del 18 de marzo de 2010)
+(Nota de Sinalevi: Esta norma anteriormente había sido derogada por el artículo 63 del Reglamento para la Compra de Medicamentos, Materias Primas, Reactivos, Material de Acondicionamiento y Empaque, aprobado en sesión N° 8431 del 18 de marzo de 2010. Posteriormente mediante resolución del Tribunal Contencioso Administrativo, Sección Sexta, N° 3873-2010 del 14 de octubre de 2010, se anuló la norma antes referida.)
 La Junta Directiva de la Caja, en el artículo 2° de la sesión número 7586, celebrada el 4 de octubre del año 2001 aprobó el siguiente Reglamento para compra de medicamentos, materias primas, envases y reactivos:
 REGLAMENTO PARA COMPRA DE MEDICAMENTOS, MATERIAS PRIMAS, ENVASES Y REACTIVOS
 CAPÍTULO I
