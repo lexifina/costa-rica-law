@@ -1,0 +1,3 @@
+CAPÍTULO V
+Otras consideraciones
+Artículo 13.—El pago del incentivo salarial no crea en favor de quien lo recibe algún derecho, dado que el acuerdo de pago del incentivo salarial por trabajos en líneas energizadas, es por circunstancias particulares de tiempo y lugar conforme a la programación realizada y a los trabajos tipificados en el Protocolo de Trabajos en Líneas Energizadas que pueden variar, según las necesidades del servicio público y el interés institucional. De igual manera se trata de una contraprestación a un servicio que se ejecuta a favor de JASEC, la cual se retribuye únicamente si se ejecuta el trabajo en las líneas energizadas.

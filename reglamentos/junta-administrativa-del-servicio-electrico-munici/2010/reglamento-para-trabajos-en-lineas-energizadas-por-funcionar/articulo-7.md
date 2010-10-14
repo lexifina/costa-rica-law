@@ -1,0 +1,3 @@
+Artículo 7º—Corresponderá al Supervisor en Líneas Energizadas:
+a) Coordinar, dirigir, supervisar y ejecutar las labores en el campo, asignadas al equipo de trabajo en líneas energizadas.
+b) Supervisar los trabajos en línea energizadas con el propósito de asegurar que los mismos se apeguen a los protocolos de trabajo establecidos respecto al cumplimiento de las normas técnicas y de seguridad en materia de líneas energizadas; verificando que los integrantes del equipo en líneas energizadas cumplan con los requerimientos físicos y psicológicos necesarios así como los elementos de seguridad y vestimenta.

@@ -1,0 +1,3 @@
+Artículo 11.—Con sustento en la información ingresada según el inciso a) del artículo anterior, el cálculo del incentivo salarial, se realizará automáticamente en el Sistema Integrado de Recursos Humanos de la siguiente manera:
+a) Se multiplica el Salario Base de cada puesto (según la estructura salarial vigente de JASEC) por el veinticinco por ciento (25%) y el monto obtenido debe dividirse entre el factor de horas laboradas por mes (240 horas mensuales).
+b) El resultado obtenido se multiplicará por el total de horas laboradas en trabajos en líneas energizadas que son reportadas en forma automática en el Módulo de Planillas del Sistema Integrado de Recursos Humanos.
