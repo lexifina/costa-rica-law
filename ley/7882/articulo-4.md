@@ -295,8 +295,15 @@ CAPÍTULO 11: PRODUCTOS DE LA MOLINERÍA; MALTA; ALMIDÓN Y FÉCULA; INULINA; GL
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 1101 - 1103 Cambio a esta partida desde cualquier otra partida.
-1104.11 - 1104.12 Cambio a esta subpartida desde cualquier otra subpartida.
-1104.19 - 1104.30 Cambio a esta subpartida desde cualquier otra partida.
+1104.11 Suprimida
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+1104.12 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+1104.19 Cambio a esta subpartida desde cualquier otra partida. Exclusivamente para granos aplastados o en copos de cebada de esta subpartida, un cambio desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+1104.22-1104.30 Cambio a esta subpartida desde cualquier otra partida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+1104.30 Cambio a esta subpartida desde cualquier otra partida.
 1105 - 1106 Cambio a esta partida desde plantas cultivadas en la región.
 1107 Cambio a esta partida desde cualquier otra partida.
 1108.11 Cambio a esta subpartida desde cualquier otra partida.
@@ -338,8 +345,18 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 1513.19 Esta norma se establecerá en un protocolo a este Tratado.
 1513.21 Cambio a esta subpartida desde cualquier otro capítulo, excepto de la subpartida 1207.10.
 1513.29 Esta norma se establecerá en un protocolo a este Tratado.
-1514.10 Cambio a esta subpartida desde cualquier otro capítulo.
-1514.90 Esta norma se establecerá en un protocolo a este Tratado.
+1514.10 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+1514.11 Cambio a esta subpartida desde cualquier otro capítulo.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+1514.19 Cambio a esta subpartida desde cualquier otro capítulo.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+1514.90 Suprimida
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+1514.91 Cambio a esta subpartida desde cualquier otro capítulo.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+1514.99 Cambio a esta subpartida desde cualquier otro capítulo.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 1515.11 Cambio a esta subpartida desde cualquier otro capítulo.
 1515.19 Esta norma se establecerá en un protocolo a este Tratado.
 1515.21 Cambio a esta subpartida desde cualquier otro capítulo.
@@ -376,13 +393,18 @@ CAPÍTULO 19: PREPARACIONES A BASE DE CEREALES, HARINA, ALMIDÓN, FÉCULA O LECH
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 1901.10 Cambio a esta subpartida desde cualquier otra partida, excepto de la partida 0402.
-1901.20 Cambio a esta subpartida desde cualquier otra partida, excepto de la partida 1101 y de la subpartida 1103.11 y 1103.21.
+1901.20 Cambio a esta subpartida desde cualquier otra partida, excepto de la partida 11.01, de la subpartida 1103.11 y los “pellets” de trigo de la subpartida 1103.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 1901.90 Cambio a esta subpartida desde cualquier otra partida, excepto de la partida 0402.
-1902 Cambio a esta partida desde cualquier otra partida, excepto de la partida 1006, 1101 y de la subpartida 1103.11 y 1103.21.
+1902 Cambio a esta partida desde cualquier otra partida, excepto de la partida 1006, 11.01, de la subpartida 1103.11 y los “pellets” de trigo de la subpartida 1103.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 1903 Cambio a esta partida desde cualquier otra partida.
 1904.10 - 1904.20 Cambio a esta subpartida desde cualquier otra partida.
+1904.30 Cambio a esta subpartida desde cualquier otra partida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 1904.90 Cambio a esta subpartida desde cualquier otra partida, excepto de la partida 1006.
-1905 Cambio a esta partida desde cualquier otro capítulo, excepto de la partida 1101 y de la subpartida 1103.11 y 1103.21.
+1905 Cambio a la partida 19.05 desde cualquier otro capítulo, excepto de la partida 11.01, de la subpartida 1103.11 y los “pellets” de trigo de la subpartida 1103.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 CAPÍTULO 20:PREPARACIONES DE HORTALIZAS, FRUTAS U OTROS FRUTOS O DEMÁS PARTES DE PLANTAS
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
@@ -477,7 +499,14 @@ Las soluciones valoradas constituyen preparaciones aptas para uso analítico, de
 Confiere origen el aislamiento o separación de isómeros a partir de una mezcla de isómeros.
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-2801 - 2851 Cambio a esta partida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (28-1) Soluciones Valoradas, (28-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la mercancía respectiva).
+2801.10-2841.90 Cambio a esta subpartida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (28-1) Soluciones Valoradas, (28-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la mercancía respectiva).
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+2842.10 Cambio a esta subpartida desde cualquier otra subpartida, permitiéndose la utilización de aluminosilicatos de constitución química no definida, no originario, de esta misma subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (28-1) Soluciones Valoradas, (28-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la mercancía respectiva).
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+2842.90 Cambio a esta subpartida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (28-1) Soluciones Valoradas, (28-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la mercancía respectiva).
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+2843.10-2851.00 Cambio a esta subpartida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (28-1) Soluciones Valoradas, (28-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la mercancía respectiva).
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 CAPÍTULO 29: PRODUCTOS QUÍMICOS ORGÁNICOS
 Notas de Capítulo:
 29-1 Soluciones Valoradas:
@@ -486,7 +515,14 @@ Las soluciones valoradas constituyen preparaciones aptas para uso analítico, de
 Confiere origen el aislamiento o separación de isómeros a partir de una mezcla de isómeros.
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-2901 - 2942 Cambio a esta partida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (29-1) Soluciones Valoradas, (29-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la respectiva mercancía).
+2901.10-2938.90 Cambio a esta subpartida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (29-1) Soluciones Valoradas, (29-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la respectiva mercancía).
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+2939.11 Cambio a esta subpartida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (29-1) Soluciones Valoradas, (29-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la respectiva mercancía). Exclusivamente para el concentrado de paja de adormidera, el cambio será desde cualquier otro capítulo, excepto de la subpartida 1302.11.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+2939.19-2939.99 Cambio a esta subpartida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (29-1) Soluciones Valoradas, (29-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la respectiva mercancía).
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+2940.00-2942.00 Cambio a esta subpartida desde cualquier otra subpartida. (La aplicación de las Notas de Sección (VI-1) Reacción Química, (VI-2) Purificación, y las notas de capítulo (29-1) Soluciones Valoradas, (29-2) Separación de Isómeros, incluso en conjunto, confiere el origen a la respectiva mercancía).
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 CAPÍTULO 30: PRODUCTOS FARMACÉUTICOS
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
@@ -499,6 +535,10 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 3006.10 - 3006.40 Cambio a esta subpartida desde cualquier otra partida.
 3006.50 Cambio a esta subpartida desde cualquier otra subpartida, siempre que todos los componentes sean originarios de la región.
 3006.60 Cambio a esta subpartida desde cualquier otra partida.
+3006.70 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+3006.80 Cambio a esta subpartida desde cualquier otro capítulo, excepto del capítulo 38.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 CAPÍTULO 31: ABONOS
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
@@ -548,6 +588,10 @@ Confiere origen el aislamiento o separación de isómeros a partir de una mezcla
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 3401 Cambio a esta partida desde cualquier otra partida.
+3401.11-3401.20 Cambio a esta subpartida desde cualquier otra partida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
+3401.30 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la partida 34.02.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010).
 3402.11 - 3402.19 Cambio a esta subpartida desde cualquier otra subpartida, excepto el acondicionamiento para la venta al por menor.
 3402.20 Cambio a esta subpartida desde cualquier otra subpartida, incluido el cambio desde agentes aniónicos sulfonados (según la nota de sección VI-1), excepto el acondicionamiento para la venta al por menor.
 3402.90 Esta norma se establecerá en un protocolo a este Tratado.
@@ -585,6 +629,8 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 3815 - 3822 Cambio a esta partida desde cualquier otra partida.
 3823.11 - 3823.70 Cambio a esta subpartida desde cualquier otra subpartida.
 3824.10 - 3824.90 Cambio a esta subpartida desde cualquier otra subpartida.
+3825 Cambio a esta partida desde cualquier otro Capítulo, excepto del Capítulo 28 al 37; 40 y 90.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 SECCIÓN VII
 (DEL CAPÍTULO 39 AL 40)
 PLÁSTICO Y SUS MANUFACTURAS; CAUCHO Y SUS MANUFACTURAS
@@ -625,7 +671,10 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 4004 Los productos de esta partida serán originarios del país donde se obtengan los desechos y desperdicios.
 4005 - 4010 Cambio a esta partida desde cualquier otra partida.
 4011 Cambio a esta partida desde cualquier otra partida, excepto de la partida 4001 y de la subpartida 8708.70.
-4012.10 Cambio a esta subpartida desde cualquier otra partida, excepto de la subpartida 4012.20 y 8708.70.
+4012.10 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4012.11-4012.19 Cambio a esta subpartida desde cualquier otra partida, excepto de la subpartida 4012.20 y 8708.70.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 4012.20 Cambio a esta subpartida desde cualquier otra partida, excepto de la subpartida 8708.70.
 4012.90 Cambio a esta subpartida desde cualquier otra partida.
 4013 - 4016 Cambio a esta partida desde cualquier otra partida.
@@ -645,11 +694,21 @@ Se considera que las operaciones siguientes no constituyen reacciones químicas 
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 4101 - 4103 Cambio a esta partida desde cualquier otro capítulo.
-4104 - 4107 Cambio a esta partida desde cualquier otra partida, incluido el cambio de cueros preparados a partir de cueros ó pieles "wet blue".
-4108 - 4109 Cambio a esta partida desde cualquier otra partida.
-4110 a) Desperdicios: Las mercancías de esta partida dividida serán originarias del país en donde se obtengan los desechos y desperdicios (por fabricación, operaciones de transformación o del consumo).
-b) Aserrín, polvo y harina de cuero: Un cambio a esta partida dividida desde cualquier otra partida.
-4111 Un cambio a esta partida desde cualquier otra partida.
+4104 - 4106 Cambio a esta partida desde cualquier otra partida, permitiéndose la utilización de cueros al “wet blue”, no originarios.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4108 - 4109 Suprimida
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4110 Suprimida
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4111 Suprimida
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+41.07- 41.14 Cambio a esta partida desde cualquier otra partida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4115.10 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4115.20 a) Desperdicios: Las mercancías de esta subpartida dividida serán originarias del país en donde se obtengan los desechos y desperdicios (por fabricación, operaciones de transformación o del consumo).
+b) Aserrín, polvo y harina de cuero: Un cambio a esta subpartida dividida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 CAPÍTULO 42: MANUFACTURAS DE CUERO; ARTÍCULOS DE TALABARTERÍA O GUARNICIONERÍA; ARTÍCULOS DE VIAJE, BOLSOS DE MANO (CARTERAS) Y CONTINENTES SIMILARES; MANUFACTURAS DE TRIPAS
 Nota de capítulo
 42-1 A los efectos de determinar el país de origen de las mercancías de este capítulo, que no se obtienen totalmente en una o más de las Partes, las siguientes operaciones individuales, no confieren origen, incluso si dan lugar a cambios de clasificación:
@@ -681,7 +740,13 @@ CAPÍTULO 44: MADERA, CARBÓN VEGETAL Y MANUFACTURAS DE MADERA
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 4401 Las mercancías de esta partida serán originarias del país de obtención de la madera.
+4402 - 4407 Cambio a esta partida desde cualquier otra partida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 4402 - 4421 Cambio a esta partida desde cualquier otra partida.
+44.08 Cambio a esta partida desde cualquier otra partida, permitiéndose para hojas para chapado obtenidas por corte de madera laminada, un cambio dentro de esta partida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+44.09 - 44.21 Cambio a esta partida desde cualquier otra partida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 CAPÍTULO 45: CORCHO Y SUS MANUFACTURAS
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
@@ -705,9 +770,17 @@ Notas de Capítulo:
 48-2 Esta nota se establecerá en un protocolo a este Tratado.
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-4801 - 4805 Cambio a esta partida desde cualquier otra partida.
+48.01 Cambio a esta partida desde cualquier otra partida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+48.02 Cambio a esta partida desde cualquier otra partida, permitiéndose el cambio interno en esta partida para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+48.03 - 48.05 Cambio a esta partida desde cualquier otra partida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 4806 - 4809 Cambio a esta partida desde cualquier otra partida.
-4810 - 4811 Esta norma se establecerá en un protocolo a este Tratado.
+4810 Cambio a esta partida desde cualquier otra partida, permitiéndose el cambio interno en esta partida para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm. El proceso de laminado o estratificado incluso con otras materias confiere origen.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4811 Cambio a esta partida desde cualquier otra partida, permitiéndose el cambio interno en esta partida para los papeles y cartones en tiras o bobinas (rollos) de anchura inferior o igual a 150 mm o en hojas cuadradas o rectangulares en las que un lado sea inferior o igual a 360 mm y el otro sea inferior o igual a 150 mm. El proceso de laminado o estratificado incluso con otras materias confiere origen.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 4812 - 4815 Cambio a esta partida desde cualquier otra partida.
 4816.10 - 4816.90 Esta norma se establecerá en un protocolo a este Tratado.
 4817 Cambio a esta partida desde cualquier otra partida.
@@ -717,9 +790,16 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 4820.10 - 4820.30 Cambio a esta subpartida desde cualquier otra partida.
 4820.40 Esta norma se establecerá en un protocolo a este Tratado.
 4820.50 - 4822.90 Cambio a esta subpartida desde cualquier otra partida.
-4823.11 - 4823.40 Cambio a esta subpartida desde cualquier otra partida.
-4823.51 Esta norma se establecerá en un protocolo a este Tratado.
-4823.59 - 4823.90 Cambio a esta subpartida desde cualquier otra partida.
+4823.11 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4823.12 - 4823.40 Cambio a esta subpartida desde cualquier otra partida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4823.51 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4823.59 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+4823.60 - 4823.90 Cambio a esta subpartida desde cualquier otra partida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 CAPÍTULO 49: PRODUCTOS EDITORIALES, DE LA PRENSA Y LAS DEMÁS INDUSTRIAS GRÁFICAS; TEXTOS MANUSCRITOS O MECANOGRAFIADOS Y PLANOS
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
@@ -797,7 +877,8 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 CAPÍTULO 60: TEJIDOS DE PUNTO
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-6001 - 6002 Esta norma se establecerá en un protocolo a este Tratado.
+60.01 - 60.06 Cambio a esta partida desde cualquier otro capítulo, excepto de la partida 51.12 a 5113, 5205 a 52.07, la subpartida 5401.10, 5402.39, 5402.43 y 5407.42.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 CAPÍTULO 61:PRENDAS Y COMPLEMENTOS (ACCESORIOS), DE VESTIR, DE PUNTO
 Nota de Capítulo:
 61-1 Esta nota se establecerá en un protocolo a este Tratado.
@@ -817,7 +898,7 @@ CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 6301.10 - 6305.32 Un cambio a la subpartida 6301.10 a 6305.32 desde cualquier otra partida.
 6305.39 - 6310.90 Un cambio a la subpartida 6305.39 a 6310.90 desde cualquier otra partida.
-(Así adicionado el código arancelario anterior por la decisión N° 16/2010 del 10 de agosto de 2010, emitida por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana Centroamérica y puesta en vigencia por el decreto ejecutivo N° 36189 del 06 de setiembre de 2010)
+(Así adicionados los códigos arancelarios anteriores por la decisión N° 16/2010 del 10 de agosto de 2010, emitida por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana Centroamérica y puesta en vigencia por el decreto ejecutivo N° 36189 del 06 de setiembre de 2010)
 SECCIÓN XII
 (DEL CAPÍTULO 64 AL 67)
 CALZADO, SOMBREROS Y DEMÁS TOCADOS, PARAGUAS, QUITASOLES, BASTONES, LÁTIGOS, FUSTAS Y SUS PARTES; PLUMAS PREPARADAS Y ARTÍCULOS DE PLUMAS; FLORES ARTIFICIALES; MANUFACTURAS DE CABELLO
@@ -850,8 +931,14 @@ CAPÍTULO 68: MANUFACTURAS DE PIEDRA, YESO FRAGUABLE, CEMENTO, AMIANTO (ASBESTO)
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 6801 - 6811 Cambio a esta partida desde cualquier otro capítulo.
-6812.10 Cambio a esta subpartida desde cualquier otra partida.
-6812.20 - 6812.90 Cambio a esta subpartida desde cualquier otra subpartida.
+6812.10 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+6812.20 - 6812.40 Suprimida
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+6812.50 - 6812.70 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+6812.90 Cambio a esta subpartida desde cualquier otra subpartida, permitiéndose el cambio dentro de esta subpartida. Exclusivamente para el amianto en fibras trabajado; mezclas a base de amianto o a base de amianto y carbonato de magnesio de esta subpartida, un cambio desde cualquier otra partida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 6813 Cambio a esta partida desde cualquier otra partida.
 6814 - 6815 Cambio a esta partida desde cualquier otro capítulo.
 CAPÍTULO 69: PRODUCTOS CERÁMICOS
@@ -930,7 +1017,124 @@ ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
 CAPÍTULO 81: LOS DEMÁS METALES COMUNES; CERMET; MANUFACTURAS DE ESTAS MATERIAS
 CÓDIGO
 ARANCELARIO DESCRIPCIÓN NORMAS DE ORIGEN ESPECÍFICAS
-8101 - 8112 Cambio a esta partida desde cualquier otra subpartida.
+8101.10 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8101.91 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8101.92 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8101.93 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8101.94 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8101.97.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8101.95 - 8101.96 Cambio a esta subpartida desde cualquier otra subpartida.
+Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8101.97 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8101.94.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8101.99 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.10 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.91 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.92 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.93 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.94 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8102.97.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.95 - 8102.96 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.97 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8102.94.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8102.99 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8103.10 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8103.20 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8103.30.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8103.30 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8103.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8103.90 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8105.10 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+81.04 Cambio a esta partida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8105.20 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8105.30.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8105.30 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8105.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8105.90 Cambio a esta partida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+81.06 Cambio a esta partida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8107.10 Suprimida
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8107.20 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8107.30
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8107.30 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8107.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8107.90 Cambio a esta partida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8108.10 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8108.20 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8108.30.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8108.30 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8108.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8108.90 Cambio a esta partida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8109.10 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8109.20 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8109.30.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8109.30 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8109.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8109.90 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8110.00 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8110.10 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8110.20.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8110.20 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8110.10.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8110.90 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+81.11 Cambio a esta partida desde cualquier otra subpartida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.11 Suprimida.
+(Así reformado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.12 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8112.13.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.13 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8112.12.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.19 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.20 Suprimida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.21 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8112.22.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.22 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8112.21.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.29 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.30 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.40 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.51 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8112.52.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.52 Cambio a esta subpartida desde cualquier otra subpartida, excepto de la subpartida 8112.51.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.59 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.91 Suprimida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.92 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
+8112.99 Cambio a esta subpartida desde cualquier otra subpartida.
+(Así adicionado el código arancelario anterior por la decisión N°14/2010 del 10 de agosto de 2010, emitido por el Consejo Conjunto de Administración del Tratado de Libre Comercio República Dominicana y Centroamérica, y puesta en vigencia por el decreto ejecutivo N° 36216 del 06 de setiembre de 2010)
 8113 Cambio a esta partida desde cualquier otra partida.
 CAPÍTULO 82: HERRAMIENTAS Y ÚTILES, ARTÍCULOS DE CUCHILLERÍA Y CUBIERTOS DE MESA, DE METAL COMÚN; PARTES DE ESTOS ARTÍCULOS, DE METAL COMÚN
 Nota de Capítulo:
