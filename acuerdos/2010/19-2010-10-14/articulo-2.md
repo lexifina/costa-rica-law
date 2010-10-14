@@ -1,0 +1,1 @@
+Artículo 2º—Los integrantes de la Comisión de Apoyo al ICODER para la administración del nuevo Estadio Nacional, brindarán sus servicios ad honorem, por lo que no devengarán ningún tipo de dieta o reconocimiento económico por sus servicios.

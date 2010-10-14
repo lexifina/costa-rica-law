@@ -1,0 +1,1 @@
+Artículo 3º—Nombrar como integrantes de la Comisión de Apoyo al ICODER para la Administración del nuevo Estadio Nacional a Fernando Naranjo Villalobos, cédula Nº 1-307-913; Roberto Artavia Loría, cédula Nº 1-521-914, y a Carlos Arguedas Ramírez, cédula Nº 4-085-902.
