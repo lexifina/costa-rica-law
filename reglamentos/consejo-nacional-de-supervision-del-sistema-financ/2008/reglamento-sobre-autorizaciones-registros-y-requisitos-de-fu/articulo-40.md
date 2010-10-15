@@ -1,5 +1,6 @@
 CAPÍTULO IV
-Denegatorias y revocaciones
+(*)DENEGATORIAS, SUSPENSIONES Y CANCELACIONES
+(*)(Modificada su denominación en sesión 886-2010 del 15 de octubre de 2010)
 Artículo 40.—Denegatoria de la autorización. Cualquiera de las siguientes situaciones conlleva a la denegatoria de la autorización:
 a) Cuando habiendo sido prevenido, según lo dispuesto en este Reglamento, el solicitante no complete la documentación.
 b) Cuando uno o más documentos presentados para el trámite de autorización hayan sido declarados falsos por una autoridad judicial.
