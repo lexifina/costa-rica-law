@@ -1,0 +1,1 @@
+Artículo 12.—Cálculo de la caución en el nivel D. Quienes desempeñen puestos contemplados dentro de los incisos m) y n) del artículo 13 del presente Reglamento, deberán rendir una caución equivalente a tres salarios base.
