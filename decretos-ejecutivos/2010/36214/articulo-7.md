@@ -1,0 +1,1 @@
+Artículo 7º—En todas aquellas disposiciones jurídicas en que se consigne el Decreto Ejecutivo N° 19029-MEIC del 7 de junio de 1989 (NCR 0: 1989. Norma para la Preparación y Presentación de las Normas Nacionales), publicado en el Diario Oficial La Gaceta Nº 122 del 27 de junio de 1989, sustitúyase por esta nueva reglamentación.
