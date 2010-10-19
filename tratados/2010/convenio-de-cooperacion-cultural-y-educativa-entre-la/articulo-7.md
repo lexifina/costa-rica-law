@@ -1,0 +1,2 @@
+ARTÍCULO VII
+En los establecimientos de enseñanza media o superior, estatales y no universitarios, los estudiantes de una Parte gozarán en la otra de exención del pago de matrícula y de certificado de exámenes, así como también estarán exentos del pago de emolumentos de exámenes, de diploma y de todos los del mismo género; a tales estudiantes no se les aplicará las disposiciones relacionadas con el límite numérico de matrículas.

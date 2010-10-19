@@ -1,0 +1,3 @@
+ARTÍCULO VI
+1. Los diplomas de enseñanza media, expedidos por establecimientos oficiales o reconocidos oficialmente por una de las Partes a favor de panameños y costarricenses, serán reconocidos en el territorio de la otra Parte para el ingreso a estudios superiores.
+2. Para la continuación de los estudios de enseñanza media o superiores serán aceptados los certificados de estudios realizados en institutos similares de una u otra parte, siempre que los programas tengan, en los dos países, las mismas materias de estudio y el mismo desarrollo; a falta de tal correspondencia, los beneficiarios deberán presentar examen de convalidación.

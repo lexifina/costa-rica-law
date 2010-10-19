@@ -1,0 +1,2 @@
+ARTÍCULO IX
+Las Partes darán todo el apoyo oficial al intercambio entre panameños y costarricenses, facilitando para este fin, y con carácter general, los viajes de estudiantes, docentes y administrativos de Universidades y a miembros de instituciones literarias, científicas y artísticas, para que dicten conferencias, participen en proyectos o realicen embajadas culturales y artísticas, con el propósito de fortalecer los lazos culturales entre ambos países.
