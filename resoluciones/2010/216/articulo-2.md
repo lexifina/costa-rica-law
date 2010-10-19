@@ -1,0 +1,1 @@
+2º—Comunicar que los segundos tránsitos DUA 80-16 (Movilización) solo podrán ser declarados por un transportista aduanero interno o una agencia de aduanas autorizada para declarar tránsitos y por empresas de zonas francas, cuando requieran retornar a sus instalaciones mercancías que fueron movilizadas a un depósito aduanero bajo un DUA 80-71.

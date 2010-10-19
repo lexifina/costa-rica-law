@@ -1,0 +1,1 @@
+3º—Comunicar que el “Mensaje de Solicitud de Autorizaciones de Operaciones de Inventario” podrá ser transmitido por un agente de aduanas o los auxiliares de la función pública autorizados para declarar un DUA 80-16, según lo indicado en el punto anterior.
