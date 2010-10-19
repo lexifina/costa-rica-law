@@ -1,0 +1,4 @@
+Artículo 161 bis.- Disposición común a los delitos sexuales contra personas menores de edad.
+Cuando se cometa un delito sexual cuya víctima sea una persona menor de edad, los jueces quedan facultados para imponer, además de las penas consignadas en cada caso, las de inhabilitación absoluta en el tanto que estimen pertinente, de acuerdo con la gravedad del hecho y dentro de los límites fijados para esta pena.
+La inhabilitación regirá por todo el plazo establecido en la sentencia condenatoria, sin posibilidad de que sea disminuida por los beneficios que, de conformidad con la legislación procesal penal, puedan otorgársele al condenado.
+(Así adicionado por el artículo 2° de la ley “Reforma el Código Penal, ley N° 4573, para promover la Protección de la Integridad Sexual y de los Derechos y las Libertades fundamentales de las personas menores de edad”; ley N° 8874 del 24 de setiembre de 2010)
