@@ -12,3 +12,4 @@ Por tanto;
 Decretan:
 Articulo 1°._ Modificase. los artículos 2°,3°,4°,5° y 6° de la Ley No. 8790, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del Año 2010, publicada en el Alcance No. 52 a La Gaceta No. 254 de 31 de diciembre de 2009 y sus reformas, en la forma en que se indica a continuación:
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 20 a La Gaceta N° 189 del 29 de setiembre de 2010)
+(Reformado por el artículo 2° del decreto ejecutivo N° 36250 del 20 de octubre de 2010)

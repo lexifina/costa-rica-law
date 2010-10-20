@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-29 | la propia norma |
+| 2 | 2010-10-20 | Decreto Ejecutivo 36250 (2010-10-20) |
