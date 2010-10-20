@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 4º del Decreto Ejecutivo Nº 35189-MEIC, del 24 de marzo del año 2009 publicado en el Alcance Nº 17 a La Gaceta Nº 82 del 29 de abril del 2009, reformado por el artículo 1º del Decreto Ejecutivo Nº 35238-MEIC del 4 de mayo del 2009, publicado en La Gaceta Nº 93 del 15 de mayo del 2009, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 4º—Se mantienen los precios estipulados en los artículos 1º y 2º del presente Decreto Ejecutivo hasta tanto se de una nueva fijación por parte del Poder Ejecutivo”.
