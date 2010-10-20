@@ -12,7 +12,8 @@ dispuso:
 METODOLOGÍA PARA FIJAR LAS TASAS DE COLOCACIÓN
 DE LOS PASIVOS
 I.- Las tasas de captación de los pasivos con costo del Banco Central de Costa Rica a más de un día, en forma independiente del mecanismo de colocación que se utilice, se basarán en la curva de rendimiento que se estime utilizando el modelo Nelson Siegel, con los insumos, frecuencia y método de optimización indicados en punto 3 del documento DAP-ACR-059-2009 y sus anexos.
-II.- La Administración contará con un margen de +200 puntos base con respecto a las tasas de referencia fijadas en el punto I para definir las tasas finales de colocación de los pasivos.
+II.- La Administración cuente con un margen de +-250(*) puntos base, con respecto a las tasas de referencia fijadas, para definir las tasas finales de colocación de los pasivos.
+(*)(Así reformado el punto anterior en sesión 5475-2010 del 20 de octubre de 2010)
 III.- En la subasta competitiva, el uso del margen se medirá contra la tasa de corte del instrumento en la subasta.
 IV.- En el caso de la tasa de subasta no competitiva, la tasa se fijará a partir de la tasa promedio ponderada de captación de la subasta competitiva para el instrumento correspondiente menos un castigo. En todo caso, la tasa final deberá ubicarse dentro del margen de los +200 puntos base, con respecto a la tasa estimada en el punto I.
 V.- En el caso de los títulos a tasa variable, el uso del margen se evaluará a partir de la tasa base a 6 meses estimada con base en el modelo descrito. Sin embargo, dado que la convención para este tipo de títulos es fijar el margen sobre la tasa básica, la tasa estimada por el modelo y el margen de +200 puntos base alrededor de ella, se compararán con la tasa básica, con el fin de definir la tasa de colocación del instrumento correspondiente.
