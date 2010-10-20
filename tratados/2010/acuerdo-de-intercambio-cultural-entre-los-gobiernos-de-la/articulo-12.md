@@ -1,0 +1,3 @@
+ARTÍCULO XII
+Las Partes Contratantes se comprometen por igual a hacer respetar en sus respectivos territorios las disposiciones legales de la otra Parte relacionadas con la protección de su patrimonio nacional arqueológico, histórico y artístico en cuanto se refieren a la prohibición de exportar bienes culturales por el Gobierno del país de origen.
+En los casos en que los indicados valores arqueológicos, históricos y artísticos hayan sido ilegalmente introducidos en el territorio de una de las Partes, ésta procederá a disponer su devolución según la legislación interna y en acuerdo con los convenios establecidos en la materia, lo cual se realizará por vía diplomática.
