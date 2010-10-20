@@ -1,0 +1,1 @@
+Artículo 2º—Deber de la Administración. Es deber de la Administración de la Junta, vigilar por el buen funcionamiento de los servicios que brindan las dependencias administrativas y técnicas a la membresía magisterial.
