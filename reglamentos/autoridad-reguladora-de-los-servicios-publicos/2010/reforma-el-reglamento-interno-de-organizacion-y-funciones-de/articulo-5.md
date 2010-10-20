@@ -1,0 +1,1 @@
+V.—Instar a la Administración que lleve a cabo las acciones que correspondan para que las funciones gerenciales establecidas en el Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados entren en plena vigencia.

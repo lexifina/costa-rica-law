@@ -1,0 +1,1 @@
+IV.—Solicitarle a la Administración, con la urgencia que el asunto amerita, que lleve a cabo los estudios técnicos necesarios para valorar el traslado de la Dirección General de Asesoría Jurídica y Regulatoria al Despacho del Regulador General o a la Junta Directiva y plantee las propuestas que correspondan a este órgano.
