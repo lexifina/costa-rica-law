@@ -1,0 +1,2 @@
+Artículo 37 -De las formas de pago:
+La forma de pago usual de la UTN para la compra de bienes y servicios será de 30 días naturales, sin embargo, tanto la proveeduría principal como las de sede podrán realizar adquisiciones de contado, que a juicio del proveedor institucional o jefe de proveeduría de la sede, se consideren situaciones urgentes o casos especiales. Dicho monto será hasta un 25% del tope establecido para la contratación directa según la resolución que emite la Contraloría General de la República amparado a los artículos 27 y 84 de la LeA.

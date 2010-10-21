@@ -1,0 +1,1 @@
+Artículo 22 —Área Almacenamiento y distribución. Funciones Generales: Esta unidad administrativa se encargará de recibir, verificar pedidos y existencias, registrar, custodiar, conservar y distribuir los bienes adquiridos por la Universidad, observando para ello las políticas, directrices, normas técnicas y procedimientos que al efecto le señalen sus superiores jerárquicos.

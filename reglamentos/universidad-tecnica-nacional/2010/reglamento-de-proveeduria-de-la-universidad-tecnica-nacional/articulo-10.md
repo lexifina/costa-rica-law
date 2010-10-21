@@ -1,0 +1,1 @@
+Artículo 10 -De la competencia para dar la orden de inicio de los procedimientos de contratación. Los responsables de los programas presupuestarios o de proyectos de la UTN y de cada Sede, salvo disposición en contrario del máximo Jerarca, serán los competentes para dar la orden de inicio en cada procedimiento de contratación administrativa.

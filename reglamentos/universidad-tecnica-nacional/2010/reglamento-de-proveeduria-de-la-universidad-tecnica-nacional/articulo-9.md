@@ -1,0 +1,1 @@
+Artículo 9 -De la Plataforma tecnológica. La Proveeduría Institucional de la UTN podrá utilizar la plataforma tecnológica que utilice el estado, con el fin de tramitar todos los procedimientos de contratación administrativa que requiera la misma.

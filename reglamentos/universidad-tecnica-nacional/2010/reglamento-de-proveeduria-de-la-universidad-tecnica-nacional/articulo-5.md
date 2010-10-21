@@ -1,0 +1,1 @@
+Artículo 5 -Actualización del sistema. La Proveeduría institucional como órgano rector es la responsable del sistema de adquisición de bienes y servicios de la UTN, deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de los bienes y servicios que requieran las diversas dependencias institucionales.

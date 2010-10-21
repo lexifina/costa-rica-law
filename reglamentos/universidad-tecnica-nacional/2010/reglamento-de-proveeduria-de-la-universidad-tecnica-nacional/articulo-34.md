@@ -1,0 +1,4 @@
+Artículo 34 -De la Creación de las Proveedurías auxiliares en las Sedes
+Por el volumen de operaciones y la organización territorial es necesario que operen proveedurías auxiliares en las distintas Sedes de la UTN.
+Las Proveedurías auxiliares tendrán la tramitación de los procesos ordinarios y materias excluidas para satisfacer los requerimientos específicos de la Sede, todo de acuerdo a los niveles de aprobación establecidos en este reglamento. Asimismo deberá contar con un área para de almacenamiento y distribución de mercancías.
+Todos los bienes y servicios que requiera la UTN y que sean de uso común, serán adquiridos por la Proveeduría principal, ya sea por medio de contratación directa, licitación. En casos excepcionales la Dirección de la Proveeduría institucional tendrá la facultad para autorizar a las proveedurías auxiliares a realizar estas adquisiciones.

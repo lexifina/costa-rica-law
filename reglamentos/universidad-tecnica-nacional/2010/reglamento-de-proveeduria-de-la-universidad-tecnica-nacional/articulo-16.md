@@ -1,0 +1,18 @@
+Artículo 16 -Jefatura. El Proveedor Institucional será el superior jerárquico de la Proveeduría Institucional, y le corresponderán, entre otras, las siguientes funciones primordiales:
+a) Programar, organizar, dirigir, coordinar y controlar la ejecución de las distintas acciones y unidades administrativas de la Proveeduría en los procedimientos de contratación administrativa, almacenamiento y distribución de mercancías que interesen a la UTN
+b) Supervisar que tales acciones sean llevadas a cabo de acuerdo con el ordenamiento jurídico.
+c) Organizar, asignar y supervisar el trabajo del personal y unidades administrativas bajo su cargo.
+d) Velar porque las políticas y directrices vinculantes emitidas por los niveles jerárquicos superiores o jerárquicos impropios se cumplan cabalmente.
+e) Coordinar la Comisión de Licitaciones institucional.
+f) Revisar la conformidad con el respectivo expediente, de la decisión final que se adopte en cada procedimiento de contratación.
+g) Dictar la resolución final de adjudicación, declaratoria de deserción o de infructuosa, en los procedimientos de Contratación Administrativa que por competencia le corresponde conocer al Proveedor Institucional, y suscripción de las formalizaciones contractuales derivadas de dichos procedimientos, en aquellos casos en que correspondiere dicho acto.
+h) Revisar y autorizar en el sistema automatizado de contratación establecido al efecto.
+i) Preparar para la firma del Jerarca, las solicitudes ante la Contraloría General de la República para la autorización de contrataciones directas o para promover un procedimiento de contratación directa al amparo de los artículos 2º, inciso h) de la Ley de Contratación Administrativa y 83 de su Reglamento General, en los términos señalados por el Contralor General de la República en su resolución de las ocho horas del 10 de febrero del 2000, publicada en La Gaceta Nº 34 de 17 de febrero del mismo año.
+j) De conformidad con los supuestos estipulados en la Ley de Contratación Administrativa y su Reglamento, resolver el recurso de objeción, de revocatoria de la resoluciones de adjudicación -si su emisión ha sido delegada por el jerarca de la Institución-, para lo cual deberá ser apoyado por la Asesoría Jurídica de la institución.
+k) Preparar y remitir la información que exija el ordenamiento jurídico en las materias propias de sus funciones, a los órganos internos o externos de la institución.
+l) Analizar y adoptar las medidas pertinentes en relación con las recomendaciones técnicas que le formule la Unidad de Programación y Control, en punto a la evaluación, ya sea total o parcial, del funcionamiento y operación de la Proveeduría Institucional.
+m) Coordinar lo pertinente con las otras unidades administrativas internas de la Universidad, cuando así se requiera para que se tomen las acciones apropiadas que en derecho correspondan, observándose en tal caso, las normas y trámites del debido proceso, en situaciones tales como incumplimientos por parte de los contratistas, resoluciones o modificaciones contractuales, ejecución de garantías, sanciones administrativas, reclamaciones de orden civil o penal, etc.
+n) Ordenar y enviar para su publicación en el Diario Oficial, los diversos actos y documentos que sean necesarios, de acuerdo con la legislación vigente.
+ñ) Coordinar y controlar el proceso de compras de las proveedurías auxiliares de las distintas Sedes.
+o) Cualquier otra función compatible con la naturaleza de las que le son propias, asignadas por sus superiores o el ordenamiento jurídico.
+En las ausencias temporales del Proveedor Institucional, asumirá sus funciones el jefe del área de programación y control, con sus mismas atribuciones y funciones.

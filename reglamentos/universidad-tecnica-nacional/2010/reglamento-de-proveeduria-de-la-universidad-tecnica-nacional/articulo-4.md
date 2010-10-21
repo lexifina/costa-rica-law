@@ -1,0 +1,1 @@
+Artículo 4 -Ámbito de aplicación. Este Reglamento se aplicará a la adquisición de bienes y servicios mediante los procedimientos ordinarios de contratación, y materias excluidas de los procedimientos ordinarios que se lleven a cabo en la UTN.

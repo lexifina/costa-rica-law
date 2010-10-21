@@ -1,0 +1,2 @@
+Artículo 6 -Normalización bienes y servicios de apoyo básicos.
+La Proveeduría Institucional será la encargada de la programación de las contrataciones de bienes y servicios que requiera la Institución, con la información proporcionada por las unidades solicitantes que cuenten con el criterio técnico para dar dichas recomendaciones, las cuales son responsables de la información que suministren y recursos presupuestarios que requieren para la compra. Esta información deberá estar acorde con las necesidades institucionales.
