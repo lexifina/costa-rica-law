@@ -1,0 +1,3 @@
+3º—En atención al riesgo para la salud de las personas, de los animales y del medio ambiente, que puede resultar de la aplicación distinta a los lineamientos antes establecidos, será considerada como una desobediencia a la autoridad del SENASA y en consecuencia el propietario de la finca así como quién sea responsable de las aplicaciones será denunciado ante las autoridades competentes y suspenderá las aplicaciones de forma inmediata.
+Publíquese en el Diario Oficial La Gaceta y en la página electrónica del SENASA.
+Dado en Alajuela, Ciudad Quesada, a los cinco días del mes de mayo de dos mil diez.
