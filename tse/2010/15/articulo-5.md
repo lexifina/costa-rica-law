@@ -1,0 +1,1 @@
+Artículo 5º—Casillas con candidatos. Los partidos políticos que participan en esta elección se ubicarán en dos filas, una bajo la otra, de acuerdo a la cantidad de partidos participantes en la respectiva circunscripción y siguiendo el orden establecido previamente en la rifa realizada en presencia de los representantes de los partidos políticos.

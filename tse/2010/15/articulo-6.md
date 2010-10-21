@@ -1,0 +1,1 @@
+Artículo 6º—Borde vertical izquierdo de las papeletas. Las papeletas para la elección de alcaldes y vicealcaldes serán encoladas en talonarios que tendrán en su parte izquierda un talón en donde se consigna el encabezado de la papeleta con la numeración, de forma tal que al desprender la papeleta, este talón quedará adherido al talonario.

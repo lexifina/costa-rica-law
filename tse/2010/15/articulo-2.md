@@ -1,0 +1,1 @@
+Artículo 2º—Color y diseño de cada papeleta. Las papeletas para alcaldes y vicealcaldes se imprimirán en papel blanco con detalles de seguridad en colores cyan y negro; para concejales de distrito y síndico, color cyan con detalles en blanco y negro; para intendentes, color magenta con detalles en blanco y negro. El color será el mismo por ambos lados de la papeleta.
