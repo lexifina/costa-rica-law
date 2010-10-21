@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad. El fin de la Comisión será liderar la defensa y promoción de los valores, inspirados en los derechos humanos y la cultura de paz que ayuden a generar en los funcionarios actitudes positivas para enfrentar con éxito los grandes retos del país, en particular la prevención y lucha contra las diversas formas de discriminación, violencia y corrupción.
