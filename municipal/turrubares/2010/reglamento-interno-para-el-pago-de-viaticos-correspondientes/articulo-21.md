@@ -1,0 +1,1 @@
+Artículo 21.—Los artículos 10, 11, 12, 13 y 14 de este Reglamento son plenamente aplicables a los funcionarios municipales cuando estén en casos similares a los referidos para los regidores o síndicos.
