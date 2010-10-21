@@ -1,0 +1,1 @@
+Artículo 20.—Procedimiento ante el Órgano Director de Procedimiento: Cuando la investigación de los hechos denunciados se tramite mediante un procedimiento ordinario de investigación, el mismo se ajustará a las normas del debido proceso constitucional (artículos 39 y 41 de la Constitución Política), con amplia audiencia y oportunidad de defensa al

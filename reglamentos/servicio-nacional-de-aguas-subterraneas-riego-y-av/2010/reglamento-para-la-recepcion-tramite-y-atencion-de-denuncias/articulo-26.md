@@ -1,0 +1,1 @@
+Artículo 26.—Comunicación del acto que rechaza la denuncia: Si la decisión fuere la de rechazar el denuncia se comunicará así al denunciante mediante la notificación respectiva, comunicación que deberá realizarla la Gerencia General o quien esta delegue.

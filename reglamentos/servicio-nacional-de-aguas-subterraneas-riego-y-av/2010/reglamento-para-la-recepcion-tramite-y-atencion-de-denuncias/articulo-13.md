@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la tramitación de la denuncia
+Artículo 13.—Análisis preliminar de los hechos denunciados: Con el propósito de sustanciar el procedimiento, establecer la verdad real de los hechos, y atraer los elementos de juicio necesarios para la resolución del denuncia, la Contraloría de Servicios o en su defecto la Gerencia, abrirá un expediente el cual contendrá la denuncia y documentación de todos los actos que se realicen. La Contraloría de Servicios o en su defecto la Gerencia, realizarán las indagaciones del caso que estime pertinentes, según la naturaleza de lo denunciado, y determinará si para atender el asunto se requiere de un procedimiento sumario o de un procedimiento ordinario.

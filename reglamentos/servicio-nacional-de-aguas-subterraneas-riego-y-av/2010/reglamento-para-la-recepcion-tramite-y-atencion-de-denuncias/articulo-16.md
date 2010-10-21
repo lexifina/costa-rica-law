@@ -1,0 +1,1 @@
+Artículo 16.—Resultados de la investigación: Recavada la información respectiva, la Contraloría de Servicios remitirá los resultados de la investigación a la Gerencia con las recomendaciones respectivas para que esta adopte la resolución de fondo, en la cual ordene las medidas convenientes y oportunas en atención a la denuncia recibida.

@@ -1,0 +1,1 @@
+Artículo 17.—Notificación al denunciante y partes interesadas: Resuelta la denuncia, se notificará lo resuelto al denunciante por el medio que éste señaló para atender notificaciones, así como al funcionario o funcionarios cuya conducta u omisión se investiga y demás partes interesadas o apersonadas al procedimiento.

@@ -1,0 +1,1 @@
+Artículo 22.—Resolución de fondo: La Gerencia General procederá a analizar las recomendaciones recibidas y dictará la resolución de fondo que correspondiere, ordenando las medidas convenientes y oportunas en atención a la denuncia recibida, garantizar eficiencia administrativa y el cumplimiento de los fines públicos.

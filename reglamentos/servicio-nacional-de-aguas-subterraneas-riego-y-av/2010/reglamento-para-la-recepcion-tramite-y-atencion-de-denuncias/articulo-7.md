@@ -1,0 +1,1 @@
+Artículo 7º—No necesidad de autenticación de firmas: La interposición de la denuncia no requerirá autenticaciones aunque no la presente la parte personalmente. Queda a salvo la facultad de SENARA de exigir la verificación de la autenticidad por los medios que estime pertinentes.

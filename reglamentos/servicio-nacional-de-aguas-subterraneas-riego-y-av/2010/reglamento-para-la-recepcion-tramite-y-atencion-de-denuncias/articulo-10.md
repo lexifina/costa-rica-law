@@ -1,0 +1,1 @@
+Artículo 10.—Denuncia verbal: Si la interposición de la denuncia se hace en forma verbal, el funcionario que la reciba deberá documentarla a través de un formulario que SENARA pondrá a disposición de los denunciantes para tales efectos.

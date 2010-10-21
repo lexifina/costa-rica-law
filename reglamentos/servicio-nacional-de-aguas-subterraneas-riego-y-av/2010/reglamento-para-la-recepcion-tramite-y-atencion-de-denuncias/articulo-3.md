@@ -1,0 +1,1 @@
+Artículo 3º—Órgano responsable de tramitación y resolución: La Gerencia General de SENARA será el Órgano Responsable de velar porque toda denuncia que se reciba sea atendida, tramitada y resuelta en forma debida y oportuna, sin perjuicio de la labor de seguimiento que será ejercida por la Contraloría de Servicios Institucional.
