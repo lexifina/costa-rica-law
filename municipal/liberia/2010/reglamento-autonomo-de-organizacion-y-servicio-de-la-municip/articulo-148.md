@@ -1,0 +1,1 @@
+Artículo 148.—Se dotará a todos los trabajadores sin excepción de un uniforme por año consistente en el caso de las mujeres, de dos pantalones o enaguas, dos blusas y dos pares de zapatos, a los varones, dos pantalones, dos camisas y dos pares de zapatos.

@@ -1,0 +1,1 @@
+Artículo 139.—Las disposiciones contenidas en este reglamento sobre el procedimiento y remoción no serán aplicadas a los funcionarios que dependan directamente del Concejo Municipal. El Concejo acordará las acciones que afectan a los funcionarios directamente dependientes de el.

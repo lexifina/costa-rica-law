@@ -1,0 +1,17 @@
+CAPÍTULO XXI
+De los derechos de los servidores
+Artículo 113.—Los servidores(as) de la Municipalidad gozarán de los siguientes derechos además de los dispuestos en otras leyes:
+a) No podrán ser despedidos de sus puestos a menos que incurran en las causales de despido que prescribe el Código de Trabajo y conforme al procedimiento señalado en el artículo 150 de este código.
+b) La Municipalidad podrá finalizar los contratos de trabajo con responsabilidad patronal, de acuerdo a los años de servicio más uno fundamentada en estudios técnicos relacionados con el cierre de programas, la reducción forzosa de servicios por falta de fondos o la reorganización integral de sus dependencias que el buen servicio público exija.
+Ningún trabajador despedido por esta causa podrá regresar a la Municipalidad, si no hubiere transcurrido un período mínimo de un año, a partir de su separación.
+c) El respeto a sus derechos laborales y reconocimiento por el buen desempeño.
+d) Contarán con una remuneración decorosa, acorde con sus responsabilidades, tareas y exigencias tanto académicas como legales.
+e) Disfrutarán de vacaciones anuales por el tiempo consecutivo servido, según la Cláusula Décima de la Convención Colectiva, en la siguiente forma:
+• De 50 semanas a 4 años y 50 semanas: 15 días hábiles
+• De 5 años a 8 años y 50 semanas: 22 días hábiles
+• De 9 años en adelante: 30 días hábiles.
+f) Podrán disfrutar de licencia ocasional de excepción, con goce de salario o sin el, según las disposiciones del Código Municipal y lo que indique la Convención Colectiva vigente.
+g) Podrán gozar de licencia para asistir a cursos, siempre que sus ausencias no perjudiquen evidentemente el servicio público, de acuerdo con el reglamento de esta ley.
+h) La Municipalidad definirá políticas y promoverá la asignación de recursos para fomentar el desarrollo y la formación de su personal, dando facilidades, asignando partidas presupuestarias y otorgando licencias con goce de salario, orientadas a mejorar el recurso humano de sus áreas, técnicas, administrativas y operativas.
+i) Tendrán derecho a una evaluación anual del desempeño de sus labores.
+j) Toda servidora embarazada o que adopte a un menor de edad gozará de la licencia, los deberes y las atribuciones prescritas en el artículo 95 del Código de Trabajo. Durante el plazo de la licencia, la Municipalidad le pagará el monto restante del subsidio que reciba de la Caja Costarricense de Seguro Social, hasta completar el ciento por ciento (100%) de su salario, y la aplicación del inciso j) del artículo 146 del Código Municipal.

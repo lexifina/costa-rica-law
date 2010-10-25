@@ -1,0 +1,1 @@
+Artículo 90.—El pago de salario de todo el personal municipal se hará en forma bisemanal, depositándose en la cuenta respectiva del funcionario(a) en alguno de los Bancos del Estado, dicho pago bisemanal corresponde al 50% de lo que indica la escala salarial mensual para cada funcionario(a), para un total de 26 bisemanas al año.

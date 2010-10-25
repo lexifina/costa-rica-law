@@ -1,0 +1,2 @@
+Artículo 95.—Los funcionarios(as) que deban viajar dentro o fuera del país en el ejercicio de sus funciones tendrán derecho a gastos de transporte y viáticos consistentes en pasajes, alimentación y hospedaje, los cuales regirán de acuerdo a la tabla emitida por la Contraloría General de la República. Los gastos al exterior por transporte y viáticos solo se reconocerán a los funcionarios en propiedad.
+Los viáticos no se considerarán salario para ningún efecto legal.

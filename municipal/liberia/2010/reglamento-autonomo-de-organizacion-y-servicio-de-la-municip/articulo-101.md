@@ -1,0 +1,1 @@
+Artículo 101.—La Municipalidad con fundamento en los estudios necesarios realizados por Recursos Humanos adoptará las medidas necesarias para que los servidores(as) cuya permanencia no sea aconsejable, por razones médicas, en un puesto que entrañe exposiciones a los riegos de su trabajo procederá al traslado del funcionario(a) a un puesto más adecuado.

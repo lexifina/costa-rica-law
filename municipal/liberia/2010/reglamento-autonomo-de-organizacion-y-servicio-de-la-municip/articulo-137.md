@@ -1,0 +1,1 @@
+Artículo 137.—No obstante lo dispuesto en el artículo anterior, dejará de imponerse la sanción disciplinaria si el trabajador que, por error marcó otro código o aquel a quien le marcaron el suyo, informa del hecho a quien corresponda a más tardar en el curso de la jornada de trabajo siguiente a aquella en que sucedió el hecho.
