@@ -1,6 +1,6 @@
-Artículo 8º—Jefe del Subproceso de Ingresos. El jefe del Subproceso de Ingresos, tendrá las siguientes funciones:
+Artículo 8º—Jefe del Subproceso de Ingresos. El Jefe del Subproceso de Ingresos, tendrá las siguientes funciones:
 a. Establecer los mecanismos de control que garanticen que los depósitos judiciales, sean cancelados una sola vez, de forma que no produzcan sobregiros en las cuentas corrientes judiciales.
-b. Velar porque se cumpla con lo dispuesto en el artículo 24 de este Reglamento, en relación con la autenticidad de los depósitos judiciales.
+b. Velar porque se cumpla con lo dispuesto en el artículo 23 de este Reglamento, en relación con la autenticidad de los depósitos judiciales.
 c. Establecer mecanismos de coordinación y comunicación eficientes con las autoridades administrativas del Banco, de forma que la ínter actuación entre ambas instituciones sea fluida y efectiva.
 d. Establecer los mecanismos y procedimientos eficaces y seguros para la custodia y archivo de los depósitos judiciales, que faciliten su pronta localización y la información que respecto de ellos interesa.
 e. Velar porque se documente, agregando la respectiva constancia o boleta de depósito judicial, las órdenes de giro y las copias de los cheques.
