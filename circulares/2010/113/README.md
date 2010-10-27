@@ -13,3 +13,4 @@ Trámite de impedimentos de salida del país
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-04 | la propia norma |
+| 2 | 2010-10-27 | Circular 148 (2010-10-27) |
