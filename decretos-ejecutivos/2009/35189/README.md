@@ -18,3 +18,4 @@ Establecimiento del Precio Mínimo de Compra del Industrial al Productor de Arro
 | 3 | 2009-08-12 | Decreto Ejecutivo 35465 (2009-08-12) |
 | 4 | 2010-02-24 | Decreto Ejecutivo 35826 (2010-02-24) |
 | 5 | 2010-08-19 | Decreto Ejecutivo 36156 (2010-08-19) |
+| 6 | 2010-10-27 | Decreto Ejecutivo 36247 (2010-10-27) |
