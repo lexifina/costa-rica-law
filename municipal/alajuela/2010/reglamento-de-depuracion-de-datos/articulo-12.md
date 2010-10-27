@@ -1,0 +1,1 @@
+Artículo 12.—De la desafectación a la base de datos y al pendiente de recaudación. Una vez realizado el estudio general de la finca y sus cargas tributarias, y elaborada y aprobada la respectiva resolución que declara incobrables las cuentas, se procederá a modificar el respectivo pendiente en el sistema de cobro municipal

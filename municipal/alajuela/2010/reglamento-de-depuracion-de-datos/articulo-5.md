@@ -1,0 +1,1 @@
+Artículo 5º—La alcaldía municipal designará un funcionario a cargo de la unidad de depuración y los procedimientos contemplados en este, reglamento; el cual dependerá del coordinador de la administración tributaria.

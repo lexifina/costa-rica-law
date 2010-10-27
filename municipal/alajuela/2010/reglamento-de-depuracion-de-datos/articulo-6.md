@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Procedimiento
+Artículo 6º—Depuración de la base de datos. Se entenderá por depuración de la base de datos municipal, la corrección de elementos de identificación de la cuenta para proceder a su respectivo cobro, así como también aquellas acciones correspondientes a la eliminación del registro con su respectivo pendiente de pago, ya sea por no existencia de la finca o por no procedencia de los cobros. En el caso de patentes municipales, se considerarán inconsistentes aquellos casos que se encuentren morosos sin que exista documento formal que respalde la generación de dicho impuesto, o bien porque el titular de la deuda haya fallecido y la actividad no se continúe realizando.
