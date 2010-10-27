@@ -1,0 +1,1 @@
+Artículo 14.—Promoción. El subproceso de desarrollo cultural, deportivo y recreativo de la Municipalidad de Alajuela, se encargará de divulgar la existencia del reconocimiento de “Hijo Predilecto” promocionar oportunamente la participación de la comunidad en la propuesta de candidatos.

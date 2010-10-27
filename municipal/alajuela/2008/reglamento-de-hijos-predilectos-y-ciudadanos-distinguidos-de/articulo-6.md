@@ -1,0 +1,1 @@
+Artículo 6º—Estudio de las propuestas y recomendación. Corresponderá a la Comisión de Cultura del Concejo Municipal, estudiar cada uno de los legajos de las personas propuestas y emitir una recomendación al concejo sobre el candidato que califica para el reconocimiento de “Hijo Predilecto”.

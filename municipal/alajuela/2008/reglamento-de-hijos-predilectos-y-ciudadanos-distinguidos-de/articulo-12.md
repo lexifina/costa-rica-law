@@ -1,0 +1,1 @@
+Artículo 12.—Postulación y designación. Los candidatos al reconocimiento de “Ciudadano Distinguido” pueden ser propuestos en cualquier momento mediante moción del Alcalde Municipal o cualquier integrante del Concejo y el nombramiento se harán mediante acuerdo que se tomará en sesión ordinaria y mediante mayoría calificada del Concejo Municipal.

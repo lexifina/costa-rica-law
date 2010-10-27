@@ -1,0 +1,1 @@
+Artículo 8º—Designación. Recibida la recomendación de la Comisión de Cultura, el Concejo Municipal designará a la persona que será distinguida como “Hijo Predilecto”, mediante acuerdo que tomará por mayoría calificada de sus integrantes.

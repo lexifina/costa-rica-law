@@ -1,0 +1,1 @@
+Artículo 3º—Declaratoria. El reconocimiento de Hijo Predilecto se otorgará a una persona cada año, en la sesión solemne que realice el Concejo Municipal en ocasión de la celebración del cantonado de Alajuela.

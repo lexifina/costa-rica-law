@@ -1,0 +1,1 @@
+Artículo 7º—Plazo para el análisis de las propuestas. La Comisión de Cultura del Concejo Municipal tendrá como plazo máximo para la entrega de su recomendación al Concejo Municipal en la primera sesión ordinaria de noviembre del año que corresponda.

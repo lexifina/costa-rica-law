@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones Finales
+Artículo 13.—Galería de retratos. La Municipalidad procurará un espacio digno dentro del edificio Municipal, para colocar los retratos de las personas merecedoras de los reconocimientos establecidos en este Reglamento y velará por la uniformidad en las molduras de cada retrato, a efectos de lograr el mayor y mejor aprovechamiento del espacio disponible. El retrato llevará el nombre de la persona designada, el reconocimiento otorgado y el número de la correspondiente sesión y serán acomodados por orden de antigüedad en la designación y separados los hijos predilectos de los ciudadanos distinguidos a fin de identificarlos claramente.

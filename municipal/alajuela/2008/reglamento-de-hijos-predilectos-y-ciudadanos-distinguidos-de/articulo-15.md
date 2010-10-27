@@ -1,0 +1,1 @@
+Artículo 15.—Similitud de términos. Para efectos de género, cuando este, reglamento utilice los términos: “Hijo Predilecto”, “Ciudadano Distinguido”, “Alcalde”, “Candidato”; léase también “Hija Predilecta”, “Ciudadana Distinguida”, “Alcaldesa”, “Candidata”, respectivamente.
