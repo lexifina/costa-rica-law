@@ -5,10 +5,9 @@ Esta se entenderá agotada cuando hayan transcurrido más de quince días hábil
 b. De todos los conflictos colectivos de carácter económico y social, una vez que se constituyan en Tribunales de Arbitraje, de acuerdo con las disposiciones de la Sección III de este Capítulo.
 Tendrán también facultad de arreglar en definitiva los mismos conflictos, una vez que se constituyan en Tribunales de Conciliación, conforme a las referidas disposiciones;
 c. De todos los juicios que se entablen para obtener la disolución de las organizaciones sociales. Estos se tramitarán de acuerdo con las disposiciones del Código de Procedimientos Penales para los juicios que son de conocimiento de los Jueces Penales comunes;
-d. De todas las cuestiones de carácter contencioso que surjan con motivo de la aplicación de la Ley de Seguro social, una vez que la Junta Directiva de la Caja Costarricense de Seguro Social haga el pronunciamiento que corresponda, y siempre que, por la cuantía, tales cuestiones no sean de conocimiento de los Alcaldes.
-Si se tratare de cuestiones relativas a derechos sucesorios preferentes sobre capitales de defunción u otras de índole netamente civil, su conocimiento será de competencia de los Tribunales Comunes;
+d. Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 17900-10 del 27 de octubre de 2010.)
 e. De todas las denuncias y cuestiones de carácter contencioso que ocurran con motivo de la aplicación de las disposiciones sobre reparación por riesgos profesionales a que se refiere el Capítulo Segundo del Título Cuarto;
 f. De los juzgamientos por faltas cometidas contra leyes de trabajo o de previsión social, con facultad de aplicar las penas consiguientes, siempre que las faltas no sean del conocimiento de los Alcaldes; y
-(Así reformado este inciso por el artículo 1º de la ley No. 1093 de 29 de agosto de 1947).
+(Así reformado el inciso anterior por el artículo 1º de la ley N° 1093 de 29 de agosto de 1947)
 g. De todos los demás asuntos que determine la ley.
-(Así reformado por el artículo 1º de la ley No. 668 del 14 de agosto de 1946 ).
+(Así reformado por el artículo 1º de la ley N° 668 del 14 de agosto de 1946 )
