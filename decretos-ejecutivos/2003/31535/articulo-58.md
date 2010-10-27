@@ -1,1 +1,2 @@
-Artículo 58.—Procedimiento Aplicable. La denuncia se tramitará con apego a los principios del debido proceso y los procedimientos establecidos en la Ley General de la Administración Pública.
+Artículo 58.—Normativa y principios aplicables. La denuncia se tramitará con apego a los principios del debido proceso, la proporcionalidad, la libertad probatoria y confidencialidad, de conformidad con la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley N° 7476, reformada por Ley N° 8805, su Reglamento, y normas supletorias.
+(Así reformado por el artículo 1° de decreto ejecutivo N° 36290 del 27 de octubre de 2010)
