@@ -1,1 +1,0 @@
-Artículo 21.—La Comisión emitirá el dictamen correspondiente en un plazo no mayor de treinta días naturales. Vencido el plazo indicado sin producirse el dictamen correspondiente, la solicitud se tendrá por aprobada. Una vez dictaminada la resolución, la Comisión la pondrá en conocimiento de la Junta Directiva del Colegio de Farmacéuticos de Costa Rica, para lo que corresponda.

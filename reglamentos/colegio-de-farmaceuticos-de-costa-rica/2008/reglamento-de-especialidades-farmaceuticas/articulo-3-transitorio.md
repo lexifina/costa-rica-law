@@ -1,1 +1,0 @@
-Transitorio III.—Queda facultada la Junta Directiva para nombrar como integrantes de la Comisión a profesionales farmacéuticos colegiados que no sean farmacéuticos especialistas, cuando ninguno de estos últimos acepten el o los nombramientos que haga la Junta Directiva, a efecto que la Comisión siempre esté integrada con la totalidad de sus miembros.
