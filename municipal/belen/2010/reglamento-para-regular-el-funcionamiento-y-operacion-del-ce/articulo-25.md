@@ -1,0 +1,1 @@
+Artículo 25.—En casos de ausencia, por cualquier motivo, es obligación de la madre, el padre de familia o representante legal, realizar la justificación en la Administración del Centro Infantil Modelo Belemita. Las ausencias se deberán justificar en el cuaderno de informe al Hogar.

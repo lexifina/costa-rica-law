@@ -1,0 +1,1 @@
+Artículo 35.—La determinación del Programa Curricular Básico será competencia del Ministerio de Educación, sin embargo el Centro Infantil incluirá aspectos acordes con la Misión y visión del Centro, a saber, la promoción de la educación para la Paz y la promoción de la igualdad y equidad de géneros y el rescate y respeto de la diversidad.

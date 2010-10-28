@@ -1,0 +1,1 @@
+Artículo 36.—El personal Administrativo y Docente realizará el planeamiento y organización de las actividades del año lectivo durante el mes de enero. Serán obligatorias la inclusión de la celebración de las fechas relativas al rescate de derechos humanos en general y los derechos de la niñez y adolescencia en particular.
