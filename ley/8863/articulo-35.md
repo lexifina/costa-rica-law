@@ -1,0 +1,2 @@
+ARTÍCULO 35.-Consultas
+Las consultas que se hagan al Colegio, provenientes de poderes públicos, instituciones autónomas y semiautónomas, municipalidades y particulares, sean estas personas físicas o jurídicas, serán evacuadas por el Comité Consultivo, el cual emitirá un dictamen por mayoría simple de votos y lo pasará a la Junta Directiva; esta podrá acoger el dictamen y emitirlo a nombre del Colegio.

@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Votaciones
+Los acuerdos de la Asamblea General se tomarán por simple mayoría, salvo en los casos que se refieren a la publicación y modificación de los reglamentos del Colegio, los proyectos de modificación de la presente Ley y los relativos a la firmeza de los acuerdos, en los que se necesita una mayoría de dos tercios de los votos presentes. En caso de empate en la votación, la persona que ocupe la Presidencia decidirá. Los acuerdos tomados quedarán firmes ocho días después, salvo en los casos en que la presente Ley disponga otra cosa.
