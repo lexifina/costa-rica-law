@@ -1,12 +1,4 @@
-ARTÍCULO 3.- Los nombres de las mujeres propuestas para que su
-retrato ocupe un lugar en la Galería, podrán ser sugeridos por
-cualquier persona física o jurídica y deberán reunir los siguientes
-requisitos, sin demérito de los que después indique la Comisión:
-a) Ser costarricense.
-b) Haber realizado una acción relevante y reconocida
-históricamente por su beneficio para Costa Rica y las nuevas
-generaciones. Será necesario que la mujer haya contribuido al
-fortalecimiento de los valores, los principios democráticos, así
-como al desarrollo social, económico, cultural y político del país.
-Rige a partir de su publicación.
-
+Artículo 3.-
+Los nombres de las mujeres propuestas para el ingreso a la Galería de las Mujeres podrán ser sugeridos por cualquier persona física o jurídica, y deberán reunir los siguientes requisitos:
+a) Ser costarricense; en caso de residente permanente deberá haber residido en el país, en forma ininterrumpida, por lo menos veinticinco años.
+b) Haber realizado una acción relevante y reconocida históricamente por su beneficio para Costa Rica y las nuevas generaciones; haber contribuido al avance y la defensa de los derechos humanos de las mujeres, al fortalecimiento de la igualdad y equidad entre mujeres y hombres, al fortalecimiento de la participación política y de los principios democráticos de pluralidad y de convivencia social, así como al desarrollo social, económico, cultural y político en el ámbito local, regional o nacional.
