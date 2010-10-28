@@ -1,0 +1,3 @@
+ARTÍCULO 24.- Sesiones
+La Junta Directiva se reunirá ordinariamente una vez al mes y, de manera extraordinaria, cuando la convoque la Presidencia o tres de sus miembros. Para que la Junta Directiva pueda sesionar se requiere la presencia de por lo menos cinco de sus miembros y, para que haya acuerdo o resolución, el voto de la mayoría de las personas presentes. En caso de empate decidirá el voto quien funja en la Presidencia. Para declarar un acuerdo firme se necesita la concurrencia de por lo menos dos tercios de los votos de los miembros presentes.
+Los acuerdos de la Junta Directiva son apelables ante la Asamblea General y el recurso debe interponerse dentro del tercer día a partir de la aprobación del acta respectiva.
