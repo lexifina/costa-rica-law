@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el artículo 1 inciso e) del Decreto Ejecutivo Nº 17439-S del 5 de marzo de 1987, publicado en La Gaceta Nº 56 del 23 de marzo de 1987 “Reglamento Orgánico del Consejo Técnico de Asistencia Medico Social”.
