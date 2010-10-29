@@ -1,0 +1,1 @@
+Artículo 3º—Los volúmenes de importación con arancel preferencial del producto en cuestión, podrán ser importados a partir de la vigencia del presente Decreto Ejecutivo hasta, a más tardar, el 31 de diciembre de 2010.
