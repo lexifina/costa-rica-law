@@ -16,3 +16,4 @@ Reglamento de Organización y Servicio de la Policía Profesional de Migración
 | 1 | 2004-08-16 | la propia norma |
 | 2 | 2006-05-24 | Decreto Ejecutivo 33173 (2006-05-24) |
 | 3 | 2006-07-19 | Decreto Ejecutivo 33267 (2006-07-19) |
+| 4 | 2010-10-29 | Decreto Ejecutivo 36393 (2010-10-29) |

@@ -10,14 +10,13 @@ IV.—Que en la actualidad las relaciones de organización y de servicio de los 
 V.—Que con fundamento en lo expuesto es imperativo actualizar las normas que regulan la organización y servicio de los funcionarios de la Policía Especial de Migración y Extranjería, a fin de crear un reglamento que uniforme su regulación y organización. Por tanto,
 DECRETAN:
 Reglamento de Organización
-y Servicio de la Policía Especial de Migración
+y Servicio de la Policía Profesional de Migración
+(Modificada su denomiación mediante decreto ejecutivo N° 36393 del 29 de octubre de 2010)
 TÍTULO PRIMERO
 Normas comunes
 CAPÍTULO I
 Disposiciones generales
 Ámbito de Aplicación:
-Artículo 1º—La presente normativa se emite como reglamentación a la Ley de Migración y Extranjería, en concordancia con los artículos 29, 30, 44 y siguientes de la Ley General de Policía Nº 7410, Título Tercero denominado Estatuto Policial”, y será aplicable a los funcionarios de la Policía de Migración y Extranjería, tanto a los de nuevo ingreso como para aquellos cubiertos por el Estatuto de Servicio Civil, entendiéndose para estos últimos únicamente como Reglamento de Organización de la Policía de Migración y Extranjería.
-Los miembros de la Policía Especial de Migración, quedarán sometidos al Régimen del Estatuto Policial, sin embargo, la implementación de este nuevo régimen operará de la siguiente forma:
-1. Los funcionarios que actualmente se encuentran protegidos por el Régimen de Servicio Civil, y que voluntariamente acepten el cambio de régimen, ingresarán de pleno derecho y en propiedad al Estatuto Policial, sometiéndose a su regulación y disfrutando de sus beneficios.
-2. Los funcionarios que no estén dispuestos al cambio de régimen, continuarán rigiendo su relación de servicio con los mismos instrumentos jurídicos que los regula actualmente y desde luego no podrán beneficiarse con los incentivos que prevé el Estatuto Policial.
-3. Los servidores que ingresen con posterioridad a la publicación de este Reglamento, deberán cumplir con los requisitos y formalidades establecidas por la Ley General de Policía y este Reglamento.
+Artículo 1º—La presente normativa se emite como reglamentación a la Ley de Migración y Extranjería, en concordancia con los artículos 50, 51 y siguientes de la Ley General de Policía Nº 7410, Título Tercero denominado “Estatuto Policial”, y será aplicable a los funcionarios de la Policía de Migración, quienes se encuentran dentro del Régimen del Estatuto Policial.
+De conformidad con la Ley General de Migración y Extranjería el presente Reglamento se denominará “Reglamento de Organización y Servicio de la Policía Profesional de Migración
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36393 del 29 de octubre de 2010)
