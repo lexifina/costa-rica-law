@@ -14,3 +14,4 @@ Reforma Regl. regulación, control uso eficiente combustible a precio competitiv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-11 | la propia norma |
+| 2 | 2010-10-29 | Acuerdo 380 (2010-10-29) |
