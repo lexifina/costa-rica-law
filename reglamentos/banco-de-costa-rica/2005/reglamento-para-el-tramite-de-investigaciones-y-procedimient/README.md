@@ -14,3 +14,4 @@ Reglamento para el Trámite de Investigaciones y Procedimientos Administrativos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-09 | la propia norma |
+| 2 | 2010-11-01 | Reglamento 23 (2010-11-01) |
