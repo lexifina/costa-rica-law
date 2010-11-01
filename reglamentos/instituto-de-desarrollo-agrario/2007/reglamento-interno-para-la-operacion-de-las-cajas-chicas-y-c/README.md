@@ -14,3 +14,4 @@ Reglamento Interno para la Operación de las Cajas Chicas y Caja General del Ins
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-21 | la propia norma |
+| 2 | 2010-11-01 | Reglamento 36 (2010-11-01) |
