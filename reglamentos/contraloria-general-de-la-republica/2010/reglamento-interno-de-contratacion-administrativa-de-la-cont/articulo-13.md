@@ -1,0 +1,1 @@
+Artículo 13.- Coordinación interna con respecto al cartel. Las aclaraciones, modificaciones y prórrogas al plazo de recepción de ofertas serán acordadas por la UGA, la cual deberá coordinarlas previamente por la UJI y la Unidad Técnica o Solicitante respectiva.

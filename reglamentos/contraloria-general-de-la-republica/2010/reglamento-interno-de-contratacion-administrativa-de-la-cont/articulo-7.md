@@ -1,0 +1,2 @@
+Artículo 7.- De la Unidad de Administración Financiera. Corresponde a la UAF realizar los pagos respectivos a los proveedores de bienes y servicios no personales una vez que la UGA haya informado sobre el recibido a satisfacción de los mismos.
+Corresponderá igualmente a esta unidad llevar a cabo el cobro de multas o sanciones a los contratistas que se deriven de los procedimientos de contratación, previa solicitud de la UGA.
