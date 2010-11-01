@@ -1,1 +1,0 @@
-Artículo 3º—El Consejo Sectorial se reunirá trimestralmente, con el propósito de coordinar las políticas emanadas del ente rector, y tomar las medidas correctivas para el caso de aquellas acciones que estén presentando un retraso en su ejecución.

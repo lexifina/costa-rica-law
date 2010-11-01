@@ -1,1 +1,0 @@
-Artículo 4º—El despacho por medio de la dirección de planificación sectorial, estará convocando a los técnicos de cada entidad que conforma el sector, a reuniones de seguimiento trimestrales, con el propósito de analizar el avance en el cumplimiento de las metas de las acciones estratégicas formuladas en el Plan Nacional de Desarrollo.
