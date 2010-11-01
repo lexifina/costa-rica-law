@@ -14,3 +14,4 @@ Reglamento de Organización y funcionamiento del Comité de Auditoría Corporati
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-21 | la propia norma |
+| 2 | 2010-11-01 | Reglamento 9030 (2010-11-01) |
