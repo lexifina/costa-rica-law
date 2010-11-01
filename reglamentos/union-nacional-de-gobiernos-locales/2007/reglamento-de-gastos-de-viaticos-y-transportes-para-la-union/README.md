@@ -14,3 +14,4 @@ Reglamento de Gastos de Viaticos y Transportes para la Unión Nacional de Gobier
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-07 | la propia norma |
+| 2 | 2010-11-01 | Reglamento 0 (2010-11-01) |
