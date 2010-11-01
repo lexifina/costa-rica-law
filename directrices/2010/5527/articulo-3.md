@@ -1,0 +1,1 @@
+Artículo 3º—Que la Dirección de Planificación ‘Sectorial del Ministerio de Obras Públicas y Transportes, fungirá como Secretaría Sectorial del Despacho del Ministro Rector, con las funciones que se establecen en el Decreto 34986-MP-PLAN.

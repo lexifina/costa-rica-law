@@ -1,0 +1,16 @@
+MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
+DIRECTRIZ N° 5527-10
+Con fundamento en las potestades conferidas en el artículo 28 de la Ley General de Administración Pública N° 6227; los artículos 4, 5, 6, 7, 8 y 14 del Decreto Ejecutivo N° 34582-MP-PLAN “Reglamento Orgánico del Poder Ejecutivo” y el artículo 2 del Decreto Ejecutivo N° 27917 “Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes”.
+Considerando:
+1º—Que de conformidad con lo estipulado en los artículos 4°, 5° y 6° del Decreto N° 34582-MP-PLAN, corresponderá al Ministro Rector dirigir y coordinar las políticas públicas sectoriales.
+2º—Que en el literal b) del artículo 6° del Decreto N° 34582-MP-PLAN, se establece que al Ministro Rector, corresponderá: “Dirigir y coordinar las políticas sectoriales en las diversas instituciones que componen el sector.
+3º—Que en el literal d) del artículo 14 del Decreto N° 34582-MP-PLAN, se establece que el Ministro tendrá, entre otras, la siguiente competencia: “Los Ministros responsables de cada sector dictarán, conjuntamente con el Presidente de la República, en los términos señalados por los artículos 99 y siguientes de la Ley General de Administración Pública, para que las políticas que fijen conjuntamente del respectivo sector sean ejecutadas y acatadas por las diferentes instituciones centralizadas y descentralizadas que lo integren.”
+4º—Que en el literal h) del artículo 24 del Decreto N° 34582-MP-PLAN, se detalla la conformación del sector Infraestructura y Transportes.
+5º—Que mediante oficio DM-3862-06 del 10 de julio de 2006, este Ministerio giró instrucción a las instituciones que conforman el sector, con el propósito de que coordinen con la Dirección de Planificación Sectorial todo lo relacionado con el Plan Nacional de Desarrollo, planes operativos institucionales y todos los asuntos relacionados con el accionar del sector Infraestructura y Transportes.
+6º—Que la Contraloría General de la República en los informes Nº DFOE-OP-28-2006, Nº DFOE-OP-27¬2006, ha manifestado la necesidad de fortalecer la acción de rectoría del Ministro de Obras Públicas y Transportes, así como del rol de apoyo que en ese campo debe cumplir la Dirección de Planificación Sectorial.
+7º—Que mediante Decreto N° 34986-MP-PLAN, sé modifica el artículo tercer del Decreto 34582-MP-PLAN, donde se establece que: “Las Secretarías Sectoriales podrán estar a cargo de Viceministros o de otros funcionarios a quienes designe el respectivo Ministro Rector”.
+8º—Que desde la conformación del Consejo Sectorial, la Dirección de Planificación Sectorial ha asumido el rol de la Secretaría Sectorial del sector Infraestructura y Transportes.
+9º—Que el inciso 1) del artículo 100 de la Ley General de Administración Pública establece que: “cuando un órgano tenga potestad de dirección sobre otro podrá impartirle directrices, vigilar su cumplimiento y sancionar con la remoción al titular que falte a las mismas en forma reiterada y grave, sin justificar la inobservancia”. Por tanto:
+Emite la siguiente:
+DIRECTRIZ
+Artículo 1°—Que las instituciones que conforman el Sector Infraestructura y Transportes (desconcentradas y descentralizadas), deberán responder a los acuerdos del Consejo Sectorial y a los lineamientos generales de dirección política que dicte el Ministro Rector.
