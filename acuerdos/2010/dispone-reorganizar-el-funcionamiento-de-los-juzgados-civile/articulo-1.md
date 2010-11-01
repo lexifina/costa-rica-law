@@ -1,0 +1,17 @@
+DIRECCIÓN EJECUTIVA DEL PODER JUDICIAL
+A LAS INSTITUCIONES, ABOGADOS
+Y PÚBLICO EN GENERAL
+SE LES HACE SABER
+Que el Consejo Superior en sesiones celebradas el 31 de agosto y 7 de setiembre, ambas fechas del 2010, en su orden, artículos LXIV y VI, dispuso reorganizar el funcionamiento de los Juzgados Civiles de Mayor y Menor Cuantía y de Cobro del Primer Circuito Judicial de San José en la siguiente forma:
+1) A partir del 1º de noviembre del 2010 solo funcionarán los Juzgados Civiles I, II, III y IV tanto de mayor cuanto de menor cuantía. Los Juzgados V y VI de Mayor y Menor Cuantía desaparecerán y los asuntos que actualmente están en conocimiento de estos juzgados serán redistribuidos en los juzgados que se mantienen conforme luego se dirá.
+2) Los asuntos nuevos se distribuirán entre los Juzgados que se mantendrán en funcionamiento, mediante el Sistema Automatizado de Distribución de Expedientes.
+3) Los asuntos en trámite de los Juzgados V y VI tanto de mayor cuanto de menor cuantía, se redistribuirán entre los despachos que permanecen funcionando de la siguiente manera:
+a) Los expedientes del Juzgado VI Civil de Mayor Cuantía cuyo último dígito del número único esté entre 0 y 4 inclusive serán trasladados al Juzgado II Civil de Mayor Cuantía. Los que se ubiquen entre 5 y 9 inclusive al Juzgado IV Civil de Mayor Cuantía. Los expedientes del Juzgado V Civil de Mayor Cuantía, cuyo último dígito del número único esté entre el 0 y 4 inclusive serán trasladados al Juzgado I Civil de Mayor Cuantía. Los que se ubiquen entre 5 y 9 inclusive al Juzgado III Civil de Mayor Cuantía.
+b) Igual redistribución de expedientes se seguirá entre los juzgados de menor cuantía.
+c) Los expedientes de los Juzgados V y VI de Mayor y Menor Cuantía que se encuentren en el Archivo Judicial, quedarán asignados a los Juzgados I, II, III y IV Civil de Mayor y Civil de Menor Cuantía del I Circuito Judicial de San José, en la misma forma que fueron redistribuidos los expedientes activos conforme se señaló en los puntos a) y b) anteriores.
+4) El personal de los Juzgados Civiles V y VI de Mayor y Menor Cuantía durante el presente mes de octubre, se dedicarán de lleno a enlistar los expedientes a redistribuir y a otras labores atinentes a su cierre, lo que eventualmente puede producir alteraciones en la tramitación normal de los casos presentados en esos juzgados.
+5) El personal de los Juzgados Civiles I, II, III, y IV tanto de Mayor cuanto de Menor Cuantía, en los primeros quince días del mes de noviembre próximo no harán nuevos señalamientos, aunque si deberán cumplir con las diligencias que se encuentran previamente señaladas.
+6) A partir del 1 de noviembre próximo, el Juzgado de Cobro del I Circuito Judicial de San José que actualmente se ubica 225 metros este del Restaurante Limoncello, en Barrio Aranjuez, se trasladará al 4° piso del Edificio de Tribunales de Justicia de este Circuito y se transformará en el Juzgado Primero de Cobro del I Circuito Judicial de San José.
+7) A partir del 1 de noviembre próximo iniciará labores el Juzgado Segundo de Cobro del I Circuito Judicial de San José, en el 4° piso del Edificio de Tribunales de este Circuito.
+Se ofrece disculpas y se solicita compresión a las usuarias y usuarios de estos Despachos por los inconvenientes que se presenten con ocasión de estos cambios, los que tienen por objetivo mejorar el servicio que se presta.
+San José, 25 de octubre del 2010.
