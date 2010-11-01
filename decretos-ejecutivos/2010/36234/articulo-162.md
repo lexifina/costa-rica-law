@@ -1,0 +1,1 @@
+Artículo 162.—Reposición de producto. El número de unidades de producto que se tomen para el muestreo estadístico y que consten en el acta respectiva, deberán ser repuestas al comerciante por parte del proveedor.

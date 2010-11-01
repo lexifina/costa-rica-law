@@ -1,0 +1,1 @@
+Transitorio II.—El Poder Ejecutivo reglamentará las Ventas a Plazos de Proyectos Futuros de Desarrollo, en un plazo de diez meses a partir de la publicación del presente Reglamento en el Diario Oficial La Gaceta.

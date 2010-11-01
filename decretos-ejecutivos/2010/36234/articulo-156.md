@@ -1,0 +1,1 @@
+Artículo 156.—Muestreo Preliminar. Procede el muestreo preliminar en aquellos casos en que no se haya determinado la necesidad de llevar a cabo un muestreo estadístico para demostrar una irregularidad. Las muestras se tomarán en la cantidad mínima necesaria.

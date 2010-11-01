@@ -1,0 +1,2 @@
+Artículo 15.—Inicio de los procedimientos. El inicio de procedimientos tendientes al establecimiento de una medida regulatoria de precios deberá ser dispuesto, en todos los casos, por el jerarca de la Administración cuya competencia legal incluya el establecimiento de regulaciones de precios, o por el órgano que él designe.
+En el caso de la revisión o eliminación de las medidas, la iniciativa corresponderá al jerarca o bien a la COPROCOM cuando ello corresponda.

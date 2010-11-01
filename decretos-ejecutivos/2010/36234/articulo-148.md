@@ -1,0 +1,1 @@
+Artículo 148.—Prescripción de la responsabilidad civil. La acción para reclamar la responsabilidad civil prescribirá en un plazo de diez años, contados a partir del momento en que el demandante tuvo o debió haber tenido conocimiento del daño. La prescripción se interrumpe con la presentación de la demanda.

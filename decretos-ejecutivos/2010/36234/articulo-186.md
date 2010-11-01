@@ -1,0 +1,1 @@
+Artículo 186.—Sobre las tarjetas de crédito. El artículo 44 bis de la Ley, sobre tarjetas de crédito, se encuentra reglamentado por en el Decreto Ejecutivo Nº 35867-MEIC del 24 de marzo del 2010, publicado en el Alcance 4 a La Gaceta Nº 62 del 30 de marzo del 2010.

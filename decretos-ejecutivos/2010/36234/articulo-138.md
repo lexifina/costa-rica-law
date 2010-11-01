@@ -1,0 +1,2 @@
+Artículo 138.—Comparecencia. Los procedimientos administrativos ordinarios se tramitarán mediante una comparecencia oral y privada en la cual se admitirá y recibirá toda la prueba y alegatos de las partes que fueren pertinentes.
+De estas comparecencias se levantará un acta cuyo contenido será el que exige el CPCA, junto con la correspondiente grabación por medios digitales o de video, que sustituirá la transcripción íntegra de lo acontecido, salvo que el órgano director del procedimiento determine lo contrario.

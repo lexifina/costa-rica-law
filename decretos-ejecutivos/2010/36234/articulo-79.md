@@ -1,0 +1,1 @@
+Artículo 79.—Otras medidas. Todo lo indicado en esta sección es sin perjuicio de las medidas que pueda ordenar la CNC conforme a la Ley y a este reglamento. También sin perjuicio de las acciones que en defensa de sus derechos e intereses legítimos y económicos puedan plantear los consumidores ante la CNC o cualquier otro órgano competente.

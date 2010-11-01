@@ -1,0 +1,1 @@
+Artículo 91.—Sobre la cancelación del concierto o espectáculo. De presentarse una imposibilidad material para realizar el concierto o espectáculo, el comerciante o proveedor deberá proceder a la devolución de la totalidad de lo pagado por el consumidor por el boleto o tiquete de entrada.

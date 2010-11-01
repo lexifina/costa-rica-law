@@ -1,0 +1,1 @@
+Artículo 187.—Derogatorias. Deróguese el Decreto Ejecutivo Nº 26909 MEIC-G del 16 de abril de 1998, publicado en La Gaceta Nº 96 del 20 de mayo de 1998; y el Decreto Ejecutivo Nº 25234-MEIC del 25 de enero de 1996, publicado en el Alcance Nº 38 a La Gaceta Nº 124 del 1º de julio de 1996.
