@@ -1,0 +1,1 @@
+Artículo 10.—Se derogan los artículos 25, 26, 27, 28, 29 y 30 de los lineamientos para el Ejercicio y Control del Servicio Notarial publicados en el Boletín Judicial número 99 del 24 de mayo del 2007.

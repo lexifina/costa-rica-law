@@ -1,0 +1,1 @@
+Artículo 2º—Competencia. Como criterio esencial, únicamente puede actuar en aquellos documentos en que sea parte la institución para la cual laboran, ejerciendo, dentro de ese marco, las funciones notariales a que se refiere concretamente el artículo 34 del Código Notarial.

@@ -1,0 +1,1 @@
+Artículo 8º—Participación de la Auditoría Interna. Las instituciones públicas deberán velar por el correcto cumplimiento de estas disposiciones, y en todo caso, le corresponderá a las auditorías internas la fiscalización de lo anterior, sin perjuicio que cada institución designe un órgano específico para ello.

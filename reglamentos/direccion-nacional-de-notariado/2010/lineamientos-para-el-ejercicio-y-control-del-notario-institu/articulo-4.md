@@ -1,0 +1,1 @@
+Artículo 4º—Obligación de informar. Las instituciones públicas que contraten notarios de planta, se encuentran obligadas a informar a la Dirección Nacional de Notariado de tal circunstancia a efectos de tramitar la habilitación o cese de sus notarios institucionales. El notario contratado puede suplir esta información.
