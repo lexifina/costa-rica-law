@@ -1,2 +1,0 @@
-Articulo 99.—Los funcionarios de la Dirección de Operaciones deberán administrar, de manera compartimentada, los asuntos, datos, antecedentes, documentos e informaciones que reciban y tramiten, así como lo referente a actividades y operativos policiales que desarrollen. La violación del principio de compartimentación se considerara falta grave para efectos disciplinarios.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 95 al 99 actual)

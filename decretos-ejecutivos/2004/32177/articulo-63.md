@@ -1,2 +1,0 @@
-Articulo 63.—La Dirección General de la Fuerza Publica recomendara al Ministro(a), mediante un estudio técnico, las regiones en que se dividirá territorialmente la Fuerza Publica. Para su implementación contara con el apoyo de las instancias policiales y técnicas del Ministerio.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 59 al 63 actual)

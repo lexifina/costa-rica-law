@@ -1,3 +1,0 @@
-Articulo 182.—Con la finalidad de mantener armónica la estructura orgánica de este Ministerio, cualquier dependencia que requiera modificación en su estructura interna, deberá remitir al superior inmediato la propuesta, según lineamientos de la Oficina de Planificación Institucional. Dicha propuesta será conocida en definitiva por el Ministro
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 171 al 178 actual)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 178 al 182 actual)

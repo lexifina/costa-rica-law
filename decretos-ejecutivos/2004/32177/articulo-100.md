@@ -1,2 +1,0 @@
-Articulo 100.—Los miembros de la Dirección de Operaciones deberán cumplir con los requisitos contemplados en el articulo 59 de la Ley General de Policía y sus Reformas, teniendo los derechos y beneficios que sean en corresponder y que se derivan de esa Ley.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 96 al 100 actual)

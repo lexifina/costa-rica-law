@@ -1,3 +1,0 @@
-Articulo 140.—Los documentos, las bases informáticas de datos y demás material informativo, que posee este Ministerio referentes a las investigaciones concluidas y activas, tendrán carácter estrictamente confidencial. El material informativo estará al servicio del personal de la Dirección, las dependencias autorizadas por el Ministro (a) y las autoridades judiciales competentes.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 129 al 136 actual)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 136 al 140 actual)

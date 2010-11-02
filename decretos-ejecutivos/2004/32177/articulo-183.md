@@ -1,3 +1,0 @@
-Articulo 183.—Toda creación, modificación o supresión de cualquier dependencia de la estructura orgánica de este Ministerio deberá ser revisada por la Oficina de Planificación Institucional en coordinación con la Asesoría Jurídica y la Dirección de Recursos Humanos, para su posterior aprobación por parte del Ministro.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 172 al 179 actual)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 179 al 183 actual)

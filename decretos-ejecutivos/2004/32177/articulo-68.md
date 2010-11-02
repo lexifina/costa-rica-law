@@ -1,2 +1,0 @@
-Articulo 68.—Las direcciones podrán proponer al Ministro(a) el nombramiento permanente o temporal de consultores, asesores o de instructores, para que de manera voluntaria, colaboren con la Fuerza Publica en aquellos aspectos propios de la función policial.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 64 al 68 actual)

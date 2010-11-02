@@ -1,2 +1,0 @@
-Articulo 69.—Estos consultores o instructores deberán ser de reconocida solvencia moral, no serán remunerados por el servicio que presten ni ostentaran investidura publica alguna. Su elección y desempeño se regirá por las normas establecidas en el Reglamento de Servicio de este Ministerio.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 65 al 69 actual)

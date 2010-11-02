@@ -1,3 +1,0 @@
-Articulo 141.—Los cuerpos policiales nacionales e internacionales acreditados podrán efectuar consultas al Centro, referentes a investigaciones concluidas, las cuales se regirán de acuerdo con lo establecido en la Ley sobre Estupefacientes, Sustancias Psicotrópicos, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas y la Ley General de Policía y sus Reformas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 130 al 137 actual)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 137 al 141 actual)

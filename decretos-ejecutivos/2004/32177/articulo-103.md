@@ -1,2 +1,0 @@
-Articulo 103.—La actuación de las unidades especializadas estará circunscrita únicamente a las atribuciones, deberes, competencia y potestades que Ie señale el ordenamiento, en especial, la Ley General de Policía y la Ley de Armas y Explosivos y sus reformas, establece para la Fuerza Publica. Tendrán competencia en todo el territorio nacional.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 99 al 103 actual)

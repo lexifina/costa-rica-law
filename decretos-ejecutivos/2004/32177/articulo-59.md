@@ -1,2 +1,0 @@
-Articulo 59.—Se entiende por prevención del delito, el conjunto de estrategias, tácticas y acciones que realiza el Ministerio, con la finalidad de conservar el orden publico, la tranquilidad de los habitantes, el libre disfrute de las libertades publicas y de disminuir el riesgo de los habitantes a ser victimas de alguna conducta delictiva.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 55 al 59 actual)

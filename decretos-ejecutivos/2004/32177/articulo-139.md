@@ -1,3 +1,0 @@
-Articulo 139.—El Departamento de Inteligencia contara con el Centro de Información y Análisis, el cual se encargara de archivar, custodiar y resguardar los expedientes clasificados de las investigaciones y contara con el registro informático. También administrara la red informática de la Dirección y procurara crear enlaces con otras fuentes de información.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 128 al 135 actual)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 135 al 139 actual)

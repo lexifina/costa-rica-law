@@ -1,3 +1,0 @@
-Articulo 166.—El Departamento de Inspección llevará a cabo la verificación y el control para que las personas físicas y jurídicas, dedicadas a prestar el servicio privado de seguridad, cumplan los requisitos establecidos en el ordenamiento, incluyendo especialmente la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados y su reglamento.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 33510 del 20 de diciembre de 2006, que lo traspaso del antiguo 155 al 162 actual)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo 162 al 166 actual)

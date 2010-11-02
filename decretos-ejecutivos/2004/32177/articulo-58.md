@@ -1,2 +1,0 @@
-Articulo 58.—La Guardia de Asistencia Rural, la Guardia Civil y la Policía de Fronteras, como parte integrante de la Fuerza Publica de este Ministerio, actuaran bajo un solo mando policial, en cada región que el Ministerio determine en el territorio nacional, de conformidad con las competencias y atribuciones, que les otorga la Ley General de Policía y sus reformas.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 34607 del 3 de junio de 2008, que lo traspaso del antiguo artículo 54 al 58 actual)
