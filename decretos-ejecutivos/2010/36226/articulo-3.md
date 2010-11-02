@@ -1,0 +1,1 @@
+Artículo 3°—Se autoriza y recomienda la participación y colaboración de todas las instancias de la Administración Pública, así como todas las acciones que las mismas puedan disponer a favor del desarrollo del Proyecto del “Aeropuerto Internacional del Sur”.
