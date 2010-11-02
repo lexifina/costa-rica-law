@@ -14,3 +14,4 @@ Reglamento para la Regulación y Explotación de Servicios de Transporte Terrest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-14 | la propia norma |
+| 2 | 2010-11-02 | Decreto Ejecutivo 36254 (2010-11-02) |
