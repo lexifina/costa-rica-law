@@ -1,0 +1,2 @@
+Artículo 33.—Las convocatorias a sesión extraordinaria las hará el presidente siempre y cuando le sea comunicado a los restantes integrantes de la Junta Directiva por medio de fax o notificación escrita con al menos cinco días naturales de antelación. Se tendrá por lugar y número de fax para notificar los que se encuentren en la base de datos del Colegio.
+También podrá convocarse a sesión extraordinaria si la notificación está firmada por al menos tres de los miembros de la Junta cumpliendo el mismo plazo de notificar con al menos cinco días de antelación.

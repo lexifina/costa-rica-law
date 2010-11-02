@@ -1,0 +1,1 @@
+Artículo 30.—Los acuerdos de Junta Directiva de Filial podrán ser revocados por la Junta Directiva del Colegio, cuando ésta así lo estime pertinente, en cuyo caso se deben detener todas las acciones para el cumplimiento de dicho acuerdo en forma inmediata.

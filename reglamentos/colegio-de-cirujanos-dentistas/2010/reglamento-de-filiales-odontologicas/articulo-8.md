@@ -1,0 +1,1 @@
+Artículo 8º—Antes de la creación de una nueva región, ya sea por iniciativa de Junta Directiva del Colegio o por iniciativa de los odontólogos de la zona, deberá publicase la propuesta en la página web del Colegio, para recibir oposiciones en el plazo de quince días hábiles. Una vez transcurrido ese plazo, la Junta Directiva resolverá conforme corresponda.

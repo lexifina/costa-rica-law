@@ -1,0 +1,1 @@
+Artículo 38.—La convocatoria a Asamblea Ordinaria la hará la Junta Directiva Filial, se deberá realizar con al menos quince días naturales de antelación y el anuncio deberá publicarse en la página web del colegio y algún medio de información escrito de circulación local. La Asamblea Ordinaria deberá celebrarse al cumplirse un año calendario de la formación de la Filial.

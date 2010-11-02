@@ -1,0 +1,1 @@
+Artículo 57.—Los miembros de la Filial podrán contribuir económicamente y en forma voluntaria para sufragar los gastos de ella, previo acuerdo de la Asamblea Filial. También podrá realizar actividades científicas, culturales, sociales y/o profesionales que le permitan allegar fondos, siempre que hayan sido aprobadas por la Junta Directiva del Colegio.

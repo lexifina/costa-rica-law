@@ -1,0 +1,1 @@
+Artículo 59.—El desembolso de los recursos, que será siempre contra gastos, se hará por medio del Tesorero de la filial. Éste se encargará de todas las gestiones en este sentido, cumpliendo la Normativa que para tal fin deberá aprobar la Junta Directiva del Colegio.

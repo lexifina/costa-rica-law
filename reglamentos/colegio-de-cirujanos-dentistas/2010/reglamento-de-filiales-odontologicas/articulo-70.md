@@ -1,0 +1,1 @@
+Artículo 70.—Los actuales miembros de Junta Directiva Filial, excepto el Fiscal, al momento de aprobación de este reglamento permanecerán en sus puestos automáticamente por un periodo de cuatro años. Al finalizar ese periodo se convocará a Asamblea Filial Ordinaria para realizar por primera vez elecciones y podrán aspirar a reelección en esa elección.

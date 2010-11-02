@@ -1,0 +1,1 @@
+Artículo 72.—Todas las Filiales existentes al momento de aprobación de este reglamento realizarán su primera Asamblea Filial Ordinaria al cumplirse un año de su promulgación, en esta Asamblea no habrá elecciones pero se conocerán los informes de Presidencia y Tesorería.

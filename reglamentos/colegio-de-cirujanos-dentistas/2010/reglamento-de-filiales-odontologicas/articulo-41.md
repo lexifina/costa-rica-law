@@ -1,0 +1,1 @@
+Artículo 41.—Cualquier acuerdo que adopte la Asamblea Filial se tomará por mayoría simple del total de miembros presentes a la hora de la votación. Dichos acuerdos deberán ser comunicados en el plazo de los tres días hábiles siguientes a la Junta Directiva del Colegio.

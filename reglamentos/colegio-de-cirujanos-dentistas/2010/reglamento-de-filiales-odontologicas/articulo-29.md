@@ -1,0 +1,1 @@
+Artículo 29.—Los acuerdos tomados en forma unánime por todos los miembros de la Junta Directiva tendrán el carácter de firmes. También serán firmes los acuerdos que así quieran declararse siempre y cuando sean aprobados por al menos cuatro de los miembros de la Junta Directiva y no haya ausencia de ninguno de ellos.

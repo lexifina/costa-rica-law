@@ -1,0 +1,1 @@
+Artículo 54.—Una vez realizada la elección, el Presidente juramentará al candidato electo y comunicara el resultado a la Junta Directiva del Colegio, quien en su sesión inmediata dará su aprobación o no a lo actuado.

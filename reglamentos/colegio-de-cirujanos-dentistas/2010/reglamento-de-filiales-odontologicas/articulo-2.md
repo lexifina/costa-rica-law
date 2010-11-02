@@ -1,0 +1,1 @@
+Artículo 2º—Las Filiales Odontológicas tendrán como objetivo principal colaborar estrechamente con la Junta Directiva del Colegio para el cumplimiento, en cada una de las regiones, de lo dispuesto en el artículo 4 de la Ley Orgánica del Colegio.

@@ -1,0 +1,1 @@
+Artículo 64.—Las actuaciones de los miembros de la Filial y de su Junta Directiva no comprometen en forma alguna al Colegio de Cirujanos Dentistas de Costa Rica, ni en lo civil, ni en lo penal, ni en lo económico.

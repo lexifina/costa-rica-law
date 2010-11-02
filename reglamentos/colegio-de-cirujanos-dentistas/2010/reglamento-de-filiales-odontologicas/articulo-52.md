@@ -1,0 +1,1 @@
+Artículo 52.—El fiscal será elegido en Asamblea Filial Ordinaria que se celebre dos años después de haberse nombrado los puestos de Junta Directiva Filial y durará en su puesto cuatro años, pudiendo reelegirse en forma consecutiva por periodos similares.

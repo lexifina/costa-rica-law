@@ -1,0 +1,1 @@
+Artículo 36.—La Asamblea Filial se reunirá ordinariamente una vez al año para la elección de la Junta Directiva Filial o Fiscal, si corresponde, y conocer los informes de Tesorería y Presidencia. También podrá reunirse extraordinariamente, cuando sea convocada para algún asunto específico.

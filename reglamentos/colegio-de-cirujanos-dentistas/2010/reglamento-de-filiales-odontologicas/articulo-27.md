@@ -1,0 +1,1 @@
+Artículo 27.—Los acuerdos de Junta Directiva quedarán firmes al aprobar el acta de la respectiva sesión en la sesión inmediata posterior, salvo que en la misma se hayan declarado firmes. Todos sus acuerdos se tomarán por mayoría simple (voto afirmativo de tres de sus miembros).

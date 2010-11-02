@@ -1,0 +1,1 @@
+Artículo 58.—La Junta Directiva de la Filial será la responsable del manejo y administración de los fondos, debiendo rendir cuenta de ello a la Junta Directiva del Colegio y a la Asamblea Filial cada año.

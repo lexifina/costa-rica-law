@@ -1,0 +1,1 @@
+Artículo 34.—La renuncia de cualquiera de los miembros de la Junta Directiva de la Filial al puesto que ocupa será presentada por escrito a la misma Junta, con copia a la Junta Directiva del Colegio. Cuando se trate del presidente se debe convocar a Asamblea filial para su escogencia, en el caso de los otros miembros el nombramiento recaerá en la misma Junta.

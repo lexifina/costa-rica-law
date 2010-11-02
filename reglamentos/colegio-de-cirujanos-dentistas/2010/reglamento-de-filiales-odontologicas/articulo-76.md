@@ -1,0 +1,1 @@
+Artículo 76.—Este reglamento deroga cualquier otra disposición que se le oponga. Cualquier aspecto no contemplado en él será resuelto por la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica.

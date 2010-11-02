@@ -1,0 +1,1 @@
+Artículo 40.—Se formará quórum para la realización de la Asamblea Filial a la hora de convocatoria con la presencia de no menos de quince de los miembros que conforman la Filial. Si lo anterior no ocurre, se hará segunda convocatoria quince minutos después con los odontólogos miembros de la Filial que se encuentren presentes.

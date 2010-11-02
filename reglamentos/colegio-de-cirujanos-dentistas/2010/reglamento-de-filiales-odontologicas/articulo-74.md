@@ -1,0 +1,1 @@
+Artículo 74.—Las Filiales ya existentes al momento de aprobar este reglamento deberán adjuntar la documentación que establece el artículo 10 incisos c), d) y e) de éste reglamento en un plazo máximo de tres meses.

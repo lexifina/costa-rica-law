@@ -1,0 +1,1 @@
+Artículo 28.—La Junta Directiva sesionará ordinariamente una vez al mes, excepto que al momento de inscribir la Filial en el Colegio se establezca una frecuencia mayor de sesiones. Podrá reunirse extraordinariamente, pero la firmeza de los acuerdos tomados en forma extraordinaria se dará al aprobarse las actas extraordinarias en la sesión ordinaria inmediata posterior.

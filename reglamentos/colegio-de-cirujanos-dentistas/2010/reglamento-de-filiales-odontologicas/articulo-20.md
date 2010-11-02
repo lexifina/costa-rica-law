@@ -1,0 +1,1 @@
+Artículo 20.—La Junta Directiva estará conformada por un presidente, un vicepresidente, un secretario, un tesorero y un vocal, quienes permanecerán cuatro años en sus puestos y podrán ser reelectos por períodos sucesivos.

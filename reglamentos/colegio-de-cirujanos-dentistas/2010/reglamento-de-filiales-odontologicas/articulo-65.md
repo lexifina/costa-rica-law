@@ -1,0 +1,1 @@
+Artículo 65.—Los odontólogos que, siendo miembros de Junta Directiva o fiscal de la Filial, sean sancionados por la Comisión de Fiscalía, el Tribunal de Honor o la Junta Directiva del Colegio, deberán abandonar sus puestos para que sean ocupados por otro colega.

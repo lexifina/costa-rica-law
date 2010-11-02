@@ -1,0 +1,1 @@
+Artículo 53.—La elección del fiscal será el último punto en el orden del día y será dirigida por el presidente de filial, quien deberá garantizar la transparencia del proceso, siguiendo el procedimiento similar al de la escogencia de los miembros de junta, según el artículo 36 del presente reglamento.

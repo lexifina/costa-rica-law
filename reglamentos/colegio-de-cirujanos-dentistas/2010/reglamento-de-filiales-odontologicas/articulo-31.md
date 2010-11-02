@@ -1,0 +1,1 @@
+Artículo 31.—A los acuerdos de Junta Directiva de Filial les cabe recurso de revocatoria ante la misma Junta Directiva Filial y pueden ser apelados ante la Asamblea Filial en los ocho días hábiles posteriores a la firmeza del acuerdo. Los asuntos no resueltos los resolverá en última instancia la Junta Directiva del Colegio.

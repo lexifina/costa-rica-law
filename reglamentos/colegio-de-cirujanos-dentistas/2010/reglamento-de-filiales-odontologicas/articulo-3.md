@@ -1,0 +1,1 @@
+Artículo 3º—La Junta Directiva del Colegio podrá señalar a todas y cada una de las Filiales acciones específicas a realizar, sin que las directrices específicas que emita hacia una Filial sean obligatorias para las otras.

@@ -1,0 +1,1 @@
+Artículo 48.—Una vez realizada la elección de la nueva junta directiva, el fiscal juramentará a sus miembros, e informará a la Junta Directiva del Colegio, quien en su sesión inmediata dará su aprobación o no a lo actuado.

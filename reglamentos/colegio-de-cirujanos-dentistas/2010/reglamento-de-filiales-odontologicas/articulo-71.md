@@ -1,0 +1,1 @@
+Artículo 71.—Los fiscales de filial al momento de aprobación de este reglamento permanecerán en sus puestos automáticamente por un periodo de dos años. Al finalizar ese periodo se convocará a Asamblea Filial ordinaria para elegir Fiscal y podrán aspirar a reelección en esa elección.
