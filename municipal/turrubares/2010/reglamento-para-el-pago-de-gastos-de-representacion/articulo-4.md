@@ -1,0 +1,1 @@
+Artículo 4º—Los funcionarios mencionados en el artículo anterior podrán liquidar como gastos de representación aquellos gastos que se originen en la atención de personas ajenas a la institución que los brinda con ocasión de actividades o eventos oficiales, previa presentación de las facturas correspondientes;

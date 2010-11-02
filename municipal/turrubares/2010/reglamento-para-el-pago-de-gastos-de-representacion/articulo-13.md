@@ -1,0 +1,1 @@
+Artículo 13.—En todo lo no previsto en el presente Reglamento, se aplicará supletoriamente la Ley General de la Administración Pública, Ley de la Administración Financiera de la República, el Reglamento de gastos de viaje y de transporte para funcionarios públicos y demás normativa que resulte aplicable y no se oponga a estas regulaciones.

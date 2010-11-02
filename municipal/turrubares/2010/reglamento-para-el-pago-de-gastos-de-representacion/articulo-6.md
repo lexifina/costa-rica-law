@@ -1,0 +1,1 @@
+Artículo 6º—Igualmente los funcionarios indicados, podrán realizar gastos de representación en el exterior con fundamento en lo señalado en el Capítulo V del Reglamento de gastos de viaje y transporte para funcionarios públicos emitido por la Contraloría General de la República.
