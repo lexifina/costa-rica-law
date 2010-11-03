@@ -1,0 +1,10 @@
+MINISTERIO DE GOBERNACIÓN Y POLICÍA
+Res. N° 1000-2010-DMG.—Despacho del Ministro.—San José, a las catorce horas, cuarenta minutos del treinta de junio del dos mil diez.
+Considerando:
+I.—Que para llevar a cabo los procedimientos para dar la baja de bienes por donación, las instituciones de gobierno, deben conformar una Comisión que se encargue de tramitar todo lo concerniente a ese asunto.
+II.—Que los artículos 41 y 42 del Decreto 30720-H del 26 de agosto del 2002, denominado Reglamento para el Registro y Control de Bienes de la Administración Central y sus reformas, disponen:
+“(...) Artículo 41: Comisión de Donación. Cada Ministerio o Institución adscrita, contará con una Comisión de Donación, de nombramiento del máximo jerarca de la institución; conformada por lo menos por: El Director Administrativo, el Proveedor Institucional y el Encargado del Control de Bienes de la Institución; la que se encargará de recomendar las donaciones. (...) Artículo 42: Delegación de la Donación. Le corresponde al Ministro o máximo jerarca, firmar las Actas de Donación de su respectiva institución (...).
+III.—El Ministro de Gobernación y Policía, es quien tiene la potestad de nombrarla Comisión de Donación, así como firmar las Actas de Donación. Por tanto,
+EL MINISTRO DE GOBERNACIÓN Y POLICÍA,
+RESUELVE:
+1º—Nombrar la Comisión de Baja de Bienes por Donación, de la Dirección General de Migración y Extranjería, del Ministerio de Gobernación y Policía, la cual estará integrada por los siguientes funcionarios de la Dirección General de Migración y Extranjería: Kathya Rodríguez Araica, cédula de identidad número 1-706-127, Directora General; Agustín Barquero Acosta, cédula de identidad número 1-482-463, Director Administrativo Financiero; Carlos Camacho Vargas, cédula de identidad número 4-163-376, Coordinador del Subproceso de Abastecimiento y Distribución; Erika García Díaz, cédula de identidad número 1-843-611, Proveedora Institucional y Olga Vega Barrantes, cédula de identidad 4-146-663, Subproveedora Institucional (en sustitución de Proveedora).

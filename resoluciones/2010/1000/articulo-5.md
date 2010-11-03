@@ -1,0 +1,1 @@
+5º—Se deja sin efecto la Resolución N° 0634-2006-DMG, de las catorce horas, cuarenta minutos del diecinueve de mayo de dos mil seis, publicada en la Gaceta N° 122 del lunes veintiséis de junio de dos mil seis.
