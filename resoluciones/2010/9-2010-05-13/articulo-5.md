@@ -8,7 +8,8 @@ ii. Personas físicas inscritas en el Régimen de Tributación Simplificada.
 b. Libros adicionales:
 Además de los libros generales indicados en el inciso anterior, las sociedades deberán llevar los libros que a continuación se detallan:
 1. Libros por legalizar según tipo de sociedad:
-i. Sociedades anónimas: Actas de Consejo de Administración (Junta Directiva), Actas de Asamblea de Socios (Asamblea General), Registro de Socios (Registro de Accionistas) y el Registro de Obligaciones. Este último libro lo deben legalizar aquellas sociedades que captan recursos en el mercado financiero.
+i. Sociedades anónimas: Actas de Consejo de Administración (Junta Directiva), Actas de Asamblea de Socios (Asamblea General), Registro de Socios (Registro de Accionistas) y el Registro de Obligaciones, si las hubieren emitido, conforme lo dispone el Artículo 252 del Código de Comercio.
+(Así reformado el aparte anterior mediante resolución DGT-21-2010 del 3 de noviembre de 2010)
 ii. Sociedades de responsabilidad limitada: Actas de Asamblea de Socios y Registro de Socios.
 iii. Sociedades de Actividades Profesionales, Sociedades Anónimas Laborales y Sociedades Civiles: Actas de Asamblea de Socios.
 2. Libros por legalizar según el tipo de actividad que realice:
