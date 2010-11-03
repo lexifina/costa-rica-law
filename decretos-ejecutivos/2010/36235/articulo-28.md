@@ -1,0 +1,1 @@
+Artículo 28.—Después de haberse concluido las etapas de reclutamiento y selección, la Dirección de Recursos Humanos podrá someter a revisión facultativa de la Comisión Institucional de Ascensos el resultado del concurso y posteriormente trasladarlo al Ministro para su aprobación.

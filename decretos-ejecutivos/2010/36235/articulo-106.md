@@ -1,0 +1,1 @@
+Artículo 106.—La Comisión de Becas, establecida por el Decreto Ejecutivo Nº 17339-P, estudiará y recomendará de conformidad con su reglamento, todo lo relativo a becas para estudio, dentro o fuera del país.

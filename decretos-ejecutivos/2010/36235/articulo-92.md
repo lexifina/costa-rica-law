@@ -1,0 +1,1 @@
+Artículo 92.—La investigación administrativa relacionada con accidentes de tránsito ocurridos con vehículos oficiales de la institución, se regirá por las disposiciones establecidas en el Reglamento para el Control sobre el Uso y Mantenimiento de los Vehículos Oficiales del MOPT.

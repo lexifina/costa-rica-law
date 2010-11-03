@@ -1,0 +1,1 @@
+Artículo 25.—Los concursos para puestos que por la naturaleza de sus funciones requieran esencialmente destreza manual, fuerza física o el dominio de un oficio mecánico, pueden ser tramitados directamente en este Ministerio con la debida orientación de la Dirección General de Servicio Civil, cuando se produzca una vacante.

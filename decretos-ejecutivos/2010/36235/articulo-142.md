@@ -1,0 +1,1 @@
+Artículo 142.—Deber de denuncia. Es obligación de todo servidor(a) formular la denuncia correspondiente ante la autoridad competente, cuando en el ejercicio de su cargo tenga conocimiento de cualquier irregularidad o ilegalidad en perjuicio del Ministerio y del Estado.

@@ -1,0 +1,1 @@
+Artículo 140.—Deber de comportarse con decoro y respeto. Todo servidor(a) debe ser justo, respetuoso y cortés en el trato con los usuarios del servicio, sus jefes(as), subalternos(as) y compañeros(as).

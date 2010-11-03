@@ -1,0 +1,2 @@
+Artículo 87.—Todo servidor que tenga a sus órdenes personal subordinado, deberá tomar acciones preventivas para evitar riesgos del trabajo y dar aviso el día hábil siguiente de su conocimiento al Instituto Nacional de Seguros, con copia a la Oficina de Recursos Humanos, de cualquier riesgo profesional ocurrido a sus subalternos.
+La omisión de tal aviso constituye falta grave, y lo hará responsable de los daños y perjuicios ocasionados por su omisión.

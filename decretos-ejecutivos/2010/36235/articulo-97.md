@@ -1,0 +1,1 @@
+Artículo 97.—Las incapacidades por enfermedad y por tratamiento médico a los servidores y servidoras del Ministerio, se regularán por las disposiciones establecidas en el Estatuto de Servicio Civil y su Reglamento y demás normativa vigente.

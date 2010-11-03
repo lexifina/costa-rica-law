@@ -1,0 +1,1 @@
+Artículo 88.—Si el lugar donde ocurre el accidente queda distante de la ciudad capital o de la agencia regional del Instituto Nacional de Seguros (INS) más cercana, imposibilitando que la denuncia llegue el día hábil inmediato siguiente de su conocimiento, el jefe(a) inmediato del servidor o servidora deberá dar aviso por el medio de comunicación más adecuado a dicho Instituto.

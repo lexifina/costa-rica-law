@@ -1,0 +1,1 @@
+Artículo 93.—Todo conductor del Ministerio a quien se le comprobare que ha ocasionado un accidente por dolo, o bajo los efectos del licor o drogas ilegales se hará acreedor del despido sin responsabilidad patronal.

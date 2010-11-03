@@ -1,0 +1,2 @@
+Artículo 67.—La llegada tardía que exceda de veinte minutos contados a partir de la hora de ingreso estipulada y que a juicio de su jefatura inmediata, o de la Dirección de Recursos Humanos carezca de justificación, acarreará al servidor (a) la pérdida de media jornada, y se procederá hacer el rebajo del salario.
+La presentación al trabajo después de veinte minutos de iniciadas las labores, se tomará como media ausencia de la jornada respectiva; igual tratamiento tendrá la presentación que exceda de diez minutos después del reinicio de labores vencido el tiempo de almuerzo.

@@ -1,0 +1,3 @@
+Artículo 80.—Las llegadas tardías injustificadas inferiores a veinte minutos, computables dentro de un mismo mes calendario, se sancionarán de la siguiente forma:
+Por tres llegadas tardías, amonestación escrita; por cuatro, un día de suspensión sin goce de salario; por cinco, dos días de suspensión sin goce de salario; por seis, tres días de suspensión sin goce de salario; de siete a diez días, suspensión de seis días sin goce de salario; y por más de diez días solicitud de gestión de despido sin responsabilidad patronal.
+Las sanciones se impondrán en los plazos regulados en el artículo 603 del Código de Trabajo.

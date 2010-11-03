@@ -1,0 +1,1 @@
+Artículo 116.—Los reclamos administrativos de los (las) servidores(as) del Ministerio referentes a extremos pecuniarios deberán ser dirigidos ante el Jerarca de la institución. La Oficina de Recursos Humanos deberá remitir a la Dirección Jurídica, el criterio técnico y demás documentos necesarios, para su análisis y elaboración del proyecto de resolución.

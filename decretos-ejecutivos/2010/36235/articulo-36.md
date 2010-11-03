@@ -1,0 +1,2 @@
+Artículo 36.—Los recargos de funciones de puestos de mayor categoría, cuando excedan de un mes, podrán ser remunerados, pero estarán sujetos a la aprobación previa de la Dirección General de Servicio Civil; lo anterior, siempre que el (la) servidor(a) a quien se le hiciere el recargo reúna los requisitos que sean exigibles para el desempeño del puesto, según el Manual de Clases de este Ministerio.
+Tal recargo se pagará con base en la diferencia existente entre el salario base del puesto que ocupa el (la) funcionario(a) y el salario base del puesto en recargo.

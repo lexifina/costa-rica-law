@@ -1,0 +1,2 @@
+Artículo 112.—La calificación anual será una apreciación del rendimiento del servidor en cada uno de los factores que influyen en su desempeño general. Servirá además, como reconocimiento a los buenos servidores, como estímulo para propiciar una mayor eficiencia y como factor que se puede considerar para capacitación, ascensos, concesión de permisos, becas, reducciones forzosas de personal, exención del registro de asistencia y otros.
+En su aplicación deberán observarse las reglas contenidas en los artículos 43 y 44 del Reglamento del Estatuto de Servicio Civil.

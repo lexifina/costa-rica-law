@@ -1,0 +1,1 @@
+Artículo 30.—Toda la documentación que se aporte para cada concurso, después de ser registrada pasa a ser propiedad del Ministerio, quedando bajo su custodia por un plazo de dos años. El (la) candidato(a) se hace responsable del contenido y de la autenticidad de los documentos aportados.

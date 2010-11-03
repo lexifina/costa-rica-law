@@ -1,0 +1,1 @@
+Artículo 110.—Los jefes calificarán a los servidores a su cargo en la segunda quincena del mes de noviembre de cada año. En el supuesto de que no sea evaluado el servidor por su jefe inmediato podrá requerir a su jefe, las razones que le impidieron calificarlo, con las consecuentes responsabilidades administrativas en que pueda incurrir la jefatura que haya omitido efectuarla.

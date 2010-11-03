@@ -1,0 +1,1 @@
+Artículo 38.—La formalización de traslados definitivos de plazas entre instituciones deberá hacerse mediante resolución razonada, que firmarán los jerarcas de los respectivos entes, observándose las disposiciones establecidas por la Autoridad Presupuestaria en la Directriz Nº STAP-880-94 y sus reformas.

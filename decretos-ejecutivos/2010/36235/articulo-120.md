@@ -1,0 +1,1 @@
+Artículo 120.—El órgano encargado de instruir el proceso administrativo disciplinario en el Ministerio es el Departamento de Relaciones Laborales, siendo competencia exclusiva del Ministro, la resolución final del asunto.

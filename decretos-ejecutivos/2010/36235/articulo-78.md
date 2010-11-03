@@ -1,0 +1,3 @@
+Artículo 78.—El despido también se efectuará, sin responsabilidad para el patrono en los siguientes casos:
+a) Cuando al servidor o servidora, en tres ocasiones, se le imponga suspensión disciplinaria sin goce de salario e incurra en causal para una cuarta suspensión dentro de un período de tres meses, considerándose la repetición de infracciones como conducta ilegal, irresponsable y contraria a las obligaciones que debe cumplir el servidor derivadas de su relación de servicio.
+b) Cuando el servidor o servidora incurra en alguna de las causales previstas en el artículo 81 del Código de Trabajo o las causales previstas en el Estatuto de Servicio Civil, y su Reglamento.

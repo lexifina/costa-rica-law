@@ -1,0 +1,1 @@
+Artículo 118.—Los servidores(as) podrán recurrir todos aquellos actos, resoluciones o disposiciones que afecten sus derechos subjetivos y que se deriven de la aplicación de este Reglamento, para lo cual deberá observarse lo dispuesto en el Estatuto de Servicio Civil y su Reglamento.

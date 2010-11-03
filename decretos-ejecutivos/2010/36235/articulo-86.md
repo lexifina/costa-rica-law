@@ -1,0 +1,1 @@
+Artículo 86.—El servidor(a) al que le ocurra un accidente laboral o esté expuesto ante un riesgo del trabajo que ponga en peligro su integridad, deberá dar aviso de tal hecho, dentro de las cuarenta y ocho horas siguientes al jefe(a)inmediato o al superior de éste. El incumplimiento de esta obligación constituye falta grave.

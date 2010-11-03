@@ -1,0 +1,1 @@
+Artículo 123.—Se aplicará el procedimiento administrativo, de conformidad con lo que establece el Estatuto de Servicio Civil y su Reglamento, no obstante bajo los principios que dispone la Ley General de la Administración Pública.

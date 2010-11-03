@@ -1,0 +1,1 @@
+Artículo 31.—Los datos, documentos y otras informaciones del concurso tendrán carácter confidencial, por lo que, los servidores(as) que en forma ilícita brinden información previa del concurso, con el fin de dar preferencia y protección a participantes, incurrirán en responsabilidad disciplinaria y serán sancionados de conformidad con este Reglamento.

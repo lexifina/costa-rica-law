@@ -1,0 +1,4 @@
+Artículo 13.—El (la) Ministro(a), los (las) directores(as), subdirectores(as) y los (las) jefes podrán autorizar el trabajo de tiempo extraordinario sólo en situaciones excepcionales, y no en forma permanente, siempre y cuando sea indispensable satisfacer necesidades esenciales y reales del servicio público que así lo ameriten.
+No se pagará, en ningún caso, el tiempo extraordinario ejecutado sin la presentación previa de los documentos ante la Dirección de Recursos Humanos, para la aprobación del Director de Recursos Humanos del Ministerio.
+No se reconocerá, como trabajo extraordinario, el tiempo necesario para subsanar errores imputables al funcionario o funcionaria, que hubiere cometido dentro de su jornada de trabajo.
+Es de absoluta responsabilidad de la jefatura del servidor velar por la adecuada distribución, control y supervisión de éste, ajustado a las necesidades excepcionales de trabajo de la dependencia a su cargo.

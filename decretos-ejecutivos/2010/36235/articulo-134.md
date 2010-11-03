@@ -1,0 +1,1 @@
+Artículo 134.—Deber de responsabilidad. Todo servidor(a) debe actuar con sentido del deber que le corresponde para el cumplimiento del fin público y que compete a este Ministerio y de las consecuencias que el cumplimiento o incumplimiento de ese deber tiene, en relación con ese cometido institucional.

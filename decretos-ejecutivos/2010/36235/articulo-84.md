@@ -1,0 +1,1 @@
+Artículo 84.—Constituyen riesgos del trabajo, los accidentes y enfermedades que ocurran a los servidores(as) con ocasión o como consecuencia del trabajo que desempeñan, así como las complicaciones que resulten como consecuencia directa, inmediata e ineludible de esos accidentes y enfermedades.

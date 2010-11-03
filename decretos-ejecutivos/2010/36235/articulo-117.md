@@ -1,0 +1,1 @@
+Artículo 117.—Una vez dictada la resolución final por parte del jerarca de la institución u oficial mayor se notificará a la parte interesada y a la Dirección Financiera del Ministerio, para que ejecute lo ordenado en la resolución.

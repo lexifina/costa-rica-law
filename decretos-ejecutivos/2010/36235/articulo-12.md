@@ -1,0 +1,3 @@
+Artículo 12.—Cuando el (la) Ministro(a) o su representante lo estimen necesario y el servicio público así lo amerite, los (las) servidores(as) deberán trabajar las horas extras requeridas, sin poderse superar la jornada ordinaria y extraordinaria máxima prevista por ley.
+Para la compensación económica respectiva del trabajo realizado en jornada extraordinaria, se requiere la aprobación previa del órgano competente del total de horas extras que el Ministerio requiere elaborar anualmente y la existencia de recursos presupuestarios para su remuneración.
+Corresponderá al Director de Recursos Humanos estudiar, analizar y resolver las solicitudes de pago de horas extras.

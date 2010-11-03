@@ -1,0 +1,4 @@
+Artículo 79.—Las amonestaciones verbales o escritas deberá imponerlas el jefe(a) inmediato o superior, dentro de los ocho días siguientes a aquel en que se cometió la falta, previa audiencia al servidor (a).
+Las suspensiones sin goce de salario se impondrán dentro de los plazos previstos en el artículo 603 del Código de Trabajo.
+Los despidos se harán de conformidad con lo dispuesto en el Capítulo IX del Estatuto de Servicio Civil y Capítulo IX de su respectivo reglamento. En cuanto a los servidores no cubiertos por ese régimen, su despido se hará de acuerdo con lo que establece el Código de Trabajo y normas especiales emitidas al efecto.
+En los supuestos previstos en el artículo 43 de la Ley General de Control Interno Nº 8292 y en el artículo 71 de la Ley Orgánica de la Contraloría General de la República Nº 7428 del 7 de setiembre de 1994, aplicarán los plazos de prescripción que se regulan por norma especial.

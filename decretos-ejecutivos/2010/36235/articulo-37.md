@@ -1,0 +1,1 @@
+Artículo 37.—En los casos de ingreso, ascenso o traslado de un puesto o cargo a otro de superior categoría, será aplicado el período de prueba de hasta tres meses, según lo dispuesto en el Estatuto de Servicio Civil y su Reglamento.

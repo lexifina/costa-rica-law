@@ -1,0 +1,1 @@
+Artículo 22.—La Dirección de Recursos Humanos procederá a estudiar las ofertas presentadas con el propósito de verificar los requisitos previamente establecidos y rechazar aquellas ofertas que no cumplan con lo requerido, lo que deberá hacer mediante resolución razonada que deberá notificarse al oferente.

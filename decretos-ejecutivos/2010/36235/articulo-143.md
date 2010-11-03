@@ -1,0 +1,3 @@
+CAPÍTULO XXIII
+Disposiciones finales
+Artículo 143.—Se integrarán a este Reglamento las disposiciones del Estatuto de Servicio Civil y su Reglamento; Ley General de la Administración Pública, Ley de Administración Financiera de la República y Presupuestos Públicos, Ley General de Control Interno, Convenios Internacionales de la Organización Internacional del Trabajo ratificados por la Asamblea Legislativa, en cuanto sean aplicables; la jurisprudencia administrativa, los principios generales de derecho público, el Código de Trabajo y legislación conexa, así como la jurisprudencia laboral siempre y cuando no se opongan a la naturaleza jurídica de la relación de servicio.
