@@ -1,0 +1,1 @@
+Artículo 53.—Plazo y órgano evaluador en caso de ascenso. En caso de ascenso directo el período de prueba será de tres meses, al final del cual el jefe inmediato y los compañeros de trabajo serán quienes evaluarán el trabajo realizado.

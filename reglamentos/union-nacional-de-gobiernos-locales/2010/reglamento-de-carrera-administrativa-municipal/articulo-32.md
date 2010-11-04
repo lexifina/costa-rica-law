@@ -1,0 +1,1 @@
+Artículo 32.—Exclusión de oferente por incumplimiento del Manual. Cualquier solicitud que se presente para un concurso interno o externo que no cumpla con los requisitos estipulados en el Manuel Descriptivo de Puestos, obliga a la Municipalidad a excluir a la persona del concurso, lo cual deberá notificarse al interesado.

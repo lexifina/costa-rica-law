@@ -1,0 +1,1 @@
+Artículo 49.—Acción de personal de nombramiento. Una vez escogida la persona que ocupará la plaza vacante, el Órgano Responsable de Recursos Humanos procederá a efectuar la acción de personal con el respectivo nombramiento.

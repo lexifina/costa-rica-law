@@ -1,0 +1,1 @@
+Artículo 102.—Acceso a las pasantías. El acceso a las pasantías la tendrán todos los servidores municipales que se encuentren incluidos en la CAM, que hayan obtenido en las evaluaciones calificaciones de muy bueno o excelente y que hayan aceptado las condiciones para realizar la pasantía.

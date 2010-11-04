@@ -1,0 +1,2 @@
+Artículo 3º—Definición y objetivo general. La CAM es un sistema integral, dinámico y moderno, regulador del empleo y las relaciones laborales entre los servidores y la Municipalidad, para el desarrollo y promoción humanos.
+Los alcances y finalidades de la CAM se fundamentarán en la dignificación del servicio público y el mejor aprovechamiento del recurso humano, para cumplir con las atribuciones y competencias de la Municipalidad.

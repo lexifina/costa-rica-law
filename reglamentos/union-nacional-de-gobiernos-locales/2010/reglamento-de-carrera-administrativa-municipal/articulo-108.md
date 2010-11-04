@@ -1,0 +1,1 @@
+Artículo 108.—Propuesta reglamentaria. La ponderación de cada uno de los factores anteriores será determinada por el Órgano Responsable de Recursos Humanos, la cual hará una propuesta reglamentaria específica para que la Municipalidad valore su adopción de acuerdo con sus limitaciones presupuestarias.

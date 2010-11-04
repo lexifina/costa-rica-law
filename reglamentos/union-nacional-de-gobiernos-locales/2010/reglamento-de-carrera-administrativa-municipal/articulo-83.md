@@ -1,0 +1,1 @@
+Artículo 83.—Tipos de incentivos. Los incentivos pueden ser económicos y no económicos, como tales se entregan en los períodos definidos por la Municipalidad para este propósito, no menos de una vez al año ni más de cuatro veces al año.

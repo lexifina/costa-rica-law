@@ -1,0 +1,1 @@
+Artículo 61.—Formulario. La Municipalidad deberá diseñar sus respectivos formularios y los modificará si fuere necesario, previa consulta a la Alcaldía Municipal. La Municipalidad podrá tomar como guía para la confección de dicho formulario el Manual de Procedimientos para Recursos Humanos de la UNGL.

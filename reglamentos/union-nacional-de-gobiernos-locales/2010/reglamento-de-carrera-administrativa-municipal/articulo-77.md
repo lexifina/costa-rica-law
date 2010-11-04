@@ -1,0 +1,1 @@
+Artículo 77.—Congelamiento de sobrevaloración. Cuando el Órgano Responsable de Recursos Humanos detecte la existencia de una sobrevaloración, procederá a congelar el salario del servidor hasta que se nivele con la escala salarial vigente.

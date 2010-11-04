@@ -1,0 +1,1 @@
+Artículo 28.—Convocatoria al concurso interno. La convocatoria a concurso interno en una Municipalidad deberá llevarse a cabo por medio de una circular donde se indique toda la información de la plaza que se está sacando a concurso. En todas las dependencias de la Municipalidad se divulgará mediante volantes o carteles.

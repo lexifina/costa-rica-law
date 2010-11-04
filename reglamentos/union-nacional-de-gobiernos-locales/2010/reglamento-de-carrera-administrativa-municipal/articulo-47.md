@@ -1,0 +1,1 @@
+Artículo 47.—Pruebas psicométricas. Dentro de las pruebas psicométricas la evaluación del desempeño se incluye dentro de estas El valor asignado a esta evaluación del desempeño dentro de las pruebas es de un 15%, el resto del porcentaje será asignado de acuerdo al criterio que la Municipalidad adopte.

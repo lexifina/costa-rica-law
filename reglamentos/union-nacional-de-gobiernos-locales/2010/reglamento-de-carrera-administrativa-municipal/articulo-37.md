@@ -1,0 +1,1 @@
+Artículo 37.—Plazo para la tramitación del concurso. El tiempo que debe transcurrir una vez publicado el concurso externo y el nombramiento de la persona escogida, no debe sobrepasar los cuarenta días naturales, en caso de excepción puede ampliarse quince días más por una única vez.

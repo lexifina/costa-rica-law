@@ -1,0 +1,10 @@
+Artículo 5º—Principios. Además de los objetivos indicados en el artículo anterior, este reglamento estipula los siguientes principios que orientarán la CAM:
+a. Igualdad: Los servidores municipales gozarán de iguales oportunidades para ingresar a la CAM, sin discriminación por razones de raza, afiliación política, género o religión. También bajo este principio se regirá lo relacionado con el ascenso, los traslados y la capacitación de los servidores municipales.
+b. Estabilidad en el empleo: Garantizar la permanencia en el puesto de los servidores responsables y que cumplan con sus deberes.
+c. Mérito: Todo acceso a cargos de la CAM, su permanencia en ellos y el ascenso estarán regidos por la comprobación fehaciente de la calidad académica, la experiencia, así como el desempeño evaluado como muy bueno o excelente, y el cumplimiento de las obligaciones laborales propias de la relación de servicio.
+d. Capacitación: Los servidores municipales deben ser capacitados según las necesidades detectadas por la Municipalidad ya sea por estudios propios o contratados.
+e. Estímulo al trabajo en equipo: La Municipalidad fomentará el trabajo en equipo, dirigido a la prestación de los servicios en forma eficaz y eficiente al cliente-vecino y contribuir en forma directa al mejoramiento continuo de la administración.
+f. Evaluación del desempeño: Todo servidor municipal será evaluado anualmente y el resultado de esta evaluación servirá como reconocimiento para estimular e impulsar mayor eficiencia.
+g. Vecino cliente: El administrado es el principal motivo para ofrecer un servicio de calidad que satisfaga las necesidades del municipio.
+h. Estimular la movilidad horizontal y el aprendizaje mediante las pasantías entre los servidores municipales, con el propósito de facilitar la transferencia de tecnología y conocimientos.
+i. Tecnificar y profesionalizar la administración de los recursos humanos: Impulsar la creación de oficinas encargadas de la administración de los recursos humanos en la Municipalidad. En aquellas que por lo reducido de su personal, no amerite crear una oficina, se sugiere el nombramiento de un Comité de Recursos Humanos.

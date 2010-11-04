@@ -1,0 +1,1 @@
+Artículo 70.—Iniciativa de la movilidad. La solicitud de movilidad horizontal puede venir del servidor, de una Municipalidad u organización municipal interesada en contar con los servicios de un servidor en particular.

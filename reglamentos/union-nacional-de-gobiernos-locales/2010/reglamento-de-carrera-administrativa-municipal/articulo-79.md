@@ -1,0 +1,1 @@
+Artículo 79.—Implantación del sistema. La Municipalidad establecerá un sistema de beneficios e incentivos dependiendo de sus condiciones económicas. En el presente reglamento se darán las pautas generales para crear los incentivos.

@@ -1,0 +1,1 @@
+Artículo 65.—Evaluación de dependencias. Las secciones, oficinas o departamentos que brindan servicio a lo interno de la Municipalidad deberán ser evaluados por los servidores municipales y se elaborará una tabla que califique la calidad del servicio y corresponderá a la Alcaldía y al Órgano Responsable de Recursos Humanos tomar las acciones según cada caso.

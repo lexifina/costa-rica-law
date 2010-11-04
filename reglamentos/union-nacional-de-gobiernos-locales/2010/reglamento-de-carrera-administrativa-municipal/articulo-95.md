@@ -1,0 +1,1 @@
+Artículo 95.—Condiciones para optar por la capacitación. A la capacitación puede asistir el servidor municipal nombrado en propiedad, que pertenezca a la CAM y que haya obtenido en la evaluación anual una calificación de muy bueno a excelente.

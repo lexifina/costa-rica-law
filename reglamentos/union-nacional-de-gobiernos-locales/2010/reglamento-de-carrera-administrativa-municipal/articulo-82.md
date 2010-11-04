@@ -1,0 +1,1 @@
+Artículo 82.—Relación del incentivo. Los incentivos deben estar relacionados directamente con la productividad alcanzada y éste no es más que el cumplimiento del Programa de Desarrollo Municipal y el Plan Anual Operativo.

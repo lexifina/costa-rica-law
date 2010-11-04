@@ -1,0 +1,1 @@
+Artículo 17.—Eliminación del puesto. En caso de eliminación del puesto se tratará de reubicar al servidor en una plaza vacante en la Municipalidad siempre y cuando cumpla con los requisitos establecidos en el Manual Descriptivo de Puestos.

@@ -1,0 +1,1 @@
+Artículo 21.—Convocatoria. En cualquier tipo de convocatoria que se lleve a cabo para llenar una plaza vacante, excepto el ascenso directo, la Municipalidad deberá, al menos, dar a conocer lo descrito en el Manual Descriptivo de Puestos. Debe indicarse los exámenes que se llevarán a cabo, las ponderaciones de cada uno y la fecha límite para la recepción de las solicitudes.

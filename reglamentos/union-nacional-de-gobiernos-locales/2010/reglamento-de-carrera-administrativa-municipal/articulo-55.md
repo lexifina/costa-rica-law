@@ -1,0 +1,1 @@
+Artículo 55.—Recurso. El servidor inconforme con la calificación podrá presentar recurso de apelación ante la Alcaldía dentro del plazo de cinco días hábiles, la cual resolverá en definitiva y dará por agotada la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 52.—Plazo y órgano evaluador. Para servidores nuevos el período de prueba será de hasta tres meses, al final de los cuales una comisión evaluará el desempeño del servidor. Esta comisión la integran el jefe inmediato del servidor, el encargado del Órgano Responsable de Recursos Humanos y por un representante de los compañeros que laboraron con el nuevo servidor.

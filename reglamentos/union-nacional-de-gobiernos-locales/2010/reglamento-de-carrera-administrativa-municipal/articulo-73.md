@@ -1,0 +1,1 @@
+Artículo 73.—Contenido de cada grupo. Cada uno de los grupos con sus respectivos segmentos contiene las características generales y cada segmento indica las funciones o tareas más importantes, las características personales que el servidor debe poseer y los requisitos académicos, de experiencia así como las habilidades en cada caso.

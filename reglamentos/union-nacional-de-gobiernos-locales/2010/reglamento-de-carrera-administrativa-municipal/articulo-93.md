@@ -1,0 +1,1 @@
+Artículo 93.—Permisos para capacitación. Los permisos para capacitación con goce de salario se darán por parte de la Municipalidad al servidor siempre y cuando el tema de capacitación sea de interés directo de la Municipalidad.

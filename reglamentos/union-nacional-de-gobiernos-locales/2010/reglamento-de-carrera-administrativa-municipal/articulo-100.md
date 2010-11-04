@@ -1,0 +1,1 @@
+Artículo 100.—Programa de pasantías. La Municipalidad podrá acudir a otras entidades calificadas en el tema de la capacitación a efectos de obtener modelos de administración novedosos que le sirvan para desarrollar un programa de pasantías.

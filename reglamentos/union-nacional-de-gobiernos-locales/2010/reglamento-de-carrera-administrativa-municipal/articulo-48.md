@@ -1,0 +1,1 @@
+Artículo 48.—Bases de selección del personal. La Municipalidad conformará las bases de selección del personal acordes con las características del puesto y basándose en el Manual Descriptivo de Puestos. Además establecerá la correspondiente ponderación a cada uno de los factores.

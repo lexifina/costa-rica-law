@@ -1,0 +1,1 @@
+Artículo 25.—Procedencia del concurso interno. De comprobarse la inexistencia de candidatos del inmediato inferior del puesto, se procederá a llevar a cabo un concurso interno en el cual podrán participar los servidores municipales nombrados en propiedad y que cumplan los requisitos del puesto establecidos en el Manuel Descriptivo de Puestos.

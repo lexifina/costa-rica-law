@@ -1,0 +1,1 @@
+Artículo 43.—Factores a considerar. La calificación de los candidatos de concurso externo deberá tomar en cuenta los siguientes factores: nivel académico, pruebas psicométricas, experiencia en el puesto y la entrevista.

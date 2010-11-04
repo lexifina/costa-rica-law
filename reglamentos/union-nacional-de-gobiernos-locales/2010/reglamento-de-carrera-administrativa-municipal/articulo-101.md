@@ -1,0 +1,1 @@
+Artículo 101.—Regulación de las pasantías. La Municipalidad deberá regular el número y el tiempo de las pasantías que ofrecerán de manera que no perjudiquen la prestación de los servicios y la calidad de los mismos.

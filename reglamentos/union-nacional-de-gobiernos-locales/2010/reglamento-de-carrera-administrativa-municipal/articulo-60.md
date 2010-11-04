@@ -1,0 +1,1 @@
+Artículo 60.—Procedimiento en caso de inconformidad. El desacuerdo entre el feje inmediato y el subalterno respecto del resultado de la evaluación y calificación de servicios, será resuelto por la Alcaldía Municipal, previa audiencia a todas las partes interesadas.

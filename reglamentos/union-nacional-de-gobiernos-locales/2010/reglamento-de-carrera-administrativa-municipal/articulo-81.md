@@ -1,0 +1,1 @@
+Artículo 81.—Categorías de incentivos. Los incentivos pueden ser de dos tipos: individuales y colectivos. Entendiendo el individual únicamente el que se aplica a un servidor determinado y el colectivo cuando se aplica a una unidad, sección o departamento de la Municipalidad.

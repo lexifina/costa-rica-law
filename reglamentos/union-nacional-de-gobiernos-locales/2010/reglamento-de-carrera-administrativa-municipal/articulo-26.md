@@ -1,0 +1,1 @@
+Artículo 26.—Procedencia del concurso externo. Si en el concurso interno, no se presentan oferentes o si ninguno de los candidatos que presentaron sus atestados es escogido y se declara desierto, se procederá a sacar la plaza a concurso externo.

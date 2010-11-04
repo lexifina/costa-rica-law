@@ -1,0 +1,1 @@
+Artículo 6º—Concepto de servidor. Para los efectos del presente reglamento, el servidor municipal es aquella persona que labora a tiempo completo y que ha sido seleccionado y nombrado por el sistema de méritos para ocupar un puesto en propiedad, prestando sus servicios de manera permanente y por lo cual devenga un salario que se carga al presupuesto ordinario municipal.

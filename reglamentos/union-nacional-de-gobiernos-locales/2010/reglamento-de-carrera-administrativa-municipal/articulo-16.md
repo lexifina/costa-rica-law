@@ -1,0 +1,1 @@
+Artículo 16.—Permiso temporal sin goce de salario. En caso de permiso temporal sin goce de salario, el servidor mantiene todos sus derechos dentro de la CAM, los cuales se aplicarán en el momento de su reingreso a la Municipalidad.

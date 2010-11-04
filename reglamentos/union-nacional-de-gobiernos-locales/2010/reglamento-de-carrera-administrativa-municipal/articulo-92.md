@@ -1,0 +1,1 @@
+Artículo 92.—Oficina responsable del presupuesto. El presupuesto para capacitación debe estar bajo la responsabilidad del Órgano Responsable de Recursos Humanos. El presupuesto para capacitación y los beneficiarios deberán ser dados a conocer a través de un boletín o cartel.

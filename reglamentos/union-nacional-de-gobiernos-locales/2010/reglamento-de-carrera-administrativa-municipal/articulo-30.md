@@ -1,0 +1,1 @@
+Artículo 30.—Convocatoria a pruebas de idoneidad en concurso interno. Una vez revisados los atestados y el currículum de quienes han presentado para ocupar la plaza en concurso cumplen con los requisitos, el Órgano responsable de Recursos Humanos procederá a fijar las citas para llevar a cabo las evaluaciones o pruebas de idoneidad indicadas en el presente reglamento.

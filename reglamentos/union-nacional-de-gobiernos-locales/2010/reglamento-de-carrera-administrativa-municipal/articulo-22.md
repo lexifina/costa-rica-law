@@ -1,0 +1,1 @@
+Artículo 22.—Datos improcedentes. En las solicitudes de aspirantes a concurso no se podrá exigir datos, sobre raza, estatura, religión. o partidos políticos Además la Municipalidad en coordinación con las entidades nacionales promoverán en el área administrativa y técnica la contratación de personal con limitaciones físicas.

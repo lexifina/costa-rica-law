@@ -1,0 +1,5 @@
+Artículo 59.—Servidores sujetos. La evaluación y calificación de los servicios deberá darse a los servidores nombrados en propiedad y que hayan laborado continuamente para la Municipalidad durante el último año. Se hará en la primera quincena del mes de junio de cada año y corresponderá al feje del servidor, quien dispondrá de las siguientes categorías: Regular, Bueno, Muy Bueno y Excelente.
+Cuando el servidor no haya completado un año de prestar servicios en el momento de la evaluación, se observarán las siguientes reglas:
+a) Si ha cumplido el periodo de prueba pero no ha completado un semestre de servicios, será calificado provisionalmente, y será calificado en forma definitiva en la primera quince del mes de enero siguiente. De no realizarse la segunda calificación la provisional quedará como definitiva.
+b) Si ha estado menos de un año pero más de seis meses a las órdenes de un mismo jefe, corresponderá a éste evaluarlo.
+c) Si ha estado a las órdenes de varios jefes durante el año, pero con ninguno por más de seis meses, lo calificará el último jefe con el que estuvo tres meses o más.

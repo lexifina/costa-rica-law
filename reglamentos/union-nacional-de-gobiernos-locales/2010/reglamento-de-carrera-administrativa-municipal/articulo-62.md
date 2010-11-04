@@ -1,0 +1,1 @@
+Artículo 62.—Órgano responsable. Corresponderá al Órgano Responsable de Recursos Humanos coordinar y dar seguimiento al procedo de evaluación y calificación de servicios, independientemente de quien lleve a cabo la evaluación.

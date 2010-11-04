@@ -1,0 +1,1 @@
+Artículo 64.—Trámite de quejas o reconocimientos. Las quejas o reconocimientos que se presenten serán analizados y tomados en cuenta por los jefes inmediatos y la Alcaldía a la hora de evaluar a los departamentos o unidades administrativas y de servicios.

@@ -1,0 +1,1 @@
+Artículo 63.—Buzón de sugerencias. La Municipalidad instalará en un lugar visible y a disposición del cliente-vecino un buzón de sugerencias, donde los vecinos que deseen emitir algún criterio acerca de la calidad de los servicios lo puedan hacer. La Municipalidad le dará publicidad a este sistema entre los vecinos del Cantón.

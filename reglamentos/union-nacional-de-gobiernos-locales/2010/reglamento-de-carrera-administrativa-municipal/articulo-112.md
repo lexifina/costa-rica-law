@@ -1,0 +1,1 @@
+Artículo 112.—Reintegro al puesto. Cualquier servidor municipal que esté dentro de la CAM, que ocupe puestos de confianza o de nombramiento por elección popular en el régimen municipal, tiene derecho a ser reintegrados a su cargo anterior dentro del régimen, una vez finalizado el periodo de permiso.

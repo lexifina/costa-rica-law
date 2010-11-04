@@ -1,0 +1,1 @@
+Artículo 50.—Inducción. Todo servidor tendrá que pasar por un curso de inducción, el cual debe ser prestado tanto por el Órgano Responsable de Recursos Humanos, como por la unidad donde se encuentra la plaza vacante.

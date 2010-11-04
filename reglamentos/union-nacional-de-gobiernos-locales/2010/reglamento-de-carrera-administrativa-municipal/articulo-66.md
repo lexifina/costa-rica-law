@@ -1,0 +1,1 @@
+Artículo 66.—Causal de despido. De acuerdo con el artículo 141 del Código Municipal se considera una falta grave cuando dos veces consecutivas un servidor municipal, obtiene una calificación del desempeño regular. La sanción para este tipo de calificación es el despido sin responsabilidad patronal.

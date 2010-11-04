@@ -1,0 +1,1 @@
+Artículo 85.—Caso en que no se reconocerá. El servidor que haya recibido una amonestación o sanción mayor dentro de los tres meses inmediatamente anteriores, no podrá recibir un incentivo individual ni gozar de incentivos colectivos.
