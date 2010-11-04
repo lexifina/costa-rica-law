@@ -1,0 +1,9 @@
+Nº 36240-MP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En el uso de las facultades conferidas por los artículos 140, incisos 3) y 18), y 146 de la Constitución Política y los artículos 30 y 37 de la Ley Nacional de Emergencias y Prevención del Riesgo, Ley Nº 8488 del 22 de noviembre del 2005.
+Considerando:
+1º—Que la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, en sesión extraordinaria Nº 06-09 del 8 de mayo del 2009, mediante acuerdo Nº 057-2009, en sesión extraordinaria Nº 07-09 del 15 de mayo del 2009, mediante acuerdo Nº 061-2009 y en sesión extraordinaria Nº 06-10 del 8 de setiembre del 2010, mediante acuerdo Nº 0211-2010, determinó que las circunstancias extraordinarias que condujeron a declarar el estado de emergencia por parte del Poder Ejecutivo mediante los Decretos Ejecutivos Nos. 27077-S, 29943-MP, 30059-MP, 30456-MP, 30675-MP, 34530-MP-MAG, 32118-MP-S-MOPT-MEP-MIVAH, concluyeron y se cumplió con la atención de las tres Fases de la Emergencia, por lo que solicita al Poder Ejecutivo dejarlos sin efecto.
+2º—Que se recibió Informe Financiero-Contable del Fondo Nacional de Emergencias, mediante los oficios Nos. CNE-DAF-068-2009, CNE-DAF-074-2009, y ampliación en oficio Nº DAF-OF-207-2009, aprobando la reversión de los recursos ociosos al Fondo Nacional de Emergencias, conforme a la recomendación técnica del cese del estado de Emergencia declarado mediante los decretos en mención. En adición, mediante informe Nº DPI-MEMO-3248-2010 se indica que no hay garantías pendientes y que los proyectos fueron finiquitados. Por tanto,
+Decretan:
+Artículo 1º—Declarar el cese del estado de emergencia decretado por el Poder Ejecutivo mediante los Decretos Ejecutivos Nos. 27077-S, 29943-MP, 30059-MP, 30456-MP, 30675-MP, 34530-MP-MAG, 32118-MP-S-MOPT-MEP-MIVAH, los cuales quedan derogados.
