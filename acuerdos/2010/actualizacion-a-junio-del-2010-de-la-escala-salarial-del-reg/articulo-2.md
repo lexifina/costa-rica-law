@@ -1,0 +1,4 @@
+2º—Marco legal. La Ley Nº 7794 (Código Municipal) establece en el Artículo 122, Incisos b y c, el marco legal relacionado con el sistema salarial del régimen municipal. Específicamente, indica lo siguiente:
+“b) Los sueldos y salarios de los servidores municipales serán determinados por una escala de sueldos, que fijará las sumas mínimas y máximas correspondientes a cada categoría de puestos.
+c) Para determinar los sueldos y salarios, se tomarán en cuenta las condiciones presupuestarias de las municipalidades, el costo de vida en las distintas regiones, los salarios que prevalezcan en el mercado para puestos iguales y cualesquiera otras disposiciones legales en materia salarial.”
+Esta normativa sirvió de base para el diseño de la escala salarial aprobada por la UNGL como marco de referencia para el régimen municipal.
