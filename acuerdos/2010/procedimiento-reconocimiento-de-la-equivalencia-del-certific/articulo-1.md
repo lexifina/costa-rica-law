@@ -7,109 +7,108 @@ Considerando:
 4º—Que es el inciso f) del Compromiso de Acreditación suscrito entre el ECA como ente competente, y los distintos OEC señala que éste último se compromete a “implementar los cambios en los requisitos de acreditación que decida el ECA, dentro del tiempo acordado entre las partes y permitir la verificación de su cumplimiento”.
 5º—Que a efectos de implementar correctamente los cambios enunciados en el apartado anterior, el ECA debe cumplir - para todos los efectos legales y de validez del acto administrativo - con la debida notificación a las partes de las modificaciones que eventualmente pudieran afectar los procedimientos indicados; lo anterior en cumplimiento del debido proceso.
 6º—Que en cumplimiento a lo preceptuado en los artículos 134, 136 inciso e) y 362 de la LGAP; siendo este un acto discrecional de alcance general; y en virtud que la actividad del ECA debe desplegarse con observancia de los principios generales del ordenamiento jurídico administrativo y en concordancia con las normas internacionales que rigen la materia. Por tanto:
-El Ente Costarricense de Acreditación (ECA), comunica a todos los interesados que se ha modificado el “Procedimiento para Reconocimientos”, aplicable mediante el código ECA-MC-MA-P10, emitido el 4 de marzo del 2010, de la siguiente manera:
-PROCEDIMIENTO DE RECONOCIMIENTO
-Tabla de contenido.
-1 Objetivo
-2 Alcance
-3 Documentos de referencia
-4 Definiciones
-5 Responsabilidades
-6 Sistemas de reconocimiento
-7 Requisitos para el reconocimiento
-8 Proceso general de reconocimiento
-9 Directorio de reconocimientos
-10 Tarifas
-11 Anexos
-1 Objetivo. Establecer lineamientos para realizar el Reconocimiento de una acreditación, otorgada por un organismo de acreditación diferente al ECA y que es signatario de un Acuerdo de Reconocimiento Multilateral (MLA) en el alcance solicitado.
-2 Alcance. Aplica a todos los Organismos de Evaluación de la Conformidad (OEC) que deseen que su acreditación sea reconocida por ECA.
-3 Documentos de referencia.
-Ley Nº 8279. Ley del Sistema Nacional de Calidad, capítulo IV artículo 34.
-MOU de IAAC: IAAC Memorándum de entendimiento.
-IAAC AD 009/09 ACUERDO DE RECONOCIMIENTO MULTI-LATERAL (MLA).
-MOU de ILAC: ILAC Memorándum de entendimiento.
-MOU de IAF: IAF Memorándum de entendimiento.
-ECA-MC-MA-P10-F01 Solicitud de reconocimiento.
-ECA-MC-C04 Criterios Transfrontera OC.
-ECA-MC-C09 Criterios para la Acreditación Transfrontera de Laboratorios.
-4 Definiciones.
-- OA: Organismo de Acreditación.
-- MLA: Acuerdo de Renocimiento Multilateral.
-- IAAC: Cooperación Interamericana de Acreditación.
-- ILAC: Cooperación Internacional de Laboratorios.
+El Ente Costarricense de Acreditación (ECA), comunica a todos los interesados que se pública por primera vez en su versión 01 el “Procedimiento para Reconocimientos”, aplicable mediante el código ECA-MC-MA-P10, emitido el 4 de marzo del 2010, de la siguiente manera:
+(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 1 del 3 de enero de 2011)
+(Nota de Sinalevi: El texto de esta norma fue reformada parcialmente y reproducido su texto en forma íntegra, aprobado y publicado en La Gaceta N° 227 del 23 de noviembre de 2010, por lo que se reproduce a continuación:)
+TABLA DE CONTENIDO.
+1 OBJETIVO.................................................................. 2
+2 ALCANCE.................................................................. 2
+3 DOCUMENTOS DE REFERENCIA............................... 2
+4 DEFINICIONES........................................................... 3
+5 RESPONSABILIDADES.............................................. 3
+6 GENERALIDADES...................................................... 3
+7 REQUISITOS PARA EL RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACIÓN. 4
+8 PROCESO GENERAL DE RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACIÓN 4
+9 LISTADO DE RECONOCIMIENTOS DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACIÓN 6
+10 TARIFAS.................................................................. 6
+11 ANEXOS.................................................................. 6
+12 CAMBIOS................................................................ 6
+1. OBJETIVO
+Establecer lineamientos para realizar el reconocimiento de la equivalencia del certificado de acreditación, otorgado por un organismo de acreditación diferente al ECA y que es signatario de un Acuerdo de Reconocimiento Multilateral (MLA).
+2. ALCANCE
+Aplica a todos los interesados que deseen del ECA el reconocimiento de la equivalencia del certificado de acreditación otorgado por un organismo de acreditación signatario de un Acuerdo de Reconocimiento Multilateral (MLA).
+3. DOCUMENTOS DE REFERENCIA
+Ley 8279. Ley del Sistema Nacional de Calidad, capítulo IV artículo 34
+MOU de IAAC : IAAC Memorándum de entendimiento
+IAAC AD 009/09 ACUERDO DE RECONOCIMIENTO MULTI-LATERAL (MLA)
+MOU de ILAC: ILAC Memorándum de entendimiento
+MOU de IAF: IAF Memorándum de entendimiento
+ECA -MC-MA-P10-F01 Solicitud de reconocimiento
+ECA -MC-C04 Criterios Transfrontera OC
+ECA -MC-C09 Criterios para la Acreditación Transfrontera de Laboratorios
+4. DEFINICIONES
+- Documentos consularizados: Documentos debidamente legalizados por el cónsul de Costa Rica en el país emisor o del consulado más cercano.
+- ECA : Ente Costarricense de Acreditación.
+- Equivalencia del certificado de acreditación: Aceptación de la semejanza de las actividades dentro del alcance de acreditación emitido por un OA con Acuerdo de Reconocimiento Multilateral.
+- IAAC : Cooperación Interamericana de Acreditación.
 - IAF: Foro Internacional de Acreditación.
-- APLAC: Cooperación de Acreditación de Asia Pacífico.
-- PAC: Cooperación de Acreditación del Pacífico.
-- EA: Cooperación de Acreditación Europea.
+- ILAC: Cooperación Internacional de Laboratorios.
+- Interesado: Usuario de los servicios de acreditación de un OEC acreditado con acuerdo de reconocimiento multilateral o un OEC acreditado con acuerdo de reconocimiento multilateral.
+- LOG: Área de Logística.
+- MLA: Acuerdo de Reconocimiento Multilateral.
+- OA: Organismo Acreditador.
 - OEC: Organismos de Evaluación de la Conformidad (laboratorios, organismos de inspección u organismos de certificación).
-- Solicitud: Formulario que debe ser utilizado para solicitud de Reconocimiento.
-- ECA: Ente Costarricense de Acreditación.
-- Solicitante: Puede ser OEC que desea el Reconocimiento, o persona física o jurídica que solicite el reconocimiento para un OEC que le brinda servicio.
 - SA: Secretaría de Acreditación.
-5 Responsabilidades. Las responsabilidades se detallan en cada actividad incluida dentro del procedimiento. La simbología utilizada es la siguiente:
-- Responsable Secretaria de Acreditación: [G]
+- Solicitud: Formulario que debe ser utilizado cuando se requiere el reconocimiento de la equivalencia del certificado de acreditación.
+5. RESPONSABILIDADES
+Las responsabilidades se detallan en cada actividad incluida dentro del procedimiento. La simbología utilizada es la siguiente:
+- Responsable Secretaría de Acreditación: [SA]
+- Responsable Gerencia: [G]
 - Responsable Gestoría de Calidad: [GC]
-- Responsable Área de Logística de las Secretarias de Acreditación: [LOG]
+- Responsable Área de Logística de las Secretarías de Acreditación: [LOG]
 - Responsable Interesado: [INTER]
-6 Sistemas de reconocimiento.
-6.1 Los OEC que pueden solicitar el Reconocimiento son:
-Tipo OEC Norma Bajo la cual se otorga el reconocimiento*
-Laboratorios de ensayo Norma INTE-ISO/IEC Requisitos generales para la competencia
-y calibración 17025 técnica de laboratorios de ensayo y calibración
-Laboratorios clínicos Norma INTE-ISO Laboratorios de análisis clínicos-Requisi-
-15189 tos particulares para la calidad y la com-
-petencia.
-Organismos de Norma INTE-ISO/IEC Criterios generales para la operación de
-Inspección 17020 varios tipos de organismos que realizan
-inspección
-Organismos de certifi- Norma INTE-ISO/IEC Requisitos para los organismos que realizan
-cación de sistemas 17021 la auditoría y la certificación de sistemas
-(incluye firma digital) de gestión
-Organismos de certifi-
-cación de producto Guía INTE-ISO/IEC 65 Requisitos generales para los organismos
-que operan sistemas de certificación de
-productos
-Organismos de certifi- Norma INTE-ISO/IEC Evaluación de la conformidad-Requisitos
-cación de personas 17024 generales para los organismos que realizan
-certificación de personas
-Nota: Todo OEC que solicite el Reconocimiento de su acreditación debe cumplir lo indicado en este documento y los requisitos de las normas o guías bajo las cuales se les otorgo la acreditación en su versión vigente.
-6.2 Toda información suministrada al ECA es tratada de manera confidencial. ECA mantiene todas las solicitudes que se presenten resguardadas de forma segura.
-7 Requisitos para el reconocimiento
-7.1 Ser un OEC acreditado por un Organismo de Acreditación firmante de MLA en el alcance que solicita.
-7.2 La acreditación emitida por el OA debe estar vigente al momento de solicitar el reconocimiento y sin ningún proceso de suspensión o retiro de la acreditación.
-7.3 Las notificaciones sobre el proceso de Reconocimiento se realizan en el siguiente orden:
-- correo electrónico, con confirmación automática del sistema.
-- vía facsímil, con confirmación automática del equipo, caso contrario se realizarán hasta 5 intentos.
-- mensajería para lo cual se le solicita al contacto la firma de la hoja de recibido.
-Para dichas notificaciones se tomarán los datos de contacto indicados en la solicitud de Reconocimiento.
-8 Proceso general de reconocimiento.
-8.1 El Proceso General de Reconocimiento se realiza de la siguiente forma:
-8.2 El interesado, presenta a la Secretaría de Acreditación respectiva la solicitud de Reconocimiento firmada por el representante legal de la organización, con la información requerida, los anexos y comprobante de pago inicial. [INTER]
-8.3 La encargada del área de Logística de las Secretarias de Acreditación revisa la solicitud y verifica que se presenten todos los anexos solicitados y el pago correspondiente, para lo cual cuenta con 8 días hábiles. [LOG]
-8.4 Si la solicitud de Reconocimiento, NO se encuentra completa la encargada de logística notifica al interesado dentro de los 8 días indicados en el punto 7.3, para que subsane las deficiencias encontradas, que deben responderse en un plazo de 10 días hábiles (regresa al punto 7.3, no se puede continuar hasta que la solicitud sea subsanada). [LOG]
-8.5 Si la solicitud de Reconocimiento, se encuentra completa; la encargada de logística traslada la información a la Secretaria de Acreditación respectiva. [LOG]
-8.6 La SA verifica la validez de la información, comprobando si la acreditación se encuentra vigente y si fue otorgada por un OA firmante del MLA. [SA]
-8.7 Si la información anterior es positiva, se registra en el Libro de Reconocimiento de la SA un resumen de información de todo el proceso, se emite una certificación de Reconocimiento. Para este apartado y el 7.5 la SA cuenta con 5 días hábiles.
-Nota: La certificación de Reconocimiento debe ir acompañada de los respectivos timbres de Ley.
-8.8 Si la información del punto 7.5, no es válida, no se puede emitir una certificación y por lo tanto no se puede otorgar el Reconocimiento. La Secretaría de Acreditación cuenta con 5 días hábiles para realizar la notificación al solicitante sobre las razones por las que no puede otorgarse. [SA]
-Nota: En los casos en que no sea posible emitir el Reconocimiento, ECA no reembolsará el costo de la presentación de la solicitud.
-8.9 El Reconocimiento se otorga por:
-a) Por el plazo de vigencia de la acreditación original para lo cual debe realizar el pago de otorgamiento del reconocimiento.
-Nota: La presentación de una solicitud no implica la obtención del reconocimiento.
-9 Directorio de reconocimientos. El ECA actualiza el Directorio de Reconocimientos que se publica en la página web, cada vez que se otorgue un reconocimiento y contiene la siguiente información:
-· Número de Reconocimiento,
-· Nombre del OEC,
-· Alcance de la Acreditación Reconocida
-· Vigencia del reconocimiento
-· Organismo de acreditación emisor de la acreditación.
-Cada 3 meses se verifica la vigencia de la acreditación de los OEC reconocidos por parte de la SA y el estatus es actualizado en el Directorio de Reconocimientos.
-10 Tarifas.
-10.1 El solicitante debe cancelar los costos por concepto de presentación de la solicitud, otorgamiento y mantenimiento del Reconocimiento. Para todos los efectos las tarifas son las mismas que se aplican a los OEC Nacionales y que se publicaron en el Diario Oficial La Gaceta Nº 112 del 9 de junio del 2009.
-Solicitud de reconocimiento de la acreditación por un OEC
-Concepto Monto US $
-Solicitud 400
-Otorgamiento 800
-Mantenimiento anual 600
-11 Anexos.
+6. GENERALIDADES
+6.1 El reconocimiento de la equivalencia del certificado de acreditación se otorga para el acto motivo de la solicitud.
+6.2 Los interesados pueden solicitar reconocimiento de la equivalencia del certificado de acreditación en los alcances con Acuerdo de Reconocimiento Multilateral en:
+Tipo OEC | Norma bajo la cual se otorga el reconocimiento
+Laboratorios de ensayo y calibración | Norma ISO/IEC 17025 | Requisitos generales para la competencia técnica de laboratorios de ensayo y calibración
+Laboratorios clínicos | Norma ISO 15189 | Laboratorios de análisis clínicos — Requisitos particulares para la calidad y la competencia
+Organismos de certificación de sistemas de gestión. | Norma ISO/IEC 17021 (ISO 9001 y en ISO 14001) | Requisitos para los organismos que realizan la auditoría y la certificación de sistemas de gestión
+Organismos de Certificación de Producto | Guía ISO/IEC 65 | Requisitos generales para los organismos que operan sistemas de certificación de productos
+6.3 Todo interesado que desee adquirir el reconocimiento de la equivalencia del certificado de acreditación debe cumplir lo establecido en este documento y los requisitos de las normas o guías de acreditación en su versión vigente.
+6.4 Todo interesado se compromete a cumplir continuamente con los requisitos para el reconocimiento de la equivalencia del certificado de acreditación establecidos por el ECA , para las áreas en las cuales se busca el reconocimiento. Esto incluye adaptarse a los cambios que ECA publique con versiones posteriores.
+6.5 Toda la información suministrada al ECA es tratada de manera confidencial. ECA mantiene todas las solicitudes que se presenten resguardadas de forma segura.
+6.6 La presentación de una solicitud no implica la obtención del reconocimiento de la equivalencia del certificado de acreditación.
+6.7 Posterior al reconocimiento de la equivalencia del certificado de acreditación, el ECA no garantiza que la acreditación del OEC emitida por un OA se mantenga vigente.
+6.8 En los casos en que no sea posible emitir el reconocimiento de la equivalencia del certificado de acreditación, sea por incumplimiento de las prevenciones realizadas o porque la verificación de la información resulta negativa, el ECA no reembolsará el costo de la presentación de la solicitud.
+7. REQUISITOS PARA EL RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACIÓN.
+7.1 La acreditación debe ser otorgada por un Organismo de Acreditación firmante de MLA en el alcance que solicita.
+7.2 La acreditación emitida por el OA en el país de origen debe estar vigente al momento de solicitar el reconocimiento de la equivalencia del certificado de acreditación y sin ninguna suspensión de la acreditación.
+7.3 Presentación completa de la solicitud de reconocimiento de la equivalencia del certificado de acreditación con todos los documentos solicitados debidamente consularizados. Cuando el documento es emitido por un OA en idioma diferente al español la documentación debe ser presentada con una traducción certificada.
+8. PROCESO GENERAL DE RECONOCIMIENTO DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACIÓN
+8.1 El interesado, presenta al Área de Logística el ECA -MC-MA-P10-F01 solicitud de reconocimiento de la equivalencia del certificado de acreditación firmada, con la información requerida, los anexos y comprobante de pago inicial. [INTER]
+8.2 El Área de Logística revisa la solicitud y verifica que se presenten todos los anexos solicitados y el pago correspondiente, para lo cual cuenta con 5 días hábiles. [LOG]
+8.3 Si la solicitud de reconocimiento de la equivalencia del certificado de acreditación, NO se encuentra completa el Área de Logística debe notificar al interesado en 3 días hábiles. [LOG]
+8.4 El interesado debe subsanar las deficiencias encontradas en un plazo de 10 días hábiles para continuar con el proceso de reconocimiento de la equivalencia del certificado de acreditación y vuelve al punto 8.2. [INTER]
+Nota 1: De no subsanarse las deficiencias en el plazo establecido se procede al archivo definitivo de la solicitud.
+Nota 2: La subsanación de la solicitud se permite por una sola vez.
+8.5 Si la solicitud de reconocimiento de la equivalencia del certificado de acreditación, se encuentra completa; el Área de Logística traslada la información a la Secretaría de Acreditación respectiva para lo cual cuenta con un día hábil. [LOG]
+8.6 La Secretaría de Acreditación verifica la validez de la información en 10 días hábiles, comprobando si la acreditación se encuentra vigente y si fue otorgada por un OA firmante del MLA. [SA]
+8.7 Si durante el proceso de la verificación de la información la Secretaría de Acreditación considera necesarias aclaraciones por parte del interesado, ésta las traslada al solicitante indicándole que tiene un plazo de 5 días hábiles para responder. [SA] [INTER]
+Nota 1: De no realizar las aclaraciones necesarias en el plazo establecido se procede al archivo definitivo de la solicitud.
+Nota 2: El cumplimiento de las aclaraciones necesarias es permitido por una sola vez.
+8.8 Si la verificación resulta negativa, no se otorga el reconocimiento de la equivalencia del certificado de acreditación. La Secretaría de Acreditación cuenta con 5 días hábiles para realizar la notificación respectiva. [SA]
+8.9 La Secretaría de Acreditación traslada a la Gestoría de Calidad e los resultados del análisis efectuado para lo cual cuenta con 1 día hábil. [SA]
+8.10 Si la verificación realizada en el punto 8.6 resulta positiva, la Gestoría de Calidad completa el formulario ECA -MC-MA-P10-F03 Reconocimiento de la equivalencia del certificado de acreditación y gestiona las firmas respectivas, para lo que cuenta con 5 días hábiles. [GC]
+Nota 1: El reconocimiento de la equivalencia del certificado de acreditación debe contener los respectivos timbres de Ley.
+9. LISTADO DE RECONOCIMIENTOS DE LA EQUIVALENCIA DEL CERTIFICADO DE ACREDITACION
+9.1 El ECA mantiene ECA -MC-MA-P10-F02 listado de reconocimiento de la equivalencia del certificado de acreditación con la siguiente información:
+• Número de Reconocimiento
+• Nombre del OEC que obtuvo el certificado de acreditación
+• Alcance de la Acreditación Reconocida
+• Fecha de emisión del reconocimiento
+• Organismo de acreditación emisor de la acreditación
+• Nombre del interesado
+9.2 Para suministrar información sobre los reconocimientos de las equivalencias del certificado de acreditación, el interesado debe comunicarse con la Gestoría de Calidad quien es responsable de mantener esta información. [GC]
+10. TARIFAS
+El interesado debe cancelar:
+• $400 por concepto de presentación de la solicitud.
+• $800 por el otorgamiento del reconocimiento de la equivalencia del certificado de acreditación.
+11. ANEXOS
 N.A
-San José, 4 de marzo del 2010.
+12. CAMBIOS
+Motivo: | modificación de documento ECA -MC-MA-P10 y ECA -MC-MA-P11
+Apartado / Inciso | Páginas | Contenido actual (versión) | Contenido anterior (Versión)
+Apartado / Inciso por número y nombre | 3 o todas | Se modifica el contenido completo de los procedimientos ECA -MC-MA-P10 y ECA -MC-MA-P11, tanto de forma como de fondo. | Se modifica el contenido completo de los procedimientos ECA -MC-MA-P10 y ECA -MC-MA-P11, tanto de forma como de fondo.
+Observaciones: los documentos ECA -MC-MA-P10 y ECA -MC- MA-P11 en su versión 01 se encuentran en resguardo de la Gestoría de Calidad
+Vigencia y aplicación de este procedimiento a partir de su publicación en el Diario Oficial La Gaceta.

@@ -14,3 +14,4 @@ Procedimiento Reconocimiento de la equivalencia del Certificado de Acreditación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-17 | la propia norma |
+| 2 | 2010-11-04 | Acuerdo 0 (2010-11-04) |
