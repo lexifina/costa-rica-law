@@ -165,7 +165,8 @@ CACAO Y SUS PREPARACIONES
 18.01 - 18.02 - Un cambio a la partida 18.01 a 18.02 desde cualquier otro capítulo.
 18.03 - Un cambio a la partida 18.03 desde cualquier otra partida.
 18.04 - 18.05 - Un cambio a la partida 18.04 a 18.05 desde cualquier otra partida, excepto de la partida 18.03.
-18.06 - Un cambio a la partida 18.06 desde cualquier otra partida, excepto de la partida 18.03 a 18.05.
+18.06 - Un cambio a la partida 18.06 desde cualquier otra partida, siempre que el cacao originario utilizado no sea inferior al 50% en peso del cacao utilizado en la producción de la mecancia(*)
+(*)(Así reformada la regla de origen anterior por Resolución N° 251-2010 (COMIECO-LVIII), aprobada mediante decreto ejecutivo N° 36316 del 04 de noviembre de 2010)
 CAPÍTULO 19:
 PREPARACIONES A BASE DE CEREALES, HARINA, ALMIDÓN, FÉCULA O LECHE; PRODUCTOS DE PASTELERÍA
 1901.10 - Un cambio a la subpartida 1901.10 desde cualquier otro capítulo, excepto de la partida 04.02.
