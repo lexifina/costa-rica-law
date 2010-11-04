@@ -1,0 +1,1 @@
+Artículo 14.—La miel producida y utilizada por los ingenios que tienen destilerías, para la elaboración de alcohol de consumo local y exportación, se pagará al Ingenio conforme a lo indicado en el artículo anterior.

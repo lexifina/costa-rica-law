@@ -1,0 +1,1 @@
+Artículo 2º—La producción, la comercialización y el pago de las mieles finales de producción nacional, se efectuará conforme a las estipulaciones de la Ley, su Reglamento Ejecutivo y el presente Reglamento Interno.

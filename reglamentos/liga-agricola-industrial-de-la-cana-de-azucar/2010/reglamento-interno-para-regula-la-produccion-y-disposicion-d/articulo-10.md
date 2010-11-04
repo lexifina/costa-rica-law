@@ -1,0 +1,1 @@
+Artículo 10.—Para la elaboración de alcohol para la FANAL, LAICA venderá el kilogramo de miel al precio establecido por el Consejo de Comercialización, más el premio correspondiente sobre la base establecida del 54% de azúcares reductores totales (A.R.T.I %).

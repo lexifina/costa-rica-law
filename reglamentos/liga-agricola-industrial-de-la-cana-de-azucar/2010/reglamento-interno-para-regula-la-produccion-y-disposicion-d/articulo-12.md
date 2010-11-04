@@ -1,0 +1,1 @@
+Artículo 12.—El precio por kilogramo de las mieles vendidas a los clientes de mercado interno (miel ganadera) será fijado por el Consejo de Comercialización sobre la base de 79 grados Brix hidrómetro o 77 grados Brix refractómetro.

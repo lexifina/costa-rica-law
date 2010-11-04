@@ -1,0 +1,1 @@
+Artículo 11.—Para la elaboración de alcohol de exportación, se venderá la miel al precio de la oferta más conveniente base 54% (A.R.T.I), que cuente LAICA, más el premio correspondiente sobre la base establecida del 54% de azúcares reductores totales (A.R.T.I %). A este precio se le deberá deducir el costo de transporte desde el ingenio a la terminal de Punta Morales.

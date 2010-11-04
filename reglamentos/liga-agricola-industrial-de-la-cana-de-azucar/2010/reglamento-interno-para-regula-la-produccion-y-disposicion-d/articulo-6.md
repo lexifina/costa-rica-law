@@ -1,0 +1,2 @@
+Artículo 6º—Las destilerías podrán adquirir miel para la elaboración de alcohol, de consumo local o de exportación. Para ello, deberán solicitarlo por escrito con la antelación que fije la Junta Directiva previa recomendación del Consejo de Comercialización.
+La cantidad será asignada por LAICA sujeta a las proyecciones de producción estimadas, así como a los compromisos establecidos en los mercados preferenciales, de conformidad con lo que disponga la Junta Directiva previa recomendación del Consejo de Comercialización.
