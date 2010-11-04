@@ -14,3 +14,4 @@ Publica Resolución N° 181-2006 (COMIECO XXXIX) Modifica Reglamento Centroameri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-01 | la propia norma |
+| 2 | 2010-11-04 | Decreto Ejecutivo 36316 (2010-11-04) |
