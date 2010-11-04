@@ -1,4 +1,6 @@
+(Derogado)
 ENTE COSTARRICENSE DE ACREDITACIÓN
+(Este Procedimiento fue derogado por la norma que reforma el Procedimiento Código ECA -MC-MA-P10 “Reconocimiento de la equivalencia del certificado de acreditación" y publicado en La Gaceta N° 227 del 23 de noviembre de 2010)
 AVISO
 Con fundamento en las atribuciones y facultades conferidas por los artículos 11 Constitucional; 120, 121, 122 inciso 3), 128, 129, 130 párrafo 1, 132, 134, 136 párrafo 2º en relación con el 249 y 335, 140, 141, 150, 239, 240 siguientes y concordantes y 362 de la Ley General de la Administración Pública; 1º, 2º, 19, 21, 27 y 31 de la Ley Nº 8279, 14 y 15 del Decreto Ejecutivo Nº 33963-MICIT “Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación”; y
 Considerando:

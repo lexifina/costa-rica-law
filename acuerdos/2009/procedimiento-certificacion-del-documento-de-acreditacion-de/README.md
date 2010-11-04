@@ -14,3 +14,4 @@ Procedimiento Certificación del documento de acreditación de los OEC acreditad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-26 | la propia norma |
+| 2 | 2010-11-04 | Acuerdo 0 (2010-11-04) |
