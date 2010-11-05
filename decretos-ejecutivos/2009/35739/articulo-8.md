@@ -1,0 +1,1 @@
+Artículo 8º—Como elemento del proceso de recursos humanos, la oficina de Recurso Humanos, dependerá técnicamente de la oficina facultada que defina la Dirección General de Servicio Civil, por lo tanto será responsable de la aplicación de las normas y disposiciones técnicas que dicha institución emita.

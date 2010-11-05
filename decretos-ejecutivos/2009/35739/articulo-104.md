@@ -1,0 +1,1 @@
+Artículo 104.—Las irregularidades en la asistencia por omisión de marca, llegadas tardías, salida anticipada y ausencias, deberán ser justificadas dentro de los cinco días hábiles inmediatos a la falta, mediante el procedimiento que para tal efecto establezca la Oficina de Recursos Humanos.

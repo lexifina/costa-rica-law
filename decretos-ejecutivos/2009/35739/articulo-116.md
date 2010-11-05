@@ -1,0 +1,1 @@
+Artículo 116.—Aquellas ausencias por enfermedad que no excedan de dos días en un mismo mes, podrán ser justificadas por el superior inmediato para efectos disciplinarios sin necesidad de documentación médica. No obstante en estos casos se procederá al rebajo automático de salario de los días no laborados o al rebajo de vacaciones correspondientes.

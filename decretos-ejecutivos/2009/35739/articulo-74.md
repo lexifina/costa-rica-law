@@ -1,0 +1,2 @@
+Contratos de licencias para estudios:
+Artículo 74.—Todo funcionario que disfrute de licencia para asistir a estudios deberá firmar el respectivo contrato de licencia para estudios, el cual se tramitará conforme a lo establecido en el Reglamento del Estatuto de Servicio Civil. Estas licencias incluyen horas lectivas y tiempos de traslado al centro de estudio y deberán contar además con la anuencia de las jefaturas respectivas y de la Junta Administrativa.

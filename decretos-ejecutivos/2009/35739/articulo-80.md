@@ -1,0 +1,1 @@
+Artículo 80.—Los contratos de capacitación se regularán por lo establecido en la Ley 1810 del 15 de octubre de 1954, sus reforma Ley de Licencias para Adiestramiento de Servidores Públicos y el reglamento a esta ley, Decreto Ejecutivo 17339-P del 2 de diciembre de 1986, así como cualquier otra disposición que al efecto emita la Dirección General de Servicio Civil.

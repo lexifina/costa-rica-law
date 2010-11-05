@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De las ausencias y abandono de labores
+Artículo 114.—Se considera ausencia la inasistencia a un día completo de labores. La falta a una fracción de la jornada se computará como la mitad de una ausencia, para efectos de este Reglamento. Dos ausencias de media jornada se computarán como una ausencia. No se pagará el salario que corresponda a las ausencias, excepto en los casos que se justifiquen debidamente por escrito, dentro de los cinco días hábiles siguientes a partir de la ausencia o los señalados en este Reglamento, en el Estatuto de Servicio Civil y su Reglamento y en el Código de Trabajo.

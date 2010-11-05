@@ -1,0 +1,1 @@
+Artículo 144.—A partir de la presentación del reclamo, la Oficina de Recursos Humanos deberá remitir en un plazo máximo de diez días naturales, según la complejidad del asunto, la información y documentos necesarios a la Asesoría Legal para que esta emita el criterio correspondiente en un plazo máximo de diez días hábiles.

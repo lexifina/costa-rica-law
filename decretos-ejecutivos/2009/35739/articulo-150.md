@@ -1,0 +1,1 @@
+Artículo 150.—Este Reglamento deberá hacerse de conocimiento de todos los funcionarios, mediante exhibición impresa en caracteres fácilmente legibles en forma permanente por un período de 15 días naturales posteriores a su entrada en vigencia, en al menos dos lugares visibles del Museo Nacional.

@@ -1,0 +1,1 @@
+Artículo 39.—Es obligación de todos los funcionarios participar y apoyar todas las acciones que organice o impulse la Comisión de Salud Ocupacional, la Comisión de Implementación al Plan de Gestión Ambiental, Comité Central y las Brigadas de Emergencias, así como cualquier grupo relacionado que se constituya en la Institución.

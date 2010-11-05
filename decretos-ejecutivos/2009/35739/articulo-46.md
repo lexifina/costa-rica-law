@@ -1,0 +1,1 @@
+Artículo 46.—Se considera acoso moral u hostigamiento psicológico en el trabajo los actos de violencia psicológica sobre una persona en su lugar de trabajo, ejercidos de forma sistemática y prolongada en el tiempo, que puedan hacer peligrar su puesto de trabajo o degradar el clima laboral.

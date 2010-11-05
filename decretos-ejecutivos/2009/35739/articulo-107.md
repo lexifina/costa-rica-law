@@ -1,0 +1,1 @@
+Artículo 107.—Los jefes de departamento y encargados del control de asistencia de los centros de trabajo deberán remitir a la Oficina de Recursos Humanos, el informe mensual de asistencia de aquellos funcionarios exonerados de marcar asistencia dentro de los primeros cinco días hábiles del mes siguiente.

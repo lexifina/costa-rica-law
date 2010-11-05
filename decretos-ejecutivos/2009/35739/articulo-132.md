@@ -1,0 +1,6 @@
+Artículo 132.—El despido sin responsabilidad patronal procederá en los siguientes casos:
+A) Cuando el servidor incurra en alguna de las causales previstas en el Código de Trabajo, el Estatuto del Servicio Civil y su Reglamento o demás normativa que regula la actuación de los funcionarios públicos.
+B) En aquellos casos en que el servidor haya sido suspendido sin goce de salario en los términos del artículo anterior y reitere alguna de las faltas por la que fue suspendido en los tres meses siguientes a la firmeza de la sanción.
+C) En los casos en se cometan cuatro o más faltas graves en un mismo periodo de tres meses.
+D) Cuando el funcionario sea condenado en sede judicial por cometer en el ejercicio de su cargo, un delito en contra de los deberes en la función pública, la autoridad pública, la fe pública, del honor, de la paz o la tranquilidad de la nación; o por acoso sexual, acoso laboral o por discriminación.
+E) En los casos en que se cometan una o más faltas graves y la falta genere un grave daño al Museo, que amerite la máxima sanción aplicando los parámetros de evaluación que se establecen en el artículo siguiente y de acuerdo con las reglas de la razonabilidad y proporcionalidad.

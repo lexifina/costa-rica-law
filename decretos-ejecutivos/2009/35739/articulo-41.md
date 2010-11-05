@@ -1,0 +1,1 @@
+Artículo 41.—Se considerará un acto de discriminación, cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones del aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los solicitantes o cuando no se emplee a un servidor idóneo, en razón de su discapacidad.

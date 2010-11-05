@@ -1,0 +1,1 @@
+Artículo 99.—Son días hábiles para el trabajo todos los días del año, salvo lo dispuesto en el Código de Trabajo y aquellos que el Poder Ejecutivo declare asueto. Asimismo se entenderán como días hábiles para los efectos de este Reglamento, aquellos incorporados dentro de la jornada habitual de algunos servidores en razón de sus funciones.

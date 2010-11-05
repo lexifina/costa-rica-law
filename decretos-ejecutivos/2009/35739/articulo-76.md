@@ -1,0 +1,1 @@
+Artículo 76.—El funcionario a quien se le concedió licencia para asistir a cursos de estudio, deberá presentar a la Oficina de Recursos Humanos del Museo, certificación o constancia del resultado de las materias objeto del contrato. Dicha oficina remitirá el documento correspondiente al expediente y al jefe inmediato del funcionario.

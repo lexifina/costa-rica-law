@@ -1,0 +1,1 @@
+Artículo 142.—En el caso de los funcionarios de la Auditoría Interna les será aplicable la Ley General de Control Interno, el presente Reglamento y dependerán, para todos los efectos del máximo Jerarca, de conformidad con la Ley General de Control Interno y el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Museo Nacional.

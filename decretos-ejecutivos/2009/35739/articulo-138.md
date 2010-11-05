@@ -1,0 +1,1 @@
+Artículo 138.—Para todos los efectos, los procedimientos disciplinarios de funcionarios, cuya sanción no corresponde a un despido sin responsabilidad patronal, se tramitarán de conformidad con lo estipulado en el Libro Segundo de la Ley General de la Administración Pública.

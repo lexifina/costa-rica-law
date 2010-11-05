@@ -1,0 +1,1 @@
+Transitorio I.—Los procesos disciplinarios que se encuentren establecidos con anterioridad a la vigencia del presente Reglamento, serán tramitados y se aplicaran las sanciones, de acuerdo con el Reglamento del Museo Nacional, Decreto Ejecutivo 19688, publicado en el Diario Oficial La Gaceta del 4 de junio de 1990 y normativa aplicable vigente para el momento de los hechos.

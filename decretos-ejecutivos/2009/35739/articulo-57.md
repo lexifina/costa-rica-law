@@ -1,0 +1,1 @@
+Artículo 57.—Tanto la persona denunciante de hostigamiento sexual o acoso laboral, como los testigos de las partes, gozarán de las garantías y derechos previstos en la Ley 7476 del 3 de febrero de 1995 y sus modificaciones, en relación con su empleo y condiciones generales de trabajo.

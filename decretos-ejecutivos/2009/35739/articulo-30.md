@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Evaluación del desempeño de los funcionarios
+Artículo 30.—Todo jefe está en la obligación de evaluar a los funcionarios a su cargo dentro del plazo establecido para esos efectos, para lo cual la Oficina de Recursos Humanos remitirá las instrucciones a quien corresponda y entregará los formularios respectivos, así como cualquier instrumento de apoyo elaborado para tal efecto. Lo anterior de conformidad con lo establecido en el Reglamento del Estatuto de Servicio Civil, el Manual de Procedimientos para la evaluación del desempeño y cualquier otro instrumento emitido para tal efecto. Para fundamentar la evaluación el jefe deberá llevar un expediente personal de cada uno de los funcionarios a su cargo.
+Para los funcionarios excluidos del Régimen de Servicio Civil se aplicará lo dispuesto en el párrafo anterior.

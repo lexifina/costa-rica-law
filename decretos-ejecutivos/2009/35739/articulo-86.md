@@ -1,0 +1,6 @@
+CAPÍTULO IV
+De las incapacidades para trabajar
+Artículo 86.—El Museo reconocerá las ausencias al trabajo del servidor motivadas por incapacidad para trabajar, ya sea por enfermedad, maternidad o riesgo profesional, y se sujetará a lo dispuesto por el Artículo 34 y sus reformas del Reglamento del Estatuto de Servicio Civil.
+En todo lo que no se encuentre aquí expresamente regulado respecto de las incapacidades, se consideran disposiciones supletorias del presente Reglamento, el Reglamento del Seguro de Enfermedad y Maternidad, el Reglamento para la Extensión de Incapacidades a los Trabajadores Beneficiarios del Régimen de Enfermedad y Maternidad, el Reglamento General de Riesgos de Trabajo y las interpretaciones que de los mismos expida la Caja Costarricense de Seguro Social.
+En ningún caso de incapacidad para trabajar por enfermedad, maternidad o riesgo de trabajo, el monto de subsidio que pague la respectiva institución aseguradora sumada al que pague el Museo, podrá exceder el monto del salario del servidor.
+Todo funcionario está en la obligación de presentar el documento oficial de incapacidad en un máximo de cinco días hábiles, a partir del momento en que se emita la incapacidad, salvo que motivos de fuerza mayor, debidamente justificados se lo impidan.

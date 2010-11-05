@@ -1,0 +1,1 @@
+Artículo 5º—El Director General, Auditor Interno, Jefes de Departamento y en general todos aquellos funcionarios, que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables de velar por la correcta aplicación de las disposiciones del presente Reglamento.

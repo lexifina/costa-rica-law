@@ -1,0 +1,1 @@
+Artículo 4º—Se considera como funcionario regular del Museo el servidor nombrado de acuerdo con las disposiciones del Estatuto de Servicio Civil y que ha cumplido el período de prueba, o protegido por el artículo 30 del mismo Estatuto.

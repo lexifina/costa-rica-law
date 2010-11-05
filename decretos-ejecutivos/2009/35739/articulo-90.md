@@ -1,0 +1,1 @@
+Artículo 90.—Los funcionarios podrán acogerse al pago por concepto de Dedicación Exclusiva cuando así sea acordado por la Administración, según las resoluciones correspondientes de la Dirección General de Servicio Civil; y tendrán derecho al pago de la Carrera Profesional de conformidad con la normativa vigente.

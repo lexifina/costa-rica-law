@@ -1,0 +1,1 @@
+Artículo 146.—Una vez dictada la resolución por parte del jerarca de la Institución deberá remitirse a las instancias correspondientes para el trámite de rigor. Es responsabilidad del gestionante efectuar los trámites correspondientes para su efectivo pago en caso de corresponderle.

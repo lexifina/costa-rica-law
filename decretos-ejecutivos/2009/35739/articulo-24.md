@@ -1,0 +1,1 @@
+Artículo 24.—Las permutas entre puestos de clase diferente pero igual remuneración, requerirán además del consentimiento de los funcionarios y de los respectivos jefes, la aprobación de la Dirección General de Servicio Civil.

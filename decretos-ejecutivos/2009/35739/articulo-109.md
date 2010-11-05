@@ -1,0 +1,1 @@
+Artículo 109.—La omisión del registro de asistencia de cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la fracción de la jornada correspondiente, excepto si se justifica dentro de los cinco días hábiles siguientes a la comisión de la falta.

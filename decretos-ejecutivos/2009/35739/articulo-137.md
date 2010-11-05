@@ -1,0 +1,1 @@
+Artículo 137.—Los despidos de los funcionarios amparados por el Régimen de Servicio Civil, se tramitarán conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente Reglamento.

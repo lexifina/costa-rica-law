@@ -1,0 +1,1 @@
+Artículo 65.—Las vacaciones serán absolutamente incompensables, salvo las excepciones indicadas en el artículo 156 y 159 del Código de Trabajo o cuando el servidor cese en su trabajo por cualquier causa, tendrá derecho a recibir en dinero el importe correspondiente por vacaciones no disfrutadas o en su defecto disfrutarlas al rompimiento de la relación de servicio.

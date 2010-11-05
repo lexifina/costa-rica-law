@@ -1,0 +1,1 @@
+Artículo 77.—El funcionario que sin causa justificada no apruebe una o más materias objeto de contrato, quedará obligado a restituir al Estado los gastos en que incurrió en razón de tiempo concedido y no aprovechado. Dicho trámite será realizado de conformidad con las disposiciones que para tal efecto dicte la Dirección General de Servicio Civil.

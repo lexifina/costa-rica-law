@@ -1,0 +1,1 @@
+Artículo 3º—El Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre el Museo y sus funcionarios, pero la representación inmediata está delegada en la Junta Administra

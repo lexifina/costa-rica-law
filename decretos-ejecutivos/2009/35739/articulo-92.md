@@ -1,0 +1,1 @@
+Artículo 92.—Los funcionarios que deban viajar dentro del país en el ejercicio de sus funciones tendrán derecho a gastos de transporte y viáticos, consistentes en pasajes, alimentación y hospedaje, los cuales serán otorgados según los reglamentos respectivos. Los viáticos, en tanto se deben rendir cuentas por estos, no se considerarán salario para ningún efecto legal.

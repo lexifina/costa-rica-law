@@ -1,0 +1,1 @@
+Artículo 29.—A solicitud de la Oficina de Recursos Humanos, los funcionarios que hayan participado en actividades y/o cursos de capacitación, estarán obligados a impartir los conocimientos adquiridos y ponerlos en práctica en la medida en que su Jefe inmediato lo requiera y la institución le facilite las condiciones para ello.

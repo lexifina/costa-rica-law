@@ -1,0 +1,2 @@
+Artículo 23.—Las permutas dentro de la misma dependencia del Museo, podrán ser acordadas por los jefes respectivos, siempre que se trate de puestos de igual clase y remuneración, concediendo de previo al funcionario un período razonable para que manifieste lo que considere pertinente.
+Toda permuta deberá ser tramitada a través de la Oficina de Recursos Humanos, con el objeto de tener el expediente al día, confeccionándose la respectiva acción de personal, la cual deberá ser aprobada por la Dirección General de Servicio Civil.

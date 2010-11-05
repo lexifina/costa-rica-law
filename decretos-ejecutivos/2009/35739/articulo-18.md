@@ -1,0 +1,1 @@
+Artículo 18.—Los recargos de puestos de clase diferente, y los de mayor categoría cuando excedan de un mes, estarán sujetos a aprobación previa de la Dirección General del Museo Nacional, previa consulta a la Oficina de Recursos Humanos. Para verificar que el funcionario a quien se le hiciere el recargo, reúne los requisitos que para el desempeño del puesto son necesarios.

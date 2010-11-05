@@ -1,0 +1,1 @@
+Artículo 68.—La prestación efectiva de servicio, para efectos del cálculo de las vacaciones anuales no será afectada por las licencias que se concedan a los servidores por concepto de maternidad o por adoptar un menor, ni por cualquier otra causa que de acuerdo con la Ley no suspenda la relación laboral.

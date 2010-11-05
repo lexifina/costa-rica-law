@@ -1,0 +1,1 @@
+Artículo 96.—El Director General, podrá modificar los horarios establecidos en casos específicos y por razones institucionales que así lo ameriten y cuando no se cause perjuicio al servicio público y a los funcionarios. En todo caso, deberá comunicarse al Área de Recursos Humanos para el respectivo control de asistencia.

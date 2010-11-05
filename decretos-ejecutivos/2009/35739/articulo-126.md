@@ -1,0 +1,1 @@
+Artículo 126.—Las faltas por acoso u hostigamiento sexual, se sancionarán de conformidad con la Ley 7476 “Ley contra el Hostigamiento Sexual en el Empleo y la Docencia”, en concordancia con lo dispuesto en los artículos subsiguientes y siguiendo el procedimiento establecido en los artículos del 48 al 59 del presente Reglamento.

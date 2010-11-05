@@ -1,0 +1,1 @@
+Artículo 20.—Para todos sus efectos, los concursos internos se regularán por el Decreto Ejecutivo 24025-MP del 13 de enero de 1995 y la normativa establecida por la Dirección General de Servicio Civil.

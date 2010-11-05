@@ -1,0 +1,1 @@
+Artículo 25.—Los recargos de puestos de clases diferentes y de mayor categoría, cuando excedan de un mes, podrán ser remunerados, pero estarán sujetos a la aprobación previa de la Dirección General de Servicio Civil, y se otorgarán si el funcionario a quien se le concede el recargo conciente y reúne los requisitos del puesto de la clase superior.

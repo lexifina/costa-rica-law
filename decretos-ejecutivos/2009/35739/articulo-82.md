@@ -1,0 +1,1 @@
+Artículo 82.—Los funcionarios que disfruten de becas nacionales o extranjeras, quedarán obligados a impartir los conocimientos adquiridos, mediante el trabajo práctico y la enseñanza teórica a otros funcionarios, según lo requiera la Institución. La Oficina de Recursos Humanos velará por su cumplimiento.

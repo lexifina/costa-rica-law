@@ -1,0 +1,1 @@
+Artículo 64.—Para obtener derecho a la vacación anual, es necesario que el funcionario haya prestado sus servicios durante cincuenta semanas continuas. Sin embargo, si por cualquier causa, el funcionario terminara su relación laboral antes de cincuenta semanas, tendrá derecho al pago de vacaciones proporcionales, conforme con lo estipulado en el artículo 65 de este reglamento.
