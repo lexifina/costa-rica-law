@@ -1,0 +1,1 @@
+Artículo 7º—Funcionario con más de un cargo. El servidor de un puesto que por Decreto, Ley o disposición interna le corresponda asumir otras funciones donde se recaude, custodie, administre fondos y valores públicos durante un plazo de 16 días o más, deberá rendir una única caución por el monto que corresponda según la clasificación del artículo 10 de este reglamento.

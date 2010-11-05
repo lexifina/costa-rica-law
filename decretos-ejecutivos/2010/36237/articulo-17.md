@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 17.—Los funcionarios que al momento de entrada en vigencia de este Reglamento estén obligados a caucionar contarán con un plazo de un mes calendario para gestionarla y presentar la póliza de fidelidad.

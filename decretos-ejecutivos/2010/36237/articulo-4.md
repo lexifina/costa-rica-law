@@ -1,0 +1,1 @@
+Artículo 4º—Supervisión y cumplimiento. La Unidad de Recursos Humanos, será la encargada de ejecutar las labores relacionadas con el control y supervisión de las garantías que deberán rendir los funcionarios de éste Instituto en los tres niveles de gestión.
