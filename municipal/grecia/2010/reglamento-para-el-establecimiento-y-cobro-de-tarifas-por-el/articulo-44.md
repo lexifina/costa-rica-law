@@ -1,0 +1,1 @@
+Artículo 44.—Efectos del incumplimiento. El incumplimiento de lo expresado en los artículos precedentes será causal de suspensión de las obras por parte del departamento de Planeación y Control Constructivo, seguido de la eliminación de los obstáculos mediante el procedimiento establecido en el presente reglamento, con costo a cargo del propietario del inmueble.

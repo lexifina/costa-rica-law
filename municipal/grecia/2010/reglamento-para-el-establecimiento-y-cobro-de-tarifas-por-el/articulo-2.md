@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente Reglamento tiene por objeto establecer las tarifas que deben pagar los munícipes del cantón Central de Grecia por el incumplimiento de los deberes previstos en el artículo 75 del Código Municipal y el procedimiento para su cobro mediante el artículo 76, 76 bis y 76 ter.

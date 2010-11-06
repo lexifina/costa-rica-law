@@ -1,0 +1,1 @@
+Artículo 35.—Materiales. En la construcción de aceras se usará cualquier material antiderrapante, con base preferiblemente cementicia o similar, como los siguientes: concreto cepillado y martelinado, adoquín o simulación de adoquín, mediante la técnica de concreto estampado.

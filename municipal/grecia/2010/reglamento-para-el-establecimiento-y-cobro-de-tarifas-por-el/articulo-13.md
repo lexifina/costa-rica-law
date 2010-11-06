@@ -1,0 +1,1 @@
+Artículo 13.—Revalorización de multas. Los montos de multas aquí estipulados se actualizarán anualmente, en el mismo porcentaje que aumente el salario base establecido en el artículo 2 de la Ley Nº 7337 del 5 de mayo de 1993.

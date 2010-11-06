@@ -1,0 +1,2 @@
+Artículo 18.—Lugar o medio ignorado por la Administración. Cuando se ignore el lugar para recibir notificaciones, el acto será comunicado mediante edicto en un periódico de circulación nacional, en cuyo caso la comunicación se tendrá por hecha transcurridos cinco días hábiles.
+La publicación que suple la notificación se hará por tres veces consecutivas en el Diario Oficial y los términos se contarán a partir de la última.
