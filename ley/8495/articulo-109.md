@@ -1,0 +1,2 @@
+Artículo 109.—Reglamentación. El Poder Ejecutivo reglamentará la presente Ley dentro de los sesenta días siguientes a su publicación, pero la falta de reglamentación no impedirá que esta se aplique.
+(Así corrida su numeración por el artículo 27 de la ley "Control de Ganado Bovino, prevención y sanción de su Robo, Hurto y Receptación", N° 8799 del 17 de abril de 2010, que lo traspaso del antiguo numeral 103 al 109 actual)

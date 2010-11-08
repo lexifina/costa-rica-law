@@ -1,5 +1,1 @@
-Artículo 7º.- Por toda inscripción nueva se pagará un derecho de
-diez colones (¢ 10.00) y por las renovaciones cinco colones (¢ 5.00). La
-publicación en el Diario Oficial correrá por cuenta del interesado.
-El producto de las inscripciones y renovaciones se acreditará en la
-Administración General de Rentas.
+Artículo 7º.-(Derogado por el artículo 25 aparte b) de la ley "Control de Ganado Bovino, prevención y sanción de su Robo, Hurto y Receptación", N° 8799 del 17 de abril de 2010)
