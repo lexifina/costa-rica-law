@@ -14,3 +14,4 @@ Modifica para la Comisión de Energía Atómica el gasto presupuesto máximo fij
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-07 | la propia norma |
+| 2 | 2010-11-08 | Decreto Ejecutivo 36279 (2010-11-08) |
