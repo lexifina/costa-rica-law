@@ -1,0 +1,1 @@
+Transitorio VIII.—En un término no mayor a cuarenta y ocho horas todo matadero y subasta autorizada deberá señalar al SENASA quienes son las personas de su establecimiento que tendrán la responsabilidad de ser los encargados de recibo del ganado que ingrese a dichos establecimientos.
