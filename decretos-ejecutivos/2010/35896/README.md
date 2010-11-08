@@ -15,3 +15,4 @@ Modifica para el Consejo Nacional para Investigaciones Científicas y Tecnológi
 | --- | --- | --- |
 | 1 | 2010-05-04 | la propia norma |
 | 2 | 2010-08-03 | Decreto Ejecutivo 36136 (2010-08-03) |
+| 3 | 2010-11-08 | Decreto Ejecutivo 36279 (2010-11-08) |
