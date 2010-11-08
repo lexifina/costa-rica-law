@@ -1,0 +1,1 @@
+Artículo 9º—Será obligación de todas las instituciones brindar a la Comisión la información y colaboración que esta requiera para el mejor cumplimiento de sus fines. Asimismo, la Comisión podrá solicitar el apoyo técnico y económico de cualquier institución relacionada con su objetivo y sus funciones, en la medida que el marco jurídico que las rija lo permita.

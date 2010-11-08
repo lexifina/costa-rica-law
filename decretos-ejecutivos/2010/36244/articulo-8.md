@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión celebrará seis reuniones ordinarias al año. Las mismas serán convocadas por el Ministerio de Trabajo y Seguridad Social o por solicitud de cualquiera de las otras personas integrantes. Podrán celebrarse reuniones extraordinarias, cuando sea necesario y por solicitud de cualquiera de los integrantes de la Comisión.
