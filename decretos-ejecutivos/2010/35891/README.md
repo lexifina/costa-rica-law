@@ -14,3 +14,4 @@ Modifica para el Museo de Arte Costarricense el gasto presupuestario máximo fij
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-18 | la propia norma |
+| 2 | 2010-11-08 | Decreto Ejecutivo 36279 (2010-11-08) |
