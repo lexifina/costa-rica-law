@@ -74,3 +74,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 59 | 2010-09-09 | Decreto Ejecutivo 36200 (2010-09-09) |
 | 60 | 2010-10-01 | Decreto Ejecutivo 36211 (2010-10-01) |
 | 61 | 2010-10-01 | Decreto Ejecutivo 36227 (2010-10-01) |
+| 62 | 2010-11-08 | Decreto Ejecutivo 36279 (2010-11-08) |
