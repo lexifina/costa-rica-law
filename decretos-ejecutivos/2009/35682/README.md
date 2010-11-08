@@ -14,3 +14,4 @@ Modifica para el Consejo Nacional de Producción el gasto presupuestario máximo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-19 | la propia norma |
+| 2 | 2010-11-08 | Decreto Ejecutivo 36279 (2010-11-08) |
