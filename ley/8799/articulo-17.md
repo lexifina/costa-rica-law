@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Financiamiento del sistema de información
+El sistema de información se financiará por medio de los recursos adquiridos por la venta de las guías de movilización de ganado bovino y los certificados veterinarios de operación de los transportistas de ganado bovino, junto con los presupuestos ordinarios y extraordinarios del Senasa, las multas señaladas en la presente Ley, las transferencias que haga el Ministerio de Agricultura y Ganadería y los recursos obtenidos por comisos.

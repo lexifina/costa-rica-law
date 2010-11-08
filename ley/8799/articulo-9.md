@@ -1,0 +1,3 @@
+ARTÍCULO 9.- Recepción, adquisición, negociación y comercialización
+Para la recepción, la adquisición, la negociación, la comercialización de partes de ganado, sus productos y subproductos, deberá contarse con la factura comercial que acredite su legítima adquisición. En el caso de canales y medios canales, estos deberán contar con el sello especial establecido en esta Ley, como comprobante de una matanza legítima y autorizada.
+Ningún establecimiento mercantil podrá subastar o realizar acto de comercio alguno con ganado, sus productos o subproductos, que no esté ingresado, receptado o adquirido según ordena esta Ley y su Reglamento.

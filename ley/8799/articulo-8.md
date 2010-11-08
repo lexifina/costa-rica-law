@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Movilización o transporte de productos y subproductos
+El movilizador o transportista de ganado bovino solo podrá movilizar o transportar los animales que corresponda a lo descrito en la guía oficial de movilización y cuando esta guía oficial se encuentre debidamente llena. El movilizador o transportista de productos y subproductos de ganado bovino solo podrá movilizarlos y transportarlos si cuenta con su factura y, en el caso de canales y medios canales, con el sello de matanza impreso; en caso contrario, su acción se entiende como prohibida.
