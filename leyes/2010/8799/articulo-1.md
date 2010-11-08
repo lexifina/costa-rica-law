@@ -1,0 +1,9 @@
+Nº 8799
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+CONTROL DE GANADO BOVINO, PREVENCIÓN Y SANCIÓN
+DE SU ROBO, HURTO Y RECEPTACIÓN
+CAPÍTULO I
+DISPOSICIONES GENERALES
+ARTÍCULO 1.- Interés público de esta Ley
+Declárase de interés público la presente Ley, su Reglamento y su aplicación.

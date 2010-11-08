@@ -1,0 +1,8 @@
+ARTÍCULO 14.- Obligaciones de la autoridad competente
+Es obligación de toda autoridad competente retener el ganado, sus productos y subproductos y, si es del caso, el vehículo en el que se les transporte, así como detener a quienes realicen la acción de transporte y movilización de ganado, sus productos y subproductos, en los siguientes casos:
+a) Que carezcan de la guía oficial de movilización y transporte, en el caso de ganado.
+b) Que carezcan de la factura comercial o los sellos oficiales, en el caso de productos y subproductos de ganado.
+c) Que la guía oficial o la factura presente anomalías en la información consignada, alteraciones en el documento o diferencias en la cantidad, la identificación o la descripción de los animales.
+d) Que irrespeten, de cualquier forma, el control de los puestos en carretera.
+e) Que carezcan de fierro o marca de ganado en el caso de los animales, o bien, del sello del matadero en el caso de los canales y medios canales, según corresponda.
+En cualquiera de los casos anteriores, la autoridad deberá informar de inmediato al fiscal de turno dentro de la jurisdicción que corresponda, para sus respectivos efectos legales y administrativos. Asimismo, esta autoridad deberá necesariamente levantar un acta sobre las anomalías encontradas, indicando, entre otras, el nombre, los dos apellidos y el número de cédula de la persona responsable de movilizar o transportar el ganado, el número de placa y la marca del vehículo, la hora, el lugar y la fecha en que ocurre la movilización y dirigir esta información a las oficinas administrativas de la entidad a la que pertenece, con copia al Senasa.

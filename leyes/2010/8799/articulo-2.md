@@ -1,0 +1,2 @@
+ARTÍCULO 2.-Objetivo
+Esta Ley tiene el objetivo de definir los procedimientos, los mecanismos y las responsabilidades para controlar, regular, prevenir y sancionar el destace, la matanza, el apoderamiento, la movilización, el transporte, la comercialización, el contrabando y la negociación de ganado bovino, así como de sus productos y subproductos, en el territorio nacional de acuerdo con las disposiciones que establece esta Ley y su Reglamento.

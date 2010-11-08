@@ -1,0 +1,2 @@
+ARTÍCULO 24.-Comiso obligatorio
+En cualquiera de los delitos establecidos en esta Ley, o bien, en el hurto o robo de ganado, simple o agravado, regulado en el Código Penal, adicionalmente en forma obligatoria serán sujeto de comiso, a favor de Senasa, los instrumentos con que se cometieron estos delitos y los bienes o valores provenientes de su realización, o que constituyen para el agente un provecho derivado del mismo delito, salvo el derecho que sobre ellos tenga el ofendido o terceros.
