@@ -14,3 +14,4 @@ Lista de Valores de Vehículos Automotores, Embarcaciones y Aeronaves
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-01 | la propia norma |
+| 2 | 2010-11-09 | Decreto Ejecutivo 36285 (2010-11-09) |

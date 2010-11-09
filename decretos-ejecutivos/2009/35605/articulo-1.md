@@ -1,4 +1,6 @@
+(Derogado)
 N° 35605-H
+(Este decreto fue derogado por el artículo 6° del decreto ejecutivo N° 36285 del 9 de noviembre de 2010, "Lista de Valores de Vehículos Automotores, Embarcaciones y Aeronaves")
 EL PRESIDENTE DE LA REPUBLICA
 Y LA MINISTRA DE HACIENDA
 Con fundamento en 10 establecido en los artículos 140, incisos 3) y 18 de la Constitución Política, los artículos 25 y 28 de la Ley General de la Administración Publica, N° 6227 del 2 de mayo de 1978 y el articulo 9° de la Ley N° 7088 del 30 de noviembre de 1987 y sus reformas,
