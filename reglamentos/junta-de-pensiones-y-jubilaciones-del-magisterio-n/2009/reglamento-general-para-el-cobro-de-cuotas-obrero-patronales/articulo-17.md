@@ -1,1 +1,1 @@
-Artículo 17.—De la suspensión de las diligencias cobratorias. Sólo en los casos que los patronos o sus trabajadores entreguen la totalidad de la información solicitada, estando en curso la investigación, se suspenderán las diligencias cobratorias posteriores.
+Artículo 17.—De la suspensión de las diligencias cobratorias. Solo en los casos que los patronos o sus trabajadores entreguen la totalidad de la información solicitada, estando en curso la investigación, se suspenderá las diligencias cobratorias posteriores.

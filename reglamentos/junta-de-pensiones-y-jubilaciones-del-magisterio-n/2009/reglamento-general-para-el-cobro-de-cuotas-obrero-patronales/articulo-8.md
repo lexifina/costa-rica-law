@@ -1,1 +1,1 @@
-Artículo 8º—Formato para la presentación de las planillas. La Junta de Pensiones pondrá a disposición de los Centros Educativos Públicos y Privados, conforme con las posibilidades tecnológicas de estos, un formato de uso obligatorio para la presentación mensual de las planillas.
+Artículo 8º—Presentación de las planillas. La Junta de Pensiones pondrá a disposición de los Centros Educativos, Públicos y Privados, conforme con las posibilidades tecnológicas de estos, una herramienta tecnológica de uso obligatorio para la presentación mensual de las planillas.
