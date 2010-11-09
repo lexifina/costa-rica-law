@@ -1,0 +1,3 @@
+DIRECCIÓN GENERAL DE AVIACIÓN CIVIL
+El Consejo Técnico de Aviación Civil y la Dirección General de Aviación Civil, comunican que se encuentra realizando un estudio conforme a lo requerido por el Consejo Técnico de Aviación Civil en la Sección Ordinaria 75-2007 sobre la prestación de los servicios de Naturaleza Técnica Aeronáutica en los diferentes aeropuertos internacionales del país, por tal motivo no estará recibiendo para tramitación ninguna solicitud para el otorgamiento de un certificado de explotación para las actividades aeronáuticas comprendidas dentro de los servicios de Naturaleza Técnica Aeronáutica hasta enero del 2011.
+San José, 22 de octubre de 2010.
