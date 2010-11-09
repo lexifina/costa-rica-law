@@ -1,0 +1,4 @@
+SECCIÓN SEGUNDA
+Agencia de seguros
+Artículo 8º—Intermediación de seguros por agentes de seguros de sociedades agencias de seguros. Los agentes de seguros de sociedades vinculados a agencias de seguros exclusivas, únicamente podrán intermediar seguros de la entidad aseguradora con la que la sociedad agencia de seguros mantiene exclusividad. Los agentes de seguros de sociedades agencias de seguros no exclusivas solamente podrán intermediar seguros de las entidades aseguradoras que hayan acreditado a su sociedad agencia de seguros, en el tanto sean autorizados para ello.
+Los agentes de seguros no vinculados a una sociedad agencia de seguros, solamente podrán intermediar seguros de las entidades aseguradoras por las que se encuentren acreditados, en el tanto se encuentren autorizados para ello.

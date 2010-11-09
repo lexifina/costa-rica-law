@@ -1,0 +1,4 @@
+SECCIÓN TERCERA
+Correduría de seguros
+Artículo 10.—Sociedades corredoras de seguros y corredores de seguros. Las sociedades corredoras de seguros son personas jurídicas inscritas en el Registro Mercantil como sociedades anónimas, cuyo objeto social exclusivo será la intermediación de seguros bajo la figura de correduría de seguros. Deberán contar con la autorización administrativa emitida por la Superintendencia. Dicha intermediación la realizará sin que actúe en nombre ni por cuenta de una o varias entidades aseguradoras y la ejercerá únicamente mediante corredores que cuenten con la licencia y acreditación correspondientes.
+El corredor de seguros es el intermediario de seguros, persona física con licencia de la Superintendencia para esos efectos y que debe estar acreditado por una sociedad corredora de seguros para ejercer la actividad de intermediación.
