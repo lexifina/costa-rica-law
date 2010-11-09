@@ -14,3 +14,4 @@ Actualización requisitos para trámites relacionados con desarrollo habitaciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-29 | la propia norma |
+| 2 | 2010-11-09 | Acuerdo 634 (2010-11-09) |
