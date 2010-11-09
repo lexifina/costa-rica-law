@@ -1,0 +1,7 @@
+2.- Modificar el artículo 41 del Acuerdo SUGESE 01-08, “Reglamento sobre autorizaciones, registros y requisitos de funcionamiento de entidades supervisadas por la Superintendencia General de Seguros”, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero mediante artículo 6 del acta de la sesión 744-2008, celebrada el 18 de setiembre del 2008 y publicado en el Diario Oficial La Gaceta 184 del 24 de setiembre del 2008, para que en adelante se lea así:
+“Artículo 41.—Suspensión y cancelación de la autorización, licencia o registro
+Previo procedimiento administrativo, la Superintendencia podrá suspender o cancelar la autorización, licencia o registro, según corresponda:
+a.- Cuando se le lleve a error mediante la presentación de documentación falsa declarada por una autoridad judicial, o por información errónea o engañosa, o cuando el acto autorizado no corresponda con la verdadera naturaleza de los hechos.
+b.- Cuando se incumplan requisitos de autorización, de registros y de funcionamiento, establecidos por el marco legal correspondiente.
+Previo a la suspensión o cancelación, la Superintendencia debe adoptar las medidas prudenciales necesarias para salvaguardar los intereses de los asegurados, beneficiarios, acreedores e inversionistas y la estabilidad del Sistema Financiero Nacional.
+Contra el acto de suspensión o de cancelación caben los recursos dispuestos en la Ley General de la Administración Pública.”
