@@ -17,3 +17,4 @@ Información de trámites y requisitos que se realizan ante el AYA con ocasión 
 | 2 | 2005-07-06 | Acuerdo 493 (2005-07-06) |
 | 3 | 2006-09-11 | Acuerdo 524 (2006-09-11) |
 | 4 | 2008-02-05 | Acuerdo 68 (2008-02-05) |
+| 5 | 2010-11-09 | Acuerdo 634 (2010-11-09) |
