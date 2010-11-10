@@ -22,17 +22,17 @@ d) Aunque se produzcan varias transacciones del bien objeto del impuesto, este s
 e) Comprobación del pago del impuesto para la inscripción. El Registro de la Propiedad de Vehículos, el Registro de Aviación Civil o la Dirección General de Transporte Marítimo, no dará curso al traspaso de vehículos, aeronaves o embarcaciones, si el solicitante no está al día en el pago de este impuesto.
 Para cumplir con lo anteriormente dispuesto, el contribuyente deberá presentar ante el registro respectivo, el comprobante de pago del impuesto, referido al período fiscal correspondiente, tal como se establezca en el reglamento.
 f) Cálculo del impuesto.
-Las tarifas establecidas son progresivas. EI impuesto se pagara sobre el valor que tengan, en el mercado interne, en enero de cada año, Ios vehículos, Ias aeronaves o las embarcaciones de recreo, según la lista que el Poder Ejecutivo emitirá, por decreto para cada marca, año, carrocería y estilo.
-EI impuesto se pagara con forme a la tabla siguiente:
+Las tarifas establecidas son progresivas. El impuesto se pagará sobre el valor que tengan, en el mercado interno, en enero de cada año, los vehículos, las aeronaves o las embarcaciones de recreo, según la lista que el Poder Ejecutivo emitirá, por decreto para cada marca, año, carrocería y estilo.
+El impuesto se pagará conforme a la tabla siguiente:
 Valor Tasa
-Hasta ¢ 550.000 ¢ 20,400.00
-Sobre el exceso de ¢ 550.000,00 y hasta ¢ 2.180.000,00 1.2%
-Sobre el exceso de ¢ 2.180.000,00 y hasta ¢ 4.330.000,00 1.5%
-Sobre el exceso de ¢ 4.330.000,00 Y hasta ¢ 6.500.000,00 2.0%
-Sobre el exceso de ¢ 6.500.000,00 y hasta ¢ 8.120.000,00 2.5%
-Sobre el exceso de ¢ 8.120.000,00 y hasta ¢9,750.000,00 3.0%
-Sobre el exceso de ¢ 9.750.000,00 3.5.%
-(Así modificado por el artículo 1° del decreto ejecutivo N° 35605 del 30 de octubre de 2009. De igual manera ver tambien los artículos 2°, 3°, 4°, y 5°, del mismo decreto)
+Hasta ¢ 520.000 ¢ 21,400.00
+Sobre el exceso de ¢ 520.000,00 y hasta ¢ 2.070.000,00 1.2 %
+Sobre el exceso de ¢ 2.070.000,00 y hasta ¢ 4.110.000,00 1.5 %
+Sobre el exceso de ¢ 4.110.000,00 y hasta ¢ 6.180.000,00 2.0 %
+Sobre el exceso de ¢ 6.180.000,00 y hasta ¢ 7.710.000,00 2.5 %
+Sobre el exceso de ¢ 7.710.000,00 y hasta ¢9.260.000,00 3.0%
+Sobre el exceso de ¢ 9.260.000,00 3.5. %
+(Así modificado por el artículo 1° del decreto ejecutivo N° 36285 del 9 de noviembre de 2010. De igual manera ver también los artículos 2°, 3°, 4°, y 5°, del mismo decreto)
 *El Poder Ejecutivo actualizará la lista de valores de los vehículos citados en el párrafo primero de este numeral; asimismo, los montos de la tabla anterior, con un índice de valuación determinado por el comportamiento de la tasa de inflación (índice de precios al consumidor que calcula la Dirección General de Estadística y Censos), una tasa de depreciación anual del diez por ciento (10 %) y la tasa de variación de la carga tributaria que afecta la importación de cada tipo de vehículo. Con base en el crecimiento de la tasa de inflación, la tasa mínima de seis mil colones (¢6.000.oo) se actualizará anualmento mediante decreto ejecutivo.
 (*)(Ver lista de valores de los vehículos, actualizada en el Alcance N° 51 a La Gaceta N ° 234 del 3 de diciembre de 2008).
 Las tarifas porcentuales establecidas para los fines de este impuesto no podrán ser variadas.
