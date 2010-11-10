@@ -1,0 +1,1 @@
+Artículo 14.—El retiro por justa causa de cualquier institución miembro del SINAES será conocido por el Consejo Nacional de Acreditación ya sea de oficio, a solicitud de la Dirección del SINAES o por denuncia debidamente suscrita por cualquier interesado.

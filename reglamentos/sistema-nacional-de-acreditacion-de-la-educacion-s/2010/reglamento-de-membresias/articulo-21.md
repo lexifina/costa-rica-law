@@ -1,0 +1,1 @@
+Artículo 21.—Una vez entregado el expediente completo al tribunal arbitral, su resolución deberá ser dictada dentro de los treinta días hábiles siguientes. Su resolución será de acatamiento obligatorio y los honorarios arbitrales correrán a cargo y por cuenta exclusivos de la parte perdidosa, en su totalidad.

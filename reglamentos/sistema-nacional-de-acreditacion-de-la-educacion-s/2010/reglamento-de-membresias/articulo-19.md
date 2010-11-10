@@ -1,0 +1,1 @@
+Artículo 19.—En ningún caso procederá la devolución del aporte de afiliación que hubiere sido pagado por la institución que pierda su membresía. Para solicitar nuevamente su afiliación, la institución deberá cumplir nuevamente los requisitos señalados en este Reglamento.

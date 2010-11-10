@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros asociados no podrán utilizar los emblemas ni la denominación SINAES en ninguna publicación, propaganda, presentación ni papelería. El SINAES será el encargado de divulgar dicha condición por sus propios medios de comunicación.

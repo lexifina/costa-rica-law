@@ -1,0 +1,1 @@
+Artículo 15.—Recibida la denuncia, el Consejo conformará una comisión integrada por tres personas, quienes le rendirán un informe sobre el objeto del incumplimiento o de lo denunciado dentro del plazo que les sea señalado al efecto.

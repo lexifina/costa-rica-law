@@ -1,0 +1,1 @@
+Artículo 13.—La pérdida de membresía de los miembros plenos se dará, además, por la pérdida de su acreditación institucional o de la acreditación oficial del 50% o más de sus carreras o programas de postgrado previamente acreditados por SINAES.
