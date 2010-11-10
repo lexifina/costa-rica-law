@@ -1,0 +1,1 @@
+Artículo 6º—Recursos: El SENASA podrá gestionar ante organismos nacionales o internacionales, recursos financieros y logísticos necesarios para fortalecer la estrategia de la gestión del Consejo Epidemiológico.
