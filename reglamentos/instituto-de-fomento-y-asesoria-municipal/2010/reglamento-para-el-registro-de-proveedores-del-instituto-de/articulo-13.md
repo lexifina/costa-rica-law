@@ -1,0 +1,1 @@
+Artículo 13.—Los proveedores potenciales incluidos en el Registro de Proveedores están en la obligación de comunicar a la Proveeduría todo cambio en sus datos según los requerimientos indicados en el artículo 7º.

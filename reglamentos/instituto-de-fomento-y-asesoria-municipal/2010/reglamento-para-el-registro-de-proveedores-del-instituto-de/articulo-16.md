@@ -1,0 +1,1 @@
+Artículo 16.—El criterio que se utilizará para rotar a los proveedores al momento de cursar las invitaciones a participar será la fecha de aceptación de la inscripción en el Registro de Proveedores y la recurrencia de la compra por objeto de contratación.
