@@ -14,3 +14,4 @@ Reglamento de Concurso Público para la Selección y Nombramiento del Auditor In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-25 | la propia norma |
+| 2 | 2010-11-10 | Reglamento municipal 0 (2010-11-10) |
