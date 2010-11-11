@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE POCOCÍ
+AVISOS
+La Municipalidad de Pococí comunica al público en general, que mediante acuerdo Nº 2132 de la sesión 74 del 1º de octubre del 2010, el Concejo acordó acogerse a todos los efectos de la Ley Nº 8818 denominada “Autorización para que las Municipalidades y los Concejos Municipales de Distrito condonen deudas por concepto de recargos, intereses y multas”, publicada en La Gaceta Nº 112 del jueves 10 de junio de 2010. Los efectos de esta ley, para el caso de la jurisdicción territorial de Pococí, regirá a partir de la publicación de este aviso en el Diario Oficial, hasta el 11 de agosto del 2011. Los períodos condonados únicamente comprenderán la totalidad de las deudas por concepto de obligaciones de carácter municipal, incluso por el impuesto sobre bienes inmuebles, pendientes hasta el 30 de junio de 2010, inclusive.
+Guápiles, 25 de octubre del 2010.—
