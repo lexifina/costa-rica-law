@@ -1,0 +1,2 @@
+Artículo 2º—Determinación de la fecha y lugar de las elecciones. Las elecciones de los representantes se realizarán el día 18 de noviembre de 2010, en el Gimnasio del Liceo Escuela María Auxiliadora, sito en San José, Barrio don Bosco, 100 metros oeste y 200 metros sur del Edificio Torre Mercedes, Paseo Colón.
+El Secretario del Consejo Superior de Educación, asistirá a la jornada electoral, como observador del proceso.
