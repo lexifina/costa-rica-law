@@ -14,3 +14,4 @@ Reglamento al Fondo Especial para el Desarrollo de las Micros, Pequeñas y Media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-14 | la propia norma |
+| 2 | 2010-11-12 | Decreto Ejecutivo 36340 (2010-11-12) |
