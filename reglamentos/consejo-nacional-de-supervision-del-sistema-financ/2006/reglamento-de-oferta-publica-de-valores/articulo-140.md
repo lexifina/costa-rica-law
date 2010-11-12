@@ -1,5 +1,2 @@
-Artículo 140.—Requisitos para la negociación. Para la realización de las negociaciones a que se refieren estas disposiciones, las bolsas de valores y los puestos de bolsa deberán cumplir con los siguientes requisitos:
-a) Las operaciones deberán realizarse en transacciones separadas del mercado para valores de oferta pública.
-b) En las órdenes de inversión, así como en los contratos que se suscriban con los clientes, debe constar en forma expresa la aceptación y conocimiento del cliente sobre la naturaleza de estas operaciones. Asimismo, las boletas derivadas de estas transacciones, que se entregarán al cliente, deberán contener la siguiente leyenda en forma visible:
-"Esta operación se hizo bajo la responsabilidad exclusiva de las partes y los títulos o valores transados no están suj etos a la supervisión de la Superintendencia General de Valores, de conformidad con lo establecido en el Artículo 22 de la Ley Reguladora del Mercado de Valores, ni pueden formar parte de las carteras de los fondos de inversión."
+Artículo 140.—Requisitos para la negociación. (Derogado por el anexo 4 del "Reglamento de Bolsas de Valores," aprobado mediante sesión N° 890-2010 del 12 de noviembre de 2010)
 (Así corrida su numeración en sesión N°881-2010 del 17 de setiembre de 2010, que lo traspasó del antiguo artículo 118 al 140 actual)

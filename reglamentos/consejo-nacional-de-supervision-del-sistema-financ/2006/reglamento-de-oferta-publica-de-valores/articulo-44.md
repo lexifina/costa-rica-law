@@ -1,2 +1,1 @@
-Artículo 44.—Colocación por subasta fuera de bolsa. Se consideran colocaciones por subasta fuera de bolsa las que realiza directamente el emisor a los inversionistas en sus oficinas o por medios electrónicos previamente autorizados por la SUGEVAL.
-El emisor deberá establecer en forma clara en el prospecto las reglas que utilizará para la asignación, los casos en que se considerará desierta una subasta y los mecanismos para asegurar la transparencia en el proceso.
+Artículo 44.—(Derogado por el anexo 4 del "Reglamento de Bolsas de Valores," aprobado mediante sesión N° 890-2010 del 12 de noviembre de 2010)

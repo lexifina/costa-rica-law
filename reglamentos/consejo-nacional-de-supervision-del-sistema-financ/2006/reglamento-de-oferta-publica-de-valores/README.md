@@ -16,3 +16,4 @@ Reglamento de Oferta Pública de Valores
 | 1 | 2006-05-09 | la propia norma |
 | 2 | 2008-06-20 | Reglamento 724 (2008-06-20) |
 | 3 | 2010-09-17 | Reglamento 881 (2010-09-17) |
+| 4 | 2010-11-12 | Reglamento 890 (2010-11-12) |
