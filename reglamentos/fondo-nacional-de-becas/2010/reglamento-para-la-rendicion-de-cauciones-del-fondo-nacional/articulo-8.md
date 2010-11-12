@@ -1,0 +1,2 @@
+Artículo 8º—Interinos y suplentes. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los puestos o cargos mencionados en el artículo 12, deberán rendir garantía cuando su nombramiento sea mayor de un mes.
+El Departamento de Recursos Humanos prevendrá de la obligación de rendir la caución cuando tenga conocimiento de que el nombramiento interino o la suplencia sean superiores al mes.

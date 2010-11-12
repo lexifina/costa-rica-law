@@ -1,0 +1,1 @@
+Artículo 10.—Cálculo de la caución en el nivel B. Quienes desempeñen puestos contemplados en este nivel, deberán rendir una caución equivalente a dos salarios base. El Departamento de Recursos Humanos del Fondo Nacional de Becas establecerá las personas que conforme con el Nivel B deben rendir la caución respectiva.

@@ -1,0 +1,1 @@
+Artículo 9º—Cálculo de la caución en el nivel A. Quienes desempeñen los puestos contemplados en este nivel, deberán rendir una caución equivalente a tres salarios base. El Departamento de Recursos Humanos del Fondo Nacional de Becas establecerá las personas que conforme con el Nivel A deben rendir la caución respectiva.

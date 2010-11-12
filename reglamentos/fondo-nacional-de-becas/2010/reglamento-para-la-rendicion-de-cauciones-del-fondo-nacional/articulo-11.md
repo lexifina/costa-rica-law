@@ -1,0 +1,1 @@
+Artículo 11.—Cálculo de la caución en el nivel C. Quienes desempeñen puestos contemplados en este nivel, deberán rendir una caución equivalente a un salario base. El Departamento de Recursos Humanos del Fondo Nacional de Becas establecerá las personas que conforme con el Nivel C deben rendir la caución respectiva.
