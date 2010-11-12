@@ -1,0 +1,1 @@
+Artículo 21.—Para variar las rutas, horarios o la frecuencia del servicio deberá comunicarse a los usuarios con al menos 10 días hábiles de antelación, por escrito, mediante volantes, carteles, u otros medios adecuados de información.

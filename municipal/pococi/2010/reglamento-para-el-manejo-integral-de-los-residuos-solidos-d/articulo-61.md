@@ -1,0 +1,1 @@
+Artículo 61.—La Municipalidad con base en un estudio específico según los lineamientos que especifique la Contraloría General de la República, podrá categorizar los usuarios del servicio de recolección de residuos, según el volumen o peso de los residuos sólidos generados o producidos por semana, o el plazo que se establezca para la categorización.

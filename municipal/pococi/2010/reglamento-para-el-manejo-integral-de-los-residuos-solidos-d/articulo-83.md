@@ -1,0 +1,1 @@
+Artículo 83.—El incumplimiento o irrespeto las disposiciones y lineamientos del presente reglamento podrá significar el retiro o suspensión, temporal o definitiva, de la patente o licencia comercial, según corresponda.

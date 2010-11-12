@@ -1,0 +1,1 @@
+Artículo 33.—Toda persona física o jurídica que sea generador de cualquier residuo sólido, será responsable de tomar y acatar las medidas tendientes a evitar, reducir, recuperar, reciclar, manejar y almacenar de manera sanitaria sus residuos sólidos, conforme a los establecidos en este Reglamento, la legislación ambiental y sanitaria nacional vigente.

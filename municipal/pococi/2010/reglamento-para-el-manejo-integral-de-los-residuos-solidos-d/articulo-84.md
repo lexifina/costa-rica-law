@@ -1,0 +1,1 @@
+Artículo 84.—Las actividades industriales, agrícolas, ganaderas, turísticas, y demás comerciales, deberán contar con un plan de manejo integral de residuos sólidos, de lo contrario podrá significar el retiro o suspensión, temporal o definitiva, de la patente o licencia comercial, según corresponda.

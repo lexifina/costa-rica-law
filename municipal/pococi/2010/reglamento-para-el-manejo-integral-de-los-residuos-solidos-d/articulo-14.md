@@ -1,0 +1,1 @@
+Artículo 14.—La Municipalidad no está en la obligación de prestar el servicio de recolección de desechos peligrosos provenientes de industria, servicios de salud, comerciales, habitacionales ni otra actividad alguna, sin excepción.

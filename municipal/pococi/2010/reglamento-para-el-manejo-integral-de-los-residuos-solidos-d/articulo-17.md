@@ -1,0 +1,1 @@
+Artículo 17.—Toda persona física o jurídica deberá mantener almacenados en forma higiénica, sanitaria y responsable los residuos sólidos dentro de su propiedad o vivienda, hasta que sean entregadas a los servicios de recolección o recuperación.

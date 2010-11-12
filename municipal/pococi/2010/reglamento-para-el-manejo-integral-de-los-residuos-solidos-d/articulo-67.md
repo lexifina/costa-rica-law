@@ -1,0 +1,1 @@
+Artículo 67.—La Municipalidad creará e implementará un programa de incentivos para aquellos usuarios del servicio de recolección que reduzcan el volumen o peso de residuos sólidos que generen, así como para las personas físicas o jurídicas que recuperen residuos sólidos para reutilización o reciclaje.

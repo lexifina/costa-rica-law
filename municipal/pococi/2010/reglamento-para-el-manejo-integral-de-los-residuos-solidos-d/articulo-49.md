@@ -1,0 +1,1 @@
+Artículo 49.—Los residuos provenientes de casas o actividades domiciliares, tales como: agujas, aerosoles, bombillos, fluorescentes, pilas, pañales, envases de vacunas, y otros similares, deberán ser dispuestos en bolsas plásticas debidamente identificadas.

@@ -1,0 +1,1 @@
+Artículo 30.—Las viviendas cuyo acceso sea por alamedas, servidumbre de paso o calles privadas, o en donde por condiciones de acceso el camión recolector no pueda llegar, estarán en la obligación de sacar a la entrada de dicha calle o servidumbre sus residuos sólidos al momento en que se esté efectuando la recolección.

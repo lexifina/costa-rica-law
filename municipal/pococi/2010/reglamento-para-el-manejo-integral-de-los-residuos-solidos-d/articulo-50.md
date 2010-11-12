@@ -1,0 +1,1 @@
+Artículo 50.—Cuando los residuos por su contenido representen un riesgo inminente para la integridad física de trabajadores de la recolección (vidrios u otros punzo cortantes), deberán de empacarse con envolturas protectoras (cartón o plástico) y se indicará en el empaque por su parte exterior que se trata de desechos punzo-cortantes.

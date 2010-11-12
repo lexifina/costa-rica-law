@@ -1,0 +1,1 @@
+Artículo 72.—Queda prohibido a toda persona física o jurídica, contribuyente, particular, patentado o instituciones públicas, privadas, gubernamentales y no gubernamentales, sacar de sus propiedades los residuos sólidos para su recolección en los días distintos a los horarios y rutas establecidas por la Municipalidad.

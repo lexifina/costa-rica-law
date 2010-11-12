@@ -1,0 +1,1 @@
+Artículo 59.—Para el funcionamiento de todo proyecto de Relleno Sanitario, Privados o Públicos independiente de su tipo o tamaño, el Ministerio de Salud deberá emitir un permiso de funcionamiento, según el Reglamento General sobre el Otorgamiento de Permisos Sanitario de Funcionamiento, Decreto Nº 34728-S, y normativas anexas para Relleno Sanitarios.

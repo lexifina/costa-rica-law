@@ -1,0 +1,1 @@
+Artículo 11.—Quien organice o sea responsable de un evento deberá responder por la limpieza de vías y recolección de los residuos generados durante el mismo, así como daños a la propiedad pública que pudiera causar, hasta 12 horas después de finalizado el evento.

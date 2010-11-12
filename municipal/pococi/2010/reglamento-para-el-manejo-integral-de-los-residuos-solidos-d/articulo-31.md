@@ -1,0 +1,1 @@
+Artículo 31.—Toda persona que pasee a sus animales por áreas y vías públicas deberá hacerse cargo de los residuos (excretas, vómitos, entre otros) que éstos generen. Deberán recogerlos y disponerlos en un lugar adecuado.

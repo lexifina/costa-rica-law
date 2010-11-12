@@ -1,0 +1,1 @@
+Artículo 16.—Todo vehículo utilizado para el trasporte de animales, mermas o desperdicios, y/o la recolección de residuos sólidos deberá contar con las condiciones necesarias para que no se filtren, se derramen líquidos o sustancias, o caigan excretas, residuos o material alguno, en la vía y/o área pública.

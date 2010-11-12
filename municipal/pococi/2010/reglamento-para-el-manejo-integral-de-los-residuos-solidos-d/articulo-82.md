@@ -1,0 +1,1 @@
+Artículo 82.—Las personas físicas o jurídicas usuarias que incumplan con el presente reglamento, serán denunciados ante las instituciones correspondientes como Ministerio de Salud, Dirección de Tránsito y los Tribunales de Justicia.

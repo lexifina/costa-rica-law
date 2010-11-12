@@ -1,0 +1,1 @@
+Artículo 43.—La Municipalidad conjuntamente con las autoridades respectivas del MEP y con la colaboración de otras instituciones afines como MINAET y el Ministerio de Salud, establecerán y realizarán un programa permanente de sensibilización y capacitación en el manejo integral de Residuos Sólidos. Igualmente, se podrá acudir a los servicios de Organizaciones No Gubernamentales.

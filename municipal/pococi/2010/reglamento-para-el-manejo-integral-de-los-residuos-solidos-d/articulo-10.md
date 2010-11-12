@@ -1,0 +1,1 @@
+Artículo 10.—La recolección de residuos no tradicionales o de eventos especiales correrán por cuenta de cada propietario de inmueble, organización comunal o particular responsable, salvo que solicite el servicio a la Municipalidad, para lo cual deberá acatar las disposiciones emitidas en el presente Reglamento.

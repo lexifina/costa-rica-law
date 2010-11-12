@@ -1,0 +1,1 @@
+Artículo 70.—Queda prohibido a toda persona física o jurídica utilizar medios de transporte, tratamiento o disposición final de los residuos sólidos que no cuenten con debida autorización del Ministerio de Salud y/o SENASA.

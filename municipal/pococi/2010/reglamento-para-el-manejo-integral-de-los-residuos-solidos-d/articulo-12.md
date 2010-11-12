@@ -1,0 +1,1 @@
+Artículo 12.—Se dará recolección a los residuos provenientes de Hospitales, establecimientos de salud y afines, los cuales deben cumplir con las directrices del Reglamento de Manejo de Desechos Infecto Contagiosos, Decreto Nº 30965-S.

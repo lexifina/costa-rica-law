@@ -1,0 +1,1 @@
+Artículo 9º—El contrato que realice la Municipalidad con empresas privadas o con particulares, no exime a la Municipalidad de la responsabilidad de la recolección, trasporte y disposición final de los residuos sólidos.

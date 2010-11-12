@@ -1,0 +1,1 @@
+Artículo 75.—Se prohíben a toda persona física o jurídica distinta al personal de recolección o aseo de vías de la Municipalidad o concesionario, remover o extraer el contenido total o parcial de los recipientes para residuos, una vez que han sido colocados en el sitio de recolección.

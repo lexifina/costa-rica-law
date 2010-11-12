@@ -1,0 +1,1 @@
+Artículo 62.—La Municipalidad clasificará las unidades habitacionales, patentados e instituciones públicas, privadas, comerciales, gubernamentales y no gubernamentales, en categorías según la proporción estimada de residuos tradicionales que se generen por semana.

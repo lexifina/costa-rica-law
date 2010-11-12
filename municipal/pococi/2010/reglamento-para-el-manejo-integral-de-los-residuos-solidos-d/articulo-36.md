@@ -1,0 +1,1 @@
+Artículo 36.—Las empresas agrícolas, ganaderas, industriales y comerciales, deberán disponer de un sistema de recuperación, separación, acopio, recolección y disposición final de los desechos sólidos provenientes de sus operaciones, aprobado por el Ministerio de Salud y/o SENASA, o a quien corresponda tal aprobación.

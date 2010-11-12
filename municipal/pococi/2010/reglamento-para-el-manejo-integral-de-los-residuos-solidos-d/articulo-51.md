@@ -1,0 +1,1 @@
+Artículo 51.—La maleza, los escombros u otros objetos que estén en una vía pública, frente a una casa de habitación o edificio, en las zonas urbanas o semiurbanas, deben ser retirados por el propietario.

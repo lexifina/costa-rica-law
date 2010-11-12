@@ -1,0 +1,1 @@
+Artículo 15.—Todo vehículo o medio existente que se utilizara para el trasporte de residuos o desechos sólidos debe contar con el respectivo permiso del Ministerio de Salud y/o SENASA, y deberá contar con identificación y rotulación.

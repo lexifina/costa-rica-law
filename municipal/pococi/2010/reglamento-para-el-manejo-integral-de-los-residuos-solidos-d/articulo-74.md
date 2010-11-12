@@ -1,0 +1,1 @@
+Artículo 74.—Se prohíbe a toda persona física o jurídica depositar animales muertos, residuos especiales, residuos no tradicionales, sustancias líquidas, excretas, vómitos, o cualquier residuo sólido que no se considere como tradicional u ordinario, en los recipientes para residuos sólidos colocados en vías y/o áreas públicas.

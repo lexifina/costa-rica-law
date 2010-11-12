@@ -1,0 +1,1 @@
+Artículo 13.—Los residuos sépticos, provenientes de los tanques sépticos y lagunas de oxidación sólo podrán ser recolectados y trasportados por entes autorizados por el Ministerio de Salud, y dichos residuos deberán ser dispuestos de manera adecuada en los sitios autorizados para tal fin.

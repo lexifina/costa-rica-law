@@ -1,0 +1,1 @@
+Artículo 38.—El Ministerio de Salud y/o SENASA serán los responsables de dar el seguimiento de los planes de manejo integral de residuos sólidos en establecimientos y actividades comerciales, agrícolas, ganaderas e industriales.

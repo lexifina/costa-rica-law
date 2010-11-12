@@ -1,0 +1,1 @@
+Artículo 35.—Las actividades comunales, comerciales e institucionales públicas, privadas, gubernamentales y no gubernamentales, deberán contar con un plan de manejo integral de residuos sólidos, aprobado por el Ministerio de Salud y/o SENASA, el cual debe incluir la separación, recuperación y la estrategia de entrega de los residuos sólidos recuperados.

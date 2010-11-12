@@ -1,0 +1,1 @@
+Artículo 23.—En caso de que los residuos sólidos sean esparcidos durante el proceso de recolección, el personal municipal o ente responsable delegado a cargo del servicio, deberá de proceder a su inmediata recolección.

@@ -1,0 +1,1 @@
+Artículo 22.—La recolección de los residuos será efectuada por el personal de la Municipalidad, salvo los residuos recuperables que serán recolectados por la o las personas autorizadas e identificadas, bajo las condiciones establecidas por convenio o contrato, ambos de acuerdo a los días y rutas establecidos.

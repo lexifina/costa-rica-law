@@ -1,0 +1,1 @@
+Artículo 65.—Toda persona física o jurídica podrá presentar su respectivo reclamo si considera que el factor de ponderación que se le aplica no está acorde con el promedio de generación de basura semanal, o si considera que el cobro por el uso del servicio de relleno sanitario no es el adecuado.

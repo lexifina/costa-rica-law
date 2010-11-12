@@ -1,0 +1,1 @@
+Artículo 24.—En caso de que una persona física o jurídica, ente o empresa, decida utilizar sus propios medios o contraten a terceros para la recolección y transporte de los residuos sólidos que genere, debe asegurar que los mismo no queden esparcidos durante el proceso de recolección y transporte; de lo contrario deberá de proceder a su inmediata recolección.

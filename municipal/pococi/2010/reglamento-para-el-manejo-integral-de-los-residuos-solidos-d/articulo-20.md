@@ -1,0 +1,1 @@
+Artículo 20.—El horario de recolección será una constante, y obliga al ente que brinde el servicio a tener en cuenta posibles imprevistos que se presenten, para que cumplan eficientemente con el servicio.
