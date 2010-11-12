@@ -14,3 +14,4 @@ Procedimiento para el Cálculo del Nivel de Apalancamiento para Emisores no Fisc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-15 | la propia norma |
+| 2 | 2010-11-12 | Acuerdo 174 (2010-11-12) |

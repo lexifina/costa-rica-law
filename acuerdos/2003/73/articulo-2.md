@@ -1,2 +1,5 @@
-Artículo 2°—Presentación de información sobre las utilidades restringidas.
-En el caso de utilidades restringidas, deberá presentarse a esta Superintendencia, en el transcurso del mes en que la asamblea toma la decisión, con una copia certificada por notario público del respectivo acuerdo de restricción
+Artículo 2. Partidas a considerar para el cálculo
+En el numerador debe considerarse todos los pasivos del emisor; entiéndase como tales todos aquellos registrados, de conformidad con las normas de contabilidad aplicables; incluidas las provisiones exigidas por concepto de pasivos contingentes y las acciones preferentes que deban ser reconocidas como pasivo financiero, de conformidad con dichas normas.
+En el denominador debe considerarse el patrimonio total del emisor (activos menos pasivos), menos las utilidades no distribuidas disponibles (aquellas que no están restringidas mediante un acuerdo de asamblea).
+En el caso de entidades municipales, en el denominador debe considerarse la totalidad del erario, menos el monto correspondiente a la participación de la municipalidad en sociedades públicas de economía mixta.
+En el caso de instituciones públicas cuya ley especial de constitución establezca expresamente la prohibición para que la entidad distribuya las utilidades obtenidas, en el denominador debe considerarse la totalidad de las utilidades.

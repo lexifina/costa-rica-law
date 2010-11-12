@@ -1,2 +1,2 @@
-Artículo 3°—Vigencia.
-Rige a partir de su comunicación.
+Artículo 3. Presentación de información sobre las utilidades restringidas
+Para efectos de considerar en el cálculo del apalancamiento, las utilidades que han sido restringidas mediante un acuerdo de asamblea de accionistas, es requisito remitir a esta Superintendencia una copia certificada por notario público del respectivo acuerdo de asamblea. Dicha copia deberá ser remitida en el transcurso del mes en que la asamblea toma la decisión.
