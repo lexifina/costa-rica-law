@@ -18,3 +18,4 @@ Reglamento sobre el Suministro de Información Periódica Hechos Relevantes y ot
 | 3 | 2000-09-04 | Reglamento 175 (2000-09-04) |
 | 4 | 2000-09-18 | Reglamento 177 (2000-09-18) |
 | 5 | 2007-04-09 | Reglamento 640 (2007-04-09) |
+| 6 | 2010-11-12 | Reglamento 890 (2010-11-12) |
