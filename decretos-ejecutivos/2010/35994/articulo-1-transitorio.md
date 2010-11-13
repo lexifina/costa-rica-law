@@ -1,0 +1,1 @@
+Transitorio I El Ministerio de salud publicará la “Guía de verificación de buenas prácticas de manufactura para la industria farmacéutica” tres meses después de la publicación del presente reglamento.

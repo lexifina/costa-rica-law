@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo N° 21085-S del 11 de diciembre de 1991 (Reglamento de Buenas Prácticas de Manufactura para la Fabricación y la Inspección de la Industria Farmacéutica) publicado en La Gaceta N° 52 del 13 de marzo de 1992.
