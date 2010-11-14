@@ -1,0 +1,1 @@
+Artículo 4º—Momento y lugar de pago. Los montos establecidos se pagarán al momento o de previo a requerir los servicios. El pago deberá hacerse mediante el pago de boletas que al efecto emita el Consejo, por enteros o por depósito en dinero efectivo en las cuentas señaladas a ese efecto por el Consejo.
