@@ -1,1 +1,2 @@
-Artículo 16.—Vencimiento anticipado: Las operaciones concedidas, podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito.
+Artículo 16.—Vencimiento anticipado.
+Las operaciones concedidas, podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito.

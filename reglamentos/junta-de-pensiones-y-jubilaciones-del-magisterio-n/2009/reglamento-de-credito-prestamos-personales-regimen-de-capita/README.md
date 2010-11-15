@@ -14,3 +14,4 @@ Reglamento de Crédito Préstamos Personales Régimen de Capitalización Colecti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-07 | la propia norma |
+| 2 | 2010-11-15 | Reglamento 0 (2010-11-15) |
