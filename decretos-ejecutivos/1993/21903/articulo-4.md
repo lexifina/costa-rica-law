@@ -1,2 +1,0 @@
-Artículo 4°- La Comisión Asesora de la UCP. estará conformada por el Director de la UCP., por los especialistas de la Sección Técnica, el jefe de la sección Financiero-Administrativa y los jerarcas de las Unidades Ejecutoras del Programa.
-Tendrá como objetivo principal realizar la coordinación necesaria entre las Unidades Ejecutoras, para garantizar que el programa se desarrolle en forma eficiente, eficaz y oportuna.

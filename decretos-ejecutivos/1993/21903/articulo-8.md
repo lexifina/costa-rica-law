@@ -1,1 +1,0 @@
-Artículo 8°-Corresponde al Director de la UCP. la responsabilidad de planificar dirigir, coordinar, y supervisar las actividades de la Unidad Coordinadora del programa y de representarla ante las instituciones vinculadas con la ejecución del programa, por encargo del Ministro del ramo.

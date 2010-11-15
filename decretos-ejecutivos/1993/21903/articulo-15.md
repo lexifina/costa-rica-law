@@ -1,1 +1,0 @@
-Artículo 15.-El Director y los especialistas de la UCP. serán contratados por el Ministro de Educación Pública, bajo el Sistema de Contratación de Expertos individuales y de acuerdo con los procedimientos y la normativa señalada en la Ley 7315, previa consulta al Banco Interamericano de Desarrollo y al Banco Internacional de Reconstrucción y Fomento.

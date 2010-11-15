@@ -1,1 +1,0 @@
-Artículo 16. -El personal administrativo y de apoyo logístico será escogido por el Director de la UCP., previa consulta al Ministro de Educación Pública, de acuerdo con la normativa en marcada en la Ley N° 7315.
