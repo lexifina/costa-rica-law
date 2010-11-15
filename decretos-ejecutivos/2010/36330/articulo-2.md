@@ -1,0 +1,1 @@
+Artículo 2º—Reincorpórese la República de Costa Rica como Estado Parte del Convenio Constitutivo del Sistema Económico Latinoamericano (SELA), suscrito en la Ciudad de Panamá, República de Panamá, el 17 de octubre de 1975 y aprobado por la Asamblea Legislativa mediante Ley número 5977, del 9 de noviembre de 1976.
