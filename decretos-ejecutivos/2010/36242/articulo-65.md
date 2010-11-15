@@ -1,0 +1,1 @@
+Artículo 65.—Acuse de recibo. Cada vez que una institución usuaria o un proveedor registrado envíen un documento por medio de Mer-link, el Sistema emitirá un acuse electrónico de recibo que permitirá acreditar la fecha y la hora de la recepción.

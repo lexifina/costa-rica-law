@@ -1,0 +1,1 @@
+Artículo 41.—Prórroga del plazo para recepción de ofertas. En el mismo acto en que se dispongan prórrogas del plazo de apertura de ofertas, se deberá realizar la correspondiente prórroga del plazo de recepción de ofertas.

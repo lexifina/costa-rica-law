@@ -1,0 +1,1 @@
+Artículo 72.—Confirmación de recepción de factura electrónica. Una vez recibida a satisfacción la factura electrónica, Mer-link validará con la institución usuaria que esta resulte conforme con los bienes o los servicios recibidos. En caso afirmativo, la institución usuaria autorizará al Sistema para que efectúe el pago respectivo.

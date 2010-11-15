@@ -1,0 +1,1 @@
+Artículo 15.—Administración del Registro electrónico de proveedores. Mer-link contará con un administrador del Registro electrónico de proveedores, quien tendrá bajo su responsabilidad el manejo centralizado, así como la definición de procesos de dicho Registro, garantizando su calidad y buen funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 97.—Desactivación del uso de Mer-link. En caso de que el proveedor registrado cese el uso de Mer-link por cualquier causa, ello no implicará de modo alguno que quede relevado del cumplimiento de los compromisos, las responsabilidades y las obligaciones que haya adquirido previamente con la institución usuaria.

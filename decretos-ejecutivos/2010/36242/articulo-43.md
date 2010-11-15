@@ -1,0 +1,1 @@
+Artículo 43.—Aclaración y subsanación de ofertas. En los casos en que se detecten aspectos que requieran aclaración o subsanación de las ofertas, la prevención se hará por medio de Mer-link. Del mismo modo, el oferente aclarará o subsanará su oferta mediante el Sistema.

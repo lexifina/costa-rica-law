@@ -1,0 +1,1 @@
+TRANSITORIO I.—Los procedimientos de contratación administrativa iniciados por las instituciones usuarias de Mer-link con anterioridad a la publicación del presente Reglamento en el diario oficial La Gaceta continuarán su trámite en documentos físicos. Para tales efectos, se entenderá que un procedimiento ha iniciado si ya se ha realizado la publicación o invitación a participar.

@@ -1,0 +1,2 @@
+Artículo 92.—Designación de funcionarios. Las instituciones usuarias deberán contar con funcionarios autorizados para realizar las transacciones por medio de Mer-link, según los roles establecidos. Dichos funcionarios serán responsables de velar por la veracidad y la confiabilidad de la información que emiten y de atender oportunamente las gestiones que se reciban por medio del Sistema.
+Mer-link registrará todos los movimientos o las transacciones de las gestiones electrónicas que se reciban y que emitan los usuarios.
