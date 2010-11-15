@@ -1,0 +1,3 @@
+Artículo 4º—Asistencia a las sesiones del Comité. La asistencia a las sesiones del comité será obligatoria para los titulares que lo integran, quienes sólo podrán excusarse por justa causa. previa designación del sustituto, lo que se hará ante el Coordinador, sin que la sustitución pueda ser permanente.
+En ausencia temporal (incapacidad, permisos, etc.) de alguno de los miembros, éste será sustituido por quien haya sido designado con anterioridad en calidad de suplente.
+El comité podrá convocar eventualmente a sus sesiones a las jefaturas o funcionarios que estime necesarios o en consideración a los asuntos a tratar, quienes tendrán voz pero no voto en la toma de decisiones.

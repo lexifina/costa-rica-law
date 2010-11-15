@@ -1,0 +1,1 @@
+Artículo 11.—Atribuciones y responsabilidades. El Comité se regirá en sus actuaciones según los reglamentos y lineamientos que le competan y asumirá responsabilidades por sus actos de acuerdo con lo establecido en los mismos.

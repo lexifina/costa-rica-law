@@ -1,0 +1,1 @@
+Artículo 10.—Quórum y acuerdos del Comité. El comité podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros. Los acuerdos serán adoptados por mayoría simple y en caso de empate resolverá el coordinador.

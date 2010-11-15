@@ -1,0 +1,1 @@
+Artículo 3º—Coordinación del Comité. El asesor de la Gerencia General tendrá a cargo la coordinación del comité. En ausencia de éste, los miembros del comité determinarán quien presidirá y coordinará las sesiones.
