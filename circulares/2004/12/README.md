@@ -13,3 +13,4 @@ No utilizar el Fax para enviar Copia de Expedientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-17 | la propia norma |
+| 2 | 2010-11-15 | Circular 156 (2010-11-15) |
