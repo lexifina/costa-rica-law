@@ -1,2 +1,2 @@
-60.—Rige a partir de su publicación en el Diario Oficial "La Gaceta".
-Quepos, 7 de octubre de 1998.—Miguel Solano Martínez, Secretario.
+Artículo Nº 60.—Cumplidas las sesiones remuneradas que establecen el presente reglamento y el código municipal en su artículo Nº 30, la secretaria revisará en el registro pertinente la presencia tanto de sesiones del concejo, como la de comisiones para el pago correspondiente.
+(Así adicionado mediante sesión ordinaria N° 055-2010 del 16 de noviembre de 2010. No obstante, se advierte que el texto de este artículo está contemplado en el actual artículo 66)

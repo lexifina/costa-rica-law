@@ -1,0 +1,2 @@
+Articulo Nº 64.—Se prohíbe la entrada a la Sala de Sesiones con ropa inadecuada (pantaloncillos -shorts- excesivamente cortos, vestido de baño, ropa muy escotada, o sin camisa.) Se permite el ingreso de personas que usen pantalonetas o pantaloncillos-shorts- con un largo adecuado a la zona costera en la que vivimos y a la manera de vestir usual, sin caer en el decoro.
+(Así adicionado mediante sesión ordinaria N° 055-2010 del 16 de noviembre de 2010)

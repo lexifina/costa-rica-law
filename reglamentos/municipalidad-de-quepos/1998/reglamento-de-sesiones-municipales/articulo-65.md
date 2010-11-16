@@ -1,0 +1,2 @@
+65.—Para ausentarse temporalmente de la sesión municipal cualquier regidor o síndico propietario o suplente, deben de pedir permiso a la Presidencia quien decidirá el término para reincorporar a la sesión, solo en caso de emergencia calificada y será el Concejo Municipal quien decida el permiso.
+(Así corrida su numeración en sesión ordinaria N° 055-2010 del 16 de noviembre de 2010, que lo traspasó del antiguo artículo 56 al 65 actual)

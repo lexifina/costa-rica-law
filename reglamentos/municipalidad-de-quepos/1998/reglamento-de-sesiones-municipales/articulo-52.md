@@ -1,1 +1,2 @@
-52.—Los funcionarios municipales deberán asistir a las sesiones del Concejo a que fueren convocados sin que puedan recibir remuneración alguna.
+Artículo N° 52.—La presidencia modera las intervenciones de los particulares y podrá llamarlos al orden y suspender la audiencia si el caso lo amerita. La presidencia puede asistirse de las autoridades de la Policía Municipal o Fuerza Pública para hacer retirar a quien o quienes perturben el orden de las sesiones o bien que se comporten indebidamente en el caso de particulares. También es contundente su aplicación a regidores, síndicos propietarios y suplentes.
+(Así reformado mediante sesión ordinaria N° 055-2010 del 16 de noviembre de 2010)

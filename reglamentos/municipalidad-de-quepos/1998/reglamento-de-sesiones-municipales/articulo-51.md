@@ -1,2 +1,2 @@
-51.—La Presidencia modera las intervenciones de los particulares y podrá llamarlos al orden y suspender la audiencia si el caso lo amerita. La. presidencia puede asistirse de las autoridades de Policía para hacer retirar a quien o quienes perturben el orden de las sesiones o bien que se componen indebidamente en el caso de particulares.
-También es contundente su aplicación a regidores, síndicos, propietarios y suplentes.
+Artículo 51.—Se otorgará el uso de la palabra durante las sesiones a las personas del público que tengan aportes importantes que hacer previa moción de orden presentada por un regidor y aprobada, por cuatro votos a favor y el uso de la palabra no podrá exceder de tres minutos y solo se podrá hablar de dos temas como máximo.
+(Así reformado mediante sesión ordinaria N° 055-2010 del 16 de noviembre de 2010)
