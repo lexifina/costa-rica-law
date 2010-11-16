@@ -1,0 +1,1 @@
+Artículo 18.—Los clientes de crédito, pueden presentar las garantías de pago específicas o abiertas para más facilidad de tramitación, según los lineamientos estipulados en el artículo 46, de la Ley de Administración Pública y Presupuestos Públicos y demás normativa vigente.

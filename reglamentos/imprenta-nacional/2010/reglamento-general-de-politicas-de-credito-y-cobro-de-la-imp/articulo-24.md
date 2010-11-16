@@ -1,0 +1,1 @@
+Artículo 24.—Todos los pagos de facturación de crédito, serán recopilados por la Sección de Cuentas Corrientes-Crédito y Cobro y canalizados a través de la caja recaudadora de la Sección de Tesorería , ambos del Departamento Financiero de la Imprenta Nacional.

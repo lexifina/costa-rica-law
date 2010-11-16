@@ -1,0 +1,1 @@
+Artículo 16.—Cuando por alguna razón se produzca el cambio de razón social de un cliente, debe informarlo de forma inmediata a la Sección de Cuentas Corrientes del Departamento Financiero de la Imprenta Nacional, no siendo este un acto que exima al cliente del pago, en caso de deuda con esta institución antes del cambio de razón social.

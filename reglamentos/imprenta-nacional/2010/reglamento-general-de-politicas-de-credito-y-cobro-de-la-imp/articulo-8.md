@@ -1,0 +1,1 @@
+Artículo 8º—Cuando por atrasos en los pagos de facturas de crédito, se deba suspender temporalmente la línea crediticia a una institución, sin excepción alguna la misma se restaurará, hasta tanto sean canceladas en su totalidad las deudas pendientes que originaron la suspensión del crédito, esto según lo confirme la Sección de Cuentas Corrientes del Departamento Financiero.

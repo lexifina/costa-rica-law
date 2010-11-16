@@ -1,0 +1,1 @@
+Artículo 30.—En cumplimiento a la directriz Nº 01-2005, de Contabilidad Nacional, cada uno de los clientes de la Imprenta Nacional, recibe el oficio de conciliación anual de saldos de cuentas por cobrar.

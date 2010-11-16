@@ -1,0 +1,1 @@
+Artículo 7º—Como consecuencia de atrasos en cuanto a tiempo de cancelación de facturas de crédito, se procederá a la suspensión de servicios tramitados con la modalidad de crédito y en casos de índole extremo, previo estudio correspondiente, emitido por el área de Crédito y Cobro, con el visto bueno de la Dirección General de la Imprenta Nacional.

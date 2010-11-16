@@ -1,0 +1,2 @@
+Artículo 33.—Vencido el plazo de respuesta del oficio enviado al jerarca de la institución deudora, otorgado en el artículo Nº 32 de este Reglamento, la Imprenta Nacional, da por enterado al cliente de la medida a ejecutar y se procede de forma inmediata a la suspensión del servicio, bajo la modalidad de crédito, hasta tanto la cuenta vencida sea saldada en su totalidad.
+La Uruca, 29 de octubre del 2010.

@@ -1,0 +1,1 @@
+Artículo 31.—Además de los avisos de cobro mensuales para efectos de conciliación de saldos en los mismos será incluida una nota donde indique el caso específico de alguna factura con crédito vencido.

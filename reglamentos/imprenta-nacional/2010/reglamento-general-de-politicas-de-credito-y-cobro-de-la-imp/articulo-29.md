@@ -1,0 +1,1 @@
+Artículo 29.—El cliente recibirá un aviso de cobro mensual, adjunto a estado de cuenta con el dato de las facturas pendientes de cancelación a la fecha de corte, ya sea para efectos de conciliación de cuentas o bien para que cumplan con el pago de las obligaciones pendientes con esta institución.

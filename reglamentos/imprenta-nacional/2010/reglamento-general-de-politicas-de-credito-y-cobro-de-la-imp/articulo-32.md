@@ -1,0 +1,1 @@
+Artículo 32.—En caso omiso por parte del cliente a los avisos de cobro sobre facturas vencidas, se procederá a enviar un oficio al jerarca de la institución, firmado por el Director Financiero y el Director General de al Imprenta Nacional, indicando la deuda vencida y un plazo para su cancelación.
