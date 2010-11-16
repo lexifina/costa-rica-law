@@ -1,1 +1,0 @@
-8. Guía para verificar el cumplimiento de los requisitos. En el Anexo 1 de estas Directrices se presenta una guía para efectos de que sea utilizada por la administración concedente para verificar el cumplimiento de los requisitos mínimos antes indicados por parte del sujeto privado que solicita la calificación de idóneo para administrar fondos públicos.
