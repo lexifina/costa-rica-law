@@ -1,1 +1,0 @@
-Artículo 2º—Alcance. Estas normas regulan la autorización de apertura de los libros de contabilidad y de actas que, legal o reglamentariamente, deban llevar los sujetos pasivos que no cuenten con auditoría interna, y que de acuerdo con el artículo 37 inciso 5 de la Ley Orgánica de la Contraloría General de la República es una potestad asignada al órgano contralor.

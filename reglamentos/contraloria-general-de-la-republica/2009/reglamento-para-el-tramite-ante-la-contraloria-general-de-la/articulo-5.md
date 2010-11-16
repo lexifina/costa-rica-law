@@ -1,1 +1,0 @@
-Artículo 5º—Libros sujetos a la apertura. La razón de apertura deberá tramitarse para los libros de actas y contables que legal o reglamentariamente correspondan, para lo cual el sujeto pasivo que no cuente con Auditoría Interna, considerando sus propias particularidades, determinará los libros que debe llevar, así como la forma en que los llevará.
