@@ -1,0 +1,1 @@
+Artículo 48.—El Sistema de pago será de forma quincenal. Podrá hacerlo en su local o por medio de depósito bancario a la cuenta de ahorros que el servidor notifique y que pertenezca a un banco del sector público.

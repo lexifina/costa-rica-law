@@ -1,0 +1,3 @@
+Artículo 123.—En cuanto a las incapacidades otorgadas por el Instituto Nacional de Seguros, el SISTEMA se compromete a ajustar el monto necesario al subsidio otorgado, para que el trabajador reciba la totalidad de su salario ordinario normal mensual. En cuanto al pago de incapacidades otorgadas por la Caja Costarricense del Seguro Social, se pagaran de la siguiente manera:
+a) Los tres primeros días se pagará, a manera de subsidio, el cincuenta por ciento (50%) del salario ordinario normal.
+b) Del cuarto día en adelante se pagará, a manera de subsidio, el monto restante al subsidio otorgado por la CCSS, de manera que el trabajador reciba la totalidad de su salario ordinario normal mensual.

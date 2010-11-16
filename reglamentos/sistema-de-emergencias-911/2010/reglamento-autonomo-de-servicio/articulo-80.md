@@ -1,0 +1,1 @@
+| Artículo 80.—Ahora bien, de tener que mantenerse el operador o el supervisor en su puesto, este podrá hacerlo por un lapso máximo de dos horas con el pago correspondiente, mientras el Supervisor o la Jefatura solventan la situación, en bien del interés público que debe prevalecer.

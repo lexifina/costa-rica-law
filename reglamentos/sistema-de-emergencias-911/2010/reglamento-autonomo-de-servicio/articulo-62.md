@@ -1,0 +1,1 @@
+Artículo 62.—La Carrera Administrativa se sujetará a disposiciones que se establecen en el las políticas institucionales, el presente Reglamento o a las que en el futuro convengan los representantes del Sistema y los colaboradores.

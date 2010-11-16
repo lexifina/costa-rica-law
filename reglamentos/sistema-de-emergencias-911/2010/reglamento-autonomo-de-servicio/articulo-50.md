@@ -1,0 +1,1 @@
+Artículo 50.—Se consideran sobresueldos aquellos montos que se paguen por Disponibilidad, Guardias, Dedicación Exclusiva, Notariado, Zonaje, Desplazamiento, Carrera Profesional, Notariado, Administración de Fondos de Trabajo.

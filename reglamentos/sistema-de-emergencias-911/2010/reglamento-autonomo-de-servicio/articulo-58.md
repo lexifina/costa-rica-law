@@ -1,0 +1,1 @@
+Artículo 58.—En igualdad de condiciones sobre la solicitud de traslado, en caso de que hubiesen varias, se preferiría a los funcionarios nombrados en propiedad o de mayor antigüedad. Bajo estas condiciones y en el tanto el traslado se realice sin la plaza, el coordinador del trabajador que pide el movimiento no podrá oponerse al mismo.

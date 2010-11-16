@@ -1,0 +1,1 @@
+Artículo 111.—Una vez cumplidos los seis meses, el permiso podrá ser prorrogado durante el tiempo que médicamente sea necesario, para lo cual la colaboradora interesada presentará cada dos meses un certificado médico otorgado por un especialista en el cual se justifique la ampliación de dicho periodo.

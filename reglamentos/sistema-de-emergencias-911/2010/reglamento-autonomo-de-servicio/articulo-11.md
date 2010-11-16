@@ -1,0 +1,1 @@
+Artículo 11.—La administración mantendrá un expediente personal de cada colaborador en el Área de Capital Humano del Sistema de Emergencias 9-1-1, el cual estará dividido en los apartados que esta dependencia considere.

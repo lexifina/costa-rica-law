@@ -1,0 +1,1 @@
+Artículo 81.—El operador o supervisor, debe mantenerse en su puesto de trabajo y sólo podrá retirarse cuando haya finalizado la atención de una llamada, en caso de que su hora de salida coincida con el momento en que mantiene a un cliente en línea, el tiempo será reconocido como corresponde.

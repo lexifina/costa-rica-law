@@ -1,0 +1,1 @@
+Artículo 6º—Los puestos de trabajo de la Institución serán desempeñados por servidores que hayan cumplido satisfactoriamente con el proceso de reclutamiento y selección y lo establecido en el presente documento.

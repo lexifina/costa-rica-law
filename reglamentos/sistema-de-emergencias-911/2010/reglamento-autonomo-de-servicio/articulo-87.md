@@ -1,0 +1,6 @@
+Artículo 87.—El despido se efectuará sin responsabilidad para el Sistema por parte del Superior Jerárquico del 9-1-1 o en quien este delegue en los siguientes casos:
+a) Cuando el funcionario incurra en alguna de las causales previstas en el artículo 81 del Código de Trabajo, o en faltas expresamente sancionadas con el despido por la legislación aplicable a los empleados del sector público;
+b) Cuando al servidor se le haya impuesto suspensión de conformidad con lo dispuesto en el artículo anterior e incurra en causa para una suspensión más durante tres meses consecutivos, ya que se considera la reiteración de faltas como falta grave y contraria a las obligaciones del contrato o relación laboral;
+c) Cuando el servidor se niegue de manera reiterada a cumplir con los procedimientos establecidos para la atención y recepción de las llamadas de emergencia que ingresan al Sistema, lo cual constituye una falta grave por la trascendencia del servicio que se presta.
+d) El incumplimiento a los procedimientos, protocolos, normas y políticas establecidos aún cuando no existiere reiteración, pero que produzca como consecuencia de la falta un daño grave a las personas, o sus bienes, a la institución o al servicio que se brinda;
+e) En los casos previstos en el preste Reglamento.

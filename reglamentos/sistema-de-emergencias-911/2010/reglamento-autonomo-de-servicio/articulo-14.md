@@ -1,0 +1,2 @@
+Artículo 14.—La información suministrada durante el proceso de reclutamiento y selección se considerará recibida bajo juramento, y por consiguiente, cualquier inexactitud o alteración dolosa y grave, dará lugar a que el aspirante sea excluido del proceso de reclutamiento. En caso de que hubiere sido contratado, se tendrá como falta grave, y en ambos casos se hará de conocimiento del Ministerio Público.
+En este proceso no se harán discriminaciones por estatus económico, filiación política, lugar de procedencia, sexo, religión, raza o discapacidad física.

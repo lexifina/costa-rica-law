@@ -1,0 +1,1 @@
+Artículo 29.—El coordinador de área comunicará en cada caso a los servidores, procurando que sea con la debida anticipación, las horas extraordinarias que deben laborar para hacerlo como falta grave para los efectos de una posible sanción.

@@ -1,0 +1,1 @@
+Artículo 27.—Los colaboradores del Sistema están obligados al desempeño de sus tareas durante todos los días hábiles e inhábiles dependiendo del trabajo para el cual hayan sido contratados y los horarios debidamente establecidos, sin concederse privilegios, prerrogativas o licencia alguna que autorice una asistencia irregular, salvo disposición legal en contrario.

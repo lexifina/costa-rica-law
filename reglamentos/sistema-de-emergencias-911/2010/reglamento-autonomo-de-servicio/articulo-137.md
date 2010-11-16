@@ -1,0 +1,3 @@
+Artículo 137.—El pago de indemnización por concepto de auxilio de cesantía en las diferentes modalidades que regula este Capítulo, inhibe al Sistema para volver a contratar al trabajador que lo reciba por un periodo de siete años.
+La Dirección podrá hacer excepción de lo anterior, previo estudio del Área de Capital Humano, que demuestre que existe inopia para el puesto vacante.
+De considerarse el artículo antes del cumplimiento de los siete años indicados, el colaborador deberá reintegrar lo correspondiente a la liquidación de manera proporcional al periodo que le hace falta cumplir. Para tal efecto se contará con un estudio técnico del Área de Capital Humano.

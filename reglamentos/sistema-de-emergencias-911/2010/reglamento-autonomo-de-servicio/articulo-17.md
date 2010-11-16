@@ -1,0 +1,1 @@
+Artículo 17.—Se presume la existencia de una relación permanente de servicio entre el Sistema y quienes le presten sus servicios personales, si lo hacen en forma subordinada y a cambio de una retribución o salario de cualquier clase o forma.

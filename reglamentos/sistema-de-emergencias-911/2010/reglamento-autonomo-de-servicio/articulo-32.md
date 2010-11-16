@@ -1,0 +1,1 @@
+Artículo 32.—Estos horarios corresponden a la práctica actual, pero podrán ser variados de acuerdo con las necesidades del Sistema y cumpliendo lo estipulado para este fin dentro de la legislación vigente.

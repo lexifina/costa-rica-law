@@ -1,0 +1,1 @@
+Artículo 38.—Todo colaborador tiene derecho a disfrutar de al menos un día de descanso semanal dependiendo del número de días en que cumpla su jornada labora, cuya remuneración está regulada por lo que dispone el Código de Trabajo.

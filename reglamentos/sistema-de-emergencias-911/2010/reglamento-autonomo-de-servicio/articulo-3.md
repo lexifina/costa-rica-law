@@ -1,0 +1,1 @@
+Artículo 3º—No son considerados colaboradores los miembros de la Comisión Coordinadora, y funcionarios que prestan sus servicios en los diferentes despachos de las instituciones adscritas, así como tampoco, las personas que reciban honorarios o pagos por servicios profesionales, prestados sin relación de subordinación laboral.

@@ -1,0 +1,1 @@
+Artículo 13.—El procedimiento de reclutamiento y selección son los pasos por medio de los cuales se trata de atraer y seleccionar a los mejores oferentes para los diferentes puestos vacantes en la instituciones, este procedimiento puede ser interno o externo y se cumplirá con base en los lineamientos, política y normativa emitidas por la Administración.

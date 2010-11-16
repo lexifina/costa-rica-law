@@ -1,0 +1,1 @@
+Artículo 108.—Los permisos con goce de salario, serán aprobados por el coordinador del proceso previa justificación que debe entregar el colaborador por escrito, así como adjuntar los documentos que sustenten el derecho a tomar dicho permiso.

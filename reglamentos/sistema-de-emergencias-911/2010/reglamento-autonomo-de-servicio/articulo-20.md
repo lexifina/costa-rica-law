@@ -1,0 +1,1 @@
+Artículo 20.—A falta de un contrato escrito, la acción de personal en la que se consigna las condiciones de contratación y la firma del trabajador tendrá el mismo valor, en el entendido de que cada acción de personal, nueva, no impugnada por el funcionario tendrá el valor de una modificación expresa al contrato.

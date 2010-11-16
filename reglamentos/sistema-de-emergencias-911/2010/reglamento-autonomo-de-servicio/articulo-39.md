@@ -1,0 +1,1 @@
+Artículo 39.—En el caso de operadores y supervisores, el coordinador del Área, decidirá el día libre por semana que se deberá asignar a cada integrante de este grupo de colaboradores dependiendo del tipo de horario que se maneje. Dicho día debe quedar claro para todos los efectos y por escrito.

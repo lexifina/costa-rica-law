@@ -1,0 +1,1 @@
+Artículo 47.—Todo colaborador incluido en el Sistema de Clasificación y Valoración de Puestos, devengará un salario no inferior al de la categoría de la Escala Salarial vigente, a que esté asignada la clase del puesto que desempeña, siempre que labore la jornada completa establecida.

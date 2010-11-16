@@ -1,0 +1,1 @@
+Artículo 94.—De acuerdo con el artículo anterior, se aplicará igual sanción al trabajador a quien se le compruebe haber consentido para que otra persona le marque su ingreso a laborar. Estas faltas se computarán, para efectos de reiteración de falta en un lapso de tres meses.

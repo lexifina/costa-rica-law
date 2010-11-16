@@ -1,0 +1,1 @@
+Artículo 132.—Para la atención de estas peticiones y sugerencias los colaboradores deberán de seguir el procedimiento que la Administración establezca así como las políticas que en torno a este tema se emitan.

@@ -1,0 +1,1 @@
+Artículo 65.—Si por cualquier causa, el funcionario no completa las cincuenta semanas por terminación de su relación laboral tendrá derecho al pago de vacaciones proporcionales conforme la Legislación vigente.

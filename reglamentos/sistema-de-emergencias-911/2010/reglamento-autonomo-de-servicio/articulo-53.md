@@ -1,0 +1,1 @@
+Artículo 53.—Traslados Horizontales: Los Colaboradores de otras instituciones, cuyos jerarcas estén anuentes a aprobar su traslado horizontal, se podrán trasladar al Sistema si se cumple con el procedimiento existente para ese fin, las políticas institucionales.

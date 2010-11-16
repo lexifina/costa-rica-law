@@ -1,0 +1,1 @@
+Artículo 23.—El Sistema podrá dar por concluida la relación de servicio con sus funcionarios de conformidad con lo dispuesto en el presente Reglamento, el Código de Trabajo, la Ley General de la Administración Públicas y demás normas o jurisprudencia aplicable.

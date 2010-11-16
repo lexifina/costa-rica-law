@@ -1,0 +1,1 @@
+Artículo 115.—En el caso de operadores y supervisores operativos, la autorización de este tipo de permisos queda sujeta a las necesidades del servicio que se brinda, en donde prevalecerá siempre el interés público sobre el privado.

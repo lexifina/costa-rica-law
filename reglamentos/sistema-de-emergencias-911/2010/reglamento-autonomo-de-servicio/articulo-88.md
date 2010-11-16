@@ -1,0 +1,1 @@
+Artículo 88.—Las ausencias y tardías se consideran una falta de mera constatación, por lo que no requiere para la investigación y la determinación de los hechos reales, la apertura de un procedimiento ordinario con órgano director su correspondiente sanción.

@@ -1,0 +1,1 @@
+Artículo 116.—No se concederán permisos sin goce de salario, cuando el colaborador tenga vacaciones acumuladas, que permitan en su totalidad o proporcionalmente el tiempo requerido. Se exceptúa de lo regulado en esta norma los permisos por asuntos sindicales.

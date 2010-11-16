@@ -1,0 +1,1 @@
+Artículo 24.—Todos los colaboradores, independientemente de su condición de contratación, sea por nuevo ingreso, ascenso o reasignación, traslados u otros deberán de cumplir con los tres meses de prueba.

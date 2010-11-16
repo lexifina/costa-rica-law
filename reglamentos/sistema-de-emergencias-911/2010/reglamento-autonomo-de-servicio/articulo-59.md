@@ -1,0 +1,1 @@
+Artículo 59.—Cuando por razones de interés institucional debidamente justificado, a través de un estudio técnico de Capital Humano, se considere la necesidad de un traslado y no se afecten los intereses del colaborador, este se realizará con todo y plaza.

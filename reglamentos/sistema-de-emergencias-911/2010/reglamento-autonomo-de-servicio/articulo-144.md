@@ -1,0 +1,1 @@
+Artículo 144.—Se tendrá implícitamente modificado o derogado, según sea el caso, si durante su vigencia se aprobaren leyes que dispongan en sentido contrario; o bien, si se produce jurisprudencia obligatoria en tal sentido.

@@ -1,0 +1,1 @@
+Artículo 19.—El Sistema de Emergencias 9-1-1 brindará al colaborador copia del contrato así como de las modificaciones que se le hagan al mismo, considerando estas últimas como los cambios que ocurran en la vida laboral del trabajador, siempre que sean formalmente acordados por medio de “Acción de Personal” o de otro formulario sustitutivo.
