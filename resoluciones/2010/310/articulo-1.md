@@ -39,12 +39,12 @@ Inciso arancelario | Descripción | Nota Técnica
 0301.93.90.00 | - - - Otras | *68
 0301.99.10.00 | - - - Larvas para repoblación. | *68
 0301.99.99.00 | - - - - Los demás. | *68
-0302.67.00.00 | - - Peces espada (Xiphias gladius) | 68
+0302.67.00.00 (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010)
 0302.69.70.00 | - - - Tilapias (Tilapia spp.). | *68
-0303.61.00.00 | - - Peces espada (Xiphias gladius). | 68
-0304.11.00.00 | - - Peces espada (Xiphias gladius). | 68
-0304.21.00.00 | - - Peces espada (Xiphias gladius). | 68
-0304.91.00.00 | - - Peces espada (Xiphias gladius) | 68
+0303.61.00.00 (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010)
+0304.11.00.00 (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010)
+0304.21.00.00 (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010)
+0304.91.00.00 (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010) | (Dejado sin efecto este inciso arancelario mediante resolución RES-DGA-362-2010 del 17 de noviembre de 2010)
 0306.21.00.11 | - - - - Que se vendan en presentaciones mayores a 3 kg; excepto los envasados o enlatados. | 68
 0306.21.00.19 | - - - - Los demás. | 68
 0306.23.10.00 | - - - Larvas para repoblación. | *68

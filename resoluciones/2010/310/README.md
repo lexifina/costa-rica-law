@@ -14,3 +14,4 @@ Incluye en el Arancel Automatizado la Nota Técnica 68 a las mercancías
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-31 | la propia norma |
+| 2 | 2010-11-17 | Resolución 362 (2010-11-17) |
