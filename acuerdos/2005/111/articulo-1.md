@@ -51,7 +51,7 @@ Negociaciones en bloque indicadas en el inciso b) del artículo 58. | 1. Nombre 
 | 15. Monto total (para pagar) | |
 | 16. Número de operación asignado | En el plazo establecido en el reglamento emitido al efecto por la bolsa de respectiva |
 | | | La información será enviada a las bolsas de valores por los medios y en el formato que éstas determinen.
-Operaciones internacionales, indicadas en el artículo 63 bis. | 1. Consecutivo | |
+Operaciones internacionales, indicadas en el artículo 63 bis. | 1. Consecutivo 17. Nombre del emisor 18. Código del emisor 19. Instrumento 20. Código ISIN | |
 | 2. Nombre y nemotécnico del puesto de bolsa que reporta | |
 | 3. Broker | |
 | 4. Nombre del cliente | |
@@ -67,8 +67,8 @@ Operaciones internacionales, indicadas en el artículo 63 bis. | 1. Consecutivo 
 | 14. Interés acumulado | |
 | 15. Moneda de la operación | |
 | 16. Tipo cambio venta | |
-| 17. Código del emisor | |
-| 18. Instrumento | |
-| 19. Código ISIN | El día hábil siguiente a su realización. |
-| | | La información será enviada a las bolsas de valores por los medios y en el formato que éstas determinen.
+| 17. Nombre del emisor (Así adicionado el punto anterior y publicado en La Gaceta N° 240 del 10 de diciembre de 2010) | |
+| 18.código del emisor (Así corrida su numeración y publicado en La Gaceta N° 240 del 10 de diciembre de 2010, que lo traspasó del antiguo punto 17 al 18 actual) | |
+| 19. instrumento (Así corrida su numeración y publicado en La Gaceta N° 240 del 10 de diciembre de 2010, que lo traspasó del antiguo punto 18 al 19 actual) | |
+| 20. Código ISIN (Así corrida su numeración y publicado en La Gaceta N° 240 del 10 de diciembre de 2010, que lo traspasó del antiguo punto 19 al 20 actual) | El mismo día de su realización. (Así reformado el punto anterior y publicado en La Gaceta N° 240 del 10 de diciembre de 2010) | La información será enviada a las bolsas de valores por los medios y en el formato que éstas determinen.
 Los datos indicados para las operaciones internacionales, se detallan en el anexo 1 de este documento.

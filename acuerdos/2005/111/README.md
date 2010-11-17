@@ -14,3 +14,4 @@ Normas para la comunicación y publicidad de las operaciones internacionales y l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-15 | la propia norma |
+| 2 | 2010-11-17 | Acuerdo 0 (2010-11-17) |
