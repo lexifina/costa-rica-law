@@ -32,6 +32,8 @@ porcentaje de participación en el mercado,
 1.21 Adopción de decisiones y ejecución de planes de inversión: como por ejemplo ofertas públicas de adquisición (OPA). Variable de referencia: total activo y patrimonio.
 1.22 Adquisición de otro tipo de activos financieros u otorgamiento de garantías sobre esos activos. Variable de referencia: total activo y patrimonio,
 1.23 Cualquier hecho o decisión que afecte la política de inversión y financiamiento y que afecte el flujo de caja. Variable de referencia: de inversión y de financiación, respectivamente.
+1.23bis Precio máximo de asignación parcial o rendimiento mínimo de asignación parcial, así como el monto o la cantidad a colocar, cuando la colocación se realice mediante subasta y se desea modificar alguno de estos parámetros con respecto a lo comunicado con anterioridad: al menos dos horas hábiles antes de la subasta.
+(Así adicionado el punto anterior y publicado en La Gaceta N° 240 del 10 de diciembre de 2010)
 1.24 Cambios en las políticas contables utilizados, cuando se trate de una decisión de la entidad y no de una disposición de carácter general. Variable de referencia: utilidad neta y total patrimonio.
 1.25 Deterioro de activos dados en garantía de la emisión o de la situación financiera de las empresas garantes. Variable de referencia: total patrimonio.
 1.26 Incumplimiento del nivel de endeudamiento establecido por la Ley Orgánica del Banco Central de Costa Rica, así como el plan de acción para subsanar el exceso.
@@ -66,6 +68,8 @@ Situaciones de desocupación en el caso de los fondos inmobiliarios. Variable de
 (Reformado parcialmente y cambiada su numeración mediante el Reglamento SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
 3.6 Convocatoria y acuerdos de Asamblea de inversionistas, en el caso de los fondos cerrados.
 (Reformado parcialmente mediante acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+3.6bis Precio máximo de asignación parcial o rendimiento mínimo de asignación parcial, así como el monto o la cantidad a colocar, cuando la colocación de participaciones de un fondo cerrado se realice mediante subasta y se desea modificar alguno de estos parámetros con respecto a lo comunicado con anterioridad: al menos dos horas hábiles antes de la subasta.
+(Así adicionado el punto anterior y publicado en La Gaceta N° 240 del 10 de diciembre de 2010)
 3.7.Distribución de beneficios, con indicación del monto por participación, la fecha de pago y la fecha de corte, de manera que exista total claridad de cuáles inversionistas tendrán derecho al beneficio.
 (Reformado parcialmente mediante acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
 3.8. Modificaciones al prospecto cuando éstas se refieran a; cambio en la naturaleza (abierta o cerrada) del fondo, la política de inversión, las comisiones, los montos mínimos y las series.

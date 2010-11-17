@@ -18,3 +18,4 @@ Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y o
 | 3 | 2003-10-17 | Reglamento 81 (2003-10-17) |
 | 4 | 2004-11-15 | Reglamento 98 (2004-11-15) |
 | 5 | 2008-01-14 | Acuerdo 142 (2008-01-14) |
+| 6 | 2010-11-17 | Acuerdo 0 (2010-11-17) |
