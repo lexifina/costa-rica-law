@@ -1,0 +1,3 @@
+7º—Obligaciones y privilegios de los jóvenes participantes. Los Participantes entienden que:
+(i) Los ciudadanos de cada uno de los dos países que permanezcan en el otro país de conformidad con este Memorándum de Entendimiento, deben acogerse a las leyes vigentes en el país anfitrión, particularmente en lo que se refiere a la práctica de profesiones reguladas.
+(ii) Las leyes y regulaciones del país anfitrión con respecto a los beneficios por desempleo, condiciones laborales y salarios serán aplicables; en el caso de Canadá, las leyes y regulaciones con respecto a las condiciones laborales y salariales, principalmente, las que están bajo la jurisdicción de las provincias y territorios.

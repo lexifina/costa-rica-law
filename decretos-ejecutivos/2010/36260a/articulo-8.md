@@ -1,0 +1,1 @@
+8º—Facilitación del programa. Los Participantes alentarán a las organizaciones pertinentes en sus respectivos países a brindar su apoyo a la aplicación de este Memorándum de Entendimiento, particularmente brindando el asesoramiento apropiado a los ciudadanos del otro país para que puedan obtener información y buscar colocación en prácticas laborales o empleo.

@@ -1,0 +1,4 @@
+2º—Requisitos de elegibilidad. Los Participantes considerarán como elegibles para obtener los beneficios de la aplicación de este Memorándum de Entendimiento a sus ciudadanos que cumplan con las siguientes características;
+(i) Ciudadanos, incluyendo graduados de post-secundaria, que deseen obtener mayor entrenamiento en el país anfitrión, bajo un contrato de empleo preacordado, para apoyar su desarrollo profesional;
+(ii) Estudiantes matriculados en una institución post-secundaria en su país de origen, que deseen completar parte de su curriculum académico en el país anfitrión, haciendo una pasantía o práctica profesional preacordado, incluida en el marco de un acuerdo interinstitucional entre instituciones postsecundarias;
+(iii) Ciudadanos, incluyendo estudiantes matriculados, que deseen viajar al país anfitrión y que deseen trabajar para complementar sus recursos financieros;

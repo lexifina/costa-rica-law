@@ -1,0 +1,3 @@
+5º—Autorizaciones de trabajo. Los Participantes entienden que:
+(i) Un permiso de residencia temporal, bajo la categoría especial de estudiante o pasante emitido por las autoridades de Costa Rica a los ciudadanos canadienses calificados, que automáticamente les permitirá trabajar y residir temporalmente en Costa Rica, durante
+(ii) Los ciudadanos costarricenses a quienes se les emita una carta de presentación recibirán su llegada a Canadá, sin tener en cuenta el estatus del mercado de empleo en Canadá, un permiso de trabajo válido durante todo el período autorizado de su estadía, siempre que cumplan todos los requisitos de la legislación canadiense de inmigración y las regulaciones, incluyendo la autoridad discrecional de los oficiales para imponer condiciones.
