@@ -1,0 +1,1 @@
+Artículo 19.—Finiquito. Luego de finalizada la ejecución de la asociación o colaboración empresarial y no mediando ningún asunto pendiente que resolver, las partes podrán firmar un finiquito que las exima de reclamos de cualquier tipo.
