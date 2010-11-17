@@ -1,1 +1,0 @@
-Artículo 2º—Monto mínimo para la negociación de operaciones en bloque. Para negociar operaciones en bloque, se requerirá que el valor de la transacción sea por un monto mínimo de quinientos mil dólares (US$500.000) o su equivalente en colones.
