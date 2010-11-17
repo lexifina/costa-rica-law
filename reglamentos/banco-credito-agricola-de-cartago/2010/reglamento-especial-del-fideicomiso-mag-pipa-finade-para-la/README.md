@@ -14,3 +14,4 @@ Reglamento Especial del Fideicomiso MAG-PIPA/FINADE para la Ejecución del Artí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-04 | la propia norma |
+| 2 | 2010-11-17 | Reglamento 64 (2010-11-17) |
