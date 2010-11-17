@@ -18,3 +18,4 @@ Reglamento Interno del Sistema de Carrera Judicial
 | 4 | 1998-04-03 | SINALEVI (sin norma nombrada) |
 | 5 | 2004-08-25 | Circular 99 (2004-08-25) |
 | 6 | 2007-05-10 | Circular 45 (2007-05-10) |
+| 7 | 2010-11-17 | Circular 135 (2010-11-17) |

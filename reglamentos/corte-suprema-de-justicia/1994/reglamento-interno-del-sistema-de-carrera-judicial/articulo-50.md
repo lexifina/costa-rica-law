@@ -1,2 +1,0 @@
-Artículo 50.—Para hacer la designación no será necesario confeccionar ternas y el órgano administrativo hará la designación, siguiendo en la medida de lo posible los criterios indicados en el artículo 48, en aquellos casos en que de acuerdo con la Ley, por el nombramiento, no se requiera terna por ser inferior a tres meses.
-(Así adicionado mediante sesión N° 25 del 12 de julio del 2004, comunicada por circular N° 99 del 25 de agosto del 2004).

@@ -1,1 +1,1 @@
-Artículo 27.-En el documento deberá quedar constando asimismo el compromiso del oferente de someterse a las pruebas y exámenes que se requieran para resolver sobre su admisibilidad en la Carrera Judicial.
+Artículo 27.—En el documento deberá quedar constando asimismo el compromiso del oferente de someterse a las pruebas y exámenes que se requieran para resolver sobre su admisibilidad en la Carrera Judicial.

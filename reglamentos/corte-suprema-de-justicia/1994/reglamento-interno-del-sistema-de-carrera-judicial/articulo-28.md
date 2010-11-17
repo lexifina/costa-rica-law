@@ -1,1 +1,1 @@
-Artículo 28.-EI Departamento de Personal, en casos calificados, pedirá al Consejo Superior del Poder Judicial autorización para que el Registro Judicial expida una certificación de los antecedentes penales del oferente.
+Artículo 28.—El Departamento de Personal, en casos calificados, pedirá al Consejo Superior del Poder Judicial autorización para que le Registro Judicial expida una certificación de los antecedentes penales del oferente.

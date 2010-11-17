@@ -1,1 +1,1 @@
-Artículo 32.-El grado de la Carrera determinará la complejidad de las pruebas tanto teóricas como prácticas a realizarse, para lo cual el interesado, podrá llevar el curso a que se refiere el artículo 17.
+Artículo 32.—El grado de Carrera determinará la complejidad de las pruebas tanto teóricas como prácticas a realizarse, para lo cual el interesado, podrá llevar el curso a que se refiere el artículo 17°.

@@ -1,1 +1,1 @@
-Artículo 18.-Los Tribunales Examinadores que integre el Consejo de la Judicatura durarán en sus cargos dos años; podrán ser reelectos por periodos iguales sucesivos; y separados por el Consejo, cuando exista justa causa.
+Artículo 18.—Los Tribunales Examinadores que integre el Consejo de la Judicatura durarán en sus cargos dos años: podrán ser reelectos por períodos iguales sucesivos; y separados por el Consejo, cuando exista justa causa.

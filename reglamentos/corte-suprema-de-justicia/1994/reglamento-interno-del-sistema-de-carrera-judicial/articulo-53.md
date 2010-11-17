@@ -1,3 +1,0 @@
-Artículo 53.—Asimismo, el Consejo de la Judicatura, de acuerdo con las necesidades, convocará a concursos abiertos, con el fin de integrar una lista de suplentes complementaria para cada despacho judicial, también no mayor de tres personas por titular.
-Los concursantes deberán reunir los requisitos de los artículos 47 y 48; este último en lo pertinente; y podrán participar todos los abogados que no sean funcionarios judiciales en sí; pero se le dará preferencia a quienes estén elegibles en ese sistema en la materia de que se trate, debiendo ser ubicados en tal caso en la lista de acuerdo con sus notas.
-(Así adicionado mediante sesión N° 25 del 12 de julio del 2004, comunicada por circular N° 99 del 25 de agosto del 2004).

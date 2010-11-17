@@ -1,1 +1,1 @@
-Artículo 44.-Para los efectos del artículo 69 del Estatuto, el Departamento de Personal remitirá a la Corte Suprema de Justicia y al Consejo Superior las listas de elegibles, y comunicará asimismo en cada oportunidad las modificaciones que se vayan haciendo.
+Artículo 44.—Para los efectos del artículo 69° del Estatuto, el Departamento de Personal remitirá a la Corte Suprema de Justicia y al Consejo Superior las listas de elegibles, y comunicará asimismo en cada oportunidad las modificaciones que se vayan haciendo.

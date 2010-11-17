@@ -28,6 +28,7 @@ articulo-27.md
 articulo-28.md
 articulo-29.md
 articulo-30.md
+articulo-30-bis.md
 articulo-31.md
 articulo-32.md
 articulo-33.md
@@ -44,15 +45,6 @@ articulo-43.md
 articulo-44.md
 articulo-45.md
 articulo-46.md
-articulo-47.md
-articulo-48.md
-articulo-49.md
-articulo-50.md
-articulo-51.md
-articulo-52.md
-articulo-53.md
-articulo-54.md
-articulo-55.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md

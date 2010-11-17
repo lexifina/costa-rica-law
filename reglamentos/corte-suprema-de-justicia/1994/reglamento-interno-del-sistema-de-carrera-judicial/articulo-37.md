@@ -1,1 +1,1 @@
-Artículo 37.-Los interesados podrán presentar los atestados calificables sobre su experiencia y formación intelectual y académica, los que serán tomados en cuenta para hacer las modificaciones que correspondan en los términos del artículo 24.
+Artículo 37.—Los interesados podrán presentar los atestados calificables sobre su experiencia y formación intelectual y académica, los que serán tomados en cuenta para hacer las modificaciones que correspondan en los términos del artículo 24.
