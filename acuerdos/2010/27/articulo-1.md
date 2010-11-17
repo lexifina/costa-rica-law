@@ -1,0 +1,13 @@
+MINISTERIO DE AMBIENTE, ENERGÍA
+Y TELECOMUNICACIONES
+Nº A-27-2010-MINAET
+EL MINISTRO DEL AMBIENTE, ENERGÍA
+Y TELECOMUNICACIONES
+En ejercicio de las facultades conferidas en los artículos 140, inciso 18) de la Constitución Política, artículo 28 inciso a) de Ley General de la Administración Pública Nº 6227 publicada el dos de mayo de mil novecientos setenta y ocho.
+Considerando:
+1°—Que el artículo 121 de la Ley General de la Administración Pública, crea una reserva a favor del Poder Ejecutivo para emitir los actos administrativos de alcance general, incluyendo las Directrices y Reglamentos.
+2°—Que en fecha 6 de octubre del 2008, se publicó en el Diario Oficial La Gaceta Nº 192, la resolución Nº R-DGTCC-100-2006 de las 9:40 horas del 17 de marzo del 2006 de la Dirección General de Transporte y Comercialización de Combustibles, en la que se establecen obligaciones y sanciones para las empresas, transportistas, distribuidoras y comercializadoras de gas licuado de petróleo GLP; y la resolución Nº R-DGTCC-106-2005 de las 14:40 horas del 24 de mayo del 2005, de la Dirección General de Transporte y Comercialización de Combustibles, en la que se establece la Directriz Administrativa en cuanto al Manejo y Uso de los Cilindros Portátiles y Tanques de Autoconsumo de Gas LP.
+3°—Que los actos dictados por la Dirección General de Transporte y Comercialización de Combustibles, en la persona de su Director, son actos reservados al Poder Ejecutivo, por lo que fueron emitidos por un funcionario que no ostentaba la competencia legal.
+4°—Que en razón de lo anterior, se requiere dejar sin efectos los actos administrativos mencionados, con el fin de cesar sus efectos, no causar confusión a las empresas, transportistas, distribuidoras y comercializadoras de gas licuado de petróleo GLP, y por ser actos nulos, de conformidad con el criterio de la Dirección de Asesoría Jurídica, contenido en el oficio DAJ-011-2000 del 6 de enero del 2009. Por tanto,
+ACUERDA:
+1°—Dejar sin efecto la resolución número R-DGTCC-100-2006 de las 9:40 horas del 17 de marzo del 2006 de la Dirección General de Transporte y Comercialización de Combustibles, en la que se establecen obligaciones y sanciones para las empresas, transportistas, distribuidoras y comercializadoras de gas licuado de petróleo GLP; y la resolución Nº R-DGTCC-106-2005 de las 14:40 horas del 24 de mayo del 2005, General de Transporte y Comercialización de Combustibles, en la que, en la que se establece la Directriz Administrativa en cuanto al Manejo y Uso de los Cilindros Portátiles y Tanques de Autoconsumo de Gas LP, ambas publicadas en el Diario Oficial La Gaceta Nº 192 del 6 de octubre del 2008.
