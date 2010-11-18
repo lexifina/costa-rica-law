@@ -1,3 +1,4 @@
-Artículo 9°—Del cobro administrativo. Si, según lo indicado en el artículo anterior, pudiese corresponder responsabilidad civil, se procederá de la siguiente forma:
-a. La Administración determinará el monto de la deuda y se lo informará al presunto responsable, quien, de estar de acuerdo, procederá a la cancelación, o autorizará su cancelación mediante las deducciones mensuales que se convengan, que no serán superiores a 6 pagos.
-b. Si el interesado no estuviere de acuerdo en realizar la cancelación, se iniciará el correspondiente procedimiento administrativo.
+Artículo 9°—Del cobro administrativo. Si a consecuencia del incumplimiento de lo señalado en el artículo 5º, o según lo indicado en el artículo anterior, pudiese corresponder responsabilidad civil, se procederá de la siguiente forma:
+a. La Administración determinará el monto de la deuda o la reposición del activo y se lo informará al presunto responsable, quien, de estar de acuerdo, procederá a la cancelación o reposición. En el caso de deudas por el no cumplimiento del artículo 5º, la Administración puede valorar su cancelación mediante las deducciones mensuales al salario que se convengan, que no serán superiores a 6 pagos.
+b. Si el interesado no estuviere de acuerdo en realizar la cancelación, se iniciará el correspondiente procedimiento administrativo de cobro.
+(Así reformado y publicado en el Alcance N° 29 a La Gaceta N° 224 del 18 de noviembre de 2010)
