@@ -1,0 +1,10 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+SECRETARIA JUNTA DIRECTIVA
+A.J.D.I.P./380-2010.—Puntarenas, el día veintinueve de octubre del 2010.
+Considerando:
+1º—Que ante la problemática que se está presentando en el trámite de combustible a precio competitivo para los pescadores artesanales, con la presentación de las facturas de compra del producto, en relación con el plazo definido en el Transitorio N° 8, del “Reglamento vigente para la regulación y control del uso eficiente del combustible a precio competitivo a nivel Internacional, destinado a la flota pesquera nacional, comercial no deportiva y a la flota pesquera nacional turística en las aguas jurisdiccionales costarricenses o fuera de ellas”, acuerdo AJDIP/085-2010 y su modificación mediante acuerdo AJDIP/151-2010, para el registro ante el INCOPESCA de centros de acopio, puestos de recibo, pescaderías, plantas procesadoras, muelles o transportistas, se considera necesario otorgar un plazo único adicional para el cumplimiento de dicho requisito. Por tanto:
+ACUERDAN:
+1º—Modificar el plazo establecido en el transitorio N° 8, del acuerdo AJDIP/151-2010, mediante el cual se modificaron varios artículos y disposiciones del acuerdo AJDIP/085-2010 y otorgar un plazo adicional improrrogable para el cumplimiento del registro ante el INCOPESCA de los centros de acopio, puestos de recibo, pescaderías, plantas procesadoras, muelles o transportistas de los cuales se podrá aceptar la emisión de las facturas, comprobantes o documentos de compra del producto desembarcado para efectos de trámite del combustible a precio competitivo, de tres meses contados a partir de la adopción en firme del presente acuerdo.
+2º—Vencido el plazo indicado, las facturas o documentos que se presenten para el trámite del combustible de establecimientos no registrados ante el INCOPESCA, serán presentadas para los efectos legales correspondientes al Servicio Nacional de Salud Animal para el cierre del negocio y actividades, y al Ministerio de Hacienda para el trámite de verificación del pago de impuestos.
+Acuerdo firme.
