@@ -1,0 +1,1 @@
+Artículo 16.—Aprobación final. De forma posterior a la autorización otorgada por la Contraloría General de la Republica, el presente Reglamento deberá someterse para su aprobación final ante la Junta Directiva de la Caja Costarricense de Seguro Social.

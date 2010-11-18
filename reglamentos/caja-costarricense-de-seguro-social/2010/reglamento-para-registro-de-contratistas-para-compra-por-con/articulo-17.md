@@ -1,0 +1,1 @@
+Artículo 17.—Vigencia y publicación. Este Reglamento tendrá una vigencia de un año a partir de su publicación en el Periódico Oficial La Gaceta. A solicitud de la Administración, dicho plazo podrá ser prorrogado previa autorización concedida por la Contraloría General de la República.

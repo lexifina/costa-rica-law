@@ -1,0 +1,3 @@
+Artículo 12.—Mecanismos de Control y Registro estadístico. Con la finalidad de llevar un orden estadístico el COORDINADOR ADMINISTRATIVO, llevará controles actualizados entre el presupuesto asignado y el gasto, para asegurar la transparencia del proceso, se llevará en cada SERVICIO SOLICITANTE un registro estadístico, de los procedimientos realizados, los INSUMOS utilizados, la EMPRESA proveedora y los costos incurridos.
+Es obligación del COORDINADOR ADMINISTRATIVO DEL CONTRATO la utilización del Software diseñado para el control de la gestión, denominado: Sistema de Hemodinamia.
+Dicho registro estadístico quedará a la disposición de la Administración, Auditoria o cualquier otra autoridad Institucional que lo requiera.

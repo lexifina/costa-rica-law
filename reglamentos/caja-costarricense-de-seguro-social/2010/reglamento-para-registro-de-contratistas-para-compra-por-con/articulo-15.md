@@ -1,0 +1,1 @@
+Artículo 15.—Autorización y modificación del Reglamento. La autorización para su implementación así como cualquier modificación a futuro del presente reglamento deberá contar con la aprobación de la Contraloría General de la República.

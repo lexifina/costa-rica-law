@@ -1,0 +1,10 @@
+ANEXO 3
+UTILIZACIÓN DE INSUMOS DE MAYOR COSTO
+Para efectos de respaldar la selección del insumo, cuando resulta ser el insumo de mayor precio, deberá llenarse por parte del MÉDICO DIRECTOR DEL PROCEDIMIENTO el presente formulario denominado “UTILIZACIÓN DE INSUMOS DE MAYOR COSTO”:
+NOMBRE MÉDICO DIRECTOR DEL PROCEDIMIENTO:
+SERVICIO:
+EMPRESA:
+COSTO:
+DESCRIPCIÓN DEL INSUMO:
+JUSTIFICACIÓN MÉDICA PARA SU ADQUISICIÓN/MOTIVO POR EL CUAL NO FUE ELEGIDO EL DE MENOR PRECIO:
+5 de noviembre del 2010.

@@ -1,0 +1,1 @@
+Artículo 13.—Finalización del contrato e incumplimiento. Todo lo relacionado con la finalización normal o anticipada de esta compra, así como el procedimiento que se seguirá en caso de incumplimiento contractual al presente reglamento por parte de los contratistas, se regirá por lo que indique la Ley de Contratación Administrativa y su Reglamento.
