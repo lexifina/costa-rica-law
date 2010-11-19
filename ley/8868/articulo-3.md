@@ -1,0 +1,3 @@
+ARTÍCULO 3.-Finalidad del Fideicomiso
+La finalidad del Fideicomiso es financiar el establecimiento de plantaciones de palma aceitera, renovación del cultivo, intereses capitalizables, capital de trabajo para la asistencia de palma aceitera y el financiamiento de inversiones complementarias necesarias en el cultivo.
+La consecución del objeto indicado en el artículo 1 se alcanzará mediante la administración de la cartera crediticia ya formalizada y de todas las nuevas operaciones crediticias que se concreten con los recursos fideicometidos y para ello lo hará por medio de sus agencias o sucursales en las Zonas del país indicadas en el artículo 1.
