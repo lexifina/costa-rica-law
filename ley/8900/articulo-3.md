@@ -1,0 +1,2 @@
+Artículo 3º.- Modifícase el artículo 2°, de la Ley No. 8790, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del Año 2010, publicada en el Alcance No.52 a La Gaceta No. 254 de 31 de diciembre de 2009, en la forma en que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance Digital N° 1 a La Gaceta N° 225 del 19 de noviembre de 2010)
