@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económicopara el año 2009
 
-Ley N° 8691 del 2008-12-10. SINALEVI, ficha 64720: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64720&param2=82225&param3=1>.
+Ley N° 8691 del 2008-12-10. SINALEVI, ficha 64720: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64720&param2=83029&param3=1>.
 
 Publicada en La Gaceta N° 253 del 2008-12-31.
 
@@ -35,3 +35,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 25 de 28 | 2009-12-18 | Decreto Ejecutivo 35647 (2009-12-09) | 2009-12-09 |
 | 26 de 28 | 2009-12-28 | Decreto Ejecutivo 35678 (2009-12-11) | 2009-12-11 |
 | 27 de 28 | 2010-08-09 | Ley 8841 | 2010-06-22 |
+| 28 de 28 | 2010-11-19 | Ley 8900 | 2010-11-12 |
