@@ -14,3 +14,4 @@ Pone en ejecución un programa de acumulación de reservas internacionales y se 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-19 | la propia norma |
+| 2 | 2010-11-19 | Acuerdo 0 (2010-11-03) |
