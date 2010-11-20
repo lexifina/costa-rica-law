@@ -1,1 +1,0 @@
-Articulo 26.—El Microbiólogo Químico Clínico que desempeña un cargo público en cualquier institución está obligado, en el desempeño del mismo, a respetar lo establecido en este Código. Las obligaciones con el Estado y sus instituciones no lo eximen de sus deberes para con el Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, los colegas y los pacientes.

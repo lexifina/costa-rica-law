@@ -1,1 +1,0 @@
-Artículo 17.—Es contrario a las reglas de la ética profesional y se considerara por tanto como una falta contraria a este Código, todo comportamiento deliberadamente destinado a sustraer la clientela de otro colega.

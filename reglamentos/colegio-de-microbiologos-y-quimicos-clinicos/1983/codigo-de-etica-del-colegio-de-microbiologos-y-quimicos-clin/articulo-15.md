@@ -1,1 +1,0 @@
-Artículo 15.—El disentimiento entre Microbiólogos Químicos Clínicos en materias atinentes a su ejercicio profesional o reguladas por la actividad del Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, no debe dar lugar a polémicas públicas.

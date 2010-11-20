@@ -1,1 +1,0 @@
-Articulo 20.—Es deber del Microbiólogo Químico Clínico responsabilizarse plenamente del encargo profesional o científico que se le confía. Su facultad representativa o ejecutiva, cuando de asuntos profesionales se traía, no debe excederse del límite que se le haya fijado.

@@ -1,1 +1,0 @@
-Artículo 14.—Las relaciones que se establezcan entre los Microbiólogos Químicos Clínicos, ya sea en relación con su actividad profesional o las que deriven de vivir en la misma sociedad, en general, deberán inspirarse en el respeto y el auxilio mutuo.

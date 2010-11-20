@@ -1,1 +1,0 @@
-Artículo 5°—El Microbiólogo Químico Clínico tiene el deber de mantener sus conocimientos lo mas actualizados posible, en las ramas que aplica en su trabajo profesional, de acuerdo con sus condiciones personales y a las circunstancias en que lleva a cabo su labor.

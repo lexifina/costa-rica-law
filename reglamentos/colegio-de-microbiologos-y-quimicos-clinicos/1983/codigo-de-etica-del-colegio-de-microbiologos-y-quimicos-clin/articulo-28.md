@@ -1,1 +1,0 @@
-Artículo 28.—Resulta contraria a las normas de la ética profesional que consagra este Código, la practica de utilizar propaganda comercial por parte de los Microbiólogos Químicos Clínicos, dirigida a promover la venta de sus servicios profesionales en medios de comunicación colectiva, artículos científicos y conferencias al público.

@@ -1,1 +1,0 @@
-Artículo 25.—En los casos en que un Microbiólogo Químico Clínico ejerza un cargo para una institución pública y al mismo tiempo ejerza la profesión en forma privada, deberá abstenerse en forma absoluta, de utilizar su posición en la institución en la que labora para aumentar su clientela particular o mejorar de cualquier otra forma su posición personal en la actividad privada.
