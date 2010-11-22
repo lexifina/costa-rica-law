@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento, Reintegro y Liquidación del Fondo de Caja Ch
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-28 | la propia norma |
+| 2 | 2010-11-22 | Reglamento municipal 47 (2010-11-22) |
