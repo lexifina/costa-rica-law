@@ -1,1 +1,1 @@
-Artículo 10.—Proveedor Institucional. El Jefe Administrativo será quién actué como Proveedor Institucional, a éste le corresponden las funciones de secretario del Comité de Licitaciones, según se indico en el apartado 1 del presente reglamento.
+Artículo 10.—Proveedor Institucional. El Jefe de Soporte Administrativo será quien actué como Proveedor Institucional, a éste le corresponden las funciones de secretario del Comité de Licitaciones, según se indicó en el apartado 1 del presente reglamento.
