@@ -1,0 +1,1 @@
+Artículo 8º—El Colegio de Farmacéuticos de Costa Rica organizará y dotará de los recursos necesarios al Departamento de Desarrollo Profesional, para que brinde apoyo administrativo a la Comisión de Especialidades Farmacéuticas en el cumplimiento de sus funciones.

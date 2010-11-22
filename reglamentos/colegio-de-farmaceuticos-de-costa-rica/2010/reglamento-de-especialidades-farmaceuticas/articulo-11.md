@@ -1,0 +1,1 @@
+Artículo 11.—Los miembros de la Comisión de Especialidades Farmacéuticas durarán en sus funciones dos años y podrán ser reelectos para periodos iguales, en forma sucesiva. Se renovarán anualmente de la siguiente manera: un año dos miembros y el año siguiente tres miembros.

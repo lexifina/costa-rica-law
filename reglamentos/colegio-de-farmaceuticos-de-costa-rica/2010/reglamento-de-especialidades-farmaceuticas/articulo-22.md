@@ -1,0 +1,1 @@
+Artículo 22.—A partir de que se recibe la documentación completa, la Comisión emitirá la recomendación correspondiente en un plazo no mayor de treinta días naturales, la pondrá en conocimiento del interesado y de la Junta Directiva del Colegio de Farmacéuticos de Costa Rica, para lo que corresponda.

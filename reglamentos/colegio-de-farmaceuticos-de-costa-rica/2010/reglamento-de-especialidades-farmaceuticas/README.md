@@ -1,0 +1,16 @@
+# Reglamento (2010-10-27)
+
+Reglamento de Especialidades Farmacéuticas
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 2010-10-27
+- Ente emisor: Colegio de Farmacéuticos de Costa Rica
+- Publicación: La Gaceta N° 226 del 2010-11-22
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69093&param2=82853&param3=1 (ficha 69093)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2010-11-22 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 4º—Para el ejercicio de las especialidades farmacéuticas aquí establecidas o que se lleguen a establecer, es indispensable ser miembro activo del Colegio de Farmacéuticos de Costa Rica y estar inscrito en el Registro de Farmacéuticos Especialistas.

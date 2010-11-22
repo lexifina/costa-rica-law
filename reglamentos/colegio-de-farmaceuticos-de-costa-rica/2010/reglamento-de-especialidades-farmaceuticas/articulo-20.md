@@ -1,0 +1,1 @@
+Artículo 20.—La Comisión procederá a revisar la solicitud y podrá pedirle al interesado toda la información adicional que considere necesaria para mejor resolver, para lo cual le dará al interesado un plazo no menor de diez días hábiles para que aporte la documentación requerida.

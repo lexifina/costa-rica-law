@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Comisión de Especialidades Farmacéuticas
+Artículo 10.—La Comisión de Especialidades Farmacéuticas será nombrada por la Junta Directiva del Colegio de Farmacéuticos de Costa Rica en las cuatro primeras sesiones ordinarias del año calendario correspondiente y estará integrada por cinco miembros activos del Colegio que sean Farmacéuticos Especialistas. El Jefe del Departamento de Desarrollo Profesional será miembro permanente de la Comisión, con derecho a voz pero sin derecho a voto. En caso de retiro definitivo por cualquier causa de un miembro de la Comisión, la Junta Directiva, a más tardar en las dos siguientes sesiones después de conocido el retiro, procederá a la sustitución por el resto del periodo correspondiente.

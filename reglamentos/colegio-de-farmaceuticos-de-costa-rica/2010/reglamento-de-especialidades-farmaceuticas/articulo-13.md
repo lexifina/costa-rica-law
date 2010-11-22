@@ -1,0 +1,1 @@
+Artículo 13.—Entre los miembros de la Comisión se nombrará un coordinador y un secretario por mayoría simple de votos. En caso de ausencia o de enfermedad y en general, cuando concurra alguna causa justa, el coordinador y el secretario de la comisión serán sustituidos por un coordinador y un secretario ad-hoc, designados entre los miembros de la Comisión.

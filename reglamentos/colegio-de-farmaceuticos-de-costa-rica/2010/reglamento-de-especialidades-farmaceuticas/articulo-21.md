@@ -1,0 +1,1 @@
+Artículo 21.—Si la solicitud no cumple con todos los requisitos, la Comisión le indicará al interesado que proceda a completarlos, otorgándole para ello un plazo no menor de diez días hábiles. Vencido el plazo sin tener respuesta del interesado, la Comisión procederá a informar al interesado y a la Junta Directiva el archivo del caso.
