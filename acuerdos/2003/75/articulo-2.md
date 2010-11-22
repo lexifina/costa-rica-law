@@ -86,3 +86,7 @@ e) Se modifica el artículo 2, para incorporar al “Cuadro de Información Peri
 TIPO DE ENTIDAD | Sociedades Administradoras de Fondos de Inversión
 INFORME O REPORTE | Periodicidad | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío | Notas aclaratorias
 Condiciones de las Notas Estructuradas | Cada vez que ocurra | Cinco días hábiles después de la adquisición de una nota | n/a | Papel | -
+(Nota de Sinalevi: Mediante el artículo 1° aparte a) del acuerdo N° 175 del 22 de noviembre de 2010, se modifica este artículo de la siguiente manera:
+a) Se modifica el artículo 2, para incorporar los siguientes requerimientos de información al “Cuadro de Información Periódica”:
+i) Se modifica el medio de envío del siguiente reporte:
+[imagen] )

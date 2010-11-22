@@ -15,6 +15,8 @@ l. Traspasos no onerosos, Anexo 42.
 m. Cuadro resumen de títulos valores recibidos o entregados al portador, Anexo 46.
 n. Vector de Precios, Curvas de rendimientos utilizadas en metodologías de valoración e Impugnaciones, Anexo 47.
 o. Información sobre Ofertas y Transacciones, Anexo 48.
+p) Reporte de superávit o déficit patrimonial de grupos financieros
+(Así adicionado el inciso anterior mediante acuerdo N° SGV-A-175 del 22 de noviembre de 2010)
 El contenido del “Informe de operaciones bursátiles” Anexo 19, es de carácter confidencial, sin perjuicio de las obligaciones de difusión de información particular que tenga que realizar la Superintendencia General de Valores, según lo dispuesto en la Ley Reguladora del Mercado de Valores y los reglamentos que apruebe el Consejo Nacional de Supervisión del Sistema Financiero.
 Con excepción de los reportes confidenciales indicados en este artículo, toda la información periódica requerida en este acuerdo se incorpora al Registro Nacional de Valores e Intermediarios.
 (Así reformado por el artículo 2° aparte b) del acuerdo N° 162 del 23 de noviembre de 2009)
