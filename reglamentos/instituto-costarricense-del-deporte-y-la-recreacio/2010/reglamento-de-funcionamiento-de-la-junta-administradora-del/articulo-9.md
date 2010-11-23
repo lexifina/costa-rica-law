@@ -1,0 +1,5 @@
+Artículo 9. Actas
+De cada sesión que celebre La Junta, se levantará acta por la Secretaria Ejecutiva, que especificará necesariamente los asistentes, el orden del día de la reunión, las circunstancias del lugar y tiempo en que se ha celebrado, los puntos principales de las deliberaciones, así como el contenido de los acuerdos adoptados.
+Las actas de cada reunión se aprobarán en la siguiente sesión. En el acta figurará, a solicitud de los respectivos miembros, el voto contrario al acuerdo adoptado, su abstención y los motivos que la justifiquen o el sentido de su voto favorable.
+Asimismo, cualquier miembro tiene derecho a solicitar la transcripción íntegra de su intervención o propuesta, siempre que aporte en el acto, o en el plazo que señale el Presidente, el texto que se corresponda fielmente con su intervención, haciéndose así constar en el acta o uniéndose copia a la misma.
+Los miembros que discrepen del acuerdo mayoritario podrán formular voto particular por escrito en el plazo de cuarenta y ocho horas, que se incorporará al texto aprobado.
