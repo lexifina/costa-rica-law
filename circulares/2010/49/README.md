@@ -13,3 +13,4 @@ Sobre la importancia de poner a disposición de las partes la documentación apo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-22 | la propia norma |
+| 2 | 2010-11-23 | Circular 93 (2010-11-23) |
