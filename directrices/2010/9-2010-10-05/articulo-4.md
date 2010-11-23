@@ -1,0 +1,1 @@
+Artículo 4º—Los mecanismos que se definan, deberán considerar los principios de simplificación de trámites contenidos en la Ley 8220 y estricto apego a las normas sobre control interno, de forma que el procedimiento sea efectivo y pueda ser utilizado sin espacio a inconvenientes dilaciones o fallas de control que faciliten un mal uso y comprometan los objetivos del programa.

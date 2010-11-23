@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión Nacional de Emergencias deberá levantar la lista de familias que requieren soluciones de vivienda como consecuencia del reciente desastre natural, la cual deberá poner a disposición del BANVHI, el IMAS y el MIVAH en un plazo no mayor de 8 días posterior a la publicación de esta directriz.
