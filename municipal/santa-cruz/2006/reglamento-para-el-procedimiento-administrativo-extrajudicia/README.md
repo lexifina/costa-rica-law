@@ -15,3 +15,4 @@ Reglamento para el Procedimiento Administrativo Extrajudicial y Judicial de la M
 | --- | --- | --- |
 | 1 | 2006-06-27 | la propia norma |
 | 2 | 2010-08-17 | Reglamento municipal 33 (2010-08-17) |
+| 3 | 2010-11-23 | Reglamento municipal 17 (2010-11-23) |
