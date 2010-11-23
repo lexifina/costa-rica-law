@@ -14,3 +14,4 @@ Reglamento General de Sesiones, Debates, Acuerdos y Comisiones Municipales del C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-03 | la propia norma |
+| 2 | 2010-11-23 | Reglamento municipal 30 (2010-11-23) |
