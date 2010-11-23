@@ -1,3 +1,3 @@
-Artículo 9º—Registro de elegibles.
-9.1 La Dirección Administrativa de Proveeduría será la encargada de mantener en custodia los expedientes del Registro de Elegibles, los cuales deberán incluir los atestados de cada persona inscrita al registro y el expediente de cada contratación en la que resulte adjudicatario.
-9.2 El expediente administrativo de cada contrato contendrá todos los aspectos técnicos y legales relacionados a la contratación. En el expediente se deberá incluir un informe sobre la ejecución del contrato y su correspondiente finiquito, el cual deberá firmar el Contratista y el Administrador del contrato.
+Artículo 9º—Registro de elegibles
+9.1 La Proveeduría Corporativa será la encargada de mantener en custodia los expedientes del Registro de Elegibles, los cuales deberán incluir los atestados de cada persona inscrita al registro y el expediente de cada contratación en la que resulte adjudicatario.
+9.2 El expediente administrativo de cada contrato contendrá todos los aspectos técnicos y legales relacionados a la contratación. En el expediente se deberá incluir un informe sobre la ejecución del contrato y su correspondiente finiquito, el cual deberá firmar el contratista y el Administrador del contrato.

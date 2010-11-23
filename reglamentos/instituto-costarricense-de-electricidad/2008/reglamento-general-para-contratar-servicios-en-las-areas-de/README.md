@@ -14,3 +14,4 @@ Reglamento General para Contratar Servicios en las Áreas de Planta Externa, Civ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-28 | la propia norma |
+| 2 | 2010-11-23 | Reglamento 5928 (2010-11-23) |
