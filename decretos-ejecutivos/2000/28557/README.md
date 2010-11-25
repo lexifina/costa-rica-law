@@ -16,3 +16,4 @@ Reglamento Uniforme Oficial en las Instituciones Educativas Públicas
 | 1 | 2000-04-06 | la propia norma |
 | 2 | 2001-06-06 | Decreto Ejecutivo 29598 (2001-06-06) |
 | 3 | 2010-08-09 | Decreto Ejecutivo 36231 (2010-08-09) |
+| 4 | 2010-11-25 | Decreto Ejecutivo 36382 (2010-11-25) |
