@@ -1,0 +1,2 @@
+Artículo 11.—La Unidad Financiera de la Superintendencia no tramitará ni realizará ningún pago cuando se incumplan los requisitos señalados.
+Por Unidad Financiera debe entenderse además de una unidad administrativa propia de la estructura organizativa de esta Superintendencia, el Departamento Financiero de la Autoridad Reguladora de los Servicios Públicos, en virtud del convenio de servicios de apoyo suscrito entre la SUTEL y la ARESEP.

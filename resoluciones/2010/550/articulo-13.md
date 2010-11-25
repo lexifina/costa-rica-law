@@ -1,0 +1,2 @@
+V. Disposiciones finales
+Artículo 13.—En todo lo no previsto en el presente procedimiento, se aplicarán supletoriamente la Ley General de la Administración Pública, Ley de la Administración Financiera de la República, en lo que corresponda y aplica a esta Superintendencia, el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República, el Reglamento para el pago de Gastos de Representación de la Autoridad Reguladora de los Servicios Públicos y demás normativa que resulte aplicable y no se oponga a estas regulaciones.
