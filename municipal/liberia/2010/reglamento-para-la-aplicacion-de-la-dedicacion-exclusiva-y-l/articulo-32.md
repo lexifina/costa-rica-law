@@ -1,0 +1,2 @@
+Artículo 32.—Los beneficios otorgados a los funcionarios (as) municipales por medio de la Dedicación Exclusiva y la Disponibilidad, no impiden de ninguna forma, modo o manera que los funcionarios (as) municipales a cogidos a tales incentivos perciban sus respectivos honorarios profesionales, siempre y cuando dichos honorarios profesionales deban ser cancelados por terceras personas.
+En asuntos en que la Municipalidad haya intervenido, la institución no cubrirá los honorarios profesionales.
