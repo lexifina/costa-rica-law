@@ -1,4 +1,5 @@
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Nota de Sinalevi. El Instituto Costarricense de Pesca y Acuicultura, aprobó Establece tarifas por la venta de bienes y servicios que brinda y genera el INCOPESCA mismas que entraran en vigencia a partir del primero de enero de 2011, mediante acuerdo A.J.D.I.P./399-2010 del 25 de noviembre de 2010)
 A.J.D.I.P./293-2009.—Puntarenas, a los cuatro días del mes de setiembre del 2009.
 Considerando
 1º—Que mediante acuerdo AJDIP/271-2009, esta Junta acoge recomendación de la Comisión de Tarifas, autoriza a la Administración a aplicar un 10% de aumento como costo de acceso al recurso según el modelo de costos existentes para las licencias y adicionalmente en los servicios que brinda la Institución salvo los que estén dolarizados, sobre las tarifas que por concepto de bienes y servicios se han aplicando en el año 2009, las cuales regirán para el ejercicio económico del año 2010.
@@ -88,6 +89,7 @@ Extranjero que practica pesca continental o marina desde embarcación | carné |
 Nacional, Residente o Extranjero que practica pesca subacuática continental o marina | carné | dólares | 25.00
 Nacional o Residente que practica pesca marina o continental, desde tierra | carné | colones | 6,600.00
 Extranjero que practica pesca marina o continental desde tierra | carné | dólares | 25.00
+Carné Nacional, Residente o Extranjero que practica pesca continental o marina desde embarcación (un mes calendario) (Así adicionado el aparte anterior mediante acuerdo N° AJDIP/393-2010 del 25 de noviembre de 2010) | | | $1150
 CARNE DE IDENTIFICACION PARA OBSERVACION DE CETACEOS (Por año / Por trámite) | | |
 Nacional o Residente que realiza observación de cetáceos (por año) | carné | colones | 11,600.00
 Extranjero que realiza observación de cetáceos (por año) | carné | dólares | 25.00
@@ -127,6 +129,10 @@ Tarifa INCOPESCA por hora o fracción = (A*B) | | |
 A= Costo x hora | | | 500.00
 Suministro de Agua Potable | | |
 B= Tiempo en horas de permanencia (*)(Así reformado el aparte anterior mediante acuerdo N° AJDIP/290-2010 del 10 de setiembre de 2010) | | |
+Estadía de embarcaciones de pesca comercial nacional, no turística ni deportiva para avituallamiento (hielo y diesel en Coopeinpesa R. L.) (Así adicionada la tarifa anterior mediante acuerdo N° AJDIP/393-2010 del 25 de noviembre de 2010) | | | (¢30.00 * metro eslora * hora o fracción) + ¢2550,00. Coopeinpesa R. L.)
+Estadía y descarga de embarcaciones de pesca comercial extranjeras (Así adicionada la tarifa anterior mediante acuerdo N° AJDIP/393-2010 del 25 de noviembre de 2010) | | | $0.30 * metro eslora * extranjeras hora o fracción) + ¢5100,00.
+Estadía embarcación con fines científicos, de investigación, didácticos y de fomento (Así adicionada la tarifa anterior mediante acuerdo N° AJDIP/393-2010 del 25 de noviembre de 2010) | | | ¢180,00.
+Estadía embarcación nacional o extranjera para fines distintos a la descarga de productos pesqueros o avituallamiento (Así adicionada la tarifa anterior mediante acuerdo N° AJDIP/393-2010 del 25 de noviembre de 2010) | | | ¢180,00.
 LICENCIA PARA PESCA COMERCIAL (por año o por trámite) | | |
 Pesca Comercial Pequeña Escala | licencia | colones | 16,500.00
 Pesca Comercial Mediana Escala | licencia | colones | 50,000.00
