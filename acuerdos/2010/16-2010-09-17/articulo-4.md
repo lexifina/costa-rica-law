@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza a la Dirección General de la Presidencia de la República y del Ministerio de la Presidencia, a fin de que pueda solventar las necesidades de espacio físico, equipo y recursos materiales, para el desarrollo de las funciones del Comité Asesor Presidencial en Discapacidad, en la medida de las posibilidades y disponibilidad presupuestaria.

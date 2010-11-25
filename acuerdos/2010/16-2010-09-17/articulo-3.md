@@ -1,0 +1,1 @@
+Artículo 3º—El Comité Asesor Presidencial en Discapacidad, tendrá un plazo de dos meses para elaborar un plan de trabajo proyectado a mayo del 2014, que será sometido para su aprobación a la señora Presidenta de la República. Asimismo, brindará informes semestrales de gestión y cumplimiento al señor Ministro de la Presidencia.
