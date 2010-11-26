@@ -1,0 +1,1 @@
+Artículo 14.—Las actualizaciones en el precio de los materiales proveniente de la extracción del cauce del río Coronado se ajustarán anualmente con base en el índice de precios al consumidor, calculados por el Instituto Nacional de Estadística y Censo.

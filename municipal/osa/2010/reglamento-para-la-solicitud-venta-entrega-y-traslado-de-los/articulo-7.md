@@ -1,0 +1,1 @@
+Artículo 7º—Responsabilidades: Es responsabilidad y obligación del usuario el traslado por sus propios medios del material adquirido, con un máximo para su retiro de tres días hábiles posteriores a la emisión del recibo de pago. Transcurrido este tiempo, la entrega del material se somete a la programación que la Municipalidad establezca de acuerdo a sus necesidades particulares.

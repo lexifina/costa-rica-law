@@ -1,0 +1,1 @@
+Artículo 6º—Sitio de entrega: El material se entregará en el sitio de extracción, para lo cual el usuario deberá llevar su transporte y proceder a entregar una copia del recibo del pago respectivo, al encargado de la entrega del material ubicado en el sitio de extracción.
