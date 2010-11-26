@@ -1,0 +1,1 @@
+Artículo 6º—Todo vecino del Cantón de Palmares, una vez fallecido, tendrá derecho a un funeral decoroso y a la deposición conveniente y adecuada de su cadáver. Restos o cenizas deben ser tratados en todo momento con consideración y respeto.

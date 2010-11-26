@@ -1,0 +1,1 @@
+Artículo 33.—Todo adjudicatario de un derecho deberá mantener en buen estado de conservación y presentación su bóveda, bastara notificación de las anomalías, para que en un plazo de dos meses proceda a las reparaciones respectivas. Caso contrario, no se permitirá inhumaciones o exhumaciones en esa bóveda.

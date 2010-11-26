@@ -1,0 +1,1 @@
+Artículo 8º—Es permitido en los cementerios la práctica de servicios religiosos o ceremonias laicas, pronunciar discursos u oraciones alusivas al fallecido y el acompañamiento musical de las exequias; siempre que no contravenga la normativa existente.

@@ -1,0 +1,5 @@
+Artículo 56.—Para tomar la resolución de rescindir la adjudicación efectuada al adjudicatario, de previo se debe cumplir con el siguiente procedimiento:
+a) Notificar al adjudicatario en el lugar señalado, para recibir notificaciones.
+b) Si no se pudiere notificar por cualquier motivo, publicar en el Diario Oficial la resolución de rescindir la adjudicación efectuada y dar 30 días naturales de tiempo para recibir la prueba de descargo del adjudicatario ante el Encargado del Cementerio, después de la segunda notificación.
+c) Recibir las pruebas de descargo que tuviese el adjudicatario, ante el Encargado del Cementerio, en un plazo no mayor de treinta días naturales; contados a partir de haber recibido la notificación de los actos que se le impugnan o de haber sido publicado en el Diario Oficial por segunda vez.
+d) Notificación de la resolución final, emitida por la Municipalidad, en un término que no podrá exceder de treinta días naturales o publicación en el Diario Oficial de dicha resolución ante la imposibilidad de notificación directa al adjudicatario.

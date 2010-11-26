@@ -1,0 +1,1 @@
+Artículo 15.—Si la adjudicación de derechos de uso se realizara mediante remate, el interesado debe ser residente de este Cantón, encontrase al día con el pago de los impuestos y servicios municipales, que brinda la Municipalidad y comprometerse mediante contrato escrito, a respetar lo estipulado en este Reglamento.

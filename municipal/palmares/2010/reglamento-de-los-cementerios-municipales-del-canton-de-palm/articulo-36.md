@@ -1,0 +1,1 @@
+Artículo 36.—Las inhumaciones se realizaran de las 7:00 horas a las 17:00 horas, de conformidad con el Reglamento General, los cuerpos deberán estar en el cementerio 30 minutos antes de la hora señalada y solamente en casos determinados por autoridad de salud o judicial, podrá realizarse fuera de estas horas.

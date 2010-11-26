@@ -1,0 +1,1 @@
+Artículo 5º—La planificación, dirección, conservación y administración de los cementerios municipales del Cantón, estarán a cargo de la Municipalidad, la que velará por el cumplimiento del presente Reglamento.

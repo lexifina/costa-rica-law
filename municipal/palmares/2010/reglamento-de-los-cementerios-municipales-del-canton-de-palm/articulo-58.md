@@ -1,0 +1,1 @@
+Artículo 58.—Para preveer gastos por instalación de nuevos cementerios, se destinaran los ingresos por adjudicación de derechos, que serán determinados en razón del costo efectivo de instalación del cementerio, mas los costos financieros, un 10% de gastos administrativos y un 5% para desarrollo.

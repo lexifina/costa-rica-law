@@ -1,0 +1,1 @@
+Artículo 16.—El adjudicatario es el autorizado para realizar las gestiones que le otorgan el presente reglamento en su derecho de uso del cementerio. Deberá nombrar por lo menos dos personas a quienes se autorizan para que realicen las gestiones en nombre del titular y en ausencia de este.

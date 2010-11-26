@@ -1,0 +1,1 @@
+Artículo 61.—Corresponde a la Auditoría Interna Municipal, hacer las previsiones necesarias para el control y evaluación de las cuentas que se producen por este concepto, y de todas las disposiciones estipulados en el presente Reglamento.

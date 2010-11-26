@@ -1,0 +1,1 @@
+Artículo 14.—El área de cementerio estará dividida según el plano General del Cementerio en cuadros, los que se subdividen en líneas y estas a su vez se subdividen en fosas, las que contendrán los nichos respectivos.

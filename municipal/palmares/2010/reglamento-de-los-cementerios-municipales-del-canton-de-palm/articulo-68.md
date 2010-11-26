@@ -1,0 +1,1 @@
+Artículo 68.—Se faculta a la Municipalidad para que se notifique por medio de avisos colocados en la oficina del cementerio de la Municipalidad, sobre las deudas y otros que tengan que notificarse a aquellos adjudicatarios que no hayan registrado el lugar para oír notificaciones.

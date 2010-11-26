@@ -1,0 +1,1 @@
+Artículo 60.—Todos los ingresos que genere el cementerio serán depositados en la Caja Municipal, asignada para tal efecto y depositados en la cuenta corriente municipal, debiendo emitir un recibo oficial, debidamente sellado y firmado.

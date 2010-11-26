@@ -1,0 +1,1 @@
+Artículo 39.—Solo podrán realizarse inhumaciones de cuerpos cuyo fallecimiento se encuentre entre las 12 y las 36 horas después de ocurrido el deceso y solamente en casos determinados por autoridad de Salud o Judicial podrá realizarse fuera de estas horas.

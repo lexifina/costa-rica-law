@@ -1,0 +1,1 @@
+Artículo 2º—La presente normativa reglamentaria tiene como fines primordiales la ubicación, construcción, ampliación y funcionamiento de los cementerios municipales que se ubiquen en el territorio del Cantón de Palmares.

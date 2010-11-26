@@ -1,0 +1,1 @@
+Artículo 48.—El encargado del cementerio tendrá 30 días naturales, como plazo máximo a partir de la fecha de recepción de la solicitud, para resolver la petición sobre exhumaciones ordinarias o extraordinarias salve que una orden judicial o del Ministerio de Salud autoricen la exhumación en un plazo menor.

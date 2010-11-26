@@ -1,0 +1,1 @@
+Artículo 45.—Los restos con partes blandas o momificados, encontrados al ser exhumados, no podrán ser trasladados al osario, y deben permanecer en el sitio donde se encontraron y tapar nuevamente el nicho. Toda movilización de restos deberá ser manejado en bolsas plásticas, debidamente etiquetadas con los datos del difunto, fecha de inhumación y de exhumación.
