@@ -21,3 +21,4 @@ Reglamento relativo a la Información Financiera de Entidades, Grupos y Conglome
 | 6 | 2010-05-07 | Reglamento 850 (2010-05-07) |
 | 7 | 2010-05-21 | Reglamento 853 (2010-05-21) |
 | 8 | 2010-08-27 | Reglamento 876 (2010-08-27) |
+| 9 | 2010-11-26 | Reglamento 892 (2010-11-26) |

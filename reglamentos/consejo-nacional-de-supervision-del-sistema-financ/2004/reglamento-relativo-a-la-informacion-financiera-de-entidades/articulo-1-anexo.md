@@ -126,6 +126,13 @@ Los rubros están asociados a los códigos de grupo, cuenta y subcuenta que lo c
 [imagen]
 [imagen]
 (Así adicionado el modelo 1b anterior mediante sesión N° 811 del 2 de octubre de 2009)
+(Nota de Sinalevi: Mediante sesión N° 892 del 26 de noviembre de 2010, se adiciona las siguientes cuentas al modelo 1, “Balance General"
+1. La cuenta 125.33 “Instrumentos financieros restringidos por operaciones diferidas de liquidez” al rubro de Inversiones en Instrumentos Financieros Disponibles para la Venta
+2. La cuenta 257 “Pasivos por pagos basado valor razonable instrumentos financieros”, al rubro de otros pasivos.
+3. La cuenta 380 “Patrimonio del Fondo de Financiamiento para el Desarrollo” al rubro de Patrimonio.
+De conforme con el siguiente texto:
+[imagen]
+[imagen]
 MODELO N° 2
 NOMBRE DE LA ENTIDAD
 ESTADO DE RESULTADOS
@@ -294,6 +301,12 @@ Superávit por revaluación de inmuebles, mobiliario y equipo, neto | | | | X | 
 Saldo al 31 de diciembre Periodo 2 | | X | X | X | X | X | X
 Atribuidos a los intereses minoritarios | | X | X | X | X | X | X
 Atribuidos a la controladora | | X | X | X | X | X | X
-___________________________________________ | | _______________ | | ____________________ |
+__________________________________________ | | _______________ | | ____________________ |
 Gerente General o Representante Legal | | Contador General o Director Financiero | | Auditor Interno o análogo |
 (Así reformado mediante sesión N° 690 del 10 de diciembre de 2007)
+(Nota de Sinalevi: mediante sesión N° 892 del 26 de noviembre de 2010, se adicionan las siguientes cuentas al al modelo 4 “Estado de cambios en el patrimonio neto”,
+1. La cuenta 125.33 “Instrumentos financieros restringidos por operaciones diferidas de liquidez” al rubro de Inversiones en Instrumentos Financieros Disponibles para la Venta
+2. La cuenta 257 “Pasivos por pagos basado valor razonable instrumentos financieros”, al rubro de otros pasivos.
+3. La cuenta 380 “Patrimonio del Fondo de Financiamiento para el Desarrollo” al rubro de Patrimonio.
+De conforme con el siguiente texto:
+[imagen]
