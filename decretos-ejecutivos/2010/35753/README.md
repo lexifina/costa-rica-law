@@ -14,3 +14,4 @@ Reforma Fijación de tarifas de los servicios del Ministerio de Agricultura y Ga
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-01 | la propia norma |
+| 2 | 2010-11-26 | Decreto Ejecutivo 36341 (2010-11-26) |
