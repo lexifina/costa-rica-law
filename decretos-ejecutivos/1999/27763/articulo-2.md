@@ -5,8 +5,8 @@ Código | Descripción | Monto
 1.b | De Registro y Libre Venta de insumos agrícolas o equipos de aplicación | ¢ 15 675,00
 2 | Por cuota anual de:
 2.a | Exportadores de productos no tradicionales | ¢ 46 575,00
-2.b | Fincas orgánicas o en transición | ¢ 46 575,00
-2.c | Agencias Certificadoras | ¢ 46 575,00
+2.b | Fincas orgánicas o en transició | ¢ 46 575,00
+2.c | Agencias Certificadora | ¢ 46 575,00
 2.d | Inspectores orgánicos | ¢ 46 575,00
 2.e | Procesadores de vegetales e insumos orgánicos | ¢ 46 575,00
 2.f | Viveros y bancos de yemas | ¢ 46 575,00
@@ -22,7 +22,7 @@ Código | Descripción | Monto
 5 | Por exportación de:
 5.a | Por cada caja, saco o empaque de plantas de productos de origen vegetal a exportar, cuando el envío no es exportado en contenedor. | ¢ 12,00
 5.b | Por cada caja, saco, bulto con muestras para fines científicos a exportar | ¢ 675,00
-5.c | Por cada tonelada métrica en productos exportados o importados a granel, o sea productos no empacados que vengan en una unidad de transporte | ¢ 13,00
+5.c (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | Por cada tonelada métrica en productos exportados a granel, o sea productos no empacados que vengan en una unidad de transporte. (Así reformada la descripción anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | ¢ 13,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010)
 5.d | Por cada caja, saco, bulto con muestras sin fines de lucro a exportar | ¢ 900,00
 5.e | Por cada unidad de transporte (Contenedor, camión, furgón, carreta) en puntos de salida a exportar | ¢ 12 000,00
 5.f | Por cada tonelada métrica en productos exportados a granel, o sea productos no empacados que vengan en una unidad de transporte | ¢ 130,00
@@ -37,8 +37,9 @@ Código | Descripción | Monto
 5.i.2 | No Inscritos en el Registro Exportadores | ¢ 90 020,00
 6 | Por inspección de: |
 6.a | Lotes para autorizar siembra de organismos genéticamente modificados | ¢ 54 050,00
-6.b | Cada insumo agrícola, producto y subproducto de origen vegetal en importación o tránsito, por unidad de transporte (contenedor, camión, furgón, carreta) | ¢ 10 800,00
-6.c | Productos y subproductos de origen vegetal importados a granel, o sea productos no empacados que vengan en una unidad de transporte por cada transporte métrica | ¢ 130,00
+6.b (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | De unidad de transporte (contenedor, camión, furgón, carreta), que transporte insumos agrícolas, producto y subproducto de origen vegetal en importación o tránsito, o inspección de plantas o productos vegetales. (Así reformada la descripción anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | ¢ 10 800,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010)
+6.c (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | De cada tonelada métrica de Productos y subproductos de origen vegetal importados a granel (productos no empacados) que vengan en una unidad de transporte. (Así reformada la descripción anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | ¢ 25,00 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010)
+6.c.1 (Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010) | Para los envíos en importaciones de granos que se descargarán a granel (ya sea en sacos o grano suelto) en medios de transporte marítimo se aplica únicamente lo dispuesto en el ítem 6.c, esta tarifa incluye los servicios de inspección, muestreo, exámenes de laboratorio (residuos y diagnóstico), y transmisión al TIC@ (Así adicionada la descripción anterior por el artículo 2° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010)
 6.d | Servicio de Inspección para medios de transporte marítimo y pluvial:
 6.d.1 | Por cada buque o barco: pesquero, mercante, militar, crucero; velero, yate, lancha turística o maderera. | ¢ 27 250,00
 6.d.2 | Por cada lancha pluvial de transporte de mercadería, personas y equipajes | ¢ 10 450,00
@@ -111,7 +112,7 @@ Código | Descripción | Monto
 16.g.2 | -de 6 a 15 productos | ¢ 9 000,00
 16.g.3 | -de 16 a 25 productos | ¢ 12 000,00
 16.g.4 | -de 26 en adelante | ¢ 15 000,00
-17 | Toma de muestras de insumos agrícolas, vegetales, suelos o aguas:
+17 | Toma de muestras de insumos agrícolas; vegetales, suelos o aguas para análisis de residuos solicitadas por los administrados: (Así reformado el título anterior por el artículo 1° del decreto ejecutivo N° 36341 del 26 de noviembre de 2010)
 17.a | Por una muestra | ¢ 26 950,00
 17.b | Por más de una muestra (mismo lugar) | ¢ 36 050,00
 18 | Supervisión de Cuarentena Interna para los productos Vegetales que se importan al país, por visita | ¢ 9 130,00
