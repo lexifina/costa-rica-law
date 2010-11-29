@@ -1,0 +1,2 @@
+Artículo 11.—Control de los recursos. Será responsabilidad del Departamento Financiero Contable llevar un control detallado de cada una de las cuentas existentes en el Fondo de Bienes de Menores, así como mantener un expediente administrativo donde se detallen los activos y pasivos de cada beneficiario.
+Los registros contables, los estados financieros y las inversiones de los recursos del Fondo de Bienes de Menores, se harán en forma separada de los fondos institucionales.

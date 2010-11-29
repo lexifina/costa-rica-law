@@ -1,0 +1,2 @@
+Artículo 12.—Impugnación de resoluciones administrativas. Todas las resoluciones dictadas por los Representantes Legales de las Oficinas Locales tendrán recursos ordinarios de revocatoria y apelación. El primero será conocido y resuelto por la Oficina Local que emitió el acto y el segundo, por la Presidencia Ejecutiva, para lo cual se aplicarán las reglas establecidas en la Ley General de la Administración Pública.
+Rige a partir de su publicación. Publíquese.
