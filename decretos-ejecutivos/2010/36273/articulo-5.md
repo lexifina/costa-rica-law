@@ -1,0 +1,1 @@
+Artículo 5º—Para efectos del cumplimiento de las competencias dadas al Instituto por la Ley en los incisos e), g), h), i) y j) de su artículo 6, aquél podrá suscribir los convenios de cooperación con las entidades estatales y gobiernos locales señalados en la norma citada, que sean pertinentes y acordes a sus competencias y capacidades legales y técnicas.
