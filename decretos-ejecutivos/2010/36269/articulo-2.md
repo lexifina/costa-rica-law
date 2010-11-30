@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 2º del Decreto Ejecutivo Nº 22483-MOPT del 1º de setiembre de 1993, publicado en La Gaceta Nº 174 del 10 de setiembre de ese mismo año, denominado “Reglamento sobre las Dimensiones de los Derechos de Vía en los Ferrocarriles Nacionales”, para que se lea de la siguiente forma:
+“Artículo 2º—Las disposiciones de este Reglamento serán ejecutadas por el órgano técnico correspondiente del Instituto Costarricense de Ferrocarriles (INCOFER).”
