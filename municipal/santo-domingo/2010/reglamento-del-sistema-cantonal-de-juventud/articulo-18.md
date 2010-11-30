@@ -1,0 +1,1 @@
+Artículo 18.—Cada comité distrital deberá nombrar a mínimo dos jóvenes del distrito, para que los represente en las reuniones mensuales de la red juvenil cantonal, que en su caso serán el coordinador y subcoordinador.

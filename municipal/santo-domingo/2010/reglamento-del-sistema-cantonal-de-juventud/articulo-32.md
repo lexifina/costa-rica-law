@@ -1,0 +1,1 @@
+Artículo 32.—Aquella organización, colegio o joven que proponga algún proyecto en las reuniones de la red juvenil, tendrá la responsabilidad de liderar la ejecución y presentar los informes respectivos con el apoyo y fiscalización de la red.

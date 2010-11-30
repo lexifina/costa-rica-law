@@ -1,0 +1,1 @@
+Artículo 29.—La red juvenil cantonal está conformada por los siete representantes del comité cantonal, los dos representantes de los comités distritales, las organizaciones juveniles, las instituciones educativas de secundaria y demás jóvenes residentes en el cantón interesados en formar parte de la red.

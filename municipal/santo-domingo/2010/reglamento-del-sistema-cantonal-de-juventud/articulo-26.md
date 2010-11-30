@@ -1,0 +1,1 @@
+Artículo 26.—Será responsabilidad del coordinador (a) y subcoordinador (a) distrital de la persona joven, convocar a reuniones, presidir y dirigir las sesiones de trabajo, proponiendo los acuerdos del caso, así como velar y cumplir con todas las funciones del comité distrital, que se mencionan en el artículo 15 de este reglamento.

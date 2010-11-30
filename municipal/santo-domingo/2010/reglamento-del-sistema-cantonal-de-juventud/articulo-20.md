@@ -1,0 +1,1 @@
+Artículo 20.—El concejo municipal presupuestará un porcentaje del presupuesto anual de la municipalidad, con la finalidad de cubrir el gasto de transporte de los representantes de los comités distritales de los cuatro distritos del este, ida y vuelta, para asistir a las reuniones mensuales de la red juvenil cantonal.

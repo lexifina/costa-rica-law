@@ -1,0 +1,1 @@
+Artículo 19.—El concejo municipal presupuestará 0.19% del presupuesto anual de la municipalidad, para el financiamiento de los proyectos de los comités distritales de la persona joven, el cual se dividirá en proporciones iguales, entre los ocho distritos del cantón.
