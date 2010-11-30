@@ -12,7 +12,8 @@ e) Se considera falta grave la infracción a las prohibiciones y obligaciones co
 f) La embriaguez con ocasión del ejercicio profesional.
 g) La falta leve reiterada.
 Faltas muy graves:
-h) Son faltas muy graves la infracción a las prohibiciones y obligaciones contenidas en el capítulo I; artículos del 7º al 10; capítulo III, excepto los incisos n), o), p); capítulo IV y los incisos c) y g) del artículo 59.
+h) Son faltas muy graves la Infracción a las prohibiciones y obligaciones contenidas en el Capítulo I; Artículos del 7 al 10; Capítulo III, excepto los incisos n, o, p, del artículo 11; Capítulo IV excepto el artículo 21 y los incisos c y g del artículo 59.
+(Así reformado el inciso anterior mediante acuerdo N° 670 de la sesión N° 007 del 30 de noviembre de 2010)
 i) La embriaguez o toxicomanía habitual y pública.
 j) Los actos dolosos.
 k) La falta grave reiterada.
