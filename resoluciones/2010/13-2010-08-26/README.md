@@ -14,3 +14,4 @@ Lineamientos para la Liquidación de Obligaciones Tributarias, Créditos y Sanci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-30 | la propia norma |
+| 2 | 2010-11-30 | Resolución 18 (2010-10-25) |
