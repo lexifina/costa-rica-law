@@ -1,5 +1,2 @@
-CAPÍTULO II
-Normas específicas
-Artículo 13.—Contrataciones para la adquisición, el mantenimiento y la actualización o arrendamiento de equipos tecnológicos, hardware y software y desarrollos de sistemas informáticos. Esta excepción se aplicará, tal y como lo indica el artículo 9 de la Ley del INS, a toda contratación que tenga como fin mediato o inmediato la adquisición, el mantenimiento, la actualización o el arrendamiento de equipos tecnológicos, hardware y software y desarrollos de sistemas informáticos.
-La Unidad Usuaria, en todos los casos, será la Dirección de Informática, salvo que la Gerencia o la Presidencia Ejecutiva dispongan justificadamente otra Unidad Usuaria. Se deberán aplicar los procedimientos según lo dispuesto en este reglamento, lo que indique el Manual y las directrices específicas que pueda dictar la Gerencia o la Presidencia Ejecutiva.
-El contratista está obligado a entregar objetos actualizados, cuando el cartel así lo haya dispuesto y bajo los términos que allí se indiquen.
+Artículo 13.—Contrataciones de reaseguros y servicios accesorios a éstos. La contratación de reaseguros y servicios accesorios a éstos se regirá por el reglamento específico aprobado por la Junta Directiva del INS.
+(Así corrida su numeración y publicada en La Gaceta N° 241 del 13 de diciembre de 2010, que lo traspaso del antiguo artículo 14 al 13 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 6 original y modificar su numeración)

@@ -15,3 +15,4 @@ Reglamento de Contrataciones exceptuadas de los procedimientos ordinarios de Con
 | --- | --- | --- |
 | 1 | 2008-09-22 | la propia norma |
 | 2 | 2009-01-26 | Reglamento 8929 (2009-01-26) |
+| 3 | 2010-11-30 | Reglamento 0 (2010-11-30) |
