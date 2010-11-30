@@ -1,0 +1,1 @@
+Artículo 14.—Desarrollo de las sesiones. Las sesiones ordinarias y extraordinarias serán dirigidas por el Presidente o quien lo sustituya en su ausencia y deberán desarrollarse conforme al orden del día.

@@ -1,0 +1,1 @@
+Artículo 24.—Firma. Una vez aprobada el acta, el Secretario procederá a consignarla en el Libro de Actas, y será firmada por el Presidente y el Secretario dando fe de que dicha acta es fiel del documento aprobado por la Comisión de Fortalecimiento. Se incluirá además la firma de aquellos miembros que hubieren hecho constar su voto disidente.

@@ -1,0 +1,1 @@
+Artículo 23.—Aprobación. Las actas se aprobarán en la siguiente sesión ordinaria. Antes de dicha aprobación, los acuerdos dictados carecerán de firmeza, salvo que los miembros presentes acuerden su firmeza por votación de ocho miembros de la Comisión de Fortalecimiento.

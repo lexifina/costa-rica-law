@@ -1,0 +1,1 @@
+Artículo 15.—Naturaleza de las sesiones. Las sesiones tanto ordinarias como extraordinarias serán privadas, salvo que por unanimidad la Comisión de Fortalecimiento acuerde permitir el acceso del público en general, o algún grupo o personas específicas, a los cuales les podrá conceder el derecho a participar en las deliberaciones con voz pero sin voto.

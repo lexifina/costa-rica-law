@@ -1,0 +1,1 @@
+Artículo 11.—Ausencias: En caso de ausencia o enfermedad del Secretario en las sesiones ordinarias o extraordinarias, será sustituido por un Secretario Suplente que designe la Comisión de Fortalecimiento.

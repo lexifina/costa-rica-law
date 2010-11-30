@@ -1,0 +1,1 @@
+Artículo 19.—Orden del día. No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros de la Comisión de Fortalecimiento y se declare la urgencia del asunto, por unanimidad.

@@ -1,0 +1,1 @@
+Artículo 25.—Publicidad de las actas. Las actas de sesión de la Comisión de Fortalecimiento una vez aprobadas, son públicas de conformidad con lo dispuesto en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, No 8422.

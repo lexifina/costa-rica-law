@@ -1,0 +1,2 @@
+Artículo 26.—Libro oficial de actas. El secretario deberá conformar un libro de actas en el que, una vez firmes las actas respectivas, se transcribirán inmediatamente a fin de sean firmadas por el Presidente y el Secretario, en un plazo máximo de ocho días hábiles luego de su aprobación.
+El Secretario deberá solicitar la legalización del Libro de Actas ante la Auditoria Interna del Ministerio de Hacienda, en el momento que sea necesario. La responsabilidad de la custodia, firma y foliado del mismo, recae en el secretario.
