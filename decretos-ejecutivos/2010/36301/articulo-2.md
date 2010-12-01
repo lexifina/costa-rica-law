@@ -1,0 +1,1 @@
+Artículo 2º—La Condecoración Mérito en la Paz y en la Democracia, será otorgada por la Presidencia de la República los días primero de diciembre de cada año en el marco de las celebraciones de la abolición del ejército.

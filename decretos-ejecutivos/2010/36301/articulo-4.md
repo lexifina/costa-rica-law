@@ -1,0 +1,1 @@
+Artículo 4º—En el Museo Nacional, se establecerá un registro fotográfico de quienes reciban esta Condecoración, así cómo una breve reseña de los logros que se alcanzaron para hacerse acreedores a esta distinción.
