@@ -1,13 +1,8 @@
-Artículo 23.—Servicios de fiscalización. Los servicios de fiscalización que realice la Auditoría Interna conforme a sus competencias se denominaran en este Reglamento como servicios preventivos y servicios a posteriori.
-Servicios Preventivos. Los servicios preventivos son los siguientes:
-1. Servicio de legalización de libros. La Auditoría Interna es la encargada de la apertura y cierre de los libros contables y otros legales que deberá llevar la Institución. En este servicio también se encuentra la fiscalización periódica de la efectividad del manejo, control de libros o registros relevantes para el fortalecimiento del control interno.
-2. Servicio de asesoría. La Auditoría Interna deberá asesorar al Concejo Municipal en materia de su competencia, sin perjuicio de trasladar aquellas asesorías que a criterio del auditor, le corresponderá efectuar a otros niveles de las Administración Activa.
-3. Servicio de advertencia. La Auditoría Interna deberá advertir a la Administración Municipal, incluyendo al Concejo, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
-4. Servicio de Conversaciones de control interno. La Auditoría Interna podrá emitir mediante los medios internos dispuestos en la Municipalidad de Tarrazú, aquellos oficios dirigidos a todo personal, en los cuales se discutan temas de la competencia a fin de mejorar el conocimiento general de asuntos de control interno.
-Servicios a posteriori. Llamados también Servicios de Auditoría. Los servicios a posteriori son los referidos a los distintos tipos de auditoría, incluidos los estudios especiales. Estos servicios regularmente dan por resultados informes de auditoría y/o relaciones de hechos.
-Los servicios a posteriori dependiendo de su alcance y considerando la normativa aplicable se clasifican en Auditorias y estudios especiales. Los estudios especiales incluyen la atención de denuncias.
-Los productos que se dan son:
-1) Informes de control Interno. Su objetivo es emitir recomendaciones para que al implementarlas la Administración Activa mejore el Sistema de Control Interno.
-2) Informes de Relación de Hechos. Son informes en que se detalla la secuencia de hechos que podrían eventualmente conllevar responsabilidades administrativas, civiles o penales.
-3) Informes de Seguimiento de recomendaciones. Son informes en que la Auditoría Interna le indica a la Administración el estado de las recomendaciones u observaciones realizadas por la Auditoría Interna, la Auditoría Externa, así como las disposiciones emitidas por la Contraloría General de la República, así como de otras instancias con competencia.
-Origen de los estudios o servicios. Los estudios o servicios de la Auditoría Interna se podrán originar por solicitud de la Contraloría General de la República, el Concejo Municipal, el contenido del Plan Anual Operativo, el criterio del Auditor o Auditora Interna o por medio de una denuncia.
+Artículo 23.—Deberes de la Auditoría Interna. Serán deberes del Auditor interno, el Subauditor, y el personal de la Auditoría Interna los siguientes:
+a) Los señalados en el artículo 32 de la Ley General de Control Interno.
+b) Los contemplados a lo largo del presente Reglamento.
+c) Las que le impone el Manual de Organización y Funciones de la Auditoría Interna.
+d) Los que establece la Contraloría General, en manuales, resoluciones, lineamientos, circulares, directrices y otros documentos que son de carácter obligatorio.
+e) Los que le impone el Manual de Clases de Puestos (Institucional).
+f) Todos aquellos que contemplen la normativa legal, reglamentaria y técnica aplicable, emitida por las demás instituciones de control y fiscalización competentes.
+(Así corrida su numeración en sesión N° 31 del 01 de diciembre de 2010, que lo traspasó del antiguo artículo 21 al 23 actual)

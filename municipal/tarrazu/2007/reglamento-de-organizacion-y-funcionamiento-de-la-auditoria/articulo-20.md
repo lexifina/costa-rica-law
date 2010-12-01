@@ -1,10 +1,2 @@
-CAPÍTULO V
-Funcionamiento de la Auditoría Interna
-Artículo 20.—Competencias de la Auditoría Interna. Para el desempeño eficiente y efectivo de las labores de Auditoría Interna serán competencias de esa dependencia todas aquellas que se contemplan en la siguiente normativa:
-a) Ley General de Control Interno (Nº 8292).
-b) Ley Orgánica de la Contraloría General de la República (Nº 7428).
-c) El presente Reglamento.
-d) Manual de Normas Generales de Auditoría para el Sector Público.
-e) Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público.
-f) Lineamientos y directrices que emite la Contraloría General.
-g) Las demás competencias que contemplen la normativa legal, reglamentaria y técnica aplicable, con las limitaciones que establece el artículo 34 de la Ley General de Control Interno.
+Artículo 20.—Vacaciones, permisos y otros del Auditor o Auditora Interna. Las vacaciones, permisos y otros asuntos del Auditor Interno deberán ser conocidos y aprobados por el Concejo Municipal. Sin embargo, en los casos en que dichos permisos o vacaciones no superen los 5 días hábiles y no puedan ser tramitados con anticipación, será suficiente la comunicación previa a la Coordinación de Recursos Humanos.
+(Así adicionado en sesión N° 31 del 01 de diciembre de 2010)
