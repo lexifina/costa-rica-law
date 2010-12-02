@@ -1,3 +1,1 @@
-SECCIÓN II
-Rescisión del contrato
-Artículo 92.—El AC en coordinación con el CCA, en lo que corresponda, emitirá una justificación de los motivos de interés público, caso fortuito o fuerza mayor, o mutuo acuerdo, por los cuales se pretende rescindir el contrato; la cual se enviará a la Proveeduría para que inicie el procedimiento de rescisión del contrato total o parcial. Verificada la causal que permite la resolución, el AC emitirá la orden de suspensión del contrato.
+Artículo 92.—Una vez notificada la audiencia inicial concedida por la Contraloría General de la República , deberá la Proveeduría en el plazo de un día hábil remitir el documento al Área Técnica y a la Dirección de Contratación Administrativa para que se pronuncien dentro del plazo establecido por la Contraloría General de la República. De considerarlo necesario cualquiera de las tres dependencias, convocará a reunión para coordinar la respuesta de la apelación.

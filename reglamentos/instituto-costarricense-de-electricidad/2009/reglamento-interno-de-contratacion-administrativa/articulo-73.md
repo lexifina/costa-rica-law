@@ -1,1 +1,1 @@
-Artículo 73.—Si el recurso es declarado con lugar, la Proveeduría, en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.
+Artículo 73.—La devolución de las garantías de participación se hará previa autorización de la Proveeduría , a los oferentes no adjudicados y al adjudicatario cuando éste haya rendido la garantía de cumplimiento. Para el caso de las garantías de cumplimiento la devolución se hará previa autorización del AC, en coordinación con la Proveeduría.

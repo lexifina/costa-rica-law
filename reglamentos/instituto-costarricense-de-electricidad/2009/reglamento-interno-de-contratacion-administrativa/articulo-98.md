@@ -1,2 +1,8 @@
-Artículo 98.—El cobro de las multas y cláusulas penales, se hará con cargo a las retenciones del precio, que se hubieran practicado y los saldos pendientes de pago. En caso de que ninguna de esas dos alternativas resulte viable, se ejecutará la garantía de cumplimiento hasta por el monto respectivo.
-El AC en coordinación con el CCA en lo que corresponda, al momento de solicitar ante la Proveeduría el trámite de cobro de la multa o cláusula penal deberá como medida cautelar hacer la retención provisional del monto de la multa en las facturas pendientes de pago. Esta deducción de pago se realizará previa comunicación al Área de Administración de Garantías, Registros y Sanciones de la Proveeduría para que así se haga saber al contratista.
+TÍTULO V
+Terminación de los contratos administrativos
+CAPÍTULO I
+Resolución y rescisión del contrato
+SECCIÓN I
+Resolución del contrato
+Artículo 98.—En caso de incumplimientos graves del contratista, el AC documentará el incumplimiento, indicará la prueba en que se sustenta y la estimación de los daños y perjuicios, solicitando a la Proveeduría la resolución del contrato, así como el monto a ejecutar de la garantía de cumplimiento y cobro de multas o cláusula penal, según corresponda. Asimismo, el AC solicitará en el mismo acto la aplicación de las sanciones correspondientes (apercibimiento o inhabilitación). Todo lo anterior en coordinación con el CCA en lo que corresponda.
+Una vez documentado el incumplimiento el AC podrá emitir la orden de suspensión del contrato.

@@ -1,2 +1,23 @@
-Artículo 15.—Cuando surja una necesidad no prevista, el Programa de Adquisiciones o el listado de contrataciones directas especiales podrá ser modificado siguiendo el mismo procedimiento que se indica en el artículo anterior, para lo cual deberán adjuntarse las justificaciones pertinentes.
-Las contrataciones que no estén amparadas al Programa de Adquisiciones original o modificado, no serán tramitadas por la Proveeduría. Se excluyen de la publicación de este artículo las contrataciones por excepción
+Artículo 15.—El CCA en conjunto con el Director de UEN, Director Administrativo, Director Técnico, jefe de División o la jefatura del Área adscrita a la Gerencia General , preparará el Programa de Adquisiciones en noviembre de cada año y lo someterá a aprobación del Gerente respectivo, en el formato establecido por la Proveeduría. Una vez aprobado, éstas comunicarán a la Proveeduría su decisión de aprobación o solicitarán a las dependencias los ajustes necesarios. Este programa anual deberá estar aprobado en la primera semana de enero de cada año, para su debida publicación y seguimiento por parte de la Proveeduría.
+Con la aprobación del Programa de Adquisiciones, quedarán autorizados los inicios de trámite de los procesos incluidos en dicho programa y listado, sin detrimento de los requisitos que se deban cumplir para la debida publicación de los mismos y que serán verificados por la Proveeduría , previo a la publicación.
+Para la estimación del monto del contrato, de las licitaciones o contrataciones a tramitar, no se tomaran en cuenta las posibles prórrogas u opciones de compra, dado que estas son meras expectativas que pueden o no darse.
+Todos aquellos proyectos superiores al tope que defina el Consejo Directivo, requerirán de previo a la publicación del cartel, la autorización de dicho Órgano Colegiado. Para el trámite correspondiente deberán aportarse los siguientes requisitos:
+a) Responsable que realizó el estudio y aprobación de la Gerencia respectiva.
+b) Relación y justificación de la compra, en concordancia con el Plan Nacional de Desarrollo, Planes Institucionales, Planes Sectoriales, Planes de la Dirección Técnica , UEN o Dirección Administrativa, Plan Anual Operativo y Presupuesto.
+c) Comparación de las opciones de previo a tomar la decisión:
+a. Descripción detallada de las opciones donde se analicen las ventajas y desventajas de cada uno.
+b. Selección de la opción que se considere más conveniente a los intereses institucionales.
+d) Evaluación de la opción seleccionada:
+a. Estudio técnico-administrativo.
+b. Evaluación de la viabilidad jurídica en caso de que se proyecte realizar una contratación directa de excepción (Estudio de mercado).
+c. Estudio Ambiental (en los casos en que proceda como desarrollo de proyectos de electricidad).
+d. Estudio Social (en los casos en que corresponda).
+e. Estudio Económico-financiero. El dictamen debe contar con el visto bueno de la Gerencia de Finanzas y debe determinarse la factibilidad financiera del proyecto y analizar si cada adquisición se soporta con sus propios flujos netos de efectivo o requiere de algún tipo de fuente de fondos. De ser posible, los estudios deben incluir los flujos de efectivo proyectados, impacto del proyecto en las finanzas del ICE y fuente de financiamiento (recursos propios y/o fuentes externas). El análisis de los flujos libres de efectivo aplica para los proyectos de inversión.
+e) Análisis de riesgo o factores críticos de riesgo de la alternativa.
+f) Conclusiones y recomendaciones. En esta sección se debe hacer un análisis que incluya las diferentes variables de los estudios realizados.
+g) Cronograma de tareas a realizar, así como los responsables de cada una de ellas.
+h) Procedimiento de compra escogido y su justificación. Se debe justificar, sobre todo en los casos que se opte por una contratación directa, detallando las razones que justifican el no hacer un procedimiento de participación pública.
+i) Nombre del administrador del contrato.
+j) En caso de que para la evaluación de la contratación no aplique la presentación de algunos de los puntos mencionados, se debe hacer una justificación en la presentación ante el Consejo Directivo, explicando el por qué, para este caso en particular, no aplica el cumplimiento de dichos puntos.
+k) Cuando la compra sea parte de un proyecto o programa, para sustentar cada contratación se utilizarán los estudios realizados para el proyecto del que forma parte. Las compras particulares asociadas a un proyecto o programa aprobado por el Consejo Directivo, no deberán someterse de nuevo a aprobación, aunque esa compra supere el tope definido por dicho Órgano.
+Todos los documentos donde consten los estudios antes mencionados se deberán incorporar al expediente respectivo.

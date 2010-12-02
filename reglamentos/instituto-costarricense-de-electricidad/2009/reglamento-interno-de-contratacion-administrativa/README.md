@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-10 | la propia norma |
+| 2 | 2010-12-02 | Reglamento 5931 (2010-12-02) |

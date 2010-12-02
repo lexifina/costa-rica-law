@@ -1,1 +1,1 @@
-Artículo 93.—La Dirección Administrativa de Proveeduría, otorgará una audiencia al contratista por un plazo de diez días hábiles. En caso de que el contratista solicite una liquidación, la Proveeduría solicitará al AC que en conjunto con la Dirección de Finanzas rindan un informe sobre el monto a liquidar.
+Artículo 93.—Una vez que sean remitidos los respectivos pronunciamientos o cuando el mismo sea conjunto, la Proveeduría deberá enviar la respuesta al Órgano Contralor antes de que se cumpla el plazo concedido por éste.

@@ -1,1 +1,3 @@
-Artículo 31.—En aquellos casos en que se establezca en la licitación la necesidad de inspección, para evaluar la experiencia y los equipos que se ofrecen, se integrará un solo grupo para que visite todas las empresas que se vayan a evaluar, debiendo estar conformado por un funcionario del Área Técnica, otro de la Proveeduría y por uno de la Dirección de Contratación Administrativa. En caso de que la empresa se encuentre fuera del país, la visita se realizará según los lineamientos vigentes para los viajes al exterior.
+SECCIÓN I
+Licitaciones
+Artículo 31.—Es un procedimiento para que el ICE adquiera los bienes y servicios que requiere para su normal operación. Acorde con la normativa vigente y según el monto del concurso, se clasifican en abreviada y pública e inician mediante la aprobación del Programa de Adquisiciones.

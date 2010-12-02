@@ -1,7 +1,3 @@
-Artículo 58—Toda solicitud de aprobación interna deberá tramitarse a través de la Proveeduría y deberá enviarse a la Dirección de Contratación Administrativa, debiendo constar en el expediente al menos los siguientes requisitos:
-a) Certificación en la que se haga constar que se cuenta con el contenido presupuestario para cubrir el precio contractual.
-b) Los estudios técnicos que sustenten la selección del objeto contractual
-c) Rendición de garantía de cumplimiento, cuando corresponda.
-d) Pago de especies fiscales.
-e) Comprobante de que el contratista se encuentra al día de sus obligaciones con la CCSS.
-En caso de algún requisito adicional que se requiere que conste en el expediente para emitir la aprobación interna, será la Dirección de Contratación Administrativa quien emita la circular de acatamiento general.
+Artículo 58.—Todas las modificaciones unilaterales al contrato (contratos en ejecución) cuyo tope alcance el monto máximo establecido para contrataciones directas de escasa cuantía incluyendo el 30% que establece el artículo 21 del Reglamento a la Ley N º 8660 serán aprobadas por la Proveeduría y no requerirán criterio legal.
+Para el caso de las modificaciones contractuales cuyo monto supere el tope citado en párrafo anterior, serán aprobadas por el órgano competente de acuerdo a los montos establecidos. Las modificaciones de las licitaciones o contrataciones directas de excepción que hayan sido aprobadas por la Junta de Adquisiciones serán autorizadas por la Gerencia respectiva, salvo el caso de las dependencias adscritas a la Gerencia General o a la Presidencia Ejecutiva , en que será el Gerente General el competente para aprobar o rechazar la modificación respectiva.
+Las disminuciones a los contratos serán autorizadas por el órgano que adjudicó, salvo en el caso de las licitaciones o contrataciones directas de excepción que hayan sido aprobadas por la Junta de Adquisiciones, las cuales serán autorizadas por la Gerencia respectiva. En todos los casos requerirán contar con criterio legal positivo de la Dirección de Contratación Administrativa.

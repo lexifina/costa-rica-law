@@ -1,1 +1,5 @@
-Artículo 67—En caso de que proceda la ejecución de las garantías, se seguirá el procedimiento establecido en el Reglamento a la Ley Nº 8660, así como con lo establecido en el presente reglamento.
+TÍTULO IV
+Eficacia contractual
+CAPÍTULO I
+Aprobación Interna
+Artículo 67.—Requerirán aprobación interna, las contrataciones dispuestas en el Reglamento para la Aprobación Interna de las Contrataciones y Convenios no sujetos a refrendo contralor.

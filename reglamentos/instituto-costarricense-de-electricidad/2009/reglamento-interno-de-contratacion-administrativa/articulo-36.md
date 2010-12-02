@@ -1,3 +1,1 @@
-SECCIÓN II
-Modalidades de Contrato de Suministros
-Artículo 36.—La contratación del suministro de bienes podrá realizarse mediante las modalidades y términos que establece el Reglamento a la Ley Nº 8660, según el tipo de procedimiento que por cuantía corresponde.
+Artículo 36.—Cuando se presente una diferencia mayor a un 30% entre el monto estimado y el monto recomendado de adjudicación, deberá justificarse por escrito la diferencia en la respectiva recomendación de adjudicación, aportando la información suficiente. Igual aplica para los demás procedimientos de compra.

@@ -1,1 +1,1 @@
-Artículo 77.—Recibidos los criterios del Área Técnica (AC) y de la Dirección de Contratación Administrativa del ICE, la Proveeduría en un plazo máximo de un día hábil deberá remitirla al órgano que adjudicó para que en un plazo máximo de 3 días hábiles siguientes a la recepción de la documentación emita el acto final del recurso.
+Artículo 77.—En caso de que proceda la ejecución de las garantías, se seguirá el procedimiento establecido en el Reglamento a la Ley N º 8660, así como con lo establecido en el presente reglamento.

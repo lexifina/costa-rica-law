@@ -1,9 +1,5 @@
-CAPÍTULO II
-Malas Prácticas en Materia de Contratación Administrativa
-Contratos defectuosos (contratación irregular)
-Artículo 55.—Cuando se presenten contratos defectuosos se procederá de la siguiente forma:
-a) La Proveeduría solicitará a la Dirección de de Contratación Administrativa, el dictamen correspondiente, adjuntándole un resumen de lo acontecido.
-b) La Proveeduría comunicará a los contratistas involucrados en la situación irregular presentada.
-c) La Proveeduría, una vez analizada la situación, someterá a la Gerencia y Subgerencias, según corresponda, la recomendación de las acciones a seguir.
-d) Cuando la Gerencia y Subgerencias aprueben el pago de la indemnización, si se diera el caso, comunicará a la Dirección Administrativa de Finanzas para que proceda con el pago respectivo.
-e) Cuando corresponda una sanción disciplinaria, la Gerencia y Subgerencias solicitarán a la División de Capital Humano, el inicio del debido proceso de los funcionarios involucrados.
+SECCIÓN II
+Suspensión
+Artículo 55.—En el caso de la suspensión del contrato, dependiendo de la cuantía a la que han sido autorizados para adjudicar las distintas instancias estarán facultados para suspender el contrato. En el caso de las contrataciones que hayan sido adjudicadas por la Junta de Adquisiciones estarán facultadas para suspender el contrato la Gerencia respectiva o bien la Gerencia General cuando se trate de las dependencias a ella adscritas y/o Presidencia Ejecutiva. La suspensión será procedente por razones de interés público, institucional o bien por causas que imposibilitan la ejecución del contrato. Lo anterior de conformidad con lo previsto en el artículo 180 del Reglamento a la Ley N º 8660.
+El AC en coordinación con el CCA deberá presentar su recomendación al órgano que adjudicó. Una vez autorizada la suspensión respectiva, la documentación deberá ser remitida a la Proveeduría para su incorporación al expediente administrativo correspondiente.
+La suspensión deberá contar con el dictamen legal favorable.

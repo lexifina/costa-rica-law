@@ -1,1 +1,1 @@
-Artículo 11.—El coordinador general en conjunto con el CCA atenderán todo lo relacionado con la gestión de compra. El primero y el AC, puede ser el mismo funcionario.
+Artículo 11.—Estará conformado, como mínimo, por un coordinador general, un representante de la Proveeduría, uno de la Dirección de Contratación Administrativa, uno de la Gerencia de Finanzas, uno del Área Técnica, así como cualquier otra área relacionada con la adquisición.

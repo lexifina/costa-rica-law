@@ -1,6 +1,10 @@
-SECCIÓN IV
-Mejoras y facultaciones
-Artículo 53.—Las mejoras al objeto contractual deberán ser aprobadas por el mismo órgano que adjudicó, de acuerdo con la cuantía del negocio. En aquellas licitaciones o contrataciones directas especiales adjudicadas por la Junta de Adquisiciones, se faculta a las Subgerencias respectivas, o a la Gerencia General, (en caso de las áreas adscritas a la Gerencia y/o Presidencia Ejecutiva) a autorizar mejoras al objeto o servicio contratado. Para estos casos el contratista deberá mantener el mismo precio ofertado originalmente, para el equipo o servicios a actualizar, sin variar el objeto de manera sustancial. El ajuste deberá constituir una evidente mejora en relación con el equipo, material o servicio originalmente adjudicado. Deberá respetarse para estos efectos la normativa vigente.
-El AC en coordinación con el CCA de la dependencia interesada, con el visto bueno del Jefe de División, Director de UEN, Técnico o Administrativo, deberán plantear la solicitud formal ante la Subgerencia respectiva o Gerencia General en el caso de las áreas adscritas a ésta o bien a la Presidencia Ejecutiva, dependiendo de la cuantía del negocio, con el criterio técnico y legal correspondiente para su debida aprobación, la cual deberá remitirse a la Proveeduría para su archivo y custodia.
-Para los casos de contrataciones adjudicadas por órgano diferente a la Junta de Adquisiciones, se faculta al órgano que adjudicó para que pueda autorizar las mejoras siguiendo con lo establecido en los párrafos anteriores de este artículo.
-Toda la documentación referente a este trámite deberá remitirse al expediente correspondiente en custodia de la Proveeduría, en un plazo máximo de 2 días hábiles después de su emisión.
+TÍTULO III
+Ejecución contractual
+CAPÍTULO I
+Modificación, suspensión, prórroga del plazo
+y ampliación de los contratos administrativos
+SECCIÓN I
+Prórroga en el plazo de ejecución y prórrogas contractuales
+Artículo 53.—La prórroga en el plazo de ejecución contractual o al plazo de entrega deberán ser aprobadas por el mismo órgano que adjudicó, de acuerdo con la cuantía del negocio. En aquellas licitaciones o contrataciones directas especiales adjudicadas por la Junta de Adquisiciones, se faculta a las Gerencias respectivas o a la Gerencia General en el caso de las áreas a ella adscritas, así como la Presidencia Ejecutiva , a autorizarlas.
+El contratista planteará la solicitud respectiva ante la Proveeduría , el AC en coordinación con el CCA la valorarán y deberá presentar su recomendación al órgano competente Una vez autorizada la prórroga respectiva la documentación deberá ser remitida a la Proveeduría para su incorporación al expediente administrativo correspondiente.
+Aquellas prórrogas que por su competencia deben ser aprobadas por la Gerencia General deberán contar con el dictamen legal.

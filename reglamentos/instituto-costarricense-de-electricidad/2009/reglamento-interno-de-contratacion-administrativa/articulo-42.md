@@ -1,4 +1,7 @@
-SECCIÓN IV
-Materias Excluidas de los Procedimientos
-de Contratación Administrativa
-Artículo 42.—Se considera excluida de los procedimientos de contratación administrativa y fuera del alcance de su normativa regulatoria, las siguientes actividades económico-financieras: Derivados financieros, seguros, fideicomisos, créditos documentarios, emisión de garantías, seguros, coberturas de riesgo, líneas de crédito, transacciones de valores y demás instrumentos financieros así como la selección de puestos de bolsa. No obstante lo anterior, la parte interesada deberá someter a aprobación de la Junta de Adquisiciones estas figuras, sin que deban tramitarse a través de la Proveeduría, y debiendo mantener bajo su custodia el expediente administrativo correspondiente que se levante.
+CAPÍTULO II
+Materias excluidas de los Procedimientos
+Ordinarios de Contratación
+SECCIÓN I
+Contrataciones Directas Escasa Cuantía
+Artículo 42.—La contratación directa es un procedimiento contractual que permite al ICE adquirir bienes y/o servicios por montos iguales o menores al límite establecido por la legislación nacional para este tipo de trámite, o bien para contratar aquellas actividades que por su naturaleza y circunstancias no están sujetas a concurso público. Este es un proceso que utilizará la página web que utilice la Proveeduría como el medio idóneo para invitar a los participantes inscritos en el Registro de Proveedores.
+Los inicios de trámite de las contrataciones directas de escasa cuantía y las de excepción que no superen el tope del monto de escasa cuantía, se darán mediante la aprobación de un listado mensual de compras por parte del Director de UEN, Director Técnico o Administrativo, o jefe de División con copia a la Gerencia respectiva, según corresponda, que se remitirá directamente a la Proveeduría. La Proveeduría dispondrá de un listado de las compras adjudicadas a cada Sector con el desglose por UEN y Dirección Administrativa, dentro de la página web utilizada por la Proveeduría.

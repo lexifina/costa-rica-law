@@ -1,5 +1,3 @@
-CAPÍTULO III
-Planificación del Proceso de Compras
-SECCIÓN I
-Programa de adquisiciones
-Artículo 13.—El Programa de Adquisiciones deberá estar vinculado con el Plan de Desarrollo de la Institución y los respectivos planes anuales operativos de cada Subgerencia, Gerencia General o Presidencia Ejecutiva, y se iniciará con la promulgación de un plan de proyectos.
+SECCIÓN VIII
+Director de Proyecto
+Artículo 13.—Funcionarios nombrados por la Administración Superior, o sus áreas adscritas, Auditor Interno, jefaturas de Divisiones, Directores de UEN´s, y Directores Técnicos y Administrativos. Tendrá como función principal coordinar de la mejor forma con los grupos de trabajo e instancias involucradas, todas las labores de ejecución y aceptación necesarias para llevar a buen término un Proyecto. Será la voz oficial por parte del ICE, hasta el momento en que se dé el Acta de Aceptación Definitiva del Proyecto.

@@ -1,3 +1,1 @@
-SECCIÓN III
-Apelación
-Artículo 80.—Este recurso deberá plantearse ante la Contraloría General de la República en los casos de las licitaciones públicas e inestimables. Dicho recurso deberá plantearse dentro del plazo de 5 días hábiles siguientes a la publicación del respectivo acto.
+Artículo 80.—En el caso de recurso de objeción a los carteles de licitaciones públicas y recibida la notificación de audiencia especial por parte de la Contraloría General de la República , la Proveeduría solicitará el mismo día (al menos por fax ó correo electrónico) el pronunciamiento del Área Técnica y de la Dirección de Contratación Administrativa, quienes en un plazo de dos días hábiles, deberán enviar sus descargos o el allanamiento a la Proveeduría.

@@ -1,1 +1,6 @@
-Artículo 29.—La decisión administrativa que da inicio al procedimiento de contratación será emitida mediante la formalización del Programa de Adquisiciones, según se indica en los artículos 13 y subsiguientes de este reglamento. La acreditación de esta circunstancia ante la Proveeduría, será canalizada y armonizada por el CCA, quien velará porque se cumplan todos los requisitos establecidos en los artículos 14 y siguientes del Reglamento a la Ley Nº 8660.
+TÍTULO II
+DE LOS PROCEDIMIENTOS DE
+CONTRATACIÓN ADMINISTRATIVA
+CAPÍTULO I
+Procedimientos Ordinarios de Contratación Administrativa
+Artículo 29.—Los funcionarios encargados de la conducción de los procedimientos de Contratación Administrativa serán los responsables de velar por la debida aplicación de los procedimientos de contratación administrativa que correspondan. Cuando se determine el procedimiento a seguir, se deberá evitar la fragmentación ilícita, así como documentar todas sus actuaciones en el expediente administrativo.

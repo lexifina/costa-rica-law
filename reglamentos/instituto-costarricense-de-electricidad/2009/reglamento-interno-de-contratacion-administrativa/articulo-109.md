@@ -1,0 +1,1 @@
+Artículo 109.— La Proveeduría , será la encargada de comunicar y gestionar el cobro ante el contratista. No será necesario demostrar el daño y/o perjuicio pero ello no excluye que el ICE deba dictar un acto debidamente motivado en su decisión de cobro. Dicha resolución será oportunamente comunicada al contratista.

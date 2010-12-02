@@ -1,3 +1,5 @@
-TÍTULO VII
-Disposiciones Finales
-Artículo 107.—En caso de que se presenten diferencias de criterios en algún tópico, propio de la Contratación Administrativa, entre las diferentes dependencias involucradas en un procedimiento de contratación, prevalecerá el criterio de la dependencia especialista según la temática del diferendo. En caso de permanecer la diferencia, el asunto será resuelto en forma definitiva por la Gerencia General.
+TÍTULO VI
+Régimen sancionatorio
+CAPÍTULO I
+Multas y sanciones
+Artículo 107.—Las multas y cláusulas penales se ejecutarán automáticamente, en apego estricto a lo señalado en el Artículo 41 del Reglamento a la Ley N º 8660 o en el cartel o pliego de especificaciones una vez detectado el incumplimiento. Será responsabilidad del AC en coordinación con el CCA en lo que le corresponda, solicitar a la Proveeduría, mediante acto debidamente motivado el cobro de las mismas en aquellos contratos que estén bajo su tutela. Para el cobro de las multas no existen recursos.

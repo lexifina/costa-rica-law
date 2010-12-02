@@ -1,1 +1,1 @@
-Artículo 83.—Una vez que sean remitidos los respectivos pronunciamientos o cuando el mismo sea conjunto, la Proveeduría deberá enviar la respuesta al Órgano Contralor antes de que se cumpla el plazo concedido por éste.
+Artículo 83.—Si el recurso es declarado con lugar, la Proveeduría , en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

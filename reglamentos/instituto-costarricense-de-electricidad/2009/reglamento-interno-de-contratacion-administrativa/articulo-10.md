@@ -1,1 +1,3 @@
-Artículo 10.—Estará conformado como mínimo por un coordinador general, un representante de la Proveeduría, uno de la Dirección de Contratación Administrativa, uno de la Dirección Administrativa de Finanzas, uno del Área Técnica, así como cualquier otra área relacionada con la adquisición.
+SECCIÓN VII
+Equipos multidisciplinarios de gestión de compras
+Artículo 10.—Estos equipos se nombrarán, ya sea por el Consejo Directivo, la Junta de Adquisiciones, las Gerencias, según sea el monto de la contratación o por lo estratégico de la adquisición, para aquellas compras que a criterio de los Gerentes respectivos sean urgentes o de especial importancia. Estos equipos serán corresponsables de la conducción del procedimiento y emitir la recomendación respectiva.

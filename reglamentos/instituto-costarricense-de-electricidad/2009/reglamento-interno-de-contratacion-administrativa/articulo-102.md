@@ -1,1 +1,3 @@
-Artículo 102.—Una vez recibidos los descargos del contratista, los mismos serán remitidos al AC para que en coordinación con el CCA en lo que le corresponda, se pronuncien con respecto a dichas pruebas, en un plazo de 5 días hábiles.
+SECCIÓN II
+Rescisión del contrato
+Artículo 102.—El AC en coordinación con el CCA, en lo que corresponda, emitirá una justificación de los motivos de interés público, caso fortuito o fuerza mayor, o mutuo acuerdo, por los cuales se pretende rescindir el contrato; la cual se enviará a la Proveeduría para que inicie el procedimiento de rescisión del contrato total o parcial. Verificada la causal que permite la rescisión, el AC emitirá la orden de suspensión del contrato.

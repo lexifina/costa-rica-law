@@ -1,3 +1,2 @@
-CAPÍTULO III
-Garantías
-Artículo 60.—Según lo establecido en Reglamento a la Ley Nº 8660, las garantías de participación y cumplimiento son opcionales. En las contrataciones de arrendamiento de bienes inmuebles no se exigirá rendir la garantía de cumplimiento.
+Artículo 60.—Todos los contratos adicionales (modificaciones a contratos ejecutados) cuyo monto alcance el tope máximo establecido para contrataciones directas de escasa cuantía, incluyendo el 30% que establece el Artículo 21 del Reglamento a la Ley N º 8660 serán aprobados por la Proveeduría y no requerirán criterio legal.
+Para el caso de los contratos adicionales cuyo monto supere el tope indicado en el párrafo anterior, serán aprobados por el órgano competente de acuerdo al monto del contrato adicional. En el caso de las licitaciones o contrataciones directas de excepción que hayan sido aprobadas por la Junta de Adquisiciones, éstas serán autorizadas por la Gerencia respectiva.

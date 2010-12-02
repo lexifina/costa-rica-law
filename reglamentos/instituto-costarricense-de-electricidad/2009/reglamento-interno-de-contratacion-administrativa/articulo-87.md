@@ -1,5 +1,1 @@
-Artículo 87.—Los recursos se plantearán ante la Proveeduría, los cuales serán resueltos por la Proveeduría. Una vez obtenidos los criterios del área técnica (AC) y de la Dirección de Contratación Administrativa del ICE.
-Los recursos de apelación serán resueltos por la Subgerencia que tramita el procedimiento, la Gerencia o Presidencia según corresponda.
-Estos recursos seguirán los principios de la Ley General de la Administración Pública.
-Dada la resolución por el órgano competente, se enviará a la Proveeduría para que comunique la respuesta a los recurrentes que plantearon el recurso.
-En los casos cuando el recurso no es presentado ante la Proveeduría, se deberá trasladar en forma inmediata a esta última para que proceda según corresponda.
+Artículo 87.—Recibidos los criterios del Área Técnica y de la Dirección de Contratación Administrativa del ICE, la Proveeduría en un plazo máximo de un día hábil deberá remitirla al órgano que adjudicó para que en un plazo máximo de 3 días hábiles siguientes a la recepción de la documentación emita el acto final del recurso.

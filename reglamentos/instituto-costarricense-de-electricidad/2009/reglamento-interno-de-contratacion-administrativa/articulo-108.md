@@ -1,3 +1,2 @@
-Artículo 108.—Este reglamento deja sin efecto cualquier otra normativa de rango igual o inferior que se le oponga.
-Rige a partir de su publicación en La Gaceta.
-San José, 3 de setiembre del 2009.—
+Artículo 108.—El cobro de las multas y cláusulas penales, se hará con cargo a las retenciones del precio, que se hubieran practicado y los saldos pendientes de pago. En caso de que ninguna de esas dos alternativas resulte viable, se ejecutará la garantía de cumplimiento hasta por el monto respectivo.
+El AC en coordinación con el CCA en lo que corresponda, al momento de solicitar ante la Proveeduría el trámite de cobro de la multa o cláusula penal deberá como medida cautelar hacer la retención provisional del monto de la multa en las facturas pendientes de pago. Esta deducción de pago se realizará previa comunicación al Área de Administración de Garantías, Registros y Sanciones de la Proveeduría para que así se haga saber al contratista.

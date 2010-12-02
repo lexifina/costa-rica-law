@@ -1,9 +1,6 @@
-TÍTULO III
-Ejecución Contractual
-CAPÍTULO I
-Modificación, suspensión, prórroga del plazo
-y ampliación de los contratos administrativos
-SECCIÓN I
-Prórroga en el plazo de ejecución y prórrogas contractuales
-Artículo 47.—La prórroga en el plazo de ejecución contractual y el plazo de entrega deberán ser aprobadas por el mismo órgano que adjudicó, de acuerdo con la cuantía del negocio. En aquellas licitaciones o contrataciones directas especiales adjudicadas por la Junta de Adquisiciones, se faculta a las Subgerencias respectivas, o a la Gerencia General, (en caso de las áreas adscritas a la Gerencia y/o Presidencia Ejecutiva).
-De igual manera el AC deberá estar atento y solicitar con la antelación debida la suspensión del plazo del contrato a fin de tramitar en tiempo la prórroga solicitada.
+SECCIÓN III
+Procedimiento a aplicar por actos de adjudicación
+fuera del plazo en la JA
+Artículo 47.—En todo procedimiento de Contratación Administrativa en que el dictado el Acto Final corresponda a la Junta de Adquisiciones y el mismo esté fuera del plazo máximo fijado en el cartel –incluyendo sus prórrogas- el AC deberá preparar a la Junta , con copia al expediente de la contratación, una cronología detallada de todos los acontecimientos que originaron el incumplimiento del plazo y las justificaciones que correspondan y que deberá coordinar con el CCA para su envío a esta dependencia.
+La Junta trasladará el asunto a la Gerencia General o Gerencia respectiva para su seguimiento e informe posterior. En caso de incumplimiento de plazos en procedimientos que no se eleven a la Junta , se deberá seguir el procedimiento anterior por el órgano competente para dictar el acto de adjudicación.
+La Gerencia que corresponda, evaluará las justificaciones correspondientes y si el caso lo amerita, solicitará al Director de División, Dirección UEN o Administrativo respectivo, iniciar la investigación preliminar con la finalidad de determinar si hubo responsabilidad administrativa de su personal a cargo y de ser necesario se proceda con lo establecido en los artículos 114, 115 y 116 de este reglamento. En caso de que la responsabilidad por el atraso corresponda a algún funcionario que no esté bajo la autoridad del Director de División, Dirección, UEN o Administrativo, el mismo procederá a enviar el caso al Director o superior jerárquico del posible infractor para que tome las medidas correspondientes.

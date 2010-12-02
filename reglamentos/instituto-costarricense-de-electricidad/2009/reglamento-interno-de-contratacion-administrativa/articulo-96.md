@@ -1,8 +1,4 @@
-CAPÍTULO II
-Finiquito de las Contrataciones
-SECCIÓN I
-Formalización de Finiquito
-Artículo 96.—Una vez finalizada una contratación y concluido el trámite correspondiente de cobro de multas o cláusula penal, en caso de que proceda, el CCA en lo que corresponda, en coordinación con el AC, deberá enviar los informes finales, debidamente firmados, incluyendo las liquidaciones y el finiquito correspondiente en los casos que correspondan, a la Proveeduría para que pase a formar parte del expediente administrativo.
-El contrato de finiquito se firmará por parte del ICE, por quien tenga capacidad legal para firmar en relación a la cuantía del contrato y por parte del contratista el representante legal.
-Dicho contrato no requiere aprobación o visto bueno por parte de la Dirección de Contratación Administrativa.
-En el caso de contrataciones directas de escasa cuantía, no se deberá suscribir el finiquito, sino un informe final suscrito por parte del AC, que deberá incorporarse en el expediente administrativo.
+SECCIÓN IV
+Recursos ordinarios aplicables en otros procedimientos
+Artículo 96.—En contra de las resoluciones de apercibimiento y/o inhabilitación, resolución contractual, rescisión, ejecución de garantías, reclamos, contratación irregular y cobros administrativos, se deberán interponer los recursos ordinarios que establece la Ley General de la Administración Pública.
+Los actos finales o los que dicten recursos podrán ser motivados de manera referencial, según lo establecido en el artículo 136 de la Ley General de la Administración Pública para lo cual, se deberán adjuntar los informes, dictámenes o resoluciones previas que se hayan emitido en el caso particular, no debiendo transcribir su contenido.

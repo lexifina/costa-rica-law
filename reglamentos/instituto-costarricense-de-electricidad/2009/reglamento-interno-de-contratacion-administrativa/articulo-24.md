@@ -1,7 +1,2 @@
-Artículo 24.—La exclusión del Registro de Proveedores se regirá por lo dispuesto en la normativa vigente en la materia de contratación administrativa en lo que respecta a las inhabilitaciones.
-Adicionalmente se podrá dar la exclusión legal de una persona física o jurídica del registro por los siguientes motivos:
-a) Muerte o extinción.
-b) Manifestación expresa del interesado.
-c) Carencia de interés de la Administración de continuar contratando determinado bien o servicio.
-d) Inactivo por no actualización de atestados y referencias
-e) No actualización de la información en los términos que establece el artículo 23 del presente reglamento
+Artículo 24.—Una vez recibida la solicitud de los interesados para integrar el Registro de Proveedores, la Proveeduría, en un plazo máximo de tres días hábiles verificará el cumplimiento de los requisitos y en el caso de existir un incumplimiento o defecto, concederá un plazo máximo de cinco días hábiles para que se subsane. Si la prevención no es atendida en tiempo y forma, la solicitud no podrá ser aceptada, sin responsabilidad para el ICE.
+Cuando un proveedor esté interesado en participar en un determinado procedimiento de contratación administrativa y no esté inscrito en el Registro de Proveedores, podrá presentar la información junto con su oferta, siempre que cumpla con todos los requisitos que se le solicitan en la contratación y en el Formulario “Registro de Proveedores”. Podrá quedar inscrito en dicho registro por solicitud expresa del oferente y siempre que se cumpla lo establecido en el párrafo anterior.
