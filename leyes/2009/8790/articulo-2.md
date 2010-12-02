@@ -51,3 +51,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (Reformado por el artículo 2° y 3° de la ley N° 8900 del 12 de noviembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36296 del 17 de noviembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36286 del 22 de noviembre de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36287 del 22 de noviembre de 2010)
