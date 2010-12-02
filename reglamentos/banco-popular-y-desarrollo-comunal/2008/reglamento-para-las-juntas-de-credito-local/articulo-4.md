@@ -1,7 +1,10 @@
 Artículo 4º—Requisitos de los miembros de las Juntas de Crédito Local. Los miembros de las Juntas de Crédito Local deberán reunir los siguientes requisitos:
 a. Ser costarricense y ciudadano en ejercicio.
 b. Pertenecer a alguna de las organizaciones que conforman los Sectores que integran la Asamblea de los Trabajadores y Trabajadoras.
-c. Ser de reconocida honestidad. Para verificarlo, el candidato deberá presentar certificación que sobre su situación emita el Registro Judicial de Delincuentes, así como del Colegio Profesional respectivo en la cual se indiquen las sanciones a las cuales se ha hecho acreedor; todo sin perjuicio de la potestad de la Comisión de utilizar además otros medios que considere convenientes para verificar tal honestidad, siempre y cuando ello se lleve a cabo con relación a todos los candidatos.
+c. Ser de reconocida honorabilidad. Para verificarlo, el candidato deberá presentar una certificación emitida por el Registro Judicial de Delincuentes referente a su persona.
+Si el candidato es un profesional, deberá también presentar una certificación del respectivo Colegio Profesional en la que se indique si ha tenido o no sanciones. En el caso en que las hubiere recibido, deberán detallarse las sanciones a las cuales se ha hecho acreedor, lo que necesariamente deberá indicar el motivo de la sanción y la fecha de la firmeza del acto que las estableció. En el caso de Notarios Públicos, deberá presentar, además, una certificación que en el mismo sentido y condiciones emita la Dirección Nacional de Notariado.
+Lo antes dispuesto es sin perjuicio de la potestad de la Comisión de utilizar además otros medios que considere convenientes para verificar tal honorabilidad, siempre y cuando ello se lleve a cabo en relación con todos los candidatos.
+(Así reformado el inciso c) anterior mediante sesión N° 4807 del 2 de diciembre de 2010)
 d. Estar domiciliado o tener su sede de trabajo en la región cubierta por la Sucursal del Banco para la cual fue nombrado y estar en condiciones de asistir puntualmente a las sesiones que celebre la Junta.
 e. Ser ahorrante voluntario u obligatorio del Banco.
 f. No estar ligado por parentesco de consanguinidad o afinidad hasta el tercer grado inclusive, con ningún director, funcionario o empleado del Banco.
