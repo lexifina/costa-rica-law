@@ -1,1 +1,2 @@
-Artículo 30.—Deberes del funcionario. El funcionario asignado para la conducción de vehículos de uso discrecional deberá cumplir con todos los deberes exigidos a los conductores y usuarios en este Reglamento y en la normativa general.
+Artículo 30.—Uso de placas particulares. Los vehículos de uso discrecional portarán placas particulares y no tendrán las marcas visibles que los distinguen como vehículos oficiales.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 29 al 30 actual)

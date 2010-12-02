@@ -1,3 +1,2 @@
-CAPÍTULO XIII
-Disposiciones finales
-Artículo 75º—Del cumplimiento de disposiciones. El Coordinador del Área de Servicios Generales, los administradores de muelles y la persona encargada en San José, en primera instancia y todos los funcionarios, administradores y usuarios, serán los responsables de que se cumplan las disposiciones contenidas en este reglamento.
+Artículo 75.—Condenatoria a terceros. En el caso de que se condene a terceros como consecuencia del accidente, el Área de Servicios Generales y la Asesoría Legal, en coordinación con la Gerencia General, instruirá las gestiones necesarias para que se proceda a la ejecución de sentencia en sede judicial.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 74 al 75 actual)

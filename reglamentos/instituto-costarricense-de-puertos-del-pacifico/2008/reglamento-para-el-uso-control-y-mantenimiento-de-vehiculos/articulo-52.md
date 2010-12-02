@@ -1,1 +1,6 @@
-Artículo 52.—Del mantenimiento de vehículos en los Muelles y San José. Los Administradores de Muelle y la persona encargada en San José serán los encargados de cumplir con el mantenimiento preventivo y correctivo de los vehículos, de acuerdo a las normas establecidas por el Área de Servicios Generales y atendiendo los principios de austeridad, oportunidad, eficiencia y racionalidad.
+CAPÍTULO X
+Del servicio de mantenimiento
+de la flotilla institucional
+Artículo 52.—De la unidad encargada del mantenimiento. El Coordinador del Área de Servicios Generales, será el funcionario autorizado para definir e implementar lineamientos, así como para proponer normativa y directrices a la Gerencia General, relacionados con el mantenimiento y reparación de los vehículos institucionales, que sean de acatamiento obligatorio.
+El Área de Servicios Generales es la dependencia encargada de asesorar, velar y supervisar técnicamente el mantenimiento preventivo y correctivo de las unidades de transporte del INCOP.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 51 al 52 actual)

@@ -1,5 +1,3 @@
-Artículo 42.—De las protecciones en el uso de los vehículos. El INCOP otorgará protección a sus funcionarios durante el ejercicio de sus funciones, por medio de la Póliza de Riesgos del Trabajo, suscrita con el Instituto Nacional de Seguros. Por su parte, todas las unidades automotrices de la Institución, estarán cubiertas al menos con las siguientes pólizas:
-a) Seguro obligatorio de vehículos.
-b) Responsabilidad civil por lesión o muerte de personas particulares.
-c) Responsabilidad civil por daños materiales a la propiedad de terceros.
-d) Cualquier otra cobertura que previo estudio de costo- beneficio, se considere necesaria y conveniente para la protección del patrimonio institucional y la formación de un ambiente laboral adecuado a las necesidades institucionales.
+Artículo 42.—Del pago de las multas. Los conductores de los vehículos institucionales deberán asumir el pago de multas por infracciones a la Ley de Tránsito y su reglamento.
+En caso de que el cobro recaiga sobre el vehículo, la Institución procederá a su cancelación, pero deberá resarcirse administrativamente de lo pagado, previo procedimiento administrativo, de conformidad con los artículos 308 y siguientes de la Ley General de la Administración Pública.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 41 al 42 actual)

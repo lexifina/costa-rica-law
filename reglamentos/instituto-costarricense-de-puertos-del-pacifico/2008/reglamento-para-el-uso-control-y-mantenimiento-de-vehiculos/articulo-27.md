@@ -1,2 +1,4 @@
-Artículo 27.—Asignación de vehículos de uso discrecional. Para efectos de las siguientes normas, se considerarán como vehículos de uso discrecional los asignados al Presidente Ejecutivo, Gerente General, Subgerente y Auditor. No podrá asignarse más de un vehículo de uso discrecional a los funcionarios arriba indicados. Los vehículos de uso discrecional solo podrán ser utilizados por los funcionarios que se encuentren autorizados en razón del cargo que ostenten.
-Los beneficios que representen o hayan representado para los funcionarios la utilización de vehículos de uso discrecional, bajo ninguna circunstancia podrán considerarse como salario en especie.
+CAPÍTULO V
+De los vehículos de uso discrecional
+Artículo 27.—Regulación. Los vehículos de uso discrecional se regirán por lo dispuesto en la Ley de Tránsito vigente, en el presente Reglamento y en la normativa de la Contraloría General de la República en lo que a esta materia se refiere.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 26 al 27 actual)

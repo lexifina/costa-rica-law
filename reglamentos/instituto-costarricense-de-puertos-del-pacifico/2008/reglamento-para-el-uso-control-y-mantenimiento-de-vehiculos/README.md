@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento de Vehículos del Instituto Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-26 | la propia norma |
+| 2 | 2010-12-02 | Reglamento 3679 (2010-12-02) |

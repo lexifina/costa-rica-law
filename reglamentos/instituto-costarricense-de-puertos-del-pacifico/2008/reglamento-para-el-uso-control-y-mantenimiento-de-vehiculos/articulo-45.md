@@ -1,9 +1,6 @@
-CAPÍTULO VIII
-De la adquisición y compra de vehículos
-Artículo 45.—De la adquisición de vehículos. La Institución deberá adquirir vehículos cuando exista una necesidad institucional y se cuente con el contenido presupuestario; así mismo, debe observar los procedimientos establecidos por la Ley de Contratación Administrativa y su Reglamento General, para realizar estas adquisiciones.
-Con base en el inventario actualizado de vehículos que lleva el Área de Servicios Generales, se definirán las necesidades de sustitución o adquisición de vehículos que requiera la Institución, para el desempeño de sus labores, de conformidad con los recursos disponibles, mediante la elaboración del respectivo estudio técnico que justifique su adquisición.
-La Institución podrá adquirir o utilizar vehículos a través de las siguientes formas:
-a) Con sus propios recursos.
-b) Donaciones.
-c) Préstamos.
-d) Otros medios jurídicos debidamente autorizados.
+Artículo 45.—De la prohibición a los usuarios. Ningún usuario podrá:
+a) Obligar al conductor a continuar operando el vehículo cuando se vea en la necesidad de detener la marcha debido a un desperfecto mecánico, cansancio, enfermedad o a causas atmosféricas.
+b) Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no se puede aducir urgencia del servicio.
+c) Obligar al conductor a violar la Ley de Tránsito, el presente Reglamento o cualquier norma jurídica vigente.
+d) Fumar dentro del vehículo.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 44 al 45 actual)

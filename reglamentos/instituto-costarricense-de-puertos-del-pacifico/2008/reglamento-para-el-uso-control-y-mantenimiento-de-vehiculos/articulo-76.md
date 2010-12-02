@@ -1,1 +1,4 @@
-Artículo 76.—De la definición de controles internos. El Área de Servicios Generales será la responsable de definir las normas y procedimientos de control interno adicionales, que estime necesarias, tendientes a lograr un uso adecuado de los vehículos.
+CAPÍTULO XIII
+Disposiciones finales
+Artículo 76º—Del cumplimiento de disposiciones. El Coordinador del Área de Servicios Generales, los administradores de muelles y la persona encargada en San José, en primera instancia y todos los funcionarios, administradores y usuarios, serán los responsables de que se cumplan las disposiciones contenidas en este reglamento.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 75 al 76 actual)

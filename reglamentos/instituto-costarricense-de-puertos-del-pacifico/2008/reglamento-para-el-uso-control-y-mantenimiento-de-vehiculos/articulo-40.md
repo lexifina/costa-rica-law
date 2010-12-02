@@ -1,9 +1,24 @@
-Artículo 40.—Prohibiciones en general. Serán prohibiciones generales para los conductores y usuarios de los vehículos del INCOP, las siguientes:
-a) Utilizar los vehículos de la Institución en otras actividades que no sean las normales de la misma, salvo casos de emergencia demostrada.
-b) Utilizar los vehículos en actividades políticas.
-c) Transportar a particulares, salvo en casos en que por razones de trabajo o emergencia, lo justifique el responsable de la gira.
-d) Recoger o dejar funcionarios en su casa de habitación, salvo que esto se encuentre en la ruta de la gira programada y así se haga constar por escrito en ésta.
-e) Ceder la conducción del vehículo a otras personas, salvo por situaciones de emergencia, de las que debe dar explicaciones por escrito al Área de Servicios Generales, al Administrador del Muelle o Encargado en san José, en el transcurso de la gira o al concluir la misma.
-f) Intercambiar entre las unidades los accesorios, sin la debida aprobación del Área de Servicios Generales, salvo situaciones de emergencia.
-g) Dejar los vehículos en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos.
-h) Conducir vehículos del INCOP bajo los efectos del alcohol, drogas o sustancias enervantes. El desacato de esta disposición podría ser generador de responsabilidad disciplinaria del funcionario de conformidad con el Reglamento Autónomo de Servicios del INCOP. Los daños que causare por conducir bajo estos efectos serán responsabilidad del conductor.
+Artículo 40.—De los deberes de los conductores. Son deberes de todo conductor del INCOP, los siguientes:
+a) Conocer y cumplir estrictamente la Ley de Tránsito y su Reglamento así como las disposiciones que establece el presente reglamento.
+b) Someterse a exámenes médicos periódicos a fin de determinar su capacidad física y mental para conducir vehículos automotores.
+c) Tener actualizada la licencia extendida por la Dirección General de Transporte Automotor, la cual debe ser acorde con el tipo de vehículos que conduce.
+d) Revisar el vehículo, para verificar que éste se encuentre en condiciones óptimas de mecánica, para garantizar tanto su propia seguridad como la de las personas, materiales y equipos transportados, y reportar oportunamente a su jefe inmediato y a la Unidad de Servicios Generales cualquier daño que se detecte.
+e) Cumplir estrictamente los programas de mantenimiento establecido para cada unidad.
+f) Mantener el vehículo en óptimas condiciones de limpieza, por parte del chofer.
+g) Conducir el vehículo bajo las condiciones establecidas en cuanto a capacidad de carga útil y cantidad de pasajeros.
+h) Conducir en forma responsable y prudente de manera que no ponga en peligro su propia vida, la seguridad de otras personas y la unidad que conduce, de otros vehículos y bienes.
+i) Seguir la ruta establecida entre los puntos de salida y destino de cada servicio.
+j) Asumir el pago de las multas por infracciones a la Ley de Tránsito cuando ésta sea impuesta por actos atribuibles al chofer del vehículo. En este caso, el chofer debe emitir oportunamente a la Unidad de Servicios Generales, la copia del recibo debidamente cancelado. De no cumplirse esta disposición, antes del pago del Seguro Obligatorio próximo, el Instituto cancelará la multa y procederá a abrir proceso administrativo contra el trabajador para el respectivo cobro de las multas al responsable. Con independencia de abrir un proceso disciplinario por desacato a las directrices administrativas del INCOP.
+k) Guardar la más estricta discreción de los asuntos oficiales o privados que se discuten en su presencia.
+l) En caso de accidente, elaborar un informe sobre los daños producidos y la causa del mismo y elevarlo a conocimiento de la Unidad de Servicios Generales.
+m) Anotar en el reporte de recorrido de vehículo claramente los siguientes datos:
+ Fecha.
+ Hora exacta de salida y regreso.
+ Nº placa.
+ Lugares visitados.
+ Solicitar la firma del funcionario autorizado.
+ Observaciones si las hubiere.
+ Firma del chofer o conductor y entregarla al Encargado de Transporte al concluir la jornada laboral.
+n) Los choferes deberán acatar las disposiciones que dicte la Oficina de Servicios Generales, en cuanto a suministro y uso del combustible que requieran los vehículos.
+ñ) Es obligación de todos los conductores solicitar al funcionario al abordar los vehículos de la Institución el carné o autorización que lo acredite como funcionario.
+(Así corrida su numeración en sesión N°3679 del 2 de diciembre de 2010, que lo traspasó del antiguo artículo 39 al 40 actual)
