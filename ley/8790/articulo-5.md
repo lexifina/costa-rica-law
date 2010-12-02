@@ -11,7 +11,7 @@ DEFENSORÍA DE LOS HABITANTES DE LA REPÚBLICA | 3,634,000,000 | 100.00%
 TOTALES | 3.634.000.00 | 100.00%
 OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 1. Proteger los derechos e intereses de los y las habitantes mediante la oportuna gestión, resolución e impacto de las diferentes formas de intervención que se presentan con el fin de elevar el ejercicio pleno de sus derechos.
-2. Promover una cultura de respeto de derechos, mediante actividades formativas, informativas y divulga ti vas de Derechos Humanos para que las personas los conozcan y se conviertan en sus primeros defensores.
+2. Promover una cultura de respeto de derechos, mediante actividades formativas, informativas y divulga ti vas de Derechos Humanos para que las personas los conozcan y se conviertan en sus primeros defensores
 INDICADORES DE RESULTADOS:
 # Indicadores | | Metas | |
 2009 | 2010 | 2011 | 2012 | 2013
@@ -25,3 +25,4 @@ INDICADORES DE RESULTADOS:
 (Modificado por el artículo 1° del decreto ejecutivo N° 36087 del 8 de julio de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° *36182 del 7 de setiembre de 2010)*(Mediante el artículo 2° del decreto ejecutivo N° 36250 del 20 de octubre de 2010, se modifica el numeral 1° del decreto ejecutivo N° 36182 del 7 de setiembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36250 del 20 de octubre de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36286 del 22 de noviembre de 2010)
