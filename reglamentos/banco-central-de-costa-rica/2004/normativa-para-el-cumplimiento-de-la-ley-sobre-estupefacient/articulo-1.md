@@ -1,4 +1,6 @@
+(Derogado)
 BANCO CENTRAL DE COSTA RICA
+(Esta norma fue derogada por el artículo 45 de la "Normativa para el cumplimiento de la Ley 8204 “Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo”,aprobado mediante sesión N° 893-2010 del 3 de diciembre de 2010)
 El Consejo Nacional de Supervisión del Sistema Financiero mediante los artículos 8 y 6 de las actas de las sesiones 446-2004 y 447- 2004, respectivamente, celebradas ambas el 29 de junio del 2004,
 considerando:
 1. que en el mundo financiero globalizado, los delincuentes internacionales se organizan para desarrollar la actividad de legitimación de capitales, proveniente de operaciones ilícitas relacionadas con drogas, fraudes, estafas bursátiles y financieras y otros delitos y que estas actividades de legitimación de capitales se han convertido en un problema para el crecimiento económico y social, afectando negativamente el sistema financiero internacional y que esa tendencia ha creado claros desafíos a los reguladores financieros, así como a los entes regulados, lo cual hace imperativo el fortalecimiento de la transparencia e integridad del sistema financiero de la región,
