@@ -1,0 +1,2 @@
+Artículo 19.—Mientras la Asamblea esté sesionando, únicamente podrán ingresar o permanecer en el Salón de sesiones del Plenario, previa autorización del presidente de la Asamblea Legislativa, los funcionarios que este autorice.
+En las sesiones solemnes del Plenario, podrán ingresar al Salón de sesiones únicamente el director ejecutivo, la directora del Departamento de Relaciones Públicas, Prensa y Protocolo y el asesor o representante del presidente de la Asamblea Legislativa.

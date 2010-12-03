@@ -1,0 +1,1 @@
+Artículo 2º—El ceremonial de la Asamblea Legislativa estará a cargo de la Presidencia del Directorio legislativo, la cual encargará su ejecución a la Dirección del Departamento de Relaciones Públicas, Prensa y Protocolo.

@@ -1,0 +1,1 @@
+Artículo 17.—Eventos especiales nacionales e internacionales. El Departamento de Relaciones Públicas, Prensa y Protocolo preparará los programas y el montaje, y coordinará todo lo relativo a los seminarios, los actos cívicos, las exhibiciones, los conciertos y las demás manifestaciones y actividades especiales de la Asamblea Legislativa de carácter nacional e internacional.
