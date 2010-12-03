@@ -1,0 +1,1 @@
+Artículo 5º—Cuando se trate de la adquisición y pago de servicios y/o suministros, de carácter urgente, inferiores a ¢150.000,00 (ciento cincuenta mil), la solicitud se hará por caja chica, mediante el formulario “Adelanto de Fondos por Caja Chica”.
