@@ -1,0 +1,1 @@
+Artículo 42.—La Municipalidad de Guácimo podrá efectuar por cuenta propia o, conjuntamente, con la Policía de Tránsito los operativos e inspecciones que considere pertinentes, a fin de tutelar los derechos y obligaciones del Gobierno Local como de los administrados, en materia de cumplimiento de los extremos contenidos en este Reglamento.

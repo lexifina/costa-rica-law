@@ -1,0 +1,1 @@
+Artículo 22.—Por tratarse de edificaciones privadas que implican la concurrencia del público, los funcionarios municipales encargados al efecto, deberán comprobar que los locales por los que se gestiona la apertura de establecimientos comerciales de porteo, cuentan con las facilidades requeridas para el ingreso de usuarios con discapacidad.

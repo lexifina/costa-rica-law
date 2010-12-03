@@ -1,0 +1,1 @@
+Artículo 23.—Del total de las entradas utilizadas en el establecimiento, al menos una de ellas estará a nivel o el cambio de nivel será salvado por ascensor o rampa, con la pendiente indicada en el artículo 124 del Reglamento a la Ley 7600.

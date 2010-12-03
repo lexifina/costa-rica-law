@@ -1,0 +1,2 @@
+Artículo 27.—Todos los estantes, paileras, tomacorrientes, dispositivos como apagadores eléctricos, picaportes, de alarma, de control de temperatura o de cualquier otra índole de uso general, incluyendo timbres, estarán colocados a una altura mínima de 0.90 m y máximo de 1.20 m.
+Las cajas de fusibles e interruptores eléctricos deberán estar accesibles al usuario en silla de ruedas, con mecanismos de seguridad apropiados para evitar accidentes.
