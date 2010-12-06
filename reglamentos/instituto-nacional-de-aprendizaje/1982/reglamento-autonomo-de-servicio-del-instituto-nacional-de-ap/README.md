@@ -26,3 +26,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | 11 | 1993-08-03 | Reglamento 3048 (1993-08-03) |
 | 12 | 1995-06-12 | Reglamento 3255 (1995-06-12) |
 | 13 | 2001-04-07 | Reglamento 3864 (2001-04-07) |
+| 14 | 2010-12-06 | Reglamento 4466 (2010-12-06) |

@@ -1,5 +1,5 @@
-Artículo 75.—Trámite de denuncia:
-Recibida la queja por el jefe inmediato, éste dependiendo de la gravedad de la presunta falta, la remitirá al Departamento de Relaciones con el Personal, quien será el encargado de sustanciar la información. Si de los hechos no encontrare mérito para continuar con las diligencias, este Departamento por medio de la resolución razonada, ordenará el archivo del expediente.
-En caso contrario, formulará por escrito los cargos que resultaren, de los cuales dará traslado al servidor por un término de cinco días hábiles, que notificará personalmente o por correo certificado. Dentro de este plazo, el servidor deberá presentar por escrito sus descargos y ofrecer la prueba abono de los mismos. Si no existiera oposición en el término indicado, se entenderá que renuncia a ese derecho.
-Si previo a formularse el traslado de cargos a que se refiere el artículo anterior, resultare necesario la realización de una investigación sumaria, ésta en ningún caso podrá exceder de un mes, a partir de la fecha en que se tuvo conocimiento de los hechos objeto de investigación.
+Artículo 75.—Resolución del asunto. Concluido el procedimiento por parte del órgano director, la Presidencia Ejecutiva dictará la resolución final, la cual resolverá todos los aspectos debatidos durante el procedimiento.
+Esa resolución deberá ser notificada al servidor, en la forma y por cualquiera de los medios permitidos por la Ley General de la Administración Pública.
+Esa resolución deberá comunicarse dentro del mes siguiente a la fecha en que concluya formalmente el procedimiento disciplinario respectivo.
 (Así corrida la numeración mediante sesión 3255 celebrada el 12 de junio de 1995 por adición de artículos 58 al 64, por lo que pasó de ser artículo 68 al 75)
+(Así reformado mediante sesión N° 4466 del 6 de diciembre de 2010)

@@ -1,8 +1,12 @@
-Artículo 48. —F altas leves:
-Se considerarán faltas leves entre otras las infracciones a los artículos 43, incisos a), b), c), ch), e), f), g), h), k), 1), U), m), n), ñ), p), q), t) y 44, incisos a), b), c), ch), h), i), f), del presente Reglamento.
-Las faltas leves computadas en un mismo mes calendario se sancionarán de la siguiente forma:
-a) Por una, con amonestación escrita;
-b) Por dos, con suspensión sin goce de sueldo hasta por dos días;
-c) Por tres, con suspensión sin goce de sueldo, hasta por ocho días; y ch) Por más de tres, con despido sin responsabilidad patronal.
-Dichas sanciones se aplicarán sin perjuicio de que si las faltas implicaren una mayor gravedad, se imponga una sanción mayor.
-(Así reformado mediante sesión 1951 celebrada el 25 de agosto de 1982)
+Artículo 48. —Faltas leves: Se considerarán faltas leves:
+1. Las infracciones al artículo 43, incisos 2, 5, 7, 11, 16, 17, 19, 20, 21, 24, 25 28, 29, 32, 33 y 38 y al artículo 44 incisos, 2, 5, 8, 9, 12 y 13 del presente Reglamento.
+2. Las consideradas como tales en otras disposiciones de este reglamento.
+3. Las así consideradas en otros reglamentos internos o en la legislación especial que regule la relación de servicios.
+Las faltas leves se sancionarán de la siguiente forma:
+a. Por la primera, con amonestación escrita si a juicio de la jefatura no resulta aplicable el apercibimiento verbal.
+b. Por la segunda, con una suspensión sin goce de salario de uno a cinco días.
+c. Por la tercera, con una suspensión sin goce de salario de seis a diez días.
+d. Por la cuarta, con una suspensión sin goce de salario de once a quince días.
+e. Por las demás, con el despido sin responsabilidad patronal.
+Esas sanciones se aplicarán sin perjuicio de que si las faltas lo ameriten, se imponga una sanción mayor.
+(Así reformado mediante sesión N° 4466 del 6 de diciembre de 2010)

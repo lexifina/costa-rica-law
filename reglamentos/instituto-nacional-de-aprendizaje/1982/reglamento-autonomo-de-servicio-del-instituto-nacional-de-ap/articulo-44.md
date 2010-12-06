@@ -1,13 +1,17 @@
-Artículo 44.—Obligaciones especiales de los jefes:
-Quienes cumplan funciones de jefatura o supervisión estarán sujetos a los deberes propios de su condición, entre los cuales estarán:
-a) Supervisar las labores de los servidores sometidos a su jerarquía, tanto en el aspecto técnico como en el administrativo;
-b) Informar periódicamente a su superior inmediato sobre la marcha de la unidad, y en forma inmediata cuando ocurra un hecho extraordinario o que requiera pronta atención;
-c) Cuidar de la disciplina y buena asistencia de los servidores bajo su responsabilidad, informando al Departamento de Relaciones con el Personal de las ausencias e irregularidades graves que en tales materias se presenten;
-ch) Cuidar de que todos los servidores lleven al día sus labores, tomando las medidas pertinentes para corregir los atrasos injustificados;
-d) Velar porque los servidores se presenten a laborar vestidos correctamente;
-e) Dictar las disposiciones necesarias para el trabajo de su unidad, y someterlas a la aprobación del respectivo superior;
-f) Atender con prontitud las observaciones y quejas planteadas por los subalternos;
-g) Calificar anualmente a sus subalternos de conformidad con el reglamento vigente;
-h) Velar por el cuido y mantenimiento de los bienes a su cargo; e i) Velar porque los subalternos a su cargo cumplan con las disposiciones de este
-reglamento.
-(Así reformado mediante sesión 1951 celebrada el 25 de agosto de 1982)
+Artículo 44.—Obligaciones especiales de los jefes. Además de las funciones propias de su puesto, quienes desempeñen cargos de supervisión o jefatura, deberán cumplir con las siguientes obligaciones:
+1. Supervisar las labores de los servidores sometidos a su jerarquía, tanto en el aspecto técnico como en el administrativo.
+2. Informar periódicamente a su superior inmediato sobre la marcha de la unidad y en forma inmediata cuando ocurra un hecho extraordinario o que requiera pronta atención.
+3. Cuidar de la disciplina y buena asistencia de los servidores bajo su responsabilidad, informando al Proceso de Soporte Administrativo de la Unidad de Recursos Humanos, de las ausencias e irregularidades graves que en tales materias se presenten.
+4. Velar porque todos los servidores lleven al día sus labores, tomando las medidas pertinentes para corregir los atrasos injustificados.
+5. Velar porque los servidores se presenten a laborar vestidos correctamente.
+6. Dirigir el trabajo de sus subalternos y dictar las disposiciones necesarias de manera clara y precisa, para el correcto funcionamiento de su unidad y para que sus colaboradores ejecuten sus labores en forma eficiente y eficaz.
+7. Asignar las funciones a sus subalternos en forma clara y de acuerdo con las responsabilidades del puesto, las necesidades del servicio y los instrumentos técnicos y normativos disponibles.
+8. Atender con prontitud las observaciones y quejas planteadas por sus subalternos.
+9. Calificar anualmente a sus subalternos de conformidad con la reglamentación vigente.
+10. Procurar que sus subalternos hagan un uso adecuado y conserven en buen estado el equipo, las herramientas, los materiales, el mobiliario y los demás instrumentos de trabajo que se les asignen para el cumplimiento de su labor.
+11. Guardar el debido respeto a sus subalternos.
+12. Procurar el mejoramiento de las condiciones laborales, los métodos de trabajo y la capacitación del personal de la dependencia a su cargo.
+13. Estimular a sus subalternos en el desarrollo de sus tareas.
+14. Velar porque sus subalternos ajusten su conducta a las disposiciones de este reglamento y a las demás normas que regulen su relación de servicio.
+15. Cumplir con las demás obligaciones que en calidad de jefe, le impongan otras leyes o reglamentos.
+(Así reformado mediante sesión N° 4466 del 6 de diciembre de 2010)
