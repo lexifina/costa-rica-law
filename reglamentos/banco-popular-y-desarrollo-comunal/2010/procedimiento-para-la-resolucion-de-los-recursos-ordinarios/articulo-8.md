@@ -1,0 +1,1 @@
+Artículo 8º—Plazos de Resolución. La apelación deberá resolverse en el plazo máximo de quince días hábiles contados a partir del día siguiente al que se reciba el recurso del cliente en la Dependencia Administrativa.

@@ -1,0 +1,2 @@
+Artículo 9º—De la consulta El Superior Jerárquico deberá enviar a consulta a la Consultoría Jurídica el recurso de apelación presentado, adjuntando un informe de los aspectos técnicos, o de cualquier otra naturaleza. Para ello deberá adjuntar el expediente, debidamente foliado en orden cronológico.
+La Consultoría Jurídica dispondrá de ocho días hábiles posteriores al recibo del expediente, para recomendar al Superior Jerárquico la resolución del recurso de apelación.

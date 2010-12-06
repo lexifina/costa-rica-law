@@ -1,0 +1,1 @@
+Artículo 10.—Resolución y notificación. El Superior Jerárquico, de proceder revocará el acto administrativo impugnado y resolverá lo que corresponda con motivación sucinta de los alegatos de hechos y de derecho que fundamentan la decisión, notificando al cliente por el medio que señaló.

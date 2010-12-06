@@ -1,0 +1,2 @@
+Artículo 6º—De la asesoría jurídica. Cuando exista duda de carácter jurídico por parte de la Dependencia Administrativa para resolver el recurso de revocatoria la podrá plantear a la Consultoría Jurídica para que se emitan las recomendaciones del caso.
+La Consultoría Jurídica deberá evacuar las dudas y efectuar una recomendación jurídica en el plazo de cinco días hábiles posteriores al recibo del expediente de la Dependencia Administrativa.
