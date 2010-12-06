@@ -1,1 +1,1 @@
-Artículo 2º—Ámbito de aplicación. El ámbito de aplicación de este Código y su Reglamento será el territorio aduanero, sus normas serán aplicables a toda persona, mercancía y medio de transporte que cruce los límites del territorio aduanero de los países signatarios.
+Artículo 2. Ámbito de aplicación. El ámbito de aplicación de este Código y su Reglamento será el territorio aduanero, sus normas serán aplicables a toda persona, mercancía y medio de transporte que cruce los límites del territorio aduanero de los Estados Parte.

@@ -1,4 +1,6 @@
-TÍTULO IX
-Disposiciones finales, transitorias,
-derogatorias y vigencia
-Artículo 106.—Agentes aduaneros, personas jurídicas. En aquellos países signatarios en que se hubiere autorizado el ejercicio de agentes aduaneros a personas jurídicas, la legislación nacional establecerá el régimen jurídico a que deberán someterse en el momento de entrar en vigencia el presente Código.
+Artículo 106. Requisitos para gozar de la liberación. Para gozar de los beneficios del régimen de reimportación, el declarante deberá cumplir los requisitos siguientes:
+a) que la declaración de reimportación sea debidamente presentada y aceptada dentro del plazo de tres años, contado a partir de la fecha de aceptación de la declaración de exportación definitiva;
+b) que las mercancías no hayan sido objeto de transformación alguna;
+c) que se establezca plenamente la identidad de las mercancías;
+d) devolución previa de las sumas que se hubieren recibido por concepto de beneficios e incentivos fiscales, u otros incentivos con ocasión de la exportación, en su caso; y,
+e) los demás que establezca el Reglamento.

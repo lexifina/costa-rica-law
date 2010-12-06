@@ -1,3 +1,3 @@
-CAPÍTULO II
-Del despacho aduanero
-Artículo 51.—Concepto de despacho. El despacho aduanero de las mercancías es el conjunto de actos necesarios para someterlas a un régimen aduanero, que concluye con el levante de las mismas.
+Artículo 51. Prenda aduanera. Con las mercancías se responderá directa y preferentemente al Fisco, con privilegio de prenda aduanera en favor de éste, por los tributos, multas y demás cargos que causen y que no hayan sido cubiertos total o parcialmente por el sujeto pasivo como resultado de su actuación dolosa, culposa o de mala fe.
+La Autoridad Aduanera debe retener o aprehender las mercancías previa orden judicial si esta acción implica un allanamiento domiciliario.
+La forma en que las autoridades del Servicio Aduanero ejercitarán los derechos, facultades y competencias a que se refiere este artículo será la que se establezca en el Reglamento.

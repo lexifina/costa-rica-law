@@ -1,1 +1,1 @@
-Artículo 59.—Selectividad y aleatoriedad de la verificación. La declaración autodeterminada, será sometida a un proceso selectivo y aleatorio que determine si corresponde efectuar la verificación inmediata de lo declarado. Dicha verificación no limita las facultades de fiscalización posterior a cargo de la autoridad aduanera.
+Artículo 59. Sujeto pasivo de las obligaciones no tributarias. En el caso de las obligaciones aduaneras no tributarias, el sujeto obligado a su cumplimiento, será el declarante o su representante.

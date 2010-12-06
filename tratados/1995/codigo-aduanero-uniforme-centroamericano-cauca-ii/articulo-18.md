@@ -1,2 +1,4 @@
-Artículo 18.—Transportista aduanero. Transportista es el auxiliar encargado de las operaciones y los trámites aduaneros relacionados con la presentación ante el Servicio Aduanero, del medio de transporte y carga, a fin de gestionar su ingreso, tránsito o salida de las mercancías.
-El transportista será responsable directo ante el Servicio Aduanero, por el traslado o transporte de las mercancías objeto de control aduanero.
+CAPITULO II
+DE LOS AUXILIARES DE LA FUNCIÓN PÚBLICA
+ADUANERA
+Artículo 18. Concepto de auxiliares. Se consideran auxiliares de la función pública aduanera, las personas naturales o jurídicas, públicas o privadas, que participan ante el Servicio Aduanero en nombre propio o de terceros, en la gestión aduanera.

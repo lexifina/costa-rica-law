@@ -1,0 +1,1 @@
+Artículo 124. Infracción tributaria. Infracción tributaria, es toda acción u omisión que signifique trasgresión o tentativa de trasgresión de la legislación aduanera, que cause o pueda causar perjuicio fiscal, y no constituya delito.

@@ -1,6 +1,6 @@
 # Código Aduanero Uniforme Centroamericano - CAUCA II
 
-Tratados Internacionales N° 7485 del 1995-04-06. SINALEVI, ficha 21381: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=21381&param2=83199&param3=1>.
+Tratados Internacionales N° 7485 del 1995-04-06. SINALEVI, ficha 21381: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=21381&param2=128546&param3=1>.
 
 Publicada en La Gaceta N° 99 del 1995-05-24.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1996-07-01 | SINALEVI | 1995-04-06 |
 | 3 de 5 | 2000-01-01 | Ley 8 | 1995-04-06 |
 | 4 de 5 | 2003-07-08 | Tratados Internacionales 8360 (2003-06-24) | 2003-06-24 |
+| 5 de 5 | 2010-12-06 | Ley 8881 | 2010-11-04 |

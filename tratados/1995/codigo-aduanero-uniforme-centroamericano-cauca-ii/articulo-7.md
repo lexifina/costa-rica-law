@@ -1,1 +1,1 @@
-Artículo 7º—Potestad aduanera. La Potestad Aduanera es el conjunto de derechos, facultades y competencias que este Código, su Reglamento conceden en forma privativa al Servicio Aduanero y que se ejercitan a través de sus autoridades.
+Artículo 7. Aduana Especializada. Cada Estado Parte podrá habilitar aduanas especializadas en determinadas operaciones aduaneras, clases de mercancías o regímenes aduaneros, con competencia funcional en todo su territorio aduanero nacional.

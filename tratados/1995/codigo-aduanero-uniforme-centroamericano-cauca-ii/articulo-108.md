@@ -1,1 +1,11 @@
-Artículo 108.—Principio de legalidad de las actuaciones. Ningún funcionario o empleado del servicio aduanero podrá exigir para la aplicación o autorización de cualquier acto, trámite, régimen u operación, el cumplimiento de requisitos, condiciones, formalidades o procedimientos sin que estén previamente establecidos en la normativa aduanera o de comercio exterior.
+CAPÍTULO III
+DE LAS MODALIDADES ESPECIALES
+DE IMPORTACIÓN Y EXPORTACIÓN DEFINITIVAS
+Artículo 108. Modalidades especiales de importación y exportación definitiva. Constituyen modalidades especiales de importación y exportación definitiva, las siguientes:
+a) envíos postales;
+b) envíos urgentes;
+c) tráfico fronterizo;
+d) equipaje de viajeros;
+e) menaje de casa;
+f) pequeños envíos sin carácter comercial; y,
+g) otras que establezca el Reglamento.

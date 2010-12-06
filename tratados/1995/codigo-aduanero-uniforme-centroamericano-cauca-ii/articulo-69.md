@@ -1,1 +1,1 @@
-Artículo 69.—Exportación definitiva. La exportación definitiva, es la salida del territorio aduanero de mercancías nacionales o nacionalizadas para su uso o consumo definitivo en el exterior.
+Artículo 69. Faltantes de mercancías. En el caso de que los faltantes no se justifiquen debida y oportunamente se establecerán las responsabilidades y aplicarán las sanciones correspondientes.

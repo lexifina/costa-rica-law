@@ -1,1 +1,1 @@
-Artículo 57.—Carácter definitivo de la declaración y su rectificación. Como regla general la declaración de mercancías es definitiva para el declarante. El Reglamento indicará los casos en que el declarante puede rectificarla.
+Artículo 57. Carácter de título ejecutivo. La certificación del adeudo y cualquier otra cantidad exigible, extendida por la autoridad superior del servicio aduanero, constituirá título ejecutivo para ejercer cualquiera de las acciones y procedimientos correspondientes.

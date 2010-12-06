@@ -1,0 +1,1 @@
+Artículo 131. Principio de legalidad de las actuaciones. Ningún funcionario o empleado del Servicio Aduanero podrá exigir para la aplicación o autorización de cualquier acto, trámite, régimen u operación, el cumplimiento de requisitos, condiciones, formalidades o procedimientos sin que estén previamente establecidos en la normativa aduanera o de comercio exterior.

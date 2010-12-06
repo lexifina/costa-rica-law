@@ -1,0 +1,1 @@
+Artículo 113. Exención del pago de tributos por el equipaje. Toda persona que arribe a los puertos, aeropuertos o lugares fronterizos habilitados, podrá introducir al país su equipaje con exención de tributos.

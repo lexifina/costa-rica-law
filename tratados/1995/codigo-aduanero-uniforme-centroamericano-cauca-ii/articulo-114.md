@@ -1,0 +1,1 @@
+Artículo 114. Exención del pago de tributos para mercancías distintas del equipaje. El viajero podrá introducir con exención de tributos, mercancías que traiga consigo, distintas del equipaje, cuyo valor total en aduana no sea superior al equivalente a quinientos pesos centroamericanos.

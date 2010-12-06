@@ -1,4 +1,1 @@
-CAPÍTULO II
-De la carga, descarga, transbordo, reembarque
-y almacenamiento temporal de mercancías
-Artículo 42.—Carga y descarga de mercancías. La carga y descarga de las mercancías, se efectuará en los lugares y en las condiciones legalmente establecidas.
+Artículo 42. Arancel Integrado. El Arancel Integrado comprende al Arancel Centroamericano de Importación y demás regulaciones no arancelarias aplicables en el intercambio de mercancías entre los Estados Parte y terceros países, incluidos aquellos con los que se hayan suscrito o se suscriban Acuerdos o Tratados Comerciales Internacionales, bilaterales o multilaterales.

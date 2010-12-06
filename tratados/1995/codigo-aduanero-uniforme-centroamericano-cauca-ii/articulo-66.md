@@ -1,1 +1,2 @@
-Artículo 66.—Cumplimiento de requisitos y formalidades para los regímenes aduaneros. La sujeción a los regímenes aduaneros y las modalidades de importación y exportación definitivas, estará condicionada al cumplimiento de los requisitos y formalidades aduaneras y las de otro carácter que sean exigibles en cada caso.
+Artículo 66. Transbordo. El transbordo es el traslado de las mercancías bajo control aduanero, del medio de transporte en el cual arribaron, a otro en el que continuarán a su destino.
+El procedimiento y requisitos para que el transbordo sea autorizado, serán establecidos por el Reglamento.

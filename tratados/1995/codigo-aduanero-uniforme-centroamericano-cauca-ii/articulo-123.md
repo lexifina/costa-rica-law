@@ -1,0 +1,1 @@
+Artículo 123. Infracción administrativa. Constituye infracción administrativa, toda acción u omisión que signifique trasgresión de la legislación aduanera, que no cause perjuicio fiscal, ni constituya delito.

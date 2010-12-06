@@ -1,1 +1,2 @@
-Artículo 34.—Carácter de título ejecutivo. La certificación del adeudo y cualquier otra cantidad exigible, extendida por la autoridad superior del servicio aduanero, constituirá título ejecutivo para ejercer cualquiera de las acciones y procedimientos correspondientes.
+Artículo 34. Certificadores. Se entenderá como certificador la persona jurídica pública o privada, nacional o extranjera, que emite certificados digitales y está debidamente autorizada por el Servicio Aduanero u organismo administrador y supervisor del sistema de certificación del Estado Parte según corresponda.
+El Reglamento regulará los requisitos, el trámite y las funciones de las entidades certificadoras con relación al servicio que prestan ante el Servicio Aduanero.

@@ -1,8 +1,1 @@
-Artículo 35.—Medios de extinción de la obligación tributaria aduanera. La obligación tributaria aduanera se extingue por los medios siguientes:
-a) pago, sin perjuicio de los posibles ajustes que puedan realizarse con ocasión de verificaciones de la obligación tributaria;
-b) compensación;
-c) prescripción;
-d) aceptación del abandono voluntario de mercancías;
-e) adjudicación en pública subasta o mediante otras formas de disposición legalmente autorizadas de las mercancías abandonadas;
-f) pérdida o destrucción total de las mercancías por caso fortuito o de fuerza mayor o destrucción de las mercancías bajo control aduanero; y,
-g) otros medios legalmente establecidos.
+Artículo 35. Prueba de los actos realizados en sistemas informáticos. Los datos recibidos y registrados en el sistema informático del Servicio Aduanero, constituirán prueba de que el funcionario o empleado aduanero, el Auxiliar de la función pública aduanera, el declarante y cualquier persona autorizada por el Servicio Aduanero, realizaron los actos que le corresponden y que la información fue suministrada por éstos, usando su firma digital o electrónica, la clave de acceso confidencial o su equivalente.

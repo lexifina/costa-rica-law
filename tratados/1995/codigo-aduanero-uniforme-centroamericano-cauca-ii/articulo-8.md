@@ -1,2 +1,1 @@
-Artículo 8º—Coordinación para aplicar controles. Las funciones que otras instituciones deban ejercer relacionadas con mercancías sujetas a control aduanero, deberán ser coordinadas con la autoridad aduanera competente.
-Los funcionarios pertenecientes a instituciones distintas al servicio aduanero, que se atribuyan y ejerzan funciones que por ley le competen a este servicio, incurrirán en las responsabilidades administrativas, civiles y penales que correspondan.
+Artículo 8. Potestad aduanera. La Potestad Aduanera es el conjunto de derechos, facultades y competencias que este Código, su Reglamento conceden en forma privativa al Servicio Aduanero que se ejercitan a través de sus autoridades.

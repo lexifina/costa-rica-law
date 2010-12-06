@@ -1,1 +1,3 @@
-Artículo 99.—Infracción tributaria. Infracción tributaria, es toda acción u omisión que signifique transgresión o tentativa de transgresión de la legislación aduanera, que cause o pueda causar perjuicio fiscal, y no constituya delito.
+Artículo 99. Depósito de aduanas o depósito aduanero. Depósito de aduanas o depósito aduanero es el régimen mediante el cual, las mercancías son almacenadas por un plazo determinado, en un lugar habilitado al efecto, bajo potestad de la Aduana, con suspensión de tributos que correspondan.
+Las mercancías en depósito de aduanas, estarán bajo custodia, conservación y responsabilidad del depositario.
+Los depósitos de aduana podrán ser públicos o privados.

@@ -1,2 +1,2 @@
-Artículo 52.—Declaración de mercancías. Con la declaración de mercancías se expresa libre y voluntariamente el régimen al cual se someten las mercancías y se aceptan las obligaciones que este impone.
-La declaración de mercancías se entenderá efectuada bajo fe de juramento.
+Articulo 52. Garantía de la obligación tributaria aduanera. El cumplimiento de la obligación tributaria aduanera podrá ser garantizado por quien esté obligado a su pago, en los casos que establece el presente Código y su Reglamento.
+La garantía podrá consistir en: fianza emitida por una entidad autorizada, póliza de seguro, depósito en efectivo en una cuenta del Servicio Aduanero o del Estado según corresponda, cheque certificado, garantía bancaria, valores de comercio, o una combinación de los anteriores, siempre que se asegure al Servicio Aduanero el pago inmediato a su presentación, del monto garantizado.

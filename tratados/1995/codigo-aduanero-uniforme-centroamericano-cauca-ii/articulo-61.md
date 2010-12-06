@@ -1,1 +1,1 @@
-Artículo 61.—Verificación posterior al despacho. La autoridad aduanera está facultada para verificar con posterioridad al despacho, la veracidad de lo declarado y el cumplimiento de la legislación aduanera y de comercio exterior en lo que corresponda.
+Artículo 61. Recepción del medio de transporte. Todo medio de transporte que cruce la frontera, será recibido por la Autoridad Aduanera competente conforme a los procedimientos legales establecidos.

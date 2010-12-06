@@ -1,2 +1,2 @@
-Artículo 77.—Zonas francas. Zona franca, es el régimen que permite ingresar a una parte delimitada del territorio de un Estado signatario, mercancías que se consideran generalmente como si no estuviésen en el territorio aduanero con respecto a los derechos e impuestos de importación, para ser destinadas según su naturaleza, a las operaciones o procesos que establezca la legislación nacional.
-Las zonas francas podrán ser entre otras, comerciales, industriales o mixtas.
+Artículo 77. Declaración de mercancías. Con la declaración de mercancías se expresa libre y voluntariamente el régimen al cual se someten las mercancías y se aceptan las obligaciones que este impone.
+La declaración de mercancías se entenderá efectuada bajo fe de juramento.

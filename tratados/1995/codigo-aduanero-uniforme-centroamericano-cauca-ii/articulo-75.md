@@ -1,3 +1,4 @@
-Artículo 75.—Depósito de aduanas o depósito aduanero. Depósito de aduanas o depósito aduanero es el régimen mediante el cual, las mercancías son almacenadas por un plazo determinado, en un lugar habilitado al efecto, bajo potestad de la Aduana, con suspensión de derechos e impuestos que correspondan.
+Artículo 75.-Depósito de aduanas o depósito aduanero. Depósito de aduanas o depósito aduanero es el régimen mediante el cual, las mercancías son almacenadas por un plazo determinado, en un lugar habilitado al efecto, bajo potestad de la Aduana, con suspensión de derechos e impuestos que correspondan.
 Las mercancías en depósito de aduanas, estarán bajo custodia, conservación y responsabilidad del depositario.
 Los depósitos de aduana podrán ser públicos o privados.
+(Nota de Sinalevi: De conformidad con el artículo 3° de la ley N° 8881 del 4 de noviembre de 2010, el Gobierno de la República de Costa Rica interpreta que, en relación con lo establecido en el artículo 75 del CAUCA, los procedimientos aduaneros en materia de propiedad intelectual se establecerán en el reglamento, conforme los acuerdos internacionales vigentes y la legislación nacional vigente.)

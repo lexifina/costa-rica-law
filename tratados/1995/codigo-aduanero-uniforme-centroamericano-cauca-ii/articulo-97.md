@@ -1,5 +1,1 @@
-TÍTULO VIII
-De las infracciones y recursos aduaneros
-CAPÍTULO I
-De las infracciones aduaneras y sus sanciones
-Artículo 97.—Infracción aduanera. Constituye infracción aduanera toda transgresión o tentativa de transgresión de la legislación aduanera. Las infracciones aduaneras pueden ser: Administrativas, Tributarias o Penales.
+Artículo 97. Importación temporal con reexportación en el mismo estado. Importación temporal con reexportación en el mismo estado, es el régimen que permite ingresar al territorio aduanero por un plazo determinado, con suspensión de tributos a la importación, mercancías con un fin específico, las que serán reexportadas dentro de ese plazo, sin haber sufrido otra modificación que la normal depreciación como consecuencia de su uso.

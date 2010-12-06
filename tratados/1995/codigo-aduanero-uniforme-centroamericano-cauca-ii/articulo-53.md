@@ -1,2 +1,1 @@
-Artículo 53.—Procedimiento para efectuar la declaración. La declaración para destinar las mercancías deberá efectuarse mediante transmisión electrónica, conforme los procedimientos establecidos. Excepcionalmente, la declaración podrá efectuarse por otros medios legalmente autorizados.
-Lo dispuesto en el párrafo anterior será aplicable a la declaración del valor en aduana, cuando ésta se requiera.
+Articulo 53. Monto de la Garantía. El monto de la garantía deberá cubrir la totalidad de la obligación tributaria aduanera, incluyendo los intereses generados y cualquier otro cargo aplicable en su caso. Dicha garantía deberá actualizarse en el plazo que se fije en el Reglamento.

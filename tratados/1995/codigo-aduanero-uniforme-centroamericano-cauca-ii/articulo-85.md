@@ -1,1 +1,1 @@
-Artículo 85.—Envíos postales. Se entenderá por envíos postales, los de correspondencia y paquetes postales designados como tales en el Convenio de la Unión Postal Universal y sus Actas.
+Artículo 85. Plazo máximo y la verificación inmediata. El plazo máximo para efectuar la verificación inmediata, será establecido por el Reglamento. El incumplimiento de dicho plazo dará lugar a las responsabilidades y sanciones administrativas que correspondan.

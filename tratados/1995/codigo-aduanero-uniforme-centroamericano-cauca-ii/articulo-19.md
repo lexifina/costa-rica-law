@@ -1,1 +1,5 @@
-Artículo 19.—Agente de transporte internacional. El agente de transporte internacional que subcontrató el transporte interno de mercancías bajo control aduanero, será solidariamente responsable con la persona que realiza dicha operación, por el pago de los derechos e impuestos que se adeuden si las mercancías no llegan en su totalidad a su destino, sin perjuicio de las responsabilidades en que incurran por la posible comisión de infracciones aduaneras.
+Artículo 19. Auxiliares previstos. Son auxiliares:
+a) los agentes aduaneros;
+b) los depositarios aduaneros;
+c) los transportistas aduaneros; y,
+d) los demás que establezca el Reglamento.

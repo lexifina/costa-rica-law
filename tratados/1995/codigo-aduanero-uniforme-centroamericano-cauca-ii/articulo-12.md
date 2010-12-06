@@ -1,5 +1,1 @@
-Artículo 12.—Auxiliares previstos. Son auxiliares:
-a) los agentes aduaneros;
-b) los depositarios aduaneros;
-c) los transportistas aduaneros; y
-d) los demás que establezca la legislación nacional.
+Artículo 12. Atribuciones aduaneras. Para supervisar y fiscalizar el correcto cumplimiento de las obligaciones aduaneras, la Autoridad Aduanera está autorizada para visitar empresas, establecimientos industriales, comerciales o de servicios, efectuar auditorias, requerir y examinar la información de sujetos pasivos, auxiliares y terceros, necesaria para comprobar la veracidad del contenido de las declaraciones aduaneras, de conformidad con los procedimientos legales establecidos.

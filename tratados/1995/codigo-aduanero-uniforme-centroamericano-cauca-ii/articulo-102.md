@@ -1,3 +1,2 @@
-CAPÍTULO II
-De las reclamaciones y los recursos aduaneros
-Artículo 102.—Impugnación de resoluciones y actos. Toda persona que se considere agraviada por las resoluciones o actos de las autoridades del servicio aduanero, podrá impugnarlas en la forma y tiempo que señale la legislación nacional.
+Artículo 102. Exportación temporal con reimportación en el mismo estado. La exportación temporal con reimportación en el mismo estado, es el régimen aduanero mediante el cual, con suspensión del pago de tributos a la exportación en su caso, se permite la salida temporal del territorio aduanero, de mercancías nacionales o nacionalizadas, con un fin específico y por un tiempo determinado, con la condición que sean reimportadas sin que hayan sufrido en el exterior ninguna transformación, elaboración o reparación, en cuyo caso a su retorno serán admitidas con liberación total de tributos a la importación.
+El plazo para la reimportación será el que establezca el Reglamento.

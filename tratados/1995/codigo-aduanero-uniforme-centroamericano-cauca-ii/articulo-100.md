@@ -1,1 +1,2 @@
-Artículo 100.—Infracción aduanera penal. Será infracción aduanera penal toda acción u omisión que signifique transgresión o tentativa de transgresión de la legislación aduanera, constitutiva de delito.
+Artículo 100. Actividades permitidas. Las mercancías durante el plazo de su depósito podrán ser sometidas a reacondicionamiento, reembalaje, análisis, o cualquier otra actividad necesaria para asegurar su conservación e identificación, siempre que no se altere o modifique su naturaleza.
+La Autoridad Aduanera, podrá permitir que las mercancías sometidas a este régimen, puedan ser objeto de otras actividades u operaciones, siempre que estas no alteren o modifiquen la naturaleza de las mismas.

@@ -1,1 +1,1 @@
-Artículo 63.—Plazo para reclamar. El declarante podrá reclamar lo pagado en exceso o indebidamente cobrado por concepto de derechos, impuestos, intereses, recargos y multas dentro de un plazo de cuatro años a partir de la fecha de dicho pago.
+Artículo 63. Mercancías prohibidas. Las mercancías de importación o exportación prohibidas, serán retenidas por la Autoridad Aduanera y, cuando corresponda, puestas a la orden de la autoridad competente.

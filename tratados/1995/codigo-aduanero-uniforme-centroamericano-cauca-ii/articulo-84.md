@@ -1,11 +1,1 @@
-CAPÍTULO III
-De las modalidades especiales de importación
-y exportación definitivas
-Artículo 84.—Modalidades especiales de importación y exportación definitiva. Constituyen modalidades especiales de importación y exportación definitiva, las siguientes:
-a) envíos postales;
-b) envíos urgentes;
-c) tráfico fronterizo;
-d) equipaje de viajeros;
-e) menaje de casa;
-f) pequeños envíos sin carácter comercial; y,
-g) otras que establezca la legislación nacional.
+Artículo 84. Selectividad y aleatoriedad de la verificación. La declaración autodeterminada, será sometida a un proceso selectivo y aleatorio, mediante la aplicación de metodologías de análisis de riesgo, que determine si corresponde efectuar la verificación inmediata de lo declarado. Dicha verificación no limita las facultades de fiscalización posterior a cargo de la Autoridad Aduanera.

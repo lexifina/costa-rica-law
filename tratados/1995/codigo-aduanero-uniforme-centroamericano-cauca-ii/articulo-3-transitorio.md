@@ -1,0 +1,1 @@
+Artículo Transitorio III: Base de datos regional. Dentro de los treinta (30) días siguientes a la entrada en vigencia del presente Código, los Estados Parte deberán efectuar la actualización en línea de la base de datos regional de transportistas autorizados.

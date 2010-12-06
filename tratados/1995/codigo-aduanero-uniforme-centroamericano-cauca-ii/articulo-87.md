@@ -1,2 +1,1 @@
-Artículo 87.—Tráfico fronterizo. Se considera tráfico fronterizo, las importaciones y exportaciones que efectúen sin fines comerciales, los pobladores de las zonas limítrofes de los países signatarios.
-Las mercancías objeto de dicho tráfico se podrán eximir total o parcialmente del pago de los derechos e impuestos que las graven, conforme lo dispongan los Acuerdos Multilaterales y siempre que la legislación nacional lo permita.
+Artículo 87. Plazo para efectuar la verificación posterior. El plazo para efectuar la verificación posterior, será de cuatro años a partir de la fecha de aceptación de la declaración de mercancías.

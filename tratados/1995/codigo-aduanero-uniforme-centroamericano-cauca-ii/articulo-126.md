@@ -1,0 +1,1 @@
+Artículo 126. Sanciones. Las infracciones de carácter administrativo y tributario a la normativa aduanera centroamericana y sus sanciones, se regularán conforme al Reglamento y la legislación nacional.

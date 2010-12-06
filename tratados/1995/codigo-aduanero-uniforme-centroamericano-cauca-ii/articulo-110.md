@@ -1,1 +1,2 @@
-Artículo 110.—Normas supletorias. En lo no previsto en el presente Código y su Reglamento se estará a lo dispuesto por la legislación nacional.
+Artículo 110. Envíos urgentes. Se entenderá por envíos urgentes, las mercancías que en razón de su naturaleza o por responder a una necesidad debidamente justificada, deban ser despachadas rápida y preferentemente.
+Igualmente se incluyen en esta modalidad, las mercancías ingresadas bajo el sistema de entrega rápida o couriers, cuyo ingreso es efectuado por empresas registradas ante el servicio aduanero.

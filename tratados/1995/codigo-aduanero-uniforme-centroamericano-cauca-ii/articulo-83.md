@@ -1,2 +1,2 @@
-Artículo 83.—Reexportación. Reexportación, es el régimen que permite la salida del territorio aduanero, de mercancías extranjeras llegadas al país y no importadas definitivamente.
-No se permitirá la reexportación de mercancías caídas en abandono o que se haya configurado respecto de ellas, presunción fundada de falta o infracción aduanera penal.
+Artículo 83. Aceptación de la declaración. La declaración de mercancías se entenderá aceptada cuando se registre en el sistema informático del Servicio Aduanero u otro sistema autorizado.
+La realización de dicho acto no implica avalar el contenido de la declaración, ni limita las facultades de comprobación de la Autoridad Aduanera.

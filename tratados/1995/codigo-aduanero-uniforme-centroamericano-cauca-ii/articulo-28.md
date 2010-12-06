@@ -1,2 +1,1 @@
-Artículo 28.—Derechos e impuestos aplicables para determinar el monto de la garantía en los regímenes temporales o suspensivos. En los regímenes temporales o suspensivos, el momento de la aceptación de la declaración al régimen, determinará los derechos e impuestos aplicables a efecto de establecer el monto de la garantía, cuando ésta corresponda.
-En caso de cambio de un régimen temporal o suspensivo a uno definitivo, se estará a lo dispuesto en el numeral 1°) del artículo anterior.
+Artículo 28. Operadores económicos autorizados. Los operadores económicos autorizados son personas que podrán ser habilitadas por el Servicio Aduanero, para facilitar el despacho de sus mercancías. Sus obligaciones, requisitos y formalidades serán establecidas en el Reglamento.

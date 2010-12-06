@@ -1,1 +1,1 @@
-Artículo 56.—Declaración provisional. La declaración de mercancías podrá ser presentada de manera provisional, en los plazos y casos establecidos en el Reglamento y la legislación nacional.
+Artículo 56. Forma y plazos de la garantía. Las garantías se otorgarán en la forma y plazos que se determinen en el Reglamento.

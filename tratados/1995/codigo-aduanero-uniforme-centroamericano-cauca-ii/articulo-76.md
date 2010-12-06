@@ -1,2 +1,3 @@
-Artículo 76.—Actividades permitidas. Las mercancías durante el plazo de su depósito podrán ser sometidas a reacondicionamiento, reembalaje, análisis, o cualquier otra actividad necesaria para asegurar su conservación e identificación, siempre que no se altere o modifique su naturaleza.
-La autoridad aduanera, podrá permitir que las mercancías sometidas a este régimen, puedan ser objeto de otras actividades u operaciones, siempre que éstas no alteren o modifiquen la naturaleza de las mismas.
+CAPITULO II
+DEL DESPACHO ADUANERO
+Artículo 76. Concepto de despacho. El despacho aduanero de las mercancías es el conjunto de actos necesarios para someterlas a un régimen aduanero, que concluye con el levante de las mismas.

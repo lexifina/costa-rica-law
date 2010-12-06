@@ -1,1 +1,1 @@
-Artículo 81.—Reimportación. Reimportación es el régimen que permite el ingreso al territorio aduanero, de mercancías nacionales o nacionalizadas, que se exportaron definitivamente y que regresan en el mismo estado, con liberación de derechos e impuestos.
+Artículo 81. Declaración provisional. La declaración de mercancías podrá ser presentada de manera provisional, en los plazos y casos establecidos en el Reglamento.

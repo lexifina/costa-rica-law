@@ -1,5 +1,1 @@
-TÍTULO V
-Del despacho aduanero y de sus actos previos
-CAPÍTULO I
-Actos previos
-Artículo 49.—Examen previo. El declarante o su representante, podrán efectuar el examen previo de la mercancía por despachar, para reconocerlas, a efecto de declararlas correctamente, autodeterminar las obligaciones tributarias y cumplir con las no tributarias.
+Artículo 49. Determinación de la obligación tributaria aduanera. La determinación de la obligación tributaria aduanera, es el acto por el cual se fija la cuantía de los tributos exigibles.

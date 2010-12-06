@@ -1,0 +1,1 @@
+Artículo 116. Pequeños envíos familiares sin carácter comercial. Se consideran pequeños envíos sin carácter comercial, las mercancías remitidas por familiares desde el exterior, para uso o consumo del familiar destinatario, cuya importación estará exenta del pago de tributos y demás cargos, siempre que su valor total en aduana no exceda de quinientos pesos centroamericanos.

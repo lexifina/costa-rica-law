@@ -1,1 +1,1 @@
-Artículo 31.—Determinación de la obligación tributaria aduanera. La determinación de la obligación tributaria aduanera, es el acto por el cual se fija la cuantía de los derechos e impuestos exigibles.
+Artículo 31. Medios equivalentes a la firma autógrafa. Las firmas electrónicas o digitales, los códigos, claves de acceso confidenciales o de seguridad equivalen, para todos los efectos legales, a la firma autógrafa de los funcionarios y empleados aduaneros, auxiliares, declarantes y demás personas autorizadas por el Servicio Aduanero.

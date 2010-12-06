@@ -1,2 +1,2 @@
-Artículo 70.—Tránsito aduanero. Tránsito aduanero es el régimen bajo el cual las mercancías sujetas a control aduanero son transportadas de una aduana a otra por cualquier vía, con suspensión total de los derechos e impuestos respectivos. Las mercancías en tránsito aduanero estarán bajo custodia y responsabilidad del transportista, sin perjuicio de las responsabilidades de terceros.
-El tránsito aduanero podrá ser internacional o interno.
+Artículo 70. Sobrantes de mercancías. En caso de sobrantes se permitirá su despacho siempre que se justifique tal circunstancia y la diferencia con lo manifestado no exceda del porcentaje establecido en el Reglamento.
+Cuando dichos sobrantes excedan del porcentaje permitido, éstos serán objeto de comiso administrativo y subastado por el Servicio Aduanero.

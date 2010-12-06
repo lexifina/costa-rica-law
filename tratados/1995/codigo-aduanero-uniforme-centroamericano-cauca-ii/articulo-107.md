@@ -1,1 +1,2 @@
-Artículo 107.—Nuevos procedimientos. Los países signatarios podrán desarrollar procedimientos que impliquen mayores grados de facilitación dentro del marco de los principios de este Código y su Reglamento.
+Artículo 107. Reexportación Reexportación, es el régimen que permite la salida del territorio aduanero, de mercancías extranjeras llegadas al país y no importadas definitivamente.
+No se permitirá la reexportación de mercancías caídas en abandono o que se haya configurado respecto de ellas, presunción fundada de falta o infracción aduanera penal.

@@ -1,1 +1,1 @@
-Artículo 92.—Menaje de casa. Se entenderá por menaje de casa, los enseres y artículos del hogar nuevos o usados, en cantidades y características que permitan determinar que serán destinados para uso doméstico.
+Artículo 92. Importación definitiva. La importación definitiva, es el ingreso de mercancías procedentes del exterior para su uso o consumo definitivo en el territorio aduanero.

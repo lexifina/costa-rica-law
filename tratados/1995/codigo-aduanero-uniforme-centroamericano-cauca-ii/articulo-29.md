@@ -1,1 +1,3 @@
-Artículo 29.—Sujetos activo y pasivo de la obligación tributaria aduanera. El sujeto activo de la obligación tributaria aduanera es el Estado y el sujeto pasivo es el declarante y quienes resulten legalmente responsables del pago de la misma.
+CAPITULO III
+DEL USO DE LOS SISTEMAS INFORMATICOS
+Artículo 29. Utilización de Tecnologías de Información y Comunicación (TIC). Los auxiliares de la función pública aduanera y los demás usuarios autorizados, deberán transmitir electrónicamente al Sistema Informático del Servicio Aduanero la información relativa a los actos, operaciones o regímenes aduaneros en que participen.

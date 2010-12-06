@@ -1,1 +1,1 @@
-Artículo 68.—Importación definitiva. La importación definitiva, es el ingreso de mercancías procedentes del exterior para su uso o consumo definitivo en el territorio aduanero.
+Artículo 68. Mercancías faltantes o sobrantes. Si en el proceso de descarga se detectaren faltantes o sobrantes respecto de lo manifestado, el transportista deberá justificar tal circunstancia en el plazo que establezca el Reglamento.

@@ -1,2 +1,1 @@
-Artículo 71.—De la garantía. Las unidades de transporte conforme este Código se constituyen, de pleno derecho, como garantía exigible válida y ejecutoria para responder por los derechos e impuestos, así como por las sanciones pecuniarias eventualmente aplicables sobre las mercancías transportadas bajo el Régimen de Tránsito Aduanero Internacional.
-La Autoridad Aduanera está facultada para exigir la sustitución de tal obligación por una garantía económica.
+Artículo 71. Custodia temporal de mercancías. La Autoridad Aduanera podrá autorizar que el medio de transporte o sus cargas, permanezcan temporalmente en los lugares habilitados para su custodia, bajo las condiciones y plazos que establezca el Reglamento.

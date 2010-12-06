@@ -1,2 +1,1 @@
-Artículo 86.—Envíos urgentes. Se entenderá por envíos urgentes, las mercancías que en razón de su naturaleza o por responder a una necesidad debidamente justificada, deban ser despachadas rápida y preferentemente.
-Igualmente se incluyen en esta modalidad, las mercancías ingresadas bajo el sistema de entrega rápida o couriers, cuyo ingreso es efectuado por empresas registradas ante el servicio aduanero.
+Artículo 86. Verificación posterior al despacho. La Autoridad Aduanera está facultada para verificar con posterioridad al despacho, la veracidad de lo declarado y el cumplimiento de la legislación aduanera y de comercio exterior en lo que corresponda.

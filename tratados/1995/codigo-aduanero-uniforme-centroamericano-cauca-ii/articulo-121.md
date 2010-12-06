@@ -1,0 +1,2 @@
+Artículo 121. Rescate de mercancías tácitamente abandonadas. El consignatario o el que comprobare derecho sobre las mercancías tácitamente abandonadas, podrá rescatarlas pagando previamente las cantidades que se adeuden, de conformidad con el numeral 2 del artículo 46 de este Código, salvo en aquellos casos en los que ya se hubiere presentado una declaración de importación definitiva, en cuyo caso se estará a lo dispuesto en el numeral 1 del mismo artículo.
+Dicho rescate deberá efectuarse a más tardar el día hábil anterior a la fecha de celebración de la subasta.

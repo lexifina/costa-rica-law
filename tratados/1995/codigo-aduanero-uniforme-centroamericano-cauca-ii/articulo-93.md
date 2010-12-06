@@ -1,1 +1,1 @@
-Artículo 93.—Pequeños envíos sin carácter comercial. Se consideran pequeños envíos sin carácter comercial, las mercancías remitidas del exterior para uso o consumo del destinatario o de su familia, cuya importación estará exenta del pago de derechos, impuestos y demás cargos, siempre que su valor total en aduana no exceda de quinientos pesos centroamericanos.
+Artículo 93. Exportación definitiva. La exportación definitiva, es la salida del territorio aduanero de mercancías nacionales o nacionalizadas para su uso o consumo definitivo en el exterior.

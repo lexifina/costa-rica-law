@@ -1,1 +1,1 @@
-Artículo 55.—Declaración anticipada. La declaración de mercancías podrá ser presentada anticipadamente al arribo de las mercancías al país, bajo el sistema de autodeterminación, en los casos establecidos en el Reglamento y la legislación nacional.
+Articulo 55. Ejecución de la garantía. Cuando la obligación tributaria aduanera garantizada no se cumpla en la forma, plazo y condiciones establecidas, el Servicio Aduanero hará efectiva la garantía conforme se establezca en el Reglamento.

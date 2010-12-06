@@ -1,1 +1,5 @@
-Artículo 89.—Exención del pago de derechos e impuestos por el equipaje. Toda persona que arribe a los puertos, aeropuertos o lugares fronterizos habilitados, podrá introducir al país su equipaje con exención de derechos e impuestos.
+TITULO VI
+DE LOS REGIMENES ADUANEROS
+CAPITULO I
+DISPOSICIONES COMUNES
+Artículo 89. Concepto de regímenes aduaneros. Se entenderá por Regímenes Aduaneros, las diferentes destinaciones a que puedan someterse las mercancías que se encuentran bajo control aduanero, de acuerdo con los términos de la declaración presentada ante la Autoridad Aduanera.

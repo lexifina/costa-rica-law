@@ -1,1 +1,2 @@
-Artículo 40.—Mercancías prohibidas. Las mercancías de importación o exportación prohibidas, serán retenidas por la autoridad aduanera y, cuando corresponda, puestas a la orden de la autoridad competente.
+Artículo 40. Recursos y Notificaciones mediante sistemas informáticos. Para la presentación de recursos y gestiones ante el Servicio Aduanero, podrán utilizarse sistemas informáticos autorizados conforme se disponga en el Reglamento.
+El Servicio Aduanero podrá realizar las notificaciones mediante transmisión electrónica.

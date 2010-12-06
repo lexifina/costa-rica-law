@@ -1,1 +1,2 @@
-Artículo 50.—Requisitos y procedimientos. Los requisitos y procedimientos para efectuar el examen previo, se regularán en la legislación nacional.
+Artículo 50. Personas a quienes corresponde efectuar la determinación. Como regla general, corresponderá al declarante o a su representante, bajo el sistema de autodeterminación, realizar la determinación de la obligación tributaria aduanera y cumplir con los demás requisitos y formalidades necesarios para la aplicación del régimen que corresponda, previo a la presentación de la declaración ante el Servicio Aduanero.
+Excepcionalmente, la Autoridad Aduanera efectuará la liquidación de los tributos con base en la información proporcionada por el declarante. Tales casos de excepción, serán determinados por el Reglamento.

@@ -1,1 +1,1 @@
-Artículo 105.—Requisitos de los miembros. Los miembros que integren el Tribunal Aduanero o los Comités en su caso, deberán contar con grado mínimo de licenciatura en las materias que la legislación nacional disponga, además de conocimiento y experiencia en materia aduanera y de comercio exterior.
+Artículo 105. Reimportación. Reimportación es el régimen que permite el ingreso al territorio aduanero, de mercancías nacionales o nacionalizadas, que se exportaron definitivamente y que regresan en el mismo estado, con liberación de tributos.

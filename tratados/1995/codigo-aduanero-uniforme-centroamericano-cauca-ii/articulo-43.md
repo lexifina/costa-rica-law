@@ -1,2 +1,2 @@
-Artículo 43.—Transbordo. El transbordo es el traslado de las mercancías bajo control aduanero, del medio de transporte en el cual arribaron, a otro en el que continuarán a su destino.
-El procedimiento y requisitos para que el transbordo sea autorizado, serán establecidos por el Reglamento.
+Artículo 43. Origen de las mercancías. La determinación, ámbito de aplicación, criterios para la determinación y demás procedimientos relacionados con el origen de las mercancías centroamericanas se efectuarán conforme lo establecido en el Reglamento.
+En lo relacionado con el origen de mercancías de terceros países con los cuales los Estados Parte hayan suscrito o suscriban acuerdos o tratados comerciales internacionales bilaterales o multilaterales, se aplicarán las normas contenidas en los mismos.

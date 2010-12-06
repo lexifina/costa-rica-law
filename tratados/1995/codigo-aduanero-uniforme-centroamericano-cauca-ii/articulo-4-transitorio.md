@@ -1,0 +1,1 @@
+Artículo Transitorio IV: Carrera Administrativa. Los Estados Parte deberán en el plazo de los seis meses siguientes a la vigencia del presente Código y su Reglamento, aprobar y poner en aplicación el estatuto de carrera administrativa aduanera.

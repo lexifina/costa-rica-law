@@ -1,1 +1,2 @@
-Artículo 101.—Sanciones. Las infracciones aduaneras y sus sanciones se regularán de conformidad con la legislación nacional.
+Artículo 101. Zonas francas. Zona franca, es el régimen que permite ingresar a una parte delimitada del territorio de un Estado Parte, mercancías que se consideran generalmente como si no estuviesen en el territorio aduanero con respecto a los tributos de importación, para ser destinadas según su naturaleza, a las operaciones o procesos que establezca la autoridad competente.
+Las zonas francas podrán ser entre otras, comerciales, industriales o mixtas.

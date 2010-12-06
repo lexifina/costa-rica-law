@@ -1,1 +1,2 @@
-Artículo 10.—Responsabilidades de los funcionarios y empleados. La responsabilidad de los funcionarios y empleados del servicio aduanero, por su actuación, culposa o dolosa en el desempeño de sus cargos y funciones, será regulada por la legislación nacional.
+Artículo 10. Coordinación para aplicar controles. Las funciones que otras instituciones deban ejercer relacionadas con mercancías sujetas a control aduanero, deberán ser coordinadas con la Autoridad Aduanera competente.
+Los funcionarios pertenecientes a instituciones distintas al servicio aduanero, que se atribuyan y ejerzan funciones que por ley le competen a este servicio, incurrirán en las responsabilidades administrativas, civiles y penales que correspondan.
