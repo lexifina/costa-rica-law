@@ -1,0 +1,2 @@
+V. Ad Artículo 11.3.c)
+Para Costa Rica, se incluyen dentro de este apartado los intereses, comisiones y otros gastos financieros pagados por empresas domiciliadas en el país a bancos en el exterior -o a las entidades financieras de éstos-, reconocidos por el Banco Central de Costa Rica como instituciones que normalmente se dedican a efectuar operaciones internacionales, incluidos los pagos efectuados por tales conceptos a proveedores del exterior por la importación de mercancías.

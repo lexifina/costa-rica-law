@@ -1,0 +1,2 @@
+VII. Ad Artículo 13
+Para Costa Rica, se entenderá que a los efectos de la aplicación de este Convenio los ingresos provenientes de la enajenación de bienes tangibles sujetos a depreciación a que se refiere el artículo 8 inciso f) de la Ley 7092 así como Ias ganancias de capital habituales a que se refiere el artículo 6 inciso d) de la misma Ley, se regirán por las disposiciones del artículo 7 del Convenio, en tanto que dicho artículo se mantenga en vigor.
