@@ -1,0 +1,12 @@
+CAPÍTULO V
+MÉTODOS PARA ELIMINAR LA DOBLE IMPOSICIÓN
+Artículo 23
+ELIMINACIÓN DE LA DOBLE IMPOSICIÓN
+La doble imposición se evitará bien de conformidad con las disposiciones impuestas por la legislación interna de los Estados Contratantes o conforme a las siguientes disposiciones:
+a) Cuando un residente de un Estado Contratante obtenga rentas o posea elementos patrimoniales que, con arreglo a las disposiciones de este Convenio puedan someterse a imposición en el otro Estado Contratante, el Estado Contratante mencionado en primer lugar permitirá, dentro de las limitaciones impuestas por su legislación interna:
+i) la deducción del impuesto sobre la renta de ese residente por un importe igual al impuesto sobre la renta pagado en el otro Estado Contratante;
+ii) la deducción del impuesto sobre el patrimonio de ese residente por un importe igual al impuesto pagado en el otro Estado Contratante sobre esos elementos patrimoniales;
+iii) la deducción del impuesto sobre sociedades efectivamente pagado por la sociedad que reparte los dividendos correspondiente a los beneficios con cargo a los cuales dichos dividendos se pagan, de acuerdo con su legislación interna.
+Sin embargo, dicha deducción no podrá exceder de la parte del impuesto sobre la renta o del impuesto sobre el patrimonio, calculados antes de la deducción, correspondiente a las rentas o a los elementos patrimoniales que puedan someterse a imposición en el otro Estado Contratante.
+b) Cuando con arreglo a cualquier disposición de este Convenio las rentas obtenidas por un residente de un Estado Contratante o el patrimonio que posea estén exentos de impuestos en dicho Estado Contratante, éste podrá, no obstante, tomar en consideración las rentas o el patrimonio exentos para calcular el impuesto sobre el resto de las rentas o el patrimonio de ese residente.
+(Nota de Sinalevi: Según el aparte XI). del “Protocolo al Convenio entre el Reino de España para evitar la doble imposición y prevenir la evasión fiscal en materia de impuestos sobre la renta y sobre el patrimonio”, en tanto Costa Rica mantenga un criterio de territorialidad en su sistema tributario (por el que la renta obtenida en España por un residente en Costa Rica o su patrimonio situado en España no quedarán sujetos a imposición en Costa Rica), Costa Rica podrá no aplicar las disposiciones de este artículo a sus residentes, en cuyo caso serán de aplicación las disposiciones previstas en su legislación interna a tal efecto.)

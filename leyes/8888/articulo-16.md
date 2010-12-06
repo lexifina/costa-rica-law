@@ -1,0 +1,4 @@
+Artículo 16
+PARTICIPACIONES DE CONSEJEROS
+Las participaciones y otras retribuciones similares que un residente de un Estado contratante obtenga como miembro de un Consejo de Administración de una sociedad residente del otro Estado contratante pueden someterse a imposición en ese otro Estado.
+(Nota de Sinalevi: Según el aparte VIII). del “Protocolo al Convenio entre el Reino de España para evitar la doble imposición y prevenir la evasión fiscal en materia de impuestos sobre la renta y sobre el patrimonio”, para Costa Rica se entiende comprendido dentro de este artículo las remuneraciones, sueldos, comisiones, honorarios, dietas, gratificaciones que paguen o acrediten por empresas o entidades domiciliadas en el país a miembros de directorios, consejos u otros organismos directivos que actúen en el exterior.)

@@ -1,0 +1,9 @@
+CAPÍTULO III
+IMPOSICIÓN DE LAS RENTAS
+Artículo 6
+RENTAS INMOBILIARIAS
+1. Las rentas que un residente de un Estado contratante obtenga de bienes inmuebles (incluidas las rentas de explotaciones agrícolas o forestales) situados en el otro Estado contratante pueden someterse a imposición en ese otro Estado.
+2. La expresión “bienes inmuebles” tendrá el significado que le atribuya el derecho del Estado contratante en que los bienes estén situados. Dicha expresión comprende en todo caso los bienes accesorios a los bienes inmuebles, el ganado y el equipo utilizado en las explotaciones agrícolas y forestales, los derechos a los que sean aplicables las disposiciones de derecho privado relativas a los bienes raíces, el usufructo de bienes inmuebles y el derecho a percibir pagos fijos o variables en contraprestación por la explotación, o la concesión de la explotación, de yacimientos minerales, fuentes y otros recursos naturales. Los buques, embarcaciones y aeronaves no tendrán la consideración de bienes inmuebles.
+3. Las disposiciones del apartado 1 son aplicables a los rendimientos derivados de la utilización directa, el arrendamiento o aparcería, así como de cualquier otra forma de explotación de los bienes inmuebles.
+4. Las disposiciones de los apartados 1 y 3 se aplican igualmente a las rentas, derivadas de los bienes inmuebles de una empresa.
+5. Cuando la propiedad de acciones u otros derechos societarios en una sociedad atribuyan directa o indirectamente al propietario de dichas acciones o derechos societarios el derecho al disfrute de los bienes inmuebles poseídos por la sociedad, las rentas derivadas de la utilización directa, arrendamiento o uso en cualquier otra forma de tal derecho de disfrute, pueden someterse a imposición en el Estado contratante en que los bienes inmuebles estén situados.

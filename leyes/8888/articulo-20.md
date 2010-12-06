@@ -1,0 +1,4 @@
+Artículo 20
+PROFESORES Y ESTUDIANTES
+1. Las remuneraciones de una persona, residente de un Estado contratante, que permanezca temporalmente durante un período que no exceda de dos años en el otro Estado contratante para enseñar, dar conferencias o dedicarse a la investigación científica en una escuela, instituto, universidad u otra institución de enseñanza o investigación científica oficialmente reconocida, sólo pueden someterse a imposición en el primer Estado.
+2. Las cantidades que reciba para cubrir sus gastos de mantenimiento, estudios o formación práctica un estudiante o una persona en prácticas que sea, o haya sido inmediatamente antes de llegar a un Estado contratante, residente del otro Estado contratante y que se encuentre en el Estado mencionado en primer lugar con el único fin de proseguir sus estudios o formación práctica, no pueden someterse a imposición en ese Estado siempre que proceda de fuentes situadas fuera de ese Estado.
