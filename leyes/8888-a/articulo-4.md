@@ -1,0 +1,2 @@
+IV. Ad Artículo 11.3.b)
+Para Costa Rica, se incluyen dentro de este apartado las cantidades satisfechas por el arrendamiento de bienes de capital y por los intereses sobre préstamos, siempre que estos sean utilizados en actividades industriales o agropecuarias por empresas domiciliadas en el país, pagados a instituciones del exterior reconocidas por el Banco Central de Costa Rica como instituciones de primer orden, dedicadas a este tipo de operaciones.

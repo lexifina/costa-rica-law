@@ -1,0 +1,2 @@
+XI. Ad artículo 23
+En tanto Costa Rica mantenga un criterio de territorialidad en su sistema tributario (por el que la renta obtenida en España por un residente en Costa Rica o su patrimonio situado en España no quedarán sujetos a imposición en Costa Rica), Costa Rica podrá no aplicar las disposiciones de este artículo a sus residentes, en cuyo caso serán de aplicación las disposiciones previstas en su legislación interna a tal efecto.
