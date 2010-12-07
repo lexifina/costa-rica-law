@@ -1,1 +1,2 @@
-Artículo 42.—La persona que denuncia hostigamiento sexual falso, podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, de acuerdo con las disposiciones correspondientes del Código Penal.
+Artículo 42.—Considerando la gravedad de los hechos, si se logra determinar que un funcionario incurrió en acoso laboral se podrá sancionar de acuerdo a lo estipulado en los artículos 114 y 115 de este Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36442 del 7 de diciembre de 2010)

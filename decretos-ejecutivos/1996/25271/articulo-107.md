@@ -20,3 +20,5 @@ m) Velar porque sus subordinados disfruten de sus vacaciones de modo tal que no 
 n) Brindar especial atención a los servidores (as) en los aspectos propios del desempeño de estos, durante el período de prueba. o) Cumplir sus funciones sin sujeción a los límites de la jornada establecida por este Reglamento, cuando fuere necesario, sin que ello genere remuneración.
 p) Elevar a decisión del Ministro(a) en el término improrrogable de tres días a partir del que tuvo conocimiento, las faltas graves en que incurrieron los servidores (as).
 q) Cumplir con todas las demás obligaciones propias de su cargo.
+r) Tramitar ante quien tenga la competencia para disciplinar, la denuncia por acoso laboral presentada por un funcionario(a) a su cargo.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 36442 del 7 de diciembre de 2010)

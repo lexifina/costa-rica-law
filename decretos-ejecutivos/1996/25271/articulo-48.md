@@ -1,3 +1,2 @@
-Artículo 48.—Las vacaciones se deberán gozar sin interrupciones. Estas podrán ser divididas en dos fracciones como máximo, cuando así lo convengan las partes, y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del funcionario(a) y su presencia se considere necesaria para la buena marcha del servicio.
-Las boletas de vacaciones serán autorizadas por los (las) responsables de los programas, dependencias o equipos de trabajo, quienes enviarán copia al *Departamento de Gestión del Potencial Humano para los registros pertinentes.
-*(Modificada su denominación por el inciso 1 del artículo 11 del decreto ejecutivo N° 33208 del 1 de junio del 2006)
+Artículo 48.—El período de vacaciones podrá ser dividido en tres fracciones como máximo, cuando así lo convengan las partes, y siempre que no se tratare de labores de índole especial, que no permitan la ausencia prolongada del funcionario(a) y su presencia se considere necesaria para la buena marcha del servicio.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36442 del 7 de diciembre de 2010)

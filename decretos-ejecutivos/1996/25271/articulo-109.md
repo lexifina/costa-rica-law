@@ -35,15 +35,16 @@ Distraer con cualquier clase de juegos o bromas a los compañeros (as) de trabaj
 25) Ejercer actividades profesionales cuando las mismas riñan con el ejercicio de las funciones que se estén desempeñando, o violen la prohibición que imponga la ley para el ejercicio liberal de la profesión, o violen los deberes del régimen de dedicación exclusiva, o servir de mediadores para facilitar a terceros sus actividades profesionales, valiéndose para ello del cargo o posición que ocupa.
 26) Salvo lo previsto en la ley, hacer reclamos u otras gestiones similares a favor de los particulares, en forma directa o indirecta, contra las diversas dependencias del Ministerio; llevar contabilidades o practicar auditorajes, excepto en cuanto a los negocios propios, de su cónyuge, ascendientes, descendientes y colaterales, hasta el tercer grado por consanguinidad o afinidad, debiendo comunicarlo a las autoridades respectivas.
 27) Ejercer presión, hostigar, acosar, tomar represalias contra compañeros (as) y subalternos (as), para obtener provecho personal en acciones relacionadas con credos políticos, religiosos, sexuales, económicos y de cualquier otra índole.
-28) Fumar en el centro de trabajo en áreas no autorizadas.
-(Así reformado por el artículo 11 del decreto ejecutivo N° 25941 del 14 de marzo de 1997)
+28) Fumar en el centro de trabajo.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 36442 del 7 de diciembre de 2010)
 29) Hacer propaganda religiosa o contraria a las instituciones democráticas.
 30) Extraer del Ministerio documentos, expedientes, equipo, o en general cualquier bien del Ministerio, aunque sea para dar cumplimiento a labores del Ministerio, sin autorización expresa y previa del superior jerárquico.
 31) Tratar de resolver por medio de la violencia de hecho o de palabra las dificultades que surjan con jefes, servidores o usuarios.
 32) Consumir café, refrigerios o comidas fuera del horario previsto para ese propósito, o en los lugares designados para ello.
 33) Incurrir en prácticas laborales desleales.
 34) Nombrar a funcionarios (as) con parentesco de consanguinidad o de afinidad en línea directa o colateral hasta tercer grado inclusive con el jefe inmediato o con los superiores de este en el respectivo Departamento u Oficina.
-35) Realizar actos de acoso laboral, entendiendo como tales aquellas acciones u omisiones tendientes a obstaculizar el normal desempeño de las labores a cualquier funcionario del Ministerio.
+35) Incurrir en alguna conducta tipificada como acoso laboral, o acoso sexual.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 36442 del 7 de diciembre de 2010)
 36) Aquellas otras que se estipulen por los medios administrativos y jurídicos, y las demás incluidas en la legislación existente al respecto y que no se hayan considerado en este artículo.
 37. Observar, reproducir o exhibir imágenes deshonestas u obscenas, o material pornográfico en cualquier lugar de la institución, a través del acceso de Internet, del correo electrónico, o por cualquier medio.
 (Así adicionado por el artículo 3° del decreto ejecutivo N°. 30289 de 9 de abril de 2002)

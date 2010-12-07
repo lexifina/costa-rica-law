@@ -1,2 +1,2 @@
-Artículo 38.—Para la valoración de las pruebas se tomarán en consideración todos los elementos indiciarios aportados, dentro de los que se contemplarán todos aquellos que se refieren a las alteraciones provocadas por los hechos que se denuncian, en el estado de ánimo de la persona que presenta la denuncia, así como en su desempeño, cumplimiento y dinámica laboral.
-El Órgano Director no podrá emitir valoración alguna sobre la vida personal del (la) denunciante.
+Artículo 38.—La persona que denuncia hostigamiento sexual falso podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, de acuerdo con las disposiciones correspondientes del Código Penal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36442 del 7 de diciembre de 2010)
