@@ -13,3 +13,4 @@ Sobre los dineros recibidos por los Jueces Penales por concepto de pensiones ali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-06 | la propia norma |
+| 2 | 2010-12-07 | Circular 166 (2010-12-07) |
