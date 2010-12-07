@@ -1,0 +1,1 @@
+Artículo 28.—Torero dentro área de redondel. En toda plaza donde se jueguen toros, se deberá contar necesariamente con la presencia de dos toreros de reconocida capacidad como mínimo y lazador a pie, para que acudan de ser necesario a socorrer, en caso de peligro, a los toreros improvisados y demás personas actoras del espectáculo.

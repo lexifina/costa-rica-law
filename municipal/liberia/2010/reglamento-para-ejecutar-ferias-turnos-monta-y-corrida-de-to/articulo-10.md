@@ -1,0 +1,1 @@
+Artículo 10.—Responsable. La entidad autorizada para dicha actividad y solidariamente los personeros o representantes de las mismas, serán responsables de los daños y perjuicios que ocurrieren con la acción de la actividad, así mismo serán responsables por la acción u omisión atribuible a los asistentes de la feria.

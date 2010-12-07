@@ -1,0 +1,1 @@
+Artículo 3º—De los requisitos. Una vez que el Concejo Municipal acuerde lo que corresponda, los organizadores deberán apersonarse al Departamento de Rentas para que cumpla con los requisitos que la ley exige, con ocho días antes de que inicie la actividad.

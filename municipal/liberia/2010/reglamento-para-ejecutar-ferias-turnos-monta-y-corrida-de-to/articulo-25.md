@@ -1,0 +1,1 @@
+Artículo 25.—Persona autorizadas en toril. En el toril solo se permitirá la permanencia de las personas que laboren en él, miembros de la comisión, la autoridad policial encargada de la vigilancia y fiscal de barrera que designará para ese evento el Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 22.—Autoridad de policía. La Municipalidad de Liberia le solicitará a la autoridad policial la supervisión del ingreso de personas a la plaza. Se prohíbe la entrada de menores de edad o mayores perturbados por consumo de bebidas alcohólicas o consumo de drogas.

@@ -1,0 +1,7 @@
+Artículo 49.—Vigencia. Este Reglamento deberá ser aprobado por el Concejo Municipal de Liberia y el Alcalde deberá dar el debido seguimiento de su cumplimiento, luego pasado este trámite, deberá ser publicado en el Diario Oficial La Gaceta, conforme a las disposiciones vigentes. Una vez publicado, de conformidad con lo establecido en el artículo 43 del Código Municipal, este reglamento se somete a consulta pública por un lapso de 10 días hábiles, vencido dicho plazo se pronunciará sobre el fondo. Los interesados podrán hacer manifestaciones por escrito ante el Alcalde de esta Municipalidad, de no haber, una vez pasado ese trámite surtirá todos los efectos y alcances legales correspondientes.
+Por todo lo anterior, amparados al artículo 13 inciso c) y artículo 43 del Código Municipal, esta Comisión de Asuntos Jurídicos recomienda al Concejo Municipal de Liberia, aprobar y publicar en el Diario Oficial La Gaceta, el Reglamento para ejecutar Ferias, turnos, monta y corrida de toros, tope o desfile de caballistas y otros en el cantón de Liberia, Guanacaste.
+Aprobado por dos votos.
+Acuerdo Nº 1
+El Concejo Municipal de Liberia, acuerda: aprobar el artículo III, del acta Nº 16-2010 de la Comisión de asuntos Jurídicos de fecha 26 de marzo del 2010, relacionada al Reglamento para ejecutar Ferias, Turnos, Monta y Corridas de Toros, Tope o Desfile de Caballistas y otros en el Cantón de Liberia.
+Aprobado por 5 votos positivos, el Regidor Hernán Rivas se inhibe de votar.
+Liberia, 20 de abril del 2010.—

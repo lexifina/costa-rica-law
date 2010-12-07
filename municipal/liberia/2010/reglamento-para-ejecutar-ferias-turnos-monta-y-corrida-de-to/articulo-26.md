@@ -1,0 +1,1 @@
+Artículo 26.—Quienes están autorizados. Todo el personal que permanezca en el toril deberá previamente acreditado por la comisión, a excepción del funcionario municipal en sus funciones de fiscal, Cruz Roja y autoridades de policía.

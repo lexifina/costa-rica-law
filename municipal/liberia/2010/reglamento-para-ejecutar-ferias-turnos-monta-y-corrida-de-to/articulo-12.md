@@ -1,0 +1,1 @@
+Artículo 12.—Servicios sanitarios. En toda actividad autorizada por esta Corporación la entidad organizadora deberá de proveer de servicios sanitarios para damas y caballeros, para evitar que los asistentes hagan sus necesidades fisiológicas en los alrededores del lugar donde se realiza la actividad.

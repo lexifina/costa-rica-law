@@ -1,0 +1,1 @@
+Artículo 13.—Informes económicos. Concluida la feria, la entidad organizadora estará obligada a presentar al Concejo Municipal de Liberia en el improrrogable plazo de 15 días hábiles, un informe económico que contemple los ingresos y egresos que se generó en la actividad.

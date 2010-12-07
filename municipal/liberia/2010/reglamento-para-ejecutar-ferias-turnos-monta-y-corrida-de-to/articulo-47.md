@@ -1,0 +1,1 @@
+Artículo 47.—Responsabilidad de organizadores. Debe quedarse claro que las organizaciones que organicen ferias, monta y corridas de toros, desfile de caballistas, etc., serán lo responsables directos y asumirán las consecuencias de cualquier situaciones que por negligencia y falta de previsión se produzca durante el evento organizado.
