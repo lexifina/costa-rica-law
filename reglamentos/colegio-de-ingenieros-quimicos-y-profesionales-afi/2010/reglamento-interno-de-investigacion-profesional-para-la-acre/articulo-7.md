@@ -1,0 +1,1 @@
+Artículo 7º—Con el objeto de asegurar la imparcialidad en la evaluación de pruebas, el Colegio establecerá un sistema numérico de identificación de los solicitantes, cuya identidad se protegerá ante los miembros de la Comisión de Investigación Profesional.

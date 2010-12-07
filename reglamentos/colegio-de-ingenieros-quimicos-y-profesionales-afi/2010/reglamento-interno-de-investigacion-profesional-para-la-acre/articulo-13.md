@@ -1,0 +1,2 @@
+Artículo 13.—La Comisión de Investigación Profesional elaborará la normativa en la que se explique con claridad el tipo de capacitación específica requerida, la frecuencia de las pruebas, los plazos mínimos para comunicar los resultados, la bibliografía básica.
+La Normativa se elaborará por la Comisión de Investigación Profesional, se revisará por la Junta Directiva y se aprobará en Asamblea General en sesión convocada al efecto. Una vez aprobada se publicará en el diario oficial La Gaceta.

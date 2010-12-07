@@ -1,0 +1,1 @@
+Artículo 15.—La Comisión de Investigación Profesional asignará a los miembros correspondientes, quienes impartirán y evaluarán los cursos de Ética Profesional, de Leyes y Reglamentos, de Profesional Responsable y efectuarán la evaluación profesional.

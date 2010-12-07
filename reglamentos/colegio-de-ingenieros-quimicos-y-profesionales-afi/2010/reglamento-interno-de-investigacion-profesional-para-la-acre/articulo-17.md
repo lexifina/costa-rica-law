@@ -1,0 +1,1 @@
+Artículo 17.—La información sobre el resultado favorable de los pruebas será pública y por su parte el resultado desfavorable será confidencial y únicamente dado a conocer a quien no obtuvo el derecho a la colegiatura. Si media solicitud, la universidad interesada podrá obtener información estadística sobre el resultado obtenido por sus graduados en las pruebas de incorporación.

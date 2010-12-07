@@ -1,0 +1,3 @@
+Artículo 12.—Sin perjuicio de la revisión y actualización de las pruebas, estas buscarán una valoración idéntica para quienes se sometan a ellos en la misma convocatoria de cada profesión específica.
+La Junta Directiva del Colegio adoptará las medidas administrativas necesarias para que no exista ningún tipo de discriminación en la aplicación de las pruebas y hará los ajustes necesarios para que todos los interesados las presenten, sin perjuicio de circunstancias relativas a su condición o discapacidad.
+Los ajustes o adecuaciones que se realicen para garantizar el libre acceso a las pruebas, no impedirán que todos los solicitantes sean sometidos a los aspectos considerados en ellos.

@@ -1,0 +1,1 @@
+Artículo 10.—Para el diseño de la investigación, la Comisión de Investigación Profesional tiene la posibilidad de consultar oportunamente, de forma no vinculante, a las universidades que imparten las carreras de su competencia, con el fin de contar con información actualizada sobre los aspectos o áreas del saber que se considerarán para efectos de las pruebas.

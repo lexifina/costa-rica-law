@@ -1,0 +1,1 @@
+Artículo 18.—Los postulantes exitosos en las pruebas de idoneidad adquirirán el derecho de incorporarse al Colegio como uno de los requisitos establecidos en el Reglamento a la Ley. En caso de no haber aprobado tienen la posibilidad de repetirlos posteriormente en futuras convocatorias.

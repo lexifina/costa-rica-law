@@ -1,0 +1,1 @@
+Artículo 11.—La normativa para la investigación profesional será equivalente a la establecida internacionalmente. Si fuera el caso, haciendo la referencia a las normativas en los países con los cuales Costa Rica tenga tratados de libre comercio vigentes o estén en negociaciones avanzadas.

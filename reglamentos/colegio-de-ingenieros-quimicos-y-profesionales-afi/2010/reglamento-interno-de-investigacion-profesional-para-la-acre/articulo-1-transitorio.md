@@ -1,0 +1,1 @@
+Transitorio I.—El presente Reglamento regirá para los postulantes a incorporarse al Colegio, tanto nacionales como extranjeros, quienes soliciten su incorporación un año después de la promulgación de este Reglamento.
