@@ -6567,7 +6567,8 @@ a) 50% cuando se utilice el método de valor de transacción; o
 b) 41,66% cuando se utilice el método de costo neto.
 8515.90 Un cambio a la subpartida 8515.90 de cualquier otra partida.
 8516.10-8516.29 Un cambio a la subpartida 8516.10 a 8516.29 de la subpartida 8516.80 o de cualquier otra partida.
-8516.31-8516.32 Un cambio a la subpartida 8516.31 a 8516.32 de cualquier otra partida.
+(*)8516.31-8516.32 Un cambio a la subpartida 8516.31 a 8516.32 de cualquier otra subpartida.
+(*)(Así reformada la subpartida anterior por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010)
 8516.33 Un cambio a la subpartida 8516.33 de cualquier otra subpartida, excepto de la partida 85.01, la subpartida 8516.80 o la fracción arancelaria 8516.90.bb.
 8516.40 Un cambio a la subpartida 8516.40 de cualquier otra subpartida, excepto de la partida 84.02, la subpartida 8481.40 o la fracción arancelaria 8516.90.cc.
 8516.50 Un cambio a la subpartida 8516.50 de cualquier otra subpartida, excepto de la fracción arancelaria 8516.90.dd u 8516.90.ee.
@@ -6667,37 +6668,23 @@ bb de cualquier otra subpartida, excepto de la fracción arancelaria 8529.90.aa.
 8527.39.aa Un cambio a la fracción arancelaria 8527.39.aa de cualquier otra subpartida, excepto de la fracción arancelaria 8529.90.aa.
 8527.39.bb Un cambio a la fracción arancelaria 8527.39.bb únicamente de la fracción arancelaria 8527.39.
 8527.90 Un cambio a la subpartida 8527.90 de cualquier otra subpartida, excepto de la fracción arancelaria 8529.90.aa.
-8528.12.aa (23) Un cambio a la fracción arancelaria
-(23) Esta regla sólo aplica para Costa Rica.
+8528.12.aa (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
 8528.12.aa de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-8528.12.bb (23) Un cambio a la fracción arancelaria 8528.12.bb de cualquier otra partida, excepto de la fracción arancelaria 8529.90.dd u 8540.11.aa, o de más de una de las siguientes:
-(23) Esta regla sólo aplica para Costa Rica.
-- fracción arancelaria 7011.20.aa.
-- fracción arancelaria 8540.91.aa.
-8528.12.cc Un cambio a la fracción arancelaria 8528.12.cc únicamente de la fracción arancelaria 8528.12. aa23; o un cambio a la fracción arancelaria 8528.12. cc de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-8528.12.dd Un cambio a la fracción arancelaria 8528.12.dd
-únicamente de la fracción arancelaria 8528.12. bb23; o un cambio a la fracción arancelaria
-8528.12.dd de cualquier otra partida, excepto de la fracción arancelaria 8529.90.dd u 8540.11.aa, o de más de una de las siguientes:
-- fracción arancelaria 7011.20.aa.
-- fracción arancelaria 8540.91.aa.
-8528.12 Un cambio a la subpartida 8528.12 de cualquier otra partida.
-8528.13.aa Un cambio a la fracción arancelaria 8528.13.aa de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-8528.13.bb Un cambio a la fracción arancelaria 8528.13.bb únicamente de la fracción arancelaria 8528.13.aa; o un cambio a la fracción arancelaria 8528.13.bb de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-8528.21.aa (23) Un cambio a la fracción arancelaria 8528.21.aa de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-(23) Esta regla sólo aplica para Costa Rica.
-8528.21.bb (23) Un cambio a la fracción 8528.21.bb de cualquier otra partida, excepto de la fracción arancelaria 8529.90.dd u 8540.11.aa, o de más de una de las siguientes:
-(23) Esta regla sólo aplica para Costa Rica.
-- fracción arancelaria 7011.20.aa.
-- fracción arancelaria 8540.91.aa.
-8528.21.cc Un cambio a la fracción arancelaria 8528.21.cc únicamente de la fracción arancelaria 8528.21. aa23; o un cambio a la fracción arancelaria 8528.21.
-cc de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-8528.21.dd Un cambio a la fracción arancelaria 8528.21.dd únicamente de la fracción arancelaria 8528.21. bb23; o un cambio a la fracción arancelaria 8528.21.dd de cualquier otra partida, excepto de la fracción arancelaria 8529.90.dd u 8540.11.aa, o de más de una de las siguientes:
-- fracción arancelaria 7011.20.aa.
-- fracción arancelaria 8540.91.aa.
-8528.21 Un cambio a la subpartida 8528.21 de cualquier otra partida.
-8528.22.aa Un cambio a la fracción arancelaria 8528.22.aa de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-8528.22.bb Un cambio a la fracción arancelaria 8528.22.bb únicamente de la fracción arancelaria 8528.22.aa; o un cambio a la fracción arancelaria 8528.22.bb de cualquier otra partida, excepto de la fracción arancelaria 8529.90.aa, 8529.90.cc u 8529.90.dd.
-8528.30 Un cambio a la subpartida 8528.30 de cualquier otra partida.
+8528.12.bb (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.12.cc (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.12.dd (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.12.dd (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.12 (Así eliminada dicha subpartida por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.13.aa (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.13.bb (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.21.aa (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.21.bb (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.21.cc (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.21.dd (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.21 (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.22.aa (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.22.bb (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
+8528.30 (Así eliminada dicha fracción arancelaria por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada por la partida 85.28 que indica la siguiente regla: Un cambio a la partida 85.28 de cualquier otra partida)
 8529.10 Un cambio a la subpartida 8529.10 de cualquier otra partida.
 8529.90.aa Un cambio a la fracción arancelaria 8529.90.aa de cualquier otra fracción arancelaria.
 8529.90.bb Un cambio a la fracción arancelaria 8529.90.bb de cualquier otra fracción arancelaria.
@@ -7074,7 +7061,7 @@ a) 50% cuando se utilice el método de valor de transacción; o
 b) 41,66% cuando se utilice el método de costo neto.
 9608.50 Se aplicará lo establecido en el artículo 5-10 de este capítulo.
 9608.60-9608.99 Un cambio a la subpartida 9608.60 a 9608.99 de cualquier otra partida.
-96.09-96.12 Un cambio a la partida 96.09 a 96.12 de cualquier otro capítulo.
+96.09-96.12 (Así eliminada dicha partida por el anexo 1 de la Ley N° 8891 del 10 de noviembre de 2010, y reemplazada la siguiente regla: 9609.10 - 9609.90 Un cambio a la subpartida. 9609.10 a 9609.90 de cualquier otra subpartida. 96.10-96.12 Un cambio a la partida 96.10 a 96.12 de cualquier otro capítulo)
 9613.10-9613.80 Un cambio a la subpartida 9613.10 a 9613.80 de cualquier otro capítulo; o un cambio a la subpartida 9613.10 a 9613.80 de la subpartida 9613.90, habiendo o no cambios de cualquier otro capítulo, cumpliendo con un contenido regional no menor a:
 a) 50% cuando se utilice el método de valor de transacción; o
 b) 41,66% cuando se utilice el método de costo neto.
