@@ -14,3 +14,4 @@ Reglamento para la Prestación de Ayudas Técnicas y Servicios de Apoyo para las
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-09 | la propia norma |
+| 2 | 2010-12-07 | Reglamento 42 (2010-12-07) |
