@@ -1,0 +1,1 @@
+Artículo 29.—Si el postulante finaliza la PEP antes de la hora de finalización establecida, se le permitirá abandonar el recinto de evaluación; sin embargo, aquellos postulantes que no hayan terminado antes de treinta minutos del final de esta, no podrán abandonar el recinto de evaluación.

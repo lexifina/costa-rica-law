@@ -1,0 +1,1 @@
+Artículo 28.—Sólo se permitirá la salida temporal de un postulante a la vez (por ejemplo, para ir al servicio sanitario) durante el desarrollo de la PEP y no se permitirá al postulante salir ni reingresar con ningún material. Estas salidas temporales serán controladas por un miembro de la CIP.

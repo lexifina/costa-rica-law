@@ -1,0 +1,1 @@
+Artículo 33.—Si luego de finalizada la PEP los miembros de la CIP encuentran evidencia de conductas o acciones fraudulentas en alguna prueba, la misma estará sujeta a anulación si se comprueba de manera concluyente y objetiva, que efectivamente se cometió fraude.

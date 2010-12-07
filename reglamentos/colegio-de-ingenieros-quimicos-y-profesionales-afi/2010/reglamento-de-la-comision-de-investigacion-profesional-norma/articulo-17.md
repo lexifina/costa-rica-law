@@ -1,0 +1,1 @@
+Artículo 17.—Para efectos de comprobación del ingreso y de la permanencia durante todo el desarrollo del curso, el postulante deberá firmar un acta de asistencia en la que se registrará tanto el ingreso como la salida.

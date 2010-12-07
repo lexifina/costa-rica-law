@@ -1,0 +1,1 @@
+Artículo 11.—Para los casos a los que se refiere el artículo 7 de esta normativa, las citas para la realización de la PEP se entregarán al día siguiente al segundo periodo de gracia para los que subsanaron el cumplimiento de requisitos.

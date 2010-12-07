@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Estructura de la Prueba de Evaluación Profesional (PEP)
+Artículo 19.—La prueba tendrá una duración de ocho horas y se compone de dos partes; la primera parte se llevará a cabo durante las primeras cuatro horas y evaluará aquellos conocimientos de las ciencias básicas y comunes para los postulantes al CIQPA; por lo que es un mismo examen para todas las profesiones. La segunda parte se inicia una hora y treinta minutos después de finalizada la primera parte y se tendrá una duración de cuatro horas y evaluará los conocimientos específicos de cada una de las profesiones amparadas al CIQPA.

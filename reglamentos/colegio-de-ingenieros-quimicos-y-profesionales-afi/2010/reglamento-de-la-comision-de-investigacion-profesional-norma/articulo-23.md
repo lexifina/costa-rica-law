@@ -1,0 +1,1 @@
+Artículo 23.—Al momento de retirar la cita para la realización de la PEP, el postulante recibirá su respectivo NIU. El postulante deberá resguardar su NIU durante todo el proceso de evaluación y asegurarse de llevarlo a la PEP.

@@ -1,0 +1,1 @@
+Artículo 5º—El postulante que requiera de adecuaciones o condiciones especiales por discapacidad, para la realización del CLR, del CEP, del CPR o de la PEP, deberá indicarlo claramente en la solicitud de Inscripción y aportar las certificaciones correspondientes.

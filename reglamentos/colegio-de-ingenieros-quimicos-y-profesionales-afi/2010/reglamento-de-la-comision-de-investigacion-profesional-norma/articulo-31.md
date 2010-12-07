@@ -1,0 +1,1 @@
+Artículo 31.—La aplicación y vigilancia del desarrollo de la PEP estará a cargo de los miembros de la CIP, de los cuales deberá existir al menos un profesional de cada una de las profesiones evaluadas con el fin de evacuar dudas de redacción de preguntas, pero no del contenido.

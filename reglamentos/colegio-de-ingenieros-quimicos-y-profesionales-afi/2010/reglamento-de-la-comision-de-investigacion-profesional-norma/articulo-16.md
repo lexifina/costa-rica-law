@@ -1,0 +1,1 @@
+Artículo 16.—El postulante deberá presentarse al lugar donde se impartirán el CLR, el CEP y CPR en la fecha y hora estipuladas. Para ingresar al recinto donde se impartirá el curso correspondiente, el postulante deberá presentar una identificación válida (cédula de identidad, pasaporte o cédula de residencia).

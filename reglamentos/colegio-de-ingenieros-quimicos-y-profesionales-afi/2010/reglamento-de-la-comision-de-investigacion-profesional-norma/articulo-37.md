@@ -1,0 +1,1 @@
+Artículo 37.—Los postulantes que hayan cumplido con todos los requisitos de inscripción y que se vean afectados por una modificación de la convocatoria al CLR, al CEP, al CPR o a la PEP, no tendrán que repetir los trámites de inscripción.

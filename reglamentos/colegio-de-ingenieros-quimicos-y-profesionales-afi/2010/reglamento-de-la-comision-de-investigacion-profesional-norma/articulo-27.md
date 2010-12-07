@@ -1,0 +1,1 @@
+Artículo 27.—Una vez finalizado el período de ingreso de postulantes al recinto de evaluación e iniciada la PEP, no se permitirá el ingreso de más postulantes después de los primeros quince (15) minutos. A dichos postulantes se procederá según lo establecidos por los artículos 38 y 39 de esta normativa.

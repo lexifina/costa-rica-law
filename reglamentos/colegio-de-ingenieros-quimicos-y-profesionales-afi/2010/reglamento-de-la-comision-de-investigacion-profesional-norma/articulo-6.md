@@ -1,0 +1,1 @@
+Artículo 6º—El postulante que renuncie, mediante nota escrita dirigida a la CIP, a las adecuaciones o condiciones especiales por discapacidad o bien, que incumpla con la presentación de dictámenes deberá realizar el CLR, el CEP, el CPR y la PEP en las mismas condiciones que el resto de los postulantes.

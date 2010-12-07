@@ -1,0 +1,1 @@
+Artículo 14.—La CIP conjuntamente con la Dirección Administrativa del CIQPA, programará las fechas de realización de los cursos y se anunciarán a los postulantes de acuerdo al Artículo 3 de esta normativa.
