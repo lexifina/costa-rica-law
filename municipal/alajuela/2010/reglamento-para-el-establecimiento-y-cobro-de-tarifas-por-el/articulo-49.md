@@ -1,0 +1,1 @@
+Artículo 49.—Entrada en vigencia de los precios. Los precios de las obras y servicios rigen treinta días después de la publicación definitiva del presente reglamento. En lo demás, rige a partir de su segunda publicación.

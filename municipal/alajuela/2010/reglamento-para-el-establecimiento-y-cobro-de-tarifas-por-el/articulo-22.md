@@ -1,0 +1,1 @@
+Artículo 22.—Notificación nula. La notificación hecha por un medio inadecuado, o fuera del lugar debido, u omisa en cuanto a una parte cualquiera de la disposición del acto, será absolutamente nula y se tendrá por hecha en el momento en que el contribuyente gestione ante la Municipalidad, dándose por enterado, expresa o implícitamente.

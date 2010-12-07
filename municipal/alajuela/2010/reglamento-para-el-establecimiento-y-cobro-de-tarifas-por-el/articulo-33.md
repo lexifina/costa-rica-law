@@ -1,0 +1,4 @@
+CAPÍTULO V
+De las aceras
+Artículo 33.—Alineamiento y diseño. Las aceras deberán cumplir con las especificaciones del diseño de sitio correspondiente o bien de lo indicado en el plano catastrado del inmueble en cuestión. Caso contrario el ancho de la acera se definirá en relación a la dimensión del derecho de vía existente frente al inmueble y según lo establecido en el Reglamento Nacional para el Control de Fraccionamientos y Urbanizaciones.
+El apercibimiento por el incumplimiento a la construcción de aceras está sujeto básicamente a dos condiciones: que el derecho de vía en el sitio donde se pretende construir la misma sea suficiente para tales efectos (sin que ello implique la necesidad de violentar la propiedad privada ni reducir la calzada) y además, que se establezca con antelación cuál es el área reservada al cordón y caño, dado que de lo contrario materialmente no es posible precisar dónde se inicia la obra.

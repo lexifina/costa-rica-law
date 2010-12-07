@@ -1,0 +1,1 @@
+Artículo 46.—Priorización. Para la notificación de falta de mantenimiento en las fachadas, la Dirección de Planeamiento y Control de Infraestructura dará prioridad a los centros de distrito y las zonas de interés patrimonial o turístico del cantón.

@@ -1,0 +1,1 @@
+Artículo 6º—Omisión de deberes. Previa comunicación por parte de la Municipalidad a través de su correspondiente acto administrativo; se entenderá que un munícipe incurrió en el incumplimiento de dichos deberes cuando no realice las obras o trabajos que se indican en el artículo anterior, una vez concluido el plazo otorgado para su ejecución.

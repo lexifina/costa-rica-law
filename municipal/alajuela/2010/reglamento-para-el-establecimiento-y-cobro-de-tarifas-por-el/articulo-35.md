@@ -1,0 +1,2 @@
+Artículo 35.—Materiales. En la construcción de aceras se usará cualquier material antiderrapante, con base preferiblemente cementicia o similar, como los siguientes: concreto cepillado y martelinado, adoquín o simulación de adoquín, mediante la técnica de concreto estampado.
+Será obligatorio el uso del adoquín o el simulando a través de la técnica del concreto estampado, en las zonas así señaladas en el Plan Regulador Urbano de Alajuela.
