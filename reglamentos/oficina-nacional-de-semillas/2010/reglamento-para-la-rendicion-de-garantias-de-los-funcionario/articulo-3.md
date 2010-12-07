@@ -1,0 +1,1 @@
+Artículo 3°—Garantía. La garantía que debe rendir el funcionario obligado para ello, será por medio de una póliza de fidelidad suscrita con el Instituto Nacional de Seguros, misma que será con cargo a su propio peculio. Dicha póliza será a favor de LA OFICINA y cesará por la renuncia aceptada, suspensión o remoción del servidor obligado a contraerla.
