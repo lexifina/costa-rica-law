@@ -14,3 +14,4 @@ Reglamento Operativo del Fondo de la Micro, Pequeña y Mediana Empresa (FODEMIPY
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-03 | la propia norma |
+| 2 | 2010-12-07 | Reglamento 4808 (2010-12-07) |
