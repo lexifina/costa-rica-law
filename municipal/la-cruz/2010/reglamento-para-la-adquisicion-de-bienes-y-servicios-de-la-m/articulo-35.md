@@ -1,0 +1,1 @@
+Artículo 35.—Los órganos competentes podrán autorizar la realización de compras de bienes y servicios con cargo al fondo de caja chica dentro de los montos y parámetros fijados en los artículos 16 y 17 de este Reglamento.

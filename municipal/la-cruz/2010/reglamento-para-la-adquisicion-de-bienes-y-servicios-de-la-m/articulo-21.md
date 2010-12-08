@@ -1,0 +1,1 @@
+Artículo 21.—La orden de compra será firmada, por el Alcalde Municipal. Las órdenes de compra deberán ser impresas con numeración consecutiva. La Proveeduría deberá llevar un control de las órdenes de compra utilizadas, con indicación del monto, objeto, saldo y estado de la contratación.

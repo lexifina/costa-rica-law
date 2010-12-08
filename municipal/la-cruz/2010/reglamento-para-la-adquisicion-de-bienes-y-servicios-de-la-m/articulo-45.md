@@ -1,0 +1,1 @@
+Artículo 45.—Todos los comprobantes y justificantes que se adjuntan a la liquidación citada en el artículo anterior, deberán marcarse con un sello u otro medio que evite que ese justificante sea utilizado posteriormente en otra liquidación.

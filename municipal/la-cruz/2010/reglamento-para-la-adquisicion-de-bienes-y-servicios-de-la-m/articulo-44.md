@@ -1,0 +1,1 @@
+Artículo 44.—El encargado del fondo será responsable de gestionar su reintegro, cuando lo estime conveniente, en función del monto gastado. En esa oportunidad efectuará una liquidación, la cual será aprobada por el Director Financiero. La reposición del fondo deberá hacerse por medio de cheque girado a nombre del encargado del fondo.

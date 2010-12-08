@@ -1,0 +1,1 @@
+Artículo 37.—La solicitud de adelanto de fondos de caja chica deberá estar autorizada por el Alcalde Municipal. En la solicitud de adelanto deberá constar: el bien o servicio por contratar, la justificación de la compra, la existencia de contenido presupuestario, el nombre y firma del funcionario que autoriza y del funcionario que recibe el dinero.

@@ -1,0 +1,2 @@
+Artículo 23.— La unidad solicitante, en los casos de la contratación de obras o servicios y en aquellos otros que determine la Proveeduría, deberá poner un visto bueno a las facturas que presente el proveedor para efectos de pagos parciales o finales de la contratación. El Departamento de Tesorería Municipal entregará el cheque respectivo.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 7 del 10 de enero de 2012)
