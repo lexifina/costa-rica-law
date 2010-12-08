@@ -1,0 +1,1 @@
+Artículo 8º—Información al Ciudadano. Constituir mecanismos de enlace entre la Administración y el usuario y lograr que los ciudadanos se encuentren informados sobre los servicios que brinda la Municipalidad.

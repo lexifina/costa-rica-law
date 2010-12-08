@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo General. La Contraloría de Servicios tendrá como objetivo general velar por el buen funcionamiento de los servicios que brinda la Municipalidad de Liberia, para garantizar la eficiencia y eficacia en todos los servicios públicos que se ofrecen.

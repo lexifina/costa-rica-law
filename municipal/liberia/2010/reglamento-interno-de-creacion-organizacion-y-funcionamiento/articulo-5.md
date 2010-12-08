@@ -1,0 +1,3 @@
+CAPÍTULO II
+Estructura de La Contraloría de Servicios:
+Artículo 5º—Estructura. La Contraloría de Servicios estará a cargo de un(a) funcionario(a) denominado Contralor(a) de Servicios, que será nombrado(a) por el Alcalde y deberá cumplir con los requisitos que establece el Manual Descriptivo de clases de puestos de la Municipalidad de Liberia. Al contralor o contralora de servicios le serán aplicables la causales de despido del Código Municipal, Código de trabajo y demás causales que establezcan las leyes aplicables a los funcionarios públicos. La Contraloría de Servicios contará con el personal y los recursos materiales y tecnológicos, necesarios para el cumplimiento eficiente y efectivo de los objetivos.

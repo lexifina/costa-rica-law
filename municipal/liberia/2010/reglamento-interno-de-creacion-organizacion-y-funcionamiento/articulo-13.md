@@ -1,0 +1,1 @@
+Artículo 13.—Asesoría. El o la Contralor (a) podrá requerir la asesoría de los funcionarios de la Municipalidad de Liberia que estime necesaria, para dar apoyo a su labor con excepción de la Auditoría Interna por la función que la misma cumple. También podrá requerir la asesoría necesaria de expertos externos a la Municipalidad, en casos muy calificados.

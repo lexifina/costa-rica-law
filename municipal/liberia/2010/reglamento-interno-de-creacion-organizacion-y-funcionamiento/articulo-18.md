@@ -1,0 +1,1 @@
+Artículo 18.—Levantamiento de expedientes. Cuando así lo requiera el caso que se tramite, la Contraloría de Servicios levantará un expediente debidamente numerado y foliado, que contenga toda la documentación relativa al caso y la resolución final.

@@ -1,0 +1,1 @@
+Artículo 27.—Información al Alcalde. Anualmente, durante el mes de enero de cada año, la Contraloría de Servicios remitirá al Alcalde un informe detallado de sus gestiones, en las diversas áreas de su accionar.
