@@ -1,0 +1,1 @@
+2. Se exceptúan los Topes, Desfiles de caballistas, cabalgatas y otras actividades que tengan permiso expreso de los Concejos de Distritos y que estos permisos hayan sido aprobados por el Concejo Municipal.
