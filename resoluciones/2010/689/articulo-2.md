@@ -1,0 +1,1 @@
+2º—Se ordena a la Dirección General de Transporte y Comercialización de Combustible y a la Refinadora Costarricense de Petróleo S. A. (RECOPE), tomar las medidas pertinentes con base en el nuevo plazo indicado en la presente resolución.
