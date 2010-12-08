@@ -14,3 +14,4 @@ Guía Oficial de Movilización de Ganado Bovino” (ANEXO 1)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-08 | la propia norma |
+| 2 | 2010-12-08 | Directriz 15 (2010-12-08) |
