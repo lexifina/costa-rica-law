@@ -1,0 +1,1 @@
+Artículo 24.—Respeto a los días libres de semana. La Caja respetará a sus trabajadores(as) el o los días libres de semana programados cuando éstos regresen de vacaciones, incapacidad, permisos y licencias, entre otros.

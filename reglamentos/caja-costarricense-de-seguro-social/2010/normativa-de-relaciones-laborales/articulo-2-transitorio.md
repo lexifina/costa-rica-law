@@ -1,0 +1,1 @@
+Transitorio 2º—La Caja promulgará un Manual de Procedimientos para la reubicación de puesto de trabajo a funcionarios (as) de la Caja Costarricense de Seguro Social. Este manual será elaborado por la Dirección de Bienestar Laboral, dentro de los seis meses siguientes a la vigencia de esta normativa y previa consulta a las Organizaciones Sindicales

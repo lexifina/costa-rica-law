@@ -1,0 +1,1 @@
+Transitorio 3º—En el plazo de dos meses a partir de la publicación de esta Normativa se analizaría e incluirá el título correspondiente al tema de Acoso Laboral que será presentado inicialmente por las organizaciones sindicales ante la mesa de negociación.

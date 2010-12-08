@@ -1,0 +1,27 @@
+Transitorio 4º—En un plazo de sesenta días a partir de la publicación de esta Normativa, las partes elaborarán la propuesta de disposiciones para regular el reconocimiento del pago de taxi a los trabajadores de la institución.
+Vigencia.—La presente Normativa de Relaciones Laborales rige a partir de su publicación en el Diario Oficial La Gaceta y derogan cualquier otra que se le opongan, sin perjuicio de lo señalado en el artículo 3 sobre la “Naturaleza, derechos adquiridos y fuentes.”
+GLOSARIO
+Administración activa: Órganos que componen a la Institución, que deciden y ejecutan; se incluye a la Junta Directiva como jerarca máximo.
+Caja: Caja Costarricense de Seguro Social.
+CIPA: Dependencia adscrita a la Gerencia Administrativa, cuyas siglas corresponden al nombre completo de la misma, a saber “Centro para la Instrucción del Procedimiento Administrativo”, que le corresponde instruir aquellos procedimientos administrativos requeridos por la Institución.
+Comisión de relaciones laborales: órgano bipartito y paritario, constituido por representantes de los trabajadores y la Caja, cuyas competencias y funcionamiento se definen en la Normativa.
+Comparecencia: Etapa procedimental en la que se evacuará toda la prueba, la cual podrá estar compuesta de una o más audiencias, para tales efectos se hará un señalamiento el día, hora y lugar en que se realizará tal diligencia.
+Audiencia: Período destinado y programado por el Órgano Director para llevar a cabo en determinado lugar, la recepción de la declaración de un testigo o de un investigado o bien, para discutir la prueba que conste en el expediente administrativo.
+Debido proceso: Principio Constitucional de carácter procesal o procedimental, que con base en numerosos postulados concretos, garantiza la protección de los derechos de los investigados, debiéndose para ello realizar un procedimiento justo que ante la presunción de inocencia, le permita al investigado o interesado, una adecuada oportunidad de defensa.
+Denunciante: Persona que de forma verbal o escrita pone en conocimiento de la Administración un hecho irregular.
+Falta: Inobservancia de cualquier disposición del ordenamiento jurídico que afecte los intereses institucionales.
+Fondos públicos: Recursos, valores, bienes y derechos propiedad del Estado y para los efectos de esta normativa de la Caja Costarricense de Seguro Social.
+Hacienda pública: Estará constituida por los fondos públicos, las potestades para percibir, administrar, custodiar, conservar, manejar, gastar e invertir tales fondos y las normas jurídicas, administrativas y financieras, relativas al proceso presupuestario, la contratación administrativa, el control interno y externo y la responsabilidad de los funcionarios públicos.
+Investigado: Persona a quien se le atribuye presunta responsabilidad en virtud de aparentes irregularidades en el desempeño de su función o en virtud de su investidura como funcionario público, mismas que deben ser investigadas por la Administración a través del respectivo procedimiento administrativo.
+Investigación Preliminar: Acto preparatorio de la Administración, cuya finalidad es determinar si existen elementos objetivos suficientes para iniciar un procedimiento administrativo.
+Jefatura: Autoridad que ostenta la potestad disciplinaria, que tiene bajo su responsabilidad la dirección, planeación, organización, ejecución y control de uno o varios procesos funcionales tanto administrativos como operativos, dentro de la estructura organizacional de la institución.
+Junta Nacional de Relaciones Laborales: órgano paritario y bipartito, integrado por representantes de los trabajadores y la Caja, cuyas competencias y funcionamiento se regula en la Normativa.
+LGAP: Ley General de la Administración Pública.
+Medida Cautelar: Acto que puede dictar e imponer la Administración con carácter instrumental, por determinado lapso, durante la ejecución de la investigación preliminar o el procedimiento administrativo, o bien que puede dictarse ante causa; cuando se considere que exista necesidad de que la persona investigada no interfiera en la indagación que se realiza o para evitar la permanencia en el cargo por considerarse que puede haber manipulación de la información o documentos involucrados.
+Órgano Decisor: Autoridad competente para adoptar la decisión de iniciar un procedimiento administrativo y de conformar un Órgano Director. También será competente para resolver cuestiones de fondo que sean gestionadas durante la tramitación del procedimiento, así como para emitir la resolución final del caso en primera instancia.
+Órgano Director: Persona o personas designadas por el Órgano Decisor, para la tramitación de la fase de instrucción del procedimiento administrativo.
+Procedimiento Administrativo: Secuencia de Actos necesarios para la formación de la voluntad de la Administración Activa que se plasmará en un acto final, tal procedimiento se inicia a partir de la notificación de la Resolución Inicial de Traslado de Cargos y concluirá con el acto final en firme, dictado por el órgano competente.
+Sanción: Consecuencia jurídica desfavorable por la comisión de una falta, la cual podrá consistir en una amonestación escrita, suspensión sin goce de salario o despido; y cuando corresponda, el cobro por los daños económicos y perjuicios ocasionados a la Institución.
+Testigo: Persona que con su presencia, sus dichos o su firma, asevera la realidad de un hecho o acto”.
+Acuerdo firme”.
+San José, 18 de noviembre del 2010.—

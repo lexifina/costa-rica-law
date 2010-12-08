@@ -1,0 +1,2 @@
+Artículo 23.—Dotación y portación de carné de identificación. Todos los funcionarios y las funcionarias están en la obligación de portar en un lugar visible el carné de identificación de empleado(a).
+Dicho carné (gafete) de identificación será suministrado y sufragado por la Institución en su condición de patrono, en caso de pérdida menor a un año, su costo por reposición correrá por cuenta del trabajador.

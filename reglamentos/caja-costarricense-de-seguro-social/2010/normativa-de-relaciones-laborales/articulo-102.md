@@ -1,0 +1,4 @@
+Artículo 102.—Conformación del expediente administrativo. De cada caso se levantará un expediente administrativo, su conformación será con los documentos originales o en su defecto copia certificada de los mismos, que tengan relación con el caso concreto.
+Al conformarse el expediente se le confeccionará una carátula donde se indique al menos: las partes, tipo de procedimiento, número de expediente y lugar o medio para recibir notificaciones (el cual deberá mantenerse debidamente actualizado).
+El expediente deberá ser debidamente foliado y estar ordenado en forma cronológica. Se entenderá por debidamente foliado que la documentación lleve un orden numérico ascendente, de izquierda a derecha.
+Toda actuación, escrito o resolución que se realice, se presente o se dicte, será agregado y foliado de forma inmediata por el órgano que tiene en su custodia el expediente administrativo.

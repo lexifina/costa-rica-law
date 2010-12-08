@@ -1,0 +1,2 @@
+Artículo 192.—Del informe final del Órgano Director. Vencido el plazo para la presentación del alegato de conclusiones, el órgano director analizará el expediente y remitirá el informe respectivo a la jefatura inmediata, en un plazo de diez días hábiles. Dicho informe contendrá el detalle de la prueba conocida en el procedimiento y las conclusiones del mismo. Deberá omitirse cualquier recomendación respecto de las acciones a seguir.
+El informe se notificará a las partes involucradas, en el lugar señalado para atenderlas, en estricta confidencialidad.

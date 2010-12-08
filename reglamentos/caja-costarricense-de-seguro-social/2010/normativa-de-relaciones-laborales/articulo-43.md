@@ -1,0 +1,1 @@
+Artículo 43.—Pago de incapacidad por enfermedad. La Caja cubrirá la totalidad de las incapacidades que tengan sus trabajadores(as) por enfermedad, por los términos ya establecidos en los reglamentos vigentes.

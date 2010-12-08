@@ -1,0 +1,1 @@
+Artículo 178.—Del deber de monitoreo por parte de la jefatura inmediata. La jefatura inmediata está obligada a monitorear la actuación del órgano director, con el fin de que el procedimiento siga el curso adecuadamente.

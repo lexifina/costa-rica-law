@@ -1,0 +1,1 @@
+Artículo 176.—Del recibo de la denuncia y su presentación. La Institución recibirá la denuncia por escrito y ésta se interpondrá ante la jefatura inmediata del (de la) denunciado (a) o ante la autoridad superior del centro en donde labora el (la) denunciado (a).

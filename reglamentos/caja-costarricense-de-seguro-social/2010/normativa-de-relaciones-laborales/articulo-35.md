@@ -1,0 +1,4 @@
+Artículo 35.—Tiempo extraordinario. El trabajo que se ejecute fuera de los límites máximos señalados como jornada ordinaria, se considerará tiempo extraordinario y deberá remunerarse con el cincuenta por ciento más del salario ordinario, o sea, a tiempo y medio.
+Las horas extraordinarias laboradas durante un día libre (descanso semanal), feriado o asueto se remunerará con el doble del salario ordinario.
+Este tiempo debe estar debidamente autorizado, supervisado, con el respectivo contenido presupuestario y evaluado por la jefatura correspondiente, quien es responsable directa de su control y respectiva tramitación ante la correspondiente Oficina de Recursos Humanos. El tiempo extraordinario se remunerará exclusivamente en dinero y dentro de los cuarenta y cinco días siguientes a su prestación.
+La realización del tiempo extraordinario procederá conforme lo dispuesto en el ordenamiento jurídico.

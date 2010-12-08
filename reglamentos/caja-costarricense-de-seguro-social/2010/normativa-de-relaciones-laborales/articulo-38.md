@@ -1,0 +1,1 @@
+Artículo 38.—Salario escolar. La Caja continuará pagando a sus trabajadores(as) en el mes de enero de cada año, el salario escolar calculado sobre los salarios ordinarios y extraordinarios devengados desde el primero de enero al 31 de diciembre de cada año.

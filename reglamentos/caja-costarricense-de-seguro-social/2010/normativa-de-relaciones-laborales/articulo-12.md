@@ -1,0 +1,1 @@
+Artículo 12.—Delimitación del traslado. La Caja no trasladará a ningún trabajador (a) a otro centro de trabajo que se encuentre a una distancia superior a los diez kilómetros del respectivo centro de trabajo, con excepción de aquellos funcionarios (as) que por la naturaleza de su puesto deben desplazarse a diferentes lugares del país.

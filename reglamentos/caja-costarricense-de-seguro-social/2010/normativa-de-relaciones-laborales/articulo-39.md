@@ -1,0 +1,5 @@
+Artículo 39.—Salarios y sumas pagadas de más a la persona trabajadora. Los salarios o sumas de dinero pagados de más a las personas trabajadoras, se rebajarán conforme el siguiente procedimiento:
+1) La Administración notificará a la persona trabajadora que le ha cancelado salario o sumas de dineros pagados de más y la apercibirá en forma escrita, a presentarse en el lapso de cinco días hábiles a la Oficina de Recursos Humanos correspondiente, con el fin de llegar a un arreglo de pago.
+2) La Oficina de Recursos Humanos ante la presencia de la persona trabajadora demostrará la prueba de justificación en pago de más, especificando el monto y fecha en que se realizó dicho pago de más.
+3) La Oficina de Recursos Humanos atenderá compromiso de devolución de la suma de dinero pagado de más, por parte del trabajador, entendiéndose que dicho rebajo se efectuará en un plazo mínimo de seis meses.
+4) Las retenciones de dinero del salario de la persona trabajadora por concepto de devolución por dineros recibidos de más no pueden ser rebajados de la cesantía de la persona trabajadora.

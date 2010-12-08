@@ -1,0 +1,2 @@
+Artículo 143.—De la Responsabilidad Patrimonial. Una vez firme el acto final, en caso de que establezca daño o perjuicio imputable a la persona investigada, el Órgano Decisor de manera inmediata deberá iniciar las acciones de cobro correspondientes. La certificación de la resolución será título ejecutivo.
+En caso de incumplimiento de estas disposiciones cabrá responsabilidad disciplinaria y patrimonial del funcionario competente para realizar tales acciones.

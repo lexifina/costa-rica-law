@@ -1,0 +1,1 @@
+Artículo 25.—Días de descanso semanal. El otorgamiento de los días libres que les correspondan a las personas trabajadoras por concepto de descanso consecutivo por cambio de turno, descanso semanal, o cualquier otro motivo, no podrá concederse en los días feriados ni en los asuetos decretados por el Poder Ejecutivo o las Municipalidades.

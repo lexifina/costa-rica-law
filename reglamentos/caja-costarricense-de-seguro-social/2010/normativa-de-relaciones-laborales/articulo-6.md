@@ -1,0 +1,1 @@
+Artículo 6º—De la carrera administrativa. Se reconoce la carrera administrativa para las personas trabajadoras con el fin de garantizar la optimización, permanencia, promoción y excelencia de este recurso humano.

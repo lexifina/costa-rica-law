@@ -1,0 +1,1 @@
+Artículo 140.—Recurso Extraordinario de Revisión. El Recurso extraordinario de revisión deberá interponerse ante la Junta Directiva de la Institución, en aquellos supuestos estipulados en el artículo 353 y dentro de los plazos indicados en el numeral 354, ambos de la Ley General de la Administración Pública.

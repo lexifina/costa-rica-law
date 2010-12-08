@@ -1,0 +1,11 @@
+Artículo 61.—Comisión Nacional de Salud Ocupacional. Se instalará una Comisión Nacional de Salud Ocupacional que estará integrada por seis (6) miembros propietarios, tres (3) representantes de la Caja, designados por las Gerencias y tres (3) representantes de las personas trabajadoras, designados por las Juntas Directivas de los tres (3) sindicatos mayoritarios (uno por cada sindicato), por un período de dos años. Los designados gozarán de permiso con goce de salario para asistir a las comisiones.
+Las atribuciones de la Comisión Nacional de salud Ocupacional son:
+Conocer el proyecto de políticas institucionales y el proyecto del plan institucional de Salud Ocupacional, hacer las observaciones y recomendaciones que correspondan, las cuales se elevarán a conocimiento de la autoridad competente, previo a su aprobación definitiva.
+1) Fortalecer las acciones que en salud ocupacional desarrolle la institución, recomendar a las autoridades institucionales las condiciones óptimas que garanticen la salud ocupacional y las acciones por realizar para conseguirlas.
+2) Estimular investigaciones que tomen como objeto de estudio aquellos factores que inciden en la salud ocupacional y que afecten a las personas trabajadoras de la Institución.
+3) Promover el estudio de los grupos ocupacionales dentro de la Caja, de más alto riesgo de incidencia en enfermedades y accidentes de trabajo.
+4) Pronunciarse con respecto al disfrute de vacaciones profilácticas en aquellas solicitudes que las Gerencias de la Caja y que los sindicatos sometan a su consulta.
+5) Pronunciarse con respecto a las solicitudes de riesgo por peligrosidad que las Gerencias de la Caja y que los sindicatos sometan a su consulta.
+6) Monitorear las actuaciones, planes y proyectos que tenga el Área de Salud Ocupacional central y de los niveles regionales y locales.
+7) Atender consultas de las personas trabajadoras y de las organizaciones sindicales sobre la materia de salud ocupacional y pronunciarse formalmente sobre ellas.
+8) Monitorear las pólizas de riesgos de trabajo contratadas por la Caja Costarricense de Seguro Social y pronunciarse sobre su vigencia, monto y cobertura, ante la Junta Directiva y las Gerencias de la Caja Costarricense de Seguro Social, con copia a las organizaciones sindicales que interactúan en el seno institucional.

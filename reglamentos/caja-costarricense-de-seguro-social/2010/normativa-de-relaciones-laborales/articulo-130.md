@@ -1,0 +1,2 @@
+Artículo 130.—Suspensión de la comparecencia. La persona investigada, representante sindical y/o su abogado o el testigo con impedimento para asistir a la comparecencia, deberán informarlo al Órgano Director, por escrito, aportando documento idóneo que así lo justifique y con tres días de antelación a la celebración de la comparecencia, salvo situaciones de caso fortuito o de fuerza mayor.
+El Órgano Director es el único competente para suspender una comparecencia, con base en la justificación aportada por quien argumente tener algún impedimento para que ésta se celebre.

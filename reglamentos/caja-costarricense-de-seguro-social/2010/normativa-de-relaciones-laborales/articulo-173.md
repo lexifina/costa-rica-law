@@ -1,0 +1,1 @@
+Artículo 173.—Información de los cursos de inducción. Cuando se requiera información que trate sobre los cursos de inducción al nuevo trabajador, ésta será solicitada en las Oficinas de Recursos Humanos de cada centro de salud.

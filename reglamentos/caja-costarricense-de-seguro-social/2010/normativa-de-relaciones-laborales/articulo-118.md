@@ -1,0 +1,3 @@
+CAPÍTULO III
+Trámite del Procedimiento Ordinario
+Artículo 118.—Apertura del Procedimiento. Cuando la Administración cuente con elementos suficientes y objetivos (ya sea por denuncia o de manera oficiosa) para determinar las circunstancias de modo, tiempo y lugar en que presuntamente ocurrieron los hechos y se tengan individualizados las personas que deban ser investigadas, o se tenga el informe de resultados de la investigación preliminar que brinde tales elementos, el órgano decisor para efectos de determinar la verdad real de los hechos deberá ordenar la apertura del procedimiento administrativo en el plazo de un mes independientemente de los plazos de prescripción que apliquen para cada caso concreto.

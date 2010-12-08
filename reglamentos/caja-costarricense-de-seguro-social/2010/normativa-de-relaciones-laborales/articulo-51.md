@@ -1,0 +1,2 @@
+Artículo 51.—Derecho a la alimentación. Toda persona trabajadora hospitalaria tendrá derecho al suministro de la alimentación durante su horario de trabajo, siempre y cuando el hospital cuente con las condiciones adecuadas para ello, dicho suministro corre bajo la responsabilidad del patrono y sin que represente erogación económica para la persona trabajadora.
+La alimentación será orientada por un profesional en nutrición, que garantizará la calidad y cantidad de lo suministrado, incluye a efectos de no discriminar, las dietas especiales para las personas trabajadoras.

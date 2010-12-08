@@ -1,0 +1,3 @@
+Artículo 148.—Aplicación supletoria de normas. En ausencia de norma específica se aplicará en forma supletoria la Ley General de la Administración Pública, Ley de Notificaciones Judiciales, el Código Procesal Contencioso Administrativo, Código Procesal Civil y demás contempladas en el artículo 229 de la Ley General de la Administración Pública.
+Disposición Transitoria
+Transitorio I.—Los Procedimientos Administrativos que con anterioridad a la publicación de este Libro se encuentren activos, deberán continuar su tramitación con la normativa vigente al momento en que se iniciaron. Los procedimientos que se instauren posteriores a la fecha de vigencia de este Procedimiento deberán efectuarse conforme al mismo.

@@ -1,0 +1,1 @@
+Artículo 37.—Del descanso en Jornada Extraordinaria. Cuando por necesidad justificada del servicio, el trabajador deba laborar la jornada máxima establecida en el artículo 140 del Código de Trabajo, se le proporcionará el tiempo de descanso de media hora como medida profiláctica.

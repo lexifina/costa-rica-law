@@ -1,0 +1,1 @@
+Artículo 190.—Del deber de colaboración de las diferentes unidades de la Caja. Las unidades de la Caja, cuya colaboración sea solicitada por el órgano director, para la investigación de una denuncia por hostigamiento sexual, están en la obligación de prestarla. La negativa injustificada será considerada como una falta grave.

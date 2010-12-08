@@ -1,0 +1,1 @@
+Artículo 157.—Aplicación supletoria. En caso de ausencia de norma expresa en este procedimiento, se aplicará supletoriamente, el Procedimiento Administrativo Disciplinario, en lo que resulte jurídicamente pertinente.

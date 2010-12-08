@@ -1,0 +1,2 @@
+Artículo 78.—Cursos de capacitación. La Caja se compromete a continuar con su política actual de conceder licencia con goce de salario, a los afiliados(as) y delegados(as) sindicales para que asistan a eventos formales como cursos de capacitación, formación, congresos, reuniones en materia de sindicalismo o seguridad social, durante el tiempo prudencial que duren éstos.
+Para el cumplimiento de la anterior disposición, debe tomarse en cuenta en todo momento, que no sufra menoscabo la buena marcha de los servicios.

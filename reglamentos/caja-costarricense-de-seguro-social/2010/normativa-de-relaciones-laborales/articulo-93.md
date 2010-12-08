@@ -1,0 +1,1 @@
+Artículo 93.—Objetivo. Contar con un instrumento legal que de forma unificada regule el procedimiento administrativo en la Caja Costarricense de Seguro Social, con el fin de determinar la verdad real de presuntos hechos irregulares que sean conocidos por la Administración y establecer las responsabilidades que correspondan en cada caso.

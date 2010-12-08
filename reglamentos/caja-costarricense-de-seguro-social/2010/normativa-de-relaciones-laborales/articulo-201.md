@@ -1,0 +1,1 @@
+Artículo 201.—Modificaciones. Cualquier modificación en este Procedimiento será presentada por la Gerencia Administrativa a la Junta Directiva, para la aprobación; ésta deberá publicarse, a través de los medios pertinentes.

@@ -1,0 +1,2 @@
+Artículo 94.—Ámbito de aplicación. Las disposiciones del libro segundo de la presente Normativa serán aplicables a los procedimientos administrativos donde se vean involucradas personas trabajadoras, exfuncionarios, cuando se pretenda en el caso de estos últimos investigar alguna clase de eventual responsabilidad civil o patrimonial.
+En el caso de procedimientos disciplinarios contra ex funcionarios los mismos se archivarán, excepto casos debida y ampliamente justificados, por la jefatura competente, en razón de la trascendencia y gravedad de la falta.

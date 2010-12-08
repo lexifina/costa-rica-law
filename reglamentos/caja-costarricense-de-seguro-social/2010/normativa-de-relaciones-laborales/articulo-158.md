@@ -1,0 +1,1 @@
+Artículo 158.—De los efectos de la resolución. Las resoluciones, actuaciones y ascensos impugnados, no suspenderán sus efectos; no obstante, no adquirirán firmeza hasta que, de acuerdo con las disposiciones de este procedimiento, se resuelva la reclamación del trabajador (a) o trabajadores (as)

@@ -1,0 +1,1 @@
+Artículo 20.—Vestimenta y uniformes. Es deber de todas las personas trabajadoras vestir correctamente, durante la ejecución de sus labores, de conformidad con el cargo que desempeñan y los lugares en donde presten sus servicios, de acuerdo con las reglas de higiene, ética y buenas costumbres, así como con las normas que dicta la Institución al respecto.

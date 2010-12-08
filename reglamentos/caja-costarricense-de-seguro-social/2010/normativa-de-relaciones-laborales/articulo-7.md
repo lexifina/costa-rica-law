@@ -1,0 +1,3 @@
+TÍTULO II
+Condiciones Ocupacionales
+Artículo 7º—Cumplimiento de requisitos al momento de la contratación. A la persona trabajadora que se encuentre nombrada en propiedad o interina, no se le podrá aplicar regulaciones sobre requisitos con carácter retroactivo que no se exigían al momento de ingresar al puesto que se encuentra ocupando; lo anterior en el entendido que procede únicamente para el mismo puesto que ocupaba en esa condición, salvo que exista disposición legal en contrario, que se haya incurrido en un ingreso fraudulento o que no se cumpliera con los requisitos exigidos al momento del ingreso.

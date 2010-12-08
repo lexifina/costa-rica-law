@@ -1,0 +1,1 @@
+Artículo 22.—Vestuario de las personas trabajadoras en áreas administrativas. Con respecto a las personas trabajadoras que laboran en áreas administrativas, éstas deben observar lo establecido en las circulares emitidas para los efectos.
