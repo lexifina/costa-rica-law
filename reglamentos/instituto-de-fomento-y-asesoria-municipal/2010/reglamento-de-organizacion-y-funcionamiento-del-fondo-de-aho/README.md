@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Fondo de Ahorro y Préstamo del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-25 | la propia norma |
+| 2 | 2010-12-08 | Reglamento 3997 (2010-12-08) |
