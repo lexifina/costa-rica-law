@@ -1,0 +1,5 @@
+Artículo 39.—Requisitos de graduación. Se deberá presentar en el Consejo Superior de Educación los siguientes requisitos:
+a) Certificación de notas donde se consigne: el nombre de la institución, el nombre del estudiante y su número de identificación, la carrera que cursa, el nombre de los cursos, la nota, el número de créditos, el cuatrimestre y el año en que cursó cada uno y la forma de aprobación (curso regular, reconocimiento, suficiencia). Debe aportar los timbres de ley y estar firmada por el decano institucional.
+b) Certificación que permita verificar la condición de graduado de la educación diversificada. En el caso de extranjeros, la respectiva certificación de la equiparación de los estudios realizados en el extranjero a la condición de graduado.
+c) Certificaciones a partir de las cuales se han realizado reconocimientos o convalidaciones a los estudiantes.
+d) Solicitud del decano para que el Consejo Superior de Educación designe un delegado cuando se realicen pruebas comprensivas o práctica supervisada. Deberá indicar el nombre completo de cada estudiante con el número de identificación o cédula.

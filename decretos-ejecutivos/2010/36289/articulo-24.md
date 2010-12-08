@@ -1,0 +1,1 @@
+Artículo 24.—El personal de las instituciones parauniversitarias públicas estará excluido del régimen de Servicio Civil. La valoración de sus puestos se regirá por las normas que apruebe el Consejo Directivo con base en las normas legales presupuestarias, y reglamentarias vigentes.

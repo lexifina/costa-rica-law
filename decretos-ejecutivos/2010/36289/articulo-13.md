@@ -1,0 +1,1 @@
+Artículo 13.—El Consejo Directivo nombrará al Decano por un período de cuatro años, pudiendo ser reelecto. Los nombramientos, cambios o reelecciones deberán ser comunicados en el término de 15 días hábiles al Consejo Superior de Educación.

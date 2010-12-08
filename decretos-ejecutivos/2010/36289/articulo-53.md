@@ -1,0 +1,1 @@
+Artículo 53.—Además de estar debidamente calificado para impartir enseñanza superior universitaria, y de los requisitos específicos de idoneidad inherentes a sus puestos de trabajo; el personal de los institutos de Educación Superior Parauniversitaria privados deberá reunir las condiciones morales y éticas acordes con sus funciones.

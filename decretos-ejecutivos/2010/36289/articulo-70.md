@@ -1,0 +1,1 @@
+Artículo 70.—Cada sede regional estará a cargo de un Coordinador General, quien para ser nombrado deberá cumplir con los requisitos de índole académico que exige el presente reglamento para un decano.

@@ -1,0 +1,1 @@
+Artículo 64.—Registro de firmas: Para efectos de un adecuado control el director y los coordinadores de carrera registraran sus firmas mediante el procedimiento que establezca el departamento de centros docentes privados aprobado por el Consejo Superior de Educación.

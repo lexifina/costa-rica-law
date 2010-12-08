@@ -1,0 +1,1 @@
+Artículo 51.—Los institutos privados de Educación Superior Parauniversitaria contarán con los departamentos y servicios académicos, administrativos y técnicos indispensables para el logro de los objetivos de las carreras cortas aprobadas por el Consejo Superior de Educación.
