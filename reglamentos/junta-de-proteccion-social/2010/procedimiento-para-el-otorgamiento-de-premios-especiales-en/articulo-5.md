@@ -1,0 +1,8 @@
+Artículo 5º—Mecánica de participación. Para la mecánica de participación se tienen dos opciones:
+Habrán dos ganadores por sorteo, uno se escoge entre las personas que activen sus boletos por medio de la página Web: www.jps.go.cr o llamando al 25-21-60-05. El otro es el favorecido por medio de una llamada telefónica que se hará en vivo durante el programa de la Rueda de la Fortuna.
+Para la activación por la Web o vía telefónica, los datos requeridos son los siguientes:
+Cédula de identificación o documento de identificación vigente y al día.
+Número de validación del boleto, el cual se ubica debajo del área de juego.
+Los ganadores se eligen los días sábados, en el programa de la Rueda de la Fortuna, por medio electrónico entre las personas que hayan activado.
+El ganador del combo por llamada telefónica se elegirá durante en programa La Rueda de la Fortuna, para ello dentro del programa se darán tres pistas relacionadas con un tema específico, posteriormente se planteará una pregunta; en el transcurso del programa la persona tendrá el tiempo para adivinar la respuesta correcta a dicha pregunta, y antes de que finalice el programa se abrirá la línea telefónica, para que uno de los participantes tenga la oportunidad de ingresar y responder correctamente.
+La entrega del premio se efectuará a la semana siguiente de haber salido favorecido, en la Rueda de la Fortuna o en el Auditorio de la Junta con toma de fotografía para publicar en redes sociales y en la Web de la Junta, de acuerdo con el objetivo de ésta promoción y el mercado meta al cual va dirigido, y respetando el derecho de imagen.

@@ -1,0 +1,1 @@
+Artículo 8º—Vigencia. La promoción premios especiales en los juegos de la Lotería Instantánea tienen vigencia, según el juego: para Pistas de la suerte la vigencia es hasta el sábado 13 de noviembre y para Escudo y Corona hasta el sábado 19 de febrero del 2011.
