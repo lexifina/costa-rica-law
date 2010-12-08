@@ -1,0 +1,2 @@
+De la atención audiencias e intervención de los particulares
+Artículo 28.—En todas las sesiones ordinarias se atenderá al público. Los interesados deberán solicitar su participación por escrito con al menos 24 horas de anticipación, donde se explicaran los motivos de la solicitud y se aceptará solamente una audiencia, de personas físicas o jurídicas, por sesión ordinaria. En caso de que sea por invitación del Concejo se omitirá el trámite anterior.

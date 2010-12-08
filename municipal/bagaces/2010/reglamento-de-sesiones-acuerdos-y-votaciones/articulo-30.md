@@ -1,0 +1,1 @@
+Artículo 30.—Cada vez que la administración quiera somete un asunto de aprobación por el Concejo deberá presentarlo con 15 días de anticipación para su ejecución o vencimiento, adjuntando un documento para cada uno de los miembros del concejo, lo cual será resulto en una sesión municipal. Salvo modificaciones presupuestarias y emergencias justificadas mediante la ley.
