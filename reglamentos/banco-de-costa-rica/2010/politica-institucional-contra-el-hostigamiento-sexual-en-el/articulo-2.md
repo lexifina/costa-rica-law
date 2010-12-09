@@ -1,0 +1,3 @@
+POLÍTICA 2
+Compromiso y ámbito de aplicación
+El conglomerado BCR, se compromete a respetar, y divulgar; así como cumplir y hacer cumplir en el ámbito de su competencia- la legislación vigente en materia de prevención y sanción de las conductas de hostigamiento o acoso sexual en el mundo del trabajo y el estudio, en cualquiera de sus empresas y en protección de los derechos de sus servidores, del personal de empresas proveedoras que presten sus servicios en las instalaciones de cualquiera de las empresas del conglomerado BCR y de estudiantes que realicen pasantías o prácticas académicas en cualquier instalación de las empresas del conglomerado BCR.

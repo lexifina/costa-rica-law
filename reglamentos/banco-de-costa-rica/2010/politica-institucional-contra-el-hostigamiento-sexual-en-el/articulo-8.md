@@ -1,0 +1,3 @@
+POLÍTICA 8
+Persecución de conductas desplegadas por personas
+Sin relación laboral directa con el conglomerado BCR. Cuando la conducta típica sea desplegada por una persona sin relación laboral con alguna con un miembro del conglomerado BCR pero en perjuicio de los sujetos activos aquí identificados, la normativa interna determinará los procedimientos a seguir a fin de obtener el inmediato alejamiento del supuesto acosador u hostigador por parte del patrono -en el caso de trabajadoras o trabajadores de empresas proveedoras del conglomerado BCR- o del centro educativo -en el caso de estudiantes que realizan su pasantía o práctica académica en alguno de los miembros del conglomerado BCR-

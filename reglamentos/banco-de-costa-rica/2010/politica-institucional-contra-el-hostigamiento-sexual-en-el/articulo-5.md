@@ -1,0 +1,5 @@
+POLÍTICA 5
+Prevención de las conductas
+El conglomerado BCR establecerá las acciones y programas que correspondan con la finalidad de hacer una efectiva divulgación y promoción de las disposiciones legales contenidas en la legislación vigente sobre la materia, así como de los procedimientos internos adoptados para la prevención, persecución y sanción de las conductas típicas de acoso u hostigamiento sexual en el mundo del trabajo y el estudio.
+Como parte de las acciones aquí anunciadas el conglomerado BCR promoverá la prevención de los actos de acoso u hostigamiento sexual mediante la realización de cursos, seminarios, sesiones de trabajo, análisis del clima laboral y otras equivalentes, cuya participación será de carácter obligatorio para todos los servidores del conglomerado BCR.
+Para estos efectos podrá mantener programas de capacitación propias y por medio de instituciones u organizaciones públicas o privadas en procura de obtener los conocimientos necesarios para la adecuada aplicación y cumplimiento de la legislación vigente relativa a la materia.

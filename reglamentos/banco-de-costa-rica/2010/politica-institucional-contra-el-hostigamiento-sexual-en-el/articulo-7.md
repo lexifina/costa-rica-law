@@ -1,0 +1,3 @@
+POLÍTICA 7
+Colaboración con otras instancias competentes
+En la persecución de las conductas. La normativa interna que se dictará al efecto, identificará a las autoridades competentes del conglomerado BCR y el procedimiento a seguir para prestar la más amplia colaboración con las autoridades competentes de otras instancias, distintas a la administrativa, lo anterior de conformidad con la legislación vigente y con resguardo del principio de confidencialidad que rige en esta materia. Esta colaboración deberá ser solicitada a las autoridades competentes del conglomerado BCR, por la instancia externa no administrativa que conozca la causa.
