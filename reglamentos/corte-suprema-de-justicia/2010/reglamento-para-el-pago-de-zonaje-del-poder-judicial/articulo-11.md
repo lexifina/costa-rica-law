@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 11.—Al servidor que reciba indebidamente el pago de zonaje, se le deducirá el monto erogado por el Poder Judicial, conforme lo establecido en el artículo 173 del Código de Trabajo y en el “Reglamento General para el control y recuperación de acreditaciones que no corresponden”, Decreto Ejecutivo N° 34574-H del 14 de mayo de 2008. Asimismo, si hubiese tenido conocimiento que dicho beneficio no le correspondía, y no lo comunicó al Departamento de Gestión Humana, o bien, lo obtuvo en forma indebida, se le aplicará el régimen disciplinario previsto en la Ley Orgánica del Poder Judicial.

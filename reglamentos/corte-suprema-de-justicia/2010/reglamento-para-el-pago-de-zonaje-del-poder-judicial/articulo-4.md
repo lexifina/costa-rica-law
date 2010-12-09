@@ -1,0 +1,1 @@
+Artículo 4º—Corresponde al Departamento de Gestión Humana recibir, analizar, tramitar y aprobar la “Solicitud para Reconocimiento del Zonaje y Declaración Jurada”, así como asignar, modificar o limitar el monto correspondiente por este concepto.

@@ -1,0 +1,1 @@
+Artículo 10.—El zonaje no constituye una prestación invariable, es decir, no es un derecho adquirido por el servidor judicial, razón por la cual debe ajustarse a las disposiciones señaladas en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que el Poder Judicial abra oficinas o despachos en una zona no contemplada en el artículo 7, el Consejo Superior, previo estudio de las condiciones, podrá incluirla otorgándole el mismo porcentaje establecido a la zona más cercana. No obstante lo anterior, el Consejo Superior podrá revisar la lista cada 2 años, con la finalidad de actualizarla.

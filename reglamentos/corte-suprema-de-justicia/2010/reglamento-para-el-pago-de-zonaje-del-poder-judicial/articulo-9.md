@@ -1,0 +1,1 @@
+Artículo 9.º—El servidor judicial tiene la obligación de comunicar al Departamento de Gestión Humana, dentro del plazo de 15 días, cualquier cambio que se de en su situación particular y que tenga incidencia sobre este beneficio, para que éste proceda de conformidad, bajo el apercibimiento de lo dispuesto en el artículo 11.

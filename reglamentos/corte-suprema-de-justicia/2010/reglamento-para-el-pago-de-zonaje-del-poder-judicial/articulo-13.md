@@ -1,0 +1,1 @@
+Artículo 13.—Este Reglamento rige a partir de su publicación en el Boletín Judicial y deroga el “Reglamento de Zonaje del Poder Judicial”, Decreto Ejecutivo N° 14315-J del 15 de febrero de 1983 y sus reformas.
