@@ -1,9 +1,10 @@
-12.—Comités de apoyo. La Junta Administrativa debe establecer los Comités de Apoyo que se requieran para la ejecución de las operaciones del Régimen de Pensiones, la observancia de las normativas aplicables y el ejercicio de las normas de gobierno Corporativo.
+Décimo segundo: Comités de Apoyo.
+La Junta Administrativa debe establecer los Comités de Apoyo que se requieran para la ejecución de las operaciones del Régimen de Pensiones, la observancia de las normativas aplicables y el ejercicio de las normas de Gobierno Corporativo.
 1. Al menos dos miembros de la Junta Administrativa serán miembros de cada uno de los comités que se conformen; entre ellos se repartirá la presidencia y la secretaría del comité.
-2. Los directores miembros de cada comité en las sesiones de Junta Administrativa, no podrán votar aquellos temas que se trasladen de sus respectivos comités a las sesiones de la Junta Administrativa para su conocimiento y/o aprobación.
+2. Los directores miembros de cada comité en las sesiones de Junta Administrativa, no podrán votar aquellos temas que se trasladen de s respectivos comités a las sesiones de la Junta Administrativa para conocimiento y/o aprobación.
 3. El Director Ejecutivo del Régimen, podrá participar en las sesiones de los distintos comités, con voz pero sin voto.
-Idoneidad de miembros de Comités de Apoyo.
-Los miembros de Comités de apoyo deben contar con los requisitos indicados en el artículo Nº 3 incisos 4 y 6, así como cualquier otro requisito de acuerdo con la normativa especial aplicable y con los requisitos aprobados por la Junta Administrativa.
+Idoneidad de miembros de Comités y Unidades de Apoyo.
+Los miembros de Comités o Unidades de Apoyo deben contar con los requisitos indicados en el Código de Gobierno Corporativo y las obligaciones establecidas en el artículo Tercero: Ámbito de Aplicación y los artículos Nº 3, 4 y 6, así como con las disposiciones del Reglamento de Gobierno Corporativo y cualquier otro requisito de acuerdo con la normativa regulatoria aplicable y con los requisitos aprobados por la Junta Administrativa, y deberán rendir la declaración establecida.
 Si un miembro no cumple con los requisitos de idoneidad exigidos en la normativa vigente o en las políticas internas del Régimen de Pensiones, se debe proceder con su sustitución, según los lineamientos establecidos.
 Auditoría Interna
 Corresponderá a la Auditoría Interna del ICE la supervisión del Régimen. La Auditoría Interna desempeñará sus funciones tomando en cuenta lo siguiente:
@@ -17,3 +18,4 @@ Evaluar el cumplimiento del marco legal y normativo vigente aplicable a la entid
 Mantener a disposición del órgano supervisor correspondiente, los informes y papeles de trabajo preparados sobre todos los estudios realizados.
 Evaluar el cumplimiento de los procedimientos y políticas para la identificación de al menos, los riesgos de crédito, legal, liquidez, mercado, operativo y reputación.
 Evaluar la idoneidad, suficiencia y cumplimiento de los procedimientos y políticas de las principales operaciones en función de los riesgos indicados en el literal anterior, incluyendo las transacciones que por su naturaleza se presentan fuera de balance, así como presentar las recomendaciones de mejora, cuando corresponda.
+(Así reformado mediante sesión N° 225 del 9 de diciembre de 2010)
