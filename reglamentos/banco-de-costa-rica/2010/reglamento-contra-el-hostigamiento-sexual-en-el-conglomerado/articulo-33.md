@@ -1,0 +1,1 @@
+Artículo 33.—Incumplimiento de las disposiciones de este Reglamento. El incumplimiento de las disposiciones establecidas en este Reglamento podrá generar responsabilidad disciplinaria de acuerdo con la gravedad del incumplimiento.

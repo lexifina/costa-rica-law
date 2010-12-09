@@ -1,0 +1,1 @@
+Artículo 35.—En lo no previsto en este Reglamento, se aplicará en lo que resulte razonable lo previsto en el Reglamento de Procedimientos Administrativos del Banco de Costa Rica y la Ley General de la Administración Pública.

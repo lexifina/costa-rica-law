@@ -1,0 +1,1 @@
+Artículo 25.—Principios que rigen el procedimiento. El procedimiento por acoso u hostigamiento sexual se rige por los principios del debido proceso, derecho de defensa, proporcionalidad y libertad probatoria.

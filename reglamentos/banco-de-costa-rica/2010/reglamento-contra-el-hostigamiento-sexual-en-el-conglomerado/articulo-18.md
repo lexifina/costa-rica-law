@@ -1,0 +1,1 @@
+Artículo 18.—Remisión de la denuncia. Recibida la denuncia, el servidor de la División Capital Humano que realizó la recepción la remitirá mediante nota, en un plazo ordenatorio no mayor a los tres días hábiles, a la Unidad de Procedimientos Administrativos del Banco para que se conforme el expediente.
