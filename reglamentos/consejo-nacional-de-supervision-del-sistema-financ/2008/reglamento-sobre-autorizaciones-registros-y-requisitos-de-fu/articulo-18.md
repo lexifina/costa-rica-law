@@ -10,4 +10,7 @@ f) La transferencia total o parcial de cartera entre entidades de seguros. (Anex
 g) El cambio de nombre de una entidad supervisada. (Anexo 8).
 h) El cese voluntario de la actividad por parte de una entidad supervisada. (Anexo 9).
 i) Los cambios en los estatutos de las entidades de seguros. (Anexo 10).
+j) La prima o tarifa de seguro obligatorio. (Anexo 23).
+k) Desinscripción de seguro obligatorio (Anexo 24).
 Los actos de autorización referentes a la autorización de Oferta Pública de Valores en el caso de entidades de capital abierto se regirán por lo dispuesto en la Ley Reguladora del Mercado de Valores.
+(Así mediante sesión N° 894-2010 del 10 de diciembre de 2010)
