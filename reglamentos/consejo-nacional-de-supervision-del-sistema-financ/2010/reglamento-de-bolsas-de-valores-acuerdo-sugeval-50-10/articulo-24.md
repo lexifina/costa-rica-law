@@ -1,0 +1,2 @@
+Artículo 24. Mercados de valores no inscritos
+En estos mercados se pueden negociar o colocar todos los valores no inscritos. Los valores negociados en estos mercados no están sujetos a la supervisión por parte de la SUGEVAL y la liquidación de las operaciones que se den en estos mercados son responsabilidad exclusiva de las partes. Las negociaciones en estos mercados deben desplegarse en las ventanas exclusivas de estos mercados.

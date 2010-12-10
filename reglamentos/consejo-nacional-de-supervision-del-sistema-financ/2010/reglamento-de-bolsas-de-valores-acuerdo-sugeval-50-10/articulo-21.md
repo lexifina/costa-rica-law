@@ -1,0 +1,2 @@
+Artículo 21. Mercado primario de valores inscritos
+En este mercado se pueden colocar todos los valores inscritos para el mercado primario. Las bolsas de valores pueden poner a disposición de los agentes colocadores los mecanismos de colocación por ventanilla y subasta. Estos mecanismos de colocación deben cumplir con los requisitos para la colocación de valores establecidos en el reglamento respectivo emitido por el CONASSIF, incluyendo los plazos establecidos y los requisitos de envío de información.

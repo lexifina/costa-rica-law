@@ -1,0 +1,5 @@
+Sección 2: Requisitos de Funcionamiento
+Artículo 11. Capital social y su incremento
+El capital social suscrito y pagado de la sociedad de la bolsa debe ser igual o mayor a 645.000.000 (seiscientos cuarenta y cinco millones) de colones. Este monto debe ser actualizado anualmente con base en el Índice de Precios al Consumidor mediante resolución fundada del Superintendente.
+En el evento de que se incremente el capital social mediante la suscripción y pago del aumento por parte de un nuevo puesto de bolsa, no aplica el derecho de suscripción preferente para los restantes socios.
+En los demás casos, los socios tienen el derecho de suscripción preferente en forma proporcional a su participación en el capital social de la sociedad de la bolsa. Las acciones no suscritas por los socios de conformidad con esta preferencia pueden ser suscritas en rondas sucesivas por los puestos de bolsa interesados en proporción a las acciones que posean, siempre que no excedan la participación máxima autorizada por socio. En caso de quedar acciones remanentes, debe procederse según lo establecido en el Código de Comercio.

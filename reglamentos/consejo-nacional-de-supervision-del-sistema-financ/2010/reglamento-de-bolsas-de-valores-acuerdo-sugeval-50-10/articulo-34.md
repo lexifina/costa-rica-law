@@ -1,0 +1,6 @@
+Artículo 34. Revocación
+La revocación de una autorización otorgada se rige por las disposiciones de la Ley General de Administración Pública y por la LRMV. Entre otras, son causales de revocación de una autorización otorgada las siguientes situaciones:
+a) los plazos establecidos en el Artículo 32, párrafo primero, han sido incumplidos;
+b) en el plazo de un mes el solicitante no ha presentado una nueva solicitud de modificación o ésta ha sido denegada en el contexto del Artículo 32, párrafo final, en cuyo caso la SUGEVAL puede ordenar, mediante resolución razonada, que la parte implementada de la modificación autorizada sea revertida por completo o
+c) se incumple al menos un requisito debido a la aparición de nuevas circunstancias de hecho o debido a una valoración distinta de las mismas circunstancias de hecho que dieron origen a la autorización otorgada.
+El acto de revocación debe ser dictado por el CONASSIF y debe incluir las medidas necesarias que aseguren que la revocación no afecte la protección del público inversionista, la correcta y transparente formación de precios, la libre competencia entre las bolsas ni la estabilidad del Sistema Financiero Nacional. Contra el acto de revocación puede interponerse el recurso de reposición según lo dispuesto en la Ley General de la Administración Pública.

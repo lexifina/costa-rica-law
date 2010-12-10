@@ -1,0 +1,9 @@
+Artículo 23. Operaciones fuera de ruedas de negociación
+La bolsa puede autorizar únicamente las siguientes operaciones para ser ejecutadas fuera de las ruedas de negociación del mercado secundario de valores inscritos:
+a) las operaciones de distribución entre el suscriptor y los inversionistas;
+b) las operaciones que se realicen como consecuencia de una oferta pública de adquisición, la recompra directa a socios estratégicos, la recompra de acciones por medio de subasta y la venta o permuta de acciones cuando por unanimidad los accionistas así lo acuerden;
+c) las operaciones que se realicen como consecuencia de una recompra de deuda por parte del emisor mediante subasta o una redención anticipada de deuda;
+d) las operaciones que se relacionan directamente con procesos de fusión o escisión de sociedades o que tengan origen en acuerdos de reorganización del grupo empresarial y
+e) las operaciones que se realicen con valores de emisores sujetos a una administración por intervención judicial o administrativa.
+Además la SUGEVAL puede autorizar a la bolsa a ejecutar otras operaciones fuera de las ruedas de negociación. Para hacer uso de esta potestad, la SUGEVAL debe justificar debidamente la autorización e informar al CONASSIF antes de comunicar la autorización a la bolsa.
+Las operaciones que se realicen fuera de las ruedas de negociación pueden ser únicamente de compraventa de contado. Estas operaciones son responsabilidad de las partes, no forman precio oficial y deben ser realizadas por un custodio autorizado. Los montos mínimos de estas operaciones se establecen en los Lineamientos Generales.

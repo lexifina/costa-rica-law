@@ -1,0 +1,5 @@
+CAPÍTULO IV
+SUPERVISIÓN, COMUNICACIÓN Y DIVULGACIÓN
+Artículo 36. Supervisión compartida de los puestos y agentes de bolsa
+La bolsa debe supervisar el cumplimiento del Código de Conducta aplicable a los puestos y agentes de bolsa, aplicando los procedimientos y guías de supervisión emitidos por ésta según el inciso h) del Artículo 19. La SUGEVAL puede supervisar a su vez a la bolsa en la efectiva aplicación de los procedimientos y guías de supervisión del Código de Conducta aplicable a los puestos y agentes de bolsa. Para este fin, la bolsa debe permitir el acceso a su sistema de monitoreo de negociaciones por parte de la SUGEVAL en tiempo real y a la documentación de seguimiento de los respectivos eventos inusuales cuando ésta sea requerida por la SUGEVAL.
+La SUGEVAL también puede supervisar directamente a los puestos y agentes de bolsa en el cumplimiento del Código de Conducta aplicable a los puestos y agentes de bolsa. En todo caso, la bolsa debe colaborar con las funciones supervisoras de la SUGEVAL cuando ésta lo solicite.

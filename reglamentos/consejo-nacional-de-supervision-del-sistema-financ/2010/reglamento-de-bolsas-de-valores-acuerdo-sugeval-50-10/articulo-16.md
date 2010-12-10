@@ -1,0 +1,4 @@
+Artículo 16. Comités
+La Junta Directiva de la sociedad de la bolsa de valores debe constituir al menos los siguientes comités:
+a) un Comité Disciplinario encargado de aplicar el régimen disciplinario a los puestos y agentes de bolsa. Este comité debe estar integrado por un director que cumpla con las condiciones del inciso b) del artículo anterior, el gerente de la sociedad de la bolsa o la persona designada por éste y un abogado independiente de la administración activa de la bolsa; y
+b) un Comité de Supervisión encargado de apoyar y dar seguimiento a las actividades de la Unidad de Supervisión. Este comité debe estar integrado por el fiscal y dos directores que cumplan con los requisitos de independencia indicados en el inciso b) del artículo anterior y debe sesionar por lo menos una vez al mes.
