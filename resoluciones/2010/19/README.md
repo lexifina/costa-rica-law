@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-29 | la propia norma |
+| 2 | 2010-12-10 | Resolución 23 (2010-12-10) |
