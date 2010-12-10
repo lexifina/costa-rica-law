@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Autorízase a la Municipalidad de Alajuela para que done el inmueble descrito en el artículo anterior a favor de la Caja Costarricense de Seguro Social (CCSS), cédula de persona jurídica número cuatro-cero cero cero-cero cuatro dos uno cuatro siete-cero cero (N.º 4-000-042147-00). Dicho inmueble será destinado exclusivamente para albergar las instalaciones del Equipo Básico de Asistencia Integral de Salud (Ebais) de la CCSS, destinadas a la atención de la población del barrio San José de Alajuela.
