@@ -26,3 +26,4 @@ Reglamento del Estatuto de Servicio Civil
 | 12 | 2009-04-29 | Decreto Ejecutivo 35268 (2009-04-29) |
 | 13 | 2010-03-02 | Decreto Ejecutivo 35865 (2010-03-02) |
 | 14 | 2010-10-27 | Decreto Ejecutivo 36293 (2010-10-27) |
+| 15 | 2010-12-10 | Decreto Ejecutivo 36320 (2010-12-10) |
