@@ -1,0 +1,3 @@
+ARTÍCULO 8.-
+Refórmase el artículo 14 de la Ley N.º 7387, Tarifa de impuestos municipales del cantón de Mora, de 22 de marzo de 1994. El texto dirá:
+“Artículo 14.- Para gravar toda actividad lucrativa recién establecida, que no pueda sujetarse al procedimiento impositivo del artículo 4, la Municipalidad podrá hacer una estimación tomando como parámetro otras actividades similares, considerando aspectos como ubicación, tamaño y condiciones del local comercial, sucursales, franquicias, tamaño del mercado potencial, entre los más importantes, que serán desarrollados reglamentariamente, con el fin de mantener la equidad tributaria respetando la capacidad económica del contribuyente.”
