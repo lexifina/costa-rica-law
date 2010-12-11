@@ -5,7 +5,8 @@ b) Que no haya presentado la declaración municipal jurada.
 c) Que, aunque haya presentado la declaración municipal jurada, no aporte la copia de la declaración presentada a la Dirección General de la Tributación Directa.
 ch) Que, aunque haya presentado la declaración municipal jurada aporte una copia alterada de su declaración ante la Dirección General de la Tributación Directa.
 d) Que hayan sido recalificados por la Dirección General de la Tributación Directa los ingresos brutos declarados. En este caso, servirá de título ejecutivo para efectuar el cobro, la certificación que extienda el Contador Municipal, en la cual indique la diferencia adeudada por el patentado como producto de la recalificación.
-e) Que se trate de una actividad recién establecida, sujeta al procedimiento previsto en el artículo 15 de esta Ley.
+e) Que se trate de una actividad recién establecida, sujeta al procedimiento previsto en el artículo 14 de esta Ley.
+(Así reformado el inciso anterior por el artículo 5 de la Ley N° 8870 del 24 de setiembre de 2010)
 f) Otros casos contemplados en esta Ley.
 El Ejecutivo Municipal, deberá notificarle al contribuyente la calificación de oficio o la recalificación efectuada por la Municipalidad; además, le indicará las observaciones o cargos formulados y, en su caso, las infracciones que se estime ha cometido.
 Dentro de los cinco días hábiles siguientes, contados a partir de la notificación, el contribuyente o responsable, por escrito, puede impugnar, ante el Concejo, esas observaciones o cargos. En tal caso, debe señalar los hechos y las normas legales que fundamentan su reclamo y alegar la defensa que considere pertinente, proporcionando u ofreciendo las pruebas respectivas.
