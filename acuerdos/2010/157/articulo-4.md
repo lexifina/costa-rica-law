@@ -1,0 +1,1 @@
+4º—Como tarea inicial y prioritaria, la Comisión Consultiva realizará un análisis de los procedimientos actuales con el fin de agilizarlos, revisará las solicitudes de transferencia pendientes y emitirá recomendaciones a la Autoridad Central para futuras gestiones.

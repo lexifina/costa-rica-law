@@ -1,0 +1,1 @@
+3º—Para su trámite, toda gestión relacionada con solicitudes de transferencia de los privados y las privadas de libertad, deberá contar con el visto bueno de la Comisión Consultiva, valorándose los aspectos técnicos, administrativos y de seguridad.
