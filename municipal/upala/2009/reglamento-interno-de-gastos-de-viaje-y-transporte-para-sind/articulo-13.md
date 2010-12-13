@@ -1,0 +1,1 @@
+Artículo 13º—Tarifas. Las sumas a cobrar por los diferentes conceptos, serán las establecidas en el Reglamento de gastos de viajes y trasportes para funcionarios públicos, emitido por la Contraloría General de la República.

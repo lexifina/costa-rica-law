@@ -1,0 +1,1 @@
+Artículo 12º—No presentación de cuentas. No se tramitará viático alguno a ningún regidor o síndico que tengan más de una liquidación pendiente, y se considerará nula o extemporánea la liquidación presentada después de los ocho días de realizada la gira.

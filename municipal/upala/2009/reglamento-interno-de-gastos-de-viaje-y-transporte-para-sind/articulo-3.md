@@ -1,0 +1,1 @@
+Artículo 3º—Concepto. Por viático debe entenderse aquella suma destinada a la atención de gastos de hospedaje, alimentación, efectivamente realizados, que la Municipalidad de Upala reconoce regidores y síndicos propietarios y suplentes en relación con el artículo 30 del Código Municipal.
