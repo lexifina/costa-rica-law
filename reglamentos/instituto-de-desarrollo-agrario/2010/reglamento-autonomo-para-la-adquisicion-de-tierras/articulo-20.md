@@ -1,1 +1,2 @@
-bb. Artículo 20— Con la recomendación final de la Comisión, en caso de ser ésta positiva, se remitirá el expediente completo a la Gerencia General para que de acuerdo a sus facultades convoque a los propietarios a la negociación respectiva, la cual se someterá a la Presidencia Ejecutiva para conocimiento y resolución de la Junta Directiva.
+Artículo 20—Con la recomendación final de la Comisión, en caso de ser ésta positiva, se remitirá el expediente completo a la Gerencia General para que de acuerdo a sus facultades convoque a los propietarios a la negociación respectiva, la cual se someterá a la Presidencia Ejecutiva para conocimiento y resolución de la Junta Directiva.
+(Así reformado mediante sesión ordinaria N° 041-2010 del 13 de diciembre de 2010)

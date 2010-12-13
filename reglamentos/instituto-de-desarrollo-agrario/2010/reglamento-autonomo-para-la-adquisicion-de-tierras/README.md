@@ -14,3 +14,4 @@ Reglamento Autónomo para la Adquisición de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-04 | la propia norma |
+| 2 | 2010-12-13 | Reglamento 41 (2010-12-13) |
