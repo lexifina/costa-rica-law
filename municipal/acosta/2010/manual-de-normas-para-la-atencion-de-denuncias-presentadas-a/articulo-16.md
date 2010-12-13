@@ -1,0 +1,1 @@
+Artículo 16.—Procedimiento interno. El Auditor establecerá el procedimiento interno que aplicará para el personal de la Auditoría Interna, en la atención de las denuncias presentadas, conforme a la concordancia con este manual y con la demás normativa aplicable.

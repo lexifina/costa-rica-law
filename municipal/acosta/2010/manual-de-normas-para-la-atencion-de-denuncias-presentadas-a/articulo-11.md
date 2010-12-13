@@ -1,0 +1,1 @@
+Artículo 11.—Fundamentación del acto de desestimación y/o archivo de denuncias. La desestimación y/o archivo de las denuncias se realizará mediante un acto debidamente motivado donde se acredite los argumentos valorados para tomar esa decisión. Esa decisión deberá quedar documentada en el expediente de la denuncia.

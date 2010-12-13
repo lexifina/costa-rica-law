@@ -1,0 +1,1 @@
+Artículo 5º—Formas de presentación de las denuncias. Las denuncias podrán presentarse en forma escrita o por cualquier otro medio y excepcionalmente de manera verbal, cuando las circunstancias así lo exijan. En este último caso, el denunciante deberá comparecer personalmente ante el Auditor Interno y expresar de modo oral su denuncia.

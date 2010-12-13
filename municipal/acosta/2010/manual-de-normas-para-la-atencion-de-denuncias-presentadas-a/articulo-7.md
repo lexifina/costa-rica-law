@@ -1,0 +1,1 @@
+Artículo 7º—Información complementaria. La persona denunciante deberá también brindar información complementaría, respecto a la estimación del perjuicio económico producido a los fondos públicos en caso de conocerte, los probables testigos, según corresponda y el lugar o medio para otarios, así como la aportación o sugerencia de otras pruebas.

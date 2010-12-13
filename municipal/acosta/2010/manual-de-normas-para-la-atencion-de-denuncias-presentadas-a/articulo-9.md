@@ -1,0 +1,2 @@
+Artículo 9º—Denuncias anónimas. No se dará trámite a las denuncias que sean presentadas en forma anónima (aquellas presentadas por una persona sin identificarse o mediante el uso de seudónimo o nombre falso).
+En casos excepcionales, a criterio del Auditor, se podrá realizar el estudio correspondiente, cuando con la denuncia anónima, se aporten elementos de convicción suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia sin más trámite.
