@@ -1,0 +1,2 @@
+ARTICULO IX
+Cada Parte otorgará todas las facilidades necesarias para la entrada, permanencia y salida de los participantes, que en forma oficial intervengan en los proyectos de cooperación. Estos participantes se someterán a las disposiciones nacionales vigentes en el país receptor y no podrán dedicarse a ninguna actividad ajena a sus funciones, ni recibir ninguna remuneración fuera de las estipuladas, sin la previa autorización de ambas Partes.

@@ -1,0 +1,8 @@
+ARTICULO V
+Con el fin de contar con un adecuado mecanismo de seguimiento de las acciones de cooperación previstas en el presente Convenio y de lograr las mejores condiciones para su ejecución, las Partes establecerán una Comisión Mixta Panameño-Costarricense, integrada por representantes de ambos Gobiernos, así como de aquellas instituciones cuyas actividades incidan directamente en el ámbito de la cooperación técnica y científica de ambos países.
+Esta Comisión Mixta será presidida por el Ministerio de Relaciones Exteriores, por parte de Panamá y por el Ministerio de Relaciones Exteriores y Culto, por parte de Costa Rica, la cual tendrá las siguientes funciones:
+a) evaluar y delimitar áreas prioritarias en que sería factible la realización de proyectos específicos de cooperación técnica y científica;
+b) estudiar y recomendar los programas y proyectos a ejecutar;
+c) revisar, analizar y aprobar los Programas Bienales de cooperación técnica y científica; y
+d) supervisar la adecuada observancia y cumplimiento del presente Convenio y formular a las Partes las recomendaciones que consideren pertinentes.
+El órgano ejecutor responsable de coordinar las acciones que se desprendan del presente Convenio, es el Ministerio de Economía y Finanzas, por parte de Panamá y el Ministerio de Relaciones Exteriores y Culto, por parte de Costa Rica.
