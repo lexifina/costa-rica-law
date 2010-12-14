@@ -36,3 +36,4 @@ Por el momento, debido al tamaño del texto de la versión actualizada de la Cua
 (Modificado por el artículo 1° del decreto ejecutivo N° 35701 del 17 de diciembre de 2009)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36314 del 4 de noviembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36315 del 4 de noviembre de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36375 del 14 de diciembre de 2010)
