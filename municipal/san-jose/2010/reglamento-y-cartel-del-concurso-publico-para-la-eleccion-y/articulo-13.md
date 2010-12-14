@@ -1,0 +1,2 @@
+Artículo 13.—Comunicación de resultados. Una vez recibido refrendo del nombramiento de la Contraloría, y realizada la escogencia correspondiente por parte del Concejo Municipal el funcionario encargado que se cita en el Artículo 2°, de este
+Reglamento deberá indicar dentro de las 24 horas siguientes al acuerdo municipal, por escrito a los participantes, el puntaje obtenido, la condición en la que queda ubicado y el respectivo agradecimiento por la participación del oferente.

@@ -1,0 +1,1 @@
+Artículo 2º—El Presidente del Concejo Municipal nombrará una Comisión Especial encargada del Procedimiento de selección y nombramiento del Auditor Interno de la Municipalidad de San José, que será conformada por un Regidor propietario de cada fracción de los partidos políticos y el jefe del Departamento de Recurso Humanos el cual tendrá derecho a voz pero sin voto.
