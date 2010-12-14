@@ -1,0 +1,1 @@
+Artículo 12.—Por la celebración de actividades con “Karaoke” se deberá pagar el impuesto sobre Espectáculos Públicos cuando aquellos se enmarquen en la definición que el hecho generador de la obligación hace el Artículo I del Reglamento para la aplicación del Impuesto sobre Espectáculos Públicos número 27762-H-C.

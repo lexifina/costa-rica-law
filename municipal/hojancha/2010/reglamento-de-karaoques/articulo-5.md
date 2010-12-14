@@ -1,0 +1,1 @@
+Artículo 5º—Las solicitudes de permiso para karaoke en locales comerciales, deberán presentarse con no menos de diez días de anticipación al acto por medio del Departamento de Patentes, quien tramitará ante el Concejo Municipal la respectiva aprobación o rechazo, de acuerdo a lo que en esta materia disponen los artículos 80 y 81 del Código Municipal.
