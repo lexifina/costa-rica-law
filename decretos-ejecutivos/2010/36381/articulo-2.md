@@ -1,0 +1,2 @@
+Artículo 2°—El documento que contiene el Plan está disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica (http://www.mideplan.go.cr).
+(Nota de Sinalevi: Por el momento, debido al tamaño del documento titulado “Plan de Desarrollo 2011-2014 denominado “María Teresa Obregón Zamora”, no es posible visualizarlo en nuestra página y el mismo esta en proceso para poder visualizarse)
