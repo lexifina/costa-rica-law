@@ -1,0 +1,1 @@
+9º—Presentación de planos constructivos de conformidad con el Reglamento a la Ley de Construcciones y normativa conexa en materia de telecomunicaciones debidamente firmados por el profesional responsable. El proyecto deberá estar debidamente tramitado ante el Colegio de Ingenieros y Arquitectos (CFIA), Ministerio de Salud, Cuerpo Nacional de Bomberos.

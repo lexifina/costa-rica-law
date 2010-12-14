@@ -1,0 +1,1 @@
+7º—Cuando se pretenda establecer las estructuras en inmuebles propiedad de un tercero que no sea el solicitante, debe presentarse el instrumento que acredite su uso, goce y disfrute respectivo que revele la voluntad del propietario para la obtención de la licencia.

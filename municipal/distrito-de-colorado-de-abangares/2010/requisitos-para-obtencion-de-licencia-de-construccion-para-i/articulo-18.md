@@ -1,0 +1,1 @@
+18.—Nota del ICE en la cual se especifique la disponibilidad de brindar el servicio de energía eléctrica y se definan las distancias mínimas de separación entre el tendido eléctrico, red de distribución eléctrica y la obra.

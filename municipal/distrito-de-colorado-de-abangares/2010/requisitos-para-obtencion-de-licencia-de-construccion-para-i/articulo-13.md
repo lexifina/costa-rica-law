@@ -1,0 +1,1 @@
+13.—Constancia del cumplimiento de las responsabilidades obrero patronales actualizada, con la Caja Costarricense de Seguro Social (CCSS) por parte del propietario del inmueble y de la empresa concesionaria.
