@@ -1,0 +1,1 @@
+Artículo 3º—Se establece el presente Reglamento para las erogaciones, por concepto de gastos de transporte en modalidad taxi serán cubiertos a los funcionarios de la Municipalidad de La Cruz, Regidores y Síndicos, de La Municipalidad de La Cruz, que en el desempeño de sus funciones requieran trasladarse utilizando el servicio de transporte modalidad taxi.
