@@ -1,0 +1,3 @@
+Sección IV
+De la Unidad Financiera-Administrativa
+Artículo 12.—Unidad Financiera-Administrativa. Esta Unidad es la responsable de los desembolsos y la gestión financiera de la totalidad del Proyecto a partir del Plan de Acción Institucional y el presupuesto anual, incluyendo la participación especializada en actividades que van desde la verificación de la disponibilidad presupuestaria en el procedimiento de adquisición de bienes y servicios, hasta el pago final del producto o servicio adquirido. Estará integrada por profesionales competentes en materia financiera, administrativa y contable; así como personal de servicios generales.

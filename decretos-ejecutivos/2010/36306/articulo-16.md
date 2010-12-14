@@ -1,0 +1,1 @@
+Artículo 16.—Por tratarse de un puesto de confianza, el Director será nombrado directamente por el Ministro de Educación Pública. El resto del personal de la Unidad Coordinadora será contratado mediante concurso de antecedentes, bajo la responsabilidad del Director.

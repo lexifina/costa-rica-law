@@ -1,0 +1,1 @@
+Artículo 2°—Se concibe la Unidad Coordinadora del Proyecto (UCP), como un órgano de coordinación y asistencia técnica encargado de promover y de velar por el cumplimiento de los objetivos del Proyecto Equidad y Eficiencia de la Educación de manera que se organizará técnica, administrativa y financieramente para cumplir con esa finalidad.

@@ -1,0 +1,1 @@
+Artículo 19.—Corresponde a los viceministros dar las orientaciones de política educativa a las unidades ejecutoras que integran el Comité y garantizar la coordinación de éstas, con el fin de que las actividades que ejecutan en el contexto del Proyecto respondan a las prioridades de la política educativa.
