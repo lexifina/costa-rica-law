@@ -1,0 +1,1 @@
+Artículo 6º—La Administración velará por la seguridad de los vehículos, sus accesorios y los objetos que contengan. De cometerse delitos contra la propiedad, procurará aprehender a los responsables para ponerlos a las órdenes de los tribunales de justicia.

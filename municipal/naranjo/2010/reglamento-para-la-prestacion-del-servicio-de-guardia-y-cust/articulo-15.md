@@ -1,0 +1,1 @@
+Artículo 15.—La tarifa de uso se cobrará por horas y por media hora. De los cero minutos a los treinta minutos se cobrará el 50 % del costo de la hora. De los 31 minutos a los 60 minutos se cobrará el costo por hora. Para las horas siguientes se aplicará la misma proporción.

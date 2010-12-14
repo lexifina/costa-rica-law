@@ -1,0 +1,2 @@
+VI.—De las tarifas.
+Artículo 12.—La Dirección Administrativa y de Planificación gestionará por lo menos una vez al año ante la Dirección Financiero Tributario la actualización de las tarifas por concepto de guardia y custodia del vehículos en el parqueo público municipal. La tarifa será determinada por la municipalidad, de acuerdo con los costos reales que implique prestar el servicio, observando siempre los principios de equidad y razonabilidad para ambas partes.

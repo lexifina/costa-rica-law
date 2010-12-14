@@ -1,0 +1,1 @@
+Artículo 13.—Después de la hora de cierre ningún vehículo podrá ser retirado del parqueo municipal hasta la apertura del parqueo al día siguiente y al costo total de la tarifa, se le aplicará adicionalmente una multa del cincuenta del ciento (50%).

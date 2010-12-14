@@ -1,0 +1,1 @@
+Artículo 2º—Se denomina Parqueo Público Municipal para los efectos del presente reglamento, los espacios construidos o destinados por la Municipalidad de Naranjo para la prestación del servicio de guardia y custodia de vehículos.

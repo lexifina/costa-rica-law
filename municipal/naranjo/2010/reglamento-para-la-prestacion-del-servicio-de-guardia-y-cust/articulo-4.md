@@ -1,0 +1,1 @@
+Artículo 4º—La Dirección de Administración y Planificación aplicará y establecerá todas las acciones pertinentes y necesarias para la correcta prestación del servicio y es la encargada de la correcta administración del presente reglamento.

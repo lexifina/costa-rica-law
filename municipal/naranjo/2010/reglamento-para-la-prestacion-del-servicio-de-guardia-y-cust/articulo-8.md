@@ -1,0 +1,1 @@
+Artículo 8º—La municipalidad velara por la seguridad del vehículo y sus accesorios, pero en ningún caso estará en la obligación de asumir responsabilidad por el dinero en efectivo u otros valores al portador, incluyendo títulos valores, dejados dentro del vehículo.
