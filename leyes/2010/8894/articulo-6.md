@@ -1,0 +1,4 @@
+ARTÍCULO 6.- Director general
+El Sinem contará con un director general, quien será la máxima autoridad administrativa del órgano; ejecutará los acuerdos de la Junta Directiva; lo representará, judicial y extrajudicialmente, con poder generalísimo sin límite de suma y será el superior inmediato del personal del órgano, además de ejercer las funciones que le asigne el Reglamento de esta Ley.
+El director general será funcionario de confianza, de reconocida idoneidad para el cargo, y será nombrado por el jerarca del Ministerio de Cultura, Juventud y Deportes. Deberá asistir a las sesiones con voz, pero sin voto.
+El director general deberá contar con los conocimientos, grados académicos universitarios en educación musical, experiencia suficiente en los campos de la ejecución musical y enseñanza instrumental, cinco años de experiencia en programas o proyectos de educación y formación musical, así como experiencia gerencial que lo capaciten para el puesto.
