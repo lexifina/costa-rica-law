@@ -1,0 +1,11 @@
+Nº 36307-JP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones número 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Administradora del Acueducto y Alcantarillado Sanitario de Pavones de Turrialba, cédula de persona jurídica número 3-002-232101, se inscribió en el Registro de Asociaciones del Registro Público desde el día nueve de noviembre de mil novecientos noventa y ocho, al tomo 453, asiento 11.372, consecutivo cero.
+III.—Que los fines que persigue la Asociación, según el artículo tercero de sus estatutos, son: A) Constituir o ampliar un acueducto en Pavones de Turrialba. B) Administrar, operar y conservar en buenas condiciones el acueducto de acuerdo con las disposiciones y Reglamentos que al respecto emita Acueductos y Alcantarillados. C) Obtener la participación efectiva de la comunidad, en la construcción y el mantenimiento del acueducto. D) Colaboración en los programas y campañas de índole educativa que se emprendan. E) Ayudar a explicar y divulgar en la comunidad las disposiciones y reglamentos de Acueductos y Alcantarillados. F) Cooperar con los planes, proyectos y obras que emprendan Acueductos y Alcantarillados en la comunidad. G) Participar la vigilancia y protección de las fuentes de abastecimiento del acueducto, evitar las contaminaciones de las mismas y ayudar a la protección de las cuencas hidrográficas de la región…”
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+Decretan:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado la Asociación Administradora del Acueducto y Alcantarillado Sanitario de Pavones de Turrialba, cédula de persona jurídica número 3-002-232101.
