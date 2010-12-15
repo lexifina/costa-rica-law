@@ -14,3 +14,4 @@ Reglamento de venta de bienes adjudicados o transferidos al Banco Popular y de D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-15 | la propia norma |
+| 2 | 2010-12-15 | Reglamento 4812 (2010-12-15) |
