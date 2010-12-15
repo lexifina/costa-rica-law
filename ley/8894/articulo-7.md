@@ -1,0 +1,3 @@
+ARTÍCULO 7.- Director académico
+El Sinem contará con un director académico que, administrativa y disciplinariamente, responderá ante el director general y será el responsable de desarrollar, supervisar y evaluar el proyecto educativo del Sinem. Será funcionario de confianza, de reconocida idoneidad para el cargo, y será nombrado por el jerarca del Ministerio de Cultura, Juventud y Deportes.
+El director académico deberá contar con los conocimientos, grados académicos universitarios en educación musical, experiencia de tres años en docencia y pedagogía musical, experiencia probada en la ejecución instrumental, así como en supervisión de personal que lo capaciten para las funciones de dirección académica en el ámbito nacional.
