@@ -1,0 +1,1 @@
+Artículo 3º—Los volúmenes de importación con arancel preferencial del producto en cuestión, podrán ser importados a partir de la publicación de este Decreto Ejecutivo y hasta, a más tardar, el 30 de junio del 2011.
