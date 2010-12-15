@@ -1,3 +1,1 @@
-CAPÍTULO VI
-De las modificaciones y vigencias de la política
-Artículo 31.—De las modificaciones a la política interna. Las modificaciones serán dispuestas por la Corte Plena, previa consulta al Tribunal de la Inspección Judicial y al Consejo de Personal, y deberán ser objeto de publicidad, a través de los medios pertinentes, para lograr un conocimiento general.
+Artículo 31.—Sanciones para quienes denuncien sin fundamento. Incurrirá en falta de naturaleza laboral, que dará mérito para aplicación del régimen disciplinario, de conformidad con el artículo 194 de la Ley Orgánica del Poder Judicial; sin perjuicio de otras acciones que personalmente intente el propio denunciado, el servidor judicial que haya denunciado o que haya ratificado una denuncia interpuesta por un compañero o por un superior, cuya falsedad se compruebe en forma evidente y manifiesta.

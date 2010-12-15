@@ -1,1 +1,1 @@
-Artículo 26.—Comunicación de lo resuelto. Una vez firme lo resuelto, se comunicará a las respectivas oficinas del Poder Judicial, así como a la Defensoría de los Habitantes, para lo que corresponda
+Artículo 26.—Recursos contra la resolución de fondo. La resolución de fondo, dictada por el Órgano Instructor, tendrá los recursos de reconsideración y apelación ante las instancias correspondientes. Podrán interponerse por cualquiera de las partes dentro de los tres días siguientes a la notificación.

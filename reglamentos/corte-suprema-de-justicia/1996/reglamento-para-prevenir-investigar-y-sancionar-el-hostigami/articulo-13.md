@@ -1,9 +1,2 @@
-Artículo 13.—Recepción de la denuncia. La denuncia será recibida por el Órgano Instructor, en forma privada y se consignará por escrito. Necesariamente contendrá:
-1) Nombre y calidades completas de la presunta víctima y del denunciado o denunciada.
-2) Identificación precisa de la relación laboral e interpersonal entre la presunta víctima y el denunciado o denunciada.
-3) Descripción objetiva de todas aquellas situaciones que se pudieran constituir manifestaciones de acoso sexual, con mención aproximada de fecha y testigos.
-4) Determinar si se trató de una conducta con connotación sexual indeseada; esto es, no querida o no aceptada por la presunta víctima.
-5) Enumeración de los medios de prueba que sirvan de apoyo a la denuncia.
-6) Señalamiento de lugar para atender notificaciones.
-7) Lugar y fecha de la denuncia.
-8) Firma de denunciante.
+Artículo 13.—Deber de denunciar. Todo servidor y servidora judicial, persona usuaria de los servicios y personal de contratación externa al servicio del Poder Judicial, que tenga conocimiento de una situación de hostigamiento sexual, en cualquiera de sus manifestaciones, se encuentra en la obligación de denunciar ante el Órgano correspondiente al hostigador, aún en contra de la voluntad de la presunta víctima (artículo 176 de la Ley Orgánica del Poder Judicial).
+En estos casos, la investigación únicamente se iniciará en el momento en que la presunta víctima ratifique la denuncia; caso contrario, se desestimará la misma; salvo que, el acoso sexual, resulte público y notorio.
