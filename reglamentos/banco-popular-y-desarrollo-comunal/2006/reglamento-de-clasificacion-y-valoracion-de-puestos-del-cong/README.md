@@ -15,3 +15,4 @@ Reglamento de Clasificación y Valoración de Puestos del Conglomerado Banco Pop
 | --- | --- | --- |
 | 1 | 2006-03-27 | la propia norma |
 | 2 | 2009-12-14 | Reglamento 4722 (2009-12-14) |
+| 3 | 2010-12-15 | Reglamento 4812 (2010-12-15) |
