@@ -1,0 +1,2 @@
+Artículo 20. Cobertura de gastos
+Para la atención de la asistencia mutua o cooperación técnica solicitada, la Administración requerida asumirá los gastos en que incurra para obtener y suministrar la información y documentación respectivas, excepto cuando se trate de gastos que no puedan cubrirse con el presupuesto asignado para el funcionamiento de la Administración, éstos correrán a cargo de la Administración requirente.

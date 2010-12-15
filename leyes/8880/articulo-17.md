@@ -1,0 +1,3 @@
+Artículo 17. Rectificación y actualización de información
+La Administración que suministre datos o información será responsable de su exactitud. Cuando se determine que se han transmitido datos o información inexactos, la Administración que los suministró procederá a su rectificación e informará de forma inmediata a la Administración requirente.
+Cuando la Administración requerida detecte que los datos o información suministrados han sido modificados, la Administración requerida informará inmediatamente de ello a la Administración requirente para su actualización, dejando la constancia respectiva.

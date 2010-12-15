@@ -1,0 +1,2 @@
+Artículo 14. Solicitud de investigación
+A solicitud de la Administración requirente, la Administración requerida podrá efectuar acciones de control, investigación o de obtención de información sobre operaciones aduaneras o tributarias en su territorio, que puedan ser relevantes o esenciales para la prestación de la asistencia mutua. Cuando la Administración requerida reciba la solicitud, ésta deberá comunicar a la Administración requirente, la capacidad o disponibilidad para atender la solicitud, en un plazo máximo de cinco (5) días hábiles.
