@@ -1,0 +1,1 @@
+Artículo 30.—Lo dispuesto en el presente capítulo se efectuará de conformidad con lo establecido al respecto en los manuales, las políticas y los procedimientos definidos de acuerdo con el Artículo 9 de este Reglamento.

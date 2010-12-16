@@ -1,0 +1,1 @@
+Artículo 25.—El Auditor Interno definirá el contenido y la forma de los informes, oficios u otros medios de comunicación sobre los resultados de los servicios preventivos conforme a la naturaleza de los estudios y los criterios pertinentes.
