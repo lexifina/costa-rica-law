@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Instituto Costarricense del Deporte y la Re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-31 | la propia norma |
+| 2 | 2010-12-16 | Reglamento 736 (2010-12-16) |

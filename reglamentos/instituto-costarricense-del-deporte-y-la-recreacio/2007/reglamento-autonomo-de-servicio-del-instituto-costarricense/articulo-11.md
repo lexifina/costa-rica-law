@@ -1,2 +1,6 @@
-Artículo 11º. —Al ocurrir una vacante en un Departamento o Dirección, se podrá llevar a cabo el procedimiento de selección, salvo que el Director (a), conjuntamente con el coordinador y bajo su responsabilidad, decidan no llenarla por considerarlo conveniente y compatible con el buen servicio público.
-Cuando quede un puesto vacante primero se hará un concurso interno, si existe inopia para este puesto se hará un concurso externo.
+Artículo 11º. —Al surgir una vacante el Director en conjunto con el Director del Área tomará la decisión de llenar o no la plaza. De considerar que el mismo debe ser ocupada lo hará ejecutando el siguiente proceder:
+a) Ascenso interino: mediante promoción a un puesto de clase o nivel superior, en forma temporal, implicando un número de puesto diferente.
+b) Ascenso propiedad: mediante promoción a un puesto de clase o nivel superior, en forma permanente, implicando un número de puesto diferente.
+c) Ante inopia en el punto anterior, se convocará a concurso interno entre todos los empleados de la institución.
+d) De mantenerse la inopia en la instancia anterior, se convocará a concurso externo, según condiciones establecidas para este fin.
+(Así reformado mediante sesión ordinaria N° 736-2010 del 16 de diciembre de 2010)
