@@ -1,0 +1,1 @@
+Artículo 32.—La comunicación de los acuerdos la realizará la Secretaría de Junta Directiva, directamente a las dependencias que corresponda ejecutar la resolución tomada por la Junta Directiva, con copia a la Presidencia, la Gerencia General y la Subgerencia General, la cual llevará un registro especial de cada acuerdo y verificará de tiempo en tiempo su fiel cumplimiento.

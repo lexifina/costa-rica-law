@@ -1,0 +1,2 @@
+Artículo 15.—El orden del día o agenda, deberá estar elaborada y complementada con los documentos y anexos de apoyo, salvo excepciones muy justificadas, con no menos de veinticuatro horas hábiles antes del día y la hora de la sesión.
+De cumplirse el plazo establecido sin que la Oficina de Secretaría de Junta Directiva disponga de la documentación respectiva, ésta queda facultada para que remita lo que hasta ese momento le haya sido suministrado.

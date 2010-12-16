@@ -1,0 +1,1 @@
+Artículo 59.—Cada acta de las sesiones que celebre la Junta Directiva debe contar con su respectivo expediente, el cual estará formado por los documentos originales o copias de los asuntos que se conocen en cada sesión. El expediente de cada Acta, tendrá el carácter de Libro Auxiliar del Libro de Actas de la Junta Directiva.

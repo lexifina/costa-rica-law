@@ -1,0 +1,1 @@
+Artículo 33.—Todas las dependencias del INVU deberán dar atención inmediata a los acuerdos que adopte la Junta Directiva, en concordancia con el artículo 10 inciso e) del Reglamento Autónomo de Organización y Servicios del INVU.

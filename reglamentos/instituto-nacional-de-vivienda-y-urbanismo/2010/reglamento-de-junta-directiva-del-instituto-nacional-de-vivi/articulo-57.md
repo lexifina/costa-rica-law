@@ -1,0 +1,1 @@
+Artículo 57.—Corresponde a la Oficina de Secretaría de Junta Directiva, grabar las sesiones del órgano colegiado, transcribir y redactar las actas de cada una de esas sesiones, así como realizar las comunicaciones de los acuerdos tomados por la Junta Directiva en atención a la firmeza de los mismos.

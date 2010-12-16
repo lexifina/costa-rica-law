@@ -1,0 +1,2 @@
+Artículo 64.—En la página número uno de cada Libro de Actas se anotará una razón de apertura, otorgada por la Auditoría Interna, en la cual se indicará la fecha, el número del Libro respectivo, la cantidad de folios de que consta, su estado físico y cualquier otro detalle o Información de que estime pertinente.
+En la última página del Libro de Actas, se anotará una razón de cierre también otorgad por la Auditoría Interna del INVU.

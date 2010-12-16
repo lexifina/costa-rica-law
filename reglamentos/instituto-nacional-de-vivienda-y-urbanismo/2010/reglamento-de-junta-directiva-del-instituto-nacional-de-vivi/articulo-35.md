@@ -1,0 +1,1 @@
+Artículo 35.—El acta será lacónica en cuanto a las deliberaciones, no obstante se consignará de manera exacta lo expresado por los señores directivos cuando así lo soliciten. Cada asunto será narrado en forma clara y objetiva y a su final se incorporará la resolución que adoptó la Junta Directiva en cada caso.

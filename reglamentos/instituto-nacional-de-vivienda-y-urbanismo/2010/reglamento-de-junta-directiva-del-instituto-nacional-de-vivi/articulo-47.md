@@ -1,0 +1,1 @@
+Artículo 47.—El procedimiento para conocer y resolver sobre las abstenciones y recusaciones será el estipulado en los artículos 230, siguientes y concordantes de la Ley General de la Administración Pública.

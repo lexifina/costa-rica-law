@@ -1,0 +1,1 @@
+Artículo 37.—En la sesión que se conozca el acta se harán, si proceden, las enmiendas, adiciones y correcciones que la Junta Directiva autorice y cumplido este trámite, quedará convertida automáticamente en el acta oficial aprobada. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión.

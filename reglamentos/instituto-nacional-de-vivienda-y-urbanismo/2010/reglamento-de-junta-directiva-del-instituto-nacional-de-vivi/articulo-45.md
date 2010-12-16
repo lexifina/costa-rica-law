@@ -1,0 +1,1 @@
+Artículo 45.—Cuando hubiere motivo de abstención también podrá recusar al Directivo la parte perjudicada con la respectiva causal. La recusación se planteará por escrito expresando la causa en que se funde e indicando o acompañando la prueba conducente.

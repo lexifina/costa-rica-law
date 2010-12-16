@@ -1,0 +1,1 @@
+Artículo 52.—En forma remunerada y por mes calendario, la Junta Directiva efectuará como máximo el número de sesiones ordinarias y extraordinarias que autorice la normativa vigente. Sin remuneración, podrá sesionar las veces que la misma Junta disponga.

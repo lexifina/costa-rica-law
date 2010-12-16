@@ -1,0 +1,1 @@
+Artículo 62.—Es deber de la Oficina de Secretaría de Junta Directiva, mantener actualizada la base de datos del Sistema de Control de Acuerdos tomados por la Junta Directiva, lo que permitirá localizar tales acuerdos en forma ágil, expedita y eficiente. Así mismo mantendrá un archivo con la correspondencia remitida a la Junta Directiva y la emanada de ella.

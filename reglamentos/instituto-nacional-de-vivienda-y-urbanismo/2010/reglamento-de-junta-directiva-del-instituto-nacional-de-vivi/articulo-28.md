@@ -1,0 +1,1 @@
+Artículo 28.—Durante la sesión se conocerán todos los asuntos contenidos en el orden del día y una vez discutido un asunto el Presidente deberá ponerlo a votación, la cual se efectuará de manera afirmativa o negativa por cada uno de los Directivos presentes, de modo debidamente razonado.

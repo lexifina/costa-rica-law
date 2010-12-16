@@ -1,0 +1,1 @@
+Artículo 14.—Todo asunto que sea sometido a conocimiento de la Junta Directiva, deberá tener documentación de respaldo, además deberá incluir necesariamente un resumen ejecutivo, una síntesis; así como los considerandos, conclusiones y recomendaciones.

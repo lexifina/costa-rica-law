@@ -1,0 +1,1 @@
+Artículo 2º—La integración y las atribuciones de la Junta Directiva encuentran sustento y desarrollo en los artículos del 4º de la Ley de Presidencias Ejecutivas y 29 de la Ley Orgánica del Instituto y la normativa conexa.

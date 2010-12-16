@@ -1,0 +1,2 @@
+Artículo 41.—Cabrá recurso de revisión, contra el acto que acordó la firmeza de un acuerdo, antes de la aprobación del Acta y solo en el caso de que ese recurso prospere, podría entrarse a conocer de nuevo el acto. Cualquiera de los miembros de la Junta Directiva, podrá interponer el presente recurso por razones de legalidad y oportunidad.
+Las simples observaciones de forma relativas a la redacción de los acuerdos no serán consideradas para efectos del articulado anterior como recurso de revisión.

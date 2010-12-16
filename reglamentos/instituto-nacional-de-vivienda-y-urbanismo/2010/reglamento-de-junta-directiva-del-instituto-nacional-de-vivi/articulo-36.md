@@ -1,0 +1,2 @@
+Artículo 36.—Las actas deberán de ser aprobadas en la sesión ordinaria siguiente. A tal efecto el borrador del acta se entregará a los miembros de la Junta Directiva, Gerente General, Subgerente General y Auditor, para que lo revisen, por lo menos veinticuatro horas antes de la celebración de la sesión en que será aprobada.
+Si por razones de fuerza mayor, el acta no puede conocerse en la sesión en que debe ser aprobada, el Jefe de la Oficina de Secretaría de Junta Directiva lo informará así a la Junta Directiva, la cual tomará nota de esa circunstancia.

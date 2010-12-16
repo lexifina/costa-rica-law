@@ -1,0 +1,1 @@
+Artículo 24.—La convocatoria a la sesión extraordinaria se acompañará del orden del día, deberá hacerse por escrito y con al menos doce horas de anticipación, indicando en forma expresa el lugar, el día y la hora de la reunión. En las sesiones extraordinarias se conocerán únicamente los asuntos comprometidos en la convocatoria, los cuales serán de naturaleza especial o urgente.

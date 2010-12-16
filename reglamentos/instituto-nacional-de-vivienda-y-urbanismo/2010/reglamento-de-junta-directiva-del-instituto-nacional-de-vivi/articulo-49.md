@@ -1,0 +1,1 @@
+Artículo 49.—Se encuentran también cubiertos por las causales de impedimentos, excusas y recusaciones, los funcionarios de la administración que intervengan auxiliando o asesorando a los miembros de la Junta Directiva.

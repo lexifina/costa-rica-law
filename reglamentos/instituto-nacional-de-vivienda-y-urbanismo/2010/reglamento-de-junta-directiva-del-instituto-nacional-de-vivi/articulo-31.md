@@ -1,0 +1,1 @@
+Artículo 31.—La transcripción de los acuerdos tomados por la Junta Directiva corresponde hacerla a la Oficina de Secretaría de Junta Directiva, con el cuidado y discreción que tal labor exige. El comunicado de acuerdo será firmado por el Presidente de la Junta Directiva.

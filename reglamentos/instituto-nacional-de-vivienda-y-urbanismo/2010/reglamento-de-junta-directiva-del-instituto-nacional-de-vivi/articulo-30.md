@@ -1,0 +1,1 @@
+Artículo 30.—No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes las 2/3 partes del total de los miembros del órgano, y sea declarada la urgencia del asunto por el voto favorable de todos ellos.
