@@ -14,3 +14,4 @@ Reglamento para Obras de Mantenimiento en el Cantón de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-16 | la propia norma |
+| 2 | 2010-12-16 | Reglamento municipal 32 (2010-12-09) |
