@@ -1,2 +1,1 @@
-III.—Los programas de postgrado actualmente en ejecución, que no cumplan con el requisito de acreditación de su carrera base ante el SINAES tendrán un plazo de 3 años, a partir de la aprobación de este Reglamento, para conseguir dicha acreditación."
-San José, 18 de agosto del 2004
+III.—(Derogado por el Transitorio 1° del " Reglamento que regula la relación del Residente y su compromiso como Especialista en Ciencias de la Salud con la Caja Costarricense de Seguro Social por medio del sistema de estudios de Posgrados de la Universidad de Costa Rica", aprobado mediante sesión N° 8485 del 16 de diciembre de 2010)

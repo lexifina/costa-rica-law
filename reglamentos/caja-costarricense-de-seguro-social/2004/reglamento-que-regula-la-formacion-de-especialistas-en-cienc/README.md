@@ -14,3 +14,4 @@ Reglamento que Regula la Formación de Especialistas en Ciencias Médicas de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-01 | la propia norma |
+| 2 | 2010-12-16 | Reglamento 8485 (2010-12-16) |

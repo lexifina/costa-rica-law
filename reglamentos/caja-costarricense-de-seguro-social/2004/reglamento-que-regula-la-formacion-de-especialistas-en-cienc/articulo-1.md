@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante Transitorio 1° del "Reglamento que regula la relación del Residente y su compromiso como Especialista en Ciencias de la Salud con la Caja Costarricense de Seguro Social por medio del sistema de estudios de Posgrados de la Universidad de Costa Rica", aprobado mediante sesión N° 8485 del 16 de diciembre de 2010, se indica derogar esta norma, manteniéndose únicamente vigente el capítulo III referente a los "Deberes y Derechos del Residente", que abarca los artículos del 10 al 17, en cuanto no se le oponga)
 II.—La Junta Directiva en el artículo 17, acuerdo segundo de la sesión número 7877, celebrada el 5 de agosto del año 2004, aprobó el siguiente "Reglamento que regula la formación de especialistas en ciencias médicas de la Caja Costarricense de Seguro Social en las unidades docentes autorizadas":
 "REGLAMENTO QUE REGULA LA FORMACIÓN DE ESPECIALISTAS
 EN CIENCIAS MÉDICAS DE LA CAJA COSTARRICENSE
@@ -12,16 +13,4 @@ TÍTULO I
 Generalidades
 CAPÍTULO I
 Marco conceptual y ámbito de aplicación
-Artículo 1º—Definiciones. Para los efectos del presente Reglamento se definirán los siguientes términos:
-Beneficio de estudio: Asignación económica o de cualquier otra naturaleza que puede conferir la CCSS a un profesional en ciencias médicas para que realice estudios de postgrado, según lo establecido en el Reglamento de Beneficios para Estudio.
-Beneficiario: Profesional que realiza un programa de postgrado en el área de ciencias médicas y recibe alguna de las asignaciones económicas o de cualquier otra naturaleza adicionales al salario por parte de la CCSS.
-Centro Docente: Establecimiento universitario que desarrolla procesos de formación de especialistas en ciencias médicas en unidades diferentes a las unidades asistenciales con actividad docente de la CCSS.
-Unidad Docente: Unidad asistencial de la CCSS autorizada para el desarrollo de procesos de formación de profesionales especialistas, el cual debe de cumplir con los requisitos fijados por la Institución en la Reglamentación vigente.
-Práctica Clínica Médica y Quirúrgica Supervisada: Período en el cual el profesional realiza práctica clínica médica bajo la supervisión de al menos un especialista, la cual será asistencial y de aprendizaje en servicio.
-Contrato de beneficio de estudio: Acuerdo de partes suscrito entre la Caja Costarricense de Seguro Social y un profesional admitido en el programa de estudio de postgrado para la concesión, de uno o varios de los beneficios establecidos en el Reglamento de Beneficios para Estudio.
-Contrato de Aprendizaje bajo Residencia: Acuerdo de partes de carácter laboral y de aprendizaje en servicio, suscrito entre la Caja Costarricense de Seguro Social y el profesional admitido en un programa de estudios de postgrado para efectos de regular los derechos, deberes y obligaciones de ambas partes durante la realización de estudios de especialización.
-Sistema de Residencia: Proceso de formación como especialista de un profesional con título de grado, que implica la atención de labores académicas, de aprendizaje en servicio y asistenciales, en el transcurso de las diferentes jornadas de trabajo autorizadas en las instalaciones de la Caja Costarricense de Seguro Social.
-Residente: Profesional en ciencias médicas que participa en el sistema de residencia de la Caja Costarricense de Seguro Social.
-Carrera base: Programa de estudios que imparte una universidad para que un individuo obtenga un título de grado. De la carrera base pueden originarse diferentes especialidades relacionadas a ésta.
-Profesional: Persona con título de grado en alguna de las áreas de las Ciencias Médicas.
-Tutor: Profesional especialista en alguna de las áreas de las ciencias médicas, designado por una entidad de enseñanza para la supervisión y control de las labores de aprendizaje en servicio y avalado por la Caja Costarricense de Seguro Social para las labores asistenciales cumplidas por el profesional o el beneficiario en los programas de formación de especialidades.
+Artículo 1º—(Derogado por el Transitorio 1° del "Reglamento que regula la relación del Residente y su compromiso como Especialista en Ciencias de la Salud con la Caja Costarricense de Seguro Social por medio del sistema de estudios de Posgrados de la Universidad de Costa Rica", aprobado mediante sesión N° 8485 del 16 de diciembre de 2010)
