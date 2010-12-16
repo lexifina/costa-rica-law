@@ -1,0 +1,1 @@
+Artículo 3.—Del Ámbito de aplicación: Las disposiciones de este Reglamento son de acatamiento obligatorio para los residentes que desarrollen un programa de posgrado en ciencias de la salud, en alguna de las unidades o centro de salud de la Caja, así como para el especialista durante el cumplimiento de su compromiso laboral con la Institución.

@@ -1,0 +1,2 @@
+Transitorios:
+1º—Se deroga el Reglamento que Regula la Formación de Especialistas en Ciencias Médicas de la Caja Costarricense de Seguro Social en las Unidades Docentes Autorizadas, aprobado por la Junta Directiva en el artículo 17º de la sesión número 7877, celebrada el 5 de agosto del año 2004 y se conserva los derechos y deberes de los Residentes, en cuanto no se opongan a lo estipulado en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo: Regular los procesos de enseñanza aprendizaje en servicio del residente, en su relación con la Caja y el compromiso para laborar como especialista en ciencias de la salud, tanto en su etapa de Residente, así como Especialista una vez finalizada la primera.

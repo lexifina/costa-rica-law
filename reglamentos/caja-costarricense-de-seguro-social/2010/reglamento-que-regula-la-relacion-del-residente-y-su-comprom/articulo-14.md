@@ -1,0 +1,2 @@
+Artículo 14.—De las Especialidades subsecuentes: La Caja se reservará el derecho de otorgar plazas para segundas o terceras especialidades, para residentes o especialistas, con base en la idoneidad de requisitos y las necesidades de especialistas que la institución defina, según estudios técnicos realizados y debidamente aprobados por la Gerencia Médica.
+La Caja dará a conocer las necesidades cuando exista el requerimiento para ingresar a la especialidad subsecuente, el cual deberá estar debidamente sustentado.

@@ -1,0 +1,17 @@
+Artículo 4.—De las Responsabilidades y competencias de los órganos relacionados: Para los efectos de la aplicación del presente reglamento, los siguientes Entes tendrán plena competencia en el desarrollo y administración de la relación de los residentes y especialistas con la Caja.
+4.1 CAJA:
+a) La Caja facilitará, mediante convenio respectivo con la Universidad de Costa Rica, sus instalaciones o los demás recursos, necesarios para el normal desarrollo de la actividad de aprendizaje en servicio.
+b)La Junta Directiva asignará anualmente el número códigos de plazas para el programa de especialidades en ciencias de la salud, con base en la recomendación de la Gerencia Médica. Estos códigos tendrán una vigencia limitada al período de formación en la respectiva especialidad.
+c)El CENDEISSS acreditará a las Unidades Docentes de la Caja en donde se realiza la práctica clínica, que constituye un instrumento prioritario del proceso de enseñanza-aprendizaje en servicio. Lo anterior, en congruencia con lo que establece el Reglamento para la Actividad Clínica Docente.
+d) La Caja adoptará las acciones que resulten necesarias, ya sean de carácter administrativo, disciplinario o de otra naturaleza, en razón de la relación laboral del Residente, previo debido proceso. Lo anterior, en resguardo de los intereses institucionales y del fiel cumplimiento, tanto del convenio respectivo con el Ente educativo, así como en su relación con el Residente y el Especialista.
+e) La Caja determinará técnicamente las especialidades y el número de plazas para residencias, con base en las necesidades y prioridades de especialistas.
+f) La Caja nombrará por el período definido en una plaza G1 o su equivalente según profesión, al profesional que opte por una especialidad.
+4.2 ENTIDAD DOCENTE:
+a) La Universidad de Costa Rica suscribirá un Convenio con la Caja, que le permita la formación de especialistas en ciencias de la salud.
+b) El Consejo Nacional de Rectores aprobará los programas académicos.
+c) La Universidad de Costa Rica garantizará que las especialidades que se desarrollan bajo el Convenio suscrito con la Caja, cuenten con la carrera base acreditada por el Sistema Nacional de Acreditación de Educación Superior (SINAES).
+d) La Universidad de Costa Rica garantizará la calidad académica de los programas de posgrado.
+e) La Universidad de Costa Rica garantizará la apertura de aquellas especialidades necesarias para la Caja Costarricense de Seguro Social.
+f) La Universidad de Costa Rica garantizará la admisión de residentes, con base en los estudios técnicos que identifiquen las necesidades de especialistas que la Caja realice, tomando en consideración los distintos criterios que al efecto existen,(perfil epidemiológico, listas de espera, crecimiento poblacional, cantidad de profesionales, entre otros).
+g) La responsabilidad de la vigilancia de la calidad de la formación de los especialistas recae en el ente docente.
+h) El CENDEISSS tiene representación en la comisión de Posgrados de especialidades médicas, así como coordina la comisión interinstitucional Caja-UCR, para la formación de especialistas.

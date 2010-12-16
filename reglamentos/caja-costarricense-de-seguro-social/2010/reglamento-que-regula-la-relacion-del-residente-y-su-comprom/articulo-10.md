@@ -1,0 +1,5 @@
+Artículo 10.—De los Derechos Laborales: Los residentes con Contrato de Retribución Social, tendrán los mismos derechos y deberes respecto a los otros profesionales en salud que laboran en la Caja. entre ellos
+A) De las Vacaciones Laborales:
+El profesional tendrá derecho a disfrutar las vacaciones laborales anualmente, para lo cual el centro médico donde labora, tomará las medidas pertinentes, a fin de que no acumule vacaciones para el próximo período, ya que al concluir la residencia, no debe tener vacaciones pendientes. No se podrá disfrutar vacaciones acumuladas de períodos anteriores, una vez iniciada la residencia.
+B) De las Licencias por Maternidad e Incapacidades:
+El profesional que por razones de enfermedad o maternidad deba separarse temporalmente de la Residencia, se regirá por lo estipulado en el Reglamento universitario correspondiente, en lo concerniente a lo académico, reconociendo el Seguro de Salud el subsidio por incapacidad o licencia, según corresponda. Igualmente se procederá cuando las incapacidades sean por Riesgo de Trabajo, conforme a la normativa vigente.

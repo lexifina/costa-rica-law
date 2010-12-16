@@ -1,0 +1,2 @@
+Artículo 9º—De la Remuneración: El pago de salario a los médicos residentes con Contrato de Retribución Social suscrito con la Caja, se regirá por lo dispuesto en el artículo 9 de la Ley 6836. En el caso de los Odontólogos y Psicólogos generales, el pago del salario regirá con base en lo dispuesto por la Caja y relacionado con el perfil funcional.
+Debe entenderse que el período que transcurra entre la terminación de la residencia y el inicio de labores en el centro respectivo de trabajo asignado por la Comisión, no contará con salario.

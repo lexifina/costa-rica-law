@@ -1,0 +1,2 @@
+Artículo 13.—De los Requisitos para laborar como especialista: El profesional especialista deberá solicitar al Colegio Profesional respectivo, el permiso para ejercer, según su nuevo grado académico en la Caja, mientras tramita la respectiva inscripción.
+El residente deberá iniciar en los quince días posteriores a la finalización de la formación en la especialidad, los trámites para la incorporación en el colegio respectivo, como especialista.

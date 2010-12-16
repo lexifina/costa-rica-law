@@ -1,0 +1,2 @@
+Artículo 12.—De los Derechos y deberes académicos: El residente tiene derecho a: la calidad académica, al cumplimiento del programa académico actualizado, al cumplimiento de las actividades de aprendizaje en servicio y asistenciales, bajo la responsabilidad de los tutores.
+El Residente tiene el deber de cumplir con los requisitos académicos, incluyendo el trabajo de graduación, dentro del plazo de la residencia. La Caja velará porque se cumpla esta obligación por parte de la Entidad Educativa.
