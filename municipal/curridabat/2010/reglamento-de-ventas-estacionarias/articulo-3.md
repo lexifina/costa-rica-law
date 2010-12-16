@@ -1,0 +1,1 @@
+Artículo 3º—La licencia deberá ser solicitada mediante el formulario establecido al efecto y la cual podrá ser retirado en la Plataforma de Servicios de esta Municipalidad, así mismo deberá acompañarse la documentación necesaria para el respectivo estudio socioeconómico del solicitante.

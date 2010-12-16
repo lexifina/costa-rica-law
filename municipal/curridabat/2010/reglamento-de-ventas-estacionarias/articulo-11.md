@@ -1,0 +1,1 @@
+Artículo 11.—Quedan terminantemente prohibidas las ventas en ventanas de comercios establecidos cuyos dependientes, productos y/o publicidad ocupen la vía pública para ejercer la actividad comercial.

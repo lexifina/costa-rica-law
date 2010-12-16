@@ -1,0 +1,1 @@
+Artículo 31.—Forman parte integrante del presente Reglamento: la Ley 7124, Ley de Impuesto de Patente Municipalidad de Curridabat, publicada en el Diario Oficial La Gaceta Nº 24 del día 02 de febrero del año 1989, el Reglamento para Licencias Municipales de la Municipalidad de Curridabat, publicado en La Gaceta Nº 190 del día 03 de octubre del 2001.
