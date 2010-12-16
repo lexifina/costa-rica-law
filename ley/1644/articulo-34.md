@@ -8,8 +8,11 @@ En la dirección inmediata del banco sometido a su gobierno, cada Junta Directiv
 6) Aprobarlos balances y cuentas de ganancias y pérdidas y el destino de las utilidades, de acuerdo con la ley, así como aprobar cualquier publicación que haga el Banco.
 7) Nombrar comisiones de carácter temporal o permanentes para el desempeño de labores especiales, designar a los empleados que estarán facultados para autorizar determinadas operaciones, y regular los límites y condiciones a que deberán sujetarse en esas funciones. Las decisiones que tomen las comisiones y los funcionarios autorizados serán de su exclusiva responsabilidad.
 Esta responsabilidad será igual a la establecida para los miembros de la junta directiva.
-( Así reformado por Ley No. 7107 de 4 de noviembre de 1988, artículo 4º).
+( Así reformado por Ley No. 7107 de 4 de noviembre de 1988, artículo 4º)
 8) Designar los funcionarios y empleados del Banco que firmarán comprobantes, recibos, cheques, letras, correspondencia, contratos y demás, así como fijar los límites y condiciones dentro de los cuales actuarán.
 9) Regular las operaciones de crédito y establecer las condiciones generales y límites de las diferentes operaciones del Banco, dentro de las disposiciones legales aplicables.
 10) Acordar y revocar, con aprobación del Banco Central, el establecimiento de sucursales; designar corresponsales dentro y fuera del país y aceptar la corresponsalía de los bancos que la ley le permite al establecimiento.
-11) Colaborar con las demás juntas directivas de las instituciones integrantes del Sistema Bancario Nacional, en la ejecución de la política económica y financiera del país y en el desarrollo del Sistema; y 12) Ejercer las demás funciones, facultades y deberes que le correspondan, de acuerdo con las leyes y reglamentos pertinentes y con los principios de la técnica.
+11) Colaborar con las demás juntas directivas de las instituciones integrantes del Sistema Bancario Nacional, en la ejecución de la política económica y financiera del país y en el desarrollo del Sistema; y
+12) Ejercer las demás funciones, facultades y deberes que le correspondan, de acuerdo con las leyes y reglamentos pertinentes y con los principios de la técnica.
+13) Publicar, con propósitos informativos, en el diario oficial La Gaceta y en sistemas electrónicos, los acuerdos de la junta directiva que aprueben la emisión o contratación de los préstamos subordinados o instrumentos financieros subordinados que adquiera la entidad.
+(Así adicionado el inciso anterior por el artículo 3° de la ley N° 8917 del 16 de diciembre de 2010 "Reforma y Adiciona las Leyes Orgánica del Sistema Bancario Nacional, N° 1644 y Ley Orgánica del Banco Central de Costa Rica Ley, N° 7558")
