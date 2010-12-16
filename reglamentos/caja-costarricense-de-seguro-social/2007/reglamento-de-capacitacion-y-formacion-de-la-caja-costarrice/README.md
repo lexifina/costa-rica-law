@@ -14,3 +14,4 @@ Reglamento de Capacitación y Formación de la Caja Costarricense de Seguro Soci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-05 | la propia norma |
+| 2 | 2010-12-16 | Reglamento 8485 (2010-12-16) |
