@@ -1,5 +1,6 @@
 CAPÍTULO 11
 Profesionales responsables de Estudios Hidrogeológicos
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 4 del 6 de enero del 2011 se dispuso lo siguiente: “… No se lea el Capítulo 11. Sobre “Los profesionales responsables de estudios hidrogeológicos”)
 De acuerdo con la Ley Orgánica del Colegio de geólogos de Costa Rica, artículo 8, punto d) corresponde a los profesionales en geología debidamente incorporados al Colegio de geólogos de Costa Rica, todas las actividades mencionadas anteriormente en el presente reglamento.
 Bibliografía:
 (1) Auge, M.; (2004): Hidrogeología Ambiental. Universidad de Buenos Aires, Argentina. 13-15 pág.

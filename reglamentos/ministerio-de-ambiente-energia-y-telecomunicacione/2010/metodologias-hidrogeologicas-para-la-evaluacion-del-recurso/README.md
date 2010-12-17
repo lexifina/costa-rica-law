@@ -14,3 +14,4 @@ Metodologías Hidrogeológicas para la evaluación del Recurso Hídrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-15 | la propia norma |
+| 2 | 2010-12-17 | Reglamento 0 (2010-12-17) |
