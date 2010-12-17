@@ -14,3 +14,4 @@ Declara estado de emergencia nacional la situación provocada por condiciones hi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-30 | la propia norma |
+| 2 | 2010-12-17 | Decreto Ejecutivo 36423 (2010-12-17) |
