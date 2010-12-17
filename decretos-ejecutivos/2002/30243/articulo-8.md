@@ -1,1 +1,0 @@
-Artículo 8º—Fusión de sujetos fiscalizados. En el caso de entidades que se hayan fusionado, el cálculo del ingreso bruto anual incluirá a las entidades en forma separada, inclusive hasta el trimestre en que se haga oficial la fusión.

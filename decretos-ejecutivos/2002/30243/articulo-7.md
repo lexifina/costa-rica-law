@@ -1,1 +1,0 @@
-Artículo 7º—Cese de funciones de un sujeto fiscalizado durante el periodo en cobro. En el caso de desinscripción, voluntaria o forzosa, el emisor o sujeto fiscalizado estará obligado a pagar el trimestre completo correspondiente al período en que se comunique el acuerdo de autorización de la desinscripción.

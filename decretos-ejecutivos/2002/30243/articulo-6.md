@@ -1,1 +1,0 @@
-Artículo 6º—Reglas para el cálculo de los ingresos brutos anuales de las entidades fiscalizadas. Los ingresos brutos para cada una de las entidades fiscalizadas se calcularán conforme lo establezca cada una de las Superintendencias en su Plan de Cuentas.

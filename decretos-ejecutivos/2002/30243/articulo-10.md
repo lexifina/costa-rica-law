@@ -1,3 +1,0 @@
-Artículo 10.—Intereses moratorios por pago tardío. Los sujetos supervisados que no efectuaren el pago dentro del plazo establecido deberán pagar intereses moratorios equivalentes a la tasa básica pasiva del Banco Central de Costa Rica. Para los trimestres finalizados en marzo, junio y setiembre, se considerará la tasa básica pasiva vigente al primer día de mayo, agosto y noviembre respectivamente, y, para el cierre a diciembre, la tasa vigente al primero de marzo del año siguiente.
-El cobro de los intereses moratorios por pagos efectuados en forma tardía se incluirá en el cobro del siguiente trimestre.
-La base de cálculo de los intereses moratorios será el año de 360 días.
