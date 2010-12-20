@@ -1,0 +1,6 @@
+ARTÍCULO 8.- Procedencia en el manejo de los mecanismos de vigilancia
+La instalación de mecanismos de vigilancia del acceso a barrios, caseríos y residenciales solo se permitirá si existe una caseta de seguridad, según los parámetros establecidos en esta Ley, y la contratación del servicio de vigilancia las veinticuatro horas del día, por medio del cual un vigilante, debidamente acreditado según la normativa vigente, manipule los mecanismos señalados. En caso de que el servicio no se otorgue de manera continua, las especificaciones contractuales y técnicas de los mecanismos indicados deberán incluir el hecho de que en ciertos horarios se mantendrán fuera de funcionamiento.
+Bajo ningún concepto se permitirá la existencia de estos mecanismos sin la debida colateralidad del servicio de seguridad y en caso de violentarse esta condición, la municipalidad revocará el permiso respectivo.
+La instalación de los mecanismos de regulación del acceso señalados en la presente Ley únicamente procederá:
+a) En urbanizaciones de circuito cerrado, o sea, las que no conectan a más localidades o urbanizaciones.
+b) En fraccionamientos cerrados, o sea, construidos frente a calles públicas que no cuenten con más de un mismo ingreso y egreso, denominadas también “calles sin salida”.

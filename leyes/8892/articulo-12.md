@@ -1,0 +1,3 @@
+ARTÍCULO 12.- Consecuencias de resolución firme
+Una vez que exista resolución firme que declare la suspensión del uso de la caseta o del mecanismo de vigilancia del acceso, siempre y cuando puedan corregirse las circunstancias que dieron origen a la suspensión, el concejo municipal concederá a la organización vecinal treinta días naturales para ejecutar las correcciones pertinentes.
+Si la organización vecinal no cumple la corrección señalada en el plazo establecido, o bien, se concluye que existe imposibilidad material para la corrección, el concejo municipal ordenará el desmantelamiento inmediato de dichos dispositivos.
