@@ -14,3 +14,4 @@ Reglamento para Prevenir, Investigar y Sancionar el Hostigamiento o Acoso Sexual
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-29 | la propia norma |
+| 2 | 2010-12-20 | Decreto Ejecutivo 36470 (2010-12-20) |

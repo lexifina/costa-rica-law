@@ -1,1 +1,2 @@
-Artículo 2º—Ámbito de Aplicación. El presente Reglamento regirá para todos (as) los (as) servidores (as) tanto regulares -en propiedad- como interinos de la Procuraduría General de la República.
+Artículo 2º—Ámbito de Aplicación. El presente Reglamento regirá para todos (as) los (as) servidores (as) tanto regulares -en propiedad- como interinos de la Procuraduría General de la República. Se aplicará en relaciones de jerarquía o autoridad; relaciones entre personas del mismo nivel jerárquico, entre personas de un nivel jerárquico inferior a uno superior, y relaciones entre personas servidoras y usuarias en el ámbito de trabajo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36470 del 20 de diciembre de 2010)

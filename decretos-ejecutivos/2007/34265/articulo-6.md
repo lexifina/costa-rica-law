@@ -1,4 +1,7 @@
 Artículo 6º—Formas de divulgación y prevención. Con el objeto de prevenir, desalentar y evitar conductas de acoso u hostigamiento sexual, el Núcleo de Recursos Humanos deberá:
-1) Colocar en lugares visibles de la institución, un ejemplar de la Ley Nº 7476 del 3 de febrero de 1995 y de este Reglamento.
-2) Desarrollar actividades, tales como charlas, talleres, seminarios, conferencias y otras actividades grupales, tendientes a capacitar y sensibilizar al personal de la Procuraduría General en esta problemática.
-3) Cualquier otra que se estime necesaria para el cumplimiento de los fines de la Ley N° 7476.
+1) Colocar en lugares visibles de la institución, un ejemplar de la Ley Nº 7476 del 3 de febrero de 1995 y de este Reglamento y comunicar, en forma escrita y oral, a todo el personal de la Procuraduría General de la República sobre la existencia de una política institucional contra el hostigamiento sexual. Asimismo, darán a conocer dicha política de prevención a terceras personas cuando así convenga al cumplimiento de los fines establecidos en la Ley 7476.
+2) Establecer el procedimiento interno, adecuado y efectivo, que permita las denuncias de hostigamiento sexual, garantizando la confidencialidad de las denuncias y el régimen sancionatorio para las personas hostigadoras cuando exista causa. Dicho procedimiento en ningún caso, podrá exceder el plazo ordenatorio de tres meses, contados a partir de la interposición de la denuncia por hostigamiento sexual.
+3) Mantener personal con experiencia en materia de prevención del hostigamiento sexual. Además, la institución podrá suscribir convenios con instituciones u organizaciones públicas o privadas en procura de obtener los conocimientos necesarios sobre este tema.
+4) Desarrollar actividades, tales como charlas, talleres, seminarios, conferencias y otras actividades grupales, tendientes a capacitar y sensibilizar al personal de la Procuraduría General en esta problemática.
+5) Cualquier otra que se estime necesaria para el cumplimiento de los fines de la Ley N° 7476.”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36470 del 20 de diciembre de 2010)

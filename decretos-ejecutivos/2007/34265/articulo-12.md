@@ -1,1 +1,10 @@
-Artículo 12.—Medidas precautorias. En cualquier etapa del procedimiento, se podrán adoptar las medidas cautelares necesarias y razonables.
+Artículo 12.—Medidas cautelares. La Comisión Investigadora, previa solicitud de parte y mediante resolución fundada, podrá solicitar al Procurador (a) General o el Procurador (a) General Adjunto, ordenar cautelarmente:
+a) Que el presunto hostigador, se abstenga de perturbar al denunciante.
+b) Que el presunto hostigador se abstenga de interferir en el uso y disfrute de los instrumentos de trabajo de la persona hostigada.
+c) La reubicación laboral.
+d) La permuta del cargo.
+e) Excepcionalmente la separación temporal del cargo con goce de salario.
+En la aplicación de las medidas cautelares deberán respetarse los derechos laborales de los obligados a la disposición preventiva, pudiendo ser aplicadas a ambas partes de la relación procesal, debiendo procurarse mantener la seguridad de la víctima, fundamentalmente.
+Las medidas cautelares deberán resolverse de manera prevalente y con carácter de urgencia. Su vigencia será determinada por su instrumentalidad para el proceso.
+La resolución que dicte el Procurador (a) General o el Procurador (a) General Adjunto carecerá de ulterior recurso, excepto el de adición o aclaración.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36470 del 20 de diciembre de 2010)
