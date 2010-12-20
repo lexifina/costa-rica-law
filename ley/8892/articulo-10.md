@@ -1,0 +1,3 @@
+ARTÍCULO 10.- Empresas de seguridad privada
+Las empresas de seguridad privada se atendrán a todos los parámetros establecidos en esta Ley, en la prestación del servicio que otorguen a las comunidades, en lo atinente al manejo de las casetas de seguridad y los mecanismos de vigilancia en el acceso a barrios, caseríos y residenciales.
+La Dirección de Servicios de Seguridad Privada del Ministerio de Seguridad Pública integrará en el curso de capacitación obligatorio que debe aprobar el personal de seguridad de estas empresas, según lo dispuesto en el inciso d) del artículo 14 de la Ley de servicios de seguridad privada, N.º 8395, los alcances que, al efecto, se establecen en la presente Ley.

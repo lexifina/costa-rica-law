@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Mecanismos de vigilancia de acceso
+La organización vecinal de una comunidad podrá instalar los mecanismos de vigilancia que estime pertinentes; no obstante, cuando se trate de un mecanismo que permita la vigilancia regulando el acceso al residencial o el barrio respectivo, solo podrán utilizarse cadenas de paso, agujas de seguridad o brazos mecánicos, manuales o automáticos, para ser instalados sobre la calzada, según sea el caso, junto a la caseta de seguridad correspondiente, para lo cual deberán cumplir lo prescrito en esta Ley.
