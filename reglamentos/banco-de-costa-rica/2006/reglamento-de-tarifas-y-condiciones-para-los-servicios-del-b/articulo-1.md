@@ -64,3 +64,6 @@ Se cobrará un 1% anual pagadero mensualmente sobre los proyectos empresariales 
 (*)1.13.- Comisión de estructuración y manejo:
 - En colones y dólares hasta 0,50% y aplica sobre el saldo de la operación a cobrarse mensualmente.
 (*)(Así adicionado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
+(*)1.13. Gastos de formalización de operaciones nuevas de Ayuda Social.
+1% de gastos de formalización
+(*)(Así adicionado el punto anterior mediante sesión N° 61-10 del 20 de diciembre de 2010. No obstante; dicho punto ya existe pero con diferente contenido)

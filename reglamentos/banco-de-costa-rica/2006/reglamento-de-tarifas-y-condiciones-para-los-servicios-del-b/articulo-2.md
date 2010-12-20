@@ -45,8 +45,10 @@ $2.00 por transacción, montos superiores a ¢5.000.00
 2.20.- Cancelación anticipada de los CDP desmaterializados y electrónicos colones y dólares
 La comisión se cobra sobre el principal del CDP, más los intereses vigentes por pagar. Aplicando el 50% de la tasa pasiva vigente del día de la cancelación para el plazo original del CDP, multiplicando ese resultado por el número de días por vencer, dividido por 360. Comisión mínima $10.
 2.21.-Estados de cuenta corriente. $2.00 máximo 3 folios, sobre excesos $0.50 por folio.
-2.22- Cheques rechazados por insuficiencia de fondos colones y dólares.
-$20.00 *Los empleados deberán pagar el 100%.
+2.22- Cheques rechazados por insuficiencia de fondos aplica tanto para los cheques emitidos como para los depositados colones y dólares.
+$20
+*Los empleados deberán pagar el 100%
+(Así reformado el inciso 2.22 ) anterior mediante sesión N° 61-10 del 20 de diciembre de 2010)
 2.23.-Traspaso de operaciones de cobro administrativo a cobro judicial.
 1.5% s/ el total adeudado de cada operación.
 Mínima $20.00

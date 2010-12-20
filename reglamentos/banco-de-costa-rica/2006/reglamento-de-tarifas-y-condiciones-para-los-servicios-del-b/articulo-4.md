@@ -28,7 +28,7 @@ Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen su
 4.10- Órdenes de pago electrónica, mediante el canal www.bancobcr.com
 $3.00 por transferencia.
 (*)4.11 Certificados Digital
-Clientes BCR $ 2,00
-No clientes $ 4,00
-Deben asumir costo de tarjeta $ 5 y lector $ 15,00
+Emisión $32.50
+*Incluye el costo del lector $15 y la tarjeta $4.
 (*)(Así adicionado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
+(Así reformado el inciso 4.11) anterior mediante sesión N° 61-10 del 20 de diciembre de 2010)
