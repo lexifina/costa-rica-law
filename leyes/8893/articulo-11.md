@@ -1,0 +1,3 @@
+ARTICULO 11
+Reuniones de las Partes Contratantes.
+Las reuniones ordinarias de las Partes Contratantes se celebrarán con seis (6) meses de antelación a la realización de la cada Reunión Ordinaria del Consejo de Ministros y de preferencia se hará coincidir con las reuniones del Comité Especial responsable del tema de los Desastres Naturales. Las Partes podrán celebrar reuniones extraordinarias, a solicitud de cualquiera de ellas. Las reuniones se regirán por las normas de procedimiento del Consejo de Ministros determinadas en el Artículo XI del Convenio y Acuerdo No. 9/95 y demás normas que sean aprobadas por el Consejo de Ministros.
