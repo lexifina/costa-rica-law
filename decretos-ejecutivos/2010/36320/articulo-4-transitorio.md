@@ -1,0 +1,1 @@
+TRANSITORIO IV. Lo establecido en este Decreto será de aplicación por una única vez para los funcionarios interinos que ocupan puestos cubiertos por el Título I del Régimen de Servicio Civil a la entrada en vigencia del presente decreto y que cumplan con lo dispuesto en el párrafo segundo del artículo 11 del Reglamento del Estatuto de Servicio Civil creado mediante este Decreto.
