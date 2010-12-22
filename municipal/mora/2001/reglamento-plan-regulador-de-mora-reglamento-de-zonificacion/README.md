@@ -15,3 +15,4 @@ Reglamento Plan regulador de Mora: Reglamento de Zonificación
 | --- | --- | --- |
 | 1 | 2001-09-10 | la propia norma |
 | 2 | 2008-09-08 | Reglamento municipal 19 (2008-09-08) |
+| 3 | 2010-12-22 | SINALEVI (sin norma nombrada) |

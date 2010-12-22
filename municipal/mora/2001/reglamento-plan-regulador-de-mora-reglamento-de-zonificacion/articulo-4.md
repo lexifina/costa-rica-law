@@ -25,21 +25,4 @@ Posterior 3.00 metros .
 3.4. Altura máxima.; no sobrepasará los 3 pisos o 10.00 metros .
 3.5. Cobertura máxima: 70% del área de lote.
 3.6. Densidad: 100 habitantes por hectárea.
-Artículo 4.3—Zona residencial de baja densidad con restricciones (Z.R.B.D.R): Esta zona corresponde a terrenos ubicados al Este y Oeste del cuadrante de Ciudad Colón, en la cual para desarrollar cualquier proyecto será necesario realizar estudios y análisis que establezcan que las futuras edificaciones no tendrán problemas debido a deslizamientos, hundimientos, ó erosión de los suelos.
-1. Usos permitidos: Vivienda unifamiliar y multifamiliar, en urbanizaciones y condominio, comercio menor y servicios públicos comunales. Toda actividad agrícola, pecuaria v forestal o relacionada con estas.
-2. Usos no conformes: Todos los no incluidos en usos permitidos.
-3. Requisitos:
-3.1. Estudios Hidrología y Geológicos que demuestran que no existen problemas de deslizamientos, hundimientos o erosión de los suelos.
-3.2. Área lote mínimo: 1.000 metros cuadrados .
-3.3. Frente mínimo de lote: 20.00 metros .
-3.4. Retiros: Frontal 5.00 metros ,
-Laterales 3.00 metros a cada lado ó 5.00 metros a un solo lado.
-Posterior 3.00 metros
-En edificación de 2 ó más pisos se aplicará lo indicado al respecto en el Reglamento de Construcciones.
-3.5. Altura máxima: 2 pisos en vivienda unifamiliar.
-6 pisos en vivienda multifamiliar de 4 pisos en adelante se deberá contar
-con el visto bueno de Aviación Civil.
-3.6. Cobertura máxima: 30% en vivienda unifamiliar
-15% en vivienda multifamiliar.
-3.7. Densidad permitida: 30 habitantes por hectárea
-6 viviendas por hectárea.
+Artículo 4.3— Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 21258-10 del 22 de diciembre de 2010, misma que dimensiona sus efectos "en el sentido de que la inconstitucionalidad declarada no afecta las construcciones plenamente terminadas o las iniciadas y que cuenten con las respectivas licencias de construcción comenzadas antes del primer aviso del 17 de agosto de 2009.” ).
