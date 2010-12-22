@@ -1,0 +1,1 @@
+Artículo 12.—Liquidación anual. Sin perjuicio del cumplimiento de la normativa contable y de solvencia, la entidad aseguradora realizará una liquidación anual, de conformidad con el artículo 205 del Código de Trabajo.

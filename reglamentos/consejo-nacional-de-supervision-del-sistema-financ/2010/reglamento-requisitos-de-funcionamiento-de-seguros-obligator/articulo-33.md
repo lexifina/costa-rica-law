@@ -1,0 +1,1 @@
+Artículo 33.—Forma de liquidación. La forma de liquidación se hará en los términos definidos en la Ley de Tránsito, reformas y reglamento y hasta por el monto de cobertura aprobada por el Poder Ejecutivo.

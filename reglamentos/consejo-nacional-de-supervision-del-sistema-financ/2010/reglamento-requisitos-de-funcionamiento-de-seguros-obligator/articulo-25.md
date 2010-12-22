@@ -1,0 +1,3 @@
+Artículo 25.—Características del marchamo. Los marchamos deben encontrarse numerados de manera tal que puedan ser referenciados a la póliza y el certificado SOA respectivo. Las entidades aseguradoras tomarán las medidas necesarias para asegurar la autenticidad de sus marchamos.
+El diseño del marchamo y sus formalidades serán establecidos conforme definición que hará el Ministerio de Obras Públicas y Transportes conforme sus competencias.
+Los acuerdos, convenios o contratos realizados con las autoridades de los Ministerios de Obras Públicas y Transportes y Hacienda, Municipalidades u otras entidades, para la recaudación de derechos, multas o impuestos, y la emisión de documentos vinculados, deben ser registrados ante la SUGESE.

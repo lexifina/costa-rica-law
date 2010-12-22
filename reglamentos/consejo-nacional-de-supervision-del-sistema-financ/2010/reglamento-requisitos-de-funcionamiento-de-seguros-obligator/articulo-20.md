@@ -1,0 +1,3 @@
+SECCIÓN IV
+Casos no asegurados
+Artículo 20.—Casos de trabajadores no asegurados. Si el trabajador no estuviera asegurado contra los riesgos del trabajo, de conformidad con el Código de Trabajo, el Instituto Nacional de Seguros le otorgará todas las prestaciones que le hubiesen correspondido de haber estado asegurado, salvo aquellos casos en que el patrono tuviera vigente una póliza de Riesgos del Trabajo con cualquier entidad aseguradora y omitiera reportar al trabajador para ser considerado dentro de la protección de seguro. En esos casos, los trabajadores se considerarán como no asegurados y las prestaciones estarán a cargo de la entidad aseguradora receptora de la prima.

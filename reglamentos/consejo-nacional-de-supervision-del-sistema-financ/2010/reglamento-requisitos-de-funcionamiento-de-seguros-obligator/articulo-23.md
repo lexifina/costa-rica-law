@@ -1,0 +1,1 @@
+Artículo 23.—Fuentes. El Seguro Obligatorio de Automóviles se regirá por la Ley de Tránsito; el Reglamento sobre el Seguro Obligatorio para Vehículos Automotores; el presente Reglamento así como las circulares y acuerdos que la Superintendencia General de Seguros emita al efecto.

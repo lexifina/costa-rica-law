@@ -1,0 +1,1 @@
+Artículo 11.—Fuentes. El Seguro de Riesgos del Trabajo se regirá por el Código de Trabajo; el Reglamento General de Riesgos del Trabajo, Decreto Ejecutivo Nº 13466-TSS; la Norma Técnica emitida por cada entidad aseguradora, el presente Reglamento así como las circulares y acuerdos que la Superintendencia General de Seguros emita al efecto.

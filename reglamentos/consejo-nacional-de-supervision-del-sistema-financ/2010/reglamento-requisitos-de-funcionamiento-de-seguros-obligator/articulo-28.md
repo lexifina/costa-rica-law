@@ -1,0 +1,2 @@
+Artículo 28.—Traspaso de vehículos. Con ocasión del traspaso del derecho de propiedad de un vehículo, dentro de la vigencia del contrato SOA, la cobertura del seguro se mantiene en tanto es el vehículo el objeto asegurado.
+Si el vehículo no apareciere inscrito a nombre del propietario actual, la aseguradora respectiva podrá solicitar la presentación de los documentos que estime pertinentes para corroborar la acreditación del gestionante como nuevo propietario, de conformidad con la póliza respectiva que se emita al momento de la contratación del seguro.

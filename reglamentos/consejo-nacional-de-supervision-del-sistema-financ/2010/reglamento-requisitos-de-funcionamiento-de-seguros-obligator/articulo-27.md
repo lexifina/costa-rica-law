@@ -1,0 +1,2 @@
+Artículo 27.—Vigencia de la póliza. La Póliza del SOA tiene como vigencia el año calendario de conformidad con lo que establece el Reglamento sobre el Seguro Obligatorio para Vehículos Automotores. Las fechas de inicio y finalización de este período, cada año, serán las mismas para todos los contratantes del SOA.
+En el caso de aseguramientos con vigencias menores a un año, la prima será proporcional a la vigencia anual del seguro, venciendo este el 31 de diciembre de cada año.

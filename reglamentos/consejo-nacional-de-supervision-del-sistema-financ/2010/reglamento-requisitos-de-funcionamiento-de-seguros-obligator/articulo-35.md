@@ -1,0 +1,1 @@
+Artículo 35.—Plazo para indemnizar. Las entidades aseguradoras pagarán las indemnizaciones establecidas en la Ley de Tránsito dentro de los treinta (30) días naturales a partir de la presentación de los documentos requeridos en el artículo 36 del presente reglamento, para cada caso.

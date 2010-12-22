@@ -1,0 +1,1 @@
+Artículo 29.—Disponibilidad de información. Las entidades aseguradoras proveerán a la Dirección General de la Policía de Tránsito y en forma periódica, un registro de los vehículos que mantiene asegurados. La Superintendencia coordinará con la citada Dirección los aspectos operativos para la disposición de esta información, los formatos y medios de comunicación.

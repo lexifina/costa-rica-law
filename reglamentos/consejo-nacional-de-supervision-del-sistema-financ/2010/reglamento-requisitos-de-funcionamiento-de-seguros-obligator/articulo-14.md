@@ -1,0 +1,1 @@
+Artículo 14.—Auditoría de aseguramiento. Se autoriza a las entidades aseguradoras para que a través de condiciones contractuales establecidas en sus pólizas, puedan auditar planillas y demás condiciones propias del aseguramiento.

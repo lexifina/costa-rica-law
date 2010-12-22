@@ -1,0 +1,1 @@
+Artículo 7º—Reglamentación prudencial. A la actividad aseguradora realizada en la oferta de seguros obligatorios le resultan aplicables todas las disposiciones prudenciales emitidas por el CONASSIF para el resto de las líneas de seguros, salvo excepciones expresamente establecidas.

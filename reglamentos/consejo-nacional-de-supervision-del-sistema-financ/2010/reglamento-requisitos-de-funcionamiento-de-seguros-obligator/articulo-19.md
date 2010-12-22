@@ -1,0 +1,1 @@
+Artículo 19.—Pago de subsidios. Las entidades aseguradoras deberán convenir con el tomador la forma de pago de las prestaciones a los trabajadores que deban recibir un subsidio. En estos casos, el trabajador podrá percibir del patrono el subsidio y éste recuperar lo que corresponda de la entidad aseguradora.

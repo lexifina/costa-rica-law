@@ -1,0 +1,5 @@
+Artículo 6º—Respuesta motivada de indemnización. La entidad aseguradora deberá entregarle al tomador, asegurado, o a sus beneficiarios, un estado de cuenta donde se establezca la liquidación de la indemnización y prestaciones correspondientes, atendiendo a la naturaleza y objeto de las lesiones.
+En los casos de que el asegurador decline el pago de la indemnización, deberá entregarle al asegurado o a sus derechohabientes una respuesta motivada donde explique claramente los motivos de la declinatoria, indicando al menos:
+a) El motivo que impide efectuar la indemnización, bien sea porque no esté determinada la responsabilidad, no se haya podido cuantificar el daño o bien cuando existe alguna otra causa que justifique el rechazo de la reclamación, que deberá ser especificada.
+b) Desglose y detalle de los documentos, informes o cualquier otra información de que se disponga, que acrediten las razones de la entidad aseguradora para declinar.
+c) Deberá incluir una mención donde se establezca que el rechazo expreso de la indemnización, no afecta al ejercicio de cualesquiera acciones que puedan corresponderle para hacer valer sus derechos.

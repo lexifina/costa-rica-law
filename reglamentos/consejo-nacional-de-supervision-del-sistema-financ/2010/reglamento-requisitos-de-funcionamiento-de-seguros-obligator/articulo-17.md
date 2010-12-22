@@ -1,0 +1,2 @@
+Artículo 17.—Aviso de siniestro y procedimiento de indemnización. La entidad aseguradora deberá definir los medios y plazos para recibir la notificación del siniestro, así como los procedimientos para proceder a la entrega de las prestaciones convenidas.
+Lo anterior sin perjuicio de las obligaciones definidas para el patrono en el Código de Trabajo, que disponen la obligación de notificar en un plazo no mayor de ocho días hábiles.

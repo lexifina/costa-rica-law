@@ -1,0 +1,1 @@
+Artículo 26.—Obligación de aseguramiento. Las entidades aseguradoras autorizadas no podrán negarse a asegurar un vehículo si este cumple con los requisitos exigidos por la legislación para circular en el país. Lo anterior con independencia del origen, marca, tipo, modelo, año de fabricación y actividad al que esté destinado el vehículo automotor.

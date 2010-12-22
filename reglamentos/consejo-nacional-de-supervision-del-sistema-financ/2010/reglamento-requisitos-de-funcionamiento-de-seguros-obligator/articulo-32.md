@@ -1,0 +1,2 @@
+Artículo 32.—Aviso de siniestro y procedimiento de indemnización. La entidad aseguradora deberá definir el procedimiento, medios y plazos para recibir la notificación del siniestro, así como los procedimientos para proceder a la entrega de las prestaciones convenidas. El plazo de aviso no podrá ser superior a los quince (15) días hábiles de tener conocimiento del siniestro.
+El incumplimiento del aviso dentro del plazo, no conllevará efecto adverso alguno a sus intereses económicos derivados de su solicitud de indemnización, salvo el atraso en su gestión indemnizatoria.
