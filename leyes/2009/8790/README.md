@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del año 2010
 
-Ley N° 8790 del 2009-12-08. SINALEVI, ficha 67019: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=67019&param2=82989&param3=1>.
+Ley N° 8790 del 2009-12-08. SINALEVI, ficha 67019: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=67019&param2=83233&param3=1>.
 
 Publicada en La Gaceta N° 254 del 2009-12-31.
 
@@ -35,3 +35,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 25 de 29 | 2010-12-02 | Decreto Ejecutivo 36296 (2010-11-17) | 2010-11-17 |
 | 26 de 29 | 2010-12-02 | Decreto Ejecutivo 36286 (2010-11-22) | 2010-11-22 |
 | 27 de 29 | 2010-12-02 | Decreto Ejecutivo 36287 (2010-11-22) | 2010-11-22 |
+| 28 de 29 | 2010-12-22 | Decreto Ejecutivo 36323 (2010-12-06) | 2010-12-06 |

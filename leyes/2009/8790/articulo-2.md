@@ -52,3 +52,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 (Modificado por el artículo 1° del decreto ejecutivo N° 36296 del 17 de noviembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36286 del 22 de noviembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36287 del 22 de noviembre de 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36323 del 6 de diciembre de 2010)
