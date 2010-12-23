@@ -1,6 +1,6 @@
 # Anexo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar
 
-Tratados Internacionales N° 8708 del 2008-12-18. SINALEVI, ficha 72676: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72676&param2=89493&param3=1>.
+Tratados Internacionales N° 8708 del 2008-12-18. SINALEVI, ficha 72676: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=72676&param2=89988&param3=1>.
 
 Publicada en La Gaceta N° 249 del 2010-12-23.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 11 | 2010-12-23 | Tratados Internacionales 8708 (2009-02-26) | 2009-02-26 |
 | 4 de 11 | 2010-12-23 | Tratados Internacionales 8708 (2009-02-26) | 2009-02-26 |
 | 5 de 11 | 2010-12-23 | Tratados Internacionales 8708 (2009-02-26) | 2009-02-26 |
+| 6 de 11 | 2010-12-23 | Tratados Internacionales 8708 (2009-02-26) | 2009-02-26 |
