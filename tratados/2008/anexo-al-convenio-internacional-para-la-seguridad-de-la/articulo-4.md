@@ -20,6 +20,8 @@ g) Por "instalación existente" se entenderá:
 i) una instalación totalmente montada a bordo de un buque antes de la fecha de entrada en vigor del presente Convenio, sea cual fuere la fecha en que se produzca la aceptación de éste por parte de la Administración correspondiente; y
 ii) una instalación montada en parte a bordo de un buque antes de la fecha de entrada en vigor del presente Convenio y el resto de la cual esté constituido por elementos instalados en sustitución de otros idénticos, o por elementos que cumplen con las prescripciones del presente Capítulo.
 h) Por "instalación nueva" se entenderá cualquier instalación que no sea una instalación existente.
+i) Por 'radiobaliza de localización de siniestros' se entenderá una estación del servicio móvil cuyas emisiones están destinadas a facilitar las operaciones de búsqueda y salvamento.
+(Así adicionado el punto i) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 3
 Estación radiotelegráfica
 Los buques de pasaje, sea cual fuere su tonelaje, y los buques de carga de arqueo bruto igual o superior a 1.600 toneladas, irán equipados con una estación radiotelegráfica que cumpla con las disposiciones de las Reglas 9 y 10 del presente Capítulo, a menos que la Regla 5 del mismo los exima de la obligación de llevarla.
@@ -214,6 +216,33 @@ h) El transmisor suministrará a la antena prescrita en el párrafo a) de la pre
 Potencia de entrada de 10 vatios por lo menos en el ánodo de la etapa final o potencia de salida de radiofrecuencia de 2 vatios como mínimo (emisión A-2)., a 500 kHz., en una antena artificial con resistencia efectiva de 15 ohmios y capacidad de 100 x 1012 faradios en serie. La profundidad de modulación será del 70 por ciento como mínimo.
 i) Mientras el buque esté en la mar, semanalmente un oficial radiotelegrafista o un operador radiotelefonista, según proceda, probará el transmisor utilizando una antena artificial adecuada y cargará completamente la batería si es de un tipo que hace esto necesario.
 j) A los efectos de la presente Regla, equipo nuevo significa el equipo suministrado a un buque después de la fecha de entrada en vigor del presente Convenio.
+Regla 14-1
+Radiobalizas de localización de siniestros para
+embarcaciones de supervivencia
+a) Las radiobalizas de localización de siniestros para embarcaciones de supervivencia prescritas en la regla III /6.2.3 emitirán señales que permitan a las aeronaves localizar a la embarcación de supervivencia Y podrán tener también aptitud para emitirlas a fines de alerta.
+b) Las radiobalizas de localización de siniestros para embarcaciones de supervivencia tendrán por lo menos aptitud para emitir, "alternativa o simultáneamente, señales que se ajusten a las normas pertinentes y a las prácticas recomendadas de la Organización de Aviación Civil Internacional (OACI) en las frecuencias de 121,5 MHz y 243,0 MHz.
+c) Las radiobalizas de localización de siniestros para embarcaciones de supervivencia:
+i) serán de Color muy visible y estarán proyectadas de modo que puedan utilizarlas personas inexpertas, y construidas de modo que resulte fácil someterlas a prueba y mantenerlas; las baterías no necesitarán• ser renovadas a intervalos inferiores a 12 meses, teniendo en cuenta lo dispuesto en cuanto a pruebas;
+ii) serán estancas y podrán flotar y ser lanzadas al agua desde una altura de por lo menos 20 m sin que sufran daños;
+iii) podrán ser activadas y desactivadas sólo manualmente; iv) serán portátiles, livianas y compactas;
+v) llevarán los medios necesarios para indicar que se están emitiendo señales;
+vi) estarán alimentadas por una batería que forme parte integrante del dispositivo y que tenga capacidad suficiente para mantener el aparato en funcionamiento durante un periodo de 48 h; la transmisión podrá ser intermitente; para determinar el ciclo de trabajo se tendrán en cuenta las probabilidades de que la recalada se efectúe debidamente, la necesidad de evitar la congestión de las frecuencias Y la necesidad de cumplir con las prescripciones de la Organización de Aviación Civil Internacional (OACI); y
+vii) serán sometidas a prueba y, si es necesario, su fuente de energía se renovará a intervalos que no excedan de 12 meses.
+(Así adicionada la regla 14-1) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+Regla 14-2
+Inspección y prueba periódicas de las radiobalizas
+de localización de siniestros
+Las radiobalizas de localización de siniestros que se provean de conformidad con la regla III /6.2.3 serán sometidas a inspecciones y a pruebas y, si es necesario, su fuente de energía se renovará a intervalos que no excedan de 12 meses. No obstante, en los casos en que parezca oportuno y razonable la Administración podrá ampliar este periodo a 17 meses.
+(Así adicionada la regla 14-2) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+Regla 14-3
+Aparatos radiotelefónicos bidireccionales para
+embarcaciones de supervivencia
+a) Los aparatos prescritos en la regla III /6.2.4 estarán proyectados de modo que en casos de emergencia puedan utilizarlos personas inexpertas.
+b) Los aparatos serán portátiles y tendrán aptitud para ser utilizados en las comunicaciones de a bordo.
+c) Los aparatos se ajustarán a lo prescrito en el artículo pertinente del Reglamento de Radiocomunicaciones con respecto al equipo utilizado en el servicio móvil marítimo para -las comunicaciones de a bordo y tendrán aptitud para funcionar en los canales que especifique el Reglamento de Radiocomunicaciones Y tal como prescriba la Administración. Si los aparatos operan en la banda de ondas métricas se tomarán precauciones para evitar la selección accidental del canal 16 de ondas métricas tratándose de equipo que pueda funcionar en dicha frecuencia.
+d) Los aparatos funcionarán alimentados por una batería de capacidad adecuada que asegure 4 h de servicio con un ciclo de trabajo de 1:9.
+e) Mientras el buque esté en la mar, el equipo será mantenido en buen estado y, cuando sea necesario I la batería se cargará completamente o se renovará.
+(Así adicionada la regla 14-3) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 15
 Estaciones radiotelefónicas
 a) La estación radiotelefónica irá situada en la parte superior del buque de manera que en la mayor medida posible esté protegida contra todo ruido que pueda impedir la debida recepción de mensajes y señales.
