@@ -9,7 +9,8 @@ Respecto de los buques a los que se aplica el presente Código, las prescripcion
 12.1.6 Las tomas de ventilación estarán dispuestas de modo que se reduzca al mínimo la posibilidad de que vapores potencialmente peligrosos procedentes de toda abertura de descarga de ventilación sean reutilizados.
 12.1.7 Los conductos de ventilación no atravesarán espacios de alojamiento, de servicio o de máquinas ni otros espacios semejantes.
 12.1.8 Los motores eléctricos de los ventiladores se instalarán fuera de los conductos de ventilación si existe el propósito de transportar productos inflamables. Los ventiladores y, sólo en el emplazamieato de éstos, los conductos que les correspondan, destinados a los emplazamientos potencialmente peligrosos a que se hace referencia en el capitulólo, estarán construidos de modo que no desprendan chispas, como a continuación se indica:
-.1 ventiladores impulsores y alojamiento , no metálicos, prestando la atención necesaria a la eliminación de electricidad estática;
+.1 ventiladores impulsores o alojamiento(*), no metálicos, prestando la atención necesaria a la eliminación de electricidad estática;
+(*)(Así reformada la frase anterior por el artículo único de las Enmiendas al Código Internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel (Código CIQ) Resolución MSC 10 (54), del 29 de abril de 1987, aprobadas mediante Tratado Internacional N° 8708 del 26 de febrero del 2009. Anteriormente se indicaba: "ventiladores impulsores y alojamiento")
 .2 ventiladores impulsores y alojamiento, de materiales no ferrosos;
 .3 ventiladores impulsores y alojamiento, de acero austenítico inoxidable; y
 .4 ventiladores impulsores y alojamiento ferrosos, proyectados con huelgo no

@@ -1,7 +1,8 @@
 CAPITULO 3 - DISPOSICIÓN DEL BUQUE
 3.1 Segregación de la carga
 3.1.1 Salvo que se disponga expresamente otra cosa, los tanques que contengan carga o residuos de carga regidos por el Código estarán segregados de los espacios de alojamiento, de servicio y de máquinas, así como del agua potable y de las provisiones para el consumo humano, por medio de un coferdán, espacio perdido, cámara de bombas de carga, cámara de bombas, tanque vacío, tanque de combustible líquido u otro espacio semejante.
-3.1.2 Las cargas que reaccionen de manera peligrosa ante otras cargas:
+3.1.2 Las cargas, los residuos de cargas ylas mezclas que contengan cargas que reaccionen de manera peligrosa con otrascargas, residuos o mezclas:
+(Así sustituída el texto del punto 3.1.2) anterior por el artículo único de las Enmiendas al Código Internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel (Código CIQ) Resolución MSC 10 (54), del 29 de abril de 1987, aprobadas mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 .1 estarán segregadas de esas otras cargas por medio de un coferdán, espacio perdido, cámara de bombas de carga, cámara de bombas, tanque vacío o tanque que contenga una carga compatible;
 .2 dispondrán de sistemas separados de bombeo y de tuberías que no pasen por otros tanques de carga que contengan dichas cargas, a menos que el paso se efectúe por el interior de un túnel; y
 .3 dispondrán de sistemas separados de respiración de los tanques.

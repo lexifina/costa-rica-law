@@ -74,104 +74,110 @@ Se tendrán en cuenta las prescripciones relativas a respiración durante las op
 19.12.2 Se instalarán los instrumentos detectores de vapor descritos en 13.2 para los productos tóxicos e inflamables.
 19.13 Protección del personal
 19.13.1 Para cada persona que pueda haber a bordo se proveerá el equipo de seguridad descrito en 14.2, incluidos los medios de protección respiratorios y para los ojos que se describen en 14.2.8.
-APÉNDICE
-MODELO DE CERTIFICADO INTERNACIONAL DE APTITUD PARA EL TRANSPORTE DE PRODUCTOS QUÍMICOS PELIGROSOS A GRANEL
-CERTIFICADO INTERNACIONAL DE APTITUD PARA EL TRANSPORTE DE PRODUCTOS QUÍMICOS PELIGROSOS A GRANEL
+(*)APENDICE
+MODELO DE CERTIFICADO INTERNACIONAL DE APTITUD PARA EL
+TRANSPORTE DE PRODUCTOS QUIMICOS PELIGROSOS A GRANEL
+CERTIFICADO INTERNACIONAL DE APTITUD PARA EL TRANSPORTE DE
+PRODUCTOS QUIMICOS PELIGROSOS A GRANEL
 (Sello oficial)
 expedido en virtud de lo dispuesto en el
-CÓDIGO INTERNACIONAL PARA LA CONSTRUCCIÓN Y EL EQUIPO DE BUQUES QUE TRANSPORTEN PRODUCTOS QUÍMICOS PELIGROSOS A GRANEL (resolución MSC.4(48))
+CODlGO INTERNACIONAL PARA LA CONSTRUCCION y EL EQUIPO DE BUQUES
+QUE TRANSPORTEN PRODUCTOS QUIMICOS PELIGROSOS A GRANEL
+(resoluciones MSC .4(48) y MEPC.19(22)-1/
 con autoridad conferida por el Gobierno de
-………………………………………………………………………………………………………
+………………………………………………………………………………………………………………………
 (nombre oficial completo del país)
-por
-…………………………………………………………………………………………………………
-(título oficial completo de la persona u organización competente reconocida por la Administración)
-Nombre del buque | Número o letras distintivos | Puerto de matrícula | Arqueo bruto | Tipo de buque (párrafo 2.1.2 del Código)1/
-Fecha en que se colocó la quilla del buque o en que la construcción de éste su hallaba en una fase equivalente o ( en el caso de un buque transformado) fucha en que comenzó la transformación en buque tanque quimiquero:
-……………………………………………………….
-El buque cumple también plenamente con las siguientes enmiendas al Código:
-……………………………………………………………………………………………………………………………………………………………………………………………………………………
-El buque está exento de cumplir con las siguientes disposiciones del Código:
-……………………………………………………………………………………………………………………………………………………………………………………………………………………
-El certificado se extenderá en el idioma oficial del Estado que lo expida. Si se utiliza un idioma que no sea el francés o el inglés, el texto irá acompañado de una traducción a uno de estos idiomas.
-SE CERTIFICA: 1
-.1 Que el buque ha sido objeto de reconocimiento de conformidad con lo dispuesto en la sección 1.5 del Código;
+por………………………………………………………………………………………………………………….
+(título oficial completo de la persona u organización competente
+reconocida por la Administración )
+Nombre del buque | Número o letras distintivos | Puerto de matrícula | Arqueo bruto | Tipo de buque (párrafo 2.1,2 del Código -2/
+| | | |
+Fecha en que se colocó la quilla del buque o en que la construcción de éste se hallaba en una fase equivalente o (en el caso de un buque transformado) fecha en que comenzó la transformación en buque tanque quimiquero:
+…………………………………..
+El certificado se extenderá en el idioma oficial del Estado que lo expida. Si se utiliza un idioma que no sea el francés o el inglés. el texto irá acompañado de una traducción a uno de estos idiomas.
+El buque cumple también plenamente con las siguientes enmiendas al código
+………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………
+El buque está exento de cumplir con las siguientes disposiciones de I Código:
+………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………
+SE CERTIFICA:
+1. .1 Que el buque ha sido objeto de reconocimiento de conformidad con lo dispuesto en la sección 1.5 del Código;
 .2 que el reconocimiento ha puesto de manifiesto que la construcción y el equipo del buque cumplen con las disposiciones pertinentes del Código;
-*.3 que el buque es un buque incinerador que cumple también con las prescripciones complementarias y modificadas del capítulo 19
+*.3 que el buque es un buque incinerador que cumple también con las prescripciones complementarias y modificadas del capítulo 19,
 * Táchese según proceda.
-Que el buque es apto para transportar a granel los productos indicados a continuación, siempre y cuando se observen todas las disposiciones de orden operacional del Código que sean pertinentes.2/
-| [imagen]
-3 Que de conformidad con *1.4 y *2.8.2, las disposiciones del Código han sido modificadas con respecto al buque del modo siguiente:
-4 Que el buque debe cargarse:
-*.1 de conformidad con las condiciones de carga estipuladas en el manual de carga aprobado, sellado y fechado y firmado por un funcionario responsable de la Administración, o de una organización reconocida por la Administración;
+2 Que el buque lleva un manual de conformidad con las Normas aplicables a los procedimientos y medios cuya necesidad indican las reglas 5. 5A Y 8 del Anexo II del MARPOL 73/78, y que los medios y el equipo del buque prescrito en dicho manual son satisfactorios en todos los sentidos y cumplen con las prescripciones aplicables de dichas normas,
+3 Que el buque es apto para transportar a granel los productos indicados a continuación, siempre y cuando se observen todas las disposiciones de orden operacional del Código que sean pertinentes
+Productos -3/-4/ | Condiciones del transporte -5/ (número de los tanques, etc)
+|
+*Sigue en la (s) página (a) de continuación de la hoja adjunta 1, firmada y fechada.
+Los números de los tanques indicados en esta lista pueden localizarse en el plano de tanques, firmado y fechado, que figuran en la hoja adjunta 2.
 *Táchese según proceda.
+4 Que de conformidad con *1.4 Y *2.8.2, las disposiciones del Código han sido modificadas con respecto al buque del modo siguiente:
+…………………………………………………………………………………………………………………........
+5 Que el buque debe cargarse:
+*.1 de conformidad con las condiciones de carga estipuladas en el manual de carga aprobado sellado y fechado……………………….. y firmado por un funcionario responsable de la Administraci 6n o de una organización reconocida por la Administración ;
 *.2 de conformidad con las limitaciones de carga adjuntas al presente certificado.
 *Táchese según proceda.
-Cuando sea preciso cargar el buque de un modo que no se ajuste a lo arriba indicarlo, se remitirán a la Admistración que expida el cerificado los cálculos necesarios para justificar las condiciones de carga propuestas, y la Administración podrá autorizar por escrito la adopción de dichas condiciones de carga propuestas .**
-**En vez de incluir este texto en el certificado, cabrá adjuntarlo al mismo, siempre que esté debidamente firmado y sellado.
-El presente certificado es válido hasta…………………………………………………………….
-Expedido en………………………………………………………………… .....................19…..
+Cuando sea preciso cargar el buque de un modo que no se ajuste a lo arriba indicado, se remitirán a la Administración que expida el certificado los cálculos necesarios para justificar las condiciones de carga propuestas, y la Administración podrá autorizar por escrito la adopción de dichas condiciones de carga propuestas. **
+**En vez de incluir este texto en el certificado, cabrá adjuntarlo al mismo siempre que esté debidamente firmado y sellado.
+El presente certificado es válido hasta el………………………….. a reserva de que se efectúen los pertinentes reconocimientos de conformidad con 1. 5 del Código.
+Expedido en ……………………………………………………….. 19……………………………..
 (lugar de expedición del certificado)
-El infraescrito declara que está debidamente autorizado por el expresado Gobierno para expedir el presente certificado.
-………………………………………
-(firma del funcionario que expide
-el certificado y/o sello de la
-autoridad expedidora)
+El infrascrito declara que está debidamente autorizado por el expresado Gobierno para expedir el presente certificado
+………………................................
+(firma del funcionario que
+expide el certificado y/o sello
+de la autoridad expedidora)
 Instrucciones para rellenar el certificado:
-1/ "Tipo de buque": Toda anotación consignada en esta columna guardará relación con todas las recomendaciones que le sean aplicables; por ejemplo, la anotación "tipo 2" se entenderá referida a este tipo ce buque en todos los aspectos regidos por el Código.
-2/ Párrafo 2: Sólo se consignarán los productos enumerados en el capítulo 17 del Código o los que hayan sido evaluados por la Administración de conformidad con 1 .1.3 del Código. Respecto de estos últimos productos "nuevos" se tendrán presentes cualesquier? prescripciones especiales provisionalmente estipuladas. Téngase en cuenta que tratándose de buques incineradores debe anotarse la mención "desecho químico líquido" en el lugar que correspondería al nombre de cada producto.
-REPRENDO DE RECONOCIMIENTOS ANUALES OBLIGATORIOS
-SE CERTIFICA que en el reconocimiento anual obligatorio efectuado de conformidad con lo prescrito en 1 .5.2.1.4 del Código internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel se ha comprobado que el buque cumple con las disposiciones pertinentes del mismo.
-Firmado……………………………
-(firma del funcionario autorizado)
-Lugar…………………………………
-Fecha…………………………………
-(sello o estampilla, según corresponda, de la autoridad)
-Firmado………………………………...
-(firma del funcionario autorizado)
-Lugar………………………………
-Fecha………………………
-(sello o estampilla, según corresponda, de la autoridad)
-Firmado…………………………….
-(firma del funcionario autorizado)
-Lugar ……………………………….
-Fecha ……………………………...
-(sello o estampilla, según corresponda, de la autoridad)
-Firmado …………………………….
-(firma del funcionario autorizado)
-Lugar ………………….
-Fecha ………………….
-(sello o estampilla, según corresponda, de la autoridad)
-NOTA: El reconocimiento anual obligatorio podrá sustituirse por un reconocimiento intermedio cuando se cumplan las prescripciones pertinentes de 1.5.2.1.3 y 1 .5.2.1.4.
-REFRENDO DE RECONOCIMIENTOS INTERMEDIOS
-SE CERTIFICA que en el reconocimiento intermedio efectuado de conformidad con lo prescrito en 1.5.2.1.3 del Código internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel se ha comprobado que el buque cumple con las disposiciones pertinentes del mismo.
-Firmado ……………………………
-(firma del funcionario autorizado)
-Lugar ……………………..
-Fecha ……………………..
-(sello o estampilla, según corresponda» de la autoridad)
-Firmado…………………….
-(firma del funcionario autorizado)
-Lugar………………………...
-Fecha………………………..
-(sello o estampilla, según corresponda, de la autoridad)
+1/ El certificado se podrá expedir únicamente a los buques que tengan derecho a enarbolar el pabellón de los Estados que son a la vez Partes en el Convenio SOLAS 74 y en el MARPOL 73/78.
+2/ Tipo de buque: Toda anotación consignada en esta columna guardará relación con todas las recomendaciones que le sean aplicables por ejemplo, la anotación "tipo 2" se entenderá referida a este tipo de buque en todos los aspectos regidos por el Código.
+3/ Productos: Se consignarán los productos enumerados en el capitulo 17 del Código o los que hayan sido evaluados por la Administración de conformidad con 1.1. 3 del Código. Respecto de estos últimos capítulos "nuevos" se tendrán presentes cualesquiera prescripciones especiales provisionalmente estipuladas. Téngase en cuenta que tratándose de buques incineradores debe anotarse la mención "desecho químico Líquido" en el lugar que correspondería al nombre de cada producto.
+4/ Productos: La lista de productos que el buque es apto para transportar incluirá las sustancias nocivas liquidas de la categoría D que no están regidas por el Código, las cuales se identificarán como sustancias de la "categoría D del capitulo 18".
+5/ Condiciones de transporte: Con arreglo a lo dispuesto en 16A.2 del Código habrá que indicar asimismo las limitaciones relativas al transporte de sustancias de la categoría B o la categoría C.
+REFRENDO DE RECONOCIMIENTOS ANUALES E INTERMEDIOS
+SE CERTIFICA que en el reconocimiento prescrito en 1. 5 del Código internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel se ha comprobado que el buque cumple con las disposiciones pertinentes del Código.
+Reconocimiento anual: Firmado:…………………………………………………………………………….
+(firma del funcionario debidamente autorizado)
+Lugar:…………………………………………………………………………………
+Fecha:…………………………………………………………………………………
+(sello o estampilla, según corresponda de la autoridad)
+Reconocimiento anual* /intermedio*: Firmado:……………………………………………………………..
+* Táchese según proceda.
+(firma del funcionario debidamente autorizado)
+Lugar: …………………………………………………………………………………
+Fecha: …………………………………………………………………………………
+(sello o estampilla. según corresponda. de la autoridad)
+Reconocimiento anual*/ intermedio* Firmado: …………………………………………………………….
+* Táchese según proceda.
+(firma del funcionario debidamente autorizado)
+Lugar: …………………………………………………………………………………
+Fecha: …………………………………………………………………………………
+(sello o estampilla. según corresponda. de la autoridad).
+Reconocimiento anual; Firmado:………………………………………………………………………………
+(firma del funcionario debidamente autorizado)
+Lugar: …………………………………………………………………………………
+Fecha; …………………………………………………………………………………
+(sello o estampilla. según corresponda. de la autoridad).
 HOJA ADJUNTA 1 DEL CERTIFICADO INTERNACIONAL DE APTITUD
-PARA EL TRANSPORTE DE PRODUCTOS QUÍMICOS
-PELIGROSOS A GRANEL
-Páginas de continuación de la lista de productos indicados en la sección 3 con las correspondientes condiciones de transporte.
+PARA EL TRANSPORTE DE PRODUCTOS QUIMICDS PELIGROSOS A GRANEL
+Páginas de continuación de la lista de productos indicados en la sección 3. con las correspondientes condiciones de transporte.
 [imagen]
-………………………………..
-FECHA FIRMA DEL FUNCIONARIO
-(LA DEL CERTIFICADO) QUE EXPIDE EL CERTIFICADO Y/O SELLO DE LA AUTORIDAD EXPEDIDORA
+Fecha …………………… ………………………………………………………………
+(la del certificado)
+(Firma del funcionario que
+expide el certificado y/o sello
+de la autoridad expedidora)"
 HOJA ADJUNTA 2 DEL CERTIFICADO INTERNACIONAL DE APTITUD
-PARA EL TRANSPORTE DE PRODUCTOS QUIMICOS
-PELIGROSOS A GRANEL
+PARA EL TRANSPORTE DE PRODUCTOS QUIMICOS PELIGROSOS A GRANEL
 PLANO DE TANQUES (ejemplo)
-NOMBRE EL BUQUE:………………………………………………………………………….
-[imagen] NUMERO O LETRAS DISTINTIVOS:…………………………………………………………
-FECHA……………………. ……………………………………
-(LA DEL CERTIFICADO)
-FIRMA DEL FUNCIONARIO QUE EXPIDE EL CERTIFICADO Y/O SELLO DE LA AUTORIDAD EXPEDIDORA
+Nombre del buque: ..................................................................................................................................
+Número o letras distintivos: ...................................................................................................................
+Fecha ………………………………. ……………………………………………………
+(la del certificado)
+[imagen]
+(firma del funcionario que
+expide el certificado y/o sello
+de la autoridad expedidora)
+(*)(Así sustituido el Apéndice Modelo de Certificado Internacional de Aptitud para el Trasporte de Productos Químicos Peligrosos a Granel por el artículo único de las Enmiendas al Código Internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel (Código CIQ) Resolución MSC 10 (54), del 29 de abril de 1987, aprobadas mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 COPIA AUTENTICA CERTIFICADA del texto español del Código internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel, al que se va a dar carácter obligatorio en virtud de las enmiendas al Convenio internacional para la seguridad de la vida humana en el mar, 1974, aprobadas de conformi¬dad con el artículo VIII de este Convenio el 17 de junio de 1983 por el Comité de Seguridad Marítima de la Organiza¬ción Marítima Internacional en su cuadragésimo octavo periodo de sesiones mediante la resolución MSC.6(48), enmiendas cuyo texto original se ha depositado ante el Secretario General de la Organización Marítima Internacional.
 Por el Secretario General de la Organización Marítima Internacional:
 Londres,
