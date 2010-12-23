@@ -108,6 +108,57 @@ Si este documento va firmado, añádase lo siguiente:
 El infrascrito declara que está debidamente autorizado por el expresado Gobierno para expedir el presente certificado.
 (Firma)
 NOTA - Bastará con indicar el año en que la quilla fue colocada o en que la construcción del buque se hallaba en una fase equivalente, salvo por lo que respecta a 1952, 1965 y el año de entrada en vigor del Convenio internacional para la seguridad de la vida humana en el mar, 1974, casos en los que se deberá consignar la fecha completa.
+(*)SUPLEMENTO DEL CERTIFICADO DE SEGURIDAD DE
+CONSTRUCCIÓN PARA BUQUE DE CARGA
+(Sello oficial) (Nacionalidad)
+Expedido en virtud de las disposiciones del
+PROTOCOLO LE 1978 RELATIVO AL CONVENIO INTERNACIONAL PARA LA SEGURIDAD DE LA VIDA HUMANA EN EL MAR , 1974
+Nombre del buque | Número o letras distintivos | Puerto de matrícula | Peso muerto del buque (toneladas métricas) | Año de construcción
+| | | |
+Tipo de buque:
+Buque tanque destinado a operar en el transporte de crudos*
+Buque tanque destinado a operar en el transporte de hidrocarburos que no sean crudos*
+Buque tanque destinado a operar en el transporte de crudos/otros hidrocarburos*
+Buque de carga distinto de un buque tanque destinado a operar en el transporte de hidrocarburos*
+* Táchese según proceda.
+El presente Suplemento irá siempre unido al Certificado de seguridad de construcción para buque de carga.
+Fecha del contrato de construcción o de la reforma o modificación de carácter importante…………………………………………………………………………………..
+Fecha en que se colocó la quilla o en que el buque se hallaba en fase equivalente de construcción o en que comenzó una reforma o una modificación de carácter importante…………………………………………………………………………………..
+Fecha de entrega del buque o de terminación de una reforma o de una modificación de carácter importante……………………………………………………..
+SE CERTIFICA:
+Que el buque ha sido objeto de reconocimiento de conformidad con lo dispuesto en la Regla 10 del Capítulo I del Protocolo de 1978 relativo al Convenio internacional para la seguridad de la vida humana en el mar, 1974; y
+Que el reconocimiento ha puesto de manifiesto que el estado del casco, de las máquinas y del equipo, según lo definido en la expresada Regla, es satisfactorio en todos los sentidos, y que el buque cumple con las prescripciones del Protocolo.
+El presente Certificado será válido hasta el……………de…………..de………sujeto a la realización del (de los) reconocimiento(s) intermedio(s) necesario(s) al término de(cada)……………………………….
+(indíquese el periodo)
+Expedido en…………………………………………………
+(lugar de expedición del Certificado)
+a…………….de……………..de 19… ………………………………………………………
+(firma del funcionario que, debidamente autorizado, expide el Certificado)
+(Sello o estampilla de la autoridad expedidora)
+RECONOCIMIENTO INTERMEDIO
+Se certifica que en el reconocimiento intermedio prescrito en la Regla 10 del Capítulo I del Protocolo de 1978 relativo al Convenio internacional para la seguridad de la vida humana en el mar, 1974, se ha comprobado que el buque cumple con las disposiciones pertinentes de dicho Protocolo
+Firmado:…………………………………………………………………..
+(firma del funcionario debidamente autorizado)
+Lugar:………………………………………………………………………
+Fecha:………………………………………………………………………
+El siguiente reconocimiento intermedio deberá efectuarse
+el………………………………………………………………..
+(Sello o estampilla de la autoridad)
+Firmado:…………………………………………………………
+(firma del funcionario debidamente autorizado)
+Lugar:…………………………………………………………….
+Fecha:……………………………………………………………
+El siguiente reconocimiento intermedio deberá efectuarse
+el………………………………………………………………..
+(Sello o estampilla de la autoridad)
+Firmado:………………………………………………………..
+(firma del funcionario debidamente autorizado)
+Lugar:…………………………………………………………..
+Fecha:…………………………………………………………..
+El siguiente reconocimiento intermedio deberá efectuarse
+el………………………………………………………………..
+(Sello o estampilla de la autoridad)
+(*)(Así adicionado el modelo de suplemento anterior al modelo de Certificado de seguridad de construcción para buques de carga, por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Modelo de Certificado de seguridad del equipo para buques de carga
 CERTIFICADO DE SEGURIDAD DEL EQUIPO PARA BUQUE
 DE CARGA
@@ -143,6 +194,54 @@ Si este documento va firmado, añádase lo siguiente:
 El infrascrito declara que está debidamente autorizado por el expresado Gobierno para expedir el presente certificado.
 (Firma)
 NOTA - Bastará con indicar el año en que la quilla fue colocada o en que la construcción del buque se hallaba en una fase equivalente, salvo por lo que respecta a 1952, 1965 y el año de entrada en vigor del Convenio internacional para la seguridad de la vida humana en el mar, 1974, casos en los que se deberá consignar la fecha completa.
+(*) SUPLEMENTO DEL CERTIFICADO DE SEGURIDAD DEL
+EQUIPO PARA BUQUE DE CARGA
+(Sello oficial) (Nacionalidad)
+Expedido en virtud de las disposiciones del
+PROTOCOLO DE 1978 RELATIVO AL CONVENIO INTERNACIONAL PARA LA SEGURIDAD DE LA VIDA HUMANA EN EL MAR , 1974
+Nombre del buque | Número o letras distintivos | Puerto de matrícula | Peso muerto del buque (toneladas métricas) | Año de construcción
+| | | |
+Tipo de buque:
+Buque tanque destinado a operar en el transporte de crudos*
+Buque tanque destinado a operar en el transporte de hidrocarburos que no sean crudos*
+Buque tanque destinado a operar en el transporte de crudos/otros hidrocarburos*
+Buque de carga distinto de un buque tanque destinado a operar en el transporte de hidrocarburos*
+* Táchese según proceda.
+El presente Suplemento irá siempre unido al Certificado de seguridad del equipo para buque de carga.
+Fecha del contrato de construcción o de la reforma o modificación de carácter importante…………………………………………………………………………………………..
+Fecha en que se colocó la quilla o en que el buque se hallaba en fase equivalente de construcción o en que se comenzó una reforma o una modificación de carácter importante ………………………………………………………………………………………….
+Fecha de entrega del buque o de terminación de una reforma o de una modificación de carácter importante………………………………………………………………………………..
+SE CERTIFICA:
+Que el buque ha sido objeto de reconocimiento de conformidad con lo dispuesto en la Regla 8 del Capítulo I del Protocolo de 1978 relativo al Convenio internacional para la seguridad de la vida humana en el mar, 1974; y
+Que el reconocimiento ha puesto de manifiesto que el estado del equipo de seguridad, según lo definido en la expresada Regla, es satisfactorio en todos los sentidos, y que el buque cumple con las prescripciones del Protocolo.
+El presente Certificado será válido hasta el…………….de……………….de……….. sujeto a la realización del(de los) reconocimiento(s) intermedio(s) necesario(s) al término de (cada)……………………………..
+(indíquese el periodo)
+Expedido en…………………………………………………
+(lugar de expedición del Certificado)
+a………..de…………..de 19…. ……………………………………………………………….
+(firma del funcionario que, debidamente autorizado, expide el Certificado)
+(Sello o estampilla de la autoridad expedidora)
+RECONOCIMIENTO INTERMEDIO
+Se certifica que en el reconocimiento intermedio prescrito en Regla 8 del Capítulo I del Protocolo de 1978 relativo al Convenio internacional para la seguridad de la vida humana en el mar, 1974, se ha comprobado que el buque cumple con las disposiciones pertinentes de dicho Protocolo.
+Firmado:…………………………………………………………………………………………
+(firma del funcionario debidamente autorizado)
+Lugar:…………………………………………………………………………………………….
+Fecha:…………………………………………………………………………………………….
+El siguiente reconocimiento intermedio deberá efectuarse el…………………………….
+(Sello o estampilla de la autoridad)
+Firmado:………………………………………………………………………………………….
+(firma del funcionario debidamente autorizado)
+Lugar:…………………………………………………………………………………………….
+Fecha:…………………………………………………………………………………………….
+El siguiente reconocimiento intermedio deberá efectuarse el………………………………
+(Sello o estampilla de la autoridad)
+En virtud de lo dispuesto en la Regla 14 del Capítulo I del Protocolo, se prorroga la validez del presente Certificado hasta el……………..de………..de……………
+Firmado:………………………………………………………………………………………..
+(firma del funcionario debidamente autorizado)
+Lugar:…………………………………………………………………………………………….
+Fecha:……………………………………………………………………………………………
+(Sello o estampilla de la autoridad)
+(*)(Así adicionado el modelo de suplemento anterior al modelo de Certificado de seguridad del Equipo para Buque de Carga, por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Modelo de Certificado de seguridad radiotelegráfica para buques de carga
 CERTIFICADO DE SEGURIDAD RADIOTELEGRÁFICA PARA
 BUQUE DE CARGA

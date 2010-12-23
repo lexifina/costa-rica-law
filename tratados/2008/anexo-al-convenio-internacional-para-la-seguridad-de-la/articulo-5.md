@@ -100,7 +100,8 @@ Lámparas de señales
 Todos los buques de arqueo bruto superior a 150 toneladas llevarán a bordo, cuando efectúen viajes internacionales, una eficiente lámpara de señales diurnas que no dependa exclusivamente de la fuente de energía eléctrica principal del buque.
 Regla 12
 Aparatos náuticos de a bordo
-a) Todos los buques de arqueo bruto igual o superior a 1.600 toneladas llevarán radar de un tipo aprobado por la Administración. En el puente de estos buques habrá medios que permitan efectuar el punteo con los datos proporcionados por el radar.
+a) Todos los buques de arqueo bruto igual o superior a 1 600 toneladas pero inferior a 10 000 toneladas llevarán por lo menos un radar. Todos los buques de arqueo bruto igual o superior a 10 000 toneladas llevarán por lo menos dos radares, cada uno de ello3 capaz de funcionar independientemente del otro. Todos los radares instalados en cumplimiento de la presente Regla serán de un tipo aprobado por la Administración y se ajustarán a normas operacionales no inferiores a las adoptadas por la Organización. En el puente de estos buques habrá medios que permitan efectuar el punteo con los datos proporcionados por el radar.
+(Así refromado el párrafo a) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 b) Todos los buques de arqueo bruto igual o superior a 1.600 toneladas irán provistos, cuando efectúen viajes internacionales, de un radiogoniómetro que satisfaga las disposiciones de la Regla 12 del Capítulo IV. La Administración podrá, en zonas en que considere irrazonable o innecesario que se lleve tal instrumento, eximir del cumplimiento de esta prescripción a buques cuyo arqueo bruto sea inferior a 5.000 toneladas, dando la debida consideración al hecho de que el radiogoniómetro es valioso no sólo como instrumento náutico, sino también como ayuda para la localización de buques, aeronaves y embarcaciones de supervivencia.
 c) Todos los buques de arqueo bruto igual o superior a 1.600 toneladas irán provistos, cuando efectúen viajes internacionales, de un girocompás, además de la aguja magnética. La Administración podrá, si considera irrazonable o innecesario exigir el girocompás, eximir del cumplimiento de esta prescripción a buques cuyo arqueo bruto sea inferior a 5.000 toneladas.
 d) Todos los buques nuevos de arqueo bruto igual o superior a 500 toneladas irán provistos, cuando efectúen viajes internacionales, de un ecosonda.
@@ -185,6 +186,33 @@ Empleo del piloto automático
 a) En zonas de gran densidad de tráfico o cuando la visibilidad sea limitada y en toda otra situación de navegación peligrosa en que se utilice el piloto automático, deberá ser posible restablecer en todo momento el control manual sobre el gobierno del buque.
 b) En las circunstancias que se acaban de enumerar deberá ser posible para el oficial de guardia disponer en el acto de los servicios de un timonel calificado, que en todo momento estará preparado para hacerse cargo del gobierno del buque.
 c) El cambio del gobierno automático al gobierno manual y viceversa será efectuado por un oficial o bajo la vigilancia de éste.
+d) El gobierno manual será objeto de comprobación después de toda utilización prolongada del piloto automático y antes de entrar en las zonas en que la navegación exija precauciones especiales.
+(Así adicionado el párrafo d) anterior a la regla 19) por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(*) Regla 19-1
+Funcionamiento del aparato de gobierno
+En las zonas en que la navegación exija precauciones especiales, a bordo habrá más de un servomotor del aparato de gobierno funcionando cuando los servomotores tengan aptitud para funcionar simultáneamente.
+(*)(Así adicionada la regla 19-1 anterior al Capítulo v) "Seguridad de la Navegación", por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(*) Regla 19-2
+Aparato de gobierno - Comprobación y prácticas
+a) Dentro de las 12 horas previas a la salida del buque, la tripulación verificará y probará el aparato de gobierno. El procedimiento de comprobación comprenderá, según proceda, el funcionamiento de:
+i) el aparato de gobierno principal;
+ii) el aparato de gobierno auxiliar;
+iii) los sistemas de telemando del aparato de gobierno;
+iv) los puestos de gobierno situados en el puente de navegación;
+v) la fuente de energía de emergencia;
+vi) los axiómetros, tomando como referencia la posición real del timón;
+vii) los dispositivos de alarma para fallos en el suministro de energía eléctrica destinada a los sistemas de telemando del aparato de gobierno; y
+viii) los dispositivos de alarma para fallos del servomotor del aparato de gobierno.
+b) Las verificaciones y pruebas comprenderán:
+i) el recorrido completo del timón de acuerdo con las características que el aparato de gobierno deba reunir;
+ii) la inspección visual del aparato de gobierno y de sus conexiones articuladas; y
+iii) el funcionamiento de los medios de comunicación existentes entre el puente de navegación y el compartimiento del aparato de gobierno.
+c) i) En el puente de navegación y en el compartimiento del aparato de gobierno habrá expuestas permanentemente unas sencillas instrucciones de manejo con un diagrama funcional que muestre los procedimientos de conmutación de los sistemas de telemando del aparato de gobierno y de los servomotores de éste.
+ii) Todos los oficiales encargados del manejo o el mantenimiento del aparato de gobierno estarán familiarizados con el funcionamiento de los sistemas de gobierno instalados en el buque y con los procedimientos para pasar de un sistema a otro.
+d) Además de las verificaciones y pruebas normales prescritas en los párrafos a) y b) de la presente Regla, se efectuarán prácticas de gobierno del buque en situaciones de emergencia por lo menos una vez cada tres meses, a fin de adquirir experiencia en los procedimientos de gobierno apropiados para esas situaciones. Dichas prácticas comprenderán el mando directo desde el compartimiento del aparato de gobierno, los procedimientos de comunicación con el puente de navegación y, cuando proceda, la utilización de las fuentes secundarias de energía.
+e) La Administración podrá no obligar a satisfacer la prescripción de efectuar las verificaciones y pruebas prescritas en los párrafos a) y b) de la presente Regla con respecto a los buques que realicen con regularidad viajes de corta duración. Dichos buques deberán efectuar las verificaciones y pruebas mencionadas por lo menos una vez semanalmente.
+f) La fecha en que se efectúen las verificaciones y pruebas prescritas en los párrafos a) y b) de la presente Regla y la fecha y los pormenores de las prácticas de gobierno del buque en situaciones de emergencia efectuadas en virtud del párrafo d) de la presente Regla, se anotarán en el Diario de navegación prescrito por la Administración.
+(*)(Así adicionada la regla 19-2 anterior al Capítulo v) "Seguridad de la Navegación", por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 20
 Publicaciones náuticas
 A bordo de todo buque deberá haber los adecuados derroteros, instrucciones para la navegación, libros de faros, avisos a navegantes, tablas de mareas y cualquier otra publicación náutica necesaria para el viaje proyectado, todo ello debidamente actualizado.

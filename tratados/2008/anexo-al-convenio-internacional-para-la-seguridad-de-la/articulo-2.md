@@ -1,6 +1,8 @@
 CAPITULO II -1
-CONSTRUCCION - COMPARTIMENTADO Y ESTABILIDAD,
-MAQUINAS E INSTALACIONES ELÉCTRlCAS
+CONSTRUCCIÓN - COMPARTIMENTADO Y ESTABILIDAD, INSTALACIONES
+DE MAQUINAS E INSTALACIONES ELÉCTRICAS
+PARTE A - GENERALIDADES
+(Modificado por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante tratado internacional N° 8708 del 26 de febrero del 2009)
 PARTE A - GENERALIDADES
 Regla 1
 Ámbito de aplicación
@@ -14,6 +16,19 @@ iii) Todo buque en que se efectúen reparaciones, reformas, modificaciones y la 
 b) A los efectos del presente Capítulo;
 i) Por buque de pasaje nuevo se entenderá todo buque de pasaje cuya quilla haya sido colocada, o cuya construcción se halle en una fase equivalente, en la fecha de entrada en vigor del presente Convenio o posteriormente, y todo buque de carga que sea transformado en buque de pasaje en dicha fecha o posteriormente. Todos los demás buques de pasaje serán considerados buques de pasaje existentes.
 ii) Por buque de carga nuevo se entenderá todo buque de carga cuya quilla haya sido colocada, o cuya construcción se halle en una fase equivalente, después de la fecha de entrada en vigor del presente Convenio.
+(*) iii) No obstante lo dispuesto en el apartado ii) del presente párrafo y en el párrafo a) iii) de la presente Regla, a los efectos de la Regla 29 d) del presente Capítulo por buque tanque nuevo se entenderá:
+1) un buque tanque respecto del cual se adjudique el oportuno contrato de construcción después del 1 de junio de 1979; o
+2) en ausencia de un contrato de construcción, un buque tanque cuya quilla sea colocada o cuya construcción se halle en una fase equivalente después del 1 de enero de 1980; o
+3) un buque tanque cuya entrega se produzca después del 1 de junio de 1982; o
+4) un buque tanque que haya sido objeto de una reforma o una modificación de carácter importante:
+aa) para las cuales se adjudique el oportuno contrato después del 1 de junio de 1979; o
+bb) respecto de las cuales, en ausencia de un contrato, el trabajo de construcción se inicie después del 1 de enero de 1980; o
+cc) que queden terminadas después del 1 de junio de 1982.
+(*)(Así adicionado el punto iii) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(*) iv) A los efectos de la Regla 29 d) del presente Capítulo, por buque tanque existente se entenderá un buque tanque que no sea un buque tanque nuevo según se define éste en el apartado iii) del presente párrafo.
+(*)(Así adicionado el punto iv) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(*) v) A los efectos del apartado iii) del presente párrafo, no se considerará que la transformación de un buque tanque existente de peso muerto igual o superior a 20 000 toneladas métricas realizada para satisfacer las prescripciones del presente Protocolo o del Protocolo de 1978 relativo al Convenio internacional para prevenir la contaminación por los buques, 1973, constituye una reforma o una modificación de carácter importante.
+(*)(Así adicionado el punto iv) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 c) Si la Administración considera que la ausencia de riesgos y las condiciones del viaje son tales que hacen irrazonable o innecesaria la aplicación de cualesquiera prescripciones concretas del presente Capítulo, podrá eximir de ellas a determinados buques o clases de buques que pertenezcan al mismo país que la Administración y que en el curso de su viaje no se alejen más de 20 millas de la tierra mas próxima.
 d) Todo buque de pasaje que de conformidad con la Regla 27 c) del Capítulo III este autorizado para llevar a bordo un número de personas que exceda de la capacidad de los botes salvavidas de que vaya provisto, deberá cumplir con las normas especiales de compartimentado establecidas en la Regla 5 e) del presente Capítulo y con las disposiciones especiales conexas que acerca de la permeabilidad se dan en la Regla 4 d) del presente Capítulo, a menos que, considerando la naturaleza y las condiciones del viaje, la Administración estime que basta con dar cumplimiento a lo estipulado en las demás disposiciones de las Reglas del presente Capítulo y del Capítulo II - 2 del presente Convenio.
 e) En el caso de buques de pasaje utilizados en tráficos especiales para transportar grandes números de pasajeros incluidos en tráficos de ese tipo, como ocurre con el transporte de peregrinos, la Administración, si considera que el cumplimiento de las prescripciones exigidas en el presente Capítulo es prácticamente imposible, podrá eximir a tales buques, cuando pertenezcan a su mismo país, del cumplimiento de tales prescripciones a condición de que satisfagan lo dispuesto en:
@@ -36,6 +51,17 @@ Si se trata de una disposición estructural poco habitual, la Administración po
 i) Espacios de pasajeros son los destinados al alojamiento y uso de los pasajeros, excluyendo los pañoles de equipajes, pertrechos, provisiones y correo.
 A fines de aplicación de las Reglas 4 y 5 del presente Capítulo, los espacios destinados bajo la línea de margen al alojamiento y uso de la tripulación serán considerados como espacios de pasajeros.
 j) En todos los casos los volúmenes y las áreas serán calculados hasta las líneas de trazado.
+k) Sistema de telemando del aparato de gobierno es el medio por el cual se transmiten los necesarios movimientos de timón desde el puente de navegación hasta los mandos del servomotor del aparato de gobierno.
+(Así adicionado el inciso k) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+l) Aparato de gobierno principal es el conjunto de la maquinaria, los servomotores que pueda haber de dicho aparato y el equipo auxiliar, así como los medios provistos (caña o sector) con miras a transmitir el par torsor a la mecha del timón, necesario para mover el timón a fin de gobernar el buque en condiciones normales de servicio.
+(Así adicionado el inciso l) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(*) m) Servomotor del aparato de gobierno es:
+i) en el caso de un aparato de gobierno eléctrico, un motor eléctrico con su correspondiente equipo eléctrico;
+ii) en el caso de un aparato de gobierno electrohidráulico, un motor eléctrico con su correspondiente equipo eléctrico y la bomba a la que esté acoplado;
+iii) en el caso de otros tipos de aparato de gobierno hidráulico, el motor impulsor y la bomba a la que esté acoplado.
+(*)(Así adicionado el inciso m) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+n) Aparato de gobierno auxiliar es el equipo provisto para mover el timón a fin de gobernar el buque en caso de avería del aparato de gobierno principal.
+(Así adicionado el inciso n) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 PARTE B-COMPARTlMENTADO Y ESTABILIDAD*.
 (La Parte B es solamente aplicable a los buques de pasaje, con excepción
 de la Regla 19, que se aplica también a los buques de carga.)
@@ -60,13 +86,11 @@ e = volumen de los espacios de entrepuente situados por debajo de la línea de m
 v = volumen total del espacio de máquinas que quede por debajo de la línea de margen.
 ii) En los casos en que se demuestre de manera satisfactoria para la Administración que la permeabilidad media determinada por un cálculo efectuado directamente es menor que la resultante de la fórmula, podrá utilizarse el valor obtenido por ese cálculo directo. A los fines de tal cálculo, la permeabilidad de los espacios de pasajeros, tal como dichos espacios quedan definidos en la Regla 2 del presente Capítulo, se considerará igual a 95; la de todos los espacios de carga, carbón y pertrechos, igual a 60; Y la de los tanques de doble fondo, tanques de combustible y otros tanques tendrá el valor que se apruebe en cada caso.
 c) Salvo en el caso previsto en el párrafo d) de la presente Regla, la permeabilidad media uniforme correspondiente a toda la parte del buque situada a proa (o a popa) del espacio de máquinas vendrá determinada por la fórmula
-[imagen]
 en la que
 a = volumen de los espacios de pasajeros, tal como dichos espacios quedan definidos en la Regla 2 del presente Capítulo, situados por debajo de la línea de margen, a proa (o a popa) del espacio de maquinas; y
 v = volumen total de la parte del buque situada por debajo de la línea de
 margen, a proa (o a popa) del espacio de máquinas.
 d) Cuando, de conformidad con lo dispuesto en la Regla 27 c) del Capítulo III, el buque esté autorizado para llevar a bordo un número de personas que rebase la capacidad de los botes salvavidas de que vaya provisto, y en cumplimiento de lo dispuesto en la Regla 1 d) del presente Capítulo deba satisfacer disposiciones especiales, la permeabilidad media uniforme correspondiente a toda la parte del buque situada a proa (o a popa) del espacio de máquinas vendrá determinada por la fórmula
-[imagen]
 en la que
 b = volumen de los espacios situados debajo de la línea de margen y encima de la parte superior de varengas, forro interior o tanques de rasel, según sea el caso, y utilizados, según los servicios a que hayan sido asignados, como espacios de carga, carboneras o tanques .de combustible líquido, pañales de pertrechos, equipaje y correo, cajas de cadenas y tanques de agua dulce, que se hallen a proa (o a popa) del espacio de máquinas; y
 v = volumen total de la parte del buque situada por debajo de la línea de margen, a proa (o a popa) del espacio de máquinas.
@@ -81,7 +105,6 @@ El factor de subdivisión dependerá de la eslora del buque y, para una eslora d
 i) a medida que la eslora del buque aumente, y
 ii) partiendo de un factor A, aplicable a los buques destinados principalmente al transporte de mercancías, hasta llegar a un factor B, aplicable a los buques destinados principalmente al transporte de pasajeros.
 Las variaciones de los factores A y B vendrán dadas por las fórmulas (I) y (Il), consignadas a continuación, en las que L es la eslora del buque, tal corno ésta queda definida en la Regla 2 del presente Capítulo:
-[imagen]
 c) Criterio de servicio. Para un buque de una eslora dada el factor de subdivisión apropiado se determinará mediante el coeficiente de criterio de servicio
 (en adelante llamado coeficiente de criterio) que dan las fórmulas (III) y (IV), luego consignadas, en las que:
 C = coeficiente de criterio;
@@ -98,36 +121,26 @@ Eslora en metros y volúmenes en metros cúbicos O,056L
 Eslora en pies y volúmenes en pies cúbicos O,6L
 Cuando el valor de KN sea mayor que la suma de P y el volumen total de los espacios de pasajeros que realmente se hallen situados por encima de la línea de margen, la cifra que se asignará a P1 será la resultante de esa suma o la correspondiente a dos tercios de KN, si este valor es mayor que aquél.
 Cuando P1 sea mayor que P,
-[imagen]
 y en los otros casos,
-[imagen]
 En los buques que carezcan de cubierta corrida de cierre los volúmenes se medirán hasta la línea de margen utilizada en la determinación de la eslora inundable.
 d) Normas para el compartimentado de buques no comprendidos en el párrafo e) de la presente Regla
 i) El compartimentado a popa del rase! de proa de los buques cuya eslora sea igual o superior a 131 metros (430 pies) y cuyo coeficiente de criterio sea igualo inferior a 23, estará regido por el factor A, que da la fórmula (1); el de los buques cuyo coeficiente de criterio sea igual o superior a 123, por el factor B, que da la fórmula ( I ), y el de los buques cuyo coeficiente de criterio esté comprendido entre 23 y 123, por el factor F, que se obtiene por interpolación lineal entre los factores A y B empleando la fórmula
-[imagen]
 Sin embargo, cuando dicho criterio sea igual o superior a 45 y, a la vez, el factor de subdivisión determinado por la fórmula (V) sea igual o inferior a 0,65, pero superior a 0,50, el compartimentado a popa del rasel de proa estará regido por el factor 0,50.
 Cuando el factor F sea inferior a 0,40 y se demuestre de manera satisfactoria para la Administración que es prácticamente imposible adoptarlo para un compartimiento de máquinas, el compartimentado de este espacio podrá estar regido por un factor mayor, que, sin embargo, no excederá de 0,40.
 ii) El compartimentado a popa del rasel de proa de los buques cuya eslora sea inferior a 131 metros (430 pies), pero no inferior a 79 metros (260 pies), y cuyo coeficiente de criterio sea igual a S, siendo
-[imagen]
 estará regido por un factor igual a la unidad; el de los buques cuyo coeficiente de criterio sea igualo superior a 123, por el factor B, que da la fórmula (II), y el de los buques cuyo coeficiente de criterio esté comprendido entre S y 123, por el factor F, que se obtiene por interpolación lineal entre la unidad y el factor B, empleando la fórmula
-[imagen]
 iii) El compartimentado a popa del rasel de proa de los buques cuya eslora sea inferior a 131 metros ( 430 pies) pero no inferior a 79 metros (260 pies), y cuyo coeficiente de criterio sea inferior a S, así como el de todos los buques cuya eslora sea inferior a 79 metros (260 pies), estará regido por un factor igual a la unidad, a menos que, en cualquiera de ambos casos, se demuestre de manera satisfactoria para la Administración que es prácticamente imposible adoptar este factor para ninguna parte del buque, en cuyo caso la Administración podrá permitir la suavización que estime justificada en la aplicación de esta norma, consideradas todas las circunstancias.
 iv) Lo dispuesto en el apartado iii) del presente párrafo será también de aplicación a los buques para los que, sea cual fuere su eslora, se vaya a expedir un certificado autorizándoles a transportar un número de pasajeros superior a 12, pero que no exceda de
-[imagen]
 e) Normas especiales de compartimentado para los buques que de conformidad con la Regla 27 c) del Capítulo III estén autorizados para llevar a bordo un número de personas que rebase la capacidad de los botes salvavidas de que vayan provistos y que en cumplimiento de la Regla I d) del presente Capítulo deban satisfacer disposiciones especiales
 i) 1) En el caso de buques destinados principalmente al transporte de pasajeros, el compartimentado a popa del rasel de proa estará regido por un factor igual a 0,50 o por e! factor determinado de acuerdo con lo dispuesto en los párrafos e) y d) de la presente Regla, si e! valor de éste es inferior a 0,50.
 2) En el caso de buques de esta clase cuya eslora sea inferior a 91,50 metros (300 pies), si la Administración considera que es prácticamente imposible aplicar ese factor a un compartimiento, podrá permitir que la longitud de dicho compartimiento esté regida por un factor mayor, con tal de que éste sea el menor que resulte posible y razonable aplicar, dadas las circunstancias.
 ii) Si en un buque cualquiera, sea su eslora inferior o no a 91,50 metros (300 pies), la necesidad de que transporte carga en cantidades considerables impide a efectos prácticos exigir que el compartimentado a popa del rasel de proa esté regido por un factor que no exceda de 0,50, la norma de compartimentado aplicable será determinada en armonía con los incisos numerados del 1) al 5) que se dan a continuación, a reserva de que cuando la Administración juzgue que sería poco razonable insistir en el cumplimiento rígido de esta norma, en el sentido que sea, podrá autorizar otra disposición de los mamparos estancos que por sus cualidades esté justificada y que no baga menor la eficacia general del compartimentado.
 1) Serán de aplicación las disposiciones del párrafo e) de la presente Regla, relativas al coeficiente de criterio, salvo por lo que respecta al cálculo del valor de P1 para pasajeros con litera, en el que K tendrá como valor el definido en el párrafo e) de la presente Regla ó 3,55 metros cúbicos (125 pies cúbicos), si éste es el mayor de ambos valores; y para pasajeros sin litera, K tendrá un valor de 3,55 metros cúbicos (125 pies cúbicos).
 2) El factor B que figura en el párrafo b) de la presente Regla será sustituido por el factor BB, determinado por la fórmula siguiente:
-[imagen]
 3) El compartimentado a popa del rasel de proa de los buques cuya eslora sea igualo superior a 131 metros (430 pies) y cuyo coeficiente de criterio sea igualo inferior a 23, estará regido por el factor A, que da la fórmula (I) del párrafo b) de la presente Regla; el de los buques cuyo coeficiente de criterio sea igual o superior a 123" por el factor BB, que da la fórmula consignada en el apartado ii) 2) del presente párrafo; y el de los buques cuyo coeficiente de criterio esté comprendido entre 23 y 123, por el factor F, que se obtiene por interpolación lineal entre los factores A y BB, empleando la fórmula:
-[imagen]
 aunque si el factor F así obtenido es inferior a 0,50, el factor que se deberá utilizar será 0,50 ó el calculado de acuerdo con lo dispuesto en el párrafo d) i) de la presente Regla, si éste es menor.
 4) El compartimentado a popa del rasel de proa de los buques cuya eslora sea inferior a 131 metros (430 pies), pero no inferior a 55 metros (180 pies), y cuyo coeficiente de criterio sea igual a S1 siendo
-[imagen]
 estará regido por un factor igual a la unidad; el de los buques cuyo coeficiente de criterio sea igualo superior a 123, por el factor BB, dado por la fórmula consignada en el apartado ii) 2) del presente párrafo; el de los buques cuyo coeficiente de criterio esté comprendido entre S1 y 123, por el factor F; que se obtiene por interpolación lineal entre la unidad y el factor BB, empleando la fórmula:
-[imagen]
 aunque si, en cualquiera de estos dos casos últimos, el factor así obtenido es inferior a 0,50, el compartimentado podrá estar regido por un factor que no exceda de 0,50.
 5) El compartimentado a popa del rasel de proa de los buques cuya eslora sea inferior a 131 metros (430 pies), pero no inferior a 55 metros (180 pies), y cuyo coeficiente de criterio sea inferior a S1 así como el de todos los buques cuya eslora sea inferior a 55 metros (180 pies), estará regido por un factor igual a la unidad, a menos que se demuestre de manera satisfactoria para la Administración que es prácticamente imposible adoptar este factor para determinados compartimientos, en cuyo caso la Administración podrá permitir, respecto de estos compartimientos, la suavización que estime justificada en la aplicación de esta norma, consideradas todas las circunstancias y con tal de que el compartimiento situado más a popa y el mayor número posible de los compartimientos situados a proa (entre el rasel de proa y el extremo de popa del espacio de máquinas) no tengan una eslora superior a la inundable.
 Regla 6
@@ -321,12 +334,10 @@ iv) Cuando se utilice o se pueda utilizar carbón como combustible y entre las m
 h) i) Las tuberías de las bombas prescritas para agotar los espacios de carga o de máquinas serán completamente distintas de las que se puedan utilizar para llenar o vaciar los espacios en que se transporte agua o combustible líquido.
 ii) Todo ramal de sentina utilizado en el interior o debajo de carboneras o de tanques de almacenamiento de combustible líquido, yen espacios de calderas o de máquinas, con inclusión de los espacios en que se hallen los tanques de sedimentación o los grupos de bombeo de combustible, serán de acero o de otro material aprobado.
 i) El diámetro del colector de achique será calculado utilizando las fórmulas dadas a continuación, si bien el diámetro interior real de dicho colector podrá ser el del tamaño normalizado más próximo que la Administración juzgue aceptable:
-[imagen]
 donde: d = diámetro interior del colector de achique, en milímetros,
 L y B son, expresadas en metros, la eslora y la manga del buque, tal como éstas quedan definidas en la Regla 2 del presente Capítulo, y
 D = puntal de trazado del buque, medido hasta la cubierta de cierre, en metros;
 o bien
-[imagen]
 donde: d = diámetro interior del colector de achique, en pulgadas,
 L y B son, expresadas en pies, la eslora y la manga del buque, tal como éstas quedan definidas en la Regla 2 del presente Capítulo, y
 D = puntal de trazado del buque, medido hasta la cubierta de cierre, en pies.
@@ -437,8 +448,10 @@ a) Buques de pasaje y buques de carga
 Todo buque tendrá potencia suficiente para dar marcha atrás, de modo que la maniobra correcta en todas las circunstancias normales esté garantizada.
 b) Buques de pasaje solamente
 En el reconocimiento inicial que del buque se haga deberá quedar demostrada la aptitud de la maquinaria para invertir el sentido del empuje de la hélice en un tiempo adecuado, en condiciones normales de maniobra, para que el buque, navegando a su velocidad máxima de servicio en marcha avante, quede detenido.
+PARTE C - INSTALACIONES DE MAQUINAS E INSTALACIONES ELÉCTRICAS(*)
 Regla 29
-Aparato de gobierno*
+Aparato de gobierno
+(*)(Modificado por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 *Véase "Recomendación sobre mecanismo de dirección para grandes buques", aprobada por la Organización mediante la Resolución A.210(VII).
 a) Buques de pasaje y buques de carga
 i) Todo buque contará con un aparato de gobierno principal y un aparato de gobierno auxiliar que a juicio de la Administración sean satisfactorios.
@@ -454,6 +467,22 @@ v) Se instalarán medios que la Administración considere satisfactorios para pe
 c) Buques de carga solamente
 i) El aparato de gobierno auxiliar será del tipo de accionamiento mecánico en los casos en que la Administración exija que la mecha del timón tenga un diámetro de más de 355,6 milímetros (14 pulgadas) a la altura de la caña. .
 ii) Cuando los servomotores del aparato de gobierno, con las conexiones correspondientes, vayan instalados por duplicado de un modo que la Administración juzgue satisfactorio, y cada uno de dichos servomotores satisfaga lo dispuesto en el apartado iii) del párrafo a) de la presente Regla, no será necesario exigir un aparato de gobierno auxiliar, con tal de que los servomotores y las conexiones duplicados que funcionan conjuntamente satisfagan lo dispuesto en el apartado ii) del párrafo a) de la presente Regla.
+(*) d) Buques tanque solamente
+i) Las disposiciones siguientes se aplicarán a todos los buques tanque nuevos de arqueo bruto igual o superior a 10 000 toneladas y, dentro de un plazo de dos años, contado a partir de la fecha de entrada en vigor del presente Protocolo, a todos los buques tanque existentes de arqueo bruto igual o superior a 10 000 toneladas.
+1) irán provistos de dos sistemas de telemando del aparato de gobierno, cada uno de los cuales podrá accionarse separadamente desde el puente de navegación. Ello no supondrá la necesidad de duplicar la rueda o la caña del timón. En caso de avería del sistema de telemando del aparato de gobierno que esté operando, se podrá operar con el otro sistema inmediatamente desde un punto situado en el puente de navegación. Cada uno de los sistemas de telemando del aparato de gobierno será alimentado, si es eléctrico, por su propio circuito independiente, abastecido a su vez por el circuito de energía del aparato de gobierno desde un punto situado en el compartimiento del aparato de gobierno. Dado que falle el suministro de energía eléctrica a uno de los sistemas de telemando del aparato de gobierno, se dará la alarma en el puente de navegación. Las alarmas prescritas en el presente apartado serán sonoras y visuales y estarán situadas en un punto del puente de navegación en que se puedan observar fácilmente;
+2) en el compartimiento del aparato de gobierno habrá asimismo medios para el mando del aparato de gobierno principal;
+3) en el compartimiento del aparato de gobierno habrá medios para desconectar del circuito de energía el sistema de telemando del aparato de gobierno;
+4) habrá medios de comunicación entre el puente de navegación y el compartimiento del aparato le gobierno;
+5) la posición angular exacta del timón vendrá indicada en el puente de navegación. Tal indicación no dependerá del sistema de telemando del aparato de gobierno; y
+6) será posible comprobar la posición angular del timón en el compartimiento del aparato de gobierno-
+ii) Además de lo prescrito en los párrafos a) y d) i) de la presente Regla, todos los buques tanques nuevos cuyo arqueo bruto sea igual o superior a 10 000 toneladas cumplirán con las siguientes prescripciones:
+1) el aparato de gobierno principal estará provisto de dos o más servomotores idénticos y será capaz de accionar el timón tal como se prescribe en el párrafo d) ii) 2) de la presente Regla, funcionando con uno o más servomotores. Dentro de lo razonable y posible, el aparato de gobierno principal estará instalado de modo que la avería aislada ocurrida en sus tuberías o en uno de los servomotores no disminuya la integridad del resto del aparato. Todos los acoplamientos mecánicos que formen parte del aparato de gobierno y la conexión mecánica con todo sistema de telemando del aparato de gobierno, que pueda haber serán de una construcción sólida y de garantía que la Administración juzgue satisfactoria;
+2) hallándose el buque navegando a la velocidad máxima de servicio en marcha avante y con su calado máximo en agua salada, el aparato de gobierno principal deberá poder cambiar el timón desde una posición de 35 grados a una banda hasta otra de 35 grados a la banda opuesta. Se podrá cambiar el timón desde una posición de 35 grados a cualquiera de ambas bandas hasta otra de 30 grados a la banda opuesta sin que ello lleve más de 28 segundos, dadas las mismas condiciones;
+3) el aparato de gobierno principal deberá ser de accionamiento mecánico siempre que sea necesario para cumplir con lo prescrito en el párrafo d) ii) 2) de la presente Regla;
+4) los servomotores del aparato de gobierno principal serán de un tipo que arranque automáticamente cuando, después de haber fallado el suministro de energía, se normalice ese suministro;
+5) dado que falle uno cualquiera de los servomotores del aparato de gobierno se dará la alarma en el puente de navegación. Se podrá poner en funcionamiento automática o manualmente cada uno de los servomotores desde un punto situado en el puente de navegación; y
+6) se proveerá un suministro secundario de energía derivada de la fuente de energía eléctrica de emergencia o de otra fuente independiente de energía situada en el compartimiento del aparato de gobierno, que pueda entrar en acción automáticamente sin tardar más de 45 segundos y que baste para alimentar por lo menos un servomotor del aparato de gobierno de modo que éste pueda accionar el timón tal como se especifica más abajo, y también para alimentar el correspondiente sistema de telemando del aparato de gobierno y el axiómetro. La citada fuente independiente de energía sólo se utilizará para este fin y tendrá capacidad suficiente para funcionar ininterrumpidamente durante media hora. Hallándose el buque navegando a la mitad de su velocidad máxima de servicio en marcha avante, o a 7 nudos si esta velocidad fuera mayor, y con su calado máximo en agua salada, el servomotor del aparato de gobierno, mientras esté siendo alimentado por la fuente secundaria de energía, deberá poder cambiar el timón desde una posición de 15 grados a una banda hasta otra de 15 grados a la banda opuesta sin que ello lleve más de 60 segundos.
+(*)(Así adicionado el apartado d) anterior a la regla 29) por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 30
 Aparatos de gobierno eléctricos y electrohidráulicos*
 *Véase "Recomendación sobre mecanismo de dirección para grandes buques", aprobada por la Organización mediante la Resolución A.210(VII).
@@ -482,6 +511,19 @@ a) A los efectos del presente Capítulo:
 i) Por buque de pasaje nuevo se entenderá todo buque cuya quilla haya sido colocada, o cuya construcción se halle en una fase equivalente, en la fecha de entrada en vigor del presente Convenio o posteriormente, y todo buque de carga que sea transformado en buque de pasaje a partir de la citada fecha. Todos los demás buques de pasaje serán considerados buques existentes.
 ii) Por buque de carga nuevo se entenderá todo buque de carga cuya quilla haya sido colocada, o cuya construcción se halle en una fase equivalente, en la fecha de entrada en vigor del presente Convenio o posteriormente.
 iii) Todo buque en que se efectúen reparaciones, reformas, modificaciones y la consiguiente instalación de equipo seguirá satisfaciendo cuando menos las prescripciones que ya le eran aplicables antes. Por regla general, todo buque existente que se encuentre en ese caso satisfará en no menor medida que antes las prescripciones aplicables a un buque nuevo. Las reparaciones, reformas y modificaciones de gran importancia y la consiguiente instalación de equipo satisfarán las prescripciones aplicables a un buque nuevo hasta donde la Administración juzgue razonable y factible.
+(*)iv) No obstante lo dispuesto en los apartados ii) y iii) del presente párrafo, a los efectos de las Reglas 55 a ) ii) y 60 del presente Capítulo por buque tanque nuevo se entenderá:
+1) un buque tanque respecto del cual se adjudique el oportuno contrato de construcción después del 1 de junio de 1979; o
+2) en ausencia de un contrato de construcción, un buque tanque cuya quilla sea colocada o cuya construcción se halle en una fase equivalente después del 1 de enero de 1980; o
+3) un buque tanque cuya entrega se produzca después del 1 de junio de 1982; o
+4) un buque tanque que haya sido objeto de una reforma o una modificación de carácter importante
+aa) para las cuales se adjudique el oportuno contrato después del 1 de junio de 1979 o
+bb) respecto de las cuales, en ausencia de un contrato, el trabajo de construcción se inicie después del 1 de enero de 1980; o
+cc) queden terminadas después del 1 de junio de 1982.
+(*)(Así adicionado el punto iv) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+v) A los efectos de las Reglas 55 a ) ii) y 60 del presente Capítulo, por buque tanque existente se entenderá un buque tanque que no sea un buque tanque nuevo según se define éste en el apartado iv) del presente párrafo.
+(Así adicionado el punto v) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+vi) A los efectos del apartado iv) del presente párrafo, no se considerará que la transformación de un buque tanque existente de peso muerto igual o superior a 20 000 toneladas métricas realizada para satisfacer las prescripciones del presente Protocolo o del Protocolo de 1978 relativo al Convenio internacional para prevenir la contaminación por los buques, 1973, constituye una reforma o una modificación de carácter importante.
+(Así adicionado el punto vi) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 b) Salvo disposición expresa en otro sentido:
 i) Las Reglas 4 a 16 de la Parte A del presente Capítulo serán de aplicación a los buques nuevos.
 ii) La Parte B del presente Capítulo se aplicará a los buques de pasaje nuevos que transporten más de 36 pasajeros.
@@ -562,8 +604,13 @@ iv) todos los revestimientos de piso tienen, en medida que la Administración ha
 v) todas las superficies expuestas de los mamparos, revestimientos y techos tienen características de débil propagación de la llama.
 t) "Cubierta de cierre" es la cubierta más elevada hasta la cual llegan los mamparos estancos transversales.
 u) "Peso muerto" es la diferencia, expresada en toneladas métricas, entre el desplazamiento del buque en agua de un peso específico de 1,025, correspondiente a la flotación de francobordo asignado de verano, y el peso del buque vacío.
-v) "Peso del buque vacío", valor que se expresa en toneladas métricas, es el desplazamiento de un buque sin carga, combustible, aceite lubricante, agua de lastre, agua dulce, agua de alimentación de calderas en los tanques ni provisiones de consumo, y sin pasajeros, tripulantes ni efectos de unos y otros.
+v) Po r"peso delbuque vacío", valor que se expresa en toneladas métricas, se entiende eldesplazamiento de un buque sin carga, combustible, aceite lubricante, agua delastre, agua dulce, agua de alimentación de calderas en los tanques niprovisiones de consumo, y sin pasajeros, tripulantes ni efectos de unos y otros.
+(Así reformado el inciso v) anterior por el anexo1° del Protocolo de 1978 relativo al Convenio Internacional para laSeguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 w) "Buque de carga combinado" es un buque tanque proyectado para transportar hidrocarburos o bien cargamentos sólidos a granel.
+(* )x) Por "crudo" se entiende toda mezcla de hidrocarburos líquidos que se encuentra en forma natural en la tierra, haya sido o no tratada para hacer posible su transporte; el término incluye:
+i) crudos de los que se hayan extraído algunas fracciones de destilados;
+ii) crudos a los que se hayan agregado algunas fracciones de destilados.
+(*)(Así adicionado el inciso x) anterior por el anexo1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridadde la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 4
 Planos de lucha contra incendios
 Permanentemente habrá expuestos en todos los buques nuevos y existentes, para orientación de los oficiales, planos de disposición general que muestren claramente respecto de cada cubierta los puestos de control, las distintas secciones de contención de incendios limitadas por divisiones de Clase "A", las secciones limitadas por divisiones de Clase "B" (si las hubiere) y detalles acerca de los dispositivos de alarma, sistemas detectores, instalación de rociadores (si la hubiere), dispositivos extintores, medios de acceso a los distintos compartimientos, cubiertas, etc., y el sistema de ventilación, con detalles acerca de la ubicación de los mandos de parada de los ventiladores, la posición de las válvulas de mariposa y los números de identificación de los ventiladores que haya al servicio de cada sección. O bien, si la Administración lo juzga oportuno, los pormenores que anteceden pueden figurar en un folleto del que se facilitará un ejemplar a cada oficial y del que siempre habrá un ejemplar a bordo en un sitio accesible. Los planos y folletos se mantendrán al día, y cualquier cambio producido será anotado en ellos tan pronto como sea posible. La exposición contenida en dichos planos y folletos irá en el idioma del país a que pertenezca el buque. Si ese idioma no es el inglés ni el francés, se acompañará una traducción a uno de estos dos idiomas. Además, las instrucciones relativas al mantenimiento y al funcionamiento del equipo e instalaciones que haya a bordo para combatir y contener incendios se conservarán, encuadernadas juntas y listas para ser utilizadas, en un sitio accesible.
@@ -1375,12 +1422,14 @@ b) Los motores que accionan los ventiladores deliro inducido y forzado, las bomb
 c) Todas las tuberías de aspiración de combustible líquido que arranquen de los tanques de almacenamiento, decantación o servicio diario, situadas por encima del doble fondo, estarán dotadas de un grifo o una válvula susceptibles de ser cerrados desde fuera del espacio de que se trate, si se produce un incendio en el espacio en que esos tanques estén situados. En el caso especial de tanques profundos situados en un túnel de ejes o de tuberías, dichos tanques llevarán válvulas, pero si se produce un incendio el control necesario podrá ser ejercido por medio de válvulas suplementarias instaladas en las tuberías, fuera de los túneles en cuestión.
 PARTE E - MEDIDAS DE SEGURIDAD CONTRA INCENDIOS
 EN BUQUES TANQUE
-Regla 55
+Regla 55(*)
 Ámbito de aplicación
-a) La presente Parte será de aplicación a todos los buques tanque nuevos que transporten crudos y productos derivados del petróleo cuyo punto de inflamación se dé a una temperatura que no exceda de 60°C (140°F) (prueba en vaso cerrado), verificado esto por un aparato de medida del punto de inflamación de tipo aprobado, y cuya presión de vapor Reid esté por debajo de la presión atmosférica, y otros productos líquidos que presenten un riesgo análogo de incendio.
-b) Además, todos los buques a los que se aplique esta Parte cumplirán con los prescrito en las Reglas 52, 53 y 54 del presente Capítulo, si bien el párrafo f) de la Regla 52 no será forzosamente aplicable a buques tanque que satisfagan lo dispuesto en la Regla 60 del presente Capítulo.
-c) Si se proyecta transportar cargamentos distintos de los citados en el párrafo a) de la presente Regla, que entrañen riesgos de incendio adicionales, se tomarán las medidas de seguridad complementarias que la Administración juzgue oportunas.
-d) Los buques de carga combinados no transportarán productos sólidos a menos que todos los tanques de carga se hallen vacíos de crudos y de gas desprendido o a menos que, en cada caso, las medidas adoptadas sean satisfactorias a juicio de la Administración.
+a) Salvo disposición expresa en otro sentido:
+i) la presente Parte será de aplicación a todos los buques tanque nuevos que transporten crudos y productos derivados del petróleo cuyo punto de inflamación se dé a una temperatura que no exceda de 60°C ( 140°F ) (prueba en vaso cerrado), verificado esto por un aparato de medida del punto de inflamación de tipo aprobado, y cuya presión de vapor Reid esté por debajo de la presión atmosférica, y otros productos líquidos que presenten un riesgo análogo de incendio;
+ii) además, todos los buques a los que se aplique esta Parte cumplirán con lo prescrito en las Reglas 52, 53 y 54 del Capítulo II-2 del Convenio, si bien no se utilizarán los sistemas fijos contraincendios, a base de gas, para los espacios de carga, en los buques tanque nuevos ni en los existentes que satisfagan lo dispuesto en la Regla 60 del presente Capítulo. Con respecto a los buques tanque existentes a los que no se exija que satisfagan la Regla 60, la Administración podrá, al aplicar lo prescrito en la Regla 52 f ), aceptar un sistema de espuma capaz de dirigir ésta al interior o al exterior de los tanques. Los pormenores de esta instalación deberán ser satisfactorios a juicio de la Administración.
+b) Si se proyecta transportar cargamentos distintos de los citados en el párrafo a) i) de la presente Regla que supongan riesgos adicionales de incendio, se tomarán las medidas de seguridad complementarias que la Administración juzgue oportunas.
+c) Los buques de carga combinados no transportarán productos sólidos a menos que todos los tanques de carga se hallen vacíos de crudos y de gas desprendido o a menos que, en cada caso, las medidas adoptadas sean satisfactorias a juicio de la Administración.
+(*)(Así sustituido el texto de la regla 55) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 56
 Ubicación y separación de los espacios
 a) Los espacios de Categoría A para máquinas estarán situados a popa de los tanques de carga y de decantación y aislados de los mismos por un coferdán, una cámara de bombas de carga o un tanque de combustible; estarán situados también a popa de las cámaras de bombas de carga y de los coferdanes citados, pero no necesariamente a popa de los tanques de combustible. No obstante, la parte inferior de la cámara de bombas podrá adentrarse en esos espacios para alojar bombas, a condición de que la altura del nicho así formado no exceda en general de un tercio del puntal de trazado por encima de la quilla. Excepcionalmente, tratándose de buques cuyo peso muerto no pase de 25.000 toneladas y si se puede demostrar que razones de acceso y la instalación satisfactoria de las tuberías hacen eso imposible, la Administración podrá permitir un nicho de altura superior a la indicada, pero que no exceda de la mitad del puntal de trazado por encima de la quilla.
@@ -1431,16 +1480,25 @@ c) Las cámaras de bombas de carga tendrán ventilación mecánica y los conduct
 Regla 59
 Medios de evacuación
 Además de lo prescrito en la Regla 53 a) del presente Capítulo, la Administración tendrá en cuenta que el personal debe disponer de acceso, desde cada camarote, a medios de evacuación de emergencia.
-Regla 60
+(*) Regla 60
 Protección de los tanques de carga
-a) En buques tanque de 100.000 toneladas o más de peso muerto y buques de carga combinados de 50.000 toneladas o más de peso muerto, a fin de proteger la zona de cubierta en que se encuentran los tanques de carga, y estos mismos tanques, habrá un sistema fijo de espuma instalado en cubierta y un sistema fijo de gas inerte ajustados a lo dispuesto en las Reglas 61 y 62 de la presente Parte. No obstante, en lugar de dichos sistemas, tras examinar la disposición del buque y su equipo la Administración podrá aceptar otras combinaciones de sistemas fijos si éstos ofrecen una protección equivalente, de conformidad con lo dispuesto en la Regla 5 del Capítulo I del presente Convenio.
+a) En los buques tanque nuevos de un peso muerto igual o superior a 20 000 toneladas métricas, a fin de proteger la zona cubierta en que se encuentran los tanques de carga y estos mismos tanques, habrá un sistema fijo de espuma instalado en cubierta y un sistema fijo de gas inerte ajustados a lo dispuesto en las Reglas 61 y 62 del Capítulo II-2 del Convenio. No obstante, en lugar de dichos sistemas, tras examinar la disposición del buque y su equipo la Administración podrá aceptar otras combinaciones de sistemas fijos si éstos ofrecen una protección equivalente, de conformidad con lo dispuesto en la Regla 5 del Capítulo I del Convenio.
 b) Para ser considerado como equivalente, el sistema propuesto en sustitución del de espuma en cubierta deberá:
 i) ser capaz de extinguir el fuego prendido en sustancias derramadas y de impedir la ignición del combustible derramado que todavía no esté ardiendo; y
 ii) ser capaz de combatir incendios en tanques averiados.
 c) Para que pueda ser considerado como equivalente, el sistema propuesto en sustitución del fijo de gas inerte deberá:
 i) ser capaz de impedir acumulaciones peligrosas de mezclas explosivas en los tanques de carga intactos durante el servicio normal, a lo largo de todo el viaje en lastre y mientras se efectúe toda operación necesaria en el interior de los tanques; y
 ii) haber sido proyectado de modo que el riesgo de ignición nacido de la generación de electricidad estática en el propio sistema quede reducido al mínimo.
-d) Respecto de buques tanque con peso muerto inferior a 100.000 toneladas y buques de carga combinados con peso muerto inferior a 50.000 toneladas la Administración podrá, en lo que concierne a la aplicación de lo estipulado en la Regla 52 f) del presente Capítulo, aceptar un sistema de espuma capaz de dirigir ésta al interior o al exterior de los tanques. Los pormenores de esta instalación deberán ser satisfactorios ajuicio de la Administración.
+d) Todo buque tanque existente de un peso muerto igual o superior a 20 000 toneladas métricas destinado a operar en el transporte de crudos estará dotado de un sistema de gas inerte que cumpla con lo prescrito en el párrafo a) de la presente Regla a partir de una fecha no posterior a:
+i) un plazo de dos años, contado desde la fecha de entrada en vigor del presente Protocolo, respecto de los buques tanque de peso muerto igual o superior a 70 000 toneladas métricas; y a
+ii) un plazo de cuatro años, contado desde la fecha de entrada en vigor del presente Protocolo, respecto de los buques tanque de peso muerto inferior a 70 000 toneladas métricas, si bien por lo que respecta a los que tengan un peso muerto inferior a 40 000 toneladas métricas y no estén dotados de máquinas de lavado de tanques cuyo caudal, por máquina, sea superior a 60 metros cúbicos por hora, la Administración podrá eximir a los que sean buques tanque existentes de las prescripciones del presente párrafo cuando no sea razonable ni posible aplicarlas, teniendo en cuenta las características de proyecto del buque.
+e) Todo buque tanque existente de un peso muerto igual o superior a 40 000 toneladas métricas destinado a operar en el transporte de hidrocarburos que no sean crudos y todo buque tanque existente de un peso muerto igual o superior a 20 000 toneladas métricas destinado a operar en el transporte de hidrocarburos que no sean crudos, dotado de máquinas de lavado de tanques cuyo caudal, por máquina, sea superior a 60 metros cúbicos por hora, estarán dotados de un sistema de gas inerte que cumpla con lo prescrito en el párrafo a) de la presente Regla a partir de una fecha no posterior a:
+i) un plazo de dos años, contado desde la fecha de entrada en vigor del presente Protocolo, respecto de los buques tanque de peso muerto igual o superior a 70 000 toneladas métricas; y a
+ii) un plazo de cuatro años, contado desde la fecha de entrada en vigor del presente Protocolo, respecto de los buques tanque de peso muerto inferior a 70 000 toneladas métricas.
+f) Todo buque tanque que utilice un procedimiento de lavado con crudos para los tanques de carga estará dotado de un sistema de gas inerte que cumpla con lo prescrito en la Regla 62 del Capítulo II-2 del Convenio y de máquinas de lavado fijas.
+g) Todos los buques tanques dotados de un sistema fijo de gas inerte irán provistos de un sistema de indicación del espacio vacío en los tanques sin abrir estos.
+h) Todo buque tanque nuevo de arqueo bruto igual o superior a 2 000 toneladas, no regido por las disposiciones del párrafo a) de la presente Regla, irá provisto de un sistema de espuma capaz de dirigir esta al interior o al exterior de los tanques. Los pormenores de esta instalación deberán ser satisfactorios a juicio de la Administración.
+(*)(Así sustituido el texto de la regla 60) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 61
 Sistema fijo de espuma instalado en cubierta
 El sistema fijo de espuma instalado en cubierta a que se hace referencia en la Regla 60 a) del presente Capítulo responderá a la siguiente concepción:
