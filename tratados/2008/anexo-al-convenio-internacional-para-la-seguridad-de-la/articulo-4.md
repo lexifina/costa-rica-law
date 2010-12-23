@@ -196,6 +196,12 @@ Servicios de escucha
 Esta escucha se realizará en el puesto habitual de gobierno del buque.
 Regla 13
 Fuentes de energía
+(Nota de Sianlevi: Mediante el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009 se disponen reformas a la presente regla. No obstante al no coincidir las reformas las misma se transcriben a continuación: " CAPITULO IV
+Regla 13
+Instalación radiotelegráfica para botes salvavidas a motor
+Se sustituye el titulo actual por "Instalación radiotelegráfica para botes salvavidas".
+En la primera línea del párrafo a), se sustituyen las palabras "regla 14 del capitulo III " por "regla III /6.2.2",
+En la segunda línea del párrafo h) se sustituyen las palabras "regla 14 del capitulo III " por "regla III /41.8.29".)
 1 Mientras el buque esté en la mar, se dispondrá en todo momento de un suministro de energía eléctrica suficiente paca hacer funcionar las instalaciones radioeléctricas y para cargar todas las baterías utilizadas como fuente o fuentes de energía de reserva de las instalaciones radioeléctricas.
 2 Todo buque irá provisto de una fuente o fuentes de energía de reserva para alimentar las instalaciones radioeléctricas, a fin de poder mantener las radiocomunicaciones de socorro y seguridad en caso de fallo de las fuentes de energía principal o de emergencia del buque.
 La fuente o fuentes de energía de reserva tendrán capacidad para hacer funcionar simultáneamente la instalación radioeléctrica de ondas métricas del buque prescrita en la regla 7.1.1 y según proceda, en la zona o zonas marítimas para las que esté equipado el buque, la instalación radioeléctrica de ondas hectométricas prescrita en la regla 9.1.1, la instalación radioeléctrica de ondas hectométricas/decamétricas prescrita en la regla 10.2.1, u 11.1 o la estación terrena de buque de INMASART prescrita en la regla 10.1.1 y cualquiera de las cargas suplementarias que se mencionan en los párrafos 4, 5 y 8 al menos durante un período de:
@@ -221,6 +227,9 @@ La fuente o fuentes de energía de reserva tendrán capacidad para hacer funcion
 8 Si es necesario proporcionar una entrada constante de información procedente de los aparatos náuticos o de otros equipos del buque a una instalación radioeléctrica prescrita en el presente capítulo a fin de garantizar su funcionamiento adecuado, se proveerán medios que garanticen el suministro continuo de tal información en caso de fallo de las fuentes de energía principal o de emergencia del buque.
 Regla 14
 Normas de funcionamiento
+(Nota de Sianlevi: Mediante el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009 se disponen reformas a la presente regla. No obstante al no coincidir las reformas las misma se transcriben a continuación: Regla 14
+Aparato radioeléctrico portátil para embarcaciones de supervivencia
+En la primera línea del párrafo a) se sustituyen las palabras "regla 13 del capitulo III " por "regla III /6.2.1".)
 1 Todo el equipo que se instale de conformidad con el presente será de un tipo aprobado por la Administración. A reserva de lo dispuesto en el párrafo 2 siguiente, este equipo se ajustará a normas de funcionamiento apropiadas que no sean inferiores a las aprobadas por la Organización*.
 * Véanse las siguientes normas de funcionamiento, aprobadas por la Organización mediante las resoluciones indicadas o que serán elaboradas por la Organización:
 .1 Equipo telegráfico de impresión directa de banda estrecha para la recepción de radioavisos náuticos y meteorológicos y de información urgente dirigida a los buques (resolución de la Asamblea A.525(13)),

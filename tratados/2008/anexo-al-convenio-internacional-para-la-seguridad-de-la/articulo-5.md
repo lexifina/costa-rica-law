@@ -15,10 +15,12 @@ Los mensajes de peligro deberán contener la siguiente información:
 a) Hielo, derrelictos y otros peligros inmediatos para la navegación:
 i) naturaleza del hielo, derrelicto o peligro observados;
 ii) posición del hielo, derrelicto o peligro cuando por última vez fueron observados;
-iii) fecha y hora (hora media de Greenwich) en que por última vez se observó el peligro.
+iii) fecha y hora (tiempo universal coordinado) (*) en que por última vez se observó el peligro.
+(*)(Así reformada la frase anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba: " hora media de Greenwich")
 b) Tempestades tropicales (huracanes en las Antillas, tifones en el Mar de China, ciclones en el Océano Indico y tempestades de naturaleza análoga en otras regiones):
 i) notificación de que el buque se ha encontrado con una tempestad tropical. Se interpretará esta obligación en un sentido amplio, transmitiéndose la información cuando el capitán tenga motivos para creer que se está formando una tempestad tropical o que ésta se encuentra en sus cercanías;
-ii) fecha, hora (hora media de Greenwich) y situación del buque cuando se efectuó la observación;
+ii) fecha, hora (tiempo universal coordinado) y situación del buque cuando se efectuó la observación;
+(*) (Así reformada la frase anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba: " hora media de Greenwich")
 iii) en el mensaje figurarán cuantos datos quepa incluir de entre los siguientes:
 - presión barométrica, preferiblemente corregida (expresada en mili-bares, milímetros o pulgadas, e indicando si se da corregida o no);
 - tendencia barométrica (cambios registrados en la presión barométrica durante las 3 horas últimas);
@@ -32,17 +34,20 @@ Es conveniente, aunque no obligatorio, que cuando un capitán haya informado ace
 d) Vientos de fuerza igual o superior a 10 (escala Beaufort) respecto de los cuales no se haya recibido ningún aviso de tempestad
 Se hace aquí referencia a tempestades distintas de las tropicales que se mencionan en el párrafo b) de la presente Regla; ante una de estas tempestades los datos del mensaje serán análogos a los enumerados en dicho párrafo, excluidos los relativos al estado de la mar y a la mar tendida.
 e) Temperaturas del aire inferiores a la de congelación juntamente con vientos duros que ocasionen una seria acumulación de hielo en las superestructuras:
-i) fecha y hora (hora media de Greenwich);
+i) fecha y hora (tiempo universal coordinado)(*);
+(*)(Así reformada la frase anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba: " hora media de Greenwich")
 ii) temperatura del aire;
 iii) temperatura del mar (si es posible determinarla);
 iv) fuerza y dirección del viento.
 Ejemplos
 Hielo
-TTT Hielo. Gran iceberg visto a 4605 N., 4410 W., a las 0800 GMT. 15 mayo.
+TTT Hielo. Gran iceberg visto a 4605 N., 4410 W., a las 0800 UTC (*) . 15 mayo.
+(*)(Así reformada las siglas anteriores por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba: " GMT")
 Derrelictos
 TTT Derrelicto. Derrelicto observado casi sumergido a 4006 N., 1243 W., a las 1630 GMT. 21 abril.
 Peligro para la navegación
-TTT Navegación. Buque faro Alfa no está en su posición. 1800 GMT. 3 enero.
+TTT Navegación. Buque faro Alfa no está en su posición. 1800 UTM (*). 3 enero.
+(*)(Así reformada las siglas anteriores por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba: " GMT")
 Tempestad tropical
 TTT Tempestad. 0030 GMT. 18 agosto. 2004 N., 11354 E. Barómetro corregido 994 milibares, tendencia a bajar, 6 milibares. Viento NW., fuerza 9, fuertes chubascos de agua. Mar tendida, grande, del E. Rumbo 067,5 nudos.
 TTT Tempestad. Parece aproximarse un huracán. 1300 GMT. 14 septiembre. 2200 N., 7236 W. Barómetro corregido 29,64 pulgadas, tendencia a bajar, 0,015 pulgadas. Viento NE., fuerza 8, chubascos frecuentes. Rumbo 035, 9 nudos.
@@ -87,7 +92,8 @@ d) Los Gobiernos Contratantes ejercerán su influencia para garantizar la utiliz
 e) Los Gobiernos Contratantes instarán también a todos los buques que realicen travesías en las proximidades de los Grandes Bancos de Terranova a que, en la medida de lo posible, eviten los caladeros de Terranova situados al Norte del paralelo 43 y a que sigan derrotas que queden fuera de las regiones manifiesta o supuestamente peligrosas por la presencia de hielos.
 Regla 9
 Empleo impropio de señales de socorro
-En todos los buques y aeronaves está prohibido el empleo de señales internacionales de socorro, salvo para indicar que un buque o una aeronave están en peligro, y el empleo de cualquier señal que pudiera ser confundida con una señal internacional de socorro.
+Está prohibido el empleo de señales internacionales de socorro, salvo para indicar que un buque, una aeronave o una persona están en peligro, y el empleo de cualquier señal que pudiera ser confundida con una señal internacional de socorro.
+(Así sustituido el texto de la regla 9) anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009)
 Regla 10
 Mensajes de socorro. Obligaciones y procedimientos
 a) El capitán de todo buque que, hallándose éste en la mar, reciba una señal, de la fuente que sea, al efecto de que un buque, una aeronave o una embarcación de supervivencia se hallan en peligro, está obligado a acudir a toda máquina en auxilio de las personas siniestradas, informando a éstas, si le es posible, de que acude a auxiliarlas. Si no puede acudir a prestar ese auxilio o si, dadas las circunstancias especiales del caso de que se trate, estima que es irrazonable o innecesario hacerlo, anotará en el Diario de navegación las razones por las cuales no acudió en auxilio de las personas siniestradas.
@@ -118,7 +124,8 @@ d) Los buques de arqueo bruto igual o superior a 500 toneladas construidos el 1 
 i) las indicaciones del girocompás magistral o de un repetidor giroscópico, habrán de ser claramente legibles para el timonel en el puesto de gobierno principal;
 ii) en cuanto a los buques de arqueo bruto igual o superior a 1 600 toneladas, habrá que contar con un repetidor giroscópico o con varios de estos repetidores adecuadamente emplazados para tomar marcaciones en un arco de horizonte que en la mayor medida posible sea de 360°.
 e) Los buques de arqueo bruto igual o superior a 1 600 toneladas construidos con anterioridad al 1 de septiembre de 1984 irán provistos, cuando efectúen viajes internacionales, de un girocompás que cumpla con lo prescrito en el párrafo d).
-f) En los buques en que haya puestos de gobierno de emergencia, se dispondrán los medios necesarios para transmitir información de arrumbamiento a esos puestos.
+f) Los buques en que haya puestos de gobierno de emergencia estarán provistos como mínimo de un teléfono u otro medio de comunicación para transmitir información de arrumbamiento a esos puestos. Además, los buques de arqueo bruto igualo superior a 500 construidos el 1 de febrero de 1992 o posteriormente estarán provistos de medios para repetir las lecturas del compás en los puestos de Gobierno de emergencia.
+(Así reformado el párrafo f) anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba: " hora media de Greenwich")
 g) Los buques de arqueo bruto igualo superior a 500 toneladas construidos el 1 de septiembre de 1984, o posteriormente, y los buques de arqueo bruto igualo superior a 1 600 toneladas construidos antes del 1 de septiembre de 1984 irán provistos de una instalación de radar. A partir del 1 de febrero de 1995, la instalación de radar deberá poder funcionar en la banda de frecuencias de 9 GHz. Además, cuando realicen viajes internacionales, los buques de pasaje, cualquiera que sea su porte, y los buques de carga de arqueo bruto igualo superior a 300 toneladas irán provistos, a partir del 1 de febrero de 1995. de una instalación de radar apta para funcionar en la banda de frecuencias de 9 GHz. Los buques de pasaje cuyo arqueo bruto sea inferior a 500 toneladas y los buques de carga de arqueo bruto comprendido entre 300 y 500 toneladas podrán ser eximidos del cumplimiento de lo prescrito en el párrafo e) a discreción de la Administración, siempre que el equipo sea plenamente compatible con el respondedor de radar destinado a operaciones de búsqueda y salvamento.
 (Así reformado el inciso g) anterior por el anexo 1° del tratado internacional N° 8708 del 26 de febrero del 2009 "Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, referentes a las radiocomunicaciones para el sistema mundial de socorro y seguridad marítimos. Resolución N° 1 del del 9 de noviembre de 1988")
 h) Los buques de arqueo bruto igual o superior a 10 000 toneladas irán provistos de dos instalaciones de radar, cada une de ellas apta para ser utilizada independientemente de la otra. A partir del 1 de febrero de 1995, al menos una de las instalaciones de radar deberá poder funcionar en la banda de frecuencias de 9 GHz.
@@ -151,7 +158,10 @@ u) A reserva de lo dispuesto en otros puntos de la presente Regla, la Administra
 (*)(Así sustituido el texto de la regla 12) anterior el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 13
 Dotación
-Los Gobiernos Contratantes se obligan, en relación con los buques de sus respectivos países, a mantener o, si es necesario, adoptar medidas que garanticen que desde el punto de vista de seguridad de la vida humana en el mar dichos buques llevarán dotación suficiente y competente.
+a) Los Gobiernos Contratantes se obligan, en relación con los buques de sus respectivos países, a mantener o, si es necesario, adoptar medidas que garanticen que desde el punto de vista de seguridad de la vida humana en el mar dichos buques llevarán dotación suficiente y competente.
+(Mediante el anexo 1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009 se ordena pasar el párrafo único a párrafo primero de la regla anterior)
+b) Se entregará a todo buque al que se apliquen las disposiciones del capítulo I del presente Convenio un documento adecuado, o su equivalente, relativo a la dotación de seguridad, expedido por la Administración como prueba de que lleva la dotación mínima de seguridad considerada necesaria para cumplir con lo dispuesto en el párrafo a)
+(Así adicionado el párrafo b) anterior por el anexo 1 de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009)
 Regla 14
 Ayudas a la navegación
 Los Gobiernos Contratantes se obligan a disponer lo necesario para el establecimiento y el mantenimiento de las ayudas a la navegación que, a juicio suyo, justifique el volumen de tráfico y exija el grado del riesgo y a hacen que la información relativa a estas ayudas sea puesta a disposición de todos los interesados.
@@ -162,53 +172,9 @@ a) Cada uno de los Gobiernos Contratantes se obliga a garantizar la adopción de
 b) Cada uno de los Gobiernos Contratantes se obliga facilitar la información correspondiente a los medios de salvamento de que disponga y, si procede, los planes que pueda tener para modificar los mismos.
 Regla 16
 Señales de salvamento
-A continuación se indican las señales que deberán ser utilizadas por estaciones de embarcaciones salvavidas y unidades de salvamento marítimo cuando comuniquen con buques o con personas que estén en peligro, y por buques o personas que estén en peligro cuando comuniquen con estaciones de embarcaciones salvavidas y unidades de salvamento marítimo. Las señales que utilizarán las aeronaves afectas a operaciones de búsqueda y salvamento para orientar a los buques vienen indicadas más adelante, en el párrafo d). En todo buque al que sea aplicable el presente Capítulo habrá una tabla ilustrada y fácilmente accesible para el oficial de guardia, en la que se describan las siguientes señales:
-a) Respuestas de estaciones de embarcaciones salvavidas o de unidades de salvamento marítimo a señales de socorro emitidas por un buque o por personas:
-Señal
-De día - Señal de humo anaranjado o combinación de luz y sonido (luz detonante) constituida por tres señales simples que se dispararán a intervalos de un minuto aproximadamente.
-De noche - Cohete de estrellas blancas constituido por tres señales simples que se dispararán a intervalos de un minuto aproximadamente.
-Significado
-"Les vemos. Se les prestará auxilio lo antes posible."
-(La repetición de estas señales tendrá el mismo significado.)
-En caso necesario las señales diurnas podrán ser emitidas de noche y las señales nocturnas, de día.
-b) Señales de desembarco para guía de embarcaciones menores con tripulantes u otras personas en peligro:
-Señal
-De día - Movimiento vertical de una bandera-blanca o de los brazos, o disparo de una señal de estrellas verdes, o transmisión de la letra "K" del Código (--.-- ) por medio de un aparato emisor de señales luminosas o acústicas.
-De noche - Movimiento vertical de una luz o bengala blancas, o disparo de una señal de estrellas verdes, o transmisión de la letra "K" del Código ( --.--) mediante un aparato emisor de señales luminosas o acústicas. Cabe dar una alineación (indicación de dirección) colocando una luz blanca e inmóvil o una bengala del mismo tipo a un nivel más bajo que el del observador en la dirección que se quiera indicar.
-Significado
-"Este es el mejor lugar para desembarcar."
-Señal De día - Movimiento horizontal de una bandera blanca o de los brazos extendidos horizontalmente, o disparo de una señal de estrellas rojas, o transmisión de la letra "S" del Código (• • •) con un aparato emisor de señales luminosas o acústicas. De noche - Movimiento horizontal de una luz o una bengala blancas, o disparo de una señal de estrellas rojas, o transmisión de la letra "S" del Código (• • •) con un aparato emisor de señales luminosas o acústicas. | Significado "Desembarco peligroso."
-De día - Movimiento horizontal de una bandera blanca seguido de la colocación de ésta en el suelo y de la traslación de otra bandera blanca en la dirección que se desee señalar, o disparo de una señal de estrellas rojas verticalmente y de una señal de estrellas blancas dirigida hacia el lugar que ofrece un mejor desembarco, o transmisión de la letra "S" del Código (• • •) y a continuación de la letra "R" del Código (•—•) si a la derecha de la dirección que lleve la embarcación en peligro hay un lugar mejor para desembarcar, o de la letra "L" del Código (•—•) si ese mejor lugar de desembarco está a la izquierda de la dirección que lleve la embarcación en peligro. De noche - Movimiento horizontal de una luz o una bengala blancas seguido de la colocación en el suelo de la luz o bengala blancas y de la traslación de otra luz o bengala blancas en la dirección que se desee señalar, o disparo de una señal de estrellas rojas verticalmente y de una señal de estrellas blancas dirigida hacia el lugar que ofrece un mejor desembarco, o transmisión de la letra "S" del Código (• • •) y a continuación de la letra "R" del Código (•—•) si a la derecha de la dirección que lleve la embarcación en peligro hay un lugar mejor para desembarcar, o de la letra "L" del Código (•—••) si ese mejor lugar de desembarco está a la izquierda de la dirección que lleve la embarcación en peligro. | "Desembarco aquí sumamente peligroso. En la dirección indicada hay un lugar más propicio para el desembarco."
-c) Señales que procede utilizar en relación con el empleo de equipo salvavidas costero:
-Señal
-De día - Movimiento vertical de una bandera blanca o de los brazos o disparo de una señal de estrellas verdes.
-De noche - Movimiento vertical de una luz o una bengala blancas o disparo de una señal de estrellas verdes.
-Significado
-En general: "Afirmativo." Concretamente:
-"Sujetamos la guía" (lanzada con cohete).
-"El motón de rabiza ha sido ahecho firme."
-"La guindaleza ha sido hecha firme."
-"Hombre en la canasta salvavidas."
-"Cobren."
-De día - Movimiento horizontal de una bandera blanca, o de los brazos extendidos horizontalmente, o disparo de una señal de estrellas rojas. De noche - Movimiento horizontal de una luz o una bengala blancas o disparo de una señal de estrellas rojas. | En general: "Negativo." Concretamente: "Larguen amarras." "Bueno, aguanten" (basta de cobrar
-(*)d) Señales que utilizarán las aeronaves afectas a operaciones de búsqueda y salvamento para orientar a buques hacia una aeronave, un buque o personas en peligro:
-i) Las maniobras enumeradas a continuación, realizadas por una aeronave en el orden que se indica, significan que la aeronave desea dirigir una embarcación de superficie hacia una aeronave o hacia una embarcación de superficie en peligro:
-1) descripción de un círculo, cuando menos, alrededor de la embarcación de superficie;
-2) cruce, a escasa altitud, de la derrota estimada de la embarcación de superficie, cerca de la proa de ésta, haciendo a la vez que:
-— las alas experimenten un movimiento de oscilación; o
-— la potencia de los motores varíe abriendo y cerrando el mando de gases; o
-— el paso de la hélice varíe.
-(A causa del alto nivel de ruido imperante en la embarcación de superficie, las señales acústicas pueden ser menos eficaces que la señal visible y se consideran como medios alternativos para atraerse la atención.)
-3) vuelo en la dirección que la embarcación de superficie deba seguir.
-La repetición de estas maniobras tendrá el mismo significado.
-ii) La maniobra indicada a continuación, realizada por una aeronave, significa que ya no se necesita la ayuda de la embarcación de superficie destinataria de la señal:
-cruce, a escasa altitud, de la estela de la embarcación de superficie, cerca de la popa de ésta, haciendo a la vez que:
-— las alas experimenten un movimiento de oscilación; o
-— la potencia de los motores varíe abriendo y cerrando el mando de gases; o
-— el paso de la hélice varíe.
-(A causa del alto nivel de ruido imperante en la embarcación de superficie, las señales acústicas pueden ser menos eficaces que la señal visible y se consideran como medios alternativos para atraerse la atención.)
-Nota: La Organización notificará por adelantado toda modificación de estas señales según sea necesario.
-(*)(Así sustituido el texto del párrafo d) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+Las estaciones de embarcaciones salvavidas, unidades de salvamento marítimo y aeronaves destinadas a operaciones de búsqueda y salvamento, cuando comuniquen con buques o con personas que estén en peligro o para orientar a buques, harán uso de las señales de salvamento* también las utilizarán los buques o personas que estén en peligro cuando comuniquen con estaciones de embarcaciones salvavidas, unidades de salvamento marítimo y aeronaves destinadas 8 operaciones de búsqueda y salvamento. El oficial de guardia de todo buque al que sea aplicable el presente capítulo tendrá siempre a su disposición una tabla ilustrada en la que se describan las señales de salvamento.
+* Dichas señales de salvamento se describen en el Manual de búsqueda y salvamento para buques mercantes (MERSAR) (resolución A.229( VII ) enmendada), el Manual de búsqueda y salvamento de la OMI (IMOSAR), (resolución A.439(Xl) enmendada) y están ilustradas en el Código internacional de señales, (resolución A.80(lV) enmendada).
+(*)(Así sustituido el texto de la regla 16) anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba: " hora media de Greenwich")
 Regla 17
 Escalas de práctico y escalas mecánicas de práctico
 Los buques que realicen viajes en el curso de los cuales exista la posibilidad de que hayan de tomar práctico cumplirán con las prescripciones siguientes:

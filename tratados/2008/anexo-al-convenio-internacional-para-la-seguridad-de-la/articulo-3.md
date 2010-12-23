@@ -790,7 +790,8 @@ Todos los artículos que forman el equipo del bote salvavidas, ya estén prescri
 .15 dos señales fumígenas flotantes que cumplan con lo prescrito en la regla37;
 .16 una linterna eléctrica impenetrable al agua, adecuada para hacer señales Morse, un juego de pilas de respeto y una bombilla también de respeto, todo ello en un receptáculo impenetrable al agua;
 .17 un espejo de señales diurnas con las instrucciones necesarias para hacer señales a buques y aeronaves;
-.18 un ejemplar de las señales de salvamento que se prescribe en la regla Vjl6, en una tarjeta impermeable o en un receptáculo impenetrable al agua;
+.18 Un ejemplar de las señales de salvamento a las que se hace referencia en la regla V/16, en una tarjeta impermeable o en un receptáculo impenetrable al agua;
+(*)(Así reformado el párrado 2.18) anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009)
 .19 un silbato u otro medio equivalente para dar señales acústicas;
 .20 un botiquín de primeros auxilios en un estuche impenetrable al agua que se pueda cerrar herméticamente tras haber sido utilizado;
 .21 seis dosis de medicamentos contra el mareo y una bolsa para casos de mareo I por cada persona;
@@ -953,7 +954,7 @@ Botes de rescate
 3.9 Si el bote de rescate inflado lleva espejo de popa, éste irá a una distancia del extremo papel que no exceda del 20% de la eslora total.
 3.10 Se proveerán parches de refuerzo adecuados para sujetar las bazas de proa y de popa y las guirnaldas salvavidas de los perímetros interior y exterior del bote de rescate.
 3.11 El bote de rescate inflado 'habrá de mantenerse completamente inflado en todo momento.
-SECC10N VI - DISPOSITIVOS DE PUESTA A FLOTE Y DE EMBARCO
+SECCI0N VI - DISPOSITIVOS DE PUESTA A FLOTE Y DE EMBARCO
 Regla 48
 Dispositivos de puesta a flote y de embarco
 1 Prescripciones generales
@@ -963,7 +964,8 @@ Dispositivos de puesta a flote y de embarco
 1.2 No obstante lo prescrito en el párrafo 1.1, los dispositivos de puesta a flote para petroleros, buques tanque quimiqueros y buques gaseros que puedan alcanzar un ángulo de escora final superior a 20°, calculada ésta de conformidad con el Convenio internacional para prevenir la contaminación por los buques, 1973 en su forma modificada por el correspondiente Protocolo de 1978, Y con las recomendaciones de la Organización*, según proceda, habrán de poder operar dado el citado ángulo de escora final en el costado más bajo del buque.
 * Véanse las prescripciones sobre estabilidad en caso de avería que figuran en el Código internacional para la construcción y el equipo de buques que transporten productos químicos peligrosos a granel (Código CIQ), aprobado por el Comité de Seguridad Marítima mediante la resolución MSC.4(48), y en el Código internacional para la construcción y el equipo de buques que transporten gases licuados a granel (Código ClQ), aprobado por el Comité de Seguridad Marítima mediante la resolución MSC.5(48).
 1.3 El dispositivo de puesta a flote no dependerá de ningún medio que no sea la gravedad o la potencia mecánica acumulada e independiente de las fuentes de energía del buque para poner a flote la embarcación de supervivencia o el bote de rescate al que preste servicio hallándose la embarcación o el bote citados tanto completamente cargados y equipados como en el estado liviano.
-1.4 El mecanismo de puesta a flote estará dispuesto de modo que una persona pueda accionarlo desde un puesto situado en la cubierta del buque, o desde un puesto situado dentro de la embarcación de supervivencia o del bote de rescate; la embarcación de supervivencia habrá de ser visible para la persona que haga funcionar el mecanismo de puesta a flote desde la cubierta.
+1.4 El mecanismo de puesta a flote estará dispuesto de modo que una persona pueda accionarlo desde un puesto situado en la cubierta del buque, y (*) desde un puesto situado dentro de la embarcación de supervivencia o del bote de rescate; la embarcación de supervivencia habrá de ser visible para la persona que haga funcionar el mecanismo de puesta a flote desde la cubierta.
+(*)(Así reformada la frase anterior por el anexo1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009. Anteriormente indicaba "o")
 1.5 Todo dispositivo de puesta a flote estará construido de modo que su mantenimiento normal se reduzca al mínimo. Todas las piezas que deba mantener de modo regular la tripulación del buque habrán de ser de acceso y mantenimiento fáciles.
 1.6 Los frenos del chigre del dispositivo de puesta a flote tendrán la resistencia suficiente para superar:
 .1 una prueba de carácter estático con una carga igual a por lo menos 1,5 veces la carga máxima de trabajo; y

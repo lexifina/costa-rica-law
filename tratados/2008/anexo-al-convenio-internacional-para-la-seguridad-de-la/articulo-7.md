@@ -61,13 +61,15 @@ Prescripciones de estiba
 4 En los buques que transporten liquidas o gases inflamables se tomarán las precauciones especiales que puedan hacerse necesarias contra incendios o explosiones.
 5 No se transportarán sustancias que espontáneamente puedan experimentar calentamiento o combustión, a menos que se hayan tomado precauciones adecuadas para reducir al mínimo la posibilidad de que se produzcan incendios.
 Regla 7
-Transporte de explosivos en buques de pasaje
-1 En los buques de pasaje sólo podrán ser transportados los siguientes explosivos:
-.1 cartuchos de seguridad y mechas de seguridad;
-.2 pequeñas cantidades de explosivos cuya masa neta total no exceda de 10 kg;
-.3 artificios para señales de socorro, destinados a buques o aeronaves, siempre que su masa total no exceda de 1 000 kg;
-.4 salvo en buques que transporten pasajeros sin litera, artificios pirotécnicos cuya explosión violenta sea improbable.
+Transporte de explosivos en buques de pasaje*
+* Véase la Clase 1 del Código marítimo internacional de mercancías peligrosas (Código IMDG)”
+1 Los explosivos comprendidos en la División 1.4, grupo de compatibilidad S podrán transportarse en cualquier cantidad en los buques de pasaje. No podrá transportarse ningún otro tipo de explosivos que no sea alguno de los siguientes:
+.1 artículos explosivos para fines de salvamento, si la masa neta total de explosivos de dichos artículos no excede de 50 kg por buque; o
+.2 explosivos comprendidos en los grupos de compatibilidad C, D y E, si la masa neta total de explosivos no excede de 10 kg por buque; o
+.3 artículos explosivos comprendidos en el grupo de compatibilidad G, salvo los que requieran estiba especial, si la masa neta total de explosivos no excede de 10 kg por buque; o
+.4 artículos explosivos comprendidos en el grupo de compatibilidad B, si la masa neta total de explosivos no excede de 5 kg por buque.
 2 No obstante lo dispuesto en el párrafo 1, se podrán transportar otras cantidades y otros tipos de explosivos, además de los enumerados, en buques de pasaje en que se hayan tomado medidas especiales de seguridad aprobadas por la Administración.
+(Así reformado el texto de la regla 7) anterior por el anexo 1° de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el mar, 1974. Resolución N° MSC 13 (57) del 11 de abril de 1989, aprobadas mediante tratado internacional N° 8708 del 26 de febrero del 2009)
 PARTE B _ CONSTRUCCION y EQUIPO DE BUQUES QUE TRANSPORTEN PRODUCTOS QUIMICOS LIQUIDOS PELIGROSOS A GRANEL
 Regla 8
 Definiciones
