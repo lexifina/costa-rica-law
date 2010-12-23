@@ -1,0 +1,2 @@
+Artículo 14.—La resolución correspondiente será notificada al sujeto pasivo o interesado, a través de los medios indicados en el presente Reglamento, y cabrá contra la misma los recursos de revocatoria ante la Dirección Ejecutiva y apelación ante la Junta Directiva.
+Ambos recursos se interpondrán dentro de los siguientes cinco días hábiles, contados a partir de la comunicación de la resolución respectiva.

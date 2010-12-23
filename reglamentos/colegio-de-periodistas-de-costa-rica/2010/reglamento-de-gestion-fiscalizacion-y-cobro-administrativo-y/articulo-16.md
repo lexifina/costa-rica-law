@@ -1,0 +1,1 @@
+Artículo 16.—La Junta Directiva resolverá el Recurso de Apelación dentro del plazo de diez días hábiles luego de recibida la documentación correspondiente por parte de la Dirección Ejecutiva, salvo situación de fuerza mayor que lo imposibilite

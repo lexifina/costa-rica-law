@@ -1,0 +1,1 @@
+Artículo 11.—La función de fiscalización será ejercida por la Sección de Contabilidad, la cual deberá adecuarse, a los lineamientos o directrices de la Dirección Ejecutiva, sin perjuicio del apoyo de otras áreas del COLPER, tales como la asesoría legal o la Auditoría Interna, las que informarán y asesorarán acerca del adecuado ejercicio de estas funciones.

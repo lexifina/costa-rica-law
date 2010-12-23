@@ -1,0 +1,1 @@
+Artículo 38.—La terminación del proceso judicial a instancia del deudor, procederá solo cuando el mismo formalice arreglo de pago con COLPER o cancele de forma total la deuda por concepto del Timbre del Colegio de Periodistas de Costa Rica.
