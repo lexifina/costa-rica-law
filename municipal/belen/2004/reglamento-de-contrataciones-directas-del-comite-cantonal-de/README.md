@@ -14,3 +14,4 @@ Reglamento de Contrataciones Directas del Comité Cantonal de Deportes y Recreac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-19 | la propia norma |
+| 2 | 2010-12-23 | Reglamento municipal 78 (2010-12-23) |
