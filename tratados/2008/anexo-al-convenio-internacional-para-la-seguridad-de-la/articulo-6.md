@@ -1,8 +1,9 @@
 CAPITULO VI TRANSPORTE DE GRANO
 PARTE A - DISPOSICIONES GENERALES
-Regla 1
+(*)Regla 1
 Ámbito de aplicación
-Salvo disposición expresa en otro sentido, el presente Capítulo, constituido por las Partes A, B y C, regirá el transporte de grano en todos aquellos buques a los que sean de aplicación las presentes Reglas.
+El presente Capítulo regirá, salvo disposición expresa en otro sentido, el transporte de grano en todos aquellos buques a los que sean de aplicación las presentes Reglas y en los buques de carga de arqueo bruto inferior a 500 toneladas.
+(Así sustituido el texto de la regla 1) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 2
 Definiciones
 a) El término "grano" hace referencia a trigo, maíz, avena, centeno, cebada, arroz, legumbres secas, semillas y derivados correspondientes de características análogas a las del grano en estado natural.
@@ -86,7 +87,6 @@ SECCIÓN I - DESCRIPCIÓN DE LOS VACÍOS SUPUESTOS Y MÉTODO DE CÁLCULO DE LA E
 A) GENERALIDADES
 a) A los fines de cálculo del momento escorante debido a corrimiento de la superficie de carga en buques que transportan grano a granel, se admitirán las siguientes hipótesis:
 i) En los "compartimientos llenos" que han sido enrasados de acuerdo con lo dispuesto en la Regla 3 del presente Capítulo, bajo todas las superficies limitadores que tengan una inclinación, con respecto a la horizontal, de menos de 30 grados, existen vacíos paralelos a la superficie limitadora, con una altura media calculada de acuerdo con la fórmula:
-[imagen]
 donde:
 Vd = altura media del vacío, en mm.;
 Vd1 = altura normal del vacío tomada de la Tabla I (dada a continuación);
@@ -122,7 +122,6 @@ b) El esquema descriptivo del comportamiento de la superficie del grano que debe
 c) A fin de demostrar que se cumplen las condiciones de estabilidad de la Regla 4 b) del presente Capítulo (véase Figura 1), los cálculos de estabilidad del buque se basarán normalmente en el supuesto de que el centro de gravedad de la carga en un "compartimiento lleno" coincide con el centro volumétrico del espacio total de carga. En los casos en que la Administración autorice a tener en cuenta el efecto de vacíos supuestos bajo cubierta en la posición vertical del centro de gravedad de la carga en "compartimientos llenos", será preciso compensar el efecto desfavorable del corrimiento vertical de la superficie del grano, incrementando el momento escorante supuesto debido al corrimiento transversal del grano, del modo siguiente:
 momento escorante total = 1,06 x momento escorante transversal calculado.
 En todos los casos el peso de la carga de un "compartimiento lleno" será igual al volumen del espacio total de carga dividido por el factor de estiba.
-[imagen]
 Notas relativas a la Figura 1:
 1) Donde:
 גּ0 Momento escorante volumétrico supuesto debido al corrimiento transversal
@@ -148,17 +147,14 @@ En los párrafos que siguen se supone que el momento escorante total de un compa
 a) A proa y a popa de las escotillas
 i) Si un compartimiento tiene dos o más escotillas principales por las cuales pueda ser cargado, para determinar la altura del vacío situado bajo cubierta, correspondiente a la parte o a las partes que queden comprendidas entre dichas escotillas, se utilizará la distancia que haya a proa y a popa hasta el punto medio de la distancia que haya entre escotillas.
 ii) Después del supuesto corrimiento del grano la disposición final del vacío será la que muestra la Figura 2:
-[imagen]
 Notas relativas a la Figura 2:
 1) Si el área vacía máxima que se puede formar contra la eslora en B es menor que el área inicial del vacío bajo AB, es decir AB x Vd, se supondrá que el exceso de área se transfiere al vacío final que quede en el lado alto.
 2) Si el mamparo longitudinal situado en C está instalado de acuerdo con lo dispuesto en la Regla 5 b) ii) del presente Capítulo, se extenderá al menos 0,6 m. por debajo de D o E, tomándose de ambas distancias la que dé mayor profundidad.
 b) En la zona de la escotilla y al nivel de ésta
 Después del supuesto corrimiento del grano la disposición final de los vacíos será la que muestran las Figuras 3 y 4.
-[imagen]
 Notas relativas a la Figura 3:
 1) AB Toda área que exceda de la que pueda formarse contra la eslora en B se transferirá al área final vacía que haya en la escotilla.
 2) CD Toda área que exceda de la que pueda formarse contra la eslora en E se transferirá al área final vacía que haya en el lado alto.
-[imagen]
 Notas relativas a la Figura 4:
 1) Si la división central longitudinal está instalada de acuerdo con lo dispuesto en la Regla 5 b) ii) del presente Capítulo, se extenderá al menos 0,60 metros por debajo de H o J, tomándose de ambas distancias la que dé mayor profundidad.
 2) El exceso de área vacía de AB se transferirá a la mitad del lado bajo de la escotilla en la que se habrán formado dos áreas finales vacías separadas, una contra la división central y la otra contra la brazola y la eslora del lado alto.
@@ -182,10 +178,8 @@ A) ALIMENTADORES LATERALES CONVENIENTEMENTE SITUADOS (Véase Figura 5)
 Puede suponerse que a causa del movimiento del buque los vacíos situados bajo cubierta se llenarán considerablemente por el grano que pase desde un par de alimentadores longitudinales, siempre que:
 a) los alimentadores se extiendan a lo largo de toda la eslora de cubierta y que las aberturos practicadas en ellos estén adecuadamente espaciadas;
 b) el volumen de cada alimentador sea igual al volumen del espacio vacío situado bajo cubierta, por fuera de la eslora lateral de la escotilla y de su prolongación.
-[imagen]
 B) TRONCOS SITUADOS SOBRE LAS ESCOTILLAS PRINCIPALES
 Después del supuesto corrimiento del grano la disposición final de los vacíos será la que muestra la Figura 6.
-[imagen]
 Nota relativa a la Figura 6:
 Si los espacios laterales que hay en la zona del tronco no pueden ser adecuadamente enrasados de conformidad con lo dispuesto en la Regla 3 del presente Capítulo, se supondrá que se produce un desplazamiento de la superficie de 25 grados.
 SECCIÓN IV - MOMENTO VOLUMÉTRICO ESCORANTE SUPUESTO EN COMPARTIMIENTOS PARCIALMENTE LLENOS
@@ -197,14 +191,15 @@ Esta corrección no regirá para compartimientos inferiores en ningún caso de c
 SECCIÓN V - OTRAS FORMAS DE CARGA PARA BUQUES EXISTENTES
 A) GENERALIDADES
 Se considerará que todo buque cargado de conformidad con lo dispuesto en las Subsecciones B) o C) expuestas a continuación tiene unas características de estabilidad al estado intacto equivalentes, cuando menos, a las prescritas en la Regla 4 b) del presente Capítulo. Los documentos de autorización necesarios para permitir que se efectúen tales cargas deberán ser aceptados de conformidad con lo dispuesto en la Regla 10 e) del presente Capítulo.
-A los efectos de la presente Parte, por "buque existente" se entenderá todo buque cuya quilla haya sido colocada en fecha anterior a la entrada en vigor del presente Capítulo.
+(*) A los efectos de la presente Parte, por "buque existente" se entenderá todo buque cuya quilla haya sido colocada antes del 25 de mayo de 1980.
+(*)(Así enmendado el texto del párrafo anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 B) ESTIBA EN BUQUES ESPECIALMENTE APROPIADOS
 a) No obstante lo dispuesto en la Parte B del presente Capítulo, podrán transportar grano a granel sin tener en cuenta las prescripciones allí consignadas los buques provistos de dos o más divisiones longitudinales verticales o inclinadas, y estancas al grano, adecuadamente dispuestas para limitar los efectos de cualquier corrimiento del grano en sentido transversal, siempre que se cumplan las siguientes condiciones:
 i) se llenará el mayor número posible de bodegas y compartimientos, enrasándolos de modo que no presenten vacíos;
 ii) sea cual fuere la disposición de estiba adoptada, el buque no experimentará una escora de más de 5 grados en ninguna fase del viaje, contando con que:
 1) en bodegas o compartimientos que hayan sido enrasados de modo que no presenten vacíos, la superficie del grano experimente un asentamiento que suponga una reducción del 2 por ciento en volumen con respecto al nivel de la superficie inicial, y un corrimiento que origine un ángulo de 12 grados con respecto a dicha superficie, bajo todos los componentes límite de estos compartimientos y bodegas que tengan una inclinación de menos de 30 grados con respecto a la horizontal;
-2) en los "compartimientos o bodegas parcialmente llenos" las superficies libres del grano experimenten el asentamiento y el corrimiento indicados en el apartado ii) 1) del presente párrafo, o un ángulo de escora tanto mayor cuanto considere necesario la Administración, o un Gobierno Contratante en nombre de la Administración, y las superficies del grano, si han sido sobre-estibadas de conformidad con lo dispuesto en la Regla 5 del presente Capítulo, adquieran un ángulo de 8 grados con respecto a las superficies niveladas inicialmente. A los efectos del apartado ii) del presente párrafo, los tablones amovibles* que se instalen se considerarán como limitadores del corrimiento transversal de la superficie del grano;
-* Que en España constituyen las llamadas “arcadas” y en algunos países latinoamericanos los llamados “mamparos frenantes”
+2) en los compartimientos o bodegas parcialmente llenos, las superficies libres del grano experimenten el asentamiento y el corrimiento indicados én el apartado 1), o un ángulo de escora tanto mayor cuanto considere necesario la Administración , o un Gobierno Contratante en nombre de la Administración , y las superficies del grano, si han sido sobreestibadas (una vez nivelado el grano a granel y cubierto con grano ensacado u otra carga apropiada apretadamente estibada, cuya altura no sea inferior a 1,22 m sobre la superficie
+(Así sustituido el texto del apartado 2) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), d el 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 iii) se facilitará al Capitán un plan para carga del grano que abarque las disposiciones correspondientes a la estiba y un cuadernillo de estabilidad, aprobados ambos por la Administración o por un Gobierno Contratante en nombre de la Administración, con indicación de las condiciones de estabilidad en que se basen los cálculos citados en el apartado ii) del presente párrafo.
 b) La Administración o un Gobierno Contratante en nombre de la Administración dictarán las precauciones que se hayan de tomar para impedir el corrimiento en todas las demás condiciones de carga de buques proyectados de conformidad con lo dispuesto en la Subsección B) a) de la presente Sección, que se ajusten a las prescripciones allí dadas en los apartados ii) y iii).
 C) BUQUES SIN DOCUMENTOS DE AUTORIZACIÓN
@@ -213,7 +208,6 @@ a) todos los "compartimientos llenos" están dotados de divisiones centrales que
 b) todas las escotillas que den a "compartimientos llenos" están cerradas y las tapas trabadas en posición;
 c) en los "compartimientos parcialmente llenos" todas las superficies libres del grano se nivelan y se aseguran de acuerdo con lo dispuesto en la Sección II de la Parte C;
 d) durante todo el viaje la altura metacéntrica, después de corregida en cuanto a los efectos de las superficies libres de los líquidos que haya en los tanques, es de 0,30 metros o la dada por la fórmula siguiente, si este segundo valor es mayor:
-[imagen]
 donde:
 L = longitud total conjunta de todos los compartimientos llenos;
 B = manga del buque fuera de miembros;
@@ -269,12 +263,10 @@ b) Otros materiales
 Las divisiones construidas no con madera, sino con otros materiales, tendrán una resistencia equivalente a la indicada para tablones amovibles en el párrafo a) de la presente Subsección.
 c) Pies derechos
 i) Los pies derechos de acero utilizados para soportar divisiones con carga en ambos lados tendrán el módulo resistente de sección que dé la fórmula
-[imagen]
 donde:
 W = módulo resistente en cm3.;
 a = separación horizontal entre pies derechos, en metros.
 El módulo resistente de sección por metro de separación entre pies derechos W1 no será inferior al valor dado por la fórmula
-[imagen]
 donde:
 h1 es la distancia vertical no soportada, en metros, que habrá que considerar como la mayor de las distancias que medien entre cualesquiera dos estayes adyacentes o entre un estay y cualquiera de ambos extremos del pie derecho correspondiente. Cuando la distancia sea de menos de 2,40 metros, el módulo correspondiente será calculado como si el valor real fuese de 2,40 metros.
 ii) Los módulos de los pies derechos de madera serán determinados multiplicando el módulo correspondiente al pie derecho de acero por 12,5. Si se emplean otros materiales, el módulo de cada uno de éstos será por lo menos igual al del acero, incrementado en proporción a la relación existente entre los esfuerzos admisibles para el acero y los del material empleado. En estos casos habrá que tener en cuenta también la rigidez de cada uno de los pies derechos, para hacer seguro que la flexión no sea excesiva.
@@ -399,7 +391,6 @@ correspondiente de la Tabla II
 Carga máxima en la parte inferior………………………60% de la carga total
 correspondiente de la Tabla II
 El espesor de los tablones de madera horizontales puede calcularse asimismo considerando la distribución vertical de cargas indicadas en las Tablas III y IV, y en tales casos
-[imagen]
 Donde:
 t = espesor del tablón, en mm.;
 a = luz horizontal del tablón, es decir, distancia entre pies derechos, en metros;

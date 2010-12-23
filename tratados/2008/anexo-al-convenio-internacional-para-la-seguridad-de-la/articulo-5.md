@@ -98,15 +98,54 @@ e) Las disposiciones de la presente Regla se entienden sin perjuicio de lo dispu
 Regía 11
 Lámparas de señales
 Todos los buques de arqueo bruto superior a 150 toneladas llevarán a bordo, cuando efectúen viajes internacionales, una eficiente lámpara de señales diurnas que no dependa exclusivamente de la fuente de energía eléctrica principal del buque.
-Regla 12
+(*) Regla 12
 Aparatos náuticos de a bordo
-a) Todos los buques de arqueo bruto igual o superior a 1 600 toneladas pero inferior a 10 000 toneladas llevarán por lo menos un radar. Todos los buques de arqueo bruto igual o superior a 10 000 toneladas llevarán por lo menos dos radares, cada uno de ello3 capaz de funcionar independientemente del otro. Todos los radares instalados en cumplimiento de la presente Regla serán de un tipo aprobado por la Administración y se ajustarán a normas operacionales no inferiores a las adoptadas por la Organización. En el puente de estos buques habrá medios que permitan efectuar el punteo con los datos proporcionados por el radar.
-(Así refromado el párrafo a) anterior por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
-b) Todos los buques de arqueo bruto igual o superior a 1.600 toneladas irán provistos, cuando efectúen viajes internacionales, de un radiogoniómetro que satisfaga las disposiciones de la Regla 12 del Capítulo IV. La Administración podrá, en zonas en que considere irrazonable o innecesario que se lleve tal instrumento, eximir del cumplimiento de esta prescripción a buques cuyo arqueo bruto sea inferior a 5.000 toneladas, dando la debida consideración al hecho de que el radiogoniómetro es valioso no sólo como instrumento náutico, sino también como ayuda para la localización de buques, aeronaves y embarcaciones de supervivencia.
-c) Todos los buques de arqueo bruto igual o superior a 1.600 toneladas irán provistos, cuando efectúen viajes internacionales, de un girocompás, además de la aguja magnética. La Administración podrá, si considera irrazonable o innecesario exigir el girocompás, eximir del cumplimiento de esta prescripción a buques cuyo arqueo bruto sea inferior a 5.000 toneladas.
-d) Todos los buques nuevos de arqueo bruto igual o superior a 500 toneladas irán provistos, cuando efectúen viajes internacionales, de un ecosonda.
-e) Si bien se tomarán todas las medidas convenientes para mantener los aparatos en condiciones de operar con eficiencia, no se considerará que el funcionamiento defectuoso del equipo de radar, del girocompás o del ecosonda incapacitan al buque para navegar o que es razón suficiente para demorarlo en puertos en que no se disponga fácilmente de medios de reparación.
-f) Todos los buques nuevos de arqueo bruto igual o superior a 1.600 toneladas irán provistos, cuando efectúen viajes internacionales, del equipo de radio necesario para operaciones de recalada empleando la frecuencia de socorro utilizada en radiotelefonía, de conformidad con las disposiciones pertinentes de la Regla 12 b) del Capítulo IV.
+a) A los efectos de la presente Regla la palabra "construido", con respecto a un
+buque, significa una fase de construcción en la que:
+i) la quilla ha sido colocada; o
+ii) comienza la construcción que puede identificarse como propia de un buque concreto; o
+iii) ha comenzado, respecto del buque de que se trate, el montaje que supone la utilización de cuando menos 50 toneladas del total estimado de material estructural o un 1 por ciento de dicho total, si este segundo valor es menor.
+b) i) Los buques de arqueo bruto igual o superior a 150 toneladas irán provistos de:
+1) un compás magnético magistral, con la salvedad prevista en el apartado iv);
+2) un compás magnético de gobierno, a menos que la información de arrumbamiento dada por el compás magistral prescrito en el apartado 1) aparezca también en el puesto de gobierno principal y el timonel pueda leerla aquí claramente;
+3) medios de comunicación adecuados, que la Administración juzgue satisfactorios, entre el puesto del compás magistral y el puesto normal de control de la navegación; y
+4) roedios que permitan tomar marcaciones en un arco de horizonte que en la mayor medida posible sea de 360°.
+ii) El compás magnético a que se hace referencia en el apartado i) estará debidamente compensado y su tablilla o curva de desvíos residuales estará disponible en todo momento.
+iii) Se llevará un compás magnético de respeto que sea intercambiable con el compás magistral, a menos que haya instalado a bordo el compás de gobierno mencionado en el apartado i) 2) o un girocompás.
+iv) La Administración , cuando estime irrazonable o innecesario prescribir un compás magnético magistral porque la naturaleza del viaje, la proximidad del buque a tierra o el tipo de buque no justifiquen la utilización de ese compás, podrá eximir a determinados buques o clases de buques de estas prescripciones, a condición de que se lleve siempre un compás de gobierno adecuado.
+c) Los buques de arqueo bruto inferior a 150 toneladas irán provistos, en la medida que la Administración lo estime razonable y factible, de un compás de gobierno y de medios para tomar marcaciones.
+d) Los buques de arqueo bruto igual o superior a 500 toneladas construidos el 1 de septiembre de 1984 o posteriormente irán provistos de un girocompás que permita cumplir con las siguientes prescripciones:
+i) las indicaciones del girocompás magistral o de un repetidor giroscópico, habrán de ser claramente legibles para el timonel en el puesto de gobierno principal;
+ii) en cuanto a los buques de arqueo bruto igual o superior a 1 600 toneladas, habrá que contar con un repetidor giroscópico o con varios de estos repetidores adecuadamente emplazados para tomar marcaciones en un arco de horizonte que en la mayor medida posible sea de 360°.
+e) Los buques de arqueo bruto igual o superior a 1 600 toneladas construidos con anterioridad al 1 de septiembre de 1984 irán provistos, cuando efectúen viajes internacionales, de un girocompás que cumpla con lo prescrito en el párrafo d).
+f) En los buques en que haya puestos de gobierno de emergencia, se dispondrán los medios necesarios para transmitir información de arrumbamiento a esos puestos.
+g) Los buques de arqueo bruto igual o superior a 500 toneladas construidos el 1 de septiembre de 1984 o posteriormente y los buques de arqueo bruto igual o superior a 1 600 toneladas construidos con anterioridad al 1 de septiembre de 1984 irán provistos de una instalación de radar.
+h) Los buques de arqueo bruto igual o superior a 10 000 toneladas irán provistos de dos instalaciones de radar, cada una de ellas susceptible de ser utilizada independientemente de la otra.*
+* Véase la sección 4 de la Recomendación sobre Normas de rendimiento para el aparato dé radar, aprobadas por la Organización mediante resolución A.477(XII).
+i) En el puente de navegación de los buques que, en virtud de lo prescrito en los párrafos g) y h) hayan de ir provistos de una instalación de radar, habrá medios que permitan efectuar el punteo con los datos proporcionados por dicha instalación. En los buques de arqueo bruto igual o superior a 1 600 toneladas construidos el 1 de septiembre de 1984 o posteriormente, los medios de punteo serán por lo menos tan eficaces como los de un punteador de reflexión.
+j) i) Se instalará una ayuda de punteo radar automática en:
+1) los buques de arqueo bruto igual o superior a 10 000 toneladas, construidos el 1 de septiembre de 1984 o posteriormente;
+2) los buques tanque construidos con anterioridad al 1 de septiembre de 1984, de acuerdo con lo indicado a continuación:
+aa) si su arqueo bruto es igual o superior a 40 000 toneladas, para el 1 de enero de 1985;
+bb) si su arqueo bruto es igual o superior a 10 000 toneladas pero inferior a 40 000, para el 1 de enero de 1986;
+3) los buques construidos con anterioridad al 1 de septiembre de 1984, que no sean buques tanque, de acuerdo con lo indicado a continuación:
+aa) si su arqueo bruto es igual o superior a 40 000 toneladas, para el 1 de septiembre de 1986;
+bb) si su arqueo bruto es igual o superior a 20 000 toneladas pero inferior a 40 000, para el 1 de septiembre de 1987;
+cc) si su arqueo bruto es igual o superior a 15 000 toneladas, pero inferior a 20 000 toneladas, para el 1 de septiembre de 1988.
+ii) A discreción de la Administración , podrán conservarse a bordo hasta el 1 de enero de 1991 las ayudas de punteo radar automáticas instaladas con anterioridad al 1 de septiembre de 1984 aun cuando no se ajusten plenamente a las normas de rendimiento adoptadas por la Organización.
+iii) La Administración podrá dispensar a los buques del cumplimiento de lo prescrito en el presente párrafo cuando estime que es irrazonable o innecesario llevar el equipo citado o cuando los buques vayan a ser retirados definitivamente del servicio dentro de los dos años siguientes a la fecha en que hubiera sido obligatorio instalar el equipo.
+k) Cuando efectúen viajes internacionales, los buques de arqueo bruto igual o superior a 1 600 toneladas construidos con anterioridad al 25 de mayo de 1980, y los de arqueo bruto igual o superior a 500 toneladas construidos el 25 de mayo de 1980 o posteriormente irán provistos de un ecosonda.
+l) Cuando efectúen viajes internacionales, los buques de arqueo bruto igual o superior a 500 toneladas, construidos el 1 de septiembre de 1984 o posteriormente, irán provistos de un dispositivo indicador de velocidad y distancia. Los buques que en virtud de lo dispuesto en el párrafo j) tengan que llevar ayudas de punteo radar automáticas irán provistos de un dispositivo indicador de la velocidad absoluta y de la distancia recorrida en el agua.
+m) Los buques de arqueo bruto igual o superior a 1 600 toneladas construidos con anterioridad al 1 de septiembre de 1984, y los de arqueo bruto igual o superior a 500 toneladas construidos el 1 de septiembre de 1984 o posteriormente, irán provistos de indicadores del ángulo de metida del timón, de la velocidad rotacional de cada hélice y, además, si tienen hélices de paso variable o hélices de empuje lateral, indicadores del paso y de la modalidad de funcionamiento de tales hélices. Todos estos indicadores serán legibles desde el puesto de mando.
+n) Los buques de arqueo bruto igual o superior a 100 000 toneladas construidos el 1 de septiembre de 1984 o posteriormente irán provistos de un indicador de la velocidad angular.
+o) A excepción de lo dispuesto en las Reglas 1/7 b) ii), 1/8 y 1/9, si bien se tomarán las medidas oportunas para mantener los aparatos mencionados en los párrafos d) a n) en buen estado de funcionamiento, el posible funcionamiento defectuoso del equipo no hará que se considere al buque inadecuado para navegar ni será motivo para demorarlo en puertos en los que no se disponga fácilmente de medios de reparación.
+p) Cuando efectúen viajes internacionales, los buques de arqueo bruto igual o superior a 1 600 toneladas irán provistos de un radiogoniómetro que cumpla con lo dispuesto en la Regla IV /12 a). La Administración podrá, en zonas en que estime irrazonable o innecesario que se lleve tal instrumento, eximir de esta prescripción a los buques cuyo arqueo bruto sea inferior a 5 000 toneladas, teniendo en cuenta que el radiogoniómetro es valioso no sólo como instrumento náutico, sino también como ayuda para la localización de buques, aeronaves y embarcaciones de supervivencia.
+q) Cuando efectúen viajes internacionales, los buques de arqueo bruto igual o superior a 1 600 toneladas construidos el 25 de mayo de 1980 o posteriormente, irán provistos del equipo de radio necesario para operaciones de recalada empleando la frecuencia de socorro utilizada en radiotelefonía, de conformidad con las dispo¬siciones pertinentes de la Regla IV /12 b).
+r) Todo el equipo provisto en cumplimiento de la presente Regla será de tipo aprobado por la Administración. El equipo que se instale a bordo de los buques el 1 de septiembre de 1984 o posteriormente, se ajustará a normas de rendimiento apropiadas no inferiores a las adoptadas por la Organización. A discreción de la Administración , el equipo instalado con anterioridad a la adopción de las normas de rendimiento de que se trate podrá no ajustarse plenamente a tales normas, siempre que se tengan en cuenta los criterios recomendados que la Organización pueda llegar a aprobar en relación con éstas.
+s) La unidad compuesta por una nave que empuja y una nave empujada, rígidamente conectadas, será considerada como un solo buque a los efectos de la presente Regla cuando dichas naves hayan sido proyectadas como combinación destinada a ser utilizada como remolcador y gabarra integrados.
+t) Si la aplicación de lo prescrito en la presente Regla obliga a hacer reformas estructurales en un buque construido con anterioridad al 1 de septiembre de 1984, la Administración podrá otorgar, teniendo en cuenta la fecha programada para que el buque efectúe su primera entrada en dique seco según lo prescrito en las presentes Reglas, una ampliación del plazo para la instalación del equipo necesario que no exceda del 1 de septiembre de 1989.
+u) A reserva de lo dispuesto en otros puntos de la presente Regla, la Administración podrá otorgar a buques determinados exenciones de carácter parcial o condicional cuando cualquiera de dichos buques efectúe un viaje en el que su distancia máxima a la costa, la duración y la naturaleza del viaje, la ausencia de riesgos generales de navegación y otras condiciones que afecten a la seguridad hagan irrazonable o innecesaria la aplicación íntegra de lo dispuesto en la presente Regla. Al decidir si procede o no otorgar exenciones a un buque determinado, la Administración tendrá en cuenta el efecto que una exención pueda tener en la seguridad de todos los demás buques.
+(*)(Así sustituido el texto de la regla 12) anterior el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 13
 Dotación
 Los Gobiernos Contratantes se obligan, en relación con los buques de sus respectivos países, a mantener o, si es necesario, adoptar medidas que garanticen que desde el punto de vista de seguridad de la vida humana en el mar dichos buques llevarán dotación suficiente y competente.
@@ -148,15 +187,24 @@ En general: "Afirmativo." Concretamente:
 "Hombre en la canasta salvavidas."
 "Cobren."
 De día - Movimiento horizontal de una bandera blanca, o de los brazos extendidos horizontalmente, o disparo de una señal de estrellas rojas. De noche - Movimiento horizontal de una luz o una bengala blancas o disparo de una señal de estrellas rojas. | En general: "Negativo." Concretamente: "Larguen amarras." "Bueno, aguanten" (basta de cobrar
-d) Señales que utilizarán las aeronaves afectas a operaciones de búsqueda y salvamento para orientar a buques hacia una aeronave, un buque o personas en peligro (véase Nota al final del presente apartado):
-i) Las maniobras enumeradas a continuación, realizadas por una aeronave en el orden que se indica, significan que la aeronave está dirigiendo a una embarcación de superficie hacia una aeronave o una embarcación de superficie en peligro:
+(*)d) Señales que utilizarán las aeronaves afectas a operaciones de búsqueda y salvamento para orientar a buques hacia una aeronave, un buque o personas en peligro:
+i) Las maniobras enumeradas a continuación, realizadas por una aeronave en el orden que se indica, significan que la aeronave desea dirigir una embarcación de superficie hacia una aeronave o hacia una embarcación de superficie en peligro:
 1) descripción de un círculo, cuando menos, alrededor de la embarcación de superficie;
-2) cruce a escasa altitud de la derrota estimada de la embarcación de superficie, cerca de la proa de ésta, acelerando y decelerando el motor o variando el paso de hélice;
+2) cruce, a escasa altitud, de la derrota estimada de la embarcación de superficie, cerca de la proa de ésta, haciendo a la vez que:
+— las alas experimenten un movimiento de oscilación; o
+— la potencia de los motores varíe abriendo y cerrando el mando de gases; o
+— el paso de la hélice varíe.
+(A causa del alto nivel de ruido imperante en la embarcación de superficie, las señales acústicas pueden ser menos eficaces que la señal visible y se consideran como medios alternativos para atraerse la atención.)
 3) vuelo en la dirección que la embarcación de superficie deba seguir.
 La repetición de estas maniobras tendrá el mismo significado.
 ii) La maniobra indicada a continuación, realizada por una aeronave, significa que ya no se necesita la ayuda de la embarcación de superficie destinataria de la señal:
-- cruce a escasa altitud de la estela de la embarcación de superficie, cerca de la popa de ésta, acelerando y decelerando el motor o variando el paso de hélice.
-Nota: La Organización notificará por anticipado y según proceda los cambios que puedan producirse en estas señales.
+cruce, a escasa altitud, de la estela de la embarcación de superficie, cerca de la popa de ésta, haciendo a la vez que:
+— las alas experimenten un movimiento de oscilación; o
+— la potencia de los motores varíe abriendo y cerrando el mando de gases; o
+— el paso de la hélice varíe.
+(A causa del alto nivel de ruido imperante en la embarcación de superficie, las señales acústicas pueden ser menos eficaces que la señal visible y se consideran como medios alternativos para atraerse la atención.)
+Nota: La Organización notificará por adelantado toda modificación de estas señales según sea necesario.
+(*)(Así sustituido el texto del párrafo d) anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 Regla 17
 Escalas de práctico y escalas mecánicas de práctico
 Los buques que realicen viajes en el curso de los cuales exista la posibilidad de que hayan de tomar práctico cumplirán con las prescripciones siguientes:
@@ -180,18 +228,24 @@ i) Si existe una escala mecánica de práctico, tanto dicha escala como su equip
 ii) Próxima a la escala mecánica se tendrá lista para empleo inmediato una escala de práctico que cumpla con las disposiciones del párrafo a) de la presente Regla.
 Regla 18
 Estaciones radiotelefónicas de ondas métricas
-Cuando un Gobierno Contratante prescriba para los buques que naveguen en una zona sometida a su soberanía que vayan provistos de una estación radiotelefónica de ondas métricas, destinada a ser utilizada en combinación con el sistema que ha sido establecido para fomentar la seguridad de la navegación, dicha estación cumplirá con las disposiciones de la Regla 17 del Capítulo IV y será utilizada de acuerdo con lo dispuesto en la Regla 8 del Capítulo IV.
+(Mediante el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009, se establece lo siguiente: "...Se suprime el texto actual de esta Regla (véase la Regla IV / 4-1 b)")
 Regla 19
 Empleo del piloto automático
 a) En zonas de gran densidad de tráfico o cuando la visibilidad sea limitada y en toda otra situación de navegación peligrosa en que se utilice el piloto automático, deberá ser posible restablecer en todo momento el control manual sobre el gobierno del buque.
 b) En las circunstancias que se acaban de enumerar deberá ser posible para el oficial de guardia disponer en el acto de los servicios de un timonel calificado, que en todo momento estará preparado para hacerse cargo del gobierno del buque.
 c) El cambio del gobierno automático al gobierno manual y viceversa será efectuado por un oficial o bajo la vigilancia de éste.
 d) El gobierno manual será objeto de comprobación después de toda utilización prolongada del piloto automático y antes de entrar en las zonas en que la navegación exija precauciones especiales.
-(Así adicionado el párrafo d) anterior a la regla 19) por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(Así adicionado el párrafo d) anterior a la regla 19) por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante tratado internacional N° 8708 del 26 de febrero del 2009)
+(*) d) El gobierno manual será objeto de comprobación después de toda utilización prolongada del piloto automático y antes de entrar en las zonas en que la navegación exija precauciones especiales.
+(*)(Mediante el artículo único de la Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), aprobada el 20 de noviembre de 1981, aprobada mediante tratado internacional N° 8708 del 26 de febrero del 2009, se ordena adicionar el párrafo d) anterior a la regla 19), no obstante este inciso ya había sido adicionado anteriormente con igual contenido)
 (*) Regla 19-1
 Funcionamiento del aparato de gobierno
 En las zonas en que la navegación exija precauciones especiales, a bordo habrá más de un servomotor del aparato de gobierno funcionando cuando los servomotores tengan aptitud para funcionar simultáneamente.
-(*)(Así adicionada la regla 19-1 anterior al Capítulo v) "Seguridad de la Navegación", por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(*)(Así adicionada la regla 19-1 anterior al Capítulo v) "Seguridad de la Navegación", por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante tratado internacional N° 8708 del 26 de febrero del 2009)
+(**) Regla 19-1
+Funcionamiento del aparato de gobierno
+En las zonas en que la navegación exija precauciones especiales, cuando los buques lleven servomotores del aparato de gobierno con aptitud para funcionar simultáneamente, deberá haber más de un servomotor funcionando.
+(**)(Mediante el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009, se ordena adicionar la regla 19-1 anterior. No obstante; esta regla ya había sido adicionada anteriormente con texto direfente)
 (*) Regla 19-2
 Aparato de gobierno - Comprobación y prácticas
 a) Dentro de las 12 horas previas a la salida del buque, la tripulación verificará y probará el aparato de gobierno. El procedimiento de comprobación comprenderá, según proceda, el funcionamiento de:
@@ -212,7 +266,24 @@ ii) Todos los oficiales encargados del manejo o el mantenimiento del aparato de 
 d) Además de las verificaciones y pruebas normales prescritas en los párrafos a) y b) de la presente Regla, se efectuarán prácticas de gobierno del buque en situaciones de emergencia por lo menos una vez cada tres meses, a fin de adquirir experiencia en los procedimientos de gobierno apropiados para esas situaciones. Dichas prácticas comprenderán el mando directo desde el compartimiento del aparato de gobierno, los procedimientos de comunicación con el puente de navegación y, cuando proceda, la utilización de las fuentes secundarias de energía.
 e) La Administración podrá no obligar a satisfacer la prescripción de efectuar las verificaciones y pruebas prescritas en los párrafos a) y b) de la presente Regla con respecto a los buques que realicen con regularidad viajes de corta duración. Dichos buques deberán efectuar las verificaciones y pruebas mencionadas por lo menos una vez semanalmente.
 f) La fecha en que se efectúen las verificaciones y pruebas prescritas en los párrafos a) y b) de la presente Regla y la fecha y los pormenores de las prácticas de gobierno del buque en situaciones de emergencia efectuadas en virtud del párrafo d) de la presente Regla, se anotarán en el Diario de navegación prescrito por la Administración.
-(*)(Así adicionada la regla 19-2 anterior al Capítulo v) "Seguridad de la Navegación", por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
+(*)(Así adicionada la regla 19-2 anterior al Capítulo v) "Seguridad de la Navegación", por el anexo 1° del Protocolo de 1978 relativo al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, 1974, aprobado mediante tratado internacional N° 8708 del 26 de febrero del 2009)
+(**) Regla 19-2
+Aparato de gobierno - Comprobación y prácticas
+a) Dentro de las 12 horas previas a la salida del buque, la tripulación verificará y probará el aparato de gobierno. El procedimiento de comprobación comprenderá, según proceda, el funcionamiento de:
+i) el aparato de gobierno principal;
+ii) el aparato de gobierno auxiliar;
+iii) los sistemas de telemando del aparato de gobierno;
+iv) los puestos de gobierno situados en el puente de navegación;
+v) la fuente de energía de emergencia;
+vi) los axiómetros, tomando como referencia la posición real del timón;
+vii) los dispositivos de alarma para fallos en el suministro de energía destinada a los sistemas de telemando del aparato de gobierno;
+viii) los dispositivos de alarma para fallos del servomotor del aparato de
+gobierno; y
+ix) los medios de aislamiento automáticos y otro equipo automático.
+b) Las verificaciones y pruebas comprenderán:
+i) el recorrido completo del timón de acuerdo con las características que el aparato de gobierno deba reunir;
+ii) la inspección visual del aparato de gobierno y de sus conexiones articuladas; y
+(**)(Mediante el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC .1 (XLV), del 20 de noviembre de 1981, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009, se ordena adicionar la regla 19-2 anterior. No obstante; esta regla ya había sido adicionada anteriormente con diferente contenido)
 Regla 20
 Publicaciones náuticas
 A bordo de todo buque deberá haber los adecuados derroteros, instrucciones para la navegación, libros de faros, avisos a navegantes, tablas de mareas y cualquier otra publicación náutica necesaria para el viaje proyectado, todo ello debidamente actualizado.
