@@ -1,0 +1,30 @@
+CAPITULO 14 - PROTECCIÓN DEL PERSONAL
+14.1 Equipo protector
+14.1.1 Para la protección de los tripulantes ocupados en las operaciones de carga y descarga habrá a bordo del buque equipo adecuado que comprenda amplios mandiles, guantes especiales con largos manguitos, calzado adecuado, trajes de trabajo de material resistente a los productos químicos y gafas de ajuste seguro o pantallas protectoras de la cara, o ambas cosas. La indumentaria y el equipo protectores cubrirán toda la piel, de modo que ninguna parte del cuerpo quede sin protacción.
+14.1.2 Las ropas de trabajo y el equipo protector se guardarán en lugares fácilmente accesibles y en taquillas especiales. Dicho equipo no se guardará en los espacios de alojamiento, excepto cuando se trate de equipo nuevo sin usar y de equipo que no haya sido utilizado desde que fue sometido a una limpieza completa. No obstante, la Administración podrá autorizar la instalación de pañoles para guardar dicho equipo dentro de los espacios de alojamiento si están adecuadamente segregados de los espacios habitables, tales como camarotes, pasillos, comedores, cuartos de baño, etc.
+14.1.3 El equipo protector se utilizará en toda operación que preda entrañar peligro para el personal.
+14.2 Equipo de seguridad
+14.2.1 Los buques que transporten cargas respecto de las cuales en la columna "m" de la tabla del capítulo 17 aparezcan las referencias 15.12, 15.12.1 ó 15.12.3 llevarán a bordo un número suficiente, que nunca será inferior a tres, de juegos completos de equipo de seguridad, cada uno de los cuales habrá de permitir al personal entrar en un compartimento lleno de gas y trabajar en él al menos durante 20 minutos. Se proveerá dicho equipo además del que prescribe la regla II-2/17 de las Enmiendas de 1983 al SOLAS.
+14.2.2 Un juego completo de equipo de seguridad comprenderá:
+.1 un aparato respiratorio autónomo (que no funcione con oxígeno almacenado);
+.2 Indumentaria protectora, botas, guantes y gafas de ajuste seguro;
+.3 un cable salvavidas ignífugo, con cinturón, resistente a las cargas que se transporten; y
+.4 una lámpara antideflagrante.
+14.2.3 Para el equipo de seguridad prescrito en 14.2.1, todos los buques llevarán a bordo bien:
+.1 un juego de botellas de aire comprimido de respeto, completamente cargadas, para cada aparato respiratorio;
+.2 un compresor especial de aire adecuado para suministrar aire a alta presión de la pureza necesaria;
+.3 un colector de carga que pueda llenar suficientes botellas de aire comprimido de respeto para los aparatos respiratorios; o bien
+.4 botellas de aire comprimido de respeto totalmente cargadas, cuya capacidad total de aire libre sea por lo menos de 6 000 1 por cada aparato respiratorio llevado a bordo que exceda del numero prescrito en la regla II-2/17 de las Enmiendas de 1983 al SOLAS.
+14.2.4 Toda cámara de bombas de carga de buques que transporten cargas sujetas a lo prescrito en 15.18, o cargas respecto de las cuales en la columna "i" de la tabla del capítulo 17 se prescriba equipo detector de vapores tóxicos deberá tener, si no dispone de tal equipo:
+.1 un sistema de conductos de aire a baja presión con conexiones de conducto flexible adecuadas para utilización con los aparatos respiratorios prescritos en 14.2.1 ; este sistema habrá de tener una capacidad de aire a alta presión suficiente para suministrar, mediante dispositivos reductores de presión, aire a baja presión en la cantidad necesaria para que dos hombres puedan trabajar en un espacio peligroso a causa del gas durante 1 h al menos sin utilizar las botellas del aparato respiratorio; se proveerán medios que permitan recargar las botellas de aire fijas y las botellas de los aparatos respiratorios utilizando un compresor especial de aire adecuado para suministrar aire a alta presión de la pureza necesaria; o bien
+.2 una cantidad equivalente de aire embotellado de respeto, en lugar del sistema de conductos de aire a baja presión.
+14.2.5 Un juego por lo menos del equipo de seguridad prescrito en 14.2.2 se guardará en una taquilla adecuada, marcada claramente y situada en un lugar de fácil acceso, cerca de la cámara de bombas de carga. Los demás juegos de equipo de seguridad se guardarán asimismo en lugares adecuados, marcados claramente y fácilmente accesibles.
+14.2.6 Los aparatos respiratorios serán inspeccionados al menos una vez al mes por un oficial competente, consignándose la inspección en el Diario de navegación. El equipo será examinado y probado por un '. experto al menos una vez al año.
+14.2.7 En un lugar fácilmente accesible se guardará una parihuela adecuada para izar a una persona lesionada desde espacios como la cariara de bombas de carga.
+14.2.8 Los buques destinados al transporte de ciertas cargas estarán provistos de medios de protección respiratorios y para los ojos, adecuados y en numero suficiente para todas las personas que pueda haber a bordo, para casos de evacuación de emergencia, y ajustados a lo siguiente:
+.1 los medios de protección respiratorios del tipo de filtro se aceptarán únicamente cuando un solo filtro sirva para todas las cargas designadas que el buque pueda transportar en virtud de su certificado;
+.2 los aparatos respiratorios autónomos habrán de poder funcionar normalmente durante 15 min por lo menos;
+.3 los medios de protección respiratorios destinados a evacuaciones de emergencia no se utilizarán a fines de extinción de incendios ni de manipulación de la carga, y a este efecto llevarán la oportuna indicación.
+Las distintas cargas a las que se aplica lo dispuesto en el presente párrafo están indicadas en la columna "1" de la tabla del capítulo 17.
+14.2.9 A bordo del buque habrá equipo de primeros auxilios sanitarios, incluido un aparato de respiración artificial por oxígeno y antídotos contra las cargas que se transporten.
+14.2.10 En cubierta, en lugares apropiados, se proveerán duchas de descontaminación adecuadamente indicadas y un lavaojos. Las duchas y el lavaojos habrán de poder utilizarse en todas las condiciones ambientales.

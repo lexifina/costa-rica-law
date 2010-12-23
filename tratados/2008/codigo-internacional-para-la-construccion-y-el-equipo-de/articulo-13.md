@@ -1,0 +1,16 @@
+CAPITULO 13 - INSTRUMENTOS 13.1
+13.1 Instrumentos de medición
+13.1.1 Los tanques de carga irán provistos de dispositivos de medición que respondan a uno de los siguientes tipos:
+.1 Dispositivo abierto: el que hace uso de una abertura en los tanques y puede exponer el elemento medidor a la carga o su vapor; ejemplo de ello es la abertura practicada en el espacio vacío del tanque.
+.2 Dispositivo de paso reducido: el que penetra en el tanque y que cuando se está haciendo uso de él permite que una cantidad pequeña de vapor de la carga o de la carga líquida quede expuesta a la atmósfera; cuando no se esté haciendo uso da él se mantiene el dispositivo completamente cerrado; el proyecto del dispositivo será tal que impida que al abrir éste se pro¬duzca una fuga peligrosa del contenido del tanque (líquido o pulverizado).
+.3 Dispositivo cerrado: el que penetra en el tanque pero como parte de un sistema cerrado y que impide que el contenido del tanque se salga; ejemplos: los sistemas de flotador, la sonda electrónica, la sonda magnética y la mirilla protegida; otra posibilidad es utilizar dispositivos indirectos, con los que no se perfora el forro del tanque y que son independientes del tanque; ejemplos de tales dispositivos: los utilizados para pesar la carga o los flujómetros.
+13.1.2 Los dispositivos de medición serán independientes del equipo prescrito en la sección 15.19.
+13.1.3 Únicamente se permitirán dispositivos de medición abiertos y de paso reducido cuando:
+.1 el Código permita la respiración abierta del tanque; o
+.2 se provean medios para aliviar la presión del tanque antes de utilizar el dispositivo de medición.
+13.1.4 En la columna "h" de la tabla del capítulo 17 figuran los tipos de dispositivos de medición utilizables para los distintos productos.
+13.2 Detección de vapores
+13.2.1 Los buques que transporten productos tóxicos o inflamables, o de ambas clases, irán provistos como mínimo de dos instrumentos proyectados y calibrados para analizar los vapores de que se trate. Si tales instrumentos no pueden analizar a la vez las concentraciones tóxicas y las concentraciones inflamables se proveerán dos juegos distintos de instrumentos.
+13.2.2 Los instrumentos detectores de vapores podrán ser amovibles o fijos. Si se instala un sistema fijo se proveerá por lo menos un instrumento amovible.
+13.2.3 Cuando no se disponga de equipo detector de los vapores tóxicos utilizable para algunos productos cuya detección esté prescrita en la columna "i" de la tabla del capítulo 17, la Administración podrá eximir al buque del cumplimiento de dicha prescripción a condición de que en el Certificado internacional de aptitud para el transporte de productos químicos peligrosos a granel se haga la anotación correspondiente. Cuando otorgue dicha exención, la Administración señalará la necesidad de disponer de un suministro complementario de aire respirable y en el Certificado internacional de aptitud para el transporte de productos químicos peligrosos a granel se hará una anotación que remita a lo dispuesto en 14.2.4 y 16.4.2.2.
+13.2.4 En la columna "i" de la tabla del capítulo 17 se indican las prescripciones relativas a detección de vapores que rigen para distintos productos.
