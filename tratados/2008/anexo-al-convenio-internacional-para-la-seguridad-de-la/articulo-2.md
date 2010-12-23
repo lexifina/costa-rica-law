@@ -102,6 +102,7 @@ Permeabilidad en los buques de pasaje
 .2 la parte del buque situada a proa del espacio de máquinas; y
 .3 la parte del buque situada a popa del espacio de máquinas.
 2.1 La permeabilidad media uniforme de la totalidad del espacio de máquinas vendrá determinada por la fórmula
+[imagen]
 en la que
 a = volumen de los espacios de pasajeros, tal como dichos espacios quedan definidos en la Regla 2, que estén situados por debajo de la línea de margen y queden comprendidos entre los limites del espacio de máquinas;
 c = volumen de los espacios de entrepuente situados por debajo de la línea de
@@ -109,6 +110,7 @@ margen y comprendidos entre los límites del espacio de máquinas que estén des
 v = volumen total del espacio de máquinas que quede por debajo de la línea de margen.
 2.2 En los casos en que se demuestre de un modo satisfactorio a juicio de la Administración que la permeabilidad media determinada por un cálculo efectuado directamente es menor que la resultante de la fórmula, podrá utilizarse el valor obtenido por ese cálculo directo. A los efectos de tal cálculo, la permeabilidad de los espacios de pasajeros, tal como dichos espacios quedan definidos en la Regla 2 se considerará igual a 95; la de todos los espacios de carga, carbón y pertrechos, igual a 60; y la de los tanques de doble fondo, tanques de combustible y otros tanques tendrá el valor que se apruebe en cada caso.
 3 Salvo en el caso previsto en el párrafo 4, la permeabilidad media uniforme correspondiente a toda la parte del buque situada a proa o a popa del espacio di; máquinas vendrá determinada por la fórmula
+[imagen]
 en la que
 a = volumen de los espacios de pasajeros, tal como dichos espacios quedan definidos en la Regla 2, situados por debajo de la línea de margen, a proa o a popa del espacio de máquinas; y
 v = volumen total de la parte del buque situada por debajo de la línea de margen, a proa o a popa del espacio de máquinas.
@@ -130,6 +132,7 @@ Eslora admisible de los compartimientos en los buques de pasaje
 .1 a medida que la eslora del buque aumente, y
 .2 partiendo de un factor A, aplicable a los buques destinados principalmente al transporte de carga, hasta llegar a un factor B, aplicable a los buques destinados principalmente al transporte de pasajeros.
 2.3 Las variaciones de los factores A y B vendrán dadas por las fórmulas (1) y (2), consignadas a continuación, en las que L es la eslora del buque, tal como ésta queda definida en la Regla 2:
+[imagen]
 3 Criterio de servicio
 3.1 Para un buque de una eslora dada el factor de subdivisión apropiado se determinará mediante el coeficiente de criterio de servicio (en adelante llamado coeficiente de criterio) que dan las fórmulas (3) y (4), luego consignadas, en las que:
 Cs = coeficiente de criterio;
@@ -142,16 +145,22 @@ N = número de pasajeros para el cual se extenderá el oportuno certificado en f
 K= 0.056L
 3.2 Cuando el valor de KN sea mayor que la suma de P y el volumen total de los espacios de pasajeros que realmente se hallen situados por encima de la línea de margen, la cifra que se asignará a Pt será la resultante de esa suma o la correspondiente a dos tercios de KN, si este valor es mayor que aquél.
 Cuando P1 sea mayor que P
+[imagen]
 y en los otros casos
+[imagen]
 3.3 En los buques que carezcan de cubierta corrida de cierre los volúmenes se medirán hasta la línea de margen utilizada en la determinación de la eslora inundable.
 4 Reglas para el compartimentado de buques no comprendidos en el párrafo 5
 4.1 El compartimentado a popa' del pique de proa de los buques cuya eslora sea igual o superior a 131 m y cuyo coeficiente de criterio sea igual o inferior a 23, estará regido por el factor A, que da la fórmula (1); el de los buques cuyo coeficiente de criterio sea igual o superior a 123, por el factor B, que da la fórmula (2); y el de los buques cuyo coeficiente de criterio esté comprendido entre 23 y 123, por el factor F, que se obtiene por interpolación lineal entre los factores A y B empleando la fórmula
+[imagen]
 Sin embargo, cuando dicho criterio sea igual o superior a 45 y, a la vez, el factor de subdivisión determinado por la fórmula (5) sea igual o inferior a 0,65, pero superior a 0,50, el compartimentado a popa del pique de proa estará regido por el factor 0,50.
 4.2 Cuando el factor F sea inferior a 0,40 y se demuestre de un modo satisfactorio a juicio de la Administración que es prácticamente imposible adoptarlo para un compartimiento de máquinas, el compartimiento de este espacio podrá estar regido por un factor mayor, que, sin embargo, no excederá de 0,40.
 4.3 El compartimentado a popa del pique de proa de los buques cuya eslora sea inferior a 131m, pero no inferior a 79m, y cuyo coeficiente de criterio sea igual a S, siendo
+[imagen]
 estará regido por un factor igual a la unidad; el de los buques cuyo coeficiente de criterio sea igual o superior a 123, por el factor B, que da la fórmula (2);el de los buques cuyo coeficiente de criterio esté comprendido entre S y 123,por el factor F, que se obtiene por interpolación lineal entre la unidad y el factor B, empleando la fórmula.
+[imagen]
 4.4 El compartimentado a popa del pique de proa de los buques cuya eslora sea inferior a 131 m pero no inferior a 79 m, y cuyo coeficiente de criterio sea inferior a S, así como el de todos los buques cuya eslora sea inferior a 79 m, estará regido por un factor igual a la unidad, a menos que, en cualquiera de ambos casos, se demuestre de un modo satisfactorio a juicio de la Administración que es prácticamente imposible adoptar este factor para ninguna parte del buque, en cuyo caso la Administración podrá permitir la suavización que estime justificada en la aplicación de esta prescripción, consideradas todas las circunstancias.
 4.5 Lo dispuesto en el párrafo 4.4 será también de aplicación a los buques para los que, sea cual fuere su eslora, se vaya a expedir un certificado autorizándoles a transportar un número de pasajeros superior a 12, pero que no exceda de
+[imagen]
 (*)5 Normas especiales de compartimentado en buque que cumplan con la reglaIII/20.1.2
 (*)(Así sustituido el epígrafe anterior por el artículo único de las Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) aprobada el 17 de junio de 1983, mediante Tratado Internacional N° 8708 del 26 de febrero del 2009)
 5.1.1 En el caso de buques destinados principalmente al transporte de pasajeros, el compartimentado a popa del pique de proa estará regido por un factor igual a 0,50 o por el factor determinado de acuerdo con lo dispuesto en los párrafos 3 y 4, si el valor de éste es inferior a 0,50.
@@ -159,10 +168,14 @@ estará regido por un factor igual a la unidad; el de los buques cuyo coeficient
 5.2 Si en un buque cualquiera, sea su eslora inferior o no a 91,5 m, la necesidad de que transporte carga en cantidades considerables impide a efectos prácticos exigir que el compartimentado a popa del pique de proa esté regido por un factor que no exceda de 0,50,1a norma de compartimentado aplicable se determinará de conformidad con los incisos .1 a .5 que se dan a continuación, a reserva de que cuando la Administración juzgue que sería poco razonable insistir en el cumplimiento rígido de esta norma, en el sentido que sea, podrá autorizar otra disposición de los mamparos estancos que por sus cualidades esté justificada y que no haga menor la eficacia general del compartimentado.
 .1 Serán de aplicación las disposiciones del párrafo 3 relativas al coeficiente de criterio, salvo por lo que respecta al cálculo del valor de P1, para pasajeros con litera, en el que K tendrá como valor el definido en el párrafo 3 o bien 3,5 m3, si éste es el mayor de ambos valores; y para pasajeros sin litera, K tendrá un valor de 3,5 m3.
 .2 El factor B que figura en el párrafo 2 será sustituido por el factor BB, determinado por la fórmula siguiente:
+[imagen]
 3 El compartimentado a popa del pique de proa de los buques cuya eslora sea igual o superior a 131 m y cuyo coeficiente de criterio sea igual o inferior a 23, estará regido por el factor A, que da la fórmula (1) del párrafo 2.3; el de los buques cuyo coeficiente de criterio sea igual o superior a 123, por el factor BB, que da la fórmula consignada en el párrafo 5.2.2; y el de los buques cuyo coeficiente de criterio esté comprendido entre 23 y 123, por el factor F, que se obtiene por interpolación lineal entre los factores A y BB, empleando la fórmula:
+[imagen]
 aunque si el factor F así obtenido es inferior a 0,50, el factor que procederá utilizar será 0,50 o el calculado de acuerdo con lo dispuesto en el párrafo 4.1, si este es menor.
 4 El compartimentado a popa del pique de proa de los buques cuya eslora sea inferior a 131 m, pero no inferior a 55 m, y cuyo coeficiente de criterio sea igual a S1 siendo
+[imagen]
 estará regido por un factor igual a la unidad; el de los buques cuyo coeficiente de criterio sea igual o superior a 123, por el factor BB, dado por la fórmula consignada en el párrafo 5.2.2; el de los buques cuyo coeficiente de criterio esté comprendido entre S1 y 123, por el factor F, que se obtiene por interpolación lineal entre la unidad y el factor BB, empleando la fórmula:
+[imagen]
 aunque si, en cualquiera de estos dos casos últimos, el factor así obtenido es inferior a 0,50, el compartimentado podrá estar regido por un factor que no exceda de 0,50.
 5 El compartimentado a popa del pique de proa de los buques cuya eslora sea inferior a 131 m, pero no inferior a 55 m, y cuyo coeficiente de criterio sea inferior a Sj, así como el de los buques cuya eslora sea inferior a 55 m, estará regido por un factor igual a la unidad, a menos que se demuestre de un modo satisfactorio a juicio de la Administración que es prácticamente imposible adoptar este factor para determinados compartimientos, en cuyo caso la Administración podrá permitir, respecto de estos compartimientos, la suavización que estime justificada en la aplicación de esta norma, consideradas todas las circunstancias y a condición de que el compartimiento situado más a popa y el mayor número posible de los compartimientos situados a proa (entre el pique de proa y el extremo de popa del espacio de máquinas) no tengan una eslora superior a la inundable.
 5.3 Las disposiciones especiales relativas a permeabilidad que figuran en la regla 5.4 se utilizarán para calcular las curvas de esloras inundables.
@@ -461,6 +474,7 @@ Disposición del circuito de achique
 2.7.3 Los vástagos de las tomas de mar y de las válvulas de aspiración directa se prolongarán hasta un nivel que rebase claramente el del piso de la cámara de máquinas.
 2.8 Todas las tuberías de aspiración de las sentinas, hasta su punto de conexión con las bombas, serán independientes de otras tuberías.
 2.9 El diámetro d del colector de achique se calculará utilizando la fórmula dada a continuación. No obstante, el diámetro interior real de dicho colector podrá redondearse hasta el tamaño normalizado más próximo que la Administración juzgue aceptable:
+[imagen]
 donde: d es el diámetro interior del colector de achique, en milímetros
 L y B son, en metros, la eslora y la manga del buque, tal como éstas quedan definidas en la Regla 2, y
 D es el puntal de trazado del buque, medido hasta la cubierta de cierre, en metros.
@@ -744,10 +758,17 @@ Fuente de energía eléctrica de emergencia en los buques de pasaje
 (Así corrida la numeración del punto anterior por el artículo único de las Enmiendas al convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009, que lo traspasó del antiguo punto 2.1.6) al 2.1.7)
 .8en la bomba contraincendios, en la bomba de rociadores y en la bomba de emergencia para el achique de sentinas a que se hace referencia en el párrafo 2.4, y en el punto de arranque de sus respectivos motores.
 (Así corrida la numeración del punto anterior por el artículo único de las Enmiendas al convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009, que lo traspasó del antiguo punto 2.1.7) al 2.1.8)
-2.2 Durante un periodo de 36 horas, las luces de navegación y demás luces prescritas por el Reglamento internacional para prevenir los abordajes, que haya en vigor.
+(*) 2.2 Durante un periodo de 36 horas:
+.1 las luces de navegación y demás luces prescritas en el Reglamento internacional para prevenir los abordajes que haya en vigor; y
+.2 en los buques construidos el 1 de febrero de 1995, o posteriormente, la instalación radioeléctrica de ondas métricas prescrita en la regla IV/7.1.1 y IV/1.1.2; y. si procede:
+.2.1 la instalación radioeléctrica de ondas hectométricas prescrita en las reglas IV/9.1.1. IV/9.1.2, IV/10.1.2 y IV/10.1.3;
+.2.2 la estación terrena de buque prescrita en la regla IV/10.1.1; y
+.2.3 la instalación radioeléctrica de ondas hectométricas/decamétricas prescrita en las regla. IV/10.2.1, IV/10.2.l y IV/11.1.
+(*)(Así reformado el punto 2.2) anterior por el anexo 1° del tratado internacional N° 8708 del 26 de febrero del 2009 “Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, referentes a las radiocomunicaciones para el sistema mundial de socorro y seguridad marítimos. Resolución N° 1 del del 9 de noviembre de 1988”)
 2.3 Durante un periodo de 36 horas:
 .1 todo el equipo de comunicaciones interiores necesario en una situación de emergencia;
-.2 las ayudas a la navegación prescritas en la Regla V/12; cuando no sea razonable o posible aplicar esta disposición la Administración podrá dispensar de su cumplimiento a los buques de menos de 5 000 toneladas de arqueo bruto;
+.2 los aparatos náuticos de a bordo prescritos (*) en la Regla V/12; cuando no sea razonable o posible aplicar esta disposición la Administración podrá dispensar de su cumplimiento a los buques de menos de 5 000 toneladas de arqueo bruto;
+(*)(Así reformada la frase anterior por el anexo 1° del tratado internacional N° 8708 del 26 de febrero del 2009 “Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, referentes a las radiocomunicaciones para el sistema mundial de socorro y seguridad marítimos. Resolución N° 1 del del 9 de noviembre de 1988”. Anteriormente indicaba: “ las ayudas a la navegación prescritas”)
 .3 el sistema de detección de incendios y de alarma, y el sistema de retención y suelta de las puertas contraincendios; y
 .4 haciéndolos funcionar de modo intermitente, la lámpara de señales diurnas, el pito del buque, los avisadores(*) de accionamiento manual y todas las señales interiores que se requieren eh una situación de emergencia;a menos que estos servicios dispongan, para un periodo de 36 horas, de un suministro independiente procedente de una batería de acumuladores situada de modo que quepa utilizarla en caso de emergencia.
 (*)(Así sustituida la frase anterior por el artículo único de las Enmiendas al convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009. Anteriormente la frase indicaba lo siguiente "dispositivos de alarma contraincendios")
@@ -771,7 +792,8 @@ Fuente de energía eléctrica de emergencia en los buques de pasaje
 .3 alimentar inmediatamente los servicios especificados en el párrafo 4, como mínimo.
 4 La fuente transitoria de energía eléctrica de emergencia prescrita en el párrafo 3.1.3 será una batería de acumuladores convenientemente situada para ser utilizada en caso de emergencia, batería que funcionará sin necesidad de recarga y manteniendo una tensión que como máximo discrepe de la nominal en un 12 por ciento de aumento o de disminución durante todo el periodo de descarga, y que podrá, por su capacidad y su disposición, alimentar automáticamente, dado qué falle la fuente de energía eléctrica principal o la de emergencia, los servicios siguientes como mínimo, si el funcionamiento de éstos depende de una fuente de energía eléctrica:
 4.1 Durante media hora:
-.1 el alumbrado prescrito en los párrafos 2.1 y 2.2;
+.1 el alumbrado prescrito en los párrafos 2.1 y 2.2.1
+(*)(Así reformado el punto anterior por el anexo 1° del tratado internacional N° 8708 del 26 de febrero del 2009 “Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, referentes a las radiocomunicaciones para el sistema mundial de socorro y seguridad marítimos. Resolución N° 1 del del 9 de noviembre de 1988”. Anteriormente indicaba: “ las ayudas a la navegación prescritas”)
 .2 todos los servicios prescritos en los párrafos 2.3.1, 2.3.3 y 2.3.4, a menos que tales servicios dispongan para el periodo especificado de un suministro independiente, derivado de una batería de acumuladores convenientemente situada para utilización en caso de emergencia.
 4.2 La energía necesaria para cerrar las puertas estancas, aunque no forzosamente todas a la vez, junto con sus indicadores y señales de aviso según lo prescrito en el párrafo 2.6.1.
 5.1 El cuadro de distribución correspondiente a la fuente de energía eléctrica de emergencia estará instalado tan cerca de ésta como resulte posible.
@@ -806,10 +828,17 @@ Fuente de energía eléctrica de emergencia en los buques de carga
 .4 en todos los pañoles de equipos de bombero;
 .5 en el aparato de gobierno; y
 .6 en la bomba contraincendios a que se hace referencia en el párrafo 2.5, en la bomba de rociadores, si la hay, y en la bomba de emergencia para el achique de sentinas, si la hay, y en el punto de arranque de sus respectivos motores.
-2.3 Durante un periodo de 18 horas, las luces de navegación y demás luces prescritas por el Reglamento internacional para prevenir los abordajes, que haya en ' vigor.
+(*) 2.3 Durante un periodo de 18 horas:
+.1 las luces de navegación y demás luces prescritas en el Reglamento internacional para prevenir los abordajes que haya en vigor;
+.2 en los buques construidos elide febrero de 1995, o posteriormente, la instalación radioeléctrica de ondas métricas prescrita en la regla IV/7.1.1 y IV/7.1.2; y, si procede:
+.2.1 la instalación radioeléctrica de ondas hectométricas prescrita en las reglas IV/9.1.1, IV/9.1.2, IV/10.1.2 y IV/10.1.3;
+.2.2 la estación terrena de buque prescrita en la regla IV/10.1.1; y
+.2.3 la instalación radioeléctrica de ondas hectométricas/ decamétricas prescrita en las reglas IV/10.2.1, IV/10.2.2 y IV/11.1
+(*)(Así reformado el punto 2.3) anterior por el anexo 1° del tratado internacional N° 8708 del 26 de febrero del 2009 “Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, referentes a las radiocomunicaciones para el sistema mundial de socorro y seguridad marítimos. Resolución N° 1 del del 9 de noviembre de 1988”)
 2.4 Durante un periodo de 18 horas:
 .1 todo el equipo de comunicaciones interiores necesario en una situación de emergencia;
-.2 las ayudas a la navegación prescrita en la Regla V/12; cuando no sea razonable o posible aplicar esta disposición, la Administración podrá dispensar de su cumplimiento a los buques de menos de 5 000 toneladas de arqueo bruto;
+.2 los aparatos náuticos de a bordo prescritos (*) en la Regla V/12; cuando no sea razonable o posible aplicar esta disposición, la Administración podrá dispensar de su cumplimiento a los buques de menos de 5 000 toneladas de arqueo bruto;
+(*)(Así reformada la frase anterior por el anexo 1° del tratado internacional N° 8708 del 26 de febrero del 2009 “Enmiendas al Convenio Internacional para la Seguridad de la Vida Humana en el Mar, referentes a las radiocomunicaciones para el sistema mundial de socorro y seguridad marítimos. Resolución N° 1 del del 9 de noviembre de 1988”. Anteriormente indicaba: “las ayudas a la navegación prescrita”)
 .3 el sistema de detección de incendios y de alarma; y
 .4 haciéndolos funcionar de modo intermitente, la lámpara de señales diurnas, el pito del buque, los avisadores(*) dé accionamiento manual y todas las señales interiores que se requieren en una situación de emergencia; a menos que estos servicios dispongan, para un periodo de 18 horas, de un suministro independiente procedente de una batería de acumuladores situada de modo que quepa utilizarla en caso de emergencia.
 (*)(Así sustituida la frase anterior por el artículo único de las Enmiendas al convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009. Anteriormente la frase indicaba lo siguiente "dispositivos.de alarma contraincendios")
@@ -826,7 +855,8 @@ Fuente de energía eléctrica de emergencia en los buques de carga
 .2 conectase automáticamente al cuadro de distribución de emergencia en caso de que falle la fuente de energía eléctrica principal; y
 .3 alimentar inmediatamente los servicios especificados en el párrafo 4, como mínimo.
 4 La fuente transitoria de energía eléctrica de emergencia prescrita en el párrafo 3.1.3 será una batería de acumuladores conveniente situada para ser utilizada en caso de emergencia, batería que funcionará sin necesidad de recarga y manteniendo una tensión que como máximo discrepe de la nominal en un 12 por ciento de aumento o de disminución durante todo el periodo de descarga, y que podrá, por su capacidad y su disposición, alimentar automáticamente durante media hora por lo menos, dado que falle la fuente de energía eléctrica principal o la de emergencia, los servicios siguientes como mínimo, si el funcionamiento de éstos depende de una fuente de energía eléctrica:
-.1 el alumbrado prescrito en los párrafos 2.1, 2.2 y 2.3. Para esta fase transitoria el alumbrado eléctrico de emergencia prescrito podrá proveerse, por lo que respecta al espacio de máquinas y a los alojamientos y espacios de, servicio, mediante distintas lámparas de acumulador fijas, de carga automática y accionadas por relé; y
+.1 el alumbrado prescrito en los párrafos 2.1, 2.2 y 2.3.1 (*). Para esta fase transitoria el alumbrado eléctrico de emergencia prescrito podrá proveerse, por lo que respecta al espacio de máquinas y a los alojamientos y espacios de, servicio, mediante distintas lámparas de acumulador fijas, de carga automática y accionadas por relé; y
+(*)(Así sustituida la frase anterior por el artículo único de las Enmiendas al convenio Internacional para la Seguridad de la Vida Humana en el Mar Resolución MSC 6 (48) del 17 de junio de 1983, aprobada mediante Tratado Internacional N° 8708 del 26 de febrero del 2009. Anteriormente la frase indicaba lo siguiente "el alumbrado prescrito en los párrafos 2.1, 2.2 y 2.3”)
 .2 todos los servicios prescritos en los párrafos 2.4.1, 2.4.3 y 2.4.4 a menos que tales servicios dispongan para el periodo especificado de un suministro independiente, derivado de una batería de acumuladores convenientemente situada para utilización en caso de emergencia.
 5.1 El cuadro de distribución correspondiente a la fuente de energía eléctrica de emergencia estará instalado tan cerca de ésta como resulte posible.
 5.2 Cuando la fuente de energía eléctrica de emergencia esté constituida por un generador, su cuadro de distribución estará situado en el mismo espacio, a menos que esto entorpezca el funcionamiento del cuadro.
