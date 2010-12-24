@@ -1,0 +1,1 @@
+III.—APROBAR el Canon de reserva de espectro para el año 2010, por un monto de ochocientos treinta y ocho millones ciento setenta y siete mil quinientos cuarenta y nueve colones (¢ 838.177.549,00), ya aplicados los ajustes anteriormente indicados.
