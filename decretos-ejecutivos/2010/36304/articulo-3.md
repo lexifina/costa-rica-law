@@ -1,0 +1,2 @@
+Artículo 3º—Modifíquese el artículo 39 del Decreto Ejecutivo Nº 33601-S-MINAE del 9 de agosto del 2006, publicado en La Gaceta Nº 55 del 19 de marzo del 2007, para que se lea de la siguiente manera:
+“Artículo 39.—Muestreo por el laboratorio. Es responsabilidad del laboratorio que cuente con el Permiso Sanitario de Funcionamiento vigente establecer el método de muestreo con base en los métodos de referencia citados en el artículo 38 a fin de garantizar la representatividad de la muestra.”
