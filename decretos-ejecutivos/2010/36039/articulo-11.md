@@ -1,0 +1,1 @@
+Artículo 11.—El vertido de las aguas residuales tratadas generadas en los procesos de fabricación de medicamentos y materias primas debe cumplir con los límites establecidos en el Reglamento de Vertido y Reuso de aguas residuales y sus actualizaciones.

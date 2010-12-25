@@ -1,0 +1,1 @@
+Artículo 13.—En todos los casos de destrucción de medicamentos controlados por el Ministerio de Salud, el regente farmacéutico debe remitir copia del Acta de Destrucción de Medicamentos con Sustancias Controladas (Anexo D) a la Dirección de Regulación de la Salud y a la Junta de Vigilancia de Drogas, en un plazo no mayor de 10 días hábiles luego de su destrucción.

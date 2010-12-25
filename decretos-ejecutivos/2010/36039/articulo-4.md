@@ -1,0 +1,1 @@
+Artículo 4º—La disposición final de los medicamentos y materias primas será realizada por los establecimientos farmacéuticos y en casos incidentales por otros establecimientos en los que se encuentren medicamentos y materias primas no utilizables, de conformidad con los artículos y anexos subsiguientes.

@@ -1,0 +1,1 @@
+Artículo 9º—El Plan debe mantenerse actualizado y en lo relativo al transporte deberá cumplir con el Decreto Ejecutivo Nº 24715-MOPT-MEIC-S “Reglamento para el Transporte Terrestre de Productos Peligrosos” y con el Decreto Ejecutivo Nº 27008-MEIC-MOPT “Reglamento de Señalización y Transporte Terrestre de Productos Peligrosos”, y sus respectivas actualizaciones.

@@ -1,0 +1,1 @@
+Artículo 10.—Se prohíbe la disposición de medicamentos o materias primas en el sistema de alcantarillado sanitario y pluvial, salvo las soluciones parenterales de alto volumen que contengan únicamente sustancias inocuas al ambiente, las que podrán eliminarse a través del alcantarillado sanitario.

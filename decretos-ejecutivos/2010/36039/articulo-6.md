@@ -1,0 +1,1 @@
+Artículo 6º—Independientemente de su clasificación o forma farmacéutica, los medicamentos que nunca deben usarse y siempre deben ser destruidos son los medicamentos no utilizables así definidos en el artículo 3.

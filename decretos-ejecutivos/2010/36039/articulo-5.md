@@ -1,0 +1,5 @@
+Artículo 5º—La disposición final de los residuos peligrosos al ambiente que provengan de los laboratorios de producción y de control de calidad de medicamentos, se hará de conformidad con la reglamentación específica vigente emitida para tal efecto por los Ministerios de Salud y de Ambiente, Energía y Telecomunicaciones o sus actualizaciones:
+5.1 Decreto Ejecutivo Nº 27000-MINAE Reglamento Sobre las Características y el Listado de los Desechos Peligrosos Industriales publicado en La Gaceta Nº 124 de 29 de junio de 1998.
+5.2 Decreto Ejecutivo Nº 27001-MINAE Reglamento para el Manejo de los Desechos Peligrosos Industriales publicado en La Gaceta Nº 101 de 27 de mayo de 1998.
+5.3 Decreto Ejecutivo Nº Decreto Ejecutivo Nº 27002-MINAE Reglamento Sobre el Procedimiento para Llevar a Cabo la Prueba de Extracción para Determinar Constituyentes que Hacen un Residuo Peligroso por su Toxicidad al Ambiente. Publicado en La Gaceta Nº 101 de 27 de mayo de 1998.
+Para los demás residuos del proceso de fabricación y de los análisis de control de calidad, se deben aplicar las disposiciones del presente reglamento.
