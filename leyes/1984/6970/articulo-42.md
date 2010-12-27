@@ -1,18 +1,6 @@
 CAPITULO IV
 De la junta directiva y del fiscal
-ARTICULO 42.-La asociación será dirigida y administrada por una junta
-directiva compuesta al menos por cinco miembros. Sin perjuicio de que
-puedan usarse otras denominaciones para los cargos, la junta directiva
-estará integrada por: un presidente, un vicepresidente, un secretario, un
-tesorero y un vocal, quienes fungirán en sus cargos durante el plazo que se
-fije en los estatutos, el cual no podrá exceder de dos años, y podrán ser
-reelegidos indefinidamente. Sus nombramientos deberán efectuarse en
-asamblea general ordinaria.
-En caso de ausencia definitiva del presidente, el vicepresidente
-asumirá en propiedad ese cargo, salvo que la asamblea acuerde lo contrario.
-En caso de ausencias definitivas de los demás directores, los miembros
-ausentes serán suplidos por otros de la misma junta directiva, mientras se
-convoca a asamblea general para que ratifique ese nombramiento o, en su
-caso, para que nombre en propiedad al sustituto. En caso de ausencia
-temporal de un director, la junta directiva podrá designar a su sustituto
-por el tiempo que corresponda.
+ARTICULO 42.-La asociación será dirigida y administrada por una Junta Directiva compuesta al menos por cinco personas y deberá garantizar la representación paritaria de ambos sexos. Sin perjuicio de que puedan usarse otras denominaciones para los cargos, la Junta Directiva estará integrada por una presidencia, una vicepresidencia, una secretaría, una tesorería y una vocalía; estas personas fungirán en sus cargos durante el plazo que se fije en los estatutos, el cual no podrá exceder dos años, y podrán reelegirse indefinidamente. Dichos nombramientos deberán efectuarse en Asamblea General ordinaria. En toda nómina u órgano impar la diferencia entre el total de hombres y mujeres no podrá ser superior a uno.
+En caso de ausencia definitiva de la persona que ocupe la presidencia, quien ocupe la vicepresidencia asumirá en propiedad ese cargo, salvo que la asamblea acuerde lo contrario. En caso de ausencias definitivas de las demás personas directoras, las personas miembros ausentes serán suplidas por otras de la misma Junta Directiva, mientras se convoca a Asamblea General para que ratifique ese nombramiento o, en su caso, para que nombre en propiedad a la persona sustituta. En caso de ausencia temporal de un director o una directora, la Junta Directiva podrá designar la sustitución por el tiempo que corresponda.
+(Así reformado por el artículo 2° de la ley N° 8901 del 18 de noviembre de 2010, “Porcentaje mínimo de mujeres que deben integrar las Directivas de Asociaciones, Sindicatos y Asociaciones Solidaritas”)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 4630 del 02 de abril de 2014, se interpretó la ley N° 8901 del 18 de noviembre de 2010, “Porcentaje mínimo de mujeres que deben integrar las Directivas de Asociaciones, Sindicatos y Asociaciones Solidaritas”, la cual reformó este numeral, en el sentido de que, los Órganos Directivos de las Asociaciones Civiles, Asociaciones Solidaritas, Asociaciones Comunales y Sindicatos, deben estar integrados respetando la paridad de género, de forma progresiva y siempre que ello sea posible conforme a la libertad ideológica, el derecho de asociación y según la conformación fáctica y proporcional que cada uno de los géneros lo permita en la asociación en cuestión.)

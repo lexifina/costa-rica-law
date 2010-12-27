@@ -1,5 +1,6 @@
 Artículo 10.-Son órganos esenciales de la asociación:
-1.- El organismo directivo cuyo nombre se establecerá en los Estatutos y que se integrará con un mínimo de cinco miembros entre los cuales debe haber un Presidente, un Secretario y un Tesorero, todas personas mayores de edad.
-2.- Un Fiscal mayor de edad.
-3.- La Asamblea o Junta General.
-(Así reformado por el artículo 1° de la ley N° 6020 del 3 de enero de 1977)
+1.-El organismo directivo cuyo nombre se establecerá en los estatutos, se integrará con un mínimo de cinco personas y deberá garantizar la representación paritaria de ambos sexos, entre ellos se nombrarán personas para la presidencia, la secretaría y la tesorería; todas ellas mayores de edad. En toda nómina u órgano impar la diferencia entre el total de hombres y mujeres no podrá ser superior a uno.
+2.-La fiscalía, ocupada por una persona mayor de edad,
+3.-La Asamblea o Junta General.
+(Así reformado por el artículo 1° de la ley N° 8901 del 18 de noviembre de 2010, “Porcentaje mínimo de mujeres que deben integrar las Directivas de Asociaciones, Sindicatos y Asociaciones Solidaritas”)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 4630 del 02 de abril de 2014, se interpretó la ley N° 8901 del 18 de noviembre de 2010, “Porcentaje mínimo de mujeres que deben integrar las Directivas de Asociaciones, Sindicatos y Asociaciones Solidaritas”, la cual reformó este numeral, en el sentido de que, los Órganos Directivos de las Asociaciones Civiles, Asociaciones Solidaritas, Asociaciones Comunales y Sindicatos, deben estar integrados respetando la paridad de género, de forma progresiva y siempre que ello sea posible conforme a la libertad ideológica, el derecho de asociación y según la conformación fáctica y proporcional que cada uno de los géneros lo permita en la asociación en cuestión.)
