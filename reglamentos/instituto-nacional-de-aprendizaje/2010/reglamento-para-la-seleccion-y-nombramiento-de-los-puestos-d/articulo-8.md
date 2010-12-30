@@ -1,0 +1,1 @@
+Artículo 8º—Sobre el plazo para la presentación de ofertas. El plazo para presentación de las ofertas no podrá ser menor a ocho días naturales contados a partir del último día en que salga publicada la invitación.

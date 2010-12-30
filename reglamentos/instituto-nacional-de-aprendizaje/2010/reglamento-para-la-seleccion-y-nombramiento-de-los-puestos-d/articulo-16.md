@@ -1,0 +1,4 @@
+Artículo 16.—Sobre la forma en que estará formada la nómina. Para la selección definitiva se conformará una nómina con los cinco candidatos que hayan obtenido las calificaciones más altas entre todos los elegibles. El encargado responsable del proceso deberá verificar que los candidatos no tengan impedimentos legales y administrativos para ocupar el puesto de Auditor o Subauditor en la Institución.
+La nómina resultante, será enviada a la Junta Directiva, a quien le corresponderá efectuar las entrevistas a los candidatos que la conformen. La entrevista será estructurada según su criterio.
+La nómina podrá ser ampliada según justificación y criterio de los miembros de Junta Directiva.
+Si de los candidatos que conforman la nómina uno o más no aceptan el puesto, la Junta Directiva podrá solicitar que se le remitan los siguientes candidatos elegibles, en orden de calificación, a efecto de tener más criterio para la selección.

@@ -1,0 +1,1 @@
+Artículo 2º—Principios rectores. El concurso público regulado en este Reglamento se rige por los principios de libre concurrencia, igualdad de trato, publicidad, legalidad, transparencia, idoneidad comprobada, buena fe y eficiencia.

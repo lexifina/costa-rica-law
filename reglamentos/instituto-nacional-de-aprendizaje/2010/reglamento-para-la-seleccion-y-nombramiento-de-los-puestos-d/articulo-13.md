@@ -1,0 +1,1 @@
+Artículo 13.—Sobre el acta de cierre. Concluido el plazo establecido para la recepción de ofertas, la persona responsable del concurso levantará un acta de cierre del período, en la cual se indique la cantidad de ofertas recibidas y el nombre de los oferentes, fecha y hora del acto de cierre y al menos un testigo del acto.

@@ -1,0 +1,1 @@
+Artículo 4º—Acciones previas. Se requerirá de la existencia de un acuerdo tomado por la Junta Directiva del Instituto Nacional de Aprendizaje, para que la Unidad de Recursos Humanos programe el concurso público o se defina la realización del mismo para el nombramiento del Auditor y Subauditor Interno, como lo indica la Ley 8292.

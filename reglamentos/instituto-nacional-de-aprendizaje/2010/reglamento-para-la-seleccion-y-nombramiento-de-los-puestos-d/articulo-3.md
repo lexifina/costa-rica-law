@@ -1,0 +1,1 @@
+Artículo 3º—Competencia para la realización del procedimiento. Corresponderá a la Unidad de Recursos Humanos, específicamente al Proceso de Dotación de Recursos Humanos llevar a cabo el procedimiento aquí estipulado, para el nombramiento del Auditor y Subauditor, cuando los mencionados puestos queden vacantes.
