@@ -15,3 +15,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | --- | --- | --- |
 | 1 | 2011-01-01 | la propia norma |
 | 2 | 2011-01-01 | Resolución 5 (2010-12-20) |
+| 3 | 2011-01-01 | Resolución 4 (2010-12-20) |

@@ -17,6 +17,12 @@ Trabajadores especializados ¢9.820,13
 A los trabajadores que realicen labores ya reconocidas como pesadas, insalubres o peligrosas y las que llegasen a ser determinadas como tales por el organismo competente, se les fijará un salario por hora equivalente a la sexta parte del salario fijado por jornada para el trabajador no calificado.
 Las ocupaciones en Pesca y Transporte acuático, cuando impliquen imposibilidad para el trabajador de regresar al lugar de partida inicial al finalizar su jornada ordinaria, tienen derecho a la alimentación.
 (Nota de Sinalevi: Mediante resolución Res-05 del 20 de diciembre de 2010 del Consejo Nacional de Salarios, se acuerda incluir a los Jugadores de Primera División, en el renglón salarial de Trabajadores Especializados)
+(Nota de Sinalevi: Mediante resolución N° 04-2010 del 20 de diciembre del 2010 del Consejo Nacional de Salarios, se acuerda incluir dentro de la lista clasificada de ocupaciones las siguientes:
+Secretaria Trabajador Calificado Genérico ¢249.725,33 mensual
+Secretaria Técnico Medio Educación Diversificada ¢268.376.40 mensual
+Secretaria Diplomado de Educación Superior ¢357.216,28 mensual
+Secretaria Bachiller Universitario ¢405.167,82 mensual
+Secretaria Licenciado Universitario ¢486.218,04 mensual)
 1b- Genéricos (por mes)
 Trabajadores no calificados ¢220.345,47
 Trabajadores semicalificados ¢237.353,28
