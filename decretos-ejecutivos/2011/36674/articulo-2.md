@@ -1,0 +1,2 @@
+Artículo 2°.—El desglose de la modificación indicada en el artículo en los niveles de título, programa y subprograma, según corresponda, estará disponible en la página electrónica del Ministerio Hacienda en la siguiente dirección: www.hacienda.go.cr (Modificaciones Presupuestarias), y en forma impresa, en los archivos que se custodian en la Dirección General de Presupuesto Nacional.
+(Nota de Sinalevi: Por lo extenso de su contenido y el tipo de formato el desglose de la modificación puede consultarse Aquí)
