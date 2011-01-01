@@ -1,0 +1,2 @@
+Artículo 3°- Conciliación de cuentas caja única
+Cuando se trate de transferencias del Poder Ejecutivo a las instituciones públicas que se rijan por el principio de caja única, este tipo de transferencias deben ser registradas por la institución que la recibe en la cuenta de disponibilidades (Caja y bancos, en una cuenta personalizada), contra la cuenta de ingresos por la totalidad de la transferencia emitida por el Poder Ejecutivo, el cual la registrará como una cuenta de gasto por transferencia contra una cuenta por pagar por la totalidad de esta.

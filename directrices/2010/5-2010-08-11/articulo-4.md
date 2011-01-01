@@ -1,0 +1,3 @@
+Artículo 4°- Conciliación por transferencias
+Cuando se trate de transferencias entre instituciones públicas que no se rijan por el principio de caja única, y estas transferencia no se hagan efectivas inmediatamente, la institución que las recibe debe registrarlas como una cuenta por cobrar, por el monto total de estas, contra la cuenta de ingresos. Y la institución que realiza la transferencia debe registrarla como un gasto contra una cuenta por pagar.
+Cuando las transferencias se hagan efectivas inmediatamente, la cuenta que se debe afectar tanto al debe como al haber es la cuenta Caja y bancos.
