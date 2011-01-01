@@ -1,0 +1,1 @@
+Artículo 2º—Para efectos de la aplicación del Convenio, los agentes de retención o de percepción del impuesto, o los propios interesados, deben comprobar ante la Dirección General de Tributación, que el sujeto pasivo respecto al cual se verifica el hecho generador de alguno de los impuestos contemplados en el Convenio, es un residente del Reino de España.

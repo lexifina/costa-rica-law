@@ -1,0 +1,13 @@
+N° 36504-H
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En ejercicio de las atribuciones establecidas en los artículos 140, incisos 8) y 18) y 146 de la Constitución Política, y los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley 6227, Ley General de Administración Pública, del 2 de mayo de 1978 y de conformidad con las disposiciones de la Ley Nº 8888 de fecha 3 de noviembre del 2010, “Aprobación del Convenio entre la República de Costa Rica y el Reino de España para evitar la Doble Imposición y prevenir la Evasión Fiscal en materia de Impuestos sobre la Renta y sobre el Patrimonio”, y:
+Considerando:
+1º—Que mediante Ley Nº 8888 de fecha 3 de noviembre del 2010, se tiene por aprobado el “Convenio entre la República de Costa Rica y el Reino de España para evitar la Doble Imposición y prevenir la Evasión Fiscal en materia de Impuestos sobre la Renta y sobre el Patrimonio”.
+2º—Que en el Artículo 28, “Entrada en vigor”´, se establece que este Convenio entrará en vigencia cuando ambos países hayan cumplido con los procedimientos legales internos y se hayan efectuado las respectivas notificaciones. Asimismo, señala que sus disposiciones surtirán efecto respecto de los impuestos sobre la renta o sobre el patrimonio, exigibles a partir del 1 de enero del año civil siguiente al de la entrada en vigor del Convenio.
+3º—Que el Gobierno de Costa Rica fue el último en cumplir con los procedimientos legales internos, y realizó la debida notificación al Gobierno español el pasado mes de diciembre de 2010.
+4º—Que con el fin de facilitar los trámites a los sujetos pasivos residentes en España, y a su vez otorgarles seguridad jurídica, se hace necesario establecer en forma clara y precisa, la información correspondiente a los requisitos que se deben aportar para demostrar su residencia. Por tanto,
+Decretan:
+RETENCIONES A LOS RESIDENTES
+DEL REINO DE ESPAÑA
+Artículo 1º—Las retenciones que se practiquen conforme al “Convenio entre la República de Costa Rica y el Reino de España para evitar la Doble Imposición y prevenir la Evasión Fiscal en materia de Impuestos sobre la Renta y sobre el Patrimonio”, constituyen pago único y definitivo a cargo de los beneficiarios por las rentas correspondientes, y los obligados a efectuarlas tienen carácter de agentes de retención, y en ellos se subrogará la obligación conforme a la legislación tributaria costarricense. Los depósitos se deben efectuar en el Banco Central de Costa Rica o en las tesorerías auxiliares autorizadas, dentro de los primeros quince días (15) naturales del mes siguiente de practicadas las retenciones.
