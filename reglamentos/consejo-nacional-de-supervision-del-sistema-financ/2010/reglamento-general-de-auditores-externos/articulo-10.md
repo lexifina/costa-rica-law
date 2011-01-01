@@ -1,0 +1,1 @@
+Artículo 10.—Rotación del equipo de trabajo. El encargado y miembros del equipo de auditoría deben rotar cuando alcancen como máximo cinco años en la prestación de los servicios de auditoría externa en forma continua a una misma entidad. Al respecto, se requiere que la firma o auditor cuente con un registro de las rotaciones realizadas.
