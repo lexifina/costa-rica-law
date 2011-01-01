@@ -1,0 +1,1 @@
+Artículo 2º—Actualización del valor establecido en el inciso a) del artículo 6 de la Ley N° 8683 del 19 de noviembre del 2008. Para efectos del período fiscal 2011 se actualiza el valor fiscal establecido en el inciso a) del artículo 6 de la Ley N° 8683 de 19 de noviembre del 2008, a la suma de ciento seis millones de colones (¢106.000.000,00).
