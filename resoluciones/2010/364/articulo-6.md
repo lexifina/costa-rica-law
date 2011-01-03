@@ -1,0 +1,1 @@
+VI.—Lo anterior no afecta la solicitud y aplicación de la preferencia arancelaria negociada en el marco del TLC CAFTA-RD, del que puede beneficiarse el importador cuando cumpla con las disposiciones del Tratado, incluyendo las normas de origen.
