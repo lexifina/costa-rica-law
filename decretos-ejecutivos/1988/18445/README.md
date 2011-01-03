@@ -23,3 +23,4 @@ Reglamento a Ley del Impuesto sobre la Renta
 | 8 | 2002-02-07 | Decreto Ejecutivo 30410 (2002-02-07) |
 | 9 | 2003-04-03 | Decreto Ejecutivo 31130 (2003-04-03) |
 | 10 | 2005-05-12 | Decreto Ejecutivo 32410 (2005-05-12) |
+| 11 | 2011-01-03 | Decreto Ejecutivo 36399 (2011-01-03) |
