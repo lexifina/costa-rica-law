@@ -1,1 +1,0 @@
-Artículo 5º.- Unidad de Servicios. La Unidad de Servicios del MEIC, será la encargada de ejecutar las medidas de conservación y control en cuanto al uso de los vehículos. El jerarca de la unidad velará por que las disposiciones contenidas en el presente Reglamento sean debidamente acatadas.
