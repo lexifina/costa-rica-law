@@ -1,1 +1,0 @@
-Artículo 27.—Comité Científico-Ético estará conformado de la siguiente manera: El coordinador(a) de la Unidad Técnica Asesora, el coordinador del Centro de Información y Comunicación (CIC) y cuatro investigadores que representen diversas líneas de investigación del INCIENSA.

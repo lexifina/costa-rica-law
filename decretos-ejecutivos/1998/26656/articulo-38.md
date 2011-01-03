@@ -1,1 +1,0 @@
-Artículo 38.—El Area Financiero-Administrativa tendrá un coordinador(a) que deberá ser un profesional en administración pública o de negocios, con nivel mínimo de licenciatura, con capacitación en la legislación pública y con reconocida experiencia en puestos similares, quien será responsable de velar por el buen cumplimiento de las funciones de esa Area.

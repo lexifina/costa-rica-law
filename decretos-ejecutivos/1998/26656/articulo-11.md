@@ -1,1 +1,0 @@
-Artículo 11.—Si hubiese empate en la votación de cualquier asunto, se pospondrá la decisión para la sesión inmediata siguiente; y si en ésta se repitiera, se decidirá con el doble voto del Presidente. Si se trata de empate de una votación secreta, el asunto se considera rechazado.

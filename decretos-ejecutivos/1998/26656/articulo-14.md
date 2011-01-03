@@ -1,1 +1,0 @@
-Artículo 14.—Ningún miembro del Consejo podrá estar presente en las sesiones cuando se conozcan asuntos en que esté interesado él o algún pariente suyo hasta el tercer grado de consanguinidad o primero por afinidad, o que interesen a sociedades en las que él o sus parientes dichos sean socios, directores o gerentes.

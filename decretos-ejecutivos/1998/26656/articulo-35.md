@@ -1,5 +1,0 @@
-Artículo 35.—El Área de Proyectos y Centros de Referencia (CDRs) de enfermedades trasmisibles cuenta con el Centro de Sistemas de Tecnología de la Información que cumple las siguientes funciones:
-a) Crear y mantener una visión de largo plazo en materia de sistemas y tecnología de la información recurriendo a estrategias que permitan obtener soluciones informáticas oportunas y costo/efectivas de acuerdo con los requerimientos, mareo de referencia estratégico del INCIENSA y los avances tecnológicos.
-b) Crear, mantener y regular una infraestructura de Sistemas de Información y Tecnología de información adecuada al marco estratégico y a los procesos de producción científica y de apoyo financiero-administrativo del INCIENSA.
-c) Brindar un servicio de soporte técnico y asesoría al usuario final para una óptima administración y utilización de los sistemas de información y de los recursos tecnológicos en el campo de la informática, para apoyar los procesos de producción científica y de apoyo financiero-administrativo.
-(Así reformado por el artículo 1 del decreto N° 34419 de 04 de febrero de 2008)

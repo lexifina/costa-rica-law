@@ -1,1 +1,0 @@
-Artículo 13.—Se confeccionará un acta de cada sesión celebrada por el Consejo Técnico, la que se deberá entregar a cada uno de sus miembros para su estudio, previo a la celebración de la siguiente sesión en que deba aprobarse.

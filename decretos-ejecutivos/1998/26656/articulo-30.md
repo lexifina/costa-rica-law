@@ -1,1 +1,0 @@
-Artículo 30.—El Comité Editorial estará integrado por: el coordinador(a) de la Unidad Técnica Asesora, el coordinador(a) del Centro de Información y Comunicación del INCIENSA y dos investigadores de la institución.
