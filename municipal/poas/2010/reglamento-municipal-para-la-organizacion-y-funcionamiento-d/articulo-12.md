@@ -1,0 +1,19 @@
+CAPÍTULO III
+Funciones
+Artículo 12.—Se consideran funciones primordiales de la Junta Vial las siguientes:
+a. Conocer y avalar los Proyectos de Presupuesto Anual de la Gestión de la Red Vial Cantonal propuesto por medio de planes anuales y quinquenales de conservación y de desarrollo vial del cantón elaborados por la unidad técnica.
+b. Elaborar la propuesta de inversión de los recursos de la Ley Nº 8114 con base en las estimaciones de los montos por transferir realizadas por la Dirección de Planificación Sectorial del MOPT y comunicadas por la Dirección de Gestión Municipal, a más tardar el 30 de agosto de cada año.
+c. Conocer de las propuestas de inversión elaboradas por los Comités de Caminos.
+d. Presentar en los meses de febrero un informe anual de rendición de cuentas tanto al Consejo Municipal como a la comunidad, el cual deberá publicitar de forma íntegra o extractada y en el mismos mes, por cualquier medio de comunicación colectiva local o nacional.
+e. Velar por la actualización del Inventario de la Red Vial Cantonal.
+f. Establecer los mecanismos por utilizar para la realización de seguimiento y evaluación de los Planes de Conservación y de Desarrollo de la Red Vial Cantonal con base en el Sistema de Gestión Vial Integrado -SIGVI- del Ministerio de Obras Públicas y Transportes -MOPT-.
+g. Velar por la implementación de los componentes de Seguridad Vial en los Planes de Conservación y Desarrollo Vial del cantón con la asesoría del Concejo Local de Seguridad Vial -COLOSEVI-.
+h. Conocer de los Informes Mensuales de Evaluación de la Gestión Vial Municipal elaborados por la UTGVM.
+i. Velar por el cumplimiento de los lineamientos de gestión vial emitidos por el MOPT.
+j. Evaluar y dar seguimiento a los Planes Anuales de Conservación y Desarrollo Vial apoyándose en el Sistema de Gestión Vial Municipal.
+k. Hacerse asistir -cuando fuese necesario- del personal que conforma la UTGVM.
+l. Velar porque la ejecución de los recursos económicos de la Ley Nº 8114 sea preferiblemente bajo la modalidad participativa de ejecución de obras
+m. Conocer de las alternativas propuestas por la UTGVM para la obtención de recursos orientados a la gestión vial.
+n. Fiscalizar la eficiencia de los proyectos de obra pública vial autorizados, a través de la solicitud de auditorías técnicas o financieras ante el Concejo Municipal, evaluación de la idoneidad de los profesionales que conforman esta junta, evaluaciones de control de calidad de las obras, entre otras.
+o. Proponer al Concejo Municipal la reglamentación que considere pertinente para la efectiva Gestión Vial Cantonal.
+p. Velar por el cumplimiento de las políticas, normativa y reglamentación aplicable en gestión vial, emitida por el MOPT y otros entes competentes.

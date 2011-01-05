@@ -1,0 +1,1 @@
+Artículo 9º—La Junta Vial sesionará ordinariamente una vez al mes y extraordinariamente cada vez que lo acuerde o sea convocada por el Presidente(a) de la Junta Vial Cantonal. En ambos casos habrá quórum con mayoría absoluta (la mitad más uno).
