@@ -1,0 +1,1 @@
+Artículo 2º—Cada activo deberá estar debidamente identificado con su respectiva placa, debiendo el Departamento Administrativo a cargo, mantener un registro documental, en donde se señale: las características del bien, fecha de adquisición, vendedor, costo, orden de compra, comprobante de pago, departamento al cual fue asignado, etc.

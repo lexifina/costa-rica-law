@@ -1,0 +1,1 @@
+Artículo 4º—Que cada Unidad Administrativa, será responsable de solicitar al Departamento de Proveeduría con copia al Alcalde Municipal, la sustitución de activos, por cumplimiento de su vida útil o desactualización de éstos, así como que se encuentren en mal estado provocado por el deterioro normal en el uso continuo de estos.
