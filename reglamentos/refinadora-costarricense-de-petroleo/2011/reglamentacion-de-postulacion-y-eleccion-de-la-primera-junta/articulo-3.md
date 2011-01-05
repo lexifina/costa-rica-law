@@ -1,0 +1,1 @@
+Artículo 3º—El único punto que se conocerá en esa primera asamblea será la elección directa, secreta y universal de los miembros titulares y suplentes de la Junta Administrativa y el fiscal, que durarán en sus cargos por un período comprendido entre el diez de mayo del dos mil once al diez de mayo del dos mil trece.

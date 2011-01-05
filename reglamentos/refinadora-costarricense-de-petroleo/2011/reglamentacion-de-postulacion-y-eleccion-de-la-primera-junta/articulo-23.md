@@ -1,0 +1,1 @@
+Artículo 23.—La propaganda podrá iniciarse el día siguiente al cierre del término para inscribir las postulaciones y una vez comunicada la acreditación de cada candidato; y terminará el día de las elecciones.

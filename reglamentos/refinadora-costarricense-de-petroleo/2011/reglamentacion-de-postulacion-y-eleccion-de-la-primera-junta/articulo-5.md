@@ -1,0 +1,1 @@
+Artículo 5º—La elección recaerá en el candidato que obtenga la mayoría de votos válidos para cada cargo, una vez realizado el recuento definitivo de la votación, que el tribunal deberá hacer dentro de las cuarenta y ocho horas siguientes a la votación.
