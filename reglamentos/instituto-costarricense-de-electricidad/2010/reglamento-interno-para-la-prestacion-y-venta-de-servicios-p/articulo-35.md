@@ -1,0 +1,2 @@
+Artículo 35.—Una vez firmado el contrato, el ICE cuenta con un máximo de 22 días hábiles para realizar las capacitaciones, la entrega de los usuarios, accesos, procedimientos e instructivos correspondientes.
+Después de realizada la capacitación y la entrega de los procedimientos e instructivos, la empresa tendrá un máximo de 5 días hábiles para realizar la compra o pedido de los servicios a distribuir para iniciar la operación.

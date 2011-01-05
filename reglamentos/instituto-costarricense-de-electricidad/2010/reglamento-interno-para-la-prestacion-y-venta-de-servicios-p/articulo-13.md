@@ -1,0 +1,1 @@
+Artículo 13.—El “Comercializador Mayorista Exclusivo” deberá tener autorizadas individualmente todas las tiendas, previa verificación del cumplimiento de los requisitos solicitados. Se aplicará una multa o sanción por el incumplimiento de esta cláusula, la cual se establecerá en el contrato correspondiente.

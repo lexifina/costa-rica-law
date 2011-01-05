@@ -1,0 +1,1 @@
+Artículo 47.—Garantía Colateral: Los “Comercializadores Autorizados” se comprometen a rendir una garantía colateral por el 100% del deducible del seguro suscrito contra robo, incendio y desastres naturales al entregar equipo terminal en consignación para su comercialización.
