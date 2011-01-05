@@ -1,0 +1,1 @@
+4º—A todas las partes involucradas, se les otorga un plazo máximo de tres meses, contados a partir de su publicación en el Diario Oficial La Gaceta, para la implementación plena de la presente resolución. Notifíquese.

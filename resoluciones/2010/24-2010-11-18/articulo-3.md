@@ -1,0 +1,1 @@
+3º—Instruir a la Secretaría Técnica para que publique la presente resolución en el Diario Oficial La Gaceta y un diario de circulación nacional, a fin de dar el mayor conocimiento y publicidad del instrumento, a las partes e instituciones beneficiadas.

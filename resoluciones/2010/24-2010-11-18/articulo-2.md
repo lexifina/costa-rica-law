@@ -1,0 +1,1 @@
+2º—Ordenar a la Gerencia del Proyecto San José- Caldera y a la Supervisora CACISA -Cano Jiménez o a quienes ocupen dichos cargos o a quien la Secretaría Técnica del CNC designe, vigilar y controlar utilizando las mejores prácticas para ello que el procedimiento aprobado se ponga en funcionamiento de inmediato.
