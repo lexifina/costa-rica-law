@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De las sesiones
+Artículo 11.—Sesiones. Las sesiones de la Junta de Relaciones Laborales ordinarias y extraordinarias serán privadas o bien públicas bajo acuerdo. No obstante, de acuerdo a lo que establece el artículo 22, inciso c), de la Convención Colectiva, cada una de las partes podrá hacerse acompañar de un máximo de dos asesores (as), si la complejidad del asunto requiere algún criterio técnico, cuando razones de interés institucional o de las personas funcionarias afectadas directamente, así lo justifiquen. Dichos asesores tendrán derecho a voz únicamente.
+Las sesiones se realizarán en horas hábiles de labores, para lo cual la Municipalidad deberá garantizar todas las facilidades que sean necesarias a sus integrantes, así como a cualquier otro funcionario que deba asistir a sus sesiones.

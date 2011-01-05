@@ -1,0 +1,6 @@
+CAPÍTULO V
+De las actas
+Artículo 16.—Actas. De cada sesión la Secretaría levantará una acta, que será conocida en la sesión ordinaria siguiente para su aprobación y serán enviadas a sus miembros, para la lectura y aprobación final en la sesión siguiente.
+Las actas serán suscritas por la Presidencia y el (la) Secretario (a), de la Junta de Relaciones Laborales y estarán debidamente foliadas y compaginadas en un libro de actas o bien en hojas foliadas, membretadas y selladas por la Auditoría Interna de la Municipalidad de Garabito.
+En las actas se consignará la fecha y hora de inicio y finalización de la sesión, asistencia de los miembros titulares o suplentes presentes, justificaciones de personas titulares ausentes, orden del día, temas tratados, Asuntos sometidos a votación y el resultado de las mismas, votos a favor votos en contra y abstenciones cuando existieren y cualquier otro asunto pertinente.
+Una vez aprobadas las actas, la Junta de Relaciones Laborales será la responsable de la custodia del expediente del caso analizado, así como las actas respectivas. Esta información se considerará confidencial hasta tanto no exista un acto administrativo que finiquite el asunto. Las actas deberán ser enviadas a sus miembros 48 horas antes de la sesión ordinaria o extraordinaria.

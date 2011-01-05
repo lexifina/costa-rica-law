@@ -1,0 +1,1 @@
+Artículo 6º—Período de nombramiento. Los (as) miembros de la Junta de Relaciones Laborales, durarán en sus cargos un año, pudiendo ser reelectos (as) o removidos (as) en cualquier momento por quien las haya designado.

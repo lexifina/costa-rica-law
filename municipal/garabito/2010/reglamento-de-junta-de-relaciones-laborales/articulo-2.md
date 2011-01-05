@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza. La Junta de Relaciones Laborales es un órgano bipartito, paritario obrero-patronal y permanente, en el que se integran la Administración de la Municipalidad de Garabito y la ANEP. Actuará con absoluta independencia de criterio y equilibrio de intereses por parte de quienes la integren.

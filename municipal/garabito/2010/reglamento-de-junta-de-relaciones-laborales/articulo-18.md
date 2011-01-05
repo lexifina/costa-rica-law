@@ -1,0 +1,5 @@
+Artículo 18.—Procedimiento de intervención. Toda solicitud de intervención de la Junta de Relaciones Laborales deberá ser hecha por escrito y bajo ninguna circunstancia se tramitarán asuntos de carácter anónimo.
+En la medida de lo posible, el o la gestionante aportará todos los elementos que considere apoyen su requerimiento.
+Toda solicitud debe ser entregada por escrito o remitida por correo electrónico o fax a la persona que ostente la Secretaría de la Junta de Relaciones Laborales o en el lugar que previamente se establezca para ese efecto.
+La Secretaría comunicará el asunto en caso de asunto de urgencia determinada por los plazos de ley en primer lugar y la afectación de la situación ocurrida en la salud ocupacional a la Junta de Relaciones Laborales en su sesión ordinaria inmediata y procederá a efectuar todas las diligencias útiles y necesarias tendientes a que se emita la recomendación que corresponda.
+En caso, de un asunto de urgencia podrá convocarse a la Junta de Relaciones Laborales a una sesión extraordinaria para atender el mismo.

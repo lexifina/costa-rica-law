@@ -1,0 +1,1 @@
+Artículo 23.—(Prescripción y caducidad: Revisar legalidad). Mientras los asuntos estén en trámite ante la Junta de Relaciones Laborales, se solicitaran prorrogas ante los entes correspondientes para evitar los términos de prescripción y caducidad que pudieran afectarles, para todos los efectos legales.
