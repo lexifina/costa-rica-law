@@ -10,4 +10,4 @@ A) Aprobar la propuesta de valoración de la tierra para efecto de cálculo de a
 • Sector D: Vegas - Las Palmas.
 2) Aprobar la propuesta de valores del terreno para las zonas propuestas, conforme se detalla en el siguiente cuadro:
 [imagen]
-3) Modificar los contratos de arrendamiento otorgados en la zonificación descrita que se encuentren vigentes, para que al momento de calcular el monto a cancelar en la próxima anualidad, se considere como base de cálculo, los valores establecidos en este acuerdo. Acuerdo aprobado por unanimidad.
+3) (Derogado y publicado en La Gaceta N° 3 del 5 de enero de 2011)

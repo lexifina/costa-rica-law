@@ -14,3 +14,4 @@ Aprueba valoración de la tierra para efecto de cálculo de arriendo a ser aplic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-25 | la propia norma |
+| 2 | 2011-01-05 | Acuerdo 0 (2011-01-05) |
