@@ -1,2 +1,2 @@
-Artículo 5º—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como suscribir gastos fijos y convenios en los cuales la Municipalidad de Matina actúe como parte hasta por la suma de ¢ 1.500.000,00 (un millón quinientos mil colones exactos).
-(NOTA DE SINALEVI: Mediante sesión N° 170 del 19 de mayo de 2008 se indica "... se acuerda que se autoriza al alcalde municipal para realizar compras y adquisicion de bienes y servicios hasta por la suma de ¢ 2.500.000,00 (Dos millones quinientos mil colones con 00/100)")
+Artículo 5º—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como suscribir gastos fijos y convenios en los cuales la municipalidad actúe como parte hasta por la suma de ¢1.000.000. (un millón de colones exactos).
+(Así reformado mediante sesión N° 56 del 5 de enero del 2011)
