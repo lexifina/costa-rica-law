@@ -1,1 +1,0 @@
-Artículo 5º—El Coordinador del Proyecto del Liceo de Costa Rica debe tener una probada habilidad y experiencia en la conducción de proyectos educativos y su nombramiento – por delegación de la Dirección General del Servicio Civil – lo realiza el Consejo Técnico de una nómina que esa Dirección elabore.

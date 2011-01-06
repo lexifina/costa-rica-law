@@ -1,1 +1,0 @@
-Artículo 9º—El Coordinador de Proyecto, así como los representantes del personal docente del Liceo, de la Asociación de Padres de Familia y de los egresados del Liceo, tanto en el primer Consejo Administrativo como en el primer Consejo Técnico, serán, por única vez, designados por el Ministro de Educación Pública y estarán en funciones hasta el año 2009.

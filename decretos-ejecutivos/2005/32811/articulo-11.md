@@ -1,1 +1,0 @@
-Artículo 11.—Las otras instituciones públicas en las que, después de validados por el Consejo Superior de Educación, se implanten los modelos experimentales practicados en el Liceo de Costa Rica, gozarán de todas las características que establece el presente decreto.
