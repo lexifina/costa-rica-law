@@ -1,2 +1,3 @@
-Artículo 57.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.”
-(Así adicionado por el artículo 3 del decreto ejecutivo N° 35423 del 7 de agosto de 2009)
+Artículo 57.—Mercancías de envío reiterado. Las mercancías de envío reiterado, efectuado entre empresas beneficiarias de este Régimen y del Régimen de Zonas Francas, que por su naturaleza impliquen un proceso de envío continuo y de difícil individualización, cuyo trasiego se realice por medios no convencionales, podrán acumularse en una sola Declaración Aduanera por cada producto, que incluirá la información mensual de la operación realizada.
+La declaración acumulada debe presentarse dentro de los primeros cinco días hábiles de cada mes. Para los efectos anteriores, la Dirección llevará un registro de las empresas autorizadas a presentar dichas declaraciones, previa verificación de las características de operación que realiza la empresa beneficiaria.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 36514 del 6 de enero del 2011)

@@ -1,5 +1,4 @@
-Artículo 16.-Plazo de permanencia. El plazo para la permanencia de las mercancías ingresadas al amparo de esta modalidad será el siguiente:
+Artículo 16.—Plazo de permanencia. El plazo para la permanencia de las mercancías ingresadas al amparo de esta modalidad será el siguiente:
 a) Doce meses para los productos semielaborados y las demás mercancías contempladas en los incisos a), d), e), f), g) e i) de los artículos 15 y 18 de este Reglamento.
-b) Cinco años para las mercancías no contempladas en el inciso anterior. Este plazo podrá ser prorrogado por períodos iguales, previa presentación de la nueva prenda aduanera y con anterioridad al vencimiento de la prenda otorgada inicialmente, para las mercancías que requieran este requisito. Lo anterior, sin perjuicio de las acciones que pueden tomar las autoridades competentes del Régimen, en caso de incumplimiento del mismo.
-Para efectos de aplicar los porcentajes de depreciación correspondientes, se aplicará la tabla de métodos y porcentajes de depreciación establecida en el Reglamento a la Ley de Impuesto sobre la Renta.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34738 del 29 de agosto de 2008)
+b) Cinco años para las mercancías no contempladas en el inciso anterior. Este plazo podrá ser ampliado por períodos iguales, previa solicitud avalada por la Aduana de Control, y con anterioridad al vencimiento de la prenda otorgada inicialmente, para las mercancías que requieran este requisito. Lo anterior, sin perjuicio de las acciones que pueden tomar las autoridades competentes del Régimen, en caso de incumplimiento del mismo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36514 del 6 de enero de 2011)
