@@ -1,5 +1,6 @@
 Decreto N° V
 (de 6 de febrero).
+(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 36394 del 6 de enero de 2011 "Aprueba modelo Curricular para Liceo de Costa Rica y implementación del Bachillerato Internacional y el Reconocimiento de la Oferta Educativa Pública diferencia para varones y otorga al liceo de Costa Rica el carácter de "Colegio Laboratorio”, se declara al Liceo de Costa Rica institución de enseñanza secundaria para varones dentro del contexto de la oferta de educación pública diferenciada o uni-género.)
 Funda el Liceo de Costa Rica
 BERNARDO SOTO,
 PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE
