@@ -1,0 +1,1 @@
+Artículo 12.—Salvo los gastos por alimentación, taxi y pasajes de autobús, cualquier otro gasto imputable directamente a la gira, solo se podrá reconocer mediante la presentación de las respectivas facturas justificantes emitidas a nombre del IFAM y que cumplan con lo establecido por Tributación Directa.

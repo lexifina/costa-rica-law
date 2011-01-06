@@ -1,0 +1,1 @@
+Artículo 15.—En el evento de que se produzca un sobrante, deberá ser depositado en la cuenta corriente del Instituto con crédito a la cuenta de productos diversos y efectuar las revisiones pertinentes para determinar su origen. En caso de no poder determinarlo la suma sobrante será liquidada al finalizar el ejercicio anual.

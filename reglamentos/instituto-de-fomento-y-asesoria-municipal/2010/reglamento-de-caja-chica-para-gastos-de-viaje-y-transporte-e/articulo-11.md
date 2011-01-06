@@ -1,0 +1,1 @@
+Artículo 11.—Cada vez que se sustituya al administrador del fondo, temporal o definitivamente, deberá realizarse el arqueo correspondiente, cuyo resultado será firmado por los funcionarios involucrados y por el Jefe inmediato.

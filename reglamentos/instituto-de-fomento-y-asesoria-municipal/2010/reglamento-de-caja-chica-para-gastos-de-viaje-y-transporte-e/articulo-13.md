@@ -1,0 +1,1 @@
+Artículo 13.—El fondo de la Caja Chica deberá ser auditado por medio de arqueos periódicos y sin aviso previo, el cual quedará constando por escrito y deberá ser firmado por la persona que lo realiza y por el Administrador de la caja chica.

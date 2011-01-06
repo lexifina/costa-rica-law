@@ -1,0 +1,1 @@
+Artículo 5º—Las diferencias se reintegrarán en los viáticos a favor del funcionario, se reintegrarán mediante depósito vía transferencia electrónica previa revisión codificación y verificación presupuestaria.
