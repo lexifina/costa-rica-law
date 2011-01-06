@@ -1,0 +1,1 @@
+Artículo 24.—El Proceso de Recursos Humanos estudiará la solicitud y si la aprobara, determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará el resultado al funcionario solicitante.

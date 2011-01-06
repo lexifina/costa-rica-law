@@ -1,0 +1,2 @@
+Artículo 30.—Los ajustes a la Carrera Profesional, podrán ser solicitados al Proceso de Recursos Humanos en cualquier momento. Su aprobación se hará de conformidad con el procedimiento señalado anteriormente. En cuanto a su fecha de vigencia, esta será una vez que quede aprobada y sea enviada por la Alcaldía Municipal al Proceso de Recursos Humanos.
+El Proceso de Recursos Humanos deberá revisar la evaluación respectiva a más tardar 8 días hábiles después de presentada la solicitud.

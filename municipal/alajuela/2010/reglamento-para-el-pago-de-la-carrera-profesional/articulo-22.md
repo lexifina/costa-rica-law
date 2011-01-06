@@ -1,0 +1,1 @@
+Artículo 22.—Para ser tomada en cuenta la calificación de servicios de los funcionarios de nivel profesional, deberá estar firmada por el coordinador inmediato del funcionario y por él mismo de forma satisfactoria y estar registrada en el Proceso de Recursos Humanos de la Municipalidad.

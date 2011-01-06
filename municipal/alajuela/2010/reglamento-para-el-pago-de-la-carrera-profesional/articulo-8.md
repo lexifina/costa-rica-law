@@ -1,0 +1,1 @@
+Artículo 8º—El Proceso de Recursos Humanos no hará estudios de oficio, sólo realizará aquellos solicitados por los interesados. Salvo el estudio de Experiencia Profesional y el ajuste del valor del Incentivo de acuerdo a lo publicado por el Servicio Civil.

@@ -1,0 +1,2 @@
+Artículo 25.—Si la solicitud del interesado no fuera aceptada, el profesional podrá presentar un recurso de revocatoria con apelación ante el Proceso de Recursos Humanos, en un plazo de cinco días hábiles contados a partir del momento en que se reciba la comunicación. La Alcaldía Municipal deberá pronunciarse en un plazo similar sobre la apelación una vez recibida la comunicación.
+El Alcalde Municipal conocerá esta apelación y agotará la vía administrativa, en tal caso pudiendo el profesional acudir a la vía judicial que estime conveniente y necesario a sus intereses.

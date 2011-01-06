@@ -1,0 +1,1 @@
+Artículo 29.—Las resoluciones referidas, serán comunicadas al Proceso de Recursos Humanos y al interesado, a fin de que se trámite la respectiva acción de personal en que se haga efectivo el incentivo por Carrera Profesional.

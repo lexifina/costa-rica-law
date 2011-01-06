@@ -1,0 +1,1 @@
+Artículo 26.—Una vez definido el monto del incentivo, de acuerdo con los factores evaluados, el Proceso de Recursos Humanos trasladará al Alcalde Municipal el formulario en que conste la decisión tomada y los documentos probatorios.

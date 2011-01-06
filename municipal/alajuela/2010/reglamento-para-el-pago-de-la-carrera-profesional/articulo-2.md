@@ -1,0 +1,1 @@
+Artículo 2º—Denomínese “Carrera Profesional”, al incentivo económico aplicable a los funcionarios de nivel profesional que trabajan en la Municipalidad de Alajuela, concedido con base en sus grados académicos, postgrados adicionales al bachillerato universitario, capacitación recibida, capacitación impartida y la experiencia profesional en organismos estatales e internacionales.

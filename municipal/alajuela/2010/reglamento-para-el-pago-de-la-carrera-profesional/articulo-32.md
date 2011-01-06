@@ -1,0 +1,1 @@
+Artículo 32.—El Coordinador de Recursos Humanos tendrá la obligación de controlar y aplicar, una vez efectuada la calificación de servicios, lo dispuesto en el capitulo VI de este reglamento, presentando una lista de los profesionales afectados al Alcalde Municipal.
