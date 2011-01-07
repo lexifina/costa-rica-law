@@ -1,0 +1,1 @@
+Artículo 64.—Modificaciones del perfil de beneficios. Con fundamento en las Evaluaciones Actuariales la Junta Directiva de la Junta modificará el perfil de beneficios del Régimen, previa aprobación de la SUPEN. El contenido de dichas reformas se publicará en el Diario Oficial La Gaceta.

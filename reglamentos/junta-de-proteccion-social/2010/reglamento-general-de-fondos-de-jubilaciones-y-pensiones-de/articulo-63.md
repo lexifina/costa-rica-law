@@ -1,0 +1,1 @@
+Artículo 63.—Información para Estudios actuariales. Para efecto de la constitución, la administración y la realización de estudios actuariales generales o específicos, relacionados con el Fondo de Jubilaciones y Pensiones de los Vendedores de Lotería, la Junta deberá suministrar la información oficial que se requiera.

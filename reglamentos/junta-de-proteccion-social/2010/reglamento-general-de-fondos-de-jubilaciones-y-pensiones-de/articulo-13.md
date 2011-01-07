@@ -1,0 +1,1 @@
+Artículo 13.—Inembargabilidad del Fondo, de las pensiones y separación de los recursos. El Fondo es independiente del patrimonio de la Junta y del patrimonio de FOMUVEL. Se declara la inembargabilidad de los recursos del Fondo y se establece que el importe girado como pensión a cada beneficiario es inembargable salvo por pensión alimentaria.

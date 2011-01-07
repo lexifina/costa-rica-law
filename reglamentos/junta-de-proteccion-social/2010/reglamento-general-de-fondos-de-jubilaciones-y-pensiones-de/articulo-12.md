@@ -1,0 +1,1 @@
+Artículo 12.—Ingresos extraordinarios. Adicionalmente a lo establecido en el artículo anterior, el Régimen será financiado con cualquier otro aporte, donación o recurso financiero adicional que ingrese al Fondo.

@@ -1,0 +1,1 @@
+Artículo 21.—Pensión por invalidez. Tendrá derecho a la pensión por invalidez, el cotizante que haya perdido no menos de dos terceras partes de su capacidad física o mental para el ejercicio de sus funciones. La invalidez deberá ser declarada previamente por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros si corresponde.

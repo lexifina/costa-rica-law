@@ -1,0 +1,1 @@
+Artículo 23.—Excepciones al derecho de pensión por sobrevivencia de viudez, compañero supérstite de hecho. Perderá el derecho a la pensión por sobrevivencia, el cónyuge o compañero supérstite declarado por sentencia judicial firme, autor, instigador o cómplice de la muerte del causante.

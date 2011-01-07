@@ -1,0 +1,7 @@
+CAPÍTULO VI
+Vigencia y extinción de las prestaciones
+Artículo 35.—Vigencia. La vigencia de las prestaciones se ajustará a las siguientes reglas:
+a) Una vez aprobada la solicitud de pensión por parte de FOMUVEL, éste lo comunicará al cotizante para que tramite ante la Junta su renuncia. Una vez cancelada la condición de cotizante, por parte de la Junta, ésta lo comunicará a FOMUVEL para que inicie el trámite de desembolsos de pensión. Las pensiones por vejez regirán a partir del día inmediato posterior a la separación como cotizante.
+b) Las pensiones por invalidez regirán a partir del día inmediato posterior a la fecha en que se compruebe la existencia de los siguientes dos requisitos: la separación de la Junta como cotizante y la declaratoria de invalidez demostrada, siempre y cuando se ajuste a lo establecido en este Reglamento.
+c) Las pensiones por sobrevivencia de viudo, compañero, orfandad, regirán a partir del día siguiente al fallecimiento del causante, de acuerdo con la fecha que indique el respectivo certificado de defunción. Cuando se hayan girado mensualidades por parte del Régimen a nombre del pensionado, con posterioridad a su fallecimiento, dichas mensualidades se compensarán contra las sumas que deban girarse a sus causahabientes.
+d) En el caso de derechos por sucesión derivados de un pensionado, el beneficio regirá con posterioridad al último pago recibido por el causante, con el propósito de no incurrir en doble pago.

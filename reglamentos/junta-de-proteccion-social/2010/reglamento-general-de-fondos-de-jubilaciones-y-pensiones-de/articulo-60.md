@@ -1,0 +1,1 @@
+Artículo 60.—Del Control y Fiscalización del Fondo. El Fondo de Jubilaciones y Pensiones de los Vendedores de Lotería estará sujeto a los esquemas de control y fiscalización de conformidad con las normativas vigentes, de la SUPEN o de la Contraloría General de la República.

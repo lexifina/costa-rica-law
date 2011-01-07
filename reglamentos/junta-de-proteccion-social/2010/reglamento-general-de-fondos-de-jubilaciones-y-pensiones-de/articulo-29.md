@@ -1,0 +1,1 @@
+Artículo 29.—Límites mínimo y máximo de pensión. Ningún monto de pensión será inferior al 40% ni superior al 120% del salario de referencia establecido en este Reglamento. En el caso de las pensiones por sucesión o muerte, el 40% antes mencionado, debe corresponder a la suma de todos los montos que gozan los derechohabientes.

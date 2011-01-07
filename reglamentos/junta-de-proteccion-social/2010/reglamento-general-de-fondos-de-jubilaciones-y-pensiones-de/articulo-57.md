@@ -1,0 +1,1 @@
+Artículo 57.—Procedimientos contables. La contabilidad del Fondo deberá llevarse conforme a las disposiciones legales vigentes y disposiciones de la Superintendencia de Pensiones, de modo que se permita en cualquier momento determinar la situación financiera del Fondo.

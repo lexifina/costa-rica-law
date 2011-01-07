@@ -1,0 +1,1 @@
+Artículo 16.—De las inversiones. El Fondo de Jubilaciones y Pensiones de los Vendedores de Lotería realizará las inversiones de recursos atendiendo, además de las directrices de la SUPEN, aspectos de seguridad, liquidez, rentabilidad y diversificación, procurando que no se mantengan dineros ociosos.

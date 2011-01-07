@@ -1,0 +1,1 @@
+Artículo 61.—De las inversiones. Los parámetros y lineamientos generales de las inversiones de los recursos del Fondo serán establecidos por FOMUVEL, de conformidad con la normativa vigente que en materia de inversiones para este tipo de fondos, determine la SUPEN.

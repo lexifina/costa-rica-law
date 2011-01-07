@@ -1,0 +1,16 @@
+# Reglamento (2010-12-07)
+
+Reglamento General de fondos de Jubilaciones y Pensiones de los vendedores de lotería
+
+- Tipo: Reglamento
+- Número: 42
+- Fecha: 2010-12-07
+- Ente emisor: Junta de Protección Social
+- Publicación: La Gaceta N° 5 del 2011-01-07
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69394&param2=83327&param3=1 (ficha 69394)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2011-01-07 | la propia norma |

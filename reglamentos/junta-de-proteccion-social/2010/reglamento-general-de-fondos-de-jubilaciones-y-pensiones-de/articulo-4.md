@@ -1,0 +1,1 @@
+Artículo 4º—Reglamentación del Régimen: La Junta es un ente descentralizado del Sector Público, con personalidad jurídica y patrimonio propios, así como autonomía administrativa y funcional, a quien le compete la reglamentación de la operación y del funcionamiento del Régimen de Pensiones y Jubilaciones de Vendedores de Lotería.

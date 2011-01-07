@@ -1,0 +1,1 @@
+Artículo 56.—Liquidación anual. Las liquidaciones anuales y la emisión de estados financieros y reportes en general deberán ajustarse a las disposiciones de la SUPEN. Los excedentes del Fondo se capitalizarán a favor de éste.

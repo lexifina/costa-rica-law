@@ -1,0 +1,1 @@
+Artículo 37.—Pérdida del carácter de cotizante: En el caso de pérdida del carácter de cotizante, por una causa ajena a invalidez, vejez o muerte, no se generarán derechos a beneficios en el Fondo de Jubilaciones y Pensiones. No obstante, si el excotizante reingresa a la actividad debidamente autorizado por la Junta, sus cuotas pagadas le serán reconocidas.

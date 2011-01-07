@@ -1,0 +1,1 @@
+Artículo 9º—Ámbito de Cobertura. Quedan cubiertos por los beneficios de este Régimen todos los cotizantes, así como sus derechohabientes, cuando éstos cumplan los requisitos establecidos en el presente Reglamento.

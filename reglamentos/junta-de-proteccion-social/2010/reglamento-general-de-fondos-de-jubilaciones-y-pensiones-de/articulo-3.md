@@ -1,0 +1,1 @@
+Artículo 3º—Del giro de los aportes: La Junta girará mensualmente a FOMUVEL, un monto equivalente al uno por ciento (1%) de las ventas efectivas de lotería. Asimismo, los cotizantes, aportarán, mediante transferencia practicada por la Junta a FOMUVEL, el 25 por ciento de ese mismo monto.

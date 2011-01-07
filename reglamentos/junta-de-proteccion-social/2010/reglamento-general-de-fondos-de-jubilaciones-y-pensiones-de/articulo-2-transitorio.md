@@ -1,0 +1,4 @@
+Transitorio II.—Cotizantes con edades entre 50 y 69 años. Aquellos cotizantes que al entrar en vigencia este Reglamento, cuenten con una edad entre 50 años y un mes y 69 años y once meses, cuando cumplan los requisitos para pensionarse de acuerdo a la tabla establecida en el artículo 20 del presente Reglamento, tendrán derecho al siguiente monto de pensión:
+a) Un monto de lo que resulte del producto de 60% multiplicado por la proporcionalidad de cotización.
+b) Al monto que resulte del inciso anterior, se le suma el monto que resulta de multiplicar: un 2% por la proporcionalidad de cotización, por el número de años o fracción postergado por la proporcionalidad de cotización.
+c) El monto total resultante según el inciso b) anterior, no puede ser mayor al 100% del salario consignado en el artículo 20 del presente Reglamento.

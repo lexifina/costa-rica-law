@@ -1,0 +1,1 @@
+Artículo 25.—Estudio socioeconómico. Cuando por algún motivo se presente duda razonable sobre el cumplimiento de los requisitos consignados en este Capítulo, FOMUVEL podrá ordenar la realización los estudios correspondientes a efecto de comprobar el cumplimiento de tales requisitos.

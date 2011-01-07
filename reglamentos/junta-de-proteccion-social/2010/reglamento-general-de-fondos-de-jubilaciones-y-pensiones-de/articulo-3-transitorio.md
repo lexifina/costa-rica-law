@@ -1,0 +1,3 @@
+Transitorio III.—Preparación para la puesta en marcha. FOMUVEL dispondrá de un plazo de hasta 120 días naturales para iniciar la ejecución del presente Reglamento, plazo contado a partir de la fecha de su publicación en el diario oficial La Gaceta y que incluirá el período para la contratación de la operadora de pensiones señalada en el artículo 5 del presente Reglamento.
+Para cubrir los costos de puesta en marcha del régimen, se destinará un 5% del monto aportado por los cotizantes y la Junta al fondo, entre el 18 de febrero de 2009 y la fecha de publicación del presente reglamento. Dicha suma deberá liquidarse en un plazo de doce meses y en caso de que se genere un sobrante, será reintegrado al fondo.
+15 de diciembre del 2010.—

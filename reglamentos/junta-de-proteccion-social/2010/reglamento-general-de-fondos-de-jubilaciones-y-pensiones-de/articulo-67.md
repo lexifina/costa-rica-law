@@ -1,0 +1,1 @@
+Artículo 67.—Publicidad y vigencia. Este Reglamento y sus eventuales modificaciones, deberán someterse al conocimiento de la Superintendencia de Pensiones, como acto previo a su publicación en el Diario Oficial La Gaceta.

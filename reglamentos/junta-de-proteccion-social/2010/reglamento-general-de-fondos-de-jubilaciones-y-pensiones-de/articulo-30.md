@@ -1,0 +1,5 @@
+Artículo 30.—Tasa de reemplazo para la pensión por vejez. El monto mensual correspondiente a la pensión por vejez se obtendrá de la siguiente manera:
+a) El monto que resulte del producto del 60% por la proporcionalidad de cotización por el salario de referencia indicado en el presente Reglamento.
+b) Recibirá un monto adicional por cada año cotizado, después de los primeros veinte años, igual al producto de multiplicar 1% por la proporcionalidad de cotización por el salario de referencia.
+c) En caso de que se cumplan los requisitos para optar por la pensión por vejez y el cotizante no se acoja a ésta, y con independencia de los eventuales incrementos que se generen por lo dispuesto en el inciso b) anterior, el monto obtenido según se indica en este artículo, se incrementará en un 2% del salario de referencia, por cada año cotizado, hasta un máximo de cinco años.
+d) Si los requisitos de pensión por vejez se alcanzan a los ochenta años o después, el monto de pensión no será inferior al 60% del salario de referencia.
