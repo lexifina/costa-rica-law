@@ -1,0 +1,2 @@
+Artículo 9º—La administración del cementerio deberá contar con un botiquín de primeros auxilios en un lugar apropiado dentro de las instalaciones; para ser utilizado en caso de emergencia ocasionada por un accidente de algún trabajador o alguna emergencia. Además, todo cementerio debe tener a disposición servicios sanitarios, lavamanos y agua potable para uso de los trabajadores y público en general.
+Asimismo deberá contar con un plan de manejo de artrópodos y roedores.

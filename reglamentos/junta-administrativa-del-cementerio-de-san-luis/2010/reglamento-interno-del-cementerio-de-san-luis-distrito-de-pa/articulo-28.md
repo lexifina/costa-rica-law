@@ -1,0 +1,1 @@
+Artículo 28.—Las exhumaciones sean ordinarias o extraordinarias se harán siempre en presencia del encargado del cementerio y de dos testigos debiendo levantarse un acta firmada por los presentes, la que conservará la administración.

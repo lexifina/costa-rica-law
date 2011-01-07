@@ -1,0 +1,1 @@
+Artículo 3º—Un miembro o toda la directiva podrá ser reelegida por otro período, según el criterio de la Asamblea, Concejo de Distrito o del Concejo Municipal, si este último así lo considere conveniente.

@@ -1,0 +1,1 @@
+Artículo 34.—Para inhumaciones, la administración del cementerio indicará en las órdenes que expida, cual ha de ser el lugar a utilizar, si el responsable de la inhumación encontrare motivo que le impida cumplirla, dará aviso inmediato a la administración, explicando las razones., fecha en que fue sepultado y observaciones, si hubiere.

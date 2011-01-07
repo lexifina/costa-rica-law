@@ -1,0 +1,1 @@
+Artículo 6º—Queda terminantemente prohibida la comercialización de cadáveres, vísceras extraídas a los cadáveres autopsiados o embalsamados, restos humanos o cenizas producto de la cremación de cadáveres o restos humanos.

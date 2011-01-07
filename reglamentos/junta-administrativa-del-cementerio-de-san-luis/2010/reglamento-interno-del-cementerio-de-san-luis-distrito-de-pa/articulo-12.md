@@ -1,0 +1,1 @@
+Artículo 12.—El cementerio debe contar con un osario general debidamente protegido, donde se depositarán los restos óseos provenientes de las exhumaciones, debiendo estar construido antes de que transcurran los primeros cinco años de servicio.

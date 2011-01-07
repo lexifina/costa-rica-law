@@ -1,0 +1,1 @@
+Artículo 37.—Todo caso presentado y no estipulado en este Reglamento, facultará a la Junta con amplios poderes para resolverlo, en la forma que a su juicio lo considere conveniente, mediante acuerdos de la misma, previa consulta al Reglamento General de Cementerios.
