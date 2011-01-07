@@ -1,0 +1,1 @@
+Artículo 10.—Conforme al artículo 22, inciso b) de la Ley General de Control Interno Ley Nº 8292, corresponderá al Jerarca Institucional a través de la Unidad designada al efecto, verificar el cumplimiento, la validez y la suficiencia del sistema del Control Interno y proponer las medidas correctivas que sean pertinentes al mismo.

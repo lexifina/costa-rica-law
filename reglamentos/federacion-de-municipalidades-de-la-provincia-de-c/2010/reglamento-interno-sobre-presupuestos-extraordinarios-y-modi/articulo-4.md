@@ -1,0 +1,1 @@
+Artículo 4º—La aprobación de las modificaciones al presupuesto de egresos de la Federación corresponderá en principio al jerarca institucional, salvo aquellas que afecten el mismo objeto del gasto en donde se podrá realizar la modificación razonada para ser conocida en la siguiente sesión del Concejo, o en este caso por el jerarca para efectos de ratificación.
