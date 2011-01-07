@@ -1,0 +1,17 @@
+FIDEICOMISO 32-04 BANCRÉDITO IMAS
+BANACIO/73-2002
+QUINTA MODIFICACIÓN AL REGLAMENTO PARA
+EL OTORGAMIENTO Y REGISTRO DE GARANTÍAS
+DEL FIDEICOMISO 32-04 BANCRÉDITO IMAS
+BANACIO/73-2002
+Considerandos:
+1º—Que el Instituto de Ayuda Social (IMAS) y el Banco Nacional de Costa Rica (BANACIO), suscribieron un Convenio Marco de Cooperación, con el propósito de que este Banco atienda la demanda de crédito, para actividades microempresariales, hacia las mujeres y familias en condiciones de pobreza.
+2º—Que el Instituto Mixto de Ayuda Social (IMAS) en calidad de Fideicomitente, el Banco Crédito Agrícola de Cartago en su calidad Fiduciario y el Banco Nacional de Costa Rica (BANACIO) en calidad de Fideicomisario Garantizado, acordaron por medio de Fideicomiso 32-04 BANCRÉDITO IMAS BANACIO/73-2002, respaldar los créditos hacia la población objetivo al amparo del Convenio descrito anteriormente.
+3º—Que el Comité Director del Fideicomiso, en sesión extraordinaria Nº 08-04 celebrada el 15 de abril del 2004, sesión Nº 12-04 del 1º de setiembre del 2004, y sesión Nº 005-05 del 9 de marzo del 2005, sesión Nº 008-05 de fecha 3 de mayo del 2005, y en sesión Nº 20-05 del día 12 de setiembre del 2005, en la sesión Nº 011-2010 el día 2 de setiembre del 2010; aprobó el Reglamento para el Otorgamiento y Registro de Garantías y sus cuatro modificaciones respectivamente.
+4º—Que el Reglamento para el Otorgamiento y Registro de Garantías y sus modificaciones en al artículo décimo denominado “Condiciones de crédito aplicables a los préstamos beneficiados por el Fondo Garantías. ………….. Los plazos establecidos para Capital de Trabajo son de 18 meses y para Inversión Fija hasta 60 meses…………..
+5º—Que es de interés mejorar las condiciones de crédito hacia la población beneficiaria de un crédito otorgado del Banco Nacional de Costa Rica, al amparo del Fideicomiso, con el fin de que nuestra población de acuerdo con los proyectos presentados, al análisis del flujo de caja, y a la capacidad de pago cuente con la posibilidad de un mayor plazo en lo que a Capital de trabajo se refiere hasta un plazo máximo de 36 meses.
+6º—Que algunas solicitudes de financiamiento presentadas por parte de los(as) potenciales beneficiarios(as) del Fideicomiso se están viendo afectadas por los plazos ya que por las características de los proyectos en algunas ocasiones se requiere otorgarles un plazo mayor, con el fin de que nuestros(as) clientes manejen un flujo de caja más flexible durante el plazo del crédito.
+Por lo que se acuerda: Modificar el artículo décimo del Reglamento, en los siguientes términos:
+Artículo 10.—Condiciones de crédito aplicables a los préstamos beneficiados por el Fondo de Garantías………….. Los plazos establecidos para Capital de Trabajo son de hasta 36 meses y para Inversión Fija hasta 60 meses, no obstante, y si se financia en un mismo crédito inversión fija y capital de trabajo el plazo del mismo podrá ser hasta 60 meses, siempre y cuando el monto correspondiente a inversión fija sea un mínimo del 50% del monto total del crédito.
+En todo lo demás dejamos firme y valedero el Reglamento para el Otorgamiento y Registro de Garantías del Fideicomiso 32-04 BANCRÉDITO IMAS BANACIO/73-2002 y sus modificaciones.
+Estas modificaciones al Reglamento fueron aprobadas por el Comité Director del Fideicomiso, en la sesión Nº 16-2010 el día 25 de noviembre del 2010, y entrarán en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
