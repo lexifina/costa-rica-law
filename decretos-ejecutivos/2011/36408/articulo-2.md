@@ -1,0 +1,1 @@
+Artículo 2º—Declárense de interés público y nacional, las acciones y actividades que llevan a cabo las autoridades públicas, para solucionar el problema que produce la falta de extracción del biogás del Relleno Sanitario de Río Azul.
