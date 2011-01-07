@@ -1,0 +1,2 @@
+Artículo 4.-Organización
+El Consejo de Docencia estará integrado por cinco miembros, dos de los cuales serán la Contralora o Contralor General y la Subcontralora o Subcontralor General, quienes lo presidirán en ese orden. Los tres miembros restantes serán de libre nombramiento y remoción por la Contralora o Contralor General y deberán ser personas de reconocida idoneidad y experiencia en el campo de la docencia o la investigación y serán nombrados por un período de dos años, pudiendo ser reelectos.

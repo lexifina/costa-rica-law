@@ -1,0 +1,2 @@
+Artículo 9.-Convocatoria a sesiones ordinarias y extraordinarias
+El Consejo de Docencia en pleno reunirá en sesión ordinaria una vez por bimestre, y en sesión extraordinaria cuando lo convoque el Despacho por propia iniciativa. La convocatoria de las reuniones se utilizará la vía tecnológica adecuada a dicha comunicación con una antelación mínima de tres días hábiles, salvo casos de urgencia, la invitación incluirá el detalle del orden del día. La convocatoria incluirá la documentación necesaria para el tratamiento de los diferentes puntos.
