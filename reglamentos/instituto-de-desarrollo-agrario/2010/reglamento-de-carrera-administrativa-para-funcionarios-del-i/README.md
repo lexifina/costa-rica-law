@@ -14,3 +14,4 @@ Reglamento de Carrera Administrativa para funcionarios del Instituto de Desarrol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-06 | la propia norma |
+| 2 | 2011-01-10 | Reglamento 1 (2011-01-10) |

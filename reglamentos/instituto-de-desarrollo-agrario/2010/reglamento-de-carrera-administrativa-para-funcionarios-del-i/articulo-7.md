@@ -1,5 +1,5 @@
 CAPÍTULO III
 Del ascenso en cadena
-Artículo 7º—La Administración Superior en coordinación con el Departamento de Recursos Humanos, no nombrará a ninguna persona en forma interina en puestos vacantes. Para tal efecto se llevará a cabo el siguiente procedimiento:
-Se considerarán oferentes, todos aquellos funcionarios (as) nombrados en Propiedad y que reúnan los requisitos establecidos en el Manual de Puestos vigente.
-De existir falta de idoneidad o inopia entre las personas para desempeñar el puesto vacante, se recurrirá a oferentes internos con un año mínimo de laborar en forma ininterrumpida para la Institución; en caso de persistir la falta de idoneidad, se procederá al concurso externo.
+Artículo 7°— La Administración Superior en coordinación con el Área de Recursos Humanos, no nombrará a ninguna persona en forma interina en puestos vacantes, salvo caso de calificada necesidad institucional, en que podrá hacerlo por única vez, y hasta por tres meses. De acuerdo con el estudio técnico del Área de Recursos Humanos y de la Comisión de Carrera Administrativa se recomendará a la Administración Superior los ascensos en cadena que correspondan. Para la plaza que queda vacante se seguirá el siguiente procedimiento:
+Se considerarán oferentes, todos y todas aquellas funcionarios (as) nombradas en propiedad o interinos que tengan un año o más de laborar para el Instituto en forma ininterrumpida y que reúnan los requisitos establecidos en el Manual de Puestos vigente para el puesto que ofertan. De existir falta de idoneidad o inopia entre las personas para desempeñar el puesto vacante, se recurrirá al concurso externo”
+(Así reformado mediante acuerdo N° 5 de la sesión N° 001 del 10 de enero de 2011)
