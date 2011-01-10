@@ -1,0 +1,1 @@
+Artículo 39.—Reajuste de precios. En cada contrato se establecerá los indicadores, componentes de precio y metodología a utilizar para los reajustes de precios. Los precios serán revisados en forma anual.

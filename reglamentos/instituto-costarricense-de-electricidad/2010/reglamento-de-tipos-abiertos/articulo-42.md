@@ -1,0 +1,1 @@
+Artículo 42.—Venta y distribución de bienes. El ICE podrá adquirir bienes y servicios de proveedores con el fin de venderlos directamente en sus puntos de ventas, distribuirlos a otros centros o contratar un operador logístico para su venta o distribución.

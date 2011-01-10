@@ -1,0 +1,1 @@
+Artículo 4º—Conciliación y arbitraje. En caso de que exista alguna diferencia entre las partes de carácter patrimonial y disponible, se podría acudir a la conciliación y arbitraje según lo establecido por el Consejo Directivo en el artículo 6º de la sesión 5854 del 9 de julio del 2008.

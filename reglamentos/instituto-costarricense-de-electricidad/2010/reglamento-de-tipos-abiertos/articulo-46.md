@@ -1,0 +1,1 @@
+Artículo 46.—Bienes en consignación. Los bienes pueden recibirse en consignación y el ICE los pagará en el plazo previamente establecido, luego de efectuada la venta. Los saldos que permanezcan inmovilizados según cantidades predeterminadas serán devueltos al concedente.

@@ -1,0 +1,1 @@
+Artículo 2º—Regulación. Las formas contractuales definidas en este documento deberán cumplir con los procedimientos y principios establecidos en la Ley Nº 8660 y su Reglamento, así como el Reglamento Interno de Contratación Administrativa.

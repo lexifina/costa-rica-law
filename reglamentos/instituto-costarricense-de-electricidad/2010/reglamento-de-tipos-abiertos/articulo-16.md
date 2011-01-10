@@ -1,0 +1,1 @@
+Artículo 16.—Precios equivalentes. Se deberá establecer el precio equivalente en moneda de los bienes permutados, que será determinado como producto de la valoración que realice el Proceso de Avalúos de la Institución. Las partes pueden dar como prestaciones o contraprestaciones parte en dinero en efectivo.

@@ -1,0 +1,1 @@
+Artículo 19.—Pagos de gastos judiciales y extrajudiciales. El pago de impuestos y gastos judiciales y extrajudiciales que originen estos contratos serán pagados según lo establecido en la respectiva contratación.

@@ -1,0 +1,1 @@
+Artículo 15.—Veracidad de la información y vicios ocultos. Las partes se harán responsables por información no suministrada al momento del traspaso de los bienes y que luego repercutan en la funcionalidad de los bienes así como por vicios ocultos por el plazo de dos años.

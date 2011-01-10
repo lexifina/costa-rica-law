@@ -1,0 +1,1 @@
+Artículo 30.—Asignación de los recursos humanos. En cada contrato se establecerá a qué parte corresponde suministrar el recurso humano para la operación y mantenimiento de los bienes así como el cumplimiento de las obligaciones obrero-patronales que correspondan.

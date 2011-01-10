@@ -1,0 +1,1 @@
+Artículo 32.—Tipos de factores. La empresa de factoring puede actuar como adquiriente en firme de los créditos o facturas o como sociedad prestadora de los servicios de cobro, según se indique en cada contratación.
