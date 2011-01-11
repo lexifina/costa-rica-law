@@ -48,3 +48,4 @@ OBJETIVOS ESTRATEGICOS INSTITUCIONALES:
 18.Evaluar el desempeño del sistema de Evaluación del Desempeño de las y los servidores judiciales, donde se integren los diferentes ámbitos institucionales que permita unir los esfuerzos bajo una dirección común.
 19.Ejercer la función rectora de los programas de capacitación de formación inicial, actualización y especialización para todo el personal judicial.
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 36 a La Gaceta N° 244 del 16 de diciembre del 2010)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36355 del 11 de enero de 2011)

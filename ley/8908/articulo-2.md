@@ -31,3 +31,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 36 a La Gaceta N° 244 del 16 de diciembre del 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36331 del 16 de diciembre de 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36365 del 11 de enero de 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36355 del 11 de enero de 2011)
