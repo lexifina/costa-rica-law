@@ -1,0 +1,2 @@
+Artículo 3º—Reconocimiento de Anualidades. La Municipalidad reconocerá y pagará las anualidades correspondientes, al servidor municipal nombrado en plaza fija o interina, aunque hubieran trabajado en otro lugar del sector público costarricense.
+Para el reconocimiento del tiempo laborado, se tomará en cuenta los años completos y fracciones mensuales de años laborados, estos últimos tienen que ser agregados al tiempo transcurrido de trabajo actual, para completar años de servicios y obtener el plus salarial respectivo.

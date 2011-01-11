@@ -1,0 +1,1 @@
+Artículo 11.—Casos en que se hayan disfrutado permisos sin goce de salario. En el caso de los funcionarios municipales que hayan disfrutado de permisos sin goce de salarios, ese tiempo no será tomado en cuenta para el reconocimiento de anualidades.

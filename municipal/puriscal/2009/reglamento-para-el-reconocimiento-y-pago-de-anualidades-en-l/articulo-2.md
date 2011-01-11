@@ -1,0 +1,1 @@
+Artículo 2º—Concepto de Anualidades. Para los efectos de éste reglamento, se entiende por Anualidad el incentivo que la Municipalidad de Puriscal, como patrono, otorga a todos sus servidores públicos, cuando hayan laborado más de un año dentro de una Administración Pública.
