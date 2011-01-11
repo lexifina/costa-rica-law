@@ -14,3 +14,4 @@ Reglamento de sesiones, acuerdos y votaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-08 | la propia norma |
+| 2 | 2011-01-11 | Reglamento municipal 2 (2011-01-11) |
