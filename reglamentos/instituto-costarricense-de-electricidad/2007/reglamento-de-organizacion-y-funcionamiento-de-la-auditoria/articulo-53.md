@@ -1,1 +1,0 @@
-Artículo 53.—Comunicación escrita de los servicios preventivos. La comunicación de los servicios preventivos se hará en forma escrita, mediante oficios u otros medios de comunicación legales permitidos.

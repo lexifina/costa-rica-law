@@ -1,1 +1,0 @@
-Artículo 8º—Valores éticos. Los funcionarios de la Auditoría Interna deberán conducirse en sus distintas relaciones, tanto internas y externas, cumpliendo en todo momento con el Código de Ética Institucional, del cual emanan los valores éticos que orientan el desempeño de las actividades que realiza el ICE.

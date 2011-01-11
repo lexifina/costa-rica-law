@@ -1,1 +1,0 @@
-Artículo 48.—Acceso y custodia de la información. El Auditor General definirá formalmente lineamientos para custodiar la documentación de los productos de los Servicios de Auditoría Interna y los niveles de acceso a la misma, considerando lo que al respecto disponen la Ley General de Control Interno y la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

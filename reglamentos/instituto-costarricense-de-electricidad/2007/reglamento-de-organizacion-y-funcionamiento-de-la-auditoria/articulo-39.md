@@ -1,5 +1,0 @@
-CAPÍTULO VIII
-Funcionamiento de la auditoría interna
-Artículo 39.—Asignación de competencias.
-1. Las competencias de la Auditoría Interna se regularán fundamentalmente en lo que corresponda por lo establecido en la Ley General de Control Interno, el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público emitido por la Contraloría General de la República, el Decreto Ley 449 (Ley de creación del ICE), la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, la Ley Orgánica de la Contraloría General de la República, la Ley de Administración Financiera de la República y Presupuestos Públicos y su Reglamento y la Ley General de la Administración Pública; así como por las disposiciones, directrices, circulares, lineamientos, resoluciones que emita la Contraloría General, y por las normas reglamentarias que formule el Consejo Directivo.
-2. La Auditoría Interna ejecutará las normas citadas considerando las prohibiciones que establece el artículo 34 de la Ley General de Control Interno.

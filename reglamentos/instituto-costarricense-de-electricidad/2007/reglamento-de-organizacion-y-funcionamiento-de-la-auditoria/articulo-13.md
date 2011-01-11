@@ -1,1 +1,0 @@
-Artículo 13.—Restricciones. El Auditor General, los Subauditores y el personal de la Auditoría no podrán ser empleados ni ejercer funciones de otra Unidad Administrativa en la Institución y tampoco ser miembros del Consejo Directivo, comisiones de trabajo o similares.

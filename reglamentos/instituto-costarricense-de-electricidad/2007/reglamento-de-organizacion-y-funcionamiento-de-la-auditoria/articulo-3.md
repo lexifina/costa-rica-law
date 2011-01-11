@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y de la Administración Activa del ICE, a los que se les asigne alguna responsabilidad.

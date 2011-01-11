@@ -1,1 +1,0 @@
-Artículo 28.—Área de Aseguramiento y Mejora de la Calidad. El Programa de Aseguramiento de Calidad será liderado dentro de la Auditoría por un área creada específicamente para éste propósito, la que estará adscrita al Auditor General.

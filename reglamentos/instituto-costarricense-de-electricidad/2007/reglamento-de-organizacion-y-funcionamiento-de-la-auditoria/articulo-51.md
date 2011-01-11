@@ -1,1 +1,0 @@
-Artículo 51.—Revisión de papeles de trabajo. Todos los papeles de trabajo deberán ser revisados para asegurar que soportan adecuadamente los resultados del estudio y que todos los procedimientos de auditoría necesarios han sido aplicados. Así mismo, deberá quedar evidencia de la revisión por parte de la jefatura inmediata.

@@ -1,1 +1,0 @@
-Artículo 26.—Pericia y debido cuidado profesional. El Auditor General y los Subauditores deberán cumplir sus funciones con pericia y debido cuidado profesional, haciendo valer sus competencias con independencia funcional y de criterio, y vigilando que su personal responda de igual manera.

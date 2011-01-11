@@ -1,3 +1,0 @@
-Artículo 38.—Utilización y contratación de recursos externos.
-1. El Auditor General podrá solicitar la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a los estudios que realice la Auditoría Interna.
-2. El Auditor General podrá realizar la contratación de recursos externos para llevar a cabo los estudios especiales, los cuales deben ser previamente justificados. La Administración Activa facilitará estas contrataciones, cumpliéndose para ello con los procesos de contratación establecidos.
