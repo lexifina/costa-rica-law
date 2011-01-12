@@ -1,0 +1,7 @@
+CAPÍTULO II
+Reconocimiento y protección jurídica de los sistemas
+Artículo 3. Reconocimiento de los sistemas de pagos y
+de liquidación de valores.
+1. Cada uno de los Estados Parte, por medio de su banco central u órganos o instituciones competentes según el derecho interno, siguiendo los estándares internacionales, determinará los requisitos que debe cumplir un sistema de pagos o de liquidación de valores para que sea reconocido y, por consiguiente, goce de la protección jurídica otorgada por este tratado, así como el procedimiento para dicho reconocimiento.
+2. Los bancos centrales o los órganos o instituciones competentes según el derecho interno de cada Estado serán los encargados de otorgar el reconocimiento a los sistemas de pagos y de liquidación de valores. Con ese fin, evaluarán los sistemas existentes, y en caso de que, por razones de riesgo sistémico, éstos deban ser reconocidos, podrán requerir al administrador del sistema el cumplimiento de los requisitos correspondientes en el plazo que al efecto señalen.
+3. Los bancos centrales o los órganos o instituciones competentes según el derecho interno de cada Estado deberán publicar en la forma prevista en el ordenamiento de cada Estado la lista de entidades participantes en los sistemas reconocidos y cualquier cambio en ella, e informar a las autoridades competentes de los otros Estados Parte acerca de los sistemas reconocidos y sus entidades participantes.
