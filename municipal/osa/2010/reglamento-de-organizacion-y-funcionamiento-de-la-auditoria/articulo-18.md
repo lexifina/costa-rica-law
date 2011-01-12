@@ -1,0 +1,1 @@
+Artículo 18.—Salidas del trabajo. En cuanto a las salidas de la institución para el cumplimiento de sus funciones, el Auditor Interno lo podrá comunicar a la Secretaria del Concejo Municipal indicándole donde se encontrará, siempre que esta comunicación no entorpezca sus funciones e independencia.
