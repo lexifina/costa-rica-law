@@ -1,0 +1,2 @@
+ARTICULO VI
+Las Partes promoverán el desarrollo de actividades conjuntas tendientes al aprovechamiento de las tecnologías de la información, especialmente Internet, en el ámbito de la educación. Para ello, comenzarán el intercambio de experiencias en el área, y el establecimiento de vínculos estables que les permitan potenciar los esfuerzos que actualmente están llevando a cabo para expandir dentro de sus respectivos sistemas educativos, los beneficios brindados por esas tecnologías.

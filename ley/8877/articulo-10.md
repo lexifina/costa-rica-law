@@ -1,0 +1,3 @@
+ARTICULO X
+Las Partes se comprometen a mantener una estrecha colaboración a fin de impedir y penalizar el tráfico ilegal de obras de arte, bienes culturales, medios audiovisuales, bienes sujetos a protección, según la legislación sobre propiedad intelectual, documentos y otros objetos de valor arqueológico, histórico, artístico, cultural y educativo, de sus respectivos Estados.
+A tal efecto, velarán por el estricto cumplimiento de los acuerdos internacionales sobre protección de patrimonio cultural, de los cuales ambos países sean Parte, pudiendo, de estimarlo conveniente, suscribir un protocolo adicional al presente Convenio, sobre la materia.
