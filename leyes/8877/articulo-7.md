@@ -1,0 +1,2 @@
+ARTICULO VII
+Las Partes facilitarán el acceso a su documentación de carácter histórico y cultural, a petición de la otra Parte y de acuerdo con sus respectivos reglamentos internos, favoreciendo las iniciativas oficiales y particulares de cooperación en investigaciones históricas, culturales y educativas de interés común. Asimismo se fortalecerá la amplia difusión de los resultados de las investigaciones efectuadas.
