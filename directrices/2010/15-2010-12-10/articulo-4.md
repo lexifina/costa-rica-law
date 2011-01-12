@@ -1,0 +1,2 @@
+IV. FUNDAMENTO LEGAL
+Esta Directriz encuentra fundamento en los artículos 7 y 9 del Código Aduanero Uniforme Centroamericano, publicado en La Gaceta Nº 130 del 8 de julio de 2003; 5, 6 incisos b), 9 inciso e), 11, 12, 22, 24 inciso j) y 30 inciso d) de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº 212 del 08 de noviembre de 1995 y sus reformas y los artículos 6 y 7, inciso b) del Reglamento a la Ley General de Aduanas.
