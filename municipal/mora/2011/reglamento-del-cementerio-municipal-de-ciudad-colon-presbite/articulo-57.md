@@ -1,0 +1,1 @@
+Artículo 57.—El Registro de Exhumaciones y Traslados debe contener: nombre del propietario del derecho donde se practica la exhumación o traslado, nombre, calidades y fecha de enterramiento del cadáver a exhumar o trasladar, trascripción de la orden de autoridad competente que autorice la exhumación o de quien vaya a recibir los restos a trasladar.

@@ -1,0 +1,1 @@
+Artículo 45.—Cualquier daño o deterioro ocasionado por la construcción de una bóveda, será reparado de inmediato por el interesado. En caso contrario, la reparación la asumirá la junta y el costo de la misma será cargado a la cuenta del arrendatario que ocasionó el daño.

@@ -1,0 +1,1 @@
+Artículo 39.—El incumplimiento, por parte del arrendatario, de las obligaciones económicas o de cualquier otra obligación que se establezca en este reglamento o en normas conexas, autoriza a la Junta a rescindir el correspondiente contrato, previo seguimiento del debido proceso.
