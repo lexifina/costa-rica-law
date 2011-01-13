@@ -1,0 +1,1 @@
+Artículo 13.—De las decisiones del Jurado Calificador: Las decisiones del Jurado Calificador se tomarán por mayoría simple. En caso de empate, el Director Artístico o su sustituto, tendrá la prerrogativa del doble voto. En caso de ausencia del Director Artístico, el Principal de Sección tendrá doble voto.
