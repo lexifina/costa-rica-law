@@ -1,0 +1,1 @@
+Artículo 28.—El Encargado del Fondo de Caja Chica no entregará vales de caja chica a nombre de un funcionario, si tiene pendiente la liquidación de uno anterior. No podrá extenderse más de un vale a nombre de un mismo funcionario en forma simultánea.

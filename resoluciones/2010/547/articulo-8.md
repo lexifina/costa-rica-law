@@ -1,0 +1,1 @@
+Artículo 8º—Todas las erogaciones que se realicen por medio de los recursos del Fondo de Caja Chica deben estar respaldadas contra una factura comercial confeccionada según lo establecido en la Ley 7494 de la Contratación Administrativa y su Reglamento.

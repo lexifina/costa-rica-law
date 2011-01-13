@@ -1,0 +1,1 @@
+Artículo 11.—Se podrán utilizar recursos del Fondo de Caja Chica para cubrir servicios y gastos de viaje únicamente cuando estos se realicen dentro del territorio o las aguas jurisdiccionales del país.

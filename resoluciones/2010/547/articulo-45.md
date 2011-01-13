@@ -1,0 +1,1 @@
+Artículo 45.—El presente procedimiento será distribuido a los funcionarios de la SUTEL y con ese hecho se presumirá de conocimiento general por parte de todos los funcionarios de esta Superintendencia de Telecomunicaciones.

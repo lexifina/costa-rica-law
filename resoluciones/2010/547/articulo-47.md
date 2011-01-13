@@ -1,0 +1,1 @@
+Artículo 47.—Corresponderá velar por la aplicación de este procedimiento, a los funcionarios encargados de realizar los trámites que se señalan en el mismo, al Coordinador de del Área Funcional de Tesorería, a la jefatura del Departamento Financiero así como a la Dirección Administrativa Financiera.

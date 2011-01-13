@@ -1,0 +1,1 @@
+Artículo 34.—Los vales de caja chica deberán confeccionarse en original y copia. El original se mantendrá en el Área Funcional de la Tesorería y servirá de comprobante de pago; la copia se mantendrá como consecutiva. En el caso de anulación de vales, tanto el original como la copia se mantendrán en el consecutivo.

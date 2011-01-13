@@ -1,0 +1,2 @@
+VII. Disposiciones Finales
+Artículo 43.—El funcionamiento del Fondo de Caja Chica del Fondo Especial de la Superintendencia de Telecomunicaciones se sujetará, en lo que corresponda a las disposiciones contenidas en el Reglamento a la Ley de Contratación Administrativa, el Reglamento de Gastos de Viaje y Transporte para funcionarios y empleados del Estado, emitido por la Contraloría General de la República, lo aplicable en la Ley de la Administración Financiera de la República y toda la normativa vigente conexa.

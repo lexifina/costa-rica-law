@@ -1,0 +1,1 @@
+Artículo 40.—Los cheques de reintegros al Fondo de Caja Chica serán confeccionados por el encargado del mismo, cuando se hubiere desembolsado el 25% o menos del monto autorizado, e independiente del desembolso, cada fin de mes para que se procure reintegrar dentro del mismo período en que se genera la transacción.

@@ -1,0 +1,1 @@
+Artículo 49.—Los aspectos no contemplados en este procedimiento se regirán por la Ley de la Administración Financiera de la República, en lo que aplique a la SUTEL, la Ley General de la Administración Pública, el Reglamento a la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 25.—Todo adelanto de recursos del Fondo de Caja Chica deberá ser liquidado, mediante el formulario que para tal efecto se dispondrá el Departamento Financiero y será firmado por los funcionarios indicados en el artículo 5 de este procedimiento.
