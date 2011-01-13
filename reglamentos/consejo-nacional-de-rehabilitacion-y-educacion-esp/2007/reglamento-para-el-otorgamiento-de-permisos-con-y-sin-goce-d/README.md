@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Permisos con y sin Goce de Salario para Funci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-06 | la propia norma |
+| 2 | 2011-01-13 | Reglamento 984 (2011-01-13) |
