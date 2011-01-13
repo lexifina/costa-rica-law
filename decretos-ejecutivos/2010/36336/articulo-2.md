@@ -1,0 +1,1 @@
+Artículo 2°—Excepciones. La regulación no se aplicará a las embarcaciones de las instituciones y dependencias del Estado, las pertenecientes al Cuerpo de Bomberos, ni Cruz Roja ni a las embarcaciones que transporten personas con alguna emergencia médica.

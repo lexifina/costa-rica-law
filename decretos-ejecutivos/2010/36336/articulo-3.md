@@ -1,0 +1,1 @@
+Artículo 3°—Sanciones. Las autoridades públicas procederán a aplicar las sanciones, según corresponda, cuando se infrinja lo dispuesto en el artículo primero del presente Decreto, de conformidad con la normativa y reglamentación atinente y vigente.

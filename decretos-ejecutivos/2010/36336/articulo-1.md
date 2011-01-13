@@ -1,0 +1,14 @@
+N° 36336-MSP-MOPT
+LA PRESIDENTA DE LA REPÚBLICA
+Y LOS MINISTROS DE SEGURIDAD PÚBLICA
+Y DE OBRAS PÚBLICAS Y TRANSPORTES
+En uso de las facultades que les confieren los artículos 140, incisos 3), 6) y 18), 146 de la Constitución Política, 27, 28 inciso 2b), de la Ley N° 6227, Ley General de la Administración Pública.
+Considerando:
+I.—Que como consecuencia de la amenaza latente contra la integridad territorial, suscitada reciente en la zona norte de nuestro país, es necesario determinar un conjunto de acciones y medidas preventivas con la finalidad de garantizar la seguridad ciudadana en dicha zona y la defensa del territorio nacional.
+II.—Que la seguridad de la navegación en aguas de jurisdicción nacional es responsabilidad del Estado, que a tal efecto tiene la obligación de dictar la regulación que corresponda para satisfacer tal fin, pudiendo limitar o restringir, por razones de seguridad pública, el tránsito o la permanencia de embarcaciones en determinadas zonas, puertos y canales de acceso o salida.
+III.—Que la navegación de las embarcaciones debe ajustarse a criterios esenciales de segundad con el fin de garantizar la salvaguarda de bienes jurídicos fundamentales como es el caso de la vida, integridad de las personas, así como su patrimonio.
+IV.—Que de conformidad con la Ley N° 4786, “Reforma a la Ley de Creación del Ministerio de Transportes”, es responsabilidad del Ministerio de Obras Públicas y Transportes regular y controlar el transporte marítimo internacional, de cabotaje y por vías de navegación interior. Asimismo, de conformidad con Ley N° 8000, “Ley de Creación del Servicio Nacional de Guardacostas”, es responsabilidad del Servicio Nacional de Guardacostas vigilar y resguardar las aguas interiores navegables del Estado, así como velar por la seguridad del tráfico portuario y marítimo tanto de naves nacionales como extranjeras en las aguas jurisdiccionales del Estado.
+V.—Que las medidas ordenadoras de la navegación de embarcaciones que por este acto se establecen no infringen la libertad de tránsito ni la libertad de comercio, por cuanto no impiden el uso generalizado de las rutas fluviales y lacustres por parte de las embarcaciones, sino que regulan la navegación en determinadas zonas, mediante un sistema de horarios, para los fines señalados en el considerando primero.
+VI.—Que los Ministerios de Seguridad Pública y de Obras Públicas y Transportes en uso de las potestades conferidas legalmente, consideran que la aplicación de las disposiciones relacionadas con la restricción de la navegación en horarios nocturnos constituye una medida justificada, proporcional y razonable. Por Tanto,
+DECRETAN:
+Artículo 1°—Regulación. La navegación de todo tipo de embarcación será únicamente entre las 6:00 y las 18:00 horas en las desembocaduras de los ríos y canales navegables que que desemboquen en el Río San Juan, entre ellos, el Sarapiquí, San Carlos y el Infiernito, y en el Río Colorado.
