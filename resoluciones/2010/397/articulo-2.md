@@ -1,0 +1,1 @@
+2º—Informar que este ajuste debe ser considerado para que desarrolladores informáticos externos preparen los ajustes correspondientes a los programas que utilizan para la transmisión al TICA de los mensajes de importación y exportación.

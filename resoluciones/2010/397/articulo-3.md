@@ -1,0 +1,1 @@
+3º—Comunicar que el intercambio de la información del FAUCA con los países Centroamericanos y la validación de los campos del mensaje del DUA de importación, asociados a un FAUCA, se tiene previsto iniciar el próximo 01 de marzo de 2011.
