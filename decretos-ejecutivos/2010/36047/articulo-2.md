@@ -1,0 +1,1 @@
+Artículo 2º—Las instancias técnicas competentes del Ministerio de Salud, o aquellas que cuenten con la investidura oficial respectiva para ello, con fundamento en la legislación vigente, procederán a ejecutar las medidas técnicas correspondientes en relación con los productos cubiertos por este reglamento.
