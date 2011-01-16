@@ -1,0 +1,3 @@
+CAPITULO III
+DE LA VIGENCIA DE LA DEDICACIÓN EXCLUSIVA
+Artículo 8: El contrato de Dedicación Exclusiva tiene una vigencia de dos años, contados a partir del primer día del mes siguiente en que es aceptado y firmado por las partes. Este contrato podrá ser prorrogado indefinidamente, por períodos iguales, siempre que se mantenga el cumplimiento de los requisitos exigidos en este Reglamento y que el promedio anual de la evaluación del desempeño del funcionario acogido al Régimen sea igual o superior a 85. También se tendrá por resuelto el Contrato de Dedicación Exclusiva, en forma inmediata y sin necesidad de resolución o acuerdo que lo establezca, cuando el funcionario deje de laborar para la Universidad en una jornada de tiempo completo.

@@ -1,0 +1,1 @@
+Artículo 10: En caso de que el servidor disfrute de un permiso sin goce de sueldo, el beneficio económico que otorga el Régimen se suspenderá por ese período y a su regreso podrá seguir acogido a la Dedicación Exclusiva.
