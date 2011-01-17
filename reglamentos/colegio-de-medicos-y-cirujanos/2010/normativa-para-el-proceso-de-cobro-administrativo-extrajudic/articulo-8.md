@@ -1,0 +1,1 @@
+Artículo 8º—En el caso que el colegiado o dependiente moroso incumpliere el compromiso adquirido con el Colegio de Médicos y Cirujanos de Costa Rica procederá de inmediato, a pasarlo a Cobro Judicial.

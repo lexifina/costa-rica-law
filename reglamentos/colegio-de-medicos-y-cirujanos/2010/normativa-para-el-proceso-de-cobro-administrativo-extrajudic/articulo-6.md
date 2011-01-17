@@ -1,0 +1,1 @@
+Artículo 6º—El arreglo de pago, es el compromiso que asume el colegiado o dependiente moroso de cancelar en el tiempo acordado entre las partes, la cuenta que adeuda al Colegio de Médicos y Cirujanos de Costa Rica.

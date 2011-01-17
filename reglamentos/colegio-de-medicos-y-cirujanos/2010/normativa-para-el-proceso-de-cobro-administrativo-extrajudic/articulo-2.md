@@ -1,0 +1,1 @@
+Artículo 2º—El Colegio de Médicos y Cirujanos de Costa Rica, por medio de los Departamentos y/o Unidades correspondientes, creará e implementará los mecanismos y controles necesarios para hacer efectivo el cobro y correspondiente pago de las colegiaturas morosas, multas o alcances de cuentas; tanto administrativa como extrajudicial y judicialmente.

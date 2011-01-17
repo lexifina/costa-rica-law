@@ -1,0 +1,2 @@
+Artículo 3º—El agremiado se compromete a suministrar información veraz y exacta, así como a mantener actualizados sus datos personales y laborales; así como informar al Colegio de Médicos y Cirujanos de Costa Rica, cualquier cambio en su condición o estatus.
+En caso de que el agremiado no actualice sus datos, o que los mismo no sean veraces y exactos; exonera de todo tipo de responsabilidad al Colegio de Médicos y Cirujanos de Costa Rica, en caso de que no pueda ser contactado, para que ponga al día sus deudas pendientes.

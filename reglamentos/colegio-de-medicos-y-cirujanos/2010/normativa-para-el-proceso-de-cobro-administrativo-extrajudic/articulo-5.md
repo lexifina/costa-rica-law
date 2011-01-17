@@ -1,0 +1,2 @@
+Artículo 5º—El Colegio de Médicos y Cirujanos de Costa Rica, como beneficio hacia sus agremiados publicará en un diario de circulación nacional, y por una única vez, el listado de colegiados atrasados en sus deudas con la institución.
+En fiel cumplimiento del artículo13 del Reglamento a la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica, se procederá a suspender a los agremiados que tengan tres o más colegiaturas pendientes, y se realizará la publicación respectiva en el Diario Oficial La Gaceta, y en un periódico de circulación nacional.

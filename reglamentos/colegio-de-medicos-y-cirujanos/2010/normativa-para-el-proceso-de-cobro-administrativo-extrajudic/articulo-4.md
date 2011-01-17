@@ -1,0 +1,3 @@
+Artículo 4º—Para el cumplimiento de sus objetivos, el Departamento y/o Unidad pertinente, se encargará de:
+a) Realizar las gestiones de cobro administrativo, extrajudicial y judicial, de las deudas pendientes, para lo cual el Colegio como beneficio hacia sus agremiados por una única vez, enviará un mensaje de texto, correo electrónico o llamada, de acuerdo a los datos actualizados y brindados por sus agremiados; siendo todas excluyentes entre sí, y no siendo obligación del Colegio de Médicos y Cirujanos, realizar todas las acciones antes citadas.
+b) Una vez agotada la última gestión de cobro administrativo, se trasladarán los casos a la Unidad de Procesos Legales, para que proceda al cobro por la vía extrajudicial y judicial según corresponda.
