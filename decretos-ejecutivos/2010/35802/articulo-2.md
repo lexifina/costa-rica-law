@@ -1,2 +1,0 @@
-Artículo 2º—Ámbito de aplicación. La implementación del OEA iniciará con las personas físicas o jurídicas que son exportadoras y que voluntariamente soliciten la condición de OEA.
-Los demás actores de la cadena logística de comercio exterior podrán ser incorporados de conformidad con los planes y etapas de implementación que al respecto se establezcan mediante resolución de alcance general por parte de la DGA.

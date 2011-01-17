@@ -1,2 +1,0 @@
-Artículo 11.—Expedición y validez de la certificación de OEA. Una vez realizada la validación, si el solicitante cumpliere satisfactoriamente con las formalidades y requisitos específicos contenidos en este Reglamento, la DGA procederá a emitir en un plazo de quince días hábiles la resolución administrativa que otorga la condición y certificación OEA.
-La certificación inicial tendrá una validez de un periodo de dos años desde la fecha de su otorgamiento, pudiendo ser renovada por otro plazo igual.

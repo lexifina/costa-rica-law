@@ -1,2 +1,0 @@
-Artículo 16.—Publicidad. El nombre y categoría de las personas físicas o jurídicas que sean certificadas y autorizadas como OEA serán incluidos en una lista oficial que al efecto la DGA publicará en el Diario Oficial y que mantendrá actualizada en la página Web del Ministerio de Hacienda.
-Adicionalmente, la DGA publicará en forma anual en el diario oficial La Gaceta el listado de los OEA vigentes.
