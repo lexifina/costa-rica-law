@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad, para cumplir con la obligación señalada, podrá solicitar a las otras instituciones del Estado y sus dependencias y coordinar con ellas la ejecución e implementación de lo que imponga la normativa establecida.

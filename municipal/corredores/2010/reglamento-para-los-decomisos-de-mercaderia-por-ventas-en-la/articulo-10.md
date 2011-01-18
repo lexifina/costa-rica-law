@@ -1,0 +1,1 @@
+Articulo 10.—Recursos. Los actos que emanen del decomiso de mercadería, suspensión y cancelación de permisos y patentes, contra lo resuelto por el departamento de Rentas, procederán los recursos ordinarios ante el alcalde y El Concejo Municipal, de acuerdo a lo previsto en los artículos 161 y 162 del Código Municipal.
