@@ -14,3 +14,4 @@ Publica Resolución N° 250-2010 (COMIECO-LVIII) de fecha 3 de septiembre de 201
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-10 | la propia norma |
+| 2 | 2011-01-18 | Resolución 1 (2011-01-18) |
