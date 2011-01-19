@@ -22,6 +22,7 @@ Año Límite máximo (%m/m)
 (*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34879 del 1° de octubre de 2008)
 15 de enero del 2009 0,05(*)
 (*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34879 del 1° de octubre de 2008)
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 36372 del 19 de enero de 2011, se establece que el contenido de azufre en el diesel será de 0,005%m/m como límite máximo. Esta disposición no aplica al diesel utilizado en la generación térmica, cuyo contenido de azufre será 1%m/m como contenido máximo.)
 Para el caso del diesel utilizado para la generación térmica, se mantiene en 1% de contenido de azufre como límite máximo.
 Cetano: a partir de la publicación de este Decreto se fija el índice de cetano en 45 como mínimo.
 Inflamación: a partir de la publicación de este Decreto, el punto de inflamación deberá ser como mínimo de 52° C
@@ -29,4 +30,4 @@ Viscosidad: A partir de la publicación de este Decreto, la viscosidad debe ser 
 Agua: a partir de la publicación de este Decreto, el contenido de agua sera como máximo de 0,05 vol.
 Cenizas: a partir de la publicación de este Decreto, el contenido máximo de cenizas sera de 0,01% del peso.
 Coque: a partir de la publicación de este Decreto, los residuos de coque tendran un máximo de 0,2% en peso.
-(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30690 de 16 de agosto del 2002)
+(La reforma practicada a este artículo por el decreto ejecutivo N° 30690 del 16 de agosto del 2002, posteriormente fue derogada por el artículo 3° del decreto ejecutivo N° 36372 del 19 de enero del 2011. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver este al estado anterior de dicha reforma)
