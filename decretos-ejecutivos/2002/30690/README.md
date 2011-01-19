@@ -15,3 +15,4 @@ Reforma al decreto que determina las regulaciones para Producción de Diesel de 
 | --- | --- | --- |
 | 1 | 2002-09-17 | la propia norma |
 | 2 | 2008-10-01 | Decreto Ejecutivo 34879 (2008-10-01) |
+| 3 | 2011-01-19 | Decreto Ejecutivo 36372 (2011-01-19) |

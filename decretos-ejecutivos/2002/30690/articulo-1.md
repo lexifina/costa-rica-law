@@ -13,21 +13,4 @@ Considerando:
 8º—Que la alternativa de abastecer al país mediante la importación directa de diesel de 0,05% m/m de azufre, implicaría un incremento en los costos de importación entre US $ 0,7/barril y US $ 1 por barril, lo cual significaría un incremento inmediato en la factura petrolera de US $ 5 millones al año, con el consiguiente impacto en los precios de venta al consumidor.
 9º—Que actualmente RECOPE atraviesa por una crítica situación financiera y rezago en las inversiones para el desarrollo y que a pesar de ello es posible realizar esfuerzos que permitan reducir la contaminación por azufre en un 20%. Por tanto,
 DECRETAN:
-Artículo 1º—Modificar el artículo 1° del Decreto Ejecutivo N° 26130-MINAE, para que se lea de la siguiente manera:
-Artículo 1°—RECOPE, tomando como base el Decreto Ejecutivo Nº 15993-MEC, publicado en La Gaceta Nº 32 del 14 de febrero de 1985, en lo que se refiere a la Norma del Diesel, acatara los siguientes compromisos:
-Azufre: se reducirá el contenido del azufre paulatinamente pasando de 0,5% que la norma actual exige, a los siguientes niveles máximos.
-Año Límite máximo (%m/m)
-2003-2004 0,45
-2005-2006 0,40
-2007 0,35
-2008 0,20(*)
-(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34879 del 1° de octubre de 2008)
-15 de enero del 2009 0,05(*)
-(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 34879 del 1° de octubre de 2008)
-Para el caso del diesel utilizado para la generación térmica, se mantiene en 1% de contenido de azufre como límite máximo.
-Cetano: a partir de la publicación de este Decreto se fija el índice de cetano en 45 como mínimo.
-Inflamación: a partir de la publicación de este Decreto, el punto de inflamación deberá ser como mínimo de 52° C
-Viscosidad: A partir de la publicación de este Decreto, la viscosidad debe ser entre 1,9 y 5,5 mm2/seg.
-Agua: a partir de la publicación de este Decreto, el contenido de agua sera como máximo de 0,05 vol.
-Cenizas: a partir de la publicación de este Decreto, el contenido máximo de cenizas sera de 0,01% del peso.
-Coque: a partir de la publicación de este Decreto, los residuos de coque tendran un máximo de 0,2% en peso.
+Artículo 1º—(Derogado por el artículo 1° "Reduce el contenido de azufre en el diesel a 0.005% m/m como límite máximo", aprobado mediante decreto ejecutivo N° 36372 del 19 de enero del 2011. Esta disposición no aplica al diesel utilizado en la generación térmica, cuyo contenido de azufre será 1%m/m como contenido máximo.)
