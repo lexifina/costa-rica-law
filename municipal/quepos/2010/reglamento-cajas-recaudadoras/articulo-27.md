@@ -1,0 +1,1 @@
+Artículo 27.—Fondo de cambio. En caso de que algún gestor necesite dinero de baja denominación, con el fin de evitar inconvenientes de cambio en el cobro de impuestos a los contribuyentes, estará disponible un fondo de cambio en el Departamento de Tesorería por la suma de doscientos mil colones (¢200.000,00), este será solicitado mediante la formula elaborada para ese fin.

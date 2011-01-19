@@ -1,0 +1,1 @@
+Artículo 20.—De los sobrantes. Los sobrantes que se produzcan en los cierres diarios de operaciones de la Caja, deberán ser depositados a favor de la Municipalidad a más tardar la mañana del día hábil siguiente de establecido, mediante depósito de dinero en otra caja recaudadora, utilizando un comprobante de ingreso.

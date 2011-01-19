@@ -1,0 +1,1 @@
+Artículo 10.—Valores asignados al gestor. El gestor deberá mantener todos los valores asignados a él (fondo de operación, sellos, ingresos) dentro de su área de trabajo y no podrá sacarlos sin autorización de sus superiores, salvo para trasladarlos a la Tesorería Municipal para la realización de cierres o arqueos.
