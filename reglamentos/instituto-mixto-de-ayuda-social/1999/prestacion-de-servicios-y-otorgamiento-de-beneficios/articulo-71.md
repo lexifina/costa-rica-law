@@ -1,1 +1,0 @@
-Artículo 71.-De la liquidación de los recursos: La Gerencia Regional deberá liquidar ante el Área de Apoyo y Asesoría Financiera, los comprobantes respectivos de las ayudas entregadas a las familias afectadas por el desastre, en un lapso no mayor de diez días hábiles, una vez concluida la emergencia. Para ello seguirá el procedimiento establecido para la liquidación de fondos.

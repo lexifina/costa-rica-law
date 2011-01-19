@@ -1,2 +1,0 @@
-Artículo 41.-De la renovación de un beneficio: Un beneficio podrá ser renovado a una persona t1sica o jurídica cuando la situación que le dio origen persista y exista disponibilidad presupuestaria para ello y hasta por el límite de tiempo establecido al efecto en la Tabla de Límites de Autoridad Financiera por servicio, beneficio por año y funcionario competente.
-(Reformado por Acuerdo 073-2000. del artículo 4°, del acta 0142000. del 16 de febrero de 2000)

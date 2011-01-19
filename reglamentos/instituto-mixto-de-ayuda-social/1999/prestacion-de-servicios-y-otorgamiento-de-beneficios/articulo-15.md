@@ -1,7 +1,0 @@
-Artículo 15.—Registro de los sujetos privados, previo a la asignación de beneficios patrimoniales gratuitos o sin contraprestación alguna para la ejecución de proyectos institucionales:
-Las Áreas Regionales de Desarrollo Social y el Área de Acción Social y Administración de Instituciones de Bienestar Social, deberán registrar a los sujetos privados que reciban beneficios patrimoniales gratuitos o sin contraprestación, una vez que cumplan con los requisitos mínimos siguientes:
-a) Solicitud por escrito del sujeto privado, para registrarse ante el IMAS que incluya la dirección exacta del domicilio social de la organización o de las personas encargadas de la administración y números de teléfono, fax, apartado postal y correo electrónico.
-b) Fotocopia certificada del acta constitutiva de la respectiva entidad, con las correspondientes reformas, si las hubiere.
-c) Certificación de la personería jurídica vigente de la entidad extendida por el Registro Público o Notario Público con no más de tres meses de expedida en la que consten los nombres y los cargos de la Junta Directiva y Fiscalía si este último cargo existe y la fecha de vencimiento de la misma.
-d) Resumen ejecutivo de la experiencia en el manejo de proyectos sociales, desempeño, estructura y cobertura de la Organización.
-(Así reformado por acuerdo CD-275-2010 del acta 055-2010 del 26 de julio de 2010, publicada en La Gaceta N° 168 del 30 de agosto de 2010)

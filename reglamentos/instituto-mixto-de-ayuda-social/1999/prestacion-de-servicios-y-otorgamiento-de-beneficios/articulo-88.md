@@ -1,1 +1,0 @@
-Artículo 88.-De la responsabilidad administrativa: El incumplimiento de las disposiciones del presente Reglamento. tanto por los funcionarios del IMAS, como por los beneficiarios, los hará incurrir en responsabilidad administrativa, civil o penal, según lo establecido en las leyes de la República.

@@ -1,1 +1,0 @@
-Artículo 29.-De la eficiencia del servicio: Todo servicio se Pagará en forma ágil, eficiente y oportuna, con equidad para quien lo solicite y debidamente fundamentado en un criterio técnico emitido por un funcionario competente.

@@ -1,1 +1,0 @@
-Artículo 53.-De las responsabilidades del IMAS con respecto a las Instituciones de Bienestar Social: El IMAS a través del Departamento de Instituciones de Bienestar Social será la unidad responsable de cumplir con lo establecido en la Ley N° 3095, Ley N° 218 , de Asociaciones, y sus reformas y su reglamento y Ley N° 5338 de fundaciones y sus reformas.

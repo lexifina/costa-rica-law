@@ -1,4 +1,0 @@
-CAPITULO DÉCIMO CUARTO
-De las Responsabilidades
-Artículo 87.-De la responsabilidad de las Gerencias Regionales: Las Gerencias Regionales serán las responsables de verificar y determinar el cumplimiento de los procedimientos definidos para el otorgamiento de beneficios, conforme a las disposiciones del presente Reglamento, los manuales de procedimientos establecidos por las Áreas Estratégicas adscritas a la Gerencia de Desarrollo Social y otras directrices emanadas por la Dirección Superior.
-En el caso del Departamento de Administración de Instituciones y Servicios de Bienestar Social, corresponderá a esta Unidad, verificar y determinar el cumplimiento de los procedimientos definidos para el otorgamiento de servicios, conforme a las disposiciones del presente Reglamento y de la normativa que lo rige.

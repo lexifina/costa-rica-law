@@ -1,5 +1,0 @@
-Artículo 73.-De la acreditación de las personas voluntarias: La Gerencia Regional acreditará como voluntarias (os) las personas que cumplan con los requisitos del artículo 72, quienes firmarán una nota de compromiso donde se indicarán sus obligaciones. La unidad elaborará y llevará un registro de voluntarios (as) ) le entregará un documento que lo acredite como tal si cumple con lo establecido en el artículo anterior.
-Las personas voluntarias deberán pasar por un proceso previo de selección e inducción por parte de la unidad con la cual colaborará deberán sujetarse a las disposiciones expresadas en este reglamento y los lineamientos definidos por la unidad responsable.
-La unidad en la cual se brinde colaboración deberá designar un responsable de realizar el monitoreo seguimiento en todo el proceso.
-Al concluir su participación deberá elaborar un informe en el cual se destaquen los resultados obtenidos de sus actividades.
-(Reformado por Acuerdo 073-2000. del artículo 4°, del acta 014-2000. del 16 de febrero de 2000)

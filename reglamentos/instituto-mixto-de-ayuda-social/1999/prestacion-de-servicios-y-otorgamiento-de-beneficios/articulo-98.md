@@ -1,2 +1,0 @@
-Artículo 98.-De la fecha de vigencia: Rige a partir de su publicación en el Diario Oficial La Gaceta. El presente Reglamento fue aprobado por acuerdo firme de Consejo Directivo, N° CD 244-99, Artículo 4tO de la sesión ordinaria N° 54-99 de fecha 7 de julio de mil novecientos noventa y nueve. Modificado por Acuerdo 073-2000, del artículo 4°, del acta O 14-2000, del 16 de febrero de 2000
-San José, 8 de julio de, 1999.-Lic. Rodrigo Alberto Campos Hidalgo, Asesor Jurídico General-1vez.-c-(26905)
