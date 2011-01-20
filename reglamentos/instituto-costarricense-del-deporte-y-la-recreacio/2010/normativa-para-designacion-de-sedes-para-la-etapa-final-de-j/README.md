@@ -14,3 +14,4 @@ Normativa para Designación de sedes para la etapa final de juegos deportivos na
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-10 | la propia norma |
+| 2 | 2011-01-20 | Reglamento 740 (2011-01-20) |
