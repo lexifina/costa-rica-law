@@ -1,4 +1,5 @@
-II. Aprobar la modificación al artículo 7º del “Reglamento sobre suficiencia patrimonial de grupos y conglomerados financieros”, para que en lo sucesivo se lean así:
+II. Aprobar la modificación al artículo 7º de "Normas para determinar la suficiencia patrimonial de los grupos financieros y otros conglomerados", para que en lo sucesivo se lean así:
+(Así reformado el párrafo anterior mediante sesión N° 898-2011 del 20 de enero del 2011)
 “Artículo 7º—Deducciones. Las deducciones al monto que resulte de la suma del capital primario más el capital secundario, corresponderán a los siguientes elementos:
 a) El valor en libros de las participaciones en empresas asociadas, subsidiarias o entidades controladas conjuntamente, luego de efectuados los ajustes de valuación correspondientes. Se exceptúan las inversiones en participaciones en fondos de inversión.
 b) El valor en libros de inversiones emitidas por empresas asociadas, subsidiarias o entidades controladas conjuntamente, utilizadas por éstas para efectos de adecuación de capital con base en riesgos, tales como obligaciones subordinadas o convertibles en capital.

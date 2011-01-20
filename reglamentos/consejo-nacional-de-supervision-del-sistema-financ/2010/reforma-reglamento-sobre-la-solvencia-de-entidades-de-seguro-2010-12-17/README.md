@@ -14,3 +14,4 @@ Reforma Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros y Nor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-14 | la propia norma |
+| 2 | 2011-01-20 | Reglamento 898 (2011-01-20) |
