@@ -1,0 +1,1 @@
+Artículo 13.—Fondo para premios del Juego Progol. La Junta garantiza una bolsa de premios mínima de ¢10.000.000 (diez millones de colones) en cada jornada para incentivar la venta del juego, misma que se tomará del Fondo Acumulado para Premios Adicionales, que se distribuirá conforme lo indicado en el artículo 2º de este Reglamento.
