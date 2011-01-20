@@ -1,0 +1,1 @@
+Artículo 7º—Falta grave. Si un guarda no cumple con las disposiciones establecidas en el presente reglamento sobre el uso de un arma de fuego y por su mal actuar, negligencia ponga en peligro a terceras personas o dañe las instalaciones de la Municipalidad se considera una falta grave, pudiendo imponerle desde una sanción hasta el despido.
