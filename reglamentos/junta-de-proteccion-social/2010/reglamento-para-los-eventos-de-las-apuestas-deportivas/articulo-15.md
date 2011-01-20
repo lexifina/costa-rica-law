@@ -1,0 +1,1 @@
+Artículo 15.—Caducidad. El plazo para hacer efectivos los premios para el cobro de cualquier premio, es de sesenta días naturales contados a partir del día hábil siguiente al registro los resultados de los eventos deportivos incluidos en la jornada.

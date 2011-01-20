@@ -1,0 +1,1 @@
+Artículo 12.—Metodología para los eventos de las apuestas deportivas. En el Reglamento específico de cada juego que sea realizado en combinación con las actividades deportivas nacionales e internacionales, se definirá la metodología que será utilizada en cada uno de ellos.

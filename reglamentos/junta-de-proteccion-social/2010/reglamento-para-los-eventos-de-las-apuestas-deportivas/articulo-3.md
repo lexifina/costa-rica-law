@@ -1,0 +1,1 @@
+Artículo 3º—La Junta Directiva establecerá, por medio de la promulgación de un reglamento, las condiciones específicas que regirán cada juego que sea realizado en combinación con las actividades deportivas nacionales e internacionales.
