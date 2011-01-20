@@ -1,0 +1,1 @@
+Artículo 21.—Debido proceso. Durante el procedimiento se garantizará el debido proceso y se guardará total confidencialidad en su trámite, según el artículo 150 del Código Municipal y el Reglamento Interno de la Municipalidad de Santa Ana.

@@ -1,0 +1,1 @@
+Artículo 14.—De la ampliación de la denuncia. La Comisión de Estudio e Investigación, cuando lo considere necesario podrá dar audiencia a la persona denunciante, por el plazo de tres días hábiles, para que amplíe o aclare los términos de la denuncia y ofrezca nueva prueba.

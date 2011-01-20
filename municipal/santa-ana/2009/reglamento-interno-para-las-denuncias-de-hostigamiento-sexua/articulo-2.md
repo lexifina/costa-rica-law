@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Este Reglamento tiene por objetivo general permitir las denuncias de hostigamiento sexual, garantizar su confidencialidad y sancionar a las personas hostigadoras, cuando existiere causa.

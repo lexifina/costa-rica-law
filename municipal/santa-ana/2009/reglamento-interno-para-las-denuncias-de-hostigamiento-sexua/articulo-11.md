@@ -1,0 +1,1 @@
+Artículo 11.—Excusas y recusaciones. Si alguno de los miembros de la comisión tiene impedimentos, por alguna razón contemplada en el artículo 234 y siguientes de la Ley General de la Administración Pública, deberá abstenerse del conocimiento y prosecución del trámite, o en su defecto recusarse del mismo.

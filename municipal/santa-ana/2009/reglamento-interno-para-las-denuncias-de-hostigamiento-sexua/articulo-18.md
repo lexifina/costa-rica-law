@@ -1,0 +1,1 @@
+Artículo 18.—De la valoración de la prueba. En la valoración de la prueba deberán tomarse en consideración todos los elementos directos o indiciarios aportados, así como todas las circunstancias en que ocurrieron los hechos. No se tomarán en consideración para la valoración de dicha los antecedentes del comportamiento sexual de la persona denunciante.

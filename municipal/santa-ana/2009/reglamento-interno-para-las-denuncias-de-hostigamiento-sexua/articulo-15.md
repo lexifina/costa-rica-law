@@ -1,0 +1,2 @@
+Artículo 15.—Término de emplazamiento al denunciado. Transcurrido el plazo del artículo anterior, la Comisión de Estudio e Investigación, dará traslado de la denuncia a la persona denunciada, concediéndole un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos denunciados y ofrezca prueba de descargo.
+En caso de que el denunciado o denunciada no ejerza la defensa, el proceso continuará, hasta concluirse con la resolución final.

@@ -1,0 +1,1 @@
+Artículo 13.—Traslado de la denuncia. La Contraloría de Servicios o el Departamento de Recursos Humanos trasladará la denuncia dentro de un plazo de cuarenta y ocho horas (48 horas), a la Comisión de Estudio e Investigación de Denuncias sobre Hostigamiento Sexual, para su conocimiento y resolución.

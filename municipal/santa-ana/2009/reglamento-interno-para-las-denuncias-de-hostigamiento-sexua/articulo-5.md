@@ -1,0 +1,5 @@
+Artículo 5º—Sanciones. De acuerdo con el artículo 25 de la Ley, según la gravedad de las faltas se impondrán las siguientes sanciones:
+a) La falta leve será sancionada con una amonestación por escrito o suspensión sin goce de salario, hasta por el plazo máximo establecido, según se dispone el Reglamento Interno de Trabajo.
+b) La falta grave será sancionada con despido sin responsabilidad patronal, de conformidad con lo establecido en el Capítulo de Sanciones Disciplinarias., del Reglamento Autónomo Interno de Trabajo de la Municipalidad del Cantón de Santa Ana, disposiciones del Código Municipal y Código de Trabajo.
+c) A la persona que se le hubiere sancionado por conductas caracterizadas como leves, que reincidan en su comportamiento, se le impondrá la sanción en grado más severo inmediato, de conformidad con el inciso b) anterior.
+d) Cuando las conductas constituyan hechos punibles además de la sanción correspondiente en la Institución, la Administración trasladará el caso a los Tribunales de Justicia para que se proceda de acuerdo con lo establecido en el Código Penal.
