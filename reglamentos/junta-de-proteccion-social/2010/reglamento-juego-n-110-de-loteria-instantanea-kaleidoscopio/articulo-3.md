@@ -1,0 +1,1 @@
+Artículo 3º—Convalidación computarizada. Si el premio es superior a ¢20.000 (veinte mil colones), requiere convalidación computarizada y se pagará únicamente en las Oficinas Centrales de la Junta de Protección Social.
