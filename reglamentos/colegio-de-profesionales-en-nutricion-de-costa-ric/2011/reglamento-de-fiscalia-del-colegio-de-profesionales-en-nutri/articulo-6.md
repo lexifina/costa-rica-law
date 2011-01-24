@@ -1,0 +1,1 @@
+Artículo 6º—La Oficina de Fiscalía está constituida por la Fiscalía y el Fiscal Auxiliar, el personal administrativo idóneo para el cumplimiento de las funciones indicadas por la Ley y sus reglamentos. Está sujeta únicamente a las directrices de la Junta Directiva.
