@@ -1,0 +1,1 @@
+Artículo 51.—El profesional en nutrición deberá ejercer sus funciones procurando el mejor desempeño, buscando siempre alcanzar la excelencia, eficiencia y eficacia en su ejercicio laboral con otros profesionales, con responsabilidad y asertividad.

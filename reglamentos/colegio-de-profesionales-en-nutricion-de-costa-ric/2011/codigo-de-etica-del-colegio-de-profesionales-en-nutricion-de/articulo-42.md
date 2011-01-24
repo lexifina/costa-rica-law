@@ -1,0 +1,1 @@
+Artículo 42.—Deberá respetar las diferencias de criterio profesional con otro colega y propiciar la sana discusión con argumentación científica y actualizada, evitando la desacreditación, difamación y deterioro de la imagen profesional del colega involucrado. No deberá discutirse ningún asunto que compete a un colegiado, si este no está presente.

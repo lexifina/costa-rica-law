@@ -1,0 +1,1 @@
+Artículo 59.—El nutricionista, no revelará o permitirá que se revele, información a empresas aseguradoras, particulares o estatales, sobre la enfermedad del paciente, salvo que medie autorización expresa del paciente, del responsable legal o autoridad judicial.

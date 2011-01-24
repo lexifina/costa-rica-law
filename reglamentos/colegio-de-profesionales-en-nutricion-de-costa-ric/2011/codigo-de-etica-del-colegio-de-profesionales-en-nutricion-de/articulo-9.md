@@ -1,0 +1,1 @@
+Artículo 9º—Sin detrimento de la salud y seguridad de los pacientes, el nutricionista puede ser solidario con las luchas en pro de la dignidad profesional, con respecto a condiciones de trabajo, salario digno y seguridad.

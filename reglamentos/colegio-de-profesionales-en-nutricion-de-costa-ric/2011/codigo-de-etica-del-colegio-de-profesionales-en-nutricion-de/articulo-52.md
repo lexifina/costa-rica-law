@@ -1,0 +1,1 @@
+Artículo 52.—Faltará gravemente a la ética el colegiado que acepte u ofrezca comisiones, dádivas, sobornos u otro tipo de compensación y beneficio a terceros para influenciar en la toma de decisiones o actividades profesionales, según la ley de Administración pública y las Leyes y reglamentos del Colegio.

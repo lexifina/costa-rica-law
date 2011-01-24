@@ -1,0 +1,1 @@
+Artículo 2º—Todo profesional colegiado tendrá los mismos derechos y deberes. Es su obligación conocer este código y no puede aducir como descargo ante algún hecho, el desconocimiento del mismo. El Nutricionista que infrinja el presente Código comete una falta sancionable disciplinariamente.
