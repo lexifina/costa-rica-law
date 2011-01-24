@@ -19,26 +19,28 @@ e.3. Centro de Documentación
 e.4. Centro Nacional de Información Geoambiental
 f. Dirección de Cooperación Internacional
 g. Contraloría Ambiental
-2. Despacho del Viceministro de Ambiente que en adelante se denominará Viceministerio de Ambiente, conformado por las siguientes dependencias:
-a. Dirección Marino Costera.
-b. Dirección de Geología y Minas
-c. Sistema Nacional de Áreas de Conservación
-d. Tribunal Ambiental Administrativo
-e. Parque Marino del Pacífico
-f. Secretaría Técnica Nacional Ambiental
-g. Comisión Nacional para la Gestión de la Biodiversidad
-h. Fondo Nacional de Financiamiento Forestal
-i. Junta Directiva del Parque Recreativo Nacional Playas de Manuel Antonio
-j. Instituto Meteorológico Nacional
-k. Comisión de Ordenamiento y Manejo de la Cuenca del Río Reventazón
-l. Dirección de Gestión de Calidad Ambiental
-m. Dirección de Agua
-n. Dirección de Cambio Climático
-n.1. Oficina Costarricense de Implementación Conjunta.
+(*) 2. Despacho del Viceministro de Ambiente que en adelante se denominará Viceministerio de Ambiente, conformado por las siguientes dependencias:
+a- Dirección Marino Costera.
+b- Sistema Nacional de Áreas de Conservación.
+c- Parque Marino del Pacífico.
+d- Comisión Nacional para la Gestión de la Biodiversidad.
+e- Fondo Nacional de Financiamiento Forestal.
+f- Junta Directiva del Parque Recreativo Nacional Playas de Manuel Antonio.
+g- Comisión de Ordenamiento y Manejo de la Cuenca del Río Reventazón.
+(*)(Así reformado el punto 2) anterior por el artículo 1° del decreto ejecutivo N° 36437 del 24 de enero del 2011)
 3. Despacho del Viceministro de Energía que en adelante se denominará Viceministerio de Energía, conformado por las siguientes dependencias:
-a. Dirección General de Transporte y Comercialización de Combustibles.
-b. Dirección de Energía.
-c. Dirección General de Hidrocarburos.
+a- Dirección de Geología y Minas.
+b- Tribunal Ambiental Administrativo.
+c- Secretaría Técnica Nacional Ambiental.
+d- Instituto Meteorológico Nacional.
+e- Dirección de Gestión de Calidad Ambiental.
+f- Dirección de Aguas.
+g- Dirección de Cambio Climático.
+h- Oficina Costarricense de Implementación Conjunta
+i- Dirección General de Transporte y Comercialización de Combustible.
+j- Dirección General de Hidrocarburos.
+k- Dirección de Energía.
+(*)(Así reformado el punto 3) anterior por el artículo 1° del decreto ejecutivo N° 36437 del 24 de enero del 2011)
 4. Despacho del Viceministro de Telecomunicaciones que en adelante se denominará Viceministerio de Telecomunicaciones, conformado por las siguientes dependencias:
 a. Dirección de Espectro Radioeléctrico.
 b. Dirección de Redes y Sistemas de Telecomunicaciones.

@@ -7,3 +7,4 @@ e. Establecer y aplicar un sistema de evaluación para las instalaciones de auto
 f. Establecer un sistema de evaluación para el equipo de transporte de combustibles.
 g. Atención de las denuncias ambientales que estén relacionadas con derivados de hidrocarburos.
 h. Tramitar el procedimiento administrativo para determinar si procede la recomendación de suspensión o cancelación de la autorización de funcionamiento, tanto de los establecimientos como de los vehículos que suministran combustibles derivados de hidrocarburos, cuando estos cuentan con autorización del MINAET.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)

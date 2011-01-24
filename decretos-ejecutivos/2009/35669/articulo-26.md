@@ -1,1 +1,2 @@
-Artículo 26.—De la Dirección de Geología y Minas. Refiérase al Código de Minería, Ley Nº 6797 del 4 de octubre de 1982 y a la Ley Orgánica del Ministerio del Ambiente, Energía y Telecomunicaciones, No. 7152 del 5 de junio de 1990.
+Artículo 26.—De la conformación y funciones del Sistema Nacional de Áreas de Conservación. Refiérase al Capítulo II, Sección II de la Ley de Biodiversidad Nº 7788, del 30 de abril de 1998 y a su Reglamento, Decreto Ejecutivo Nº 34433-MINAE, del 11 de marzo de 2008.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)

@@ -14,3 +14,4 @@ Reglamento Orgánico del Ministerio de Ambiente y Energía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-06 | la propia norma |
+| 2 | 2011-01-24 | Decreto Ejecutivo 36437 (2011-01-24) |

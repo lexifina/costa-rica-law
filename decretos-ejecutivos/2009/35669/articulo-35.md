@@ -1,1 +1,2 @@
-Artículo 35.—De las funciones y conformación de la Dirección de Gestión de Calidad Ambiental. Refiérase a la Reforma al Reglamento General del Ministerio de Ambiente y Energía, Decreto Ejecutivo Nº 31628-MINAE, del 9 de octubre de 2003.
+Artículo 35.—De la conformación de la Secretaría Técnica Nacional Ambiental. Refiérase a la Ley Orgánica del Ambiente Nº.7554, del 4 de octubre de 1995, artículos 83, 84, 85 al 91 inclusive.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)

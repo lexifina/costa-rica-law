@@ -8,3 +8,4 @@ f. Colaborar con las instancias gubernamentales y no gubernamentales en la búsq
 g. Coordinar la ayuda de expertos para la preparación de documentos técnicos sobre diversos aspectos relacionados con la materia.
 h. Dar seguimiento a la aplicación de los diferentes tratados internacionales ratificados por el país que tengan relación con recursos marinos y marino-costeros.
 i. Los demás que sobre la materia le señale el Ministro de Ambiente, Energía y Telecomunicaciones.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)

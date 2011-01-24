@@ -1,1 +1,2 @@
-Artículo 27.—De la conformación y funciones del Sistema Nacional de Áreas de Conservación. Refiérase a la Sección II de la Ley de Biodiversidad Nº 7788, del 30 de abril de 1998 y a su Reglamento, Decreto Ejecutivo Nº 34433-MINAE, del 11 de marzo de 2008.
+Artículo 27.—De la conformación y funciones del Parque Marino del Pacífico. Refiérase a la Ley Nº 8065 del 27 de enero de 2001 y su reglamento Decreto Ejecutivo Nº 29371 del 7 de marzo de 2001.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)

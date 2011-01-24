@@ -1,1 +1,2 @@
-Artículo 30.—De la conformación de la Secretaría Técnica Nacional Ambiental. Refiérase a la Ley Orgánica del Ambiente Nº.7554, del 4 de octubre de 1995, artículos 83, 84, 85 al 91 inclusive.
+Artículo 30.—De la Junta Directiva del Parque Recreativo Nacional Playas de Manuel Antonio. Refiérase a Ley Nº 5100, del 15 de noviembre de 1972 que Declara Parque Recreativo Nacional Playas de Manuel Antonio (Ahora Parque Nacional Manuel Antonio) y a la Ley de Reforma del inciso a) del artículo 3º de la Ley Nº 5100, y sus reformas y Creación de la Junta Directiva del Parque Recreativo Nacional Playas de Manuel Antonio Nº 8133 del 19 de setiembre de 2001.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)

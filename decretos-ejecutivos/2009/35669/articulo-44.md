@@ -1,3 +1,2 @@
-CAPÍTULO III
-Viceministerio de Energía
-Artículo 44.—Del Viceministerio de Energía. Refiérase a la Ley Nº 8660, Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, en su Artículo 48, del 8 de agosto del 2008.
+Artículo 44.—De las funciones y organización de la Oficina Costarricense de Implementación Conjunta. Refiérase al Decreto Ejecutivo Nº 31676 MINAE, del 16 de enero de 2004.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)
