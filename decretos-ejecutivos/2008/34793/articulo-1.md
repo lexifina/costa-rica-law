@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34793-MINAET
+(Este decreto fue derogado por el artículo 3°, punto 2° del decreto ejecutivo N° 36603 del 24 de enero del 2011, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE, ENERGÍA
 Y TELECOMUNICACIONES
