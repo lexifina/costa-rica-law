@@ -1,0 +1,1 @@
+Artículo 7º—De la preparación de material electoral, el Tribunal Electoral deberá preparar las boletas de votación, para cada puesto que se debe elegir en la Asamblea General, conforme al artículo 23 de la Ley Orgánica 8676. Los colores de las boletas deben ser distintos para cada cargo a elegir y así facilitar su identificación y diferenciación.

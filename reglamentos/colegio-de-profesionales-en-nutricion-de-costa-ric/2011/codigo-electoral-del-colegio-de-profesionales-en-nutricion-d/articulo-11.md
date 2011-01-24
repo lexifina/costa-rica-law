@@ -1,0 +1,1 @@
+Artículo 11.—Impedimento físico. El Profesional en Nutrición que por impedimento físico le dificulte emitir su voto en la forma en que se dispone en el artículo precedente, podrá hacerlo públicamente. En cuyo caso expresará ante la persona que designe el Tribunal Electoral, su decisión, quien acto seguido realizará el voto de acuerdo con la voluntad del elector.

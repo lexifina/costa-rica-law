@@ -1,0 +1,1 @@
+Artículo 20.—Financiamiento del proceso electoral. El Tribunal Electoral, deberá elaborar un presupuesto anual requerido para el cumplimiento del proceso electoral, el cual debe ser presentado ante la Junta Directiva para su aprobación o ajuste y el presupuesto aceptado debe ser incorporado en el presupuesto anual que se somete a aprobación ante la Asamblea General Ordinaria.

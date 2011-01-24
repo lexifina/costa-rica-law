@@ -1,0 +1,1 @@
+Artículo 4º—De la Convocatoria a Asamblea General Ordinaria. Corresponde a la Junta Directiva hacer la convocatoria de la Asamblea General Ordinaria para la elección de los miembros de Junta Directiva, Fiscalía, Tribunal de Honor y Tribunal Electoral que corresponda, de conformidad con el artículo 17, 19 y 21 de la Ley Nº 8676 publicada en La Gaceta Nº 11 el 16 de enero del 2009.

@@ -1,0 +1,1 @@
+Artículo 15.—Procedimiento cuando solo hay una persona candidata al cargo en elección. De presentarse sólo una persona candidata, se deberá proceder con lo estipulado en los artículos 12, 13 y 14 de este código.

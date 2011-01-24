@@ -1,0 +1,1 @@
+Artículo 12.—Distribución de las Boletas. El Tribunal Electoral deberá distribuir las boletas y velar por su buen uso durante la votación, luego de que se cumpla el tiempo de votación, el Tribunal deberá recoger las boletas, para su escrutinio, esto será cargo por cargo.

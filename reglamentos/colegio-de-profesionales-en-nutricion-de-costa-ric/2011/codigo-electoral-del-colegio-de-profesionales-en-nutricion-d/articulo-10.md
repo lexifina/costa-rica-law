@@ -1,0 +1,1 @@
+Artículo 10—De la votación. Cada miembro presente en la Asamblea emitirá su voto marcando con lapicero el espacio destinado en la boleta respectiva. Doblará la papeleta para evitar que se conozca su voto. La elección de los candidatos, se hará mediante voto secreto y personal y cargo por cargo.

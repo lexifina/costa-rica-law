@@ -1,0 +1,1 @@
+Artículo 2º—De los electores. Todos los miembros activos del Colegio que se encuentren al día en sus obligaciones de conformidad con los artículos 6, 8 y 9 de la Ley Orgánica 8676 del 18 de noviembre del 2008, tienen derecho a elegir y ser electos.

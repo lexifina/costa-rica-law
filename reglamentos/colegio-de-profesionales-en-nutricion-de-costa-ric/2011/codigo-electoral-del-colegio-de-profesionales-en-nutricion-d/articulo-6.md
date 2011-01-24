@@ -1,0 +1,3 @@
+CAPÍTULO I
+Proceso electoral de las elecciones
+Artículo 6—Del proceso electoral. Como parte de la Asamblea General el Colegio celebrará un proceso electoral, con el fin de elegir entre los candidatos que se postulen a los diferentes cargos que integrarán la Junta Directiva, la Fiscalía, el Tribunal Electoral, el Tribunal de Honor, así como de cualesquiera otros órganos, cuya elección popular corresponde hacer a la Asamblea General de Colegiados, de acuerdo a la Ley Orgánica 8676. El proceso electoral tendrá las siguientes etapas: preparación del material electoral, postulación de candidaturas a los cargos de elección, proceso de elección, escrutinio de votos, juramentación de miembros electos y custodio del material electoral.

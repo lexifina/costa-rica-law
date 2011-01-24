@@ -1,0 +1,1 @@
+Artículo 21.—Ejecución del proceso electoral. El Tribunal Electoral, deberá elaborar un plan anual para el cumplimiento del proceso electoral, el cual debe incluir un cronograma de actividades, de manera que el Colegio brinde apoyo logístico y operativo en el proceso electoral.

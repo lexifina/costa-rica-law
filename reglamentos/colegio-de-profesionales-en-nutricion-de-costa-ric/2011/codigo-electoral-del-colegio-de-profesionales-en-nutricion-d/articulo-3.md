@@ -1,0 +1,1 @@
+Artículo 3—De la asamblea general y el derecho a participar. Corresponde a la asamblea general ordinaria como órgano máximo del Colegio elegir a los miembros de Junta Directiva, Tribunal de Honor y Tribunal Electoral. Para participar en la Asamblea General todo colegiado deberá esta al día en sus obligaciones con el Colegio.
