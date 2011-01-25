@@ -1,1 +1,0 @@
-Artículo 5º—Créase la Oficina de Coordinación del "Programa Nacional de Humedales", que tendrá a su cargo la ejecución de los acuerdos y lineamientos que emanen del Consejo Nacional Asesor sobre Humedales, así como los demás cometidos que le encomiende este Consejo, en coordinación con el Sistema Nacional de Areas de Conservación, otras entidades públicas y privadas.
