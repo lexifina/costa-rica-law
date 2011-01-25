@@ -13,8 +13,7 @@ a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N
 b) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35346 del 18 de mayo de 2009)
 c. (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 d) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 35786 del 22 de enero de 2010)
-e) Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior.
-(Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004 y posteriormente se volvió a reformar el inciso anterior por el artículo 1° del decreto ejecutivo N° 34416 del 11 de febrero de 2008).
+e) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36485 del 25 de enero del 2011)
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008 y posteriormente se vuelve a derogar por el artículo 3°, punto 1° del decreto ejecutivo N° 36603 del 24 de enero del 2011)
 g) (Derogado por el artículo 3° del decreto ejecutivo N° 35582 del 1 de octubre de 2009)
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
@@ -30,7 +29,10 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35582 del 1 de octubre de 2009, se nombra como miembro propietario de esta Comisión al Señor Hugo Lázaro Estrada, representante de la Asociación Mesa Nacional Indígena)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35786 del 22 de enero 2010, se nombra como miembro propietario de esta Comisón al Señor Esteban Cerdas Quirós, representante de la Ministra de Salud)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36090 del 1º de junio 2010, se nombra como miembro propietario de esta Comisón a la Señora Ana Lorena Guevara Fernández, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36485 del 25 de enero del 2011, se nombra como miembro propietario de esta Comisión a la Señora Alejandra Aguilar Schramm, representante del Ministerio de Comercio Exterior)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36603 del 24 de enero del 2011, se nombra como miembro propietario de esta Comisón al señor Enrique Fallas Segura, representante de la Asociación Mesa Nacional Campesina)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36694 del 29 de junio del 2011, se nombra como miembro propietario de esta Camisón al señor Walter Quirós Ortega, representante de la Ministra de Agricultura y Ganadería)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36704 del 23 de junio del 2011, se nombra como miembro propietario de esta Camisón a la señora Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura)
 2. Miembros suplentes:
 a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
@@ -40,7 +42,7 @@ e) (Derogadopor el artículo 3° del decreto ejecutivo N° 35577 del 1 de octubr
 f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutivo N° 34793 del 1° de setiembre de 2008)
 g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008, posteriormente se volvio a derogar por el artículo 3 del decreto ejecutivo N° 35582 del 1° de octubre de 2009)).
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
-i) (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009, y posteriormente se vuelve a derogar por el artículo 3°, punto 1° del decreto ejecutivo N° 36603 del 24 de enero del 2011)
+i) (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009 y posteriormente se vuelve a derogar por el artículo 3°, punto 1° del decreto ejecutivo N° 36603 del 24 de enero del 2011)
 j. Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
 (Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo N° 34643 del 12 de mayo del 2008)
 k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8 de enero de 2010)
@@ -57,3 +59,4 @@ k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35789 del 8 de enero de 2010, se nombra como miembro suplente de esta Comisión a la Señora Grace García Muñoz, representante de la Federación Costarricense para la Conservación del Ambiente)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010, se nombra como miembro suplente de esta Comisión al Señor Gustavo Induni Alfaro, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36603 del 24 de enero del 2011, se nombra como miembro suplente de esta Comisón a la señora Yamileth Solís Lezcano, representante de la Asociación Mesa Nacional Campesina)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36704 del 23 de junio del 2011, se nombra como miembros suplentes de esta Comisión a la señora Alicia Daniela Herrera Li, representante del Ministerio de Comercio Exterior y al señor Alvaro Otárola Fallas, representante del Instituto Costarricense de Pesca y Acuicultura)
