@@ -14,3 +14,4 @@ Creación de la Comisión Fílmica de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-24 | la propia norma |
+| 2 | 2011-01-25 | Decreto Ejecutivo 36578 (2011-01-25) |
