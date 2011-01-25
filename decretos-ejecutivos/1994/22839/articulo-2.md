@@ -1,1 +1,0 @@
-Artículo 2°— La Comisión deberá responder a las necesidades de eficiencia en la investigación, conservación, fomento y desarrollo de los humedales del país, para lo cual podrá crear las subcomisiones necesarias.
