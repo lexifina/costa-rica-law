@@ -14,3 +14,4 @@ Procedimiento para la Venta de los Bienes Adjudicados en Pago de Obligaciones o 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-28 | la propia norma |
+| 2 | 2011-01-26 | Reglamento 11678 (2011-01-26) |

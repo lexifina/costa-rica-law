@@ -2,7 +2,8 @@
 Producto: Directrices de readquisición
 Propósito: Establecer las políticas generales para la de readquisición bienes muebles e inmuebles.
 Fecha: 6 de agosto de 1998.
-5.1 Inicio: Venta por Readquisición: se podrá efectuar únicamente cuando el monto de las acreencias (total de la deuda) sea mayor al monto del avalúo del bien (según Dictamen de la Dirección de Asuntos Jurídicos).
+5.1 Inicio: Venta por Readquisición: La readquisición de un bien mueble o inmueble, que haga un exdeudor o expropietario, se acepte, en la medida en que se cancele al Banco todo lo adeudado, intereses, costas personales y procesales y el interesado presente certificaciones de que se encuentra al día en sus restantes operaciones directas o indirectas, tanto con la institución, así como con los otros intermediarios financieros fiscalizados por la SUGEF.
+(Así reformado el punto anterior mediante sesión N° 11678 y publicado en La Gaceta N° 30 del 11 de febrero de 2011)
 5.2 Proceso: Este proceso se llevará a cabo de la siguiente manera:
 1. El ex deudor lo debe solicitar por escrito,
 2. Cancelar de contado el total de la deuda y los gastos ocasionados a la fecha de la cancelación.
