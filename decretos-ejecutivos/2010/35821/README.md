@@ -18,3 +18,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 3 | 2010-11-05 | Decreto Ejecutivo 36277 (2010-11-05) |
 | 4 | 2010-11-16 | Decreto Ejecutivo 36337 (2010-11-16) |
 | 5 | 2011-01-18 | Decreto Ejecutivo 36430 (2011-01-18) |
+| 6 | 2011-01-26 | Decreto Ejecutivo 36507 (2011-01-26) |
