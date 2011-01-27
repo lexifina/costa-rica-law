@@ -1,0 +1,10 @@
+CAPÍTULO II
+Objetivo, definiciones y manifestaciones
+Artículo 2º—Objetivos del Reglamento: Los objetivos de la Política contra el Hostigamiento Sexual en la Defensoría de los Habitantes son:
+- Crear un mecanismo eficaz de prevención y prohibición del hostigamiento sexual en el ámbito institucional así como un procedimiento interno que lo sancione.
+- Promover las condiciones necesarias que garanticen el respeto entre los funcionarios y funcionarias de la institución, independientemente de su posición jerárquica; y de estas con terceras personas que tengan relación con la institución, como usuarias de los servicios que presta la entidad, estudiantes, pasantes, meritorios, practicantes, clientes, proveedoras, con el fin de asegurar que la institución sea un espacio libre de hostigamiento sexual.
+- Generar ambientes de trabajo libres de hostigamiento sexual que potencien la expresión de las capacidades individuales de las personas en su ámbito profesional, laboral, de manera tal que se creen los espacios para su plena realización personal y laboral.
+- Evitar cualquier forma de manifestación de hostigamiento sexual, que perjudique las condiciones, el desempeño y el cumplimiento del trabajo y el estado de bienestar general de las personas.
+- Dar a conocer dentro del ámbito institucional que el hostigamiento sexual constituye una conducta indeseable por quien la recibe, constituyéndose en una forma de violencia y en una práctica discriminatoria por razón de sexo o por otra condición social, que coloca a las personas en una situación de vulnerabilidad en las relaciones laborales.
+- Establecer una política a nivel institucional para la prevención, investigación y sanción dicha práctica.
+- Establecer a nivel normativo un procedimiento interno, adecuado y efectivo, que garantice el derecho de la persona víctima de hostigamiento sexual a denunciar, así como la tramitación de la investigación que garantice el debido proceso y los principios especiales, para que en el caso que se determine la culpabilidad de la persona denunciada, se pueda llegar a la imposición de la sanción y su efectivo cumplimiento.

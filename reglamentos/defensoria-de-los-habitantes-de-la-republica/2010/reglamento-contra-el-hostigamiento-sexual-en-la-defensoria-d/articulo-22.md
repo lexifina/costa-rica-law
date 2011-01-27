@@ -1,0 +1,1 @@
+Artículo 22.—De la vigencia de la normativa interna. La normativa interna de hostigamiento sexual entrará a regir a partir de su publicación en el Diario Oficial La Gaceta, y se hará del conocimiento de todas las personas trabajadoras de la Defensoría de los Habitantes a través de los mecanismos señalados en el artículo 5.

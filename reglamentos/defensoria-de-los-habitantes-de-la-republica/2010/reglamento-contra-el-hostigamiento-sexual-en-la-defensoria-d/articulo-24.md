@@ -1,0 +1,1 @@
+Artículo 24.—De las modificaciones. Las modificaciones serán dispuestas por la persona Jerarca de la Defensoría de los Habitantes de la República, para tal efecto deberá consultar a la Defensoría de la Mujer y la Oficina de Recursos Humanos y deberán ser objeto de publicidad, a través de los medios pertinentes.
