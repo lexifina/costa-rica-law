@@ -1,2 +1,0 @@
-Artículo 32.—Modifíquese el artículo 34 del Reglamento a la Ley de Conservación de la Vida Silvestre, Decreto Ejecutivo Nº 32633 del 10 de marzo del 2005, en lo referente “Para la caza menor” para que se lea de la siguiente manera:
-“Las armas que se podrán utilizar para la caza menor son los rifles de calibre 22 y bala U, con una presión mínima de salida en la boca de 80 libras, y otros utensilios tales como: las jaulas cogedoras, las trampas. Se exceptúa de esta norma las armas impulsadas por aire, las tigrilleras y punzones o chusos.”

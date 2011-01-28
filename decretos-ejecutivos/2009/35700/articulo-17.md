@@ -1,2 +1,0 @@
-Artículo 17.—Tratándose de fincas privadas, los cazadores deberán obtener y portar el correspondiente permiso del propietario registral y fotocopia de la cédula del mismo, de conformidad con lo establecido en el artículo 32 de la Ley de Conservación de la Vida Silvestre y presentarlo en caso de requerirlo la autoridad competente. Dicho permiso deberá estar autenticado por un abogado.
-Portar la respectiva licencia no autoriza el ingreso a las fincas privadas y / o terrenos públicos.
