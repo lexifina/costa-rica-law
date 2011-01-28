@@ -1,0 +1,1 @@
+Artículo 13—Marco Regulatorio. El marco regulatorio estará compuesto por los criterios necesarios para la incorporación de una Incubadora o Aceleradora, por los incentivos para la creación y el fortalecimiento, por los incentivos canalizados por entes los entes autorizados.

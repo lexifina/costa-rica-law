@@ -1,0 +1,6 @@
+Artículo 14—Criterios para la Incorporación a la Red Nacional de Incubación o Aceleración. Los criterios para la incorporación al Sistema son:
+1. Atestados: Presentación de los atestados de la persona u organización interesada en ser parte de la Red Nacional de Incubación o Aceleración.
+2. Tipo de Emprendimiento: Debe de indicar el tipo de emprendimiento al cual se le estará dando cabida en la Red Nacional de Incubación o Aceleración, con el fin de documentar y monitorear las incubadoras existentes en el país.
+3. Ubicación Geográfica: En la cual se localizará la incubadora, para poder determinar el impacto empresarial que se provocará en la zona Intra o Extramuros.
+4. Figura Jurídica formalmente establecida: La persona u organización a incorporarse dentro de la Red Nacional de Incubación o Aceleración estará formalmente inscrita en el registro correspondiente, para evitar la informalidad de quien esté a cargo de las incubadoras.
+5. Gestores de Innovación: deberá contar como parte del equipo de la institución con un gestor de innovación debidamente reconocido por el Ministerio de Ciencia y Tecnología (MICIT) de conformidad con las regulaciones que esta institución haya emitido al respecto.
