@@ -1,0 +1,1 @@
+Artículo 22.—En caso de que sea necesario, se aplicarán con carácter supletorio, las disposiciones afines contenidas en el Código Municipal, Código de Trabajo, la Convención Colectiva de Trabajo, y normas supletorias afines.

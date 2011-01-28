@@ -1,0 +1,1 @@
+Artículo 20.—Todos los contratos suscritos entre la Municipalidad y los becarios, estarán bajo la custodia del Departamento de Recursos Humanos, debiendo confeccionar un expediente, con la documentación que corresponde al trámite de cada beca, el cual debe ser agregado al expediente de personal.

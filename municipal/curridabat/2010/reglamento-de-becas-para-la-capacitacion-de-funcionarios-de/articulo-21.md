@@ -1,0 +1,1 @@
+Artículo 21.—Cualquier proyecto de reforma de este Reglamento, deberá ser presentado por el señor Alcalde, con base en una propuesta elaborada por el Departamento de Recursos Humanos, a consideración y aprobación del Concejo Municipal.

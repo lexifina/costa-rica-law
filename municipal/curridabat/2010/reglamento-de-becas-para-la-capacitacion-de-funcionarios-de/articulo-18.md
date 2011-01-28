@@ -1,0 +1,1 @@
+Artículo 18.—Si la solicitud se ajusta a lo dispuesto por el presente reglamento, el Departamento de Recursos Humanos lo comunicará al Alcalde Municipal para su respectivo conocimiento y aprobación en caso de que así lo considere conveniente.

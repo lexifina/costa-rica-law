@@ -1,0 +1,1 @@
+Artículo 5º—Las becas se otorgarán si corresponde a un interés institucional y siempre que lo permitan las condiciones, tanto del Departamento al que pertenece el funcionario, como de la misma Municipalidad, de manera que no se afecte el desempeño institucional.

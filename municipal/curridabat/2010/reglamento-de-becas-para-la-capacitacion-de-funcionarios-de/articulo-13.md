@@ -1,0 +1,1 @@
+Artículo 13.—En caso de renuncia, despido sin responsabilidad patronal, el beneficiario autorizará expresamente a la municipalidad para que en estos casos, se deduzca de la liquidación que le corresponda, todas las sumas desembolsadas por cualquier concepto, incluyendo el salario si hubiere gozado de este beneficio.
