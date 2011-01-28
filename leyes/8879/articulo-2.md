@@ -1,0 +1,4 @@
+Artículo 2
+Del ámbito de aplicación
+1. El ámbito de aplicación del presente Convenio será el área geográfica comprendida en la cuenca del Mar Caribe, sobre la que los Estados Miembros y Miembros Asociados de la AEC ejercen soberanía, o derechos soberanos o jurisdicción, de conformidad a lo que se establece en el artículo 5 de este Convenio.
+(Nota de Sinalevi: Mediante ley N° 8879 del 1° de noviembre de 2010 “Protocolo al Convenio para el Establecimiento de la Zona de Turismo Sustentable del Caribe (ZTSC)”, se indica reformar este numeral de la siguiente manera : “…Numerar la previsión existente del Artículo 2 del Convenio, como párrafo 1 e insertar un nuevo párrafo 2 para que lea como sigue: “2. Para los propósitos de este Convenio “la cuenca del Mar Caribe” significa “la Región del Caribe”)
