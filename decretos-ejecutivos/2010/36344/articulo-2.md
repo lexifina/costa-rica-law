@@ -1,0 +1,1 @@
+Artículo 2º—Apoyo. Se insta a las dependencias del Sector Público y a las organizaciones del Sector Privado para que apoyen la labor del Consejo Consultivo Nacional de Responsabilidad Social, en la medida de sus posibilidades y dentro del marco legal respectivo.
