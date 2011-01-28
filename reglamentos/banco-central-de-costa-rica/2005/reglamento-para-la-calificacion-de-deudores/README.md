@@ -38,3 +38,4 @@ Reglamento para la Calificación de Deudores
 | 23 | 2010-05-13 | Reglamento 851 (2010-05-13) |
 | 24 | 2010-05-21 | Reglamento 853 (2010-05-21) |
 | 25 | 2010-12-03 | Reglamento 893 (2010-12-03) |
+| 26 | 2011-01-28 | Reglamento 899 (2011-01-28) |
