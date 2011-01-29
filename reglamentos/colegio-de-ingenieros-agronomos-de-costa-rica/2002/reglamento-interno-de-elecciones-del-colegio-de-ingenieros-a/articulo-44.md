@@ -1,2 +1,0 @@
-Artículo 44.—Si para las elecciones correspondientes se inscribieran o postularan uno o más miembros afiliados en dos o más de los puestos de junta directiva en elección y dos o más de ellos resultaran ganadores, se tendrá por triunfador al afiliado que haya obtenido mayor número de votos en su respectivo puesto. En el o los otros puestos, el ganador será el miembro ordinario que obtuvo más votos después del afiliado.
-(Así reformado en sesión N° 132 del 19 de marzo de 2007)

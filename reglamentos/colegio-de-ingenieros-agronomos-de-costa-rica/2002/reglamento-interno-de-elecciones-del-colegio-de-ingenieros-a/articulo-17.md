@@ -1,1 +1,0 @@
-Artículo 17.—El acta deberá ser revisada, aprobada y firmada por el presidente y el secretario del Tribunal en la sesión inmediata siguiente. El desacuerdo de algún miembro con el acta o parte de ella, deberá consignarse haciendo la indicación pertinente, la cual deberá firmar en conjunto con los miembros autorizados.
