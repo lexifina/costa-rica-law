@@ -1,1 +1,0 @@
-Artículo 3º—Deróguese los artículos 40 y 45 del Reglamento Interno de Elecciones aprobado por la asamblea general en sesión ordinaria Nº 118 celebrada el 26 de enero del 2002 y publicado en La Gaceta Nº 24 del lunes 4 de febrero del 2002.
