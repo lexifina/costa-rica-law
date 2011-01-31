@@ -17,3 +17,4 @@ Reglamento de Sesiones y Comisiones Municipales
 | 2 | 2002-06-04 | Reglamento municipal 0 (2002-06-04) |
 | 3 | 2002-06-17 | Reglamento municipal 0 (2002-06-17) |
 | 4 | 2002-06-17 | Ley 8 |
+| 5 | 2011-01-31 | Reglamento municipal 5 (2011-01-31) |
