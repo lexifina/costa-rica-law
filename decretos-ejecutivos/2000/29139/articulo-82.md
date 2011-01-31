@@ -1,1 +1,0 @@
-Artículo 82.—Además de lo señalado en el artículo anterior el expediente personal deberá contener: una fotografía del colaborador, sus calidades personales, dirección del domicilio y comprobantes de sus estudios académicos realizados. Esta información deberá mantenerla al día el interesado cada vez que ocurran cambios que así lo requieran.

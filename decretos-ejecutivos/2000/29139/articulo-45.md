@@ -1,1 +1,0 @@
-Artículo 45.—Las ausencias justificadas por enfermedad, que no estén amparadas a una incapacidad médica, por solicitud del colaborador podrán ser descontadas del período de vacaciones que tenga en ese momento disponible, siendo potestad del superior inmediato autorizarlo.
