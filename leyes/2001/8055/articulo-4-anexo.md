@@ -478,7 +478,18 @@ Sección XXI Objetos de arte o colección y antigüedades
 capítulo 97 | Objetos de arte o colección y antigüedades
 97.01 – 97.05 | Las mercancías de esta partida serán originarias del país donde han sido obtenidas o producidas; o un cambio a la partida 97.01 a 97.05 desde cualquier otra partida.
 97.06 | Las mercancías de esta partida serán originarias cuando hayan permanecido más de cien años en cualquiera de las Partes.
-(Nota de Sinalevi: Mediante decreto ejecutivo N° 36347 del 25 de noviembre de 2010, se Publica la Decisión N° 11 del 04/12/2006, del Tratado de Libre Comercio entre Centroamérica y Chile: Reglas de origen específicas entre Chile y Costa Rica adecuaciones derivadas Tercera Enmienda Sistema Armonizado de Designación y Codificación de Mercancías (SA), la cual viene a modificar la sección C "Reglas de origen específicas entre Chile y Costa Rica". No obstante; por información suministrada por el Ministerio de Comercio Exterior, dicha sección nunca fue publicada en el Diario Oficial La Gaceta, por lo que la reforma a la misma se transcribe a continuación:
+(Nota de Sinalevi. Mediante decreto ejecutivo N° 36349 del 25 de noviembre de 2010, se Publica la Decisión N° 15 del 05/12/2006, del Tratado de Libre Comercio entre Centroamérica y Chile: Reglas de origen específicas entre Chile y Costa Rica adecuaciones derivadas Tercera Enmienda Sistema Armonizado de Designación y Codificación de Mercancías (SA), la cual viene a modificar la sección B) "Reglas de origen específicas entre Chile, Costa Rica y El Salvador". Si bien dicha sección existe la misma hace referencia a la Reglas de origen específicas aplicables entre Chile y Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, y la que se reforme es solo para las reglas de origen entre Chile, Costa Rica y El Salvador. Dado lo anterior y mediante información suministrada por el Ministerio de Comercio Exterior, dicha sección nunca fue publicada en el Diario Oficial La Gaceta, por lo que la reforma a la misma se transcribe a continuación:)
 [imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 36347 del 25 de noviembre de 2010, se Publica la Decisión N° 11 del 04/12/2006, del Tratado de Libre Comercio entre Centroamérica y Chile: Reglas de origen específicas entre Chile y Costa Rica adecuaciones derivadas Tercera Enmienda Sistema Armonizado de Designación y Codificación de Mercancías (SA), la cual viene a modificar la sección C "Reglas de origen específicas entre Chile y Costa Rica". No obstante; por información suministrada por el Ministerio de Comercio Exterior, dicha sección nunca fue publicada en el Diario Oficial La Gaceta, por lo que la reforma a la misma se transcribe a continuación:
 [imagen]
 [imagen]
