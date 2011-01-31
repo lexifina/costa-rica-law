@@ -15,6 +15,7 @@ capítulo 02 | Carne y despojos comestibles
 capítulo 03 | Pescados y crustáceos, moluscos y demás invertebrados acuáticos
 03.01 – 03.04 | Un cambio a la partida 03.01 a 03.04 desde cualquier otro capítulo, permitiéndose la importación de alevines.
 03.06 – 03.07 | Los productos de esta partida serán originarios del país de captura del crustáceo, molusco y demás invertebrados acuáticos o desde la crianza de larvas; o un cambio a la partida 03.06 a 03.07 desde cualquier otro capítulo, permitiéndose la importación de larvas y alevines.
+| |
 capítulo 04 | Leche y productos lácteos; huevos de ave; miel natural; productos comestibles de origen animal, no expresados ni comprendidos en otra parte
 04.01 – 04.02 | Los productos de esta partida serán originarios del país donde se obtiene la leche en estado natural o sin procesar; o un cambio a la partida 04.01 a 04.02, desde cualquier otro capítulo, excepto de la subpartida 1901.90.
 04.07 - 04.10 | Los productos de esta partida serán originarios del país donde se obtienen los huevos, miel en estado natural o sin procesar y otros productos de los animales no expresados ni comprendidos en otra parte; o un cambio a la partida 04.07 a 04.10 desde cualquier otro capítulo.
@@ -477,3 +478,7 @@ Sección XXI Objetos de arte o colección y antigüedades
 capítulo 97 | Objetos de arte o colección y antigüedades
 97.01 – 97.05 | Las mercancías de esta partida serán originarias del país donde han sido obtenidas o producidas; o un cambio a la partida 97.01 a 97.05 desde cualquier otra partida.
 97.06 | Las mercancías de esta partida serán originarias cuando hayan permanecido más de cien años en cualquiera de las Partes.
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 36347 del 25 de noviembre de 2010, se Publica la Decisión N° 11 del 04/12/2006, del Tratado de Libre Comercio entre Centroamérica y Chile: Reglas de origen específicas entre Chile y Costa Rica adecuaciones derivadas Tercera Enmienda Sistema Armonizado de Designación y Codificación de Mercancías (SA), la cual viene a modificar la sección C "Reglas de origen específicas entre Chile y Costa Rica". No obstante; por información suministrada por el Ministerio de Comercio Exterior, dicha sección nunca fue publicada en el Diario Oficial La Gaceta, por lo que la reforma a la misma se transcribe a continuación:
+[imagen]
+[imagen]
+[imagen]
