@@ -1,0 +1,1 @@
+Artículo 186.—El Departamento de Inteligencia contará con el Centro de Información y Análisis, el cual se encargará de archivar, custodiar y resguardar los expedientes clasificados de las investigaciones y contará con el registro informático. También administrará la red informática de la Dirección y procurará crear enlaces con otras fuentes de información.

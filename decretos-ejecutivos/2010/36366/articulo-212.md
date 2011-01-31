@@ -1,0 +1,1 @@
+Artículo 212.—Cuando la Reserva de las Fuerzas de Policía no se encuentre convocada, procurará la capacitación policial de sus miembros y prestara colaboración a la Dirección de Programas Preventivos Policiales en materia de prevención del delito.

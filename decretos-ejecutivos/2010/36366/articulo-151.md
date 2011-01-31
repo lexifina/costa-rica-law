@@ -1,0 +1,1 @@
+Artículo 151.—La actuación de las unidades especializadas estará circunscrita únicamente a las atribuciones, deberes, competencia y potestades que le señale el ordenamiento, en especial, la Ley General de Policía y la Ley de Armas y Explosivos y sus reformas. Tendrán competencia en todo el territorio nacional.

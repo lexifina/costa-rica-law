@@ -1,0 +1,1 @@
+Artículo 101.—La prevención del delito se llevará a cabo, mediante la actuación de la Fuerza Pública y el desarrollo de estrategias para la colaboración, capacitación y concientización de los habitantes.

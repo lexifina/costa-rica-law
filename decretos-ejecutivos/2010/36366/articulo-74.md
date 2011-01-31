@@ -1,0 +1,1 @@
+Artículo 74.—Además, la Dirección de Proveeduría Institucional contará con una Comisión de Recomendación y Adjudicación, con carácter de apoyo, que se integrará y funcionará, de conformidad con lo preceptuado en el Reglamento para el Funcionamiento de las Proveedurías Institucionales de los Ministerios del Gobierno, emitido por el Ministerio de Hacienda.

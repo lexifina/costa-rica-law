@@ -1,0 +1,1 @@
+Artículo 104.—La Dirección General de la Fuerza Pública recomendará al (a la) Ministro (a), mediante un estudio técnico, las regiones en que se dividirá territorialmente la Fuerza Pública. Para su implementación contará con el apoyo de las instancias policiales y técnicas del Ministerio.

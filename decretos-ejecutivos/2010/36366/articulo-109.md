@@ -1,0 +1,1 @@
+Artículo 109.—Las direcciones podrán proponer al (a la) Ministro (a) el nombramiento permanente o temporal de consultores (as), asesores (as) o de instructores (as), para que de manera voluntaria, colaboren con la Fuerza Pública en aquellos aspectos propios de la función policial.

@@ -1,0 +1,1 @@
+Artículo 153.—La Unidad Especial de Apoyo, por las características de sus funciones, dependerá técnicamente del Director (a) General de la Fuerza Pública y administrativamente de la Dirección de Unidades Especializadas.

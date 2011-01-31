@@ -1,0 +1,1 @@
+Artículo 110.—Estos (as) consultores (as) o instructores (as) deberán ser de reconocida solvencia moral, no serán remunerados por el servicio que presten ni ostentarán investidura pública alguna. Su elección y desempeño se regirá por las normas establecidas en el Reglamento de Servicio de los cuerpos policiales adscritos al Ministerio de Seguridad Pública.

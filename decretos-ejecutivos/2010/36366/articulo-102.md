@@ -1,0 +1,1 @@
+Artículo 102.—Se entenderá por Programas Policiales Preventivos, la estrategia de prevención del delito desarrollada por la Fuerza Pública, en coordinación con los grupos de la sociedad civil, organizados y capacitados para este propósito.

@@ -1,0 +1,1 @@
+Artículo 121.—La labor de los (las) Subdirectores (as) Generales de la Fuerza Pública, se desarrollará las 24 horas del día, durante todos los días del año. Será ejercida por los (las) funcionarios (as) que designe el (la) Ministro (a) de Seguridad Pública, previo cumplimiento de los requisitos establecidos para el puesto.

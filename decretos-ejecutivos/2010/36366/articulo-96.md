@@ -1,0 +1,1 @@
+Artículo 96.—Las faltas disciplinarias o irregularidades de los (las) servidores (as) que se desempeñen en el Departamento Disciplinario Legal, en cuanto a su instrucción y recomendación, serán tramitadas por funcionarios (as) de la Asesoría Jurídica del Ministerio de Seguridad Pública, según sea constituido el Órgano Director de Procedimientos para tales efectos.

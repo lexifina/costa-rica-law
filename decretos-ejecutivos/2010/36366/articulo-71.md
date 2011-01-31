@@ -1,0 +1,5 @@
+Artículo 71.—El Departamento de Cobros Administrativos tendrá las siguientes funciones:
+1) Tramitar los procesos de lesividad y de nulidad absoluta, evidente y manifiesta de conformidad con el ordenamiento jurídico.
+2) En relación con el personal, gestionar los procesos de cobro o recuperación de sumas giradas de más, enriquecimiento sin causa, preavisos, incumplimiento de contratos, incluyendo los convenios de estudio, incapacidades no deducidas, o cualquier otro concepto de naturaleza pecuniaria que implique un perjuicio o un disvalor económico para la Administración, para lo cual se constituirá en órgano Director del respectivo procedimiento.
+3) Tramitar los procesos de carácter indemnizatorio a favor de la administración por concepto de daños y perjuicios, incumplimiento de contratos, responsabilidad extracontractual, enriquecimiento sin causa o cualquiera otro concepto de naturaleza pecuniaria que implique un perjuicio o un disvalor económico para el Estado relacionados con los bienes y/o derechos del Ministerio.
+4) Cualquier otra propia de su competencia.

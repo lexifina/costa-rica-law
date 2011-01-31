@@ -1,0 +1,1 @@
+Artículo 100.—Se entiende por prevención del delito, el conjunto de estrategias, tácticas y acciones que realiza el Ministerio, con la finalidad de conservar el orden público, la tranquilidad de los habitantes, el libre disfrute de las libertades públicas y de disminuir el riesgo de los habitantes a ser víctimas de alguna conducta delictiva.

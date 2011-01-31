@@ -1,0 +1,1 @@
+Artículo 203.—La Escuela Nacional de Policía podrá contar con sedes regionales, con la finalidad de cumplir con sus objetivos y fortalecer el proceso de expansión y regionalización de dichas actividades. Sus instalaciones serán de uso exclusivo para las actividades docentes oficiales.

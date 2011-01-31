@@ -1,0 +1,6 @@
+Artículo 47.—La Sección de Incentivos y Beneficios tendrá las siguientes funciones:
+1) Efectuar los estudios y dar trámite a los incentivos y beneficios para los (las) funcionarios (as) del Ministerio según su viabilidad jurídica y material; así como el seguimiento del cumplimiento de los requisitos establecidos.
+2) Verificar el efectivo cumplimiento de la normativa legal que regula la materia de incentivos.
+3) Mantener una base de datos actualizada sobre los (las) funcionarios (as) que disfruten de los incentivos, vacaciones y anualidades.
+4) Dar trámite y seguimiento a las gestiones relacionadas con vacaciones y horas extras.
+5) Atender cualquier otra actividad propia de su competencia.
