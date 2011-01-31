@@ -1,1 +1,0 @@
-Artículo 82.—División material de propiedades. La división material de propiedad entre condueños pagará como honorarios de notariado la mitad de la tarifa general conforme con el valor real de los lotes, con un mínimo igual al establecido en el artículo 61 por cada lote.

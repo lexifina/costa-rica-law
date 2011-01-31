@@ -1,1 +1,0 @@
-Artículo 27.—Informaciones posesorias y localizaciones de derecho pro indiviso. En las informaciones posesorias y localización de derechos indivisos los honorarios serán de un cincuenta por ciento (50%) de la tarifa del artículo 18, sin que puedan ser inferiores a cincuenta mil colones.

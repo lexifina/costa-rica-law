@@ -1,2 +1,0 @@
-Artículo 7º—Contrato cuota-litis. El profesional podrá cobrar una suma por cuota-litis en atención de asuntos judiciales, sólo si existe convenio escrito que lo fije, de acuerdo a los parámetros establecidos en el Código Procesal Civil y el Código de Deberes Jurídicos Morales y Éticos del Profesional en Derecho.
-En todo proceso, si el profesional recibe a título de costas personales suma alguna, ésta será rebajada en su totalidad de los honorarios o cuota litis que deba cubrirle el cliente, por cualquier concepto.

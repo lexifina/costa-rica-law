@@ -1,1 +1,0 @@
-Artículo 94.—Recepción de prueba. Por la recepción de prueba o con ocasión de ella, ya sea por comisión de los Tribunales de Justicia o por otros motivos, se pagarán honorarios por la mitad de la tarifa regulada en el artículo 69, por cada plana o fracción de plana.

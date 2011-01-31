@@ -1,1 +1,0 @@
-Artículo 75.—Adjudicación de lote por derecho indiviso. La adjudicación de lote por derecho indiviso causará honorarios notariales correspondientes a la mitad de la tarifa general conforme con la estimación del lote, con un mínimo igual al indicado en el artículo 69 por cada lote.

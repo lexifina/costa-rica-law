@@ -1,1 +1,0 @@
-Artículo 15.—Recurso de Hábeas Corpus. Por el estudio, el análisis, la redacción y tramitación de un recurso de hábeas corpus, el profesional devengará un honorario no menor de setenta y cinco mil colones.

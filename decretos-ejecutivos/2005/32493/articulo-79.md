@@ -1,1 +1,0 @@
-Artículo 79.—Certificaciones. Por la confección de certificaciones notariales cada una generará honorarios de diez mil colones por certificación. Tratándose de certificaciones notariales protocolizadas cada una generará honorarios de veinticinco mil colones por certificación.

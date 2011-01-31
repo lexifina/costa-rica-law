@@ -1,1 +1,0 @@
-Artículo 69.—Honorarios mínimos. Toda actuación notarial que implique del uso del protocolo devengará honorarios no menores a veinticinco mil colones, salvo que otra suma se estableciere en el presente Arancel o normativa aplicable.

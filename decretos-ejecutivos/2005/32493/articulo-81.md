@@ -1,1 +1,0 @@
-Artículo 81.—Cuantía inestimable o indeterminada. Hecha la salvedad de los casos indicados en otras partes del presente capítulo, los actos o contratos de cuantía inestimable o indeterminada cubrirán un mínimo igual al establecido en el artículo 69 por honorarios notariales.

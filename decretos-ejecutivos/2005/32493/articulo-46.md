@@ -1,1 +1,0 @@
-Artículo 46.—En la atención de cualquier asunto penal, para poder cobrar sumas superiores al monto de los mínimos anteriormente establecidos, se deberá suscribir con el cliente un contrato que fije detalladamente el monto y la forma de pago de los honorarios.

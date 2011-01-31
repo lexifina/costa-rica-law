@@ -1,1 +1,0 @@
-Artículo 89.—Modificación de datos diversos en inscripciones. La modificación o corrección de datos diversos en inscripciones tales como situación, linderos, naturaleza, mejoras, número de cédula o de pasaporte, calidades, estado civil y otros casos similares, pagarán un mínimo igual al indicado en el artículo 69.

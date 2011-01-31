@@ -1,1 +1,0 @@
-Artículo 92.—Posposiciones. Si fueren de créditos los honorarios serán de una cuarta parte de la tarifa general sobre el crédito pospuesto, más si fueren accesorias cubrirán media tarifa. En ambos casos y en otras posposiciones, los honorarios mínimos serán igual al indicado en el artículo 69.

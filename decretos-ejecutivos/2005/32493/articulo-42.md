@@ -1,1 +1,0 @@
-Artículo 42.—En las causas cuya competencia en juicio corresponda al Tribunal Colegiado, los honorarios mínimos serán de doscientos mil colones si se celebra el juicio oral, reduciéndose dicho monto mínimo en un cincuenta por ciento si concluye antes por cualquier motivo.

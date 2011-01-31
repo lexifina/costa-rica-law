@@ -1,4 +1,0 @@
-Artículo 29.—Conclusión anticipada de procesos. Si en primera instancia y antes del dictado de sentencia el proceso llegare a su término por transacción o conciliación, los honorarios se calcularán de acuerdo al valor económico de la transacción o conciliación, según la clase de proceso.
-Si en segunda instancia el proceso no llegaré a su término por deserción o por cualquier causa de la contraparte, se fijarán los honorarios del profesional de acuerdo con el mérito de la labor realizada, los cuales serán determinados por el juez conforme a su mérito.
-En cualquier evento, la suma de honorarios resultante a favor del profesional descontará el importe de cualquier adelanto de honorarios que hubiese percibido antes de la sentencia de primera instancia y conservará la diferencia a su favor.
-Si la deserción fuere imputable al abogado, este no tendrá derecho al cobro de honorarios a su cliente.

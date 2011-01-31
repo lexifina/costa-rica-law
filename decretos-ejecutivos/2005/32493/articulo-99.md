@@ -1,1 +1,0 @@
-Artículo 99.—Testamentos. Por la confección de testamentos abiertos los honorarios mínimos serán de setenta y cinco mil colones y por la cubierta de testamento cerrado y su razón en el protocolo, no serán inferiores a lo indicado en el artículo 69.

@@ -1,5 +1,0 @@
-Artículo 87.—Capitulaciones matrimoniales, patrimonio familiar, matrimonio civil, convenios de separación judicial o de divorcio por mutuo consentimiento. Por el acuerdo de capitulaciones matrimoniales, se aplicará la tarifa que señala el artículo 71 de este Arancel, con un mínimo de cincuenta mil colones en concepto de honorarios.
-Por la celebración de matrimonio civil, el profesional devengará honorarios máximos de cincuenta mil colones.
-Por el convenio de separación judicial o de divorcio por mutuo consentimiento sin que medien gananciales, el profesional devengará como honorarios la suma máxima de setenta y cinco mil colones.
-Por el convenio de separación judicial o de divorcio por mutuo acuerdo en que medien gananciales, se aplicará la tarifa que señala el artículo 71 sobre el valor real de esos bienes, con un mínimo de cien mil colones en concepto de honorarios.
-Por constitución de patrimonio familiar como un acto notarial separado e independiente generará honorarios mínimos de veinticinco mil colones.

@@ -1,1 +1,0 @@
-Artículo 44.—En los procesos de extradición se cobrará un honorario mínimo de ciento cincuenta mil colones y cuando el proceso concluya antes por cualquier causa, los honorarios se reducirán en un cincuenta por ciento (50%).

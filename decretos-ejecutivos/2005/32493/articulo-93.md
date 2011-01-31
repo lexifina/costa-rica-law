@@ -1,2 +1,0 @@
-Artículo 93.—Propiedad horizontal. Por la afectación de finca o propiedad horizontal se pagará la mitad de la tarifa general sobre el valor real del inmueble, más el cincuenta por ciento (50%) por complejidad, con un mínimo de cincuenta mil colones por cada finca filial y cada zona
-comunal y de cincuenta mil por el reglamento respectivo, como mínimo, para el cobro total de honorarios por la afectación a propiedad horizontal.

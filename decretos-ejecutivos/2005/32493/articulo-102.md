@@ -1,1 +1,0 @@
-Artículo 102.—Reserva de prioridad. Por cada acto de reserva de prioridad en escritura pública, quien se beneficie pagará honorarios mínimos de cincuenta mil colones, salvo acuerdo entre el Notario y su cliente, parte o usuario.

@@ -1,1 +1,0 @@
-Artículo 77.—Cabida de fincas. La modificación de cabida de fincas, aumentándola o disminuyéndola, pagará como honorarios la cuarta parte de la tarifa general conforme con su valor real, con un mínimo igual al indicado en el artículo 69.

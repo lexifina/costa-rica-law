@@ -1,1 +1,0 @@
-Artículo 56.—Por la redacción de actas de cualquier naturaleza, se fija un monto mínimo de veinticinco mil colones de honorarios por cada una. Este cobro no implica la protocolización de dicho documento para cualquier efecto, cuyo importe se cancelará separadamente en los términos que señala este Arancel.
