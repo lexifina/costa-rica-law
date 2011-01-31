@@ -1,0 +1,1 @@
+Artículo 2º—Aplíquese un arancel de 14% de Derechos Arancelarios a la Importación a los incisos 0813.30.10 y 0813.30.90 de conformidad con la resolución Nº 48-94 (Consejo-XII de fecha 23 de febrero del 1994, la cual autoriza a Costa Rica para que las tarifas de 15% incluyan el gravamen del 1% de la Ley Nº 6946 del 13 de enero de 1984.
