@@ -1,0 +1,1 @@
+Artículo 11.—El predio donde se pretenda ubicar e instalar la Obra Constructiva deberá tener como dimensiones mínimas la cantidad de 6 metros de frente por 6 metros de fondo; los accesos se regularán conforme a la Ley de Construcciones, y a los reglamentos nacionales de construcción y fraccionamiento, sin perjuicio de las disposiciones propias de la Municipalidad.
