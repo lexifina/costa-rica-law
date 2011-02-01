@@ -1,0 +1,16 @@
+SUPERINTENDENCIA GENERAL DE VALORES
+La Superintendencia General de Valores de conformidad con lo establecido en la Ley Nº 8220 “Protección del ciudadano del exceso de requisitos y trámites administrativos” publica lo siguiente:
+SGV-A-176.—Superintendencia General de Valores. Despacho del Superintendente. A las nueve horas quince minutos del veintiuno de diciembre del dos mil diez.
+Considerando que:
+1. La Ley Reguladora del Mercado de Valores en su artículo 8º, inciso f) concede al Superintendente General potestades de jerarca administrativo de la Superintendencia General de Valores y en esa condición, está dentro de sus competencias definir la distribución interna de funciones, con la finalidad de cumplir de la manera más adecuada y eficiente con los fines y objetivos que la Ley le asigna.
+2. Mediante artículo 8 del acta de la sesión 737-2008, celebrada el 22 de agosto del 2008, el Consejo Nacional de Supervisión del Sistema Financiero aprobó la estructura organizativa de la Superintendencia General de Valores que se encuentra vigente.
+3. De acuerdo con las competencias asignadas por la Ley Reguladora del Mercado de Valores a la Superintendencia General de Valores, es necesario reorganizar y establecer las principales áreas de acción de la SUGEVAL y el papel que desempeña cada unidad administrativa en esa estructura para delegar formalmente a los responsables, el conocimiento y resolución de trámites e informes específicos.
+4. Con fundamento en el artículo 361, inciso 2) de la Ley General de Administración Pública y por tratarse de un asunto en beneficio del administrado, este acuerdo se exime del trámite de consulta
+Por tanto acuerda el siguiente
+SGV-A-176 DELEGACIÓN DE COMPETENCIAS
+1. Establecer las siguientes áreas de acción definidas por la Superintendencia para atender la misión encomendada por la Ley Reguladora del Mercado de Valores:
+Regulación: El trabajo en regulación comprende la elaboración de la normativa que regula el mercado de valores. La responsabilidad de esta área de acción recae sobre la División de Investigación y Normativa.
+Autorización: El trabajo en este ámbito contempla el trámite de autorización de la oferta pública de valores y de los participantes y productos del mercado de valores, labores que son responsabilidad del Departamento de Oferta Pública.
+Supervisión y fiscalización: Esta área de acción se refiere a la supervisión in-situ y extra-situ que se ejerce sobre los regulados en el cumplimiento de la regulación emitida. Estas funciones son responsabilidad de la División de Supervisión de Mercados e Intermediarios y la División de Fondos de Inversión y Emisores.
+Instrucción e imposición de sanciones: Contempla todo lo relativo al trámite de denuncias y procedimientos administrativos que debe atender la SUGEVAL por posibles incumplimientos a la regulación establecida. Las funciones en esta materia son responsabilidad del Departamento de Gestión Jurídica y Cumplimiento de la División de Asesoría Jurídica.
+Actividades de Apoyo: Se refiere a una serie de acciones que facilitan el quehacer institucional en el ámbito administrativo, de tecnología de información y en materia de gestión de la información y comunicación, las cuales son responsabilidad del Área Administrativa, del Departamento de Informática y del Departamento de Información y Comunicación, respectivamente.
