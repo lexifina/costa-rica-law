@@ -1,0 +1,1 @@
+Artículo 32.—Responsables en el control y uso de combustible. Las unidades ejecutoras, serán las responsables del control sobre el uso y el rendimiento del combustible de todos y cada uno de los vehículos oficiales o de uso discrecional asignados a cada unidad ejecutora. Los tarjetahabientes serán responsables por el correcto uso del combustible.

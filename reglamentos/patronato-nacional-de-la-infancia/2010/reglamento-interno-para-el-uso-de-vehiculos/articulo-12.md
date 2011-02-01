@@ -1,0 +1,1 @@
+Artículo 12.—De la circulación de vehículos fuera del país. Ningún vehículo del Patronato, podrá circular fuera del territorio nacional sin la autorización escrita de la Presidencia Ejecutiva, por lo que se deberá contar con la respectiva autorización de salida del país extendida por el Registro Público.

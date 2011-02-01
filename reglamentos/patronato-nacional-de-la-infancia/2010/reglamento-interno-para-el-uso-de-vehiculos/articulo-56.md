@@ -1,0 +1,1 @@
+Artículo 56.—De la responsabilidad del vehículo prestado. Los Ministerios o Instituciones Públicas beneficiados con el préstamo de vehículos deberán asumir la responsabilidad del control sobre su uso y mantenimiento, así como al pago de los seguros de igual forma como si fueran de su propiedad, salvo acuerdo lícito en contrario.

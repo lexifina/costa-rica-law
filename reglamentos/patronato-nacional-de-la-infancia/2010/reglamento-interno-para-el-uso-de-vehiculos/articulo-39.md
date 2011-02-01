@@ -1,0 +1,1 @@
+Artículo 39.—Reposición de facturas y comprobantes de pago (voucher). Será responsabilidad de los tarjetahabientes custodiar las facturas y comprobantes de pago (voucher), hasta el momento que las entreguen a las unidades ejecutoras. En caso de pérdida o extravío deberán realizar las gestiones necesarias, a fin de obtener los duplicados correspondientes.

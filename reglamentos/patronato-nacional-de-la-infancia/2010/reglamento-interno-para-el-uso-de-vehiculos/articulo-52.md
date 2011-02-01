@@ -1,0 +1,1 @@
+Artículo 52.—Condenatoria a terceros. En el caso de que se condene a terceros como consecuencia del accidente, el Departamento de Suministros Bienes y Servicios, en coordinación con la Gerencia Administrativa, en coordinación con la Asesoría Jurídica Institucional, instruirá las gestiones necesarias para que se proceda a la ejecución de sentencia en sede judicial.

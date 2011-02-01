@@ -1,0 +1,4 @@
+Artículo 35.—De las responsabilidades de los tarjetahabientes. Las responsabilidades de los tarjetahabientes son:
+a. Utilizar el combustible en forma exclusiva para los vehículos de la institución, y presentar semanalmente a la unidad ejecutora las facturas y comprobantes de pago (voucher).
+b. Al presentarse a las estaciones de servicio, primero debe indicar al dependiente, el monto que requiere adquirir, a efectos de que la tarjeta sea verificada primero, una vez que cuente con el respectivo voucher de pago, proceder con el llenado del tanque, según el monto aprobado y verificar que le están dispensando el monto total de la compra.
+c. Custodiar la tarjeta electrónica emitida a su nombre, velar por su buen estado y reportar su daño o pérdida al Banco emisor de la misma y a la unidad ejecutora, con el fin que se proceda al bloqueo inmediato de la tarjeta extraviada o sustraída.

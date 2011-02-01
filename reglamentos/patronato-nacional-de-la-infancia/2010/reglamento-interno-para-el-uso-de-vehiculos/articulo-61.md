@@ -1,0 +1,1 @@
+Artículo 61.—De la definición de controles internos. El Departamento de Suministros Bienes y Servicios, será responsable de definir las normas y procedimientos de control interno adicionales que estime necesarias, tendientes a lograr un uso adecuado de los vehículos, además de las que el Coordinador considere pertinente.

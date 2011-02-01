@@ -1,0 +1,8 @@
+Artículo 5º—De los vehículos de uso discrecional. Con fundamento en lo que establece la Ley de Tránsito y demás disposiciones de la Contraloría General de la República, serán de uso discrecional los vehículos asignados a los funcionarios que ocupen los puestos de Presidente(a) Ejecutivo(a), Gerente Técnico, Gerente de de Administración y Auditor(a) Interno del Patronato.
+Estos vehículos no cuentan con restricciones en cuanto a combustible, horarios de operación ni recorrido, características que asumirá bajo su estricto criterio, el funcionario responsable del vehículo.
+Los vehículos de uso discrecional portarán placas particulares y no tendrán marcas visibles que los distingan como vehículos oficiales y los funcionarios(as) a quienes se les asignó, deberán mantenerlos en buen estado de conservación, utilizarlos racionalmente y velar por su seguridad y correcto funcionamiento.
+El uso de los vehículos de uso discrecional estará sujeto a las siguientes reglas:
+a. Serán asignados al funcionario(a) que por disposición de ley tenga derecho a ese beneficio, quien no podrá darle un uso arbitrario en provecho propio, ni de su familia.
+b. Serán utilizados estrictamente para el cumplimiento de las funciones propias del cargo y en ningún caso podrá ser conducido por terceros no autorizados.
+c. Las ventajas o facilidades que se le deriven al funcionario(a) por la utilización de un vehículo de uso discrecional no formarán parte del contrato de trabajo ni constituirán salario en especie.
+d. Estarán sometidos a controles básicos de kilometraje, seguros, consumo de combustibles y lubricantes, estado físico, reparación y mantenimiento.

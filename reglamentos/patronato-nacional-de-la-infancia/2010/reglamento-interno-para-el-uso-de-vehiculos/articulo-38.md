@@ -1,0 +1,1 @@
+Artículo 38.—Reposición de tarjetas. Cuando la tarjeta se deteriore por el uso, desgaste normal o renovación de la misma, esta no tendrá ningún costo de reposición, el tarjetahabiente deberá presentarse en las oficinas del Banco con la tarjeta para su reposición.

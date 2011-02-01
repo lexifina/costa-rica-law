@@ -1,0 +1,1 @@
+Artículo 63.—Derogaciones. El presente Reglamento deroga el aprobado por Junta Directiva en sesión Nº 2003-0084 celebrada el 10 de noviembre del 2003, artículo 007), aparte 01) y cualquier disposición reglamentaria o de rango inferior, que siendo anterior, se oponga a lo que éste dispone.

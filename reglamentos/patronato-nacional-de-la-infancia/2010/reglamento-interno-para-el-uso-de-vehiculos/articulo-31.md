@@ -1,0 +1,6 @@
+CAPÍTULO XI
+Del uso y control del combustible
+Artículo 31.—Del sistema de combustible. El contrato suscrito entre el PANI y RECOPE, regirá las acciones relacionadas con la compra, liquidación y manejo del combustible por medio de tarjeta electrónica. El Departamento de Suministro Bienes y Servicios realizará durante el año las compras de combustible que requiera la Institución para su adecuada gestión vehicular. Este monto total será depositado por RECOPE en cada cuenta de las unidades ejecutoras según el desglose que para los efectos le remita este Departamento.
+A lo interno de cada dependencia con base en la planificación de giras y liquidaciones presentadas, las unidades ejecutoras autorizaran o bloquearan las tarjetas de los tarjetahabientes según corresponda.
+Los tarjetahabientes adquirirán el combustible en las estaciones de servicio de acuerdo con los parámetros de horario, frecuencia y monto y liquidarán semanalmente ante la unidad ejecutora, quien consolida la información y la presentará mensualmente al Departamento de Suministros, Bienes y Servicios, dentro de los primeros cinco días hábiles de cada mes.
+La tarjeta electrónica para la compra de combustible, es de uso exclusivo para ese fin, no se puede utilizar para la adquisición de otros bienes o servicios, o cargar combustible a vehículos privados.

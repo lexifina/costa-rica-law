@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la circulación de los vehículos
+Artículo 9º—Horarios de circulación de los vehículos. Los vehículos de uso administrativo general, circularán dentro de los horarios de trabajo definidos por la institución. Solamente en casos especiales, cuya situación lo amerite, podrán circular fuera de aquellos horarios, previa autorización del Gerente de Administración, Gerente Técnico, Coordinador(a) Regional, Coordinador(a) de Oficina Local, Coordinador(a) del Departamento de Suministros, Bienes y Servicios o del jefe o responsable de la unidad en la que el vehículo se encuentre asignado, debiendo portarse dicha autorización dentro del automotor.
