@@ -1,0 +1,1 @@
+Artículo 2º—La versión oficial del Manual será la que emita el Ministerio de Obras Públicas y Transportes, por sí o mediante el concurso del Laboratorio Nacional de Materiales y Modelos Estructurales (LANAMME) de la Universidad de Costa Rica (UCR).
