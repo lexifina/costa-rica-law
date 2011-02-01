@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-15-2010 del 5 de octubre del 2010, publicada en La Gaceta Nº 205 del 22 de octubre del 2010.
