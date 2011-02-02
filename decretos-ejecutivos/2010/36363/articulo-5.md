@@ -1,0 +1,1 @@
+Artículo 5º—El representante del Poder Ejecutivo de la Fundación deberá juramentarse ante el Ministro de Justicia y Paz o funcionario que éste designe por resolución interna, el día, hora y lugar que se le señale.
