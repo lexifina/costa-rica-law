@@ -1,0 +1,1 @@
+Artículo 2°—Miembros. El beneficio será otorgado a todos los miembros inscritos o autorizados por el Colegio de Médicos y Cirujanos de Costa Rica, que se encuentren al día en el pago de sus obligaciones en el momento de la defunción. Los colegiados que se encuentren pensionados, o inactivos por pensión o invalidez, también tendrán derecho a este beneficio.

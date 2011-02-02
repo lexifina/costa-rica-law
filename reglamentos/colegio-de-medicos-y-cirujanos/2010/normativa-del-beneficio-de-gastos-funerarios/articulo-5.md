@@ -1,0 +1,4 @@
+Artículo 5º—Entrega del beneficio. Al fallecer un miembro del Colegio que reúna las condiciones señaladas en el punto 2 de la presente normativa, se entregará el monto del beneficio de la siguiente manera:
+A. Al miembro del núcleo familiar del Colegiado que demuestre mediante prueba documental haber realizado los gastos funerarios y sepultura.
+B. Si los gastos funerarios y de sepultura son costeados por un tercero, será éste en compañía de uno de los miembros del núcleo familiar del colegiado fallecido, el que podrá presentar el reclamo. A falta de miembros del núcleo familiar, el reclamo del beneficio se podrá realizar en forma directa por quien haya corrido con los gastos.
+C. Cuando ningún miembro del núcleo familiar del Colegiado o un tercero reclame el pago del beneficio de fallecimiento en el plazo establecido, se perderá el derecho al beneficio.
