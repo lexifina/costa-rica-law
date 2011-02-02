@@ -23,3 +23,4 @@ Reglamento de Especialidades Médicas
 | 8 | 2004-06-23 | Decreto Ejecutivo 32018 (2004-06-23) |
 | 9 | 2005-07-20 | Decreto Ejecutivo 32762 (2005-07-20) |
 | 10 | 2007-08-08 | Reglamento 8 (2007-08-08) |
+| 11 | 2011-02-02 | Acuerdo 2 (2011-02-02) |
