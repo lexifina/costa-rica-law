@@ -1,0 +1,1 @@
+Artículo 20.—El profesional deberá acatar en el cumplimiento de sus funciones todas las normas técnicas relacionadas con el buen ejercicio profesional, así como las directrices que en este sentido se le hayan dado en su lugar de trabajo, siempre y cuando las directrices no riñan con el buen ejercicio de la profesión y la calidad de los resultados.

@@ -1,0 +1,1 @@
+Artículo 32.—El profesional que realice exámenes a menores de edad o a personas incapaces mentales de cuyo resultado se pueda desprender la posibilidad de algún tipo de abuso por parte de terceros, deberá en forma inmediata comunicar esta situación al Ministerio Público del lugar en donde trabaje. La no comunicación de esta situación será considerada como una falta grave.

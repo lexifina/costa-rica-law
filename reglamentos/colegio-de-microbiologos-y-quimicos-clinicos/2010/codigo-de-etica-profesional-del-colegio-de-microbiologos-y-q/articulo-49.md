@@ -1,0 +1,3 @@
+SECCIÓN II
+Procedimiento ordinario
+Artículo 49.—Solicitada la apertura del procedimiento ordinario y remitido el expediente a la Junta Directiva procederá este órgano a valorar si eleva el caso ante el Tribunal de Honor. Si se decide por la Junta Directiva elevar el caso ante el Tribunal de Honor se continuará con el procedimiento indicado en los artículos siguientes. Si se decide por la Junta Directiva no continuar con el trámite del caso se deberá emitir una resolución razonada al respecto contra la cual podrá el denunciante interponer recurso de revocatoria ante la misma Junta Directiva, en un plazo máximo de 5 días y ésta resolverá el recurso en un tiempo no mayor de 15 días.

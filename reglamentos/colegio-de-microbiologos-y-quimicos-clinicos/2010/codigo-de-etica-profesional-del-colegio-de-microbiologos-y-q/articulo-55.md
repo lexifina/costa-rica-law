@@ -1,0 +1,1 @@
+Artículo 55.—En el caso de que el profesional sea suspendido y aún así continúe ejerciendo la profesión, procederá de inmediato la Junta Directiva a plantear la denuncia penal respectiva, y además a plantear una nueva denuncia ante la Fiscalía del Colegio por este ejercicio ilegal de la profesión aplicando al efecto lo indicado en el artículo 27 de este Código.

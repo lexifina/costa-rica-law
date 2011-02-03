@@ -1,0 +1,1 @@
+Artículo 22.—El profesional que identifique cualquier tipo de irregularidad tanto en el desempeño de equipo, la ejecución técnica de procedimientos, la emisión de resultados no fidedignos o cualquier otra no conformidad relacionada debe realizar el trámite administrativo correspondiente y en el menor plazo posible.

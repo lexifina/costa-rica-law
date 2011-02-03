@@ -1,0 +1,1 @@
+Artículo 17.—El profesional que asuma el compromiso de servir al Colegio, sea en la Junta Directiva, la Fiscalía, el Tribunal de Honor, o en cualquier otro órgano o comisión del Colegio deberá cumplir fielmente las obligaciones de su cargo y no podrá separarse del mismo a menos que tenga el aval previo de la Junta Directiva o de la Asamblea.

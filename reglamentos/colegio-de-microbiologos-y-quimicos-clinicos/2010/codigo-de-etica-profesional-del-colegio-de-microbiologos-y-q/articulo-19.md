@@ -1,0 +1,1 @@
+Artículo 19.—El profesional tiene el deber de mantenerse actualizado en el área de su trabajo o especialización siendo su responsabilidad la utilización de las mejores técnicas y procedimientos que estén a su alcance.

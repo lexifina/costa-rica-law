@@ -1,0 +1,1 @@
+Artículo 31.—El profesional podrá realizar propaganda comercial para la prestación de sus servicios, siempre y cuando se haga en forma digna, con moderación, evitando el auto elogio, sin inducir a error al público y además respetando la normativa que regula la profesión y las tarifas mínimas establecidas por el Colegio.

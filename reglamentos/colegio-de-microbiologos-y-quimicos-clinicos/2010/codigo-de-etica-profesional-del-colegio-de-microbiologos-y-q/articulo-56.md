@@ -1,0 +1,3 @@
+SECCIÓN IV
+Caducidad y prescripción
+Artículo 56.—Todo proceso que se mantenga inactivo por un periodo mayor de seis meses será archivado por caducidad, para lo cual la parte interesada tendrá que hacer la gestión escrita respectiva antes de que se reactive el proceso. Decretada la caducidad del procedimiento se dejará sin efecto la interrupción de la prescripción que se haya dado según lo que se establece en el artículo siguiente. La fiscalía del Colegio podrá declarar de oficio la caducidad del procedimiento siempre y cuando la inactividad del mismo no sea atribuible a alguno de los órganos del Colegio, incluida la misma Fiscalía.

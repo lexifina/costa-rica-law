@@ -1,0 +1,1 @@
+Artículo 11.—Se prohíbe al profesional la participación activa o pasiva en cualquier forma de tortura ya sea dentro o fuera del país. Para el enjuiciamiento de estos casos se utilizarán las disposiciones vigentes en la materia tanto nacionales como internacionales.

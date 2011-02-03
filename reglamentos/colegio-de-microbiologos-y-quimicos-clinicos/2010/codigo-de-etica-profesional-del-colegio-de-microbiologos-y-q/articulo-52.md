@@ -1,0 +1,1 @@
+Artículo 52.—La sentencia dictada por el Tribunal de Honor cuenta con Recurso de Apelación el cuál se presentará ante la Fiscalía del Colegio dentro del plazo de cinco días. Este recurso será resuelto por la Junta Directiva en un plazo máximo de treinta días, y su resolución dará por agotada la vía administrativa.

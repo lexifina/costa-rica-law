@@ -1,0 +1,1 @@
+Artículo 23.—El profesional debe darle a todo paciente el mismo trato, buscando siempre dar el mejor resultado posible desde el punto de vista de la exactitud científica de la prueba que esté realizando.

@@ -1,0 +1,1 @@
+Artículo 9º—El profesional no podrá utilizar como propios criterios o razonamientos dados por otras personas, sin hacer la respectiva mención de quien es el autor intelectual de estas ideas, salvo que se trate de conceptos ya incorporados a la enseñanza de la profesión.

@@ -1,0 +1,1 @@
+Artículo 43.—Toda denuncia deberá contener como mínimo la siguiente información: datos completos del denunciante, narración clara y concisa de los hechos denunciados, ubicación en el tiempo y en el espacio de los hechos denunciados, nombre de la persona denunciada, y señalamiento de un número de fax en donde se puedan remitir notificaciones.

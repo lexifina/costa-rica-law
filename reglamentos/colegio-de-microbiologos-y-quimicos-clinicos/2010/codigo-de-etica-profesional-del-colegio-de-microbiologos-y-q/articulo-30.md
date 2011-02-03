@@ -1,0 +1,1 @@
+Artículo 30.—El profesional que labore en instituciones públicas no podrá utilizar tiempo o recursos de la institución en la realización de exámenes o pruebas derivadas de su actividad privada o lucrar para sí o para un tercero.

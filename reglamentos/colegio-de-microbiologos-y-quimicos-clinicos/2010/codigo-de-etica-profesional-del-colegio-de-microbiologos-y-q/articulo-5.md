@@ -1,0 +1,1 @@
+Artículo 5º—Las relaciones que se establezcan entre los Profesionales, ya sea en relación con su actividad profesional, o las que deriven de vivir en la misma sociedad, en general, deberán inspirarse en el respeto y el auxilio mutuo.

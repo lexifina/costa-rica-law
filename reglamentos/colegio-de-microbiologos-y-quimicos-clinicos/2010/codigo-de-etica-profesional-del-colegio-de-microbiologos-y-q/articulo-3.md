@@ -1,0 +1,1 @@
+Artículo 3º—El profesional debe ser consciente de sus deberes sociales y profesionales hacia la comunidad y aportar su colaboración a aquellas políticas que tengan por finalidad asegurar a la población costarricense el mayor grado de salud posible, respetando las normas de la deontología profesional así como la dignidad y los derechos del paciente.

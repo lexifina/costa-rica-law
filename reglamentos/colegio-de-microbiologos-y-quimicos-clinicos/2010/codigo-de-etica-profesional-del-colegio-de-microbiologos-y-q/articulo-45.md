@@ -1,0 +1,1 @@
+Artículo 45.—Admitida una denuncia procederá el Fiscal a indicar cuáles serán las gestiones de investigación que se van a realizar y ordenará las mismas. En la misma resolución solicitará al denunciado un informe sobre los hechos contenidos en la denuncia para lo cual se le concederá un plazo de diez días.

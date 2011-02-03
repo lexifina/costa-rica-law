@@ -1,0 +1,1 @@
+Artículo 21.—El profesional que tenga a su cargo manejo de personal tiene la obligación de informar a sus subalternos de todas las normas sanitarias y técnicas tendientes a brindar un mejor servicio. Tiene la responsabilidad de revisar periódicamente tales normas con el fin de actualizarlas o corregirlas.

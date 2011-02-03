@@ -1,0 +1,1 @@
+Artículo 26.—El profesional se obliga a no realizar ningún tipo de práctica profesional que genere competencia desleal hacia sus colegas. Todo acto de competencia desleal será considerado falta grave.

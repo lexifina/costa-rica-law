@@ -1,0 +1,1 @@
+Artículo 57.—Las faltas contempladas en el presente Código prescribirán en un término de cuatro años, plazo que se interrumpe con la presentación de la denuncia, y con la resolución del Tribunal de Honor en la que se ordene la apertura del procedimiento ordinario administrativo.

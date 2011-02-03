@@ -1,0 +1,1 @@
+Artículo 15.—Es deber del Profesional responsabilizarse plenamente del encargo profesional o científico que se le confía. Su facultad representativa o ejecutiva, cuando de asuntos profesionales se trata, no debe excederse del límite que se le haya fijado.

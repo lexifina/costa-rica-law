@@ -1,0 +1,1 @@
+Artículo 8º—El profesional asume toda responsabilidad por los exámenes y resultados que firme, sea en forma autógrafa o por medio de una firma electrónica debidamente registrada, en cuyo caso independientemente de que haya o no participado en la valoración del resultado será totalmente responsable del mismo.

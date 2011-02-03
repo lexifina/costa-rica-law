@@ -1,0 +1,1 @@
+Artículo 36.—Las faltas gravísimas se sancionarán con suspensión en el ejercicio de la profesión de seis meses a diez años, según la gravedad de la falta, el daño generado a terceros, al mismo Colegio, o al buen nombre de la profesión.

@@ -1,0 +1,1 @@
+Artículo 37.—En la fijación de la sanción aplicable deberá ponderarse si el profesional ha sido sancionado anteriormente, si ha colaborado con el Colegio en la realización de sus funciones, y además se valorarán los eventuales daños que el actuar del profesional haya generado a terceros, a colegas, o al buen nombre de la profesión.

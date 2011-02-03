@@ -1,0 +1,1 @@
+Artículo 16.—Todos los Profesionales se encuentran obligados de decir verdad ante cualquier investigación o requerimiento que le formulen ya sea la Junta Directiva o el Tribunal de Honor del Colegio, sin perjuicio de su deber de observar el secreto profesional, de acuerdo con el artículo 33 de este mismo Código de Ética.

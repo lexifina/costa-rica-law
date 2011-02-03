@@ -1,0 +1,1 @@
+Artículo 28.—Es obligación del profesional evitar que equipo, productos y reactivos de laboratorio sean utilizados por personas no autorizadas legalmente para ello. Es deber del profesional, denunciar ante el Colegio cualquier contravención a este artículo.
