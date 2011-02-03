@@ -14,3 +14,4 @@ Actualiza monto límite para el Archivo de deudas tributarias aduaneras pendient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-09 | la propia norma |
+| 2 | 2011-02-03 | Resolución 40 (2011-02-03) |
