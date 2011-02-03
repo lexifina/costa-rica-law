@@ -15,3 +15,4 @@ Reglamento de la Comisión Institucional en Materia de Discapacidad
 | --- | --- | --- |
 | 1 | 2006-06-30 | la propia norma |
 | 2 | 2007-10-31 | Acuerdo 48 (2007-10-31) |
+| 3 | 2011-02-03 | Acuerdo 24 (2011-02-03) |
