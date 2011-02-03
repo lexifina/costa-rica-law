@@ -1,0 +1,1 @@
+Artículo 14.—El Archivo Central deberá elaborar por escrito el Informe Anual Sobre el Desarrollo Archivístico de la Institución, el cual se enviará a la Dirección General del Archivo Nacional en el mes de marzo de cada año. Se debe elaborar dicho informe en concordancia con lo que establece el artículo 42 inciso j de la Ley del Archivo y su Reglamento.
