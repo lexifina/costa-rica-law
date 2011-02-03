@@ -1,0 +1,1 @@
+Artículo 24.—La CEC tiene la obligación de solicitar documentos adicionales, a organismos nacionales y/o internacionales para resolver dudas sobre la aceptabilidad de atestados presentados por un colegiado si así se requiere.

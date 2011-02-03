@@ -1,0 +1,1 @@
+Artículo 26.—La entrega de los resultados es estrictamente personal. Cuando el colegiado envíe a otra persona a retirar el documento de calificación, debe enviar una nota de autorización donde además se exime al Colegio de toda responsabilidad por el acto efectuado.

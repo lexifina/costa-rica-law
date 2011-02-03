@@ -1,0 +1,1 @@
+Artículo 4º—Una vez finalizado su nombramiento, los miembros de la CEC podrán ser reelectos por la Junta Directiva del Colegio por un nuevo período, de acuerdo con el Artículo 23 del REGLAMENTO de la Ley Nº 5462 (o al artículo respectivo según modificaciones que a futuro pueda sufrir dicho reglamento).

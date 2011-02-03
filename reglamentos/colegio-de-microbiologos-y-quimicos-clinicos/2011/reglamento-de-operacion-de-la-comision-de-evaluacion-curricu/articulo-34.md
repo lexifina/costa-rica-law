@@ -1,0 +1,1 @@
+Artículo 34.—Los aspectos relacionados a la evaluación curricular y a la revisión de atestados de profesionales en Microbiología y Química Clínica no contemplados en el Reglamento de la Ley Nº 5462 ni en este Reglamento; serán discutidos en el seno de la Comisión y los acuerdos se tomarán por mayoría simple.

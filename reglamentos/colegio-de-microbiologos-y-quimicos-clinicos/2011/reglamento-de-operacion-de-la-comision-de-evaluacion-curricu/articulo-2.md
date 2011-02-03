@@ -1,0 +1,1 @@
+Artículo 2º—La CEC estará conformada por cinco miembros, todos ellos Microbiólogos y Químicos Clínicos incorporados al Colegio y al día en sus obligaciones económicas; de acuerdo con el Artículo 23 del REGLAMENTO de la Ley Nº 5462 (o al artículo respectivo según modificaciones que a futuro pueda sufrir dicho reglamento).

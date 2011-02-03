@@ -1,0 +1,1 @@
+Artículo 32.—Si algún miembro de la Comisión desea participar en un concurso de plazas para profesionales en microbiología, deberá ser sustituido transitoriamente durante las sesiones extraordinarias respectivas por algún otro colegiado nombrado por la Junta Directiva y que no esté interesado en participar en dicho concurso.

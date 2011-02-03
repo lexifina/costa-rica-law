@@ -1,0 +1,1 @@
+Artículo 10.—Si alguno de los miembros de la Comisión desea renunciar a la misma, deberá comunicarlo por escrito a la Junta Directiva con un mes de anticipación de la siguiente sesión de la CEC. Será responsabilidad de la Junta Directiva nombrar al sustituto por el período restante, según lo establecido en los artículos 3º, 5º, 6º de este Reglamento.

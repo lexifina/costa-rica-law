@@ -1,0 +1,1 @@
+Artículo 5º—Cualquier colegiado que tenga interés en ser miembro de la CEC deberá entregar una solicitud por escrito dirigida a la Junta Directiva del colegio. Los interesados deben cumplir con el artículo 2º de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—Los atestados que se presenten posterior a los 7 días hábiles de la publicación de un concurso, serán recibidos y se someterán a revisión en la siguiente sesión ordinaria, exceptuando el caso del artículo 14 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros de la CEC serán nombrados por la Junta Directiva del Colegio por un período de dos años, contados a partir del día de su juramentación de acuerdo con el Artículo 23 del REGLAMENTO de la Ley Nº 5462 (o al artículo respectivo según modificaciones que a futuro pueda sufrir dicho reglamento).
