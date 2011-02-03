@@ -1,0 +1,3 @@
+Artículo 14.—La Comisión Permanente estará integrada por un miembro propuesto por la Junta Directiva y electo por la Asamblea General que ejercerá el cargo de Tesorero Auxiliar por tres años y dos miembros que propondrá la Junta Directiva y elegirá la Asamblea General que durarán en sus cargos dos años. Los miembros podrán ser reelectos.
+En caso de renuncia o incapacidad del Tesorero Auxiliar, la Junta Directiva nombrará un sustituto en forma temporal hasta que la siguiente Asamblea General nombre a un nuevo Tesorero Auxiliar por lo que resta del período.
+La Comisión Permanente podrá nombrar a colegiados asesores y enlaces, en las distintas especialidades e instituciones o para actividades específicas, para un mejor desarrollo del Programa.

@@ -1,0 +1,1 @@
+Artículo 9º—Los intereses generados por el FEC que no sean presupuestados para el Programa serán capitalizados, de manera que se compense la inflación y la suma disponible cada año para Educación Continua pueda mantenerse o crecer. El uso de montos mayores de los intereses deberá contar con la aprobación de la Asamblea General.
