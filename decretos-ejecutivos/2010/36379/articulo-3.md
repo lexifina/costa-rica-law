@@ -1,0 +1,1 @@
+Artículo 3º—Corresponderá al Instituto Costarricense sobre Drogas adscrito al Ministerio de la Presidencia llevar a cabo las acciones legales pertinentes a efecto de resguardar y vigilar el inmueble que le ha sido asignado al Ministerio de la Presidencia.
