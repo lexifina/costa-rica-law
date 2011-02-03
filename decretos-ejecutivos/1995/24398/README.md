@@ -18,3 +18,4 @@ Define Categorías en Reglamento Regencias Colegio Ingenieros Agrónomos y estab
 | 3 | 2004-05-26 | Decreto Ejecutivo 31844 (2004-05-26) |
 | 4 | 2007-07-23 | Decreto Ejecutivo 34083 (2007-07-23) |
 | 5 | 2009-02-16 | Decreto Ejecutivo 35258 (2009-02-16) |
+| 6 | 2011-02-03 | Decreto Ejecutivo 36533 (2011-02-03) |
