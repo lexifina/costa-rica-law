@@ -17,3 +17,4 @@ Reglamento para la Aplicación de la Dedicación Exclusiva y Disponibilidad en l
 | 2 | 2007-09-27 | Reglamento municipal 113 (2007-09-27) |
 | 3 | 2008-02-07 | Reglamento municipal 140 (2008-02-07) |
 | 4 | 2010-04-29 | Reglamento municipal 312 (2010-04-29) |
+| 5 | 2011-02-03 | Reglamento municipal 59 (2011-02-03) |

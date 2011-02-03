@@ -3,4 +3,5 @@ Para solicitar acogerse a la Disponibilidad, debe cumplirse con los siguientes r
 a) Laborar para la Municipalidad de La Unión en jornada completa
 (Así reformado el inciso anterior en sesión N° 312 del 29 de abril de 2010).
 b) Que la presencia del funcionario fuera del horario normal de trabajo, sea requerida regularmente para tomar decisiones importantes respecto a trabajos que se deban realizar de urgencia o que se le requiera para dirigir y ejecutar los mismos.
-c) Contar con el visto bueno del jefe Inmediato antes de presentar la solicitud a la Dirección Ejecutiva.
+c) En todos los casos la Gestión de Recursos Humanos deberá verificar el cumplimiento de los requisitos, conforme a la resolución administrativa que emita la Alcaldía Municipal, de previo a la formalización del contrato respectivo.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 59 del 3 de febrero del 2011)
