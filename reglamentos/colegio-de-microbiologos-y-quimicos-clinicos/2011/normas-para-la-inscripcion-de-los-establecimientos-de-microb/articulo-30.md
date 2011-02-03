@@ -1,0 +1,1 @@
+Artículo 30.—El Colegio implementará los sistemas y elaborará los documentos que considere necesarios para verificar el cumplimiento del Reglamento y la Norma, sean estos actas de inspección, libros de registro u otros.

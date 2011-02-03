@@ -1,0 +1,1 @@
+Artículo 17.—Los laboratorios que deseen realizar análisis microbiológico de aguas y alimentos deberán acatar toda la Normativa relacionada con estos análisis que para tal efecto ha emitido el Ministerio de Salud, a saber el Reglamento 35485.

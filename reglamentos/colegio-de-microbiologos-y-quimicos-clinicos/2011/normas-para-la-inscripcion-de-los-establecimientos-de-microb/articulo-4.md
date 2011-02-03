@@ -1,0 +1,1 @@
+Artículo 4º—En caso de que sea un establecimiento nuevo, la Fiscalía del Colegio hará una inspección previo a que se conozca la aprobación de inscripción de dicho establecimiento, esto a fin de verificar que el establecimiento cumple con los requisitos mínimos de inscripción según lo establecido en esta Norma.

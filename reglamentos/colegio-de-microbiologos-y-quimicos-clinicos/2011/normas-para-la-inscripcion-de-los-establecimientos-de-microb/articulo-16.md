@@ -1,0 +1,1 @@
+Artículo 16.—Los laboratorios especializados o aquellos que brinden atención específica a un servicio de medicina, deberán de contar con el equipo y reactivos apropiados para la realización del tipo de análisis propios de la especialidad. Para ello deberán presentar ante el Colegio la lista de reactivos y equipos que se utilizaran en dicho laboratorio.

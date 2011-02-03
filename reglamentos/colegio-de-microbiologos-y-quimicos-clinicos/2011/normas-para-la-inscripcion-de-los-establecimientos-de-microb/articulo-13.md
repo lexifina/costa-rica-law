@@ -1,0 +1,1 @@
+Artículo 13.—De igual manera los laboratorios que funcionen y estén autorizados por el Colegio para funcionar como laboratorios de referencia, no podrán realizar como referencia los exámenes mínimos a que hace referencia este capítulo salvo casos fortuitos.

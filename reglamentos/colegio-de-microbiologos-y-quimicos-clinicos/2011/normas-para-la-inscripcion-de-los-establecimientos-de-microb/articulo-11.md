@@ -1,0 +1,1 @@
+Artículo 11.—Todo dueño de establecimiento que solicite la inscripción del mismo ante el Colegio, deberá acatar la disposición de realizar “in situ” la lista de exámenes mínimos a que se refiere esta Norma, de lo contrario el Colegio no podrá autorizar la inscripción, ni el Ministerio de Salud podrá permitir el funcionamiento del dicho establecimientos.

@@ -1,0 +1,1 @@
+Artículo 29.—Los propietarios de los establecimientos deberán respetar todo lo relacionado con las garantías laborales que establece el Reglamento del Estatuto de Servicios de Microbiología y Química Clínica para los profesionales MQC que laboren en los establecimientos a que hace referencia esta Norma.

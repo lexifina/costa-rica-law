@@ -1,0 +1,2 @@
+Transitorio único.—Los establecimientos a que se refiere esta Norma tendrán seis meses a partir que entre en vigencia la misma, para realizar todos los cambios que sean necesarios para cumplir con lo establecido en ella. El hecho que el Reglamento a que se refiere esta Norma no entre en vigencia no imposibilita al Colegio para que aplique lo contemplado en esta Norma.
+San José, 10 de enero del 2011.
