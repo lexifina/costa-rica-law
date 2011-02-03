@@ -1,0 +1,1 @@
+Artículo 4º—En la recopilación y mantenimiento de la información del RED las entidades encargadas deberán respetar las garantías tuteladas por el ordenamiento jurídico sobre la protección de datos, a fin de asegurar la confidencialidad y respeto de la privacidad de las personas con discapacidad.

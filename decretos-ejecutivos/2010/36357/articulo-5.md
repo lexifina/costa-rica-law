@@ -1,0 +1,1 @@
+Artículo 5º—La información recopilada para la conformación del RED deberá desglosarse y utilizarse como ayuda para evaluar el cumplimiento de los derechos fundamentales de la población con discapacidad por parte de las entidades públicas y privadas, así como para identificar y eliminar las barreras que impiden a este grupo de población el ejercicio de sus derechos.

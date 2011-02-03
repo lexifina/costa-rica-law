@@ -1,0 +1,1 @@
+Artículo 7º—Toda persona física o jurídica, pública y privada está obligada a proporcionar de manera cierta y oportuna, los datos y la información requerida para la conformación del RED, la cual será definida por el CNREE en coordinación con el INEC.
