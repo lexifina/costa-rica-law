@@ -1,0 +1,1 @@
+Artículo 21.—Cuando existan cheques en custodia en la Tesorería con seis o más meses de emitidos, el funcionario designado como responsable de la Tesorería procederá a anularlos, para lo cual levantará una lista de ellos y los enviará en conjunto con ésta a Contabilidad y Presupuesto, con copia al funcionario que realiza las conciliaciones bancarias.

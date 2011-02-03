@@ -1,0 +1,1 @@
+Artículo 5º—La funcionaria o Funcionario designado como responsable de la Tesorería, deberá tomar las medidas de precaución posibles para proteger los valores financieros bajo su custodia; asimismo, establecer y aplicar las medidas de control interno conforme a la normativa vigente en esta materia.

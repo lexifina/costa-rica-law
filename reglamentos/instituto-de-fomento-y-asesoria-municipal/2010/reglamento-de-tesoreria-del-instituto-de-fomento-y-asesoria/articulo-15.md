@@ -1,0 +1,1 @@
+Artículo 15.—Los cheques emitidos son de responsabilidad absoluta del funcionario responsable de Tesorería previa consulta del Estado de Caja y Bancos. Si no hubiere fondos suficientes de inmediato se informará al Jefe de la Sección de Contabilidad y Finanzas para que determine lo que corresponda.

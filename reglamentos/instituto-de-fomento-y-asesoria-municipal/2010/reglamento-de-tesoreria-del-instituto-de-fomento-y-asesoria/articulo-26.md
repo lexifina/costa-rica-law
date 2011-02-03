@@ -1,0 +1,1 @@
+Artículo 26.—El Jefe de la Sección de Contabilidad y Finanzas, el Director de la Dirección de Administración Interna y el Auditor General o sus Delegados pueden realizar en cualquier momento y sin previo aviso todas las revisiones o arqueos que crean convenientes sobre los valores y documentos en custodia de la Tesorería o sobre los procedimientos o medidas de control interno.

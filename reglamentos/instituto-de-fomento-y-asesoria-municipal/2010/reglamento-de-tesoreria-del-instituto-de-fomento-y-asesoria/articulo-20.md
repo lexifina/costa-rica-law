@@ -1,0 +1,1 @@
+Artículo 20.—Todos los cheques emitidos que no han sido retirados por los beneficiarios estarán en custodia del Área de Tesorería hasta su entrega contra la presentación de la cédula de identidad del beneficiario, o persona debidamente autorizada.

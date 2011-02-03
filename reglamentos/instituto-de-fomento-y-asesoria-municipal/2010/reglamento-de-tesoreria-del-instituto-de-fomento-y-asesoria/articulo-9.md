@@ -1,0 +1,1 @@
+Artículo 9º—Los ingresos del Instituto los recibirá únicamente Tesorería por medio de la Caja General. Por cada ingreso recibido deberá emitirse un recibo de dinero o ingreso de caja, en los formularios o con los procedimientos que se determinen para tal efecto.

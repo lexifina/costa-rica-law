@@ -1,0 +1,1 @@
+Artículo 30.—La Dirección de Administración Interna por medio de solicitud de materiales en existencia, firmada por su Director o por el Jefe de la Sección de Contabilidad y Finanzas, solicitará a la Sección de Proveeduría la cantidad de cheques con su respectiva numeración y cuenta bancaria.

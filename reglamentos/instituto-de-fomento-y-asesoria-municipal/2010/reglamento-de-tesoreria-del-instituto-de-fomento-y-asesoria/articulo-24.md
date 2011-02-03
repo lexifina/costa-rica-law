@@ -1,0 +1,1 @@
+Artículo 24.—La Tesorería llevará registros auxiliares para el control de los documentos de garantías de Participación y de Cumplimiento recibidas, también de los contratos convenios, subsidios y contrataciones que suscriba el IFAM, pagarés, letras de cambio, escrituras hipotecarias, fórmulas de cheques en blanco, así como su custodia.

@@ -1,0 +1,1 @@
+Artículo 29.—Las disposiciones contenidas en el presente Reglamento regulan todo lo relacionado con la Tesorería y queda entendido que el funcionario responsable y el personal de la misma son responsables de su fiel cumplimiento. Ningún otro empleado que tenga relación directa o indirecta con la Tesorería, puede alegar desconocimiento del presente Reglamento.

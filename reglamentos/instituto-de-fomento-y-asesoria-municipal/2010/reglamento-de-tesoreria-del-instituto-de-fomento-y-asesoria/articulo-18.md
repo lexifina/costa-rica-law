@@ -1,0 +1,1 @@
+Artículo 18.—La tesorería deberá contar con un registro en el cual se consignarán los movimientos por cheques, depósitos bancarios, notas de débito y crédito emitidos de cada una de la cuentas bancarias.
