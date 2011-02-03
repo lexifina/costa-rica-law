@@ -1,2 +1,6 @@
-ARTICULO 4.- Duración
-Las medidas de protección no podrán durar menos de un mes ni más de seis, excepto la consignada en el inciso c) del artículo anterior. Sin embargo, al vencer el plazo y a solicitud de parte, la autoridad competente podrá ordenar prorrogarlo una sola vez, por igual período.
+Artículo 4.- Duración. Las medidas de protección se mantendrán por un año, mientras no sean levantadas o modificadas con anterioridad por resolución judicial firme.
+Será obligación del Poder Judicial crear un registro con los nombres y la información de las personas a las que se les haya impuesto medidas de protección; para ello, los despachos que conocen la materia estarán obligados a enviar al registro copia de las resoluciones que ordenen, modifiquen o cesen las medidas de protección.
+El registro deberá ser consultado, necesariamente, por la jueza o el juez que deba resolver un asunto puesto en su conocimiento y que guarde relación con los hechos registrados.
+La información contenida en este registro será confidencial y de uso exclusivo del Poder Judicial. Los asientos contenidos en este registro se cancelarán definitivamente en un plazo de cinco años, contado a partir de la última resolución comunicada.
+Cuando se trate de presuntas personas agresoras menores de edad, el registro no podrá contener fotografías de ellas; toda la información registrada deberá ser utilizada con respeto de la normativa que tutela los derechos de las personas menores de edad.
+(Así reformado por el artículo 1° de la ley N° 8925 del 3 de febrero de 2011)
