@@ -1,0 +1,1 @@
+Artículo 11.—Autorización de Anticipos. Los adelantos de dinero que se tramiten por medio de la Oficina de Atención y Protección a Víctimas y Testigos de delitos, deberán ser aprobados por el Jefe de la Oficina respectiva o quien se haya designado para tales efectos.

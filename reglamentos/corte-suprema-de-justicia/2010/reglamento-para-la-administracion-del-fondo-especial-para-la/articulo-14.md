@@ -1,0 +1,1 @@
+Artículo 14.—Impedimento para un nuevo anticipo. No se girará un nuevo anticipo al servidor que tenga pendiente la liquidación de un anticipo. En casos estrictamente excepcionales y autorizados expresamente por el jefe de oficina, se podrá entregar un nuevo anticipo sin haberse liquidado el anterior.

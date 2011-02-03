@@ -1,0 +1,1 @@
+Artículo 23.—Directrices e instrucciones. La Dirección Ejecutiva y el Departamento Financiero Contable, cuando realice arqueos periódicos, deberán establecer directrices y dictar instrucciones generales tendientes a obtener una mejor fiscalización y operación del Fondo, sin perjuicio de la obligada fiscalización que le corresponde a la Auditoría.

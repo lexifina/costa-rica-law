@@ -1,0 +1,3 @@
+CAPÍTULO II
+Funcionamiento
+Artículo 6º—Autorización de gastos del Fondo. La adquisición de bienes y servicios, se hará hasta por la suma de ¢10.000.000,00 (diez millones colones), monto que anualmente mediante resolución será indexada por la Dirección Ejecutiva con base el índice de precios al consumidor. Por razones de conveniencia y oportunidad, el trámite de compra se realizará contando con una sola cotización de conformidad con el monto que llegue a establecer mediante resolución la Dirección Ejecutiva. Superada esa suma, se deberá contar al menos con 3 cotizaciones y se seleccionará la de menor precio.

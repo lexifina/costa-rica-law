@@ -1,0 +1,1 @@
+Artículo 3º—Administración. El manejo, custodia y la ejecución de las compras y pagos estará a cargo de la oficina de atención y protección a víctimas y testigos de delitos. La auditoría judicial, efectuará periódicamente y sin previo aviso arqueos y conciliaciones de este fondo.

@@ -1,0 +1,1 @@
+Artículo 21.—Cambio de Encargado. Cuando se de un cambio de encargado de administrar el Fondo, éste deberá entregarse mediante arqueo y conciliación, firmado por el que lo recibe, el que lo entrega y el responsable del fondo. Copia del documento generado del arqueo efectuado se remitirá a la Auditoría Judicial.

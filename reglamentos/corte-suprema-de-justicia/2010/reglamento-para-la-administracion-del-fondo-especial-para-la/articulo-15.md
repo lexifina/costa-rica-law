@@ -1,0 +1,1 @@
+Artículo 15.—Arqueo e informe. La Oficina de Atención y Protección a Víctimas y Testigos de delitos deberá rendir mensualmente un arqueo e informe del Fondo General a la Administración del Ministerio Público con copia a la Auditoría Judicial y al Departamento Financiero Contable.
