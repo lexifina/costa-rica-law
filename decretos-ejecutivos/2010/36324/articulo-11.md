@@ -1,0 +1,1 @@
+Artículo 11.—Identificación de zona controlada. En toda zona controlada deberán colocarse símbolos y rótulos de identificación y prevención de riesgo de acuerdo con lo que se indican en el anexo I del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—Exposición a nivel de suelo y edificio adyacente. Los cálculos de exposición a campos electromagnéticos deben ajustarse a lo contemplado en el apéndice II de la recomendación UIT K.52, emitida por la Unión Internacional de Telecomunicaciones y sus posteriores modificaciones.
