@@ -1,0 +1,20 @@
+Nº 36358-S
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En ejercicio de las facultades y atribuciones contenidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los numerales 25, 27 párrafo primero, 28 párrafo segundo, inciso b) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; los artículos 1º, 2º, 4º, 113 y 117 de la Ley General de Salud, Ley N° 5395 del 30 de octubre de 1973.
+Considerando:
+1°—Que es función del Estado velar por la protección de la salud de la población y garantizar el bienestar de los ciudadanos, no obstante ello no debe ser obstáculo para el establecimiento de condiciones de oportunidad y eficiencia en la atención de la salud pública así como elementos de competitividad que contribuya en el desarrollo de la actividad del país.
+2º—Que para garantizar a la población la obtención de medicamentos de buena calidad, se hace necesario realizar el registro de medicamentos.
+3°—Que la Ley Nº 5395, Ley General de Salud, en su artículo 117, permite la adquisición de medicamentos no registrados a la Caja Costarricense del Seguro Social y cualquier otra entidad estatal con funciones de salud pública o seguridad social. En caso de urgencia o de necesidad pública, ese Ministerio podrá autorizar la importación de medicamentos no registrados.
+4°—Que el mismo artículo 117 de la Ley General de Salud establece que podrán adquirir medicamentos no registrados, en cualquier momento o circunstancia instituciones como la Caja cuya provisión de medicamentos en forma expedita y oportuna es pilar fundamental en la gestión encomendada por el Estado, y que, de no cumplir con ella, se incurre en una grave falta de servicio que puede quebrantar de forma palmaria el derecho a la salud y a la vida de nuestra población.
+5º—Que mediante Decreto Nº 19981-S del 03 de octubre de 1990, publicado en La Gaceta Nº 202 del 25 de octubre de 1990, el Poder Ejecutivo publicó “Actualiza Normas Utilización Factores Coagulación Hemofílicos” en el cual se establece que es obligatorio que los fabricantes certifiquen que los hemoderivados de origen humano, con fines terapéuticos, que fabriquen, ofrezcan, vendan y provean, también están libres de anticuerpos del VIH.
+6°—Que considerando que la eficacia, calidad y seguridad de los productos que se importan para consumo nacional deben ser asegurados por el órgano competente para ello; dicho artículo debe entenderse como una excepción aplicable en circunstancias especiales, sin detrimento del objetivo que precisa regular y que consiste en un acceso expedito a los medicamentos por parte de las instituciones prestatarias de servicios de salud, razón por la cual es criterio del Ministerio de Salud, reglamentar el artículo 117 de la Ley supra citada.
+7º—Que al no existir a nivel internacional disposiciones que establezcan los requisitos para el registro de los productos alérgenos, no se tiene parámetros para ajustar la normativa nacional para realizar el registro sanitario y por tanto, es necesario permitir bajo condiciones especiales, la importación de tales productos.
+8º—Que la incidencia de enfermedades alérgicas en Costa Rica es muy alta comparada con la de otros países y por ello la terapia desensibilizante con medicamentos alérgenos es de gran valor para la salud pública, al ser la única que varía el pronóstico de la enfermedad.
+9°—Que existen en el país pacientes a los cuales es necesario prescribirles medicamentos que no se encuentran registrados ante el Ministerio de Salud, razón por la cual el Estado se ve obligado a establecer un procedimiento para garantizar a estas personas el tratamiento de sus enfermedades a través del acceso a esos medicamentos. Por tanto,
+DECRETAN:
+El siguiente:
+Reglamento para la autorización para
+la importación y adquisición de
+medicamentos no registrados
+Artículo 1º—Objeto y ámbito de aplicación. El presente reglamento tiene como objeto regular la adquisición e importación de medicamentos no registrados, cuyo acceso es fundamental para el tratamiento de enfermedades en algunos pacientes.

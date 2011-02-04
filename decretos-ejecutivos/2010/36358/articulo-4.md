@@ -1,0 +1,4 @@
+Artículo 4°—Autorizaciones especiales.
+4.1 El Ministerio podrá autorizar la importación y adquisición de medicamentos no registrados para un paciente o grupos de pacientes en casos justificados, durante el tiempo que dure el tratamiento, para lo cual deberá presentar ante la Dirección de Atención al Cliente del Ministerio de Salud: 1. Epicrisis suscrita por el médico prescriptor, con fecha de emisión no mayor de tres meses. 2. Receta del medicamento a autorizar 3. Copia simple del documento de identificación del paciente.
+4.2. De los medicamentos alérgenos:
+El Ministerio de Salud podrá autorizar la importación de medicamentos alérgenos a solicitud de los médicos alergólogos clínicos que se encuentren debidamente inscritos en el Colegio de Médicos de Costa Rica. Tal importación deberá hacerse a través de una droguería que cuente con el Permiso de Funcionamiento respectivo.

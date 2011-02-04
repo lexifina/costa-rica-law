@@ -1,0 +1,1 @@
+Artículo 6°—Vacunas. Al ser consideradas las vacunas por el Ministerio de Salud un bien público nacional, éste aprobará la importación de las vacunas adquiridas por el Fondo Rotatorio de la Organización Panamericana de la Salud, las veces que sea necesaria su adquisición, con la sola presentación de la solicitud.

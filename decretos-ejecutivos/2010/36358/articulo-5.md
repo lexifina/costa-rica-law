@@ -1,0 +1,1 @@
+Artículo 5°—De los hemoderivados. La Caja Costarricense del Seguro Social y las entidades estatales solicitantes, en el caso de que dentro de su formulación el producto a importar contenga algún hemoderivado de origen humano, deberán presentar el documento otorgado por el fabricante en el cual certifique que dicho producto está libre de anticuerpos del VIH y hepatitis B y C.
