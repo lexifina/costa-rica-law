@@ -16,3 +16,4 @@ Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF
 | 1 | 2008-12-19 | la propia norma |
 | 2 | 2008-12-19 | Reglamento 731 (2008-07-25) |
 | 3 | 2009-11-06 | Reglamento 816 (2009-11-06) |
+| 4 | 2011-02-04 | Reglamento 900 (2011-02-04) |
