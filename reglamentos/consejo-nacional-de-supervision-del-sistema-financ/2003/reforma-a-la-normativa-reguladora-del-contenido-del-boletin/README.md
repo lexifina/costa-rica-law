@@ -14,3 +14,4 @@ Reforma a la normativa reguladora del contenido del Boletín Financiero, Lista d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-26 | la propia norma |
+| 2 | 2011-02-04 | Reglamento 900 (2011-02-04) |
