@@ -14,3 +14,4 @@ Organización administrativa de las oficinas centrales del Ministerio de Educaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-05 | la propia norma |
+| 2 | 2011-02-07 | Decreto Ejecutivo 36451 (2011-02-07) |

@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34075
+(Este decreto fue derogado por el artículo 159 de "Organización Administraiva de las Oficinas Centrales del Ministerio de Educación Pública", aprobado mediante decreto ejecutivo N° 36451 del 7 de febrero del 2011)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE EDUCACIÓN PÚBLICA
 En ejercicio de las atribuciones conferidas en los artículos 11, 140 y 146 de la Constitución Política, 27, 59 y 113 de la Ley General de la Administración Pública, 1 y 7 de la Ley Orgánica del Ministerio de Educación Pública.
