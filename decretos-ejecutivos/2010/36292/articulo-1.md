@@ -23,6 +23,7 @@ Secretaria Técnico Medio Educación Diversificada ¢268.376.40 mensual
 Secretaria Diplomado de Educación Superior ¢357.216,28 mensual
 Secretaria Bachiller Universitario ¢405.167,82 mensual
 Secretaria Licenciado Universitario ¢486.218,04 mensual)
+(Nota de Sinalevi: Mediante resolución N° 01-2011 del 7 de febrero del 2011 del Consejo Nacional de Salarios, se acuerda incluir a los Jugadores de Fútbol de Segunda División, en el presente Decreto, fijándole un salario mínimo como Trabajadores Calificados de ¢8.193,77 por jornada)
 1b- Genéricos (por mes)
 Trabajadores no calificados ¢220.345,47
 Trabajadores semicalificados ¢237.353,28
@@ -48,3 +49,4 @@ Estibadores: ¢1,02 por caja de banano ¢63,30 por tonelada ¢269,97 por movimie
 Los portaloneros y los wincheros devengan un salario mínimo de un 10% más de estas tarifas.
 Taxistas en participación, el 30% de las entradas brutas del vehículo. En caso de que no funcione o se interrumpa el sistema en participación, el salario no podrá ser menor de ocho mil novecientos setenta y dos colones con noventa y ocho céntimos (¢8.972,98) por jornada ordinaria.
 Agentes vendedores de cerveza, el 2.45% sobre la venta, considerando únicamente el valor neto del líquido. Circuladores de periódicos, el 15% del valor de los periódicos de edición diaria que distribuyan o vendan.
+(Nota de Sinalevi: Mediante resolución N° 04-2010 del 20 de diciembre del 2010 del Consejo Nacional de Salarios, se acuerda incluir a la Secretaria Trabajador Calificado Genérico, Secretaria Técnico Medio Educación Diversificada, Secretaria Diplomado de Educación Superior, Secretaria Bachiller Universitario, Secretaria Licenciado Universitario, en el presente Decreto, en la lista clasificada de ocupaciones)
