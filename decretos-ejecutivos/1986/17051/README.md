@@ -13,3 +13,4 @@ Reglamenta Sección Educación Religiosa del Ministerio de Educación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-06-20 | la propia norma |
+| 2 | 2011-02-07 | Decreto Ejecutivo 36451 (2011-02-07) |
