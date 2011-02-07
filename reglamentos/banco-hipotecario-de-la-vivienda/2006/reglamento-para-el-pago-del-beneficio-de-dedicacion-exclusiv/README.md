@@ -14,3 +14,4 @@ Reglamento para el Pago del Beneficio de Dedicación Exclusiva en el Banco Hipot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-17 | la propia norma |
+| 2 | 2011-02-07 | Reglamento 11 (2011-02-07) |
