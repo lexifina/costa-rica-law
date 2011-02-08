@@ -1,0 +1,1 @@
+Artículo 6°—Trámite. Recibida la solicitud, la Presidencia Ejecutiva procederá en primera instancia a poner en conocimiento de la misma a la Junta Directiva o en su defecto remitirlo contra acuse de recibido a la jefatura del proceso de administración de bienes para lo de su cargo.

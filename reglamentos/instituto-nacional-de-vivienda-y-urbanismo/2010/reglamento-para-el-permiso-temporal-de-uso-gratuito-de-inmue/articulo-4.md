@@ -1,0 +1,8 @@
+Artículo 4°—Las funciones del Proceso de Administración de Bienes, será el órgano técnico del Instituto Nacional de Vivienda y Urbanismo, que dará el soporte necesario a la Presidencia Ejecutiva para elevar ante Junta Directiva la solicitud de los permisos temporales de uso de los inmuebles bajo la modalidad de convenio de cooperación interinstitucional, descritos en el artículo 2 del presente reglamento, serán las siguientes:
+(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 187 del 29 de setiembre de 2011)
+a) Recibir las solicitudes remitidas por la Presidencia Ejecutiva, para permisos temporales de uso de los inmuebles.
+b) Instruir al Proceso de Proveeduría para que proceda a efectuar la publicación respectiva.
+d) Debe acompañar las recomendaciones que estime pertinentes para el mejor uso de los inmuebles, y recomendar la suspensión o revocatoria del permiso cuando éstas no sean cumplidas a satisfacción, o se produzca algún uso indebido de los inmuebles.
+e) Llevar el control de las actividades autorizadas en cuanto a fechas y espacios, con la finalidad de procurar el uso adecuado de los inmuebles.
+f) Mantener un registro de los permisos temporales de uso concedidos, ordenados cronológicamente.
+g) Deberá para cada caso conformarse un expediente administrativo, debidamente foliado, en orden cronológico, conteniendo los estudios técnicos del área, certificación de propiedad, plano catastrado, recomendación para ante el superior en grado, solicitud de la entidad, acta de fiscalización, de recepción, el convenio de cooperación y cualquier otro documento que demuestre las actuaciones de conveniencia y de interés institucional que prevalecieron para otorgar el permiso del bien inmueble.
