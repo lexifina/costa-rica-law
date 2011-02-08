@@ -1,1 +1,0 @@
-Artículo 14.—Deber de cooperación. Todo funcionario del Instituto Costarricense de Turismo debe brindar amplia cooperación a la Institución, a los clientes, jefes y compañeros, con el fin de prestar un servicio de calidad.

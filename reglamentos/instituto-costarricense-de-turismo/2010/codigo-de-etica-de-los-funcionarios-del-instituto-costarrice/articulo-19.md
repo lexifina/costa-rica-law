@@ -1,1 +1,0 @@
-Artículo 19.—Los actos administrativos que se realicen con los clientes deberán ser analizados minuciosamente por los servidores del Instituto Costarricense de Turismo, con el propósito de asegurar la licitud de las operaciones y la idoneidad moral de aquellos.

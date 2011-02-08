@@ -1,1 +1,0 @@
-Artículo 5º—Deber de inspirar confianza a los clientes. El servidor del Instituto Costarricense de Turismo debe prestar sus servicios de forma tal, que inspire a los clientes confianza y credibilidad en la imagen de la Institución.
