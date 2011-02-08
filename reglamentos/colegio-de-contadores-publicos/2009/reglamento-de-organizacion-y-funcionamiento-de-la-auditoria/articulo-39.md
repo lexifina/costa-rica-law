@@ -1,0 +1,1 @@
+Artículo 39.—Universo auditable. Es obligación del Auditor Interno definir y mantener actualizado en el Manual de Procedimientos de Auditoría, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna.
