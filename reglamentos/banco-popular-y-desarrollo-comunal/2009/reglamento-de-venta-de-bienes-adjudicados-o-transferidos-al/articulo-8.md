@@ -1,2 +1,2 @@
-Artículo 8º—Traspaso al Patrimonio del Banco: Por razones de conveniencia institucional, y con previa justificación de la unidad respectiva con el aporte de un criterio técnico debidamente razonado, la Comisión de Venta de Bienes indicada en el inciso d) del artículo 20 (Nivel de Adjudicación), podrá autorizar que un .bien adjudicado o recibido en pago se traspase en firme como un activo del Banco.
-(Así reformado mediante sesión N° 4812 del 15 de diciembre de 2010)
+Artículo 8.—Traspaso al patrimonio del banco. Por razones de conveniencia institucional, y con previa justificación de la unidad respectiva con el aporte de un criterio técnico debidamente razonado, la Comisión de Venta de Bienes indicada en el inciso d) del artículo 20 (Nivel de Adjudicación), podrá autorizar que un bien adjudicado o recibido en pago se traspase en firme como un activo del Banco
+(Así reformado mediante sesión N° 4826 del 8 de febrero del 2011)

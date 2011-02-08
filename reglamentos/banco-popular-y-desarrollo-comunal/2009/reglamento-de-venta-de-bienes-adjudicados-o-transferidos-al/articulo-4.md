@@ -1,2 +1,2 @@
-Artículo 4º—Registro Individualizado. El Coordinador del Subproceso Administración de Bienes Adjudicados, así como el Gerente de la Sucursal o Centro de Servicios Financieros, según corresponda, deberá llevar un registro individualizado de cada bien o valor adjudicado en remate judicial o por dación en pago, el cual contendrá la documentación que se detalle en las normas de operación.
-(Así reformado mediante sesión N° 4812 del 15 de diciembre de 2010)
+Artículo 4.—Registro individualizado. El Coordinador del Subproceso Administración de Bienes Adjudicados, así como el Gerente de la Sucursal o Centro de Servicios Financieros, según corresponda, deberá llevar un registro individualizado de cada bien o valor adjudicado en remate judicial o por dación en pago, el cual contendrá la documentación que se detalle en las normas de operación.
+(Así reformado mediante sesión N° 4826 del 8 defebrero del 2011)
