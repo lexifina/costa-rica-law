@@ -1,1 +1,0 @@
-Artículo 16.-EI abogado que se contrate deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco o prohibición por afinidad con el sujeto pasivo de cobro, situación que comunicará por escrito a los representantes municipales en el término de cinco días hábiles.
