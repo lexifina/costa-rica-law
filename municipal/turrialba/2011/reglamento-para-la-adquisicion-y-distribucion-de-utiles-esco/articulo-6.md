@@ -1,0 +1,1 @@
+Artículo 6º—La distribución de útiles se hará de acuerdo al número de hijos o hijas estudiantes que tenga la persona trabajadora. En caso de existir sobrante de paquetes, estos deben quedar bajo la custodia del proveedor de la Municipalidad, para que los mismos sean aprovechados en la entrega del año siguiente.

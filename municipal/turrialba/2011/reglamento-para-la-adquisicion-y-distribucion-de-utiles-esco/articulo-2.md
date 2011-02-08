@@ -1,0 +1,1 @@
+Artículo 2º—La adquisición de los útiles escolares que se distribuirán a más tardar la última semana del mes de enero de cada año, será realizada por la Proveeduría institucional con fundamento en los procedimientos de contratación administrativa.

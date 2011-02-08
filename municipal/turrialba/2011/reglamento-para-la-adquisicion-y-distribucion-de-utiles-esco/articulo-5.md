@@ -1,0 +1,1 @@
+Artículo 5º—El beneficio establecido en el artículo 53 de la Convención Colectiva de Trabajo de la Municipalidad de Turrialba, regulado mediante el presente reglamento, cubre a las personas trabajadoras nombras interinamente, cuyos hijos e hijas tienen derecho a ser tomadas en cuenta para la distribución de útiles.
