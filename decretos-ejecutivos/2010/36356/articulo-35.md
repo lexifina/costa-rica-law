@@ -1,0 +1,1 @@
+Artículo 35.—Deberes. El Auditor Interno y demás funcionarios de la Auditoría Interna deberán cumplir con las obligaciones establecidas en el artículo 32 de la LGCI, así como aquellas que determine la normativa emitida por la CGR y regulaciones conexas; conforme el marco legal y técnico.

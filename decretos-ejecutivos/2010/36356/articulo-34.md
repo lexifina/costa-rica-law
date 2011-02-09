@@ -1,0 +1,1 @@
+Artículo 34.—Prohibiciones. El Auditor Interno y demás funcionarios de la Auditoría Interna deberán observar las prohibiciones establecidas en el artículo 34 de la LGCI, LCCEI y otras regulaciones conexas.

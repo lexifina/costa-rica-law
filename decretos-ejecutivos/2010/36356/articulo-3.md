@@ -1,0 +1,1 @@
+Artículo 3º—Responsabilidad sobre la elaboración del Reglamento. Corresponde al Auditor Interno la elaboración del presente Reglamento, quien podrá solicitar apoyo a las diferentes dependencias del SFE en caso de que se requiera.
