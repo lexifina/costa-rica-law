@@ -1,1 +1,0 @@
-Artículo 23.—Vigencia del período para recibir inscripciones. El periodo de vigencia se cierra en el momento que la Administración comunique que tiene debidamente contratadas las 22 empresas. Adicional a la publicación del Reglamento, la Administración dará las bases para la inscripción formal de la empresa, según lo establecido en el Artículo 12 del presente Reglamento.

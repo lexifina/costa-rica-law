@@ -1,1 +1,0 @@
-Artículo 17.—Conformación de la base de datos. Firme la aprobación de las solicitudes respectivas, la Proveeduría procederá a conformar la base de datos del registro de elegibles de empresas susceptibles a ser contratadas para prestar servicios PROGRAMACIÓN, SUPERVISIÓN, SEGUIMIENTO Y CONTROL de los proyectos de conservación vial de la red vial nacional.

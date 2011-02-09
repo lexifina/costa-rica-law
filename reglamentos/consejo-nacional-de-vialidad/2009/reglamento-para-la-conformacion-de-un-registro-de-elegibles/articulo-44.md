@@ -1,1 +1,0 @@
-Artículo 44.—La empresa deberá rendir los informes gerenciales mensualmente (por mes vencido). El plazo máximo para la entrega de dichos informes es de cinco días naturales al cierre del período de estimación mensual (último día de cada mes).

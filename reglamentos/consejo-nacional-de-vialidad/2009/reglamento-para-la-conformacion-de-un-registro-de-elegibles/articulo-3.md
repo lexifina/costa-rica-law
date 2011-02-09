@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente reglamento es aplicable para la contratación de los servicios de PROGRAMACIÓN, SUPERVISION, SEGUIMIENTO Y CONTROL de los proyectos de conservación vial de la Red Vial Nacional.

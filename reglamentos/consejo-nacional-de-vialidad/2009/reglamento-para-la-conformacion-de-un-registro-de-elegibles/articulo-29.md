@@ -1,2 +1,0 @@
-Artículo 29.—Admisibilidad del recurso. La Admisibilidad del recurso será dictada por el Proveedor. Será inadmisible el recurso de revocatoria que se interponga una vez fenecido el término de tres días.
-Igualmente se tendrá por inadmisible el recurso cuando sea interpuesto por una persona carente de interés legítimo, actual, propio y directo; o cuando adolezca de la indicación precisa de los motivos de su inconformidad.

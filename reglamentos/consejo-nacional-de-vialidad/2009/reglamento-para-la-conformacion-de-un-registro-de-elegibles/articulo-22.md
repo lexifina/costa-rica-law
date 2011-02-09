@@ -1,1 +1,0 @@
-Artículo 22.—De los controles al registro de elegibles. La auditoria interna del CONAVI deberá realizar un estudio para valorar el ejercicio del presente reglamento especial de contratación y pronunciarse con un dictamen, haciendo las observaciones y recomendaciones que considere convenientes para la optimización del mismo, cada año.

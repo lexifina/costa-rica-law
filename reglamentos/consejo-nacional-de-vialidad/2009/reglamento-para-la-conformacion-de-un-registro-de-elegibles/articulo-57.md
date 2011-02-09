@@ -1,1 +1,0 @@
-Artículo 57.—Aprobación del Reglamento por la Contraloría General de la República. El presente reglamento fue debidamente aprobado por el Consejo de Administración del CONAVI y autorizado por a Contraloría General de la República.
