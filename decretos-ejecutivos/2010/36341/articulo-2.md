@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónese al artículo 2º del Decreto Ejecutivo Nº 27763-MAG del 10 de marzo de 1999, publicado en el Alcance Nº 26 a La Gaceta Nº 68 del 9 de abril de 1999, el inciso 6.c.1, que en lo consiguiente se lea así:
+6.c.1. Para los envíos en importaciones de granos que se descargarán a granel (ya sea en sacos o grano suelto) en medios de transporte marítimo se aplica únicamente lo dispuesto en el ítem 6.c, esta tarifa incluye los servicios de inspección, muestreo, exámenes de laboratorio (residuos y diagnóstico), y transmisión al TIC@

@@ -1,0 +1,1 @@
+Artículo 5º—Para los envíos en importación de fruta de naranja a granel para industria se cobrará ¢ 130,00 por cada tonelada métrica del envío inspeccionado. Esta tarifa incluye los servicios de inspección, muestreo, exámenes de laboratorio (residuos y diagnóstico), y transmisión al TIC@.
