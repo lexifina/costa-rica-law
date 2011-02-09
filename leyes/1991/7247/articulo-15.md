@@ -1,14 +1,9 @@
 ARTICULO 15.- Las actividades que se citan a continuación, pagarán el impuesto de patente, conforme al criterio que se indica sobre cada una de ellas.
-a) Bancos y establecimientos financieros. (Casas de banca, de cambio, financieras y similares e instituciones aseguradoras, excepto los bancos estatales).
-Pagarán por cada trimestre, sobre ingresos por intereses brutos o comisiones o, por ambos, percibidos en el año anterior.
-Hasta el 15% ¢10.00 por ¢1.000.00
-Más del 15% ¢20.00 por ¢1.000.00
-Mínimo ¢3.000.00 trimestrales.
+a) Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 1650-11 del 09 de febrero de 2011, misma que "dimensiona los efectos de esta declaratoria, de manera que, con excepción del caso concreto que sirve de base a esta acción, respecto del cual la retroactividad es de principio, se consideran de buena fe los tributos cobrados e ingresados a la caja de la Municipalidad antes de la publicación en el Boletín Judicial del primer aviso de interposición de este proceso.”)
 b) Barberías, establecimientos de belleza estética física.
 (Atendidas por dos o más personas) pagarán conforme a lo dispuesto en los artículos 7 y 14 de esta Ley, en lo concerniente.
-c) Máquinas de juego, permitidas por ley.
-(En las que el usuario no perciba premios en dinero efectivo).
-Por cada máquina ¢ 400.00 trimestrales.
+c) Máquinas de juego, permitidas por ley. (En las que el usuario no perciba premios en dinero efectivo).
+Por cada máquina ¢400.00 trimestrales.
 ch) Billares.
 Por cada mesa ¢300.00 trimestrales.
 d) Por cada mesa ¢450.00 trimestrales.
@@ -28,5 +23,4 @@ Servicio intercantonal 300.00 c/u
 Servicio distrital 200.00 c/u
 Servicio de taxi 300.00 c/u
 Servicio de taxi carga 400.00 c/u
-h) Los lotes incultos en el área urbana pagarán trimestralmente ¢20.00 por metro lineal de frente.
-Quedarán exentos del pago de este impuesto los lotes que se mantienen debidamente cerrados y limpios de desechos, en el momento de la inspección correspondiente al trimestre del caso.
+h) Los lotes incultos en el área urbana pagarán trimestralmente ¢20.00 por metro lineal de frente. Quedarán exentos del pago de este impuesto los lotes que se mantienen debidamente cerrados y limpios de desechos, en el momento de la inspección correspondiente al trimestre del caso.
