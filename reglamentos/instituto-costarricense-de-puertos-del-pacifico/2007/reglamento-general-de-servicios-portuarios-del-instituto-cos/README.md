@@ -19,3 +19,4 @@ Reglamento General de Servicios Portuarios del Instituto Costarricense de Puerto
 | 4 | 2008-10-07 | Reglamento 3519 (2008-10-07) |
 | 5 | 2008-11-11 | Reglamento 3527 (2008-11-11) |
 | 6 | 2010-06-16 | Reglamento 3644 (2010-06-16) |
+| 7 | 2011-02-10 | Reglamento 3690 (2011-02-10) |

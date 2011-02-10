@@ -31,12 +31,16 @@ c) Certificado de Tributación Directa que se encuentra al día con los correspo
 impuestos.
 d) Cancelación anual del Canon correspondiente.
 e) Certificación al día de inscripción de la Empresa en el Registro Público.
-f) Lista del personal debidamente identificado indicando como mínimo Nº de cédula, nombre completo, nacionalidad, póliza del Instituto Nacional de Seguros y Caja Costarricense de Seguro Social; que ingresan a las instalaciones del puerto.
-g) Listado de los vehículos señalando marca, modelo, placa copia de la respectiva póliza del seguro del Instituto Nacional de Seguros al día acompañada del original para su verificación.
-h) Presentar constancia de que los equipos (herramientas y otras) utilizados en la realización de sus actividades están debidamente asegurados por el Instituto Nacional de Seguros, contra todo tipo de riesgos, tales como daños a la propiedad, o a las personas, etc.
+f) Lista del personal debidamente identificado indicando como mínimo Nº de cédula, nombre completo, nacionalidad, póliza de un ente acreditado por la SUGES y Caja Costarricense de Seguro Social; que ingresan a las instalaciones del Puerto.
+(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
+g) Listado de los vehículos señalando marca, modelo, placa, copia de la respectiva póliza de seguro al día de un ente acreditado por la SUGES acompañada del original para su verificación.
+(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
+h) Presentar constancia de que los equipos, herramientas y otras utilizados en la realización de sus actividades están debidamente asegurados por un ente acreditado por la SUGES, contra todo tipo de riesgos, tales como daños a la propiedad, o a las personas, etc.
+(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
 i) Presentar documento, debidamente autenticado donde se describen las actividades que realizará cada sujeto beneficiario. En caso de tratarse de Agencias de Viajes (Personas Jurídicas) con tours, paquetes, etc., pre-vendidos deberán de comunicarlo expresamente a la Dirección de Operaciones Portuarias, a fin que ésta coordine lo pertinente al momento de realizar el rol de operaciones.
 j) El Gerente o representante Legal de la empresa, o bien la persona física, a quien se le conceda el mencionado permiso de operaciones, será el responsable directo por los daños ocasionados a las propiedades del INCOP y a terceros dentro de las instalaciones por lo que adjuntará a la solicitud del permiso una fianza, la cual de previo a la ejecución de la presente normativa deberá ser definida de previo por la Dirección Financiera , en coordinación con el Departamento de Proveeduría y la Dirección Jurídica.
-k) Deberá presentar póliza de responsabilidad civil del Instituto Nacional de Seguros, por la suma correspondiente a causa de daños a la propiedad y a terceros ocasionados dentro de las instalaciones.
+k) Deberá presentar póliza de responsabilidad civil de un ente acreditado por la SUGES, por la suma correspondiente a causa de daños a la propiedad y a terceros ocasionados dentro de las instalaciones.
+(Así reformado el inciso anterior mediante sesión N° 3690 del 10 de febrero del 2011)
 l) Lugar o medio donde recibir futuras comunicaciones.
 m) Tratándose de microbuseros o taxistas que opten por un permiso para brindar transporte a los turistas en temporada de cruceros, deberán presentar además los siguientes requisitos.
 n) Nombre del propietario y/o chofer, número de cédula, número de placa, copia de la respectiva póliza del INS al día, permiso del ICT y del MOPT, licencia de conducir al día.
