@@ -1,6 +1,6 @@
 # Código de Minería
 
-Ley N° 6797 del 1982-10-04. SINALEVI, ficha 48839: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48839&param2=83774&param3=1>.
+Ley N° 6797 del 1982-10-04. SINALEVI, ficha 48839: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48839&param2=83701&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 15 | 2002-06-28 | Ley 8246 | 2002-04-24 |
 | 8 de 15 | 2008-01-01 | Ley 8508 | 2006-04-28 |
 | 9 de 15 | 2009-11-05 | Sala Constitucional, resolución 17155 (2009-11-05) | 2009-11-05 |
+| 10 de 15 | 2011-02-10 | Ley 8904 | 2010-12-01 |

@@ -1,0 +1,2 @@
+Artículo 8 bis.- No se otorgarán permisos ni concesiones para actividades de exploración y explotación de minería metálica a cielo abierto en el territorio nacional. Se establece que como excepción se otorgarán, únicamente, permisos de exploración con fines científicos y de investigación.
+(Así adicionado por el artículo 2° de la ley N° 8904 del 1° de diciembre de 2010, "Ley que Reforma Código de Minería y sus reformas ley para declarar a Costa Rica país libre de Minería Metálica a Cielo Abierto")
