@@ -7,5 +7,7 @@ c) Los permisos y concesiones otorgados que comprendan el perímetro de permisos
 ch) Los permisos o concesiones otorgados a personas extranjeras, físicas o jurídicas, que no cumplan con las exigencias previstas en esta ley, en el momento del otorgamiento.
 d) Los permisos y concesiones que no sean inscritos en el Registro Minero según lo estipula el artículo 88 de esta ley.
 e) Las concesiones de explotación no delimitadas en el terreno, de acuerdo con las condiciones y el plazo fijados en el artículo 82 de esta ley.
+f) Las concesiones otorgadas en contra de lo estipulado en el artículo 8 bis de esta Ley.
+(Así adicionado el inciso anterior por el artículo 3° de la ley N° 8904 del 1° de diciembre de 2010, "Ley que Reforma Código de Minería y sus reformas ley para declarar a Costa Rica país libre de Minería Metálica a Cielo Abierto")
 La nulidad podrá ser declarada por la Dirección de Geología, Minas e Hidrocarburos, de oficio o a petición de parte.
-(Modificada su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo pasó del 61 al 65)
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 61 al 65)
