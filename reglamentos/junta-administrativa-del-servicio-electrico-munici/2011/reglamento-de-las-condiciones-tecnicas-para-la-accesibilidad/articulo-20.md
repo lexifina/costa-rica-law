@@ -1,0 +1,1 @@
+Artículo 20.—Los Operadores o las empresas subcontratadas por éstos, deberán portar siempre la autorización emitida por JASEC, cuando realicen cualquier tipo de trabajo en su red de telecomunicaciones. Ante el incumplimiento de este requisito por parte del Operador, JASEC se encuentra facultada para ordenar la detención de los trabajos.

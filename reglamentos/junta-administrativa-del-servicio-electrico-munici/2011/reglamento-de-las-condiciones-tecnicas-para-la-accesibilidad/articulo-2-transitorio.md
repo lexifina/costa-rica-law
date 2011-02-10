@@ -1,0 +1,1 @@
+Transitorio II.—Los contratos escritos vigentes a la publicación de este reglamento, mantendrán hasta su fenecimiento las condiciones económicas en ellos contenidos. Las relaciones contractuales de hecho existentes, deberán formalizarse en el plazo de tres meses a partir de la publicación del presente reglamento.

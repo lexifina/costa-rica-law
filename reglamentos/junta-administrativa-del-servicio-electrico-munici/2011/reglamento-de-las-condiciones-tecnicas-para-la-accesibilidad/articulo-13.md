@@ -1,0 +1,2 @@
+Artículo 13.—Cualquier sustitución o modificación en la ubicación de postes para la instalación de la red de telecomunicación que requiera el Operador, será solicitada a JASEC. Es claramente entendido por las partes que toda sustitución de postes será aprobada y efectuada por JASEC de acuerdo a sus disposiciones técnicas. Los gastos que demande el trabajo serán cubiertos previamente por el Operador.
+Los postes que se requieran, así como los removidos, serán propiedad de JASEC, quedando desde el momento en que se instalen, integrados en forma automática a sus activos.

@@ -1,0 +1,3 @@
+Artículo 33.—Cada Operador que instale con previa autorización de JASEC un gabinete en la postería de la Red Eléctrica de JASEC, deberá pagar una tarifa anual inicialmente establecida en ¢ 5 671,00 (cinco mil seiscientos setenta y un colones).
+Esta tarifa será ajustada al inicio de cada año con previa autorización de la Junta Directiva de JASEC. Para el respectivo ajuste se deberá actualizar las variables utilizadas en la fórmula según las condiciones existentes en el entorno y a la estructura de costos de JASEC.
+El incremento anual de la tarifa, será de al menos la tasa de inflación obtenida en cada periodo, según la variación interanual que muestre el Índice de Precios al Consumidor (IPC) calculado por el Instituto Nacional de Estadísticas y Censos (INEC).

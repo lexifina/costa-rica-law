@@ -1,0 +1,1 @@
+Transitorio III.—Las entidades cuya infraestructura se encuentre instalada en la Postería de JASEC, sin haber solicitado autorización previa, deberán formalizar el respectivo contrato dentro del plazo de tres meses a partir de la publicación de este reglamento.

@@ -1,0 +1,2 @@
+Artículo 19.—Todos los vehículos utilizados deberán contar con rotulación alusiva al Operador para el que laboran, durante la ejecución de labores en la Postería de JASEC.
+En todo momento los Operadores o las empresas contratadas por estos deberán utilizar la señalización con simbología de precaución o peligro durante la ejecución de las obras. El Operador que incumpla este punto, deberá asumir la responsabilidad civil de los eventuales daños provocados a JASEC o terceros afectados.

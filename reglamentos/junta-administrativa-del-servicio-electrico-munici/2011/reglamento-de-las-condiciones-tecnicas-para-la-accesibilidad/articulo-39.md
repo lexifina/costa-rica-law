@@ -1,0 +1,1 @@
+Artículo 39.—Los Operadores que no cumplan con las disposiciones transitorias contenidas en este Reglamento, deberán desinstalar su infraestructura de telecomunicaciones. En caso que el Operador no acate la orden de desinstalación, JASEC procederá a realizar el desmantelamiento requerido, debiendo el Operador asumir el costo correspondiente.

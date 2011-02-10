@@ -1,0 +1,1 @@
+Artículo 6º—En las redes de telecomunicaciones instaladas sobre Postería de la red de distribución, se instalará un sistema de puesta a tierra en los lugares en que existan equipos activos de alimentación a 120/240VAC. El sistema de puesta a tierra deberá garantizar una resistencia no mayor a 25 ohmios.

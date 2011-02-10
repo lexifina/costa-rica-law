@@ -1,0 +1,1 @@
+Artículo 8º—Al realizar el tiraje del nuevo cableado el Operador, deberá tomar las medidas necesarias para garantizar que las redes de distribución eléctricas y los postes no sufran variaciones con respecto a las condiciones iniciales, para lo cual el Operador deberá acatar las recomendaciones técnicas eléctricas, mecánicas y estructurales emitidas por JASEC. (Ver anexo Nº 1).

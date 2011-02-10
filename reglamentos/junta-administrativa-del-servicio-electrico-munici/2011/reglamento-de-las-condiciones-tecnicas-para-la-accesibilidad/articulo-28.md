@@ -1,0 +1,1 @@
+Artículo 28.—El Operador deberá acatar los procedimientos que se anexarán al contrato de alquiler de postería, correspondientes al trámite necesario para la instalación de redes de telecomunicaciones en la red eléctrica de JASEC.

@@ -1,0 +1,1 @@
+Artículo 9º—Los operadores solamente podrán hacer uso de los postes, no así del resto de la infraestructura de la red eléctrica de JASEC, redes secundarias, aislamiento, transformadores, acometidas, bajantes, puesta de tierra u otros equipos que forman parte de la red de distribución.

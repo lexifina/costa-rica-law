@@ -1,0 +1,1 @@
+Artículo 16.—El Operador deberá finalizar la instalación de su red de telecomunicaciones en el plazo aprobado en la autorización emitida por JASEC y deberá tramitar la recepción de obra de ingeniería, dentro del plazo de quince días a partir de la conclusión de los trabajos, a efecto de cuantificar los cambios y verificar el cumplimiento de las observaciones.

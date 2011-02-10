@@ -1,0 +1,1 @@
+Artículo 29.—La instalación de dispositivos de grabación y trasmisión de imágines orientados a mejorar la seguridad ciudadana, será autorizada mediante convenios o alianzas estratégicas suscritas entre JASEC e instituciones públicas sin carácter lucrativo.

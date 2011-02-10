@@ -1,0 +1,1 @@
+Artículo 38.—Las condiciones económicas referentes al pago de la tarifa, contenidas en el Capítulo Cuarto “Tarifa de Accesibilidad a la Infraestructura”, y las sanciones correspondientes ante posibles incumplimientos estarán contempladas en el contrato a suscribir con cada Operador.

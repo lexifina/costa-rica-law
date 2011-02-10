@@ -1,0 +1,1 @@
+Artículo 17.—Cada Operador deberá colocar su identificación o distintivo con calcomanías, etiquetas, placas o grabado en todas sus líneas en cada poste y a lo largo de su red, el distintivo a utilizar deberá ser aprobado por JASEC. No se permitirá a los Operadores ningún tipo de publicidad en la infraestructura instalada en la red eléctrica de JASEC.

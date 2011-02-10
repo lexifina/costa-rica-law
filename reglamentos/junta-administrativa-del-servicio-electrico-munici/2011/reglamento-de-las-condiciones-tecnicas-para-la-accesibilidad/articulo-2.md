@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: El presente ordenamiento se aplicará en general a los operadores que soliciten la autorización para instalar su infraestructura de telecomunicaciones en la Postería ubicada en el área servida por JASEC.

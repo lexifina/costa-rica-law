@@ -1,0 +1,2 @@
+Artículo 24.—Previo al tiraje de un nuevo cableado, el Operador enviará a JASEC el diseño, impreso y digital, de la instalación que se quiere efectuar para su revisión y aprobación, 30 días hábiles antes de su instalación. La autorización o denegación del permiso será emitida en un plazo de 25 días hábiles.
+Tres días hábiles antes del inicio de la instalación del cableado el Operador informará por escrito a JASEC el inicio de los trabajos para la debida supervisión en el campo por parte de su personal técnico.

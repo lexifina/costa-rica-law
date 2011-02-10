@@ -1,0 +1,2 @@
+Artículo 21.—Los Operadores no podrán instalar gabinetes y/o reservas de cable en los postes colindantes o ubicados en el frente y en los costados de plazas, parques o sitios históricos valorados de interés público, con la finalidad de evitar la contaminación visual.
+Las previstas de fibra no podrán ser instaladas en los postes en los que ya existan rollos o dispositivos para reserva de fibra de otros Operadores.
