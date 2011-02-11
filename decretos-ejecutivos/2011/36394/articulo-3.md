@@ -1,0 +1,1 @@
+Artículo 3º—Ratificar la implementación de la oferta educativa del Programa de Diplomado de Bachillerato Internacional en el Liceo de Costa Rica, que hasta el momento se ha venido desarrollando en esa casa de enseñanza.

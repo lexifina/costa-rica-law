@@ -1,0 +1,1 @@
+Artículo 5º—Deróguese y déjese sin efecto el Decreto Ejecutivo Nº 32811-MEP del 14 de setiembre del 2005, debiéndose proceder según los alcances y declaraciones reguladas en las presentes disposiciones.

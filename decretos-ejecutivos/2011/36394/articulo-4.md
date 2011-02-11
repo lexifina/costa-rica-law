@@ -1,0 +1,1 @@
+Artículo 4º—Modifíquese el Decreto número cinco del seis de febrero del año mil ochocientos ochenta y siete “Fundación del Liceo de Costa Rica”, y en lo sucesivo, se declara al Liceo de Costa Rica institución de enseñanza secundaria para varones dentro del contexto de la oferta de educación pública diferenciada o uni-género.
