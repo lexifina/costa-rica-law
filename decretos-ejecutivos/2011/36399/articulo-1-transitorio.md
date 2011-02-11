@@ -1,0 +1,1 @@
+Transitorio I.—Aquellas solicitudes que se hubieren presentado con anterioridad a la vigencia de la presente reforma y estuvieren pendientes de resolver al momento de su publicación, deberán tramitarse conforme a la legislación vigente al momento de presentada la solicitud.
