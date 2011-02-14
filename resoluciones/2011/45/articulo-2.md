@@ -1,0 +1,1 @@
+2º—Se deja sin efecto la resolución RES-DGA-387-2010 de las ocho horas del día nueve de diciembre de dos mil diez y publicada en La Gaceta Nº 8 del 12 de enero de 2011. Adicionalmente se deja sin efecto lo indicado en la circular DNP-50-96 del 9 de setiembre de 1996.
