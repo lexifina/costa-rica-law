@@ -1,5 +1,0 @@
-Artículo 40.—Salvo en los casos en que este Reglamento determine un lapso diferente, los miembros del Concejo y el Alcalde, podrán hacer uso de la palabra para referirse al asunto en discusión previa autorización del Presidente, con un máximo de dos intervenciones, por un lapso de hasta cinco minutos la primera y de tres la segunda. Las intervenciones no pueden hacerse en forma consecutiva.
-Aquel orador que no hubiera consumido los cinco minutos en su primera intervención, podrá acumular el tiempo sobrante y consumirlo en la segunda.
-La Presidencia podrá solicitarle a quien se encuentre en el uso de la palabra, que se concrete al asunto en debate. En caso de renuencia podrá retirarle el uso de la palabra.
-Si no hay ningún asunto en discusión, la Presidencia no concederá el uso de la palabra.
-El control de las solicitudes para hacer uso de la palabra y el control de los períodos de tiempo correspondientes y los saldos que le queden a cada orador se efectuará mediante un medio electrónico. Mientras no se cuente con el medio electrónico, la Secretaría Municipal llevará el control manualmente.

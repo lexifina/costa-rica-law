@@ -1,2 +1,0 @@
-Artículo 101.—El contador municipal, de acuerdo con el articulo cincuenta y dos del Código Municipal, solo podrá ser suspendido o destituido de su cargo si existiera justa causa, la cual debe ser demostrada mediante la interposición de un procedimiento administrativo que garantice el derecho de defensa, y mediante acuerdo adoptado por una votación de dos tercios del total de los miembros del Concejo.
-(Así adicionado mediante sesión ordinaria N° 37-2010 del 13 de setiembre de 2010)

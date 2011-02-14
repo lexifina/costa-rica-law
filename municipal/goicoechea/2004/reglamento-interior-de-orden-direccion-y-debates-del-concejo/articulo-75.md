@@ -1,1 +1,0 @@
-Artículo 75.—Los dictámenes de comisión, una vez que han sido presentados a la Secretaría Municipal, serán ordenados, estrictamente, por su orden de ingreso y en ese mismo orden se pondrán a discusión en el Concejo. Para garantizar este orden, la Secretaría Municipal, llevará un libro de ingreso de dictámenes, debidamente foliado y autorizado por ella.

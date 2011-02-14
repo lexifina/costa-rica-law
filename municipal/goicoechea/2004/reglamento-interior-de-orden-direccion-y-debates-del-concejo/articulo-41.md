@@ -1,2 +1,0 @@
-Artículo 41.—Los miembros del Concejo podrán solicitar a la Presidencia, durante las sesiones, que se concedan recesos, los cuales podrán ser autorizados hasta por un máximo de treinta minutos en total, por cada sesión.
-Vencido el plazo del receso la Presidencia reiniciará la sesión, para lo cual, si fuere necesario, hará las sustituciones correspondientes para completar el quórum.
