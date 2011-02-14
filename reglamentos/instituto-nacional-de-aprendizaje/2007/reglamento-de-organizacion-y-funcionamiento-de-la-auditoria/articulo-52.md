@@ -1,2 +1,0 @@
-Artículo 52.—Autorización de libros.
-La Auditoría Interna fiscalizará periódicamente la efectividad del manejo, autorización y control de libros o registros relevantes y necesarios para el fortalecimiento del sistema de control interno.

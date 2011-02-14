@@ -1,2 +1,0 @@
-Artículo 75.—Cumplimiento de normas sobre atributos personales.
-El Auditor Interno y el Subauditor Interno deberán cumplir las normas sobre atributos dictadas en el Manual para el ejercicio de la Auditoría Interna en el Sector Público, especialmente la referida a que los trabajos de Auditoría deben realizarse con pericia y debido cuidado profesional, haciendo valer sus competencias con independencia funcional y de criterio, debiendo vigilar que su personal responda de igual manera.

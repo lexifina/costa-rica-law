@@ -1,2 +1,0 @@
-Artículo 26.—Remociones.
-La conclusión de la relación de servicio, por justa causa, del Auditor y el Subauditor Internos, deberá ser conforme al artículo 15 de la Ley Orgánica de la Contraloría General de la República y deberán cumplirse todas las formalidades del procedimiento y garantizar oportunidad suficiente de defensa en su favor, y demás requisitos del debido proceso. Asimismo deberá cumplirse con los lineamientos emitidos por la Contraloría General de la República. y los que emita a futuro.

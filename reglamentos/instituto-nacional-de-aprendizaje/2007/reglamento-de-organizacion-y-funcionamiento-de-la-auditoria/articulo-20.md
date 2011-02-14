@@ -1,2 +1,0 @@
-Artículo 20.—Estructura mínima.
-La estructura orgánica mínima con que deberá contar la Auditoría Interna del INA estará conformada por la Dirección de Auditoría (Auditor Interno y Subauditor Interno), los procesos de Fiscalización de Recursos Financieros, Administrativos y de Apoyo y el de Fiscalización del Planeamiento y Ejecución de la Formación y Capacitación, el Área de Tecnologías de Información y los niveles de asesoría y comités que se considere conveniente conformar, sean éstos permanentes o temporales, para tareas específicas.

@@ -1,2 +1,0 @@
-Artículo 49.—Servicios preventivos.
-Los servicios preventivos incluyen la asesoría, advertencia y autorización de libros. Estos servicios también son objeto de planificación anual, destinándose recursos para garantizar su cumplimiento.

@@ -1,2 +1,0 @@
-Artículo 72.—Formulación presupuestaria.
-Es competencia de la Auditoría Interna elaborar su propio proyecto de presupuesto anual, que se confeccionará de conformidad con el ordenamiento jurídico aplicable y los mecanismos de coordinación establecidos en el orden institucional para los procesos de formulación y control de la ejecución presupuestaria. Será dado a conocer a la Junta Directiva previamente a su incorporación al Presupuesto del INA para su aprobación.
