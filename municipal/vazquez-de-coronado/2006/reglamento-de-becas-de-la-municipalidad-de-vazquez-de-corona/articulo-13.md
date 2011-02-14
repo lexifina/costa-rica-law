@@ -1,2 +1,1 @@
-Artículo 13.—El dinero correspondiente a las becas será entregado en donde la Tesorería Municipal lo indique y por el mecanismo que la misma utilice para este fin, al padre, madre o encargado legalmente autorizado, en los primeros quince días del mes, contra la constancia mensual del centro de educación correspondiente comprobando la permanencia del estudiante.
-(Así reformado por acuerdo N° 019 tomado en sesión N° 132 del 3 de noviembre de 2008).
+Artículo 13.—El Concejo de Distrito, la Comisión de Educación y Cultura y la Administración se reservan el derecho de visitar el hogar de quien solicite el beneficio, con el fin de confirmar la información suministrada, para el otorgamiento de la beca.

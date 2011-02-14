@@ -1,2 +1,1 @@
-Artículo 7º—Los formularios se entregarán del 1 al 30 de noviembre de cada año y la recepción será en la Secretaría del Concejo Municipal del 01 de diciembre hasta el 5to día hábil de enero del año siguiente. Estos serán enviados al Concejo Municipal y trasladados mediante acuerdo a la Comisión de Educación y Cultura para que emita criterio.
-(Así reformado por acuerdo N° 019 tomado en sesión N° 132 del 3 de noviembre de 2008).
+Artículo 7º—La cantidad de formularios por entregar cada año se puede modificar mediante un acuerdo del Concejo Municipal y según la cantidad de becas por asignar.

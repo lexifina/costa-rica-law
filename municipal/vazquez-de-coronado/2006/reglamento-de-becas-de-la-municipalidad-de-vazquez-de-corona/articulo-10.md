@@ -1,10 +1,1 @@
-Artículo 10.—Se perderá el goce de la beca por cualquiera de los siguientes motivos:
-a. Retiro del o la estudiante del curso lectivo.
-b. Mala conducta durante el curso lectivo debidamente comprobada.
-c. Pérdida del curso lectivo por razones imputables a la responsabilidad del estudiante, a excepción de los beneficiarios discapacitados.
-d. El no retiro del efectivo de la beca durante dos meses consecutivos injustificadamente.
-e. Traslado de su domicilio fuera del cantón.
-f. Renuncia expresa al beneficio.
-g. Por beneficio de beca por cualquier otra institución o grupo organizado.
-h. Suministro de información falsa con el objeto de recibir el beneficio económico.
-i. Por inadecuado uso del beneficio debidamente comprobado.
+Artículo 10.—Los Concejos de Distrito deberán coordinar con los centros educativos de sus respectivos distritos, en caso de primaria o secundaria, con el propósito de hacer las recomendaciones correspondientes ante la Comisión de Educación y Cultura para la asignación de becas, de manera que haya una distribución geográficamente equitativa y se garantice la paridad de género al otorgar este apoyo municipal entre los casos más críticos de la zona.

@@ -1,2 +1,1 @@
-Artículo 18.—Este Reglamento deroga cualquier otra disposición que se le oponga, según lo estipula el Código Municipal.
-(Así adicionado por acuerdo N° 28 tomado en sesión N° 079 del 29 de octubre de 2007)
+Artículo 18.—Los estudiantes becados deberán notificar de inmediato a la Administración en caso de trasladarse de centro educativo.
