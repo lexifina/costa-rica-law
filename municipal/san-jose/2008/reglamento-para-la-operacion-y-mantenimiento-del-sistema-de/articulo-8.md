@@ -1,1 +1,0 @@
-Artículo 8º—Designación de la Unidad Técnica de Control Interno de la Municipalidad de San José. Se establece al Departamento de Monitoreo Organizacional (DMO), como la Unidad Técnica de Control Interno de la Municipalidad de San José y enlace oficial ante la CICI en esta materia.
