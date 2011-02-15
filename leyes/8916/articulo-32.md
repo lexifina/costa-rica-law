@@ -1,0 +1,2 @@
+Artículo 32 - Funciones del depositario
+El Director General de la UNESCO, en su calidad de depositario de la presente Convención, informará a los Estados Miembros de la Organización, los Estados que no son miembros, las organizaciones de integración económica regional mencionadas en el Artículo 27 y las Naciones Unidas, del depósito de todos los instrumentos de ratificación, aceptación, aprobación o adhesión contemplados en los Artículos 26 y 27 y de las denuncias previstas en el Artículo 31.
