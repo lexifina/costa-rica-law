@@ -1,0 +1,1 @@
+Artículo 12º— De la Secretaría Ejecutiva del Consejo Nacional Ambiental. Las funciones que el presente decreto establece para las Secretarías Técnicas, serán realizadas por la Secretaría Ejecutiva del Consejo Nacional Ambiental.
