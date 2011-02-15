@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión Institucional de Infraestructura establecerá las prioridades de actuación y determinará las vías de acción más eficaces y eficientes para la consecución del fin deseado, para lo cual deberá establecer el plan interno de trabajo debidamente estructurado.
