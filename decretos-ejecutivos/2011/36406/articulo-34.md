@@ -1,0 +1,1 @@
+Artículo 34.—De la Unidad de Enfermedades Congénitas: Es una unidad operativa que depende directamente de la Dirección Técnica. Es responsable de la vigilancia epidemiológica especializada de las malformaciones congénitas a nivel nacional, para lo cual ejecuta los procesos de vigilancia epidemiológica, enseñanza e investigación en su ámbito de competencia.

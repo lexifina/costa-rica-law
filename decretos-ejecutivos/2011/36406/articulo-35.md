@@ -1,0 +1,1 @@
+Artículo 35.—De la Unidad de Salud Oral: Es una unidad operativa que depende directamente de la Dirección Técnica. Es responsable de coordinar el Programa Nacional de Fluoruración de la Sal y de la vigilancia epidemiológica especializada de la salud oral, para lo cual ejecuta los procesos de vigilancia epidemiológica, enseñanza e investigación en su ámbito de competencia.

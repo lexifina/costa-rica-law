@@ -1,0 +1,1 @@
+Artículo 13.—De la Unidad de Desarrollo Estratégico Institucional: La Unidad de Desarrollo Estratégico Institucional es una dependencia staff de la Dirección General. Su objetivo consiste en apoyar a la Dirección General en los procesos de Planificación Institucional, Gestión del Control Interno, Fortalecimiento Institucional, Gestión de Calidad y Mercadotecnia Institucional.

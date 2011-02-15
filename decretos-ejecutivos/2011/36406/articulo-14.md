@@ -1,0 +1,1 @@
+Artículo 14.—De la Contraloría de Servicios: La Unidad de Contraloría de Servicios depende orgánicamente de la Dirección General. Su objetivo consiste en promover el mejoramiento continuo en la prestación de los servicios públicos, así como el acercamiento entre la institución y los usuarios.

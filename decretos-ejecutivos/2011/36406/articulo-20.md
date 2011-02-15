@@ -1,0 +1,25 @@
+Artículo 20.—De las funciones específicas de la Dirección Técnica:
+1. Velar porque los procesos técnicos sustantivos del INCIENSA se desarrollen de manera articulada y en armonía, asegurando su correcta operación y su constante ajuste a nuevos retos.
+2. Asegurar que las funciones sustantivas de la Institución actúen de forma sinérgica para el apoyo a la rectoría del Ministerio de Salud.
+3. Asegurar que el ejercicio de las funciones sustantivas tome en cuenta las necesidades sentidas y expectativas de los usuarios meta, y su grado de satisfacción con los servicios brindados.
+4. Ejercer un liderazgo proactivo y participativo, utilizando la transferencia de conocimientos, la programación de actividades y la supervisión capacitante como las principales herramientas para mejorar el desempeño institucional.
+5. Realizar las acciones necesarias a fin de apoyar los procesos de cambio para que éstos se den en forma proactiva y amigable para las funcionarias y funcionarios y se logre una organización capaz de adaptarse en forma permanente al entorno y a las necesidades de salud del país.
+6. Asegurar la disponibilidad de lineamientos, normativas y procedimientos actualizados y eficientes para la implementación apropiada de las funciones sustantivas del INCIENSA proponiendo a la Dirección General para que sean aprobados por el Consejo Técnico.
+7. Identificar las necesidades de actualización y gestionar los sistemas de información para la planificación, la vigilancia epidemiológica, el aseguramiento de calidad de las redes de laboratorio, el seguimiento de proyectos de investigación científica, manteniendo una base de datos actualizada de los productos generados por las funciones sustantivas del INCIENSA.
+8. Coordinar acciones dirigidas a fortalecer las capacidades institucionales para la puesta en práctica de las funciones sustantivas de la Institución.
+9. Garantizar que los sistemas de vigilancia epidemiológica basada en laboratorio y especializada respondan a las necesidades nacionales y den respuesta oportuna al perfil y prioridades de salud definidas por el Ministerio de Salud.
+10. Garantizar que los proyectos de investigación respondan a las prioridades nacionales definidas por el Ministerio de Salud.
+11. Asegurar que los procesos institucionales cuenten con los insumos requeridos y las condiciones de bioseguridad y calidad establecidas según las normativas y estándares predefinidos.
+12. Apoyar a la Dirección General y al Consejo Técnico en la consecución de fondos para el desarrollo de las funciones sustantivas de apoyo a la función rectora de Vigilancia de la salud, aseguramiento de la calidad de laboratorio, enseñanza e investigación en su ámbito de competencia.
+13. Identificar e impulsar el desarrollo de convenios y alianzas nacionales e internacionales, tendientes al desarrollo de la vigilancia epidemiológica, aseguramiento de la calidad, investigación y la enseñanza en su ámbito de competencia.
+14. Promover la transferencia del conocimiento generado por medio de la vigilancia epidemiológica y la investigación.
+15. Promover, asesorar, coordinar y participar en programas y proyectos estratégicos de investigación, regulación vigilancia epidemiológica y enseñanza en salud.
+16. Analizar la situación externa e interna de los procesos bajo responsabilidad de la dirección, con el fin de identificar necesidades y determinar prioridades de abordaje.
+17. Planificar las acciones a desarrollar, en el corto, mediano y largo plazo, para cumplir con las metas estratégicas de las funciones o procesos asignados a la Dirección.
+18. Proponer a la Dirección General las normas técnicas para el desarrollo de las funciones bajo su responsabilidad a nivel institucional.
+19. Asesorar técnicamente a los responsables institucionales que lo requieran, en el ejercicio de las funciones bajo su responsabilidad.
+20. Realizar la autoevaluación de los procesos bajo responsabilidad de la unidad organizativa, con el fin de identificar oportunidades de mejora y, de ser necesario, determinar las acciones correctivas requeridas.
+21. Gestionar oportunamente la provisión de los recursos humanos, bienes (muebles e inmuebles), servicios y recursos financieros requeridos para la correcta operación de la unidad organizativa, y garantizar el control, la custodia, el mantenimiento y el uso correcto, eficiente y equitativo de los mismos, siguiendo los lineamientos técnicos establecidos y aprobados por la Dirección General.
+22. Cumplir con los requerimientos administrativos propios de la administración pública para garantizar la correcta operación de la unidad organizacional.
+23. Realizar las actividades que les competen de los procesos: Planificación Intrainstitucional, Gestión Integral de la Información, Control Interno, Desarrollo Organizacional y Atención al Cliente Interno y Externo, siguiendo los lineamientos establecidos por la Unidad de Desarrollo Estratégico Institucional, la Unidad de Gestión Integral de la Información y la Unidad de Atención al Cliente.
+24. Ejecutar todas las demás funciones que les sean encomendadas por la Dirección General.

@@ -1,0 +1,1 @@
+Artículo 36.—De la Unidad de Salud y Nutrición: Es una unidad operativa que depende directamente de la Dirección Técnica. Es responsable de ejecutar investigaciones en temas prioritarios en salud pública y nutrición, así como la enseñanza derivada de su quehacer.

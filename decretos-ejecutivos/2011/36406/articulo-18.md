@@ -1,0 +1,1 @@
+Artículo 18.—De la designación de los miembros del Comité Ético Científico: La Dirección General nombrará a los miembros del Comité Ético Científico por un período de dos años, con posibilidades de ser reelegidos. La renovación de los nombramientos se realizará en forma parcial, con el fin de garantizar que siempre se encuentren nombrados miembros con la experiencia requerida.
