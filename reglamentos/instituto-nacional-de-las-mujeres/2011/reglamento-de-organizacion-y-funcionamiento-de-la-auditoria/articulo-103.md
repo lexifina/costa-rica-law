@@ -1,0 +1,1 @@
+Artículo 103.—Verificaciones adicionales. La Auditoría Internar en cumplimiento de sus funciones de fiscalización y control podrá realizar las verificaciones o constataciones que estime pertinentes sobre el registro de avance de implementación de acciones sobre resultados y sobre este realizar las pruebas que estime convenientes y necesarias.

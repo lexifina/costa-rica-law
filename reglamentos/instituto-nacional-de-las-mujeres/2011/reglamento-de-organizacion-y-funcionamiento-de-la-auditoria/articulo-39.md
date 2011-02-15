@@ -1,0 +1,1 @@
+Artículo 39.—Responsabilidades por el incumplimiento del plazo. Si un funcionario o funcionaria incumple el plazo establecido por la Auditoría Interna estará sujeto a las sanciones previstas en la Ley de Control Interno.

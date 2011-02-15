@@ -1,0 +1,1 @@
+Artículo 98.—Servicios preventivos. En el caso de los servicios preventivos, principalmente con respecto a las advertencias, se utilizará el mismo procedimiento descrito en este capítulo, con los mismos plazos y responsabilidades.
