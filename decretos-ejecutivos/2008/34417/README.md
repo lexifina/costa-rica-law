@@ -14,3 +14,4 @@ Declaratoria de interés público y conveniencia nacional del Proyecto Eólico l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-07 | la propia norma |
+| 2 | 2011-02-15 | Decreto Ejecutivo 36535 (2011-02-15) |
