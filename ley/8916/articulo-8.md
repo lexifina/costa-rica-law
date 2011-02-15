@@ -1,0 +1,4 @@
+Artículo 8 - Medidas para proteger las expresiones culturales
+1. Sin perjuicio de lo dispuesto en los Artículos 5 y 6, una Parte podrá determinar si hay situaciones especiales en que las expresiones culturales en su territorio corren riesgo de extinción, o son objeto de una grave amenaza o requieren algún tipo de medida urgente de salvaguardia.
+2. Las Partes podrán adoptar cuantas medidas consideren necesarias para proteger y preservar las expresiones culturales en las situaciones a las que se hace referencia en el párrafo 1, de conformidad con las disposiciones de la presente Convención.
+3. Las Partes informarán al Comité Intergubernamental mencionado en el Artículo 23 de todas las medidas adoptadas para enfrentarse con la situación, y el Comité podrá formular las recomendaciones que convenga.
