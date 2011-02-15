@@ -1,16 +1,23 @@
-Artículo 8º— Del Consejo Presidencial de Seguridad Ciudadana y Paz Social. El Consejo de Seguridad Ciudadana y Paz Social estará integrado por:
+Artículo 8º—Del Consejo Presidencial de Bienestar Social y Familia. El Consejo Presidencial de Bienestar Social y Familia estará integrado por:
 a) Quien ejerza la Presidencia de la República,
 b) Los Vicepresidentes de la República,
-c) El (la) Ministro (a) de Seguridad Pública y Gobernación y Policía,
+c) El (la) Ministro (a) de la Presidencia,
 d) El (la) Ministro (a) de Hacienda,
-e) El (la) Ministro (a) de la Presidencia,
-f) El (la) Ministro (a) de Planificación Nacional y Política Económica,
-g) El (la) Ministro (a) de Justicia y Paz,
-h) El (la) Ministro (a) de Relaciones Exteriores y Culto,
-i) El (la) Ministro (a) de Descentralización y Desarrollo Local,
-j) El (la) Ministro (a) de Cultura y Juventud,
-k) El (la) Ministro (a) de Deportes,
-l) El (la) Presidente (a) Ejecutivo (a) del Instituto Nacional de las Mujeres,
-m) El (la) Presidente (a) Ejecutivo (a) del Instituto Sobre Alcoholismo y Fármaco Dependencia.
-n) El (la) Director (a) de la Dirección Nacional de Desarrollo de la Comunidad.
-o) El (la) Ministro (a) de Bienestar Social y Familia
+e) El (la) Ministro (a) de Planificación Nacional y Política Económica,
+f) El (la) Ministro (a) de Educación Pública,
+g) El (la) Ministro (a) de Bienestar Social y Familia,
+h) El (la) Ministro (a) de Cultura y Juventud,
+i) El (la) Ministro (a) del Deporte,
+j) El (la) Ministro (a) de Descentralización y Desarrollo local,
+k) El (la) Ministro (a) de Salud,
+1) El (la) Ministro (a) de Trabajo y Seguridad Social,
+m)El (la) Ministro (a) de Vivienda y Asentamientos Humanos, en su doble condición de Ministro (o), y como presidente (a) de la Junta Directiva del Banco Hipotecario de la Vivienda (BANHVI),
+n) El (la) Presidente (a) Ejecutivo (a) de la Caja Costarricense de Seguro Social (CCSS),
+o) El (la) Director (a) de la Dirección Nacional de Desarrollo de la Comunidad (DINADECO),
+p) El (la) Presidente (a) Ejecutivo (a) del Instituto de Desarrollo Agrario (IDA),
+q) El (la) Presidente (a) Ejecutivo (a) del Instituto Nacional de Aprendizaje (INA),
+r) El (la) Presidente (a) Ejecutivo (a) del Instituto Nacional de la Mujer (INAMU),
+s) El (a) Presidente (a) de la Junta Directiva de la Junta de Protección Social (JPS),
+t) El (la) Presidente (a) Ejecutivo (a) del Patronato Nacional de la Infancia (PANI).
+u) El viceministro de Justicia que tenga a cargo la prevención del delito y la promoción de la paz.
+v) El (la) Director (a) de la Dirección General de Migración y Extranjería.

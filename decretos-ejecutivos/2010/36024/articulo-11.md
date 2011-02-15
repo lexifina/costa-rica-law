@@ -1,1 +1,1 @@
-Artículo 11º—Del Consejo Nacional Ambiental. Además de las labores señaladas por ley, se asigna al Consejo Nacional Ambiental, creado mediante ley 7554 del 4 de octubre de 1995, en lo que resulten compatibles, las labores que el presente decreto asigna a los Consejos Presidenciales, en materia ambiental.
+Artículo 11.—De la Secretaría Ejecutiva del Consejo Nacional Ambiental. Las funciones que el presente decreto establece para las Secretarías Técnicas, serán realizadas por la Secretaria Ejecutiva del Consejo Nacional Ambiental.

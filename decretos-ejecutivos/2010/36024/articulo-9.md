@@ -1,21 +1,20 @@
-Artículo 9º— Del Consejo Presidencial de Bienestar Social y Familia. El Consejo Presidencial de Bienestar Social y Familia estará integrado por:
+Artículo 9º—Del Consejo Presidencial de Competitividad e Innovación. El Consejo Presidencial de Competitividad e Innovación, estará integrado por:
 a) Quien ejerza la Presidencia de la República,
 b) Los Vicepresidentes de la República,
-c) El (la) Ministro (a) de la Presidencia,
-d) El (la) Ministro (a) de Hacienda,
+c) El (la) Ministro (a) de Hacienda,
+d) El (la) Ministro (a) de la Presidencia,
 e) El (la) Ministro (a) de Planificación Nacional y Política Económica,
-f) El (la) Ministro (a) de Educación Pública,
-g) El (la) Ministro (a) de Bienestar Social y Familia,
-h) El (la) Ministro (a) de Cultura y Juventud,
-i) El (la) Ministro (a) de Deporte,
-j) El (la) Ministro (a) de Descentralización y Desarrollo local,
-k) El (la) Ministro (a) de Salud,
-l) El (la) Ministro (a) de Trabajo y Seguridad Social,
-m) El (la) Ministro (a) de Vivienda y Asentamientos Humanos, en su doble condición de Ministro (o), y como presidente (a) de la Junta Directiva del Banco Hipotecario de la Vivienda (BANHVI),
-n) El (la) Presidente (a) Ejecutivo (a) de la Caja Costarricense del Seguro Social (CCSS),
-o) El (la) Director (a) de la Dirección Nacional de Desarrollo Comunal (DINADECO),
-p) El (la) Presidente (a) Ejecutivo (a) del Instituto de Desarrollo Agrario (IDA),
-q) El (la) Presidente (a) Ejecutivo (a) del Instituto Nacional de Aprendizaje (INA),
-r) El (la) Presidente (a) Ejecutivo (a) del Instituto Nacional de la Mujer (INAMU),
-s) El (a) Presidente (a) de Junta Directiva de la Junta de Protección Social (JPS), y
-t) El (la) Presidente (a) Ejecutivo (a) del Patronato Nacional de la Infancia (PANI).
+f) El (la) Ministro (a) de Comercio Exterior,
+g) El (la) Ministro (a) de Economía, Industria y Comercio,
+h) El (la) Ministro (a) de Agricultura y Ganadería,
+i) El (la) Ministro (a) de Obras Públicas y Transportes,
+j) El (la) Ministro (a) de Educación Pública,
+k) El (la) Ministro (a) de Ambiente, Energía y Telecomunicaciones,
+l) El (la) Ministro (a) de Ciencia y Tecnología,
+m) El (la) Ministro (a) de Turismo,
+n) El (la) Ministro (a) de Salud,
+o) El (la) Ministro (a) de Descentralización y Desarrollo Local,
+p) El (la) Ministro (a) de Justicia y Paz.
+q) El (la) Presidente (a) Ejecutivo (a) del Instituto Costarricense de Acueductos y Alcantarillados,
+r) El (la) Presidente (a) Ejecutivo (a) del Instituto Costarricense de Electricidad.
+s) El (la) Presidente (a) Ejecutivo (a) del Instituto Nacional de Aprendizaje.

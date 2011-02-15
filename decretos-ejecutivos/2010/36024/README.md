@@ -14,3 +14,4 @@ Creación de los Consejos Presidenciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-15 | la propia norma |
+| 2 | 2011-02-15 | Decreto Ejecutivo 36467 (2011-02-15) |

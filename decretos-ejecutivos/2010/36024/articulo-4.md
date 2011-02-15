@@ -1,4 +1,4 @@
-Artículo 4º— De la Secretaría Técnica. Para cada Consejo Presidencial habrá una Secretaría Técnica, dependiente de quien ejerza la Presidencia de la República.
+Artículo 4º—De la Secretaría Técnica. Para cada Consejo Presidencial habrá una Secretaría Técnica, dependiente de quien ejerza la Presidencia de la República.
 Serán funciones de las Secretarías Técnicas:
 a) Convocar, a instancia de quien ejerza la Presidencia de la República, a las sesiones del respectivo Consejo Presidencial.
 b) Elaborar en coordinación con quien ejerza la Presidencia de la República, el orden del día de las sesiones del respectivo Consejo Presidencial.

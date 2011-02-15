@@ -1,1 +1,1 @@
-Artículo 14º—Derogatoria. Se derogan todas las disposiciones anteriores que se opongan al presente decreto.
+Artículo 14.—De los representantes de los ministros. Los ministros que integran los diferentes Consejos Presidenciales, podrán designar como sus representantes en tales consejos a los viceministros, previa autorización de la Presidenta de la República. Se excluyen de esta disposición los ministros que por ley integran el Consejo Nacional de Seguridad Pública y el Consejo Nacional Ambiental.
