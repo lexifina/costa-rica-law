@@ -1,6 +1,0 @@
-Artículo 46.—Prohibiciones. El Auditor o Auditora Interna y los demás funcionarios y funcionarias de la Auditoría Interna, tendrán las siguientes prohibiciones:
-1) Realizar funciones y actuaciones de la administración activa, salvo las necesarias para cumplir con su competencia.
-2) Formar parte de un Órgano Director de un Procedimiento Administrativo.
-3) Ejercer profesiones liberales fuera del cargo, excepto para asuntos personales o en los de su cónyuge o conviviente, sus ascendientes, descendientes y colaterales, por consaguinidad y afinidad hasta tercer grado. Esta prohibición abarca cualquier profesión o profesiones que tenga el funcionario o la funcionaria. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
-4) Participar en actividades político-electoral, salvo la emisión del voto en las elecciones nacionales, municipales y cualquier otra convocada por el Tribunal Supremo de Elecciones.
-5) Revelar información sobre las auditorias o estudios especiales de auditoría que se estén realizando y principalmente sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios o funcionarias. Esta prohibición se mantendrá por el tiempo que dure el proceso administrativo o judicial correspondiente.

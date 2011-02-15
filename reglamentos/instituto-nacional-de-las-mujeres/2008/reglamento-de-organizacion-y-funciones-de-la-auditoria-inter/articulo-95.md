@@ -1,1 +1,0 @@
-Artículo 95.—Servicios Preventivos. En el caso de los servicios preventivos, principalmente con respecto a las advertencias, se utilizará el mismo procedimiento descrito en este capítulo, con los mismos plazos y responsabilidades.

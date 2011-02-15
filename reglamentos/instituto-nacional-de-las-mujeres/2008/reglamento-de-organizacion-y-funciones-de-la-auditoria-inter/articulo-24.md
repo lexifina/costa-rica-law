@@ -1,1 +1,0 @@
-Artículo 24.—Otras regulaciones. La Junta Directiva deberá establecer las disposiciones y regulaciones de tipo administrativo que le sean aplicables al Auditor o Auditora Interna. Estas deberán ser similares a los puestos de similar jerarquía. Estas regulaciones no podrán afectar la independencia o ámbito de control del Auditor o Auditora Interna.

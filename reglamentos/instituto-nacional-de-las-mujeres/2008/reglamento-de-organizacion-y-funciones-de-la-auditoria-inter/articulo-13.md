@@ -1,3 +1,0 @@
-Artículo 13.—Organización Interna. La Auditoría Interna es una sola dependencia funcional, se organizará y funcionará según el presente Reglamento.
-Corresponde al Auditor o Auditora Interna proponer la estructura organizativa y funcional de la Auditoría Interna,
-Esta Estructura debe ser debidamente documentada y aprobada por la Junta Directiva, todo de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, a efecto de garantizar entre otros, una administración eficaz, eficiente y económica de los recursos asignados, así como la efectividad en el cumplimiento de sus obligaciones legales y técnicas.
