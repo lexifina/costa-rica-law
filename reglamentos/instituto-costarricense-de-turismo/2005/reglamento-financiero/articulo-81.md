@@ -1,4 +1,2 @@
-CAPÍTULO VII
-Disposiciones finales
-Artículo 81.—
-(NOTA DE SINALEVI: De conformidad con la reforma hecha a este Reglamento mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008, el texto que contenía este artículo se encuentra en el artículo 78)
+Artículo 81.—La fecha máxima para presentar la liquidación de gastos de representación y o de actividades protocolarias y sociales será el sétimo día hábil posterior al evento, cuya fecha de realización ha de haberse consignado en el formulario Adelanto de Gastos. En lo que respecta a otros bienes y servicios la fecha máxima será el sétimo día hábil de haberse adquirido el bien o dado el servicio.
+(Así reformado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)

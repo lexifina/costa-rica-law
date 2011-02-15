@@ -1,2 +1,6 @@
-Artículo 76.—Cuando existe un adelanto de gastos y se toman vacaciones, autorizadas de previo, será requisito indispensable adjuntar al formulario de liquidación, copia de la orden de personal correspondiente o copia del formulario enviado a Recursos Humanos con las firmas respectivas, e indicarlo en la verificar que únicamente se está incluyendo los bienes o servicios autorizados de previo y que no constituyen violación a los procedimientos normales de liquidación y en caso de enfermedad o permiso, se adjuntará el comprobante respectivo. Para los casos de incapacidad por maternidad u otros casos similares en que sea previsible la incapacidad, será considerado como falta grave el hecho de acogerse a ella teniendo gastos pendientes de liquidar.
-(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)
+Artículo 76.—Para el reconocimiento del pago de los servicios, útiles, materiales y suministros diversos, necesarios para efectuar celebraciones y otra atención que se brinde a funcionarios o personas ajenas a la institución, que se originen en la celebración de recepciones o atenciones de carácter oficial, a personas o agrupaciones de interés para el Instituto, deberá cumplirse con los siguientes requisitos:
+1. Cargo y nombre de los funcionarios responsables del gasto.
+2. Nombre y firma del funcionario responsable del gasto.
+3. Motivo de la atención.
+4. Clase o tipo de atención.
+(Así reformado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)

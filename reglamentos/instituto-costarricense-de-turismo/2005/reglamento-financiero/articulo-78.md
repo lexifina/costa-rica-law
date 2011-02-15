@@ -1,4 +1,3 @@
-CAPÍTULO VII
-Disposiciones Finales
-Artículo 78.—El presente Reglamento entrará en vigencia a partir de su publicación en La Gaceta .
-(Así reformado en sesión No. 5535 de 12 de agosto de 2008).
+Artículo 78.—Todo adelanto de gastos para atenciones es de trámite exclusivo del funcionario a quien se le autorice, si se emplea de otra forma, se considerará falta grave y hará incurrir al responsable en las sanciones previstas en el artículo 53 del RAT.
+No se podrá atender exclusivamente a funcionarios del ICT quienes sólo en casos muy específicos podrán superar el número de personas atendidas.
+(Así reformado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)

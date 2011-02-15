@@ -1,3 +1,5 @@
-Artículo 74.—No está permitido utilizar los adelantos de gastos en fines distintos para los que se solicitaron.
-La presentación de la liquidación y la rendición de cuentas, fuera del tiempo concedido en este Reglamento, se tipifican como falta grave y obliga a la Administración, a exigir el reintegro inmediato
-(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)
+CAPÍTULO VI
+De los gastos de representación, artículos y gastos para
+actividades protocolarias y sociales y otros.
+Artículo 74.—El Presidente Ejecutivo y el Gerente, son los funcionarios autorizados para efectuar Gastos de Representación Institucionales y aquellos ubicados en la subpartida Actividades Protocolarias y Sociales sujetos a liquidación y verificación posterior. Por autorización expresa, podrán efectuar este tipo de gastos, los funcionarios de otros niveles, debiendo visarse la liquidación respectiva por quien dio el consentimiento. Asimismo, no se autoriza la compra de cigarrillos y el uso del licor debe ser en forma racional. Aquellos funcionarios que participen en atenciones y recepciones (cenas, bufetes, etc.), no pueden a la vez, hacer uso de la tarifa correspondiente que estipula el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, debiendo velar además, de que los funcionarios del Instituto, solo en casos muy específicos superen al número de personas atendidas.
+(Así reformado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)

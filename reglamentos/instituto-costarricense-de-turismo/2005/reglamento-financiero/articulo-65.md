@@ -1,6 +1,2 @@
-Artículo 65.—Los artículos y gastos de recepciones se definen como aquellas erogaciones que se originen en la celebración de recepciones o atenciones de carácter oficial, a personas o agrupaciones de interés para el Instituto, excepto aquellos que por su naturaleza pudiesen corresponder al grupo de servicios no personales. Esas atenciones no podrán ser en forma exclusiva a funcionarios de la propia institución. Para el reconocimiento de dichas erogaciones deberá cumplirse con los siguientes requisitos:
-1. Cargo y nombre de los funcionarios responsables del gasto.
-2. Nombre y firma del funcionario responsable del gasto.
-3. Motivo de la atención.
-4. Clase o tipo de atención.
-(Así reformado mediante acuerdo de Junta Directiva SJD- 156-2008, publicado en La Gaceta N° 113 del 12 de junio del 2008)
+Artículo 65.—Fondo de Caja Chica Nº 7 Oficina Regional Puntarenas. Se establece con un fondo de ¢150.000,00 (ciento cincuenta mil colones exactos). El cuidado y manejo de estos recursos estará a cargo de un funcionario delegado en ese puesto, quien será responsable directo de su correcto manejo en apego a este reglamento. Únicamente podrán tramitarse aquellas compras de bienes y servicios que no sobrepasen la suma de ¢60.000,00 (sesenta mil colones), quedando expresamente prohibido fraccionar compras que se pretendan hacer mayores de ese monto.
+(Así reformado mediante sesión ordinaria N° 5677 del 15 de febrero del 2011)
