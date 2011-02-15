@@ -1,1 +1,0 @@
-Artículo 16.—Entrega de la beca. Las becas serán entregadas personalmente al becado en la oficina de Tesorería Municipal con su respectiva identificación. En caso de ser menores de edad, deberá presentar el respectivo carné de la institución educativa en la cual realiza sus estudios.
