@@ -1,0 +1,4 @@
+Artículo 20.—De las disposiciones finales:
+a. Tanto los miembros del Comité Especial del FINADE como de la Unidad Técnica estarán obligados a cumplir con el deber de probidad establecido en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Nº 8422.
+b. Los miembros del Comité Especial del FINADE como de la Unidad Técnica aplicarán en su gestión los principios y las normas técnicas de control interno de acuerdo al artículo 4 de la Ley General de Control Interno Nº 8292.
+c. Las actividades de administración, disposición, remate y venta de bienes que se sujeten a lo dispuesto en el presente Reglamento, no gozarán, salvo disposición en contrario, de las exoneraciones previstas en la Ley Reguladora de todas las Exoneraciones Vigentes, su Derogatoria y Excepciones Nº 7293.

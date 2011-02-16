@@ -1,0 +1,2 @@
+Artículo 10.—De la venta de bienes a instituciones públicas: Esta modalidad aplica al momento que la Unidad Técnica reciba por una Institución Pública la solicitud de compra de un bien mueble o inmueble adjudicado.
+La Unidad Técnica presentará al Comité Especial del FINADE, la solicitud de autorización para la venta del bien a la institución pública, quien establecerá las condiciones para la venta del bien a la institución solicitante.

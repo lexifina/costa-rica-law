@@ -1,0 +1,3 @@
+Artículo 6º—De las funciones de la Unidad Técnica del FINADE según el presente Reglamento: De conformidad con el presente Reglamento y al amparo de la Carta de Entendimiento Nº 1 y sus Addendums, corresponde a la Unidad Técnica del FINADE:
+a) Prestar sus servicios al Comité Especial del FINADE, como una unidad especializada en el manejo técnico, legal, financiero, administrativo, operativo, tecnológico, de riesgo y su ejecución. Correspondiéndole realizar los informes y recomendaciones que requiera y le solicite el Comité Especial del FINADE para cumplir con las funciones determinadas en el presente Reglamento.
+b) Cualquier otra función que le asigne El Comité Especial del FINADE y el Fiduciario del FINADE para cumplir con lo dispuesto en el presente Reglamento.
