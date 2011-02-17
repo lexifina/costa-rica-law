@@ -1,0 +1,1 @@
+4º—Informar que el inventario de la empresa Beneficiaria, debe transmitirse al sistema informático a partir de la fecha de implementación del Procedimiento de Perfeccionamiento Activo y previo a cualquier exportación, venta local, donación o destrucción.

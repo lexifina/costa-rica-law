@@ -1,0 +1,1 @@
+2º—Las consultas relacionadas con la información solicitada en el punto 1, se atenderán en los teléfonos 25-22-91-87 y 25-22 91-55 o en los correos electrónicos: leandroam@hacienda.go.cr y barrantesaf@hacienda.go.cr.
