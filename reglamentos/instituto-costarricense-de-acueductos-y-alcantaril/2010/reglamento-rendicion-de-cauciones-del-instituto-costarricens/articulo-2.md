@@ -1,0 +1,1 @@
+Artículo 2º—Requisito legal obligatorio. La rendición de la caución será obligatoria y se debe incluir dentro del Manual de Cargas y Clases Institucionales del AyA, para todos aquellos y aquellas caucionantes mencionadas en el artículo Nº 1 del presente Reglamento, de conformidad a la naturaleza de su trabajo, grado de complejidad, responsabilidad y consecuencia del error.

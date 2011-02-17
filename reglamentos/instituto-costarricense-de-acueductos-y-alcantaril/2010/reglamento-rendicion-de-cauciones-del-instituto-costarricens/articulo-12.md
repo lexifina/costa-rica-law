@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad Administrativa. La Administración Activa, Gerencia General y el Director correspondiente deberá velar porque se cumpla con todo lo relativo a la rendición y vigencia de la respectiva caución.
