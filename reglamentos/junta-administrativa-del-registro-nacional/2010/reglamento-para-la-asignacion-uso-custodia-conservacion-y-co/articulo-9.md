@@ -1,0 +1,1 @@
+Artículo 9º—Acceso a llamadas internacionales. Únicamente el Presidente(a) de la Junta Administrativa del Registro Nacional, el Director(a) General y Subdirector(a) General, se encuentran autorizados para efectuar llamadas internacionales, por medio de la línea celular asignado, en razón de su cargo.
