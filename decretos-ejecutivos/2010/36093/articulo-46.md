@@ -1,0 +1,1 @@
+Artículo 46.—Los residuos peligrosos se regirán por lo señalado en el Reglamento sobre las características y el listado de los desechos peligrosos industriales y el Reglamento para el Manejo de los Desechos Peligrosos Industriales.

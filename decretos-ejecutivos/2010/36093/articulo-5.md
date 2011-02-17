@@ -1,0 +1,1 @@
+Artículo 5º—Todo gestor encargado de la gestión total o parcial de los residuos sólidos ordinarios deberá estar registrado de acuerdo a lo establecido en el Reglamento de Registro Sanitario de Establecimientos Regulados por el Ministerio de Salud.

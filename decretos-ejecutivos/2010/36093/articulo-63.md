@@ -1,0 +1,1 @@
+Artículo 63.—Se prohíbe a toda persona remover o extraer el contenido total o parcial de los recipientes para residuos sólidos ordinarios, una vez colocados en el sitio de recolección.

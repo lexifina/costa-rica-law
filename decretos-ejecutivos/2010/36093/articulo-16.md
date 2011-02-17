@@ -1,0 +1,1 @@
+Artículo 16.—Toda edificación para uso multifamiliar de cualquier tipo, institucional y comercial u otras que la municipalidad respectiva determine, tendrán un sistema de almacenamiento colectivo de residuos sólidos ordinarios que deberá considerar la separación de los residuos desde la fuente.

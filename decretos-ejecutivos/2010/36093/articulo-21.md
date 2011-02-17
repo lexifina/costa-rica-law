@@ -1,0 +1,1 @@
+Artículo 21.—Los productores, importadores ó distribuidores de bienes y servicios, están obligados a recibir los materiales de empaque y embalaje de los artículos y serán responsables de su almacenamiento y transporte al sitio de recuperación o tratamiento.

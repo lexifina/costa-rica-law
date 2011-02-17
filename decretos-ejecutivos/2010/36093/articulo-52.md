@@ -1,0 +1,1 @@
+Artículo 52.—Las estaciones de transferencia deberán contar con un botiquín de primeros auxilios rotulado y ubicado en un lugar limpio y seco, protegido de los cambios ambientales que afectan a los medicamentos. Se deberá verificar el estado y fecha de caducidad de los mismos.

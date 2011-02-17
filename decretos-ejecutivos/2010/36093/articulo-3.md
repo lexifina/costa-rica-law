@@ -1,0 +1,15 @@
+Artículo 3º—Definiciones: Para los efectos del presente reglamento se establecen las siguientes definiciones:
+a) Disposición final: Última etapa del proceso del manejo de los residuos sólidos en la cual son dispuestos en forma definitiva y sanitaria.
+b) Estación de Transferencia: Instalación para transferir los residuos sólidos de las unidades de recolección a unidades de mayor capacidad.
+c) Gestión integral de residuos sólidos ordinarios: Conjunto articulado de acciones regulatorias, operativas, financieras, administrativas, educativas, de planificación, monitoreo y evaluación para el manejo de los residuos sólidos ordinarios, desde su generación hasta la disposición final.
+d) Gestor de residuos: Persona física o jurídica, pública o privada, registrada y autorizada para la gestión total o parcial de los residuos sólidos ordinarios.
+e) Manejo de residuos: Conjunto de actividades técnicas y operativas de la gestión de residuos sólidos ordinarios que incluye: almacenamiento, recolección, transporte, valorización, tratamiento y disposición final.
+f) Residuo: Material sólido, semi-sólido, líquido o gaseoso, cuyo generador o poseedor debe o requiere deshacerse de él, y que puede o debe ser valorizado o tratado responsablemente, o en su defecto ser manejado por sistemas de disposición final.
+g) Residuo sólido ordinario: Residuo de origen principalmente domiciliario o que proviene de cualquier otra actividad comercial, de servicios, industrial, limpieza de vías y áreas públicas.
+h) Residuo de manejo especial: Son aquellos residuos sólidos ordinarios que por su volumen, cantidad, necesidades de transporte, condiciones de almacenaje o valor de recuperación requieren salir de la corriente normal de recolección de residuos sólidos ordinarios.
+i) Residuo peligroso: Son aquellos que por su reactividad química y sus características tóxicas, explosivas, corrosivas, radiactivas, biológicas, bioinfecciosas e inflamables, o que por su tiempo de exposición puedan causar daños a la salud y al ambiente.
+j) Residuo valorizable: Son aquellos residuos que pueden ser recuperados de la corriente de los residuos sólidos ordinarios para su valorización.
+k) Relleno sanitario: Es la técnica mediante la cual diariamente los residuos sólidos se depositan en celdas debidamente acondicionadas para ello, esparcen, acomodan, compactan y cubren. Su fin es prevenir y evitar daños a la salud y al ambiente, especialmente por la contaminación de los cuerpos de agua, de los suelos, de la atmósfera y a la población al impedir la propagación de artrópodos, aves de carroña y roedores.
+l) Tratamiento: Conjunto de operaciones, procesos o técnicas mediante las cuales se modifican las características de los residuos, lo que conlleva transformaciones físicas o químicas.
+m) Valorización: Conjunto de acciones asociadas cuyo objetivo es procurarle valor de los residuos para los procesos productivos mediante la recuperación de materiales o el aprovechamiento energético para la protección de la salud y el uso racional de los recursos.
+n) Vertedero: Es el sitio o paraje donde se depositan ilegalmente los residuos, sin técnica o mediante técnicas muy rudimentarias.

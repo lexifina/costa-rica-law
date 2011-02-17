@@ -1,0 +1,1 @@
+Artículo 44.—Para la recolección de residuos peligrosos generados en las unidades habitacionales, cada Municipalidad deberá emitir las indicaciones respectivas acerca de la forma en que estos serán recolectados.

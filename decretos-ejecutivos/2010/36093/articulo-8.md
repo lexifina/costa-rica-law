@@ -1,0 +1,1 @@
+Artículo 8º—La contratación de servicios para la gestión total o parcial de los residuos sólidos ordinarios, no exime a la municipalidad de su responsabilidad y por lo tanto, debe ejercer estricta vigilancia en el cumplimiento de las actividades contratadas.

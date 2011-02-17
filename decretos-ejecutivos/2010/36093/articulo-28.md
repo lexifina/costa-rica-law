@@ -1,0 +1,1 @@
+Artículo 28.—En la realización de eventos especiales, espectáculos y plazas públicas en los que acude el público en forma masiva, el ente organizador de ese evento, deberá disponer de un sistema de recolección y almacenamiento de los residuos generados.

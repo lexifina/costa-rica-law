@@ -1,0 +1,1 @@
+Artículo 67.—Queda prohibida la disposición de residuos sólidos ordinarios en los cuerpos receptores definidos en el Reglamento de Vertido y Reuso de Aguas Residuales, así como caños, alcantarillas, vías y parajes públicos y propiedades públicas y privadas no autorizadas para tal fin.

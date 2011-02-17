@@ -1,0 +1,1 @@
+Artículo 37.—Las actividades tendientes a la disposición final de residuos sólidos ordinarios deberán cumplir con lo establecido en el Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud vigente.
