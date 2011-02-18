@@ -13,4 +13,5 @@ Se hace saber que la Dirección General de Servicio Civil ha emitido las siguien
 - DG-052-2011. Modificación del Manual Descriptivo incluyendo la carrera de Licenciatura en Administración en Empresas con énfasis en Gestión Bancaria en las especialidades Administración (subespecialidades Negocios y Administración) y Formación Profesional (subespecialidad Instrucción, Núcleo Comercio y Servicios.
 - DG-053-2011. Modificación del Manual Descriptivo de Especialidades en la especialidad Gestión en Desastres, para de eliminar el rango de aplicación en las clases de: Enfermera 1, Médico Asistente General 1, Médico Especialista, Psicólogo Clínico 1.
 - DG-054-2011. Modificación de la Resolución DG-55-97 en el factor de “Requisitos” de las clases Oficinista de Servicio Civil 1 y 2 y el Manual Descriptivo de Especialidades del Régimen de Servicio Civil para crear la especialidad Administración de Bodegas
-- DG-066-2011 Modificación del artículo 5º de la del 26 de agosto del 2009, con el fin de incluir dentro del mismo, Vigilancia de Centro Educativo.
+- DG-066-2011 Modificación del artículo 5 de la Resolución DG-271-2009 del 26 de agosto del 2009, con el fin de incluir dentro del mismo, la clase titulada: Auxiliar de Vigilancia de Centro Educativo.
+(Así reformado el punto anterior mediante resolución SC-005-2011 del 18 de febrero del 2011)
