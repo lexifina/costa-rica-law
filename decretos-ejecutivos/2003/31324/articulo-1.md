@@ -9,4 +9,8 @@ II.—Que el artículo 4 de la Ley de la Administración Financiera de la Repúb
 III.—Que la concordancia entre el Plan Nacional de Desarrollo y el ejercicio presupuestario -particularmente en relación con sus ciclos de ejecución-, hace necesario revisar algunos aspectos relacionados con la emisión, vigencia y conveniencia del instrumento de desarrollo, de manera que le permitan adaptarse a las nuevas demandas de gestión institucional que el devenir de la actividad gubernamental impone, sin menosprecio de la conservación y permanencia de las propuestas de desarrollo a él incorporadas.
 IV.—Que es necesario reglamentar los procesos de elaboración, modificación y autorización del Plan Nacional de Desarrollo. Por tanto,
 DECRETAN:
-Artículo 1º—El Plan Nacional de Desarrollo es un instrumento permanente de gestión prospectiva para orientar, coordinar y dirigir dentro de un período gubernamental las acciones estratégicas de los órganos, entes y empresas del Estado -según su autonomía constitucional o legal- y los entes públicos no estatales que perciban recursos del Estado, para determinar las prioridades y responsabilidades en la realización de las metas y los objetivos propuestos.
+Artículo 1º—El Plan Nacional de Desarrollo es un instrumento permanente de gestión gubernamental pa
+a) definir políticas;
+b) orientar, coordinar y dirigir, dentro de un período gubernamental, las prioridades estratégicas de los órganos, entes y empresas del Estado -según su autonomía constitucional o legal- y de los entes públicos no estatales que perciban recursos del Estado; y
+c) determinar las prioridades y responsabilidades en la realización de las metas y los objetivos propuestos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36464 del 18 de febrero del 2011)
