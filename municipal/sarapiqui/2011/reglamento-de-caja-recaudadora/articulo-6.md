@@ -1,0 +1,1 @@
+Artículo 6º—De las copias de recibos. Las copias de los recibos cancelados serán retenidas por el tesorero para su correspondiente anotación en sus registros, una vez cumplida esta labor los enviará, en conjunto con el informe de caja a que se refiere el artículo siguiente, al departamento de contabilidad.

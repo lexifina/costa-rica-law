@@ -1,0 +1,1 @@
+Artículo 17.—De los suplentes. El alcalde deberá disponer de funcionarios de otros departamentos de la municipalidad debidamente capacitados e investidos para que suplan a las oficiales titulares de la plataforma en su ausencia. Dichos funcionarios deberán contar con la póliza de fidelidad otorgada por el I.N.S. o en su defecto, deberán rendir una garantía fiduciaria.

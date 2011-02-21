@@ -1,0 +1,1 @@
+Artículo 3º—Revisión del fondo fijo. Los saldos de fondo fijo serán revisados con la periodicidad que el Administrador Financiero-Tributario considere oportuno, sin necesidad de notificar previamente a las oficiales destacadas en la plataforma de servicios.

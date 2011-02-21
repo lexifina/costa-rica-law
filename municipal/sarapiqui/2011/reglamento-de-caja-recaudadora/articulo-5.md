@@ -1,0 +1,1 @@
+Artículo 5º—De la recaudación. Integrada la información al sistema computarizado, el cajero digitará el número del recibo, revisará las operaciones aritméticas del comprobante de ingreso, recaudará el dinero y finalmente firmará, sellará y entregará el original cancelado al contribuyente conservando la copia con sello de cancelado para su entrega a la tesorería.

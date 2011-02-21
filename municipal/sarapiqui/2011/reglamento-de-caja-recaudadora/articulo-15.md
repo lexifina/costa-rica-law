@@ -1,0 +1,1 @@
+Artículo 15.—Póliza. Las oficiales de la plataforma de servicios deberán contar con una póliza de fidelidad extendida por el Instituto Nacional de Seguros, cuyo monto se fijará de acuerdo con sus disposiciones internas. Igual deber de suscribir dicha póliza tendrá el tesorero, de conformidad con las disposiciones emitidas por la Contraloría General de la República.

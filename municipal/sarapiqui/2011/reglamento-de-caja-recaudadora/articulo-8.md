@@ -1,0 +1,1 @@
+Artículo 8º—Custodia del dinero y otros valores. Cada recinto o cubículo de la plataforma de servicios contará con una caja metálica de seguridad donde cada oficial de servicio pueda custodiar el dinero y los valores que para sus funciones tenga en su poder en horas hábiles. Fuera de éstas los ingresos deben quedar en la caja fuerte de la tesorería.
