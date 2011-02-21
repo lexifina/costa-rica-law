@@ -1,0 +1,1 @@
+Artículo 30.—Ubicación y responsable de custodia del Expediente: los expedientes estarán ubicados en la oficina del asistente de la Gestión de Cobro y es responsabilidad de éste funcionario la custodia del mismo.

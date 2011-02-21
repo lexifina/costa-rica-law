@@ -1,0 +1,1 @@
+Artículo 58.—Otras sanciones. La Municipalidad podrá realizarlos trámites ante el Colegio respectivo contra el profesional en derecho, en aquellos casos en que se demuestre negligencia o impericia en la tramitación de los procesos contratados.

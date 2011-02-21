@@ -1,0 +1,11 @@
+Artículo 32.—Condiciones para otorgar arreglos de pago: El arreglo de pago se otorgará por parte del responsable de la Unidad de Cobro, para lo cual ésta persona valorará las siguientes condiciones del sujeto pasivo:
+a) Monto adeudado. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto igual o mayor a la quinta parte del salario base de un oficinista 1 del Poder Judicial. De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente y la primera cuota deberá cancelarse al momento de formalizar el arreglo de pago para que el mismo sea efectivo. El plazo para la cancelación total de la obligación vencida, el cual no podrá exceder seis meses; salvo los casos especiales determinados por la gestora social mediante el estudio de la situación socio-económica del contribuyente.
+b) Formalización del arreglo de pago: se realizará mediante la Unidad de Cobro, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que confeccionará dicha Unidad para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que esta Unidad exija para tal gestión. El sujeto pasivo deberá presentar la siguiente documentación:
+o Completar la información del formulario “Solicitud de Arreglo de Pago” que le entrega la Municipalidad.
+o Presentar copia de la cédula física o de la cédula jurídica cuando se trate de sociedades; en este último caso, deberán presentar certificación de la personería jurídica, con no más de treinta días de expedida y la comprobación de que se encuentra facultada la persona que se presenta, para realizar el acto.
+o Certificación de que se encuentra al día en sus obligaciones con la Caja Costarricense del Seguro Social.
+Además de las anteriores el sujeto pasivo deberá cumplir con las siguientes condiciones:
+• Solicitar arreglo de pago, sobre una obligación vencida.
+• No tener en vigencia un arreglo de pago sobre la misma cuenta.
+• No haber incumplido por más de dos oportunidades con arreglos de pago anteriores.
+• Pagar los gastos administrativos en que se haya incurrido para gestionar el cobro, y en caso de existir, los honorarios del abogado externo o interno.
