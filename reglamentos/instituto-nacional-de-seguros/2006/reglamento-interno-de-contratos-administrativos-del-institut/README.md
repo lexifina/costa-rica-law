@@ -15,3 +15,4 @@ Reglamento Interno de Contratos Administrativos del Instituto Nacional de Seguro
 | --- | --- | --- |
 | 1 | 2007-02-20 | la propia norma |
 | 2 | 2007-02-20 | Reglamento 0 (2007-03-19) |
+| 3 | 2011-02-21 | Reglamento 9046 (2011-02-21) |
