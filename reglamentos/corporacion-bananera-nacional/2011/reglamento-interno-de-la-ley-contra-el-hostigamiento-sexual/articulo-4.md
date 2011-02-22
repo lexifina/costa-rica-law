@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento para atender las denuncias
+Artículo 4º—Recepción de las denuncias. La persona afectada que denuncia un caso de hostigamiento sexual presuntamente cometido por un trabajador de la empresa, cualquiera que sea su rango, deberá hacerlo en forma escrita ante la Comisión de Investigación, quien recibirá las denuncias, con la prueba que corresponda, mediante la secretaria de la Sección de Personal. Cuando la denuncia sea contra el Gerente General o algún director de la Junta Directiva, el eventual perjudicado podrá acudir directamente ante la Dirección Nacional de Inspección del Trabajo, de conformidad con el artículo 8° de la Ley contra el hostigamiento sexual en el empleo y la docencia.

@@ -1,0 +1,1 @@
+Artículo 10.—Comunicación al Ministerio de Trabajo. La Comisión de Investigación tiene la obligación de comunicar el resultado del procedimiento a la Dirección Nacional de Inspección del Trabajo del Ministerio de Trabajo y Seguridad Social.

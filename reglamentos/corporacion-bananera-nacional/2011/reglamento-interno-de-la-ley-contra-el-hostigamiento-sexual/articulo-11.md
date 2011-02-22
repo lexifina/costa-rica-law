@@ -1,0 +1,1 @@
+Artículo 11.—Apoyo a la Comisión de Investigación. La Comisión de Investigación podrá contar con apoyo para el pleno ejercicio de sus funciones de Asesoría Legal tanto interna como externa, en caso de que ésta sea requerida para resolver cualquier caso que se presentara en materia de acoso y hostigamiento sexual dentro de la organización.
