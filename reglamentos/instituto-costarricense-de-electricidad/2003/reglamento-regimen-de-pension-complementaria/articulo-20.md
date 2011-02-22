@@ -1,0 +1,3 @@
+Artículo 20.—Método de Costo Actuarial. El método de costo actuarial que se debe usar en la evaluación actuarial del beneficio del régimen de pensión es uno de determinación colectiva, basado en beneficios proyectados utilizando la edad alcanzada de los participantes y sin considerar el valor presente suplemental inicial. Además, se desea asignar los beneficios proyectados a los diferentes años calendario en cantidades que constituya un porcentaje nivelado de la planilla de salarios.
+El método incluye en su costo anual un implícito costo normal y un costo suplemental, diseñado para amortizar el implícito pasivo suplemental del plan.
+(Así adicionado mediante sesión N°5939 del 22 de febrero del 2011)

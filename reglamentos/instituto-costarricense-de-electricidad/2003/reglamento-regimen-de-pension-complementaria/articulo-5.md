@@ -1,6 +1,2 @@
-Artículo 5º—Derecho de pensión. Además de los requisitos estipulados en el artículo anterior, el derecho a pensión complementaria se supedita a un mínimo de años de cotización efectiva a este régimen según riesgo, de acuerdo con la siguiente tabla.
-Mínimo de años
-Riesgo de cotización
-INVALIDEZ 3 AÑOS
-VEJEZ 10 AÑOS
-MUERTE 2 AÑOS
+Artículo 5º—Derecho de Pensión. El derecho a pensión complementaria se supedita a un mínimo de diez años de cotización efectiva a este Régimen tanto para el riesgo de Vejez como de Invalidez.
+(Así reformado mediante sesión N° 5939 del 22 de febrero de 2011).

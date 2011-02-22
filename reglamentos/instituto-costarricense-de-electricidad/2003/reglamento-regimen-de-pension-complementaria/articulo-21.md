@@ -1,0 +1,3 @@
+Artículo 21.—Balance Actuarial. El Balance Actuarial es la comparación del activo y pasivo del régimen a la fecha de elaboración del balance. El activo incluye las provisiones existentes a esta fecha sumadas al valor presente actuarial de los ingresos futuros. El pasivo considera el valor presente actuarial de los beneficios que ofrece el régimen, tanto de los que se encuentran en curso de pago como de los futuros.
+El balance actuarial debe mostrar a una fecha determinada, la desviación probable respecto al punto de equilibrio financiero del plan como forma de comprobación del equilibrio o desequilibrio financiero actuarial así como la tasa anual del costo.
+(Así adicionado mediante sesión N°5939 del 22 de febrero del 2011)

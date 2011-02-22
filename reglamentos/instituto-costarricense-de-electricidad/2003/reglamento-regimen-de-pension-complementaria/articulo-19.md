@@ -1,3 +1,4 @@
 CAPÍTULO IX
-Sobre los aspectos generales
-Artículo 19.—Aspectos no regulados en la dotación del régimen. Los aspectos no regulados en este Reglamento, lo desarrollará la Junta Administrativa del Régimen de Pensiones Complementarias mediante los instructivos y manuales que se requieran, pero los mismos deberán ser sometidos a la aprobación del Consejo Directivo del ICE.
+De la evaluación actuarial
+Artículo 19.—Metodología Actuarial. El enfoque de la metodología para la evaluación actuarial del régimen de pensión debe basarse en uno conocido como “Valuación Actuarial” que se fundamenta esencialmente en un proceso de derivar el valor actuarial presente de los futuros pagos de beneficios establecidos
+(Así adicionado mediante sesión N° 5939 del 22 de febrero del 2011)

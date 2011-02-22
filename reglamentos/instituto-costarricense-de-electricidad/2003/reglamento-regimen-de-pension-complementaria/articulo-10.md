@@ -1,4 +1,6 @@
 CAPÍTULO IV
 Beneficio por muerte del pensionado
-Artículo 10.—Derecho del beneficiario. Mientras disfruten del beneficio de la pensión complementaria, los beneficiarios/as deberán presentar certificaciones que demuestren que reciben pensión del Régimen Ordinario o de cualquier otro Régimen Básico cada seis meses así como, certificaciones de estado civil en el caso de viudez.
-(Así reformado mediante sesión N° 5813 del 13 de noviembre de 2007).
+Artículo 10.—(Derogado mediante sesión N° 5939 del 22 de febrero del 2011)
+(Nota de Sinalevi: Mediante sesión N° 5939 del 22 de febrero del 2011, se indica eliminar este numeral y se sustituye por el siguiente transitorio: "...
+TRANSITORIO POR LOS 18 MESES
+Tanto los pensionados como los beneficiarios deben haber completado la presentación de todos los documentos de apertura que se soliciten para obtener el derecho de pensión complementaria. Los documentos solicitados durante el disfrute de la pensión complementaria también deben ser presentados en las fechas del periodo semestral que corresponda...")
