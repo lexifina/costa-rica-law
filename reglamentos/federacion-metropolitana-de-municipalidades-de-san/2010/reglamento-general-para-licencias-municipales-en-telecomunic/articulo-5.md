@@ -1,3 +1,4 @@
 CAPÍTULO II
 Atribuciones y facultades municipales
 Artículo 5º—Con las atribuciones y facultades conferidas por la normativa vigente corresponde a la administración municipal, conocer, valorar, fiscalizar y resolver las solicitudes de las Licencias Municipales.
+(Nota de Sinalevi: La Municipalidad de Zarcero anteriormente denominada Municipalidad de Alfaro Ruíz, mediante sesión ordinaria N° 37 del 27 de setiembre de 2010 y acuerdo publicado en La Gaceta N° 46 del 7 de marzo de 2011, dispuso lo siguiente: "...No se deberá instalar obras de infraestructura referente a torres de telecomunicaciones a menos de 250 metros medidos en forma radial de centros de población de salud, hospitales, clínicas, hogares de ancianos, centros de educación, templos, o en centros de población (área residencial)")
