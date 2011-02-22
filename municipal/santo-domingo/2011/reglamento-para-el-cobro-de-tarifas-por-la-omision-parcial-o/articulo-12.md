@@ -1,0 +1,1 @@
+Artículo 12º—El Concejo Municipal y la administración deberán planificar para que en cada ejercido presupuestario y de forma anual, se determine un monto adecuado para que se cuente con el contenido económico necesario para la realización de las obras por contrato de construcción o de prestación de servidos, de tal forma que se puede cumplir con lo indicado en este capítulo.

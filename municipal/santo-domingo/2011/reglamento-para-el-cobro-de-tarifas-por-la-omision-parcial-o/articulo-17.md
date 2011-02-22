@@ -1,0 +1,1 @@
+Artículo 17º—La Municipalidad revisará y actualizará cada mes de enero los precios que determinen el costo total de los trabajos que se deban ejecutar en labores de construcción, reconstrucción y restauración de aceras y de otras labores indicadas en los artículos anteriores y será públicados anualmente conforme al presente reglamento.

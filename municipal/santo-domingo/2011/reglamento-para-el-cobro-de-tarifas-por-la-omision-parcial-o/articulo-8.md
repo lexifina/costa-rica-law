@@ -1,0 +1,1 @@
+Artículo 8º—Transcurrido este plazo y de comprobarse el incumplimiento de las obligaciones indicadas en la notificación (señalada en el artículo anterior), se trasladará copia del informe al Departamento de Gestión de Cobros para que incluya la multa de inmediato para generar el monto correspondiente en el cargo del trimestre.

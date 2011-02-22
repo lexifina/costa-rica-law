@@ -1,0 +1,1 @@
+Artículo 16º—En caso de que no se tenga capacidad por aspectos técnicos, disponibilidad de mano de obra y/o así lo determine razonadamente la Administración Superior, se procederá a la contratación de los servicios conforme a los registros de la Proveeduría Municipal, de acuerdo a los procedimientos legales y al contenido presupuestario.

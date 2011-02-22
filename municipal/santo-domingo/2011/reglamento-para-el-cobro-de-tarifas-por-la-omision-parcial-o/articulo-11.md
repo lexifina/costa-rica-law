@@ -1,0 +1,1 @@
+Artículo 11º—Cuando se trate de las omisiones incluidas en los capítulos anteriores de este Reglamento y la municipalidad haya conocido por cualquier medio la situación de peligro, la misma podrá suplir la inacción del propietario, previa prevención al munícipe conforme al debido proceso sin perjuicio de cobrar el precio indicado en los párrafos posteriores.

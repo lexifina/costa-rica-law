@@ -1,0 +1,1 @@
+Artículo 28º—El Concejo procederá a pronunciarse sobre el fondo del asunto, por lo que de proceder en conformidad con el planteamiento original del proyecto o con las modificaciones valoradas y aceptadas finalmente ya incluidas, se publicará en La Gaceta.

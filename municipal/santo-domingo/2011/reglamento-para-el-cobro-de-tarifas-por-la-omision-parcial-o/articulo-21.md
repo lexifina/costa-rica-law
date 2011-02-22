@@ -1,0 +1,1 @@
+Artículo 21º—Se prohíbe que se realicen obras de cualquier tipo en las calles, en las calzadas y/o caminos públicos del cantón, sin autorización por escrito de la Municipalidad y con las recomendaciones técnicas (niveles, pendientes, etc.) del caso por parte de funcionarios municipales competentes.

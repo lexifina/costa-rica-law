@@ -1,0 +1,33 @@
+MUNICIPALIDAD DE SANTA DOMINGO
+Artículo tercero: Informe del Señor Alcalde
+1º—El Concejo conoce la moción presentada por el señor Alcalde, tendiente a que se apruebe el Reglamento para el Cobro de Tarifas por la Omisión Parcial o Total de los Deberes de los Propietarios y/o Poseedores de Bienes Inmuebles, del cantón de Santo Domingo de Heredia y considerando: Que mediante acuerdo de la sesión número 179-2010, de fecha 12 de abril de 2010, Artículo Tercero, Inciso 2.- a.- El Concejo dispuso iniciar el trámite de aprobación del Reglamento para el Cobro de Tarifas por la Omisión Parcial o Total de los Deberes de los Propietarios y/o Poseedores de Bienes Inmuebles, del cantón de Santo Domingo de Heredia, y dispuso la publicación del respectivo Proyecto en el Diario Oficial La Gaceta 130 de fecha 6 de julio de 2010, que transcurrido el plazo para la consulta pública no se presentó ninguna objeción u observación al texto del reglamento; Por tanto: Se aprueba el Reglamento para el Cobro de Tarifas por la Omisión Parcial o Total de los Deberes de los Propietarios y/o Poseedores de Bienes Inmuebles dentro de la Jurisdicción Territorial del cantón de Santo Domingo de Heredia, cuyo texto dirá:
+Proyecto de Reglamento a los artículos 75 y 76 del Código Municipal para el cobro de tarifas por la Omisión Parcial o Total de los deberes de los propietarios y/o poseedores de Bienes Inmuebles, del cantón de Santo Domingo de Heredia.
+Se presenta al Concejo Municipal el Proyecto de Reglamento, para su análisis, revisión legal, publicación en el Diario Oficial, puesta en consulta a los interesados y su posible aplicación.
+Disposiciones Generales
+El Concejo Municipal, en conformidad con lo indicado en tos artículos 169 y 170 de la Constitución Política, de los artículos: 4, inciso a), 13, inciso c), 43, 68, 75 y 76 del Código Municipal, así como en atención de la Ley de Planificación Urbana, la Ley y el Reglamento de Construcciones y la Ley General de Caminos Públicos, Ley de Igualdad de Oportunidades, la Ley Nº 7898 de Modificación de los artículos 75 y 76 del Código Municipal y Legislación conexa, y en uso de sus atribuciones, dicta el presente Proyecto de Reglamento, que se regirá de la siguiente forma:
+CAPÍTULO 1
+De las definiciones
+Artículo 1º—Para efectos de interpretación y aplicación del presente reglamento, se entenderá por:
+1. Acera: Parte de la vía pública, normalmente ubicada en sus orillas, que se reserva para el tránsito peatonal.
+2. Alcaldía: Representante legal, electo popularmente, de la Municipalidad de Santo Domingo.
+3. Alineamiento: Línea fijada por la Municipalidad o por el Ministerio de Obras Públicas y Transportes. El alineamiento o línea de propiedad es aquella línea que divide el derecho de vía (establecido para cada zona) o propiedad pública y la propiedad privada, en donde normalmente se colocan los cerramientos frontales.
+Esta determinado en conformidad con el derecho de vía oficial del lugar
+4. Calle pública: Cualquier vía que se encuentre aceptada o autorizada por la municipalidad, que se encuentre en los mapas oficiales y cumpla con los requisitos y la legislación correspondiente y que permita el libre transito de vehículos automotores o similares y de los peatones.
+5) Calzada: Parte de la calle destinada primordialmente para el tránsito de vehículos, comprendida entre cordones y caños, cunetas o zanjas de drenaje.
+6) Concejo Municipal: Concejo Municipal de la Municipalidad de Santo Domingo.
+7) Construcción: Arte de crear o construir toda estructura que se fija o incorpora en un terreno; incluye obras de edificación, reconstrucción, alteración o ampliación que impliquen permanencia.
+8) Construcción, reconstrucción y restauración de aceras: Realizar las obras necesarias en las secciones de la vía pública de uso peatonal para que se permita el libre e igualitario tránsito de las personas, por medio de nuevos espacios, de la recuperación de los existentes, así como en consideración del ornato del cantón en las áreas de interés, en cumplimiento de los requerimientos técnicos del caso.
+9) Cordón y caño: Desagüe pluvial que conforma el límite entre la calzada de la calle y las franjas verdes y/o la acera.
+10) Costo efectivo: La suma del costo de los materiales, la mano de obra, el uso de equipo y suministros, más un diez por dentó de utilidad, de conformidad con el Artículo 74 del Código Municipal.
+11) Derecho de vía: El ancho total de la carretera, calle, camino, sendero, servidumbre, esto es la distancia entre las líneas de propiedad incluyendo en su caso, calzadas, franjas verdes y/o aceras.
+12) Frente de lote: Es la longitud de la línea frontal de demarcación de la propiedad.
+13) Instalación de canoas y bajantes frente a vía públicas: Es la colocación de dichos elementos de detalle constructivo, en edificios y edificaciones privadas.
+14) Limpieza de escombros en vías públicas: Es el proceso de mantenimiento de las áreas públicas que enfrentan propiedades privadas o públicas, mediante la eliminación de objetos abandonados y todo lo que impida el libre paso, la visibilidad o afecte el ornato del lugar.
+15) Limpieza de lotes: Dar mantenimiento en lo que se refiere a la chapea de la vegetación, matorrales y/o similares, la eliminación de escombros y desechos sólidos tradicionales y no tradicionales, así como la disposición de los mismos en lugares autorizados.
+16) Línea de propiedad: La que demarca los límites de la propiedad particular con relación a otras propiedades o áreas de uso público.
+17) Lote: es el terreno deslindado de las propiedades vecinas con acceso a uno a más senderos o vías. Puede ser de uso privado, público, comunal o declarado de algún tipo de interés.
+18) Multa: Tarifa a cobrar por la municipalidad a los propietarios omisos de sus deberes y que corresponderá al precio que se cobrará por el servicio u obra que deba ejecutar la municipalidad, ante la omisión de los propietarios de los inmuebles ubicados en el cantón.
+19) Municipalidad: (Municipalidad de Santo Domingo): Es la persona jurídica estatal con jurisdicción territorial, a quien corresponde la administración de los servidos e intereses locales, con el fin de promover el desarrollo integral del cantón.
+20) Poseedor: Quién ejerce la posesión pacífica de un bien inmueble.
+21) Propietario: La persona física o jurídica que ejerce el dominio sobre bienes inmuebles mediante escritura pública.
+22) Vía pública. Es todo terreno de dominio público y de uso común, que por disposición de la autoridad administrativa se determine el libre tránsito de conformidad con las leyes y reglamentos de planificación, incluye aquel terreno que de hecho este destinado ya a ese uso público.
