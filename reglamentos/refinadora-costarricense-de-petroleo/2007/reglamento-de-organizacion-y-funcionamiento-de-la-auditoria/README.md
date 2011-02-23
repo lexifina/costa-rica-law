@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de RECOPE 
 | --- | --- | --- |
 | 1 | 2007-08-28 | la propia norma |
 | 2 | 2009-10-07 | Reglamento 4395 (2009-10-07) |
+| 3 | 2011-02-23 | Reglamento 4526 (2011-02-23) |
