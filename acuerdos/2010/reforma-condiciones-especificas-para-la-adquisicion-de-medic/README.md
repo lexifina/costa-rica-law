@@ -14,3 +14,4 @@ Reforma Condiciones específicas para la adquisición de medicamentos denominado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-09 | la propia norma |
+| 2 | 2011-02-23 | Acuerdo 0 (2011-02-23) |
