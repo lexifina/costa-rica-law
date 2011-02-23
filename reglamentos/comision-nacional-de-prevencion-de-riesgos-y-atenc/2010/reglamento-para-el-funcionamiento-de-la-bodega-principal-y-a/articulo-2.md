@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: El presente reglamento será aplicable a la Bodega Principal y otras bodegas existentes o que en el futuro se llegaran a conformar de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE).

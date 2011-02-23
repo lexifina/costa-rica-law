@@ -1,0 +1,1 @@
+Artículo 47.—Para este caso se debe asignar un código especial en el sistema automatizado, para efecto de conciliación de movimientos entre las diferentes bodegas y para evitar duplicidad de registros (que no originen aumentar la cantidad ni el costo de inventario).

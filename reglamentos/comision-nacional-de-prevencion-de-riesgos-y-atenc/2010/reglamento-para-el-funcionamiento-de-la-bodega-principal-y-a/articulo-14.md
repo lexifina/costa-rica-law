@@ -1,0 +1,1 @@
+Artículo 14.—El funcionario asistente o auxiliar de bodega deberá chequear que las donaciones recibidas no estén vencidas, pero si éstas lo están se abstendrá de recibirlas haciendo el reporte respectivo.

@@ -1,0 +1,1 @@
+Artículo 68.—Deberán hacerse comprobaciones físicas como mínimo una vez al mes (dejando evidencia de éstas) contra las existencias del inventario permanente del sistema automatizado, a efecto de verificar que coincidan ambos resultados. De darse diferencias, éstas deben ser debidamente revisadas y justificadas.
