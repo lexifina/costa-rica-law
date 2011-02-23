@@ -1,0 +1,1 @@
+2).—En toda solicitud inicial de marca o trámite posterior, no se requerirá que la firma del representante o solicitante esté autenticada por abogado o notario, con excepción de aquellos casos en que renuncie a un registr
