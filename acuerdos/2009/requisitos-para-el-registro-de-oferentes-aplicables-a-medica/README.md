@@ -16,3 +16,4 @@ Requisitos para el registro de oferentes aplicables a medicamentos biológicos, 
 | 1 | 2009-05-11 | la propia norma |
 | 2 | 2009-07-17 | Acuerdo 0 (2009-07-17) |
 | 3 | 2010-03-09 | Acuerdo 0 (2010-03-09) |
+| 4 | 2011-02-23 | Acuerdo 0 (2011-02-23) |
