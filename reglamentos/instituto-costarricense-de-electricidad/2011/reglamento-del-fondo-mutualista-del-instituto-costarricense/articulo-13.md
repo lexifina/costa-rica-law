@@ -1,0 +1,3 @@
+Artículo 13.—Balance Actuarial
+El Fondo de Mutualidad deberá ser evaluado actuarialmente cada dos años, a fin de garantizar la sostenibilidad del beneficio en el largo plazo. Lo anterior, sin perjuicio de que otros estudios puedan efectuarse, cuando la Junta Administrativa lo considere conveniente.
+La realización de los estudios actuariales del Fondo de Mutualidad será necesario a efectos de establecer un juicio técnico, objetivo e independiente, sobre la situación financiera, para dar un adecuado ordenamiento financiero-actuarial y una definición matemático-actuarial apropiada y conveniente al Fondo.
