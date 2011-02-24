@@ -1,0 +1,5 @@
+6º—Solicitudes de retiro. Las entidades autorizadas podrán tramitar las solicitudes en base papel o electrónica. Las solicitudes deberán cumplir con los requisitos establecidos en el artículo cuarto.
+No podrán tramitarse solicitudes suscritas por apoderados del trabajador a través de medios electrónicos.
+Cualquier otro medio para la recepción de solicitudes, diferente de los indicados en el párrafo primero de este artículo, deberá ser aprobado por la Superintendencia de Pensiones en función de su susceptibilidad para ser objeto de supervisión.
+A cada uno de los afiliados que soliciten el retiro de recursos, cualquiera sea el medio utilizado, se les deberá suministrar, en el mismo acto, una copia o comprobante de la solicitud, con indicación del número y consecutivo único, la fecha de recepción y el nombre del funcionario que la recibe cuando, en este último caso, haya sido realizada en base papel.
+Cada solicitud deberá contar con un número consecutivo único por medio del cual pueda dársele seguimiento.

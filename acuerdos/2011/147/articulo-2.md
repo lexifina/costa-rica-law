@@ -1,0 +1,2 @@
+2º—Forma de cálculo del monto a entregar. El monto a entregar a los afiliados corresponderá al saldo en cuotas de las sumas indicadas en el inciso a) del artículo anterior, menos la cantidad proporcional de cuotas por comisión sobre saldo a la fecha de liquidación, multiplicado por el valor cuota del día inmediato anterior a esa fecha.
+Para la determinación del monto indicado en el inciso b), se aplicará el mismo mecanismo.

@@ -1,0 +1,1 @@
+16.—Montos no retirados al momento de cumplimiento de los requisitos. Los recursos correspondientes al Fondo de Capitalización Laboral que no hayan sido retirados con motivo del cumplimiento del quinquenio, quedarán disponibles para el afiliado de manera indefinida. Su determinación y entrega se regirá por lo dispuesto en este acuerdo.

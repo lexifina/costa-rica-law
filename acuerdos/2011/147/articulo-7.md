@@ -1,0 +1,2 @@
+7º—Solicitudes anticipadas al cumplimiento del requisito. Las entidades autorizadas podrán recibir solicitudes de retiro hasta seis meses antes de la fecha en que el afiliado cumpla con el requisito de permanencia de cinco años de relación laboral continua con el mismo patrono. Serán de aplicación a este tipo de solicitudes todos los plazos establecidos en el presente Acuerdo.
+El afiliado deberá ser informado de que el pago quedará sujeto al cumplimiento de los cinco años de relación laboral ininterrumpida.

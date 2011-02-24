@@ -1,0 +1,1 @@
+22.—Suministro de información a terceros. De acuerdo a lo establecido en el artículo 42, literal k), de la Ley de Protección al Trabajador, es prohibido que las entidades autorizadas suministren o divulguen información relativa a los afiliados, sin perjuicio de la responsabilidad civil, administrativa o penal que pueda caberles.

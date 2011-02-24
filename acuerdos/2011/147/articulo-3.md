@@ -1,0 +1,1 @@
+3º—Acceso a los recursos del FCL por cumplimiento de quinquenio. Todo afiliado al Fondo de Capitalización Laboral, para poder acceder a sus recursos acumulados, deberá presentar una solicitud formal de retiro ante la entidad que administra sus recursos.
