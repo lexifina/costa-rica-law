@@ -1,0 +1,1 @@
+Artículo 14.—Del seguimiento de los resultados y atención de las denuncias: La Auditoría General, como ente fiscalizador y de acuerdo con los procedimientos establecidos, determinará en que casos dará seguimiento a los resultados de las denuncias presentadas.

@@ -1,0 +1,1 @@
+Artículo 12.—De la atención de denuncias trasladadas por la Contraloría General de la República: La Auditoría General atenderá, de acuerdo con sus posibilidades y con su plan de trabajo, las denuncias que le sean remitidas por el Ente Contralor, no obstante, de conformidad con el contenido de éstas, podrá dar prioridad a su atención.

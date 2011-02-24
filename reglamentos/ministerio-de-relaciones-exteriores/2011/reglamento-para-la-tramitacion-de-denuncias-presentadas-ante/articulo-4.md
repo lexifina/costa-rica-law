@@ -1,0 +1,1 @@
+Artículo 4º—Recibo de denuncias: La Auditoría General recibirá las denuncias que se presenten únicamente por escrito, las cuales deberán venir dirigidas directamente a la Auditoría General. El Auditor General valorará la admisibilidad de las denuncias presentadas.
