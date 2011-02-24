@@ -1,2 +1,4 @@
-Artículo 4º.-
-Los Bancos del Estado contarán con la garantía y la más completa cooperación del Estado y de todas sus dependencias e instituciones.
+Artículo 4.-
+Los bancos comerciales del Estado contarán con la garantía y la más completa cooperación del Estado y de todas sus dependencias e instituciones. La garantía estatal establecida en este artículo no será aplicable a los instrumentos financieros subordinados o préstamos subordinados que emitan o contraten los bancos comerciales del Estado, tampoco a las obligaciones o los derechos que de ellos emanen. Los instrumentos financieros subordinados o los préstamos subordinados, así como las obligaciones y los derechos que de ellos emanen solo podrán ser adquiridos o contratados por bancos multilaterales de desarrollo o por organismos bilaterales de desarrollo.
+Ningún tenedor de deuda subordinada emitida o contratada por los bancos comerciales del Estado podrá poseer, individualmente, un monto que supere el veinticinco por ciento (25%) del capital primario de cada banco emisor.
+(Así reformado por el artículo 2° de la ley N° 8917 del 16 de diciembre de 2010 "Reforma y Adiciona las Leyes Orgánica del Sistema Bancario Nacional, N° 1644 y Ley Orgánica del Banco Central de Costa Rica Ley, N° 7558")
