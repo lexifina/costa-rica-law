@@ -1,1 +1,0 @@
-Artículo 2°—Corresponderá a la Dirección General de Educación Vial la aplicación de las normas a que se refiere el presente reglamento, pudiendo contar con la colaboración de las restantes oficinas y dependencias integrantes de la Administración Vial, cuando así lo solicitare.

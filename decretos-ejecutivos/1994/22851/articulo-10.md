@@ -1,1 +1,0 @@
-Artículo 10.—Quienes aspiren a obtener la licencia tipo C-2 deberán tener además, cinco años de experiencia en el manejo de vehículos que autoriza conducir la licencia tipo B-l y cumplir con los restantes requisitos previstos por la normativa jurídica vigente.

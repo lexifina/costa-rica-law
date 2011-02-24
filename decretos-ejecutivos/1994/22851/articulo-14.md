@@ -1,1 +1,0 @@
-Artículo 14.—En cualquier caso que se requiera realizar un examen práctico para aspirar a la obtención de licencia para conducir, el vehículo a utilizar deberá estar al día en el pago de los derechos de circulación y portar la placa de matrícula y el correspondiente marchamo, debiendo en todo caso encontrarse en óptimo estado de funcionamiento.
