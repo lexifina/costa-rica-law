@@ -1,0 +1,1 @@
+Artículo 4º—Declarar de interés público las actividades organizadas por dicha Comisión. En virtud de dicha declaratoria, las instituciones públicas y privadas quedan autorizadas, para que dentro de sus posibilidades y sin afectar el cumplimiento de sus propios objetivos, apoyen el trabajo que desarrollará la Comisión Afrocostarricense.
