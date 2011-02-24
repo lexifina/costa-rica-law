@@ -1,0 +1,1 @@
+3º—El declarante deberá indicar el código de ubicación de la mercancía, sea terminal de exportación o depósito aduanero dentro de la jurisdicción de la Aduana, en donde se encuentran ubicadas las instalaciones del exportador.

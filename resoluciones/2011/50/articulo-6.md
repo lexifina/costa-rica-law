@@ -1,0 +1,1 @@
+6º—De no estar la mercancía dispuesta para la revisión física, dentro de los plazos indicados en el punto anterior, el funcionario aduanero asignado realizará una “observación” al DUA, indicando que no se han presentado las mercancías.
