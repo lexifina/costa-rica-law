@@ -14,3 +14,4 @@ Reglamento sobre el Registro Nacional de Valores e Intermediarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-04 | la propia norma |
+| 2 | 2011-02-25 | Reglamento 902 (2011-02-25) |
