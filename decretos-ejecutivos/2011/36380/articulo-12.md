@@ -1,0 +1,1 @@
+Artículo 12.—Sanciones. Las infracciones de los funcionarios del MEIC, a las disposiciones del presente reglamento serán sancionadas, según la gravedad, de conformidad con las disposiciones del Reglamento Autónomo de Servicio del Ministerio de Economía, Industria y Comercio, y las que en materia de empleo público correspondan.

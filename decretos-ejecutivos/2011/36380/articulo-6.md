@@ -1,0 +1,13 @@
+Artículo 6º—Función del Departamento de Servicios Generales. El Departamento de Servicios Generales tendrá a cargo las siguientes funciones:
+a) Llevar un registro detallado de cada uno de los vehículos sujetos a control. El expediente de cada vehículo incluirá un historial que refiera documentalmente su adquisición, las medidas de conservación y mantenimiento que se le hayan aplicado y las que deban aplicarse, el régimen de aseguramiento que lo protege, las acciones de aseguramiento que hayan ejecutado y cualquier otra información de importancia, que se considere contribuya a demostrar la propiedad la tenencia y uso y la conservación del vehículo.
+b) Atender y tramitar con celeridad los asuntos administrativos relativos al uso de vehículos a su cargo.
+c) Asignar los vehículos UA, de conformidad con las características que el servicio de transporte requiera, siguiendo los lineamientos de utilidad y uso racional dictados por la Dirección Administrativa Financiera.
+d) Designar los conductores o choferes que deberán conducir los vehículos.
+e) Utilizar controles individuales cada vez que los vehículos UA sean utilizados. Ello comprende el uso de “Boleta de Entrega” donde se hará constar las condiciones, implementos, el combustible y las herramientas que acompañan cada vehículo. Asimismo, existirán registros foliados y sellados donde se consignará cada ingreso y cada salida de vehículos.
+f) Controlar el uso del combustible consumido por cada vehículo mediante el Sistema BCR-Compras Institucionales. Asimismo, controlar el kilometraje recorrido por cada servicio de transporte brindado y las autorizaciones que justifiquen el uso del vehículo UA. Cuando se realicen giras deberán llevar un registro que informe del control de kilometraje y del uso del combustible durante las giras.
+g) Velar porque los vehículos estén debidamente asegurados y dar seguimiento de denuncias presentadas ante el Instituto Nacional de Seguros.
+h) Informar al Director Administrativo Financiero sobre los accidentes de Tránsito.
+i) Velar por el adecuado mantenimiento, las reparaciones, y en general por el buen estado de los vehículos a su cargo, con inclusión de las medidas permanentes de limpieza y las de revisión periódicas en talleres especializados según el kilometraje de cada vehículo.
+j) Rendir informes pertinentes con la frecuencia que sea solicitada por el Director Administrativo Financiero sobre la tenencia, el uso, el mantenimiento y situaciones especiales de los vehículos.
+k) Velar porque los vehículos sean ordinariamente depositados y custodiados en los estacionamientos previamente establecidos por el MEIC.
+l) Realizar cualquier otra diligencia necesaria para el buen uso y conservación de los vehículos.

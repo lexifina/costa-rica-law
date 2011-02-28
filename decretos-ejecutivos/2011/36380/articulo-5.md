@@ -1,0 +1,1 @@
+Artículo 5º—Departamento de Servicios Generales. El Departamento de Servicios Generales del MEIC, será el encargado de ejecutar las medidas de conservación y control en cuanto al uso de los vehículos. El jefe del Departamento velará porque las disposiciones contenidas en el presente Reglamento sean debidamente acatadas.
