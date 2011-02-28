@@ -1,1 +1,0 @@
-Artículo 68.—Los funcionarios de la Auditoría Interna coadyuvarán con el SEVRI mediante la incorporación de los conocimientos de riesgo relacionados en los trabajos, mediante los productos de los servicios de fiscalización.

@@ -1,1 +1,0 @@
-Artículo 18.—El Subaditor es el inmediato colaborador del Auditor, a quien sustituye en sus ausencias temporales. Cuando actúe en tales ausencias dispondrá de la misma autoridad y tendrá la misma responsabilidad del Auditor. El Auditor asignará las funciones al Subauditor y éste deberá responder ante él por su gestión.

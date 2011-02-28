@@ -1,2 +1,0 @@
-c) Ubicación y estructura organizativa
-Artículo 11.—La Auditoría Interna está a cargo de un Auditor y un Subauditor y depende orgánicamente de la Junta Directiva del INS. La Auditoría está organizada y funciona de acuerdo con lo establecido por el Auditor Interno, conforme los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnicas jurídicas y sanas prácticas correspondientes, para el cumplimiento de sus obligaciones técnicas y legales.

@@ -1,1 +1,0 @@
-Artículo 56.—Se considerará como falta grave de la Junta Directiva o del funcionario competente para iniciar el procedimiento sancionatorio, el no gestionar lo que corresponda para que éste se inicie oportunamente o el dejar que la responsabilidad del infractor prescriba.

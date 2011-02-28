@@ -1,1 +1,0 @@
-Artículo 44.—Los funcionarios de la Auditoría Interna deben basar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo en adecuados análisis y evaluaciones.

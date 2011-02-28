@@ -1,1 +1,0 @@
-Artículo 41.—La asesoría y la advertencia pueden darse en conexión y sobre la marcha de un estudio de auditoría que se esté llevando a cabo, y que ambas no son vinculantes para el que las recibe, cuyas decisiones quedan bajo su entera responsabilidad.

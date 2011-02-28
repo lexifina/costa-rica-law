@@ -1,1 +1,0 @@
-Artículo 42.—El servicio de autorización de libros consiste en la fiscalización periódica de la efectividad, el manejo, autorización y control de libros o registros relevantes y necesarios para el fortalecimiento del control interno en la Institución.

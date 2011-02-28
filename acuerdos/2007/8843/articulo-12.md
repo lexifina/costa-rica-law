@@ -1,1 +1,0 @@
-Artículo 12.—La Auditoría Interna se encuentra conformada por tres departamentos y una unidad técnica: Auditoría Financiero Contable, Auditoría de Sistemas, Auditoría de Estudios Especiales y Unidad Técnica de Auditoría.
