@@ -13,3 +13,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2010-2011 y Lineamientos para l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-01 | la propia norma |
+| 2 | 2011-02-28 | Acuerdo 2 (2011-02-28) |
