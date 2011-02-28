@@ -17,3 +17,4 @@ Reglamento de Sesiones y Acuerdos del Consejo Municipal.
 | 2 | 2002-07-24 | Reglamento municipal 4 (2002-07-24) |
 | 3 | 2002-07-24 | Ley 8 |
 | 4 | 2010-12-13 | Reglamento municipal 34 (2010-12-13) |
+| 5 | 2011-02-28 | Reglamento municipal 44 (2011-02-28) |
