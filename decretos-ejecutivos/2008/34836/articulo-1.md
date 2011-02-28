@@ -44,26 +44,35 @@ Decreto Ejecutivo Nº 25989-MEIC, RTCR 235:1997. Productos textiles. Definicione
 5.1 Información general. Los productos textiles no deberán describirse ni presentarse con una etiqueta o etiquetado en una forma que sea falsa, equivoca o engañosa, o susceptible de crear en modo alguno una impresión errónea respecto de su naturaleza en ningún aspecto.
 5.1.1 Prendas de vestir. Las prendas de vestir, deben ostentar la siguiente información en forma legible en una o más etiquetas permanentes colocadas en la parte inferior del cuello o cintura, o en cualquier otro lugar accesible a la vista, de acuerdo a las características de la prenda en los casos y términos que señala este reglamento técnico:
 a) Marca comercial (opcional)
-b) Composición del insumo o material textil, en orden decreciente;
+b) Composición del insumo o material textil.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 c) Talla o tamaño, según corresponda a una práctica comercial plenamente aceptada.
 d) Instrucciones de cuidado;
 e) País de origen;
 f) Nombre o razón social y número de teléfono del fabricante, importador o distribuidor nacional.
 NOTAS:
 1. Los datos referidos en el inciso f), podrán presentarse en una etiqueta temporal, la cual deberá adherirse previamente a su comercialización al consumidor final.
-2. Cuando la información obligatoria requerida en los incisos b), d) y e) no este disponible en idioma español, deberá traducirse pudiendo utilizar para ello las etiquetadas mencionadas en el punto 4.5.2.
+2. Cuando la información obligatoria requerida en los incisos b), d) y e) no esté disponible en idioma español, deberá traducirse pudiendo utilizar para ello las etiquetas mencionadas en el punto 4.5.2., ya sea adheridas en la prenda de vestir o en el empaque de la misma.
+(Así reformada la nota anterior por el artículo 1° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 5.1.2 Textiles y ropa de casa. Los demás productos textiles no incluidos en la sección anterior, así como la ropa de casa deben ostentar la siguiente información en forma legible en los casos y términos que señala este Reglamento.
 Debe contener en una o más etiquetas temporales o permanentes, ya sea en producto o en el empaque final, la siguiente información:
 a) Marca comercial (opcional).
-b) Composición del insumo o material textil, en orden decreciente;
+b) Composición del insumo o material textil.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 c) Tamaño según corresponda a una práctica comercial plenamente aceptada.
 d) País de origen;
 e) Nombre o razón social y número de teléfono del fabricante, importador o distribuidor nacional.
+Nota:
+Cuando la información obligatoria requerida en los incisos b) y d) de este apartado no esté disponible en idioma español, deberá traducirse pudiendo utilizar para ello una o más etiquetas temporales.
+(Así adicionada la nota anterior por el artículo 2° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 5.1.3 Cuando el producto se comercialice en empaque cerrado que no permita ver el contenido, adicionalmente a la información señalada en 5.1.1, 5.1.2 según corresponda, en dicho empaque debe indicarse el nombre o tipo de producto y cantidad de que se trate.
 5.1.4 Cuando las prendas se comercialicen como pares confeccionados del mismo material, pueden presentar la etiqueta en una sola de las piezas.
 5.2 Composición del insumo o material textil
-5.2.1 Para efectos de este Reglamento, el fabricante nacional o el importador debe expresar el insumo en porcentaje con relación a la masa, de las diferentes fibras que integran la totalidad del producto en orden decreciente de dicho porcentaje.
+5.2.1 Para efectos de este Reglamento, el fabricante nacional o el importador debe expresar el insumo en porcentaje con relación a la masa, de las diferentes fibras que integran la totalidad del producto.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 Puede usarse el nombre comercial o la marca registrada de alguna fibra si se tiene la autorización del titular, siempre que se use en conjunción al nombre genérico de la fibra y caracteres de igual tamaño.
+Asimismo, podrá indicarse el nombre de una fibra determinada en idioma distinto al español, siempre que no exista una traducción reconocida para esta, no obstante la información disponible deberá estar expresada en alfabeto español.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 5.2.2 No se puede utilizar el nombre de animal alguno al referirse a las fibras que integren al textil, al menos que la fibra o el textil estén elaborados con el pelo desprendido de la piel del animal de que se trata. Queda prohibida la mezcla de palabras que implican o tiendan a hacer creer la existencia de componentes derivados de la piel o el pelo o producto de animal alguno.
 5.3 Tallas y medidas. Las tallas de las prendas de vestir, las medidas de longitud de los textiles, ropa de casa y accesorios deben expresarse según corresponda a una práctica comercial plenamente aceptada.
 5.4 Idioma. La etiqueta, tanto la temporal como la permanente deben estar redactadas en idioma español. Cuando la etiqueta permanente esté redactada en otro idioma, debe agregarse una etiqueta complementaria, que contenga la información obligatoria descrita en la sección 5.1. La etiqueta debe colocarse previo a ponerse el producto a disposición del consumidor.
@@ -88,6 +97,8 @@ b) Condiciones especiales si las hubiere.
 5.5.5 Recomendaciones particulares, haciendo mención específica de las tendencias al encogimiento o deformación cuando le sean propias, indicando instrucciones para atenderlas.
 5.6 País de origen o procedencia. La información del país de origen o procedencia debe cumplir con lo siguiente:
 5.6.1 Se debe declarar el país de origen o procedencia del producto terminado.
+5.6.2 No serán aceptadas indicaciones por banderas de países, ni iniciales, ni designaciones por bloques económicos o regionales cuyo fin sea el de sustituir el nombre del país de origen. Sin embargo, se podrán utilizar aquellas designaciones por bloques económicos o regionales siempre y cuando vayan acompañadas conjuntamente con el nombre del país de origen.
+(Así adicionado el punto anterior por el artículo 2° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 5.7 Productos elaborados a mano
 5.7.1 La leyenda “Hecho a mano” puede utilizarse únicamente cuando la prenda de vestir, textiles o ropa de casa haya sido confeccionado, elaborado o producido totalmente a mano.
 5.7.2 La indicación “a mano” debe ir acompañada de la descripción de aquella parte del proceso que se haya realizado a mano, por ejemplo, “cosida a mano”.
@@ -113,7 +124,8 @@ a) Pantimedias;
 b) Medias y tobimedias;
 c) Calcetines y calcetas;
 d) Aquellos otros productos que por ser delicados, en fijarles la etiqueta en forma directa perjudicaría el uso o estética del mismo y ocasionaría que perdiesen valor.
-6.2 Textiles y otros productos elaborados con fibras o telas. La información a que se refiere el punto 5.1.2 puede presentarse en el carrete, envase, empaque, fajilla, ovillo o cualquier otra presentación, en las que se expende el producto, en los siguientes casos:
+6.2 Textiles y otros productos elaborados con fibras o telas. La información a que se refiere el punto 5.1.2 puede presentarse en el carrete, envase, empaque, fajilla, ovillo o cualquier otra presentación que sea visible al consumidor en las que se expende el producto, en los siguientes casos:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36611 del 28 de febrero del 2011)
 a) Hilados e hilos;
 b) Estambres para tejer a mano;
 c) Piezas o rollos de cualquier longitud de encajes, tiras bordadas, listones, cintas para calzado, cintas, elásticos, textiles en rollo o a granel y demás artículos de pasamanerías hasta de 30 cm de ancho;
@@ -169,47 +181,29 @@ Comprende los siguientes tratamientos domésticos: lavado, blanqueado, planchado
 1. DESCRIPCIÓN Y DEFINICIÓN DE LOS SÍMBOLOS
 1.1 SÍMBOLOS BÁSICOS Y SÍMBOLOS ADICIONALES. Se suministran cinco símbolos básicos y cuatro símbolos adicionales.
 1.1.1 Lavado. Para los procesos de lavado se usa como símbolo una tina, como se indica en la Figura 1.
-[imagen]
 1.1.2 Blanqueado. Para los procesos de blanqueado se usa como símbolo un triángulo, como se indica en la Figura 2.
-[imagen]
 1.1.3 Secado. Para el proceso de secado se usa como símbolo un cuadrado, como se ilustra en la Figura 3.
-[imagen]
 1.1.3.1 Para el secado en una secadora en máquina, después de un proceso de lavado, se usa como símbolo un círculo delimitado por un cuadrado, como se indica en la Figura 4.
-[imagen]
 1.1.4 Planchado. Para los procesos de planchado, se usa como símbolo una plancha manual, como se indica en la Figura 5.
-[imagen]
 1.1.5 Cuidado textil profesional. Para los procesos de limpieza en seco profesional y limpieza en húmedo profesional (excluyendo lavandería comercial), se usa como símbolo un círculo, como se indica en la Figura 6.
-[imagen]
 1.1.6 Tratamiento no permitido. Además de los cinco símbolos indicados del numeral 1.1.1 al 1.1.5, un símbolo adicional, la cruz de San Andrés, sobrepuesta en cualquiera de estos, significa que no se debe usar el tratamiento representado por ese símbolo.
-[imagen]
 1.1.7 Tratamiento moderado. Además de los símbolos básicos, una barra debajo del símbolo significa que el tratamiento debería ser más moderado que el indicado por el mismo símbolo sin la barra, por ejemplo, agitación reducida.
-[imagen]
 1.1.8 Tratamiento muy moderado. Además de los símbolos básicos, una barra doble debajo del símbolo describe un proceso muy moderado, por ejemplo, agitación muy reducida.
-[imagen]
 1.1.9 Temperatura de tratamiento. La temperatura en relación con los símbolos del numeral 1.1.1 se da como una cifra que representa los grados Celsius (30, 40, 50, 60, 70 ó 95) sin la designación “ºC”.
 Además de los tres símbolos, 1.1.1 (lavado), 1.1.3 (secado) y 1.1.4 (planchado), se pueden usar puntos para definir el impacto de la temperatura de un tratamiento. La definición de la temperatura se da con los tratamientos básicos.
-[imagen]
 1.2 LAVADO. La tina simboliza el tratamiento de lavado doméstico (a mano o a máquina) (véase la Figura 1). Se usa para transmitir información concerniente a la temperatura máxima de lavado y la severidad máxima del proceso de lavado, como se ilustra en la Tabla 1.
 Tabla 1. Símbolos para los procesos de lavado
-[imagen]
 Tabla 1. (Continuación)
-[imagen]
 1.3 BLANQUEADO. El triángulo representa el tratamiento de blanqueado (véanse la Figura 2 y la Tabla 2).
 Tabla 2. Símbolos para blanqueado
-[imagen]
 1.4 SECADO
 1.4.1 Secado natural. Para el proceso de secado natural, se usa el símbolo básico, un cuadrado, como se ilustra en la Figura 11.
-[imagen]
 La simbolización adicional dentro del cuadrado representa los procesos de secado natural específicos de secado en tendedero, secado por escurrimiento, secado extendido en tendedero a la sombra, secado por escurrimiento en la sombra, y secado extendido en la sombra, como se ilustra en la Tabla 3.
 Tabla 3. Símbolos para el proceso de secado natural
-[imagen]
 1.4.2 Secado en máquina. El círculo dentro de un cuadrado simboliza el secado en máquina después del proceso de lavado (véase la Figura 4). Los niveles de temperatura máxima se indican mediante uno o dos puntos localizados dentro del símbolo, como se muestra en la Tabla 3.
 Tabla 4. Símbolos para el proceso de secado en máquina
-[imagen]
 1.5 PLANCHADO. La plancha simboliza el proceso de planchado doméstico con o sin vapor (véase la Figura 5). Los niveles de temperatura máxima se indican por uno, dos o tres puntos localizados dentro del símbolo, como se ilustra en la Tabla 5.
 Tabla 5. Símbolos para planchado
-[imagen]
 1.6 CUIDADO TEXTIL PROFESIONAL. El círculo (véase la Figura 6) simboliza los procesos de limpieza en seco y limpieza en húmedo de artículos textiles (excepto para los artículos en cuero y piel), realizado por profesionales. Brinda información relacionada con los diferentes procesos de lavado descritos en la Tabla 6. El uso del símbolo de limpieza en húmedo debe ser opcional.
 Tabla 6. Símbolos para cuidado textil profesional
-[imagen]
 ---Fin del Reglamento---
