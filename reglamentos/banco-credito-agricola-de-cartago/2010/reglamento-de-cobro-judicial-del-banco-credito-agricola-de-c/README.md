@@ -14,3 +14,4 @@ Reglamento de Cobro Judicial del banco crédito Agrícola de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-02 | la propia norma |
+| 2 | 2011-03-01 | Reglamento 8420 (2011-03-01) |
