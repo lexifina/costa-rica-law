@@ -14,3 +14,4 @@ Adiciona Procedimiento de Perfeccionamiento Activo al "Manual de Procedimientos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-01 | la propia norma |
+| 2 | 2011-03-01 | Resolución 61 (2011-02-03) |
