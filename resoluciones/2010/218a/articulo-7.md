@@ -1,0 +1,1 @@
+7. Expediente de la calificación de idoneidad. De cada solicitud de calificación de idoneidad, JUDESUR deberá levantar un expediente físico o electrónico, ordenado y debidamente foliado, que contenga toda la información que se genere y sustente el trámite, indistintamente de su resultado.

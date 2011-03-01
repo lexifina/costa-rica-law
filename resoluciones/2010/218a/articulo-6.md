@@ -1,0 +1,1 @@
+6. Comunicación del resultado. Adoptada por el jerarca la decisión de otorgamiento o rechazo de la solicitud, según corresponda, JUDESUR deberá comunicar lo resuelto al sujeto privado, por los medios legales pertinentes y con las formalidades que establece el ordenamiento jurídico.
