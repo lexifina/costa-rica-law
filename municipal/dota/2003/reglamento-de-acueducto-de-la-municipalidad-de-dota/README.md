@@ -14,3 +14,4 @@ Reglamento de acueducto de la Municipalidad de Dota
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-04 | la propia norma |
+| 2 | 2011-03-01 | Reglamento municipal 42 (2011-03-01) |
