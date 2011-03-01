@@ -14,3 +14,4 @@ Reglamento para el Uso, Control y Mantenimiento Vehículos del MINAE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-18 | la propia norma |
+| 2 | 2011-03-01 | Decreto Ejecutivo 36564 (2011-03-01) |
