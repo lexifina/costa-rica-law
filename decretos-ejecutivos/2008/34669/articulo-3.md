@@ -95,6 +95,8 @@ Clostridium chauvoei)
 3.6.13 Rinotraqueítis del pavo
 3.6.14 Tifosis aviar
 3.6.15 Tuberculosis aviar
+3.6.16 Salmonelosis: Salmonella Enteritidis y Salmonella Typhimurium.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36570 del 1 de marzo del 2011)
 3.7. Enfermedades de los lagomorfos
 3.7.1 Enfermedad hemorrágica del conejo
 3.7.2 Mixomatosis
