@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la correspondencia
+Artículo 10.—Del recibo de la correspondencia.
+Será responsabilidad de la secretaria o el secretario, recibir toda la correspondencia dirigida al Concejo Municipal, consignándole la respectiva “razón de recibido”, la cual contendrá, la hora y fecha de su recibo en la Secretaría, el nombre de la persona que la presentó o la razón de haber sido recibida por correo postal, electrónico o por el medio que fuere, así como la firma de recibido. Este trámite podrá mecanizarse mediante un sello impreso que contengan los espacios necesarios para anotar esta misma información.
