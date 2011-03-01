@@ -1,0 +1,2 @@
+Artículo 3º—Refórmese el artículo 14 del Reglamento sobre el Uniforme Oficial en las Instituciones Educativas Públicas, Decreto Ejecutivo Nº 28557-MEP del 15 de febrero del 2000, para que se lea de la siguiente manera:
+“Artículo 14.—Se prohíbe el uso de cualquier tipo de aditamento en el uniforme oficial o en el institucional que expresamente no haya sido autorizado por el Director del centro educativo”.
