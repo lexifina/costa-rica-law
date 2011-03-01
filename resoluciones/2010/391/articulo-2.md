@@ -1,0 +1,1 @@
+2º—Establecer el período comprendido del 28 de febrero al 11 de marzo de 2011, para la certificación de empresas desarrolladoras de software que operan con TICA. Previa cita con el Lic. Roberto Acuña B. al correo electrónico acunabr@hacienda.go.cr o el Lic. Marvin Alvarez A. al correo electrónico alvarezam@hacienda.go.cr.
