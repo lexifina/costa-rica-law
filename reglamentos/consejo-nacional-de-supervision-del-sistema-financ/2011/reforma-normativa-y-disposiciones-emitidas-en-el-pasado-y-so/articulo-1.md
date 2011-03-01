@@ -1,0 +1,10 @@
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 7º del acta de la sesión 900-2011, celebrada el 4 de febrero del 2011,
+considerando que:
+a. Mediante artículo 11 del acta de sesión 375-2003 celebrada el 10 de junio del 2003, el Consejo Nacional de Supervisión del Sistema Financiero instruyó a la Superintendencia General de Entidades Financieras para que, entre otras cosas, publicará en al menos en dos periódicos de circulación nacional y en forma mensual, la lista de intermediarios financieros supervisados por esa Superintendencia.
+b. Tal como se establece en el Decreto Nº 35139-MP-Mideplan del 6 de abril del 2009, el Gobierno de la República considera que las tecnologías digitales son un instrumento fundamental para suministrar información a los ciudadanos y a las empresas y para ofrecer más y mejores servicios a los ciudadanos, así como para incrementar su uso y disponibilidad.
+c. Las políticas y lineamientos en materia de gobierno electrónico (gobierno digital) emitidas en los últimos años incentivan la creación de páginas Web y el uso de Internet por parte de los entes públicos como un medio de brindar mayor acceso a la información en manos de dichos entes por parte de los interesados.
+d. En los últimos años, Internet se ha convertido en un medio de comunicación masiva de amplia cobertura, por lo que su utilización garantiza una mejor divulgación de la información, a un menor costo que las alternativas tradicionales.
+e. La lista de entidades sujetas a fiscalización de la SUGEF y la lista de los grupos o conglomerados financieros y las empresas financieras que los conforman, se encuentra permanentemente disponible para consulta del público en su página Web.
+dispuso en firme:
+1. Modificar el inciso 6.2 de la Sección N° 6 del artículo 11 del acta de sesión 375-2003 celebrada el 10 de junio del 2003, de conformidad con el siguiente texto.
+“6.2 Autorizar e instruir a la SUGEF para que publique mensualmente en su sitio web, la lista de intermediarios financieros supervisados por la SUGEF.”
