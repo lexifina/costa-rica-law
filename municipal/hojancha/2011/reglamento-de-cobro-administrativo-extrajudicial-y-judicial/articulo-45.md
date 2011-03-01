@@ -1,0 +1,1 @@
+Artículo 45.—Seguimiento al cumplimiento de la estrategia. Es responsabilidad del Administrador Tributario, o en su defecto la encargada de la Unidad de Cobros, dar seguimiento al cumplimiento de la estrategia de cobro por parte de los funcionarios e informar de sus resultados a la Alcaldía.

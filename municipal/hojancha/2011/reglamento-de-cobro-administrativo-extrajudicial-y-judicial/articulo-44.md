@@ -1,0 +1,1 @@
+Artículo 44.—De la divulgación de la estrategia de cobro. El Administrador Tributario, o en su defecto el alcalde, en coordinación con la Encargada de cobros definirá las formas y medios de divulgar en los contribuyentes la estrategia de cobro anual a aplicar por parte de la Municipalidad.

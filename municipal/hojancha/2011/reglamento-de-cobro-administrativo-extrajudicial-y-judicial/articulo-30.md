@@ -1,0 +1,1 @@
+Artículo 30.—Ubicación y responsable de custodia del expediente. Los expedientes estarán ubicados en la oficina de la encargada de la Unidad de Cobros y es responsabilidad de ésta persona la custodia del mismo.

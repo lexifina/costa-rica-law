@@ -1,0 +1,2 @@
+Artículo 43.—De los incentivos. El gestor tributario, o en su defecto, el encargado de la Unidad de Cobros someterá a consideración de la alcaldía los incentivos a promover para el pago oportuno entre los contribuyentes de acuerdo a lo establecido en el artículo 69 del Código Municipal.
+Tanto los ingresos esperados producto del incentivo como los egresos necesarios para publicitarlos deben estar Aprobadas por el Concejo Municipal y contemplados en el Plan Operativo Anual y Presupuesto Municipal del período correspondiente.

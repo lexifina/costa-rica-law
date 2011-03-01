@@ -1,0 +1,1 @@
+Artículo 40.—Responsable de actualización de las tarifas. Ésta actividad corresponde al especialista designado en la municipalidad o al Departamento Financiero de la Municipalidad, por cuanto disponen de la información para estimar el costo efectivo y por no causar conflicto de intereses con el personal tributario en la actualización de los montos.
