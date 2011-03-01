@@ -1,0 +1,1 @@
+II.—Establecer que el jerarca de JUDESUR deberá instaurar las medidas que aseguren el cumplimiento de la presente normativa, la cual es de acatamiento obligatorio y prevalecerá sobre aquellas otras disposiciones que emita JUDESUR, en lo que se le oponga.

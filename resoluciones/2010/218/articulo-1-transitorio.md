@@ -1,0 +1,1 @@
+Transitorio único: Las calificaciones otorgadas por la Contraloría General de la República antes del 01 de junio del 2010 mantendrán su vigencia por el plazo establecido y el listado correspondiente se mantendrá en el sitio electrónico del órgano contralor durante ese plazo.
