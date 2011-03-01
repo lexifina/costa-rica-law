@@ -14,3 +14,4 @@ Reglamento para los Eventos de las Apuestas Deportivas (Juego Progol)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-20 | la propia norma |
+| 2 | 2011-03-01 | Reglamento 8 (2011-03-01) |
