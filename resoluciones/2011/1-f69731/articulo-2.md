@@ -1,0 +1,1 @@
+2º—Dejar sin ningún valor ni efecto jurídico todos los permisos para circular otorgados a los vehículos de carga liviana durante la restricción vehicular, al amparo del Decreto Ejecutivo Nº 35804-MOPT, debiéndose los otrora autorizados ajustarse a lo dispuesto en el nuevo Decreto de restricción vehicular Nº 36342-MOPT.

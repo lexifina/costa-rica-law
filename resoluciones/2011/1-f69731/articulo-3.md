@@ -1,0 +1,1 @@
+3º—Se concede a los solicitantes de aplicación de excepción a dicha restricción el plazo improrrogable de tres días para que de considerarse afectados por la presente resolución, presenten ante este Despacho lo que estimen conveniente a sus intereses.
