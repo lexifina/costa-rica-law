@@ -1,0 +1,3 @@
+3º—Presentación del formulario ante la Aduana respectiva. Una vez llenado completamente el formulario con los datos requeridos y suscrito por el agente aduanero registrado, éste deberá adjuntar al mismo, los documentos arriba indicados que sirvan de soporte a su petición.
+Si la solicitud es presentada por el representante legal de la empresa, la firma deberá ser autenticada.
+Para agilizar la gestión de rectificación de la Declaración Aduanera, se deberá presentar el formulario de resolución ante la Aduana correspondiente en forma electrónica, esto por los medios normalmente utilizados, tales como, CD, dispositivo de almacenamiento USB, disquete o cualquier otro medio que acuerde la Aduana.
