@@ -15,3 +15,4 @@ Devoluciones de Créditos originados en Retenciones
 | --- | --- | --- |
 | 1 | 2006-09-19 | la propia norma |
 | 2 | 2010-09-17 | Resolución 14 (2010-09-17) |
+| 3 | 2011-03-02 | Resolución 8 (2011-03-02) |
