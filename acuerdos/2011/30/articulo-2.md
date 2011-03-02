@@ -1,0 +1,1 @@
+B) Rectificar la declaratoria de aptitud no turística para el sector aledaño al manglar de Cabuyal, del cantón de Liberia, provincia de Guanacaste, misma que fue publicada en La Gaceta N° 129 del 7 de julio de 1995, para que de ahora en adelante sea de aptitud turística.
