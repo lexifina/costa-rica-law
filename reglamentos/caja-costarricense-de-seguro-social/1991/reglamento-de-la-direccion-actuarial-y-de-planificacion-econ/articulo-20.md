@@ -1,2 +1,0 @@
-Artículo 20— La Dirección contará con la Comisión de Investigación, orientada al desarrollo de la Planificación del Seguro de Invalidez, Vejez y Muerte, y de la técnica actuarial, las finanzas y economía de la seguridad social, con el propósito fundamental de orientar y dirigir la investigación que se haga necesaria en estos campos.
-Esta Comisión estará integrada por el director de los jefes de departamento de la dirección. Además, cuando la Dirección lo considere pertinente podrá solicitar el concurso de otros funcionarios

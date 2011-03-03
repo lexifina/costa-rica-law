@@ -1,1 +1,0 @@
-Artículo 22— Para ocupar el puesto de director es requisito indispensable poseer formación a nivel de posgrado en la rama actuarial de la seguridad social y amplia experiencia en este campo. Igualmente se requiere de conocimientos generales en la rama de administración y planificación de la seguridad social.

@@ -1,4 +1,0 @@
-CAÍTULO II
-De la estructura orgánica
-Artículo 3°— La Dirección Actuarial y de Planificación Económica dependerá directamente de la Presidencia Ejecutiva, y será un órgano técnico asesor encargado de asistirlo en sus funciones de emisión de políticas de gobierno institucional y de planificación, de las actividades y servicios que presta la Caja en el campo financiero, actuarial y económico. También actuará como unidad Asesora de las Gerencias de División y otras dependencias de la Caja en los casos en que sea consultada expresamente.
-Estará a cargo de un director y actuario jefe, cuyo nombramiento lo hará la presidencia Ejecutiva. El Director debe ser un profesional en la rama actuarial altamente calificado en seguridad social, con amplia experiencia en este campo. Tanto el director como los otros funcionarios de la dirección estarán sujetos en sus relaciones de trabajo al Reglamento Interno de Trabajo que rige para los demás funcionarios de la Institución.

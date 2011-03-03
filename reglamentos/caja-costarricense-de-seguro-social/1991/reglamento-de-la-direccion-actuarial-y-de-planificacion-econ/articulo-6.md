@@ -1,1 +1,0 @@
-Artículo 6°— Para cumplir su cometido, la Dirección contará con una Unidad de Apoyo Administrativo y técnico para asistirla en sus funciones técnicas de dirección, administración general y administración de personal.

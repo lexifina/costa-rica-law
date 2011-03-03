@@ -1,1 +1,0 @@
-Artículo 27— La Dirección Actuarial y de planificación Económica deberá establecer también la debida coordinación con el Ministerio de Salud, el Ministerio de Trabajo, el Instituto Mixto de Ayuda Social, el Instituto Nacional de Vivienda y Urbanismo y en general todas las demás instituciones públicas con quienes resulte provechoso establecer tal coordinación.

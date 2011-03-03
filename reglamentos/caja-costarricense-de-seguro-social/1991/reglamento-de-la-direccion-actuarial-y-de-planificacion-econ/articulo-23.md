@@ -1,3 +1,0 @@
-Artículo 23— Para ocupar el puesto de Jefe del Departamento Actuarial, es requisito indispensable poseer formación a nivel de posgrado en el campo actuarial de la seguridad social y amplia experiencia en el mismo.
-Para ocupar el puesto de Jefe del Departamento de Planificación Económica y Financiera, es requisito indispensable poseer título de licenciado en la rama de la economía, así como formación a nivel de posgrado en el campo de la economía y finanzas de la seguridad social y amplia experiencia en este campo.
-Para ocupar el puesto de Jefe del Departamento de Estadística es requisito indispensable poseer título de licenciado en esta rama, así como formación a nivel de posgrado en estadística o demografía de la seguridad social y amplia experiencia en este campo.

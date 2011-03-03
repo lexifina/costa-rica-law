@@ -1,1 +1,0 @@
-Artículo 24 La Dirección de Recurso Humanos preparará la correspondiente calificación y valoración de los puestos de los profesionales, técnicos y otros funcionarios de la dirección, para lo cual tomará en consideración la naturaleza, deberes, obligaciones de sus funciones y la importancia de las mismas en el desarrollo institucional.
