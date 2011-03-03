@@ -1,0 +1,1 @@
+Artículo 17.—Disposiciones supletorias. En todo aquello no previsto en este Reglamento sobre acoso u hostigamiento sexual, rige la Ley 7476 de 3 de febrero de 1995, Ley contra el hostigamiento sexual en el empleo y la docencia, Ley General de la Administración Pública y el Reglamento Autónomo de Organización y Servicio de la Municipalidad de Belén.

@@ -1,0 +1,1 @@
+Artículo 7º—Deber de colaboración de las Áreas, unidades y de los servidores y servidoras de la Municipalidad. Toda área, unidad, comisión municipal y todo servidor o servidora de la Municipalidad, cuya colaboración sea solicitada por el Órgano Instructor, para la investigación de una denuncia por hostigamiento sexual, está en la obligación de prestarla.

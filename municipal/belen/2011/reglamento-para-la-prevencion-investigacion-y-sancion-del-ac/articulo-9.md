@@ -1,0 +1,1 @@
+Artículo 9º—La víctima como parte en el proceso. La víctima será expresamente reconocida como parte en el proceso, con todos los derechos inherentes a esta condición, incluyendo la posibilidad de ser asistida por un(a) profesional en derecho, en psicología y cualquier otra disciplina técnica y/o profesión.
