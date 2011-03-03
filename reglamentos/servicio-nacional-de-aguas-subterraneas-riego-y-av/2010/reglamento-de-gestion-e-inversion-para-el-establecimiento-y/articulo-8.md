@@ -1,0 +1,1 @@
+Artículo 8º—En los proyectos de drenaje no se requerirá aporte financiero por parte de los beneficiarios para la construcción de las obras. El Coordinador Regional determinará con la organización de agricultores, la posibilidad de otros aportes de los beneficiarios al proyecto.

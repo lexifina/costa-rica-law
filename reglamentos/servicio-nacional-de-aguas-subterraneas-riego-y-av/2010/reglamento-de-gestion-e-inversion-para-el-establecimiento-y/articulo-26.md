@@ -1,0 +1,1 @@
+Artículo 26.—Además de la garantía fiduciaria, el usuario deberá firmar una autorización de cargo a su cuenta sobre los montos que se generen por concepto de gastos administrativos, multas y otros por causa de atraso en el pago de su cuenta o por cobro judicial.
