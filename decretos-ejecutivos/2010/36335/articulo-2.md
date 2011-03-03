@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 36213-H de fecha 2 de setiembre del 2010, publicado en el Diario Oficial La Gaceta Nº 199 de fecha 13 de octubre del 2010, a partir de la vigencia del presente decreto.
