@@ -1,1 +1,0 @@
-Artículo 2º—Las contrataciones directas estarán bajo la dirección y supervisión del Encargado de Servicios Administrativos, el cual será responsable de llevar a cabo los procedimientos de contratación, en coordinación con las demás unidades de la Municipalidad.

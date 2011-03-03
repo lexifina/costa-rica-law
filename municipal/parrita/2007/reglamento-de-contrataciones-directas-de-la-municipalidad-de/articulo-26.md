@@ -1,1 +1,0 @@
-Artículo 26.—El Encargado de Servicios Administrativos, en los casos de la contratación de obras o servicios y en aquellos otros que determine esta Unidad, deberá poner un visto bueno a las facturas que presente el proveedor para efectos de pagos parciales o finales de la contratación. El Departamento de Tesorería Municipal confeccionará y entregará el cheque respectivo.

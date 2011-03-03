@@ -1,1 +1,0 @@
-Artículo 10.—Las contrataciones por servicios profesionales deben ser claras en cuanto a las condiciones, características, naturaleza del trabajo por realizar y el precio a contratar. Se entenderá que dichas contrataciones por servicios profesionales no son continuas ni permanentes.

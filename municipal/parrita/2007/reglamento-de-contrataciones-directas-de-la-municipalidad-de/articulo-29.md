@@ -1,1 +1,0 @@
-Artículo 29.—El Encargado de Servicios Administrativos será el órgano encargado de llevar un expediente de cada contratación, en el cual incorporará todos los documentos de la misma, en orden cronológico y foliados consecutivamente. Cada expediente será identificado con el nombre y número de la contratación.

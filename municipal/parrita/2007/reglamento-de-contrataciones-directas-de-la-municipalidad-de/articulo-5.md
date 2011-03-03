@@ -1,1 +1,0 @@
-Artículo 5º—El Encargado de Servicios Administrativos y las Unidades solicitantes, serán las encargadas de vigilar que las adquisiciones de bienes y servicios que requieran dentro de su ámbito de competencia no sean fraccionadas.

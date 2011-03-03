@@ -1,1 +1,0 @@
-Artículo 30.—El Encargado de Servicios Administrativos dará seguimiento a todas las contrataciones que se hayan gestionado y preparará los informes que le solicita el Alcalde, el Concejo Municipal o las Direcciones con competencia para adjudicar compras directas.
