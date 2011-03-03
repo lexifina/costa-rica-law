@@ -1,0 +1,1 @@
+Artículo 5º—Domiciliación de la cuenta cliente e imposibilidad de aplicar el débito. Para realizar el pago electrónico, el sujeto pasivo deberá acatar lo dispuesto en el artículo 7º de la resolución DGT-44-01, transcrito en el considerando 10 de la presente resolución.

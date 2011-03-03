@@ -1,0 +1,2 @@
+Artículo 2º—Disponibilidad de los formularios. Los formularios citados en esta resolución, estarán disponibles en el sitio de Tribunet https://www.haciendadigital.go.cr/tribunet, accesibles desde la página Web del Ministerio de Hacienda.
+El formato e instrucciones del formulario pueden ser modificados por la Administración Tributaria, según sus necesidades, sin requerir al efecto una resolución que los implemente, con la sola publicación de estas modificaciones en el Sitio Web de Tribunet indicado.
