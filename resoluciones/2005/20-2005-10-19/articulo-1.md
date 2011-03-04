@@ -10,4 +10,7 @@ Considerando:
 7º—Que desde la fecha de emisión de la resolución 9/97, el precio de venta de los formularios no ha sido modificado, no obstante que la variación en el índice de precios al consumidor entre los meses de setiembre de 1997 y setiembre del 2005, es superior al 100%.
 8º—Que dadas las consideraciones expuestas, se hace necesario actualizar el precio de los formularios. Por tanto,
 RESUELVE:
-Artículo 1º—Se actualiza el precio de venta de los formularios utilizados para el cumplimiento de las obligaciones tributarias de los sujetos pasivos, a la suma de ¢.120,00 (ciento veinte colones exactos).
+Artículo 1º—Se actualiza el precio de venta de los formularios utilizados para el cumplimiento de las obligaciones tributarias de los sujetos pasivos, de la siguiente forma:
+a) el precio de los formularios al por menor pasa de ciento veinte colones a ciento treinta colones;
+b) el precio de los formularios al por mayor pasa de noventa colones a noventa y cinco colones.
+(Así reformado mediante resolución DGT-R-009-2011 del 4 de marzo del 2011)

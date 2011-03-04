@@ -14,3 +14,4 @@ Actualiza precio de venta de formularios para el cumplimiento de las obligacione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-14 | la propia norma |
+| 2 | 2011-03-04 | Resolución 9 (2011-03-04) |
