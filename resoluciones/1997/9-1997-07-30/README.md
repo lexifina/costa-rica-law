@@ -15,3 +15,4 @@ Emiten formularios para el cumplimiento de las obligaciones tributarias
 | --- | --- | --- |
 | 1 | 1997-09-03 | la propia norma |
 | 2 | 2005-10-19 | Resolución 20 (2005-10-19) |
+| 3 | 2011-03-04 | Resolución 9 (2011-03-04) |
