@@ -1,0 +1,1 @@
+Artículo 8º—A partir de la entrada en vigencia de esta Directriz, se deberá seguir una política austera en materia de adquisición de vehículos para uso de los jerarcas institucionales, de manera que no se podrán sustituir vehículos que tengan menos de cinco años de haber salido al mercado.

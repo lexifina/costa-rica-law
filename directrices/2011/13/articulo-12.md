@@ -1,0 +1,1 @@
+Artículo 12.—Los jerarcas de las entidades públicas serán los responsables de la aplicación de lo dispuesto en la presente directriz, en lo que les corresponda, y deberán informar trimestralmente a la Autoridad Presupuestaria del cumplimiento de esta directriz. La Autoridad Presupuestaria informará trimestralmente a la Presidenta de la República sobre el avance registrado.
