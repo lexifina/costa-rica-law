@@ -14,3 +14,4 @@ Reglamento Interno sobre Modificaciones Presupuestarias de la Municipalidad de A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-07 | la propia norma |
+| 2 | 2011-03-05 | Reglamento municipal 0 (2011-03-05) |
