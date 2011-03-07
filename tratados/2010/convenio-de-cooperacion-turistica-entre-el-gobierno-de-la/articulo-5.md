@@ -1,0 +1,2 @@
+ARTÍCULO 5
+Las Partes, a fin de estimular el turismo de extensión entre ambos países, de conformidad con su respectiva legislación, organizarán eventos turísticos que propicien la divulgación y presentación de la oferta turística de cada país a Tour Operadores, Agencias de Viajes y Líneas Aéreas, tales como Seminarios, Talleres Turísticos, Viajes de Familiarización para Agentes de Viajes y Periodistas.

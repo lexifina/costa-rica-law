@@ -1,0 +1,2 @@
+ARTÍCULO 8
+Para el seguimiento del desarrollo del presente Convenio y para promover y evaluar los resultados del mismo, las Partes establecerán un Grupo de Trabajo integrado por igual número de representantes de ambos países, al que podrán ser invitados miembros del sector turístico privado y cuya finalidad será coadyuvar al logro de los objetivos del Convenio, y para realizar promociones conjuntas con la finalidad de ofrecer alternativas de paquetes de naturaleza turística combinando los intereses de ambos países.
