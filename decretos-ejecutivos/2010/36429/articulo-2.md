@@ -1,0 +1,1 @@
+Artículo 2º—El programa de beca inicial para la educación se integra al programa de beca regular de primaria, cuya ejecución corresponde al Fondo Nacional de Becas (FONABE) del Ministerio de Educación Pública, como órgano técnico especializado en materia de otorgamiento de becas y asistencia socioeconómica de la población estudiantil en Costa Rica.
