@@ -14,3 +14,4 @@ Unificación de criterios en la aplicación del Tratado sobre el Derecho de Marc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-23 | la propia norma |
+| 2 | 2011-03-07 | Directriz 2 (2011-03-07) |
