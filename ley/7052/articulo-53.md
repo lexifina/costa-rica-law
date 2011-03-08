@@ -1,3 +1,5 @@
-Artículo 53.- DEROGADO
-( Derogado por el artículo 3 de la ley No. 7208 de 21 de noviembre de
-1990 ).
+Artículo 53.- El subsidio del bono familiar de vivienda podrá utilizarse también para la atención del plan de inversión previsto en el artículo 54 y únicamente por las entidades autorizadas del Sistema que cumplan los siguientes requisitos y obligaciones:
+a) Cuando se trate de entidades autorizadas privadas, someterse obligatoriamente a la aplicación de los principios y las normas técnicas de control interno que emita la Contraloría General de la República y que estén dirigidas a personas sujetas de derecho privado custodias o administradoras de fondos públicos. La auditoría interna del Banhvi y de cada entidad autorizada serán responsables de velar por el correcto cumplimiento de dichos principios y normas, de conformidad con las normas que emita el Banhvi.
+b) Firmar con el Banhvi un contrato de administración de los recursos, con los derechos y las obligaciones previstos en estas normas y en el reglamento que al efecto emitirá su Junta Directiva, y rendir las cauciones necesarias para garantizar el cumplimiento de las obligaciones que acuerde el Banhvi al respecto.
+c) Las entidades que estén sometidas a fiscalización y supervisión de la Sugef deberán cumplir el requisito de no encontrarse en situación de irregularidad financiera conforme a la normativa de ese órgano.
+(Así adicionado por el artículo 2 de la Ley N° 8924 del 3 de febrero del 2011. Anteriormente este artículo había sido derogado por el artículo 3 de la ley No. 7208 de 21 de noviembre de 1990 )

@@ -1,12 +1,2 @@
-Artículo 52.- El monto máximo del subsidio se otorgará como
-donación a las familias y los adultos mayores que no conformen
-núcleo familiar y cuyos ingresos mensuales no sean superiores al
-límite mayor de un salario mínimo mensual de un obrero no
-especializado de la industria de la construcción. Por encima de
-este límite y hasta el máximo de cuatro salarios mínimos
-mensuales del obrero mencionado, el monto del subsidio se
-definirá en relación inversa al ingreso mensual familiar, según
-la reglamentación del FOSUVI y también se otorgará como
-donación
-(Así reformado por el artículo 1, inciso d) de la Ley No. 7950 de 7 de
-diciembre de 1999).
+Artículo 52.- El monto máximo del beneficio del fondo se otorgará como donación a las familias, las personas con discapacidad, las parejas jóvenes y personas adultas mayores sin núcleo familiar, cuyos ingresos mensuales no excedan el límite mayor del salario mínimo mensual de una persona obrera no especializada de la industria de la construcción. Por encima de este y hasta el máximo de seis salarios mínimos mensuales de una persona obrera no especializada de la industria de la construcción, el monto del subsidio se definirá en relación inversa al ingreso mensual familiar, conforme al Reglamento del Fondo de subsidios para la vivienda (Fosuvi), y se otorgará también como donación.
+(Así reformado por el artículo 1° de la Ley N° 8924 del 3 de febrero del 2011)

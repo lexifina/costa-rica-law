@@ -1,12 +1,4 @@
-Artículo 51.- Serán elegidos para recibir el beneficio del
-Fondo, tanto los núcleos familiares como los adultos mayores sin
-núcleo familiar, que no posean vivienda o los que, poseyéndola,
-requiera reparación o ampliación. Para tales efectos, los
-ingresos mensuales de los beneficiarios no superarán cuatro
-veces el salario mínimo de un obrero no especializado de la
-industria de la construcción. La condición de adultos mayores
-sin núcleo familiar deberá ser certificada por el Instituto
-Mixto de Ayuda Social, con base en el correspondiente estudio
-socioeconómico.
-(Así reformado por el artículo 1, inciso d) de la Ley No. 7950 de 7 de
-diciembre de 1999).
+Artículo 51.- Serán elegibles para recibir el beneficio del fondo, las familias, las personas con discapacidad, las parejas jóvenes y las personas adultas mayores sin núcleo familiar, que no tengan vivienda o que, teniéndola, dichas viviendas requieran reparaciones o ampliaciones. Asimismo, sus ingresos mensuales no deberán exceder el máximo de seis veces el salario mínimo de una persona obrera no especializada de la industria de la construcción.
+La condición de personas adultas mayores sin núcleo familiar deberá ser certificada por el Consejo Nacional de la Persona Adulta Mayor (Conapam).
+Para efectos de la presente Ley, se entenderá por personas con discapacidad lo establecido en las siguientes leyes: Ley N.º 7600, Ley de igualdad de oportunidades para las personas con discapacidad, de 2 de mayo de 1996, y, por parejas jóvenes, lo establecido en la Ley N.º 8261, Ley general de la persona joven, de 2 de mayo de 2002 y la Ley N.º 5476, Código de Familia, de 21 de diciembre de 1973.
+(Así reformado por el artículo 1° de la Ley N° 8924 del 3 de febrero del 2011)
