@@ -14,3 +14,4 @@ Reglamento a la Ley del Instituto Nacional de Innovación y Transferencia en Tec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-27 | la propia norma |
+| 2 | 2011-03-08 | Decreto Ejecutivo 36563 (2011-03-08) |
