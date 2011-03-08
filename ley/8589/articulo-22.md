@@ -1,2 +1,5 @@
-ARTÍCULO 22.- Anulado.
-(Anulado mediante resolución de la Sala Constitucional N° 15447 del 15 de octubre de 2008, adicionada mediante resolución de la Sala Constitucional N° 7398 del 6 de mayo de 2009).
+Artículo 22.-Maltrato
+A quien por cualquier medio golpee o maltrate físicamente a una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no, sin que incapacite para sus ocupaciones habituales, se le impondrá pena de prisión de tres meses a un año.
+Si de la acción resulta una incapacidad para sus labores habituales menor a cinco días, se le impondrá pena de seis meses a un año de prisión.
+A quien cause daño en el físico o a la salud de una mujer con quien mantenga una relación de matrimonio, en unión de hecho declarada o no, que le produzca una incapacidad para sus ocupaciones habituales por un tiempo mayor a cinco días y hasta por un mes, se le impondrá pena de prisión de ocho meses a dos años.
+(Así reformado por el artículo único de la Ley N° 8929 del 8 de marzo del 2011. Anteriormente éste artículo había sido anulado mediante resolución de la Sala Constitucional N° 15447 del 15 de octubre de 2008, adicionada mediante resolución de la Sala Constitucional N° 7398 del 6 de mayo de 2009)
