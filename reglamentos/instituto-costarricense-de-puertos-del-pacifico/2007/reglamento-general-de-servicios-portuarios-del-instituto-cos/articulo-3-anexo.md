@@ -70,7 +70,8 @@ j) Relación de carga por escotilla.
 k) Dos copias del plano de estiba.
 l) Dos copias del manifiesto de carga.
 De las tarifas
-Artículo 31.—Todo servicio que se brinde en las instalaciones del Muelle de Puerto Golfito estará sujeto a las regulaciones y las disposiciones tarifarias que disponga el INCOP, previa autorización por parte de la ARESEP.
+Artículo 31.—Todo servicio que se brinde en las instalaciones del Muelle de Puerto Golfito estará sujeto a las regulaciones y las disposiciones tarifarías que disponga el INCOP, previa autorización por parte de la ARESEP. En el caso del servicio de atención de embarcaciones de pasajeros, Golfito sólo facturará el 75% correspondiente de la tarifa, debido a que los servicios relativos a la nave que está brindando el Muelle de Golfito a las embarcaciones de pasajeros son los de amarre y desamarre, estadía y ayudas a la navegación. Los restantes servicios relativos a la nave actualmente no los está ofreciendo el INCOP.
+(Así reformado mediante sesión N° 3765 del 8 de marzo del 2011)
 De la facturación y el cobro de los servicios
 Artículo 32.—Todo cliente, cualquiera que sea su clase, que necesite los servicios que se brindan en el muelle o en alguna forma utiliza las instalaciones o facilidades que se dan, tendrá que solicitarlos por escrito y con antelación, según criterio de la Administración del Muelle.
 Dicha solicitud deberá indicar claramente la identificación del servicio que solicita, bajo un formato de presentación el cual contendrá entre otras cosas nombre del solicitante, cédula de identidad, descripción de los servicios a solicitar y datos de la embarcación.
