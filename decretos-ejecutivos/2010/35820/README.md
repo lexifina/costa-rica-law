@@ -14,3 +14,4 @@ Directrices Generales de Política Salarial, Empleo y Clasificación de Puestos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-19 | la propia norma |
+| 2 | 2011-03-08 | Decreto Ejecutivo 36487 (2011-03-08) |

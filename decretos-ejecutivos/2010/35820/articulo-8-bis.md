@@ -1,0 +1,2 @@
+Artículo 8º bis.—Los ministerios y órganos desconcentrados, no podrán utilizar plazas nuevas cuyo contenido presupuestario esté contemplado en la Ley de Presupuesto de la República, si no cuentan con el respectivo acuerdo de la AP.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 36487 del 8 de marzo del 2011. Asimismo mediante el artículo 4° del decreto referido se dispone que el mismo regirá hasta el 31 de diciembre del 2011)
