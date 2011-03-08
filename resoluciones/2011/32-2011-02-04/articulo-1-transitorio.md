@@ -1,0 +1,1 @@
+Transitorio único.—Todos aquellos productores que a la fecha produzcan alimentos para animales para su propio consumo o grupo de interés dispondrán de un término de sesenta días hábiles para iniciar ante la Dirección de Alimentos para Animales el proceso de registro de dichos alimentos conforme a las disposiciones contenidas en el Decreto Nº 16899-MAG del 16 de diciembre de 1985.
