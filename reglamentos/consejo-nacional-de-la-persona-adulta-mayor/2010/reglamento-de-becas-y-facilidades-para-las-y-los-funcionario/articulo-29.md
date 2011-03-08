@@ -1,0 +1,1 @@
+Artículo 29.—Acuerdo de viaje y otros. Según la naturaleza y condiciones de la beca, cuando proceda, se emitirá un Acuerdo de Viaje, la confección de la respectiva Acción de Personal y la elaboración y firma del respectivo contrato, todo conforme a la Ley de Licencias para Adiestramiento de Servidores Públicos y este reglamento.

@@ -1,0 +1,1 @@
+Artículo 25.—Proceso de selección interna. Para la selección de los (as) candidatos (as) para la adjudicación de una beca o facilidad se tomarán en cuenta los factores que definirá la Comisión de Becas vía acuerdo, con base en los cuales se establecerá la calificación final obtenida por cada concursante.

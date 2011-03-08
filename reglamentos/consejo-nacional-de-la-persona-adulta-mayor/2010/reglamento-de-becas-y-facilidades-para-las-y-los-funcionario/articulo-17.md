@@ -1,0 +1,1 @@
+Artículo 17.- Recusación. Cuando cualquier participante considere que existe impedimento para que un (a) funcionario (a) intervenga en el proceso de adjudicación de las becas podrá plantear la respectiva recusación por escrito ante la Comisión de becas, quien siguiendo el procedimiento establecido en el artículo anterior, resolverá lo que corresponda.

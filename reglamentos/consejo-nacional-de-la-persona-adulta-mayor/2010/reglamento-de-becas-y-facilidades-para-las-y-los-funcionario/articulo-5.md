@@ -1,0 +1,1 @@
+Artículo 5.- Del financiamiento. El financiamiento total o parcial de la participación de los funcionarios (as) del CONAPAM en las facilidades otorgadas en el presente Reglamento queda sujeto a disponibilidad presupuestaria.

@@ -1,0 +1,3 @@
+Artículo 21.—Recepción de solicitudes. La Comisión de Becas tendrá a su cargo la recepción de ofertas de los concursantes según lo haya fijado.
+Con la sola presentación de las solicitudes de participación, los (as) interesados (as) aceptan los términos del Cartel de la convocatoria al concurso.
+En el caso de que la beca o facilidad haya sido difundida por los Colegios Profesionales u otros organismos que utilicen medios de comunicación colectiva, el (la) funcionario (a) podrá participar, siempre y cuando informe a la Comisión de Becas y cuente con los permisos señalados en el numeral 22 del presente Reglamento y se someta al procedimiento estipulado en este Capítulo.

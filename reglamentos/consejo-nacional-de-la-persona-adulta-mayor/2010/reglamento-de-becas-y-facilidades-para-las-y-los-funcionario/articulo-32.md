@@ -1,0 +1,2 @@
+Artículo 32.- Recursos contra la resolución de adjudicación. Dictada la resolución final, los (as) interesados (as) podrán interponer los recursos de revocatoria y/o apelación dentro de los tres días siguientes a su notificación ante la misma Comisión de Becas.
+En caso de que se rechace la revocatoria y si existiere recurso de apelación, se elevará el expediente a la Junta Rectora, a fin de que conozca el recurso en alzada.

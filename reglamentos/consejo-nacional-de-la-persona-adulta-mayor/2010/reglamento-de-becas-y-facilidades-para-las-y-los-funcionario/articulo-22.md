@@ -1,0 +1,1 @@
+Artículo 22.—Autorización del jefe inmediato. Será requisito indispensable para que un (a) funcionario (a) sea admitido (a) en un concurso, que el Jefe Inmediato manifieste mediante oficio su conformidad con su participación, se cuente con el visto bueno del Director del Área y que exista contenido presupuestario, en caso de que se requiera.

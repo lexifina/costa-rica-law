@@ -1,0 +1,1 @@
+Artículo 3.- Principios. Durante el proceso de concurso y adjudicación de becas y otras facilidades, deberán observarse los siguientes principios: igualdad, publicidad, democratización, idoneidad, calidad y eficiencia, con el fin de que toda beca o facilidad se constituya en un estímulo para el (la) funcionario (a) y se traduzca en una mejor prestación del servicio público.

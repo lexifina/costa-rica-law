@@ -1,0 +1,1 @@
+Artículo 20.—Apertura del concurso. La apertura del concurso se hará mediante la publicación de la convocatoria por medios electrónicos, sin perjuicio de otros medios que la Administración considere apropiados para su publicación.
