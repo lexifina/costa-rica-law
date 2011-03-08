@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Con el fin de garantizar la comprensión de los términos utilizados en la Convención, en salvaguarda del español como idioma oficial, y sin que se afecte ninguna obligación asumida en la Convención y su anexo respecto de las formalidades y el uso de la frase: “Apostille”, la certificación prevista en el artículo 3 y 4 de la Convención podrá denominarse, para efectos de aplicación interna del país, documento o certificación apostillada o apostilla.

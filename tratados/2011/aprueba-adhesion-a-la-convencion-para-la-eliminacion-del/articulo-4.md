@@ -1,0 +1,4 @@
+ARTÍCULO 4.-
+De conformidad con los términos de la Convención, la autoridad certificadora podrá corroborar con sus homólogos la veracidad de los documentos apostillados recibidos
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los veintidós días del mes de febrero del año dos mil once.
