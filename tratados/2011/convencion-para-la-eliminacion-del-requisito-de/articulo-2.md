@@ -1,0 +1,2 @@
+Artículo 2
+Cada Estado contratante eximirá de legalización los documentos a los que aplique la presente Convención y los cuales deban de ser mostrados en su territorio. Para propósitos de la presente Convención, la legalización significa solamente la formalidad por medio de la cual los agentes diplomáticos o consulares del país en el cual debe mostrarse el documento certifican la autenticidad de la firma, la calidad en la cual ha actuado la persona que firma el documento y, cuando sea apropiado, la identidad del sello o timbre que lleva.

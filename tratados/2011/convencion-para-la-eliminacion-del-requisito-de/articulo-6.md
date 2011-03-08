@@ -1,0 +1,5 @@
+Artículo 6
+Cada Estado contratante designará por referencia de su función oficial, a las autoridades que son competentes para emitir el certificado aludido en el primer párrafo del Artículo 3.
+Notificará de dicha designación al Ministerio de Relaciones Exteriores de los Países Bajos en el momento que deposite su instrumento de ratificación o de consentimiento o su declaración de extensión. También notificará de cualquier cambio en las autoridades designadas.
+(Nota de Sinalevi: Mediante el artículo 3° del Tratado Internacional “Aprueba Adhesión a la Convención para la Eliminación del Requisito de Legalización para los Documentos Públicos Extranjeros”; N° 8923 del 22/02/2011, se designa al Departamento de Autenticaciones, de la Dirección General del Ministerio de Relaciones Exteriores y Culto, como la autoridad competente para expedir la apostilla prevista en el párrafo primero del artículo 3 de la Convención.
+Las personas funcionarias competentes para emitir el certificado serán el jefe o la jefa de Autenticaciones y las personas oficiales de Autenticaciones del Ministerio de Relaciones Exteriores y Culto.)

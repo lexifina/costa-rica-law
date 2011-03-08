@@ -1,0 +1,4 @@
+Artículo 12
+Cualquier Estado no aludido en el Artículo 10, puede adherirse a la presente Convención después de que haya entrado en vigor de acuerdo con el primer párrafo del Artículo 11. El instrumento de adhesión se depositará con el Ministerio de Relaciones Exteriores de los Países Bajos.
+Dicha adhesión tendrá efecto sólo en cuanto se refiere a las relaciones entre el Estado adherente y aquellos Estados contratantes los cuales no hayan objetado su adhesión en los seis meses después del recibo de la notificación aludida en el sub-párrafo d) del Artículo 15. Cualesquiera de tales objeciones serán notificadas al Ministerio de Relaciones Exteriores de los Países Bajos.
+La Convención entrará en vigor entre el Estado adherente y los Estados que no han hecho objeciones a su adhesión en el sexagésimo día después de que expire el período de seis meses mencionado en el párrafo anterior.

@@ -1,0 +1,4 @@
+Artículo 13
+Cualquier Estado puede, al momento de la firma, ratificación o adhesión, declarar que la actual Convención se extenderá a todos los territorios para las relaciones internacionales de las cuales es responsable, o a uno o más de ellos. Tal declaración tendrá efecto en la fecha de entrada en vigor de la Convención para el Estado interesado.
+En cualquier momento de ahí en adelante, dichas extensiones se notificarán al Ministerio de Relaciones Exteriores de los Países Bajos.
+Cuando la declaración de extensión se hace por un Estado que ha firmado y ratificado, la Convención entrará en vigor para los territorios interesados de acuerdo con el Artículo 11. Cuando la declaración de extensión se hace por un Estado que se ha adherido, la Convención entrará en vigor para los territorios concernientes de acuerdo con el Artículo 12.
