@@ -1,0 +1,1 @@
+5º—Firmar todos los cheques que al momento de emitirse el presente acto de delegación, son del resorte de la Defensora de los Habitantes, para lo cual deberán realizarse las gestiones necesarias ante los bancos y demás instancias correspondientes, a fin de que se tengan por conocidas y acreditadas las mismas.
