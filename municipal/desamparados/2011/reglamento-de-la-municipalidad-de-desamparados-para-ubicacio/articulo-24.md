@@ -1,0 +1,1 @@
+Artículo 24.—La Municipalidad está facultada para imponer sanciones por las infracciones a este Reglamento por sí sola, o en conjunto con otras Instituciones. Estas sanciones incluyen multas, suspensión, clausura y demolición de lo construido sin autorización, de acuerdo con lo que establece la legislación vigente.
