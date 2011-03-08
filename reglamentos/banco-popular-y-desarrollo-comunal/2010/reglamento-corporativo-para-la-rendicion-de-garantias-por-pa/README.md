@@ -14,3 +14,4 @@ Reglamento Corporativo para la Rendición de Garantías por parte de los trabaja
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-08 | la propia norma |
+| 2 | 2011-03-08 | Reglamento 4819 (2011-01-20) |

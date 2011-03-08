@@ -1,5 +1,5 @@
-Artículo 4º—De los trabajadores o trabajadoras que deben rendir garantía: Los trabajadores o trabajadoras que deberán rendir garantía serán los que ocupen alguno de los siguientes puestos:
-BANCO POPULAR Y DE DESARROLLO COMUNAL
+Artículo 4º—De los trabajadores o trabajadoras que deben rendir garantía.
+Los trabajadores o trabajadoras que deberán rendir garantía serán los que ocupen alguno de los siguientes puestos:
 Tipo de puesto | Nivel de Responsabilidad | Monto de Garantía (en colones)
 Gerente General | Gerencial | 1.000.000.00
 Subgerentes Generales | Gerencial | 1.000.000.00
@@ -15,7 +15,7 @@ Coordinador de Plataforma y Cajas, Supervisor de Cajeros Automáticos, Superviso
 Tesoreros | Operativo | 500.000.00
 Ejecutivo Bancario Administrativo 1 de Centros de Negocios (Ejecutivo de Negocios 2), Técnico en Servicios y Operaciones Bancarias 1 de Centros de Negocios (Ejecutivo de Negocios 1) | Operativo | 500.000.00
 Operadores de Cajero Automático, Oficiales de Bóveda, Cajeros y Plataformistas | Operativo | 500.000.00
-Sociedades Anónimas
+Sociedades Anónima
 Popular SAFI
 Tipo de Puesto | Nivel de Responsabilidad | Tipo de Recursos que Maneja | Monto de la Garantía (en millones)
 Gerente | Gerencial | Títulos Valores y efectivo, monto variable | ¢1.000.000.00
@@ -63,8 +63,8 @@ Gerente | Gerencial | Títulos Valores y efectivo, monto variable | ¢1.000.000.
 Auditor Interno | Gerencial | Presupuesto Anual | 1.000.000.00
 Gerente de Operaciones | Gerencial | Títulos Valores y efectivo, monto variable | 1.000.000.00
 Gerente de Negocios | Gerencial | Títulos Valores, efectivo y monto variable | 1.000.000.00
-Corredores de Bolsa (únicamente si invierten fondos de entidades públicas) | Administrativo | Títulos Valores, efectivo y monto variable | 1.000.000.00
-Asistentes de Corredores de Bolsa (únicamente si invierten fondos de entidades públicas) | Operativo | Títulos Valores, efectivo y monto variable | 500.000.00
+Agentes de Bolsa (únicamente si invierten fondos de entidades públicas) | Administrativo | Títulos Valores, efectivo y monto variable | 1.000.000.00
+Asistentes de Agentes de Bolsa (únicamente si invierten fondos de entidades públicas) | Operativo | Títulos Valores, efectivo y monto variable | 500.000.00
 Analista de Mercados Internacionales | Administrativo | Títulos Valores, efectivo y monto variable | 1.000.000.00
 Corredor de Planta del Conglomerado | Administrativo | Títulos Valores, efectivo y monto variable | 1.000.000.00
 Corredor de Planta Internacional | Administrativo | Títulos Valores, efectivo y monto variable | 1.000.000.00
@@ -109,5 +109,5 @@ Oficial de libre transferencia | Operativa | Adm. recuada. de fondos | 500.000.0
 Oficial de recaudación | Operativa | Adm. recuada. de fondos | 500.000.00
 Auxiliar de operaciones 1 | Operativa | Adm. recuada. de fondos | 500.000.00
 Oficial de Operaciones 1 | Operativa | Adm. recuada. de fondos | 500.000.00
-Los agentes de Bolsa y sus asistentes, por no recaudar, custodiar, ni administrar fondos públicos, no tendrán que rendir caución; sin embargo, sí deberán hacerlo aquellos que trabajan en la inversión de fondos públicos”.
-(Este artículo se modificó en la sesión ordinaria 4819, de Junta Directiva Nacional celebrada el jueves 20 de enero del 2011 con el acuerdo 054 mismo que se publicó en la gaceta N° 35 del viernes 18 de febrero del 2011)
+Los agentes de Bolsa y sus asistentes, por no recaudar, custodiar, ni administrar fondos públicos, no tendrán que rendir caución; sin embargo, sí deberán hacerlo aquellos que trabajan en la inversión de fondos públicos.
+(Así reformado mediante sesión 4819 del 20 de enero del 2011)
