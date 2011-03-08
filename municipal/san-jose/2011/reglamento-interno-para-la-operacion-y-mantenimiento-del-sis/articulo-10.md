@@ -1,0 +1,1 @@
+Artículo 10.—Función de la CICI. Se constituye la Comisión Institucional de Control Interno, como órgano staff del Máximo Jerarca Administrativo (Alcalde), con el propósito de que coordine a nivel institucional todas las acciones dirigidas al fortalecimiento del SCII.

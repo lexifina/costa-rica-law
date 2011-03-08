@@ -1,0 +1,1 @@
+Artículo 23.—Cuestionario para la Autoevaluación. El diseño del cuestionario de autoevaluación podrá ser modificado y adaptado año con año de acuerdo con la realidad institucional o el interés del Máximo Jerarca Administrativo.

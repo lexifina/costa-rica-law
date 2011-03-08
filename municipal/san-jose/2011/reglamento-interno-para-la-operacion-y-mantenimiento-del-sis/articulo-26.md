@@ -1,0 +1,1 @@
+Artículo 26.—Seguimiento. Tanto los Titulares Subordinados, Gerentes como la CICI, darán seguimiento e informarán periódicamente a las instancias indicadas en el artículo 21 del presente Reglamento, sobre las gestiones realizadas para el fortalecimiento del SCII.
