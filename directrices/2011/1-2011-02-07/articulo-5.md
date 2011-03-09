@@ -1,0 +1,1 @@
+Artículo 5º—Sanción disciplinaria. Los y las funcionarios (as) del Ministerio de Trabajo y Seguridad Social que, al evacuar consultas sobre los temas comprendidos dentro del Compendio de Criterios Jurídico-Laborales, se aparten de la posición institucional, incurrirán en falta a sus deberes con las consecuentes responsabilidades disciplinarias.
