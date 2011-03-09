@@ -1,1 +1,1 @@
-Artículo 154.—El procedimiento deberá ser llevado a cabo resguardando la imagen de las partes y la confidencialidad de los hechos, bajo pena de incurrir en falta grave las personas funcionarias que intervinieren.
+Artículo 154.—(Derogado por el artículo 36 del "Reglamento para la regulación de la prevención y sanción de las conductas que configuren el Hostigamiento Sexual en el Instituto de las Mujeres", aprobado mediante sesión ordinaria N° 09-2011 del 9 de marzo del 2011)

@@ -1,1 +1,1 @@
-Artículo 152.—La Presidencia Ejecutiva deberá consignar un Comité para la Prevención del Hostigamiento Sexual, que estará adscrito al Área de Recursos Humanos.
+Artículo 152.—(Derogado por el artículo 36 del "Reglamento para la regulación de la prevención y sanción de las conductas que configuren el Hostigamiento Sexual en el Instituto de las Mujeres", aprobado mediante sesión ordinaria N° 09-2011 del 9 de marzo del 2011)

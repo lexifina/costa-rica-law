@@ -1,1 +1,1 @@
-Artículo 156.—El Área de Recursos Humanos, dentro de las acciones inmediatas, podrá recomendar de oficio o a solicitud del interesado la reubicación temporal en el instituto, de el o la funcionario/a denunciante o del denunciado. La Presidencia Ejecutiva definirá en última instancia.
+Artículo 156.—(Derogado por el artículo 36 del "Reglamento para la regulación de la prevención y sanción de las conductas que configuren el Hostigamiento Sexual en el Instituto de las Mujeres", aprobado mediante sesión ordinaria N° 09-2011 del 9 de marzo del 2011)

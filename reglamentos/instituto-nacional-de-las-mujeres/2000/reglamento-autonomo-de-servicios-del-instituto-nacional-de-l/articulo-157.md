@@ -1,1 +1,1 @@
-Artículo 157.—La persona que haya denunciado ser víctima de acoso u hostigamiento sexual, o haya comparecido como testigo de las partes, no podrá sufrir por ello, perjuicio alguno en su empleo.
+Artículo 157.—(Derogado por el artículo 36 del "Reglamento para la regulación de la prevención y sanción de las conductas que configuren el Hostigamiento Sexual en el Instituto de las Mujeres", aprobado mediante sesión ordinaria N° 09-2011 del 9 de marzo del 2011)
