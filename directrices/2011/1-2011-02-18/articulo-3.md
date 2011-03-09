@@ -1,0 +1,1 @@
+3) El Registrador deberá calificar la procedencia de la desinscripción y de ser legalmente posible la practicará, dejando como titular del bien al último dueño, sea el beneficiario del seguro. Si no fuere posible autorizarla por existir gravámenes judiciales o reales anotados o inscritos en el vehículo, devolverá el documento en estado “defectuoso”.
