@@ -14,3 +14,4 @@ Reforma Reglamento del Fondo de Garantías del Régimen de Garantías y Jubilaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-22 | la propia norma |
+| 2 | 2011-03-09 | Reglamento 5862 (2011-03-09) |
