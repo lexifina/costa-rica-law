@@ -1,0 +1,14 @@
+Artículo 48.—Son funciones del Departamento de Gestión de Juntas:
+a) Coordinar con las instancias del MEP que tienen a cargo la gestión de las transferencias hacia las Juntas de Educación y Administrativas y otras dependencias.
+b) Recibir, analizar y verificar de las instancias autorizadas la documentación para realizar la gestión de depósito de las transferencias que cuentan con asignación presupuestaria del MEP.
+c) Remitir al Departamento de Tesorería el insumo para que realice la carga del archivo de planilla de transferencias, al Sistema Integrado de la Gestión Administrativa Financiera (SIGAF), previa verificación de los requisitos técnicos, administrativos y legales establecidos en la normativa vigente para este proceso.
+d) Recibir del Departamento de Tesorería el informe de confirmación de la propuesta de transferencia, para el control y seguimiento.
+e) Recibir del Departamento de Tesorería informe de las devoluciones bancarias generadas, para el trámite correspondiente.
+f) Mantener y custodiar el archivo de los documentos de ejecución presupuestaria que respaldan las operaciones financieras que la naturaleza y especialidad de sus funciones definan, de conformidad con las regulaciones y lineamientos que para tales efectos emite el Ministerio de Hacienda y el Archivo Central del Ministerio de Educación Pública.
+g) Realizar o gestionar la capacitación de las instancias regionales del MEP en materia técnica propia de la actividad financiera de las Juntas de Educación y de las Juntas Administrativas.
+h) Coordinar y ser el enlace entre las instancias regionales y el nivel de administración central del MEP, para proponer soluciones y procedimientos a los diversos aspectos de naturaleza administrativa y financiera que enfrentan las Juntas de Educación y de las Juntas Administrativas.
+i) Ejercer el control sobre la labor fiscalizadora que realizan las instancias regionales sobre el uso de los fondos transferidos a las Juntas de Educación y a las Juntas Administrativas y ejercer cuando corresponda y en forma coordinada, la fiscalización directa en situaciones especiales.
+j) Solicitar, por medio de las instancias regionales, reportes periódicos sobre el uso de los recursos canalizados a las Juntas de Educación y a las Juntas Administrativas y mantener información actualizada.
+k) Ejercer el mando técnico, por medio de directrices, disposiciones y circulares, sobre las dependencias del Ministerio en que la naturaleza y especialidad de sus funciones lo demanden; así como supervisar y evaluar su puesta en práctica.
+l) Velar por el cumplimiento y actualización de las funciones y tareas específicas definidas en los manuales de procedimiento establecidos para la organización interna.
+m) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.

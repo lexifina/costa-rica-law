@@ -1,0 +1,1 @@
+Artículo 5º—Al Nivel Asesor le corresponde brindar asesoría especializada al Nivel Político en áreas estratégicas para su funcionamiento. Asimismo, brindar asesoría a las dependencias que conforman el Nivel Director y el Nivel Ejecutor, de acuerdo con lo establecido en el presente decreto y los lineamientos que dicte el Ministro de Educación Pública para tales efectos.
