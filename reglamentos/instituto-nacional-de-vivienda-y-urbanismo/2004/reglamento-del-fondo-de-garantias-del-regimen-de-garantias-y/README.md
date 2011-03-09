@@ -16,3 +16,4 @@ Reglamento del Fondo de Garantías del Régimen de Garantías y Jubilaciones del
 | 1 | 2005-02-01 | la propia norma |
 | 2 | 2005-05-02 | Reglamento 5468 (2005-05-02) |
 | 3 | 2008-09-03 | Reglamento 5692 (2008-09-03) |
+| 4 | 2011-03-09 | Reglamento 5862 (2011-03-09) |

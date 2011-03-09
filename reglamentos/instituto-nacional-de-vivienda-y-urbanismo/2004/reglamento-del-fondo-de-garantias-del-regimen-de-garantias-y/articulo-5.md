@@ -1,4 +1,4 @@
 CAPÍTULO II
 Fondo de Garantías
-Artículo 5º—De los aportes. El fondo estará conformado por el aporte patronal y por el aporte laboral a los que se refiere el artículo tres de este Reglamento, así como por los productos financieros que se obtengan de la colocación de préstamos y cualquier operación mercantil que realice el Fondo, debidamente autorizada por la Junta Administradora. Se considera parte del Fondo aunque constituyendo una cuenta separada e irrepartible que podrá utilizarse para el otorgamiento de préstamos a los afiliados, cualquier remanente existente a la fecha de la reserva de Mutualidad creada mediante Reglamento aprobado según acuerdo de Junta Directiva del Instituto, artículo VII de la sesión ordinaria Nº 3853 celebrada el 05 de setiembre de 1988, publicado en La Gaceta N º 191 del 07 de octubre de 1988.
-(Así reformado mediante sesión N° 5692 del 3 de setiembre de 2008)
+Artículo 5º—De los aportes. El Fondo está conformado por el aporte patronal y por el aporte laboral a los que se refiere el artículo 3 de este Reglamento, así como por los productos financieros que se obtengan de la colocación de préstamos y cualquier operación mercantil que realice el Fondo debidamente autorizada por la Junta Administradora.
+(Así reformado mediante sesión ordinaria N° 5862 del 9 de marzo del 2011)
