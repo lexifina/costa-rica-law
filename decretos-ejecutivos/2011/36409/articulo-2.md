@@ -1,0 +1,1 @@
+Artículo 2º—Se deroga el Decreto Ejecutivo Nº 32891-MAG del 2 de diciembre del 2005, publicado en La Gaceta Nº 76 del 20 de abril del 2006, titulado “Reforma decreto que establece carácter anual pago canon artículo 27 Ley de Protección Fitosanitaria. Deroga modificación artículo 4º Reglamento regencias y norma canon anual a Colegio de Ingenieros Agrónomos”.
