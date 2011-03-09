@@ -1,0 +1,1 @@
+Artículo 28.—Resolución final. El (la) Director (a) o, quien en ausencia lo (la) sustituya, tendrá cinco días naturales para resolver lo que corresponda. En caso de que exista mérito suficiente para recomendar el despido de la persona denunciada, el (la) Director (a) Ejecutivo (a) elevará el asunto ante el Directorio Legislativo para su decisión final.

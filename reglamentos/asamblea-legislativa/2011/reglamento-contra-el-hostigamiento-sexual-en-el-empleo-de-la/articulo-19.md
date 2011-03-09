@@ -1,0 +1,1 @@
+Artículo 19.—De la ampliación o aclaración. La comisión investigadora podrá solicitar a la persona denunciante, dentro del término de tres días hábiles, contados a partir de su instalación, que amplíe o aclare los términos de la denuncia.

@@ -1,0 +1,1 @@
+Artículo 22.—Comparecencia de la persona denunciante. Vencido el plazo que determina el artículo 20 y en los siguientes tres días hábiles, la comisión investigadora dará audiencia a la persona denunciante, para que comparezca ante esta instancia.

@@ -1,0 +1,1 @@
+Artículo 21.—De las medidas cautelares. El (la) Director (a) Ejecutivo (o) podrá dictar, de oficio o a petición de parte, las medidas cautelares que considere oportunas, de conformidad con el artículo 24 de la Ley Nº 7476, en cualquier momento del proceso.

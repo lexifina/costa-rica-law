@@ -1,0 +1,1 @@
+Artículo 29.—De los recursos contra la resolución final. El acto final tendrá recurso de revocatoria y apelación, si es dictado por el Director Ejecutivo. Si la decisión final es adoptada por el Directorio Legislativo tendrá únicamente el recurso de revocatoria. Estos recursos deberán interponerse dentro del tercer día siguiente a la notificación de la resolución.
