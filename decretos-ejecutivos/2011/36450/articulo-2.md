@@ -1,0 +1,7 @@
+Artículo 2º—Definiciones. Para los efectos de aplicación del presente reglamento se entiende por:
+a. Documento de proyecto: Documento que expresa de manera general los resultados o grandes conclusiones del proceso de análisis conforme al marco lógico o diseño del proyecto, algunos de los aspectos que deben incluir son la información general, definición del problema y sus causas; objetivos del proyecto, resultados esperados y actividades del proyecto, indicadores del proyecto, presupuesto detallado, sostenibilidad del proyecto, entre otros.
+b. Estructuración: Esquema de financiamiento que asegure la viabilidad del proyecto, tomando en cuenta todas las variables financieras atinentes a la operación, que tiene como fin último mantener el adecuado equilibrio financiero de la operación y las mejores condiciones para el Estado.
+c. Inversión adicional: es toda aquella inversión que complemente el desarrollo de la obra pública y que sea parte integral del funcionamiento del fideicomiso, por ejemplo equipamiento y servicios.
+d. Modelo cuota de arrendamiento: Estructura de estimación que será empleada para determinar el valor de la cuota de arrendamiento pagada en un tiempo determinado durante el periodo acordado en el contrato de arrendamiento.
+e. NIC: Normas Internacionales de Contabilidad.
+f. Administración Pública: Gobierno de la República, el sector descentralizado territorial e institucional, órganos desconcentrados, entes públicos no estatales que brinden servicios públicos, y las entidades o empresas públicas y de servicios públicos.
