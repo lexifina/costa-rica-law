@@ -1,0 +1,1 @@
+Artículo 3º—Modifíquese la resolución Nº DGT-20-05 del 19 de octubre del 2005, publicada en el Alcance N° 42 a La Gaceta Nº 219 del 14 de noviembre del 2005, en lo que se refiere al precio de venta de formularios.
