@@ -14,3 +14,4 @@ Concede autorización de Exención Genérica de los Derechos de Inmigración a f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-02 | la propia norma |
+| 2 | 2011-03-10 | Resolución 9 (2011-03-10) |
