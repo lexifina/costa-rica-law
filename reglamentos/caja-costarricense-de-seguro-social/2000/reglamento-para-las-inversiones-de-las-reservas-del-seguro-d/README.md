@@ -15,3 +15,4 @@ Reglamento para las Inversiones de las Reservas del Seguro de Salud
 | --- | --- | --- |
 | 1 | 2000-10-03 | la propia norma |
 | 2 | 2003-12-04 | Reglamento 7814 (2003-12-04) |
+| 3 | 2011-03-10 | Reglamento 8497 (2011-03-10) |

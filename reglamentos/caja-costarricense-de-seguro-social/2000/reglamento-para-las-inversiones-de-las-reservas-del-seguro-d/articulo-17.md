@@ -1,0 +1,3 @@
+Artículo 17.—Con el fin de ajustar los flujos de ingresos a fechas de los compromisos financieros, el Director Financiero Contable o el Jefe del Área de Tesorería General podrán realizar inversiones a la vista cuyo plazo sea menor a 90 (noventa) días para lo cual deberán suscribirse los contratos respectivos con los bancos o puestos de bolsa autorizados. Estas inversiones deben apegarse a la normativa vigente en materia de inversiones y la política de inversión aprobada por la Junta Directiva para cada ejercicio económico.
+(Así reformado mediante sesión N° 8497 del 10 de marzo del 2011)
+(Así corrida su numeración en sesión N° 8497 del 10 de marzo de 2011, que lo traspaso del antiguo artículo 15 al 17 actual)
