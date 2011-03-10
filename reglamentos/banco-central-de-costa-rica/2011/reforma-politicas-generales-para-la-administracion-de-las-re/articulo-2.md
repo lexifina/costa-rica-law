@@ -1,0 +1,1 @@
+2. Modificar el artículo 55 de las Políticas para la Administración de las Reservas Monetarias Internacionales, en el sentido de eliminar la frase “No será permitido mantener posiciones cortas en monedas diferentes al dólar de los Estados Unidos”.
