@@ -12,4 +12,5 @@ DECLARATORIA DE INTERÉS PÚBLICO DEL PROYECTO
 DENOMINADO: “CONSTRUCCIÓN DEL PROYECTO
 DE INFRAESTRUCTURA VIAL BAJOS DE
 CHILAMATE - VUELTA KOOPER”
-Artículo 1º—Se declara de interés público, en todos sus alcances, las labores para el desarrollo y construcción del Proyecto denominado: “Proyecto de Infraestructura Vial Bajos de Chilamate - Vuelta Kooper”, el cual abarca veintisiete kilómetros de vía, pasando por los cantones de Grecia, Sarapiquí y San Carlos, y labores relacionadas con actividades de estudios, diseño final, inspección y supervisión, movimiento de tierras y de rocas, pavimentos, alcantarillas, puentes, señalización y demás correlativas y necesarias.
+Artículo 1º—Se declaran de interés público y de conveniencia nacional, en todos sus alcances, las labores para el desarrollo y construcción del Proyecto denominado: “Proyecto de Infraestructura Vial Bajos de Chilamate-Vuelta Kooper”, el cual abarca veintisiete kilómetros de vía, pasando por los Cantones de Grecia, Sarapiquí y San Carlos y labores relacionadas con actividades de estudios, diseño final, inspección y supervisión, movimiento de tierras y de rocas, pavimentos, alcantarillas, puentes, señalización y demás correlativas y necesarias.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36536 del 11 de marzo de 2011)

@@ -14,3 +14,4 @@ Declara de interés público, en todos sus alcances, las labores para el desarro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-04 | la propia norma |
+| 2 | 2011-03-11 | Decreto Ejecutivo 36536 (2011-03-11) |
