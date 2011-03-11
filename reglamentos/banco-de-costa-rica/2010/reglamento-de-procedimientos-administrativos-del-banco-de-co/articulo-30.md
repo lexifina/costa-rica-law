@@ -1,0 +1,10 @@
+Artículo 30.
+a. La resolución inicial de traslado de cargos deberá ser notificada al o los investigados con al menos quince días hábiles de anticipación a la celebración de la comparecencia.
+b. Cuando no conste en el expediente la residencia, lugar de trabajo o cualquier otra dirección exacta del o los investigados, la notificación se hará por publicación en el Diario Oficial La Gaceta, la que deberá hacerse por tres veces consecutivas y se tendrá por hecha cinco días después de la última publicación.
+c. La comparecencia podrá ser grabada en cuyo caso el Órgano Director levantará un acta que se incorporará al expediente con la sola firma del Presidente, pero en todo caso deberá serlo antes de la decisión final.
+d. La Unidad de Procedimientos Administrativos custodiará las grabaciones originales hasta la conclusión del expediente.
+e. La comparecencia se realizará a la hora, fecha y lugar indicados en la resolución.
+f. Todas las incidencias relativas a la integración del Órgano Director y a la continuación del procedimiento o a la recepción y rechazo de pruebas, deberán ser resueltas por el Órgano Director en el acto mismo de la comparecencia.
+g. La comparecencia podrá llevarse a cabo aún sin la presencia del o los investigados, siempre y cuando éstos hayan sido notificados oportunamente, y no conste en el expediente causa legítima alguna para su inasistencia. Si el investigado se encuentra incapacitado, se suspenderá la tramitación del procedimiento, hasta que éste se reintegre a sus funciones.
+h. Una vez concluida la comparecencia, en un plazo no mayor de treinta días naturales el Órgano Director emitirá un informe de recomendación, que pondrá al conocimiento de la Gerencia General para el dictado del acto final.
+i. Si en la tramitación del expediente el Órgano Director determina la existencia de una eventual responsabilidad penal, en el informe recomendará a la Gerencia General el traslado de los hechos, sin calificación jurídica alguna, al Ministerio Público para que sea este órgano el que analice el caso y califique los hechos conforme con su competencia.

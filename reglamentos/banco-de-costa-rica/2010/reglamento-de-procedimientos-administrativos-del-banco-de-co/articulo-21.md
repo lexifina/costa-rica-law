@@ -1,0 +1,4 @@
+CAPÍTULO II
+Medidas cautelares
+Artículo 21.—La Administración podrá adoptar las medidas cautelares pertinentes, cuando sean absolutamente necesarias para garantizar la imparcialidad de la investigación, cuando al servidor se le impute una presunta falta relacionado con el desempeño de su función o falta relacionada con corrupción y tráfico de influencias, o cualquier otra que por su particular gravedad, la jerarquía del puesto que desempeña el servidor, comprometa seriamente los intereses o la imagen institucional.
+Las medidas cautelares se dictarán en resolución motivada, en cualquier momento de la investigación preliminar o procedimiento, incluso antes (ante causam). La resolución se notificará personalmente al servidor afectado, la cual deberá indicarlos recursos ordinarios que correspondan y plazo para interponerlos. Las medidas cautelares podrán ordenarse de oficio o a solicitud de parte.

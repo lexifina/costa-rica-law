@@ -1,0 +1,15 @@
+Artículo 49.—El hostigamiento podría presentar, entre otros:
+- Asignar trabajos sin valor o utilidad alguna.
+- Rebajar al servidor o servidores asignándoles trabajos por debajo de su capacidad profesional o sus competencias habituales.
+- Ejercer contra el servidor o servidores una presión indebida o arbitraria para realizar su trabajo.
+- Evaluar su trabajo de manera desigual o de forma sesgada.
+- Desvalorar sistemáticamente su esfuerzo o éxito profesional o atribuirlo a otros factores o a terceros.
+- Amplificar y dramatizar de manera injustificada errores pequeños o intrascendentes.
+- Menospreciar o menoscabar personal o profesionalmente a la persona.
+- Asignar plazos de ejecución o cargas de trabajo irrazonables.
+- Restringir las posibilidades de comunicarse, hablar o reunirse con el superior.
+- Ignorar, excluir o no tomar en cuenta al servidor sin justificación alguna.
+- Discriminación en razón de sexo, raza, nacionalidad, religión o idioma.
+- Rechazo de la víctima por razones estéticas, de posición social o económica, relegando su capacidad o potencial humano.
+- Retener información crucial para su trabajo o manipularla para inducirle a error en su desempeño laboral, y acusarle después de negligencia o faltas profesionales.
+- Difamar a la víctima, extendiendo rumores maliciosos o calumniosos que menoscaban su reputación, su imagen o su profesionalidad.
