@@ -10,5 +10,6 @@ h) Velar por la correcta aplicación de normas, disposiciones, leyes y reglament
 i) Atender y resolver consultas que le formulan superiores, colaboradores, subalternos, compañeros y público en general y brindar asesoría en materia de su especialidad al Director General, Despacho del Ministro(a), niveles gerenciales de la Dirección General de Tributación, instituciones públicas, organismos internacionales y contribuyentes.
 j) Aprobar y revisar periódicamente los procesos de recursos humanos, capacitación, recursos materiales y tecnológicos y otras áreas relacionadas e introducir los ajustes que se consideren oportunos, en coordinación con la Dirección Administrativa y Financiera, Centro de Investigación y Formación Hacendaria y Dirección de Tecnología Corporativa.
 k) Gestionar la atención de las necesidades en lo concerniente a presupuesto, recursos humanos, tecnológicos y materiales, sistemas de información; así como autorizar todos aquellos movimientos que por disposiciones legales o administrativas lo requieran en aras de una gestión eficiente y eficaz.
-l) Sustituir al Director General en sus funciones cuando sea requerido.
+l) Sustituir al Director General en sus funciones durante su ausencia.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 36505 del 14 de marzo del 2011)
 m) Realizar cualesquiera otras tareas incluyendo las que le asigne el Director (a) General de Tributación, no expresadas anteriormente, pero que puedan incluirse dentro del ámbito de sus competencias y responsabilidades.

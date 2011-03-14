@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Dirección General de Tributación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-21 | la propia norma |
+| 2 | 2011-03-14 | Decreto Ejecutivo 36505 (2011-03-14) |
