@@ -23,3 +23,4 @@ Reglamento para la Prestación de Servicios de Agua y Alcantarillado.
 | 8 | 2001-07-23 | Reglamento 2318 (2001-07-23) |
 | 9 | 2004-07-12 | Reglamento 25 (2004-07-12) |
 | 10 | 2005-01-12 | Reglamento 6 (2005-01-12) |
+| 11 | 2011-03-14 | Reglamento 3146 (2011-03-14) |
