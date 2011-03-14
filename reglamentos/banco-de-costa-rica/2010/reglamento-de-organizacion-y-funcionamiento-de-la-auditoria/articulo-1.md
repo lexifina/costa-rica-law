@@ -1,4 +1,6 @@
+(Derogado)
 BANCO DE COSTA RICA
+(Esta norma fue derogada por el artículo 40 del Reglamento de Organización y funcionamiento de la Auditoría Interna del Banco de Costa Rica, aprobado mediante sesión 11-11 del 14 de marzo del 2011)
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
 DE LA AUDITORÍA INTERNA DEL BCR
 La Junta Directiva General del Banco en sesión 02-10, artículo XII del 11 de enero de 2010 aprobó el Reglamento de organización y funcionamiento de la auditoría interna del BCR
@@ -30,10 +32,10 @@ Bloque de legalidad: conjunto de normas con rango de ley vigentes.
 Comisión de índole multidisciplinaria: grupo de personas a quienes se les entrega un asunto para su estudio, en materia de distintas naturalezas.
 Competencias: atribución legítima para el conocimiento o resolución de un asunto; conjunto de actividades, labores o funciones, asignadas por la normativa a la auditoría interna.
 Conflicto de intereses: se origina en el momento que un funcionario recibe algún beneficio económico o personal, o participa de alguna situación que se contrapone a su cargo, y con ello comprometa su objetividad e independencia.
-Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”, Acuerdo SUGEF 8-08. Para este reglamento se denominará conglomerado BCR y corresponderá al Banco de Costa Rica y sus subsidiarias.
+Conglomerado financiero: Intermediario financiero de derecho público domiciliado en Costa Rica o entidad fiscalizada creada por ley especial, y sus empresas, según lo dispuesto en el “Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros”, Acuerdo SUGEF 8-08. Para este reglamento se denominará conglomerado BCRy corresponderá al Banco de Costa Rica y sus subsidiarias.
 Cuidado profesional: propósito de hacer las cosas bien, con toda integridad y responsabilidad en su desempeño, estableciendo una oportuna y adecuada supervisión en la labor que se realice.
 Enfoque sistémico y profesional: línea de dirección para percibir la interacción entre las partes de un todo, acorde con los objetivos de la función a realizar, y desarrollado en forma competente por el auditor.
-Ente: es la institución u organización, principalmente estatal.
+Ente: es la institución u organización, principalmente estatal
 Entes fiscalizadores: son las instituciones u órganos que fiscalizan la actuación pública de las distintas entidades.
 Ética: es la interiorización de normas y principios que hacen responsable al individuo de su propio bienestar y, consecuentemente, del de los demás, mediante un comportamiento basado en conductas morales socialmente aceptadas, para comportarse consecuentemente con éstas.
 Fiscalizar: actividad tendiente a la verificación del cumplimiento de determinadas actividades o funciones realizadas por otros.
