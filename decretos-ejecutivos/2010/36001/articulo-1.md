@@ -1,4 +1,6 @@
+(Derogado)
 N° 36001-MAG
+(Este decreto fue derogado por el artículo 19° del Reglamento de la Estructura Organizativa del Servicio Nacional de Salud Animal, aprobado mediante decreto ejecutivo N° 36571 del 14 de marzo de 2011)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
 En ejercicio de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, la Ley Nº 8495 del 6 de abril del 2006, Ley General del Servicio Nacional de Salud Animal, y la Ley Nº 8799 del 16 de abril de 2010, Ley de Control de Ganado Bovino, Prevención y Sanción de su Robo, Hurto y Receptación; y
