@@ -1,0 +1,1 @@
+Artículo 2.- Declárense de interés público y nacional, las acciones y actividades que llevan a cabo las autoridades públicas, para solucionar el problema de índole sanitario de los quirófanos del Hospital San Juan de Dios.
