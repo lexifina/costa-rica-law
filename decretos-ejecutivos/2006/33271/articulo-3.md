@@ -1,10 +1,8 @@
-Artículo 3º—El Consejo Nacional de Cáncer estará integrado de la siguiente forma:
-a) Un Coordinador que lo presidirá y deberá ser Médico con especialidad en Oncología y será nombrado por el Ministro de Salud.
-b) Un representante del Registro Nacional de Tumores del Ministerio de Salud.
-c) Un representante del Instituto Costarricense contra el Cáncer.
-d) Un representante de la Gerencia Médica de la Caja Costarricense de Seguro Social.
-e) Un representante de la Universidad de Costa Rica relacionado con investigación en cáncer.
-f) Cuatro representantes de los Hospitales de Referencia Nacional con Servicio de Oncología de la Caja Costarricense del Seguro Social. Debe ser uno por hospital y médicos con sub-especialidades en Oncología.
-g) Un médico especialista en Hematología Oncológica nombrado por la Asociación Costarricense de Hematología.
-h) Un representante de la Dirección de Medicamentos y Terapéutica de la Caja Costarricense de Seguro Social.
-Dichos miembros participarán con derecho a voz y voto. Los asesores eventualmente invitados tendrán derecho a voz únicamente.
+Artículo 3°- El Consejo Nacional de Cáncer estará integrado de la siguiente forma:
+a) El Ministro de Salud o un Viceministro de Salud quien lo presidirá y coordinará.
+b) Una persona representante del Registro Nacional de Tumores del Ministerio de Salud.
+c) Una persona representante de la Red Oncológica Nacional designado por la Gerencia Médica de la Caja Costarricense de Seguro Social.
+d) Una persona representante de la Dirección de Farmacoepideomología de la Caja Costarricense de Seguro Social.
+e) Los Jefes de los Departamentos de Hemato-Oncología de los Hospitales Nacionales, cuando aquellos sean médicos especialistas en Oncología, caso contrario asistirá el Jefe del Servicio de Oncología.
+También asistirán a las sesiones del Consejo Nacional de Cáncer, el Director de la Dirección de Asuntos Jurídicos y el Director de la Dirección de Garantía de Acceso a Servicios de Salud, del Ministerio de Salud o sus representantes, los que tendrán derecho a voz pero sin voto. Asimismo asesores en temas específicos invitados a las sesiones del Consejo Nacional del Cáncer los que tendrán derecho a voz únicamente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36565 del 15 de marzo del 2011)

@@ -14,3 +14,4 @@ Crea Consejo Nacional de Cáncer como órgano adscrito al Despacho Ministerial d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-12 | la propia norma |
+| 2 | 2011-03-15 | Decreto Ejecutivo 36565 (2011-03-15) |

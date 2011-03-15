@@ -7,4 +7,5 @@ Considerando:
 2º—Que de conformidad con “Ley 7374 del 3-12-1993: Préstamo BID Programa Servicios Salud y Construcción Hospital Alajuela” y “Ley 7441 del 25-10-1994: Préstamo del BIRF para Proyecto Reforma del Sector Salud” le corresponde al Ministerio de Salud en su papel de institución rectora de la salud en el país, dictar las Normas y Políticas Nacionales en materia de cáncer.
 3º—Que se hace necesario establecer una coordinación e integración de todas las instituciones que atienden este importante problema de salud, bajo la dirección del Ministerio de Salud como ente rector de la salud en el país, logrando así una mejor y adecuada prestación de servicios especializados para la prevención, detección temprana y tratamiento del cáncer. Por tanto,
 DECRETAN:
-Artículo 1º—Créase el Consejo Nacional de Cáncer, en adelante el Consejo, como un órgano adscrito al Despacho de la Ministra de Salud, encargado de formular las Normas de Atención Integral al Cáncer, para ser aplicado en el Sistema Nacional Oncológico.
+Artículo 1°- Créase el Consejo Nacional de Cáncer, en adelante el Consejo, como un órgano adscrito al Despacho del Ministro o Ministra de Salud, encargado de orientar, recomendar y apoyar al Ministerio de Salud en su gestión de lucha contra el cáncer.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36565 del 15 de marzo del 2011)
