@@ -1,2 +1,2 @@
-Artículo 108.—Contra la resolución final que se dicte cabrá el Recurso de Reposición, el cual deberá interponerse ante el Despacho del Ministro (a) de Cultura y Juventud o del jerarca del órgano desconcentrado, según corresponda, dentro del plazo de tres días siguientes a la notificación de esta resolución y deberá ser resuelto dentro del término legal correspondiente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35592 del 13 de julio de 2009)
+Artículo 108.—Contra la resolución final que se dicte cabrá el Recurso de Reposición, el cual deberá interponerse ante el Despacho del Ministro(a) de Cultura y Juventud o del jerarca del órgano desconcentrado, según corresponda, dentro del plazo de tres días siguientes a la notificación de esta resolución y deberá ser resuelto dentro del término legal correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36624 del 15 de marzo del 2011)

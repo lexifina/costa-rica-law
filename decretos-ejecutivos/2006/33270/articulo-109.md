@@ -1,2 +1,2 @@
-Artículo 109.—Los plazos señalados para tramitar y resolver las denuncias de acosos y hostigamiento sexual no podrán exceder el límite de tres meses contados a partir de la interposición de la denuncia, según lo estipulado en artículo 5º de la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia número 7476 del 3 de febrero de 1995.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35592 del 13 de julio de 2009)
+Artículo 109.—El plazo señalado para tramitar y resolver las denuncias de hostigamiento sexual, en ningún caso podrá exceder el plazo ordenatorio de tres meses, contados a partir de la interposición de la denuncia, según lo estipulado en artículo 5º de la Ley contra Hostigamiento Sexual en el Empleo y la Docencia Nº 7476 del 3 de febrero de 1995, reformada por la Ley Nº 8805 de 28 de abril del 2010.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36624 del 15 de marzo del 2011)
