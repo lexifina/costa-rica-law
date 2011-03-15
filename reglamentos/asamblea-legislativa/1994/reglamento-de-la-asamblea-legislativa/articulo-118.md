@@ -1,2 +1,2 @@
-ARTICULO 118.- Estudio de Servicios Técnicos
-Confeccionados los expedientes, el Departamento de Archivo pasará una copia fiel al Departamento de Estudios, Referencias y Servicios Técnicos, a fin de que éste prepare un estudio de todas las leyes que tratan la materia específica, a la cual se refiere el proyecto, y en el expediente se incluyan sus textos, para que la Comisión pueda pronunciarse sobre ellos.
+Artículo 118.—Informe del Departamento de Servicios Técnicos. Conformado el expediente, el Departamento de Archivo pasará el proyecto en formato digital abierto al Departamento de Estudios Referencias y Servicios Técnicos, a fin de que este prepare un estudio de todas las leyes que tratan la materia específica, a la cual se refiere el proyecto. Este estudio se incluirá en el expediente, para que la comisión pueda pronunciarse sobre ellos.
+(Así reformado mediante sesión N°158 del 15 de marzo del 2011)

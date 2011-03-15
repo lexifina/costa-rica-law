@@ -4,6 +4,6 @@ TITULO I
 PROCEDIMIENTO LEGISLATIVO ORDINARIO
 CAPITULO I
 DE LOS PROYECTOS DE LEY
-ARTICULO 113.- Presentación del proyecto
-Todo proyecto de ley deberá presentarse por escrito, a doble espacio, ante la Secretaría o la Dirección Ejecutiva de la Asamblea, acompañado de dieciséis copias y firmado por el diputado o los diputados que lo inicien o lo acojan; o por el Ministro de Gobierno correspondiente, cuando el proyecto sea de iniciativa del Poder Ejecutivo.
-No se recibirá ningún proyecto que no se presente en la forma que se indica en el párrafo anterior.
+Artículo 113.—Presentación de proyectos. Todo proyecto deberá presentarse ante el Departamento de la Secretaría del Directorio, en forma impresa, a espacio y medio y tres copias. Igualmente, deberá presentarse el proyecto en un formato digital abierto. El original debe estar debidamente firmado por la diputada o diputadas, el diputado o diputados que lo inicien o lo acojan, o por la presidenta o presidente de la República y la correspondiente ministra o ministro de Gobierno, cuando el proyecto sea de iniciativa del Poder Ejecutivo.
+En caso de discrepancia entre el proyecto impreso y el proyecto digital prevalecerá el impreso. Corresponderá al Departamento Secretaría del Directorio constatar el cumplimiento de los requisitos cumplidos o en su caso rechazar aquellos que no se presenten según se indica en el párrafo primero..
+(Así reformado mediante sesión N° 158 del 15 de marzo del 2011)
