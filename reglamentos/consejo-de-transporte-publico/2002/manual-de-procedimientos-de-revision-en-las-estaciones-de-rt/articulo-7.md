@@ -44,13 +44,13 @@ a) Comprobación de estado y funcionamiento.
 7.01 Desviación de ruedas (divergencia/convergencia) | | |
 Desviación de ruedas 10 m/km. < D = 15 m/km. | X | |
 Desviación D mayor del 15 m/km. | | X |
-7.02 Volante y columna de dirección. Juegos | | |
-Fijación Defectuosa del volante a las columnas | | X |
-Holgura excesiva o fisura en flector y junta cardán | | X |
-Juego excesivo en volante | | X |
-Existencia de deformaciones, soldaduras o roturas | X | |
-Volante roto | | X |
-Volante no está en el lado izquierdo del vehículo | X | |
+7.02 Volante y columna de dirección. Juegos (Así reformado el punto anterior mediante sesión ordinaria N° 2630-11 del 15 de marzo del 2011. No obstante en la reforma se indica que este punto es el 31.1, sin embargo dicha numeración no corresponde) | | |
+Fijación Defectuosa del volante a las columnas (Así reformado el punto anterior mediante sesión ordinaria N° 2630-11 del 15 de marzo del 2011) | | X |
+Holgura excesiva o fisura en flector y junta cardán (Así reformado el punto anterior mediante sesión ordinaria N° 2630-11 del 15 de marzo del 2011) | | X |
+Juego excesivo en volante (Así reformado el punto anterior mediante sesión ordinaria N° 2630-11 del 15 de marzo del 2011) | | X |
+Existencia de deformaciones, soldaduras o roturas (Así reformado el punto anterior mediante sesión ordinaria N° 2630-11 del 15 de marzo del 2011) | X | |
+Volante roto (Así reformado el punto anterior mediante sesión ordinaria N° 2630-11 del 15 de marzo del 2011) | | X |
+Volante no está en el lado izquierdo del vehículo (Así reformado el punto anterior mediante sesión ordinaria N° 2630-11 del 15 de marzo del 2011) | | X |
 7.03 Caja de dirección | | |
 Fijación defectuosa al chasis | X | |
 Número de vueltas desiguales a cada lado | X | |
