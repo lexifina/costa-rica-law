@@ -14,3 +14,4 @@ Revoca resolución N° RSC-001-2009 y fija tarifas máximas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-15 | la propia norma |
+| 2 | 2011-03-16 | Resolución 61 (2011-03-16) |
