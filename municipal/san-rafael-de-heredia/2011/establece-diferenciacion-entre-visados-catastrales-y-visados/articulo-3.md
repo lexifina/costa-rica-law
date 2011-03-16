@@ -1,0 +1,1 @@
+3º—Determinar que el control constructivo lo debe realizar la Municipalidad de San Rafael de Heredia al momento del otorgamiento de licencias, permisos o visados constructivos, momento en el cual se puede verificar el cumplimiento de las reglas establecidas al efecto.

@@ -1,0 +1,10 @@
+4º—Aclarar que como requisitos de dicho control constructivo y aplicables para e! otorgamiento de permisos, licencias o visados de construcción, pueden exigirse algunos requisitos que actualmente se aplican en forma errónea para el visado catastral de planos, entre los que se encuentran:
+a. Demostrar que en el sector se prestan los servicios básicos de agua, electricidad y recolección de residuos.
+b. Demostrar que la obra constructiva respetará el derecho de vía equivalente a 14 metros lineales, en el caso de caminos con derechos de vía inferiores a 14 metros lineales, demostrar que dicha obra no se realzará en la parte que corresponderá a una futura ampliación vial para completar esos 14 metros.
+c. Realizar obras de infraestructura frente a la propiedad, cuyo permiso y supervisión estará a cargo del Departamento de Desarrollo y Control Urbano de la Municipalidad.
+d. En los distritos de Ángeles y Concepción, en la Zona 1 de las Microcuencas de los Ríos Ciruelas, Segundo, Bermúdez, Tibás y Pará, en el caso de lotificaciones. o aparcelamientos en los agrícolas que impliquen desarrollos constructivos debe presentarse viabilidad ambiental del proyecto, y caso que la construcción implique infiltración de residuos en el suelo o subsuelo, se requerirán estudios o evaluaciones hidrogeológicas que acrediten que tales infiltraciones no afectarán los mantos acuíferos o certificación de profesional responsable que acredite que el proyecto no contempla infiltraciones de ningún tipo, y además deben presentarse respecto de las aguas superficiales estudio hidráulicos e hidrológicos que demuestren que el proyecto no impactará negativamente el recurso hídrico de la zona, principalmente las fuentes existentes.
+e. Construcción de sistemas de desfogue y/o infiltración de aguas pluviales.
+f. En caso que el predio se encuentre afectado por servidumbre de paso de líneas de transmisión, se requerirá alineamiento del ICE.
+g. Timbre fiscal de diez colones adherido a la solicitud.
+h. Estar al día con el impuesto de bienes inmuebles y con la declaración de bienes inmuebles.
+San Rafael de Heredia, 2 de marzo del 2011.—
