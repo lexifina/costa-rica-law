@@ -1,0 +1,1 @@
+Artículo 24.—Informe. En un plazo de quince días naturales, después de celebrada la audiencia oral y privada, la Comisión Investigadora emitirá el informe con las recomendaciones disciplinarias que considere aplicables, mismo que remitirá al Director Ejecutivo quien resolverá en definitiva en un plazo de diez días naturales.

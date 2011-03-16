@@ -1,0 +1,1 @@
+Artículo 20.—Valoración y Ampliación de la Denuncia. La Comisión Investigadora procederá en primer lugar, a evacuar las pruebas testimoniales, documentales, indiciarias u otras pertinentes que la persona ofendida ofrezca o las que de oficio la Comisión estime necesarias.

@@ -1,0 +1,1 @@
+Artículo 10.—De las Sanciones. Las Sanciones a las cuales se exponen las partes involucradas en los Procesos de Hostigamiento o Acoso sexual son las estipuladas en los artículos 15 y 34 de la Ley N° 7476 del 3 de febrero de 1995, y su reforma Denominada Modificación de La Ley contra El Hostigamiento o Acoso Sexual en el Empleo y la Docencia número 8805 del 2 de junio del 2010.

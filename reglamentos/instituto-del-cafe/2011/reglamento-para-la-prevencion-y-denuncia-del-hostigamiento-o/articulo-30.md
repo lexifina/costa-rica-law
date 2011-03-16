@@ -1,0 +1,1 @@
+Artículo 30.—Ampliación de la Normativa. En lo no indicado en este Reglamento, se aplicará las disposiciones de la ley Nº 7476 “Ley Contra el hostigamiento Sexual en el Empleo y la Docencia; y su reforma Denominada Modificación de la Ley contra El Hostigamiento o Acoso Sexual en el Empleo y la Docencia número 8805 del 2 de junio del 2010.

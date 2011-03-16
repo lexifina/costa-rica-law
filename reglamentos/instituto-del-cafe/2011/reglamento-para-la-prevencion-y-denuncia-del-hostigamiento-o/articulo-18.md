@@ -1,0 +1,1 @@
+Artículo 18.—Trámite de la denuncia. Recibida la Denuncia y una vez integrada la comisión de Investigación, la Dirección Ejecutiva emitirá en forma inmediata la correspondiente orden de dar inicio al procedimiento, remitiendo toda la información aportada. En este trámite deberán tomarse las medidas necesarias para salvaguardar la confidencialidad.

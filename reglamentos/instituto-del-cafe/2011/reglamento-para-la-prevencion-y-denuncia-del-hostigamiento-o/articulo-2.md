@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento regirá para todos los empleados, funcionarios o servidores del Instituto del Café de Costa Rica en sus relaciones de empleo y de prestación de servicios a la comunidad nacional, sean estos contratos de forma regular o interina, según las definiciones establecidas en el artículo 3 de este cuerpo normativo.
