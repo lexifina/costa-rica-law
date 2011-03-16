@@ -1,4 +1,4 @@
-Artículo 2º—Definiciones.
+Artículo 2º—Definiciones:
 Anualidad: Es el incentivo laboral de carácter económico que recibe el trabajador por cada año de labores efectuadas, cuando exista convenio o ley que así lo estipule.
-La jubilación: Es el retiro del trabajo particular o de una función pública con derecho a percibir una remuneración calculada según los años de servicio o bien la edad del servidor y los salarios establecidos para cada caso en la respectiva ley.
+La jubilación: Es el retiro del trabajo particular o de una función pública con derecho a percibir una remuneración calculada según los años de servicio o bien la edad del servidor y los salarios establecidos para cada caso en la respectiva ley.-
 Servidor público: Es toda persona que presta servicios a la Administración o a nombre y por cuenta de ésta, como parte de su organización, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva. A estos efectos, se consideran equivalentes los términos “funcionario público”, “servidor público”, “empleado público”, “encargado de servicio público” y demás similares, conforme lo dispone el artículo 111 de la Ley General de la Administración Pública.

@@ -1,1 +1,1 @@
-Artículo 3º—Derecho al pago de los anuales. El reconocimiento del tiempo laborado en el Poder Judicial constituye un derecho del servidor y procede de oficio, debiendo el Departamento de Personal ejecutar ese derecho.
+Artículo 3º—Derecho al pago de los anuales: El reconocimiento del tiempo laborado en el Poder Judicial constituye un derecho del servidor y procede de oficio, debiendo el Departamento de Personal ejecutar ese derecho.
