@@ -49,6 +49,11 @@ De convencional a RDSI o viceversa | Tasa convencional
 Periodos tarifarios
 a. Periodo pleno o tarifa plena: Se aplica a todas las comunicaciones que se establezcan entre las 7:00 y las 19:00 horas, de lunes a viernes. A estas comunicaciones se les aplicará tasa convencional a un precio pleno por minuto, según el tiempo real de comunicación establecido.
 b. Periodo reducido o tarifa reducida: Se aplica a todas las comunicaciones urbanas e interurbanas que se establezcan entre las 19:00 y las 7:00 horas del día siguiente, de lunes a jueves y entre las 19:00 horas del viernes y las 7:00 horas del lunes. A estas comunicaciones se les aplicará tasa convencional a un precio reducido por minuto según el tiempo real de comunicación. Esta modalidad de tasación también se aplicará los días feriados: 1 de enero, jueves y viernes santos, 1 de mayo, 2 de agosto, 15 de setiembre y 25 de diciembre. En el caso del 11 de abril, 25 de julio 15 de agosto y 12 de octubre, la tasación reducida se aplicará los días en que efectivamente se decrete el disfrute.
+(Nota de Sinalevi: Mediante resolución RCS-061-2011 del 16 de marzo del 2011, se establece Flexibilizar la banda horaria aplicada actualmente a los servicios de telefonía fija y móvil y establecida en el Pliego Tarifario publicado en el Alcance Nº 52 de La Gaceta Nº 183 del 25 de setiembre del 2006, vigente según lo dispuesto en la resolución del Consejo de la SUTEL Nº RCS-615-2009 del 18 de diciembre del 2009, publicada en La Gaceta Nº 31 del 15 de febrero 2010, y mediante la cual rigen sesenta (60) horas de tarifa plena por semana y ciento ocho (108) horas de tarifa reducida por semana, además de las tarifas reducidas en días feriados, con la siguiente gradualidad:
+1. Primera etapa: comprende del 1º de abril del 2011 al 30 de junio del 2011. Durante esta etapa el Instituto Costarricense de Electricidad (ICE) y demás operadores deberán mantener un máximo de ochenta y seis (86) horas de tarifa plena por semana y un mínimo de ochenta y dos (82) horas de tarifa reducida por semana. Estas horas de tarifas plenas y reducidas podrán ser distribuidas a criterio y conveniencia del ICE y demás operadores durante los siete días de la semana, incluyendo días feriados, tomando como parámetro el uso eficiente de su infraestructura de red.
+2. Segunda etapa: comprende del 1º de julio del 2011 al 30 de setiembre del 2011. Durante esta etapa el Instituto Costarricense de Electricidad (ICE) y demás operadores deberán mantener un máximo de ciento trece (113) horas de tarifa plena por semana y un mínimo de cincuenta y cinco (55) horas de tarifa reducida por semana. Estas horas de tarifas plenas y reducidas podrán ser distribuidas a criterio y conveniencia del ICE y demás operadores durante los siete días de la semana, incluyendo días feriados, tomando como parámetro el uso eficiente de su infraestructura de red.
+3. Tercera etapa: comprender del 1º de octubre del 2011 al 31 de diciembre del 2011. Durante esta etapa el Instituto Costarricense de Electricidad (ICE) y demás operadores deberán mantener un máximo de ciento cuarenta y uno (141) horas de tarifa plena por semana y un mínimo de veintisiete (27) horas de tarifa reducida por semana. Estas horas de tarifas plenas y reducidas podrán ser distribuidas a criterio y conveniencia del ICE y demás operadores durante los siete días de la semana, incluyendo días feriados, tomando como parámetro el uso eficiente de su infraestructura de red.
+4. Cuarta etapa: a partir del primero de enero del 2012 se flexibiliza por completo la hora de tarifa reducida de la banda horaria, dejando a discreción del ICE y demás operadores la aplicación de tarifas menores en ciertos periodos, acordes al desempeño del mercado de telecomunicaciones y al comportamiento de la cartera de usuarios finales de cada operador. Asimismo, la SUTEL efectuará revisiones de los resultados de este proceso de flexibilización gradual de la banda horaria con el fin de aplicar los ajustes y medidas necesarias….”)
 Tasación entre periodos tarifarios
 Las comunicaciones telefónicas cuya duración tasable se encuentre entre dos periodos tarifarios serán tasadas con el precio de cada periodo tarifario, conforme al tiempo real de comunicación establecido en cada período tarifario. En caso de imposibilidad técnica por parte del operador de aplicar esta condición, el tiempo total de la comunicación será tasado con tarifa reducida.
 Registros de detalle de llamadas (CDR´s)
@@ -58,7 +63,6 @@ b. Para todas aquellas comunicaciones con duraciones iguales o inferiores a 3 se
 c. Para las comunicaciones originadas desde un servicio convencional o para las comunicaciones de cobro revertido, el ICE deberá disponer de los registros CDR´s, tanto de la central telefónica del servicio convencional, como de la red celular o la central telefónica de la red internacional, o plataforma de telefonía pública que intervino en la comunicación.
 d. Para las comunicaciones entre redes del Sistema Nacional de Telecomunicaciones en las que el ICE no disponga de los CDR´s de las centrales involucradas (convencional-celular, convencional-internacional, convencional-plataformas o viceversa), o existan inconsistencias entre éstos, no se generará la facturación respectiva de las comunicaciones en las no existan los correspondientes CDR’s de las centrales involucradas o existan inconsistencias entre éstos, o en su defecto se realizará un crédito en las facturaciones posteriores.
 e. El registro detallado de llamadas (CDR´s) de las centrales telefónicas convencionales deberá contener como mínimo la siguiente información:
-[imagen]
 Formato fecha: aammdd (año, mes y día)
 Formato de hora: hhmmss (horas, minutos, segundos)
 Tarifa: Corresponde a las distintas modalidades de aplicación tarifaria: plena, reducida y entre períodos para las comunicaciones de voz y plana para las comunicaciones de datos.
@@ -277,7 +281,6 @@ b. Para todas aquellas comunicaciones con duraciones iguales o inferiores a tres
 c. Para las comunicaciones originadas desde un servicio móvil o para las comunicaciones de cobro revertido, el ICE deberá disponer de los registros CDR´s, tanto de la central telefónica del servicio celular, como de la red convencional o la central telefónica de la red internacional, o plataforma de telefonía pública que intervino en la comunicación.
 d. Para las comunicaciones entre redes del Sistema Nacional de Telecomunicaciones en las que el ICE no disponga de los CDR´s de las centrales involucradas (celular-convencional, celular-internacional, celular-plataformas o viceversa), o existan inconsistencias entre éstos, no se generará la facturación respectiva de las comunicaciones en las no existan los correspondientes CDR’s de las centrales involucradas o existan inconsistencias entre éstos, o en su defecto se realizará un crédito en las facturaciones posteriores.
 e. El registro detallado de llamadas (CDR´s) de las centrales telefónicas celulares deberá contener como mínimo la siguiente información:
-[imagen]
 Formato fecha: aammdd (año, mes y día)
 Formato de hora: hhmmss (horas, minutos, segundos)
 Tarifa: Corresponde a las distintas modalidades de aplicación tarifaria: plena, reducida y entre períodos para las comunicaciones de voz y plana para las comunicaciones de datos.
@@ -730,7 +733,7 @@ De 2 a 4 sistemas | 10% | De 5 y más sistemas | 20%
 SERVICIO FRAME RELAY INTERNACIONAL TARIFAS MENSUALES PARA PUERTO DE CONEXIÓN Y CIRCUITOS EN U.S. $ |
 - Cuota de Instalación: | 500,00 incluye la parte de instalación nacional. |
 - Depósito de Garantía: | Corresponde a una mensualidad. |
-La tarifa está compuesta de los siguientes elementos: 1. El puerto de conexión (PC). 2. El circuito virtual permanente (PVC) a la velocidad que el ICE se compromete a brindar el servicio al cliente (CIR). 3. La tarifa mensual dependerá de la cantidad de puertos de conexión y de la cantidad de circuitos virtuales permanentes que adquiera el cliente y se calculará de la siguiente manera: [imagen] Donde: n= Cantidad de puertos que solicita el cliente m= Cantidad de circuitos virtuales permanentes (PVC) que solicita el cliente. PC= Puertos de conexión. PVC= Circuito virtual permanente CIR= Tasa de información garantizada. No podrá exceder la velocidad del PC. Notas: La tarifa mensual internacional incluye el tracto de conexión nacional a un puerto Frame Relay y un PVC nacional. En caso que el cliente ya cuente con el servicio Frame Relay Nacional y desee el servicio Frame Relay Internacional, la tarifa a cancelar será la diferencia entre la tarifa nacional ya cancelada por el cliente y la nueva tarifa internacional. |
+La tarifa está compuesta de los siguientes elementos: 1. El puerto de conexión (PC). 2. El circuito virtual permanente (PVC) a la velocidad que el ICE se compromete a brindar el servicio al cliente (CIR). 3. La tarifa mensual dependerá de la cantidad de puertos de conexión y de la cantidad de circuitos virtuales permanentes que adquiera el cliente y se calculará de la siguiente manera: Donde: n= Cantidad de puertos que solicita el cliente m= Cantidad de circuitos virtuales permanentes (PVC) que solicita el cliente. PC= Puertos de conexión. PVC= Circuito virtual permanente CIR= Tasa de información garantizada. No podrá exceder la velocidad del PC. Notas: La tarifa mensual internacional incluye el tracto de conexión nacional a un puerto Frame Relay y un PVC nacional. En caso que el cliente ya cuente con el servicio Frame Relay Nacional y desee el servicio Frame Relay Internacional, la tarifa a cancelar será la diferencia entre la tarifa nacional ya cancelada por el cliente y la nueva tarifa internacional. |
 | | | | |
 TARIFAS MENSUALES MÁXIMAS PARA FRAME RELAY INTERNACIONAL
 EN U.S. $
@@ -987,7 +990,6 @@ El monto por depósito de garantía le será devuelto al cliente en la moneda en
 TRANSFERENCIA DE LLAMADA INTERNACIONAL
 Servicio que consiste en el desvío de llamadas desde un número en Costa Rica hacia un número en otro país. Con esta facilidad el cliente puede programar tal desvío y la central pública reconoce 13 dígitos, siendo esto transparente para los clientes en Costa Rica.
 Este servicio se puede brindar si el cliente solicitante posee una PABX que pueda programar para que al recibir las llamadas, éstas se desvíen a un número predeterminado en otro país.
-[imagen]
 A: Servicio telefónico convencional o celular de Costa Rica.
 B: PABX de Costa Rica.
 C: Servicio telefónico convencional o celular en el país de destino.
@@ -1151,7 +1153,6 @@ Velocidad de transmisión | Tarifa bidireccional | Tarifa unidireccional
 8 Kbps. | 2 326,89 | 1 163,45
 4 Kbps. | 2 254,00 | 1 127,00
 * La tarifa correspondiente dependerá tanto del número de puertos de conexión (PC) como de la cantidad de circuitos virtuales permanentes (PVC) contratados por el cliente, considerando la velocidad que el Instituto Costarricense de Electricidad se comprometa a brindarle (CIR). Se aplicará la siguiente fórmula:
-[imagen]
 Donde:
 n = Cantidad de puertos (PC) que solicita el cliente.
 m= Cantidad de circuitos virtuales permanentes (PVC) que solicita el cliente.
@@ -1522,7 +1523,6 @@ En caso de un traslado exterior del servicio telefónico, inmediatamente se reti
 Devolución depósito de garantía
 El monto correspondiente al depósito de garantía, cancelado anteriormente por el cliente, le será devuelto a éste, en el momento de efectuarse el retiro definitivo del servicio a solicitud del cliente en la moneda en que fue cancelado dicho depósito. También le será devuelto al cliente dicho depósito, en el caso de solicitar un traslado exterior del servicio telefónico o del servicio empresarial, para una localidad que no tenga disponibilidad de red. No obstante, será necesario que el cliente se encuentre al día en el pago de las obligaciones generadas con ocasión de la prestación del servicio.
 SERVICIO DE REDES PRIVADAS VIRTUALES (VPN)
-[imagen]
 Composición perfiles básicos VPN por clase de servicio
 Perfiles | % Tiempo real | % Negocios | % Datos
 1 (1) (1) Perfil 1: Dirigido a grandes empresas, sensibles a la transmisión de voz sobre IP, video y datos en línea. | 80 | 15 | 5
@@ -1559,8 +1559,6 @@ Ancho de banda de la conexión (kbps garantizados) | Perfil 1 con CPE (US$) | Pe
 155 000 | 6.207 | 6.205 | 3.104 | 3.101 | 1.508 | 1.505
 Cuota de instalación en colones para todos los rangos de velocidad: ¢21.584* Depósito de garantía: Una mensualidad. *A este monto debe sumársele el costo de instalación del acceso a la red de Internet definido según la disposición V de esta resolución.
 En el caso del VPN, el cliente podrá escoger el perfil que mejor se adapte a su conveniencia, a partir de una combinación específica de las diferentes clases del servicio definidas en la disposición I de esta resolución. En tales circunstancias, la tarifa mensual correspondiente se determinará mediante la siguiente fórmula:
-[imagen]
-[imagen]
 Para el cálculo del depósito de garantía se aplicará la siguiente fórmula:
 Depósito de garantía VPN = Una mensualidad acceso simétrico1 + Una mensualidad tarifa perfil VPN2
 1) El monto de la mensualidad variará en función del ancho de banda que escoja el cliente.

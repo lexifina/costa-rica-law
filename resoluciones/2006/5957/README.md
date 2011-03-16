@@ -14,3 +14,4 @@ Pliego tarifario aplicable a los servicios que brinda el Sistema Nacional de Tel
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-25 | la propia norma |
+| 2 | 2011-03-16 | Resolución 61 (2011-03-16) |
