@@ -1,2 +1,1 @@
-Artículo 75.—Seguimiento y ampliación del Programa Permanente de Conservación de Energía Institucional
-Todas las instituciones deberán enviar al MINAE un informe anual en los dos primeros meses del año, sobre las actividades realizadas durante el año anterior, los resultados obtenidos y el programa de trabajo para el nuevo año, de acuerdo al inciso a) del artículo 73 de este reglamento.
+Artículo 75.—(Derogado por el artículo 20 del "Reglamento para la Elaboración de Programas de Gestión Ambiental Institucional en el Sector Público de Costa Rica", aprobado mediante decreto ejecutivo N° 36499 del 17 de marzo del 2011)

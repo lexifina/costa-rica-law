@@ -14,3 +14,4 @@ Reglamento para la Regulación del Uso Racional de la Energía.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-08 | la propia norma |
+| 2 | 2011-03-17 | Decreto Ejecutivo 36499 (2011-03-17) |
