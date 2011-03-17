@@ -14,3 +14,4 @@ Autorización para la importación de maiz blanco por desabastecimiento en el me
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-15 | la propia norma |
+| 2 | 2011-03-17 | Decreto Ejecutivo 36498 (2011-03-17) |
