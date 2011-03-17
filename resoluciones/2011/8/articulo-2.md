@@ -1,0 +1,1 @@
+Artículo 2.—Rige a partir de su publicación, con efectos retroactivos respecto a aquellos casos en que no haya prescrito la facultad de rectificar conforme a los artículos 130 y 51 del Código de Normas y Procedimientos Tributarios.
