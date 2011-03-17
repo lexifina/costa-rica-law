@@ -17,3 +17,4 @@ Reglamento de Inversiones del Régimen de Invalidez, vejez y Muerte
 | 2 | 2008-01-10 | Reglamento 8217 (2008-01-10) |
 | 3 | 2008-08-28 | Reglamento 8279 (2008-08-28) |
 | 4 | 2009-03-05 | Reglamento 8329 (2009-03-05) |
+| 5 | 2011-03-17 | Reglamento 8498 (2011-03-17) |
