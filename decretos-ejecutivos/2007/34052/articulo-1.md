@@ -1,4 +1,6 @@
+(Derogado)
 Nº 34052
+(Este decreto fue derogado por el artículo 173 del "Reglamento a la Ley Orgánica del Colegio de enfermeras de Costa Rica", publicado en La Gaceta N° 245 del 21 de diciembre del 2011)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
 En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; artículos 27 y 28 de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”; artículos 1 y 2 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud” y la Ley Nº 2343 del 04 de mayo de 1959 “Ley de Creación del Colegio de Enfermeras de Costa Rica”.
