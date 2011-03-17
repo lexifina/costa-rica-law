@@ -1,0 +1,3 @@
+Artículo 74 bis.-
+Para efectos de lo dispuesto en el artículo anterior, se entenderá que se encuentran al día en el pago de sus obligaciones con la seguridad social, quienes hayan suscrito un arreglo de pago con la CCSS que garantice la recuperación íntegra de la totalidad de las cuotas obrero-patronales y demás montos adeudados, incluyendo intereses, y estén al día en su cumplimiento. Lo anterior, siempre que ni el patrono moroso, ni el grupo de interés económico al que pertenezca, hayan incumplido ni este ni ningún otro arreglo de pago suscrito con la CCSS, durante los diez años anteriores a la respectiva contratación administrativa o gestión.
+(Así adicionado por el artículo único de la ley N° 8909 del 8 de febrero de 2011)
