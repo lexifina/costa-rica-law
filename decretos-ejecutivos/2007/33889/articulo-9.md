@@ -1,1 +1,0 @@
-Artículo 9º—Mecanismos de control ambiental. El MINAE, por medio de la DIGECA y con el apoyo del Comité Técnico de Seguimiento, establecerá los mecanismos de control ambiental, similares a lo ya establecidos para las actividades que han realizado evaluación de impacto ambiental, y los seleccionará y aplicará, según el caso, en las resoluciones que emita.

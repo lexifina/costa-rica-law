@@ -1,1 +1,0 @@
-Artículo 2º—Plazo. Todas las instituciones públicas deberán presentar sus Planes de Gestión Ambiental dentro del plazo mínimo de 6 meses y máximo de 9 meses, a partir de la publicación del presente decreto. Dichos planes serán remitidos a la Dirección de Gestión de Calidad Ambiental (DIGECA) del MINAE, para su revisión y seguimiento.
