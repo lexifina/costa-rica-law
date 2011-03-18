@@ -1,0 +1,1 @@
+Artículo 3º—Se excluyen de la aplicación del presente decreto aquellos reglamentos técnicos para productos alimenticios que, expresamente indiquen los métodos de análisis y muestreo utilizados para verificar el cumplimiento de los parámetros respectivos.
