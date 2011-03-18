@@ -1,0 +1,1 @@
+Artículo 67.—La Presidencia Municipal, de pedirlo así cada comisión, procederá a solicitarle al Alcalde Municipal, más tardar quince días después de establecidas las comisiones, la designación de funcionarios administrativos, para que funjan como asesores de comisiones.

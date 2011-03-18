@@ -1,0 +1,1 @@
+Artículo 105.—El Concejo Municipal deberá facilitar espacios y recursos para que este Comité pueda ejercer adecuadamente sus labores, tal como se le facilita a las comisiones permanentes y especiales del Concejo Municipal.

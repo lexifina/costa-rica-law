@@ -1,0 +1,1 @@
+Artículo 97.—La Auditoría Interna tendrá como competencias las establecidas en el artículo 22 de la Ley General de Control Interno. El informe anual a que establece el inciso g) del dicho artículo deberá ser presentado a más tardar en el mes de febrero del año siguiente.
