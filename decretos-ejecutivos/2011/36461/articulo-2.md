@@ -1,0 +1,4 @@
+Artículo 2º—Definiciones. Para efectos de la aplicación del presente Reglamento, se definen los siguientes términos:
+a) Operador Económico Autorizado (OEA): Persona física o jurídica de confianza que en el marco de sus operaciones aduaneras y comerciales garantiza la seguridad de la cadena logística, facilita el comercio exterior de las mercancías, aceptando voluntariamente someterse al cumplimiento de los requisitos y obligaciones propias de su condición, de conformidad con las regulaciones contenidas en la Ley y el presente Reglamento.
+b) Programa de Facilitación Aduanera para el Comercio Confiable en Costa Rica (PROFAC): Programa por medio del cual se podrán autorizar las personas físicas o jurídicas que voluntariamente deseen optar por la condición de Operador Económico Autorizado.
+c) Cadena Logística: Es el conjunto de actores que intervienen en el proceso logístico que facilita el flujo de mercancías dentro del comercio internacional.
