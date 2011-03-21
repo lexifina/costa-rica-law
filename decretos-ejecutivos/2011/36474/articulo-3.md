@@ -1,0 +1,2 @@
+Artículo 3º.— Este Decreto rige a partir del primero de enero del año 2011 en lo que respecta a la revalidación de los saldos y compromisos pendientes de los recursos del crédito público externo al 31 de diciembre de 2010, y en lo referente al traslado de recursos aquí incluidos, a partir de su publicación.
+Dado en la Presidencia de la República, a los dos días del mes de marzo del año dos mil once.
