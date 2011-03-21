@@ -1,0 +1,2 @@
+ARTÍCULO 50. DE LAS PAPELETAS.
+Se efectuarán las votaciones para las Asambleas Electorales mediante el uso de papeletas, cuya confección será definida en forma exclusiva por el TEUTN. El TEUTN diseñará las papeletas de cada elección. Tanto las fotografías como los nombres de los candidatos figurarán en casillas separadas, a efecto de que el elector esté en posibilidad de consignar su voto, en forma inequívoca.

@@ -1,0 +1,2 @@
+ARTICULO 65. VOTOS INVÁLIDOS
+Serán votos inválidos, los que se hicieran públicos sin razón justificada. Estos votos le serán retirados al elector antes de ingresarlos a la urna correspondiente, y tal acción deberá ser incluida en el Registro de Acontecimientos. Al momento de realizar el escrutinio de votos, todos los votos inválidos deberán ser contabilizados y reportados en el acta de cierre del proceso electoral.

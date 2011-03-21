@@ -1,0 +1,2 @@
+ARTÍCULO 31. RENUNCIA A UNA CANDIDATURA.
+En caso de que un candidato presente la renuncia a su postulación, deberá sufragar los gastos que la inscripción de candidatura solicitada por él, le haya ocasionado a la Universidad Técnica Nacional. El TEUTN determinará el monto correspondiente sumariamente y mediante resolución razonada y lo comunicará a la Administración de la Universidad, para la ejecución del cobro correspondiente.

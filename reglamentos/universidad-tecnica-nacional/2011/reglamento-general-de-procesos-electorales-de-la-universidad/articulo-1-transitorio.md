@@ -1,0 +1,3 @@
+CAPITULO II. DISPOSICIONES TRANSITORIAS
+TRANSITORIO PRIMERO. DE LOS PLAZOS PARA EL PROCESO ELECTORAL YA CONVOCADO.
+En las elecciones a efectuarse en el año 2011, el Tribunal no estará sujeto a los plazos establecidos en el reglamento para las convocatorias, los trámites y todos los procesos en general. El TEUTN podrá establecer un calendario especial para cada uno de los trámites y procesos, y regulará de modo especial cada uno de los plazos, de tal modo que se haga posible un proceso electoral ordenado y completo para la elección de Consejo Universitario y las demás autoridades de Sedes o Centros, antes del término del proceso de transición establecido en la ley.

@@ -1,0 +1,3 @@
+ARTÍCULO 39. OTRAS ACTIVIDADES DE DIVULGACIÓN
+Para cualquier otra actividad de divulgación electoral o propaganda que se realice durante el proceso electoral, ya sean foros, debates, mesas redondas u otros, se requerirá la aprobación previa del Tribunal.
+El Tribunal organizará como parte de su competencia, actividades que estimulen el diálogo en un ambiente en donde prevalezca la igualdad de oportunidades para los candidatos, el respeto a la divergencia de criterio y a la dignidad de las personas, todo ello con el propósito de divulgar los planteamientos de los candidatos, durante el período de campaña.

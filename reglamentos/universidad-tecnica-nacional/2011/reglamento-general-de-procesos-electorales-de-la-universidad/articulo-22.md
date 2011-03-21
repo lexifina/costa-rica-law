@@ -1,0 +1,3 @@
+ARTÍCULO 22. INICIO DE LABORES DE LA JUNTA RECEPTORA DE VOTOS.
+La Junta Receptora de Votos iniciará sus labores a la hora señalada por el Tribunal, con cualquier número de sus miembros que se presente.
+Si se diera el caso de ausencia del Presidente titular, la función será ejercida por su suplente, y en ausencia de éste, los miembros presentes designarán un Presidente ad-hoc por acuerdo de mayoría simple. En caso de empate en esta escogencia la elección será al azar. Si solo un miembro estuviere presente, asumirá la función de Presidente ad-hoc de modo directo. Las situaciones expuestas anteriormente, deberán ser anotadas en el Registro de Acontecimientos.

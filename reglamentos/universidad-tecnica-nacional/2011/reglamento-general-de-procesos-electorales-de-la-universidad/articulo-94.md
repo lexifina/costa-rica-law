@@ -1,0 +1,2 @@
+ARTÍCULO 94. NORMATIVA SUPLETORIA.
+En ausencia de alguna disposición expresa en el Estatuto Orgánico y en este Reglamento, se aplicarán supletoriamente en lo conducente, los principios generales y las normas concordantes del Código Electoral, la Ley General de Administración Pública y los principios generales del Derecho Electoral y de Derecho Público. La apreciación de los elementos de prueba se hará con base en las reglas de sana crítica.

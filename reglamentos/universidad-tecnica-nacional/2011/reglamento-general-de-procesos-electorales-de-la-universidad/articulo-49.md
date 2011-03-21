@@ -1,0 +1,3 @@
+ARTÍCULO 49. ACTAS DE APERTURA Y PROCEDIMIENTOS PREVIOS.
+Antes de iniciarse la votación, los miembros de las Juntas Receptoras de Votos revisarán contra lista de chequeo, previamente elaboradas y aprobadas por el TEUTN, el material electoral y consignarán el resultado del examen en el acta de apertura de las votaciones.
+Se colocarán en lugar visible para los electores, las copias de los padrones que reciban; igualmente tomarán todas las disposiciones que juzguen necesarias además de las establecidas por el Tribunal, a fin de que los electores puedan emitir su voto sin dificultad. Además deberán iniciar las votaciones a la hora indicada en la convocatoria.

@@ -1,0 +1,4 @@
+ARTICULO 70. APERTURA DEL ESCRUTINIO Y DECLARACIÓN OFICIAL DE LA ELECCIÓN DEL TEUTN.
+Cinco días hábiles después de efectuadas las elecciones, se realizará el escrutinio de estas y se dará la declaración oficial del resultado. La declaración será mediante resolución escrita y firmada por la totalidad de los integrantes del Tribunal.
+En caso de existir un recurso de nulidad sobre el proceso electoral, el escrutinio se realizará una vez resuelto dicho recurso. Asimismo, una vez emitida la declaración oficial del resultado de una elección, quedará firme a partir del momento mismo en que lo dicta el TEUTN. Contra este acto no cabe recurso alguno
+El comunicado oficial será entregado a los candidatos que participaron en el proceso electoral, las autoridades universitarias y, a la comunidad universitaria en general.
