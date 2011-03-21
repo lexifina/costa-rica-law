@@ -1,0 +1,1 @@
+Artículo 15.—Sanciones. Las y los funcionarios públicos que incumplan la disposición relativa al reclutamiento y selección de personal regulada en la presente norma, serán sancionados de conformidad con lo establecido en los artículos 62, 63 y 64 de la Ley Nº 7600, Ley de Igualdad de Oportunidades para las personas con discapacidad.

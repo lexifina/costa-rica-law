@@ -1,0 +1,1 @@
+Transitorio I.—El estudio referido en el artículo segundo de este reglamento y la consecuente política institucional en la materia deberá estar listo a más tardar en el segundo trimestre del año 2011, lo cual no exime de la debida aplicación de la Ley Nº 8862.

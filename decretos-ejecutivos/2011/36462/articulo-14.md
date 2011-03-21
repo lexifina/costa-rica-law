@@ -1,0 +1,1 @@
+Artículo 14.—Obligación Institucional por condición de discapacidad. Cuando un trabajador o trabajadora del sector público adquiere una discapacidad la institución estará obligada a tomar las medidas técnicas y administrativas que señala la Ley 7600 y la Ley de Riesgos del Trabajo.

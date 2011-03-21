@@ -1,0 +1,1 @@
+Artículo 17.—Disposiciones finales. En lo no regulado en el presente Reglamento, se aplicarán, en lo que fuere razonablemente compatible, las disposiciones contenidas en la Ley General de la Administración Pública, Ley Nº 6227 y sus reformas, y en la Ley Nº 7600, Ley de Igualdad de Oportunidades para las personas con discapacidad.
