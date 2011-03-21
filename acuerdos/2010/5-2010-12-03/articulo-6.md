@@ -1,0 +1,12 @@
+6. RESPONSABILIDADES:
+La empresa Concesionaria, conforme la relación contractual y normativa vigente aplicable, es la responsable de cualquier acción o irregularidad ocasionada por parte de las empresas Subcontratadas autorizadas para laborar en la Obra por la Administración Concedente, por lo que debe velar porque estas cumplan con las regulaciones establecidas.
+La Concesionaria, le corresponde comunicar mediante oficio a la Administración de Contratos al finalizar la obra, etapa o proyecto designado, si cancelan los impuestos respectivos, reexportan o trasladan a otro proyecto la maquinaria o equipo que goce del beneficio de importación temporal, asimismo debe adjuntar copia de los documentos (DUA de salida, comprobante de pago de impuesto, etc.) que respalden la acción realizada.
+La Supervisora de Proyecto, debe comprobar en todo momento el uso correcto por parte de la Concesionaria de los bienes conforme se estable en la Clausula 5.6.5. del Contrato de Supervisión.
+La Administración Concedente, debe facilitar la información necesaria para efectuar los trámites sobre la maquinaria y equipo ante las entidades respectivas, tal como: Registro Nacional y dependencias del Ministerio de Hacienda que así lo requieran.
+La Administración Concedente, realizará controles cruzados de la información que se consigne en los diferentes controles y dará seguimiento de las partes involucradas, para lo cual debe coordinar con las entidades que correspondan. Así mismo velar en coordinación con otras entidades fiscalizadoras normadas, porque el equipo y maquinaria permanezcan en el sitio del proyecto y que los mismos efectivamente se utilicen en la ejecución de las obras conforme al Contrato que lo ampara. Además asegurarse que al finalizar la obra, etapa o proyecto designado, la maquinaria y equipo que goce del beneficio de Importación Temporal, cancelen los impuestos correspondientes, sean reexportados o trasladados a otro proyecto que goce del beneficio de importación temporal.
+6.1 El responsable de las acciones u omisiones dentro de este Procedimiento por parte de la empresa Concesionaria y las empresas Sub contratistas serán:
+•Los Representantes legales de la empresa Concesionaria Autopistas del Sol S.A.
+Los responsables por parte de la Administración Concedente:
+• Secretaría Técnica del CNe.
+• Dirección de Adm inistración de Contratos. Gerencia de Proyecto.
+• Supervisora de Proyecto.

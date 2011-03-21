@@ -1,0 +1,2 @@
+10 Órgano Fiscalizador
+El Órgano Fiscalizador, según artículo 6 de la Ley 8643 Modificación Parcial a la Ley General de Concesión de Obra Pública con Servicios Públicos N° 7762 y artículo 48 de su reglamento y en concordancia con el apartado 1.17 del Contrato de Concesión de Obra con Servicio Público Carretera San José - Caldera verificará en cualquier momento la información suministrada por la SP, grantizando la veracidad de dicha información, así como las auditorias necesarias y pertinentes.
