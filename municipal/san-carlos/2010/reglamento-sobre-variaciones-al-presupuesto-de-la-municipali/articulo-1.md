@@ -8,6 +8,11 @@ El Concejo Municipal de San Carlos en su sesión ordinaria celebrada el lunes 4 
 REGLAMENTO SOBRE VARIACIONES AL PRESUPUESTO
 DE LA MUNICIPALIDAD DE SAN CARLOS
 Con el propósito de dar cumplimiento al Reglamento R-CO-67-2006 de la Contraloría General de la República, publicado en La Gaceta Nº 170 el día 5 de setiembre del 2006, se somete a consideración del Honorable Concejo Municipal de Santa Carlos, la aprobación del “Reglamento sobre Variaciones al Presupuesto de la Municipalidad de San Carlos”.
+CAPÍTULO I(*)
+Variaciones al presupuesto
+SECCIÓN I
+Aspectos generales
+(*) (Nota de Sinalevi: Mediante sección extraordinaria celebrada el lunes 21 de marzo del 2011, artículo N° 02, acta N° 20, el Concejo Municipal acordó modificar la estructura del presente reglamento de modo tal que los artículos 1, 2 y 3, sean parte del Capítulo I “Variaciones al Presupuesto”. Dicho capítulo estaba contenido originalmente en el numeral 4)
 Artículo 1º—Definiciones. Para los efectos de este Reglamento se entiende por:
 Autoridad Superior Administrativa: Alcalde o funcionario administrativo de mayor rango dentro de la institución u organización.
 Aprobación presupuestaria interna: Proceso por medio del cual el Concejo Municipal, conoce y estudia el contenido del presupuesto formulado o de las variaciones que se le presenten, en función de los objetivos y metas institucionales, así como verifica el cumplimiento de las disposiciones legales y técnicas que le son aplicables. Como resultado de este proceso, el Concejo, emite mediante el acto administrativo establecido para el efecto, su aprobación o improbación, parcial o total, al presupuesto inicial y sus variaciones.
