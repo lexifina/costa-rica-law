@@ -1,0 +1,1 @@
+Artículo 3º—Los incumplimientos a la presente regulación serán sancionados, según sea el caso, de conformidad con los artículos 57, 59, 60, 61 y 63 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor del 20 de diciembre de 1994, Nº 7472.

@@ -1,0 +1,1 @@
+Artículo 4º—Deróguese el Decreto Ejecutivo Nº 29660-MEIC, RTCR 26:2000 Metrología. Unidades legales de Medida. CDU 53.081:003.62, publicado en el Diario Oficial La Gaceta N° 151 del 8 de agosto del 2001.
