@@ -15,3 +15,4 @@ Declara estado de emergencia nacional la situación provocada por condiciones de
 | --- | --- | --- |
 | 1 | 2010-11-04 | la propia norma |
 | 2 | 2010-11-09 | Decreto Ejecutivo 36261 (2010-11-09) |
+| 3 | 2011-03-22 | Decreto Ejecutivo 36519 (2011-03-22) |
