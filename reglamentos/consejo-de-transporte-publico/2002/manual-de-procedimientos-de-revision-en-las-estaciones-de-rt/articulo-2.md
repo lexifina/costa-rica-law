@@ -52,13 +52,15 @@ Abolladuras, desperfectos, corrosiones, fisuras, defectos de fijación, filos co
 2.02 Puertas. Accionamiento, aberturas y cierres | | |
 Defectos accionamiento | X | |
 Posible apertura intempestiva de puertas o tapa de motor, Peligro de desprendimiento | | X |
-2.03 Vidrios. Parabrisas y ventanillas | | |
-Vidrio/parabrisas inexistente | | X |
-Vidrio/parabrisas roto o soldado con una fisura de un radio mayor a 5 cm. o una longitud mayor a 10 cm. Si está en campo visión directa del conductor. | | X |
-Visibilidad defectuosa | X | |
-Accionamiento ventanilla defectuoso | X | |
-Existencia de vidrios en ventanillas delanteras con transparencia inferior a lo legislado | X | |
-Existencia de vidrios en parabrisas delantero con transparencia inferior a lo legislado | | X |
+2.03 Parabrisas, ventanas y ventanillias (Así reformado mediante sesión N° 2631-11 del 22 de marzo del 2011. No obstante en la reforma se indica que este punto es el 21.3, sin embargo dicha numeración no corresponde) | | |
+Vidrio/parabrisas inexistentes (Así reformado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | | X |
+Vidrio/parabrisas roto o soldado con una fisura de un radio mayor a 5 cm o una longitud mayor a 10 cm, si está en el campo de visión directa del conductor (Así reformado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | | X |
+Visibilidad defectuosa (Así reformado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | X | |
+Accionamiento ventanilla defectuoso (Así reformado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | X | |
+Existencia de vidrios en ventanillas delanteras con transparencia inferior a lo legislado (Así reformado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | X | |
+Existencia de vidrios en parabrisas delantero con transparencia inferior a lo legislado (Así reformado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | | X |
+Existencia de cualquier tipo de oscurecimiento o polarizado de ventanas, ventanillas, parabrisas de los vehículos de transporte público remunerado de personas, modalidad taxi, cuando así esté legalmente dispuesto. (Así adicionado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (*)(Ver nota al final del cuadro) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | | X |
+Existencia de viseras en el parabrisas delantero de los vehículos de transporte público remunerado de personas, modalidad taxi, sin ajustarse a lo dispuesto (Así adicionado el punto anterior mediante sesión N° 2631-11 del 22 de marzo del 2011) (*)(Ver nota al final del cuadro) (Corregido mediante Fe de Erratas publicada en La Gaceta N° 95 del 18 de mayo del 2011) | | X |
 2.04 Pisos | | |
 Abolladuras, dobleces, corrosión | X | |
 Fisuras, roturas y perforaciones que pueden entrañar peligro | | X |
@@ -79,3 +81,8 @@ Estado o sujeción defectuosa | X | |
 Si existe peligro de desprendimiento o presentan aristas | | X |
 2.08 Peso Tara y dimensiones | | |
 (Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)
+(*)(Nota de Sinalevi: Mediante sesión N° 2631 del 22 de marzo de 2011, se indicó lo siguiente: "...1) Las viseras de los parabrisas delanteros de todos los vehículos modalidad taxi pueden portar visera, siempre y cuando sean de fábrica y cumplan con las siguientes características:
+a) Que el ancho de la visera no invada el área de barrido de las escobillas (campo de visión). Al efecto, las escobillas deberán tener el tamaño de fábrica recomendado en la respectiva ficha técnica de cada vehículo.
+b) Que el ancho de la visera no sobrepase a su vez el ancho de fábrica de la visera parasol interna del vehículo.
+c) Que en caso de duda sobre el ancho de las viseras o las dimensiones de las escobillas, se solicite una certificación de la casa matriz o agencia importadora correspondiente sobre las condiciones del vehículo.
+d) Que en casos de sustitución de parabrisas o de las instalaciones de visera en parabrisas que no las tengan incorporadas, se cumplan las anteriores especificaciones")
