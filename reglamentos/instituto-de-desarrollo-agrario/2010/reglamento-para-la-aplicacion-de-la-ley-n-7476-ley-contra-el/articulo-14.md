@@ -1,1 +1,0 @@
-Artículo 14º—El Instituto está en la obligación de informar sobre las denuncias de Hostigamiento Sexual que se reciban, así como los resultados del procedimiento que se realice a la Defensoría de los Habitantes, según define la Ley Nº 7476.

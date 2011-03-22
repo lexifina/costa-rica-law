@@ -1,1 +1,0 @@
-Artículo 17º—En todo aquello no contemplado por el presente Reglamento, se aplicarán supletoriamente las disposiciones contenidas en la Ley N° 7476, el Código de Trabajo, las Leyes Laborales Conexas, la Ley General de la Administración Pública, entre otros.

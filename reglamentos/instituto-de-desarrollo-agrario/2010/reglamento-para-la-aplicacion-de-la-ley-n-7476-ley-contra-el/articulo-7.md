@@ -1,7 +1,0 @@
-Artículo 7º—Algunos de los mecanismos internos que pueden utilizar los funcionarios (as) de la Institución para denunciar formalmente alguna anomalía, serán los siguientes:
-a) El empleado o empleada que se considere afectado por acoso u hostigamiento sexual podrá plantear la denuncia por escrito ante la Jefatura del Depto. de Recursos Humanos, ofreciendo toda la prueba que estime pertinente.
-b) Será admitida la denuncia en forma verbal, levantándose en forma inmediata un acta detallada de la denuncia
-c) Una vez recibida, la denuncia será trasladada a la Unidad de Relaciones Laborales, la que se encargará de darle el trámite correspondiente, siguiendo el procedimiento señalado en este Reglamento y amparados a lo establecido en la Ley N° 7476.
-d) En la realización del proceso de investigación, por parte de la Unidad de Relaciones Laborales, se realizarán actuaciones previas, con el objeto de determinar con carácter preliminar si concurren circunstancias que justifiquen la iniciación del procedimiento.
-e) La Unidad de Relaciones Laborales dará audiencia a las partes implicadas a efecto de que lleguen a una conciliación; en caso de no llegar a un acuerdo conciliatorio, se procederá de conformidad con los procedimientos siguientes.
-f) En audiencia oral y privada a la que podrán asistir únicamente las partes y sus abogados se recibirán las pruebas que se hayan ofrecido, levantándose un acta escrita de las declaraciones testimoniales que será firmada por los testigos y las partes presentes, dicha audiencia podrá ser grabada.
