@@ -1,0 +1,3 @@
+ARTÍCULO XV
+DEPÓSITO DE LA CONVENCIÓN
+El instrumento original de la presente Convención, cuyos textos en español, francés, inglés y portugués son igualmente auténticos, se entregará al depositario, el cual transmitirá un ejemplar auténtico del mismo a la Secretaría de las Naciones Unidas para su registro y publicación, conforme al artículo 102 de la Carta de las Naciones Unidas. El depositario notificará a los Estados Miembros de la Organización de los Estados Americanos las firmas, los depósitos de instrumentos de ratificación, aceptación, aprobación, adhesión o denuncia, así como las reservas que hubiere.
