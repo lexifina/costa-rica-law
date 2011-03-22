@@ -1,1 +1,0 @@
-Artículo 6º—De la asignación. Los Concejos de Distrito y de acuerdo a los estudios socioeconómicos pertinentes a este Reglamento y al perfil elaborado por la Comisión de Asuntos Educativos y Becas, recomendará los beneficiarios de las becas.

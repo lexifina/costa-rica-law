@@ -1,1 +1,0 @@
-Artículo 13.—Del período que cubre. El lapso que cubre el beneficio de la beca está conforme con el tiempo del curso lectivo, iniciándose el pago de beca en el mes de febrero (¿De forma retroactiva?) y concluyéndose en el mes de noviembre.
