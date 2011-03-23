@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PUNTARENAS
+La Municipalidad de Puntarenas acuerda: adherirse a las publicaciones de los documentos Manual de Valores Base Unitario por Tipología Constructiva, publicado en La Gaceta Nº 30 del 11 de febrero del 2011 y la Plataforma de Valores de Terrenos por Zonas Homogéneas del Cantón Central de Puntarenas, publicado en la Nº 42 del 02 de marzo del 2011, por parte del Órgano de Normalización Técnica, para efectos de ser utilizados en las próximas actuaciones municipales de recepción de declaraciones de bienes inmuebles, su fiscalización y valoraciones futuras que realice este municipio, con el objetivo del cobro del impuesto respectivo, todo conforme a la Ley Nº 7509 y sus reformas.
+Puntarenas, 11 de marzo del 2011.
