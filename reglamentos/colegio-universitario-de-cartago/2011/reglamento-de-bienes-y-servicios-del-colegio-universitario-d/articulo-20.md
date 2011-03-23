@@ -1,0 +1,1 @@
+Artículo 20.—Baja de activos. Se entenderá por baja de activos los retirados de servicios y excluidos de los registros por encontrarse obsoletos de acuerdo con un criterio técnico, con daños irreparables o por otras circunstancias como el robo o extravío.

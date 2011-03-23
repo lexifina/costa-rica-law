@@ -1,0 +1,3 @@
+Artículo 55.—Baja por hurto o robo. Para dar de baja bienes institucionales, cuya pérdida haya sido causada por hurto, sustracción o robo, sin culpa imputable al responsable de los bienes, además de los requisitos señalados en el artículo 38 de este Reglamento, y las obligaciones estipuladas en el artículo 25 se deberá cumplir con los siguientes requisitos:
+a) Se debe elaborar un acta relacionando los hechos, en la cual deberán intervenir el funcionario responsable del bien desaparecido, jefe de la dependencia y el responsable de la administración de bienes y el jefe de la Aprovisionamiento.
+b) El máximo Jerarca de la Institución o quien este haya delegado al efecto, dictará la resolución final, autorizando la baja de los bienes al Departamento de Aprovisionamiento.

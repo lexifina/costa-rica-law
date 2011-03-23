@@ -1,0 +1,1 @@
+Artículo 16.—Adiciones o mejoras. Son las erogaciones monetarias que tienen el efecto directo de aumentar el valor de un activo existente, al incrementar su capacidad, su vida útil y su eficiencia, por lo tanto las mismas deben cargarse al valor del activo.

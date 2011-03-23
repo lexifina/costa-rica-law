@@ -1,0 +1,1 @@
+Artículo 65.—Bienes susceptibles de donación. Todos los bienes muebles declarados en desuso o en mal estado de la Institución, podrán ser objeto de donación por los medios establecidos en el presente reglamento. Para que un bien pueda ser donado debe tener como máximo el valor de rescate.

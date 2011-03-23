@@ -1,0 +1,1 @@
+Artículo 66.—Trámite para donaciones. Previo a la ejecución de la donación, se deberá contar con el avalúo de los bienes realizado por el órgano especializado de la administración o en su defecto el avalúo de la Dirección General de Tributación Directa del Ministerio de Hacienda, de acuerdo con el valor real del mercado.

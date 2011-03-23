@@ -1,0 +1,1 @@
+Artículo 31.—Reconstrucciones. Son modificaciones complejas aplicadas principalmente a los edificios y maquinaria, las cuales superan a las adiciones o mejoras. Estos cambios incrementan el valor del activo, por lo que constituyen partidas capitalizables.

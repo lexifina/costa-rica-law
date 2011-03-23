@@ -1,0 +1,2 @@
+Artículo 8º—Levantamiento y presentación de informe de inventario. Dentro de los primeros quince días del mes de marzo de cada año, el encargado de la administración de bienes del Departamento de Aprovisionamiento iniciara, el levantamiento del inventario de bienes institucionales.
+El Departamento de Aprovisionamiento remitirá a la Dirección Administrativa Financiera el informe de inventario anual de bienes institucionales dentro de un plazo máximo de ocho días posteriores al finalizar la verificación o cotejo de bienes en sitio.

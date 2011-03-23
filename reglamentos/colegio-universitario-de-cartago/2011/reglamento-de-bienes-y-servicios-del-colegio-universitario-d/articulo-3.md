@@ -1,0 +1,1 @@
+Artículo 3º—Identificación de bienes. Todo bien que ingrese por medio de los procedimientos de contratación administrativa, donación, fabricación interna, ejecución de actividades productivas, o desarrollo de proyectos, deberá ser identificado por un sistema de rotulado, en el que se indique el número de patrimonio asignado por el responsable de la Unidad de Bodegas.

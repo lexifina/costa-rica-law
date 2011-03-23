@@ -1,0 +1,2 @@
+Artículo 57.—Debido proceso. Para efectos de aplicar los artículos anteriores, después de ser puesto en conocimiento del informe respecto de la pérdida por hurto, sustracción o robo de bienes, el jefe o superior respectivo o a quien se los hubiere entregado, deberá comunicar a la Dirección Administrativa Financiera el informe sobre lo acontecido, de no gestionarse, asumirá la responsabilidad que le corresponda.
+La Dirección Administrativa Financiera iniciara las investigaciones pertinentes para averiguar la verdad real de los hechos.

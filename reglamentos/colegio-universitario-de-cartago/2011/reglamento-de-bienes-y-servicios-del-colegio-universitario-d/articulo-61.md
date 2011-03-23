@@ -1,0 +1,1 @@
+Artículo 61.—Baja por destrucción de bienes inservibles. Para dar de baja bienes inservibles, deberá contemplarse lo indicado en los artículos 25 y 38 de este Reglamento. Además, el responsable de dicho bienes deberá hacer una declaración por escrito de que los bienes están fuera de servicio y que no son aprovechables.

@@ -1,0 +1,1 @@
+Artículo 11.—Faltante y daño de bienes. El jefe de oficina o dependencia de la Administración y Docencia, velará para que todo funcionario que cese en sus funciones entregue los bienes encargados a su custodia. Si el jefe, por olvido u otra razón, omitiere este requisito asume la responsabilidad por los faltantes y daños que posteriormente se encuentren.

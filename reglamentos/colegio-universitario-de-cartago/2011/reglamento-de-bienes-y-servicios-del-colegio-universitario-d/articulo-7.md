@@ -1,0 +1,2 @@
+Artículo 7º—Personas responsables. Las personas a las cuales se les ha asignado bienes institucionales, son responsables de la pérdida, daño o depreciación que sufran los mismos, cuando no provengan del deterioro natural por razón de su uso legitimo o de otra causa justificada o de fuerza mayor para establecer la responsabilidad se levantará por la instancia correspondiente, una investigación administrativa tendiente a determinarla.
+Dichas personas estarán obligadas a velar por el correcto uso de los bienes, debiendo gestionar el mantenimiento y conservación adecuados.

@@ -1,0 +1,1 @@
+Artículo 9º—Verificación de inventarios. El Departamento de Aprovisionamiento podrá verificar la existencia de los bienes inventariados a cargo de las distintas dependencias de la Institución y exigir el cumplimiento de las normas establecidas en este reglamento o instrucciones que en esta materia se haya emitido.

@@ -1,0 +1,1 @@
+Artículo 58.—Pago y reintegro de dinero. Cuando a un funcionario se le compruebe culpa o dolo en el robo, hurto o sustracción de bienes públicos, deberá restituir o pagar el bien de acuerdo al valor de mercado. Dicho pago se hará de conformidad con los lineamientos que establecidos para ello por el Departamento Financiero de la Institución.

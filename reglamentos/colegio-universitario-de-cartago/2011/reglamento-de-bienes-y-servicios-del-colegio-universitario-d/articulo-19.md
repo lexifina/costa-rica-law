@@ -1,0 +1,1 @@
+Artículo 19.—Alta por donación u obsequio. Hay donación u obsequio cuando por liberalidad de una persona física o jurídica, nacional o internacional, se transmite gratuitamente la propiedad y el dominio de un bien a favor de la Institución que la acepta.

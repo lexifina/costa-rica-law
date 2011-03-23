@@ -1,0 +1,1 @@
+Artículo 21.—Depreciación. Es el gasto no erogable, de una parte del costo del activo fijo, dentro del periodo de su vida útil. Serán depreciados por Línea Recta los activos fijos de esta Institución.

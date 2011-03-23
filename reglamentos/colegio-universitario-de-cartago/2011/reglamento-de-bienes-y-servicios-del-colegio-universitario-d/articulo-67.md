@@ -1,0 +1,2 @@
+Artículo 67.—Instituciones susceptibles a recibir donaciones. Las donaciones se podrán otorgar a entidades declaradas de Interés Público, de Interés Social o sin fines de lucro debidamente inscritas ante las instancias correspondientes, centros o instituciones de educación del Estado, u otras dependencias del Estado para la realización de sus fines.
+Los beneficiados solo podrán recibir una donación al año, con excepción de las instituciones del Estado que así lo requieran para la realización de sus fines.

@@ -1,0 +1,1 @@
+Artículo 34.—Sistema informático Institucional. El Departamento de Aprovisionamiento y de Financiero, estarán obligados a utilizar los sistemas informáticos de administración y control de bienes diseñados por la Unidad de Tecnología Informática. Todos los bienes deberán estar debidamente registrados y actualizados en el sistema informático.

@@ -1,0 +1,1 @@
+Artículo 37.—Vida Útil. Es la estimación del tiempo que durará en servicio un activo fijo, ésta valoración es necesaria para conocer el gasto por depreciación del periodo de acuerdo con las tablas de la Dirección General de Tributación Directa.

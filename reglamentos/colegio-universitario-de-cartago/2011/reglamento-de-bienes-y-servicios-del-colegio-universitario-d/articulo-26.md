@@ -1,0 +1,1 @@
+Artículo 26.—Identificación de bienes. Es el número de patrimonio institucional, asignado a cada bien, por la Unidad de Bodegas. La Unidad de Bodegas será la responsable de rotular los bienes, de acuerdo con las pautas establecidas en el Sistema Informático de Registro y Control de Bienes.

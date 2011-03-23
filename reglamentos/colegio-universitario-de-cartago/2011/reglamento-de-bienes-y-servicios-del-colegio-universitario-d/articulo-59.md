@@ -1,0 +1,1 @@
+Artículo 59.—Pago y reintegro de dinero. Cuando el funcionario haya reparado o restituido parcial o totalmente el bien perdido y compruebe posteriormente que no tuvo responsabilidad en la pérdida, tendrá derecho a que se le devuelva el valor total o parcial que haya cancelado, de acuerdo con los procedimientos establecidos para ese efecto.

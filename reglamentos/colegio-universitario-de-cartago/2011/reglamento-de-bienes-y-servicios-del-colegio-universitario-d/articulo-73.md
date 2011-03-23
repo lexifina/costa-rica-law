@@ -1,0 +1,1 @@
+Artículo 73.—Escogencia de la institución beneficiada. Para el otorgamiento de donación, la Comisión de Donación deberá escoger la institución del registro, que para tales efectos lleva el Departamento de Aprovisionamiento, o bien, estudiara la solicitud requerida por la entidad, que solicite la donación.
