@@ -1,0 +1,4 @@
+Artículo 15.—La elaboración de manuales institucionales de clases o cambios en los vigentes, proceden cuando se presente(n) alguna(s) de las siguientes situaciones:
+a) Variación en la Ley orgánica de la institución, que modifique, la naturaleza, los bienes y servicios que generan o sus funciones.
+b) Se pretenda una mejoría en la prestación del servicio público, en términos de eficacia, eficiencia y calidad en los bienes o servicios que se brindan a los usuarios.
+c) Cambios en la estructura orgánica o reestructuración administrativa aprobada por el Ministerio de Planificación y Política Económica (MIDEPLAN), excepto cuando se refiera a modificaciones en la especificación de una clase o que obedezca a cambios en los procesos organizacionales, actividades o productos, sin que eso signifique una variación en la estructura organizacional.

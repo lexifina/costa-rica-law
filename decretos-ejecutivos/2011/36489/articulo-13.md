@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la clasificación de puestos
+Artículo 13.—Toda entidad pública, órgano desconcentrado no homologado o ministerio -para el caso de los puestos excluidos del Régimen de Servicio Civil, amparados en normativa específica- contará con el respectivo manual institucional de clases y cargos y su correspondiente Índice Salarial, que constituyen los instrumentos básicos de la administración del potencial humano, para la selección, movimientos de personal, clasificación y valoración. Para efectos de presupuestación, emplearán la terminología y valoración de los instrumentos mencionados.

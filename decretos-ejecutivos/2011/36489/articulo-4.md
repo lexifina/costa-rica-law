@@ -1,0 +1,1 @@
+Artículo 4º—Las revaloraciones diferentes a las citadas en el artículo anterior, para las entidades públicas no homologadas, sólo procederán en el contexto de la normativa sobre cambios en los manuales vigentes, que se señala en el procedimiento para la aplicación de estas directrices y su seguimiento.
