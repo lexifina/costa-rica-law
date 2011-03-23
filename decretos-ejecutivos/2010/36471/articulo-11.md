@@ -1,0 +1,1 @@
+Artículo 11.—Medios de prueba. En caso de oposición, procedimientos de cancelación voluntaria o cualquiera que corresponda, según los diferentes movimientos registrales, el Registro admitirá como medios de prueba, aquellos que estime pertinentes con relación al caso en cuestión, de conformidad con lo dispuesto en el artículo 318 del Código Procesal Civil.

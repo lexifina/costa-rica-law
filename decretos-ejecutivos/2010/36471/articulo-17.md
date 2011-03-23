@@ -1,0 +1,2 @@
+Artículo 17.—Requisitos de renovación de un registro. Cumplido lo dispuesto por el artículo 4º de este Reglamento, la solicitud de renovación presentada ante la Oficina Central de Marcas de Ganado, deberá contener la indicación del registro de la marca de ganado a renovar.
+Una vez cumplidos los requisitos previstos por el presente artículo, la Oficina Central de Marcas de Ganado, inscribirá la renovación sin más trámite y el Registro de la Propiedad Industrial, emitirá el certificado correspondiente. La renovación no será objeto de examen de fondo ni de publicación.
