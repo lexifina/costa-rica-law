@@ -1,1 +1,0 @@
-Artículo 14.—El beneficio de la capacitación se otorgará, en forma razonable y equitativa entre las diferentes dependencias del CUC; para evitar que haya desigualdad de oportunidades entre las dependencias o entre los funcionarios de la Institución.

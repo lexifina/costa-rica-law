@@ -1,1 +1,0 @@
-Artículo 16.—Las diferentes modalidades de capacitación aprobadas por los funcionarios serán un factor que el Servicio de Personal tomará en cuenta para movimientos, promoción y ascensos laborales de los funcionarios.
