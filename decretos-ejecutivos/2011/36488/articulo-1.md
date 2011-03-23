@@ -1,0 +1,18 @@
+No. 36488-H
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 25, inciso 1), 27, inciso 1), y 28, inciso 2), acápite b) de la Ley No. 6227, Ley General de la Administración Pública del 2 de mayo de 1978 y sus reformas; los artículos 1º, 9º, 21, 23, 24, 25, 57 y 125 de la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre de 2001, sus reformas y su Reglamento, el Decreto Ejecutivo No. 32988-H-MP-PLAN del 31 de enero de 2006 y sus reformas.
+Considerando:
+1º—Que con el fin de lograr una mayor eficiencia y eficacia en la asignación de los recursos públicos, es de especial relevancia racionalizar su uso, sin menoscabo de la atención a los sectores prioritarios de desarrollo definidos por el Poder Ejecutivo.
+2º—Que en aras de una política fiscal responsable y financieramente sostenible, en concordancia con las prioridades, objetivos y estrategias fijadas en el Plan Nacional de Desarrollo (PND) elaborado por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), y de acuerdo con las proyecciones macroeconómicas realizadas por el Ministerio de Hacienda (MH) y el Banco Central de Costa Rica (BCCR), es necesario establecer directrices que regulen el crecimiento del gasto público.
+3º—Que la Autoridad Presupuestaria (AP) de conformidad con los artículos 1º, 9º, 21, 23, 24 y 25 de la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta No. 198 del 16 de octubre del 2001, sus reformas y su Reglamento, el Decreto Ejecutivo No. 32988- H-MP-PLAN, publicado en La Gaceta No. 74 del 18 de abril del 2006 y sus reformas, está facultada para formular las Directrices Generales de Política Presupuestaria para las entidades públicas, ministerios y demás órganos, cubiertos por su ámbito.
+4º—Que la AP formuló las Directrices Generales de Política Presupuestaria para el año 2012, mediante el acuerdo No. 9086, tomado en la sesión ordinaria No. 03- 2011, celebrada el 28 de febrero de 2011.
+(*)5º—Que el Consejo de Gobierno conoció las Directrices Generales de Política Presupuestaria para el año 2012 en el artículo quinto en la sesión número 45, celebrada el 15 de marzo de dos mil once. Por tanto;
+(*)(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 84 del 3 de mayo del 2011)
+Decretan:
+Directrices Generales de Política Presupuestaria para las Entidades Públicas,
+Ministerios y demás Órganos, según corresponda, cubiertos por el ámbito de
+la Autoridad Presupuestaria, para el año 2012
+CAPÍTULO I
+Del gasto presupuestario
+Artículo 1º—Estas directrices serán aplicables a las entidades públicas, ministerios y demás órganos, cubiertos por el ámbito de la AP.
