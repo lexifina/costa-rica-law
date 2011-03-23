@@ -1,0 +1,1 @@
+Artículo 6º—Para optar por un diplomado en el Colegio Universitario de Cartago se regirá por el Reglamento de Becas del CUC, el cual es regulado por el Departamento de Bienestar Estudiantil y Calidad de Vida.

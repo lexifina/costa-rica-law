@@ -1,0 +1,5 @@
+Artículo 24.—A continuación se define la modalidad de cursos a ejecutar como capacitación interna del CUC:
+a. Los cursos catalogados como “asistencia” corresponden a aquellas actividades de capacitación impartidas por el CUC, inferiores a 12 horas de capacitación efectiva, en las cuales el participante debe tener una asistencia no inferior al 85% del total de horas programadas para la capacitación.
+b. Los cursos catalogados como “participación” corresponden a aquellas actividades de capacitación impartidas por el CUC, mayores o iguales a 12 horas de capacitación efectiva, en las cuales el participante debe tener una asistencia no inferior al 85% del total de horas programadas para la capacitación.
+c. Los cursos de aprovechamiento corresponden a las actividades de capacitación impartidas por el CUC, mayores o iguales a 12 horas de capacitación efectiva, en las cuales se debe tener una asistencia no inferior al 85% y una calificación mínima de 80%.
+Para efecto de las capacitaciones internas, los participantes deberán cumplir lo establecido en el artículo 12, incisos a, b, d, del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 35.—Los permisos de estudio sobre financiamiento parcial o total, relacionados con la obtención de grados académicos, serán aplicables a los Funcionarios tanto en propiedad como interinos, que tengan al menos dos años de laborar para la Institución consecutivamente.

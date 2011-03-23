@@ -1,0 +1,1 @@
+Artículo 21.—Para el trámite de permisos de capacitación en el extranjero, el interesado deberá presentar toda la documentación oficial que justifique su petición, ante la Comisión de Capacitación quien la elevará ante la Decanatura.

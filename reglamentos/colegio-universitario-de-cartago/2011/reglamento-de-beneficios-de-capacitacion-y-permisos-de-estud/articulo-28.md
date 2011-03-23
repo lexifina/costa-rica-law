@@ -1,0 +1,1 @@
+Artículo 28.—La cantidad máxima de capacitaciones otorgadas por áreas, por unidad administrativa y por un funcionario, será definida anualmente por la Comisión de Capacitación según la conveniencia institucional.

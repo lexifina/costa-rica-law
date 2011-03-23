@@ -1,0 +1,2 @@
+Artículo 15.—La Comisión se reunirá ordinariamente una vez al mes, y extraordinariamente cuando lo convoquen al menos tres de sus miembros.
+El quórum estará constituido por la mitad más uno de la totalidad de sus miembros. En cualquier caso, los acuerdos serán tomados por mayoría simple. Por la importancia de los acuerdos de la Comisión, sus miembros no podrán abstenerse de votar, salvo si el asunto concierne directa o indirectamente a alguno de sus miembros, es decir se denote un conflicto de intereses.

@@ -1,0 +1,3 @@
+Artículo 31.—La Comisión de Capacitación podrá otorgar los beneficios que se citan a continuación, previa autorización de la Decanatura:
+a. Permiso con goce de salario cuando algún organismo nacional o internacional de reconocido prestigio le otorgue una beca a título personal, y que sea atinente con la actividad institucional, los cuales pueden consistir en seminarios, cursos, congresos, talleres, simposios u otros. Para tal efecto, el solicitante deberá cumplir con todos los requisitos establecidos en este reglamento.
+b. Permiso sin goce de salario cuando la actividad implique la ausencia del Funcionario del CUC, por un plazo igual o superior a un mes.

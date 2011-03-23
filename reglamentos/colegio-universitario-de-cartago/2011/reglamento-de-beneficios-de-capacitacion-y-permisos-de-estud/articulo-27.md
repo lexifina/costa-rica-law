@@ -1,0 +1,1 @@
+Artículo 27.—El beneficio de capacitación se otorgará cuando la misma sea atinente con la actividad y los intereses institucionales y la Unidad Administrativa o Docente, con la anuencia de la Decanatura; la solicitud deberá contar con la anuencia de la Jefatura respectiva.

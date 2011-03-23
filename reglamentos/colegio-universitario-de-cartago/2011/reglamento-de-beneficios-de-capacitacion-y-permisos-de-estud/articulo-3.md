@@ -1,0 +1,2 @@
+Artículo 3º—Se define como “permiso de estudio” la actividad que permite la adquisición de nuevos conocimientos y aptitudes que formen y desarrollen técnica o intelectualmente al funcionario. La actividad deberá conducir a la obtención de un certificado de aprovechamiento o de participación, un diploma o un título académico.
+Podrá autorizarse permiso de estudio relacionado con el tiempo para asistir a dichas actividades y/o financiamiento parcial o total para el pago del costo de estudio.

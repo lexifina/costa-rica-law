@@ -1,0 +1,1 @@
+Artículo 25.—De los Beneficios de Capacitación Externa. El Funcionario interesado en participar en diversas actividades de capacitación externa como congresos, talleres, charlas, conferencias, u otros de igual naturaleza, deberá cumplir con los requisitos establecidos en el artículo 12 del presente Reglamento.

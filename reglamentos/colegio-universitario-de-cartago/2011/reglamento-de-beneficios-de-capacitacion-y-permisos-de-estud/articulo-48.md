@@ -1,0 +1,1 @@
+Artículo 48.—La Comisión de Capacitación resolverá las solicitudes de capacitación, en un máximo de cinco días hábiles a la presentación de ésta.

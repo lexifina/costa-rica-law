@@ -1,0 +1,2 @@
+Artículo 45.—El trabajador que obtenga rendimiento académico inaceptable, deberá reintegrar a las arcas de la Institución el monto correspondiente a la actividad de capacitación que no fue aprobada, de conformidad con el artículo 173 del Código de Trabajo.
+En caso de repetirse en dos oportunidades consecutivas o tres alternas lo indicado en el artículo anterior, perderá el derecho al permiso, esta vez por dos ciclos ordinarios consecutivos.

@@ -1,0 +1,1 @@
+Artículo 41.—Los montos contenidos en el Anexo 1 del presente Reglamento, serán revisados anualmente por la Comisión de Capacitación, tomando en consideración factores como inflación, circunstancias institucionales u otra situación a criterio de la Comisión de Capacitación, los cuales serán aprobados por la Decanatura.

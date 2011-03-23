@@ -1,0 +1,1 @@
+Artículo 46.—El trabajador que indicare datos falsos, ocultare información o no notificare cambios en su horario que varíen la naturaleza de este permiso, perderá los beneficios estipulados en este reglamento, además se aplicarán las sanciones disciplinarias a las que sea acreedor de acuerdo con el Reglamento Autónomo de Trabajo y a la legislación vigente.

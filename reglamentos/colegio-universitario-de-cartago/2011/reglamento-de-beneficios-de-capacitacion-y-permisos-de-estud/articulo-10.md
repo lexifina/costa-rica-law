@@ -1,0 +1,1 @@
+Artículo 10.—El CUC aprovechará los beneficios de la capacitación y demás facilidades que le sean ofrecidas por el Gobierno o instituciones nacionales o extranjeras de reconocida solvencia académica y moral, para otorgarlas a sus Funcionarios, de conformidad con las necesidades de capacitación institucional.

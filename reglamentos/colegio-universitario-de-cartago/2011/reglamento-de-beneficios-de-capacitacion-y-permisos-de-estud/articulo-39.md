@@ -1,0 +1,1 @@
+Artículo 39.—Cuando el beneficiario reciba ayuda económica total o parcial para financiar sus estudios provenientes de otra institución nacional o internacional, la Comisión de Capacitación previo estudio, podrá reducir al beneficiario la ayuda económica otorgada en proporción a la ayuda económica obtenida.

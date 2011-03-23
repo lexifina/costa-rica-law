@@ -1,0 +1,1 @@
+Artículo 8º—Las actividades de aprendizaje organizacional y permisos de estudio, deberán contribuir al mejoramiento del servicio que el funcionario presta al CUC, y tener afinidad con la naturaleza del puesto que desempeña, o pueda desempeñar en la Institución.
