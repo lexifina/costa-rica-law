@@ -1,0 +1,3 @@
+2. Alcance.
+Con este manual se formulan criterios que deben guiar las decisiones de los funcionarios responsables de administrar, resolver y ejecutar, labores relacionadas con el manejo del riesgo del RPC-ICE.
+El fin principal del RPC-ICE, en términos generales es lograr la minimización de las pérdidas que podrían producirse en las posiciones mantenidas como consecuencia de movimientos adversos en las variables de mercado relevantes, y la optimización de la relación entre el nivel de riesgo asumido y el beneficio obtenido en las distintos tipos de inversiones, de acuerdo con los objetivos establecidos.
