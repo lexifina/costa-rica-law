@@ -13,7 +13,8 @@ Artículo 1º—Para el mejor entendimiento del presente Reglamento, se establec
 5. Concejo: Concejo Municipal del Cantón de Curridabat.
 6. Concejos: Concejos de Distrito. Son los órganos encargados de vigilar la actividad municipal y colaborar en los distritos de las respectivas municipalidades.
 7. Contador: Contador Municipal.
-8. Educación Especial: Modalidad del sistema educativo encargada de potenciar el aprendizaje de aquellos estudiantes que presenten necesidades educativas especiales derivadas de alguna condición de discapacidad física, mental o emocional.
+8. Dirección de Responsabilidad Social: Instancia administrativa municipal encargada de verificar el cumplimiento de los requisitos de los becarios así como también de realizar estudios socioeconómicos para determinar la necesidad del otorgamiento del incentivo a los estudiantes del cantón.
+(Así reformado mediante sesión ordinaria N° 047-2011 del 24 de marzo del 2011)
 9. Formulario de Beca: Formulario de solicitud de beca nueva debidamente foliado y sellado que contiene la información general y básica del beneficiario de la Beca: los nombres, apellidos, edades, estado civil y oficio, de todos los miembros del grupo familiar, la dirección exacta, el centro de estudios y el lugar para recibir notificaciones, entre otros datos.
 10. Instituciones: Se refiere a todas las Instituciones de Enseñanza Pública del Cantón, maternal, primaria, secundaria, vocacional, técnica, especial y otras.
 11. Municipalidad: La Municipalidad del Cantón de Curridabat.
