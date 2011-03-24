@@ -1,0 +1,5 @@
+ARTÍCULO 10
+Cooperación para fortalecer la modernización de
+la administración estatal y pública
+1. Las Partes acuerdan que la cooperación en este ámbito tendrá por objetivo fortalecer la modernización y profesionalización de la administración pública en los países centroamericanos, lo que incluye prestar apoyo al proceso de descentralización y a los cambios organizativos derivados del proceso de integración de Centroamérica. En general, el objetivo será mejorar la eficacia organizativa, garantizar una gestión transparente de los recursos públicos y la rendición de cuentas, así como mejorar el marco jurídico e institucional sobre la base, entre otras, de las buenas prácticas de las Partes y aprovechando la experiencia adquirida en la elaboración de políticas e instrumentos en la Unión Europea.
+2. La cooperación podrá incluir, entre otras cosas, programas destinados a desarrollar las capacidades de concepción y aplicación de políticas en todos los ámbitos de interés mutuo, entre otros, la prestación de servicios públicos, la elaboración y ejecución del presupuesto, la prevención y la lucha contra la corrupción y el refuerzo de los sistemas judiciales.

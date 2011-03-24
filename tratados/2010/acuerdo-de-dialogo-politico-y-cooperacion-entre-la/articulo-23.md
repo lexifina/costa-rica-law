@@ -1,0 +1,3 @@
+ARTÍCULO 23
+Cooperación en materia de pesca y acuicultura
+Las Partes acuerdan desarrollar la cooperación económica y técnica en el sector pesquero y de la acuicultura, principalmente en lo relativo a la explotación sostenible, la gestión y la conservación de los recursos pesqueros, incluida la evaluación del impacto medioambiental. La cooperación deberá incluir también ámbitos como la industria de transformación y la facilitación del comercio, y podrá desembocar en la celebración de acuerdos de pesca bilaterales entre las Partes, o entre la Comunidad Europea y uno o varios países centroamericanos, y/o en la celebración de acuerdos de pesca multilaterales entre las Partes.

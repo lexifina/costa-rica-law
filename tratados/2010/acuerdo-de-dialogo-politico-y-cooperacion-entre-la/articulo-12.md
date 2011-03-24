@@ -1,0 +1,3 @@
+ARTÍCULO 12
+Cooperación regional
+Las Partes acuerdan utilizar todos los instrumentos de cooperación existentes para fomentar las actividades destinadas a desarrollar una cooperación activa y recíproca entre la Unión Europea y Centroamérica, y, sin perjudicar la cooperación entre las Partes, entre los países centroamericanos y otros países o regiones de América Latina y el Caribe en ámbitos tales como el fomento del comercio y la inversión, el medio ambiente, la prevención y la gestión de las catástrofes naturales, la investigación científica, técnica y tecnológica, la energía, los transportes, la infraestructura de comunicaciones, la cultura, el desarrollo regional y la planificación del uso del suelo.

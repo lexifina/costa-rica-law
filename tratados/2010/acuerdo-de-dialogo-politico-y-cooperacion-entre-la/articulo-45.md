@@ -1,0 +1,5 @@
+ARTÍCULO 45
+Cooperación en lo que se refiere a los pueblos indígenas
+y otros grupos étnicos centroamericanos
+1. Las Partes acuerdan que la cooperación en este ámbito contribuirá a promover la creación de organizaciones en favor de los pueblos indígenas y otros grupos étnicos centroamericanos, así como a consolidar las existentes, en el contexto del fomento de los objetivos de erradicación de la pobreza, gestión sostenible de los recursos naturales y respeto de los derechos humanos, la democracia y la diversidad cultural.
+2. Además de tener en cuenta de manera sistemática la situación de los pueblos indígenas y otros grupos étnicos centroamericanos en todos los niveles de la cooperación al desarrollo, las Partes integrarán la situación específica de estos grupos en la elaboración de políticas y reforzarán la capacidad de sus organizaciones a fin de aumentar los efectos positivos de la cooperación al desarrollo sobre estos grupos, de conformidad con las obligaciones nacionales e internacionales de las Partes.

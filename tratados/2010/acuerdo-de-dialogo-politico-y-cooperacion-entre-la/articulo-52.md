@@ -1,0 +1,8 @@
+ARTÍCULO 52
+Marco institucional
+1. Las Partes acuerdan conservar la Comisión mixta establecida en virtud del Acuerdo de Cooperación CE-Centroamérica de 1985 y mantenida en el Acuerdo Marco de Cooperación de 1993.
+2. La Comisión mixta será responsable de la aplicación general del Acuerdo y abordará asimismo cualquier cuestión que afecte a las relaciones económicas entre las Partes, inclusive con los diferentes países miembros de Centroamérica.
+3. El orden del día de las reuniones de la Comisión mixta se fijará de mutuo acuerdo. La Comisión mixta establecerá las disposiciones relativas a la frecuencia y el lugar de las reuniones, la presidencia y demás cuestiones que puedan surgir, y, en su caso, dispondrá la creación de subcomisiones.
+4. Se establecerá un Comité consultivo conjunto, compuesto por representantes del Comité Consultivo del Sistema de la Integración Centroamericana (CC-SICA) y del Comité Económico y Social Europeo (CESE) para ayudar a la Comisión mixta a promover el diálogo con las organizaciones económicas y sociales de la sociedad civil.
+5. Las Partes animan al Parlamento Europeo y al Parlamento Centroamericano (Parlacen) a crear una comisión interparlamentaria, en el marco del presente Acuerdo, con arreglo a sus leyes constitucionales.
+(Nota de Sinalevi: Mediante el numeral 2° del Tratado Internacional “Aprueba Acuerdo de Diálogo Político y Cooperación entre la Comunidad Europea y sus Estados Miembros, por una parte y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua y Panamá, por otra parte”, N° 8919 del 16 de diciembre de 2010, se interpretó el inciso 5) de este artículo en el sentido de que: “… en el caso de Costa Rica la representación será designada por la Asamblea Legislativa”)

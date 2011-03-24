@@ -1,0 +1,3 @@
+ARTÍCULO 15
+Cooperación en materia de propiedad intelectual
+Las Partes acuerdan que la cooperación en este ámbito tendrá por objetivo promover la inversión, la transferencia de tecnología, la divulgación de información, las actividades culturales y creativas y las actividades económicas relacionadas, así como el acceso y el reparto de los beneficios en los ámbitos seleccionados por las Partes. La cooperación tendrá por objeto mejorar las leyes, reglamentaciones y políticas, con vistas a fomentar los niveles de protección y cumplimiento de los derechos de propiedad intelectual de conformidad con las normas internacionales más estrictas.

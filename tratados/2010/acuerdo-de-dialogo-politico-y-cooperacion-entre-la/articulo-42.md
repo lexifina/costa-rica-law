@@ -1,0 +1,6 @@
+ARTÍCULO 42
+Cooperación social
+1. Las Partes acuerdan cooperar para fomentar la participación de los interlocutores sociales en un diálogo sobre las condiciones de vida y trabajo, la protección social y la integración en la sociedad. Se tendrá especialmente en cuenta la necesidad de evitar la discriminación en el trato dispensado a los ciudadanos de cualquiera de las Partes que residan legalmente en el territorio de la otra Parte.
+2. Las Partes reconocen la importancia del desarrollo social, que debe acompañar al desarrollo económico, y acuerdan dar prioridad al empleo, a la vivienda y a los asentamientos humanos, conforme a sus políticas y disposiciones constitucionales respectivas, así como a la promoción de los principios y derechos fundamentales en el trabajo definidos en los convenios de la Organización Internacional del Trabajo, las denominadas «normas fundamentales del trabajo».
+3. Las Partes podrán cooperar en cualquier ámbito de interés mutuo de los sectores anteriormente mencionados.
+4. Cuando proceda, y con arreglo a sus procedimientos respectivos, las Partes podrán mantener este diálogo en coordinación, respectivamente, con el Comité Económico y Social Europeo y con su homólogo centroamericano.

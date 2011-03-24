@@ -1,0 +1,5 @@
+ARTÍCULO 13
+Cooperación comercial
+1. Las Partes acuerdan que la cooperación comercial promoverá la integración de los países centroamericanos en la economía mundial. También tratará de propiciar, mediante el suministro de asistencia técnica relacionada con el comercio, el desarrollo y diversificación del comercio intrarregional, así como el comercio con la Unión Europea al máximo grado.
+2. Las Partes acuerdan aplicar un programa integrado de cooperación comercial para aprovechar óptimamente las oportunidades que ofrece el comercio, ampliando la base productiva que sacará provecho del mismo, incluido el desarrollo de mecanismos que permitan afrontar los desafíos asociados a una mayor competencia en el mercado, y mejorando las competencias, instrumentos y técnicas necesarios para acelerar el disfrute de todos los beneficios que aporta el comercio.
+3. A fin de aplicar el programa de cooperación y maximizar las oportunidades de las negociaciones y los acuerdos comerciales bilaterales, regionales o multilaterales, las Partes acuerdan fortalecer el desarrollo de capacidades técnicas regionales.

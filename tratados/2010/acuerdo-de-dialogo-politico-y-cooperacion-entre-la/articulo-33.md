@@ -1,0 +1,4 @@
+ARTÍCULO 33
+Cooperación estadística
+1. Las Partes acuerdan que el principal objetivo será desarrollar métodos y programas estadísticos perfeccionados, incluida la recopilación y difusión de estadísticas, con el fin de crear indicadores que aumenten la comparabilidad entre las Partes, de modo que éstas puedan utilizar las estadísticas de cada una de las demás Partes sobre el comercio de bienes y servicios y, de manera más general, sobre cualquier ámbito incluido en el presente Acuerdo para el que puedan elaborarse estadísticas.
+2. La cooperación podrá incluir, entre otras cosas, intercambios técnicos entre los institutos de estadística de Centroamérica y los de los Estados miembros de la Unión Europea y Eurostat; elaboración de métodos mejorados y, cuando proceda, métodos coherentes de recopilación, análisis e interpretación de datos, y la organización de seminarios, grupos de trabajo o programas de formación estadística.
