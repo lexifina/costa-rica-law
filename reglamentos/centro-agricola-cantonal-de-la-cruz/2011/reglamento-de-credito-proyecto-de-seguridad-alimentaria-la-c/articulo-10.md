@@ -1,0 +1,1 @@
+Artículo 10.—Los acuerdos de la Junta de Crédito adquirirán firmeza en la siguiente sesión de la Junta y en caso de excepción desde el momento mismo de su nacimiento, por solicitud de cualquiera de sus integrantes.

@@ -1,0 +1,1 @@
+Artículo 33.—Específicamente para granos básicos, previa recomendación del Comité Técnico, se aceptará pago en especie (producto) cuando por alguna situación el productor/a tenga dificultad de mercado para vender su cosecha. Se excluye problemas de baja calidad, deterioro del grano por almacenaje y mal manejo.

@@ -1,0 +1,1 @@
+Artículo 32.—Se dará una prórroga, siempre y cuando se demuestre que el atraso en los pagos obedece a causas fuera del control del deudor/a (fenómenos naturales y casos fortuitos (fallecimiento o inhabilitación del deudor)), circunstancias que serán analizadas por las personas que integren el Comité Técnico, que a su vez elevarán la recomendación a la Junta de Crédito.

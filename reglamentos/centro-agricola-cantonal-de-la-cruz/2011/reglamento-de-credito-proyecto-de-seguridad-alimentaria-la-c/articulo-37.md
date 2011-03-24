@@ -1,0 +1,1 @@
+Artículo 37.—De la Vigencia del Reglamento: El presente Reglamento, tendrá vigencia a partir de su publicación en el Diario Oficial La Gaceta por un período de un año, renovándose automáticamente por períodos similares.

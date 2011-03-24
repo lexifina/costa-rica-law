@@ -1,0 +1,2 @@
+Comité Técnico
+Artículo 16.—El Comité Técnico estará conformado por cuatro técnicos/as del Ministerio de Agricultura y Ganadería designados por el Director Regional de la Región Chorotega, responsable del apoyo técnico y de facilitar el involucramiento de otros/as actores institucionales. Al inicio de la ejecución de las acciones, desde el MAG se informará por escrito al resto de partes (Municipalidad, Centro Agrícola y Grupo de Acción Local) de las personas integrantes de este Comité Técnico.

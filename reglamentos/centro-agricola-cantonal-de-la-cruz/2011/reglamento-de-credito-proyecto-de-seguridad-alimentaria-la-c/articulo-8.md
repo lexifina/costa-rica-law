@@ -1,0 +1,1 @@
+Artículo 8º—En caso de conflicto de intereses en alguna votación por parte de algún integrante de la Junta de Crédito, éste será reemplazado en la votación por su suplente. No será posible abstenerse durante las votaciones.

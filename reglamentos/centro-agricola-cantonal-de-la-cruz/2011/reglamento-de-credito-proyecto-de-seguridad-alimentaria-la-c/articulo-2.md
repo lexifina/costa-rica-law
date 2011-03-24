@@ -1,0 +1,9 @@
+Artículo 2º—Los objetivos del financiamiento: El financiamiento se dirige a establecer y poner en marcha un Proyecto de Seguridad Alimentaria con 150 familias de 10 comunidades de la zona rural del cantón de La Cruz, el que complementariamente al reforzamiento de la producción de granos básicos para el autoconsumo y generación de excedentes, se ponen en marcha, en función de su potencialidad y características específicas, módulos unitarios de producción sostenible que les facilite el acceso a alimentos, diversificación de su dieta y, con los excedentes generados, acceso a recursos económicos para el acceso a una dieta equilibrada.
+En este marco y dentro de la estrategia de la intervención, se impulsara la creación de un fondo revolutivo, para poder llevar el proyecto de seguridad alimentaria a un mayor número de familias rurales del cantón de La Cruz. Una vez que se obtengan los excedentes necesarios de la actividad productiva y sobre la base de la corresponsabilidad de las familias beneficiarias para el reintegro, en especie o en metálico, del apoyo económico recibido para la puesta en marcha de los planes de finca.
+Con la creación de ese fondo revolutivo se incidirá en:
+a. Lograr una participación más activa de las comunidades beneficiarias del proyecto de Seguridad Alimentaria.
+b. Capitalizar las utilidades generadas por el Fondo Revolutivo para aumentar la disponibilidad de recursos destinados a seguridad alimentaria.
+c. Mejorar la calidad de vida y el nivel de ingresos de los/as productores/as y sus familias.
+d. Mejorar la capacidad de ahorro y préstamo del Centro Agrícola Cantonal de La Cruz y a la vez que permita su fortalecimiento y crecimiento a nivel empresarial.
+e. Consolidar la organización satisfaciendo las necesidades de financiamiento de los/as productores/as.
+f. Fomentar prácticas amigables con el ambiente en las inversiones de los productores.

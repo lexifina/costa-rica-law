@@ -1,0 +1,1 @@
+Artículo 7º—Los acuerdos los tomará la Junta de Crédito por mayoría simple de sus integrantes; en caso de que exista criterio desfavorable sobre un asunto aprobado por parte de uno de sus integrantes, este podrá solicitar se consigne en el acta respectiva su voto negativo y con ello se liberará de toda responsabilidad por los efectos que se deriven del asunto aprobado.

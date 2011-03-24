@@ -1,0 +1,2 @@
+De las disposiciones finales
+Artículo 36.—De las modificaciones al Reglamento: El presente Reglamento, podrá ser modificado en todo o en parte, por la Junta de Crédito, contando para ello con el apoyo del resto de las instancias involucradas. Las modificaciones a dicho reglamento deberán contar con la aprobación por escrito de la Municipalidad de La Cruz, el Ministerio de Agricultura y Ganadería, el Grupo de Acción Local y el equipo de la AACID en Costa Rica y deberá de ser publicado en el Diario Oficial La Gaceta.

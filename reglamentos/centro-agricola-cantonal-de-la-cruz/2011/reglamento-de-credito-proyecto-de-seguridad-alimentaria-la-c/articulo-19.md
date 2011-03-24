@@ -1,0 +1,1 @@
+Artículo 19.—El Comité Técnico apoyará al Centro Agrícola Cantonal en la gestión administrativa del Fondo y será el encargado del seguimiento de los créditos a nivel de campo. Así mismo, apoyara el Centro Agrícola Cantonal en las acciones y compromisos que se detallen en el Convenio suscrito para la ejecución de este proyecto.

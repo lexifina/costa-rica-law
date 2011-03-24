@@ -1,0 +1,1 @@
+Artículo 6º—La Junta de Crédito determinará, para aquellos rubros no especificados en este documento, el plazo de los créditos, el monto de los intereses corrientes y moratorios, el tipo de garantía que se exigirá, el soporte documental requerido para el crédito, sobre el cobro administrativo o judicial de la operación morosa y los eventuales arreglos de pago.

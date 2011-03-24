@@ -1,0 +1,4 @@
+Artículo 29.—Gestión de Cobro: Toda operación de crédito formalizada estará sujeta a la siguiente gestión de cobro:
+a. Nota de cobro al deudor/a (primer aviso), cuando su operación tenga 8 días hábiles de atraso en el pago, otorgándole un plazo de 8 días hábiles para ponerse al día.
+b. Nota de cobro al deudor/a (segundo aviso) con copia a los/as fiadores/as otorgándoles 4 días hábiles para ponerse al día, una vez que se ha cumplido con el plazo establecido en el primer aviso sin respuesta positiva por el deudor (cuando la operación tenga 16 días hábiles de atraso en el pago).
+c. Nota de cobro al deudor/a (tercer aviso), una vez que se ha cumplido con el plazo establecido en el segundo aviso sin respuesta positiva por el deudor (cuando su operación tenga 20 días hábiles de atraso en el pago), otorgándole un plazo de 2 días hábiles para ponerse al día.

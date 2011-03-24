@@ -1,0 +1,1 @@
+Artículo 12.—La Junta de Crédito se reunirá una vez al mes en forma ordinaria y en forma extraordinaria cada vez que se requiera. Las convocatorias las realizará la Presidencia de la Junta de Crédito para analizar las solicitudes de crédito y conocer la situación de la cartera de crédito y demás temas sometidos a su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 9º—Tanto para la aprobación de las solicitudes de crédito como para el resto de acciones y en caso de empate en el proceso de votación, el voto del Presidente de la Junta de Crédito tendrá valor doble.
