@@ -1,0 +1,1 @@
+Artículo 21.—En las esquinas de cuadra, deberá construirse las rampas para personas con discapacidad, adaptándose a los noveles entre acera-calle, de tal forma que permita la continuidad y fluidez de los recorridos urbanos exigidos por la Ley Nº 7600.

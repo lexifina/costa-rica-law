@@ -1,0 +1,1 @@
+Artículo 12.—Las multas previstas en este reglamento se actualizarán anualmente en forma automática el mismo porcentaje que aumente el salario base establecido en el artículo 2 de la Ley Nº 7337 del 5 de Mayo de 1993.

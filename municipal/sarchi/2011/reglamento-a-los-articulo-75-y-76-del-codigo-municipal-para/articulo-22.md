@@ -1,0 +1,1 @@
+Artículo 22.—El valor del metro cuadrado de construcción de aceras, se estima en la suma de quince mil colones (¢15.000,00) y se actualizará en el mes de enero de cada año, previo estudio de la Dirección de Desarrollo Urbano, fijándose luego el precio por el Concejo Municipal, el cual será publicado en La Gaceta.
