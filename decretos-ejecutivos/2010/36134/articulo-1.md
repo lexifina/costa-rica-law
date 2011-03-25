@@ -58,9 +58,10 @@ Se exceptúan del registro las muestras sin valor comercial de suplementos a la 
 7.7) Evidencia publicada en revistas científicas que respalde el o los usos que se le otorgan al suplemento, excepto si dichos usos se encuentran descritos en el listado de usos permitidos para suplementos a la dieta, que oficializará posteriormente el Ministerio.
 7.8) Referencia a la metodología analítica utilizada para verificar la presencia de los nutrientes o componentes contenidos en el suplemento a la dieta.
 7.9) Pago de la tarifa fijada para el registro, según lo establece el Decreto Ejecutivo Nº 32468, publicado en el Diario Oficial La Gaceta Nº 137 del 15 de julio de 2005.
-8º—Concentraciones mínimas y máximas de vitaminas, minerales y otros componentes.
+8°- Concentraciones mínimas y máximas de vitaminas y minerales.
 a) Los suplementos a la dieta deberán contener como mínimo las concentraciones especificadas en el anexo 1 para las vitaminas y los minerales que estén contenidos en el suplemento. Dichas concentraciones corresponden al 20% de las RDI de Estados Unidos de América.
-b) Los suplementos a la dieta no podrán exceder las concentraciones máximas de vitaminas, minerales, y otros componentes especificados en los anexos 2 y 3, respectivamente.
+b) Los suplementos a la dieta no podrán exceder las concentraciones máximas de vitaminas y minerales especificadas en el anexo 2.
+(Así reformado el apartado 8) anterior por el artículo 1° del decreto ejecutivo N° 36538 del 15 de marzo del 2011)
 9º—Requisitos del etiquetado.
 9.1) Las etiquetas de los suplementos a la dieta, deberán cumplir con lo estipulado en el Decreto Ejecutivo Nº 26012 Reglamento Técnico sobre Etiquetado de los Alimentos Preenvasados, publicado en La Gaceta Nº 91 del 14 de mayo de 1997; así como con el Decreto Ejecutivo Nº 30256 Reglamento Técnico sobre Etiquetado Nutricional de los Alimentos preenvasados, publicado en La Gaceta Nº 71 del 15 de abril del 2002. Adicionalmente deberán cumplir con lo siguiente:
 9.1.1) Contener información veraz respecto al producto. Estos no deberán describirse, ni presentarse utilizando palabras, ilustraciones u otras representaciones gráficas que puedan dar lugar a apreciaciones falsas sobre la naturaleza, origen, composición o calidad del suplemento a la dieta.
