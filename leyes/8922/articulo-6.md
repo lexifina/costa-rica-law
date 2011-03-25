@@ -1,0 +1,2 @@
+ARTÍCULO 6.-
+Son trabajos peligrosos e insalubres, por sus condiciones, las actividades, ocupaciones o tareas que se derivan de la forma en que se organiza y desarrolla el trabajo, y cuyo contenido, exigencia laboral y tiempo dedicado a este podría causar daño de modo grave a la salud física o mental, al desarrollo integral e incluso la muerte de la persona adolescente trabajadora, sin que necesariamente la naturaleza de la actividad sea insalubre y peligrosa.

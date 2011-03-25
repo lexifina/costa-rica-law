@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+El trabajo de las personas adolescentes es permitido únicamente en el marco del capítulo VII del Régimen especial de protección al trabajador adolescente del Código de la Niñez y la Adolescencia, Ley N.º 7739, de 6 de enero de 1998, y la sección II del capítulo II del Reglamento para la contratación laboral y condiciones de salud ocupacional de las personas adolescentes. Asimismo, son de aplicación obligatoria los principios contenidos en el Código citado en este artículo.
