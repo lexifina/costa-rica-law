@@ -1,0 +1,2 @@
+ARTICULO V
+Las Partes entregarán las muestras de las drogas confiscadas en los territorios de sus Estados a sus laboratorios que trabajan en conformidad con los estándares internacionales, para su análisis y estudio con el fin de determinar su procedencia, así como sus características químicas y físicas. La información obtenida de esta manera se proporcionará a la otra Parte, si representa para ésta un interés.
