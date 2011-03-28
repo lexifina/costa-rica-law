@@ -1,2 +1,2 @@
-IV. DE LA VENTA DE LOS BIENES
-Artículo 14.—Gestión de venta. Toda venta deberá ser promovida en el plazo máximo de dos (2) días hábiles después del recibo del avalúo para lo cual deberá iniciarse con las gestiones para aprobación de venta por parte de la Comisión.
+IV.—De la venta de los bienes
+Artículo 14.—Gestión de venta: Toda autorización de venta deberá ser solicitada a la Comisión en el plazo máximo de dos (2) días hábiles después de recibida la documentación descrita en el Articulo 7 y solventadas las consultas del Artículo 10.

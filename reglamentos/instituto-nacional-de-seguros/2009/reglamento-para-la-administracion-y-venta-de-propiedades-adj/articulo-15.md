@@ -1,1 +1,1 @@
-Artículo 15.—Acuerdo de decisión de venta. De toda decisión de venta de un bien, deberá dejarse constancia en el mismo acto administrativo en que se emite la resolución que aprueba la venta.
+Artículo 15.—Acuerdo de decisión de venta: Toda decisión de venta de un bien, se llevará a cabo mediante Sesión Ordinaria o Extraordinaria de la Comisión; para ello deberá dejarse constancia en actas del acuerdo completo, incluyendo al menos modalidad de venta y precio.
