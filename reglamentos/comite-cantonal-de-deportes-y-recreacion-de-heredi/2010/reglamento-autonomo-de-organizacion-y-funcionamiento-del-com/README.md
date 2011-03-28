@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-15 | la propia norma |
+| 2 | 2011-03-28 | Reglamento municipal 67 (2011-03-28) |
