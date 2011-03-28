@@ -15,3 +15,4 @@ Reglamento interno de contratos administrativos del Benemérito Cuerpo de Bomber
 | --- | --- | --- |
 | 1 | 2009-03-16 | la propia norma |
 | 2 | 2010-10-06 | Reglamento 12 (2010-10-06) |
+| 3 | 2011-03-28 | Reglamento 34 (2011-03-28) |
