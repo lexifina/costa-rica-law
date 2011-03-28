@@ -14,3 +14,4 @@ Procedimiento de Presupuesto Participativo con Perspectiva de Género y Accesibi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-25 | la propia norma |
+| 2 | 2011-03-28 | Reglamento municipal 67 (2011-03-28) |
