@@ -1,0 +1,7 @@
+Artículo 33 — Jurisdicción
+1. Una acción de indemnización de daños deberá iniciarse, a elección del demandante, en el territorio de uno de los Estados Partes, sea ante el tribunal del domicilio del transportista, o de su oficina principal, o del lugar en que tiene una oficina por cuyo conducto se ha celebrado el contrato, sea ante el tribunal del lugar de destino.
+2. Con respecto al daño resultante de la muerte o lesiones del pasajero, una acción podrá iniciarse ante uno de los tribunales mencionados en el párrafo 1 de este Artículo, o en el territorio de un Estado Parte en que el pasajero tiene su residencia principal y permanente en el momento del accidente y hacia y desde el cual el transportista explota servicios de transporte aéreo de pasajeros en sus propias aeronaves o en las de otro transportista con arreglo a un acuerdo comercial, y en que el transportista realiza sus actividades de transporte aéreo de pasajeros desde locales arrendados o que son de su propiedad o de otro transportista con el que tiene un acuerdo comercial.
+3. Para los fines del párrafo 2,
+a) “acuerdo comercial” significa un acuerdo, que no es un contrato de agencia, hecho entre transportistas y relativo a la provisión de sus servicios conjuntos de transporte aéreo de pasajeros;
+b) “residencia principal y permanente” significa la morada fija y permanente del pasajero en el momento del accidente. La nacionalidad del pasajero no será el factor determinante al respecto.
+4. Las cuestiones de procedimiento se regirán por la ley del tribunal que conoce el caso.

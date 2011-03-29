@@ -1,0 +1,2 @@
+Artículo 47 — Nulidad de las cláusulas contractuales
+Toda cláusula que tienda a exonerar al transportista contractual o al transportista de hecho de la responsabilidad prevista en este Capítulo o a fijar un límite inferior al aplicable conforme a este Capítulo será nula y de ningún efecto, pero la nulidad de dicha cláusula no implica la nulidad del contrato, que continuará sujeto a las disposiciones de este Capítulo.

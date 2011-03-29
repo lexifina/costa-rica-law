@@ -1,0 +1,2 @@
+Artículo 43 — Dependientes y agentes
+Por lo que respecta al transporte realizado por el transportista de hecho, todo dependiente o agente de éste o del transportista contractual tendrán derecho, si prueban que actuaban en el ejercicio de sus funciones, a invocar las condiciones y los límites de responsabilidad aplicables en virtud del presente Convenio al transportista del cual son dependiente o agente, a menos que se pruebe que habían actuado de forma que no puedan invocarse los límites de responsabilidad de conformidad con el presente Convenio.

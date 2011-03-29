@@ -1,0 +1,2 @@
+Artículo 19 — Retraso
+El transportista es responsable del daño ocasionado por retrasos en el transporte aéreo de pasajeros, equipaje o carga. Sin embargo, el transportista no será responsable del daño ocasionado por retraso si prueba que él y sus dependientes y agentes adoptaron todas las medidas que eran razonablemente necesarias para evitar el daño o que les fue imposible, a uno y a otros, adoptar dichas medidas.

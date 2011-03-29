@@ -1,0 +1,2 @@
+Artículo 28 — Pagos adelantados
+En caso de accidentes de aviación que resulten en la muerte o lesiones de los pasajeros, el transportista hará, si lo exige su ley nacional, pagos adelantados sin demora, a la persona o personas físicas que tengan derecho a reclamar indemnización a fin de satisfacer sus necesidades económicas inmediatas. Dichos pagos adelantados no constituirán un reconocimiento de responsabilidad y podrán ser deducidos de toda cantidad posteriormente pagada como indemnización por el transportista.

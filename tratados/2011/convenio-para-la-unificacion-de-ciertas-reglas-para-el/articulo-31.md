@@ -1,0 +1,5 @@
+Artículo 31 — Aviso de protesta oportuno
+1. El recibo del equipaje facturado o la carga sin protesta por parte del destinatario constituirá presunción, salvo prueba en contrario, de que los mismos han sido entregados en buen estado y de conformidad con el documento de transporte o la constancia conservada por los otros medios mencionados en el párrafo 2 del Artículo 3 y en el párrafo 2 del Artículo 4.
+2. En caso de avería, el destinatario deberá presentar al transportista una protesta inmediatamente después de haber sido notada dicha avería y, a más tardar, dentro de un plazo de siete días para el equipaje facturado y de catorce días para la carga, a partir de la fecha de su recibo. En caso de retraso, la protesta deberá hacerla a más tardar dentro de veintiún días, a partir de la fecha en que el equipaje o la carga hayan sido puestos a su disposición.
+3. Toda protesta deberá hacerse por escrito y darse o expedirse dentro de los plazos mencionados.
+4. A falta de protesta dentro de los plazos establecidos, todas las acciones contra el transportista serán inadmisibles, salvo en el caso de fraude de su parte.

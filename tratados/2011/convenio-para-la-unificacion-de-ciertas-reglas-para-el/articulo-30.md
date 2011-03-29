@@ -1,0 +1,4 @@
+Artículo 30 — Dependientes, agentes — Total de las reclamaciones
+1. Si se inicia una acción contra un dependiente del transportista, por daños a que se refiere el presente Convenio, dicho dependiente o agente, si prueban que actuaban en el ejercicio de sus funciones, podrán ampararse en las condiciones y los límites de responsabilidad que puede invocar el transportista en virtud del presente Convenio.
+2. El total de las sumas resarcibles del transportista, sus dependientes y agentes, en este caso, no excederá de dichos límites.
+3. Salvo por lo que respecta al transporte de carga, las disposiciones de los párrafos 1 y 2 de este Artículo no se aplicarán si se prueba que el daño es el resultado de una acción u omisión del dependiente, con intención de causar daño, o con temeridad y sabiendo que probablemente causaría daño.

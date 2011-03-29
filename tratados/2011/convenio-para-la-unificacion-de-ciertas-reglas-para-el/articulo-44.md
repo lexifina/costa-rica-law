@@ -1,0 +1,2 @@
+Artículo 44 — Total de la indemnización
+Por lo que respecta al transporte realizado por el transportista de hecho, el total de las sumas resarcibles de este transportista y del transportista contractual, y de los dependientes y agentes de uno y otro que hayan actuado en el ejercicio de sus funciones, no excederá de la cantidad mayor que pueda obtenerse de cualquiera de dichos transportistas en virtud del presente Convenio, pero ninguna de las personas mencionadas será responsable por una suma más elevada que los límites aplicables a esa persona.

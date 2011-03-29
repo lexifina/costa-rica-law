@@ -1,0 +1,9 @@
+Artículo 55 — Relación con otros instrumentos del Convenio de Varsovia
+El presente Convenio prevalecerá sobre toda regla que se aplique al transporte aéreo internacional:
+1. entre los Estados Partes en el presente Convenio debido a que esos Estados son comúnmente Partes de
+a) el Convenio para la unificación de ciertas reglas relativas al transporte aéreo internacional firmado en Varsovia el 12 de octubre de 1929 (en adelante llamado el Convenio de Varsovia);
+b) el Protocolo que modifica el Convenio para la unificación de ciertas reglas relativas al transporte aéreo internacional firmado en Varsovia el 12 de octubre de 1929, hecho en La Haya el 28 de septiembre de 1955 (en adelante llamado el Protocolo de La Haya);
+c) el Convenio, complementario del Convenio de Varsovia, para la unificación de ciertas reglas relativas al transporte aéreo internacional realizado por quien no sea el transportista contractual firmado en Guadalajara el 18 de septiembre de 1961 (en adelante llamado el Convenio de Guadalajara);
+d) el Protocolo que modifica el Convenio para la unificación de ciertas reglas relativas al transporte aéreo internacional firmado en Varsovia, el 12 de octubre de 1929 modificado por el Protocolo hecho en La Haya el 28 de septiembre de 1955, firmado en la ciudad de Guatemala el 8 de marzo de 1971 (en adelante llamado el Protocolo de la ciudad de Guatemala);
+e) los Protocolos adicionales núms. 1 a 3 y el Protocolo de Montreal núm. 4 que modifican el Convenio de Varsovia modificado por el Protocolo de La Haya o el Convenio de Varsovia modificado por el Protocolo de La Haya y el Protocolo de la ciudad de Guatemala firmados en Montreal el 25 de septiembre de 1975 (en adelante llamados los Protocolos de Montreal); o
+2. dentro del territorio de cualquier Estado Parte en el presente Convenio debido a que ese Estado es Parte en uno o más de los instrumentos mencionados en los apartados a) a e) anteriores.

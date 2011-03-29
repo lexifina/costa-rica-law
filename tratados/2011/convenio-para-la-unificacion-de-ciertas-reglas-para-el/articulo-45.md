@@ -1,0 +1,2 @@
+Artículo 45 — Destinatario de las reclamaciones
+Por lo que respecta al transporte realizado por el transportista de hecho, la acción de indemnización de daños podrá iniciarse, a elección del demandante, contra dicho transportista o contra el transportista contractual o contra ambos, conjunta o separadamente. Si se ejerce la acción únicamente contra uno de estos transportistas, éste tendrá derecho a traer al juicio al otro transportista, rigiéndose el procedimiento y sus efectos por la ley del tribunal que conoce el caso.

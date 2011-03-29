@@ -1,0 +1,2 @@
+Artículo 46 — Jurisdicción adicional
+Toda acción de indemnización de daños prevista en el Artículo 45 deberá iniciarse, a elección del demandante, en el territorio de uno de los Estados Partes ante uno de los tribunales en que pueda entablarse una acción contra el transportista contractual, conforme a lo previsto en el Artículo 33, o ante el tribunal en cuya jurisdicción el transportista de hecho tiene su domicilio o su oficina principal.
