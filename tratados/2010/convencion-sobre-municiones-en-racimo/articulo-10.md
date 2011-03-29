@@ -1,0 +1,4 @@
+Artículo 10
+Solución de controversias
+1. En caso de surgir alguna controversia entre dos o más Estados Parte en relación a la interpretación o aplicación de la presente Convención, los Estados Parte interesados se consultarán mutuamente con el propósito de obtener una pronta solución a la controversia a través de la negociación o por algún otro medio pacífico de su elección, incluido el recurso a la Reunión de los Estados Parte y la sumisión de la controversia a la Corte Internacional de Justicia de conformidad con el Estatuto de la Corte.
+2. La Reunión de los Estados Parte podrá contribuir a la solución de las controversias por cualesquiera medios que considere apropiados, incluido el ofrecimiento de sus buenos oficios, instando a los Estados Parte interesados a que comiencen los procedimientos de resolución de su elección y recomendando un plazo para cualquier procedimiento acordado.
