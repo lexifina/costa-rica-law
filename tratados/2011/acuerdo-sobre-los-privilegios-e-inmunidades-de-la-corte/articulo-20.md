@@ -1,0 +1,8 @@
+Artículo 20
+Víctimas
+1. Se reconocerá a las víctima que participen en las actuaciones judiciales de conformidad con las reglas 89 a 91 de las Reglas de Procedimiento y Prueba, en la medida en que sea necesario para su comparecencia ante la Corte, los siguientes privilegios, inmunidades y facilidades, incluso durante el tiempo empleado en viajes relacionados con su comparecencia ante la Corte, siempre que exhiban el documento a que se hace referencia en el párrafo 2 del presente artículo:
+a) Inmunidad contra arresto o detención personal;
+b) Inmunidad contra la incautación de su equipaje personal, a menos que haya fundadas razones para creer que el equipaje contiene artículos cuya importación o exportación está prohibida por la ley o sometida a control por las normas de cuarentena del Estado Parte de que se trate;
+c) Inmunidad de jurisdicción de toda índole respecto de las declaraciones que hagan verbalmente o por escrito y los actos que realicen en el transcurso de su comparecencia ante la Corte, la cual subsistirá incluso después de que hayan comparecido ante la Corte;
+d) Exención de las restricciones en materia de inmigración y las formalidades de registro de extranjeros cuando viajen a la Corte y desde ella por razón de su comparecencia.
+2. La Corte extenderá a nombre de las víctimas que participen en las actuaciones judiciales de conformidad con las reglas 89 a 91 de las Reglas de Procedimiento y Prueba y a las que se reconozcan los privilegios, inmunidades y facilidades a que se hace referencia en el párrafo 1 del presente artículo un documento en el que se certifique su participación en las actuaciones de la Corte y se especifique la duración de su participación.

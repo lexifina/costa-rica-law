@@ -1,0 +1,4 @@
+Artículo 9
+Reembolso de derechos y/o impuestos
+1. La Corte, por regla general, no reclamará la exención de los derechos y/o impuestos incluidos en el precio de bienes muebles o inmuebles ni de los derechos pagados por servicios prestados. Sin embargo, cuando la Corte efectúe compras importantes de bienes y artículos o servicios destinados a uso oficial y gravados o gravables con derechos y/o impuestos identificables, los Estados Partes tomarán las disposiciones administrativas del caso para eximirla de esos gravámenes o reembolsarle el monto del derecho y/o impuesto pagado.
+2. Los artículos que se adquieran o reembolsen en franquicia no serán vendidos ni se dispondrá de ellos de otra manera salvo en las condiciones establecidas por el Estado Parte que haya concedido la exención o hecho el reembolso. No se concederán exenciones ni reembolsos por concepto de las tarifas de servicios públicos suministrados a la Corte.
