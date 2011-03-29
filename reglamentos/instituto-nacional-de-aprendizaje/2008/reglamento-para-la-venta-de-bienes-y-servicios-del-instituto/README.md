@@ -14,3 +14,4 @@ Reglamento para la Venta de Bienes y Servicios del Instituto Nacional de Aprendi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-02 | la propia norma |
+| 2 | 2011-03-29 | Reglamento 0 (2011-03-29) |
