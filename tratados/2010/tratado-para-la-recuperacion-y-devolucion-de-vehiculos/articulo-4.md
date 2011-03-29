@@ -1,0 +1,6 @@
+ARTICULO IV
+1. Siempre que la policía, la aduana o cualquier otra autoridad competente de una Parte tenga información que indique que un vehículo o aeronave que haya sido incautado es compatible con la descripción del Artículo II, dentro del período de tres (3) días a partir de dicha incautación, deberá notificar por escrito a su Autoridad Central que tienen el vehículo o aeronave bajo su custodia.
+2. La Autoridad Central del país donde se incautó el vehículo o aeronave, dentro de los ocho (8) días siguientes a la comunicación de dicha incautación, notificará por escrito a la Autoridad Central del otro Estado, que el mismo está en custodia de sus autoridades.
+3. La Autoridad Central del Estado Requirente informará a la Autoridad Central del Estado Requerido sobre la existencia de su registro y dentro de los diez (10) días siguientes al recibo de la comunicación de la incautación, deberá notificar por escrito tal hecho al legítimo propietario o a su representante legal.
+4. Para los vehículos, dicha notificación deberá incluir toda la información de identificación disponible enumerada en el Anexo 1.
+5. Para las aeronaves, dicha notificación deberá incluir toda la información de identificación disponible enumerada en el Anexo 2.
