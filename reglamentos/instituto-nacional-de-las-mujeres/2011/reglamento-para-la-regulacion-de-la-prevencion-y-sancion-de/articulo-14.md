@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimiento especial contra el hostigamiento sexual
+Artículo 14.—Principios que informan el procedimiento. Informan el procedimiento de hostigamiento sexual, los principios generales del debido proceso, el de proporcionalidad, razonabilidad y la libertad probatoria, así como los específicos de confidencialidad, que implica el deber de las instancias, las personas representantes, las personas que comparecen como testigas y testigos y las partes que intervienen en la investigación y en la resolución, de no dar a conocer la identidad de las personas denunciantes ni la de la persona denunciada y principio pro víctima, el cual implica que, en caso de duda, se interpretará a favor de la víctima.

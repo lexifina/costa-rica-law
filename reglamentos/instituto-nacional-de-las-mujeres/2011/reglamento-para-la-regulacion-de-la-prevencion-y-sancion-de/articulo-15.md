@@ -1,0 +1,2 @@
+Artículo 15.—Presentación de la denuncia. La presunta víctima de acoso u hostigamiento sexual o su representante legal deberá interponer la denuncia en forma oral o escrita ante la Coordinadora del Área de Recursos Humanos.
+El Área de Recursos Humanos, dentro de las veinticuatro horas siguientes a la recepción de la denuncia, deberá conformar y foliar un expediente y trasladarlo a la Comisión de Investigación y procederá a informar a la Presidencia Ejecutiva y a la Defensoría de los Habitantes acerca de la interposición de la denuncia.

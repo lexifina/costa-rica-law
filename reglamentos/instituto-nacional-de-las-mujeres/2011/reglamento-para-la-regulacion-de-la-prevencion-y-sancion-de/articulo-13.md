@@ -1,0 +1,1 @@
+Artículo 13.—Plazo para instruir investigación. El plazo para concluir el procedimiento no podrá exceder más de tres meses. Dicho plazo se entenderá como ordenatorio, cuyo incumplimiento genera responsabilidad para las personas integrantes de la Comisión Investigadora.

@@ -1,0 +1,8 @@
+Artículo 6º—Responsabilidades del Comité para la Prevención del Hostigamiento Sexual. El Comité se encargará de velar por la ejecución de la Política de Prevención. Dentro de sus funciones están:
+1) Comunicar en forma escrita a las personas que laboran en el Instituto Nacional de las Mujeres de la existencia de una política interna que prevenga, desaliente y evite las conductas de hostigamiento o acoso sexual.
+2) Establecer una estrategia de divulgación y promoción de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.
+3) Brindar asesoría y orientación a las funcionarias (os) del Instituto Nacional de las Mujeres sobre la prevención y manejo de la situación del hostigamiento sexual en la Institución.
+4) Promover jornadas de capacitación, charlas, talleres, seminarios, conferencias y otras actividades tendientes a sensibilizar y capacitar a todo el personal de la institución para la prevención, de conductas de hostigamiento sexual, así como tomar medidas necesarias o dirigidas a garantizar un ambiente libre de hostigamiento sexual.
+5) Establecer coordinaciones con todas las instituciones gubernamentales y no gubernamentales que trabajen con la misma problemática; así como coordinar todo tipo de medidas necesarias para evitar y erradicar el hostigamiento sexual.
+6) Establecer equipos interdisciplinarios para brindar asesoramiento y apoyo a las víctimas brindándoles la orientación necesaria.
+7) Velar por las relaciones entre las personas que trabajan en la institución y las usuarias de sus servicios, que estén fundadas en el respeto mutuo para evitar conductas de hostigamiento sexual.

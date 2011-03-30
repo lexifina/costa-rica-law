@@ -1,0 +1,1 @@
+Artículo 24.—Prueba para mejor resolver. En cualquier fase del proceso, la Comisión Investigadora, podrá ordenar la práctica de cualquier prueba pertinente y útil, o la ampliación de la que exista, siempre que sea esencial al resultado de la investigación. Se dará audiencia a las partes por el plazo de tres días.

@@ -1,0 +1,1 @@
+Artículo 35.—Normativa supletoria. Para lo no regulado expresamente en este reglamento, se aplicarán supletoriamente las disposiciones del Reglamento Autónomo de Servicios del Instituto Nacional de la Mujer y la Ley General de Administración Pública.
