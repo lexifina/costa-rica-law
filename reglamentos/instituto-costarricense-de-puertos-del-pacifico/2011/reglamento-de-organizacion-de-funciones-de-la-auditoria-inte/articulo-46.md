@@ -1,0 +1,1 @@
+Artículo 46.—Confidencialidad de los denunciantes. La identidad del denunciante, la información, documentación y otras evidencias de las investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en el artículo 6º de la Ley General de Control Interno (Nº 8292) y 8º de la Ley contra la Corrupción y el Enriquecimiento Ilícito (Nº 8422).

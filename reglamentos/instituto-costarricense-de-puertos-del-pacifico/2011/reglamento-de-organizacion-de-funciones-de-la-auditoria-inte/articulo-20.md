@@ -1,0 +1,1 @@
+Artículo 20.—Delegación y responsabilidad. El Auditor General podrá delegar sus funciones durante su ausencia, en el funcionario designado como Supervisor de Auditoría, notificando a la Junta Directiva la respectiva delegación.
