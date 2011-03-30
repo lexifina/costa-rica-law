@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE CAÑAS
+El Concejo Municipal de Cañas en sesión ordinaria Nº 82-2011, celebrada el día lunes 7 de marzo del 2011, mociones y acuerdos, inciso 13. Acuerda adherirse a la publicación del documento “Manual de Valores Base Unitarios por Tipología Constructiva”, publicado en La Gaceta Nº 30 del 11 de febrero del 2011 en el Alcance Digital Nº 12, por el Órgano de Normalización Técnica del Ministerio de Hacienda a fin de que sea utilizada por la Municipalidad de Cañas, en valoración de construcciones de todo tipo. Aprobado y definitivamente aprobado por unanimidad.
+Cañas, 16 de marzo del 2011.
