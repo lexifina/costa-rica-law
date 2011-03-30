@@ -1,0 +1,1 @@
+Artículo 26.—Los usuarios para quienes se adquiera claves de acceso a Internet por medio de servicio conmutado (llamada telefónica a RACSA o ICE), deberán tramitar su instalación y activación por medio del Departamento de Informática, para que sus funcionarios programen el acceso a la conexión de forma automática, sin la utilización de clave.

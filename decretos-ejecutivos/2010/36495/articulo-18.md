@@ -1,0 +1,3 @@
+Artículo 18.—Es deber de las jefaturas de cada Centro, Departamento o Dirección, solicitar la inclusión de claves de acceso a la red y a los sistemas de información de acuerdo a los movimientos de personal que se produzcan en cada Departamento o Unidad.
+La Jefatura o Dirección a cargo de la dependencia es responsable además de notificar por escrito al Departamento de Informática sobre la salida o traslado de un usuario a su cargo, con el fin de que se inhabiliten, modifiquen o eliminen los privilegios de acceso a las diferentes plataformas, dominios y dispositivos correspondientes.
+Asimismo, la Dirección de Recursos Humanos deberá notificar a esa instancia, la salida de la Institución de cualquier funcionario.

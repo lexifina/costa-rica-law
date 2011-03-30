@@ -1,0 +1,2 @@
+Artículo 12.—Queda absolutamente prohibido al usuario variar la configuración del software provisto por el Departamento de Informática, el cual levantará un listado del software instalado en el equipo que será firmado por el usuario del equipo.
+En caso de detectarse alguna anomalía en el uso del equipo o variación del software instalado inicialmente en el mismo, se realizará el reporte correspondiente al Jerarca a fin de establecer las responsabilidades del caso
