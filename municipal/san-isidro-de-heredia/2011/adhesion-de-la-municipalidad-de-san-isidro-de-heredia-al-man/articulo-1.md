@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SAN ISIDRO DE HEREDIA
+El Concejo Municipal de la Municipalidad de San Isidro de Heredia, en sesión ordinaria Nº 18-2011, del 14 de marzo del 2011, mediante acuerdo Nº 232-2011 por unanimidad, con dispensa de trámite de comisión, aprueba en firme y solicita la publicación del siguiente acuerdo: “el Concejo Municipal de San Isidro de Heredia, acuerda adherirse a la publicación del Manual de Valores base Unitarios por Tipología Constructiva, publicado en las páginas de la 1º a la 153 del Alcance Digital Nº 12, del Diario Oficial La Gaceta Nº 30 del día viernes 11 de febrero del 2011.
+San Isidro de Heredia, 23 de marzo del 2011.—
