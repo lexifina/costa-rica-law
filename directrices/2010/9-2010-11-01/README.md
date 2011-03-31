@@ -17,3 +17,4 @@ Guía Oficial de Movilización de Ganado Bovino” (ANEXO 1)
 | 2 | 2010-12-08 | Directriz 15 (2010-12-08) |
 | 3 | 2011-02-03 | Directriz 1 (2011-02-03) |
 | 4 | 2011-02-07 | Directriz 2 (2011-02-07) |
+| 5 | 2011-03-31 | Directriz 4 (2011-03-31) |
