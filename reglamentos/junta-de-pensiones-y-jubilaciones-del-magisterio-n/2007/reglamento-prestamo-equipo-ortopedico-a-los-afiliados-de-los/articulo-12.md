@@ -1,0 +1,1 @@
+Artículo 12.—Deber de cuidado. La membresía solicitante, será responsable del cuido del equipo y de su devolución en condiciones aceptables a criterio de la Junta o, en su defecto, deberá pagar los posibles daños o el valor del equipo en caso de su no devolución, deterioro injustificado o pérdida total.

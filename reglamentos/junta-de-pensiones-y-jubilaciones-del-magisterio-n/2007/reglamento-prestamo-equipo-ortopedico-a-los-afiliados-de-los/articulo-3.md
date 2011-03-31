@@ -1,0 +1,1 @@
+Artículo 3º—Beneficiarios. Podrán solicitar el préstamo de los implementos ortopédicos destinados para tal efecto, los (las) pensionados (as) y jubilados (as) del Régimen de Pensiones y Jubilaciones del Magisterio Nacional, cuando se demuestre mediante dictamen médico la necesidad de utilizar algún equipo ortopédico en particular.

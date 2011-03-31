@@ -1,0 +1,1 @@
+Artículo 14.—Reemplazo del equipo. En caso de que el equipo haya sufrido por uso u otro motivo imprevisto, un deterioro tal que implique su inutilidad antes del vencimiento del contrato, se dará por finalizado el mismo a menos que la Junta determine la posibilidad de reemplazarlo hasta su conclusión.

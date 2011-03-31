@@ -1,0 +1,4 @@
+Artículo 4º—Requisitos. Para gestionar el préstamo del equipo ortopédico, la membresía deberá cumplir con los siguientes requisitos:
+1. Llenar el formulario de solicitud el cual será facilitado por los funcionarios del Departamento de Prestaciones Sociales de la Junta, o bien por la funcionaria (o) encargado de cualquiera de las sucursales con que cuenta la Junta. En el mismo deberán suministrarse las calidades personales y demás datos señalados en la respectiva fórmula, la cual deberá ser firmada por el(la) pensionado(a) o jubilado (a) solicitante y en caso de que presente algún impedimento físico para llenar la solicitud, lo puede hacer a ruego en su nombre cualquier pariente o persona encargada de su cuidado.
+2. Presentar dictamen médico original que indique la necesidad de utilizar el aparato solicitado.
+En el supuesto que surja duda respecto a la legitimidad de la información presentada, la Junta puede solicitar otra documentación diferente a la establecida.

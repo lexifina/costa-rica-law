@@ -1,0 +1,1 @@
+Artículo 8º—De la entrega. La entrega del equipo, se hará en las oficinas centrales de la Junta o en caso de que el beneficiario así lo requiera, en la sucursal más cercana a su domicilio, previa aprobación del préstamo, suscripción del contrato por las partes y la garantía.
