@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ASERRÍ
+La Municipalidad de Aserrí, comunica que en la sesión ordinaria Nº 47, celebrada el día 21 de marzo del año 2011, emitió el Acuerdo Nº 08-47, Artículo cuarto, el cual fue aprobado en forma unánime y declarado en firme por 7 votos y que dice textualmente:
+“El Concejo de Aserrí, considerando la necesidad de implementar alternativas, tendientes a mejorar la gestión de cobro de esta Municipalidad, y a la vez con base al informe presentado por la Dirección Tributaria, acuerda: Aprobar un Período de Amnistía Tributaria en esta Municipalidad, que regirá a partir del 01 de abril de 2011, al 10 de agosto del 2011. Lo anterior con base en la Legislación Tributaria vigente, (Ley Nº 8818).
