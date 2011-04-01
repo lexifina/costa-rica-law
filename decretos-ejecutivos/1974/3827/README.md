@@ -14,3 +14,4 @@ Declara la segunda semana del mes de noviembre Semana Nacional de los Derechos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-06-08 | la propia norma |
+| 2 | 2011-04-01 | Decreto Ejecutivo 36589 (2011-04-01) |

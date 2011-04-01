@@ -3,5 +3,5 @@ EL PRESIDENTE DE LA REPUBLICA
 y LOS MINISTROS DE EDUCACION PUBLICA,
 TRABAJO Y SEGURIDAD SOCIAL y SALUD,
 DECRETAN:
-Artículo 1°-Declárase el 8 de noviembre de cada año "Día Nacional de la Rehabilitación y la Educación Especial".
-Si dicha fecha correspondiese a un día no hábil, las actividades se celebrarán en· cualquiera de los días inmediatos a la misma.
+Artículo 1º—Declárese la segunda semana del mes de noviembre de cada año “Semana Nacional de los Derechos de las Personas con Discapacidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36589 del 1 de abril del 2011)
