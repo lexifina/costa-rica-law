@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 36335-H de fecha 3 de diciembre del 2010, publicado en el Diario Oficial La Gaceta Nº 253 de fecha 29 de diciembre del 2010, a partir de la vigencia del presente decreto.
