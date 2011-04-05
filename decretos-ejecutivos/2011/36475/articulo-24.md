@@ -1,0 +1,1 @@
+Artículo 24.—Inspección Ocular “IN SITU”. Cuando el Tribunal lo estime oportuno, podrá realizar las inspecciones oculares o periciales que considere necesarias. Además tendrá la obligación de citar a las partes a dicha diligencia.

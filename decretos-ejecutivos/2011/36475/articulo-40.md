@@ -1,0 +1,1 @@
+Artículo 40.—Aviso. Del resultado de la acción administrativa realizada por el SENASA en la ejecución de las resoluciones finales dictadas por el Tribunal, deberá darse aviso a los efectos de hacerlo constar en el expediente respectivo.

@@ -1,0 +1,1 @@
+Artículo 9º—Corrección de errores materiales. El Tribunal podrá corregir con fundamento en el artículo 157 de la Ley General de Administración Pública, Nº 6227 de 2 de mayo de 1978, en cualquier tiempo, los errores puramente materiales que contuvieren sus resoluciones, mediante auto que dictará de oficio o a solicitud de parte y que será declarado firme.

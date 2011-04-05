@@ -1,0 +1,1 @@
+Artículo 23.—Solicitud de informes. Con la finalidad de determinar la verdad real de los hechos, el Tribunal se encuentra facultado para ordenar a los distintos órganos de la Administración Pública la remisión de informes técnicos o administrativos que requiera, en los plazos señalados por el artículo 262 de la Ley General de Administración Pública, Nº 6227 de 2 de mayo de 1978.

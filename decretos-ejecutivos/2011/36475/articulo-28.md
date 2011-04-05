@@ -1,0 +1,1 @@
+Artículo 28.—Dictado de la resolución final. Una vez que finalice la audiencia y recabadas las probanzas necesarias o declaradas inevacuables las que se consideren como tal y escuchadas las conclusiones, en un plazo máximo de 10 días se dictará la resolución final del procedimiento.

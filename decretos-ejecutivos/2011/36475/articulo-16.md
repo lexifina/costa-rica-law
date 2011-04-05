@@ -1,0 +1,1 @@
+Artículo 16.—Denuncia Oral. No obstante de lo indicado en el artículo anterior, las partes podrán formular sus denuncias en forma oral, mediante comparecencia ante uno de los miembros del Tribunal o en su defecto, ante el Secretario Instructor.

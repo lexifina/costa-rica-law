@@ -1,0 +1,2 @@
+Artículo 12.—Idoneidad, retribución, exclusividad de los miembros del Tribunal de Procedimiento Administrativo Sanitario Sancionador del SENASA. Los miembros propietarios del Tribunal deberán trabajar a tiempo completo y ser personas que, en razón de sus antecedentes, títulos profesionales y reconocida competencia en la materia, sean garantía de imparcialidad y acierto en el desempeño de sus funciones.
+La retribución de los integrantes de este Tribunal será la que de conformidad con el puesto apruebe la Autoridad Presupuestaria.

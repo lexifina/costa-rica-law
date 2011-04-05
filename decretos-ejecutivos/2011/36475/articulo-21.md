@@ -1,0 +1,1 @@
+Artículo 21.—Comunicación de la denuncia. El Secretario Instructor determinará, una vez recibida la denuncia, su admisibilidad. De ser procedente, dictará conjuntamente con el Presidente del Tribunal un acto de apertura dando traslado al denunciado.

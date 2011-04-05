@@ -1,0 +1,1 @@
+Artículo 3º—Sustitución de un juez por impedimento, excusa o recusación. Cuando un miembro del Tribunal deba separarse del conocimiento del asunto, con motivo de una recusación, impedimento o excusa, se procederá según lo establecido en los artículos 230 y siguientes de la Ley General de la Administración Pública, Nº 6227 de 2 de mayo de 1978.

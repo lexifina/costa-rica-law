@@ -1,0 +1,1 @@
+Artículo 31.—Prescripción. La potestad de imponer las sanciones administrativas, prescribirá a los cuatro años de cometido el hecho o la omisión de conformidad con el artículo 84 de la Ley Nº 8495, Ley General del Servicio de Salud Animal.

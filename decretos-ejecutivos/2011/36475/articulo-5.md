@@ -1,0 +1,1 @@
+Artículo 5º—Nombramiento Organizativo Interno del Tribunal de Procedimiento Administrativo Sancionador del SENASA. Anualmente este Tribunal elegirá de su seno un presidente, un vicepresidente y un secretario.
