@@ -1,0 +1,1 @@
+Artículo 26.—La Municipalidad podrá incorporar a este reglamento las reformas que considere pertinentes de acuerdo con su autonomía. La reforma que se proponga se comunicará a la Federación de Municipalidades a la que se encuentre afiliada, con el propósito de que el resto de municipalidades valoren la posibilidad de adoptarla.
