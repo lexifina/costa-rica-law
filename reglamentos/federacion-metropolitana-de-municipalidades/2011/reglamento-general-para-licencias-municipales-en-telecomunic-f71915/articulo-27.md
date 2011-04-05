@@ -1,0 +1,1 @@
+Artículo 27.—El pago por concepto de patente se fijará de acuerdo a los parámetros establecidos en la respectiva Ley de Patentes de la municipalidad, conforme al artículo 79 del Código Municipal, tanto para los Operador, Proveedor de Infraestructura, Proveedor, o en cualquier condición similar, mediante la información suministrada para estos efectos por el administrado.
