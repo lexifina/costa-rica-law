@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Hojancha
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-07 | la propia norma |
+| 2 | 2011-04-05 | Reglamento municipal 49 (2011-04-05) |
