@@ -16,3 +16,4 @@ Manual de Procedimientos Legales de la Inspección de Trabajo
 | 1 | 2001-01-22 | la propia norma |
 | 2 | 2004-01-13 | Directriz 0 (2004-01-13) |
 | 3 | 2008-07-31 | Directriz 23 (2008-07-31) |
+| 4 | 2011-04-05 | Directriz 14 (2011-04-05) |
