@@ -1,1 +1,2 @@
-Artículo 54.—No se permitirá exhumaciones en cualquiera de los siguientes días: durante los cuatro días que proceden al Día de la Madre, incluyendo la fecha; el Día del Padre, 24, 25 y 31 de diciembre y 1° de enero; Día de los Difuntos; Día de la Independencia, del Trabajador y otros días de fiesta religiosa, nacional o de asueto; los días sábados y domingos. Igualmente están prohibidas las exhumaciones en el momento en que se celebre un funeral en el cementerio.
+Artículo 54.—Los cadáveres serán inmediatamente inhumados por el encargado del cementerio, en presencia de las personas que integren el séquito mortuorio.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 42 al 54)

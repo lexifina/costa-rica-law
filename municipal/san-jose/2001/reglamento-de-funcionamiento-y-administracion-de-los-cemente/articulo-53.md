@@ -1,1 +1,2 @@
-Artículo 53.—Las exhumaciones deberán realizarse en horas hábiles.
+Artículo 53.—El permiso para inhumación, debidamente refrendado por la Sección de Cementerios, debe de entregársele al encargado del cementerio dos horas antes de presentarse con el ataúd de manera que de inmediato y en presencia del tramitante ubique la sepultura y la bóveda y se le indique el nicho en que se desea quede el nuevo cuerpo inhumar.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 41 al 53)

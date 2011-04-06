@@ -1,6 +1,5 @@
-Artículo 33.—El derecho de arrendamiento funerario podrá registrarse a nombre de:
-a. Persona física o Jurídica.
-b. Ambos cónyuges o que vivan en unión libre.
-c. Comunidades religiosas o hermandades.
-d. Establecimientos asistenciales y hospitalarios.
-e. Corporaciones, fundaciones o entidades legalmente constituidas para uso exclusivo de sus miembros o empleados.
+CAPÍTULO V
+Del procedimiento de remate y precios
+(Adicionado el capítulo anterior en sesión N° 50 del 6 de abril de 2011)
+Artículo 33.—Cuando la Municipalidad de San José, a través de la Oficina de Servicios de Cementerios, determine que cuenta con espacios disponibles para dar en arriendo, levantará un listado de los mismos, y, con el visto bueno de la jefatura inmediata, lo enviará a la Proveeduría Municipal para lo concerniente al remate.
+(Así adicionado en sesión N° 50 del 6 de abril de 2011)

@@ -1,3 +1,2 @@
-CAPITULO VIII
-De la administración
-Artículo 58.—La Sección de Cementerios tendrá en su competencia & el fiel cumplimiento de las disposiciones contenidas en el presente reglamento, entre otras, de la recaudación de derechos y tasas municipales, tramite de permisos para construcción y reparación y otras designadas por ,. acuerdo del Honorable Concejo Municipal, así como el mantenimiento [. general de los cementerios.
+Artículo 58.—La Sección de Cementerio en ningún caso podrá hacer reservas particulares de nichos para alquiler.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 46 al 58)

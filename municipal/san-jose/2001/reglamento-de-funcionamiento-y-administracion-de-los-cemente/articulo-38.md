@@ -1,3 +1,2 @@
-CAPITULO VI
-De las inhumaciones
-Artículo 38.—La inhumación de cadáveres y restos humanos únicamente podrá practicarse en cementerios debidamente autorizados por la autoridad competente según sean municipales o no; salvo aquellos que cuenten con autorización del Ministerio de Salud para ser sepultados en sitio distinto.
+Artículo 38.—Las parcelas de los cementerios del cantón Central de San José, dados en arriendo o no, son propiedad exclusiva de este ayuntamiento, por ende no podrán ser vendidos, usados con fines comerciales, dados en garantía o cualquier uso ajeno a lo contemplado en este Reglamento y el ordenamiento jurídico aplicable. El uso indebido acarrea la resolución contractual.
+(Así adicionado en sesión N° 50 del 6 de abril de 2011)

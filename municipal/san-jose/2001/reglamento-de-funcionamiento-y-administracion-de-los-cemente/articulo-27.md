@@ -1,1 +1,2 @@
-Artículo 27.—El derecho de arrendamiento a largo plazo tendrá una duración de veinticinco años y el derecho de arrendamiento a corto plazo tendrá una duración de cinco años, los primeros podrán prorrogarse indefinidamente por períodos iguales previo pago de la respectiva tasa de prórroga y demás derechos que fije la Municipalidad.
+Artículo 27.—Los contratos de arrendamiento a largo plazo y corto plazo tendrán un plazo de veinticinco y cinco años, respectivamente.
+(Así reformado en sesión N° 50 del 6 de abril de 2011)

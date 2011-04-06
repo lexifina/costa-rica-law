@@ -1,5 +1,2 @@
-Artículo 61.—El presente Reglamento entrará en vigencia diez días después de su publicación en La Gaceta y deroga toda disposición reglamentaria que se le oponga.
-Sin embargo, las normas relativas al especial régimen a que se encuentra sometido el derecho de sepultura, actualmente en los cementerios municipales, se respetará hasta su vencimiento, en particular en punto a su plazo. Es entendido que al vencimiento del plazo se regirá por las presentes normas y todo sin perjuicio de las reglas relativas a higiene, ornato, seguridad, administración y demás.
-De la misma manera la Municipalidad respetará el régimen del derecho de sepultura de los cementerios que en el futuro le sean traspasados hasta el vencimiento del plazo por el que fueron otorgados dichos derechos, en el entendido de que a su vencimiento se regirán por las presentes normas.
-Acuerdo firme N° 10, artículo IV, de la sesión ordinaria N° 165 del 23 de enero del 2001.
-San José, 6 de marzo del 2001.—
+Artículo 61.—Cuando se trate de exhumaciones ordenadas por la autoridad judicial, los restos serán exhumados y trasladados por personal del Organismo Médico Forense en las condiciones que ellos establezcan, sólo se intervendrá en la apertura parcial de la sepultura y en nicho, a eliminar la tapa.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 49 al 61)

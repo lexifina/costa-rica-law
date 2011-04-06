@@ -1,5 +1,9 @@
-Artículo 52.—Para el traslado de restos dentro del cementerio o a otro camposanto, debe presentarse a la Sección de Cementerios, al siguiente documentación:
-a. Solicitud en papel de oficio indicando cementerio, nombre del fallecido, fecha de deceso y ubicación de los restos.
-b. Permiso de la Dirección de Epidemiología del Ministerio de Salud para realizar la exhumación.
-c. Constancia del cementerio que recibirá los restos indicando la aceptación de los mismos y la ubicación que les darán.
-d. Aceptar y autorizar en la solicitud de exhumación que el nicho sea revisado para determinar el estado de los restos. La revisión se hará después de presentada toda documentación, e. Y cualquier otra que se considere necesarias.
+Artículo 52.—Para autorizar la inhumación, la Sección de Cementerios, solicitará:
+a. Original y fotocopia del Acta de Defunción o del Certificado Médico de Defunción, emitido por el hospital respectivo en que fue asistido el difunto o por el médico tratante si el fallecimiento fue en el hogar.
+b. Recibo del pago de la tarifa que corresponda según se trate de derechos de arrendamiento a corto plazo (cinco años) o a largo plazo (veinticinco años) y en este ultimo caso deberá aportarse también constancia municipal de estar al día en el pago.
+c.Presentación de la cédula de identidad del solicitante, tratándose de utilización de sepultura de bóveda o fosa que dimanen de derechos de arrendamiento a largo plazo deberá aportarse la autorización escrita de su titular, bien sea por firma directa y fotocopia de la cédula. El beneficiario autorizado e inscrito podrá realizar los trámites consecuentes previa identificación.
+(Corrida la numeración del inciso anterior en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo inciso d) al c), lo anterior ya que se ordena derogar el inciso c) original)
+d. En los casos en que se realice una reinhumación en otra sepultura del mismo cementerio, se precisará además la conformidad del titular.
+(Corrida la numeración del inciso anterior en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo inciso e) al d), lo anterior ya que se ordena derogar el inciso c) original)
+e. (Su texto se encuentra en el inciso d))
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 40 al 52)

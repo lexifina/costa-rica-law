@@ -1,1 +1,2 @@
-Artículo 41.—El permiso para inhumación, debidamente refrendado por la Sección de Cementerios, debe de entregársele al encargado del cementerio dos horas antes de presentarse con el ataúd de manera que de inmediato y en presencia del tramitante ubique la sepultura y la bóveda y se le indique el nicho en que se desea quede el nuevo cuerpo inhumar.
+Artículo 41.—El arrendatario debe pagar los respectivos precios para efectos de inhumación o exhumación, y los permisos para realizar reparaciones, construcciones, enchapes y demás obras dentro del cementerio. Las sumas indicadas en este artículo son diferentes al precio a pagar por concepto de arrendamiento y mantenimiento.
+(Así adicionado en sesión N° 50 del 6 de abril de 2011)

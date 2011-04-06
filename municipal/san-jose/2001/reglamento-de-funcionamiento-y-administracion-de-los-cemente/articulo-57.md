@@ -1,1 +1,2 @@
-Artículo 57.—Los restos modificados no se trasladarán al osario general, ni a fosas comunes, u otros cementerios, siendo que cada camposanto contará con un área para sepultura, de manera que se destinen a tal ubicación.
+Artículo 57.—La ocupación de los nichos de alquiler se hará empezando por un extremo de cada cuadro y sucesivamente fila por fila, de manera que siempre quede en espacio libre entre nichos ocupados. Agotada la ocupación de los impares de un cuadro se utilizará en igual forma los nichos que habrían quedado libres.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 45 al 57)

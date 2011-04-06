@@ -1,1 +1,2 @@
-Artículo 6°—Cuando la extensión del área de cementerio lo permita o cuando existan parcelas no asignadas, la Municipalidad puede venderlos como derecho de arrendamiento a quienes lo soliciten, siempre y cuando demuestren tener residencia fija en el Cantón en que se encuentra el cementerio; la Sección les solicitará los documentos probatorios que considere conveniente.
+Artículo 6º—La población de escasos recursos económicos que no cuenten con nicho propio, se exoneran del pago del costo de la inhumación en el Cementerio Calvo, previa firma de declaración jurada, de conformidad con las consideraciones, disposiciones y requisitos que para los efectos dicte el Servicio de Cementerios de esta Municipalidad.
+(Así reformado en sesión N° 50 del 6 de abril de 2011)

@@ -14,3 +14,4 @@ Reglamento de Funcionamiento y Administración de los Cementerios Municipales de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-12 | la propia norma |
+| 2 | 2011-04-06 | Reglamento municipal 50 (2011-04-06) |

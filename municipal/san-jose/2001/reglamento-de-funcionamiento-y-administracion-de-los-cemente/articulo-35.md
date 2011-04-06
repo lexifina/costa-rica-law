@@ -1,1 +1,2 @@
-Artículo 35.—El titular del derecho funerario podrá en cualquier momento revocar la designación del beneficiario que hubiere afectado y hacer una en nombre de otra persona.
+Artículo 35.—Las personas residentes del cantón central de San José serán las únicas que tienen derecho a participar en el remate. Se dará preferencia a los residentes distrito donde se encuentra el cementerio y a los vecinos de los distritos que no tienen el respectivo camposanto.
+(Así adicionado en sesión N° 50 del 6 de abril de 2011)

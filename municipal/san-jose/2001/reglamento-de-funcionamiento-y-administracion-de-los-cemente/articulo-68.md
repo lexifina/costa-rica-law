@@ -1,0 +1,2 @@
+Artículo 68.—Los huesos que se encuentran al hacer las exhumaciones ordinarias será recogidos cuidadosamente y depositados en el osario común, siempre que los deudos interesados no los reclamen para depositarlos en osarios privados que posean dentro del mismo cementerio o para su traslado a otro camposanto.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 56 al 68)

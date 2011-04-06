@@ -1,1 +1,2 @@
-Artículo 55.—La exhumación será realizada por el encargado del cementerio en presencia de dos testigos mayores de edad y preferiblemente familiares del fallecido, se levantará un acta de la que el jefe de sección o su delegado dejará original en la oficina del cementerio, entregándose copia para el camposanto a que se trasladan los restos y copia al solicitante de la exhumación. La Sección de Cementerios llevará un libro foliado donde consignará el acta en su literalidad.
+Artículo 55.—En todo caso en la parte correspondiente a la cabecera el ataúd deberá tener una ventana que permita comprobar la identidad del cadáver.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 43 al 55)

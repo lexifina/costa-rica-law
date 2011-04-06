@@ -1,1 +1,2 @@
-Artículo 56.—Los huesos que se encuentran al hacer las exhumaciones ordinarias será recogidos cuidadosamente y depositados en el osario común, siempre que los deudos interesados no los reclamen para depositarlos en osarios privados que posean dentro del mismo cementerio o para su traslado a otro camposanto.
+Artículo 56.—Queda prohibida la inhumación de más de un cadáver en la misma caja salvo si se trata de madre y recién nacido muertos en el acto del parto.
+(Así corrida su numeración en sesión N° 50 del 6 de abril de 2011, que lo traspaso del antiguo artículo 44 al 56)
