@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento regula la adjudicación de becas para el Desarrollo del recurso humano de JUDESUR, dirigido a brindar una eficiente prestación de servicio, el logro de los fines y objetivos para los que JUDESUR fue creada.

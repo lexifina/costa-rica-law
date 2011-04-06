@@ -1,0 +1,1 @@
+Artículo 25.—Los servidores que en el momento de solicitar una beca tengan financiamientos universitarios con el Departamento de Becas y se encuentren en periodo de pago, deberán tener sus obligaciones al día.

@@ -1,0 +1,1 @@
+Artículo 8º—El Encargado de la Unidad de Recursos Humanos, fungirá como Secretario de la Comisión y le corresponderá preparar las convocatorias cuando sea necesario, llevar el libro de actas y tramitar los acuerdos tomados por la Comisión.
