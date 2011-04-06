@@ -1,0 +1,1 @@
+Artículo 48.—Registros contables y presupuestarios. El jerarca y los titulares subordinados, deben asegurar que se establezcan y se mantengan actualizados registros contables y presupuestarios que brinden un conocimiento razonable y confiable de las disponibilidades de recursos, las obligaciones adquiridas por la institución, y las transacciones y eventos realizados.

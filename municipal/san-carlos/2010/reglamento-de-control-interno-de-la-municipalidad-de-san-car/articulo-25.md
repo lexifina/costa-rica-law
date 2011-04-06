@@ -1,0 +1,5 @@
+Artículo 25.—Factores formales de la ética institucional. El jerarca y los titulares subordinados, según sus competencias, deben establecer y divulgar los factores formales orientados a la promoción y el fortalecimiento de la ética institucional, incluyendo al menos los relativos a:
+La declaración formal de la visión, la misión y los valores institucionales.
+El Código de Ética de la Municipalidad de San Carlos.
+Indicadores que permitan dar seguimiento a la cultura ética institucional y a la efectividad de los elementos formales para su fortalecimiento.
+Una estrategia de implementación tendiente a formalizar los compromisos, las políticas y los programas regulares para evaluar, actualizar y renovar el compromiso de la institución con la ética; así como las políticas para el tratamiento de eventuales conductas fraudulentas, corruptas o antiéticas, el manejo de conflictos de interés y la atención apropiada de las denuncias que se presenten ante la institución en relación con esas conductas, y para tramitar ante las autoridades que corresponda las denuncias de presuntos ilícitos en contra de la Hacienda Pública.

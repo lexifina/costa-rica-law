@@ -1,0 +1,1 @@
+Artículo 52.—Supervisión. El jerarca y los titulares subordinados según sus competencias, deben ejercer una supervisión constante sobre el desarrollo de la gestión institucional y la observancia de las regulaciones atinentes al SCI, así como emprender las acciones necesarias para la consecución de los objetivos.

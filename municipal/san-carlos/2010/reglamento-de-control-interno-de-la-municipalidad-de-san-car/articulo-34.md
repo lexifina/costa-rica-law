@@ -1,0 +1,1 @@
+Artículo 34.—Estructura del proceso de valoración de riesgos. Se establece la Comisión de Valoración de Riesgo Institucional (CVRI), con el fin de apoyar la Actividad de Control Interno, en el establecimiento, funcionamiento y perfeccionamiento del SEVRI.

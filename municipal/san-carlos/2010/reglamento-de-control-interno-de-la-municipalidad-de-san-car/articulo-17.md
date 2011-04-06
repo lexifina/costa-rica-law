@@ -1,0 +1,1 @@
+Artículo 17.—Participación de los titulares subordinados en las comisiones. Los titulares subordinados se constituyen como miembros no permanentes de las comisiones de control interno, y como tales deberán asistir a todas las reuniones para las que sean convocados, de conformidad con el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 18.—Participación de funcionarios en las Comisiones. Las diferentes comisiones de control interno estarán facultadas para convocar cuando así lo requiera para cumplir con sus funciones, a cualquier servidor municipal, el cual estará en la total obligación de atender dicha convocatoria, quedando sujetos a lo establecido en el 0 del presente reglamento.

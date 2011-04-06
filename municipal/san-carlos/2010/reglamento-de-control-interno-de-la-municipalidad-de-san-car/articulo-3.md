@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. El presente reglamento es aplicable a todos los jerarcas y titulares subordinados de los departamentos de la Municipalidad de San Carlos, así como a los sujetos privados que administran fondos públicos por cualquier concepto, en los aspectos que se señalan en este reglamento.
