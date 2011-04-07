@@ -1,1 +1,0 @@
-Artículo 10.—Todo denunciante o testigo de un acoso sexual u hostigamiento, tiene la garantía de que no sufrirá perjuicio alguno por sus declaraciones siempre que estas no sean difamantes, injuriosas o calumniosas.

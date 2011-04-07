@@ -1,1 +1,0 @@
-Artículo 6°—La comisión designará como notificador a un funcionario que no esté vinculado ni directa ni indirectamente con el procedimiento, que será el encargado de trasladar personalmente todos los documentos vinculados con este.

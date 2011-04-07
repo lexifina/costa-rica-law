@@ -1,1 +1,0 @@
-Artículo 3°—Las denuncias por acoso u hostigamiento sexual serán conocidas por una comisión que será el órgano director del procedimiento, y que estará integrada por el inspector electoral, el jefe de la oficina de personal y, según el órgano al que pertenezca el acusado, el Director del Registro Civil o el Secretario del Tribunal" Supremo de Elecciones.
