@@ -1,0 +1,1 @@
+Artículo 16.—Asesoría legal como coadyuvante. Que la Asesoría Legal en caso de no llevar la instrucción del proceso, será reconocida expresamente como coadyuvante de la víctima en todos los procesos de denuncia y tramite de investigación.

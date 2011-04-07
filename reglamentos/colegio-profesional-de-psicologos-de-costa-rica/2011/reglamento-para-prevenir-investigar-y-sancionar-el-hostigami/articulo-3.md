@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de Cobertura. El presente reglamento regirá para todos las personas que laboran en el Colegio Profesional de Psicólogos de Costa Rica, personas usuarias de los servicios y personal de contratación externa, miembros de Junta Directiva, de Comisiones así como los Tribunales de Honor y Electoral.
