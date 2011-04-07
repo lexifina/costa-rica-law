@@ -15,4 +15,8 @@ Cubrir las multas por infracciones de tránsito y otras regulaciones que sean pe
 Estar a las órdenes, en cuanto al servicio de transporte se refiere, de la persona a la cual se autorizo el servicio durante el tiempo concedido e informar a su jefe inmediato de cualquier situación irregular, anormal, especial o extraordinaria que ocurra.
 Racionalizar el consumo de combustible, así como liquidar ante la Jefatura de la Unidad de Transportes inmediatamente después de brindado el servicio, los cupones que hubiera gastado por compra de combustible, presentando la o las facturas correspondientes.
 Informar a la Unidad de Transportes, cada quince días o cuando se amerite del funcionamiento del vehículo asignado.
-Presentar ante la Unidad de Transportes, en forma inmediata después de realizada la gira, un informe con los detalles relativos al servicio brindado.
+Presentar ante la Unidad de Transportes, en forma inmediata después de realizada la gira, un informe con los detalles relativos al servicio brindado
+r. Mantener un comportamiento cortés con las autoridades institucionales y de Tránsito en todo momento.
+(Así adicionado el inciso anterior por acuerdo N° 33-10-11 de la sesión N° 050 del 7 de abril del 2011)
+s.Mantenerse, en caso de accidente, en el sitio del percance, hasta que un oficial de tránsito le extienda la boleta correspondiente, o, en su defecto, que cuente con la autorización expresa de la Jefatura de la Unidad de Transportes para retirarse
+(Así adicionado el inciso anterior por acuerdo N° 33-10-11 de la sesión N° 050 del 7 de abril del 2011)
