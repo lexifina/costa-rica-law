@@ -1,0 +1,1 @@
+Artículo 27.—Prohibición de mezclar. Se prohíbe a la entidad recolectora mezclar para su transporte los residuos sólidos que han sido separados por los generadores. En caso de ser una entidad autorizada, esto será causal para que se de por finalizado su contrato, previo seguimiento del debido proceso.

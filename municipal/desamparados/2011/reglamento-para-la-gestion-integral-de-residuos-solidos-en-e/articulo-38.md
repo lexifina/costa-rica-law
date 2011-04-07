@@ -1,0 +1,1 @@
+Artículo 38.—Denuncias. En caso de que existan indicios sobre la comisión de un delito, los inspectores municipales presentarán la denuncia respectiva en la Fiscalía correspondiente. También se podrán presentar denuncias ante el Tribunal Ambiental Administrativo por violación a la legislación tutelar del ambiente.

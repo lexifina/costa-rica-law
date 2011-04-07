@@ -1,0 +1,1 @@
+Artículo 24.—Residuos sólidos no tradicionales. Los residuos sólidos no tradicionales deberán ser acumulados por el generador hasta el momento en que la Municipalidad designe fecha, horario y puntos de recolección, la cual será comunicada oportunamente. Estos residuos no deben ser entregados en recipientes.

@@ -1,0 +1,2 @@
+Artículo 18.—Escombros de construcción y demolición. La responsabilidad por el manejo de los residuos provenientes de la construcción o demolición corresponde al dueño de la propiedad, el cual deberá garantizar su disposición final en un sitio adecuado o mediante un gestor autorizado.
+La Municipalidad podrá establecer un servicio o un sitio de recolección de escombros, previa solicitud y pago de una tarifa especial, o autorizar su recolección por medio de gestores autorizados.

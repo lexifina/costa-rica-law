@@ -1,0 +1,1 @@
+Artículo 29.—Residuos infectocontagiosos. Los residuos infectocontagiosos deben ser tratados de conformidad con el Reglamento sobre la gestión de los desechos infectocontagiosos que se generan en establecimientos que presten atención a la salud y afines (Decreto Ejecutivo Nº 30965-S de 17 de diciembre del 2002) y cualquier otra indicación del Ministerio de Salud.

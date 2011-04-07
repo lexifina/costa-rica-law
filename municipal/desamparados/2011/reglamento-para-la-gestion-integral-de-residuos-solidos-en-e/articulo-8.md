@@ -1,0 +1,2 @@
+Artículo 8º—Servicio de recolección. El Proceso de Servicios Públicos deberá garantizar que en el cantón se provea el servicio de recolección de residuos sólidos en forma selectiva, accesible, periódica y eficiente para todos los usuarios, así como centros de recuperación de materiales. Asimismo, deberá impulsar sistemas alternativos para la recolección selectiva de residuos valorizables como contenedores o receptores.
+Le corresponderá también prevenir y eliminar los vertederos de residuos en todo el territorio del cantón y el acopio no autorizado de residuos.

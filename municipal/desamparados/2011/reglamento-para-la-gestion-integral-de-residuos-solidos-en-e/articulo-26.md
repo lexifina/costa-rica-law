@@ -1,0 +1,3 @@
+Artículo 26.—Propiedad de los residuos. Los residuos valorizables que sean recolectados en forma selectiva serán propiedad y responsabilidad de la Municipalidad en el momento de que los usuarios del servicio público sitúan o entregan los residuos para su recolección separada, de conformidad con el reglamento respectivo.
+Previa autorización de la Municipalidad correspondiente, estos residuos podrán ser entregados o recolectados por un tercero autorizado para su valorización, en cuyo caso corresponde a éste la propiedad y la responsabilidad de su manejo.
+En virtud de lo anterior, queda prohibido que personas ajenas a la entidad recolectora autorizada por la Municipalidad se apropien de los residuos entregados por los usuarios para su recolección.
