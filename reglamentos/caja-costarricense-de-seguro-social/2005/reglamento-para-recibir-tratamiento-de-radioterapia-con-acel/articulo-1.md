@@ -1,4 +1,6 @@
+(Derogado)
 CAJA COSTARRICENSE DE SEGURO SOCIAL
+(Este reglamento fue derogado por el "Procedimiento para Autorización de Tratamientos de Radioterapia con Acelerador Lineal", aprobado mediante sesión N° 8401 del 7 de abril del 2011)
 APROBACIÓN REGLAMENTO PARA RECIBIR TRATAMIENTO
 DE RADIOTERAPIA CON ACELERADOR LINEAL
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 12º de la sesión 7953, celebrada el 28 de abril de 2005, dispuso aprobar el siguiente Reglamento para recibir tratamiento de radioterapia con acelerador lineal:

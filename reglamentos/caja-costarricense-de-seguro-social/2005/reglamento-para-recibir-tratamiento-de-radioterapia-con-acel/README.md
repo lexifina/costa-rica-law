@@ -15,3 +15,4 @@ Reglamento para Recibir Tratamiento de Radioterapia con Acelerador Lineal
 | --- | --- | --- |
 | 1 | 2005-05-19 | la propia norma |
 | 2 | 2007-03-14 | SINALEVI (sin norma nombrada) |
+| 3 | 2011-04-07 | Reglamento 8401 (2011-04-07) |
