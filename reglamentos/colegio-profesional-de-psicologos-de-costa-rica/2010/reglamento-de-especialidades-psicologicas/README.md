@@ -14,3 +14,4 @@ Reglamento de Especialidades Psicológicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-26 | la propia norma |
+| 2 | 2011-04-08 | Acuerdo 3 (2011-04-08) |
