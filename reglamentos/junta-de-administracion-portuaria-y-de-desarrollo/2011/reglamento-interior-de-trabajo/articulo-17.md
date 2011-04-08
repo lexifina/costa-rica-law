@@ -1,0 +1,1 @@
+Artículo 17.—Todo trabajo que se ejecute fuera de los límites indicados en este Reglamento, constituyen jornada extraordinaria la que pagará conforme lo estipule la Ley, con cincuenta por ciento más de los salarios ordinarios.

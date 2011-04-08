@@ -1,0 +1,1 @@
+Artículo 5º—Contratos de trabajo: Todo trabajador de la Institución deberá estar amparado por un contrato de Trabajo, que contendrá en términos amplios las cláusulas y estipulaciones particulares que regulen la prestación de servicios.

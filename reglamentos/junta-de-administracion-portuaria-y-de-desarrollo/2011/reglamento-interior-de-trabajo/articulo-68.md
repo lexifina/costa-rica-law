@@ -1,0 +1,1 @@
+Artículo 68.—En el plazo irrevocable de cuarenta y ocho horas, siguientes a la denuncia, el Presidente de la Junta de Relaciones Laborales, procederá a convocar a los integrantes de la misma, para dar a conocer el caso, para todo efecto legal este ente será el órgano disciplinario.

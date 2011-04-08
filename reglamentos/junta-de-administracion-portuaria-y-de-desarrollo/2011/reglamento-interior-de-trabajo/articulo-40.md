@@ -1,0 +1,2 @@
+Artículo 40.—No obstante lo dispuesto en el artículo anterior, dejará de imponerse la sanción disciplinaria si el trabajador que marcó la tarjeta, o aquel al que se la marcaron, informa del hecho a quien corresponda como un error, a más tardar en el curso de la siguiente jornada de trabajo en que el mismo sucedió.
+La asistencia al Seguro Social, cuando sean en horas laborales, se concederán como licencias con goce de salario, y deberán ser marcadas en el reloj contralor usando la tarjeta correspondiente.

@@ -1,0 +1,1 @@
+Artículo 32.—Trabajo de las mujeres y menores de edad: El trabajo de los menores de edad y de las mujeres, caso de que los hubiere, se regirá además por lo dispuesto en este Reglamento, por lo que al efecto estatuye el Código de Trabajo. Todo menor de 18 años deberá proveerse del respectivo permiso para laborar, extendido por el Patronato Nacional de la Infancia.

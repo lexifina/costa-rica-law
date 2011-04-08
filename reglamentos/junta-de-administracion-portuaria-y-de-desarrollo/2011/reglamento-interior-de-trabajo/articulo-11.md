@@ -1,0 +1,1 @@
+Artículo 11.—Jornada de trabajo: La jornada de trabajo se desarrollará en los lugares donde la institución tiene actividades y en cualquier otro lugar donde la Institución lo necesite en el futuro. El cambio de lugar deberá ser puesto en conocimiento de los trabajadores con tres días de anticipación, salvo en casos de emergencia en que el traslado se podrá ordenar de inmediato.

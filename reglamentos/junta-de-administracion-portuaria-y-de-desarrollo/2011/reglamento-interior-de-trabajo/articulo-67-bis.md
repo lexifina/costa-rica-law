@@ -1,0 +1,1 @@
+Artículo 67 bis.—La persona ofendida podrá poner en consideración ante la Junta de Relaciones Laborales, su reubicación temporal en la institución, en cualquier momento del proceso. La cual se resolverá en única instancia la procedencia de la reubicación temporal solicitada.
