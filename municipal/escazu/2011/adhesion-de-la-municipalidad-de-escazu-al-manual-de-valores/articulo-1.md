@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE ESCAZÚ
+Conforme al acuerdo municipal AC-141-11 del 21 de marzo del 2011, se acuerda adherirse a la publicación del Reglamento del Manual de Valores Base Unitarios por Tipología Constructiva, que fuera publicado en el Diario La Gaceta Nº 30, Alcance Digital Nº 12, el 11 de febrero del 2011, por el Órgano de Normalización Técnica, del Ministerio de Hacienda. En firme a partir de su publicación.
