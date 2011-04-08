@@ -1,0 +1,1 @@
+Transitorio I.—Mientras la Administración Tributaria de San José Sur no se constituya físicamente, la Administración Tributaria de San José Oeste continuará realizando las funciones que le competen a dicha Administración hasta que operen por separado, conforme a lo establecido en el Decreto Ejecutivo N° 35688-H del 27 de noviembre del 2009.

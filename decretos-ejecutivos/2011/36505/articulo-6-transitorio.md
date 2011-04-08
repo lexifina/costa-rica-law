@@ -1,0 +1,1 @@
+Transitorio VI.—En el momento que las finanzas públicas lo permitan, el Director General de Tributación podrá separar físicamente la Administración Tributaria de San José Oeste y la Administración Tributaria de San José Sur, operando cada una de ellas de acuerdo a la jurisdicción establecida en el presente decreto.

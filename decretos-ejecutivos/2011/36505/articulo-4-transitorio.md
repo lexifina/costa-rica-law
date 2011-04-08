@@ -1,0 +1,1 @@
+Transitorio IV.—En tanto inician operaciones las Áreas de Valoraciones de las Administraciones Tributarias de San José Este, San José Sur y de Limón, las actuaciones de valoración que les correspondan por sus competencias, continuarán siendo ejecutadas por el Área de Valoraciones Administrativas de la Administración Tributaria de San José Oeste.
