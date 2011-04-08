@@ -1,0 +1,1 @@
+Artículo 41.—No se podrá efectuar compras de bienes y servicios mayores a doscientos mil colones exactos (¢200.000,00). Los montos superiores se deberán tramitar por los procedimientos normales de adquisiciones establecidos por la normativa vigente.

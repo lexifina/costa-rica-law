@@ -1,0 +1,4 @@
+Artículo 9º—La compra de bienes y/o servicios se tramitará por el fondo de caja chica, solamente cuando se den las siguientes condiciones: Si ninguna dependencia o funcionario Municipal, según sus funciones, está en la posibilidad de prestar el servicio de que se trate.
+3. Si son gastos de la partida de servicios no personales, o de la partida de materiales y suministros, siempre que exista contenido económico y presupuestario con cargo a estas partidas.
+4. Gastos por concepto de viáticos, debidamente autorizados por la alcaldía, lo cuales deben ser debidamente justificados y no deben ser superiores al máximo autorizado para vales de caja chica, siempre y cuando cuenten con contenido económico en la partida correspondiente.
+5. No se debe cancelar servicios profesionales o técnicos, así como salarios, extras, vacaciones etc.
