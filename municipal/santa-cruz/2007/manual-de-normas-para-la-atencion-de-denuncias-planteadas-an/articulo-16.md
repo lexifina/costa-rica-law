@@ -1,0 +1,3 @@
+16.Del incumplimiento de las presentes disposiciones. El incumplimiento de las presentes disposiciones por parte de las personas, entidades, órganos u organismos interesadas en la interposición denuncias, facultará a la auditoría interna al rechazo ad portas o al archivo de la denuncia sin más tramite.
+Nota: El presente Manual fue aprobado por el Concejo Municipal en sesión extraordinaria Nº 19-2007, artículo 03, inciso 01.1 de fecha 01 de agosto del 2007 y por la Contraloría General de la República el 12 de marzo del 2008, DAGJ-0328-2008, mediante oficio Nº 02170.
+Santa Cruz, 23 de marzo del 2011.
