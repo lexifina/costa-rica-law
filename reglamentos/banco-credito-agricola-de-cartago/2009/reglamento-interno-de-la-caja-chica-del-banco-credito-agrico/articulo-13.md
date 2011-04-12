@@ -1,1 +1,0 @@
-Artículo 13.—Diferencias. Cualquier diferencia que se produzca al efectuar el cierre diario de caja o arqueo, deberá ser declarada por el encargado de caja chica de acuerdo al “Reglamento sobre el Tratamiento Contable y Administrativo de Diferencias de Caja”.
