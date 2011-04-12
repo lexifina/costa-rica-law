@@ -1,0 +1,1 @@
+Segundo: Acordar que sin excepción las Asociaciones de Desarrollo Integral o Especificas y las Juntas Administrativas y de Educación que tengan partidas pendientes de liquidar al 15 de mayo de cada año no podrán presentar proyectos en la sesión ampliada que realiza el Concejo de Distrito”.
