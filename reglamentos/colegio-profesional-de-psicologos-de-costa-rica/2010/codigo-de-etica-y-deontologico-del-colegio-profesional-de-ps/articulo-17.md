@@ -1,0 +1,1 @@
+Artículo 17.—Tras la finalización de la relación profesional, la o el profesional en psicología seguirá siendo responsable de: las conclusiones, resultados, intervención de su gestión y de la custodia del expediente y/o documentos correspondientes, según sea el caso.

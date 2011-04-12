@@ -1,0 +1,1 @@
+Artículo 7º—Las y los profesionales en psicología no promueven ni se involucran en conductas de acoso, de degradación, ni otras que puedan ocasionar perjuicio a las personas con quienes interactúan en su ejercicio profesional.

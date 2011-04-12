@@ -1,0 +1,1 @@
+Artículo 6º—Las y los profesionales en psicología deberán utilizar siempre información verídica acerca de sus títulos inscritos en este Colegio Profesional, así como respecto a su afiliación a instituciones y/o organizaciones.

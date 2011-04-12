@@ -1,0 +1,3 @@
+Artículo 23.—La o el profesional en psicología deberá evitar el uso de métodos, técnicas y/o instrumentos no propios de la ciencia psicológica dentro de su ejercicio profesional.
+En todo caso si la o el profesional empleara dichos recursos deberá estar debidamente certificada o certificado para su empleo, para ello, en caso contrario, será responsable de las consecuencias que esto pudiera generar.
+En todo caso si recurre a su utilización deberá advertir a la persona usuaria de los alcances de la intervención, señalando claramente que no se trata de recursos propios de la ciencia psicológica. En todo caso deberán ser recursos debidamente respaldados, contrastados y cuya efectividad haya sido comprobada y validada científicamente.

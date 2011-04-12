@@ -1,0 +1,2 @@
+Artículo 55.—Todas las actuaciones del Tribunal deberán seguir los procedimientos que el Debido Proceso, la Ley Orgánica y el capítulo VIII de este Código estipulen, así mismo, tales actuaciones deberán estar fundadas en la verificación de los hechos que le sirven de motivo y en la racionalidad y razonabilidad de los mismos.
+Las actuaciones del Tribunal deberán constar en actas y sus sanciones deberán ser escritas y notificadas personalmente a la persona perjudicada y a la sancionada.

@@ -1,0 +1,7 @@
+Artículo 58.—El Tribunal podrá imponer, por violación a las normas del presente Código, de conformidad con la gravedad del caso y en supuesto de fallo condenatorio, una de las siguientes sanciones:
+A. Cuando las violaciones y sus consecuencias fueren levísimas, la sanción que se impondrá será la amonestación escrita privada.
+B. Cuando las violaciones y sus consecuencias fueren leves, la sanción que se impondrá será la suspensión temporal de quince días a tres meses, siendo publicado en un diario de circulación nacional y en la página oficial del Colegio.
+C. Cuando las violaciones y sus consecuencias fueran graves, la sanción que deberá imponerse será la suspensión temporal de tres meses a un año, siendo publicado en un diario de circulación nacional y en la página oficial del Colegio.
+D. Cuando las violaciones y sus consecuencias fueran muy graves, la sanción a imponer será la suspensión temporal de un año hasta tres años siendo publicado en un diario de circulación nacional y en la página oficial del Colegio.
+E. Cuando las violaciones y sus consecuencias fueran gravísimas, la sanción que deberá imponer será la suspensión de tres hasta diez años siendo publicado en un diario de circulación nacional y en la página oficial del Colegio.
+F. Cuando la o el profesional en psicología haya sido inhabilitada o inhabilitado penalmente en el ejercicio de su profesión y esta pena se encuentre vigente no podrá ejercer hasta que la misma no haya sido cumplida.

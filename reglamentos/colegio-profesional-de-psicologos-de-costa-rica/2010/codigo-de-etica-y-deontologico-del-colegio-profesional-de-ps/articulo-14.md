@@ -1,0 +1,1 @@
+Artículo 14.—La o el profesional en psicología deberá evitar involucrarse en relaciones profesionales con personas usuarias con quienes tenga vínculos de afinidad, consanguinidad, de autoridad o de estrecha intimidad que pudiese interferir con la calidad del servicio, debiendo restringir su relación con la persona usuaria dentro de un ámbito estrictamente profesional.

@@ -1,0 +1,1 @@
+Artículo 41.—A menos que exista una limitación legal, reglamentaria o contractual, la o el profesional en psicología podrá utilizar, para trabajos científicos, los datos que recoja o elabore dentro de la institución donde trabaje, resguardando la privacidad de la información y confidencialidad de las personas usuarias.

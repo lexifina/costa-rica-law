@@ -1,0 +1,1 @@
+Artículo 52.—La o el profesional en psicología tiene la obligación de colaborar en las investigaciones disciplinarias y administrativas que el Colegio realice. Además, deberá ser veraz en sus intervenciones.

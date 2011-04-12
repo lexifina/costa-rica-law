@@ -1,0 +1,1 @@
+Artículo 12.—De conformidad con el artículo anterior la o el profesional en psicología actuará respetando los derechos de las personas en cuanto a ser consultadas e informadas de todo aquello que pudiera comprometer su integridad física, cognitiva, emocional y su calidad de vida.

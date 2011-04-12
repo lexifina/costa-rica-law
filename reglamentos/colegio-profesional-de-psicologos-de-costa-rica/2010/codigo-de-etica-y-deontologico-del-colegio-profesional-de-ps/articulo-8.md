@@ -1,0 +1,1 @@
+Artículo 8º—La o el profesional en psicología deberá en su ejercicio profesional establecer un encuadre en el cual comunicará claramente: los objetivos, métodos, procedimientos, honorarios, horario del trabajo que realiza y cualquier otro dato que considere pertinente informar a la persona usuaria, esto de acuerdo con los servicios que preste.

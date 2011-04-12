@@ -1,0 +1,1 @@
+Artículo 45.—La o el profesional en psicología no deberá permitir que se vincule su nombre o imagen profesional a la publicidad de productos o servicios comerciales, a excepción de los materiales psicológicos que la o el profesional elabore o en cuya elaboración participe.

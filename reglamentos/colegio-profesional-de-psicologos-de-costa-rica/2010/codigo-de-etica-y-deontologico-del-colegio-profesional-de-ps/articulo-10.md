@@ -1,0 +1,1 @@
+Artículo 10.—En el caso de que la o el profesional en psicología realice una acción comunitaria o social, deberá solicitar autorización a los entes y personas usuarias, comunicando fundamentalmente sus estrategias, alcances y resultados.

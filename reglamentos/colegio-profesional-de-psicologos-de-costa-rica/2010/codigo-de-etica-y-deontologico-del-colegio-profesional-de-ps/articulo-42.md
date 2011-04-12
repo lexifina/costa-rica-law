@@ -1,0 +1,1 @@
+Artículo 42.—Las declaraciones u opiniones que la o el profesional en psicología deba emitir como profesional en psicología con fines de información al público, deberán plantearse siempre con rigor técnico, sin perjuicio de adecuarse al nivel de comunicación que corresponda.

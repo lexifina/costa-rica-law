@@ -1,0 +1,1 @@
+Artículo 62.—La Junta Directiva deberá ejecutar y dar seguimiento a los fallos del Tribunal de Honor, contra los cuales, cuando decreten las penas de suspensión, cabrá recurso de apelación ante la Asamblea General.

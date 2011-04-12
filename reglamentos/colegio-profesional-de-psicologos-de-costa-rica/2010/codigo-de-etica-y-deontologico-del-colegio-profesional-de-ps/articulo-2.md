@@ -1,0 +1,1 @@
+Artículo 2º—Las normas contenidas en este Código son de aplicación obligatoria para todas las personas profesionales en psicología, que se encuentren incorporadas al Colegio. Bajo ninguna circunstancia se podrá alegar su desconocimiento o justificar su inobservancia.

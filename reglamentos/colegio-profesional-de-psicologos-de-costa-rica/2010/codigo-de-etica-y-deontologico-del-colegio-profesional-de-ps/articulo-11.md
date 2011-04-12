@@ -1,0 +1,1 @@
+Artículo 11.—En la prestación de sus servicios la persona colegiada no hará discriminación alguna por razones de: nacionalidad, edad, raza, condición socio-cultural, sexo, orientación sexual, credo religioso, ideología, clase social, necesidades especiales, discapacidad o cualquier otra condición que esté amparada por los derechos humanos.

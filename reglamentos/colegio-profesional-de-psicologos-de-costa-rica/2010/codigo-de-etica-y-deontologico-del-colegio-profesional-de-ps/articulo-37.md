@@ -1,0 +1,1 @@
+Artículo 37.—Cuando se realicen investigaciones con animales se deberán cumplir todas las leyes nacionales y normativas vigentes para este tipo de investigación. Además se procurará evitar sufrimientos, daños y molestias a los animales involucrados.

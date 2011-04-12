@@ -1,0 +1,2 @@
+Artículo 4º—Toda violación a las normas contenidas en la Ley Orgánica, en este Código o a las normativas que rigen al Colegio, será considerada falta ética y será sancionada de acuerdo con lo dispuesto en dicha Ley y en los procedimientos previstos en el presente Código.
+Las sanciones de orden disciplinario previstas en este Código son independientes de cualesquiera otras que se puedan imponer por los mismos hechos en las instancias externas correspondientes.

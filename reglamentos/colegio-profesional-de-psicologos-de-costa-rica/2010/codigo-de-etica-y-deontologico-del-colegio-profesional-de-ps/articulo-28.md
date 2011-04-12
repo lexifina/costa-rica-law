@@ -1,0 +1,4 @@
+CAPÍTULO III
+Sobre el cobro de honorarios
+Artículo 28.—La o el profesional en psicología podrá cobrar o no sus honorarios. En caso de que los cobre, éstos no podrán ser inferiores a las tarifas mínimas establecidas en la tabla de honorarios del Colegio. En el caso que no los cobre deberá pedir a priori permiso a la Junta Directiva, solo en casos de carácter de acción social de su intervención, adjuntando las justificaciones respectivas. Solo en casos muy calificados la Junta Directiva a su juicio podrá autorizar un cobro inferior al establecido.
+Asimismo, la o el profesional en psicología se abstendrá de aceptar condiciones de pago parcial por sus servicios que impliquen desvalorización de la profesión o competencia desleal. Los honorarios no están supeditados al éxito del tratamiento o a un determinado resultado.

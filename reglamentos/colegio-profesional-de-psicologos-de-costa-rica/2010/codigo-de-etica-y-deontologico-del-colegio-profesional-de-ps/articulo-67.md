@@ -1,0 +1,1 @@
+Artículo 67.—Serán consideradas como faltas graves los desacatos o incumplimientos según corresponda la situación a los artículos: 9, 10, 13 inciso a, 13 inciso j, 18, 21, 23, 24 inciso a, 24 inciso c, 24 inciso d, 31, 33 inciso f, 33 inciso g, 36, 38, 39, 42, 43, 44, 45, 46, 47, 48, 51, 52 y 53.

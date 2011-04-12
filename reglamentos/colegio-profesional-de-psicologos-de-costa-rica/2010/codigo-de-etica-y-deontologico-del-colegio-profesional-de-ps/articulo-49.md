@@ -1,0 +1,2 @@
+Artículo 49.—Cuando una o un profesional en psicología le solicita a otra u otro colega en psicología información sobre un proceso de intervención realizado por ésta o este último, en un marco de derivación, atención y/o seguimiento brindado a una misma persona usuaria, la o el profesional que recibió la solicitud deberá brindar la información requerida.
+En tales casos, el relevo del secreto profesional estará dado por la autorización de la persona usuaria para contar con la información de anteriores servicios psicológicos recibidos.

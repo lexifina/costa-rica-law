@@ -1,0 +1,1 @@
+Artículo 22.—La o el profesional en psicología deberá evitar toda actuación que facilite la obtención indebida de beneficios académicos a estudiantes o a personas subalternas de la o el profesional en psicología, así como todo acto que tienda al facilismo académico.

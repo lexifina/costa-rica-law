@@ -1,0 +1,1 @@
+Artículo 26.—Todo acto profesional que se haga en forma apresurada y deficiente con el objeto de cumplir con una obligación administrativa o por motivos personales, debe considerarse como una conducta reñida con la ética.

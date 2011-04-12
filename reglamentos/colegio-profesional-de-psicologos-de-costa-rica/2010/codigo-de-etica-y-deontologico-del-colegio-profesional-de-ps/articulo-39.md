@@ -1,0 +1,1 @@
+Artículo 39.—Las publicaciones que sean producto de un trabajo compartido deberán incluir los nombres de todas las personas responsables de su autoría. Así mismo, se deberán indicar: sus grados de contribución, sus niveles de responsabilidad y sus grados académicos.

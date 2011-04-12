@@ -1,0 +1,1 @@
+Artículo 3º—Las personas profesionales en psicología, deberán cumplir en su ejercicio profesional con los preceptos institucionales del Colegio, con ética y moral en el servicio prestado. Las normas contenidas en este Código se aplicarán a toda actividad realizada por la o el profesional en el ejercicio de sus funciones.

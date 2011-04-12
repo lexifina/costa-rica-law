@@ -1,0 +1,1 @@
+Artículo 40.—Es contrario a la ética exponer o publicar como si fueran propias ideas expuestas previamente por otras personas o datos en cuya recolección no se ha intervenido, sin citar con toda claridad la fuente o el autor.

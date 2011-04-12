@@ -1,0 +1,1 @@
+Artículo 68.—Serán consideradas como faltas muy graves los desacatos o incumplimientos según corresponda la situación a los artículos: 11, 13 inciso b, 13 inciso c, 13 inciso e, 13 inciso f, 16, 17, 22, 26 y 30.
