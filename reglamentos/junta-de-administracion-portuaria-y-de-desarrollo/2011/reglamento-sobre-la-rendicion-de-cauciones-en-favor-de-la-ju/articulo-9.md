@@ -1,0 +1,1 @@
+Artículo 9º—Cálculo de la caución en el nivel A. Quienes desempeñen los puestos contemplados dentro del incisos a) del artículo 13 del presente Reglamento, deberán rendir una caución equivalente a diez salarios base.
