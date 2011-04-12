@@ -1,0 +1,1 @@
+Artículo 3º—Creación de la categoría promoción de la salud comunitaria: Se crea la VIII categoría del PBAE, denominada “Promoción de la Salud Comunitaria”, dirigida a la organización comunal, para que con el apoyo de las autoridades de salud de la zona, realicen acciones y actividades con el propósito de mejorar la calidad de vida de la población correspondiente.

@@ -1,0 +1,1 @@
+Artículo 13.—Manuales de procedimientos de cada categoría: Cada categoría cuenta con su respectivo manual de procedimientos, en el cual se detallan aspectos específicos para cada una de ellas. Este manual será revisado al menos cada 4 años por la CNPBAE, para determinar si procede realizar cambios operativos que permitan agilizar y modernizar el programa.

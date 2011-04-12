@@ -1,0 +1,1 @@
+Artículo 11.—Parámetros, nota mínima y gradación de estrellas: Los parámetros obligatorios para cada categoría del PBAE se definen en el Anexo B. (adjunto). La nota mínima y la gradación de las estrellas en el galardón para cada categoría del PBAE, se presenta en el Anexo C. (adjunto)

@@ -1,0 +1,1 @@
+Artículo 9º—Logo del galardón: Se mantiene el logo original del galardón, “Bandera Azul Ecológica”, incluyendo: el logo original del programa en el centro, en la esquina superior derecha el año de evaluación y en el margen inferior derecho, el símbolo de cada categoría. La bandera o galardón tendrá un largo de 1.50 metros y un ancho de 1 metro.

@@ -1,0 +1,1 @@
+Artículo 7º—Equipos técnicos de trabajo de la CNPBAE: El CNPBAE integrará Equipos Técnicos con funcionarios de las distintas instituciones representadas en el seno de la CNPBAE, con el propósito de realizar las siguientes funciones: promoción, evaluación, seguimiento, y otras actividades de apoyo y monitoreo con los Comités Locales.
