@@ -1,1 +1,0 @@
-Artículo 14.—La Auditoría Interna del Banco verificará- cuando lo considere conveniente y de conformidad con los procedimientos que al respecto establezca- el fiel cumplimiento de todas las disposiciones de este reglamento.
