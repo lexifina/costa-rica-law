@@ -1,2 +1,6 @@
-Artículo 43.—Ejecución contractual: La ejecución contractual prevista en este Reglamento estará sujeta a la emisión previa de una orden de compra, o a la confección de un contrato, según se haya definido en el cartel respectivo o en los términos de referencia, y cuando sea aplicable, al respectivo refrendo.
-Se establecen como responsables de la ejecución contractual el funcionario fiscalizador y Coordinador del Macroproceso o Proceso solicitante.
+SECCIÓN SEGUNDA
+Precio y pago
+Artículo 43.—Precio: Los precios cotizados deberán ser ciertos y definitivos, y sin perjuicio de eventuales reajustes y revisiones, y se regirán por lo dispuesto en el Capítulo IV, Sección Primera del RLCA.
+Aquellos materiales que sean cotizados en contratos de obra como materiales de importación y que posteriormente sean comprados en plaza, serán cancelados contra presentación de la factura del proveedor nacional. El monto a cancelar no deberá superar lo cotizado en moneda extranjera, así como los impuestos que hubiesen correspondido a la nacionalización de este producto; y para efectos del pago, el tipo de cambio que se utilizará será el de referencia para la venta calculado por el Banco Central de Costa Rica vigente a la fecha efectiva del suministro.
+Cuando los productos ofrecidos sean de importación y el oferente sea una firma domiciliada fuera del territorio nacional, el cartel o términos de referencia establecerá los Incoterms que permitan determinar los elementos que componen el precio, por lo que será obligatorio para todo oferente cotizar en la forma solicitada; en caso de omisión la Administración procederá a descalificar la oferta.
+(Así corrida su numeración en sesión N° 3824 del 12 de abril del 2011, que lo traspasó del antiguo artículo 37 al 43 actual)

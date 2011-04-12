@@ -1,3 +1,2 @@
-Artículo 35.—Formas de rendir las garantías: Las garantías serán rendidas según las formas que establece el artículo 42 del RLCA.
-En lo que respecta a las garantías rendidas mediante transferencias bancarias, a instancia de la Proveeduría, la Unidad de Tesorería a más tardar al día hábil siguiente de la solicitud, verificará el crédito en la cuenta bancaria destinada para tal fin y lo comunicará a dicha dependencia.
-(Artículo del RLCA relacionado: 42)
+Artículo 35.—Términos de referencia. Los términos de referencia para la contratación de servicios profesionales y técnicos serán elaboradas por los Departamentos solicitantes, y deben contener el objeto de la contratación, que sea diferente a las labores que realizan los funcionarios de las diferentes dependencias de la Institución o bien que no puedan ser realizadas con el personal regular de la institución, objetivo específico de la contratación y plazo de la contratación y presentación de informes de avance, tipo y calidades del profesional y técnico que se necesita, productos o resultados esperados.
+(Así adicionado mediante sesión N° 3824 del 12 de abril del 2011)

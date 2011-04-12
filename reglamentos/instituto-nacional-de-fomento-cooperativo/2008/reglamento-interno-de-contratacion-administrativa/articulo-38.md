@@ -1,4 +1,3 @@
-Artículo 38.—Forma de pago: Los pagos a proveedores se harán contra la prestación del servicio, recepción de bienes o informes avance, a entera satisfacción de INFOCOOP, exceptuando los casos previstos en el artículo 35 del RLCA.
-En contratos de ejecución continuada o sucesiva, los pagos se harán mensualmente contra el informe de avance en la prestación de los mismos, recibidos a entera satisfacción de INFOCOOP, o dentro del plazo establecido en el cartel o términos de referencia.
-El funcionario que ejecute un pago en contravención de estas disposiciones incurrirá en responsabilidad laboral y patrimonial al igual que el funcionario que, careciendo de motivo, retenga un pago a un proveedor determinado.
-(Artículos del RLCA relacionados: 32 a 35)
+Artículo 38.—Ejecución de la garantía de participación: La garantía de participación debe ser incondicional y será ejecutada según los supuestos previstos en el artículo 39 del RLCA.
+La Proveeduría, ordenará la ejecución mediante acto motivado y dará audiencia previa al interesado por tres (3) días hábiles a fin de que exponga sus alegatos y pruebas de descargo. El Proceso de Asesoría Jurídica dispondrá de un plazo de tres (3) días hábiles para realizar la valoración correspondiente y determinar si procede o no la ejecución, lo cual será notificado por la Proveeduría. El plazo total que se dispone para resolver será de cinco (5) días hábiles.
+(Así corrida su numeración en sesión N° 3824 del 12 de abril del 2011, que lo traspasó del antiguo artículo 32 al 38 actual)

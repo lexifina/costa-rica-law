@@ -1,5 +1,6 @@
-SECCIÓN SEGUNDA
-Precio y pago
-Artículo 37.—Precio: Los precios cotizados deberán ser ciertos y definitivos, y sin perjuicio de eventuales reajustes y revisiones, y se regirán por lo dispuesto en el Capítulo IV, Sección Primera del RLCA.
-Aquellos materiales que sean cotizados en contratos de obra como materiales de importación y que posteriormente sean comprados en plaza, serán cancelados contra presentación de la factura del proveedor nacional. El monto a cancelar no deberá superar lo cotizado en moneda extranjera, así como los impuestos que hubiesen correspondido a la nacionalización de este producto; y para efectos del pago, el tipo de cambio que se utilizará será el de referencia para la venta calculado por el Banco Central de Costa Rica vigente a la fecha efectiva del suministro.
-Cuando los productos ofrecidos sean de importación y el oferente sea una firma domiciliada fuera del territorio nacional, el cartel o términos de referencia establecerá los Incoterms que permitan determinar los elementos que componen el precio, por lo que será obligatorio para todo oferente cotizar en la forma solicitada; en caso de omisión la Administración procederá a descalificar la oferta.
+CAPÍTULO TERCERO
+Aspectos económicos
+SECCIÓN PRIMERA
+Garantías
+Artículo 37.—Garantía de participación: En los procesos ordinarios de contratación se exigirá la rendición de una garantía de participación, cuyo porcentaje se definirá en el pedido de artículos, dentro del rango del cero por ciento (0%) al cinco por ciento (5%) del monto total cotizado. En caso de recibirse una garantía por parte de una PYMES, deberá ser revisada de conformidad con lo establecido en el artículo 15 del “Reglamento Especial para la Promoción de las PYMES en las compras de bienes y servicios de la Administración”, Decreto Ejecutivo Nº 33305-MEIC-H.
+(Así corrida su numeración en sesión N° 3824 del 12 de abril del 2011, que lo traspasó del antiguo artículo 31 al 37 actual)

@@ -1,5 +1,8 @@
-CAPÍTULO TERCERO
-Aspectos económicos
-SECCIÓN PRIMERA
-Garantías
-Artículo 31.—Garantía de participación: En los procesos ordinarios de contratación se exigirá la rendición de una garantía de participación, cuyo porcentaje se definirá en el pedido de artículos, dentro del rango del cero por ciento (0%) al cinco por ciento (5%) del monto total cotizado. En caso de recibirse una garantía por parte de una PYMES, deberá ser revisada de conformidad con lo establecido en el artículo 15 del “Reglamento Especial para la Promoción de las PYMES en las compras de bienes y servicios de la Administración”, Decreto Ejecutivo Nº 33305-MEIC-H.
+SECCIÓN QUINTA
+Contratación de Servicios Profesionales y Técnicos
+(Así adicionada la sección quinta anterior mediante sesión N° 3824 del 12 de abril del 2011)
+Artículo 31.—Procedencia. Para contratar servicios técnicos o profesionales a cargo de personas físicas o jurídicas, la Proveeduría deberá seguir los procedimientos de licitación pública, abreviada o contratación directa, de acuerdo al monto estimado de la contratación.
+Procederá la contratación de aquellos servicios técnico-profesionales especializados de los que no disponga la Institución, para cubrir necesidades ocasionales y de excepcionalidad, y que no respondan a necesidades ordinarias y permanentes, de acuerdo con las labores establecidas en el Manual de Funciones del INFOCOOP.
+Para este tipo de contratación se estará acorde con lo dispuesto en el artículo 163 del Reglamento a la Ley de Contratación Administrativo.
+Cuando las condiciones del mercado, así como la alta y frecuente demanda de servicios lo recomienden, se podrá pactar el compromiso de suplir los servicios, según las necesidades puntuales que se vayan dando durante un período determinado. Las cotizaciones se harán sobre la base de precios unitarios formulados con fundamento en una proyección de los costos y eventuales demandas del servicio. El cartel deberá definir con toda claridad, entre otros: el plazo de la contratación, el cual no podrá ser superior a cuatro años, las reglas sobre la eventual exclusividad, la metodología de ejecución del contrato y demás asuntos pertinentes. La Administración podrá incluir en su cartel mecanismos que le permitan variar los precios originalmente contratados, cuando éstos no reflejen las variaciones sustanciales y sostenidas del mercado, que se hayan producido con posterioridad. Para ello deberá establecer reglas claras que garanticen una adecuada y equilibrada aplicación de esta facultad.
+(Así adicionado mediante sesión N° 3824 del 12 de abril del 2011)

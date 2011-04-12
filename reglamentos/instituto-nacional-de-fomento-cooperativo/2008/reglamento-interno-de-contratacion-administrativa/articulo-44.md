@@ -1,1 +1,5 @@
-Artículo 44.—Recibo de objetos actualizados: En el caso de adquisición de tecnología, el contratista está obligado a entregar objetos actualizados, entendiéndose por estos los definidos en el artículo 197 del RLCA. En estos casos, el contratista deberá entregar junto con los bienes una certificación expedida por el fabricante de los equipos que acredite que los bienes son de última tecnología. Dicha certificación debe ser emitida al menos con un mes de antelación a la orden de inicio.
+Artículo 44.—Forma de pago: Los pagos a proveedores se harán contra la prestación del servicio, recepción de bienes o informes avance, a entera satisfacción de INFOCOOP, exceptuando los casos previstos en el artículo 35 del RLCA.
+En contratos de ejecución continuada o sucesiva, los pagos se harán mensualmente contra el informe de avance en la prestación de los mismos, recibidos a entera satisfacción de INFOCOOP, o dentro del plazo establecido en el cartel o términos de referencia.
+El funcionario que ejecute un pago en contravención de estas disposiciones incurrirá en responsabilidad laboral y patrimonial al igual que el funcionario que, careciendo de motivo, retenga un pago a un proveedor determinado.
+(Artículos del RLCA relacionados: 32 a 35)
+(Así corrida su numeración en sesión N° 3824 del 12 de abril del 2011, que lo traspasó del antiguo artículo 38 al 44 actual)

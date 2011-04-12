@@ -1,2 +1,2 @@
-Artículo 32.—Ejecución de la garantía de participación: La garantía de participación debe ser incondicional y será ejecutada según los supuestos previstos en el artículo 39 del RLCA.
-La Proveeduría, ordenará la ejecución mediante acto motivado y dará audiencia previa al interesado por tres (3) días hábiles a fin de que exponga sus alegatos y pruebas de descargo. El Proceso de Asesoría Jurídica dispondrá de un plazo de tres (3) días hábiles para realizar la valoración correspondiente y determinar si procede o no la ejecución, lo cual será notificado por la Proveeduría. El plazo total que se dispone para resolver será de cinco (5) días hábiles.
+Artículo 32.—Requisitos. Toda solicitud de pedido, por concepto de contratación de servicios técnico profesionales, debe cumplir con los requisitos señalados en los artículos 5° y 6° de este Reglamento.
+(Así adicionado mediante sesión N° 3824 del 12 de abril del 2011)

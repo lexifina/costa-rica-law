@@ -1,0 +1,7 @@
+Artículo 61.—Gestión en la ejecución contractual: El INFOCOOP, está obligado a tramitar, en un plazo de treinta (30) días hábiles, cualquier gestión que le formule el contratista en procura de continuar la ejecución contractual.
+En estos casos la petición deberá presentarse ante el fiscalizador encargado de la fiscalización ejecución contractual, el cual realizará el análisis correspondiente en un plazo de diez (10) días hábiles y lo remitirá a la Proveeduría. De considerarlo necesario, la Proveeduría requerirá la colaboración del Proceso de Asesoría Jurídica, instancia que emitirá el respectivo criterio jurídico dentro de los diez (10) días hábiles siguientes.
+Una vez que la Proveeduría cuente con los criterios técnico y jurídico correspondientes, dentro de los cinco (5) días hábiles siguientes elaborará el planteamiento respectivo y lo remitirá al nivel de competencia que resolvió la adjudicación. Dicho Proceso o Macroproceso, contará con cinco (5) días hábiles para dictar el acto.
+La Dirección Ejecutiva, será competente para resolver aquellas gestiones que se formulen sobre contrataciones cuya adjudicación haya sido dictada por la Junta Directiva.
+El silencio de la Administración se entenderá como aceptación de la petición, cuando se trate de una autorización admisible en Derecho y se haya cumplido con todos los requisitos.
+(Artículo del RLCA relacionado: 193)
+(Así corrida su numeración en sesión N° 3824 del 12 de abril del 2011, que lo traspasó del antiguo artículo 55 al 61 actual)
