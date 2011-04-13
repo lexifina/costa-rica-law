@@ -1,0 +1,1 @@
+Artículo 19.—Los vehículos de uso discrecional, no pueden ser utilizados por el servidor asignado, en periodos de incapacidad o vacaciones que excedan de ocho días naturales. Podrán permanecer en custodia del funcionario los días feriados y fines de semana, bajo su responsabilidad.

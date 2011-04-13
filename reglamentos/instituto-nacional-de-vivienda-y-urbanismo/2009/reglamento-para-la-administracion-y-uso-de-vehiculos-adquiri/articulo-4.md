@@ -1,0 +1,1 @@
+Artículo 4º—Todos los vehículos del INVU llevarán un rótulo visible en sus costados con el nombre y logotipo del INVU (artículo 238, Ley de Tránsito por Vías Públicas Terrestres). Se exceptúan de esta disposición aquellos vehículos que se destinen a uso discrecional (artículo 240, Ley de Tránsito por Vías Públicas Terrestres).

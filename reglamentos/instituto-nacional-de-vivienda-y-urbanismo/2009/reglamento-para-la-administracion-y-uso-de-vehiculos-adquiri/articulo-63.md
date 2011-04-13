@@ -1,0 +1,1 @@
+Artículo 63.—Las infracciones al presente Reglamento aparte de las responsabilidades de Orden Civil y Penal que procedan, serán sancionadas según corresponda en cada caso por el Proceso de Recursos Humanos.
