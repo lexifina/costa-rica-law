@@ -1,0 +1,11 @@
+Nº 36422-MP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las potestades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política, y el artículo 25 de la Ley General de la Administración Pública.
+Considerando:
+1º—Que la Junta Directiva del Colegio de Profesionales en Ciencia Económicas de Costa Rica, acordaron desarrollar el: VIII Congreso de Profesionales en Ciencias Económicas: “Rafael Ángel Chinchilla Fallas” “Ética y Valores en una Economía Globalizada”, a celebrarse los días 07, 08, 09 y 10 de junio del 2011.
+2º—Que el Gobierno de Costa Rica, al igual que en años anteriores, tiene interés de apoyar la celebración de este evento en vista de la importancia del mismo con el propósito de contribuir al desarrollo y difusión de las nuevos conocimientos, investigaciones y nuevas prácticas de la gestión de las ciencias económicas, a fin de alcanzar mayor impacto y fomentar la comunicación e integración conjunta y coordinación en acciones e investigación, docencia y vinculación con el entorno social, económico y político nacional e internacional.
+3º—Que es propicia la oportunidad para aunar esfuerzos de diversos entes públicos y privados, nacionales e internacionales en la celebración de un evento más amplio que es de trascendencia en la actualidad para la economías mundiales, en las cuales el desarrollo de las Ciencias Económicas, ciertamente comprometen en forma significativa la estabilidad macroeconómica y que con ello se limitan las posibilidades de atender en forma eficiente y eficaz, las encomiendas básicas de los Gobiernos, para tutelar los intereses de la colectividad e impulsar el crecimiento y desarrollo económico.
+4º—Que la celebración de este evento en San José, ofrece la oportunidad de promover el análisis, reflexión y debate sobre los nuevos enfoques de las ciencias económicas, los negocios y los valores organizacionales, que permitan potenciar las competencias para la transformación cultural de las organizaciones privadas y público. Por tanto,
+Decretan:
+Artículo 1º—Declárase de interés público el VIII Congreso de Profesionales en Ciencias Económicas: “Rafael Ángel Chinchilla Fallas” “Ética y Valores en una Economía Globalizada” a celebrarse los días 7, 8, 9 y 10 de junio del 2011, en San José, Costa Rica.
