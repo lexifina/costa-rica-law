@@ -1,0 +1,1 @@
+Artículo 11.—Del quórum. La Comisión podrá sesionar válidamente con mayoría simple. Igual quórum se observará en casos de urgente con la sola convocatoria veinticuatro horas antes de que se celebre la sesión.
