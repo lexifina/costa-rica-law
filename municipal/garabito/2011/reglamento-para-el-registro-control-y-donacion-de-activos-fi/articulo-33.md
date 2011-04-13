@@ -1,0 +1,1 @@
+Artículo 33.—Altas por sobrantes de inventario. Relación detallada de los activos o elementos sobrantes, indicando la cantidad, clase, especificaciones y valores. Anotación en los registros o cuentas, a efecto de ajustar las cifras con el inventario físico.

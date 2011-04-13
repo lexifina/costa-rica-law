@@ -1,0 +1,1 @@
+Artículo 37.—Recuentos físicos. El Departamento de Proveeduría, cuando lo estime conveniente y sin previo aviso, podrá realizar recuentos físicos en las diferentes dependencias de la Municipalidad de Garabito, con el fin de velar por el buen estado y uso de los activos.

@@ -1,0 +1,1 @@
+Artículo 49.—Baja por pérdidas de activos en poder de funcionarios(as). En caso de bajas de activos con o sin responsabilidad atribuible a los funcionarios(as), deberá incluirse en el expediente administrativo que se levante al efecto, el valor de mercado del activo.

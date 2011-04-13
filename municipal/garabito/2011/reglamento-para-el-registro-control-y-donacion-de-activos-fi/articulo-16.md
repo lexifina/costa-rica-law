@@ -1,0 +1,1 @@
+Artículo 16.—Sistema Informático. El Departamento de Informática, implementará un sistema informático para que el Departamento de Proveeduría pueda efectuar el registro respectivo de los bienes de la Municipalidad de Garabito.

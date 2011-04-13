@@ -1,0 +1,1 @@
+Artículo 30.—En el caso en que la pérdida del activo se de por caso fortuito (incendio, temblor, inundación) la dependencia afectada debe comunicar al Departamento de Proveeduría y Servicios Generales el detalle de los activos afectados, para que se proceda por parte del Departamento de Proveeduría a realizar las acciones y registro correspondientes.
