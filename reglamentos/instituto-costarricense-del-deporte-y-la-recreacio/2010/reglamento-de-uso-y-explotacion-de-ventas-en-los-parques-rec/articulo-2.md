@@ -1,0 +1,1 @@
+Artículo 2º—Los concesionarios, en el caso de ventas de alimentos, deberán contar con los permisos sanitarios del Ministerio de Salud y permisos o patentes Municipales y cumplir con lo que indique para su defecto los reglamentos y normas del Ministerio de Salud. Estos permisos deberán estar al día y los funcionarios del ICODER podrían solicitarlos en cualquier momento.

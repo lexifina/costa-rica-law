@@ -1,0 +1,1 @@
+Artículo 10.—Cada concesionario debe recoger y retirar del parque los desechos derivados de los productos que venden; tales como: cucharas, pajillas, vasos plásticos y otros que se deriven de las ventas antes citadas.

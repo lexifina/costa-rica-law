@@ -1,0 +1,1 @@
+Artículo 3º—Los concesionarios podrán vender únicamente los productos autorizados para venta al público en general; para lo cual entregarán una lista de productos que intentarán vender y esta lista será aprobada por Dirección de Gestión de Instalaciones.
