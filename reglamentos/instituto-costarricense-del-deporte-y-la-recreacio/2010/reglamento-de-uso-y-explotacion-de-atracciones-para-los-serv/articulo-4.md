@@ -1,0 +1,1 @@
+Artículo 4º—El Concesionario será responsable por el orden y el aseo de los sitios aledaños a cada atracción o dispositivos de entretenimiento. Colocando basureros, recogiendo y disponiendo adecuadamente de todos los desechos producidos en relación con el servicio o por los usuarios que utilizan la atracción.

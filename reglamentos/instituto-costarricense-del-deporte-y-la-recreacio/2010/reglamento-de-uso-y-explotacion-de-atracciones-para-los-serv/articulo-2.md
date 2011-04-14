@@ -1,0 +1,1 @@
+Artículo 2º—El concesionario será el responsable del adecuado entrenamiento de cada persona que esté a cargo del mantenimiento de las Atracciones o Dispositivo de Entretenimiento, y del área de operación asignada; como parte esencial de sus responsabilidades y obligaciones.

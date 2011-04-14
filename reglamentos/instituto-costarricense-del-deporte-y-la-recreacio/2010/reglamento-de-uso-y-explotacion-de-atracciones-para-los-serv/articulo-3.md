@@ -1,0 +1,1 @@
+Artículo 3º—El concesionario realizará inspección mensual de escaleras, muelles, rampas, equipos de seguridad, entradas y salidas; equipos específicos de cada atracción, de acuerdo a la atracción que se haya concesionado.
