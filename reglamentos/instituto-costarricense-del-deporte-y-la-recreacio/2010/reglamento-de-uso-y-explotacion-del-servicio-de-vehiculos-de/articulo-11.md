@@ -1,0 +1,2 @@
+Artículo 11.—El concesionario deberá contar con una Póliza de Responsabilidad Civil vigente y al día, y debe presentarla cada 6 meses parara que conste en el expediente administrativo; asimismo podrá ser solicitada en cualquier momento por los funcionarios del ICODER.
+Reglamento aprobado en la sesión ordinaria Nº 702-2010 del 28 de abril del 2010 por el Consejo Nacional del Deporte y la Recreación.

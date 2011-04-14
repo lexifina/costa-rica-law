@@ -1,0 +1,1 @@
+Artículo 4º—El concesionario se reservará el derecho a denegar la participación a cualquier persona que, en opinión del instructor / guía, no es capaz o no puede montar con seguridad un Vehículo Segway. De la misma manera no se permitirá ningún usuario que presente síntomas de haber ingerido bebidas alcohólicas o consumido drogas.

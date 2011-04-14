@@ -1,0 +1,1 @@
+Artículo 10.—El concesionario será el responsable de almacenar su propio equipo y una vez finalizada el horario de uso, deberá trasladarlo a sus propias instalaciones. El ICODER no facilitará ninguna instalación para este fin.

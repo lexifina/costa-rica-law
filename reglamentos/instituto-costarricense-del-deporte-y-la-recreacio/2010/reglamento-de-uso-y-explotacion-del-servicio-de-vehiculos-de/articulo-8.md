@@ -1,0 +1,1 @@
+Artículo 8º—Todos los usuarios del servicio están obligados a realizar entrenamiento supervisado por un instructor / guía y estarán obligados a llevar un casco de seguridad; facilitado por el concesionario.

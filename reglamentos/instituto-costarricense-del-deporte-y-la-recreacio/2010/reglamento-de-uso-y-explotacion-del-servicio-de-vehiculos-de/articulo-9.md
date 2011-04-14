@@ -1,0 +1,1 @@
+Artículo 9º—El concesionario deberá colocar este reglamento en un lugar visible; para lo cual podrá colocar un rotulo con dimensiones no superiores a un metro por un metro, con el logo del ICODER con un tamaño mínimo del 20% de la superficie del rótulo.

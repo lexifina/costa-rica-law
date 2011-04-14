@@ -1,0 +1,1 @@
+Artículo 2º—El concesionario se reserva el derecho de cancelar cualquier viaje debido al clima u otras circunstancias imprevistas. De no realizarse el viaje, se le hará un reembolso completo al usuario.
