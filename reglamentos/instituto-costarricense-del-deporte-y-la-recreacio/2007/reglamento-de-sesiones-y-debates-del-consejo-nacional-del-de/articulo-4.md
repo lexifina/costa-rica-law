@@ -5,4 +5,4 @@ c) Fijar directrices generales e impartir instrucciones en cuanto a los aspectos
 d) Convocar a sesiones extraordinarias.
 e) Confeccionar el orden del día, teniendo en cuenta, en su caso, las peticiones de los demás miembros formuladas al menos con un día de antelación.
 f) Resolver cualquier asunto en caso de empate, para cuyo caso tendrá voto de calidad.
-g) Comunicar las resoluciones internas y externas del Consejo, cuando las mismas no sean de delegación al Secretario.
+g) (Derogado este inciso en sesión N° 754 del 14 de abril de 2011)

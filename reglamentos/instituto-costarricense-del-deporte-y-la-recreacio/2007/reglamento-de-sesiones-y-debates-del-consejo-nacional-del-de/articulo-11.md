@@ -1,7 +1,8 @@
 Artículo 11.—Sesiones extraordinarias: Las sesiones extraordinarias se regirán por las siguientes reglas:
-a) Cuando el Presidente del Consejo o la mayoría de sus miembros en un acuerdo específico lo consideren conveniente, por razones de urgencia, de necesidad institucional, o para tratar temas específicos que no sea posible desarrollar en una sesión ordinaria, se convocará a sesión extraordinaria.
-b) Las sesiones extraordinarias podrán celebrarse en cualquier parte del país.
-c) Para efectuar sesión extraordinaria, será necesaria una convocatoria por escrito con una antelación mínima de 24 horas, a la que se adjuntará copia del orden del día, salvo en los casos de urgencia. Si la realización de sesión extraordinaria ha sido acordada por el propio Consejo, la convocatoria se enviará únicamente a aquellos miembros que no hubiesen estado presentes en la sesión correspondiente.
-d) No se podrá realizar más de una sesión ordinaria el mismo día, ni celebrar sesión ordinaria y sesión extraordinaria el mismo día.
-e) En las sesiones extraordinarias solo se podrán conocer asuntos ordinarios cuando exista necesidad de tomar un acuerdo y no pueda esperarse la realización de la siguiente sesión ordinaria.
+a) Cuando sea convocada al efecto, por escrito por el Presidente o el Vicepresidente, en caso de ausencia del primero.
+b) Estando reunida la totalidad de los miembros, acuerden por unanimidad efectuar sesión extraordinaria y conocer determinados asuntos.
+c) Por motivos de urgencia o necesidad apremiante, el presidente o el vicepresidente, requiera sesionar.
+d) Las sesiones extraordinarias se celebrarán en la Sala de Sesiones del Consejo Nacional del Deporte y la Recreación, salvo que se acuerde celebrarlas en otro lugar.
+e) La convocatoria a sesiones extraordinarias deberá realizarse con una antelación mínima de veinticuatro horas (24), para lo cual se adjuntará copia del orden del día, salvo en el caso del inciso b) y c) anteriores.
 f) En las sesiones extraordinarias solo se podrán conocer los asuntos contenidos en la convocatoria. Para conocer de otros asuntos, deberá contarse con asistencia total de los integrantes del Consejo.
+(Así reformado en sesión N° 754 del 14 de abril de 2011)
