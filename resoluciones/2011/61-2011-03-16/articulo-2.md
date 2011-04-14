@@ -1,0 +1,1 @@
+II.—Revocar parcialmente la resolución del Consejo de la SUTEL Nº RCS-615-2009 del 18 de diciembre del 2009, publicada en La Gaceta Nº 31 del 15 de febrero 2010, únicamente en cuanto a la aplicación de la banda horaria para los servicios de telefonía fija y móvil, tal y como se definirá en el Por Tanto III siguiente.
