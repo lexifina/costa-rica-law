@@ -62,3 +62,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 47 | 2005-04-22 | Decreto Ejecutivo 32352 (2005-04-22) |
 | 48 | 2006-08-17 | Decreto Ejecutivo 33325 (2006-08-17) |
 | 49 | 2010-01-26 | Decreto Ejecutivo 35794 (2010-01-26) |
+| 50 | 2011-04-15 | SINALEVI (sin norma nombrada) |
