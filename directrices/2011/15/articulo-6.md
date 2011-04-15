@@ -1,0 +1,1 @@
+Artículo 6º—Para dar fiel cumplimiento a lo establecido en los artículos del 1º al 5°, el plazo comenzará a regir el día siguiente de la publicación de esta directriz y al término del cual deberán rendir un informe al Ministro Rector sobre las acciones tomadas, a efecto de que él informe a la Presidenta de la República.
