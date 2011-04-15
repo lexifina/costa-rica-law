@@ -1,1 +1,0 @@
-Artículo 15.—Cuando la beca provenga de un organismo nacional o internacional, o de otro gobierno, la Municipalidad podrá complementar al trabajador el beneficio que fuere necesario para realizar los estudios, siempre que el trabajador así lo solicite y justifique.

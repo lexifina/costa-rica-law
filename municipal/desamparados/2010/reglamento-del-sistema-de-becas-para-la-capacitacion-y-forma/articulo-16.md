@@ -1,1 +1,0 @@
-Artículo 16.—El trabajador que no obtenga el promedio para la aprobación de la materia, según plan de capacitación o de formación, o bien que no alcance cumplir con el compromiso de graduación según su plan de estudios, deberá reconocerle a la Municipalidad el cien por ciento del monto monetario y de las facilidades concedidas

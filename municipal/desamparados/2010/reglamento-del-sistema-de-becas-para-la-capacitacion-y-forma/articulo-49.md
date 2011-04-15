@@ -1,1 +1,0 @@
-Artículo 49.—En caso de incumplimiento, previo dictamen que al respecto dará el Departamento de Recursos Humano, el órgano que otorgó el beneficio determinará si existe responsabilidad y si ésta es parcial o total, recomendando a la Alcaldía las medidas pertinentes en cada caso.

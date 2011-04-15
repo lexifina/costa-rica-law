@@ -1,1 +1,0 @@
-Artículo 34.—La Alcaldía aprobará la solicitud de beca recomendada y trasladará el expediente del solicitante al Departamento de Recursos Humanos, para la firma de un contrato de estudios por suscribirse entre el trabajador y la Alcaldía, previo visto bueno del Departamento Legal de la Municipalidad.

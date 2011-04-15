@@ -1,1 +1,0 @@
-Artículo 3º—Se entiende por capacitación, a las actividades formativas, de corto plazo, que permitan al trabajador lograr un mejoramiento en el conocimiento, que se obtiene por medio de su participación en cursos, seminarios y talleres, foros y congresos.

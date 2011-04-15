@@ -1,1 +1,0 @@
-Artículo 4º—Se entiende por formación, a las acciones formativas, de mediano plazo, que brinda el sistema educativo formal para-universitario y universitario, que conducen a la obtención de diplomado, bachillerato y licenciatura.

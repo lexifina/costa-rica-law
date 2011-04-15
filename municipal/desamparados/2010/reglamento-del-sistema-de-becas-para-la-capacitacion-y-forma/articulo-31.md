@@ -1,1 +1,0 @@
-Artículo 31.—El trabajador beneficiario de una beca, para todos los efectos, se le considerará en el ejercicio de sus funciones durante la realización de sus estudios, y deberá cumplir a cabalidad con las obligaciones estipuladas en este Reglamento.

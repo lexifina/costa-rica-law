@@ -1,1 +1,0 @@
-Artículo 6º—Se entiende por apoyo financiero y económico, al estipendio monetario consecutivo que permite el pago de la matrícula y créditos por materia a cursar, cancelación de derechos de grado o tesis, cancelación de costos de participación en cursos, seminarios, talleres, foros y congresos.
