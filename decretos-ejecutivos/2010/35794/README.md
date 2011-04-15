@@ -14,3 +14,4 @@ Derogatoria del artículo 25 del decreto ejecutivo N° 14082-H, Reglamento a la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-04 | la propia norma |
+| 2 | 2011-04-15 | SINALEVI (sin norma nombrada) |
