@@ -1,6 +1,3 @@
-Artículo 33.- El reglamento respectivo determinará la organización y
-funcionamiento del Registro Aeronáutico Costarricense, que cobrará los
-derechos de inscripción correspondientes, los cuales se fijan entre
-quince y un mil quinientos colones.
-NOTA: Original 28: corrida su numeración a la actual de conformidad
-con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
+Artículo 33.- La organización y el funcionamiento del Registro Nacional de Aeronaves y del Registro Aeronáutico Administrativo serán determinados vía reglamentaria por cada una de las dependencias responsables. El monto de los aranceles registrales, cobrados por el Registro Nacional de Aeronaves y el Registro Aeronáutico Administrativo, atenderá lo dispuesto en la Ley de aranceles del Registro Público, N.º 4564, de 29 de abril de 1970, y sus reformas.
+(Así reformado por el artículo 2° de la ley N° 8766 del 01 de setiembre de 2009)
+NOTA: Original 28: corrida su numeración a la actual de conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
