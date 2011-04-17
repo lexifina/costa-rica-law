@@ -1,2 +1,1 @@
-Artículo 14.- La Junta podrá hacer compras y contratos directos,nombrar personal especial y pagar labores extraordinarias, en casos necesarios o urgentes, con la sola autorización de la Contraloría General de la República.
-(Así reformado por el artículo 2° de la ley N° 5950 del 27 de octubre de 1976)
+Artículo 14.- (Derogado por el artículo 56° de la ley N° 8823 del 5 de mayo de 2010, “Reforma varias leyes sobre la participación de la Contraloría General de la República para la simplificación y el Fortalecimiento de la Gestión Pública”)
