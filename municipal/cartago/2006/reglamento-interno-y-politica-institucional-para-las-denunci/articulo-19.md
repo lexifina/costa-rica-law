@@ -1,0 +1,1 @@
+Artículo 19.—Recepción de la denuncia: La máxima autoridad de la instancia pública, en este caso Alcalde o Alcaldesa Municipal, definirá el organismo responsable de recibir la denuncia. Una vez asignada la denuncia, dicha autoridad deberá proceder de conformidad, sin recurrir a la ratificación de la denuncia, ni a la investigación preliminar de los hechos.

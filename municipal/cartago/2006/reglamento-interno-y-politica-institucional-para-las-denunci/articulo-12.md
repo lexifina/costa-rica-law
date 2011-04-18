@@ -1,0 +1,7 @@
+CAPÍTULO II
+De la integración, de la comisión, estudio
+e investigación de las denuncias
+Artículo 12.—Conformación de la Comisión: De conformidad con el inciso 2) del artículo 5º de la Ley 8805 el conocimiento de las denuncias y su respectivo tramite será realizado por medio de comisiones investigadoras, consecuentemente existirá una Comisión de Estudio e Investigación de Denuncias sobre Hostigamiento Sexual, conforme a la presente reglamentación, le corresponderá el conocimiento de las denuncias y su respetivo trámite, la misma será integrada preferiblemente por tres personas, en las que estén representados ambos sexos, con conocimientos en materia de hostigamiento sexual y régimen disciplinario.
+Integrada por un represente del Departamento de Recursos Humanos, una abogada o (o) municipal y representantes de los funcionarios y las funcionarias. El representante del Departamento de Recursos Humanos lo propondrá la Alcaldía Municipal, la abogada o abogado lo propondrá el Gestor del Área Jurídica y el representante de los funcionarios y /o funcionarias lo propondrá el Sindicato de Trabajadores Municipales.
+Todos deberán ser nombrados por un período de un año, prorrogables hasta un máximo de dos períodos consecutivos iguales.
+Las personas miembros deberán tener formación sobre el problema de acoso sexual y recibir capacitación especializada, por lo cual corresponderá al Departamento de Recursos Humanos buscar y preparar seminarios y talleres que permitan esta capacitación constante.

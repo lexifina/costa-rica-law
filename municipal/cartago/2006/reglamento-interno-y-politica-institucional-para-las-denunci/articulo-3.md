@@ -1,0 +1,1 @@
+Artículo 3º—Ámbitos de aplicación: La presente reglamentación se aplicará en relaciones de jerarquía o autoridad; relaciones entre personas del mismo nivel jerárquico, entre personas de un nivel jerárquico inferior a uno superior y relaciones entre personas servidoras y usuarias en el ámbito de trabajo.

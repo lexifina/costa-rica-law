@@ -1,0 +1,2 @@
+Artículo 27.—Término de emplazamiento al denunciado: Trascurrido el plazo del artículo anterior, la Comisión de estudio e Investigación, dará traslado de la denuncia a la persona denunciada, concediéndole un plazo de ocho días hábiles para que se refiera a todo y cada uno de los hechos denunciados y ofrezca prueba de descargo.
+En el caso de que el denunciado o denunciada no ejerza la defensa, el proceso continuará hasta concluirse con la resolución final.

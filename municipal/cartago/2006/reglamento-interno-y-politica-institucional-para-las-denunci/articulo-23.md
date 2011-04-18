@@ -1,0 +1,1 @@
+Artículo 23.—Comparecencia de las partes: Cumplido el plazo para contestar la demanda, la persona juzgadora convocará a las partes para la evacuación de la prueba. Ante la ausencia de prueba directa, deberá recurrir a la prueba indiciaria.

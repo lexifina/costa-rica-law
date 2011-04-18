@@ -1,0 +1,1 @@
+Artículo 33.—Debido proceso: Durante el procedimiento se garantizará el debido proceso y se guardará total confidencialidad en su trámite, de conformidad con la Convención Colectiva de Trabajo, el artículo 150 del Código Municipal y el con el Reglamento Interno de la Municipalidad de Cartago.
