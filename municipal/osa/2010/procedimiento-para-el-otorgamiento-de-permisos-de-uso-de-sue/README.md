@@ -14,3 +14,4 @@ Procedimiento para el otorgamiento de permisos de uso de suelo en la Zona Marít
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-05 | la propia norma |
+| 2 | 2011-04-18 | Reglamento municipal 9 (2011-04-18) |
