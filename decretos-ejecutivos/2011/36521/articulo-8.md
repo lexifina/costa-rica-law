@@ -1,0 +1,1 @@
+Artículo 8º—Los productores o representantes de casas comerciales de agroquímicos, Cuando se justifique, a solicitud de los productores de cítricos, el SFE podrá autorizar la importación de agroquímicos específicos para el manejo del vector.

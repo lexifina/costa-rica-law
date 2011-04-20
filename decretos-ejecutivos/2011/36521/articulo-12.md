@@ -1,0 +1,1 @@
+Artículo 12.—Con el fin de implementar Buenas Prácticas Agrícolas (BPA) en el control de la plaga, el SFE promoverá una estrategia nacional de Control Biológico de Diaphorina citri en coordinación con la empresa privada. El SFE autorizará la importación de enemigos naturales (controladores biológicos) necesarios para llevar a cabo esta estrategia.

@@ -1,0 +1,1 @@
+Artículo 4º—Los propietarios u ocupantes de áreas donde se detecten la plaga, deberán colaborar con los funcionarios del Servicio Fitosanitario del Estado o a quien éste designe, para la aplicación de las medidas de control recomendadas oficialmente.

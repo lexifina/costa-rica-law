@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión de Emergencias Fitosanitarias trabajará con el Manual de Procedimientos para el uso de Recursos para la atención de la Emergencia, el cual se encuentra disponible en la página web del Servicio Fitosanitario del Estado, www.sfe.go.cr., y efectuará la liquidación correspondiente de los gastos realizados conforme a lo dispuesto en la legislación vigente.
