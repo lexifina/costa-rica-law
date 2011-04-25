@@ -1,4 +1,6 @@
+(Derogado)
 Nº 35379-MOPT
+(Este decreto fue derogado por el artículo 11 “Restricción Vehicular mediante el Esquema Hora/Placa en el Centro de San José", aprobado mediante decreto ejecutivo N° 36547 del 25 de abril de 2011)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE OBRAS PÚBLICAS Y TRANSPORTES
 En el ejercicio de las facultades que les confieren los numerales 22; 140, incisos 3) y 18), y 146 de la Constitución Política; la Ley de Creación del Ministerio de Obras Públicas y Transportes, Nº 4786 del 5 de julio de 1971 y sus reformas; la Ley de Administración Vial, Nº 6324 del 24 de mayo de 1979 y sus reformas; la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 del 13 de abril de 1993 y sus reformas; y la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y sus reformas.
