@@ -14,3 +14,4 @@ Reforma Integral Políticas sobre el Manejo de los Depósitos de Garantía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-03 | la propia norma |
+| 2 | 2011-04-25 | Acuerdo 120 (2011-04-25) |
