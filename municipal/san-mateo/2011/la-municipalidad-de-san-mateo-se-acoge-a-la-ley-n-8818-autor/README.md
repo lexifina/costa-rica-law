@@ -14,3 +14,4 @@ La Municipalidad de San Mateo se acoge a la ley Nº 8818 "Autorización para que
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-25 | la propia norma |
+| 2 | 2011-04-25 | Acuerdo municipal 9 (2011-04-13) |
