@@ -1,1 +1,0 @@
-Artículo 3º—En todo lo demás, se mantienen vigentes e incólumes las disposiciones del Decreto Ejecutivo N° 35379-MOPT del 13 de julio de 2009, publicado al Alcance N° 28 a La Gaceta N° 139 del 20 de julio de 2009.
