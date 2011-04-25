@@ -16,3 +16,4 @@ Políticas sobre el Manejo de los Depósitos de Garantía
 | 1 | 2008-12-12 | la propia norma |
 | 2 | 2009-02-16 | Reglamento 2980 (2009-02-16) |
 | 3 | 2010-11-01 | Reglamento 3117 (2010-11-01) |
+| 4 | 2011-04-25 | Acuerdo 120 (2011-04-25) |
