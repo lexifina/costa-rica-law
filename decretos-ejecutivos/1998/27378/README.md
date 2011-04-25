@@ -18,3 +18,4 @@ Reglamento sobre Rellenos Sanitarios
 | 3 | 2005-08-12 | Decreto Ejecutivo 32608 (2005-08-12) |
 | 4 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
 | 5 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
+| 6 | 2011-04-25 | Decreto Ejecutivo 36590 (2011-04-25) |
