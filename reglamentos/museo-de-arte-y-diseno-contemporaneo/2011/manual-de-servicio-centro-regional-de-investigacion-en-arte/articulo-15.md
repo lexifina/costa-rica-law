@@ -1,0 +1,6 @@
+Edificios y espacios del CRDIA
+Artículo 15.—Espacios de servicios. El Centro Regional de Investigación del Arte cuenta, de acuerdo con su tamaño y el espacio disponible, con diferentes áreas destinadas a usos específicos:
+1) Espacios para usuarios: Espacio de lectura, de estudio, de cómputo, de consulta de catálogos, libros, brochures y otros.
+2) Espacios especiales: Videoteca y sala de proyección de audiovisuales para consultar los fondos audiovisuales del Centro Regional de Investigación del Arte, que podrá facilitarse a instituciones o grupos públicos o privados, con el fin de realizar actividades acordes con el Museo de Arte y Diseño Contemporáneos o actividades culturales, como charlas, conferencias, exposiciones, presentaciones de libros o actividades de índole artístico-cultural acordes con los objetivos del Ministerio de Cultura y Juventud.
+3) Espacios para colecciones: Son los destinados a almacenar el fondo de cada biblioteca; en éstos no se podrá colocar ningún tipo de objetos o equipos que puedan dañar las colecciones.
+4) Espacios restringidos: Son aquellos a los que solamente pueden ingresar las personas con autorización expresa del responsable del Centro Regional de Investigación del Arte, como el Departamento de Educación.

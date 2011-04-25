@@ -1,0 +1,2 @@
+Desarrollo y gestión de las colecciones
+Artículo 8º—Colecciones. El contenido de las colecciones del Museo de Arte y Diseño Contemporáneos representan los temas que el Museo abarca desde su discurso, según su Ley de Creación Nº 7758. Esta colección contiene libros, catálogos y brochures de la colección permanente del museo y de las exposiciones de arte contemporáneo centroamericano, bienales, información de curaduría, arte y nuevos medios, diseño, arquitectura y arte contemporáneo a nivel global.

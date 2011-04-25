@@ -1,0 +1,1 @@
+Artículo 2º—Ubicación. El Centro Regional de Investigación de Arte está ubicado en el pasillo Este del Centro Nacional de Cultura (CENAC) y albergará el Departamento de Educación, la Videoteca y la sala de proyección, la Biblioteca y los archivos de artistas y diseñadores del Museo de Arte y Diseño Contemporáneos.

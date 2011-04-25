@@ -1,0 +1,1 @@
+Artículo 10.—Evaluación e inventario. Es responsabilidad del Departamento de Educación llevar un inventario de todo el material de consulta que se dispone en el Centro Regional de Investigación del Arte.
