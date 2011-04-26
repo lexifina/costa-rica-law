@@ -1,0 +1,1 @@
+Artículo 3º—Se faculta a FONAFIFO a establecer montos diferenciados a los señalados en el artículo 2, de conformidad con acuerdos, convenios o contratos con entidades donantes o socios que reconozcan montos mayores a los establecidos para los diferentes servicios ambientales.
