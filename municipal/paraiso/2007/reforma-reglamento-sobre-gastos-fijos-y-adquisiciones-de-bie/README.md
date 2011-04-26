@@ -15,3 +15,4 @@ Reforma Reglamento sobre Gastos Fijos y Adquisiciones de Bienes y Servicios de C
 | --- | --- | --- |
 | 1 | 2007-02-15 | la propia norma |
 | 2 | 2008-10-07 | Reglamento municipal 197 (2008-10-07) |
+| 3 | 2011-04-26 | Reglamento municipal 76 (2011-04-26) |
