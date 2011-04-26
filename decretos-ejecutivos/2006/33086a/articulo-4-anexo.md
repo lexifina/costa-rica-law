@@ -14,8 +14,6 @@ Correos de Costa Rica SA
 Fideicomiso de Vivienda Correos de Costa Rica-Banco de Costa Rica
 Empresa de Servicios Públicos de Heredia
 Fideicomiso Empresa Hidroeléctrica los Negros S.A
-Escuela Centroamericana de Ganadería
-Fideicomiso 486 ECAG-BNCR
 Instituto Costarricense de Electricidad
 Fideicomiso de Titularización y Desarrollo de Infraestructura Eléctrica P.H. Peñas Blancas
 Fideicomiso de Titularización P.H. Cariblanco
@@ -27,8 +25,7 @@ Instituto Mixto de Ayuda Social
 Fideicomiso 32-04 BANCREDITO-IMAS-BANACIO/73-2002
 Instituto Nacional de Fomento Cooperativo
 Fideicomiso INFOCOOP-UNACOOP/Bco. Popular para desarrollo y reactivación
-Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica
-Fondo de Desarrollo de la Provincia de Limón
+Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica Fondo de Desarrollo de la Provincia de Limón
 Fideicomiso Fondo de Desarrollo de la Provincia de Limón-BNCR
 Ministerio de Agricultura y Ganadería
 Fideicomiso 05-99-MAG-PIPA Bancrédito FINADE
@@ -64,5 +61,8 @@ Fideicomiso 02-99 MTSS-PRONAMYPE Banco Popular
 Municipalidad de San José
 Fideicomiso Municipalidad de San José INS- BANCREDITO
 Poder Judicial
-Fideicomiso de Contingencia Corte Suprema de Justicia-Banco Nacional de Costa Rica. Universidad de Costa Rica
+Fideicomiso de Contingencia Corte Suprema de Justicia-Banco Nacional de Costa Rica.
+Universidad de Costa Rica
 Fideicomiso de Titularización UCR –Banco Nacional de Costa Rica
+Universidad Técnica Nacional
+Fideicomiso 486 UTN-BNCR
