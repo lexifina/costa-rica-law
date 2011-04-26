@@ -1,1 +1,0 @@
-Artículo 12.—La oficina encargada del cobro deberá rendir informes trimestrales al Alcalde Municipal, sobre el estado de la cuentas morosas y sobre las acciones individuales de cada gestión a esa fecha.
