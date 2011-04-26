@@ -1,2 +1,2 @@
-Artículo 2º: Autorícese al Alcalde Municipal, girar sin que medie acuerdo del Concejo Municipal, todos los gastos fijos de la Municipalidad y adquisición de bienes y servicios hasta por un monto de ¢1,000.000.00.
-(Así reformado en sesión N° 197 del 7 de octubre de 2008)
+Artículo 2º—Autorícese al Alcalde Municipal, girar sin que medie acuerdo del Concejo Municipal, todos los gastos fijos de la Municipalidad y adquisición de bienes y servicios hasta por un monto del 2.5% del total del presupuesto según los parámetros establecidos por la Contraloría General de la República y la Ley y Reglamento de Contratación Administrativa.
+(Así reformado mediante sesión N° 76 del 26 de abril del 2011)
