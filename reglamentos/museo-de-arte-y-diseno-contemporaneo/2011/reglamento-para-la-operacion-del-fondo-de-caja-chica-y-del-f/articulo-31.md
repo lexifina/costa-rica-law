@@ -1,0 +1,1 @@
+Artículo 31.—Nombramiento. Corresponde a la Dirección y /o Subdirección, determinar los funcionarios designados como responsables directos de la custodia y operación de los fondos fijos de caja chica y de los fondos fijos de boletería. Esta designación deberá ser comunicada a la Junta Administrativa y a la Tesorería Nacional, para su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 10.—Contenido presupuestario. Todas las compras o pagos que se realicen por medio del fondo fijo de caja chica deberán contar con el debido contenido presupuestario, de acuerdo con las partidas autorizadas por la Tesorería Nacional en el Clasificador por Objeto del Gasto del Sector Público para Compras por fondo fijo de caja chica.

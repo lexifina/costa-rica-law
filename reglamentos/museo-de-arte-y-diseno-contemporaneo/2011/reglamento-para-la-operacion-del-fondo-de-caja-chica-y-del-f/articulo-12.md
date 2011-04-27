@@ -1,0 +1,1 @@
+Artículo 12.—Manual institucional de operación. Es responsabilidad de la Dirección y/o Subdirección, contar con un manual de operación actualizado, en el cual se detallen de forma clara y precisa las rutinas de trabajo relacionadas con la operación del fondo fijo de caja chica y del fondo fijo de boletería, y los responsables de ejecutarlas.

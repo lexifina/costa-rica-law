@@ -1,0 +1,1 @@
+Artículo 9º—Prohibición. Bajo ninguna circunstancia podrá encomendarse la administración temporal o permanente de un fondo fijo de caja chica o de un fondo fijo de boletería a una persona que no sea funcionario público del Museo de Arte y Diseño Contemporáneo.

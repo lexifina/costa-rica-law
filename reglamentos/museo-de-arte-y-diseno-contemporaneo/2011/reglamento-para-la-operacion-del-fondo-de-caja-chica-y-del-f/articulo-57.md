@@ -1,0 +1,1 @@
+Artículo 57.—Modificaciones. Este Reglamento podrá ser modificado únicamente por acuerdo firme de la Junta Administrativa del Museo de Arte y Diseño Contemporáneo y deberá ser previamente avalado por la Tesorería Nacional.

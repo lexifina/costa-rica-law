@@ -1,0 +1,1 @@
+Artículo 16.—Liquidación mensual. El fondo fijo de caja chica de cada mes deberá liquidarse durante los primeros cinco días del mes siguiente. Lo anterior se hará todos los meses, aunque no se haya gastado el 70% del monto total asignado.

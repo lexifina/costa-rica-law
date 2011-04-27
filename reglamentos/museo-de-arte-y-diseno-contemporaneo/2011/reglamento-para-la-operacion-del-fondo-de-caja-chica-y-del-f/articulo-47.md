@@ -1,0 +1,1 @@
+Artículo 47.—Derecho de verificación. Todo arqueo del fondo fijo de caja chica y/o del fondo fijo de boletería, se realizará en presencia de la persona responsable del fondo. Esta, tendrá el derecho a pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.
