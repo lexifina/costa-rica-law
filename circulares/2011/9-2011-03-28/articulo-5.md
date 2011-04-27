@@ -1,0 +1,1 @@
+5º—La Dirección Jurídica del Registro Nacional, será la encargada de remitir a la Junta Administrativa del Registro Nacional la solicitud de inscripción de los signos distintivos que se desean inscribir, para que dicho Órgano Colegiado, proceda a emitir el acuerdo correspondiente.

@@ -1,0 +1,1 @@
+6º—La Junta Administrativa del Registro Nacional autorizará al Ministro de Justicia y Paz, para que en su condición de Presidente de ese Órgano, firme la solicitud respectiva y autorice mediante poder especial, a la Dirección Jurídica, mediante los Asesores que se designen, para continuar con el trámite hasta su finalización.

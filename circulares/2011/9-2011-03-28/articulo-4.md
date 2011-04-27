@@ -1,0 +1,1 @@
+4º—La Dirección Jurídica del Registro Nacional, coordinará las reuniones de trabajo para la elaboración de la solicitud y la revisión de los documentos previos a su presentación, entre la Dirección o Unidad correspondiente y el Registro de la Propiedad Industrial (quienes a su vez nombrarán por su orden a un registrador y a un asesor legal para que los represente).

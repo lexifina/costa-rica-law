@@ -1,0 +1,1 @@
+7º—La Presidencia de la Junta Administrativa remitirá mediante oficio a la Dirección Jurídica del Registro Nacional, la solicitud de inscripción y demás documentos, con el fin que sean presentados al Registro de la Propiedad Industrial.

@@ -1,0 +1,1 @@
+8º—La Dirección Jurídica del Registro Nacional, deberá proceder a realizar las gestiones correspondientes para la debida tramitación del edito de ley, con el fin de que éste sea publicado en el Diario Oficial La Gaceta, por tres veces consecutivas.
