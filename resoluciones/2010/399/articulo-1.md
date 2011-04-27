@@ -2,6 +2,7 @@ DIRECCIÓN GENERAL DE ADUANAS
 PROCEDIMIENTOS ADUANEROS DEL RÉGIMEN
 DE PERFECCIONAMIENTO ACTIVO
 (Nota de Sinalevi: Mediante resolución RES-DGA-061-2011 del 3 de febrero del 2011, se indica rectificar, el código de la declaración aduanera, modalidad 01-44, denominado “Salida de materia prima e insumos de PA utilizados en producción”, para que se lea de la siguiente manera:Declaración Aduanera, modalidad 11-44, denominado “Salida de materia prima e insumos de PA utilizados en producción”. No obstante; mediante información suministrada por la Dirección General de Adunas dicho código no se encuentra contemplado en esta resolución)
+(Nota de Sinalevi: Mediante resolución RES-DGA-091 del 27 de abril de 2011, se indica modificar el mensaje “FORMATO DE MENSAJE DECLARACIÓN ÚNICA ADUANERA Versión 3.4.4”, eliminando el campo “C70 MON_PRENDA” y ampliando el tamaño al campo “G10 NUM_LINEADOC” de 3 dígitos a 8 dígitos". No obstante, mediante información suministrada por la Dirección General de Adunas, dicho mensaje no se encuentra comtemplado en esta resolución)
 Res-DGA-399-2010.—San José, a las quince horas del día diecisiete de diciembre de dos mil diez.
 Considerando
 I.—Que el artículo 6º de la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995 publicada en La Gaceta Nº 212 del 8 de noviembre de 1995 y sus reformas, establece que uno de los fines del régimen jurídico es facilitar y agilizar las operaciones de comercio exterior.
