@@ -15,7 +15,7 @@ vii. Cualquier otra entidad sujeta a la supervisión de la Superintendencia Gene
 (*) (Así reformado el numeral anterior en sesión N° 5067 del 21 de febrero de 2001)
 2- Los puestos de bolsa que utilicen mecanismos de administración de carteras de títulos, tales como los denominados OPAB, CAV, OMED o similares.
 B. Operaciones sujetas al requisito de encaje
-(*) Estarán sujetas al requisito de encaje mínimo legal el saldo de todos aquellos depósitos y obligaciones, en moneda nacional, en unidades de desarrollo y en moneda extranjera, que constituyan las entidades mencionadas en el literal A de este capítulo. Lo anterior comprende los siguientes instrumentos o similares:
+(*) Estarán sujetas al requisito de encaje mínimo legal el saldo de todos aquellos depósitos y obligaciones, en moneda nacional, en unidades de desarrollo y en moneda extranjera, que constituyan las entidades mencionadas en el literal A de este Capítulo. Lo anterior comprende los siguientes instrumentos o similares:
 (*) (Así reformado el párrafo anterior en sesión N° 5276 del 26 de abril de 2006)
 1- Los depósitos y obligaciones de exigibilidad inmediata o a la vista, incluidos los depósitos en cuenta corriente, los constituidos por medio del sistema de ahorro por libreta, los cheques certificados, los cheques de gerencia, los depósitos y obligaciones a plazo vencido, los pasivos originados en operaciones de venta de títulos con pacto de retrocompra a la vista, las obligaciones por cheques presentados al cobro por otras entidades por medio de la Cámara de Compensación, así como cualesquiera otra obligación de exigibilidad inmediata.
 2- Los depósitos y obligaciones exigibles a plazo, incluidos aquellos originados en operaciones de venta de títulos con pacto de retrocompra a plazo.
@@ -23,18 +23,39 @@ B. Operaciones sujetas al requisito de encaje
 i. Las comisiones de confianza, los fideicomisos y cualquier contrato de administración de cartera constituido por los intermediarios financieros, mediante los que se reciben recursos del público en forma habitual y abierta.
 ii. Los fideicomisos y contratos de administración que emiten algún tipo de pasivo, mediante los cuales los intermediarios obtienen recursos del público, empleando como respaldo el patrimonio del fideicomiso (letras de cambio, hipotecas, prendas, cuentas por cobrar u otros).
 iii. Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV, OMED o similares.
-(*) C.—Tasas de Encaje
-(*) 1. El 15,0% sobre la sumatoria de los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, así como sobre la sumatoria de las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración.
-(Así reformado el numeral anterior en sesión N° 5276 del 26 de abril de 2006)
-2. El 15,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
-Fecha | Tasa
-A partir del: |
-16 de julio del 2005 | 13,5%
-16 de agosto del 2005 | 15,0%
-(*) (Así reformado el literal anterior en sesión N° 5235 del 15 de junio de 2005)
+(*)4. Las operaciones constituidas por intermediarios financieros sujetos a encaje mínimo legal con agentes externos originadas en:
+i. Endeudamiento externo de corto plazo, entendido el corto plazo como aquellas operaciones constituidas a 360 días o menos.
+ii. Líneas de crédito de carácter revolutivo, independientemente del plazo de constitución.
+iii. Las operaciones originadas en empréstitos externos, tanto en moneda local como en moneda extranjera, constituidas a largo plazo y que contengan cláusulas de exigibilidad de pago aplicables en los primeros 360 días de vigencia del crédito. En estos casos el requerimiento de encaje mínimo legal será aplicado únicamente en los primeros 360 días de vigencia de dichas operaciones.
+iv. Las operaciones originadas en empréstitos externos, tanto en moneda local como en moneda extranjera, constituidas a largo plazo y que contengan cláusulas que permitan el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito. En estos casos el requerimiento de encaje mínimo legal será aplicado únicamente en los primeros 360 días de vigencia de dichas operaciones.
+v. Cualquier otra operación cuya realidad económica sea semejante a un endeudamiento de corto plazo.
+En este caso, si la Superintendencia General de Entidades Financieras o el Banco Central de Costa Rica determinaran que una figura cumple con las características indicadas y debe ser sujeta a control monetario, informarán al medio financiero, y los intermediarios sujetos a este requerimiento tendrán, a partir de la fecha de notificación, dos quincenas naturales para incorporar dicha figura en el cálculo de los pasivos sujetos a encaje.
+(*)(Así adicionado el numeral 4) anterior en sesión N° 5496 del 27 de abril de 2011)
+(*)C.Tasas de encaje. Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
+1. El 15,0% sobre la sumatoria de los depósitos y obligaciones en moneda nacional y en unidades de desarrollo, así como sobre la sumatoria de las operaciones de captación de recursos en moneda nacional y en unidades de desarrollo realizadas mediante fideicomisos o contratos de administración.
+2. El 15,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizada mediante fideicomisos o contratos de administración.
+3. El 15,0% sobre las operaciones de endeudamiento externo de corto plazo, tanto en moneda local como en moneda extranjera, entendido el corto plazo como aquellas operaciones constituidas a 360 días o menos.
+4. El 15,0% de las operaciones originadas en líneas de crédito de carácter revolutivo, tanto en moneda local como en moneda extranjera, independientemente del plazo de constitución.
+5. El 15,0% sobre las operaciones originadas en empréstitos externos, tanto en moneda local como en moneda extranjera, constituidas a largo plazo y que contengan cláusulas de exigibilidad de pago aplicables en los primeros 360 días de vigencia del crédito. En estos casos el requerimiento de encaje mínimo legal será aplicado únicamente en los primeros 360 días de vigencia de dichas operaciones.
+6. El 15,0% sobre las operaciones originadas en empréstitos externos, tanto en moneda local como en moneda extranjera, constituidas a largo plazo y que contengan cláusulas que permitan el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito. En estos casos el requerimiento de encaje mínimo legal será aplicado únicamente en los primeros 360 días de vigencia de dichas operaciones.
+7. El 15,0% sobre aquellas operaciones cuya realidad económica sea semejante a un endeudamiento externo de corto plazo.
+Transitorio
+La tasa de encaje establecida para los Numerales 3, 4, 5, 6 y 7 anteriores se aplicará con la siguiente gradualidad:
+A partir del Tasa de encaje
+01 de agosto del 2011 5,0%
+01 de setiembre del 2011 10,0%
+01 de octubre del 2011 15,0%
+(Así reformado el inciso c) anterior en sesión N° 5496 del 27 de abril de 2011)
 D. Excepciones y deducciones
-(*) 1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones originadas en empréstitos externos, los préstamos otorgados por e! Banco Central de Costa Rica y los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
-(*) (Así reformado el numeral anterior en sesión N° 5029 del 15 de marzo de 2000)
+(*)1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones cuyo origen esté relacionado con:
+a. Empréstitos externos de largo plazo que no se originen en líneas de crédito de carácter revolutivo contratadas con entidades financieras externas.
+b. Empréstitos externos, tanto en moneda local como en moneda extranjera, que sean constituidos a largo plazo y que no contengan cláusulas de exigibilidad de pago aplicables en los primeros 360 días de vigencia del crédito.
+c. Empréstitos externos, tanto en moneda local como en moneda extranjera, que sean constituidos a largo plazo y que no contengan cláusulas que permitan el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito.
+d. Los préstamos otorgados por el Banco Central de Costa Rica.
+e. Los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
+Las operaciones originadas en empréstitos externos de largo plazo a las que se refiere esta excepción, corresponden a aquellas constituidas a más de 360 días por los intermediarios financieros sujetos a encaje mínimo legal.
+Para ser consideradas dentro de esta excepción, las entidades financieras deben enviar información que permita, a satisfacción de la Superintendencia General de Entidades Financieras, corroborar que los pasivos contratados en el extranjero no tienen carácter revolutivo ni cláusulas especiales que permitan la exigibilidad de pago o el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito.
+(Así reformado el numeral 1) anterior en sesión N° 5496 del 27 de abril de 2011)
 2- Las entidades sujetas a control de la Superintendencia General de Entidades Financieras podrán deducir de sus obligaciones sujetas a encaje los depósitos e inversiones que hagan en instrumentos financieros o bursátiles sujetos al requerimiento de encaje mínimo legal. En el caso de las Entidades Financieras Privadas no pueden deducir los fondos mantenidos en los bancos estatales en cumplimiento de las condiciones establecidas para poder captar depósitos en cuenta corriente o tener acceso al redescuento. Los instrumentos financieros o bursátiles pueden ser deducidos en el tanto la entidad financiera sea la propietaria de los contratos y los títulos y sean contabilizados en sus balances como parte de sus activos (no en cuentas de orden). Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja.
 La deducción se hará por el importe pagado excluyendo los intereses devengados acumulados por el título y no pagados por el emisor y las comisiones pagadas, esto último siempre y cuando esos intereses y comisiones estén incorporados en el precio pagado por el comprador.
 Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por alguna de las superintendencias adscritas al Banco Central de Costa Rica.

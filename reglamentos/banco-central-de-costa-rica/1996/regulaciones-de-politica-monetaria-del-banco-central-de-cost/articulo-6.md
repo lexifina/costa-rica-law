@@ -1,21 +1,32 @@
 (*)TITULO VI
 Disposiciones sobre la reserva de liquidez
 (*)(Así adicionado este título en sesión N° 4931 del 24 de octubre de 1997)
-(*) A. Deberán mantener una reserva de liquidez
-El porcentaje de reserva de liquidez que deberán mantener las entidades antes mencionadas es el siguiente:
-Para las operaciones en moneda nacional aplicará una tasa de reserva de liquidez del 15,0%, a la cual se ajustarán con la siguiente gradualidad:
-Fecha | Tasa
-A partir del: |
-16 de julio del 2005 | 13,5%
-16 de agosto del 2005 | 15,0%
-Para las operaciones en moneda extranjera aplicará una tasa de reserva de liquidez del 15,0%, a la cual se ajustarán con la siguiente gradualidad:
-Fecha | Tasa
-A partir del: |
-16 de julio del 2005 | 13,5%
-16 de agosto del 2005 | 15,0%
-(*) (Así reformado el literal anterior en sesión N° 5235 del 15 de junio de 2005)
+(*) A.Deberán mantener una reserva de liquidez las siguientes entidades:
+i. Las asociaciones solidaristas.
+ii. Las cooperativas de ahorro y crédito que realizan operaciones financieras exclusivamente con sus asociados.
+iii. Las cooperativas de ahorro y crédito que realizan operaciones con no asociados y cuyo nivel de activos netos al 31 de diciembre de 1995, era inferior a ¢200,0 millones.
+iv. Las cooperativas de vivienda que realizan actividades de intermediación al amparo de la Ley del Sistema Financiero para la Vivienda y cuyo nivel de activos netos era al 31 de diciembre de 1995 inferior a ¢200,0 millones.
+v. Cualquier otra entidad que realice operaciones de intermediación financiera y que haya sido expresamente eximida del encaje por la Junta Directiva del Banco Central de Costa Rica.
+La reserva de liquidez debe constituirse sobre la totalidad de:
+i. Las captaciones de recursos.
+ii. Los aportes de los trabajadores o asociados.
+iii. El endeudamiento externo de corto plazo, entendido el corto plazo como aquellas operaciones constituidas a 360 días o menos.
+iv. Las líneas de crédito de carácter revolutivo, independientemente del plazo de constitución.
+v. Las operaciones originadas en empréstitos externos, tanto en moneda local como en moneda extranjera, constituidas a más de 360 días y que contengan cláusulas de exigibilidad de pago aplicables en los primeros 360 días de vigencia del crédito. En estos casos el requerimiento de reserva de liquidez será aplicado únicamente en los primeros 360 días de vigencia de dichas operaciones.
+vi. Las operaciones originadas en empréstitos externos, tanto en moneda local como en moneda extranjera, constituidas a más de 360 días y que contengan cláusulas que permitan el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito. En estos casos el requerimiento de reserva de liquidez será aplicado en los primeros 360 días de vigencia de dichas operaciones.
+vii. Cualquier otra operación cuya realidad económica sea semejante a un endeudamiento de corto plazo.
+En este caso, si la Superintendencia General de Entidades Financieras o el Banco Central de Costa Rica determinaran que una figura cumple con las características señaladas y debe ser sujeta a reserva de liquidez, informarán al medio financiero, y los intermediarios sujetos a este requerimiento tendrán, a partir de la fecha de notificación, dos quincenas naturales para incorporar dicha figura en el cálculo de las operaciones sujetas a reserva de liquidez.
+Las entidades financieras deberán enviar a la Superintendencia General de Entidades Financieras la información que ésta requiera para corroborar que las operaciones de endeudamiento externo incluidas en el cálculo de la reserva de liquidez, cumple con los requisitos exigidos por esta normativa.
+El porcentaje de reserva de liquidez que deberán mantener las entidades antes mencionadas es del 15,0%, tanto para las operaciones en moneda nacional como para aquellas en moneda extranjera.
+Transitorio
+El porcentaje de reserva de liquidez establecido para el endeudamiento externo de corto plazo, los empréstitos externos originados en líneas de crédito de carácter revolutivo, los empréstitos externos constituidos a más de 360 días y que contengan cláusulas de exigibilidad de pago aplicables en los primeros 360 días de vigencia del crédito, los empréstitos externos constituidos a más de 360 días y que contengan cláusulas que permitan el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito y para cualquier otra operación cuya realidad económica sea semejante a un endeudamiento de corto plazo, se aplicará con la siguiente gradualidad:
+A partir del: Reserva de liquidez requerida
+01 de agosto del 2011 5,0%
+01 de setiembre del 2011 10,0%
+01 de octubre del 2011 15,0%
+(*)(Así reformado el inciso a) anterior en sesión N° 5496 del 27 de abril de 2011)
 (*) B. Las cooperativas de ahorro y crédito y las cooperativas de vivienda amparadas a la Ley del Sistema Financiero para la Vivienda, cuyo nivel de activos netos al 31 de diciembre de cada año sea superior a los ¢200.0 millones, serán incorporadas al control del encaje por parte del BCCR y de la SUGEF.
-(*) (Así reformado el literal anterior en sesión N° 5067 del 21 de febrero de 2001)
+(*)(Así reformado el literal anterior en sesión N° 5067 del 21 de febrero de 2001)
 (*) C. Las cooperativas de ahorro y crédito cuyos activos netos, al 31 de diciembre de cada sean iguales o superiores a los ¢200.0 millones deberán, para quedar eximidas del requisito de encaje, presentar semestralmente ante la SUGEF los atestados correspondientes de que no han realizado operaciones financieras con no asociados
 (*) (Así reformado el literal anterior en sesión N° 5067 del 21 de febrero de 2001)
 D. Las reservas de liquidez en moneda nacional y en moneda extranjera deben calcularse por separado y, los respectivos fondos mantenerse en la moneda correspondiente.
@@ -25,8 +36,10 @@ La reserva de liquidez para operaciones denominadas en moneda extranjera debe ma
 2. Las entidades cuya reserva de liquidez en moneda extranjera sea superior a EUA$10.000 no podrán mantener depositados en un solo banco comercial más del 25% de los recursos de la reserva.
 3. La reserva de liquidez en moneda extranjera podrá ser mantenida en su totalidad en títulos del Gobierno o del Banco Central de Costa Rica.
 (*) (Así reformado el literal anterior en sesión N° 5424 del 20 de mayo de 2009)
-(*) F. La reserva de liquidez, tanto en moneda nacional como extranjera, se controlará mensualmente, con base en el promedio mensual de saldos diarios de los depósitos y obligaciones de cada entidad financiera y el porcentaje de reserva indicado en el literal A. anterior. Así, al término de cada mes el promedio resultante de los depósitos originados en las reservas de liquidez no podrá ser menor a las reservas requeridas para ese periodo. En el cálculo del promedio mensual solo intervendrán los días hábiles del mes respectivo. La entidad financiera deberá llevar un registro de esta reserva de liquidez en una cuenta contable exclusiva para ese fin, la cual debe mostrar en las subcuentas el detalle de composición de dicha reserva por tipo de activo.
-(*) (Así reformado el literal anterior en sesión N° 5067 del 21 de febrero de 2001)
+F.La reserva de liquidez, tanto en moneda nacional como extranjera, se controlará mensualmente, con base en el porcentaje exigido y el promedio mensual de saldos diarios de las operaciones de cada entidad indicadas en el literal A anterior.
+Así, al término de cada mes el promedio resultante de los activos que componen la reserva de liquidez no podrá ser menor a las reservas requeridas para ese período. En el cálculo del promedio mensual solo intervendrán los días hábiles del mes respectivo.
+La entidad financiera deberá llevar un registro de esta reserva de liquidez en una cuenta contable exclusiva para ese fin, la cual debe mostrar en las subcuentas el detalle de composición de dicha reserva por tipo de activo.
+(Así reformado el inciso f) anterior en sesión N° 5496 del 27 de abril de 2011)
 G. Además de lo estipulado en el literal E anterior, cada entidad financiera podrá emplear los recursos de su reserva de liquidez para hacer frente a problemas temporales de liquidez, previa comunicación a la Junta Directiva del Banco Central de Costa Rica y a la Superintendencia General de Entidades Financieras.
 (Así reformado el literal anterior en sesión N° 4991 del 7 de abril de 1999)
 H. El empleo de los recursos de la reserva de liquidez para el fin antes indicado, no podrá exceder los tres meses y podrán utilizarse por una única vez durante cada año calendario. En ningún caso, se podrá emplear la reserva de liquidez para financiar capital de trabajo o en cualquier otra operación que no sea la descrita en el párrafo anterior.
