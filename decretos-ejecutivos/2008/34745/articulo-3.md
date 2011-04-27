@@ -1,1 +1,0 @@
-Artículo 3°—Que en el Área Rectora de Salud correspondiente, se debe de verificar que el certificado de aprobación del curso de manipuladores de alimentos cumple con lo dispuesto en el artículo 2° del presente reglamento.
