@@ -1,0 +1,2 @@
+Artículo 13.—Control de teléfonos asignados. La Proveeduría Institucional, deberá llevar un registro actualizado de los teléfonos celulares asignados.
+En este registro se consignará el nombre, número de cédula y el cargo del(a) funcionario(a) a quien se le asignó un teléfono celular, número de teléfono, el número de serie, marca, modelo, color, asignarle el número patrimonial correspondiente y sus accesorios, precio del mismo en el mercado al momento de la entrega, la fecha de su asignación y cualquier otro dato que se considere de importancia.

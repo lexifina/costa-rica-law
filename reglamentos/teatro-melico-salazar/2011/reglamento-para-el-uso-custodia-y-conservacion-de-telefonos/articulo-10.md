@@ -1,0 +1,2 @@
+Artículo 10.—Llamadas internacionales. Únicamente tendrá acceso a llamadas internacionales, tanto entrantes como salientes, la línea celular asignada a la Dirección Ejecutiva y Direcciones de programas, siempre que sean realizadas para atender asuntos propios de su cargo.
+Las demás líneas celulares únicamente tendrán derecho al acceso de llamadas internacionales entrantes, sin que esto genere un costo para el Teatro.

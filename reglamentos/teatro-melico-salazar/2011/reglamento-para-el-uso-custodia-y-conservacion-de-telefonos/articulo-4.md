@@ -1,0 +1,1 @@
+Artículo 4º—Contrato. Para el uso de los teléfonos celulares, los(as) funcionarios(as) a quienes se les asigne, deben suscribir un convenio, el cual le será proporcionado por la Proveeduría Institucional, en el que se indicará la responsabilidad del funcionario en cuanto al uso del aparato.
