@@ -1,1 +1,0 @@
-Artículo 7º—Las instalaciones deberán contar con servicios sanitarios para hombres y mujeres, en número no menor de 1 por cada 30 varones o fracción de treinta y 1 por cada 25 mujeres o fracción de 25. Además tendrán lavamanos, dispensadores para jabón, papel higiénico y secado de manos, los cuales se mantendrán en buenas condiciones sanitarias y en buen estado de funcionamiento.

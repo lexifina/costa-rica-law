@@ -1,1 +1,0 @@
-Artículo 13.—Si el criterio fuere positivo, se procederá a enviar la recomendación a la Dirección General de Salud, órgano que emitirá el correspondiente certificado de inscripción. En caso contrario se le informará al interesado por escrito, mencionándole los aspectos que debe corregir, para que pueda ser autorizado.
