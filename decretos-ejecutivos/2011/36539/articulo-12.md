@@ -1,0 +1,1 @@
+Artículo 12.—El patrono que pretenda regularizar el ingreso o la permanencia legal de personas extranjeras bajo la categoría especial de trabajador temporal, deberá realizar un depósito de garantía de treinta dólares por cada trabajador.

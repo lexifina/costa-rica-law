@@ -1,0 +1,1 @@
+Artículo 61.—La Gestión Financiera deberá solicitar a la Junta Administrativa de la Dirección General, la autorización expresa para el traslado de los fondos de los depósitos en los supuestos del artículo 54 de este Reglamento, los cuales deberán integrarse al Fondo Especial de la Junta Administrativa de la Dirección General.

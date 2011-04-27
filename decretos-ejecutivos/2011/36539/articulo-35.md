@@ -1,0 +1,1 @@
+Artículo 35.—La Gestión Financiera contará con noventa días naturales para realizar la devolución del depósito a partir de la resolución que así lo ordene y siempre que se cumpla con lo dispuesto en el presente Reglamento.

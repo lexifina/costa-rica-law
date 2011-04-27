@@ -1,0 +1,1 @@
+Artículo 9º—Cuando se incumplan las condiciones que regulan el ingreso o la permanencia de personas extranjeras bajo las categorías migratorias referidas, el depósito será utilizado para sufragar los gastos de deportación o expulsión correspondiente.

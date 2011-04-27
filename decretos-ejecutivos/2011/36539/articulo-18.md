@@ -1,0 +1,1 @@
+Artículo 18.—La Dirección General no autorizará el ingreso al país de la persona extranjera a quien se le ha notificado la aprobación de una visa y tampoco documentará a la persona extranjera a quien se haya notificado la resolución de aprobación de su solicitud de permanencia, hasta tanto hayan efectuado el depósito de garantía exigido.

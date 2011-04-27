@@ -1,0 +1,1 @@
+Artículo 24.—Corresponderá a la Gestión Financiera, realizar los estudios respectivos para las devoluciones de los depósitos girados en el Fondo y girar los cheques de forma individual o colectiva, según corresponda.

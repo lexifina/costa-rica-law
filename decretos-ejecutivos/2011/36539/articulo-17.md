@@ -1,0 +1,1 @@
+Artículo 17.—En todo comprobante de depósito, la entidad bancaria deberá consignar el nombre del beneficiario o garantizado de dicho trámite, independientemente de que sea o no el depositante, así como el nombre del garante. En caso de que el garante sea una persona jurídica, se deberá indicar su razón o denominación social.

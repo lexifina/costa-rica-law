@@ -1,0 +1,1 @@
+Artículo 13.—Los depósitos para trabajadores deberán realizarse de manera individual, es decir, un depósito por cada trabajador. Se prohíben los depósitos globales, en virtud de que no se autorizan devoluciones parciales.

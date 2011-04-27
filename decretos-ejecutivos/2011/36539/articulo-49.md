@@ -1,0 +1,1 @@
+Artículo 49.—La solicitud y documentos requeridos para la devolución de depósitos de garantía deberán ser autenticados consularmente y ser enviados a la Gestión de Recursos Financieros en un sobre cerrado, por medio de un conocido o utilizando los servicios de alguna empresa dedicada al servicio de envío de correspondencia. No se tramitarán solicitudes enviadas por vía fax.

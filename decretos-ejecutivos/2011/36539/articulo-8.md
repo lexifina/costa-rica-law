@@ -1,0 +1,1 @@
+Artículo 8º—El depósito se podrá realizar en colones o en dólares, moneda de curso legal de los Estados Unidos de América, en las cuentas bancarias referidas en el artículo 5 de este Reglamento, de conformidad con lo establecido en los artículos 133 y 239 de la Ley.

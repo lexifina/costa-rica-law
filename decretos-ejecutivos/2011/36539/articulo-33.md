@@ -1,0 +1,1 @@
+Artículo 33.—Si la salida del país no está registrada en el sistema de consulta general o el SIMMÉL, se denegará la solicitud de devolución. En estos casos el interesado o apoderado legal podrá gestionar la inclusión del movimiento migratorio correspondiente ante el Subproceso de Registro de Movimiento Internacional de Personas.

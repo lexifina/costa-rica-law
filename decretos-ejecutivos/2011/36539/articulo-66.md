@@ -1,0 +1,1 @@
+Artículo 66.—La Dirección General deberá abrir los procedimientos correspondientes y denunciar las autoridades competentes cualquier violación a esta normativa en lo relativo al manejo inadecuado de sus fondos y de los bienes.

@@ -1,0 +1,1 @@
+Artículo 6º—Conforme a lo establecido en el artículo 240 de la Ley, los recursos del Fondo de depósitos de garantía serán inembargables, para todos los efectos legales, y no podrán tener un uso diferente del señalado en la Ley.

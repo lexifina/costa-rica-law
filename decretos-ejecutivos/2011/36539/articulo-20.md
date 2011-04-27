@@ -1,0 +1,1 @@
+Artículo 20.—También se exonerará de dicha obligación a las personas víctimas del delito de trata de personas y todo caso personal o colectivo, de naturaleza humanitaria, académica o de cualquier otra determinada por la Dirección General, mediante resolución fundada.

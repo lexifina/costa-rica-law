@@ -1,0 +1,2 @@
+Artículo 53.—Realizado el estudio y aprobado el desembolso, se emitirá un cheque a nombre de quien se señale en la solicitud, contra la cuenta bancaria del Fondo de depósitos de garantía de la Dirección General o bien una transferencia bancaria, este último supuesto cuando así lo solicite el interesado. El desembolso se hará por la suma recibida originalmente, menos los gastos incurridos imputables al interesado por cualquier concepto.
+En ningún caso se emitirán cheques a caja o al portador.

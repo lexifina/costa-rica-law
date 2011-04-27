@@ -1,0 +1,1 @@
+Artículo 27.—La solicitud de devolución de depósito de garantía en el caso de personas con permanencia legal, podrá efectuarla el interesado estando en el país, dentro del período que señala la resolución emitida por la Gestión de Extranjería, por medio de un apoderado, o en su defecto podrá solicitarla desde el exterior.

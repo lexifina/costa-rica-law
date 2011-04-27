@@ -1,0 +1,1 @@
+Artículo 4º—Los recursos del fondo de depósitos de garantía serán destinados a hacer efectiva la devolución de garantías, según lo dispuesto en los artículos 136 y 238 de la Ley y en el presente Reglamento.

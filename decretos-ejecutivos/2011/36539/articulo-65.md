@@ -1,0 +1,1 @@
+Artículo 65.—La Dirección General, a través de Planificación Institucional deberá revisar periódicamente los procedimientos de trabajo relacionados con la administración del fondo, así como tomar las acciones correctivas que correspondan sobre las deficiencias detectadas.

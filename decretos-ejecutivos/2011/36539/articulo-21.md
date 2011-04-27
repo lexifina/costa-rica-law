@@ -1,0 +1,1 @@
+Artículo 21.—De conformidad con el artículo 137 de la Ley, la Dirección General excepcionalmente y mediante resolución fundada, podrá rebajar el depósito de garantía, previa solicitud por escrito presentada por la persona extranjera interesada ante la Gestión de Extranjería, la cual resolverá mediante un estudio minucioso de cada caso presentado.
