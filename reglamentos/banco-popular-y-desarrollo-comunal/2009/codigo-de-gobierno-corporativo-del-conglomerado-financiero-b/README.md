@@ -14,3 +14,4 @@ Código de Gobierno Corporativo del Conglomerado Financiero Banco Popular de Des
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-11 | la propia norma |
+| 2 | 2011-04-27 | Reglamento 4857 (2011-04-27) |
