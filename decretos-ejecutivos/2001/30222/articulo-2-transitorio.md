@@ -1,1 +1,0 @@
-Transitorio II.—Al término de un año, a partir de la publicación del presente Reglamento, todo establecimiento industrial, comercial o de servicios existente o nuevo, cuyos procesos o actividades incluyan la operación de calderas, deberá presentar su primer reporte operacional a la DPAH del Ministerio de Salud, tal y como lo establece el artículo 7º de este Reglamento.
