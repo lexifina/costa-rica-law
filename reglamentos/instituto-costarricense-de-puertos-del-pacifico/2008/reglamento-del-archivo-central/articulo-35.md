@@ -1,3 +1,0 @@
-CAPÍTULO X
-Uso de papel y tinta
-Artículo 35.—El INCOP deberá acatar la Directriz emitida por la Junta Administrativa del Archivo Nacional relacionada “sobre el uso de papel y tinta para la producción de documentos con valor científico-cultural de conservación y permanencia en todos los archivos que formen parte del Sistema Nacional de Archivos”, emitida el 17 de diciembre de 2003. Para ello la Proveeduría del INCOP tomará todas las medidas del caso, a fin de que en futuras compras que realice se tomen las previsiones del caso y se cumpla con los lineamientos de dicha Directriz.

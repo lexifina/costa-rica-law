@@ -1,1 +1,0 @@
-Artículo 29.—Para el adecuado seguimiento del plan o sistema de clasificación, los Encargados de la correspondencia o secretarias, según corresponda deberán seguir el mismo procedimiento en cada unidad donde fueran designadas.

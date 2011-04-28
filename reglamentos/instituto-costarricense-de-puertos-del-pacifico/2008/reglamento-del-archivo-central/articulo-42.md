@@ -1,1 +1,0 @@
-Artículo 42—En materia del uso del correo electrónico, INCOP se regirá mediante las disposiciones reglamentarias que establece el Archivo Nacional de Costa Rica y el Departamento de Cómputo de la Institución.

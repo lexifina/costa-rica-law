@@ -1,1 +1,0 @@
-Artículo 41.—En todo caso se debe garantizar que los documentos electrónicos almacenados en su versión final no puedan ser modificados. Además, la Comisión de Selección establecerá dentro de las Tablas de Plazos de Conservación Documental los plazos para conservar documentos electrónicos.
