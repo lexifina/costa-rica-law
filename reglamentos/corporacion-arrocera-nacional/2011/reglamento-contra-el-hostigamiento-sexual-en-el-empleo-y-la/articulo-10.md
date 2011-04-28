@@ -1,0 +1,1 @@
+Artículo 10.—Sanciones por incumplimiento. En caso de incumplimiento de las obligaciones establecidas en la ley y en este capítulo del reglamento, el funcionario o funcionaria responsable será sancionado(a), de conformidad con lo que se determine en el marco de un debido proceso.

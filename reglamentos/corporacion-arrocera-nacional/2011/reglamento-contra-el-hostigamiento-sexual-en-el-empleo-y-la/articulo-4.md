@@ -1,0 +1,5 @@
+Artículo 4º—Definiciones.
+a) Acoso u Hostigamiento Sexual: Se entiende por acoso u hostigamiento sexual, toda conducta sexual indeseada por quien la recibe, que puede ser reiterada o aislada, que provoque una interferencia en el desempeño del trabajo así como en el estado general de bienestar personal y que genere un ambiente de trabajo intimidante, hostil u ofensivo.
+b) Víctima: Es la persona que sufre el hostigamiento sexual. Puede ser personas funcionarias, pasantes, meritorias, practicantes, usuarias, clientes y/o proveedores. La víctima puede estar en una relación de subalternidad, o en una relación jerárquica hacia arriba o hacia abajo o en igualdad de condiciones laborales.
+c) Persona denunciada: La funcionaria o el funcionario al que se le atribuye una presunta conducta constitutiva de hostigamiento sexual.
+d) Órgano instructor: Nombramiento que se realiza por medio de la Autoridad competente de la Corporación para llevar el proceso de investigación cuando se hace la recepción de una denuncia por hostigamiento sexual.

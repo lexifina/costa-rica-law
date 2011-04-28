@@ -1,0 +1,1 @@
+Artículo 3.—Ámbito de Aplicación. El presente Reglamento regirá para el personal de la Corporación Arrocera Nacional, se aplicará en relaciones de jerarquía o autoridad, relaciones entre personas del mismo nivel jerárquico, entre personas de un nivel jerárquico inferior a uno superior, y relaciones entre personas servidoras y usuarias en el ámbito de trabajo o servicio.

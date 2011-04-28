@@ -1,0 +1,1 @@
+Artículo 18.—Sobre el Órgano Decisor. El Director Ejecutivo recibirá del Órgano Instructor el expediente completo y la recomendación; para que tome en definitiva la resolución sobre el caso, manteniendo siempre la confidencialidad.

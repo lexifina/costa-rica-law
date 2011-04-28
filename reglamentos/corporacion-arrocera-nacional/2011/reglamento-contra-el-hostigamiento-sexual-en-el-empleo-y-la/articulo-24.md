@@ -1,0 +1,1 @@
+Artículo 24.—Recursos. Contra las resoluciones procederán los recursos establecidos en la Ley General de la Administración Pública, los cuales deberán ser planteados dentro de los términos de ley.

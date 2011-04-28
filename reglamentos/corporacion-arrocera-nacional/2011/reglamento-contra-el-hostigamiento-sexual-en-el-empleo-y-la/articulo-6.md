@@ -1,0 +1,1 @@
+Artículo 6º—Garantía para las personas denunciantes y los testigos. Ninguna persona que haya denunciado ser víctima de Acoso u Hostigamiento Sexual o haya comparecido como testigo de las partes, podrá sufrir por ello, perjuicio personal alguno en el ámbito del trabajo.
