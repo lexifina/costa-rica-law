@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley de Armas y Explosivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-12 | la propia norma |
+| 2 | 2011-04-28 | SINALEVI (sin norma nombrada) |
