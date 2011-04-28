@@ -1,5 +1,0 @@
-Artículo 5º—Trámite. El Ministerio de Salud autorizará los planos constructivos de viviendas unifamiliares, con la sola presentación de los planos y la declaración jurada ante el CFIA, citada en el artículo 3º del presente Reglamento. El administrado podrá continuar con el trámite ante la municipalidad correspondiente una vez obtenido el visado del CFIA, sin tener que acudir al Ministerio de Salud.
-Para el visado de planos de cualquier otro tipo de edificación, que sea menor o igual a 300 metros cuadrados de área de construcción en dos pisos o menos, los interesados deberán presentar ante las oficinas locales del Ministerio de Salud: Dos juegos de planos constructivos completos, uno para su presentación ante la municipalidad y otro para el propietario.
-El Ministerio de Salud únicamente revisará que los planos constructivos cumplan con las disposiciones de sanidad e higiene.
-El Ministerio deberá resolver en un plazo máximo de cinco días hábiles.”
-(Así reformado mediante artículo 1° del decreto ejecutivo N° 33799 del 19 de abril de 2007)
