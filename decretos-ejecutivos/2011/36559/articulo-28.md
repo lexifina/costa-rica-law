@@ -1,0 +1,2 @@
+Artículo 28º - De la presentación de informes a la Contraloría General de la República.
+El sujeto privado deberá brindar a la Contraloría General de la República, cualquier información, documentación, aclaraciones y explicaciones que ésta requiera sobre el manejo de fondos de origen público. Asimismo, deberán presentar los informes de liquidación anual cuando corresponda, a más tardar el 31 de enero de cada año, independientemente del periodo contable utilizado.

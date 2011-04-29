@@ -1,0 +1,1 @@
+Artículo 43º - De la reanudación de pagos. En caso de que el / la Ministro (a) de Trabajo y Seguridad Social, declare con lugar el recurso de reposición interpuesto, ordenará la reanudación de los pagos, así como el reintegro de las sumas retenidas.

@@ -1,0 +1,1 @@
+TRANSITORIO UNICO: Para los efectos del ejercicio económico 2011 el plazo para publicar lo regulado por el artículo 10, se extenderá al 30 de mayo de 2011, mientras que la subsanación podrá hacerse hasta el 1 de julio del año 2011.
