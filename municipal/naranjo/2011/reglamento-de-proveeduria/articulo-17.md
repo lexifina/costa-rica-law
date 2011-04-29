@@ -1,0 +1,2 @@
+Artículo 17.—Formalización de las contrataciones. La Proveeduría Institucional, en coordinación y con la asesoría del Departamento Legal, preparará los contratos que requieran los diferentes tipos de contratación con el fin de realizar mediante dicho documento la formalización correspondiente.
+Igualmente, todas las contrataciones de servicios (profesionales y técnicos) se deben formalizar por medio de un contrato.

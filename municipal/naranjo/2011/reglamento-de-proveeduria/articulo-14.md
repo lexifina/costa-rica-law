@@ -1,0 +1,1 @@
+Artículo 14.—Valoración de las ofertas. Corresponde a la Proveeduría Institucional la responsabilidad de valorar las ofertas de conformidad con las reglas establecidas en el artículo 83 del Reglamento a la Ley de Contratación Administrativa e informar a la Alcaldía, para que el Jerarca adjudique.

@@ -1,0 +1,1 @@
+Artículo 25.—Invitación anual a inscribirse. La Proveeduría Institucional invitará, mediante una publicación anual en el diario oficial la Gaceta, a aquellas personas físicas o jurídicas que deseen formar parte del Registro de Proveedores para las futuras contrataciones a realizar.

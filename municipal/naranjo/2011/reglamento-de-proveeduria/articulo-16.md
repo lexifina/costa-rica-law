@@ -1,0 +1,2 @@
+Artículo 16.—Notificación de la adjudicación. La Proveeduría Institucional notificará de la adjudicación mediante oficio motivado cuando la Ley o el Reglamento de Contratación Administrativa así lo requieran, por el mismo medio empleado para invitar a participar, todo ello de conformidad con las reglas establecidas en el artículo 88 del Reglamento a la Ley de Contratación Administrativa.
+En el caso de licitaciones (Públicas y Abreviadas) se enviará copia del oficio a todos los oferentes no adjudicados para que ejerzan su derecho en caso de considerarse afectados.

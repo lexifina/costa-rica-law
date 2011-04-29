@@ -1,0 +1,1 @@
+Artículo 7º—Devolución Solicitud de Bienes y Servicios. Si por alguna razón una solicitud no puede ser tramitada, la Proveeduría Institucional devolverá el documento al solicitante en un plazo no mayor de tres días, indicando por escrito las razones por las que no se tramita la solicitud.

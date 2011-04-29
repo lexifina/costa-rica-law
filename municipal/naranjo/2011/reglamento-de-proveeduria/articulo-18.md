@@ -1,0 +1,2 @@
+Artículo 18.—Refrendo Interno de las Contrataciones Administrativas. Será responsabilidad del Departamento Legal realizar un refrendo interno de los procedimientos de contratación o compra realizados por la Proveeduría Institucional. De acuerdo a lo establecido en la Ley de Contratación Administrativa y su Reglamento.
+Es deber de la Proveeduría Institucional proporcionar al Departamento Legal los expedientes necesarios para la realización del Refrendo Interno o el refrendo contralor según corresponda.
