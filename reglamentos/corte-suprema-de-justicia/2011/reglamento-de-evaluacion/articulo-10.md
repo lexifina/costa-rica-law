@@ -1,0 +1,2 @@
+Ajustes en la evaluación
+Artículo 10.—Si en forma excepcional, durante la oferta de la actividad académica surge la necesidad de aplicar otros instrumentos de evaluación no previstos en el diseño curricular, estos deberán ser conocidos por la persona gestora y aprobados por el o la profesional en métodos de enseñanza, y comunicarse a las personas participantes al menos con cinco días hábiles antes de su aplicación.

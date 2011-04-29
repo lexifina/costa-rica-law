@@ -1,0 +1,3 @@
+Tipos de instrumentos de evaluación
+Artículo 6º—Los tipos de instrumentos para evaluar el rendimiento del o de la participante serán: matrices o escalas de evaluación; pruebas orales, escritas (impresas o digitales), prácticas y documentos (impresos o digitales), con el fin de permitir una evaluación integral de la persona participante. En la evaluación deben considerarse las distintas competencias definidas en el diseño curricular, la confección de cuadros de balanceo y el tipo de instrumento más apropiado.
+Las pruebas pueden ser realizadas individualmente, en grupos, en clase o fuera de ella, según se defina en el diseño curricular de la actividad académica de que se trate.

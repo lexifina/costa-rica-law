@@ -1,0 +1,2 @@
+Entrega de calificaciones finales
+Artículo 19.—El o la docente está en la obligación de entregar a la Escuela Judicial o a las unidades de capacitación respectivas, las calificaciones finales dentro de los diez días hábiles siguientes a la conclusión de la actividad académica. La Escuela Judicial y las unidades de capacitación serán responsables de actualizar el registro correspondiente en el Sistema Integrado de Gestión Administrativa.

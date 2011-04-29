@@ -1,0 +1,2 @@
+Certificaciones
+Artículo 38.—La Escuela Judicial y las unidades de capacitación, a solicitud del o de la participante, extenderán certificaciones relativas a las notas obtenidas, aprobación de actividades académicas, matrícula, tiempo efectivo de asistencia a actividades académicas y otros extremos de similar naturaleza. Dichas certificaciones se extenderán dentro de los quince días hábiles siguientes a la presentación de la solicitud.

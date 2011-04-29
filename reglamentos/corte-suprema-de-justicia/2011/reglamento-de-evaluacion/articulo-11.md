@@ -1,0 +1,1 @@
+Artículo 11.—La Escuela Judicial, las unidades de capacitación y la persona docente deberán proveer las adecuaciones curriculares de acceso y ayudas técnicas que requieran las personas con algún tipo de discapacidad.

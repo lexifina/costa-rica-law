@@ -1,0 +1,2 @@
+Firmas de los certificados
+Artículo 37.—Para tener validez dentro del Poder Judicial, los certificados de participación y de aprovechamiento de actividades de capacitación judicial deberán ser emitidos por la Escuela Judicial y por las unidades de capacitación y firmados física o electrónicamente por el Director o Directora de la Escuela Judicial, o por la autoridad que se defina dentro de cada unidad.
