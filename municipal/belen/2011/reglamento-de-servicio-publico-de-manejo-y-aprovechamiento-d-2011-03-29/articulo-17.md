@@ -1,0 +1,1 @@
+Artículo 17.—Método de disposición. El método de disposición de los residuos ordinarios reciclables no debe ser el enterramiento, sin embargo, su tratamiento y método de disposición debe ser avalado por el Ministerio de Salud y esta Municipalidad.

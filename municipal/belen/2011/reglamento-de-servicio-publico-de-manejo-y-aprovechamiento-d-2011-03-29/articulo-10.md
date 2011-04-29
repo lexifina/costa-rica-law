@@ -1,0 +1,1 @@
+Artículo 10.—Transporte higiénico. La Municipalidad o la empresa que realiza la recolección de los residuos ordinarios reciclables, deben garantizar que el equipo que se utilice permita el transporte higiénico de los materiales reciclables.
