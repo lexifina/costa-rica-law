@@ -1,0 +1,2 @@
+Artículo 5º—Enteros de Registro: Corresponde al despacho verificar el pago de enteros de registro antes de dar trámite a cada mandamiento, por lo que el servidor que anote un gravamen utilizando el Sistema de Registro Electrónico de Mandamientos, deberá previamente verificar el respectivo pago, por medio del aporte físico o vía electrónica del comprobante que efectúe la parte interesada. Se deberá aportar un entero por expediente.
+En caso de que no se aporte el comprobante de pago de derechos correspondiente, el servidor judicial asumirá la responsabilidad del caso.

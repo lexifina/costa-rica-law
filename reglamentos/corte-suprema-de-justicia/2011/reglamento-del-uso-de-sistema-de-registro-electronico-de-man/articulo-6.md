@@ -1,0 +1,2 @@
+Artículo 6º—Manual del Usuario y Uso del Sistema: El trámite de registro y envío electrónico de los mandamientos emitidos por los despachos judiciales, en aplicación del presente Sistema, se hará conforme al “Manual de Usuario del Sistema de Registro Electrónico de Mandamientos”, establecido por el Departamento de Tecnología de Información, el cual establece detalladamente el proceso de trámite a seguir para efectuar los movimientos electrónicos.
+La Dirección Ejecutiva emitirá mediante circular los procedimientos sobre el uso del Sistema.

@@ -1,0 +1,1 @@
+Artículo 2º—Esquema de seguridad: El Sistema cuenta con todo un riguroso esquema de seguridad, en donde cada movimiento que hace el usuario queda registrado en una bitácora. El sistema tiene tres tipos de perfiles, el usuario que registra, el que revisa, modifica y autoriza los mandamientos, y el que revisa y envía el mandamiento.
