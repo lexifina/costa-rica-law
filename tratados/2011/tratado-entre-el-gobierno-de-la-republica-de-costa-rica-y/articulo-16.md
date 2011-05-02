@@ -1,0 +1,4 @@
+ARTICULO 16
+PRINCIPIO DE ESPECIALIDAD
+1. La persona entregada no podrá ser detenida, encarcelada ni juzgada por la Parte Requirente, por un delito distinto del que hubiera motivado la extradición y cometido con anterioridad a la misma, salvo que consienta en ello la Parte Requerida, o que permanezca el extraditado libre en el Estado Requirente dos (2) meses después de juzgado y absuelto por el delito que originó la extradición o de cumplida la pena de privación de libertad impuesta.
+2. La solicitud en que se pida a la Parte Requerida que preste su consentimiento con arreglo al presente artículo irá acompañada de los documentos mencionados en el artículo 8, y en caso de existir, del acta judicial en la que la persona extraditada preste declaración en relación con el delito, la cual deberá ser hecha de conformidad con la legislación de la Parte Requerida.

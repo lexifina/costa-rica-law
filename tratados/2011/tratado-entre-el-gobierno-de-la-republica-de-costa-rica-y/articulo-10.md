@@ -1,0 +1,4 @@
+ARTICULO 10
+INFORMACIÓN COMPLEMENTARIA
+1. Cuando la Parte Requerida considere que es insuficiente la información presentada en apoyo de una solicitud de extradición, podrá solicitar información complementaria estableciendo un plazo, que no podrá exceder de dos meses, de acuerdo a su legislación, para la recepción de dicha información. Dicho plazo se empezará a contar a partir de la recepción de la solicitud.
+2. Si la persona cuya extradición se solicita se encuentra detenida y la información complementaria remitida no es suficiente, o si dicha información no se recibe dentro del plazo establecido por la Parte Requerida, se pondrá en libertad a esa persona. Sin embargo, la puesta en libertad no impedirá que la Parte Requirente presente otra solicitud de extradición de la persona por el mismo delito o por otro.
