@@ -118,15 +118,28 @@ Resumen de coordenadas:
 [imagen]
 Como recomendaciones de regulación de uso del suelo de la zona 6 se establecen las siguientes restricciones:
 1. Toda actividad industrial.
-2. Uso y almacenamiento de plaguicidas, pesticidas y combustibles, o precursores de estos con cualquier fin.
-3. La remoción o extracción de todo tipo de materiales.
+(Nota de Sinalevi: Mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo de 2011, se indica: "...Para toda actividad el área de impermeabilización por hectárea no debe sobrepasar el 20%.
+• Aquellas ACTIVIDADADES INDUSTRIALES que a lo largo de las distintas etapas de construcción y operación, generen impacto ambiental negativo al acuífero, deberán presentar un Estudio de Impacto Ambiental debidamente aprobado por SETENA.
+De acuerdo con el Reglamento del Ministerio de Salud, Decreto 30465 S y el Reglamento de Vertidos y Rehúso de Aguas Residuales. N. 26041-S MINAE, no se permiten las actividades industriales de alto riesgo por la posible afectación de la contaminación. Se definen estas actividades de alto riesgo como aquellas que tienen posibilidad de explosión, incendio, fuga o derrame súbito que resulte del proceso en el curso de las actividades industriales, así como en ductos y en transportes, en los que intervengan una o varias sustancias peligrosas y que suponga un peligro grave (de manifestación inmediata o retardada, reversible o irreversible) para la población, sus bienes, el ambiente y los ecosistemas...")
+2.No autorizar actividades de almacenamiento y USO DE PLAGUICIDAS, PESTICIDAS, COMBUSTIBLES Y SUSTANCIAS PELIGROSAS, O PRECURSORES DE ESTOS CON CUALQUIER FIN.
+(Así reformado el punto anterior mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011)
+3. Para la REMOCIÓN, CORTE Y RELLENO DE MATERIALES (MOVIMIENTOS DE TIERRA), deberá realizarse un estudio Hidrogeológico que compruebe que no habrá afectación al acuífero y un Plan de Gestión Ambiental debidamente aprobados por SETENA.
+(Así reformado el punto anterior mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011)
 4. Cambio de uso de la tierra.
 5. Toda corta de vegetación forestal.
-6. Toda actividad agropecuaria e instalaciones ligadas a la misma. 7. La perforación o excavación de pozos, galerías de infiltración o cualquier otra obra de captación de aguas.
-8. El desarrollo de urbanizaciones y de lotificaciones.
-9. Las instalaciones de basureros, rellenos sanitarios o botaderos de desperdicios de cualquier índole.
+6. Toda actividad agropecuaria e instalaciones ligadas a la misma.
+7. NO SE AUTORIZA LA CONSTRUCCIÓN O EXCAVACIÓN DE POZOS, GALERÍAS DE INFILTRACIÓN O CUALQUIER OTRA OBRA DE APROVECHAMIENTO DE AGUAS.
+(Así reformado el punto anterior mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011)
+8. Para el caso de DESARROLLOS DE URBANIZACIONES, LOTIFICACIONES, FRACCIONAMIENTOS Y CONDOMINIOS, deberá construirse alcantarillado sanitario y planta de tratamiento de aguas residuales de tipo ordinario. Se pueden permitir desarrollos con densidades iguales o inferiores a una unidad habitacional por cada 1000 metros.
+(Así reformado el punto anterior mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011)
+9. NO INSTALAR BASUREROS, RELLENOS SANITARIOS O BOTADEROS DE DESPERDICIOS DE CUALQUIER ÍNDOLE.
+(Así reformado el punto anterior mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011)
 10. Actividades de cualquier índole que afecten a criterio del aya la calidad y la cantidad del agua que se utiliza para el abastecimiento a poblaciones.
-Se admitirá en la zona 6 las construcciones de viviendas originadas por el crecimiento vegetativo, siempre que se asegure que las aguas residuales no se descargan a dolinas y se realiza la recolección de las basuras por el servicio municipal u otro medio.
+(Nota de Sinalevi: Mediante acuerdo N° 112-2011, se indica: "...El AyA considerando los estudios presentados por el interesado y avalados por las instancias pertinentes, podrá dictaminar otro tipo de actividades de las no enumeradas en este acuerdo, que afecten la calidad y la cantidad del agua, estableciendo las recomendaciones técnicas vinculantes para la regulación de la actividad. El AYA estará facultado por la Ley 2726, para evaluar si existe afectación al acuífero y la disposición correcta de las aguas residuales de conformidad con el reglamento de vertidos vigente, además de la aprobación o denegatoria de la actividad...")
+(Así reformado el punto anterior mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011)
+Se admitirá en la Zona 6 las construcciones de viviendas originadas por el crecimiento vegetativo, siempre que se asegure que las aguas residuales no se viertan a dolinas y se realice la recolección de las basuras por el servicio municipal u otro medio.
+(Así reformado el párrafo anterior mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011)
+(Nota de Sinalevi: Mediante acuerdo N° 112-2011, publicado en La Gaceta N° 83 del 2 de mayo del 2011, se indica: "... • Para el caso de HOTELES Y SIMILARES PARA HOSPEDAJE, se puede permitir sujeto al manejo de efluentes con planta de tratamiento cumpliendo con el Reglamento de Vertidos vigente. El número de habitaciones no debe exceder una carga equivalente a 50 personas por hectárea...")
 III.—Se Establecen para las zonas 2, 5 y 7 del “Estudio Hidrogeológico y Vulnerabilidad del Acuífero de Moín, Limón”, las siguientes medidas de protección del acuífero:
 1. No permitir el almacenamiento de químicos;
 2. No permitir la construcción de estaciones de abastecimiento de combustible;

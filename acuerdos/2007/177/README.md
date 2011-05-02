@@ -14,3 +14,4 @@ Oficialización del estudio Hidrogeológico y Vulnerabilidad del Acuífero Moín
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-02 | la propia norma |
+| 2 | 2011-05-02 | Acuerdo 112 (2011-05-02) |
