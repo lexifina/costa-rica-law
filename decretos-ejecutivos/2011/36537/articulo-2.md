@@ -1,0 +1,1 @@
+Artículo 2º—Instar a las instituciones de la Administración Pública central y descentralizada, de acuerdo con su marco jurídico y competencias y dentro de sus posibilidades legales, a establecer acciones que promuevan dicha designación.
