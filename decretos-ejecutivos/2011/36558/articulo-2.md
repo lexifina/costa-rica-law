@@ -1,0 +1,1 @@
+Artículo 2.- La vacunación durante la campaña será realizada por los equipos de vacunación de la Caja Costarricense de Seguro Social, en forma gratuita e implementando diversidad de estrategias para captar la población meta en los establecimientos de salud, en centros educativos públicos y privados, durante visitas casa a casa, entre otras.
