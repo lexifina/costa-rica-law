@@ -1,1 +1,0 @@
-Artículo 33.—Si antes de celebrarse el matrimonio se denunciare algún impedimento, el funcionario lo hará constar así en la información y remitirá la denuncia al Juez Civil .de la respectiva provincia, para que siga el juicio correspondiente

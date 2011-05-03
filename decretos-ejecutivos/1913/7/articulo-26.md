@@ -1,1 +1,0 @@
-Artículo 26.—Los objetos encontrados con el niño expósito o abandonado, los remitirá el funcionario al Registro Civil para que, si fueren documentos, se archiven en la forma dicha en el artículo 19, y si fueren cíe otra clase, pero de fácil conservación, se custodien también en el mismo archivo, marcándose de manera conveniente para que en todo tiempo puedan ser reconocidos.

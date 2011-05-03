@@ -1,1 +1,0 @@
-Artículo 64.—Por los asientos que se extienden en el Registro Civil y las declaraciones que se hagan a los Registradores Auxiliares. Tesoreros de las Juntas de Protección Social, etc.. no se cobrará remuneración alguna.

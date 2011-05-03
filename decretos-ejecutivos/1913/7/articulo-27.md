@@ -1,2 +1,0 @@
-Artículo 27.—En el asiento de inscripción de hijos nacidos fuera de matrimonio no se expresará quién es el padre o la madre, salvo que en documento público se halle establecida la paternidad o la maternidad, o bien, que sea el propio padre quien, con consentimiento debidamente firmado por la madre, realice la manifestación respectiva y la firme.
-(Así reformado por el artículo único del decreto del Tribunal Supremo de Elecciones N° 1 y publicado en La Gaceta N° 50 del 11 de marzo de 1996)

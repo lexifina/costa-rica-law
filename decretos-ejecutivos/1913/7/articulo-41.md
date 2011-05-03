@@ -1,1 +1,0 @@
-Artículo 41.—Los matrimonios celebrados en la República por los Ministros Diplomáticos y Cónsules que conforme a los tratados puedan hacerlo, se inscribirán en virtud de certificación expedida por el Agente Diplomático o Consular, previa la traducción y autenticación legal.

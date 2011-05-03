@@ -1,4 +1,0 @@
-Artículo 25.—En la inscripción del nacimiento del expósito, se hará mención de todas las circunstancias fijadas en el artículo 52 de la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil.
-Con el fin de que el expósito lleve nombre y apellidos, la persona que hace la declaración o solicita la inscripción, indicará hasta dos nombres y uno o dos apellidos; si se escoge un único apellido éste se repetirá. No se admitirán nombres o apellidos extranjeros, ni aquéllos que pueden hacer sospechar el origen del expósito, causarle burla o descrédito o exponerlo al desprecio público.
-(Así adicionado el párrafo anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 13 del 21 de junio de 1974)
-(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 4 del 1° de setiembre de 1969)

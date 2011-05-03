@@ -1,1 +1,0 @@
-Artículo 42.—Cuando del Registro resultaren constancias o declaraciones que contradigan el certificado de la partida de matrimonio, el Director del Registro suspenderá la inscripción y pondrá en conocimiento del respectivo funcionario las dificultades que la impiden, para que éste lo comunique a los interesados.

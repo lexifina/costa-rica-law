@@ -1,1 +1,0 @@
-Artículo 54.—Toda inscripción de defunción se anotará al margen del correspondiente asiento de nacimiento, cuando estuviere inscrito. En la respectiva tarjeta del índice de nacimiento se pondrá razón que exprese la defunción de la persona.

@@ -1,1 +1,0 @@
-Artículo 59.—El Registro Civil extenderá a quien solicite, previo pago de las especies fiscales correspondientes, certificación de asiento o asientos inscritos, o de que no aparece inscrito determinado suceso.

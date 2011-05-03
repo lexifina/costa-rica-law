@@ -1,1 +1,0 @@
-Artículo 29.—Al hacer la declaración de un nacimiento, el funcionario hará la inscripción en el libro talonario respectivo con todas las circunstancias que la ley exige y la firmará con el declarante, o con dos testigos de asistencia si el declarante no porta cédula de identidad; de dicha inscripción sacará copia y la remitirá firmada al Registro Central, por el correo inmediato.

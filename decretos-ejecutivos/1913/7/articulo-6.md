@@ -1,1 +1,0 @@
-Artículo 6°—Los Gobernadores en los cantones centrales y los Jefes Políticos en los cantones menores, son los encargados de la celebración de los matrimonios civiles, y de expedir el documento correspondiente para su inscripción.

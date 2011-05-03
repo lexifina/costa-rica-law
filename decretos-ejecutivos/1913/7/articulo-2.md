@@ -1,1 +1,0 @@
-Artículo 2°—Cuando el ejército se hallare en campaña, el Jefe de todo cuerpo o columna que deba operar con independencia, encargará del servicio del Registro a un oficial, el cual se sujetará a las prescripciones legales para inscribir provisionalmente los actos civiles que ocurran.

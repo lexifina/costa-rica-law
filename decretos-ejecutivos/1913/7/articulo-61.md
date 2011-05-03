@@ -1,1 +1,0 @@
-Artículo 61.—Cuando los Registradores Auxiliares se encontraren ausentes de la Oficina, los Oficiales Mayores o los Secretarios podrán recibir en su lugar las declaraciones que ocurran y enviarlas al Registro Civil.

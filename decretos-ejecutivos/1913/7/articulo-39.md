@@ -1,1 +1,0 @@
-Artículo 39.—Las certificaciones de los matrimonios católicos celebrados en el territorio de la República, se enviarán por los señores párrocos, en el término más corto que permita el servicio de Correos, al Registro Civil.

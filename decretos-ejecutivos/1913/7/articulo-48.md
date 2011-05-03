@@ -1,2 +1,0 @@
-Artículo 48.—El parte de defunción se debe dirigir al Registro Civil dentro de las veinticuatro horas, si la inhumación se verificase en esta capital y dentro del término más breve que sea posible conforme al servicio de correos, tratándose de los demás lugares de la República; y debe contener las circunstancias exigidas en el artículo 61 de la Ley Orgánica del Tribunal Supremo de Elecciones y Registro Civil.
-(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 4 del 1° de setiembre de 1969)

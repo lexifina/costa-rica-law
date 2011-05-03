@@ -1,1 +1,0 @@
-Artículo 62.—Todos los encargados del Registro responderán de los daños v perjuicios que ocasionen en el ejercicio de sus funciones por la inobservancia de las leyes y reglamentos que al Registro se refieran.

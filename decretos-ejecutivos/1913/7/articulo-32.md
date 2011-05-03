@@ -1,1 +1,0 @@
-Artículo 32.—Ratificada verbalmente la solicitud y llenados los requisitos del artículo 64 del Código Civil, el funcionario que haya de celebrar el matrimonio mandará publicar los edictos de ley en el periódico oficial, y señalarán día para el examen de los testigos.

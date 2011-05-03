@@ -1,1 +1,0 @@
-Artículo 63.—Tanto los Registradores Auxiliares corno los Tesoreros de las Juntas de Protección Social y encargados de Cementerios, están en la obligación de corregir o anular en su caso, todos los documentos que el Registro Civil les devuelva por defectuosos, de manera que debidamente corregidos puedan inscribirse conforme a este reglamento.
