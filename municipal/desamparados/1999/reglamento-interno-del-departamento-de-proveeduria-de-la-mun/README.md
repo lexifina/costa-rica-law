@@ -16,3 +16,4 @@ Reglamento Interno del Departamento de Proveeduría de la Municipalidad de Desam
 | 1 | 1999-03-14 | la propia norma |
 | 2 | 2005-01-07 | Acuerdo municipal 207 (2005-01-07) |
 | 3 | 2008-11-04 | Reglamento municipal 68 (2008-11-04) |
+| 4 | 2011-05-03 | Reglamento municipal 28 (2011-05-03) |
