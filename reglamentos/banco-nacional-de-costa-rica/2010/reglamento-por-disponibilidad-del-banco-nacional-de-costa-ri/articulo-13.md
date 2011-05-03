@@ -1,10 +1,8 @@
-Artículo 13.—Obligaciones. Los funcionarios cubiertos por este régimen están obligados a:
-a. Presentarse a laborar en el momento y a la hora en que se le solicite o atender la situación en forma remota en el caso de que tal provisión sea realizable.
-b. Brindar a quién corresponda al menos un número telefónico, dirección domiciliar y/o cualquier otro elemento que facilite su localización de forma ágil y oportuna.
-c. Desempeñar las labores para el Banco cuando sea requerido por sus superiores con preferencia a cualquier otro asunto.
-d. El trabajador prestará el servicio de disponibilidad durante los turnos que le indique la jefatura respectiva, los cuales podrán ser de hasta por un mes.
-e. Los funcionarios o empleados sujetos a este régimen no podrán desempeñar labores ajenas a las realizadas en el Banco Nacional, cuando aquellos impliquen subordinación, sujeción a horario y otras circunstancias que les obligue a acatar órdenes o a permanecer jornadas a tiempos fijos en el desempeño de las funciones realizadas fuera del Banco.
-f. Mantenerse disponible en condiciones idóneas, entendiéndose por tales, aquellas capacidades físicas y mentales aptas y normales que le permitan ejecutar de forma adecuada y oportuna sus funciones en el momento que se le solicite.
-g. Permanecer en un radio de acción que le permita estar en el lugar en donde se le requiere en un plazo no mayor a 60 minutos, contados a partir del momento en que se reciba en forma efectiva la notificación respectiva.
-h. Reportar los movimientos y circunstancias que incidan en el lugar y hora en que debe llamársele a prestar funciones o que afecten la capacidad de acudir con la presteza necesaria, en el desempeño de su trabajo en forma eficiente.
-i. Consultar con la administración para la realización de viajes fuera de su círculo de movimientos habituales.
+Artículo 13.—Suspensión de la disponibilidad. Serán motivos de suspensión del deber del servidor de prestar activamente la disponibilidad las siguientes:
+a. El disfrute de una licencia con o sin goce de salario.
+b. El cursar un programa de capacitación de interés institucional cuyas características sean incompatibles con las obligaciones del régimen de disponibilidad.
+c. El disfrute efectivo de vacaciones.
+d. La incapacidad o suspensión en el ejercicio de sus funciones.
+En caso de enfermedad u otra causa de fuerza mayor debidamente comprobada que le impida al trabajador prestar el servicio de disponibilidad a que hace referencia este reglamento, o que lo obligue a interrumpirlo, siempre y cuando ocurran durante el periodo en que le correspondiera prestar dicho servicio, el trabajador estará en la obligación de notificar de inmediato y en forma directa tal contingencia a su jefatura respectiva o a quien por turno corresponda, por cualquier medio idóneo a su alcance, con el objeto de que se puedan hacer los arreglos necesarios de manera que el servicio de disponibilidad no se vea interrumpido.
+En estos casos es entendido que la remuneración que corresponde, será proporcional a los días efectivamente laborados bajo el régimen de disponibilidad.
+El Banco permitirá permutas en la disponibilidad a los colaboradores por un periodo completo de servicio o fracción de éste, siempre que tal cambio haya sido aprobado por la Jefatura respectiva, comunicado previamente a la Dirección de Recursos Humanos y que ésta considere que las razones aducidas son válidas para permitirla.

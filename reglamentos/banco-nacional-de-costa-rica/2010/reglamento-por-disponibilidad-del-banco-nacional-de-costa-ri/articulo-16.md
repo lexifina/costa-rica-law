@@ -1,2 +1,1 @@
-Artículo 16.—Vigencia. Este reglamento rige a partir de su aprobación por la Junta Directiva del Banco Nacional.
-La Uruca, San José, 06 de agosto del 2010.—
+Artículo 16.—Consecuencias del incumplimiento. Se considera falta grave del trabajador el incumplimiento de las disposiciones y obligaciones de este reglamento, por lo que podrán serle aplicadas las sanciones que en derecho correspondan a este tipo de falta, previo procedimiento administrativo de investigación.

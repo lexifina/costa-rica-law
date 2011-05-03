@@ -1,5 +1,9 @@
-CAPÍTULO III
-Aspectos reglamentarios
-Artículo 4º—Compensación Económica. La compensación económica será del 25% sobre el salario base diario a reconocer por cada día que este en disponibilidad.
-Este reconocimiento podrá otorgarse únicamente a aquellos servidores que desempeñen un puesto a tiempo completo en el Banco y por causa de las condiciones o necesidades objetivas de la institución, cambios funcionales u otros motivos que justifican su pago.
-Debido a su naturaleza temporal y de ejercicio preferiblemente rotativo, así como por estar dirigida a la afectación de un puesto, la compensación económica por el ejercicio efectivo de la disponibilidad no genera derechos permanentes para el colaborador afectado.
+CAPÍTULO II
+Aplicación del Reglamento
+Artículo 4º—Aspectos Generales. El presente reglamento es aplicable a todo colaborador del Banco Nacional de Costa Rica.
+El reconocimiento se considera como un monto adicional a pagar mensualmente, no tiene carácter de pago permanente.
+Este reconocimiento se pagará en aquellos casos en los que el funcionario desempeñe una labor relacionada directamente con el servicio por prestar, y que su participación sea determinante para garantizar la continuidad eficiente de dicho servicio.
+Cuando desaparezcan las condiciones objetivas que dieron origen al pago, se dejará de realizar el reconocimiento de disponibilidad.
+La suma reconocida por este concepto, para los efectos correspondientes debe considerarse como salario.
+Las jefaturas son las responsables de la autorización y control de las personas que disfruten de este reconocimiento, para lo que deben comunicar a la Dirección de Recursos Humanos la inclusión en el régimen de los funcionarios escogidos. En aquellas oficinas en las que existen varios funcionarios que desempeñan labores que justifiquen la inclusión en el régimen para atender la misma función será responsabilidad de la jefatura establecer los roles respectivos, de manera que todos estos empleados tengan la posibilidad de acogerse al beneficio.
+En todos los casos, la Administración valorará y decidirá sobre las solicitudes de inclusión al sistema.

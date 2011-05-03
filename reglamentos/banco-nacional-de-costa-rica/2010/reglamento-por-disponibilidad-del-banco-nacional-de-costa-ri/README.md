@@ -14,3 +14,4 @@ Reglamento por Disponibilidad del Banco Nacional de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-29 | la propia norma |
+| 2 | 2011-05-03 | Reglamento 11697 (2011-05-03) |
