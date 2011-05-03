@@ -14,3 +14,4 @@ Reforma acuerdo SJD-1165-2005 del 6 de diciembre del 2005 "Procedimiento Institu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-07 | la propia norma |
+| 2 | 2011-05-03 | Acuerdo 0 (2011-05-03) |
