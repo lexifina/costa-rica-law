@@ -1,1 +1,0 @@
-III.—Mantener la homologación de los dispositivos terminales de telefonía móvil, siempre y cuando éstas hayan sido realizadas de previo a la publicación del Reglamento de Prestación y Calidad de Servicios (La Gaceta N° 82 del 29 de abril del 2009).

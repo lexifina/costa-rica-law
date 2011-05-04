@@ -1,1 +1,0 @@
-IX.—Velar por la observancia de los requisitos y plazos establecidos por la SUTEL por parte de los laboratorios acreditados para la homologación de equipos terminales de telefonía móvil, pudiendo retirar la acreditación otorgada en caso de incumplimiento.

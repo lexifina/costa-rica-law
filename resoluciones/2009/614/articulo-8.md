@@ -1,1 +1,0 @@
-VIII.—Establecer que una vez analizadas las solicitudes de acreditación y cumplidos los requisitos definidos por la SUTEL, este Ente Regulador comunicará a los interesados y publicará en su página WEB la lista de laboratorios de homologación de equipos terminales de telefonía móvil acreditados.
