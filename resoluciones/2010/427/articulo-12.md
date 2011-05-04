@@ -1,3 +1,0 @@
-XII.—Mantener invariable en los demás extremos la RCS-614-2009 de las 10:30 horas del 18 de diciembre del 2009, las cuales no fueron modificados en el presente acto de revocación parcial.
-En cumplimiento de lo que ordena el artículo 345 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de revocatoria o reposición ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente a la publicación de la presente resolución.
-Publíquese en el Diario Oficial La Gaceta. Téngase esta resolución a disposición del público en un lugar visible dentro de la Institución y en la página web de la Institución.

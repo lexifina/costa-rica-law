@@ -1,1 +1,0 @@
-X.—Aclarar el punto X aparte 6 del Por tanto de la citada resolución, para que en adelante se entienda que el identificador de equipo homologado deberá ubicarse en la parte interna del terminal y que además la SUTEL podrá valorar el establecimiento de etiquetas digitales.
