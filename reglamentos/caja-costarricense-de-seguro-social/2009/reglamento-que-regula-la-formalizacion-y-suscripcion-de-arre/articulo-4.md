@@ -1,1 +1,0 @@
-Artículo 4º—De la inclusión de la cuota obrera en arreglo y convenios de pago con patronos. Se podrá incluir la cuota obrera de planillas ordinarias y adicionales, por todo el plazo en que se formalice el arreglo, convenio de pago o readecuación de pago.
