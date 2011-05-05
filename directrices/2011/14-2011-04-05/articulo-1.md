@@ -1,0 +1,24 @@
+DIRECTRIZ
+MINISTERIO DE TRABAJO Y SEGURIDAD SOCIAL
+Nº 014
+LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL
+Y EL DIRECTOR NACIONAL E INSPECTOR GENERAL DE TRABAJO
+Con fundamento en los incisos 3), 18) y 20) del artículo 140 de la Constitución Política, en los numerales 24, 25, 27, 28, 59, 83 y 103 de la Ley General de la Administración Pública, en ejecución de los artículos 4, del 88 a 102, 141 y 143 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social y 77, 78, 79 y 81 del Reglamento de Reorganización y Racionalización de dicha Cartera, y artículos 89 inciso 4), 90), 91) y 92) de la Ley General de la Administración Pública, el inciso h) del artículo 10 y el Transitorio Tercero del Decreto N° 28578-MTSS publicado en el Alcance N° 28 de La Gaceta N° 76 del 18 de abril del 2000, Directriz 023-2008 de fecha de publicación 28 de agosto del año 2008, emiten la siguiente directriz.
+Considerando:
+1º—Que el país ha desarrollado, durante la presente administración, una política social tendiente a hacer efectiva la protección del salario mínimo como instrumento que contribuya a la disminución de la pobreza y de la brecha social.
+2º—Que atendiendo a los fines señalados resulta necesario realizar una adición al Manual de Procedimientos de la Inspección de Trabajo, emitido por Directriz No. 023-2008 de fecha de publicación 28 de agosto del año 2008, con el ánimo de hacer un procedimiento más ágil para los inspectores de trabajo y la eminente protección de los derechos laborales .
+3°—Que la implementación de este nuevo procedimiento permitirá realizar solicitudes de información a los patronos sin necesidad de traslados de los funcionarios del Ministerio al centro de trabajo, con un consecuente ahorro económico para la institución, con lo cual se da cumplimiento a la Directriz No. 013-H, emitida por la Presidenta de la República, en fecha 26 de febrero del año 2011, específicamente en cuanto a la racionalización del gasto y el deber de maximizar los recursos de todo tipo con que cuenta la administración pública.
+POR TANTO
+LA MINISTRA DE TRABAJO Y SEGURIDAD SOCIAL
+Y EL DIRECTOR NACIONAL E INSPECTOR GENERAL DE TRABAJO
+EMITEN:
+La presente adición a la Directriz 023 publicada en fecha 28 de agosto del año 2008, denominado, “Manual de Procedimientos de la Inspección de Trabajo”:
+Artículo 1. Se adiciona un Capítulo VIII, para que en lo sucesivo se lea:
+CAPÍTULO VIII
+ACTA DE INSPECCIÓN DE SOLICITUD DE INFORMACIÓN
+1º—Acta inspectiva de solicitud de información: El Inspector de Trabajo comisionado debe enviar por la vía que considere pertinente y siempre que sea de manera fehaciente y fácil de comprobar un acta escrita al centro de trabajo, solicitando información que considere oportuna.
+2º—Alcances de la Acta de solicitud de información: Cuando la inspección inicia con un acta escrita de solicitud de información, se le deberá informar al centro de trabajo, los alcances de la presente, junto con el tiempo y lugar en donde puede contactar al inspector y dirigir lo prevenido. En caso de no entregar lo solicitado dentro del plazo requerido o bien la misma sea omisa, se hará la denuncia respectiva de conformidad con lo dispuesto por el artículo 617 del Código de Trabajo.
+3°—Revisión de documentación: Se procede a revisar la misma en las Oficinas de Inspección de Trabajo, entre la información que se puede pedir están la personería jurídica, planillas internas, las de la CCSS y las del INS, los comprobantes de pago de salarios y cualquier otro documento que se requiera para determinar si existe o no alguna infracción, en los términos indicados por los artículos 12 inciso c.ii y 16 inciso b.ii de los Convenios 81 y 129, de la OIT, respectivamente.
+4º—Corroboración de la información solicitada: El inspector, al finalizar la corroboración de la información solicitada en su sede y no habiendo detectado posible infraccionalidad, deberá comunicar en el medio escogido por el centro de trabajo el cierre del ciclo inspectivo o en caso de detectar posible infraccionalidad, indicar la forma de subsanar las mismas, junto con el plazo otorgado y el recurso contra la misma de conformidad con el artículo 139 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social; así como las consecuencias laborales y legales en caso de persistir la infracción.
+5º—La visita de revisión: Una vez concluido el plazo fijado para que el patrono se ponga a derecho, el inspector de trabajo se apersona al mismo para corroborar la persistencia o no de la posible infracción. El inspector de trabajo procede en el orden que considere más adecuado, a desarrollar los actos previstos en el artículo 2.2.2 y siguientes del Capítulo 3 de la directriz No. 023-2008.
+6º—Supletoriedad: Lo no previsto en la presente y en cuanto no hubiere incompatibilidad se aplicará lo dispuesto en el Capítulo III. Las acciones de la Inspección de Trabajo y sus procedimientos de la directriz No. 023-2008.
