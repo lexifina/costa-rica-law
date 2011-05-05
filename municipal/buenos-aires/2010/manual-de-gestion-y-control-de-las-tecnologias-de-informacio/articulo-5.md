@@ -1,0 +1,6 @@
+CAPÍTULO V
+Seguimiento
+5.1.—Seguimiento de los procesos de TI. El Departamento de Informática además de sus actividades ordinarias de soporte al hardware, sistemas actuales de aplicaciones y comunicaciones, debe anualmente proponer objetivos de mejora, para los cuales debe conseguir financiamiento de la liquidación presupuestaria o bien de alguna otra fuente de financiamiento, al finalizar la ejecución anual, se hará una evaluación del cumplimiento de objetivos, misma que se incluirá en la evaluación del Plan Anual Operativo PAO; así mismo para las actividades ordinarias generará procedimientos cada vez más optimizados.
+5.2.—Seguimiento y evaluación del control interno en TI. Es obligación del Departamento de Informática documentar el procedimiento ejecutado para resolver excepciones presentadas en la plataforma tecnológica en general.
+5.3.—Sanciones. Cualquier incumplimiento a este Manual de Normas, autoriza a la administración a iniciar el respectivo procedimiento administrativo contra el funcionario responsable, de acuerdo con lo dispuesto en el Reglamento Autónomo de Servicios de la Municipalidad de Buenos Aires, el Código Municipal, el Código de Trabajo o cualquier normativa que rija al respecto.
+Buenos Aires, 7 de abril del 2011.—
