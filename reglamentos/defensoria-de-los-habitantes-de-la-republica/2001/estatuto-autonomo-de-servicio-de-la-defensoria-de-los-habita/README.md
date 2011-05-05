@@ -15,3 +15,4 @@ Estatuto Autónomo de Servicio de la Defensoría de los Habitantes
 | --- | --- | --- |
 | 1 | 2002-01-31 | la propia norma |
 | 2 | 2006-07-21 | Acuerdo 1158 (2006-07-21) |
+| 3 | 2011-05-05 | Acuerdo 1626 (2011-05-05) |
