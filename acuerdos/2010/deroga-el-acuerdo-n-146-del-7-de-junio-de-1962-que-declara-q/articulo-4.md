@@ -1,0 +1,1 @@
+4º—Que el ingreso de turistas, trabajadores transfronterizos, temporales y de ocupación específica por el Puesto Fronterizo Terrestre de Peñas Blancas, se ha incrementado en forma considerable en los últimos años.

@@ -1,0 +1,1 @@
+3º—Que en los últimos años la actividad migratoria que se desarrolla en el Puesto Fronterizo Terrestre de Peñas Blancas, se ha ejecutado en el edificio “Alfonso Monge Ramírez”, en donde se tiene instalado el recurso material y tecnológico para brindar el servicio de control migratorio.

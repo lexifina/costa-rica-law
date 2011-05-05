@@ -1,0 +1,1 @@
+6º—Que mediante este acuerdo las instituciones aquí representadas, manifiestan que corresponderá a la Dirección General de Migración y Extranjería, la función de conservar y administrar las obras conocidas como Puesto Fronterizo Terrestre “Alfonso Monge Ramírez”, ubicado en Peñas Blancas, por ser una dependencia pública.

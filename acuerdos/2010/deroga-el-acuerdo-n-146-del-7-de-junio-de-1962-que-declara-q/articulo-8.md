@@ -1,0 +1,1 @@
+8º—Que corresponderá a la Dirección General de Migración y Extranjería, en caso que así se determine, el pago del rubro de Canon por el arrendamiento del edificio “Alfonso Monge Ramírez”, ante la autoridad respectiva.

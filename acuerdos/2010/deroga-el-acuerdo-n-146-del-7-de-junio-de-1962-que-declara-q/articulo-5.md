@@ -1,0 +1,1 @@
+5º—Que para realizar un control migratorio acorde con las necesidades de seguridad que requiere el país, la Dirección General de Migración y Extranjería requiere tener la administración del edificio “Alfonso Monge Ramírez”, para poder realizar las mejoras de infraestructura y tecnológicas necesarias, con la finalidad de modernizar el servicio de control migratorio.
