@@ -1,0 +1,1 @@
+Artículo 11.—De las declaraciones de las personas involucradas en el proceso. Toda persona denunciante o testigo de un acoso sexual u hostigamiento, tiene la garantía de que no sufrirá perjuicio alguno por sus declaraciones, siempre que éstas no sean difamatorias, injuriosas o calumniosas.

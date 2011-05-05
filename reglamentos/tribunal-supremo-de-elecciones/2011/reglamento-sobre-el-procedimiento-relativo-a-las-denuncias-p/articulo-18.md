@@ -1,0 +1,3 @@
+Artículo 18.—De la vigencia y derogatoria. Este Reglamento entrará a regir a partir de su publicación en La Gaceta y se hará de conocimiento de todas las personas trabajadoras, personas usuarias, la Defensoría de los Habitantes y demás interesados, de conformidad con los mecanismos que prevé la Ley Nº 7476 y sus reformas.
+Se deroga en su totalidad el Reglamento del Procedimiento para las denuncias por acoso u Hostigamiento Sexual del Tribunal Supremo de Elecciones, promulgado mediante decreto de este Tribunal Nº 3-95 del 31 de octubre de 1995.
+Dado en San José, a los siete días del mes de abril del dos mil once.

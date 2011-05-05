@@ -1,0 +1,3 @@
+Artículo 4º—Del órgano director del procedimiento. Las denuncias por acoso u hostigamiento sexual serán investigadas por la Inspección Electoral, que conformará un órgano colegiado director del procedimiento y que estará integrado por su jefatura y dos personas profesionales en Derecho de la oficina.
+Cuando la denuncia sea contra un Magistrado o Magistrada o personas funcionarías de la Inspección Electoral, el Tribunal designará órgano colegiado ad hoc para que instruya el procedimiento.
+De acuerdo con el artículo 20 de la Ley Nº 7476, en dicho órgano deberán estar representados ambos sexos y por personas que, preferiblemente, cuenten con conocimientos en materia de hostigamiento sexual y régimen disciplinario.

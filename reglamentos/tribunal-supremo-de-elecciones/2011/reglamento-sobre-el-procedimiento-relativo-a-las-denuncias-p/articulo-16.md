@@ -1,0 +1,1 @@
+Artículo 16.—De la información a la Defensoría de los Habitantes. El Tribunal deberá informar sobre las denuncias de acoso u hostigamiento sexual, así como el resultado del procedimiento que se realice, a la Defensoría de los Habitantes y al Instituto Nacional de las Mujeres.

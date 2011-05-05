@@ -1,0 +1,1 @@
+Artículo 17.—Normativa complementaria. En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Ley Nº 7476 y sus reformas, la Ley General de la Administración Pública, el Reglamento Autónomo de Servicios del Tribunal Supremo de Elecciones y el Código de Trabajo.

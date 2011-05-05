@@ -1,0 +1,1 @@
+Artículo 9º—Del notificador. El órgano instructor designará como notificador a un funcionario o funcionaria que no esté vinculado ni directa ni indirectamente con el procedimiento; esta persona diligenciará personalmente todos los documentos vinculados con dicho proceso.

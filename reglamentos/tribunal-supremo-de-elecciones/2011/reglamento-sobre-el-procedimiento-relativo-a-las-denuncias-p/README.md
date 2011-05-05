@@ -1,0 +1,16 @@
+# Reglamento (2011-04-07)
+
+Reglamento sobre el Procedimiento relativo a las Denuncias por Acoso u Hostigamiento Sexual en el Tribunal Supremo de Elecciones
+
+- Tipo: Reglamento
+- Número: 4
+- Fecha: 2011-04-07
+- Ente emisor: Tribunal Supremo de Elecciones
+- Publicación: La Gaceta N° 86 del 2011-05-05
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=70182&param2=84593&param3=1 (ficha 70182)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2011-05-05 | la propia norma |

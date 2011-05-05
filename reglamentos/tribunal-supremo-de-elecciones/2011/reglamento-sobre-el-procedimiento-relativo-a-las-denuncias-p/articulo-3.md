@@ -1,0 +1,1 @@
+Artículo 3º—Comunicación de la denuncia al jerarca. Una vez presentada la denuncia, la Inspección Electoral o la Secretaría, según el caso, informará al Tribunal, en un plazo no mayor de tres días hábiles, sobre la denuncia planteada.

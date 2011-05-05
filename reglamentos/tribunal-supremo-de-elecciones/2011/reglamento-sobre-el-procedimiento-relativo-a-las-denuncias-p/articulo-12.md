@@ -1,0 +1,1 @@
+Artículo 12.—De la presentación del informe final del procedimiento. El órgano director presentará un informe al Tribunal sobre el resultado del procedimiento, en el cual deberá pronunciarse sobre la procedencia o improcedencia de la denuncia. En caso de que proceda, recomendará al Tribunal la imposición del régimen disciplinario que corresponda.
