@@ -14,3 +14,4 @@ Reglamento para el Programa de Fortalecimiento para la innovación y Desarrollo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-01 | la propia norma |
+| 2 | 2011-05-06 | Decreto Ejecutivo 36575 (2011-05-06) |

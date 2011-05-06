@@ -1,4 +1,6 @@
+(Derogado)
 Nº 31296-MICIT-MEIC
+(Este decreto fue derogado por el artículo 3 de la norma que aprueba el Reglamento para el Programa de Fortalecimiento para la Innovación y Desarrollo Tecnológico de las PYME", aprobado mediante decreto ejecutivo N° 36575 del 6 de mayo del 2011)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE CIENCIA Y TECNOLOGÍA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
