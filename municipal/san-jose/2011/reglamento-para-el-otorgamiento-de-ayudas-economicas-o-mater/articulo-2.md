@@ -1,0 +1,5 @@
+CAPÍTULO II
+Beneficiarios y requisitos
+Artículo 2º—Del ámbito de aplicación. La Municipalidad podrá otorgar ayudas temporales a sus trabajadores (as), que enfrenten situaciones debidamente comprobadas de desgracia o infortunio, entre las cuales este Reglamento contempla:
+a) Aquellos casos que presentan problemas de riesgo por desastre o por la manifestación de la emergencia o desastre. El riesgo esta conformado tanto por la manifestación de amenazas de origen físico natural (huracanes, inundaciones, sismos, deslizamientos, sequía); por amenazas causadas por la acción humana (incendios, contaminación del ambiente) y por amenazas de origen tecnológico (materiales peligrosos) que ponen en peligro la vida humana, los bienes materiales y al medio ambiente en un momento y espacio determinado.
+b) Aquellos casos de pobreza donde se presenten situaciones como muerte, incapacidad u otros acontecimientos de carácter transitorio, que afecten coyunturalmente la condición socioeconómica del núcleo familiar.

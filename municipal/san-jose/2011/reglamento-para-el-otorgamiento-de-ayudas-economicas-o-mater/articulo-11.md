@@ -1,0 +1,4 @@
+Artículo 11.—
+a. Si en cualquier momento del proceso de estudio, trámite o entrega de la ayuda, existieren indicios suficientes para creer que los documentos o información suministrada por la persona solicitante son falsos, la dependencia que tenga en su poder el expediente, suspenderá el proceso seguido y lo remitirá a la Comisión Técnica de Estudios de Solicitud, mediante informe en el que establezca la presunción de falsedad, para que esta instancia proceda a revisar el caso a ratificar o denegar la solicitud o acuerdo emitido. Dicha Comisión comunicará al solicitante sobre el particular.
+b. En el curso de que un trabajador (a) por motivo de renuncia, despido, finalización del contrato o pensión, durante el trámite requerido para el otorgamiento de este beneficio, se procederá a archivar la solicitud presentada.
+c. Si el trabajo(a) se reincorpora en un plazo no mayor de 40 días hábiles, podrá retornar la solicitud planteada.

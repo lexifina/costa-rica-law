@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión Técnica de Estudio de solicitudes deberá garantizar la reserva de un monto determinado en el presupuesto anual disponible, para efectos de atender situaciones de emergencia o desastre que puedan presentarse en el transcurso del año.
