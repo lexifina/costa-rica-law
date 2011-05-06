@@ -1,0 +1,2 @@
+Artículo 3º—El documento que contiene el Plan estará disponible en el sitio web del Ministerio de Ciencia y Tecnología, específicamente en la dirección electrónica (http://www.micit.go.cr/index.php/administracion/plan-de-compras-2011.html).
+(Nota de Sinalevi: El Plan Nacional de Ciencia, Tecnología e Innovación (2011-2014), puede ser consultado en el sitio web del Ministerio de Ciencia y Tecnología )
