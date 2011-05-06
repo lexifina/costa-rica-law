@@ -1,0 +1,3 @@
+Artículo 2.Bis Del plazo para la renovación de la licencia de pesca comercial
+Los permisionarios de licencia de pesca comercial contarán con un plazo de dos meses calendario a partir del vencimiento de la licencia de pesca, para realizar las gestiones o solicitudes de trámites de prórrogas de renovación de la licencia de pesca comercial en forma legal ante las Oficinas y autoridades del INCOPESCA.
+(La adición practicada de este numeral por acuerdo AJDIP/151-2011 de 6 de mayo del 2011, posteriormente fue dejada sin efecto por acuerdo AJDIP/395 del 31 de octubre de 2014. Se advierte que dicha derogación no se ha aplicado a este numeral, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver esta norma a su estado anterior a dicha adición).
