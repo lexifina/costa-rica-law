@@ -1,0 +1,4 @@
+Artículo 18.—Secretario(a). En la primera sesión del Concejo de Distrito se elegirá de entre los miembros que constituyan dicho órgano a una persona para que cumpla con la función de secretario(a); este tendrá las siguientes funciones:
+a) Asistir a las sesiones, levantar las actas y tenerlas listas para su firma, en el libro destinado al efecto, el cual deberá estar foliado y debidamente autorizado por el Auditor(a) Interno de la Municipalidad. El acta debe ser especifica en lugar y tiempo, asistentes, orden del día de la reunión. Los puntos principales de las deliberaciones, así como el contenido de los acuerdos adoptados.
+b) Transcribir y notificar los acuerdos a quien corresponda.
+Las actas se aprobarán al inicio de cada reunión y se enviarán a todos los miembros del Concejo de Distrito con copia al Concejo Municipal y a la Asociación de Desarrollo Comunal.

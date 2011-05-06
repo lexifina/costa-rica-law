@@ -1,0 +1,1 @@
+Artículo 17.—Vicepresidente(a). Será Vicepresidente del Concejo de Distrito el Síndico Suplente, y en concordancia con el artículo anterior sustituye al Presidente y asume sus funciones en los supuestos de urgencia, ausencia, enfermedad o por delegación expresa de aquel.

@@ -1,0 +1,3 @@
+Artículo 19.—Quórum. Para la validez de los acuerdos del Concejo de Distrito será necesaria. La asistencia de al menos la mitad más uno de sus miembros, siendo en todo caso necesaria la presencia del Presidente y del Secretario o bien de las personas que legalmente les sustituyan.
+Las sesiones deberán iniciarse dentro de los 15 minutos a partir de la hora señalada. Si en primera convocatoria no existiera quórum necesario, según lo expuesto en el párrafo anterior, se entenderá convocada la sesión automáticamente treinta minutos después siendo valida su constitución en esta segunda convocatoria cualquiera que sea el número de sus asistentes, siempre y cuando no sea inferior a tres miembros con derecho a voto.
+Los acuerdos se adoptarán por mayoría simple.

@@ -1,0 +1,1 @@
+Artículo 10.—Los acuerdos y resoluciones del Concejo de Distrito, serán tramitados y/o ejecutados por su presidente, o sindico propietario. En ausencia de este asumirá dicha función el síndico suplente.

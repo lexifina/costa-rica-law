@@ -1,0 +1,1 @@
+Artículo 4º—Los Concejos de Distrito serán integrados por cinco miembros vecinos del Distrito, residentes en este, a quienes se denominará concejales. El síndico propietario ejercerá la presidencia del Concejo y en su ausencia será sustituido por el síndico suplente.

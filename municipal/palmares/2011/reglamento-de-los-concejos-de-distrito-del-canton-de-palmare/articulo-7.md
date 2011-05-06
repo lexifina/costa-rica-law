@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad ejecutará sus obras o servicios públicos en cada distrito, atendiendo prioridades fijadas por el Concejo de Distrito, atendiendo las recomendaciones del Programa de Gobierno de la Alcaldía Municipal y el Plan de Desarrollo Humano del cantón de Palmares.

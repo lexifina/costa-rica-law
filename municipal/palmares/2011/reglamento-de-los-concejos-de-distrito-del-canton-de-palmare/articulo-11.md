@@ -1,0 +1,1 @@
+Artículo 11.—El Concejo de Distrito deberá reunirse ordinariamente al menos una vez al mes. Puede celebrar sesiones extraordinarias previa convocatoria del Presidente o cuando así lo convoquen tres de sus miembros con al menos veinticuatro horas de anticipación, e informando a la totalidad de los concejales y a los síndicos sobre dicha convocatoria.

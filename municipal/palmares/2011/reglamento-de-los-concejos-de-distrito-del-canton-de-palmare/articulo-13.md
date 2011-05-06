@@ -1,0 +1,1 @@
+Artículo 13.—Las sesiones se desarrollarán de acuerdo al Orden del Día, previamente confeccionada por el presidente, o quien lo sustituya, éste podrá ser modificado mediante acuerdo de mayoría simple.
