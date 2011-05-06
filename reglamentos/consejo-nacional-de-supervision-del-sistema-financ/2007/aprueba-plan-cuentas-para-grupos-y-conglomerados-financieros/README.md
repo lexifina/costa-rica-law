@@ -18,3 +18,4 @@ Aprueba Plan Cuentas para Grupos y Conglomerados Financieros, Deroga Plan Cuenta
 | 3 | 2009-08-14 | Reglamento 797 (2009-08-14) |
 | 4 | 2010-05-07 | Reglamento 850 (2010-05-07) |
 | 5 | 2010-05-21 | Reglamento 853 (2010-05-21) |
+| 6 | 2011-05-06 | Reglamento 910 (2011-05-06) |
