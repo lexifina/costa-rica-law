@@ -21,6 +21,8 @@ LISTA DE PRODUCTOS PARA LA ACTIVIDAD AGROPECUARIA
 - Alambre de acero recubierto para marcos de colmenas.
 - Alambre de acero según especialización AISI 1045 de 11.10 mm.
 - Alambre de púas.
+- Alfombra de caucho reciclado para uso exclusivo en ganado bovinos, según especificación: 1.83 metros de largo o 6 pies, 1.22 metros de ancho o 4 pies y 19 milímetros o 3/4 de pulgada de espesor, con bordes lisos y la superficie con estrías en forma de diamante.
+(Así adicionado el ítem anterior mediante resolución de la Dirección General de Hacienda Res. Nº STE 02 del 9 de mayo de 2011)
 - Alimentadores de diferentes tipos.
 - Alimentos terminados medicados o no, para la producción acuícola.
 - Almohadillas para conchar.
