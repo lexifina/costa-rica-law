@@ -1,0 +1,1 @@
+3º—Eliminar en el Arancel automatizado las aperturas arancelarias 2921.19.29.40, 2921.19.29.50, 2921.19.29.60, 2921.19.29.70 y 2930.90.90.37, ya que por error material no fueron eliminadas con la Resolución DGA-406-2010, de fecha 21 diciembre de 2010, publicada en La Gaceta Digital Nº 34 de 17 de febrero de 2011, en razón de la apertura centroamericana que ahora las comprende.
