@@ -1,1 +1,0 @@
-Artículo 36.—Las visas múltiples podrán ser solicitadas ante la Dirección General de Migración y Extranjería por las empresas debidamente inscritas en el registro al que se refiere el presente reglamento.

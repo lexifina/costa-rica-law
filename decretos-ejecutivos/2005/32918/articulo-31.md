@@ -1,1 +1,0 @@
-Artículo 31.—Para el otorgamiento de residencia temporal, los trabajadores de empresas inscritas en la Dirección General de Migración y Extranjería, serán conceptualizados como ejecutivos de empresas, y la actividad laboral a desempeñar se entenderá como avalada por el Ministerio de Trabajo y Seguridad Social sin necesidad de realizar un estudio concreto.

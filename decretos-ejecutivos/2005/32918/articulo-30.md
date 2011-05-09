@@ -1,1 +1,0 @@
-Artículo 30.—Una vez satisfechos los requisitos completos, la Gestión de Extranjería de la Dirección General de Migración y Extranjería resolverá la residencia en un plazo que no excederá de quince días naturales contados a partir de la presentación de la solicitud.

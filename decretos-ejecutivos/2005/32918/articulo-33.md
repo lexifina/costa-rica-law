@@ -1,4 +1,0 @@
-Artículo 33.—Una vez notificada la resolución que otorga la residencia temporal, el trabajador de la empresa inscrita en el Registro de Empresas de la Dirección General de Migración y Extranjería, deberá presentar por sí o interpuesta persona con poder suficiente para realizar trámites migratorios a su nombre, en la ventanilla de atención especial de la Gestión de Extranjería, en el menor plazo posible:
-1. Comprobante que acredita el depósito de los impuestos por concepto de derechos de residencia.
-2. Comprobante que acredita el depósito de los impuestos por concepto de expedición del documento de permanencia que le acredita la condición migratoria que se pretende.
-3. Comprobante que acredita el depósito de garantía al que se refiere el artículo 147 de la Ley General de Migración y Extranjería.

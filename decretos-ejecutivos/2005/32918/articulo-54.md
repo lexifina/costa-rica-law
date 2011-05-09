@@ -1,1 +1,0 @@
-Artículo 54.—La renovación del documento demandará la presencia física del extranjero, para lo cual se otorgará cita previa, asignando una fecha y hora. Sin embargo, cuando el servicio público lo exija, la Dirección General de Migración podrá determinar otro modo de atención al extranjero.

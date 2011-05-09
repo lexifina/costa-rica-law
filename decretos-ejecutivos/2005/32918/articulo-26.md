@@ -1,1 +1,0 @@
-Artículo 26.—Otorgada la visa en calidad provisional de residente temporal, el Director General de Migración y Extranjería remitirá en un término máximo de tres días naturales, el expediente administrativo a la Gestión de Extranjería.
