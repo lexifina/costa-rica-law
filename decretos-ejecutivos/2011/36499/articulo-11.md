@@ -1,0 +1,1 @@
+Artículo 11.—Plazo de revisión de los PGAI: El MINAET contará con un plazo de 40 días naturales, contados a partir del día siguiente a la recepción del documento, para remitir a las instituciones públicas que presentaron sus PGAI, una respuesta que integre los recomendaciones emitidas por la CTE.

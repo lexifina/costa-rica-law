@@ -1,0 +1,1 @@
+Artículo 15.—De los sistemas de gestión ambiental: Los Programas de Gestión Ambiental Institucional indicados en este reglamento serán equiparados con los Sistemas de Gestión Ambiental que establece el artículo 28 de la Ley Nº 8839, para las instituciones de la Administración Pública.

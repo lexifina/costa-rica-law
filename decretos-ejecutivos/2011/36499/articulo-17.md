@@ -1,0 +1,1 @@
+Artículo 17.—Vigencia del PGAI: EL PGAI tendrá una vigencia de 5 años, vencido este plazo, cada organización deberá reformular y presentar su nuevo PGAI, bajo el principio de mejora continua, propio de un Sistema de Gestión Ambiental.

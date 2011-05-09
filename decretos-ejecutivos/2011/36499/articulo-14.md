@@ -1,0 +1,1 @@
+Artículo 14.—Plazo para presentar el PGAI. Las instituciones de la Administración Pública presentarán sus PGAI dentro del plazo de 6 meses, a partir de la publicación de la resolución administrativa que oficializa los instrumentos, según lo indicado en el artículo 9 del presente reglamento.

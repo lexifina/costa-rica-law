@@ -1,0 +1,1 @@
+Artículo 20.—Derogatorias: Deróguese el Decreto Ejecutivo Nº 33889-MINAE, Reglamento para la Elaboración de Planes de Gestión Ambiental en el Sector Público de Costa Rica, del seis de julio de dos mil siete, y los artículos del 71 al 75 del Decreto Ejecutivo Nº 25584-MINAE-H-MP, Reglamento para la Regulación del Uso Racional de la Energía, de 24 de octubre de 1996.
