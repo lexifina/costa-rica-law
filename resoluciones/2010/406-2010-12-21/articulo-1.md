@@ -114,7 +114,7 @@ I | 2903.39.33.00 | - - - - Tetrafluoroetano | 38, 54 | 0 | 1 | 13 | 0 | 0 | 0 |
 I | 2903.39.34.00 | - - - - Pentafluoroetano | 38, 54 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
 I | 2903.39.39.00 | - - - - Los demás | 54 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
 I | 2903.39.40 | - - - Metilbromuro | | | | | | | | | | | | | | |
-I | 2903.39.40.10 | - - - - Para uso agrícola | 38, 54 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
+I | 2903.39.40.10 | - - - - Para uso agrícola | 38, 54 59(*) (*)(Adicionada la nota técnica anterior mediante resolución RES-DGA-099-2011 del 09 de mayo de 2011) | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
 I | 2903.39.40.90 | - - - - Los demás | 38 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
 I | 2903.39.90.00 | - - - Otros | 54 | 0 | 1 | 13 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0 | 0
 E | 2903.44.00 | - - Diclorotetrafluoroetanos y cloropentafluoroetano | | | | | | | | | | | | | | |
@@ -751,3 +751,4 @@ GUY: Tratado de Libre Comercio entre Costa Rica y la Comunidad del Caribe (Guyan
 BAR: Tratado de Libre Comercio entre Costa Rica y la Comunidad del Caribe (Barbados)
 CAFTA-RD: Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos
 CAFTA-DOM: Tratado de Libre Comercio Libre Comercio República Dominicana-Centroamérica-Estados Unidos, anexo 3.3.6
+xyz
