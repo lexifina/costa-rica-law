@@ -1,2 +1,0 @@
-Artículo 7º—Reuniones. Se reunirán al menos tres veces al año convocados por el Líder de la Unidad de Gestión Ambiental o por el presidente del Comité. Para tal efecto la misma Unidad facilitará una sala para las reuniones, así como todos los materiales e insumos que se requieran para la adecuada realización de las mismas.
-En lo que se refiere a convocatorias, deliberaciones, quórum, votaciones y confección de actas, se regirán por las normas del reglamento interno de la Junta Directiva de la ESPH S. A.
