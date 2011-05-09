@@ -1,0 +1,1 @@
+Artículo 29.—Apelación: Las infracciones que se impongan con arreglo a la presente reglamentación, tendrán únicamente el Recurso de Apelación para ante el Alcalde, órgano que con su resolución agotará la vía administrativa.
