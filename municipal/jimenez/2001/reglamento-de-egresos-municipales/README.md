@@ -14,3 +14,4 @@ Reglamento de Egresos Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-06 | la propia norma |
+| 2 | 2011-05-09 | Reglamento municipal 50 (2011-05-09) |
