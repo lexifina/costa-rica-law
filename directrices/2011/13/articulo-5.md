@@ -1,1 +1,1 @@
-Artículo 5º—A partir de la entrada en vigencia de esta Directriz, no se suscribirán nuevos contratos de dedicación exclusiva con los profesionales del Sector Público. Esta regulación no aplica para las prórrogas de los contratos que se encuentren vigentes al momento de la publicación de esta Directriz.
+Artículo 5º—(Derogado por el artículo 2° de la directriz N° 026-H del 9 de mayo del 2011)

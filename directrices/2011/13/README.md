@@ -14,3 +14,4 @@ No se autoriza creación de plazas ni la utilización de plazas que queden vacan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-04 | la propia norma |
+| 2 | 2011-05-09 | Directriz 26 (2011-05-09) |

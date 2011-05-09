@@ -1,6 +1,7 @@
 Nº 013-H
 LA PRESIDENTA DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 36618 del 6 de junio de 2011 “Decreta que los Órganos del Gobierno de la República incluidos en este decreto no realizarán gastos con cargo a la Ley de Presupuesto ordinario y Extraordinario de la República para el Ejercicio Económico del 2011 (Ley N° 8908), se establece que los Órganos incluidos en el decreto referido no realizarán gastos con cargo a la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2011, conforme lo ordenado en esta directriz)
 Con fundamento en las atribuciones que les confieren los artículos 9, 130, 140 incisos 7), 8), 18) y 20), 146,176, 180,188, 189, de la Constitución Política; los artículos 1, 4, 21, 25, 26, 27, 98, 100, 107, 113 incisos 2) y 3) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; el artículo 80 de la Ley Nº 7097, Ley de Presupuesto Extraordinario de 18 de agosto de 1988 y sus reformas; los artículos 1, 5, 21, 22, 27, 28, de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y sus reformas; y el artículo 16 de la Ley Nº 6955, Ley para el Equilibrio Financiero del Sector Público de 24 de febrero de 1984 y sus reformas.
 Considerando:
 1º—Que la recaudación tributaria como proporción del Producto Interno Bruto (PIB) ha disminuido en los últimos años, y presenta una caída de 15.3% en el 2008 a un estimado para el 2011 de un 13,7%, lo cual es insuficiente para financiar todos los gastos a los que debe hacer frente el Gobierno, y obliga a recurrir a deuda pública para financiar gasto recurrente.
@@ -16,4 +17,5 @@ Considerando:
 Emiten la siguiente,
 DIRECTRIZ:
 DIRIGIDA AL SECTOR PUBLICO
-Artículo 1º—A partir de la publicación de esta directriz no se crearán plazas en el Sector Público. Se exceptúa de la aplicación de este artículo a las plazas de carácter policial de los diferentes cuerpos cubiertos por el Estatuto Policial.
+Artículo 1º—A partir de la publicación de esta directriz no se crearán plazas en el Sector Público. Se exceptúa de la aplicación de este artículo a las plazas de carácter policial de los diferentes cuerpos cubiertos por el Estatuto Policial. Además, se autoriza a la Autoridad Presupuestaria para que conozca lo relativo a la creación de plazas para el Ministerio de Educación Pública.
+(Así reformado por el artículo 1° de la directriz N° 026-H del 9 de mayo del 2011)
