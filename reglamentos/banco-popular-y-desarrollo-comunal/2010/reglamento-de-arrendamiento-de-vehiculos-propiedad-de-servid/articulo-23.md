@@ -1,1 +1,0 @@
-Artículo 23.—Las disposiciones de este Reglamento no relevan a los funcionarios, en forma alguna, de las responsabilidades civiles y penales en que como propietarios de los vehículos pudiesen incurrir, durante o con ocasión del uso o funcionamiento de los vehículos arrendados al Banco.
