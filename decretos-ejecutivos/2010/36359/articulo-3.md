@@ -1,0 +1,1 @@
+3. Referencias. Este reglamento se complementa con el Decreto Ejecutivo Nº 32181-S del 25 de noviembre del 2004, publicado en La Gaceta Nº 11 del 17 de enero de 2005, Reglamento para el Funcionamiento de Establecimientos o Centros de Tatuajes y Perforaciones Corporales.

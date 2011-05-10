@@ -1,0 +1,5 @@
+9. Causas de rechazo del trámite de registro sanitario
+9.1. El Ministerio rechazará el trámite del registro en los siguientes casos:
+9.1.1. Cuando no cumpla con los requisitos establecidos en el numeral 6.6. Si se necesitara aclaración, correcciones o ampliación de la información presentada, el Ministerio solicitará por una sola vez al interesado por medio de una resolución administrativa debidamente fundamentada técnica y legalmente, para que la suministre, en un término de diez (10) días hábiles. Si dentro de este plazo el interesado no presenta la información solicitada, se entenderá que desiste de la petición y en consecuencia, el Ministerio procederá mediante resolución motivada a declarar el abandono de la petición y acto seguido, se archivará la solicitud.
+9.1.2. Cuando la fórmula contenga sustancias prohibidas o restringidas en concentraciones no permitidas.
+9.1.3. Si está vencido el Certificado de Libre Venta del producto o certificado de registro del producto como tinta para tatuaje, debidamente legalizado, emitido por la autoridad reguladora o autoridad competente o entidad autorizada del país fabricante.
