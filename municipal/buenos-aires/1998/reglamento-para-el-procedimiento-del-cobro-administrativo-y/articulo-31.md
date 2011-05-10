@@ -1,1 +1,0 @@
-Artículo 31.—La Oficina de Cobro administrativo de esta Municipalidad será la encargada de realizar todos los trámites de arreglos de pago. El contribuyente estará obligado a pagar la suma de ¢1.500,00 mil quinientos colones netos, por los gastos administrativos en que haga incurrir a la Municipalidad.

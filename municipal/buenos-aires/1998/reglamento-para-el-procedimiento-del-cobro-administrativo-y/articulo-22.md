@@ -1,1 +1,0 @@
-Artículo 22.—Cuando un abogado tenga que retirarse de su bufete por un plazo mayor de ocho días hábiles deberá comunicarlo a la Oficina de Cobros previamente por escrito, quedando a su entera responsabilidad el indicar el profesional en derecho que queda a cargo de los casos que le fueron asignados, para cualquier duda o consulta que se presente por parte de la Municipalidad.

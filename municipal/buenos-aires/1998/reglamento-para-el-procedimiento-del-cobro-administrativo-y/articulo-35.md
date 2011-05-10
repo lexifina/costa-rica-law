@@ -1,1 +1,0 @@
-Artículo 35.—Toda la documentación relativa a arreglos de pago estará en custodia de la Oficina de Cobro Administrativo, la que en oportunidad y de ser necesario la remitirá a los abogados que contrate Municipalidad para que realicen las gestiones de cobro judie correspondiente.

@@ -1,1 +1,0 @@
-Artículo 29.—Cuando un abogado deje de prestar los servicios a la Municipalidad por cualquier motivo, excepto por incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los honorarios de acuerdo con el estado en que se encuentren los procesos, siendo el Juez o el Tribunal quien lo determine.
