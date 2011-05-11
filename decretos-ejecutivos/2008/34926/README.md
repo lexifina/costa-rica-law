@@ -15,3 +15,4 @@ Reglamento sobre la Ditribución y Asignación de Contingentes Arancelarios de I
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
 | 2 | 2009-09-30 | Decreto Ejecutivo 35553 (2009-09-30) |
+| 3 | 2011-05-11 | Decreto Ejecutivo 36612 (2011-05-11) |
