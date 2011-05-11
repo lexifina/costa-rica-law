@@ -1,1 +1,1 @@
-Artículo 22.—Deberes de información. Las bolsas de comercio deben contar con mecanismos y normas internas para informar a los clientes y a la Superintendencia acerca de la información que conozcan y que pueda ser relevante para que adopten las decisiones de compra o venta. Dicha información debe ser clara, correcta, precisa, suficiente y oportuna; además indicar los riesgos involucrados.
+Artículo 22.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

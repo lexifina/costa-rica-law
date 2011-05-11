@@ -1,2 +1,1 @@
-Artículo 9º—Régimen sancionatorio. Las bolsas de comercio deben dictar un reglamento para ejercer la disciplina y corregir las faltas cometidas por los puestos de bolsa y agentes que ella autorice, mediante la suspensión o cancelación de la autorización respectiva.
-No obstante lo anterior, la Superintendencia podrá aplicar las sanciones que correspondan con fundamento en la Ley Reguladora del Mercado de Valores, sobre las bolsas, sus puestos y sus agentes.
+Artículo 9º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

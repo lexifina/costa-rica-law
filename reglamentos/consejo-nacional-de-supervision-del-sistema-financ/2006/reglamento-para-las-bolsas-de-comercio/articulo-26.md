@@ -1,1 +1,1 @@
-Artículo 26.—Obligatoriedad del suministro de información a los inspectores. Las bolsas de comercio y los puestos de bolsa están obligados a proporcionar toda la información que se les solicite durante las inspecciones que realice la Superintendencia, sin ninguna limitación y en el plazo establecido por ésta.
+Artículo 26.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

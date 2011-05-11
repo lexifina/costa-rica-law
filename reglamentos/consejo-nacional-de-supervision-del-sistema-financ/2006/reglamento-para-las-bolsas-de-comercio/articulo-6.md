@@ -1,1 +1,1 @@
-Artículo 6º—Plazo máximo para inicio de operaciones. Las bolsas deben iniciar operaciones en un plazo máximo de seis meses contados a partir de la notificación del acuerdo de autorización. De lo contrario, esta caducará. La autorización no es transferible ni gravable.
+Artículo 6º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

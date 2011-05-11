@@ -1,1 +1,1 @@
-Artículo 18.—Garantías. Cada puesto de bolsa debe aportar las garantías que determine la respectiva bolsa reglamentariamente.
+Artículo 18.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

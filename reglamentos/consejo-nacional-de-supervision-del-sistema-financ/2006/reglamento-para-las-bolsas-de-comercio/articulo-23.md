@@ -1,1 +1,1 @@
-Artículo 23.—De la información a la Superintendencia. Las bolsas deberán proporcionar en todo momento a la Superintendencia, aquella información que le sea requerida, sin ninguna limitación, con la periodicidad que se estime, así como mantener actualizada la información que les exige la ley y demás normas reglamentarias.
+Artículo 23.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

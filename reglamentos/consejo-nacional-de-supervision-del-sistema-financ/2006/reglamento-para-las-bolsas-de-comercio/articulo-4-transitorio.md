@@ -1,1 +1,1 @@
-Transitorio IV.—Las bolsas de comercio y los puestos de bolsa en operación a la entrada en vigencia de la presente normativa, tendrán un plazo de hasta seis meses posteriores a la promulgación de ésta para alcanzar el cincuenta por ciento (50%) del requisito de capital establecido, y de seis meses adicionales para completar el cien por ciento (100%) del requisito de capital solicitado por esta normativa.”
+Transitorio IV.— Anulado. (Anulado este transitorio mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

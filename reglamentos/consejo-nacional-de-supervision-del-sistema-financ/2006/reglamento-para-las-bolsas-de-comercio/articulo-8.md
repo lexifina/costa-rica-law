@@ -1,2 +1,1 @@
-Artículo 8º—Registro de productos y mercancías. Las bolsas deben llevar un registro de los productos y mercancías que se negocian en ellas, así como de los puestos de bolsa y agentes que participan en ella. Cada bolsa emitirá las normas en que se establecerán los requisitos y características de inscripción correspondientes. Dicha información será pública y deberá ser difundida periódicamente de oficio o a solicitud de la Superintendencia.
-En todo caso, en las bolsas de comercio pueden negociarse productos no registrados bajo responsabilidad de las partes, al amparo de lo establecido en el artículo 406 del Código de Comercio.
+Artículo 8º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

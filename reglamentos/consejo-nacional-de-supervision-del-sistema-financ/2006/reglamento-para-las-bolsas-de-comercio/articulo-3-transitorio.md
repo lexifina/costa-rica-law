@@ -1,1 +1,1 @@
-Transitorio III.—Las bolsas de comercio y los puestos de bolsa en operación a la entrada en vigencia de la presente normativa, deberán cumplir con los requisitos tecnológicos establecidos en el presente reglamento en los plazos que se definan en el acuerdo que dicte al efecto el Superintendente.
+Transitorio III.—Anulado. (Anulado este transitorio mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

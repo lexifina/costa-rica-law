@@ -1,7 +1,7 @@
 (Anulada)
 CONSEJO NACIONAL DE SUPERVISIÓN
 DEL SISTEMA FINANCIERO
-(Anulado este Reglamento mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011. Misma que indica que: “De acuerdo con el artículo 91 de la Ley de la Jurisdicción Constitucional, se dimensiona en el tiempo la nulidad aquí pronunciada, la que regirá prospectivamente al cumplirse un año de la presente Sentencia, con el objeto de evitar dislocaciones a la seguridad, a la justicia y a la paz social.)
+(Anulado este Reglamento mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)
 El Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo 8 del Acta de la Sesión 603-2006, celebrada el 14 de setiembre del 2006,
 considerando que:
 I. el transitorio IX de la Ley Reguladora del Mercado de Valores establece que: “Las bolsas de productos estarán sujetas a la regulación y supervisión de la Superintendencia, con base en las normas y principios conferidos en esta ley que les sean racionalmente aplicables
@@ -17,4 +17,4 @@ aprobar el “Reglamento para las Bolsas de Comercio”, de acuerdo al texto que
 “REGLAMENTO PARA LAS BOLSAS DE COMERCIO
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Ámbito de regulación. El presente reglamento tiene por finalidad definir los requisitos y condiciones para la constitución, funcionamiento y supervisión de las bolsas de comercio, de los sujetos participantes en esas bolsas y de los mecanismos que garanticen la buena ejecución de las operaciones realizadas en ellas.
+Artículo 1º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

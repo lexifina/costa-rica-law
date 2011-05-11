@@ -1,1 +1,1 @@
-Transitorio II.—Las bolsas de comercio en operación a la entrada en vigencia de la presente normativa, deberán ajustar y presentar a la superintendencia para su aprobación, las reglamentaciones internas en un plazo no mayor de seis meses, a partir de la promulgación del presente reglamento.
+Transitorio II.—Anulado. (Anulado este transitorio mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

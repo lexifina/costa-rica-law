@@ -1,1 +1,1 @@
-Artículo 29.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 29.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 5966 del 11 de mayo de 2011.)

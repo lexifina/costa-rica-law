@@ -14,3 +14,4 @@ Reglamento para las Bolsas de Comercio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-10-02 | la propia norma |
+| 2 | 2011-05-11 | SINALEVI (sin norma nombrada) |
