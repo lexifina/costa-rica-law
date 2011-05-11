@@ -1,0 +1,10 @@
+III. Modificar el Título III, Capítulo 1, Literal D, Numeral 1, de las Regulaciones de Política Monetaria para que en adelante se lea de la siguiente forma:
+D. Excepciones y deducciones
+1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones cuyo origen esté relacionado con:
+a. Empréstitos externos de largo plazo que no se originen en líneas de crédito de carácter revolutivo contratadas con entidades financieras externas.
+b. Empréstitos externos, tanto en moneda local como en moneda extranjera, que sean constituidos a largo plazo y que no contengan cláusulas de exigibilidad de pago aplicables en los primeros 360 días de vigencia del crédito.
+c. Empréstitos externos, tanto en moneda local como en moneda extranjera, que sean constituidos a largo plazo y que no contengan cláusulas que permitan el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito.
+d. Los préstamos otorgados por el Banco Central de Costa Rica.
+e. Los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
+Las operaciones originadas en empréstitos externos de largo plazo a las que se refiere esta excepción, corresponden a aquellas constituidas a más de 360 días por los intermediarios financieros sujetos a encaje mínimo legal.
+Para ser consideradas dentro de esta excepción, las entidades financieras deben enviar información que permita, a satisfacción de la Superintendencia General de Entidades Financieras, corroborar que los pasivos contratados en el extranjero no tienen carácter revolutivo ni cláusulas especiales que permitan la exigibilidad de pago o el pago de la operación a iniciativa del deudor en los primeros 360 días de vigencia del crédito.
