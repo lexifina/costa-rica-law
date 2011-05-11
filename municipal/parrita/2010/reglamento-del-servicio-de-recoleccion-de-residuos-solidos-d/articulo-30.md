@@ -1,0 +1,1 @@
+Artículo 30.—La disposición de residuos voluminosos, se hará previó pago en la tesorería Municipal, de los metros cúbicos a depositar, conforme a la tarifa que posea en vigencia la Municipalidad. No se permitirá el ingreso de residuos voluminosos al sitio de disposición final respectivo sin el recibo correspondiente de pago.

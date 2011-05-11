@@ -1,0 +1,1 @@
+Artículo 31.—El cobro de residuos voluminosos se hará por m3 a tratar. El volumen a depositar, corresponderá a las dimensiones del recipiente que posea el vehículo que transporta los residuos y conforme a la capacidad de llenado del mismo.

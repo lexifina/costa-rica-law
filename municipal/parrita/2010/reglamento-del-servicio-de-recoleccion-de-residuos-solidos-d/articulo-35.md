@@ -1,0 +1,1 @@
+Artículo 35.—Es deber de cada usuario acatar los lineamientos e indicaciones del guarda del sitio de disposición final, para el adecuado uso y rendimiento del sitio. El incumplimiento a las indicaciones del caso, será acreedor a una multa, conforme al costo de remoción de los residuos dispuestos en otro lugar.

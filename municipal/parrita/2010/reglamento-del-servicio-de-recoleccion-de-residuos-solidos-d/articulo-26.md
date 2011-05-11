@@ -1,0 +1,1 @@
+Artículo 26.—El cobro de la recolección de residuo sólidos se realizará al propietario o poseedor, de acuerdo a la cantidad de unidades habitacionales, patentados o entes estatales, ubicados dentro de la propiedad.
