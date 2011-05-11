@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE OSA
+PROCEDIMIENTO PARA OTORGAR USO DE SUELO
+EN LA ZONA MARÍTIMO TERRESTRE
+DEL CANTÓN DE OSA
+Que el Concejo Municipal de Osa mediante acuerdo Nº 2, capítulo VI tomado en sesión extraordinaria Nº 09-2011, celebrada el día 18 de abril del 2011, acordó aprobar adición realizada al “Procedimiento para Otorgar Uso de Suelo en la Zona Marítimo Terrestre del cantón de Osa”, publicado en La Gaceta Nº 64 del 5 de abril del 2010, con lo cual el artículo 4º del resultando y el artículo 6º del capítulo III, sobre los Permisos de Uso, Forma de Otorgamiento y Acciones que comprende el permiso, quedan de la siguiente forma:
+Artículo 4º—Que la Corporación Municipal de Osa considera que el otorgamiento de permisos, el uso en la zona marítimo terrestre conforme a este procedimiento debe circunscribirse, específicamente, para aquellas acciones que permitan a los administrados realizar actividades de Recreo y Camping, Uso Comercial, Uso Servicios Turísticos en dichas parcelas y que sirvan para determinar de manera apropiada su uso potencial futuro conforme a las finalidades que establece la Ley Nº 6043 y su Reglamento.
+CAPÍTULO III
+Sobre los permisos de uso
+Artículo 6º—Forma de otorgamiento y acciones que comprende el permiso. La Municipalidad por medio del Departamento de Zona Marítima Terrestre, podrá autorizar permisos de uso, de manera unilateral, mediante una resolución administrativa debidamente fundamentada a un administrado en el que le otorga el uso de una determinada parecía de la zona restringida de la Zona Marítimo Terrestre bajo su jurisdicción. Con fundamento en dicho permiso, el administrado podrá realizar todas aquellas acciones que conlleven la realización de actividades de Recreo y Camping, Uso Comercial, Uso de Servicios Turísticos en dicha parcela, que sirvan para determinar de manera apropiada su uso potencial futuro conforme a las finalidades que establece la Ley. Que se dispense trámite de comisión y se declare acuerdo definitivamente aprobado.
+Ciudad Cortés, 3 de mayo del 2011.
