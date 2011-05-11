@@ -16,3 +16,4 @@ Reglamento sobre la Distribución y Asignación de Contingentes Arancelarios de 
 | 1 | 2009-01-01 | la propia norma |
 | 2 | 2009-09-30 | Decreto Ejecutivo 35553 (2009-09-30) |
 | 3 | 2010-05-10 | Decreto Ejecutivo 36025 (2010-05-10) |
+| 4 | 2011-05-11 | Decreto Ejecutivo 36613 (2011-05-11) |
