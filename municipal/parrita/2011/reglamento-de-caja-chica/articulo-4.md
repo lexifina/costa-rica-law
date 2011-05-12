@@ -1,0 +1,1 @@
+Artículo 4º—La correcta utilización del fondo de caja está a cargo de un funcionario del Departamento de Tesorería quien será designado por el Alcalde, y el o la tesorera titular es responsable de la aplicación de las normas que rigen para su debido funcionamiento.
