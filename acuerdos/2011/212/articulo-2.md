@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión tendrá por objetivo primordial el velar por el efectivo cumplimiento del Decreto Ejecutivo N° 36462: “Reglamento a la Ley de Inclusión y Protección Laboral de las Personas con Discapacidad en el Sector Público, Ley N° 8862” a nivel institucional, para lo cual contará con la debida colaboración de todas las demás unidades organizacionales del Ministerio.
