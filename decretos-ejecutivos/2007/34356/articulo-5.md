@@ -1,7 +1,0 @@
-CAPÍTULO II
-De la admisibilidad, tramitación, desestimación
-y archivo de la denuncia
-5º—Admisibilidad de la denuncia. La oficina que reciba la denuncia analizará su contenido y determinará si procede su admisión para investigación y si la denuncia puede ser atendida en forma inmediata o debe ser trasladada a la dependencia correspondiente, en concordancia con el artículo 2º del presente Manual.
-Deberá determinar si se trata de una actuación material o de una omisión, la gravedad y relevancia de los hechos denunciados y cualquier otro aspecto de importancia que se desprenda de la denuncia. Los encargados de las oficinas receptoras de denuncias deberán determinar de acuerdo con su criterio profesional, las acciones a seguir y la prioridad de su atención y documentará sus gestiones en un expediente debidamente conformado.
-Si la denuncia versa sobre una materia ajena a la competencia de la dependencia receptora, de inmediato se deberá trasladar el expediente a la oficina competente para que determine sobre su admisibilidad y proceda como corresponde. El traslado del expediente se hará en sobre cerrado en resguardo de la confidencialidad de los datos. En la parte externa del sobre deberá consignarse la leyenda que diga “Confidencial”.
-Admitida la denuncia se procederá a darle el curso respectivo, y se informará al denunciante de esa circunstancia en el domicilio o dirección que señale para ese efecto.
