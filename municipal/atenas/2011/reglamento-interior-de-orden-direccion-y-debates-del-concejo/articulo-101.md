@@ -1,0 +1,1 @@
+Artículo 101.—Cuando la Presidencia tuviese que mocionar o en alguna forma involucrarse en la defensa de algún asunto en discusión en el plenario municipal, dejará su cargo temporalmente al Vicepresidente. Si el que ejerce la Presidencia es el Vicepresidente, el Regidor de mayor de edad será el llamado a sustituirlo.

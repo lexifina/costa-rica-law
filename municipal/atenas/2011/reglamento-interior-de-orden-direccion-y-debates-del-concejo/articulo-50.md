@@ -1,0 +1,1 @@
+Artículo 50.—El Secretario Municipal, de acuerdo con el artículo cincuenta y tres del Código Municipal, sólo podrá ser suspendido ó destituido de su cargo si existiera justa causa, la cual debe ser demostrada mediante la interposición de un procedimiento administrativo que garantice el derecho de defensa.

@@ -1,0 +1,1 @@
+Artículo 38.—El total de votos emitidos, el número de positivos y el número de negativos, así como las constancias de votos solicitadas por los regidores, se consignarán, junto al acuerdo tomado, en el acta respectiva.

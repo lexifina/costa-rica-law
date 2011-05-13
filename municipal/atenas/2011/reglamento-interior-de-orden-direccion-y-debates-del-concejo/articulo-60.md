@@ -1,0 +1,1 @@
+Artículo 60.—En la sesión siguiente a aquella en que el Presidente integre las Comisiones, se hará la instalación de éstas. En esta misma oportunidad cada comisión nombrará de su seno un presidente y un vicepresidente, los cuales están sujetos, en lo conducente, a las mismas atribuciones y prohibiciones que establece este Reglamento, para el Presidente del Concejo Municipal.

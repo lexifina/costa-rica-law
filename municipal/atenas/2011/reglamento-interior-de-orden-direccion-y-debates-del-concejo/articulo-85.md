@@ -1,0 +1,1 @@
+Artículo 85.—Durante los días en que se discuta el presupuesto ordinario en el Concejo Municipal, no se realizarán sesiones de comisiones del Concejo, con el fin de que los regidores y síndicos puedan estudiar y analizar el proyecto de presupuesto con detenimiento.

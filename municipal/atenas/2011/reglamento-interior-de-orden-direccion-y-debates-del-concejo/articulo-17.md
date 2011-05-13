@@ -1,0 +1,1 @@
+Artículo 17.—Durante el transcurso de una sesión ordinaria, una o varios regidores pueden proponer mediante una moción que se modifique el orden del día. Para ser aprobada esta moción requiere del voto afirmativo calificado de cuatro regidores.

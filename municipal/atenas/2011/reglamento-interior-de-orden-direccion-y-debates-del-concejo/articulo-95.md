@@ -1,0 +1,1 @@
+Artículo 95.—Cuando el Concejo Municipal, de oficio o a instancia de parte, pretenda revocar un acuerdo que ha generado derechos subjetivos, debe proceder conforme a las reglas y principios del debido proceso.

@@ -1,0 +1,2 @@
+Artículo 44.—La interposición del veto por parte del Alcalde Municipal, tendrá prioridad en el orden del día del Concejo Municipal y el Presidente Municipal no podrá negarse a dar trámite a ese veto, ni posponer su conocimiento en el Concejo.
+La interposición del veto suspende la ejecución del acuerdo recurrido.

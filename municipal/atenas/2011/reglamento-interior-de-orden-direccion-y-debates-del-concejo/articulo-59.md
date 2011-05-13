@@ -1,0 +1,3 @@
+Artículo 59.—La Presidencia Municipal, de pedirlo así cada Comisión, procederá a solicitarle al Alcalde Municipal la designación de funcionarios administrativos, para que funjan como asesores de las comisiones.
+El secretario de comisión levantará un acta detallada, de todas las sesiones de comisión, la cual deberá ser firmada, una vez aprobada por la comisión, por el presidente y el secretario de actas. En el acta respectiva deben consignarse los votos positivos y negativos.
+En lo conducente, los secretarios de actas de comisión tienen los mismos deberes que la Ley y este Reglamento fijan para el Secretario del Concejo Municipal.
