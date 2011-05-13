@@ -14,3 +14,4 @@ Reglamento para que el Consejo Nacional de la Persona Adulta Mayor (CONAPAM) Cal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
+| 2 | 2011-05-13 | Decreto Ejecutivo 36608 (2011-05-13) |
