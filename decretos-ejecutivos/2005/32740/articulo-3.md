@@ -1,1 +1,0 @@
-Artículo 3º—El Colegio de Costa Rica, según lo establece el Decreto Ejecutivo Nº 32196 del 21 de enero del 2005, Reglamento del Uso de las Instalaciones del CENAC, realizará las actividades que sean necesarias para el cumplimiento de los objetivos.
