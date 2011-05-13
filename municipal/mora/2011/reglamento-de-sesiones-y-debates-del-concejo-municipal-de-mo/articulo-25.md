@@ -1,0 +1,1 @@
+Artículo 25.—Para el caso del inciso h) del artículo 22 de este reglamento, cuando alguna de las personas ahí indicadas presentaren mociones y proposiciones, estas deberán ser por escrito y firmadas. El o la Secretaria anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

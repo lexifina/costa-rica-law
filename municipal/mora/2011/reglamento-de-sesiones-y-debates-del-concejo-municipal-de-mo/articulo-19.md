@@ -1,0 +1,1 @@
+Artículo 19.—Las sesiones del Concejo se desarrollarán conforme con la agenda previamente elaborada, la cual podrá ser modificada o alterada por votación de las dos terceras partes de las y los regidores propietarios presentes, incluyendo a las y los regidores suplentes que en el momento de la votación estén sustituyendo al titular.

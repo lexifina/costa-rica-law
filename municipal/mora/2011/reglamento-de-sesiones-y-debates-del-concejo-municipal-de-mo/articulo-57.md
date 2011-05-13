@@ -1,0 +1,1 @@
+Artículo 57.—De las comisiones especiales. El Concejo Municipal, por moción de las y los regidores propietarios y suplentes, las y los síndicos propietarios y suplentes, la Alcaldía o cualquier munícipe, también podrá crear las comisiones especiales que estime pertinentes, siendo que su conformación le corresponderá a la Presidencia Municipal.

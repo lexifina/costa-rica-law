@@ -1,0 +1,1 @@
+Artículo 51.—Las comisiones deberán resolver los asuntos dentro de los plazos que al efecto les conceda la Presidencia Municipal, pudiendo solicitar, quien presida la comisión respectiva, una ampliación del plazo por razones de fuerza mayor, la cual debe ser analizada, aprobada o rechazada por parte de la Presidencia Municipal.

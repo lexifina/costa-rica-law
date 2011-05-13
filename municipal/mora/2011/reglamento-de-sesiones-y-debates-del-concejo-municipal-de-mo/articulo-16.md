@@ -1,0 +1,1 @@
+Artículo 16.—Las y los regidores propietarios que lleguen después de transcurridos los quince minutos, contados a partir de la hora señalada para iniciar la sesión, perderán el derecho de participar en la sesión municipal y el derecho a devengar la dieta, esto, aunque no se hubiere efectuado sustitución de su puesto.
