@@ -1,0 +1,1 @@
+Artículo 8º—Plazo para la elaboración del Plan de Trabajo. Una vez transcurrido el plazo establecido en el artículo tres, y debidamente integrada la Comisión Diquís, ésta dispondrá de un término de dos meses para la elaboración del Plan de Trabajo y el calendario anual de reuniones.

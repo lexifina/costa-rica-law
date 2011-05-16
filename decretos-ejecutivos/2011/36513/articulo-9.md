@@ -1,0 +1,1 @@
+Artículo 9º—Organización interna de la Comisión. La Comisión podrá constituir grupos para temas específicos y ejecutivos, con participación de miembros de la propia Comisión y de otros participantes que se considere conveniente. Esta organización debe asegurar la participación de los pobladores de la región en que se desarrollará el Proyecto Hidroeléctrico El Diquís.
