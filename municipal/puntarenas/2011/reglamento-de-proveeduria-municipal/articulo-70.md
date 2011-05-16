@@ -1,0 +1,3 @@
+CAPITULO VI
+Sobre el uso del Sistema Integrado de Actividad Contractual (SIAC)
+Artículo 70.—En cumplimiento de lo establecido en la Resolución D-4-2005-CO-DDI emitida por la Contraloría General de la República, que contiene las Directrices para el registro, la validación y el uso de la información sobre la actividad contractual desplegada por los entes y órganos sujetos al control y la fiscalización de ese ente Contralor, la Proveeduría será la responsable de incluir en el SIAC la información correspondiente a cada procedimiento de contratación, referente a la invitación, adjudicación y firmeza del acto de adjudicación, o bien la declaratoria de infructuoso o desierto cuando así resulte el proceso.

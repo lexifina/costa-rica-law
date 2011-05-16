@@ -1,0 +1,2 @@
+Artículo 45.—Recurso de revocatoria. El Conejo Municipal será el órgano competente para tramitar el recurso de Revocatoria contra el acto de adjudicación. Una vez recibido el mismo, solicitará los criterios técnicos y legales que considere necesarios para la resolución del mismo, para lo que contará con un plazo de quince días hábiles siguientes a su presentación.
+Se contará con un plazo de dos días hábiles para notificar la resolución emitida por el Concejo.

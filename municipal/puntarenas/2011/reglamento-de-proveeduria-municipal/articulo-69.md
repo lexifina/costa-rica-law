@@ -1,0 +1,1 @@
+Artículo 69.—Los equipos que por su naturaleza requieran ser sometidos a pruebas de funcionamiento y verificación del cumplimiento de las características solicitadas, deberán contar con el visto bueno del área técnica competente o de la unidad solicitante, para proceder a colocar la placa y a emitir el formulario de control de activos.

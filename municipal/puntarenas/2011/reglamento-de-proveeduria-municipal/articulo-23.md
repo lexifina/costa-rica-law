@@ -1,0 +1,1 @@
+Artículo 23.—Trámite para la exclusión: En los casos en que se pretenda excluir a un proveedor del Registro, la Proveeduría otorgará de previo una audiencia de cinco días hábiles al interesado para que se manifieste sobre el particular. Vencido el plazo sin tener respuesta del proveedor, se procederá con la exclusión sin más trámite.

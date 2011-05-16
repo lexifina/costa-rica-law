@@ -1,0 +1,1 @@
+Artículo 11.—Inicio del procedimiento de contratación. La Proveeduría dará inicio al proceso de contratación respectivo una vez que reciba la solicitud de materiales y que ésta cumpla con lo establecido en los artículos 6º y 7º de este reglamento.

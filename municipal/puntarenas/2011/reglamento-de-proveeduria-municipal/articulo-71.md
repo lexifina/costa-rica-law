@@ -1,0 +1,1 @@
+Artículo 71.—La Proveeduría designará un funcionario que será el responsable de mantener actualizada la información referencia a actividad contractual en el SIAC, según lo establecido en el Manual de Procedimientos.

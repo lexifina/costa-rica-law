@@ -1,0 +1,4 @@
+Artículo 34.—Recomendación de la adjudicación. La Proveeduría emitirá la recomendación final de adjudicación, basado en los criterios emanados por Servicios Jurídicos y la dependencia usuaria o técnica competente, la cual se dictará dentro del plazo establecido en el cartel, a falta de estipulación expresa del mismo, el plazo se calculará de acuerdo con lo indicado en el artículo 87 del RLCA.
+La recomendación de adjudicación deberá contener como mínimo lo siguiente: resumen del objeto de la contratación y enumeración de las ofertas recibidas, una síntesis del estudio técnico y el estudio legal, recomendación de aquella o aquellas ofertas que de conformidad con lo dispuesto en el cartel respectivo, resulten mejor calificadas.
+Esa recomendación se hará de conocimiento del Concejo, Órgano responsable de dictar la Adjudicación en el caso de Licitaciones Públicas y Abreviadas.
+Dentro de los ocho días hábiles posteriores el Concejo tomará el acuerdo de adjudicación.

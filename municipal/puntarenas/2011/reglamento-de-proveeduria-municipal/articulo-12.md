@@ -1,0 +1,2 @@
+Artículo 12.—Estimación del contrato y determinación de procedimiento. La estimación del contrato y la determinación del procedimiento a seguir será responsabilidad de la Proveeduría. Para la determinación del tipo de procedimiento a utilizar en cada proceso, se atenderá lo dispuesto en los artículos 27 y 31 de la LCA y se regirá además por las resoluciones que emita el ente contralor en materia de límites económicos y la estimación de las contrataciones.
+Cuando exista una partida presupuestaria definida, se tomará como base para la estimación del procedimiento.

@@ -1,0 +1,1 @@
+Artículo 8º—Formalidades del pedido. La respectiva solicitud deberá estar autorizada por la Dirección de Hacienda, por el jefe de la dependencia solicitante quien será el responsable de verificar y justificar la efectiva necesidad del bien, servicio u obra y por el responsable técnico de lo solicitado, cuando corresponda.

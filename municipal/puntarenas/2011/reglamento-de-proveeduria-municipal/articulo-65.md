@@ -1,0 +1,3 @@
+CAPITULO V
+Sobre la entrega y traslado de activos
+Artículo 65.—Cuando se adquieran equipos y mobiliarios que se clasifiquen como activos, la Proveeduría, para proceder a entregarlos al departamento solicitante, deberá utilizar el formulario de “Control de Activos” descrito en el anexo 9 de este Reglamento, en el cual se consignará al menos la siguiente información: número de documento, tipo de documento (traslado o entrega), departamento que entrega, nombre y firma del responsable de la entrega, departamento que recibe, nombre y firma del responsable de la recepción, fecha, número de activo, descripción del artículo, precio, número de orden de compra, nombre o razón social del proveedor, número de factura.

@@ -1,0 +1,7 @@
+SECCIÓN QUINTA
+Garantías de participación y cumplimiento
+Artículo 40.—Disposiciones generales.
+40.1 En las licitaciones públicas obligatoriamente, y en los demás procedimientos, facultativamente, se exigirá a los oferentes una garantía de participación, cuyo monto se definirá en el cartel entre un uno y un cinco por ciento del monto total ofertado, deberá tener una vigencia mínima de un mes contado a partir de la fecha máxima establecida para dictar el acto de adjudicación.
+40.2 En las licitaciones publicas y abreviadas, se exigirá una garantía de cumplimiento, cuyo monto se definirá en el cartel entre un cinco y un diez por ciento del monto total adjudicado y deberán tener una vigencia mínima de sesenta días adicionales a la fecha probable de recepción definitiva de lo adjudicado.
+40.3 En contratos adicionales que se generen, se exigirá una garantía de cumplimiento por un porcentaje igual al establecido en el contrato base y con igual vigencia. Cuando se trate de ampliaciones a los contratos deberá velarse porque las garantías aportadas mantengan su vigencia.
+40.4 Las Garantías de Participación deben ser presentadas en la Proveeduría, antes de la hora de apertura de las ofertas. Igualmente las garantías de cumplimiento se presentarán en la Proveeduría dentro de los diez días hábiles siguientes a la firmeza del acto de adjudicación. En ambos casos las garantías serán trasladadas a la Tesorería Municipal para que permanezcan en custodia, dejando constancia de todo lo actuado en el expediente respectivo.

@@ -1,0 +1,1 @@
+Artículo 64.—Las entregas de materiales de bodega se efectuarán únicamente los días lunes y jueves. En caso de que uno de estos días resulte no hábil, las entregas se efectuarán el día hábil siguiente.

@@ -1,0 +1,6 @@
+SECCIÓN SEXTA
+Recursos
+Artículo 42.—Recurso de objeción al cartel. Los recursos serán presentados ante la Proveeduría, que será el órgano competente para tramitar las objeciones a los carteles en los diferentes procedimientos, para lo cual trasladará copia de la documentación recibida a la unidad usuaria y al área de Servicios Jurídicos dentro del día hábil posterior a su recibo, con el fin de disponer de los dictámenes técnicos y jurídicos apropiados que permitan brindar respuesta suficiente al interesado. Estas dependencias deberán remitir su resolución dentro del plazo de cinco (5) días hábiles posteriores a su recibo.
+La Proveeduría preparará el documento que contendrá las resoluciones del recurso interpuesto y lo notificará al recurrente para lo cual contará con el plazo de cuatro (4) días hábiles.
+De acogerse parcial o totalmente el recurso, la Proveeduría, dentro de los tres (3) días hábiles posteriores a la comunicación al recurrente, efectuará las modificaciones a los términos respectivos del cartel y gestionará su adecuada divulgación, con el respectivo ajuste en los plazos para la recepción de ofertas, cuando así se requiera.
+En caso que el recurso se interponga ante una dependencia diferente a la Proveeduría, el titular de la dependencia remitirá la documentación a la misma a más tardar el día hábil siguiente a su recibo.

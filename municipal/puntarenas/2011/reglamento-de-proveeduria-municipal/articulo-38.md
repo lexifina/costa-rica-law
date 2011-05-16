@@ -1,0 +1,1 @@
+Artículo 38.—Modificación de contratos. La Municipalidad puede tramitar las modificaciones a los contratos que estime necesarias, con el objeto de cumplir con el fin público asignado, de acuerdo con lo que se contempla en el RLCA.

@@ -1,0 +1,1 @@
+Artículo 68.—Antes de entregar los equipos y/o mobiliarios, la Proveeduría deberá colocarles una placa metálica que los identifique como propiedad de la Municipalidad y por el número que se les ha asignado, el cual corresponde a una numeración continua que abarca todos los equipos y mobiliarios que forman parte el inventario de activos de la Institución.

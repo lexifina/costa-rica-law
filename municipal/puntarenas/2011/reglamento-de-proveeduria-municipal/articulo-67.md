@@ -1,0 +1,1 @@
+Artículo 67.—Igual procedimiento se utilizará para los traslados de activos de un departamento a otro, previa solicitud del interesado. En este caso se omitirá la información correspondiente al proveedor, la factura y el precio.

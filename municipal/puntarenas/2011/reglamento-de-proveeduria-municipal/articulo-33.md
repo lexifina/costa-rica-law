@@ -1,0 +1,1 @@
+Artículo 33.—Estudio y valoración de ofertas. Tanto para licitaciones públicas como abreviadas la Proveeduría trasladará las ofertas, dentro de los plazos establecidos en cada cartel, a la dependencia usuaria o competente y a Servicios Jurídicos, para su estudio y recomendaciones.

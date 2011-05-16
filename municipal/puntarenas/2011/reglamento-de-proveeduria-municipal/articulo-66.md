@@ -1,0 +1,1 @@
+Artículo 66.—El formulario “Control de Activos” se emitirá en original y tres copias, los cuales se distribuirán de la siguiente forma: el original permanece en Proveeduría, las copias se entregarán a Contabilidad, al departamento que entrega y al departamento que recibe.
