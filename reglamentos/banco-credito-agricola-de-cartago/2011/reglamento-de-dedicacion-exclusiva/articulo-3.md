@@ -1,0 +1,1 @@
+Artículo 3º—Responsables. Son responsables de acatar lo dispuesto en este reglamento, la Dirección de Recursos Humanos y los funcionarios que gocen del beneficio de la dedicación exclusiva y se encuentren en la modalidad de salario base más pluses.

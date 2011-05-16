@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. El presente reglamento aplica únicamente para los funcionarios que cuenten con el beneficio de la Dedicación Exclusiva y se encuentren en la modalidad de salario base más pluses.

@@ -1,0 +1,1 @@
+Artículo 7º—De los permisos con goce de sueldo. Los beneficios que se otorguen al funcionario por concepto de dedicación exclusiva, no se suspenderán cuando se acojan a permisos con goce de sueldo total o parcial.
