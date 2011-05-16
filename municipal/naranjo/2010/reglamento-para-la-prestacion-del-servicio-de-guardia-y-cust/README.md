@@ -14,3 +14,4 @@ Reglamento para la prestación del servicio de guardia y custodia de vehículos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-14 | la propia norma |
+| 2 | 2011-05-16 | Reglamento municipal 20 (2011-05-16) |
