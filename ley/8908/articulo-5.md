@@ -25,3 +25,4 @@ INDICADORES DE RESULTADOS:
 | 0.00 | 20.00 | 30.00 | 30.00 | 20.00
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 36 a La Gaceta N° 244 del 16 de diciembre del 2010)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36484 del 4 de marzo de 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36594 del 16 de mayo de 2011)
