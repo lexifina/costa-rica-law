@@ -1,0 +1,1 @@
+Artículo 21.—Ejecución del contrato. En caso de incumplimiento de la obligación establecida en el artículo anterior, el contrato será ejecutado judicialmente. Para estos efectos, la certificación de la deuda tendrá el carácter de título ejecutivo, de conformidad con el marco normativo vigente.

@@ -1,0 +1,1 @@
+Artículo 20.—Efectos del incumplimiento. Si la persona becaria incumple con el contrato deberá reintegrar al Poder Judicial la suma correspondiente a todas las ayudas económicas efectivamente recibidas y erogadas para tal efecto, así como el monto estimado de la inversión realizada por la institución para ofrecerle el FIAJ, más el interés legal que corresponda.

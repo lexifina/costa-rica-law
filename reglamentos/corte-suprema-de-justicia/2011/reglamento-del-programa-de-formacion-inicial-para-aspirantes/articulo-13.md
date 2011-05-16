@@ -1,0 +1,1 @@
+Artículo 13.—Garantía. Como requisito ineludible, quien resulte seleccionado o seleccionada deberá presentar, con suficiente antelación al inicio del programa, una persona fiadora solidaria u otra garantía idónea aprobada por el Poder Judicial al momento de firmar el contrato.

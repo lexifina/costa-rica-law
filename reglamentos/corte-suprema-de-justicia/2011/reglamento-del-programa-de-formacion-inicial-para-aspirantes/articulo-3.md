@@ -1,0 +1,1 @@
+Artículo 3º—Acceso al programa. Para garantizar el acceso democrático a este programa y por su medio a la judicatura, así como para garantizar la idoneidad en el acceso al servicio público, ordenada por el artículo 192 de la Constitución Política, el Programa de Formación Inicial para Aspirantes a la Judicatura será gratuito y financiado por el Poder Judicial

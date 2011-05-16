@@ -1,0 +1,1 @@
+Artículo 17.—Reconocimiento en Carrera Judicial. A quien apruebe el FIAJ se le dará un reconocimiento para efectos de la Carrera Judicial, en el componente de “Cursos de Especialización y Programa de Formación General Básica de la Escuela Judicial”, según disponga el Consejo de la Judicatura.

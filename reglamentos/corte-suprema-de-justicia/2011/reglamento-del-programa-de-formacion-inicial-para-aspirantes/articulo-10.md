@@ -1,0 +1,1 @@
+Artículo 10.—Pruebas de selección. Las pruebas de selección del FIAJ evaluarán conocimientos, destrezas, habilidades, aptitudes y actitudes específicas y necesarias para el ejercicio idóneo de la judicatura.

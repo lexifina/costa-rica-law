@@ -1,0 +1,1 @@
+Artículo 15.—Financiamiento institucional. La Corte Plena deberá reservar y especificar, dentro del presupuesto anual de la Escuela Judicial, la suma correspondiente para sufragar la ayuda indicada en los artículos 14 y 15, así como los demás gastos relacionados con el Programa FIAJ.

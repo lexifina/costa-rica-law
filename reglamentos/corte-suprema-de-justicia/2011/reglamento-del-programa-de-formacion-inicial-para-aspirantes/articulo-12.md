@@ -1,0 +1,1 @@
+Artículo 12.—Naturaleza de la relación contractual. La suscripción del contrato no crea una relación de índole laboral, pero sí establece una de carácter académico entre la persona seleccionada y el Poder Judicial.

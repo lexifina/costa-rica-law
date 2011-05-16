@@ -1,0 +1,1 @@
+Artículo 7º—Orientación pedagógica. El FIAJ tiene dos enfoques: el de competencias profesionales y el cognitivo o constructivista. El proceso de enseñanza-aprendizaje es esencialmente práctico y parte de las capacidades que poseen las personas; se les enfrenta con nuevos conocimientos y se promueve la formación de nuevas habilidades para el ejercicio de la judicatura.
