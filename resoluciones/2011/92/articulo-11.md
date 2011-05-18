@@ -1,0 +1,1 @@
+XI.—Establecer que los terminales de telecomunicaciones móviles no deben requerir códigos especiales de desbloqueo o modificaciones en el hardware o software (o firmware) para que estos puedan ser totalmente operables con sus funcionalidades y aplicaciones en las redes de otros operadores y proveedores.

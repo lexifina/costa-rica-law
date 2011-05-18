@@ -1,0 +1,1 @@
+XVIII.—Disponer que la SUTEL podrá realizar inspecciones en las instalaciones de los interesados en ser acreditados como peritos para la realización de pruebas de homologación de terminales de telecomunicaciones móviles, con el fin de verificar el cumplimiento de los requisitos anteriores.

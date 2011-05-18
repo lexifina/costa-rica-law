@@ -1,0 +1,1 @@
+IV.—Determinar que todos los OBLIGADOS, deberán activar en la RED, los terminales de telecomunicaciones móvileshomologados por la SUTEL y deberán mantener un control de los IMEIsregistradosa fin de evitar la activación de terminales reportados como robados, extraviados o de dudosa procedencia.

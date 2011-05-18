@@ -1,0 +1,1 @@
+X.—Disponer que el proceso de homologación deberá asegurar que los equipos terminales de telecomunicaciones móviles se puedan activar, conectar y ser reconocidos con las funciones y aplicaciones disponibles en las distintas redes de los operadores y proveedores de servicios de telecomunicaciones móviles.

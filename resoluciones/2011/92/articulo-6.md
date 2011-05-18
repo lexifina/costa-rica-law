@@ -1,0 +1,1 @@
+VI.—Disponer que los OBLIGADOS deberán distribuir, comercializar e incluir en sus planes de servicios(indistintamente de la modalidad de pago contratada por el usuario –prepago o pospago), únicamente terminales de telecomunicaciones móviles homologados por la SUTEL.

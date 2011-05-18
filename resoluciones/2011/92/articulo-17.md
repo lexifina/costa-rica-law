@@ -1,0 +1,1 @@
+XVII.—Señalar que la SUTEL evaluará la información presentada por los interesados en constituirse como peritos acreditados para la realización de pruebas de homologación de terminales de telecomunicaciones móviles, y acreditará mediante resolución fundada a aquellos que los cumplan.
