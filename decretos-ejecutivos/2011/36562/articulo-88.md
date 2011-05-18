@@ -1,0 +1,1 @@
+Artículo 88.—División material de propiedades. La división material de propiedad entre condueños devengará honorarios conforme la tarifa general de notariado según el valor real del inmueble, con un mínimo de cincuenta mil colones de honorarios por cada lote.

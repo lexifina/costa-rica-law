@@ -1,0 +1,1 @@
+Artículo 82.—Traspaso de vehículos, buques y aeronaves. El traspaso de vehículos automotores, buques y aeronaves, ya sea inscritos o no inscritos, devengará honorarios de conformidad con la tarifa general, calculados sobre el valor superior entre el valor fiscal y el valor real de dichos bienes, pero nunca podrán ser inferiores a cincuenta mil colones.

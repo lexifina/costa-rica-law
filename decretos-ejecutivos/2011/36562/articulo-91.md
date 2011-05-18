@@ -1,0 +1,1 @@
+Artículo 91.—Certificaciones. La expedición de certificaciones generará, honorarios mínimos de quince mil colones por cada asiento certificado. Los honorarios por certificaciones son independientes de los honorarios que deban recibir los Abogados (as) en los eventuales procesos o procedimientos donde aquéllas vayan a ser presentadas.
