@@ -1,0 +1,3 @@
+Artículo 31.—Transitorio: El Colegio de Abogados y Abogadas de Costa Rica tendrá el plazo de dos años a partir de la publicación del presente reglamento a efectos de crear la Unidad Técnica de Acoso Sexual. Durante este plazo sera el Director Ejecutivo el encargado de asumir las labores que a dicha Unidad se le asignan en el presente Reglamento.
+El presente Reglamento se de acuerdo a lo indicado en la Ley de Hostigamiento Sexual y se utilizó como base el Reglamento del Poder Judicial, en vista de no contar el Colegio con una Secretaria Técnica de Género.
+Aprobado en Asamblea General Extraordinaria Nº 01-2011 del 08 de marzo del 2011.

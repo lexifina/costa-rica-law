@@ -1,0 +1,1 @@
+Artículo 15.—Unidad técnica de género como coadyuvante. Que la Unidad Técnica de Género del Colegio de Abogados y Abogadas de Costa Rica y el Departamento Legal en caso de no llevar la instrucción del proceso, serán reconocidos expresamente como coadyuvantes de la víctima en todos los procesos por hostigamiento sexual.

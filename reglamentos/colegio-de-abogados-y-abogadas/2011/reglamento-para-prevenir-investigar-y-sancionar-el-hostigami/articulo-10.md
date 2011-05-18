@@ -1,0 +1,3 @@
+Artículo 10.—Procedimiento para sustituir al órgano instructor. Al concurrir alguna de las causas de impedimento, recusación o excusa, enumeradas en la normativa vigente, la suplencia se tramitará conforme a las siguientes reglas:
+Cuando, por impedimento, recusación, excusa u otro motivo, un servidor tenga que separarse del conocimiento de un asunto determinado, su falta será suplida del modo siguiente:
+1- A sujeto encargado de la instrucción los suplirán otro funcionario del mismo rango, a su vez, tampoco pudieren conocer, serán llamados abogados(as) de otros departamentos del Colegio de Abogados y Abogadas de Costa Rica y, si la causal comprendiere también a estos, deberá conocer el asunto el Secretario de Junta Directiva.

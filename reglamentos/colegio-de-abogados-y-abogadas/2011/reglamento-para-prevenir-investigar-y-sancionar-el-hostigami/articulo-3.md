@@ -1,0 +1,1 @@
+Artículo 3 Ámbito de cobertura. El presente reglamento regirá para todos los funcionarios y funcionarias del Colegio de Abogados y Abogadas de Costa Rica, personas usuarias de los servicios y personal de contratación externa, miembros de Comisiones y colaboradores del Departamento de Defensoría Social.
