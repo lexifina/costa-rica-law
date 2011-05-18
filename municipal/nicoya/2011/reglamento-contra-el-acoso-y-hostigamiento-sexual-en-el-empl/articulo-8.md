@@ -1,0 +1,4 @@
+Artículo 8º—Concluida la audiencia de recepción de la prueba testimonial, la Junta rendirá informe final de hechos probados con la recomendación al Alcalde o al Concejo Municipal, según sea el caso, quines resolverán en un plazo máximo de ocho días hábiles. En caso de comprobarse la falta será sancionada de la siguiente forma:
+a. Si se trata de un trabajador, en aplicación del artículo 25 de la Ley Nº 7476, se le sancionará con amonestación, suspensión del trabajo sin goce de salario o despido sin responsabilidad patronal, según la gravedad de la falta.
+b. Si se trata del Alcalde, concejal propietario o suplente, síndico propietario o suplente, serán responsables personalmente por sus actuaciones, respecto de las cuales deberán responder en la vía judicial, una vez que la gestión se haya presentado ante esa Sede.
+De no probarse la falta, se ordenará el archivo del expediente.
