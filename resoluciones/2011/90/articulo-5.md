@@ -1,0 +1,1 @@
+V.—La NP-DB deberá contar con un sistema de comunicaciones redundante dimensionado de manera tal que permita la realización de las consultas llamada por llamada de los distintos operadores o proveedores de servicio.

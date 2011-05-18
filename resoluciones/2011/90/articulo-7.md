@@ -1,0 +1,1 @@
+VII.—Respecto al Grupo ICE como operadores establecidos, a partir de la promulgación de la Ley 8642 del 30 de junio del 2008 se encuentra en la obligación de cumplir con el derecho de los usuarios a la portabilidad numérica, por lo que deberá ajustar sus redes en el plazo inmediato para que éstas operen bajo el esquema “all call query” con base de datos centralizada.

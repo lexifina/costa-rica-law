@@ -1,0 +1,1 @@
+VI.—Todos los operadores de redes de telecomunicaciones y los proveedores de servicios de telecomunicaciones disponibles al público, deberán satisfacer de manera inmediata el derecho de los usuarios a portabilidad numérica, por lo que sus equipos deben estar facultados para la implementación del esquema “all call query” con base de datos centralizada.
