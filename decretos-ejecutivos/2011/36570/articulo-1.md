@@ -1,0 +1,15 @@
+Nº 36570-MAG
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20) y 146 de la Constitución Política, los artículos 25, 27.1, 28.2b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, la Ley Nº 8495 del 6 de abril del 2006, Ley del Servicio Nacional de Salud Animal y la Ley N° 7475 del 20 de diciembre de 1994, Ley de Ejecución de los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales.
+Considerando:
+I.—Que es función esencial del Estado prevenir la introducción o difusión en el territorio nacional de enfermedades de los animales de declaración obligatoria previstas en el Código Sanitario para los Animales Terrestres de la Organización Mundial de la Sanidad Animal (OIE) en especial de aquellas de alta difusión, o para prevenir la extensión de tales enfermedades en caso de existencia de casos sospechosos o confirmados o de grave riesgo sanitario.
+II.—Que la Ley Nº 8495 del 6 de abril del 2006, Ley General del Servicio Nacional de Salud Animal (SENASA), faculta a este para clasificar las plagas y enfermedades que afectan a los animales.
+III.—Que según la Organización Mundial de Sanidad Animal, OIE, indica que la salmonelosis es una de las enfermedades infecciosas bacterianas transmitidas por los alimentos, más comunes en el mundo y con un importante potencial zoonótico. Que la mayoría de estas infecciones se debe a Salmonella Enteritidis y Salmonella Typhimurium. Esta propagación de la infección por los alimentos puede surgir al introducir en la cadena alimentaria carne, huevos o productos derivados de ambos y producir alimentos contaminados. (Código sanitario para los Animales Terrestres, OIE, 2009).
+IV.—Que la Organización Mundial de Sanidad Animal, OIE, ha emitido en el Código Sanitario para Animales Terrestres las medidas de prevención, detección y control de las infecciones de aves de corral por Salmonella, las cuales deberán de incorporarse a la normativa de nuestro país.
+V.—Que el Listado de Enfermedades Animales de Declaración Obligatoria, Decreto Ejecutivo Nº 34669-MAG, no incluye la Salmonella zoonótica y por ello resulta necesario modificar dicho decreto en el sentido de agregar dentro del listado de enfermedades y patógenos de declaración obligatoria ante el SENASA la Salmonelosis: Salmonella Enteritidis y Salmonella Typhimurium. Por tanto,
+Decretan:
+MODIFICACIÓN AL LISTADO DE ENFERMEDADES
+ANIMALES DE DECLARACIÓN OBLIGATORIA
+Artículo 1º—Modifíquese el Artículo 3° del Decreto Ejecutivo N° 34669-MAG, del 8 de julio del 2008, publicado en el Diario Oficial La Gaceta Nº 156 del 13 de agosto del 2008, correspondiente al “Listado de enfermedades animales de declaración obligatoria”, en el sentido de agregar un inciso 3.6.16) que se leerá de la siguiente manera:
+“3.6.16 Salmonelosis: Salmonella Enteritidis y Salmonella Typhimurium.”
