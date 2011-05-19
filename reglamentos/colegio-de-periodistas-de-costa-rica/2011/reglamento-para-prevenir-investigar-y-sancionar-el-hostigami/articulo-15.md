@@ -1,0 +1,1 @@
+Artículo 15.—Asesoría legal como coadyuvante. Que la Asesoría Legal en caso de no llevar la instrucción del proceso, será reconocida expresamente como coadyuvantes de la víctima en todos los procesos administrativo por hostigamiento sexual conforme al presente reglamento.

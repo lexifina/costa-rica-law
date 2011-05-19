@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de cobertura. El presente reglamento regirá para todos los funcionarios y funcionarias del Colegio de Periodistas de Costa rica, personas usuarias de los servicios y personal de contratación externa, miembros de Junta Directiva, Comisiones así como los Tribunales de Honor y Electoral.
