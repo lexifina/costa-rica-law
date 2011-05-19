@@ -14,3 +14,4 @@ Reglamento General para el Otorgamiento del Certificado Veterinario de Operació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-27 | la propia norma |
+| 2 | 2011-05-19 | Decreto Ejecutivo 36548 (2011-05-19) |
