@@ -1,0 +1,1 @@
+Artículo 20.—La recuperación de materiales valorizables deberá efectuarse según lo establecido en el Reglamento de Centros de Recuperación de Residuos Valorizables, Decreto Ejecutivo Nº 35906-S del 27 de enero del 2010.

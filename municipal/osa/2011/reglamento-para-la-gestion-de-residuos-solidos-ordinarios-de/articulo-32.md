@@ -1,0 +1,1 @@
+Artículo 32.—Al término de la jornada de trabajo se lavarán los vehículos y el equipo, a efecto de mantenerlos en condiciones que no atenten contra la salud de las personas. Las aguas de lavado de los vehículos y equipos destinados a la recolección y transporte deben ser conducidas a un sistema de recolección y tratamiento.

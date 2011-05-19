@@ -1,0 +1,1 @@
+Artículo 45.—Los usuarios del servicio están obligados a separar los residuos peligrosos de los ordinarios. Una vez separados los residuos peligrosos los usuarios deberán cumplir con lo establecido en el capítulo III de este Reglamento.

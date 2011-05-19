@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad de Osa será responsable de capacitar al personal encargado de la recolección de residuos sólidos ordinarios, dotarlo de equipo de protección personal, identificación, ropa de trabajo con aditamentos reflectivos y demás implementos así como condiciones laborales conforme a la normativa vigente en materia laboral y de salud ocupacional.

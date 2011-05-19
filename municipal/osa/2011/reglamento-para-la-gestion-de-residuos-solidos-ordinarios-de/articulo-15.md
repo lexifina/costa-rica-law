@@ -1,0 +1,1 @@
+Artículo 15.—Ante la imposibilidad de una recolección puerta a puerta, la Municipalidad de Osa establecerá el sistema de almacenamiento colectivo de residuos sólidos ordinarios, de acuerdo con las características del equipo de recolección y transporte que utilice.

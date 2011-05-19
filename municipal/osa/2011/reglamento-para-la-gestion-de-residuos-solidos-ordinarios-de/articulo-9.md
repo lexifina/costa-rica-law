@@ -1,0 +1,1 @@
+Artículo 9º—La recolección de residuos sólidos ordinarios se realizara en los días y horas que fije la Municipalidad de Osa, teniendo en cuenta características del mismo y las circunstancias que concurran en el lugar de su prestación.

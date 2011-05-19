@@ -1,0 +1,1 @@
+Artículo 31.—Los vehículos y equipos de la Municipalidad de Osa o contratados destinados a la recolección y transporte de residuos sólidos ordinarios, deben permanecer en correctas condiciones de operación.

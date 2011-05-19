@@ -1,0 +1,1 @@
+Artículo 6º—Los gestores de residuos sólidos ordinarios, deberán contar con un Permiso Sanitario de Funcionamiento de acuerdo a lo establecido en el Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud.

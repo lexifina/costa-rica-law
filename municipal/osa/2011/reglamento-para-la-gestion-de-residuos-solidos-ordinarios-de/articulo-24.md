@@ -1,0 +1,1 @@
+Artículo 24.—La Municipalidad de Osa establecerá un servicio de recolección de residuos sólidos ordinarios de tal forma que éstos no alteren o propicien condiciones adversas en la salud de las personas o contaminen el ambiente.
