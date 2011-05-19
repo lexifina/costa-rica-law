@@ -1,1 +1,0 @@
-Artículo 10.—Los servidores acogidos a la dedicación exclusiva continuarán disfrutando de este beneficio en los casos en que se acojan a permisos con goce de salario total o parcial, en aquellos casos en que se encuentre capacitándose siempre y cuando su contrato de dedicación exclusiva haya sido firmado con un mínimo de tres meses de anticipación.
