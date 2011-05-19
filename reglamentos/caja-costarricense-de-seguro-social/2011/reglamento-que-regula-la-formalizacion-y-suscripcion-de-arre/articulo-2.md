@@ -1,0 +1,1 @@
+Artículo 2º—De la inclusión de la cuota obrera en arreglos y convenios de pago con patronos. Se podrá incluir la cuota obrera de planillas ordinarias y adicionales, por todo el plazo en que se formalice el arreglo, convenio de pago o readecuación de pago.

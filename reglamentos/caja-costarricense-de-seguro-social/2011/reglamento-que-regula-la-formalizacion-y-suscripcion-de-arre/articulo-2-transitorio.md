@@ -1,0 +1,3 @@
+Transitorio II.—Readecuaciones de convenios de pago. En forma transitoria y hasta el 31 de diciembre del año 2011, se dispone lo siguiente:
+1. Se disminuye de un 25% a un 20% el porcentaje del monto principal que deben haber pagado los deudores para optar por una readecuación de convenio de pago, establecido en el inciso a) del artículo 8º de este Reglamento.
+2. Se podrán realizar readecuaciones por segunda vez en convenios de pago, cuando la primera readecuación se encuentre al día en el pago de las mensualidades, es decir, la morosidad sea producto de deudas generadas posterior a la firma de la readecuación anterior; asimismo, que se haya pagado al menos el treinta y cinco por ciento del monto principal de dicha readecuación.

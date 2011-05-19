@@ -1,0 +1,3 @@
+Transitorio IV.—Pago Único de Intereses para arreglos y convenios de pago. En forma transitoria y hasta el 31 de diciembre del año 2011, se amplía el plazo para el pago único de intereses, en cuotas de arreglos y convenios de pago, establecido en el inciso d) del artículo 3º de este Reglamento, de la siguiente manera:
+• Para los arreglos de pago se amplía el pago únicamente de intereses durante un plazo máximo de tres años y luego una cuota nivelada (amortización e intereses), durante el resto del plazo.
+• Para convenios de pago, se amplía el pago únicamente de intereses durante un plazo máximo de dos año y luego una cuota nivelada (amortización e intereses), durante el resto del plazo.

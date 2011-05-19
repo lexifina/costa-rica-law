@@ -1,0 +1,3 @@
+Transitorio III.—Ampliación de plazos de arreglos y convenios de pago. Se amplían, en forma transitoria hasta el 31 de diciembre del año 2011, los plazos máximos para formalizar convenios de pago con patronos y trabajadores independientes del sector privado y arreglos de pago, cuya garantía sea diferente a una hipoteca en primer grado o cédula hipotecaria en primer grado, establecidos en este Reglamento, de la siguiente manera:
+1. En convenios de pago con patronos y trabajadores independientes del sector privado hasta un plazo máximo de cuarenta y ocho meses.
+2. En arreglos de pago con garantía diferente a hipoteca y cédula hipotecaria en primer grado hasta un plazo máximo de ochenta y cuatro meses.
