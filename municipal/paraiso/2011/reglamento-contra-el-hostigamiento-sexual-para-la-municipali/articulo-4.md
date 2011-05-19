@@ -1,0 +1,1 @@
+Artículo 4º—En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, el Alcalde procederá a conformar el Órgano Director. El Órgano Director estará integrado por tres personas de trascendencia intachable en la carrera administrativa municipal.
