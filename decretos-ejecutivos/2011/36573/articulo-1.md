@@ -1,0 +1,15 @@
+Nº 36573-MICIT
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; el inciso 2.b) del artículo 28, e inciso 3) del artículo 47 de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; y el artículo 8 de la Ley de Promoción del Desarrollo Científico y Tecnológico, Ley Nº 7169 del 26 de junio de 1990; y.
+Considerando:
+1º—Que la Ley de Promoción del Desarrollo Científico y Tecnológico N° 7169, del 26 de junio de 1990, establece en su artículo 3 inciso b) como uno de sus objetivos específicos para el desarrollo científico y tecnológico; “Apoyar la actividad científica y tecnológica que realice cualquier entidad privada o pública, nacional o extranjera, que contribuya al intercambio científico y técnico con otros países o que esté vinculada con los objetivos del desarrollo nacional”.
+2º—Que el VII Congreso Latinoamericano de Micología, se llevará a cabo por primera vez en Costa Rica, del 18 al 21 de julio de 2011.
+3º—Que dicho evento pretende reunir a especialistas en el estudio de los hongos de toda Latinoamérica, así como a invitados especiales de Europa y Estados Unidos de América; representado una valiosa oportunidad para que estudiantes y profesionales costarricenses interactúen con los citados científicos y se actualicen sobre los avances de la micología en las diferentes áreas.
+4º—Que en dicho evento académico- científico se realizarán diversas actividades donde se expondrán temas de salud pública, como enfermedades infecciosas en humanos causadas por hongos, enfermedades infecciosas en cultivos agrícolas causadas por hongos; así como se discutirán temas de gran actualidad en la comunidad científica internacional, tal es el caso del estudio de los hongos y el impacto del cambio climático global con las subsecuentes repercusiones en la biodiversidad; avances en genética y biología molecular de los hongos y sus posibles aplicaciones en biotecnología, sistemática y taxonomía.
+5º—Que el VII Congreso Latinoamericano de Micología, tendrá su sede en la Universidad de Costa Rica, institución que goza de un excelente reconocimiento y distinción a nivel internacional, lo que garantiza una exposición importante para nuestro país a esos niveles. Por tanto;
+Decretan:
+“Declaratoria de interés público para el Sector
+de Ciencia y Tecnología del VII Congreso
+Latinoamericano de Micología”
+Artículo 1º—Con fundamento en el artículo 8 de la Ley de Promoción del Desarrollo Científico y Tecnológico, Nº 7169, se declara de interés público, el VII Congreso Latinoamericano de Micología, organizado por la Asociación Latinoamericana de Micología, y co-patrocinado por la Vicerrectoría de Investigación, el Instituto de Investigaciones en Ingeniería y la Escuela de Biología de la Universidad de Costa Rica (UCR), así como por el Departamento de Historia Natural del Museo Nacional de Costa Rica; a celebrarse en San José, Costa Rica, del 18 al 21 de julio del 2011.
