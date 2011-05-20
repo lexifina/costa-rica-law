@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección General procurará elaborar un formulario de solicitud para cada uno de los tipos de empresa según su clasificación, en formato digital. En tanto ello ocurre, las empresas deberán gestionar sus solicitudes conforme los requerimientos que para cada tipo de empresa se han establecido.

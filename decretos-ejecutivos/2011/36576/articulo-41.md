@@ -1,0 +1,1 @@
+Artículo 41.—Las solicitudes de residencia del personal de empresas autorizadas ante la Dirección General y sus dependientes, que se aprueben según los lineamientos del presente Reglamento, serán otorgadas por el plazo de dos años, plazo que podrá ser renovado según lo estipulado en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 2º—Además de cumplir con lo estipulado en el artículo anterior, para beneficiarse del presente Reglamento las empresas deberán cumplir con el perfil y los requisitos para empresas establecidas de acuerdo con la clasificación contenida en el capítulo siguiente.

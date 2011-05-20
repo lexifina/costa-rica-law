@@ -1,0 +1,1 @@
+Artículo 42.—Créase una ventanilla especial para la atención de los trámites migratorios de las empresas autorizadas en el Registro de Empresas que al efecto lleva la Dirección General, regulados en el presente Reglamento a excepción del trámite de visas, sin perjuicio de que este último pueda ser incluido en esta ventanilla por estimarlo pertinente la Dirección General.
