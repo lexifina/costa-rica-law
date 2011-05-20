@@ -14,3 +14,4 @@ Autoriza delegación de firmas en los Directores y Jefes de las oficinas regiona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-30 | la propia norma |
+| 2 | 2011-05-20 | Acuerdo 180 (2011-05-20) |

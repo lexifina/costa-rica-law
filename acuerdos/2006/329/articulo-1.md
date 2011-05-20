@@ -8,9 +8,10 @@ Considerando:
 6º—Que de conformidad con el artículo 10, inciso e) de la Ley Nº 8220 de protección al ciudadano del exceso de requisitos y trámites, se considera como falta grave el no resolver los trámites presentados por los administrados dentro del plazo establecido.
 7º—Que con el fin de ofrecer un mejor servicio a los usuarios del INCOPESCA respecto a la tramitación y renovación de licencias y permisos o autorizaciones, se hace necesario que la Presidencia Ejecutiva pueda delegar la firma de dichos documentos cuando se trate de renovaciones de licencias de pesca, permisos o autorizaciones. Por tanto:
 SE ACUERDA:
-Artículo 1º—Los Directores y Jefes de las oficinas regionales del INCOPESCA, ubicadas en Guanacaste, Limón, Quepos y Golfito, Oficinas auxiliares de La Cruz y Nicoya; encargados de otras oficinas regionales que pudieran ser abiertas por dicha Institución y el Jefe del Departamento de Protección y Registro, el Jefe del departamento de Acuicultura y los Jefes de Estaciones Acuícolas, al amparo de las regulaciones existentes, tendrán facultad legal para emitir y firmar:
-a. Renovaciones de licencias de pesca, excepto las de atún.
-b. Permisos de primera vez, renovaciones o prórrogas de transporte, comercialización, industrialización, conservación, procesamiento, exportación o importación de productos pesqueros prórrogas consecutivas de ampliación o construcción de embarcaciones, definidos estos últimos los solicitados por donación, sustitución o importación.
-c. Permisos de sustitución de motores por primera vez o prórrogas consecutivas.
-d. Permisos de exoneración de insumos pesqueros y acuícolas por primera vez, o prórrogas consecutivas.
-e. Traspaso por primera vez o prórrogas consecutivas.
+Artículo 1º—Autorizar la delegación de firmas en los Directores y Jefes de las oficinas regionales del INCOPESCA, ubicadas en Guanacaste, Limón, Quepos y Golfito, Oficinas auxiliares de La Cruz y Nicoya; encargados de otras oficinas regionales que pudieran ser abiertas por dicha Institución y el Jefe del Departamento de Protección y Registro, el Jefe del departamento de Acuicultura y los Jefes de Estaciones Acuícolas, quienes al amparo de las regulaciones existentes, tendrán facultad legal para emitir y firmar:
+a) Renovaciones de licencias de pesca, excepto las de atún, y su respectiva resolución administrativa, la cual deberá ser uniformada por parte de la Dirección General Técnica para todas las Direcciones, Oficinas Regionales y Auxiliares, así como al Departamento de Protección y Registro
+b) Permisos de primera vez, renovaciones o prórrogas de transporte, comercialización, industrialización, conservación, procesamiento, exportación o importación de productos pesqueros prórrogas consecutivas de ampliación o construcción de embarcaciones, definidos estos últimos los solicitados por donación, sustitución o importación.
+c) Permisos de sustitución de motores por primera vez o prórrogas consecutivas.
+d) Permisos de exoneración de insumos pesqueros y acuícolas por primera vez, o prórrogas consecutivas.
+e) Traspaso por primera vez o prórrogas consecutivas.
+(Así reformado mediante acuerdo AJDIP/180-2011 del 20 de mayo de 2011)
