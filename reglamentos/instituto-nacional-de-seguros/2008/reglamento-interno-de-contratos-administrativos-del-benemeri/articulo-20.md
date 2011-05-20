@@ -1,1 +1,3 @@
-Artículo 20.—Responsabilidad de las unidades usuarias en la recepción. Es responsabilidad de las unidades usuarias realizar la comprobación de que el equipo recibido se ajusta a las especificaciones técnicas del cartel respectivo, así como realizar las pruebas de calidad sobre el funcionamiento del equipo.
+Artículo 20.—Competencia para compra o venta de un inmueble. Para que un órgano inferior al Consejo Directivo adjudique la compra o venta de un inmueble, es necesario que esa instancia haya fijado previamente en cada caso las condiciones de la negociación.
+Lo anterior de conformidad con el artículo 8 de la Ley Nº 8228 Ley del Benemérito Cuerpo de Bomberos de Costa Rica que se modificó por medio del artículo 53 de la Ley N° 8653 Ley Reguladora del Mercado de Seguros y los artículos 89, 90, 91 y 92 de la Ley General de la Administración Pública.
+(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 15 al 20)

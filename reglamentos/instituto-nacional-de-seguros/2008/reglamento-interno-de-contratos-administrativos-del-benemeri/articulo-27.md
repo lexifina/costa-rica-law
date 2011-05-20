@@ -1,4 +1,3 @@
-TÍTULO VI
-CAPÍTULO ÚNICO
-Control de contratos
-Artículo 27.—Obligación de las unidades usuarias en contratos por servicios. Todas las unidades usuarias están en la obligación de informar a la Unidad de Proveeduría, tanto la fecha de inicio como la de finalización de los contratos por servicios que estén bajo su control y que sean prestados por terceros.
+Artículo 27.—Acciones en caso de incongruencias en la recepción. Cuando hubiere incongruencia entre las especificaciones del respectivo Cartel y las del equipo o activo recibido, así como deficiencias de funcionamiento de éste, la unidad usuaria deberá especificarlos en forma clara y detallada en el informe a la Unidad de Proveeduría a efecto de iniciar las acciones que procedan.
+Esta Unidad tan pronto reciba el informe determinará la mejor estrategia de actuación de modo que los intereses del Cuerpo de Bomberos sean pronta y eficazmente defendidos.
+(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 22 al 27)

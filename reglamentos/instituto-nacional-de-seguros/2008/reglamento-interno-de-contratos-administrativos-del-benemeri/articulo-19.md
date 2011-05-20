@@ -1,2 +1,4 @@
-Artículo 19.—Responsabilidad sobre el recibo de activos especializados. El Área de Aprovisionamiento deberá recibir el equipo en las condiciones que lo entrega el proveedor y garantizar su conservación hasta tanto la unidad usuaria no realice las pruebas técnicas de funcionamiento, así como la verificación de que el equipo se ajusta a las condiciones del cartel respectivo.
-Por su parte, cuando por razones técnicas o por especificaciones propias del contrato, los activos sean entregados directamente en la unidad usuaria, ésta será responsable de recibir el equipo.
+Artículo 19.—Competencias para resolver recursos. El Órgano competente para declarar infructuoso, desierto, readjudicar un concurso, conocer y resolver recursos será el mismo que, de conformidad con el artículo 13 anterior, lo hubiese sido también para adjudicar según el monto del que se trate, conforme el artículo 86 del Reglamento a la Ley de Contratación Administrativa.
+Lo anterior sin perjuicio de la avocación de competencia por parte de los Órganos superiores.
+(Así reformado mediante acuerdo Nº VIII de la sesión 0012 y publicado en La Gaceta N° 194 del 6 de octubre de 2010)
+(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 14 al 19)

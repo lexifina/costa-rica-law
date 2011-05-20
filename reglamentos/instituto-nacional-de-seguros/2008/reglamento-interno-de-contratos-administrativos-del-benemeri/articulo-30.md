@@ -1,4 +1,11 @@
-TÍTULO VII
+TÍTULO V
 CAPÍTULO ÚNICO
-Disposiciones adicionales
-Artículo 30.—Contratación agrupada de necesidades y servicios. Las Dependencias a cuyo cargo se encuentran varias unidades deben valorar globalmente sus necesidades de compra, venta o arrendamiento de bienes y servicios y planificar las solicitudes que remitirán al Unidad de Proveeduría procurando que, en cuanto a formalidades y plazo de presentación, cumplan con lo necesario para que esta Unidad pueda brindar una óptima atención a sus requerimientos y pueda preparar y remitir a publicación en la forma y oportunidad que prevé la Ley y el Programa Anual de Adquisiciones del Cuerpo de Bomberos.
+Competencia para aprobar modificaciones, ampliaciones
+o disminuciones en construcciones
+Artículo 30.—Aprobación de modificaciones en la construcción de edificios. La autorización de modificaciones, ampliaciones o disminuciones en la construcción de edificios e instalaciones se efectuará previo a su realización y de acuerdo con los siguientes límites por proyecto:
+Hasta 10% del monto adjudicado, la Unidad de Proveeduría.
+De un 10% a un 20% del monto adjudicado, la Subdirección Administrativa.
+De un 20% a un 30% del monto adjudicado, el Director General de Bomberos.
+Más de un 30% y hasta un 50% del monto adjudicado, el Consejo Directivo.
+Para ello la Unidad de Ingeniería debe presentar el informe técnico correspondiente y gestionar la incorporación de la solicitud en el sistema que corresponda.
+(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 25 al 30)

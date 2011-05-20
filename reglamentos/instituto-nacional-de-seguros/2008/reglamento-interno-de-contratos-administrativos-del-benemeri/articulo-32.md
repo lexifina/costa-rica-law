@@ -1,1 +1,5 @@
-Artículo 32.—Situaciones no previstas en el presente Reglamento. La Unidad de Proveeduría, en lo no previsto en el presente Reglamento y en las disposiciones del Director General de Bomberos que se emitan en el futuro, como órgano especializado en contratación pública que es, tendrá plena competencia para resolver y tramitar los diferentes asuntos conforme a la Ley de Contratación Administrativa y su Reglamento salvo, que la competencia o función sea asignada por norma expresa a otra instancia.
+TÍTULO VI
+CAPÍTULO ÚNICO
+Control de contratos
+Artículo 32.—Obligación de las unidades usuarias en contratos por servicios. Todas las unidades usuarias están en la obligación de informar a la Unidad de Proveeduría, tanto la fecha de inicio como la de finalización de los contratos por servicios que estén bajo su control y que sean prestados por terceros.
+(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 27 al 32)
