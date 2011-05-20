@@ -1,0 +1,1 @@
+Artículo 27.—El SINAC a través de las oficinas de administración de las áreas silvestres protegidas, podrá autorizar la realización de torneos de pesca deportiva a grupos organizados, de conformidad con el artículo 51 del Reglamento a la Ley de Conservación de la Vida Silvestre Decreto Ejecutivo Nº 32633, en áreas silvestres protegidas cuando su plan de manejo así lo permita.

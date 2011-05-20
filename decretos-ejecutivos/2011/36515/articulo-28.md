@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De la tenencia de animales silvestres en cautiverio
+Artículo 28.—De conformidad con el artículo 19 de la Ley de Conservación de la Vida Silvestre y el artículo 64 del Reglamento a la Ley de Conservación de la Vida Silvestre, los administrados que capturen animales silvestres autorizados por el presente decreto y al amparo de la licencia correspondiente, deberán llenar y firmar un formulario oficial con las especies capturadas o cazadas, ante la oficina subregional del Área de Conservación respectiva, dentro del mes siguiente a la captura.
+En el caso de tenencia de aves de plumaje en cautiverio en aviarios con dimensiones mínimas de 4 metros cúbicos, adecuadamente acondicionados; se establece un límite de 15 aves en total por aviario por permisionario con las licencias correspondientes.

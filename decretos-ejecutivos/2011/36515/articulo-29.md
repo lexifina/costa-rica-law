@@ -1,0 +1,1 @@
+Artículo 29.—Se prohíbe por tiempo indefinido, la caza o captura de las especies que no aparezcan contempladas en las listas de especies autorizadas para la caza, contenidas en los artículos 12, 13, 14, 16, 17, 18, 19, 20, 21 y 24 del presente decreto.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Generalidades sobre la caza mayor y menor
+Artículo 2°—De conformidad con lo establecido en los artículos 12, 17, 30 y 31 de la Ley de Conservación de la Vida Silvestre, las oficinas subregionales de las Áreas de Conservación establecidas a nivel nacional, las oficinas de administración de los Refugios Nacionales de Vida Silvestre y otras que se establezcan con este fin, en las diferentes Áreas de Conservación que conforman el Sistema Nacional de Áreas de Conservación (SINAC), serán las encargadas de autorizar, emitir y suscribir o denegar las licencias de caza, así como las licencias de subsistencia cuando correspondan.

@@ -1,0 +1,1 @@
+Artículo 32.—Se exceptúa la aplicación del contenido del presente decreto a las fincas cinegéticas debidamente inscritas ante el Ministerio de Ambiente, Energía y Telecomunicaciones, de conformidad a lo establecido en el artículo 2 de la Ley de Conservación de la Vida Silvestre, N° 7317.

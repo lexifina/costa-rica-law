@@ -1,0 +1,1 @@
+Artículo 6°—Para cualquier actividad de cacería o captura se deberá portar la respectiva licencia de caza, y en caso de captura de aves deberá portar los papeles de registro del ave señuelo de conformidad con el artículo 41 del Reglamento a la Ley de Conservación de la Vida Silvestre, Decreto Ejecutivo Nº 32633 del 10 de marzo del 2005.

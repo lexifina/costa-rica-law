@@ -1,0 +1,1 @@
+Artículo 7°—Portar la respectiva licencia de caza no autoriza el ingreso a las fincas privadas sin el consentimiento del dueño y/o terrenos públicos, de conformidad con lo establecido en el artículo 32 de la Ley de Conservación de la Vida Silvestre. Por lo anterior, la licencia deberá presentarse en caso de requerirlo la autoridad competente.

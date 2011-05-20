@@ -1,0 +1,1 @@
+Artículo 33.—El presente decreto tendrá una vigencia de 5 años a partir de su publicación en el Diario Oficial La Gaceta; siempre y cuando, no suceda un cambio importante que afecte técnicamente o científicamente a las poblaciones de las especies objeto de caza, contempladas en el mismo; que hagan necesario variar el criterio de la Administración.
