@@ -1,0 +1,1 @@
+Artículo 4º—Para los efectos correspondientes, el Departamento de Extensión y Capacitación del INCOPESCA realizará los trámites y acciones pertinentes ante el IMAS que permitan otorgar un subsidio a los pescadores artesanales en pequeña escala y los ayudantes, por pobreza coyuntural, en razón de la veda definida.
