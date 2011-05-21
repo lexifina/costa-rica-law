@@ -1,1 +1,0 @@
-Artículo 12.—El Tesorero Auxiliar llevará un libro para el control de los fondos que administra en el que consignará todos los ingresos y egresos de su Tesorería. El Tesorero General podrá realizar u ordenar la realización de auditorías al FEC y a la Tesorería Auxiliar.
