@@ -1,1 +1,0 @@
-Artículo 22.—Asimismo, los establecimientos deberán contar con el equipo y reactivos necesarios para el manejo apropiados de desechos potencialmente peligrosos, que incluyen material punzocortante, así como desechos sólidos y líquidos.

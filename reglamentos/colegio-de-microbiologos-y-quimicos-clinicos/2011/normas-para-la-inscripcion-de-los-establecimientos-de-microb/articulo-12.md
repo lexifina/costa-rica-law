@@ -1,1 +1,0 @@
-Artículo 12.—Dado el carácter de obligatoriedad del artículo anterior, no es permitido que los laboratorios remitan los exámenes incluidos en la lista de exámenes a ningún otro laboratorio, aún si este fuera del mismo dueño, lo anterior para asegurar a los usuarios la atención inmediata y la prontitud en los resultados de los exámenes incluidos en esta lista.
