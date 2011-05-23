@@ -1,3 +1,0 @@
-Artículo 7°-De las medidas cautelares
-El órgano director del proceso podrá solicitar a su Superior Jerárquico se dicten las medidas cautelares que considere necesarias, durante cualquier etapa del proceso a fin de que la investigación respectiva no se vea impedida por acto alguno.
-En caso de que la persona ofendida considere necesaria su reubicación temporal en otro departamento o sección distinta a aquella en donde se encontraba al momento del Hostigamiento denunciado, podrá solicitarlo así a la Dirección Ejecutiva o Superior Jerárquico en cualquier momento del proceso, quien decidirá en única instancia.
