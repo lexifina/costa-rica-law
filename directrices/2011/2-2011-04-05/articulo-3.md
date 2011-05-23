@@ -1,0 +1,3 @@
+Artículo 3°- Campos no regulados.
+En caso de que se presente un campo de la tasación que no se encuentra regulado, sea por las características de los bienes o los derechos de valorar, o por no estar ubicados dentro de los campos que cubren los colegios profesionale1, pueden ser valorados por profesionales de cualquiera de los colegios profesionales o bien por otros profesionales como ingenieros en informática, economistas, administradores, etc., de acuerdo a la competencia profesional.
+(1) Tal es el caso de la valoración de equipo y mobiliario de oficina, equipo de cómputo, derechos de propiedad intelectual, derechos comerciales, patentes, etc.

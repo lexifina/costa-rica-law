@@ -1,0 +1,2 @@
+Artículo 6°- Referencias.
+Pueden utilizarse otras referencias de valor para ciertos bienes, como la lista de valores de vehículos de la Dirección General de Tributación para los vehículos, los planos de valores de zonas homogéneas para la valoración de terrenos y el Manual de Valores Base Unitarios por Tipología Constructiva para las construcciones, para ello no se requiere una formación como valuador.
