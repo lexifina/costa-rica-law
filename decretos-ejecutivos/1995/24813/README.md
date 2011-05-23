@@ -16,3 +16,4 @@ Reglamento del Transporte y Acarreo de Derivados del Petróleo
 | 1 | 1995-12-22 | la propia norma |
 | 2 | 1995-12-22 | SINALEVI (sin norma nombrada) |
 | 3 | 2010-01-18 | Decreto Ejecutivo 35788 (2010-01-18) |
+| 4 | 2011-05-23 | Decreto Ejecutivo 36627 (2011-05-23) |

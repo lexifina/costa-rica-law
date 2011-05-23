@@ -1,4 +1,6 @@
+(Derogado)
 Nº 24813-MAE
+(Este decreto fue derogado por el artículo 46 del "Reglamento para la Regulación del Transporte de Combustible", aprobado mediante decreto ejecutivo N° 36627 del 23 de mayo del 2011)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DEL AMBIENTE Y ENERGIA,
 En uso de las facultades conferidas en los incisos 3) y 18) del Artículo 140 de la Constitución Política y la Ley Nº 7554 "Ley Orgánica del Ambiente, del cuatro de octubre de mil novecientos noventa y cinco, y
