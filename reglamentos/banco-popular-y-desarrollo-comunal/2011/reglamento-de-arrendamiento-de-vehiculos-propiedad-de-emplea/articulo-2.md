@@ -1,0 +1,8 @@
+Artículo 2º—Para efectos del presente Reglamento, se entiende por:
+a) Arrendamiento: Utilización dentro de un esquema de alquiler, de vehículos propiedad de empleados del Banco Popular.
+b) Banco: El Banco Popular y de Desarrollo Comunal.
+c) Contrato: Marco regulatorio que considera las obligaciones, deberes y responsabilidades de las partes que lo suscriben, el cual no podrá exceder los cuatro años de vigencia.
+d) Empleado: Persona con la que el Banco mantiene un vínculo jurídico laboral.
+e) Reglamento: Reglamento para arrendamiento de vehículos propiedad de empleados del Banco Popular y de Desarrollo Comunal.
+f) Sistema: Esquema bajo el cual se habilita el arrendamiento de vehículos propiedad de empleados del Banco y que debe operar en el marco de un control interno que garantice el uso racional y apropiado del mismo.
+g) Unidad de Transportes: Es la dependencia administrativa que opera en Oficinas Centrales, o la que ejerza en condición homóloga sus funciones en el resto de los Centros de Negocios, responsable de determinar la disponibilidad vehicular interna y a la que le corresponde disponer la custodia y actualización del registro único a nivel institucional de empleados inscritos en el sistema; conforme la documentación que le hagan llegar las jefaturas al momento de la inscripción y desinscripción de empleados dentro del sistema.

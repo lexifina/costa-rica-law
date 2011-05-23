@@ -1,0 +1,2 @@
+Artículo 3º—La aplicación de este Reglamento cubrirá a todo empleado del Banco Popular y de Desarrollo Comunal que para el ejercicio de sus funciones sea autorizado a utilizar el vehículo de su propiedad, siempre y cuando cumpla con los requisitos y condiciones establecidas en este Reglamento y los restantes elementos que conforman su ambiente de control.
+Se exceptúan de la cobertura de este Reglamento, los siguientes empleados: Gerente General Corporativo, Subgerentes Generales, Auditor Interno y Subauditor Interno.
