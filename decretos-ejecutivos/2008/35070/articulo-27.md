@@ -1,4 +1,0 @@
-Artículo 27.—Del procedimiento de modificación de acompañantes. El procedimiento que llevará a cabo el funcionario migratorio, cuando le corresponda modificar los nombres de los acompañantes en el sistema de salida de las personas menores de edad, será el siguiente:
-a) Analizar que la persona interesada, cumpla con los requisitos señalados en el artículo anterior.
-b) Ingresar al sistema correspondiente e imprimir la información actual y modificarla de conformidad con la solicitud de las partes.
-c) Entregar al interesado una impresión de la modificación solicitada, debidamente sellada y firmada por el funcionario autorizado, así mismo una copia de éste será archivada en el expediente, que para tales efectos confeccionó la Dirección General, con el nombre y la firma de recibido del interesado.

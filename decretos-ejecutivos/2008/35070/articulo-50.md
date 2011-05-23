@@ -1,1 +1,0 @@
-Artículo 50.—Esta prohibido tramitar permisos de salida del país de personas menores de edad que no presenten el pasaporte vigente y los requisitos establecidos en el artículo 10 y siguientes, exceptuando los casos señalados en los artículos 37 y 49 del presente Reglamento.

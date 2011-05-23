@@ -1,1 +1,0 @@
-Artículo 16.—En el caso del inciso e) del artículo 9º del presente Reglamento, además de los requisitos generales señalados en el artículo 10, los solicitantes deberán llenar el formulario, que para tal efecto facilitará la Dirección General y presentar el poder especial protocolizado, el cual deberá cumplir con los requerimientos señalados en el artículo 22 de este Reglamento.

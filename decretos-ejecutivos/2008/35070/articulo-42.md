@@ -1,5 +1,0 @@
-Artículo 42.—Del procedimiento. El procedimiento a seguir en los casos de personas menores de edad, refugiadas o apátridas, es el siguiente:
-a) Los requisitos del artículo 40 deberán ser presentados ante las Oficinas Autorizadas para tramitar permisos de salida a personas menores de edad de la Dirección General.
-b) La autorización de salida del país será dictada por el Director General con base en una determinación del interés superior de la persona menor de edad y el análisis de todos los documentos y probanzas disponibles de conformidad con las Directrices para la Determinación del Mejor Interés del Menor de ACNUR, para lo cual se contará con el criterio de la Oficina de ACNUR.
-c) Como acto previo al dictado de la resolución supra citada, la Dirección General de oficio verificará la resolución en firme mediante la cual se otorgó visa de salida a la persona menor de edad refugiada o apátrida.
-d) La resolución que autoriza el permiso de salida deberá contener: nombre completo, calidades de las persona menor de edad; finalidad, motivo del viaje, vigencia del permiso de salida, nombre completo, calidades y vínculo del o los acompañante(s).
