@@ -1,0 +1,1 @@
+Artículo 3º—Los recursos del “PROPYME” serán asignados por la Comisión de Incentivos del MICIT. La administración de dichos recursos será responsabilidad del CONICIT, por medio de un fideicomiso para el uso exclusivo de las pequeñas y medianas empresas o agrupaciones de PYME costarricenses, en busca de fomentar la innovación y el desarrollo tecnológico nacional.

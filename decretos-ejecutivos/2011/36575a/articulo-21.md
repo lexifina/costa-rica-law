@@ -1,0 +1,1 @@
+Artículo 21.—La PYME o agrupación de PYME, deberá rendir informes periódicos al CONICIT, tanto del avance técnico como de la utilización de los recursos económicos., La periodicidad de estos informes se establecerán en el contrato respectivo y dependerán de la naturaleza y duración del proyecto.

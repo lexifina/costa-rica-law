@@ -1,0 +1,1 @@
+Artículo 6º—Podrán concursar por los recursos del “PROPYME”, las micro, pequeñas y medianas empresas o agrupaciones de PYME costarricenses, para financiar los proyectos definidos en el artículo 4º de este Reglamento.

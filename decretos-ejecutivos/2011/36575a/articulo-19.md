@@ -1,0 +1,1 @@
+Artículo 19.—Las solicitudes aprobadas serán objeto de un contrato, el cual contendrá las normas básicas que regirán las relaciones entre las partes, garantizando con esto los fondos del erario público.

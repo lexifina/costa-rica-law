@@ -1,0 +1,1 @@
+Artículo 7º—Las PYME o agrupaciones de PYME costarricenses podrán competir por los recursos del PROPYME mediante la participación en el concurso a los que convocará el MICIT una vez al inicio del año.

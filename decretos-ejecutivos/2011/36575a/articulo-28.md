@@ -1,0 +1,1 @@
+Artículo 28.—Para promover el uso de los recursos PROPYME, se incentivará la existencia de los GESTORES DE INNOVACIÓN que deberán registrarse ante el MICIT y tendrán como objetivo potenciar la cooperación, entre PYMES, unidades de investigación y otras entidades para brindar orientación y asesoría para el uso de los Fondos de PROPYME.
