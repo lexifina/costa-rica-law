@@ -1,0 +1,2 @@
+Artículo 9
+Costa Rica facilitará al Organismo acceso a los lugares especificados por el Organismo para realizar muestreo ambiental de grandes zonas, y si Costa Rica no está en condiciones de facilitar ese acceso hará todos los esfuerzos razonables para satisfacer la petición del Organismo en otros lugares. El Organismo no solicitará dicho acceso hasta que la Junta haya aprobado el muestreo ambiental de grandes zonas y las disposiciones de procedimiento aplicables al mismo, así como tras la celebración de consultas entre el Organismo y Costa Rica.

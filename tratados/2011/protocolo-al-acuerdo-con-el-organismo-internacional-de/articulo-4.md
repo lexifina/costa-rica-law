@@ -1,0 +1,13 @@
+ACCESO COMPLEMENTARIO
+Artículo 4
+En relación con la puesta en práctica del acceso complementario regido por el artículo 5 del presente Protocolo se aplicarán las siguientes disposiciones:
+a. El Organismo no tratará de verificar de manera mecánica ni sistemática la información a que se hace referencia en el artículo 2; no obstante, el Organismo tendrá acceso a:
+i) Todos los lugares a que se hace referencia en los apartados i) o ii) del párrafo a. del artículo 5 de manera selectiva para asegurarse de la ausencia de materiales nucleares y actividades nucleares no declarados.
+ii) Todos los lugares a que se hace referencia en los párrafos b. o c. del artículo 5 para resolver un interrogante relativo a la corrección y exhaustividad de la información suministrada con arreglo al artículo 2 o para resolver una discrepancia relativa a esa información.
+iii) Todos los lugares a que se hace referencia en el apartado iii) del párrafo a. del artículo 5 en la medida en que el Organismo necesite confirmar, para fines de salvaguardias, la declaración de Costa Rica sobre la situación de clausura de una instalación o de un lugar fuera de las instalaciones en el que habitualmente se utilizaban materiales nucleares.
+b. i) Salvo lo dispuesto en el apartado ii) infra, el Organismo dará aviso del acceso a Costa Rica con 24 horas por lo menos de anticipación;
+ii) En caso de acceso a cualquier lugar de un emplazamiento que se solicite coincidiendo con las visitas para verificar la información sobre el diseño o las inspecciones ad hoc u ordinarias en dicho emplazamiento, el tiempo de preaviso será, si el Organismo así lo requiere, de dos horas como mínimo pero, en circunstancias excepcionales, podrá ser de menos de dos horas.
+c. El previo aviso se dará por escrito y especificará las razones del acceso y las actividades que vayan a realizarse durante dicho acceso.
+d. En el caso de un interrogante o una discrepancia, el Organismo dará a Costa Rica una oportunidad para aclarar y facilitar la resolución del interrogante o la discrepancia. Esa oportunidad se dará antes de la solicitud de acceso, a menos que el Organismo considere que la tardanza en el acceso perjudicaría la finalidad para la cual éste se requiere. En todo caso, el Organismo no sacará ninguna conclusión sobre el interrogante o la discrepancia mientras no se haya dado a Costa Rica dicha oportunidad.
+e. A menos que Costa Rica acepte otra cosa, el acceso solo se realizará durante el horario normal de trabajo.
+f. Costa Rica tendrá derecho a hacer acompañar a los inspectores del Organismo durante el acceso por representantes de Costa Rica, siempre que ello no entrañe retraso u otra clase de impedimento para los inspectores en el ejercicio de sus funciones.
