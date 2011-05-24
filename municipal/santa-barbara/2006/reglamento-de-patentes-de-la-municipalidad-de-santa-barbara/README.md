@@ -14,3 +14,4 @@ Reglamento de Patentes de la Municipalidad de Santa Bárbara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-01 | la propia norma |
+| 2 | 2011-05-24 | Reglamento municipal 56 (2011-05-24) |
