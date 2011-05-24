@@ -1,0 +1,1 @@
+Artículo 35.—El Fondo Fijo de Caja Chica será, diez veces el pago máximo autorizado por el Concejo Municipal. En ningún caso el Fondo Fijo de Caja Chica superará el medio por ciento (0.50%) del presupuesto de gastos aprobado por el Concejo Municipal a la Comisión de Fiestas.

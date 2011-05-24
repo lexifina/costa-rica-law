@@ -1,0 +1,1 @@
+Artículo 14.—Todos los acuerdos tomados por la Comisión de Fiestas para que tengan validez, además de la calidad de la votación, deberá de estar consignados en el libro de actas que llevarán al efecto.

@@ -1,0 +1,1 @@
+Artículo 42.—La Comisión de Fiestas solicitará siempre, en las contrataciones que se realicen bajo éste capítulo, una garantía de cumplimiento de un 8% del monto adjudicado, el cual será retenido por parte de la Comisión de Fiestas del pago inicial del bien o servicio.

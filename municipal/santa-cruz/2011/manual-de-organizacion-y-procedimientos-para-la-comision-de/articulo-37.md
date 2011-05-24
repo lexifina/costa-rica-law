@@ -1,0 +1,1 @@
+Artículo 37.—A los miembros de la Comisión de Fiestas, les será aplicables en lo que corresponda, las prohibiciones y sanciones consagradas en el artículo 22 y 22 bis en el capítulo X de la Ley N° 7494 (Ley de la Contratación Administrativa), y artículo 104 de su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 25.—La Comisión de Fiestas podrá presentar ante el Concejo Municipal para su aprobación, presupuestos extraordinarios cuando los ingresos reales superen a los presupuestados. Siempre y cuando los recursos sean dirigidos para mejorar las actividades religiosas o culturales de las Fiestas Típicas Nacionales.

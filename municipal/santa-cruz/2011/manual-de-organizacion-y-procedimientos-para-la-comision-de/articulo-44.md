@@ -1,0 +1,4 @@
+CAPITULO VII
+Liquidación Final
+Artículo 44.—Las comisiones de festejos deberán elaborar las liquidaciones finales de ingresos y egresos y presentarlas a más tardar cuarenta y cinco días hábiles después de la finalización de los festejos populares a la Auditoría Interna Municipal para su revisión —acompañadas de los correspondientes registros, comprobantes y justificantes— quien contará con un plazo de sesenta días naturales para trasladar la liquidación al Concejo Municipal para su aprobación, el cual se pronunciará a más tardar quince días naturales después.
+Dentro del plazo de elaboración de la liquidación, la Comisión de Fiestas deberá cancelar todos los pasivos en que se haya incurrido, y deberán hacer entrega de los activos que quedaren al finalizar los festejos para que sean destinados conforme acuerdo del Concejo Municipal.

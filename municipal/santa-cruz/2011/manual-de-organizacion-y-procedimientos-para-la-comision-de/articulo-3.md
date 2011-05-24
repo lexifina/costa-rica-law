@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión de Fiestas se nombrará con el propósito de planificar y organizar la realización de las Fiestas Típicas Nacionales de Santa Cruz, Guanacaste, con el objetivo principal de mostrarle, a nacionales y extranjeros, la identidad religiosa y cultural, con sus tradiciones y costumbres típicas y folklóricas del pueblo santacruceño.

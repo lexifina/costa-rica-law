@@ -1,0 +1,1 @@
+Artículo 24.—El Presupuesto de Ingresos, comprenderá todas aquellas sumas en efectivo, que se esperan recibir por concepto de: Remates, Ventas Directas, Patrocinios, donaciones y cualquier otra que por la naturaleza de las fiestas deban ingresar a la cuenta bancaria abierta para tal efecto.

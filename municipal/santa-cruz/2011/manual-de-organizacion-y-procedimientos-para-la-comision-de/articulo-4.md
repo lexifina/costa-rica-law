@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de Fiestas constituye un Órgano Colegiado adscrito al Concejo Municipal. Su titularidad corresponde a un conjunto de personas físicas, que concurren a formar la voluntad u opinión del mismo órgano, sujetas a las disposiciones del Concejo Municipal como su Superior Jerárquico.

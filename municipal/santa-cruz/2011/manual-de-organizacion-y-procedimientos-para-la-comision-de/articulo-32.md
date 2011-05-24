@@ -1,0 +1,1 @@
+Artículo 32.—Los cheques serán entregados en las ventanillas municipales. El tesorero de la Comisión de Fiestas podrá retirar un grupo de cheques, el cual deberá constar en el libro que al efecto llevará el cajero municipal.

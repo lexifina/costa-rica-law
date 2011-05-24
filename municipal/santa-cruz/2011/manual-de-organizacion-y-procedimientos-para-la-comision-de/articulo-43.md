@@ -1,0 +1,1 @@
+Artículo 43.—La garantía de cumplimiento se ejecutará, parcial o totalmente, hasta por el monto necesario para resarcir a la administración municipal por los daños y perjuicios ocasionados por el incumplimiento del contratista.

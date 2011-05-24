@@ -1,0 +1,1 @@
+Artículo 38.—La Comisión de Fiestas, con base en su plan de trabajo y para acatar lo establecido en la Ley de Contratación Administrativa y su Reglamento, deberá elaborar un programa de adquisiciones de bienes, servicios u obras para contratar, que deberá ser publicado en el diario oficial La Gaceta.

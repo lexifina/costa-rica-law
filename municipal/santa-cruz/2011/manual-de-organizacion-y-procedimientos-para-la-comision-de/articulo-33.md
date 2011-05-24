@@ -1,0 +1,2 @@
+Artículo 33.—Todos los gastos en que incurra la Comisión de Fiestas deberán corresponder, guardar relación y ser indispensables para el desarrollo de las actividades para la que fue nombrada.
+Cada gasto deberá estar respaldado mediante justificante original, nítido, con embrete, debidamente cancelado, que cumpla con las disposiciones tributarias, y extendido a nombre de la Comisión. En cada comprobante de cheque se indicará el recibido conforme de los bienes y servicios por parte del miembro que al efecto haya designado la comisión.

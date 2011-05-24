@@ -1,0 +1,1 @@
+Artículo 20.—El presupuesto de la Comisión de Fiestas deberá satisfacer el Plan Operativo para la realización de la Fiestas Típicas Nacionales, de la manera más objetiva, eficiente, razonable y consecuente, y en estricto apego a las costumbres y tradiciones del cantón.

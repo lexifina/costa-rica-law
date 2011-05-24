@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión de Fiestas, estará integrada por un máximo de cinco miembros, nombrados todos por el Concejo Municipal anualmente en la primera sesión ordinaria de mayo de cada año. La Comisión de Fiestas en su seno, elegirá un Presidente(a), Vicepresidente(a), Tesorero(a), Secretario(a), Vocal.
