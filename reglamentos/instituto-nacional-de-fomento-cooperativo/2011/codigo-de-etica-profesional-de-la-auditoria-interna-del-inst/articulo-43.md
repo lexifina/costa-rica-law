@@ -1,0 +1,1 @@
+Artículo 43.—Está totalmente prohibido ejercer alguna de las incompatibilidades que menciona el artículo 18 de la Ley Nº 8422 Contra la corrupción y el enriquecimiento ilícito en la función Pública, salvo lo establecido en el artículo 19 de la misma Ley.

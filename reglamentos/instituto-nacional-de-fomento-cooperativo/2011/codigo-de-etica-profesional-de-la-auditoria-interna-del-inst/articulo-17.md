@@ -1,0 +1,2 @@
+Artículo 17.—Atención de Consultas. Ante consultas que formulen las instancias institucionales en ausencia del Auditor Interno, los Auditores Asistentes brindarán asesoría únicamente con base en las Leyes, Reglamentos, lineamientos y demás disposiciones que rigen la materia, sin externar opinión personal alguna.
+El criterio oficial de la Auditoría Interna sólo será emitido por el Auditor Interno, con base en lo dispuesto en el artículo 173 de la Ley de Asociaciones Cooperativas y creación del INFOCOOP.

@@ -1,0 +1,1 @@
+Artículo 8º—Creativo. El personal que se desempeñe en la Auditoría Interna, independientemente de la función que realice, debe mantener un constante replanteamiento de sus labores y búsqueda continua de nuevas acciones que agreguen valor a la función que realiza en la Auditoría Interna y por ende en el Instituto.

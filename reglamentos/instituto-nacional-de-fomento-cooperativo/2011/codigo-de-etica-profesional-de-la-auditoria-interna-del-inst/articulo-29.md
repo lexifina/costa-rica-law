@@ -1,0 +1,1 @@
+Artículo 29.—Los funcionarios de la Auditoría Interna no deben sustraer, sin la debida autorización, documentación de esta Dependencia. En todo caso, siempre deberá quedar constancia escrita en el archivo, de la documentación cuya salida fue autorizada.
