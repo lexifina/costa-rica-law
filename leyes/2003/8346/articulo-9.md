@@ -8,5 +8,6 @@ f) Aprobar el régimen de retribuciones del personal del SINART, S. A., el cual 
 g) Aprobar las propuestas de programación de los medios de comunicación del SINART, S. A., que presente el director general o la directora general.
 h) Conocer y decidir sobre cuestiones que no sean competencia del Consejo, pero sean sometidas a su consideración por el presidente o la presidenta del Consejo o por el director o la directora general.
 i) Nombrar al director general o a la directora general, quien deberá tener como mínimo el grado de licenciatura en una carrera afín a las funciones propias del cargo, según esta Ley y su Reglamento, y deberá demostrar por lo menos cinco años de experiencia en medios de comunicación.
-j) Autorizar enajenaciones y contrataciones de todo tipo, superiores a diez millones de colones (¢10.000.000,00).
+j) Autorizar enajenaciones y contrataciones de todo tipo, superiores al monto límite de la actuación del presidente del Consejo Ejecutivo.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 8941del 27 de abril del 2011)
 k) Las demás competencias que la ley indique.
