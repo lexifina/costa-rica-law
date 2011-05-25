@@ -1,0 +1,12 @@
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 6 del acta de la sesión 910-2011, celebrada el 6 de mayo del 2011,
+considerando que:
+a. El inciso ñ) del artículo 171 de Ley Reguladora del Mercado de Valores, Ley 7732, faculta al Consejo Nacional de Supervisión del Sistema Financiero a aprobar las normas contables, según los principios de contabilidad generalmente aceptados y en caso de conflicto, éstas prevalecerán sobre las emitidas por el Colegio de Contadores Públicos de Costa Rica.
+b. La participación del Banco Central de Costa Rica en el Mercado Integrado de Liquidez tiene como objetivo principal regular la liquidez sistémica mediante la colocación de Operaciones Diferidas de Liquidez de contracción e inyección, de tal forma que la tasa de interés promedio del Mercado Integrado de Liquidez se ubique en los linderos de la Tasa de Política Monetaria.
+c. Dado el carácter de control monetario de las operaciones del Banco Central de Costa Rica en el Mercado Integrado de Liquidez debe modificarse el concepto de la subcuenta 122.14, Operaciones Diferidas de Liquidez - Recursos Propios, del Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros vigente, para que, cuando el Banco Central de Costa Rica drene liquidez mediante la colocación de sus instrumentos en dicho mercado de negociación de dinero, estas operaciones se registren en esta subcuenta.
+d. La presente modificación no altera los requisitos establecidos en la normativa, por lo que se omite el trámite de envío en consulta.
+Dispuso:
+1.Modificar el concepto de la subcuenta 122.14, Operaciones Diferidas de Liquidez - Recursos Propios, perteneciente a la cuenta 122, Inversiones Disponibles para la venta, Grupo 120, Inversiones en Instrumentos Financieros, del Acuerdo SUGEF 33-07, “Plan de cuentas para entidades, Grupos y Conglomerados Financieros” de conformidad con el siguiente texto:
+“122.14 Operaciones Diferidas de Liquidez - Recursos Propios
+CONCEPTO: En esta cuenta se registra el derecho de cobro que tiene el supervisado por haber aportado liquidez a cambio de un rendimiento y una garantía, a algunos de los participantes en el Mercado Integrado de liquidez.
+Cuando la liquidez aportada no esté garantizada, deberé registrarse como una operación de crédito, excepto cuando la contraparte deudora sea el Banco Central de Costa Rica.”
+2. La anterior disposición rige a partir de su publicación en el diario oficial La Gaceta.
