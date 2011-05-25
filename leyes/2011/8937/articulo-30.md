@@ -1,0 +1,3 @@
+ARTÍCULO 30.- Transacción
+1) Si, durante las actuaciones arbitrales, las partes llegan a una transacción que resuelva el litigio, el tribunal arbitral dará por terminadas las actuaciones y, si lo piden ambas partes y el tribunal arbitral no se opone, hará constar la transacción en forma de laudo arbitral en los términos convenidos por las partes.
+2) El laudo en los términos convenidos se dictará con arreglo a lo dispuesto en el artículo 31 y se hará constar en él que se trata de un laudo. Este laudo tiene la misma naturaleza y efecto que cualquier otro laudo dictado sobre el fondo del litigio.

@@ -1,0 +1,2 @@
+ARTÍCULO 27.- Asistencia de los tribunales para la práctica de pruebas
+El tribunal arbitral, o cualquiera de las partes con la aprobación del tribunal arbitral, podrá pedir la asistencia de un tribunal competente de Costa Rica para la práctica de pruebas. El tribunal podrá atender dicha solicitud dentro del ámbito de su competencia y de conformidad con las normas que le sean aplicables sobre medios de prueba.

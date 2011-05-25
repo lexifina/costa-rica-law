@@ -1,0 +1,9 @@
+ARTÍCULO 33.- Corrección e interpretación del laudo y laudo adicional
+1) Dentro de los treinta días siguientes a la recepción del laudo, salvo que las partes hayan acordado otro plazo:
+a) Cualquiera de las partes podrá pedir, con notificación a la otra, al tribunal arbitral que corrija en el laudo cualquier error de cálculo, de copia o tipográfico, o cualquier otro error de naturaleza similar.
+b) Si así lo acuerdan las partes, cualquiera de ellas podrá pedir, con notificación a la otra, al tribunal arbitral que dé una interpretación sobre un punto o una parte concreta del laudo.
+Si el tribunal arbitral estima justificado el requerimiento, efectuará la corrección o dará la interpretación dentro de los treinta días siguientes a la recepción de la solicitud. La interpretación formará parte del laudo.
+2) El tribunal arbitral podrá corregir cualquier error, del tipo mencionado en el apartado a) del párrafo 1) del presente artículo, por su propia iniciativa dentro de los treinta días siguientes a la fecha del laudo.
+3) Salvo acuerdo en contrario de las partes, dentro de los treinta días siguientes a la recepción del laudo, cualquiera de las partes, con notificación a la otra parte, podrá pedir al tribunal arbitral que dicte un laudo adicional respecto de reclamaciones formuladas en las actuaciones arbitrales, pero omitidas del laudo. Si el tribunal arbitral estima justificado el requerimiento, dictará el laudo adicional dentro de sesenta días.
+4) El tribunal arbitral podrá prorrogar, de ser necesario, el plazo en el cual efectuará una corrección, dará una interpretación o dictará un laudo adicional, con arreglo a los párrafos 1) o 3) del presente artículo.
+5) Lo dispuesto en el artículo 31 se aplicará a las correcciones o interpretaciones del laudo o a los laudos adicionales.

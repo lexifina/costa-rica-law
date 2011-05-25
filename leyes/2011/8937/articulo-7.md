@@ -1,0 +1,9 @@
+CAPÍTULO II
+ACUERDO DE ARBITRAJE
+ARTÍCULO 7.- Definición y forma del acuerdo de arbitraje
+1) El “acuerdo de arbitraje” es un acuerdo por el que las partes deciden someter a arbitraje todas las controversias o ciertas controversias que hayan surgido o puedan surgir entre ellas respecto de una determinada relación jurídica, contractual o no contractual. El acuerdo de arbitraje podrá adoptar la forma de una cláusula compromisoria incluida en un contrato o la forma de un acuerdo independiente.
+2) El acuerdo de arbitraje deberá constar por escrito.
+3) Se entenderá que el acuerdo de arbitraje es escrito cuando quede constancia de su contenido en cualquier forma, ya sea que el acuerdo de arbitraje o contrato se haya concertado verbalmente, mediante la ejecución de ciertos actos o por cualquier otro medio.
+4) El requisito de que un acuerdo de arbitraje conste por escrito se cumplirá con una comunicación electrónica, si la información en ella consignada es accesible para su ulterior consulta. Por “comunicación electrónica” se entenderá toda comunicación que las partes hagan por medio de mensajes de datos. Por “mensaje de datos” se entenderá la información generada, enviada, recibida o archivada por medios electrónicos, magnéticos, ópticos o similares, como pueden ser, entre otros, el intercambio electrónico de datos, el correo electrónico, el telegrama, el télex o el telefax.
+5) Se entenderá que el acuerdo de arbitraje es escrito cuando esté consignado en un intercambio de escritos de demanda y contestación, en los que la existencia de un acuerdo sea afirmada por una parte sin ser negada por la otra.
+6) La referencia hecha en un contrato, a un documento que contenga una cláusula compromisoria, constituye un acuerdo de arbitraje por escrito, siempre que dicha referencia implique que esa cláusula forma parte del contrato.
