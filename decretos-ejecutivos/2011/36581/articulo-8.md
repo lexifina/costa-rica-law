@@ -1,0 +1,1 @@
+Artículo 8º—Se insta a todas las instituciones del Estado y los sectores privados y académico para que, en la medida de sus posibilidades, atribuciones y competencias, contribuyan con aportes materiales, económicos, logísticos y técnicos para apoyar los esfuerzos de la RedCyTec, todo ello dentro del marco normativo vigente.

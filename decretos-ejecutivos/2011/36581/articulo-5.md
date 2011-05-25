@@ -1,0 +1,1 @@
+Artículo 5º—La Red se regirá por un estatuto propio que deberá ser aprobado por mayoría simple de sus miembros fundadores indicados en el artículo 2º; en un plazo no mayor de seis meses a partir de la vigencia de este decreto.
