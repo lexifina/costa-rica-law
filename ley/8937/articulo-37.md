@@ -1,0 +1,1 @@
+ARTÍCULO 37.- Materias objeto de arbitraje. Pueden someterse a arbitraje las controversias sobre materias de libre disposición y transacción, conforme a las disposiciones civiles y comerciales aplicables.

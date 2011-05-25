@@ -1,0 +1,3 @@
+ARTÍCULO 22.- Idioma
+1) Las partes podrán acordar libremente el idioma o los idiomas que hayan de utilizarse en las actuaciones arbitrales. A falta de tal acuerdo, el tribunal arbitral determinará el idioma o los idiomas que hayan de emplearse en las actuaciones. Este acuerdo o esta determinación será aplicable, salvo que él mismo haya especificado otra cosa, a todos los escritos de las partes, a todas las audiencias y a cualquier laudo, decisión o comunicación de otra índole que emita el tribunal arbitral.
+2) El tribunal arbitral podrá ordenar que cualquier prueba documental vaya acompañada de una traducción al idioma o a los idiomas convenidos por las partes o determinados por el tribunal arbitral.

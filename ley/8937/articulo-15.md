@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Nombramiento de un árbitro sustituto
+Cuando un árbitro cese en su cargo, en virtud de lo dispuesto en los artículos 13 o 14, o en los casos de renuncia por cualquier otro motivo, o de remoción por acuerdo de las partes o de expiración de su mandato por cualquier otra causa, se procederá al nombramiento de un sustituto conforme al mismo procedimiento por el que se designó al árbitro que se ha de sustituir.

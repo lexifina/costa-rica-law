@@ -1,0 +1,3 @@
+ARTÍCULO 8.- Acuerdo de arbitraje y demanda en cuanto al fondo ante un tribunal
+1) El tribunal al que se someta un litigio sobre un asunto que es objeto de un acuerdo de arbitraje remitirá a las partes al arbitraje, si lo solicita cualquiera de ellas, a más tardar en el momento de presentar el primer escrito sobre el fondo del litigio, a menos que se compruebe que dicho acuerdo es nulo, ineficaz o de ejecución imposible.
+2) Si se ha entablado la acción a que se refiere el párrafo 1) del presente artículo, se podrán iniciar o proseguir, no obstante, las actuaciones arbitrales y dictar un laudo mientras la cuestión esté pendiente ante el tribunal.

@@ -1,0 +1,5 @@
+ARTÍCULO 24.- Audiencias y actuaciones por escrito
+1) Salvo acuerdo en contrario de las partes, el tribunal arbitral decidirá si han de celebrarse audiencias para la presentación de pruebas o para alegatos orales, o si las actuaciones se sustanciarán sobre la base de documentos y demás pruebas. No obstante, a menos que las partes hayan convenido que no se celebrarían audiencias, el tribunal arbitral celebrará dichas audiencias en la fase apropiada de las actuaciones, a petición de una de las partes.
+2) Deberá notificarse a las partes, con suficiente antelación, la celebración de las audiencias y las reuniones del tribunal arbitral para examinar mercancías u otros bienes o documentos.
+3) De todas las declaraciones, documentos o demás información que una de las partes suministre al tribunal arbitral se dará traslado a la otra parte.
+Asimismo, deberán ponerse a disposición de ambas partes los peritajes o los documentos probatorios en los que el tribunal arbitral pueda basarse al adoptar su decisión.

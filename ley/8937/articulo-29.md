@@ -1,0 +1,2 @@
+ARTÍCULO 29.- Adopción de decisiones cuando hay más de un árbitro
+En las actuaciones arbitrales donde haya más de un árbitro, toda decisión del tribunal arbitral se adoptará, salvo acuerdo en contrario de las partes, por mayoría de votos de todos los miembros. Sin embargo, el árbitro presidente podrá decidir cuestiones de procedimiento, si así lo autorizan las partes o todos los miembros del tribunal.
