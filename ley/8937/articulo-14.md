@@ -1,0 +1,4 @@
+ARTÍCULO 14.- Falta o imposibilidad de ejercicio de las funciones
+1) Cuando un árbitro se vea impedido de jure o de facto en el ejercicio de sus funciones o por otros motivos no las ejerza dentro de un plazo razonable, cesará en su cargo si renuncia o si las partes acuerdan su remoción.
+De lo contrario, si subsiste un desacuerdo respecto a cualquiera de esos motivos, cualquiera de las partes podrá solicitar del tribunal u otra autoridad competente, conforme al artículo 6, una decisión que declare la cesación del mandato, decisión que será inapelable.
+2) Si conforme a lo dispuesto en el presente artículo o en el párrafo 2) del artículo 13, un árbitro renuncia a su cargo o una de las partes acepta la terminación del mandato de un árbitro, ello no se considerará como una aceptación de la procedencia de ninguno de los motivos mencionados en el presente artículo o en el párrafo 2) del artículo 12.

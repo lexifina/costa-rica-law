@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Renuncia al derecho de objetar
+Se considerará que la parte que prosiga el arbitraje conociendo que no se ha cumplido alguna disposición de la presente ley de la que las partes puedan apartarse o algún requisito del acuerdo de arbitraje y no exprese su objeción a tal incumplimiento sin demora injustificada o, si se prevé un plazo para hacerlo, dentro de ese plazo, ha renunciado a su derecho de objetar.

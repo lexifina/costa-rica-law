@@ -1,0 +1,11 @@
+ARTÍCULO 11.- Nombramiento de los árbitros
+1) Salvo acuerdo en contrario de las partes, la nacionalidad de una persona no será obstáculo para que esa persona actúe como árbitro.
+2) Sin perjuicio de lo dispuesto en los párrafos 4) y 5) del presente artículo, las partes podrán acordar libremente el procedimiento para el nombramiento del árbitro o de los árbitros.
+3) A falta de tal acuerdo,
+a)en el arbitraje con tres árbitros, cada parte nombrará un árbitro y los dos árbitros así designados nombrarán al tercero; si una parte no nombra al árbitro dentro de los treinta días del recibo de un requerimiento de la otra parte para que lo haga, o si los dos árbitros no consiguen ponerse de acuerdo sobre el tercer árbitro dentro de los treinta días contados desde su nombramiento, la designación será hecha, a petición de una de las partes, por el tribunal o por otra autoridad competente, conforme al artículo 6;
+b) en el arbitraje con árbitro único, si las partes no consiguen ponerse de acuerdo sobre la designación del árbitro, este será nombrado, a petición de cualquiera de las partes, por el tribunal o por otra autoridad competente, conforme al artículo 6.
+4) Cuando en un procedimiento de nombramiento convenido por las partes,
+a) una parte no actúe conforme a lo estipulado en dicho procedimiento, o
+b) las partes, o dos árbitros, no puedan llegar a acuerdo conforme al mencionado procedimiento, o
+c) un tercero, incluida una institución, no cumpla una función que se le confiera en dicho procedimiento, cualquiera de las partes podrá solicitar al tribunal u otra autoridad competente, conforme al artículo 6, que adopte la medida necesaria, a menos que en el acuerdo sobre el procedimiento de nombramiento se prevean otros medios para conseguirlo.
+5) Toda decisión sobre las cuestiones encomendadas en los párrafos 3) o 4) del presente artículo al tribunal o a otra autoridad competente, conforme al artículo 6, será inapelable. Al nombrar un árbitro, el tribunal u otra autoridad tendrá debidamente en cuenta las condiciones requeridas para un árbitro por el acuerdo entre las partes y tomará las medidas necesarias para garantizar el nombramiento de un árbitro independiente e imparcial. En el caso de árbitro único o del tercer árbitro, tendrá en cuenta asimismo la conveniencia de nombrar un árbitro de nacionalidad distinta de la de las partes.
