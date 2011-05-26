@@ -14,3 +14,4 @@ El Concejo Municipal del Distrito de Paquera, acuerda acogerse a la ley Nº 8818
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-10 | la propia norma |
+| 2 | 2011-05-26 | Acuerdo municipal 0 (2011-05-26) |
