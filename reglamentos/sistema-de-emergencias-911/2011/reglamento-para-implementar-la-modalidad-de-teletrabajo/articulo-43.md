@@ -1,0 +1,1 @@
+Artículo 43.—El tele-trabajador debe cumplir con la jornada oficial de la institución, sin embargo el horario puede ser flexible, siempre y cuando sea consensuado con su jefatura y no afecte el normal desarrollo de las actividades de otros compañeros y procesos de trabajo que reciben o entregan insumos para su gestión.

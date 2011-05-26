@@ -1,0 +1,1 @@
+Artículo 4º—El objetivo del teletrabajo es mejorar la calidad en el servicio al cliente, aumentar la productividad, brindar el mejor desarrollo laboral de los trabajadores del Sistema de Emergencias 9-1-1 con las prácticas modernas y mejorar la calidad de vida de todos y todas.
