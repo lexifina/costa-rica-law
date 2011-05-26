@@ -11,5 +11,6 @@ Considerando:
 DECRETAN:
 El siguiente:
 Reglamento de Lotería Fiscal
-Artículo 1º—Objeto. El sistema de lotería fiscal tiene como objeto básico inducir a los consumidores finales de bienes y servicios a solicitar, como comprobante de compra o de pago, una factura elegible según lo dispuesto en el artículo 4° de este reglamento.
-Asimismo, la lotería fiscal busca crear conciencia en la sociedad de la importancia de exigir la factura o comprobante autorizado, a efecto de dejar constancia de la transacción y con ello coadyuvar en los procesos de recaudación y fiscalización tributaria. A estos efectos, la lotería fiscal podrá promover la participación de instituciones educativas y sus estudiantes, a manera de reforzar los procesos de educación tributaria.
+Artículo 1º—Objeto. El sistema de lotería fiscal tiene como objeto básico inducir a los consumidores finales de bienes y servicios a solicitar, como comprobante de compra o de pago, una factura elegible, así como promover el uso de las tarjetas de débito y crédito, por parte de los consumidores finales para el pago de sus transacciones; según lo dispuesto en el artículo 4° de ese reglamento.
+Asimismo, la lotería fiscal busca crear conciencia en la sociedad de la importancia de exigir la factura o comprobante autorizado, a efecto de dejar constancia de la transacción y con ello coadyuvar en los procesos de recaudación y fiscalización tributaria; además, mediante el uso de las tarjetas de débito y crédito, permite que la recaudación del impuesto de ventas sea oportuna y a su vez ofrece mayor trazabilidad de las operaciones de los contribuyentes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36643 del 26 de mayo del 2011)

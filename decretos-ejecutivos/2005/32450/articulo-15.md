@@ -1,1 +1,2 @@
-Artículo 15.—Facultad Fiscalizadora de la Dirección General de Tributación. La Dirección General de Tributación podrá utilizar cualquiera de las facturas seleccionadas en la muestra para verificar su correcta emisión y registro, a .n de cumplir con la facultad fiscalizadora de las obligaciones tributarias de los contribuyentes.
+Artículo 15.—Facultad Fiscalizadora de la Dirección General de Tributación. La Dirección General de Tributación podrá utilizar cualquiera de los registros electrónicos seleccionados en la muestra para verificar, en posibles actuaciones fiscalizadoras, la asociación de éste con la factura emitida, y de ésta última su correcta emisión y registro.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36643 del 26 de mayo del 2011)

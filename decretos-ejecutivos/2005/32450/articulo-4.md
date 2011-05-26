@@ -1,6 +1,11 @@
-Artículo 4º—Facturas elegibles para el sorteo. Se consideran facturas elegibles para el sorteo, aquellos comprobantes originales de compra de bienes o pago de servicios emitidos a consumidores finales, por contribuyentes de los impuestos sobre la renta y general sobre las ventas, de conformidad con los artículos 4° de la Ley del Impuesto General sobre las Ventas, N° 6826 de 8 de noviembre de 1982 y sus reformas y 2° de la Ley del Impuesto sobre la Renta, N° 7092 de 21 de abril de 1988 y sus reformas, y sus respectivas disposiciones reglamentarias, que satisfagan los requisitos establecidos en los artículos 18 del Reglamento de la Ley del Impuesto General sobre las Ventas, N° 14082-H de 29 de noviembre de 1982 y sus reformas y 9 del Reglamento de la Ley del Impuesto sobre la Renta, N° 18445-H de 9 de setiembre de 1988 y sus reformas.
-Las facturas elegibles pueden ser de cualquiera de las tres modalidades siguientes:
+Artículo 4º—Facturas, documentos o registros elegibles para el sorteo. Se incorpora como registro elegible para los sorteos que se realizarán, única y exclusivamente, las transacciones de bienes y servicios, según el siguiente detalle:
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 36643 del 26 de mayo del 2011)
 a) Facturas o comprobantes de ingresos impresos por una imprenta autorizada por la Dirección General de Tributación.
 b) Facturas emitidas por sistemas computadorizados autorizados según la resolución Nº 11-97 de la Dirección General de Tributación del 12 de agosto de 1997.
 c) Tiquetes o comprobantes de cajas registradoras autorizadas por la Dirección General de Tributación.
 Para efectos de este reglamento, se denominará en adelante con el nombre de “factura elegible”, cualquiera de las tres modalidades anteriores.
+(*)d) Registro electrónico de la transacción que se genera a los tarjetahabientes, al adquirir bienes y servicios en el territorio nacional por medio de tarjetas de débito o crédito generado por emisores nacionales.
+En estos casos no se requiere el envío de la factura o comprobante para participar en el sorteo. No obstante, el cobro de la operación por medio de tarjeta de débito o crédito no exime al contribuyente que actúe como vendedor de extender la factura o comprobante autorizado a su cliente.
+Para efectos de este reglamento, se denominará con el nombre de “Transacción electrónica-puntos solidarios”, la modalidad anterior.
+La Dirección General de Tributación emitirá una Resolución, mediante la cual se dispondrá todo lo relativo a la lotería fiscal de “Transacción Electrónica-Puntos Solidarios”.
+(*)(Así adicionado el inciso d) anterior por el artículo 2° del decreto ejecutivo N° 36643 del 26 de mayo de 2011)

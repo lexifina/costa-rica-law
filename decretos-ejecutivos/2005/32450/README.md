@@ -14,3 +14,4 @@ Reglamento de Lotería Fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-06 | la propia norma |
+| 2 | 2011-05-26 | Decreto Ejecutivo 36643 (2011-05-26) |
