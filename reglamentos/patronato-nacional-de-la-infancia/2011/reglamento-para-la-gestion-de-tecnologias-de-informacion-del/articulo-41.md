@@ -1,0 +1,5 @@
+Artículo 41.—Uso de Impresoras
+a. Los dispositivos de impresión, deberán ser utilizados única y exclusivamente para imprimir documentación propiedad de PANI. La utilización de estos recursos en actividades ajenas a la institución, provocará que el DTI realice el reporte respectivo al Departamento Recursos Humanos, con copia al Superior inmediato para que éste proceda según corresponda.
+b. La Administración Activa, deberá velar por el uso racional que se le dé a este tipo de recurso en el área de su autoridad.
+c. Cada vez que personal del DTI instale un dispositivo de impresión, éste con base a criterios técnicos e identificación de necesidades de las áreas, determinará si el recurso será compartido o privado.
+d. La Administración Activa, está autorizada a solicitar que determinado recurso de impresión compartido (léase punto C), sea accedido por usuarios o grupos de usuarios. No obstante, deberá haber una coordinación previa entre el responsable o encargado del equipo en cuestión y el solicitante del servicio de impresión.

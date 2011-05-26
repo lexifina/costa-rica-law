@@ -1,0 +1,1 @@
+Artículo 89.—Puesta en Producción de los Sistemas. El DTI, deberá definir un procedimiento y las políticas que apliquen para el proceso de puesta en producción de los sistemas desarrollados, adquiridos, adaptados, etc.

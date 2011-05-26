@@ -1,0 +1,1 @@
+Artículo 52.—Control de Versiones de Software. El DTI, deberá implementar un mecanismo que garantice que el software actualizable instalado en el hardware de la institución se mantiene con las últimas versiones liberadas por el fabricante.

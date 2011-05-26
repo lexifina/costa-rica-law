@@ -1,0 +1,3 @@
+Artículo 63.—Ingreso de Recursos Tecnológicos por Reparaciones o Garantías
+a. Cuando un equipo procedente de reparación ingresa al DTI, se deberá verificar la boleta de salida con el objetivo de determinar si el activo conserva las características físicas de cuando salió de la institución así como las configuraciones de hardware y demás detalles. En caso de existir irregularidades, el DTI deberá notificarle al Departamento Suministro de Bienes y Servicios para que se proceda según corresponda.
+b. La entrega del recurso al usuario final será realizada única y exclusivamente por el DTI. Éste lo entregará cuando hayan sido debidamente preparados para el usuario, con la documentación de control atinente.

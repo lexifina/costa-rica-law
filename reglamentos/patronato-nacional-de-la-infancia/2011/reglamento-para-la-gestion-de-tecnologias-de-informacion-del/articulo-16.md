@@ -1,0 +1,12 @@
+Artículo 16.—Derechos en Caso de Interrupción Laboral
+a. Entiéndase interrupción laboral, aquellos casos donde un usuario de la plataforma, cese la prestación de sus servicios laborales a la institución, sea por despido, renuncia, terminación de contrato, etc.
+b. No se permite que los usuarios en condición de interrupción laboral, recuperen datos cuyo único dueño es el PANI. Así mismo, deberán velar por la integridad de esa información, jamás borrarla o alterarla.
+c. Para los casos donde haya interrupción laboral (sea personal de planta o en modalidad de contrato), el usuario, tendrá derecho a recuperar sus datos de carácter personal, para lo cual, se deberá respetar el punto “E”.
+d. Para efectos de administración de cuentas de usuario, sus privilegios de acceso y vigencia, el Departamento de Recursos Humanos, deberá mantener informado al DTI sobre cualquier cambio que se origine con los colaboradores de la institución. Estos cambios, pueden ser, pero no se limitan a: ingresos de personal, cambio de funciones, cambio en la ubicación organizacional, incapacidades, permisos con o sin goce de salario, suspensión, despido, muerte, etc. Lo anterior, con el propósito de que el DTI, realice las gestiones técnicas correspondientes sobre los datos, las cuentas de usuario, los sistemas y las tecnologías de información en general. Para los casos de personal en calidad de contrato, la instancia correspondiente, deberá, mantener informado al DTI sobre todo acaecimiento con este tipo de colaborador.
+e. El Departamento de Recursos Humanos, deberá ANTES del cese de labores, celebrar y liderar un Acto presenciado por el usuario, el superior del área y un personero del DTI donde se deberá realizar lo siguiente:
+i. El usuario, deberá indicar los archivos de interés institucional.
+ii. El superior de área, deberá indicar a qué locación deberán ser movidos los datos.
+iii. El usuario, deberá indicar los archivos de carácter personal que desea recuperar.
+iv. El buzón de Correo, deberá ser accedido por el usuario e indicar qué correos son de interés institucional. Nuevamente, el superior de área, deberá indicar hacia qué locación moverlos, o, en su defecto, indicarle al usuario hacia qué destinatario reenviar los correos.
+v. El DTI, deberá orientar los aspectos técnicos de los puntos anteriores.
+vi. En el caso donde la actividad del punto IV no se celebre antes del cese de labores, el Departamento de Recursos Humanos, deberá coordinar para realizar el acto.

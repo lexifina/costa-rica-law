@@ -1,0 +1,6 @@
+Artículo 33.—Seguridad en el Mantenimiento de las TI por parte de Terceros
+a. El DTI, deberá incorporar en los términos de referencia para la contratación de mantenimientos, un apartado donde el proveedor, conozca las medidas de seguridad que deberá aplicar en la ejecución de los mantenimientos. Así mismo, se deberá aclarar al adjudicatario, que deberá respetar las medidas de seguridad que el DTI sugiera durante la ejecución del mantenimiento.
+b. Las medidas de seguridad no estipuladas de previo a la contratación, no deberán perjudicar económicamente al contratado.
+c. El DTI, deberá definir claramente en los términos de referencia, las responsabilidades del proveedor con respecto a mantener la integridad física y lógica de la plataforma tecnológica objeto de mantenimiento por parte del contratado.
+d. Los términos de referencia, para la contratación de los servicios de mantenimiento, deberán definir ampliamente las responsabilidades de los terceros en caso de errores u ocurrencia de incidentes (producidas por el contratado) durante la prestación del servicio.
+e. El DTI, deberá para cada Servicio de Mantenimiento, especificar en los Términos de Referencia, los controles a implementar con el objetivo de resguardar los activos tecnológicos y los datos ante un mal uso por parte del tercero.

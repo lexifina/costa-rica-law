@@ -1,0 +1,3 @@
+Artículo 14.—Inicios de Sesión
+a. Los usuarios, podrán iniciar sesión única y exclusivamente en los equipos que estén supeditados a su responsabilidad. En caso de requerir iniciar sesión en otros equipos de la misma área de trabajo, deberán hacerlo con el consentimiento del responsable del recurso. No se permite a los usuarios, iniciar sesión en equipos que no pertenezcan a su área de trabajo. En virtud de lo anterior, el DTI, podrá implementar los mecanismos que sean necesarios para controlar los inicios de sesión.
+b. El DTI, podrá por seguridad, delimitar los horarios de inicio de sesión para los usuarios. No obstante, la delimitación, no deberá interferir en la adecuada ejecución de las actividades institucionales.

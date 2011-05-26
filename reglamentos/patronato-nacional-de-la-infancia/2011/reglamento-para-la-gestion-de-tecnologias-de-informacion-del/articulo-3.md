@@ -1,0 +1,1 @@
+Artículo 3º—Competencia del Máximo Jerarca. Es responsabilidad del Máximo Jerarca proveer los recursos presupuestarios requeridos para la implementación efectiva de este reglamento. Para lo cual, el DTI, deberá remitir la información precisa con las debidas justificaciones.

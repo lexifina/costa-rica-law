@@ -1,0 +1,1 @@
+Artículo 4º—Competencia de la Administración Activa. Es responsabilidad de la Administración Activa apoyar y promover en sus colaboradores, las actividades orientadas a cumplir con lo dispuesto en este reglamento.

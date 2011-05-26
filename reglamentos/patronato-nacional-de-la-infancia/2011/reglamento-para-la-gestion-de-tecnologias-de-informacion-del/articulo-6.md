@@ -1,0 +1,1 @@
+Artículo 6º—Reconocimiento del Órgano Rector de Tecnologías de Información. Se reconoce que el Comité de Tecnologías de Información, conocido como el CTI por sus siglas, es el órgano rector en materia tecnológica del PANI. En virtud de lo anterior, toda decisión estratégica en el área tecnológica, deberá ser gestionada a través de ese órgano.

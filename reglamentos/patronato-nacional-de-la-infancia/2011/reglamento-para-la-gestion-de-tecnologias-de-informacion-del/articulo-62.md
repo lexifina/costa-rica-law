@@ -1,0 +1,7 @@
+CAPÍTULO VII
+Ingreso y Salida de Recursos Tecnológicos
+Artículo 62.—Ingreso de Recursos Tecnológicos por Adquisición
+a. El ingreso de equipo tecnológico a las instalaciones de PANI por motivo de adquisición, estará abocado al procedimiento interno vigente.
+b. Todo recurso tecnológico producto de una adquisición -antes de ser entregado a la unidad solicitante del recurso-, deberá ser inspeccionado por el DTI tanto para verificar su estado como para verificar las características técnicas con respecto a las especificaciones pre compra. En virtud de lo anterior, el DTI deberá coordinar con el Departamento Suministro de Bienes y Servicios la revisión técnica de los equipos tecnológicos entregado por los proveedores antes de ser distribuidos a los usuarios finales. En cada contratación de equipos y suministros de cómputo se incluirá una cláusula en el cartel que garantice una revisión previa de dicho equipo por parte del DTI con el fin de asegurar su perfecto estado además de cumplir con las especificaciones técnicas previamente definidas.
+c. La asignación del recurso al usuario final será realizada única y exclusivamente por el CTI acatando la recomendación técnica del DTI. Éste lo entregará cuando hayan sido debidamente preparados para el usuario final. Todo recursos informático, será entregado con la documentación de control atinente.
+d. El DTI, deberá custodiar toda la documentación y medios de instalación emitidos por el fabricante.

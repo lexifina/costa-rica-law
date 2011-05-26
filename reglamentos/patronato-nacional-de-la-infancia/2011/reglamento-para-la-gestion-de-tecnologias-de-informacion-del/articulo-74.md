@@ -1,0 +1,1 @@
+Artículo 74.—Uso de Software “Peer to Peer”. Se prohíbe el uso de Software “Peer To Peer” (Redes que facilitan el intercambio de archivos), lo anterior, por cuanto esta modalidad de programas constituyen un riesgo de seguridad al exponer el equipo a software no deseado, atentan contra las leyes de derecho de autor y su uso conlleva a un consumo elevado del ancho de banda.

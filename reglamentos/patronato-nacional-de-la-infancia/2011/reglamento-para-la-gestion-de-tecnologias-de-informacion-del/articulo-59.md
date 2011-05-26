@@ -1,0 +1,3 @@
+Artículo 59.—Selección de Oferentes y Evaluación de Ofertas
+a. La evaluación de ofertas estará abocada a la normativa interna y externa a la institución.
+b. A parte del costo de la oferta, serán tomados como puntos de evaluación -pero no se limitará a-, la experiencia del oferente, el Nivel de Satisfacción de sus Clientes (en el caso de que el proveedor haya suministrado servicios o productos a PANI, se tomará como referencia la experiencia habida entre este y la institución) y Garantía Ofrecida sobre el producto o servicio. Para cada uno de los puntos, el DTI deberá formular objetivamente de qué manera será evaluado cada ítem en coordinación con el Departamento Suministro de Bienes y Servicios.

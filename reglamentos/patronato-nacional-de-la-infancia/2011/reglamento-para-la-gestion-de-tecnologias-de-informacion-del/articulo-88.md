@@ -1,0 +1,5 @@
+Artículo 88.—Confidencialidad de la Información
+a. El responsable del sistema y los dueños de proceso, deberán velar por que la definición de los niveles de acceso, respeten los principios de confidencialidad de la información, es decir, que la información sea accedida por quienes verdaderamente deban tener permiso para hacerlo.
+b. El DTI, deberá garantizar la confidencialidad de la información realizando las implementaciones técnicas en todos los componentes tecnológicos conformantes de la Plataforma tecnológica que intervengan en la gestión de los sistemas.
+c. Los usuarios de los sistemas, deberán abstenerse de divulgar la información gestionada, comunicarla y/ o transferirla ni siquiera en términos generales, ni a personas físicas ni jurídicas que carezcan de la autorización correspondiente.
+d. Los usuarios de los sistemas, deberán acatar las recomendaciones y/ o controles que el DTI sugiera -por el medio que considere oportuno- orientados a fortalecer la confidencialidad de la información y el uso racional de esta.
