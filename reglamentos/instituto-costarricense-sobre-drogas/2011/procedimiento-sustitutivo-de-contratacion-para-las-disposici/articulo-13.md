@@ -1,0 +1,2 @@
+Artículo 13.—Análisis de las ofertas. Vencido el plazo para la recepción de las ofertas, el encargado general de la contratación realizará el análisis de los aspectos formales de ellas y confeccionará el documento de análisis comparativo de las ofertas admisibles, para lo cual tendrá un plazo de 5 días hábiles, determinando cual es la más conveniente para la Administración, a la cual se le adjudicará la contratación.
+Cuando de este análisis se produzca un empate en cuanto al precio, prevalecerá la primera oferta presentada.

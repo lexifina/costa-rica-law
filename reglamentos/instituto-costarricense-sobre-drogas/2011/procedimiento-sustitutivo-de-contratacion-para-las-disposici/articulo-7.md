@@ -1,0 +1,1 @@
+Artículo 7º—Verificación de requisitos. Verificado el cumplimiento de los requisitos anteriores, el encargado general de la contratación iniciará con las gestiones propias del procedimiento establecido.
