@@ -1,0 +1,1 @@
+Artículo 25.—Disposición final. Los aspectos no contemplados expresamente en este Reglamento se regirán por lo dispuesto en los principios generales del derecho, en la normativa internacional aplicable, en el Código de Trabajo, en el Reglamento del Seguro de Salud, en la Ley Constitutiva de la CCSS, en el Reglamento del Expediente de Salud de la CCSS y normativa conexa.

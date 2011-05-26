@@ -1,4 +1,7 @@
-Artículo 23.—Disposición final. Los aspectos no contemplados expresamente en este Reglamento, se regirán por lo dispuesto en los principios generales del derecho, en la normativa internacional aplicable, en el Código de Trabajo y en el Reglamento del Seguro de Salud.
-En consecuencia, queda derogado el Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios del Seguro de Salud y sus reformas, aprobado en el artículo 36º, de la sesión número 7143, celebrada el 22 de julio de 1997.
-Acuerdo firme.”
-San José, 28 de octubre del 2004.
+Artículo 23.—De los períodos de incapacidad y licencias otorgados en un solo formulario. El período de incapacidad que se otorgue en un mismo formulario, no podrá superar el plazo de 30 (treinta) días; con excepción de:
+a. Los casos de internamiento hospitalario en la CAJA COSTARRICENSE DE SEGURO SOCIAL.
+b. Los casos de internamiento en los centros médicos privados, luego de ser avalados por las Comisiones Locales Evaluadoras de Incapacidades, incluidos el internamiento y los días de reposo recomendados.
+c. Los internamientos en el extranjero, posterior a la validación por las Comisiones Locales Evaluadoras de Incapacidades.
+d. Las licencias por maternidad hasta por un máximo de 4 (cuatro) meses.
+e. Los casos de Ortopedia atendidos ambulatoriamente.
+f. Los casos de pacientes con enfermedades prolongadas, tratados por médicos especialista(s) de la Caja Costarricense de Seguro Social, ambulatoriamente, hasta por un máximo de 180 (ciento ochenta) días, con la debida justificación en el expediente clínico del paciente y con el aval de la dirección médica del centro o a quien éste delegue. Estos casos deberán ser analizados por la Comisión Local Evaluadora de Incapacidades, incluido el criterio del médico a cargo del paciente respecto de las posibilidades de recuperación que pueda tener el paciente. El criterio de dicho médico deberá quedar anotado en el expediente clínico del paciente, por solicitud de la Comisión Local Evaluadora de Incapacidades, de acuerdo con lo estipulado en el artículo 9° de este Reglamento.

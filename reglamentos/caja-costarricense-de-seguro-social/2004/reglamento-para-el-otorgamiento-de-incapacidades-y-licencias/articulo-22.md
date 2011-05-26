@@ -1,19 +1,3 @@
-Artículo 22.—De los días promedio de incapacidad por enfermedad. El número de días de incapacidad por enfermedad se establece con base en el criterio médico. Como parámetro de referencia se establece la siguiente lista:
-Causas de incapacidad | Número de Días
-1. Enfermedades respiratorias agudas | 1-5
-2. Dorsopatías | 1-9
-3. Infecciones intestinales | 1-4
-4. Trastornos neuróticos | 1-30
-5. Ojo y sus anexos | 1-6
-6. Neumonía influenza | 1-4
-7. Traumatismo superficiales | 1-8
-8. Complicaciones del embarazo | 1-14
-9. Infecciones renales, litiasis y otras aparato urinario | 1-8
-10.Artropatías y trastornos afines | 1-16
-11.Infecciones de la piel y del tejido subcutáneo | 1-8
-12. Enfermedades odontológicas | 1-3
-13. Enfermedad pulmonar obstructiva crónica | 1-5
-14. Enfermedad del esófago, estómago, duodeno | 1-7
-15. Esguince y desgarres | 1-15
-En ningún caso el período de incapacidad que se otorgue en un mismo documento, podrá superar el plazo de 30 días; con excepción de los casos de internamiento hospitalario en la CAJA COSTARRICENSE DE SEGURO SOCIAL.
-Aquellos trabajadores (as) cuya patología amerite, según criterio médico, un período mayor a treinta días de incapacidad, deberá el médico tratante justificarlo en el expediente de salud del trabajador (a) y solicitar el visto bueno de la Dirección Médica de cada centro médico, o a la autoridad que la misma delegue, para lo cual contarán con la asesoría de su respectiva Comisión Médica Local Evaluadora de Incapacidades.
+Artículo 22.—De las incapacidades otorgadas por médicos especialistas. En caso de incapacidades extendidas por médicos especialistas privará el criterio médico del especialista, el cual debe quedar debidamente anotado en el expediente clínico del asegurado (a) activo (a) y debe prevalecer un sentido de racionalidad y ética profesional, en lo que respecta a la decisión de otorgar una incapacidad, al período o número de días indicados a la luz de la ciencia y la técnica, así como a la veracidad de la información a la cual se obliga el trabajador.
+Tratándose de la atención de patologías que ameritan un período mayor a treinta días de incapacidad, hasta noventa días, deberá el médico especialista tratante justificarlo en el expediente de salud del trabajador (a) y solicitar, según el caso, el visto bueno de la dirección médica de cada centro médico, o a la autoridad que la misma delegue, debiendo ser revisadas por la Comisión Local Evaluadora de Incapacidades, por solicitud de la dirección médica o la jefatura correspondiente.
+En caso de incapacidades mayores de 90 (noventa) días, otorgadas por médicos especialistas de la Institución y según sea el caso, la Comisión Local Evaluadora de Incapacidades, con el visto bueno del médico director del centro, puede solicitar la valoración del paciente por médicos designados como peritos institucionales, de acuerdo con lo que establecen los artículos 112 al 115 del Código de Ética y Moral Médica del Colegio de Médicos y Cirujanos de Costa Rica.
