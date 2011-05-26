@@ -1,0 +1,7 @@
+JUNTA DE PENSIONES Y JUBILACIONES DEL
+MAGISTERIO NACIONAL
+ACUERDO N° 2
+“Estudiado el oficio DFC-1776-04-2011 y documentos adjuntos, la Junta Directiva acuerda: Aprobar la propuesta de modificación del Artículo 18 “Aumento en tasas de interés”, del Reglamento de Crédito, Préstamos Personales”, para que se lea como sigue:
+Cuando por razones de tipo personal o por despido de un servidor activo del Magisterio Nacional, éste deje de laborar para el sector educativo, teniendo operaciones crediticias con la Institución, la tasa de interés de estas operaciones se incrementará según la tasa de interés activa promedio del Sistema Financiero para préstamos en moneda nacional determinada por el Banco Central de Costa Rica.
+El aumento en la tasa no aplicará para los servidores del Ministerio de Educación Pública que estén a la espera de nombramiento o extensión del mismo, siempre y cuando aporte la certificación de “cese de funciones” extendida por el Ministerio de Educación Pública. En esos casos, la cuota deberá ser cancelada por medio de ventanilla o depósito bancario, o en su defecto la cuota se le rebajará al fiador o persona que labore para el Sistema Educativo. Para este último caso, se deberá presentar una autorización debidamente autenticada por un abogado, para proceder con el rebajo. Será responsabilidad del deudor informar a la Junta, en el momento que sea nombrado nuevamente para suspender el rebajo al fiador o persona que labore para el Sistema Educativo.” Acuerdo firme.
+San José, 9 de mayo 2011.—
