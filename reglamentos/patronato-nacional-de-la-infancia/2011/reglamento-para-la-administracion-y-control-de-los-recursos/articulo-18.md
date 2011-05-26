@@ -1,0 +1,1 @@
+Artículo 18.—Informes bimensuales. El Departamento de Control de Presupuesto comunicará a la Gerencia Técnica cortes bimensuales de ejecución presupuestaria del Fondo, a efecto de que dicha Gerencia lleve el control respectivo y tome las acciones que resulten pertinentes para asegurar una adecuada ejecución de los recursos del fondo.

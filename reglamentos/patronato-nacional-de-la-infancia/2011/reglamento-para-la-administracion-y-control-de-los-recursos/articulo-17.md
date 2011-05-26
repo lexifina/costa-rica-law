@@ -1,0 +1,1 @@
+Artículo 17.—Control Presupuestario. El Departamento de Control de Presupuesto procederá a distribuir las cuentas presupuestarias por Región de tal forma que permita a los administradores de cada región y a la Gerencia Técnica llevar el control interno de lo ejecutado en los proyectos financiados por el fondo.

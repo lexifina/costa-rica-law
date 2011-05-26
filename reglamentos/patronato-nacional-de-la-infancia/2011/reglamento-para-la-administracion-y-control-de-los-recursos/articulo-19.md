@@ -1,0 +1,4 @@
+CAPÍTULO V
+Financiamiento a otros entes y comités tutelares
+Artículo 19.—El Patronato Nacional de la Infancia, si sus condiciones económicas se lo permiten, podrá financiar los proyectos de otros entes y de los Comités Tutelares de los Derechos de la Niñez y la Adolescencia dependientes de las Asociaciones de Desarrollo Comunal a través de las Juntas de Protección a la Niñez y la Adolescencia, quienes presentarán los proyectos y se encargarán de fiscalizar y verificar que los recursos asignados cumplan con los fines que la ley impone y siguiendo los procedimientos establecidos en la presente reglamentación.
+En caso de transferencias a otros organismos públicos, privados o personas físicas, la Junta Directiva del PANI dispondrá acerca de los mecanismos de giro y controles que considere necesarios, debiendo consignarse en el respectivo convenio las cláusulas emitidas por la Contraloría General de la República para el giro de recursos a sujetos públicos y privados.

@@ -1,0 +1,1 @@
+Artículo 12.—Evaluación técnica de los proyectos. La evaluación técnica de los proyectos es responsabilidad directa de las Juntas de Protección y la Gerencia Técnica. Esta evaluación comprenderá el seguimiento y control durante la ejecución del proyecto, mediante informes periódicos de avances y resultados.

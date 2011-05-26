@@ -1,0 +1,1 @@
+Artículo 7º—Ejecución de los pagos. Corresponderá al Presidente de la Junta de Protección y al Director Regional remitir a la Proveeduría Institucional las facturas de los servicios brindados según los proyectos aprobados para su cancelación y consignando el recibido conforme. El pago a los proveedores se hará por el Sistema de Caja única.
