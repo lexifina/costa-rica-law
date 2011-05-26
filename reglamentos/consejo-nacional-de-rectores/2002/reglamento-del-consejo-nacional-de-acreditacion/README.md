@@ -14,3 +14,4 @@ Reglamento del Consejo Nacional de Acreditación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-13 | la propia norma |
+| 2 | 2011-05-26 | Reglamento 670 (2011-05-26) |

@@ -1,1 +1,2 @@
-Artículo 6º—Tanto el Presidente como el Vicepresidente durarán en sus cargos un año que vencerá el día treinta de junio de cada año. Serán electos de manera alternativa y rotativa: si el Presidente es electo de entre los miembros designados por el sector estatal, el Vicepresidente deberá ser designado de entre los miembros designados por las universidades privadas afiliadas. Al siguiente período anual se alternarán los cargos por sector.
+Artículo 6º—Tanto el presidente como el vicepresidente durarán en sus cargos un año que vencerá el día treinta de junio de cada año y podrán ser reelectos.
+(Así reformado mediante sesión N° 670 del 26 de mayo del 2011)
