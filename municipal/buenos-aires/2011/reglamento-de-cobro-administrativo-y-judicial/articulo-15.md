@@ -1,0 +1,1 @@
+Artículo 15.—Los expedientes de los sujetos pasivos objeto de cobro judicial deberán contener la siguiente información: datos básicos de ubicación, calidades, posibles bienes a embargar, razón o dominación social, representante legal en caso de personas físicas, domicilio conocido o reportado.

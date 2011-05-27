@@ -1,0 +1,1 @@
+Artículo 31.—Por razones de carácter ético en el ejercicio de su profesión, el abogado no podrán aceptar casos de litigio en contra de la Municipalidad de Buenos Aires. El incumplimiento de esta disposición facultará a la Administración a rescindir el contrato respectivo, sin que exista la posibilidad de reclamos de ninguna especie.

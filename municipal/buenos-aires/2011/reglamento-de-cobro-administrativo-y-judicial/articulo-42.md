@@ -1,0 +1,1 @@
+Artículo 42.—El plazo máximo que se concederá para realizar el arreglo de pago no excederá de cuatro meses calendario, contados a partir de la firma del documento respectivo. El cálculo de las cuotas para cancelar la totalidad de la deuda vencida será realizado por la oficina cobros, según el plazo acordado con el sujeto pasivo.

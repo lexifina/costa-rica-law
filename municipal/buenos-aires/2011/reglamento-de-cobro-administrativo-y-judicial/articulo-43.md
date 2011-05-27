@@ -1,0 +1,1 @@
+Artículo 43.—En caso que el sujeto pasivo incumpla el arreglo de pago, la Administración Tributaria, procederá de inmediato, a incluir nuevamente la cuenta en el trámite de cobro judicial. Se considera incumplimiento del arreglo de pago cuando el sujeto pasivo no realice cualquiera de los pagos acordados.

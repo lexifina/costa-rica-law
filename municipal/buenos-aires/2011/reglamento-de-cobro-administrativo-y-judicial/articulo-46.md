@@ -1,0 +1,1 @@
+Artículo 46.—Los sujetos pasivos interesados en realizar arreglos de pago con la Municipalidad de Buenos Aires podrán solicitar al Departamento de Cobro el formulario de solicitud de Arreglos de Pago.

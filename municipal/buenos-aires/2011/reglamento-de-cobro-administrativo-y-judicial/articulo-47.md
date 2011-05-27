@@ -1,0 +1,1 @@
+Artículo 47.—Toda la documentación relativa al arreglo de pago quedará en custodia del Departamento de Cobro no obstante deberá entregar copia al sujeto pasivo. En caso de incumplimiento del arreglo, esta documentación formará parte del expediente de cobro judicial.

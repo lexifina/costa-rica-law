@@ -1,0 +1,1 @@
+Artículo 55.—Cuando se declara en sede administrativa que la prescripción procede, el Departamento de Cobros deberá proceder en coordinación con el Administrador Tributario a realizar los ajustes respectivos en la base de datos municipal de la cuenta del sujeto pasivo que solicitó la prescripción.

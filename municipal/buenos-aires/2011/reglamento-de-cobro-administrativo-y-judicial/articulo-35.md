@@ -1,0 +1,1 @@
+Artículo 35.—Para los efectos de determinar si los juicios se encuentran al día, la Administración Tributaria encargada del control del cobro revisará periódicamente, el número de expedientes y registros que considere necesarios, de operaciones entregadas a cada abogado, tomando como base la documentación en poder de la Oficina de cobro.
