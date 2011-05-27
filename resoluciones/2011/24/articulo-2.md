@@ -1,0 +1,1 @@
+Artículo 2º—Se deja sin efecto la resolución Nº 23-10 de las doce horas del día 17 de mayo del dos mil diez, de la Dirección General de Hacienda, publicada en La Gaceta Nº 120 del 22 de junio del 2010.
