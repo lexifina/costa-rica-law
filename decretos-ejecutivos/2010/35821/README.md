@@ -22,3 +22,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 7 | 2011-03-04 | Decreto Ejecutivo 36506 (2011-03-04) |
 | 8 | 2011-03-08 | Decreto Ejecutivo 36486 (2011-03-08) |
 | 9 | 2011-03-16 | Decreto Ejecutivo 36552 (2011-03-16) |
+| 10 | 2011-05-27 | Decreto Ejecutivo 36632 (2011-05-27) |
