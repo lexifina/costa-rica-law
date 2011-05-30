@@ -60,7 +60,8 @@ Extensión territorial 5%
 (Así corrida la numeración del punto anterior en sesión N° 067-2011 del 28 de marzo del 2011, que lo traspasó del antiguo punto 6 al punto 8 actual)
 ▪ (Eliminado este punto mediante sesión N° 067 del 28 de marzo del 2011)
 (Así corrida la numeración del punto anterior en sesión N° 067 del 28 de marzo del 2011, que lo traspasó del antiguo punto 7 al punto 9 actual)
-▪ Los recursos que no fueron asignados por medio de este proceso, una vez realizada la selección y priorización por parte del Concejo de Distrito, podrán ser utilizados en proyectos de interés distrital, para lo cual deberá el Concejo de Distrito confeccionar el respectivo perfil de proyecto.
+▪ Los recursos que no fueron asignados por medio de este proceso, una vez realizada la selección y priorización por parte de la comunidad(*), podrán ser utilizados en proyectos de interés distrital, para lo cual deberá el Concejo de Distrito confeccionar el respectivo perfil de proyecto.
+(*)(Así reformado el párrafo anterior en sesión N° 092 del 30 de mayo del 2011)
 (Así corrida la numeración del punto anterior en sesión N° 067 del 28 de marzo del 2011, que lo traspasó del antiguo punto 8 al punto 10 actual)
 POLÍTICAS PARA ETAPA DE CONVOCATORIA Y CAPACITACIÓN
 ▪ Iniciar el proceso de Presupuesto participativo mediante una convocatoria pública.
@@ -83,7 +84,8 @@ POLÍTICAS PARA LA ETAPA DE LA ASAMBLEA ASOCIACIONES
 ▪ Una vez realizada la Asamblea, se deberá remitir a la Oficina de Planificación en formato digital a más tardar el último día hábil del mes de mayo, la lista de proyectos priorizados por la Comunidad, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la Sesión Ampliada.
 POLÍTICAS PARA LA ETAPA DE APROBACIÓN PROYECTOS
 JUNTAS ADMINISTRATIVAS Y DE EDUCACIÓN
-▪ La Junta Administrativa o de Educación deberá llevar a cabo una reunión donde se apruebe y priorice los proyectos que van a ser presentados a la Sesión Ampliada.
+▪ La Junta Administrativa o de Educación deberá llevar a cabo una reunión donde se apruebe y priorice los proyectos que van a ser presentados.
+(Eliminada la frase “a la Sesión Ampliada" del punto anterior en sesión N° 092 de 30 de mayo del 2011)
 ▪ Deberá quedar constancia de ese acuerdo y remitirlo con los perfiles el día de presentación La Junta de Educación o Administrativa, deberá elegir a un representante para que presente los proyectos en la Asamblea que realizará la Asociación de Desarrollo de su Sector y participe de la priorización de proyectos. (*)
 (*)(Así adicionado el párrafo anterior mediante sesión N° 067 del 28 de marzo del 2011)
 POLÍTICAS PARA LA ETAPA DE PRESENTACIÓN
@@ -92,9 +94,10 @@ PROYECTOS AL CONCEJO DE DISTRITO
 (*)(Así reformado el término anterior mediante sesión N° 067 del 28 de marzo del 2011)
 ▪ Aquellas organizaciones que al 15 de mayo de cada año tengan partidas pendientes de liquidar a la Municipalidad, no podrán presentar proyectos en la Sesión Ampliada, para lo cual la Oficina de Planificación facilitará la lista respectiva al Concejo de Distrito.
 ▪ (*)En la sesión ampliada los delegados de cada organización deberán de presentar los perfiles de los proyectos priorizados con copia del acta de la Asamblea donde se demuestre el proceso de participación de la comunidad y la elección de los representantes (*)(Delegado). (*)Y además deberán de entregar las copias de las actas de las juntas administrativas y de educación cuando en la asamblea se hayan presentados proyectos por parte de ellos.
-(*)(Así reformado el punto anterior mediante sesión N° 067 del 28 de marzo del 2011, así mismo, en dicha sesión se agrega el término "delegado")
-▪ Cada organización tendrá un tiempo dentro de la Sesión Ampliada para exponer brevemente los proyectos de su comunidad.
-▪ Se deberá realizar una votación entre los representantes (*)(Delegado) del distrito, utilizando el mismo mecanismo de votación utilizado en la Asamblea con el fin de determinar la prioridad de los proyectos de su distrito, la cual será una recomendación para el Concejo de Distrito.
+(
+*)(Así reformado el punto anterior mediante sesión N° 067 del 28 de marzo del 2011, así mismo, en dicha sesión se agrega el término "delegado") ▪ Cada organización tendrá un tiempo dentro de la Sesión Ampliada para exponer brevemente los proyectos de su comunidad.
+▪ Se deberá realizar una votación entre los representantes (*)(Delegado) del distrito, utilizando el mismo mecanismo de votación utilizado en la Asamblea con el fin de determinar la prioridad de los proyectos de su distrito.
+(Eliminada la frase “la cual será una recomendación para el Concejo de Distrito" del punto anterior en sesión N° 092 de 30 de mayo del 2011)
 (*)(Así adicionado el término "delegado" en el punto anterior mediante sesión N° 067del 28 de marzo del 2011)
 POLÍTICAS PARA LA ETAPA DE APROBACIÓN DE PROYECTOS
 POR PARTE DEL CONCEJO DE DISTRITO
