@@ -1,0 +1,1 @@
+2º—Dejar sin efecto lo dispuesto en las Resoluciones Administrativas Nº 1116 de las 16:00 horas del 9 de diciembre de 2009 y Nº 000743 de las 15:21 horas del 20 de setiembre de 2010, emitidas por el Ministerio de Obras Públicas y Transportes.

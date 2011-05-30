@@ -1,0 +1,1 @@
+3º—Se instruye al Departamento Depósito de Vehículos Detenidos del MOPT, para que remita la información que sea necesaria, a efecto de que el Consejo de Seguridad Vial ejecute lo que estime corresponda en la materia. Lo mismo efectuarán las distintas dependencias de este Ministerio que han tenido alguna vinculación con este asunto.
