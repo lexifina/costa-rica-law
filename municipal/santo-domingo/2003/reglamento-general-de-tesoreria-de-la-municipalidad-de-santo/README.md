@@ -14,3 +14,4 @@ Reglamento General de Tesorería de la Municipalidad de Santo Domingo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-20 | la propia norma |
+| 2 | 2011-05-30 | Reglamento municipal 90 (2011-05-30) |
