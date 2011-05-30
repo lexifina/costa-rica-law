@@ -14,3 +14,4 @@ Lineamientos para la Oficialización de Corredores Biológicos en Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-15 | la propia norma |
+| 2 | 2011-05-30 | Resolución 28 (2011-05-30) |

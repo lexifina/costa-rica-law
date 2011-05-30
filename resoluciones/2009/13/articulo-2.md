@@ -1,7 +1,7 @@
 Artículo 2º—Un corredor biológico será reconocido oficialmente por el Estado costarricense y la sociedad en general, una vez cumpla los siguientes requisitos:
 1. Perfil Técnico del Corredor Biológico:
-a) Para presentar este requisito se debe aplicar el formulario oficial de Perfil Técnico del Corredor Biológico (que puede ser descargado de la dirección electrónica http://www.sirefor.go.cr/corredores/perfilcb.pdf, dicho formulario deberá presentarse a la Coordinación del PNCB en original impreso y en un archivo digital electrónico. La información en archivo digital electrónico se incluirá en la base de datos de corredores biológicos de Costa Rica;
-(Nota de Sinalevi: El presente formulario extrajo del sitio Web del Sistema de Información de Recursos Forestales puede consultarse Aquí, y se trascribe a continuación:)
+(*)a. Para presentar este requisito se debe aplicar el formulario oficial de Perfil Técnico del Corredor Biológico (que puede ser descargado de la siguiente dirección electrónica: http://www.sinac.go.cr/corredoresbiologics/documentacion/PerfilTecnicoCB.pdf) dicho formulario deberá presentarse a la Coordinación del PNCB en original impreso y en un archivo digital electrónico. La información en archivo digital electrónico se incluirá en la base de datos de corredores biológicos de Costa Rica;
+(Nota de Sinalevi: El presente formulario se extrajo del sitio Web del Sistema Nacional de Áreas de Conservación puede consultarse Aquí, y se transcribe a continuación:)
 Formulario del Perfil Técnico de los Corredores Biológicos de Costa Rica
 1. ¿Por qué el Corredor Biológico? (información general del Corredor Biológico)
 1.1 Introducción.
@@ -92,16 +92,20 @@ Formulario del Perfil Técnico de los Corredores Biológicos de Costa Rica
 6.2 Del Plan anual de trabajo
 6.3 Del Reglamento Interno del Consejo Local del Corredor Biológico
 6.4 De las reuniones del Consejo Local del Corredores Biológicos
+(*)(Así reformado el punto 1) inciso a) anterior mediante resolución R-SINAC-CONAC-028-2011 del 30 de mayo del 2011)
 b) la Coordinación del PNCB analizará el formulario con la respectiva información y posteriormente brindará el visto bueno técnico o las recomendaciones correspondientes (la coordinación emitirá un informe oficial a los interesados);
 c) el informe oficial emitido por la Coordinación del PNCB, será presentado por los interesados a el(los) Consejo(s) Regional(es) de Área(s) de Conservación correspondiente(s) para su aprobación,
 d) el acuerdo tomado por el(los) Consejo(s) Regional(es) de Área(s) de Conservación, deberá ser comunicado a la Coordinación del PNCB por parte de la(s) Dirección(es) de Área de Conservación.
 2. Mapa de límites del Corredor Biológico:
 a. Para cumplir con este requisito el mapa de límites del corredor biológico deberá ser presentado a la Coordinación del PNCB en archivos digitales de ArcView o ArcGis y en coordenadas CRTM 05 a escala 1:50000, un archivo digital del mapa en formato electrónico JPG, TIF o GIF y una copia impresa;
-b. el mapa del corredor biológico se incluirá en el Mapa Nacional de corredores biológicos, con la intención de que dicho Mapa Nacional se revise una vez al año (el mapa nacional de corredores biológicos puede ser descargado en la dirección electrónica http://www.sirefor.go.cr/corredores/mapacb.jpg.
-(Nota de Sinalevi: El presente mapa extrajo del sitio Web del Sistema de Información de Recursos Forestales puede consultarse Aquí, y se trascribe a continuación:) [imagen]
+(*)b. el mapa del corredor biológico se incluirá en el Mapa Nacional de corredores biológicos, con la intención de que dicho Mapa Nacional se revise una vez al año (el mapa nacional de corredores biológicos puede ser descargado en la siguiente dirección electrónica: http://www.sinac.go.cr/corredoresbiologicos/documentacion/MapaCB.jpg)
+(Nota de Sinalevi: El presente mapa se extrajo del sitio Web del Sistema Nacional de áreas de Conservación puede consultarse Aquí, y se transcribe a continuación:) [imagen]
+(*)(Así reformado el punto 2) iniso b) anterior mediante resolución R-SINAC-CONAC-028-2011 del 30 de mayo del 2011)
+c. Todos los corredores biológicos que se encuentren ubicados dentro del Mapa Nacional de Corredores Biológicos publicado por el SINAC, serán reconocidos como los corredores biológicos oficiales de Costa Rica.
+(Así adicionado el inciso c) anterior mediante resolución R-SINAC-CONAC-028-2011 del 30 de mayo del 2011)
 3. Información general sobre el Consejo Local que gestiona el Corredor Biológico:
-a) Se deberá aportar el formulario oficial de Información General del Consejo local del Corredor Biológico (que puede ser descargado de la dirección electrónica http://www.sirefor.go.cr/corredores/clcb.pdf, dicho formulario deberá presentarse a la Coordinación del PNCB en original impreso y en un archivo digital electrónico,
-(Nota de Sinalevi: El presente formulario extrajo del sitio Web del Sistema de Información de Recursos Forestales puede consultarse Aquí, y se trascribe a continuación:)
+(*)a. Se deberá aportar el formulario oficial de Información General del Consejo local del Corredor Biológico (que puede ser descargado de la siguiente dirección electrónica: http://www.sinac.go.cr/corredoresbiologicos/FormInfoCLCB.pdf), dicho formulario deberá presentarse a la Coordinación del PNCB en original impreso y en un archivo digital electrónico,
+(Nota de Sinalevi: El presente formulario se extrajo del sitio Web del Sistema Nacional del Áreas de Conservación puede consultarse Aquí, y se transcribe a continuación:)
 Formulario de Información General del Consejo local del Corredor Biológico
 1. Nombre del Corredor Biológico:
 ________________________________________________________________
@@ -125,4 +129,5 @@ ________________________________________________________________
 8. Fecha de vigencia del Reglamento de trabajo del Comité o Consejo local (se debe presentar copia del documento de Reglamento):
 ________________________________________________________________
 9. Aportar copia del acta de reconocimiento como Consejo Local por parte del Consejo Regional del Área de Conservación respectiva.
+(*)(Así reformado el punto 3) inciso a) anterior mediante resolución R-SINAC-CONAC-028-2011 del 30 de mayo del 2011)
 b) para determinar si el Consejo local de Corredor Biológico, se encuentra vigente y avalado por el Consejo Regional del Área de Conservación, deberá presentar copia de la acreditación correspondiente.
