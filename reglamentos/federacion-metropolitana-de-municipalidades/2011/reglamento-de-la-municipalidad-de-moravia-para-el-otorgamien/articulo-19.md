@@ -1,0 +1,1 @@
+Artículo 19.—El propietario de la estructura de antena será responsable de cualquier daño directo o indirecto que ésta o éstas puedan causar a persona físicas, o a los bienes municipales o privados, relevando de cualquier responsabilidad a la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 11.—Las fincas del área de las antenas tendrán las dimensiones mínimas que exige el Plan Regulador de Moravia. Los accesos se regularán conforme a las disposiciones del Plan Vial del Plan Regulador de Moravia, salvo aquellos casos de accesos existentes antes de entrar en vigencia el plan regulador.
