@@ -14,3 +14,4 @@ Reglamento de Junta Directiva del Banco Crédito Agrícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-03 | la propia norma |
+| 2 | 2011-05-31 | Reglamento 8446 (2011-05-31) |
