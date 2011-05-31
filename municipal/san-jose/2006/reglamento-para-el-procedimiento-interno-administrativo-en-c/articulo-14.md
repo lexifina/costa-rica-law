@@ -1,2 +1,0 @@
-Artículo 14.—De los recursos contra la resolución: La resolución final, tendrá Recurso de Reconsideración ante el Alcalde o Alcaldesa Municipal, que deberá ser interpuesto dentro de los tres días hábiles siguientes a la notificación de la resolución.
-Resuelto en Recurso de Reconsideración, se tiene por agotada la vía administrativa, pudiendo el o la trabajador (a) acudir a la sede jurisdiccional, si lo considera necesario”.
