@@ -1,0 +1,1 @@
+Artículo 3º—Están legitimados para solicitar a la Alcaldía Municipal de la Municipalidad de Guatuso, patentes y permisos de funcionamiento para realizar actividades de porteo, aquellos personas físicas o jurídicas, que estén debidamente inscritas, cuenten con personería y cédula jurídica al día y tengan cubiertas sus responsabilidades tributarias con la Municipalidad.

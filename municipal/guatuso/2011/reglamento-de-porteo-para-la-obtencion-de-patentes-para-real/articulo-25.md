@@ -1,0 +1,2 @@
+Artículo 25.—Si no se presenta el proyecto o no se hacen las modificaciones ordenadas, la Municipalidad de conformidad con la Ley, procederá por los medios que considere más oportunos a la destrucción de las partes defectuosas y a la fijación de la sanción que considere adecuada.
+En ningún caso, la Municipalidad autorizará la licencia para el ejercicio del porteo en una construcción que no cumpla previamente con todos los requisitos de Ley.

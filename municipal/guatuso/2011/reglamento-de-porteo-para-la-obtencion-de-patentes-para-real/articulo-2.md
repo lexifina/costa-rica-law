@@ -1,0 +1,5 @@
+Artículo 2º—Para los efectos de considerar la modalidad terrestre de transporte privado de personas, cosas o noticias en vehículos particulares, el presente Reglamento entenderá como:
+Porteo: Aquella actividad comercial en la que el interesado, en calidad de persona física o jurídica, se obliga a brindar un servicio de traslado de un lugar a otro, a cambio de un precio previamente establecido con el solicitante, quien debe reunir la condición de cliente exclusivo, formalmente conformado.
+Establecimiento comercial de porteo: Los locales debidamente acondicionados a nivel interno, los cuales sin perjuicio de su combinación, pueden clasificarse en:
+a. Oficina privada de porteo (para atención de interesados y conformación de clientes exclusivos).
+b. Estación o terminal privada de porteo Para los efectos de este Reglamento, se entenderá como Terminal de porteo, toda propiedad inmueble, privada, destinada a servir de estacionamiento, parqueo, salida y entrada de los vehículos con que se presta el servicio de porteo y que cumpla con los requisitos que exige esta normativa para brindar el servicio de abordaje y transporte a clientes exclusivos)

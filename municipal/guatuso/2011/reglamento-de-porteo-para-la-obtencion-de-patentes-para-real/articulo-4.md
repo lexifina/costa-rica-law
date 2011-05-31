@@ -1,0 +1,1 @@
+Artículo 4º—Se establece como número máximo de patente a otorgar para el Cantón de Guatuso un número igual al número de vehículo de transporte público modalidad de taxi, otorgados por el MOPT para el Cantón de Guatuso, la Alcaldía Municipal distribuirá dichas patentes en los distintos Distritos del Cantón.
