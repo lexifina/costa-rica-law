@@ -1,4 +1,0 @@
-Artículo 59.—El prestatario que obtenga la condición de “escolaridad” en una o más asignaturas, debe aprobarlas de conformidad con el sistema de requisitos académicos propios del centro de estudios y el programa de estudios del prestatario, en un plazo máximo de un año calendario a partir del momento en que obtiene la escolaridad.
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 57 al 58 actual del artículo)
-(Así corrida su numeración en sesión N° 41 del 16 de octubre del 2007, que lo traspasó del antiguo 58 al 59 actual del artículo)
-(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 59 al 58 actual. Lo anterior ya que en dicha sesión se ordena suprimir el numeral 44 original y modificar la numeración. Asimismo en dicha junta se adiciona un nuevo artículo 31 y se corre de nuevo el orden de los artículos, por lo que este numeral paso del 58 al 59 actual)

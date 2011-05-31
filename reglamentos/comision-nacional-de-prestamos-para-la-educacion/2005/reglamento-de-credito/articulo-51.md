@@ -1,8 +1,0 @@
-Artículo 51.—La firma del Contrato de Crédito para Estudios se realiza ante los funcionarios de CONAPE, los cuales estamparán su firma, como testigos de recepción de las firmas de deudores y fiadores.
-El deudor siempre tiene que firmar el Contrato de Crédito para Estudios en las oficinas de CONAPE y sólo él puede retirarlo para que los fiadores puedan firmarlo fuera de CONAPE. Se exceptúa casos excepcionales a juicio del Jefe del Departamento de Crédito.
-Cuando la recepción de firmas se realice externamente, será un abogado o notario, quien autentique las firmas, agregando los timbres de ley respectivos, y además los fiadores deberán estampar en el mismo acto, la huella digital del índice derecho en el dorso del Contrato, indicando claramente a quien corresponde cada firma.
-El Jefe del Departamento de Crédito podrá autorizar la formalización del contrato de estudios por otros medios fidedignos que garanticen la fidelidad del acto.
-(Así reformado en sesión N° 29 del 20 de julio de 2010)
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 49 al 50 actual del artículo)
-(Así corrida su numeración en sesión N° 41 del 16 de octubre del 2007, que lo traspasó del antiguo 50 al 51 actual del artículo)
-(Así reformado y corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 51 al 50 actual. Lo anterior ya que en dicha sesión se ordena suprimir el numeral 44 original y modificar la numeración. Asimismo en dicha junta se adiciona un nuevo artículo 31 y se corre de nuevo el orden de los artículos, por lo que este numeral paso del 50 al 51 actual)

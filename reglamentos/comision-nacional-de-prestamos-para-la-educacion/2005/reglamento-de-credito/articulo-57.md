@@ -1,4 +1,0 @@
-Artículo 57.—El prestatario queda en la obligación de presentar los informes oficiales de matrícula y de calificaciones, correspondientes a períodos lectivos para los cuales se le haya penalizado con la suspensión del desembolso o cuando los haya financiado con sus propios recursos.
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 55 al 56 actual del artículo)
-(Así corrida su numeración en sesión N° 41 del 16 de octubre del 2007, que lo traspasó del antiguo 56 al 57 actual del artículo)
-(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 57 al 56 actual. Lo anterior ya que en dicha sesión se ordena suprimir el numeral 44 original y modificar la numeración. Asimismo en dicha junta se adiciona un nuevo artículo 31 y se corre de nuevo el orden de los artículos, por lo que este numeral paso del 56 al 57 actual)

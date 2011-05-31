@@ -1,3 +1,0 @@
-Artículo 5º—El estudiante debe presentar el Formulario Solicitud de Préstamo con los datos completos y los documentos respectivos, en forma presencial o por otros medios tecnológicos de información y comunicación utilizados en CONAPE.
-Si el trámite de solicitud de préstamo lo realiza por los medios tecnológicos de información y comunicación utilizados en CONAPE, puede escanear y enviar por esa vía, a la Sección de Gestión y Análisis, los documentos y requisitos exigidos, y posteriormente presentar dichos documentos físicamente, para su respectiva verificación.
-(Así reformado en sesión N° 46 del 20 de octubre de 2009)

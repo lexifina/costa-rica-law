@@ -1,2 +1,0 @@
-Artículo 12.—Los trámites crediticios del solicitante en el proceso de gestión y análisis del crédito o del prestatario en el proceso de desembolsos y control de crédito, pueden ser gestionados en forma presencial o por otros medios tecnológicos de información y comunicación utilizados en CONAPE. También pueden ser gestionados por medio de un apoderado legal, o cuando así proceda, por medio de un tercero con autorización expresa del solicitante o prestatario.
-(Así reformado en sesión N° 46 del 20 de octubre de 2009)

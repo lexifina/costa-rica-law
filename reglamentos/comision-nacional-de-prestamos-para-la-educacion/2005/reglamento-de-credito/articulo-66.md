@@ -1,4 +1,0 @@
-Artículo 66.—El traslado de la operación crediticia a cobro, lo realiza la Sección de Desembolsos y Control de Crédito, después de que se cumpla la fecha de vencimiento del período de estudios establecida en el Contrato de Crédito para Estudios, de acuerdo con el plan de operaciones por trasladar a cobro.
-(Así corrida su numeración en sesión N° 2 del 17 de enero del 2006, que lo traspasó del antiguo 64 al 65 actual del artículo)
-(Así corrida su numeración en sesión N° 41 del 16 de octubre del 2007, que lo traspasó del antiguo 65 al 66 actual del artículo)
-(Así corrida su numeración en sesión N° 46 del 20 de octubre de 2009, que lo traspaso del antiguo artículo 66 al 65 actual. Lo anterior ya que en dicha sesión se ordena suprimir el numeral 44 original y modificar la numeración. Asimismo en dicha junta se adiciona un nuevo artículo 31 y se corre de nuevo el orden de los artículos, por lo que este numeral paso del 65 al 66 actual)
