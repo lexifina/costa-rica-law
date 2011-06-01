@@ -1,0 +1,11 @@
+Artículo 7º—Le corresponde a la Municipalidad:
+a- Dictar las medidas necesarias para el cumplimiento de este Reglamento con el objeto de que, toda Obra Constructiva, instalación, ampliación y modificación a las Obras Constructivas, reúna las condiciones técnicas, de seguridad, conservación y de integración al contexto urbano-ambiental del Cantón.
+b- Regular, otorgar, registrar, inspeccionar, denegar, anular y ejercer cualquier facultad sancionatoria en relación con las Licencias Municipales a que se refiere este reglamento.
+c- Salvaguardar el orden urbanístico, incluyendo la estética y seguridad de las edificaciones y sus repercusiones medioambientales, derivadas de los riegos de daño del medio ambiente urbano que puedan generar.
+d- Evitar la saturación, el desorden y el menoscabo del patrimonio histórico, cultural, arquitectónico y del medioambiente urbano que pueda producirse.
+e- Ordenar la suspensión, clausura o demolición de las nuevas Obras Constructivas, en caso de no sujetarse a lo dispuesto en este Reglamento salvo que se cuente con la Licencia de Construcción a la entrada en vigencia de este Reglamento.
+f- Llevar un registro de las torres, postes, y demás estructuras para redes y/o sistemas de telecomunicación, que se encuentren ya instaladas y/o en trámite de solicitud de autorización de construcción o de explotación, en la jurisdicción del Cantón para el control y planificación interna.
+g- Emitir los certificados de Uso del Suelo que se le presenten en la materia, conforme a lo establecido en el artículo 9 de este Reglamento y a lo establecido en los artículos 4,5,6,10,11 y 13 del Decreto No 36159-MINAET-S-MEIC-MOPT.
+h- Considerar y solicitar los criterios y lineamientos técnicos que la SUTEL establezca en ejercicio de su competencia, con el propósito de coordinar y procurar un adecuado equilibrio entre los intereses nacionales de desarrollo del servicio de las telecomunicaciones y los intereses locales representados por la Municipalidad.
+i- Propiciar mecanismos de resolución alterna de conflictos que pudieren presentarse en esta materia.
+j- Comunicar a la Federación de Municipalidades de las Licencias de Construcción otorgadas por la Municipalidad, con el propósito de mantener actualizada la densidad regional, para los efectos del artículo 62 de la Ley de Planificación Urbana.

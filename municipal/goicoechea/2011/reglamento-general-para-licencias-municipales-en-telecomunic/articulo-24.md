@@ -1,0 +1,31 @@
+CAPÍTULO VI
+Licencias municipales
+Artículo 24.—Para la obtención de la Licencia de Construcción, los solicitantes deberán presentar conjuntamente con el formulario, los siguientes requisitos:
+1. Una declaración jurada, otorgada ante Notario Público con las especies fiscales de Ley, donde se haga constar que no existe una torre de telecomunicaciones a una distancia mínima de 250 metros desde el centro de la torre propuesta. Esta distancia mínima y la declaración jurada no aplican en los siguientes casos:
+a) Las torres existentes del ICE a la entrada en vigencia de este Reglamento.
+b) Cuando las antenas se ubiquen en postes, azoteas o vallas existentes.
+2. Declaración jurada, otorgada ante Notario Público con las especies fiscales de Ley, donde se haga constar que la Obra Constructiva se edificara para ser compartida por un mínimo de tres emplazamientos de antenas y equipos, conforme a lo establecido por el artículo 77 de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Ley Nº 8660 del 8 de agosto del 2008.
+3. Documento que acredite el consentimiento del propietario cuando se pretenda establecer las Obras Constructivas a que se refiere este Reglamento en inmuebles propiedad de un tercero que no sea el solicitante de la Licencia de Construcción.
+4. Copia de la cédula de persona física o del representante legal y personería jurídica cuando se trate de persona jurídica de la persona natural o jurídica solicitante con no más de un mes emitida, y en la que se detalle a su vez la existencia, vigencia, domicilio y la representación respectiva que debe tener el que presente la solicitud a nombre de una persona jurídica.
+5. certificado de uso del suelo conforme.
+6. Certificación del plano catastrado visado del inmueble donde se ubicará el espacio respectivo.
+7. Alineamientos y afectaciones extendidos por las instituciones atinentes:
+- Frente a Ruta Nacional - MOPT.
+- Frente a Ruta Cantonal - Planificación Urbana.
+- Colindancia a Ríos y Quebradas - INVU.
+- Colindancia a Pozos, Nacimientos y Humedales - MINAE.
+- Afectación Servicios Eléctricos, Oleoductos, Vías Férreas, Tuberías de Agua Potable u otros - ICE-CNFL-A y A, RECOPE, INCOFER o quien lo administre.
+8. Certificación literal del inmueble, con no más de un mes emitida.
+9. Presentación de planos constructivos que cumplan con la normativa constructiva aplicable, firmados por el profesional responsable y visado por el Colegio de Ingenieros y Arquitectos (CFIA).
+10. La viabilidad ambiental otorgada por la Secretaría Nacional Técnica Ambiental (SETENA-MINAET).
+Hasta que el Plan Regulador de Goicoechea, cuente con la variable ambiental efectivamente incorporada a su normativa, de conformidad con el Reglamento General sobre los procedimientos de Evaluación de Impacto Ambiental, Decreto Ejecutivo No 31849-MINAE-SALUD-MOPT-MAG-MEIC del 28 de junio del 2004, Sección ni-C, todo desarrollador de una actividad, obra o proyecto con Alto Impacto Ambiental Potencial (IAP) desde Alto hasta moderado bajo (B1,B2,o A), deberá tramitar ante la SETENA el documento de evaluación ambiental D1 o al menos el D2 con la tramitación de una Guía de Buenas Prácticas Ambientales cuando se trate de una obra o proyecto de Moderado Impacto Ambiental Potencial, cumpliendo con todos los requisitos del Decreto Ejecutivo No 32712-MINAE del viernes 18 de noviembre del 2005, salvo que corresponda a obras, actividades o proyectos que por Ley deban tramitar un Estudio de Impacto Ambiental.
+Una vez hecho el tramite respectivo ante la Secretaria Técnica Ambiental (SETENA), el interesado en la construcción de la infraestructura para telecomunicaciones, deberá presentar a la Municipalidad como parte de los requisitos del permiso de construcción, copia de la viabilidad ambiental y copia de la Declaración Jurada de compromisos ambientales, Plan de Gestión Ambiental o Estudio de Impacto Ambiental, según sea el caso determinado por la SETENA.
+11. Permiso sanitario de funcionamiento ante el Ministerio de Salud, tal y como lo indica el Capítulo III, articulo 5º, del decreto No 36324-S publicado en La Gaceta No 25 del 4 de febrero del 2011.
+12. Estar al día con los tributos municipales.
+13. Constancia del cumplimiento de las responsabilidades obrero patronales actualizada, con la Caja Costarricense de Seguro Social (CCSS) por parte del propietario del inmueble, de la empresa concesionaria y de la empresa constructora.
+14. Autorización de la Dirección General de Aviación Civil.
+15. Georeferenciación de la ubicación del centro de la torre con coordenadas de longitud y latitud en formatos CRTM05 y WGS84.
+16. Descripción de las medidas correctivas adoptadas para la protección contra las descargas eléctricas de origen atmosférico, así como de la señalización y otras que restrinjan el acceso de personal no profesional al espacio en el que ubicara la obra.
+17. Publicación por una vez de un aviso a la ciudadanía, de la solicitud respectiva en un diario de circulación nacional no especializado, que incluya como mínimo el lugar en el que se plantea la construcción, instalación o explotación con señas especificas de fácil comprensión para el público (Provincia, Cantón, Distrito, Caserío, y la forma de dar direcciones comúnmente utilizada en nuestro país), el tipo de obra y su altura, así como el nombre del solicitante.
+La Municipalidad se reserva la facultad de comprobar por cualquier medio la veracidad de la información contenida en las declaraciones juradas.
+Es entendido de que si en cualquier momento no se cumplen las mediciones establecidas por la Organización Mundial de la Salud y el Ministerio de Salud, o si se determina técnica o científicamente, que la telefonía celular o las obras que las posibilitan dañan la salud o el ambiente y por lo tanto los derechos constitucionales relativos a esos bienes jurídicos, son violentados o se hacen nugatorios, la licencia o licencias respectivas perderán sus efectos, y las obras deberán ser demolidas por el interesado, toda vez que las licencias se autorizaran a partir del estado del conocimiento técnico científico sobre esas obras y tecnología y sobre su relación con la salud y el ambiente, conforme al criterio respectivo de la autoridad sanitaria y de la SETENA, entre otros órganos competentes, previo debido proceso.
