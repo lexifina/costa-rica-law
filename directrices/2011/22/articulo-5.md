@@ -1,0 +1,1 @@
+Artículo 5º—Cuando un proyecto de reglamento sufra ulteriores cambios o una vez publicado conforme al artículo 361 de la Ley General de la Administración Pública reciba aportes adicionales por parte de sectores o personas interesadas, será deber de la Jefa de Despacho hacer llegar dicha documentación al expediente administrativo que se conserva en el Archivo Institucional.
