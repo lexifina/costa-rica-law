@@ -1,0 +1,1 @@
+Artículo 5º—Unión de servidumbres. No se permitirá el fraccionamiento mediante la unión de servidumbres de paso, con el fin de aumentar la longitud o el ancho de dicho acceso, o el número de lotes fraccionados.

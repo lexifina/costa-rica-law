@@ -1,0 +1,9 @@
+Artículo 4º—Accesos y servidumbres. Todas las parcelas resultantes de un fraccionamiento tendrán acceso directo a vía pública. En casos calificados, la Municipalidad podrá admitir la subdivisión de lotes mediante servidumbres de paso, siempre que no exista otra opción y que se cumpla con las siguientes normas:
+a) La servidumbre se aceptará en terrenos especiales en que por su ubicación o dimensión se demuestre que es imposible fraccionar con acceso adecuado a vías públicas existentes, utilizándose preferentemente para casos en que ya existan viviendas en el lote.
+b) En subdivisiones hasta de tres lotes para vivienda unifamiliar, se tendrá una servidumbre de tres metros de ancho como mínimo, más un metro de acera. La longitud de una servidumbre de acceso a lotes interiores no excederá de 60 metros.
+c) Frente a servidumbres solamente se podrá segregar un máximo de seis lotes.
+d) Todos los lotes resultantes de las subdivisiones, deberán tener las medidas reglamentarias.
+e) El área de la servidumbre no será computable para efectos de cálculo del área mínima de lote y sobre ella no podrán hacerse construcciones, salvo las de tapias.
+f) La segregación autorizada frente a servidumbre, en los términos de los artículos anteriores, implica que la entrada a los lotes será considerada servidumbre de paso común y en todo momento para cualquier autoridad o funcionarios de las entidades encargadas a prestar servicios públicos, de cualquier índole, así como de aquél a las que corresponde el control urbanístico, municipal, de seguridad pública, salud, bomberos y cualquier otro similar.
+g) En cuanto a servidumbres, ni la municipalidad, ni ninguna institución pública tienen obligación de darles mantenimiento, ni de prestar servicios en los lotes interiores.
+h) Para todos los lotes (exceptuando los especiales), la distancia mínima frente a calle pública y frente a servidumbres de paso, será de diez metros.

@@ -1,0 +1,1 @@
+Artículo 8º—Obligatoriedad. Para el fraccionamiento en urbanizaciones se deberá acatar las anteriores disposiciones, además se presentará una propuesta preliminar ante el Concejo Municipal para su análisis y aprobación.
