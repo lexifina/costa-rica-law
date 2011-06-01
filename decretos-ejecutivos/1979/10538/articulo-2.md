@@ -75,6 +75,8 @@ Artículo 2°—Se reconocen como Especialidades Médicas:
 · Medicina crítica pediátrica
 · Neonatología
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
+· Subespecialidad de Medicina de Emergencias Pediátricas
+(Adicionado el punto anterior mediante sesión ordinaria 2011-06-01 del 1 de junio del 2011)
 - Pediatría del Desarrollo.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
 - Psiquiatría General.
