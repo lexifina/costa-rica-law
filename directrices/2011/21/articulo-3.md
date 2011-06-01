@@ -1,0 +1,1 @@
+Artículo 3º—Todos los órganos y dependencias de esta cartera ministerial deberán prestar la colaboración oportuna del caso a fin de atender las consultas sobre los proyectos de ley, para lo cual la Dirección de Asuntos Jurídicos coordinará lo pertinente.
