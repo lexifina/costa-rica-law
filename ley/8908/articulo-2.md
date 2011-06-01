@@ -43,3 +43,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES
 (Modificado por el artículo 1° del decreto ejecutivo N° 36501 del 17 de marzo de 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36557 del 5 de abril de 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36584 del 25 de abril de 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36594 del 16 de mayo de 2011)
