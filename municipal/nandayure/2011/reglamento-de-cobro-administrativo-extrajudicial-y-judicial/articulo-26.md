@@ -1,0 +1,3 @@
+CAPÍTULO III
+Expediente Administrativo Tributario
+Artículo 26.—Responsable de su confección: La persona responsable de la confección de los expedientes administrativos de cobro es el encargado del departamento de cobros en el caso de los expedientes tributarios. En el caso de los expedientes en Zona Marítimo-Terrestre el responsable de su confección es el Jefe de dicho Departamento. Para éstos últimos, el Departamento de Cobros apercibe sobre el atraso en sus pagos de un contribuyente, al departamento de Zona Marítimo Terrestre para que originen un expediente con la información básica de la concesión y se inicie el trámite de cobro administrativo.

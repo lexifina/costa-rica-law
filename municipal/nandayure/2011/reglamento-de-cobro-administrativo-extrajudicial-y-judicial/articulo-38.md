@@ -1,0 +1,1 @@
+Artículo 38.—Responsable de Actualización de las Tarifas: Esta actividad corresponde al Departamento contable de la Municipalidad, por cuanto disponen de la información para estimar el costo efectivo y por no causar conflicto de intereses con el personal tributario en la actualización de los montos.

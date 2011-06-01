@@ -1,0 +1,1 @@
+Artículo 42.—De la divulgación de la estrategia de cobro: El coordinador tributario en coordinación con el encargado de cobros definirá las formas y medios de divulgar en los contribuyentes la estrategia de cobro anual a aplicar por parte de la Municipalidad.
