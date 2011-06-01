@@ -1,0 +1,1 @@
+IV.—Con el propósito de facilitar el traslado de la administración del sistema y el desarrollo de habilidades y competencias, el Área de Denuncias e Investigaciones atenderá las consultas que la Unidad de Servicios de Información requiera para el adecuado desempeño de sus funciones.
