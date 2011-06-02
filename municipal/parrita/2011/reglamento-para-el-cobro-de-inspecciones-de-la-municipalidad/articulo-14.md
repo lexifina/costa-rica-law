@@ -1,0 +1,12 @@
+Artículo 14.—La tarifa que se establece se cobrará para las diferentes zonas de la siguiente manera:
+Zona 1: 15.000,00 (quince mil colones con 00/100)
+Zona 2: 10.000,00 (diez mil colones con 00/100)
+Zona 3: 20.000,00 (veinte mil colones con 00/100)
+Zona 4: 8.000,00 (ocho mil colones con 00/100)
+Zona 5: 12.000,00 (doce mil colones con 00/100)
+Zona 6: 15.000,00 (quince mil colones con 00/100)
+Zona 7: 8.000,00 (ocho mil colones con 00/100)
+Zona 8: 5.000,00 (cinco mil colones con 00/100)
+Zona 9: 15.000,00 (quince mil colones con 00/100)
+Zona 10: 18.000,00 (dieciocho mil colones con 00/100)
+Zona 11: 12.000,00 (doce mil colones con 00/100)

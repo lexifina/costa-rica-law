@@ -1,0 +1,1 @@
+Artículo 7º—La resolución de una inspección que realice un funcionario municipal, que afecte o beneficie al solicitante puede ser apelada ante el Alcalde Municipal, de conformidad al artículo 162 del Código Municipal, la apelación solo puede plantearla quien se encuentre facultado para ello.

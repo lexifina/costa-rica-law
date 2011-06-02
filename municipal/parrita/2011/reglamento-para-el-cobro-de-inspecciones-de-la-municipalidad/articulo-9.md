@@ -1,0 +1,1 @@
+Artículo 9º—El costo de esta tarifa se determina tomando en consideración el costo efectivo de lo invertido por la Municipalidad para su realización, incrementándose en un diez por ciento de gastos administrativos.

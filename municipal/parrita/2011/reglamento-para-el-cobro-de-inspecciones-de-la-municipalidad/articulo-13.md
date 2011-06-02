@@ -1,0 +1,1 @@
+Artículo 13.—En la determinación del costo efectivo, la Municipalidad tomará como base el costo real o efectivo que por la actividad de inspecciones realice cada departamento y que estarán sustentadas en los costos reales.

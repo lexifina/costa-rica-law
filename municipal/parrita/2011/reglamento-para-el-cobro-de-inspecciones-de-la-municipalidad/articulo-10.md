@@ -1,0 +1,1 @@
+Artículo 10.—El diez por ciento de gastos administrativos, en que se incrementa la tasa señalada en el artículo anterior, se destinará para cancelar gastos de papelería y otros que no se ubican en el cobro de las inspecciones.

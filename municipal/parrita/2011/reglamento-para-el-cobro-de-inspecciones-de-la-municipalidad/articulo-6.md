@@ -1,0 +1,1 @@
+Artículo 6º—Las solicitudes de inspecciones debe realizarla la persona o empresa facultada para ese fin o que se perjudicada en alguna actuación no se recibirán solicitudes de personas, grupos o empresas que no tengan relación con las necesidades o problemas que se requieran solucionar con la inspección solicitada.

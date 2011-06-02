@@ -1,0 +1,1 @@
+Artículo 4º—Las inspecciones deben ser solicitadas por escritos por el contribuyente y deben indicar claramente su necesidad (que es lo que requiere) y el lugar exacto en el que se debe hacer inspección.
