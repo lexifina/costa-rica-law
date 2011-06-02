@@ -1,0 +1,1 @@
+Artículo 26.—El beneficiario de una subvención deberá presentar a la Municipalidad un informe sobre el uso dado a los recursos transferidos en un plazo de 15 días hábiles posterior a su ejecución. Esta información será verificada por la Alcaldía en asocio con la Oficina de la Mujer.

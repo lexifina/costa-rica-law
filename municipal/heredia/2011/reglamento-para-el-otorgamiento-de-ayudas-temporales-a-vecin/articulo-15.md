@@ -1,0 +1,1 @@
+Artículo 15.—La Municipalidad otorgará ayudas con base en lo dispuesto en los artículos anteriores, solamente una por persona o familia y por una sola vez, cuando se motive por la misma causa o motivo.
