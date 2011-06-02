@@ -1,2 +1,1 @@
-Artículo 68.—Caducidad de la pensión en caso de matrimonio o unión de hecho. El derecho a recibir una pensión por viudez, orfandad o por convivencia, caducará cuando se demuestre el matrimonio o la unión de hecho del (la) derechohabiente.
-La Junta emitirá la resolución de caducidad y la notificará, transcurridos cinco días hábiles desde la notificación y no existiendo oposición del interesado se procederá al acto material de exclusión de la planilla de pago de pensiones.
+Artículo 68.—(Derogado mediante sesión N° 062 del 2 de junio de 2011)
