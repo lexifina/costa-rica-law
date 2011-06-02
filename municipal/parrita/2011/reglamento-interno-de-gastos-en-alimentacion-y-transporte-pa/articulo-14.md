@@ -1,0 +1,1 @@
+Artículo 14.—El incumplimiento de las obligaciones impuestas en este Reglamento a, Regidores y Síndicos, los hará acreedores de las sanciones disciplinarias que el Reglamento emitido por la Contraloría General de la República, sobre esta materia dispone, para los funcionarios que conforman la administración activa.

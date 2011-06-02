@@ -1,0 +1,1 @@
+Artículo 16.—Este reglamento deroga en su totalidad el reglamento aprobado mediante acuerdo N° 12, artículo quinto, asunto N° 1 de la sesión ordinaria N° 2058-2007, celebrada el día dos de abril del 2007.

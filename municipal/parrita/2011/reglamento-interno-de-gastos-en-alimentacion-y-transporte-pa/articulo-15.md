@@ -1,0 +1,1 @@
+Artículo 15.—Para dar cumplimiento en lo establecido en este reglamento la Administración deberá incluir en el presupuesto ordinario del año siguiente la partida correspondiente de conformidad con las tarifas de ARESEP y la Contraloría General de la República.
