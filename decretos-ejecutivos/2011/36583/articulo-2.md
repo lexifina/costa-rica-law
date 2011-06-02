@@ -1,0 +1,1 @@
+Artículo 2º—Promover los principios, los valores e ideales del civismo y del patriotismo resaltados por el Presidente Juan Rafael Mora, tanto a nivel internacional a través de nuestras representaciones diplomáticas, como a nivel interno ante las diferentes representaciones diplomáticas acreditadas en nuestro país.

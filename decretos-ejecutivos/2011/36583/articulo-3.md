@@ -1,0 +1,1 @@
+Artículo 3º—Instar a las autoridades locales de los diferentes cantones del país, a honrar la memoria de Don Juan Rafael Mora mediante el bautizo de sitios, edificios, parajes públicos con su ilustre nombre, así como a erigir estatuas del prócer en lugares apropiados donde los vecinos puedan reunirse a celebrar las efemérides patrias y realizar actos cívicos.

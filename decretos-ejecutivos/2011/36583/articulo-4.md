@@ -1,0 +1,1 @@
+Artículo 4º—Invitar a otras instituciones públicas y en especial a los Ministerios de Educación Pública y de Cultura y Juventud, a convocar un concurso para la confección del diseño y las artes de la estatua del Presidente Juan Rafael Mora.
