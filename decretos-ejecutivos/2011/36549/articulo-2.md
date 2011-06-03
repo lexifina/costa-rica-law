@@ -1,0 +1,1 @@
+Artículo 2º—La Ventanilla Única estará conformada por funcionarios de los ministerios citados en el artículo anterior, competentes en materia de registro de plaguicidas de uso agrícola, coadyuvantes y sustancias afines.

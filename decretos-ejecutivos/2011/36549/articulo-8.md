@@ -1,0 +1,1 @@
+Artículo 8º—Cuando los alegatos de los recursos traten sobre materia de competencia del Ministerio de Salud o del Ministerio de Ambiente, Energía y Telecomunicaciones, los funcionarios responsables de estos ministerios brindaran al Servicio Fitosanitario del Estado, la colaboración e información técnica-legal para resolver el recurso interpuesto.

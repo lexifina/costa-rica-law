@@ -1,0 +1,1 @@
+Artículo 3º—El Servicio Fitosanitario del Estado del Ministerio de Agricultura y Ganadería, deberá proporcionar el espacio físico común, así como el apoyo logístico necesario para el buen desempeño de la Ventanilla Única.

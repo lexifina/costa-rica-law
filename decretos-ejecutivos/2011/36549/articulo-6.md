@@ -1,0 +1,1 @@
+Artículo 6º—El Servicio Fitosanitario del Estado será el órgano competente para el dictado de la resolución final en materia de registro, tomando en cuenta el criterio final de los ministerios involucrados.

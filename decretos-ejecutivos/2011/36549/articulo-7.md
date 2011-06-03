@@ -1,0 +1,1 @@
+Artículo 7º—Los recursos ordinarios y extraordinarios presentados contra la resolución final emitida por el Servicio Fitosanitario del Estado, se resolverán según lo dispuesto por la Ley General de Administración Pública Ley Nº 6227.

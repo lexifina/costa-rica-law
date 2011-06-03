@@ -1,0 +1,1 @@
+Artículo 5º—Los criterios técnicos emitidos por el Ministerio de Salud y el Ministerio de Ambiente, Energía y Telecomunicaciones serán vinculantes para el Servicio Fitosanitario del Estado, como órgano competente de la administración del registro de plaguicidas de uso agrícola, coadyuvantes y sustancias afines.
