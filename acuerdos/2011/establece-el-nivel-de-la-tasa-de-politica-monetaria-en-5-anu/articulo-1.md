@@ -1,0 +1,12 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 7 del acta de la sesión 5499-2011, celebrada el 1° de junio del 2011,
+considerando que:
+a. El Título IV, Numeral 4, Literal F de las Regulaciones de Política Monetaria establece que la Junta Directiva del Banco Central de Costa Rica determinará las tasas de interés de referencia para sus operaciones en el Mercado Integrado de Liquidez.
+b. Es preciso avanzar en la transición hacia un régimen monetario de metas de inflación, en el cual el Banco Central de Costa Rica cuente con mayores grados de libertad para alcanzar una inflación baja y estable en el mediano plazo.
+c. Se requiere establecer un parámetro de referencia para el costo de la liquidez en el sistema financiero nacional, a partir del cual se determine el precio de los recursos de muy corto plazo en los diferentes mercados de negociación de dinero.
+d. Dadas las condiciones en el mercado financiero, los efectos sobre la inflación y el tipo de cambio derivados de la vulnerabilidad del país ante los flujos de capital provenientes del exterior requieren conformar una estructura de rendimientos en el corto plazo que guarde consistencia con las tasas de interés externas, sin reconocer un premio excesivo por el ahorro de corto plazo en las opciones denominadas en moneda local.
+e. Según lo resuelto en el numeral 11, artículo 6, del acta de la sesión 5499-2011, celebrada el 1° de junio del 2011, el corredor de tasas de interés e instrumentos para la intervención del Banco Central de Costa Rica en el Mercado Integrado de Liquidez, rige a partir del momento en que entre en vigencia el valor numérico de la Tasa de Política Monetaria, definida en el numeral 1, artículo 6, de esta misma sesión.
+Dispuso en firme:
+1. Ubicar el nivel de la Tasa de Política Monetaria en 5% anual.
+2. Ubicar el nivel de la tasa de interés bruta de los depósitos electrónicos a un día plazo (DON) en 3,30% anual.
+3. Estas disposiciones rigen a partir del sábado 4 de junio del 2011 y, consecuentemente, dan vigencia, a partir de esta misma fecha, a las disposiciones relativas al corredor de tasas de interés e instrumentos para la intervención del Banco Central de Costa Rica en el Mercado Integrado de Liquidez, adoptadas por la Junta Directiva del Banco Central de Costa Rica, en el artículo 6 del acta de la sesión 5499-2011, del 1° de junio del 2011, todo ello en apego a lo establecido en el numeral 11 de ese artículo 6.
