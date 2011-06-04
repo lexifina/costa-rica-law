@@ -1,0 +1,1 @@
+4. Ofrecer Operaciones Diferidas de Liquidez a un día plazo para captar e inyectar liquidez en el Mercado Integrado de Liquidez mediante subastas. Las tasas de interés de estas operaciones se ubicarán dentro del corredor conformado por las tasas de interés de las facilidades permanentes de crédito y depósito a un día plazo en el Mercado Integrado de Liquidez.

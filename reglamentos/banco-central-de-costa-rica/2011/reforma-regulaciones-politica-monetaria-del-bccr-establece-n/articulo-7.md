@@ -1,0 +1,1 @@
+7. Ofrecer Operaciones Diferidas de Liquidez a siete y catorce días plazo para inyectar recursos en el Mercado Integrado de Liquidez. La oferta de estos instrumentos se hará mediante subastas y estará a disposición de los participantes de este mercado de negociación, en el momento en que la Administración del Banco Central de Costa Rica considere necesario.

@@ -1,0 +1,1 @@
+8. La tasa de interés mínima que el Banco Central de Costa Rica aceptará por las Operaciones Diferidas de Liquidez de inyección a siete y catorce días plazo en subastas, será la Tasa de Política Monetaria.

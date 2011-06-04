@@ -1,0 +1,1 @@
+2. Establecer que el nivel de la tasa de interés de la facilidad permanente de crédito a un día plazo del Banco Central de Costa Rica en el Mercado Integrado de Liquidez corresponde a la Tasa de Política Monetaria más 100 puntos base.

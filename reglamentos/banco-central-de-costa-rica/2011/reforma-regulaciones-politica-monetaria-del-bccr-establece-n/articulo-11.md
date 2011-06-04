@@ -1,0 +1,1 @@
+11. Estas disposiciones rigen a partir del momento en que entre en vigencia el valor numérico de la Tasa de Política Monetaria, según la definición establecida en el numeral 1 de la parte resolutiva de este acuerdo, lo cual comunicará publica expresa y oportunamente el Banco Central de Costa Rica.
