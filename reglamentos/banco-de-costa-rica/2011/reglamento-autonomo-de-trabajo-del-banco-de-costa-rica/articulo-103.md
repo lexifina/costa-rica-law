@@ -1,0 +1,1 @@
+Artículo 103.—Reincidencia en falta tardía en el segundo mes. Si en el mes calendario siguiente la servidora o el servidor reincide en caso de reiteración de llegadas tardías el Banco podrá amonestarlo y en aquellos casos que así lo ameriten debido a la gravedad de la falta, la servidora o el servidor será amonestado con apercibimiento.

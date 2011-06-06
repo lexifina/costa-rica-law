@@ -1,0 +1,1 @@
+Artículo 124.—Normativa aplicable en materia de suministros de uniformes, ropa de trabajo e implementos de seguridad. Los demás aspectos relacionados con el suministro de uniformes, ropa de trabajo e implementos de seguridad, se regirán por la normativa que emita el Banco.

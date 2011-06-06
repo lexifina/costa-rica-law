@@ -1,0 +1,1 @@
+Artículo 99.—Comprobación de las faltas de asistencia y puntualidad. Toda sanción que se derive de una falta a la obligación de asistencia y puntualidad, comprobable mediante el sistema de asistencia que se encuentre vigente, deberá imponerse dentro del mes calendario siguiente a la ocurrencia de la falta o en su caso desde que fueron conocidos los hechos.

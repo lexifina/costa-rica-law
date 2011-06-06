@@ -1,0 +1,3 @@
+Artículo 59.—Jornada mixta. La jornada mixta se da cuando los servicios se prestan parte durante la jornada diurna y parte en la jornada nocturna, siempre y cuando la parte de la jornada nocturna no exceda de tres horas y media. Si excede ese número de horas pasará a considerarse jornada nocturna.
+Sin embargo, cuando se trate de labores que por su propia naturaleza no sean insalubres o peligrosos, podrá estipularse una jornada mixta de hasta 8 horas diarias si se presentan situaciones que ameriten esa extensión.
+En todo caso, el máximo de la jornada semanal mixta se regirá por lo que se establezca en la normativa vigente y aplicable en el Banco.

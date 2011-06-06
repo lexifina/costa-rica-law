@@ -1,0 +1,2 @@
+Artículo 47.—Pago por diferencias de caja. El Banco podrá reconocer el pago de una asignación por diferencias de caja a las servidoras y a los servidores que por las características del puesto desempeñado tengan bajo su responsabilidad la atención de cajas, manejo o custodia de valores.
+El reconocimiento de este rubro y los puestos a los que se aplicará se regirá por la normativa interna que emita el Banco.

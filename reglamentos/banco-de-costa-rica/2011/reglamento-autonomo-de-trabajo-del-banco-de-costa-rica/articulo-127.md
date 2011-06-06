@@ -1,0 +1,1 @@
+Artículo 127.—Normativa aplicable en materia de prevención de legitimación de capitales. Todo lo relacionado con los diferentes aspectos contemplados en la Ley Nº 8204 relacionados con administración de personal, se regirán por la normativa que emite el Banco.

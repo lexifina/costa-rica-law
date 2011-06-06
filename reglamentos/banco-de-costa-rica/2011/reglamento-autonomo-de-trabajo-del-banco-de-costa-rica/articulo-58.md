@@ -1,0 +1,1 @@
+Artículo 58.—Jornada nocturna. La jornada nocturna es la que se presta entre las diecinueve horas (7:00 p. m.) y las cinco horas (5:00 a. m.). El máximo de la jornada nocturna se regirá por lo que se establezca en la normativa vigente y aplicable en el Banco.

@@ -1,0 +1,2 @@
+Artículo 51.—Registro para el control de asistencia. La División Capital Humano por medio de un sistema automatizado o el que para estos efectos establezca, llevará los registros y el control de la asistencia y puntualidad de cada servidora o servidor, todo conforme a las disposiciones sobre este tema dicte el Banco.
+Cada superior jerárquico podrá generar con la periodicidad que requiera para el debido control de la asistencia y puntualidad del personal a su cargo, los reportes de asistencia correspondientes.

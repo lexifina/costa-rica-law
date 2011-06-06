@@ -1,0 +1,1 @@
+Artículo 62.—Máximo de la jornada ordinaria más la extraordinaria. La jornada extraordinaria, sumada a la ordinaria, no podrá exceder de doce horas, salvo las excepciones indicadas en el artículo 140 del Código de Trabajo.

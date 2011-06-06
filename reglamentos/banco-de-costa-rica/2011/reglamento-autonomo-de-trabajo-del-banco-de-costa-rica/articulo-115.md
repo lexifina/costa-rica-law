@@ -1,0 +1,6 @@
+CAPÍTULO XXII
+Acoso laboral
+Artículo 115.—Acoso laboral o acoso moral en el lugar de trabajo. El acoso laboral o acoso moral en el lugar del trabajo, son conductas (como por ejemplo: actos negativos y hostiles en el trabajo gestos, comportamientos, palabras o actitudes, presiones, amenazas, agresiones, humillaciones o marginaciones, entre otras), manifestadas de manera individual o colectiva, sistemática y recurrentemente en contra de una servidora o a un servidor, que atentan contra la dignidad o la integridad física o psíquica de una persona, poniendo en peligro su empleo o degradando el ambiente de trabajo.
+El acoso laboral o moral tiene como fin degradar las condiciones de trabajo, destruir las redes de comunicación, destruir la reputación, perturbar el ejercicio de las labores y conseguir la desmotivación laboral, destruir a la servidora o al servidor psicológica y socialmente y llevarla a la desesperación para provocar así la renuncia o inducirla a su dimisión.
+El acoso laboral puede cometerse contra la víctima por parte de sus compañeras o compañeros, de sus subalternas o subalternos o de sus superiores.
+No constituye acoso laboral, otras situaciones como el estrés profesional, situaciones conflictivas laborales o la agresión aislada, las cuales serán tratadas conforme a la normativa vigente y aplicable en el Banco para este tipo de situaciones.

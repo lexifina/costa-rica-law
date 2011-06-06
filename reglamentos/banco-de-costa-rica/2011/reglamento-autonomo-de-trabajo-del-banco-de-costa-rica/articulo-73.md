@@ -1,0 +1,2 @@
+Artículo 73.—Tiempo efectivo de trabajo. Tiempo de trabajo efectivo es aquél en que la servidora o el servidor permanezcan a las órdenes del Banco o no pueda salir del lugar donde presta sus servicios durante las horas de descanso y comidas.
+De conformidad con el horario establecido, las horas límites de comienzo y terminación de labores definen el tiempo efectivo de trabajo, por lo que las servidoras y los servidores están en la obligación de iniciar y finalizar su trabajo a la hora establecida.

@@ -1,0 +1,3 @@
+Artículo 79.—Disfrute anticipado de vacaciones. Cuando la servidora o el servidor no hayan cumplido las cincuenta semanas de trabajado continuo y necesite vacaciones, el superior jerárquico de oficina podrá autorizar únicamente en casos excepcionales debidamente justificados a su criterio, el disfrute proporcional de una parte del periodo anual de vacaciones. El disfrute proporcional no podrá ser superior al número de días que corresponda a los meses trabajados.
+Las vacaciones serán acreditadas anualmente y de acuerdo con la fecha de ingreso al Banco de la servidora o del servidor.
+Lo relativo a las vacaciones se regirá por lo que el Banco establezca como normativa aplicable.

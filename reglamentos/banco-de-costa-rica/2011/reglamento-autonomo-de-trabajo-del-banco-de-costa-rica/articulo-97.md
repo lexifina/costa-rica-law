@@ -1,0 +1,2 @@
+Artículo 97.—Comprobación de la asistencia y puntualidad. La asistencia y puntualidad al trabajo, como obligación de la servidora o del servidor derivada de su contrato de trabajo y la normativa laboral aplicable, serán comprobadas mensualmente respecto del mes calendario anterior, por medio del sistema de asistencia que para esos efectos mantenga el Banco.
+La verificación del correcto cumplimiento de esa obligación la deberá hacer el superior conforme con la normativa interna que regule esta materia.

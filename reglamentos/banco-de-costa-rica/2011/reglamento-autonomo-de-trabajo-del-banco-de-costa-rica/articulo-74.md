@@ -1,0 +1,5 @@
+Artículo 74.—Tiempo de descanso. En los horarios de jornada continua, las servidoras y los servidores tendrán derecho a disfrutar de cuarenta y cinco minutos continuos para descanso y alimentación. Este periodo se considerará parte del tiempo efectivo de trabajo.
+Cuando la servidora o el servidor disfruten de vacaciones de medio día, los 45 minutos para descanso y alimentación no se considerarán tiempo efectivo de trabajo.
+El superior jerárquico de cada oficina establecerá los horarios en que las servidoras y los servidores tomarán su tiempo para descanso y alimentación, procurando que sea disfrutado cerca de la mitad del horario a cumplir o de los horarios usuales para ese fin.
+Cuando se trate de servidoras o servidores contratados a tiempo parcial, el Banco otorgará el tiempo para descanso y alimentación proporcionalmente a las horas laboradas en el día. Cuando se trate de trabajo a tiempo parcial y alguno de los días se labore en jornada continua, se considerará ese lapso como tiempo efectivo de trabajo.
+Lo relativo a los horarios se regirá por lo que el Banco establezca como normativa aplicable.

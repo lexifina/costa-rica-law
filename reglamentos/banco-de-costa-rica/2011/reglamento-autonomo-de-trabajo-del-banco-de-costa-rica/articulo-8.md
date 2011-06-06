@@ -1,0 +1,1 @@
+Artículo 8º—Parámetros del sistema de evaluación del desempeño. El Banco, con base en criterios técnicos y objetivos y de acuerdo con los intereses institucionales, establecerá, revisará y modificará las metodologías y procesos que estime pertinentes para la definición y establecimiento de los parámetros o factores referentes a la medición de la eficiencia y productividad.

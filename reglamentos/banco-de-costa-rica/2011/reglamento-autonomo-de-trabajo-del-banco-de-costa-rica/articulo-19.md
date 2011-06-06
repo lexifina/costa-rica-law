@@ -1,0 +1,1 @@
+Artículo 19.—Escalafón salarial de puestos. Conforme las disposiciones que se dicten en el Banco, la División Capital Humano deberá elaborar y mantener actualizado el escalafón salarial. Estas disposiciones serán de aprobación por el Banco previo a su aplicación y estarán disponibles para las servidoras y los servidores.

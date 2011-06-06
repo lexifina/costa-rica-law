@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Formación y desarrollo del capital humano
+Artículo 30.—Fomento de la superación, desarrollo personal y profesional. El Banco fomentará la superación, el desarrollo personal y profesional de sus servidoras y servidores, con el propósito de lograr una mejor orientación y desarrollo de las competencias que requieran en función del perfil de puesto, para un óptimo aprovechamiento del capital humano y potenciar la excelencia, mediante programas de formación, capacitación y desarrollo que serán incluidos en el plan de capacitación que será elaborado conforme a las disposiciones que apruebe el Banco para regular este tema.

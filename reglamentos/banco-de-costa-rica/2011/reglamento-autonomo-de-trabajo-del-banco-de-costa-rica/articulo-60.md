@@ -1,0 +1,2 @@
+Artículo 60.—Jornadas especiales. El Banco de acuerdo con las necesidades institucionales podrá establecer jornadas especiales distintas a las definidas anteriormente, sin que se pueda sobrepasar el número máximo de horas definidas para la jornada de trabajo semanal.
+El establecimiento de jornadas especiales lo será sin perjuicio de los eventuales derechos que pudiere tener la servidora o el servidor en cuanto a la jornada que estuviere desempeñando.

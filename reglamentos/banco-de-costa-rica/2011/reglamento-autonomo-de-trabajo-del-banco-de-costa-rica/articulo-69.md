@@ -1,0 +1,1 @@
+Artículo 69.—Obligación de laborar jornada extraordinaria. Todas las servidoras y todos los servidores están en la obligación de laborar tiempo extraordinario cuando las necesidades del Banco lo requieran, salvo por impedimento grave debidamente justificado y aprobado por el Banco.

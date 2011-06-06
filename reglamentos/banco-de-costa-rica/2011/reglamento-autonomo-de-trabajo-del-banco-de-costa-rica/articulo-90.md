@@ -1,0 +1,4 @@
+CAPÍTULO XX
+Régimen disciplinario
+Artículo 90.—Sujeción de la servidora y del servidor a responsabilidad disciplinario. Para garantizar la probidad, corrección, eficacia y eficiencia en la prestación del servicio a cargo del Banco, toda servidora y todo servidor estará sujeta o sujeto a responsabilidad disciplinaria, por sus actuaciones u omisiones en el desempeño de sus funciones, sin perjuicio de la responsabilidad civil o penal que pudiere corresponder.
+El régimen disciplinario previsto en este Reglamento se complementará con lo establecido sobre esta materia en el Código de Trabajo, la Ley General de la Administración Pública, la Ley de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, y toda otra normativa interna o externa que resulta vigente y aplicable.

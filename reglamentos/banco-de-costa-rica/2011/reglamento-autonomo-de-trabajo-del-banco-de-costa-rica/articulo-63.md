@@ -1,0 +1,1 @@
+Artículo 63.—Del trabajo en días feriados, asuetos, o día de descanso. El trabajo en días feriados, asuetos o día de descanso, se regirá por lo que se establezca en la normativa vigente y aplicable en el Banco.

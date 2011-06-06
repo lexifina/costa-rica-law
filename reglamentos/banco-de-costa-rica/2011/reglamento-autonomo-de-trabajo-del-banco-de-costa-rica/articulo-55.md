@@ -1,0 +1,1 @@
+Artículo 55.—Sanciones por incumplimiento del deber de asistencia y puntualidad. El incumplimiento de la servidora o del servidor de su deber de asistencia y puntualidad genera responsabilidad disciplinaria, la que será establecida en este reglamento y en la normativa interna y externa aplicable.

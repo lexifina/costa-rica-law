@@ -1,0 +1,1 @@
+Artículo 25.—Objetivos del sistema de selección, ascensos, traslados y permutas. El sistema de selección, ascensos, traslados y permutas tiene como objetivos otorgarle a las servidoras y a los servidores oportunidades de desarrollo, superación laboral y el mejoramiento del clima institucional, lo cual se regirá por la normativa vigente y aplicable en el Banco.

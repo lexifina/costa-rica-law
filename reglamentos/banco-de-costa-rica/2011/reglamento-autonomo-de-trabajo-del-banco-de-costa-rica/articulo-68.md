@@ -1,0 +1,2 @@
+Artículo 68.—Excepcionalidad de la jornada extraordinaria. Autorización previa para laborarla. Por ser excepcional, la aprobación de la jornada extraordinaria de trabajo deberá estar plenamente justificada y autorizada de previo a realizarse y en ningún caso podrá ejecutarse o autorizarse de manera permanente.
+Ninguna servidora ni ningún servidor podrán laborar en jornada extraordinaria si no cuenta previamente con la respectiva autorización correspondiente otorgada conforme con la normativa que para esos efectos emita el Banco, que será de acatamiento obligatorio.

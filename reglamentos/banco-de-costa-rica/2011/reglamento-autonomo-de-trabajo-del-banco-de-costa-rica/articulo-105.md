@@ -1,0 +1,1 @@
+Artículo 105.—Inasistencia al trabajo. Toda inasistencia al trabajo, durante media o una jornada diaria completa sin justificación alguna, será tenida como falta de ausencia al trabajo, conforme a las disposiciones establecidas en este Reglamento y en el Código de Trabajo.

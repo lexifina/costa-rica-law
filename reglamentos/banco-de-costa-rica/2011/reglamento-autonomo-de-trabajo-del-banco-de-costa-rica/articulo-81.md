@@ -1,0 +1,1 @@
+Artículo 81.—Licencia por embarazo y maternidad. El Banco otorgará a la servidora embarazada, la licencia por maternidad, cuyo goce y pago será conforme con las disposiciones establecidas en el Código de Trabajo y la normativa vigente y aplicable en el Banco.

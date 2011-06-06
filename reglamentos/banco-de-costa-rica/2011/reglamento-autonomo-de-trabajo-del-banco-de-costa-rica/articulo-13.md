@@ -1,0 +1,2 @@
+Artículo 13.—Período de prueba. En los contratos de trabajo por tiempo indeterminado existirá un período de prueba de hasta tres meses. Durante dicho periodo de prueba y sin aviso previo, cualquiera de las partes puede dar por terminado el contrato sin responsabilidad alguna para ellas.
+Para efectos de evaluar a la servidora o al servidor durante el periodo de prueba, serán aplicados los instrumentos técnicos establecidos para tal efecto conforme a las disposiciones que dicte el Banco, para determinar su permanencia en el Banco

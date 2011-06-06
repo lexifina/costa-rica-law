@@ -1,0 +1,3 @@
+Artículo 53.—Responsabilidad de la servidora o del servidor en cuanto al control de asistencia y puntualidad. Cada servidora o servidor es responsable de registrar puntualmente su asistencia y cumplimiento de la jornada en el sistema que para esos efectos defina el Banco.
+En caso que la servidora o el servidor tengan algún problema con el registro de la marca de ingreso o salida, debe comunicarlo inmediatamente al superior jerárquico correspondiente.
+Asimismo tiene la obligación de avisar oportunamente cualquier ausencia ante su superior jerárquico, así como presentar los documentos que justifiquen la ausencia y deberá registrarlo en el sistema de asistencia, todo dentro del plazo que se determine en la normativa aplicable.

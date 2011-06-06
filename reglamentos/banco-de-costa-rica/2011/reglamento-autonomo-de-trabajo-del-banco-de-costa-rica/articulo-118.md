@@ -1,0 +1,3 @@
+Artículo 118.—Unidad de Salud Ocupacional. El Banco contará con una Unidad de Salud Ocupacional para el control de todo lo relativo a este tema que dependerá de la División Capital Humano o quien el Banco determine.
+De acuerdo con las posibilidades financieras, dicha Unidad será dotada de los recursos humanos, materiales y tecnológicos que sean necesarios para procurar que las servidoras o los servidores alcancen el mayor nivel de bienestar físico y laboral.
+La Unidad de Salud Ocupacional le brindará a la Comisión de Salud Ocupacional toda la colaboración y asesoría técnica que necesite, y funcionará de acuerdo con lo estipulado en el Código de Trabajo, la cual le brindaría a la Comisión todo el apoyo y asesoría que requiera.

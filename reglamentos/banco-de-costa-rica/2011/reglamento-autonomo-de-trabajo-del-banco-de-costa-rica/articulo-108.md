@@ -1,0 +1,1 @@
+Artículo 108.—Normativa aplicable en materia del control de asistencia y puntualidad. Los demás aspectos relacionados con el control de la asistencia y puntualidad se regirán por la normativa aplicable en el Banco.

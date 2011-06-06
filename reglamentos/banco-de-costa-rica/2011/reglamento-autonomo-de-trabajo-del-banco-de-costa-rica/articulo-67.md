@@ -1,0 +1,1 @@
+Artículo 67.—No es jornada extraordinaria. No se considerará jornada extraordinaria la que la servidora o el servidor ocupen en subsanar los errores imputables sólo a él que fueren cometidos durante las diferentes jornadas.

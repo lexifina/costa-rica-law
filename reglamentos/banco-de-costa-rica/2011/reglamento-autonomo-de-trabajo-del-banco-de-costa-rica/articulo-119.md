@@ -1,0 +1,2 @@
+Artículo 119.—Promoción del bienestar físico, mental y social de las servidoras y de los servidores. La División Capital Humano o quien designe, por medio de la unidad de Salud Ocupacional promoverá y velará por el bienestar físico, mental y social de las servidoras y de los servidores. Realizará estudios sobre las condiciones ambientales, de salubridad y de seguridad, a efecto de gestionar la corrección o la prevención de factores de riesgo.
+Lo relativo al tema de calidad de vida y promoción de la salud se desarrollará en la normativa que emita el Banco.

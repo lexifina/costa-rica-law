@@ -1,0 +1,2 @@
+Artículo 120.—Integración de la Comisión de Salud Ocupacional. La Comisión de Salud Ocupacional está integrada por representantes de las servidoras y los servidores y representantes del Banco, que serán electos de conformidad con el procedimiento que se defina para esos efectos.
+Las funciones que le competen a esta Comisión son las que establece el artículo 288, siguientes y concordantes del Código de Trabajo y las estipuladas en el Reglamento de Comisiones de Salud Ocupacional, así como las disposiciones normativas vigentes y aplicables al Banco respecto a este tema.

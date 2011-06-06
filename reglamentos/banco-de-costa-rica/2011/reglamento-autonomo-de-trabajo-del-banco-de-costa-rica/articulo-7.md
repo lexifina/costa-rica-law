@@ -1,0 +1,2 @@
+Artículo 7º—Normativa del sistema de evaluación del desempeño. La Junta Directiva General del Banco definirá las normas que regirán el sistema de evaluación del desempeño, así como la verificación del cumplimiento de los parámetros de medición de eficiencia y productividad del personal que labora para el Banco, de conformidad con la normativa interna aplicable.
+Toda medida o acción relacionada con la evaluación del desempeño en el Banco deberá ser objetiva y equitativa.

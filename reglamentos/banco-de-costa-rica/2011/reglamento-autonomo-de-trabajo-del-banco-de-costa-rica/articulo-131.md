@@ -1,0 +1,1 @@
+Artículo 131.—Emisión de normativa complementaria. El gerente general queda autorizado para emitir la normativa complementaria que corresponda para la debida aplicación de este Reglamento, salvo cuando se trate de aspectos de competencia propia de la Junta Directiva.
