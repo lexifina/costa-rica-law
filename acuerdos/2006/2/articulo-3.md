@@ -31,7 +31,7 @@ C(350) | Resultados acumulados de ejercicios anteriores | Inciso h)
 C(360) | Resultado de periodo (importe determinado del cierre contable semestral a que están sujetas las entidades bancarias) aplica de junio a diciembre de cada año. | Inciso i)
 [C(500)-C(400)]*[1- deducciones al resultado del periodo] | Resultado del periodo menos las deducciones que por ley correspondan, según la sección IV de Los lineamientos Generales del Acuerdo SUGEF 3-06 (no incluye la cuenta 452 Participaciones legales sobre la utilidad). | Inciso i)
 D(20180) | Capital pagado preferente aceptado para capital secundario. | Inciso j)
-D(20043) | Instrumentos de deuda subordinada aceptados para capital secundario. | Inciso k)
+D(20181) (Así reforma el código anterior por acuerdo N° 009 del 6 de junio de 2011) | Instrumentos de deuda subordinada. (Así reforma el párrafo anterior por acuerdo N° 009 del 6 de junio de 2011) | Inciso k)
 C(380) | El patrimonio del Fondo de Financiamiento para el Desarrollo constituido por cada banco público, de conformidad con lo dispuesto en el artículo 32 de la Ley 8634 “Ley del Sistema de Banca para el Desarrollo”. | Inciso l)
 III. Deducciones | Artículo 8
 C(160) | Las participaciones en el capital de otras empresas, netas de estimaciones | Inciso a)
@@ -42,7 +42,7 @@ CAPITAL BASE (I-II) | Referencias SUGEF 3-06
 I. Partidas Patrimoniales y otros Rubros | Artículo 9
 C(300) | Patrimonio | Inciso a)
 C(500) - C(400) | Resultado del período | Inciso b)
-D(20043) | Instrumentos de deuda subordinada. | Inciso c)
+D(20181) (Así reforma el código anterior por acuerdo N° 009 del 6 de junio de 2011) | Instrumentos de deuda subordinada. | Inciso c)
 II. Deducciones | Artículo 9
 C(160) | Las participaciones en el capital de otras empresas, netas de estimaciones | Numeral i)
 D(20092) | Créditos otorgados a la sociedad controladora del mismo grupo o conglomerado financiero, netos de estimaciones | Numeral ii)
