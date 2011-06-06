@@ -15,3 +15,4 @@ Manual de Compras de la Empresa de Servicios Públicos de Heredia S.A
 | --- | --- | --- |
 | 1 | 2006-07-17 | la propia norma |
 | 2 | 2011-01-26 | Acuerdo 363 (2011-01-26) |
+| 3 | 2011-06-06 | Reglamento 3166 (2011-06-06) |
