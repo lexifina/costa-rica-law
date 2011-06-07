@@ -14,3 +14,4 @@ Reglamento para el establecimiento y cobro de tarifas por el incumplimiento de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-07 | la propia norma |
+| 2 | 2011-06-07 | Reglamento municipal 23 (2011-06-07) |
