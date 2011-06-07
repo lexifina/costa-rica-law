@@ -1,1 +1,1 @@
-Artículo 95.—Sanciones para quienes denuncien acoso u hostigamiento sexual falsos: Se considerarán además las sanciones establecidas en el artículo anterior, para las personas que denuncien acoso u hostigamiento sexual falsos.
+Artículo 95.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)

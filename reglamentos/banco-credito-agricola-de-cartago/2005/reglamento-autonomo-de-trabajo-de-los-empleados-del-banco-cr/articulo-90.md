@@ -1,1 +1,1 @@
-Artículo 90.—Recomendación de acciones inmediatas. El Comité, dentro de las acciones inmediatas, podrá recomendar de oficio o a solicitud del interesado, la reubicación temporal en el Banco del funcionario denunciante o del denunciado. El Gerente General definirá, en última instancia.
+Artículo 90.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)

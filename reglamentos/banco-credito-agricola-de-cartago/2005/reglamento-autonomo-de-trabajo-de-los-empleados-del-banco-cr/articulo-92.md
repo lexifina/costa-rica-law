@@ -1,1 +1,1 @@
-Artículo 92.—Justificación para el inicio del procedimiento. En la realización del proceso de investigación por parte del Comité, se llevarán a cabo actuaciones previas con el objeto de determinar con carácter preliminar, si concurren circunstancias que justifiquen la iniciación del procedimiento.
+Artículo 92.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)

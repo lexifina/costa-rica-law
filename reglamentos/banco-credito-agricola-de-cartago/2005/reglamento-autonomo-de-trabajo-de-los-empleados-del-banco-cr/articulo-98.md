@@ -1,1 +1,1 @@
-Artículo 98.—Aspectos Procedimentales. Para los aspectos procedimentales del tratamiento de cualquier caso de hostigamiento o acoso sexual, se deberá recurrir a las disposiciones existentes en el ordenamiento jurídico.
+Artículo 98.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)

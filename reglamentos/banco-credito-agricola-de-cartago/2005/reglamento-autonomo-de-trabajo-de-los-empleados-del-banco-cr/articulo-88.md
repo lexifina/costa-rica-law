@@ -1,1 +1,1 @@
-Artículo 88.—Confidencialidad de los hechos. El procedimiento deberá ser llevado a cabo resguardando la imagen de las partes y la confidencialidad de los hechos, so pena de incurrir en falta grave los trabajadores que permitieren o intervinieren una divulgación inapropiada.
+Artículo 88.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)

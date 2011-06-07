@@ -1,1 +1,1 @@
-Artículo 97.—Obligación del Banco de informar hechos a la Defensoría de los Habitantes. El Banco está en la obligación de informar sobre las denuncias de hostigamiento sexual que se reciban en las diferentes dependencias que lo conforman, así como del resultado del procedimiento que se realice, a la Defensoría de los Habitantes, según define la ley Nº 7476.
+Artículo 97.—(Derogado por el artículo 21 del "Reglamento contra el Hostigamiento Sexual", aprobado mediante sesión N°8448/11 del 7 de junio del 2011)
