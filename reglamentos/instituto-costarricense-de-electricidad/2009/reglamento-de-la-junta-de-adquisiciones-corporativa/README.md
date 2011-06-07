@@ -14,3 +14,4 @@ Reglamento de la Junta de Adquisiciones Corporativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-24 | la propia norma |
+| 2 | 2011-06-07 | Reglamento 5951 (2011-06-07) |

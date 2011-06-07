@@ -1,3 +1,3 @@
-Transitorio I.—Los procedimientos y trámites de compra de toda índole del ICE, incluyendo las adjudicaciones, impugnaciones contra el acto de adjudicación, donaciones, aprobación de cartas de crédito, líneas de crédito de corto plazo (menores de trescientos sesenta días), seguros, coberturas, financiamientos y todos aquellos asuntos que se encuentren actualmente en trámite, continuarán tramitándose ante la Junta de Adquisiciones del ICE. En el caso de las empresas los procedimientos y trámites de compra de toda índole ya iniciados, continuarán tramitándose en las instancias internas hasta su finalización.
+Transitorio I.—(Derogado en sesión N° 5951 del 7 de junio del 2011)
 2. El presente Reglamento deja sin efecto cualquier otra resolución anterior que sobre el particular se haya emitido.
 San José, 13 de agosto del 2009.
