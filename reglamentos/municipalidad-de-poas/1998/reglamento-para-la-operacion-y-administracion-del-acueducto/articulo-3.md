@@ -18,9 +18,9 @@ n) Paja de agua: La tubería y accesorios entre la red de distribución del acue
 Í) Prevista: Es la tubería y accesorios entre la red principal y el límite de la propiedad con la vía pública, que se deja instalada para una futura conexión del servicio.
 o) Ramal: La extensión o aumento de longitud de la red de distribución del acueducto que se hace necesaria para el servicio hasta la propiedad.
 p) Servicio de Acueducto: Suministro de agua potable que es prestado por la Municipalidad al abonado o usuario.
-q) Suspensión del Servicio: Privación temporal del servicio de agua potable.
+q) Suspensión del Servicio: Privación temporal o permanente del servicio de agua potable.
+(Así reformado el inciso anterior por acuerdo tomado en sesión N° 51 del 14 de abril del 2011 y definitivamente aprobado en sesión N° 58 del 7 de junio del 2011)
 r ) Uso del Agua: Es el destino principal que el abonado o la Municipalidad determine que se le da al servicio de agua potable, misma que se clasifica como:
-'
 1. Residencial
 2. Ordinaria
 3. Reproductiva
