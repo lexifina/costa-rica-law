@@ -1,1 +1,0 @@
-Artículo 2º—Alcance. Las disposiciones indicadas en este reglamento son de acatamiento obligatorio para todos los funcionarios del Banco, que tengan bajo su responsabilidad el recaudar, custodiar o administrar fondos y valores públicos.

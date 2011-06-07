@@ -1,5 +1,0 @@
-CAPÍTULO II
-Disposiciones generales
-Artículo 4º—De la obligatoriedad de rendir pólizas de fidelidad. En acatamiento de lo establecido en el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos, todo encargado del Banco que por sus obligaciones tenga la responsabilidad de recaudar, custodiar o administrar fondos y valores públicos, debe rendir una póliza de fidelidad con cargo a su propio peculio a favor del Banco, para asegurar el correcto cumplimiento de sus deberes y obligaciones.
-El objeto de amparo de esta póliza es el cubrir eventuales pérdidas monetarias que sufra el Banco, cuando en la prestación de los servicios recaude o custodie fondos públicos, siempre que estas pérdidas sean ocasionadas por el asegurado y exista dolo o culpa atribuible al fiador, cometido durante la vigencia de la póliza. La póliza de fidelidad tiene la característica de ser de carácter personal.
-Esta póliza deberá pactarse entre el funcionario y el ente asegurador respectivo. Los montos de las coberturas se asignarán de acuerdo al puesto del funcionario y a la clasificación que se presenta en este documento.
