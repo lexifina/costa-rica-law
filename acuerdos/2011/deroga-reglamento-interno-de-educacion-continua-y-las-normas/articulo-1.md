@@ -1,0 +1,3 @@
+COLEGIO DE MICROBIÓLOGOS Y QUÍMICOS
+CLÍNICOS DE COSTA RICA
+El Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, informa que la asamblea general extraordinaria, celebrada el pasado 21 de mayo del 2011, acordó: Dejar sin efecto el Reglamento Interno de Educación Continua y la Norma para la Inscripción de los Establecimientos de Microbiología y Química Clínica, ambos publicados en La Gaceta Nº 24 del 3 de febrero del 2011, en espera de su revisión para modificación. Tales reglamentos serán estudiados por las Comisiones nombradas en el seno de la asamblea.—San José, 31 de mayo del 2011.—
