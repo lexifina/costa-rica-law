@@ -1,0 +1,3 @@
+CAPÍTULO III
+Razón de cierre de libros
+Artículo 13.—Solicitud de cierre de libro: La Auditoría Interna suministrará a cada dependencia que requiera de la razón de cierre de un libro, el formulario denominado “Solicitud Razón de Cierre de Libros Legales”, la cual deberá ser presentada junto con el libro a cerrar, conteniendo al menos, los siguientes datos: fecha de solicitud, tipo, modalidad y tomo del libro a cerrar, razón de uso, la cantidad de folios que contiene el libro, la numeración de los folios, el nombre, cargo, número de cédula, oficina y firma del funcionario responsable de la custodia y uso del libro.
