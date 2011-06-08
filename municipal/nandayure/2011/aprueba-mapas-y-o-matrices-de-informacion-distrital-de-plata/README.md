@@ -14,3 +14,4 @@ Aprueba mapas y/o matrices de información distrital de Plataforma de Valores de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-01 | la propia norma |
+| 2 | 2011-06-08 | Acuerdo municipal 0 (2011-06-08) |
