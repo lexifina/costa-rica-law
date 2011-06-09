@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de aplicación. Comprende las disposiciones de aplicación general, para todos aquellos (as) servidores (as) públicos (as) que presten servicios en la Municipalidad de Orotina o a nombre y por cuenta de esta, tanto para los (las) que estén laborando actualmente, como para los (las) que en el futuro ingresen a la Institución.

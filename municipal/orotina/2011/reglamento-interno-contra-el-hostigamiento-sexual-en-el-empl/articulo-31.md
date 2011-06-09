@@ -1,0 +1,1 @@
+Artículo 31.—De la presentación del alegato de conclusiones. Transcurrido el plazo para evacuar la prueba, en la misma audiencia oral y privada el órgano director concederá de forma inmediata espacio para el alegato oral de conclusiones.

@@ -1,0 +1,1 @@
+Artículo 11.—De los recursos. Las partes tienen derecho a recurrir los actos administrativos, conforme a la indicado en el Código Municipal (artículos 153, 156, 161 y 162), donde se otorgan 5 días para la presentación de los recursos.

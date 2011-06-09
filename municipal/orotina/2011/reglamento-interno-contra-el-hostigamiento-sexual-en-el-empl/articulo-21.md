@@ -1,0 +1,2 @@
+Artículo 21.—De las garantías procesales: En el procedimiento se garantizará el debido proceso y se guardará total confidencialidad en el trámite del mismo hasta que se dé la resolución correspondiente en el caso.
+Cualquier infidencia de un integrante del Órgano Director y de los testigos, con la que se viole la confidencialidad y el secreto del proceso, se considerará como falta grave, la cual será debidamente acreditada y evidenciada para proceder con el despido sin responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 14.—De la divulgación. La Municipalidad de Orotina, mantendrá una constante información a los (las) funcionarios (as), tanto de la Ley contra el hostigamiento sexual en el empleo y la docencia, como de este Reglamento Interno, por medio del departamento de Recursos Humanos, a través de circulares, boletines informativos y panfletos divulgativos.

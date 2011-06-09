@@ -1,0 +1,3 @@
+Artículo 29.—De la valoración de la prueba y de la importancia de las presunciones e indicios. El Órgano Director del procedimiento deberá evaluar todas las circunstancias que rodearon el hecho denunciado.
+Ante la carencia de fundamento probatorio directo, deberá recurrirse a la prueba indiciaria, pero sin valorarse en forma aislada, con observancia del indubio pro víctima, lo que implica que en caso de duda, se interpretará en favor de la víctima.
+Cualquier valoración sobre la vida personal de la persona denunciante será improcedente, por ende queda prohibido considerar antecedentes del ejercicio sexual de dicha persona.

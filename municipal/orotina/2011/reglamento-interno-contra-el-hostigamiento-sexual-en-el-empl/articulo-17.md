@@ -1,0 +1,1 @@
+Artículo 17.—De la subsanación de defectos. Los defectos u omisiones que pudiera Contener la denuncia, no darán lugar para su rechazo, por lo que pueden ser requeridos posteriormente por quien recibe la denuncia.

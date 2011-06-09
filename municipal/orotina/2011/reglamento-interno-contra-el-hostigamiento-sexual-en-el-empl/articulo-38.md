@@ -1,0 +1,1 @@
+Artículo 38.—Modificaciones. Cualquier modificación en este Reglamento, será presentada ante el Concejo Municipal en aplicación del artículo 13 inciso C) del Código Municipal, la que posteriormente a su aprobación, será publicada.

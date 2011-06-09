@@ -1,0 +1,2 @@
+Artículo 32.—Del informe final del Órgano Director. Posterior a la audiencia oral y privada, el órgano director analizará el expediente y remitirá el informe respectivo al jerarca, en un plazo de 12 días hábiles.
+Dicho informe contendrá el detalle de la prueba conocida en el procedimiento y las conclusiones del mismo. Deberá omitirse cualquier recomendación respecto de las acciones a seguir. El informe se notificará a las partes involucradas, en el lugar señalado para atenderlas, en estricta confidencialidad.

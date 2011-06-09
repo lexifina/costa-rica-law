@@ -1,0 +1,1 @@
+Artículo 30.—Del deber de colaboración de las diferentes dependencias Municipales. Las dependencias municipales, cuya colaboración sea solicitada por el órgano director, para la investigación de una denuncia por hostigamiento sexual, están en la obligación de prestarla. La negativa injustificada será considerada como una falta grave.
