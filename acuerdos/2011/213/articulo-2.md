@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. La CIMAD tiene como objetivo principal garantizar el principio de igualdad constitucional, el acatamiento institucional de la normativa en la materia y garantizar que se brinden las mismas oportunidades y la no discriminación de las personas con discapacidad, sean estas clientes internos o externos de la Institución.

@@ -1,0 +1,1 @@
+Artículo 9º—Quejas. La CIMAD-MSP recibirá las quejas o inconformidades que se presenten en la (OAMD-MSP), respecto de aquellos asuntos que afecten la accesibilidad o los derechos fundamentales de las personas con discapacidad, y canalizará el asunto adecuadamente, a fin de coadyuvar en la solución del problema.

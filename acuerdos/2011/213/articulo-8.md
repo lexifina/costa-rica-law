@@ -1,0 +1,2 @@
+Artículo 8º—Disponibilidad de tiempo. Los miembros de la CIMAD-MSP deberán asistir a las sesiones y atender diligencias o actividades propias de la Comisión; para ello, deberán disponer del tiempo necesario.
+La Dirección General Administrativa Financiera gestionará ante la dependencia para la cual labora el funcionario miembro de la CIMAD-MSP, un permiso de diez horas laborales al mes, a fin de asegurar el trabajo efectivo, sin perjuicio del cumplimiento de las funciones propias del cargo que el funcionario desempeñe en la Institución.

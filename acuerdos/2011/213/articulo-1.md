@@ -1,0 +1,17 @@
+Nº 2011-213-MSP
+Creación de la Comisión Institucional en Materia de
+Discapacidad del Ministerio de Seguridad Pública
+(CIMAD-MSP)
+EL MINISTRO DE SEGURIDAD PÚBLICA
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política y los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978; la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, N° 7600, del 29 de mayo de 1996; Ley Aprobación de la Convención sobre los Derechos de las Personas con Discapacidad y su Protocolo, N° 8661, del 07 de agosto del 2008; Ley Inclusión y Protección Laboral de las personas con discapacidad en el Sector Público, Ley N° 8862, del 16 de setiembre del 2010; y la Directriz Presidencial Nº 27, publicada en La Gaceta 21 de 30 de enero del 2001.
+Considerando:
+1º—Que los diversos tratados internacionales sobre derechos humanos suscritos por Costa Rica aseguran a las personas en condición de discapacidad el goce de sus derechos y libertades fundamentales, sin discriminación de ningún tipo, lo que incluye su acceso y participación efectiva en el trabajo, salud, educación y vida cultural, bajo el principio de igualdad de oportunidades, en armonía con el principio del derecho al trabajo consagrado en el numeral 56 de la Constitución Política.
+2º—Que el artículo 1 de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Nº 7600 del 29 de mayo de 1996, declara de interés público el desarrollo integral de la población con discapacidad, en iguales condiciones de calidad, oportunidad, derechos y deberes que el resto de los habitantes. Por su parte, el artículo 23 de la misma Ley así como el Decreto Ejecutivo Nº 26831-MP del 20 de abril de 1998 que reglamenta la Ley, establece que el Estado debe garantizar que las personas con discapacidad, tanto en zonas rurales como urbanas, disfruten el derecho de un empleo adecuado a sus condiciones y necesidades personales.
+3º—Que la Directriz Presidencial Nº 27 del 30 de enero del 2001 fija las políticas nacionales en materia de discapacidad y le asigna responsabilidades a todas las instituciones públicas, en materia de empleo de la población con discapacidad. Asimismo, dispone que cada institución pública deberá conformar y consolidar la Comisión Institucional en Materia de Discapacidad, cuyo fin es la ejecución y cumplimiento de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad y de la Directriz Presidencial Nº 27.
+4º—Que resulta de interés regular no sólo la implementación de medidas a lo interno del Ministerio para facilitar el desarrollo integral de las personas con discapacidad, sino también la conformación y funcionamiento permanente de la Comisión Institucional en Materia de Discapacidad. Por tanto,
+ACUERDA:
+CREACIÓN DE LA COMISIÓN INSTITUCIONAL EN
+MATERIA DE DISCAPACIDAD DEL MINISTERIO
+DE SEGURIDAD PÚBLICA (CIMAD - MSP)
+Artículo 1º—Creación de la Comisión. Créase la Comisión Institucional en Materia de Discapacidad del Ministerio de Seguridad Pública, en adelante “CIMAD - MSP”, que será la encargada de coordinar e impulsar el cumplimiento de la normativa vigente sobre accesibilidad para personas en condición de discapacidad en el Ministerio de Seguridad Pública, y de elaborar y ejecutar una política integral en materia de discapacidad.
+La CIMAD-MSP dará seguimiento al trabajo de las subcomisiones que de ella deriven.
