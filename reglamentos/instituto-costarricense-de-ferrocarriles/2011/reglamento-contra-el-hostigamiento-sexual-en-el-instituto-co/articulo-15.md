@@ -1,0 +1,2 @@
+Artículo 15.—Sobre los principios que informan del procedimiento. Asimismo, serán de aplicación obligatoria los principios específicos de confidencialidad que implica el deber de las partes de procedimiento y sus representantes, las personas integrantes del órgano instructor y decisor, las y los testigos y el resto de personas que tuvieron contacto con el proceso, de no dar a conocer la identidad de la o las personas denunciantes ni denunciadas.
+De igual manera, regirá el principio pro víctima el cual implica que en caso de duda se interpretará en favor de la víctima.
