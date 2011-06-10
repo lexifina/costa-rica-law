@@ -1,0 +1,1 @@
+Artículo 15.—Vacaciones y permisos del Auditor Interno. Las vacaciones, y permisos del Auditor Interno deberán ser aprobados por el Concejo Municipal. Sin embargo, en los casos de permisos y vacaciones eventuales o urgentes, cuando al Auditor se le presenten situaciones especiales o imprevistas, podrán ser autorizados por el Alcalde Municipal, o por quien ostente esta condición.
