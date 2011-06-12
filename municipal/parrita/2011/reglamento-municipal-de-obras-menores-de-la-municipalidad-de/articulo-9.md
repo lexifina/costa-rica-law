@@ -1,0 +1,3 @@
+CAPÍTULO III
+Reparaciones Menores
+Artículo 9º—Se consideran Reparaciones Menores, todas aquellas obras domésticas de carácter no estructural y para las cuales el buen conocimiento de un maestro de obras es suficiente para llevarlas a cabo, el interesado, dueño de la propiedad o autorizado por este presentará un croquis explicativo y presupuesto detallado de materiales y mano de obra junto con la información de la solicitud, este tipo de obra no puede sobrepasar el monto equivalente a 9 salarios mínimos de un trabajador no especializado conforme al Decreto Nacional de Salarios Mínimos que se encuentre vigente.
