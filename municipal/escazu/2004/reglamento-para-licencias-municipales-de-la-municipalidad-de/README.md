@@ -16,3 +16,4 @@ Reglamento para Licencias Municipales de la Municipalidad de Escazú.
 | 1 | 2004-07-06 | la propia norma |
 | 2 | 2007-12-03 | Reglamento municipal 84 (2007-12-03) |
 | 3 | 2010-04-05 | Reglamento municipal 206 (2010-04-05) |
+| 4 | 2011-06-13 | Reglamento municipal 59 (2011-06-13) |
