@@ -1,0 +1,5 @@
+Artículo 2º—La comisión tendrá dentro de sus funciones:
+a) Monitorear y asesorar técnicamente los trámites en infraestructura de telecomunicaciones, cuya competencia legal le corresponde al Poder Ejecutivo, como lo constituyen la viabilidad ambiental, el visado de altura y lo relacionado con el tema de salud.
+b) Brindar una asesoría técnica permanente en temas de índole municipal, control y ordenamiento urbano, zonificación, paisaje urbano, con el fin de fortalecer las funciones de fiscalización municipal.
+Esta asesoría tendrá como objetivo brindar a las Municipalidades insumes técnicos y legales necesarios para adoptar normas claras que permitan hacer partícipes a los gobiernos locales, como administradores de los intereses cantonales y como responsables directos del desarrollo de las telecomunicaciones del país, garantizando de esta forma un desarrollo ordenado y eficiente del despliegue de la infraestructura y posibilitar el acceso de más y mejores servicios a los ciudadanos del cantón.
+c) Servir de enlace sectorial con los operadores.
