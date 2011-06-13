@@ -1,1 +1,1 @@
-Artículo 8º—No podrán formar parte de la Junta Directiva del Comité Cantonal los regidores y síndicos, el alcalde, los alcaldes suplentes, los concejales de distrito, el auditor, el subauditor, el tesorero, el contador y personal de la Municipalidad y del mismo Comité, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive.
+Artículo 8º—(Mediante sesión ordinaria N° 093-2011 del 13 de junio del 2011, se ordena derogar este numeral y ajustarlo a lo normado por el 167 del Código Municipal. )
