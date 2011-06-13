@@ -15,3 +15,4 @@ Reglamento para el funcionamiento de los cementerios del cantón de Escazú y su
 | --- | --- | --- |
 | 1 | 2002-08-22 | la propia norma |
 | 2 | 2007-10-29 | Reglamento municipal 79 (2007-10-29) |
+| 3 | 2011-06-13 | Reglamento municipal 59 (2011-06-13) |
