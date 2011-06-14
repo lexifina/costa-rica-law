@@ -14,3 +14,4 @@ Constitución del Sector Recursos Naturales, Energía y Minas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-07-14 | la propia norma |
+| 2 | 2011-06-14 | Decreto Ejecutivo 36646 (2011-06-14) |

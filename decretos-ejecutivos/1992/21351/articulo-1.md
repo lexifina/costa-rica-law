@@ -1,4 +1,6 @@
+(Derogado)
 N° 21351
+(Este decreto fue derogado por el artículo 4° del decreto ejecutivo N° 36646 del 14 de junio del 2011)
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE RECURSOS NATURALES, ENERGIA Y MINAS Y DE PLANIFICACION NACIONAL Y POLITICA ECONOMICA,
 En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 de la Constitución Política, en la Ley de Planificación Nacional N° 5525 del 2 de mayo de 1974, en la Ley N° 7152 del 21 de junio de 1990 y en la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978,
