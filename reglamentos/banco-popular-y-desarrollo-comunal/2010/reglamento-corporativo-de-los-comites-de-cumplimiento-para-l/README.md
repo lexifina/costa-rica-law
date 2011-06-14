@@ -14,3 +14,4 @@ Reglamento Corporativo de los Comités de Cumplimiento, para la Prevención y Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-24 | la propia norma |
+| 2 | 2011-06-14 | Reglamento 4871 (2011-06-14) |
