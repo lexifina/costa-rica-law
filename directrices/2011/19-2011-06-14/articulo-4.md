@@ -1,0 +1,3 @@
+Artículo 4º—Reconocimiento previo
+Declarada la emergencia y de previo a obtener los listados definitivos de los Beneficiarios, el BANHVI debe consultar con las Entidades Autorizadas del Sistema, la disponibilidad de soluciones de vivienda existentes para entrega inmediata, se trate de viviendas nuevas sin adjudicar, viviendas recuperadas por incumplimiento de obligaciones, o viviendas abandonadas por beneficiarios anteriores.
+La información recabada será remitida a la CNE con el fin de agilizar los trámites una vez identificados debidamente a los beneficiarios y establecido el nexo de causalidad con la emergencia.
