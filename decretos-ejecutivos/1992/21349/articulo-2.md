@@ -1,2 +1,0 @@
-Artículo 2°-El Cantón de Sarapiquí constituirá una Subregión denominada "Subregión Sarapiquí", que formará parte de la Región de Heredia. Los órganos y entes públicos cuyas actividades tengan incidencia en la Subregión Sarapiquí, deberán coordinar sus políticas y estrategias tomando en consideración las particulares condiciones de desarrollo de la zona y las necesidades comunes de la población.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 26584 del 16 de diciembre de 1997).

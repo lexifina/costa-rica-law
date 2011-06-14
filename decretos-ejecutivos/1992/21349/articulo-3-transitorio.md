@@ -1,1 +1,0 @@
-Transitorio tercero: La instalación del primer Consejo Provincial de Heredia será hecha por el presidente de la República a propuesta del Ministerio de Planificación Nacional y Política Económica. Para la determinación de los miembros del Consejo a que aluden los incisos ch) y d) del artículo 4° de este decreto, MIDEPLAN deberá tomar las providencias del caso.

@@ -1,1 +1,0 @@
-Transitorio segundo: La sede del Consejo Provincial será la Gobernación de Provincia de Heredia, la que deberá prestarle sus instalaciones y la plena colaboración a las instancias provinciales que por este Decreto se crean.
