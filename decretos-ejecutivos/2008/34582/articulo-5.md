@@ -1,18 +1,17 @@
-Artículo 5º—Ministros Rectores. Corresponderá a los Ministros Rectores, dirigir y coordinar la realización de las estrategias y las políticas públicas sectoriales de la administración tanto central como descentralizada. Para ello se establecen las siguientes rectorías:
-a) El Sector Social y de Lucha Contra la Pobreza estará bajo la rectoría del Ministro de Salud;
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34741 del 10 de setiembre de 2008).
-b) El Sector Productivo estará bajo la rectoría de los Ministros de Agricultura y Ganadería y de Economía, Industria y Comercio;
-c) El Sector Educativo estará bajo la rectoría del Ministro de Educación Pública;
-d) El Sector Salud estará bajo la rectoría del Ministro de Salud;
-e) El Sector Ambiente, Energía y Telecomunicaciones estará bajo la rectoría del Ministro de Ambiente y Energía;
-f) El Sector Financiero estará bajo la rectoría del Ministro de Hacienda;
-g) El Sector Cultural estará bajo la rectoría del Ministro de Cultura, Juventud y Deportes;
-h) El Sector Infraestructura y Transportes estará bajo la rectoría del Ministro de Obras Públicas y Transportes;
-i) El Sector Seguridad Ciudadana y Prevención del Delito estará bajo la rectoría de los Ministros de de Justicia y Gracia, de Seguridad Pública y de Gobernación;
-j) El Sector Ciencia y Tecnología estará bajo la rectoría del Ministro de Ciencia y Tecnología;
-k) El Sector Trabajo y Seguridad Social estará bajo la rectoría del Ministro de Trabajo y Seguridad Social;
-1) El Sector Comercio Exterior estará bajo la rectoría del Ministro de Comercio Exterior;
-m) El Sector Turismo estará bajo la rectoría del Ministro sin cartera de Turismo;
-n) El Sector Política Exterior estará bajo la rectoría del Ministro de Relaciones Exteriores y Culto;
-o) El Sector Coordinación Gubernamental estará bajo la rectoría de los Ministros de la Presidencia y de Planificación Nacional y Política Económica, conjuntamente con el Ministro sin cartera de Coordinación Interinstitucional; y
-p) El Sector Política Monetaria y Supervisión Financiera atenderá las políticas y lineamientos emitidos por el Banco Central.
+Artículo 5º- Ministros Rectores. Corresponderá a los Ministros Rectores dirigir y coordinar la realización de las políticas y estrategias públicas sectoriales de la Administración tanto Central como Descentralizada. Para ello se establecen las siguientes rectorías:
+a) El Sector Ambiente, Energía y Telecomunicaciones estará bajo la rectoría de la o el Ministro de Ambiente, Energía y Telecomunicaciones;
+b) El Sector Bienestar Social y Familia estará bajo la rectoría de la o el Ministro de Bienestar Social y Familia;
+c) El Sector Ciencia, Tecnología e Innovación estará bajo la rectoría de la o el Ministro de Ciencia y Tecnología;
+d) El Sector Comercio Exterior estará bajo la rectoría de la o el Ministro de Comercio Exterior;
+e) El Sector Cultura estará bajo la rectoría de la o el Ministro de Cultura y Juventud;
+f) El Sector Educativo estará bajo la rectoría de la o el Ministro de Educación Pública;
+g) El Sector Financiero, Monetario y Supervisión estará bajo la rectoría de la o el Ministro de Hacienda;
+h) El Sector Ordenamiento Territorial y Vivienda estará bajo la rectoría de la o el Ministro de Vivienda y Asentamientos Humanos;
+i) El Sector Productivo estará bajo la rectoría de la o el Ministro de Economía, Industria y Comercio y de la o el Ministro de Agricultura y Ganadería;
+j) El Sector Salud estará bajo la rectoría de la o el Ministro de Salud;
+k) El Sector Seguridad Ciudadana y Justicia estará bajo la rectoría de la o el Ministro de Seguridad Pública y de la o el Ministro de Justicia y Paz;
+l) El Sector Trabajo estará bajo la rectoría de la o el Ministro de Trabajo y Seguridad Social;
+m) El Sector Transporte estará bajo la rectoría de la o el Ministro de Obras Públicas y Transportes; y
+n) El Sector Turismo estará bajo la rectoría de la o el Ministro de Turismo.
+El Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) actuará transversalmente en actividades de coordinación, asesoría y apoyo como órgano rector del Sistema Nacional de Planificación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36646 del 14 de junio del 2011)

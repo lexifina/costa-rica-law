@@ -1,7 +1,6 @@
-Artículo 19.—Integración: Los Consejos Sectoriales estarán integrados por:
-a) El Ministro Rector respectivo, quien lo presidirá. Cuando exista más de un Ministro Rector por sector, por acuerdo decidirán quién preside.
+Artículo 19.- Integración de los Consejos Sectoriales. Los Consejos Sectoriales estarán integrados por:
+a) El Ministro Rector respectivo, quien lo presidirá. En caso de ser varios los Ministros Rectores de un sector, estos acordarán la presidencia del respectivo Consejo.
 b) El jerarca de cada institución perteneciente al sector o su representante.
-c) El jerarca de la respectiva Secretaría Sectorial.
-El Ministro Rector podrá convocar según se requiera, a ciudadanos, asesores o representantes municipales, cuando lo considere oportuno.
-Lo estipulado en este artículo no aplica para la conformación del Consejo Sectorial de la Rectoría del Sector Social y Lucha Contra La Pobreza, el cual estará integrado por los Ministros Rectores del Sector Social, Sector Salud, Sector Educativo, Sector Trabajo y Seguridad Social, la Ministra de Vivienda y Asentamientos Humanos y el Presidente Ejecutivo del Instituto Mixto de Ayuda Social. La Ministra Rectora del Sector Social presidirá de manera exclusiva y permanente el Consejo Sectorial de la Rectoría del Sector Social y Lucha Contra La Pobreza, y además podrá convocar según se requiera a ciudadanos, asesores o representantes municipales, el jerarca de la respectiva Secretaría Sectorial, Ministros y/o a los Jerarcas de las instituciones del Sector Social y Lucha Contra La Pobreza cuando así lo considere oportuno. Para su funcionamiento el Consejo Sectorial de la Rectoría del Sector Social y Lucha Contra La Pobreza tendrá como funciones las que se establecen en el artículo 20 del presente Reglamento y cualesquiera otras que se designen en reglamentos o directrices emitidos por el Presidente de la República junto con la Ministra Rectora.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34986 del 16 de diciembre de 2008)
+c) El representante de la respectiva Secretaría Sectorial.
+Los Ministros Rectores podrán convocar a otros jerarcas institucionales ajenos al respectivo Sector así como ciudadanos, asesores y representantes municipales, cuando lo consideren oportuno.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36646 del 14 de junio del 2011)

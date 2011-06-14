@@ -1,0 +1,2 @@
+Artículo 29.- Autorización para facilitar recursos. Quedan autorizadas todas las instituciones o entidades que conforman el Poder Ejecutivo, mediante la firma de los instrumentos correspondientes, y en apego al ordenamiento jurídico, a facilitar a las Secretarías Sectoriales los recursos humanos, físicos y demás insumos necesarios, para que puedan cumplir adecuada y oportunamente sus funciones.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 36646 del 14 de junio del 2011)
