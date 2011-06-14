@@ -1,2 +1,0 @@
-Transitorio único: En un plazo de seis meses, todas las instituciones públicas deberán presentar ante los Ministros de Planificación Nacional y Política Económica y de la Presidencia, un informe de las acciones que se pondrán en práctica con el propósito de reordenar su actividad en la zona.
-Dado en la Presidencia de la República.-San José, a los dieciséis días del mes de diciembre de mil novecientos noventa y siete.
