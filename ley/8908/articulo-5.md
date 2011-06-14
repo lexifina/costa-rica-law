@@ -24,5 +24,6 @@ INDICADORES DE RESULTADOS:
 4. Pocentaje del total de actividades educativas en derechos humanos, programadas en el año que son impartidas por la Defensoría de los Habitantes a facilitadores, grupos organizados y poblaciones en condición de vulnerabilidad.
 | 0.00 | 20.00 | 30.00 | 30.00 | 20.00
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 36 a La Gaceta N° 244 del 16 de diciembre del 2010)
-(Modificado por el artículo 1° del decreto ejecutivo N° 36484 del 4 de marzo de 2011)
-(Modificado por el artículo 1° del decreto ejecutivo N° 36594 del 16 de mayo de 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36484 del 4 de marzo del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36594 del 16 de mayo del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36645 del 14 de junio del 2011)
