@@ -1,0 +1,1 @@
+Artículo 4º—Se establece un fondo fijo para Caja Chica, para el servicio de la Municipalidad de Talamanca, cuyo monto será de ¢1.000.000,00 (un millón de colones) y deberá contar con la aprobación del Concejo Municipal.

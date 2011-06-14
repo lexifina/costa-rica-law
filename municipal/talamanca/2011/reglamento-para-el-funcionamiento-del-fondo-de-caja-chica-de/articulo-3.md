@@ -1,0 +1,1 @@
+Artículo 3º—Funcionará a través de un formulario denominado “Comprobante de Vale de Caja Chica”, para la adquisición de bienes y/o servicios, las compras se efectuarán con dinero en efectivo u otro medio aceptado en el comercio local.
