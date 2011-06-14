@@ -1,1 +1,0 @@
-Artículo 5°—La Comisión establecerá sus propios procedimientos y normas de trabajo y llevará a cabo sus actividades de acuerdo con un programa que someterá a la aprobación de la Oficina de Planificación Nacional, la cual ejercerá la secretaría técnica de la Comisión, a través de su División de Planificación Regional y Urbana.
