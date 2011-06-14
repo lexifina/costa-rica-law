@@ -14,3 +14,4 @@ Modifica para la Refinadora Costarricense de Petróleo, el gasto presupuestario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-20 | la propia norma |
+| 2 | 2011-06-14 | Decreto Ejecutivo 36650 (2011-06-14) |
