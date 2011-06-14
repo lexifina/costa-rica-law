@@ -1,0 +1,1 @@
+Artículo 21.- El prestador de servicio público de transporte de combustible, durante todo el plazo de la concesión está obligado a reportar semestralmente sus clientes, aportando la lista respectiva a la DGTCC, a fin de verificar que estén debidamente autorizados por MINAET.

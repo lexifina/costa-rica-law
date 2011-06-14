@@ -1,0 +1,1 @@
+Artículo 29.- Las unidades de transporte deberán transportar exclusivamente los combustibles establecidos en la autorización de prestación de servicio público y de conformidad con las rutas e itinerarios establecidos por la Dirección General de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes.

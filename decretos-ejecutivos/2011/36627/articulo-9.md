@@ -1,0 +1,1 @@
+Artículo 9°.- A partir de la entrada en vigencia del presente reglamento, todas las unidades de transporte deberán someterse a las pruebas técnicas descritas en el Cuadro Nº 1 del artículo 7° del mismo.

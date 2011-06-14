@@ -1,0 +1,1 @@
+Artículo 23.- Para el otorgamiento de toda nueva autorización de servicio público, se exigirá que la unidad de transporte no exceda una edad mayor a cinco años de fabricación al momento de presentar la solicitud del permiso de operación.

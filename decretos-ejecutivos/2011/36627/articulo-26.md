@@ -1,0 +1,1 @@
+Artículo 26.- En el caso de las unidades de transporte articuladas, y que el solicitante requiera disponer de un tractocamión sustituto para remolcar el tanque autorizado, deberá cumplir con los requisitos indicados en el artículo 6º del presente reglamento, según corresponda.

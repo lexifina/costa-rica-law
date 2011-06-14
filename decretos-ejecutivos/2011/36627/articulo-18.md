@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De las medidas de Operación y Seguridad durante
+la descarga de combustibles
+Artículo 18.- Antes y durante la descarga, el operador de la unidad de transporte y la persona responsable de la estación de servicio, planta envasadora de gas o el tanque de autoconsumo, deberán cumplir con las medidas de seguridad y las condiciones establecidas en la normativa técnica indicada en el artículo 4 de este reglamento, así como con lo establecido en el Decreto Ejecutivo N° 30131-MINAE-S, “Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos”, publicado en La Gaceta N° 43, del 01 de marzo del 2002 y en el Decreto Ejecutivo N° 24715 MOPT-MEIC-S, publicado en La Gaceta N° 207, del 01 de noviembre de 1995, “Reglamento para el Transporte Terrestre de Productos Peligrosos”.

@@ -1,0 +1,1 @@
+Artículo 10.- Para el otorgamiento de los permisos de operación y la autorización de la prestación del servicio público se tomará en cuenta el último dígito del número de placa de la unidad de transporte. En el caso de las unidades de transporte articuladas, se tomará en cuenta el último dígito del número de placa de la cisterna.

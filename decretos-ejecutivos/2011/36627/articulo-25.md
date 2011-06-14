@@ -1,0 +1,1 @@
+Artículo 25.- Todas las unidades de transporte de combustible, deberán contar en la parte trasera del tanque o cajón con un rótulo, con un tamaño por letra no menor a diez centímetros, con la leyenda "EN CASO DE EMERGENCIA LLAMAR AL 911".
