@@ -1,1 +1,0 @@
-Artículo 7°-La Secretaría Ejecutiva de la Comisión Consultiva le corresponderá al Ministerio de Industria, Energía y Minas, a través de la Secretaria Ejecutiva de Planificación del Subsector de Industria.

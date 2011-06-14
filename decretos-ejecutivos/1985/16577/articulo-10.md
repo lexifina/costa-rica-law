@@ -1,1 +1,0 @@
-Artículo 10.-Toda disposición que se proponga y que incida en el desarrollo de la Rama Industrial Metalmecánica deberá someterse a estudio de la Comisión y ésta deberá pronunciarse elevando su recomendación al Ministro Rector.
