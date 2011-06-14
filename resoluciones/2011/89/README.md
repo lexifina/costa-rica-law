@@ -14,3 +14,4 @@ Modifica Resolución RES-DGA-252-2010 "Comunica actualización de horarios de at
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-17 | la propia norma |
+| 2 | 2011-06-14 | Resolución 127 (2011-06-14) |
