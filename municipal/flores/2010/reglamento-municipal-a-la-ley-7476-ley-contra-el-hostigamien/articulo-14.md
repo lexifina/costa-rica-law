@@ -1,0 +1,1 @@
+Artículo 14.—Sanciones. Las sanciones por hostigamiento o acoso sexual se aplicarán según la naturaleza y gravedad de la falta, de la siguiente manera. Amonestación escrita, suspensión sin goce de salario hasta por quince días o despido sin responsabilidad patronal, ello sin perjuicio de plantear la denuncia correspondiente de acuerdo con lo que proceda.

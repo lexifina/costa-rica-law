@@ -1,2 +1,1 @@
-Artículo 13.—Una vez aprobado por el Concejo Municipal, este Reglamento entrará en vigencia a partir de la publicación en el Diario Oficial La Gaceta.
-Flores, 16 de agosto del 2010.
+Artículo 13.—Sanción por incumplimiento. La Alcaldía y los funcionarios o funcionarias a los que se le encomiende alguna participación en las investigaciones de acoso sexual, deberán garantizar el fiel cumplimiento de las presentes disposiciones, bajo pena de constituir falta grave por incumplimiento de responsabilidades de acuerdo a lo establecido en los artículos seiscientos ocho y siguientes del Código de Trabajo.

@@ -14,3 +14,4 @@ Reglamento Municipal a la Ley 7476, Ley contra el hostigamiento sexual en el emp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-03 | la propia norma |
+| 2 | 2011-06-14 | Reglamento municipal 84 (2011-06-14) |

@@ -1,0 +1,1 @@
+Artículo 18.—Vigencia. El presente cuerpo normativo regirá a partir de su publicación en el Diario Oficial La Gaceta, dejando sin valor ni efecto legal cualquier otra disposición reglamentaria municipal que se le oponga.
