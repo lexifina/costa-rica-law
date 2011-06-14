@@ -1,1 +1,0 @@
-Artículo 39.-El Programa de Gobierno del Sector Economía y Comercio deberá ser promulgado durante el primer mes de la gestión del nuevo Gobierno, por decreto ejecutivo y constituirá la base para la elaboración y promulgación posterior del Plan Nacional de Desarrollo, así como de los programas o planes sectoriales respectivos según se indica adelante.

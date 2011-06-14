@@ -1,1 +1,0 @@
-Artículo 40.-Los programas o planes de desarrollo del Sector Economía y Comercio se publicará mediante Decreto Ejecutivo, en el Diario Oficial, en el mes de febrero siguiente al cambio de Gobierno y se orientará por la misma vía cuando sea requerido.

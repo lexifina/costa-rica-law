@@ -1,2 +1,0 @@
-Artículo 21.-La Secretaría Ejecutiva estará a cargo de un Director nombrado y removido por el Ministro Sectorial de Economía y Comercio, previa consulta con los demás miembros del Consejo Nacional Sectorial.
-El Director estará subordinado al Ministro de Economía y Comercio y actuará asimismo como Secretario Ejecutivo del respectivo Consejo Nacional Sectorial, participando en sus sesiones con derecho a voz, siendo requisito obligatorio que su dedicación al cargo sea de tiempo completo.

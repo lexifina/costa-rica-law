@@ -1,1 +1,0 @@
-Artículo 34.-Al Comité Sectorial Regional le corresponderá como tal, programar y coordinar las actividades del Sector Economía y Comercio en la región en apoyo tanto del Ministro Sectorial como del Consejo Regional de Desarrollo respectivos.
