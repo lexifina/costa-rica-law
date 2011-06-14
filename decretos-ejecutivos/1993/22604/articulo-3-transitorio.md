@@ -1,1 +1,0 @@
-TRANSITORIO TERCERO: La instalación del primer Consejo Provincial de Cartago será hecha por el Presidente de la República a propuesta del Ministerio de Planificación Nacional y Política Económica para la determinación de los miembros del Consejo a que aluden los incisos ch) y d) del artículo 4 de este decreto, MIDEPLAN deberá tomar las providencias del caso.

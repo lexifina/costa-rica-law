@@ -1,1 +1,0 @@
-Artículo 12.—El plan de desarrollo de la Provincia de Cartago será instrumental básico de los planes nacionales de desarrollo; Las instituciones públicas queda obligadas a tomar en cuenta los planes de desarrollo provincial dentro de su programación de corto, mediano y largo plazo.
