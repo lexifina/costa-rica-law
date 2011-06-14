@@ -1,0 +1,1 @@
+Artículo 7º—Seguimiento y fiscalización. Cada tres meses, el Contador (a) Municipal informará al Alcalde (sa) y éste a su vez al Concejo Municipal, mediante un cuadro resumen de las modificaciones presupuestarias de segundo orden que se ejecuten durante el respectivo período. Con la misma periodicidad deberá remitir informes de ejecución presupuestaria.
