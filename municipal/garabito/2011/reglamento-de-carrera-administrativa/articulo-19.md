@@ -1,0 +1,2 @@
+Artículo 19.—De la duración del Concurso. El Departamento de Recursos Humanos realizará las pruebas y demás análisis en un plazo no mayor a 30 días naturales después de publicado el mismo, para el caso de puestos que no son de Jefaturas. Para puestos de Jefaturas deberá:
+Realizar las pruebas y demás análisis en un plazo no mayor a 60 días naturales, después de la fecha final para la recepción de documentos.

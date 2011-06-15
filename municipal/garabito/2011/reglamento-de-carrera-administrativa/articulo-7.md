@@ -1,0 +1,1 @@
+Artículo 7º—Del concurso interno. En caso de inopia en los niveles jerárquicos señalados en los artículos precedentes, el concurso se extenderá a todos los trabajadores municipales. Si la inopia continua se sacará la plaza a concurso externo. Según lo expuesto en el Código Municipal y Convención Colectiva de Trabajo vigente.

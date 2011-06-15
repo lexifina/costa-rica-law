@@ -1,0 +1,1 @@
+Artículo 15.—De la exclusión automática. El incumplimiento por parte de los trabajadores de lo establecido en este capítulo en cuanto al procedimiento de concurso interno, facultará al Departamento de Recursos Humanos para excluirlos del concurso.
