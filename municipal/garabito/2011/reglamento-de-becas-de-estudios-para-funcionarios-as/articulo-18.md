@@ -1,0 +1,1 @@
+Artículo 18.—Recibida la solicitud por el Alcalde, este hará una revisión general, para cerciorarse de que cumpla con los requisitos reglamentarios. Posteriormente trasladará la solicitud a la Junta de Relaciones Laborales, quienes de observar algún defecto lo comunicarán al solicitante para que lo subsane, en el plazo de cinco días hábiles.

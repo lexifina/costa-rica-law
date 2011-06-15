@@ -1,0 +1,1 @@
+Artículo 9º—El becario que en el disfrute de una beca abandone los estudios por causas injustificadas, perderá el derecho de participar en nuevo concurso, durante el plazo de 2 años y deberá cancelar todos los gastos en que haya incurrido la Municipalidad al momento de producirse el abandono, de conformidad con el artículo 10 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad de Garabito a través de la oficina del Alcalde y de la Junta de Relaciones Laborales, administrará el otorgamiento de Becas y capacitaciones, de conformidad con lo dispuesto en el presente Reglamento y con sujeción al presupuesto que se acordó para ese fin.

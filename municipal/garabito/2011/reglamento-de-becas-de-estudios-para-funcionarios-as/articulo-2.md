@@ -1,0 +1,1 @@
+Artículo 2º—La corporación municipal se compromete entre otras cosas a lo siguiente: a) Organizar sistemas de formación fuera de horas de trabajo o durante el trabajo concediendo las licencias con goce de salario que sean necesarias. b) Asegurar el contenido presupuestario, que sea necesario y posible económicamente para capacitación y becas.
