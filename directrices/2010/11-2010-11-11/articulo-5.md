@@ -1,0 +1,1 @@
+Artículo 5º—Inspecciones: Las inspecciones serán realizadas por las Autoridades Públicas de acuerdo con las competencias que la legislación vigente les atribuya y con la frecuencia e intensidad que consideren necesarias.
