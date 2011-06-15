@@ -1,0 +1,1 @@
+Artículo 6º—Régimen sancionador: Las infracciones a lo dispuesto en esta directriz serán sancionadas, de conformidad con lo establecido en el artículo 78, siguientes y concordantes de la Ley Nº 8495 del 6 de abril del 2006, Ley General del Servicio Nacional de Salud Animal.

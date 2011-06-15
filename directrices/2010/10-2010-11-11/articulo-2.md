@@ -1,0 +1,23 @@
+Artículo 2º—Definiciones: A los efectos de esta Directriz, se establecen las siguientes definiciones, sin menoscabo de que se vean complementadas con las especificadas en las correspondientes disposiciones legales o reglamentarias específicas:
+2.1 Agua potable: agua tratada que cumple con las disposiciones de valores recomendables o máximos admisibles estéticos, organolépticos, físicos, químicos, biológicos y microbiológicos, establecidos en la regulación nacional vigente para el agua potable y que al ser consumida por la población no causa daño a la salud.
+2.2 Alimento en conserva: alimento comercialmente estéril y envasado en recipientes herméticamente cerrados
+2.3 Autoclave: recipiente a presión, destinado al tratamiento térmico de los alimentos envasados en recipientes herméticamente cerrados.
+2.4 Autoridad en Proceso: Se define como el personal interno o externo al establecimiento con suficiente entrenamiento y experiencia para realizar los estudios requeridos en esta Directriz.
+2.5 Envase: todo recipiente destinado a contener un producto, que ha de cerrarse herméticamente y el cual entra en contacto con el mismo, conservando su integridad física, química y sanitaria. Incluye envases de hojalata, fundas flexibles y envases semi-rígidos.
+2.6 Envases herméticamente cerrados: envases que se han proyectado y se han previsto para proteger el contenido contra la entrada de microorganismos durante el tratamiento térmico y después de él.
+2.7 Esporas: células de microorganismos con vida latente, pero capaz de crecer y reproducirse cuando las circunstancias le son favorables.
+2.8 Esterilidad comercial de alimentos sometidos a tratamiento térmico: estado conseguido mediante la aplicación de calor suficiente solo o en combinación de otros tratamientos apropiados, para que el alimento quede exento de microorganismos capaces de desarrollarse en los alimentos sin refrigerar en las condiciones normales en las que probablemente se mantendrán durante la distribución y almacenamiento.
+2.9 Establecimiento: Todo local incluyendo matadero, que haya sido aprobado y registrado por el SENASA del MAG; donde se sacrifiquen animales, deshuesen, procesen, empaquen o almacenen productos y subproductos de origen animal y sus derivados, en concordancia con la Ley No. 8495 del 6 de abril del 2006, Ley del Servicio Nacional de Salud Animal.
+2.10 Estudio de distribución de temperatura: análisis que se realiza sobre la autoclave para garantizar que el punto frío esté por encima de lo establecido, según la relación temperatura y tiempo durante la elevación y esterilizado del producto.
+2.11 Estudio de penetración de calor: análisis que se realiza al producto enlatado para calcular el tiempo de esterilizado necesario para considerarlo como producto apto para consumo humano.
+2.12 Inocuidad de alimentos: Garantía de que el alimento es apto para el consumo humano, de acuerdo con el uso al que se destina.
+2.13 Pez: Cualquiera de los vertebrados e invertebrados acuáticos de sangre fría (ectodérmicos). No incluye a los anfibios ni a los reptiles acuáticos.
+2.14 Producto: Cualquier producto alimenticio destinado para el consumo humano cuyo producto y subproductos es de origen pesquero, crustáceos, cárnico y lácteo.
+2.15 Recipiente herméticamente cerrado: Recipientes que se han cerrado de tal manera que su contenido está protegido contra la entrada de microorganismos durante el tratamiento térmico y después de él.
+2.16 Registros: formatos, formularios manuales o automáticos donde se anotan los datos de las condiciones de proceso.
+2.17 Tratamiento programado: todas las condiciones necesarias para lograr y mantener la esterilidad comercial del equipo, de los envases y de los alimentos.
+2.18 Tratamiento térmico: método físico que consiste en someter a una fuente de calor suficiente por un tiempo apropiado al producto antes o después de ser envasado en recipientes de cierre hermético con el fin de lograr una estabilidad biológica.
+2.19 Temperatura de esterilización: temperatura que se mantiene durante el tratamiento térmico, según se especifica en el proceso programado.
+2.20 Temperatura inicial: la temperatura del contenido del envase más frío que ha de tratarse al comienzo el ciclo de esterilización, según se especifica en el tratamiento programado.
+2.21 Tiempo de esterilidad: tiempo que transcurre desde el momento en que se alcanza la temperatura de esterilización hasta aquel en que comienza el enfriamiento.
+2.22 Tiempo de calentamiento: el tiempo, incluido el tiempo de ventilación, que transcurre entre la introducción del medio de calentamiento en la autoclave cerrado y el momento en que la temperatura de la autoclave alcanza la temperatura de esterilidad necesaria.
