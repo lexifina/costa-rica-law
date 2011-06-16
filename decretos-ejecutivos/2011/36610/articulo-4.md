@@ -1,0 +1,1 @@
+Artículo 4°—El Jurado. El jurado será conformado por 3 personas con amplia experiencia en la materia, quienes trabajarán ad honorem y serán designados por la Dirección del Centro de Investigación y Conservación del Patrimonio Cultural.
