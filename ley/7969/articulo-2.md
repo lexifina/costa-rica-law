@@ -1,6 +1,20 @@
-ARTÍCULO 2.- Naturaleza de la prestación del servicio
-Para todos los efectos legales y de prestaciones, el transporte
-remunerado de personas en la modalidad de taxi se considera como un
-servicio público que se explotará mediante la figura de la concesión
-administrativa, con los procedimientos especiales establecidos en esta ley
-y su reglamento.
+Artículo 2.- Naturaleza de la prestación del servicio
+Para todos los efectos legales y de prestaciones, el transporte remunerado de personas en la modalidad de taxi se considera un servicio público que se explotará mediante la figura de la concesión administrativa con los procedimientos especiales establecidos en esta ley y su reglamento, o del permiso en el caso de servicios especiales estables de taxi, de conformidad con lo establecido en el inciso a) del artículo 7 de esta ley.
+El transporte remunerado de personas, que se realiza por medio de autobuses, busetas, microbuses, taxis, automóviles y cualquier otro tipo de vehículo automotor, ya sea que se ofrezca al público en general, a personas usuarias o a grupos determinados de personas usuarias con necesidades específicas que constituyen demandas especiales, es un servicio público del cual es titular el Estado. Lo anterior independientemente del grado de intervención estatal en la determinación del sistema operativo del servicio o en su fiscalización.
+Será necesaria concesión:
+Para explorar el servicio de transporte automotor remunerado de personas modalidad taxi, en las bases de operación debidamente autorizadas, de conformidad con lo establecido en los incisos b) y c) del artículo 1 de esta ley. Esta modalidad también incluye la prestación del servicio al domicilio o lugar donde se encuentre la persona usuaria, en respuesta a la solicitud expresa de este al prestador del servicio regular de taxi, por alguno de los medios con que este cuenta para tales efectos.
+Se requerirá permiso:
+Para explotar el servicio de transporte automotor remunerado de personas modalidad servicio especial estable de taxi, en los casos en que el servicio se brinde de puerta a puerta, para satisfacer una necesidad de servicio limitado, residual y dirigido a un grupo cerrado de personas diferente del que se presta, de conformidad con el párrafo anterior.
+Los permisos para explotar el transporte automotor de personas en la modalidad servicio especial estable de taxi serán expedidos por el Consejo de Transporte Público, previa presentación de la copia certificada del contrato o los contratos suscritos con las personas, las instituciones o las empresas que hacen uso de su servicio. A cada persona física solo se le otorgará un permiso; estas personas podrán agruparse en una persona jurídica, adquiriendo responsabilidad solidaria. El vehículo amparado al permiso deberá ser propio o arrendado mediante leasing financiero. De incumplirse las condiciones en que originariamente se otorgó el permiso, este se podrá revocar por disposición justificada del Consejo de Transporte Público.
+Sin perjuicio de otras sanciones previstas por el ordenamiento jurídico, se cancelará el permiso, previo debido proceso y derecho a la defensa, por las siguientes causas:
+a) Cuando se incumplan las obligaciones, los deberes y las prohibiciones fijados en la presente ley, su reglamento, las leyes y los reglamentos conexos.
+b) Cuando se compruebe la falsedad e inexactitud en la documentación presentada ante el Consejo de Transporte Público.
+c) En caso de traspaso o cesión del permiso a favor de un tercero, sin autorización previa del Consejo.
+d) Por prestación ilegal del servicio fuera del área que autorizó el permiso, salvo en los casos en que el origen del servicio sea el área autorizada y el destino fuera de ella.
+e) Cuando por acto o resolución firme se cancele o revoque la patente autorizada del área geográfica correspondiente a la persona permisionaria, en vía administrativa o judicial. Asimismo, será razón para cancelar el permiso cuando la persona permisionaria renuncie a la patente otorgada.
+f) Cuando el vehículo con que se preste el servicio especial estable de taxi tenga las características propias de los vehículos modalidad taxi que se autorizan en razón de una concesión, violando lo establecido al respecto en el artículo 29 de la presente ley.
+g) Cuando la persona permisionaria no cuente con las pólizas al día, tal y como lo establece el artículo 29 de la presente ley.
+h) Se cancelará el permiso al vehículo autorizado para la prestación del servicio especial estable de taxi, cuando el vehículo autorizado circule por las vías públicas en demanda de pasajeros.
+Los permisos no conceden derechos subjetivos al titular y se prolongarán por un plazo hasta de tres años, si se ajustan a los requisitos que se establezcan al efecto.
+El Consejo de Transporte Público deberá publicar, una vez al año, en el diario oficial La Gaceta y en un diario de circulación nacional, las listas de las personas físicas o jurídicas que se encuentren debidamente acreditadas para la prestación del servicio especial estable de taxi.
+(Así reformado por el artículo 2° de la ley N° 8955 del 16 de junio del 2011)
