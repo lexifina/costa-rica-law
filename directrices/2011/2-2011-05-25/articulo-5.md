@@ -1,0 +1,1 @@
+5. Las Entidades Públicas que realicen importaciones temporales directamente o por medio de una agencia de aduanas o un agente aduanero independiente, deberán hacerlo en la modalidad 09 Estatales y estarán registrados en la categoría 1010.

@@ -1,0 +1,1 @@
+3. Las importaciones temporales que realicen los importadores que hayan sido contratados por el Estado, excepto las concesiones de obra pública y sus subcontratistas, se deberán declarar en el régimen y la modalidad 04-24 Contratos Administrativos.

@@ -1,0 +1,1 @@
+4. Los concesionarios de obra pública y sus subcontratistas y los importadores que se amparen a un Contrato Administrativo deberán presentar el correspondiente contrato en el Departamento de Registro y Estadísticas de la Dirección General de Aduanas, a efectos de ser registrados en las categorías 1042 y 1063 respectivamente, para poder realizar las importaciones temporales.
