@@ -1,0 +1,1 @@
+Artículo 37.—Las actas que ponen fin al proceso conciliatorio serán expedidas conforme a los requisitos establecidos en el artículo 12 de Ley Nº 7727 y su reglamento. Se entregará copia del acta de mediación a las partes que hubieran intervenido en la audiencia.

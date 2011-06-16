@@ -1,0 +1,1 @@
+Artículo 10.—La recepción de las solicitudes, verbales o escritas, estará a cargo del personal designado por el Director, el que dará cuenta de estas en el mismo día de recibidas, debiendo evaluarlas, designar al Mediador que se hará cargo del proceso de mediación, y llevar a cabo las citaciones correspondientes.

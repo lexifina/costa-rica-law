@@ -1,0 +1,1 @@
+Artículo 65.—Procedimientos: Para imponer las sanciones indicadas en los artículos anteriores, el Director de la Casa de Justicia, deberá seguir el debido proceso, con oportunidad de defensa del inculpado.

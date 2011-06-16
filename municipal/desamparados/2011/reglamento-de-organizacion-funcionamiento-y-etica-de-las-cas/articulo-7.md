@@ -1,0 +1,1 @@
+Artículo 7º—Respaldo legal: La Casa de Justicia deberá contar con un director, el cual debe ser abogado, mismo que se encargará de verificar la legalidad de los acuerdos a los cuales se haya llegado en las audiencias de mediación.
