@@ -1,0 +1,1 @@
+Artículo 5º—La Secretaría Técnica Nacional Ambiental (SETENA) brindará un tratamiento prioritario y expedito a los trámites para la prórroga y vigencia de la viabilidad ambiental del Proyecto, así como sus obras nuevas asociadas y los requerimientos de disposición de materiales.
