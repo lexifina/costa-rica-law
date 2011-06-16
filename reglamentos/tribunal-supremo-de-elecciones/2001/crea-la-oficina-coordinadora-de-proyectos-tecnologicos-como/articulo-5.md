@@ -1,1 +1,0 @@
-Artículo 5º—La Oficina estará a cargo de un profesional en administración con las características indicadas en el Manual Descriptivo de Puestos, y contará con el personal necesario para el desarrollo de sus funciones, según lo disponga el Tribunal.
