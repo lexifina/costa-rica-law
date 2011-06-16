@@ -1,1 +1,0 @@
-Artículo 25.—Sobre el estado de los bienes rematados. El Banco no se responsabilizará por el estado de los artículos vendidos, ni dará garantía alguna después de efectuada la venta. Esta condición se hará constar en el documento correspondiente.

@@ -1,1 +1,0 @@
-Artículo 3º—De las condiciones de crédito. Las condiciones de los créditos serán las que establezca la Junta Directiva en el presente Reglamento, en el General de Crédito y en cualquier otra disposición que sobre el particular emitiera.

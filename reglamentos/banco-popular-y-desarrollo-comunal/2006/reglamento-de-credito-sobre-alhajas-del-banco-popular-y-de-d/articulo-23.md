@@ -1,1 +1,0 @@
-Artículo 23.—De las actas. De todo remate se levantará un acta que contendrá un resumen de su resultado, que deberá ser firmado por el Jefe de la Oficina y el Corredor Jurado, donde se efectúa el remate.

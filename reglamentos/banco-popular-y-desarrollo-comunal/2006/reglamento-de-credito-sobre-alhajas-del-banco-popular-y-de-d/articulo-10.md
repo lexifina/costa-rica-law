@@ -1,1 +1,0 @@
-Artículo 10.—De la verificación del estado de la garantía. El obligado podrá solicitar en cualquier tiempo que se le muestren sus bienes, lo cual se hará contra la presentación del comprobante respectivo y un documento de identidad, previo el pago de la respectiva comisión establecida en la tabla de cargos y comisiones.

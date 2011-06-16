@@ -1,2 +1,0 @@
-Artículo 7º—De la ampliación de plazo. El plazo del crédito podrá ampliarse cuantas veces el deudor y el Banco, representado por la oficina en la que se formalizó, así lo convengan, para lo cual será necesario que la garantía sea satisfactoria y se cumplan los demás requisitos que con base en el presente Reglamento se establezcan en las condiciones de crédito.
-En la renovación se cobrarán los intereses pendientes del plazo anterior e intereses del nuevo plazo, pólizas, comisión de formalización y cualquier otro cargo procedente.
