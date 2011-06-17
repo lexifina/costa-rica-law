@@ -1,0 +1,19 @@
+Nº 36608-MP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3), 8), 18) y 20) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública, de 2 de mayo de 1978 y sus reformas, los artículos 27 a 30 de la Ley No. 7935, Ley Integral para la Persona Adulta Mayor, de 25 de octubre de 1999 y sus reformas, el artículo 1º de la Ley Nº 8924, Modificación de la Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banco Hipotecario de la Vivienda, Nº 7052, y sus Reformas, de 15 de febrero de 2011 y los artículos 1º a 5º del Decreto Ejecutivo Nº 34961-MP, Reglamento para que el Consejo Nacional de la Persona Adulta Mayor (CONAPAM) Califique a las Personas Adultas Mayores Solas que Soliciten Bono de Vivienda, de 25 de noviembre de 2008.
+Considerando:
+I.—Que según el artículo 27 de la Ley Nº 7935, publicada en el Alcance Nº 88 a La Gaceta Nº 221 de 15 de noviembre de 1999, las personas adultas mayores tienen derecho al disfrute de una vivienda digna y adecuada, para lo cual se les proveerán las facilidades de financiamiento para la adquisición o remodelación de las viviendas.
+II.—Que el Decreto Ejecutivo Nº 34961-MP, publicado en el Alcance Nº 55 a La Gaceta Nº 248 de 23 de diciembre de 2008, estableció el procedimiento para que el Consejo Nacional de la Persona Adulta Mayor (CONAPAM), emita las certificaciones de personas adultas solas que solicitan bonos de vivienda, al amparo del artículo 59 de la Ley Nº 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banco Hipotecario de la Vivienda de 13 de noviembre de 1986 y sus reformas.
+III.—Que mediante la Ley Nº 8924, publicada en La Gaceta Nº 47 del 8 de marzo de 2011, se modifica, entre otros, el numeral 51 de la Ley Nº 7052 antes citada, para que puedan ser beneficiarios del Fondo de Subsidios para la Vivienda (Fosuvi), las personas adultas mayores sin núcleo familiar, que tengan ingresos que no excedan el máximo de seis veces el salario mínimo de una persona obrera no especializada de la industria de la construcción.
+IV.—Que de conformidad con el artículo 51 citado, la condición de personas adultas mayores sin núcleo familiar deberá ser certificada por el CONAPAM.
+V.—Que por ello se hace necesario modificar el Decreto Ejecutivo Nº 34961-MP, citado en el considerando segundo, para incluir dentro del procedimiento ya establecido la certificación de persona adulta mayor sin núcleo familiar en los términos del artículo 51 de la Ley Nº 7052, recientemente reformado. Por tanto:
+Decretan:
+ADICIÓN Y REFORMA AL DECRETO EJECUTIVO Nº 34961-MP,
+REGLAMENTO PARA QUE EL CONSEJO NACIONAL DE LA
+PERSONA ADULTA MAYOR (CONAPAM) CALIFIQUE A
+LAS PERSONAS ADULTAS MAYORES SOLAS QUE
+SOLICITEN BONO DE VIVIENDA, DE 25
+DE NOVIEMBRE DE 2008
+Artículo 1º—Adiciónese un considerando 6 al Decreto Ejecutivo Nº 34961-MP, Reglamento para que el Consejo Nacional de la Persona Adulta Mayor (CONAPAM) Califique a las Personas Adultas Mayores Solas que Soliciten Bono de Vivienda, de 25 de noviembre de 2008, cuyo texto dirá:
+“6º—Que mediante la Ley Nº 8924, publicada en La Gaceta Nº 47 del 8 de marzo de 2011, se modifica, entre otros, el numeral 51 de la Ley Nº 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banco Hipotecario de la Vivienda, de 13 de noviembre de 1986 y sus reformas, para que puedan ser beneficiarios del Fondo de Subsidios para la Vivienda (Fosuvi), las personas adultas mayores sin núcleo familiar, que tengan ingresos que no excedan el máximo de seis veces el salario mínimo de una persona obrera no especializada de la industria de la construcción, correspondiendo la certificación de tal condición también al CONAPAM.”
