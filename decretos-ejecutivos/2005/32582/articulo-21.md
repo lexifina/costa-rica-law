@@ -1,1 +1,0 @@
-Artículo 21.—Director de procedimiento: La tramitación del procedimiento, estará a cargo de los Departamentos Legales de cada una de las dependencias del Ministerio, en su respectiva condición de Órgano Director.

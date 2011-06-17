@@ -1,1 +1,0 @@
-Artículo 15.—De la firma del convenio: Confeccionado el convenio, lo firmarán: el Director Administrativo y el funcionario responsable. El aparato y los accesorios se entregarán posteriormente a la formalización del convenio.
