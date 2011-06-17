@@ -1,0 +1,1 @@
+2. Incluir la Nota Técnica 59 al inciso arancelario 2903.39.40.10, que por error material fue omitido en la Resolución RES-DGA-406-2010 de fecha 21 de diciembre de dos mil diez, Publicada en La Gaceta Digital 34 del 17 de febrero de 2011, la cual entró a regir a partir del 10 de enero de 2011.

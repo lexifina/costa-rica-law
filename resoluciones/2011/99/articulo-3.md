@@ -1,0 +1,1 @@
+3. La presente disposición rige diez días naturales después de su publicación. Comuníquese y publíquese en el Diario Oficial La Gaceta; excepto lo indicado en el punto 2 del Por tanto de esta Resolución, que rige desde la entrada en vigencia de la Resolución DGA-406-2010 que la incorporo al Arancel.
