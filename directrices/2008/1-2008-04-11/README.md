@@ -14,3 +14,4 @@ Establecimiento de requisitos y plazos para el otorgamiento de certificaciones d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-05 | la propia norma |
+| 2 | 2011-06-17 | Directriz 4 (2011-06-17) |

@@ -43,16 +43,16 @@ El solicitante debe presentar en la Contabilidad Nacional lo siguiente:
 1- Autorización de la persona que representa.
 2- Fotocopia de la cédula del interesado por ambos lados.
 3- Llenar formularios de solicitud por escrito, indicado en el punto anterior.
-C) Las personas que realizan trámites para abogados, asociaciones y sindicatos también deben presentar el formulario de la solicitud de certificación descrita en los puntos anteriores; así como presentar la respectiva autorización del abogado, asociación o sindicato. De igual forma deben de cumplir con los restantes requisitos descritos en el punto anterior, a saber; autorización de la persona que representa y la fotocopia de la cédula del interesado por ambos lados.
+C) Las personas que realizan trámites para abogados, asociaciones y sindicatos también deben presentar el formulario de la solicitud de certificación descrita en los puntos anteriores; así como presentar la respectiva autorización del abogado, asociación o sindicato. De igual forma deben de cumplir con los restantes requisitos descritos en el punto anterior, a saber; autorización de la persona que representa y la fotocopia de la cédula del interesado por ambos lados
 D) En los casos de defunción o traspaso de pensión (Según la Dirección General Pensiones del Ministerio de Trabajo), el interesado debe presentar en la Contabilidad Nacional lo siguiente:
 1- Cédula de identidad del difunto
 2- Copia de Acta de Defunción
 3- Copia de la Certificación de matrimonio
 E) Si el trámite lo realiza otra persona que no sea el beneficiario, debe adjuntar también la autorización y fotocopia de la cédula del beneficiario por ambos lados y si es una persona que realiza los trámites para un Sindicato, abogado u Asociación debe aportar la autorización de estos.
-F) Los funcionarios que pertenecen al Ministerio de Educación Pública y solicitan certificaciones para efectos de pensión ante la Junta de Pensiones del Magisterio Nacional (JUPEMA), deben de presentar en la Contabilidad Nacional lo siguiente:
-Si solicita certificación de salarios y cotizaciones de los últimos cinco años, debe presentar:
+(*)F) Los funcionarios que pertenecen al Ministerio de Educación Pública y solicitan certificaciones para los siguientes trámites: Pensión, revisión de pensión, legales, anualidades, y personales, deben de presentar en la Contabilidad Nacional lo siguiente:
 1. Constancia de tiempo laborado, extendida por el Departamento de Expedientes del Ministerio de Educación;
 2. Si no aparece el expediente, el interesado debe adjuntar nota extendida por dicho Departamento, en donde se indique que el expediente no aparece; con el propósito de que la Contabilidad Nacional proceda a realizar el estudio correspondiente con base en la información en su poder.
+(*)(Así reformado el inciso f) anterior mediante directriz DCN-004-2011 del 17 de junio del 2011)
 1.2 Elaboración de oficios de la emisión de giros de: a) Pagos Impersonales (Acuerdos de Pago, Alquileres y Subvenciones).
 b) Condición de pagos de Salarios y/o Pensión (anulados, retenidos, cancelados).
 El interesado debe presentarse a la Contabilidad Nacional y presentar:
