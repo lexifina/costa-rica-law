@@ -1,0 +1,1 @@
+Artículo 22.—Duración del procedimiento. El proceso disciplinario no podrá durar más de tres meses, entendido como un plazo ordenatorio y no perentorio. Solo serán perentorios los plazos que expresamente estén regulados como tales.

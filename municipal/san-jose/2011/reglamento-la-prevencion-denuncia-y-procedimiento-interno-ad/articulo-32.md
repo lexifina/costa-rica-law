@@ -1,0 +1,1 @@
+Artículo 32.—Normativa conexa. En todos los demás aspectos no contenidos en este Reglamento, se procederá conforme con las regulaciones contenidas en la Ley 7476, su Reforma, la Ley General de la Administración Pública y demás normativa conexa.
