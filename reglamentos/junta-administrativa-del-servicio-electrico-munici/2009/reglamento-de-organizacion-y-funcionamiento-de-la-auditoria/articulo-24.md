@@ -1,1 +1,0 @@
-Artículo 24.—Políticas y procedimientos. El Auditor Interno deberá establecer principios con el fin de implementar directrices internas tanto políticas como procedimientos, para guiar con ello la actividad de la Auditoría Interna.

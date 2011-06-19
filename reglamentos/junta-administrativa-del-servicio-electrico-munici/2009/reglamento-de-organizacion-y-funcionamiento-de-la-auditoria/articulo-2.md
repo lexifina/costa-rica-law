@@ -1,1 +1,0 @@
-Artículo 2º—Objetivo. El presente Reglamento regula la organización, objetivos, funciones, atribuciones y prohibiciones de la Auditoría; de manera que su accionar se oriente y se perciba como una actividad que coadyuve al éxito de la gestión institucional, en aras de la legalidad y efectividad en el manejo de los fondos públicos involucrados.

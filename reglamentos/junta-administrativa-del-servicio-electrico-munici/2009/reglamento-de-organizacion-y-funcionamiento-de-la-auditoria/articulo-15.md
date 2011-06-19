@@ -1,1 +1,0 @@
-Artículo 15.—Área Técnico-Operativa. Esta área se encarga de advertir, asesorar y evaluar las actividades técnicas y operativas desarrolladas por las Unidades Estratégicas de Negocios de la Institución, con la finalidad de determinar si éstas cuentan con los procedimientos y controles adecuados que coadyuven al logro de los objetivos organizacionales.

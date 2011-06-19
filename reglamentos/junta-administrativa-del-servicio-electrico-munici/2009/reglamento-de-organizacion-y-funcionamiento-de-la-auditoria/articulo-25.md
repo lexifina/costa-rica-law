@@ -1,1 +1,0 @@
-Artículo 25.—Informe de Labores. El Auditor Interno deberá informar al menos anualmente al Jerarca sobre la actividad desplegada por su Unidad en lo referido a propósito, autoridad, responsabilidad y desempeño de su plan de trabajo, así como el estado de las recomendaciones de la Auditoría Interna.
