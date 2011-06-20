@@ -1,10 +1,13 @@
 Artículo 3º—Constitución del Comité. El Comité estará integrado por los siguientes miembros:
-a) Dos miembros de Junta Directiva de Popular Sociedad de Fondos de Inversión, uno de los cuales lo presidirá, y, en caso de empate, ejercerá el doble voto; miembros que serán suplidos por dos integrantes de esa Junta.
-b) El Gerente de Popular Sociedad de Fondos de Inversión, quien será suplido por el Coordinador de Negocios de Popular Sociedad de Fondos de Inversión.
-c) El Coordinador de Riesgo del Banco Popular o quien él delegue, quien debe ser funcionario del Área de Gestión de Riesgo del Banco Popular.
-d) El Coordinador de Apoyo Administrativo de Popular Sociedad Fondos de Inversión.
-e) El Gestor de Riesgos de Popular Sociedad de Fondos de Inversión.
-f) Un miembro independiente de Popular Sociedad de Fondos de Inversión. La Junta Directiva de Popular Sociedad de Fondos de Inversión puede nombrar un suplente que cumpla con las mismas características.
-g) El fiscal podrá asistir con voz pero sin voto cuando así lo considere necesario para el debido ejercicio de las funciones señaladas por la Ley.
-El quórum para sesionar es el indicado o en el artículo 6, del Reglamento de Gestión de Riesgos de SUGEVAL.
-El Comité de gestión de riesgos no puede sesionar tres veces en forma consecutiva si no cuenta con la asistencia y participación del miembro independiente.
+a) Dos miembros de Junta Directiva de Popular Sociedad de Fondos de Inversión, uno de los cuales lo presidirá y en caso de empate, ejercerá el doble voto; miembros que serán suplidos por dos integrantes de esa Junta Directiva.
+b) El Gerente General de Popular Sociedad de Fondos de Inversión quién será suplido por el Coordinador de Negocios de Popular Sociedad de Fondos de Inversión.
+c) El Coordinador de Riesgo del Banco Popular o quién él delegue, quién debe ser funcionario del Área de Gestión de Riesgo del Banco Popular.
+d) El Jefe Financiero Administrativo de Popular Sociedad Fondos de Inversión.
+e) El Gestor de Riesgo de Popular Sociedad de Fondos de Inversión.
+f) Un miembro independiente a Popular Sociedad de Fondos de Inversión. La Junta Directiva de Popular Sociedad Fondos de Inversión puede nombrar un suplente que cumpla con las mismas características.
+g) El Fiscal podrá asistir con voz pero sin voto cuando así lo considere necesario para el debido ejercicio de las funciones señaladas por la Ley.
+El quórum se considerará alcanzado cuando se encuentren presentes al menos la mayoría absoluta de los integrantes del Comité, dentro de los cuales debe estar al menos uno de los integrantes indicados en el inciso a) de este artículo, así como lo señalado en el inciso b).
+Todos los miembros del Comité tendrán derecho a voz y voto.
+Los acuerdos se tomarán por mayoría absoluta de los presentes, no pudiendo abstenerse ninguno de los miembros del comité de votar el asunto sometido a su consideración, salvo en los casos que por Ley así se autorice.
+El Comité de Gestión de Riesgos no puede sesionar tres veces consecutivas sino cuenta con la asistencia y participación del miembro independiente.
+(Así reformado mediante sesión N° 306 del 20 de junio del 2011)
