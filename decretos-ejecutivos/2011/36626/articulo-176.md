@@ -1,0 +1,1 @@
+Artículo 176.—Todo documento que se emita en el exterior en idioma diferente al español, además del requisito de consularización y legalización, deberá contar con la traducción oficial íntegra del documento, tanto del contenido como de los sellos de seguridad que emita la autoridad migratoria o registral en el extranjero.

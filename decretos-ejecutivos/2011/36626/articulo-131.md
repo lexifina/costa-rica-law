@@ -1,0 +1,1 @@
+Artículo 131.—Si la Comisión decide autorizar la solicitud emitirá la correspondiente resolución que enviará al Consulado de Costa en China y a la persona interesada para que sean los cónsules los que procedan al estampado de la visa. En este momento no será necesario efectuar ninguna otra verificación adicional.

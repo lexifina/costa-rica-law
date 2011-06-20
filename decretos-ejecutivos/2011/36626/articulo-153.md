@@ -1,0 +1,1 @@
+Artículo 153.—El procedimiento establecido en el presente Reglamento pretende establecer las pautas generales para el otorgamiento de visas de ingreso solicitadas por empresas e instituciones registradas ante la Dirección General de Migración y Extranjería, por lo que debe consultarse los reglamentos específicos para cada categoría para completar el trámite.

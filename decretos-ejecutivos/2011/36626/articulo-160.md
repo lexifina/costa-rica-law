@@ -1,0 +1,1 @@
+Artículo 160.—Una vez completos los requisitos, la Comisión de Visas Restringidas deberá resolver la solicitud en un plazo que no excederá de treinta días, autorizando o denegando la visa, debiendo en ambos casos fundamentar adecuadamente su decisión.

@@ -1,0 +1,1 @@
+Artículo 27.—El agente de migración en el exterior podrá autorizar o denegar solamente las solicitudes de visa de las personas extranjeras nacionales o residentes del país en donde esté ubicado el consulado, debiendo en ambos casos justificar adecuadamente su decisión.

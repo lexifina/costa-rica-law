@@ -1,0 +1,3 @@
+Artículo 216.—En casos excepcionales, de existir solicitud expresa por parte de la empresa representante del medio de transporte, podrá la Oficina Regional proceder con el tránsito previa autorización escrita del Director General o en su defecto el Subdirector General, cuando se esté en alguno de los siguientes supuestos:
+1. Cuando se requiera el traslado urgente de un tripulante a una clínica u hospital, sin que se cuente con la autorización para abandonar la embarcación o sin que se porte el pasaporte o tarjeta de marino.
+2. Cuando el tripulante requiera ser trasladado al consulado de su país con la intención de ser documentado.

@@ -1,0 +1,5 @@
+CAPÍTULO DÉCIMO
+Pases cortos a la costa
+SECCIÓN ÚNICA
+Requisitos y procedimiento
+Artículo 188.—El pase corto a la costa es un documento que expide la Dirección General a través de sus oficinas de control migratorio marítimo, a aquellos tripulantes o personal de dotación que labore en un medio de transporte marítimo y que requieran bajar a puerto costarricense. Este documento está delimitado en el tiempo, puesto que se otorga por un plazo determinado, así como en el espacio porque los tripulantes solamente pueden desplazarse en el área que se les indique en el PCC. Todos los tripulantes deberán sujetarse a las condiciones establecidas en las Directrices Generales de Visas, por lo tanto aquellos cuya nacionalidad pertenece a los países ubicados en el tercero y cuarto grupo deberán solicitar la autorización correspondiente ante la Dirección General, previa a la emisión del PCC. En caso de nacionales ubicados en el cuarto grupo el PCC debe ser autorizado de conformidad con lo estipulado en el artículo 49 de la Ley 8764, por la Comisión de Visas Restringidas.

@@ -1,0 +1,1 @@
+Artículo 135.—No se aceptarán partidas de nacimiento incompletas, es decir, aquellas en las que falte el nombre del menor, el número de consecutivo, o cualquier otra información; y además aquellas en las que se presenten tachaduras.

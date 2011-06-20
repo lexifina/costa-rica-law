@@ -1,0 +1,1 @@
+Artículo 195.—Cuando se trate de solicitudes de tripulantes cuyas nacionalidades sean del cuarto grupo, una vez realizado el estudio en el que se verifique que no cuentan con ningún impedimento para ingresar al país, los pases cortos a la costa serán autorizados por la Comisión de Visas Restringidas.

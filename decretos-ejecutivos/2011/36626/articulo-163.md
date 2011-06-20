@@ -1,0 +1,1 @@
+Artículo 163.—Una vez verificado el pago del depósito deberá enviarse la autorización al consulado estipulado por el interesado en su solicitud o en su defecto al puesto migratorio por el cual pretende ingresar.

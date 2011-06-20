@@ -1,0 +1,1 @@
+Artículo 75.—Recibida la documentación en la Dirección General, ésta la someterá a estudio y comunicará la resolución pertinente al consulado, teniendo un plazo máximo de treinta días para resolver y emitir la resolución final en solicitudes planteadas.

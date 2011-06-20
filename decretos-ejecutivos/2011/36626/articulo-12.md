@@ -1,0 +1,1 @@
+Artículo 12.—El plazo de vigencia para hacer efectivo el estampado de la visa, prescribirá para todos los efectos, tres meses después de la fecha estipulada en la resolución emitida por la Unidad de Visas de la Dirección General.

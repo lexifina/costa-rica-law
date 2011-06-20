@@ -1,0 +1,1 @@
+Artículo 212.—Cuando se trate de solicitudes de tripulantes cuyas nacionalidades sean del tercer grupo, una vez realizado el estudio respectivo en el que se verifique que no cuentan con ningún impedimento para ingresar al país, las visas de tránsito serán autorizadas.

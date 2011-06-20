@@ -1,0 +1,1 @@
+Artículo 17.—Contra la denegatoria de una visa no cabrá recurso ordinario ni extraordinario en virtud de lo establecido en los artículos 59 y 222 de la Ley. No podrá plantearse una nueva solicitud, sino hasta pasados seis meses a partir de la denegatoria.

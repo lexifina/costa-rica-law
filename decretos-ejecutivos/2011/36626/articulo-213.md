@@ -1,0 +1,1 @@
+Artículo 213.—Cuando se trate de solicitudes de tripulantes cuyas nacionalidades sean del cuarto grupo, una vez realizado el estudio en el que se verifique que no cuentan con ningún impedimento para ingresar al país, deberán presentarse ante la Comisión de Visas Restringidas quien determinará el otorgamiento en el plazo de quince días hábiles.

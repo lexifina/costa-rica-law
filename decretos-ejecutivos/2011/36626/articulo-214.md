@@ -1,0 +1,1 @@
+Artículo 214.—La autorización la visa de tránsito se realizará mediante resolución administrativa dirigida a la Oficina Regional de Migración correspondiente y será firmada por el Director General, en casos de visas de tránsito de tripulantes del tercer grupo o bien por la Comisión de Visas Restringidas en el caso de tripulantes del cuarto grupo.

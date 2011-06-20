@@ -1,0 +1,1 @@
+Artículo 63.—Una vez en Costa Rica, la persona extranjera con visa provisional de residencia deberá completar su solicitud de residencia temporal, en el plazo autorizado, cumpliendo con los requisitos establecidos por la ley y el reglamento.

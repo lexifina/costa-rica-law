@@ -1,0 +1,1 @@
+Artículo 157.—En caso de que la visa sea solicitada a favor de un extranjero cuya nacionalidad requiere visa consular, recibida la documentación, la Unidad de Visas en el término de diez días verificará la información presentada y podrá prevenir por una única vez y por escrito al interesado, que se completen los requisitos omitidos en la solicitud o que aclare la información.

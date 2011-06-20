@@ -1,0 +1,1 @@
+Artículo 110.—Pueden optar por visa restringida en razón de reunificación familiar las personas extranjeras con parentesco de primer grado por consanguinidad con ciudadano costarricense, entendiéndose como tales a los padres, hijos menores o mayores con discapacidad y hermanos menores o mayores con discapacidad, al igual que aquella casada con costarricense o residente.

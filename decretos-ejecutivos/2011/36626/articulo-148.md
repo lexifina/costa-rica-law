@@ -1,0 +1,1 @@
+Artículo 148.—El Cónsul debe enviar un informe diario a la Unidad de Visas Restringida indicando la totalidad de las visas otorgadas durante el día que debe incluir el nombre completo, número de pasaporte, ocupación, tipo de visa otorgada o denegada y número de visa de la persona extranjera.

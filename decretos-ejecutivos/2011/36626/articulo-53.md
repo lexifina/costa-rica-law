@@ -1,0 +1,9 @@
+Artículo 53.—Requisitos y procedimiento. Las personas que solicitan una visa provisional como residentes temporales como religioso o religiosa pueden aplicar su solicitud de visa de dos formas: 1. Por medio de un sistema digital, si se encuentra habilitado para el país de origen de la persona extranjera y si la Dirección General ha autorizado el uso del sistema digital. Para estos efectos el Consulado respectivo le indicará al extranjero el procedimiento a seguir. 2. Por medio de la presentación de los documentos físicos directamente en el Consulado que corresponde. Los extranjeros deberán presentar ante el consulado de Costa Rica correspondiente ya sea vía digital o bien física, los siguientes requisitos:
+1. Solicitud escrita de la visa provisional de residente temporal, firmada ante el cónsul o bien autenticada por notario.
+2. Certificado de nacimiento de la persona extranjera que solicita la visa.
+3. Certificado de antecedentes penales de la persona extranjera que solicita la visa.
+4. Pasaporte vigente.
+5. Carta de la congregación religiosa a la que pertenece la persona extranjera, indicando las labores y el período por el cual va a permanecer en Costa Rica.
+6. Comprobante de los medios económicos para su subsistencia durante su permanencia en el país.
+7. Certificación emitida por la Dirección de Culto que indique que la congregación religiosa se encuentra inscrita ante el Ministerio de Relaciones Exteriores y Culto.
+8. El Cónsul podrá solicitar de ser necesario, documentos adicionales que sean emitidos en el país de origen del solicitante, siempre que su presentación sea fundamental para el análisis en el otorgamiento de la visa. Asimismo estos requisitos deben apegarse a lo establecido en la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.

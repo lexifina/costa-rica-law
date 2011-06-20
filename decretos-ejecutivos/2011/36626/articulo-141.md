@@ -1,0 +1,1 @@
+Artículo 141.—Como primer paso para tramitar la permanencia los progenitores o tutor legal deberán presentarse personalmente ante Plataforma de Servicios, en el área de extranjería y solicitar que gestionen el traslado del expediente administrativo, con todos los documentos originales, el cual se encuentra en la Unidad de Visas.

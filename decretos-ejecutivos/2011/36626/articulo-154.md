@@ -1,0 +1,19 @@
+Artículo 154.—El representante legal de la empresa o institución educativa que pretenda el ingreso de la persona extranjera al país en alguna de las calidades estipuladas en los artículos anteriores, deberá presentar obligatoriamente los siguientes requisitos:
+1. Solicitud dirigida al Director General de Migración y Extranjería, en la que se incluyan las calidades del representante legal o apoderado de la empresa, institución y/o universidad, que contenga los siguientes datos de la persona extranjera que pretende la visa:
+a. Nombre completo y apellidos
+b. Nacionalidad
+c. Profesión u oficio
+d. Justificar adecuadamente el motivo por el cual es fundamental el ingreso al país de la persona solicitada
+e. Tiempo estimado en el que permanecerá en el país
+f. Dirección exacta pretendida en Costa Rica y teléfono
+g. Fecha aproximada de ingreso y salida del país
+h. Información general de la empresa, institución, o universidad que pretende traer a la persona extranjera
+i. Indicar número de fax para notificar respuesta a la solicitud de visa
+j. Indicar el consulado de Costa Rica al cual debe dirigirse la autorización de visa, en caso de que ésta sea aprobada. Cuando la persona extranjera resida en un país en el que no exista consulado costarricense, la comunicación se podrá realizar al consulado costarricense más cercano al país donde se encuentre, o a la persona que gestionó la residencia a favor de la persona extranjera cuyo ingreso se pretende. En este último caso se deberá indicar que se notifique al puesto de ingreso por donde se estima que ingresará la persona extranjera y le corresponderá a quien recibe la comunicación, hacer llegar la autorización al interesado, quien deberá portar copia de la autorización a su ingreso, así como coordinar con el medio de transporte a efectos de que le permitan viajar sin problema.
+k. Fecha
+l. Firma. La solicitud debe ser firmada por el representante legal de la empresa, institución y/o universidad en la Dirección General y confrontada su firma ante funcionario público competente o en su defecto autenticada por un profesional en Derecho, en este último caso con los correspondientes timbres (¢125 colones en timbres fiscales y ¢250 colones en timbres del colegio de abogado).
+2. Original y copia de la cédula vigente del representante legal de la empresa, institución o universidad que solicita al extranjero cuya firma debe ser confrontada frente al funcionario o en su defecto copia autenticada por abogado de este documento.
+3. Original y copia de la personería jurídica vigente de la empresa, institución o universidad que solicita al extranjero o en su defecto copia certificada por notario público de este documento. En caso de tratarse de universidad se debe aportar copia certificada por notario público del nombramiento del rector o confrontar original frente al funcionario.
+4. Copia de la primera plana del pasaporte donde consta foto y calidades personales de la persona extranjera. Este documento debe tener como mínimo seis meses de vigencia.
+5. Aportar documentación adicional referente a la visita de la persona solicitante, entre las que se incluyen programas de capacitación, carta de invitación de la empresa, institución o universidad, información de seminario, copia contrato laboral certificado por abogado, programas de estudio.
+6. En caso de considerarlo necesario, y de conformidad con lo estipulado en los artículo 2 y 61 de la Ley, en cuanto se declara la materia migratoria de interés y seguridad pública tanto la Dirección General, en el caso de visas del tercer grupo como la Comisión de Visas Restringidas, en el caso solicitudes del cuarto grupo de países de las Directrices Generales de Ingreso, podrán solicitar los antecedentes penales de la persona solicitada, debidamente legalizados y consularizados, y con la traducción oficial al idioma español según sea el caso.

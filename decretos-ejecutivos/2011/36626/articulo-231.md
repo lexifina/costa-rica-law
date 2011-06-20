@@ -1,0 +1,1 @@
+Artículo 231.—Los Ministerios e instituciones representadas en La Comisión de Visas Restringidas notificarán a la Jefatura de la Unidad de Visas y Refugio, el nombramiento de sus respectivos representantes, así como de sus suplentes.

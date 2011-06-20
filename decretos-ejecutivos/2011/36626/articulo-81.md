@@ -1,0 +1,1 @@
+Artículo 81.—Los consulados podrán recibir solicitudes de visa en calidad de no residente a nacionales que requieren visa restringida cuando se trate de personas ubicadas en el artículo 68 de la Ley 8764, y la intención de su viaje no se deba a motivos de residencia temporal o permanente.

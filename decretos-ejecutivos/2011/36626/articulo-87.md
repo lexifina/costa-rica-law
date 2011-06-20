@@ -1,0 +1,1 @@
+Artículo 87.—La Comisión de Visas Restringidas, deberá determinar el otorgamiento, la cual deberá adecuarse no solo al cumplimiento de todos y cada uno de los requisitos establecidos, sino también que debe resultar acorde con las políticas migratorias imperantes.

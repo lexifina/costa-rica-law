@@ -1,0 +1,1 @@
+Artículo 196.—La autorización de cada pase corto se realiza mediante una resolución administrativa dirigida a la Oficina Regional de Migración correspondiente y firmada por el Director General o por la Comisión de Visas Restringidas según corresponda.

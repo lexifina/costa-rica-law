@@ -1,0 +1,1 @@
+Artículo 139.—La decisión emitida por la Comisión de Visas Restringidas, deberá adecuarse no solo al cumplimiento de todos y cada uno de los requisitos establecidos, sino también que debe resultar acorde con la legislación y las políticas migratorias imperantes.

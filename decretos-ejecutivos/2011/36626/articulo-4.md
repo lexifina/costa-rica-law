@@ -1,0 +1,1 @@
+Artículo 4º—En casos excepcionales, el Director de Migración podrá conceder visas, sin que para esos efectos sean vinculantes las directrices generales de visas de ingreso y permanencia para no residentes. Esta autorización se emitirá mediante resolución fundada y razonada.

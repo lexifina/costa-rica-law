@@ -1,0 +1,1 @@
+Artículo 222.—La Dirección General en el caso de visas de tercer grupo o la Comisión de Visas Restringidas en el caso de solicitudes de visas del cuarto grupo deberán analizar y valorar las pruebas de solvencia presentadas, pudiendo requerir la presentación de pruebas adicionales en caso de resultar insuficientes las aportadas.

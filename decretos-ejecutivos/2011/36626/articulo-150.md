@@ -1,0 +1,5 @@
+CAPÍTULO OCTAVO
+Procedimiento general para la expedición de visas de ingreso
+solicitadas por empresas e instituciones registradas ante
+la Dirección General de Migración y Extranjería
+Artículo 150.—Podrá la Dirección General recibir solicitudes y otorgar visas de ingreso a personas extranjeras en calidad de residentes temporales, categorías especiales o no residentes solicitadas por empresas o instituciones registradas en la Dirección General de Migración y Extranjería y además representen especial relevancia en los ámbitos científicos, profesional, religioso, cultural, deportivo, económico o político que, en función de su especialidad, sean invitadas por los poderes del Estado o las instituciones públicas o privadas o por las universidades o colegios universitarios; además de quienes sean agentes de negocios o delegados comerciales que ingresen para atender asuntos vinculados con las actividades de las empresas o sociedades que representen, siempre que en el país no devenguen el pago de salarios u honorarios, y no requieran para realizar sus actividades residir en territorio nacional.

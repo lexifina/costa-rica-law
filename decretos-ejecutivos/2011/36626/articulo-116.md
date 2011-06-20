@@ -1,0 +1,1 @@
+Artículo 116.—Una vez que se le asigna número de expediente a la solicitud, contará la Dirección General con un plazo máximo de noventa días para que ésta sea conocida y analizada en sesión de la Comisión de Visas Restringidas, emitir la respectiva resolución y notificar al interesado el resultado de su solicitud.

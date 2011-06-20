@@ -1,0 +1,1 @@
+Artículo 72.—El cónsul al recibir los documentos presentados por la persona solicitante, deberá revisar si cumple con los requisitos, asimismo debe verificar en las Directrices Generales de Visas de Ingreso para no residentes que el país de origen o nacionalidad de la persona solicitante requiere la visa consular para su ingreso país.

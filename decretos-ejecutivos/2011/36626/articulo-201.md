@@ -1,0 +1,1 @@
+Artículo 201.—Todo documento aportado ante la Dirección General, deberá estar en el idioma español, caso contrario, la persona interesada deberá presentar una traducción autenticada de dicho documento.

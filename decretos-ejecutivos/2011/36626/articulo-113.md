@@ -1,0 +1,1 @@
+Artículo 113.—En caso de que se determine que un matrimonio entre una persona extranjera y una costarricense, fue constituido con la intención de obtener la visa de ingreso y en consecuencia la residencia en Costa Rica, se procederá a la denegatoria de la solicitud. La denegatoria de visa no tiene recurso alguno según lo mencionado en el artículo 17 del presente reglamento.

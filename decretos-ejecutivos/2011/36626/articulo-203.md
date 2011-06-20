@@ -1,0 +1,1 @@
+Artículo 203.—En caso de que no se cumpla con los requisitos, el Subproceso de Visas redactará la respectiva resolución en donde se le comunicará al interesado la denegatoria, indicándole los motivos por los cuales no se le otorga el permiso solicitado. Esta resolución deberá venir firmada por el Director General.

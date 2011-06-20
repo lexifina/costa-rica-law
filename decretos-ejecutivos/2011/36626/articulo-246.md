@@ -1,0 +1,1 @@
+Artículo 246.—Cuando exista algún hecho nuevo que pueda afectar la autorización o la denegatoria sobre una visa restringida, podrán los miembros de la Comisión de Visas Restringidas de manera individual o conjunta solicitar la suspensión temporal de los efectos de la resolución hasta que estos hechos nuevos sean revisados por la Comisión en pleno nuevamente.

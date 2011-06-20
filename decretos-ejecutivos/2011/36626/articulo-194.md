@@ -1,0 +1,1 @@
+Artículo 194.—Cuando se trate de solicitudes de tripulantes cuyas nacionalidades sean del tercer grupo, una vez realizado el estudio respectivo en el que se verifique que no cuentan con ningún impedimento para ingresar al país, serán autorizados los pases cortos a la costa.

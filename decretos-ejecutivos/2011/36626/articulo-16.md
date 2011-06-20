@@ -1,0 +1,2 @@
+Artículo 16.—La solicitud de permanencia en virtud de reunificación familiar para personas extranjeras con nacionalidades comprendidas en el cuarto grupo, deberá ser presentada ante la Unidad de Visas para que sea conocida por la Comisión de Visas Restringidas.
+Tratándose de personas extranjeras que requieren visa consular, deberán presentar la solicitud de visa provisional en calidad de residente permanente o temporal, aportando los requisitos que se indican en el presente Reglamento.

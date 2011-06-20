@@ -1,0 +1,1 @@
+Artículo 221.—Los cónsules deberán solicitar pruebas de solvencia que sean emitidas por las autoridades del país en el que se encuentren similares a las establecidas en el artículo 218 del presente Reglamento.

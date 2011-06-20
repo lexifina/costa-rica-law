@@ -1,0 +1,1 @@
+Artículo 136.—Los nacionales chinos mayores de dieciséis años, deberán aportar además a la solicitud, el correspondiente certificado de antecedentes penales emitido por el Gobierno de China, debidamente legalizado y consularizado.

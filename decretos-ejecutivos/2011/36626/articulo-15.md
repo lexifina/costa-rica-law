@@ -1,0 +1,1 @@
+Artículo 15.—A la persona extranjera que cuente con impedimento o restricciones de ingreso según lo establece el artículo 61 de la Ley no se le otorgará visa ni se le permitirá ingresar al país, debiendo proceder a su rechazo, según lo dispuesto en el artículo 64 de la Ley.

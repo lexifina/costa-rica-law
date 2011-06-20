@@ -1,0 +1,1 @@
+Artículo 146.—El solicitante deberá enviar los documentos vía fax, por courier o bien al correo electrónico que el cónsul designará para tales efectos. El procedimiento para estas visas será el establecido en el Título I, Capítulo Segundo de este Reglamento sobre “Visas Consulares”.

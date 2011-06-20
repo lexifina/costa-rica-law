@@ -1,0 +1,1 @@
+Artículo 43.—La persona extranjera estudiante, docente, investigador o voluntario, que pretende optar por la visa provisional de estudiante, docente, investigador o voluntario, deberá gestionar la solicitud, sea personalmente o por un representante, debidamente autorizado, ante el consulado respectivo dicha visa.

@@ -1,0 +1,22 @@
+Artículo 114.—La persona extranjera que pretenda ingresar al país en calidad provisional de residente en Costa Rica, deberá presentar, mediante apoderado debidamente acreditado para tal efecto, obligatoriamente los siguientes requisitos:
+1. Solicitud dirigida al Director General, suscrita por la persona interesada, su pariente que resida en Costa Rica o su apoderado, indicando sus calidades y su relación de parentesco con el solicitado, que contenga los siguientes datos de la persona extranjera que pretende la visa:
+a. Nombre completo y apellidos
+b. Nacionalidad
+c. Profesión u oficio
+d. Nombre completo y apellidos de los padres
+e. Dirección exacta pretendida en Costa Rica y teléfono
+f. Fax para recibir notificaciones
+g. Fecha
+h. Firma
+i. Subcategoría migratoria pretendida
+j. Indicar el consulado de Costa Rica al cual debe dirigirse la autorización de visa, en caso de que ésta sea aprobada, a efectos de que un cónsul costarricense la estampe materialmente en su pasaporte. Cuando el extranjero resida en un país en el que no exista consulado costarricense, la comunicación se podrá realizar al consulado costarricense más cercano al país donde se encuentre la persona extranjera interesada, o a la persona que gestionó la residencia a favor del extranjero cuyo ingreso se pretende. En este último caso, le corresponderá a quien recibe la comunicación, hacer llegar la autorización al interesado, quien deberá portar copia de la autorización a su ingreso, así como coordinar con el medio de transporte a efectos de que le permitan viajar sin problemas.
+k. En la solicitud se deberá indicar además el fundamento de la pretensión, explicando las razones que justifiquen la solicitud. La solicitud además deberá ser autenticada por el cónsul costarricense, en caso de que el trámite se realice desde el exterior. De realizarse en Costa Rica la solicitud deberá firmarse por la persona que la solicita frente al funcionario público competente o en su defecto la solicitud deberá venir autenticada por notario público, en este último caso con los correspondientes timbres (¢125 colones en timbres fiscales y ¢250 colones en timbres del colegio de abogado).
+2. Certificación original de nacimiento en donde conste el nombre de los progenitores. Debe aportarse legalizada, consularizada y traducida al idioma español.
+3. Certificación de Antecedentes Penales del país de origen del solicitado, en donde se especifique no haber sido condenado en su país de origen o en el que haya residido los últimos tres años, por los delitos a los que se refiere el artículo 61 de la Ley. Esta certificación debe aportarse consularizada, legalizada y traducida al idioma español.
+4. Copia de todas las páginas del pasaporte de la persona extranjera legalizadas, consularizadas y si es el caso traducidas al idioma español.
+5. Copia certificada ante funcionario público competente del documento de identidad de la persona solicitante o bien presentar copia certificada por notario público.
+6. Cuando quien presente la solicitud sea una persona naturalizada costarricense, deberá aportar además, Certificación Literal de Naturalización emitida por el Registro Civil de Costa Rica así como Carta de Naturalización.
+7. Para las solicitudes basadas en vínculo matrimonial con costarricense, se deberá aportar certificación original emitida por el Registro Civil costarricense en la que se demuestre tal ligamen. En caso de matrimonio celebrado en el extranjero por notario costarricense, deberá especificarse el nombre, calidades y número de carné de notario público. Cuando el matrimonio fuere realizado por autoridades de otros países deberá aportarse certificación de matrimonio emitida por ese país, debidamente legalizada, consularizada y traducida al idioma español.
+8. En las solicitudes por vínculo matrimonial con costarricense, según lo que establece el artículo 73 de la Ley de Migración y Extranjería, Ley Nº 8764, se debe presentar prueba documental que demuestre obligatoria y fehacientemente, el conocimiento recíproco entre ambos contrayentes.
+9. La Unidad de Visas Restringidas, Consulares y Refugio como órgano de apoyo técnico y administrativo, podrá en caso de requerirlo la Comisión convocar al cónyuge costarricense a una entrevista personal a efectuarse previa cita. De esta entrevista se levantará un acta firmada por el contrayente y dos funcionarios de la Unidad en calidad de testigos.
+10. Documentos que demuestren la solvencia económica de la persona solicitante de acuerdo a los lineamientos establecidos en el presente Reglamento.

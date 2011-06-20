@@ -1,0 +1,1 @@
+Artículo 22.—El agente de migración en el exterior deberá indicar los derechos y obligaciones que cada visa confiere, haciendo énfasis en las actividades laborales o comerciales que puede o no desarrollar en el país, de conformidad con la subcategoría migratoria otorgada.

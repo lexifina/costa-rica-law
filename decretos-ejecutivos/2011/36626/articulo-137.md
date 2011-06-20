@@ -1,0 +1,1 @@
+Artículo 137.—Los nacionales chinos mayores de veinte años, tratándose de mujeres, y de veintidós años en el caso de hombres, deberán aportar además el certificado de estado civil según corresponda (soltería o matrimonio).

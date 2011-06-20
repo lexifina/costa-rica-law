@@ -1,0 +1,1 @@
+Artículo 232.—El Ministro de Gobernación, Policía y Seguridad Pública, de conformidad con las obligaciones atribuidas en el artículo 13 incisos 1) y 25) deberá juramentar en la primera sesión de la Comisión a los miembros.

@@ -1,0 +1,1 @@
+Artículo 78.—Si la visa hubiese sido otorgada, el cónsul deberá estampar en el pasaporte vigente de la persona extranjera el sello de la visa, el cual incluirá el nombre de ésta, su número de pasaporte, la categoría migratoria, lapso otorgado, el número de expediente y número de visa, estos últimos datos serán proporcionados por la Dirección General mediante resolución fundada.

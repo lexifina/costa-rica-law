@@ -1,0 +1,1 @@
+Artículo 245.—Por falta de quórum o cualquier otra razón que imposibilite la sesión ordinaria, los miembros de la Comisión en coordinación con la Unidad de Visas realizará una convocatoria extraordinaria.

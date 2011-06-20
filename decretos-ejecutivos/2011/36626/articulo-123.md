@@ -1,0 +1,1 @@
+Artículo 123.—Como primer paso para tramitar la permanencia, el extranjero interesado deberá presentarse personalmente ante Plataforma de Servicios, en el área de extranjería y solicitar que gestionen el traslado de su expediente administrativo, con todos los documentos originales, el cual se encuentra en la Unidad de Visas.

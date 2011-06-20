@@ -1,0 +1,1 @@
+Artículo 46.—El cónsul de Costa Rica deberá consularizar la certificación de nacimiento y antecedentes penales, a aquellas personas que cumplan con todos los requisitos. El certificado de nacimiento, antecedentes penales y la carta del centro de enseñanza, deberán ser devueltos al solicitante, para su respectiva presentación en Costa Rica.

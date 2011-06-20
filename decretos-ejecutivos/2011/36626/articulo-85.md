@@ -1,0 +1,1 @@
+Artículo 85.—Recibida la documentación en la Dirección General, ésta la someterá a estudio y comunicará la resolución pertinente al consulado, teniendo un plazo máximo de noventa días para resolver y emitir la resolución final en solicitudes planteadas.

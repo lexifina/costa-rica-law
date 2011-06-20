@@ -1,0 +1,1 @@
+Artículo 52.—La persona extranjera que no gestione de previo al ingreso a Costa Rica, la solicitud de visa provisional para optar por la residencia temporal de religioso a religiosa, deberá cumplir con el procedimiento establecido en la ley para el cambio de categoría, cumpliendo con los plazos, requisitos y términos establecidos por la Ley y su Reglamento.

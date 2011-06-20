@@ -1,0 +1,1 @@
+Artículo 119.—Una vez conocida la decisión por parte de la Comisión de Visas Restringidas deberá la Dirección General emitir la correspondiente resolución en la que se indicará a la persona interesada el resultado de su petición, sea de autorización o denegatoria. Esta resolución, la deberá estar firmada por al menos dos miembros de la Comisión.

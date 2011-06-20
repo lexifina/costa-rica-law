@@ -1,0 +1,1 @@
+Artículo 230.—Una vez recibidos los oficios suscritos por los respectivos ministros, deberá el Ministerio de Gobernación Policía y Seguridad Pública emitir un Acuerdo con la designación de los miembros de la Comisión. Este Acuerdo deberá publicarse en el Diario oficial La Gaceta.

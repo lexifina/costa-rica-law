@@ -1,0 +1,1 @@
+Artículo 133.—Este procedimiento deberá aplicarse también a aquellos casos en los que aunque exista visa autorizada por la Dirección General de Migración y Extranjería el estampado por parte de nuestro Consulado General ha estado pendiente por una serie de verificaciones e investigaciones.

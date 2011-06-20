@@ -1,0 +1,1 @@
+Artículo 227.—La Comisión de Visas y Refugio estará integrada por el Ministro de Trabajo y Seguridad Social o su representante, el Ministro Seguridad Pública o su representante, y el Ministro de Relaciones Exteriores y Culto o su representante.

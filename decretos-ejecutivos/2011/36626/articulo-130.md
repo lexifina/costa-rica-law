@@ -1,0 +1,1 @@
+Artículo 130.—El Consulado de Costa Rica en China notificará a la Dirección General de Migración y Extranjería los resultados del estudio de los documentos confrontados y de la entrevista realizada. Este informe será estudiado por la Comisión de Visas Restringidas sobre este decidirá si autoriza o deniega la visa.

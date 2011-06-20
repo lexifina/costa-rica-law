@@ -1,0 +1,1 @@
+Artículo 33.—En caso de solicitudes de visa de urgencia por razones fundadas, el cónsul deberá de atender de inmediato esta solicitud, sin dejar de realizar el estudio y análisis necesarios para resolver la petición.

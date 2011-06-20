@@ -1,0 +1,1 @@
+Artículo 6º—Las Directrices Generales de Visas de Ingreso y permanencia para no residentes, contemplarán los países que no requerirán visa, los que requerirán visa consular y los que requerirán visa restringida.

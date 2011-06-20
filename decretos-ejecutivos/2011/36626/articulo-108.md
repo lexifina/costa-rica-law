@@ -1,0 +1,1 @@
+Artículo 108.—En caso de que la solicitud sea aprobada, la visa será extendida en el pasaporte o documento de viaje idóneo, emitido por la autoridad y en ella se deberá indicar la categoría migratoria, la categoría y el plazo de permanencia legal autorizado.

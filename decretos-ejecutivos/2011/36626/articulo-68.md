@@ -1,0 +1,1 @@
+Artículo 68.—Una vez verificados los requisitos, el Cónsul deberá seguir el procedimiento establecido para el otorgamiento de visa consular expuesto en el Título I, Capítulo Segundo “Visas consulares” del presente Reglamento.

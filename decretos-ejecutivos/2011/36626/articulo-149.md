@@ -1,0 +1,1 @@
+Artículo 149.—La Dirección General en caso de visas para personas extranjeras del tercer grupo, o bien la Comisión de Visas Restringidas tratándose de personas extranjeras del cuarto grupo podrán notificar las resoluciones administrativas que autorizan la visa al Cónsul para el estampado de visa en arribo tanto en categoría de no residente como de residente.

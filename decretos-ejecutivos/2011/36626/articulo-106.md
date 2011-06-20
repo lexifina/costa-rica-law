@@ -1,0 +1,1 @@
+Artículo 106.—El Departamento de Contabilidad de la Dirección General, podrá solicitar en caso de duda, copia del recibo emitido por el sistema de visas restringidas y del recibo emitido por la entidad bancaria que se encuentra dentro del expediente administrativo.

@@ -1,0 +1,1 @@
+Artículo 225.—Todo documento aportado ante la Dirección General, deberá estar en el idioma español, caso contrario, la persona interesada deberá presentar una traducción oficial de dicho documento. Además deberá presentarse debidamente legalizado, consularizado y traducido al idioma español.

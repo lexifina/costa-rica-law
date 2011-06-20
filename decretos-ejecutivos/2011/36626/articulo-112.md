@@ -1,0 +1,1 @@
+Artículo 112.—La solicitud de visa por motivos de reunificación familiar constituye para todos los efectos el primer requisito para la residencia, en los casos en que la persona extranjera la solicite, por lo que deberá cumplir con todos los requisitos exigidos por los artículos 73 y 78 de la Ley

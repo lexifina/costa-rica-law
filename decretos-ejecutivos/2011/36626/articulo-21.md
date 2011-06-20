@@ -1,0 +1,4 @@
+Artículo 21.—Entre las funciones de los agentes de migración en el exterior están:
+1. Recibir y remitir a la Dirección General cuando corresponda, las solicitudes de personas extranjeras que deseen ingresar a Costa Rica o permanecer en ella, según las categorías y subcategorías migratorias establecidas al efecto en la Ley Nº 8764.
+2. Otorgar, cuando proceda, las visas de ingreso al país a las personas extranjeras, de acuerdo con lo establecido en la Ley Nº 8764, su Reglamento, y las directrices generales de visas de ingreso y permanencia para no residentes que emite la Dirección General.
+3. Consignar la visa, cuando corresponda y por el tiempo permitido, en los pasaportes o documentos de viaje aceptados por Costa Rica de las personas extranjeras cuyo ingreso al país haya sido autorizado por la Dirección General y de acuerdo con las categorías y subcategorías migratorias respectivas.

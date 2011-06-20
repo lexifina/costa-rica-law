@@ -1,0 +1,1 @@
+Artículo 240.—Las causales y oportunidades de recusación y excusación de los miembros de la Comisión se regirán por las disposiciones de la Ley General de la Administración Pública y su reglamentación.

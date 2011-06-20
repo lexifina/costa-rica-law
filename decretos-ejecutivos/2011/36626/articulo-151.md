@@ -1,0 +1,1 @@
+Artículo 151.—En caso de visas restringidas su determinación depende de la Comisión de Visas Restringidas y Refugio y se seguirá el procedimiento establecido para solicitudes en calidad de no residentes.

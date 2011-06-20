@@ -1,0 +1,1 @@
+Artículo 30.—Finalizado el procedimiento anterior, el cónsul o a quien este designe, deberá revisar todos los documentos presentados, e indicará a la persona extranjera la hora y fecha para la resolución de su petición.

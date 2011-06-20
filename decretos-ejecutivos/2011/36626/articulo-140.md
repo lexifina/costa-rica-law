@@ -1,0 +1,1 @@
+Artículo 140.—Una vez que la persona extranjera menor de edad ingrese al país, sus progenitores o tutor legal tendrán un plazo improrrogable de treinta días para iniciar las gestiones de su permanencia ante la Dirección General.

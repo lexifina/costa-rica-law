@@ -1,0 +1,1 @@
+Artículo 59.—En caso de solicitarse esta visa para personas menores de edad, el solicitante debe tener aprobada la residencia permanente o temporal y debe estar debidamente documentado para presentar la solicitud.

@@ -1,0 +1,1 @@
+Artículo 206.—Esta visa deberá ser gestionada directamente ante la Dirección General a favor de la persona interesada por un tercero debidamente autorizado al efecto, con un plazo mínimo de diez días anteriores al ingreso del extranjero interesado.

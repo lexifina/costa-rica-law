@@ -1,0 +1,1 @@
+Artículo 243.—El acta consignará el día y la hora de celebración, los nombres de los miembros presentes, los asuntos tratados, las decisiones adoptadas y cualquier declaración especialmente formulada por los comisionados con el fin de que conste en acta. Las actas de la Comisión de Visas, seguirán un consecutivo anual, debiendo cerrarse el libro de actas cada 500 folios.

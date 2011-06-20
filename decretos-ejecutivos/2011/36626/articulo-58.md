@@ -1,0 +1,1 @@
+Artículo 58.—La aplicación de las disposiciones planteadas en esta sección son exclusivas para nacionales que encasillen en los presupuestos del artículo 78 inciso 2) y artículo 79 inciso 1) de la Ley 8764.

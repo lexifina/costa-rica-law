@@ -1,0 +1,1 @@
+Artículo 193.—Si existiera algún tripulante con impedimento, se debe hacer la solicitud de verificación de datos a la INTERPOL tratándose de algún tipo de alerta, o a la Policía de Migración cuando sea algún impedimento.

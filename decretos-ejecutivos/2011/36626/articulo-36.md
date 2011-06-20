@@ -1,0 +1,1 @@
+Artículo 36.—En caso de que la visa sea autorizada, el cónsul procederá, a estampar la respectiva visa en el pasaporte o documento de viaje válido del extranjero siempre y cuando el mismo tenga una vigencia mínima de seis meses.

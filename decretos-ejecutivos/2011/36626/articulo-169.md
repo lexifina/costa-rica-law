@@ -1,0 +1,1 @@
+Artículo 169.—No podrán ser beneficiarios de visas múltiples ninguna persona extranjera que se encuentre realizando a la hora de presentación de la solicitud, trámites de residencia permanente o temporal ante la Dirección General, bajo ninguna de las categorías establecidas en la Ley.

@@ -1,0 +1,1 @@
+Artículo 134.—No se aceptarán libretas de familia emitidas con fechas recientes en las que aparezcan núcleos familiares incompletos o incluso aquellas antiguas en las cuáles aparece el núcleo familiar incompleto, es decir, no se tomarán como válidas libretas de familia en las que no se demuestre el ligamen entre el menor y el solicitante en Costa Rica.

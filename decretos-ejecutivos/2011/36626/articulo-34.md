@@ -1,0 +1,1 @@
+Artículo 34.—La resolución de autorización o denegatoria de una solicitud de visa se fundamentará con base en los acuerdos y tratados internacionales vigentes y en las razones de seguridad, conveniencia y oportunidad para el estado costarricense.

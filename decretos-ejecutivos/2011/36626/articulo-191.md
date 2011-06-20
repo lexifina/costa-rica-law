@@ -1,0 +1,1 @@
+Artículo 191.—Las agencias navieras o empresas registradas deben presentar las solicitudes ante la respectiva oficina regional de Migración en donde vaya a atracar el barco con un margen de tiempo de cinco días hábiles para nacionales del tercer grupo y quince días hábiles si son el cuarto grupo, tiempo con el que contará la Dirección General para resolver su solicitud.

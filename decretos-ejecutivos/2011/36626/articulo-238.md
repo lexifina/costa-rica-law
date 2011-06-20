@@ -1,0 +1,1 @@
+Artículo 238.—Las sesiones, actas y resoluciones de la Comisión tendrán carácter público excepto cuando se trate de visas restringidas que autoricen o denieguen la solicitud de personas menores de edad.

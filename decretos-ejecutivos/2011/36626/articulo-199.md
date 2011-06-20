@@ -1,0 +1,1 @@
+Artículo 199.—Estos permisos no generarán derechos de permanencia definitiva en el país y se otorgarán por el tiempo estipulado por la Dirección General por lo que vencido el mismo, el extranjero deberá solicitar otro nuevo permiso, siempre y cuando no supere un período de noventa días desde que ingresó al país.

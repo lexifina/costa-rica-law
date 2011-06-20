@@ -1,0 +1,1 @@
+Artículo 48.—Una vez en Costa Rica, la persona extranjera con visa provisional de categoría especial, deberá completar su solicitud para obtener en definitiva la categoría especial de estudiante, académico, investigador o voluntario, ante la Dirección General de Migración y Extranjería, cumpliendo con los plazos, requisitos y términos establecidos por la Ley y su Reglamento.
