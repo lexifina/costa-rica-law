@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE BAGACES
+SECRETARÍA MUNICIPAL
+El Concejo Municipal de Bagaces en la sesión ordinaria Nº 30 celebrada el 24 de mayo del 2011, con dispensa de trámite de comisión, se aprueba en firme la publicación del siguiente acuerdo:
+Que conforme a las disposiciones de los artículos 16 y 17 de la Ley del Impuesto sobre los Bienes Inmuebles, Nº 7509 y sus Reformas y de acuerdo al artículo 25 de su Reglamento, La Municipalidad de Bagaces acuerda:
+1. Aprobar el período de recepción de declaraciones masivas para el cantón de Bagaces 1º de julio al 30 de julio del 2011. La declaración será un proceso ordenado, dirigido y controlado y se contará con la asesoría del Órgano de Normalización Técnica del Ministerio de Hacienda, así como con las herramientas para valorar terrenos y construcciones. La Plataforma de Valores por Zonas Homogéneas la cual fue publicada en el Diario Oficial La Gaceta Nº 143 del 24 de julio del 2008. Además se adhiere a la Tipología Constructiva publicada por el Órgano de Normalización Técnica del Ministerio de Hacienda en La Gaceta Nº 30 del 11 de febrero del 2011.
+2. Aprobar el Proceso de Valoración Masiva una vez concluido el proceso de declaración masiva. Se realizará la valoración a todos aquellos propietarios considerados omisos y sus bienes inmuebles serán objeto de un avalúo por parte de la Administración Tributaria.
