@@ -1,0 +1,2 @@
+Artículo 9º—Para el reconocimiento de jornada extraordinaria, el Jefe de Programa deberá presentar ante la Dirección de Recursos Humanos, a más tardar en los siguientes 5 días hábiles en que se laboró la jornada extraordinaria, un informe detallado de las horas laboradas, esto conforme a los requisitos establecidos en el Capítulo VI del presente Reglamento.
+El pago de la jornada extraordinaria se realizará de acuerdo a las fechas establecidas por la Tesorería Nacional del Ministerio de Hacienda.

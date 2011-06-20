@@ -1,0 +1,1 @@
+Artículo 11.—Recursos Humanos, será responsable del registro, verificación y control del pago de la cantidad de horas extraordinarias autorizadas por la Dirección General Administrativa y Financiera y del control del contenido económico autorizado, por cada uno de los programas presupuestarios.

@@ -1,0 +1,1 @@
+Artículo 3º—Del ámbito de aplicación: El presente Reglamento será aplicable a todos los funcionarios (as) del Ministerio, excepto a aquellos que por las labores que ejecutan o el cargo que desempeñan, no estén sujetos a limitación de jornada.

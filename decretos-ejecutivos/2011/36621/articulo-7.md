@@ -1,0 +1,1 @@
+Artículo 7º—No se podrá autorizar jornada extraordinaria en forma permanente. El Director o Jefe de cada unidad deberá verificar que los servidores (as) que requieran trabajar en jornada extraordinaria, lo hagan alternativamente de acuerdo a cada proyecto de trabajo y de acuerdo a las necesidades que se vayan generando, con el fin de evitar que haya continuidad en el servicio.
