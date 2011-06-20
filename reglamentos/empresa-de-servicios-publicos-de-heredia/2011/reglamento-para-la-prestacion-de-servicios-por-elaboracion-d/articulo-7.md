@@ -1,0 +1,2 @@
+Artículo 7º—El tutor de la Empresa que supervise el trabajo o estudio deberá velar por el uso adecuado de la información que reciba el practicante, que este último la utilizará únicamente para fines académicos y que es de uso exclusivo de la Empresa, salvo disposición en contrario manifestada por escrito por la ESPHSA.
+Además, el tutor de la empresa velará por la adecuada divulgación a los grupos interesados, de los trabajos de tesis finalizados.

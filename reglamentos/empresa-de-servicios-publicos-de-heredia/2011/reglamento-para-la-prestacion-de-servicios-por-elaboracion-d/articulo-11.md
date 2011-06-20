@@ -1,0 +1,1 @@
+Artículo 11.—Los trabajos de tesis que sean elaborados con información suministrada por la empresa, por estudiantes o funcionarios de la ESPH serán propiedad intelectual de la Empresa, sin perjuicio del uso académico que puede hacer el autor de la tesis o trabajo profesional que se trate

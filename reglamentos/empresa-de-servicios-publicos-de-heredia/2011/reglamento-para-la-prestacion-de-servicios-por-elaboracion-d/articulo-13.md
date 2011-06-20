@@ -1,0 +1,1 @@
+Artículo 13.—La jefatura que acepte la elaboración de tesis o de una práctica supervisada, cubrirá en la medida de sus posibilidades la existencia de presupuesto suficiente en la partida de otros servicios no especificados, para cumplir con el reconocimiento económico indicado en el artículo seis hasta donde la capacidad financiera de la Empresa lo permita.

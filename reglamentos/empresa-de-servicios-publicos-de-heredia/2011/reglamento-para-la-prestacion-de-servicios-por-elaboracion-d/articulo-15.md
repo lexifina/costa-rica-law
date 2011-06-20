@@ -1,0 +1,1 @@
+Artículo 15.—La Empresa se reserva el derecho de suspender el estudio o práctica sin incurrir en responsabilidad alguna por el incumplimiento de las obligaciones reglamentarias o contractuales acordadas con el practicante, y podrá hacer uso de las acciones legales que correspondan en defensa de sus derechos cuando considere que el estudio perjudica los intereses de la empresa.

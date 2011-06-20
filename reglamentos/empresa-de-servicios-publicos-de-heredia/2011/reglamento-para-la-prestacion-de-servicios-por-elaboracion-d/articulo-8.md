@@ -1,0 +1,1 @@
+Artículo 8º—Cualquier particular que desee utilizar la información producto de trabajos o estudios realizados por estudiantes en la Empresa deberá solicitar el permiso correspondiente a la Gerencia General.

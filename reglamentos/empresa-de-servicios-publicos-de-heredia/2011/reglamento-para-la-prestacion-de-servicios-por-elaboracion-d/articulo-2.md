@@ -1,0 +1,1 @@
+Artículo 2º—Cuando el estudio responda a una necesidad de la Empresa, esta podrá promover ante las instituciones correspondientes la solicitud para que uno o varios estudiantes lleven a cabo dicho estudio.

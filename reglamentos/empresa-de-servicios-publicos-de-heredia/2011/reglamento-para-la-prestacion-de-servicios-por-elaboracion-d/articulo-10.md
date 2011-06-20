@@ -1,0 +1,1 @@
+Artículo 10.—Por cada trabajo de tesis, previo a la presentación ante la autoridad académica, deberá emitirse por parte de los estudiantes un “informe ejecutivo”, dirigido a la Unidad de Recursos Humanos quién valorará remitirlo a la Gerencia General, Junta Directiva o al Contralor Interno, según corresponda, en la que incluyan los principales resultados y recomendaciones.

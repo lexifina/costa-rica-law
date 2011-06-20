@@ -1,0 +1,1 @@
+Artículo 16.—Para la elaboración de tesis, trabajo de grado, práctica profesional y otros, debe existir un contrato escrito entre la empresa y el estudiante que regulen las relaciones en cada caso entre las partes.
