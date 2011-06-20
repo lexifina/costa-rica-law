@@ -1,0 +1,1 @@
+Artículo Quinto.—Las instituciones del Estado, brindarán en la medida de sus posibilidades, la colaboración y facilidades que estén a su alcance, de acuerdo a las competencias legalmente atribuidas, para el cumplimiento de los objetivos de la Comisión Técnica.
