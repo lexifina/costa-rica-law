@@ -1,7 +1,6 @@
 Artículo 10.—Solicitudes de adquisiciones. Los encargados de las Unidades Solicitantes o quien ellos designen formalmente, estarán autorizados para realizar las solicitudes de adquisiciones de las obras, bienes y servicios en el SIREMA. Asimismo serán los responsables de verificar la necesidad pública de contratar y el cumplimiento del objeto de la contratación, salvo disposición en contrario.
-Para la justificación establecida en el artículo 8º inciso a) del RLCA y la determinación de la necesidad pública de contratar servicios de capacitación y formación profesional total o parcialmente y los diseños curriculares se motivarán en un diagnóstico de determinación de necesidades institucionales elaborado o contratado por la UPE, este estudio deberá complementarse con las
-prospecciones realizadas por cada Unidad Regional del INA, para los casos en que la necesidad deba definirse según la pertinencia del mercado de la zona.
-Para complementar el diagnóstico de determinación de necesidades institucionales también podrán utilizarse las siguientes fuentes:
+Para la justificación establecida en el artículo 8° inciso a) del RLCA y la determinación de la necesidad pública de contratar servicios de capacitación y formación profesional total o parcialmente y los diseños curriculares se fundamentarán en diagnósticos de determinación de necesidades institucionales elaborados o contratados por las Unidades Regionales, Núcleos Tecnológicos, UPE o Gerencia General. Estos estudios deberán complementarse con estudios de prospección de mercado que se realicen en el INA.
+Además podrán utilizarse otras fuentes de información tales como:
 a) Políticas y programas gubernamentales e institucionales.
 b) Requerimientos de organismos nacionales e internacionales.
 c) Comités de Cúpula, Comités de Enlace sectoriales y Regionales.
@@ -18,7 +17,8 @@ m) Información generada por empresas catalogadas como Centros Colaboradores.
 n) Estudios de necesidades y requerimientos de formación y capacitación.
 o) Informantes clave de los diferentes sectores de la economía.
 p) Ferias vocacionales.
-q) Pre matrículas reportadas por las regionales.
+q) Prematrículas reportadas por las regionales.
 r) Lista de personas interesadas que generan las comunidades.
 s) Bases de datos de personas interesadas en las Unidad Regionales y en el Centro de Llamadas INA.
 t) Otras señales del mercado, así como aquellas que al efecto la administración considere convenientes conforme al interés general.
+(Así reformado en sesión N° 4489 del 20 de junio del 2011)

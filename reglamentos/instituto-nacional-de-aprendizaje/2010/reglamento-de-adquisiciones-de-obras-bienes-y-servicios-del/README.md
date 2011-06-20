@@ -14,3 +14,4 @@ Reglamento de Adquisiciones de Obras Bienes y Servicios del INA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-03 | la propia norma |
+| 2 | 2011-06-20 | Reglamento 4489 (2011-06-20) |

@@ -5,3 +5,5 @@ b) Comisión Local Central de Adquisiciones: Las contrataciones realizadas en la
 c) Comisión Local Regional de Adquisiciones: Las contrataciones realizadas en su Unidad Regional por medio de procedimientos ordinarios o materias excluidas, cuya estimación sea inferior al monto de apelación y superior al monto de las contrataciones directas por escasa cuantía.
 d) EPA: Las contrataciones realizadas por medio de procedimientos ordinarios o materias excluidas, cuya estimación sea igual o menor al monto de las contrataciones directas por escasa cuantía.
 Para determinar el órgano competente de dictar la decisión inicial, se considerará el monto estimado de la contratación de conformidad con el artículo 12 del RLCA.
+La Gerencia determinará mediante directriz la estrategia de adquisición de bienes y servicios en forma centralizada, considerando el mayor beneficio económico para la institución.
+(Así reformado en sesión N° 4489 del 20 de junio del 2011)
