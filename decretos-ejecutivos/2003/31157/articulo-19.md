@@ -1,3 +1,0 @@
-CAPÍTULO V
-De la contabilidad de los teléfonos celulares
-Artículo 19.—Del pago de los servicios telefónicos y de los radiolocalizadores. El Departamento de Contabilidad de la Oficialía Presupuestal será responsable de llevar el control del consumo, en forma separada de cada uno de los teléfonos celulares y tramitar el pago de los servicios de los teléfonos celulares del MOPT, y de la tarifa básica de los teléfonos y líneas celulares propiedad de los funcionarios, en forma mensual de acuerdo con los recibos de cobro presentados por el ICE, para lo cual llevará registros actualizados. Además deberá tramitar la cancelación del importe correspondiente al pago de la mensualidad de los radiolocalizadores.

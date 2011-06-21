@@ -1,1 +1,0 @@
-Artículo 11.—Llamadas internacionales. Tendrán acceso a llamadas internacionales, tanto entrantes como salientes, las líneas celulares del Ministro (a) y los Viceministros (as), y el (la) Oficial Mayor, siempre y cuando sean para atender asuntos estrictamente relacionados en función de su cargo.

@@ -1,3 +1,0 @@
-Artículo 9º—Asignación del servicio de telefonía celular y radiolocalizadores. La línea y el teléfono celular, así como, el radiolocalizador se asignan al puesto, y estarán restringidas a una línea o radiolocalizador por funcionario.
-El funcionario que ocupe, temporal o permanentemente, alguno de los puestos definidos en el artículo 6 del presente Reglamento, asume el uso del servicio celular o radiolocalizador respectivo.
-El funcionario que disfruta del servicio celular y/o radiolocalizador y es trasladado o removido de los puestos mencionados en el artículo 6, debe hacer el traspaso del servicio al nuevo funcionario que ocupe el cargo e informar de inmediato y por escrito al Departamento de comunicaciones.

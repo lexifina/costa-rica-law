@@ -1,2 +1,0 @@
-Transitorio II
-En el plazo de treinta días contando a partir de la publicación del presente Reglamento, la Dirección de Planeamiento Administrativo será la encargada de establecer los procedimientos a seguir para la contratación, uso y control del servicio celular o radiolocalizador, así como, establecer los procedimientos de control y pago cuando el teléfono y línea celular sean propiedad del funcionario. Estos procedimientos se establecerán en el correspondiente Manual de Procedimientos.

@@ -1,1 +1,0 @@
-Artículo 20.—Del cobro del excedente. Si el consumo reportado por el ICE excede el tope establecido por el artículo 10 del presente Reglamento, el Departamento de Contabilidad de la Oficialía Presupuestal informará al funcionario (a) responsable, y lo comunicará a la Dirección de Recursos Humanos para que realice la deducción automática por medio de planilla.

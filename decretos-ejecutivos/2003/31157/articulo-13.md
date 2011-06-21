@@ -1,1 +1,0 @@
-Artículo 13.—De la firma del contrato. Confeccionado el Contrato lo firmarán el Ministro o su delegado (a) y el funcionario (a) responsable. El aparato y los accesorios se entregan posteriormente a la formalización del contrato.
