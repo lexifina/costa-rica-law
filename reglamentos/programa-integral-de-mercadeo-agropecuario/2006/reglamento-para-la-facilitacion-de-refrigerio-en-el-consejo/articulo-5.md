@@ -1,1 +1,3 @@
-Artículo 5º—Cuando las sesiones se den fuera del recinto designado para las sesiones ordinarias, y/o cuando se atiendan invitados especiales, el consejo Directivo podrá acordar otro tipo de facilitación de alimentos.
+Artículo 5º—Cuando se de una sesión extraordinaria fuera del recinto designado para las sesiones por existir algún asunto de interés público, político, social o comercial para el PIMA, podrán los participantes a la sesión recibir tal beneficio bajo los parámetros del artículo 3 del presente Reglamento, todo sin perjuicio del derecho a viáticos que gozan los funcionarios públicos.
+En caso de existir un invitado especial, tales como altos jerarcas de las instituciones gubernamentales, delegados diplomáticos, miembros de la UMMM o de FLAMA el costo de dicho beneficio podrá aumentarse de manera racional y siguiendo las reglas del artículo 2 del presente reglamento.
+(Así reformado y publicado en La Gaceta N° 119 del 21 de junio de 2011)

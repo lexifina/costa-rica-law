@@ -14,3 +14,4 @@ Reglamento para la Facilitación de Refrigerio en el Consejo Directivo de PIMA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-02-20 | la propia norma |
+| 2 | 2011-06-21 | Reglamento 0 (2011-06-21) |
