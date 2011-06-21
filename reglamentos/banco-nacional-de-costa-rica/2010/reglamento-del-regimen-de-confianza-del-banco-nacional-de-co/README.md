@@ -14,3 +14,4 @@ Reglamento del Régimen de Confianza del Banco Nacional de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-13 | la propia norma |
+| 2 | 2011-06-21 | Reglamento 11708 (2011-06-21) |
