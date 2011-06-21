@@ -17,3 +17,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | 2 | 2011-01-01 | Resolución 5 (2010-12-20) |
 | 3 | 2011-01-01 | Resolución 4 (2010-12-20) |
 | 4 | 2011-02-07 | Resolución 1 (2011-02-07) |
+| 5 | 2011-06-21 | Decreto Ejecutivo 36637 (2011-06-21) |
