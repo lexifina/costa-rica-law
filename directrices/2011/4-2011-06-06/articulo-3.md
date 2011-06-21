@@ -1,0 +1,13 @@
+III- Requisitos para la inscripción de los permisos de taxi en vehículos sin inscribir en el Registro.
+Requisitos generales
+1. Solicitud de inscripción. Solicitud de inscripción suscrita por el titular, debidamente autenticada por un notario público, o mediante escritura pública, con indicación de las calidades de ley y las características del automotor. Debe adjuntarse la Boleta de Seguridad del Notario.
+2. Nota administrativa del Consejo de Transporte Público. Debe certificar el número de acuerdo y sesión en la cual se autorizó el permiso de taxi, nombre y número de cédula de identificación del permisionario, la condición, siendo en este caso únicamente permiso y características de la unidad autorizada a inscribir.
+3. Inscripción y traspaso concomitante. En caso de existir traslado de dominio debe aportarse testimonio de escritura pública.
+4. DUA. Transmisión electrónica de la Declaración Única Aduanera (DUA).
+5. Revisión técnica vehicular (RTV). Documento de revisión técnica (Artículo 10 Decreto Nº 30184-MOPT).
+Ø Transmisión electrónica del documento de revisión técnica en los casos de vehículos importados a partir del 27 de febrero del 2008.
+Ø Informe de verificación de datos original, para los vehículos importados hasta el 26 de febrero del 2008.
+6. Derechos de circulación del año fiscal vigente. Comprobante de pago del Derecho de Circulación del año fiscal (Artículo 9º Ley Nº 7088 y su Reglamento; y artículo 221 Ley de Tránsito). Inscripción de vehículos desalmacenados a partir del 3/9/2009 deben contar con transmisión electrónica del Derecho de Circulación en el Sistema (Ver Circular DRBM-CIR-007-2009).
+7. Entero bancario. Entero bancario pagado, en un banco debidamente autorizado, o por los medios electrónicos permitidos. En este último caso, el notario responsable del documento, debe informar al Registro, mediante razón notarial, consignada en su papel de seguridad, el pago correspondiente indicando el número de entero. Dicho entero deberá estar incluido en la base de datos.
+8. Personería jurídica. Tratándose de personas jurídicas, debe comparecer el representante con facultades suficientes para el acto, y acreditar su personería mediante una certificación notarial o registral a la fecha de la solicitud, o bien, en su caso, en el cuerpo de la escritura el notario debe dar fe de la personería. (Artículo 84 y 110 Código Notarial).
+9. Nota de Hacienda. No se aplican exoneraciones de oficio, competencia reservada a la Administración Tributaria. Todo trámite que se solicite al Registro, exento o libre de Aranceles del Registro o tributos de cualquier otra naturaleza, deben aportar la respectiva Nota de Hacienda que autorice ese trámite exento (Artículos 5º, 8º, 62, 63, 64 del Código Tributario).
