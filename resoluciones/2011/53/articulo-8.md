@@ -1,0 +1,3 @@
+Artículo 8.—Publicación de Medidas para la Contratación
+El compromiso en este tema es publicar leyes, reglamentos, modificaciones o cualquier medida relacionada con la contratación, lo que efectivamente Costa Rica hace en razón de las disposiciones constitucionales y legales.
+Con respecto al compromiso de poner a disposición del público la información, dado que no hay una especificidad en la forma de hacerlo, es viable considerar que el publicar determinada información en una pagina web, es una forma efectiva de otorgar publicidad a esta, por cuanto podrá ser consultada desde cualquier lugar y en cualquier momento.

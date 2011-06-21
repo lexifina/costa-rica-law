@@ -1,0 +1,2 @@
+Artículo 16.—Excepciones
+Siempre y cuando no se conviertan en un medio arbitrario, injustificable o en una restricción encubierta al comercio, es posible mantener medidas necesarias para proteger la moral, la seguridad o el orden públicos, la salud o la vida humana, animal o vegetal, la propiedad intelectual, o relacionadas con mercancías o servicios de personas discapacitadas, de instituciones filantrópicas o del trabajo penitenciario.

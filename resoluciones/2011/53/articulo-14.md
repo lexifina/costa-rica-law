@@ -1,0 +1,4 @@
+Artículo 14.—Adjudicación de Contratos e información sobre adjudicaciones
+En el tema de adjudicaciones, no existen disposiciones particulares en materia de procedimiento, se reitera que las ofertas a ser consideradas deben ser presentadas por escrito y cumplir con los requisitos establecidos en los documentos de contratación.
+La entidad contratante debe fundamentar su decisión, y publicar un aviso en forma inmediata. En cuanto a este punto, no hay un compromiso con respecto a plazos para la publicación, por lo que esta obligación se satisface publicando en los plazos establecidos por la legislación nacional.
+La información confidencial que los proveedores hayan aportado como parte de sus ofertas, no puede ser divulgada sino con autorización de la persona que la brinda. En todo caso debe observarse en todo momento, lo estipulado en el artículo 11 del Reglamento a la Ley de Contratación Administrativa.

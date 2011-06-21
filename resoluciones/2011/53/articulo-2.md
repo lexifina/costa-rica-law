@@ -1,0 +1,10 @@
+Artículo 2º—Ámbito de aplicación.
+Los siguientes lineamientos son de aplicación para todas aquellas instituciones de la Administración activa, a las cuales resulte aplicable el Capítulo 9 del Tratado de Libre Comercio con República Dominicana, Centroamérica-Estados Unidos (en adelante el Tratado), de acuerdo con los umbrales, bienes y servicios a adquirir, y los Anexos de cobertura.
+Las disposiciones del Capítulo 9 son de aplicación para cualquier medida relativa a la contratación pública, y de conformidad con las disposiciones del Capítulo 2: Definiciones Generales operan sobre cualquier ley, reglamento, procedimiento, requisito o práctica, así como directrices, relativas a una contratación cubierta.
+Para efectos del Tratado y la presente resolución, como contrataciones cubiertas deben entenderse aquellas realizadas por cualquier mecanismo contractual, para las que aplica el Tratado. Para efectos de determinar las contrataciones cubiertas, deben tenerse en cuenta los umbrales respectivos, así como si la institución se encuentra enlistada en los Anexos de cobertura.
+A tales efectos, el Tratado contempla tres anexos de cobertura:
+• Anexo 9.1.2(b)(i) que aplicará entre los Estados Unidos y cada una de las otras Partes;
+• Anexo 9.1.2(b)(ii) que aplicará entre las Partes Centroamericanas; y
+• Anexo 9.1.2(b)(iii) que aplicará entre cada Parte Centroamericana y la República Dominicana.
+Además de tener en cuenta que la institución contratante se encuentre cubierta, debe verificarse que la contratación en particular no se encuentre excluida del acuerdo, ya sea por las disposiciones del artículo 1: Ámbito de Aplicación y Cobertura, o bien por las notas que aparecen en las Secciones de cada Anexo del Capítulo 9.
+Sobre el tema del fraccionamiento en las contrataciones previsto en el artículo 13 del Reglamento de Contratación Administrativa, debe tomarse en cuenta que las disposiciones del Tratado son concordantes con la legislación nacional, en el sentido de evitar que los contratos sean fraccionados para evadir la aplicación de las disposiciones del Capítulo o la propia legislación interna.
