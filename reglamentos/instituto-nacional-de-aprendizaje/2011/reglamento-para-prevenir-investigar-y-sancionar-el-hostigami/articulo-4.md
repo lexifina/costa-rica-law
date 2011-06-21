@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de aplicación. Estarán sujetas a la aplicación del presente reglamento, todas las personas integrantes de la comunidad del INA, la cual incluye al personal administrativo, técnico, docente y de apoyo; así como a la población estudiantil o personas que reciban o presten servicios a la institución por cuenta propia o de terceros.
