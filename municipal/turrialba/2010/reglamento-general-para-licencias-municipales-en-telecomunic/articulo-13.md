@@ -1,1 +1,1 @@
-Artículo 13.—Como excepción a lo dispuesto en los artículos anteriores, un solicitante de Uso de Suelo podrá justificar la necesidad de parámetros distintos a los establecidos en dichas normas, debiendo presentar los estudios técnicos que así lo justifiquen. En este caso se otorgará el uso del suelo conforme pero la construcción quedará condicionada al cumplimiento de los requisitos y condiciones del Capítulo V de este Reglamento.
+Artículo 13.—(Derogado mediante sesión N° 60-2011 del 21 de junio del 2011)
