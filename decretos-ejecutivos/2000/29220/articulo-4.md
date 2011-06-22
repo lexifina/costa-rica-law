@@ -2,4 +2,4 @@ CAPÍTULO II
 Del trabajo y centros de trabajo peligrosos e insalubres
 SECCIÓN I
 Labores absolutamente prohibidas
-Artículo 4º—Son labores absolutamente prohibidas para las personas adolescentes, las que por las condiciones tecnológicas, de seguridad, físico ambiental y/o si los productos, sustancias u objetos con que se relacionen sean de carácter tóxico, combustible, inflamable, radiactivo, infeccioso, irritante y corrosivo que podrían ocasionar lesiones permanentes e inclusive su muerte. Además aquellas actividades que presenten peligro de violencia o predisposición a adquirir conductas disociales, vulnerabilidad al abuso sexual y explotación en un entorno perjudicial para el desarrollo biopsicosocial del adolescente.
+Artículo 4º—(Derogado por el artículo 12 del "Reglamento a la Ley sobre Prohibición del Trabajo Peligroso e Insalubre para Personas Adolescentes Trabajadoras", aprobado mediante decreto ejecutivo N° 36640 del 22 de junio del 2011)

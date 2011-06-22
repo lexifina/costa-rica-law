@@ -18,3 +18,5 @@ de las personas adolescentes
 CAPÍTULO I
 DISPOSICIONES GENERALES
 Artículo 1º—Este Reglamento establece las condiciones laborales que deben prevalecer en la contratación laboral de personas adolescentes, con énfasis especial en el tipo de labores permitidas y las condiciones necesarias de trabajo, con el fin de proteger su salud, permitir su desarrollo físico, emocional y social, y evitar la ocurrencia de accidentes y enfermedades laborales.
+Lo relativo a las labores o centros de trabajo prohibidos por insalubres o peligrosos, por su naturaleza o por sus condiciones, se regula por lo que dispone la Ley Nº 8922 de 3 de febrero del 2011 y su Reglamento.
+(Así adicionado el párrafo anterior por el artículo 13 del "Reglamento a la Ley sobre Prohibición del Trabajo Peligroso e Insalubre para Personas Adolescentes Trabajadoras", aprobado mediante decreto ejecutivo N° 36640 del 22 de junio del 2011)
