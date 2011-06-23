@@ -47,3 +47,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | 32 | 2010-06-28 | Decreto Ejecutivo 36113 (2010-06-28) |
 | 33 | 2011-01-24 | Decreto Ejecutivo 36603 (2011-01-24) |
 | 34 | 2011-01-25 | Decreto Ejecutivo 36485 (2011-01-25) |
+| 35 | 2011-06-23 | Decreto Ejecutivo 36704 (2011-06-23) |
