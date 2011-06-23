@@ -1,0 +1,12 @@
+Artículo 19.—Funciones. Como ejecutora de los acuerdos emanados del seno de la CIMAD, la unidad de discapacidad tendrá las siguientes funciones:
+A) Velar por el cumplimiento de los derechos de las personas con discapacidad en el ámbito institucional.
+B) Realizar un estudio detallado de los alcances y resultados de la aplicación del plan institucional en materia de discapacidad, desde la fecha de creación de la comisión. El propósito es reactivar y fortalecer las políticas institucionales o áreas que lo requieran, para el cumplimiento de la ley Nº 7600, Igualdad de Oportunidades para las Personas con Discapacidad.
+C) Promover que el personal de la institución participe en programas de sensibilización y capacitación tendientes a incrementar los conocimientos sobre temas de discapacidad, a fin de mejorar la calidad de la atención y los servicios que presta la Municipalidad.
+D) Coordinar con el CNREE el establecimiento de programas de acción tendientes a garantizar que el espacio físico de la institución sea cada vez más accesible para quienes presentan una discapacidad.
+E) Coordinar la ejecución de talleres, cursos, seminarios y charlas que sensibilicen y capaciten a los funcionarios municipales en materia de discapacidad.
+F) Promover que, en el proceso de formación del ordenamiento jurídico del país, se les consulte al CNREE y a otros entes estatales y privados, así como las ONG de personas con discapacidad, sobre los posibles alcances de normas nuevas, con el fin de que estas respondan, en la medida de lo posible, a la realidad de las personas con discapacidad.
+G) Elaborar estrategias para que los servicios de información y documentación de la Municipalidad sean accesibles a diferentes grupos de personas con discapacidad.
+H) Garantizar, mediante la instalación de sistemas y tecnologías apropiados, que las personas con deficiencias visuales, auditivas o de comprensión tengan acceso a la información pública y a los servicios de la institución.
+I) Ejecutar los planes, los presupuestos y las políticas que Municipalidad establezca por medio de la CIMAD.
+J) Apoyar la gestión legislativa a favor de la accesibilidad de las personas con discapacidad, promoviendo que en la Municipalidad se monitoreen con especial interés las iniciativas de ley que puedan ser susceptibles de afectar los derechos y los intereses de las personas con discapacidad.
+K) Apoyar la gestión interinstitucional en otras comisiones de discapacidad, así como de las ONG existentes en dicha materia.
