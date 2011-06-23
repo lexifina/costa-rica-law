@@ -26,4 +26,5 @@ i) Áreas Marinas de Manejo.
 Decretan:
 CREACIÓN DEL ÁREA MARINA DE MANEJO
 MONTES SUBMARINOS
-Artículo 1º—Declárese Área Protegida bajo la categoría y denominación “Área Marina de Manejo Montes Submarinos” el espacio marino compuesto por 9640 km2, localizado en el Océano Pacífico, en la zona marina delimitada por las siguientes coordenadas geográficas: O 87°00’ y N 6°08’; O 86°26’ y N 5°44’; O 87°17’ y N 4°47’; O 88°00’ y N 4°58’.
+Artículo 1º—Declárese Área Protegida bajo la categoría y denominación “Área Marina de Manejo Montes Submarinos” el espacio marino compuesto por 9640 km2, localizado en el Océano Pacífico, en la zona marina delimitada por las siguientes coordenadas geográficas: O 87º00’ y N 6º08’; O 86º26’ y N 5º44’; O 87º17’ y N 4º47’; O 88º00’ y N 4º58’; con excepción del área comprendida por el Parque Nacional Isla del Coco creado mediante el Decreto Ejecutivo Nº 8748-A ratificado mediante Ley número 6794 del 25 de agosto de 1982, que abarca el territorio insular de la Isla del Coco y la distancia de hasta 12 millas náuticas alrededor de la Isla, medidas a partir de la línea bajamar de la costa según Decreto Ejecutivo número 29834-MINAE del 23 de agosto del 2001.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36727 del 23 de junio del 2011)

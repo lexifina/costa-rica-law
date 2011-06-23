@@ -14,3 +14,4 @@ Crea Área Marina de Manejo Montes Submarinos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-23 | la propia norma |
+| 2 | 2011-06-23 | Decreto Ejecutivo 36727 (2011-06-23) |
