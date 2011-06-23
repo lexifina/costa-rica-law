@@ -14,3 +14,4 @@ Reglamento para la Prevención y Control de la Contaminación por Deshechos Líq
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-05 | la propia norma |
+| 2 | 2011-06-23 | Reglamento 3714 (2011-06-23) |

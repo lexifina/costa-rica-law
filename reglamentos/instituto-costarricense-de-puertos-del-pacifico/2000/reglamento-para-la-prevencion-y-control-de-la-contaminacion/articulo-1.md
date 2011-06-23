@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PUERTOS DEL PACIFICO
+(Esta norma fue derogada por el artículo 32 del Reglamento para la prevención y control de la contaminación en los puertos dados en concesión o bajo jurisdicción del INCOP, aprobado en sesión N° 3714 del 23 de junio de 2011)
 Nuestra junta directiva mediante acuerdo único de la sesión N° 2965 celebrada el 11 de octubre del año en curso, aprobó el Reglamento para la Prevención y Control de la Con lamí nación por Desechos Líquidos y Sólidos, elaborado por el Departamento Legal, que se leerá como sigue:
 REGLAMENTO PARA LA PREVENCIÓN Y CONTROL DE LA
 CONTAMINACIÓN POR DESECHOS LÍQUIDOS Y SÓLIDOS
