@@ -1,0 +1,1 @@
+Artículo 32.—Una vez comprobadas todas las causales, no se admitirá apelación y los beneficios del Programa se cancelarán inmediatamente, de acuerdo a lo establecido en el Artículo 30 de este Reglamento.

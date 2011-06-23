@@ -1,0 +1,1 @@
+Artículo 3º—Será facultad de la Dirección Nacional del ICODER proponer la resolución en las materias referentes al otorgamiento del incentivo económico que no estén expresamente reguladas por el presente reglamento de lo cual informará posteriormente al Consejo Nacional de Deportes.

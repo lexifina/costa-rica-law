@@ -1,0 +1,1 @@
+Artículo 2º—Durante el desarrollo del Programa de Becas, el ICODER supervisará sesiones de entrenamiento y competencias del deportista beneficiado para valorar in situs el cumplimiento del proceso y del compromiso adquirido.

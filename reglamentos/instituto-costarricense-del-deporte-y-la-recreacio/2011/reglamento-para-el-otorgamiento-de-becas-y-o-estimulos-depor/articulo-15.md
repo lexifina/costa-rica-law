@@ -1,0 +1,2 @@
+Artículo 15.—Las Federaciones de las diferentes disciplinas deportivas, deberán presentar en el período estipulado, la solicitud para la asignación de los estímulos, a la cual se le anexará la ficha deportiva (currículo) de cada atleta propuesto para optar al estímulo.
+No obstante lo anterior, el cumplimiento de los requisitos no garantiza la obtención de una beca y/o estímulo económico. Todos los aspirantes serán evaluados mediante un sistema de registro de logros alcanzados.

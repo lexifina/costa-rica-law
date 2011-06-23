@@ -1,0 +1,1 @@
+Artículo 36.—Todo lo relativo al Programa de Estímulos al Deporte que no esté contemplado en este Reglamento, será resuelto por Consejo Nacional de Deportes previa recomendación de la Dirección Nacional del ICODER.

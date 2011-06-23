@@ -1,0 +1,1 @@
+Artículo 19.—La Dirección Nacional instruirá al Departamento Legal para que confeccione el convenio de incentivos entre el ICODER, la Federación Nacional y el/la atleta. Una vez refrendado el convenio, deberá remitir copia al Departamento Financiero para proceder con la transferencia trimestral del monto autorizado a la cuenta señalada en la solicitud.

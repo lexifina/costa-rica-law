@@ -1,0 +1,2 @@
+Artículo 18.—Para que el/la atleta beneficiado(a) pueda gozar de las ventajas del estímulo, se suscribirá conjuntamente con la federación que lo propone y el ICODER, un contrato con objeto de definir los términos bajo los cuales se concede y se recibe el estímulo económico.
+La firma del mencionado convenio, es requisito para desembolsar los fondos asignados. En caso de que el deportista sea menor de edad, el contrato debe ser debidamente refrendado por el padre o encargado.

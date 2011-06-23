@@ -1,0 +1,3 @@
+De la modificación de la beca y/o los estímulos económicos
+Artículo 26.—Los estímulos económicos aprobados podrán ser modificados, en el transcurso del período de vigencia, ya sea disminuyendo, aumentando o suspendiendo el monto fijado, a solicitud de cada Federación Deportiva Nacional previa petición razonada ante la Comisión Permanente de Selecciones Nacionales, la que una vez analizado y dictaminado el caso, dará curso al trámite ya establecido para la aprobación por parte del Consejo Nacional de Deportes.
+Toda modificación para que surta efectos, deberá ser agregada al contrato como anexo.
