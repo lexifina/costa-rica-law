@@ -1,0 +1,20 @@
+4 DEFINICIONES
+- Cuerpo de Evaluadores y Expertos Técnicos del ECA (CEE). Conjunto de personas que realizan procesos de evaluación de la conformidad. Lo integran tanto los Evaluadores como los Expertos Técnicos.
+- Categorías de Evaluadores. Estructura organizacional del CEE.
+- ECA. Ente Costarricense de Acreditación.
+- Evaluación. Proceso realizado por el ECA para determinar la competencia de un organismo de evaluación de la conformidad con base en determinadas normas, u otros documentos normativos y para un alcance de acreditación definidos.
+- Evaluación de la conformidad. Actividad que permite la demostración del cumplimiento de los requisitos especificados relativos a un producto, proceso, sistema, persona u organismo.
+- Evaluación sicológica. Evaluación realizada por un profesional en sicología con el fin de calificar sus atributos personales, actitudes y habilidades en el ámbito psicosocial, para ocupar una categoría en el CEE.
+- Evaluador en Formación Observador (EFO). Persona designada por ECA para observar, como parte de un equipo Evaluador, la evaluación de un OEC.
+- Evaluador en Formación Bajo Supervisión (EFBS). Persona designada por ECA para ejecutar, como parte de un equipo Evaluador y bajo la supervisión de un Evaluador Líder o un Evaluador, algunas etapas de la evaluación de un OEC.
+- Evaluador (E). Persona designada por ECA para ejecutar, como parte de un equipo Evaluador, la evaluación de un organismo que realiza evaluación de la conformidad.
+- Evaluador Líder (EL). Persona a quien el ECA le asigna la completa responsabilidad para las actividades de evaluación específica y de equipo. Evaluador que coordina las actividades realizadas durante una evaluación y figura como responsable del resultado de ésta.
+- Experto Técnico (ET). Persona asignada por el ECA, para proveer conocimientos específicos o experiencia con respecto al alcance de la acreditación a ser evaluado.
+- Institución signataria de convenio. Institución pública o privada que autoriza la participación de un funcionario en los procesos de evaluación de la conformidad realizados por ECA, respaldado por la firma de un convenio de cooperación interinstitucional.
+- Organismo de Evaluación de la Conformidad (OEC). Organismo que realiza servicios de evaluación de la conformad y pueden ser objeto de la acreditación.
+- Plan de mejora. Mecanismo utilizado por ECA para documentar las oportunidades de mejora detectadas a los integrantes del CEE.
+- Protocolo de realimentación. Es una ruta de acciones a tomar para intervenir en una situación específica resultado de las realimentaciones.
+- Testificación a Evaluadores. Proceso de observación sobre el desempeño de los Evaluadores, en el cual el Testificador ECA emite una declaración acerca de lo acontecido durante un proceso de evaluación de la conformidad en un OEC.
+- Testificador ECA. Evaluador Líder designado por ECA que participa como observador del desempeño de un equipo o de un Evaluador durante uno o varios procesos de evaluación de conformidad.
+- Recurso. Petición de cualquier postulante o integrante del CEE para que se impugne la legalidad y/o la oportunidad de cualquier resolución adversa dictada por la Comisión de Acreditación del ECA a través del recurso de revocatoria y/o apelación.
+- Inactividad. Estado mediante el cual un integrante del CEE no realiza evaluaciones, por decisión propia, en un periodo máximo de 1 año. También la inactividad se produce cuando no hay evidencia de actualización de su competencia, por ineficacia en las oportunidades de mejora detectadas, o como resultado de una sanción establecida por la Comisión de Acreditación, por el tiempo que esta determine.

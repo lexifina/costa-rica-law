@@ -1,0 +1,15 @@
+5 RESPONSABILIDADES
+Para cada actividad incluida dentro del procedimiento se han definido sus respectivas instancias responsables. Éstas se detallan en la descripción de las mismas, utilizando la simbología siguiente:
+- Responsable Gerencia: [G]
+- Responsable Asesoría Legal: [AL]
+- Responsable Comisión de Acreditación: [CA]
+- Responsable Comisión de Acreditación: [CAS]
+- Responsable Comité Asesor para mantenimiento del CEE: [CAMCEE]
+- Responsable Área Recursos Humanos: [RRHH]
+- Responsable Gestoría de Calidad: [GC]
+- Responsable Secretaría de Acreditación: [SA]
+- Responsable Psicólogo: [Sic]
+- Responsable Encargado de Capacitación: [EC]
+- Responsable Postulante: [Post]
+- Responsable Integrante CEE: [CEE]
+- Responsable Integrante CEE Inopia: [INOP]
