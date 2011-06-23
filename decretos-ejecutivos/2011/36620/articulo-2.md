@@ -1,0 +1,1 @@
+Artículo 2º—Disposiciones transitorias. Se otorga un plazo el cual vence el 31 de diciembre del 2011, para que se realicen los ajustes necesarios para la aplicación gradual de lo establecido en el presente Decreto.
