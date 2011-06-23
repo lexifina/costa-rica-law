@@ -1,1 +1,0 @@
-Artículo 51.—Fundamentación del acto de desestimación o archivo de denuncias. Cuando se desestime la atención de asuntos denunciados, esa situación deberá quedar debidamente acreditada en los papeles de trabajo de la investigación y en la razón de archivo.

@@ -1,1 +1,0 @@
-Artículo 42.—Responsabilidad por no implantar recomendaciones. Cabrá responsabilidad administrativa contra los funcionarios que incumplan injustificadamente a criterio del Auditor General las acciones para implantar las recomendaciones de la Auditoría General debidamente aceptadas, sin perjuicio de las responsabilidades que les puedan ser imputadas civil y penalmente.

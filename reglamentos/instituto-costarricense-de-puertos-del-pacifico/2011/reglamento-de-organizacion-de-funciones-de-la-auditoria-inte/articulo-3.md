@@ -1,1 +1,0 @@
-Artículo 3º—Aprobación, actualización y promulgación del presente Reglamento. Para la formulación, modificación, aprobación y promulgación del presente Reglamento se estará a lo dispuesto en las Directrices Generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público emitidas por la Contraloría General de la República.

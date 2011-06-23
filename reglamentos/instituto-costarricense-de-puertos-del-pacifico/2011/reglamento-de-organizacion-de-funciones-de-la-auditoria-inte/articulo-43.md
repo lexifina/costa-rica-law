@@ -1,2 +1,0 @@
-Artículo 43.—Planificación de estudios de seguimiento. La Auditoría General formulará y ejecutará un seguimiento de recomendaciones aceptadas y comunicadas a la Administración Activa, del cual brindará un informe semestral o anualmente enfocado a verificar la adecuada y efectiva implementación.
-En cuanto a la verificación de advertencias planteadas a la Administración, se realizará semestral o anual, o bien cuando se estime pertinente.
