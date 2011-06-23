@@ -1,0 +1,1 @@
+Artículo 5º—El Sistema Nacional de Áreas de Conservación dispondrá los recursos necesarios para atender las necesidades, el manejo y desarrollo del Área Marina de Manejo Montes Submarinos; sin perjuicio del aporte que otros entes estatales interesados designen de sus propios presupuestos para esta nueva área protegida.

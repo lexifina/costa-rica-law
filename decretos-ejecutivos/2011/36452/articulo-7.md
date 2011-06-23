@@ -1,0 +1,1 @@
+Artículo 7º—Las instituciones del Estado con competencia en el Área Marina de Manejo Montes Submarinos deberán promover y establecer mecanismos efectivos de coordinación que aseguren la conservación y aprovechamiento sostenible de los recursos naturales presentes en dicha área protegida.
