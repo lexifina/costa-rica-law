@@ -1,0 +1,1 @@
+Artículo 13.—Horas extraordinarias. Al funcionario o funcionaria municipal, que se encuentre sometido al régimen de disponibilidad y sea requerido para presentarse a realizar alguna actuación propia de sus funciones fuera de horario municipal, no se le pagarán horas extras por encontrarse incluido dentro de la compensación de la disponibilidad.

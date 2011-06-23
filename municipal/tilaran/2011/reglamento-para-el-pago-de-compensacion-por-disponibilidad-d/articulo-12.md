@@ -1,0 +1,1 @@
+Artículo 12.—Compensación económica de la prohibición. La Municipalidad de Tilarán pagará a aquel funcionario o aquella funcionaria afectos a este régimen, el porcentaje que establezca la ley correspondiente.

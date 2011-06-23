@@ -1,0 +1,1 @@
+Artículo 18.—Del régimen de disponibilidad. En el régimen de disponibilidad se suspenderá el pago de la misma, cuando el funcionario o funcionaria municipal se encuentre de vacaciones, permisos con o sin goce de salario, incapacitado, cualquier otra situación que le impida desempeñarse en el puesto o cuando se incumpla con lo dispuesto para este régimen en el presente Reglamento.

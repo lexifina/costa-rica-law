@@ -1,0 +1,1 @@
+Artículo 25.—Cumplimiento. La municipalidad, a través de la oficina de recursos humanos, y de los contratantes, según sea el caso, deberá velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento.

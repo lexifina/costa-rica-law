@@ -1,0 +1,4 @@
+Artículo 20.—Deberes. El funcionario o funcionaria municipal que se desempeñe bajo el régimen de disponibilidad deberá cumplir con las siguientes obligaciones:
+Ser localizable durante el período de disponibilidad, para lo cual indicará el número de teléfono, localizador, dirección de domicilio personal o cualquier otro medio que haga posible su ágil y oportuna localización.
+Contestar el requerimiento de inmediato y presentarse en un plazo no mayor de 30 minutos a cumplir con las funciones asignadas y requeridas por el puesto que desempeña.
+En caso que tome vacaciones, se encuentre incapacitado o enfrente situaciones excepcionales, el funcionario o funcionaria municipal debe reportarlo al la oficina de recursos humanos, para que identifique a las personas que pueden sustituirlo en la disponibilidad efectiva de la prestación del servicio.

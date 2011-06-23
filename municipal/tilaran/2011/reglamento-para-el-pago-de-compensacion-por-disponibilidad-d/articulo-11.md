@@ -1,0 +1,1 @@
+Artículo 11.—Compensación económica de la dedicación exclusiva. Una vez suscrito el contrato correspondiente, entre las partes, se reconocerá un 30% a los profesionales con el grado académico de bachiller universitario y un 55% a los profesionales que tengan como grado académico la licenciatura universitaria y que se encuentren incorporados al colegio profesional correspondiente.
