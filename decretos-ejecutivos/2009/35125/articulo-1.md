@@ -1,4 +1,6 @@
+(Derogado)
 Nº 35125-MINAET
+(Este decreto fue derogado por el artículo 3° punto 1° del decreto ejecutivo N° 36704 del 23 de junio de 2011, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE, ENERGÍA
 Y TELECOMUNICACIONES

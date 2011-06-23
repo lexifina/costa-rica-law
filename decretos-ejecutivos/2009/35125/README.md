@@ -14,3 +14,4 @@ Reforma Comisión Nacional para la Gestión de la Biodiversidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-03 | la propia norma |
+| 2 | 2011-06-23 | Decreto Ejecutivo 36704 (2011-06-23) |
