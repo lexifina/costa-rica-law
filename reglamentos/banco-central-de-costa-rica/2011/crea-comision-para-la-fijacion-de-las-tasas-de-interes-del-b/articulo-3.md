@@ -1,0 +1,1 @@
+3. Cada vez que la “Comisión para la Fijación de las Tasas de Interés del Banco Central de Costa Rica” ejerza las atribuciones indicadas en el punto anterior, deberá informar lo actuado a la Junta Directiva en la sesión inmediata siguiente que realice esta última.
