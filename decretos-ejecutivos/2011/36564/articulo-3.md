@@ -1,0 +1,1 @@
+Artículo 3.—El personal de apoyo acreditado al amparo del presente decreto, en lo relativo al desempeño de sus funciones, deberá cumplir con la normativa vigente y tendrá las mismas obligaciones que rigen para los funcionarios regulares del Ministerio de Ambiente, Energía y Telecomunicaciones, con excepción del carácter de policía el cual solo podrá ser otorgado por Ley.
