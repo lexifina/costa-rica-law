@@ -1,0 +1,1 @@
+Artículo 14.—Se entiende por beneficiario de una beca, capacitación o licencia todo trabajador municipal al que se le otorgue dicho beneficio para capacitarse en cualquiera de las áreas académicas, tecnológicas o de formación profesional, que sean de conveniencia para la Municipalidad y que hayan cumplido con los requisitos para tal fin.

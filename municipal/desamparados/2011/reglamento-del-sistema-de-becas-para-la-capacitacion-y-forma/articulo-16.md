@@ -1,0 +1,1 @@
+Artículo 16.—Cuando la beca provenga de un organismo nacional o internacional o de otro gobierno, la Municipalidad podrá complementar al trabajador los beneficios que fueren necesarios para la realización de los estudios.

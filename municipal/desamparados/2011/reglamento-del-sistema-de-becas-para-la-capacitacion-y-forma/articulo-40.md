@@ -1,0 +1,1 @@
+Artículo 40.—En caso de incumplimiento el órgano que otorgó el beneficio determinará si existe responsabilidad y si ésta es parcial o total, previo dictamen que al respecto dará el Departamento de Recursos Humanos, la Municipalidad en la persona del Alcalde tomará las medidas pertinentes en cada caso.

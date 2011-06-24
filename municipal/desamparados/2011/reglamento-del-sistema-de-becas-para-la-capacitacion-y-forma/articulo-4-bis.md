@@ -1,0 +1,1 @@
+Artículo 4º bis—Aquellos empleados contratados interinamente y por servicios especiales, podrán recibir capacitación para actualización profesional o para mejorar el desempeño del puesto, previa solicitud escrita de la jefatura respectiva y la autorización de la Alcaldía Municipal.

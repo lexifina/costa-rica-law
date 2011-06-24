@@ -1,0 +1,2 @@
+Artículo 22.—En caso de que se deniegue la solicitud, el funcionario tendrá derecho a interponer recurso de revocatoria ante la Comisión durante los ocho días hábiles siguientes a la fecha de comunicación y en última instancia pueden apelar ante la Alcaldía Municipal.
+La resolución que se tome en tal caso deberá comunicarle de inmediato al interesado.
