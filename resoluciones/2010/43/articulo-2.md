@@ -1,0 +1,1 @@
+2º—Dejar sin efecto la Resolución Nº R-Lacomet-041-2007, de las catorce horas cincuenta minutos del veintiséis de julio del dos mil siete, denominada “Costo de Servicios Metrológicos del Laboratorio Costarricense de Metrología”, publicada en el Diario Oficial La Gaceta Nº 152, 09 de agosto del 2007.
