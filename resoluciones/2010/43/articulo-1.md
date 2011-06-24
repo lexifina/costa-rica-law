@@ -200,3 +200,13 @@ Brindar recomendaciones sobre los cuidados, uso correcto, calibración y control
 Capacitación en el conocimiento de la metrología y las herramientas necesarias para implementar un sistema bajo control metrológico.
 Traslado de funcionarios
 En cuanto al traslado de los funcionarios a la empresa solicitante de servicios las tarifas que se aplicarán serán las publicadas en La Gaceta por la Contraloría General de la República en el “Reglamento de gastos de viaje y de transporte para funcionarios públicos”
+(*)Cursos de Capacitación
+| | Precio USD
+Curso de Presión-Esfigmomanómetros (8 horas) | 200
+Curso Intermedio de Masas (20 horas) | 500
+Curso Intermedio de Volumen (20 horas) | 500
+Curso Intermedio de Presión (40 horas) | 1000
+Curso Intermedio de Temperatura (40 horas) | 1000
+Curso Avanzado de Temperatura (40 horas) | 1000
+Las Tarifas indicadas para los cursos de capacitación en Curso de Presión-Esfigmomanómetros, Curso Intermedio de Masas, Curso Intermedio de Volumen, Curso Intermedio de Presión, Curso Intermedio de Temperatura, Curso Avanzado de Temperatura serán cobradas a razón de en veinticinco dólares por hora (25,00 USD) por persona por curso.
+(*)( Así adicionado el servicio anterior mediante resolución N° R-LACOMET-048-2011 del 26 de mayo del 2011)
