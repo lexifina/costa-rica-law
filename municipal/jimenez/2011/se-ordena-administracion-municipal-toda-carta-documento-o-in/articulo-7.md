@@ -1,0 +1,1 @@
+7º—Que las actas municipales serán remitidas a más tardar dos horas antes del inicio de la sesión, a la dirección electrónica de cada miembro del concejo, para evitar así entregarlas bajo el sistema de fotocopiado, a excepción de los que no cuenten con este medio que la encontrarán en su respectiva curul.

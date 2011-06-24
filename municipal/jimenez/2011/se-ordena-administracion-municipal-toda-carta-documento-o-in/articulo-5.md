@@ -1,0 +1,1 @@
+5º—Que la Alcaldía y los Departamentos Administrativos u Operativos deberán indicar por escrito el correo oficial al que se le pueda remitir correspondencia de parte del Concejo Municipal, debiendo entregar tal información por escrito ante la Secretaría del Concejo.
