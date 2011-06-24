@@ -1,0 +1,1 @@
+Artículo 31.—El Tribunal de Elecciones podrá, si lo considera conveniente y oportuno, convocar a un acto oficial para la presentación pública de los candidatos inscritos dentro del plazo indicado en el artículo 25 de este Reglamento, este acto se hará dentro de los quince días naturales previos a la fecha de las votaciones.

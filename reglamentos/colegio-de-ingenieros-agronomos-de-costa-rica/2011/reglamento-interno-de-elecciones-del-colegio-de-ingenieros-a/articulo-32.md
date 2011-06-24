@@ -1,0 +1,1 @@
+Artículo 32.—El Tribunal de Elecciones dará a conocer a los electores, los candidatos inscritos para cada uno de los puestos en elección indicando: atestados, fotografía, programa de trabajo, para esto utilizará los medios electrónicos e informáticos del Colegio; tales como pagina Web, boletines electrónicos y cualquier otro medio que considere conveniente.

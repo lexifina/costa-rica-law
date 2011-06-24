@@ -1,0 +1,1 @@
+Artículo 16.—El Tribunal llevará un libro de actas de las sesiones. El libro de actas tendrá sus folios numerados y sellados con el logo del Colegio, de él formarán parte los libros sucesivos que sean necesarios. Las actas deberán ser firmadas por el Secretario y el Presidente. Todos los libros de actas serán legalizados por el Presidente de la Junta Directiva.

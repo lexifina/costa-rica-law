@@ -1,0 +1,1 @@
+Artículo 21.—Los comprobantes físicos de las votaciones, o en su caso, las boletas respectivas así como los reportes finales y las actas en las que se consignen los resultados quedarán bajo custodia del Tribunal de Elecciones.

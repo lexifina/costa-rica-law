@@ -1,0 +1,1 @@
+Artículo 51.—Deróguese el Reglamento de Interno de Elecciones del Colegio de Ingenieros Agrónomos de Costa Rica, aprobado en asamblea general ordinaria Nº 118, celebrada el 26 de enero del 2002 y las reformas a dicho reglamento, aprobadas en la asamblea general extraordinaria Nº 132 del 19 de marzo del 2007 y Nº 135 del 27 de setiembre del 2008.

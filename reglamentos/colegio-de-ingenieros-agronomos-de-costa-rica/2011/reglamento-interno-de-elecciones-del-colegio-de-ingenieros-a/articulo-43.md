@@ -1,0 +1,1 @@
+Artículo 43.—Si llegado el proceso del último puesto en elección y no se hubiere electo ningún miembro afiliado en los puestos anteriores o no se inscribieran candidaturas o postulaciones de éstos para dicho puesto, se procederá de acuerdo a lo establecido en el artículo 37 de este Reglamento.

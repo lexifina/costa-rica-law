@@ -1,0 +1,3 @@
+Artículo 50.—Los colegiados que hayan sido electos, serán juramentados e instalados por el Presidente del Colegio o quien actúe en su lugar en la propia asamblea general en que fueron elegidos.
+En caso de que alguna de las personas elegidas para ocupar alguno de los puestos sometidos a elección no este presente al momento de la juramentación e instalación, se tendrá por renunciada su elección y se cumplirá con lo dispuesto en el artículo 49 de este Reglamento.
+La publicación de la forma en que queda integrada la Junta Directiva, se hará en el Diario Oficial dentro de los quince días siguientes a su elección.

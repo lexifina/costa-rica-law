@@ -1,0 +1,3 @@
+Artículo 3º—Los miembros de la Junta Directiva durarán en sus funciones por el término de dos años y podrán ser reelectos una vez consecutivamente. Se renovarán parcialmente cada año, según el siguiente procedimiento: un año, se elegirá al presidente, al prosecretario, al primer y tercer vocales. Al año siguiente, serán electos el vicepresidente, el secretario, el tesorero, el segundo y el cuarto vocales.
+El fiscal se elegirá en el año en que corresponde elegir al presidente, durará en sus funciones por dos años y podrá ser reelecto.
+La elección de los miembros de la Junta Directiva y de fiscal del Colegio se hará por votación secreta para cada cargo y por mayoría simple.

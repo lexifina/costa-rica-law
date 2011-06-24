@@ -1,0 +1,1 @@
+Artículo 29.—El Tribunal de Elecciones examinará las candidaturas presentadas en la primera sesión que celebre con posterioridad a la fecha de cierre de inscripción y determinará si cumplen los requisitos para su aceptación o rechazo. Esta resolución la hará de conocimiento, por escrito a los interesados en el fax o lugar señalado por éstos para notificaciones.

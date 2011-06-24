@@ -1,0 +1,2 @@
+Artículo 7º—La elección de los miembros del Tribunal y de los suplentes, se hará mediante votación secreta por parte de la Junta Directiva del Colegio, de una lista de quince candidatos que la misma Junta proponga, los que deberán haber aceptado de previo su postulación por escrito y serán elegidos en el mes de julio.
+En la primera sesión de Junta Directiva, posterior al nombramiento, serán juramentados los miembros propietarios y suplentes del Tribunal.

@@ -1,0 +1,1 @@
+Artículo 34.—Todos los candidatos inscritos deben estar presentes desde el inicio de la Asamblea, durante todo el proceso de votación, la declaratoria de elección, la juramentación y en la instalación, en caso contrario, el Tribunal de Elecciones, desestimará su postulación, quedando excluida su candidatura.
