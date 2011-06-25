@@ -1,1 +1,2 @@
-Artículo 37.—Para solicitar vehículos será de acatamiento obligatorio cumplir con los artículos del capítulo IV “De la prestación de los servicios”, debiéndose indicar en el formulario diseñado para este propósito, el nombre del funcionario que guiará el vehículo, al cual, se le denominará “encargado del vehículo”.
+Artículo 37.—Para la solicitud y control de combustible el encargado del vehículo deberá cumplir con lo indicado en el capítulo III del presente Reglamento.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 38 al 37, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

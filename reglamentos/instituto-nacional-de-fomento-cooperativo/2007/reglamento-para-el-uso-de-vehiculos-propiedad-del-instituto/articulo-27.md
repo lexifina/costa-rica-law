@@ -1,12 +1,7 @@
-CAPÍTULO VI
-De los accidentes de tránsito en que intervienen
-los vehículos del INFOCOOP
-Artículo 27.—Cobertura de seguros. Como protecciones que la Institución otorga a todos sus funcionarios durante el ejercicio de sus labores están las siguientes:
-a) Riesgos del trabajo: Todos los conductores de la Institución están amparados por la póliza del seguro contra riesgos del trabajo.
-b) Vehículos: Las unidades de transporte de la Institución estarán aseguradas por:
-i. Responsabilidad civil por lesión o muerte de personas.
-ii. Responsabilidad civil por daños a la propiedad de terceros.
-iii. Colisión y vuelco.
-iv. Cobertura por robo o hurto.
-v. Incendio y rayo.
-Combinación de riesgos adicionales.
+Artículo 27.—Trámites en caso de accidente. En caso de accidente, el funcionario conductor del vehículo de uso administrativo o discrecional, si está en condiciones físicas de hacerlo, debe reportar ante el Gerente Administrativo Financiero(*) lo sucedido y presentar durante las veinticuatro horas siguientes o en el breve plazo posible, según las circunstancias, la denuncia ante el Instituto Nacional de Seguros (INS). Caso contrario se designará un responsable para cumplir con este trámite.
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+En caso de accidente, el funcionario autorizado que conduce un vehículo de la Institución no deberá aceptar arreglos extrajudiciales, por lo que se limitará a indicarle al particular que se apersone o comunique con el Administrativo Financiero(*).
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+Tampoco deberá hacer manifestaciones a ninguna otra autoridad que no sea la judicial, salvo la información que le solicite la autoridad de Tránsito.
+En todo caso deberá cumplir con el procedimiento establecido en el artículo siguiente.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 28 al 27, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

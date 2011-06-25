@@ -1,10 +1,9 @@
-CAPÍTULO V
-De los usuarios de los servicios de transporte
-Deberes y responsabilidades
-Artículo 25.—Responsabilidades del funcionario y acompañantes. Son deberes de los usuarios de los servicios de transporte que presta la Institución:
-a) Conocer y cumplir con las disposiciones que establece la Ley de Tránsito por Vías Públicas Terrestres, el presente Reglamento y el Manual sobre Normas Técnicas de Control Interno Relativas al Uso Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República.
-b) Portar la licencia o identificación que los acredita como funcionarios de esta Institución, mientras viaja en vehículos del INFOCOOP, salvo el caso de particulares autorizados.
-c) Hacer uso de los servicios de transporte que presta la Institución, en situaciones justificadas y por razón del desempeño de las labores propias de la Institución.
-d) Mantener una posición de respeto para las otras personas que viajan dentro del vehículo y las que se encuentran fuera de él.
-e) Reportar al encargado de conducir el vehículo o al Proceso Administración y Finanzas, cualquier irregularidad que observe en el transcurso del servicio, ya fuere en el vehículo o en cumplimiento del presente Reglamento.
-Respetar las decisiones adoptadas por el conductor del vehículo, en el tanto se ajuste a la normativa vigente.
+Artículo 25.—Ningún funcionario (acompañante de la gira o visitante) está autorizado para:
+a) Exigir al conductor a continuar operando el vehículo cuando se vea en la necesidad de detener la marcha debido a un posible desperfecto mecánico.
+b) Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no podrá aducirse urgencia en el servicio.
+c) El funcionario(s) que es acompañante en la gira no tiene derecho a exigir al conductor que circule por lugares que no tiene relación con el lugar o con la finalidad de la gira.
+d) Cuando los ocupantes de un vehículo realicen paradas en horas de desayuno, almuerzo o comida, deberán evitar estacionar el vehículo frente a expendios de licor u otro lugar que pueda menoscabar la función que se realiza.
+e) En general, ningún funcionario tendrá autoridad para obligar al conductor a violar el presente Reglamento o las leyes vigentes.
+f) Viajar en estado de ebriedad, drogas o estupefacientes.
+Causar daños o destrozos al vehículo en que viaje.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 26 al 25, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

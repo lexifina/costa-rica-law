@@ -1,5 +1,3 @@
-CAPÍTULO VII
-Funcionarios calificados para
-el uso de vehículos
-Artículo 35.—Cualquier servidor de la Institución o miembro de la Junta Directiva que tenga al día la licencia para conducir vehículo y que esté debidamente incorporado en el registro de conductores, estará facultado para conducir los vehículos institucionales en función de su cargo.
-Para ello bastará que satisfaga y esté dispuesto a asumir los requisitos pertinentes y necesarios que establece este Reglamento.
+Artículo 35.—El Administrativo Financiero(*), deberá llevar al día un registro de los funcionarios y miembros de Junta Directiva que conducen los vehículos de la Institución. Dicho registro de conductores deberá contener la siguiente información: nombre completo del conductor; número de cédula de identidad; indicación de su estado de salud; tipo, número y fecha de vencimiento de la licencia de conducir; unidad administrativa a la que pertenece; cargo que ocupa; lugar de trabajo; carné institucional y aquella información relevante sobre accidentes de tránsito ocurridos con vehículos de la institución.
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 36 al 35, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

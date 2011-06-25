@@ -1,1 +1,12 @@
-Artículo 31.—Cobertura de accidentes. El INFOCOOP procederá a cubrir en su totalidad el monto por concepto de deducible del vehículo oficial cuando un funcionario en el ejercicio de sus funciones sufra una colisión o accidente de tránsito, siempre y cuando no medie sentencia condenatoria de los Tribunales de Justicia en donde se establezca su responsabilidad.
+Artículo 31.—Cobertura de accidentes por responsabilidad del funcionario. El INFOCOOP reconocerá el pago por concepto de deducible al INS, sin embargo posteriormente podrá, mediante los mecanismos administrativos y/o judiciales que se estime pertinentes, sentar las responsabilidades del caso y gestionar la recuperación de lo pagado, en los siguientes casos:
+a) Cuando el funcionario conduzca el vehículo sin la debida autorización del Gerente(*) o superior inmediato o que estando autorizado, el accidente de tránsito suceda en u lugar, hora y/o fecha distintos a los autorizados en la respectiva boleta de asignación del vehículo.
+(*)(Así reformado el inciso anterior mediante sesión N° 3831 del 25 de junio de 2011)
+b) Cuando el funcionario permita que otra persona conduzca el vehículo sin causa justificada o sin la debida autorización.
+cCuando el funcionario no tenga su licencia de conductor al día.
+d) Cuando el funcionario se encuentre bajo los efectos del licor, drogas o sustancias psicotrópicas de cualquier otra clase, similar o equivalente, que disminuyan su capacidad física o mental para conducir.
+e) Cuando exista sentencia condenatoria de los Tribunales de Justicia que determinen la responsabilidad del funcionario en el accidente de tránsito, caso en el cual el funcionario deberá pagar el monto correspondiente al deducible que eventualmente tendría que girar la Institución al taller particular o las indemnizaciones que haga el INFOCOOP a favor de terceros afectados cuando el costo del daño sea menor al monto del deducible.
+f) En caso de accidentes menores, entendiéndose éstos como: raspones, golpes leves, abolladuras y otros de esta naturaleza y en cuyos casos las autoridades de tránsito no levante parte alguno y se compruebe que existió negligencia por parte del conductor.
+Los daños por considerar son hasta por el monto correspondiente al tope del deducible respectivo.
+El funcionario por su parte está en la obligación de presentar un informe con el detalle de lo sucedido al Administrativo Financiero(*), con copia a la Dirección Ejecutiva.
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 32 al 31, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

@@ -1,4 +1,5 @@
-Artículo 15.—Corresponde al Proceso Administración y Finanzas:
+Artículo 15.—Corresponde al Administrativo Financiero(*):
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
 a) Planificar, organizar y coordinar las políticas y las actividades de orden administrativo sobre el uso y disposición de los vehículos.
 b) Tramitar en coordinación con las dependencias competentes de la institución, todos los aspectos administrativos y de análisis técnicos que sea necesario realizar, en casos de accidentes de tránsito.
 c) Recomendar el cambio o venta de unidades que por alguna circunstancia han dejado de ser útiles para la institución, previo informe técnico.
@@ -22,7 +23,9 @@ l) Dar trámite a las solicitudes de combustibles, lubricantes, llantas, repuest
 m) Llevar diariamente con la asistencia del mecánico, los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y establecer las respectivas responsabilidades del caso cuando aparezcan daños.
 n) Vigilar que la documentación de los vehículos esté actualizada y debidamente cancelados los derechos de circulación.
 o) Velar que las reparaciones bajo el procedimiento establecido para el Área de Proveeduría, se hagan al menor costo y con el máximo de eficiencia.
-p) Autorizar la salida de vehículos de la Institución, a aquellos funcionarios autorizados que así lo requieran para el adecuado desempeño de sus labores. Dichos funcionarios deberán tener su licencia al día lo que corroborará el Coordinador del Proceso Administración y Finanzas o el funcionario que éste designe.
+p) Autorizar la salida de vehículos de la Institución, a aquellos funcionarios autorizados que así lo requieran para el adecuado desempeño de sus labores. Dichos funcionarios deberán tener su licencia al día lo que corroborará el Gerente Administrativo(*) o el funcionario que éste designe.
+(Así reformado el inciso anterior mediante sesión N° 3831 del 25 de junio del 2011)
 q) Velar porque los vehículos institucionales cuenten con todas las pólizas y que estas se encuentren al día, en caso de no contar con ellas deberá gestionarlas. Igualmente velará para que los derechos de circulación, placas y marchamos de cada vehículo estén al día.
 r) Presentar un informe mensual por vehículo, que contenga: número de vehículo, kilometraje recorrido, lugares visitados (gira), funcionarios responsables, nombre de departamento, propósito de la gira y nombre de la Jefatura que autorizó.
-s) El Proceso Administración y Finanzas, tiene la responsabilidad de entregar los vehículos en buen estado de funcionamiento, así como procurar un eficiente servicio de abastecimiento de combustible y de ejercer el control de su consumo. El conductor será responsable del apropiado y legítimo uso del combustible, debiendo exigir del vendedor la respectiva factura que será el documento por presentar para reembolsarle el monto del gasto incurrido, con la respectiva anotación del kilometraje.
+s) El Administrativo Financiero(*), tiene la responsabilidad de entregar los vehículos en buen estado de funcionamiento, así como procurar un eficiente servicio de abastecimiento de combustible y de ejercer el control de su consumo. El conductor será responsable del apropiado y legítimo uso del combustible, debiendo exigir del vendedor la respectiva factura que será el documento por presentar para reembolsarle el monto del gasto incurrido, con la respectiva anotación del kilometraje.
+(*)(Así reformado el inciso anterior mediante sesión N° 3831 del 25 de junio del 2011)

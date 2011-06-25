@@ -1,9 +1,9 @@
-Artículo 32.—Cobertura de accidentes por responsabilidad del funcionario. El INFOCOOP reconocerá el pago por concepto de deducible al INS, sin embargo posteriormente podrá, mediante los mecanismos administrativos y/o judiciales que se estime pertinentes, sentar las responsabilidades del caso y gestionar la recuperación de lo pagado, en los siguientes casos:
-a) Cuando el funcionario conduzca el vehículo sin la debida autorización del coordinador o superior inmediato o que estando autorizado, el accidente de tránsito suceda en u lugar, hora y/o fecha distintos a los autorizados en la respectiva boleta de asignación del vehículo.
-b) Cuando el funcionario permita que otra persona conduzca el vehículo sin causa justificada o sin la debida autorización.
-c) Cuando el funcionario no tenga su licencia de conductor al día.
-d) Cuando el funcionario se encuentre bajo los efectos del licor, drogas o sustancias psicotrópicas de cualquier otra clase, similar o equivalente, que disminuyan su capacidad física o mental para conducir.
-e) Cuando exista sentencia condenatoria de los Tribunales de Justicia que determinen la responsabilidad del funcionario en el accidente de tránsito, caso en el cual el funcionario deberá pagar el monto correspondiente al deducible que eventualmente tendría que girar la Institución al taller particular o las indemnizaciones que haga el INFOCOOP a favor de terceros afectados cuando el costo del daño sea menor al monto del deducible.
-f) En caso de accidentes menores, entendiéndose éstos como: raspones, golpes leves, abolladuras y otros de esta naturaleza y en cuyos casos las autoridades de tránsito no levante parte alguno y se compruebe que existió negligencia por parte del conductor.
-Los daños por considerar son hasta por el monto correspondiente al tope del deducible respectivo.
-El funcionario por su parte está en la obligación de presentar un informe con el detalle de lo sucedido al Proceso Administración y Finanzas, con copia a la Dirección Ejecutiva.
+Artículo 32.—Responsabilidades del funcionario sobre el uso del vehículo. El funcionario a cuyo cargo estuviese la conducción de un vehículo será responsable ante la Institución según lo determine el órgano decisor del procedimiento administrativo y cubrirá económicamente los daños y perjuicios que el vehículo sufriere o causare, al incurrir en cualquiera de las faltas que a continuación se detallan, independientemente de las sanciones disciplinarias a que se haga acreedor de acuerdo al Código de Trabajo y a la Ley de Tránsito por Vías Públicas y Terrestres.
+a) Transportar particulares, salvo que por emergencia o trabajo lo justifique el Gerente respectivo(*).
+(*)(Así reformado el inciso anterior mediante sesión N° 3831 del 25 de junio del 2011)
+b) Destinar el vehículo a un uso distinto al que se ha autorizado.
+c) Conducir el vehículo bajo los efectos del licor o drogas tóxicas.
+d) Permitir que otras personas no autorizadas conduzcan el vehículo, salvo casos de fuerza mayor.
+e) Abandono del vehículo sin causa justificada, salvo circunstancias especiales y graves.
+f) Conducir a velocidades mayores o menores de lo establecido en la Ley de Tránsito por Vías Públicas y Terrestres.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 33 al 32, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

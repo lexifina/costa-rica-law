@@ -1,8 +1,13 @@
-Artículo 26.—Ningún funcionario (acompañante de la gira o visitante) está autorizado para:
-a) Exigir al conductor a continuar operando el vehículo cuando se vea en la necesidad de detener la marcha debido a un posible desperfecto mecánico.
-b) Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no podrá aducirse urgencia en el servicio.
-c) El funcionario(s) que es acompañante en la gira no tiene derecho a exigir al conductor que circule por lugares que no tiene relación con el lugar o con la finalidad de la gira.
-d) Cuando los ocupantes de un vehículo realicen paradas en horas de desayuno, almuerzo o comida, deberán evitar estacionar el vehículo frente a expendios de licor u otro lugar que pueda menoscabar la función que se realiza.
-e) En general, ningún funcionario tendrá autoridad para obligar al conductor a violar el presente Reglamento o las leyes vigentes.
-f) Viajar en estado de ebriedad, drogas o estupefacientes.
-Causar daños o destrozos al vehículo en que viaje.
+CAPÍTULO VI
+De los accidentes de tránsito en que intervienen
+los vehículos del INFOCOOP
+Artículo 26.—Cobertura de seguros. Como protecciones que la Institución otorga a todos sus funcionarios durante el ejercicio de sus labores están las siguientes:
+a) Riesgos del trabajo: Todos los conductores de la Institución están amparados por la póliza del seguro contra riesgos del trabajo.
+b) Vehículos: Las unidades de transporte de la Institución estarán aseguradas por:
+i. Responsabilidad civil por lesión o muerte de personas.
+ii. Responsabilidad civil por daños a la propiedad de terceros.
+iii. Colisión y vuelco.
+iv. Cobertura por robo o hurto.
+v. Incendio y rayo.
+Combinación de riesgos adicionales.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 27 al 26, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

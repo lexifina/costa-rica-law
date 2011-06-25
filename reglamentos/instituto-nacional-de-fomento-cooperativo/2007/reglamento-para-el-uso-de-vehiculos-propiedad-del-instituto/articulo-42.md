@@ -1,1 +1,4 @@
-Artículo 42.—El Coordinador del Proceso Administración y Finanzas, de conformidad con lo dispuesto en el artículo 239 de la Ley de Tránsito, analizará todo accidente, irregularidad o incumplimiento a este Reglamento en que participe un vehículo de la Institución. Hecho del cual rendirá un informe escrito con la recomendación respectiva a la Administración Superior, a fin de que se proceda con la apertura de un procedimiento administrativo conforme lo establece la Ley General de la Administración Pública.
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 42.—Es responsabilidad de todo funcionario que conduzca vehículos de la Institución, el acatamiento obligatorio de lo establecido en el presente Reglamento.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 43 al 42, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)

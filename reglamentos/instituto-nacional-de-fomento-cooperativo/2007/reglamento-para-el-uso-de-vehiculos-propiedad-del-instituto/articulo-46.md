@@ -1,1 +1,2 @@
-Artículo 46.—Cualquier discrepancia que pudiere presentarse en cuanto a la interpretación o aplicación de este Reglamento, a las atribuciones y jurisdicción del Coordinador del Proceso Administración y Finanzas, será resuelta en última instancia por la Junta Directiva.
+Artículo 46.—Las facilidades o ventajas que presente para los funcionarios o servidores la utilización de vehículos institucionales, no se entenderán como parte del salario para todos los efectos laborales.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 47 al 46, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
