@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE NANDAYURE
+El Concejo Municipal de Nandayure en sesión ordinaria Nº 58 celebrada el día 8 de junio de 2011, acordó: dejar sin efecto temporalmente el acuerdo tomado en la sesión ordinaria Nº 50 celebrada el 13 de abril de 2011, según el inciso 23) del artículo XI, y proceder a estudiar y analizar detenidamente la Tabla de Valores de Terrenos en el Cantón de Nandayure, publicada en La Gaceta Nº 105 del primero de junio del presente año y así determinar si es necesario ajustar las tarifas a la realidad o si se mantiene la publicación realizada en La Gaceta antes mencionada.
+Nandayure, 10 de junio del 2011.—
