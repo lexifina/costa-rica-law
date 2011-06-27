@@ -20,3 +20,4 @@ Crea Programa Nacional de Apoyo a la Micro y Pequeña Empresa 'PRONAMYPE'
 | 5 | 2010-01-29 | Decreto Ejecutivo 35929 (2010-01-29) |
 | 6 | 2010-06-16 | Decreto Ejecutivo 36243 (2010-06-17) |
 | 7 | 2010-09-14 | Decreto Ejecutivo 36238 (2010-09-14) |
+| 8 | 2011-06-27 | Decreto Ejecutivo 36813 (2011-06-27) |
