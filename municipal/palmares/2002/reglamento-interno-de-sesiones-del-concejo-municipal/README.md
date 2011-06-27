@@ -14,3 +14,4 @@ Reglamento Interno de Sesiones del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-17 | la propia norma |
+| 2 | 2011-06-27 | Reglamento municipal 61 (2011-06-27) |
