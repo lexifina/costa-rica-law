@@ -17,3 +17,4 @@ Reglamento Orgánico del Ministerio de Comercio Exterior.
 | 2 | 2001-08-20 | Decreto Ejecutivo 29770 (2001-08-20) |
 | 3 | 2005-05-26 | Decreto Ejecutivo 32401 (2005-05-26) |
 | 4 | 2006-06-23 | Decreto Ejecutivo 33183 (2006-06-23) |
+| 5 | 2011-06-27 | Decreto Ejecutivo 36678 (2011-06-27) |
