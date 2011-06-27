@@ -1,1 +1,0 @@
-Transitorio II.- La recepción y custodia de las declaraciones juradas sobre la situación patrimonial continuará siendo atendida por la División de Fiscalización Operativa y Evaluativa, hasta tanto la Unidad de Servicios de Información asuma plenamente el proceso de gestión de requerimientos de los clientes externos respecto de los ciudadanos individualmente considerados.

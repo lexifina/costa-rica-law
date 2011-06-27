@@ -1,2 +1,0 @@
-Artículo 19 ter.—Organización. La División de Contratación Administrativa se encuentra organizada por funciones a cargo de Gerencias Asociadas dependientes de la Gerencia de División, cuyo número y distribución serán definidos por el Despacho Contralor, mediante resolución motivada en la que se determinarán las atribuciones específicas que ejercerán cada una de ellas.
-(Así adicionado por R-DC-123-2010 del 19 de julio de 2010)

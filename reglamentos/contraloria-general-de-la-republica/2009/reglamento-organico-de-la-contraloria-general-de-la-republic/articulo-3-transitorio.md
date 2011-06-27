@@ -1,1 +1,0 @@
-Transitorio III.- En tanto se designan los funcionarios que desempeñarán servicios en la Unidad de Asesoría Jurídica Interna, el apoyo y asesoría que en materia legal requieran las unidades organizativas internas dentro del rol de administración activa, será brindado por la División Jurídica.

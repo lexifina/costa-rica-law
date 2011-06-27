@@ -1,2 +1,0 @@
-Disposiciones transitorias
-Transitorio I.- En tanto se designa la Jefatura de la Unidad de Relaciones Externas, la atención, programación y fortalecimiento de las relaciones de la Contraloría General con la Asamblea Legislativa, organismos internacionales y otras entidades de fiscalización superior, recaerán en el Gerente de Despacho; y las correspondientes a grupos organizados de la sociedad civil serán atendidas por la Unidad de Servicio de Información.
