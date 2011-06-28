@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de los Festejos Populares de la Mun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-18 | la propia norma |
+| 2 | 2011-06-28 | Reglamento municipal 61 (2011-06-28) |
