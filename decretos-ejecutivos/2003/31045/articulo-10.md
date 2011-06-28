@@ -1,1 +1,0 @@
-Artículo 10.—El Instituto Geográfico Nacional debe entregar una copia de cada registro por sección contratada, al Instituto Costarricense de Turismo y a la municipalidad respectiva, facilitándoles así a esas entidades la aplicación de los mandatos sobre la Zona Marítimo Terrestre.

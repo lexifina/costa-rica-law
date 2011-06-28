@@ -1,1 +1,0 @@
-Artículo 19.—El Instituto Geográfico Nacional tiene un plazo de seis meses para concluir los trabajos que le han sido contratados para la demarcación de la Zona Marítimo, proceso que culmina con la publicación de un aviso en el Diario Oficial.

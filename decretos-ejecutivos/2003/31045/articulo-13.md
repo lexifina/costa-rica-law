@@ -1,1 +1,0 @@
-Artículo 13.—Todo nuevo amojonamiento debe ser autorizado por el ente administrador de la Zona Marítimo Terrestre, sea la municipalidad respectiva, y también se requerirá la autorización para toda densificación de mojones. Nunca una gestión y ejecución de este tipo será por interés y actuación de oficio por parte del Instituto Geográfico Nacional.

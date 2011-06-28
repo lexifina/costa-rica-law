@@ -1,1 +1,0 @@
-Artículo 17.—El Instituto Geográfico Nacional solo ejecutará lo contratado por el interesado y con la autorización previa del ente administrador. En ningún caso alterará los mojones de líneas oficiales colindantes a la contratada.

@@ -1,1 +1,0 @@
-Artículo 9°—El Instituto Geográfico Nacional levantará topográficamente la línea de la zona pública que se contrate y hará la señalización mediante mojones, de lo cual llevará un registro gráfico y numérico de su posición, para efecto de corresponder con los futuros visados.

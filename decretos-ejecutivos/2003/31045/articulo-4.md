@@ -1,1 +1,0 @@
-Artículo 4º—Cada mojón será un monumento de concreto reforzado con varilla de acero, con un diámetro de 12 centímetros por un metro de longitud y empotrado 70 centímetros en concreto, pintado de color amarillo. En una placa metálica tendrá grabado su número y fecha de instalación.
