@@ -1,0 +1,1 @@
+Artículo 3º—La Oficina de Proyectos Tecnológicos en el desempeño de su gestión podrá acceder a la documentación generada por las distintas oficinas, departamentos, comisiones institucionales o proyectos específicos ligados a la gestión de proyectos.

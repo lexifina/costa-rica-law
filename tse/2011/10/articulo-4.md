@@ -1,0 +1,1 @@
+Artículo 4º—La Oficina de Proyectos Tecnológicos deberá presentar a la Dirección General de Estrategia Tecnológica un informe pormenorizado sobre la marcha de los distintos proyectos tecnológicos de la institución, incluyendo las recomendaciones que estime pertinentes cuando así lo requieran. Asimismo, presentará a la Dirección un informe anual sobre el resultado de su gestión.
