@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE HEREDIA
+En acuerdo tomado en la Sesión Ordinaria N° cero noventa y dos-dos mil once, celebrada por el Concejo Municipal del cantón Central de Heredia, el treinta de mayo del 2011, en el Artículo VI, se aprueba de forma definitiva las modificaciones que se publicaron como proyecto en La Gaceta Nº 71 de fecha 12 de abril del 2011 de acuerdo al siguiente detalle:
+1) Modificar en el último punto de las Políticas de Asignación de Recursos del procedimiento original, donde dice “Los recursos que no fueron asignados por medio de este proceso, una vez realizada la selección y priorización por parte del Concejo de Distrito”, para que se lea “Los recursos que no fueron asignados por medio de este proceso, una vez realizada la selección y priorización por parte de la comunidad”.
+2) Eliminar la frase “a la Sesión Ampliada” en el punto Nº 1 de las Políticas para la etapa de aprobación Proyectos Juntas Administrativas y de Educación del procedimiento original.
+3) Eliminar la frase “la cual será una recomendación para el Concejo de Distrito” del punto Nº 5 de las Políticas para la etapa de presentación proyectos al Concejo de distrito del Procedimiento Original.
+Heredia, 17 de junio del 2011.—
