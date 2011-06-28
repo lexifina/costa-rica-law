@@ -1,0 +1,2 @@
+Artículo 8º—Tarifas de hospedaje. Para los supuestos regulados en el artículo anterior, la suma a cobrar por hospedaje será de ¢18.500,00.
+Esta suma, podrá igualmente ser modificada anualmente mediante acuerdo motivado del Concejo Municipal, cuando las variaciones de los costos y precios así lo justifiquen, siempre que no sean superiores a las máximas fijadas por la Contraloría General de la República.

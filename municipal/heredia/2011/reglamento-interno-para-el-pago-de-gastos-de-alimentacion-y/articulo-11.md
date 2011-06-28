@@ -1,0 +1,3 @@
+Artículo 11.—Adelanto. Por adelanto debe entenderse la suma total estimada para los gastos de hospedaje y alimentación que correspondan al período de la gira, de acuerdo con los montos incluidos en este Reglamento.
+Posteriormente a la autorización del viaje, el o los funcionarios que van a realizar la gira deberán solicitar a la Administración el adelanto correspondiente a dicho viaje, esto con la finalidad de asegurar el debido contenido presupuestario para los gastos respectivos.
+Cuando se otorguen adelantos sin que posteriormente se presente la respectiva liquidación o si esta no es aprobada, el funcionario que haya recibido dicha suma deberá proceder a su inmediato reintegro.

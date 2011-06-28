@@ -1,0 +1,1 @@
+Artículo 19.—Aplicación supletoria. Cualquier situación no prevista en este reglamento, será regulada conforme a lo establecido en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República y cualquier otra disposición que al efecto dicte ese órgano.

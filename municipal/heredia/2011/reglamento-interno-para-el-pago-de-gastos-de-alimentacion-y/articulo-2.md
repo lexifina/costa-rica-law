@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. Este reglamento tiene por objeto reconocer a los integrantes de las comisiones municipales permanentes y especiales, el pago de gastos de hospedaje y alimentación, conforme a las condiciones señaladas en el artículo anterior y los siguientes.

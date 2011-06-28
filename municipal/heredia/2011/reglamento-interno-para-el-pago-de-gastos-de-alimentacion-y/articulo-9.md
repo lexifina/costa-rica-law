@@ -1,0 +1,1 @@
+Artículo 9º—Lo correspondiente al pago de gastos de hospedaje y alimentación para giras de trabajo en lugares fuera de la jurisdicción territorial del Cantón Central de Heredia, se regirá por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 4º—Para los efectos de este reglamento, se considera el inicio de una gira, la hora en que el integrante de la Comisión inicie el viaje hacia el lugar de destino. De la misma forma, se considera concluida, cuando el funcionario regresa a la sede del Municipio.

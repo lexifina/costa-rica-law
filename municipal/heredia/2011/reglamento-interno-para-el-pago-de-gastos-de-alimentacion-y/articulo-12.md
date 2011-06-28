@@ -1,0 +1,2 @@
+Artículo 12.—Competencia para extender autorizaciones de giras de trabajo y su fiscalización. Corresponderá al Presidente del Concejo autorizar las giras de trabajo de los miembros de las Comisiones.
+La fiscalización de las giras de trabajo conforme a dicha autorización, así como su duración, será responsabilidad de la Secretaría del Concejo Municipal, quien para tal efecto implementará las medidas de control interno que resulten necesarias.

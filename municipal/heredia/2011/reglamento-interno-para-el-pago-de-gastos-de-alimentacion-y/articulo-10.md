@@ -1,0 +1,1 @@
+Artículo 10.—Improcedencia del pago. No se reconocerá el pago de gasto alguno cuando se trate de giras no autorizadas o cuando éstas no tengan relación con las funciones propias de los integrantes en sus respectivas comisiones municipales o cuando el tiempo de la misma se extienda por culpa del funcionario o por indebida planificación de la gira.

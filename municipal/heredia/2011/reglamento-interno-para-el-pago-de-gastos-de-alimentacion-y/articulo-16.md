@@ -1,0 +1,2 @@
+Artículo 16.—La liquidación correspondiente se deberá presentar dentro de los ocho días hábiles posteriores a la finalización de la gira de trabajo ante la Tesorería Municipal. En caso de que la solicitud se encuentre debidamente justificada y completa, la Tesorería la trasladará de inmediato ante el Alcalde para la autorización del pago.
+La Administración contará con un plazo máximo de diez días hábiles para tramitar y resolver la liquidación presentada, término que iniciará a partir del momento en que la liquidación cumpla con todos los requisitos.
