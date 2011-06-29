@@ -1,0 +1,1 @@
+Artículo 14.—Los adelantos de caja chica se harán en casos excepcionales, según proponga la tesorería municipal y autorice el Despacho de Alcaldía. Para dicho efecto se confeccionará una boleta de adelanto por parte de la Tesorería Municipal, donde constará el monto dado en adelanto y a favor de quién se entrega.

@@ -1,0 +1,1 @@
+Artículo 2º—La Caja Chica será Administrada por el Departamento de Tesorería Municipal, según el artículo 109, párrafo tercero del Código Municipal. Tanto el tesorero municipal como el auxiliar de tesorería, deben tener la póliza de seguridad.

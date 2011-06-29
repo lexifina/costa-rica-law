@@ -1,0 +1,1 @@
+Artículo 8º—El interesado deberá liquidar el vale de caja chica o comprobante de pago a más tardar en un plazo de cuarenta y ocho horas, salvo lo dispuesto en el artículo 8 del Reglamento Interno para pago de viáticos.
