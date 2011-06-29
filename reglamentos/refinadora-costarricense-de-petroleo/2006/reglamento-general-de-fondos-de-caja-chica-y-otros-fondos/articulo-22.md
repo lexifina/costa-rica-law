@@ -1,1 +1,0 @@
-Artículo 22.—Del Adelanto. Bajo ninguna circunstancia se girará un adelanto a un funcionario que tuviere pendiente de liquidar algún adelanto anterior. La responsabilidad sobre el incumplimiento de éste Artículo recaerá tanto sobre el beneficiario como en el encargado de la caja, por partes iguales.

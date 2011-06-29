@@ -1,1 +1,0 @@
-Artículo 27.—De los gastos relacionados con el artículo 107 de la Convención Colectiva. La liquidación de gastos por concepto de actividades contempladas en el artículo 107 de la Convención Colectiva de Trabajo vigente, requerirán de la aprobación del Director de Recursos Humanos.

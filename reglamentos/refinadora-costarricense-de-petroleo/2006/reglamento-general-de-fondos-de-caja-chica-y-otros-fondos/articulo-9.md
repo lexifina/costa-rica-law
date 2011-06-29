@@ -1,1 +1,0 @@
-Artículo 9º—De la prohibición de fraccionar. Queda expresamente prohibido el fraccionamiento. En caso de detección del mismo el Departamento de Administración de Tesorería está facultada para solicitar ante la jefatura respectiva, la sanción correspondiente para el solicitante y el autorizador, de conformidad con el artículo 34 del presente Reglamento.

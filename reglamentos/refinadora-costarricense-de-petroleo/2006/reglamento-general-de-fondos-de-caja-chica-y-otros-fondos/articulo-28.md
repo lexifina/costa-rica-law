@@ -1,1 +1,0 @@
-Artículo 28.—Del contenido presupuestario. Toda liquidación de gastos por Caja Chica deberá contener el sello y firma del funcionario encargado del control presupuestario de cada centro de costo, a fin de que las erogaciones cuenten con el correspondiente contenido.

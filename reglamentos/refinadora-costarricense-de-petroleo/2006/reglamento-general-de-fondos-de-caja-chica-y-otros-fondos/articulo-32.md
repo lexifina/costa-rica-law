@@ -1,2 +1,0 @@
-Artículo 32.—Del control de los vales por adelanto. El encargado del Fondo de Caja Chica, deberá mantener un control actualizado de vales por adelanto de dinero pendientes de liquidar y estará obligado a reportar por escrito al Departamento de Administración de Tesorería los incumplimientos, a más tardar el tercer día hábil siguiente al vencimiento.
-En caso de no hacerlo, el Departamento de Administración de Tesorería está facultado para gestionar ante la jefatura la aplicación del artículo 34 del presente Reglamento.

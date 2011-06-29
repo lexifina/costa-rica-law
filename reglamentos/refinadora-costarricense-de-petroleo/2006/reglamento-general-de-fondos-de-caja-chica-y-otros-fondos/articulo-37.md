@@ -1,2 +1,0 @@
-Artículo 37.—Del control de las sanciones. El Departamento de Administración de Tesorería llevará un control, por funcionario, de las sanciones estipuladas en el artículo 34 del presente Reglamento. Dichas sanciones se computarán en el término de un año hacia atrás según se específica en el artículo 69 de la Convención Colectiva de Trabajo vigente.
-Asimismo, cada jefatura será responsable del seguimiento y aplicación que se le dé a las sanciones.

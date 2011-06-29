@@ -1,1 +1,0 @@
-Artículo 21.—Plazo liquidación del adelanto por viáticos. Los adelantos para gastos de viaje deberán ser liquidados durante el plazo establecido por el Reglamento de Gastos de Viaje y de Transporte para los Funcionarios Públicos, emitido por la Contraloría General de la República.

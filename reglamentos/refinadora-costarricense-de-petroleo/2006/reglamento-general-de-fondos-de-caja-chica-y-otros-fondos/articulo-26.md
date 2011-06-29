@@ -1,1 +1,0 @@
-Artículo 26.—De los gastos relacionados con capacitación. Las liquidaciones de gastos por becas, entrenamiento de personal, y seminarios, deberán tramitarse o autorizarse por el Departamento de Desarrollo de Personal.

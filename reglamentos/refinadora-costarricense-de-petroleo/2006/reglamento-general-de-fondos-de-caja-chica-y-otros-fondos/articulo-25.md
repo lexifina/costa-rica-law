@@ -1,1 +1,0 @@
-Artículo 25.—De los gastos relacionados con la seguridad e higiene en el trabajo. Para la liquidación de aquellos accesorios o implementos que señale la Convención Colectiva de Trabajo vigente en el Capítulo XIII "De la seguridad e higiene en el trabajo", para su pago se requerirá del visto bueno del Departamento de Protección Integral o de la Comisión de Salud Ocupacional.

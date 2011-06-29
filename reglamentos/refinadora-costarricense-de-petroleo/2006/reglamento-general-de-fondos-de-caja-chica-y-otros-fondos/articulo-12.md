@@ -1,1 +1,0 @@
-Artículo 12.—Del plazo para subsanar irregularidades. En caso de que el Departamento de Administración de Tesorería detectara el pago de un bien o servicio que no cumpla con los requisitos del mismo, el cajero o el revisor de los reintegros de los fondos, contará con cinco días hábiles para subsanar las irregularidades.
