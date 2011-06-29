@@ -1,1 +1,0 @@
-Artículo 13.—El departamento competente, deberá presentar una justificación a cada modificación, que asegure que la misma se ajusta a los procedimientos establecidos por la administración y el bloque de legalidad aplicable

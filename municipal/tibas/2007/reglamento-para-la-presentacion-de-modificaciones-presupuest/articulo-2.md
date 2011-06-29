@@ -1,3 +1,0 @@
-CAPÍTULO 2
-Aspectos generales
-Artículo 2º—Concepto de variaciones presupuestarias. Corresponden a los ajustes cuantitativas y cualitativos al presupuesto aprobado por las instancias internas y externas competentes, necesarias para el cumplimiento de los objetivos y metas, derivados de cambios en el ámbito interno y externo de índole económico, financiero, administrativo y legal que pueden ocurrir durante el desarrollo del proceso presupuestario.
