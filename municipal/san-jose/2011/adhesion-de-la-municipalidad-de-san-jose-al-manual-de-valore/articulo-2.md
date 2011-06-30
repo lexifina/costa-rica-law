@@ -1,0 +1,1 @@
+2. Aprobar que se lleve a cabo la publicación de este acuerdo en Diario Oficial La Gaceta y en un diario de circulación nacional, y que en ambas publicaciones se le indique a los habitantes, que tanto este acuerdo como el Manual acá mencionado, se encontrarán en el sitio oficial o página Web de la Municipalidad de San José.

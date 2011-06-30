@@ -1,0 +1,1 @@
+3. Dejar sin efecto el Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Diario Oficial La Gaceta Nº 78 del miércoles 23 de abril de 2008 y al que se adhirió esta Municipalidad, mediante acuerdo numero 22, artículo III, de la sesión ordinaria 125 del 18 de setiembre de 2008.
