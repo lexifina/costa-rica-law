@@ -1,0 +1,32 @@
+MUNICIPALIDAD DE CURRIDABAT
+MODIFICACIÓN AL REGLAMENTO PARA EL OTORGAMIENTO
+DE BECAS A ESTUDIANTES DE ESCASOS RECURSOS
+DEL CANTÓN DE CURRIDABAT
+Por acuerdo Nº 3 de la sesión ordinaria Nº 047-2011 del 24 de marzo de 2011, el Concejo de Curridabat aprobó las siguientes modificaciones al Reglamento para el Otorgamiento de Becas a Estudiantes de Escasos Recursos Económicos del Cantón de Curridabat.
+Artículo 1º—Para el mejor entendimiento del presente Reglamento, se establecen las siguientes definiciones:
+8. Dirección de Responsabilidad Social: Instancia administrativa municipal encargada de verificar el cumplimiento de los requisitos de los becarios así como también de realizar estudios socioeconómicos para determinar la necesidad del otorgamiento del incentivo a los estudiantes del cantón.
+Artículo 6º—Corresponde a la Comisión de Asuntos Sociales en conjunto con los Consejos de Distrito, valorar las solicitudes y recomendar al Concejo Municipal, la adjudicación o rechazo de las becas, analizando la propuesta que en cada caso, le brinden las instituciones educativas del Cantón por parte de los Directores u Orientadores, así como el historial del interesado(a). En caso de las personas con discapacidad será la Comad la que lo determine.
+Artículo 11.—Las instituciones educativas informarán a la Dirección de Responsabilidad Social de la Municipalidad, la persona que se encargará de todo lo relativo a las becas en la institución.
+Artículo 12.—Los Directores y Orientadores de los centros educativos, elaborarán la lista de posibles beneficiarios de beca. Estas listas serán enviadas a la Dirección de Responsabilidad Social, instancia que verificará el cumplimiento de los requisitos establecidos en el artículo 15 del presente reglamento. Cada institución dará a la Dirección de Responsabilidad Social de la Municipalidad, la información que se solicitada y enviará una boleta con el nombre de cada estudiante, para que sirva de referencia. En el caso de las personas con discapacidad, será la Comad la que evalúe las solicitudes presentadas, con base en la Ley Nº 7600. La Dirección de Responsabilidad Social entregará al Concejo Municipal el listado de los estudiantes que han solicitado el beneficio para que éste, por medio de la Comisión de Asuntos Sociales, en conjunto con los Consejos de Distrito, determine quiénes van a ser los beneficiarios finales.
+Artículo 14.—La Comisión de Asuntos Sociales y los Consejos de Distrito, en coordinación con las instituciones educativas, basadas en las solicitudes presentadas, seleccionarán a los beneficiarios dando prioridad a los estudiantes de menores ingresos familiares. Si la Administración lo considera oportuno, la Dirección de Responsabilidad Social elaborará un estudio socioeconómico de cada solicitante. En el caso de las personas con discapacidad, será la Comad la que evalúe las solicitudes presentadas basadas en la Ley Nº 7600.
+Artículo 15.—Los Centros Educativos en cada caso, deberán proceder a abrir un expediente por becado y podrán solicitar para su estudio y comprobación de la situación económica-familiar-social del becado la presentación de los siguientes requisitos:
+3) Fotocopia de la cédula de identidad por ambos lados del solicitante (cédula de menor).
+4) Fotocopia de cédula de identidad por ambos lados, del padre o persona mayor de edad responsable del solicitante.
+5) Cuenta de ahorros a nombre del estudiante beneficiario en el Banco Nacional de Costa Rica.
+7) Autorización por escrito para que la Dirección de Responsabilidad Social realice un estudio socioeconómico (visita al hogar).
+8) Constancia extendida por la Dirección del indique que el estudiante a la fecha se mantiene un buen comportamiento en el caso de estudiantes activos.
+9) Declaración jurada del beneficiario indicando que no posee ninguna beca estatal adicional. Si fuere comprobado que el becario cuenta con un beneficio similar a la beca municipal, ésta le será retirada de forma inmediata para asignarle los recursos a alguno de los estudiantes que estén en lista de espera.
+1. Cualquier otro requisito o visita que sea considerada necesaria por la Administración o el Concejo Municipal para determinar la veracidad de la información.
+Artículo 18.—Los centros educativos deberán presentar trimestralmente, un reporte de asistencia de los becados a la Dirección de Responsabilidad Social. Cada estudiante becado deberá haber asistido al menos al 90% de las lecciones, de lo contrario, el beneficio de beca les será retirado y asignado a algún otro estudiante que esté en lista de espera. Si algún estudiante no cumple con este requisito, deberá justificarlo ante la Dirección de Responsabilidad Social, la cual dará informe de la situación a la Secretaría del Concejo, para que sea esta instancia la que, por medio de la Comisión de Asuntos Sociales y el Consejo de Distrito respectivo, verifique el caso concreto y proceda a someter a acuerdo del Concejo, el retiro de la beca y el otorgamiento del incentivo a otro estudiante anotado en la lista de espera.
+Artículo 20.—El Concejo deberá remitir a la Alcaldía, el acuerdo mediante el cual se autorice a la Administración Municipal, para que a través de la Tesorería realice el depósito del dinero en la cuenta bancaria del beneficiario en el Banco Nacional de Costa Rica, de acuerdo con la lista de becados que para tal efecto remitirá la Secretaría del Concejo a la Tesorería Municipal. La entrega se realizará de forma mensual durante los primeros cinco días de cada mes al interesado.
+Artículo 21.—A los beneficiarios de una beca municipal, se les cancelará el beneficio, cuando incurran en cualquiera de las causales que se citan:
+1. Dejar de ser vecino del Cantón de Curridabat.
+2. Renuncia expresa a la beca.
+3. Que se demuestre haber incurrido en conductas públicamente reprochables.
+4. Dejar de retirar, sin causa justificada, más de dos mensualidades correspondientes al beneficio.
+5. Dejar de ser estudiante activo.
+6. Asistencia menor al 90º durante el ciclo lectivo (art. 18)
+7. Por haber cambiado la situación económica del becario o de su núcleo familiar, de modo que se demuestre que la ayuda de la Municipalidad no es indispensable.
+8. Por la comprobación de que el o la estudiante, ha presentado datos falsos, ocultado información o, cuando no haya notificado a su debido tiempo, las mejoras ocurridas en su situación económica.
+9. Comprobación de que la persona becaria es beneficiaria de otra beca.
+Curridabat, 31 de marzo de 2011.
