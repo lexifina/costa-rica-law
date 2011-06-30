@@ -1,0 +1,15 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº SC-012-2011.—San José, 24 de junio del 2011
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+- DG-296-2011. Modificar el Manual Descriptivo de Especialidades para incluir la carrera de Maestría en Administración de la Tecnología de la Información como atinente a la especialidad Formación Profesional subespecialidad Generalista.
+- DG-298-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera de Licenciatura en Comunicación de Mercadeo como atinente para la especialidad Fomento de Actividades Culturales.
+- DG-299-2011. Modificar el Manual Descriptivo de Especialidades para incluir las Carreras de Magister Scientiae en Conservación y Manejo de Vida Silvestre y Maestría en Manejo de Vida Silvestre como atinente a la especialidad Biología.
+- DG-300-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera de Maestría en Política Económica con énfasis en Economía Internacional como atinente para la especialidad Administración, subespecialidad Generalista.
+- DG-301-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera de Educación Física y Deportes como atinente para la especialidad Formación Profesional, subespecialidad Instrucción Núcleo Turismo y Formación Profesional, subespecialidad Generalista.
+- DG-302-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera de Ciencias de la Educación con Énfasis en la Enseñanza de la Informática, para la especialidad Formación Profesional, subespecialidad Instrucción Núcleo Comercio y Servicios.
+- DG-303-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera de Educación con énfasis en Administración Educativa, para la especialidad Formación Profesional, subespecialidad Instrucción de todos los núcleos que muestra la actual descripción de dicha subespecialidad.
+- DG-308-2011. Modificar el Manual Descriptivo de Especialidades para incluir la carrera de Licenciatura en Relaciones Internacionales con énfasis en Administración y Gerencia de la Cooperación Internacional como atinente a la especialidad Cooperación Internacional, subespecialidades: Administración de Empresas, Administración de Negocios, Comercio Exterior y Relaciones Internacionales. Asimismo, incluir la carrera Enseñanza del Arte y la Comunicación Visual como atinente a la Especialidad Formación Profesional, Subespecialidades: Generalista e Instrucción-Núcleo Procesos Artesanales.
+- DG-309-2011. Modificar el Manual de Clases Anchas para excluir la carrera de Ingeniería Electrónica de las atinencias académicas de la especialidad Meteorología.
+- DG-310-2011. Modificar el Manual Descriptivo de Especialidades para incluir la Carrera Ciencias de la Educación Preescolar Bilingüe, dentro de las atinencias para la Especialidad Atención Integral de Infantes.
+- DG-313-2011. Modificar el artículo 7º inciso a) del Anexo a la Resolución Nº DG-085-99.
+- DG-329-2011. Crear la clase de Secretario de Consejo Presidencial, como parte del Manual de Puestos Sin Oposición y según la descripción y especificación que se adjunta.
