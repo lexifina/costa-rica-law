@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE VÁZQUEZ DE CORONADO
+La Municipalidad de Vázquez de Coronado, con base en los artículos 28, 29 y 30 de la Ley de Planificación Urbana y normativa concordante y vinculada, solicitarán a partir de esta fecha y como requisito imprescindible para trámites de proyectos de construcción y/o patentes, la presentación del Certificado de Uso de Zona debidamente acompañado del criterio emitido por el Departamento de Saneamiento Ambiental de esta Corporación. Ambos documentos pueden ser solicitados en los formularios para tal fin disponibles en el edificio de la Municipalidad o en la página Web. Rige a partir de su publicación.
+Vázquez de Coronado, 20 de junio del 2011
