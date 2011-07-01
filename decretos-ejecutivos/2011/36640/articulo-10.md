@@ -1,0 +1,2 @@
+Artículo 10.—La actuación de la Inspección del Trabajo se hará de oficio, a petición de parte o por denuncia de cualquier persona física o jurídica, y se apegará en un todo a la satisfacción del interés superior de la persona adolescente.
+Para tales efectos, en lo relativo a las actas de inspección y demás trámites se seguirán las previsiones del Capítulo IV del Decreto Nº 29220-MTSS del 30 de octubre de 2000, así como del respectivo Manual de Procedimientos de la Inspección del Trabajo.

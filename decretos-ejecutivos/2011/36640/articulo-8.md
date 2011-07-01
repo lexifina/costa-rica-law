@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las medidas preventivas
+Artículo 8º—El Ministerio de Trabajo y Seguridad Social, por medio de la Oficina de Trabajo Infantil y Adolescente, con la colaboración del Patronato Nacional de la Infancia, realizará acciones de divulgación, capacitación, asesoría y promoción dirigidas a propiciar mejores condiciones de trabajo para las personas adolescentes trabajadoras. Asimismo, para efectos de la correcta aplicación de la Ley Nº 8922, divulgará y asesorará a todos los sectores sociales involucrados, incluyendo a entidades públicas, personas adolescentes, empresas privadas, organizaciones de trabajadores, organizaciones de patronos y patronas, organismos no gubernamentales y la sociedad civil en general
