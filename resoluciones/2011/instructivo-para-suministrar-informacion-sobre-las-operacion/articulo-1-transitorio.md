@@ -1,0 +1,1 @@
+Transitorio: Los intermediarios cambiarios suscritos a MONEX deberán presentar el informe de las operaciones con derivados cambiarlos (Anexo 3) vía fax o correo electrónico hasta la fecha en que el Banco Central de Costa Rica comunique que la Norma Complementaria y el Estándar Electrónico de MONEX estén debidamente ajustados.
