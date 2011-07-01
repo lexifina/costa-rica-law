@@ -1,0 +1,1 @@
+Artículo 3º—Dicho programa será la base de la planificación y ejecución de las actividades de capacitación externa que realice el Ministerio de Trabajo y Seguridad Social, y todos los y las funcionarios(as) del Ministerio deberán ajustar su actividad formativa al mismo.

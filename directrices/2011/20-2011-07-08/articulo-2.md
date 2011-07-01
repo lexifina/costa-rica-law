@@ -1,0 +1,1 @@
+Artículo 2º—La CICE será la responsable de diseñar, mantener y perfeccionar un programa coordinado de capacitación dirigido en especiales a las personas empleadoras y personas trabajadoras, de modo que se asegure un enfoque integrada y debidamente coordinado en los temas que abarquen los eventos de capacitación que prioritariamente se decida impartir.
