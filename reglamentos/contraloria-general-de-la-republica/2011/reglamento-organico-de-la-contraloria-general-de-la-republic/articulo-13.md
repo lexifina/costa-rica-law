@@ -1,0 +1,1 @@
+Artículo 13.—Conformación. La División de Fiscalización Operativa y Evaluativa está conformada por una Secretaría Técnica y por Áreas de Fiscalización Superior, cada una a cargo de una Gerencia de Área dependiente de la Gerencia de División.
