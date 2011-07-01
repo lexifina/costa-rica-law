@@ -1,0 +1,2 @@
+Artículo 6º—Mecánica de Juego. El sorteo se llevará a cabo el día sábado en el programa La Rueda de la Fortuna según el calendario de fechas de realización del programa.
+La entrega del premio se efectuará a la semana siguiente de haber salido favorecido, en La Rueda de la Fortuna o en el Auditorio de la Junta con toma de fotografía para publicar en redes sociales y en la Web de la Junta, de acuerdo con el objetivo de esta promoción y el mercado meta al cual va dirigido y respetando el derecho de imagen.
