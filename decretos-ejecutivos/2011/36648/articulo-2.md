@@ -1,0 +1,1 @@
+Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 36503-H de fecha 3 de marzo del 2011, publicado en el Alcance Nº 20 del Diario Oficial La Gaceta Nº 65 del 1° de abril del 2011, a partir de la vigencia del presente decreto.
