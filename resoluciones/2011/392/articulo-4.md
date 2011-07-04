@@ -1,0 +1,2 @@
+4º—Del recurso humano. Para que en dicho proceso se desarrolle una eficiente gestión, la Gerencia de Proyecto estará conformado por funcionarios(as) de la planilla regular del MOPT y/o sus órganos adscritos.
+Asimismo, la Institución deberá proveer los recursos necesarios e idóneos tanto de índole presupuestario como humano, que permitan que el proceso de gestión del Decenio de Seguridad Vial se desarrolle adecuadamente.
