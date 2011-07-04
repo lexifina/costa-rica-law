@@ -14,3 +14,4 @@ Reglamento para la asignación, uso y control de teléfonos celulares asignados 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-15 | la propia norma |
+| 2 | 2011-07-04 | Reglamento 27 (2011-07-04) |
