@@ -1,4 +1,0 @@
-CAPITULO SÉTIMO
-Del funcionamiento
-Artículo 57.—Toda acción del IMAS deberá estar dirigida a lograr el desarrollo integral de la persona y la familia, su inserción en programas productivos y el desarrollo sostenido de las comunidades en condición de pobreza.
-Los programas del IMAS, estarán orientados a la ejecución y coordinación de acciones y proyectos de desarrollo económico y social, promoción social y de asistencia social, tendientes a conseguir el desarrollo integral de los individuos, la familias y las comunidades en condiciones de pobreza procurando el aumento sostenido de los ingresos económicos de la familia: la inserción en procesos productivos; el desarrollo de las capacidades de las personas; el fomento de organización de grupos con capacidad de solucionar sus propios problemas y el mejoramiento de las condiciones de vida para el desarrollo integral de la familia y la comunidad.

@@ -1,3 +1,0 @@
-Artículo 23.—De cada sesión se levantará un acta, que contendrá al menos la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo, los puntos principales de la deliberación, la formas del resultado de la votación y el contenido de los acuerdos.
-Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa ación carecerán de firmeza los acuerdos tomados en la respectiva sesión a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros del Consejo.
-Las actas serán firmadas por el Presidente y el Secretario y por tic dios miembros que hubieren hecho constar su voto disidente.

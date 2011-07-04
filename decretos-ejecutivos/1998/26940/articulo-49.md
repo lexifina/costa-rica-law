@@ -1,1 +1,0 @@
-Artículo 49.—La administración del IMAS cuando lo considere necesario en razón de la naturaleza de los asuntos a auditar. podrá contratar auditorias externas que estarán a cargo de un Auditor o firma de auditores profesionales, cuando lo considere necesario en razón de la naturaleza de los asuntos a auditar.

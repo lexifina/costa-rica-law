@@ -1,6 +1,0 @@
-CAPITULO CUARTO
-Del Director Ejecutivo o * Subgerente Administrativo Financiero y del * Subgerente de Desarrollo Social
-Artículo 28.—Las competencias señaladas en los artículos 23 y 24 de la Ley N º 4760 para el Director Ejecutivo, estarán a cargo de un Gerente General, término con el cual se le designará en el futuro. Además del Gerente General existirá un Subgerente Administrativo Financiero y un Subgerente de Desarrollo Social. El Gerente General, Subgerente Administrativo Financiero y Subgerente de Desarrollo Social deberán ser costarricenses, con título profesional universitario que los acredite para el ejercicio de sus funciones, de reconocida honorabilidad y con experiencia en el campo de acción del IMAS. Deberán dedicar todo su tiempo al desempeño de sus funciones y no podrán ejercer en forma liberal su profesión, excepto la docencia.
-Las prohibiciones y derechos establecidos en el decreto 26940M1VAH-MTSS para el Subgerente Administrativo Financiero y Subgerente de Desarrollo Social le serán aplicadas al Gerente General.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 34196 del 2 de noviembre de 2007)
-(* Así reformada su nominación por Artículo 2° de Decreto Ejecutivo N° 28593 del 12 de abril del 2000)

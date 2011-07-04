@@ -1,1 +1,0 @@
-Artículo 2°—El IMAS tiene como finalidad resolver el problema de la pobreza y la pobreza extrema del país, para lo cual deberá seguir las directrices dadas por el Poder Ejecutivo, el Plan Nacional de Desarrollo y el Plan Nacional de Lucha contra la Pobreza Extrema.

@@ -1,1 +1,0 @@
-Artículo 61.—De igual manera podrá la institución acudir a cualquier forma contractual autorizada por la legislación para celebrar todo tipo de convenio o contrato con organizaciones privadas sin fines de lucro o Instituciones Públicas para la ejecución de sus diversos programas sociales.

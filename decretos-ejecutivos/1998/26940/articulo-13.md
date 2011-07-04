@@ -1,1 +1,0 @@
-Artículo 13.—Los miembros del Consejo Directivo, salvo Presidente Ejecutivo, quien tendrá su sueldo fijo, devengarán dieta conforme con el monto de remuneración y número de sesiones que establece la Ley o menos, a criterio de dicho cuerpo, las cuales serán únicas remuneraciones que podrán percibir por sus servicios en el ejercicio del cargo.

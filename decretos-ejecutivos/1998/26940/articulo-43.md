@@ -1,1 +1,0 @@
-Artículo 43.—La Auditoría Interna tendrá la facultad de ejercer el control sobre todas aquéllas organizaciones contratadas o que administren o ejecuten fondos del IMAS para la ejecución de sus programas sociales, para lo cual podrá contratar auditorías independientes que bajo sus criterios y lineamientos realicen esta tarea.

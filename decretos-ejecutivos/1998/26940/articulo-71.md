@@ -1,4 +1,0 @@
-CAPITULO NOVENO
-De las exenciones
-Artículo 71.—El IMAS, estará exento del pago de toda clase de impuestos, tasas y contribuciones nacionales o municipales y del pago del impuesto selectivo de consumo para todas las importaciones y compras locales que realice para el cumplimiento de sus fines.
-Exonérasele igualmente, del pago de las tasas de peaje en las autopistas nacionales. Los documentos, actos o contratos, cualquiera que fuere su naturaleza, en que sea parte el IMAS estarán exentos, respecto de todas las partes, de impuestos y tasas sobre esas operaciones, timbres de toda clase, derechos de registro y requisitos y requisitos sobre constancias de valores y cualesquiera otras condiciones o requisitos fiscales o tributarios que exigieren las leyes para tramitarlos o inscribirlos ante el Registro Nacional.

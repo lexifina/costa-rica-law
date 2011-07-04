@@ -1,1 +1,0 @@
-Artículo 60.—El IMAS podrá constituir con recursos propios o provenientes de otras fuentes privadas o públicas, contratos de Fideicomiso ante cualquier entidad del Sistema Bancario Nacional, previa aprobación por parte del Consejo Directivo y cuya finalidad sea contribuir en el combate y superación de la pobreza.

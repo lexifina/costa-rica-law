@@ -1,1 +1,0 @@
-Artículo 51.—En los lugares o regiones que se estime conveniente podrán existir equipos de trabajo del IMAS. El gobierno central, las instituciones autónomas o semiautónomas, las municipalidades o cualquier otra entidad pública podrán ceder en forma gratuita, locales y el equipo necesario para su operación.

@@ -1,1 +1,0 @@
-Artículo 19.—El quórum para que pueda sesionar validamente el Consejo será de cuatro de sus miembros. Si no hubiera quórum, el órgano podrá sesionar válidamente en segunda convocatoria, veinticuatro horas después de la señalada para la primera, salvo en casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de tres de sus miembros.

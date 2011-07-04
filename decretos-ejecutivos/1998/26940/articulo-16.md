@@ -1,1 +1,0 @@
-Artículo 16.—Los miembros del Consejo Directivo solidariamente responsables, cuando sus actuaciones se enmarquen dentro de los supuestos previstos en los artículos 199 siguientes y concordantes de la Ley General de la Administración Pública.

@@ -1,1 +1,0 @@
-Artículo 48.—El nombramiento, del Auditor y del Subauditor lohará el Consejo Directivo y su suspensión o remoción deberá ajustarse a lo dispuesto por el artículo 15 de la Ley Orgánica de la Contraloría General de la República.

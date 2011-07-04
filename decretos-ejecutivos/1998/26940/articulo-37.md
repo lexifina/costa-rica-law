@@ -1,3 +1,0 @@
-CAPITULO QUINTO
-De la Auditoría
-Artículo 37.—La Auditoría interna del IMAS es el órgano auxiliar del Consejo Directivo encargado del proceso de auditoría en el institución que comprende la verificación del cumplimiento de las normas de control legal, económico, contable y financiero de las operaciones de la Institución. Se regirá por las normas de auditoría generalmente aceptadas; por las normas técnicas de auditoría que promulgue la Contraloría General de la República, por el Manual para el ejercicio de la Auditoria Interna emitido por el mismo Órgano Contralor y por el Reglamento Interno de la Auditoría del IMAS.

@@ -1,1 +1,0 @@
-Artículo 74.—No podrá nombrarse como empleado del IMAS, a personas que estuvieren ligadas con los funcionarios indicados en el articulo anterior, por parentesco de consanguinidad o afinidad, hasta el tercer grado inclusive, excepto, si se tratare de profesionales especialistas en materias de interés para el Instituto en las cuales existiere inopia.

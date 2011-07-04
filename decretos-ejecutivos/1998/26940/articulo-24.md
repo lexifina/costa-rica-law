@@ -1,1 +1,0 @@
-Artículo 24.— Los miembros del Consejo Directivo deberán hacer ansiar en el acta su voto negativo o abstención al acuerdo adoptado y los motivos que los justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de esos acuerdos.

@@ -1,2 +1,0 @@
-Artículo 29.—Existirá además un * Subgerente de Desarrollo Social quien deberá ser costarricense, con título profesional universitario que lo acredite para el ejercicio de sus funciones, de reconocida honorabilidad y con experiencia en el campo de acción del IMAS. Deberá dedicar todo su tiempo al desempeño de sus funciones y no podrán ejercer en forma liberal su profesión, excepto la docencia.
-(* Así reformada su nominación por Artículo 2° de Decreto Ejecutivo N° 28593 del 12 de abril del 2000)

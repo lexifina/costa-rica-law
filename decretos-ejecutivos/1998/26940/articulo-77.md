@@ -1,1 +1,0 @@
-Artículo 77.—Para modificar, reformar o derogar el presente Reglamento, se requerirá el voto favorable de por lo menos cinco miembros de Consejo Directivo del IMAS. posteriormente las propondrá al Poder Ejecutivo para el cumplimiento de sus obligaciones constitucionales.
