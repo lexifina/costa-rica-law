@@ -1,0 +1,2 @@
+Artículo 23.—Una vez que se otorgue el permiso para la construcción de la obra o infraestructura de telecomunicaciones (torre, poste o estructura de telecomunicación), el permiso tendrá un plazo de caducidad de 30 días hábiles, plazo en el cual si no se han iniciado las obras el mismo se tendrá por vencido de manera definitiva, debiendo de solicitarse nuevamente en caso de que se quiera nuevamente construir.
+(Así adicionado mediante sesión ordinaria N° 54 del 10 de mayo del 2011 y definitivamente aprobado mediante sesión N° 62 del 5 de julio del 2011)

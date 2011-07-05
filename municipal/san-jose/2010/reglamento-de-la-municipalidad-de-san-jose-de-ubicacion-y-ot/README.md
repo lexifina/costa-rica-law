@@ -14,3 +14,4 @@ Reglamento de la Municipalidad de San José de ubicación y otorgamiento de lice
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-22 | la propia norma |
+| 2 | 2011-07-05 | Reglamento municipal 62 (2011-07-05) |
