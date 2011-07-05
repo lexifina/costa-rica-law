@@ -1,1 +1,1 @@
-Artículo 11º.- En la compra de timbres consulares en cantidades de veinticinco dólares o más, el Estado podrá otorgar hasta un ocho por ciento de descuento.
+Artículo 11.-(Derogado por el artículo 1° de la ley N° 8959 del 5 de julio de 2011)

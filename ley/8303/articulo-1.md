@@ -1,5 +1,7 @@
+(Derogado)
 LEYES
 Nº 8303
+(Esta norma fue derogada por el artículo 3° de la ley N° 8959 del 5 de julio de 2011)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 Artículo único.—Refórmase el artículo 3º de la Ley Nº 3872, Aumento de los derechos fijados en el arancel consular Nº 4 del 8 de octubre de 1946, de 22 de mayo de 1967. El texto dirá:
