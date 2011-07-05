@@ -1,0 +1,1 @@
+6º—La vigencia de la presente resolución se define por dos años a partir de la fecha de emisión, la que podrá renovarse por un período igual mediante resolución formal de la Dirección General de Hacienda, mientras se haya cumplido con las condiciones establecidas para el disfrute de la misma.

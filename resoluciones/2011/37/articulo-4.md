@@ -1,0 +1,1 @@
+4º—Las exenciones descritas en el artículo 662 de la Ley N° 3284, de 01 de junio de 1964; Código de Comercio y el 38 de la Ley N° 8634, de 23 de abril del 2008; Ley del Sistema de Banca para el Desarrollo se otorgarán siempre y cuando los bienes muebles que se requieran inscribir en fideicomiso no estén gozando de algún régimen de exención de los impuestos de importación.

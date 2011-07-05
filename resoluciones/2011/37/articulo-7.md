@@ -1,0 +1,1 @@
+7º—El procedimiento aquí establecido es unilateral y discrecional por parte del Ministerio de Hacienda, por lo que el mismo podrá ser modificado o cancelado en cualquier momento, previo aviso con un mes de anticipación al Registro Nacional.

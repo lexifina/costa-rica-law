@@ -1,0 +1,1 @@
+2º—De previo a la autorización de la inscripción de los bienes incluidos dentro de la figura del fideicomiso, el Registro Nacional debe verificar que el fiduciario se encuentre al día en las obligaciones de seguridad social, según lo establecido en el artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social, Nº 17 de 23 de octubre de 1943.
