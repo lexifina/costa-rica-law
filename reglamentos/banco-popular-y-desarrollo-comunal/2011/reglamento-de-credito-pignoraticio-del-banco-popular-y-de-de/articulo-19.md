@@ -1,0 +1,2 @@
+Artículo 19.—Del lugar, fecha y hora del remate: A la fecha y hora señalada para el primer remate, el corredor jurado anunciará una a una las operaciones relacionadas con los bienes a rematar y su base, y durante el transcurso del remate, anunciará las ofertas de compra que se vayan recibiendo.
+La mejor oferta deberá ser anunciada tres veces, y de no haber mejora, el corredor jurado dará por rematados los artículos e informará a la vez el número de identificación del adjudicatario.

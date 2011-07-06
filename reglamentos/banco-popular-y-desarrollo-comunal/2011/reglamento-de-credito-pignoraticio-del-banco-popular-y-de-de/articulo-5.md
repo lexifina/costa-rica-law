@@ -1,0 +1,1 @@
+Artículo 5º—Tasas de Interés: La tasa de interés para Pignoración será de hasta 25 puntos superiores o inferiores a la tasa básica pasiva (TBP) de referencia calculada por el Banco Central de Costa Rica. Cuando se tratare de créditos en monedas extranjeras, se aplicarán las normas especiales dispuestas por el Banco.

@@ -1,0 +1,2 @@
+Artículo 26.—Liberación de responsabilidades
+El Banco no se responsabilizará por el estado de los artículos vendidos, ni dará garantía alguna después de retirado el bien. Esta condición se hará constar en el documento correspondiente.

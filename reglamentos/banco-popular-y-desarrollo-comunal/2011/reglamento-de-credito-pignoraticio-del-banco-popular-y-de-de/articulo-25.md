@@ -1,0 +1,2 @@
+Artículo 25.—De las exclusiones de garantía: El Gerente de una Sucursal, el Coordinador de un Centro de Servicios Financieros, el Coordinador de un Centro de Alhajas o el Coordinador de una Periférica donde se realice el remate, podrá suspender el remate de un bien en casos excepcionales, debidamente razonados por escrito.
+No obstante, en ningún caso se podrán suspender remates cuando la amortización no supere al menos el 50% del principal de la operación.

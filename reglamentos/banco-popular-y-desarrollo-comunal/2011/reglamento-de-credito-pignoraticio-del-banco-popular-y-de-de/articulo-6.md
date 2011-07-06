@@ -1,0 +1,2 @@
+Artículo 6º—Comisiones: La Gerencia General definirá, dentro de un rango del 0% al 5% calculado sobre el monto del préstamo, el porcentaje de las comisiones y gastos administrativos que se cobrarán sobre los préstamos, así como la periodicidad de su cobro y la base de cálculo. Tanto las comisiones como los gastos administrativos, incluidos los de formalización, podrán ser financiados.
+La Unidad respectiva podrá cobrar, además, comisiones por otros servicios que brinde, según lo establecido en el anexo 3.
