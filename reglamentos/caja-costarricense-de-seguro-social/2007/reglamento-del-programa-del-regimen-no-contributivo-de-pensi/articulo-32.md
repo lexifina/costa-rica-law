@@ -1,2 +1,0 @@
-Artículo 32.—Fecha de pago de las pensiones. Las pensiones de este Régimen se pagarán por períodos mensuales vencidos, que serán entregados directamente a los beneficiarios en los cinco primeros días hábiles del mes siguiente. Los cheques y/o pagos emitidos deberán ser retirados en el plazo de tres meses, de lo contrario, la administración dispondrá el inicio del procedimiento ordinario establecido en el artículo 23 de este Reglamento.
-(Así reformado mediante sesión N° 8167 del 10 de julio de 2007)
