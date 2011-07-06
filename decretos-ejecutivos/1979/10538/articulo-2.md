@@ -88,3 +88,8 @@ Artículo 2°—Se reconocen como Especialidades Médicas:
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
 - Salud Pública.
 - Urología.
+-Subespecialidad de Medicina Reproductiva Humana
+(Adicionada la subespecialidad anterior mediante acuerdo del Colegio de Médicos y Cirujanos y publicado en La Gaceta N° 166 del 30 de agosto de 2011. Asimismo se reconocen como sinónimos de esta subespecialidad los términos de Biología de la Reproducción Humana, Endocrinología Reproductiva e Infertilidad y Endocrinología Reproductiva Ginecológica e Infertilidad. Los requistos de dicha subespecialidad son:
+Medicina Reproductiva
+a. Estar debidamente inscrito y acreditado como Especialista en Ginecología y Obstetricia, ante el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación y acreditación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Medicina Reproductiva, en un Hospital de Tercer Nivel ó Centro de Fertilización, perteneciente o adscrito a una Universidad de reconocido prestigio. Este programa debe abarcar como mínimo aspectos clínicos en las áreas de Andrología (endocrinología e infertilidad masculina), Endocrinología, Genética, Biología Reproductiva. Además deberá contar con estudios complementarios en Cirugía Reproductiva, Ultrasonido y Consejería Psicológica.)
