@@ -17,3 +17,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2010-2011 y Lineamientos para l
 | 3 | 2011-03-17 | Acuerdo 3 (2011-03-17) |
 | 4 | 2011-04-05 | Acuerdo 5 (2011-04-05) |
 | 5 | 2011-06-13 | Acuerdo 6 (2011-06-13) |
+| 6 | 2011-07-07 | Acuerdo 10 (2011-07-07) |
