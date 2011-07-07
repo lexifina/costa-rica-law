@@ -1,0 +1,1 @@
+2º—Dicho documento será obligatorio, el cual se deberá enviar por imagen y tendrá el código de documento 0337, con la siguiente descripción: “Constancia de inscripción para participación en eventos Recreativos y Deportivos en importación temporal”
