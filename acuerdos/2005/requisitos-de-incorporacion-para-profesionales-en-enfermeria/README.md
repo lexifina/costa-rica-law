@@ -14,3 +14,4 @@ Requisitos de Incorporación para Profesionales en Enfermería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-28 | la propia norma |
+| 2 | 2011-07-07 | Reglamento 2044 (2011-07-07) |

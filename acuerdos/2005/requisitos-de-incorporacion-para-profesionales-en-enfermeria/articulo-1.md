@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 17 del Reglamento de incorporación del Colegio de Enfermeras y Enfermeros de Costa Rica, aprobado en sesión N° 2044 del 7 de julio de 2011, se dispone lo siguiente: "...Queda sin efecto los reglamentos anteriores publicados en el 2005 y 2010, referente a los artículos relacionados con la incorporación de profesionales de enfermería al Colegio de Enfermeras y Enfermeros de Costa Rica. ..")
 COLEGIO DE ENFERMERAS DE COSTA RICA
 REQUISITOS DE INCORPORACIÓN PARA
 PROFESIONALES EN ENFERMERÍA
