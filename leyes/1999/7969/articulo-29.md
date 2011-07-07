@@ -2,27 +2,24 @@ CAPÍTULO VI
 CONDICIONES GENERALES PARA LA EXPLOTACIÓN DEL SERVICIO
 SECCIÓN I
 CONCESIONES ADMINISTRATIVAS
-ARTÍCULO 29.- Concesión administrativa previa
-Para la prestación del servicio de taxi, se requiere obtener de
-previo una concesión administrativa otorgada por el Consejo, sujeta a las
-siguientes condiciones:
-a) Las concesiones administrativas de servicio remunerado de personas
-en la modalidad de taxi, estarán subordinadas a los estudios técnicos de
-oferta y demanda aprobados por el Consejo.
-b) Las concesiones se otorgarán por base de operación, según los
-criterios técnicos correspondientes, por un plazo improrrogable de diez
-años. El Consejo podrá autorizar la existencia de bases de operación
-especiales con fines turísticos, dependiendo de las características de la
-zona o área geográfica, las cuales se determinarán mediante un reglamento
-especial, de acuerdo con los principios fundamentales de esta ley.
-c) Se otorgará una sola concesión administrativa por particular, la
-cual amparará la explotación del servicio público con un vehículo.
-d) Ninguna persona adjudicataria de una concesión podrá compartir,
-total ni parcialmente, los derechos de concesión adjudicados a otra que,
-a su vez, sea adjudicataria de otra concesión de servicio público
-remunerado de personas, en otras modalidades de transporte terrestre.
-e) Las concesiones se otorgarán por medio del procedimiento especial
-abreviado dispuesto en las presentes normas. Ningún gestor interesado de
-puertos y aeropuertos podrá ser concesionario de los servicios de
-transporte público remunerado de personas en la modalidad de taxi; tampoco
-se le permitirá brindar este servicio en ninguna modalidad.
+Artículo 29.- Concesión administrativa previa o permiso para servicios especiales estables de taxi
+1.- Para la prestación del servicio de taxi se requiere obtener de previo una concesión administrativa otorgada por el Consejo, sujeta a las siguientes condiciones:
+a) Las concesiones administrativas de servicio remunerado de personas en la modalidad de taxi estarán subordinadas a los estudios técnicos de oferta y demanda aprobados por el Consejo.
+b) Las concesiones se otorgarán por base de operación, según los criterios técnicos correspondientes, por plazos prorrogables de diez años a solicitud de la persona concesionaria, previo cumplimiento de la licencia C-1 al día. El Consejo podrá autorizar la existencia de bases de operación especiales con fines turísticos, dependiendo de las características de la zona o del área geográfica, las cuales se determinarán mediante un reglamento especial, de acuerdo con los principios fundamentales de esta ley.
+c) Se otorgará una sola concesión administrativa por particular, la cual amparará la explotación del servicio público con un vehículo.
+d) Ninguna persona adjudicataria de una concesión podrá compartir, total ni parcialmente, los derechos de concesión adjudicados a otra que, a su vez, sea adjudicataria de otra concesión de servicio público remunerado de personas, en otras modalidades de transporte terrestre.
+e) Las concesiones se otorgarán por medio del procedimiento especial abreviado dispuesto en las presentes normas. Ningún gestor interesado de puertos y aeropuertos podrá ser concesionario de los servicios de transporte público remunerado de personas en la modalidad de taxi; tampoco se le permitirá brindar este servicio en ninguna modalidad.
+2.- Para la prestación del servicio especial estable de taxi, a que se refiere el artículo 2 de esta ley, se requiere obtener un permiso otorgado por el Consejo de Transporte Público, sujeto a las siguientes condiciones:
+a) Las personas permisionarias especiales estables de taxi de este servicio estarán limitadas a prestar el servicio dentro de un área geográfica que se determinará en razón de la patente autorizada.
+b) Ninguna persona permisionaria podrá compartir, total ni parcialmente, los derechos del permiso otorgado a otro que a su vez sea titular de otro permiso de servicio público remunerado de personas.
+c) Los vehículos con los cuales se desarrolle la prestación de servicio público modalidad especial estable de taxi, no podrán tener las características propias de los vehículos modalidad taxi que se autorizan en razón de una concesión para prestar el servicio en una determinada base de operación autorizada por el Consejo de Transporte Público, tales como el color rojo, el uso de rótulos luminosos o no luminosos, calcomanías, el uso del taxímetro y otros similares, tal como lo defina el reglamento de rigor, así como cualquier otro distintivo que pueda inducir a error a las personas usuarias del servicio de taxi. Además, deberán cumplir los requisitos de circulación que establece la Ley N.º 7331, Ley de Tránsito por Vías Públicas Terrestres, y sus reformas. Estos automotores no podrán tener una antigüedad superior a los diez años, contados desde su año de fabricación.
+d) Los vehículos autorizados para el servicio especial estable de taxi no podrán estacionarse o realizar abordaje o desabordaje de personas en las paradas dedicadas a las demás modalidades de transporte público. Las bases de operación del servicio especial estable de taxi deberán estar ubicadas a una distancia de ciento cincuenta metros, como mínimo, de las terminales oficiales de autobuses y taxis.
+e) Las personas permisionarias de servicio especial estable de taxi no podrán estacionarse en ningún lugar de la vía pública para ofrecer sus servicios al público en general. Tampoco, podrán circular en demanda de pasajeros por las vías públicas.
+f) Cuando los automotores deban detenerse frente a edificaciones públicas, parques, centros educativos, centros comerciales, muelles, puertos, aeropuertos, iglesias, hospitales o lugares similares, será por el
+tiempo estrictamente necesario para permitir el abordaje y desabordaje de sus propias personas usuarias.
+g) Quien presente una solicitud para explotar un servicio especial estable de taxi deberá presentar certificación de que se encuentra debidamente inscrito y al día con sus obligaciones en la Caja Costarricense de Seguro Social (CCSS); estar inscrito como contribuyente en el Ministerio de Hacienda; estar al día en el pago del impuesto de la renta; contar con una póliza de seguros que cubra íntegramente su responsabilidad civil por lesión o muerte de terceros y daños a la propiedad de terceros, y mantenerla vigente durante todo el período que dure el permiso y la patente municipal correspondiente, de acuerdo con la legislación vigente y los demás requisitos que procedan reglamentariamente.
+h) En razón de los principios de proporcionabilidad, razonabilidad y necesidad, el porcentaje autorizado de servicios especiales estables de taxi no podrá superar el tres por ciento (3%) de las concesiones autorizadas por base de operación.
+i) El Estado está en la obligación de garantizarles el equilibrio económico y financiero del contrato a las personas concesionarias, evitando una competencia que pueda ser ruinosa, producto de una concurrencia de operadores en una zona determinada que pueda ser superior a la necesidad de esa demanda residual de la zona operacional donde se autorice la prestación del servicio, dado que cada zona presenta características diferentes entre una y otra, autorizando el número de permisos que considere necesarios.
+j) Una vez otorgado el permiso, las personas permisionarias deberán portar el original o la copia certificada del contrato suscrito con las personas a las que se les brinda el servicio.
+El incumplimiento de cualquiera de las condiciones anteriores será sancionado de conformidad con lo establecido en la Ley N.º 7331, Ley de Tránsito por Vías Públicas Terrestres, y sus reformas, sin perjuicio de que el Consejo de Transporte Público pueda cancelar el permiso.
+(Así reformado por el artículo 2° de la ley N° 8955 de 16 de junio del 2011)

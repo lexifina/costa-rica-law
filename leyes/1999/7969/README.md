@@ -1,6 +1,6 @@
 # Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la modalidad de Taxi
 
-Ley N° 7969 del 1999-12-22. SINALEVI, ficha 41856: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41856&param2=80801&param3=1>.
+Ley N° 7969 del 1999-12-22. SINALEVI, ficha 41856: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41856&param2=85406&param3=1>.
 
 Publicada en La Gaceta N° 20 del 2000-01-28.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 14 | 2009-02-11 | Sala Constitucional, resolución 2007 (2009-02-11) | 2009-02-11 |
 | 7 de 14 | 2010-06-01 | Ley 8823 | 2010-05-05 |
 | 8 de 14 | 2010-06-01 | Ley 8833 | 2010-05-10 |
+| 9 de 14 | 2011-07-07 | Ley 8955 | 2011-06-16 |
