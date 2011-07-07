@@ -1,0 +1,6 @@
+TRANSITORIO II.-
+Por tratarse el servicio especial estable de taxi de un servicio de carácter residual y limitado, en razón de que la prestación del servicio está dirigido a un grupo cerrado de personas, sin que existan estudios técnicos actualizados que permitan establecer o cuantificar la necesidad actual de este servicio especial, corresponderá al Consejo de Transporte Público, en razón de los principios de razonabilidad, proporcionabilidad, oportunidad y necesidad, lo siguiente:
+a) Establecer los requerimientos nacionales de transportación del servicio especial estable de taxi.
+b) El porcentaje de unidades que se autoricen para la prestación del servicio especial nunca podrá llegar a equipararse a los autorizados para la prestación del servicio regular estable de taxi, por ser un mercado residual y limitado.
+c) De esta valoración dependerá el número de permisos especiales que podrá otorgar el Consejo de Transporte Público, el cual será, para esta única vez, del treinta por ciento (30%) a nivel nacional de las concesiones autorizadas de taxis por el Consejo de Transporte Público.
+d) Para los efectos correspondientes, el Consejo de Transporte Público llevará un registro de control de todos los permisos autorizados.
