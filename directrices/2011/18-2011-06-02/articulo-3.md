@@ -1,0 +1,1 @@
+Artículo 3º—En la medida de las posibilidades técnicas de las instituciones de la Administración Central, deberán colocar en las redes sociales las cadenas de televisión de la Presidencia de la República.

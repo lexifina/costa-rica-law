@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones de la Administración Central a través de los Jefes de Prensa o Encargados de Prensa, deben proceder en forma inmediata a remitir los comunicados de prensa oficiales al Ministerio de Comunicación y Enlace Institucional vía digital al correo comunicacion@casapres.go.cr. indicando el nombre de la institución y el tema respectivo.
