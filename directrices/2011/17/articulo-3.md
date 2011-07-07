@@ -1,0 +1,1 @@
+Artículo 3º—El Plan de Eficiencia Energética formará parte del Programa de Gestión Ambiental Institucional que están obligados a presentar todos los integrantes del Sector Público dentro del plazo establecido en el Decreto Ejecutivo 36499-MINAET-MS.

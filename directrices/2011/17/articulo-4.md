@@ -1,0 +1,1 @@
+Artículo 4º—El Plan de Eficiencia Energética deberá presentarse a la Dirección de Gestión de Calidad Ambiental (DIGECA) del Ministerio de Ambiente, Energía y Telecomunicaciones a más tardar en los 45 días naturales siguientes a la publicación de esta Directriz.
