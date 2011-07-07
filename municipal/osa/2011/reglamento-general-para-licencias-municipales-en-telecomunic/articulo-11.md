@@ -1,0 +1,4 @@
+Artículo 11.—Los predios donde se pretendan ubicar e instalar las Obras Constructiva tendrán que contemplar los siguientes requerimientos:
+a. Los predios deberán guardar un retiro con respecto al fondo, frente, y costados cuyos metros sean los mismos a la que equivale la torres más veinte metros, (ej.; torre de 30 metros de altura, dimensión de 50 metros de frente, 50 metros de fondo, 50 metros hacia sus costados. Los accesos se regularan conforme las disposiciones que establecerá la Municipalidad.
+b. Que no existe ninguna edificación aledaña a la construcción de la obra constructiva.
+c. Así mismo deberá las obras constructivas descritas en el artículo 7º de este reglamento tener un retiro especial con respecto a las zonas sensibles (hospitales, maternidades, guarderías, escuelas, asilos, plazas, parques destechados) de al menos 200 metros de distancia.

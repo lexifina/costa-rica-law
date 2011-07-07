@@ -1,0 +1,1 @@
+Artículo 15.—Una vez presentada completa la solicitud de certificación de uso del suelo ante la Municipalidad la administración tendrá un plazo máximo de diez días naturales para emitir este documento.
