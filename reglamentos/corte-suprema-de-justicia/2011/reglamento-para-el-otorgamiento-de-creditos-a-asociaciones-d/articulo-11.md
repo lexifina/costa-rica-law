@@ -1,0 +1,1 @@
+Artículo 11.—Las entidades financieras sujetas de préstamo, podrán aplicar por una única vez, un margen de intermediación y costos administrativos no mayor al 3% en los créditos que concedan a los servidores, jubilados y pensionados judiciales.

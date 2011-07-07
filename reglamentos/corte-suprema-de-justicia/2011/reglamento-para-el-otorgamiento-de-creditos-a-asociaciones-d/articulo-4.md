@@ -1,0 +1,1 @@
+Artículo 4º—En ningún caso se podrá destinar más del 10% del total de la cartera de inversiones del Fondo de Jubilaciones y Pensiones del Poder Judicial, en la concesión de créditos a las entidades financieras sujetas de préstamo para los fines establecidos en este reglamento.

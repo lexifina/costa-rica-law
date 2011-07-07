@@ -1,0 +1,1 @@
+Artículo 16.—El tipo de interés a pactar con los beneficiarios de los créditos no podrá ser mayor al que le cancelará la entidad financiera sujeta de préstamo al Fondo de Jubilaciones y Pensiones del Poder Judicial más un 1,50% por concepto de comisiones y gastos administrativos. Esta tasa de interés se revisará semestralmente.

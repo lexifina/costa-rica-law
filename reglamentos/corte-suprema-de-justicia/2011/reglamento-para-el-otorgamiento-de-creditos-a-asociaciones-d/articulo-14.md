@@ -1,0 +1,1 @@
+Artículo 14.—Las entidades financieras sujetas de créditos, autorizan al Poder Judicial para que gestione a través de los Departamento de Personal y Financiero Contable para que las deducciones derivadas de las operaciones de crédito, ingresen directamente a una cuenta corriente del Fondo de Jubilaciones y Pensiones del Poder Judicial.

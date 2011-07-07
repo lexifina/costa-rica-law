@@ -1,0 +1,1 @@
+Artículo 6º—Las entidades financieras sujetas de préstamo, destinarán estos recursos para conceder créditos a los servidores, jubilados y pensionados judiciales conforme las reglas establecidas en este reglamento y en las condiciones y demás aspectos que se definan en los convenios y contratos específicos que se lleguen a suscribir con ocasión del otorgamiento de los créditos.

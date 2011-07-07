@@ -1,0 +1,1 @@
+Artículo 20.—Para la concesión de los créditos a los servidores, jubilados y pensionados judiciales, la entidad financiera sujeta de préstamo deberá conformar un expediente individual, en donde se deje constancia de todas las actuaciones realizadas, el que deberá mantener debidamente actualizado.

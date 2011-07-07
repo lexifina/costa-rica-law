@@ -1,0 +1,1 @@
+Artículo 9º—En caso de incumplimiento en el pago del principal, intereses o ambos rubros, en las fechas pactadas, se cobrará un interés moratorio anual, iguales al tipo de interés corriente que rige para el préstamo y hará exigible el saldo de préstamo en su totalidad.
