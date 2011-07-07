@@ -1,3 +1,0 @@
-Artículo 11.—De las solicitudes y requisitos de Licenciados en Enfermería que estudiaron en Universidades Extranjeras. La o El solicitante que desee ejercer en el país la enfermería deberá aportar:
-1. Título de Licenciada/o, original y fotocopia de la Universidad Extranjera y debidamente convalidado por el Ministerio de Relaciones Exteriores y Culto de Costa Rica, además del documento original de reconocimiento y equiparación emitido por el Consejo Nacional de Rectores (CONARE).
-2. Toda la documentación deberá ser presentada en idioma español, de lo contrario se deberá presentar traducción realizada por un traductor oficial o por un notario público.

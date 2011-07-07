@@ -1,3 +1,0 @@
-Artículo 15.—Credenciales de Incorporación. A todo Profesional de Enfermería con grado de Licenciatura o superior que se juramente se le entregará una licencia de colegiada/o que lo acredita como miembro activo del Colegio y le faculta para el ejercicio de la profesión. La renovación de la licencia se realizará cada dos años a partir de su fecha de emisión.
-El Colegio otorga un certificado de Incorporación que incluye la nomenclatura de uso social que la/lo acredita como Doctora o Doctor y el grado académico respectivo en Enfermería.
-En este punto, la/el colegiada/colegiado anotará en su identificación: título social (doctora/or), su nombre, grado académico que ostenta y el número de licencia correspondiente.

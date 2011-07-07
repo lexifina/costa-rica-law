@@ -1,1 +1,0 @@
-Artículo 3º—Obligatoriedad de la incorporación. La incorporación al Colegio es obligatoria para toda aquella persona egresada con el grado mínimo de licenciatura en la Carrera Universitaria de Enfermería que desee ejercer la profesión en el país.

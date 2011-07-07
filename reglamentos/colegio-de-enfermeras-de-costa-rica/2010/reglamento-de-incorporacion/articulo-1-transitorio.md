@@ -1,3 +1,0 @@
-TRANSITORIO EN EL REGLAMENTO DE INCORPORACIÓN
-“Aquellas personas que hubiesen sido incorporadas a partir de octubre del 2004, sin reunir el requisito legal de la ostentación del grado académico de licenciatura, dispondrán de un plazo de quince meses, a partir de la publicación de este reglamento para acreditar su grado de forma tal que pueda seguir constando como incorporado. En caso de no obtener el grado de licenciatura, su registro en el Colegio será modificado a inscripción como auxiliar de enfermería”.
-Aprobado en la sesión Nº 1982, acuerdo N° 13, celebrada el día 18 de febrero de 2010 de la Junta Directiva del Colegio de Enfermeras y Enfermeros de Costa Rica.
