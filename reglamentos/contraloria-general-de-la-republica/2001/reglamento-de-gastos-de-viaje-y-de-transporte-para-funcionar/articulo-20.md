@@ -1,6 +1,7 @@
 Artículo 20º.- Monto de la tarifa cuando la permanencia es discontinua. Cuando un funcionario realice una gira, la tarifa que se aplicará será la que corresponda a los servicios utilizados. Para tales efectos, se considera el inicio de una gira, la hora en que el funcionario inicie el viaje hacia el lugar de destino. De la misma forma, se considera concluida, cuando el funcionario regresa a su sede de trabajo, o en su defecto, a su domicilio. Durante el desarrollo de la gira, se observarán las siguientes normas:
 a) Desayuno: Se reconocerá cuando la gira se inicie antes de o a las siete horas.
 b) Almuerzo: Se cubrirá cuando la partida se realice antes de o a las once horas y el regreso después de las catorce horas.
-c) Cena: Se pagará cuando la partida se realice antes de o a las diecisiete horas y el regreso después de las veinte horas.
+c) Cena: Se pagará cuando la partida se realice antes de o a las dieciocho horas y el regreso después de las veinte horas. En casos especiales, previa justificación de la Administración, podrá ampliarse el límite de la partida, siempre y cuando el regreso se produzca después de las veinte horas y el funcionario haya laborado en forma continua antes de su partida.
+(Así reformado el inciso anterior mediante resolución R-DC-111-2011 del 7 de julio del 2011), y obtenido su contenido de la página Web de la Contraloría General de la República www.cgr.go.cr)
 d) Hospedaje: Se reconocerá cuando el servidor se viere obligado a pernoctar fuera de su domicilio, en razón de la gira.
 (Así reformado por resolución R-DC-92-2009 del 19 de noviembre de 2009, y obtenido su contenido de la página Web de la Contraloría General de la República www.cgr.go.cr)
