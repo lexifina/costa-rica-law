@@ -15,3 +15,4 @@ Establecimiento de requisitos y plazos para el otorgamiento de certificaciones d
 | --- | --- | --- |
 | 1 | 2008-06-05 | la propia norma |
 | 2 | 2011-06-17 | Directriz 4 (2011-06-17) |
+| 3 | 2011-07-08 | Acuerdo 0 (2011-07-08) |
