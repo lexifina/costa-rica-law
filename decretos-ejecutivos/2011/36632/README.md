@@ -14,3 +14,4 @@ Modifica para la Junta Administrativa del Registro Nacional, el gasto presupuest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-08 | la propia norma |
+| 2 | 2011-07-11 | Decreto Ejecutivo 36697 (2011-07-11) |
