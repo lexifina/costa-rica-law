@@ -30,3 +30,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 15 | 2011-07-11 | Decreto Ejecutivo 36700 (2011-07-11) |
 | 16 | 2011-07-11 | Decreto Ejecutivo 36696 (2011-07-11) |
 | 17 | 2011-07-11 | Decreto Ejecutivo 36699 (2011-07-11) |
+| 18 | 2011-07-11 | Decreto Ejecutivo 36697 (2011-07-11) |
