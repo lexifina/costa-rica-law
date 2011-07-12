@@ -47,3 +47,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES
 (Modificado por el artículo 1° del decreto ejecutivo N° 36623 del 26 de mayo del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36628 del 9 de junio del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36645 del 14 de junio del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36674 del 15 de junio del 2011)
