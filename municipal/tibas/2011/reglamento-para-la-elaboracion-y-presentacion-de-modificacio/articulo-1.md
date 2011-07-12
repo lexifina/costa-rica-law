@@ -1,0 +1,18 @@
+MUNICIPALIDAD DE TIBÁS
+CONCEJO MUNICIPAL DE TIBÁS
+El Concejo Municipal del Cantón de Tibás, con fundamento en el Título VII, artículo 164 y siguientes del Código Municipal, Ley N° 7794 del 30 de abril de 1998, publicado en La Gaceta N° 94 del 18 de mayo de 1998, promulgará el presente Reglamento para la Elaboración y Presentación de Modificaciones Presupuestarias de la Municipalidad de Tibás y;
+Considerando:
+1º—Que el artículo 7 de la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131, del 18 de setiembre de 2001, dispone que en la formulación de los presupuestos se utilizarán las técnicas y los principios presupuestarios aceptados, con base en criterios funcionales que permitan evaluar el cumplimiento de las políticas y planes anuales, así como la incidencia y el impacto económico financiero de la ejecución (...).
+2º—Que en el artículo 53 de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, se dispone que el presupuesto de los entes y de los órganos sujetos a aprobación de la Contraloría General de la República deberán prepararse atendiendo las normas técnicas dictadas por ese Órgano Contralor.
+3º—Que el artículo 91 del Código Municipal establece que en la formulación de sus presupuestos, las municipalidades utilizarán la técnica presupuestaria y contable recomendada por la Contraloría General de la República.
+4º—Que la Contraloría General de la República mediante resolución R-C0-41-2005 del 23 de mayo de 2005, vigente a partir del periodo 2006, publicada en La Gaceta N° 104 del martes 31 de mayo de 2005, emitió los lineamientos generales sobre el nivel de aprobación del presupuesto de los entes y órganos públicos, municipalidades y entidades de carácter municipal, fideicomisos y sujetos privados públicos, en aras de fortalecer en la administración activa la responsabilidad por su gestión y una mayor transparencia en el proceso de evaluación y rendición de cuentas.
+5º—Que la Contraloría General de la República mediante resolución de las ocho horas del veintisiete de junio del dos mil cinco emitió las directrices D-2-2005-CO-DFOE, publicadas en La Gaceta Nº 131 del 7 de julio de 2005, generales a los sujetos pasivos de la Contraloría General de la República para el adecuado registro o incorporación y validación de la información de presupuestos públicos (SIPP).
+6º—Que mediante la resolución R-CO-67-2006 de las 9:00 horas del 28 de agosto del 2006, publicada en La Gaceta N° 170 del 5 de septiembre del 2006, la Contraloría General de la República emitió el Reglamento sobre Variaciones al Presupuesto de los Entes y Órganos Públicos, Municipalidades y Entidades de Carácter Municipal, Fideicomisos y Sujetos Privados, disposición cuyos artículos 12 y 13 establecen que las modificaciones presupuestarias no requieren ser sometidas al trámite previo de aprobación por parte de la Contraloría General de la República, correspondiéndole dicha aprobación al jerarca institucional, quien podrá asignar esa competencia a otras instancias de la institución.
+7º—Que se hace necesario reglamentar las disposiciones relativas a la aprobación de las modificaciones a los presupuestos de la Municipalidad de Tibás. Por tanto:
+RESUELVE:
+Emitir el siguiente,
+REGLAMENTO PARA LA ELABORACIÓN Y
+PRESENTACIÓN DE MODIFICACIONES
+PRESUPUESTARIAS DE LA
+MUNICIPALIDAD DE TIBÁS
+Artículo 1º—Objeto: El presente reglamento establece las disposiciones que son de aplicación obligatoria en la Municipalidad de Tibás, para el trámite y aprobación de las modificaciones al presupuesto municipal.

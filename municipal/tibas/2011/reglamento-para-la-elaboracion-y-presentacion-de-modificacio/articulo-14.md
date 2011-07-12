@@ -1,0 +1,1 @@
+Artículo 14.—La Administración deberá mantener actualizada en el Sistema Integrado de Presupuestos Públicos (SIPP), la inclusión y validación de las modificaciones debidamente aprobadas que operen el presupuesto de la institución.

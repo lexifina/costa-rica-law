@@ -1,0 +1,1 @@
+Artículo 16.—El incumplimiento de las disposiciones de este Reglamento y, de las normas legales y directrices aplicables en la materia, dará lugar a la aplicación de las responsabilidades que establecen el Código Municipal, la Ley General de Control Interno, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la función Pública y demás disposiciones concordantes.

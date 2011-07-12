@@ -1,0 +1,1 @@
+Artículo 8º—Las modificaciones presupuestarias tendrán efecto legal en el presupuesto a partir de su aprobación mediante acuerdo municipal adoptado por el Jerarca Máximo y será debidamente comunicado por la Secretaría Municipal

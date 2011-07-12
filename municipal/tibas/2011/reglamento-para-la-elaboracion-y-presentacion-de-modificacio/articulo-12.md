@@ -1,0 +1,1 @@
+Artículo 12.—Los plazos y la cantidad de modificaciones presupuestarias establecidos en el presente Reglamento serán de acatamiento obligatorio, excepto aquellas solicitudes que se presenten para atender una necesidad urgente, de fuerza mayor o caso fortuito, debidamente razonada.

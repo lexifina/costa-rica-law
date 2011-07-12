@@ -1,0 +1,1 @@
+Artículo 13.—Seguimiento y fiscalización. Cada tres meses, el Director de Hacienda informará al Alcalde y éste a su vez al Concejo Municipal, mediante un cuadro resumen de las modificaciones presupuestarias que se ejecuten durante el respectivo período. Con la misma periodicidad deberá remitir informes de ejecución presupuestaria.
