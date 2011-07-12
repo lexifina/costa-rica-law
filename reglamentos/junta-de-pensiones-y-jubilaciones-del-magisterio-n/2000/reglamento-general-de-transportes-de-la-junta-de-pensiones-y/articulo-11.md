@@ -1,3 +1,2 @@
-CAPÍTULO II
-De la administración de los vehículos
-Artículo 11.—Sin perjuicio de la fiscalización que realice la Auditoría Interna, cuando así lo estime necesario el Departamento Administrativo de la Junta, velará por el fiel cumplimiento de este Reglamento.
+Artículo 11: Corresponde al encargado oficial como responsable de la misión: girar las instrucciones respectivas en cuanto a ruta de destino, horas de salida, tiempos y lugares de consumo de alimentos al chofer encargado del vehículo asignado. Luego de concluida la gira deberá informar a la jefatura del Departamento Administrativo, en el caso de que existieran diferencias en cuanto a lo establecido en la boleta de transporte correspondiente y que además, afectaron la prestación del servicio.
+(Así adicionado mediante publicación en La Gaceta N° 145 del 28 de julio del 2011)

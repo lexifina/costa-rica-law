@@ -1,1 +1,2 @@
-Artículo 34.—Los (Las) conductores (as) no deben permitir que personas ajenas para la función o el servicio que se brinda, viajen en los vehículos salvo en ocasiones especiales en que medie autorización del o (de la) superior o en casos de urgencias comprobadas.
+Artículo 34.—Los (las) conductores (as) de vehículos no podrán hacer intercambios de accesorios entre las unidades, sin la aprobación del Departamento Administrativo.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 33 al 34)

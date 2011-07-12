@@ -1,1 +1,2 @@
-Artículo 21.—Para lograr el mayor aprovechamiento de los vehículos disponibles se deberán agrupar en un solo viaje, varias solicitudes de transporte que se generen hacia un mismo sitio o ruta, siempre que las circunstancias lo permitan; para ello se brindará aviso oportuno a los (las) interesados (as) para lograr una adecuada coordinación del viaje.
+Artículo 21.—Los vehículos propios de la Junta tendrán prioridad de aparcamiento en los estacionamientos de la Institución, respecto de aquellos propiedad de directores (as) y funcionarios (as).
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 20 al 21)

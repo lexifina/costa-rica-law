@@ -1,1 +1,4 @@
-Artículo 51.—El (La) Director (a) o funcionario (a) que incumpla con lo establecido en el presente Reglamento, será sancionado (a) y responsabilizado (a) de conformidad con lo establecido en el Reglamento Interior de Trabajo o la legislación que corresponda, según sea el caso, por la Junta Directiva o la Dirección Ejecutiva.
+CAPÍTULO XI
+Disposiciones finales
+Artículo 51.—Las discrepancias o diferencias de criterio que surjan administrativamente para la aplicación de este Reglamento, competen a la Junta Directiva o Dirección Ejecutiva, según corresponda.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 50 al 51)

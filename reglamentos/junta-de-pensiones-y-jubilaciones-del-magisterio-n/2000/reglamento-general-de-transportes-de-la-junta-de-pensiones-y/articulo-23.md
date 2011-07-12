@@ -1,3 +1,2 @@
-CAPÍTULO V
-De la circulación de vehículos
-Artículo 23.—Ningún vehículo podrá circular si no cumple todos los requisitos señalados por la Ley de Tránsito y las disposiciones institucionales vigentes.
+Artículo 23.—El Departamento Administrativo restringirá el uso de vehículos de la Junta en aquellos casos que existan posibilidades de realizar un viaje y utilizar el servicio de transporte remunerado de personas, sin que ello perjudique la efectividad y oportunidad del trabajo y cuando su costo sea menor que el de operación en que incurriría la Junta, al brindar el servicio con recursos propios.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 22 al 23)

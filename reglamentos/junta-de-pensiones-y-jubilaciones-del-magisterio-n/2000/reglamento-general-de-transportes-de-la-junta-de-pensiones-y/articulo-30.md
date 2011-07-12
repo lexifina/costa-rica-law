@@ -1,3 +1,2 @@
-CAPÍTULO VII
-De la autorización para conducir vehículos
-Artículo 30.—Se autorizará la conducción de vehículos de la Junta a aquellos (as) funcionarios (as) que así lo requieran para el adecuado desempeño de sus labores. Esta autorización se formalizará mediante un listado que contenga los nombres de las personas autorizadas para conducir. Se incluyen en esta disposición los (las) funcionarios (as) adscritos a la JUNTA autorizados (as) por la Junta Directiva para conducir vehículos institucionales.
+Artículo 30.—El Departamento Administrativo deberá recomendar la venta o canje de unidades, que por alguna circunstancia han dejado de ser útiles o convenientes para la Junta. Anualmente en el mes de agosto presentara un informe al respecto a la Comisión de Asuntos Económicos y Administrativos".
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 29 al 30)

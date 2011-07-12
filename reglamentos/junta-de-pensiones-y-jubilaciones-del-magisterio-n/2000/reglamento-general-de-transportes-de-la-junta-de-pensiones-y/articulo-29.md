@@ -1,1 +1,2 @@
-Artículo 29.—El Departamento Administrativo deberá recomendar la venta o canje de unidades, que por alguna circunstancia han dejado de ser útiles o convenientes para la Junta. Anualmente en el mes de agosto presentara un informe al respecto a la Comisión de Asuntos Económicos y Administrativos".
+Artículo 29.—El (La) Director (a) Ejecutivo (a) decidirá sobre la aplicación de las sanciones que considere pertinentes a los (a las) funcionarios que incumplan el programa de mantenimiento. Para el caso de los (las) directores (as), competerá a Junta Directiva el establecer las correcciones pertinentes.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 28 al 29)

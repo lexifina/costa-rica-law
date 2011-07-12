@@ -1,4 +1,3 @@
-CAPÍTULO IX
-De los accidentes de tránsito en que intervienen
-vehículos de la junta
-Artículo 40.—Los (Las) conductores (as) que debido a la circulación por las vías públicas con vehículos de la Junta se involucren en un accidente de tránsito, deben seguir las instrucciones que el Departamento Administrativo haya dictado al respecto. En el momento del accidente se comunicará de inmediato con el inspector de accidentes del Instituto Nacional de Seguros (INS) y coordinará lo pertinente con el Departamento Administrativo.
+Artículo 40.—Es responsabilidad exclusiva de cada conductor (a) el cumplimiento de lo establecido en el presente Capítulo, de ahí que si acata órdenes emitidas por sus superiores que contravengan dichas disposiciones, asumirá las consecuencias que esa acción origine, excepto que al momento de ejecutar la orden, la objete y posteriormente dentro del plazo de dos días hábiles de los hechos, denuncie por escrito la orden recibida con las justificaciones del caso ante la Junta Directiva, Dirección Ejecutiva o el Departamento Administrativo.
+(NOTA DEL SINALEVI: en la publicación de este artículo se consignó como numeral 41, no obstante del orden consecutivo se deduce que debe ser artículo 39).
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 39 al 40)

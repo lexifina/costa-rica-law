@@ -1,1 +1,2 @@
-Artículo 16.—Cuando por razones especiales no haya sido posible programar el servicio de transporte y/o se requiera en días y horas no hábiles, sólo podrá ser autorizado por la Presidencia o Dirección Ejecutiva, según corresponda.
+Artículo 16.—El formulario "Solicitud de Vehículo" deberá autorizarse por los (las) Jefes de Departamento o cualquier otro Jerarca superior según corresponda; quienes podrán delegar por escrito esa autorización cuando la naturaleza de las funciones o las condiciones así lo requieran.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 15 al 16)

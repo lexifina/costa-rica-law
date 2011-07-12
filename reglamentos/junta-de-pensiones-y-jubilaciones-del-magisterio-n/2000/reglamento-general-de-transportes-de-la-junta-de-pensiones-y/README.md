@@ -15,3 +15,4 @@ Reglamento General de Transportes de la Junta de Pensiones y Jubilaciones del Ma
 | --- | --- | --- |
 | 1 | 2000-12-14 | la propia norma |
 | 2 | 2005-11-16 | Reglamento 126 (2005-11-16) |
+| 3 | 2011-07-12 | Reglamento 0 (2011-07-12) |

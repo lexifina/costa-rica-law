@@ -1,13 +1,9 @@
-Artículo 49.—Ningún (a) usuario (a) está autorizado (a) para:
-a)Obligar o inducir al (a la) conductor (a) a continuar operando el vehículo cuando resulte imperioso y evidente detener la marcha debido a un posible desperfecto mecánico.
-b) Exigir o inducir la conducción del vehículo a una velocidad mayor o menor de la permitida en
-la zona. En el primer caso no podrá aducir urgencia en el servicio, como tampoco otros motivos
-para ambos supuestos.
-c) Exigir o inducir al (a la) conductor (a) dejar la conducción del vehículo y trasladarla a sí mismo
-o a otra persona. La única excepción posible será en presencia de casos de fuerza mayor que
-impliquen peligro inminente para los ocupantes del vehículo, de lo cual dejará constancia por
-escrito oportunamente.
-d) Obligar al (a la) conductor (a) a destinar el vehículo para asuntos de tipo personal.
-e) Obligar al (a la) conductor (a) a extender la autorización para uso del vehículo cuando haya
-concluido la labor para la cual fue requerido y para asuntos no concernientes a la labor
-institucional.
+CAPÍTULO X
+De los (las) usuarios (as) de los servicios de transportes,
+deberes y responsabilidades
+Artículo 49.—Son deberes de los (las) usuarios (as) de los servicios de transportes que presta la Junta: -
+a) Conocer y cumplir las disposiciones establecidas en el presente Reglamento.
+b) Portar el carné que lo identifica como trabajador (a) o Directivo (a) de la JUNTA, mientras viaje en vehículos propiedad de la Institución, salvo él caso de particulares autorizados.
+c) Hacer uso de los servicios de transportes en situaciones plenamente justificadas y por razón del desempeño de las labores propias de su cargo para la Institución. ch) Mantener una actitud de respeto para las otras personas que viajan dentro del vehículo y las que se encuentran fuera de él.
+d) Informar al (la) encargado (a) del vehículo y al Departamento Administrativo, cualquier irregularidad que observe en el transcurso del servicio.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 48 al 49)

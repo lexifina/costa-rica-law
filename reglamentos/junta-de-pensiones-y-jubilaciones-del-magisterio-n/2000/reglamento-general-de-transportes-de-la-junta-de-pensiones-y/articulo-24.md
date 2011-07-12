@@ -1,2 +1,4 @@
-Artículo 24.—Para todos los vehículos de uso administrativo, sin excepción, son requisitos de orden administrativo para que un automotor se encuentre en circulación, encontrarse debidamente rotulados con el nombre o logotipo de la Junta -incluido el lema si es posible- e inscrito en los registros del Departamento Administrativo.
-En el caso de unidades propiedad de la Junta, deberán encontrarse debidamente registradas como activos en la contabilidad de la Institución.
+CAPÍTULO V
+De la circulación de vehículos
+Artículo 24.—Ningún vehículo podrá circular si no cumple todos los requisitos señalados por la Ley de Tránsito y las disposiciones institucionales vigentes.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 23 al 24)

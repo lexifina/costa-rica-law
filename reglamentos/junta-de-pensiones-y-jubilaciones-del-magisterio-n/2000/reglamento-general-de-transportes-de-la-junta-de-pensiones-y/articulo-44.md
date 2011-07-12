@@ -1,1 +1,4 @@
-Artículo 44.—Una vez obtenida por el Departamento Administrativo la información a que se refiere este capítulo, se remitirá al Departamento Legal, el que tendrá a su cargo la defensa del (la) conductor (a) y de los intereses de la Junta.
+Artículo 44.—Al rendir declaración ante la Autoridad Judicial correspondiente, el (la) conductor (a) deberá señalar, como lugar para recibir notificaciones, el Departamento Legal de la Junta con indicación del fax y dirección exacta de la Junta.
+En aquellos casos en que el accidente ocurra fuera de San José, se señalará, para tales efectos, de común acuerdo con el Departamento Legal un lugar dentro del perímetro Judicial del Despacho competente plenamente conocido u otro medio idóneo, como el fax.
+El (La) interesado (a) deberá mantenerse en contacto con dicho lugar para atender notificaciones, a efecto de informarse del avance del trámite judicial y ofrecer la máxima colaboración para contribuir a su defensa en coordinación con el Departamento Legal.
+(Así corrida su numeración mediante publicación en La Gaceta N° 145 del 28 de julio del 2011, que lo traspasó del antiguo artículo 43 al 44)
