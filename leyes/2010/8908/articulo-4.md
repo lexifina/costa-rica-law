@@ -32,5 +32,6 @@ INDICADORES DE RESULTADOS:
 7. | Cantidad de Fiscalización 3.00 | estudios con la posterior. 4.00 | metodología de 5.00 | medición de 6.00 | resultados de la 7.00
 8. | Grado de fiscalización. 0.00 | satisfacción de la 70.00 | Administración 75.00 | activa sobre los 80.00 | resultados de la 80.00
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance N° 36 a La Gaceta N° 244 del 16 de diciembre del 2010)
-(Modificado por el artículo 1° del decreto ejecutivo N° 36441 del 10 de febrero de 2011)
-(Modificado por el artículo 1° del decreto ejecutivo N° 36594 del 16 de mayo de 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36441 del 10 de febrero del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36594 del 16 de mayo del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36645 del 14 de junio del 2011)
