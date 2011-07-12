@@ -1,0 +1,1 @@
+Artículo 38.—Notificación en el lugar o medio señalado: Será absolutamente nula la notificación realizada en un lugar o medio distinto al señalado por las partes, salvo que dicha notificación se realice personalmente al interesado.
