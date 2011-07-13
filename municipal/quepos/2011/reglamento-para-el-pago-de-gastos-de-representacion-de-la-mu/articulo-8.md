@@ -1,0 +1,1 @@
+Artículo 8º—Facultades de verificación. La Dirección Administrativa Financiera de la Municipalidad de Aguirre queda facultada para verificar cualquier dato relacionado con el gasto de representación que esté en trámite de pago.

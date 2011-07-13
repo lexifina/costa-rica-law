@@ -1,0 +1,3 @@
+Artículo 9º—Sanciones. El ejecutante del gasto que incumpla las disposiciones de este Reglamento, no podrá reclamar el reembolso del mismo, debiendo en ese caso correr con el gasto por su cuenta.
+Si por dolo o culpa grave, el ejecutante del gasto consignare datos falsos en la documentación relacionada con el cobro de este tipo de gastos, se aplicará lo dispuesto en los regímenes de Responsabilidad Civil, Penal y Disciplinaria del servidor, en cuanto resulten aplicables.
+El Funcionario que apruebe o ejecute el pago de gastos de representación contraviniendo las disposiciones establecidas en este Reglamento, estará sujeto a la responsabilidad civil, penal y disciplinaria que corresponda de acuerdo con la naturaleza de la falla.

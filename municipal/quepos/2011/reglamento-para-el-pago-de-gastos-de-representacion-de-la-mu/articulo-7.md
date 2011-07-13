@@ -1,0 +1,1 @@
+Artículo 7º—Gastos de representación en el exterior. Los gastos de representación que se originen en la realización de viajes al exterior, se regirán por lo dispuesto en el “Reglamento de Gastos de Viaje y Transporte”, aprobado por la Contraloría General de la República, para los funcionarios públicos a los que resulte aplicable.
