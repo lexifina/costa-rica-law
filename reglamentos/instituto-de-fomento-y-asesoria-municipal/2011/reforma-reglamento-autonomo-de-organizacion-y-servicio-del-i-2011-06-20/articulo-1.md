@@ -1,0 +1,5 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal (IFAM), mediante acuerdo primero, artículo uno de la Sesión Extraordinaria N° 4046 celebrada el día 20 de junio de 2011, aprobó la siguiente modificación al Reglamento Autónomo de Organización y Servicio del IFAM:
+“Artículo 102.—Todos los trabajadores de la Institución, sea cual fuere su categoría y la forma en que desempeñe sus labores y que se les retribuya con un salario sueldo o estipendio mensual, figuren o no individualmente en el presupuesto, tendrán derecho a un aguinaldo anual equivalente, a un mes completo de ingresos, el cual se calculará con base en el promedio simple de los salarios y sueldos ordinarios y de las remuneraciones extraordinarias devengadas por estos durante los doce meses anteriores al primero de diciembre del año de que se trate”.
+“Artículo 112.—Para los casos protegidos por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, el IFAM reconocerá en calidad de subsidio como máximo un 40% del salario bruto que hubiere devengado el trabajador”.
+Moravia, 27 de junio de 2011.—
