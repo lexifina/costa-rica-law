@@ -1,0 +1,1 @@
+Artículo 22.—Informe de recomendación del Órgano Director: En el plazo de cinco días hábiles después de la comparecencia y evacuación de la prueba, la Comisión Investigadora rendirá un informe por escrito a la Junta Directiva sobre las conclusiones del trámite administrativo y las recomendaciones disciplinarias en caso de que se consideren aplicables.

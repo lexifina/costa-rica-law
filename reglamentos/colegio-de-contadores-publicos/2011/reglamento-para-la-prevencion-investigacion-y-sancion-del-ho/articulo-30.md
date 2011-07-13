@@ -1,0 +1,1 @@
+Artículo 30.—De la prescripción: El plazo para interponer la denuncia se considerará de dos años y se computará a partir del último hecho consecuencia del hostigamiento sexual denunciado o partir de cesó la causa justificada que impidió denunciar. El plazo de prescripción se computará de conformidad con el artículo 603 del Código de Trabajo.

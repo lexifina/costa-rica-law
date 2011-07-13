@@ -1,0 +1,1 @@
+Artículo 26.—Deber de informar: Una vez firme lo resuelto, se comunicará a la Dirección Ejecutiva y Departamento de Recursos Humanos del Colegio de Contadores Públicos de Costa Rica, así como a la Defensoría de los Habitantes, para lo que corresponda.
