@@ -1,0 +1,2 @@
+Artículo 2°- Plazo de conservación de los documentos contables.
+Toda documentación originada en las operaciones contables deberá conservarse por un periodo de al menos diez años. Dichos archivos documentales podrán ser sustituidos por archivos electrónicos al amparo de las disposiciones legales establecidas. Cuando se cumpla dicho período, cada entidad deberá consultar sobre lo establecido por la Junta Administrativa del Archivo Nacional sobre la custodia de los documentos públicos.
