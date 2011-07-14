@@ -1,0 +1,1 @@
+Artículo 15.—Plazo de ejecución. El Instituto Geográfico Nacional tendrá un plazo de seis meses contados a partir de la fecha de emisión de la orden de inicio, para la conclusión de los trabajos contratados para la demarcación de la Zona Pública, el cual podrá ser prorrogado por otro período igual previo acuerdo de las partes.

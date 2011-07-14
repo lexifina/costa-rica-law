@@ -1,0 +1,1 @@
+Artículo 3º—Competencia. La delimitación de la Zona Pública de la Zona Marítimo Terrestre, es función exclusiva del IGN en representación del Estado y está implícita dentro de las atribuciones confiadas en su Ley N° 6043.

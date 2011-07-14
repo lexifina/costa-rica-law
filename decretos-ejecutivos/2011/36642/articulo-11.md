@@ -1,0 +1,5 @@
+CAPÍTULO III
+Ejecución del contrato y supervisión de los servicios
+Artículo 11.—Orden de inicio. La orden de inicio la emitirá el departamento competente del IGN, luego de que el interesado efectúe el depósito bancario en la cuenta correspondiente del monto consignado en el acuerdo contractual.
+Tal orden de inicio deberá efectuarse dentro de los quince días siguientes, de haber cumplido con el requisito del depósito bancario y suscrito el contrato respectivo.
+El IGN ejecutará los trabajos que le contraten en orden de las fechas de formalización de los mismos. Podrá el IGN, por razones de conveniencia, oportunidad y optimización de los recursos humanos y materiales con que cuenta el Estado, ejecutar los trabajos por zonas geográficas, independientemente de la fecha de presentación de solicitud, cuando los trabajos a ejecutar corresponden un mismo sector a delimitar, situación que implicaría una reducción proporcional en los plazos de ejecución y de los costos económicos del trabajo, lo anterior, deberá quedar debidamente razonado y acreditado en el expediente administrativo levantado al efecto.

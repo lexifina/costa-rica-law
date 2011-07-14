@@ -1,0 +1,1 @@
+Artículo 24.—Derogatorias. Se deroga el Reglamento denominado “Especificaciones para la Delimitación de la Zona Marítimo Terrestre”, promulgado mediante Decreto Ejecutivo Nº 31045-MOPT de fecha 06 de marzo del 2003.

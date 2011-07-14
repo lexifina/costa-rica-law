@@ -1,0 +1,2 @@
+Artículo 10.—Alcances del Contrato. El IGN ejecutará únicamente lo contratado por la Municipalidad, el ICT o el SINAC. En ningún caso alterará los mojones o modificará las líneas de georeferenciación de las coordenadas de líneas colindantes a la contratada.
+El IGN debe entregar una copia de cada registro por sección contratada al Instituto Costarricense de Turismo y a la Municipalidad respectiva o el SINAC, facilitándoles así a esas entidades la aplicación de los mandatos establecidos para la protección de la Zona Marítimo Terrestre.

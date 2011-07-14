@@ -1,0 +1,1 @@
+Artículo 14.—Supervisión técnica de las labores. El IGN designará un funcionario profesional en topografía encargado de la revisión técnica del levantamiento topográfico, consignando los datos en el documento denominado “Revisión Técnica de Trabajos Topográficos”.
