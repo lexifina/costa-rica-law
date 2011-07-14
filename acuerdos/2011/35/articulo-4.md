@@ -1,0 +1,1 @@
+Artículo 4º—Certificado preventivo de uso de la tierra. Corresponde a la certificación por parte de la Municipalidad de Alajuela para aquellos desarrollos, en la proximidad del área definida en la restricción, el cual se denominará certificado preventivo de uso de la tierra.

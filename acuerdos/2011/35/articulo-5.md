@@ -1,0 +1,1 @@
+Artículo 5º—El certificado preventivo de uso de la tierra emitido por la Municipalidad, se aplicará de acuerdo en lo dispuesto en el ADENDUM TECNICO para la certificación de uso de la tierra en el área de proximidad a la restricción de uso establecida en este decreto.
