@@ -1,0 +1,1 @@
+Artículo 24.—Omisiones o errores en el Certificado de Origen. Cuando el exportador omita información o declare incorrectamente el origen de determinada mercancía en la declaración de origen consignada en el certificado, éste será, para todos los efectos, el único responsable ante la autoridad aduanera o competente de la parte importadora del Acuerdo.

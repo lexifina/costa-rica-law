@@ -1,0 +1,2 @@
+Artículo 23.—Control de documentos probatorios del origen. La Unidad de Origen deberá proporcionar a los países suscritores de un Acuerdo con Costa Rica la cooperación administrativa requerida para el control de documentos probatorios del origen.
+Así mismo, si la autoridad aduanera o competente de alguno de los países suscritores de un Acuerdo tiene duda respecto a un determinado certificado de origen, la Unidad de Origen deberá brindar la cooperación necesaria para poder determinar la validez del mismo.

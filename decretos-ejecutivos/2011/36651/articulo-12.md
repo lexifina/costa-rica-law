@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad del exportador. Para todos los efectos, el exportador será el único responsable frente al importador en caso de suministro de datos incorrectos, falsos o no reales en cualquiera de los documentos, declaraciones o cuestionarios otorgados para emitir el certificado de origen de las mercancías.

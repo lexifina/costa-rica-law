@@ -1,0 +1,1 @@
+Artículo 26.—De los registros contables. El exportador o productor que firme la declaración de origen consignada en el formato del certificado de origen, deberá conservar durante los plazos indicados en el artículo 13 del presente reglamento, todos los registros contables y documentos relativos al origen de la mercancía.

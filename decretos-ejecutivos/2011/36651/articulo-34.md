@@ -1,0 +1,19 @@
+Artículo 34.—Procedimiento para verificar el origen
+1. NOTIFICACIÓN AL EXPORTADOR: Una vez analizada la solicitud de verificación de origen por parte de la Unidad, ésta procederá a notificarlo al exportador o productor de la mercancía en el plazo máximo de 10 días hábiles posteriores a la presentación de la solicitud.
+2. PLAZO PARA REMITIR INFORMACIÓN: El exportador o productor que reciba un cuestionario o solicitud de información conforme a lo señalado con anterioridad, deberá responderlo y devolverlo en un plazo no mayor de treinta (30) días naturales, contados a partir del día hábil siguiente a la recepción del escrito o cuestionario.
+En caso que el exportador o productor no devuelva el cuestionario debidamente contestado o la información solicitada dentro del plazo otorgado o durante su prórroga, la Unidad de Origen resolverá sin más trámite que no se cuenta con los elementos necesarios para verificar el origen de la mercancía y que por tanto, se considerará no originaria. Tal resolución deberá notificársele a la parte importadora de la mercancía del Acuerdo correspondiente.
+3. NOTIFICACIÓN DE LA VISITA: Antes de efectuar una visita de verificación de conformidad con lo establecido en el presente artículo, la Unidad de Origen está obligada a notificar por escrito su intención de efectuar la visita al exportador o productor, con al menos quince (15) días naturales de anticipación.
+4. CONTENIDO DE LA NOTIFICACIÓN: La notificación a que se refiere el apartado 1 del presente artículo contendrá:
+a) Identificación de la autoridad que realizará la visita de verificación.
+b) El nombre o razón social del exportador o productor que se pretende visitar.
+c) La fecha y lugar de la visita de verificación propuesta.
+d) El objeto y alcance de la visita detallando las mercancías objeto de verificación.
+e) Los nombres, datos personales y cargos de los funcionarios que efectuarán la visita de verificación.
+f) El fundamento legal de la visita de verificación.
+g) Solicitud expresa de su consentimiento para realizar la visita de verificación.
+h) Indicación de que el no consentimiento para la realización de la visita, le será informado a la autoridad competente de la Parte importadora, quien a su vez podrá negar de la preferencia arancelaria a las mercancías objeto de verificación.
+5. NO AUTORIZACIÓN DE LA VISITA: Si dentro de los quince días naturales posteriores a la fecha en que se reciba la notificación de la visita de verificación propuesta, el exportador o el productor no otorga su consentimiento por escrito para la realización de la misma, la Unidad de Origen resolverá sin más trámite que no se cuenta con los elementos necesarios para verificar el origen de la mercancía y que por tanto, la mercancía se considerará no originaria. Tal resolución deberá notificársele a la parte importadora de la mercancía del Acuerdo correspondiente.
+6. CAMBIO DE FECHA DE LA VISITA: Cuando el exportador o productor reciba la notificación indicada en el apartado 1 del presente artículo, podrá dentro de los cinco días naturales siguientes a la fecha de recepción de la notificación, y por una única vez, solicitar la posposición de la visita de verificación propuesta. El exportador o productor indicará el plazo de posposición, el cual no podrá exceder de treinta días naturales a partir de la fecha de la notificación de la visita.
+7. MINUTA DE LA VISITA: La Unidad de Origen redactará una minuta de la visita que contendrá un resumen sucinto de los hechos constatados durante la visita y un listado de los documentos o información entregada por la empresa. Dicha minuta podrá ser firmada por el productor o exportador.
+8. INFORME DE LA VISITA: La Unidad de Origen redactará un informe de la visita que contendrá el detalle de los hechos constatados en la visita.
+9. ACTO FINAL DEL PROCEDIMIENTO DE VERIFICACIÓN: La Unidad de Origen dictará por escrito el acto final en el que se determine si la mercancía califica o no como originaria.

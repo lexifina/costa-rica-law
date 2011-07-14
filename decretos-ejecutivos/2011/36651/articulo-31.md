@@ -1,0 +1,1 @@
+Artículo 31.—Impugnación del acto de la denegatoria. Contra la resolución que deniegue la aprobación del cuestionario o el certificado de origen podrán interponerse recurso de revocatoria ante quien emite el acto denegatorio y recurso de apelación ante su superior jerárquico.

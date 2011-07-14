@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Procedimiento previo a la solicitud de la certificación de origen
+Artículo 14.—Del cuestionario de origen. El exportador interesado deberá completar el cuestionario de origen diseñado al efecto, para cada tipo de producto a exportar. Dicho cuestionario deberá presentarse en la Unidad de Origen para el análisis correspondiente.
+La información aportada será de tratamiento confidencial por parte de la Unidad de Origen, la cual no podrá divulgar dicha información a terceros, sin autorización escrita previa por parte del interesado.
+Este cuestionario deberá entregarse firmado por el exportador, en caso de que éste sea persona física, acompañado de una copia de la cédula de identidad, o bien por el representante legal de la empresa exportadora. En ambos casos, si el cuestionario no es presentado por el propio solicitante, la firma deberá ser autenticada por un abogado o notario público. En caso de que la solicitud sea presentada electrónicamente, la misma deberá suscribirse con firma digital y no se requerirá la autenticación de abogado o notario.

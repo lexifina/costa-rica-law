@@ -1,0 +1,3 @@
+Artículo 33.—Medios para verificar el origen. La Unidad podrá solicitar información al exportador o productor de la mercancía, tomando en cuenta, uno o más de los medios siguientes:
+a) Cuestionarios escritos o solicitudes de información dirigidos al exportador y, cuando corresponda, al productor.
+b) Visitas a las instalaciones del exportador o productor de la mercancía exportada, con el propósito de examinar los registros contables y los documentos a que se refiere el artículo 13 del presente Reglamento, además de inspeccionar las instalaciones, materiales o insumos que se utilicen en la producción del bien y en su caso las que se utilicen en la producción de un material.

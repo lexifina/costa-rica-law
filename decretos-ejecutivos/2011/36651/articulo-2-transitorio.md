@@ -1,0 +1,1 @@
+II.—El presente reglamento entrará en vigencia para las solicitudes de certificado de origen, los procedimientos de verificación de origen y las solicitudes de apertura de tales procedimientos, derivadas del Tratado de Libre Comercio suscrito entre la República de Costa Rica y la República Popular China, a partir de la entrada en vigencia de dicho tratado.

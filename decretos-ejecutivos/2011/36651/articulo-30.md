@@ -1,0 +1,1 @@
+Artículo 30.—Denegatoria del certificado de origen. En aquellos casos en que la Unidad de Origen resuelva no otorgar el certificado de Origen por considerar que no es posible comprobar el origen bajo los términos de un Acuerdo determinado, se procederá a emitir la resolución correspondiente, la cual será notificada al interesado.

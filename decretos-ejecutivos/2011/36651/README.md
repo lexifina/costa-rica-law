@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 36651
+
+Reglamento para la Emisión de Certificados de Origen y la Verificación de Origen de Mercancías Exportadas
+
+- Tipo: Decreto Ejecutivo
+- Número: 36651
+- Fecha: 2011-06-01
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 136 del 2011-07-14
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=70678&param2=85488&param3=1 (ficha 70678)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2011-07-14 | la propia norma |
