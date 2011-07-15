@@ -1,0 +1,1 @@
+Artículo 25.—Promover el diseño y fortalecer el establecimiento de la responsabilidad ambiental municipal dentro de la estructura administrativa, que impulse la política ambiental cantonal participativa.

@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con el artículo Nº 49, del mismo Código vigente, se establece la Comisión Permanente de asuntos Ambientales en la Municipalidad de Valverde Vega, la cual se regirá por el presente reglamento.

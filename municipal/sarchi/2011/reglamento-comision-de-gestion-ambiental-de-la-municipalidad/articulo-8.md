@@ -1,0 +1,1 @@
+Artículo 8º—El presidente procederá a nombrar los integrantes de la comisión de asuntos ambientales con los regidores propietarios tomando en cuenta las postulaciones, procurando siempre que participen en ellas todos los partidos políticos representados en el Concejo.

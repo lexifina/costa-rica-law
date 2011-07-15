@@ -1,0 +1,1 @@
+Artículo 31.—Los informes de la Comisión deberán presentarse en un plazo máximo de un mes después de haberse recibido el asunto, la Comisión podrá solicitar al Concejo las prórrogas que considere necesarios siempre y cuando esta solicitud sea fundamentada.

@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión propondrá los mecanismos para incorporar en carácter de asesores a personas cuyo perfil profesional o liderazgo en la comunidad permita fortalecer su capacidad de desempeño de sus funciones.

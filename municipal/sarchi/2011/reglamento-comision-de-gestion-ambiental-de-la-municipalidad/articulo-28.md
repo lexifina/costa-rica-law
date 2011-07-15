@@ -1,0 +1,1 @@
+Artículo 28.—Formarán quórum la mitad más uno de los miembros de la comisión y sus reuniones serán públicas, debiendo mediar acuerdo que se otorgue audiencia por situación especial o para que hagan uso de la palabra.

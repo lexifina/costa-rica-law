@@ -1,0 +1,1 @@
+Artículo 30.—La Comisión deberá, en forma obligatoria, presentar ante el Concejo Municipal cada 4 meses calendario un informe completo de las labores realizadas; tanto como de aquellas pendientes para resolver.

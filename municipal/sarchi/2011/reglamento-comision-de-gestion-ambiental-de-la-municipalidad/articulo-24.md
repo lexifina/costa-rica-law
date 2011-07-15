@@ -1,0 +1,1 @@
+Artículo 24.—Apoyar la elaboración de la política ambiental municipal, por medio de la priorización de la problemática ambiental, además de participar en la elaboración de propuestas y diseños de proyectos para la ejecución de la política ambiental del cantón.

@@ -1,0 +1,1 @@
+Artículo 11.—La Comisión podrá solicitar asesoría técnica a los funcionarios Municipales, estos deben comparecer cuando así les sea requerido. Podrá además la Comisión solicitar la asesoría que requiera a funcionarios de otras instituciones.

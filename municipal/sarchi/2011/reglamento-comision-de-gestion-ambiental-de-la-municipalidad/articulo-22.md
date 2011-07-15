@@ -1,0 +1,1 @@
+Artículo 22.—Establecer relaciones externas con instituciones públicas y privadas, lo mismo que actores de la sociedad civil, cuyas responsabilidades y campos de acción tenga relación con el quehacer ambiental.
