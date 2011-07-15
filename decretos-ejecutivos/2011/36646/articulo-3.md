@@ -1,0 +1,1 @@
+Artículo 3º—La sectorialización comprendida dentro del Plan Nacional de Desarrollo 2011-2014 “María Teresa Obregón Zamora”, elaborado conforme las regulaciones establecidas en la Directriz 001-MIDEPLAN de 1 de junio de 2010, continuará rigiéndose por las disposiciones del presente Decreto Ejecutivo.
