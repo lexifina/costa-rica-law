@@ -1,0 +1,1 @@
+Artículo 21.—De las garantías procesales. En el procedimiento se garantizará el debido proceso y el derecho de defensa se guardará total confidencialidad en su trámite. Cualquier infidencia de las personas que están obligadas a guardar confidencialidad será falta, la cual se sancionará de conformidad con la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 13.—Normativa complementaria. En todo aquello no previsto en el presente Reglamento se aplicará lo establecido en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica y su Reglamento, Código de Ética del Colegio de Ingenieros Agrónomos de Costa Rica y Ley General de la Administración Pública.

@@ -1,0 +1,5 @@
+Artículo 35.—Sanciones. Las sanciones por hostigamiento sexual se aplicarán según la gravedad de la falta y serán las siguientes: la amonestación, la suspensión en el desempeño del ejercicio profesional y la expulsión, sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según lo establecido en el Código Penal.
+Para lo cual, la Comisión Investigadora con fundamento en los resultados del procedimiento disciplinario podrá solicitar a la Junta Directiva la imposición de alguna de las siguientes sanciones:
+a) Amonestación verbal o por escrito.
+b) Suspender temporalmente hasta por dos años.
+c) Expulsión hasta por cinco años, dependiendo de la gravedad de los actos señalados en el artículo 8, 32, 33 y 34 del presente Reglamento que originen la sanción, cuando la falta sea gravísima. Pasado el término de expulsión impuesto, el afectado podrá solicitar de nuevo su reincorporación, previo al cumplimiento de los requisitos establecidos por la Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica y su Reglamento.

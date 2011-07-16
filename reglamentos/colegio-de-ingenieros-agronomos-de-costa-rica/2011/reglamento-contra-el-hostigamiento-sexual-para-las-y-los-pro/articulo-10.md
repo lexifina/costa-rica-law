@@ -1,0 +1,1 @@
+Artículo 10.—De la no Conciliación. La denuncia por hostigamiento sexual, por atentar contra la dignidad de la persona, es inconciliable entre las partes. Una vez recibida la denuncia al Colegio está obligado a darle el debido trámite, para iniciar con el procedimiento administrativo disciplinario.

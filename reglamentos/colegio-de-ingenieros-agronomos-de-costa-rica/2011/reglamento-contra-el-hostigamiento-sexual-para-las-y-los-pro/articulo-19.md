@@ -1,0 +1,2 @@
+Artículo 19.—De la conformación de la comisión investigadora. En el plazo improrrogable de tres días hábiles, contados a partir del siguiente día en que se presentó la denuncia ante la Fiscalía del Colegio, esta deberá comunicarlo a la Junta Directiva.
+Será la Junta Directiva quien proceda a conformar la Comisión Permanente Investigadora de Asuntos de Hostigamiento y Acoso Sexual, dispuesta en el artículo 20 de la Ley de Hostigamiento Sexual en el Empleo y la Docencia, la cual tendrá bajo su responsabilidad la tramitación del procedimiento administrativo y disciplinario.

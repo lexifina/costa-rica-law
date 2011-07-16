@@ -1,0 +1,1 @@
+Artículo 15.—Sanciones por incumplimiento. En caso de incumplimiento de las obligaciones establecidas en la Ley y en este Reglamento, la o el profesional miembro de este Colegio responsable será sancionado, sea mediante amonestación, suspensión o expulsión, de conformidad con lo que se determine en el marco de un debido proceso.

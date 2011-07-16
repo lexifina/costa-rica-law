@@ -1,0 +1,1 @@
+Artículo 22.—De la ampliación o aclaración. La Comisión Investigadora podrá solicitar a la persona víctima denunciante, dentro del término de tres días hábiles, contados a partir de su instalación, que amplíe o aclare los términos de la denuncia.

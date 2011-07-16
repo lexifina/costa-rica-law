@@ -1,0 +1,1 @@
+Artículo 30.—De la Resolución Final y los Recursos. La Junta Directiva tendrá quince días naturales para resolver lo que corresponda. Contra las sanciones que la Junta Directiva imponga a las y los profesionales miembros del Colegio, cabrán los recursos que se establecen en el artículo 59 de la Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica.

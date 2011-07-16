@@ -1,0 +1,6 @@
+Artículo 8º—Elementos imprescindibles constitutivos del Hostigamiento Sexual: De acuerdo a lo establecido en el artículo 4 de la Ley contra Hostigamiento Sexual o Acoso Sexual en el Empleo y la Docencia, se configuran los elementos siguientes:
+1. Una relación de autoridad o dependencia, o jerarquía, o lineal, vertical u horizontal, o situación ventajosa.
+2. Un acto de carácter o connotación sexual: Estos actos pueden ser físicos, verbales, escritos o de similar naturaleza.
+3. El acto no es deseado o es rechazado manifiestamente, por la víctima.
+4. El sometimiento o el rechazo de una persona a dicha conducta, que se utiliza de forma explícita o implícita como base para una decisión que tenga efectos sobre el acceso de dicha persona, como cliente, empleado, alumno u otro colega; sobre la continuación del mismo, los ascensos, el salario, la formación, o cualesquiera otras decisiones relativas al ejercicio de la profesión, y/o dicha conducta creando un entorno profesional, laboral, educación o de cualquier otra índole que sea intimidatorio, hostil o humillante para la persona que es objeto de la misma.
+El aspecto reiterativo de estas conductas no será relevante para los efectos de la constitución del acto de hostigamiento sexual, sin embargo, podrá ser un elemento indiciario que coadyuve a constatar su efectiva presencia.

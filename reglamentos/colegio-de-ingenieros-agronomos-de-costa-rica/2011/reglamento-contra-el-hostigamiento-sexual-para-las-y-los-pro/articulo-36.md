@@ -1,0 +1,1 @@
+Artículo 36.—De la ejecución de la sanción. Una vez firme lo resuelto la Junta Directiva del Colegio de Ingenieros Agrónomos de Costa Rica aplicará la ejecución de la sanción, la cual debe ejecutarse en un plazo máximo de un mes.

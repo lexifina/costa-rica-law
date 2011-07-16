@@ -1,0 +1,1 @@
+Artículo 26.—Comparecencia de la persona denunciante. La persona denunciada tendrá derecho a una comparecencia oral y privada ante la Comisión Investigadora, en la cual se admitiría y recibiría toda la prueba y la cual deberá ser notificada con un mínimo de quince días hábiles.

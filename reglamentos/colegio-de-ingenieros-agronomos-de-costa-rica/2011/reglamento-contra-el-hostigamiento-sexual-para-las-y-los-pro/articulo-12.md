@@ -1,0 +1,1 @@
+Artículo 12.—Del apoyo a las partes afectadas. Las partes afectadas, víctima y denunciada, tendrán derecho a contar, durante el procedimiento con el patrocinio letrado y con el apoyo emocional o psicológico de su confianza, quienes deberán cumplir con lo señalado en el artículo anterior.
