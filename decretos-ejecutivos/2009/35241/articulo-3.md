@@ -1,1 +1,0 @@
-Artículo 3º—Se derogan los Decretos Ejecutivos Nº 34208-MAG, publicado en el Alcance Nº 40-A de La Gaceta Nº 246 del 21 de diciembre del 2007 y el Nº 34402-MAG, publicado La Gaceta Nº 70 del 10 de abril del 2008.
