@@ -1,0 +1,1 @@
+Artículo 85.—Durante el abordaje se deberá garantizar en todo momento el respeto de los derechos de la persona menor de edad, así como considerar su interés superior e interpretar de manera sistemática todos sus derechos y lo que mejor favorezca el cumplimiento de los mismos ante cualquier decisión.

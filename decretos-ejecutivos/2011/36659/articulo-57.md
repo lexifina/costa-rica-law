@@ -1,0 +1,3 @@
+Artículo 57.—En el caso del inciso c) del artículo 53 del presente Reglamento, además de los requisitos generales señalados en el artículo 55, la o las personas solicitantes deberán llenar el formulario, que para tal efecto facilitará la Dirección General y presentar el certificado de defunción.
+a) Si el fallecimiento se produjo en Costa Rica, certificación de defunción emitida por el Registro Civil.
+b) Si el fallecimiento se produjo en el exterior, deberá portar la certificación debidamente legalizada por el Consulado de Costa Rica del lugar donde ocurrió el fallecimiento y legalizada por el Ministerio de Relaciones Exteriores y Culto de Costa Rica. Si el documento fue expedido en un idioma extranjero, éste deberá venir acompañado de su traducción oficial.

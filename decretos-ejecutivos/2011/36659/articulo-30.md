@@ -1,0 +1,1 @@
+Artículo 30.—Cuando por motivos de salud, distancia u otras razones, la persona menor de edad costarricense no pueda hacerse presente para tramitar el pasaporte, los padres o representante legal o tutor, podrán gestionar el pasaporte, presentando dos fotografías recientes tamaño pasaporte, además de los requisitos citados en el artículo 29 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 65.—En el caso de inciso h) del artículo 54 del presente Reglamento además de los requisitos establecidos en el artículo 55, los solicitantes deberán llenar el formulario migratorio oficial que para tal efecto facilitará la Dirección General y presentar certificación de nacimiento literal expedida por el Registro Civil donde se demuestre la inscripción de la tutoría.

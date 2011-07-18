@@ -1,0 +1,2 @@
+Artículo 94.—A solicitud del Patronato Nacional de la Infancia, esta Dirección General brindará la colaboración en los siguientes procedimientos: expedición de documento migratorio, permiso de salida del país y/o trato preferencial en puestos habilitados para el tránsito internacional de personas.
+Asimismo, cuando así lo requiera el Patronato Nacional de la Infancia, esta Dirección General brindará acompañamiento para el traslado de la persona menor de edad, al lugar determinado por dicha dependencia, para lo cual deberá dejar constancia en el registro respectivo.

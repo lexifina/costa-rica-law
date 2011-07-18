@@ -1,0 +1,1 @@
+Artículo 84.—Todo funcionario migratorio que en cumplimiento de su labor, sea alertado o detecte una niña, niño o adolescente no acompañado, o en una posible situación de vulnerabilidad, deberá proceder a brindarle en forma inmediata protección.

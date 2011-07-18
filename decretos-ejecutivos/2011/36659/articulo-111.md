@@ -1,0 +1,1 @@
+Artículo 111.—Cuando a una persona menor de edad se le afecta su salida del país por una de las situaciones descritas en los artículos 108 y 109 anteriores, la Dirección General no expedirá el pasaporte hasta tanto la autoridad judicial y/o administrativa no se haya pronunciado sobre la salida del país de esta persona.

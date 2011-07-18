@@ -1,0 +1,1 @@
+Artículo 18.—Respetando el principio del Interés Superior de la persona menor de edad y siguiendo los lineamientos de la Caja Costarricense de Seguro Social, las personas menores de edad deberán presentar el documento de afiliación de sus padres o encargados afiliados a los sistemas de seguros de la Caja Costarricense de Seguro Social.

@@ -1,0 +1,1 @@
+Artículo 37.—La Dirección General de Migración y Extranjería deberá determinar si la persona menor de edad es costarricense, así como la fecha, el puesto migratorio por el cual se efectuó la salida y si egresó con la persona autorizada, que consta en el Sistema de Salida de Niñas, Niños y Adolescentes, que al efecto lleva esta Dirección.

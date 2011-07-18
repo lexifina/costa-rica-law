@@ -1,0 +1,1 @@
+Artículo 67.—En los casos de personas menores de edad con estatus migratorio de refugiadas o apátridas acompañadas por un solo progenitor o representante legal, no acompañadas o separadas, se seguirá el procedimiento establecido en el Título VI, Capítulo II, Sección II del presente Reglamento.

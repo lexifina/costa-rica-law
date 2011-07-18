@@ -1,0 +1,1 @@
+Artículo 99.—Para obtener el documento de viaje por primera vez, los padres y/o representante legal de la persona menor de edad refugiada, deberán solicitar ante la Unidad de Refugio de la Dirección General, la correspondiente visa de salida y reingreso al país.

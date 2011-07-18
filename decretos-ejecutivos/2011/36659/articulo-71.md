@@ -1,0 +1,1 @@
+Artículo 71.—El funcionario que realiza el control migratorio en el puesto internacional de salida, deberá de verificar nuevamente en el Sistema de Salidas de Personas Menores de Edad si el permiso se mantiene vigente, si éste ha sido revocado o si existe algún impedimento de salida o alerta contra la persona menor de edad.

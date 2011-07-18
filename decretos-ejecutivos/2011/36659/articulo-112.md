@@ -1,0 +1,1 @@
+Artículo 112.—La revalidación del pasaporte ordinario de personas menores de edad costarricense que posea una vigencia de diez años, deberá revalidarse a los cinco años de expedición, para lo cual deberá presentar comprobante de pago por un monto de seiscientos veinticinco colones, sin céntimos.

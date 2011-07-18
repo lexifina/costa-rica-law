@@ -1,0 +1,1 @@
+Artículo 9º—La persona menor de edad extranjera o costarricense que viaje solo y que ingrese al país, deberá portar pasaporte vigente y en buen estado, además del documento donde sus padres y/o representante legal, le autoricen la salida del país de origen o residencia habitual.

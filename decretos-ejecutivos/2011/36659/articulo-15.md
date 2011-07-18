@@ -1,0 +1,1 @@
+Artículo 15.—Se establece como requisito obligatorio para la autorización de visa de ingreso para personas extranjeras menores de edad, la comprobación de la representación legal. En caso de que el documento sea expedido en un idioma diferente al español, éste deberá venir acompañado de su traducción oficial.

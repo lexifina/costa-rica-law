@@ -1,0 +1,1 @@
+Artículo 11.—La persona menor de edad extranjera que posea la documentación respectiva y cumpla los requisitos de ingreso establecidos en la Ley 8764, tendrá derecho a ingresar al país y a que la autoridad migratoria competente haga constar el comprobante de autorización.

@@ -1,0 +1,1 @@
+Artículo 2º—Las personas menores de edad costarricenses tienen derecho a no migrar; para ello, el Estado procurará el crecimiento económico y el desarrollo social equilibrado, en las distintas regiones del país, evitando que hayan zonas expulsoras de población.

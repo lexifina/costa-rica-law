@@ -1,0 +1,9 @@
+Artículo 29.—Para que una persona menor de edad nacional pueda obtener su pasaporte, deberá cumplir con los siguientes requisitos:
+a) Certificación de nacimiento, extendida por el Registro Civil con una vigencia máxima de un año de haberse expedido, cuando la persona menor de edad sea menor de 12 años. En el caso de los mayores 12 años y menores de 18, presentarán original y copia de la Tarjeta de Identificación de Menor (TIM), válida y en buen estado. En casos calificados se podrá presentar la certificación de nacimiento.
+b) Comprobante del pago de veintiséis dólares por concepto del costo del documento y del pago del documento a favor del Estado, por treinta dólares, con base en los artículos 251 y 252 de la Ley General de Migración y Extranjería y doscientos cincuenta colones de la Ley de Parques Nacionales (Ley 6084).
+c) Documentos a presentar por las personas que gestionan el pasaporte y el permiso de salida del país:
+c-1) Original y copia, vigente y en buen estado de la cédula de identidad, si los padres o su representante legal son costarricenses.
+c-2) Original y copia, vigente y en buen estado de la cédula de residencia o pasaporte vigente, si los padres o el representante legal son extranjeros y residentes legales en el país.
+c-3) Original y copia de la hoja de calidades del pasaporte y donde se encuentre registrada la firma, vigente y en buen estado, si los padres son extranjeros no residentes.
+Para tramitar el pasaporte, la persona costarricense menor de edad deberá estar acompañada por sus padres y/o representante legal y en ese mismo acto se le expedirá el permiso de salida del país.
+En el caso de que uno de los padres se encuentre ausente, el otro progenitor podrá tramitar el pasaporte de su hija o hijo con un poder especial protocolizado y este deberá cumplir con lo establecido en el artículo 68 de este reglamento.

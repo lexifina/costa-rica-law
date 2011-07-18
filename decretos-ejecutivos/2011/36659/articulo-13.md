@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las visas de ingreso
+Artículo 13.—La visa constituye una autorización de ingreso al territorio nacional extendida por el Director General o el agente consular cuando lo autorice el primero, o cuando así lo permitan las Directrices Generales para el Otorgamiento de Visas de Ingreso. Del presente régimen se exceptúa el otorgamiento de visas diplomáticas y oficiales. En casos excepcionales el Director General de Migración y Extranjería podrá conceder visas, sin que para esos efectos sean vinculantes las Directrices Generales de Visas de Ingreso y Permanencia para no Residentes, en este caso, deberá fundamentar y razonar debidamente su decisión.

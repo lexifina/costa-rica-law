@@ -1,0 +1,1 @@
+Artículo 21.—Toda resolución mediante la cual se regulariza la situación migratoria de una persona menor de edad extranjera, deberá indicar que para salir legalmente del país, esta persona requiere del respectivo permiso de salida.

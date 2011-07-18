@@ -1,0 +1,1 @@
+Artículo 89.—El funcionario de Migración y Extranjería realizará entrevista informativa a la persona menor de edad con el fin de recabar toda la información posible sobre la persona menor de edad, siguiendo la guía oficial elaborada para tales fines.

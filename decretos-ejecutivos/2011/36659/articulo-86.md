@@ -1,0 +1,1 @@
+Artículo 86.—Se deberá garantizar la seguridad de la persona menor de edad separándola de la situación de riesgo y manteniéndola bajo su protección, cubriendo además las necesidades básicas de alimento y vestido.

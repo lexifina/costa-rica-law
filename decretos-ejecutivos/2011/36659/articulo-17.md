@@ -1,0 +1,1 @@
+Artículo 17.—Toda persona menor de edad extranjera, que requiera permanecer legalmente en el país, deberá cumplir con los requisitos establecidos para esta categoría. La solicitud de permanencia legal de una persona menor de edad migrante deberá admitirse, a pesar de encontrarse en situación irregular.

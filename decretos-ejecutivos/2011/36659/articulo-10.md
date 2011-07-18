@@ -1,0 +1,1 @@
+Artículo 10.—Toda persona menor de edad nacional o extranjera que pretenda ingresar al país deberá presentar, en el puesto migratorio correspondiente, una tarjeta de ingreso que será facilitada por los medios de transporte internacional de personas, o excepcionalmente, por la Dirección General.

@@ -1,0 +1,4 @@
+SECCIÓN II
+De la autorización temporal y permanente
+Artículo 51.—La Dirección General otorgará permisos temporales de salida del país a personas menores de edad extranjeras o costarricenses, cuando así lo soliciten los padres ó quienes ejerzan la representación legal, ya sea en ejercicio de la autoridad parental o en virtud de resolución judicial y/o administrativa donde así se señale. Los padres o representantes legales deberán indicar en el formulario migratorio oficial la o las personas que acompañarán a la persona menor de edad, siendo esta información susceptible de modificación en cualquier momento.
+El permiso temporal tendrá una vigencia de treinta días naturales, contados a partir de la fecha de su otorgamiento y podrá ser utilizado para una o varias salidas del país, dentro del período autorizado, cuando así lo soliciten.

@@ -1,0 +1,1 @@
+Artículo 8º—Para ingresar a Costa Rica la persona menor de edad extranjera, deberá portar el pasaporte o documento de viaje válido, extendido por la autoridad competente y cumplir con los demás requisitos establecidos al efecto.

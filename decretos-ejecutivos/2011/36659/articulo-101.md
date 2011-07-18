@@ -1,0 +1,4 @@
+SECCIÓN II
+De los permisos de salida del país de personas
+refugiadas o apátridas
+Artículo 101.—En los casos de personas menores de edad con estatus migratorio de refugiadas, asilados o apátridas acompañadas por un solo progenitor o representante legal, no acompañadas o separadas, los trámites para la autorización de salida del país se regirán por las disposiciones de este capítulo en virtud de lo establecido en el artículo 25 de la Convención sobre el Estatuto de los Refugiados de 1951 adoptada por Costa Rica mediante Ley Nº 6079 del 29 de agosto de 1977, el artículo 25 de la Convención sobre el Estatuto de los Apátridas de 1954 adoptada mediante Ley Nº 6079 del 29 de agosto de 1977 y los artículos 3º, 9º, 10 y 22 de la Convención sobre los Derechos del Niño adoptada mediante Ley Nº 7184 del 18 de julio de 1990.

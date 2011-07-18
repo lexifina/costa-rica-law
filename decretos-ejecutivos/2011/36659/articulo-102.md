@@ -1,0 +1,1 @@
+Artículo 102.—Como reemplazo de los documentos o certificados que no estén disponibles y que deberían ser expedidos a los refugiados y apátridas por sus autoridades nacionales por conducto de éstas, quién solicita el permiso de salida de una persona menor de edad refugiada o apátrida, deberá solicitar una declaración jurada ante la agencia implementadora del ACNUR.

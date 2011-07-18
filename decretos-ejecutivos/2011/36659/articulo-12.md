@@ -1,0 +1,1 @@
+Artículo 12.—En ningún supuesto se podrá rechazar a una persona menor de edad extranjera, salvo en resguardo de su propio interés, que deberá contemplar el interés superior y la garantía de los derechos de las personas menores de edad.

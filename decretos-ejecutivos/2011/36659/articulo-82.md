@@ -1,0 +1,1 @@
+Artículo 82.—Se debe tener presente que todas las situaciones relacionadas con personas menores de edad son diferentes, pero este Reglamento establece un procedimiento general, donde se incluyen los diferentes procesos que deben de cumplirse en la atención integral de una persona menor a nivel migratorio.

@@ -1,0 +1,1 @@
+Artículo 33.—Para efecto de renovación de pasaporte, la gestión podrá ser realizada por uno de los padres, en el tanto no se modifiquen las condiciones del permiso permanente de salida del país de la persona menor de edad, por cuanto se mantendrá como válida la autorización que consta en el expediente.

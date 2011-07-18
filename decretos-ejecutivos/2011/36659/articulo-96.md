@@ -1,0 +1,1 @@
+Artículo 96.—Cuando una persona menor de edad no acompañada o separada de su familia solicite la condición de refugiado, asilado o apátrida, la Dirección General coordinará con el Patronato Nacional de la Infancia para determinar quién tendrá la representación legal de la persona menor de edad en el país.

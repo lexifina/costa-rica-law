@@ -1,0 +1,1 @@
+Artículo 107.—El funcionario responsable entregará a la persona interesada una impresión del permiso de salida de la persona menor edad, debidamente sellada y firmada, asimismo, una copia de éste será archivada en el expediente, que para tal efecto confeccionó la Dirección General, con el nombre y la firma de recibido del interesado.

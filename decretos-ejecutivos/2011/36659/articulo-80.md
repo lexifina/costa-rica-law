@@ -1,0 +1,2 @@
+Artículo 80.—Si durante su vigencia el petente solicita el levantamiento de la alerta, deberá presentar solicitud en forma escrita, indicando los motivos ante la oficina correspondiente.
+En el caso de que exista una alerta en el sistema que lleva la Dirección General, interpuesta por alguno de los padres contra la persona menor de edad, la Administración de oficio levantará la misma, al cumplir la persona menor de edad su mayoría de edad (dieciocho años).

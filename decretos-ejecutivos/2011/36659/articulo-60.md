@@ -1,0 +1,1 @@
+Artículo 60.—En el caso del inciso c) del artículo 54 del presente Reglamento, además de los requisitos generales señalados en el artículo 55, las personas solicitantes deberán llenar el formulario migratorio oficial que para tal efecto facilitará la Dirección General y presentar la resolución en firme de autoridad judicial competente.
