@@ -1,0 +1,1 @@
+Artículo 4º—Las acciones, normas, medidas, lineamientos y campañas de sensibilización para el apagado de la iluminación deberán implementarse dentro de los 10 días siguientes a la publicación de esta Directriz.

@@ -1,0 +1,1 @@
+Artículo 3º—Se establecerán campañas internas de sensibilización a los funcionarios y funcionarias sobre el uso racional de la energía eléctrica y la conveniencia del apagado, no solo de la iluminación al cierre de la jornada laboral, sino de otros equipos electrónicos que no sean utilizados para protección y seguridad.
