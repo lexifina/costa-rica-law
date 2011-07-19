@@ -1,0 +1,18 @@
+Nº 36655-S
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En ejercicio de las facultades y atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25, 27 párrafo primero, 28 párrafo segundo, inciso b) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; 1°, 2°, 4°, 113 y 117 de la Ley General de Salud, Ley N° 5395 del 30 de octubre de 1973.
+Considerando:
+1º—Que la salud de la población es un bien de interés público tutelado por el Estado, correspondiéndole al Ministerio de Salud la definición de la política nacional de salud, la normación, planificación y coordinación de todas las actividades públicas y privadas relativas a salud, así como la ejecución de aquellas actividades que le competen conforme a la ley. Tendrá potestades para dictar reglamentos autónomos en estas materias.
+2º—Que la Ley General de Salud en su artículo 117 permite la adquisición de medicamentos no registrados a la Caja Costarricense del Seguro Social y cualquier otra entidad estatal con funciones de salud pública o seguridad social. En caso de urgencia o de necesidad pública, ese Ministerio podrá autorizar la importación de medicamentos no registrados.
+3°—Que mediante Decreto Ejecutivo No. 36358-S de 4 de octubre de 2010, publicado en La Gaceta No. 25 de 4 de febrero de 2011, el Poder Ejecutivo promulgó el reglamento que tiene por objeto regular la adquisición e importación de medicamentos no registrados, cuyo acceso es fundamental para el tratamiento de enfermedades en algunos pacientes.
+4°—Que el Gerente de Logística y la Gerente Médica de la Caja Costarricense de Seguro Social han solicitado al Ministerio de Salud la reforma del artículo 3 del Decreto Ejecutivo No. 36358-S de 4 de octubre de 2010 “Reglamento para la autorización para la importación y adquisición de medicamentos no registrados”, por cuanto existen casos excepcionales cuyo resguardo queda fuera de la aplicación e interpretación de la citada norma, pudiendo ponerse en peligro el derecho a la salud y la vida de los pacientes ante la amenaza en el abastecimiento de los medicamentos necesarios.
+5°—Que por lo anterior, se hace necesario y oportuno modificar el artículo 3 del Decreto Ejecutivo Nº 36358-S de 4 de octubre de 2010, permitiendo la importación de medicamentos no registrados cuando exista una excepción o justificación esencial. Por tanto,
+Decretan:
+Reforma al artículo 3 del Decreto Ejecutivo Nº 36358-S
+de 4 de octubre de 2010 “Reglamento para la
+Autorización para la Importación y
+Adquisición de Medicamentos
+no Registrados”
+Artículo 1º—Refórmese el artículo 3 del Decreto Ejecutivo Nº 36358-S de 4 de octubre de 2010, publicado en La Gaceta Nº 25 de 4 de febrero de 2011 “Reglamento para la autorización para la importación y adquisición de medicamentos no registrados”, para que en lo sucesivo se lea así:
+“Artículo 3°—El Ministerio de Salud autorizará a la Caja Costarricense de Seguro Social y a otras entidades estatales la importación de medicamentos no registrados, por una única vez. Cuando se trate de importaciones con entregas parciales, sucesivas y prorrogables la autorización tendrá validez por todo el plazo o prórrogas correspondientes. Salvo en aquellos casos en que el Comité de Farmacoterapia de la Caja Costarricense de Seguro Social o la autoridad competente de otra entidad estatal demuestre, según los criterios que establezca el Ministerio de Salud, la imposibilidad de adquirir un producto registrado, para lo cual el fabricante o proveedor del medicamento, deberá aportar un certificado expedido por una persona farmacéutica debidamente incorporada al Colegio de Farmacéuticos de Costa Rica, que indique que el medicamento cumple con la normativa vigente.”
