@@ -1,0 +1,1 @@
+Artículo 5º—De las relaciones laborales: Queda expresamente estipulado que no existe ninguna relación laboral entre los estudiantes que realicen el trabajo comunal y la Municipalidad, por lo tanto no existirá ninguna remuneración económica a cambio de las actividades designadas a cada estudiante.
