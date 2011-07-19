@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE TURRIALBA
+Comunica, que en la sesión ordinaria N° 60-2011 celebrada por el Concejo Municipal de Turrialba, el día martes 21 de junio del 2011, inciso 7 del artículo tercero, se acordó lo siguiente:
+Modificar los artículos 11, 12, y 13 del Reglamento General para Licencias en Telecomunicaciones del cantón de Turrialba, publicado en La Gaceta N° 22 del 1° de febrero del 2011, para que digan:
+“Artículo 11.—El predio donde se pretenda ubicar e instalar la Obra Constructiva deberá tener como dimensiones mínimas, las medidas equivalentes tanto de frente como de fondo, iguales o mayores a la altura de la torre, nunca serán menores a la altura que presente la atalaya, los accesos se regularán conforme a la Ley de Construcciones y a los reglamentos nacionales de construcción y fraccionamiento, sin perjuicio de las disposiciones propias de la Municipalidad.
+Artículo 12.—Se deberá respetar un radio de amortiguamiento alrededor de la torre, de una distancia estrictamente igual a la altura que presente la torre de telecomunicaciones, mediada desde el centro de la base de la misma. La ubicación de la Torre deberá ser en el punto central del lote, no se aprobarán proyectos donde se ubiquen las atalayas adyacentes a la colindancia del predio en cuestión, estas disposiciones como una medida de seguridad para las construcciones aledañas, y previendo facilitar el tránsito del personal necesario para la conservación y mantenimiento de la Obra Constructiva.
+Artículo 13.—Se elimina en su totalidad”.
+Turrialba, 6 de julio del 2011.—
