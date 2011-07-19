@@ -1,0 +1,1 @@
+Artículo 28.—Toda donación será eficaz hasta que ingrese en el patrimonio del Estado, a través del Ministerio de Salud, convirtiéndose en fondos públicos o bienes estatales según corresponda, por lo cual se establecerán mecanismos de control interno para su fiscalización.

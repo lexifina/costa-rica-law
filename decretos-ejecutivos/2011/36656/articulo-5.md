@@ -1,0 +1,1 @@
+Artículo 5°—La Federación Costarricense de Cuidados Paliativos, para la designación de sus miembros representantes, remitirá una terna conformada de tres especialistas en cuidados paliativos, del cual el (la) Ministro (a) de Salud escogerá a dos, designando una en calidad de miembro propietario y otro en calidad de suplente.

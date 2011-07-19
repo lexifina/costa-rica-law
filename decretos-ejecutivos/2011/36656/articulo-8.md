@@ -1,0 +1,1 @@
+Artículo 8°—La designación de los miembros del Consejo se hará mediante Acuerdo Ejecutivo que se publicará en el Diario Oficial La Gaceta, sus miembros no percibirán dieta ni salario alguno por este cargo, y serán nombrados por períodos de dos años, pudiendo ser reelectos.

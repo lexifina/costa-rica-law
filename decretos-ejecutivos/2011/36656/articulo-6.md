@@ -1,0 +1,1 @@
+Artículo 6°—Las Fundaciones de Cuidados Paliativos, para la designación de sus miembros representantes, remitirán, cada una, una lista con dos especialistas en cuidados paliativos, de las cuales el (la) Ministro (a) de Salud escogerá únicamente a dos de todos los propuestos, designando a una en calidad de miembro propietario y a otro en calidad de suplente.
