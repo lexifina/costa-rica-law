@@ -1,1 +1,0 @@
-Artículo 63.—Los servidores del Ministerio podrán realizar actividades de formación humanística intelectual estética deportiva y recreativa que les permita el desarrollo de sus aptitudes la integración de grupos y un saludable y adecuado estado físico y mental.

@@ -1,1 +1,0 @@
-Artículo 70.—Las medidas disciplinarias que se indican en el presente Capítulo, deberán imponerse dentro del mes siguiente, a aquel en que se cometió la falta o que fue de conocimiento del Departamento o Dirección correspondiente.

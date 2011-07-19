@@ -1,1 +1,0 @@
-Artículo 76.—La gestión de despido de un servidor regular, se efectuará siguiendo el procedimiento que establece el Estatuto y su Reglamento, y lo que dispone el Código de Trabajo, cuando se trate de servidores no protegidos por el Régimen.

@@ -1,2 +1,0 @@
-Artículo 32.—Las vacaciones podrán fraccionarse, hasta tres oportunidades, y sólo podrá acumularse un periodo cuando, por la naturaleza de las funciones, se dificulte el reemplazo del servidor. Al respecto, el servidor debe realizar una solicitud expresa de acumulación, con el visto bueno del jefe inmediato, ante el Departamento de Recursos Humanos.
-Habiéndose autorizado la acumulación de vacaciones, el servidor debe disfrutar la totalidad de los días que se acumularon, junto con los días que hubiere solicitado del periodo siguiente.

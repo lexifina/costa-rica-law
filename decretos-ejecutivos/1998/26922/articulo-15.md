@@ -1,1 +1,0 @@
-Artículo 15.—El pago de tiempo extraordinario se hará conforme lo establece la ley y el procedimiento que para tales efectos dicte la Comisión de Recursos Humanos indicada en el artículo que antecede. A falta de contenido económico, podrá ser compensado en tiempo, mientras el interesado sea funcionario activo del Ministerio.

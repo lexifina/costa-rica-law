@@ -1,1 +1,0 @@
-Artículo 41.—Los funcionarios profesionales, podrán acogerse a los beneficios de Carrera Profesional y Dedicación Exclusiva, de conformidad con los requisitos y procedimientos establecidos en las resoluciones que, para tales efectos, emite la Dirección General de Servicio Civil.

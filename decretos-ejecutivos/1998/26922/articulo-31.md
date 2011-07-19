@@ -1,1 +1,0 @@
-Artículo 31.—El pago de vacaciones, cuando corresponda, se hará con base en el promedio del salario ordinario y extraordinario, devengado por el servidor durante el último año en que adquirió el derecho, o del período proporcional correspondiente.

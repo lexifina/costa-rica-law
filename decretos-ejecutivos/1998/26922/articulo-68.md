@@ -1,1 +1,0 @@
-Artículo 68.—Se considerarán faltas de alguna gravedad la violación de las disposiciones de los artículos 6, literales b., c., d., e., f., j., m., n. y q. y 8, literales a., b., f., 9., i., I., p., s. y t. del presente Reglamento.

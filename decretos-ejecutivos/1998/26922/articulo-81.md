@@ -1,1 +1,0 @@
-Artículo 81.—A falta de disposiciones en el presente Reglamento aplicables a un caso particular, deberán tenerse como normas supletorias, las contenidas en el Estatuto y su Reglamento, Ley General de la Administración Pública, Código de Trabajo y demás leyes y reglamentos conexos.

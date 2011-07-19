@@ -1,1 +1,0 @@
-Artículo 21.—Es potestad del Departamento de Recursos Humanos, previo estudio de la situación, determinar y efectuar el rebajo salarial para un servidor que presente ausencias, llegadas tardías u omisiones.

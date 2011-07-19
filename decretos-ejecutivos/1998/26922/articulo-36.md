@@ -1,3 +1,0 @@
-Artículo 36.—La servidora embarazada gozará obligatoriamente de subsidio salarial, durante el mes anterior al parto y los tres posteriores a él. Si éste se retrasare, no se alterará el término de la licencia, pero si el alumbramiento se anticipa, gozará de los tres meses posteriores al mismo.
-La servidora deberá tramitar su incapacidad, por medio del superior inmediato, por lo menos con quince días de anticipación a su retiro, de acuerdo con la fecha, previamente señalada, por el médico.
-El monto que corresponda al pago de este subsidio, deberá ser equivalente al salario de la servidora y lo cubrirá, por partes iguales, la Caja Costarricense de Seguro Social y el Ministerio.

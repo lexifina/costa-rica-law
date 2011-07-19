@@ -1,1 +1,0 @@
-Artículo 13.—Cuando necesidades imperiosas del Ministerio lo requieran, los servidores quedan en la obligación de laborar horas extraordinarias, salvo que razones justificadas lo Impidan, pero en ningún caso la jornada ordinaria sumada a la extraordinaria podrá ser superior a doce horas diarias.

@@ -1,2 +1,0 @@
-Artículo 11.—La Jornada ordinaria de trabajo para los servidores del Ministerio, será acumulativa y continua, de lunes a viernes. Se inicia a las siete horas y treinta minutos y concluye a las dieciséis horas. Dentro de esta jornada, los servidores disfrutarán de cuarenta y cinco minutos para almorzar, diez minutos en la mañana y diez minutos en la tarde, para tomar un refrigerio.
-Los jefes serán responsables directos de la forma en que el respectivo personal, haga uso de dichos descansos.

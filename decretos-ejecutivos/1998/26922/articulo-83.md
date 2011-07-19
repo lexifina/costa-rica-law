@@ -1,1 +1,0 @@
-Artículo 83.—La asignación de zonaje, se regulará por lo que estipule el reglamento que al respecto dicte el Ministerio y su pago formará parte, para todos los efectos, del salario particular del servidor.
