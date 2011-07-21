@@ -13,3 +13,4 @@ Confección de actas de sesiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-15 | la propia norma |
+| 2 | 2011-07-21 | Circular 83 (2011-07-21) |
