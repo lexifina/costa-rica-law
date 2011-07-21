@@ -1,0 +1,1 @@
+E) Excluir de este acuerdo, todos aquellos sectores costeros que el Área de Conservación Guanacaste ha clasificado certificado como terrenos de Patrimonio Natural del Estado, mediante la Metodología establecida por el MINAET en la totalidad del cantón de Nandayure.
