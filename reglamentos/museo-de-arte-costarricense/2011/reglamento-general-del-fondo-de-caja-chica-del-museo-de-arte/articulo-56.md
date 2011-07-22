@@ -1,0 +1,1 @@
+Artículo 56.—Modificaciones. Este Reglamento podrá ser modificado únicamente por acuerdo firme de la Junta Directiva del Museo de Arte Costarricense y deberá ser previamente avalado por la Tesorería Nacional.

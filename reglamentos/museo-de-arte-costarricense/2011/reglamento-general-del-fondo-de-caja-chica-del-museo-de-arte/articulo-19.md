@@ -1,0 +1,1 @@
+Artículo 19.—Modificaciones a los montos. Para modificar los montos establecidos en el artículo anterior, la Junta Administrativa deberá contar con un estudio fundamentado de las necesidades institucionales que justifican el cambio. Previo a emitir el acuerdo definitivo que modifique dichos montos, deberá contar con el visto bueno de la Tesorería Nacional.
