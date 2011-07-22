@@ -1,0 +1,11 @@
+5º—Confirmación, comunicación y divulgación:
+1. El Ministerio de Hacienda solicitará al respectivo banco emisor, el nombre y número de cédula del dueño de la cuenta a la cual se asignó el “punto solidario” que haya resultado ganador. Bajo ninguna otra circunstancia, el Ministerio de Hacienda solicitará al banco emisor la identidad de las personas que participan en la promoción.
+2. El banco emisor cuenta con un plazo de 1 día hábil para comunicar al Ministerio de Hacienda el nombre y número de cédula del titular de la cuenta cuyo “punto solidario” haya resultado favorecido.
+3. El Ministerio de Hacienda publicara la lista de los ganadores en el blog de su página Web, www.hacienda.go.cr.
+4. Los premios serán depositados en la cuenta del tarjetahabiente cuyo punto solidario haya resultado ganador, en un plazo máximo de 5 días hábiles, una vez que el banco emisor haya comunicado la identidad de los ganadores.
+5. El Ministerio de Hacienda no asume ninguna responsabilidad una vez que al ganador se le haya depositado su premio. El destino que se le dé al premio será responsabilidad única y exclusiva de cada ganador.
+6. Con el fin de hacer público el resultado de los sorteos de Lotería Fiscal “Puntos solidarios” la persona que resultará favorecida autoriza, lo siguiente:
+a. Que su nombre e imagen aparezca en publicaciones y demás medios publicitarios y en general en todo material de divulgación relacionado con el sorteo de Lotería Fiscal “Puntos solidarios”, como entrega y recibo del premio.
+b. En caso de ser convocado, deberá presentarse al Ministerio de Hacienda en el día y hora que llegue a indicarse, para realizar la entrega simbólica del premio. En este caso, el depósito del premio según se indicó en el punto 4 anterior, queda supeditado a la realización del acto de entrega.
+c. El tarjetahabiente que resultare ganador renuncia expresamente al pago de cualquier remuneración o compensación adicional al premio y a posteriores reclamos por derechos de imagen, los cuales se tienen por cedidos temporalmente, únicamente para los efectos de divulgación del resultado de la Lotería Fiscal “Puntos solidarios”.
+d. El Ganador no podrá negarse a ser fotografiado o filmado, todo lo anterior en virtud de las disposiciones establecidas en los términos y condiciones de la presente resolución y sus modificaciones.
