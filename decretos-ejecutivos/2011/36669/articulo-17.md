@@ -1,0 +1,1 @@
+Artículo 17.—De la Dirección de Proveeduría Institucional. Será responsable de la adquisición, registro y control de los aparatos. Para la adquisición de los aparatos deberán observarse los principios de razonabilidad y racionabilidad en el gasto.
