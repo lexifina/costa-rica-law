@@ -1,0 +1,1 @@
+Artículo 9º—Plazo de presentación de solicitudes y decisión inicial. La PI definirá anualmente la fecha máxima para la presentación de las solicitudes de compra, fuera de esa fecha se atenderán solicitudes únicamente calificadas de urgentes o imprevistas, así como aquellas capacitaciones que por su tema sean de la conveniencia de la Municipalidad de Liberia.
