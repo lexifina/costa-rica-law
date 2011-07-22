@@ -1,0 +1,1 @@
+Artículo 4º—La competencia para atender los recursos de objeción, cuando la resolución de los mismos corresponda a la Contraloría General de la República, así como los de apelación corresponderá a la Subgerencia General, toda vez que por los plazos otorgados por Ley para ello, no resulta posible atender tales obligaciones a través del Comité de Licitaciones.
