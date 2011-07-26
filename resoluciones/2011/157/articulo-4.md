@@ -1,0 +1,1 @@
+4º—La Base de Datos de Valores de Referencia tiene codificados los “países y las unidades de medida”. Los países se encuentran disponibles en la dirección electrónica http://172.16.51.151/tica/datos/; tabla de “Paises.zip” y las unidades de medida (comercial) en “Códigos_Generales.zip”; tabla tipo 49.
