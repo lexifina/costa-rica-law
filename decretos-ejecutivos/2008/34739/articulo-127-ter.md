@@ -1,0 +1,2 @@
+Artículo 127 ter.—Operaciones autorizadas. Las mercancías ingresadas al régimen, para la prestación de los servicios de logística, podrán ser posteriormente objeto de internamiento a otra empresa beneficiaria del régimen de zonas francas o al régimen de perfeccionamiento activo, o importación definitiva y reexportación.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 36725 del 26 de julio de 2011)

@@ -1,0 +1,3 @@
+Artículo 23 ter.—Domicilio electrónico permanente. Las empresas beneficiarias deberán señalar una dirección de correo electrónico como su domicilio legal para la recepción de notificaciones relacionadas con los trámites. Este señalamiento deberá realizarse mediante una manifestación expresa. La seguridad y la seriedad de la cuenta seleccionada son responsabilidad de la empresa.
+El señalamiento de domicilio electrónico podrá ser variado o revocado en cualquier tiempo, previa notificación a PROCOMER, sin perjuicio de las consecuencias jurídicas surgidas hasta ese momento
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 36725 del 26 de julio de 2011)

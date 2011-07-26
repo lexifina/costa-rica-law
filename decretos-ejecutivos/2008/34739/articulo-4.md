@@ -1,4 +1,4 @@
-Artículo 4º—Definiciones. Para efectos del presente Reglamento, se adoptan las siguientes definiciones:
+Artículo 4º-Definiciones. Para efectos del presente Reglamento, se adoptan las siguientes definiciones:
 Activos fijos: se entiende por activos fijos, las obras en proceso, los bienes muebles e inmuebles sujetos a depreciación, los bienes inmuebles no sujetos a depreciación y el software utilizados en la operación del negocio, cuya fecha y precio de adquisición consten debidamente en los libros contables de la empresa.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
 Activos fijos depreciables: se entiende por activos fijos depreciables los bienes muebles e inmuebles sujetos a depreciación, según los métodos autorizados por la DGT, utilizados en la operación del negocio, y cuya fecha y precio de adquisición consten debidamente en los libros contables de la empresa. Bajo ninguno de los conceptos anteriores se incluyen las obras en proceso, debido a que éstas no se encuentran en uso en las operaciones del negocio.
@@ -7,6 +7,8 @@ Acuerdo de otorgamiento: El acuerdo mediante el cual se otorga el Régimen de Zo
 Administrador: La empresa administradora de un Parque de Zona Franca.
 Aduana de Control: Respecto de los auxiliares, aquella aduana a la que le corresponde ejercer el control aduanero sobre las operaciones aduaneras en que interviene el auxiliar. Salvo disposición en contrario, se entiende por tal, aquella aduana que tiene competencia territorial en el lugar donde se efectúa la operación aduanera.
 Ampliación de áreas: Es el aumento del área previamente autorizada al beneficiario, siempre y cuando las nuevas áreas sean colindantes con la primera, o bien, se encuentren dentro de un mismo parque. Se entenderá que son áreas colindantes aquellas que se encuentren contiguas, o que se encuentren separadas en común por una servidumbre, una vía pública, una vía férrea, una calle de uso privado, río, quebrada o curso de agua permanente o no. En estos casos, el código de ubicación asignado al beneficiario será el mismo.
+BCCR: el Banco Central de Costa Rica
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36725 del 26 de julio de 2011)
 Beneficiario: La persona física o jurídica acogida al Régimen de Zonas Francas.
 Bienes: Cualquier objeto, artículo de comercio, tales como mercancías, materias primas, insumos, productos en elaboración, productos elaborados, vehículos, equipos y maquinaria, ingresado al amparo del Régimen de Zonas Francas.
 Bodega: Instalaciones físicas del beneficiario destinadas únicamente al almacenamiento de bienes amparados al Régimen y autorizadas previamente por PROCOMER y la Dirección.
@@ -34,14 +36,16 @@ Deshabilitación de áreas: Es la disminución del área previamente autorizada 
 (Así reformada la definición anterior por el artículo 2° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
 Desperdicios: Mercancías remanentes del proceso productivo.
 Dirección: Dirección General de Aduanas.
-Empresas no sujetas al impuesto sobre la renta: se refiere a aquellas empresas procesadoras que producen, procesan o ensamblan bienes, que operan en Costa Rica y que no están obligadas al pago del impuesto sobre la renta por estar contempladas en el artículo 3 de la Ley del Impuesto sobre la Renta, Ley Nº 7092 del 21 de abril de 1988 y sus reformas.
+(*)Empresas no sujetas al impuesto sobre la renta: se refiere a aquellas empresas procesadoras que producen, procesan o ensamblan bienes, que operan en Costa Rica y que no están obligadas al pago del impuesto sobre la renta por estar contempladas en el artículo 3 de la Ley del Impuesto sobre la Renta, Ley Nº 7092 del 21 de abril de 1988 y sus reformas.
 Asimismo, para efectos del Régimen de Zonas Francas también se entiende que son empresas no sujetas, aquellas empresas que al momento de solicitar el Régimen, no realizan actividad lucrativa en Costa Rica gravada con el impuesto sobre la renta.
-(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
+(*) (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
 Ensamble: Acoplamiento de componentes (piezas o partes, subconjuntos y conjuntos) que al integrarse dan como resultado un producto con características distintas de los componentes.
 Entidad controladora: entidad jurídica que tiene la propiedad o ejerce el control de las acciones o cuotas, directa o indirectamente, de la empresa beneficiaria establecida en Costa Rica, o que ejerce poder de dirección sobre ella.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
 GAMA: se entiende como la Gran Área Metropolitana Ampliada definida en el Plan de Desarrollo Urbano más los siguientes cantones: Grecia, excluido el distrito de Río Cuarto, Valverde Vega, Naranjo, Palmares y San Ramón-excluidos los distritos de Peñas Blancas, Zapotal, Piedades Norte, Piedades Sur y Ángeles.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
+Gestor: es toda persona física o jurídica, pública o privada, encargada de la gestión total o parcial de los residuos, y autorizada conforme a lo establecido en la Ley para la Gestión Integral de Residuos, Ley Nº 8839.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36725 del 26 de julio de 2011)
 Gerencia General: La Gerencia General de la Promotora del Comercio Exterior de Costa Rica.
 IMAS: Instituto Mixto de Ayuda Social.
 Importación definitiva: Es el ingreso de mercancías al territorio aduanero nacional, que cumplan con las formalidades y los requisitos legales, reglamentarios y administrativos para el uso y consumo definitivo en el territorio aduanero nacional.
@@ -82,7 +86,11 @@ Principales Activos: Para efectos de lo establecido en los artículos 131, 142 y
 PROCOMER: La Promotora del Comercio Exterior de Costa Rica.
 Proporción significativa: se trata del porcentaje de las ventas totales que realizan las empresas procesadoras que se acogen al régimen con el propósito de proveer bienes a otras empresas beneficiarias del Régimen de Zonas Francas. Dichas ventas deben alcanzar al menos el cuarenta por ciento (40%) de las ventas totales de la empresa proveedora.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36000 del 28 de abril de 2010)
+Reciclaje: Transformación de los residuos por medio de distintos procesos de valoración que permiten restituir su valor económico y energético evitando así su disposición final, siempre y cuando esta restitución implique un ahorro de energía y materias primas sin perjuicio para la salud y el medio ambiente
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36725 del 26 de julio de 2011)
 Régimen: El Régimen de Zonas Francas, que es el conjunto de incentivos y beneficios que otorga el Estado a las personas físicas o jurídicas que cumplan con los requisitos y obligaciones establecidas en la Ley Nº 7210 y sus reformas, este Reglamento y demás normas aplicables.
+Reutilización: es la acción de volver a utilizar los bienes o productos. La utilidad puede venir para el usuario mediante una acción de mejora restauración.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 36725 del 26 de julio de 2011)
 Subproductos: Los bienes que se obtienen en forma accesoria al proceso productivo principal.
 Transferencia de bienes: Es el traslado, previo acuerdo entre beneficiarios, del dominio o derecho sobre bienes ingresados en dicho Régimen.
 Ubicación: Punto o puntos geográficos donde se localizan instalaciones del beneficiario, para realizar operaciones propias de su actividad dentro del Régimen.

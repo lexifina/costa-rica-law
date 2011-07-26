@@ -1,0 +1,3 @@
+Artículo 127 sexies.—Inventario de mercancías ingresadas. La empresa beneficiaria deberá mantener un registro electrónico de inventarios y transmitir a la Dirección , al momento del ingreso y salida de las mercancías de sus instalaciones la información relacionada con el inventario, así como toda actividad propia del servicio de logística que afecte dicha mercancía, en el formato que al efecto establezca la Dirección.
+El control de inventarios debe identificar aquellas mercancías que no han pagado tributos de las mercancías nacionales que ingresan para la prestación de un servicio de logística y su posterior exportación.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 36725 del 26 de julio de 2011)
