@@ -11,4 +11,4 @@ h) Representar a la Comisión en sesiones o eventos específicos si así fuera d
 i) Remitir la información pertinente a la Secretaría Técnica, que sea requerida por la Comisión, dentro del plazo que se otorgue al efecto, con el objetivo de contar con la información necesaria antes de celebrar cada sesión.
 j) Por mayoría simple, invitar y convocar a sus sesiones a representantes de otras entidades, instituciones, organizaciones o empresas públicas o privadas, cuya actividad incida en las materias de su competencia, cuando lo considere oportuno, para analizar aspectos específicos.
 k) Por mayoría simple, conformar comisiones de trabajo ad hoc, para el cumplimiento de sus objetivos, que analicen y desarrollen temas específicos, pudiendo integrar en ellas a especialistas del sector público o privado, de acuerdo con la materia que se trate.
-l) Designar entre los miembros de la Comisión a un Secretario que suscribirá las actas de la Comisión.
+l) (Derogado por el artículo 2° del decreto ejecutivo N° 36759 del 26 de julio del 2011)

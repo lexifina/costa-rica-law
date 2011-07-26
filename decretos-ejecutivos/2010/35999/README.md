@@ -14,3 +14,4 @@ Reglamento de la Comisión Especial para la Definición de Sectores Estratégico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-13 | la propia norma |
+| 2 | 2011-07-26 | Decreto Ejecutivo 36759 (2011-07-26) |
