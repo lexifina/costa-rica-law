@@ -14,3 +14,4 @@ Aprueba y Oficializa la Base de Datos de Valores de Referencia de prendas de ves
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-26 | la propia norma |
+| 2 | 2011-07-26 | Resolución 169 (2011-07-18) |
