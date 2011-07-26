@@ -3,4 +3,5 @@ Requisitos para acceder al cargo de Director Nacional de Pensiones
 Artículo 33.—Para ser nombrado Director(a) Nacional de Pensiones es necesario cumplir con los siguientes requisitos:
 a) Ser mayor de edad.
 b) Ser profesional con grado de licenciatura, en la rama del derecho o las ciencias económicas, debidamente incorporado al Colegio Profesional respectivo.
-c) Brindar la caución que a criterio de la Dirección de Auditoría del Ministerio se establezca.
+c) Rendir la caución que el Ministerio determine, de conformidad con los lincamientos establecidos en el Reglamento Sobre La Rendición de Cauciones a Favor del Ministerio de Trabajo y Seguridad Social.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36767 del 26 de julio del 2011)

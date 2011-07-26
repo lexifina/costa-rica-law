@@ -8,11 +8,11 @@ f) Mantener datos estadísticos y actuariales actualizados relacionados con los 
 g) Establecer normas de intercambio y recolección de información de su competencia con las diferentes entidades relacionadas con Dirección Nacional en esta materia.
 h) Asesorar a la Dirección Nacional en materia del Sistema Centralizado de Recaudación de la Caja Costarricense de Seguro Social, para lo cual coordinará lo pertinente con esa institución y con las dependencias internas del Ministerio de Trabajo que corresponda.
 i) Proponer, controlar y evaluar el proyecto de presupuesto de los regímenes de pensión con cargo al Presupuesto Nacional que administra la Dirección Nacional.
-j) Avalar y controlar, mediante muestreo, la aplicación de movimientos de las planillas de pago ordinaria y extraordinaria de los regímenes que administra la Dirección Nacional, a partir de los productos generados por el Departamento de Gestión de Pagos.
-k) Revisar la planilla mensual de pagos de los distintos regímenes a cargo del Presupuesto Nacional, verificando que se cumpla con los informes que al respecto emita el Departamento de Gestión de Pagos.
-l) Analizar, a solicitud de la Dirección Nacional y desde el punto de vista de su competencia, los efectos de los cambios que se den a través de resoluciones judiciales o administrativas, pronunciamientos, directrices o circulares, de los órganos de control externo o interno, las propias del Ministerio de Trabajo u otras instituciones, que puedan incidir sobre los procesos y procedimientos que ejecuta la Dirección, haciendo las recomendaciones del caso.
-m) Elaborar estudios especiales encomendados por la Dirección Nacional.
-n) Coordinar las actividades propias del Departamento con otras unidades de la Dirección Nacional, otros órganos e Instituciones Públicas, según corresponda.
-o) Administrar en forma eficiente los recursos materiales, humanos y tecnológicos asignados, así como aquellos que están en función de los objetivos estratégicos.
-p) Rendir cuentas por el desempeño de las funciones a su cargo al Director Nacional.
-q) Las otras que le encomiende el (la) Director(a) Nacional de Pensiones.
+j) Analizar, a solicitud de la Dirección Nacional y desde el punto de vista de su competencia, los efectos de los cambios que se den a través de resoluciones judiciales o administrativas, pronunciamientos, directrices o circulares, de los órganos de control externo o interno, las propias del Ministerio de Trabajo u otras instituciones, que puedan incidir sobre los procesos y procedimientos que ejecuta la Dirección, haciendo las recomendaciones del caso.
+k) Elaborar estudios especiales encomendados por la Dirección Nacional.
+l) Coordinar las actividades propias del Departamento con otras unidades de la Dirección Nacional, otros órganos e Instituciones Públicas, según corresponda.
+ll) Administrar en forma eficiente los recursos materiales, humanos y tecnológicos asignados, así como aquellos que están en función de los objetivos estratégicos.
+m) Rendir cuentas por el desempeño de las funciones a su cargo al Director Nacional.
+n) Presentar a consideración de la Dirección Nacional, el criterio económico-actuarial respecto al proyecto de presupuesto de los regímenes de pensión con cargo al Presupuesto Nacional, que elabore el Departamento de Gestión de Pagos.
+o) Las otras que le encomiende el (la) Director(a) Nacional de Pensiones.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 36767 del 26 de julio del 2011)
