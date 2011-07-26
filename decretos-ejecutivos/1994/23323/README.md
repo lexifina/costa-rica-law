@@ -21,3 +21,4 @@ Reglamento General del Ministerio de Planificación Nacional y Política Económ
 | 6 | 2007-03-26 | Decreto Ejecutivo 33713 (2007-03-26) |
 | 7 | 2010-04-07 | Decreto Ejecutivo 35976 (2010-04-07) |
 | 8 | 2010-06-28 | Decreto Ejecutivo 36086 (2010-06-28) |
+| 9 | 2011-07-26 | Decreto Ejecutivo 36739 (2011-07-26) |

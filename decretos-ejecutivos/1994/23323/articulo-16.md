@@ -1,4 +1,8 @@
-Artículo 16.- Se deroga el Decreto Ejecutivo Nº 17592-PLAN de 8 de junio de 1987 y cualquier otra norma que se le oponga.
-Este reglamento rige a partir del día dieciocho de mayo de mil novecientos noventa y cuatro.
-(Así corrida su numeración por el artículo 1º del decreto ejecutivo N° 27073 del 8 de mayo de 1998, que lo traspasó del antiguo 14 al 15 actual del artículo).
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N°33206 del 07 de julio del 2006, que lo traspasó del antiguo 15 al 16 actual del artículo).
+Reorganizaciones estructurales:
+Artículo 16º.—Se entenderá por reorganización administrativa la modificación de unidades administrativas en cuanto a su gestión, normativa, tecnología, infraestructura, recursos humanos y estructura. La Contraloría General de la República , la Autoridad Presupuestaria y la Dirección General de Presupuesto Nacional del Ministerio de Hacienda no tramitarán presupuestos ni modificaciones presupuestarias de aquellos órganos, entes y empresas públicas que lleven a cabo reorganizaciones estructurales que no cuenten con el estudio técnico que las respalde y la aprobación de MIDEPLAN, que proveerá a la Administración Pública las directrices, los lineamientos, los manuales y los instructivos para facilitar, coordinar y mejorar los procesos de reorganización administrativa.
+(Así corrida su numeración por el artículo 1º del decreto ejecutivo N° 27073 del 8 de mayo de 1998, que lo traspasó del antiguo 13 al 14 actual del artículo).
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N°33206 del 07 de julio del 2006, que lo traspasó del antiguo 14 al 15 actual del artículo).
+(NOTA: Mediante el artículo 2 del decreto ejecutivo N° 33555 del 21 de diciembre de 2006, “Fortalecimiento del Instituto Nacional de Seguros", se excluye al INS de la materia de recursos humanos y reorganización institucional)
+(NOTA: Mediante el artículo 3 del decreto ejecutivo N° 33619 del 20 de febrero de 2007, “Fortalecimiento del Instituto Costarricense de Electricidad y sus Empresas", se excluye al ICE y sus empresas de la materia de recursos humanos y reorganización institucional)
+(Así reformado por el artículo 2 del decreto ejecutivo N° 36086 del 28 de junio de 2010)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 36739 del 26 de julio de 2011, que lo traspasó del antiguo inciso 15 al 16 actual)

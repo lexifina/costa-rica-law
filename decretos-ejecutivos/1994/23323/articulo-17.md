@@ -1,0 +1,5 @@
+Artículo 17.- Se deroga el Decreto Ejecutivo Nº 17592-PLAN de 8 de junio de 1987 y cualquier otra norma que se le oponga.
+Este reglamento rige a partir del día dieciocho de mayo de mil novecientos noventa y cuatro.
+(Así corrida su numeración por el artículo 1º del decreto ejecutivo N° 27073 del 8 de mayo de 1998, que lo traspasó del antiguo 14 al 15 actual del artículo).
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N°33206 del 07 de julio del 2006, que lo traspasó del antiguo 15 al 16 actual del artículo).
+(Así corrida su numeración por el artículo 3° decreto ejecutivo N° 36739 del 26 de julio de 2011, que lo traspasó del antiguo inciso 16 al 17 actual)
