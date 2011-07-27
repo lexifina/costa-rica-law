@@ -1,0 +1,1 @@
+Artículo 2º—Objeto y ámbito de aplicación. El objeto del presente reglamento es desarrollar las disposiciones para el establecimiento de valores de referencia que orienten el control aduanero sobre las mercancías que al momento de la importación presenten precios anormalmente bajos, y las disposiciones que deben ser observadas en el procedimiento de asignación de selectividad.

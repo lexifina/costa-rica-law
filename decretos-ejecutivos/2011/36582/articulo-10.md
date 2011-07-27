@@ -1,0 +1,1 @@
+Artículo 10.—No aplicación de Valores de Referencia. Los valores de referencia no podrán ser aplicados por analogía o semejanza a otras mercancías no comprendidas específicamente en la Base de Datos de Valores de Referencia, ni podrán ser utilizados como valores de sustitución o como mecanismo para establecer valores mínimos.
