@@ -17,7 +17,7 @@ d) Todos los demás casos que requieren radiación holocraniana, deben hacerse c
 7) Cáncer de pulmón, estadio temprano, con contraindicaciones médicas a la cirugía.
 8) Tumores abdominales con diámetro anteposterior (D.A.P.) mayor de 22 cm y lat. mayor 36 cm. Documentado con fotografía anexando datos de peso, talla, superficie e índice de masa corporal.
 9) Útero: cérvix, endometrio, vagina, vejiga y recto, que cumplan los requisitos arriba indicados.
-10) Mama: La irradiación de mama izquierda en los casos probados de existencia de cardiopatía isquémica y en las que se ha hecho cirugía conservadora para administrar la dosis de refuerzo con electrones al lecho tumoral. Este refuerzo tumoral también puede hacerse con radioterapia alto voltaje >200 KV.
+10) Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 9762-11 del 27 de julio de 2011.)
 11) Próstata: Radioterapia de alta energía y/o prostatectomía radical, deben ser consideradas como opciones de tratamiento, sólo en pacientes que tengan expectativas de vida mayor de 10 años.
 a) Pacientes con tumores de T1 y T2 con contraindicaciones quirúrgicas y con Gleason superiores a 6.
 b) En casos post-operatorios con glanglios positivos o enfermedad residual.
