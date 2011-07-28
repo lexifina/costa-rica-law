@@ -1,0 +1,1 @@
+Artículo 9º—Acceso a llamadas internacionales. Únicamente el Presidente Ejecutivo se encontrará autorizado para realizar llamadas internacionales, entrantes y salientes, por medio del teléfono celular propiedad del Instituto Costarricense de Pesca y Acuicultura, siempre y cuando sean para atender asuntos relacionados a su cargo.

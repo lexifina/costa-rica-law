@@ -1,0 +1,1 @@
+Artículo 5º—Disponibilidad presupuestaria. La Dirección Administrativa asignara la partida presupuestaria para enfrentar los gastos que se generen para el pago mensual de los recibos telefónicos, bajo la modalidad de tarifa básica aprobadas.
