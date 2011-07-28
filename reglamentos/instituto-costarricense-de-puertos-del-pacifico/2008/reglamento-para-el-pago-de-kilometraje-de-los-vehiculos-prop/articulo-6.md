@@ -1,5 +1,6 @@
 Artículo 6º—La formalización del contrato podrá realizarse siempre y cuando el propietario cumpla al menos, con los siguientes requisitos:
-a) Que el vehículo sea de su propiedad y esté debidamente inscrito en el Registro Público de la Propiedad de Vehículos Automotores. Para acreditar este hecho, deberá presentar la certificación correspondiente, con no más de un mes de expedida al momento de su presentación.
+a) Que el vehículo sea de su propiedad y esté debidamente inscrito en el Registro Público de la Propiedad de Vehículos Automotores o cuente el funcionario con un contrato de Leasing Financiero a su nombre. Para acreditar este hecho, deberá presentar la certificación correspondiente del vehículo, con no más de un mes de expedida al momento de su presentación y cuando corresponda, una copia certificada del contrato de Leasing suscrito por el funcionario.
+(Así reformado el inciso anterior en sesión N° 3722 del 28 de julio del 2011)
 b) Que se encuentre al día en el pago de los derechos de circulación. Deberá adjuntar copia del recibo correspondiente y dar fe de la expedición del marchamo.
 c) Que su licencia para conducir se encuentre vigente y presentar copia de este documento.
 d) Que el vehículo deberá ser adecuado a la clase de trabajo a que se va a destinar.

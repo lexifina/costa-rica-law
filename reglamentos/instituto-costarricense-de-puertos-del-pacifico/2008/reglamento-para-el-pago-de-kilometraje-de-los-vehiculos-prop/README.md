@@ -15,3 +15,4 @@ Reglamento para el pago de kilometraje de los vehículos propiedad de los funcio
 | --- | --- | --- |
 | 1 | 2008-06-27 | la propia norma |
 | 2 | 2010-08-05 | Reglamento 3655 (2010-08-05) |
+| 3 | 2011-07-28 | Reglamento 3722 (2011-07-28) |
