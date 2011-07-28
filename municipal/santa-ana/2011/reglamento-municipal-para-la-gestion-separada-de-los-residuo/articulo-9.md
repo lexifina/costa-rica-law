@@ -1,0 +1,1 @@
+Artículo 9.—Condominios, edificios, servidumbres y alamedas. En el caso de condominios, edificios, servidumbres y alamedas donde el vehículo recolector no pueda transitar, los residuos ordinarios serán acumulados en un contenedor de uso comunitario de fácil acceso desde la vía pública.

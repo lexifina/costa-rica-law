@@ -1,0 +1,1 @@
+Artículo 23.—Empaque de residuos peligrosos punzocortantes (agujas y otros): Los residuos peligrosos punzocortantes del tipo agujas deberán ser debidamente desinfectados y desechados de forma responsable, tomando todas las medidas necesarias para evitar cualquier tipo de accidente por parte de quien manipule el residuo. Así mismo debe estar debidamente rotulado.

@@ -1,0 +1,1 @@
+Artículo 28.—Restos de animales: En cualquiera de los tipos de recolección que brinda la Municipalidad no se recolectarán animales muertos ni partes de éstos. Los restos de animales deberán ser eliminados atendiendo la normativa sanitaria establecida por el Ministerio de Salud.

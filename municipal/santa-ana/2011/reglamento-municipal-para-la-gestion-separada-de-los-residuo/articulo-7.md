@@ -1,0 +1,3 @@
+CAPÍTULO III
+Responsabilidades del usuario
+Artículo 7º—Obligatoriedad de conocimiento. El conocimiento y observancia del presente reglamento son obligatorias para todos los usuarios que requieran del servicio de recolección de cualquier tipo de residuos (ya sea esporádicamente, ocasional o periódicamente), de manera que su desconocimiento nunca podrá ser invocado como excusa para omitir los deberes respectivos o evitar las sanciones correspondientes. Para tal efecto, la Municipalidad se compromete a divulgarlo y ponerlo a disposición de los usuarios por diferentes medios, asegurando que el reglamento llegue a todos los habitantes del cantón.

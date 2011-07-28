@@ -1,0 +1,2 @@
+Artículo 31.—Baterías ácidas de plomo: No se recolectarán baterías ácidas de plomo (de uso vehicular) dentro de la ruta ordinaria. Las mismas deberán ser entregadas cuidadosamente al distribuidor autorizado para que proceda a su eliminación o reutilización.
+La Unidad de Gestión Ambiental contará, cuando corresponda, con una lista de empresas autorizadas para la recolección de este tipo de residuos.

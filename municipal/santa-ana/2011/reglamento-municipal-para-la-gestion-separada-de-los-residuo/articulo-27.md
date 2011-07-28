@@ -1,0 +1,1 @@
+Artículo 27.—Excretas humanas o animales: En cualquiera de los tipos de recolección que brinda la Municipalidad no se recolectarán sustancias líquidas, ni excretas de origen humano o animal. Tal es el caso, de pañales, toallas sanitarias, papel higiénico y similares como se podrá analizar en el desplegable que se ubica en el apartado de anexos.

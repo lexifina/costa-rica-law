@@ -1,0 +1,1 @@
+Artículo 64.—Incumplimientos detectados: El Inspector Municipal documentará adecuadamente las denuncias e inspecciones, cuando se detecten incumplimientos procederá a levantar un acta que identifique de forma probada el autor de la falta, el incumplimiento detallado y las pruebas debidas.

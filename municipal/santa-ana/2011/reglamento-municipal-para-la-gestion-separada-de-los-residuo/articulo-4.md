@@ -1,0 +1,1 @@
+Artículo 4º—Disposiciones generales. Todo ciudadano y ciudadana, persona física o jurídica generador de cualquier tipo de residuos en este cantón, será responsable en lo personal de tomar y acatar las medidas tendientes a la no generación de residuos (rechazando, reduciendo, reutilizando), conforme a lo establecido en este reglamento y la normativa nacional vigente.
