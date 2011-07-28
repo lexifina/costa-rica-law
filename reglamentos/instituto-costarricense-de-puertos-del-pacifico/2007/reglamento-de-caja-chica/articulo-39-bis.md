@@ -1,1 +1,0 @@
-Artículo 39 bis.—Del caso de Golfito. La autorización de la Caja Chica General de Golfito, estipulado en el artículo 9º de este Reglamento, así como la facultad de firmar y tramitar vales de caja chica por parte del Administrador del Muelle de Golfito dispuesto en el artículo 13, regirá una vez que el INCOP asuma el Muelle de Golfito.
