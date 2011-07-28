@@ -17,3 +17,4 @@ Reglamento Interno del Consejo Directivo del Instituto Costarricense de Electric
 | 2 | 2003-08-05 | Reglamento 5538 (2003-08-05) |
 | 3 | 2010-05-11 | Reglamento 5909 (2010-05-11) |
 | 4 | 2011-04-05 | Reglamento 5945 (2011-04-05) |
+| 5 | 2011-07-28 | Reglamento 5956 (2011-07-28) |
