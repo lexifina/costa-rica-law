@@ -8,4 +8,6 @@ d) Operaciones que sumadas a las ya existentes excedan el porcentaje autorizado 
 e) Operaciones de caución o financieras que requieran constitución de prendas o garantías sobre el activo del fondo.
 f) Títulos valores que no estén autorizados expresamente por la Junta Directiva, de conformidad con la Política y Estrategia de Inversiones.
 g) Valores emitidos por aquellas personas que establecen los artículos 12º y 15º de la Ley Constitutiva de la Caja. Se entienden incluidos en estas normas los Subgerentes.
+h) Instrumentos financieros subordinados o préstamos subordinados que emitan o contraten los bancos comerciales del estado y/o los bancos privados, así como en obligaciones o derechos que de ellos emanen.
+(Así adicionado el inciso anterior mediante sesión N° 8521 del 28 de julio del 2011)
 (Así reformado mediante sesión N° 8498 del 17 de marzo del 2011)
