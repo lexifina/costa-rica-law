@@ -5,18 +5,20 @@ Artículo 3º—Funcionarios (as) a quienes se les podrá asignar un teléfono c
 4. Auditor General
 5. Asesor Legal.
 6. Secretario(a) de Fiscalización.
-7. Director de Gestión Administrativo-Financiero.
-8. Director Operaciones Portuario.
-9. Director de Planificación Institucional.
-10. Proveedor Institucional.
-11. Encargado de Contabilidad.
-12. Encargado de Presupuesto.
-13. Encargado de Tesorería.
-14. Encargado de Capital Humano.
-15. OPIP.
-16. Coordinador Junta Promotora de Turismo.
-17. Encargado Obras Civiles.
-18. Encargado de Tecnologías de la Información.
-19. Choferes de Presidencia Ejecutiva y Gerencia General.
-20. Unidad de servicios Generales (para asignar a los chóferes que estén en servicio fuera de planta).
+7. Director(a) Administrativo-Financiero.
+8. Director(a) Operaciones Portuarias.
+9. Director(a) de Planificación Institucional.
+10. Jefe de la Unidad de Proveeduría.
+11. Jefe de la Unidad de Contabilidad.
+12. Jefe de la Unidad de Presupuesto.
+13. Jefe de la Unidad de Tesorería.
+14. Jefe de la Unidad de Capital Humano.
+15. Jefe de la Unidad de Servicios Generales.
+16. Jefe de la Unidad de Tecnologías de la Información.
+17. Coordinador Junta Promotora de Turismo.
+18. OPIP.
+19. Inspector Técnico de Obras Civiles.
+20. Choferes de Presidencia Ejecutiva y Gerencia General.
+21. Unidad de servicios Generales. (Para asignar a los choferes que estén en servicio).
 El Gerente General autorizará excepcionalmente, el uso de teléfonos celulares a otros funcionarios del INCOP que, por la índole de sus funciones, requieran de este medio de comunicación.
+(Así reformado en sesión N° 3722 del 28 de julio de 2011)
