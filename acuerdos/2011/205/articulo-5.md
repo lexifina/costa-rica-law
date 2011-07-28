@@ -1,0 +1,2 @@
+5. CÁLCULO DEL VALOR COMERCIAL DE LAS ESPECIES CAPTURADAS.
+En este capítulo se determinará el valor económico de las capturas. El valor comercial de las especies capturadas, se basará en la información presentada en el Acta de Venta de Producto Perecedero. Se debe de preparar una tabla con la cantidad de kilogramos por especie o clase comercial, su precio por kilo, el valor por especie o clase comercial y su valor de venta total (ver tabla 2).
