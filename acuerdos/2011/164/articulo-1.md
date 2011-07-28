@@ -1,0 +1,11 @@
+Instituto Costarricense de Pesca y Acuicultura
+A.J.D.I.P./164-2011.—Puntarenas, a los seis días del mes de mayo del 2011.
+Considerando
+1º—Que informa el Sr. Presidente Ejecutivo que de conformidad con el Acuerdo AJDIP 230-2009, sobre el seguimiento satelital, las embarcaciones atuneras de bandera extranjera con red de cerco que requieran licencia de pesca para operan en las aguas jurisdiccionales costarricenses, están obligadas a portar los dispositivos de seguimiento satelital que le permita al Centro de Monitoreo visualizar y darle el seguimiento debido sobre las actividades de pesca desplegadas en nuestra zona económica exclusiva.
+2º—Que a la fecha se ha venido dando un seguimiento efectivo de esta normativa; sin embargo se han estado presentado problemas técnicos de compatibilidad con el sistema seguimiento satelital utilizado por el INCOPESCA y el de algunas embarcaciones.
+3º—Que por su parte la casa proveedora del sistema seguimiento satelital utilizado no solo por el INCOPESCA, sino en Centro América; ha manifestado su imposibilidad de atender en un plazo mínimo de tres meses la configuración de compatibilidad de éstos otros sistemas.
+4º—Que el Acuerdo adoptado por el INCOPESCA en cuanto al Monitoreo y Seguimiento Satelital, establece la obligatoriedad de que los sistemas utilizados por las embarcaciones atuneras que deseen obtener licencia de pesca en nuestro país, deben ser compatibles con el sistema seguimiento satelital utilizado por el INCOPESCA.
+5º—Que los armadores han señalado su disponibilidad a suministrar sistemas de seguimiento satelital alternativo a efecto de cumplir con la normativa vigente, máxime que no resulta achacable a éstos lo señalado en el considerando 3°.
+6º—Que analizadas las argumentaciones vertidas y atendiendo razones de conveniencia, la Junta Directiva, Por tanto
+ACUERDA:
+1º—Cuando se presenten problemas de compatibilidad entre el Sistema de Seguimiento y Monitoreo Satelital utilizado por el INCOPESCA y el utilizado por aquellas embarcaciones deseen obtener una licencia de pesca de atún; se podrá otorgar la misma, siempre y cuando logre acreditarse por parte del armador que cuenta con un Sistema de Seguimiento Satelital alternativo, debidamente comprobado por el INCOPESCA y le sean suministrados a ésta los códigos de seguridad necesarios que permitan el acceso a dicho sistema.

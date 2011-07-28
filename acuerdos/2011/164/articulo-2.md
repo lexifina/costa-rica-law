@@ -1,0 +1,1 @@
+2º—El reconocimiento de este Sistema de Seguimiento se hará por una única vez con carácter de temporal por un período máximo de 3 meses calendario, tiempo en el cual el armador o interesado con el proveedor del Sistema Seguimiento Satelital deberá realizar los ajustes necesarios para establecer la compatibilidad correspondiente con el sistema que utiliza el INCOPESCA.
