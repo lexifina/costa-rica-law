@@ -14,3 +14,4 @@ Reforma Reglamento Interno del Consejo Directivo del Instituto Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-01 | la propia norma |
+| 2 | 2011-07-28 | Reglamento 5956 (2011-07-28) |
