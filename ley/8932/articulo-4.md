@@ -1,0 +1,3 @@
+ARTÍCULO 4.-
+El Ministerio de Hacienda definirá y aplicará los controles respectivos sobre el uso y destino de los bienes exonerados, conforme a lo establecido en el artículo 42 de la Ley N.º 7293, Ley reguladora de todas las exoneraciones vigentes, su derogatoria y sus excepciones y, de comprobarse algún incumplimiento, se aplicarán los procedimientos establecidos en el capítulo IX, De las exenciones y su eficacia, de la citada Ley.
+El Ministerio de Salud recomendará el otorgamiento de exenciones ante la Administración Tributaria y aplicará los controles respectivos para el uso y destino doméstico e industrial de acuerdo con esta Ley. Asimismo, le corresponde al Ministerio de Agricultura y Ganadería lo referente al uso agropecuario.
