@@ -1,0 +1,2 @@
+ARTÍCULO 3.-
+Exonéranse del pago de tributos la adquisición de sistemas para el tratamiento de aguas residuales y sus componentes, así como los materiales e insumos que se incorporen directamente en la construcción de este tipo de sistemas, para su instalación en el territorio nacional. Será causal para la pérdida inmediata del beneficio, la utilización de los bienes exonerados para fines distintos de los establecidos en este artículo.
