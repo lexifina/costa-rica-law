@@ -1,0 +1,1 @@
+Sexto.—Cuando se realicen actualizaciones y/o enmiendas en las ortofotos y en la cartografía vectorial, el Instituto Geográfico Nacional y el Registro Inmobiliario harán de conocimiento público tales actualizaciones o correcciones y pondrán a disposición del público la información actualizada.
