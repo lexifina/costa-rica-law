@@ -1,0 +1,1 @@
+2º—En los demás apartados, de la Resolución RES-DGA-203-2005 de fecha 22 de junio del dos mil cinco, publicada en el Alcance Nº 23 a La Gaceta Nº 143, “Manual de Procedimientos Aduaneros”, la misma se mantiene en todos sus extremos.
