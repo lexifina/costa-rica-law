@@ -5,4 +5,6 @@ c) Acuerdos pendientes de ejecución.
 d) Examen y resolución de los demás asuntos que deban conocerse, en orden de urgencia o importancia.
 e) Proposiciones de los señores miembros.
 Sin embargo, cualquiera de sus miembros puede solicitar la alteración del orden del día cuando la juzgue conveniente, mediante moción que se someterá a votación.
+Este orden del día deberá ser elaborado por la Presidencia y comunicado por la Secretaría del Consejo por lo menos con veinticuatro horas del anticipación a la celebración de la sesión correspondiente.
+(Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 36735 del 29 de julio del 2011)
 En las sesiones extraordinarias, el orden del día estará formado únicamente por los asuntos que hayan sido objeto de la convocatoria.

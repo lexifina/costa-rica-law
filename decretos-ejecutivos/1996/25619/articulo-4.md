@@ -3,3 +3,5 @@ a) De las partidas presupuestarias que el Poder Ejecutivo le asigne en los presu
 b) Las contribuciones y las donaciones que le otorguen instituciones públicas y privadas y organizaciones internacionales.
 c) Cualquier otro recurso que se le asigne por ley.
 Estas formas de financiamiento se consignarán, dentro del presupuesto del Ministerio de Trabajo y Seguridad Social, en un programa aparte que debe incluir, además, las partidas presupuestarias asignadas a pagar las remuneraciones de los funcionarios del Departamento de Salarios y las dietas de los Directores miembros del Consejo.
+En cuanto a los gastos operativos, éstos serán cubiertos a través del Departamento de Salarios.
+(Así adicionado el párrafo anterior por el artículo 1°del decreto ejecutivo N° 36735 del 29 de julio del 2011)

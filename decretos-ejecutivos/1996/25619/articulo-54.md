@@ -1,6 +1,9 @@
 Artículo 54—Para trámites de solicitudes de revisión o de inclusión de nuevas actividades ocupacionales, las audiencias se realizarán con base en las siguientes normas:
 a) Se les concederá audiencia, en primer término, a quien o quienes hicieron la respectiva solicitud y se les ofrecerá la palabra hasta por un tiempo máximo de una hora, término que el Consejo podrá prorrogar por media hora más.
-b) Por medio de la Secretaría, el Consejo comunicará a los interesados mediante carta certificada, fax o vía telegráfica la concesión de la audiencia, con ocho (8) días de anticipación a la fecha fijada para esta. En la comunicación se indicarán los motivos y objetivos de la audiencia.
+b)De conformidad con la Ley de Notificaciones, el Consejo por medio de la Secretaría comunicará a los interesados la concesión de las audiencias, la cual se hará dentro de los ocho días naturales de anticipación a la fecha fijada para la realización de esta. En la comunicación se indicarán los motivos y objetivos de la audiencia.
+Cada audiencia tendrá una duración de una hora, pudiendo prorrogarse por media hora más por acuerdo del Consejo.
+Posterior a la última audiencia, el Consejo tomará la resolución pertinente en el término no mayor de quince días.
+(Así reformado el inciso b) anterior por el artículo 11° del decreto ejecutivo N° 36735 del 29 de julio del 2011)
 c) Dentro de los ocho (8) días después de realizada la primera audiencia, se concederá audiencia a la representación de la contraparte correspondiente y se regirá en los mismos términos señalados en el inciso anterior.
 d) En las audiencias referidas, la intervención de los miembros del Consejo se concretará a hacer preguntas, comentarios o pedir explicaciones.
 El Consejo podrá delegar su representación en uno o en varios de sus miembros para que organicen, asistan y dirijan tales audiencias.

@@ -19,3 +19,4 @@ Reglamento del Consejo Nacional de Salarios
 | 4 | 2001-06-21 | Decreto Ejecutivo 29630 (2001-06-21) |
 | 5 | 2002-04-01 | Decreto Ejecutivo 30265 (2002-04-01) |
 | 6 | 2003-01-08 | Decreto Ejecutivo 30939 (2003-01-08) |
+| 7 | 2011-07-29 | Decreto Ejecutivo 36735 (2011-07-29) |
