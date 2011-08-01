@@ -1,0 +1,1 @@
+Artículo 3º—Alcances del Perfil Genético. Se entiende como perfil genético o huella genética, para estos efectos, el registro alfanumérico personal, elaborado exclusivamente sobre la base de información genética no codificante, con fines exclusivamente de carácter identificatoria.
