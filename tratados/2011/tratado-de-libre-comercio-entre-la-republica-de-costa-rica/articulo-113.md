@@ -1,0 +1,3 @@
+Artículo 113: Innovación Técnica y Transferencia de Tecnología
+1. Las Partes reconocen la importancia de transferencia de tecnología y conocimiento como herramienta para promover la innovación y las obras creativas con el fin de lograr crecimiento económico.
+2. La protección y la observancia de los derechos de propiedad intelectual en cada Parte deberán contribuir a la promoción de la innovación tecnológica y a la transferencia y difusión de tecnología. Sujeto a las legislaciones nacionales y regulaciones, las Partes podrán ampliar las discusiones en cuanto a la posibilidad de establecer incentivos a las empresas e instituciones en sus territorios para los efectos de promover e impulsar la transferencia de tecnología a la otra Parte.

@@ -1,0 +1,3 @@
+Artículo 60: Reafirmación de Derechos y Obligaciones
+1. Las Partes reafirman sus derechos y obligaciones bajo el Acuerdo MSF. Las Partes acuerdan seguir los principios de justificación científica, armonización, equivalencia y regionalización del Acuerdo MSF, cuando desarrollen medidas MSF relevantes. Nada en el presente Capítulo impedirá a una Parte adoptar o mantener medidas MSF de conformidad con sus derechos y obligaciones bajo el Acuerdo MSF.
+2. Las Partes reconocen y aplican las decisiones sobre la aplicación del Acuerdo MSF adoptadas por el Comité de Medidas Sanitarias y Fitosanitarias de la OMC (en adelante “Comité MSF/OMC”).

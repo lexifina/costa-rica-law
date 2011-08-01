@@ -1,0 +1,2 @@
+Artículo 94: Compromisos Adicionales
+Las Partes podrán negociar compromisos con respecto a medidas que afecten al comercio de servicios pero no estén sujetas a consignación en listas en virtud del Artículo 92 (Trato Nacional) o Artículo 93 (Acceso a los Mercados), incluidas las que se refieran a títulos de aptitud, normas o cuestiones relacionadas con las licencias. Dichos compromisos se consignarán en las Listas de Compromisos Específicos de la Parte.

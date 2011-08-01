@@ -1,0 +1,3 @@
+Artículo 141: Ámbito de Aplicación18
+18 Las Partes acuerdan que este Capítulo no aplica a medidas en proyecto y/o a reclamaciones en los casos en que no existe infracción (anulación o menoscabo de un beneficio en casos en los que no haya infracción de las disposiciones del Tratado).
+Salvo disposición en contrario en este Tratado, las disposiciones sobre solución de controversias de este Capítulo se aplicarán a la prevención o solución de todas las controversias entre las Partes relativas a la interpretación o aplicación de este Tratado y cuando una Parte considere que una medida de la otra Parte es inconsistente con las obligaciones de este Tratado o que la otra Parte, de otra manera, ha incumplido con sus obligaciones bajo este Tratado.

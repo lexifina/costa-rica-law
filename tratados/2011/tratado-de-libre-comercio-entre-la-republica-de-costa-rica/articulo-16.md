@@ -1,0 +1,4 @@
+Artículo 16: Subsidios a las Exportaciones Agrícolas
+1. Las Partes comparten el objetivo de la eliminación multilateral de los subsidios a la exportación para las mercancías agrícolas, y trabajarán conjuntamente hacia un acuerdo en la OMC para eliminar dichos subsidios y evitar su reintroducción bajo cualquier forma.
+2. Ninguna Parte mantendrá, introducirá o reintroducirá cualquier subsidio a la exportación sobre ninguna mercancía agrícola destinada al territorio de la otra Parte.
+3. Si cualquier Parte considera que la otra Parte no ha cumplido sus obligaciones bajo este Tratado por mantener, introducir o reintroducir un subsidio a la exportación, dicha Parte podrá solicitar consultas con la otra Parte de conformidad con el Capítulo 14 (Solución de Controversias) con el objetivo de lograr una solución mutuamente satisfactoria.

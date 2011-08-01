@@ -1,0 +1,3 @@
+Artículo 142: Elección de Foro
+1. Cuando surja una controversia bajo este Tratado y bajo otros acuerdos, incluyendo otro tratado de libre comercio del que ambas Partes sean Parte o el Acuerdo sobre la OMC, la Parte requirente podrá elegir el foro en el cual solucionar la controversia.
+2. Sin perjuicio de los derechos y obligaciones de la Parte bajo el Acuerdo sobre la OMC, una vez que la Parte requirente haya solicitado el establecimiento de un grupo especial bajo uno de los acuerdos a los que hace referencia el párrafo 1, el foro seleccionado será excluyente de las disposiciones de solución de controversias bajo esos acuerdos en relación con ese asunto, a menos que ambas Partes acuerden lo contrario.

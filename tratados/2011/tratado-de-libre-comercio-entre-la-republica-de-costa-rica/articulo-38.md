@@ -1,0 +1,3 @@
+Artículo 38: Entidades Autorizadas
+1. Un Certificado de Origen sólo será emitido por la entidad o entidades autorizada(s) en la Parte exportadora.
+2. La autoridad competente de la Parte exportadora informará a la autoridad competente de la Parte importadora el nombre de cada entidad autorizada, así como los datos relevantes de contacto de cada entidad autorizada y proporcionará detalles de cualquier elemento de seguridad para el Certificado de Origen, incluyendo los sellos oficiales utilizados por cada entidad autorizada, antes de la emisión de cualquiera de los Certificados por dicha entidad. Cualquier cambio en la información proporcionada anteriormente se deberá informar prontamente a la autoridad competente de la otra Parte.

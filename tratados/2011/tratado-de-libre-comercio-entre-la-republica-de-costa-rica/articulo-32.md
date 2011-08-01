@@ -1,0 +1,2 @@
+Articulo 32: Juegos o Surtidos
+Los juegos o surtidos, tal como se definen en la Regla General 3 del Sistema Armonizado, serán considerados como originarios cuando todos los componentes del juego o surtido son originarios. Sin embargo, cuando un juego o surtido está compuesto de mercancías originarias y no originarias, se considerará originario en su totalidad siempre que el valor de las mercancías no originarias según sea determinado de conformidad con el Artículo 25 (Valor de Contenido Regional) no exceda del 15% del valor total del juego o surtido.

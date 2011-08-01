@@ -1,0 +1,2 @@
+Artículo 26: Operaciones de Procesamiento
+Para los efectos de la regla de operación de procesamiento señalado en el Artículo 23 (Reglas Especificas por Producto), el carácter originario será otorgado solo a las mercancías como un resultado de operaciones de manufactura o procesamiento especificados en el Anexo 3 (Reglas de Origen Específicas por Producto), que se lleven a cabo en el territorio de una o ambas Partes.

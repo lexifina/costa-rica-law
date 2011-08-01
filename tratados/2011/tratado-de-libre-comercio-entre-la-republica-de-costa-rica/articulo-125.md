@@ -1,0 +1,6 @@
+Artículo 125: Resolución Privada de Conflictos17
+17 Para mayor certeza, “resolución privada de conflictos” será entendido para Costa Rica como “resolución alternativa de conflictos”, lo cual es definido como “procesos y mecanismos tales como negociación, mediación, conciliación, arbitraje y otros de la misma naturaleza entre partes privadas”.
+Las Partes reconocen la importancia de la resolución privada de conflictos como mecanismos valiosos que mejoran y promueven la previsibilidad y certeza en las relaciones comerciales entre partes privadas. Desde esta perspectiva y en la medida de lo posible, la cooperación incluirá, entre otras, actividades para:
+(a) estimular el uso de medios de resolución privada de conflictos, tales como el arbitraje, para la solución de los conflictos comerciales internacionales entre partes privadas originadas en el área de libre comercio;
+(b) promover la suscripción de acuerdos de cooperación entre las instituciones dedicadas al análisis de mecanismos de resolución privada de conflictos o a la administración de estos procedimientos; y
+(c) fortalecer la creación de capacidades para el manejo de casos de solución privada de conflictos, incluyendo el intercambio de mejores prácticas, capacitación, pasantías, consultorías, proyectos de cooperación técnica, entre otros.

@@ -1,0 +1,4 @@
+Artículo 161: Tributación
+1. Salvo lo establecido en este Artículo, ninguna disposición de este Tratado se aplicará a medidas tributarias.
+2. Nada en este Tratado afectará los derechos y las obligaciones de cualquiera de las Partes bajo cualquier convenio tributario. En caso de cualquier inconsistencia entre este Tratado y cualquiera de dichos convenios, tal convenio prevalecerá en la medida de la inconsistencia. En el caso de un convenio tributario entre las Partes, las autoridades competentes bajo ese convenio tendrán la responsabilidad exclusiva para determinar si existe alguna inconsistencia entre este Tratado y ese convenio.
+3. No obstante lo dispuesto en el párrafo 2, el Artículo 8 (Trato Nacional) y aquellas otras disposiciones en este Tratado necesarias para hacer efectivo dicho Artículo, se aplicarán a las medidas tributarias en el mismo grado que el Artículo III del GATT de 1994.

@@ -1,0 +1,4 @@
+Artículo 72: Reglamentos Técnicos
+1. Las Partes acuerdan utilizar las normas internacionales pertinentes como base para los reglamentos técnicos, salvo cuando dichas normas internacionales sean un medio ineficaz o inapropiado para el logro de los objetivos legítimos perseguidos.
+2. Cada Parte considerará favorablemente la posibilidad de aceptar como equivalentes reglamentos técnicos de la otra Parte, aún si estos reglamentos difieran de los suyos, siempre que esté satisfecho que estos reglamentos cumplen adecuadamente los objetivos de sus propios reglamentos.
+3. Las Partes reconocen la importancia de aplicar buenas prácticas de reglamentación, bajo el marco del Acuerdo OTC, tomando en consideración las decisiones y recomendaciones adoptadas por el Comité de Obstáculos Técnicos al Comercio de la OMC (en adelante “Comité OTC/OMC”).

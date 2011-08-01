@@ -1,0 +1,2 @@
+Artículo 23: Reglas Específicas por Producto
+Salvo disposición en contrario en este Capítulo, una mercancía, que utilice materiales no originarios y sea producida en el territorio de una o ambas Partes, cumplirá con el criterio de origen correspondiente establecido, tal como un cambio de clasificación arancelaria, un Valor de Contenido Regional, una regla de operación de procesamiento, una combinación de estos criterios u otros requisitos especificados en el Anexo 3 (Reglas de Origen Específicas por Producto) para determinar el carácter originario de las mercancías.

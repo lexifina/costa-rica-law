@@ -1,0 +1,3 @@
+Artículo 112: Propiedad Intelectual y Salud Pública
+1.Las Partes reconocen los principios establecidos en la Declaración de Doha relativa al Acuerdo ADPIC y la Salud Pública, adoptada el 14 de noviembre de 2001 por la Conferencia Ministerial de la OMC. En la interpretación e implementación de los derechos y las obligaciones de este Capítulo, las Partes garantizarán la consistencia con esta Declaración.
+2. Las Partes deberán contribuir con la implementación y respetar la Decisión del Consejo General de la OMC del 30 de agosto de 2003 sobre la Implementación del Párrafo 6 de la Declaración de Doha sobre el Acuerdo ADPIC y la Salud Pública, así como el Protocolo por el que se enmienda el Acuerdo ADPIC, realizado en Ginebra el 6 de Diciembre de 2005.

@@ -1,0 +1,13 @@
+Artículo 37: Certificado de Origen
+1. Para que las mercancías originarias califiquen para el trato arancelario preferencial, el Certificado de Origen, según lo establecido en el Anexo 4 (Certificado de Origen), será expedido por la entidad o entidades autorizada(s) de la Parte exportadora, a solicitud por escrito por el exportador, junto con los documentos de soporte, y será presentado en la importación a la administración aduanera de la Parte importadora. El Certificado de Origen:
+(a) contendrá un único número de certificado;
+(b) cubrirá una o más mercancías al amparo de un envío;
+(c) indicará la base sobre la cual las mercancías son consideradas que califican como originarias para los efectos de la Sección A de este Capítulo;
+(d) contendrá elementos de seguridad, tales como las firmas o sellos, que hayan sido anunciados a la Parte importadora de la Parte exportadora; y
+(e) será completado en inglés y a máquina.
+2. Un Certificado de Origen será válido por 12 meses a partir de la fecha de emisión.
+3. En principio, el Certificado de Origen será emitido antes o en el momento de la exportación. Sin embargo, un Certificado de Origen puede ser emitido retrospectivamente excepcionalmente después de la exportación, bajo la condición de que el exportador provea toda la documentación comercial necesaria y la declaración de exportación tramitada por la administración aduanera de la Parte exportadora, siempre que:
+(a) no se expidió en el momento de la exportación por caso de fuerza mayor, o errores, u omisiones involuntarias u otras circunstancias especiales que puedan ser consideradas satisfechas de conformidad con la legislación nacional de cada Parte, cuando sea aplicable; o
+(b) se demuestra a satisfacción de la entidad autorizada que se expidió un Certificado de Origen que no fue aceptado en el momento de la importación por motivos técnicos. El período de validez deberá permanecer igual a como fue indicado originalmente en el Certificado emitido.
+4. Cuando el párrafo 3 sea aplicado, el Certificado será emitido retrospectivamente dentro de 12 meses a partir de la fecha de la exportación, y será aprobado con las palabras "ISSUED RETROSPECTIVELY".
+5. Para los casos de robo, pérdida o destrucción accidental de un Certificado de Origen, el exportador o productor podrá solicitar por escrito a la entidad o entidades autorizada(s) de la Parte exportadora, la emisión de una copia certificada, siempre que haya sido comprobado que la copia original previamente emitida no fue utilizada como resultado de una verificación. La copia certificada llevará las palabras "CERTIFIED TRUE COPY with the original Certificate of Origin number ___ dated ___”.

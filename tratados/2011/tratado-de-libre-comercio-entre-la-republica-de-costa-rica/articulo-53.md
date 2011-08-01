@@ -1,0 +1,2 @@
+Artículo 53: Envíos de Entrega Rápida
+Cada administración aduanera adoptará o mantendrá procedimientos aduaneros separados y expeditos para envíos de entrega rápida, manteniendo sistemas apropiados de administración de riesgo. Estos procedimientos proporcionarán, bajo circunstancias normales, un despacho de mercancías rápido o expedito, después de presentar todos los requisitos y documentos aduaneros necesarios.

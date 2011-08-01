@@ -1,0 +1,2 @@
+Artículo 69: Ámbito
+Este Capítulo aplica a todos los reglamentos técnicos, normas y procedimientos de evaluación de conformidad de una Parte que puedan, directa o indirectamente, afectar al comercio de mercancías entre las Partes, con excepción de las medidas sanitarias y fitosanitarias que están cubiertas por el Capítulo 6 (Medidas Sanitarias y Fitosanitarias), o las especificaciones de compra establecidas por instituciones gubernamentales para las necesidades de producción o de consumo de instituciones gubernamentales.

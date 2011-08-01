@@ -1,0 +1,3 @@
+Artículo 27: Acumulación
+1. Cuando las mercancías o materiales originarios de una Parte son incorporados a una mercancía en el territorio de la otra Parte, dichas mercancías o materiales incorporados serán considerados como originarios de este último territorio.
+2. Una mercancía será considerada originaria cuando su producción es realizada, por uno o más productores en el territorio de una Parte, de tal forma que la producción de los materiales incorporados en esa mercancía, realizada en el territorio de esa Parte, puedan ser considerados como parte de la producción de la mercancía, siempre que esa mercancía cumpla con los requisitos establecidos en el Artículo 21 (Mercancías Originarias) y todos los demás requisitos aplicables en este Capítulo.

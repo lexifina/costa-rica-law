@@ -1,0 +1,4 @@
+Artículo 110: Disposiciones Generales
+1. Cada Parte reafirma sus compromisos establecidos en los tratados internacionales existentes en el campo de los derechos de propiedad intelectual, de los que ambos son partes, incluyendo el Acuerdo ADPIC.
+2. Cada Parte establecerá y mantendrá regímenes y sistemas de derechos de propiedad intelectual transparentes que otorguen certeza sobre la protección y observancia de los derechos de propiedad intelectual; y faciliten el comercio internacional a través de la diseminación de ideas, tecnología, ciencia y obras creativas.
+3. Las Partes prevendrán prácticas que constituyan un abuso de los derechos de propiedad intelectual por sus titulares, o que limiten de manera injustificada la competencia, o que injustificadamente puedan impedir o limitar la transferencia de tecnología.
