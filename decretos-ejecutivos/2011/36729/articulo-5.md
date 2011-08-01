@@ -1,0 +1,1 @@
+Artículo 5º—Distribución y asignación del contingente de importación. Dentro de un plazo de al menos los primeros treinta y cinco días hábiles del año, COMEX distribuirá y asignará los contingentes de importación entre los solicitantes conforme a los criterios estipulados en los artículos 7 al 11 de este Reglamento.

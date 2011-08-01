@@ -1,0 +1,1 @@
+Artículo 6º—Plazos. Las importaciones que se realicen al amparo de la asignación del contingente de importación de frijol deberán efectuarse en los períodos comprendidos entre el 01 de mayo y el 31 de julio o entre el 1º de octubre y el 31 de diciembre del año para el cual corresponde la asignación.
