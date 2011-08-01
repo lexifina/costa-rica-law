@@ -1,0 +1,1 @@
+2º—La presente disposición rige a partir de la vigencia del Tratado de Libre Comercio entre la República de Costa Rica y la República Popular China, 01 de agosto de 2011. Comuníquese y publíquese en el Diario Oficial La Gaceta.
