@@ -1,2 +1,3 @@
 Artículo 2°-Certificación de la información.
-Todas las entidades señaladas en el articulo anterior, que remitan información a la Contabilidad Nacional a efectos de que la misma se registre contablemente, deberán presentar dicha información debidamente certificada por el Jerarca de la respectiva Institución.
+Todas las entidades señaladas en el artículo anterior, que remitan información a la Contabilidad Nacional a efectos de que la misma se registre contablemente, deberán presentar dicha información debidamente certificada por el Director Financiero de la respectiva Institución.
+(La reforma practicada mediante directriz DCN-007-2011 del 1° de agosto del 2011, posteriormente fue derogada mediante Directriz N° CN-005-2012 del 6 de setiembre del 2012. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)

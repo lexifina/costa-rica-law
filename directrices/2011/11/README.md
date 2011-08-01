@@ -14,3 +14,4 @@ Certificación de la Información remitida a la Contabilidad Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-07 | la propia norma |
+| 2 | 2011-08-01 | Directriz 7 (2011-08-01) |
