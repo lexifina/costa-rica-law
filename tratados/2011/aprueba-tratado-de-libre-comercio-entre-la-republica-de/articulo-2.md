@@ -1,0 +1,7 @@
+ARTÍCULO 2.- Cartas adjuntas aclaratorias
+Para efectos de corregir el error material de impresión que identificó el Ministerio de Comercio Exterior en las descripciones incorporadas en las listas de desgravación arancelaria y el anexo sobre reglas de origen, debido a una falla en el programa informático utilizado, dado que al imprimir la casilla de descripción de algunas clasificaciones arancelarias esta no quedó ajustada al espacio destinado, por ende algunas líneas presentan algún grado de dificultad para su lectura, en el entendido de que los códigos arancelarios, el arancel base y las categorías de desgravación no presentan ningún error de impresión y que las descripciones con dificultad de impresión constituyen tan solo una guía de lectura para el código arancelario, se incorporan en la ley de aprobación de este tratado para efectos de interpretación y aclaración las siguientes notas intercambiadas entre las Partes Contratantes. En el caso de la nota recibida del Gobierno de la República Popular China, se incorpora, para los efectos mencionados, su traducción oficial únicamente. Los textos indicados son los siguientes:
+(Nota de Sinalevi: Por el tipo de formato y lo extenso de su contenido, las notas intercambiadas a la que hace referencia el numeral anterior pueden ser consultadas aquí)
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.-San José, a los dos días del mes de junio del año dos mil once.
+(Corregido mediante Fe de Erratas, y publicada en La Gaceta N° 146 del 29 de julio del 2011)
+[imagen]
