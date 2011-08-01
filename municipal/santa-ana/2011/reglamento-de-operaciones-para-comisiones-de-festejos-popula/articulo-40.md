@@ -1,0 +1,1 @@
+Artículo 40.—Comunicación al Concejo Municipal por incumplimiento o rescisión de contratos. En caso de incumplimiento o posible rescisión de contratos, cada Comisión deberá comunicarlo al Concejo Municipal para la determinación de las acciones legales correspondientes.

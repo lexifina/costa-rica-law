@@ -1,0 +1,1 @@
+Artículo 36.—Registro de operaciones: Para el registro de las operaciones, el Tesorero y el Contador de cada Comisión de Festejos, deberán elaborar el respectivo detalle de cuentas contables que identifique adecuadamente todos los ingresos y egresos que se originen durante los festejos.

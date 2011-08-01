@@ -1,0 +1,1 @@
+Artículo 13.—Quórum para las sesiones de las comisiones de festejos populares: El quórum para que pueda sesionar válidamente la Comisión de festejos será el de la mayoría simple de sus integrantes, sea con tres de sus miembros.

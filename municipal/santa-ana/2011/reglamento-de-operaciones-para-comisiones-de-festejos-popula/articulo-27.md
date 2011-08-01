@@ -1,0 +1,1 @@
+Artículo 27.—Responsabilidad de revisión previa de justificantes de gastos: Los miembros de la Comisión autorizados para firmar los cheques, deberán revisar cuidadosamente los justificantes de gastos que los amparan, antes de firmar dichos cheques.

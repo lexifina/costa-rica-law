@@ -1,0 +1,5 @@
+Artículo 25.—Forma de pago, registro y clasificación del gasto: Todos los gastos, excepto los pagados por caja chica, deberán pagarse mediante cheque, los cuales se registrarán y clasificarán en el Mayor Auxiliar de Gastos por orden numérico consecutivo.
+MAYOR AUXILIAR DE EGRESOS
+CHEQUE | Gasto por concepto de: | Cuenta contable de gastos
+Fecha | Beneficiario | Número | Fecha | Monto | |
+| | | | | |
