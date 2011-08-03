@@ -1,1 +1,0 @@
-Artículo 13.—Será responsabilidad de los directores (as) de las Áreas de Conservación garantizar que todas las áreas silvestres protegidas donde se reciben voluntarios (as), cuenten con un plan de voluntariado debidamente aprobado por el Comité Técnico del Área de Conservación respectiva.

@@ -1,1 +1,0 @@
-Artículo 15.—Los derechos, facultades, obligaciones, deberes y prohibiciones para los voluntarios (as) particulares serán los mismos que se estipulan en los artículos 6º, 7º y 8º del presente Reglamento.

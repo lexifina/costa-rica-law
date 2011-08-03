@@ -1,1 +1,0 @@
-Artículo 12.—Los funcionarios (as) del SINAC deberán velar por el cumplimiento de los derechos y facultades de los voluntarios (as) durante su permanencia en las áreas silvestres protegidas, según lo que establece el artículo 6º de este reglamento.
