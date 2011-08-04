@@ -1,2 +1,3 @@
 Artículo 9º—Impresión de la factura electrónica y otros. La emisión autorizada de documentos electrónicos, no exime al contribuyente de la obligación de imprimir y entregar al comprador o cliente, cuando éste así lo requiera, la factura y los documentos electrónicos asociados. Sin perjuicio de lo anterior, se entenderá cumplida la obligación de entrega de la factura, en el momento preciso de su emisión electrónica.
-Tratándose de emisores electrónicos que disponen de sistemas de puntos de venta al consumidor final, pueden mantener el respaldo de la transacción efectuada dentro del sistema de facturación electrónica.
+Tratándose de emisores electrónicos que disponen de sistemas de puntos de venta al consumidor final, para la impresión del tiquete electrónico se requiere la creación previa del archivo XML, el cual debe contener la firma digital
+(Así reformado el párrafo anterior mediante resolución N° DGT-019 del 4 de agosto de 2011)

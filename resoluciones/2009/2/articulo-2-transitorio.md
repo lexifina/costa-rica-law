@@ -1,2 +1,1 @@
-Transitorio 2: La presente resolución no alcanza a las relaciones comerciales entre terceros y las entidades del Estado; hasta tanto éste último cuente con las condiciones tecnológicas que le posibiliten la emisión y recepción de facturas por medios electrónicos.
-Publíquese.
+Transitorio 2: (Derogado mediante resolución DGT-019 del 4 de agosto de 2011)
