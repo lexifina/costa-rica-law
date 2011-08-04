@@ -1,0 +1,1 @@
+Artículo 61.— Para entregar activos en calidad de préstamo a otras instituciones, se deberá realizar mediante acuerdo de la Junta Directiva y confección de acta de entregará de activos por parte de la Sección de Servicios Generales.
