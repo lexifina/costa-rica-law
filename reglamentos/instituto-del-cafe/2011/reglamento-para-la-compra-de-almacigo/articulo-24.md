@@ -1,0 +1,1 @@
+Artículo 24.—La vigencia de este reglamento será por el plazo de dos años establecido por la Contraloría General de la República en el oficio de autorización, contado a partir de la fecha de publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 21.—El personal técnico designado como fiscalizador, deberá mantener los controles necesarios cuando así se requiera para el resguardo del almácigo e informar mediante un informe de control de las actividades realizadas.

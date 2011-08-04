@@ -1,0 +1,1 @@
+Artículo 12.—El pliego de condiciones será comunicado a los proveedores que conforman el Registro de Proveedores elegibles en el lugar señalado como idóneo para recibir notificaciones señalado en la solicitud que hace referencia el artículo 6º, inciso a). Asimismo el ICAFE a través de sus Oficinas Regionales comunicará a todos los proveedores inscritos.

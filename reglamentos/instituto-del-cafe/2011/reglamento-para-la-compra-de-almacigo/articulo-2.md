@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento se emite al amparo de lo dispuesto en el numeral 2, bis inciso c) de la Ley de Contratación Administrativa y de la autorización emitida por la Contraloría General de la República a la luz del artículo 138 del Reglamento a dicha ley.
