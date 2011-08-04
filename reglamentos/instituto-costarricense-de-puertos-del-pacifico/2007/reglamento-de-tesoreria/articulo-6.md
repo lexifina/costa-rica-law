@@ -1,2 +1,0 @@
-Artículo 6º—De la póliza de garantía o caución. El INCOP reglamentará la rendición de la garantía o caución de los funcionarios encargados de recaudar, custodiar o administrar fondos y valores públicos, según como lo establece el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos.
-(Así reformado mediante acuerdo 3 de la sesión N° 3489 del 06 de mayo del 2008)

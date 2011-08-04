@@ -1,1 +1,0 @@
-Artículo 24.—De la anulación de cheques. El Tesorero procederá a anular los cheques de pago de salario en su poder, que tengan 1 mes de vigencia, así mismo, anulará los cheques a proveedores con 3 meses de vigencia.

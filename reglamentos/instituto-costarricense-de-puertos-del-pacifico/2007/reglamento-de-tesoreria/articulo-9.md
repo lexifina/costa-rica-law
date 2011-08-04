@@ -1,1 +1,0 @@
-Artículo 9º—De la prohibición a la Tesorería para cambio de cheques. Es absolutamente prohibido para la Tesorería cambiar cheques, solo podrán ser recibidos en pago cuando vengan girados a nombre de INCOP.

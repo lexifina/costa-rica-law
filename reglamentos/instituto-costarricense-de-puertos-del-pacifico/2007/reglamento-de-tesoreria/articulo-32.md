@@ -1,1 +1,0 @@
-Artículo 32.—De la entrega de cheques. La entrega de los cheques a los beneficiarios sólo podrá efectuarla la Tesorería, previa identificación y comprobación en los registros de firmas autorizadas que para ese efecto hayan dado las casas comerciales. El Tesorero será el responsable de que este registro esté debidamente actualizado.

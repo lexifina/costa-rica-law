@@ -1,1 +1,0 @@
-Artículo 23.—De los cheques pendientes de recibo. Una vez realizado el pago de salarios a los empleados de la Institución, la persona encargada de la caja custodiará los comprobantes de pago debidamente firmados.

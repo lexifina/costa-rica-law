@@ -1,1 +1,0 @@
-Artículo 25.—De la consulta sobre fondos existentes. El encargado de la emisión de cheques, consultará al Tesorero, de previo a la emisión, si existen fondos suficientes en las cuentas corrientes bancarias respectivas.
