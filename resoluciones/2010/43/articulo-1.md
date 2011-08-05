@@ -210,3 +210,27 @@ Curso Intermedio de Temperatura (40 horas) | 1000
 Curso Avanzado de Temperatura (40 horas) | 1000
 Las Tarifas indicadas para los cursos de capacitación en Curso de Presión-Esfigmomanómetros, Curso Intermedio de Masas, Curso Intermedio de Volumen, Curso Intermedio de Presión, Curso Intermedio de Temperatura, Curso Avanzado de Temperatura serán cobradas a razón de en veinticinco dólares por hora (25,00 USD) por persona por curso.
 (*)( Así adicionado el servicio anterior mediante resolución N° R-LACOMET-048-2011 del 26 de mayo del 2011)
+INTERCOMPARACIONES(*)
+Departamento | Metrología Física | Precio USD
+Prueba de Aptitud en Presión Neumática Relativa Alcance detallado: de 0 a 1600 kPa Requisitos para participar: Capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 5 kPa | 150
+Prueba de Aptitud en Presión Hidráulica Relativa Alcance detallado: de 0 a 70 MPa Requisitos para participar: Capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 120 kPa | 150
+Alcance: 100 cm3 en equipos volumétrico para contener con una marca de aforo y 25 cm3 en equipos volumétrico para verter con una marca de aforo. Requisitos para participar: Tener la capacidad de aplicar el método gravimétrico de calibración de volumen a 20°C, con capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 0,04% del volumen. (Corregido mediante Fe de Erratas, publicada en La GAceta N° 173 del 8 de setiembre del 2011) |
+De aplicar el método gravimétrico de calibración a volumen 20°C, con capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 0,04% del volumen. | 150
+(*)(Así adicionado el servicio anterior mediante resolución Nº R-LACOMET-081-2011del 5 de agosto del 2011)
+(*)
+Nombre de la ronda | Programación | Objetivo | Alcance
+Lacomet-DMQ-01-2011. Índice de refracción y grados Brix. | Reunión de apertura: 5° semana de setiembre, 2011. Distribución de muestras: Entre 5° semana de setiembre y 1° semana de octubre, 2011 Fecha límite de entrega de resultados: 30 de noviembre, 2011 Discusión de resultados y reunión de cierre: 3ra semana de febrero, 2012 | Organizar una ronda de aptitud para el sector azucarero del país donde se evalúe las mediciones de índice de refracción y grados Brix. | Índice de refracción: Ámbito de medición: 1,3000 nD a 1,5000 nD Grados Brix: Ámbito de medición: 28° Brix a 60° Brix Tamaño de muestra : 100 g de sacarosa
+Lacomet-DMQ-02-2011. Actividad del ión hidronio, pH, 25°C. | Reunión de apertura: 5° semana de setiembre, 2011. Distribución de muestras: Entre 5° semana de setiembre y 1° semana de octubre, 2011 Fecha límite de entrega de resultados: 30 de noviembre, 2011 Discusión de resultados y reunión de cierre: 3ra semana de febrero, 2012 | Organizar una ronda de aptitud para los laboratorios de ensayo del país donde se evalúe la medición de la actividad del ión hidronio, pH. | Actividad del ión hidronio Valores nominales a evaluar: pH 4; pH 7 y pH 10 Tamaño de muestra: 100mL de cada disolución amortiguadora. Estas disoluciones se preparan a partir de MRC, trazabilidad DKD, Alemania. Además se entregarán dos muestras que consisten en 30 g de amortiguador de pH 4 y 12 g de amortiguador de pH 9, para contrastar resultados con los MR de Lacomet.
+(*)(Así adicionado el servicio anterior mediante resolución Nº R-LACOMET-081-2011del 5 de agosto del 2011)
+(*) ENSAYOS DE APTITUD TÉCNICA
+Metrología Química | Precio USD
+Nombre del Ensayo de Aptitud: LACOMET-DMQ-001-2011 Actividad del ión hidronio, pH, 25 °C. Alcance detallado: Valores nominales de pH 4, pH 7 y pH 9 Requisitos para participar: abierto a laboratorios de ensayos químicos en general | 150
+Nombre del Ensayo de Aptitud: LACOMET-DMQ-002-2011. Índice de refracción y grados Brix. Alcance detallado: 1,3000 nD a 1,5000 nD (índice de refracción) 28 ºBx a 60 ºBx (grados Brix) Requisitos para participar: abierto a laboratorios de ensayos químicos en general. | 150
+(*)(Así adicionado el servicio anterior mediante resolución Nº R-LACOMET-081-2011del 5 de agosto del 2011)
+(*)(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 173 del 8 de setiembre del 2011)
+(*)Esfignomanómetros
+Equipo | Precio USD
+Verificación Inicial | 56
+Verificación Subsecuente o periódica | 56
+Aprobación de Modelo
+(*)(Así adicionado el servicio anterior mediante resolución Nº R-LACOMET-081-2011del 5 de agosto del 2011)
