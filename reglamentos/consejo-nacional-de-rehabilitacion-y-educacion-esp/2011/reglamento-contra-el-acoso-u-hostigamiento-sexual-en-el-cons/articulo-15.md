@@ -1,0 +1,1 @@
+Artículo 15.—Las medidas cautelares deberán resolverse de manera prevalente y con carácter de urgencia. Su vigencia será determinada por su instrumentalidad para el proceso. La resolución del superior carecerá de ulterior recurso, excepto el de adición o aclaración.
