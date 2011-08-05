@@ -14,3 +14,4 @@ Reforma Reglamento del Plan Regulador para el cantón de Belén (Reglamento de Z
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-23 | la propia norma |
+| 2 | 2011-08-05 | SINALEVI (sin norma nombrada) |
