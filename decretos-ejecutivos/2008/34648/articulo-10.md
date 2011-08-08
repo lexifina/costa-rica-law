@@ -1,1 +1,0 @@
-Artículo 10.—Políticas de Auditoría. La principal política de la Auditoría Interna es ejercer su gestión en apego a la normativa técnica, las leyes, los reglamentos, las normas y usando como referencia la jurisprudencia emitida por los diferentes órganos de control. Las políticas específicas serán estipuladas en el Manual de políticas y procedimientos de Auditoría Interna.

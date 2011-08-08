@@ -1,3 +1,0 @@
-SECCIÓN V
-Relaciones y coordinaciones
-Artículo 39.—Coordinación y relaciones. Al Auditor Interno o la Auditora Interna le corresponderá regular y administrar el manejo de las relaciones y coordinaciones de la Auditoría Interna conforme la normativa aplicable. Estas relaciones se enfocan principalmente a la Junta Directiva, los titulares subordinados, la Contraloría General de la República y otras instancias internas o externas. También le corresponde regular las relaciones de los demás funcionarios de la Auditoría Interna con las dependencias internas o externas de la competencia institucional, a fin de que estas se establezcan respetando el ordenamiento jurídico y técnico aplicable.

@@ -1,3 +1,0 @@
-SECCIÓN IV
-Del personal de la Auditoría Interna
-Artículo 34.—Administración del recurso humano. El Auditor Interno o la Auditora Interna es el jefe de personal de la Auditoría Interna y en esa condición ejercerá todas las funciones que le son propias en la administración de personal, (planificar, organizar, coordinar, dirigir, supervisar, evaluar, motivar, informar decisiones y brindar apoyo de capacitación, entre otros). Para efectos de los nombramientos, remociones, sanciones, promociones, concesión de licencias y demás movimientos del personal, deberán contar con la autorización del Auditor Interno, todo de acuerdo con el marco jurídico que en la materia rige para el COSEVI y el artículo 24 de la LGCI.

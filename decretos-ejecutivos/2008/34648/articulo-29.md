@@ -1,1 +1,0 @@
-Artículo 29.—Rendición de cuentas y plazo. El Auditor Interno o la Auditora Interna debe rendir cuentas de su gestión, a cuyo efecto presentará el respectivo informe de labores previsto en el artículo 22 inciso g) de LGCI, antes del 15 de febrero de cada año.

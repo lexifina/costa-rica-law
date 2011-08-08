@@ -1,1 +1,0 @@
-Artículo 32.—Programa de aseguramiento de la calidad. El Auditor Interno o la Auditora Interna deberá establecer un programa de aseguramiento de la calidad para la auditoría interna, de conformidad con lo dispuesto por el Manual de normas generales de auditoría para el sector público (M-2-2006-CO-DFOE).

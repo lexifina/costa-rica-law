@@ -1,1 +1,0 @@
-Artículo 67.—Difusión de resultados de los servicios de Auditoría. El Auditor Interno o la Auditora Interna debe disponer la difusión de los resultados a las partes apropiadas, bajo las regulaciones existentes para dichos efectos.

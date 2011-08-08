@@ -1,1 +1,0 @@
-Artículo 23.—Organización. La Auditoría Interna se organizará y funcionará conforme lo disponga el Auditor Interno o la Auditora Interna, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República las cuales serán de acatamiento obligatorio y la LGCI.

@@ -1,2 +1,0 @@
-Artículo 16.—Objetividad e imparcialidad de la Auditoría. El Auditor Interno o la Auditora Interna y demás funcionarios de la Auditoría Interna en el desarrollo de sus competencias, deben estar libres de impedimentos para proceder con objetividad e imparcialidad. Tienen la responsabilidad de estar alerta sobre cualquier circunstancia, situación o hecho, personales o externos, que puedan menoscabar o poner en duda su independencia.
-La Junta Directiva debe respetar, tener en cuenta y velar por la independencia y objetividad de la Auditoría Interna.

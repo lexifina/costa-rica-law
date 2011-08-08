@@ -1,4 +1,0 @@
-SECCIÓN VI
-Responsabilidad de la implementación de las recomendaciones
-Artículo 95.—Responsabilidad de la Administración Activa. Es responsabilidad de la Administración activa la adopción de todas las medidas y acciones que aseguren y permitan la efectiva, eficiente y oportuna implantación de las recomendaciones emitidas por la Auditoría Interna y que hayan sido debidamente aceptadas por la Administración, así como incluir en sus planes anuales de trabajo la ejecución de aquellas que por su alcance y complejidad así lo requieran.
-Incurrirán en responsabilidad administrativa cuando corresponda, el jerarca, los titulares subordinados y demás funcionarios del COSEVI, cuando injustificadamente incumplan o no tomen las acciones para implementar las recomendaciones, de conformidad con lo establece el artículo 39 de la LGCI.

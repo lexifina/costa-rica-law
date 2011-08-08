@@ -1,2 +1,0 @@
-Artículo 17.—Asistencia del auditor interno o la auditora a la Junta Directiva. El Auditor Interno o la Auditora Interna asistirá a las sesiones de la Junta Directiva, de conformidad con lo que dispone el decreto ejecutivo Nº 24962-MOPT del 20/02/1996 y artículo 22 inciso d) de la LGCI.
-Su participación en dichas sesiones será conforme a su responsabilidad de asesor, según la normativa y criterios establecidos por la Contraloría General de la República al respecto.

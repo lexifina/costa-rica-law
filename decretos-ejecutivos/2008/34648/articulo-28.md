@@ -1,1 +1,0 @@
-Artículo 28.—Plan de trabajo anual. El auditor o la auditora interna deberá presentar su plan anual de trabajo de conformidad con los lineamientos de la Contraloría General de la República y podrá proponer al jerarca oportuna y debidamente justificados, los requerimientos de recursos para llevar adelante su plan, incluidas las necesidades administrativas de la unidad.
