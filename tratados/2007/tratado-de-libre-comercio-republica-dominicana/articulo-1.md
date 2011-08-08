@@ -1259,6 +1259,7 @@ Capítulo Tres
 Trato Nacional y Acceso de Mercancías al Mercado
 Capítulo Cuatro
 Reglas de Origen y Procedimientos de Origen
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 36938 del 13 de diciembre de 2011, la Comisión de Libre Comercio del Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos, aprobó la Decisión de la Comisión de Libre Comercio para establecer las Directrices Comunes para la interpretación, aplicación y administración del Capítulo Cuatro del Tratado de Libre Comercio República Dominicana-Centroamérica- Estados Unidos, dichas directrices pueden ser consultadas aquí)
 Capítulo Cinco
 Administración Aduanera y Facilitación del Comercio
 Capítulo Seis
@@ -1292,6 +1293,7 @@ Administración del Tratado y Creación de Capacidades Relacionadas con el Comer
 Capítulo Veinte
 Solución de Controversias
 (Nota de Sinalevi: Mediante decreto ejecutivo N° 36601 del 26 de mayo de 2011, la Comisión de Libre Comercio del Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos, aprobó la Decisión de la Comisión de Libre Comercio para establecer las Reglas Modelo de Procedimiento, de fecha 23 de febrero de 2011, mediante la cual se establecen las reglas que se aplicarán en los procedimientos de solución de controversias de conformidad con el Capítulo 20 (Solución de Controversias) del Tratado de Libre Comercio República Dominicana-Centroamérica- Estados Unidos, dichas reglas pueden ser consultadas aquí)
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 36937 del 13 de diciembre de 2011, la Comisión de Libre Comercio del Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos, aprobó la Decisión de la Comisión de Libre Comercio sobre el nombramiento de la lista de árbitros, adoptada por Costa Rica, República Dominicana, Guatemala, Honduras, Nicaragua, el Salvador y Estados Unidos de América, del Tratado de Libre Comercio República Dominicana-Centroamérica- Estados Unidos, dicha lista puede ser consultada aquí)
 Capítulo Veintiuno
 Excepciones
 Capítulo Veintidós
