@@ -1,0 +1,1 @@
+Artículo 3º—El alquiler de la maquinaria y del equipo especial se cobrará por hora y el precio por hora será determinado semestralmente por el Concejo Municipal, la primera semana de los meses de enero y julio de cada año, previo informe de costos remitido por la Unidad Administrativa.

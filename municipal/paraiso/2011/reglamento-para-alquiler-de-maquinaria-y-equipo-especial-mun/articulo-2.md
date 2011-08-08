@@ -1,0 +1,1 @@
+Artículo 2º—El alquiler de ésta clase de maquinaria no tiene fines de lucro, y se podrá realizar sólo en el caso de que no haya menoscabo o interferencia con la labor municipal, reservándose la Municipalidad el derecho de suspender los trabajos de la maquinaria en actividades privadas cuando se requiera atender asuntos municipales calificados como urgentes.
