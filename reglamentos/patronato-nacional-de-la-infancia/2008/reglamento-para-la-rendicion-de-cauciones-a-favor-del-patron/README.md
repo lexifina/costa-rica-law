@@ -14,3 +14,4 @@ Reglamento para la Rendición de Cauciones a favor del Patronato Nacional de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-11 | la propia norma |
+| 2 | 2011-08-08 | Reglamento 32 (2011-08-08) |
