@@ -1,0 +1,2 @@
+Artículo 22.—Contra la resolución definitiva adoptada por el Concejo Municipal el contribuyente dentro del plazo de 15 días naturales contados a partir del día hábil siguiente de efectuada en forma la notificación, podrá interponer la acción de impugnación correspondiente ante el tribunal Contencioso Administrativo a que se refiere el artículo 18 de este Reglamento.
+Transcurrido dicho plazo sin que se hubiere interpuesto la acción de impugnación, la Municipalidad podrá interponer la acción ejecutiva a que se refiere el artículo 19 de este Reglamento.

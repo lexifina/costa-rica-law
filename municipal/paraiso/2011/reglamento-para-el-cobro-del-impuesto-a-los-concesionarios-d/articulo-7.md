@@ -1,0 +1,1 @@
+Artículo 7º—Cuando la concesión de explotación se encuentre ubicada en dos o más cantones, se procederá al cobro en forma proporcional. El detalle de la proporción del monto total a cancelar por el concesionario a la Municipalidad de Paraíso, se determinará mediante acuerdos en firme de los Concejos Municipales respectivos.

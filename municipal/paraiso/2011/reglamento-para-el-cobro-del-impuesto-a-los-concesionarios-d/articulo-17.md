@@ -1,0 +1,4 @@
+Artículo 17.—Cuando no sea presentada la declaración jurada dentro del plazo señalado, o cuando ésta sea objetada por la Municipalidad por considerarla falsa o incompleta, la Municipalidad de Paraíso a través de la Administración Tributaria y por resolución del Alcalde Municipal, puede determinar de oficio la obligación tributaria del contribuyente o responsable, ya sea en forma directa por el conocimiento cierto que tenga o mediante estimaciones si los elementos conocidos solo permiten presumir la existencia y magnitud de ella. Asimismo, la Municipalidad podrá realizar la estimación de oficio en los siguientes casos:
+a. Si el contribuyente no lleva el registro especial y facturación a que se refiere el artículo 13 de este reglamento.
+b. Si el contribuyente no lleva en forma regular sus libros de contabilidad.
+c. Si el contribuyente no aporta la información solicitada por la Administración Tributaria en el plazo establecido en este Reglamento.
