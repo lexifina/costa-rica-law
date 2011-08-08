@@ -1,0 +1,3 @@
+Artículo 6º—El Concejo Municipal fijará los precios que se deberán cobrar por los servicios que preste u obras que realice la Municipalidad. El acuerdo que los establezca deberá ser publicado en La Gaceta. Los precios serán actualizados anualmente.
+Los precios que se cobrarán por los servicios prestados serán los siguientes:
+Será responsabilidad directa del propietario o nudo propietario registral del inmueble el pago de los servicios previstos en este reglamento y no podrá invocarse contra la administración ninguna cláusula suscrita entre privados que exima al propietario del pago de las tarifas aquí previstas. No obstante, cualquier tercero podrá pagar por el deudor, caso en el cual la Municipalidad girará la respectiva certificación para que pueda subrogarse el pago.
