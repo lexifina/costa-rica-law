@@ -1,0 +1,5 @@
+Artículo 2º—Los objetivos de esta iniciativa son:
+a. Conocer y unificar en un proyecto, la mayoría de las acciones realizadas por diferentes organizaciones para el manejo de los residuos durante la romería, y complementar las mismas con aquellas que puedan hacer falta para desarrollar un proceso más eficiente.
+b. Desarrollar una campaña de educación ambiental para los romeros, que contenga aquellas acciones que se deben realizar para el manejo eficiente de los residuos que generen durante la caminata, especialmente en el trayecto entre La Galera (Curridabat) hacia la Basílica de la Virgen de los Ángeles (Cartago).
+c. Implementar la campaña de educación ambiental durante los días previos a la actividad, y coordinar acciones específicas que se realicen durante los días inmediatamente anteriores a la misma, especialmente los días 30 y 31 de julio y 1 y 2 de agosto.
+d. Establecer instrumentos que permitan medir los resultados de la campaña de educación ambiental, y divulgar los mismos con el propósito de retroalimentar a la ciudadanía.
