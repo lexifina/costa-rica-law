@@ -1,0 +1,1 @@
+Artículo 8º—Plazo para interponer la denuncia y prescripción. El plazo para interponer la denuncia será de hasta dos años, computado a partir del último hecho constitutivo del supuesto hostigamiento sexual o a partir del cese de la causa justificada que le impidió denunciar.
