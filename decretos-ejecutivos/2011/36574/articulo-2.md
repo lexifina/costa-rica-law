@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones y entidades académicas con competencia en la materia, podrán colaborar con el Ministerio de Ambiente, Energía y Telecomunicaciones en el cumplimiento de la normativa tendiente a investigar, conservar y divulgar el valor de este patrimonio natural, científico e histórico y de los recursos geológicos que la componen.
