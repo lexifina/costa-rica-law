@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión Interinstitucional celebrará reuniones ordinarias cada dos meses, sin perjuicio de las sesiones extraordinarias que serán convocadas por la Coordinación Nacional, con anticipación de una semana, cuando los asuntos de su competencia así lo requieran o a solicitud de alguna de las instituciones integrantes u observadoras de la Comisión Interinstitucional.

@@ -1,0 +1,2 @@
+Artículo 11.—La Comisión Interinstitucional podrá crear subcomisiones de trabajo, tanto de carácter permanente como transitorio, con el fin de asegurar el adecuado desempeño de sus funciones.
+Las subcomisiones de trabajo estarán formadas por funcionarios a nivel técnico de las instituciones integrantes de la Comisión Interinstitucional. Se garantizará la plena participación en las subcomisiones de representantes de organizaciones no gubernamentales.

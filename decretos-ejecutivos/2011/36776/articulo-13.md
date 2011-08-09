@@ -1,0 +1,1 @@
+Artículo 13.—La Comisión Interinstitucional además contará con el apoyo de un Grupo de Notables, reconocidos conocedores de la materia de los Derechos Humanos, quienes serán designados por el Ministerio de Relaciones Exteriores y Culto y fungirán sus cargos ad honórem.

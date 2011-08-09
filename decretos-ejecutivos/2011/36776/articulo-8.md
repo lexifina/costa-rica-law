@@ -1,0 +1,3 @@
+Artículo 8º—Las instituciones integrantes de la Comisión Interinstitucional deben:
+a) Designar un miembro titular y uno suplente con capacidad de decisión para su efectiva y activa participación en las reuniones de la Comisión Interinstitucional.
+b) Cuando sea requerido, y dentro del marco de respeto a su autonomía e independencia, entregar a la Comisión Interinstitucional información fidedigna acerca de las medidas que se hayan adoptado dentro de las instituciones, y en colaboración con otras, para salvaguardar el goce de los Derechos Humanos, así como la normativa y las prácticas necesarias por desarrollar para mejorar efectivamente el respeto a esos derechos.
