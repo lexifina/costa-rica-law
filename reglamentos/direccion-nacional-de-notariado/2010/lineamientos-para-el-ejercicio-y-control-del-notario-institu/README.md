@@ -14,3 +14,4 @@ Lineamientos para el ejercicio y control del Notario Institucional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-02 | la propia norma |
+| 2 | 2011-08-09 | SINALEVI (sin norma nombrada) |
