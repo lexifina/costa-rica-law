@@ -1,0 +1,1 @@
+Artículo 4º—Regulaciones. Este reglamento regula todo lo concerniente a los vertimientos deliberados de residuos sólidos, sustancias perjudiciales y desechos líquidos generados por usuarios, prestador de servicios y buques, en los puertos existentes o futuros, dados en concesión o bajo jurisdicción del INCOP.

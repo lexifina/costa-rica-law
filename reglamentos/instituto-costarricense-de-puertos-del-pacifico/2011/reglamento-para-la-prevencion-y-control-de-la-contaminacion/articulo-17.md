@@ -1,0 +1,1 @@
+Artículo 17.—De los daños a las instalaciones y equipos del prestador de servicios. La contaminación ambiental que genere daños a las instalaciones o equipos propiedad del INCOP, causada por un usuario, prestador de servicios o buque, deberá indemnizar al INCOP el o los daños causados en su costo real al momento de ocurrir el hecho.

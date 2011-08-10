@@ -1,0 +1,1 @@
+Artículo 32.—Derogatorias. Deróguese el Reglamento para la Prevención y Control de la Contaminación por Desechos Líquidos y Sólidos de los Buques que utilizan las Terminales Portuarias que Administra el INCOP, aprobado por la Junta Directiva en sesión Nº 2965 – Acuerdo Único celebrada el 11 de octubre del 2000, publicado en La Gaceta N° 04 del 05 de enero del 2001.

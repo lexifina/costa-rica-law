@@ -1,0 +1,1 @@
+Artículo 31.—De la normativa no contemplada en este Reglamento. Cualquier servicio o normativa que escape a este articulado será cubierto por el Reglamento General de Servicios Portuarios del INCOP y a su vez, por lo establecido en la legislación vinculante al efecto.

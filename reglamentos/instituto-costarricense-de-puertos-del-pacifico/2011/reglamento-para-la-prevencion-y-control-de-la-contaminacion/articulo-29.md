@@ -1,0 +1,1 @@
+Artículo 29.—Acatamiento del Reglamento. Las disposiciones contempladas en este reglamento deberán ser estrictamente acatadas por todos los usuarios, prestador de servicios, buques y trabajadores de INCOP; que hagan uso de los puertos existentes o futuros, dados en concesión o bajo jurisdicción del INCOP.

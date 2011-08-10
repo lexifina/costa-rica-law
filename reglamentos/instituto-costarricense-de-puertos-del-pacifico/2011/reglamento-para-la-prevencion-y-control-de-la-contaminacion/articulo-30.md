@@ -1,0 +1,1 @@
+Artículo 30.—Sanciones a los trabajadores de INCOP. A los trabajadores del INCOP, que no acaten las normas de éste articulado, se les sancionará, como lo dispone el Reglamento Autónomo de Servicios de la Institución y la legislación vigente.

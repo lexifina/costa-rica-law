@@ -1,0 +1,1 @@
+Artículo 19.—Responsabilidad por negligencia. Ninguna persona física o jurídica, será relevada de su responsabilidad, si la necesidad de efectuar una descarga de sustancias perjudiciales para salvaguardar la vida humana o la seguridad de cualquier buque, se debió a negligencia de su parte.
