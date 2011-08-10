@@ -1,0 +1,1 @@
+Artículo 9º—Independencia funcional. Los funcionarios de la Auditoría General actuarán con total independencia funcional y de criterio respecto del Jerarca y de los demás órganos de la Administración Activa, con el fin de no verse comprometida de hecho o de apariencia su objetividad.
