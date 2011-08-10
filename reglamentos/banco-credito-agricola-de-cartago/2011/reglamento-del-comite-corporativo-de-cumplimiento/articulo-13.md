@@ -1,0 +1,1 @@
+Artículo 13.—Participación de otros funcionarios en las reuniones. Los miembros del Comité Corporativo de Cumplimiento, pueden solicitar la participación en sus sesiones de los funcionarios que considere necesario, quienes tienen voz pero sin derecho a voto y su asistencia es obligatoria.
