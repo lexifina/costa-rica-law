@@ -14,3 +14,4 @@ Comunica Empresas beneficiarias del Régimen de Perfeccionamiento Activo que deb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-17 | la propia norma |
+| 2 | 2011-08-10 | Resolución 184 (2011-08-10) |
