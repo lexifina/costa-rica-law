@@ -1,0 +1,1 @@
+Artículo 5°- Aquellos activos y pasivos que sean exigibles o muy exigibles, pero que por su naturaleza, certeza de cobro, leyes, convenios especiales, sean difíciles de convertir en dinero a muy corto plazo (menor a un año), y/o que produzcan rendimientos se clasificaran como activos o pasivos no corrientes.
