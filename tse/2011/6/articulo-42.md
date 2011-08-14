@@ -1,0 +1,1 @@
+Artículo 42.—En el término de ocho días, las personas Registradoras Auxiliares deberán remitir al Registro Civil los certificados que contengan la información de las defunciones que les hayan sido declaradas.

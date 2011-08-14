@@ -1,0 +1,1 @@
+Artículo 35.—Las fórmulas para la declaración de matrimonios deberán ser llenadas por las personas a las que les fueron asignadas. En caso de que el certificado de declaración no corresponda a la persona a quien le fue entregado, se procederá a su devolución.

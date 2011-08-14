@@ -1,0 +1,1 @@
+Artículo 38.—En los matrimonios civiles autorizados por notarios consulares, se calificará, además de los requisitos indicados para los celebrados por notarios públicos, que la celebración se haya efectuado en la circunscripción territorial que le ha sido asignada.

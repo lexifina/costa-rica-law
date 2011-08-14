@@ -1,0 +1,1 @@
+Artículo 14.—Recibidos los documentos por los Oficiales de Inscripción, éstos procederán a su examen y comprobarán si se cumplen los requisitos legales, generales o especiales, requeridos para el tipo de inscripción y si estos contienen los datos necesarios para su práctica ordenarán su inscripción.

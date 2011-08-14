@@ -1,0 +1,1 @@
+Artículo 47.—Las anotaciones que aclaren, corrijan, rectifiquen, anulen, cancelen o extingan actos relativos al estado civil, se harán en formato electrónico y serán relacionadas en igual forma con la inscripción de que se trate o con aquellas a las que afecten.

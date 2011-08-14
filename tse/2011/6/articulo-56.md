@@ -1,0 +1,1 @@
+Artículo 56.—Las personas Registradores Auxiliares están en la obligación de corregir todos los documentos que las secciones del Departamento Civil les devuelvan por defectuosos, de manera que debidamente corregidos puedan inscribirse conforme a la ley y este reglamento.

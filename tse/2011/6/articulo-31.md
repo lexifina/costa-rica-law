@@ -1,0 +1,1 @@
+Artículo 31.—Con fundamento en las ejecutorias de sentencia que declaren la separación judicial, la nulidad de matrimonio o el divorcio, se generará una inscripción que las relacione con el asiento de matrimonio. Dicha relación se hará también en caso de que sobrevenga el fallecimiento de uno de los cónyuges.

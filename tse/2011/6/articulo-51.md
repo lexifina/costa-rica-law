@@ -1,0 +1,1 @@
+Artículo 51.—Las resoluciones deberán hacer indicación del término legalmente establecido para interponer los recursos correspondientes. De toda resolución del Registro Civil se podrá apelar para ante el Tribunal dentro del término de tres días posteriores al de la notificación respectiva. Queda a salvo el término que establece la Ley para los trámites de naturalización.

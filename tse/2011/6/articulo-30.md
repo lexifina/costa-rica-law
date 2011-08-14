@@ -1,0 +1,1 @@
+Artículo 30.—El matrimonio celebrado fuera de la República entre costarricenses o entre una persona costarricense y una extranjera, podrá inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente legalizado, del que deberá aportar la respectiva traducción si no viniese en idioma español.

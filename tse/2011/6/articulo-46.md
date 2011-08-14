@@ -1,0 +1,1 @@
+Artículo 46.—Las resoluciones que se dicten en materia de rectificación o modificación de asientos, serán firmadas por el Oficial Mayor del Departamento Civil y la Jefatura de la Sección de Actos Jurídicos.

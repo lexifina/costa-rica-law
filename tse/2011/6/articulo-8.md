@@ -1,0 +1,1 @@
+Artículo 8º—Las inscripciones que se generen en el Departamento Civil se practicarán en libros electrónicos conformados por novecientos noventa y nueve asientos cada uno, siguiendo el consecutivo de libros impresos a la fecha de su implementación. También en forma electrónica se consignarán las anotaciones que afecten esas inscripciones.

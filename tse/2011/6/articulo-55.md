@@ -1,0 +1,1 @@
+Artículo 55.—Las certificaciones del Departamento Civil serán expedidas y firmadas por las personas funcionarias y por los medios físicos o digitales que el Tribunal designe para ese fin, a solicitud del Oficial Mayor del Departamento Civil. La disposición que lo autorice deberá ser publicada en el Diario Oficial.

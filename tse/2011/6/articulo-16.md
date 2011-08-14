@@ -1,0 +1,1 @@
+Artículo 16.—Las ejecutorias de sentencias dictadas por tribunales extranjeros en materias que afecten el estado civil de las personas podrán inscribirse a solicitud de parte interesada, una vez cumplido el trámite que establece el Código Procesal Civil para que una sentencia extranjera surta efectos en el país.

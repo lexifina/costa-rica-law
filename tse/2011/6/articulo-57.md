@@ -1,0 +1,1 @@
+Artículo 57.—Se deroga el Reglamento del Registro del Estado Civil, Decreto Ejecutivo Nº 7 del 25 de julio de 1913, publicado en la Colección de Leyes y Decretos, semestre II, tomo I de 1913 y sus reformas.

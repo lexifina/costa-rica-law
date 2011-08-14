@@ -1,0 +1,2 @@
+Artículo 21.—Para inscribir nacimientos ocurridos en el extranjero, cuyo padre o madre sea costarricense, será necesario aportar la certificación original de nacimiento extendida por las autoridades del país donde se produjo el hecho vital, debidamente legalizada y traducida en caso de que no sea emitida en idioma español.
+Si el documento original se encuentra en un expediente de alguna institución pública, se admitirá copia certificada por la persona funcionaria competente.
