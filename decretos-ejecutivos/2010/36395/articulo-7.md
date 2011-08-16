@@ -1,0 +1,14 @@
+Artículo 7º—Adiciónese un nuevo Capítulo XI al Decreto Ejecutivo Nº 28466-S del 08 de febrero de 2000, publicado en La Gaceta Nº 42 del 29 de febrero de 2000, denominado “Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos” y consecuentemente córrase y modifíquese de forma correcta la numeración de los capítulos y artículos siguientes, cuyo texto será:
+(…)
+“CAPÍTULO XI
+Del registro temporal de productos farmacéuticos multiorigen
+Artículo 51.—Sin perjuicio de las disposiciones establecidas en los artículos 24 y 27 del presente Reglamento, el Ministerio de Salud podrá otorgar el registro temporal de productos farmacéuticos multiorigen al solicitante, siempre y cuando cumpla con todos los requisitos exigidos reglamentariamente para el registro sanitario de productos farmacéuticos.
+Artículo 52.—Durante el período de protección de los datos de prueba de un producto farmacéutico nuevo, el Ministerio de Salud podrá otorgar un certificado de registro temporal de un producto farmacéutico multiorigen fundamentado en los datos de prueba protegidos en el país, del producto farmacéutico nuevo, el cual no otorgará un derecho de comercialización del producto farmacéutico multiorigen en el territorio nacional. No se podrá otorgar el registro sanitario temporal de un producto multiorigen si existe una patente otorgada y vigente del correspondiente producto farmacéutico nuevo.
+Artículo 53.—El certificado de registro sanitario temporal que se otorgue tendrá el número de registro correspondiente acompañado de las siglas “temp.” e indicando la fecha de emisión. Una vez vencida la protección de los datos de prueba del producto farmacéutico nuevo y, a petición del solicitante, el Ministerio de Salud otorgará el certificado de registro sanitario del producto farmacéutico multiorigen, en el cual se eliminarán las siglas “temp.”, manteniéndose el mismo número de registro y la fecha de emisión establecida en el registro temporal, a partir de la cual se contará el plazo de 5 años de vigencia del registro.
+Artículo 54.—El certificado de registro sanitario temporal que otorgue el Ministerio de Salud indicará lo siguiente:
+a) Que el producto ha cumplido con la normativa de registro sanitario vigente.
+b) El número de registro sanitario otorgado con las siglas “temp”.
+c) Que el producto no puede ser comercializado en el país en razón del plazo de protección de datos de prueba vigente en el territorio nacional.
+d) La fecha de vencimiento de la protección de los datos de prueba.
+Artículo 55.—Una vez vencida la protección de los datos de prueba del producto farmacéutico nuevo, el producto multiorigen que tenga un registro sanitario temporal podrá ser comercializado en el territorio nacional. Para estos efectos, el solicitante debe solicitar al Ministerio de Salud la emisión del certificado de registro sanitario, el cual mantendrá el mismo número de registro otorgado anteriormente, eliminando las siglas “temp.”.”
+(…)

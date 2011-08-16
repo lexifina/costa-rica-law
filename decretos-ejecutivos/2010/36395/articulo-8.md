@@ -1,0 +1,1 @@
+Artículo 8º—Deróguese el artículo 32 del Decreto Ejecutivo Nº 28466-S del 08 de febrero de 2000, publicado en La Gaceta Nº 42 del 29 de febrero de 2000, denominado “Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos”.
