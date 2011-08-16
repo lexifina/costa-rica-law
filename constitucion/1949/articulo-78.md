@@ -1,5 +1,10 @@
-ARTÍCULO 78.- La educación preescolar y la general básica son obligatorias. Estas y la educación diversificada en el sistema público son gratuitas y costeadas por la Nación.
-En la educación estatal, incluida la superior, el gasto público no será inferior al seis por ciento (6%) anual del producto interno bruto, de acuerdo con la ley, sin perjuicio de lo establecido en los artículos 84 y 85 de esta Constitución.
-El Estado facilitará la prosecución de estudios superiores a quienes carezcan de recursos pecuniarios. La adjudicación de las becas y los auxilios estará a cargo del Ministerio del ramo, por medio del organismo que determine la ley.
-Transitorio (artículo 78).- Mientras no sea promulgada la ley a que se refiere el párrafo segundo del artículo 78 de la Constitución, el producto interno bruto se determinará conforme al procedimiento que el Poder Ejecutivo establezca por decreto.
-(Así reformado mediante Ley N°7676 del 23 de julio de 1997)
+ARTÍCULO 78.- La educación preescolar, general básica y diversificada son obligatorias y, en el sistema público, gratuitas y costeadas por la Nación.
+En la educación estatal, incluida la superior, el gasto público no será inferior al ocho por ciento (8%) anual del producto interno bruto, de acuerdo con la ley, sin perjuicio de lo establecido en los artículos 84 y 85 de esta Constitución.
+El Estado facilitará el acceso tecnológico a todos los niveles de la educación, así como la prosecución de estudios superiores a quienes carezcan de recursos pecuniarios. La adjudicación de las becas y los auxilios estará a cargo del Ministerio del ramo, por medio del organismo que determine la ley.
+(Así reformado por el artículo único de la ley N° 8954 del 9 de junio de 2011)
+Transitorios de la ley N° 8954 del 9 de junio de 2011:
+TRANSITORIO I.-
+El gasto público en educación podrá ser inferior al ocho por ciento (8%) durante los períodos fiscales anteriores al año 2014. Sin embargo, en ningún caso el porcentaje del producto interno bruto destinado a la educación podrá ser más bajo que el del año precedente.
+TRANSITORIO II.-
+La ley referida en el párrafo segundo del artículo 78 de la Constitución Política deberá dictarse dentro del año siguiente a la publicación de esta reforma constitucional. Mientras esa ley no se encuentre en vigencia, el producto interno bruto se determinará conforme al procedimiento que establezca el Banco Central de Costa Rica.)
+(Nota de Sinalevi: Mediante resolución N° 9724 del 29 de mayo del 2019, la Sala Constitucional declaró con lugar la acción, por la omisión de la Asamblea Legislativa de cumplir el mandato expreso impuesto por el poder constituyente derivado, para dictar la legislación prevista en el párrafo segundo del artículo 78 de la Constitución Política, en relación con el transitorio II de la misma norma. Se insta a la Asamblea Legislativa, para que dentro del plazo constitucional de doce meses, contado a partir de la notificación de esta sentencia, discuta y apruebe la legislación ordinaria señalada en el artículo 78 de la Constitución Política.)
