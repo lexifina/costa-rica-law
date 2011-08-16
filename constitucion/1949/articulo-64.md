@@ -1,1 +1,3 @@
-ARTÍCULO 64.- El Estado fomentará la creación de cooperativas como medio de facilitar mejores condiciones de vida a los trabajadores.
+Artículo 64.- El Estado fomentará la creación de cooperativas como medio para facilitar mejores condiciones de vida de los trabajadores. Asimismo, procurará el desarrollo del solidarismo como instrumento de crecimiento económico y social de los trabajadores, tanto en el sector privado como en el sector público.
+Asimismo, reconocerá el derecho de patronos y trabajadores a organizarse libremente en asociaciones solidaristas, con el fin de obtener mejores condiciones de vida y desarrollo económico y social.
+(Así reformado por el artículo único de la ley N° 8952 del 21 de junio del 2011 y corregido mediante Fe de Erratas, y publicada en La Gaceta N° 188 del 30 de setiembre de 2011)
