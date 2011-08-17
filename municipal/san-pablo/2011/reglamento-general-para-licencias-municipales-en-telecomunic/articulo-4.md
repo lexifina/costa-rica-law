@@ -1,0 +1,19 @@
+Artículo 4º—Para los efectos de la presente normativa se adoptan las siguientes definiciones:
+1. Antena: Dispositivo diseñado con el objetivo de emitir y/o recibir ondas electromagnéticas hacia el espacio libre.
+2. Ampliación y Modificación de la Obra Constructiva: Cualquier cambio a la Obra Constructiva autorizada por la municipalidad en la Licencia de Construcción.
+3. Bienes de Dominio Público: Son aquellos que por voluntad expresa del legislador o disposición municipal, tienen un destino especial de servir a la comunidad o al interés público.
+4. Canon por utilización de espacio público municipal: Es el monto a cancelar por la utilización de los espacios públicos municipales, de conformidad con el artículo 79, de la Ley Nº 7593 “Ley de la Autoridad Reguladora de los Servicios Públicos”.
+5. Caseta o cuarto de telecomunicaciones: En el cuarto de telecomunicaciones están contenidos todos equipos electrónicos necesarios para el funcionamiento de la estación base.
+6. Condominio: Inmueble susceptible de aprovechamiento independiente por parte de distintos propietarios, con elementos comunes de carácter indivisible.
+7. Estación base: Es una instalación utilizada para administrar la interfaz de radio de un sistema de telefonía móvil. Se encarga de recibir las peticiones de los teléfonos móviles, realiza la medición de intensidad de señal y la codificación y decodificación de los canales de radio. Está compuesta por: Las Antenas, La Torre, Un cuarto o caseta de telecomunicaciones; también, cuenta con una acometida eléctrica, un sistema de puesta a tierra, un sistema de aire acondicionado, un banco de baterías o generador, un pararrayos y un sistema de baliza.
+8. Federación de Municipalidades: Es la asociación de municipalidades constituida conforme a las disposiciones del Código Municipal.
+9. Mimetización: Aplicación de una serie de técnicas constructivas a las obras de ejecución de las instalaciones de telecomunicación, mediante las cuales el aspecto exterior de las mismas se asimila a la edificación u espacio natural o artificial que forman parte de su entorno.
+10. Licencia de Construcción: la autorización expedida por la Municipalidad para la construcción instalación, ampliación o modificación de la Obra Constructiva.
+11. Licencia Comercial: la autorización expedida por la Municipalidad para la explotación comercial de las Obras Constructivas y los servicios prestados por las mismas.
+12. Obra Constructiva: torre y su obra civil relacionada, que sirven para satisfacer los requerimientos de instalación de antenas y equipos utilizados para la transmisión inalámbrica en los servicios de telecomunicaciones, ubicados dentro de un predio.
+13. Operador: Persona física o jurídica, pública o privada, que explota redes de telecomunicaciones con la debida concesión o autorización, las cuales podrán prestar o no servicios de telecomunicaciones disponibles al público en general.
+14. Patente: Impuesto a pagar por la realización y explotación de una actividad comercial, industrial o de servicios dentro de la jurisdicción del cantón, de conformidad con la ley de patentes vigente y su reglamento.
+15. Proveedor: Persona física o jurídica, pública o privada, que proporciona servicios de telecomunicaciones disponibles al público sobre una red de telecomunicaciones con la debida concesión o autorización, según corresponda.
+16. Proveedor de Infraestructura: Es aquel intermediario, persona física o jurídica ajeno a la figura del Proveedor u Operador que regula la ley, que provee Obras Constructivas a terceros.
+17. Torre de Telecomunicaciones: Es el sistema de soporte para las antenas, arreglos de antenas, pararrayos y demás instalación esencial necesaria para la prestación de servicios de telecomunicaciones.
+18. Urbanización: es el fraccionamiento y habilitación de un terreno para fines urbanos, mediante apertura de calles y provisión de servicios.
