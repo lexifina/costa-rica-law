@@ -14,3 +14,4 @@ Normativa del Capítulo de Tecnólogos en ramas dependientes de las Ciencias Mé
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-03-13 | la propia norma |
+| 2 | 2011-08-17 | Acuerdo 0 (2011-08-17) |

@@ -1,7 +1,9 @@
 COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+(Nota: El Colegio de Médicos y Cirujanos de Costa Rica aprobó una nueva Normativa de Tecnólogos en Ciencias Médicas autorizados por el Colegio de Médicos y Cirujanos, en sesión N° 09 del 19 de setiembre de 2012)
 NORMATIVA DEL CAPÍTULO DE TECNÓLOGOS
 EN RAMA DEPENDIENTES DE LAS CIENCIAS,
 AUTORIZADOS POR EL COLEGIO
 DE MÉDICOS Y CIRUJANOS.
 Informa que la Junta de Gobierno en su Sesión Ordinaria 2007.12.12, celebrada el doce de febrero del año dos mil siete, según acuerdo SJG.0002.01.08 articulo III, aprobó la “Normativa del Capítulo de Tecnólogos en Ramas Dependientes de las Ciencias Médicas Autorizados por el Colegio de Médicos y Cirujanos de Costa Rica”
 Artículo 1°—El capítulo de Tecnólogos de ramas dependientes de las Ciencias Médicas estará constituido por todos los tecnólogos del sector Salud debidamente autorizados por el Colegio de Médicos y Cirujanos de Costa Rica para el ejercicio legal de sus funciones, según se indica en el Artículo Cuatro, de la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica y se regirá por este Reglamento.
+(Nota de Sinalevi: Mediante sesión ordinaria 2011-08-17 celebrada el 17 de agosto del año dos mil once, se acordó lo siguiente: "... 1. Incluir a la Tecnología en Electrofisiología en la lista oficial reconocida por el Colegio de Médicos y Cirujanos. , 2. Establecer de carácter obligatorio para los técnicos que soliciten la inscripción en la Tecnología en Electrofisiología, el cumplimiento de todos los requisitos establecidos, en Normativa del Capítulo de Tecnólogos en Ramas Dependientes de las Ciencias Médicas Autorizados por el Colegio de Médicos y Cirujanos, y demás legislación relacionada vigente. , 3. Establecer que en el momento en que médicos empiecen a recibir este entrenamiento se dejarán de inscribir técnicos en esa rama...)
