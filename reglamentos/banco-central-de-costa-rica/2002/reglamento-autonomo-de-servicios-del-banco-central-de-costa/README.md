@@ -25,3 +25,4 @@ Reglamento Autónomo de Servicios del Banco central de Costa Rica y sus Organism
 | 10 | 2007-12-19 | Reglamento 5360 (2007-12-19) |
 | 11 | 2009-04-15 | Reglamento 5420 (2009-04-15) |
 | 12 | 2009-09-02 | Reglamento 5434 (2009-09-02) |
+| 13 | 2011-08-17 | Reglamento 5510 (2011-08-17) |
