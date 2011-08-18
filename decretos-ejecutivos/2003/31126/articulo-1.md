@@ -43,7 +43,7 @@ f) (Este inciso fue Derogado por el artículo 3° aparte 1) del decreto ejecutiv
 g) (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 34895 de 14 de octubre del 2008, posteriormente se volvio a derogar por el artículo 3 del decreto ejecutivo N° 35582 del 1° de octubre de 2009)).
 h) (Este inciso fue derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35125 del 3 de marzo de 2009)
 i) (DEROGADO, por el artículo 3° del decreto ejecutivo N° 35391 de 10 de junio de 2009 y posteriormente se vuelve a derogar por el artículo 3°, punto 1° del decreto ejecutivo N° 36603 del 24 de enero del 2011)
-j. Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
+j. (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 36806 del 18 de agosto del 2011)
 (Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo N° 34643 del 12 de mayo del 2008)
 k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8 de enero de 2010)
 (NOTA. Mediante el artículo 1° del decreto ejecutivo N° 34793 del 1° de setiembre de 2008, se nombra como miembros propietario de esta Comisión al señor Rafael Salazar Murillo representante de la Asociación Mesa Nacional Campesina.)
@@ -60,3 +60,4 @@ k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010, se nombra como miembro suplente de esta Comisión al Señor Gustavo Induni Alfaro, representante del Ministerio de Ambiente, Energía y Telecomunicaciones)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36603 del 24 de enero del 2011, se nombra como miembro suplente de esta Comisón a la señora Yamileth Solís Lezcano, representante de la Asociación Mesa Nacional Campesina)
 (Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36704 del 23 de junio del 2011, se nombra como miembros suplentes de esta Comisión a la señora Alicia Daniela Herrera Li, representante del Ministerio de Comercio Exterior y al señor Alvaro Otárola Fallas, representante del Instituto Costarricense de Pesca y Acuicultura)
+(Nota de Sinalevi: Mediante el artículo 1º del decreto ejecutivo N° 36806 del 18 de agosto del 2011, se nombra como miembros suplentes de esta Comisión a la señora Elizabeth Arnáez Serrano representante del Consejo Nacional de Rectores)
