@@ -1,20 +1,8 @@
-ARTÍCULO 8.- Documentos para obtener la concesión
-El interesado en obtener la concesión referida en esta ley, deberá
-presentar su anteproyecto de edificación y explotación a la Comisión
-interinstitucional de marinas y atracaderos turísticos, para que esta
-emita la resolución técnica correspondiente. Para los efectos anteriores,
-deberá presentar los documentos siguientes:
-a) Un anteproyecto que contendrá, por lo menos, la ubicación del
-terreno y su zonificación, descripción del proyecto y las obras que se
-pretende ejecutar.
-b) Los planos de localización de la marina o el atracadero turístico
-y los planos del anteproyecto.
-c) La descripción de los servicios que se pretenda prestar, con
-indicación de los beneficios para los usuarios.
-d) Un perfil económico del proyecto, con el detalle de la inversión
-que se pretende realizar y el análisis de los costos y beneficios.
-e) El sistema tarifario propuesto y las contraprestaciones que se
-ofrecen.
-f) Una evaluación de impacto ambiental, debidamente aprobada por la
-Secretaría Técnica Nacional Ambiental. En caso de atracaderos turísticos
-se solicitará también el mismo requisito que contempla este inciso.
+Artículo 8.-Trámite para el contrato de concesión
+A partir de la notificación de la resolución administrativa sobre la viabilidad técnica favorable de la Cimat, el interesado podrá acudir a la municipalidad, a fin de tramitar la obtención del contrato de concesión para desarrollar una marina o un atracadero turístico, según los requerimientos de esta ley.
+Para iniciar el trámite de solicitud de concesión, el interesado deberá cumplir los siguientes requisitos:
+a) Solicitud escrita ante la municipalidad respectiva, acompañada de una copia certificada del expediente administrativo tramitado ante la Cimat, con la copia certificada de los planos del anteproyecto. El costo de la copia correrá por cuenta del interesado.
+b) Presentar la resolución administrativa sobre la viabilidad técnica favorable concedida por la Cimat, sobre el anteproyecto de edificación y explotación de la marina o atracadero turístico por desarrollar.
+c) Certificación extendida por un contador público autorizado, sobre la capacidad financiera de la empresa.
+d) Copia de la Viabilidad (Licencia) Ambiental (VLA), otorgada por la Setena.
+(Así reformado por el artículo 2° de la ley N° 8969 del 7 de julio del 2011)

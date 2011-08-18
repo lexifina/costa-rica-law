@@ -1,12 +1,14 @@
-ARTÍCULO 5.- Trámite
-Para iniciar el trámite de solicitud de concesión y funcionamiento de
-marinas o atracaderos turísticos, el interesado deberá presentar:
-a) Solicitud escrita ante la municipalidad del lugar, de acuerdo con
-los requisitos que se establezcan en el reglamento de esta ley.
-b) La resolución respectiva de la Comisión interinstitucional de
-marinas y atracaderos turísticos, sobre el anteproyecto de edificación y
-explotación de las marinas o atracaderos turísticos, junto con la copia
-del anteproyecto.
-c) Una certificación extendida por un contador público autorizado
-sobre la capacidad financiera de la empresa y una declaración jurada ante
-notario público, de su experiencia en proyectos similares.
+Artículo 5.-Trámite ante la Comisión Interinstitucional de Marinas y Atracaderos Turísticos (Cimat)
+El interesado en construir, administrar y explotar una marina turística o un atracadero turístico deberá contar con la viabilidad técnica favorable de la Cimat. El interesado deberá presentar la solicitud que incluirá, al menos, la siguiente información:
+a) La solicitud formal con los datos generales del solicitante.
+b) Los planos del anteproyecto y sus respectivos estudios preliminares.
+c) La Viabilidad Ambiental Potencial (VAP), otorgada por la Secretaría Técnica Nacional (Setena), gestionada por medio de una Evaluación Ambiental Inicial (EAI) mediante el procedimiento vigente.
+d) Un perfil económico básico del anteproyecto, con el detalle de la inversión y el análisis de los costos y beneficios que se pretenden realizar.
+e) Una certificación extendida por un contador público autorizado, sobre la capacidad financiera de la empresa. Además, deberá presentar una declaración jurada de que contará con el personal calificado para desarrollar el proyecto.
+La Cimat asignará un número de expediente a la solicitud y deberá emitir la correspondiente resolución administrativa debidamente fundamentada sobre la viabilidad técnica, en un plazo máximo de cuarenta y cinco días hábiles, prorrogable por un plazo igual por una única vez. Dentro de los primeros veinte días hábiles, la Comisión podrá solicitarle al interesado, por una única vez, las aclaraciones y adiciones que considere necesarias. Para ello, el interesado tendrá un plazo de quince días hábiles prorrogables por un plazo igual por una única vez, para cumplir los requerimientos de la Cimat. El plazo dado al interesado suspenderá el período concedido a la Cimat para emitir su resolución. Dentro del plazo restante, la Comisión deberá notificar la decisión al interesado en forma personal.
+Para el cumplimiento de las funciones de la Cimat, se crea una ventanilla única según la Ley N.º 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos. En el caso del procedimiento de Evaluación de Impacto Ambiental tramitado ante la Setena, ambas entidades, la Setena y la Cimat, establecerán, vía reglamento, un procedimiento de coordinación técnica y ambiental conjunto, para que se incorpore la variable ambiental dentro del proyecto, de manera que evite la repetición de trámites y favorezca la tramitología simultánea de ambos procesos.
+La viabilidad técnica favorable al anteproyecto facultará al interesado para continuar con el trámite de solicitud de concesión ante la municipalidad.
+Contra las resoluciones administrativas de la Cimat se podrán interponer los recursos de revocatoria y apelación, en los términos y las condiciones establecidos en la Ley General de la Administración Pública y leyes conexas.
+El recurso de apelación deberá ser interpuesto ante el jerarca del ICT. Lo resuelto por dicho ente dará por agotada la vía administrativa, lo que no constituye impedimento para acudir a la vía jurisdiccional.
+La Cimat tendrá siempre el deber de emitir su resolución administrativa en relación con la viabilidad técnica, en el tiempo establecido. El incumplimiento de este deber será considerado falta grave de servicio, según las disposiciones disciplinarias y administrativas del órgano.
+(Así reformado por el artículo 2° de la ley N° 8969 del 7 de julio del 2011)

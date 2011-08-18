@@ -1,27 +1,7 @@
-ARTÍCULO 10.- Resolución de la solicitud
-Resuelta la solicitud, la Comisión notificará la decisión al
-interesado, a fin de que este la presente junto con los otros requisitos
-a la municipalidad del lugar.
-Cuando la resolución adoptada por todos los miembros de la Comisión
-en cita sea negativa, no será de conocimiento de la municipalidad
-respectiva.
-Como acto preliminar y dentro del primer mes a partir de la
-presentación de estos requisitos, la municipalidad ordenará publicar por
-una sola vez un edicto en La Gaceta y en un diario de circulación
-nacional. En él deberá indicar los datos generales del solicitante y las
-características principales del proyecto que pretende llevar a cabo. Los
-terceros interesados contarán con un plazo de un mes a partir de la
-publicación del edicto en La Gaceta, para apersonarse ante la
-municipalidad a formular su oposición, la cual deberá ser debidamente
-fundamentada, con aporte de la prueba de respaldo. Verificado que la
-oposición se encuentra debidamente presentada, la municipalidad seguirá el
-procedimiento dispuesto en el reglamento de esta ley.
-Transcurrido el plazo para oposiciones, la municipalidad dispondrá de
-tres meses para tramitar y analizar la solicitud de concesión. La
-municipalidad podrá solicitar a la Comisión las aclaraciones y adiciones
-que estime pertinentes, dentro de los veinte días hábiles siguientes al
-recibo de la resolución y para responder dispondrá de un mes a partir de
-la notificación correspondiente. Efectuadas las aclaraciones y adiciones
-respectivas, corresponderá a la municipalidad otorgar o denegar la
-concesión solicitada. En todo caso, la municipalidad deberá manifestarse
-por escrito, con justificación expresa de su criterio.
+Artículo 10.-Procedimiento para otorgar un nuevo contrato de concesión
+La municipalidad recuperará el derecho sobre la concesión cuando el concesionario o interesado haya infringido algunas de las causales de cancelación de la concesión previstas en esta ley.
+La municipalidad, al cancelar una concesión, podrá otorgar un nuevo contrato de concesión de marina o atracadero turístico en el mismo sitio, mediante un concurso por licitación pública, a efecto de que se pueda adjudicar la concesión a un nuevo interesado, de conformidad con lo dispuesto en la Ley de Contratación Administrativa, y sus reformas. En este nuevo proceso, el interesado deberá cumplir los trámites y requerimientos legales preceptuados en esta ley.
+Si la cancelación de la concesión obedeció al incumplimiento de las causales contempladas en el artículo 19 de esta ley, el interesado deberá realizar las acciones de mitigación necesarias para reparar el daño ambiental.
+La municipalidad podrá contar con el apoyo del Instituto de Fomento y Asesoría Municipal (IFAM), el de la Cimat y del ICT para la confección del cartel de licitación pública previsto en este artículo.
+Cuando se presenten recursos de objeción al cartel e independientemente de los aspectos que se hayan objetado, la Contraloría General de la República estará obligada a revisar el cartel en forma integral y advertir a la Administración si considera que existen vicios de procedimiento, o que en él se ha incurrido en alguna violación de los principios de la contratación administrativa, o que se ha quebrantado, en alguna forma, la normativa vigente en la materia.
+(Así reformado por el artículo 2° de la ley N° 8969 del 7 de julio del 2011)

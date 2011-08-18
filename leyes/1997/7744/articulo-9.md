@@ -1,16 +1,7 @@
-ARTÍCULO 9.- Trámite de la solicitud
-Recibida en forma la solicitud, la Comisión interinstitucional de
-marinas y atracaderos turísticos dispondrá de un plazo de dos meses para
-manifestarse, en forma obligatoria, expresa y razonada, sobre la
-viabilidad de la solicitud de la concesión de la marina o el atracadero
-turístico que se gestione. En el transcurso de este plazo, la Comisión
-podrá solicitar las aclaraciones y adiciones que considere necesarias y,
-presentadas estas, la Comisión contará con el plazo restante. El plazo
-para que la Comisión dicte la resolución podrá ser prorrogado, por el
-mismo período, una sola vez.
-La Comisión tendrá siempre el deber de dictar resolución en tiempo y,
-de no hacerlo, se reputará para sus integrantes y los demás funcionarios
-involucrados como falta grave de servicio y posible causal de despido,
-según las disposiciones disciplinarias y administrativas de cada entidad,
-sin perjuicio de las responsabilidades penales y civiles derivadas de su
-omisión contra el interés público.
+Artículo 9.-Resolución de la solicitud del contrato de concesión
+La municipalidad correspondiente tendrá competencia para otorgar o denegar la concesión.
+Dentro de los primeros veinticinco días hábiles, a partir de la presentación de todos los requisitos para la obtención de la concesión que establece esta ley, la municipalidad ordenará que se publique, por una sola vez, un edicto en el diario oficial La Gaceta y en un diario de circulación nacional, con el fin de que se realicen las oposiciones de ley; el contenido estará definido en el reglamento de esta ley y su costo correrá por cuenta del solicitante. Los terceros interesados contarán con un plazo de veinte días hábiles, a partir de la publicación del edicto en el diario oficial La Gaceta, para apersonarse ante el concejo municipal respectivo a formular su oposición, la cual deberá estar debidamente fundamentada. Verificado que la oposición se encuentra debidamente presentada, la municipalidad seguirá el procedimiento dispuesto en el reglamento de esta ley.
+En el caso de las marinas turísticas, una vez recibida la solicitud de concesión, la municipalidad convocará, además, a una audiencia pública conforme lo establecerá el reglamento de esta ley, en coordinación con la Cimat y los desarrolladores, a fin de presentar formalmente a la comunidad y a los interesados los alcances del proyecto de marina que se pretende desarrollar.
+Transcurrido el plazo para las oposiciones, la municipalidad podrá disponer de veinte días hábiles para solicitar a la Cimat las aclaraciones y adiciones que estime pertinentes para tramitar y analizar la solicitud de concesión, así como para aceptar las objeciones que se hayan presentado o rechazarlas. Posteriormente, la municipalidad tendrá un plazo de quince días hábiles para otorgar o denegar, en forma razonada, la solicitud de concesión.
+Las municipalidades podrán brindar las facilidades para el otorgamiento de las patentes que se requieran para el buen funcionamiento de los proyectos de marinas que concesionen y, por consiguiente, de los locales comerciales y anexos exigidos por la presente ley.
+(Así reformado por el artículo 2° de la ley N° 8969 del 7 de julio del 2011)
