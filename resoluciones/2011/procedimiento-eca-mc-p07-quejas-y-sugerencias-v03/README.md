@@ -1,0 +1,16 @@
+# Resolución (2011-08-18)
+
+Procedimiento ECA-MC-P07 Quejas y Sugerencias V03
+
+- Tipo: Resolución
+- Número: 0
+- Fecha: 2011-08-18
+- Ente emisor: Ente Costarricense de Acreditación
+- Publicación: La Gaceta N° 158 del 2011-08-18
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=70841&param2=85817&param3=1 (ficha 70841)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2011-08-18 | la propia norma |
