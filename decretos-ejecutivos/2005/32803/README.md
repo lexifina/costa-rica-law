@@ -23,3 +23,4 @@ Modifica miembros de la Comisión Nacional para la Gestion de la Biodiversidad
 | 8 | 2010-01-08 | Decreto Ejecutivo 35789 (2010-01-08) |
 | 9 | 2010-01-22 | Decreto Ejecutivo 35786 (2010-01-22) |
 | 10 | 2010-06-28 | Decreto Ejecutivo 36113 (2010-06-28) |
+| 11 | 2011-08-18 | Decreto Ejecutivo 36806 (2011-08-18) |

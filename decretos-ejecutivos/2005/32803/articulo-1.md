@@ -12,5 +12,4 @@ Artículo 1º—Modifíquese el artículo 1º, punto 1, incisos c) y j) y punto 
 c. (Derogado este inciso por el artículo 3°, punto 3° del decreto ejecutivo N° 34944 del 3 de noviembre de 2008)
 j. (DEROGADO, por el artículo 3° del Decreto Ejecutivo N° 35050 del 7 de enero del 2009).
 2) Miembros suplentes:
-j) Nancy Hidalgo Dittel, representante del Consejo Nacional de Rectores.
-(Así reformado el insiso anterior por el artículo 1° del decreto ejecutivo N° 34643 del 12 de mayo del 2008)
+j) (Derogado por el artículo 3°, punto 2 del decreto ejecutivo N° 36806 del 18 de agosto del 2011)
