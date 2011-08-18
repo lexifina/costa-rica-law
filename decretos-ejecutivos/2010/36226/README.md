@@ -14,3 +14,4 @@ Declaratoria de Interés Público de las acciones para determinar la ubicación 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-02 | la propia norma |
+| 2 | 2011-08-18 | Decreto Ejecutivo 36748 (2011-08-18) |
