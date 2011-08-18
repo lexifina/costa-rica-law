@@ -1,0 +1,1 @@
+Artículo 18.—El cierre de una instalación por mantenimiento será aprobada de previo por la Junta Directiva del Subcomité Comunal. Es requisito además para el cierre por mantenimiento comunicarlo a los usuarios por medio de carteles, volantes o cualquier medio efectivo. También deberá comunicarse al Concejo Municipal y al Consejo de Distrito respectivo.

@@ -1,0 +1,1 @@
+Artículo 17.—Se podrán autorizar la colocación de rótulos en las instalaciones deportivas, siempre y cuando obtenga beneficio patrimonial y/o económico por tal autorización. Tales rótulos no podrán hacer alusión a publicidad para bebidas alcohólicas, anuncio de cigarrillos o aquellos que por su contenido atenten contra los principios éticos y morales de la comunidad.

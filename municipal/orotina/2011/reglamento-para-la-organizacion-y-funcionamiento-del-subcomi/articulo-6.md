@@ -1,0 +1,1 @@
+Artículo 6º—La asamblea general de vecinos estará integrada por los vecinos que se hagan presentes a la misma y entre los presentes se elegirán los miembros directivos del Subcomité Comunal de Deportes y Recreación por mayoría simple de votos.

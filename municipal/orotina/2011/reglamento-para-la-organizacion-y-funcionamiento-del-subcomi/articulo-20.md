@@ -1,0 +1,1 @@
+Artículo 20.—Los días que no corresponda al Grupo de Merengueros de Barrio Jesús, la cancha podrá utilizarse por cualquier vecino de la comunidad, siempre y cuando se cumpla con lo establecido en el artículo 14 de este Reglamento y se haga uso de marcos de futbol pequeños.

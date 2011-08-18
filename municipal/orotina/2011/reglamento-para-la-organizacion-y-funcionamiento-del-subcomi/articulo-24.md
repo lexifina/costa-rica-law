@@ -1,0 +1,1 @@
+Artículo 24.—Se dispone que el período administrativo de la Junta Directiva sea por un lapso de tiempo de dos años. Por lo tanto el proceso de designación del Subcomité Comunal deberá realizarse durante el mes de setiembre.
