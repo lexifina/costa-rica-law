@@ -40,3 +40,4 @@ Por el momento, debido al tamaño del texto de la versión actualizada de la Cua
 (Modificado por Resolución N° 260-2010 (COMIECO-LIX) del 13 de diciembre de 2010, aprobada mediante decreto ejecutivo N° 36493 del 21 de febrero del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36522 del 31 de marzo del 2011)
 (Modificado por Resolución N° 264-2011 (COMIECO-LX) del 27 de julio del 2011, aprobada mediante decreto ejecutivo N° 36761 del 18 de agosto del 2011)
+(Modificado por Resolución N° 266-2011 (COMIECO-LX) del 27 de julio del 2011, aprobada mediante decreto ejecutivo N° 36760 del 18 de agosto del 2011)
