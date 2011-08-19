@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 36693
+
+Declara Moratoria Nacional para la explotación petrolera
+
+- Tipo: Decreto Ejecutivo
+- Número: 36693
+- Fecha: 2011-08-01
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 159 del 2011-08-19
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=70858&param2=85801&param3=1 (ficha 70858)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2011-08-19 | la propia norma |
