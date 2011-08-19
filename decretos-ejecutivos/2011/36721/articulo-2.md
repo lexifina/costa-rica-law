@@ -1,0 +1,3 @@
+Artículo 2º—Funciones. La CNE se encargará de administrar el Modelo, debiendo evaluarlo y ajustarlo cada dos años a partir de su implementación, para cuyos efectos constituirá un Comité Asesor Técnico-Científico. La CNE será el ente fiscalizador de la adecuada aplicación del Modelo en las diferentes áreas temáticas que se establezcan.
+El Modelo y sus fundamentos técnico-científicos, estarán disponibles en el sitio oficial de Internet de la CNE (www.cne.go.cr) y podrán ser accesados por el público en general.
+(Nota de Sinalevi: Por el tipo de formato el texto del Modelo y sus fundamentos técnico-cieníficos se encuentran en proceso de sistematización)

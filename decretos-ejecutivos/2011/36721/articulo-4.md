@@ -1,0 +1,2 @@
+Artículo 4º—Alcance. Las instituciones del Estado desarrollarán los parámetros propios de su actividad para determinar el riesgo aceptable en los distintos proyectos que se pretendan implementar o las medidas o fórmulas necesarias a aplicar por las entidades administradas o supervisadas, que tengan relación con los procesos.
+En materia regulatoria de seguros, en temas académicos y en el ejercicio de la actividad privada, el Modelo será referencial y se recomienda su adopción para efectos regulatorios y para efectos de impulsar la investigación.
