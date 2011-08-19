@@ -1,0 +1,2 @@
+Transitorio I.—En un término perentorio no mayor de noventa días hábiles, contados a partir de la publicación del presente acuerdo, la Asociación deberá haber promulgado los reglamentos necesarios que contemplen la inscripción, desinscripción, recursos administrativos entre otros aspectos y haber definido las tarifas de cobro por los servicios de registro, previamente autorizadas por el Ministerio de Agricultura y Ganadería.
+Dado en San José, a los veintisiete días del mes de junio del año dos mil once.
