@@ -14,3 +14,4 @@ Procedimiento Transitorio para la Revisión Técnica Vehicular de los Pequeños 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-19 | la propia norma |
+| 2 | 2011-08-19 | Decreto Ejecutivo 36750 (2011-08-19) |
