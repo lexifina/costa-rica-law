@@ -1,0 +1,4 @@
+Artículo 88 bis.—El salario correspondiente a las vacaciones del personal docente que se encuentra impartiendo lecciones, nombrado en calidad interina, se calculará por las siguientes reglas, siendo éstas únicamente de aplicación para el personal propiamente docente:
+a) Los educadores que imparten lecciones, cuyo nombramiento sea por todo el curso lectivo, su salario durante el mes de enero se debe calcular por medio de “dozavos”.
+b) Los docentes que imparten lecciones, nombrados por periodos inferiores a once meses para suplir la necesidad de dar continuidad al servicio, en virtud de la falta de un docente propietario, recibirán como salario en el mes de enero el monto proporcional por el tiempo efectivamente laborado durante el curso lectivo dividido entre once meses, “onceavos
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 36816 del 19 de agosto del 2011)

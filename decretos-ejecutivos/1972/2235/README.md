@@ -18,3 +18,4 @@ Reglamento de la Carrera Docente
 | 3 | 2000-07-07 | SINALEVI (sin norma nombrada) |
 | 4 | 2001-05-10 | Decreto Ejecutivo 29572 (2001-05-10) |
 | 5 | 2010-02-02 | SINALEVI (sin norma nombrada) |
+| 6 | 2011-08-19 | Decreto Ejecutivo 36816 (2011-08-19) |
