@@ -1,0 +1,1 @@
+Artículo 2º—Alcance: Este cuerpo normativo regula la autorización de apertura y cierre de los libros contables y de actas que, legal o reglamentariamente, deben llevar las diferentes dependencias municipales y que de acuerdo con el artículo 22 inciso e, de la Ley General de Control Interno es una potestad asignada directamente a la Auditoría Interna.
