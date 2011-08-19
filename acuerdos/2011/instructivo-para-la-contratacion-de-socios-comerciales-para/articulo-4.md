@@ -1,0 +1,2 @@
+4. INVITACIÓN
+El Banco invitará a participar a todas las personas jurídicas pública o privada que esté interesado en brindar los servicios objeto de este instructivo mediante publicación por una sola vez de todo el documento en la Diario Oficial La Gaceta y como mínimo en dos Diarios de Circulación Nacional dos veces al año en cuyo contenido se indicará el medio por el que puedan accederlo y aquella otra información que el Banco considere necesario.

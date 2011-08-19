@@ -1,0 +1,6 @@
+12. REQUERIMIENTOS DE SEGURIDAD DEL PIN
+Los cajeros automáticos deben contar con elementos a nivel de hardware y software que garanticen la seguridad del “PIN” de los tarjetahabientes mediante la utilización del algoritmo TRIPLE DES, de conformidad con lo establecido por Visa Internacional. Presentar documento de certificación de la Red de Cajeros.
+La información del PIN viajará de forma encriptada por la Red hasta el procesador del Banco, de manera tal que la verificación y la autorización del PIN que ha viajado encriptado será responsabilidad del Banco.
+Un PIN utilizado en las terminales de la Red de Cajeros del Socio Comercial, no debe estar grabado de ninguna manera en los archivos del procesador ni en el cajero automático.
+La información criptográfica de las Tarjetas como el PIN, CVV, PVV o CVV2 únicamente serán verificados y registrados por el Banco, de manera tal que el Socio Comercial limitará su responsabilidad únicamente a permitir su tránsito por su Red, de forma segura.
+Los Socios Comerciales se comprometen a que en todas las terminales que integran su Red de Cajeros, las mismas pueden aceptar un PIN variable en tamaño de cuatro (4) caracteres. Bajo ninguna circunstancia se procesarán tarjetas cuya identificación personal (PIN), sea menor de cuatro caracteres.

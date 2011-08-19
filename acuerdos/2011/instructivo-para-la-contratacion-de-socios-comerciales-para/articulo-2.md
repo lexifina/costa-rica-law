@@ -1,0 +1,2 @@
+2. ALCANCE
+Este procedimiento se realiza de conformidad con lo establecido en el artículo 2 bis, inciso c) de la Ley de Contratación Administrativa y a los términos establecidos por la Contraloría General de la República en su oficio de autorización. Los servicios a contratar se refieren a servicios operativos asociados a la interconexión de redes de cajeros automáticos para el procesamiento de las Tarjetas de Débito Popular, de tal manera que se facilite a nuestros clientes una gran cantidad de terminales en las cuales puedan accesar los servicios del Banco.

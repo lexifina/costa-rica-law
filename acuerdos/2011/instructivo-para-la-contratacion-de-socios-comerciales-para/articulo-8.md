@@ -1,0 +1,2 @@
+8. REQUISITOS Y RESPONSABILIDADES TÉCNICAS Y OPERACIONALES DE LOS POTENCIALES SOCIOS COMERCIALES PARA LA PRESTACIÓN DEL SERVICIO.
+Para ser considerado como elegible o apto para brindar el servicio objeto de este procedimiento excepcionado, Los Potenciales Socios Comerciales deberán demostrar que cuentan con una Red de Cajeros establecida en el país con capacidad técnica y operacional para brindar el servicio, lo anterior de conformidad con los siguientes requisitos:
