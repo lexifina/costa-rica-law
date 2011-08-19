@@ -1,0 +1,2 @@
+Artículo 6º—Comisionar al Presidente Ejecutivo para que en un plazo de 30 días hábiles instaure la Comisión de Seguimiento que velará por el funcionamiento de esta Área Marina de Pesca Responsable y por la implementación y operación del Plan de Ordenamiento Pesquero Aprobado, debiendo presentar Informes Semestrales de Seguimiento y Recomendaciones ante la Presidencia Ejecutiva del INCOPESCA.
+Acuerdo firme. Publíquese en el Diario Oficial La Gaceta.

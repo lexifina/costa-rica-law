@@ -1,0 +1,1 @@
+Artículo 2º—Aprobar de conformidad con lo que establece el Reglamento 138-2008 A.J.D.I.P., de fecha 4 de abril del 2008, la propuesta del “Plan de Ordenamiento Pesquero para el establecimiento del Área Marina de la Pesca Responsable de Tárcoles”.
