@@ -1,0 +1,1 @@
+Artículo 8º—Del quórum. Para que las sesiones del Comité se consideren legalmente constituidas deberá estar presente al menos la mayoría absoluta de sus integrantes, entre los cuales deberán estar presentes al menos dos de los integrantes de la Junta Directiva Nacional.
