@@ -1,0 +1,2 @@
+Del perfil del puesto
+Artículo 4º—Perfil del puesto: De acuerdo a la Resolución R-CO-91-2006, el auditor deberá caracterizarse por su idoneidad, por lo que se requiere de una persona profesional altamente capacitada en materia de auditoria que reúna los conocimientos, experiencia, actitudes, aptitudes, habilidades para administrar el proceso de auditoría y que cumpla con los requisitos establecidos en los perfiles institucionales.

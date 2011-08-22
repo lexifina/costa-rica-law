@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE ESCAZÚ
+El Concejo Municipal de Escazú, mediante el acuerdo municipal AC-326-11, y de conformidad con el artículo 43 del Código Municipal, publica, de manera definitiva el Reglamento de Concurso Público para el Proceso de Reclutamiento, Selección y Nombramiento de la Persona Auditora, el cual fue sometido a consulta pública mediante publicación en La Gaceta Nº 125, del miércoles 29 de junio del 2011, páginas 49-51.
+REGLAMENTO DE CONCURSO PÚBLICO PARA EL
+PROCESO DE RECLUTAMIENTO, SELECCIÓN Y
+NOMBRAMIENTO DE LA PERSONA AUDITORA
+Disposiciones generales
+Artículo 1º—De la naturaleza: El presente Reglamento regula el proceso para la selección y nombramiento de la persona que ocupará el cargo de Auditor(a) Interno(a) en la Municipalidad de Escazú. Este Reglamento se enmarca dentro de la siguiente normativa: a) Código Municipal; b) Artículo 31 de la “Ley General de Control Interno” (N° 8292) y c) “Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos y las condiciones para las gestiones de nombramiento de dichos cargos”, contenidos en la Resolución R-CO-91-2006 (L-1-2006-CO-DAGJ), emitida por la Contraloría General de la República y publicada en el Diario Oficial La Gaceta N° 236 del 8 de diciembre del 2006 y sus reformas y los vigentes a la fecha de realizar el nombramiento, D) Ley de Notificaciones Judiciales N° 8687 aplicable al sector público.

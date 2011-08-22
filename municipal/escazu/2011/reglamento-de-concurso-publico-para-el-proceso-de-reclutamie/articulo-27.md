@@ -1,0 +1,4 @@
+Del procedimiento de impugnación
+Artículo 27.—Recursos ordinarios: Contra el acuerdo del Concejo Municipal, que decida sobre el nombramiento del auditor o auditora cabrán los recursos ordinarios de recursos de revocatoria y apelación, los cuales deberán interponerse en memorial razonado dentro del quinto día a partir de su notificación y cumpliendo con los demás requisitos establecidos en el artículo 156 del Código Municipal.
+El Concejo deberá conocer del recurso de revocatoria en la sesión ordinaria siguiente a la presentación, de ese remedio impugnativo. El recurso de apelación será conocido por el Tribunal Superior Contencioso-Administrativo, siendo de aplicación también lo dispuesto en los párrafos tres y cuatro del citado artículo 156 del Código Municipal.
+Escazú, 3 de agosto del 2011.

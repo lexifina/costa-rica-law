@@ -1,0 +1,1 @@
+Artículo 24.—Terna: La terna estará conformada por las tres personas que se encuentren en el listado de elegibles ocupando los primeros lugares. En caso de renuncia de alguno de las personas integrantes de la terna, se considerará para la sustitución, la siguiente persona dentro de la lista de elegibles, según orden descendente.

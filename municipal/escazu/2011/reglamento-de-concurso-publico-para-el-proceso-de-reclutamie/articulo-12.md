@@ -1,0 +1,1 @@
+Artículo 12.—Recepción de ofertas: La recepción de ofertas se realizará durante dos días, en el horario de la Municipalidad, en la Secretaría Municipal. Las personas interesadas deberán entregar toda la documentación en sobre cerrado y se les entregará una boleta de recibido.

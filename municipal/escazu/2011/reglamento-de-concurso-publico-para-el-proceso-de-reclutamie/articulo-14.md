@@ -1,0 +1,1 @@
+Artículo 14.—Proceso de selección: El proceso de selección de oferentes inicia una vez cerrado el plazo para la presentación de documentos y finaliza con la conformación de una terna o nómina de oferentes al puesto de Auditor (a) Interno (a), para ser presentada ante el Concejo Municipal para su respectiva autorización y envío a la Contraloría General de la República.

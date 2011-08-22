@@ -1,0 +1,2 @@
+Artículo 23.—Condición de elegibles: Se considerarán elegibles todas aquellas personas que obtengan como mínimo una calificación final, igual o superior a 70%, como resultado de la ponderación de las calificaciones obtenidas en los diferentes predictores utilizados. Con estos oferentes se conformará un listado de elegibles, ordenado en forma descendente, a partir de la calificación mayor hasta llegar al 70.
+Para tales efectos, la Comisión revisará, evaluará y comunicará por escrito, a cada uno de los oferentes, las calificaciones obtenidas en el proceso anterior.
