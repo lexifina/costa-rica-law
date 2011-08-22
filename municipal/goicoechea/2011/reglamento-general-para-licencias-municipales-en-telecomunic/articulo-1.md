@@ -1,4 +1,6 @@
+(Suspendida)
 MUNICIPALIDAD DE GOICOECHEA
+(Nota del Sinalevi: Mediante acuerdo tomado por el Concejo Municipal de Goicoechea, en sesión ordinaria N° 34-2011 del 22 de agosto de 2011, se acuerda. "...se suspenda, por un período de cuarenta y cinco días naturales todo trámite de aprobación de construcción e instalación de torres y patentes, hasta tanto este Concejo Municipal concluya la revisicón del Reglamento de marras y apruebe o impruebe las reformas que corresponda...")
 El Concejo Municipal del Cantón de Goicoechea en sesión ordinaria N° 19-2011, celebrada el 9 de mayo de 2011, Artículo 24°, por unanimidad y con carácter firme de los presentes aprobó lo siguiente:
 REGLAMENTO GENERAL PARA LICENCIAS
 MUNICIPALES EN TELECOMUNICACIONES
