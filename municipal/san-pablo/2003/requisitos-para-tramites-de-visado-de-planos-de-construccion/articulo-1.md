@@ -36,7 +36,14 @@ Edificaciones bajo el régimen de condominios y urbanizaciones:
 6. Nota de la Comisión Nacional de Nomenclatura sobre aprobación de nombre del proyecto.
 7. Cumplir con lo establecido en el artículo III.3.6.3 del Reglamento para el control nacional de fraccionamientos y urbanizaciones.
 8. Visto bueno del Departamento de Ingeniería y acuerdo del Concejo Municipal sobre autorización de utilización de infraestructura existente.
-9. Todos los requisitos generales.
+9. Viabilidad ambiental (SETENA).
+(Así adicionado el punto anterior mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011)
+10. Los requisitos y/o documentos que se describen en la minuta de calificación de urbanizaciones que dispone el Departamento de Ingeniería.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011)
+11. Estar al día con la Municipalidad de San Pablo. Si un administrado tiene trámites pendientes en el Municipio, de cualquier naturaleza que estos sean, no podrá gestionar nuevas solicitudes para el trámite de Visados, Licencias o Permisos de Construcción.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011)
+12. Todos los requisitos generales.
+(Así corrida su numeración mediante sesión ordinaria N° 34-11 del 22 de agosto del 2011, que lo traspasó del antiguo punto 9) al 12))
 Duración del trámite: este trámite dura como máximo un mes calendario a partir de la fecha de presentación de todos los requisitos, período durante el cual la Municipalidad podrá aprobar el proyecto o hacer observaciones por escrito, sobre los requisitos y exigencias de la Ley, por una única vez. En este caso el interesado deberá presentar los documentos con las correcciones u observaciones señaladas y la institución deberá resolver esta presentación en plazo máximo de siete días naturales a partir del aporte de los documentos corregidos.
 Viviendas unifamiliares y edificaciones de hasta 300 metros cuadrados en dos pisos o menos.
 Los interesados deberán presentar ante la Municipalidad, para el análisis de obtención de permiso de construcción.

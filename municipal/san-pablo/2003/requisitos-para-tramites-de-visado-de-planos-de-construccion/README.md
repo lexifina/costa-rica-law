@@ -14,3 +14,4 @@ Requisitos para Trámites de Visado de Planos de Construcción, Visado de Planos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-17 | la propia norma |
+| 2 | 2011-08-22 | Reglamento municipal 34 (2011-08-22) |
