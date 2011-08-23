@@ -1,0 +1,1 @@
+Artículo 14.—Las garantías ofrecidas deberán mantenerse vigentes mientras ocupen sus cargos, así como por el lapso de prescripción de la responsabilidad civil y/o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios, el responsable designado por la Dirección Ejecutiva deberá llevar el control de la vigencia de las garantías,

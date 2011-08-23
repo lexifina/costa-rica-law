@@ -1,0 +1,1 @@
+Artículo 16.—Supervisión. Le corresponde al Encargado designado por la Dirección Ejecutiva supervisar que todos los funcionarios obligados a rendir la garantía, que a la entrada en vigencia del presente reglamento ostenten el nombramiento respectivo, suscriban la correspondiente póliza de fidelidad conforme las disposiciones de este reglamento, y que la mantengan vigente.

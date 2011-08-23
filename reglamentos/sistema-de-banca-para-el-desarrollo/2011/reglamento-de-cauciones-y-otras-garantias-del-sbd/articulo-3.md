@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación del Reglamento: Los funcionarios que deben rendir la garantía, indiferentemente del número del puesto o nomenclatura de la plaza, ya sea que ostenten un nombramiento interino o en propiedad, son los que ocupen o lleguen a ocupar los siguientes cargos: Miembros del Consejo Rector, Dirección Ejecutiva, Encargado de fondo de caja chica.

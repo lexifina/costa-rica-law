@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad de la caución: tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio del Consejo Rector del Sistema de Banca para el Desarrollo, sin que ello limite la eventual responsabilidad civil.
