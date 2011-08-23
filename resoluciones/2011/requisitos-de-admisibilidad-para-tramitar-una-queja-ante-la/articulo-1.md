@@ -34,3 +34,7 @@ e) De forma verbal, de lo cual se levantará un acta que será suscrita por un f
 5.Cuando la queja sea presentada por un usuario, sin ser éste el abonado, debe presentar una carta suscrita por éste último, autorizándolo para tramitar la queja, con copia de la cédula de identidad del abonado por ambos lados. Cuando exista imposibilidad material por parte del usuario para obtener la autorización del abonado, deberá presentarse en la Autoridad Reguladora a rendir declaración jurada ante un funcionario de la Dirección General de Participación del Usuario, donde indique los fundamentos de tal imposibilidad, o bien, presentar declaración jurada debidamente protocolizada que acredite tal imposibilidad.
 6.Señalar su pretensión, con indicación clara de la queja que se plantea, sus fundamentos de hecho y prueba correspondiente.
 7.Copia de los comprobantes, recibos o facturas del servicio público de interés, si los hubiere.
+1. Para el trámite de quejas que se presenten vía fax, éstas deben ser enviadas al número 2215-6002.
+(Así adicionado el punto anterior mediante publicado efectuada en La Gaceta N° 173 del 8 de setiembre de 2011. Notese que la enumeración no es la correcta)
+2. Para el trámite de quejas por medio de correo electrónico, estas deben ser enviadas a usuario@aresep.go.cr.
+(Así adicionado el punto anterior mediante publicado efectuada en La Gaceta N° 173 del 8 de setiembre de 2011. Notese que la enumeración no es la correcta)

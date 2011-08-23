@@ -14,3 +14,4 @@ Requisitos de admisibilidad para tramitar una queja ante la Autoridad Reguladora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-23 | la propia norma |
+| 2 | 2011-08-23 | Acuerdo 0 (2011-07-06) |
