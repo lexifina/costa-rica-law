@@ -1,3 +1,0 @@
-Artículo 18.—El presente Reglamento deroga el ‘Reglamento para uso de vehículos del Banco Popular y de Desarrollo Comunal’, publicado en el Diario Oficial La Gaceta Nº 100 del 25 de mayo del 2001, así como el Reglamento para la administración y uso de vehículos propiedad de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, Sociedad Anónima, publicado en La Gaceta Nº 147 del 1º de agosto del 2002; el Reglamento para el uso de vehículos de Popular Valores Puesto de Bolsa, publicado en La Gaceta, y cualquier otra disposición anterior relativa a la materia que se le oponga.
-Rige a partir de su publicación en La Gaceta.
-San José, 26 de julio del 2010
