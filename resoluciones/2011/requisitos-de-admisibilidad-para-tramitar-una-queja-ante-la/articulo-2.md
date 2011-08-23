@@ -1,0 +1,1 @@
+II. Disponer que en el caso de que la queja sea interpuesta por una persona adulta mayor o bien con alguna discapacidad, la ARESEP brindará atención preferencial, y otorgará las facilidades necesarias que demanda ese sector de la población, para la realización del trámite.
