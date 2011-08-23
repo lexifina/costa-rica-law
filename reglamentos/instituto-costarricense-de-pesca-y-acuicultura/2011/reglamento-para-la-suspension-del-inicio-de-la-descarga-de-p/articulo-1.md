@@ -1,0 +1,14 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+A.J.D.I.P./266-2011.—Puntarenas, a los un día del mes de julio de 2011.
+Considerando:
+1º—Que en razón de los hechos suscitados con el barco de bandera extranjera Wang Yia Men, en el cual pese a no constituir ni tipificar delito alguno, presenta y conlleva para la Administración un alto riesgo en cuanto a la violación de las ordenanzas establecidas por Costa Rica en cuanto a cumplimiento en todo tiempo del Código de Conducta para la Pesca Responsable establecido por la FAO y ratificado por nuestro país.
+2º—Que en esa dirección y a efecto de normar, dentro del espectro legal competente que nos asiste como país soberano; en franco asocio y respeto del derecho internacional del mar; el Sr. Presidente Ejecutivo a.i., presenta a consideración de ésta Junta Directiva, propuesta del “Reglamento para la suspensión del inicio de la descarga de productos pesqueros provenientes de embarcaciones de bandera extranjera en la Terminal Pesquera del Incopesca, Barrio El Carmen, Puntarenas.”
+3º—Que analizada la propuesta presentada por el Sr. Director Álvaro Moreno Gómez, Presidente Ejecutivo a. í; la Junta Directiva, por tanto:
+ACUERDA:
+1. Aprobar el siguiente “Reglamento para la suspensión del inicio de la descarga de productos pesqueros provenientes de embarcaciones de bandera extranjera en la Terminal Pesquera del Incopesca, Barrio El Carmen, Puntarenas.”
+Artículo 1º—En aquellos casos en que el propietario o representante legal de una embarcación de bandera extranjera, después de haber sido recibido por las autoridades nacionales, y una vez autorizado por ellas, su intención de descargar los productos pesqueros y que la embarcación se encuentre atracada en la Terminal Pesquera del Incopesca en Puntarenas y que por alguna razón decida suspender el inicio de dicha acción, estará obligado a presentar los siguientes requisitos:
+1. Solicitud dirigida al Incopesca indicando las razones por las cuales decidió suspender la descarga de los productos pesqueros.
+2. Oficio emitido por la Dirección General de Aduanas de conformidad con la Ley General de Aduanas y su Reglamento, mediante el cual se acepta el desistimiento de la declaración aduanera, de conformidad con la Ley N° 7557; Ley General de Aduanas.
+3. Oficio emitido por el Servicio Nacional de Guardacostas, mediante el que se indique que como autoridad policial de nuestro país, han procedido a realizar una inspección de la embarcación conjuntamente con funcionarios del Incopesca sobre la procedencia de su solicitud y como resultado de esa acción, no han encontrado algún tipo de situación contraria a nuestro ordenamiento jurídico.
+4. Presentar Zarpe Internacional emitido por la Capitanía de Puerto del Ministerio de Obras Públicas y Transportes, mediante el cual se autoriza la partida de la embarcación.

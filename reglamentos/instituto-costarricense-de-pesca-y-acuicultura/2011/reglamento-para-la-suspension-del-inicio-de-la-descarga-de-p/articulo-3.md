@@ -1,0 +1,1 @@
+Artículo 3º—Antes de la salida de la embarcación el Incopesca en coordinación con las autoridades de la Dirección General de Aduanas y el Servicio Nacional de Guardacostas, procederán a asegurar precintos o marchamos, en cada una de las neveras en las que se almacenen productos pesqueros, para lo cual deberán levantar un Acta en donde se consignen todos los hechos.

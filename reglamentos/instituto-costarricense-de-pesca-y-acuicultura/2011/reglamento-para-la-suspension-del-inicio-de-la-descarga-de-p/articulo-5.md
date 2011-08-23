@@ -1,0 +1,1 @@
+Artículo 5º—Por la infracción dolosa a la presente disposición eventualmente será acusado el capitán de la nave como su armador por desobediencia a la autoridad y violación de sellos, sin perjuicio de accionar otras normas punitivas según lo disponga la legislación vigente, de conformidad con los artículos 307, 312 Código Penal.
