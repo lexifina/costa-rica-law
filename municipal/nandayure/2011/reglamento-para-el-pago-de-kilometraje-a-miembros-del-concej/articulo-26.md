@@ -1,0 +1,1 @@
+Artículo 26.—Toda modificación al presente Reglamento, es potestad exclusiva del Concejo Municipal de la Municipalidad de Nandayure, y para su aplicación debe obtenerse la autorización de la Contraloría General de la República y publicarse en el Diario Oficial La Gaceta.

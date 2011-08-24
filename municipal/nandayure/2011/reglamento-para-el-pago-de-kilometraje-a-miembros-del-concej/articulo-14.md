@@ -1,0 +1,1 @@
+Artículo 14.—En el caso de los miembros del Concejo Municipal, el control corresponderá llevarlo al Alcalde, el mismo comprenderá la revisión y aprobación de los reportes de kilometraje, con base en el plan de trabajo previamente establecido, y la programación de la ruta, según la tabla de distancias elaborada por el Departamento Financiero.

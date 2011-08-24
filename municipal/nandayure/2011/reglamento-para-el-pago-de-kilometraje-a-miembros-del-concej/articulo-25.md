@@ -1,0 +1,1 @@
+Artículo 25.—Posterior a la gira realizada bajo la modalidad de pago de kilometraje, el funcionario estará en el deber de entregar un informe escrito sobre lo diligenciado, a fin de motivar abundantemente la realización de la misma.

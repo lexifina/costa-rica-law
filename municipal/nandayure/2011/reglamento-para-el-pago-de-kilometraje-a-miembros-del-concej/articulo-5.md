@@ -1,0 +1,3 @@
+CAPÍTULO II
+Ingreso al sistema y contrato de arrendamiento
+Artículo 5º—El beneficiario que esté dispuesto a ofrecer el servicio de kilometraje, deberá retirar en la Oficina de la Alcaldía, la fórmula que para tal efecto tiene destinada la Municipalidad denominada “Inscripción para autorización de kilometraje”.

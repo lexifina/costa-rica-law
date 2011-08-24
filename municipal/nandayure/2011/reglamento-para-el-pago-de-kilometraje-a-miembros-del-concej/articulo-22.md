@@ -1,0 +1,1 @@
+Artículo 22.—La Municipalidad facilitará a los beneficiarios que presten el servicio de kilometraje, parqueo gratuito en sus instalaciones, de acuerdo con las posibilidades de la Municipalidad. La Municipalidad no asume responsabilidad por robo, hurto, o cualquier daño causado a los vehículos en sus instalaciones.

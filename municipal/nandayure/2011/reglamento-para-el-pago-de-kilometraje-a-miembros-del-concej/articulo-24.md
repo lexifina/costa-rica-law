@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 24.—Corresponde al Alcalde o al Concejo Municipal -mediante acuerdo municipal- autorizar las giras a sus subalternos o miembros del Concejo Municipal, bajo el sistema de kilometraje, y ejercer el control y vigilancia de la aplicación del presente Reglamento, la Municipalidad podrá prescindir del servicio de kilometraje cuando conforme con los estudios técnicos correspondientes ello no sea conveniente o necesario. El funcionario que autorice las giras deberá asimismo responsabilizarse del control del contenido presupuestario y no deberá autorizar que si no hay suficientes recursos en la partida correspondiente para asumir el pago dicho.
