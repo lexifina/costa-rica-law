@@ -1,1 +1,0 @@
-Artículo 6º—Deróguense los Decretos Ejecutivos número 33201, del 28 de junio de 2006, publicado en el Diario Oficial La Gaceta Nº 133, del 11 de julio de 2006, y el número 33956, del 12 de agosto de 2007, publicado en el Diario Oficial La Gaceta Nº 176, del 13 de setiembre de dos mil siete.
