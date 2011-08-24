@@ -1,0 +1,1 @@
+7- Los solicitantes deberán llenar un formulario elaborado por la administración y firmarlo, donde se consignen los anteriores requisitos y condiciones las que se comprometerán a respetar en caso de resultar adjudicados.

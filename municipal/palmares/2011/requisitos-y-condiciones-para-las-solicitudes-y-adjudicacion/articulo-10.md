@@ -1,0 +1,1 @@
+10- Una vez adjudicado el derecho y cancelado la totalidad de su valor, el Asesor Jurídico de la Municipalidad, procederá a elaborar el contrato, en el que se establecerán todos las condiciones. El cual será firmado por el señor Alcalde y el adjudicatario, autenticado por el Asesor Jurídico de la Municipalidad.

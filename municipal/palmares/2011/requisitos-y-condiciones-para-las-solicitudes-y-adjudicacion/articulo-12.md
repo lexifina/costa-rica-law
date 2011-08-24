@@ -1,0 +1,1 @@
+12- El diseño estructural y distribución de cada bóveda será igual para todos. El mismo será suministrado por el departamento municipal correspondiente. Las bóvedas deben respetar el color que indica el Reglamento de Cementerios Municipales.

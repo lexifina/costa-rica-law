@@ -1,0 +1,1 @@
+6- En el caso de que dos familias deseen compartir una bóveda, el solicitante único debe consignar en su solicitud inicial, el nombre de la otra persona con la que compartirá la bóveda. Este último debe cumplir con todos los requisitos consignados anteriormente. Ambos deberán indicar a sus beneficiarios.

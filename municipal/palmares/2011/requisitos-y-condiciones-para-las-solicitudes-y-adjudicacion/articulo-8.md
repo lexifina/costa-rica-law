@@ -1,0 +1,1 @@
+8- Se establece el período del martes 16 de agosto del 2011 al miércoles 31 de agosto del 2011 inclusive, como el plazo para llenar el formulario para la solicitud de un derecho en la ampliación del cementerio y entregarlo en la oficina municipal que designe el señor Alcalde. Así mismo, el horario será de las siete horas y treinta minutos, hasta las doce horas.
