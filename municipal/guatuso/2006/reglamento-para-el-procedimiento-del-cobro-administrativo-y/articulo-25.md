@@ -1,1 +1,0 @@
-Artículo 25.—La Oficina de Cobros se encargará de realizar todos los trámites internos requeridos para la formalización de los arreglos de pago; los mismos se formalizarán mediante el formulario PHM 013 o Fórmula de Solicitud de Arreglo de Pago.

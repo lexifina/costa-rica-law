@@ -1,1 +1,0 @@
-Artículo 30.—Toda la documentación relativa a arreglos de pago, estará en custodia de la Oficina de Cobros, la cual en su oportunidad y de ser necesario la remitirá a los abogados, que contrate la Municipalidad para realizar las acciones de cobro judicial correspondientes.

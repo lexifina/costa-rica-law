@@ -1,1 +1,0 @@
-Artículo 19.—Los abogados que por alguna razón personal quieren dejar de servir a la institución deberán comunicar esa decisión con treinta días de antelación a la Alcaldía Municipal y enviar la totalidad de los expedientes judiciales que ellos manejan, a la Oficina de Cobros.

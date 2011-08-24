@@ -1,5 +1,0 @@
-Artículo 7º—A la Oficina de Cobros, le corresponde ejercer el control de la labor realizada por los abogados contratados por la Alcaldía Municipal; a través del siguiente procedimiento:
-a. Mediante la revisión de los informes remitidos por los abogados, de conformidad con el Plan para la auto evaluación del control interno, vigente.
-b. Mediante el requerimiento escrito que el (la) Encargado(a) de Cobros, solicite sobre el avance de cada proceso o de alguna gestión en particular.
-c. El (la) Encargado (a) de Cobros, deberá informar al Coordinador(a) de Hacienda, cualquier anomalía o irregularidad observada en el desempeño de la labor profesional de los abogados contratados al efecto, para que por medio de la Alcaldía Municipal se realice una investigación y si fuera del caso suspender al abogado hasta que éste cumpla con las condiciones expresas establecidas en el presente Reglamento.
-d. En caso de reincidencia o incumplimiento de las indicaciones expresas, la Alcaldía Municipal podrá prescindir de los servicios de los abogados designados.
