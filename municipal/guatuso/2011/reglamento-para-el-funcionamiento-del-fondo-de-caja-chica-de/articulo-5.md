@@ -1,0 +1,2 @@
+Artículo 5º—El monto autorizado para poder realizar una compra por cada vale será de ¢50.000.00 cincuenta mil colones.
+La actualización del fondo de caja chica y del monto del vale se efectuará en forma automática, cada año a partir de la entrada en vigencia de este reglamento hasta el 31 de diciembre del 2016, el incremento será de 150.000.00 (ciento cincuenta mil colones) en el fondo de caja y de ¢15.000.00 (quince mil colones) para el vale de caja chica.

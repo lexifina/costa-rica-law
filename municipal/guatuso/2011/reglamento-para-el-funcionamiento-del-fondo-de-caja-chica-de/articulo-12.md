@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+Del Vale
+Artículo 12.—El vale de Caja Chica debe de emitirse en original y copia y en el formulario debidamente prenumerado en forma consecutiva, que será suministrado a las jefaturas de las dependencias municipales, por el Departamento de la Tesorería Municipal.

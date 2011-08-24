@@ -1,0 +1,1 @@
+Artículo 4º—Se establece un fondo fijo para Caja Chica, para el servicio de la Municipalidad de Guatuso, cuyo monto será de ¢500.000.00 (quinientos mil colones) y deberá contar con la aprobación del Concejo Municipal.
