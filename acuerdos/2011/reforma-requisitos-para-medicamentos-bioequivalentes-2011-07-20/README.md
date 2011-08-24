@@ -14,3 +14,4 @@ Reforma Requisitos para medicamentos bioequivalentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-24 | la propia norma |
+| 2 | 2011-08-24 | Acuerdo 0 (2011-08-03) |
