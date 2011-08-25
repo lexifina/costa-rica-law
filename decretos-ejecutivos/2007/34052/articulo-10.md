@@ -1,1 +1,0 @@
-Artículo 10.—Definición y reglamentación de las actividades técnicas de las especialidades en enfermería. El Colegio reglamentará las actividades técnicas de la obstetricia y de las demás especialidades de la enfermería.

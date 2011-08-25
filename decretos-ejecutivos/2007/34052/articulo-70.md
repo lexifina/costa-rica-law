@@ -1,1 +1,0 @@
-Artículo 70.—Solicitud del perito al Colegio. Cualquier persona física o jurídica puede acudir al Colegio, con el fin de que se le nombre un perito, para que este rinda informes o dictámenes que concierna a enfermería, sobre el caso particular que se someta a su conocimiento, en los términos establecidos por este reglamento.
