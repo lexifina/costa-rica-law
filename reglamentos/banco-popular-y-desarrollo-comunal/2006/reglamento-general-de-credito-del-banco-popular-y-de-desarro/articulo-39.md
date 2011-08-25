@@ -8,7 +8,7 @@ I- GARANTÍA FIDUCIARIA a) Aval o fianza solidaria emitida por una persona físi
 b) La Gerencia General , mediante programas de mercadeo relacional u otros mecanismos similares, podrá establecer condiciones particulares de garantes para ciertos segmentos de mercado, manteniendo el principio de igualdad. |
 c) Aval o fianza solidaria emitidos por una institución del sector público costarricense o emitidos por una persona jurídica. | 100% del monto avalado.
 d) Aval sobre fondos del Banco Popular. | 100% del monto avalado.
-II- GARANTÍA PRENDARIA A- BIENES MUEBLES Prenda o pignoración sobre bienes muebles, excepto instrumentos financieros, e hipoteca sobre maquinaria fijada permanentemente al terreno en las siguientes condiciones: a) Vehículos para uso personal (nuevos). | Hasta el 70%.
+II- GARANTÍA PRENDARIA A- BIENES MUEBLES Prenda o pignoración sobre bienes muebles, excepto instrumentos financieros, e hipoteca sobre maquinaria fijada permanentemente al terreno en las siguientes condiciones: a) Vehículos para uso personal (nuevos) | Hasta el 70%.
 b) Usados con un máximo de antigüedad de 5 años. | 60% del valor del avalúo.
 c) Vehículos para uso como taxi: Nuevos (según disposiciones legales vigentes para este tipo de vehículos). | Hasta 60% del valor del avalúo.
 Usados, con antigüedad máxima de tres años (según disposiciones legales vigentes para este tipo de vehículos). | 40% del valor del avalúo.
@@ -19,7 +19,7 @@ g) Equipo, maquinaria agrícola, industrial o pesada: Nueva. Usada. | Hasta el 6
 h) Equipo electrónico especializado (nuevo). | Hasta el 50% del valor del avalúo.
 i) Ganado bovino, caballar, porcino, caprino. | 60% del valor del avalúo.
 j) No se aceptarán en garantía equipos de cómputo y vehículos de alquiler (rent a car). | - - - - - - -
-k) La Gerencia General Corporativa determinará en qué condiciones podrán ser recibidos en garantía, cosechas, cultivos y contratos de exportación de cosechas. | - - - - - - -
+k) La Gerencia General Corporativa determinará en qué condiciones podrán ser recibidos en garantía, cosechas, cultivos y contratos de exportación de cosechas. | - - - - - -
 B- INSTRUMENTOS FINANCIEROS Y COMERCIALES a) Bono de prenda emitido por un almacén general de depósito. | El menor valor que resulte entre i) el valor facial de los bonos en poder de la entidad y ii) el 65% del valor del avalúo del bien.
 b) Depósitos o instrumentos financieros que respaldan operaciones back to back. | 100% de su valor de inversión inicial.
 c) Instrumento de deuda debidamente inscrito en una bolsa de valores autorizada o emitido por el Banco Central de Costa Rica o el Gobierno de Costa Rica. | 85% del precio de mercado cuando la categoría de riesgo es 3 o mejor, 80% del precio de mercado cuando la categoría de riesgo es 4 y el 75% del precio de mercado cuando la categoría de riesgo es 5, todo según el Anexo de esta tabla.
@@ -57,7 +57,7 @@ Categoría | Standard & Poor’s | Moody’s | Fitch
 | BBB- | Baa3 | BBB-
 4 | BB+ | Ba1 | BB+
 | BB | Ba2 | BB
-| BB- | Ba3 | BB-
+| BB- | Ba3 | BB
 5 | B+ | B1 | B+
 | B | B2 | B
 | B- | B3 | B-
@@ -67,7 +67,7 @@ Categoría | Standard & Poor’s | Moody’s | Fitch
 | D | | DDD, DD y D
 Calificaciones de corto plazo:
 Categoría | Standard & Poor’s | Moody’s | Fitch
-0”> 0 | A1+ | | F1+
+0”> | A1+ | | F1+
 1 | A1 | P1 | F1
 2 | A2 | P2 | F2
 3 | A3 | P3 | F3
@@ -89,46 +89,54 @@ i) Educación. | 72 | Según capacidad de pago y garantía, considerando como mo
 j) Vivienda. | 360 | Hasta US $1.000.000
 k) Vivienda colectiva. | 36 | Monto resultante de lo dispuesto en el Reglamento de Grupos de Interés Económico en el caso de personas sujetas al Derecho Privado y lo dispuesto para instituciones públicas en los artículos 61.5 de la Ley Orgánica del Sistema Bancario Nacional y 9º de la Ley para el Equilibrio Financiero, para el Gobierno Central.
 (Así reformada la tabla anterior mediante sesión N° 4529 del 5 de noviembre de 2007).
-TABLA Nº 3
+(*)TABLA Nº 3
 BANCA DE PERSONAS
 NIVELES MÁXIMOS DE APROBACIÓN
 (Centros de los Servicios Financieros, Sucursales,
 Oficinas Periféricas, Ventanillas* y Banca Fácil)
-Monto | Nombre del comité | Composición del comité
-Hasta $10.000 | Unipersonal | Asesores de Servicios Financieros o superior Los Asesores de Servicios Financieros únicamente para créditos con garantía fiduciaria.
-Hasta $16.000 | Bipersonal Uno | Técnico en Servicios y Operaciones Bancarias I y Asesor de Servicios Financieros o superiores. De no existir consenso entre los dos miembros, la solicitud de crédito deberá ser elevada al nivel resolutivo superior inmediato.
-Hasta $ 20.000 | Bipersonal Dos | Ejecutivo Bancario Administrativo I y Técnico en Servicios y Operaciones Bancarias I o superiores. De no existir consenso entre los dos miembros, la solicitud de crédito deberá ser elevada al nivel resolutivo superior inmediato.
-Hasta $ 30.000 | Colegiado Operativo | Comité de crédito integrado por tres funcionarios propietarios que ocupen el puesto de un Técnico en Servicios y Operaciones Bancarias II, dos Ejecutivos Bancarios Administrativos I o superior, designados por el Gerente del Centro de Servicios Financieros o Sucursal. Para suplir sus ausencias temporales, el Gerente del Centro de Servicios Financieros o Sucursal nombrará tres suplentes, quienes deberán llenar los mismos requisitos que los propietarios.
-Hasta $ 30.000 | Unipersonal Gerencial | Gerente de Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III en ausencia del primero.
-Hasta $ 100.000 | Colegiado Ejecutivo | Gerente del Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III (en ausencia del primero), y dos Ejecutivos Bancarios Administrativo I o superiores, designados por el Director Regional.
-Hasta $ 150.000 | Colegiado Junta de Crédito Local | Juntas de Crédito Local.
-Hasta $ 300.000 | Colegiado Regional | Director Regional, el Gerente del Centro de Servicios Financieros o la Sucursal de donde se genera el crédito y otro Gerente de Centro de Servicios Financieros o Sucursales, designados por el Subgerente General de Negocios.
-*Ventanillas a cargo de funcionarios del Banco Popular.
-El monto es acumulativo por cliente y línea de crédito
-El Comité estará conformado únicamente por funcionarios de dicha Oficina o por excepción de sustituciones de carácter oficial de alguno de estos funcionarios.
-Nota: créditos garantizados con títulos del Banco Popular: Los créditos back to back no suman en el acumulado por cliente, no obstante si se constituye un crédito de este tipo por más de US$ 100.000, el nivel resolutivo será el Nivel Colegiado Ejecutivo, el cual resolverá los créditos solicitados en las Oficinas Periféricas.
-Este deberá informar a más tardar en los siguientes 5 días hábiles al Comité Gerencial de Negocios o al Comité Gerencial Pleno, según corresponda.
-BANCA DE DESARROLLO y BANCA CORPORATIVA
+Monto | Nivel resolutivo | Integración del nivel resolutivo y comités
+Hasta $20.000 | Unipersonal | Un Asesor de Servicios Financieros o superior.
+| | Los Asesores de Servicios Financieros únicamente podrán autorizar créditos personales instrumentados con pagaré o créditos back to back.
+Hasta $25.000 | Bipersonal | Un Asesor de Servicios Financieros y un Técnico en Servicios y Operaciones Bancarias 1 o un Ejecutivo de Negocios 1 o superiores.
+| | De no existir consenso entre los dos miembros, la solicitud de crédito deberá ser elevada al nivel resolutivo superior inmediato.
+Hasta $50.000 | Colegiado Operativo | Un Técnico en Servicios y Operaciones Bancarias 1 o Ejecutivo de Negocios 1, un Ejecutivo Bancario Administrativo 1 o Supervisor de turno y un Coordinador de Crédito o Jefe de agencia Bancaria o superior, designados por el Gerente del Centro de Servicios Financieros o Sucursal.
+| | Para suplir sus ausencias temporales, el Gerente del Centro de Servicios Financieros o Sucursal nombrará tres suplentes, quienes deberán llenar los mismos requisitos que los propietarios.
+Hasta $50.000 | Unipersonal Gerencial | El Gerente de Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III en ausencia del primero.
+Hasta $125.000 | Colegiado Ejecutivo | El Gerente del Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III (en ausencia del primero), y otros dos funcionarios que pueden ser: Un Técnico en Servicios y Operaciones Bancarias 1 o Ejecutivo de Negocios 1 o Ejecutivo Bancario Administrativo 1 o Coordinador de Crédito o Jefe de Agencia Bancaria, o superiores, designados por el Director Regional.
+Hasta $175.000 | Colegiado Juntas de Crédito Local | La Junta de Crédito Local.
+Hasta $500.000 | Colegiado Regional | El Director Regional, el Director de la Banca de Personas y el Gerente del Centro de Servicios Financieros de la Sucursal de donde se genera el crédito, o en ausencia de éste el Ejecutivo Bancario Administrativo 3.
+| | | |
+* Ventanillas a cargo de funcionarios del Banco Popular.
+El monto es acumulativo por saldo, por cliente y línea de crédito.
+Los Comités estarán conformados únicamente por funcionarios de la respectiva Oficina. En caso de no ser posible, el superior jerárquico respectivo nombrará al sustituto.
+Nota: CRÉDITOS GARANTIZADOS CON TÍTULOS DEL BANCO POPULAR: Los créditos back to back no suman en el acumulado por cliente, no obstante para la aprobación de un crédito de este tipo por más de US$250.000, el nivel resolutivo será el Nivel Colegiado Ejecutivo, el cual resolverá los créditos solicitados en las oficinas periféricas. Este deberá informar a más tardar en los siguientes 5 días hábiles al Comité Gerencial de Negocios o al Comité Gerencial Pleno, según corresponda.
+BANCA DE DESARROLLO SOCIAL Y EMPRESARIAL
 NIVELES MÁXIMOS DE APROBACIÓN
 (Centros de los Servicios Financieros, Sucursales,
 Oficinas Periféricas, Ventanillas*)
-Monto | Nombre del comité | Composición del comité
-Hasta $ 10.000 | Unipersonal | Técnico en Servicios y Operaciones Bancarias I o superior.
-Hasta $ 20.000 | Bipersonal | Ejecutivo Bancario Administrativo I y Técnico en Servicios y Operaciones Bancarias II o superiores. De no existir consenso entre los dos miembros, la solicitud de crédito deberá ser elevada al nivel resolutivo superior inmediato.
-Hasta $ 30.000 | Colegiado Operativo | Comité de crédito integrado por tres funcionarios propietarios que ocupen el puesto de un Técnico en Servicios y Operaciones Bancarias II, dos Ejecutivos Bancarios Administrativos I o superior, designados por el Gerente del Centro de Servicios Financieros o Sucursal. Para suplir sus ausencias temporales, el Gerente del Centro de Servicios Financieros o Sucursal nombrará tres suplentes, quienes deberán llenar los mismos requisitos que los propietarios.
-Hasta $ 30.000 | Unipersonal Gerencial | Gerente de Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III en ausencia del primero.
-Hasta $ 75.000 | Colegiado Ejecutivo | Gerente del Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III (en ausencia del primero), y dos Ejecutivos Bancarios Administrativo I o superiores, designados por el Director Regional.
-Hasta $ 100.000 | Colegiado Juntas de Crédito Local. | Juntas de Crédito Local
-Hasta $ 300.000 | Colegiado Regional | Director Regional, el Gerente del Centro de Servicios Financieros o la Sucursal de donde se genera el crédito y otro Gerente de Centro de Servicios Financieros o Sucursales designados por el Subgerente General de Negocios.
-*Ventanillas a cargo de funcionarios del Banco Popular.
-El monto es acumulativo por cliente y línea de crédito.
-El Comité estará conformado únicamente por funcionarios de dicha Oficina o por excepción de sustituciones de carácter oficial de alguno de estos funcionarios.
-Nota: créditos garantizados con títulos del Banco Popular: Los créditos back to back no suman en el acumulado por cliente, no obstante si se constituye un crédito de este tipo por más de US$100.000, el nivel resolutivo será el Nivel Colegiado Ejecutivo, el cual resolverá los créditos solicitados en las Oficinas Periféricas.
-Este deberá informar a más tardar en los siguientes 5 días hábiles al Comité Gerencial de Negocios o al Comité Gerencial Pleno, según corresponda.
+Monto | Nivel resolutivo | Integración del nivel resolutivo y comités
+Hasta $15.000 | Unipersonal | Un Técnico en Servicios y Operaciones Bancarias 1 o Ejecutivo de Negocios 1 o superior.
+Hasta $50.000 | Bipersonal | Dos Ejecutivos Bancarios Administrativos 1 o superiores.
+| | De no existir consenso entre los dos miembros, la solicitud de crédito deberá ser elevada al nivel resolutivo superior inmediato.
+Hasta $50.000 | Unipersonal Gerencial | El Gerente de Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III en ausencia del primero.
+Hasta $75.000 | Colegiado Operativo | Tres Ejecutivos Bancarios Administrativos 1 o superiores, designados por el Director de la Banca de Desarrollo Social y Empresarial.
+| | Para suplir sus ausencias temporales, el Director de la Banca de Desarrollo Social y Empresarial nombrará tres suplentes, quienes deberán llenar los mismos requisitos que los propietarios.
+Hasta $125.000 | Colegiado Ejecutivo | El Gerente del Centro de Servicios Financieros o Sucursal o Ejecutivo Bancario Administrativo III (en ausencia del primero), y dos Ejecutivos Bancarios Administrativos 1 o superiores, designados por el Director Regional o el Director de la Banca de Desarrollo Social y Empresarial.
+Hasta $175.000 | Colegiado Juntas de Crédito Local | La Junta de Crédito Local.
+Hasta $500.000 | Colegiado Regional | El Director Regional, el Director de la Banca de Desarrollo Social y Empresarial y el Gerente del Centro de Servicios Financieros de la Sucursal de donde se genera el crédito, o en ausencia de éste el Ejecutivo Bancario Administrativo 3.
+| | | |
+Ventanillas a cargo de funcionarios del Banco Popular.
+El monto es acumulativo por saldo, por cliente y línea de crédito.
+Los Comités estarán conformados únicamente por funcionarios de la respectiva Oficina. En caso de no ser posible, el superior jerárquico respectivo nombrará al sustituto.
+Nota: CRÉDITOS GARANTIZADOS CON TÍTULOS DEL BANCO POPULAR: Los créditos back to back no suman en el acumulado por cliente, no obstante para la aprobación de un crédito de este tipo por más de US$250.000, el nivel resolutivo será el Nivel Colegiado Ejecutivo, el cual resolverá los créditos solicitados en las oficinas periféricas. Este deberá informar a más tardar en los siguientes 5 días hábiles al Comité Gerencial de Negocios o al Comité Gerencial Pleno, según corresponda.
 COMITÉ NIVEL GERENCIAL
 (Banca de Personas, Banca de Desarrollo y Banca Corporativa)
-Hasta $2.000.000 | Gerencial de Negocios | El Subgerente General de Negocios, el Director de la Banca Corporativa, y el Director Regional correspondiente a la zona donde se produce el crédito. En caso de ausencia de este último, podrá ser sustituido por otro Director Regional, designado por el Subgerente General de Negocios. Además debe asistir un abogado en calidad de asesor, el cual será nombrado por el Coordinador de la Consultoría Jurídica.
-Más de $2.000.000 | Gerencial Pleno | El Gerente General Corporativo, el Subgerente General de Negocios, el Director de la Banca Corporativa y el Director Regional correspondiente a la zona donde se produce el crédito. En caso de ausencia de éste último, podrá ser sustituido por otro Director Regional, designado por el Subgerente General de Negocios. Además debe asistir un abogado en calidad de asesor, el cual será nombrado por el Coordinador de la Consultoría Jurídica.
-El monto es acumulativo por cliente y línea de crédito.
-El Comité estará conformado únicamente por funcionarios de dicha Oficina o por excepción de sustituciones de carácter oficial de alguno de estos funcionarios.
+Monto | Nivel resolutivo | Integración del comité
+Hasta $2.000.000 | Gerencial de Negocios | El Subgerente General de Negocios, el Director de Banca Desarrollo Social y Empresarial y el Director Regional correspondiente a la zona donde se produce el crédito.
+| | En caso de ausencia de este último, podrá ser sustituido por otro Director Regional, designado por el Subgerente General de Negocios. Además debe asistir un abogado en calidad de asesor, el cual será nombrado por el Coordinador de la Consultoría Jurídica.
+Más de $2.000.000 | Gerencial Pleno | El Gerente General Corporativo, el Subgerente General de Negocios, el Director de Banca Desarrollo Social y Empresarial y el Director Regional correspondiente a la zona donde se produce el crédito.
+| | En caso de ausencia de este último, podrá ser sustituido por otro Director Regional, designado por el Gerente General Corporativo. Además debe asistir un abogado en calidad de asesor, el cual será nombrado por el Coordinador de la Consultoría Jurídica.
+El monto es acumulativo por saldo, por cliente y línea de crédito.
+Los Comités estarán conformados únicamente por funcionarios de la respectiva Oficina. En caso de no ser posible, el superior jerárquico respectivo nombrará al sustituto”.
+(*) (Así reformada la tabla 3) anterior mediante sesión N° 4891 del 25 de agosto del 2011)
 San José, 15 de junio del 2006.
