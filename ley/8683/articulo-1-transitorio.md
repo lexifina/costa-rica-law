@@ -1,2 +1,3 @@
-TRANSITORIO ÚNICO.-
+TRANSITORIO I
+(Así reformado el párrafo anterior por el del artículo 3° aparte c) de la ley N° 8981 del 25 de agosto del 2011)
 Los sujetos pasivos estarán obligados a presentar, en un período improrrogable de tres (3) meses contados a partir de la entrada en vigencia de esta Ley, en los medios, la forma y las condiciones que defina la Dirección General de Tributación, una declaración jurada, la cual consigne el valor de los bienes objeto de este impuesto y, en el mismo acto, deberán pagar el monto proporcional del impuesto correspondiente a los meses del período fiscal comprendidos entre la fecha de la entrada en vigencia de la presente Ley y el 31 de diciembre de ese mismo año.
