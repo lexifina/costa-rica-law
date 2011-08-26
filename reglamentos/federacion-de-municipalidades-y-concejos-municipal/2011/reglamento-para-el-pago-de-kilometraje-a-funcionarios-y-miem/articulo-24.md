@@ -1,0 +1,1 @@
+Artículo 24.—El funcionario que autorice las giras deberá asimismo responsabilizarse del control del contenido presupuestario y no deberá autorizar trámite alguno si no hay suficientes recursos en la partida correspondiente para asumir el pago dicho.

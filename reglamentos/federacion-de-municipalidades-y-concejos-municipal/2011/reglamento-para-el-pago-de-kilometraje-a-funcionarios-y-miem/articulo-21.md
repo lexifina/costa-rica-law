@@ -1,0 +1,1 @@
+Artículo 21.—Las salidas o giras con pago de kilometraje, deben proyectarse tomando como punto de partida el lugar donde se encuentra establecido el centro de trabajo de la Dirección Ejecutiva, y viceversa. En el caso de los miembros de su Junta Directiva será su punto de partida la Municipalidad en donde prestan sus servicios y viceversa.

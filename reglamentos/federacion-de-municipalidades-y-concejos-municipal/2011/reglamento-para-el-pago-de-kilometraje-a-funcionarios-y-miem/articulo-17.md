@@ -1,0 +1,1 @@
+Artículo 17.—Las responsabilidades que se deriven de la aprobación de pagos de kilometrajes, serán compartidas tanto por el funcionario interesado, como por el jefe respectivo, que avala el pago. En este último caso la responsabilidad operará solo si ha habido negligencia o imprudencia en la aprobación del kilometraje de que se trate.
