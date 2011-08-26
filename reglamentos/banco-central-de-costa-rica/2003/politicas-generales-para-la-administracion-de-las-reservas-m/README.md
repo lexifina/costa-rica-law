@@ -27,3 +27,4 @@ Políticas Generales para la Administración de las Reservas Monetarias Internac
 | 12 | 2011-02-16 | Reglamento 5489 (2011-02-16) |
 | 13 | 2011-06-22 | Reglamento 5503 (2011-06-22) |
 | 14 | 2011-08-03 | Reglamento 5508 (2011-08-03) |
+| 15 | 2011-08-26 | Reglamento 5519 (2011-08-26) |
