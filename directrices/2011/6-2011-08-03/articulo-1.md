@@ -1,0 +1,9 @@
+DIRECCIÓN DE PERSONAS JURÍDICAS
+D.R.P.J.-006-2011
+De: Dirección de Personas Jurídicas
+Para: Subdirección, Coordinación General, Coordinaciones, Asesoría Jurídica, Asesoría Técnica, Registradores.
+Fecha: 03 de agosto del 2011
+Asunto: Eliminación de publicación de edicto para las constituciones de entidades mercantiles que utilicen el número de cédula jurídica como denominación.
+De conformidad con las disposiciones contenidas en el Decreto Ejecutivo Nº 33171-J, publicado en el Diario Oficial La Gaceta del día 14 de junio del 2006, procede la constitución de entidades mercantiles cuya denominación se conforma con el número de cédula jurídica más el respectivo aditamento.
+En virtud de que el número de cédula de persona jurídica es único e irrepetible, no existe la posibilidad de que dicha denominación tenga similitud con otra entidad o marca comercial previamente inscritas, por lo que resulta innecesaria la publicación del edicto que establece el artículo 19 del Código de Comercio, pues dicha publicación se realiza con la intención de dar publicidad a la denominación de la nueva entidad, a efecto de que quienes consideren que dicha denominación es similar con otra o con. una marca comercial previamente inscrita, se apersonen ante el Registro a hacer valer sus derechos, todo de conformidad con lo dispuesto en los artículos 103 del Código de cita y 29 de la Ley de Marcas y Otros Signos Distintivos (Ley Nº 7978 del 01 de febrero del 2000).
+En razón de lo anterior, esta Dirección los instruye para que a partir de la fecha de publicación de esta Directriz en el Diario Oficial La Gaceta, no se considere como requisito para la inscripción de una entidad jurídica constituida conforme las disposiciones del Decreto Ejecutivo Nº 33171-J, la publicación del edicto que establece el artículo 19 antes citado.
