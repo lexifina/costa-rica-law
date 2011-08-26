@@ -1,0 +1,4 @@
+Artículo 2º—Una vez cumplido lo dispuesto en el numeral anterior y no habiéndose presentado reclamo alguno por parte de particulares, quedará permitido a la Dirección del ACMIC realizar cualquiera de las siguientes gestiones:
+a) Donar boyas al Instituto Costarricense de Pesca y Acuicultura; para tal efecto la institución solicitante deberá presentar un proyecto de uso de las artes de pesca que pretende le sean donadas.
+b) Donar las artes de pesca a instituciones públicas u organizaciones no gubernamentales dedicadas a la investigación marina, en tal caso la solicitud debe indicar con claridad los fines para los que serán utilizados.
+c) Donar las artes de pesca a organizaciones no gubernamentales dedicadas a la cooperación en materia ambiental. Pudiendo ser aplicada esta modalidad de disposición únicamente cuando las artes de pesca vayan a ser utilizadas para reciclaje o para educación ambiental.

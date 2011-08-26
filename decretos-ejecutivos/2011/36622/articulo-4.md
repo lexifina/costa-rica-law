@@ -1,0 +1,1 @@
+Artículo 4º—En caso de aparecer el dueño antes de transcurrido el año desde la última publicación en el Diario Oficial La Gaceta el ACMIC deberá proceder según lo dispuesto en el artículo 502 del Código Civil.

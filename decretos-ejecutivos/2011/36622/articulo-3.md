@@ -1,0 +1,1 @@
+Artículo 3º—En todos los casos, el representante legal de la institución u organización no gubernamental deberá rendir declaración jurada, ante el Asesor(a) Legal del Área de Conservación Marina Isla del Coco, sobre el uso que se le dará a las artes de pesca que se le entreguen.
