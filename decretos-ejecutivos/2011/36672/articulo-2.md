@@ -1,0 +1,1 @@
+Artículo 2°—Dicho encuentro está dirigido a instituciones públicas, municipalidades, universidades, organizaciones no gubernamentales, fundaciones, asociaciones, empresa privada, medios de comunicación masiva, que con su quehacer en educación ambiental contribuyen con el logro de un desarrollo ambientalmente sostenible del país.
