@@ -1,0 +1,20 @@
+LABORATORIO COSTARRICENSE DE METROLOGÍA
+Resolución Nº R-LACOMET-081-2011.—San Pedro de Montes de Oca, a las catorce horas treinta minutos del cinco de agosto del año dos mil once.
+Resultando:
+Único.—Que mediante el artículo 12 inciso b) de la Ley Nº 8279, se atribuye a la Comisión de Metrología, entre otras funciones la de “ (…) Establecer las tarifas y condiciones en que el Laboratorio debe contratar y vender los servicios de metrología. Las tarifas serán efectivas a partir de su publicación en La Gaceta (…)”.
+Bajo tales disposiciones, mediante el acta de la sesión Nº 61 de la Comisión de Metrología, celebrada el día veintisiete de julio del dos mil once, se acordó aprobar las tarifas de los servicios metrológicos consistentes en intercomparaciones, verificación inicial de esfigmomanómetros y verificación subsecuente de esfigmomanómetros
+Considerando:
+1º—Que el artículo 8º de la Ley Nº 8279 indica “Créase el Laboratorio Costarricense de Metrología (LACOMET) como órgano de desconcentración máxima, con personería jurídica instrumental para el desempeño de sus funciones, adscrito al MEIC. Se regirá por las normas nacionales e internacionales aplicables”.
+2º—Que el inciso b) del artículo 9 de la Ley de cita señala: “Funciones: Las funciones de Lacomet serán las siguientes: (…) inciso b) Difundir y fundamentar la metrología nacional y promover el establecimiento de una estructura metrológica nacional (...).”
+3º—Que el inciso b) del artículo 12 de la Ley de cita, establece entre las funciones de la Comisión de Metrología: “(…) inciso b) Establecer las tarifas y condiciones en que el Laboratorio debe contratar y vender los servicios de metrología. Las tarifas serán efectivas a partir de su publicación en La Gaceta (...)”
+4º—Que el artículo 15 de la Ley de cita, establece entre las funciones del Lacomet: “(…) artículo 15 Venta de servicios. Autorizar al Lacomet para que venda servicios a instituciones públicas o empresas privadas. El producto de la venta de servicios se destinará, en su totalidad, al mejoramiento de los laboratorios, la capacitación técnica de su personal y el desarrollo de la infraestructura metrológica (…).”
+5º—Que el artículo 12 inciso a) de la Ley de cita, establece entre las funciones de la Comisión de Metrología la siguiente “(…) Establecer las políticas generales de Lacomet y velar por su efectivo cumplimiento (…)”. Por tanto,
+LA DIRECTORA DEL LABORATORIO COSTARRICENSE
+DE METROLOGÍA, RESUELVE:
+1º—Publicar las tarifas de los servicios metrológicos de intercomparaciones, aprobadas en el artículo cuarto de la sesión Nº 61 de la Comisión de Metrología, realizada en fecha veintisiete de julio del dos mil once, consistentes en Comparación N° 1 Presión Prueba de Aptitud en Presión Neumática Relativa, Comparación N° 2 Presión Prueba de Aptitud en Presión Hidráulica Relativa, Comparación N° 3 Volumen Prueba de Aptitud Técnica en Calibración de Equipo Volumétrico, como se detalla a continuación.
+INTERCOMPARACIONES
+Departamento | Metrología Física | Precio USD
+Prueba de Aptitud en Presión Neumática Relativa Alcance detallado: de 0 a 1600 kPa Requisitos para participar: Capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 5 kPa | 150
+Prueba de Aptitud en Presión Hidráulica Relativa Alcance detallado: de 0 a 70 MPa Requisitos para participar: Capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 120 kPa | 150
+Alcance: 100 cm3 en equipos volumétrico para contener con una marca de aforo y 25 cm3 en equipos volumétrico para verter con una marca de aforo. Requisitos para participar: Tener la capacidad de aplicar el método gravimétrico de calibración de volumen a 20°C, con capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 0,04% del volumen. (Corregido mediante Fe de Erratas, publicada en La GAceta N° 173 del 8 de setiembre del 2011) |
+De aplicar el método gravimétrico de calibración a volumen 20°C, con capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 0,04% del volumen. | 150

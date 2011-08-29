@@ -1,0 +1,1 @@
+4º—Los demás precios publicados en La Gaceta Nº 122, del 24 de junio del 2010, y formalizados mediante resolución R-Lacomet-043-2010, de las diez horas treinta minutos del catorce de mayo del dos mil diez, y fe de erratas publicadas mediante La Gaceta N° 127 del primero de julio del 2010 y Gaceta N° 131 del siete de julio del 2010, quedan incólumes.
