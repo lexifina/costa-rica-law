@@ -14,3 +14,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-18 | la propia norma |
+| 2 | 2011-08-29 | Reglamento municipal 35 (2011-08-29) |
