@@ -1,0 +1,1 @@
+Artículo 10.—Registros de Información. Los formatos de registro de información sobre Producción y Ventas de Cemento, a los que se hace referencia en la presente Resolución y los respectivos instructivos de llenado estarán disponibles en la página Web del Ministerio de Hacienda.
