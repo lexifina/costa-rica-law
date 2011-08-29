@@ -14,3 +14,4 @@ Reglamento para la Aprobación de las Modificaciones Internas y Administrativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-24 | la propia norma |
+| 2 | 2011-08-29 | Reglamento municipal 71 (2011-08-29) |
