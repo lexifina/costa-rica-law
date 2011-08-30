@@ -1,0 +1,1 @@
+II. Este transitorio tendrá una vigencia de 6 meses, a partir de la fecha de aprobación del presente acuerdo de Junta de Gobierno y su respectiva publicación en el Diario Oficial La Gaceta. Este transitorio automáticamente una vez vencido el plazo, quedará sin vigencia su aplicación.

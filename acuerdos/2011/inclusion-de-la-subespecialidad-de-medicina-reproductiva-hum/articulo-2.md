@@ -1,0 +1,1 @@
+2. Reconocer como sinónimos de esta subespecialidad los términos: Biología de la Reproducción Humana, Endocrinología Reproductiva e Infertilidad y Endocrinología Reproductiva Ginecológica e Infertilidad.

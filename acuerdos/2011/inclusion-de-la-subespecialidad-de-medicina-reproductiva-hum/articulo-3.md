@@ -1,0 +1,4 @@
+3. Establecer los siguientes requisitos específicos para la inscripción en la misma.
+Medicina Reproductiva
+a. Estar debidamente inscrito y acreditado como Especialista en Ginecología y Obstetricia, ante el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación y acreditación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Medicina Reproductiva, en un Hospital de Tercer Nivel ó Centro de Fertilización, perteneciente o adscrito a una Universidad de reconocido prestigio. Este programa debe abarcar como mínimo aspectos clínicos en las áreas de Andrología (endocrinología e infertilidad masculina), Endocrinología, Genética, Biología Reproductiva. Además deberá contar con estudios complementarios en Cirugía Reproductiva, Ultrasonido y Consejería Psicológica.

@@ -1,0 +1,13 @@
+Transitorio:
+I. Los médicos Especialistas en Ginecología y Obstetricia, con experiencia en el área de la Subespecialidad en Medicina Reproductiva, posterior al presente acuerdo de Junta de Gobierno, podrán inscribirse al Colegio de Médicos y Cirujanos como Subespecialistas en Medicina Reproductiva, presentando los siguientes atestados:
+a. Estar debidamente inscrito y acreditado como Especialista en Ginecología y Obstetricia en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Cumplir con al menos uno de los siguientes requisitos específicos:
+i. Experiencia certificada de laborar en Costa Rica en el área de la Subespecialidad en Medicina Reproductiva, en un nivel avanzado de complejidad, con resultados demostrados. La certificación deberá ser extendida por el Director Médico del centro u hospital, público o privado, donde se laboró.
+ii. Entrenamiento certificado, teórico y práctico, en los niveles de baja, intermedia y alta complejidad, en el campo de la Subespecialidad en Medicina Reproductiva, en centros universitarios estatales o privados reconocidos y dedicados al campo de la reproducción humana, que cuenten con la tecnología de fertilización in vitro como nivel máximo de complejidad.
+iii. Experiencia certificada de 10 años de laborar en el área de la Subespecialidad de Medicina Reproductiva, en un centro médico de la seguridad social costarricense, que cuente con los niveles básicos e
+intermedios de complejidad para el manejo de la infertilidad. La certificación deberá ser extendida por el Director Médico del centro u hospital, público o privado, donde se laboró.
+iv. Experiencia certificada de 10 años de laborar en el área de la Subespecialidad de Medicina Reproductiva, en un centro médico privado de reconocido prestigio nacional o internacional, que cuente con los niveles básicos, intermedio y avanzado de complejidad para el manejo de la infertilidad. La certificación deberá ser extendida por el Director Médico del centro u hospital, público o privado, donde se laboró.
+v. Definiciones:
+Nivel básico de complejidad: Aplicación del protocolo para el diagnóstico de la pareja infértil y el abordaje terapéutico no intervencionista para las esferas femeninas y masculinas.
+Nivel intermedio de complejidad: Abordaje terapéutico intervencionista de la esfera femenina (inducción farmacológica de la ovulación), de la masculina (capacitación espermática in vitro) y la inseminación artificial intrauterina homóloga (semen de la pareja) o heteróloga (semen donado).
+Nivel avanzado de complejidad: Es el abordaje terapéutico intervencionista mediante Transferencia Intratubárica de Gametos (GIFT), y Fertilización In Vitro y Transferencia Embrionaria (FIVTE).

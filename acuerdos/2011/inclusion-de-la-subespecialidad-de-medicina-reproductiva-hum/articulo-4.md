@@ -1,0 +1,1 @@
+4. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Subespecialidad de Medicina Reproductiva, el cumplimiento de todos los requisitos establecidos, generales y específicos, en el Reglamento de Especialidades Médicas y demás legislación relacionada vigente.
