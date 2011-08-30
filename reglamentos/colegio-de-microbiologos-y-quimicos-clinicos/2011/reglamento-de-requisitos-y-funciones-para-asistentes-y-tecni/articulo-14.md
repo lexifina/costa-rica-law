@@ -1,0 +1,1 @@
+Artículo XIV.—Todas las subcategorías mencionadas en el artículo I deben estar registradas en el Colegio de Microbiólogos y Químicos Clínicos, de acuerdo con los procedimientos y la normativa vigente.

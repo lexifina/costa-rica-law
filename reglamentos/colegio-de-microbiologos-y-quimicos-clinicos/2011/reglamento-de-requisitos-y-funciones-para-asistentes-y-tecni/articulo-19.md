@@ -1,0 +1,3 @@
+Artículo XIX.—Transitorio: Dentro de un plazo de un año calendario contado a partir de la publicación en la Gaceta de este Reglamento, aquellas personas del sector público que se encuentren en propiedad y que aspiren a ser inscritas bajo alguna de las categorías del artículo I de este Reglamento, podrán presentar sus solicitudes ante el Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, aún cuando se carezca de uno de los requisitos señalados para ser sometidos a valoración por parte de la Junta Directiva.
+Aprobado en asamblea general del Colegio de Microbiólogos y Químicos Clínicos de Costa Rica Nº 09:2011-2012 del día 21 de mayo del 2011.
+San José, 8 de agosto del 2011.—

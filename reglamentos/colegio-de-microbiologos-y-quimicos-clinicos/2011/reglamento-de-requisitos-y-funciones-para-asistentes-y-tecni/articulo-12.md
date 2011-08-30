@@ -1,0 +1,1 @@
+Artículo XII.—Para las cuatro subcategorías, que se indican en el artículo I implican la obligatoriedad, cuando el caso lo requiera, de colaborar con tiempo extraordinario bajo la orientación, supervisión directa y responsabilidad de un Microbiólogo y Químico Clínico y laborar en cualquier turno.

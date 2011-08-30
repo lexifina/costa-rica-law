@@ -1,0 +1,2 @@
+Artículo V.—De la naturaleza del trabajo y funciones del Técnico 1 de Laboratorio Clínico.
+1. Naturaleza del trabajo y funciones: Realizar extracciones sanguíneas, preparar muestras para estudios y análisis tanto microbiológico como parasitológico, efectuar tinciones, pruebas básicas de bacteriología y parasitología, preparar medios de cultivo y su control de calidad, realizar entrevistas a los donadores de sangre y pruebas básicas en Banco de Sangre y realizar otras funciones afines al puesto.

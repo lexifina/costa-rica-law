@@ -1,0 +1,1 @@
+Artículo IX.—De la naturaleza del trabajo y funciones del Asistente Diplomado de Laboratorio Clínico. Asistir en la ejecución de exámenes en el Laboratorio Clínico, de forma manual o automatizada, bajo la orientación, responsabilidad y supervisión del Microbiólogo y Químico Clínico.

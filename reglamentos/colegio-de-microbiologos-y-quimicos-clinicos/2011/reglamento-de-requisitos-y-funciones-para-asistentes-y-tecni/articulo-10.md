@@ -1,0 +1,1 @@
+Artículo X.—Personal en entrenamiento. El ente empleador debe solicitar un carnet temporal al Colegio de Microbiólogos para personal que se encuentre en entrenamiento, indicando el período, el tipo de entrenamiento y curso de capacitación que se le brindará al interesado.
