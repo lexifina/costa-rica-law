@@ -14,3 +14,4 @@ Reglamento de Funcionamiento de la Comisión de Informática o en Tecnologias de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-07 | la propia norma |
+| 2 | 2011-08-30 | Reglamento municipal 0 (2011-08-30) |
