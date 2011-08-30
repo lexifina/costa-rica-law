@@ -1,0 +1,3 @@
+Sección Sétima
+Control y Fiscalización
+Artículo 23.—Cese contractual: Los contratos de administración que deben firmar las entidades autorizadas para el programa previsto en las presentes normas, regularán la administración de todas las operaciones de la entidad autorizada y no se referirá a operaciones concretas o individualizadas. Podrán ser rescindidos o resueltos tanto por las causales en ellos previstos como por el incumplimiento de otras obligaciones que tenga la entidad autorizada dentro del Sistema Financiero Nacional para la Vivienda, previas las audiencias de ley y también en los casos en que la entidad autorizada no se encuentre en situación de normalidad o de regularidad ante los órganos de supervisión del sistema financiero general.

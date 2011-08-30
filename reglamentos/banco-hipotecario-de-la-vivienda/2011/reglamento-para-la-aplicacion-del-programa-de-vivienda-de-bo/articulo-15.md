@@ -1,0 +1,6 @@
+Sección Quinta
+Giro y aplicación de los recursos
+Artículo 15.—Giro y registro contable de los recursos: El monto total de cada subsidio individualizado se girará a la entidad autorizada y para su efectiva utilización, conforme se formalicen las operaciones en escritura pública. Para estos efectos, se contará con los programas informáticos necesarios para la aplicación de este procedimiento de manera estandarizada con todas las entidades autorizadas.
+Alternativamente y previo acuerdo con la entidad autorizada, los recursos también se podrán girar por medio de un depósito vía registro electrónico sin giro efectivo de recursos, de tal forma que conforme se vaya requiriendo su utilización, las amortizaciones del crédito se realicen también vía transferencia electrónica.
+El monto del subsidio se aplicará de parte de la entidad autorizada acreedora, una vez que ésta confirme la atención de la obligación por parte del deudor, según los términos que indica el artículo 54 inciso a) de la Ley del Sistema Financiero Nacional para la Vivienda y las presentes disposiciones.
+Las entidades autorizadas deberán registrar los recursos en cuentas de orden con auxiliares a nombre de cada uno de los beneficiarios.

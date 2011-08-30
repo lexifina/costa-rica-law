@@ -1,0 +1,1 @@
+Artículo 32.—Acto decisorio: La rescisión o la resolución contractual que pueda ordenar el BANHVI, serán dictadas mediante acuerdo motivado de su Junta Directiva. El acto final tendrá los recursos ordinarios previstos en la Ley General de la Administración Pública.

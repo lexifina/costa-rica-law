@@ -1,0 +1,6 @@
+Artículo 6º—Beneficiarios: Cuando los siguientes beneficiarios y grupos familiares tengan ingresos mensuales que no excedan el límite mayor del salario mínimo mensual de un obrero no especializado de la industria de la construcción, podrán recibir el monto máximo del beneficio del bono familiar de conformidad con el artículo 52 de la Ley del Sistema Financiero Nacional para la Vivienda:
+a. Las grupos familiares convencionales, de acuerdo con definición prevista en al reglamentación del Sistema Financiero Nacional para la Vivienda.
+b. Las personas con discapacidad.
+c. Las parejas jóvenes, definidas en la Ley General de la Persona Joven, Nº 8261 del 2 de mayo del 2002.
+d. Los adultos mayores sin núcleo familiar definidos en la Ley Integral para la Persona Adulta Mayor, Nº 7935 del 25 de octubre de 1995.
+Si los citados beneficiarios o grupos familiares de beneficiarios, tuvieren ingresos que excedan el límite mayor del salario mínimo mensual de un obrero no especializado de la industria de la construcción, podrán recibir el subsidio parcial, en relación inversa a su ingreso familiar mensual. Para todos los casos, los beneficiarios o los grupos de beneficiarios, podrán recibir crédito hipotecario habitacional del Sistema Financiero Nacional para la Vivienda, acogiéndose al plan de inversión regulado en las presentes disposiciones.
