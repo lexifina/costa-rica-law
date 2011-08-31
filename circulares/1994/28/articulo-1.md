@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR No 28-94
+(Dejada sin efecto mediante circular N° 85 del 31 de agosto de 2011)
 ASUNTO: Notificaciones a la Procuraduría General de la República.
 A TODOS LOS NOTIFICADORES DEL CIRCUITO JUDICIAL DE SAN JOSE
 SE LES HACE SABER:

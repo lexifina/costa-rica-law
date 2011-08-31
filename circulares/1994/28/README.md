@@ -13,3 +13,4 @@ Notificaciones a la Procuraduría General de la República
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-06-28 | la propia norma |
+| 2 | 2011-08-31 | Circular 85 (2011-08-31) |
