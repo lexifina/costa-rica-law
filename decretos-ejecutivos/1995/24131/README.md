@@ -13,3 +13,4 @@ Amplía Disposiciones Reducción Gasto Público en 1995 - Plazas Vacantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-21 | la propia norma |
+| 2 | 2011-08-31 | SINALEVI (sin norma nombrada) |
