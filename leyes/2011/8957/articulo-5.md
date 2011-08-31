@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Los derechos de copropiedad a que se refiere la presente ley se someterán al régimen de habitación familiar, sin necesidad de que previamente deban ser localizados.
+El registro inmobiliario exigirá la inscripción de las limitaciones sobre la propiedad y del régimen de habitación familiar, no inscribirá ni anotará documentos que no cumplan este requisito y se cancelará el asiento de presentación de estos.
