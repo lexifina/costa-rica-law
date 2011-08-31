@@ -1,0 +1,1 @@
+Artículo 6º—Que de conformidad con las diferentes fuentes de financiamiento establecidas en la Ley 8809, la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral deberá realizar las gestiones que correspondan para el cumplimiento de sus fines.

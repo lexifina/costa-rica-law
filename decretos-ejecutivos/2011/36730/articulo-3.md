@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral brindará atención a los (as) hijos (as) menores de trece años de de las mujeres que forman parte de los cuerpos policiales del Ministerio de Seguridad Pública, en el centro CEN CINAI más cercano a su lugar de residencia.

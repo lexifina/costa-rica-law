@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del presente decreto entiéndase por riesgo social: la condición de contingencia o proximidad de un daño, peligro eventual más o menos previsible, que involucre la posibilidad de daño o inestabilidad que afecte a que un menor de edad no se le proporcionen las condiciones necesarias para su desarrollo físico, emocional, social y educacional.

@@ -1,0 +1,16 @@
+Nº 36730-S-SP
+LA PRESIDENTA DE LA REPÚBLICA
+LA MINISTRA DE SALUD
+Y EL MINISTRO DE SEGURIDAD PÚBLICA
+En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 28 párrafo segundo, inciso b) de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”; 1, 2 y 13 de la Ley Nº 5395 de 30 de octubre de 1973 “Ley General de Salud”; 2, 4, 7 inciso a), 10, 11 y 16 de la Ley Nº 8809 de 28 de abril del 2010 “Creación de la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral”; Ley Nº 7184 del 18 de julio de 1990 “Convención sobre los Derechos del Niño”; Ley Nº 7739 de 6 de enero de 1998 “Código de la Niñez y la Adolescencia”; la Ley Nº 7648 de 9 de diciembre de 1996 “Ley Orgánica del Patronato Nacional de la Infancia”; y Ley Nº 7142 de 8 de marzo de 1990 “Ley de Promoción de la Igualdad Social de la Mujer”.
+Considerando:
+1º—Que de conformidad con el artículo 13 de la Ley General de Salud, todo niño tiene derecho a que sus padres y el Estado velen por su salud y por su desarrollo físico y psicológico.
+2º—Que los servicios que brinda la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral, va dirigido a personas menores de 13 años y mujeres embarazadas o en período de lactancia que presentan una condición de malnutrición, viven en condiciones de pobreza o de escasos recursos económicos y/o riesgo social.
+3º—Que los hijos e hijas menores de trece años cuyas madres son policías, por las condiciones y jornadas laborales, no son atendidos a lo largo del día por éstas. Algunas de las necesidades del niño y niña son: alimentación, higiene, protección y vigilancia y cuidados médicos, entre otros.
+4º—Que la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral, tiene como misión promover el crecimiento y desarrollo de la infancia en consecuencia se ha considerado conveniente determinar en qué condiciones se encuentra un menor en riesgo social independientemente de la situación económica de la familia.
+5º—Que el artículo 4 de la Ley Nº 8809 faculta a la Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral para considerar como criterio de selección el brindar al niño y a la niña en condición de pobreza y/o riesgo social la oportunidad de permanecer en servicios de atención diaria de calidad, facilitando la incorporación de las personas responsables de su tutela al proceso productivo y educativo del país.
+6º—Que de conformidad con lo anteriormente expuesto, se ha considerando conveniente brindar a los menores de trece años hijos de madres policías que presten servicios en el Ministerio de Seguridad Pública, la posibilidad de ser atendidos en los centros CEN CINAI, brindándoles cuido, tutela y educación de parte de los (as) funcionarios (as) especializados que laboran en los Centros. Por tanto,
+Decretan:
+CRITERIO DE SELECCIÓN DEL PROGRAMA CEN CINAI
+PARA LOS HIJOS E HIJAS DE MADRES POLICÍAS
+Artículo 1º—Por encontrarse en eventual riesgo social, se considera como otro criterio de selección para ingresar en los centros CEN CINAI, los (as) hijos (as) menores de trece años de las mujeres que forman parte de los Cuerpos policiales del Ministerio de Seguridad Pública.
