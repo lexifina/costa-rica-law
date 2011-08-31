@@ -97,6 +97,7 @@ articulo-95.md
 articulo-96.md
 articulo-97.md
 articulo-98.md
+articulo-98-bis.md
 articulo-99.md
 articulo-100.md
 articulo-101.md
@@ -138,7 +139,6 @@ articulo-135.md
 articulo-136.md
 articulo-137.md
 articulo-138.md
-articulo-98-bis.md
 articulo-139.md
 articulo-140.md
 articulo-141.md
