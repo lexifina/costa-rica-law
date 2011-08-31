@@ -14,3 +14,4 @@ Aprueba tarifas servicios en Plantas para la venta de servicios de almacenamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-07 | la propia norma |
+| 2 | 2011-08-31 | Acuerdo 38229 (2011-08-31) |

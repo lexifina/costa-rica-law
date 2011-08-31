@@ -7,6 +7,7 @@ Tomando en consideración la recomendación formulada por la Dirección de Plani
 1) Derogar el acuerdo tomado en el artículo 11º de la sesión ordinaria Nº 2770 del 30 de junio del 2010, correspondiente a las tarifas aprobadas por la Junta Directiva para servicios que se brindan en las plantas de la Institución.
 2) Aprobar las tarifas de los servicios en plantas que se detallan a continuación; con base en los resultados derivados del estudio técnico-económico elaborado por el Área de Análisis de Políticas -CNP, Estimación de Tarifas de Servicios en Plantas, abril 2011”, adjunto al oficio DPL-048-11 del 9 de mayo del 2011.
 [imagen]
+(Nota de Sinalevi: Mediante acuerdo N° 38229 del 31 de agosto de 2011, se indica lo siguiente: "...se modifica parcialmente el acuerdo Nº 38128 tomado en la sesión ordinaria Nº 2801, artículo 8º, inciso a) celebrada el 11 de mayo del 2011; relacionado con la venta de servicios de almacenamiento, secado, secado y almacenamiento, limpieza de granos, descascarado de maní, uso de romana carnionera y de silos en las plantas del CNP; aplicándose una disminución del 15% en el rubro margen de aporte a los gastos administrativos y se aplique por espacio de dos meses al pequeño y mediano productor de arroz únicamente, las tarifas de almacenamiento en silos, que pasaría de $6.37 a $5.58 y el mes adicional de $2.56 a $2.27...")
 NOTAS ACLARATORIAS SOBRE LAS TARIFAS ESTIMADAS
 SERVICIOS | NOTAS
 ALMACENAMIENTO EN CÁMARAS (A 1) | En esta tarifa la descarga del camión en el recibo y la carga en el despacho, corre por cuenta del cliente, quien deberá realizar esas labores en el lugar que al efecto le determine el personal de la planta.
@@ -57,7 +58,7 @@ Los peones requeridos en los silos para el despacho del grano, deberá aportarlo
 En este servicio, además del monto por tonelada métrica almacenada, debe cobrarse adicional a la tarifa, el monto correspondiente por el uso del silo.
 El usuario del servicio, asume la limpieza de los silos y se obliga a devolverlos en el mismo o mejor estado de limpieza del que los recibió y en todo caso, la devolución deberá hacerla a satisfacción del Consejo.
 La tarifa del primer mes, tanto por tonelada métrica como por el uso del silo, debe cobrarse en su totalidad, la del mes adicional puede fraccionarse de acuerdo a los días de permanencia del grano en los silos del CNP.
-ROMANA CAMIONERA (C 2) | Esta tarifa comprende dos usos de la romana, uno con el vehículo lleno y otro con el vehículo vacío o viceversa.
+ROMANA CAMIONERA (C 2) | Esta tarifa comprende dos usos de la romana, uno con el vehículo lleno y otr con el vehículo vacío o viceversa.
 USO DE SILOS DE: 2000, 300-350 y 180 t (C 4, 5 y 6) | El cliente recibirá los silos limpios y previo a la devolución, deberá limpiarlos y entregarlos al CNP en igual o en mejor estado de limpieza del que los recibió y en todo caso, debe ser a satisfacción del Consejo.
 NOTA GENERAL | En todos los servicios, si el cliente desea cancelar en colones, podrá hacerlo en dicha moneda, con la conversión de dólares a colones al tipo de cambio de compra vigente al momento de la cancelación.
 Publíquese en el Diario Oficial La Gaceta.
