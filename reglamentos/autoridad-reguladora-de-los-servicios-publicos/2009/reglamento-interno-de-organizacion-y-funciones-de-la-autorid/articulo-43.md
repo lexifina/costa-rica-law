@@ -1,25 +1,34 @@
-Artículo 43.—Funciones de la Dirección General de Participación del Usuario (DGPU). DGPU tiene a cargo las siguientes funciones:
-1. En materia de participación del usuario:
-a. Promover una agenda estratégica de mejora de los servicios públicos regulados a través del fomento de la participación de los usuarios.
-b. Realizar actividades para medir la percepción de los usuarios sobre la prestación de los servicios públicos.
-c. Procurar la creación de canales y espacios para que los usuarios ejerzan sus derechos.
-d. Realizar actividades de educación, comunicación e información para que los usuarios conozcan y ejerzan sus derechos.
-e. Fungir como consejero del usuario.
-f. Promover la participación de los usuarios en las audiencias convocadas por la institución.
-g. Elaborar y divulgar un informe anual sobre el estado del cumplimiento de los derechos de los usuarios de servicios públicos regulados.
-h. Tramitar lo relativo a las audiencias públicas a que convoque la Autoridad Reguladora, desde la convocatoria hasta la elaboración del acta.
-i. Llevar el registro de las asociaciones y otras organizaciones que se dedican a la defensa de los derechos de los consumidores, usuarios, clientes y abonados de los servicios públicos.
-2. En materia de atención al usuario:
-a. Evacuar las consultas personales, escritas y telefónicas que se presenten ante la Institución.
-b. Realizar gestiones para solucionar las quejas de manera conciliatoria antes de su investigación preliminar.
-c. Remitir a las superintendencias para la investigación preliminar y posterior resolución las denuncias y las quejas que no llegaran a conciliarse.
-d. Realizar al interior de la institución las gestiones que se requiera para que se resuelvan las quejas y denuncias que se presenten ante la Autoridad Reguladora de los Servicios Públicos, incluyendo gestiones ante la Dirección General de Estrategia y Evaluación, el Regulador General y la Junta Directiva.
-e. Fungir como parte en los procesos de instrucción formal de quejas y denuncias interpuestas por usuarios.
-f. Realizar actividades con los usuarios para conocer el efecto de las resoluciones de la Autoridad Reguladora en la solución de quejas y denuncias.
-3. En materia de gestión:
-a. Apoyar al Centro de Desarrollo de la Regulación en la elaboración de los estudios y los reglamentos que se definan de común acuerdo.
-b. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
-c. Apoyar a la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
-Adicionalmente todas aquellas funciones que le asigne la Junta Directiva, el Regulador General y el Gerente General.
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 30 al 38 actual)
-(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 38 al 43 actual)
+Artículo 43.—Funciones. SUAGUA tiene dentro de sus funciones las siguientes:
+1. En materia de regulación.
+a. Mantener un diagnóstico actualizado del sistema de acueductos, de alcantarillados, riego y avenamiento del país.
+b. Mantener un diagnóstico actualizado del sistema de concesión de obra pública, en la materia de su competencia.
+c. Conocer las técnicas y procesos con que los regulados suministran los servicios públicos con el fin de ejercer una adecuada regulación.
+d. Fijar de manera ordinaria y extraordinaria, a solicitud de parte y de oficio, los precios y tarifas para los servicios regulados, autorizando el cobro de servicios ambientales cuando corresponda.
+e. Regular la calidad, la cantidad, la confiabilidad, la continuidad, la oportunidad, la diversidad y la sostenibilidad ambiental de los servicios públicos regulados, en la perspectiva de promover los derechos de los usuarios y la protección del ambiente.
+f. Velar por el cumplimiento de las condiciones del título habilitante, de la normativa técnica, las obligaciones tributarias y cargas sociales por parte de los prestadores de los servicios públicos, con todos los instrumentos y medios otorgados por la ley.
+g. Establecer un sistema de seguimiento y registro del comportamiento del mercado de los sectores regulados y los prestadores de tales servicios, bajo el enfoque de regulación por redes.
+h. Declarar la caducidad y revocatoria de las concesiones otorgadas para la prestación de los servicios públicos de su competencia cuando corresponda.
+i. Participar en conjunto con el Centro de Desarrollo de la Regulación y la Asesoría Jurídica y Regulatoria en la elaboración de los reglamentos técnicos que se requieran para la correcta aplicación del marco regulatorio de los servicios públicos regulados.
+j. Rendir dictamen con respecto a los estudios técnicos que justifiquen la necesidad de licitar concesiones y los contratos de adhesión, cuando le sean remitidos para este efecto a la ARESEP.
+k. Instruir los procedimientos de refrendo y concesiones que se sometan a consideración de la Autoridad Reguladora, según los servicios de su competencia.
+l. Atender y evacuar las consultas con respecto a los servicios de su competencia que no hayan sido evacuadas por la Dirección General de Participación del Usuario.
+m.Proporcionar a la Dirección General de Participación del Usuario los informes y el apoyo que le solicite para brindar a los usuarios y consumidores de los servicios públicos un acceso oportuno a la información.
+n. Resolver los recursos de revocatoria que se presenten contra los actos emitidos.
+ñ. Atender las solicitudes relacionadas con la concesión de obra pública en el sector de su competencia de acuerdo con lo que establece la ley.
+o. Gestionar las relaciones con los organismos nacionales e internacionales que guarden relación con la regulación de su sector.
+p. Emitir el acto administrativo de admisibilidad, rechazo o prevención de requisitos para las gestiones realizadas por las entidades reguladas.
+2. En materia de procedimientos administrativos.
+a. Realizar las investigaciones preliminares en las quejas y controversias que no hubieran sido resueltas o conciliadas mediante la participación de la Dirección General de Participación del Usuario.
+b. Realizar las investigaciones preliminares en las denuncias.
+c. Determinar la existencia de mérito en quejas, controversias y denuncias, para la instrucción formal de un procedimiento administrativo y solicitar dicha instrucción a la Dirección General de Asesoría Jurídica y Regulatoria cuando corresponda.
+d. Resolver, como órgano decisor, las quejas, controversias y denuncias que se presenten ante la ARESEP, así como proporcionar la información que se le solicite en su instrucción.
+3. En materia de gestión.
+a. Diseñar, documentar y mejorar los procesos y procedimientos que garanticen una aplicación de la normativa institucional equitativa, transparente, eficiente y segura desde el punto de vista de la gestión del riesgo.
+b. Apoyar a la Dirección General de Participación del Usuario en las gestiones que requiera para evacuar las consultas, aconsejar a los usuarios y desarrollar campañas de educación.
+c. Apoyar al Centro de Desarrollo de la Regulación en la elaboración de los estudios y los reglamentos que se definan de común acuerdo.
+d. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
+e. Apoyar a la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
+Adicionalmente, todas aquellas otras funciones que le asignen las leyes y otras normas jurídicas o técnicas de carácter vinculante así como la Junta Directiva.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 21 al 29 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 29 al 34 actual)
+(Así corrida su numeración en sesión ordinaria N° 054-2011 del 31 de agosto del 2011, que lo traspasó del antiguo artículo 34 al 43 actual)

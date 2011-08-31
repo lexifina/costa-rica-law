@@ -1,7 +1,5 @@
-Artículo 48.—Funciones gerenciales de Comunicación Institucional.
-a. Diseñar y coordinar una estrategia de comunicación de la institución.
-b. Asesorar a la Junta Directiva, al Regulador General y a los Superintendentes en sus acciones de comunicación externa.
-c. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
-d. Apoyar a la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 35 al 43 actual)
-(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 43 al 48 actual)
+De la Gerencia General
+Artículo 48.—Naturaleza y estructura. La Gerencia General dependerá directamente del Regulador General y proporcionará apoyo en gestiones administrativas y regulatorias a todos los órganos de la Autoridad Reguladora.La Gerencia General es el superior jerárquico de las Direcciones Generales de Participación del Usuario, de Asesoría Jurídica y Regulatoria y del Centro de Desarrollo de la Regulación así como de las unidades responsables de la administración de la Autoridad Reguladora definidas en este reglamento.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 26 al 34 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 34 al 39 actual)
+(Así corrida su numeración en sesión ordinaria N° 054-2011 del 31 de agosto del 2011, que lo traspasó del antiguo artículo 39 al 48 actual)

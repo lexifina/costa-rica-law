@@ -19,3 +19,4 @@ Reglamento interno de organización y funciones de la Autoridad Reguladora de lo
 | 4 | 2010-10-04 | Reglamento 39 (2010-10-04) |
 | 5 | 2010-10-13 | Reglamento 42 (2010-10-13) |
 | 6 | 2011-03-30 | Reglamento 21 (2011-03-30) |
+| 7 | 2011-08-31 | Reglamento 54 (2011-08-31) |

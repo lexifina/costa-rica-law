@@ -1,31 +1,36 @@
-Artículo 45.—Funciones de la Dirección General Centro de Desarrollo de la Regulación (CDR).
-1. En materia de investigación y estudios:
-a. Diseñar e implementar una política y acciones que promuevan la investigación en el ámbito de la regulación por parte de centros especializados.
-b. Promover, coordinar y divulgar estudios o investigaciones pertinentes para el desarrollo de la regulación.
-c. Sistematizar y difundir los conocimientos más avanzados en el mundo y más relevantes para la realidad costarricense sobre regulación de mercados de los servicios públicos regulados, y velar por la actualización de las bases bibliográficas de la ARESEP.
-d. Diseñar y someter a mejora continua las metodologías tarifarias.
-e. Asesorar y dar asistencia a las diferentes dependencias de la institución sobre aspectos técnicos relativos a la aplicación adecuada de nuevas políticas regulatorias.
-f. Diseñar el plan, programas y actividades de desarrollo de capacidades que satisfagan las necesidades de ARESEP, los sectores regulados y los usuarios de los servicios públicos, en coordinación con las demás dependencias de la institución.
-g. Brindar apoyo a las Superintendencias en la gestión de las relaciones con aquellas instituciones nacionales e internacionales vinculadas con la regulación de su sector respectivo.
-h. Recopilar, procesar y divulgar información sobre las ofertas de cooperación técnica internacional con el fin de contar con datos actualizados y apoyar el desarrollo de la gestión en este campo entre todos los entes regulados.
-2. En materia de elaboración y discusión de normativa:
-a. Elaborar los reglamentos que apruebe la Junta Directiva de la ARESEP para la regulación de los servicios públicos, con el apoyo técnico de la Asesoría Jurídica y Regulatoria y de la Superintendencia respectiva.
-b. Mantener actualizado el acervo de la legislación, la jurisprudencia administrativa y jurisdiccional y todo otro acto emitido por órgano competente, que sea de interés regulatorio o administrativo.
-c. Coordinar con las demás áreas de la Institución en la revisión de proyectos de ley, reglamentos, decretos ejecutivos, normas técnicas u otros instrumentos jurídicos que deban ser emitidos externamente.
-3. En materia de desarrollo de los recursos humanos:
-a. Promover una cultura institucional alineada con los principios que guían la regulación de los servicios públicos.
-b. Desarrollar una estrategia integral de formación de los recursos humanos de la institución.
-c. Elaborar y reestructurar instrumentos de evaluación para determinar habilidades, destrezas, conocimientos generales y específicos de los funcionarios para el desempeño eficiente dentro de ARESEP.
-d. Velar por que la institución cuente con una política salarial que le permite cumplir con las competencias que le fija la ley.
-e. Dirigir el proceso de reclutamiento y selección de personal idóneo para cada puesto de trabajo y establecer políticas, normas y procedimientos vigilando el cumplimiento de las disposiciones legales aplicables a dicha actividad.
-f. Promover y resguardar que las relaciones obrero-patronales se den de manera armónica y apegada a la normativa interna y externa vigente.
-g. Realizar procesos para el desarrollo de capacidades de los funcionarios, mediante la detección de necesidades de capacitación y registros actualizados de las direcciones.
-h. Implementar los planes y programas preventivos y correctivos en cuanto al ambiente físico, de seguridad e higiene ocupacional, psicológico, fisioterapéutico, de administración del riesgo laboral que se requiere para el adecuado desempeño de los funcionarios.
-i. Dictar como órgano decisor, las resoluciones en el ámbito de su competencia, según ha sido definida en este artículo.
-4. En materia de desarrollo de los recursos humanos:
-a. Apoyar a la Dirección General de Participación del Usuario en las gestiones que requiera para evacuar las consultas, aconsejar a los usuarios y desarrollar campañas de educación.
-b. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
-c. A poyar a la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
-Adicionalmente todas aquellas funciones que le asigne la Junta Directiva, el Regulador General y el Gerente General.
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 32 al 40 actual)
-(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 40 al 45 actual)
+Artículo 45.—Funciones. Son funciones propias de SUENERGÍA las siguientes:
+1. En materia de regulación:
+a. Mantener un diagnóstico actualizado del estado de la situación del mercado de cada producto y servicio energético regulado.
+b. Otorgar o rechazar el refrendo a contratos en generación privada de energía y a los contratos de venta de energía.
+c. Conocer las técnicas y procesos para suministrar los servicios públicos de su competencia, propiciando altos niveles de eficiencia y eficacia así como de respeto a la naturaleza.
+d. Mantener un diagnóstico actualizado del sistema de concesión de obra pública, en la materia de su competencia.
+e. Conocer las técnicas y procesos con que los regulados suministran los servicios públicos con el fin de ejercer una adecuada regulación.
+f. Fijar de manera ordinaria y extraordinaria, a solicitud de parte y de oficio, los precios y tarifas para los servicios regulados, autorizando el cobro de servicios ambientales cuando corresponda.
+g. Regular la calidad, la cantidad, la confiabilidad, la continuidad, la oportunidad, la diversidad y la sostenibilidad ambiental de los servicios públicos regulados, en la perspectiva de promover los derechos de los usuarios y la protección del ambiente.
+h. Velar por el cumplimiento de las condiciones del título habilitante, de la normativa técnica, las obligaciones tributarias y cargas sociales por parte de los prestadores de los servicios públicos, con todos los instrumentos y medios otorgados por la ley.
+i. Establecer un sistema de seguimiento y registro del comportamiento del mercado de los sectores regulados y los prestadores de tales servicios, bajo el enfoque de regulación por redes.
+j. Declarar la caducidad y revocatoria de las concesiones otorgadas para la prestación de los servicios públicos de su competencia cuando corresponda.
+k. Participar en conjunto con el Centro de Desarrollo de la Regulación y la Asesoría Jurídica y Regulatoria en la elaboración de los reglamentos técnicos que se requieran para la correcta aplicación del marco regulatorio de los servicios públicos regulados.
+l. Rendir dictamen con respecto a los estudios técnicos que justifiquen la necesidad de licitar concesiones y los contratos de adhesión, cuando le sean remitidos para este efecto a la ARESEP.
+m. Instruir los procedimientos de refrendo y concesiones que se sometan a consideración de la Autoridad Reguladora, según los servicios de su competencia.
+n. Atender y evacuar las consultas con respecto a los servicios de su competencia que no hayan sido evacuadas por la Dirección General de Participación del Usuario.
+ñ. Proporcionar a la Dirección General de Participación del Usuario los informes y apoyo que le solicite para brindar a los usuarios y consumidores de los servicios públicos un acceso oportuno a la información.
+o. Resolver los recursos de revocatoria que se presenten contra los actos emitidos.
+p. Atender las solicitudes relacionadas con la concesión de obra pública en el sector de su competencia de acuerdo con lo que establece la ley.
+q. Gestionar las relaciones con los organismos nacionales e internacionales que guarden relación con la regulación de su sector.
+r. Emitir el acto administrativo de admisibilidad, rechazo o prevención de requisitos para las gestiones realizadas por las entidades reguladas.
+2. En materia de procedimientos administrativos:
+a. Realizar las investigaciones preliminares en las quejas y controversias que no hubieran sido resueltas o conciliadas mediante la participación de la Dirección General de Participación del Usuario.
+b. Realizar las investigaciones preliminares en las denuncias.
+c. Determinar la existencia de mérito en quejas, controversias y denuncias, para la instrucción formal de un procedimiento administrativo y solicitar dicha instrucción a la Dirección General de Asesoría Jurídica y Regulatoria cuando corresponda.
+d. Resolver, como órgano decisor, las quejas, controversias y denuncias que se presenten ante la ARESEP, así como proporcionar la información que se le solicite en su instrucción.
+3. En materia de gestión:
+a. Diseñar, documentar y mejorar los procesos y procedimientos que garanticen una aplicación de la normativa institucional equitativa, transparente, eficiente y segura desde el punto de vista de la gestión del riesgo.
+b. Apoyar a la Dirección General de Participación del Usuario en las gestiones que requiera para evacuar las consultas, aconsejar a los usuarios y desarrollar campañas de educación.
+c. Apoyar al Centro de Desarrollo de la Regulación en la elaboración de los estudios y los reglamentos que se definan de común acuerdo.
+i. A la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
+ii. A la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
+Adicionalmente, todas aquellas otras funciones que le asignen las leyes y otras normas jurídicas o técnicas de carácter vinculante así como la Junta Directiva.
+(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 23 al 31 actual)
+(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 31 al 36 actual)
+(Así corrida su numeración en sesión ordinaria N° 054-2011 del 31 de agosto del 2011, que lo traspasó del antiguo artículo 36 al 45 actual)

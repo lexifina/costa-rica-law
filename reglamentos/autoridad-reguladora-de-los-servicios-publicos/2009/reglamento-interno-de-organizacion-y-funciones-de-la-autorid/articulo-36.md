@@ -1,37 +1,52 @@
-Artículo 36.—Funciones. Son funciones propias de SUENERGÍA las siguientes:
-1. En materia de regulación:
-a. Mantener un diagnóstico actualizado del estado de la situación del mercado de cada producto y servicio energético regulado.
-b. Otorgar o rechazar el refrendo a contratos en generación privada de energía y a los contratos de venta de energía.
-c. Conocer las técnicas y procesos para suministrar los servicios públicos de su competencia, propiciando altos niveles de eficiencia y eficacia así como de respeto a la naturaleza.
-d. Mantener un diagnóstico actualizado del sistema de concesión de obra pública, en la materia de su competencia.
-e. Conocer las técnicas y procesos con que los regulados suministran los servicios públicos con el fin de ejercer una adecuada regulación.
-f. Fijar de manera ordinaria y extraordinaria, a solicitud de parte y de oficio, los precios y tarifas para los servicios regulados, autorizando el cobro de servicios ambientales cuando corresponda.
-g. Regular la calidad, la cantidad, la confiabilidad, la continuidad, la oportunidad, la diversidad y la sostenibilidad ambiental de los servicios públicos regulados, en la perspectiva de promover los derechos de los usuarios y la protección del ambiente.
-h. Velar por el cumplimiento de las condiciones del título habilitante, de la normativa técnica, las obligaciones tributarias y cargas sociales por parte de los prestadores de los servicios públicos, con todos los instrumentos y medios otorgados por la ley.
-i. Establecer un sistema de seguimiento y registro del comportamiento del mercado de los sectores regulados y los prestadores de tales servicios, bajo el enfoque de regulación por redes.
-j. Declarar la caducidad (y revocatoria)* de las concesiones otorgadas para la prestación de los servicios públicos de su competencia cuando corresponda.
-*(Anulado lo destacado entre paréntesis en el inciso anterior, mediante resolución de la Sala Constitucional N° 16591 del 30 de noviembre de 2011.)
-k. Participar en conjunto con el Centro de Desarrollo de la Regulación y la Asesoría Jurídica y Regulatoria en la elaboración de los reglamentos técnicos que se requieran para la correcta aplicación del marco regulatorio de los servicios públicos regulados.
-l. Rendir dictamen con respecto a los estudios técnicos que justifiquen la necesidad de licitar concesiones y los contratos de adhesión, cuando le sean remitidos para este efecto a la ARESEP.
-m. Instruir los procedimientos de refrendo y concesiones que se sometan a consideración de la Autoridad Reguladora, según los servicios de su competencia.
-n. Atender y evacuar las consultas con respecto a los servicios de su competencia que no hayan sido evacuadas por la Dirección General de Participación del Usuario.
-ñ. Proporcionar a la Dirección General de Participación del Usuario los informes y apoyo que le solicite para brindar a los usuarios y consumidores de los servicios públicos un acceso oportuno a la información.
-o. Resolver los recursos de revocatoria que se presenten contra los actos emitidos.
-p. Atender las solicitudes relacionadas con la concesión de obra pública en el sector de su competencia de acuerdo con lo que establece la ley.
-q. Gestionar las relaciones con los organismos nacionales e internacionales que guarden relación con la regulación de su sector.
-r. Emitir el acto administrativo de admisibilidad, rechazo o prevención de requisitos para las gestiones realizadas por las entidades reguladas.
-2. En materia de procedimientos administrativos:
-a. Realizar las investigaciones preliminares en las quejas y controversias que no hubieran sido resueltas o conciliadas mediante la participación de la Dirección General de Participación del Usuario.
-b. Realizar las investigaciones preliminares en las denuncias.
-c. Determinar la existencia de mérito en quejas, controversias y denuncias, para la instrucción formal de un procedimiento administrativo y solicitar dicha instrucción a la Dirección General de Asesoría Jurídica y Regulatoria cuando corresponda.
-d. (Resolver, como órgano decisor, las quejas, controversias y denuncias que se presenten ante la ARESEP, así como proporcionar la información que se le solicite en su instrucción.)*
-*(Anulado lo destacado entre paréntesis mediante resolución de la Sala Constitucional N° 16591 del 30 de noviembre de 2011.)
-3. En materia de gestión:
-a. Diseñar, documentar y mejorar los procesos y procedimientos que garanticen una aplicación de la normativa institucional equitativa, transparente, eficiente y segura desde el punto de vista de la gestión del riesgo.
-b. Apoyar a la Dirección General de Participación del Usuario en las gestiones que requiera para evacuar las consultas, aconsejar a los usuarios y desarrollar campañas de educación.
-c. Apoyar al Centro de Desarrollo de la Regulación en la elaboración de los estudios y los reglamentos que se definan de común acuerdo.
-i. A la Dirección General de Asesoría Jurídica y Regulatoria en la instrucción de procedimientos administrativos, asesoría a los órganos superiores, en el desarrollo y la actualización de la normativa interna y en la atención de procesos judiciales.
-ii. A la Dirección General de Estrategia y Evaluación en la elaboración de los planes e informes institucionales y en la realización de las fiscalizaciones.
-Adicionalmente, todas aquellas otras funciones que le asignen las leyes y otras normas jurídicas o técnicas de carácter vinculante así como la Junta Directiva.
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 23 al 31 actual)
-(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 31 al 36 actual)
+Artículo 36.—Funciones de Planificación, Presupuesto y Control Interno de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
+Planificación
+Esta encargada de asistir técnicamente en la preparación de planes de trabajo a corto, mediano y largo plazo, así como asesorar y coordinar el análisis de procedimientos y el establecimiento de normas para los trabajos de investigación, a fin de dar cumplimiento a la misión, objetivos, políticas y estrategias institucionales.
+Funciones:
+1. Recomendar políticas y estrategias y proponer al Consejo de la SUTEL prioridades de acción, factores de éxito y criterios de medición verificables que aseguren el logro de los objetivos y resultados propuestos en los planes institucionales.
+2. Asistir técnicamente a los Programas de Investigación.
+3. Asesorar y coordinar el proceso de preparación de los planes de largo y mediano plazos, el Plan Operativo y el Presupuesto Anual, con criterios de eficiencia, productividad y calidad, de acuerdo con los lineamientos fijados por el Consejo de la SUTEL, en procura de la sostenibilidad y el desarrollo integral de SUTEL.
+4. Elaborar y proponer instrumentos técnico-administrativos para normar las actividades.
+5. Definir y aplicar procesos de seguimiento y control que propicien el cumplimiento de los planes de trabajo.
+6. Asesorar a Dirección General de Operaciones en lo relativo a la aprobación los proyectos de investigación.
+7. Asistir técnicamente en la programación y presupuestación.
+8. Preparar cualquier programa o proyecto especial de investigación que SUTEL requiera formular e implementar para responder a situaciones estratégicas o coyunturales y que no fueron contemplados en los Programas de Investigación.
+9. Conocer la situación en cuanto al desarrollo de actividades, utilización de recursos y logro de objetivos y metas contemplados en los planes, programas y proyectos que ejecute la SUTEL.
+10. Establecer un sistema de recolección y análisis de información en relación a la generación, transferencia y adopción de tecnología que sirvan a Dirección General de Operaciones.
+11. Preparar y enviar a la Dirección General de Operaciones informes cuatrimestrales y anuales.
+12. Realizar el seguimiento y la evaluación de los planes estratégicos y operativos institucionales.
+13. Dar seguimiento a los proyectos de ley y a los temas relacionados con la regulación de los servicios públicos que se discutan en la Asamblea Legislativa y que estén vinculados con el quehacer de la SUTEL.
+14. Participar en representación de la SUTEL en el Sistema Nacional de Planificación conforme a la normativa que al respecto establezca el Ministerio de Planificación y Política Económica (MIDEPLAN).
+Presupuesto:
+Es encargada de coordinar, dirigir y elaborar la formulación del Presupuesto, así como su análisis y evaluación, de acuerdo con las orientaciones emanadas de la Dirección General de Operaciones.
+Funciones:
+Son funciones de la Sección de Presupuesto, las siguientes:
+1. Coordinar, asesorar y programas la elaboración del presupuesto anual.
+2. Distribuir en los diferentes planes y actividades del Presupuesto Programa los recursos humanos, materiales y financieros, de acuerdo con las directrices emanadas de la Dirección General de Operaciones.
+3. Calcular y propiciar los costos de los planes operativos y de desarrollo de la SUTEL a fin de que se pueda garantizar su ejecución.
+4. Elaborar los proyectos de presupuestos ordinarios y extraordinarios, y los proyectos anuales de cánones a objeto de garantizar el logro de las metas propuestas en los diferentes programas y actividades de los planes respectivos.
+5. Evaluar la ejecución financiera en relación con la programación presupuestaria de la SUTEL y elaborar los informes respectivos.
+6. Efectuar las modificaciones presupuestarias requeridas en atención a los traslados de partidas y la incorporación de recursos ordinarios en el año correspondiente.
+7. Realizar análisis de la ejecución presupuestaria para determinar la necesidad de efectuar traslados de partidas.
+8. Proponer los ajustes presupuestarios a fin de corregir las desviaciones presentadas durante cada trimestre.
+9. Asesorar a las diferentes dependencias de la SUTEL en aspectos relacionados con la materia presupuestaria.
+10. Recibir de las dependencias correspondientes los datos referentes a la ejecución de las metas físicas y presupuestarias de los programas presupuestarios de la SUTEL y mantenerlos actualizados.
+11. Mantener comunicación permanente con la Sección de Ejecución Presupuestaria de la Unidad de Finanzas a fin de coordinar las acciones pertinentes.
+12. Generar los informes de la evolución del presupuesto institucional.
+13. Las demás que le sean asignadas por los reglamentos y autoridades competentes.
+Control Interno:
+Es la Encargada de coordinar las actividades de formulación, ejecución y evaluación de los procesos de Control Interno y el Sistema Específico de Valoración de Riesgo (SEVRI), de acuerdo al artículo 17 de la Ley General de Control Interno Nº 8292 y del transitorio único del Manual de Normas Generales de Control Interno, que facilite el proceso de rendición de cuentas y las Directrices Generales para el establecimiento y funcionamiento del sistema específico de valoración del riesgo institucional (SEVRI) D-3-2005-CO-DFOE, emitidas por la Contraloría General de la República.
+Funciones:
+1. Formular las metodologías para la autoevaluación del proceso de control interno y del Sistema Específico de Valoración de Riesgo (SEVRI) y remitirla para su aprobación.
+2. Fomentar en la organización la formación de una cultura de control que contribuya al mejoramiento continuo en el cumplimiento de la misión institucional.
+3. Mantener informados a los Jerarcas acerca del estado del control interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI) de la entidad, dando cuenta de las debilidades detectadas y de las fallas en su cumplimiento.
+4. Crear y facilitar los instrumentos necesarios para que las dependencias emitan información clara, oportuna y confiable que faciliten la toma de decisiones de los jerarcas y titulares subordinados.
+5. Capacitar y asesorar a los titulares subordinados y enlaces de unidad, sobre la aplicación de la metodología para la auto evaluación del sistema de control interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI).
+6. Coordinar las etapas de formulación, seguimiento y evaluación del informe estratégico de control interno.
+7. Revisar y recomendar los ajustes necesarios para actualizar el Sistema de Control Interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI) que posibiliten el mejoramiento en la prestación de los servicios.
+8. Emitir y actualizar los lineamientos técnicos para la elaboración de los informes tanto de la Auto-evaluación de Control Interno como del Sistema Específico de Valoración de Riesgos.
+9. Elaborar y aplicar los planes de contingencia, en caso de que el Control Interno y los factores de riesgo sean desfavorables e inseguros para el patrimonio de la Institución.
+10. Verificar que se implementen las medidas correctivas recomendadas para la Auto Evaluación de Control Interno y del Sistema Específico de Valoración de Riesgo.
+11. Servir como secretaría técnica de las comisiones de Control Interno y Evaluación de Riesgos con el propósito de facilitar el cumplimiento de los objetivos propuestos y la aplicación adecuada de la normativa que se ha emitido al respecto.
+12. Coordinar el diseño y evaluar la ejecución del sistema de gestión del riesgo institucional así como proponer al Consejo de la SUTEL y a los directores generales según corresponda, los requerimientos del sistema interno de rendición de cuentas y administración del riesgo.
+13. Adicionalmente todas aquellas funciones que le asigne el Consejo de la SUTEL.
+(Así adicionado mediante sesión ordinaria N° 054-2011 del 31 de agosto del 2011)

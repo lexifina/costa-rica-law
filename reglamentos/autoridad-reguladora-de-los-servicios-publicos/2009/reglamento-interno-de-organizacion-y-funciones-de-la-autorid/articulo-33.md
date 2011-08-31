@@ -1,4 +1,10 @@
-De la Superintendencia de Agua y Saneamiento (SUAGUA)
-Artículo 33.—Competencia. SUAGUA ejerce la regulación integral, tanto técnica como económica, del suministro de los servicios de acueductos y alcantarillados, la recolección, el tratamiento y la evacuación de las aguas negras, las residuales, las aguas pluviales, hidrantes, riego y avenamiento cuando se preste por medio de empresa pública, por concesión o permiso. También incluye la recolección y tratamiento de desechos sólidos e industriales, salvo los que presten las municipalidades y estén cubiertos por la autonomía municipal (artículo 5 incisos c), e), i), de la ley 7593).
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 20 al 28 actual)
-(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 28 al 33 actual)
+Artículo 33.—Funciones de la Dirección General del Fondo Nacional de Telecomunicaciones. En materia de administración y control del Fondo Nacional de Telecomunicaciones, son funciones de esta dirección general las siguientes:
+1. Garantizar que los operadores y proveedores cumplan lo establecido en el Capítulo I del Título II sobre acceso universal, servicio universal y solidaridad de la ley y lo que reglamentariamente se establezca.
+2. Administrar los recursos de FONATEL.
+3. Establecer reglamentariamente los requisitos para que los operadores o proveedores que ejecuten recursos de FONATEL, mantengan un sistema de contabilidad de costos separado.
+4. Acreditar las firmas de contadores públicos autorizados que anualmente auditarán el sistema de contabilidad de costos separados.
+5. Establecer los mecanismos de control interno para administrar los recursos de FONATEL.
+6. Tener disponible la información sobre la operación y el funcionamiento de FONATEL, para la auditoría interna de la Autoridad Reguladora.
+7. Administrar el Fondo Nacional de Telecomunicaciones y garantizar el cumplimiento de las obligaciones de acceso y servicio universal que se impongan a los operadores de redes y proveedores de servicios de telecomunicaciones.
+8. Elaborar los estudios y preparar la propuesta como recomendación del Consejo para la fijación de la tarifa de la contribución especial parafiscal de conformidad con lo previsto en el artículo 39 de la ley.
+(Así adicionado mediante sesión ordinaria N° 054-2011 del 31 de agosto del 2011)

@@ -1,4 +1,8 @@
-De la Superintendencia de Energía (SUENERGÍA)
-Artículo 35.—Competencias. SUENERGÍA ejerce la regulación económica integral de los servicios de suministro de energía eléctrica en las etapas de generación, transmisión, distribución y comercialización, suministro de combustibles derivados de hidrocarburos (conforme se señalan en el artículo 5 incisos a) y d) de la Ley 7593).
-(Así corrida su numeración en sesión ordinaria N° 010-2010 del 18 de marzo de 2010, que lo traspasó del antiguo artículo 22 al 30 actual)
-(Así corrida su numeración en sesión ordinaria N° 042-2010 del 13 de octubre de 2010, que lo traspasó del antiguo artículo 30 al 35 actual)
+Artículo 35.—Funciones de la Dirección General de Operaciones. Tiene las siguientes funciones:
+1. Ejercer la dirección de los departamentos a su cargo, para que su accionar contribuya al desarrollo de la regulación en el mejor interés de los usuarios de los servicios al público, así como para que cumplan en tiempo con las instrucciones del Consejo de la SUTEL así como con las solicitudes de las demás dependencias de la institución.
+2. Velar por la calidad y la oportunidad de los servicios brindados por los departamentos a su cargo al resto de la organización.
+3. Dictar como órgano decisor, las resoluciones en el ámbito de su competencia definido en este artículo.
+4. Facilitar el diseño y la mejora continua de los procesos y los procedimientos institucionales.
+5. Coordinar el diseño y la implementación de los procesos de organización, reorganización y transformación administrativa.
+6. Adicionalmente, todas aquellas otras funciones que le asigne el Consejo de la SUTEL.
+(Así adicionado mediantes sesión ordinaria N° 054-2011 del 31 de agosto del 2011)

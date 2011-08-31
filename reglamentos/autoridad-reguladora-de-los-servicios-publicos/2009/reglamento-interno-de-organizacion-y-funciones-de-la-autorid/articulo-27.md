@@ -1,3 +1,8 @@
-Artículo 27.—De la Dirección General de Calidad. Es responsable de ejercer la regulación desde la perspectiva de calidad de servicio. Tramita, investiga y resuelve las quejas de los usuarios finales de los servicios de telecomunicaciones, para lo cual podrá contar con los servicios que prestan las áreas de apoyo de la Autoridad Reguladora. Evalúa la calidad del servicio de los operadores y proveedores, para lo cual realiza estudios técnicos programados así como aquellos que la resolución de quejas requiera. Monitorea constantemente el espectro radioeléctrico para garantizar su uso efectivo. Depende directamente del Consejo. Está conformada por dos unidades administrativas en materia de Calidad de Redes y en materia de Espectro Radioeléctrico.
-(Así reformado en sesión ordinaria N° 042-2010 del 13 de octubre de 2010)
+Artículo 27.—Funciones de las Direcciones Generales de la SUTEL. Todas las Direcciones Generales que conforman la SUTEL tendrán las siguientes funciones:
+1. Ejercer la dirección de las unidades administrativas que tienen a su cargo para que se cumplan en tiempo los acuerdos del Consejo de la SUTEL y se desarrollen eficientemente las funciones específicas que le están definidas en este reglamento.
+2. Tomar las medidas necesarias para que se ejecuten los acuerdos tomados por el Consejo de la SUTEL.
+3. Dictar las resoluciones en el ámbito de su competencia definido en este reglamento.
+4. Velar por la calidad y la oportunidad de los servicios que brindan sus unidades administrativas al resto de la organización.
+5. Cualesquiera otras funciones relacionadas con su ámbito de acción y que le sean asignadas por el Consejo.
 (Así adicionado en sesión ordinaria N° 010-2010 del 18 de marzo de 2010)
+(Así reformado mediante sesión ordinaria N° 054-2011 del 31 de agosto del 2011)

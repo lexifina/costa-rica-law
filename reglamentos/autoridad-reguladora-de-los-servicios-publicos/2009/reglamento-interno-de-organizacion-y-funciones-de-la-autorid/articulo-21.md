@@ -1,3 +1,9 @@
-Artículo 21.—Unidades de apoyo del Consejo. El Consejo tendrá como áreas de apoyo a su gestión en las siguientes materias, i) una Secretaría de Consejo, ii) una Unidad Jurídica que coordina el área jurídica de las distintas Direcciones Generales y otras unidades auxiliares, iii) una Unidad Administrativa para los servicios de apoyo adquiridos de la ARESEP, según el artículo 17 del presente reglamento; así como los asesores cuyas plazas hayan sido aprobadas por la Junta Directiva de ARESEP. El superior jerárquico inmediato de estas unidades administrativas será el Consejo.
-(Así reformado en sesión ordinaria N° 042-2010 del 13 de octubre de 2010)
+Artículo 21.—Unidades de apoyo del Consejo de la SUTEL. El Consejo tendrá como áreas de apoyo a su gestión las siguientes unidades administrativas:
+· Secretaría de Consejo.
+· Unidad Jurídica.
+· Contraloría de Servicios.
+· Comunicación.
+Además contará con los asesores cuyas plazas hayan sido aprobadas por la Junta Directiva de ARESEP.
+El superior jerárquico inmediato de estas unidades administrativas será el Consejo.
 (Así adicionado en sesión ordinaria N° 010-2010 del 18 de marzo de 2010)
+(Así reformado mediante sesión ordinaria N° 054-2011 del 31 de agosto del 2011)
