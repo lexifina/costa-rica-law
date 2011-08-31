@@ -3,5 +3,6 @@ Los sujetos pasivos deberán presentar, cada tres (3) años, a partir de la fech
 Cuando el bien inmueble objeto de este impuesto pertenezca a varios copropietarios, estos deberán declararlo en forma conjunta.
 El propietario de dos o más bienes inmuebles colindantes y/o superpuestos, deberá acumularlos en una sola declaración, para los efectos de este impuesto, siempre y cuando su uso coincida con los indicados en el artículo 2 de esta Ley, y dichos bienes conformen una unidad de uso habitacional.
 En el régimen de propiedad en condominio, la declaración de cada condominio deberá incluir el valor proporcional que le corresponda por las áreas comunes.
-En caso de traspaso de la propiedad del bien inmueble, el nuevo propietario será responsable solidario del pago del impuesto del período fiscal vigente a la fecha de adquisición, así como de los intereses, las multas y las sanciones, correspondientes.
+En caso de traspaso de la propiedad del bien inmueble, el nuevo propietario será responsable solidario del pago del impuesto del período fiscal vigente a la fecha de adquisición, así como de los intereses correspondientes.
+(Así reformado el párrafo anterior por el artículo 3° aparte a) de la ley N° 8981 del 25 de agosto del 2011)
 Únicamente los propietarios de los bienes inmuebles referidos en el artículo 6 anterior, estarán exentos del deber de declarar.

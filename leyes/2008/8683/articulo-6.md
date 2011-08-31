@@ -6,7 +6,7 @@ b) Los bienes inmuebles propiedad del Gobierno central y las municipalidades.
 c) Los bienes inmuebles propiedad de instituciones públicas, juntas administrativas o de educación e instituciones de salud de carácter público.
 d) Los bienes inmuebles declarados patrimonio histórico y arquitectónico, de conformidad con la ley.
 e) Los bienes inmuebles declarados de interés social por el Banhvi.
-f) Los bienes inmuebles adjudicados o recibidos en pago de obligaciones por parte de intermediarios financieros autorizados por la Superintendencia General de Entidades Financieras (Sugef).
+f) (Derogado por el artículo 3° aparte e) de la ley N° 8981 del 25 de agosto del 2011)
 g) Los bienes inmuebles pertenecientes a iglesias y organizaciones religiosas, únicamente cuando se dediquen al culto.
 h) Los bienes inmuebles pertenecientes al Instituto Centroamericano de Administración de Empresas (Incae), a la Universidad Escuela de Agricultura de la Región Tropical Húmeda (Earth), al Centro Agronómico Tropical de Investigación y Enseñanza (Catie) y a la Universidad para la Paz.
 i) Los bienes inmuebles propiedad de entidades de bienestar social sin fines de lucro o usados por ellas.
