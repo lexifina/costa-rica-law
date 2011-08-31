@@ -1,27 +1,8 @@
-ARTÍCULO 47.- Devolución
-La devolución podrá efectuarse de oficio o a petición de parte,
-siguiendo los trámites y procedimientos que reglamentariamente se establezcan.
-No procede devolución alguna por saldos acreedores correspondientes
-a períodos fiscales respecto de los que haya prescrito el derecho del
-Fisco para determinar y liquidar el tributo.
-Para garantizar la devolución indicada en este artículo, en el
-Capítulo correspondiente a la Administración Tributaria de la Ley de
-Presupuesto Ordinario de la República, debe incluirse anualmente una
-partida, cuya estimación estará a cargo de la Administración Tributaria.
-El monto de dicha partida deberá depositarse en una cuenta especial de la
-Tesorería Nacional, contra la cual esta podrá girar en atención a las
-resoluciones que, para estos efectos, emitan los órganos de la
-Administración Tributaria.
-Las devoluciones correspondientes al ejercicio económico en vigencia
-se efectuarán con cargo a la partida de ingresos respectiva.
-El Director General de la Administración Tributaria o los gerentes
-de las administraciones tributarias y de grandes contribuyentes en
-quienes él delegue, total o parcialmente, deberán emitir y firmar toda
-resolución referida a la devolución de saldos acreedores o su crédito,
-originados por concepto de tributos, pagos a cuenta, sanciones, intereses
-o cualquier otro saldo, reclamado para la restitución de lo pagado indebidamente,
-por concepto de tributos a favor de los contribuyentes o responsables.
-(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de
-1999)
-(Así reformado por el inciso d) del artículo 27 de la Ley N° 8114,
-Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001)
+Artículo 47.-Devolución. La devolución podrá efectuarse de oficio o a petición de parte, siguiendo los trámites y procedimientos que reglamentariamente se establezcan.
+(Así reformado el párrafo anterior por el artículo 27 aparte d) de la Ley de Simplificación y Eficiencia Tributarias, N° 8114 del 4 de julio de 2001)
+No procede devolución alguna por saldos acreedores correspondientes a períodos fiscales respecto de los que haya prescrito el derecho del Fisco para determinar y liquidar el tributo.
+Toda devolución por concepto de tributos, incluso los intereses respectivos, entre otros cargos, si existen, independientemente del ejercicio económico en que se generó el crédito, se efectuará con cargo a la partida de ingresos del ejercicio económico en que se ejecute la devolución.
+(Así reformado el párrafo 3) y 4) anterior por el artículo 2° de la ley N° 8981 del 25 de agosto del 2011)
+El Director General de la Administración Tributaria o los gerentes de las administraciones tributarias y de grandes contribuyentes en quienes él delegue, total o parcialmente, deberán emitir y firmar toda resolución referida a la devolución de saldos acreedores o su crédito, originados por concepto de tributos, pagos a cuenta, sanciones, intereses o cualquier otro saldo, reclamado para la restitución de lo pagado indebidamente, por concepto de tributos a favor de los contribuyentes o responsables.
+(Así adicionado el párrafo anterior por el artículo 27 aparte d) de la Ley de Simplificación y Eficiencia Tributarias, N° 8114 del 4 de julio de 2001)
+(Así reformado por el artículo 1° de la ley N° 7900 del 3 de agosto de 1999)
