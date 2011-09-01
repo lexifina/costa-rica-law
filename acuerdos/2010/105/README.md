@@ -14,3 +14,4 @@ Crea Comisión Multidisciplinaria, Asesora Ad Honorem en materia de Seguridad Vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-19 | la propia norma |
+| 2 | 2011-09-01 | Acuerdo 126 (2011-09-01) |
