@@ -14,3 +14,4 @@ Reglamento para el Pago de Gastos de Transporte, Hospedaje y Alimentación a los
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-24 | la propia norma |
+| 2 | 2011-09-01 | Reglamento municipal 70 (2011-09-01) |
