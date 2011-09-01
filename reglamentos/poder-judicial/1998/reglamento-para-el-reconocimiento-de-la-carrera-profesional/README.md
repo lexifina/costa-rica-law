@@ -15,3 +15,4 @@ Reglamento para el reconocimiento de la Carrera Profesional en el Poder Judicial
 | --- | --- | --- |
 | 1 | 1999-04-23 | la propia norma |
 | 2 | 2010-10-12 | Circular 134 (2010-10-12) |
+| 3 | 2011-09-01 | Circular 103 (2011-09-01) |
