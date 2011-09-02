@@ -1,0 +1,2 @@
+Artículo 46
+Las actividades de capacitación, actualización y formación podrán ser organizadas dentro o fuera de la jornada laboral, tratándose de organizarlas preferiblemente fuera de la misma. Cuando las actividades de capacitación se reciban fuera de la jornada laboral en forma total o parcial, no generarán derecho al pago de horas extras, ni al pago de doble jornada laboral en forma total o parcial.

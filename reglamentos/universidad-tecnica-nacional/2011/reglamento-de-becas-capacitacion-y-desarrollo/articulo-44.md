@@ -1,0 +1,2 @@
+Artículo 45
+El exbecario que firmó contrato de adjudicación de beca con la Universidad, no podrá disfrutar del beneficio de una nueva beca superior a los seis meses, sino hasta después de haber cumplido al menos el 75% del compromiso laboral. Teniendo en cuenta el principio de conveniencia Institucional, la Comisión dispensará del cumplimiento de este requisito a los exbecarios que vayan a continuar estudios de postgrado.

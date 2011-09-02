@@ -1,0 +1,3 @@
+Artículo 32
+La responsabilidad del becario se determinará por el procedimiento que legalmente corresponda y el expediente sería levantado por la Dirección de Asesoría Jurídica. En el caso de responsabilidad pecuniaria, los montos adeudados a que se refiere el inciso anterior, serán calculados tomando en cuenta únicamente el salario base vigente de la categoría en que está ubicado, ya sea que el funcionario esté recibiendo salario o no.
+El cálculo del monto adeudado se estimará de acuerdo con la jornada de trabajo a que estuviere comprometido el becario, multiplicado por el número de meses de trabajo incumplidos, según el contrato de beca.
