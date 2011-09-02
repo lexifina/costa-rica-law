@@ -1,0 +1,1 @@
+Artículo 6º—Responsabilidades relacionadas con la aprobación presupuestaria interna. El Concejo Municipal deberá de manera oportuna conocer, verificar y pronunciarse mediante acto razonado sobre el cumplimiento del bloque de legalidad aplicable a las modificaciones presupuestarias.
