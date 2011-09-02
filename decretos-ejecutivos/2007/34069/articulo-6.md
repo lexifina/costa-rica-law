@@ -1,6 +1,0 @@
-Artículo 6º—Con miras a la operatividad del Instituto, así como a promover su carácter integral, se trabajarán las siguientes áreas:
-a) Investigación: en esta área se desarrollarán iniciativas de investigación orientadas a la práctica educativa, de manera tal, que contribuya a la reflexión e innovación sobre los perfiles del personal en servicio del sistema educativo.
-b) Desarrollo de planes y programas: tendrá a su cargo todo lo relacionado con la gestión, planificación, ejecución de las diferentes actividades de desarrollo profesional, dirigidas al personal en servicio del sistema educativo.
-c) Seguimiento y evaluación: establecerá los procedimientos y estrategias necesarias para evaluar y dar seguimiento a las actividades de capacitación, así como determinar su impacto en el desempeño laboral del personal capacitado.
-d) Certificación del personal en servicio: tendrá a su cargo la implementación de los procedimientos de certificación del personal en servicio del Ministerio de Educación Pública, que haya recibido cursos de capacitación en el Instituto.
-e) Material de apoyo: será el área responsable de la producción y reproducción de materiales de apoyo para las diferentes actividades que promuevan el desarrollo profesional.

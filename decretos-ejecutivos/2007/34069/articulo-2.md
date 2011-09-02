@@ -1,1 +1,0 @@
-Artículo 2º—Este decreto tiene por objeto organizar la estructura y funcionamiento del Instituto de Desarrollo Profesional Uladislao Gámez Solano, delimitar sus competencias y responsabilidades, así como, servir de marco jurídico para la generación de procesos de desarrollo profesional del personal en servicio que conforma el sistema educativo público costarricense.

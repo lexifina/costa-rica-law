@@ -1,1 +1,0 @@
-Artículo 3º—El Instituto de Desarrollo Profesional Uladislao Gámez Solano es el órgano de desconcentración mínima del Ministerio de Educación Pública, encargado de la ejecución de un conjunto coherente de planes, programas, políticas y disposiciones legales que potencien el desarrollo profesional del personal en servicio del sistema educativo costarricense.

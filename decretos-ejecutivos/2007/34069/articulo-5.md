@@ -1,8 +1,0 @@
-Artículo 5º—Son objetivos del Instituto de Desarrollo Profesional Uladislao Gámez Solano:
-a) Fortalecer los valores en que está fundado el Estado costarricense.
-b) Desarrollar de manera técnica, efectiva y eficiente las etapas involucradas en el Desarrollo Profesional.
-c) Promover la reflexión, la investigación, el análisis, la interacción pedagógica y cultural, que propicien el mejoramiento de la calidad profesional del personal en servicio del Ministerio de Educación Pública.
-d) Impulsar planes de capacitación y actualización del personal en servicio del Ministerio de Educación Pública, que garanticen el desarrollo profesional y la certificación del mismo, dotándolos de los conocimientos necesarios y de una conciencia crítica y proactiva, que les permita actuar responsablemente frente a los requerimientos del sistema educativo costarricense.
-e) Promover que el personal en servicio que conforma el sistema educativo sea sujeto de su propio proceso de capacitación actualización y autoaprendizaje, de manera tal que le permita enlazar conocimientos previos con nuevas investigaciones en un proceso coherente e integral de formación.
-f) Promover, mediante un vínculo de cooperación y coordinación con las instituciones de educación superior, que el personal en servicio del Ministerio de Educación Pública, tenga acceso a los saberes producidos en tiempos recientes y que estén relacionados con su quehacer profesional, así como la capacidad para operar sobre ellos, generando compromisos, responsabilidades, nuevos retos e interrogantes.
-g) Promover y garantizar la inclusividad y las perspectivas de género y de desarrollo sostenible en los procesos de desarrollo profesional permanente.
