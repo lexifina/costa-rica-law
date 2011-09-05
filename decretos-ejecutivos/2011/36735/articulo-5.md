@@ -1,0 +1,3 @@
+Artículo 5º—Se reforma el artículo 22 del Reglamento del Consejo Nacional de Salarios, el cual dirá:
+“Artículo 22.—El quórum para que pueda sesionar válidamente el Consejo será de cinco de sus miembros con derecho a voto. Si no hubiese quórum, el Presidente podrá convocar a sesión nuevamente veinticuatro horas después de la señalada para la primera, con el envío a los Directores de la agenda a tratar.
+Si en esta segunda convocatoria tampoco hubiere quórum, en casos de urgencia y a juicio del Presidente, el Consejo podrá sesionar validamente media hora después con la presencia de cuatro miembros con derecho a voto”.
