@@ -1,0 +1,1 @@
+2. Excluir la Nota Técnica 54 al inciso arancelario 8542.31.80.00, por corresponderle la Nota Técnica 269, toda vez que comprende desperdicios y desechos peligrosos, de los regulados por el Convenio de Basilea.
