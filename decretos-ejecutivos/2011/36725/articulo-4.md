@@ -1,0 +1,2 @@
+Artículo 4º—Rige a partir de su publicación en el Diario Oficial La Gaceta, excepto para el caso de las reformas a los artículos 127, 127 bis, 127 ter, 127 quáter, 127 quinquies, 127 sexies, 128, 129, 130, 130 bis, 130 ter, 130 quáter, las cuales empezarán a regir dos meses después de su publicación en el Diario Oficial La Gaceta.
+Dado en la Presidencia de la República.—San José, a los veintiséis días del mes de julio de dos mil once.
