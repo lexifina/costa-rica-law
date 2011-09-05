@@ -1,0 +1,2 @@
+ARTÍCULO 27.- Procedimiento sancionatorio
+De oficio o a instancia de parte, la Prodhab podrá iniciar un procedimiento tendiente a demostrar si una base de datos regulada por esta ley está siendo empleada de conformidad con sus principios; para ello, deberán seguirse los trámites previstos en la Ley General de la Administración Pública para el procedimiento ordinario. Contra el acto final cabrá recurso de reconsideración dentro del tercer día, el cual deberá ser resuelto en el plazo de ocho días luego de recibido.

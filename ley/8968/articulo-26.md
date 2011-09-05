@@ -1,0 +1,2 @@
+ARTÍCULO 26.- Efectos de la resolución estimatoria
+Si se determina que la información del interesado es falsa, incompleta, inexacta, o bien, que de acuerdo con las normas sobre protección de datos personales esta fue indebidamente recolectada, almacenada o difundida, deberá ordenarse su inmediata supresión, rectificación, adición o aclaración, o bien, impedimento respecto de su transferencia o difusión. Si la persona denunciada no cumple íntegramente lo ordenado, estará sujeta a las sanciones previstas en esta y otras leyes.
