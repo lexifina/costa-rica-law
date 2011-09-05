@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Personal de la Agencia
+La Prodhab contará con el personal técnico y administrativo necesario para el buen ejercicio de sus funciones, designado mediante concurso por idoneidad, según el Estatuto de Servicio Civil o bien como se disponga reglamentariamente. El personal está obligado a guardar secreto profesional y deber de confidencialidad de los datos de carácter personal que conozca en el ejercicio de sus funciones.

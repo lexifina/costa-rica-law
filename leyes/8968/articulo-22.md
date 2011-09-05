@@ -1,0 +1,3 @@
+ARTÍCULO 22.- Divulgación
+La Prodhab elaborará y ejecutará una estrategia de comunicación dirigida a permitir que los administrados conozcan los derechos derivados del manejo de sus datos personales, así como los mecanismos que el ordenamiento prevé para la defensa de tales prerrogativas. Deberá coordinar con los gobiernos locales y con la Defensoría de los Habitantes de la República la realización periódica de las actividades de divulgación entre los habitantes de los cantones.
+Asimismo, promoverá entre las personas y empresas que recolecten, almacenen o manipulen datos personales, la adopción de prácticas y protocolos de actuación acordes con la protección de dicha información.
