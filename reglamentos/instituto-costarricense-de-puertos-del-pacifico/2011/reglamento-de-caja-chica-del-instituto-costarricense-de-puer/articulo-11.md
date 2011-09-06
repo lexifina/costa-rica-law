@@ -1,0 +1,2 @@
+Artículo 11.—De la custodia de los fondos de caja chica: Los fondos de caja chica asignados por la Junta Directiva estarán bajo la custodia del cajero o del funcionario que lo sustituya en sus ausencias.
+Sin embargo, dadas las circunstancias especiales del INCOP en San José, en donde no existe la figura del cajero, los fondos de caja chica estarán bajo la custodia del funcionario que designe el Gerente General, quien deberá dar cumplimiento en todos sus aspectos con lo establecido en este reglamento.
