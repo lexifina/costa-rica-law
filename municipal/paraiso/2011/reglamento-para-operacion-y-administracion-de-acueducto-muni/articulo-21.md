@@ -1,0 +1,2 @@
+Artículo 21.—Inquilino. Corresponde al abonado el pago del servicio de agua potable. Cuando éste dejare de pagarlo, el inquilino podrá hacerlo y la Municipalidad estará en la obligación de recibir el pago correspondiente.
+Con la promulgación del presente Reglamento la Municipalidad eliminara los complementos (pajas de agua) y cobrara el servicio al dueño registral, poseedor de la propiedad ya sea obtenida por medio de donación, herencia, etc.

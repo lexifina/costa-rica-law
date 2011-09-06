@@ -1,0 +1,1 @@
+Artículo 15.—De la lectura del hidrómetro. La lectura de los hidrómetros se hará mensualmente y se cobrará mensualmente de acuerdo al metraje cúbico registrado durante ese mes y al valor del mismo según la tabla de bloques de consumo.

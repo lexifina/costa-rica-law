@@ -1,0 +1,1 @@
+Artículo 9º—De la renuncia al servicio. Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud por escrito ante la Municipalidad de Paraíso, para lo cual deberá encontrarse al día en el pago de todas las tasas y tributos municipales.
