@@ -14,3 +14,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-23 | la propia norma |
+| 2 | 2011-09-06 | Decreto Ejecutivo 36755 (2011-09-06) |

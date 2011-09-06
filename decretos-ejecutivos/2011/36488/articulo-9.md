@@ -1,3 +1,4 @@
-CAPÍTULO IV
+CAPÍTULO IV(*)
 De la programación y evaluación
-Artículo 9º—Las entidades públicas, ministerios y demás órganos, aplicarán los lineamientos técnicos y metodológicos para la programación estratégica sectorial e institucional, elaborados por el MH y MIDEPLAN, en coordinación con la Contraloría General de la República y emitidos por el Poder Ejecutivo.
+(*)(Derogado el capítulo anterior por el artículo 4° del decreto ejecutivo N° 36755 del 6 de setiembre de 2011)
+Artículo 9º—(Derogado por el artículo 4° del decreto ejecutivo N° 36755 del 6 de setiembre de 2011)

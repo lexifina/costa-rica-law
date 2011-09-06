@@ -1,6 +1,6 @@
 Artículo 3º—Para la aplicación del artículo anterior, se excluyen del gasto presupuestario los siguientes conceptos:
 a) Para todas las entidades públicas y demás órganos:
-1. Recursos asignados a proyectos de inversión, (incluyendo todos los gastos directamente relacionados con estos), entendidos como el conjunto de obras de infraestructura, que incluyen las acciones del sector público destinadas a la creación, ampliación o conservación de los bienes de capital del país y cuya programación debe continuar en el periodo 2012. También se excluyen los gastos de mantenimiento asociados a esos proyectos de inversión.
+1. (Derogado por el artículo 3° del decreto ejecutivo N° 36755 del 6 de setiembre de 2011)
 2. Sumas sin asignación presupuestaria.
 3. Amortización.
 4. Intereses y comisiones sobre deuda interna y externa.
