@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-02 | la propia norma |
+| 2 | 2011-09-06 | Acuerdo 26 (2011-09-06) |
