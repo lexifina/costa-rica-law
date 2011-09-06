@@ -1,0 +1,4 @@
+Artículo 8º—El Plazo.
+1. El Departamento de Asuntos Jurídicos atenderá las gestiones de aprobación interna de contratos en un plazo que no podrá exceder de siete días hábiles, que empezará a correr a partir del día hábil siguiente al del recibo de la solicitud que cumpla con todos los requisitos de admisibilidad en el término del artículo 5º, incisos 1 y 2 de este Reglamento.
+2. Ese plazo de siete días hábiles se suspenderá cuando el Departamento de Asuntos Jurídicos formule requerimientos de información adicionales que estime imprescindibles para el estudio de fondo del documento contractual respectivo, según lo establecido en el numeral 5º, inciso 2 de este Reglamento.
+• Ese plazo de siete días hábiles se interrumpirá en caso que la Unidad Interna Competente solicite una modificación al clausulado del contrato, obligando a computar nuevamente el plazo.

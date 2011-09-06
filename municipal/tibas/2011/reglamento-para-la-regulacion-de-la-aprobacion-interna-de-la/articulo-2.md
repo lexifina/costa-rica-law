@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Con las excepciones que se dirán, las disposiciones contenidas en este reglamento serán aplicables a las contrataciones o convenios interinstitucionales y con sujetos de derecho privado, que celebre la Municipalidad, en el tanto comprometan fondos públicos.
