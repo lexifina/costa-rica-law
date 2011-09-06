@@ -1,0 +1,1 @@
+2º—Incluir en el encabezado del Mensaje de Solicitud de Autorización de Operaciones para Inventario, una Tabla de Tipo de Operaciones sobre Inventarios a fin de clarificar la información que se debe declarar en forma obligatoria según tipo de solicitud a realizar.
