@@ -1,1 +1,1 @@
-Artículo 3º—Los locales comerciales y locales comerciales mixtos deberán exhibir rótulos visibles sobre la permanencia de menores de dieciséis años en ellos.
+Artículo 3º—(Mediante sesión ordinaria N° 36-2011 del 6 de setiembre del 2011, se establece derogar este numeral y se indica que en adelante las solicitudes de patentes deberán ser presentadas en el Departamento de Rentas)

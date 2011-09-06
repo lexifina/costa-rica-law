@@ -14,3 +14,4 @@ Reglamento de las Máquinas Tragamonedas Permitidas por Ley que se Explotan en e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-31 | la propia norma |
+| 2 | 2011-09-06 | Reglamento municipal 36 (2011-09-06) |
