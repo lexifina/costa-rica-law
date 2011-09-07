@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE MONTES DE ORO
+El Concejo Municipal de la Municipalidad de Montes de Oro, mediante inciso 15), capítulo N° III, de la sesión extraordinaria N° 10-11, del 29 de junio del 2011, acordó en forma definitiva, adherirse al nuevo Manual de Valores Base Unitarios por Tipología Constructiva 2011, publicado en el Diario oficial La Gaceta N° 30 del 11 de febrero del 2011. Esto para todos los efectos legales correspondientes.
