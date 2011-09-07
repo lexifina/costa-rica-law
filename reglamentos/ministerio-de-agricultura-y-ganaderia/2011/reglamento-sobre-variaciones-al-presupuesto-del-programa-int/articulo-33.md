@@ -1,0 +1,1 @@
+Artículo 33.—El incumplimiento de lo establecido en este Reglamento dará lugar a la aplicación de la responsabilidad administrativa establecida en la Ley, lo anterior sin perjuicio de las acciones civiles o penales correspondientes.

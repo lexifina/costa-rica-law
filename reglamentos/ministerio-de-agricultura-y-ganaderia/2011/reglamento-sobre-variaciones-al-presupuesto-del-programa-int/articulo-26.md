@@ -1,0 +1,8 @@
+Artículo 26.—La aprobación de las modificaciones presupuestarias corresponderá al Consejo Directivo o a la Gerencia General del PIMA, según se establece a continuación. Dichos órganos, mediante acto razonado y considerando la naturaleza, cuantía y origen de los recursos y el efecto de las variaciones en cumplimiento de los objetivos y metas del plan anual operativo y del plan operativo institucional, procederán con la respectiva aprobación presupuestaria interna.
+1) Requerirán aprobación presupuestaria interna del Consejo Directivo aquellas modificaciones que contengan los siguientes tipos de movimientos:
+i) Que modifiquen gastos de inversión, por proyectos de desarrollo de obras o mejoras sustanciales a la infraestructura, así como la adquisición de automóviles, contempladas dentro de la partida Bienes Duraderos, siempre y cuando signifiquen una variación al PAO y/o al POI.
+ii) Que signifiquen aumentos en la partida de Remuneraciones que haga exceder el monto global inicialmente presupuestado en esta partida.
+iii) Que signifiquen aumentos o disminuciones entre: partidas, subpartidas, programas, subprogramas y unidades ejecutoras o centros de costo, que afecten el PAO y/o el POI.
+2) Requerirán aprobación presupuestaria interna de la Gerencia General aquellas modificaciones que contengan los siguientes tipos de movimientos:
+i) Que signifiquen aumentos o disminuciones dentro de la partida de Remuneraciones que no haga exceder el monto global inicialmente presupuestado en la partida de Remuneraciones.
+ii) Que signifiquen aumentos o disminuciones entre: partidas, subpartidas, programas, subprogramas y unidades ejecutoras o centros de costo, que no afecten el PAO y/o el POI.

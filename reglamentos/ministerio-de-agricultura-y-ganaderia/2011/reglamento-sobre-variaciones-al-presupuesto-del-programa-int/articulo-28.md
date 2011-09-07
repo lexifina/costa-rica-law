@@ -1,0 +1,1 @@
+Artículo 28.—Los saldos disponibles de las asignaciones presupuestarias caducarán al 31 de diciembre de cada año. Las obligaciones no debitadas a esa fecha, se afectarán automáticamente en el ejercicio económico siguiente y se imputarán a los créditos disponibles para ese ejercicio, siempre y cuando se encuentre debidamente contemplado en el presupuesto del año siguiente.

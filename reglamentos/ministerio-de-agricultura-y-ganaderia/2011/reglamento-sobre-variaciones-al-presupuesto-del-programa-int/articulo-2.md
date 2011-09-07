@@ -1,0 +1,1 @@
+Artículo 2º—El Proceso de Presupuesto, de la Dirección Administrativa Financiera, se constituye en el órgano técnico especializado coordinador de los procesos de elaboración y variaciones al Presupuesto Institucional y en los aspectos que con él se relacionen.

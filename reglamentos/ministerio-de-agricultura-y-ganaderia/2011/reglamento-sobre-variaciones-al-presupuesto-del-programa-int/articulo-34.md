@@ -1,0 +1,1 @@
+Artículo 34.—Lo no regulado expresamente en este Reglamento, se integrará supletoriamente con el “Reglamento sobre variaciones al presupuesto de los entes y órganos públicos, municipalidades y entidades de carácter municipal, fideicomisos y sujetos privados”, emitido por la Contraloría General de la República y demás normativa de Derecho Público correspondiente.

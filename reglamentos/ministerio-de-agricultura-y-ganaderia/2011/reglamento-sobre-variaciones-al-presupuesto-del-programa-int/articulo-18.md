@@ -1,0 +1,1 @@
+Artículo 18.—Para la aprobación del presupuesto, así como para cualquier modificación se requerirá de un acto motivado que indique el cumplimiento del Principio de Legalidad contemplado en el Artículo 11 de la Constitución Política.

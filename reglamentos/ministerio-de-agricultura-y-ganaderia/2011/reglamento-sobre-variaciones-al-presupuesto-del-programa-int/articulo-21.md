@@ -1,0 +1,1 @@
+Artículo 21.—Una vez que el presupuesto extraordinario sea aprobado por el Consejo Directivo en firme, será remitido a la Contraloría General de la República, dentro de los cinco días hábiles siguientes, por los medios establecidos por dicha Contraloría General, salvo aquellos casos en que el plazo se establezca en el ordenamiento jurídico.

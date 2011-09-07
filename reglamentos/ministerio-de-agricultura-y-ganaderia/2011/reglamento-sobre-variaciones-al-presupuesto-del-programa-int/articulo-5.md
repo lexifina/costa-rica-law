@@ -1,0 +1,1 @@
+Artículo 5º—La responsabilidad del resultado de la planeación y ejecución presupuestaria le compete directamente a las unidades o procesos a cargo de un Programa, Subprograma o Unidades Ejecutoras. La evaluación, seguimiento y control de la ejecución del presupuesto, la ejercerá el Proceso de Presupuesto.

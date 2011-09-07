@@ -1,0 +1,1 @@
+Artículo 25.—El número máximo de modificaciones presupuestarias que se presentarán para su aprobación a los órganos competentes, en un período económico, será de doce. En caso excepcional podrían presentarse documentos adicionales, por razones debidamente justificadas y previamente autorizadas por parte del Consejo Directivo.

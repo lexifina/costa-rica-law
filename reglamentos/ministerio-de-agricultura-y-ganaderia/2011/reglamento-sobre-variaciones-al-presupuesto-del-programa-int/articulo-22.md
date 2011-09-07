@@ -1,0 +1,1 @@
+Artículo 22.—El número máximo de presupuestos extraordinarios que se presentarán a la Contraloría General de la República para su aprobación, en un período económico, será de tres. En caso excepcional podría presentarse un documento adicional a esa Contraloría, el cual debe estar debidamente justificado y previamente autorizado por parte del ente contralor.

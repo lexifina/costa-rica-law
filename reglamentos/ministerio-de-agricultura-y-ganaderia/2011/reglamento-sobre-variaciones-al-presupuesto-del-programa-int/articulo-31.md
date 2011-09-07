@@ -1,0 +1,2 @@
+Artículo 31.—La Administración en general velará por la ejecución y control del presupuesto a su cargo, manteniendo siempre el sistema de control interno.
+El Proceso de Presupuesto, si en los estudios que efectúe en materia presupuestaria detectara transgresiones al presente Reglamento, al Manual de Cuentas de Presupuesto y a los Instructivos, informará a la Gerencia General sobre las mismas, a efecto de que ésta determine las medidas correctivas y sancionatorias del caso.

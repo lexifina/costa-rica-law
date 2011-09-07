@@ -1,0 +1,1 @@
+Artículo 19.—Toda variación al presupuesto inicial, deberá ser incluida en el sistema denominado SIPP, siguiendo el procedimiento interno establecido y de acuerdo con los lineamientos y procedimientos emitidos en la normativa que al efecto haya dictado o llegue a dictar la Contraloría General de la República.

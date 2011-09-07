@@ -1,0 +1,1 @@
+Artículo 11.—Una vez elaborado el Plan Institucional y el anteproyecto del Presupuesto Ordinario, se procederá con la aprobación presupuestaria interna, para luego someterlo a la aprobación presupuestaria externa.

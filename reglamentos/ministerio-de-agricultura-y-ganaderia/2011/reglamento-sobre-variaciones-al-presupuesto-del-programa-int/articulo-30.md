@@ -1,0 +1,1 @@
+Artículo 30.—La violación del artículo anterior se considerará falta grave, por lo que de presentarse esta situación, se impondrán las acciones que correspondan previa aplicación del debido proceso, todo de acuerdo con el marco jurídico vigente aplicable.

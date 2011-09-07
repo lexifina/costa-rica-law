@@ -1,0 +1,1 @@
+Artículo 4º—Le corresponde tanto a la Unidad de Planificación como al Proceso de Presupuesto aunar esfuerzos a efecto de que se dé una correcta vinculación entre el plan y el presupuesto institucional (Plan-Presupuesto).
