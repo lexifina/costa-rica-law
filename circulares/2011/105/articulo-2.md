@@ -1,0 +1,2 @@
+2) Asimismo se les indica que cuando realicen audiencias orales, previa verificación de la correcta grabación de la misma, deberán remitir el “CD” junto con el expediente, a fin de que la tramitación de los asuntos no sufra de atrasos innecesarios. Además, aquellos despachos que cuenten con el Sistema Costarricense de Gestión tienen la obligación de remitir en forma electrónica todas las sentencias y demás resoluciones que sean apeladas por las partes.
+San José, 7 de setiembre del 2011.
