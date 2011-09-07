@@ -1,1 +1,0 @@
-Artículo 21.—Los errores u omisiones en los certificados deben salvarse por medio de notas al final del documento o mediante documento adicional. Todas las correcciones efectuadas deberán ser firmadas por el Profesional.

@@ -1,1 +1,0 @@
-Artículo 29.—Los profesionales deberán extender facturas timbradas por todas las sumas de dinero que reciban por la emisión de certificados. La omisión de esta razón hará presumir que los honorarios y demás gastos necesarios no fueron cubiertos satisfactoriamente.

@@ -1,1 +1,0 @@
-Artículo 22.—Cuando el evaluado o evaluada deba firmar un certificado y no pueda hacerlo, imprimirá su huella digital en el lugar designado para firmar. El Psicólogo indicará a cual dedo y extremidad corresponde.

@@ -1,1 +1,0 @@
-Artículo 6º—El Colegio comunicará por escrito al Ministerio los profesionales autorizados para la emisión de estos certificados, así como en forma inmediata de aquellos profesionales que se les ha suspendido dicha autorización.

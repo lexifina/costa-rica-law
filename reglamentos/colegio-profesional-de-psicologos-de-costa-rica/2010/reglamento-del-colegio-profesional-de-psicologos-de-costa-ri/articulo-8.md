@@ -1,1 +1,0 @@
-Artículo 8º—Los profesionales en psicología que deseen ser habilitados y tengan antecedentes penales en su hoja de delincuencia, deberán ser evaluados por una Comisión conformada por tres miembros como mínimo, designada por la Junta Directiva del Colegio de Psicólogos de Costa Rica.

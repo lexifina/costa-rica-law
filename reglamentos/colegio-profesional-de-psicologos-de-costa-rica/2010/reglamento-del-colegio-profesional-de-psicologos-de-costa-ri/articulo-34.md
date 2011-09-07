@@ -1,1 +1,0 @@
-Artículo 34.—El presente Reglamento deroga el Manual de normas y procedimientos para la elaboración de certificados psicológicos de idoneidad mental para portar armas de fuego y para laborar en seguridad privada. Rige a partir de su respectiva publicación en el Periódico Oficial La Gaceta.
