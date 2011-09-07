@@ -1,0 +1,1 @@
+Artículo 5º—Para la determinación mediante declaración jurada se aplicará el procedimiento establecido en la Ley y el Capítulo V de este Reglamento; para la imposición directa mediante el Capítulo VI, y por disposición expresa de la Ley, la aplicación de los casos contemplados en los artículos 16 y 17 de la Ley.

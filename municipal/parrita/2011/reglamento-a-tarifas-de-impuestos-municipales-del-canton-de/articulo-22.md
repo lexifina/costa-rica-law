@@ -1,0 +1,1 @@
+Artículo 22.—Ningún traslado o traspaso de licencias municipales, incluyendo la de venta de licores al menudeo y al por mayor, será otorgada, hasta que cumpla con todos los requisitos exigidos por la Sección de Patentes.

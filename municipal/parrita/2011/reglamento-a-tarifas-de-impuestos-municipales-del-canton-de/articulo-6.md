@@ -1,0 +1,1 @@
+Artículo 6º—El impuesto de Patente, deberá ser cancelado por trimestres adelantados. El atraso en la cancelación además de las sanciones que se contemplan en fracción de atraso, sin que pueda exceder en cada caso del 24% del monto adeudado.

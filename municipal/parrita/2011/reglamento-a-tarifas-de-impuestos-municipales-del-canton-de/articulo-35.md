@@ -1,0 +1,1 @@
+Artículo 35.—Procedimiento para la determinación de oficio. Cuando se hiciere una solicitud de patente municipal por primera vez la Municipalidad podrá realizar una estimación tomando como parámetro otros negocios similares de acuerdo a lo que determina la Ley de Patentes en el artículo 15.

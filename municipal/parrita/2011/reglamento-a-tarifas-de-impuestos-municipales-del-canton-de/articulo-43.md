@@ -1,0 +1,1 @@
+Artículo 43.—Las recalificaciones y calificaciones tendrá los recursos de revocatoria ante quien dictó el acto y apelación ante la Alcaldía Municipal. Podrán estar fundadas en motivos de legalidad o inoportunidad y no suspenderá la ejecución del acto.

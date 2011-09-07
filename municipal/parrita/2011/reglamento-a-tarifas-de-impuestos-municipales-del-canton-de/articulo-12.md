@@ -1,0 +1,1 @@
+Artículo 12.—Requisitos Especiales. Los Requisitos Especiales se regirán de acuerdo a las leyes especiales, y serán acorde a la actividad lucrativa según se refiera, además se deberá cumplir con los requisitos generales ya establecidos.

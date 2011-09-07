@@ -1,0 +1,1 @@
+Artículo 16.—La licencia solo podrá suspenderse por incumplimiento en el artículo 81 bis del Código Municipal. La suspensión de la licencia implicará el cierre del local, medidas que se ejecutarán a través de las autoridades correspondientes.
