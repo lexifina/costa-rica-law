@@ -1,0 +1,1 @@
+Artículo 14.—El costo de la valoración realizada por el o la profesional, así como la emisión del respectivo dictamen, los asignará la Junta Directiva del Colegio con un incremento por año del 10% a partir de la aprobación de este Reglamento.

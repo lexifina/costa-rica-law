@@ -1,0 +1,1 @@
+Artículo 22.—Los errores materiales u omisiones en los certificados deben salvarse por medio de notas al final del documento o mediante documento adicional. En ningún caso, podrán modificarse los criterios diagnósticos, la identidad o firma de la persona evaluada. Todas las correcciones efectuadas deberán ser firmadas por el o la Profesional.

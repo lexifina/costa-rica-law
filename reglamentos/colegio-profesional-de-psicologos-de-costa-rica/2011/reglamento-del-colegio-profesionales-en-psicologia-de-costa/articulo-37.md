@@ -1,0 +1,1 @@
+Artículo 37.—El presente Reglamento deroga el Reglamento del Colegio Profesional de Psicólogos de Costa Rica para realizar evaluaciones de idoneidad mental para portar armas de fuego (La Gaceta N° 82, jueves 29 de abril 2010). Rige a partir de su respectiva publicación en el Diario Oficial La Gaceta.

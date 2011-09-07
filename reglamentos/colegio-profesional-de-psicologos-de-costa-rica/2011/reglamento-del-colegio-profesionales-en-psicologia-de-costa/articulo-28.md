@@ -1,0 +1,2 @@
+Artículo 28.—Cuando el formulario o el certificado con el correspondiente dictamen se anulen, extravíen, destruyan, inutilicen, sean sustraídos o se deterioren, total o parcialmente, deberá darse cuenta por escrito al Colegio y detallar los hechos en un plazo máximo de tres días.
+El Colegio ordenará al o la Profesional, la reposición correspondiente, previo pago de esta y, de sospechar un delito, lo denunciará al Ministerio Público para que proceda conforme con la ley. Si el daño fuera únicamente parcial, las partes deterioradas se acompañarán con la solicitud de reposición.

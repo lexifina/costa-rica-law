@@ -1,0 +1,1 @@
+Artículo 11.—Será un imperativo ético y legal del o la profesional que efectúe la evaluación, el informar a la persona evaluada acerca de la inconveniencia de poseer y portar armas, así como de los riesgos a que se pueden ver expuestas en forma directa, ella u otras personas.

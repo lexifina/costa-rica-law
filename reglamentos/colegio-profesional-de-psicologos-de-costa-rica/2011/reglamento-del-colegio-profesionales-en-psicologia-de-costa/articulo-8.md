@@ -1,0 +1,1 @@
+Artículo 8º—El Colegio comunicará por escrito al Ministerio, el listado de los y las profesionales autorizados para la emisión de estos dictámenes, así como en forma inmediata, le informará acerca de aquellos/as profesionales a quienes se les ha suspendido dicha autorización.

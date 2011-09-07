@@ -1,0 +1,1 @@
+Artículo 27.—El o la Profesional serán depositarios y responsables de la guarda y conservación de los formularios que adquieran y tendrán la responsabilidad de la entrega oportuna de los certificados emitidos, ante el Ministerio y el Colegio.

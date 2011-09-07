@@ -1,0 +1,1 @@
+Artículo 3º—La evaluación de la idoneidad para poseer y portar armas será realizada en forma individual, caso por caso, y no como rutina, previo estudio riguroso de cada situación particular. Este criterio se aplicará a todas las personas que soliciten o requieran la evaluación.
