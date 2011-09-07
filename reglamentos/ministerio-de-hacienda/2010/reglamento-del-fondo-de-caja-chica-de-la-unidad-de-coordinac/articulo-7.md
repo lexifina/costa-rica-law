@@ -1,0 +1,1 @@
+Artículo 7.- Registro de Nombres y Firmas. El responsable del Fondo de Caja Chica, comunicará al Director Ejecutivo de la U.C.P. el registro actualizado con el nombre, número de cédula de identidad y firmas de los funcionarios autorizados para operar la cuenta corriente respectiva y así realizar las gestiones de compra, haciendo uso del fondo de Caja Chica.

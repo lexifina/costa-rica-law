@@ -1,0 +1,1 @@
+Artículo 10.- Creación de cajas auxiliares. El Fondo Fijo-Caja Chica tendrá dos cajas auxiliares, las cuales operarán como fondo fijo. En su creación y funcionamiento se deberán atender las disposiciones del artículo 12, incisos a), b), d), e), f), del Reglamento General.

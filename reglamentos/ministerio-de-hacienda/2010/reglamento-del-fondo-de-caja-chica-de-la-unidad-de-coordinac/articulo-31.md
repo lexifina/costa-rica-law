@@ -1,0 +1,17 @@
+Artículo 31.– Requisitos para pagos en Caja Auxiliar. En atención a las erogaciones autorizadas por medio de la Caja Auxiliar, deberán observarse los siguientes requisitos:
+1. Para compras:
+a) Para la compra de un bien o servicio, se deberán presentar adjunto a la Boleta de Pago o Vale, la factura correspondiente, documento que respalda el proceso de compra ante el Área de Administración Financiera.
+b) La Boleta de Pago o Vale, deberá ser confeccionado en forma manual o por medio de sistema computarizado por el Encargado de la Caja Auxiliar
+c) En caso del uso y registro de Boletas de Pago o Vales estandarizados y pre numerados, si son generados por un sistema informático, éste deberá asignar un número consecutivo que los identifique individual y específicamente.
+d) Se deberá verificar por parte del Área de Administración Financiera, la veracidad de los datos consignados en los documentos, la correspondencia del importe, el disponible del contenido presupuestario y autorizaciones correspondientes.
+e) En razón de la inmunidad fiscal del Estado, las compras que se realicen deberán estar exentas del Impuesto General de Ventas, salvo situaciones especiales y autorizadas por el Responsable, en las que se podrán aceptar facturas o comprobantes de caja con el impuesto de venta incluido, a fin de efectuar el pago y reintegro correspondiente.
+f) Toda compra deberá quedar respaldada por: la Factura Comercial, la Boleta de Pago y Vale si corresponde. Estos documentos son responsabilidad del Encargado de la Caja Auxiliar, en cuanto a recibo, emisión y registro, según corresponda.
+g) Los pagos a los proveedores deberán efectuarse a través de efectivo únicamente.
+2. Para viáticos:
+a) En el caso de las liquidaciones o diferencias de viáticos, para gastos de viaje y transporte al interior del país, deberán indicar claramente la fecha de inicio y fin de la gira, los lugares visitados y el motivo del viaje, que deberá estar acorde con las funciones que el servidor realiza, utilizando los documentos establecidos por el Área de Administración Financiera y aprobados por la Contraloría General de la República.
+b) Llenar la solicitud de liquidación de viáticos, la cual deberá ser debidamente justificada.
+c) Cuando la Contraloría General de la República autorice un aumento en el tope de viáticos, se podrá aumentar automáticamente en la caja auxiliar de la UCP, previo conocimiento de la directriz por parte del Director Ejecutivo de de la Unidad de Coordinación del Proyecto Limón Ciudad Puerto.
+d) El Área de Administración Financiera deberá verificar que la información sea correcta y concuerden con las tarifas establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
+e) El funcionario que ha realizado una gira, deberá presentarse a la Dirección de la U.C.P., para la liquidación correspondiente dentro de los siete días hábiles posteriores al regreso de la gira. De no ser así, se procederá conforme lo dispuesto el Artículo 37 del Reglamento General.
+f) El Encargado de la Caja Auxiliar, pagará en efectivo, de acuerdo a la liquidación y los respectivos comprobantes, el exceso en los gastos en la gira realizada.
+g) El funcionario encargado de revisar las liquidaciones de viáticos, deberá verificar que dentro de la solicitud correspondiente, no se incluyan facturas por otros servicios o bienes, tales como lavado de vehículo, cambios de aceite, arreglos de llantas entre otros.

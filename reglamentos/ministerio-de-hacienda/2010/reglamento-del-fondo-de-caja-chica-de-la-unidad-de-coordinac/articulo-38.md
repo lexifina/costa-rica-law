@@ -1,0 +1,5 @@
+Artículo 38.– Informes de arqueos. El Responsable del Fondo Fijo – Caja Chica, en consideración de las particularidades institucionales realizará un programa de revisiones y arqueos internos, para los fondos de Caja Auxiliar, e informará por escrito al Director Ejecutivo el resultado de esta actividad; y seguidamente, archivando en el Área de Administración Financiera la siguiente información:
+a) Programa de arqueos del año siguiente, el cual deberá ser entregado a la Dirección en el mes de diciembre de cada año.
+b) Informe trimestral con arqueos mensuales con los anexos correspondientes, el cual deberá remitirse al Director Ejecutivo por medio de oficio, firmado por el Responsable del Fondo Fijo – Caja Chica.
+c) La información detallada en los documentos elaborados por funcionarios del Área de Administración Financiera referente a los arqueos, deberá contar con el nombre, firma y sello de la Dependencia.
+d) Se deberá mantener en custodia en el Área de Administración Financiera copia del informe equivalente al enviado al Director Ejecutivo, a fin de que pueda ser revisado por otros entes u órganos de fiscalización y control.

@@ -1,0 +1,1 @@
+Artículo 28.- Definición del Fondo Caja Auxiliar. Para los efectos del presente Reglamento, el Fondo de Caja Auxiliar lo constituyen los anticipos de recursos que se conceden por disposición del Director Ejecutivo de la U.C.P., para realizar gastos menores que por su naturaleza deban cancelarse en efectivo, atendiendo a situaciones no previsibles.

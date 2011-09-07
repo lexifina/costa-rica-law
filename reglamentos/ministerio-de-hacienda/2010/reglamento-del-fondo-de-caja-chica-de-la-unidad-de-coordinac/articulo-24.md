@@ -1,0 +1,1 @@
+Artículo 24.– Uso de medios electrónicos. Los trámites de reintegro se realizarán por medio del Sistema de Negociación y Pagos Electrónicos (SINPE), transfiriendo los fondos de la cuenta de Caja Única a la cuenta corriente del Fondo Fijo – Caja Chica en el Banco Estatal, previa solicitud a la Tesorería Nacional.

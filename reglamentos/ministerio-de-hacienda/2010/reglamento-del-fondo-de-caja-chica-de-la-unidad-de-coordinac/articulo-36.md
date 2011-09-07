@@ -1,0 +1,1 @@
+Artículo 36.– Liquidación pendiente. No se autorizará un vale de dinero a un funcionario que tenga una liquidación previa pendiente, debiendo en tal caso el encargado de la Caja Auxiliar solicitar al funcionario la presentación de la liquidación pendiente. El incumplimiento de esta disposición hará incurrir en lo dispuesto en el Artículo 37 del Reglamento General.
