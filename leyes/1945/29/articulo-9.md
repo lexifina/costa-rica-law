@@ -1,1 +1,1 @@
-Artículo 9º.- Los timbres adheridos a los documentos o recibos serán cancelados por el Cónsul con el sello de su oficina.
+Artículo 9º.-(Derogado por el artículo 1° de la ley N° 8959 del 5 de julio de 2011)

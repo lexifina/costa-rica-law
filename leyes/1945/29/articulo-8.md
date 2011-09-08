@@ -1,1 +1,1 @@
-Artículo 8º.- Queda prohibido a los Cónsules cobrar derecho alguno que no esté establecido por las leyes; el importe exacto de los derechos se agregará al documento que causa el pago. Si se tratare de derechos cobrados por cualquiera de los servicios establecidos en el arancel y que no inciden en documento alguno, los timbres se agregarán al recibo que el Cónsul deberá forzosamente otorgar.
+Artículo 8º.- (Derogado por el artículo 1° de la ley N° 8959 del 5 de julio de 2011)

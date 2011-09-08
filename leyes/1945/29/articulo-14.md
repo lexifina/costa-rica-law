@@ -1,1 +1,1 @@
-Artículo 14º.- En los cobros que deban efectuar los Cónsules con sujeción a porcentajes, toda suma o fracción inferior a veinticinco centavos americanos se pagará por esta cantidad.
+Artículo 14.- (Derogado por el artículo 1° de la ley N° 8959 del 5 de julio de 2011)
