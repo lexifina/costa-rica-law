@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Obligación de los proveedores de servicios de Internet
+Todo proveedor de servicios de acceso a Internet que ofrezca o venda estos servicios al público deberá incluir, dentro de su oferta de servicios, la opción de adquirir los filtros y demás programas especiales para bloquear el acceso a sitios con los contenidos indicados en el artículo 2 de esta Ley. La Sutel fiscalizará el cumplimiento de esta obligación.

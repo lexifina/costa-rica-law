@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Reincidencia
+En caso de que, en el plazo de un año, se reincida en el incumplimiento de lo establecido en el artículo 5 de esta Ley, la Sutel, adicionalmente a la sanción atinente, cancelará la autorización de funcionamiento del local infractor y ordenará su cierre, hasta tanto este no se ponga a derecho. Lo anterior sin demérito de las competencias otorgadas por el ordenamiento jurídico a las municipalidades y al Ministerio de Salud en relación con la cancelación de las patentes municipales y de los permisos sanitarios.
