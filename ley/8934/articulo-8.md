@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Educación
+El Patronato Nacional de la Infancia, en coordinación con el Ministerio de Educación Pública, el Ministerio de Ambiente, Energía y Telecomunicaciones, el Ministerio de Ciencia y Tecnología y la Sutel desarrollarán campañas de educación para concienciar a los padres y madres de familia, las personas tutoras o las encargadas de las personas menores de edad, sobre la importancia de velar por la información a la que acceden estos, vía Internet o por algún otro medio electrónico de comunicación.

@@ -1,0 +1,7 @@
+ARTÍCULO 5.- Sanciones
+Serán sancionados con multa de uno a cuatro salarios base, según la gravedad de la falta, las personas propietarias y las personas encargadas de la administración de los establecimientos regulados, que:
+a) Omitan la instalación de los filtros incluidos en los navegadores y en los programas de intercambio o de programas especiales para bloquear el acceso a sitios con los contenidos indicados en el artículo 2 de la presente Ley.
+b) Omitan acondicionar el local, según lo estipulado en el artículo 3 de la presente Ley, o no coloquen los rótulos con la advertencia a las personas menores de edad.
+c) Desactiven o no mantengan en buen funcionamiento los filtros incluidos en los navegadores y en los programas de intercambio o los programas especiales para bloquear el acceso a sitios con los contenidos indicados en el artículo 2.
+La Sutel, como fiscalizador, será la encargada de determinar la responsabilidad en el incumplimiento de esta Ley por parte de la persona propietaria y de la persona encargada según corresponda, y así establecer las sanciones administrativas correspondientes.
+El dinero generado por concepto de las multas establecidas en el presente artículo podrá ser recaudado por las municipalidades donde se encuentre el establecimiento, y se les autoriza para que estos recursos sean destinados a la ejecución de programas que promuevan la defensa de los derechos de las niñas y los niños del municipio respectivo.
