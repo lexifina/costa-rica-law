@@ -1,1 +1,1 @@
-Artículo 7º.- Habrá timbres consulares de veinticinco y cincuenta centavos (moneda americana) y de uno, dos y cinco dólares. Los Cónsules cobrarán su valor en moneda americana o la equivalencia en moneda del país de su residencia y al tipo de cambio legal, a opción de quien paga los derechos.
+Artículo 7º.- (Derogado por el artículo 1° de la ley N° 8959 del 5 de julio de 2011)

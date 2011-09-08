@@ -1,1 +1,1 @@
-Artículo 6º.- Establécese el "Timbre Consular" consistente en un sello de figura cuadrangular que llevará impreso el Escudo Nacional, las leyendas "Costa Rica" y "Timbre Consular", y el valor correspondiente expresado en moneda americana.
+Artículo 6º.-(Derogado por el artículo 1° de la ley N° 8959 del 5 de julio de 2011)
