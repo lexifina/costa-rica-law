@@ -1,0 +1,1 @@
+Artículo 7º—Empresas de seguridad privada. Las empresas de seguridad privada cumplirán a cabalidad con todos los parámetros establecidos en este reglamento, en la prestación del servicio que otorguen a las comunidades, en lo atinente al manejo de las casetas de seguridad y los mecanismos de vigilancia en el acceso a barrios, caseríos y residenciales.

@@ -1,0 +1,1 @@
+Artículo 12.—Autorizaciones no constituyen derechos adquiridos. Las autorizaciones para el uso de vías públicas o bienes de dominio municipal, no constituyen derechos adquiridos a favor de terceros y, en consecuencia, pueden ser revocadas en cualquier momento por el gobierno local. No obstante, esta decisión no podrá ser intempestiva ni arbitraria.

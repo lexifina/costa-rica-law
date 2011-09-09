@@ -1,0 +1,4 @@
+Artículo 10.—Procedimiento administrativo por incumplimiento. El Concejo podrá suspender el permiso respectivo y ordenar de inmediato el impedimento del uso de la caseta o el mecanismo de vigilancia de acceso correspondiente, o bien, su desmantelamiento, cuando se haya comprobado, por parte de la municipalidad, que no se ha respetado la normativa preceptuada en este reglamento.
+Dicha comprobación estará a cargo del Departamento de Control Urbano de la Municipalidad de Curridabat, por medio de acta en el lugar.
+Lo anterior, con el previo traslado y notificación de la denuncia a la organización vecinal involucrada, en estricto apego a los principios del debido proceso, dará lugar a la suspensión de funcionamiento o desmantelamiento señalados, ordenado por el concejo municipal mediante resolución razonada.
+Contra dicha resolución, cualquiera de las partes podrá interponer los recursos establecidos al efecto en el Código Municipal.
