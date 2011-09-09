@@ -1,0 +1,3 @@
+Artículo 4º—Adición al artículo 20. Adiciónese al Adendum I del artículo 20 del Decreto Ejecutivo Nº 35257-MINAET, publicado en el Diario Oficial La Gaceta Nº 103, Alcance Nº 19 del 29 de mayo de 2009, modificado mediante Decreto Ejecutivo Nº 35866-MINAET, publicado en el Diario Oficial La Gaceta Nº 78 del 23 de abril de 2010, la definición de “Radioenlace” al final del apartado denominado “Estaciones y sistemas radioeléctricos”, para que en adelante se lea de la siguiente forma:
+“(…)
+Radioenlace: medio de telecomunicación de características específicas entre dos puntos, que utiliza ondas radioeléctricas”.
