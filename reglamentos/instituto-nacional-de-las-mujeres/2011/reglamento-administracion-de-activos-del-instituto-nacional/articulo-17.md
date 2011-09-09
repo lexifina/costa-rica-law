@@ -1,0 +1,1 @@
+Artículo 17.—Verificación de inventarios. La Proveeduría verificará la existencia de los activos inventariados y corregirá las discrepancias que se presenten con arreglo a lo dispuesto en este reglamento.

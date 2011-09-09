@@ -1,0 +1,1 @@
+Artículo 45.—Recibido conforme de un activo reparado. Una vez reparado el activo, la Proveeduría lo entregará a la jefatura de la unidad administrativa correspondiente, quien firmará dando por recibido el activo reparado.
