@@ -1,1 +1,1 @@
-Transitorio I-. A los camiones cisternas que les expiren la vigencia del certificado antes de la renovación del TC se les hará, por una única vez, una ampliación de la vigencia del mismo. La ampliación se hará por un período que no excederá de los dos años, y deberá solicitarse al Lacomet por escrito, vía fax y aportar constancia de la fecha de renovación del TC (Permiso de Transporte de Combustible).
+Transitorio I-. (Derogado por el artculo 2 del decreto ejecutivo N° 36896 del 9 de setiembre del 2011)

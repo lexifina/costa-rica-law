@@ -9,6 +9,6 @@ III-. Que al tenor de las estipulaciones legales contenidas en el artículo 29, 
 IV-. Que se hace necesario la derogatoria del Decreto Ejecutivo Nº DE-21020-MEIC, del 14 de enero de 1992, publicado en el Diario Oficial La Gaceta Nº 45, el día 04 de marzo de 1992, denominado “Aprueba Norma NCR 145:1991. Metrología, Llenado de Tanques usados en el Transporte de Combustibles”, con el fin de optimizar las funciones atribuidas legalmente al Lacomet mediante la Ley Nº 8279 y su reglamento DE-31819-MEIC, en concordancia con el cumplimiento de requisitos y gestiones en las que estén vinculadas otras entidades gubernamentales, para llevar a cabo el trámite de permiso de transporte de combustible denominado TC. Por tanto;
 DECRETAN:
 PROCEDIMIENTO PARA LA VERIFICACIÓN DE TANQUES USADOS EN EL
-TRANSPORTE DE COMBUSTIBLES
-Artículo 1º-. Objetivo y ámbito de aplicación.
-Este reglamento tiene por objeto garantizar la seguridad metrológica, en el transporte de hidrocarburos transportados por medio de cisternas.
+TRANSPORTE DE COMBUSTIBLES (Excepto GLP)
+Artículo 1º—Objetivo y ámbito de aplicación. Este procedimiento tiene por objeto garantizar la seguridad metrológica en el transporte de hidrocarburos (excepto GLP) por medio de cisternas mediante la verificación de la cámara de expansión.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36896 del 9 de setiembre del 2011)

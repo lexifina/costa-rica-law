@@ -1,17 +1,19 @@
-Artículo 2º-.Definiciones.
-Para efectos de este Reglamento se establecen las siguientes definiciones:
+Artículo 2º—Definiciones. Para efectos de este procedimiento se establecen las siguientes definiciones:
 a) Cámara de expansión: Es la parte superior de un compartimento, destinada a recibir las variaciones de volumen, ocasionadas por los cambios de temperatura.
-b) Cisterna: Conjunto móvil automotor, conformado por cabezal y tanque o ambos en una sola unidad, autorizado por la Dirección General de Transporte y Comercialización de Combustibles -DGTCC-, dependencia del Ministerio de Ambiente, Energía y Telecomunicaciones -MINAET- para el transporte de líquidos combustibles, cementos asfálticos y solventes de alta y baja viscosidad, en carreteras, ferrocarriles, vías marítimas o fluviales, comprendido por uno o varios tanques que puede estar subdividido en compartimientos independientes, con cañas de descarga, válvulas, montado sobre un vehículo o remolcado por él.
-c) Capacidad nominal de un compartimento: Es el volumen de líquido para el cual un compartimento está calibrado, hasta el indicador de nivel.
-d) Capacidad total de un compartimento: Es el volumen máximo de líquido que un compartimento puede contener.
-e) Compartimento: Una de las subdivisiones independientes de un tanque.
-f) Escotillas: Válvulas de fondo.
-g) Indicador de nivel (chapa): Es el dispositivo usado para marcar la capacidad nominal de un compartimento.
-h) Manhole: Bocas de inspección o boca de llenado, en cada compartimento de un cisterna.
-i) Tanque: Recipiente destinado a contener líquidos para ser transportados, o para permitir la medición de su volumen.
-j) TC: Permiso de Transporte de Combustible.
-k) Verificación inicial: Es la señalización de indicadores de nivel (chapas) que se hará a cisternas nuevos, o cuando se ha presentado alguno de los siguientes supuestos:
+b) Capacidad total de un compartimento: Es el volumen máximo de líquido que un compartimento puede contener.
+c) Capacidad nominal de un compartimento: Es el volumen indicado o marcado sobre el tanque de transporte de combustible (cisterna) para cada compartimento e inferior al volumen total de éste.
+d) Cisterna Articulada: Vehículo formado por un cabezal y un remolque que tiene instalado en forma permanente un tanque diseñado para contener hidrocarburos líquidos.
+e) Cisterna integrada: Vehículo que en su chasis tiene instalado en forma permanente un tanque diseñado para contener hidrocarburos líquidos.
+f) Compartimento: Una de las subdivisiones independientes de un tanque.
+g) Escotillas: Válvulas de fondo.
+h) Domo (Manhole): Dispositivo destinado al control y llenado del tanque.
+i) Producto limpio: Se refiere a los productos derivados del petróleo caracterizados por ser de baja viscosidad menor de cuatro Centistokes, entre los cuales se encuentran gasolinas, AV-gas, diesel, kerosene, jet fuel, naftas, biocombustibles, gas licuado de petróleo, propano, butano, etano, metano, gas natural y otros.
+j) Producto negro: Término que se aplica a los productos derivados del petróleo, con una viscosidad mayor de cuatro Centistokes, medidos a una temperatura de referencia de quince coma seis grados centígrados, entre los que se encuentran el bunker (fuel oil), diesel pesado, gasóleo, asfaltos, emulsiones asfálticas y otros.
+k) Tanque o recipiente: Depósito metálico cerrado utilizado para almacenar hidrocarburos líquidos.
+l) TC: Permiso de Transporte de Combustible.
+m) Verificación inicial: Es la señalización del nivel de la cámara de expansión que se hará a cisternas nuevos, o cuando se ha presentado alguno de los siguientes supuestos:
 i. modificaciones en el tanque.
 ii. accidentes que haya sufrido el tanque.
 iii. transferencia del tanque de un chasis a otro.
-l) La verificación subsecuente: Es la verificación de la cámara de expansión y los marcadores de nivel de cada compartimento que se realizará para la renovación del T.C (permiso de transporte de combustibles emitido por el MINAET).
+n) Verificación subsecuente: Es la verificación de la cámara de expansión.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36896 el 9 de setiembre del 2011)

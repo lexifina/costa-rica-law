@@ -1,1 +1,1 @@
-Transitorio II.- Los trámites iniciados antes de la vigencia del presente Decreto Ejecutivo se seguirán tramitando conforme al Decreto Ejecutivo Nº 21020-MEIC del 14 de enero de 1992, publicado en La Gaceta Nº 45 del 04 de marzo de 1992; no así los que se inicien a partir de la vigencia de la presente disposición.
+Transitorio II.- (Derogado por el artculo 2 del decreto ejecutivo N° 36896 del 9 de setiembre del 2011)
