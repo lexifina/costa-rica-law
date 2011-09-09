@@ -1,1 +1,1 @@
-Artículo 27.—Formalización de créditos. Los trámites de formalización del crédito se realizarán en el Departamento de Financiamiento del Instituto Nacional de Fomento Cooperativo (INFOCOOP), conforme a lo dispuesto en el artículo 143 de la Ley Nº 6756.
+Artículo 27.—Formalización de créditos. Los trámites de formalización del crédito se realizarán en el Departamento de Financiamiento del Instituto Nacional de Fomento Cooperativo (INFOCOOP), conforme a lo dispuesto en el Artículo 143 de la Ley Nº 6756.

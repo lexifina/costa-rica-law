@@ -18,3 +18,4 @@ Reglamento General de Crédito
 | 3 | 2009-09-09 | Reglamento 18 (2009-09-09) |
 | 4 | 2010-09-16 | Reglamento 31 (2010-09-16) |
 | 5 | 2011-01-26 | Reglamento 0 (2011-01-26) |
+| 6 | 2011-09-09 | Reglamento 13 (2011-09-09) |

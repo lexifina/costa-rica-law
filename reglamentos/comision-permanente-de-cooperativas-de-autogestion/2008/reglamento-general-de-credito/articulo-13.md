@@ -1,4 +1,4 @@
 Artículo 13.—De los plazos. Los créditos del Fondo Nacional de Autogestión operarán en las tres siguientes modalidades básicas:
-a) Corto plazo: Para capital de trabajo u operaciones, especialmente las comerciales o para préstamos «puente»; Estos no podrán exceder de doce meses.
-b) Mediano plazo: Destinados a capital de trabajo, contratación de personal técnico o gerencial, estudios, asesorías, inversiones y cualquier proyecto productivo autogestionario, que por su naturaleza, rentabilidad o situación económico financiera requieran de plazos mayores de doce meses doce meses. El plazo máximo es de cinco años.
-c) Largo plazo: Para financiar inversiones de infraestructura que por su naturaleza y rentabilidad son de lenta recuperación con un plazo máximo de 10 años que podrá ser excedido en casos muy calificados, con el acuerdo razonable y unánime de la Comisión de Crédito.
+a) Corto plazo: Cualquier crédito que requiera financiamiento a un plazo que no exceda un periodo de 1 año.
+b) Mediano plazo: Destinados a cualquier tipo de financiamiento que requiera cualquier proyecto, que por su naturaleza o situación económica financiera requieran de plazos mayores de un año y hasta un máximo de cinco años.
+c) Largo plazo: Para financiar cualquier proyecto que por su naturaleza son de lenta recuperación con un plazo máximo de veinte años que podrá ser excedido en casos muy calificados, con el acuerdo unánime de la Comisión de Crédito.

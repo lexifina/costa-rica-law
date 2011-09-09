@@ -1,1 +1,1 @@
-Artículo 28.—Control de crédito. Los créditos se otorgarán en forma controlada de acuerdo a las necesidades del proyecto y a las disposiciones de la Comisión o a las disposiciones vigentes.
+Artículo 28.—Control de crédito. Los desembolsos y el control del crédito estará a cargo del Instituto de Fomento Cooperativo.

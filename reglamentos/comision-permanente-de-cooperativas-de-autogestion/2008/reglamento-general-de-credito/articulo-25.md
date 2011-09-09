@@ -1,1 +1,1 @@
-Artículo 25.—Respuesta de la Comisión. Desde el momento en que la Cooperativa solicitante haya cumplido con la presentación de todos los requisitos reglamentarios establecidos, la Comisión dispondrá de un plazo máximo de un mes para dar respuesta a la solicitud respectiva.
+Artículo 25.—Respuesta de la comisión. Desde el momento en que el organismo solicitante haya cumplido con la presentación de todos los requisitos reglamentarios establecidos, la Comisión de Crédito del FNA dispondrá de un plazo máximo de un mes para dar respuesta a la solicitud respectiva.

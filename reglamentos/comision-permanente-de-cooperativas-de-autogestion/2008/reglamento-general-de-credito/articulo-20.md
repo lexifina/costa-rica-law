@@ -1,2 +1,2 @@
-Artículo20.—Prorrogas. Solo se concederán prórrogas en casos calificados ajuicie dé la Comisión de Crédito y en los casos que se aduzcan casos razonados de fuerza mayor; Las prórrogas deberán ser solicitadas con la debida anticipación a la fecha de vencimiento para considerarse válidas.
+Artículo 20.—Prórrogas. Solo se concederán prórrogas en casos calificados ajuicio dé la Comisión de Crédito y en los casos que se aduzcan casos razonados de fuerza mayor. Las prórrogas deberán ser solicitadas con la debida anticipación a la fecha de vencimiento para considerarse válidas.
 Para obtener una prórroga es requisito indispensable e estar al día en el pago de los intereses mediando un arreglo de pago al respecto.
