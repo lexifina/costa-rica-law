@@ -1,0 +1,2 @@
+Artículo 18.—Vigencia: El presente reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta, rige por el plazo de un año, con posibilidad de prorrogarlo.
+Los interesados pueden retirar el reglamento en el Área de Gestión de Bienes y Servicios de este Hospital, o el mismo se encuentra disponible en la Página Web de Caja Costarricense de Seguro Social (www.ccss.sa.cr).

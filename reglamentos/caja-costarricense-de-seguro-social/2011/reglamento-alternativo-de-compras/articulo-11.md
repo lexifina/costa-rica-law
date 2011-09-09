@@ -1,0 +1,1 @@
+Artículo 11.—Selección: Presentadas las ofertas con el detalle de costo de cada uno de los artículos requeridos, el Hospital procederá a la selección de la(s) oferta(s) que presente(n) los precios más bajos por ítem.
