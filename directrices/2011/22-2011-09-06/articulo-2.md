@@ -1,0 +1,1 @@
+Artículo 2º— A partir del año 2012 las entidades públicas, que requieran adquirir equipo de cómputo y vehículos, procurarán realizar dicha gestión mediante la modalidad de “Leasing operativo” (arrendamiento). De igual forma, para la adquisición de bienes y servicios procurarán hacer uso del mecanismo denominado “Convenio Marco”.
