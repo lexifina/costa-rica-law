@@ -1,0 +1,12 @@
+Nº 36742-C
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140, inciso 20) y 146 de la Constitución Política de la República de Costa Rica; 25.1 de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley Nº 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica del 4 de octubre de 1995, publicada en el Diario Oficial La Gaceta Nº 199 del 20 de octubre de 1995; el Decreto Ejecutivo Nº 32749-C, Reglamento a la Ley de Patrimonio Histórico-Arquitectónico de Costa Rica (Nº 7555) del 14 de marzo del 2005, publicado en el Diario Oficial La Gaceta Nº 219 del 14 de noviembre del 2005 y el Decreto Ejecutivo Nº 28245-C del 7 de octubre de 1999, publicado en el Diario Oficial La Gaceta Nº 233 del 1 de diciembre de 1999, y,
+Considerando:
+1º—Que el artículo 2 de la Ley Nº 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica, declaró de interés público la investigación, conservación, restauración, rehabilitación y mantenimiento del Patrimonio Histórico-Arquitectónico de la Nación.
+2º—Que el artículo 15 de la citada ley, autoriza a todas las instituciones públicas para efectuar donaciones e inversiones destinadas a la ejecución de obras en edificaciones declaradas como Patrimonio Histórico-Arquitectónico.
+3º—Que la edificación conocida como “Botica Solera”, fue incorporada al Patrimonio Histórico-Arquitectónico de Costa Rica, por Decreto Ejecutivo Nº 28245-C del 7 de octubre de 1999, publicado en el Diario Oficial La Gaceta Nº 233 del 1º de diciembre de 1999.
+4º—Que como consecuencia del estado de abandono en el que se encuentra la referida edificación, existe la necesidad apremiante de proceder a su restauración, a efecto de evitar daños irreversibles.
+5º—Que la Municipalidad de San José ha manifestado expresamente su voluntad de invertir recursos presupuestarios para la restauración del inmueble. Por tanto,
+Decretan:
+Artículo 1º—Autorizar al Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura y Juventud para que destine recursos presupuestarios, materiales y humanos para intervenir el edificio conocido como “Botica Solera”, junto con la Municipalidad de San José, con el propósito de salvaguardar esta importante edificación patrimonial y cumplir a cabalidad con lo establecido por la Ley Nº 7555, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica.
