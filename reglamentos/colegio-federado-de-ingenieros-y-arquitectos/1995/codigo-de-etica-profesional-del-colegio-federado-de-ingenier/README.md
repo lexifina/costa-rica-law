@@ -17,3 +17,4 @@ Código de Ética Profesional del Colegio Federado de Ingenieros y Arquitectos d
 | 2 | 2003-06-19 | Reglamento 3 (2003-06-19) |
 | 3 | 2003-07-29 | Reglamento 0 (2003-07-29) |
 | 4 | 2006-03-02 | Reglamento 0 (2006-03-02) |
+| 5 | 2011-09-10 | Reglamento 3 (2011-09-10) |
