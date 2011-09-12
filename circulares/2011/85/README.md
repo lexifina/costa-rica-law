@@ -13,3 +13,4 @@ Dejar sin efecto la Circular N°28-1994 "Notificaciones a la Procuraduría Gener
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-31 | la propia norma |
+| 2 | 2011-09-12 | Circular 106 (2011-09-12) |
