@@ -17,3 +17,4 @@ Reglamento para la Inscripción, Importación, Comercialización y Publicidad de
 | 2 | 2003-02-10 | Decreto Ejecutivo 31000 (2003-02-10) |
 | 3 | 2003-05-15 | Decreto Ejecutivo 31207 (2003-05-15) |
 | 4 | 2005-06-10 | Decreto Ejecutivo 32518 (2005-06-10) |
+| 5 | 2011-09-12 | Decreto Ejecutivo 36868 (2011-09-12) |
