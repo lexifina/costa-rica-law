@@ -1,1 +1,0 @@
-Artículo 34.—Derogaciones. Deróguese el Decreto Ejecutivo Nº 25705 MINAE, del 17 de octubre de 1996, publicado en La Gaceta Nº 11 del 16 de enero de 1997, “Reglamento sobre procedimientos de la SETENA”.

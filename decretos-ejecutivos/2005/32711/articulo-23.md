@@ -1,1 +1,0 @@
-Artículo 23.—Del Departamento de Gestión Institucional. El Departamento de Gestión Institucional es el encargado de cumplir con las funciones indicadas en el artículo Nº 15 del presente reglamento. Estará conformado por un coordinador, dos secciones que tendrán sus respectivos coordinadores y por el personal administrativo y técnico que requiera.

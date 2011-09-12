@@ -1,1 +1,0 @@
-Artículo 28.—Designación del Coordinador de proyecto. El Jefe del Departamento de Administración de Proyectos designará un Coordinador de Proyecto para que dirija y supervise el proceso de análisis de cada actividad, obra o proyecto que le eleven a su conocimiento.
