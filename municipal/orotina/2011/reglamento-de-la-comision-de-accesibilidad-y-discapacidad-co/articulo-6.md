@@ -1,0 +1,1 @@
+Artículo 6º—La Comad de reunirá ordinariamente dos veces al mes y extraordinariamente las veces que sea necesario, en virtud de los asuntos que le sean trasladados desde el Concejo o la administración, o bien de la programación y ejecución de sus actividades propias.
