@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE LA CRUZ
+Nº Res-0023-ALC-2011.—Al ser las diez horas del día 25 de mayo del año dos mil once, se procede a emitir resolución por delegación de funciones del Vicealcalde.
+Resultando:
+1º—Que mediante documento fechado el 25 de mayo y conforme al artículo 17 inciso b) del código Municipal, se le asignan las funciones administrativas y operativas al vicealcalde primero señor Luis Alonso Alán Corea.
+4º—Que el día 25 de mayo del 2011, se le notifica al señor vicealcalde de la Municipalidad de La Cruz que se le delega el visado de planos catastrados
+Considerando:
+Único.—Los aspectos de relevancia en torno a la delegación de funciones el Código Municipal, y la Ley General de la Administración Pública se refieren en los siguientes términos.
+El Código Municipal, en su redacción actual, regula lo concerniente a la delegación de funciones por parte del Alcalde Municipal en su artículo 17 inciso b) establece: Delegar las funciones encomendadas por esta ley, con base en los artículos 89 y siguientes de la Ley General de la Administración Pública. Por otra parte la Ley General de la Administración Pública establece la obligación de publicar la delegación cuando ésta sea para un tipo de acto en su artículo 89 en su punto 4: La delegación deberá ser publicada en el Diario Oficial cuando sea para un tipo de acto y no para un acto determinado.
+Se observa en el artículo 17 del Código Municipal que entre las atribuciones que tiene el Alcalde Municipal es la de delegar funciones igualmente la Ley General de la Administración Pública en sus artículos 89 y siguientes establece las formas de llevar a cabo la delegación de funciones. En el caso en concreto entre las funciones al vicealcalde primero esta la del visado de planos catastrados, por lo que al ser esta delegación un tipo de acto y no para un acto determinado esta deberá de ser publicada en el Diario Oficial. Por tanto,
+Con fundamento a los artículos 17 inciso b) y los artículos 89 punto 4 de la Ley General de la Administración Pública, se resuelve, publicar la función delegada al vicealcalde primero del visado de planos catastrados en esta Municipalidad de La Cruz.
