@@ -1,1 +1,0 @@
-Artículo 4°—Corresponde a la Dirección de Registros y Controles del Ministerio de Salud, el control en materia de salud, de la publicidad de alimentos, sin perjuicio de las atribuciones que correspondan a otras dependencias o instituciones del país, en materia de su propia competencia.
