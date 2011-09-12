@@ -1,2 +1,0 @@
-Artículo 8°-El seguro puede ser contratado por cuenta propia o por cuenta de otro. La persona que hace un seguro se considera que ha tratado por sí, no expresando la póliza que ba sido hecho por cuenta de un tercero.
-Cuando una persona hace asegurar una cosa por cuenta de un tercero, deberá consignarse en la póliza si el seguro tiene lugar en virtud del mandato o si se efectúa sin conocimiento del asegurado.

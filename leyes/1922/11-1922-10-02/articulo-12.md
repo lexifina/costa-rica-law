@@ -1,3 +1,0 @@
-Artículo 12.-La falta de pago de cualquier prima el día del vencimiento, termina por el mismo hecho el contrato, salvo que el asegurador expresamente haya consentido en continuarle.
-Si las primas, por pacto o por ser esa la costumbre entre las partes, fueren pagaderas en casa del asegurado, será necesario para que se tenga por terminado el contrato, por falta de pago, que se haya constituido en mora al deudor, por medio del juez o notario, y que hayan pasado tres días desde la interpelación, sin que se haya efectuado el pago de la prima.
-Para que el asegurador esté obligado a la indemnización deberá haber percibido la prima única convenida, o las parciales en los plazos que se hubiesen fijado.

@@ -1,1 +1,0 @@
-Artículo 42.-Las acciones que se derivan de una póliza de seguro pres cr ibirán por el lapso de' cuatro años, a partir desde el suceso que motivara el ejercicio de ellas. Sin embargo, las partes pueden convenir en que ese término sea más corto.

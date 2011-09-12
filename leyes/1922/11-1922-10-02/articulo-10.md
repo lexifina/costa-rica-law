@@ -1,1 +1,0 @@
-Artículo 10.-El seguro hecho sobre cosas que al tiempo del contrato estaban ya libres del riesgo que se trataba de garantizar o de cosas cuya pérdida o dafio ya existía, es nulo, siempre que haya prueba suficiente de que el asegurador sabía la cesación del riesgo, o el asegurado la existencia de la pérdida o dafio de las cosas aseguradas.
