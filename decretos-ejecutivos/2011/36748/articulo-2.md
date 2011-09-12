@@ -1,0 +1,1 @@
+Artículo 2º—Los demás artículos del Decreto Ejecutivo Nº 36226-MOPT denominado “Declaratoria de Interés Público de las Acciones para determinar la ubicación y construir un Aeropuerto Internacional en la zona Sur de Costa Rica” se mantienen incólumes.
