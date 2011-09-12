@@ -1,4 +1,6 @@
+(Derogado)
 N° 11
+(Esta norma fue derogada por el aparte a) del artículo 113 de la ley N° 8956 del 17 de junio del 2011 "Ley Reguladora del Contrato de Seguros")
 (Nota de Sinalevi: El Instituto Nacional de Seguros, aprobó una nueva Ley de Seguros, mediante la ley N° 12 del 30 de octubre de 1924).
 (Nota: Mediante la ley N° 12 del 30 de octubre de 1924, en su artículo N° 26 dispone que: “…ARTÍCULO 26. Las leyes y disposiciones que se opongan a la presente, quedan derogadas, en cuanto se opongan a este articulado”. No obstante; la redacción del artículo no indica que la derogación deba ser expresa)
 EL CONGRESO CONSTITUCIONAL DE LA

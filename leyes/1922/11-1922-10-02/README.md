@@ -1,6 +1,6 @@
 # Ley de Seguros
 
-Ley N° 11 del 1922-10-02. SINALEVI, ficha 3130: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3130&param2=80054&param3=1>.
+Ley N° 11 del 1922-10-02. SINALEVI, ficha 3130: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3130&param2=86109&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 8 | 1940-09-19 | Ley 2 | 1940-09-19 |
 | 6 de 8 | 1964-08-07 | Ley 3353 | 1964-08-07 |
 | 7 de 8 | 1973-08-10 | Ley 5279 | 1973-07-27 |
+| 8 de 8 | 2011-09-12 | Ley 8956 | 2011-06-17 |
