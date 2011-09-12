@@ -15,3 +15,4 @@ Autorización para el uso de factura electrónica y documentos electrónicos aso
 | --- | --- | --- |
 | 1 | 2009-02-05 | la propia norma |
 | 2 | 2011-08-04 | Resolución 19 (2011-08-04) |
+| 3 | 2011-09-12 | Resolución 24 (2011-09-12) |
