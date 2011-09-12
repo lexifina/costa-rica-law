@@ -1,0 +1,4 @@
+ARTÍCULO 25.- Traspaso de la póliza
+Las pólizas al portador se trasmiten por simple tradición. Las pólizas a la orden se trasmiten por endoso nominativo o endoso en blanco. Las pólizas nominativas se trasmiten por endoso nominativo salvo las que se refieren a seguros de personas, que son intransferibles.
+Sin perjuicio de la posibilidad de transmisión de la póliza, la persona asegurada podrá ceder a un tercero uno o más de los derechos a su favor contenidos en la póliza.
+En el caso de las pólizas nominativas y a la orden, el traspaso deberá ser comunicado al asegurador en un plazo máximo de quince días hábiles desde la fecha en que este se verifique. Si el traspaso implica una agravación del riesgo se aplicará lo dispuesto en los artículos 52 y siguientes de esta ley. La falta de comunicación dará derecho al asegurador a dar por terminado el contrato.

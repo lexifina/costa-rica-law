@@ -1,0 +1,3 @@
+ARTÍCULO 72.- Abandono
+No podrá hacerse dejación total o parcial de los bienes asegurados y siniestrados a favor del asegurador a menos que las partes lo convengan expresamente. En caso de incumplimiento de lo anterior, el asegurador no estará obligado a cancelar las sumas correspondientes al salvamento.
+En los seguros de automóviles en que sea declarada la pérdida total del vehículo y la aseguradora otorgue un valor de salvamento al automóvil siniestrado, la persona asegurada tendrá el derecho de elegir si acepta ese valor de salvamento o si deja el automóvil siniestrado a la aseguradora, de tal forma que no se le deduzca el valor de salvamento en la indemnización.

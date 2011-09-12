@@ -1,0 +1,2 @@
+ARTÍCULO 44.- Disminución de las consecuencias del siniestro
+La persona asegurada deberá emplear los medios razonables a su alcance para disminuir las consecuencias del siniestro, incluyendo la obligación de no desatender la cosa asegurada. El incumplimiento de esta obligación facultará al asegurador para reducir su prestación en proporción al daño que se pudo haber evitado. El asegurador quedará liberado de toda prestación derivada del siniestro si la persona asegurada incumpliera esta obligación con dolo o culpa grave.

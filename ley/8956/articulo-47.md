@@ -1,0 +1,2 @@
+ARTÍCULO 47.- Declaraciones inexactas o fraudulentas
+La obligación de indemnizar que tiene el asegurador se extinguirá si demuestra que la persona asegurada declaró, con dolo o culpa grave, en forma inexacta o fraudulenta hechos que de haber sido declarados correctamente podrían excluir, restringir o reducir esa obligación, lo anterior sin perjuicio de que la conducta de la persona asegurada configure el delito de simulación.

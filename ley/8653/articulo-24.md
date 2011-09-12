@@ -6,5 +6,5 @@ a) Protejan intereses asegurables y riesgos comunes a todas, o la mayoría de la
 b) Sus condiciones generales, particulares y especiales se redactarán en forma clara y precisa, utilizando un lenguaje sencillo, destacando de modo especial las definiciones y las cláusulas limitativas de derechos del asegurado y las exclusiones del contrato, así como siguiendo los lineamientos que al efecto podrá emitir la Superintendencia.
 c) Sean susceptibles de estandarización y comercialización masiva por no exigir condiciones específicas en relación con las personas o los intereses asegurables.
 d) Su expedición no requiera un proceso previo de análisis y selección de riesgo.
-e) No sean susceptibles de renovación.
+e) (Derogado este inciso por el aparte d) del artículo 113 de la ley N° 8956 del 17 de junio del 2011 "Ley Reguladora del Contrato de Seguros")
 El Consejo Nacional reglamentará los requisitos y las demás condiciones que se deberán cumplir para la comercialización de este tipo de seguros.

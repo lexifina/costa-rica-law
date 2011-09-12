@@ -1,0 +1,3 @@
+ARTÍCULO 84.- Dirección jurídica y conflicto de intereses
+Corresponde al asegurador asumir la dirección jurídica en caso de reclamo, salvo que las partes acordaran algo distinto. La persona asegurada deberá prestar la colaboración que requiera el asegurador.
+Cuando exista algún posible conflicto de intereses, el asegurador comunicará inmediatamente a la persona asegurada la existencia de esas circunstancias y realizará las diligencias que resulten urgentes y necesarias para la defensa. La persona asegurada podrá optar por mantener la dirección jurídica a cargo del asegurador o por confiar la defensa a un tercero, en cuyo caso el asegurador correrá con los gastos, de conformidad con lo indicado en el artículo siguiente.

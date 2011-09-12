@@ -1,0 +1,3 @@
+ARTÍCULO 26.- Transmisión mortis causa
+Cuando se trate de contratos de seguro que por su naturaleza no se extingan con la muerte de la persona asegurada se mantendrán subsistentes a nombre de la sucesión. Quedará a cargo de esta el cumplimiento de las obligaciones pendientes en el momento de la muerte y durante la vigencia del contrato a futuro. En estos casos, la sucesión deberá comunicar el deceso al asegurador dentro de los quince días hábiles siguientes a su apertura.
+Quince días naturales después de que quede firme la resolución que apruebe la cuenta partición, los herederos o legatarios que pasen a ser dueños de los bienes asegurados deberán proceder según el párrafo tercero del artículo 25.
