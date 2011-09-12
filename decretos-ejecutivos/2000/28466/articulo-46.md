@@ -1,1 +1,1 @@
-Artículo 46.—La publicidad o promoción al público de medicamentos declarados de venta libre no requiere de autorización previa por parte del Ministerio de Salud y estará sujeta a la fiscalización a posteriori. La propaganda o promoción de los demás medicamentos estará sujeta a la aprobación previa del Ministerio de Salud.
+Artículo 46.—(Derogado por el artículo 32 del "Reglamento para la autorización y control sanitario de la publicidad de productos de interés sanitario", aprobado mediante decreto ejecutivo N° 36868 del 12 de setiembre del 2011)

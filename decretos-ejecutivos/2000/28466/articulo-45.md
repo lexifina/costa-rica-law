@@ -1,4 +1,3 @@
 CAPITULO VIII
 De la publicidad
-Artículo 45.—El control y fiscalización de la promoción y la propaganda de los productos estará a cargo de la Dirección de Regulación de la Salud, que podrá ordenar la suspensión de tal promoción y propaganda cuando no se ajuste a los términos de este Reglamento u otra normativa conexa.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 36395 del 13 de octubre de 2010)
+Artículo 45.—(Derogado por el artículo 32 del "Reglamento para la autorización y control sanitario de la publicidad de productos de interés sanitario", aprobado mediante decreto ejecutivo N° 36868 del 12 de setiembre del 2011)
