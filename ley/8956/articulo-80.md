@@ -1,0 +1,2 @@
+ARTÍCULO 80.- Cambio de ruta
+El asegurador no responderá por los daños en casos de cumplimiento anormal del transporte, trasbordo de mercancías o si se modifica la ruta de manera que incremente el riesgo cubierto. La anterior disposición no aplicará si el cambio de ruta fue realizado para evitar razonablemente que se produzca el siniestro cubierto o si el asegurador lo hubiera consentido expresamente.

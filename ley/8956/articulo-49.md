@@ -1,0 +1,4 @@
+ARTÍCULO 49.- Derecho de subrogación
+El asegurador que pague una indemnización se subrogará, de pleno derecho y hasta el monto de su importe, en los derechos de la persona asegurada contra las personas responsables del siniestro. En este caso, el tercero podrá oponer al asegurador las mismas excepciones que pudieran hacer valer contra la persona asegurada.
+El asegurador no podrá valerse de la subrogación en perjuicio de la persona asegurada. Esta prohibición se extenderá a las personas que las partes acuerden expresamente, así como a aquellas con quienes la persona asegurada tenga relación conyugal, de parentesco por consanguinidad o afinidad hasta el segundo grado inclusive, salvo que medie dolo o culpa grave.
+La subrogación no aplicará en los seguros de personas a excepción de aquellos en que los pagos realizados por el asegurador tengan un carácter indemnizatorio.

@@ -1,0 +1,3 @@
+ARTÍCULO 96.- Registro único de personas beneficiarias
+La Superintendencia General de Seguros creará y mantendrá un registro de personas beneficiarias de pólizas de vida que permita a los ciudadanos consultar si son personas beneficiarias de una póliza suscrita a su favor por una persona fallecida. EL registro conservará los datos por un plazo de cinco años. Las entidades aseguradoras proveerán la información actualizada de los contratos suscritos.
+El Conassif reglamentará los requisitos para efectuar la consulta, los plazos, el esquema tarifario y los demás aspectos operativos del registro. El servicio que preste el Registro será al costo.
