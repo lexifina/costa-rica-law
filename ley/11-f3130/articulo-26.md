@@ -1,1 +1,0 @@
-Artículo 26.-El seguro contra accidentes corporales puede cubrir todos los que ocurran al asegurado, de cualquier naturaleza que sean y en cualquier época del contrato, o los accidentes sobrevenidos durante el trabajo con ocasión de él o solamente una clase determinada de riesgos.
