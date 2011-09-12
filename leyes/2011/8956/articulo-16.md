@@ -1,0 +1,4 @@
+ARTÍCULO 16.- Terminación anticipada del contrato
+Durante la vigencia del contrato la persona asegurada podrá darlo por terminado en forma anticipada, sin responsabilidad, dando aviso a la otra parte al menos con un mes de anticipación. En cualquier caso, el asegurador tendrá derecho a conservar la prima devengada por el plazo transcurrido y deberá rembolsar a la persona asegurada la prima no devengada.
+La terminación anticipada del contrato se efectuará sin perjuicio del derecho de la persona asegurada a indemnizaciones por siniestros ocurridos con anterioridad a la fecha de terminación anticipada.
+En el caso de los seguros de gastos médicos, sobre la vida, así como las demás líneas que el Conassif determine reglamentariamente, el asegurador, unilateralmente, no podrá dar por terminado de forma anticipada el contrato, salvo en los supuestos previstos por esta ley.

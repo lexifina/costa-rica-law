@@ -1,0 +1,3 @@
+ARTÍCULO 35.- Pago de la prima
+La prima es debida por adelantado desde el perfeccionamiento del contrato y, en el caso de primas de pago fraccionado, en las fechas acordadas. Si las partes no pactan un pago fraccionado se entenderá que la prima cubre el plazo del contrato en su totalidad. Deberá ser pagada en dinero dentro de los diez días hábiles siguientes, salvo pacto en contrario en beneficio de la persona asegurada, excepto en el caso de los seguros autoexpedibles o con una duración menor a este plazo, en cuyo caso deberá cancelarse al momento de suscribirse el contrato.
+La prima deberá ser pagada en el domicilio del asegurador, en el de sus representantes o intermediarios debidamente autorizados, salvo que las partes hubieran acordado otro lugar.

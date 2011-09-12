@@ -1,0 +1,2 @@
+ARTÍCULO 22.- Documentos de la póliza
+Forman parte integrante de la póliza la solicitud de seguro firmada por el tomador o la persona asegurada, según corresponda, la propuesta de seguro aceptada por el tomador o la persona asegurada, según corresponda y los documentos que las complementen. También formarán parte otras solicitudes o propuestas que se presenten luego de emitido el seguro y las adendas que modifiquen el contrato.

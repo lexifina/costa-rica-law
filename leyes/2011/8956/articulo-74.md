@@ -1,0 +1,4 @@
+SECCIÓN II
+SEGURO DE INCENDIO
+ARTÍCULO 74.- Daño indemnizable
+El asegurador indemnizará el daño material a las cosas aseguradas cuando hayan sido causado por la acción directa o indirecta del fuego hostil o del rayo y sus efectos inmediatos como el calor y el humo. También cubrirá los daños que sean consecuencia de las medidas adoptadas para extinguirlo, para evitar la propagación del incendio, para salvar los bienes asegurados, las de evacuación, demolición u otras análogas, así como los bienes asegurados que se hurten durante el incendio. El riesgo de explosión y el de incendio derivado de explosión, huracán, terremoto y eventos similares, así como el lucro cesante y cualesquiera otras pérdidas consecuenciales e indirectas que la persona asegurada demuestre no están cubiertos, salvo pacto en contrario.

@@ -1,0 +1,5 @@
+ARTÍCULO 97.- Designación específica y genérica de personas beneficiarias
+La designación de personas beneficiarias podrá ser específica o genérica. Para que la designación genérica sea válida será necesario que la persona asegurada indique la forma en que se individualizará al beneficiario al momento de la muerte de la persona asegurada.
+Si la designación se hace a favor de los herederos de la persona asegurada, sin mayor especificación, se considerarán como beneficiarios aquellos que, de conformidad con la legislación vigente, tengan la condición de herederos al momento de la muerte de la persona asegurada.
+En caso de designación genérica de los hijos o hijas de la persona asegurada, se entenderán como tales los que, de acuerdo con la legislación vigente, demuestren tal condición en el momento de la muerte de la persona asegurada.
+Si la designación se hace a favor del cónyuge, sin mayor especificación, se entenderá como tal al que tenga esa condición al momento de la muerte de la persona asegurada.

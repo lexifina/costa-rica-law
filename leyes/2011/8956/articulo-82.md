@@ -1,0 +1,4 @@
+ARTÍCULO 82.- Abandono en el seguro de transporte
+En adición a las normas generales sobre abandono la persona asegurada también podrá abandonar las cosas aseguradas a favor del asegurador, cuando este así lo haya consentido en los casos en que el medio de transporte o la mercadería transportada se presuman perdidos o el primero quede imposibilitado para movilizarse.
+El medio de transporte se presumirá perdido si transcurren treinta días naturales después del plazo normal para su arribo, sin que llegue a su destino o no se tengan noticias de él. Se entenderá que queda imposibilitado para movilizarse si el costo de su reparación asciende a una suma equivalente a tres cuartas partes de su valor real.
+Si el abandono es aceptado por el asegurador, la propiedad de las cosas abandonadas se entenderá transferida al asegurador desde el momento de dicha aceptación o de conformidad con lo que al respecto se pacte en la póliza.

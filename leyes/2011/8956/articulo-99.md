@@ -1,0 +1,3 @@
+ARTÍCULO 99.- Muerte de la persona asegurada y de la persona beneficiaria
+Si alguna persona beneficiaria falleciera antes o simultáneamente con la persona asegurada, la parte que le corresponde acrecerá a favor de las beneficiarias sobrevivientes. Si todas las personas beneficiarias fallecieran antes o simultáneamente con la persona asegurada, se considerarán beneficiarias a los herederos legales de la persona asegurada establecidos judicialmente.
+Si una persona beneficiaria muere después de la asegurada sin haber recibido el monto del seguro, tendrán derecho al seguro los herederos legales de la persona beneficiaria.
