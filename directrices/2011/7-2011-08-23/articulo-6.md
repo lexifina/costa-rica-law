@@ -1,0 +1,3 @@
+Artículo 6º—Extracción de material específico de riesgo (MER). Los MER deberán ser extraídos e identificados en plantas de sacrificio y salas de deshuese autorizadas mediante CVO por el SENASA para tales actividades. Las partes del animal deben llegar a las plantas de procesamiento de despojos (rendering) libres de MER
+La separación de tejido muscular de los huesos de la cabeza y la columna vertebral, no podrá realizarse por métodos utilizando alta presión (sistemas de recuperación avanzada de carne).
+Los MER deberán estar bajo la custodia de los médicos veterinarios oficiales o médicos veterinarios regentes de los establecimientos, quienes deberán garantizar y supervisar su destrucción.
