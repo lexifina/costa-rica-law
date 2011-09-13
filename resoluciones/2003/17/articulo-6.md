@@ -1,1 +1,0 @@
-Articulo 6°—Del formulario D-154. A partir de la vigencia de esta resolución, se elimina el uso del formulario D-154 "Declaración anual resumen de laneras de crédito". En su lugar, la información que correspondía reportar en este formulario, deberá incluirse en el D-153 junto con la información de retenciones.
