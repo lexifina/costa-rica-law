@@ -1,0 +1,1 @@
+Artículo 2º—Fin. La finalidad este Reglamento es garantizar en las relaciones de empleo y labores que se desarrolla en la JPS el respeto a la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley, a condenar la discriminación por razón del sexo y a prevenir, sancionar y erradicar el hostigamiento sexual.

@@ -1,0 +1,3 @@
+Artículo 20.—Órgano facultado para dictar el acto final. Corresponde a la Gerencia General como máximo jerarca administrativo, dictar los actos finales de los procedimientos administrativos que son tramitados por la Comisión Investigadora.
+Corresponde a la Junta Directiva, como máximo jerarca institucional, dictar los actos finales de los procedimientos administrativos que fueron iniciados y tramitados en cumplimiento de sus acuerdos.
+La Gerencial General deberá informar a la Defensoría de los Habitantes, de conformidad con lo establecido en el artículo 7 de la Ley Nº 7476 y sus reformas, el acto final dictado dentro de cada procedimiento administrativo que sea tramitado.

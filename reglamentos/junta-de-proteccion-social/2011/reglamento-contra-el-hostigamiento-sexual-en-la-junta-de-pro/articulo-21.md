@@ -1,0 +1,1 @@
+Artículo 21.—Deber de colaboración. Toda dependencia y funcionarios (as) de la JPS están en la obligación de brindar su colaboración cuando así se solicite por la Comisión Investigadora o la Gerencia General para facilitar su labor y el cabal desempeño del procedimiento.

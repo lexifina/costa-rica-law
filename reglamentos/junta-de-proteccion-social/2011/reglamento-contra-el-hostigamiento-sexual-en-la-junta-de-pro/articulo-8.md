@@ -1,0 +1,1 @@
+Artículo 8º—Sanciones por incumplimiento. En caso de incumplimiento de las obligaciones establecidas en la Ley Nº 7476 y en este reglamento, el funcionario o funcionaria responsable será sancionado, de conformidad con lo que se determine en el marco de un debido proceso y normas laborales atinentes.

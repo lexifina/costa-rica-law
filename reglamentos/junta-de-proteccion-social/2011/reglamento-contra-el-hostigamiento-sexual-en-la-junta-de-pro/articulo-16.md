@@ -1,0 +1,2 @@
+Artículo 16.—Sobre los principios específicos del proceso. Serán de aplicación obligatoria los principios específicos de confidencialidad que implica el deber de las partes de procedimiento y sus representantes, las personas integrantes del órgano instructor y decisor, las y los testigos y el resto de personas que tuvieron contacto con el proceso, de no dar a conocer la identidad de la o las personas denunciantes ni denunciadas.
+De igual manera, regirá el principio províctima el cual implica que en caso de duda se interpretará a favor de la víctima.
