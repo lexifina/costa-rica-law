@@ -1,1 +1,0 @@
-Artículo 2°—Vigencia. La presente resolución rige a partir de su publicación y se aplicará al suministro de los datos referidos al periodo fiscal 2002 (1° de octubre del 2001 al 30 de setiembre del 2002) y siguientes.
