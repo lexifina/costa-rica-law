@@ -1,0 +1,2 @@
+ARTÍCULO 25.-
+Toda declaración queda sujeta a revisión por los medios establecidos por ley. Si se comprueba que los datos suministrados son incorrectos, circunstancia que determina una variación en el tributo, o cualquier otro tipo de inexactitud, se hará la recalificación respectiva. En este caso, la certificación extendida por el contador municipal donde se indique la diferencia adeudada servirá de título ejecutivo para efectos del cobro.
