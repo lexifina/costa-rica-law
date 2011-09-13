@@ -1,0 +1,2 @@
+ARTÍCULO 17.-
+La Municipalidad de Escazú, previa aprobación del Concejo Municipal, podrá otorgar descuentos por el pago adelantado anual del impuesto, siempre que sea cancelado durante el mes de enero de cada año gravado. Este debe ser hasta en un porcentaje equivalente o menor a la tasa básica pasiva del Banco Central en el momento del pago. Para el caso de los patentados cuyo período fiscal está autorizado del 1º de enero al 31 de diciembre se les podrá aplicar el descuento autorizado en el mes de abril.

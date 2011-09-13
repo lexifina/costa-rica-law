@@ -1,0 +1,2 @@
+ARTÍCULO 4.-
+El hecho generador del impuesto es el ejercicio de cualquier tipo de actividad efectuada por los sujetos pasivos entre el 1º de enero y el 31 de diciembre de cada año, a título oneroso y con carácter lucrativo, sea que se desarrollen en un establecimiento o no y cualquiera que sea el resultado económico obtenido. Para el caso de bienes muebles e inmuebles no se considerará actividad lucrativa el arrendamiento de un solo bien.

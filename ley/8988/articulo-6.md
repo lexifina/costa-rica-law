@@ -1,0 +1,2 @@
+ARTÍCULO 6.-
+La actividad que el patentado desarrollará será únicamente la que la Municipalidad de Escazú le ha autorizado mediante la licencia otorgada. La licencia solo podrá ser denegada cuando la actividad solicitada sea contraria a la ley, la moral o las buenas costumbres o cuando el establecimiento o la solicitud de la licencia no haya cumplido los requisitos legales y reglamentarios; así como cuando la actividad, en razón de su ubicación física, no esté permitida por el plan regulador del cantón de Escazú o por el ordenamiento jurídico vigente.
