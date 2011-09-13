@@ -1,1 +1,0 @@
-Artículo 10.—Vigencia. La presente resolución rige a partir de su publicación v se aplicará para las retenciones practicadas durante el período 20tfl (1° de octubre de 2000 a 30 de setiembre del 2001) y siguientes.
