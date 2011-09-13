@@ -1,0 +1,10 @@
+Artículo 11.—Disposiciones a considerar para la formulación, aprobación presupuestaria interna y remisión de los presupuestos extraordinarios:
+I.—Aspectos Generales:
+a) Se debe cumplir con lo indicado en Aspectos Generales del Reglamento sobre variaciones al Presupuesto de los entes y órganos públicos, municipalidades y entidades de carácter municipal, fideicomisos y sujetos privados.
+b) Todo documento deberá contener una numeración consecutiva, introducción, el acuerdo de aprobación por parte de la Junta Directiva, justificación de los movimientos propuestos, detalle del origen y aplicación de los recursos, la incidencia en el cumplimiento de los objetivos y metas del Plan Operativo Institucional, así como toda información que establezca el ordenamiento jurídico vigente.
+c) La Dirección de Planificación Estratégica deberá emitir el aval o la no objeción a los Presupuestos Extraordinarios, en función del cumplimiento de los objetivos, indicadores y metas establecidos en los planes a corto plazo.
+d) La nota de presentación del Presupuesto Extraordinario ante la Contraloría General de la República, deberá ser suscrita por la Presidencia Ejecutiva o en su defecto por la Gerencia General, indicando en ella el número de sesión y la fecha en que fue aprobado por la Junta Directiva.
+e) Los montos del Presupuesto Extraordinario deberán ser expresados en múltiplos de ¢100,00.
+f) Con objetivo de informar a la Autoridad Presupuestaria de la formulación de las modificaciones presupuestarias, se le remitirá oficio suscrito por la Presidencia Ejecutiva o en su defecto por la Gerencia General.
+g) La Unidad de presupuesto institucional aplicará el presupuesto extraordinario y las modificaciones presupuestarias en el SIFS y en el Sistema de Información de Planes y Presupuestos de la Contraloría General de la República (SIPP), según los lineamientos y procedimientos establecidos en la normativa que al efecto haya dictado o llegue a dictar el órgano contralor.
+h) Cualquier otro que disponga la Gerencia General.

@@ -1,0 +1,4 @@
+Artículo 5º—Formulación. Comprende una serie de acciones coordinadas para elaborar el proyecto de presupuesto, como expresión financiera de los programas del Plan Operativo Institucional y del Plan Anual Operativo. La formulación presupuestaria se enmarca en el Plan Nacional de Desarrollo y el Plan Estratégico Institucional.
+La formulación presupuestaria se iniciará en la Unidad responsable del Presupuesto Institucional en coordinación con la Gerencia General, con la revisión de los lineamientos internos, el Manual de Normas Técnicas sobre Presupuesto, Lineamientos de la Autoridad Presupuestaria, del Ministerio de Planificación Nacional, diversas circulares remitidas por la Contraloría General de la República,
+De acuerdo con estos lineamientos, las dependencias de la Institución formularán su presupuesto.
+La Unidad de presupuesto institucional deberá conocer, verificar y pronunciarse sobre el bloque de legalidad aplicable a la formulación de los presupuestos.

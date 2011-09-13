@@ -1,0 +1,2 @@
+Artículo 6º—Discusión y Aprobación. Será una fase dirigida por la Gerencia General que consiste en la discusión de todos los anteproyectos de presupuesto generados por todas las Unidades Institucionales involucradas, en función de la visión estratégica y el Plan Operativo Institucional.
+Una vez estructurada la propuesta de presupuesto final, deberá ser sometida a consideración de la Junta Directiva, para su análisis y aprobación.

@@ -1,0 +1,1 @@
+Artículo 13.—Aprobación presupuestaria interna de las modificaciones presupuestarias: Las modificaciones presupuestarias internas serán sometidas por la Gerencia General a conocimiento y aprobación de la Junta Directiva, siendo suficiente este refrendo para su posterior aplicación en el sistema y la respectiva ejecución.

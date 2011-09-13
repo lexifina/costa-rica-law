@@ -1,0 +1,5 @@
+Artículo 8º—Control y Evaluación. El control presupuestario permite medir y corregir la ejecución presupuestaria para que se mantenga dentro de los límites previstos en el presupuesto aprobado.
+Cada dependencia será responsable del control y evaluación de su plan y presupuesto debiendo detectar desviaciones y proponer las medidas correctivas o adoptarlas, cuando se encuentre dentro de su ámbito de acción y competencias.
+Mediante la evaluación presupuestaria se analiza la efectividad de la ejecución, en relación con sus previsiones, emitiendo el informe periódico respectivo a la Gerencia General.
+La Dirección de Planificación Estratégica será la responsable de realizar la evaluación de los Planes Operativos en función de la visión estratégica institucional.
+La Unidad de Presupuesto Institucional será la responsable de integrar la evaluación presupuestaria de todas las Dependencias, realizando un análisis exhaustivo y rindiendo el correspondiente informe a la Gerencia General, quien lo elevará a conocimiento y aprobación de la Junta Directiva.
