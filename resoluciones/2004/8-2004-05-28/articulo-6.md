@@ -1,1 +1,0 @@
-Artículo 6º—Sanciones: El incumplimiento en el suministro de la información en los términos antes señalados, dará base para que la Administración Tributaria inicie el procedimiento para la aplicación de las sanciones establecidas en el Código de Normas y Procedimientos Tributarios.
