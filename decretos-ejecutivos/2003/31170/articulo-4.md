@@ -1,1 +1,0 @@
-Artículo 4º—El foro deberá reunirse ordinariamente una vez al mes, el segundo jueves de cada mes a partir de las 9:00 horas en el salón de exministros del MAG y extraordinariamente cuando sea necesario en el sitio dispuesto en la convocatoria, misma que debe hacerse al menos con 24 horas de anterioridad.
