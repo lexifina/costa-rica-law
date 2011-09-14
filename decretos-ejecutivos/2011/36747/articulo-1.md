@@ -1,0 +1,37 @@
+Nº 36747-MOPT
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las competencias conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política, el artículo 15 del Convenio sobre Aviación Civil Internacional, suscrito en Chicago en 1944, aprobado por Ley 877 del 4 de julio de 1947, y con fundamento en la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 3155 del 5 de agosto de 1963 y sus reformas, los artículos 25.1 y 28.2.b de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978 y sus reformas, la Ley General de Aviación Civil Nº 5150 del 14 de mayo de 1973 y sus reformas y el Decreto Ejecutivo Nº 27380-MOPT del 20 de octubre del 1998, publicado en el Alcance Nº 74 de La Gaceta Nº 203 del 20 de octubre de 1998.
+Considerando:
+I.—Que el Convenio sobre Aviación Civil Internacional, suscrito en Chicago el 7 de diciembre en 1944, y ratificado por Costa Rica mediante Ley Nº 877, del 4 de julio de 1947 en su artículo 15 establece:
+“Corresponde a los Estados contratantes establecer los derechos aeroportuarios y otros similares para el uso de los Aeropuertos e instalaciones y servicios para la navegación aérea.”
+II.—Que los artículos 10, párrafo IV y 166 de la Ley General de Aviación Civil otorgan al Consejo Técnico de Aviación Civil la potestad de conocer, resolver y fijar las tarifas relativas a toda clase de servicios y facilidades aeroportuarias propiedad del Estado y las actividades relacionadas con la aviación civil.
+III.—Que en lo referente al tema de tarifas, el Contrato para la Gestión Interesada de los servicios prestados en el Aeropuerto Internacional Juan Santamaría, establece en sus cláusulas 16.1 FIJACIÓN Y REVISIÓN DE TARIFAS que:
+16.1.1 Las Tarifas se dividen en Tarifas Aeronáuticas y Tarifas No Aeronáuticas. La fijación de las Tarifas es y seguirá siendo potestad exclusiva del Estado, en los siguientes términos:
+(a) Conforme a la Ley Nº 7593 le corresponde a la ARESEP fijar las Tarifas Aeronáuticas con base en las propuestas del CETAC.
+(b) Conforme a lo dispuesto por la LGAC, las Tarifas No Aeronáuticas son establecidas por el CETAC, y aprobadas por el GCR mediante Decreto Ejecutivo.
+IV.—El Contrato de cita señala en sus cláusulas 16.2 y 16.2.1 que:
+“ Cada año y como parte del Plan Anual del Gestor, este presentara para el análisis del Órgano Fiscalizador las Tarifas propuestas para los Servicios Aeronáuticos como para los Servicios No Aeronáuticos”, debidamente justificadas y cumpliendo con los requisitos legales, de este Contrato y de la ARESEP. para su análisis. (...) Una vez recibida del Órgano Fiscalizador, el CETAC tendrá un plazo de quince (15) días hábiles para aprobar o rechazar dicha propuesta. (...) De conformidad con los términos del Cartel y el Contrato. el CETAC deberá aprobar la propuesta tarifaría presentada por el Gestor cuando se compruebe la aplicación correcta de la Metodología para la Fijación de Tarifas establecida en este Contrato. incluyendo la verificación de los cálculos del P (capex), el índice de inflación en dólares. el índice de inflación en colones, el factor X y cualquier otro elemento establecido en el Apéndice H. (...)
+V.—En el Apéndice H del Contrato se estableció en el apartado 2.4.2. el porcentaje del Factor de Eficiencia o Factor X durante un periodo de cinco años a partir del 2001, y no se previó en el mismo la aplicación de este factor para los siguientes periodos indicándose:
+“Para maximizar los beneficios a los usuarios y lograr niveles de tarifas más competitivos, las tarifas serán ajustadas por un factor de eficiencia (Factor X) durante un período de cinco años, a partir del primer aniversario de la Fecha de Entrada en Vigencia. En consecuencia, a partir de la fijación de tarifas del año 2001 se aplicarán los siguientes factores de eficiencia a la fijación de tarifas del año siguiente:
+| Año 1 | Año 2 | Año 3 | Año 4 | Año 5
+Factor X | 30% | 10% | 10% | 25% | 10%
+Año Calendario | 2002 | 2003 | 2004 | 2005 | 2006
+De esta manera, el Factor de Eficiencia para el año 1 se aplicará para el cálculo de las tarifas propuestas en el año 2001 para el año 2002. Durante los años siguientes, al presentarse anualmente los cálculos tarifarios, se aplicará el Factor X correspondiente.”
+VI.—Que en la Adenda Nº 1 al Contrato de Gestión Interesada refrendada por el ente Contralor desde 28 de Mayo del 2009, se indica lo siguiente:
+Artículo IV.—Del Factor X
+4.1. Por lo que resta del plazo del Contrato de Gestión Interesada, las tarifas por servicios no aeronáuticos serán afectadas por un Factor X anual fijo del 0% (cero por ciento).
+4.2. A partir de la vigencia del presente Addendum se aplicará un Factor X fijo y anual del 2% (dos por ciento) sobre las tarifas por servicios aeronáuticos, hasta la completa amortización de una suma de US$4.000.000 (cuatro millones de Dólares) para el reintegro de tarifas aeronáuticas cobradas en el pasado. Una vez amortizada la suma dicha, las tarifas por servicios aeronáuticos serán afectadas por un Factor X anual fijo del 0%.
+4.3. En caso de que mediante resolución administrativa, arbitral o judicial se determine una aplicación del Factor X distinta a la establecida en este Addendum: (i) antes de que se de la completa amortización de la suma de US$4.000.000 (cuatro millones de Dólares) para el reintegro de tarifas aeronáuticas cobradas en el pasado, el Gestor deberá reintegrar al CETAC la diferencia, si el Factor X del 2% (dos por ciento) de las tarifas aeronáuticas es reducido; y (ii) el CETAC deberá reintegrar al Gestor la diferencia si el Factor X de las tarifas aeronáuticas o no aeronáuticas son superiores a lo establecido en este Addendum. En ambos casos, se hará un ajuste automático e inmediato en la distribución de los Ingresos Distribuibles para reintegrar a la parte afectada.
+4.4. Las evaluaciones de calidad serán consideradas por el CETAC para establecer multas cuando los parámetros de evaluación de calidad lo justifiquen, todo ello, en el marco del CGI (Apéndice M, ítem 4.3).”
+VII.—Que después del análisis realizado sobre la aplicación del Factor de Eficiencia y el impacto en las tarifas el Órgano Fiscalizador, determinó necesario establecer un factor de eficiencia Fijo de un 2% para las tarifas aeronáuticas, según se consignó en la Adenda Nº 1 al Contrato de Gestión Interesada del Aeropuerto Internacional Juan Santamaría. Por tanto,
+Decretan:
+MODIFICACIÓN AL DECRETO EJECUTIVO
+Nº 27380-MOPT, DEL 20 DE OCTUBRE DE 1998
+PUBLICADO EN EL ALCANCE Nº 74 DE LA GACETA
+Nº 203 DEL 20 DE OCTUBRE DE 1998
+Artículo 1º—Se modifica el artículo 25 del Decreto Ejecutivo Nº 27380-MOPT para que se lea así:
+Artículo 25.—Aplicación del índice de calidad. Al factor de eficiencia (valor X) propuesto por el prestatario del servicio se determinará tomando en cuenta lo siguiente:
+a) Evaluación de la calidad del servicio correspondiente al último año anterior a la petición. La evaluación de la calidad del servicio, se ajustará estrictamente a lo establecido en el respectivo Reglamento de Calidad del Servicio.
+b) El modelo tarifario establecerá los rangos de calificación y los porcentajes bajo los cuales se premiará o castigará el factor de eficiencia según sea el resultado de las encuestas y audiencias informativa anual.
+c) Este procedimiento no aplica en el caso específico del Contrato de Gestión Interesada y su Adenda No 1, en virtud de que en ella, se estableció un factor de eficiencia o (Factor X) del 2% fijo.
