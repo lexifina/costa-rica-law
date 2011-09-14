@@ -1,0 +1,1 @@
+Artículo 66.—Áreas de servicios preventivos. Los objetivos del trabajo de los servicios preventivos podrán considerar los procesos de valoración en áreas como el riesgo, control y de dirección de la administración institucional.

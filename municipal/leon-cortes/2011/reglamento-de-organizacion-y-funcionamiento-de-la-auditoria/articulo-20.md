@@ -1,0 +1,1 @@
+Artículo 20.—Cambios en recursos. La Auditoría Interna ejecutará sus recursos con independencia de la Administración. En caso de que requiera realizar acciones de afectación presupuestaria para este departamento, como modificaciones o asignación de presupuestos, deberá contarse con autorización o aprobación por escrito del Auditor Interno.

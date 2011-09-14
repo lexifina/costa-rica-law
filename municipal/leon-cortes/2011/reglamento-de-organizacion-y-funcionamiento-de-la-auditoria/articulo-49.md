@@ -1,0 +1,1 @@
+Artículo 49.—Coordinaciones externas. El Auditor Interno deberá coordinar la realización de los servicios de la actividad de auditoría con otros entes que puedan intervenir en este proceso, con el fin de minimizar la duplicación de esfuerzos.

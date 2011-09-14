@@ -1,0 +1,1 @@
+Artículo 30.—Dependencia del Subauditor. Al Subauditor interno le corresponderá apoyar al Auditor en el descargo de sus funciones y lo sustituirá en sus ausencias temporales y deberá responder ante él por su gestión.

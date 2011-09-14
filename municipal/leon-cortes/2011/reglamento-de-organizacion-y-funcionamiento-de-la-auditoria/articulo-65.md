@@ -1,0 +1,6 @@
+Servicios Preventivos
+Artículo 65.—Servicios Preventivos. Los servicios preventivos son los siguientes:
+1) Servicio de legalización de libros. La Auditoría Interna es la encargada de la apertura y cierre de los libros contables y otros legales que deberá llevar la institución. En este servicio también se encuentra la fiscalización periódica de la efectividad del manejo, control de libros o registros relevantes para el fortalecimiento del control interno.
+2) Servicio de asesoría. La Auditoría Interna deberá asesorar al Concejo Municipal en materia de su competencia, sin perjuicio de trasladar aquellas asesorías que a criterio del auditor, le corresponderá efectuar a otros niveles de las Administración Activa.
+3) Servicio de advertencia. La Auditoría Interna deberá advertir a la Administración Municipal, incluyendo al Concejo, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+4) Servicio de Conversaciones de control interno. La Auditoría Interna podrá emitir mediante los medios internos dispuestos en la Municipalidad de León Cortés, aquellos oficios dirigidos a todo personal, en los cuales se discutan temas de la competencia a fin de mejorar el conocimiento general de asuntos de control interno.

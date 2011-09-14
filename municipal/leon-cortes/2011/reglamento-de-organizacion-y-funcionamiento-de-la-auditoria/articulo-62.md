@@ -1,0 +1,1 @@
+Artículo 62.—Explicación de los trabajos de asesoría. A criterio del Auditor Interno, se coordinará con el Consejo Municipal respecto de los objetivos, el alcance, las responsabilidades respectivas, limitaciones y demás aspectos de los servicios de asesoría que se requieran. Deberá valorar si envía un oficio indicando estás consideraciones.

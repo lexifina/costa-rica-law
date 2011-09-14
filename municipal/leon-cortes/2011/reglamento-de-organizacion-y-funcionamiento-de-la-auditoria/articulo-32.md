@@ -1,0 +1,1 @@
+Artículo 32.—Pericia y cuidado profesional. El Auditor y Subauditor internos deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.

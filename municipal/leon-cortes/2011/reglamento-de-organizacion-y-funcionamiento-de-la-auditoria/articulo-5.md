@@ -1,0 +1,1 @@
+Artículo 5º—Enunciados y códigos éticos. Los funcionarios de la auditoría interna tendrá la obligación de conocer y cumplir los principios éticos contemplados en el Código de Ética del Colegio de Contadores Públicos de Costa Rica, sus actualizaciones y reformas, así como los valores socialmente aceptados con una conducta acorde.

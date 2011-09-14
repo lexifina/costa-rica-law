@@ -1,0 +1,1 @@
+Artículo 71.—Probabilidad de errores e irregularidades. El funcionario de la Auditoría deberá considerar la posibilidad de errores, irregularidades, incumplimientos y otras exposiciones al desarrollar los objetivos del estudio.

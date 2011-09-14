@@ -1,0 +1,1 @@
+Artículo 19.—Disciplinas. Las distintas disciplinas que sustentan el perfil de los funcionarios y las funcionarias de la Auditoría Interna, deberán concordar con su estructura y con los servicios que presta la Municipalidad de León Cortés.

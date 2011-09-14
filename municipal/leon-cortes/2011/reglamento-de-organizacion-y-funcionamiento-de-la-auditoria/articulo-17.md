@@ -1,0 +1,1 @@
+Artículo 17.—Estructura organizativa. La Auditoría Interna está conformada unipersonalmente por el Auditor Interno, sin perjuicio que a futuro y conforme el establecimiento de necesidades se nombre un subauditor interno o personal administrativo y de apoyo.

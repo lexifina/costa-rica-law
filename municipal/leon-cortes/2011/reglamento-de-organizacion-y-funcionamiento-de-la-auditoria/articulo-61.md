@@ -1,0 +1,1 @@
+Artículo 61.—Origen de los estudios o servicios. Los estudios o servicios de la Auditoría Interna se podrán originar por solicitud de la Contraloría General de la República. El Consejo Municipal, la Alcaldía, el contenido del Plan Anual Operativo, el criterio del Auditor Interno o por medio de una denuncia.

@@ -1,0 +1,1 @@
+Artículo 79.—Análisis y evaluación. Los funcionarios de la Auditoría Interna deberán basar sus hallazgos, conclusiones, recomendaciones y demás resultados del trabajo en el adecuado análisis y evaluaciones de la información obtenida en sus estudios.

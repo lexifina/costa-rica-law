@@ -1,0 +1,1 @@
+Artículo 85.—Comunicación a entes ajenos a la Municipalidad. Cuando se envíen resultados de un trabajo a entes ajenos a la organización, la comunicación deberá estar sustentada en las regulaciones atinentes.

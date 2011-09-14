@@ -1,0 +1,7 @@
+Artículo 11.—Prohibiciones. El Auditor y los demás funcionarios de la Auditoría Interna, tendrán las siguientes prohibiciones:
+1. Realizar funciones y actuaciones de la administración activa, salvo las necesarias para cumplir con su competencia.
+2. Formar parte de un Órgano Director de un Procedimiento Administrativo.
+3. Ejercer profesiones liberales fuera del cargo, excepto para asuntos personales o en los que su cónyuge o conviviente, sus ascendientes, descendientes y colaterales, por consanguinidad y afinidad hasta tercer grado. Esta prohibición abarca cualquier profesión o profesiones que tenga el funcionario o la funcionaria. De esta prohibición, se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
+4. Participar en actividades político-lectoral, salvo la emisión del voto en las elecciones nacionales, municipales y cualquier otra, convocada por el Tribunal Supremo de Elecciones.
+5. Revelar información sobre las auditorías o estudios especiales de auditoría que se estén realizando y principalmente sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios o funcionarias. Esta prohibición se mantendrá por el tiempo que dure el proceso administrativo o judicial correspondiente.
+6. Ejecutar actos, labores, procesos, que a la luz del principio de legalidad establecido por la normativa aplicable no le corresponden, así como aquellos establecidos como prohibiciones en los reglamentos internos de la Municipalidad o similares.

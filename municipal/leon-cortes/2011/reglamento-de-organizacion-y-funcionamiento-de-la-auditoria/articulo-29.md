@@ -1,0 +1,4 @@
+Artículo 29.—Rendición de cuentas de la gestión de Auditoría Interna. El Auditor Interno responderá por su gestión ante el jerarca, y ante éste presentará al menos, el informe de labores previsto en la Ley General de Control Interno.
+En este deberá informar, al menos anualmente, al Consejo Municipal sobre la actividad desplegada por la Auditoría Interna en lo referido a propósito y desempeño del Plan de Trabajo. El informe anual de labores de la Auditoría Interna deberá ser presentado a más tardar en el mes de febrero.
+Podrá contener asuntos relevantes sobre exposición al riesgo, cuestiones de control, de los procesos de dirección y otros necesarios o requeridos para el buen funcionamiento de la organización.
+A consideración del Auditor podrá incluirse un apartado con el criterio respecto al estado general institucional.

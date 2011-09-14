@@ -1,0 +1,1 @@
+Artículo 90.—Comunicación oficial. El Auditor deberá comunicar oficialmente los resultados de su trabajo, mediante informes, oficios u otros dirigidos al Concejo Municipal, la Alcaldía, o al resto de la administración, con competencia y autoridad para ordenar la implantación de las respectivas recomendaciones o atender los asuntos comunicados.

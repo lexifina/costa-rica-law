@@ -1,0 +1,1 @@
+Artículo 63.—Asesoría y advertencia sobre la marcha. Si durante la realización de un trabajo de auditoría preventiva surgen oportunidades de realizar advertencias, a fin de realizar la corrección oportuna e inmediata de una situación negativa sin consecuencias totales en el momento, el funcionario deberá comunicarlo si a su juicio las circunstancias lo demandan o permiten.

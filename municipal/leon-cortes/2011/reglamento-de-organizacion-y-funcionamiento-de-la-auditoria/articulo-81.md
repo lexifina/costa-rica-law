@@ -1,0 +1,1 @@
+Artículo 81.—Supervisión del trabajo. Los trabajos que se realicen por funcionarios del departamento, expertos, o terceras personas, y que se refieran investigaciones de auditoría, deben ser adecuadamente supervisados por el Auditor Interno, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.
