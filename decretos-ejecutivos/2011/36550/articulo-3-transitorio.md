@@ -1,0 +1,2 @@
+Transitorio 3: En un plazo de 18 meses, a partir de la entrada en vigencia del presente reglamento, los profesionales tendrán la opción de tramitar la revisión en forma digital, de conformidad con las disposiciones del presente reglamento; o en forma física, en cuyo caso se continuarán aplicando las disposiciones de los Decretos Ejecutivos Nº 27967 y Nº 33799; pudiéndose utilizar para cada caso particular una de estas dos vía de trámite de manera exclusiva.
+Dado en la Presidencia de la República.—San José, a los veintiocho días del mes de abril del dos mil once.

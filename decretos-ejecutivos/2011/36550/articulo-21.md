@@ -1,0 +1,1 @@
+Artículo 21.—Requisitos oficiales y divulgación. Los únicos requisitos que las instituciones pueden solicitar a los administrados serán aquellos que hayan sido publicados en el Sitio oficial de www.tramitesconstruccion.go.cr, siendo obligación de las instituciones de reportar al CFIA cualquier cambio que se genere a partir de las modificaciones en la regulación vigente.

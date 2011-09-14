@@ -1,0 +1,5 @@
+CAPÍTULO VI
+De la fiscalización y responsabilidad profesional
+del trámite de planos de construcción
+Artículo 17.—Responsabilidades de los profesionales. En adición a todas las obligaciones y responsabilidades que se derivan del ejercicio profesional, y del cumplimiento de la normativa vigente en materia de construcciones, el o los profesionales responsables deberán mantener en el sitio de la obra, los planos constructivos y el permiso de construcción autorizado por la municipalidad correspondiente, así como las copias de todos los documentos de disponibilidad, alineamientos, y autorizaciones del proyecto indicados en los artículos 3, 7 y 11 del presente reglamento, a efecto que los inspectores de las instituciones competentes, puedan realizar su labor de fiscalización.
+Asimismo, el profesional responsable designado debidamente para cada proyecto, estará en la obligación de reportar, por medio del sistema digital del CFIA, el inicio de las obras, ampliación, transformación o modificación.
