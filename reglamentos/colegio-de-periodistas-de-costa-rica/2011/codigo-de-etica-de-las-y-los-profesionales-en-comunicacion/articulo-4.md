@@ -1,0 +1,1 @@
+Artículo 4º—Regirse por los valores de libertad, respeto y diálogo, solidaridad, integridad, justicia, veracidad, lealtad, responsabilidad, transparencia, equidad, calidad, excelencia y compromiso social, con el fin de ejercer la profesión con dignidad y honorabilidad.

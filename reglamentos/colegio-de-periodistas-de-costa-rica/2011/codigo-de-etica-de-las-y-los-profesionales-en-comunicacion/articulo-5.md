@@ -1,0 +1,1 @@
+Artículo 5º—Mantener con firmeza la credibilidad, conservando la honra y noble tradición de la profesión, al ser leales con las empresas, organizaciones y colaboradores, siempre y cuando no atente contra el interés público.

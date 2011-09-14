@@ -1,0 +1,1 @@
+Artículo 2º—Respetar los derechos de las personas en general y con especial cuidado los relacionados a la infancia, la adolescencia, las mujeres, las personas adultas mayores, las personas con discapacidad, la naturaleza y el pluralismo en todos los ámbitos de las relaciones humanas.
