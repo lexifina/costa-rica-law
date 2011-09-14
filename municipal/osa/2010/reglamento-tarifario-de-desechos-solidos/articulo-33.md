@@ -1,1 +1,0 @@
-Artículo 33.—Dentro de la tarifa comercial 3 se incluyen todos los abastecedores, licoreras, bares, carnicerías, ebanistería, heladerías, imprentas, tiendas de ropa americana, talleres artesanales de pintura, talleres de mecánica, talleres de metal y fábricas artesanales, que se ubiquen dentro del área de cobertura del servicio de recolección.

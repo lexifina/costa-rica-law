@@ -1,1 +1,0 @@
-Artículo 6º—El servicio de basura es de carácter obligatorio para todo vecino, y se practicará por lo menos una vez por semana y de acuerdo con las normas que al efecto establezca la administración en el servicio.

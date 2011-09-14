@@ -1,1 +1,0 @@
-Artículo 44.—Es deber de cada usuario acatar los lineamientos e indicaciones del guarda del relleno de desechos voluminosos, para el adecuado uso y rendimiento del relleno. En incumplimiento a las indicaciones del caso, cera acreedor a una multa, conforme al costo de remoción de los desechos dispuestos en otro lugar.

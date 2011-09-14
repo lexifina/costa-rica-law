@@ -1,1 +1,0 @@
-Artículo 32.—Dentro de la tarifa comercial 2 se incluyen todos los acuarios, cerámicas, floristerías, viveros, homeopatía, librerías, pastelerías, pulperías, sodas, tiendas de ropa nueva, verdulerías, veterinarias y zapaterías, que se ubiquen dentro del área de cobertura del servicio de recolección.
