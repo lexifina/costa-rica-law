@@ -1,0 +1,1 @@
+Artículo 3°—Nombrar al señor Wilson Orozco Gutierre, cédula de identidad uno-seiscientos sesenta y ocho-cero ochenta y cuatro, funcionario del Instituto Costarricense de Turismo como representante suplente ante el Consejo Técnico de Aviación Civil en ausencia del Presidente Ejecutivo del Instituto Costarricense de Turismo.

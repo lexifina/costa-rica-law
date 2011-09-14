@@ -1,0 +1,1 @@
+Artículo 2°—Se revoca parcialmente el Acuerdo Nº 107-MOPT de los veintitrés días del mes de agosto del dos mil diez, publicado en el Diario Oficial La Gaceta Nº 188 del 28 de setiembre del 2010, en cuanto al nombramiento del representante del Presidente Ejecutivo del Instituto Costarricense de Turismo.
