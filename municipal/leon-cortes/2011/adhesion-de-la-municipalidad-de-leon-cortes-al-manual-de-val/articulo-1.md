@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LEÓN CORTÉS
+La Municipalidad del cantón de León Cortés, comunica que en Sesión Ordinaria N° 52, efectuada el 2 de mayo del 2011, se toma acuerdo N° l que dice: Se acuerda por unanimidad acogerse a la publicación del Manual de valores unitarios por tipología constructiva publicado por el Ministerio de Hacienda, Dirección General de Tributación Directa, en La Gaceta N° 30 del 11 de febrero del 2011, en su Alcance N° 12. Publíquese.
