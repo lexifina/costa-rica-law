@@ -1,0 +1,2 @@
+11. FORMALIZACIÓN DEL CONTRATO
+Cada vez que se asigne un trabajo, el Banco extenderá una Orden de Pedido que hará las veces de Orden de Compra y que se constituirá en el documento que para todos los fines ordene la correspondiente ejecución contractual. El Banco entregará la Orden de pedido o la notificará mediante fax a más tardar un (1) día hábil posterior a la adjudicación, misma que se hará efectiva cuando el Proceso de Infraestructura y Proyectos le comunique al Proveedor la razonabilidad del precio cotizado para el servicio requerido.
