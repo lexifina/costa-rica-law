@@ -1,0 +1,1 @@
+Artículo 4º—Los residuos sólidos generados serán propiedad y responsabilidad de la Municipalidad en el momento de que los usuarios del servicio público sitúan o entregan los residuos para su recolección. Sin embargo, la Municipalidad podrá otorgar mediante estudios que así lo justifiquen, el derecho de la recolección y la valorización a terceros calificados previamente.

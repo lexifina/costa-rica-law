@@ -1,0 +1,1 @@
+Artículo 36.—En caso de incumplimiento de los artículos de este Reglamento por parte del generador, el departamento Ambiental entregará una notificación al propietario en la dirección del lugar denunciado, señalando la inconformidad y solicitando su corrección dentro de un plazo de 10 días hábiles.

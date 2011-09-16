@@ -1,0 +1,36 @@
+CAPÍTULO 2
+Definiciones
+Artículo 5º—Para efectos de este Reglamento entiéndase por:
+Almacenamiento en la fuente: Acopio de residuos sólidos, inmediato a su generación.
+Centros de acopio: Lugares de almacenamiento, clasificación o embalaje de residuos aprovechables, en condiciones higiénicas que no pongan en peligro la salud humana o contaminen el medio ambiente. Deben contar con infraestructura sanitaria que permita a los empleados mantener las normas comúnmente aceptadas de higiene personal y salud ocupacional.
+Consumo sostenible: Adquirir productos de manera moderada y responsable de manera tal que se logre una reducción en el nivel de consumo de la población.
+Educación ambiental: Es el proceso de reconocer valores y aclarar conceptos para crear habilidades y actitudes necesarias, tendientes a comprender y apreciar la relación mutua entre el hombre, su cultura y el medio biofísico circundante, por lo tanto la educación ambiental es un proceso continuo en el cuál los individuos y la colectividad toman conciencia de su medio y adquieren los valores, las competencias y la voluntad para hacerlos capaces de actuar en la resolución de problemas actuales y futuros del medio ambiente.
+Entrega de residuos sólidos con separación primaria: Acción mediante la cual el generador de residuos, previa separación primaria y almacenamiento, coloca los residuos sólidos embalados adecuadamente de manera tal que la recolección de residuos pueda realizarse sin dificultad.
+Entrega de residuos sólidos sin separación primaria: Acción mediante la cual el generador de residuos, sin realizar previamente la separación primaria y almacenamiento, coloca los residuos sólidos embalados adecuadamente de manera tal que la recolección de residuos pueda realizarse sin dificultad.
+Fuente de generación de residuos: Sitio donde se generan los residuos, por ejemplo hogares, industrias, escuelas, comercios, universidades, entre otros.
+Generadores de residuos sólidos: Toda persona, institución, comercio, industria, entre otros, que genera residuos sólidos.
+Gestión integral de residuos sólidos: Conjunto de actividades del servicio de residuos sólidos a nivel familiar, institucional o industrial para entregar, almacenar, recolectar y aprovechar residuos sólidos con el objetivo de reducir al máximo la generación de residuos, maximizar su aprovechamiento, reducir los costos de manejo, minimizar la cantidad de basura así como evitar molestias y daños al bienestar de las personas o del medio ambiente.
+Manejo discriminado de residuos: Conjunto de acciones tendientes a almacenar, recolectar y dar tratamiento a los residuos sólidos clasificados según su naturaleza física y química y según las conveniencias para su comercialización o industrialización.
+Manejo responsable de sistemas de disposición final: Asegurarse que los rellenos sanitarios u otros sistemas de disposición final cumplan con los requerimientos que garanticen la protección del medio ambiente y la salud pública.
+Normas especiales: Reglamentaciones específicas para el manejo de algunos residuos específicos.
+Plan de educación ambiental: Guía de trabajo orientada a educar, formar y concienciar a la población en el tema de manejo adecuado y responsable de residuos sólidos.
+Personas prestadoras del servicio de residuos sólidos: todas aquellas personas de naturaleza física o jurídica autorizada por la municipalidad para prestar alguna de las actividades del servicio de residuos sólidos en el cantón.
+Productos reciclados: Materiales que son procesados para nuevamente ser incorporados como un nuevo producto o dar una nueva utilidad.
+Reciclaje: Reutilización de los residuos sólidos como materia prima en procesos industriales.
+Recolección de residuos sólidos: Servicio de transporte de residuos sólidos entre el almacenamiento primario o intermedio y plantas de compostaje o centros de acopio o industrias de aprovechamiento o la disposición final de los residuos sólidos no aprovechables en depósitos técnicos.
+Residuos aprovechables: Residuos sólidos que pueden ser reincorporados en la naturaleza, o ser reutilizados por la sociedad, sin perjuicio para la salud humana o del medio ambiente. Residuos que por su composición permiten rescatar algún valor económico o ser usados como materia prima en procesos industriales: por ejemplo el papel, vidrio, aluminio y Pet.
+Residuos no aprovechables: Residuo sólido que a nivel social carece de valor de uso. Todos aquellos residuos que no permiten rescatar algún valor económico o que no pueden reutilizarse. Por ejemplo servilletas usadas, papel higiénico, entre otros.
+Residuos no tradicionales: Son aquellos que están integrados por objetos y bienes duraderos que concluyeron su ciclo de vida útil. Algunos ejemplos de ellos son electrodomésticos, muebles, llantas viejas, bicicletas, computadoras, entre otros.
+Residuos orgánicos: Son residuos biodegradables que se puede utilizar en la producción de abono orgánico u otros productos reutilizables, que cumpla con las normas establecidas a nivel nacional y con las de este reglamento. Se refiere a aquellos que no hayan sido manipulados por el hombre.
+Residuos sólidos: Cualquier objeto o material en estado sólido o de contextura pastosa exceptuando las excretas de animales o personas y lodos de plantas de tratamiento de aguas residuales, biodigestores y tanques séptico, independientemente si este posea o no valor de uso.
+Residuos sólidos comerciales: son aquellos generados en establecimientos comerciales mercantiles.
+Residuos sólidos domiciliar: Son los generados en las casas de habitación como producto de las actividades cotidianas familiares.
+Residuos sólidos industrial: Son los generados a consecuencia de procesos industriales y manufactureros.
+Residuos sólidos institucionales: Son los generados en instituciones públicas o privadas exceptuando hospitales y terminales aéreas.
+Residuos sólidos municipales: La porción del flujo de residuos que incluye los residuos residenciales, comerciales, municipales institucionales y algunos industriales ligeros. No incluye los residuos peligrosos, radioactivos, médicos o industriales de gran volumen.
+Residuos biodegradables: Materiales o residuos que se descomponen en un lapso de tiempo menor a otros.
+Reutilización de los residuos: Dar un uso diferente a los materiales o residuos del que originalmente tenían.
+Separación de residuos en la fuente: Acción de separar y embalar adecuadamente los residuos en la fuente generadora en sus principales componentes aprovechables a saber: papel, cartón y derivados, vidrio, plásticos, latas de aluminio, residuos biodegradables, residuos no aprovechables o basura y otros que la tecnología haga posible aprovechar.
+Servicio de residuos sólidos: Es el servicio que comprende las actividades de recolección, transporte, transferencia, tratamiento, aprovechamiento y disposición final.
+Tasa de los servicios de residuos sólidos municipales: Cobro al contribuyente de acuerdo con la clasificación de los generadores por concepto de las actividades de residuos sólidos durante un ciclo mensual o durante un ciclo de facturación.
+Tratamiento adecuado de los residuos sólidos: Proceso mediante el cual se obtiene beneficios económicos, al medio ambiente, sociales a partir de un manejo responsable y correcto de residuos.

@@ -1,0 +1,1 @@
+Artículo 30.—La municipalidad fomentará establecer alianzas con organismos internacionales, que brinden capacitaciones en el tema a funcionarios de la Municipalidad así como a la comunidad en general.

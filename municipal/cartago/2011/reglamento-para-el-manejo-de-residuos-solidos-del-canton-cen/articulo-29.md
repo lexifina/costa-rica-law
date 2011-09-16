@@ -1,0 +1,1 @@
+Artículo 29.—La Municipalidad efectuará campañas de recolección de residuos aprovechables en zonas residenciales, centros educativos, y otros, principalmente con fines educativos y como incentivo de prácticas más adecuadas al manejo de los residuos en estos lugares.

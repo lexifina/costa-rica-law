@@ -1,0 +1,1 @@
+Artículo 38.—Se aplicarán las sanciones establecidas en el artículo 99 de la Ley Orgánica del Ambiente, a saber “Sanciones Administrativas”, por el incumplimiento de los artículos del presente reglamento.

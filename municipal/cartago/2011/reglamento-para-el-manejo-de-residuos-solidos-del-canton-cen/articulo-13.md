@@ -1,0 +1,1 @@
+Artículo 13.—La ciudadanía deberá estar informada sobre la forma de separar, preparar y entregar los residuos a la institución recolectora autorizada, así como también técnicas de clasificación de los residuos de los grupos señalados en el artículo 11 del presente reglamento.

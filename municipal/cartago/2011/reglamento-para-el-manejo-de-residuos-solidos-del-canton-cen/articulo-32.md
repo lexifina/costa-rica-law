@@ -1,0 +1,2 @@
+Artículo 32.—La Municipalidad en conjunto de la empresa privada y pública, escuelas, colegios, universidades, grupos sociales, religiosos entre otros, contribuirá y promoverá la reducción, la reutilización y el reciclaje, así como también un adecuado manejo y clasificación de los residuos sólidos.
+De esta manera deberá incorporar dentro de su presupuesto anual los costos relacionados con campañas publicitarias y de educación ambiental de residuos sólidos, utilizando medios de comunicación.
