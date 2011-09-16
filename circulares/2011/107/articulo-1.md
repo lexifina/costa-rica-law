@@ -1,0 +1,9 @@
+CIRCULAR Nº 107-2011
+ASUNTO: Obligación de utilizar los módulos Web del software Team Mate que emplea la Auditoria Interna para brindar la información solicitada.
+A LAS DEPENDENCIAS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión No. 72-11 celebrada el 23 de agosto de 2011, artículo XXXVIII, dispuso comunicar que la Auditoria Interna del Poder Judicial mediante el sistema Team Mate, realizará el seguimiento de las recomendaciones, observaciones y demás resultados derivados de los servicios de auditoria, por lo tanto, los titulares subordinados responsables de su implementación están en la obligación de utilizar el Módulo Team Central del sistema mencionado, a efecto de comunicar sobre las acciones emprendidas.
+Asimismo, solicitará a través del módulo TeamRisk Web a las oficinas judiciales, cuando lo considere pertinente, información sobre la gestión del riesgo, a fin de determinar y valorar los riesgos asociados que deben considerarse en los servicios de auditoria; según lo establece la normativa que rige la actividad de auditoría.
+El trámite de registro y envío de información en el Sistema, se hará conforme al “Manual de Usuario del Team Central” y “Manual de Usuario del Team Risk”, elaborados por la Auditoria Interna, en los cuales se establecen detalladamente el proceso de trámite a seguir para cada tema. Al respecto, el personal de auditoria brindará una inducción personalizada sobre el uso del sistema y estará atendiendo todas las consultas y dudas que tengan los usuarios en la extensión N° 4729 a cargo del licenciado Carlos Castro Hernández.
+El uso de estos módulos es de acatamiento obligatorio para todos los servidores y servidoras judiciales que en el ejercicio de sus funciones deban utilizarlo, salvo de aquellos que no cuenten con conexión a la red de datos institucional o que presenten otras limitaciones tecnológicas.
+San José, 16 de setiembre del 2011
