@@ -1,0 +1,1 @@
+Artículo 22.—Si el beneficiario no acepta la decisión tomada por el Departamento de Recursos Humanos, podrá recurrir ante ella en el término de ocho días hábiles a partir de la fecha en que reciba la comunicación, la que en un plazo similar deberá pronunciarse sobre el reclamo.

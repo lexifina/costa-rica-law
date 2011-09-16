@@ -1,0 +1,1 @@
+Artículo 21.—El Departamento de Recursos Humanos estudiará la solicitud y si la aprobare, determinará el puntaje obtenido, comunicando al interesado el resultado de su gestión, asimismo se remitirá la misma a la Sección de Planillas, para el cálculo del monto a pagar.
