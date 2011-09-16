@@ -14,3 +14,4 @@ Establece Área Marina de Pesca Responsable de Tárcoles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-19 | la propia norma |
+| 2 | 2011-09-16 | Acuerdo 333 (2011-09-16) |
