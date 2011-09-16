@@ -1,1 +1,0 @@
-4º—En relación con la estadía de las embarcaciones con fines científicos, de investigación, didácticos y de fomento, mediante acuerdo razonado y justificado, la Junta Directiva podrá eximir de este cobro, en aquellos casos en que exista un fin de beneficio público al país o a la institución y se suscriba un Convenio o acuerdo al efecto.
