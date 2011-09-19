@@ -1,0 +1,1 @@
+Artículo 3º—Los niños, niñas y adolescentes como sujetos de derechos y deberes. Los niños, niñas y adolescentes son sujetos plenos de derechos y obligaciones. Las instituciones educativas deben favorecer la realización del derecho a la educación y velar por el interés superior del niño, la niña y las y los adolescentes.

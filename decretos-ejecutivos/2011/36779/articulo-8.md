@@ -1,0 +1,1 @@
+Artículo 8º—Inclusión de la estrategia en el Plan Estratégico Institucional. Las acciones que se incluyan en la estrategia para mejorar la convivencia deberán ser integradas en el Plan Estratégico Institucional de cada centro educativo, de tal forma que las mismas se visualicen como parte integral de este.

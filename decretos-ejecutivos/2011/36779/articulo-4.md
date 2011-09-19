@@ -1,0 +1,1 @@
+Artículo 4º—Realización de los derechos de todos los actores de la comunidad educativa. Todos los miembros de la comunidad son sujetos de derechos y deberes, sin excepción alguna. Siendo titulares de esta condición intrínseca e inalienable, niños, niñas jóvenes y adultos son llamados a construir comunidad en toda institución escolar.

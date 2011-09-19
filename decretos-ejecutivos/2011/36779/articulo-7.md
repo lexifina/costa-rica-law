@@ -1,0 +1,4 @@
+TÍTULO 3
+Estrategias para la promoción de la convivencia
+Artículo 7º—Guía para la formulación de la estrategia. Cada centro educativo deberá elaborar una estrategia para la promoción de la convivencia. Los centros educativos contarán con una guía que sirva como base para la formulación de dicha estrategia. Esta guía contendrá actividades sugeridas para visualizar el estado actual de la convivencia en el centro educativo, generar las acciones que mejoren la convivencia, priorizar las acciones según la urgencia y la importancia y definir el cómo, cuándo y quiénes serán los responsables de su puesta en práctica.
+El desarrollo de estas acciones involucra a todos los miembros de la comunidad educativa y deberá adaptarse a las características de la población y el contexto de cada centro educativo.

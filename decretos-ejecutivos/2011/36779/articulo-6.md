@@ -1,0 +1,1 @@
+Artículo 6º—El encuentro de la ética y el derecho. En el ámbito escolar, la definición de normas de convivencia que observen la legislación nacional e internacional es clave para hacer plena realidad los derechos humanos de quienes integran las comunidades e instituciones educativas, armonizando el derecho y la ética como forma de realización histórica de la autonomía moral.
