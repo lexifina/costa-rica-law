@@ -14,3 +14,4 @@ Suspende para la Municipalidad de San Rafael de Heredia el Reglamento de Licenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-08 | la propia norma |
+| 2 | 2011-09-19 | Reglamento municipal 113 (2011-09-19) |
