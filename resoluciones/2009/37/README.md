@@ -14,3 +14,4 @@ Manual de Procedimientos para la Resolución de Visados y Certificaciones de Pla
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-13 | la propia norma |
+| 2 | 2011-09-19 | Resolución 4 (2011-09-19) |

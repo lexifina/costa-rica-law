@@ -21,6 +21,19 @@ VI. Contenido
 - Visado previo de otras instituciones cuando así se requiera.
 - Documentos probatorios de posesión, de tratarse de planos para tramitar una Información Posesoria.
 - Si por algún motivo externo a esta oficina, el plano debe ser sellado nuevamente (visado), se deberán aportar las copias selladas anteriormente para su anulación.
+(Nota: Mediante resolución R-SINAC-CONAC-04-2012 del 19 de setiembre de 2011, el Consejo Nacional de Áreas de Conservación acordó interpretar auténticamente el punto 6.3.1.1) anterior de la siguiente manera: "...6.3.1.1 Para la tramitación de solicitudes de visado el interesado deberá aportar: …
+- Documentos probatorios de posesión, de tratarse de planos para tramitar una Información Posesoria, los siguientes:
+Ο Declaración jurada del solicitante que claramente indique:
+1. Identificación del notario ante quien se realiza la declaración.
+2. Nombre y calidades del declarante y poseedor.
+3. Apercibimiento legal de que en caso de incurrir en perjurio o falso testimonio será penado de conformidad con la ley.
+4. Ubicación de la propiedad de conformidad en la hoja donde corresponda, con la indicación de las coordenadas.
+5. Tamaño en metros cuadrados de la propiedad.
+6. Descripción detallada de la cadena posesoria anterior a la creación del ASP.
+7. Manifestación expresa de haber poseído el área con anterioridad a la creación del ASP y la cantidad de años.
+8. Manifestación expresa de haber realizado actos de posesión compatibles con la naturaleza del área o con el medio ambiente.
+9. Mención de los colindantes y que no existen problemas de linderos con ellos.
+10. Indicación de tres testigos que en su momento darán fe de los hechos declarados ante la jurisdicción agraria correspondiente, una vez que inicie el proceso de información posesoria...". Asimismo se indica que el Consejo Nacional de Áreas de Conservación aclara que con la acción de solicitar los documentos aludidos como prueba de la posesión, tratándose de visado de planos para información posesoria, no está sustituyendo ni ejerciendo competencias propias de los órganos jurisdiccionales, en el en encargo de valorar la posesión en el contexto de un procedimiento no contencioso de diligencias de información posesoria, de conformidad con la normativa vigente.)
 6.3.1.2 Para la tramitación de solicitudes de certificación el interesado deberá aportar:
 - Solicitud escrita que incluya: nombre completo del solicitante, firma, número de cédula de identidad y número telefónico donde pueda ser localizado; número de plano, nombre completo del propietario, finalidad de la solicitud.
 - Plano original o copia certificada extendida por el Catastro Nacional o por Notario Público (copia fiel y exacta, timbres de Ley en papel de seguridad, según la regulaciones del Código Notarial) y una fotocopia legible del mismo del tamaño real al plano original, por lo tanto no se aceptan reducciones o fotocopias parciales del plano.
