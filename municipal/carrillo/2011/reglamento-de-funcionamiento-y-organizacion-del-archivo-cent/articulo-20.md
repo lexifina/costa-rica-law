@@ -1,0 +1,1 @@
+Artículo 20.—El sistema de clasificación de los documentos que se utilizará en la Municipalidad estará basada en la estructura orgánica, y podrá ser complementado con el Sistema “Funcional”, el cual permite crear expedientes según la importancia del asunto.

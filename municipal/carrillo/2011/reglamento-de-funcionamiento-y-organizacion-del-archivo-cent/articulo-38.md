@@ -1,0 +1,1 @@
+Artículo 38.—Sin las normas anteriores el usuario podrá ser retirado de la sala de consulta, para lo cual el Archivista podrá hacer uso de los inspectores municipales y de la Fuerza Pública si fuera el caso.
