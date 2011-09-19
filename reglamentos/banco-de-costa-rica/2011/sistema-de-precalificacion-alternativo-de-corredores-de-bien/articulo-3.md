@@ -1,0 +1,1 @@
+Artículo 3º—Normativa aplicable. Para el sistema de contratación regulado en este instructivo regirán los principios constitucionales y legales, así como las prohibiciones y requisitos establecidos en la Ley de Contratación Administrativa y demás normativa administrativa aplicable.

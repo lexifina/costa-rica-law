@@ -1,0 +1,1 @@
+Artículo 23.—Aprobación. Este Sistema Alternativo fue sometido a aprobación de la Contraloría General de la República, quien lo aprobó mediante oficio DCA-2247 de fecha 2 de setiembre de 2011, notificado el 8 de setiembre del mismo año.

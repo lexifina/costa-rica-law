@@ -1,0 +1,1 @@
+Artículo 6º—Inscripciones periódicas. El Banco, anualmente, realizará la publicación para invitar a los corredores a inscribirse en el Registro de Elegibles. Quedarán inscritos aquellos corredores que soliciten su inscripción y que cumplan con los requisitos técnicos y legales establecidos en este Sistema.

@@ -1,0 +1,1 @@
+Artículo 14.—Conformación de la base de datos. Firme la aprobación de las solicitudes respectivas, la Oficina de Compras y Pagos procederá a conformar el Registro de Elegibles. La lista será administrada por la Unidad de Bienes Adquiridos.

@@ -1,0 +1,2 @@
+Artículo 10.—Expediente. La Oficina de Compras y Pagos procederá a conformar un expediente para cada solicitud de inscripción, incorporando en él todos los documentos técnicos y legales que aporten, el estudio de las solicitudes y todas las actuaciones internas o externas que tengan relación con la solicitud. Los borradores no podrán formar parte del expediente.
+La incorporación de los documentos al expediente no podrá exceder de dos días hábiles una vez recibidos por la Oficina de Compras y Pagos.

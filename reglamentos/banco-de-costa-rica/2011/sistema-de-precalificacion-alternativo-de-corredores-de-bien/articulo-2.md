@@ -1,0 +1,1 @@
+Artículo 2º—Cobertura. Este Sistema se aplica a la contratación de Corredores de Bienes, cuyo procedimiento se realizará por medio de la Oficina de Compras y Pagos, en coordinación con la Unidad de Bienes Adquiridos, ambas del Banco de Costa Rica.
