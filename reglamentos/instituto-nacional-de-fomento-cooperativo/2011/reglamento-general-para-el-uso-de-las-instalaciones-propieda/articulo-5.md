@@ -1,0 +1,1 @@
+Artículo 5º—Uso de instalaciones. Para la atención de las solicitudes de uso de instalaciones comprendidas en el inciso 2) del artículo 2º del presente Reglamento, el Gerente Administrativo Financiero evaluará cada solicitud y resolverá al respecto.

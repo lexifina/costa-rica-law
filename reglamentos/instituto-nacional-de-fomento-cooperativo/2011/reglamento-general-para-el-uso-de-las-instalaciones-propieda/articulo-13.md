@@ -1,0 +1,2 @@
+Artículo 13.—Actividades simultáneas. Si se presentaren solicitudes para la utilización de un mismo espacio en las instalaciones del INFOCOOP para una misma fecha y hora, el Gerente Administrativo Financiero, resolverá en definitiva cuál solicitud escoger, considerando la fecha de presentación de la solicitud o en su defecto la de mayor representatividad en los términos del artículo 1.
+Igualmente la solicitud que no sea escogida podrá ser tomada en cuenta para otra fecha, si así lo desean los interesados.

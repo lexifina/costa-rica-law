@@ -1,0 +1,1 @@
+Artículo 17.—Venta de materiales. El permisionario podrá llevar a cabo durante la actividad, únicamente la venta de materiales o artículos derivados o relacionados con la actividad principal que se adecúe a lo dispuesto en el artículo primero, no obstante, ello estará sujeto a la aprobación previa del Supervisor.

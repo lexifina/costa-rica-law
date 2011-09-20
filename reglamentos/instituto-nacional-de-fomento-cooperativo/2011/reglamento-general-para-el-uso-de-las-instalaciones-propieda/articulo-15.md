@@ -1,0 +1,1 @@
+Artículo 15.—Capacidad de las instalaciones. Será responsabilidad del Supervisor, velar por que las instalaciones a su cuido no supere el máximo de personas permitidas en atención a su capacidad, dimensiones y ubicación.
