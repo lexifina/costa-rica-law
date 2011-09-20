@@ -1,1 +1,1 @@
-Artículo 4º—La información que se da en la solicitud respectiva deberá ser fidedigna. Si se comprueba lo contrario, automáticamente se desechará la solicitud, la Comisión de Becas estará en plena autoridad para verificar la información cuando lo considere pertinente.
+Artículo 4º—La información que se da en la solicitud respectiva deberá ser fidedigna. Si se comprueba lo contrario, automáticamente de desechará la solicitud, la Comisión de Becas estará en plena autoridad para verificar la información cuando lo considere pertinente.

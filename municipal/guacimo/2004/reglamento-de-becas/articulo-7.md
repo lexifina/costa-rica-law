@@ -1,1 +1,1 @@
-Artículo 7º—Las personas interesadas en una beca municipal deberán presentar aparte de la información requerida en el artículo 3º, copia del último informe de las calificaciones, emitida por la institución educativa correspondiente.
+Artículo 7º—Las personas interesadas en una beca Municipal deberán presentar aparte de la información requerida en el artículo 3, copia del último informe de las calificaciones, emitida por la Institución educativa correspondiente.

@@ -1,0 +1,15 @@
+DISPOSICIONES TRANSITORIAS:
+Transitorio 1.: Considerando que:
+a. Este Gobierno Local ha auspiciado, junto con el CUNLIMON y la Universidad Nacional Autónoma –UNA-, la realización de un diplomado en gestión municipal en ciudad Guácimo, para lo cual ha promovido y dispuesto becas para sus funcionarios.
+b. Este Gobierno Local ha dispuesto lo necesario para becar, con el pago de la colegiatura, a 22 estudiantes en dicha carrera, de los cuales solo 15 son estudiantes y funcionarios del Municipio.
+c. Hay contenido presupuestario suficiente en el renglón correspondiente para cubrir el pago de la colegiatura para al menos siete estudiantes adicionales a los que actualmente están becados.
+d. Se requiere de recursos humanos capacitados para la ejecución de actividades y procesos de capacitación en diversas áreas orientados a la dirigencia comunal como a los Regidores, Concejales de Distrito y a otros Grupos y Administrados, en temas del desarrollo local, la elaboración de perfiles y la formulación de proyectos, así como a otros grupos que ejecutan proyectos en coordinación, con el Gobierno Local y sus requerimientos.
+Por tanto se resuelve por esta única vez:
+a. Asignar la beca consistente en la cobertura del pago de la colegiatura en la carrera del Diplomado en Gestión Municipal y el disfrute del fotocopiado de los materiales didácticos y bibliográficos respectivos, a partir del tercer cuatrimestre de este año y por el resto de la carrera, a cinco munícipes y estudiantes de la Carrera de Gestión Municipal impartida por el CUNLIMON y la UNA, sobre la base del buen rendimiento académico y aprobación de los cursos correspondientes para conservar el beneficio, con el compromiso de que colaboren -con el Gobierno Local- en la capacitación correspondiente en diferentes tópicos para los cuales están siendo formados, capacitación que se administrará a la dirigencia comunal, a Regidores y Concejales de Distrito en coordinación con este Municipio. El compromiso de colaborar, por parte de los beneficiarios, aplica durante el proceso de formación como a partir de la conclusión de la carrera a razón de al menos dos años después de finalizados sus estudios.
+b. Se le ordena a la Administración para que, por medio de la Asesoría Jurídica, prepare los correspondientes Convenios de Cooperación, derivados de estas disposiciones transitorias, a suscribirse entre cada beneficiario y la Municipalidad, mismos que recogerán el espíritu de estos transitorios, en la técnica jurídica correspondiente y así se establezca el compromiso de colaborar en los procesos de capacitación en diferentes áreas del desarrollo local, durante el proceso de formación y después del mismo por al menos dos años más.
+c. Los cinco nuevos becarios que se hacen acreedores a este beneficio son los siguientes estudiantes:
+1. Nelson Lobo Rodríguez, cédula 502970134, tel. 8713-5427
+2. Kenya Garita Johnson, cédula 1-1204751, tel. 8842-4632
+3. Maritza Rodríguez Recinos, cédula 800860489, tel. 8375-4583
+4. Leonel López López, cédula 13200re4060001999 tel. 8768-9591
+5. Ligia Hemmings Bailey, cédula 7-068-009, tel. 8616-9462

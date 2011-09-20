@@ -1,1 +1,1 @@
-Artículo 8º—Solamente se otorgará una beca por núcleo familiar y podrá ser para estudiantes de centros educativos públicos o privados, cuando se trate de enseñanza superior.
+Artículo 8º—Se otorgará hasta un máximo de dos becas, por núcleo familiar para estudiantes de Centros Educativos públicos, dentro de la Jurisdicción territorial del Cantón y vecinos del cantón.

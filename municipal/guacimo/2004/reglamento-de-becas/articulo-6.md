@@ -1,2 +1,1 @@
-Artículo 6º—No constituye impedimento formal que los hijos o familiares de empleados o miembros del Concejo Municipal puedan ser beneficiados del Programa de Becas, siempre y cuando cumplan con las disposiciones del presente reglamento.
-(Así reformado por acuerdo N° 5 tomado en la sesión N° 02 del 08 de enero de 2008)
+Artículo 6º—No constituye impedimento formal que los hijos o familiares de empleados municipales, puedan ser beneficiarios del Programa de Becas, siempre y cuando cumplan con las disposiciones del presente Reglamento y clasifiquen por su condición socioeconómica y académica. Para el caso de los familiares de miembros del Concejo Municipal se excluyen a quienes estén bajo el supuesto del primer grado por afinidad o por consanguinidad.
