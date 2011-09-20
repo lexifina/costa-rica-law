@@ -169,14 +169,12 @@ CONDUCTIVIDAD Y pH
 Servicio de calibración | Ámbito de medición | Incertidumbre expandida (k=2) | Precio USD
 Equipo a calibrar | Método de calibración | Valor mínimo | Valor máximo | Valor
 Medidor de pH (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | Comparación directa con patrón (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | -200 mV (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 1000 mV (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 0,6 mV (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 94 (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010)
-Conductimetro (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | Comparación Directa con patrón (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 1413 u S/cm (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 12,77 mS/cm (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 0,15 % (para cada patrón) mS/cm, u S/cm (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 75, punto Adicional 13 (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010)
+Conductimetro (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | Comparación Directa con patrón (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 1413 u S/cm (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 12,77 mS/cm (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 0,15 % (para cada patrón) mS/cm, u S/cm (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 75, punto Adicional 13 (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010
 Servicio de calibración | Ámbito de medición | Incertidumbre expandida (k=2) | Precio USD
 Equipo a calibrar | Método de calibración | Valor mínimo | Valor máximo | Valor
-| | | | |
 Materiales de referencia | | |
 | Precio USD |
-Disolución multielemental de metales (presentación de 250 cm3): Cadmio, Plomo, Níquel, Cobre, Cromo y Zinc (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 50 (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | | |
-| | | | |
+Disolución multielemental de metales (presentación de 250 cm3): Cadmio, Plomo, Níquel, Cobre, Cromo y Zinc (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 50 (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010)
 Cisternas | | | |
 Equipo | Precio USD | |
 Verificación Inicial de cisterna (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | 75 (Corregido mediante Fe de Erratas, publicada en La Gaceta N° 131 del 7 de julio de 2010) | | | |
@@ -184,7 +182,7 @@ Verificación subsecuente de cisterna (Corregido mediante Fe de Erratas, publica
 | | | | | | | |
 Reconocimientos
 | | Precio USD
-Reconocimiento de Unidades de Verificación | 25
+Reconocimiento de Unidades de Verificación Metrológica (Así reformado el servicio anterior mediante resolución N° R-LACOMET-086-2011 del 20 de setiembre del 2011) | 500.00 USD (Así reformado el precio anterior mediante resolución N° R-LACOMET-086-2011 del 20 de setiembre del 2011)
 Reconocimiento de Laboratorios Nacionales | 50
 Aprobación de modelo y verificación inicial (10 o menos unidades) | 300
 Sellos (valor unitario) | 10
@@ -210,7 +208,7 @@ Curso Intermedio de Temperatura (40 horas) | 1000
 Curso Avanzado de Temperatura (40 horas) | 1000
 Las Tarifas indicadas para los cursos de capacitación en Curso de Presión-Esfigmomanómetros, Curso Intermedio de Masas, Curso Intermedio de Volumen, Curso Intermedio de Presión, Curso Intermedio de Temperatura, Curso Avanzado de Temperatura serán cobradas a razón de en veinticinco dólares por hora (25,00 USD) por persona por curso.
 (*)( Así adicionado el servicio anterior mediante resolución N° R-LACOMET-048-2011 del 26 de mayo del 2011)
-INTERCOMPARACIONES(*)
+INTERCOMPARACIONES
 Departamento | Metrología Física | Precio USD
 Prueba de Aptitud en Presión Neumática Relativa Alcance detallado: de 0 a 1600 kPa Requisitos para participar: Capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 5 kPa | 150
 Prueba de Aptitud en Presión Hidráulica Relativa Alcance detallado: de 0 a 70 MPa Requisitos para participar: Capacidad de medición en el alcance detallado e incertidumbre expandida menor o igual a 120 kPa | 150
@@ -223,7 +221,7 @@ Lacomet-DMQ-01-2011. Índice de refracción y grados Brix. | Reunión de apertur
 Lacomet-DMQ-02-2011. Actividad del ión hidronio, pH, 25°C. | Reunión de apertura: 5° semana de setiembre, 2011. Distribución de muestras: Entre 5° semana de setiembre y 1° semana de octubre, 2011 Fecha límite de entrega de resultados: 30 de noviembre, 2011 Discusión de resultados y reunión de cierre: 3ra semana de febrero, 2012 | Organizar una ronda de aptitud para los laboratorios de ensayo del país donde se evalúe la medición de la actividad del ión hidronio, pH. | Actividad del ión hidronio Valores nominales a evaluar: pH 4; pH 7 y pH 10 Tamaño de muestra: 100mL de cada disolución amortiguadora. Estas disoluciones se preparan a partir de MRC, trazabilidad DKD, Alemania. Además se entregarán dos muestras que consisten en 30 g de amortiguador de pH 4 y 12 g de amortiguador de pH 9, para contrastar resultados con los MR de Lacomet.
 (*)(Así adicionado el servicio anterior mediante resolución Nº R-LACOMET-081-2011del 5 de agosto del 2011)
 (*) ENSAYOS DE APTITUD TÉCNICA
-Metrología Química | Precio USD
+Departamento | Metrología Química | Precio USD
 Nombre del Ensayo de Aptitud: LACOMET-DMQ-001-2011 Actividad del ión hidronio, pH, 25 °C. Alcance detallado: Valores nominales de pH 4, pH 7 y pH 9 Requisitos para participar: abierto a laboratorios de ensayos químicos en general | 150
 Nombre del Ensayo de Aptitud: LACOMET-DMQ-002-2011. Índice de refracción y grados Brix. Alcance detallado: 1,3000 nD a 1,5000 nD (índice de refracción) 28 ºBx a 60 ºBx (grados Brix) Requisitos para participar: abierto a laboratorios de ensayos químicos en general. | 150
 (*)(Así adicionado el servicio anterior mediante resolución Nº R-LACOMET-081-2011del 5 de agosto del 2011)
@@ -232,5 +230,10 @@ Nombre del Ensayo de Aptitud: LACOMET-DMQ-002-2011. Índice de refracción y gra
 Equipo | Precio USD
 Verificación Inicial | 56
 Verificación Subsecuente o periódica | 56
-Aprobación de Modelo
+Aprobación de Modelo |
 (*)(Así adicionado el servicio anterior mediante resolución Nº R-LACOMET-081-2011del 5 de agosto del 2011)
+(*)Verificación Cámara de Expansión
+| Precio USD
+Verificación Inicial | 75 00 USD
+Verificación Subsecuente | 40 00 USD
+(*)(Así adicionado el servicio anterior mediante resolución N° R-LACOMET-086-2011 del 20 de setiembre del 2011)

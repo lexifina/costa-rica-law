@@ -16,3 +16,4 @@ Tarifas por Servicios Metrólogicos del Laboratorio Costarricense de Metrología
 | 1 | 2011-06-24 | la propia norma |
 | 2 | 2011-06-24 | Resolución 48 (2011-05-26) |
 | 3 | 2011-08-05 | Resolución 81 (2011-08-05) |
+| 4 | 2011-09-20 | Resolución 86 (2011-09-20) |
