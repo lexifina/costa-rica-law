@@ -1,0 +1,1 @@
+Artículo 2º—La Administración del Refugio Nacional de Vida Silvestre Tapiria, corresponderá al Sistema Nacional de Áreas de Conservación a través del Área de Conservación Cordillera Volcánica Central.

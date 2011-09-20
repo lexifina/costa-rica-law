@@ -1,0 +1,1 @@
+Artículo 4º—De conformidad con lo que establece el artículo 39 de la Ley de Biodiversidad Nº 7788 y su Reglamento, el Área de Conservación Cordillera Volcánica Central podrá concesionar u otorgar permisos de uso para la prestación de los servicios no esenciales a brindarse en el Refugio Nacional de Vida Silvestre Tapiria.

@@ -1,0 +1,1 @@
+Artículo 3º—El manejo de los recursos naturales inmersos dentro del Refugio Nacional de Vida Silvestre Tapiria, estará sujeto a lo establecido en el Plan General de Manejo de dicha Área Silvestre Protegida; mismo que deberá ser aprobado por las instancias correspondientes del Sistema Nacional de Áreas de Conservación.
