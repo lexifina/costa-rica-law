@@ -11,7 +11,8 @@ Artículo 2º—Definiciones. Para efectos de la aplicación del presente Reglam
 10. Especificidad: Medida del rango de hospederos de un agente de control biológico bajo una escala que va desde el especializado extraordinariamente, que sólo puede completar el desarrollo en una especie o cepa única de su huésped (monófago) hasta el general, con muchos hospederos que comprenden varios grupos de organismos (polífago).
 11. Etiqueta: Material impreso o gráfico que acompaña al envase, con la información del producto registrado.
 12. Hospedero: Cualquier sustrato orgánico que sirva de alimento a un organismo vivo.
-13. Importador: Persona física o jurídica registrado en el SFE, que introduce al país organismos invertebrados de uso agrícola.
+13. Importador: Persona física o jurídica registrado en el SFE(*), que introduce al país organismos invertebrados de uso agrícola.
+(Nota de Sinalevi: Mediante el artículo 48 del Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado, aprobado mediante decreto ejecutivo N° 36801 del 20 de setiembre del 2011, se indica que las funciones asignadas al SFE serán realizadas por el Departamento de Biotecnología.")
 14. Introducción: Liberación de un agente de control biológico en un ecosistema donde no existía anteriormente.
 15. Legislación: Conjunto de leyes que integran el derecho positivo de
 un Estado.
@@ -23,7 +24,9 @@ un Estado.
 21. Permiso de Importación: Documento oficial que autoriza la importación de organismos invertebrados de uso agrícola de conformidad con requisitos fitosanitarios específicos.
 22. Plaga: Cualquier especie, raza o biotipo vegetal o animal o agente patógeno dañino para las plantas o productos vegetales.
 23. Productor: Persona física o jurídica encargada de reproducir organismos invertebrados de uso agrícola con fines de comercialización.
-24. Registrante: Persona física o jurídica que solicite el servicio de registro de un producto fitosanitario u organismo invertebrado ante el SFE.
+24. Registrante: Persona física o jurídica que solicite el servicio de registro de un producto fitosanitario u organismo invertebrado ante el SFE(*).
+(Nota de Sinalevi: Mediante el artículo 48 del Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado, aprobado mediante decreto ejecutivo N° 36801 del 20 de setiembre del 2011, se indica que las funciones asignadas al SFE serán realizadas por el Departamento de Biotecnología.")
 25. Registro: Procedimiento legal mediante el cual todos los organismos invertebrados de uso agrícola son autorizados por el Ministerio para su venta y uso, de acuerdo a lo establecido en el presente Reglamento.
 26. Tipo de acción: Modo de acción del organismo invertebrado de uso agrícola (parasitoide, depredador, polinizador y mutualista) sobre las distintas plagas.
-27. Titular del Registro: Persona física o jurídica propietaria del registro de un organismo invertebrado de uso agrícola en el SFE.
+27. Titular del Registro: Persona física o jurídica propietaria del registro de un organismo invertebrado de uso agrícola en el SFE(*).
+(Nota de Sinalevi: Mediante el artículo 48 del Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado, aprobado mediante decreto ejecutivo N° 36801 del 20 de setiembre del 2011, se indica que las funciones asignadas al SFE serán realizadas por el Departamento de Biotecnología.")
