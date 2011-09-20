@@ -13,4 +13,5 @@ Considerando:
 Decretan:
 CREACIÓN DEL REGISTRO DE IMPORTADORES
 DE VEGETALES Y PRODUCTOS DE ORIGEN VEGETAL
-Artículo 1º—Toda persona, física o jurídica, que importe vegetales o productos de origen vegetal, con fines de distribución y/o comercialización, dentro del territorio nacional, deberá estar inscrita en el Registro de Importadores del Servicio Fitosanitario del Estado, a cargo de la Gerencia Técnica de Cuarentena Vegetal.
+Artículo 1º—Toda persona, física o jurídica, que importe vegetales o productos de origen vegetal, con fines de distribución y/o comercialización, dentro del territorio nacional, deberá estar inscrita en el Registro de Importadores del Servicio Fitosanitario del Estado, a cargo de la Gerencia Técnica de Cuarentena Vegetal(*).
+(Nota de Sinalevi: Mediante el artículo 48 del Reglamento de la Estructura Organizativa del Servicio Fitosanitario del Estado, aprobado mediante decreto ejecutivo N° 36801 del 20 de setiembre del 2011, se establece que las funciones asignadas al Departamento de Cuarentena Vegetal o Gerencia Técnica de Cuarentena Vegetal, las asumirá el Departamento de Control Fitosanitario)
