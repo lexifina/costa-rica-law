@@ -35,3 +35,4 @@ INDICADORES DE RESULTADOS:
 (Modificado por el artículo 1° del decreto ejecutivo N° 36441 del 10 de febrero del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36594 del 16 de mayo del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36645 del 14 de junio del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36780 del 21 de setiembre del 2011)
