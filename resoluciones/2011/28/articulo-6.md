@@ -1,0 +1,1 @@
+Artículo 6º—Plazo para los Consejos Locales de Corredor Biológico. Se establece el plazo al 31 de diciembre de 2011 para que las Comisiones Locales de Corredor Biológico activas a la publicación de esta resolución, gestionen su ajuste a la figura de Consejos Locales de Corredor Biológico, mediante los Consejos Regionales de Áreas de Conservación.
