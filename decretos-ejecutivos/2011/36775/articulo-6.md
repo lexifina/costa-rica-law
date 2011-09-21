@@ -1,0 +1,2 @@
+Artículo 6°.- Instalación de la Comisión y subcomisiones. El Ministro Rector del Sector Telecomunicaciones, instalará la Comisión Mixta dentro de un plazo no mayor de cinco días hábiles posteriores a la publicación del presente decreto.
+Las Comisión Mixta instalará las subcomisiones en la sesión posterior a la aprobación de la metodología de organización y funcionamiento citada en el artículo 5 del presente Decreto.
