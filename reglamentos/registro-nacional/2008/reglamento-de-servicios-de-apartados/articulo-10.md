@@ -21,8 +21,8 @@ a- Tener por recibido el oficio DF-RN-572-2009 de fecha 24 de setiembre del 2009
 b- Fijar las siguientes tarifas para el servicio de apartados del Registro Nacional:
 Tipo de Servicio | Nuevo precio
 Anualidad de apartado | ¢13.700,00
-Cambio de llavín | ¢11.600,00
-Extravío del llavero | ¢3.200,00
+Cambio de llavín | ¢12.300,00 (Así reformado el punto anterior en sesión N° 41 del 22 de setiembre de 2011)
+Extravío del llavero | ¢3.400,00 (Así reformado el punto anterior en sesión N° 41 del 22 de setiembre de 2011)
 (Así reformado el cuadro anterior mediante sesión ordinaria N° 37-2010 del 9 de setiembre de 2010)
 c- Rige a partir del mes de enero 2010.
 d- Publíquese en el Diario Oficial La Gaceta, y en un diario de circulación nacional
