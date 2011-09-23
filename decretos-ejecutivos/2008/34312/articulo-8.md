@@ -11,3 +11,4 @@ Punto Inicio Punto Final
 518000 E / 322283 N 516000 E / 322052 N
 547052 E / 334121 N 546614 E / 332384 N
 548576 E / 328715 N 547800 E / 326781 N
+(La Sala Constitucional mediante resolución N° 12975 del 23 de setiembre de 2011, interpretó conforme a la Constitución este artículo: “siempre y cuando la consulta establecida en el artículo 4 de ese Decreto se realice en el plazo improrrogable de 6 meses contado a partir de la notificación de este pronunciamiento.”)
