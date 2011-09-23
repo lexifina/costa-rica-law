@@ -1,0 +1,1 @@
+12. En lo no regulado expresamente por este Reglamento, se aplicará supletoriamente el Reglamento para el Funcionamiento de la Proveeduría Institucional de la CNE, así como la Ley de la Contratación Administrativa y su Reglamento.
