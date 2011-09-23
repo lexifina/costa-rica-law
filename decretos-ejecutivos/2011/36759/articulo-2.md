@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el inciso l) del artículo 8º del Decreto Ejecutivo Nº 35999-COMEX-H-MIDEPLAN del 28 de abril de 2010, denominado “Reglamento de la Comisión Especial para la Definición de Sectores Estratégicos”, publicado en el Diario Oficial La Gaceta Nº 92 del 13 de mayo de 2010.
