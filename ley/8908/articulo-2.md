@@ -53,3 +53,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES
 (Modificado por el artículo 1° del decreto ejecutivo N° 36733 del 25 de agosto del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36733 del 25 de agosto del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36780 del 21 de setiembre del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36781 del 23 de setiembre del 2011)
