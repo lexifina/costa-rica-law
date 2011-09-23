@@ -1,0 +1,3 @@
+Artículo 8º—En caso que el Inspector Municipal o cualquier otro funcionario del Departamento de Ingeniería, logre determinar que la obra ya se encuentra terminada, además de la sanción económica que se ha establecido en el presente Reglamento, se procederá de conformidad con los artículos 93 y 96 de la Ley de Construcciones.
+Por unanimidad se acuerda: Se aprueba el reglamento para el cobro de multas por infracciones a la Ley de Construcciones, publíquese en el Diario Oficial La Gaceta, en firme y con carácter de definitivamente aprobado (con 6 votos positivos y 1 voto negativo de la regidora Elizabeth Morales Quesada).
+Paraíso, 9 de setiembre del 2011.—
