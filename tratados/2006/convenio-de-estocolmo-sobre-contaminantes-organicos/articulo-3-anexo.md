@@ -6,11 +6,14 @@ sujetos a los requisitos del artículo 5
 El presente anexo se aplica a los siguientes contaminantes orgánicos persistentes, cuando se forman y se liberan de forma no intencional a partir de fuentes antropógenas:
 Producto químico
 Dibenzoparadioxinas y dibenzofuranos policlorados (PCDD/PCDF)
+Pentaclorobenceno (PeCB) (Nº de CAS 608-93-5)
+(Así adicionado el producto anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
 Hexaclorobenceno (HCB) (Nº CAS: 118-74-1)
 Bifenilos policlorados (PCB)
 Parte II
 Categorías de fuentes
-Las dibenzoparadioxinas y los dibenzofuranos policlorados, el hexaclorobenceno, y los bifenilos policlorados se forman y se liberan de forma no intencionada a partir de procesos térmicos, que comprenden materia orgánica y cloro, como resultado de una combustión incompleta o de reacciones químicas. Las siguientes categorías de fuentes industriales tienen un potencial de formación y liberación relativamente elevadas de estos productos químicos al medio ambiente:
+Las dibenzoparadioxinas y los dibenzofuranos policlorados, pentaclorobenceno(*), el hexaclorobenceno, y los bifenilos policlorados se forman y se liberan de forma no intencionada a partir de procesos térmicos, que comprenden materia orgánica y cloro, como resultado de una combustión incompleta o de reacciones químicas. Las siguientes categorías de fuentes industriales tienen un potencial de formación y liberación relativamente elevadas de estos productos químicos al medio ambiente:
+(*)(Así adicionado el producto anteriro por el artículo 1° del decreto ejecutivo N° 36738 de 21 de febrero del 2011)
 a) Incineradoras de desechos, incluidas las coincineradoras de desechos municipales, peligrosos o médicos o de fango cloacal;
 b) Desechos peligrosos procedentes de la combustión en hornos de cemento;
 c) Producción de pasta de papel utilizando cloro elemental o productos químicos que producen cloro elemental para el blanqueo.
@@ -21,7 +24,8 @@ iii) Producción secundaria de aluminio;
 iv) Producción secundaria de zinc.
 Parte III
 Categorías de fuentes
-Pueden también producirse y liberarse en forma no intencionada dibenzoparadioxinas y dibenzofuranos policlorados, hexaclorobenceno y bifenilos policlorados a partir de las siguientes categorías de fuentes, en particular:
+Pueden también producirse y liberarse en forma no intencionada dibenzoparadioxinas y dibenzofuranos policlorados, pentaclorobenceno(*), hexaclorobenceno y bifenilos policlorados a partir de las siguientes categorías de fuentes, en particular:
+(*)(Así adicionado el producto anterior por el artículo 1° del decreto ejecutivo N° 36738 del 21 de febrero del 2011)
 a) Quema a cielo abierto de desechos, incluida la quema en vertederos;
 b) Procesos térmicos de la industria metalúrgica no mencionados en la parte II;
 c) Fuentes de combustión domésticas;
