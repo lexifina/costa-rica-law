@@ -1,0 +1,1 @@
+Artículo 11.—Procedimiento de despacho. Autorizada la solicitud de importación temporal se procederá con la transmisión electrónica de datos de la Declaración Aduanera, conforme a la normativa y los procedimientos que el Servicio Nacional de Aduanas establezca.

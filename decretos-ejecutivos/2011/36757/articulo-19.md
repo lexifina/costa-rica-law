@@ -1,0 +1,1 @@
+Artículo 19.—Trámite de solicitud del régimen. Toda solicitud de autorización de una importación temporal deberá ser gestionada por la Institución Estatal ante la aduana correspondiente. En caso de ser por medio de un agente aduanero, deberá contar con la autorización de la entidad estatal que corresponda.

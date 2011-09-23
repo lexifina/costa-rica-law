@@ -1,0 +1,1 @@
+Artículo 32.—Trámite de autorización del régimen ante la aduana. La solicitud podrá ser tramitada por el concesionario, subcontratista o por medio de un agente aduanero, en este último caso, deberá contar con la autorización del concesionario o subcontratista.

@@ -1,0 +1,1 @@
+Artículo 26.—Plazos y prórrogas. El plazo de la importación temporal será el establecido en el contrato administrativo y sus adendum, así como las prórrogas, las que se deberán de tramitar en la aduana de autorización de la Declaración Aduanera de importación temporal, antes de su vencimiento.

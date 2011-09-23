@@ -1,0 +1,1 @@
+Artículo 23.—Trámite de solicitud del régimen. La solicitud de autorización podrá ser tramitada ante la aduana correspondiente por el beneficiario o por medio de un agente aduanero, en este último caso, deberá contar con la autorización del beneficiario.

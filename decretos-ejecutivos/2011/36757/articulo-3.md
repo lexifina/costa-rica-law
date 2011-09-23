@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Corresponderá a los beneficiarios del régimen de importación temporal, al Servicio Nacional de Aduanas, al Consejo Nacional de Concesiones y al Registro Nacional, el cumplimiento de las disposiciones del presente reglamento en el ámbito de su competencia.

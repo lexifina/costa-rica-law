@@ -1,0 +1,1 @@
+Artículo 13.—Partidas arancelarias de vehículos no autorizadas para importación temporal. No se autorizará la importación temporal de los vehículos que se clasifican en las partidas 87.02 y 87.03 del Sistema Arancelario Centroamericano.

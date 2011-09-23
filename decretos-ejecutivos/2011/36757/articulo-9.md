@@ -1,0 +1,1 @@
+Artículo 9º—Del registro de los beneficiarios. Los beneficiarios que requieran realizar importaciones temporales deberán registrarse de previo en la categoría correspondiente, en el Departamento de Estadística y Registro de la Dirección General de Aduanas. En el caso de los subcontratistas deberán contar con la autorización del Consejo Nacional de Concesiones para su inscripción.

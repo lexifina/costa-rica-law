@@ -1,0 +1,1 @@
+Artículo 37.—De la identificación de las mercancías. El Consejo Nacional de Concesiones deberá establecer un mecanismo de codificación y rotulación que facilite la identificación de la mercancía por proyecto de obra pública y ejercer las acciones de control necesarias para que dicha medida sea cumplida por los beneficiarios.

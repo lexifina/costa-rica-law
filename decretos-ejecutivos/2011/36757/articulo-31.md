@@ -1,0 +1,1 @@
+Artículo 31.—De la recomendación del Consejo Nacional de Concesiones. De previo a realizar los trámites de importación en la aduana, la empresa beneficiaria del régimen deberá tramitar la recomendación de importación temporal ante el Consejo Nacional de Concesiones.

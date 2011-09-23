@@ -1,0 +1,23 @@
+Nº 36757-MOPT-H
+LA PRESIDENTA DE LA REPÚBLICA
+Y LOS MINISTROS DE OBRAS PÚBLICAS
+Y TRANSPORTES Y DE HACIENDA
+En uso de las atribuciones y facultades que le confieren los artículos 140, incisos 3), 8), 18), 20) y 146 de la Constitución Política; artículos 25, inciso 1), 27, inciso 1), 28, inciso 1) y 2), acápite b) de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978; la Aprobación del Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano, Ley Nº 8360 del 24 de junio del 2003; Reglamento al Código Aduanero Uniforme Centroamericano, Decreto Ejecutivo Nº 31536-COMEX-H del 24 de noviembre del 2003; Ley General de Aduanas, Ley Nº 7557 del 20 de octubre de 1995 y sus reformas; Reglamento a la Ley General de Aduanas, Decreto Ejecutivo Nº 25270-H del 14 de junio de 1996, sus reformas y modificaciones; Ley General de Concesión de Obras Públicas con Servicios Públicos, Ley Nº 7762 del 14 de abril de 1998; Reglamento a la Ley General de Concesión de Obras Públicas con Servicios Públicos, Decreto Ejecutivo Nº 27098-MOPT del 12 de junio de 1998; Ley de Contratación Administrativa, Ley Nº 7494 del 2 de mayo de 1995; Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo Nº 33411-H del 27 de setiembre de 2006; y el Reglamento sobre el Trámite de Exenciones y el Control de Vehículos, Maquinaria y Equipos Exonerados bajo el Control del Ministerio de Obras Públicas y Transportes o de sus Órganos con Desconcentración Máxima, Decreto Ejecutivo Nº 30200 del 15 de marzo del 2002.
+Considerando:
+1º—Que el régimen jurídico aduanero debe interpretarse en la forma que garantice mejor el desarrollo del comercio exterior de la República, en armonía con la realidad socioeconómica imperante al interpretarse la norma y los otros intereses públicos, a la luz de los fines de este ordenamiento.
+2º—Que el Servicio Nacional de Aduanas ejerce el rol de facilitador del comercio internacional, adoptando y ejecutando mecanismos modernos de control en beneficio de los intereses del Estado.
+3º—Que la Ley Nº 8360, Código Aduanero Uniforme Centroamericano y su Reglamento establece el régimen de importación temporal en las categorías estatal y ejecución de obras públicas.
+4º—Que la Ley Nº 7557, Ley General de Aduanas en el artículo 165 y siguientes y el artículo 460 de su Reglamento establece requisitos generales para la autorización del régimen de importación temporal.
+5º—Que la Ley Nº 7762, Ley General de Concesión de Obras Públicas con Servicios Públicos, en el artículo 44 numeral 4 acápite b), dispone que los equipos directamente requeridos para la construcción de la obra, su mantenimiento o la prestación del servicio público, serán introducidos al país bajo el régimen de importación temporal.
+6º—Que la Ley Nº 7494, Ley de Contratación Administrativa y su reglamento, regula la actividad de contratación que realiza el Estado con particulares, por medio de la actividad desplegada por los órganos del Poder Ejecutivo, el Poder Judicial, el Poder Legislativo, el Tribunal Supremo de Elecciones, la Contraloría General de la República, la Defensoría de los Habitantes, el sector descentralizado territorial e institucional, los entes públicos no estatales y las empresas públicas.
+7º—Que mediante Informe DFOE-OP-IF-1-2010 de fecha 15 de febrero de 2010, la Contraloría General de la República dispone que se emita normativa específica para el trámite de importación temporal y el control de maquinaria, de vehículos y equipo que serán usados en obras públicas.
+8º—Que es necesario establecer los lineamientos generales en la emisión de la recomendación de importación temporal, de bienes y para el control de su uso y destino, por parte del Consejo Nacional de Concesiones.
+9º—Que dentro del marco de facilitación, para el cumplimiento de los considerandos anteriores, se debe contar con instrumentos administrativos y legales que permitan regular eficientemente el otorgamiento del régimen de importación temporal bajo las categorías estatal y ejecución de obras públicas, y el consecuente control del uso y destino de las mercancías que se importen al amparo de dichas categorías. Por tanto,
+Decretan:
+Reglamento sobre el Régimen de Importación
+Temporal para las Categorías Estatal
+y Ejecución de Obras Públicas
+CAPÍTULO I
+SECCIÓN ÚNICA
+Disposiciones generales
+Artículo 1º—Objeto. En el presente reglamento se regula el régimen de importación temporal de mercancías amparadas a las siguientes categorías: estatal y ejecución de obras públicas, esta última comprende las que se realicen mediante leyes especiales o contratos administrativos.

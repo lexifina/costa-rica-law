@@ -1,0 +1,2 @@
+Artículo 36.—Del control de las mercancías. El Consejo Nacional de Concesiones deberá ejecutar los controles adecuados que permitan garantizar que la mercancía importada sea usada únicamente para los fines por los cuales se autorizó su importación y en el proyecto correspondiente.
+Asimismo, deberá tomar las medidas oportunas e informar a la aduana correspondiente cuando se detecte un uso inadecuado de la mercancía importada al amparo de los beneficios tributarios otorgados a los beneficiarios.

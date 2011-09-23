@@ -1,0 +1,1 @@
+Artículo 38.—De la placa matrícula especial de maquinaria y vehículos. El Consejo Nacional de Concesiones deberá garantizar que toda maquinaria y vehículo que circule en las carreteras nacionales, porte la placa de matrícula especial de circulación.

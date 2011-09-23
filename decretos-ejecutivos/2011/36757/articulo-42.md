@@ -1,0 +1,1 @@
+Artículo 42.—Prohibición de enajenación. La propiedad de las mercancías destinadas al régimen de importación temporal con reexportación en el mismo estado, no podrá ser objeto de transferencia o enajenación por cualquier título mientras se encuentren bajo dicho régimen.

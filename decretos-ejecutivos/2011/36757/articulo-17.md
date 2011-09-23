@@ -1,0 +1,1 @@
+Artículo 17.—Del control de los beneficiarios de las importaciones temporales. El Servicio Nacional de Aduanas mantendrá un control y registro por cédula jurídica de los beneficiarios del régimen de importación temporal.

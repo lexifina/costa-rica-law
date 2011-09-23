@@ -1,0 +1,1 @@
+Artículo 4º—Competencia del Servicio Nacional de Aduanas. Corresponderá al Servicio Nacional de Aduanas, por medio de las Aduanas, autorizar las importaciones temporales y tramitar las declaraciones aduaneras, de acuerdo con la recomendación del Consejo Nacional de Concesiones cuando corresponda, y los procedimientos establecidos al efecto.

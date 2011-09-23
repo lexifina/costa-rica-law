@@ -1,0 +1,1 @@
+Artículo 41.—Regímenes autorizados para destinación de las mercancías afectas al beneficio del régimen de importación temporal. Las mercancías que hayan sido sometidas al régimen de importación temporal, después del plazo y prórrogas otorgadas, solo podrán ser sometidas al régimen de reexportación o al régimen de importación definitiva.

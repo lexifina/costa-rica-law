@@ -1,0 +1,1 @@
+Artículo 12.—Datos obligatorios para completar la Declaración Aduanera. En la Declaración Aduanera deberá indicarse la descripción detallada de la mercancía que permita la plena identificación de las mismas. Asimismo, deberá indicarse el lugar exacto en que permanecerán dichas mercancías en el territorio aduanero nacional por el plazo otorgado.
