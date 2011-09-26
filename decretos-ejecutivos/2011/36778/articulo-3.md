@@ -1,0 +1,1 @@
+Artículo 3º- Se designa al señor Freddy Murillo Espinoza, con cédula de identidad Nº 2-265-127, quien es mayor, casado, vecino de la Provincia de Heredia, como miembro de la Junta Directiva del INTA, en condición de representante de los pequeños y medianos productores agropecuarios organizados con representación nacional.

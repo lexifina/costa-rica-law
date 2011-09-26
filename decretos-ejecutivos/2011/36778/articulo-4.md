@@ -1,0 +1,1 @@
+Artículo 4º- Se designa al señor Werner Rodríguez Montero, con cédula de identidad Nº 1-520-568, quien es mayor, casado, Ingeniero Agrónomo, vecino de la Provincia de San José, como miembro de la Junta Directiva del INTA, en condición de representante del Consejo Nacional de Rectores.
