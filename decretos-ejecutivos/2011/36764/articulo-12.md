@@ -1,0 +1,1 @@
+Artículo 12.—Las entidades competentes del sector financiero apoyarán y facilitarán las gestiones que emprendan la Rectoría del Sector y las instituciones públicas agroalimentarias, orientadas al fortalecimiento de sus recursos financieros y técnicos, debidamente justificados en función de la implementación de la Política de Estado, según sus competencias legales.

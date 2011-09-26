@@ -1,0 +1,1 @@
+Artículo 13.—De conformidad con la normativa vigente de rendición de cuentas se dará seguimiento y evaluación a las instituciones del Sector Agroalimentario, en el cumplimiento de sus responsabilidades en el marco de la Política, y se creará así un clima apropiado para el diálogo y la articulación público-privada.

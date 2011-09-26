@@ -1,0 +1,1 @@
+Artículo 10.—Las instituciones públicas del Sector, estatales y no estatales, reorientarán sus acciones y reasignarán sus recursos en función de los objetivos, lineamientos, áreas estratégicas e instrumentos definidos en la Política.

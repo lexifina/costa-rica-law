@@ -1,0 +1,5 @@
+Artículo 6º—La Política se ha definido sobre cuatro pilares que tienen como propósito dar cumplimiento a los objetivos citados:
+a) Pilar 1. Competitividad: Incluye las siguientes siete áreas estratégicas: planes de competitividad por agro-cadenas, gestión eficiente y eficaz de mercados, facilitación para los agro-negocios, infraestructura de apoyo a la producción, financiamiento y seguros para el desarrollo agroalimentario, sanidad agro-productiva, y gestión del conocimiento con tecnologías de información y comunicación.
+b) Pilar 2. Innovación y Desarrollo Tecnológico: Con dos áreas estratégicas: investigación e innovación y desarrollo de capacidades para la innovación.
+c) Pilar 3. Gestión de Territorios Rurales y Agricultura Familiar: Contiene dos áreas estratégicas: economía rural de los territorios y agricultura familiar.
+d) Pilar 4. Cambio Climático y Gestión Agroambiental: Conformado por cuatro áreas estratégicas: variabilidad y cambio climático, agrobiodiversidad, producción limpia, y manejo sostenible de tierras y otros recursos naturales.

@@ -1,0 +1,1 @@
+Artículo 8º—El cumplimiento de la política se sustenta en la responsabilidad compartida de todos los actores, públicos y privados, del Sector Agroalimentario para enfrentarlos desafíos y aprovechar las oportunidades que contribuyan sostenidamente con el desarrollo de la producción nacional.

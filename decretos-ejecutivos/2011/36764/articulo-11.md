@@ -1,0 +1,1 @@
+Artículo 11.—Las instituciones de otros sectores, involucradas total o parcialmente en acciones propias de esta Política de Estado, concederán atención especial y apoyo para el logro de sus objetivos, dentro de sus posibilidades legales.

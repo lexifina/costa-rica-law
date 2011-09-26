@@ -1,0 +1,1 @@
+Artículo 9º—La Política se concretará por medio de los mecanismos de planificación sectorial e institucional, como el Plan Sectorial y los respectivos planes institucionales, además en planes específicos sobre temas estipulados en la Política y en agendas de competitividad; por lo que será objeto de revisión periódica y de ajuste de acuerdo con la realidad cambiante.
