@@ -11,5 +11,4 @@ Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a los siguientes representantes de la Unión Costarricense de Cámaras de la Empresa Privada:
 1. Miembro propietario:
 Erick Manuel Vargas Campos.
-2. Miembro suplente:
-Andy Bezara Higle.
+2. (Derogado por el artículo 2° del decreto ejecutivo N° 36900 del 26 de setiembre de 2011)

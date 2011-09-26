@@ -14,3 +14,4 @@ Nombra miembros de la Comisión Nacional para la Gestión de la Biodiversidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-24 | la propia norma |
+| 2 | 2011-09-26 | Decreto Ejecutivo 36900 (2011-09-26) |
