@@ -1,0 +1,1 @@
+V.—Los concesionarios deberán detallar ampliamente la utilización actual del sistema (bandas del espectro), donde se justifique la necesidad del servicio y la explotación racional del espectro radioeléctrico.

@@ -1,0 +1,1 @@
+VII.—Tal y como lo indica el transitorio II del citado decreto, la información dispuesta en la presente resolución deberá ser presentada por los concesionarios mediante un documento debidamente firmado por el representante legal, dentro del plazo de treinta días naturales contados a partir de la publicación de la presente resolución.
