@@ -1,0 +1,1 @@
+XII.—Los plazos indicados en los apartados anteriores iniciarán a partir del vencimiento del plazo otorgado para la presentación de la información por parte de los concesionarios de acuerdo con el Transitorio II del Decreto Ejecutivo N° 36754-MINAET, publicado en La Gaceta N° 174 del pasado 9 de setiembre del 2011.

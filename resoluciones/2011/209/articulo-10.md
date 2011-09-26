@@ -1,0 +1,1 @@
+X.—Previo a remitir la recomendación técnica al MINAET, la SUTEL otorgará una audiencia escrita, por un plazo máximo de tres (3) días hábiles, al solicitante y únicamente respecto a las frecuencias cuyas especificaciones debieron ser modificadas por la SUTEL, con el fin que el operador manifieste sus observaciones.

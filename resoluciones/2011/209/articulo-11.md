@@ -1,0 +1,1 @@
+XI.—Una vez recibidas las observaciones del solicitante en dicha audiencia, la SUTEL deberá remitir al MINAET, en el plazo máximo de cinco (5) días hábiles la recomendación técnica para el otorgamiento de los enlaces solicitados.
