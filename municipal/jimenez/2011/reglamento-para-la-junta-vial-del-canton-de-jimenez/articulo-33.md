@@ -1,0 +1,1 @@
+Artículo 33.—Una vez concluidos, mediante la razón de cierre consignado por la Auditoría Interna, los libros de actas deberán ser empastados en tomos o volúmenes separados, para su posterior archivo definitivo conforme a las disposiciones internas relativas al manejo de los sistemas de información y del acervo documental.
