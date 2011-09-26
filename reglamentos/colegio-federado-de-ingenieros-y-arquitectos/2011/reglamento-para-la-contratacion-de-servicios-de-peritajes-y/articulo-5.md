@@ -1,0 +1,1 @@
+Artículo 5º—Peritaje. Es el informe donde el perito emite su opinión profesional sobre situaciones planteadas por los interesados o las partes. Este dictamen tiene como finalidad determinar el estado y/o condición de un bien.

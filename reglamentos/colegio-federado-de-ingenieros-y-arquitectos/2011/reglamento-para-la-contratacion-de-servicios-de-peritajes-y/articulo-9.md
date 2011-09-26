@@ -1,0 +1,1 @@
+Artículo 9º—De las empresas. Las empresas nacionales y extranjeras que realicen peritajes y avalúos en las áreas que regula el Colegio Federado de Ingenieros y de Arquitectos, deben estar inscritas y cumplir con los requisitos de pago de derechos que establece la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos y sus reglamentos.

@@ -1,0 +1,1 @@
+Artículo 4º—Perito. Se define como perito al miembro del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica que realiza el análisis de factores y condiciones, para determinar el estado y/o condición de un bien.

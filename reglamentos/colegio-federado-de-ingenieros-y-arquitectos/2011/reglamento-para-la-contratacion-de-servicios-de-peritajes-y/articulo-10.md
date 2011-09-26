@@ -1,0 +1,1 @@
+Artículo 10.—Presentación de avalúos. Todo avalúo de bien mueble o inmueble debe ser realizado con la mejor precisión y cuidado. El informe de valuación debe contener como mínimo lo especificado en las Normas Internacionales de Valuación (IVSC 2005), Norma Nº 3 Elaboración de Informes de la Valuación.

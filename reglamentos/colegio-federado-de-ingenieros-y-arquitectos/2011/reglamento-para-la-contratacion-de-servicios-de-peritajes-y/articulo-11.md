@@ -1,0 +1,1 @@
+Artículo 11.—Presentación de Peritajes. Debe incluir todos los datos necesarios para la correcta identificación y ubicación del bien objeto de estudio, la relación detallada de todas las variables que intervienen en la pericia y su resultado; la metodología utilizada para el análisis del caso en estudio; y las conclusiones a las que se llegan.

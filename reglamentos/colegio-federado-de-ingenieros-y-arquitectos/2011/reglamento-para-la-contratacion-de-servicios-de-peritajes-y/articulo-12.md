@@ -1,0 +1,1 @@
+Artículo 12.—Ética profesional. Los peritos valuadores actuarán conforme al Código de Ética Profesional que rija en el Colegio Federado de Ingenieros y de Arquitectos, resguardando en todo momento todos los intereses de la profesión y de sus clientes.

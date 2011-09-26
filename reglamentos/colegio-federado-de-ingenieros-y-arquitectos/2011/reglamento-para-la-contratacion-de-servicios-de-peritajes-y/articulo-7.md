@@ -1,0 +1,1 @@
+Artículo 7º—Honorarios profesionales. Es la remuneración que percibe el profesional por el trabajo efectuado y la responsabilidad profesional que el acto o gestión implica al realizar un peritaje o avalúo de conformidad con el Arancel de Servicios de Peritaje y Avalúos.

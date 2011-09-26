@@ -1,0 +1,1 @@
+Artículo 6º—Avalúo. Es un dictamen emitido por un valuador con la finalidad de informar el valor de un bien para un determinado propósito referido a una moneda de curso legal y a una fecha determinada.
