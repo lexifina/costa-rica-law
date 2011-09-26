@@ -1,0 +1,1 @@
+Artículo 122.—La obligación establecida en el artículo anterior, se limita a dos plazas, cuando el medio de transporte no exceda de ciento cincuenta, y a cinco cuando supere dicha cantidad; esas plazas deberán ser proporcionadas sin costo alguno para la Dirección General.

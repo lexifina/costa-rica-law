@@ -1,0 +1,1 @@
+Artículo 60.—La persona extranjera tendrá la obligación de egresar en el plazo autorizado en que se le indique en la prórroga, de lo contrario se aplicará lo dispuesto en el artículo 33, inciso 3) de la Ley Nº 8764.

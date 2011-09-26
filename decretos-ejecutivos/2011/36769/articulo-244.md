@@ -1,0 +1,1 @@
+Artículo 244.—Es una obligación de la persona extranjera atender las citaciones de la Policía Profesional de Migración y de no comparecer al lugar señalado dentro del plazo otorgado, podrán ser trasladadas por medio de cualquier cuerpo policial y la autoridad migratoria que le impuso la citación podrá cambiar la medida cautelar.

@@ -1,0 +1,1 @@
+Artículo 79.—El procedimiento para declarar la ilegalidad de ingreso al país o la permanencia en él de una persona extranjera se realizará conforme a lo establecido en el Título Décimo del presente Reglamento.

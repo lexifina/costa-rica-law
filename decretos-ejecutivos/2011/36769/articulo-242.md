@@ -1,0 +1,1 @@
+Artículo 242.—Procederá la aprehensión cuando de la información que conste en el expediente se deduzca la ilegalidad del ingreso o permanencia del extranjero, en virtud de lo que establece el inciso 2) del artículo 211 de la Ley.

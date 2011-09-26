@@ -1,0 +1,1 @@
+Artículo 358.—La solicitud de levantamiento de impedimento de ingreso al país, deberá ser tramitada mediante los Agentes de Migración en el Exterior, o por un tercero interesado, el cual deberá aportar al trámite, el respectivo Poder Especial debidamente Protocolizado y Consularizado.

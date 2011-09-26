@@ -1,0 +1,1 @@
+Artículo 3º—El Director General de Migración y Extranjería será el encargado de dirigir, coordinar, planificar y supervisar las disposiciones de la Ley Nº 8764 y de este Reglamento. Lo hará personalmente o por delegación de conformidad con la referida Ley y en concordancia con la Ley General de la Administración Pública.

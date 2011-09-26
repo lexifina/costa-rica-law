@@ -1,0 +1,1 @@
+Artículo 136.—El puesto migratorio responsable del control procederá, recibidos los listados, a verificar que no existen impedimentos de ingreso y a autorizar el ingreso de pasajero y/o tripulantes previo cumplimiento de los requisitos de ingreso que exige la Ley.

@@ -1,0 +1,1 @@
+Artículo 255.—En el caso de que no tenga certeza de la nacionalidad del extranjero a deportar, el plazo corre a partir de que el consulado reconozca a la persona extranjera a deportar como su connacional.

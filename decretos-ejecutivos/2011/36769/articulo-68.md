@@ -1,0 +1,1 @@
+Artículo 68.—De cumplirse con todos los requisitos, el servidor competente podrá otorgar el permiso correspondiente. El ingreso a Nicaragua o Panamá bajo esta figura, quedará sujeto a lo que al efecto dispongan las autoridades migratorias de esos países.

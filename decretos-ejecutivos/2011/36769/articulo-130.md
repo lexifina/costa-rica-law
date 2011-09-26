@@ -1,0 +1,1 @@
+Artículo 130.—Cuando las circunstancias lo requieran, la Dirección General podrá inspeccionar los medios de transporte local e internacional, para determinar la condición migratoria de las personas extranjeras que viajen en ellos, de conformidad con lo establecido en el artículo 18, incisos 6) y 24) de la Ley.

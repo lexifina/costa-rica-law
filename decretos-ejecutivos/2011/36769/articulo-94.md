@@ -1,0 +1,1 @@
+Artículo 94.—Las compañías, empresas o agencias propietarias, representantes, explotadoras o consignatarias de medios de transporte internacional son responsables por el transporte de pasajeros, tripulantes y personal de dotación hasta tanto éstos no se sometan al control de entrada y la autoridad migratoria los haya admitido en el territorio de la República.

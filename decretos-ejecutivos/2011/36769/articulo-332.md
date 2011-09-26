@@ -1,0 +1,1 @@
+Artículo 332.—El pasaporte consular manual es un documento de viaje expedido por la autoridad competente, válido por seis años, deberá contener como mínimo la fotografía y las calidades de su portador para su debida identificación, además todas aquellas medidas de seguridad que la Dirección General determine para este documento.

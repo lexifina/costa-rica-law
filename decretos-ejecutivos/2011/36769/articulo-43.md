@@ -1,0 +1,1 @@
+Artículo 43.—Por razones actuales de seguridad pública y de salud pública, debidamente fundamentadas, el Poder Ejecutivo podrá imponer restricciones de ingreso a determinada persona extranjera o grupo de personas extranjeras, de conformidad con lo establecido en el artículos 3, 8 y 61, inciso 2) de la Ley.

@@ -1,0 +1,1 @@
+Artículo 24.—A solicitud de los cuerpos policiales nacionales o internacionales, el funcionario competente podrá hacer constar información en el registro de impedimentos de ingreso o egreso, con el objeto de alertar a las autoridades sobre la posible salida o entrada de una persona del territorio nacional, para efectos de determinar la aplicación del artículo 61 de la Ley.

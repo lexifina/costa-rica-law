@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 36769
+
+Reglamento de Control Migratorio
+
+- Tipo: Decreto Ejecutivo
+- Número: 36769
+- Fecha: 2011-05-23
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 184 del 2011-09-26
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=71185&param2=86318&param3=1 (ficha 71185)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2011-09-26 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 171.—Ningún medio de transporte terrestre internacional podrá abandonar el país sin la autorización del oficial de egreso de la oficina competente del control de salida terrestre, la cual se hará constar en el acta correspondiente. El incumplimiento de esta disposición implicará la multa regulada en el artículo 170 de la Ley.

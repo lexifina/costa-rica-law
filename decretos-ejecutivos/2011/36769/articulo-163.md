@@ -1,0 +1,1 @@
+Artículo 163.—La Dirección General podrá autorizar el ingreso al país y la permanencia en él, a la persona extranjera que labore para un medio de transporte internacional aéreo, en razón de sus funciones activas, de conformidad con su categoría migratoria y lo establecido al efecto por las disposiciones de carácter internacional vigentes ratificadas por Costa Rica.

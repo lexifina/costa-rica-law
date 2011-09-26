@@ -1,0 +1,1 @@
+Artículo 210.—Los oficiales de la Policía Profesional de Migración que en el ejercicio del control migratorio, detecten una o varias infracciones al ordenamiento migratorio, cuya verificación sea sancionable con multa de conformidad con la Ley, levantarán el acta respectiva de conformidad con el formato y procedimientos aprobados por la Dirección General.

@@ -1,0 +1,4 @@
+Artículo 234.—El procedimiento de deportación se iniciará de oficio o a solicitud de parte mediante formal denuncia.
+a. Será de oficio cuando las autoridades de migración o de cualquier otra dependencia del Gobierno tenga conocimiento que el extranjero puede encontrarse en alguna o algunas de las situaciones previstas por la ley, como causal de deportación.
+b. Será a instancia privada cuando se presente formal denuncia, por los interesados, ante las Autoridades Migratorias, en cualquier parte del territorio nacional.
+c. En todo caso, deberá la Policía Profesional de Migración, confeccionar el respectivo expediente llenando la respectiva hoja de filiación, la cual deberá ser acompañada también de la hoja con las huellas dactilares, declaración y demás documentación generada por la autoridad o aportada por el extranjero.

@@ -1,0 +1,1 @@
+Artículo 32.—El formato, contenido y características de la TIE será definido por el Director General y comunicado a cada medio de transporte; tendrá una vigencia de tres meses y el uso se limitará al respaldo de información cuando la Administración así lo requiera.

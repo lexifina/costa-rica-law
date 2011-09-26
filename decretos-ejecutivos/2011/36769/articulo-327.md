@@ -1,0 +1,1 @@
+Artículo 327.—Si una persona costarricense se encuentra en el exterior y su pasaporte se destruye, es sustraído, hurtado o extraviado, el cónsul podrá extenderle un documento de viaje, para lo cual deberá cumplir con lo indicado en el artículo 299 de este Reglamento.

@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Transporte Aéreo
+Artículo 160.—La Dirección General de Aviación Civil del Ministerio de Obras Públicas y Transportes, por medio de los controladores aéreos, no permitirá la salida del país de aeronaves que no cuenten con la autorización correspondiente de la Dirección General, de conformidad con lo establecido en el artículo 164 de la Ley. Para tales efectos, la Dirección General a través de sus puestos migratorios de control aéreo, comunicará a los controladores aéreos de aquellas aeronaves que incumplen las condiciones de salida y por ello no se les autorizara la salida. La comunicación la podrá realizar el funcionario de la Policía Profesional de Migración por vía telefónica y de forma inmediata remitirá la notificación formal a la torre de control.

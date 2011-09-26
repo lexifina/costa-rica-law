@@ -1,0 +1,1 @@
+Artículo 270.—La Policía Profesional de Migración, levantará la información correspondiente y referirá la denuncia ante la Asesoría Jurídica de la Dirección General de Migración y Extranjería, quien como órgano director rendirá el dictamen y pasará las diligencias a la Dirección General, quien emitirá la resolución correspondiente.

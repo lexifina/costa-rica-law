@@ -1,0 +1,1 @@
+Artículo 259.—En la resolución de deportación, se hará constar la prohibición para la persona extranjera de reingresar al país por el término de cinco años, de conformidad con el artículo 185 de la Ley.

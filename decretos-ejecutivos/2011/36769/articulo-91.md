@@ -1,0 +1,1 @@
+Artículo 91.—De conformidad con el artículo 148 de la Ley, los gastos de impresión de las tarjetas de ingreso y egreso deberán ser sufragados por las empresas o agencias propietarias, explotadoras o consignatarias de todo medio de transporte internacional, su contenido, características y formato lo suministrará formalmente la Dirección General.

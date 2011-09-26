@@ -1,0 +1,1 @@
+Artículo 140.—La Dirección General ejercerá el control migratorio de entrada o salida del país sobre los medios de transporte marítimo a través de sus puestos de control ubicados en los puertos marítimos por donde arribará o zarpará la nave.

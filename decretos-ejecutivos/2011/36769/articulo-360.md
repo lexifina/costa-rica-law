@@ -1,0 +1,1 @@
+Artículo 360.—La solicitud deberá estar autenticada por el Cónsul de Costa Rica en el país de origen del solicitante o del tercero en que se encuentre, o por abogado si es tramitada por un apoderado en el país.

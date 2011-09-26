@@ -1,0 +1,1 @@
+Artículo 240.—En todos los casos el o la servidora a cargo deberá dejar constancia en el expediente administrativo correspondiente, de la medida cautelar que se aplique, así como en la bitácora que al efecto llevarán los o las oficiales de la Policía Profesional de Migración.

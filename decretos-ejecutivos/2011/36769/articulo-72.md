@@ -1,0 +1,1 @@
+Artículo 72.—El otorgamiento de esta subcategoría migratoria estará a cargo de las Jefaturas de los puestos migratorios fronterizos de Los Chiles, Peñas Blancas, Paso Canoas, Sabalito y Sixaola, así como aquellos otros que sean habilitados por la Dirección General para tales efectos.

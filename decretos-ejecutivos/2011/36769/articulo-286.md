@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+Trata de Personas
+Artículo 286.—La comisión referida en el artículo 107 de la Ley, creada para efectos de trata de personas, hasta no contar con normativa específica vía reglamento, será asumida por los miembros que conforman el Equipo de Situaciones Migratorias Especiales (ESME) de la Dirección General, debiendo sujetar sus actuaciones al Protocolo de actuación del Equipo de Respuesta Inmediata (ERI), validado el 26 de marzo del 2010 por los Ministros del ramo, cuyo asidero legal es el Decreto Ejecutivo 35144-MG-MTSS, que es del 4 de marzo del 2009, publicado en el Diario Oficial La Gaceta Nº 96 del 20 de mayo de 2009.

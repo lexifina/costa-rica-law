@@ -1,0 +1,1 @@
+Artículo 2º—Todo movimiento migratorio de personas, calificación o categoría de las personas extranjeras, queda sujeto a las disposiciones y procedimientos que establecen la Ley Nº 8764 y el presente Reglamento.

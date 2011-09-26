@@ -1,0 +1,1 @@
+Artículo 341.—La emisión de la resolución será competencia de la Gestión de Migraciones, la cual deberá realizar según corresponda una investigación previa, para determinar la veracidad de dicha prueba y proceder a la autorización de la modificación, exclusión e inclusión respectiva.

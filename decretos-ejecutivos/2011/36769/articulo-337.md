@@ -1,0 +1,1 @@
+Artículo 337.—Los puestos de control migratorio habilitados para el tránsito internacional de personas, aéreo, marítimo, terrestre y fluvial que cuentan con medios tecnológicos, registrarán los movimientos migratorios de forma automática en el sistema correspondiente y los puestos que no cuentan con estas herramientas registrarán los movimientos de forma manual.

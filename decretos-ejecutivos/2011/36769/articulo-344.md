@@ -1,0 +1,1 @@
+Artículo 344.—La Gestión de Migraciones contará con un plazo de hasta quince días naturales para resolver la pretensión del solicitante, una vez que el trámite sea completado por la persona interesada.

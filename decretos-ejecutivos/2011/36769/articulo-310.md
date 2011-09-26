@@ -1,0 +1,1 @@
+Artículo 310.—La Dirección General, solamente expedirá salvoconducto general a una persona costarricense mayor de edad, cuando por circunstancias calificadas, de emergencia o fuerza mayor le sea materialmente imposible documentarse con un pasaporte ordinario.

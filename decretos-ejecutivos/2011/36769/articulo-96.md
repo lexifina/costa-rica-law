@@ -1,0 +1,1 @@
+Artículo 96.—La autoridad migratoria denegará el ingreso y rechazará a los pasajeros, tripulantes y personal de medios de transporte que incumplan los requisitos y las condiciones que regulan la entrada a Costa Rica.

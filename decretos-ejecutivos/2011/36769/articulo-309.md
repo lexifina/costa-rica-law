@@ -1,0 +1,1 @@
+Artículo 309.—El salvoconducto es un documento de viaje y deberá contener la fotografía y las calidades necesarias del titular o los titulares para su debida identificación, además de las medidas de seguridad que determine la Dirección General.

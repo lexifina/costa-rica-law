@@ -1,0 +1,1 @@
+Artículo 76.—La persona extranjera que permanezca en el país con un permiso vecinal vencido o que se encuentre fuera de las zonas geográficas autorizadas, podrán ser sancionadas con la deportación, de conformidad con el artículo 183, incisos 1) y/o 3) de la Ley.

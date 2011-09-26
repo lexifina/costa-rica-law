@@ -1,0 +1,1 @@
+Artículo 362.—La Asesoría Jurídica, dispondrá de noventa días naturales para resolver la petición de levantamiento, y de disponerse el levantamiento, comunicará al interesado mediante el medio señalado, a la Policía Profesional de Migración y al REMIP para que se proceda a eliminar la restricción de ingreso.

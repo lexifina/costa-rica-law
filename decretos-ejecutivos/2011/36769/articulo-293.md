@@ -1,0 +1,1 @@
+Artículo 293.—Todo lo relacionado a la expedición de documentos migratorios de personas menores de edad nacionales y extranjeras, se rige por el Reglamento para la Aplicación de la Ley General de Migración y Extranjería para Personas Menores de Edad.

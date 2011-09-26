@@ -1,0 +1,1 @@
+Artículo 278.—En caso de mantenerse la orden de expulsión, se procederá a su inmediata ejecución y la persona extranjera deberá abandonar el territorio nacional y perderá, en favor del Estado, la garantía rendida.

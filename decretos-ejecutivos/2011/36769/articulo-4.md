@@ -1,0 +1,1 @@
+Artículo 4º—Todos los entes y órganos del Estado, estarán obligados a prestar la colaboración que la Dirección General solicite, como órgano operador de la Ley, así como a coadyuvar en el ejercicio de control migratorio y suministrar la información requerida.

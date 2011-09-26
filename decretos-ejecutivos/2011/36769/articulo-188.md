@@ -1,0 +1,1 @@
+Artículo 188.—Los colegios profesionales no podrán incorporar a una persona extranjera que no cuente con una condición migratoria que la autorice para el ejercicio de actividades remuneradas por cuenta propia o bajo relación de dependencia.

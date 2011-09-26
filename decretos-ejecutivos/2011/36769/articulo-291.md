@@ -1,0 +1,1 @@
+Artículo 291.—El funcionario de Migración podrá rechazar toda solicitud de documento migratorio, si la persona interesada, no cumple con los requisitos establecidos en la Ley Nº 8764 y el presente Reglamento.

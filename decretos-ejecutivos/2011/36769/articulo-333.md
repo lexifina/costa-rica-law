@@ -1,0 +1,1 @@
+Artículo 333.—Los pasaportes consulares cuya numeración es inferior a la serie C240850 tienen una validez de diez años y podrán ser revalidados por cinco años más, y los mayores a la serie C240851, tienen una validez de seis años, transcurrido este plazo deberá tramitarse un nuevo documento de viaje.

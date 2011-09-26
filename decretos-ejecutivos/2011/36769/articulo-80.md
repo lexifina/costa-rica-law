@@ -1,0 +1,1 @@
+Artículo 80.—Salvo los casos estipulados en el artículo 222 de la Ley Nº 8764 tendrán derecho a recurrir lo resuelto por la Dirección General, según lo estipulado en el Título XII del mismo cuerpo normativo.

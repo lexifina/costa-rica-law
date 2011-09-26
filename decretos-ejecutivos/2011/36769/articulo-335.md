@@ -1,0 +1,1 @@
+Artículo 335.—Para revalidar un pasaporte ordinario y/o consular, la persona costarricense, deberá presentar la cédula de identidad vigente y en buen estado, así como el comprobante de pago por 625 colones, dicho trámite podrá realizarse en oficinas centrales o regionales autorizadas para tal efecto y en los consulados costarricenses.

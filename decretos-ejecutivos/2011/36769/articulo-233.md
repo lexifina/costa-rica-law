@@ -1,0 +1,1 @@
+Artículo 233.—El procedimiento de deportación de extranjeros, así como las diligencias necesarias para su ejecución, estarán a cargo de la Policía Profesional de Migración tanto de oficinas centrales como de las oficinas regionales autorizadas por la Dirección General de conformidad con el Capítulo IV Sección I del Título XI de la Ley.

@@ -1,0 +1,1 @@
+Artículo 37.—El levantamiento de la restricción de salida o entrada se hará únicamente cuando medie una orden por escrito de la autoridad competente que la ordenó, o se cumpla con el plazo de vigencia de la sanción, cuando se trata de personas deportadas.

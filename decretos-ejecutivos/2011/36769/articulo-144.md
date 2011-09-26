@@ -1,0 +1,1 @@
+Artículo 144.—El ingreso de las personas extranjeras que laboren para medios de transporte internacional marítimos, estará sujeto a las Directrices Generales de Ingreso y su permanencia en el país se autorizará en razón de sus funciones activas y por el tiempo que les sea permitida, en condiciones normales, la permanencia de la nave por la autoridad competente.

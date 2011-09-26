@@ -1,0 +1,1 @@
+Artículo 223.—Finalizada la comparecencia, el órgano director deberá rendir su dictamen dentro de los 15 días hábiles siguientes, y la Dirección General emitirá la resolución final dentro de los quince días hábiles siguientes al recibo del dictamen.

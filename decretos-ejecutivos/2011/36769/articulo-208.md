@@ -1,0 +1,1 @@
+Artículo 208.—Las personas que proporcionen alojamiento a personas extranjeras en condición irregular, por razones estrictamente humanitarias y sin fines de lucro, quedarán exentas de la sanción del artículo 182 de la Ley. La determinación de las condiciones bajo las cuales se dio el alojamiento serán señaladas en la resolución del procedimiento administrativo correspondiente.

@@ -1,0 +1,1 @@
+Artículo 253.—No procederá recurso alguno contra la deportación ordenada con fundamento en el artículo 222 de la Ley, por lo que se podrá ejecutar inmediatamente que sea notificada la resolución correspondiente.

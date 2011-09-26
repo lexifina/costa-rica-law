@@ -1,0 +1,1 @@
+Artículo 185.—Las personas extranjeras habilitadas para ejercer labores remuneradas son aquellas que ostenten una condición migratoria legal en el país y que estén autorizados para realizar actividades lucrativas por cuenta propia o en relación de dependencia.

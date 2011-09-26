@@ -1,0 +1,1 @@
+Artículo 275.—En el caso que la persona extranjera incumpla con la medida cautelar establecida en el inciso 1) del artículo 211 de la Ley, el Ministro de Gobernación y Policía, podrá sustituirla por la del inciso 2).

@@ -1,0 +1,1 @@
+Artículo 263.—Ejecutada la orden de deportación el expediente físico debe ser enviado a la Jefatura de la Policía Profesional de Migración de manera inmediata, previa comprobación de que la información relativa a la deportación se encuentra registrada en el sistema correspondiente.

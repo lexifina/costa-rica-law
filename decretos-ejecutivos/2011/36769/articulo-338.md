@@ -1,0 +1,1 @@
+Artículo 338.—La Dirección General cuenta con la Unidad de Control de Calidad para garantizar que los diferentes puestos de control migratorios autorizados para el tránsito internacional registren de forma correcta de entrada y salida de todos los pasajeros, a fin de mantener una información segura y confiable.

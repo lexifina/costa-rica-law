@@ -1,0 +1,1 @@
+Artículo 36.—En ningún caso, la Dirección General anotará impedimento alguno si no constan los referidos datos. En estos casos corresponderá la devolución de la gestión, para que se complete y sea presentada nuevamente.

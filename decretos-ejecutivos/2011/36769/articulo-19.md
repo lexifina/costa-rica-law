@@ -1,0 +1,3 @@
+TÍTULO TERCERO
+De la Aprehensión de las Personas Extranjeras
+Artículo 19.—Las personas extranjeras no podrán sufrir pena, sino en el marco de lo dispuesto por la Constitución Política, y las leyes. Sin embargo, estarán sujetas a las sanciones administrativas previstas en la Ley Nº 8764. La Policía Profesional de Migración en el ejercicio del control migratorio recomendará al Director General la procedencia de aplicar las acciones preventivas que establece la Ley a las personas extranjeras, cuando no gocen de una permanencia legal, o cuando aún gozando de ella, desnaturalice las condiciones por las cuales se les otorgó la condición migratoria.

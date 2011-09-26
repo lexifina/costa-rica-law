@@ -1,0 +1,1 @@
+Artículo 247.—En caso de aprehensión, se deberá permitir la comunicación de la persona aprehendida con sus familiares y representantes y su representación consular acreditada en el país, cuando así lo solicite la persona extranjera o de oficio se le debe informar a su representante consular. De toda visita que el extranjero aprehendido reciba, se dejará constancia.

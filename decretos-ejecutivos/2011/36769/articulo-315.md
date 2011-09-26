@@ -1,0 +1,1 @@
+Artículo 315.—El salvoconducto general y específico tendrán una vigencia de ocho meses a partir de su expedición y solo podrá ser utilizado por un único viaje, el mismo debe ser retirado por los oficiales del puesto migratorio responsables del control fronterizo en el momento del ingreso a Costa Rica.

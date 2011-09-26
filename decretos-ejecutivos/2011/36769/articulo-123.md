@@ -1,0 +1,1 @@
+Artículo 123.—Los límites estipulados en el artículo anterior no regirán cuando las personas por transportar integren un grupo familiar o deban ser transportadas por la misma empresa de transporte internacional a la que pertenece el medio en el cual ingresaron al país.

@@ -1,0 +1,1 @@
+Artículo 128.—Los gastos referidos en el artículo anterior implicarán el hospedaje, alimentación, vestuario, atención médica, eventual repatriación y cualquier otro que se genere de la estadía irregular de tripulantes y personal del medio de transporte, inclusive la utilización de custodios dentro y fuera del territorio nacional, según lo determine la Dirección General.

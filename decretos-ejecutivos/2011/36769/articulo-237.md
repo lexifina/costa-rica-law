@@ -1,0 +1,1 @@
+Artículo 237.—Con fundamento en el artículo 211 de la Ley, durante la tramitación del procedimiento administrativo, el jerarca de la Dirección General o la Policía Profesional de Migración localizada en San José y en los puestos regionales, mediante resolución fundada podrán acordar la aplicación de alguna de las medidas cautelares señaladas en el artículo referido.

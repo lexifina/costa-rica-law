@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+Transporte Marítimo
+Artículo 131.—Todo medio de transporte marítimo internacional deberá remitir un listado de sus pasajeros, tripulantes y personal en un plazo de ocho días de anticipación al arribo de la nave a territorio nacional. El listado deberá ser remitido directamente al puesto de control migratorio marítimo responsable de ejercer control en el puerto por donde ingresará la embarcación. La remisión de los referidos listados se realizará de manera electrónica o cualquier otro medio que autorice la Dirección General a través de la Oficina que realiza el control migratorio.

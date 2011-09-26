@@ -1,0 +1,1 @@
+Artículo 50.—En los supuestos en que se detecten personas menores de edad no acompañadas, las autoridades deberán ajustarse a lo establecido en el Reglamento para la Aplicación de la Ley General de Migración y Extranjería para Personas Menores de Edad.

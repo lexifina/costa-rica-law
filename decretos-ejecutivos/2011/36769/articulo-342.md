@@ -1,0 +1,1 @@
+Artículo 342.—La Gestión de Migraciones, prevendrá a la persona interesada por el término perentorio de diez días sobre la falta de alguno de los requisitos por una sola vez. Si la solicitud carece de nombre, lugar para recibir notificaciones, de pretensión, falta de cualquier medio probatorio idóneo o firma, será archivada.

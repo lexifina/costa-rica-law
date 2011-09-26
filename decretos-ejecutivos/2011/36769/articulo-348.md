@@ -1,0 +1,4 @@
+Artículo 348.—Para efectos del inciso a) del artículo anterior deberá efectuarse un proceso de investigación a fin de corroborar la veracidad del sello de la siguiente forma:
+a. La Gestión de Migraciones deberá solicitar al puesto migratorio por donde supuestamente se realizó el movimiento, certificar que contra libro de actas de control de sellos y el rol planificado para ese día, efectivamente el oficial cuyo código consta en el sello laboró el día que se realizó el movimiento, verificando además la autenticidad del mismo.
+b. En caso de que se cuestione la autenticidad de un sello deberá solicitarse al Subproceso de Base de Datos de la Gestión Tecnología de Información, que certifique el control que efectuó el oficial según el código que consta en el sello.
+c. Verificada toda la información la Gestión de Migraciones emitirá la resolución que ordena al REMIP la inclusión del movimiento solicitado.

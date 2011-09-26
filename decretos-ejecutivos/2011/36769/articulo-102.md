@@ -1,0 +1,1 @@
+Artículo 102.—Ninguna empresa o agencia propietaria, representante, explotadora o consignataria de transporte internacional se podrá negar a transportar a una persona extranjera que viajando en su medio, haya sido rechazada por no cumplir con las condiciones que regulan el ingreso.

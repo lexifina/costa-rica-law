@@ -1,0 +1,1 @@
+Artículo 359.—La solicitud deberá ser remitida mediante las vías ordinarias por parte del Consulado de Costa Rica en el país de origen del solicitante, o del tercero en el que se encuentre. Los gastos de envío serán cubiertos por la parte interesada.

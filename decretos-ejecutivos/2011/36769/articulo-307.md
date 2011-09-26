@@ -1,0 +1,1 @@
+Artículo 307.—Cuando una persona mayor de edad costarricense gestione el pasaporte a través de oficinas estatales autorizadas para tal efecto y/o consulados de Costa Rica en el exterior, los pasaportes se remitirán a través de la oficina que se habilite para tales efectos.

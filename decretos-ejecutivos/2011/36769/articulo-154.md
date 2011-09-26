@@ -1,0 +1,1 @@
+Artículo 154.—Si de conformidad con los supuestos del artículo anterior y mediante el debido proceso se cancela un Pase Corto a la Costa, la deportación podrá ser ordenada al país de origen o a un tercer país que lo admita y los costos deberán ser cubiertos por la compañía, empresa o agencia propietaria, representante, explotadora o consignataria del medio de transporte.

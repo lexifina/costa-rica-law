@@ -1,0 +1,1 @@
+Artículo 252.—Realizada la comparecencia oral y recabadas las pruebas pertinentes, de comprobarse la ilegalidad del ingreso o la permanencia de la persona extranjera, y de no poder aplicarse otra medida menos gravosa, según artículo 232 del presente Reglamento, la Dirección General dictará la resolución de deportación que corresponda, la cual deberá ser notificada debidamente.

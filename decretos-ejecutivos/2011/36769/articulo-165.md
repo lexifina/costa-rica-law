@@ -1,0 +1,1 @@
+Artículo 165.—La información referida en el artículo anterior deberá ser remitida además vía electrónica, la transmisión se efectuará en el formato y a la dirección electrónica que la Dirección General determine mediante resolución.

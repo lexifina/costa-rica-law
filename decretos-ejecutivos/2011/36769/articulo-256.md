@@ -1,0 +1,1 @@
+Artículo 256.—No se efectuará la deportación de la persona extranjera a un país donde le pudiere ser aplicada la pena de muerte por delitos cometidos con anterioridad a la orden de deportación, en cuyo caso se le deportará a un tercer país para el que no requiera visa.

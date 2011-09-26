@@ -1,0 +1,1 @@
+Artículo 166.—De comprobarse que un medio de transporte aéreo internacional proporciona información falsa o incompleta de su tripulación, será sancionado de conformidad con lo dispuesto en el artículo 170 de la Ley Nº 8764 en concordancia con el artículo 165 del mismo cuerpo normativo.

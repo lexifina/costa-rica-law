@@ -1,0 +1,1 @@
+Artículo 340.—El interesado, deberá presentar el escrito de solicitud indicando de manera clara la pretensión, el medio de transporte utilizado, la fecha, el puesto migratorio de ingreso o egreso, así como toda la documentación atinente a su petición, copia del pasaporte donde consta su sello o la certificación del movimiento y deberá señalar medio para escuchar notificaciones.

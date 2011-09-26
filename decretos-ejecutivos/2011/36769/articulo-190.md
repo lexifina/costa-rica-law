@@ -1,0 +1,1 @@
+Artículo 190.—Todo empleador o empleadora, de forma personal o por medio del representante legal de la empresa, podrá consultar a la Dirección General información sobre la condición migratoria que ostenta la persona extranjera a quien pretende contratar o proporcionar ocupación.

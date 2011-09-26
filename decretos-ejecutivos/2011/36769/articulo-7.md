@@ -1,0 +1,1 @@
+Artículo 7º—La Policía Profesional de Migración dependerá operativa, administrativa y presupuestariamente de la Dirección General, cuyas instrucciones, órdenes y directrices serán de acatamiento obligatorio.

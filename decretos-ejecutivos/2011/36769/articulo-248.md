@@ -1,0 +1,1 @@
+Artículo 248.—La autoridad competente, luego de la determinación de la medida cautelar, en el caso del inciso 2) del artículo 211 de la Ley, informará a la representación consular en el país de la persona extranjera, de la toma y ejecución de la medida.

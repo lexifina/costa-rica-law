@@ -1,0 +1,1 @@
+Artículo 343.—La Gestión de Migraciones ordenará el archivo de la solicitud, si vencido el plazo de prevención no aporta la documentación requerida o no cumple con las demás formalidades establecidas en el presente Reglamento.

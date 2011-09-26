@@ -1,0 +1,1 @@
+Artículo 194.—Las multas que se cobren por la comprobación de irregularidades migratorias, serán integradas al Fondo Especial de Migración, por medio del procedimiento que se implemente para esos efectos.

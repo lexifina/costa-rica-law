@@ -1,0 +1,1 @@
+Artículo 158.—Tratándose de visas en tránsito para tripulantes de un medio de transporte marítimo internacional pertenecientes al tercero y cuarto grupo de las Directrices Generales de Visas de Ingreso y Permanencia para No Residentes, la visa deberá consignar la fecha exacta en que el tripulante egresará del territorio nacional y abordará el medio de transporte.

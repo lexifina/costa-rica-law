@@ -1,0 +1,1 @@
+Artículo 321.—En los casos de deportación y expulsión de una persona mayor de edad extranjera, la Dirección General expedirá el respectivo documento de viaje, para lo cual deberá presentar los requisitos que se indican en el artículo 320 de este Reglamento, salvo lo dispuesto en el inciso c. del referido artículo.

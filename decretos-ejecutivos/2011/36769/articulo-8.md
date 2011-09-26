@@ -1,0 +1,1 @@
+Artículo 8º—La Policía Profesional de Migración en el ejercicio de sus funciones deberá velar por el cumplimiento de lo estipulado en la Ley y el presente Reglamento. Tendrá jurisdicción en todo el país, fe pública para efectos de notificaciones, citaciones y confección de actas, y estarán habilitados para el ejercicio de sus labores las veinticuatro horas del día.

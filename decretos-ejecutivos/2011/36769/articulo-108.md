@@ -1,0 +1,1 @@
+Artículo 108.—La información sobre tripulantes y pasajeros entrando y saliendo del país deberá ser remitida vía electrónica, la transmisión se efectuará en el formato y a la dirección electrónica que la Dirección General determine.

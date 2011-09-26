@@ -1,0 +1,1 @@
+Artículo 329.—La persona extranjera residente permanente o temporal en el país, para solicitar un documento de viaje en el consulado de Costa Rica, deberá presentar los requisitos citados en los artículos 320 de este Reglamento.

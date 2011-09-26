@@ -1,0 +1,1 @@
+Artículo 41.—De faltar alguno de estos requisitos, la imposición de la alerta no quedará consignada en el registro de impedimentos de ingreso y egreso, quedando toda la responsabilidad bajo la autoridad interesada.

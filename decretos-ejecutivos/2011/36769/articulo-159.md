@@ -1,0 +1,1 @@
+Artículo 159.—Tratándose de visas en tránsito para tripulantes de un medio de transporte marítimo internacional pertenecientes al primero y segundo grupo de las Directrices Generales de Visas de Ingreso y Permanencia para No Residentes, el plazo de vigencia de la visa no deberá ser superior a la fecha consignada en el boleto de salida del país.

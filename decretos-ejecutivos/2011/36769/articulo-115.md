@@ -1,0 +1,1 @@
+Artículo 115.—Todos los medios de transporte deberán cumplir con un cien por ciento en la calidad de la información que transmitan o comuniquen a la Dirección General mediante los puestos de control migratorio habilitados para el tránsito internacional o nacional, es decir, toda la información debe estar correcta sin errores ni omisiones.

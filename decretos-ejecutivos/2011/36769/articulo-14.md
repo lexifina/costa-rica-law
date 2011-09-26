@@ -1,0 +1,1 @@
+Artículo 14.—En casos de personas menores de edad no acompañadas o que se detecten en situación de riesgo, siempre habrá un acompañamiento de un miembro de la Policía Profesional de Migración, con la respectiva coordinación interinstitucional, hasta que sea entregada la persona menor de edad al Patronato Nacional de la Infancia.

@@ -1,0 +1,1 @@
+Artículo 134.—En caso de que los listados remitidos sufran algún cambio en cuanto al número de pasajeros, tripulantes o personal, deberá comunicarse de inmediato al puesto de control migratorio marítimo, dicha comunicación no deberá ser inferior a veinticuatro horas previo al arribo.

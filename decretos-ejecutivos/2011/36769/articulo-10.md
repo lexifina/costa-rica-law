@@ -1,0 +1,1 @@
+Artículo 10.—La Policía Profesional de Migración deberá ejercer las funciones generales que establece el artículo 18 de la Ley, para lo cual la Dirección General les brindará la logística y el presupuesto requerido.

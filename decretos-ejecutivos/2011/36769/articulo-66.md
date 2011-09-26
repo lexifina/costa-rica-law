@@ -1,0 +1,1 @@
+Artículo 66.—La Dirección General llevará un consecutivo de cada uno de los permisos vecinales que otorgue, archivando la solicitud por un periodo de seis meses, transcurrido ese plazo se procederá a la destrucción de dichos documentos.

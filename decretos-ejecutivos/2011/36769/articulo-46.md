@@ -1,0 +1,1 @@
+Artículo 46.—Tratándose de embarcaciones de bandera nacional, no procederá el rechazo, pero en el caso de venir a bordo personas extranjeras que no cumplan o hayan cumplido con los requisitos de ingreso y permanencia al territorio nacional se procederá con lo dispuesto en el artículo 183 de la Ley, salvo que se traten de casos de Fuerza Mayor o estado de necesidad.

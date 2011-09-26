@@ -1,0 +1,1 @@
+Artículo 312.—El salvoconducto específico es aquel documento que se extiende por un único viaje a grupos de personas que deban salir del país para participar en actividades educativas, culturales, deportivas o de cualquier índole de interés público.

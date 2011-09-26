@@ -1,0 +1,1 @@
+Artículo 265.—Para fundamentar la orden de expulsión en los delitos descritos en el párrafo segundo del artículo 187 de la Ley, deberá comprobarse como requisito la existencia de una sentencia firme dictada por los tribunales de justicia. Para los efectos anteriores, no se tomará en cuenta las contravenciones.

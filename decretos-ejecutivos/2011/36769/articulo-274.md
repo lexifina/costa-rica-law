@@ -1,0 +1,1 @@
+Artículo 274.—Tanto la resolución que ordene la expulsión como la que desestime los cargos, será notificada al investigado y a la Policía Profesional de Migración por parte de la Asesoría Jurídica de la Dirección General de Migración y Extranjería.

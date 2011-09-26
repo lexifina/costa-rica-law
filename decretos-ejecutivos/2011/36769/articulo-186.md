@@ -1,0 +1,1 @@
+Artículo 186.—En el caso de las personas residentes permanentes y las categorías especiales de refugiados, asilados y apátridas podrán realizar cualquier actividad remunerada por cuenta propia o bajo relación de dependencia. Las demás categorías están condicionadas a la actividad a desarrollar y sujeta a las condiciones establecidas en la Ley y el reglamento correspondiente.

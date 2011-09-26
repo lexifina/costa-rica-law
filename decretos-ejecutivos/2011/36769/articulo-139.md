@@ -1,0 +1,1 @@
+Artículo 139.—El incumplimiento del artículo 117 del presente Reglamento por parte del capitán, agente propietario, representante o consignatario del medio de transporte, implicará la multa establecida en el artículo 170 de la Ley.

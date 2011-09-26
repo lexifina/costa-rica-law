@@ -1,0 +1,1 @@
+Artículo 224.—En caso de que se determine la sanción de multa, el plazo para su cancelación será de quince días hábiles, mediante depósito o transferencia bancaria a la cuenta denominada Fondo Especial de Migración. La resolución que imponga la sanción de multa, deberá advertir sobre dicho plazo y el número de cuenta en que debe el sancionado depositar el monto de la multa.

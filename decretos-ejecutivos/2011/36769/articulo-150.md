@@ -1,0 +1,1 @@
+Artículo 150.—La expedición de un Pase Corto a la Costa así como la extensión de una visa en tránsito para tripulantes estará sujeta a que la empresa o agencia propietaria, representante, explotadora o consignataria se encuentre registrada ante la Dirección General.

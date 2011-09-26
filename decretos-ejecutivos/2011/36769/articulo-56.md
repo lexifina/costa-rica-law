@@ -1,0 +1,1 @@
+Artículo 56.—No podrá egresar del país, la persona que se encuentre impedida para ello en virtud de orden judicial. Para esos efectos, la Dirección General llevará un registro de impedimentos de egreso del país, según lo establecido por el artículo 40 de la Ley.

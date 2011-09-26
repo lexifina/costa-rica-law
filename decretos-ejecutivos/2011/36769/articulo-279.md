@@ -1,0 +1,1 @@
+Artículo 279.—En la ejecución de la expulsión de la persona extranjera, no se le enviará a un país donde le pudiere ser aplicada la pena de muerte por delitos cometidos con anterioridad a la orden de expulsión.

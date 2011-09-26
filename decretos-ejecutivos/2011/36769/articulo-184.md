@@ -1,0 +1,1 @@
+Artículo 184.—Ninguna persona física o jurídica, pública o privada, podrá contratar a personas extranjeras que estén en el país en condición irregular o que, aún gozando de permanencia legal, no estén habilitados para ejercer las actividades para las que fue contratado.

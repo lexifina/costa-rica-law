@@ -1,0 +1,1 @@
+Artículo 162.—El medio de transporte aéreo que egrese sin previa autorización de la Dirección de Migración y Extranjería, será sancionado con una multa equivalente a diez mil dólares moneda de los Estados Unidos de América (US $10.000). Para la cancelación de dicha multa deberá seguirse el procedimiento establecido en Título Noveno del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 287.—La acreditación de una víctima de trata emitida por el Equipo de Respuesta Inmediata se tendrá como acto recomendativo ante la Dirección General de Migración en lo que a permanencia o repatriación le corresponda.

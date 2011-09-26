@@ -1,0 +1,1 @@
+Artículo 120.—Una vez admitido en el territorio de la República, todo tripulante y personal integrante de un medio de transporte internacional deberá sujetarse a todas las disposiciones migratorias que establece la Ley, este Reglamento, directrices, políticas y procedimientos, que por razones de oportunidad y conveniencia sean emitidas por la Dirección General.

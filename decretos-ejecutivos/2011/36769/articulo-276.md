@@ -1,0 +1,1 @@
+Artículo 276.—La persona extranjera cuya expulsión se haya ordenado, únicamente podrá interponer recurso de revocatoria ante la Dirección General o de apelación ante el Tribunal Administrativo Migratorio en un plazo de tres días hábiles siguientes a la notificación.

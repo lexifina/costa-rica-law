@@ -1,0 +1,1 @@
+Artículo 176.—Cuando las y los funcionarios del Puesto Migratorio habilitado para el tránsito internacional de personas comprueben que la empresa de transporte internacional ha cumplido con las obligaciones, se autorizará la salida del país del medio de transporte.

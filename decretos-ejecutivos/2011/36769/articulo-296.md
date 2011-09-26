@@ -1,0 +1,1 @@
+Artículo 296.—La Dirección General podrá suscribir convenios con otras entidades estatales para ampliar sus servicios de recepción de solicitudes de documentos de viaje, las cuales deberán ajustarse a lo establecido en este Reglamento, así como a los lineamientos que la Dirección General dicte para garantizar la transparencia y seguridad en este proceso.

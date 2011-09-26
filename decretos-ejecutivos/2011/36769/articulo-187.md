@@ -1,0 +1,1 @@
+Artículo 187.—Bajo ninguna circunstancia legal podrán contratarse personas que hayan ingresado y permanezcan en el país bajo la categoría de no residentes, ni aquellas que tengan en trámite la solicitud para obtener la condición migratoria regular, salvo lo dispuesto en el artículo 92 de la Ley.

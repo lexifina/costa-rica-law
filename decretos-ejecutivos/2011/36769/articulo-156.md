@@ -1,0 +1,1 @@
+Artículo 156.—En caso de que las embarcaciones sean representadas por diferentes agencias, se requerirá para autorizar el traslado, la aceptación formal por parte de la agencia receptora, la cual deberá asumir el rol de garante del tripulante que se trasladará.

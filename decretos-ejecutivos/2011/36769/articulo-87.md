@@ -1,0 +1,1 @@
+Artículo 87.—La Policía Profesional de Migración encargada de fiscalizar el ingreso de pasajeros no admitirá en el territorio de la República a los extranjeros que no cumplan los requisitos y condiciones dispuestas en la Ley y el presente Reglamento.

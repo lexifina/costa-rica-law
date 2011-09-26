@@ -1,0 +1,1 @@
+Artículo 133.—Excepcionalmente cuando existan causas justificables la Dirección General podrá reducir el plazo referido en el artículo anterior, el cual no deberá ser inferior a cuarenta y ocho horas.

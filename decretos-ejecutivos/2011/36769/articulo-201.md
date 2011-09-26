@@ -1,0 +1,1 @@
+Artículo 201.—La Dirección General podrá realizar inspecciones en los centros de trabajo y los empleadores o empleadoras están obligados a no obstaculizarlas y prestar toda la colaboración que sea necesaria. El incumplimiento de lo anterior tendrá como consecuencia la aplicación de lo dispuesto en el inciso 7) del artículo 389 del Código Penal.

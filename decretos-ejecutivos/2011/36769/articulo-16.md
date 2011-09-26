@@ -1,0 +1,1 @@
+Artículo 16.—La Dirección General podrá solicitar la colaboración de la Fuerza Pública y de otros cuerpos policiales, a fin de nombrar uno o más custodios, según lo amerite el caso y la cantidad de personas que deban trasladarse, para realizar la movilización en forma segura.
