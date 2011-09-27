@@ -1,0 +1,2 @@
+Artículo 5º—Remuneración: Únicamente los miembros de la Comisión integrantes de la Junta serán remunerados por su participación en la misma.
+De acuerdo con la cláusula octava del Pacto Constitutivo de Popular SAFI, el monto de las dietas que devengará el integrante de la Junta, será igual al que esté señalado para los integrantes de la Junta Directiva del Banco Popular y de Desarrollo Comunal, pero en ningún caso podrán cancelarse más de cuatro dietas mensuales.

@@ -1,0 +1,1 @@
+Artículo 6º—Frecuencia de las sesiones: La Comisión sesionará ordinariamente en el lugar, fecha .y frecuencia que ella acuerde, y extraordinariamente cuando convoque el Presidente medie o no solicitud de algún integrante de la Comisión, pero siempre que ello sea necesario por no ser posible conocer el asunto en la siguiente sesión ordinaria sin grave daño al interés público.
