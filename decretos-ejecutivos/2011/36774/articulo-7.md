@@ -1,0 +1,1 @@
+Artículo 7º—De las alianzas estratégicas. Durante la transición los concesionarios podrán establecer alianzas estratégicas, de manera que impulsen la producción nacional de contenidos de carácter cultural, educativo e informativo.

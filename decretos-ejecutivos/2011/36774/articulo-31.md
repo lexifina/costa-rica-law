@@ -1,0 +1,3 @@
+Artículo 31.—Contenido del acuerdo ejecutivo que acuerde la reasignación dispuesta en la presente Sección. El acuerdo ejecutivo que disponga la reasignación regulada en la presente Sección de este Reglamento, deberá establecer las condiciones jurídicas y técnicas que regirán a los concesionarios.
+En particular, el acuerdo ejecutivo en mención deberá contemplar, como mínimo, las condiciones para la explotación de la frecuencia descritas en el artículo 25 del presente Reglamento.
+Dicho acuerdo será notificado a SUTEL para que sea incorporado al expediente respectivo del o los concesionarios en el Registro Nacional de Telecomunicaciones.

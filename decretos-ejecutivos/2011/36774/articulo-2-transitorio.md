@@ -1,0 +1,1 @@
+Transitorio II.—Canales Digitales. En un plazo de dos meses contados a partir de la publicación del presente decreto, el Poder Ejecutivo, emitirá un Reglamento sobre los canales digitales virtuales que se utilizarán durante la transición

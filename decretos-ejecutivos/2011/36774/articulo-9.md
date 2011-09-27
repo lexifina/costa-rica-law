@@ -1,0 +1,1 @@
+Artículo 9º—Del estándar de televisión digital terrestre. En el servicio de radiodifusión por televisión digital terrestre que se brinde en este país se utilizará el estándar ISDB-Tb, de conformidad con lo dispuesto por el Decreto Ejecutivo Nº 36009-MP-MINAET del 29 de abril de 2010.

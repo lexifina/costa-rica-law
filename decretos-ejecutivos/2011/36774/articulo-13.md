@@ -1,0 +1,5 @@
+SECCIÓN II
+Del otorgamiento de permiso de uso temporal de canal
+Artículo 13.—Objeto y características del permiso de uso temporal de canal. El Poder Ejecutivo podrá otorgar a los actuales concesionarios de frecuencias de radiodifusión televisiva, que así lo soliciten, permiso de uso temporal de canal para transmitir en señal digital en uno o dos canales de televisión durante el período de transición bajo los términos y condiciones definidas en el presente Reglamento. Tal transmisión podrá realizarse en canales que tenga asignados, o bien en los que se le otorgue en forma adicional o convenga transmitir de forma compartida con su titular programación en señal digital, según dispone el presente Reglamento.
+En todo caso, dicho permiso será un acto jurídico unilateral, dictado por el Poder Ejecutivo tal y como lo define el inciso i) del artículo 3 del presente Reglamento.
+Este permiso temporal de uso se concederá a título precario, por lo cual no generará derecho alguno respecto a la operación y explotación del espectro radioeléctrico en los términos dispuestos en el mismo, ni trasladará el dominio del bien jurídico en uso.

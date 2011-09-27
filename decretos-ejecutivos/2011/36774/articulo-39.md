@@ -1,0 +1,1 @@
+Artículo 39.—Derogatoria del artículo 126 del Decreto Ejecutivo Nº 34765-MINAET, publicado en La Gaceta Nº 186 del 26 de setiembre de 2008. Deróguese el artículo 126 del Reglamento a la LGT (Decreto Ejecutivo Nº 34765-MINAET, publicado en La Gaceta Nº 186 del 26 de setiembre de 2008).

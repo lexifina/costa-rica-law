@@ -1,0 +1,4 @@
+Artículo 17.—Tramitación de las solicitudes presentadas. Una vez recibida una solicitud, o bien, una vez concluido el periodo en el caso de que la solicitud sea presentada al vencimiento del plazo dispuesto en el artículo 16 de este Reglamento, el Poder Ejecutivo procederá según sigue:
+1) A más tardar dos días hábiles después de su recepción, el Poder Ejecutivo remitirá las solicitudes que recibiera a SUTEL para que ésta, dentro de un plazo no mayor a diez días hábiles, le remita la recomendación técnica correspondiente.
+2) Una vez recibido el criterio técnico de SUTEL, el Poder Ejecutivo deberá resolver dentro de un plazo de diez días hábiles sobre el otorgamiento o no del permiso solicitado por parte de cada concesionario.
+De ser rechazada la solicitud deberá motivarse debidamente por parte del Poder Ejecutivo. En todo caso, el concesionario podrá presentar los recursos aplicables de conformidad con lo establecido por los artículos 342 y siguientes de la LGAP.
