@@ -1,0 +1,1 @@
+Artículo 44.—Planilla. El encargado de planilla deberá separar en las colillas de reporte, el pago por concepto de cada uno de los componentes de la extrafunción, distinguiendo entre el pago que corresponda a la primera función continua, al tiempo laborado fijo, a la segunda función continua y a las labores de impostergable realización al término de la segunda función continua.

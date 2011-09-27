@@ -1,0 +1,1 @@
+Artículo 38.—Del uso de plantillas en la convocatoria. El Administrador de Eventos y el Director Técnico usarán una plantilla estándar facilitada por la Unidad de Recursos Humanos, mediante la cual se realizará la convocatoria semanal del personal requerido para atender los cargos de trabajo en la presentación de espectáculos.
