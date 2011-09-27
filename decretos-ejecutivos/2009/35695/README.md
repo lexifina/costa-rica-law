@@ -14,3 +14,4 @@ Reglamento al Título I de la Ley Orgánica del Colegio de Ingenieros Químicos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-26 | la propia norma |
+| 2 | 2011-09-27 | SINALEVI (sin norma nombrada) |
