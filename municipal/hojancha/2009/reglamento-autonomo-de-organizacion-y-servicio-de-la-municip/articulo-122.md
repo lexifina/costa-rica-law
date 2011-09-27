@@ -1,2 +1,1 @@
-Artículo 122.—Para la valoración de las pruebas se tomarán en consideración todos los elementos indicados aportados, dentro de los que se contemplarán todos aquellos a que se refieren a las alteraciones provocadas por los hechos que se denuncian, en el estado de ánimo de la persona que presenta la denuncia, así como en su desempeño, cumplimiento y dinámica laboral.
-El Órgano Director no podrá emitir valoración alguna sobre la vida personal del (la) denunciante.
+Artículo 122.—(Derogado por el artículo 23 del Reglamento contra el Hostigamiento Sexual en el Empleo y la Docencia para el Sector Público de la Municipalidad de Hojancha, aprobado en sesión N° 074-2011 de 27 de setiembre del 2011)

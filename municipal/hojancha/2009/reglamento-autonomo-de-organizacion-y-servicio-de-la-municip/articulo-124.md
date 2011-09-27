@@ -1,4 +1,1 @@
-Artículo 124.—Contra la resolución del Órgano Director cabrá recurso de revocatoria con apelación en subsidio, pudiendo presentar ambos recursos o solo uno de ellos, dentro del tercer día contado a partir del día siguiente de la notificación de la resolución.
-En segunda instancia el Alcalde (sa) conocerá de la disconformidad de cualquiera de las partes disponiendo de ocho días naturales para resolver en definitiva.
-La resolución final que proceda deberá dictarse dentro de un plazo que en ningún caso podrá exceder de tres meses contados a partir de la interposición de la denuncia.
-Agotados los procedimientos internos, se puede acudir a los tribunales laborales ordinarios, de conformidad con el artículo 18 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley Nº 7476.
+Artículo 124.—(Derogado por el artículo 23 del Reglamento contra el Hostigamiento Sexual en el Empleo y la Docencia para el Sector Público de la Municipalidad de Hojancha, aprobado en sesión N° 074-2011 de 27 de setiembre del 2011)

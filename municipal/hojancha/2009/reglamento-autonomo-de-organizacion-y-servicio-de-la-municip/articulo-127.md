@@ -1,1 +1,1 @@
-Artículo 127.—La persona que denuncia hostigamiento sexual falso, podrá incurrir, cuando así se tipifique, un cualquiera de las conductas propias de la difamación, la injuria o la calumnia, de acuerdo con las disposiciones correspondientes del Código Penal.
+Artículo 127.—(Derogado por el artículo 23 del Reglamento contra el Hostigamiento Sexual en el Empleo y la Docencia para el Sector Público de la Municipalidad de Hojancha, aprobado en sesión N° 074-2011 de 27 de setiembre del 2011)

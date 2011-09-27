@@ -1,2 +1,1 @@
-Artículo 116.—En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, él (la) Jerarca respectivo procederá a conformar el Órgano Director.
-El Órgano Director estará integrado por tres personas de escogencia del Alcalde (sa), dentro del cual estará un abogado y el coordinador (a) del Departamento de Recursos Humanos. En todo caso, se buscará en la escogencia de los (las) miembros del Órgano Director, seleccionar personas de reconocida solvencia moral.
+Artículo 116.—(Derogado por el artículo 23 del Reglamento contra el Hostigamiento Sexual en el Empleo y la Docencia para el Sector Público de la Municipalidad de Hojancha, aprobado en sesión N° 074-2011 de 27 de setiembre del 2011)

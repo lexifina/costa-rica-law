@@ -1,1 +1,1 @@
-Artículo 119.—Cualquier infidencia de una persona del Órgano Director o de cualquier otro funcionario (a) vinculado (a) directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este Reglamento.
+Artículo 119.—(Derogado por el artículo 23 del Reglamento contra el Hostigamiento Sexual en el Empleo y la Docencia para el Sector Público de la Municipalidad de Hojancha, aprobado en sesión N° 074-2011 de 27 de setiembre del 2011)

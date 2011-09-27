@@ -1,1 +1,1 @@
-Artículo 123.—En el plazo de quince días naturales después de la comparecencia y evacuación de la prueba, el Órgano Director rendirá resolución sobre las conclusiones del trámite administrativo, y recomendará sobre las sanciones disciplinarias en caso de que considere probada la falta.
+Artículo 123.—(Derogado por el artículo 23 del Reglamento contra el Hostigamiento Sexual en el Empleo y la Docencia para el Sector Público de la Municipalidad de Hojancha, aprobado en sesión N° 074-2011 de 27 de setiembre del 2011)

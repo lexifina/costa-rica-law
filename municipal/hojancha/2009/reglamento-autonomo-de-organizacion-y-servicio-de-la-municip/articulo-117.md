@@ -1,1 +1,1 @@
-Artículo 117.—El Alcalde (sa) podrá ordenar, a solicitud de la persona interesada, su reubicación temporal en la Municipalidad.
+Artículo 117.—(Derogado por el artículo 23 del Reglamento contra el Hostigamiento Sexual en el Empleo y la Docencia para el Sector Público de la Municipalidad de Hojancha, aprobado en sesión N° 074-2011 de 27 de setiembre del 2011)
