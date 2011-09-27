@@ -1,0 +1,2 @@
+Artículo 6º—Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los Presupuestos Extraordinarios entrarán en vigencia una vez que sea aprobado por la Contraloría General de la República.
+Las Modificaciones Presupuestarias tendrán efecto legal en el presupuesto a partir de la aprobación del Concejo Municipal por acuerdo en firme o por la ratificación del acta en la cual fueron aprobadas.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Modificaciones Presupuestarias
+Artículo 12.—Sobre las modificaciones presupuestarias. Las modificaciones presupuestarias no requieren ser sometidas al trámite previo de aprobación por parte de la Contraloría General de la República, en su lugar serán sometidas al trámite de aprobación por parte del Jerarca Superior. La aprobación de las mismas se podrá realizar dentro del periodo comprendido entre el 02 de enero del año en ejecución al 31 de noviembre del mismo año. Solo en casos debidamente justificados y de importancia significativa para la administración se podrán autorizar modificaciones posteriores a esa fecha.
