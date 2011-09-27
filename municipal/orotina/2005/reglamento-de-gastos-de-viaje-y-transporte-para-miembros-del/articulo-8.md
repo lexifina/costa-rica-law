@@ -1,1 +1,0 @@
-Artículo 8º—De la empresa que presta el servicio. La persona física o jurídica que ofrezca el servicio colectivo, debe estar debidamente autorizada, de acuerdo a la Ley y ofrecer todos los servicios que la misma les exige.

@@ -1,1 +1,0 @@
-Artículo 5º—Limitación territorial. No podrá cubrirse gastos de viajes a los miembros del Concejo Municipal que deban de trasladarse fuera del cantón de Orotina, omitiendo los casos que sea acordado por el Concejo Municipal.
