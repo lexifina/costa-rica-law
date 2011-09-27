@@ -1,0 +1,1 @@
+Artículo 5º—Responsabilidades del funcionario usuario del servicio. En caso de determinarse, previo procedimiento, que el funcionario es el responsable por el extravío, robo, hurto o daño, del teléfono celular propiedad del Ministerio; se le deducirá de su salario el valor del aparato y/o accesorios.
