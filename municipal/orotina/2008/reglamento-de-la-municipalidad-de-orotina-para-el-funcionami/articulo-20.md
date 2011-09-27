@@ -1,1 +1,0 @@
-Artículo 20.—Los comprobantes de pago que se utilizarán por caja chica, estarán prenumerados y se llevará para esos efectos, una numeración individual para cada caja chica que exista en la Municipalidad.
