@@ -14,3 +14,4 @@ Normativa Sobre el Manejo de Gastos Confidenciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-09 | la propia norma |
+| 2 | 2011-09-28 | Resolución 2 (2011-09-28) |
