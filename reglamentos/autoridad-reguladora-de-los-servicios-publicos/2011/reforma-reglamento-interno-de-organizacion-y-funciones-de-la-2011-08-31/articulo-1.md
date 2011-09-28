@@ -20,9 +20,10 @@ DE LOS SERVICIOS PÚBLICOS Y SUS ÓRGANOS
 DESCONCENTRADOS (RIOF)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
 (SUTEL)
-Artículo 20.—Naturaleza de la SUTEL. La SUTEL es un órgano de desconcentración máxima adscrito a la Autoridad Reguladora de los Servicios Públicos, cuyo propósito es garantizar y proteger el derecho de los habitantes a obtener servicios de telecomunicaciones. Para ello aplica y fortalece los principios de universalidad y solidaridad, asegura la eficiencia, la igualdad, la continuidad, la calidad, la información y una mayor y mejor cobertura, promueve mejores alternativas en la prestación de servicios, y vela por la privacidad y confidencialidad en las comunicaciones. Para alcanzar sus objetivos se sirve de la promoción de la competencia efectiva en el mercado de las telecomunicaciones.
+Artículo 17.—Naturaleza de la SUTEL. La SUTEL es un órgano de desconcentración máxima adscrito a la Autoridad Reguladora de los Servicios Públicos, cuyo propósito es garantizar y proteger el derecho de los habitantes a obtener servicios de telecomunicaciones. Para ello aplica y fortalece los principios de universalidad y solidaridad, asegura la eficiencia, la igualdad, la continuidad, la calidad, la información y una mayor y mejor cobertura, promueve mejores alternativas en la prestación de servicios, y vela por la privacidad y confidencialidad en las comunicaciones. Para alcanzar sus objetivos se sirve de la promoción de la competencia efectiva en el mercado de las telecomunicaciones.
 Para el cumplimiento de sus funciones sustantivas, la SUTEL contará con sus propios servicios administrativos y de apoyo que este reglamento le asigna. La SUTEL recibirá de la ARESEP los servicios de la Dirección General de Participación del Usuario establecidos en este reglamento, así como los servicios de la Junta Directiva y de la Auditoría Interna que la ley les asigna.
-Artículo 21.—Estructura organizativa de la SUTEL. La SUTEL está organizada en las siguientes áreas:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 20 al 17)
+Artículo 18.—Estructura organizativa de la SUTEL. La SUTEL está organizada en las siguientes áreas:
 1. Consejo:
 1.1. Secretaría del Consejo.
 1.2. Contraloría de Servicios.
@@ -43,8 +44,10 @@ Artículo 21.—Estructura organizativa de la SUTEL. La SUTEL está organizada e
 5.4. Finanzas.
 5.5. Gestión Documental.
 5.6. Proveeduría y Servicios Generales.
-Artículo 22.—Del Consejo de la SUTEL. La SUTEL está a cargo de un Consejo integrado por tres miembros propietarios. De entre sus miembros le corresponde al presidente la representación judicial y extrajudicial de la superintendencia; para lo cual tendrá facultades de apoderado generalísimo sin límite de suma; así como ejercer las facultades de organización y coordinación del funcionamiento del órgano que le asigne el Consejo.
-Artículo 23.—Funciones del Consejo de la SUTEL. De conformidad con el artículo 73 de la Ley Nº 7593 al Consejo de la SUTEL le corresponde las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 21 al 18)
+Artículo 19.—Del Consejo de la SUTEL. La SUTEL está a cargo de un Consejo integrado por tres miembros propietarios. De entre sus miembros le corresponde al presidente la representación judicial y extrajudicial de la superintendencia; para lo cual tendrá facultades de apoderado generalísimo sin límite de suma; así como ejercer las facultades de organización y coordinación del funcionamiento del órgano que le asigne el Consejo.
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 22 al 19)
+Artículo 20.—Funciones del Consejo de la SUTEL. De conformidad con el artículo 73 de la Ley Nº 7593 al Consejo de la SUTEL le corresponde las siguientes funciones:
 1. Proteger los derechos de los usuarios de los servicios de telecomunicaciones, asegurando eficiencia, igualdad, continuidad, calidad, mayor y mejor cobertura, mayor y mejor información, más y mejores alternativas en la prestación de los servicios, así como garantizar la privacidad y confidencialidad en las comunicaciones, de acuerdo con la Constitución Política.
 2. Imponer, a los operadores y proveedores, la obligación de dar libre acceso a sus redes y a los servicios que por ellas presten, en forma oportuna y en condiciones razonables, transparentes y no discriminatorias, a los prestadores y usuarios de los servicios de telecomunicaciones, a los generadores y receptores de información y a los proveedores y usuarios de servicios de información, de conformidad con lo que reglamentariamente se indique.
 3. Incentivar la inversión en el Sector Telecomunicaciones, mediante un marco jurídico que garantice transparencia, no discriminación, equidad y seguridad jurídica, a fin de que el país obtenga los máximos beneficios del progreso tecnológico y de la convergencia.
@@ -81,14 +84,16 @@ Artículo 23.—Funciones del Consejo de la SUTEL. De conformidad con el artícu
 34. Asegurar que el acceso e interconexión sea provisto en forma oportuna y en términos y condiciones no discriminatorias, razonables transparentes, proporcionadas al uso pretendido.
 35. Interpretar y velar por el cumplimiento de los acuerdos de acceso e interconexión.
 36. Conocer y resolver los recursos de apelación presentados contra los actos finales de sus áreas auxiliares.
-Artículo 24.—Unidades de apoyo del Consejo de la SUTEL. El Consejo tendrá como áreas de apoyo a su gestión las siguientes unidades administrativas:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 23 al 20)
+Artículo 21.—Unidades de apoyo del Consejo de la SUTEL. El Consejo tendrá como áreas de apoyo a su gestión las siguientes unidades administrativas:
 · Secretaría de Consejo.
 · Unidad Jurídica.
 · Contraloría de Servicios.
 · Comunicación.
 Además contará con los asesores cuyas plazas hayan sido aprobadas por la Junta Directiva de ARESEP.
 El superior jerárquico inmediato de estas unidades administrativas será el Consejo.
-Artículo 25.—Funciones de la Secretaría del Consejo de la SUTEL. El Consejo de la Superintendencia de Telecomunicaciones, cuenta con el apoyo de una Secretaría que está a cargo de un o una Secretario(a) con las siguientes funciones básicas:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 24 al 21)
+Artículo 22.—Funciones de la Secretaría del Consejo de la SUTEL. El Consejo de la Superintendencia de Telecomunicaciones, cuenta con el apoyo de una Secretaría que está a cargo de un o una Secretario(a) con las siguientes funciones básicas:
 1. Asistir al Presidente en la elaboración de las agendas de asuntos por tratar en las sesiones y todo lo que este solicite.
 2. Comunicar las convocatorias a los miembros del Consejo a solicitud del presidente.
 3. Recopilar, ordenar y proporcionar a los miembros del Consejo la documentación necesaria para analizar los asuntos incluidos en la agenda.
@@ -109,7 +114,8 @@ Artículo 25.—Funciones de la Secretaría del Consejo de la SUTEL. El Consejo 
 18. Crear y mantener actualizado un sistema de registro y consulta pública de los asuntos tramitados en el Consejo.
 19. Apoyar a la Coordinación Jurídica del Consejo en el desarrollo y la actualización de la normativa técnica propia de las competencias de la SUTEL.
 20. Cualesquiera otras funciones relacionadas con su ámbito de acción y que le sean asignadas por el Consejo.
-Artículo 26.—Funciones de la Unidad Jurídica del Consejo de la SUTEL. El Consejo de la Superintendencia de Telecomunicaciones, cuenta con el apoyo de una Coordinación jurídica como una unidad administrativa que está especializada en lo Jurídico con autoridad, dirección y responsabilidad para elaborar, sistematizar y difundir los criterios u opiniones necesarios para interpretar y aplicar el ordenamiento jurídico que sean requeridos para el funcionamiento de Superintendencia y el fiel cumplimiento de sus fines y funciones e implementar, divulgar, controlar y ejecutar estrategias, políticas, lineamientos y normas en materia de telecomunicaciones. La Unidad Jurídica coordina el área jurídica de las distintas Direcciones Generales y otras unidades auxiliares, Está a cargo de un o una Coordinador(a) con las siguientes funciones básicas:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 25 al 22)
+Artículo 23.—Funciones de la Unidad Jurídica del Consejo de la SUTEL. El Consejo de la Superintendencia de Telecomunicaciones, cuenta con el apoyo de una Coordinación jurídica como una unidad administrativa que está especializada en lo Jurídico con autoridad, dirección y responsabilidad para elaborar, sistematizar y difundir los criterios u opiniones necesarios para interpretar y aplicar el ordenamiento jurídico que sean requeridos para el funcionamiento de Superintendencia y el fiel cumplimiento de sus fines y funciones e implementar, divulgar, controlar y ejecutar estrategias, políticas, lineamientos y normas en materia de telecomunicaciones. La Unidad Jurídica coordina el área jurídica de las distintas Direcciones Generales y otras unidades auxiliares, Está a cargo de un o una Coordinador(a) con las siguientes funciones básicas:
 1. Formular y proponer las políticas, sobre aspectos jurídicos y legales de la SUTEL, asó como las normas de carácter legal y acciones judiciales necesarias para el mejor cumplimiento de los objetivos institucionales.
 2. Ejercer y/o supervisar el patrocinio de los procesos judiciales, los procedimientos administrativos en los que sea parte de la SUTEL.
 3. Emitir, sistematizar y difundir criterios y opiniones a fin de homogenizar las interpretaciones y aplicaciones del ordenamiento jurídico, de manera tal que se asegure la consistencia del criterio técnico jurídico de la SUTEL.
@@ -127,7 +133,8 @@ b. La aplicación de la normativa, lineamientos y procedimientos establecidos de
 13. Coordinar la contratación de trámites notariales y registrales.
 14. Coordinar con el área respectiva la atención de Recursos de Amparo.
 15. Apoyar los procedimientos de compra y de operaciones de la SUTEL en sus diferentes etapas.
-Artículo 27.—Funciones de la Contraloría de Servicios de la SUTEL. Su jefatura inmediata es el Consejo de la SUTEL y de conformidad con lo dispuesto en el Decreto Nº 34587 “Creación, organización y funcionamiento del Sistema Nacional de Contralorías de Servicios”, publicado en La Gaceta Nº 127, del 2 de julio del 2008, tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 26 al 23)
+Artículo 24.—Funciones de la Contraloría de Servicios de la SUTEL. Su jefatura inmediata es el Consejo de la SUTEL y de conformidad con lo dispuesto en el Decreto Nº 34587 “Creación, organización y funcionamiento del Sistema Nacional de Contralorías de Servicios”, publicado en La Gaceta Nº 127, del 2 de julio del 2008, tiene las siguientes funciones:
 1. Verificar que las dependencias de la institución cuenten con mecanismos y procedimientos eficaces de comunicación con el usuario, de manera tal que les permita conocer oportunamente sus necesidades.
 2. Velar por el cumplimiento de los lineamientos y directrices que en materia de Contralorías de Servicios y mejoramiento al servicio público se emitan, sin perjuicio de las acciones que desarrolle y que respondan a las necesidades específicas de la SUTEL.
 3. Presentar a la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios, un plan anual de trabajo, avalado por el Consejo de la SUTEL, que sirva de base para el informe anual de labores. Dicho plan deberá presentarse a más tardar el 30 de noviembre de cada año.
@@ -142,7 +149,8 @@ Artículo 27.—Funciones de la Contraloría de Servicios de la SUTEL. Su jefatu
 12. Solicitar el respaldo del superior jerárquico inmediato, ante la negativa o negligencia de un funcionario o unidad administrativa de atender sus solicitudes y recomendaciones.
 13. Informar al Consejo de la SUTEL cuando las sugerencias presentadas a otras unidades administrativas de la Institución hayan sido ignoradas y por ende, las situaciones que provocan inconformidades en los ciudadanos permanezcan irresolutas.
 14. Elaborar y aplicar semestralmente entre los usuarios de los servicios, instrumentos de percepción para obtener su opinión sobre la calidad de los servicios, grado de satisfacción y las mejoras requeridas.
-Artículo 28.—Funciones de la Unidad de Comunicación de la SUTEL. Su jefatura inmediata es el Consejo de la SUTEL y tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 27 al 24)
+Artículo 25.—Funciones de la Unidad de Comunicación de la SUTEL. Su jefatura inmediata es el Consejo de la SUTEL y tiene las siguientes funciones:
 1. Diseñar y coordinar una estrategia de comunicación de la institución la cual debe incluir los aspectos de relaciones públicas de cara a los medios.
 2. Asesorar al Consejo de la SUTEL y al resto de la organización en sus acciones de comunicación interna y externa.
 3. Formular y proponer los programas de comunicación de la SUTEL.
@@ -154,21 +162,25 @@ Artículo 28.—Funciones de la Unidad de Comunicación de la SUTEL. Su jefatura
 9. Apoyar en la logística para la realización de eventos, giras de trabajo y campañas promociónales que lleve a cabo la SUTEL.
 10. Reseñar y conservar las memorias visuales de los eventos donde participe la SUTEL.
 11. Cualquier otra responsabilidad que le sea encomendada por los superiores.
-Artículo 29.—Naturaleza y estructura de las Direcciones Generales de la SUTEL. La Superintendencia de Telecomunicaciones contará con las siguientes Direcciones Generales:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 28 al 25)
+Artículo 26.—Naturaleza y estructura de las Direcciones Generales de la SUTEL. La Superintendencia de Telecomunicaciones contará con las siguientes Direcciones Generales:
 · Dirección General de Calidad.
 · Dirección General de Mercados.
 · Dirección General del Fondo Nacional de Telecomunicaciones.
 · Dirección General de Operaciones.
 Las Direcciones Generales son áreas auxiliares del Consejo de la SUTEL que le brindan servicios especializados en la realización de estudios técnicos, así como, la formulación de recomendaciones técnicas y en general en la ejecución de las gestiones que sean necesarias para que dicho Consejo adopte la resolución final y realice la conducta debida en los asuntos propios de su competencia establecidos en el artículo 20 de este reglamento y conforme con el ordenamiento jurídico.
 Las Direcciones Generales dependerán directamente del Consejo de la SUTEL y tendrán a su cargo las unidades administrativas definidas en este reglamento. Tendrán bajo su responsabilidad directa las funciones que se indican en los siguientes apartados, así como aquellas funciones propias de su ámbito de competencia contenidas en los planes y reglamentos técnicos atinentes y las que adicionalmente les asigne el Consejo de la SUTEL.
-Artículo 30.—Funciones de las Direcciones Generales de la SUTEL. Todas las Direcciones Generales que conforman la SUTEL tendrán las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 29 al 26)
+Artículo 27.—Funciones de las Direcciones Generales de la SUTEL. Todas las Direcciones Generales que conforman la SUTEL tendrán las siguientes funciones:
 1. Ejercer la dirección de las unidades administrativas que tienen a su cargo para que se cumplan en tiempo los acuerdos del Consejo de la SUTEL y se desarrollen eficientemente las funciones específicas que le están definidas en este reglamento.
 2. Tomar las medidas necesarias para que se ejecuten los acuerdos tomados por el Consejo de la SUTEL.
 3. Dictar las resoluciones en el ámbito de su competencia definido en este reglamento.
 4. Velar por la calidad y la oportunidad de los servicios que brindan sus unidades administrativas al resto de la organización.
 5. Cualesquiera otras funciones relacionadas con su ámbito de acción y que le sean asignadas por el Consejo.
-Artículo 31.—De la Dirección General de Calidad. Es responsable de ejercer la regulación desde la perspectiva de calidad de servicio. Tramita, investiga y resuelve las quejas de los usuarios finales de los servicios de telecomunicaciones, para lo cual podrá contar con los servicios que prestan las áreas de apoyo de la Autoridad Reguladora. Evalúa la calidad del servicio de los operadores y proveedores, para lo cual realiza estudios técnicos programados así como aquellos que la resolución de quejas requiera. Monitorea constantemente el espectro radioeléctrico para garantizar su uso efectivo. Depende directamente del Consejo. Está conformada por dos unidades administrativas en materia de Calidad de Redes y en materia de Espectro Radioeléctrico.
-Artículo 32.—Funciones de la Dirección General de Calidad. Son funciones de esta dirección general las siguientes:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 30 al 27)
+Artículo 28.—De la Dirección General de Calidad. Es responsable de ejercer la regulación desde la perspectiva de calidad de servicio. Tramita, investiga y resuelve las quejas de los usuarios finales de los servicios de telecomunicaciones, para lo cual podrá contar con los servicios que prestan las áreas de apoyo de la Autoridad Reguladora. Evalúa la calidad del servicio de los operadores y proveedores, para lo cual realiza estudios técnicos programados así como aquellos que la resolución de quejas requiera. Monitorea constantemente el espectro radioeléctrico para garantizar su uso efectivo. Depende directamente del Consejo. Está conformada por dos unidades administrativas en materia de Calidad de Redes y en materia de Espectro Radioeléctrico.
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 31 al 28)
+Artículo 29.—Funciones de la Dirección General de Calidad. Son funciones de esta dirección general las siguientes:
 1. En materia de Calidad de Redes:
 a) Analizar la información que los operadores remitan a la SUTEL referida a los riesgos identificables en la seguridad de la red. En el caso de que se requieran tomar medidas para mitigar dichos riesgos, informará y recomendará al Consejo, las acciones y medidas a tomar, según corresponda.
 b) Velar para que los operadores y proveedores ofrezcan acceso a los usuarios finales con discapacidad a los servicios regulados en la Ley Nº 8642 en condiciones no discriminatorias, de conformidad con lo establecido en el artículo 45 de dicha ley.
@@ -203,8 +215,10 @@ t) Mantener actualizado el registro nacional de telecomunicaciones en lo que se 
 u) Informar al poder ejecutivo sobre desacatos por parte de los concesionarios para el establecimiento de sanciones.
 v) Proveer los insumos necesarios para la actualización del canon de reserva del espectro.
 w) Realizar la coordinación internacional para el uso armonizado del espectro radioeléctrico en las fronteras.
-Artículo 33.—De la Dirección General de Mercados. Es responsable de proponer al Consejo de la SUTEL, la definición de los mercados relevantes, establecer los procesos para definir tarifas tope y aplicar las metodologías correspondientes para las fijaciones tarifarias. Recibe, tramita y recomienda sobre los conflictos de competencia, las adquisiciones del control accionario, fusiones, cesiones y cualquier otro acto en virtud del cual se concentren las sociedades para determinar que no haya concentraciones de mercado. Hace un monitoreo constante del mercado para determinar cuándo el mercado entra en competencia o deja de estarlo. Desarrollar estudios para asignación de frecuencias para dar insumos en materia de concursos públicos para concesiones y planificar el uso futuro del espectro. Le corresponde operar el Registro Nacional de Telecomunicaciones. Instruye el procedimiento de otorgamiento de autorizaciones que expide el Consejo. Depende directamente del Consejo. Está conformado por dos unidades administrativas en materia de Mercados de Telecomunicaciones y en materia de Registro Nacional de Telecomunicaciones.
-Artículo 34.—Funciones de la Dirección General de Mercados. Son funciones de esta dirección general las siguientes:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 32 al 29)
+Artículo 30.—De la Dirección General de Mercados. Es responsable de proponer al Consejo de la SUTEL, la definición de los mercados relevantes, establecer los procesos para definir tarifas tope y aplicar las metodologías correspondientes para las fijaciones tarifarias. Recibe, tramita y recomienda sobre los conflictos de competencia, las adquisiciones del control accionario, fusiones, cesiones y cualquier otro acto en virtud del cual se concentren las sociedades para determinar que no haya concentraciones de mercado. Hace un monitoreo constante del mercado para determinar cuándo el mercado entra en competencia o deja de estarlo. Desarrollar estudios para asignación de frecuencias para dar insumos en materia de concursos públicos para concesiones y planificar el uso futuro del espectro. Le corresponde operar el Registro Nacional de Telecomunicaciones. Instruye el procedimiento de otorgamiento de autorizaciones que expide el Consejo. Depende directamente del Consejo. Está conformado por dos unidades administrativas en materia de Mercados de Telecomunicaciones y en materia de Registro Nacional de Telecomunicaciones.
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 33 al 30)
+Artículo 31.—Funciones de la Dirección General de Mercados. Son funciones de esta dirección general las siguientes:
 1. En materia de Mercados de Telecomunicaciones:
 a) Tramitar y recomendar al Consejo de la SUTEL las fijaciones tarifarias del servicio telefónico básico tradicional y sus redes, de conformidad con lo señalado en el artículo 28 de la Ley Nº 8642.
 b) Promover los principios de competencia en el mercado nacional de telecomunicaciones.
@@ -244,8 +258,10 @@ d) Desarrollar los estudios registrales necesarios para sustentar los procesos d
 e) Emitir las certificaciones de los actos y hechos registrados.
 f) Establecer los procesos de verificación de cumplimiento de las condiciones esenciales para el registro y los respectivos sistemas de control interno.
 g) Recibir, solicitar, procesar y generar la información estadística que requieran las áreas que conforman la SUTEL para el cumplimiento de sus funciones.
-Artículo 35.—De la Dirección General del Fondo Nacional de Telecomunicaciones. Es responsable de administrar y gestionar proyectos específicos en telecomunicaciones para procurar el acceso universal. Le corresponde evaluar el impacto de esos proyectos y coordinar con las organizaciones que desarrollan proyectos en áreas determinadas como prioritarias. Depende directamente del Consejo. Está conformada además por una unidad administrativa en materia de Administración y Control del Fondo.
-Artículo 36.—Funciones de la Dirección General del Fondo Nacional de Telecomunicaciones. En materia de administración y control del Fondo Nacional de Telecomunicaciones, son funciones de esta dirección general las siguientes:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 34 al 31)
+Artículo 32.—De la Dirección General del Fondo Nacional de Telecomunicaciones. Es responsable de administrar y gestionar proyectos específicos en telecomunicaciones para procurar el acceso universal. Le corresponde evaluar el impacto de esos proyectos y coordinar con las organizaciones que desarrollan proyectos en áreas determinadas como prioritarias. Depende directamente del Consejo. Está conformada además por una unidad administrativa en materia de Administración y Control del Fondo.
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 35 al 32)
+Artículo 33.—Funciones de la Dirección General del Fondo Nacional de Telecomunicaciones. En materia de administración y control del Fondo Nacional de Telecomunicaciones, son funciones de esta dirección general las siguientes:
 1. Garantizar que los operadores y proveedores cumplan lo establecido en el Capítulo I del Título II sobre acceso universal, servicio universal y solidaridad de la ley y lo que reglamentariamente se establezca.
 2. Administrar los recursos de FONATEL.
 3. Establecer reglamentariamente los requisitos para que los operadores o proveedores que ejecuten recursos de FONATEL, mantengan un sistema de contabilidad de costos separado.
@@ -254,21 +270,24 @@ Artículo 36.—Funciones de la Dirección General del Fondo Nacional de Telecom
 6. Tener disponible la información sobre la operación y el funcionamiento de FONATEL, para la auditoría interna de la Autoridad Reguladora.
 7. Administrar el Fondo Nacional de Telecomunicaciones y garantizar el cumplimiento de las obligaciones de acceso y servicio universal que se impongan a los operadores de redes y proveedores de servicios de telecomunicaciones.
 8. Elaborar los estudios y preparar la propuesta como recomendación del Consejo para la fijación de la tarifa de la contribución especial parafiscal de conformidad con lo previsto en el artículo 39 de la ley.
-Artículo 37.—De la Dirección General de Operaciones. Es responsable de administrar y gestionar los procesos administrativos que sirven de apoyo a los demás procesos de la SUTEL. Depende directamente del Consejo. Está conformada por las siguientes unidades administrativas:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 36 al 33)
+Artículo 34.—De la Dirección General de Operaciones. Es responsable de administrar y gestionar los procesos administrativos que sirven de apoyo a los demás procesos de la SUTEL. Depende directamente del Consejo. Está conformada por las siguientes unidades administrativas:
 · Planificación, Presupuesto y Control Interno.
 · Tecnologías de Información.
 · Recursos Humanos.
 · Finanzas.
 · Gestión Documental.
 · Proveeduría y Servicios Generales.
-Artículo 38.—Funciones de la Dirección General de Operaciones. Tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 37 al 34)
+Artículo 35.—Funciones de la Dirección General de Operaciones. Tiene las siguientes funciones:
 1. Ejercer la dirección de los departamentos a su cargo, para que su accionar contribuya al desarrollo de la regulación en el mejor interés de los usuarios de los servicios al público, así como para que cumplan en tiempo con las instrucciones del Consejo de la SUTEL así como con las solicitudes de las demás dependencias de la institución.
 2. Velar por la calidad y la oportunidad de los servicios brindados por los departamentos a su cargo al resto de la organización.
 3. Dictar como órgano decisor, las resoluciones en el ámbito de su competencia definido en este artículo.
 4. Facilitar el diseño y la mejora continua de los procesos y los procedimientos institucionales.
 5. Coordinar el diseño y la implementación de los procesos de organización, reorganización y transformación administrativa.
 6. Adicionalmente, todas aquellas otras funciones que le asigne el Consejo de la SUTEL.
-Artículo 39.—Funciones de Planificación, Presupuesto y Control Interno de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 38 al 35)
+Artículo 36.—Funciones de Planificación, Presupuesto y Control Interno de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
 Planificación
 Esta encargada de asistir técnicamente en la preparación de planes de trabajo a corto, mediano y largo plazo, así como asesorar y coordinar el análisis de procedimientos y el establecimiento de normas para los trabajos de investigación, a fin de dar cumplimiento a la misión, objetivos, políticas y estrategias institucionales.
 Funciones:
@@ -319,14 +338,16 @@ Funciones:
 11. Servir como secretaría técnica de las comisiones de Control Interno y Evaluación de Riesgos con el propósito de facilitar el cumplimiento de los objetivos propuestos y la aplicación adecuada de la normativa que se ha emitido al respecto.
 12. Coordinar el diseño y evaluar la ejecución del sistema de gestión del riesgo institucional así como proponer al Consejo de la SUTEL y a los directores generales según corresponda, los requerimientos del sistema interno de rendición de cuentas y administración del riesgo.
 13. Adicionalmente todas aquellas funciones que le asigne el Consejo de la SUTEL.
-Artículo 40.—Funciones de Tecnologías de Información de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 39 al 36)
+Artículo 37.—Funciones de Tecnologías de Información de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
 1. Coordinar la elaboración del Plan Estratégico de tecnología de la Información y velar por el desarrollo e implementación respectiva.
 2. Centralizar los requerimientos de equipos informáticos y de telecomunicaciones de cada una de las unidades orgánicas; proponer y asesorar técnicamente su adquisición.
 3. Elaborar el conjunto de estándares, normas y procedimientos en materia de tecnologías de información y comunicación para la adquisición, el uso y administración de los bienes y servicios informáticos, debiendo proponerla al Director General de Operaciones para su aprobación.
 4. Administrar, asignar, distribuir y mantener los equipos de procesamiento de datos.
 5. Administrar técnicamente el portal electrónico de la SUTEL.
 6. Adicionalmente, todas aquellas otras funciones que le asigne el Consejo de la SUTEL.
-Artículo 41.—Funciones de Recursos Humanos de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 40 al 37)
+Artículo 38.—Funciones de Recursos Humanos de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
 1. Promover una cultura institucional alineada con los principios que guían la regulación de los servicios al público.
 2. Representar a la administración en las comisiones de salud ocupacional, valores y riesgos del trabajo.
 3. Implementar los planes y programas preventivos y correctivos en cuanto al ambiente físico, de seguridad e higiene ocupacional, psicológica, fisioterapéutica, de administración del riesgo laboral que se requiere para el adecuado desempeño de los funcionarios.
@@ -338,7 +359,8 @@ Artículo 41.—Funciones de Recursos Humanos de la SUTEL. Su jefatura inmediata
 9. Dictar como órgano decisor, las resoluciones en el ámbito de su competencia, según ha sido definida en este artículo.
 10. Planear, ejecutar y controlar todas las actividades relacionadas con los trámites y registros salariales y los movimientos del personal.
 11. Adicionalmente, todas aquellas otras funciones que le asigne el Consejo de la SUTEL.
-Artículo 42.—Funciones de Finanzas de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones.
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 41 al 38)
+Artículo 39.—Funciones de Finanzas de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones.
 1. Implementar, divulgar, controlar y ejecutar los objetivos, políticas, estrategias, lineamientos y normas en materia de gestión financiera, contable, presupuestaria, tesorería y administración de activos institucionales.
 2. Llevar la contabilidad patrimonial y presupuestaria en conformidad a las normas vigentes de los proyectos de presupuestos ordinarios y extraordinarios, las modificaciones presupuestarias, los presupuestos anuales, los proyectos anuales de cánones, los estados financieros, la liquidación presupuestaria y otros, que garanticen una gestión financiera transparente y útil para la toma de decisiones.
 3. Confeccionar el balance presupuestario y patrimonial de la SUTEL, proporcionando los estados e informes contables y presupuestarios que se requieran.
@@ -362,14 +384,16 @@ Artículo 42.—Funciones de Finanzas de la SUTEL. Su jefatura inmediata es el D
 21. Planear, ejecutar y controlar todas las actividades relacionadas con los trámites y registros salariales y los movimientos del personal.
 22. Efectuar los trámites respectivos para la donación y desecho de activos de la Institución, conforme a las disposiciones de la Ley Nº 6106, Ley Nº 8034 y demás disposiciones y política interna sobre la materia.
 23. Adicionalmente, todas aquellas otras funciones que le asigne el Consejo de la SUTEL.
-Artículo 43.—Funciones de Gestión Documental de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 42 al 39)
+Artículo 40.—Funciones de Gestión Documental de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
 1. Administración y control de la documentación que ingresa a la SUTEL.
 2. Diseñar una estrategia institucional de gestión de documentos y velar por su ejecución.
 3. Administrar el archivo institucional conforme la normativa técnica vigente.
 4. Brindar un servicio de información eficiente y oportuna a clientes internos y externos.
 5. Emitir certificaciones para los tribunales y usuarios internos y externos.
 6. Adicionalmente, todas aquellas otras funciones que le asigne el Consejo de la SUTEL.
-Artículo 44.—Funciones de Proveeduría y Servicios Generales de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 43 al 40)
+Artículo 41.—Funciones de Proveeduría y Servicios Generales de la SUTEL. Su jefatura inmediata es el Director General de Operaciones. Tiene las siguientes funciones:
 1. Proveer de bienes y servicios de acuerdo con la ley de contratación administrativa y la normativa vigente en la institución de manera eficiente, oportuna y suficiente, los insumos que demande la operación de la Institución.
 2. Brindar un servicio expedito y de alta calidad a los clientes de la institución un trato apropiado y con celeridad a nuestros proveedores.
 3. Elaborar los planes anuales de compras, en coordinación con las demás áreas de la institución y proponerlo al Director General de Operaciones.
@@ -382,3 +406,6 @@ Artículo 44.—Funciones de Proveeduría y Servicios Generales de la SUTEL. Su 
 10. Ejercer una adecuada administración de la red de voz y llevar control del tráfico de llamadas entrantes y salientes a través de la central telefónica y procurar un eficiente enrutamiento y atención de las llamadas que se reciban.
 11. Mantener actualizado los registros correspondientes en el SIAC.
 12. Adicionalmente, todas aquellas otras funciones que le asigne el Consejo de la SUTEL.
+(Modificada su numeración mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011, que lo traspasó del artículo 44 al 41)
+II.— Se corre la numeración del resto del articulado del Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos, sus Órganos Desconcentrados, en lo que corresponda.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 062-2011 del 28 de setiembre del 2011)
