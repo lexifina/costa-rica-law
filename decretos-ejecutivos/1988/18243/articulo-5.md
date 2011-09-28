@@ -1,2 +1,2 @@
-Artículo 5°—El nombramiento del galardonado se hará en la última semana del mes de agosto o en su defecto se declarará desierta la nominación.
-(Así REFORMADO PARCIAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo 31343-MAG-MEIC del 04 de agosto de 2003, publicado en La Gaceta N°168 del 02 de setiembre de 2003.)
+Artículo 5º—El nombramiento del galardonado se hará en la segunda semana del mes de octubre o en su defecto se declarará desierta la nominación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36837 del 28 de setiembre del 2011)

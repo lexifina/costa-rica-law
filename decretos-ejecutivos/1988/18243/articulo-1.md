@@ -9,4 +9,5 @@ Considerando:
 3°—Que el Décimo sexto Congreso Nacional Cafetalero, aprobó una moción para crear el galardón Medalla al Mérito Cafetalero.
 4°—Que es el propósito de exaltar los méritos de las personas físicas o jurídicas dedicadas a la actividad cafetalera.
 Decretan:
-Artículo 1°—Créase la Medalla al Mérito Cafetalero, la que se otorgará una vez al año, sin distinción de sexo, profesión, ocupación, nacionalidad, residencia y podrán ser postulados para recibir este galardón, todas aquellas personas físicas o jurídicas cuyo aporte haya sido en las siguientes áreas: producción, beneficio, exportación y torrefacción de café.
+Artículo 1º—Créase la Medalla al Mérito Cafetalero, galardón que se podrá otorgar una vez al año, a personas jurídicas o físicas, sin distinción de género, profesión, ocupación, nacionalidad o residencia. Podrán ser postulados para recibir este reconocimiento, todas aquellas personas físicas o jurídicas cuyo aporte haya sido en las siguientes áreas: Producción, Beneficio, Exportación y Torrefacción de café.
+(Así refrmado por el artículo 1° del decreto ejecutivo N° 36837 del 28 de setiembre del 2011)

@@ -16,3 +16,4 @@ Crea la Medalla al Mérito Cafetalero.
 | 1 | 1988-07-21 | la propia norma |
 | 2 | 1998-11-16 | Decreto Ejecutivo 27590 (1998-11-16) |
 | 3 | 2003-08-04 | Decreto Ejecutivo 31343 (2003-08-04) |
+| 4 | 2011-09-28 | Decreto Ejecutivo 36837 (2011-09-28) |
