@@ -1,1 +1,0 @@
-Artículo 7°—El Director General de Migración decidirá sobre la condición de refugiado tomando en cuenta la recomendación de la Sección Técnica del Departamento de Refugiados, dentro de los treinta días hábiles siguientes a que se complete el expediente personal previsto en el artículo 4º del presente decreto.

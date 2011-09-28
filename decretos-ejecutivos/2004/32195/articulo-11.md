@@ -1,1 +1,0 @@
-Artículo 11.—Habiendo sido declarada la protección internacional en calidad de refugiado, el extranjero queda facultado para el ejercicio de cualquier actividad manual o intelectual remunerada o lucrativa, por cuenta propia o en relación de dependencia, con excepción de las actividades profesionales que por ley necesitaren la aprobación del Colegio profesional respectivo.

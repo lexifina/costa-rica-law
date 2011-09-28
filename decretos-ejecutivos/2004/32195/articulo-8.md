@@ -1,1 +1,0 @@
-Artículo 8°—Reconocida la condición de refugiado, la Dirección General de Migración y Extranjería, o el Departamento de Refugiados por delegación expresa de ese órgano, dictará una resolución que deberá ser notificada al interesado y al Alto Comisionado de las Naciones Unidas para los Refugiados.

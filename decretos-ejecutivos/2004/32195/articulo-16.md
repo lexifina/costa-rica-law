@@ -1,1 +1,0 @@
-Artículo 16.—Firme la denegatoria de la solicitud de refugio, no será admisible para su otorgamiento, por extensión, la unión matrimonial con refugiado, si esta no se concretó dentro de los dos meses de antelación de dicha negativa.
