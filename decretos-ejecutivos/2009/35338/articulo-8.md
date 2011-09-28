@@ -1,1 +1,0 @@
-Artículo 8º—Asamblea. Presidente. La Asamblea será presidida por un representante del Ministerio de Agricultura, el cual tendrá derecho a voz pero no a voto. Deberá resolver además las incidencias que se presenten y levantará un acta de lo acordado.

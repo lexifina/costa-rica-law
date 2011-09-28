@@ -1,1 +1,0 @@
-Artículo 6º—Candidatos. Podrá ser candidato a miembro de la Junta Directiva del Consejo Nacional de Producción, cualquiera de los delegados de las organizaciones de productores agropecuarios legalmente constituidas, incluidos los centros agrícolas cantonales, debidamente acreditados, mayores de edad y de reconocida honorabilidad.
