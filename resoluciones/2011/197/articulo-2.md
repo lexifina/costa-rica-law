@@ -1,0 +1,1 @@
+2º—Agregar al mensaje “FORMATO DE MENSAJE DECLARACIÓN ÚNICA ADUANERA Versión 3.4.6” en el bloque “Datos Generales (IMPHDR01)” el campo B48 denominado “Nombre del Vapor o medio de transporte” (NOM_VAPOR) y en el bloque “Detalle de la Declaración” (IMPDET01) el campo C71 denominado “Tipo de bulto/Embalaje Centroamericano (CLASE_CA).
