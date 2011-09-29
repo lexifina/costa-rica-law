@@ -1,0 +1,1 @@
+Artículo 7º—Puestos excluidos. El nombramiento de los funcionarios que ocupen puestos excluidos del Régimen de Servicio Civil, será competencia de la Junta Directiva y la Dirección General y se efectuará según las características del puesto y la normativa jurídica vigente.

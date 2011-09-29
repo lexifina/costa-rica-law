@@ -1,0 +1,4 @@
+Artículo 124.—Atención de la Denuncia. Para la Atención de una denuncia por hostigamiento u acoso laboral, la Dirección General podrá determinar lo siguiente:
+1) Establecer un procedimiento administrativo de carácter investigativo a de fin recabar pruebas, entrevista y demás elementos para determinar si el hecho amerita abrir un proceso administrativo ordinario sancionador o el archivo del caso.
+2) Designar directamente el Órgano Director del procedimiento administrativo ordinario sancionador, integrado al menos por un Trabajador Social, un Psicólogo, un Abogado, dicho órgano director será el encargado de ejercer las atribuciones que se le confieren en el presente reglamento.
+3) Durante la tramitación del proceso, designar el profesional competente para brindar atención integral a las partes, siempre que las posibilidades institucionales lo permitan.

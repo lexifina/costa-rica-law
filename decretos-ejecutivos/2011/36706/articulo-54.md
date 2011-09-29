@@ -1,0 +1,1 @@
+Artículo 54.—Licencias Especiales. Los funcionarios del Instituto disfrutarán de licencia con goce de sueldo hasta por una semana por motivo de matrimonio, o por el fallecimiento de sus padres, hermanos, hijos y cónyuge.

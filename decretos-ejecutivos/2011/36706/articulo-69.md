@@ -1,0 +1,1 @@
+Artículo 69.—De los Asensos. Para realizar los ascensos, el Instituto acordará los movimientos con la participación de Gestión Humana y el superior correspondiente. Lo anterior, de conformidad con las estipulaciones contenidas en el artículo 33 del Estatuto.

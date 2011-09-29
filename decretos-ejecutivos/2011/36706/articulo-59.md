@@ -1,0 +1,1 @@
+Artículo 59.—Denegación de Licencias. No obstante lo establecido en el presente capítulo, la concesión de licencias para estudios, podrá ser denegada cuando así lo justifiquen las necesidades del servicio.

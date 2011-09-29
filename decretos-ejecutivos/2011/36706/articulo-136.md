@@ -1,0 +1,1 @@
+Artículo 136.—Derogatoria. Deróguese el Decreto N° 29139-S (Reglamento Autónomo de Servicio del Instituto sobre Alcoholismo y Farmacodependencia), publicado en La Gaceta Nº 243 del martes 19 de diciembre del 2000.

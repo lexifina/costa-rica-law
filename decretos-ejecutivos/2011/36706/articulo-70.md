@@ -1,0 +1,1 @@
+Artículo 70.—Reasignación de Puesto. Cuando el jerarca o jefe inmediato estime que han variado sustancial y permanentemente las tareas y responsabilidades de un puesto, solicitará a Gestión Humana el trámite para la reasignación de dicho puesto, o el estudio de clasificación que corresponda, todo esto de conformidad con lo que dispone el Capítulo XI del Reglamento del Estatuto.

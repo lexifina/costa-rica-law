@@ -1,0 +1,1 @@
+Artículo 12.—Idoneidad del Funcionario. El Instituto está facultado para asignarle a sus funcionarios, las labores pertinentes de conformidad con el Manual de Puestos correspondiente, siempre que éstas sean compatibles con sus aptitudes, fuerzas, estado o condición respecto a aquellas para cuyo ejercicio fueron nombrados.

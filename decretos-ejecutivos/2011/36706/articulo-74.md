@@ -1,0 +1,3 @@
+CAPÍTULO XVII
+De los sueldos
+Artículo 74.—Del Sueldo. Los sueldos de los funcionarios cubiertos por el Régimen de Servicio Civil se regularán según la Ley de Salarios de la Administración Pública y de conformidad con lo dispuesto en el artículo 48 del Estatuto. Los sueldos de los funcionarios que no pertenezcan a ese régimen, se regularán conforme a las disposiciones que sobre salarios dicte la Autoridad Presupuestaria. En aquellos casos en que exista disposición legal que regule en forma especial la materia salarial de determinado grupo de funcionarios, los salarios de los mismos se mantendrán según la norma especial que resulte aplicable.

@@ -1,0 +1,1 @@
+Artículo 77.—Viáticos y Transporte de Funcionarios. Los funcionarios que deban viajar en el ejercicio de sus funciones tendrán derecho a gastos de transporte y viáticos, consistentes en pasajes, alimentación y hospedaje, los cuales serán otorgados según los reglamentos respectivos. Los viáticos no se considerarán sueldo para ningún efecto legal.

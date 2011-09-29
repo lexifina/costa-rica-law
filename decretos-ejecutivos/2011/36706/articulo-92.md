@@ -1,0 +1,1 @@
+Artículo 92.—Prescripción de la Sanción. Los derechos y acciones para despedir justificadamente a un funcionario o para disciplinar sus faltas prescriben en un mes, desde que fueron conocidos los hechos de manera clara, precisa e identificable por el jerarca con potestad para aplicar la sanción disciplinaria.

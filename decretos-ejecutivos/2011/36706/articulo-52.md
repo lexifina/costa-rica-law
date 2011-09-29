@@ -1,0 +1,1 @@
+Artículo 52.—Fraccionamiento de las Vacaciones. Los funcionarios deben gozar sin interrupciones su período de vacaciones y sólo podrán dividirlas hasta en tres fracciones por la índole especial de las labores que no permitan una ausencia muy prolongada, tal y como lo regula el artículo 32 del Reglamento del Estatuto del Servicio Civil.

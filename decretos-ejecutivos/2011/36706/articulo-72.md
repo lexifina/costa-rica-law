@@ -1,0 +1,1 @@
+Artículo 72.—Del Recargo de Funciones. Los recargos de funciones de puestos de mayor categoría, que excedan de un mes, podrán ser remunerados, pero estarán sujetos a la aprobación previa de la Dirección General, la que deberá constatar que el funcionario a quien se hiciere el recargo, reúne los requisitos establecidos.

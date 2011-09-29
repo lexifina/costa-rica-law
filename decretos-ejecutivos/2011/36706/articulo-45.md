@@ -1,0 +1,1 @@
+Artículo 45.—Conmutación de Ausencias Justificadas. Las ausencias justificadas por enfermedad, que no estén amparadas a una incapacidad médica, por solicitud del funcionario podrán ser descontadas del período de vacaciones que tenga en ese momento disponible, siendo potestad del superior inmediato autorizarlo.

@@ -1,0 +1,2 @@
+Artículo 26.—Modificación de Jornada. El Instituto podrá utilizar a sus funcionarios para laborar en una jornada extraordinaria, siempre y cuando se cumplan las estipulaciones contenidas en los artículos 139 y 140 del Código de Trabajo; para la realización de tareas excepcionales, temporales y de imperiosa necesidad de la institución, sin que pueda existir ninguna posibilidad de convertirla en habitual y permanente.
+El superior inmediato comunicará, por los medios idóneos en cada caso a los funcionarios con la debida anticipación, las horas extraordinarias que deban laborar.

@@ -1,0 +1,1 @@
+Artículo 65.—Subsidio por Maternidad. Todas las funcionarias en estado de gravidez tendrán derecho a licencia con goce de sueldo completo, según lo establece el artículo 34 del Reglamento del Estatuto de Servicio Civil.

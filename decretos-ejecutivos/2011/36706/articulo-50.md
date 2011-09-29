@@ -1,0 +1,1 @@
+Artículo 50.—Compensanción de Vacaciones. Únicamente se podrán compensar vacaciones proporcionales cuando al no cumplir las cincuenta semanas de servicio continuo, deviene la terminación de la relación de servicio.

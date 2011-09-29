@@ -1,0 +1,1 @@
+Artículo 33.—Mecanismo de Registro. Las marcas en la tarjeta de asistencia o el medio establecido, deben ser legibles de manera que no exista duda de su autenticidad, por cuanto podrían eventualmente declararse por no hechas.

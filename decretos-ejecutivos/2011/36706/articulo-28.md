@@ -1,0 +1,1 @@
+Artículo 28.—Requisitos de la Jornada Extraordinaria. El trabajo extraordinario, tanto en días hábiles como días feriados y de descanso semanal, solo podrá autorizarse en situaciones excepcionales, cuando sea indispensable satisfacer exigencias improrrogables del servicio público, según el artículo 17 de la Ley de Salarios de la Administración Pública y la legislación conexa.

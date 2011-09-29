@@ -1,0 +1,1 @@
+Artículo 8º—Funcionarios en propiedad. Se considerarán funcionarios regulares todas las personas que hayan sido nombradas según los procedimientos y disposiciones contenidos en los capítulos IV y V del Estatuto del Servicio Civil y III y V de su Reglamento.

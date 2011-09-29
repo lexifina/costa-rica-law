@@ -1,0 +1,6 @@
+CAPÍTULO VIII
+Jornada y horarios de trabajo
+Artículo 22.—Jornada Ordinaria. La jornada de trabajo se regirá por el siguiente horario: jornada acumulativa y continua de 40 horas semanales; de lunes a viernes, de las siete a las quince horas.
+Cuando sea estrictamente necesario el Instituto podrá establecer diferentes horarios, en función de la naturaleza del trabajo, para tal efecto deberá notificar dicha modificación al funcionario con un mínimo de veinte días hábiles de anticipación, salvo acuerdo escrito entre las partes y estarán sujetos a la jornada diurna, mixta o nocturna que establece el Código de Trabajo.
+Dentro de los horarios señalados, los funcionarios tienen derecho a disfrutar de un descanso de sesenta minutos, a la mitad de la jornada, que se concederá entre las once y treinta y las trece y treinta horas: además, tendrán derecho a un descanso máximo de quince minutos por la mañana y diez minutos por la tarde para tomar un refrigerio, entre las ocho horas con treinta minutos y las nueve horas, y entre las trece horas y treinta minutos y las catorce horas respectivamente.
+No obstante lo anterior, con el fin de que se presten los servicios en forma continua, los Coordinadores de Área, Encargados de Procesos y Subprocesos regularán la forma en que el personal a su cargo, hará uso de esos períodos de descanso sin dejar descubiertos los servicios.

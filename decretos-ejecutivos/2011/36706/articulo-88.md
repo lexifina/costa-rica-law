@@ -1,0 +1,1 @@
+Artículo 88.—Actividades Institucionales. Los funcionarios, previa autorización de la Dirección General, podrán realizar actividades de formación humanística, intelectual, cultural, estética, deportiva y recreativa que les permita el desarrollo de sus aptitudes.

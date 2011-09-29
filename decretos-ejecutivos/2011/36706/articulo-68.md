@@ -1,0 +1,2 @@
+Artículo 68.—Traslado o Reubicación. Todo traslado o reubicación de funcionarios que se dé internamente en el Instituto, deberá ser por disposición expresa de la Dirección General, aplicando el artículo 22 bis del Reglamento del Estatuto de Servicio Civil, o por el artículo 22 del Reglamento del Estatuto de Servicio Civil cuando el funcionario es el que lo solicita.
+Si el traslado o reubicación es externo, ya sea del Instituto a otra institución pública o bien de ésta hacia el Instituto, se deberá efectuar en observancia de lo que al respecto establezca la normativa vigente.

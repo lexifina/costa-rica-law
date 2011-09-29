@@ -1,0 +1,1 @@
+Artículo 47.—Salidas injustificadas. Las salidas injustificadas antes de la hora acordada como horario del Instituto, para medias jornadas o completas, se considerarán para todos los efectos como abandono de trabajo.

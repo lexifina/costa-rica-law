@@ -1,0 +1,3 @@
+CAPÍTULO III
+Relaciones de Servicio
+Artículo 6º—Normas jurídicas. Las relaciones de servicio entre el Instituto y sus funcionarios, se regirán por las disposiciones del Estatuto de Servicio Civil y su Reglamento, Código de Trabajo y demás leyes conexas y complementarias, la Ley General de la Administración Pública, la Ley de Salarios de la Administración Pública, Reglamento General del IAFA y el presente Reglamento, excluyéndose de su aplicación quienes fueran contratados por servicios, conforme al artículo 65 de la Ley de Contratación Administrativa N° 7494 , así como quienes sean remunerados por medio de dietas por la integración de órganos colegiados que sean parte del Instituto o adscritos a la institución.

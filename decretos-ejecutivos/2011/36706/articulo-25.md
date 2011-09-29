@@ -1,0 +1,1 @@
+Artículo 25.—Modificación de Horario. En aquellos casos en que el servicio público lo amerite, la Dirección General o los Encargados de los Organismos Regionales del Instituto, mediante resolución motivada, podrán modificar transitoriamente los horarios establecidos en el presente reglamento.

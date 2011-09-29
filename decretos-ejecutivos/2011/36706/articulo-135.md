@@ -1,0 +1,1 @@
+Artículo 135.—A falta de disposiciones en el presente Reglamento, se aplicarán como normas supletorias, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo, la Ley General de la Administración Pública y otras leyes conexas.

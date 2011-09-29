@@ -1,0 +1,1 @@
+Artículo 134.—Potestad Reglamentaria. El Instituto se reserva el derecho de adicionar, reformar o modificar, en cualquier momento, las disposiciones de este Reglamento, las cuales, deberán ser sometidas, previamente, al trámite de conocimiento y aprobación de la Dirección General de Servicio Civil y del Poder Ejecutivo, para su posterior promulgación vía decreto ejecutivo.

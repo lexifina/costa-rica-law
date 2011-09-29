@@ -1,0 +1,1 @@
+Artículo 23.—Jornada Específica. Se exceptúan del horario señalado en el artículo anterior, aquellos funcionarios de Servicios Generales que se requieran y a los cuales el Proceso de Servicios Administrativos les asignará un horario acorde con la naturaleza de sus funciones.

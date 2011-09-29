@@ -1,0 +1,1 @@
+Artículo 102.—Deber de Colaboración. Todas las unidades organizativas y funcionarios de la Institución están en la obligación de brindar su colaboración cuando así se solicite por la Comisión Investigativa instaurada para el proceso administrativo disciplinario ordinario o por la Dirección General como Órgano Decisor para facilitar su labor y el cabal desempeño del procedimiento.
