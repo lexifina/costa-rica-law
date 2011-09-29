@@ -1,0 +1,1 @@
+Artículo 5º—Facultades de los funcionarios para emitir y hacer cumplir órdenes: Los funcionarios Municipales mencionados en el artículo 3 de este reglamento, están facultados por el ejercicio de su cargo para notificar las órdenes que emanan de otros funcionarios Municipales, además de velar por su fiel cumplimiento.
