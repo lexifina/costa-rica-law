@@ -1,0 +1,2 @@
+Artículo 5º—Rige el día 29 de setiembre del 2011.
+Dado en la Presidencia de la República.—San José, a las trece horas cuarenta minutos del veinte de julio del dos mil once.
