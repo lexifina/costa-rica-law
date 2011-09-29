@@ -1,0 +1,8 @@
+Nº 26-11-12
+EL DIRECTORIO LEGISLATIVO DE LA ASAMBLEA
+LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+De conformidad con la disposición adoptada en la Sesión Ordinaria Nº 074-2011, celebrada por el Directorio Legislativo el 06 de setiembre de 2011.
+ACUERDA:
+A la luz de la declaratoria de inconstitucionalidad de lo dispuesto en el artículo 205 del Reglamento a la Ley de Contratación Administrativa, mediante resolución de la Sala Constitucional N° 2011-004431, avalar la recomendación planteada por el Departamento de Asesoría Legal, mediante oficio As. Leg. 651-2011 y en consecuencia, modificar el artículo 25 del Reglamento Interno de Contratación Administrativa para que se lea de la siguiente manera:
+“La Asamblea Legislativa podrá resolver unilateralmente los contratos por motivo de incumplimiento imputable al contratista; en tales casos, la Asesoría Jurídica institucional será el órgano director del procedimiento administrativo ordinario establecido en los artículos 308 y siguientes de la Ley General de la Administración Pública, y le corresponderá recomendar lo pertinente a la Dirección Ejecutiva, para el acto final del jerarca. De previo al inicio del procedimiento ordinario, el Director del Departamento de Proveeduría, en conjunto con el físcalizador del contrato, presentará al órgano director un informe detallado de todos los pormenores y alcances del presunto incumplimiento, la prueba en que / se sustenta, la estimación de daños y perjuicios, así como la existencia de multas y garantía de cumplimiento. Contra el acto final cabrá recurso de revocatoria ante la Dirección Ejecutiva y de apelación ante el Directorio Legislativo.” Acuerdo firme.Publíquese
+San José, a los trece días del mes de setiembre de dos mil once.—
