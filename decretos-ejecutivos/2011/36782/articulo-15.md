@@ -1,0 +1,1 @@
+Artículo 15. Las licencias, autorizaciones, permisos y concesiones de pesca y acuicultura, establecerán la obligación de los permisionarios de permitir el acceso de los inspectores de INCOPESCA, para el desempeño de sus funciones, a las embarcaciones, instalaciones y demás infraestructura pública relacionada con la actividad pesquera y acuícola.

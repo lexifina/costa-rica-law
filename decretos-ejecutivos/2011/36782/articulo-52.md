@@ -1,0 +1,2 @@
+Artículo 52. La pesca comercial de túnidos estará regulada por lo dispuesto en los Convenios y Tratados Internacionales, la LPA, este Reglamento y los actos de la Autoridad Ejecutora, siempre que no se opongan a lo establecido en la normativa señalada.
+El Poder Ejecutivo remitirá a la Autoridad Ejecutora las resoluciones emitidas por las Organizaciones que conforman los Tratados y Convenios internacionales para su inmediata implementación.

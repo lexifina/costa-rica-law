@@ -1,0 +1,1 @@
+Artículo 126. Toda embarcación con licencia de pesca al día deberá tener debidamente acreditado un patrón o capitán de pesca. La omisión de este requisito imposibilitará el ejercicio de la actividad pesquera.

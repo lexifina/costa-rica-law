@@ -1,0 +1,1 @@
+Artículo 28. El INCOPESCA y las personas físicas o jurídicas que hayan realizado un proyecto de investigación de manera conjunta, podrán facilitar, mediante su publicación y difusión por los medios adecuados, la información sobre los resultados y conocimientos obtenidos en la investigación.

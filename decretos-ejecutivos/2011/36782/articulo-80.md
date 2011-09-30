@@ -1,0 +1,2 @@
+Artículo 80. Toda persona física o jurídica, costarricense o extranjera, para ejercer la actividad acuícola en aguas marinas, requerirá una autorización sobre la viabilidad del proyecto por parte de MINAET, quien deberá coordinar con el MOPT para no autorizar proyectos acuícolas en áreas que afecten rutas de navegación o de señalización marítima.
+La autorización estará condicionada a las metodologías, técnicas y sistemas de cultivo a utilizar, a las necesidades de desarrollo y sostenibilidad del sector acuícola.

@@ -1,0 +1,1 @@
+Artículo 135. Constituyen infracciones administrativas a la LPA, lo dispuesto en el artículo 152 de la LPA. Los asuntos en ellos tipificados serán de conocimiento y competencia de un Órgano Director Administrativo de carácter permanente y colegiado, nombrado por INCOPESCA, salvo que los Tribunales de Justicia consideren el mismo deba considerarse como un delito.

@@ -1,0 +1,1 @@
+Artículo 101. Queda prohibida la comercialización de los recursos hidrobiológicos, en los alrededores de los mercados y vías públicas. Se permitirá únicamente la descarga de los productos de acuerdo a lo establecido por la normativa vigente.

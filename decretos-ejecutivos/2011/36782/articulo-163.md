@@ -1,0 +1,1 @@
+Artículo 163.- El INCOPESCA implementará los registros necesarios para garantizar la existencia, operatividad y evaluación constante al Sistema de Seguimiento Satelital de las embarcaciones sujetas a este sistema.

@@ -1,0 +1,10 @@
+Artículo 100. Durante el proceso de comercialización los recursos hidrobiológicos estarán sometidos a los siguientes controles:
+a. Verificar el cumplimiento de las normas comerciales referidas a categorías de calidad, calibrado, embalaje, así como al etiquetado de los productos de acuerdo a la normativa vigente.
+b. Comprobar el cumplimiento del tamaño y peso autorizado para las especies a comercializar; así como que especies en épocas y zonas de veda no sean objeto de comercialización y demás obligaciones reguladas en la normativa estatal en materia de protección de los recursos pesqueros.
+c. Verificación de las normas de legitimidad, de acuerdo a la normativa vigente.
+d. La comprobación de la información referida a los datos de producción y primera venta de productos de la pesca y acuicultura.
+e. Verificación de la validez del ejercicio de la comercialización.
+f. Verificar que, en el caso del transporte de recursos hidrobiológicos, se porte la guía de transporte otorgada por la Autoridad Ejecutora, previo cumplimiento de los requisitos establecidos para tal fin y la normativa emitida al efecto.
+g. Verificar que los mercados mayoristas y minoristas, las grandes superficies comerciales, los comercios y pescaderías y en general todos los establecimientos que expongan recursos hidrobiológicos para su venta o que los vendan, cumplan con las disposiciones que establezca la Autoridad Ejecutora.
+h. Comprobar que para cada especie, como mínimo, se informe sobre el origen, la categoría de frescura, calibrado, el nombre comercial, la forma de obtención y el modo de presentación y tratamiento, de conformidad con lo establecido en el Decreto Ejecutivo No.29210 MAG-MEIC-S y sus reformas.
+Como norma general, los recursos hidrobiológicos serán sometidos a los controles señalados en el artículo 98 de este Reglamento, a través de la infraestructura portuaria pesquera destinada para tal fin (lonjas portuarias, mercado de mariscos, puestos de recibo, o centros de acopio, muelles y fincas o granjas de acuicultura marina o continental) y asimismo estarán regulados por la Autoridad Ejecutora.

@@ -1,0 +1,1 @@
+Artículo 50. El SNG, el INCOPESCA Y EL MINAET podrán abordar las embarcaciones camaroneras en el mar cuando realicen faenas de pesca, a fin de verificar el uso correcto de los dispositivos excluidores en las redes de arrastre de fondo y comprobar que éstos están siendo utilizados conforme a las disposiciones establecidas para estos efectos.

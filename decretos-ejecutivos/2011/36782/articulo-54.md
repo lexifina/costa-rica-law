@@ -1,0 +1,1 @@
+Articulo 54. El INCOPESCA remitirá al MAG un criterio razonado sobre los costos de las licencias de pesca, para los barcos de bandera extranjera que capturan el atún mediante el arte de red de pesca, quien fijará y actualizará, en definitiva, este costo mediante un decreto ejecutivo.

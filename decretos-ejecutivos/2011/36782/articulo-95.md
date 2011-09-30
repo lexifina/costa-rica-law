@@ -1,0 +1,1 @@
+Artículo 95. Las instalaciones utilizadas para producción, almacenaje bodega, limpieza y empaque de los productos acuícolas, deberán cumplir los requisitos técnicos, sanitarios y cualesquiera otras que se consideren pertinentes por parte de la Autoridad Ejecutora en coordinación con las autoridades competentes.

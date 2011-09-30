@@ -1,0 +1,1 @@
+Artículo 154.- La Autoridad Ejecutora definirá el perfil de los equipos de posicionamiento satelital que sean instalados en las embarcaciones, para lo cual deberán atender las recomendaciones técnicas y los análisis de costo – beneficio, correspondientes.

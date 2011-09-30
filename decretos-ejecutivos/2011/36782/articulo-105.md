@@ -1,0 +1,1 @@
+Artículo 105. Cuando se trate de realizar exportaciones de productos o especies que tengan restricciones, se deberá cumplir previamente con los requisitos establecidos por la Autoridad Ejecutora o por SENASA de conformidad con sus competencias en materia de inocuidad.

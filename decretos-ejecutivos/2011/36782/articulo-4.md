@@ -1,0 +1,4 @@
+CAPITULO II
+Del Plan Nacional de Desarrollo Pesquero y Acuícola
+Artículo 4. Corresponderá al Poder Ejecutivo, con la colaboración del INCOPESCA como Autoridad Ejecutora de la LPA, la elaboración del Plan Nacional de Desarrollo Pesquero y Acuícola, de conformidad con los lineamientos establecidos en el artículo tercero de la LPA, el cual deberá estar concluido en un plazo de seis meses contado a partir de la publicación de este Reglamento.
+Este Plan se oficializará mediante un decreto ejecutivo, publicado en el Diario Oficial La Gaceta y deberá ser revisado en un plazo de cinco años a efecto de actualizarlo, o bien elaborar uno nuevo, tomando en cuenta para ello el interés público y los principios vigentes para la protección y sostenibilidad de los recursos marinos y acuícolas, en fiel apego a la utilidad pública e interés social de la actividad pesquera y acuícola.

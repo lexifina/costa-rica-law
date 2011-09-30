@@ -1,0 +1,1 @@
+Artículo 98. Corresponde a la Autoridad Ejecutora la autorización de los establecimientos y los recursos hidrobiológicos que se comercialicen en éstos, previa autorización del SENASA, en cuanto a las medidas de inocuidad necesarias para el manejo de productos pesqueros.

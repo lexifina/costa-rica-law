@@ -1,0 +1,1 @@
+Artículo 160.- La información generada por el sistema de seguimiento satelital y recogida electrónicamente en el Centro de Monitoreo y Seguimiento Satelital que se instale, constituirá prueba válida en casos de violaciones a la normativa pesquera, dentro de los procesos que se sigan en relación con la operación de las embarcaciones sometidas a este sistema.

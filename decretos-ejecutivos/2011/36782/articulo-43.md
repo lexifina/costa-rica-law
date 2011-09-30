@@ -1,0 +1,1 @@
+Artículo 43. Corresponderá al INCOPESCA, por medio de los Departamentos de Extensión y Capacitación y de Investigación y Desarrollo, la divulgación de las zonas, épocas, especies, métodos, artes de pesca y demás disposiciones de una determinada veda, así como el monitoreo sobre las especies vedadas respectivamente.

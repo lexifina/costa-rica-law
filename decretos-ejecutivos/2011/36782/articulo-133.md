@@ -1,0 +1,1 @@
+Artículo 133. A efecto de cuantificar las capturas realizadas por la pesca deportiva o turística marítima o continental, la Autoridad Ejecutora coordinará con las diferentes marinas y demás comisionados de realizar este tipo de pesca o torneos, la recolección de la información de las capturas en los formularios establecidos para estos efectos.

@@ -1,0 +1,3 @@
+Artículo 102. El intercambio comercial de los recursos hidrobiológicos que hayan sido sometidos a primera venta, se ajustarán a las siguientes normas:
+a. En la factura que acompañe a los productos deberá constar expresamente el centro de acopio o el centro de cosecha que emite la factura, así como cantidades por especie y clase de los productos pesqueros, lo cual será verificado por INCOPESCA.
+b. Los recursos hidrobiológicos en su estado natural o transformados, sean nacionales o importados, llevarán una etiqueta sanitaria que permita identificar, en todo momento del transporte, distribución y entrega; el detallista y el centro expedidor de procedencia, así como aquellas indicaciones establecidas en la normativa vigente aplicable en la materia, emitida por SENASA.

@@ -1,0 +1,1 @@
+Artículo 143.- La recomendación final del Órgano Director, debidamente motivada se remitirá para ante la Presidencia Ejecutiva de la Autoridad Ejecutora, como Organo Decisor, para dictar el acto final.

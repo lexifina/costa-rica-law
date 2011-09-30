@@ -1,0 +1,4 @@
+Artículo 10. Para crear nuevas zonas protegidas o la ampliación de las existentes, que cubran áreas marinas, salvo las establecidas por la Asamblea Legislativa, el MINAET deberá consultar previamente el criterio de INCOPESCA, respecto al uso sostenible de los recursos hidrobiológicos en esas zonas, el cual deberá estar debidamente fundamentado en criterios técnicos, sociales, económicos, científicos y ecológicos y debe ser emitido dentro del plazo fijado en el artículo 9 de la LPA.
+En caso de que el criterio no sea rendido en el plazo antes referido, el MINAET procederá a emitir las regulaciones correspondientes.
+La protección y vigilancia de la actividad pesquera en tales áreas corresponderán al MINAET.
+El INCOPESCA como Autoridad Ejecutora de la LPA, emitirá las licencias o autorizaciones para la pesca en las aguas interiores y continentales, en las que se puede realizar la pesca, conforme a lo establecido en el artículo 9 de la LPA.

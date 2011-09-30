@@ -1,0 +1,1 @@
+Artículo 76. Las artes y aparejos de pesca autorizados y sus características para la pesca continental, de conformidad al tipo de cuerpo de agua continental específico donde se realice, serán definidas y establecidas por acuerdo reglamentario de la Autoridad Ejecutora.

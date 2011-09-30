@@ -1,0 +1,2 @@
+Artículo 90. Para la modificación del terreno y la introducción dentro de un proyecto acuícola de nuevas especies, no foráneas, diferentes a las autorizadas, se deberá contar de previo con el criterio técnico favorable del INCOPESCA, y cumplir con los requisitos establecidos por SETENA para este tipo de proyecto.
+En caso de que la introducción sea de especies foráneas se deberá contar con la autorización previa del MAG, por medio de SENASA, según se establece en el artículo 95 de la LPA.

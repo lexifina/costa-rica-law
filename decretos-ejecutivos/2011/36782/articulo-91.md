@@ -1,0 +1,1 @@
+Artículo 91. En el caso de las autorizaciones que se otorguen en los manglares para el desarrollo de las actividades acuícolas, el criterio del Área de Conservación respectiva del SINAC es vinculante para el otorgamiento de dicha autorización.

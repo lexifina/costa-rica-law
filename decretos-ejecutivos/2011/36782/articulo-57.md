@@ -1,0 +1,1 @@
+Artículo 57. Por estar declarada de interés turístico-deportivo, se prohíbe la pesca dirigida de grandes pelágicos (Pez vela, espada, sábalo y marlín,), utilizando carnada viva, en las zonas y condiciones que para estos efectos determine la Autoridad Ejecutora, definida en la LPA, mediante los estudios correspondientes.

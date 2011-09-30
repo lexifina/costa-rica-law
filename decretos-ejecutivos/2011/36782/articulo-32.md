@@ -1,0 +1,1 @@
+Artículo 32. El INCOPESCA y demás instancias públicas coordinarán con las organizaciones pesqueras y acuícolas, debidamente acreditadas, las necesidades de formación según sus actividades, zonas, artes de pesca, especies y otras.

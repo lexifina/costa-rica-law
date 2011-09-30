@@ -1,0 +1,1 @@
+Artículo 106. Toda persona física o jurídica, que se dedique a la importación de recursos hidrobiológicos para su comercialización, deberá estar autorizada para tal fin por la Autoridad Ejecutora y o por SENASA de conformidad con sus competencias en materia de inocuidad.

@@ -1,0 +1,1 @@
+Artículo 60. Las embarcaciones con licencia para pesca de sardina, no podrán dirigir sus actividades a otras especies que no sean las permitidas, se exceptúa la pesca incidental que ocurra con motivo de las labores de pesca de sardina.

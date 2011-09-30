@@ -1,0 +1,3 @@
+CAPITULO IV
+De las regulaciones del ejercicio de la actividad pesquera
+Artículo 7. La actividad pesquera estará sujeta a las regulaciones que establezca el INCOPESCA por medio de su Junta Directiva, las cuales deberán ser adoptadas con fundamento en el Plan de Desarrollo Pesquero y Acuícola, en estudios técnicos, científicos, económicos y sociales, el Código de Conducta para la Pesca Responsable, las normas emanadas del Sistema de Integración Centroamericano en materia de pesca y acuicultura y demás normas aplicables, a fin de propiciar la conservación, la protección y el aprovechamiento de los recursos pesqueros, evitar la explotación excesiva y prevenir efectos perjudiciales sobre los ecosistemas.

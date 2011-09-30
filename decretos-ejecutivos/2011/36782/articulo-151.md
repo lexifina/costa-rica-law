@@ -1,0 +1,1 @@
+Artículo 151.- El otorgamiento de las licencias de pesca a las embarcaciones atuneras con red de cerco relacionadas en el artículo 53 de la LPA, queda condicionado a la efectiva operación en ellas de un sistema de seguimiento satelital compatible con los objetivos del Sistema de Seguimiento Satelital Costarricense.

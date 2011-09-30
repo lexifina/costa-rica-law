@@ -1,0 +1,6 @@
+CAPITULO IX
+De la conservación, protección y administración
+de los recursos marinos vivos
+Artículo 34. El ejercicio de la actividad pesquera y acuícola, deberá realizarse en forma responsable, con enfoque precautorio. Este concepto abarca el aprovechamiento sostenible de los recursos pesqueros y acuícolas, en armonía con el medio ambiente, con el fin de evitar la sobreexplotación, la realización y utilización de prácticas de captura y acuicultura que sean nocivas para los ecosistemas, recursos, o la calidad de los mismos, la incorporación del valor agregado a estos productos mediante procesos de transformación que respondan a las normas sanitarias, y la aplicación de prácticas comerciales que permitan a los consumidores el acceso a productos de buena calidad.
+Cuando las circunstancias ameriten la aplicación del Principio Precautorio, y en función de éste no se deba autorizar una actividad, el Estado, por medio de las instancias competentes en la materia, deberá procurar los elementos de certeza científica necesaria, para tomar la decisión definitiva.
+El Estado, por medio de INCOPESCA, deberá realizar las acciones de coordinación interinstitucional necesarias para lograr una efectiva gestión de pesca responsable, respetando la reserva de competencias para la acción conjunta del Estado.

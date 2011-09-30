@@ -1,0 +1,1 @@
+Articulo 116. Las instituciones o empresas, tanto públicas como privadas, que desarrollen las actividades comprendidas en la LPA, quedan obligadas a aportar y mantener actualizada la información que resulte pertinente, al INCOPESCA, para el Registro del Sector Pesquero y Acuícola, de conformidad con lo dispuesto en el artículo 127 de la LPA.

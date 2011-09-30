@@ -1,0 +1,2 @@
+Artículo 109. Tratándose de permisos de transporte, , así como traspasos, sustituciones o cambios de características de las embarcaciones, será competencia de la Presidencia Ejecutiva del INCOPESCA, quien podrá delegar esta función en la forma prescrita en el artículo 89 de la Ley General de la Administración Pública.
+Tratándose de centros de acopio, puestos de recibo, pescaderías y plantas de proceso, será competencia de SENASA otorgar los permisos correspondientes.

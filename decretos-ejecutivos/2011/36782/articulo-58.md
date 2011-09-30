@@ -1,0 +1,1 @@
+Artículo 58. Se prohíbe la pesca de carnada viva para la captura de grandes pelágicos con fines de comercialización a terceros, excepto aquellas especies autorizadas por la Autoridad Ejecutora, en las zonas, y con los métodos y artes de pesca que ésta determine, para lo cual emitirá las licencias de pesca correspondientes, sustentada en criterios técnicos.

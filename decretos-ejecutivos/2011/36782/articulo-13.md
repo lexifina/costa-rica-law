@@ -1,0 +1,1 @@
+Artículo 13. El control de la actividad pesquera y acuícola que se realice en aguas marinas e interiores y en todo el territorio nacional, le corresponderá al INCOPESCA en coordinación con las autoridades competentes.

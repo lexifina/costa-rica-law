@@ -1,0 +1,1 @@
+Articulo 30. Las instituciones académicas extranjeras deberán acreditar ante el INCOPESCA que cuentan con el soporte técnico y económico requerido para realizar la investigación, y deberán aportar una copia del informe final de la investigación a INCOPESCA. Tratándose de tesis de grado bastará copia certificada del acuerdo del comité de tesis.

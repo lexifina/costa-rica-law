@@ -1,0 +1,1 @@
+Artículo 138. Para efectos del desarrollo del Procedimiento Administrativo, el Órgano Director que conocerá de las infracciones a la LPA, será de carácter permanente y estará constituido por tres miembros, a saber, dos profesionales en derecho y un funcionario de las instancias técnicas, todos del INCOPESCA.

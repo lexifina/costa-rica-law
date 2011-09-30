@@ -1,0 +1,1 @@
+Artículo 64. Se prohíbe la comercialización del producto capturado de la actividad de la pesca turística, a excepción de la pesca turística en pequeña escala, siempre que no sean especies de interés turístico-deportivo.

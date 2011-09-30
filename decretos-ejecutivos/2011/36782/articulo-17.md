@@ -1,0 +1,2 @@
+Artículo 17. Corresponderá al MINAET la protección de los recursos acuáticos en aguas continentales, comprendida la de los ríos y sus desembocaduras, los lagos, las lagunas, los embalses y las de áreas protegidas. Al SNG le corresponderá la protección y vigilancia de los recursos acuáticos en aguas jurisdiccionales.
+El INCOPESCA, deberá coordinar con el MINAET, con el SNG, la Fuerza Pública y con la Policía Administrativa, todas las acciones necesarias para garantizar el cumplimiento de la LPA.

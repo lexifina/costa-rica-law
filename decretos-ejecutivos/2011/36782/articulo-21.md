@@ -1,0 +1,1 @@
+Artículo 21. Aquellas investigaciones que se realicen a bordo de embarcaciones nacionales o extranjeras, a solicitud de la Autoridad Ejecutora, están exentas de todo pago establecido para este tipo de pesca por el INCOPESCA.

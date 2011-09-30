@@ -1,0 +1,1 @@
+Artículo 130. La Autoridad Ejecutora establecerá los mecanismos de control y verificación de la información suministrada por los armadores nacionales y extranjeros, debiendo el usuario facilitar el ingreso a las instalaciones a fin de realizar los respectivos procesos de arqueo con las fuentes de información primaria.

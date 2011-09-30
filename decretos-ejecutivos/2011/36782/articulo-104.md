@@ -1,0 +1,1 @@
+Artículo 104. Para efectos de la certificación de cumplimiento en normativa internacional, como el Análisis de Peligros y Puntos Críticos de Control (APPCC), las plantas procesadoras para la exportación, deberán someterse al control que para tales fines, tenga establecido el SENASA.

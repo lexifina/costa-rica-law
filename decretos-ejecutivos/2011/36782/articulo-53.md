@@ -1,0 +1,1 @@
+Articulo 53. Para las embarcaciones extranjeras, el Poder Ejecutivo, definirá vía decreto todo lo concerniente a la participación y distribución de cuotas de acarreo que se reconozcan en la Comisión Interamericana del Atún Tropical o en cualquier otra Organización internacional de ordenación pesquera de la que Costa Rica sea parte.

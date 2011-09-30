@@ -1,0 +1,1 @@
+Artículo 167.- El capitán de la embarcación, deberá realizar una revisión periódica de los medicamentos contenidos en el botiquín, con el fin de verificar su estado y fecha de caducidad, así mismo los demás artículos del botiquín deberán estar en buenas condiciones higiénicas.
