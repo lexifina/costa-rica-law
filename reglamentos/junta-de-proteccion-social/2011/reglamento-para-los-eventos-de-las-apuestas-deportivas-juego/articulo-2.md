@@ -1,0 +1,3 @@
+Artículo 2º—Tiempo límite para la recepción de apuestas. La recepción de apuestas para cada jornada se inicia a partir del momento en que la Junta de Protección Social lo defina en el sistema automatizado. La hora de cierre o momento en que se cierra la recepción de apuestas en cada jornada, será, preferiblemente, de 15 minutos antes de la hora fijada para el inicio de dicha jornada.
+En caso de suspensión del evento deportivo o no realización por cualquier motivo en la fecha programada, la citada rifa se hará entre la totalidad de transacciones recibidas.
+Los premios se pagan a más tardar el día hábil siguiente a la inclusión, en los sistemas de la Junta de Protección Social, del resultado oficial del evento deportivo.
