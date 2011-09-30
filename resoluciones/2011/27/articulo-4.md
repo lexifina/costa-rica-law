@@ -1,0 +1,1 @@
+Artículo 4º—De conformidad con el artículo 6 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº 8454, estos libros se conservarán por el plazo establecido por ley, en soporte electrónico, con la aplicación de las medidas de seguridad necesarias para garantizar su inalterabilidad y para posibilitar su acceso o consulta posterior.
