@@ -1,0 +1,1 @@
+Artículo 11.—De la solicitud de reposición de la tarjeta electrónica de compra de combustible. La solicitud de reposición o renovación de las tarjetas deberá tramitarse con el Coordinador del Área de Servicios Generales, el cual realizará el trámite administrativo correspondiente y ante el Banco de Costa Rica.

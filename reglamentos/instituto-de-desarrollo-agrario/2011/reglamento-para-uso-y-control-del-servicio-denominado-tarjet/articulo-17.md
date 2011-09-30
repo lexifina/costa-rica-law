@@ -1,0 +1,1 @@
+Artículo 17.—Las faltas cometidas al tenor de lo dispuesto en el presente reglamento, serán sancionadas de conformidad con las disposiciones establecidas en el Código de Trabajo, y normativa interna, así como las demás disposiciones vigentes y aplicables, sin perjuicio de las responsabilidades civiles y penales que deba asumir el infractor.

@@ -1,0 +1,1 @@
+Artículo 15.—El incumplimiento de cualquiera de las disposiciones contenidas en este Reglamento será causal para la apertura de un proceso administrativo el cual estará a cargo de la Unidad de Relaciones Laborales u órgano Director que se integre a ese efecto con aplicación de las sanciones correspondientes.

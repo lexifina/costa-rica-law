@@ -1,0 +1,1 @@
+Artículo 9º—En caso de que la tarjeta electrónica de compra de combustible sea usada por terceros antes de ser reportada por el responsable al Banco de Costa Rica, el Coordinador del Área de Servicios Generales, elevará el caso ante la Dirección Administrativa Financiera, para iniciar la investigación administrativa correspondiente.
