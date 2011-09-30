@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del año 2011
 
-Ley N° 8908 del 2010-12-02. SINALEVI, ficha 69334: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69334&param2=86295&param3=1>.
+Ley N° 8908 del 2010-12-02. SINALEVI, ficha 69334: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69334&param2=86336&param3=1>.
 
 Publicada en La Gaceta N° 244 del 2010-12-16.
 
@@ -31,3 +31,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 21 de 33 | 2011-08-23 | Decreto Ejecutivo 36702 (2011-07-28) | 2011-07-28 |
 | 22 de 33 | 2011-08-26 | Decreto Ejecutivo 36733 (2011-08-25) | 2011-08-25 |
 | 23 de 33 | 2011-09-28 | Decreto Ejecutivo 36780 (2011-09-21) | 2011-09-21 |
+| 24 de 33 | 2011-09-30 | Decreto Ejecutivo 36781 (2011-09-23) | 2011-09-23 |
