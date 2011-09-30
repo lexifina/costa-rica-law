@@ -1,0 +1,2 @@
+ARTÍCULO 9.-
+Las entidades públicas o privadas que para su mejor desarrollo requieran los servicios de sociólogos extranjeros no incorporados al Colegio deberán solicitarle a este la autorización para el ejercicio temporal de esos profesionales, salvo que se presenten en el país de manera temporal para participar en charlas, foros, simposios o seminarios de carácter académico protegidos por la libertad de cátedra, principio fundamental de la enseñanza universitaria.
