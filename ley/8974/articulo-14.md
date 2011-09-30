@@ -1,0 +1,3 @@
+ARTÍCULO 14.-
+La Asamblea General ordinaria tendrá lugar una vez durante la segunda quincena del mes de marzo de cada año, de conformidad con el calendario que la Junta Directiva establezca; se sesionará con un cuórum que no podrá ser inferior a la mitad más uno de los miembros activos que estén en pleno goce de sus derechos. De no reunirse el cuórum señalado se procederá a celebrar la asamblea en segunda convocatoria, válidamente, media hora después de la primera, en cuyo caso constituirán cuórum veinte miembros activos.
+La nueva Junta Directiva se instalará a más tardar quince días después de la celebración de la Asamblea General ordinaria.
