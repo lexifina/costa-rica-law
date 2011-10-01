@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos. Los abonos a pagos parciales se realizarán por medio del formulario de pago normalizado, indicando el impuesto y el monto exacto a pagar, escogiendo la casilla correspondiente a pago parcial. Sin necesidad de variar esta resolución y ante la promulgación de nuevos formularios o medios de pago, los mismos serán aplicables para esta modalidad.
