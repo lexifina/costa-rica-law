@@ -1,1 +1,0 @@
-Artículo 2°—Corresponde al Concejo Municipal fijar para cada presupuesto ordinario, según el disponible existente, el monto mensual de las becas que regira para el siguiente año lectivo, así como para la Banda Municipal.
