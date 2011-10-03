@@ -14,3 +14,4 @@ Reglamento a la Ley de Correos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-25 | la propia norma |
+| 2 | 2011-10-03 | Decreto Ejecutivo 36833 (2011-10-03) |

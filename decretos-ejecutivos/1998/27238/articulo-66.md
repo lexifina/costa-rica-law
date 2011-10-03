@@ -1,1 +1,1 @@
-Artículo 66.—Procedimiento con objetos no adquiridos. Los objetos que no pudiesen ser rematados o que en la subasta nadie se interesara en adquirirlos, podrán ser donados por la Empresa.
+Artículo 66.—(Derogado por el artículo 2° del decreto ejecutivo N° 36833 del 3 de octubre del 2011)
