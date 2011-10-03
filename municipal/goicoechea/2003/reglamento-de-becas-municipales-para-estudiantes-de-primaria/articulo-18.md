@@ -1,1 +1,0 @@
-Artículo 18.—Prohibición para dar becas. No podrán ser beneficiarios de este tipo de becas las personas que tengan parentesco dentro de tercer grado de consaguinidad o segundo de afinidad con miembros del Concejo Municipal, miembros del Concejo de Distrito, Alcalde Municipal, Vice Alcaldes, Asesores del Alcalde, Auditor, Sub-Auditor y Directores de la Municipalidad.

@@ -1,3 +1,0 @@
-Artículo 6º—De la entrega de formularios. Conforme a lo aprobado por el Concejo Municipal en la última semana del mes de noviembre, la Comisión de Asuntos Sociales entregará a cada Concejo de Distrito los formularios para primaria y secundaria correspondientes a cada Distrito, debidamente sellados, firmados, numerados y en la cantidad que corresponda de acuerdo a lo establecido en el artículo 5º de este Reglamento.
-El Concejo de Distrito distribuirá proporcionalmente los formularios entre el síndico propietario, síndico suplente y los demás miembros propietarios.
-En caso de extravío o daño de algún formulario de becas, el Concejo de Distrito solicitará a la Comisión de Sociales, sustitución del mismo debidamente justificado. Dicha Comisión lo repondrá por una única vez.

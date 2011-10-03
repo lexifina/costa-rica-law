@@ -1,5 +1,0 @@
-Artículo 17.—De las becas para integrantes de la Banda Municipal. Se concederán becas para los integrantes de la Banda Municipal de acuerdo a las siguientes condiciones:
-a) Solicitud expresa del Director de la Banda dirigida a la Comisión de Asuntos Sociales con los nombres y apellidos de los integrantes de la banda.
-b) El Director de la banda se compromete a suministrar un informe mensual a la Comisión de Sociales, sobre la disciplina y desempeño general de los miembros de la banda. Quienes no cumplan con las normativas vigentes para los miembros de la banda, serán excluidos de este beneficio.
-c) Los beneficiarios de beca pertenecientes a la banda, se comprometen a pertenecer a la misma por un período no menor de dos años.
-d) El Director de la Banda se compromete ante la Municipalidad a informar inmediatamente cualquier deserción de uno de los miembros de la banda, con el fin de que les sea retirado de inmediato el beneficio de la beca y que esta sea reasignada de acuerdo a la recomendación del Director de la Banda.
