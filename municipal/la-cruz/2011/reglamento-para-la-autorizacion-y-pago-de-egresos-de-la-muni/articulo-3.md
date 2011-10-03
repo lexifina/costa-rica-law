@@ -1,0 +1,1 @@
+Artículo 3º—Los montos consignados en los artículos anteriores se incrementarán conforme se produzcan las modificaciones a los umbrales de la contratación administrativa por la legislación vigente en la materia.

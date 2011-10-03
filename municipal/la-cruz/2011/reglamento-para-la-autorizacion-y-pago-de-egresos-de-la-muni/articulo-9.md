@@ -1,0 +1,1 @@
+Artículos 9º—Todo pago deberá de hacerse con cargo a la partida presupuestaria respectiva y en ajuste a lo contemplado en los artículos 101 y 103 del Código Municipal; para estos efectos el Departamento de Tesorería deberá de hacer constar de previo y por escrito que existe el respectivo contenido presupuestario en relación con el pago de que se trate.

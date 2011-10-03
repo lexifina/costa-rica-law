@@ -1,0 +1,1 @@
+Artículo 6º—Todo pago por concepto de órdenes de compra y pagos que se realicen a través de Caja Chica de acuerdo con las normas que dicte la Municipalidad a través del reglamento que emita al respecto según lo consignado en el artículo 109 del Código Municipal.
