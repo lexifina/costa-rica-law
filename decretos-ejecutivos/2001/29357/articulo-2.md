@@ -1,1 +1,0 @@
-Artículo 2º—El Servicio Fitosanitario del Estado, previo diagnóstico, determinará las medidas técnicas necesarias para el control y la erradicación de dichas enfermedades en las plantaciones del país.

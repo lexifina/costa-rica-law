@@ -1,1 +1,0 @@
-Artículo 3º—Para la ejecución de las labores de inspección, control y destrucción de plantaciones el Servicio Fitosanitario del Estado dispondrá de las fondos de emergencia que contempla el artículo 66 de la Ley de Protección Fitosanitaria

@@ -1,1 +1,0 @@
-Artículo 4º—El Director del Servicio Fitosanitario del Estado elaborará y someterá a aprobación del Ministro de Agricultura y Ganadería, el presupuesto de los recursos necesarios para la atención de las emergencia.
