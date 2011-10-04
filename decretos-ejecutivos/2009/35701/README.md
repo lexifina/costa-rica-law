@@ -14,3 +14,4 @@ Incremento del Arancel de Importación para los filetes de Pangassus (Pangasyus 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-22 | la propia norma |
+| 2 | 2011-10-04 | Decreto Ejecutivo 36845 (2011-10-04) |

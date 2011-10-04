@@ -13,8 +13,8 @@ Decretan:
 INCREMENTO DEL ARANCEL DE IMPORTACIÓN PARA LOS
 FILETES DE PANGASSUS (PANGASYUS SPP) CONGELADOS
 Artículo 1º—Modificar los derechos arancelarios a la importación aplicados al inciso que se detalla a continuación, contemplado en el Arancel Centroamericano de Importación:
-Código SAC | Descripción | DAI %
-03.04 | Filetes y demás carne de pescado (incluso picada), frescos, refrigerados o congelados |
-0304.2 | - Filetes congelados: |
-0304.29 | - - Los demás: |
-0304.29.90 | --- Otros | 45
+CODIGO | DESCRIPCION | DAI %
+03.06 | FILETES Y DEMAS CARNE DE PESCADO (INCLUSO PICADA), FRESCOS, REFRIGERADOS O CONGELADOS |
+0304.6 | - Filetes congelados de tilapias (Oreochromis spp.), bagres o pez gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus carpio, Carassius carassius, Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y de peces cabeza de serpiente (Channa spp.): |
+0304.62.00 | - - Bagres o pez gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.) | 45
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36845 del 4 de octubre del 2011)
