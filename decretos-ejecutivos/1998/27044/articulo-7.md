@@ -1,1 +1,0 @@
-Artículo 7°-EI incumplimiento o desacato de lo ordenado por este decreto, será sancionado conforme con lo dispuesto en el capítulo VIII "De las Disposiciones Penales" de la Ley de Protección Fitosanitaria, N° 7664 de 8 de abril de 1997, publicada en el Diario Oficial "La Gaceta" N° 83 de 2 de mayo de 1997 y legislación conexa.

@@ -1,1 +1,0 @@
-Artículo 5°-Los propietarios u ocupantes a cualquier título de plantaciones de café, están en la obligación de asistir a sus plantíos de tal manera que se evite que en ellos se desarrollen plagas perjudiciales para el cultivo.

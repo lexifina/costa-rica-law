@@ -1,1 +1,0 @@
-Artículo 4°-En el caso de que se presentara esta plaga en nuestro país, el Poder Ejecutivo mediante Decreto Ejecutivo podrá declarar zonas y períodos de cuarentena, interna o externa, totales o parciales, con el fin de evitar su diseminación, de conformidad con la Ley de Protección Fitosanitaria.
