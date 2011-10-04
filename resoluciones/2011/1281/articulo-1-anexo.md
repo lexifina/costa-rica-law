@@ -2,7 +2,7 @@ ANEXOS
 1. Formato para la presentación de modificaciones de enlaces microondas.
 Tabla 1. Información técnica del enlace inicialmente solicitado
 Nombre del Emplazamiento (Nombre sitio A - Nombre sitio B) | |
-Nombre del Enlace (Enlace sitio A - sitio B) |
+Nombre del radioenlace(*) (*)(Así reformado el término anterior mediante resolución RCS-227 del 4 de octubre de 2011) (Enlace sitio A - sitio B) |
 Bw (MHz ) |
 Polarización (V / H) |
 Modulación |
@@ -48,7 +48,7 @@ xii. Anexar hojas de datos de los equipos de transmisión y recepción utilizado
 xiii. En caso de enlaces con polarización cruzada (XPIC), se debe reportar por aparte el enlace con polarización horizontal y el vertical.
 Tabla 2. Información técnica del enlace modificado.
 Nombre del Emplazamiento (Nombre sitio A - Nombre sitio B) | |
-Nombre del Enlace (Enlace sitio A - sitio B) |
+Nombre del radioenlace(*) (*)(Así reformado el término anterior mediante resolución RCS-227 del 4 de octubre de 2011) (Enlace sitio A - sitio B) |
 Bw (MHz ) |
 Polarización (V / H) |
 Modulación |

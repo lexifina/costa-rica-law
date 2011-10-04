@@ -14,3 +14,4 @@ Procedimiento interno para la atención de solicitudes de modificación en los e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-08 | la propia norma |
+| 2 | 2011-10-04 | Resolución 227 (2011-10-04) |

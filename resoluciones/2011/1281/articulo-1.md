@@ -33,14 +33,18 @@ I.—Emitir el siguiente “P01-SUTEL-2011. Procedimiento para la atención de s
 (ii). FUNCIÓN DE LA SUTEL: Encargada de recibir la información técnica y realizar el análisis técnico de factibilidad para la implementación de las modificaciones que han sido solicitadas, así como de comunicar al solicitante los resultados finales de estos análisis y responsable de incluir y actualizar las modificaciones aprobadas en el expediente respectivo del solicitante.
 (iii). EIRP: Potencia Isotrópica Radiada Efectiva, que se define como la Potencia Transmisor (dBm) + Ganancia de antena (dBi) - Pérdidas de cables y conectores (dB).
 (iv). BW: Se define como el ancho de banda del canal del enlace microondas en MHz.
-(v). NOMBRE DEL EMPLAZAMIENTO: Compuesto por el nombre del sitio transmisor ubicado en el punto A y del sitio receptor ubicado en el punto B.
+(v). NOMBRE DEL EMPLAZAMIENTO: Corresponde al nombre de cada sitio que conforman el radioenlace.
+(Así reformada la definición anterior mediante resolución RCS-227 del 4 de octubre de 2011)
 (vi). WGS84: Es un sistema de coordenadas cartográficas mundial que permite localizar cualquier punto de la Tierra por medio de tres unidades dadas.
 (vii). AZIMUTH: Es el ángulo de orientación de la antena con respecto al norte geográfico.
-(viii). DOWNTILT: Nivel de inclinación de la antena en un enlace microondas.
+(viii). DOWNTILT: Nivel de grado de inclinación de la antena en un enlace microondas.
+(Así reformada la definición anterior mediante resolución RCS-227 del 4 de octubre de 2011)
 En ausencia de definición podrá emplearse las de los reglamentos promulgados por la Junta Directiva de la ARESEP y las definiciones de la Unión Internacional de Telecomunicaciones.
 (b) Alcances:
-(i). Existen cambios que no varían las condiciones generales de la operación de los enlaces (equipos no críticos, cableados, conectores, entre otros) los cuales previa valoración de la solicitud presentada y a criterio de la SUTEL, no requerirán de un cambio de las condiciones de la concesión y por lo tanto no deben someterse a lo dispuesto en este procedimiento.
-(ii). El solicitante deberá contar con un registro actualizado en formato digital en una hoja de cálculo por cada una de las bandas de frecuencias y enlaces ya concesionados, donde se muestre la información actual de cada uno de los enlaces.
+(i). Existen cambios que no varían las condiciones generales de la operación e los enlaces concesionados (equipos no críticos, cableados, conectores, supresores) los cuales previa valoración de la solicitud presentada y a criterio de la SUTEL, no requerirán de un cambio de las condiciones de la concesión y por lo tanto no deben someterse a lo dispuesto en este procedimiento.
+(Así reformado el aparte anterior mediante resolución RCS-227 del 4 de octubre de 2011)
+(ii). El solicitante deberá contar con un registro actualizado en formato digital en una hoja de cálculo por cada una de las bandas de frecuencias y enlaces ya concesionados, donde se muestre la información actual de cada uno de los enlaces siguiendo el formato establecido en la página Web: http://www.sutel.go.cr/Ver/Contenido/frecuencias/102 (enlaces microondas.xls).
+(Así reformado el aparte anterior mediante resolución RCS-227 del 4 de octubre de 2011)
 (c) Restricciones
 (i). El procedimiento indicado en esta resolución no aplica para los casos de cambios en los enlaces microondas que impliquen el traslado a sitios fuera de un radio de 5Km a partir de la ubicación para la cual el enlace fue concesionado. En esos casos se deberá realizar la devolución del enlace y seguir el procedimiento de concesión directa establecido en la resolución Nº RCS-477-2010.
 (ii). No se permitirá la aplicación de cambios en más del 40% de los enlaces concesionados mediante un acuerdo ejecutivo determinado.
@@ -48,15 +52,18 @@ En ausencia de definición podrá emplearse las de los reglamentos promulgados p
 (d) Procedimiento:
 Los solicitantes deberán cumplir con el siguiente procedimiento:
 (i). Realizar una solicitud formal dirigida a la SUTEL, en donde se envíe el listado de enlaces microondas que deben modificarse y en el cual se especifiquen los motivos de los cambios solicitados.
-(ii). Adjuntar a esta solicitud la información técnica detallada por enlace microondas modificado acorde a este procedimiento según se describe en el punto 1 de la sección de anexos.
-(iii). Enviar la información de los enlaces microondas modificados en formato digital requerido por la SUTEL que estará disponible en la página Web de la institución en la dirección: http://www.sutel.go.cr/Ver/Contenido/frecuencias.
+(ii). Adjuntar a esta solicitud la información técnica detallada por enlace microondas con los cambios propuestos acorde a este procedimiento según se describe en el punto 1 de la sección de anexos.
+(Así reformado el aparte anterior mediante resolución RCS-227 del 4 de octubre de 2011)
+(iii). Enviar la información de los enlaces microondas con los cambios propuestos en formato digital requerido por la SUTEL que estará disponible en la página Web de la institución en la dirección: http://www.sutel.go.cr/Ver/Contenido/frecuencias/102
+(Así reformado el aparte anterior mediante resolución RCS-227 del 4 de octubre de 2011)
 (iv). Los solicitantes deberán incluir en su registro digital una hoja de cálculo para el control de cambios, en donde se especifique de forma detallada cada uno de los cambios realizados y la fecha en la cual se realizaron los mismos, con el fin de que los involucrados en este procedimiento puedan identificar claramente los cambios solicitados.
 A su vez, la SUTEL deberá cumplir con el siguiente procedimiento para la realización del estudio técnico de la factibilidad de las modificaciones solicitadas por los concesionarios:
 (i). En el término de tres días hábiles a partir de la presentación de la solicitud, la SUTEL deberá verificar que no se encuentre en trámite una solicitud de asignación de enlaces microondas que incluya los enlaces para los cuales se solicitan las modificaciones. Posteriormente, analizará que los enlaces microondas sobre los cuales se requieren las modificaciones, hayan sido previamente concesionados al solicitante y validará la vigencia de los mismos. En caso contrario, el órgano regulador rechazará la solicitud, pues se deberá seguir el procedimiento de concesión directa para enlaces microondas.
 (ii). Dentro de los tres días hábiles siguientes, la SUTEL deberá verificar que la información de los parámetros técnicos se encuentre completa de conformidad con los requisitos establecidos en la presente resolución, para proceder con el análisis técnico de interferencias y factibilidad de los enlaces microondas que se pretenden modificar.
 (iii). Si la información se encuentra incompleta o incorrecta, la SUTEL deberá notificar al interesado el incumplimiento (mediante fax o correo electrónico), y otorgar el plazo máximo de diez días hábiles para completar o corregir la información solicitada, de conformidad con lo dispuesto en el artículo 264 de la Ley General de la Administración Pública.
 (iv). En el plazo de cinco días hábiles siguientes, la SUTEL procederá a incluir las modificaciones de los parámetros técnicos de cada uno de los enlaces microondas solicitados en sus bases de datos y realizará el análisis de interferencias y factibilidad de los enlaces por medio de las herramientas de simulación disponibles.
-(v). Una vez concluidas las simulaciones de las modificaciones solicitadas, el Consejo de la SUTEL conocerá y analizará los resultados de las mismas y mediante resolución fundada determinará los enlaces microondas susceptibles de modificación. En caso de verificar incumplimiento de los requerimientos técnicos, se procederá con el rechazo de la solicitud presentada. Lo anterior, se cumplirá dentro del plazo consecutivo de diez días hábiles.
+(v). Una vez concluidas las simulaciones de las modificaciones solicitadas, el Consejo de la SUTEL conocerá y analizará los resultados de las mismas y mediante resolución fundada determinará los enlaces microondas susceptibles de modificación. Lo anterior, se cumplirá dentro del plazo consecutivo de tres días hábiles.
+(Así reformado el aparte anterior mediante resolución RCS-227 del 4 de octubre de 2011)
 (vi). La resolución mediante la cual se apruebe o rechace las modificaciones planteadas, deberá ser notificada al solicitante y al Viceministerio de Telecomunicaciones.
 En cumplimiento de lo que ordena el artículo 345 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de reposición ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente de la notificación de la presente resolución.
 Acuerdo firme.
