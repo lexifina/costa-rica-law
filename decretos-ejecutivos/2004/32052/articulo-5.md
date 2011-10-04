@@ -1,1 +1,0 @@
-Artículo 5º—Como efecto inmediato de la detección de la plaga, la plantación afectada quedará de inmediato cuarentenada. Para efectos de detección y control de la plaga, los funcionarios del Servicio Fitosanitario tendrán libre acceso a las plantaciones arroceras.

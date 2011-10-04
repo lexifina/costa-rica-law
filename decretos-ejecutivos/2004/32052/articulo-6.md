@@ -1,1 +1,0 @@
-Artículo 6º—Con el propósito de prevenir y combatir la plaga, el Servicio Fitosanitario del Estado, podrá restringir y prohibir la producción de arroz, según el Artículo 18 de la Ley de Protección Fitosanitaria Nº 7664.

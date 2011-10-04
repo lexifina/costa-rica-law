@@ -1,1 +1,0 @@
-Artículo 9º—Las instituciones públicas o privadas, autónomas o semiautónomas, quedan facultadas para realizar donaciones y aportes económicos, dentro del marco legal de referencia que rige cada una de ellas, así como para prestar todo tipo de colaboración al Servicio Fitosanitario del Estado para atender esta emergencia fitosanitaria.

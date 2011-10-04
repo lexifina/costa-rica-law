@@ -1,1 +1,0 @@
-Artículo 4º—Los propietarios de las plantaciones de arroz afectadas por el ácaro, deberán ejecutar todas las medidas sanitarias que se les ordene, por parte del Servicio Fitosanitario del Estado y a quien él designe. En caso contrario se procederá conforme a lo dispuesto en el Artículo 15 de la Ley de Protección Fitosanitaria Nº 7664.

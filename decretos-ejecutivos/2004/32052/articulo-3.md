@@ -1,1 +1,0 @@
-Artículo 3º—Todo productor, beneficiario, o sujeto público o privado, involucrado directa o indirectamente en la producción arrocera, que tenga conocimiento de la plaga, deberá denunciarlo al Servicio Fitosanitario del Estado.

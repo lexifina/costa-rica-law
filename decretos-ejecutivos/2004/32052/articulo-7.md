@@ -1,1 +1,0 @@
-Artículo 7º—Todo propietario u ocupante a cualquier título y con el fin de combatir el Ácaro, estará obligado a destruir los rastrojos, desechos y residuos de acuerdo con las medidas técnicas dictadas por el Servicio Fitosanitario del Estado, conforme lo estipulado en el Artículo 20 de la Ley de Protección Fitosanitaria Nº 7664.
