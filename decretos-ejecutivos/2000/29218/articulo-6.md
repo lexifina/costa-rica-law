@@ -1,2 +1,0 @@
-Artículo 6º—A partir de la presente declaración de emergencia y para evitar la diseminación de la plaga de la broca del cafeto es obligatorio para productores y beneficiadores, beneficiar el café en su zona de producción y se prohíbe el traslado de café de zonas con presencia de broca hacia zonas libres. El Servicio Fitosanitario del Estado se encargará disponer y ejecutar las medidas técnicas necesarias para verificar el cumplimiento de esta norma."
-(Así reformado por el artículo 1 del DecretoEjecutivo N° 29356 del 27 de febrero del 2001)
