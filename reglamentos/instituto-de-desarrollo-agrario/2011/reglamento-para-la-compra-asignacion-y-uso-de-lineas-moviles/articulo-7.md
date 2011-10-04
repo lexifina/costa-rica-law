@@ -1,0 +1,1 @@
+Artículo 7°—El servicio de telefonía celular se asigna al cargo que se ejerce y estará restringido a una línea por funcionario; no constituye un beneficio personal, ni se considerará parte del salario, sino que se otorga con ocasión de las funciones que corresponden a los funcionarios y para facilitar las mismas.

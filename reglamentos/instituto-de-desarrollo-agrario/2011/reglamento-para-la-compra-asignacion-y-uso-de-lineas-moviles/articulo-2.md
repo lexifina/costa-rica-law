@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento se aplicará a todos los servidores del IDA a quienes se asigna un teléfono celular por una relación de empleo y a aquellos que no siendo funcionarios del IDA estén desempeñando, en calidad de servidores públicos, funciones para el IDA según lo establece el Artículo 111 de la Ley General de la Administración Pública.

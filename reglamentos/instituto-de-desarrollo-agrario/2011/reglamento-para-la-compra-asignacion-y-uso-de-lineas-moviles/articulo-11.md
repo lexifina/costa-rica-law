@@ -1,0 +1,1 @@
+Artículo 11.—Supervisión del cumplimiento: El Área de Servicios Generales será la unidad administrativa dentro del Instituto de Desarrollo Agrario, encargada de velar por el cumplimiento del presente Reglamento.
