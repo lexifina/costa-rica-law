@@ -13,3 +13,4 @@ Dispensa de la presentación de documentos originales cuando éstos hayan sido e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-08 | la propia norma |
+| 2 | 2011-10-04 | SINALEVI (sin norma nombrada) |

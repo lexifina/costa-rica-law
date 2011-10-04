@@ -1,5 +1,6 @@
 CIRCULAR Nº 57-2010
-(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 23 del 07 de marzo de 2011, y publicada en el Boletín Judicial N° 75 del 18 de abril de 2011)
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 23 del 07 de marzo de 2011, y publicada en el Boletín Judicial N° 75 del 18 de abril de 2011.)
+(La Sala Constitucional mediante resolución N° 13357-11 del 04 de octubre de 2011, dispuso que esta circular no es inconstitucional, “en tanto se interprete que es de carácter informativo”.
 Asunto: en la remisión de escritos vía fax no es necesario que las partes remitan el documento original dentro de los tres días siguientes, en razón de la derogatoria parcial del artículo 6 bis de la Ley Orgánica del Poder Judicial.
 A TODAS LAS OFICINAS Y DESPACHOS JUDICIALES,
 ABOGADOS LITIGANTES Y PÚBLICO EN GENERAL
