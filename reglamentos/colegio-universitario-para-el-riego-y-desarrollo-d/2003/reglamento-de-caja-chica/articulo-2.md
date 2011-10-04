@@ -1,1 +1,0 @@
-Artículo 2º—En el Colegio Universitario para el Riego y el Desarrollo del Trópico Seco, funcionará la Caja Chica que el Consejo Directivo, previo estudio del Servicio Financiero, crea conveniente establecer.

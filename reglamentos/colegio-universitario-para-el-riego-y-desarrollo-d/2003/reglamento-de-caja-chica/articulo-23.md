@@ -1,1 +1,0 @@
-Artículo 23.—Cuando la Caja Chica demuestre un funcionamiento inadecuado, el encargado de Financiero-Presupuesto en coordinación con la Dirección Administrativa realizarán un cierre inmediato, para que se sienten las responsabilidades del caso, si éstas fueran necesarias.
