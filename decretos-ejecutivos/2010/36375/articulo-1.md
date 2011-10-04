@@ -13,24 +13,31 @@ Decretan:
 DISMINUCIÓN DE LOS ARANCELES DE IMPORTACIÓN
 APLICADO A ALGUNAS MATERIAS PRIMAS
 Artículo 1º—Modificar los Derechos Arancelarios a la Importación a los incisos que se detallan a continuación:
-CÓDIGO | DESCRIPCIÓN | DAI
+CODIGO | DESCRIPCIÓN | DAI %
 09.06 | CANELA Y FLORES DE CANELERO |
 0906.1 | - Sin triturar ni pulverizar: |
 0906.11.00 | - - Canela (Cinnamomum zeylanicum Blume) | 0
 0906.19.00 | - - Las demás | 0
 0906.20.00 | - Trituradas o pulverizadas | 0
-0907.00.00 | CLAVO (FRUTOS, CLAVILLOS Y PEDUNCULOS) | 0
+0907 | CLAVO (FRUTOS, CLAVILLOS Y PEDUNCULOS) |
+0907.10.00 | - Sin triturar no pulverizar | 0
+0907.20.00 | - Triturado o pulverizado | 0
 09.09 | SEMILLAS DE ANIS, BADIANA, HINOJO, CILANTRO (CULANTRO), COMINO O ALCARAVEA; BAYAS DE ENEBRO |
-0909.10.00 | - Semillas de anís o de badiana | 0
-0909.20.00 | - Semillas de cilantro (culantro) | 0
+0909.2 | - Semillas de cilantro (culantro): |
+0909.21.00 | - - Sin triturar no pulverizar | 0
+0909.22.00 | - - Triturado o pulverizado | 0
+0909.3 | - Semillas de comino: |
+0909.31.00 | - - Sin triturar no pulverizar | 0
+0909.32.00 | - - Triturado o pulverizado | 0
+0909.6 | - Semillas de anís, badiana, alcaravea o hinojo; bayas de enebro: |
+0909.61 | - - Sin triturar ni pulverizar: |
+0909.61.10 | - - - Semillas de anís o de badiana | 0
+0909.62 | - - Trituradas o pulverizadas: |
+0909.62.10 | - - - Semillas de anís o de badiana | 0
 0909.30.00 | - Semillas de comino | 0
-0909.40.00 | - Semillas de alcaravea | 0
-0909.50.00 | - Semillas de hinojo; bayas de enebro | 0
 1005.90.10 | - - Maíz tipo “pop” (Zea mays everta) | 0
 11.02 | HARINA DE CEREALES, EXCEPTO DE TRIGO O DE MORCAJO (TRANQUILLON) |
-1102.10.00 | - Harina de centeno | 0
 1102.90 | - Las demás: |
-1102.90.10 | - - Harina de cebada | 0
 1102.90.90 | - - Otras | 0
 11.03 | GRAÑONES, SEMOLA Y “PELLETS”, DE CEREALES |
 1103.1 | - Grañones y sémola: |
@@ -74,4 +81,4 @@ CÓDIGO | DESCRIPCIÓN | DAI
 2106.90 | - Las demás: |
 2106.90.10 | - - Hidrolizados de proteínas vegetales | 0
 2106.90.9 | - - Otras: |
-2106.90.91 | - - - Preparaciones para la industria alimentaria, del tipo estabilizante-emulsificante | 0
+2106.90.91 | - - - Preparaciones para la industria alimentaria, del tipo estabilizante-emulsificante |
