@@ -1,1 +1,0 @@
-Artículo 38.—De la comunicación. El responsable del control del fondo de una Caja Chica deberá comunicar por escrito al funcionario encargado del manejo de la Caja Chica, de las responsabilidades establecidas por el presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 7º—Póliza de fidelidad. El Encargado del manejo de la Caja Chica deberá suscribir una Póliza de Fidelidad, la cual será cancelada por la Escuela a efecto de garantizar un ejercicio correcto de sus funciones.

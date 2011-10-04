@@ -1,1 +1,0 @@
-Artículo 9º—Adelanto para bienes y servicios Del fondo de Caja Chica se podrán realizar adelantos para la adquisición de bienes y servicios no personales, por un monto máximo establecido por el Director General.

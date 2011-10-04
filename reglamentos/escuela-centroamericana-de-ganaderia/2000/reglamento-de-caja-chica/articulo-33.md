@@ -1,1 +1,0 @@
-Artículo 33.—Comprobante de pago. En caso de que en razón del bien o servicio no existiera factura que justifique el gasto, se confeccionará una boleta denominada "Comprobante de Gasto", que compruebe y detalle el mismo, señalando beneficiario, el bien o servicio, el monto correspondiente, la firma, nombre y el número de cédula del beneficiario.

@@ -1,1 +1,0 @@
-Artículo 41.—Obligación de Informar. Es obligación del responsable del manejo de la Caja Chica, velar porque se cumpla este reglamento y de informar al Jefe de su unidad de cualquier irregularidad que detecte en el manejo de los fondos.

@@ -1,1 +1,0 @@
-Artículo 44.—Obligación de informar. El Jefe de la Unidad es responsable de reportar a la Dirección Financiero-Contable cualquier irregularidad que detecte en el manejo y control de los fondos. El Jefe de la Unidad debe supervisar que esta labor se realice en forma controlada.

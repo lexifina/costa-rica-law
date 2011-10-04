@@ -1,1 +1,0 @@
-Artículo 25.—Manejo de Fondos. El fondo de dinero debe estar bajo la custodia de una sola persona. En caso de ausencia del Encargado del Fondo, el Jefe Inmediato deberá asignar a un funcionario para ejercer la suplencia, previo arqueo de esos fondos, con la firma respectiva de los funcionarios involucrados.

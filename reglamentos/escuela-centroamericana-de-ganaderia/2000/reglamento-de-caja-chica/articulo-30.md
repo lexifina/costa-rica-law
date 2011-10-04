@@ -1,1 +1,0 @@
-Artículo 30.—Aval de presupuesto. Previo a efectuar el adelanto de dinero se requiere la aprobación de Presupuesto, con el cual se ha verificado que existe contenido presupuestario para realizar determinado gasto. Se debe indicar en el "Vale de Caja Chica" el código de la actividad presupuestario y número de cuenta contable que afecta la erogación.
