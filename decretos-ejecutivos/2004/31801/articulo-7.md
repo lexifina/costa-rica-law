@@ -1,1 +1,0 @@
-Artículo 7º—El Servicio Fitosanitario del Estado se encargará disponer y ejecutar las medidas técnicas necesarias para el control de la plaga conocida como Langosta Voladora (Schistocerca Piceifrons, Walker).
