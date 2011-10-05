@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Principio de caja única del Estado
+Los recursos provenientes del contrato de préstamo serán administrados por la Tesorería Nacional mediante una cuenta en el Banco Central, en la cual se efectuarán los desembolsos del préstamo. El prestatario acreditará los recursos a favor del Sinac, como organismo ejecutor del programa, para la realización de las actividades del proyecto aprobado por esta ley; para tal efecto, deberá atender la normativa establecida para el eficiente uso de los recursos, especialmente lo relativo a la aplicación del principio de caja única.
