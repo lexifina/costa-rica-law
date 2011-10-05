@@ -1,0 +1,4 @@
+ARTÍCULO 4.- Asignación de fondos a las municipalidades y concejos de distrito
+A efectos de aplicar lo establecido en el artículo 7 de la Ley N.° 8757 y sus modificaciones, para la distribución de la suma global de doscientos millones de dólares moneda de los Estados Unidos de América (USD$ 200.000.000,00) entre las ochenta y una municipalidades y ocho concejos municipales de distrito deberá considerarse como extensión de la red vial de cada cantón y cantidad de población de cada cantón lo siguiente:
+a) Extensión de la red vial de cada cantón: se utilizará la información del registro vial actualizado por la Dirección de Planificación Sectorial del MOPT, con fecha de corte a mayo de 2010.
+b) Cantidad de población de cada cantón: se utilizará la información certificada de dichos datos por parte del Instituto Nacional de Estadística y Censos (INEC), para el año 2010.
