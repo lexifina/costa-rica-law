@@ -1,0 +1,3 @@
+ARTÍCULO 5.- Procedimientos de adquisición de obras, bienes y servicios, y selección y contratación de consultores
+Los procedimientos de adquisición de obras, bienes y servicios, y de selección y contratación de consultores que se realicen con recursos del financiamiento, indicados en las cláusulas 4.01 y 4.04 del Contrato de Préstamo N.° 1824/OC-CR, prevalecerán sobre los procedimientos y las normas del ordenamiento jurídico nacional.
+Sin embargo, los principios y el régimen de prohibiciones de contratación administrativa establecidos por la legislación ordinaria serán de aplicación obligatoria, al igual que los procedimientos por la vía supletoria.

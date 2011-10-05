@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Exoneraciones
+La formalización de las operaciones necesarias para la ejecución del proyecto, así como la inscripción de los documentos en los registros que correspondan, no estarán sujetas al pago de impuestos, tasas, contribuciones ni derechos. Asimismo, se exonera del pago de impuestos, tasas, sobretasas, contribuciones o derechos la adquisición de los bienes y servicios necesarios para ejecutar el proyecto, siempre que estos queden incorporados a él.
