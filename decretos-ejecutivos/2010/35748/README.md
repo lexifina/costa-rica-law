@@ -14,3 +14,4 @@ Reforma "Plan Regional de Desarrollo Urbano "Gran Area Metropolitana": Delimitac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-19 | la propia norma |
+| 2 | 2011-10-05 | SINALEVI (sin norma nombrada) |
