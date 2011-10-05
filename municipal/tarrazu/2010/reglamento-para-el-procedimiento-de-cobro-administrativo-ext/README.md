@@ -14,3 +14,4 @@ Reglamento para el procedimiento de Cobro Administrativo, Extrajudicial, y Judic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-07 | la propia norma |
+| 2 | 2011-10-05 | Reglamento municipal 75 (2011-10-05) |
