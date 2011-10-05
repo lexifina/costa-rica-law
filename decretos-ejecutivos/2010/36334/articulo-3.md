@@ -1,6 +1,0 @@
-Artículo 3º—Del ingreso a la Orquesta Sinfónica Nacional: Para ingresar como músico ejecutante de la Orquesta Sinfónica Nacional, será necesario que el candidato se presente a una audición por oposición, a partir de la cual, se puede obtener alguna de las siguientes posiciones:
-a. Músico extra: ingresará de acuerdo con la posición que ocupe en el registro de elegibles al final de la audición. La condición de músico extra no supone ningún tipo de vínculo laboral con la OSN.
-b. Músico interino: El músico interino, ostentará esa condición en alguno de los siguientes casos:
-1. Temporalmente, por permiso del propietario.
-2. Temporalmente, para ocupar una plaza vacante; en cuyo caso deberá obtener la mayor calificación (entre todos los concursantes para esa plaza) en la audición, después de la cual ocupará el puesto por un período de prueba de un año.
-Al finalizar este período de prueba, el interino será sometido a la Evaluación del Desempeño que se realiza a todos los músicos de la OSN anualmente, y deberá obtener una calificación no menor de “Excelente” para ocupar el puesto en propiedad a partir de ese momento. Si el músico, obtuviese una calificación menor a la descrita, se volverá a realizar la audición para llenar dicha vacante y se repetirá el proceso.

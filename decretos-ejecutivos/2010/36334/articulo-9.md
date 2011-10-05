@@ -1,2 +1,0 @@
-Artículo 9º—De la inscripción: Los interesados en participar en las audiciones, deberán inscribirse en el Área de Gestión Auxiliar de Recursos Humanos del CNM, en las fechas y horas señaladas en la convocatoria pública. Al momento de formalizar su inscripción, podrán retirar los extractos correspondientes.
-En esta inscripción deberán aportar al Área de Gestión Auxiliar de Recursos Humanos del CNM, los datos necesarios para completar los formularios correspondientes, siendo obligatorio, la indicación de un medio confiable para recibir notificaciones.
