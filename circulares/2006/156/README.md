@@ -13,3 +13,4 @@ Remisión de los testimonios de piezas con la correspondiente carátula y debida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-09 | la propia norma |
+| 2 | 2011-10-05 | Circular 119 (2011-10-05) |
