@@ -1,4 +1,0 @@
-Artículo 35.—Ejecución de la garantía de cumplimiento. De conformidad con el artículo 41 del RLCA, la Dirección de Suministros, a instancia propia o de la unidad gestionante, ordenará la ejecución parcial o total de la garantía de cumplimiento rendida por el adjudicatario, cuando se presenten algunos de los causales que justifiquen tal decisión.
-De previo, se conferirá al contratista una audiencia por cinco (5) días hábiles a fin de que presente los alegatos y pruebas de descargo correspondientes.
-En caso de considerarlo pertinente, la Dirección de Suministros consultará a la Dirección Jurídica o a la unidad gestionante a efectos de valorar los argumentos que motivan la ejecución, los que dispondrán de un plazo máximo, para emitir la recomendación final, de ocho (8) días hábiles. El plazo total que se dispone para resolver será de diez (10) días hábiles.
-(Así reformado el párrafo anterior mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)

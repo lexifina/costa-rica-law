@@ -1,3 +1,0 @@
-Artículo 45.—Recibo de objetos actualizados. El recibo de objetos actualizados se regirá por lo dispuesto en el artículo 197 del RLCA.
-En el caso de adquisición de tecnología, el contratista está obligado a entregar objetos actualizados, entendiéndose por éstos los definidos en el citado artículo. El contratista deberá entregar junto con los bienes una certificación expedida por el fabricante de los equipos que acredite que los bienes son de última tecnología. Dicha certificación debe ser emitida al menos con un mes de antelación a la orden de inicio.
-(Así reformado mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)

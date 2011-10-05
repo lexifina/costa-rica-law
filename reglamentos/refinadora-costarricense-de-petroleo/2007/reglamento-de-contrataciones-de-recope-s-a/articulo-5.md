@@ -1,2 +1,0 @@
-Artículo 5º—Unidad desconcentrada. Para los fines de facilitar la operación de las unidades administrativas y operativas de la Región Atlántica, se autoriza el funcionamiento en esa región de una Unidad de Compras adscrita a la Dirección de Suministros.
-Dicha unidad podrá contratar los bienes, servicios y obras cuyo monto no exceda el límite económico que para tal efecto defina la Gerencia de Administración y Finanzas, dentro de la modalidad de contratación de escasa cuantía.

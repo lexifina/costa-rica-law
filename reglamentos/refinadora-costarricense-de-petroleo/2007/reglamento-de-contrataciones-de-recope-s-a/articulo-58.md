@@ -1,8 +1,0 @@
-Artículo 58.—Gestión en la ejecución contractual. La Administración está obligada a tramitar, en un plazo de treinta (30) días hábiles, cualquier gestión que le formule el contratista en procura de continuar la ejecución contractual, debiendo así indicarlo en su gestión.
-(Así reformado el párrafo anterior mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)
-En estos casos la petición deberá presentarse ante el titular subordinado encargado de la fiscalización de la ejecución contractual, el cual realizará el análisis correspondiente en un plazo de diez (10) días hábiles, acreditando si tal gestión es necesaria para continuar con la ejecución contractual y lo remitirá a la Dirección de Suministros. De considerarlo necesario, la Dirección de Suministros requerirá la colaboración de la Dirección Jurídica, instancia que emitirá el respectivo criterio jurídico dentro de los diez (10) días hábiles siguientes.
-(Así reformado el párrafo anterior mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)
-Una vez que la Dirección de Suministros cuente con los criterios técnico y jurídico correspondientes, dentro de los cinco (5) días hábiles siguientes elaborará el planteamiento respectivo y lo remitirá al nivel de competencia que resolvió la adjudicación. Dicho órgano contará con cinco (5) días hábiles para dictar el acto.
-La Presidencia será competente para resolver aquellas gestiones que se formulen sobre contrataciones cuya adjudicación haya sido dictada por la Junta Directiva.
-El silencio de la Administración se entenderá como aceptación de la petición, cuando se trate de una autorización admisible en Derecho y se haya cumplido con todos los requisitos.
-(Artículo del RLCA relacionado: 193)

@@ -1,3 +1,0 @@
-Artículo 33.—Ejecución de la garantía de participación. La garantía de participación debe ser incondicional y será ejecutada según los supuestos previstos en el artículo 39 del RLCA.
-La Dirección de Suministros ordenará la ejecución mediante acto motivado y dará audiencia previa al interesado por tres (3) días hábiles a fin de que exponga sus alegatos y pruebas de descargo. La Dirección Jurídica dispondrá de un plazo de tres (3) días hábiles para realizar la valoración correspondiente y determinar si procede o no la ejecución, lo cual será notificado por la Dirección de Suministros. El plazo total que se dispone para resolver será de cinco (5) días hábiles.
-(Así reformado el párrafo anterior mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)

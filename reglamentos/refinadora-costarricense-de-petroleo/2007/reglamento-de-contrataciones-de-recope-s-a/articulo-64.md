@@ -1,2 +1,0 @@
-Artículo 64.—Exportación de productos. La Empresa podrá disponer de sus productos, siempre y cuando sus niveles de existencia superen los requerimientos mínimos para la satisfacción de la demanda nacional. En tal caso deberá promoverse un concurso internacional, salvo que concurran situaciones de excepcionabilidad que justifiquen acudir a los procedimientos establecidos en los artículos 51.2. y 51.3. anteriores, lo cual deberá quedar acreditado en el expediente respectivo.
-(Así reformado mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)

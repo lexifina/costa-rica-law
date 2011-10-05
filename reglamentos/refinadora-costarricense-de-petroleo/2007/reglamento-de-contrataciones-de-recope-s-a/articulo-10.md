@@ -1,3 +1,0 @@
-Artículo 10.—Inicio del proceso de contratación. El inicio del proceso de contratación lo constituirá la Solicitud de Pedido, la cual debe satisfacer los requisitos establecidos en este Reglamento y las disposiciones internas, y la Decisión Inicial para Contratar, la que debe ser suscrita por los mismos funcionarios que aprobaron la solicitud de pedido, una vez que ésta haya sido liberada en el SAE .
-(Así reformado el párrafo anterior mediante acuerdo N° 402 tomado en sesión N° 4446 del 5 de mayo de 2010)
-Constatado lo anterior, la Dirección de Suministros procederá de conformidad con lo establecido en el artículo 10 del RLCA.
