@@ -1,0 +1,7 @@
+ARTÍCULO 3.- Contrato de préstamo que financiará el Segundo Programa Red Vial Cantonal (PRVC II)
+El contrato individual de préstamo que financiará el Segundo Programa Red Vial Cantonal (PRVC II) derivado del Convenio de Cooperación para el Financiamiento de Proyectos de Inversión (CR-X1007) no deberá someterse al trámite y la eventual aprobación de la Asamblea Legislativa.
+Las condiciones financieras aplicables a esta segunda operación individual de la red vial cantonal deberán ser las condiciones ofrecidas al sector público con garantía estatal por el BID y en ningún caso al momento de la suscripción podrá celebrarse el contrato si se da alguna de las siguientes situaciones:
+a) La comisión de crédito anual sobre saldos no desembolsado del financiamiento excede el uno coma cinco por ciento (1,5%).
+b) La comisión por inspección y vigilancia por pagar, semestralmente, es superior a lo que resulte de aplicar el dos por ciento (2%) del monto del financiamiento dividido por el número de semestres comprendido en el plazo original de desembolsos.
+c) Los intereses pactados sobre los saldos deudores diarios de préstamo son a una tasa de interés en dólares superior a la tasa libor a seis meses más un margen del cuatro coma cero por ciento (4,0%) o su equivalente en otras monedas diferentes del dólar.
+d) Los plazos para realizar los desembolsos son inferiores a tres años y los plazos para amortización son inferiores a diez años, contados a partir de la suscripción del contrato de préstamo.
