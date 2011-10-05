@@ -14,3 +14,4 @@ Decreta que los Órganos del Gobierno de la República incluidos en este decreto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-22 | la propia norma |
+| 2 | 2011-10-05 | Decreto Ejecutivo 36802 (2011-10-05) |

@@ -367,6 +367,8 @@ Subpartida | monto
 Otros Gastos 1/ |
 Total | 9.518.274.878,90
 NOTAS:1/ Incluye otros bienes, servicios y remuneraciones.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 36802 del 5 de octubre de 2011, se indica sustituir el resumen de la deuda pública, quedando el mismo de la siguiente manera:
+[imagen] )
 TRIBUNAL SUPREMO DE ELECCIONES
 (En colones)
 Subpartida | monto
