@@ -1,0 +1,1 @@
+Artículo 43.—De la Divulgación de la estrategia de cobro: El Coordinador de Hacienda Municipal en coordinación con el Coordinador de Cobros y Patentes definirá las formas y medios de divulgar en los contribuyentes la estrategia de cobro anual a aplicar por parte del Concejo Municipal de Distrito.

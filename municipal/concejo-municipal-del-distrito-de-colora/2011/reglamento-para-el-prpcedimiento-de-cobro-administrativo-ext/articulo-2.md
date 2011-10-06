@@ -1,0 +1,14 @@
+Artículo 2°—Definiciones preliminares: Para efectos de este Reglamento se entenderá por:
+a) Reglamento: El Reglamento para el procedimiento de cobro Administrativo, extrajudicial y judicial del Concejo Municipal del Distrito de Colorado.
+b) Concejo Municipal de Distrito: Concejo Municipal de Distrito de Colorado.
+c) Administración Tributaria: Departamento de Hacienda Municipal.
+d) Unidad de Cobros: corresponde a la unidad del departamento de hacienda municipal encargada de la función de recaudación del Concejo Municipal de Distrito de Colorado.
+e) Obligaciones vencidas: Las obligaciones dinerarias vencidas, o bien, créditos exigibles de plazo vencido a favor del Concejo Municipal de Distrito, por concepto de tributos municipales cánones y arrendamientos.
+f) Sujeto Pasivo: es la persona física o jurídica que se encuentra atrasada en el pago de sus obligaciones con el Concejo Municipal de Distrito, derivados de impuestos, tasas, contribuciones especiales y cualquier otro tipo de adeudo Municipal.
+g) Contribuyente: es la persona física o jurídica obligada a pagar tributos al Concejo Municipal de Distrito, derivados de impuestos, tasas, contribuciones especiales y cualquier otro tipo de adeudo Municipal.
+h) Abogados Externos: Los Profesionales en Derecho debidamente acreditado ante el colegio profesional respectivo, que podrán ser personas físicas y jurídicas que presten sus servicios profesionales a la Municipalidad, bajo la normativa de éste Reglamento efectuando la gestión de cobro extrajudicial y judicial respectiva para la recuperación de las obligaciones vencidas de la Institución.
+i) Cobro administrativo: todas las acciones que se realizan administrativamente por parte de la hacienda municipal, con el objetivo de hacer cumplir los calendarios de pago que garanticen la cancelación oportuna de las cuentas de los sujetos pasivos.
+j) Cobro extrajudicial: Las acciones realizadas extrajudicialmente por los abogados externos, para la cancelación de las obligaciones vencidas trasladadas a estos para su respectivo cobro, previo a iniciar la gestión judicial correspondiente.
+k) Cobro judicial: Se entiende por cobro judicial el desarrollo y establecimiento de controles tendientes al logro de la máxima recuperación de la cartera que ejecuten los abogados contratados para tal fin por el Concejo Municipal de Distrito; en aras de obtener la recuperación de las obligaciones vencidas, una vez que se agoten los trámites de cobro administrativo y extrajudicial.
+f) Estrategia de cobro: es la acción por medio de la cual se establece el cómo realizar las gestiones de cobro, para la recuperación de obligaciones tributarias y las deudas en un periodo determinado.
+g) Mora: se define como el estado tardío en que incurre el sujeto pasivo en cualquier forma de pago convenida. El cómputo de la mora se da a partir del día natural siguiente a la fecha de pago pactada.

@@ -1,0 +1,1 @@
+Artículo 29.—Ubicación y responsable de custodia del Expediente: los expedientes estarán ubicados en la oficina del coordinador de cobros y patentes es responsabilidad de ésta persona la custodia de los mismos.

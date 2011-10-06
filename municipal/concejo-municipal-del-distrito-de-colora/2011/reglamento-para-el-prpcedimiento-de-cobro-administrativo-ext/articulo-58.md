@@ -1,0 +1,1 @@
+Artículo 58.—De la contratación: Los abogados externos que por alguna razón personal o profesional, quieran dejar de servir a la Municipalidad, deberán de comunicar esa decisión expresamente y por escrito a la Intendencia Municipal, con treinta días naturales de antelación, nota de la cual la Intendencia remitirá una copia a la Coordinación de Hacienda Municipal.

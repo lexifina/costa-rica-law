@@ -1,0 +1,17 @@
+Artículo 31.—Condiciones para otorgar arreglos de pago: El arreglo de pago se otorgará por parte de la Unidad de Cobro, para lo cual ésta valorará las siguientes condiciones del sujeto pasivo:
+a. Motivos de la morosidad: El contribuyente debe indicar mediante nota escrita ante la Unidad de Cobro, las razones que lo impiden cancelar, en forma total e inmediata, las obligaciones vencidas, además, debe adjuntar la documentación solicitada por la Unidad de Cobros.
+b. Monto Mínimo adeudado. Únicamente procederá arreglo de pago cuando las obligaciones vencidas sean por un monto igual o mayor a la décima parte del salario base del oficinista uno al momento de efectuarse el arreglo de pago respectivo, de conformidad con la Ley 7337, según lo establece La Ley de Presupuesto Ordinario de la República, cuya actualización en el monto será comunicado por la Corte Suprema de Justicia en el Diario Oficial La Gaceta.
+c. De proceder el arreglo de pago, el sujeto pasivo cancelará en forma inmediata el equivalente al 25% de su deuda con la municipalidad y ambas partes pactarán el monto a cancelar mensualmente, y el plazo para la cancelación total de la obligación vencida, el cual no podrá exceder de seis meses; salvo los casos en que el estudio socioeconómico demuestre condiciones tales, que imposibiliten en el plazo señalado realizar el pago de lo adeudado. Toda arreglo de pago que se formalice y no cancele el 25% de la deuda al momento de formalizar el arreglo no tendrá validez.
+d. Resolución del arreglo de pago: la Unidad de Cobro procederá a dictar una Resolución de Arreglo de Pago, por medio de la cual podrá conceder un plazo mayor, siempre que éste no exceda de doce meses. Esta Resolución Arreglo de Pago, debe ser aprobada por la Coordinación de Hacienda Municipal.
+e. Formalización del arreglo de pago: se realizará ante la Unidad de Cobro, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que confeccionará dicha Unidad para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que esta Unidad exija para tal gestión. El sujeto pasivo deberá presentar la siguiente documentación:
+o Completar la información del formulario “Solicitud de Arreglo de Pago” que le entrega la Unidad de Cobros.
+o Presentar copia de la cédula física o de la cédula jurídica cuando se trate de sociedades; en este último caso, deberán presentar certificación de la personería jurídica, con no más de treinta días de expedida y la comprobación de que se encuentra facultada la persona que se presenta, para realizar el acto.
+o Copia del estudio de bienes por parte del Registro.
+o Certificación de que se encuentra al día en sus obligaciones con la Caja Costarricense del Seguro Social.
+Además de las anteriores el sujeto pasivo deberá cumplir con las siguientes condiciones:
+• Solicitar arreglo de pago, sobre una obligación vencida.
+• No tener en vigencia un arreglo de pago sobre la misma cuenta.
+• No haber incumplido por más de dos oportunidades con arreglos de pago anteriores.
+• No enfrentar al momento de hacer la solicitud para arreglo de pago, un proceso judicial por parte del Concejo Municipal de Distrito o contra éste.
+• Pagar los gastos administrativos en que se haya incurrido para gestionar el cobro, y en caso de existir, los honorarios del abogado.
+• Dejar en poder de la Municipalidad, todos los documentos que sean presentados para formalizar arreglos de pago, todo conforme lo que ésta solicite por medio de la Unidad de Cobros.

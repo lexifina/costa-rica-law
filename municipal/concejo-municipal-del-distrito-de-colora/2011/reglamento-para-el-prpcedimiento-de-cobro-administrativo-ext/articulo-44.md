@@ -1,0 +1,1 @@
+Artículo 44.—Seguimiento al Cumplimiento de la Estrategia: Es responsabilidad del Coordinador de Hacienda Municipal, dar seguimiento al cumplimiento de la estrategia de cobro por parte de los funcionarios e informar de sus resultados a la Intendencia.
