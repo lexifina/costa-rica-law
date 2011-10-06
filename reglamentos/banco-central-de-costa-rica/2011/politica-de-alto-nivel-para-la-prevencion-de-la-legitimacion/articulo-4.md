@@ -1,0 +1,2 @@
+4. Alcance
+Esta política es aplicable a todo el personal de la Institución (Junta Directiva, Autoridades, Gerencia, Direcciones, Jefaturas, empleados permanentes, empleados temporales) y para terceros relacionados (participantes de los servicios financieros que presta el Banco, consultores externos, clientes, proveedores, entes supervisores y representantes de cualquier entidad que tenga relación con la organización y sus empleados).
