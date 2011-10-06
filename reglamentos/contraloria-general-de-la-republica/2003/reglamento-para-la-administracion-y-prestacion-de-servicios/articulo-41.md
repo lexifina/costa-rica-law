@@ -1,1 +1,0 @@
-Artículo 41.—La jefatura de la Unidad de Servicios Generales será responsable de velar por la aplicación del presente reglamento. En caso de requerirse modificaciones, deberá hacer las observaciones y propuestas a las instancias superiores correspondientes.

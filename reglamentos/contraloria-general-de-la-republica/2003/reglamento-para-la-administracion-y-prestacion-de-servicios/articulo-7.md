@@ -1,1 +1,0 @@
-Artículo 7º—Los vehículos de uso administrativo son todos aquellos destinados a prestar servicios regulares de transporte a las diferentes unidades administrativas de la Contraloría, en el desarrollo normal de sus funciones y actividades.
