@@ -1,0 +1,4 @@
+Artículo 2º—Para los efectos del presente Reglamento, se entenderá por:
+Actividades y eventos Oficiales: Acto determinado en el que el Alcalde Municipal y o el Presidente Municipal determine en cumplimiento de las actividades de interés municipal o de ejecución sustantiva el que aparece como anfitriones o invitados.
+Gastos de Representación: Constituyen una retribución que se otorga a determinados funcionarios de nivel jerárquico superior o cualquier otro previamente autorizado para que, con ocasión al ejercicio del cargo, brinden atención oficial a personas representantes de instituciones ajenas a la Municipalidad del Cantón Central de Limón sujetas a la liquidación con la presentación de las facturas correspondientes.
+Liquidación: Acto por el cual el funcionario solicita se le cancelen determinadas sumas por concepto s de gastos de atención en actividades o eventos oficiales.

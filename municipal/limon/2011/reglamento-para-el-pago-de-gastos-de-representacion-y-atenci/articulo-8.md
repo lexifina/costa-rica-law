@@ -1,0 +1,7 @@
+Artículo 8º—Procedimiento de liquidación y reconocimiento del gasto:
+a) La liquidación de los gastos de representación y de atención dentro del territorio nacional, estará sujeta en cada caso a la presentación de las facturas originales, timbradas o autorizadas mediante oficio de Tributación Directa y formalmente emitidas por la casa comercial, sin borrones ni tachaduras. Al emitirse la factura, el ejecutante del gasto deberá verificar que se indique: fecha, nombre de la casa comercial que la emite, estar emitida a nombre de la Municipalidad del Cantón Central de Limón, concepto y monto total.
+b) Para la liquidación de gastos, las facturas deberán ser acompañadas de la boleta que para tal fin se haya confeccionado. Para la solicitud de reembolsos se debe indicar los siguientes aspectos:
+1. Motivo de la atención brindada.
+2. Nombre y firma del ejecutante del gasto (Alcalde Municipal o su Delegado u otro funcionario autorizado por el Concejo Municipal).
+c) La liquidación del gasto de presentación o de atención debe presentarse al cobro a más tardar dentro de los cinco días hábiles siguientes a la realización del gasto, cuando fuera en el territorio nacional. En el caso de gasto de representación fuera del territorio nacional, la liquidación deberá efectuarse en ese mismo término, contabilizado desde el momento en que el funcionario ingrese al territorio nacional.
+d) Los informes de liquidación de gastos antes descritos deberán quedar a la disposición d la Auditoría Interna Municipal.

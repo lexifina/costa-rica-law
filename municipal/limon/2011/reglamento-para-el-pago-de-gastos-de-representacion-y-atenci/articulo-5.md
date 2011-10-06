@@ -1,0 +1,2 @@
+Artículo 5º—Disponibilidad presupuestaria: previo a la solicitud de gastos de representación y atención, se debe contar con la verificación de la existencia de disponibilidad de recursos presupuestarios suficientes para tal fin y estos autorizados en la tesorería municipal.
+Los gastos por atención según el presente reglamento, podrán ser tramitados según el monto a través del sistema de liquidación de viáticos a caja chica, de conformidad con su Reglamento.
