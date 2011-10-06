@@ -20,3 +20,4 @@ Reglamento sobre Registro, Uso y Control de Plaguicidas Sintéticos Formulados, 
 | 5 | 2009-04-27 | Decreto Ejecutivo 35284 (2009-04-27) |
 | 6 | 2010-02-25 | Decreto Ejecutivo 35828 (2010-02-25) |
 | 7 | 2010-06-07 | Decreto Ejecutivo 36190 (2010-06-07) |
+| 8 | 2011-10-06 | Decreto Ejecutivo 37136 (2011-10-06) |

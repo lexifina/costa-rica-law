@@ -1394,32 +1394,36 @@ a) Solicitud: El administrado deberá presentar la solicitud ante la unidad del 
 b) Publicación de Edicto: Únicamente aplica para la causal c) de modificaciones de registro, en caso que no se aporte el certificado de marca.
 c) Resolución Final: La autoridad competente, en un plazo no mayor a cinco días hábiles procederá al dictado de la resolución final, acogiendo o rechazando la solicitud de modificación registral.
 d) Recursos: Lo resuelto por la unidad del SFE que administra el registro, tendrá los recursos de apelación, el cual deberá ser interpuesto, ante el Director del SFE, en un plazo no mayor de tres días hábiles, contados a partir de la notificación de la resolución recurrida, debiendo expresar los motivos de disconformidad y las pruebas en las que se sustenta. La resolución que dicte el Director del SFE, debe ser dictada en un plazo de cinco días hábiles y tendrá recurso de revisión ante el Ministro de Agricultura y Ganadería, el cual deberá ser interpuesto en un plazo de 24 horas, a partir de la notificación de la resolución que dicte el Director del SFE. El plazo para resolver la revisión será de tres días y lo resuelto por el Ministro agotará la vía administrativa.
-13 CANCELACIONES DE REGISTROS.
-13.1 CAUSALES DE CANCELACIÓN DE REGISTRO.
-El Ministerio cancelará, de oficio o a solicitud de parte, el registro de un plaguicida sintético formulado, ingrediente activo grado técnico, coadyuvante y sustancias afines. Las causales que originarán la cancelación del registro serán las siguientes:
-a) Si el resultado de los análisis de identidad no concuerdan con lo declarado en la solicitud de registro.
-b) Cuando no se cumpla con las normas de calidad establecidas para dicho producto.
-c) Cuando los ensayos y pruebas realizadas demuestren que el producto es ineficaz para los fines que se indican en la solicitud de registro.
-d) Cuando el registro haya sido otorgado con vicios de nulidad absoluta, evidente y manifiesta y no haya cumplido con requisitos que se señalan en este Reglamento.
-e) Cuando los Ministerios de Salud o Ambiente y Energía demuestren, que el producto aún, utilizado bajo las recomendaciones de uso representa un riesgo inaceptable
-para la salud y el ambiente.
-f) Cuando el titular no haya solicitado el re-registro.
-g) Cuando el titular no haya declarado una modificación de la información solicitada para el re-registro.
-h) Cuando lo solicite su titular.
-13.2 GENERALIDADES DE LA CANCELACIÓN DEL REGISTRO
-a) El registro de un formulado, ingrediente activo grado técnico, coadyuvantes y sustancias afines, y las autorizaciones que de él se deriven, pueden ser revocadas, previo cumplimiento y garantía del debido proceso y derecho a la defensa del afectado, sin responsabilidad del Estado, si se determina, a través de un procedimiento administrativo, que el formulado, ingrediente activo grado técnico, coadyuvantes y sustancias afines, representa un riesgo inaceptable para la salud y el ambiente, aun utilizado bajo las recomendaciones de uso, basado en estudios científicos como prueba o que el registro haya sido otorgado estando viciado de nulidad absoluta evidente y manifiesta, por no cumplir con los requisitos establecidos en este reglamento.
-b) La Unidad del SFE que administra el registro, será el órgano que conozca, instruya y resuelva, en primera instancia, los procedimientos de cancelación de registros otorgados.
-13.3 PROCEDIMIENTO PARA LA CANCELACIÓN DEL REGISTRO.
-El procedimiento y plazos, para las cancelaciones de registros es el siguiente:
-a) Apertura del Procedimiento: El procedimiento puede ser iniciado de oficio por parte de la unidad del SFE que administra el registro o a solicitud de parte.
-b) En el primer caso, la unidad que administra el registro dictará una resolución formal que indique: hora y fecha de la resolución, fundamento legal, autoridad que dicta la resolución, lugar, el número de registro a cancelar, el nombre y calidades del titular del registro, la causal o causales para la cancelación y ordenará la publicación de un edicto, con la información indicada. En la misma resolución ordenará la apertura del procedimiento de cancelación y será notificada formalmente al titular del registro. El edicto, establecerá un plazo de ocho días, para que cualquier interesado pueda coadyuvar u oponerse a la cancelación.
-c) En caso que la solicitud de cancelación provenga de un tercero, deberá indicar lo siguiente: Nombre y calidades del petente, lugar donde recibir notificaciones, nombre del producto, el número de registro a cancelar, el nombre y calidades del titular del registro, la causal o causales para la cancelación y aportará las pruebas en las que sustenta su solicitud.
-Recibida la solicitud, la unidad del SFE que administra el registro, mediante resolución razonada y fundamentada, determinará si procede o no la apertura de un procedimiento de la cancelación de registro. La resolución que deniegue la apertura del procedimiento tendrá recurso de apelación ante el Director Ejecutivo del SFE. En caso que la unidad del SFE que administra el registro, determine que existe mérito para la apertura de un procedimiento dictará la resolución que se indica en el inciso a) de este artículo.
-d) Coadyuvancias y Oposiciones: En un plazo no mayor a cinco días hábiles, contados a partir de la fecha de la expiración del plazo para coadyuvar u oponerse, el órgano director del procedimiento dictará resolución donde indique cuales coadyuvancias y oposiciones se acogen y cuales se rechazan, indicando las razones y fundamentos para cada caso.
-e) Descargo: Cumplido lo anterior el órgano director del procedimiento otorgará un plazo de 30 días hábiles al titular del registro para que presente su descargo y aporte y ofrezca la prueba que estime pertinente para la defensa de sus intereses.
-f) Audiencia: Dentro de los cinco días hábiles, posteriores al vencimiento del plazo para el descargo, el órgano director del procedimiento, mediante resolución señalará hora y fecha para la audiencia oral y privada, en la cual seevacuará la prueba ofrecida y las partes se referirán a sus alegatos y pruebas del expediente.
-g) Resolución Final: En un plazo no mayor a quince días hábiles, el órgano director del procedimiento, procederá al dictado de la resolución final, acogiendo o rechazando la solicitud cancelación del registro. Dicha resolución será notificada al petente, a quienes se hubiesen opuesto y en todos los casos al MINSA y al MINAE.
-h) Recursos: Lo resuelto por el órgano director, tendrá los recursos de apelación, el cual deberá ser interpuesto, ante el Director del SFE, en un plazo no mayor de tres días hábiles, contados a partir de la notificación de la resolución recurrida, debiendo expresar los motivos de disconformidad y las pruebas en las que se sustenta. La resolución que dicte el Director del SFE, debe ser dictada en un plazo de cincodías hábiles y tendrá recurso de revisión ante el Ministro de Agricultura y Ganadería, el cual deberá ser interpuesto en un plazo de 24 horas, a partir de la notificación de la resolución que dicte el Director del SFE. El plazo para resolver la revisión será de tres días y lo resuelto por el Ministro agotará la vía administrativa.
+para que se lea de la siguiente forma:
+13. Suspensiones y Cancelaciones de registros
+(Así reformado el punto 13 anterior por el artículo 1° del decreto ejecutivo N° 37136 del 6 de octubre de 2011)
+(*) 13.1 Suspensión de registro
+13.1.1 Generalidades de la suspensión del registro
+El registro de un plaguicida sintético formulado, ingrediente activo grado técnico, sustancias afines y vehículos físicos que los contengan, y las autorizaciones que de él se deriven, pueden ser suspendidos a través del procedimiento administrativo establecido en la Ley General de la Administración Pública, si se determina alguna de las causales de suspensión del registro indicadas en el numeral 13.1.2.
+13.1.2 El registro de un ingrediente activo grado técnico, plaguicida sintético formulado, sustancia afín y vehículos físicos que los contengan, de uso agrícola serán objeto de suspensión cuando:
+a) El titular del registro o el representante legal, comercialice el producto con una etiqueta, no autorizada por la AC.
+b) La autoridad judicial lo disponga.
+c) El registro de la persona física o jurídica se encuentre vencido.
+d) El titular del registro no proporcione en el plazo otorgado por la AC, la información requerida, de conformidad con la normativa vigente en la materia, según el numeral 18.1.2 de este reglamento.
+e) Cuando en un segundo muestreo de control de calidad el producto no cumpla con las normas de calidad vigentes.
+f) Cuando el titular del registro de un ingrediente activo grado técnico como tal o como componente de un plaguicida sintético formulado, no presente en el plazo establecido la reválida de su registro, de conformidad con lo indicado en el artículo 14 de la Ley sobre el Trámite de las Solicitudes de Registro de Agroquímicos N° 8702, del 14 de enero de 2009 y publicada en La Gaceta N° 19 del 28 de enero de 2009.
+NOTA: Suspendido el registro de un ingrediente activo grado técnico, plaguicida sintético formulado, sustancia afín y vehículos físicos que los contengan, de uso agrícola, el producto no se podrá comercializar en el país. Tampoco se podrá formular, reformular, importar, exportar, envasar, reenvasar o reempacar los productos, a excepción que éstas acciones sean necesarias para corregir la causal por la cual se suspendió el registro.
+13.1.3 La suspensión se mantendrá hasta tanto se corrija el motivo de la suspensión. No obstante, si tal corrección no se ha realizado dentro de un plazo de tres (3) meses, a partir de su notificación se procederá a la cancelación del registro de conformidad con el numeral 13.2.2g), a excepción de aquellas suspensiones ordenadas por la instancia judicial.
+(*)(Así reformado el punto 13.1 anterior por el artículo 1° del decreto ejecutivo N° 37136 del 6 de octubre de 2011)
+(*)13.2. Cancelaciones de Registros.
+13.2.1 Generalidades de la cancelación del registro
+El registro de un plaguicida sintético formulado, ingrediente activo grado técnico, sustancias afines y vehículos físicos que los contengan, y las autorizaciones que de él se deriven, pueden ser canceladas, si se determina alguna de las causales de cancelación del registro indicadas en el numeral 13.2.2, a través del procedimiento administrativo establecido en la Ley General de la Administración Pública.
+13.2.2 Causales de cancelación de registro.
+La AC cancelará, de oficio o a solicitud de parte del administrado, el registro de plaguicidas sintéticos formulados, ingrediente activo grado técnico, sustancia afín y vehículos físicos que los contengan, cuando:
+a) En un tercer análisis del control de calidad, el resultado de las pruebas no concuerden con lo declarado en la solicitud de registro, en aquellos casos en que previamente el producto ha sido suspendido de acuerdo a lo establecido en el numeral 13.1.2e).
+b) Los ensayos y pruebas realizadas demuestren que el producto es ineficaz para todos los fines que se indican en la solicitud de registro.
+c) El registro haya sido otorgado con vicios de nulidad absoluta, evidente y manifiesta y no haya cumplido con requisitos que se señalan en este Reglamento.
+d) Los Ministerios determinen que el producto aún utilizado bajo las recomendaciones de uso, representa un riesgo inaceptable para la salud, el ambiente y agricultura.
+e) Lo solicite su titular.
+f) Las solicitudes de renovación de plaguicidas sintéticos formulados, ingrediente activo grado técnico, sustancias afines y vehículos físicos que los contengan, de uso agrícola, no sean aprobadas, así mismo, también la no presentación de la solicitud de renovación.
+g) Las causas que dieron motivo a la suspensión del registro no se subsanen en el plazo establecido en el numeral 13.1.3 de este reglamento.
+(*)(Así reformado el punto 13.2 anterior por el artículo 1° del decreto ejecutivo N° 37136 del 6 de octubre de 2011)
+13.3 (Derogado por el artículo 3° del decreto ejecutivo N° 37136 del 6 de octubre de 2011)
 14. DE LA RECTIFICACIÓN DE ERRORES REGISTRALES
 14.1 TIPOS DE ERRORES REGISTRALES
 a) Los errores contenidos en los asientos del registro pueden ser de hecho o de derecho.
