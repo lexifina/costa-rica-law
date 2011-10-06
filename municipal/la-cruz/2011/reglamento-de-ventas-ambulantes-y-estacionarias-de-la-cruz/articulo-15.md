@@ -1,0 +1,1 @@
+Artículo 15.—El Instituto Costarricense de Electricidad y el Instituto Costarricense de Acueductos y Alcantarillados, no podrán suministrarle fuerza eléctrica ni agua a ningún puesto estacionario, salvo solicitud expresa municipal y para actividades normadas por el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—La ubicación de los puestos estacionarios será determinada por la Municipalidad, atendiendo al ornato y condiciones del lugar, lo mismo que el máximo de puestos de este tipo en el cantón, que serán distribuidos de tal manera que no exceda de un número de 4 puestos por cuadra.

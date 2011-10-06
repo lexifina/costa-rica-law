@@ -1,0 +1,1 @@
+Artículo 7º—Se concederá una licencia para este tipo de actividad por persona física, la cual deberá portarla mientras ejerce la actividad, ya que es de uso exclusivo del patentado. Las personas jurídicas no podrán obtener este tipo de licencia.

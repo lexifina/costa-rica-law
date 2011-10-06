@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad se reserva su derecho de reubicar o cancelar los puestos cuando las condiciones de tránsito vehicular o peatonal así lo ameriten; o bien, por la construcción de obras nuevas o cualquier otra causa que lo justifique, a juicio de la Municipalidad. Lo anterior debidamente apegado al debido proceso según la Ley General de la Administración Pública.

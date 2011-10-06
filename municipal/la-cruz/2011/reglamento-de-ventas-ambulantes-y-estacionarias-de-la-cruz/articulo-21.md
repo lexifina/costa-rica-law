@@ -1,0 +1,1 @@
+Artículo 21.—Las licencias tendrán validez por un año. En caso de caducidad o renuncia por cualquier motivo, la Municipalidad procederá a la adjudicación de acuerdo al orden consecutivo de presentación de las solicitudes pendientes de licencia.

@@ -1,0 +1,1 @@
+Artículo 20.—La solicitud de cambio de línea comercial será tramitada mediante escrito en papel corriente, adjuntando un timbre municipal de cien colones, en caso de que no sea presentada por el petente deberá autenticarse su firma.

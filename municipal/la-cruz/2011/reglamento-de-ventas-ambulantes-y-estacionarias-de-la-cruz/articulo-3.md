@@ -1,0 +1,1 @@
+Artículo 3º—La licencia deberá ser solicitada por escrito a la Unidad de Patentes municipal adjuntando los timbres correspondientes y cumpliendo con los requisitos que para tal efecto estipula el artículo 4º de este Reglamento. En la solicitud deberá indicarse el tipo de actividad lucrativa que se ofrecerá.
