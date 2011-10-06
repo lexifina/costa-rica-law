@@ -1,1 +1,0 @@
-Artículo 10.—La Oficina de Cobros deberá rendir informes mensuales al Ejecutivo Distrital, sobre las gestiones de cobro de las cuentas morosas y el estado en que se encuentren las acciones de cada gestión, a esa fecha.

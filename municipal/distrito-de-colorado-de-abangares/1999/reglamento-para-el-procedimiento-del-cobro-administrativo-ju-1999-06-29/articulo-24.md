@@ -1,1 +1,0 @@
-Artículo 24.—Cuando un abogado deje de prestar los servidos al Concejo Municipal de Distrito, por cualquier motivo, excepto por incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los honorarios de acuerdo al estado en que se encuentre el proceso.

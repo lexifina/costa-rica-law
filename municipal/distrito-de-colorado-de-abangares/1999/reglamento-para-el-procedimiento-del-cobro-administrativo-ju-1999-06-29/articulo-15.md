@@ -1,1 +1,0 @@
-Artículo 15.—Los abogados nombrados no podrán aceptar casos de litigio en contra del Concejo Municipal. Y el no cumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado del Concejo Municipal de Distrito.

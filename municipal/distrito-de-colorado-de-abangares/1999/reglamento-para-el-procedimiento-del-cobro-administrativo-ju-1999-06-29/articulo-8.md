@@ -1,1 +1,0 @@
-Artículo 8°—Asoladas las sostienes administrativas, la oficina encargada entregará a los Abogados para el trámite de cobro judicial, la documentación necesaria, para que inicie los tramites judiciales.

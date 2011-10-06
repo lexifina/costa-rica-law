@@ -1,1 +1,0 @@
-Artículo 14.—Queda prohibido a los abogados hacer cualquier tipo de arreglo con el deudor, recibir pagos o abonos a la deuda. Los honorarios profesionales se los cancelará la respectiva oficina de cobros del Concejo Municipal.
