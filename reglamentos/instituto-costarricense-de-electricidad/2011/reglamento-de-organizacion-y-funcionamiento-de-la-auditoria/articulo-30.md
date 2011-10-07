@@ -1,0 +1,1 @@
+Artículo 30.—Deberes de la Auditoría Interna: El Auditor General, el Subauditor Interno y los demás funcionarios de la Auditoria Interna cumplirán con los deberes establecidos en el artículo 32 de la Ley General de Control Interno.
