@@ -1,0 +1,1 @@
+Artículo 16.—Derógase el Decreto Ejecutivo Nº 34356-C del 29 de febrero del 2008, “Manual para la Atención de Denuncias Planteadas ante el Ministerio de Cultura y Juventud”, publicado en La Gaceta Nº 43 del 29 de febrero del 2009.
