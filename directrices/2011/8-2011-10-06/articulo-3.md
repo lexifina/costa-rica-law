@@ -1,0 +1,1 @@
+Artículo 3º—Publíquese en el Diario Oficial La Gaceta, e igualmente en la página Web del Servicio Nacional de Salud Animal.—Dada en Barreal de Ulloa, a los seis días del mes de octubre del año dos mil once.
