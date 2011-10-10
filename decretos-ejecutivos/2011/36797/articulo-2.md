@@ -1,0 +1,1 @@
+Artículo 2º—Autorizar a la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE) a abastecer el combustible requerido por los vehículos de servicio en tierra destinados a operaciones aeronáuticas en los aeropuertos internacionales de nuestro país

@@ -1,0 +1,20 @@
+Nº 36797-MOPT-MINAET
+LA PRESIDENTA DE LA REPÚBLICA
+EL MINISTRO DEL AMBIENTE, ENERGIA Y
+TELECOMUNICACIONES Y EL MINISTRO
+DE OBRAS PÚBLICAS Y TRANSPORTES
+En uso de las facultades conferidas en los incisos 3) y 18) de los artículos 140 y 146 de la Constitución Política, Ley N° 3155 del 5 de agosto de 1963 “Ley Orgánica del Ministerio de Obras Públicas y Transportes”, reformada por Ley N° 4786 del 5 de julio de 1971, Ley N° 7554 “Ley Orgánica del Ambiente” del 4 de octubre de 1995, Ley Nº 7593 del 9 de agosto de 1996 “Ley de la Autoridad Reguladora de los Servicios Públicos”, la Ley N° 5150 “Ley General de Aviación Civil” del 14 de mayo de 1973 y sus reformas y Ley Nº 6227 “Ley General de la Administración Pública” del 2 de mayo de 1978.
+Considerando:
+I.—Que el abastecimiento de la demanda nacional de combustibles, asfaltos y naftas es responsabilidad de la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE), en tanto la totalidad de su capital accionario pertenezca al Estado.
+II.—Que el abastecimiento de combustibles constituye un servicio público conforme al Artículo 5 de la Ley 7593 de la Autoridad Reguladora de los Servicios Públicos, el que debe prestarse en condiciones de calidad, confiabilidad, oportunidad y eficiencia.
+III.—Que conforme a los convenios internacionales en materia de aviación civil suscritos por Costa Rica, es obligación del Estado garantizar el suministro de combustibles en los aeropuertos internacionales, a fin de asegurar la operación de las aeronaves conforme a las disposiciones de seguridad establecidas.
+IV.—Que en el Aeropuerto Internacional Tobías Bolaños Palma se hace necesario disponer de infraestructura y condiciones de servicio de abastecimiento de combustibles a las aeronaves a fin satisfacerlas en debida forma, con las que a la fecha cuenta RECOPE.
+V.—Que la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE) en la actualidad abastece los combustibles de aviación requeridos por las aeronaves en los Aeropuertos Internacionales Juan Santamaría; Daniel Oduber Quirós y Limón.
+VI.—Que por razones de seguridad nacional y seguridad aeroportuaria, los vehículos de servicio en tierra que se requieren para las operaciones propias de un aeropuerto internacional, no deben salir del área operativa del recinto aeroportuario para reabastecerse de combustible.
+VII.—Que a la fecha en los aeropuertos internacionales de nuestro país no hay abastecimiento de combustible a los vehículos de servicio en tierra indicados, situación que es obligación del Estado corregir.
+VIII.—Que el Consejo Técnico de Aviación Civil (CETAC) ha solicitado a la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE) asumir adicionalmente la distribución de combustible de aviación en el Aeropuerto Internacional Tobías Bolaños Palma, y la distribución de gasolina y diesel requerido por los vehículos de servicio en tierra en todos los aeropuertos internacionales.
+IX.—Que para que la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE) pueda brindar los servicios solicitados por el CETAC, se requiere autorizarla a vender el Jet Fuel y Av- Gas en las cantidades requeridas por el tipo de aeronaves que operan en Aeropuerto Internacional Tobías Bolaños Palma, y la gasolina y el diesel en las cantidades requeridas por los vehículos de servicio en tierra que operan en todos aeropuertos internacionales, pues por la capacidad de sus tanques el volumen requerido es inferior a las cantidades establecidas como mínimo de venta a dicha empresa pública en el Decreto Ejecutivo 31257-MINAE del 28 de mayo de 2003, publicado en el Alcance 38 a La Gaceta N° 134 del 14 de julio del 2003. Por tanto,
+DECRETAN:
+AUTORIZACIÓN PARA EXPENDER COMBUSTIBLE EN EL
+AEROPUERTO INTERNACIONAL TOBÍAS BOLAÑOS
+Artículo 1º—Autorizar a la Refinadora Costarricense de Petróleo Sociedad Anónima (RECOPE) a abastecer el combustible de aviación en las cantidades que requieran las aeronaves que operen en el Aeropuerto Internacional Tobías Bolaños Palma.
