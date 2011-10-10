@@ -1,0 +1,1 @@
+Artículo 2º—El objetivo de largo plazo para el desarrollo científico y tecnológico será crear las condiciones para cumplir con una política en esa materia de construcción y conservación vial de las vías públicas nacionales.

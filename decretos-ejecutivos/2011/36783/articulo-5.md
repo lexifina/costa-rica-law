@@ -1,0 +1,1 @@
+Artículo 5º—Todas las entidades relacionadas con la ciencia y la tecnología, en el campo de la construcción y conservación vial así como los órganos públicos estatales, podrán colaborar en el cumplimiento de este reglamento, de conformidad con su naturaleza y competencia.

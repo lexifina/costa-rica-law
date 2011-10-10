@@ -1,0 +1,1 @@
+Artículo 13.—Lo que no se encuentre regulado en el presente Reglamento se aplicaran las regulaciones establecidas en la Ley de Promoción del Desarrollo Científico y Tecnológico, Ley Nº 7169 del 26 de junio de 1990.

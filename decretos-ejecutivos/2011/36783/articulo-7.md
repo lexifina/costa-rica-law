@@ -1,0 +1,1 @@
+Artículo 7º—El CONAVI apoyará a los organismos competentes por la materia, en la definición de políticas tendentes a proteger y garantizar la propiedad intelectual colectiva de los conocimientos, tecnologías e innovaciones en el campo de construcción y conservación de la red vial nacional.
