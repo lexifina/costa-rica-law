@@ -1,0 +1,5 @@
+Artículo 2°—Políticas del Ministerio de Salud, El Ministerio de Salud, de conformidad con la Ley General de Salud, deberá realizar actividades para la promoción de la salud y participación social, bajo los principios de transparencia, equidad, solidaridad y universalidad. Para ello desarrollará las siguientes actividades, en el marco de esta Directriz:
+a) Dictar la política pública que considere la enfermedad celiaca de interés prioritario dentro del sistema nacional de salud.
+b) Promover la capacitación de profesionales en ciencias médicas en la detección temprana de la enfermedad celiaca.
+c) Desarrollar una estrategia de educación y divulgación a la ciudadanía sobre los efectos negativos que produce el consumo de productos con contenido de gluten, en las personas celiacas.
+d) Coordinar con el Ministerio de Ciencia y Tecnología, el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA) y con las universidades públicas, la investigación sobre la celiaquía, con el objeto de mejorar los métodos para la detección temprana, el diagnóstico, y el tratamiento de la enfermedad.

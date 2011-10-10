@@ -1,0 +1,15 @@
+Nº 024-S
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En ejercicio de las facultades que les confieren los artículos 11, 140., incisos 3), 8), 18) y 20); 146, 148, 149, inciso 6), y 188 de la Constitución Política; 11, 25, 27, 98, 99 y 100, 112, inciso 3), 113, inciso 1) de la Ley 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”, 1, 2, 4 , 7 y 10 de la Ley N° 5395 de 30 de octubre de 1973 “Ley General de Salud”; 1 de la Ley N° 17 del 22 de octubre de 1943 “Ley Constitutiva de la Caja Costarricense de Seguro Social”; el Decreto Ejecutivo N° 34582-MP-MIDEPLAN del 4 de junio de 2008 y sus reformas “Reglamento Orgánico del Poder Ejecutivo”; y Decreto Ejecutivo Nº 36024-MP-PLAN del 11 de mayo de 2010 Creación de los Consejos Presidenciales.
+Considerando:
+I.—Que la Constitución Política en el artículo 21 establece que la vida humana es inviolable, y es a partir de dicho enunciado que se ha derivado el derecho a la salud que tiene todo ciudadano, siendo en definitiva el Estado el encargado de velar por la salud pública. La preponderancia de la vida y de la salud, como valores supremos de las personas, está presente y señalada como de obligada tutela para el Estado, no sólo en la Constitución Política, sino también en diversos instrumentos internacionales suscritos por el país como la Declaración Universal de Derechos Humanos, la Convención Americana sobre Derechos Humanos, de la Declaración Americana de los Derechos y Deberes del Hombre y el Pacto Internacional de Derechos Civiles y Políticos.
+II.—Que el artículo 1 de la Ley General de Salud establece que la salud es un bien de interés público tutelado por el Estado. Asimismo, el artículo 2 de esa misma Ley establece que es función esencial del Ministerio de Salud velar por la salud de la población.
+III.—Que la prevención y control de enfermedades radica en una adaptación armoniosa y coordinada de los dispositivos de administración sanitaria a nivel nacional, con un enfoque integrado que incluya a los diferentes sectores que tengan bajo su responsabilidad la salud de las personas.
+IV.—Que la enfermedad celiaca es una enfermedad autoinmune que se caracteriza por una inflamación crónica de la parte proximal del intestino delgado o yeyuno, causada por la exposición a la gliadina, una proteína vegetal de algunos cereales en la dieta.
+V.—Que con el fin de impulsar el conocimiento, la prevención y los mejores tratamientos para la enfermedad celiaca, el Gobierno de la República considera urgente y necesario instar al Ministerio de Salud y a la Presidencia Ejecutiva de la Caja Costarricense del Seguro Social, su deber de dictar, coordinar, apoyar y ejecutar políticas públicas y recomendaciones en materia de la prevención, investigación y tratamiento de dicha enfermedad. Por tanto,
+Se emite la siguiente:
+DIRECTRIZ
+PARA LA ATENCIÓN INTEGRAL
+DE LA ENFERMEDAD CELIACA
+Artículo 1°—Objeto. El objeto de la presente Directriz es el estudio, la investigación, la prevención, la promoción y el tratamiento relacionados con la enfermedad celiaca en todo el territorio nacional.
