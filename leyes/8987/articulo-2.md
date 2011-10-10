@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Autorízase al Estado para que done el terreno a las Temporalidades de la Arquidiócesis de San José, cédula jurídica número tres-cero uno cero – cero cuatro cinco uno cuatro ocho (N.º 3-010-045148). La donación será libre de gravámenes y anotaciones.
