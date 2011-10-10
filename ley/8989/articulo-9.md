@@ -1,0 +1,5 @@
+ARTÍCULO 9.- Miembros activos
+Son miembros activos del Colegio:
+a) Los profesionales en Terapia Física, Terapia del Lenguaje, Terapia Ocupacional, Terapia Respiratoria y Audiología graduados en el país por entes de educación superior debidamente reconocidos y acreditados, con grado académico universitario igual o superior a licenciatura o bachillerato cuando este sea el grado terminal otorgado en Costa Rica.
+b) Los profesionales graduados en el extranjero en las carreras cuyo ejercicio profesional autoriza, controla, regula y fiscaliza el Colegio, que de acuerdo con los tratados y las normas nacionales e internacionales tengan derecho a optar por la colegiatura, siempre que acrediten de previo ante la autoridad nacional competente reconocida, equiparable o convalidable formación profesional a la autorizada en el país.
+c) Los graduados de postgrados en las terapias en ciencias de la salud, aunque no tengan como base de su formación específica las profesiones establecidas en el inciso a) de este artículo.

@@ -1,0 +1,3 @@
+ARTÍCULO 32.- Procedimiento disciplinario
+El fiscal tendrá potestad de elevar al Tribunal de Ética los hechos denunciados o acusados, así como recomendar soluciones alternativas de conflictos como la negociación, la mediación o el arbitraje.
+Toda investigación que se establezca contra una persona afiliada a este Colegio garantizará la aplicación del debido proceso y el respeto al principio de inocencia, de conformidad con el procedimiento ordinario del artículo 308 de la Ley General de la Administración Pública, que implica citación de las partes a una audiencia con el fin de evacuar las pruebas ofrecidas, las cuales deberán constar en acta detallada firmada por el fiscal, las partes y los testigos.
