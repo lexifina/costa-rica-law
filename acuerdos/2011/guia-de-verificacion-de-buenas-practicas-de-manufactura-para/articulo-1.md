@@ -1,0 +1,11 @@
+SALUD
+De conformidad con lo establecido en el artículo 4 inciso b) de la Ley Nº 8220, publicada en el Alcance Nº 22 en La Gaceta Nº 49 del 11 de marzo del 2002 “Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” y el Decreto Ejecutivo Nº 35994-S Reglamento Técnico Sobre Buenas Prácticas de Manufactura para la Industria Farmacéutica, Productos Farmacéuticos y Medicamentos de Uso Humano publicado en La Gaceta Nº 91 del 12 de mayo del 2010, en el que se establecen los principios y directrices de las Buenas Prácticas de Manufactura en la Industria Farmacéutica, le comunica a los interesados que la resolución que contiene la Guía de Verificación de Buenas Prácticas de Manufactura para la Industria Farmacéutica, se encuentra a disposición en la página web del Ministerio de Salud: www.ministeriodesalud.go.cr. Dirección de Regulación de la Salud.—
+(Nota de Sinalevi: La presente norma se extrajo del sitio web del Ministerio de Salud, y se transcribe a continuación:)
+MINISTERIO DE SALUD
+DIRECCIÓN DE REGULACIÓN DE LA SALUD
+GUÍA DE VERIFICACIÓN DE BUENAS PRÁCTICAS DE MANUFACTURA (BPM)
+PARA LA INDUSTRIA FARMACÉUTICA
+I. INTRODUCCIÓN
+El Decreto Ejecutivo Nº 35994-S Reglamento Técnico sobre Buenas Prácticas de Manufactura para la Industria Farmacéutica, Productos Farmacéuticos y Medicamentos de Uso Humano, establece que la verificación de su cumplimiento le corresponde al Ministerio de Salud, lo que implica la revisión de todos los elementos relacionados con las BPM implementados en la industria, destinados a garantizar la producción de lotes uniformes de productos farmacéuticos con el fin de asegurar la calidad, seguridad y eficacia de los mismos.
+El presente documento consiste en el instrumento oficial para verificar el cumplimiento de las BPM en la industria farmacéutica, por parte del Ministerio de Salud , con el cual se pretende homologar y armonizar los criterios de inspección y establecer una lista de puntos a verificar de todas las operaciones y procesos de la industria. Puede ser también de utilidad para los laboratorios fabricantes en lo que respecta a la autoinspección.
+Cada ítem tiene asignada una calificación con la finalidad de que las inspecciones a realizar, respondan a criterios uniformes de evaluación, dichos criterios se definen en el glosario del presente documento.

@@ -1,0 +1,6 @@
+VI. GLOSARIO
+CRITERIO CRÍTICO: Aquel que en atención a las recomendaciones de las Buenas Prácticas de Manufactura, afecta en forma grave e inadmisible la calidad, seguridad de los productos y la seguridad de los trabajadores, en su interacción con los productos y procesos.
+CRITERIO MAYOR: Aquel que en atención a las recomendaciones de las Buenas Prácticas de Manufactura, puede afectar en forma grave la calidad, seguridad de los productos y seguridad de los trabajadores, en su interacción con los productos y procesos.
+CRITERIO MENOR: Aquel que en atención a las recomendaciones de las Buenas Prácticas de Manufactura, puede afectar en forma leve la calidad, seguridad de los productos y seguridad de los trabajadores, en su interacción con los productos y procesos.
+CRITERIO INFORMATIVO: Aquel que suministra información descriptiva dentro de la organización y recomendaciones de las Buenas Prácticas de Manufactura, pero no afecta la calidad ni la seguridad de los productos o de los trabajadores, en su interacción con los productos y procesos.
+INSPECCIÓN: Actividad de campo del Ministerio de Salud, cuyo objetivo es verificar que todos los elementos de la buenas prácticas de manufactura de la industria farmacéutica, cumplan con lo establecido en el Decreto No. 35994-S.
