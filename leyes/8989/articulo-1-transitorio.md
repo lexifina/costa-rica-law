@@ -1,0 +1,1 @@
+TRANSITORIO I.- Los actuales profesionales legalmente autorizados para el ejercicio de la profesión constituyen los miembros fundadores del Colegio. Ellos procederán a realizar su primera asamblea general para integrar la Junta Directiva y al fiscal a que esta ley se refiere, y a declararla instalada en un plazo máximo de treinta días naturales, a partir de su promulgación.

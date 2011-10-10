@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Elección de los miembros de la Junta Directiva
+La elección de los miembros de la Junta Directiva, del fiscal y del Tribunal de Ética se hará en la asamblea general ordinaria. El presidente, el tesorero, el prosecretario y un vocal serán elegidos en los años pares. El vicepresidente, el secretario, un vocal y el fiscal serán elegidos en los años impares; en ambos casos iniciarán sus funciones en enero siguiente inmediato a su elección.

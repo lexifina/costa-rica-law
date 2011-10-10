@@ -1,0 +1,3 @@
+ARTÍCULO 29.- Pago por consultas
+No causarán derechos las consultas que se hagan al Colegio por parte de los Poderes del Estado. En los demás casos, por los dictámenes que emita el Colegio se pagarán los derechos que indique la tarifa respectiva elaborada por la Junta Directiva.
+Los derechos de consulta ingresarán a los fondos generales del Colegio, sin perjuicio de que, en casos cuya investigación y decisión haya implicado una labor dilatada, completa y dificultosa, la Junta Directiva separe el setenta y cinco por ciento (75%) de los derechos y lo gire, por partes iguales, a los miembros del comité consultivo.

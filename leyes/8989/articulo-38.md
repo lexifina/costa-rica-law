@@ -1,0 +1,4 @@
+ARTÍCULO 38.- Retiro voluntario
+Cualquier miembro del Colegio puede solicitar por escrito a la Junta Directiva y obtener su retiro del Colegio. Lo anterior no impide que se continúe conociendo las acusaciones pendientes de resolución ante el Colegio o ante los tribunales de justicia, relacionadas con lo que establece el inciso e) del artículo 33 de la presente ley. Estará obligado a cancelar las cuotas pendientes hasta el día de su retiro.
+Los miembros del Colegio que se ausenten del país serán considerados como miembros del Colegio siempre que cubran el aporte especial estipulado para ellos.
+El profesional separado pierde todos sus derechos como miembro del Colegio, pero, si ha sido voluntariamente, podrá reinscribirse en cualquier momento con solo solicitarlo por escrito a la Junta Directiva y llenar los requisitos obligatorios para el caso y no tener cuotas o aportes pendientes con el Colegio.
