@@ -1,1 +1,1 @@
-Artículo 100.—De la participación accionaria del beneficiario de fondos de capital de riesgo: Los propietarios de las empresas que reciben la inversión de capital de riesgo, deben mantener al menos el 51% del capital de la empresa. En caso que el empresario decida vender su participación accionaria en la empresa, deberá contar con la autorización de la entidad administradora de la inversión, de acuerdo a lo que se estipule en el convenio respectivo.
+Artículo 100.—(Derogado por el artículo 2° del decreto ejecutivo N° 36820 del 10 de octubre del 2011)
