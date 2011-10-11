@@ -6,7 +6,10 @@ c) Autorizar el procedimiento para vender o enajenar bienes muebles o inmuebles 
 d) Adjudicar aquellas contrataciones directas, por cualquiera de las causales que al efecto señalan la Ley de Contratación Administrativa y su Reglamento General, a excepción de la tramitada bajo la causal de escasa cuantía, cuando, por el monto de la adjudicación, la contratación requiera del refrendo de la Contraloría General de la República conforme a las normas que al respecto emita ese órgano contralor.
 e) Conocer y resolver los recursos de revocatoria que se planteen contra los actos de adjudicación que, conforme a los incisos b. y d. anteriores, están autorizados a adoptar.
 f) Resolver la aplicación de sanciones a las personas físicas o jurídicas que participen en procedimientos para contratar y que se hagan acreedoras a ellas por incurrir en las conductas previstas en la Ley de Contratación Administrativa y su Reglamento General, en Artículo 7° (continuación) aquellos casos en que le haya correspondido aprobar el pliego de condiciones o dictar el acto de adjudicación. El conocimiento y resolución de los recursos de revocatoria interpuestos contra los actos citados en el párrafo anterior, corresponderá al mismo Comité.
-g) Los demás que resulten afines, de conformidad con el ordenamiento de contratación administrativa.
+g) Nombrar a los miembros del órgano director encargado de instruir los procedimientos de resolución contractual, en los casos en que la contratación haya sido adjudicada por el mismo Comité, al cual corresponderá dictar la resolución final.
+(Así adicionado el inciso anterior mediante sesión N° 11725 del 11 de octubre del 2011)
+h) Los demás que resulten afines, de conformidad con el ordenamiento de contratación administrativa.
+(Así corrida la numeración del inciso anterior mediante sesión N° 11725 del 11 de octubre que lo traspasó del antiguo inciso g) al h))
 Cuando el monto a adjudicar supere el ¢ 300.000.000,00, el acuerdo deberá ser remitido a la Gerencia General para su ratificación.
 (Así reformado por acuerdo de Junta Directiva, en su sesión N° 11263 del 27 de mayo de 2004)
 2.2 Corresponderá a los Subcomités de Licitaciones:
@@ -17,7 +20,9 @@ d) Adjudicar aquellas contrataciones directas, por cualquiera de las causales qu
 e) Conocer y resolver los recursos de revocatoria que se planteen contra los actos de adjudicación que, conforme a los incisos b. y d. anteriores, están autorizados a adoptar.
 f) Resolver la aplicación de sanciones a las personas físicas o jurídicas que participen en procedimientos para contratar y que se hagan acreedoras a ellas por incurrir en las conductas previstas en la Ley de Contratación Administrativa y su Reglamento General, en aquellos casos en que le haya correspondido aprobar el pliego de condiciones o dictar el acto de adjudicación.
 El conocimiento y resolución de los recursos de revocatoria interpuestos contra los actos citados en el párrafo anterior, corresponderá al mismo Subcomité.
-g) Los demás que resulten afines, de conformidad con el ordenamiento de contratación administrativa."
+g) Los demás que resulten afines, de conformidad con el ordenamiento de contratación administrativa.
+h) Nombrar a los miembros del órgano director encargado de instruir los procedimientos de resolución contractual, en los casos en que no corresponda al Comité de Licitaciones dictar la resolución final.
+(Así adicionado el inciso h) anterior mediante sesión N° 11725 del 11 de octubre del 2011)
 (Así reformado por acuerdo de Junta Directiva, en su sesión N° 11263 del 27 de mayo de 2004)
 2.3. Corresponderá a la Junta Directiva General del Banco, la adjudicación de las licitaciones promovidas para la contratación de firmas de auditores externos del Banco.
 2.4 Corresponderá a los Proveedores de los Bancos Regionales Artículo 7° (continuación) celebrar y adjudicar los remates y subastas a la baja que se celebren de acuerdo a lo previsto en la Ley de Contratación Administrativa y su Reglamento General. Cuando el monto de la adjudicación haga prever que se requerirá de refrendo por parte de la Contraloría General de la República, conforme a las normas que tenga en vigencia tal órgano, la celebración y adjudicación del concurso corresponderá al Proveedor de Casa Matriz.
