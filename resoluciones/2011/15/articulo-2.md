@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-R-011-2011 del 6 de abril del 2011, publicada en La Gaceta Nº 87 del 6 de mayo del 2011.
