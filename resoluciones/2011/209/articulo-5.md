@@ -1,1 +1,0 @@
-V.—Los solicitantes deberán detallar ampliamente la utilización que se le pretende dar al sistema (bandas del espectro), donde se justifique la necesidad del servicio y la explotación racional del espectro radioeléctrico.

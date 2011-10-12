@@ -1,6 +1,0 @@
-VIII.—La recomendación técnica que rinda la se realizará con base en los siguientes criterios:
-i. Se utilizarán herramientas especializadas para realizar el estudio de factibilidad del enlace y el respectivo análisis de interferencias.
-ii. La SUTEL verificará la factibilidad de la solicitud presentada.
-iii. En caso de que la solicitud no sea técnicamente factible, la SUTEL, mediante acto razonado, recomendará una opción cuyas especificaciones sean las más cercanas a las solicitadas por el operador y aseguren la factibilidad de operación del enlace. Dicha factibilidad de operación dependerá de la ocupación del espectro en el emplazamiento solicitado, la no interferencia a sistemas de comunicación ya establecidos y las condiciones de propagación de la señal. En este sentido, la SUTEL podrá recomendar la modificación DE LOS PARAMETROS DE OPERACIÓN DEL ENLACE.
-iv. Las solicitudes serán analizadas con base en los criterios de primero en tiempo primero en derecho y optimización del uso del espectro radioeléctrico, de tal forma que se asegure que no se presenten concentraciones en el uso del espectro.
-v. Las solicitudes serán analizadas de conformidad con las bases de datos y la información inscrita y actualizada del Registro Nacional de Telecomunicaciones.
