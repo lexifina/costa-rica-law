@@ -1,0 +1,1 @@
+Artículo 15.—Competencias del Órgano Decisor. El Órgano Decisor puede adoptar la recomendación dada por el Órgano Instructor o apartarse de ella. Sin embargo, en este último caso deberá justificar las razones para apartarse de la recomendación del Órgano Instructor.

@@ -1,0 +1,1 @@
+Artículo 26.—Derogaciones. Se deroga el Decreto Ejecutivo Nº 25430-RE, de las nueve horas del día veintidós de abril de mil novecientos noventa y seis, publicado en el Diario Oficial La Gaceta Nº 170 del 06 de setiembre de 1996.
