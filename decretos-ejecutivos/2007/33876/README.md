@@ -14,3 +14,4 @@ Reglamento Técnico del Sistema Penitenciario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-03 | la propia norma |
+| 2 | 2011-10-12 | SINALEVI (sin norma nombrada) |
