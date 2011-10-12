@@ -1,0 +1,1 @@
+Artículo 24.—Diseños Alternativos: El diseño a utilizar como mimetización deberá ser una propuesta que el interesado presentará a la Municipalidad; sin perjuicio de otras alternativas, se proponen que según el elemento paisajístico a proteger, las propuestas de mimetización serán alusivos palmeras, árboles tropicalizados, cactus, relojes, obeliscos.

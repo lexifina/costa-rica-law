@@ -1,0 +1,3 @@
+Artículo 14.—El propietario de las Obras Constructivas será responsable de cualquier daño directo o indirecto que ésta o éstas puedan causar a los bienes municipales, privados o a terceros, relevando de cualquier responsabilidad a la Municipalidad.
+CAPÍTULO V
+Licencias Municipales

@@ -1,0 +1,1 @@
+Artículo 28.—Análisis del diseño de Mimetización: Como parte del proceso de análisis del diseño presentado, y de acuerdo a la ubicación de la torre, el Departamento de Construcciones podrá realizar las consultas que considere pertinente. Para lo anterior se realizará la respectiva visita al área del proyecto.

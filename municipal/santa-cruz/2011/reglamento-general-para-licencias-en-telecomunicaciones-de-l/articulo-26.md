@@ -1,0 +1,1 @@
+Artículo 26.—Procedimiento para Torres por Construir: En el caso de las nuevas torres por aprobar, la propuesta de mimetización se adaptará a la zonificación, debe presentarse como parte de las gestione para obtener el permiso de construcción el cual deberá aceptarse antes de emitir dicho permiso. En caso de incumplimiento se sancionará según el artículo 25 de este Reglamento.

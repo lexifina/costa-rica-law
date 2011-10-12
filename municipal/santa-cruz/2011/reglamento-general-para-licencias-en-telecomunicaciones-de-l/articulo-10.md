@@ -1,0 +1,1 @@
+Artículo 10.—No se otorgará la certificación del uso de suelo conforme en áreas de protección de ríos, monumentos públicos, zonas de protección histórico-patrimonial, áreas silvestres protegidas y donde sea expresamente prohibido por la legislación nacional.
