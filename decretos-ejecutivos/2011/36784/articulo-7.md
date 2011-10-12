@@ -1,0 +1,1 @@
+Artículo 7º—Se promoverá en el Instituto de Desarrollo Profesional Uladislao Gámez Solano la gestión por procesos, de allí a criterio del Director Ejecutivo (a) se podrán reorganizar internamente los mismos, de conformidad con las prioridades y necesidades que se vayan gestando dentro de la estructura para cumplir cabalmente con las funciones y competencias de dicho Instituto.

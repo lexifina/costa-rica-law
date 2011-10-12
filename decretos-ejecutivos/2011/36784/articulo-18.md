@@ -1,0 +1,1 @@
+Artículo 18.—El Administrador Financiero, tal como se indica en el artículo 11 de la ley, será designado por el Consejo Directivo y se hará cargo de los fondos asignados y obtenidos por el instituto, mediante un uso adecuado, racional y eficiente de estos. Será el gestor en la búsqueda de recursos económicos para el Instituto de Desarrollo Profesional Uladislao Gámez Solano.

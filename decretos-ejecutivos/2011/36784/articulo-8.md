@@ -1,0 +1,1 @@
+Artículo 8º—El Director Ejecutivo(a) podrá organizar los recursos humanos también en función de actividades y proyectos de interés del Instituto de Desarrollo Profesional Uladislao Gámez Solano vinculados a sus áreas de competencia, para lo cual destinará de manera temporal grupos ad hoc para tal fin.
