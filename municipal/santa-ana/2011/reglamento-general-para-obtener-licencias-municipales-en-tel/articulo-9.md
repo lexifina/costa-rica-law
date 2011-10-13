@@ -1,0 +1,1 @@
+Artículo 9º—Con el objeto de evitar la duplicación de infraestructura, la obra constructiva deberá ser implementada de manera tal que permita colocar equipos y sistemas de antenas de al menos tres operadores y/o proveedores.

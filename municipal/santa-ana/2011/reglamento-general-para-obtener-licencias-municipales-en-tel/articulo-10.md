@@ -1,0 +1,1 @@
+Artículo 10.—La altura mínima necesaria de la obra constructiva para colocar los equipos de tres operadores es de 30 metros, siendo esta la altura mínima de colocación de los dispositivos de transmisión o antena, por lo que no se aceptarán solicitudes con alturas menores.

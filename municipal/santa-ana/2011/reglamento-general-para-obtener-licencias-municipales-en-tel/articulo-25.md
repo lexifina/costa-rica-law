@@ -1,0 +1,1 @@
+Artículo 25.—La Licencia de construcción tendrá una vigencia de un año a partir del pago del impuesto de construcción. Cuando la obra no se inicie dentro de este plazo, se deberá tramitar de nuevo la licencia y la Municipalidad podrá otorgar licencia de construcción al segundo lugar de la lista de solicitantes que haya cumplido con todos los requisitos.

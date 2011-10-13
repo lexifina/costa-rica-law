@@ -1,0 +1,1 @@
+Artículo 14.—No se permitirán construcciones e instalación de obras constructivas de telecomunicaciones en áreas de protección de ríos o nacientes, monumentos públicos, derechos de vía, zonas de protección histórico-patrimonial, o en aquellas que la Dirección General de Aviación Civil, e Instituciones de Gobierno emitan su criterio negativo.
