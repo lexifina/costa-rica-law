@@ -1,0 +1,1 @@
+Artículo 12.—Zonas de protección de ríos y quebradas. Las zonas de protección de ríos y quebradas corresponden a las áreas destinadas a la protección y conservación de las riberas de ríos o quebradas, según artículo 33 de la Ley Forestal. Se establecen retiros de 10 metros para zonas urbanas, 15 metros para zona rural y 50 metros para terrenos con pendiente mayor del 40%.

@@ -1,0 +1,1 @@
+Artículo 10.—Zonas agropecuarias. Las zonas agropecuarias corresponden a las áreas designadas para el desarrollo de carácter productivo ligados a los recursos agrícolas, avícolas, pecuarios, de reforestación y cultivo.

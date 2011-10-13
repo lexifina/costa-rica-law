@@ -1,0 +1,1 @@
+Artículo 6º—Zonas de uso mixto. Las zonas de uso mixto corresponden a las áreas del cantón que se encuentran en centros urbanos y corredores viales en los que se mezclan de forma integral la residencia, el comercio y los servicios, o en áreas de transición por crecimiento urbano.
