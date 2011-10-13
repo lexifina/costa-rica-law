@@ -1,0 +1,4 @@
+Artículo 13.- Criterio del órgano rector
+El criterio que emita el Ministerio de Economía, Industria y Comercio (MEIC), por medio de la Dirección de Mejora Regulatoria, sobre los trámites existentes cubiertos por esta ley, así como sobre la emisión de nuevas regulaciones o reformas a las ya existentes que contengan trámites requeridos a los ciudadanos, tendrá carácter vinculante para la Administración Pública central.
+Cuando los entes autónomos, semiautónomos o con autonomía universitaria emitan nuevas regulaciones o reformas a las ya existentes que contengan trámites requeridos a los ciudadanos, consultarán al órgano rector la conformidad de estas con los principios y objetivos de la mejora y simplificación de los trámites y a la Ley N.° 8220 y su reglamento. EI criterio que vierta el órgano rector para estos casos será con carácter de recomendación.
+(Así adicionado por el artículo 2° de la ley N° 8990 del 27 de setiembre del 2011)
