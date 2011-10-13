@@ -630,19 +630,19 @@ Título de bachiller en Educación Media (bachiller de secundaria).
 Técnico en una carrera universitaria que lo faculte para el desempeño del cargo (segundo año aprobado).
 Cuatro años de experiencia relacionada con el cargo o en el área académica.
 Cursos formales de cómputo relacionados con el cargo.
-SUBJEFE TÉCNICO DE SEGURIDAD
+(*) SUBJEFE DE SEGURIDAD
 Objetivo del trabajo: Comprometerse junto con la Jefatura de la unidad administrativa encargada de la seguridad y vigilancia de la Institución, en la coordinación y supervisión de un grupo de funcionarios agentes o técnicos de seguridad, mediante la ejecución de labores de organización, asignación y control de trabajo en los roles respectivos.
-Ubicación: Unidad administrativa encargada de la seguridad y vigilancia institucional.
+Ubicación: El puesto al cual corresponde esta clasificación se ubica en la Unidad administrativa encargada de las funciones de seguridad y vigilancia de la Asamblea Legislativa.
 Actividades generales:
 Participar junto con la Jefatura de unidad correspondiente en el establecimiento de las medidas tendientes a fortalecer la Institución en el campo de la protección, seguridad y vigilancia.
 Coordinar, supervisar y controlar el trabajo del grupo de funcionarios encargados de la seguridad en los roles correspondientes.
-Participar con la Jefatura en la confección de turnos de trabajo.
+Participar con la jefatura en la confección de turnos de trabajo.
 Girar las instrucciones necesarias al grupo a su cargo, para atender situaciones de emergencia.
 Realizar informes y reportes periódicos y/o cuando sea necesario sobre las funciones desarrolladas y las situaciones ilícitas ocurridas en las instalaciones físicas de la Asamblea Legislativa en el turno correspondiente.
 Orientar al grupo a su cargo, sobre los métodos y procedimientos para la ejecución del trabajo.
 Controlar el uso y el buen mantenimiento de los equipos, el mobiliario y los materiales asignados al grupo a su cargo.
 Colaborar en la atención y resolución de consultas que presenten diputados y público en general relacionado con el área de actividad.
-Le puede corresponder sustituir en sus ausencias temporales al jefe o subjefe de seguridad.
+Le puede corresponder sustituir en sus ausencias temporales al jefe de seguridad.
 Realizar cualquier otra función relacionada con el cargo.
 CONDICIONES ORGANIZACIONALES Y AMBIENTALES
 Supervisión ejercida: Supervisar a los funcionarios del grupo a su cargo, orientarlos en la ejecución de trabajos y velar por su disciplina y eficiencia.
@@ -664,17 +664,12 @@ Ser observador y con iniciativa motivada por la necesidad de realizar de manera 
 CONOCIMIENTOS BÁSICOS
 Capacitación en el campo de la seguridad, así como en relaciones interpersonales y realidad institucional.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Título de bachiller en Educación Media.
-Técnico o segundo año universitario aprobado en una carrera que le faculte para el desempeño del cargo.
-Experiencia mínima de tres años en labores relacionados con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión de grupos de seguridad.
+Bachillerato en una carrera universitaria atinente al área de actividad
+Experiencia mínima de dos años en labores relacionados con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión de grupos de seguridad.
+Incorporación al colegio profesional respectivo.
 Permiso de portación de armas.
 Curso de protección de dignatarios.
-O
-Título de bachiller en Educación Media.
-Primer año universitario aprobado en una carrera que le faculte para el desempeño del cargo.
-Experiencia mínima de cinco años en labores relacionadas con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión de grupos de seguridad.
-Permiso de portación de armas.
-Curso de protección de dignatarios.
+(*)(Así reformada la categoría de puesto Subjefe de Seguridad anterior mediante acuerdo N° 32-11-12 tomado en sesión ordinaria N° 078-2011 del 13 de octubre del 2011)
 JEFE TÉCNICO
 Objetivo del trabajo: Coadyuvar al eficiente desarrollo de los procesos de trabajo de las diferentes áreas mediante la ejecución de labores de planeación, dirección, supervisión orientadas a la coordinación de una unidad administrativa compuesta por funcionarios que realizan labores técnicas u operativas rutinarias de la Asamblea Legislativa.
 Ubicación:
