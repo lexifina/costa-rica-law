@@ -1,0 +1,16 @@
+INSTITUTO NACIONAL DE FOMENTO COOPERATIVO
+La Junta Directiva del Instituto Nacional de Fomento Cooperativo, en sesión ordinaria 3831, artículo 1º, inciso 2.5), celebrada el 25 de junio de 2011, acordó:
+“Visto el oficio de la Dirección Ejecutiva DE 1016-2011, mediante el cual se remite copia del oficio SDE 203-2011, que a su vez adjunta copia del oficio AJ 93-2011, que contiene propuesta de Reforma al Reglamento para el uso de vehículos propiedad del Instituto Nacional de Fomento Cooperativo, aprobado por la Junta Directiva, en la sesión 3.675, artículo segundo, inciso 3.4, celebrada el 26 de octubre de 2007 y aprobado por la Contraloría General de la República en oficio 14235.
+Se acuerda aprobar la referida propuesta de Reforma al Reglamento para el uso de vehículos propiedad del Instituto Nacional de Fomento Cooperativo, como seguidamente se detalla:
+1. Modifíquese el artículo 2 y que donde señala “Proceso Desarrollo Humano”, se lea “Desarrollo Humano”.
+2. Modifíquese los artículos 6, 12, 14, 15 (primera línea e inciso s), 17 incisos e) y f), 22, 24, 25 inciso e), 28, 29 inciso A, subincisos A1, A2, inciso B, subinciso B3, inciso C, subinciso C1, inciso D subincisos D1 y D2, 30, 32 inciso f), 36, 41 y 44, y que donde señala “Proceso Administración y Finanzas”, se lea “Administrativo Financiero”.
+3. Modifíquese el artículo 8, y que se lea de la siguiente forma:
+“Artículo 8º—La autorización en las boletas para el uso de vehículos recae en los Gerentes de Departamentos con relación al personal bajo su supervisión. Además, el Director Ejecutivo o el Subdirector Ejecutivo como Administración Superior, autorizarán el uso de vehículos a los Gerentes o a funcionarios en caso de ausencia del Gerente. La autorización en las boletas para el uso de vehículos por parte de los integrantes de Junta Directiva, corresponderá al Gerente de la Secretaría de Actas. El Auditor Interno, emitirá las autorizaciones correspondientes al personal bajo su cargo.
+Para ello, Administrativo Financiero llevará un registro de firmas autorizadas, que contenga al menos: Nombre del Funcionario, actividad que se le faculta autorizar, número de cédula, departamento a que pertenece, cargo que desempeña y firma.”
+4. Modifíquese el artículo 11, y donde señala “Coordinador del área respectiva”, se lea “Gerente del Departamento respectivo” y donde señala “Coordinador del Proceso Administración y Finanzas”, se lea “Gerente Administrativo Financiero”.
+5. Modifíquese los artículos 13, 29 inciso A, subincisos A2, subinciso B3, inciso D, subinciso D3, y artículo 34, y donde señala “Proceso Asesoría Jurídica”, señale “Asesoría Jurídica”.
+6. Modifíquese el título del Capítulo II, y donde señala “Proceso Administración y Finanzas”, se lea “Administrativo Financiero”.
+7. Modifíquese los artículos 15 inciso p), 17 incisos m) y n), 19, 23, 28, 41 y 46 y donde señala “Coordinador del Proceso Administración y Finanzas”, se lea “Gerente Administrativo Financiero”.
+8. Modifíquese los artículos 17 inciso n) y 32 inciso a), y donde señala “Coordinador”, se lea “Gerente”.
+9. Modifíquese los artículos 21, 22 incisos a), b), c), 33 inciso a) y 44 y donde señala “Coordinador del Proceso o Macroproceso”, se lea “Gerente respectivo”.
+10.Elimínese el artículo 16 y corríjase la numeración respectiva.
