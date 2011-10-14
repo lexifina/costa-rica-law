@@ -1,0 +1,2 @@
+Artículo 7º—Sanciones por incumplimiento. En caso de incumplimiento de las obligaciones establecidas en la ley y en este capítulo del reglamento, el funcionario o funcionaria responsable será sancionado, de conformidad con lo que se determine en el marco de un debido proceso.
+Cuando se trate de una persona de nombramiento de elección popular el procedimiento debe ajustarse e integrarse este procedimiento con lo dispuesto en el artículo 26 de la Ley contra el Hostigamiento sexual en el empleo y la Docencia.
