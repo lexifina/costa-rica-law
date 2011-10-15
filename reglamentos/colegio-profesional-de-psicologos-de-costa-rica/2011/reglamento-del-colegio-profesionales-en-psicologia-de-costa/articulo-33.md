@@ -1,12 +1,2 @@
-Artículo 33.—Sin perjuicio de las nulidades que procedan conforme con la ley, en atención al cumplimiento de requisitos o condiciones relacionados con las personas, los certificados serán absolutamente nulos y no valdrán como instrumentos públicos, en los siguientes casos:
-A) Los emitidos en formularios no extendidos por el Colegio.
-B) Los no firmados por el o la Profesional en psicología y la persona evaluada.
-C) Los otorgados ante un/una profesional suspendido/a o que haya cesado en sus funciones.
-D) Los escritos en un idioma distinto al español u otorgados en contravención al presente reglamento.
-E) Los ilegibles.
-F) Los que no contengan el nombre del o la profesional.
-G) Los que no contengan el nombre y los apellidos de la persona evaluada y el número de su documento de identidad.
-H) Los que no indiquen la hora y fecha de evaluación o emisión.
-I) Los declarados falsos por sentencia con autoridad de cosa juzgada.
-J) Aquellos en que el documento de identidad de la persona evaluada ha expirado o no está al día.
-K) Los que no aporten el consentimiento informado en formato aprobado por el Colegio, con el nombre, firma y número de identificación de la persona evaluada, así como la fecha cuando se realizó la evaluación.
+Artículo 33.— La Fiscalía del Colegio llevará a cabo procesos de fiscalización o de auditoraje en la evaluación que se haga de las personas usuarias del servicio, con el fin de comprobar la veracidad de la información consignada en los certificados. Tal fiscalización abarcará aspectos de índole técnica, ética y científica. Para su revisión, cuando la Fiscalía así lo requiera, el o la profesional entregará a la Fiscalía los respectivos expedientes y transcripciones originales en los cinco días hábiles posteriores a la solicitud. Todos los materiales derivados de la evaluación (entrevistas, observaciones, pruebas psicológicas u otros) deberán estar transcritos integralmente y estar a disposición de la Fiscalía. Para los efectos de este artículo, en el formulario respectivo deberá indicarse claramente la autorización, previa y expresa, de la persona evaluada, para que, en caso de solicitarse el expediente por parte de la Fiscalía o el Tribunal de Honor, el o la profesional puedan presentar el expediente, sin violentar el secreto profesional. Las personas evaluadas deberán firmar una declaración jurada en la cual se señale que de descubrirse la no veracidad de los datos, se acarreará la nulidad del dictamen.
+(Así corrida su numeración en sesión N° 78 del 15 de octubre del 2011, la cual fue reformada posteriormente mediante Fe de Erratas publicada en La Gaceta N° 165 del 28 de agosto del 2012 página 79, que lo traspaso del antiguo artículo 34 al 33 actual. Lo anterior ya que en dicha Fe de Erratas se ordena derogar el numeral 30 original y modificar su numeración)

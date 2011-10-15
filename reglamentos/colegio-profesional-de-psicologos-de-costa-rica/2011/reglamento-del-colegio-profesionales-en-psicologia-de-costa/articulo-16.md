@@ -1,4 +1,6 @@
 Artículo 16.—La adquisición de los certificados para emitir dictámenes se hará de la siguiente forma:
 A) El o la profesional con habilitación y que laboren en libre ejercicio de su profesión, tendrán derecho a adquirir los certificados que deseen, si los compran en el ejercicio privado de su profesión o como funcionario/a de alguna institución.
-B) Los certificados podrán adquirirse en el Departamento de Contabilidad del Colegio o en las filiales o asociaciones autorizadas para ese efecto.
-C) Al adquirir los certificados, el o la profesional deberán revisar que se encuentren en buen estado de impresión, con sus respectivas copias y numeración consecutiva adecuada, asimismo que tengan el sello respectivo. Una vez que los certificados hayan salido de las instalaciones del Colegio, éste no se hará responsable de su uso, y son el o la Profesional, los únicos responsables.
+B) Los certificados podrán adquirirse por los medios que el Colegio disponga para ese efecto.
+(Así reformado el inciso anterior en sesión N° 78 del 15 de octubre de 2011.(Ver transitorio a la norma que realizó la reforma)
+C) Una vez que los certificados se hayan cancelado, deberá verificarse la adquisición de los mismos y su uso será responsabilidad exclusiva de el o la Profesional.
+(Así reformado el inciso anterior en sesión N° 78 del 15 de octubre de 2011.(Ver transitorio a la norma que realizó la reforma)
