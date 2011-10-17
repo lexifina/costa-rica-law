@@ -14,3 +14,4 @@ Reglamento Gastos Fijos Adquisición Bienes y Servicios de Competencia del Alcal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-13 | la propia norma |
+| 2 | 2011-10-17 | Reglamento municipal 0 (2011-10-17) |
