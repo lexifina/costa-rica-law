@@ -1,0 +1,10 @@
+Artículo 13.—Monto de las tarifas. De acuerdo con los parámetros se establecen las siguientes tarifas por el incumplimiento de los deberes establecidos en el artículo 75 del Código Municipal:
+a) ¢ 1.500,00 (mil quinientos colones con cero céntimos) por cada hora o fracción utilizados en la limpieza de vegetación a orillas de vías públicas y limpieza de lotes baldíos cuando ello implique únicamente recorte de la maleza; y ¢ 30 (treinta colones) por recolección y tratamiento de cada kilo de desechos recolectados.
+b) ¢ 1.500,00 (mil quinientos colones, con cero céntimos) por cada hora o fracción utilizados en la remoción de escombros colocados frente a predios y ¢ 30 (treinta colones) por recolección y tratamiento de cada kilo de desechos recolectados.
+c) ¢ 15.000,00 (quince mil colones con cero céntimos) por cada metro lineal o fracción, para la instalación de cercas con alambre de púas en los lotes baldíos o con edificaciones deshabitadas o ruinosas, ubicados en zonas no urbanas de los distritos, con excepción del distrito central.
+d) ¢ 43.660,95 (cuarenta y tres mil seiscientos sesenta colones con noventa y cinco céntimos) por cada metro lineal o fracción, para la instalación de cercas con malla ciclón en los lotes baldíos o con edificaciones deshabitadas o ruinosas, ubicados en el distrito central y en las zonas urbanas de los otros distritos.
+e) ¢ 18.000,00 (dieciocho mil colones con cero céntimos) por metro cuadrado o fracción para la construcción de aceras sin refuerzo.
+f) ¢ 20.000,00 (veinte mil colones con cero céntimos) por metro cuadrado o fracción para la construcción de aceras con refuerzo.
+g) ¢ 10.000,00 (diez mil colones con cero céntimos) por metro lineal o fracción de instalación de canoas y o bajantes HG N° 24.
+h) ¢ 15.000,00 (quince mil colones con cero céntimos) por cada prevista de desagüe pluvial que deba construirse para la evacuación de aguas pluviales como parte de la instalación de canoas y bajantes. Dichas previstas se construirán cada tres metros.
+Las tarifas establecidas en el presente artículo, serán revisadas Anualmente, para su debida actualización.
