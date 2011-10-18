@@ -1,6 +1,2 @@
-ARTÍCULO 34.- Quien adquiera derechos en un condominio quedará sujeto
-al reglamento existente. Al inicio el reglamento debe ser establecido por
-el propietario de la finca matriz y podrá ser modificado por la Asamblea
-de Condóminos, por votación unánime del total de los propietarios del
-condominio. Toda modificación del reglamento deberá ser inscrita en el
-Registro Público.
+ARTÍCULO 34.- Quien adquiera derechos en un condominio quedará sujeto al reglamento existente. Al inicio el reglamento debe ser establecido por el propietario de la finca matriz y podrá ser modificado por la Asamblea de Condóminos, por votación unánime del total de los propietarios del condominio. Toda modificación del reglamento deberá ser inscrita en el Registro Inmobiliario (*).
+(*) (Modificada su denominación por el artículo 2° de la ley N° 8984 del 14 de setiembre del 2011)
