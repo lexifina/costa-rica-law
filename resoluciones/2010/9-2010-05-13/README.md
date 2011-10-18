@@ -17,3 +17,4 @@ Procedimiento para la legalización de libros ante la Administración Tributaria
 | 2 | 2010-08-12 | Resolución 12 (2010-08-12) |
 | 3 | 2010-11-03 | Resolución 21 (2010-11-03) |
 | 4 | 2011-06-09 | Resolución 13 (2011-06-09) |
+| 5 | 2011-10-18 | Resolución 34 (2011-10-18) |

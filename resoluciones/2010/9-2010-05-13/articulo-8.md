@@ -1,1 +1,1 @@
-Artículo 8º—Libros no retirados: Los libros se mantendrán a despacho durante un período de tres meses después de la fecha de recibo. Si no se retiran en ese plazo, la Administración Tributaria procederá a su destrucción o dispondrá de ellos conforme lo considere conveniente.
+Artículo 8º—(Dergado mediante resolución N° DGT-R-034-2011 del 18 de octubre del 2011, "Establece la posibilidad de ser llevados en formato digital los Libros Sociales y Comerciales que la Dirección General de Tributación debe legalizar")
