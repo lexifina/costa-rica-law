@@ -1,1 +1,0 @@
-Artículo 33.—No se tramitará por medio del fondo de las compras que se hayan definido como artículo de uso común, los cuales deberán ser adquiridos por medio de sistemas convencionales de compra que existan en el municipio, según las disposiciones establecidas por la Ley de Contratación Administrativa y el Reglamento General de Contratación Administrativa.

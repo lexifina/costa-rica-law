@@ -1,1 +1,0 @@
-Artículo 3º—El fondo de la caja chica debe estar bajo custodia del Tesorero Municipal, quien deberá actuar de conformidad con lo que disponga este Reglamento, el Código Municipal, la Ley de la Administración Financiera de la República y Presupuestos Públicos y demás normativa vigente.

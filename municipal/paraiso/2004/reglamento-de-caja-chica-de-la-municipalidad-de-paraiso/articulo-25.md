@@ -1,1 +1,0 @@
-Artículo 25.—Al final del ejercicio fiscal el Tesorero Municipal enviará a la Dirección Financiera Administrativa un resumen de los movimientos habidos en el fondo de caja chica, así como la comunicación del saldo disponible en efectivo.

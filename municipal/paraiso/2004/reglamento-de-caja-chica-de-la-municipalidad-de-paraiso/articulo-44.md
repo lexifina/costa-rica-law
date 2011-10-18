@@ -1,1 +1,0 @@
-Artículo 44.—Uso de la caja chica. Todo funcionario que haga uso del fondo de caja chica, tiene la obligación de conocer el presente Reglamento, el incumplimiento del mismo será motivo para la aplicación de la sanción conforme a lo dispuesto en el Reglamento Autónomo de Servicios.

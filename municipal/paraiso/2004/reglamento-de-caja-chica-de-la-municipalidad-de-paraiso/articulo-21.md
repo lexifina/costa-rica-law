@@ -1,1 +1,0 @@
-Artículo 21.—El sistema de control de la administración del fondo debe garantizar la custodia y un buen uso de esos recursos, el registro de datos necesarios para disponer de la información confiable y oportuna, un sistema de archivo que permita la fácil localización de documentos.
