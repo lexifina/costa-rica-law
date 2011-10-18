@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento establece criterios y formas de participación de las personas jóvenes ante la Municipalidad de Curridabat, así como de las organizaciones juveniles creadas para el desarrollo humano sustentable y el progreso general de las personas jóvenes del cantón.

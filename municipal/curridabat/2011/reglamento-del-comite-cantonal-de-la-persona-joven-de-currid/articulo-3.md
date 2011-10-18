@@ -1,0 +1,1 @@
+Artículo 3º—El ámbito de aplicación del presente Reglamento se restringe únicamente a la jurisdicción del cantón de Curridabat, de la provincia de San José y es válido para todos los habitantes o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.

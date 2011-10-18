@@ -1,0 +1,1 @@
+Artículo 26.—Para cada puesto del CCPJC se nombrará un suplente que lo puede sustituir en las sesiones. El suplente puede asistir a todas las sesiones y tener voz pero no voto, al igual que ser parte de las comisiones de trabajo.
