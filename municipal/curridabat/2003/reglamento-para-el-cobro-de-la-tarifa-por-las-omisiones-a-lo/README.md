@@ -15,3 +15,4 @@ Reglamento para el cobro de la tarifa por las omisiones a los deberes de los pro
 | --- | --- | --- |
 | 1 | 2003-11-16 | la propia norma |
 | 2 | 2008-12-30 | Reglamento municipal 0 (2008-12-30) |
+| 3 | 2011-10-18 | Reglamento municipal 36 (2011-10-18) |
