@@ -1,1 +1,0 @@
-Artículo 6º—La cancelación de los timbres deberá efectuarse mediante formulario de Entero de Gobierno, y presentarse ante la Administración Tributaria competente, adjunto al formulario D-406 denominado “Solicitud de legalización de libros” en el que se indique claramente sobre el carácter digital de los libros.

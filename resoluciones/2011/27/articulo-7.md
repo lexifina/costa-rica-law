@@ -1,1 +1,0 @@
-Artículo 7º—Los contribuyentes que continúen u opten por el sistema tradicional de legalización de libros contables, deberán estarse a lo dispuesto en la Directriz Nº 09-2010 de las 11:15 horas del 13 de mayo de 2010.
