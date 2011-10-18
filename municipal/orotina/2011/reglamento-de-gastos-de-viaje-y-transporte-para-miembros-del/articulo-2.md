@@ -1,0 +1,1 @@
+Artículo 2º—Este reglamento regula los procedimientos a que deben someterse las erogaciones municipales, por concepto de gastos de viaje y transporte a síndicos y regidores propietarios y suplentes de la Municipalidad de Orotina, con relación al artículo 30 del Código Municipal, con el propósito de asistir a las sesiones del Concejo Municipal.

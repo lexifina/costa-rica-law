@@ -1,0 +1,3 @@
+Artículo 10.—Si por decisión del Concejo Municipal o del Alcalde Municipal se brindará el transporte requerido para que los señores Regidores y Síndicos, puedan asistir sin problemas a las sesiones del Concejo, éstos en ningún caso puedan solicitar el subsidio ni la administración otorgar el pago.
+Artículo 10.—En todo lo no previsto en el presente Reglamento, en cuanto a pagos, se regirá por lo que establece el Reglamento de Gastos de Viajes y Transporte para Funcionarios Públicos, vigente, y aprobado por la Contraloría General de la República.
+(Nota de Sinalevi: En la publicación de este reglamento, se consignó dos veces el artículo N°10)

@@ -1,0 +1,1 @@
+Artículo 11.—Este Reglamento modifica el publicado en el Diario Oficial La Gaceta ochenta y ocho del día nueve de mayo de 2005. Quedan derogadas las disposiciones de la misma naturaleza y/o acuerdos anteriores del Concejo Municipal, en tanto se le opongan.

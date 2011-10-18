@@ -1,0 +1,1 @@
+Artículo 7º—Una vez verificada la lista, se procederá a confeccionar la planilla o cheque a quien corresponda, los pagos a efectuarse se regirán de acuerdo a lo que establece el Reglamento de Gastos de Viajes y Transportes para Funcionarios Públicos emitido y aprobado por la Contraloría General de la República.
