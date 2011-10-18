@@ -1,0 +1,1 @@
+Artículo 5º—Para los avalúos y peritajes que no son de naturaleza hipotecaria o prendaría con entidades crediticias se continuará aplicando la Tabla de Honorarios establecida mediante el Decreto Nº 29412-MAG de marzo del 2001.

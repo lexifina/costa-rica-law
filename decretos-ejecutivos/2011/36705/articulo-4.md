@@ -1,0 +1,1 @@
+Artículo 4º—La persona contratante del avalúo deberá pagar los honorarios al perito con base en el monto del crédito finalmente aprobado al cliente solicitante en un plazo no mayor de una semana después de entregado el avalúo.
