@@ -1,0 +1,2 @@
+Articulo 9º—Plazo para interponer la denuncia y prescripción. El plazo para interponer la denuncia será de un año, computado a partir del último hecho constituido del supuesto hostigamiento sexual o a partir del cese de la causa justificada que le impidió denunciar. El plazo de prescripción para la imposición de medidas disciplinarias es de un mes de conformidad con el artículo 603 del Código de Trabajo.
+La Administración podrá dictar resolución de suspensión del plazo para interrumpir el cómputo del término de prescripción, mediante acto motivado.

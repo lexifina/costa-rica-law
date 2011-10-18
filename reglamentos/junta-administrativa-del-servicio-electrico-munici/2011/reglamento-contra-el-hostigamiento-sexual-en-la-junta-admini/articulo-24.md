@@ -1,0 +1,1 @@
+Articulo 24.—Normativa complementaria. En todo aquello en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, se aplicará supletoriamente la Ley General de la Administración Pública y el Código de Trabajo.

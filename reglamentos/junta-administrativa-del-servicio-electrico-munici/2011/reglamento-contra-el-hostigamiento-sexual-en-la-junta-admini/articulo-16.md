@@ -1,0 +1,2 @@
+Articulo 16.—Sobre las pruebas. Las pruebas serán valoradas de conformidad con las reglas de la sana crítica, la lógica y la experiencia. Ante la ausencia de pruebas directas se deberá valorar la indiciara y todas las otras fuentes de prueba conforme al derecho común, del hostigamiento sexual.
+En caso de duda, se estará a lo que más beneficie a la persona hostigada.

@@ -1,0 +1,1 @@
+Artículo 18.—Plazo para investigar. El plazo para concluir el procedimiento no podrá exceder de dos meses. Dicho plazo se entenderá como ordenatorio, cuyo incumplimiento genera una responsabilidad para las personas del órgano de investigación.

@@ -1,0 +1,1 @@
+Artículo 20.—Sanciones. Las sanciones son las indicadas en la ley contra el hostigamiento sexual: amonestación escrita, suspensión, perdida de credencial y despido. Las sanciones serán aplicadas, según el principio de proporcionalidad, de forma que correspondan a la gravedad del hecho.
