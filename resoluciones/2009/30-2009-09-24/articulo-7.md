@@ -12,4 +12,6 @@ b) Segundo paso: identificar en la matriz las características del lote tipo aso
 c) Tercer paso: una vez identificadas las características del lote tipo se deberán aplicar los factores de corrección que permiten comparar ambos lotes (lote a valorar con el lote tipo), para efectos de establecer el valor del terreno.
 d) Cuarto paso: una vez obtenidos los factores resultantes de la comparación de las características del lote a valorar con las características del lote tipo, se deben multiplicar por valor del lote tipo.
 e) Quinto paso: para obtener el valor final del lote a valorar, se multiplica el valor obtenido en el paso anterior por el área del lote a valorar.
+f) Sexto paso: En caso de que el uso del terreno sea mixto, o sea que esté tanto el uso habitacional como otros usos, a saber: comercial, agropecuario, industriales o de servicios, se debe obtener el porcentaje del terreno dedicado a uso habitacional y multiplicarlo por el monto obtenido en el punto quinto. De no existir estos porcentajes se deja el monto de un 100%.
+(Así adicionado el inciso anterior por el artículo 2° de la resolución N° DGT-R-035 del 19 de octubre de 2011)
 Entre los factores utilizados están: área, frente, regularidad (forma), nivel, tipo de vía, pendiente, servicios públicos y ubicación.

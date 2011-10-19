@@ -1,6 +1,6 @@
 ANEXO A
 Factores de Corrección para la Valoración de Terrenos
-Mediante análisis de regresión la Dirección General de Tributación ha definido para aquellas características físicas de los terrenos, fórmulas de comparación que permiten obtener factores para explicar en muchas situaciones el comportamiento del mercado ante diferencias entre el lote tipo y el sujeto.
+Mediante análisis de regresión, la Dirección General de Tributación ha definido para aquellas características físicas de los terrenos, fórmulas de comparación que permiten obtener factores para explicar en muchas situaciones el comportamiento del mercado ante diferencias entre el lote tipo y el sujeto.
 Los elementos de comparación considerados son los siguientes:
 ▪ Área o extensión.
 ▪ Frente.
@@ -15,18 +15,21 @@ Los elementos de comparación considerados son los siguientes:
 Para cada una de estas variables se presenta una fórmula matemática que efectúa una comparación entre el sujeto a valorar y el lote tipo, esto permite obtener un factor de ajuste comparativo de cada uno de los elementos de comparación evaluados. El producto de los factores comparativos multiplicados por el precio del lote tipo, permite obtener un valor ajustado.
 1. Área o extensión: Para medir el aporte de este elemento de comparación se utiliza la siguiente fórmula, que afecta de forma directa la comparación entre las áreas del inmueble a valorar y el lote tipo:
 Donde:
+[imagen]
 · Fec = Factor de Extensión comparativo.
 · Alt = Área del lote tipo.
 · Alv = Área del inmueble a valorar.
 · n = Factor exponencial.
 El valor del factor exponencial puede variar dependiendo que se trate de una propiedad urbana, suburbana o rural, por consiguiente el valor de n para cada uno de esos casos es de:
-· Para las fincas urbanas en donde el área máxima puede ser hasta 3 hectáreas, el valor de n es de 0.33.
-· Para las fincas suburbanas en donde el área puede variar de más de 3 hectáreas hasta 10 hectáreas, el valor de n es de 0.25.
+· Para las fincas urbanas en donde el área máxima puede ser hasta 3 hectáreas , el valor de n es de 0.33.
+· Para las fincas suburbanas en donde el área puede variar de más de 3 hectáreas hasta 10 hectáreas , el valor de n es de 0.25.
 · Para las fincas rurales en donde las áreas de las fincas son de más de 10 hectáreas el valor de n es de 0.15.
 2. Factor de ajuste por frente: De igual manera que en la variable anterior, la utilización de este elemento depende fundamentalmente de la comparación que se haga del frente del inmueble a valorar respecto al lote tipo.
 Este es un elemento de comparación importante cuando se trata de propiedades urbanas o suburbanas, ya que es una de las que más afecta el valor de un inmueble, en tanto que en propiedades rurales pierde importancia.
 Para propiedades con características urbanas o suburbanas la fórmula a aplicar siguiente:
+[imagen]
 Es lo mismo que:
+[imagen]
 Donde:
 · Ffc = Factor de frente comparativo.
 · Ffv = Frente de inmueble a valorar.
@@ -37,28 +40,42 @@ Para todas aquellas fincas en las cuales su uso potencial es la actividad agríc
 Se ha observado que conforme aumenta la irregularidad de un inmueble su valor disminuye, limitando su utilización, muy especialmente, cuando la regularidad afecta las primeras porciones de un lote urbano, ya que su aprovechamiento para efectos constructivos se ve más limitado.
 Para emplear esta variable se utilizará el concepto del Área del Menor Rectángulo Circunscrito (Amrc), que se determina por la menor figura regular (cuadrado o rectángulo) que contenga el lote en estudio, como se muestra a continuación.
 Concepto de Regularidad
+[imagen]
 A = 160,00m² A = 200,00m²
 La siguiente fórmula se emplea básicamente para determinar la regularidad de cada inmueble de conformidad con lo anteriormente expuesto.
-Donde
-○ Fr = Factor de Regularidad.
-○ A = Área del lote a evaluar.
-○ Amrc = Área del menor rectángulo circunscrito.
+[imagen]
+Donde:
+R = Regularidad.
+A = Área del lote a evaluar.
+Amrc = Área del menor rectángulo circunscrito.
 Para zonas netamente urbanas en donde el terreno por su uso residencial o comercial se puede ver muy afectado por la forma, se recomienda aplicar las siguientes fórmulas.
+[imagen]
+Donde:
+R1 y R2: Regularidad según el grado de afectación de R.
 Para zonas suburbanas en donde existen terrenos con áreas de mayor tamaño se dan menores limitaciones de aprovechamiento del terreno, por lo que se recomienda el empleo de la siguiente fórmula:
-En áreas netamente rurales este factor es poco significativo; no obstante, se pueden emplear las mismas fórmulas anteriores pero con raíz quinta o sexta.
-Mediante el empleo de las fórmulas anteriores se ha comparado la regularidad del inmueble a valorar con respecto a la regularidad de una referencia de forma regular; no obstante, esa comparación también puede aplicarse contra cualquier predio del que conocen sus condiciones.
-El procedimiento a seguir es el siguiente:
+[imagen]
+Donde:
+R3: Regularidad para zona suburbana.
+En áreas netamente rurales este factor es poco significativo; no obstante, se pueden emplear las mismas fórmulas anteriores pero con raíz quinta o sexta. Mediante el empleo de las fórmulas anteriores se ha comparado la regularidad del inmueble a valorar con respecto a la regularidad de
+una referencia de forma regular; no obstante, esa comparación también puede aplicarse contra cualquier predio del que conocen sus condiciones. El procedimiento a seguir es el siguiente:
 1- Determinar la regularidad tanto del inmueble a valorar como del lote tipo, aplicando de las fórmulas anteriores la apropiada.
 2- Obtener el factor de regularidad; para ello se aplica la siguiente fórmula.
+[imagen]
 Donde:
-▪ Frc = factor de regularidad comparativo
-▪ Frv = factor de regularidad del inmueble a valorar
-▪ Fri = factor de regularidad del lote tipo
+Frc = Factor de regularidad comparativo
+Rv = Regularidad del inmueble a valorar escogida según sea urbano, suburbano o rural
+Rlt = Regularidad del lote tipo
+Ejemplo.
+Clasificación del lote | Área | Amcr | Regularidad | Urbano (Raíz cuadrada) | Factor comparativo de regularidad
+Lote a valorar | 500 | 526 | 0.95057034 | 0.903583975 | 0.903583975
+Lote tipo | 500 | 500 | 1 | 1
+| | | | | | | | |
 4. Factor de ajuste por nivel: Se refiere al nivel del inmueble con respecto a la vía pública.
 De acuerdo con estudios e investigaciones que se han realizado sobre esta materia, se ha llegado a determinar que una propiedad que se encuentra a nivel con respecto a la vía pública posee un valor mayor que otra que se ubique sobre nivel o bajo nivel. Así mismo, se ha observado que una propiedad que se encuentre sobre nivel posee un mayor valor que otra que se encuentre bajo nivel con respecto a la vía; lo anterior, en igualdad de los demás factores.
 Para facilitar el estudio de este factor se analiza separadamente el sobre nivel y el bajo nivel.
 Sobre nivel
 Como se mencionó anteriormente, una finca que se encuentra sobre nivel con respecto a la vía pública deberá tener un menor valor que otra que se encuentra a nivel de la misma, en igualdad de los demás factores. Este efecto se evalúa mediante la siguiente fórmula.
+[imagen]
 Donde:
 ▪ Fsn= Factor de sobre nivel.
 ▪ Exp= Fórmula exponencial.
@@ -67,12 +84,14 @@ Donde:
 Bajo nivel
 Ya se ha hecho referencia al caso que una propiedad que se encuentre bajo nivel con respecto a la vía pierde valor en relación con una que esté a nivel, o de otra que se encuentre sobre nivel; esto se debe a que las fincas que se encuentran bajo nivel tendrán dificultades para evacuar sus aguas, además de que se ven afectadas por las aguas pluviales de los predios vecinos que estén a un nivel superior.
 La fórmula para determinar este efecto es la siguiente:
+[imagen]
 Donde:
 ▪ Fbn = Factor de bajo nivel.
 ▪ Exp = Exponencial.
 ▪ -0.05 = Constante estadística.
 ▪ bn = Bajo nivel (m).
 Para emplear esta variable en forma comparativa debe aplicarse el cociente del factor de nivel del inmueble a valorar entre el factor de nivel del lote tipo, como se indica a continuación.
+[imagen]
 Donde:
 ▪ Fnr = Factor de nivel resultante.
 ▪ Fnv = Factor de nivel del inmueble a valorar.
@@ -82,11 +101,14 @@ Con el objeto de facilitar el estudio de este factor, se toma como referencia un
 Por consiguiente, esta variable se mide en términos porcentuales tanto en terrenos urbanos como rurales.
 Tal como se observa en la siguiente figura:
 Pendiente máxima
+[imagen]
 El grado de pendiente de una finca o de una determinada zona debe ser determinado directamente en el campo, o por medio de las curvas de nivel que aparecen en las hojas cartográficas del Instituto Geográfico Nacional.
 Como guía para determinar la pendiente puede seguirse el siguiente gráfico de pendientes:
 Gráfico de Pendientes
+[imagen]
 Este gráfico facilita al perito valuador en el campo, la determinación del grado o porcentaje de pendiente de cada finca a valorar.
 Para aplicar esta variable en forma comparativa, se debe utilizar la fórmula que se presenta a continuación.
+[imagen]
 Donde:
 ○ Fpc = Factor de pendiente comparativo.
 ○ PZ = Pendiente del lote tipo.
@@ -109,6 +131,7 @@ Clasificación | Descripción
 11 | Es la vía férrea, cuando son la única vía de acceso a estos inmuebles.
 Para el uso de esta variable con el método comparativo se debe determinar el tipo de vía tanto de la finca a valorar como del lote tipo o finca de referencia.
 En la determinación del factor comparativo se aplica la siguiente fórmula:
+[imagen]
 Donde:
 ▪ Fvc = Factor de tipo de vía comparativo
 ▪ Exp = Fórmula exponencial
@@ -132,6 +155,7 @@ Acera | Cordón y caño | Clasificación
 1 | 1 | 4
 Por consiguiente, una finca que no posea ningún servicio, tiene una clasificación de 1, mientras que si cuenta con todos los servicios enumerados se la asigna una clasificación de 4, de acuerdo con la tabla anterior.
 La fórmula para este caso es la siguiente:
+[imagen]
 Donde:
 ▪ Fs1 = Factor de servicios 1 comparativo
 ▪ Exp = Forma exponencial
@@ -162,6 +186,9 @@ Alumbrado P. | Teléfono | Electricidad | Cañería | Clasificación
 1 | 1 | 1 | 1 | 16
 El empleo de esta tabla es similar al uso de la tabla de servicios 1, por lo que debe determinarse el factor de los servicios del inmueble a valorar y del lote tipo.
 De igual manera que en el caso de los servicios 1, para determinar el efecto comparativo de los servicios 2, se debe utilizar la misma fórmula pero con la tabla para servicios 2.
+[imagen]
+8. Factor de ajuste por ubicación: La ubicación en manzana es una condición que se emplea únicamente en zonas netamente urbanas, con cuadrantes bien definidos.
+Su codificación es la siguiente.
 1 Lote manzanero
 2 Lote cabecero
 3 Lote esquinero
@@ -172,6 +199,7 @@ De igual manera que en el caso de los servicios 1, para determinar el efecto com
 8 Lote en servidumbre
 Para determinar el efecto de esta variable mediante el uso del método comparativo se deben emplear las siguientes fórmulas:
 En caso de que la finca a valorar tenga un mayor y mejor uso comercial se utiliza:
+[imagen]
 Donde:
 ▪ FUcr = Factor de ubicación comparativo para residencial.
 ▪ Exp = Fórmula exponencial.
@@ -180,4 +208,5 @@ Donde:
 ▪ -0.111 = Constante.
 Si la propiedad se encuentra en una zona residencial se aplica la siguiente fórmula.
 Valor del terreno:
-El valor del terreno a declarar será el resultante de la multiplicación del valor del lote tipo por todos los factores y finalmente por el área del lote a valorar.
+El valor del terreno a declarar será el resultante de la multiplicación del valor por metro cuadrado del lote tipo por todos los factores explicados anteriormente y finalmente por el área del lote a valorar.
+(Así reformado por el artículo 3° de la resolución N° DGT-R-035 del 19 de octubre de 2011)

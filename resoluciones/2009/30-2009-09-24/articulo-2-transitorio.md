@@ -1,1 +1,1 @@
-Transitorio II.—Plazo para la unificación de los parámetros de valoración de terrenos. El Órgano de Normalización Técnica deberá completar la entrega de los mapas y matrices de valores por zonas homogéneas a la Dirección General de Tributación quien los pondrá a disposición -mediante publicación- del sujeto pasivo para efectos de la declaración del período fiscal 2011.
+Transitorio II.—(Derogado por el artículo 4° de la resolución N° DGT-R-035 del 19 de octubre de 2011)
