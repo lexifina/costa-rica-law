@@ -1,0 +1,1 @@
+Artículo 4º—El fondo de Caja Chica N° 2 ascenderá a ¢1.000.000,00 (un millón de Colones), su encargado será el Tesorero Municipal o quien este designe y el monto máximo de cada compra será de ¢400.000,00 (cuatrocientos mil colones).
