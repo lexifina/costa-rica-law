@@ -1,0 +1,25 @@
+CIRCULAR Nº 123-11
+ASUNTO: “Política Respetuosa de la Diversidad Sexual”.
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+Y AL PÚBLICO EN GENERAL
+SE LES HACE SABER QUE:
+La Corte Plena en sesión Nº 31-11, celebrada el 19 de setiembre de 2011, artículo XIII, aprobó la “Política Respetuosa de la Diversidad Sexual”, que literalmente dice:
+“Política Respetuosa de la Diversidad Sexual
+• El sistema judicial se está configurando a nivel iberoamericano y nacional como un instrumento para el efectivo acceso a la justicia de los distintos grupos de personas que se encuentran en condición de vulnerabilidad. Para el caso costarricense, el compromiso asumido por Corte Plena en mayo del 2008 a partir de la aprobación en la XIV Cumbre de presidentes de Cortes de las “Reglas de acceso a la justicia para poblaciones en condición de vulnerabilidad”, reafirmó el compromiso institucional de velar por la búsqueda de soluciones efectivas que hagan de ese derecho una realidad para las poblaciones identificadas.
+• Las Reglas se constituyen en la política general para que los servicios que presta el Poder Judicial reconozcan las necesidades y características particulares de las personas usuarias y defina los mecanismos y procedimientos pertinentes para que los servicios que se brinden sean oportunos, eficientes y eficaces. En congruencia con ese compromiso y con la ampliación progresiva de las poblaciones consideradas inicialmente, en setiembre del 2009 se incluyó dentro de ellas a las personas no heterosexuales entendiendo que sus características y necesidades requieren de la definición de acciones particulares que permitan atender los obstáculos identificados.
+• La diversidad sexual se refiere a las diversas formas de sentir, percibir y experimentar la sexualidad humana en sus múltiples manifestaciones (lesbianas, gays, transgénero, travesti, transexuales, intersexo, bisexuales, heterosexuales). La discriminación hacia estas personas es una forma de violencia resultado de acciones o de omisiones, que pueden ser intencionada o inconsciente, sutil o abiertamente hostil. De cualquier forma, causa dolor y sufrimiento a quienes la reciben.
+• La discriminación es en muchas ocasiones producto de la falta de información y de la homofobia, entendida esta última como el conjunto de creencias, opiniones, actitudes y comportamientos de agresión, odio, desprecio, ridiculización, etc. que se producen contra las personas no heterosexuales. De similar importancia que el racismo, la xenofobia y el machismo, la discriminación por orientación sexual está fundada en arraigados estereotipos sociales y la no aceptación de la diversidad humana. (Tomado de cipac. folleto: diversidad sexual y discriminación social).
+Considerando:
+• Que el derecho a la igualdad y no discriminación de todas las personas se encuentra reconocido en diversos instrumentos internacionales de protección de los derechos humanos.
+• Que el derecho al acceso a la justicia es reconocido en los siguientes instrumentos internacionales de protección de los derechos humanos: Declaración Universal de Derechos Humanos Pacto de Derechos Civiles y Políticos y la Convención Americana de Derechos Humanos
+• Que la Constitución Política costarricense reconoce el derecho a la igualdad y al acceso a la justicia.
+El Poder Judicial costarricense se compromete con:
+1 La no discriminación por razón de orientación sexual tanto respecto a los servicios que se brindan a las personas usuarias como en el trato y las oportunidades de quienes laboran en la institución.
+2. Desarrollar todas las medidas de carácter administrativo, normativo, procedimental y operativo que sean necesarias con el fin de garantizar el respeto a los derechos de las personas sexualmente diversas tanto usuarias como funcionarias o servidoras judiciales.
+3. Asegurar los recursos humanos, materiales, financieros y técnicos necesarios, así como la creación de órganos, métodos y procedimientos adecuados para implementar esta política e incorporar criterios de descentralización para que se haga efectiva.
+4.Definir y desarrollar las acciones afirmativas o medidas que se requieran para eliminar las desigualdades en el acceso a la justicia que afectan a las personas sexualmente diversas.
+5.Desarrollar procesos sostenidos de capacitación y sensibilización a las personas servidoras judiciales para lograr un cambio de actitud en la cultura institucional respecto a las personas sexualmente diversas.
+6.Asegurar la prestación de servicios a partir de criterios de eficiencia, agilidad, cortesía y accesibilidad acordes con las demandas y necesidades de las personas sexualmente diversas, que tomen en cuenta sus características específicas y eliminen todas aquellas normas, prácticas y costumbres que tengan un efecto o resultado discriminatorios.
+7.Brindar información veraz, comprensible y accesible sobre los servicios judiciales a las personas sexualmente diversas.
+8.Deberán aplicarse las directrices de no revictimización en los casos en que sean parte personas sexualmente diversas menores de edad”.
+San José, 20 de octubre de 2011.
