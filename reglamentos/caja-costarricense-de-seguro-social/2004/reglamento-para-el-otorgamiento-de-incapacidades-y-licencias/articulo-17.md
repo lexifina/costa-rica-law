@@ -1,9 +1,10 @@
 Artículo 17.—De las licencias por maternidad. En caso de maternidad, a toda asegurada activa, se le extenderá una licencia por cuatro meses, en un solo documento, que incluye el pre y el posparto, conforme se establece en el artículo 95° del Código de Trabajo, en las leyes generales y especiales aplicables, tanto a nivel institucional como en el Sistema de Atención Integral de Medicina de Empresa.
-Cuando la licencia de maternidad se emita después del parto, se hará por tres meses a partir del nacimiento, salvo normas legales que dispongan plazos menores.
-En las complicaciones del embarazo debe protegerse a la madre con incapacidad de acuerdo con el criterio médico y estarse a lo contenido en la tabla de días, indicada en el artículo 21° de este Reglamento.
+Cuando la licencia por maternidad se emita después del parto, se hará por tres meses a partir del nacimiento, salvo normas legales que dispongan plazos menores.
+En las complicaciones del embarazo debe protegerse a la madre con incapacidad, de acuerdo con el criterio médico y estarse a lo contenido en la tabla de días, indicada en el artículo 21 de este Reglamento.
 Tratándose de aborto no intencional o parto prematuro no viable, cuando la gestación haya alcanzado las veinte semanas y no haya sobrepasado las 36 (treinta y seis) semanas el período de licencia será equivalente a la mitad del período posparto de la licencia por maternidad.
 Los casos de abortos no intencionales con menos de 20 (veinte) semanas de gestación se manejarán como complicaciones del embarazo y serán consideradas dentro de los riesgos de enfermedad y se otorgará una incapacidad de acuerdo con criterio médico.
-En caso de partos prematuros viables, con períodos de gestación mayores a las veinte semanas, la licencia se extenderá por el período completo.
-En aquellos casos que el neonato fallezca dentro del período de la licencia, ésta se mantendrá por el período completo.
-En aquellos casos de partos múltiples se extenderá un mes adicional de licencia por maternidad por cada producto vivo, una vez finalizado el período establecido de pre y posparto.
-Esta licencia adicional se extenderá en forma mensual, de acuerdo co el número de productos vivos constatados cada vez que se otorgue.
+En caso de partos prematuros viables, con períodos de gestación mayores a las veinte semanas y menores o igual a las 36 (treinta y seis) semanas y seis días, la licencia se extenderá por el período completo de cuatro meses.
+En aquellos casos en que el neonato fallezca dentro del período de la licencia otorgada, esta se mantendrá por el período completo.
+En aquellos casos de partos múltiples se extenderá un mes adicional de licencia por maternidad por cada producto vivo adicional, una vez finalizado el período establecido de pre y posparto.
+Esta licencia adicional se extenderá en forma mensual, de acuerdo con el número de productos vivos constatados cada vez que se otorgue.
+(Así reformado mediante sesión N° 8540 del 20 de octubre del 2011)

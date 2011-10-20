@@ -16,3 +16,4 @@ Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios
 | 1 | 2004-11-09 | la propia norma |
 | 2 | 2007-12-12 | SINALEVI (sin norma nombrada) |
 | 3 | 2011-05-26 | Reglamento 8509 (2011-05-26) |
+| 4 | 2011-10-20 | Reglamento 8540 (2011-10-20) |
