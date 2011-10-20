@@ -1,0 +1,1 @@
+Artículo 23.—Todos los fondos que perciba la Comisión y las donaciones en dinero efectivo, materiales y servicios deberán ser comunicados por el Tesorero en la sesión próxima inmediata que realice la Comisión, y constar en el acta respectiva.

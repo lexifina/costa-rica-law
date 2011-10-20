@@ -1,0 +1,1 @@
+Artículo 12.—El quórum para que pueda sesionar válidamente la Comisión de festejos será el de la mayoría simple de sus integrantes, sea con tres de sus miembros y las decisiones se tomarán por mayoría simple de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 5º—En la primera sesión de la Comisión entre sus miembros deberán nombrar una Junta Directiva, integrada por una o un Presidente, una o un secretario, una o un tesorero, una o un contador y una o un vocal, la cual será responsable de la dirección de cada una de las subcomisiones que la Comisión resuelva nombrar.

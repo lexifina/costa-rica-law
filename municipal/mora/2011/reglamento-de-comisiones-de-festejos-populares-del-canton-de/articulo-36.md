@@ -1,0 +1,1 @@
+Artículo 36.—El monto del fondo de caja chica dependerá del movimiento económico que pudiesen generar los festejos, a criterio de la Comisión; sin embargo dicho fondo no podrá exceder la suma de doscientos mil colones (200.000,00), monto que se incrementará anualmente en un quince por ciento.

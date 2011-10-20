@@ -1,0 +1,1 @@
+Artículo 37.—La caja chica se establecerá mediante cheque que se girará a nombre del Tesorero, quien será el responsable de su manejo y velará porque en todo momento haya dinero disponible para la atención de las necesidades urgentes y menores de la Comisión. Su remanente se depositará en la cuenta corriente bancaria de la Comisión, previo a la liquidación.

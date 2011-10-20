@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión y solidariamente sus miembros, serán responsables de la buena administración de los fondos que maneje la Comisión y del cumplimiento de la normativa legal aplicable, por lo que serán responsables solidariamente del cabal uso de los fondos, además de garantizar el adecuado funcionamiento de las actividades y eventos relativos a los festejos populares.

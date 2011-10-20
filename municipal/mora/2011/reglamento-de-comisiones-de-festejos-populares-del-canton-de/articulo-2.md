@@ -1,0 +1,1 @@
+Artículo 2º—Las Comisiones de Festejos Populares del Cantón de Mora constituyen un Órgano Colegiado perteneciente a la Municipalidad de Mora. Estarán adscritas al Concejo Municipal. Su titularidad corresponde a un conjunto de personas físicas, sujetas a las disposiciones del Concejo Municipal como su Superior Jerárquico y a la normativa que regula la materia.

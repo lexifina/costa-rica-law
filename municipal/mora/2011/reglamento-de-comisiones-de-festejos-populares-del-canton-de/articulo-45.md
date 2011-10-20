@@ -1,0 +1,1 @@
+Artículo 45.—Las contrataciones de bienes, suministros y servicios que efectúe la Comisión, deberán observar lo dispuesto en el artículo 107 de la Ley de la Administración Financiera de la República, que se refiere a las prohibiciones establecidas para celebrar contratos administrativos y las prohibiciones de los artículos 22 y 22 bis de la Ley de Contratación Administrativa.

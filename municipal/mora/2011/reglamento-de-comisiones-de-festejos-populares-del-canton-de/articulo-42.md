@@ -1,0 +1,1 @@
+Artículo 42.—Para el registro de las operaciones de la Comisión de Festejos el Tesorero y el Contador de la Comisión deberán elaborar el respectivo detalle de cuentas contables que identifique adecuadamente todos los ingresos y egresos que se originen durante los festejos.
