@@ -1,0 +1,2 @@
+Artículo 39.—Modificación del Reglamento. El Concejo Municipal según su competencia podrá hacer modificaciones al presente reglamento, sin embargo dichas modificaciones deberán ser avaladas previamente por el Auditor Interno, si las mismas proceden. Así mismo el Auditor Interno, podrá proponer las modificaciones que considere oportunas al presente reglamento las cuales serán elevadas al Concejo Municipal para su debido trámite de aprobación.
+Rige a partir de la fecha de su publicación.

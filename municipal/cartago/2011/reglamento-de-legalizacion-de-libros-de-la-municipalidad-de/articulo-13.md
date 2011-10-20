@@ -1,0 +1,4 @@
+Artículo 13.—Empaste de folios. Los libros deberán enviarse a empastar con empaste fino, que deberá tener las siguientes características:
+a. Al lomo: Municipalidad de Cartago, nombre de la unidad (Contabilidad, Concejo Municipal, Comisión de….etc.), periodo (de mes a mes) o actas de la número……a la……., tomo número y el año.
+b. Al frente se indica: Municipalidad de Cartago, nombre de la unidad, nombre del libro, periodo (de mes a mes) o actas de la número…… a la…… tomo número y el año.
+Será responsabilidad de la persona encargada de llevar el libro a empastar, verificar que no se hayan desprendido hojas o alterado de cualquier manera la encuadernación o foliación de los libros. Si se comprueba alguna anomalía, la Unidad de Auditoría Interna como encargada de la fiscalización deberá solicitar las razones por las cuales se incurrió en esta falta y si es el caso recomendar la apertura de un procedimiento administrativo que aclare lo sucedido.

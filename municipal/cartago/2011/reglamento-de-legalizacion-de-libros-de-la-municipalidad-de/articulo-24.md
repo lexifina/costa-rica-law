@@ -1,0 +1,1 @@
+Artículo 24.—Respaldo. El funcionario municipal encargado de los libros será el responsable, de mantener en custodia un respaldo en un medio magnético de todos los registros efectuados según fuese pertinente.
