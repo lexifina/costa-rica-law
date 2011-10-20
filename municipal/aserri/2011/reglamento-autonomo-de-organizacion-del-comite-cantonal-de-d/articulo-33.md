@@ -1,0 +1,1 @@
+Artículo 33.—Cada Comisión elaborará un plan de trabajo y rendirá un informe escrito al comité respectivo sobre las actividades realizadas y resultados obtenidos, sobre los fines para los cuales fueron nombrados.

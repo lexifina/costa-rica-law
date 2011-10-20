@@ -1,0 +1,1 @@
+Artículo 27.—En ausencia de norma expresa en este reglamento se aplicarán supletoriamente el Código Municipal, la Ley General de la Administración Pública, la Ley de Contratación Administrativa y su reglamento, la Ley General de Control Interno y los Reglamentos vigente en la Municipalidad de Aserrí.

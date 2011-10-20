@@ -1,0 +1,2 @@
+Artículo 75.—Las instalaciones deportivas existentes en instituciones educativas, gimnasios, plazas, estadios, pistas de atletismo, piscinas y otras que hayan sido construidos con fondos públicos o por dependencias gubernamentales, deberán ponerse al servicio de las respectivas comunidades del cantón, tanto durante el curso lectivo como en el periodo de vacaciones. Su administración estará en el artículo 86 de la Ley 7800, Ley de creación del Instituto Costarricense del Deporte y la Recreación.
+Rige a partir de su publicación.

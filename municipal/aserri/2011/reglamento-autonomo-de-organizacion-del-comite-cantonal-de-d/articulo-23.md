@@ -1,0 +1,1 @@
+Artículo 23.—El Comité conocerá en sus sesiones sus proyectos, planes, estudios y conflictos. Los miembros pueden acoger mociones de particulares relacionados con el deporte y la recreación y ser conocidas por el Comité en las sesiones venideras.

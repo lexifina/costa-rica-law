@@ -1,0 +1,1 @@
+Artículo 26.—De los recursos: Los actos administrativos tomados por los funcionarios de la Institución y los miembros del comité tendrán los recursos ordinarios de REVOCATORIA Y APELACIÓN y el extraordinario de REVISIÓN, que se regirán por los artículos 155, 156, 157 y 161 del Código Municipal.

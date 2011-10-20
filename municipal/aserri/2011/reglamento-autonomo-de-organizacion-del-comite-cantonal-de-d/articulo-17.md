@@ -1,0 +1,1 @@
+Artículo 17.—En la primera sesión, que deberá realizarse 8 días después de la firmeza del nombramiento del Comité Cantonal por parte del Concejo Municipal, mediante votación secreta, se designarán los cargos de Presidente, Vicepresidente, Secretario, Tesorero y Vocal.

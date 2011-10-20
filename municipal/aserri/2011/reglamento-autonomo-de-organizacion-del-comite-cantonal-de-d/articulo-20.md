@@ -1,0 +1,1 @@
+Artículo 20.—El quórum para sesionar será con tres de sus miembros. Los acuerdos se toman por mayoría simple y en caso de empate el Presidente tendrá voto doble. Cuando se trate del plan-presupuesto anual, éste debe de ser aprobado por mayoría calificada.

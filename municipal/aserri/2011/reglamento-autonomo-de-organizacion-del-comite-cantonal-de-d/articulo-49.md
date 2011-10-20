@@ -1,0 +1,1 @@
+Artículo 49.—Los miembros de la Junta Directiva del Comité Comunal desempeñarán iguales funciones que los miembros del Comité Cantonal. Serán juramentados por el Presidente del Comité Cantonal o por quien el designe. Dichos nombramientos deberán ser comunicados al Concejo Municipal durante el mes siguiente a la instalación.

@@ -1,0 +1,1 @@
+Artículo 5º—El Comité Cantonal, de acuerdo con el plan operativo anual aprobado por el Concejo Municipal, establecerá los controles para que sus órganos y afiliados cumplan con las condiciones asignadas para lograr sus políticas y su gestión de fomentar, tutelar y dirigir el deporte y la recreación en el cantón.

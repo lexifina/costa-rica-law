@@ -1,0 +1,1 @@
+Artículo 44.—El Comité Cantonal y sus órganos solo podrán invertir sus fondos en terrenos del Estado y en propiedades de la Municipalidad de Aserrí, y en aquellas instalaciones que estén bajo su administración y que cuenten con el respectivo convenio para ello.

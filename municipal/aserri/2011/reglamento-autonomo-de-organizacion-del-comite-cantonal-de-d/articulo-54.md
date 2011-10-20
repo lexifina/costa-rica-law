@@ -1,0 +1,1 @@
+Artículo 54.—Los Comités Comunales con fondos disponibles en sus cuentas, podrán proponer la creación de una caja chica a la Junta Directiva del Comité Cantonal, para asumir gastos de menor cuantía y de carácter urgente, cuyo monto será fijado por ésta.

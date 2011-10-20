@@ -1,0 +1,1 @@
+Artículo 39.—El presupuesto del Comité Cantonal y sus distintos órganos debe elaborarse reflejando los planes propuestos y programas por ejecutar en el periodo que cubre; los gastos presupuestarios no pueden exceder los ingresos estimados.

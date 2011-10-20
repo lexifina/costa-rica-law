@@ -1,0 +1,1 @@
+Artículo 42.—Los ingresos del Comité Cantonal solamente se podrán invertir en obras de interés deportivo y recreativo ubicadas dentro de los límites del Cantón de Aserrí.

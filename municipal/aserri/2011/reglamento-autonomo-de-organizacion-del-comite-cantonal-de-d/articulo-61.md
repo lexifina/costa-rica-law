@@ -1,0 +1,1 @@
+Artículo 61.—La Asamblea Comunal se convocara obligatoriamente al menos con quince días de anticipación para elegir los nuevos miembros de la junta directiva de una determinada jurisdicción deportiva donde haya sido establecido un Comité Comunal. Podrá ser convocada en cualquier momento para tratar asuntos de interés deportivo, recreativo o administrativo-financiero.
