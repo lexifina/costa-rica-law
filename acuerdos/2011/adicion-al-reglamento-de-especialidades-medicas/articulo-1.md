@@ -1,0 +1,13 @@
+COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+La Junta de Gobierno en la sesión ordinaria 2011-09-21 celebrada el 21 de setiembre del año dos mil once, acuerda lo siguiente:
+1.Incluir a la Subespecialidad de Cardiología Intervencionista y Hemodinamia en la lista oficial reconocida por el Colegio de Médicos y Cirujanos.
+2. Establecer los siguientes requisitos específicos para la inscripción en la misma. Subespecialidad en Cardiología Intervencionista y Hemodinamia
+a. Estar debidamente inscrito y acreditado como Especialista en Cardiología, ante el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación y acreditación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Cardiología Intervencionista y Hemodinamia, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+3. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Subespecialidad de Cardiología Intervencionista y Hemodinamia, el cumplimiento de todos los requisitos establecidos, generales y específicos, en el Reglamento de Especialidades Médicas y demás legislación relacionada vigente.
+4. Establecer un período de inscripción, para los médicos que demuestren y acrediten experiencia en esta subespecialidad, en los siguientes términos:
+Transitorio:
+I. Los Médicos Especialistas en Cardiología, con experiencia en el área de la Cardiología Intervencionista y Hemodinamia, podrán inscribirse al Colegio de Médicos y Cirujanos como Subespecialistas en Cardiología Intervencionista y Hemodinamia, presentando los siguientes atestados:
+a. Estar debidamente inscrito y acreditado como Especialista en Cardiología, ante el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Experiencia certificada de 5 años de laborar en Costa Rica (contados a partir desde el momento de la inscripción como Especialista en Cardiología ante el Colegio de Médicos y Cirujanos de Costa Rica) en el área de la Subespecialidad en Cardiología Intervencionista y Hemodinamia, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio; practicando Procedimientos de Intervención Coronaria, con un mínimo de 50 Angioplastías Coronarias Percutáneas por año, ya sea con balón o stent. Las certificaciones deberán ser extendidas por el Director Médico del Centro y el Departamento de Estadística.
+II. Este transitorio tendrán una vigencia de 6 meses, a partir de la fecha de aprobación del presente acuerdo de Junta de Gobierno y su respectiva publicación en el Diario Oficial La Gaceta; automáticamente una vez cumplido este plazo, quedará sin vigencia su aplicación.
