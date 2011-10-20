@@ -1,0 +1,1 @@
+Artículo 6º—Se pagará hospedaje únicamente en aquellos casos en que, por la hora de finalización de las sesiones municipales, resulte imposible acceder al domicilio del beneficiario, por los medios de ordinarios de trasporte regulados en este reglamento.
