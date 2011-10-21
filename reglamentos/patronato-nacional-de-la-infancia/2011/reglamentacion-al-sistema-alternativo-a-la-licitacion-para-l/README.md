@@ -14,3 +14,4 @@ Reglamentación al sistema alternativo a la licitación para la contratación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-21 | la propia norma |
+| 2 | 2011-10-21 | Reglamento 0 (2011-10-21) |
