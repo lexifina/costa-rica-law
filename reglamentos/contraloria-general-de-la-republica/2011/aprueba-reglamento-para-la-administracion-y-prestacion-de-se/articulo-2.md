@@ -1,0 +1,1 @@
+2º—Derogar el “Reglamento para la Administración y Prestación de Servicios de Transporte en la Contraloría General de la República”, publicado en La Gaceta Nº 21 del treinta de enero del dos mil tres.
