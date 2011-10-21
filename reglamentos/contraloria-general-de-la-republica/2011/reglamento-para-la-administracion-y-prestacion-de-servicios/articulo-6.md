@@ -1,0 +1,1 @@
+Artículo 6. Administración del servicio: Corresponderá a la Unidad de Gestión Administrativa la administración del servicio de transporte. En consecuencia, tendrá bajo su responsabilidad el control sobre el uso, asignación y mantenimiento de los vehículos propiedad de la Contraloría, debiendo velar por el cumplimiento de este Reglamento y demás normativa aplicable.

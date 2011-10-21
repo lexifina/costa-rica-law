@@ -1,0 +1,1 @@
+Artículo 2. Vehículos de la Institución: Se consideran vehículos propiedad de la Contraloría todas aquellas unidades automotrices que el órgano contralor haya adquirido o que le hayan donado y se encuentren inscritas o en trámite de inscripción en el Registro de Bienes Muebles del Registro Nacional

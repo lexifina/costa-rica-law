@@ -1,0 +1,1 @@
+Artículo 18. Inicio y finalización del servicio: La Contraloría General de la República será el punto de partida y conclusión de un servicio de transportes salvo que el usuario o la usuaria señale que el servicio se brinde de la institución a visitar a la Contraloría.

@@ -1,0 +1,1 @@
+Artículo 9. Registros de Control: Corresponderá a la Unidad de Gestión Administrativa implementar los registros de control interno requeridos para la efectiva administración del servicio, los cuales serán detallados en el Manual de Transporte institucional.

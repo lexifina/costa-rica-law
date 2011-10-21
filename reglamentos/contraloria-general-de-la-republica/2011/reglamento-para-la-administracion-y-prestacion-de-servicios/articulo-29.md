@@ -1,0 +1,1 @@
+Artículo 29. Apoyo de la Unidad Jurídica Interna: Corresponderá a la Unidad Jurídica Interna brindar el soporte legal que la atención de los casos de accidente generen, en representación exclusiva de los intereses del órgano contralor.

@@ -1,0 +1,1 @@
+Artículo 21. Uso de vehículos fuera del país: Corresponderá al Despacho Contralor autorizar la salida del país de los vehículos de la Contraloría cuando las situaciones de trabajo así lo demanden, lo cual deberá constar en forma escrita.

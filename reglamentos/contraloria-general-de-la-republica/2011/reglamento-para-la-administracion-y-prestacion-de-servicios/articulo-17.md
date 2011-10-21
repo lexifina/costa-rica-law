@@ -1,0 +1,2 @@
+Artículo 17. Opciones para la prestación del servicio: El servicio de transporte de la institución se prestará mediante la utilización de los vehículos institucionales, o bien, utilizando medios de transportes público (taxi, autobús, entre otros).
+En el caso de que se tenga que utilizar un medio de transporte público, se le avisará al usuario o usuaria que debe utilizar esta opción, para lo cual se le brindaran los recursos necesarios para cancelar la prestación del servicio.

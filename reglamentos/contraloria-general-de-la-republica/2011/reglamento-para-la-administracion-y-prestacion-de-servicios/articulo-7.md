@@ -1,0 +1,1 @@
+Artículo 7. Conducción de los vehículos: La conducción de los vehículos estará a cargo de los conductores y conductoras institucionales designados para el ejercicio de estas labores, así como de cualquier funcionaria o funcionario del órgano contralor que haya sido autorizado por la Unidad de Gestión Administrativa para conducir vehículos de la institución.

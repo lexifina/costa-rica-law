@@ -1,0 +1,1 @@
+Artículo 26. Acerca de arreglos extrajudiciales: Bajo ninguna circunstancia se permite a funcionario o funcionaria alguna efectuar ningún tipo de arreglo extrajudicial, sin contar de previo con la venia del Despacho Contralor.
