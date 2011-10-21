@@ -17,3 +17,4 @@ Plan Nacional de Desarrollo del Ministerio de Planificación Nacional y Polític
 | 2 | 2006-08-03 | Decreto Ejecutivo 33342 (2006-08-03) |
 | 3 | 2007-03-14 | Decreto Ejecutivo 33695 (2007-03-14) |
 | 4 | 2011-02-18 | Decreto Ejecutivo 36464 (2011-02-18) |
+| 5 | 2011-10-21 | Decreto Ejecutivo 36843 (2011-10-21) |
