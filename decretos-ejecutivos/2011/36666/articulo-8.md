@@ -1,0 +1,1 @@
+Artículo 8º—El carné de manipulador de alimentos tendrá una vigencia de cinco años, contados a partir de la fecha de emisión del certificado del curso de manipulación de alimentos y de sus actualizaciones.
