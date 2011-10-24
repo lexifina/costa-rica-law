@@ -1,0 +1,1 @@
+Artículo 3º—Podrá ser candidato a miembro de la Junta Directiva del Consejo Nacional de Producción, cualquiera de los representantes de las organizaciones de pequeños productores agropecuarios, incluidos los Centros Agrícolas Cantonales, acreditados ante el Foro Regional Mixto.

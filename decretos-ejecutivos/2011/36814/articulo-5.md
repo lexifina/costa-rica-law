@@ -1,0 +1,1 @@
+Artículo 5º—Para la celebración de estas asambleas los miembros presentes designarán a uno de sus miembros como Presidente quien dirigirá el proceso, resolverá las incidencias que se presenten y levantará un acta de lo acordado.

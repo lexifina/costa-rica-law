@@ -1,0 +1,2 @@
+Artículo 7º—El acuerdo donde se designa al representante ante la Junta Directiva del Consejo Nacional de Producción será tomado en firme y para acreditar al miembro electo, el Presidente, certificará el mismo para enviarlo a la Ministra de Agricultura y Ganadería, para que ésta a su vez, lo comunique a la Junta Directiva del CNP para los fines pertinentes.
+Este nombramiento será por el plazo de dos años.
