@@ -1,5 +1,2 @@
-Artículo 73.—La suspensión de trabajo se aplicará hasta por quince días y sin goce de sueldo en los casos siguientes:
-a) Cuando el servidor, después de haber sido amonestado por escrito, incurra de nuevo en la falta que motivó la amonestación;
-b) Cuando el servidor viole alguna de las obligaciones de los artículos 29 y 30 de este Reglamento, después de haber sido apercibido por escrito, salvo que la falta diere mérito para el despido o estuviere sancionada por otra disposición de este Reglamento;
-c) Cuando el servidor cometa alguna falta de cierta gravedad que no dé mérito para el despido, excepto que estuviere sancionada de manera especial por otra disposición de este Reglamento; y
-d) En los casos expresamente contemplados en este Reglamento.
+Artículo 73.- Cuando las o los servidores cometan faltas que representen incumplimientos de las obligaciones, de las prohibiciones o de los deberes de la relación de servicio, se les aplicarán suspensiones sin goce de salario hasta por quince días si la naturaleza de la falta se considera de cierta gravedad o grave sin que amerite el despido, en los procedimientos de conocimiento que se lleven a cabo para analizar los hechos ocurridos. También se aplicarán suspensiones sin goce de salario en los casos en que la naturaleza de la falta sea de cierta gravedad, pero la conducta irregular reincidente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36860 del 24 de octubre del 2011)

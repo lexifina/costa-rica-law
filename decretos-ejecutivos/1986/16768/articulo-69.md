@@ -1,6 +1,7 @@
-Artículo 69.—Las faltas en que incurran los servidores serán sancionadas con las siguientes medidas disciplinarias:
+Artículo 69.- Las faltas en que incurran las o los servidores serán sancionadas con las siguientes medidas disciplinarias:
 a) Amonestación verbal;
-b) Apercibimiento escrito;
-c) Suspensión de trabajo sin goce de salario hasta por quince días; y
+b) Amonestación escrita;
+c) Suspensión de trabajo sin goce de salario hasta por quince días;
 d) Despido sin responsabilidad patronal.
-Las amonestaciones verbales o escritas, deberán imponerse dentro de los ocho días posteriores a aquel en que se cometió la falta o que la misma fuere de conocimiento del Ministerio.
+Las sanciones no se aplicarán en el orden en que aparecen, sino conforme a lo normado o atendiendo a la gravedad de la falta.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36860 del 24 de octubre del 2011)

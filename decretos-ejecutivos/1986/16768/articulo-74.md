@@ -1,8 +1,2 @@
-Artículo 74.—Son causales de despido:
-a) Las contempladas en el artículo 81 del Código de Trabajo;
-b) Solicitar o recibir dinero, o cualquier otro beneficio material, valiéndose de su condición de funcionario de MIDEPLAN;
-c) Revelar asuntos reservados, confidenciales o secretos, de los cuales el servidor tenga conocimiento;
-d) Falsear los motivos aducidos con ocasión de la petición de permisos o licencias; presentar documentos falsificados o alterados, o utilizar el tiempo de permiso para una finalidad distinta de aquella para lo cual fue otorgado;
-e) Cualquier otra falta grave contra los deberes de la función pública; y
-f) Los demás casos previstos en el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, la Ley General de la Administración Financiera de la República, el Reglamento de la Contratación Administrativa o en leyes o disposiciones especiales.
-Los despidos de los servidores amparados por el Régimen de Servicio Civil, se tramitarán conforme con lo dispuesto por el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en este Reglamento.
+Artículo 74.- Cuando las o los servidores cometan faltas que representen incumplimientos de las obligaciones, de las prohibiciones o de los deberes de la relación de servicio podrán ser despedidos sin responsabilidad patronal conforme las causales establecidas legalmente o cuando la naturaleza de la falta se considera grave en conformidad con las disposiciones legales establecidas en el Estatuto de Servicio Civil, en su Reglamento, en el Código de Trabajo y otras leyes, en los procedimientos de conocimiento que se lleven a cabo para analizar los hechos ocurridos. También se aplicarán despidos sin responsabilidad patronal en los casos en que la naturaleza de la falta sea de cierta gravedad, pero la conducta irregular reincidente. Los despidos de las o los servidores amparados por el Régimen de Servicio Civil se tramitarán conforme con lo dispuesto por el Estatuto y su Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36860 del 24 de octubre del 2011)

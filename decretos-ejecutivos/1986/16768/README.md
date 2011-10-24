@@ -16,3 +16,4 @@ Reglamento Autónomo de Servicio del Ministerio de Planificación Nacional y Pol
 | 1 | 1986-02-01 | la propia norma |
 | 2 | 1995-09-29 | Decreto Ejecutivo 24710 (1995-09-29) |
 | 3 | 2001-10-12 | Decreto Ejecutivo 30297 (2001-10-12) |
+| 4 | 2011-10-24 | Decreto Ejecutivo 36860 (2011-10-24) |

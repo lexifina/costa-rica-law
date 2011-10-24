@@ -1,4 +1,2 @@
-Artículo 71.—El apercibimiento escrito se aplicará:
-a) Cuando el trabajador haya merecido durante un mismo mes calendario dos o más amonestaciones verbales;
-b) Cuando incumpla alguna de las obligaciones establecidas en los artículos 29 y 30 si la falta no tuviere mérito para una sanción mayor; y
-c) En los casos especialmente previstos por este Reglamento.
+Artículo 71.- Cuando las o los servidores cometan faltas que representan incumplimientos de las obligaciones, de las prohibiciones o de los deberes de la relación de servicio, se les aplicarán amonestaciones escritas si la naturaleza de la falta se considera medianamente grave en los procedimientos de conocimiento o de constatación que se lleven a cabo para analizar los hechos ocurridos. También se aplicarán amonestaciones escritas en los casos en que la naturaleza de la falta sea leve, pero la conducta irregular reincidente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36860 del 24 de octubre del 2011)
