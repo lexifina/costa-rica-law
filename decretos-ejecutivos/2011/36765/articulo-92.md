@@ -1,0 +1,1 @@
+Artículo 92.—Gestión Institucional de Recursos Humanos será el responsable directo de implementar los rebajos de salario producto de las llegadas tardías, las ausencias, el abandono de trabajo o las suspensiones de trabajo sin goce de salario del personal, de acuerdo con la información que le sea remitida por el (la) funcionario(a) respectivo(a).

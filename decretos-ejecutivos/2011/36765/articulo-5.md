@@ -1,0 +1,12 @@
+Artículo 5º—Además de las contempladas en el artículo anterior y las señaladas en el presente Reglamento, los (las) directores (as), jefes departamentales y coordinadores (as) de áreas tendrán las siguientes obligaciones:
+a) Planear y programar las acciones estratégicas y operativas pertinentes y formular los anteproyectos de presupuesto correspondientes a sus áreas de trabajo.
+b) Planificar sus labores, orientar y guiar a sus colaboradores (as), para que las actividades y procesos asignados se desarrollen conforme con las normas de eficiencia y calidad deseadas.
+c) Velar porque el personal bajo su dirección, coordinación y supervisión cumpla con las normas de disciplina establecidas y con el horario de trabajo asignado, así como con las obligaciones que le correspondan como funcionario(a) público(a).
+d) Efectuar la evaluación del desempeño del personal a su cargo en forma objetiva, oportuna y veraz, comunicando su resultado en el plazo que se indique en la normativa vigente tanto a los interesados como a Gestión Institucional de Recursos Humanos.
+e) Crear y mantener una cultura de trabajo orientada a estimular en los funcionarios bajo su dirección, coordinación y supervisión el trabajo en equipo, sustentado en un enfoque de procesos y productos, con una actitud de creatividad y anticipación a los cambios.
+f) Autorizar el disfrute de vacaciones por parte de los funcionarios a su cargo, procurando que no se presente una acumulación de éstas y planificando su disfrute en forma anual para que no se perjudique el normal funcionamiento del servicio institucional.
+g) Remitir de manera inmediata las incapacidades de sus colaboradores a Gestión Institucional de Recursos Humanos para el trámite respectivo.
+h) Indicar a los (las) funcionarios (as) a su cargo, con la mayor claridad, el detalle de las funciones y responsabilidades que le corresponden, en concordancia con la clasificación del puesto que ostenta, tanto al inicio de sus funciones como en el momento en que haya una variación de éstas.
+i) Reportar a Gestión Institucional de Recursos Humanos las ausencias o llegadas tardías de los funcionarios que están exentos de registrar su asistencia.
+j) Reportar, en el momento en que lleguen a su conocimiento, aquellas conductas de sus colaboradores (as) que sean contrarias al ordenamiento jurídico vigente.
+k) Cumplir con todas las demás obligaciones propias del cargo.

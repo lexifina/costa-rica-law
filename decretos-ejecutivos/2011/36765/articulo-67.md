@@ -1,0 +1,1 @@
+Artículo 67.—Resolución final. El (la) Ministro(a) o, quien en ausencia lo (la) sustituya, tendrá cinco días naturales para resolver lo que corresponda. En caso de que exista mérito suficiente para recomendar el despido de la persona denunciada, el (la) Ministro(a) elevará el asunto ante la Dirección General de Servicio Civil para la resolución final.

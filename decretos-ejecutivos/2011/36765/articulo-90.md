@@ -1,0 +1,1 @@
+Artículo 90.—Para la aplicación de cualquier sanción, deberá efectuarse un procedimiento administrativo ordinario de conformidad con lo dispuesto en la Ley General de la Administración Pública, Libro Segundo, excepto para faltas leves de fácil constatación o cuando exista una aceptación expresa de la falta que se imputa, en cuyos casos se podrá efectuar un proceso sumario.

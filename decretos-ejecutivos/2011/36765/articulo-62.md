@@ -1,0 +1,1 @@
+Artículo 62.—Evacuación de la prueba. Una vez recibida a la persona denunciante, se procederá a la evacuación de la prueba ofrecida por las partes. Tratándose de prueba testimonial, la citación se hará con al menos tres días hábiles de anticipación.

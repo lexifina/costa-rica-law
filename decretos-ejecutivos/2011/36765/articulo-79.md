@@ -1,0 +1,1 @@
+Artículo 79.—Las áreas de Recursos Humanos de los órganos desconcentrados deberán gestionar las denuncias y reaperturas de riesgos del trabajo, remitiendo copia de la misma a Gestión Institucional de Recursos Humanos del Ministerio.

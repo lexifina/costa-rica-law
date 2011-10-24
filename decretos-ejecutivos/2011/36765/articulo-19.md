@@ -1,0 +1,1 @@
+Artículo 19.—El (la) jefe(a) inmediato(a) deberá comunicar a Gestión Institucional de Recursos Humanos y a más tardar dentro de los cinco días hábiles una vez vencido el mes, las irregularidades presentadas por sus colaboradores (as) para que se proceda según corresponda. El (la) Jefe(a) que incumpliera con la presentación de este reporte incurrirá en falta grave.

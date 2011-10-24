@@ -1,0 +1,1 @@
+Artículo 28.—Las vacaciones deben disfrutarse sin interrupciones. No obstante, si durante el goce de las mismas el (la) servidor(a) resulta incapacitad (a), el período se interrumpe y los días que falten por disfrutar se concederán al término de la incapacidad o en cualquier otro tiempo, en coordinación con el (la) superior inmediato(a).

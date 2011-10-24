@@ -1,0 +1,3 @@
+CAPÍTULO XVII
+De la Contraloría de Servicios
+Artículo 96.—La Contraloría de Servicios estará adscrita al (la) Ministro(a) y en los órganos adscritos al (la) jerarca respectivo(a), y conocerá de las quejas, peticiones, reclamos y sugerencias surgidas en la relación del servicio brindado por el Ministerio y su personal, las que deberán ser trasladadas a los (as) responsables de cada dependencia, programa o equipo de trabajo correspondiente. Esto se hará en forma escrita, pero si la urgencia del caso lo amerita, puede hacerse verbalmente. En cualquier caso se debe proceder en forma respetuosa y objetiva.

@@ -1,0 +1,1 @@
+Artículo 24.—Cuando la ausencia no sea por enfermedad y sea justificada por el (la) jefe(a) inmediato(a), se procederá con el rebajo salarial por la jornada correspondiente. En caso de que la ausencia no sea justificada, se realizará el rebajo salarial y se aplicará la sanción disciplinaria correspondiente.

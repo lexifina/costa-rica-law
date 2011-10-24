@@ -1,0 +1,5 @@
+Artículo 56.—De la integración de la comisión investigadora. La comisión investigadora estará conformada por tres funcionarios (as) de la institución, designados por el (la) Ministro(a), en la siguiente forma:
+a) El (la) Director(a) de Gestión Institucional de Recursos Humanos, quien coordinará la Comisión Investigadora. En caso de que el (la) Director(a) de Gestión Institucional de Recursos Humanos no pudiera asumir el cargo, la designación recaerá en alguno(a) de sus colaboradores (as).
+b) Un(a) profesional con grado de licenciatura en leyes y con conocimientos en materia disciplinaria, quien velará porque se respete el debido proceso y tendrá en custodia el expediente administrativo.
+c) Un(a) Profesional en medicina o psicología.
+Dependiendo del sexo del denunciante, la comisión investigadora estará conformada en mayoría, por su igual. Cada uno de los (las) integrantes tendrán su respectivo suplente para aquellas ausencias de fuerza mayor, por parte de los (las) titulares. Todos (as) estos (as) funcionarios (as) tendrán el deber de mantener la confidencialidad sobre lo conocido y resuelto en el caso.

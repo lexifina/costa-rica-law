@@ -1,0 +1,1 @@
+Artículo 82.—El Ministerio debe proporcionar las facilidades necesarias con el fin de que todos (as) los (as) trabajadores (as), sin discriminación alguna, puedan capacitarse y superarse en el empleo.

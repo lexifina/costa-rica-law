@@ -1,0 +1,1 @@
+Artículo 99.—Conforme con lo que establece el artículo 9 de la Ley de Salarios de la Administración Pública, No 2166 del 9 de octubre de 1957, no constituyen salario en especie los suministros adicionales otorgados ocasionalmente, como gastos de alojamiento, alimentación, vehículo, uniformes, viáticos o gastos de viaje.

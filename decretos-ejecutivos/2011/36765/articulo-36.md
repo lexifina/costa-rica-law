@@ -1,0 +1,1 @@
+Artículo 36.—La servidora embarazada gozará obligatoriamente de un subsidio salarial durante el mes anterior al parto y los tres posteriores a éste. Si el parto se retrasara, no se alterará su derecho a esta licencia, pero si el alumbramiento se anticipa, gozará de los tres meses posteriores al mismo.

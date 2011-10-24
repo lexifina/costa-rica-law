@@ -1,0 +1,1 @@
+Artículo 77.—El Ministerio, mediante Gestión Institucional de Recursos Humanos, facilitará la realización de actividades de formación humanística, intelectual, deportiva y recreativa que le permita al personal el desarrollo de sus aptitudes, la integración de grupos y un saludable y adecuado estado físico y mental.

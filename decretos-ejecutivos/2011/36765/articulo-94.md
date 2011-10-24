@@ -1,0 +1,1 @@
+Artículo 94.—La gestión de despido de un(a) servidor(a) regular se efectuará siguiendo el procedimiento que establece el Estatuto y su Reglamento y lo que dispone el Código de Trabajo, cuando se trate de servidores (as) no protegidos (as) por el Régimen de Servicio Civil.

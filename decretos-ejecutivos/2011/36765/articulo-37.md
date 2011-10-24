@@ -1,0 +1,1 @@
+Artículo 37.—En período de lactancia la servidora podrá disponer de una hora diaria, continua o fraccionada, con goce de salario para amamantar a su hijo(a) durante los doce meses posteriores al alumbramiento.

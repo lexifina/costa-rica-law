@@ -1,0 +1,1 @@
+Artículo 8º—Ningún(a) funcionario(a) puede alegar derechos adquiridos cuando por error o infracciones a la legislación se le haya otorgado un beneficio que no corresponde, en los términos establecidos en la Ley General de la Administración Pública.

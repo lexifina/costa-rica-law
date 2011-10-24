@@ -1,0 +1,1 @@
+Artículo 13.—No se reconocerá el tiempo extraordinario laborado sin la autorización previa de la jefatura inmediata, del (la) director(a) del área o de la máxima autoridad institucional, en el entendido de que la jornada extraordinaria es de naturaleza excepcional, por lo que no se puede autorizar una jornada extraordinaria permanente.

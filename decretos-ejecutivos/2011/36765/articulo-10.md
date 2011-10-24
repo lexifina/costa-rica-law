@@ -1,0 +1,2 @@
+Artículo 10.—La jornada ordinaria de trabajo para el personal del Ministerio es acumulativa y continua, de lunes a viernes. Se inicia a las ocho horas y concluye a las dieciséis horas. Dentro de esta jornada el personal disfrutará de cuarenta y cinco minutos para almorzar y de diez minutos en la mañana y diez minutos en la tarde para tomar un refrigerio.
+Los (as) jefes serán responsables directos de que el personal a su cargo cumpla con esta jornada de trabajo.

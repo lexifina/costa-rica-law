@@ -1,0 +1,1 @@
+Artículo 12.—Cuando necesidades imperiosas del Ministerio lo requieran, el personal queda en la obligación de laborar horas extraordinarias salvo que razones justificadas lo impidan, pero en ningún caso la jornada ordinaria sumada a la extraordinaria podrá ser superior a doce horas diarias.

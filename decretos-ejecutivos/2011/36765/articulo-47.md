@@ -1,0 +1,1 @@
+Artículo 47.—De la abstención y de la recusación. La aplicación de la abstención y de la recusación a los (las) miembros (as) de la comisión investigadora se regirá por el proceso establecido en los numerales 230, siguientes y concordantes, de la Ley General de la Administración Pública y el Código Procesal Civil.

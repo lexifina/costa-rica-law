@@ -1,0 +1,1 @@
+Artículo 73.—Considerando la gravedad de los hechos, si se logra determinar que un(a) funcionario(a) incurrió en acoso laboral se podrá sancionar de acuerdo a lo estipulado en el Capítulo XII de este Reglamento.

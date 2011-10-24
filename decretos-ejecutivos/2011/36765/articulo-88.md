@@ -1,0 +1,1 @@
+Artículo 88.—Se consideran faltas graves la violación al artículo 4º, literales g), ñ), o), r) s) y al artículo 6, literales c), d), e), h), m), n), ñ), o), r), s), v), w), así como a todas las obligaciones contenidas en el artículo 5.

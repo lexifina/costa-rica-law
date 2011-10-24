@@ -1,0 +1,1 @@
+Artículo 18.—Todo(a) servidor(a), además de comunicar inmediatamente a su superior inmediato su ausencia al trabajo, cuenta con dos días hábiles después de su ingreso para aportarle las pruebas necesarias que justifiquen su ausencia. En el caso de llegada tardía el (la) funcionario(a) debe presentar la justificación de manera inmediata.

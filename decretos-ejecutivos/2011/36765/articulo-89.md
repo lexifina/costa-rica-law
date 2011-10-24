@@ -1,0 +1,1 @@
+Artículo 89.—Las medidas disciplinarias que se indican en el presente Capítulo deberán imponerse dentro del mes siguiente a aquel en que se cometió la falta, o a partir del momento en que fue del conocimiento del (la) funcionario(a) competente para imponer una sanción.

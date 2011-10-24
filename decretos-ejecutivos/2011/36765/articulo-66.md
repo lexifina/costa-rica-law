@@ -1,0 +1,1 @@
+Artículo 66.—De la conclusión e informe final. En el plazo de ocho días naturales después de las comparecencias y evacuación de la prueba, la comisión investigadora informará por escrito al (la) Ministro(a) o, en su ausencia, ante quien lo (la) sustituya, las conclusiones del trámite administrativo y las recomendaciones disciplinarias que se consideren aplicables.

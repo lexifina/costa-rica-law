@@ -1,0 +1,2 @@
+Artículo 31.—Las vacaciones podrán fraccionarse hasta en tres oportunidades y solo podrá acumularse un periodo cuando, por la naturaleza de las funciones, se dificulte el reemplazo del (la) servidor(a). Al respecto, éste(a) debe realizar una solicitud expresa de acumulación, con el visto bueno del (la) jefe(a) inmediato(a) ante Gestión Institucional de Recursos Humanos.
+Habiéndose autorizado la acumulación, el (la) servidor(a) debe disfrutar la totalidad de los días que se acumularon, junto con los días que hubiere solicitado del periodo siguiente.

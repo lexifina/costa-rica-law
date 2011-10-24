@@ -1,0 +1,1 @@
+Artículo 43.—Ámbito de aplicación. Las disposiciones de este capítulo son de aplicación general, para todos (as) aquellos (as) servidores (as) públicos (as) que presten servicios en el Ministerio de Agricultura y Ganadería, tanto para los (las) funcionarios (as) que estén laborando actualmente como para los (las) que en el futuro ingresen a la Institución.
