@@ -1,0 +1,1 @@
+Artículo 2°—Se reconocerán los gastos de Viáticos y de Transporte en que incurran los miembros del Concejo nombrados en Comisiones que se mencionan en el artículo N° 42 del Reglamento de Sesiones vigente.

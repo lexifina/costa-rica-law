@@ -1,0 +1,1 @@
+Artículo 6°—La Administración podrá autorizar por vía de excepción, la presentación de la respectiva Liquidación con la periodicidad que ella determine ya sea semanal, quincenal o a lo sumo mensualmente, de acuerdo con lo establecido en el artículo N° 10 del Reglamento de Gastos de Viaje y de Transporte para los Funcionarios Públicos.

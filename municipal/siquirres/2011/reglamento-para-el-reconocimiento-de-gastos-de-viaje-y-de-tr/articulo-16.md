@@ -1,0 +1,1 @@
+Artículo 16.—Período de adelantos para giras y liquidaciones: Los adelantos de gastos de viaje podrán cubrir un periodo máximo de dos semanas; asimismo, las liquidaciones de viáticos, con o sin adelanto, deberán presentarse quincenalmente a la Unidad de Tesorería Municipal, con excepción de las autorizadas mensualmente.
