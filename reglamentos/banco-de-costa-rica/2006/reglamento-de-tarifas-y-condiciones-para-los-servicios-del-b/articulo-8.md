@@ -22,9 +22,11 @@ El cálculo de la comisión por inspecciones previas de otras actividades no agr
 Corresponden a las que son efectuadas por profesionales designados por el Banco, cuando inspeccionan bienes sobre los que se han solicitado avalúos para garantía y otros fines, que no se pueden realizar, por no cumplir con las condiciones establecidas para la ejecución de los mismos. No se deben confundir con las inspecciones previas y las inspecciones para el control y seguimiento de las garantías.
 El cálculo de la comisión por inspecciones de bienes por avalúos que no se pudieron ejecutar, es sobre el monto del crédito y corresponde a un mínimo de $36.00 para un monto de crédito hasta $15.000 y para montos de crédito superiores, se conserva la base y se adiciona el 0,015% aplicable a la diferencia entre el monto de crédito y los $15.000.
 (*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
-8.4.- Inspecciones para control y seguimiento de las garantías.
-Se refiere a las inspecciones de las garantías en las cuales el profesional debe informar la existencia, el estado de conservación y la liquidez de los bienes que garantizan una operación de crédito.
-La comisión por inspección para control y seguimiento de garantías, según el siguiente detalle, podrá ser cobrada al cliente, solo si está incluida en el contrato de crédito, o bien, si el propósito de la inspección es para mantener la vigencia de un avalúo que será utilizado en una nueva operación de crédito
+(*) 8.4.- Inspecciones para verificar el cumplimiento de alguna condición de la garantía:
+Son las que se ejecutan antes de la formalización de una operación con el propósito de confirmar la ejecución de modificaciones requeridas en la garantía, que impedían recibirla a satisfacción. Entran en esta categoría las inspecciones de instalaciones eléctricas o de otra índole, para comprobar que la garantía se pueda asegurar y de otras actividades de cumplimiento de corto plazo por parte del cliente, como deslinde de inmuebles, limpieza y remoción de obstáculos en servidumbres de paso.
+No se deben confundir estas inspecciones con los avalúos, que se deben ejecutar posteriormente, por inconsistencias con los planos catastrados, falta de servicios públicos y accesos inconvenientes.
+El cálculo de la comisión por cada inspección es de $36,00.
+(*)(Así reformado el punto 8.4) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 8.4.1-Bienes inmuebles separados $36 por cada bien inmueble.
 8.4.2- Bienes inmuebles que conforman una reunión de propiedades y una sola explotación $36
 8.4.3- Bienes muebles: vehículo individual o máquina industrial individual.
@@ -43,9 +45,45 @@ El cálculo de la comisión se hace conforme a la cantidad de bienes localizados
 $36 hasta un máximo de 5 bienes muebles.
 $3 por cada bien mueble adicional, sobre el exceso de 5 y hasta 20 bienes muebles.
 $2 por cada bien mueble adicional, sobre el exceso de 20 bienes muebles
-8.5- Fiscalización de inversiones
+(*) 8.5- . Inspecciones para control y seguimiento de las garantías.
+Se refiere a las inspecciones de las garantías en las cuales el profesional debe informar la existencia, el estado de conservación y la liquidez de los bienes que garantizan una operación de crédito.
+La comisión por inspección para control y seguimiento de garantías, según el siguiente detalle, podrá ser cobrada al cliente, solo si está incluida en el contrato de crédito, o bien, si el propósito de la inspección es para mantener la vigencia de un avalúo que será utilizado en una nueva operación de crédito.
+(*)(Así reformado el punto 8.5) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.5.1- Bienes inmuebles separados
+$36 por cada bien inmueble.
+(*)(Así reformado el punto 8.5.1) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.5.2-Bienes inmuebles que conforman una reunión de propiedades y una sola explotación
+$36
+(*)(Así reformado el punto 8.5.2) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.5.3. Bienes muebles: Vehículo individual o máquina industrial individual
+$36 por bien mueble
+(*)(Así adicionado el punto 8.5.3) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.5.4. Grupos de bienes muebles localizados en un solo lugar:
+flotillas de vehículos o grupos de máquinas.
+El cálculo de la comisión se hace conforme a la cantidad de vehículos localizados en cada lugar.
+$36 hasta un máximo de 5 bienes muebles.
+$3 por cada bien mueble adicional, sobre el exceso de 5 y hasta 20 bienes muebles.
+$2 por cada bien mueble adicional, sobre el exceso de 20 bienes muebles.
+(*)(Así adicionado el punto 8.5.4) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.5.5. Grupos de bienes muebles localizados en diferentes lugares:
+flotillas de vehículos o grupos de máquinas.
+El cálculo de la comisión se hace conforme a la cantidad de vehículos localizados en cada lugar.
+$36 hasta un máximo de 5 bienes muebles.
+$3 por cada bien mueble adicional, sobre el exceso de 5 y hasta 20 bienes muebles.
+$2 por cada bien mueble adicional, sobre el exceso de 20 bienes muebles.
+(*)(Así adicionado el punto 8.5.5) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.5.6. Maquinaria industrial localizada en diferentes lugares.
+El cálculo de la comisión se hace conforme a la cantidad de bienes localizados en cada lugar.
+$36 hasta un máximo de 5 bienes muebles.
+$3 por cada bien mueble adicional, sobre el exceso de 5 y hasta 20 bienes muebles.
+$2 por cada bien mueble adicional, sobre el exceso de 20 bienes muebles.
+(*)(Así adicionado el punto 8.5.6) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.6. Fiscalización de inversiones
 Comprende la revisión del presupuesto y la fiscalización de la inversión realizada en la obra, por parte de los profesionales designados por el Banco y en los créditos para construcción.
-8.5.1- Revisión de planos y presupuestos
-0,5 % sobre la proporción del crédito destinada para la construcción. Se cobra al cliente previo a la aprobación de la solicitud.
-8.5.2-Inspecciones para el avance de obra.
-1,0 % sobre la proporción del crédito destinada para la construcción. Se cobra al cliente mediante la retención al formalizar la operación de crédito.
+(*)(Así reformado el punto 8.6) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.6.1. Revisión de planos y presupuestos
+0,5% sobre la proporción del crédito destinada para la construcción. Se cobra al cliente previo a la aprobación de la solicitud.
+(*)(Así adicionado el punto 8.6.1) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)8.6.2. Inspecciones para el avance de obra
+1,0% sobre la proporción del crédito destinada para la construcción. Se cobra al cliente mediante retención al formalizar la operación de crédito.
+(*)(Así adicionado el punto 8.6.2) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)

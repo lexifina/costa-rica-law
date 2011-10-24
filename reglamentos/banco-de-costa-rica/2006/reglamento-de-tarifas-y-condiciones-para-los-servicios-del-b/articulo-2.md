@@ -1,19 +1,27 @@
 2. Productos de captación
-2.1.- Cuentas corrientes con saldos promedios mensuales menores a $350.00.
-1- Saldo menor a $350.00 – Giro hasta 5 cheques, sobre exceso de giro $1.00 c/u.
-2- De $350.00 a $2,350.00 – Giro hasta 10 cheques, sobre exceso de giro $1.00 c/u.
-3-Saldo superior a $2,350.00 – Giro de 15 cheques por cada $2,350.00 de promedio mensual por cuenta, sobre exceso $1.00 cada cheque girado de más según cantidad permitida producto del saldo promedio mensual.
+(*)2.1. Comisión por el exceso de cheques girados en cuenta corriente.
+Saldos Promedios Mensuales | Cantidad cheques sin costo | S/ exceso de cheques girados
+Hasta $500,00 | 4 | $1,00 c/u
+$501.00 a $2.500,00 | 7 | $1,00 c/u
+$2.501,00 | 10
+(*)(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 2.2.- Órdenes de no pago de cheques y depósitos a plazo.
 Cheques $4.00
 Depósitos a plazo $7.00
-2.3.- Cierre de cuentas corrientes motivo del extravío de cheques $10.00.
+2.3. Cierre de cuentas corrientes motivo del extravío de cheques.
+$18.50
+(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 2.4.-Certificación de cheques colones y dólares $15.00.
 2.5.-Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorias nacionales y extranjeras $20.00.
 2.6.-Cargos enviados a clientes y devueltos por dirección errónea $1.00.
 2.7.- Nota de débito generada por la devolución de un cheque defectuoso (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 2.22 de este mismo apartado) $3.00.
-(*)2.8.- Reapertura cuentas corrientes
-2.8.1 Reapertura por extravío fórmulas en blanco $ 15,00
-2.8.2 Reapertura por chequera robada ó perdida $ 15,00
+2.8.- Reapertura cuentas corrientes
+(*)2.8.1. Reapertura por extravío fórmulas en blanco.
+$18.50
+(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+2.8.2. Reapertura por chequera robada o pérdida.
+$18.50
+(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 2.8.3 Reapertura por cuentas cerradas pérdidas e insolutos $ 10,00
 (*)(Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 2.9.- Chequeras Colones y Dólares $6.00
@@ -44,117 +52,106 @@ Esta tarifa será ajustada semestralmente.
 $2.00 por transacción, montos superiores a ¢5.000.00
 2.20.- Cancelación anticipada de los CDP desmaterializados y electrónicos colones y dólares
 La comisión se cobra sobre el principal del CDP, más los intereses vigentes por pagar. Aplicando el 50% de la tasa pasiva vigente del día de la cancelación para el plazo original del CDP, multiplicando ese resultado por el número de días por vencer, dividido por 360. Comisión mínima $10.
-2.21.-Estados de cuenta corriente. $2.00 máximo 3 folios, sobre excesos $0.50 por folio.
+(*)2.21. Estados de cuenta corriente.
+$2.00 máximo 2 folios, sobre excesos
+$0.50 por folio.
+(*)(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 2.22- Cheques rechazados por insuficiencia de fondos aplica tanto para los cheques emitidos como para los depositados colones y dólares.
 $20
 *Los empleados deberán pagar el 100%
 (Así reformado el inciso 2.22 ) anterior mediante sesión N° 61-10 del 20 de diciembre de 2010)
-2.23.-Traspaso de operaciones de cobro administrativo a cobro judicial.
-1.5% s/ el total adeudado de cada operación.
-Mínima $20.00
-Máxima $120.00
-(*)2.24.- Venta de Cheques de Gerencia $25.00.
-(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
-(*) 2.25.- Recolección depósitos especiales en cuenta corriente.
-1- Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), y planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
+2.23.-Venta de cheques de gerencia. $25.00
+(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)2.24. Recolección depósitos especiales en cuenta corriente.
+1. Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), y planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
 Hasta ¢ 6.000.000.00 cobrar la suma de:
 a) $ 7.00 remeseras propias/recolección.
 Sobre el exceso de los ¢ 6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
-Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
-Este factor corresponde a los $2,00 por cada $3.500,00 adicionales.
+Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por
+0.000572.
+Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
 Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
-2- Para clientes cuyos depósitos son recolectados y contabilizados y para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera del (GAM) a los clientes:
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto).
+2. Para clientes cuyos depósitos son recolectados y contabilizados y para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera del (GAM) a los clientes:
 Hasta ¢ 6.000.000.00 cobrar la suma de:
-a) $9,00 remeseras propias/recolección.
-Sobre el exceso de los ¢6.000.000,00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
-Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
-Este factor corresponde a los $ 2.00 por cada $3.500,00 adicionales.
+a) $ 9.00 remeseras propias/recolección.
+Sobre el exceso de los ¢ 6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
+Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por
+0.000572.
+Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
 Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto).
+(*)(Así reformado el punto 2.24) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.25.- Comisión para la recepción de efectivo para Instituciones del sector financiero.
+Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR /DOCUBCR/Formularios.
 [imagen]
-(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
-2.26- Comisión para la recepción de efectivo para instituciones del sector financiero
-Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios
-Colones Comisión por millón
-Denominación Oficina Central y oficinas regionales
-Billetes ¢ Billetes ¢: Comisión
-1.000 1.000 $4.00
-2.000 2.000 $3.00
-5.000 5.000 $1.00
-10.000 10.000 $1.00
-Para monedas Monedas ¢ $0.50 por bolsa
-Dólares Comisión por millón
-Denominación Oficina Central, GAM
-y oficinas regionales norte y sur
-Billetes $ Billetes $ Comisión
-1 1 $35.00
-2 2 $30.00
-5 5 $25.00
-10 10 $25.00
-20 20 $25.00
-50 50 $20.00
-100 100 $20.00
-2.27- Comisión para la entrega de efectivo para instituciones del sector financiero.
-Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-Colones Comisión por millón
-Denominación Oficina Central, Oficinas regionales,
-GAM ZN y ZS
-Billetes ¢ Comisión Comisión
-1.000 $6.00 $7.00
-2.000 $3.00 $3.00
-5.000 $1.50 $1.50
-10.000 $0.50 $1.50
-Para monedas $1.00 por bolsa $2.00 por bolsa
-Dólares Comisión por cada dólar
-> $0.00 < $1.0 millón ¢1.25
-> $1.0 millón < $3.0 millones ¢0.75
-De $3.0 millones en adelante ¢0.66
-2.28.- Comisión por sobregiros accidentales.
+(*)(Así reformado el punto 2.25) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)2.26- Comisión para la entrega de efectivo para instituciones del sector financiero.
+Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR /DOCUBCR/Formularios.
+[imagen]
+(*)(Así reformado el punto 2.26) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)2.27- Comisión por sobregiros accidentales.
 Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
 Mínimo $10.00
-** Los empleados deberán pagar el 100% de estas tarifas.
-2.29.-Informe Confidenciales $4.00 para personas físicas y jurídicas.
-2.30.- Reposición de comprobantes de operaciones canceladas $4.00 cada uno.
-2.31.-Aplicación de embargo judicial $4.00.
-2.32. Traspaso de un CDP desmaterializado a un CDP físico negociable.
-Comisión administrativa $5.00.
+***Los empleados deberán pagar el 100% de estas tarifas.
+(*)(Así reformado el punto 2.27) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)2.28.- Informe confidenciales.
+$ 4.00 para personas físicas y jurídicas.
+(*)(Así reformado el punto 2.28) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+2.29.Aplicación de embargo judicial. $ 4.00.
+(Así reformado el punto anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.30.- Traspaso de un CDP desmaterializado a un CDP físico negociable.
+Comisión administrativa $ 5.00
 a. Para materializarlo es necesario aplicar la anulación del CDP.
 b. Emitir un nuevo CDP físico, con las mismas características del anulado, tales como fecha de emisión, plazo, dueño.
 c. Si el CDP anulado tenía asignado algún plus de tasa la pierde, pues la emisión del nuevo CDP físico, el sistema le asigna la tasa vigente de este tipo de CDP en esa fecha de emisión.
 d. El cobro de la comisión se deberá generar mediante proceso manual.
-2.33.- Reposición de títulos, certificados y bonos.
+(*)(Así reformado el punto 2.30) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.31.-Reposición de títulos, certificados y bonos.
 Reposición certificados de depósito: 0.25% sobre el valor del título con un mínimo de $7.50 y un máximo de $74.50.
-2.34.- Certificación o constancia de operación cancelada. $5 cada una.
-(así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 2010)
-2.35.-Traslado de expedientes judiciales a cuenta corriente o ahorros para cobros masivos.
+(*)(Así reformado el punto 2.31) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.32. Traslado de expedientes judiciales a cuenta corriente o ahorros para cobros masivos.
 $1.00 por traspaso.
-2.36.-Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas y entidades financieras y no financieras
+(*)(Así reformado el punto 2.32) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.33.- Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas y entidades financieras y no financieras.
 $4.00 por cada movimiento (débitos y créditos) sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están utilizando la infraestructura (oficinas y canales electrónicos) del BCR, como instrumentos para el desarrollo de sus negocios financieros.
-2.37.- Comisión por exportación de dólares a través del BCR por bancos estatales y privados
-De $0 hasta $3.000.000….... 0.12%
-De $3.001.000 hasta $5.000.000…. 0.09%
-De $5.001.000 hasta $7.000.000…... 0.07%
-De $7.001.000 en adelante…... 0.065%
-(*)2.38- Ordenes de Pago (Transf.) a otras oficinas bancarias
--Colones y Dólares Mínimo $3,00
-Montos % Acumulado
-Hasta $ 200.00 2.0 % $4,00
-Exceso $200.00 a $1.800.00 1.5 % $27,00
-De $1,801.00 en adelante 0.5 %
-(*)(Así reformado el punto anterior mediante sesión N° 44-10 del 6 de setiembre de 20)
-2.39.-Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros.
+(*)(Así reformado el punto 2.33) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.34.- Comisión por exportación de dólares a través del BCR por bancos estatales y privados.
+De 0 hasta $3.000.000 | 0.12%
+De $3.001.000 hasta $ 5.000.000 | 0.09%
+De $ 5.001.000 hasta $7.000.000 | 0.07%
+De $7.001.000 | 0.065%
+(*)(Así reformado el punto 2.34) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.35.-Órdenes de pago (transferencias) a otras oficinas bancarias.
+Mínimo $ 3.00
+(*)(Así reformado el punto 2.35) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.36 Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros.
 a. US $ 2.00 con un máximo de 3 fotocopias.
 b. Sobre exceso $ 0.50 por folio.
-2.40.-Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla.
-Se cobrará $ 2.00 por cada retiro en ventanilla.
-2.41.- Nota de débito en cuenta corriente realizada manualmente en plataforma para retiro de efectivo.
+(*)(Así reformado el punto 2.36) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.37.- Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla. Se cobrara $ 2.00 por cada retiro en ventanilla.
+Para los productos de Compras Institucionales del BCR, no pagarán comisión por reemplazo.
+(*)(Así reformado el punto 2.37) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.38- Nota de débito en cuenta corriente realizada manualmente en plataforma para retiro de efectivo.
 Costo de la comisión por cada nota de débito $ 5.00
-2.42.-Comisión por planilla de empresa mediante depósitos en ventanilla.
-Por cada depósito realizado a una cuenta $ 1.00.
-2.43.-Comisión por mantenimiento de saldos mínimos en cuentas corrientes.
+(*)(Así reformado el punto 2.38) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)2.39.-Comisión por planilla de empresa mediante depósitos en ventanilla.
+Por cada depósito realizado a una cuenta $ 1.00
+(*)(Así reformado el punto 2.39) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*)2.40.-Comisión por mantenimiento de saldos mínimos en cuentas corrientes.
 Mantener saldos promedios mensuales, de $50 ó ¢100.000 en las cuentas corrientes, con código de clase 1, que son las cuentas comunes.
 La comisión por mantener un saldo promedio inferior al establecido, sería de $10.
+(*)(Así reformado el punto 2.40) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.41.- Divisas depositadas cuenta corriente/ahorros.
+Depósito cuenta en dólares 1.5%, mínima $10.00
+Depósito cuenta en colones 1.0%, mínima $7.00
+(*)(Así reformado el punto 2.41) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+2.42.-Cheques devueltos en dólares.
+Servicio $12.00 más gastos del corresponsal.
+(*)(Así reformado el punto 2.42) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 2.43.-Comisión por retiro anticipado de un plan de ahorro automático
+3% sobre el monto ahorrado.
+(*)(Así reformado el punto 2.43) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 (*)2.44-Divisas depositadas cuenta corriente/ Ahorros
 Depósito Cta. En dólares 1.5%, mínima $10,00
 Depósito Cta. En colones 1.0%, mínimo $7,00

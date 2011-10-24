@@ -89,7 +89,10 @@ $100.01 a $500.00 ………… $5.00 comisión
 5.19.- Transferencias salientes Alianza Bancaria Regionales en ventanilla.
 Montos hasta $5.000 ----------$10.00
 Montos mayores a $5.000 ----$15.00
-5.20.- Transferencias entrantes Alianza Bancaria Regionales en ventanilla (órdenes de Pago) $5.00
+(*) 5.20.- Negociación de divisas en el exterior diferentes al dólar de los Estados Unidos de América (FOREX).
+Hasta el 1% del tipo de cambio de negociación
+Mínimo $10.00.
+(*)(Así reformado el punto 5.20) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 5.21- Money Gram, Servicio de remesas Familiares
 De $1.00 a $100………………$4.00
 De $101 en adelante ………….2.00% sobre el monto transado más $2.00 (*)

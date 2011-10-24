@@ -101,3 +101,11 @@ T-7, T-8 $190.00
 $100.00 por cajita
 Nota:
 Esta tarifa se cobrará a aquellos clientes que no han pagado la cajita de seguridad. Cuando se presenten a retirar sus bienes se les cobrará esta comisión más la comisión de custodia.
+(*) 6.6. Comisión de éxito
+Hasta 1% se cobra sobre el monto total del apalancamiento que una entidad bancaria le otorgue al proyecto, siempre que dentro de los términos de negociación previos, así se haya establecido y acordado.
+Se da por el logro obtenido por parte de Banca de Inversión al conseguir el cierre financiero del proyecto o la consecución de un crédito en las mejores condiciones del mercado.
+(*)(Así adicionado el punto 6.6) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
+(*) 6.7. Comisión por diseño y estructura de emisión privada de valores a corto y mediano plazo:
+Hasta 1% se cobra sobre el monto total o valor facial de la emisión privada de valores
+Se colocaran en un selecto grupo de no más de 50 inversionistas sofisticados, para financiar principalmente capital de trabajo de proyectos mientras el apalancamiento total de largo plazo se concreta.
+(*)(Así adicionado el punto 6.7) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)

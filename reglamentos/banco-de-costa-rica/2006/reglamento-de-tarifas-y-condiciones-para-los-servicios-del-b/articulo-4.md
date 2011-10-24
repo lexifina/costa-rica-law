@@ -22,7 +22,10 @@ adicional
 Según convenio: la comisión que para este servicio se acuerde entre el Banco y la empresa contratante, será establecida en el documento Reglas del Negocio que deben firmar ambas partes.
 4.7.-Tesorería electrónica
 Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen sus clientes mediante el uso de este servicio.
-4.8.-Créditos directos salientes Sinpe cuentas clientes $0.60 por transacción.
+4.8.-Certificados Digital
+Emisión $35.00 por certificado Incluye costo de lector y tarjeta Reimpresión del pin $3.00
+Renovación de certificado $15.00 (En caso de que el cliente no requiera ni tarjeta ni lector nuevos)
+(Así reformado el punto 4.8) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 4.9.- Banca Móvil por mensaje de respuesta. ¢ 5,00
 (Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
 4.10- Órdenes de pago electrónica, mediante el canal www.bancobcr.com
