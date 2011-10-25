@@ -58,6 +58,7 @@ Reposición por extravío o robo. | 0.25% del valor del título
 - Máximo | $75.00
 Bloqueo sobre CDP y/o cupones por extravío o robo | $7.00
 Certificación de que CDP no tiene orden de no pago; reportes y constancias CDP para negociar en Puesto de Bolsa | $7.00
+-Comisión por no cancelación de derecho especial de giro conforme a la forma de pago pactada: Aplacación de Procesos Judiciales (Así adicionada la comisión anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) | $ 15 (Así adicionado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
 Cheques de Gerencia:
 En colones o su equivalente en dólares. Incluye cheques por saldo de cuenta cerrada. | $10.00 tarifas única (colones y dólares)
 Reposición de cheques de Gerencia. | 0.25% del valor del cheque
@@ -136,7 +137,7 @@ Apertura | 0.40% del monto
 - Mínimo por apertura | $30.00
 SWIFT Apertura | $15.00
 SWIFT Modificación | $7.00
-Modificaciones | $20 c/u, si el valor se aplica la comisión de apertura
+Modificaciones | $20 por cada modificación. Si la modificación se trata del valor principal, se aplica la comisión de apertuta (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
 Discrepancias | $20.00
 Envío por aceptación o no aceptación de discrepancias | $7.00
 Cobranzas del Exterior (Cobranza de Importación):
@@ -162,7 +163,7 @@ Aviso traslado | $20.00
 Courier | Según el destino
 Traslado | $30.00
 Cobranzas al Exterior (Cobros sobre el exterior):
-Transacción | 25%
+Transacción | 0. 25% (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
 - Mínimo | $25.00
 - Máximo | $75.00
 SWIFT | $7.00
@@ -246,29 +247,29 @@ Mandatos | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, ob
 Fideicomiso de Garantía | Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades, mínimo $700.00 anuales pagadero por anticipado. Podrá incrementarse la comisión según negociación en caso de incurrirse en costos por labores del tipo notarial.
 Fideicomisos de Ejecución de Proyectos | (Tarifa o porcentaje a negociar de acuerdo al costo administrativo, obligaciones y responsabilidades según la magnitud de la obra a desarrollar y existencia de unidades técnicas.
 SINPE: Sistema Nacional Pagos Electrónicos
-*SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo transferencias de fondos Interbancarias, entrantes y salientes del Banco Central de Costa Rica es de ¢500 desglosado de la siguiente forma ¢500 c/u para el BCCR. | Las publicadas en la página delBCCR www.bccr.fi.cr
+*El costo establecido en acuerdo interbancario enlo referente al modelo transferencias de fondos Interbancarias, entrantes y salientes del Banco Central de Costa Rica es de:a) Transferencias menores o iguales a ¢500.000.000, es de ¢788 c/u para el BCCR.b) Trasferencias superiores a ¢500.000.000, es de 0,00015% del valor de la transferencia. (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) | Las publicadas en la página del BCCR www.bccr.fi.cr
 Transferencias Interbancarias (TFI)
-- Mínimo | $2.00
-- Máximo | $15.00
-| Aplica 3 % sobre el monto del TFI
-*SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de transferencias de fondos a terceros, entrantes y salientes del Banco Central de Costa Rica es de ¢150 desglosado de la siguiente forma ¢50 c/u para el BCCR y ¢100 c/u entidad de destino. |
+- Máximo | $2.00 (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
+- Mínimo | $15.00 (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
+| Aplica 0.03 % sobre el monto del TFI (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
+*SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de transferencias de fondos a terceros, entrantes y salientes del Banco Central de Costa Rica, es de ¢163 desglosado de la siguiente forma: ¢63 c/u para el BCCR y ¢100 c/u entidad de destino. (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) |
 Transferencias de Fondos a terceros (TFT)
 - Mínimo | $1.00
 - Máximo | $20.00
-| Aplica 3 % sobre el monto del TFT
-*SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de créditos directos, entrantes y salientes del Banco Central de Costa Rica es de ¢75 desglosado de la siguiente forma ¢25 c/u para el BC y ¢50 c/u entidad de destino. |
+| Aplica 0.03 % sobre el monto del TFT (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
+*SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de créditos directos, entrantes y salientes del Banco Central de Costa Rica, es de ¢82 desglosado de la siguiente forma: ¢32 c/u para el BCCR y ¢50 c/u entidad de destino. (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) |
 Crédito directo |
 - Mínimo | $0.30
 - Máximo | $1.00
-*SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de débitos directos, entrantes y salientes del Banco Central de Costa Rica es de ¢75 desglosado de la siguiente forma ¢25 c/u para el BCCR y ¢50 c/u entidad de destino. |
+entidad de destino.siguiente forma: ¢32 c/u para el BCCR y ¢50 c/u Central de Costa Rica, es de ¢82 desglosado de la débitos directos, entrantes y salientes del Banco interbancario en lo referente al modelo de *SINPE. El costo establecido en acuerdo (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) |
 Débito directo |
 - Mínimo | $0.20
 - Máximo | $1.00
-*SINPE. El costo establecido en acuerdo interbancario en loreferente al modelo de débitos en tiempo real, entrantes y salientes del Banco Central de Costa Rica es de ¢150 desglosado de la siguiente forma ¢50 c/u para el BCCR y ¢100c/u entidad de destino. |
+*SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de débitos en tiempo real, entrantes y salientes del Banco Central de Costa Rica, es de ¢163 desglosado de la siguiente forma: ¢63 c/u para el BCCR y ¢100 c/u entidad de destino. (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) |
 Débito en tiempo real (DTR)
-- Mínimo | $1.00
-- Máximo | $20.00
-Aplica 3 % sobre el monto del DTR |
+Comisión (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) | $1.00 (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
+|
+|
 BANCRÉDITO INTERNET
 Reimpresión de Clave | $2.00 por vez
 Sustitución de Multiclave | $5.00

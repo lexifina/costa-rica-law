@@ -14,3 +14,4 @@ Aprueba Tabla de Tarifas y Comisiones para los servicios de Bancrédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-12 | la propia norma |
+| 2 | 2011-10-25 | Acuerdo 0 (2011-10-25) |
