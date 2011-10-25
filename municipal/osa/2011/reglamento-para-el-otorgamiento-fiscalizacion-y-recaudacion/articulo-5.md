@@ -1,0 +1,2 @@
+Artículo 5º—Forma de cálculo de pago actividad lucrativa: El impuesto de patente se determinará:
+Se establecerá el impuesto de la nueva patente comercial, del total de las licencias ya otorgadas, se captara el monto más alto, el regular y el más bajo, de la población de patentados según la categoría, se sumaran y el resultado se dividirá entre tres, siendo el resultado final el impuesto de pago inicial de la actividad lucrativa.

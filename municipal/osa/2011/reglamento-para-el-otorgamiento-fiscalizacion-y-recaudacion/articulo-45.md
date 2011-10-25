@@ -1,0 +1,1 @@
+Artículo 45.—Promedio Ponderado. Los patentado que no presente su declaración jurada, además de las multas expresas por la ley se les tazara de oficio tomando en cuenta un promedio ponderado de la actividades similares a la que se desarrolle según la zona donde se sitúen.
