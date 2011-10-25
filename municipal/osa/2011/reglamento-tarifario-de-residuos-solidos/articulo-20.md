@@ -1,0 +1,1 @@
+Artículo 20.—La disposición de residuos que no sean ordinarios que se dispongan en el vertedero municipal por parte de terceros, previamente deberán cancelar en la Municipalidad de Osa, ¢5,00 (cinco colones netos) por kilogramo.

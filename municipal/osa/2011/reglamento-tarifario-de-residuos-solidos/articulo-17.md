@@ -1,0 +1,1 @@
+Artículo 17.—Es deber de cada usuario acatar los lineamientos e indicaciones del guarda del vertedero municipal, para el adecuado uso y rendimiento del sitio. El incumplimiento a las indicaciones del caso, cera acreedor a una sanción según indique la Ley Nº 8839.

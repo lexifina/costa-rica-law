@@ -1,0 +1,1 @@
+Artículo 14.—La disposición de los residuos que no sean ordinarios, se hará previo pago en la Tesorería Municipal. No se permitirá la disposición de residuos que no sean ordinarios sin el recibo correspondiente de pago.
