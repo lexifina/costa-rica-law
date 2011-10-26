@@ -14,3 +14,4 @@ Reglamento sobre Valoración de Instrumentos Financieros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-28 | la propia norma |
+| 2 | 2011-10-26 | Reglamento 944 (2011-10-26) |
