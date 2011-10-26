@@ -14,3 +14,4 @@ Reforma Reglamento de Reclutamiento y Selección de Profesionales en Farmacia, N
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-08 | la propia norma |
+| 2 | 2011-10-26 | SINALEVI (sin norma nombrada) |
