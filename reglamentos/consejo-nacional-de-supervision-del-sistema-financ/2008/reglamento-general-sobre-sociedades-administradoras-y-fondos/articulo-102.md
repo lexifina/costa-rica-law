@@ -1,12 +1,15 @@
-CAPÍTULO II
-Obligaciones y supervisión
-Artículo 102.—Obligaciones de la entidad comercializadora. Las entidades comercializadoras están sujetas a las siguientes obligaciones:
-a) Respetar las disposiciones que regulan la publicidad de los fondos de inversión, conforme a lo dispuesto en los artículos 106 y 107 de este Reglamento.
-b) Suministrar a la Superintendencia General de Valores la información que ésta le requiera para la protección de los inversionistas.
-c) Respetar el perfil de inversionista establecido en el fondo que comercializa.
-d) Asesorar y suministrar a sus clientes toda la información disponible sobre los fondos comercializados, cuando pueda ser relevante para que adopten las decisiones de inversión, en los términos del artículo 109 de la Ley Reguladora del Mercado de Valores.
-e) Respetar las disposiciones contenidas en la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas, y la normativa relacionada emitida por el Consejo Nacional de Supervisión del Sistema Financiero.
-Adicionalmente, las entidades que realicen oferta pública de fondos extranjeros están sujetas a:
-f) Realizar, por medio del agente de pago, los movimientos de inversión o retiro de los inversionistas.
-g) Poner a disposición de los inversionistas locales y de la Superintendencia General de Valores, la información que el administrador o gestor debe proveer a los inversionistas del país de origen, con la misma periodicidad y plazo de entrega. La entidad comercializadora debe hacer público el precio de la participación o precio de cotización en su país de origen por los medios y en los plazos que establezca el Superintendente. En el caso de que la entidad comercializadora tenga a su vez contratos de comercialización con otras entidades, esta responsabilidad recae en el comercializador principal.
-La información requerida en los incisos b. y g. se debe presentar en idioma español o inglés.
+Artículo 102.—Límites mínimos de diversificación aplicables a los fondos de capital de riesgo
+Los fondos de capital de riesgo deben ajustarse a las siguientes reglas de diversificación:
+a. Un mínimo del 60% del total de activos debe estar invertido en valores accionarios o en valores que puedan dar derecho a la suscripción o adquisición de acciones con derecho a voto.
+b. Hasta un máximo de 20% del total de sus activos en valores emitidos por una misma empresa promovida.
+c. Hasta un máximo de 30% del total de sus activos en valores emitidos por una misma empresa admitida al mercado establecido por el artículo 24 del Reglamento de Bolsas de Valores, o en valores de oferta pública emitidos por una misma empresa.
+d. En ningún caso los valores que posea el fondo de empresas promovidas o admitidas al mercado establecido por el artículo 24 del Reglamento de Bolsas de Valores, del mismo grupo económico pueden representar más del 40% de los activos totales del fondo.
+El porcentaje establecido en el inciso a. de este artículo debe acatarse en forma inmediata. Los porcentajes establecidos en los incisos b. al d. deben alcanzarse en el plazo de veinticuatro (24) meses a partir del inicio de operaciones del fondo de inversión. Posteriormente, deben cumplirse al finalizar cada periodo anual del fondo.
+La sociedad administradora podrá solicitar la ampliación del plazo que se indica en el párrafo anterior para alcanzar los porcentajes previstos en los incisos b. al d., para ello debe acompañar la solicitud con: una copia certificada o testimonio de la protocolización del acta de la asamblea de inversionistas en la cual se aprueba la prórroga, una explicación de las razones que han impedido lograrlo, así como una indicación de las actividades a realizar, las fechas estimadas y los responsables de su ejecución, para cubrir los porcentajes de diversificación en el nuevo plazo. En atención a la situación del mercado y a la dificultad de encontrar proyectos, la Superintendencia podrá, con carácter excepcional, autorizar dicha ampliación hasta por doce (12) meses.
+Si al vencimiento de la ampliación del plazo indicado en el párrafo anterior no se han alcanzado los porcentajes, la sociedad debe proceder con la desinscripción del fondo de inversión, según lo dispuesto en el artículo 27 de este Reglamento.
+Cuando el fondo inicie la etapa de devolución de capital a los inversionistas, los porcentajes establecidos en este artículo se computan teniendo en cuenta los activos totales del fondo registrados al cierre del mes anterior al momento en que se realiza la primera devolución de capital.
+No se considera infracción el exceso sobre los límites establecidos que se deba a una de las causas que se citan a continuación, durante el plazo de veinticuatro meses posteriores a su presentación:
+a.- Cambios en la valoración de las empresas.
+b.- Desinversión en una de las empresas.
+c.- Alteraciones en la composición de los grupos económicos de las entidades.
+(Así adicionado mediante sesión N° 944-2011 del 26 de octubre del 2011)

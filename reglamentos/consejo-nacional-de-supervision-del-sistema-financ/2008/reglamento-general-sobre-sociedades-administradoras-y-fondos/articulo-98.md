@@ -1,13 +1,10 @@
 TÍTULO VI
-Comercialización de fondos de inversión
+Fondos de inversión de capital de riesgo
 CAPÍTULO I
-Autorización
-Artículo 98.—Entidades comercializadoras. Pueden comercializar fondos de inversión:
-a) Las sociedades administradoras de fondos de inversión constituidos bajo la legislación costarricense.
-b) Los puestos de bolsa constituidos bajo la legislación costarricense.
-c) Los intermediarios financieros supervisados por la Superintendencia General de Entidades Financieras.
-d) Sociedades administradoras del país de origen del fondo por medio de una sucursal, la cual debe ajustarse a lo dispuesto en el Código de Comercio y la regulación que le sea aplicable.
-e) Las sociedades anónimas constituidas bajo la legislación costarricense, cuyo objeto exclusivo sea la comercialización de fondos de inversión.
-Las entidades a las que se refieren los incisos anteriores, cuando corresponda, deben contar con la autorización de comercialización del gestor o administrador del fondo. Las entidades de los incisos d. y e. deben contar con el capital mínimo establecido para las sociedades administradoras de fondos de inversión y cumplir con las obligaciones establecidas en el artículo 102 de este Reglamento.
-Las entidades señaladas en el inciso c. deben aportar una certificación notarial del acuerdo de su junta directiva, en la que reconoce y acepta sus obligaciones y los riesgos derivados de la actividad de comercialización.
-La comisión por los servicios de comercialización, en el caso de fondos constituidos bajo la legislación costarricense, se debe someter a lo dispuesto en los artículos 43 y 44 de este Reglamento.
+Disposiciones generales
+(Adicionado el título y capítulo anterior mediante sesión N° 944-2011 del 26 de octubre del 2011)
+Artículo 98.—Concepto
+Los fondos de inversión de capital de riesgo son patrimonios independientes que administran sociedades administradoras de fondos de inversión, por cuenta y riesgo de los participantes, cuyo objetivo primordial es la inversión temporal en valores de oferta privada de empresas promovidas, que no hayan estado inscritas en un mercado de valores durante los últimos cinco años.
+Los fondos de capital de riesgo se constituyen como fondos cerrados de oferta pública restringida, de conformidad con la definición del Reglamento sobre Oferta Pública de Valores.
+Independientemente de la denominación o nombre con que se identifiquen los fondos que cumplan con las disposiciones de este título, se debe incluir en su nombre la expresión “Fondo de inversión de Capital de Riesgo” y el objeto del fondo debe establecer claramente que es de capital de riesgo.
+(Así adicionado mediante sesión N° 944-2011 del 26 de octubre del 2011)

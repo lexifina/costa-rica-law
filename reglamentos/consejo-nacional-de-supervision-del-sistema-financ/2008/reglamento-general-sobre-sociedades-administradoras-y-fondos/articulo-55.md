@@ -4,7 +4,8 @@ a. Valores de deuda emitidos en serie, por emisores soberanos o emisores con gar
 b. Valores de deuda emitidos en serie por emisores privados que cuenten con una calificación de riesgo de una entidad calificadora reconocida como nacional por la Comisión de Valores de Estados Unidos.
 c. Valores accionarios de emisores privados.
 d. Productos estructurados, de emisores que cuenten con una calificación de riesgo de grado de inversión, por una entidad calificadora reconocida como nacional por la Comisión de Valores de Estados Unidos. Los tipos de productos estructurados autorizados serán las que defina el Superintendente mediante acuerdo.
-e. Fondos extranjeros que cumplan con los mismos requisitos establecidos en el artículo 99 de este Reglamento.
+e. Fondos extranjeros que cumplan con los mismos requisitos establecidos en el artículo 99(*) de este Reglamento.
+(*)(Nota de Sinalevi: Mediante sesión N° 944-2011 del 26 de octubre del 2011, se corrió la numeración de algunos artículo del presente reglamento, por lo que el antiguo 99 es actualmente el artículo 111)
 Los valores extranjeros deben estar admitidos a negociación en un mercado organizado extranjero, que se entiende aquel que cuenta con un conjunto de normas y reglamentos que determinan su funcionamiento, y que cuente con un órgano de regulación que sea miembro de IOSCO.
 Adicionalmente, los fondos de inversión pueden invertir sus activos a través de la participación en contratos de reporto que se organicen en las bolsas de valores. Los valores que se utilicen como subyacentes en estos contratos deben cumplir con las políticas de inversión que se establezcan en el prospecto del fondo.
 Ningún fondo puede realizar contratos de reporto que utilicen como subyacentes valores de participación de fondos cerrados que sean administrados por la misma sociedad administradora.

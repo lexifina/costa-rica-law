@@ -1,7 +1,5 @@
-TÍTULO IX
-Disposiciones finales
-Artículo 108.—Grupo económico. Para los efectos del presente Reglamento, se entiende que pertenecen al mismo grupo económico de una persona física o jurídica:
-a) En el caso de persona física: el cónyuge, los ascendientes y descendientes hasta el segundo grado de consanguinidad y afinidad.
-b) Las sociedades en las cuales la persona física o jurídica ostente al menos un 15% del capital accionario.
-c) Las sociedades que cuenten con el mismo apoderado generalísimo, gerente o presidente o si tienen en común un número de directores que representan el 30% o más de los integrantes del órgano directivo.
-d) En el caso de personas jurídicas: las sociedades en las cuales los socios que ostenten al menos el 15% de su capital y apoderados generalísimos, posean una participación accionaria de al menos el 15%, salvo prueba en contrario.
+Artículo 108.—Informe semestral de las inversiones
+Sin perjuicio de lo que se disponga en el prospecto o acordara la asamblea de inversionistas, con una periodicidad semestral se debe entregar a cada inversionista del fondo, un informe sobre la composición del portafolio de inversiones del fondo.
+Como parte de este informe, se deben detallar, para cada una de las empresas promovidas o empresas admitidas al mercado establecido por el artículo 24 del Reglamento de Bolsas de Valores, los hechos que afectaron en el semestre o puedan afectar en el futuro significativamente el valor de las acciones u otros valores y, en particular, toda circunstancia de carácter contingente que afectó o pueda influir significativamente en la evolución de los negocios de dicha empresa, su rentabilidad y su situación financiera, siempre que la inversión en la empresa afectada represente al menos un 15% del activo del fondo.
+El Superintendente puede establecer el contenido mínimo de los informes, así como los medios y plazos para que la sociedad administradora comunique a los inversionistas la disponibilidad de dichos avances.
+(Así adicionado mediante sesión N° 944-2011 del 26 de octubre del 2011)
