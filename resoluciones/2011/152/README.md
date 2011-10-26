@@ -14,3 +14,4 @@ Metodología tarifaria de referencia para plantas de generación privada hidroel
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-01 | la propia norma |
+| 2 | 2011-10-26 | Resolución 161 (2011-10-26) |

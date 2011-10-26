@@ -387,13 +387,16 @@ Costos fijo por capital (CFC)
 Mediante el componente denominado “Costo Fijo por Capital” (CFC) se garantiza a los inversionistas, retornos comparables con los que podrían obtener en otras inversiones con el nivel de riesgo similar, a efectos de hacer atractiva la alternativa de participar en el desarrollo de la planta.
 El CFC depende del monto de la inversión, del nivel de apalancamiento utilizado (relación deuda / aportes de capital), de las condiciones de financiamiento (tasa de interés, modalidad de pago y plazo), de la tasa de retorno reconocida, del período de recuperación de la inversión (vida económica), de la edad de la planta y de la tasa de impuesto de renta aplicable.
 Este rubro de Costo Fijo por Capital se determina mediante la siguiente ecuación:
-CFC = RI + r (Ecuación 4)
+CFC = RI + r =M x FC (Ecuación 4)
+(Así reformada la ecuación anterior mediante resolución RJD-161-2011 del 26 de octubre del 2011)
 CFC = Costo fijo por capital, que es la suma de
 la recuperación de la inversión (RI) y la
 rentabilidad (r).
 RI = Recuperación de la inversión
 (depreciación)
 r = Rentabilidad sobre la inversión
+(*)RI = Recuperación de la inversión (depreciación)
+(*)(Así adicionado el punto anterior mediante resolución RJD-161-2011 del 26 de octubre del 2011)
 Donde:
 r = M x FC (Ecuación 5)
 En donde:
@@ -485,5 +488,7 @@ Las tarifas resultantes de la metodología detallada serán expresadas y factura
 Las condiciones en que se realicen los pagos se definirán de conformidad con lo que las partes establezcan vía contractual, y con base en la normativa aplicable.
 Ajuste de los valores de la banda tarifaria
 Los valores de la banda tarifaria se revisarán al menos una vez al año, de conformidad con lo que establece la Ley Nº 7593.
+En ningún momento los precios pagados por la compra de energía eléctrica pueden ser mayores que el límite superior de la banda tarifaria vigente, ni menores que el límite inferior de esa banda.
+(Así adicionado el párrafo anterior mediante resolución RJD-161-2011 del 26 de octubre del 2011)
 Otras consideraciones
 Para mejorar esta metodología en el futuro, se establece que los generadores privados hidroeléctricos nuevos a los que se apliquen las tarifas establecidas mediante esta metodología tarifaria, están en la obligación de presentar anualmente a la ARESEP la información financiera auditada (incluyendo gastos operativos y de mantenimiento, administrativos y gastos de inversión individual) así como su debida justificación. De esta forma, la ARESEP podrá disponer de mejor información para el ajuste del modelo a las condiciones operativas reales. Para estos efectos se deberá presentar, al menos anualmente, los estados financieros auditados de la empresa.
