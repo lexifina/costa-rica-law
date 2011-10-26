@@ -7,10 +7,10 @@ Aprobar, de conformidad con lo que se copia a continuación y con fundamento en 
 (*)4.- Corresponderá al Comité de Regulación, ejercer las siguientes funciones:
 a. Ordenar la apertura de los expedientes tarifarios, fijar las tarifas de los servicios públicos y resolver los recursos administrativos que correspondan;
 b. Ordenar la apertura, dictar actos preparatorios y resolver lo que corresponda en materia de quejas. Además, deberá resolver los recursos administrativos que correspondan;
-c. Coordinar los actos preparatorios necesarios para remitir a la Junta Directiva, para su resolución, las apelaciones a las fijaciones de tarifas, cánones, tasas y contribuciones de telecomunicaciones de la Superintendencia de Telecomunicaciones;
-d. Ordenar en los procedimientos administrativos, en los cuales la posible sanción sea la caducidad de las concesiones y permisos otorgados para la prestación de los servicios públicos, su apertura; dictar los actos preparatorios y las medidas cautelares de cierre de empresa o remoción de equipo y dictar la resolución final. Además, deberá resolver los recursos administrativos que correspondan;
-e. Otorgar o denegar el refrendo de contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos y resolver los recursos administrativos que correspondan;
-f. Ratificar o no los contratos que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos y resolver los recursos administrativos que correspondan.
+c. (Derogado mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+d.(Derogado mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+e. (Derogado mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+f. (Derogado mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
 Para el cumplimiento de las funciones asignadas en el punto anterior, dicho comité contará con la asesoría permanente de la Dirección de Servicios de Energía, la Dirección de Servicios de Agua y Ambiente y la Dirección de Servicios de Transportes, en cada una de sus áreas.
 Dichas Direcciones asumirán las funciones que el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora y sus órganos desconcentrados asigna a las Superintendencias según corresponda, con excepción de las que la Ley señala que deben ejercer el Regulador General o la Junta Directiva y las encomendadas al Comité de Regulación en este artículo.
 Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas que venían ejerciendo dichas Direcciones, éstas continuarán realizándolas durante el periodo de vigencia de esta medida transitoria.

@@ -19,3 +19,4 @@ Disposiciones generales para normar el funcionamiento de la Autoridad Reguladora
 | 4 | 2010-10-04 | Reglamento 39 (2010-10-04) |
 | 5 | 2011-03-30 | Reglamento 21 (2011-03-30) |
 | 6 | 2011-09-28 | Reglamento 62 (2011-09-28) |
+| 7 | 2011-10-26 | Reglamento 66 (2011-10-26) |
