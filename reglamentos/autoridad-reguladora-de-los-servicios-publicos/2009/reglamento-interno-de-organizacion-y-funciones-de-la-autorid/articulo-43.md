@@ -7,7 +7,7 @@ d. Fijar de manera ordinaria y extraordinaria, a solicitud de parte y de oficio,
 e. Regular la calidad, la cantidad, la confiabilidad, la continuidad, la oportunidad, la diversidad y la sostenibilidad ambiental de los servicios públicos regulados, en la perspectiva de promover los derechos de los usuarios y la protección del ambiente.
 f. Velar por el cumplimiento de las condiciones del título habilitante, de la normativa técnica, las obligaciones tributarias y cargas sociales por parte de los prestadores de los servicios públicos, con todos los instrumentos y medios otorgados por la ley.
 g. Establecer un sistema de seguimiento y registro del comportamiento del mercado de los sectores regulados y los prestadores de tales servicios, bajo el enfoque de regulación por redes.
-h. Declarar la caducidad y revocatoria de las concesiones otorgadas para la prestación de los servicios públicos de su competencia cuando corresponda.
+h. (Derogado mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
 i. Participar en conjunto con el Centro de Desarrollo de la Regulación y la Asesoría Jurídica y Regulatoria en la elaboración de los reglamentos técnicos que se requieran para la correcta aplicación del marco regulatorio de los servicios públicos regulados.
 j. Rendir dictamen con respecto a los estudios técnicos que justifiquen la necesidad de licitar concesiones y los contratos de adhesión, cuando le sean remitidos para este efecto a la ARESEP.
 k. Instruir los procedimientos de refrendo y concesiones que se sometan a consideración de la Autoridad Reguladora, según los servicios de su competencia.
@@ -19,9 +19,12 @@ o. Gestionar las relaciones con los organismos nacionales e internacionales que 
 p. Emitir el acto administrativo de admisibilidad, rechazo o prevención de requisitos para las gestiones realizadas por las entidades reguladas.
 2. En materia de procedimientos administrativos.
 a. Realizar las investigaciones preliminares en las quejas y controversias que no hubieran sido resueltas o conciliadas mediante la participación de la Dirección General de Participación del Usuario.
-b. Realizar las investigaciones preliminares en las denuncias.
-c. Determinar la existencia de mérito en quejas, controversias y denuncias, para la instrucción formal de un procedimiento administrativo y solicitar dicha instrucción a la Dirección General de Asesoría Jurídica y Regulatoria cuando corresponda.
-d. Resolver, como órgano decisor, las quejas, controversias y denuncias que se presenten ante la ARESEP, así como proporcionar la información que se le solicite en su instrucción.
+b. Realizar las investigaciones preliminares de aquellos casos, donde posiblemente hay infracción a los artículo 38 y 41 de la ley 7593 y remitir al órgano decidor correspondiente un informe que contenga como mínimo la valoración y recomendación de la existencia de mérito suficiente para abrir el respectivo procimiento y que anexe los elementos de juicio necesarios para formular el traslado de cargos o intimación.
+(Así reformado el sub inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+c. Determinar la existencia de mérito en quejas y controversias, para la instrucción formal de un procedimiento administrativo y solicitar dicha instrucción a la Dirección General de Asesoría Jurídica y Regulatoria cuando corresponda.
+(Así reformado el sub inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+d. Resolver, como órgano decisor las quejas y controversias que se presenten ante la ARESEP, así como proporcionar la información que se le solicite en su instrucción.
+(Así reformado el sub inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
 3. En materia de gestión.
 a. Diseñar, documentar y mejorar los procesos y procedimientos que garanticen una aplicación de la normativa institucional equitativa, transparente, eficiente y segura desde el punto de vista de la gestión del riesgo.
 b. Apoyar a la Dirección General de Participación del Usuario en las gestiones que requiera para evacuar las consultas, aconsejar a los usuarios y desarrollar campañas de educación.

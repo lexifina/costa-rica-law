@@ -15,3 +15,9 @@ m. Fiscalizar la ejecución de los acuerdos de Junta Directiva.
 n. Fungir como superior inmediato del Director General de Estrategia y Evaluación, lo cual incluye la competencia de su nombramiento y eventualmente de su remoción.
 ñ. Negociar y firmar los contratos de prestación de los servicios de la Autoridad Reguladora salvo los de la SUTEL.
 o. Todo cuanto la ley le indique.
+p. Ordenar en los procedimientos administrativos, en los cuales la posible sanción sea la imposición de multas, su apertura; dictar los actos preparatorios y las medidas cautelares de cierre de empresa o remoción de equipo y dictar la resolución final. Además deberá conocer de los recursos que se presenten.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+q. Otorgar o denegar el refrendo de contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos y resolver los recursos administrativos que correspondan;
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+r. Ratificar o no los contratos que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos y resolver los recursos administrativos que correspondan.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)

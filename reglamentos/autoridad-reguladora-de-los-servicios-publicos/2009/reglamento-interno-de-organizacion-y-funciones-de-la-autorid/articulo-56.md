@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el numeral 55 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado (RIOF), aprobado mediante resolución RJD-038-2013 del 27 de mayo del 2013, se ordena derogar esta norma, salvo lo dispuesto transitoriamente en este artículo)
 Artículo 56.—Funciones de la Dirección General de Asesoría Jurídica y Regulatoria (DJR).
 1. En materia de asesoría:
 a. Emitir criterio jurídico sobre los recursos administrativos de primera instancia que deba conocer la Junta Directiva, el Regulador General y la Gerencia General.
@@ -5,8 +6,11 @@ b. Emitir criterio jurídico y técnico regulatorio sobre los recursos administr
 c. Atender las consultas jurídicas que le formulen la Junta Directiva, el Regulador General y la Gerencia General.
 d. Apoyar en la atención de las consultas jurídicas y regulatorias planteadas por terceros a la Junta Directiva, el Regulador General y la Gerencia General.
 e. Asesorar en materia jurídica y regulatoria a la Junta Directiva sobre los aspectos formales de los proyectos de resolución que esta deba emitir.
+f. Asesorar a la Junta Directiva en materia de resolución de las apelaciones a las fijaciones de tarifas, cánones, tasas y contribuciones de telecomunicaciones de la Superintendencia de Telecomunicaciones;
+(Así adicionado el sub inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
 2. En materia de procedimientos administrativos y judiciales:
-a. Realizar la instrucción formal de procesos administrativos sancionatorios de las quejas, controversias, y denuncias relacionadas con la prestación de los servicios públicos, remitiéndolos para su decisión a la Superintendencia que corresponde al servicio público involucrado para su decisión final (artículos 27-28, ley 7593).
+a. Realizar la instrucción formal de procesos administrativos sancionatorios de las quejas, controversias, y denuncias relacionadas con la prestación de los servicios públicos, remitiéndolos para su decisión *(a la Superintendencia que corresponde al servicio público involucrado para su decisión final) (artículos 27-28, ley 7593).
+*(Anulado lo destacado entre paréntesis en el inciso anterior mediante resolución de la Sala Constitucional N° 16591 del 30 de noviembre de 2011.)
 b. Realizar la instrucción formal de procesos administrativos sancionatorios contra los funcionarios de la Autoridad Reguladora de los Servicios Públicos, salvo a los funcionarios de la SUTEL, remitiéndolos para su decisión al órgano decisor correspondiente.
 c. Realizar la instrucción formal de los procesos administrativos ordinarios y sumarios de la Autoridad Reguladora de los Servicios Públicos que se refieran a contratación administrativa, reclamos administrativos y todos aquellos en los cuales el órgano decisor sea la Junta Directiva, el Regulador General o el Gerente General, remitiéndolos para su decisión final al órgano decisor correspondiente. La instrucción de dichos procesos también podrá ser realizada por la Asesoría Jurídica y Regulatoria cuando el órgano decisor sea la SUTEL y ésta así lo requiera.
 d. Atender los asuntos judiciales en que sea parte la Autoridad Reguladora, excepto aquellos de la SUTEL.

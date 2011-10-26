@@ -19,6 +19,10 @@ f. Emitir criterio sobre las normas técnicas que la SUTEL vaya a proponer al MI
 g. Resolver, agotando la vía administrativa, los recursos relacionados con asuntos de competencia de la Autoridad Reguladora conforme lo establece la ley.
 h. Conocer y resolver las apelaciones a las resoluciones que, en temas regulatorios, sean emitidas por las Superintendencias y sus órganos desconcentrados.
 i. Resolver los recursos que se presenten contra las resoluciones que dicte la SUTEL en materia de fijación de tarifas, cánones, tasas y contribuciones de telecomunicaciones.
+j. Ordenar en los procedimientos administrativos, en los cuales una posible sanción a imponer sea la revocatoria de la concesión o el permiso, su apertura; dictar los actos preparatorios y las medidas cautelares de cierre de empresa o remoción de equipo y dictar la resolución final. Además deberá conocer de los recursos que se presenten.
+(Así adicionado el sub inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
+k. Declarar la caducidad de las concesiones o permisos otorgados para la prestación de los servicios públicos de su competencia, cuando corresponda.
+(Así adicionado el sub inciso anterior mediante sesión ordinaria N° 066-2011 del 26 de octubre del 2011)
 3. En materia de gestión:
 a. Resolver los recursos de su competencia en materia administrativa.
 b. Aprobar los contratos de obras y servicios de acuerdo con el ordenamiento vigente.
