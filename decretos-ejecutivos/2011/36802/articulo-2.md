@@ -1,0 +1,1 @@
+Artículo 2º.— Modifícase el artículo 2º de la Ley No. 8908, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2011, publicada en el Alcance No. 36 a La Gaceta No. 244 de 16 de diciembre de 2010 y sus reformas, con el fin de realizar el traslado de partidas presupuestarias del Ministerio de Educación Pública.
