@@ -1,0 +1,1 @@
+Artículo 18.- Baja de semovientes o especies menores. Se dará de baja un semoviente o especie menor en los siguientes casos: muerte, sacrificio, venta, donación, realización de actividades didácticas y otras actividades debidamente autorizadas. La autorización para la realización de una baja le corresponde al Consejo de Sede.

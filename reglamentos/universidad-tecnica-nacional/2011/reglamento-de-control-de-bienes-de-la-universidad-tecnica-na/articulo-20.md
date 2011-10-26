@@ -1,0 +1,1 @@
+Artículo 20.- De la responsabilidad de los custodios de inventarios. Los funcionarios custodios de inventarios de productos agropecuarios, agroforestales, marinos y otros deberán mantener actualizada la información de pertinente.

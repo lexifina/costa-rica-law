@@ -1,0 +1,1 @@
+Articulo 5.- Encargado de Control de Bienes e Inventarios en cada Sede. Cada Sede contará con un Encargado de Control de Bienes e Inventarios, el cual dependerá del Director Administrativo y Financiero de cada recinto. Para la realización de sus labores deberá apegarse a las políticas, normas, directrices y procedimientos emitidas por la Dirección de Control de Bienes.

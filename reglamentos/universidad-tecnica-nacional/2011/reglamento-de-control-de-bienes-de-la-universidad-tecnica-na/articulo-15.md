@@ -1,0 +1,1 @@
+Artículo 15.- De la autorización. La autorización para la realización del traslado, préstamo o alquiler de un bien le corresponde al Decano de Sede. En el caso del alquiler de bienes a mediano y largo plazo le corresponde al Consejo de Sede o Consejo Universitario la autorización.

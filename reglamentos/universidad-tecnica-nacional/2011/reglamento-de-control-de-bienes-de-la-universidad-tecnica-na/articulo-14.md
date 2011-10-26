@@ -1,0 +1,1 @@
+Artículo 14.- Alquiler de bienes. Se podrán dar en alquiler bienes de la UTN, siempre y cuando se cuente con las autorizaciones correspondientes y no se desmejore o entorpezca el quehacer institucional.

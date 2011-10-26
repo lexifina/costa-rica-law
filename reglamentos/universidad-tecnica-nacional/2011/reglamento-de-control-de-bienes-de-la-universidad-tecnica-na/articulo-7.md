@@ -1,0 +1,1 @@
+Artículo 7.- Uso de bienes institucionales por un contratista. En caso de que un contratista requiera utilizar bienes públicos institucionales para la ejecución de lo contratado, debe estipularse claramente en el contrato respectivo todo lo referente al recibo, uso y entrega de los mismos.

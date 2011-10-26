@@ -1,0 +1,1 @@
+Artículo 26.- Instituciones susceptibles a recibir donaciones. Las donaciones se podrán otorgar a entidades declaradas de Interés público, de Interés Social o sin fines de lucro debidamente inscritas.

@@ -1,0 +1,1 @@
+Artículo 29.- Del acatamiento del reglamento. La violación de cualquier disposición contenida en el presente “Reglamento para el Control de bienes e Inventarios de la Universidad Técnica Nacional”, será sancionada de conformidad con lo que establezca el Reglamento de Personal de la UTN, sin perjuicio de que se puedan aplicar otras leyes y reglamentos.

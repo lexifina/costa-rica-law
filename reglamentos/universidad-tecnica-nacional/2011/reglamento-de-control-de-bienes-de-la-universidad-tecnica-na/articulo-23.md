@@ -1,0 +1,1 @@
+Artículo 23.- Realización de pruebas físicas. La dirección de control de bienes 0 Encargado de Control de Bienes de cada Sede podrá verificar mediante pruebas selectivas los inventarios de productos agropecuarios, agroforestales, marinos y otros, una vez al mes, o cuando lo estimen conveniente
