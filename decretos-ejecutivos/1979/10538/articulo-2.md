@@ -36,8 +36,7 @@ Artículo 2°—Se reconocen como Especialidades Médicas:
 - Obstetricia.
 - Hematología.
 - Homeopatía.
-(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
-(La Sala Constitucional mediante resolución N° 110 del 09 de enero de 1998 estableció que se declara sin lugar la acción en cuanto al artículo 1 del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994, mismo que adiciono este artículo “en la medida que se interpreta que regula a los médico-cirujanos que quieran acreditar sus estudios de postgrado en homeopatía, y no a los médicos homeópatas.”)
+(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105, del 11 de marzo de 1994, mismo sobre el que la Sala Constitucional mediante resolución N° 110, del 09 de enero de 1998, declaró sin lugar la acción, “en la medida que se interpreta que regula a los médico-cirujanos que quieran acreditar sus estudios de postgrado en homeopatía, y no a los médicos homeópatas.”)
 - Infectología.
 - Informática Médica.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
@@ -102,3 +101,28 @@ Establecer un período de inscripción, para los médicos que demuestren y acred
 I. Los Médicos Especialistas en Cardiología, con experiencia en el área de la Cardiología Intervencionista y Hemodinamia, podrán inscribirse al Colegio de Médicos y Cirujanos como Subespecialistas en Cardiología Intervencionista y Hemodinamia, presentando los siguientes atestados:
 a. Estar debidamente inscrito y acreditado como Especialista en Cardiología, ante el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Experiencia certificada de 5 años de laborar en Costa Rica (contados a partir desde el momento de la inscripción como Especialista en Cardiología ante el Colegio de Médicos y Cirujanos de Costa Rica) en el área de la Subespecialidad en Cardiología Intervencionista y Hemodinamia, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio; practicando Procedimientos de Intervención Coronaria, con un mínimo de 50 Angioplastías Coronarias Percutáneas por año, ya sea con balón o stent. Las certificaciones deberán ser extendidas por el Director Médico del Centro y el Departamento de Estadística.)
+-Subespecialidad Neuroradiología Quirúrgica Endovascular
+(Adicionada la subespecialidad anterior mediante acuerdo del Colegio de Médicos y Cirujanos y publicado en La Gaceta N ° 238 del 12 de diciembre de 2011. Asimismo se reconocen como sinónimos de esta subespecialidad los términos Cirugía Neurointervencional; Neuroradiología Intervencional y Terapéutica; Neuroradiología Intervencional y Vascular; Neuroradiología Diagnóstica e Intervencional; Neuroradiología Intervencional; y Neuroradiología Endovascular. Los requistos de dicha subespecialidad son:
+-. Estar debidamente inscrito y acreditado como Especialista en Neurología, o Especialista en Neurocirugía, o Especialista en Radiología, ante el Colegio de Médicos y Cirujanos de la República de Costa Rica.
+-. Aprobación y acreditación de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad en Neuroradiología Quirúrgica Endovascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+-. Para los Especialistas en Radiología deben cumplir además con:
+I. Aprobación y acreditación de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad en Neuroradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+II. Aprobación y acreditación de seis (6) meses en un programa de estudios de posgrado (residencia médica) en Neurocirugía, Neurología Vascular y Cuidados Neurointensivos, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+III . Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con una formación adecuada).
+- Para los Especialistas en Neurocirugía deben cumplir además con:
+I. Aprobación y acreditación de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad en Neuroradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. Este programa de estudios contemplar y garantizar:
+i. Un curso de conocimientos básicos de radiografía, que incluya física de la radiación, biología de la radiación, protección radiológica y farmacología de los materiales de contraste radiográfico.
+ii. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con una formación adecuada.
+iii. El uso de agujas, catéteres, guías y dispositivos angiográficos y de materiales.
+iv. El reconocimiento y manejo de complicaciones de los procedimientos angiográficos.
+v. La comprensión de los fundamentos de estudios no invasivos de imágenes neurovasculares pertinentes para la práctica de la neuroradiología endovascular quirúrgica, incluyendo CT / CTA , MR / MRA y la ecografía de las enfermedades neurovasculares.
+- Para los Especialistas en Neurología deben cumplir además con:
+II. Aprobación y acreditación de un (1) año en un programa de estudios de posgrado (residencia médica) en Neurología Vascular/Enfermedad Cerebro Vascular, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. Este programa de estudios contemplar y garantizar, rotaciones en Cuidados Neurointensivos al menos de 3 meses de duración.
+III. Aprobación y acreditación de tres (3) meses en un programa de estudios de posgrado (residencia médica) en Neurocirugía, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+IV. Aprobación y acreditación de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad en Neuroradiología, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio. Este programa de estudios contemplar y garantizar:
+i. Un curso de conocimientos básicos de radiografía, que incluya física de la radiación, biología de la radiación, protección radiológica y farmacología de los materiales de contraste radiográfico.
+ii. Certificación de haber realizado e interpretado un mínimo de 50 neuroangiogramas diagnósticos bajo la supervisión de un médico capacitado (neuroradiólogo intervencionista, neurocirujano endovascular o neurólogo intervencionista con una formación adecuada.
+iii. El uso de agujas, catéteres, guías y dispositivos angiográficos y de materiales.
+iv. El reconocimiento y manejo de complicaciones de los procedimientos angiográficos.
+v. La comprensión de los fundamentos de estudios no invasivos de imágenes neurovasculares pertinentes para la práctica de la neuroradiología endovascular quirúrgica, incluyendo CT / CTA , MR / MRA y la ecografía de las enfermedades neurovasculares.
+-. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Subespecialidad de Neuroradiología Quirúrgica Endovascular, el cumplimiento de todos los requisitos establecidos, generales y específicos, en el Reglamento de Especialidades Médicas y demás legislación relacionada vigente.)

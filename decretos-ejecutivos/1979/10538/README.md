@@ -27,3 +27,4 @@ Reglamento de Especialidades Médicas
 | 12 | 2011-06-01 | Acuerdo 0 (2011-06-01) |
 | 13 | 2011-07-06 | Acuerdo 0 (2011-07-06) |
 | 14 | 2011-09-21 | Acuerdo 0 (2011-09-21) |
+| 15 | 2011-10-26 | Acuerdo 0 (2011-10-26) |
