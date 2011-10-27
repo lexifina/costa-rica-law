@@ -1,0 +1,1 @@
+Artículo 2°—Derogación. Deróguese el inciso 27 del artículo 10; así como los artículos 97 y 100, del Reglamento a la Ley del Sistema de Banca para el Desarrollo, Decreto Ejecutivo N° 34901 del 12 de noviembre de 2008, publicado en La Gaceta N° 232 del 1° de diciembre del 2008.
