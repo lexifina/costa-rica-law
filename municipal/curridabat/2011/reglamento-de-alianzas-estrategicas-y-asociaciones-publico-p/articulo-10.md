@@ -1,0 +1,4 @@
+Artículo 10.—Análisis de formalidades.
+1. Dentro del plazo de quince días hábiles a partir de la presentación del caso de negocio del proyecto de iniciativa privada, el grupo interdisciplinario responsable revisará si los antecedentes y estudios se ajustan a lo establecido en el presente Reglamento y a la regulación de la SPEM, y lo comunicará al potencial socio estratégico.
+2. En el caso de comprobarse que la información o documentación aportada está incompleta, o que se requiere de alguna aclaración o información adicional para efectos de determinar claramente la viabilidad del proyecto, el potencial socio estratégico deberá entregar la información requerida o la aclaración en un plazo no menor de diez días hábiles desde la recepción de la notificación que así se lo solicita.
+3. En el caso que la información o documentación adicional no sea presentada dentro de plazo conferido se tendrá por no efectuada la presentación del caso de negocio.

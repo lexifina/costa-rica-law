@@ -1,0 +1,3 @@
+Artículo 11.—Recomendación final
+1. Dentro del plazo de cuarenta y cinco días hábiles, contados desde la recepción del caso de negocio o desde la recepción de las aclaraciones o información adicional solicitada, el grupo interdisciplinario responsable emitirá de forma motivada una resolución a la Junta Directiva o a la Asamblea General de Accionistas, según corresponda, con su respectivo análisis y recomendación.
+2. A solicitud del grupo interdisciplinario responsable, el plazo del párrafo anterior podrá ser prorrogado mediante resolución fundada de la Junta Directiva o a la Asamblea General de Accionistas, según corresponda, hasta por otros cuarenta y cinco días hábiles, si ello fuere necesario dada la complejidad del proyecto.
