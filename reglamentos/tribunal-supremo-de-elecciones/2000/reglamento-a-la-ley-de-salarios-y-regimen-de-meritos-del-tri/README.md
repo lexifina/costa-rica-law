@@ -17,3 +17,4 @@ Reglamento a la Ley de Salarios y Régimen de Méritos del Tribunal Supremo de E
 | 2 | 2001-05-04 | Reglamento 4 (2001-05-04) |
 | 3 | 2011-02-03 | Decreto TSE 2 (2011-02-03) |
 | 4 | 2011-06-16 | Decreto TSE 9 (2011-06-16) |
+| 5 | 2011-10-27 | Decreto TSE 11 (2011-10-27) |
