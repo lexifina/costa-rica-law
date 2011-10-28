@@ -1,0 +1,32 @@
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+De conformidad con el artículo 240 de la Ley General de la Administración Pública y el artículo 53 de la Ley Nº 7593 y sus reformas, la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, por artículo 4º, acuerdo Nº 03-062-2011, de la sesión ordinaria Nº 062-2011, celebrada el 28 de setiembre del 2011, y ratificada el 5 de octubre del 2011, la Junta Directiva, dispone:
+Considerando:
+Sobre la potestad de auto organización de la Autoridad Reguladora de los Servicios Públicos
+I.—Que la reforma operada mediante Ley Nº 8660 del 8 de agosto del 2008, a la Ley de la Autoridad Reguladora de los Servicios Públicos, Nº 7593 atribuyó a la Autoridad Reguladora de los Servicios Públicos competencias asignadas, originalmente, al Regulador General de modo exclusivo.
+II.—Que la Ley Nº 7593, en su artículo 45 dispone que la Autoridad Reguladora estará facultada para establecer su organización interna, a fin de cumplir sus funciones y en su artículo 53 inciso l) establece como competencia de la Junta Directiva del Ente Regulador, el aprobar su organización interna.
+III.—Que mediante el acuerdo Nº 001-021-2009, de la sesión Nº 021-2009, de 19 de marzo del 2009, se aprobó por parte de esta Junta Directiva, el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus Órganos Desconcentrados (RIOF), publicados en el Alcance Nº 13 a La Gaceta Nº 69, de 8 de abril del 2009.
+Sobre el acuerdo Nº 003-054-2011
+IV.—Que mediante el acuerdo Nº 003-054-2011, tomado en la sesión ordinaria Nº 054-2011, celebrada por este órgano colegiado el 31 de agosto del 2011, ratificado en la sesión ordinaria Nº 56-2011 celebrada el 7 de setiembre del 2011, se dispuso:
+“Aprobar la reforma del Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus Órganos Desconcentrados (RIOF), con el objeto de que la Superintendencia de Telecomunicaciones-SUTEL asuma sus propias funciones administrativas y de apoyo, cuyo texto se copia a continuación:
+REGLAMENTO INTERNO DE ORGANIZACIÓN
+Y FUNCIONES DE LA AUTORIDAD REGULADORA
+DE LOS SERVICIOS PÚBLICOS Y SUS ÓRGANOS
+DESCONCENTRADOS (RIOF)
+Superintendencia de Telecomunicaciones
+(SUTEL)
+Artículo 20.—Naturaleza de la SUTEL. (…)
+Artículo 44.—Funciones de Proveeduría y Servicios Generales de la SUTEL. (…)
+Transitorio.
+Los servicios administrativos y de apoyo que se han venido recibiendo por parte de la ARESEP, deben continuar brindándose mientras se llevan a cabo las gestiones necesarias para que la SUTEL pueda proveerse sus propios servicios administrativos y de apoyo, hasta que la Junta Directiva disponga lo contrario. Dichos servicios continuarán prestándose sobre la base del Convenio suscrito entre ambas partes el 12 de junio del 2009 y sus documentos operativos. Debe la Administración y la SUTEL asegurarse de que dichos servicios se presten de conformidad con las disposiciones que sobre el efecto ha girado la Contraloría General de la República.
+Comuníquese y publíquese.”
+V.—Que mediante oficio Nº 213-DGEE-2011, de 20 de setiembre del 2011, el Director General de Estrategia y Evaluación informó a la Secretaría de Junta Directiva lo siguiente: “(…) En relación con la modificación del RIOF, para que la SUTEL disponga de sus propios servicios administrativos le solicitamos realizar un cambio de numeración al documento que va ser (sic) publicado en La Gaceta, ya que al realizar una exhaustiva revisión al Reglamento Interno de Funciones desde su creación hasta la última modificación en el 2011, detectamos que el inicio de las funciones de la SUTEL debe ser en el artículo 17 y debe concluir en el artículo 41, lo que implica que las funciones de la Superintendencia de Aguas debe iniciar en el artículo 42. (…)”
+VI.—Que revisada el acta de la sesión ordinaria Nº 054-2011, celebrada por este Órgano Colegiado el 31 de agosto del 2011 en su artículo 3º, y específicamente de los resultandos y considerandos de dicho acuerdo, se desprende con claridad que el objeto de la modificación era incorporar en el RIOF modificaciones a la organización de la Superintendencia de Telecomunicaciones, para incluir servicios administrativos.
+VII.—Sobre la corrección de errores materiales y adición de actos administrativos.
+VIII.—Que la Ley General de la Administración Pública, en el numeral 157, dispone que en cualquier tiempo podrá la Administración rectificar los errores materiales o de hecho y los aritméticos.
+IX.—Que mediante la aclaración y/o adición se integra, complementa, determina, puntualiza un acto administrativo, sin posibilidad de variar, revocar o de alguna manera modificar lo ya resuelto por la Administración. La aclaración y/o adición no es entonces, un instrumento procesal de revocación o sustitución de una decisión administrativa, sino que es precisamente, un remedio para hacer cumplir lo ordenado, autorizado o permitido (voluntad del órgano o el ente), de conformidad con lo establecido en los artículo 158 y siguientes del Código Procesal Civil, aplicable por laguna de lo dispuesto en la Ley General de la Administración Pública en su artículo 9º.
+X.—Sobre la corrección y adición del acuerdo Nº 003-054-2011.
+XI.—Que en procura de garantizar la continua y eficiente prestación del servicio público que, por Ley está llamada a brindar la Autoridad Reguladora de los Servicios Públicos y siendo que existe un error material en el acuerdo Nº 003-054-2011, en cuanto a la numeración de los artículos del RIOF que se están modificando, lo procedente es corregirlo, de manera que el artículo 20 pase a ser el artículo 17 así sucesivamente hasta terminar la reforma en el artículo 41 y no en el artículo 44, como por error se indicó.
+XII.—Que en procura de garantizar la continua y eficiente prestación del servicio público que, por Ley está llamada a brindar la Autoridad Reguladora de los Servicios Públicos y siendo que se omitió indicar en el referido acuerdo que se corría la numeración de los restantes artículos del RIOF, corresponde adicionar dicho acuerdo para introducir esa disposición, de manera que las disposiciones relativas a la Superintendencia de Aguas y Saneamiento inicien en el artículo 42. Por tanto:
+RESUELVE:
+Acuerdo Nº 03-062-2011
+I.—Rectificar el error material detectado en la numeración de la modificación al RIOF introducida mediante el acuerdo Nº 003-054-2011, de manera que el artículo 20 pase a ser el artículo 17 y así sucesivamente hasta que el artículo 44 pase a ser el artículo 41.
