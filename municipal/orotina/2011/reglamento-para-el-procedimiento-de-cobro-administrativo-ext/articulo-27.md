@@ -1,0 +1,1 @@
+Artículo 27.—Le corresponderá a la sección de cobros, verificar mediante los informes que los procesos judiciales están activos, de lo contrario, se aplicaran las sanciones que regulan este reglamento contra el(a) abogado(a) externo(a) que incumpla con esta obligación.
