@@ -20,3 +20,5 @@ l) Las agencias de viajes con declaratoria turística estarán sujetas asimismo 
 (Así adicionado el inciso anterior mediante el artículo 2 del decreto ejecutivo N°29058 del 06 de noviembre del 2000).
 ll) Cumplir con todas aquellas disposiciones establecidas por la Ley de Igualdad de Oportunidad para Personas con Discapacidad, Nº 7600, especialmente las contenidas en sus artículos 41, 42, 43, 44 y 50 así como en su respectivo reglamento.
 (Así adicionado el inciso anterior mediante el artículo 2 del decreto ejecutivo N°30207 del 05 de marzo del 2002).
+m) No permitir que sus instalaciones se utilicen para el fomento o desarrollo de actividades comerciales de índole sexual, de explotación sexual de menores de edad, o para actividades contrarias al orden público, ni utilizar en su promoción o propaganda elementos que promuevan esas actividades, de conformidad con lo establecido en el artículo 15 del presente reglamento.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36898 del 28 de octubre del 2011)
