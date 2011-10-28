@@ -1,0 +1,2 @@
+Artículo 13.—Vigencia: Este Reglamento se aplicará en ausencia de normas específicas locales y nacionales. Así mismo, en lo no expresamente regulado por este Reglamento, deberá aplicarse de manera supletoria la Legislación Nacional o Regional existente, entre otros por el Decreto Ejecutivo Nº 36159-MINAET-S-MEIC-MOPT. Decreto 36324-S 4 de febrero 2011. El presente cuerpo normativo entrará en vigencia a partir de la publicación definitiva en el Diario Oficial La Gaceta.
+Belén, 8 de junio del 2011.—
