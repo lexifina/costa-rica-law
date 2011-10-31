@@ -1,0 +1,1 @@
+Artículo 3°—Solicitar a todas las instituciones y órganos de la Administración Pública, así como a las empresas públicas y privadas, colaborar en la medida de sus posibilidades, y dentro del marco legal de sus competencias, con el proceso de candidatura.
