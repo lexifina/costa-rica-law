@@ -1,6 +1,3 @@
-ARTÍCULO 12.- Las redes de transmisión, tanto regionales como
-nacionales, serán de libre acceso a los agentes del Mercado. Los cargos
-por el uso y disponibilidad de las redes regionales serán aprobados por la
-CRIE y los cargos por el uso y disponibilidad de las redes nacionales
-serán aprobados por el ente regulador nacional y no serán discriminatorios
-para su uso en función regional.
+ARTÍCULO 12.- Las redes de transmisión, tanto regionales como nacionales, serán de libre acceso a los agentes del Mercado. Los cargos por el uso y disponibilidad de las redes regionales serán aprobados por la CRIE y los cargos por el uso y disponibilidad de las redes nacionales serán aprobados por el ente regulador nacional y no serán discriminatorios para su uso en función regional.
+Los sistemas interconectados nacionales de la región, que conjuntamente con las líneas de interconexión existentes y futuras entre los países miembros posibilitan las transferencias de energía y las transacciones en el Mercado Eléctrico Regional, integran la red de transmisión regional.
+(Así adicionado el párrafo anterior por el artículo 4° del Tratado Internacional "Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central", ley N° 9004 del 31 de octubre del 2011)

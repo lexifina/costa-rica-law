@@ -1,3 +1,2 @@
-ARTÍCULO 34.- Las controversias que surjan entre los agentes que
-intervienen en el Mercado, que no sean resueltas mediante negociación, se
-remitirán, a la CRIE para su resolución definitiva.
+Artículo 34. Las controversias que surjan entre los agentes, Operadores de Sistema y Mercado nacionales, Ente Operador Regional y entes reguladores de las Partes, que no sean resueltas mediante negociación, se someterán a la CRIE, para que, de acuerdo a los procedimientos que establezca, resuelva el asunto, ya sea como amigable componedor a través de la conciliación o como árbitro. La decisión en todo caso será definitiva y tendrá idénticos efectos a un laudo arbitral.
+(Así reformado por el artículo 13 del Tratado Internacional "Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central", ley N° 9004 del 31 de octubre del 2011)
