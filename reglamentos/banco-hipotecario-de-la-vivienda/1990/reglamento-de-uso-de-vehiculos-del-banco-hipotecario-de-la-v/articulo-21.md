@@ -1,4 +1,2 @@
-Artículo 21.-Las disposiciones contenidas en el presente reglamento son aplicables a todos los funcionarios del BANHVI que en razón de sus cargos usen, controlen y/o administren los recursos de transporte del Banco, incluyendo a los miembros de la Junta Directiva, al Gerente General, al Auditor Interno y a los jefes de Dirección.
-Tratándose de vehículos de uso discrecional, este reglamento se aplicará en todo aquello que no sea contrario al principio que rige, en cuanto a dicho uso.
-Son vehículos de uso discrecional: los asignados por la Junta Directiva a determinado funcionario por la índole de sus funciones y para el mejor desempeño de su cargo. EI usuario de este tipo de vehículo será responsable del uso correcto del mismo, signado al Gerente General, al Auditor Interno y a los subgerentes, se considerarán de uso discrecional.
-Son vehículos de uso administrativo: todos los demás vehículos propiedad del BANHVI.
+Artículo 21.—Las disposiciones contenidas en el presente reglamento son aplicables -sin excepción alguna- a todos los funcionarios del BANHVI que en razón de su cargo usen, controlen y/o administren los recursos de transporte del Banco.
+(Así reformado en sesión N° 77 del 31 de octubre de 2011)
