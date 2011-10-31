@@ -1,0 +1,1 @@
+Artículo 12 bis.—A los centros de población se les avisará un mes antes de la instalación de una torre de telecomunicaciones para que expresen su criterio ante el Consejo, la Administración y el interesado o dueño de la torre donde se instalarán las antenas.

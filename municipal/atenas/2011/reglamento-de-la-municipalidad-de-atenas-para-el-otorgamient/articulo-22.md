@@ -1,0 +1,1 @@
+Artículo 22.—La Municipalidad tendrá un plazo de treinta días naturales para resolver la solicitud de la licencia, la cual será positiva si el interesado ha cumplido con todos los requisitos establecidos en este Reglamento. En caso contrario, el interesado podrá impugnar la resolución denegatoria de la licencia, mediante los recursos previstos en el Código Municipal.
