@@ -1,0 +1,1 @@
+Artículo 19.—Área de Gestión Administrativa. Desarrollo de estudios de índole operativo administrativo, que no tiene que ver con aspectos contables ni financieros ni técnicos de la función propia de la Empresa.

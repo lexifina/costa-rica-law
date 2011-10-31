@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente Reglamento regula definiciones atinentes al marco de acción del ejercicio de esa actividad, referidas a la naturaleza, ubicación y estructura organizativa, ámbito de acción, competencias, relaciones y coordinaciones.
