@@ -1,0 +1,3 @@
+Artículo 83.—Firmas en la orden de compra: La competencia para firmar órdenes de compra estará definida según el monto de la orden de compra, para ello la Municipalidad de forma anual establecerá los montos que regulan dicha competencia considerando los siguientes niveles:
+• Las órdenes de compra por el monto con el límite inferior o más bajo al monto establecido por la administración, deberán ser firmadas por el Tesorero (a), El Proveedor (a) y El Director (a) Financiero Administrativo.
+• Las órdenes de compra por el monto que excede el límite inferior establecido por la Administración deberán ser firmadas por El Tesorero (a), El Proveedor (a) y El Alcalde (sa).

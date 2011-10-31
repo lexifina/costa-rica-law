@@ -1,0 +1,1 @@
+Artículo 28.—Exclusión de Registro de Proveedores: La exclusión en el Registro de Proveedores se regirá de acuerdo a la normativa vigente en la materia de contratación administrativa, Artículo 124 del RLCA.

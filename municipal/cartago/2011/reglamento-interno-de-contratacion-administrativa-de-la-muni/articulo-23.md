@@ -1,0 +1,1 @@
+Artículo 23.—Garantizar la actualización y mantenimiento del Registro de Proveedores: La Proveeduría será la responsable de dar el mantenimiento y brindar información actualizada sobre el Registro de Proveedores tanto por medios físicos como electrónicos, así como sobre su uso.

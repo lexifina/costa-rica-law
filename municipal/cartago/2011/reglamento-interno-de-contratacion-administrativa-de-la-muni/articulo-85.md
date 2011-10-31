@@ -1,0 +1,1 @@
+Artículo 85.—Orden de inicio de contrato: Para efectos de la ejecución del contrato será la Unidad Solicitante en coordinación con La Proveeduría quienes indiquen el inicio del contrato en concordancia con lo establecido en el RLCA en los Artículos 192 y siguientes.

@@ -1,0 +1,3 @@
+SECCIÓN V
+Almacén Municipal
+Artículo 10.—Definición funcional del Almacén Municipal: El Almacén Municipal será la dependencia municipal adscrita a la Dirección Financiera Administrativa, encargada de los procesos de recepción, registro, almacenamiento, distribución de bienes, levantamiento y administración del inventario de La Municipalidad, velando porque los mismos sean óptimos, oportunos y estandarizados y que cumplan con todos los requisitos establecidos en la LCA y su Reglamento.

@@ -1,0 +1,2 @@
+Artículo 20.—Actualización de la información del Catálogo de Bienes y Servicios: Con el propósito de garantizar la calidad de la información disponible en el Catálogo de Bienes y Servicios, La Proveeduría podrá excluir los bienes y los servicios que se dupliquen, o bien, inactivar aquellos que se encuentren obsoletos o en desuso.
+Es obligación de las Unidades Solicitantes comunicar las actualizaciones de los bienes y los servicios que afecten los datos del Catálogo.

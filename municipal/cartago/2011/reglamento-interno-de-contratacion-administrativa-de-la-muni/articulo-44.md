@@ -1,0 +1,1 @@
+Artículo 44.—Responsable de la elaboración del cartel o pliego de condiciones: El Proveedor (a) será el encargado de elaborar los carteles de licitación respectivos y de contratación directa cuando se requiera. Dicho cartel debe además contar con el aval de la dependencia solicitante del bien y/o servicio.
