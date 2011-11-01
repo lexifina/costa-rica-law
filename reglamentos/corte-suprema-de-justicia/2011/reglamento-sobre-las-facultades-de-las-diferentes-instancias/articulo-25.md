@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Del Comité Gerencial
+Artículo 25.—Créase el Comité Gerencial con la finalidad de garantizar la comunicación entre los equipos contraparte y el o los proveedores contratados en los diferentes proyectos. Conocerá de los asuntos que no puedan resolver los equipos contraparte o los proveedores contratados por el Programa, y procederá a emitir, recomendaciones. De presentarse una inconformidad entre las partes, y no sea posible una solución por parte del Comité Gerencial, la misma debe ser trasladada, para lo que corresponda, a la Comisión de Seguimiento del Programa y de seguir la misma, deberá darse traslado al Consejo Superior del Poder Judicial, para que se tome la decisión respectiva, informando oportunamente a la Corte Suprema de Justicia.

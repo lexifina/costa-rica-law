@@ -1,0 +1,1 @@
+Artículo 8º—Conforme sus competencias, el CSPJ resolverá sobre las licitaciones que se tramiten en el Programa de préstamo y asignará los recursos humanos y materiales que se requieran para la correcta ejecución de éste.

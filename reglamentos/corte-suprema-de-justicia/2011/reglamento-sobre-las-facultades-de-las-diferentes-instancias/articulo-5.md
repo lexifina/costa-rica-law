@@ -1,0 +1,1 @@
+Artículo 5º—La CSJ conocerá de los informes sobre la ejecución del Programa Modernización de la Administración de Justicia, por medio de las comunicaciones que le remitan la Comisión de Seguimiento (CS), la Unidad Ejecutora del Programa (UEP) o la Auditoria del Poder Judicial.

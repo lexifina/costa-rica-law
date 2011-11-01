@@ -1,0 +1,1 @@
+Artículo 12.—Los Magistrados y las Magistradas integrantes de la CS, informarán de los acuerdos de ésta a los demás Magistrados de las Salas a las que pertenecen. La CS remitirá a conocimiento de la CSJ semestralmente un informe sobre la ejecución del Programa de Préstamo.

@@ -1,0 +1,1 @@
+Artículo 7º—El CSPJ conocerá de los asuntos del Programa Modernización de la Administración de Justicia, por medio de las comunicaciones que le remita la Corte Suprema de Justicia (CSJ), la Comisión de Seguimiento (CS), la Unidad Ejecutora del Programa (UEP), la Auditoria del Poder Judicial y los Jerarcas del Ministerio Público y de la Defensa Pública.

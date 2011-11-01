@@ -1,0 +1,1 @@
+Artículo 26.—El Comité estará conformado por la Directora del Despacho de la Presidencia, el Director de la UEP, el Director Ejecutivo y los demás servidores judiciales que determine la CS y por al menos un representante de la firma proveedora contratada respectiva.

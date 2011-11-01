@@ -1,0 +1,1 @@
+Artículo 34.—El Líder de proyecto, deberá propiciar un adecuado ambiente de control interno, canales adecuados de comunicación, para que los procesos o procedimientos se lleven a cabo. La persona que se designe para realizar esta labor, deberá coordinar lo correspondiente con el Gerente del Componente y con el Comité Técnico.

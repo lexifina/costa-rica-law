@@ -1,0 +1,1 @@
+Artículo 13.—La Comisión de Seguimiento, contará con un Secretario (a) Técnico que será el Director (a) de la UEP. La UEP, deberá rendir, semestralmente, y ante la CS, un informe del estado de las contrataciones y avance del Programa.
