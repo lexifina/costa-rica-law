@@ -1,0 +1,1 @@
+Artículo 97.—La Comisión de Visas Restringidas y Refugio se denominará la Comisión de Refugiados cuando sesione para conocer asuntos propios de solicitantes de la condición de refugiado y personas refugiadas.

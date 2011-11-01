@@ -1,0 +1,1 @@
+Artículo 28.—La Dirección General por medio del Subproceso de Refugiados, podrá interpretar que una persona refugiada se ha acogido a la protección de su país de origen, si éste ha realizado viaje a su país de origen o residencia habitual, sin que medie autorización de la Dirección General y como resultado de esto, cese su condición.

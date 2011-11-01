@@ -1,0 +1,1 @@
+Artículo 61.—El costo de emisión del documento de viaje será cubierto por el interesado, dándole el derecho de uso, más no su propiedad. En caso de pérdida o robo la persona deberá interponer una denuncia ante el órgano jurisdiccional competente, aportando copia de la misma al Subproceso de Refugiados para adjuntarlo al expediente para lo que corresponda.

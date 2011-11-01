@@ -1,0 +1,1 @@
+Artículo 2º—La creación del Subproceso de Refugiados, tiene como función primordial la recepción y procesamiento de las solicitudes de la condición de persona refugiada en atención a la legislación internacional ratificada por el Estado costarricense.

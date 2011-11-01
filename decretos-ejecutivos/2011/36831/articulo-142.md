@@ -1,0 +1,1 @@
+Artículo 142.—El desestimiento aplicará en todas las instancias de conformidad con el artículo 337 de la Ley General de Administración Pública, procediendo luego el control migratorio correspondiente.

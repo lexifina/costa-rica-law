@@ -1,0 +1,1 @@
+Artículo 73.—Contra la resolución emitida por la Comisión de Visas y Refugio en lo referido a la solicitud de reunificación familiar, cabrán los recursos de revocatoria y apelación previstos en la ley.

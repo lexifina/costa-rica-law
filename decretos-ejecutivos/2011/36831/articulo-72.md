@@ -1,0 +1,1 @@
+Artículo 72.—El Subproceso de Visas, en cumplimiento de la instrucción emitida por la Comisión y de conformidad con el artículo 52 de la Ley, procederá a la tramitación de la visa para el familiar solicitado por la persona refugiada.

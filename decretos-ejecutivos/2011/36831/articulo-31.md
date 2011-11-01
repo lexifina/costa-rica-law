@@ -1,0 +1,1 @@
+Artículo 31.—Para la aplicación del artículo anterior, una vez en firme la resolución de la cesación de la condición de refugio, la persona será intimada a regularizar su situación migratoria en un plazo de 30 días hábiles, momento a partir del cual se aplicará lo dispuesto en la normativa migratoria vigente.

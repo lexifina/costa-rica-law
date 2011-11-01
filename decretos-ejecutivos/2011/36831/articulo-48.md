@@ -1,0 +1,1 @@
+Artículo 48.—El Centro de Aprehensión procederá a la verificación de la condición migratoria de la persona aprehendida que implica como primera medida determinar si la persona solicitó la condición de persona refugiada y la verificación de su identidad.

@@ -1,0 +1,1 @@
+Artículo 15.—Será aplicable el presente Reglamento a las personas apátridas, considerando como persona apátrida aquella que no es considerada como nacional suyo por ningún Estado, conforme a la legislación de ese país.

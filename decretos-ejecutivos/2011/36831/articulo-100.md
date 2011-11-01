@@ -1,0 +1,5 @@
+Artículo 100.—Será obligación de los miembros de la Comisión y sus suplentes para el adecuado funcionamiento de la misma:
+a) Procurar el asesoramiento que considere idóneo y necesario cuando por la tecnicidad lo amerite, a fin de resolver cada extremo planteado. El asesoramiento podrá provenir de cualquier organismo, nacional e internacional o de personas, jurídicas o físicas, no relacionadas con el asunto por resolver o interesadas en él.
+b) Contar con disponibilidad para recibir capacitación en temas referidos (derechos humanos y derecho internacional de refugiados), brindando particular énfasis a la determinación de la condición de persona refugiada, apátridas, la protección de niños no acompañados o separados de sus familias; la protección de personas sobrevivientes de tortura, tratos crueles, inhumanos o degradantes, o que han sido víctimas de violencia sexual o por motivos de género, trata y tráfico, entre otros.
+c) Coordinar con otras organizaciones gubernamentales y no gubernamentales a favor de los fines perseguidos en la Ley y en el presente Reglamento.
+d) Y todas aquellas otras obligaciones que se determinen por ley.

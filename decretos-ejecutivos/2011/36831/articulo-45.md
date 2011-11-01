@@ -1,0 +1,1 @@
+Artículo 45.—Una vez manifiesta la voluntad de la persona de solicitar la condición de refugiado, los funcionarios de los Centros de Aprehensión se comunicarán de inmediato con el Subproceso de Refugiados para coordinar el acceso al procedimiento de solicitud de la condición de persona refugiada.

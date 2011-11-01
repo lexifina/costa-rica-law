@@ -1,0 +1,1 @@
+Artículo 78.—En el proceso de verificación de la documentación por parte del Subproceso, en caso de surgir duda en cuanto al vínculo familiar, validez o veracidad de la documentación aportada, se procederá a solicitar a la persona refugiada previo a su remisión ante la Comisión, que presente documentación adicional o cualquier otro medio probatorio que el Subproceso requiera.

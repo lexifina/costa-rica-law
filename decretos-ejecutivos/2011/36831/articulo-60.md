@@ -1,0 +1,1 @@
+Artículo 60.—La persona refugiada que desee viajar fuera del territorio nacional, y no cuente con pasaporte vigente, podrá solicitar un documento de viaje. Dicho documento será extendido de conformidad con la Convención. El documento deberá reunir los estándares internacionales que rigen en la materia, para facilitar el traslado de la persona refugiada a nivel internacional.

@@ -1,0 +1,1 @@
+Artículo 74.—Cuando el familiar solicitado por la persona refugiada haya ingresado al territorio nacional mediante este procedimiento, deberá presentarse sin demora ante el Subproceso de Refugiados en un plazo de cinco días hábiles a recibir la notificación, quedando facultado para solicitar la respectiva documentación.

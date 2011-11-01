@@ -1,0 +1,1 @@
+Artículo 101.—El quórum para que pueda sesionar válidamente el órgano colegiado será el de la mayoría absoluta de sus componentes. Todo aquello no previsto al funcionamiento del órgano colegiado se regirá por la Ley General de la Administración Pública.

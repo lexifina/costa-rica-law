@@ -1,0 +1,1 @@
+Artículo 115.—La convocatoria oficial a sesiones de la Comisión la realizará el presidente. La Comisión se reunirá ordinariamente una vez a la semana y de manera extraordinaria tantas veces como se estime conveniente. La Comisión sólo podrá adoptar decisiones y resolver sobre la condición de persona refugiada cuando sesione en quórum. La decisión se tomará con mayoría simple.

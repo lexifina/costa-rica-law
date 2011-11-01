@@ -1,0 +1,1 @@
+Artículo 111.—En caso de denegatoria de la solicitud de la condición de persona refugiada, la persona interesada podrá interponer los recursos ordinarios de revocatoria y ó apelación, de conformidad con lo que al efecto establece la Ley.

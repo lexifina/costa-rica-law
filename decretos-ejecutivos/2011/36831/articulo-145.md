@@ -1,0 +1,1 @@
+Artículo 145.—En caso del ingreso masivo, o riesgo inminente de ingreso masivo, al país de personas necesitadas de protección internacional, el Ministro de Gobernación y Policía en consulta con la Comisión y con la asesoría del ACNUR, establecerá las provisiones necesarias para garantizar su protección.

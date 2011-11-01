@@ -1,0 +1,1 @@
+Artículo 76.—El proceso dará inicio con la presentación de la solicitud por parte de la persona refugiada. Esta solicitud se presentará ante el Subproceso de Refugiados que verificará el vínculo familiar y los documentos presentados.

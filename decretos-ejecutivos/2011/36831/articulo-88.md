@@ -1,0 +1,1 @@
+Artículo 88.—La solicitud de cambio de categoría migratoria deberá ser dirigida a la Dirección General. Esta será recibida en el Subproceso de Refugiados para la verificación de los requisitos, la cual será remitida a la instancia correspondiente para su decisión.

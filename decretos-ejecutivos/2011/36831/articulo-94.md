@@ -1,0 +1,1 @@
+Artículo 94.—Para llevar a cabo este proceso de renovación de la documentación, el Subproceso de Refugiados contará con la información relativa a las citas de renovación previamente facilitada por el Subproceso de Documentación de la Gestión de Extranjería para la verificación de su estatus y remisión del expediente.

@@ -1,0 +1,1 @@
+Artículo 65.—La unidad de la familia de la persona refugiada contemplada en este capítulo se garantizará mediante la aplicación de dos procedimientos: la reunión familiar y el reconocimiento por extensión. En ambos supuestos, la persona refugiada deberá presentar una solicitud de su parte, fotocopia del carné que lo acredita como tal.

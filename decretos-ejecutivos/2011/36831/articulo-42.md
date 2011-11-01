@@ -1,0 +1,1 @@
+Artículo 42.—Independientemente de la naturaleza y de las circunstancias en torno a la aprehensión, estos casos recibirán para su tratamiento prioridad de conformidad con el respeto debido a los derechos de libertad y libre circulación.

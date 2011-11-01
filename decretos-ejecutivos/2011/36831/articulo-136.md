@@ -1,0 +1,1 @@
+Artículo 136.—En estricto apego a los criterios de confidencialidad los funcionarios de frontera trasladarán el cuestionario inicial del artículo anterior al Subproceso de Refugiados para ser incorporado en el expediente del interesado, este ayudará a tener más elementos para evaluar por parte del oficial de elegibilidad.

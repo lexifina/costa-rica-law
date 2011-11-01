@@ -1,0 +1,1 @@
+Artículo 21.—Toda persona refugiada que se encuentra en el país tiene la obligación de acatar todas las leyes y reglamentos vigentes, así como las medidas que se adopten para el mantenimiento del orden público y la seguridad nacional.

@@ -1,0 +1,1 @@
+Artículo 93.—En cualquier momento, particularmente para efectos de renovación de documentos de refugio y de residente permanente, el Subproceso de Refugiados deberá realizar el estudio de movimientos migratorios para verificar la existencia de viajes al país de origen que pudiera generar la valoración de una eventual cláusula de cesación.

@@ -1,0 +1,1 @@
+Artículo 144.—El procedimiento para la determinación de la condición de persona refugiada será llevado a cabo sin costo alguno para el solicitante y de la manera más expedita, sin perjuicio de las garantías procesales y los derechos de la persona solicitante.

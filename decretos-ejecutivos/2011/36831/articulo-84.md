@@ -1,0 +1,1 @@
+Artículo 84.—En virtud de los artículos 125 y 135 de la Ley, estarán exentos del pago por concepto de cambio de categoría migratoria y depósito de garantía, únicamente quienes mantengan el estatus de persona refugiada. Asimismo, otorgada la categoría de residente permanente, quien renuncie al estatus de persona refugiada igualmente deberá cancelar los rubros correspondientes.

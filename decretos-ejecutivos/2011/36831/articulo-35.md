@@ -1,0 +1,1 @@
+Artículo 35.—Previo a dar trámite a la solicitud de desestimiento y renuncia, el Subproceso de Refugiados deberá informar al petente los alcances jurídicos de dicha decisión. A estos efectos el Subproceso emitirá la resolución fundamentada correspondiente, en un plazo no mayor a diez días hábiles.

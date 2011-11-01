@@ -1,0 +1,1 @@
+Artículo 87.—Asimismo, podrán optar por la residencia permanente, las personas refugiadas con parentesco de primer grado por consanguinidad con ciudadano costarricense; se entenderán como tales a los padres, los hijos menores o mayores con discapacidad y los hermanos menores de edad o mayores con discapacidad.

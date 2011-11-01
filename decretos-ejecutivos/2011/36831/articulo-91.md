@@ -1,0 +1,1 @@
+Artículo 91.—El Subproceso de Refugiados realizará el traslado de la documentación presentada por la persona refugiada, junto con el expediente administrativo de refugio, a la Gestión de Valoración Técnica, para que ésta resuelva según corresponda.

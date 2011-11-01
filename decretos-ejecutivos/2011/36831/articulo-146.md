@@ -1,0 +1,1 @@
+Artículo 146.—Se deja sin efecto el Decreto número 32195-G del 22 de setiembre del 2004 el cual hace referencia a requisitos en el tema de reunificación familiar quedando regulada en este cuerpo legal.

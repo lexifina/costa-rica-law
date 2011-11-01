@@ -1,0 +1,1 @@
+Artículo 96.—La Comisión de Visas Restringidas y Refugio estará integrada por el o la Ministro (a) de Trabajo y Seguridad Social o su representante, el o la Ministro (a) de Gobernación, Policía y Seguridad Pública o su representante, y el o la Ministro (a) de Relaciones Exteriores y Culto o su representante.

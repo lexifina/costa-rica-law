@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO SEGUNDO
+De la opción de residencia permanente
+Artículo 83.—La persona Refugiada, de conformidad con lo establecido en el artículo 126 de la Ley, podrá optar por la residencia permanente, lo cual no implicará la pérdida del estatus de refugiado de la persona interesada, salvo que ésta lo manifieste así expresamente. En casos de renuncia expresa del estatus de persona refugiada por cambio de categoría migratoria, ésta será suscrita ante el Subproceso de Refugiados y únicamente surtirá efecto una vez que le haya sido notificada a la persona interesada la resolución que aprueba la residencia permanente. El Subproceso tendrá la obligación de advertir de las consecuencias legales de la misma verificando la voluntariedad del acto.

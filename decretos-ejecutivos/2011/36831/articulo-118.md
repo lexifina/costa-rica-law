@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMO CUARTO
+Del Subproceso para Refugiados
+Artículo 118.—La Unidad de Refugio, Visas Restringidas y Consulares adscrita a la Dirección General, conformada por el Subproceso de Visas y el Subproceso de Refugiados, los cuales por la especificidad y confidencialidad en la materia, serán subprocesos independientes que brindarán apoyo técnico y administrativo a la Comisión. Bajo la estructura de la Dirección General, cuya función principal es dar respuesta a las tareas administrativas cotidianas al servicio de la población solicitante y refugiada, dar apoyo técnico especializado a la Comisión en el desempeño de sus funciones.

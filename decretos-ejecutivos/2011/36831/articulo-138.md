@@ -1,0 +1,1 @@
+Artículo 138.—Una vez concluido el procedimiento de determinación de la condición de persona refugiada, en observancia a la colaboración brindada al ACNUR para el ejercicio de su mandato, la Dirección General por medio de el Subproceso de Refugiados, facilitará copias de las resoluciones del órgano deliberativo para lo que corresponda.

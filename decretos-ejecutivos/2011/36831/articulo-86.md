@@ -1,0 +1,1 @@
+Artículo 86.—El plazo establecido en el artículo 126 de la Ley referente a la autorización del cambio de categoría, se computará a partir de la notificación de la resolución que concede la condición de persona refugiada o apátrida.

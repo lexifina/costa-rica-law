@@ -1,0 +1,1 @@
+Artículo 85.—Al momento de iniciar el trámite para optar por la residencia permanente, deberá indicársele a la persona refugiada que subsisten todos los derechos y obligaciones propios del estatus de persona refugiada incluyendo la imposibilidad de viajar al país de origen.

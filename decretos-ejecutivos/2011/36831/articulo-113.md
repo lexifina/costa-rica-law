@@ -1,0 +1,1 @@
+Artículo 113.—De cada sesión de la Comisión se levantará un acta por parte del Subproceso de Refugiados, la que una vez confeccionada deberá firmarse por los comisionados que hubieran estado presentes y ratificadas finalmente por el Presidente de la Comisión. En apoyo a lo anterior, las sesiones de la Comisión serán transcritas y en la medida de lo posible grabadas.

@@ -1,0 +1,1 @@
+Artículo 17.—Ninguna persona que invoque la condición de apátrida y asilado podrá ser rechazada en frontera y estará de la misma forma protegida por el principio de No Devolución garantizado a las personas refugiadas de conformidad con los tratados internacionales suscritos por el país en la materia y en la Ley General de Migración y Extranjería.

@@ -1,0 +1,5 @@
+Artículo 49.—En el caso que la verificación concluya que se trata de un solicitante de la condición de persona refugiada será puesto en libertad, con excepción de las siguientes circunstancias:
+a) Que la persona se encuentre bajo investigación judicial. En este caso la persona será puesta a la orden del cuerpo judicial correspondiente para su detención.
+b) Que la solicitud de la condición de persona refugiada es manifiestamente infundada o abusiva. En este supuesto la aprehensión administrativa podrá extenderse bajo los supuestos del artículo 31 de la Ley.
+c) Cuando la Dirección General tenga motivos fundados de carácter de orden público y de seguridad nacional.
+d) Que se trate de una persona que inició proceso y no fue concluido o se le reconoció el estatus de la Condición de persona refugiada en otro país, para lo cual se realizarán las coordinaciones necesarias para su retorno, permaneciendo en el centro en calidad de albergado, el tiempo estrictamente necesario por razones humanitarias.

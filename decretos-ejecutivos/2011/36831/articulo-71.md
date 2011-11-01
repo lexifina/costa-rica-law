@@ -1,0 +1,4 @@
+Artículo 71.—Es facultad de la Comisión de Visas Restringidas y Refugio conocer y decidir sobre la solicitud de reunificación familiar por parte de la persona refugiada. La solicitud será conocida por la Comisión en una sesión exclusiva para asuntos de refugiados. La Comisión emitirá una resolución pronunciándose sobre los siguientes términos:
+a) El fondo de la solicitud de reunificación familiar: aprobando o denegando la solicitud, o en su defecto indicando claramente la información adicional que requiere para proceder a resolver por el fondo.
+b) Sobre el requisito de la visa, instruyendo al Subproceso de Visas según corresponda.
+c) Sobre el reconocimiento por extensión: en el supuesto de aprobarse la solicitud de reunificación familiar, la resolución hará mención a la aprobación del reconocimiento por extensión para el familiar solicitado por la persona refugiada. El reconocimiento sólo será eficaz mediante notificación personal al interesado.

@@ -1,0 +1,1 @@
+Artículo 11.—Enfoque de Género. Las Autoridades Migratorias en especial las y los funcionarios destacados en el Subproceso de Refugio están obligadas a aplicar en sus gestiones el Enfoque de Género, el cual se caracteriza por la observancia de la realidad con base en las variables sexo, género y sus manifestaciones en un contexto geográfico, étnico e histórico determinado.
