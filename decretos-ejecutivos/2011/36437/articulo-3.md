@@ -1,0 +1,1 @@
+Artículo 3º—En todo lo demás, el Decreto Ejecutivo Nº 35669-MINAET Reglamento Orgánico del Ministerio de Ambiente, Energía y Telecomunicaciones, del 4 de diciembre de 2009, se mantiene incólume, quedando intactas las funciones de las diferentes dependencias que forman parte de la estructura.
