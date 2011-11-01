@@ -1,1 +1,0 @@
-Artículo 13.—La Dirección de Administración y Finanzas, será la responsable del registro y control de los teléfonos celulares, para lo cual deberá coordinar con el Departamento Financiero el patrimonio de los aparatos y este último deberá llevar los registros actualizados.
