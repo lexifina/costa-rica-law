@@ -1,0 +1,11 @@
+ARTÍCULO 3
+Obligaciones de las partes contratantes
+1. Sin perjuicio de las excepciones mencionadas en el artículo 4:
+a) Las Partes contratantes se comprometen, salvo que aquellas disposiciones del apartado el siguiente, a que sus nomenclaturas arancelaria y estadística se ajusten al Sistema Armonizado a partir de la fecha de entrada en vigor del presente Convenio para cada parte. Se comprometen, por tanto, en la elaboración de sus nomenclaturas arancelaría y estadística:
+1º a utilizar todas las partidas y subpartidas de Sistema Armonizado sin adición ni modificación, así como los códigos numéricos correspondientes;
+2º a aplicar las Reglas generales para la interpretación del Sistema Armonizado así como todas las Notas de las secciones, capítulos y subpartidas y a no modificar el, alcance de las sectores, de los capítulos, partidas o subpartidas del Sistema Armonizado;
+3º a seguir el orden de numeración del Sistema Armonizado;
+b) Las Partes contratantes pondrán también a disposición del público las estadísticas del comercio de importación y exportación siguiendo el código de seis cifras del Sistema Armonizado o, por su propia iniciativa, con un nivel más detallado, salvo que tal publicación no pueda realizarse por razones excepcionales, tales como el carácter confidencial de la Información comercial o la seguridad nacional;
+c) Ninguna disposición de este artículo obliga a las Partes contratantes a utilizar las subpartidas del Sistema Armonizado en su nomenclatura arancelaria, siempre que se respeten las obligaciones prescritas en los apartados a) 1º, a) 2º y a) 3° anteriores en una nomenclatura arancelaria y estadística combinada.
+2. Respetando las obligaciones prevista en el apartado 1 a ) de este articulo, las Partes contratantes podrán hacer las adaptaciones del texto que sean indispensables para dar validez al Sistema Armonizado en relación con la legislación nacional.
+3. Ninguna disposición de este articulo prohíbe a las Partes contratantes crear, en su propia nomenclatura arancelaria o estadística, subdivisiones para la clasificación de mercancías a un nivel más detallado que el del Sistema Armonizado, siempre que tales subdivisiones se añadan y codifiquen a un nivel superior al del código numérico de seis cifras que figura en el anexo al presente Convenio.

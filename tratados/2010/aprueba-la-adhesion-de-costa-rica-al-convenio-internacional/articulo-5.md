@@ -1,0 +1,3 @@
+ARTICULO 5
+Asistencia técnica a los países en desarrollo
+Los países desarrollados que sean partes contratantes prestarán asistencia técnica a los países en desarrollo que lo soliciten, según las modalidades convenidas de común acuerdo, especialmente en la formación de personal, en la transposici6n de sus actuales nomenclaturas al Sistema Armonizado y en el asesoramiento sobre las medidas convenientes para mantener actualizados sus sistemas ya transpuestos, teniendo en cuenta las enmiendas Introducidas en el Sistema Armonizado, así como sobre la aplicación de las disposiciones del presente Convenio.
