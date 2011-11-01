@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº DGT-R-015-2011 del 5 de julio del 2011, publicada en La Gaceta Nº 142 del 22 de julio del 2011.
