@@ -15,3 +15,4 @@ Reglamento para la Administración y Operación de los Sistemas de Estacionómet
 | --- | --- | --- |
 | 1 | 2004-08-11 | la propia norma |
 | 2 | 2008-07-29 | Reglamento municipal 0 (2008-07-29) |
+| 3 | 2011-11-01 | Reglamento municipal 112 (2011-11-01) |
