@@ -1,0 +1,14 @@
+Sección XIX
+ARMAS, MUNICIONES Y SUS PARTES Y ACCESORIOS
+Capítulo 93
+Armas, municiones, y sus partes y accesorios
+Notas.
+1. Este Capítulo no comprende:
+a) los cebos y cápsulas fulminantes, detonadores, cohetes de señales o granífugos y dempas artículos del Capítulo 36;
+b) las partes y accesorios de uso general, tal como se definen en la Nota 2 de la Sección XV, de metal común (Sección XV) y los artículos similares de plástico (capítulo 39);
+c) los tanques y demás vehículos automóviles blindados de combate (partida 87.10);
+d) las miras telescópicas y demás dispositivos óprticos, salvo los montados en armas o presentados sin montar con las armas a las cuales se destinen (capítulo 90);
+e) las ballestas, arcos y flechas para tiro, armas embotanadas para esgrima y armas que presenten el carácter de juguete (capítulo 95);
+f) las armas y municones que presenten el carácter de objetos de colección o antigüedades (partidas 97.05 ó 97.06);
+2. En la partida 93.06, el término partes no comprende los aparatos de radio o radar de la partida 85.26.
+Partida 93.01 93.02 93.03 93.04 93.05 93.06 93.07 | Código del SA 9301.11 9301.19 9301.20 9301.90 9301.00 9303.10 9303.20 9303.30 9303.90 9304.00 9305.10 9305.21 9305.29 9305.91 9305.99 9306.21 9306.29 9306.30 9306.90 9307.00 | Armas de guerra, excepto los revólveres, pistolas y armas blancas -Piezas de artillería (por ejemplo: cañones, obuses y morteros): -Autopropulsadas -Las dempas -Lanzacohetes, lanzallamas; lanzagranadas, lanzatorpedos y lanzadores similares -Las demás Revólveres y pistolas, excepto los de las partidas 93.03 ó 93.04 Las demás armas de fuego y artefactos similares que utilicen la deflagración de pólvora (por ejemplo: armas de caza, armas de avancarga, pistolas lanzacohete y demás artefactos concebidos únicamente para lanzar cohetes de señal, pistolas y revólveres de fogueo, pistoles de matarife, cañones lanzacabo). -Armas de avancarga -Las demás largas de caza o tiro deportivo que tengan, por lo menos, un cañón de ánima lisa -Las demás armas largas de caza o tiro deportivo -Las demás Las demás armas (por ejemplo: armas largas y pistolas de muelle (resorte), aire comprimido o gas, porras), excepto las de la partida 93.07 Partes y accesorios de los artículos de las partidas 93.01 a 93.04 -De revólveres o pistolas -De armas largas de la partida 93.03 -Cañones de ánima lisa -Los demás -Los demás -De armas de guerra de la partida 93.01 -Los demás Bombas, granadas, torpedos, minas, misiles, cartuchos y demás municiones y proyectiles, y sus partes, incluidas las postas, perdigones y tacos para cartuchos -Cartuchos para armas olargas con cañón de ánima lisa y sus partes; balines para armas de aire comprimido -Cartuchos -Los demás -Los demás cartuchos y sus partes -Los demás Sabies, espadas, bayonetas, lanzas y demás armas blancas, sus partes y fundas
