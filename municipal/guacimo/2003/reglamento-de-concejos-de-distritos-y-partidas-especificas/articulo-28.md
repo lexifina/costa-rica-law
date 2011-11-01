@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Comisión Especial de Concejos de Distrito
-Artículo 28.—El Concejo Municipal creará una Comisión de Concejos de Distrito, integrado por al menos un miembro de cada una de las fracciones políticas representadas en Concejo Municipal en la forma y términos que establece el Código Municipal y el Reglamento respectivo y tendrá por finalidad conocer y dictaminar sobre los asuntos que le remitan los Concejos de Distritos y servir de Órgano de Coordinación entre ellos y la Municipalidad, con el fin de prestarles la asistencia que proceda en los proyectos que sean de interés para un distrito para un grupo de ellos. Además deberá determinar sobre la precalificación de idoneidad de las organizaciones que solicitan partidas específicas conforme a este Reglamento.

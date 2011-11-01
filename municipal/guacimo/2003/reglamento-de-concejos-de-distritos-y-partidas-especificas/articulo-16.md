@@ -1,1 +1,0 @@
-Artículo 16.—Las sesiones deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada. Transcurrido ese tiempo si no están presentes al menos tres miembros no se podrá realizar la sesión. Los suplentes que asuman la propiedad a partir de transcurrido el lapso anterior no podrán ser sustituidos por el propietario que llegará iniciada la sesión.

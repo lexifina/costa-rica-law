@@ -1,1 +1,0 @@
-Artículo 8º—Los presidentes de las Asociaciones de Desarrollo Comunal y Organizaciones Sociales sin fines de lucro del distrito podrán participar con voz, pero sin voto, en las sesiones del Concejo de Distrito, salvo en aquellas que por acuerdo calificado del propio concejo, se disponga lo contrario.
