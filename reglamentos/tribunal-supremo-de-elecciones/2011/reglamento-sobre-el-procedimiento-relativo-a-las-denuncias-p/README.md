@@ -14,3 +14,4 @@ Reglamento sobre el Procedimiento relativo a las Denuncias por Acoso u Hostigami
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-05 | la propia norma |
+| 2 | 2011-11-01 | Decreto TSE 12 (2011-11-01) |
