@@ -1,0 +1,1 @@
+Artículo 60.—Normativa aplicable. De conformidad con los Artículos 116 y 120 del RLCA, la Municipalidad al hacer uso del Sistema Compr@Red, debe regirse por la regulación especial del Registro de Proveedores establecida por la Dirección General de Bienes y Contratación Administrativa del Ministerio de Hacienda.

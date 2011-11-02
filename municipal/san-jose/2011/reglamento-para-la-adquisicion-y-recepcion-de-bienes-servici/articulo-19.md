@@ -1,0 +1,1 @@
+Artículo 19.—Invitación a Participar. La invitación a participar la hará el DRMS por medio del Sistema Compr@RED para los procedimientos ordinarios de contratación, así como para las materias excluidas de esos procedimientos y tratándose de Licitaciones Públicas, se realizará por medio del Diario Oficial La Gaceta.
