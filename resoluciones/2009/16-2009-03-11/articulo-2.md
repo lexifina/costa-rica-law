@@ -8,7 +8,8 @@ b. Detallar la ubicación exacta de cada local, por provincia, cantón y distrit
 a. El número de computadoras con las que pretende prestar el servicio.
 b. Número de terminales telefónicos en caso de brindar servicios de voz sobre IP (VoIP, por sus siglas en inglés).
 c. Ancho de banda del servicio de Internet.
-5. Acreditar la capacidad financiera relacionada con los servicios que se pretende autorizar. Para ello deberá aportar la constancia de estar inscrito como contribuyente ante la Dirección de Tributación Directa.
+5.Acreditar la capacidad financiera relacionada con los servicios que se pretende autorizar. Para ello deberá estar inscrito como contribuyente ante la Dirección de Tributación Directa.
+(Así reformado el punto anterior mediante resolución RCS-236-2011 del 2 de noviembre del 2011)
 6. Indicar expresamente si se requiere se declare la confidencialidad de la información aportada. Para ello debe:
 a. Identificar con claridad la información que se desea se declare confidencial,
 b. Describir las razones que motivan su solicitud y por las cuales se considera que la revelación de la información podría resultar en un perjuicio competitivo sustancial para el solicitante,
