@@ -18,3 +18,4 @@ Reglamento General del Régimen de Capitalización
 | 3 | 2009-07-31 | Reglamento 83 (2009-07-31) |
 | 4 | 2011-01-06 | Reglamento 0 (2011-01-06) |
 | 5 | 2011-06-02 | Reglamento 62 (2011-06-02) |
+| 6 | 2011-11-02 | SINALEVI (sin norma nombrada) |

@@ -1,5 +1,6 @@
 Artículo 13.—Pensión por sobrevivencia, cónyuge supérstite o compañero(a) de hecho. Tiene derecho a pensión por sucesión:
 a) El cónyuge sobreviviente del (la) trabajador(a) o pensionado(a) fallecido(a) que dependa económicamente al momento del fallecimiento.
+(La Sala Constitucional mediante resolución N° 14961-11 del 02 de noviembre de 2011 interpretó este inciso en el sentido que: “La norma no es inconstitucional en tanto se interprete conforme al Derecho de la Constitución y se entienda que la dependencia económica del cónyuge supérstite…” a que se refiere este inciso “…no es absoluta o total.”)
 b) La (el) compañera(o) económicamente dependiente al momento del fallecimiento del (la) trabajador(a) o pensionado(a) que hayan convivido por lo menos tres años previos al deceso y tuvieren ambos aptitud legal para contraer nupcias conforme la legislación civil.
 c) El (la) cónyuge divorciado(a) o separado(a) judicialmente o de hecho, excompañera(o), que disfrute a la fecha del deceso de una pensión alimentaria declarada por sentencia judicial firme o que demuestre que recibía una ayuda económica por parte del causante.
 Además de los requisitos anteriores, el (la) trabajador(a) fallecido(a) debe contabilizar en su cuenta individual un mínimo de 36 cotizaciones para el RCC, previas al fallecimiento.
