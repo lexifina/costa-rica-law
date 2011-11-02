@@ -1,0 +1,18 @@
+3 DOCUMENTOS DE REFERENCIA
+- ECA-MC Manual de Calidad.
+- ECA-MC-P18-F01 Control de logotipo y símbolo de acreditación.
+- ECA-MC-P18-F02 Comunicado para la utilización del símbolo de acreditación.
+- ECA-MC-P18-F03 Aprobación del uso de símbolo de acreditación.
+- ECA-MC-P18-F04 Aprobación del uso de Logotipo.
+- ECA-MC-P09 Procedimiento general de evaluación y acreditación.
+- ECA-MC-P13 Ejecución de la evaluación.
+- ECA-MC-P14-F03 Compromiso de Acreditación.
+- ECA-MC-P15 Seguimiento y reevaluación de la acreditación.
+- ECA-MC-P16 Procedimiento de investigación.
+- ILAC P8-07:2006 ILAC Mutual Recognition Arrangement (Arrangement): Supplementary Requirements and Guidelines for the Use of Accreditation Symbols and for Claims of Accreditation Status by Accredited Laboratories
+- IAF/ILAC A5:04/2009 IAF/ILAC MLA/MRA :Application of ISO/IEC 17011:2004
+- Norma INTE-ISO/IEC 17011:2004 Evaluación de la conformidad – Requisitos generales para los organismos de acreditación que realizan la acreditación de organismos de evaluación de la conformidad.
+- Ley de Marcas y Otros Signos Distintivos, número 7978 de 03 de marzo de 2000.
+- Ley del Sistema Nacional para la Calidad número 8279, 21 de mayo de 2002.
+- Reglamento de Estructura Interna y Funcionamiento del ECA, número 35522-MICIT, 01 de octubre de 2009.
+- Marca de Servicios número 155486, propiedad del ECA, clase 35 internacional, inscrita el 16 de diciembre de 2005.
