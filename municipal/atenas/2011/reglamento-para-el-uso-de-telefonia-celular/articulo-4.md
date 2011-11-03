@@ -1,0 +1,2 @@
+Artículo 4º—Los asignatarios serán responsables de la custodia y el manejo adecuado de los aparatos, debiendo reportar a la Alcaldía cualquier anomalía que se presente. En caso de pérdida injustificada estarán obligados a reponerlo de su propio peculio.
+La administración repondrá por su cuenta el aparato en caso de falla técnica o accidente, debidamente justificados; o en caso de robo, en el cual el funcionario presentará a la Administración el documento de denuncia ante las autoridades judiciales, con un informe de lo sucedido.

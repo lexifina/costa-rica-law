@@ -1,0 +1,1 @@
+Artículo 7º—Los aparatos de telefonía celular deberán ser entregados a la Alcaldía cuando el funcionario deje de laborar para la institución o por cualquier causal de suspensión de la relación de servicio.

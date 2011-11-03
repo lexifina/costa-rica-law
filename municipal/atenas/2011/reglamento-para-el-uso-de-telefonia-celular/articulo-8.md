@@ -1,0 +1,1 @@
+Artículo 8º—La disposición del recurso de telefonía celular no constituye salario en especie ni un derecho adquirido. La Alcaldía podrá retirarlo y reasignarlo atendiendo criterios objetivos de conveniencia y oportunidad, en aras de la mayor prosecución de los intereses municipales.
