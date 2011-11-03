@@ -20,3 +20,4 @@ Reglamento Interior de Servicio Postal
 | 5 | 2005-03-10 | Reglamento 578 (2005-03-10) |
 | 6 | 2005-06-01 | SINALEVI (sin norma nombrada) |
 | 7 | 2008-04-07 | Reglamento 863 (2008-04-07) |
+| 8 | 2011-11-03 | Reglamento 0 (2011-11-03) |
