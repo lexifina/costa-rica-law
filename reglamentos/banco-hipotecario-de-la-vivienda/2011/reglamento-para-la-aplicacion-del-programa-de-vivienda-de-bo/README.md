@@ -14,3 +14,4 @@ Reglamento para la aplicación del programa de vivienda de bono diferido previst
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-30 | la propia norma |
+| 2 | 2011-11-03 | Reglamento 78 (2011-11-03) |
