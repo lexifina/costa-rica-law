@@ -1,1 +1,0 @@
-Artículo 9º-Cuando hubiere empate en la votación de una moción, de un acuerdo o de otra disposición de la Junta Directiva, ya sea en general o en detalle, el Presidente resolverá conforme y para ello tendrá doble voto.

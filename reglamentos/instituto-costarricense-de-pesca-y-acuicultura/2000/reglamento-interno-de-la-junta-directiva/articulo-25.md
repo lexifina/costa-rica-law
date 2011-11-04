@@ -1,1 +1,0 @@
-Artículo 25.-Los miembros de la Junta Directiva podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que los justifiquen, quedando así exentos de la responsabilidad que, en su caso, pudieren derivarse de los acuerdos.

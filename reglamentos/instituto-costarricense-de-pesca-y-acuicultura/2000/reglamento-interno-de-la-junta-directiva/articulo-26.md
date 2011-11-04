@@ -1,2 +1,0 @@
-Artículo 26.-Contra los acuerdos de la Junta Directiva cabrán los recursos legales correspondientes. La Junta Directiva podrá revocar dentro del término señalado por el artículo 174 de la Ley General de la Administración Pública, aquellos acuerdos, cuando éstos no hayan sido ejecutados o cuando sea conveniente para los intereses del Instituto, en cuyo caso se requerirá de una mayoría calificada de cinco votos.
-Cuando se esté en presencia de nulidades absolutas se procederá conforme a lo señalado en el artículo 173 de la Ley General de la Administración Pública.

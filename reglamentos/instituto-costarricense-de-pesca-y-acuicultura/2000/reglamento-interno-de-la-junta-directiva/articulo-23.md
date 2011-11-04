@@ -1,1 +1,0 @@
-Artículo 23.-Dicho documento será transcrito en el Libro de Actas Oficial y será firmado por el Presidente y el Secretario de Actas, dando fe de que dicha transcripción es copia fiel del documento aprobado por los Directores.

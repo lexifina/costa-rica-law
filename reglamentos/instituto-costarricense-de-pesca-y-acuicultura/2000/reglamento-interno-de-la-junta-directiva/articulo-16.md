@@ -1,1 +1,0 @@
-Artículo 16.-El Presidente de la Junta Directiva podrá convocar periódicamente a sesiones extraordinarias de la Junta Directiva en lugares distintos de la Sede Legal del Instituto, con el objeto de que los Directores puedan conocer los diferentes asuntos que conciernen a la Institución y planteamientos que hagan los Administrados.
