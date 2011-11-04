@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Sanciones
+Artículo 15.—El estado y existencia de las instalaciones actuales no podrá extenderse si se extingue el título habilitante o licencia, de conformidad con lo preceptuado en este reglamento, ni podrá mantenerse en los casos en que la Municipalidad detecte infracciones técnicas, urbanísticas-ambientales cometidas antes de la vigencia de este reglamento que afecten seriamente la salud, la seguridad de las personas, el medio ambiente, las condiciones urbanísticas de ley. Y aquellas que válidamente y razonadamente reconozca la Municipalidad en procura del interés público en garantía de los procesos de ley. La remoción de la estructura deberá realizarla el solicitante del permiso de construcción o en su defecto el propietario del lote

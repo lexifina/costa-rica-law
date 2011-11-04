@@ -1,0 +1,1 @@
+Artículo 2º—Objetivos generales. La ubicación, construcción e instalación de infraestructura y otros dispositivos para telecomunicaciones estará referida al ordenamiento territorial plasmado en el Plan GAM considerando como zonas aptas, pero no limitativas, las zonas comerciales y/o las de uso mixto y de servicios.

@@ -1,0 +1,4 @@
+Transitorio II.—Las solicitudes de uso de suelo y Licencia de Construcción que se hayan presentado ante la Municipalidad antes de la publicación del presente Reglamento y que no han sido resueltas por la administración municipal, deberán ajustarse a lo establecido en el mismo, una vez este sea publicado en el Diario Oficial La Gaceta, para tales efectos el administrado tendrá un plazo de un mes para completar los requisitos aquí establecidos.
+Una vez presentados los requisitos faltantes según corresponda, la Municipalidad irá resolviendo las solicitudes en un estricto orden, de acuerdo con la hora y fecha de recepción de la solicitud.
+2º—Instruir a la secretaría del Concejo Municipal para que proceda a realizar la publicación respectiva en el Diario Oficial La Gaceta, de acuerdo al artículo 43 del Código Municipal.
+Santa Bárbara de Heredia, 1º de junio del 2011

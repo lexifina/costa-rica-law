@@ -1,0 +1,2 @@
+Artículo 18.—De conformidad con las disposiciones de la Ley de Construcciones, en los casos que se detecten obras sin las respectivas licencias municipales, la Administración Municipal por medio del Proceso de Inspección, notificará y clausurará la obra.
+El Proceso de Ordenamiento Territorial contará con 5 días hábiles, plazo en que deberá levantar la información detallada con respecto al caso: ubicación de la propiedad, tamaño del lote, avance de la construcción y el derecho de vía.
