@@ -7,3 +7,5 @@ c) Abusar en cualquier forma del turista, aprovechándose de su desconocimiento 
 d) Ejercer sus funciones, o pretender ejercerlas, bajo la influencia de bebidas alcohólicas, drogas o estimulantes.
 e) Emitir opiniones contra el país, sus habitantes o sus instituciones.
 f) Incumplir alguna de las disposiciones contenidas en el Reglamento Interno de uso público de cada Área Silvestre Protegidas.
+g) Incumplir alguna de las disposiciones contenidas en el artículo 19 de este Reglamento.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 36947 del 4 de noviembre del 2011)
