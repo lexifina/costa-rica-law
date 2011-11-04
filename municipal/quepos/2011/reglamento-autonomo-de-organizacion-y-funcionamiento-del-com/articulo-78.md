@@ -1,0 +1,1 @@
+Artículo 78.—Participación activa. Las organizaciones que reciban implementos deportivos deberán participar activamente en un programa deportivo o recreativo del Comité Cantonal en el barrio o caserío que representan y como competencia a nivel de cantón.

@@ -1,0 +1,1 @@
+Artículo 37.—Estructura administrativa. Todos los demás cargos deberán llenar el perfil del Manual Descriptivo de Clasificación y Valoración de Puestos de la Municipalidad de Aguirre y serán escogidos por concurso público.

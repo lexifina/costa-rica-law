@@ -1,0 +1,1 @@
+Artículo 84.—Excepción a entrega única. Las organizaciones que se encuentran inscritas, no podrán solicitar implementos deportivos, en caso de que haya transcurrido un período menor de 6 meses desde la última entrega efectuada, exceptuándose casos especiales acreditados mediante documento razonado. No podrán darse más de dos excepciones por año.

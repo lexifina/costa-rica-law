@@ -1,0 +1,1 @@
+Artículo 62.—Uso de instalaciones deportivas. En el uso de las instalaciones deportivas, el Comité Cantonal, los comités Comunales y las Juntas Administradoras, deberán darle participación a todos los grupos deportivos organizados de la comunidad, procurando tener a todos los grupos deportivos de la comunidad debidamente registrados.

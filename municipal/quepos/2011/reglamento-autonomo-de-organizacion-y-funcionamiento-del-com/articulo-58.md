@@ -1,0 +1,1 @@
+Artículo 58.—Organización de asambleas. Las asambleas para elegir a los comités comunales o a los miembros de la Junta Directiva del Comité Cantonal, serán dirigidas por la persona que designe la Junta Directiva del Comité Cantonal.

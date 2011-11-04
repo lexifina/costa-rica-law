@@ -1,0 +1,1 @@
+Artículo 32.—Actas. Una vez, concluida la sesión correspondiente, el secretario del Comité Comunal o de la Junta, preparará un proyecto de acta, que deberá entregar a los miembros de la Junta o Comité, por lo menos con veinticuatro horas de anticipación a la sesión en que serán discutidas y aprobadas.

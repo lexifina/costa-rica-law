@@ -1,0 +1,1 @@
+Artículo 86.—Responsabilidad sobre implementos. Todos los miembros de las asociaciones inscritas en el registro de asociaciones son responsables por el buen uso de los implementos deportivos entregados y tendrán la obligación de denunciar el mal uso.

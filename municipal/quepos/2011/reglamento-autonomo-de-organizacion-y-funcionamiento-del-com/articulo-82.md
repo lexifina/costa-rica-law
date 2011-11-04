@@ -1,0 +1,1 @@
+Artículo 82.—Registro de implementos. Es obligación de la Dirección Administrativa y Deportiva, mantener un registro de las requisiciones de bodega y de de las entregas que se le han hecho y presentar un informe semestral a la Junta Directiva del Comité Cantonal.

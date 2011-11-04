@@ -1,0 +1,1 @@
+Artículo 20.—Elección de puestos. La Junta Directiva, en su primera sesión, escogerá de entre sus integrantes al presidente, vicepresidente, secretario, tesorero y vocal, quienes desempeñarán dichos cargos por períodos de un año, pudiendo ser reelectos; mediante votación secreta.

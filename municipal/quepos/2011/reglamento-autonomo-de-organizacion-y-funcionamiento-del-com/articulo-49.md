@@ -1,0 +1,1 @@
+Artículo 49.—Depósitos. El Comité Cantonal, a través de su contador y mediante Convenio con alguna entidad bancaria, procederá a abrir una cuenta electrónica a favor de cada Comité Comunal, en donde se depositarán todos los fondos del Comité. Esa cuenta estará bajo la supervisión de la Junta Directiva del Comité Cantonal de Deportes.
