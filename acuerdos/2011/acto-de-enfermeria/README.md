@@ -14,3 +14,4 @@ Acto de Enfermería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-21 | la propia norma |
+| 2 | 2011-11-04 | Acuerdo 0 (2011-11-04) |
