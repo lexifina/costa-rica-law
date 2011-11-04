@@ -1,0 +1,1 @@
+Artículo XIV.—Los asuntos sometidos a consideración de la Comisión se deberán aprobar por mayoría simple. A efecto de sesionar válidamente, deberán estar presentes al menos tres de los cinco miembros integrantes de la Comisión. En caso de empate, lo resolverá el presidente de la Comisión, quien, para estos casos, tendrá derecho a doble voto.

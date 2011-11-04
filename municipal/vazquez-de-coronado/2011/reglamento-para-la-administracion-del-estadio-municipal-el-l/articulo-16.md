@@ -1,0 +1,1 @@
+Artículo XVI.—La Comisión dará un trato preferencial, en el uso de las instalaciones, a los equipos representativos del cantón, debidamente avalados por el Comité Cantonal de Deportes y Recreación, que participen competitivamente en el ámbito nacional.
