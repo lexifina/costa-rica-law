@@ -1,0 +1,1 @@
+Artículo 9º—Los predios donde se ubiquen e instalen las obras constructivas no podrán tener dimensiones mínimas a los 10 metros de frente por 6 metros de fondo; los accesos se regularán conforme a la ley de construcciones, y a los reglamentos nacionales de construcción y fraccionamiento sin perjuicio de las disposiciones propias de la municipalidad.

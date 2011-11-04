@@ -1,0 +1,3 @@
+Artículo 24.— El Municipio no otorgará una Licencia de Construcción en los siguientes casos:
+1.Que la altura de la torre sea menor a 30 metros, medida desde la base hasta el final de la torre sin incluir el pararrayo, o que sobrepase la altura máxima establecida por la Dirección General de Aviación Civil.
+2.Que exista una Licencia de Construcción previamente otorgada para una torre ubicada a una distancia que permita el uso compartido o coubicación, conforme el plan de cobertura y calidad que requieren los operadores, y se encuentre dentro del plazo a que se refiere el artículo 22 de este Reglamento.

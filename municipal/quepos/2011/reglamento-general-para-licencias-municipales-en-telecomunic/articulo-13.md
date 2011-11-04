@@ -1,0 +1,1 @@
+Artículo 13.—Un solicitante de una licencia de construcción deberá justificar técnicamente la necesidad de parámetros distintos a los establecidas en este reglamento, de acuerdo a los estudios técnicos que así lo justifiquen y considerando el criterio de la SUTEL, en los casos que fuese solicitado por la administración o el interesado.
