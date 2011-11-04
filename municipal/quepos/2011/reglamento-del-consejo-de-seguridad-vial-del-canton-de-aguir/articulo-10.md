@@ -1,0 +1,1 @@
+Artículo 10.—Quórum. El quórum para la realización de las sesiones será la mayoría simple del total de sus miembros, para cuya conformación se otorgará un plazo prudencial a partir de la hora establecida para el inicio de las sesiones. Los acuerdos se tomarán por mayoría siempre de los presentes.

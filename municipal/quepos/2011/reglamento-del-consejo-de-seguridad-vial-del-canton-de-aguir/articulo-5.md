@@ -1,0 +1,1 @@
+Artículo 5º—Regulaciones. Las políticas y acciones del COLOSEVI, se regirán por las disposiciones de la Ley de Tránsito, del Decreto Ejecutivo Nº 29390-MOPT-S del 6 de marzo del 2001 y los lineamientos del Concejo de Seguridad Vial, y las Direcciones de Tránsito y de Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes.

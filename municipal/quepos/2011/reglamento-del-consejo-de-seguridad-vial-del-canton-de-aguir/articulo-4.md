@@ -1,0 +1,1 @@
+Artículo 4º—Adscripción. El COLOSEVI será un órgano adscrito a la Municipalidad del cantón de Aguirre, y se encargará de proponer los proyectos de seguridad vial del cantón y de fiscalizar los gastos que se ejecuten con fondos provenientes de la Ley 7331 y en general, de todos aquellos que se reciban con ese destino específico.

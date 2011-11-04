@@ -1,0 +1,1 @@
+Artículo 9º—Sesiones y lugar de reuniones. El COLOSEVI sesionara ordinariamente una vez al mes en el día y hora que éste señale y extraordinariamente cuando sea necesario a criterio del presidente o a solicitud de uno a más miembros. El lugar de reunión será la Municipalidad de Aguirre.
