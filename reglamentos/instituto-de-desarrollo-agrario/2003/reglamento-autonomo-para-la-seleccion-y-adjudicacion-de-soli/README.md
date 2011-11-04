@@ -15,3 +15,4 @@ Reglamento Autónomo para la Selección y adjudicación de solicitantes de tierr
 | --- | --- | --- |
 | 1 | 2004-01-20 | la propia norma |
 | 2 | 2007-09-03 | Reglamento 29 (2007-09-03) |
+| 3 | 2011-11-04 | SINALEVI (sin norma nombrada) |
