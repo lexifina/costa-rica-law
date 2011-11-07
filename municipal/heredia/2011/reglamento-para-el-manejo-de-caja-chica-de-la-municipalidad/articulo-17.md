@@ -1,0 +1,1 @@
+Artículo 17.—El encargado del Fondo no entregará otro adelanto de dinero al usuario que tenga vales pendientes de liquidar a excepción de los trámites que se realicen para la conclusión del proceso de contratación administrativa por parte de la Proveeduría Municipal.
