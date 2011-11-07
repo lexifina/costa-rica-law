@@ -1,0 +1,4 @@
+2. Normativa general.
+Se establece la siguiente política laboral para la regulación del fumado durante las horas de trabajo en las instalaciones del MADC, regulación que se regirá por las siguientes condiciones:
+2.2. Esta política se fundamenta en la Ley Nº 7501 de Regulación del Fumado, Ley número 7501 y sus reformas y su reglamento. Y el Decreto Ejecutivo Nº 25462-S del 29 de agosto de 1996, denominado Reglamento a la Ley Reguladora del Fumado (ver adjuntos).
+2.3. Esta política laboral será de observancia obligatoria para todos los colaboradores, voluntarios, visitantes, estudiantes y funcionarios del MADC, sin distinción de su puesto, jerarquía o forma de contratación, y deberá ser aplicada en relación al Código de Trabajo, la legislación ordinaria costarricense y las recomendaciones que en esta materia formulen las autoridades sanitarias del país.
