@@ -14,3 +14,4 @@ Instruye Dirección de Medicamentos Veterinarios que clasifique los medicamentos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-07 | la propia norma |
+| 2 | 2011-11-07 | Directriz 8 (2011-10-06) |
