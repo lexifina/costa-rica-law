@@ -1,0 +1,1 @@
+Artículo 31.—Derogaciones. Deróguese el Decreto Ejecutivo Nº 32711-MINAE del 19 de julio de 2005, publicado en La Gaceta Nº 204 del 24 de octubre de 2005, “Reglamento General sobre la Organización y Funcionamiento de la SETENA”.

@@ -1,0 +1,19 @@
+Artículo 16.—De las Funciones del Departamento de Tecnología de la Información. Son funciones del Departamento de Tecnología de la Información las siguientes:
+a) Planificar, coordinar, asesorar y monitorear un Plan Estratégico Informático, fundamentado prioritariamente en el logro de la Estrategia Institucional acorde a los lineamientos de la especialidad.
+b) Planificar, asesorar, coordinar y organizar los sistemas de información y la infraestructura informática, en concordancia con la estrategia elaborada y los programas del área de especialidad; todo para el cumplimiento de los objetivos y metas institucionales.
+c) Coordinar en conjunto con el jerarca superior, las actividades institucionales que permitan el cumplimiento de las políticas, lineamientos, directrices y estrategias del área de especialidad.
+d) Coordinar, promover y asesorar sobre el uso de las tecnologías de información y comunicación en el accionar institucional, planificando proyectos tendientes a la estandarización, integración y digitalización de la información.
+e) Planificar, coordinar y asesorar en los proyectos tendientes a la modernización tecnológica y digitalización de los procesos y servicios de la Institución.
+f) Coordinar equipos de trabajo interdisciplinarios para la elaboración, análisis y evaluación de los estudios preliminares y factibilidad relacionados al desarrollo e implementación de tecnologías y sistemas de información de uso institucional.
+g) Planificar, coordinar, asesorar la elaboración de las normas y procedimientos necesarios para la gestión y desarrollo de las tecnologías de la información, construyendo en coordinación con el jerarca superior los lineamientos e indicadores de desempeño que permitan monitorear el accionar en el área de especialidad.
+h) Asesorar, coordinar y dar seguimiento a las iniciativas tendientes al desarrollo e implementación de tecnologías de información en la Institución por medio de cooperación internacional en el área de especialidad.
+i) Coordinar, supervisar y asesorar para la adecuada operatividad de los sistemas de información y tecnologías institucionales, de tal forma que pueda establecerse la estabilidad tecnológica requerida y su efectivo funcionamiento.
+j) Coordinar, planificar, asesorar y supervisar las actividades de soporte técnico a los equipos de la institución, procurando la estabilidad de los mecanismos dependientes de este proceso.
+k) Coordinar, asesorar, supervisar el adecuado control, resguardo y uso adecuado de los equipos y programas, así como la protección de los datos almacenados en ellos.
+l) Promover el desarrollo laboral de sus colaboradores mediante procesos de capacitación, con el fin de mejorar su desempeño y cumplimento de los objetivos institucionales.
+m) Planificar, asesorar, supervisar y desarrollar servicios y medios de comunicación electrónicos que apoyen el accionar de los objetivos y metas institucionales, promoviendo el adecuado uso por parte de los usuarios.
+n) Coordinar, asesorar y formular especificaciones o guías de referencia necesarias para la adquisición de hardware y software, así como el desarrollo de nuevos sistemas de información.
+o) Crear, según las normas y otros estándares vigentes, manuales de operación, instructivos e instrumentos técnicos y similares para el uso de los usuarios internos y externos.
+p) Realizar investigaciones sobre el desarrollo de las tecnologías de la información, orientándolas en procura de actualizar, adecuar e implementar las nuevas tendencias en el accionar Institucional; buscando mejorar la calidad y oportunidad de los servicios sustantivos que se brindan a los usuarios.
+q) Promover, coordinar y ejecutar acciones tendientes a la implementación de medidas de contingencia contra amenazas relacionadas al uso de las tecnologías de la información.
+r) Cualquier otro establecido por el ordenamiento legal o que sea asignado por el jerarca superior relacionada al área de especialidad.

@@ -1,0 +1,1 @@
+Artículo 11.—Órganos Colegiados. En materia de órganos colegiados, como en el caso de la Comisión Plenaria de la SETENA, rige lo dispuesto en la Ley General de la Administración Pública en aquellos puntos que no fueron regulados en esta normativa.

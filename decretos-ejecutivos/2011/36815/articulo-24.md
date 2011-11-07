@@ -1,0 +1,2 @@
+Artículo 24.—Oficinas Regionales. Las funciones a desarrollar por las Oficinas Regionales determinadas por esta Secretaría estarán coordinadas por el Coordinador (a) del Departamento de Auditoría y Seguimiento Ambiental de la SETENA, las oficinas estarán adscritas a la Dirección Técnica de la SETENA.
+Las Oficinas Regionales son los órganos ejecutores de las acciones y mecanismos de coordinación del seguimiento ambiental de la SETENA. Estas se regionalizarán en forma progresiva acorde a las necesidades.
