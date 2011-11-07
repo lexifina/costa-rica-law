@@ -1,1 +1,2 @@
-Artículo 52.—Está prohibido para el personal de auditoría el establecer relaciones de índole personal, sentimental, de negocios o de cualquier otra naturaleza con personal del SENARA y otras personas, que puedan influir, comprometer o amenazar la capacidad para actuar, que puedan afectar su independencia o la imagen de la Unidad de Auditoría, o que impliquen un riesgo de corrupción.
+Artículo 52.—Está prohibido para el personal de auditoría establecer relaciones de índole personal o de cualquier otra naturaleza que puedan influir, comprometer o amenazar la capacidad para actuar, impliquen un riesgo de corrupción, afecten su independencia o comprometan la imagen de la Unidad.
+(Así reformado mediante acuerdo N° 4279 de la sesión N° 606 del 7 de noviembre de 2011)

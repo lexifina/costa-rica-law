@@ -1,1 +1,2 @@
-Artículo 55.—El personal de auditoría debe abstenerse de auditar operaciones específicas de las cuales haya sido previamente responsable como funcionario de la administración activa, proveedor u otras relaciones, o de asesorar o advertir respecto a dichas operaciones.
+Artículo 55.—El personal de auditoría debe abstenerse de auditar, asesorar o advertir, sobre procesos específicos de las cuales haya sido previamente responsable como funcionario de la administración activa, proveedor u otras relaciones. El plazo de abstención será determinado por el alcance definido para el servicio a prestar.
+(Así reformado mediante acuerdo N° 4279 de la sesión N° 606 del 7 de noviembre de 2011)
