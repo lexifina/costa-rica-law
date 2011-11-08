@@ -1,1 +1,0 @@
-Artículo 15.—Faltantes de Mobiliario y Equipo. Si al efectuarse el inventario por parte de la Oficina respectiva, existiera algún faltante, el colaborador a cargo del bien, deberá tratar de localizarlo; en caso de no poderse recuperar y se dé por perdido, se debe comunicar al superior inmediato, quien procederá según lo indicado en el artículo 11 anterior.

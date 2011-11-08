@@ -1,2 +1,0 @@
-Artículo 17.—Reasignación de bienes. La reasignación de bienes de un colaborador a otro, deberá contar con la autorización del superior inmediato y efectuarse a través del módulo de Bienes de Uso del SIAI, dejando la evidencia documental correspondiente.
-El Administrador del módulo de Bienes de Uso del SIAI, efectuará periódicamente análisis de los bienes que no han sido aceptados, coordinando con las partes el registro definitivo.

@@ -1,1 +1,0 @@
-Artículo 7º—Aprobación de la Solicitud. Las solicitudes serán analizadas y aprobadas por la Dirección de Gestión de Medios o la Dirección de Tecnología de Información, según corresponda. Para la aprobación de la solicitud, se deberá contar con su respectivo presupuesto.
