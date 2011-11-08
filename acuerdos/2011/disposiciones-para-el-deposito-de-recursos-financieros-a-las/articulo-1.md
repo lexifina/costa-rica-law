@@ -1,0 +1,11 @@
+DIRECCIÓN NACIONAL DE DESARROLLO
+DE LA COMUNIDAD
+Disposiciones para el depósito de recursos financieros a las asociaciones de desarrollo de la comunidad
+La Dirección Nacional de Desarrollo de la Comunidad informa a todas las organizaciones comunales constituidas al amparo de la Ley Nº 3859 Sobre Desarrollo de la Comunidad que según lo dispuesto por la Tesorería Nacional mediante oficio circular TN-653-2008, se establecieron algunos criterios con respecto a la ejecución de transferencias a asociaciones de desarrollo integral y específico.
+En consideración de los ajustes propios de la inflación que se presentó en los últimos años y la necesidad de fortalecer el cumplimiento del principio de Caja Única en la gestión de la liquidez, en lo sucesivo se deben observar las siguientes disposiciones:
+1. Se depositarán en Caja Única las transferencias por montos superiores a veinte millones de colones (¢20.000.000,00), independientemente del concepto o proyecto.
+2. En caso de que una asociación no disponga de cuenta en Caja Única, previo a la preparación de la propuesta de pago, el Departamento Financiero Contable de DINADECO coordinará con la Unidad de Operaciones Bancarias la apertura de dicha cuenta.
+3. Los representantes de las asociaciones de desarrollo tienen la obligación de mantener al día los registros de firmas e información sobre la asociación en la Tesorería Nacional.
+4. Conforme la normativa vigente, tos recursos depositados en cuentas de caja única están a disposición del titular de la cuenta (la organización comunal), en atención a la programación de caja que la propia entidad presente a la Tesorería Nacional. Adicionalmente el registro contable de dichos recursos debe ajustarse a lo establecido en el artículo 9 de Reglamento de Operación y Funcionamiento de la Caja única del Estado:
+Artículo 9º—Naturaleza contable de las cuentas. Los saldos existentes en las CCU pertenecerán a la respectiva entidad participante. La Contabilidad Nacional deberé clasificar estos importes como pasivos en la contabilidad patrimonial del Gobierno Central y como activos en la contabilidad patrimonial de la entidad participante.
+Por último, se les recuerda que para el giro de los recursos es indispensable que en el transcurso de todo año las asociaciones de desarrollo mantengan al día su Personería Jurídica. Publíquese.
