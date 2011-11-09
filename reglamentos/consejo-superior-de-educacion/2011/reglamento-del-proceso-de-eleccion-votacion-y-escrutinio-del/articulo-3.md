@@ -1,0 +1,3 @@
+Artículo 3°—Convocatoria formal a elecciones. Se convoca para la elección del representante titular de la Enseñanza Primaria, el día 11 de noviembre de 2011 a las 13:00 horas en primera convocatoria. De no conformarse el quórum, se realizará la segunda convocatoria a las 13:15 horas y de persistir la falta de quórum, se realizará la sesión en tercera convocatoria a las 13:30 horas. En tercera convocatoria se realizará el proceso de elección con el número de electores concurrentes en ese momento.
+Para efectos de esta elección denomínese quórum la mitad más uno de representantes inscritos en el Colegio Electoral correspondiente.
+Ficha del artículo

@@ -1,0 +1,2 @@
+Artículo 19.—Publicidad del Reglamento. Publíquese en el Diario Oficial La Gaceta y en la página Web del Ministerio de Educación Pública. Además el día de la elección deberán colocarse dos ejemplares íntegros de este reglamento en un lugar visible, dentro del recinto de reunión del Colegio Electoral, con el fin de que puedan ser inmediatamente consultados, en cualquier momento, por los interesados.
+Dado en la ciudad de San José, por votación unánime de los miembros de la Comisión Coordinadora, a los 19 días del mes de octubre del 2011.

@@ -1,0 +1,2 @@
+Artículo 13.—Información del ganador de la elección. Una vez concluido el escrutinio de los votos y suscrito el registro correspondiente, se procederá a informar a los presentes por parte de la presidencia de la Comisión Coordinadora, del resultado de la votación y del vencedor de la elección. Concomitantemente, se consignará dicha información en el acta oficial correspondiente de la Comisión Coordinadora y se divulgará por medio de la página Web del Ministerio de Educación Pública.
+Ficha del artículo

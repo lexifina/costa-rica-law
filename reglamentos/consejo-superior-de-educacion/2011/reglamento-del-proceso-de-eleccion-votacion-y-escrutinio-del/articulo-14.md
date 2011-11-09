@@ -1,0 +1,2 @@
+Artículo 14.—En caso de existir empate en los resultados de la elección. En caso de existir empate en la elección, se hará saber al Colegio Electoral y se convocará a realizar de forma inmediata, una elección de desempate entre los candidatos que corresponda. De ser necesaria una elección de desempate, la mesa electoral estará organizada de la misma forma que en la primera elección.
+Ficha del artículo
