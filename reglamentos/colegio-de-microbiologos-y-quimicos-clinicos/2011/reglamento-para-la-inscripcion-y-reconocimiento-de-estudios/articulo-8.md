@@ -1,0 +1,1 @@
+Artículo 8º—Para efectos de ser reconocido(a) como Máster se deberá presentar el certificado obtenido según lo establecido en el apartado de Definiciones de este Reglamento correspondiente a la Maestría Profesional.

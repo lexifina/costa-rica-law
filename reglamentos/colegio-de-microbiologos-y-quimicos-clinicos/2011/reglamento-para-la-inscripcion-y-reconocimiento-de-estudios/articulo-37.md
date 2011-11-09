@@ -1,0 +1,1 @@
+Artículo 37.—En el informe anual que realiza la Junta Directiva del Colegio, de acuerdo con lo estipulado en su Ley Orgánica, se incluirá la nómina de los profesionales que hayan registrado sus estudios de posgrado, durante ese período.

@@ -1,0 +1,1 @@
+Artículo 12.—Sin perjuicio de lo establecido en el artículo anterior, el Colegio por recomendación de la Comisión Evaluadora de Especialidades, de la Facultad, CODEM, el PPMQC, u otro órgano de posgrado equivalente y reconocido por el CONESUP, podrá incluir otras áreas de especialización, siempre y cuando estas tengan relación con la Microbiología y Química Clínica.

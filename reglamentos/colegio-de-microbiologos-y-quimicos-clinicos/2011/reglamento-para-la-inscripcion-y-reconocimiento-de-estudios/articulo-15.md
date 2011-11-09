@@ -1,0 +1,1 @@
+Artículo 15.—Para efectos de lo que contempla el artículo anterior la Junta Directiva del Colegio actuará según lo recomendado por la Comisión y comunicará a el (la) interesado(a) el resultado de la solicitud por el (ella) planteada.

@@ -1,0 +1,1 @@
+Artículo 36.—Cuando corresponda al Colegio integrar comisiones técnicas, temas o postular peritos, conciliadores y árbitros, se deberá dar prioridad a los profesionales que se encuentren registrados con sus estudios de posgrado, de acuerdo con el campo en el que desarrollarán sus actividades.

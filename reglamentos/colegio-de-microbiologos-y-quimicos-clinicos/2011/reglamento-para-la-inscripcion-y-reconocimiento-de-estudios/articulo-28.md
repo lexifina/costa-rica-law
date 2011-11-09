@@ -1,0 +1,1 @@
+Artículo 28.—El Colegio sólo reconocerá como Especialista, Subespecialista, Máster, Msc. o PhD a aquellos profesionales que estén debidamente registrados como tales, de acuerdo con este Reglamento o con los anteriores ya derogados.

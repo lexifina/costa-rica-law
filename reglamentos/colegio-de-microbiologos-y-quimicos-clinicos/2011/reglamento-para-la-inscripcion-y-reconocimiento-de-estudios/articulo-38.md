@@ -1,0 +1,1 @@
+Artículo 38.—Será obligación de los profesionales que tengan estudios de posgrado la promoción del conocimiento en el campo de su estudio, lo mismo que recomendar a las entidades públicas y privadas los criterios, técnicas e interpretación de las mismas, que aseguren el diagnóstico correcto.

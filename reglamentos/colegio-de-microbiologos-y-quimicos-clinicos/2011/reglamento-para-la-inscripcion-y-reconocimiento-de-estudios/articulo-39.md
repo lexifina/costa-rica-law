@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 39.—Este Reglamento deroga y deja sin ningún efecto cualquier otro reglamento de esta materia, dictado con anterioridad. No obstante, el Colegio reconocerá y respetará los derechos adquiridos de las personas que se encuentren registradas conforme el Reglamento anterior. Las personas que hubieren sido registradas con anterioridad como Especialistas, tendrán los mismos derechos y deberes de los profesionales que se registren de acuerdo con este nuevo Reglamento. Las personas inscritas hasta el momento, sí así lo desean, pueden solicitar al Colegio que se les reconozca con las nuevas categorías que contempla este Reglamento, dada la clasificación de grados académicos que contiene este nuevo reglamento.

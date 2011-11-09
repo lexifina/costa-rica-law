@@ -1,0 +1,1 @@
+Artículo 27.—En el acto de juramentación se le entregará al colegiado un diploma, título o certificado que lo acredite como acreedor de Especialista, Subespecialista, Máster, Msc. o PhD, en cualesquiera de las áreas de especialización descritas en el artículo 11 de este Reglamento.

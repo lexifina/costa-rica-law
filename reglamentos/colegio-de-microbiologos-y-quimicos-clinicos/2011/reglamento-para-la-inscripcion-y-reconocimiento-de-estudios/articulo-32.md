@@ -1,0 +1,1 @@
+Artículo 32.—Para crear la Comisión Evaluadora de una subespecialidad, se procederá de la misma forma que indica el Capítulo IV de este Reglamento. En todo caso para que la Junta Directiva creare una comisión para ese fin, el interesado deberá poseer como mínimo los requisitos que se citan en el siguiente artículo.

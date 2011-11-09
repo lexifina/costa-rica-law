@@ -1,0 +1,1 @@
+Artículo 25.—Las solicitudes que no fueran aceptadas solo podrán ser apeladas ante la Junta Directiva que decidirá si nombra otra Comisión que estudie el caso o dará por agotada la vía administrativa.

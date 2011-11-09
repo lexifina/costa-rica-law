@@ -1,0 +1,4 @@
+CAPÍTULO VII
+De los derechos y deberes de los profesionales registrados
+como Especialista, Subespecialista, Máster, MSc. o PhD
+Artículo 35.—El Colegio velará porque las y los colegiados que hayan inscrito sus estudios de posgrado sean reconocidos y nombrados de acuerdo a sus grados académicos, en sus respectivos lugares de trabajo, conforme a lo estipulado en la Ley y Reglamento de Estatuto de Servicios de Microbiología y Química Clínica. Cuando se realicen concursos de antecedentes para ocupar plazas en propiedad o en forma interina, en cualquiera de las instituciones públicas o privadas que empleen profesionales en Microbiología y Química, que requieran de los estudios de posgrado que contempla este Reglamento, se les dará prioridad a los profesionales que hayan sido inscritos como tales ante el Colegio.

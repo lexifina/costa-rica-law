@@ -1,0 +1,1 @@
+Artículo 19.—Las certificaciones extendidas por Colegios Profesionales no se consideran como documentos de carácter universitario, excepto que sean refrendados por una universidad donde se efectuaron los estudios.
