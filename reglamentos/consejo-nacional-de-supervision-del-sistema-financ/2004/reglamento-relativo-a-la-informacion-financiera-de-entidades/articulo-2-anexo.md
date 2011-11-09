@@ -28,15 +28,17 @@ ANEXO 2. E.
 NOMBRE DE LA ENTIDAD FINANCIERA (CONTROLADORA) INFORMA AL PÚBLICO INTERESADO
 “Que la información financiera (o financiera consolidada del Grupo o Conglomerado Financiero) al ———— (indicar fecha) remitida a la Superintendencia General de Entidades Financieras fue sustituida el (indicar fecha) a solicitud del Superintendente General de Entidades Financieras, y puede ser consultada en nuestras oficinas centrales, sucursales, agencias, asociadas y subsidiarias, en nuestro sitio en Internet (indicar página cuando corresponda) y en el sitio en Internet de la
 Superintendencia General de Entidades Financieras ().”
-ANEXO 2. F.
+ANEXO 2.F.
 FORMATO DE PUBLICACIÓN
-El Grupo o Conglomerado Financiero ________________, comunica al público en general que su funcionamiento fue autorizado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo ____, del Acta de la Sesión _________, celebrada el _______. La Supervisión de este Grupo o Conglomerado corresponde a la Superintendencia ______________.
-CONFORMACIÓN DEL GRUPO O CONGLOMERADO
-Detalle de las empresas que integran el Grupo | Capital Social
-(1) | ¢
-XXXXX |
-(2) Incluir esta nota cuando el Grupo o Conglomerado |
-tenga bancos o empresas domiciliadas en el exterior |
-1) Nombre de la sociedad controladora del grupo.
-2) Las operaciones que realicen en el exterior los bancos o empresas financieras domiciliadas en las plazas extranjeras autorizadas por el Consejo Nacional de Supervisión del Sistema Financiero, no están sujetas al control monetario del Banco Central ni a la supervisión de los órganos supervisores nacionales, excepto lo previsto en la Ley Orgánica del Banco Central de Costa Rica. Sin embargo, estarán sujetas a los controles de los supervisores del país del domicilio legal de esas entidades, conforme lo estipulado en el Artículo 23 del “Reglamento para la Constitución, el Traspaso, el Registro y el Funcionamiento de los Grupos Financieros”. De acuerdo con lo establecido en el Artículo 13 de la Ley Reguladora del Mercado de Valores, la autorización para realizar oferta pública no implica calificación sobre la bondad de la emisión ni la solvencia del emisor o intermediario.”
-(Así reformado el Anexo 2.F. anterior mediante las sesiones N° 630-2007 y N° 631-2007 del 15 de febrero del 2007).
+El Grupo o Conglomerado Financiero__________________, comunica al público en general que está conformado por las siguientes empresas:
+Conformación del grupo o conglomerado
+Detalle de las empresas que integran el Grupo conglomerado | Autoridad Competente de Supervisión | País de domicilio | Capital Social
+(1) | | | ¢
+X X X X X | | |
+| | |
+1º—Nombre de la sociedad controladora del grupo o conglomerado financiero. Para cada caso en particular que aplique, se deben incluir las siguientes notas:
+a) Empresas no sujetas a supervisión por alguna autoridad de supervisión costarricense, deberán aclarar tal situación indicando en la columna “Autoridad Competente de Supervisión” la frase: “empresa no sujeta a fiscalización de ningún órgano de supervisión financiero costarricense”.
+b) Bancos o empresas financieras domiciliadas en las plazas extranjeras aceptadas por el CONASSIF:
+“Las operaciones que realicen (nombre de los bancos o empresas financieras domiciliadas en las plazas extranjeras aceptadas por el Consejo Nacional de Supervisión del Sistema Financiero) no están sujetas al control monetario del Banco Central de Costa Rica ni a la supervisión de los órganos supervisores costarricenses, excepto en lo previsto en la Ley Orgánica del Banco Central de Costa Rica”.
+c) De acuerdo con lo establecido en el artículo 13 de la Ley Reguladora del Mercado de Valores, la autorización para realizar oferta pública no implica calificación sobre la bondad de la emisión ni la solvencia del emisor o intermediario.
+(Así reformado el anexo 2.F anterior por SUGEF-R-014 del 9 de noviembre de 2011)
