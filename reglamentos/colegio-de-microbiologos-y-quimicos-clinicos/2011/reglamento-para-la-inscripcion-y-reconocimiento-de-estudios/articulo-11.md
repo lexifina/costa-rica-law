@@ -9,3 +9,5 @@ g) Área de especialización de las Ciencias Forenses: Se incluyen aquí estudio
 h) Área de especialización de Gestión de Calidad: Se incluyen estudios enfocados en el aseguramiento de la calidad en los laboratorios clínicos, en los establecimientos de salud, en laboratorios industriales, farmacéuticos, de productos biológicos, de productos biomédicos, agropecuarios, agroalimentarios y de inocuidad de alimentos y bebidas. Se reconocen títulos de Control de Calidad, Gestión de la Calidad, Gerencia de la Calidad e Ingeniería Industrial.
 i) Área de especialización de la Administración: Se incluyen estudios enfocados en la administración de servicios de salud, se reconocen títulos en Administración de Sistemas y Servicios de Salud, Gerencia de Laboratorios, Administración de Laboratorios.
 j) Área de especialización de la Epidemiología: Se incluyen estudios enfocados en la epidemiología de las enfermedades infecciosas y no infecciosas, se reconocen títulos en Epidemiología, Salud Pública, Salud Comunitaria y Salud y Saneamiento Ambiental.
+Especialidad en Bioética.
+(Así adicionada la especialidad anterior en sesión N° 26:2011-2012 del 19 de octubre del 2011)
