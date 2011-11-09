@@ -14,3 +14,4 @@ Reglamento del Proceso de Elección, Votación y Escrutinio del Representante Ti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-09 | la propia norma |
+| 2 | 2011-11-09 | Reglamento 0 (2011-11-09) |

@@ -19,5 +19,5 @@ REGLAMENTO DEL PROCESO DE ELECCIÓN, VOTACIÓN
 Y ESCRUTINIO DEL REPRESENTANTE TITULAR
 DE LA ENSEÑANZA PRIMARIA ANTE EL
 CONSEJO SUPERIOR DE EDUCACIÓN
-Artículo 1°—Ámbito de aplicación. Este reglamento regula todo lo relativo al proceso de elección, votación y escrutinio del representante titular de la enseñanza primaria ante el Consejo Superior de Educación, por el cuatrienio comprendido entre el 19 de noviembre del 2011 y el 18 de noviembre del 2015.
-Ficha del artículo
+Artículo 1°—Ámbito de aplicación. Este reglamento regula todo lo relativo al proceso de elección, votación y escrutinio del representante titular de la enseñanza primaria ante el Consejo Superior de Educación, por el cuatrienio comprendido entre el 05 de diciembre de 2011 al 04 de diciembre de 2015.
+(Así reformado y publicado en La Gaceta N° 235 del 7 de diciembre del 2011)
