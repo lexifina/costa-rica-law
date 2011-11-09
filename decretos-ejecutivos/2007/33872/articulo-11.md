@@ -7,6 +7,7 @@ a.2-) Descripción del proyecto: Indicación de las actividades que se desarroll
 a.3-) Croquis del proyecto: Croquis dimensional del proyecto acotado.
 a.4-) Descripción de los desechos sólidos: Indicación general del manejo de los mismos.
 a.5-) Evacuación de Aguas Pluviales: Simple indicación del destino de aguas pluviales sin necesidad de diagrama mecánico.
-a.6-) Aprobación de uso del suelo: Trámite que el interesado deberá realizar ante la municipalidad respectiva.
+a.6-) Aprobación de uso del suelo: Trámite que el interesado deberá realizar ante la municipalidad respectiva. Para las edificaciones ya construidas en las que existen templos o locales de culto que demuestren por cualquier medio probatorio idóneo que su funcionamiento se ha dado, cuando menos en los últimos cinco anos, en esa locación, se exigirá solamente una constancia de ubicación, por medio de la cual el interesado deberá comprobar la ubicación exacta del inmueble, trámite que podrá realizarse ya sea por medio de declaración jurada; o por la autoridad de policía del distrito municipal correspondiente; o por constancia otorgada por la municipalidad respectiva.
+(Así reformado el sub inciso anterior por el artículo 2° del decreto ejecutivo N° 36853 del 9 de noviembre del 2011)
 a.7-) Disponibilidad de agua potable: Indicación de si se cuenta con este servicio público.
 b) Certificación elaborada por un ingeniero eléctrico debidamente inscrito ante el colegio respectivo, donde se indique que el sistema eléctrico se encuentra en buen estado y soporta el equipo instalado.
