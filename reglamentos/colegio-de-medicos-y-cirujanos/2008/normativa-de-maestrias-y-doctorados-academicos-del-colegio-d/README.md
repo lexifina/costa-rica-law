@@ -15,3 +15,4 @@ Normativa de Maestrías y Doctorados Académicos del Colegio de Médicos y Ciruj
 | --- | --- | --- |
 | 1 | 2008-03-11 | la propia norma |
 | 2 | 2011-02-09 | Acuerdo 0 (2011-02-09) |
+| 3 | 2011-11-09 | Reglamento 0 (2011-11-09) |

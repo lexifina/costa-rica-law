@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO DE MÉDICIOS Y CIRUJANOS DE COSTA RICA
+(Esta norma fue derogada por el artículo 12 del Reglamento de Maestrías y Doctorados Académicos en áreas de las Ciencias Médicas del Colegio de Médicos y Cirujanos de Costa Rica, aprobado mediante sesión extraordinaria 2011-11-09 del 9 de noviembre del 2011)
 Informa al Cuerpo Médico:
 Que la Junta de Gobierno en su Sesión Ordinaria 2008.01.16, celebrada el dieciséis de enero del año dos mil ocho, según acuerdo SJG.0130.01.08 artículo IV, aprobó la “Normativa de Maestrías y Doctorados Académicos del Colegio de Médicos y Cirujanos”
 NORMATIVA DE MAESTRÍAS Y DOCTORADOS ACADÉMICOS
