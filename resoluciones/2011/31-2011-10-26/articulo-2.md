@@ -1,0 +1,1 @@
+2º—Que la sangre cruda deberá ser tratada o eliminada en dichos establecimientos mediante técnicas aprobadas para el manejo de desechos líquidos tomando las debidas precauciones para evitar cualquier riesgo contra la salud animal, humana y el medio ambiente.
