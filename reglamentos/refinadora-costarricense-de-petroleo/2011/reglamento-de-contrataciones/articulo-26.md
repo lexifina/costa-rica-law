@@ -1,0 +1,1 @@
+Artículo 26.—Acciones Recursivas. Cabrán recursos de revocatoria y apelación contra los acuerdos tomados por el Comité, interpuestos según los requisitos y plazos contenidos en la Ley General de la Administración Pública. Corresponderá a la Junta Directiva de RECOPE resolver las apelaciones.

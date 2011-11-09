@@ -1,0 +1,2 @@
+Artículo 18.—Secretaría Técnica del Comité de Contratación de Combustibles. El CCC contará con una Secretaría que apoyará técnica y logísticamente su funcionamiento y tendrá a cargo las funciones técnicas y administrativas que se deriven de la gestión del Comité. Para efectos administrativos dicha Secretaría dependerá del Presidente del Comité.
+Corresponderá a la Secretaría Técnica la comunicación de los acuerdos a la Dirección de Suministros y a otras instancias pertinentes.
