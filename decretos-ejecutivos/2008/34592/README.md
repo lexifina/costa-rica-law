@@ -14,3 +14,4 @@ Publicación de la Decisión Nº 21 del 27 de mayo del 2008: Reglamentaciones Un
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-27 | la propia norma |
+| 2 | 2011-11-10 | Decreto Ejecutivo 36917 (2011-11-10) |
