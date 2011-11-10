@@ -1,0 +1,1 @@
+Artículo 2º—Que las instituciones y organizaciones del sector público y privado, dentro del marco legal respectivo, podrán contribuir con la misión humanitaria y de asistencia médica a realizar por el buque Arca de la Paz de la Fuerza Naval de la República Popular China, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos.
