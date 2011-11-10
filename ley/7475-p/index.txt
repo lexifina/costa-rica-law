@@ -29,6 +29,7 @@ articulo-28.md
 articulo-29.md
 articulo-30.md
 articulo-31.md
+articulo-31-bis.md
 articulo-32.md
 articulo-33.md
 articulo-34.md
@@ -71,3 +72,4 @@ articulo-70.md
 articulo-71.md
 articulo-72.md
 articulo-73.md
+articulo-1-anexo.md
