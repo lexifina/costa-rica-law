@@ -31,7 +31,4 @@ DECIDE:
 1º—Adoptar el Anexo único de esta decisión el cual contiene las modificaciones al anexo del artículo 4.03 Sección C- Reglas de origen específicas entre Chile y Costa Rica, por las adecuaciones derivadas de la Tercera Enmienda al Sistema Armonizado de Designación y Codificación de Mercancías (SA),versión 2002.
 En la fecha de entrada en vigor de la presente Decisión, su anexo único formará parte integrante del Tratado de Libre Comercio entre Centroamérica y Chile, y sustituirá a aquellas reglas que modifica en la Sección C- Reglas de origen específicas entre Costa Rica y Chile.
 2º—La presente Decisión entrará en vigor una vez que las Partes cumplan con sus procedimientos jurídicos internos.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
+(Así refomado el anexo de la presente resolución por el artículo 2° del decreto ejecutivo N° 36902 del 10 de noviembre del 2011.No obstante; por el tipo de formato y lo extenso de su contenido el texto de dicha reforma debe se consultada Aquí, en formato PDF)

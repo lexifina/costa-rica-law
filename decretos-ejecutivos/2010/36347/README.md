@@ -14,3 +14,4 @@ Publica Decisión N° 11 del 04/12/2006, modificaciones anexo del artículo 4.03
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-31 | la propia norma |
+| 2 | 2011-11-10 | Decreto Ejecutivo 36902 (2011-11-10) |
