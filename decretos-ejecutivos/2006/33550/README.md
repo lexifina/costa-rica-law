@@ -15,3 +15,4 @@ Reglamento del Otorgamiento de Estímulos a la Iniciativa Privada en Materia de 
 | --- | --- | --- |
 | 1 | 2007-02-07 | la propia norma |
 | 2 | 2007-04-27 | Decreto Ejecutivo 33774 (2007-04-27) |
+| 3 | 2011-11-10 | Decreto Ejecutivo 36895 (2011-11-10) |
