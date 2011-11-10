@@ -14,3 +14,4 @@ Publica Decisión N° 17 de la Comisión de Libre Comercio del Tratado de Libre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-03 | la propia norma |
+| 2 | 2011-11-10 | Decreto Ejecutivo 36904 (2011-11-10) |

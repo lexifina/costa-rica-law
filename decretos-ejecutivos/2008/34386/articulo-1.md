@@ -31,42 +31,46 @@ CENTROAMERICA Y CHILE. CAPÍTULO 19 SOLUCIÓN DE
 CONTROVERSIAS, ARTÍCULOS 19.09 Y 19.10
 LISTA Y CUALIDADES DE LOS ÁRBITROS
 ÁRBITROS NACIONALES
-A. Por parte de El Salvador
-1.- Roberto Romero Pineda
-2.- Carlos Amilcar Amaya
-3.- Ricardo Cevallos Cortez
-4.- Ernesto Lima Mena
-5.- Harold C. Lantan
-B. Por parte de Chile
-1. Hernán Pitto Dalmazzo
-2. Jorge Antonio Quiroz Castro
-3. Eliel Hasson Nisis
-4. Juan Sebastián Saez Contreras
-5. Joaquín Gustavo Morales Godoy
-C. Por parte de Costa Rica
-1. Jaime Granados Brenes
-2. Carolyn Robert
-3. Francisco Chacón
-4. Arnoldo André Tinoco
-5. Juan Ignacio Gallegos Gurdían
-ÁRBITROS NO NACIONALES
-A. Por parte de El Salvador |
-1. Miriam Maroun Marun. | VENEZUELA
-2. Aníbal Sabater. | ESPAÑA
-3. Rafael Bernal Gutiérrez. | COLOMBIA
-4. Gary N. Horlick. | ESTADOS UNIDOS
-5. Hugo Cayrús Marún | URUGUAY
-|
-B. Por parte de Chile |
-1. Félix Peña. | ARGENTINA
-2. Cristian Espinoza | ECUADOR
-3. José Manuel Quijano Capurro. | URUGUAY
-4. Jean Francois Brakeland | BÉLGICA
-5. Elbio Oscar Roselli Frieri. | URUGUAY
-|
-C. Por parte de Costa Rica |
-1. Yves Renouf. | FRANCIA
-2. Rosine M. Plank – Brumback. | FRANCIA / ESTADOS UNIDOS
-3. Carlos García Fernández. | MÉXICO
-4. Fernando De Mateo. | MÉXICO
-5. Ricardo Ramírez Hernández. | MÉXICO
+(*) A. POR PARTE DE EL SALVADOR
+Luis Nelson Segovia
+César Ernesto Salazar
+Rodolfo Esteban Ramírez
+Ernesto Lima MENA
+Haroid c. Lantan
+(*)(Así reformada la lista anterior por el artículo 2° del decreto ejecutivo N° 36904 del 10 de noviembre del 2011 "Publica Decisión N° 24 de 27/09/2011 lista árbitros establecida en artículo 19.09 (lista árbitros) y 19.10 (cualidades de árbitros), de capítulo 19 Tratado Libre Comercio entre Centroamérica y Chile (modifica lista árbitros establecida mediante decisión N° 8)
+(*) B. POR PARTE DE CHILE
+Hernán Pitto Dalmazzo
+Jorge Antonio Quiróz Castro
+Eliel Hasson Nissi
+Juan Sebastián Saéz Contreras
+Joaquín Gustavo Morales Godoy
+(*)(Así reformada la lista anterior por el artículo 2° del decreto ejecutivo N° 36904 del 10 de noviembre del 2011 "Publica Decisión N° 24 de 27/09/2011 lista árbitros establecida en artículo 19.09 (lista árbitros) y 19.10 (cualidades de árbitros), de capítulo 19 Tratado Libre Comercio entre Centroamérica y Chile (modifica lista árbitros establecida mediante decisión N° 8)
+(*) C. POR PARTE DE COSTA RICA
+Jame granados Brenes
+Carolyn Robert
+Patricio Grané Labat
+Arnoldo André Tinoco
+Juan Ignacio Gallegos Guardián
+(*)(Así reformada la lista anterior por el artículo 2° del decreto ejecutivo N° 36904 del 10 de noviembre del 2011 "Publica Decisión N° 24 de 27/09/2011 lista árbitros establecida en artículo 19.09 (lista árbitros) y 19.10 (cualidades de árbitros), de capítulo 19 Tratado Libre Comercio entre Centroamérica y Chile (modifica lista árbitros establecida mediante decisión N° 8)
+ARBITROS NO NACIONALES
+(*) A. POR PARTE DE EL SALVADOR
+Miriam Maroun Marun VENEZUELA
+Aníbal Sabater ESPAÑA
+Rafael Bernal Gutiérrez COLOMBIA
+Gary N. Horlick ESTADO UNIDOS
+Hunter James Nottage NUEVA ZELANDA
+(*)(Así reformada la lista anterior por el artículo 2° del decreto ejecutivo N° 36904 del 10 de noviembre del 2011 "Publica Decisión N° 24 de 27/09/2011 lista árbitros establecida en artículo 19.09 (lista árbitros) y 19.10 (cualidades de árbitros), de capítulo 19 Tratado Libre Comercio entre Centroamérica y Chile (modifica lista árbitros establecida mediante decisión N° 8)
+(*) B POR PARTE DE CHILE
+1. Felix Peña ARGENTINA
+2. Cristian Espinoza ECUADOR
+3. José Manuel Quijano Capurro URUGUAY
+4. Jean Francois brakeland BELGICA
+5. Elbio Oscar Roselli Frieri URUGUAY
+(*)(Así reformada la lista anterior por el artículo 2° del decreto ejecutivo N° 36904 del 10 de noviembre del 2011 "Publica Decisión N° 24 de 27/09/2011 lista árbitros establecida en artículo 19.09 (lista árbitros) y 19.10 (cualidades de árbitros), de capítulo 19 Tratado Libre Comercio entre Centroamérica y Chile (modifica lista árbitros establecida mediante decisión N° 8)
+(*) C. POR PARTE DE COSTA RICA
+1. Yves Renouf FRANCIA
+2. Rosine M. Plank-Brumbacf FRA/EEUU
+3. Carlos García Fernández EXICO
+4. Fernando de Mateo MEXICO
+5. Ricardo Ramíres hernández MEXICO
+(*)(Así reformada la lista anterior por el artículo 2° del decreto ejecutivo N° 36904 del 10 de noviembre del 2011 "Publica Decisión N° 24 de 27/09/2011 lista árbitros establecida en artículo 19.09 (lista árbitros) y 19.10 (cualidades de árbitros), de capítulo 19 Tratado Libre Comercio entre Centroamérica y Chile (modifica lista árbitros establecida mediante decisión N° 8)
