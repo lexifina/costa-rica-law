@@ -58,3 +58,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES
 (Modificado por el artículo 1° del decreto ejecutivo N° 36849 del 28 de octubre del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36858 del 04 de noviembre del 2011)
 (Modificado por el artículo 1° del decreto ejecutivo N° 36854 del 10 de noviembre del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36856 del 11 de noviembre del 2011)
