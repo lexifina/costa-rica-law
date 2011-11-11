@@ -1,0 +1,1 @@
+XIV.—Derogaciones. Deróguese el Decreto Ejecutivo Nº 35869-MINAET el 24 de marzo de 2010 publicado en La Gaceta Nº 78 del 23 de abril de 2010 “Manual para la Clasificación de Tierras Dedicas a la Conservación de los Recursos Naturales Dentro de la Zona Marítimo Terrestre en Costa Rica.”
