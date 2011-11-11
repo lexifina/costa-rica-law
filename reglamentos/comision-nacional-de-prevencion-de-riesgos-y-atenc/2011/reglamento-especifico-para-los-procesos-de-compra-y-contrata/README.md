@@ -14,3 +14,4 @@ Reglamento específico para los procesos de compra y contratación al amparo de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-23 | la propia norma |
+| 2 | 2011-11-11 | Reglamento 0 (2011-11-11) |
