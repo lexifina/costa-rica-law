@@ -1,0 +1,2 @@
+Artículo 2º—Condiciones para su uso. El mapa de cobertura del año 2000 corresponde a la información base a considerar en la toma de decisiones, especialmente en lo relacionado al cambio del uso del suelo.
+El mapa de cobertura boscosa del año 2005 será utilizado como herramienta de uso complementario, no pudiendo sustituir en ningún caso la información que contenga su antecesor del año 2000, a no ser en los casos de discrepancias reconocidas en posterior artículo.
