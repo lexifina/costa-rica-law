@@ -1,0 +1,1 @@
+Artículo 35.—Aprobación por Contraloría. Este Reglamento fue sometido a aprobación de la Contraloría General de la República, la cual lo aprobó, mediante oficio Nº 08708 de fecha 14 de setiembre del 2011, notificado el 21 de setiembre del 2011.

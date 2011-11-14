@@ -1,0 +1,1 @@
+Artículo 2º—Cobertura. Este Reglamento se aplica a la actividad de los programas presupuestarios del Ministerio de Relaciones Exteriores y Culto, cuyos procedimientos de contratación son llevados a cabo por la Proveeduría Institucional del Ministerio de Relaciones Exteriores y Culto.
