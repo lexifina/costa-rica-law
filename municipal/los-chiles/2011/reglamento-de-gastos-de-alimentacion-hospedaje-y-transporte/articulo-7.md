@@ -1,0 +1,1 @@
+Artículo 7º—En el caso de pago de transporte a regidores y síndicos se pagará de acuerdo a la tarifa aprobada por ARESEP, las rutas que no están autorizadas por esta entidad, se pagará de acuerdo al transporte local.
