@@ -1,0 +1,1 @@
+Artículo 2º—Para el otorgamiento de las distinciones honoríficas y nominación de bienes inmuebles, el Concejo Municipal de San Rafael de Heredia tutelará las normas establecidas en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º—El título de Hijo Predilecto o de Ciudadano ejemplar del cantón de San Rafael de Heredia, dará derecho a quien lo ostente a acompañar a la Corporación municipal en ciertos actos y solemnidades a que aquélla concurra, ocupando el lugar que al efecto le esté señalado.

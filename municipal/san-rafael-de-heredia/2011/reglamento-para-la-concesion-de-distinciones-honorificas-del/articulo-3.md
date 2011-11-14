@@ -1,0 +1,1 @@
+Artículo 3º—Todas las distinciones a que hace referencia este Reglamento tienen carácter exclusivamente honorífico, sin que, por tanto, otorguen ningún derecho administrativo ni de carácter económico.

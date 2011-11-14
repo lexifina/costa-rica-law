@@ -1,0 +1,1 @@
+Artículo 22.—El Concejo Municipal podrá privar de las distinciones que son objeto de este Reglamento, cualquiera que sea la fecha en que hubieran sido conferidas, a quienes incurran en faltas graves que aconsejen esa medida extrema, faltas que deberán ser analizadas por Comisión que se nombre al efecto.

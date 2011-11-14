@@ -1,0 +1,1 @@
+Artículo 17.—El planeamiento, organización y ejecución del acto final conmemorativo estará a cargo de la Comisión que el Concejo Municipal designó para tales efectos, en caso que no existiera, el Concejo decidirá el modo de ejecución.

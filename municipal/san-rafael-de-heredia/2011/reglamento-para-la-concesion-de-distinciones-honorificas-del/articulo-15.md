@@ -1,0 +1,1 @@
+Artículo 15.—La Comisión de Nombramientos de Menciones Honoríficas encargada del proceso de selección tendrá un plazo máximo para la entrega al Concejo Municipal de su recomendación de 30 días hábiles.

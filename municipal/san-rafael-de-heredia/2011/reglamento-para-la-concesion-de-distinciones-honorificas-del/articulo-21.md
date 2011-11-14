@@ -1,0 +1,1 @@
+Artículo 21.—Este libro-registro estará compuesto por todas las distinciones honoríficas que otorgadas por el Concejo Municipal de San Rafael de Heredia, y en cada una de ellas se inscribirán por orden cronológico de concesión, los nombres, con todas las circunstancias señaladas anteriormente, de quienes se hallan en posesión del título, honor o condecoración de que se trate.

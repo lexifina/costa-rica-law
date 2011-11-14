@@ -1,0 +1,1 @@
+Artículo 18.—En caso de no existir el consenso de votos requerido por parte del Concejo Municipal para la elección, se declarará desierta la designación y por archivada la propuesta, sin defecto de que la misma pueda ser analizada con posterioridad en otro expediente.

@@ -1,0 +1,2 @@
+Artículo 19.—En la Municipalidad de San Rafael, se acondicionará un espacio físico agradable y estético donde se colgarán en sus paredes la fotografía y la placa de reconocimiento a los Hijos Predilectos y Ciudadanos ejemplares del cantón de San Rafael, con la placa o reconocimiento que indica el año a que corresponde su designación, y se indicará sucintamente las razones que motivaron tal reconocimiento.
+En el caso de nominación de bienes inmuebles, se dejará constancia en el sitio mediante placa alusiva a tal reconocimiento.
