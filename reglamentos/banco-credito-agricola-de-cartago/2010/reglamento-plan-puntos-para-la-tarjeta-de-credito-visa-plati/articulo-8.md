@@ -1,1 +1,0 @@
-Artículo 8º—Responsabilidades del Tarjetahabiente. El Tarjetahabiente estará obligado a conocer y cumplir todo lo indicado por el Banco, en lo correspondiente a limitaciones y disposiciones del plan de puntos establecido en el presente Reglamento; de igual forma, acepta de antemano redimir sus puntos sobre las bases indicadas.
