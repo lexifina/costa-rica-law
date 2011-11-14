@@ -1,2 +1,0 @@
-Artículo 49.—La Junta deberá llevar un registro de las inhumaciones en nichos de alquiler, consignado el nombre de la persona inhumada y la fecha de inhumación, además nombre de la persona o familiares responsables, con su dirección domiciliaria, teléfono y otras señas, con el fin de estar en contacto con ellos.
-La omisión del empleado responsable de llevar ese Registro, se considerará como falta grave a sus obligaciones contractuales, para todos los efectos legales.

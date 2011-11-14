@@ -1,1 +1,0 @@
-Artículo 55.—No incurrirá en responsabilidad alguna la Junta, sus miembros o funcionarios, si mediante actuación dolosa de un particular, se efectuase traspaso de derecho de arrendamiento, inhumación o exhumación en contra de lo dispuesto por el Reglamento General de Cementerios.

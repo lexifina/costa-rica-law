@@ -1,5 +1,0 @@
-Artículo 5º—Para la designación de los miembros de la Junta se seguirá el siguiente procedimiento:
-El Concejo Municipal comunicará la convocatoria a las organizaciones comunales del cantón que estén registradas en la Secretaría Municipal. En la publicación se consignará en forma clara las funciones de la Junta y los requisitos de sus miembros, con indicación del plazo para la recepción de los atestados.
-Los interesados deberán enviar su hoja de vida y atestados a la Secretaría Municipal dentro del plazo de la convocatoria, indicando su interés en conformar la Junta. En el caso de ser miembro de la Junta en ese momento se prescindirá del requisito de la Hoja de Vida.
-Los interesados aportarán además, junto con su hoja de vida y como parte de sus atestados, una declaración jurada en el sentido de que no les liga parentesco alguno, hasta tercer grado por consanguinidad o hasta un segundo grado por afinidad, con los miembros del Concejo Municipal o con el Alcalde.
-El nombramiento definitivo lo hará el Concejo Municipal, previo dictamen favorable de la Comisión de Gobierno y Administración.

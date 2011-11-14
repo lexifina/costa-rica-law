@@ -1,1 +1,0 @@
-Artículo 17.—Todo arrendatario de parcela deberá pagar anualmente a la Junta, el importe por concepto de mantenimiento fijado por ésta. En caso demora se cobrará un interés de Tasa Básica más 6 puntos.
