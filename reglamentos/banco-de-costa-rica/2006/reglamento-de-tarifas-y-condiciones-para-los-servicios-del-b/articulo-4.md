@@ -28,6 +28,13 @@ Renovación de certificado $15.00 (En caso de que el cliente no requiera ni tarj
 (Así reformado el punto 4.8) anterior mediante sesión N° 46-11 del 24 de octubre del 2011)
 4.9.- Banca Móvil por mensaje de respuesta. ¢ 5,00
 (Así reformado el punto anterior mediante sesión N° 46 del 21 de setiembre de 2009)
+(*) 4.9. Servicio Quick Pass
+Servicio | Costo
+Adquisición del dispositivo | $35,00
+Mantenimiento mensual | $ 1,00
+Sustitución defecto de fábrica (garantía 4 años) | $ 0,00
+Reemplazo por pérdida o daño | $35,00
+(*)(Así adicionado el punto 4.9) anterior mediante sesión 49-11 de 14 de noviembre del 2011. No obstante; ya exsiste un punto 4.9, pero con diferente contenido)
 4.10- Órdenes de pago electrónica, mediante el canal www.bancobcr.com
 $3.00 por transferencia.
 (*)4.11 Certificados Digital
