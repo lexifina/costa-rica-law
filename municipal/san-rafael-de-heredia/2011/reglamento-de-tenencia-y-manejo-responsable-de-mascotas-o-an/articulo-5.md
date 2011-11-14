@@ -1,0 +1,1 @@
+Artículo 5º—Los propietarios o encargados de animales o de cualquier sitio o local que se encargue de animales, están en la obligación de cumplir el presente Reglamento, estando obligados a transportar los desechos fecales producidos por sus mascotas a los depósitos señalados previamente para ello.

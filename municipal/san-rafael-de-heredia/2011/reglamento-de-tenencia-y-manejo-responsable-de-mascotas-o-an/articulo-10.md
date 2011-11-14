@@ -1,0 +1,1 @@
+Artículo 10.—En cualquier procedimiento de denuncia o amonestación deberá respetarse el derecho de defensa y debido proceso del propietario del animal, teniendo este amplia facultad para ofrecer pruebas, realizar alegaciones y recurrir las actuaciones y/o amonestaciones que se le hayan realizado.

@@ -1,0 +1,1 @@
+Artículo 6º—Los propietarios de animales domésticos están en la obligación de que una vez muerta su mascota deberán recogerla y sepultarla a una profundidad considerable con el fin de evitar malos olores y peligro a la salud pública, bajo ninguna circunstancia las mascotas deberán descomponerse en la vía pública o podrán ser arrojadas por sus dueños a esta una vez fallecidos.

@@ -1,0 +1,4 @@
+Artículo 3º—Definiciones: Desechos fecales: El material generado por los animales domésticos en el proceso de evacuación natural de los alimentos.
+Áreas comunes o áreas públicas: Son los espacios de convivencia y uso general de los vecinos del cantón de San Rafael de Heredia, conocidas como área públicas.
+Recipientes o dispositivos de desecho: Son los lugares de depósito colocados y autorizados por la Municipalidad para el desecho de los residuos fecales.Estos lugares estarán claramente delimitados por las autoridades municipales en sitios estratégicos del cantón.
+Materiales necesarios: Se consideran todos aquellos medios tales como palas, bolsas plásticas, papel periódico, escobas y cualquier otro tipo de instrumento que permita recoger de manera correcta los desechos fecales de los animales domésticos.

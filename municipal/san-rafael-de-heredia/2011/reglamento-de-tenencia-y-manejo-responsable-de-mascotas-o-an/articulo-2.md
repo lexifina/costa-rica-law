@@ -1,0 +1,1 @@
+Artículo 2º—La limpieza y adecuado tratamiento de los desechos fecales producidos por los animales en la vía pública es considerada de prioridad sanitaria y de responsabilidad exclusiva del propietario del animal doméstico.
