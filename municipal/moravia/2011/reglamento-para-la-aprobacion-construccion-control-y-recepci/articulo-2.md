@@ -1,0 +1,6 @@
+Artículo 2º—Definiciones. Para efectos del presente reglamento se consideran los siguientes conceptos:
+Anteproyecto de Urbanización: Representación gráfica y según requerimientos especiales complementada con documentos escritos en la cual se exponen los aspectos fundamentales de las características generales de la futura urbanización: funcionales, formales y constructivas, cuyo objeto es proporcionar una primera imagen global de la misma.
+Licencia de Construcción: Acto Administrativo que reconoce a un sujeto de derecho privado o público el derecho a construir una urbanización, con sujeción a los condicionamientos definidos en el acto y en la legislación aplicable, con la necesaria comprobación de que el ejercicio de la actividad autorizada no afecta el interés público o bien común.
+Uso de suelo: Certificado municipal que acredita la conformidad de un uso del suelo pretendido a los requerimientos de la zonificación establecida en el Plan Regulador.
+Urbanización: Para efectos de este reglamento se considerara como urbanización el fraccionamiento y habilitación de todo terreno realizado para fines urbano – residenciales, mediante la apertura de calles nuevas y provisión de servicios.
+Obras de infraestructura urbana: Infraestructura constructiva básica que sirve de soporte para nuevos asentamientos urbanos, tanto subterránea, como superficial y aérea.
