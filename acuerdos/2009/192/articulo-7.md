@@ -1,19 +1,27 @@
-VII Parte Lineamientos para el giro de fondos a instituciones
-públicas indicadas en el artículo 8) de la Ley 8718
+VII PARTE LINEAMIENTOS PARA EL GIRO DE FONDOS
+A LA ASOCIACIÓN GERONTOLÓGICA COSTARRICENSE
 a. Del destino de los recursos:
-1- Los recursos que el inciso c), artículo 8), Ley 8718 establece a favor del Consejo Técnico de Asistencia Médico Social deberán ser utilizados para financiar exclusivamente programas públicos de salud preventiva.
-2- Los fondos que el inciso g) destina a la Caja Costarricense de Seguro Social, deberán utilizarse para financiar las pensiones del Régimen No Contributivo.
-3- El inciso j) dispone fondos para el Consejo Nacional de la Política Pública de la Persona Joven, los cuales deben destinarse para el desarrollo de programas de capacitación y recreación de las personas jóvenes con discapacidad física, mental o sensorial.
-4- Los recursos que el inciso r) establece a favor del Instituto Costarricense del Deporte y la Recreación, deben dirigirse exclusivamente a las reparaciones, mejoras y construcción de instalaciones deportivas para la práctica del deporte y la recreación, así como para la representación de deportistas, entrenadores y dirigentes, con el fin de que puedan asistir, participar y competir en eventos de orden internacional, en el campo del deporte, la educación física, la recreación y la capacitación deportiva.
+1- Los programas, rubros o proyectos que se financien con los recursos correspondientes a la Ley N º 8718, inciso t) deben orientarse a la promoción de una vejez digna, activa y participativa.
+2- Deberá garantizarse el acceso de la población Adulta Mayor a los programas que en apego a lo dispuesto por el inciso t) del artículo 8) de la Ley N º 8718 desarrolle AGECO, los cuales deberán ajustarse a las políticas y disposiciones definidas por el Consejo Nacional de la Persona Adulta Mayor. A efecto de demostrar el acceso de la población Adulta Mayor a este tipo de actividades, deberán llevar los listados de las personas que participen y cumplan esta condición.
+3- En cuanto a pago de salarios o servicios profesionales, se puede incluir únicamente el recurso humano necesario para brindar el servicio de atención directa, no se puede incluir personal administrativo.
+4- En caso de incluir gastos por concepto de viáticos, deberá regirse por la Tabla de Viáticos aprobada por la Contraloría.
 b. Requisitos para iniciar el giro de los recursos
-Para iniciar el giro de los recursos, la institución debe presentar la siguiente documentación:
-1. Formulario de identificación de la institución
-2. Cédula y personería jurídica al día.*
-3. Copia del plan de inversión que explicite el uso que se dará a los recursos asignados según la Ley Nº 8718*
-4. Otros que indique la Contraloría General de la República, para optar por el giro de fondos.
-5. Estar al día con el pago de las cuotas obrero patronales ante la CCSS.*
-6. Aportar el número de cuenta cliente, de la cuenta corriente exclusiva para el manejo de los fondos aportados por la Junta.
-7. Suscribir el convenio anual que regula la utilización de los fondos establecidos en la Ley Nº 8718.
-*Requisitos que deben presentarse en el mes de enero de cada año
+Para iniciar el giro de los recursos, AGECO deberá presentar la siguiente documentación:
+1. Formulario de identificación de la organización.
+2. Personería jurídica al día.
+3. Copia de estatutos.
+4. Libros legales al día.
+5. Copia de los Estados Financieros Auditados.*
+6. Organigrama.
+7. Declaración jurada por el representante legal donde indique que cuentan con la organización administrativa para la administración de fondos públicos de manera eficiente y eficaz.
+8. Estar al día con el pago de las cuotas obrero patronales ante la CCSS.
+9. Aportar el número de cuenta cliente, de la cuenta corriente exclusiva para el manejo de los fondos aportados por la Junta.
+10. Suscribir el convenio anual que regula la utilización de los fondos establecidos en la Ley N º 8718.
+11. Documento del Consejo Nacional de la Persona Adulta Mayor donde avale el programa.
+12. Otros que indique la Contraloría para optar por la transferencia de fondos sin contraprestación alguna (Circular Nº 14299 y sus reformas).
+* Requisitos que deben presentarse en el mes de febrero de cada año
 c. Sobre la obligación de presentar informes
-Anualmente, las entidades públicas beneficiadas debe presentar una evaluación del efecto de los proyectos financiados a través de los recursos correspondientes a la Ley Nº 8718. Asimismo, debe presentar liquidación de gastos semestral y el informe de rendición de cuentas sobre el cumplimiento de las metas propuestas.
+- En el mes de enero de cada año, AGECO debe presentar en el Departamento de Acción Social un informe que considere la evaluación del efecto de los programas o proyectos financiados con los recursos de la Ley N º 8718.
+- AGECO deberá presentar en el Departamento de Revisión y Control copia de las liquidaciones presentadas ante la Contraloría General de la República , así como la copia del recibido de dichos documentos por el Ente Contralor.
+- Cuando se le solicite, por cualquiera de las dependencias de la Junta de Protección Social, AGECO deberá presentar toda documentación e información requerida (libros contables, liquidaciones de recursos, listados de personas participantes en actividades del inciso t) del artículo 8) de la Ley N º 8718, entre otros), en forma precisa, clara, confiable y dentro del plazo que para ello se le señale.
+(Así reformado mediante acuerdo JD-583 aprobado en sesión N°42-2011 del 15 de noviembre del 2011)

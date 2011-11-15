@@ -15,3 +15,4 @@ Manual de Criterios para la distribución de recursos (Ley N° 8718 (Artículos 
 | --- | --- | --- |
 | 1 | 2006-06-18 | la propia norma |
 | 2 | 2010-12-16 | Acuerdo 652 (2010-12-16) |
+| 3 | 2011-11-15 | Acuerdo 583 (2011-11-15) |
