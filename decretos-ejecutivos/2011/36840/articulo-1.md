@@ -1,0 +1,11 @@
+Nº 36840-JP
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones Nº 218 de ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación de Los Amigos de Monteverde, cédula de persona jurídica Nº 3-002-092942, se inscribió en el Registro de Asociaciones del Registro Público desde el día diecisiete de noviembre del dos mil cuatro, bajo el tomo Nº 366, asiento 15047, expediente Nº 2.950.
+III.—Que los fines que persigue la Asociación, según el artículo cuarto de sus estatutos, son: “…La Asociación tiene los siguientes fines: i) Promover el desarrollo espiritual y religioso de sus asociados acogiéndose a los principios y valores de la “Sociedad Religiosa de los Amigos”; la cual es conocida en otros países como “The Religious Society of Friends”. ii) Promover el desarrollo social, cultural y educativo de sus asociados y los habitantes de Monteverde. iii) Promover procesos que aumentan la dignidad de los seres humanos, la equidad y la justicia en las relaciones humanas, y el respeto para toda forma de vida. iv) Representar, operar y administrar la Escuela de los Amigos de Monteverde, conocida en inglés como “The Monteverde Friends School”. v) Cuidar y dar protección a los bienes tanto muebles como inmuebles de su propiedad o que se encuentren bajo su administración…”. (Folio 18).
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+Decretan:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado la Asociación de Los Amigos de Monteverde, cédula de persona jurídica Nº 3-002-092942, inscrita en el Registro de Asociaciones del Registro Público bajo el expediente Nº 2.950.
