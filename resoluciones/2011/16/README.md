@@ -14,3 +14,4 @@ Resolución del Sorteo de Lotería Fiscal "Transacción Electrónica-Puntos Soli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-22 | la propia norma |
+| 2 | 2011-11-15 | Resolución 38 (2011-11-15) |
