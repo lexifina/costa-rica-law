@@ -1,1 +1,1 @@
-Artículo 23.—De la recuperación de los préstamos. El principal de las sumas recuperadas sobre los préstamos, como forman parte del capital de cada afiliado será invertido en nuevos préstamos o inversiones del Fondo de Garantías conforme lo establece el artículo 21 del presente Reglamento.
+Artículo 23.—De la Recuperación de los préstamos. El principal de las sumas recuperadas sobre los préstamos, como forman parte del capital de cada afiliado será invertido en nuevos préstamos o inversiones del Fondo, conforme lo establece el artículo 21 del presente reglamento.

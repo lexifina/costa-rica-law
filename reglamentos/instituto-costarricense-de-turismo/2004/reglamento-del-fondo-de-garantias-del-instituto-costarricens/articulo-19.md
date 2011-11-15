@@ -2,25 +2,25 @@ Artículo 19.—De las funciones de los miembros de la Junta Administradora.
 Funciones del Presidente:
 a) Presidir, abrir, suspender y levantar las sesiones.
 b) Firmar conjuntamente con el Secretario las actas aprobadas.
-c) Firmar conjuntamente con el Tesorero los cheques y otros valores.
+c) Firmar en forma mancomunada con el Tesorero o el Vicepresidente los cheques y otros valores.
 d) Dirigir las discusiones de los asuntos sometidos a conocimiento de la Junta Administradora.
 e) Convocar sesiones.
 Funciones del Vicepresidente:
 a) Asumir la Presidencia en las ausencias temporales o permanentes del Presidente, con el mismo nivel de responsabilidad.
 b) Presidir las comisiones o comités que la Junta Administradora considere oportuno para un mejor control.
+c) Firmar en forma mancomunada con el Tesorero o el Presidente los cheques y valores del Fondo.
 Funciones del Secretario:
 a) Elaborar de acuerdo con el Presidente, el orden del día.
 b) Levantar las actas de las sesiones.
-c) Firmar conjuntamente con el Presidente las actas aprobadas.
+c) Firmar en forma conjuntamente con el Presidente las actas aprobadas.
 d) Recibir, tramitar, contestar y archivar la correspondencia.
 e) Elaborar y mantener actualizado el archivo del Fondo.
-(*)Funciones del Tesorero:
-a. Firmar con el Presidente u otro representante designado al efecto, los cheques y otros valores.
-b. Recibir los depósitos o dineros tanto del Instituto como de los afiliados.
-c. Ejercer control sobre el movimiento económico.
-d. Presentar un informe en la asamblea general ordinaria del movimiento económico del período.
-e. Realizar arqueos a la caja chica y las inversiones en forma periódica.
-(*)(Así reformado en asamblea general extraordinaria de afiliados del 28 de febrero de 2008).
+Funciones del Tesorero:
+a) Firmar en forma mancomunada con el Presidente o el Vicepresidente, los cheques y otros valores del Fondo.
+b) Recibir los depósitos o dineros tanto del Instituto como los de los afiliados.
+c) Ejercer control sobre el movimiento económico.
+d) Presentar un informe en la Asamblea General Ordinaria del movimiento económico del periodo.
+e) Realizar arqueos a la Caja Chica y de las inversiones en forma periódica.
 Funciones de los Vocales:
 a) Sustituir durante las ausencias temporales o permanentes al Secretario o Tesorero.
 b) Presidir las comisiones o comités que la Junta Administradora considere oportuno para un mejor control.

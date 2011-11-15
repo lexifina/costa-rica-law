@@ -1,1 +1,1 @@
-Artículo 28.—Informes anuales. La Junta Administradora rendirá, a más tardar el 15 de junio de cada año en asamblea general ordinaria, un informe con los resultados del periodo anterior y los Estados Financieros auditados al 31 de Diciembre del año anterior, cuando corresponda.
+Artículo 28.—Informes anuales. La Junta Administradora rendirá, a más tardar el 15 de junio de cada año en Asamblea General Ordinaria, un informe con los resultados del periodo anterior y los Estados Financieros auditados al 31 de mayo del año en curso, cuando corresponda.
