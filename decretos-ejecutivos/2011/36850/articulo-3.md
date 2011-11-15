@@ -1,0 +1,1 @@
+Artículo 3º—Deróganse el subinciso 3) del inciso d) del artículo 12, el inciso d) del artículo 13 y el subinciso ii) del inciso f) del artículo 13 del Decreto Ejecutivo Nº 23323-PLAN de 17 de mayo de 1994.
