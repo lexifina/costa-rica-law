@@ -1,0 +1,2 @@
+2) ÁMBITO DE APLICACIÓN. Este Reglamento se aplica a esfigmomanómetros para medición indirecta (no invasiva) de presión arterial, tipo aneroide, de columna de líquido manométrico y digitales que midan presión estática, los cuales pueden ser: portátiles, fijos o asociados a monitores de signos vitales de pacientes.
+Nota: Este procedimiento no aplica para los esfigmomanómetros totalmente automatizados ni para los monitores de signos vitales que no miden presión estática.
