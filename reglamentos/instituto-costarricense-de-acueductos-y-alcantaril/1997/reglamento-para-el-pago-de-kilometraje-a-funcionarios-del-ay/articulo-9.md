@@ -1,1 +1,0 @@
-Artículo 9°—Los usuarios de este sistema estarán obligados a mantener vigentes las pólizas y constancias de revisión antes referidas, e igualmente las licencias que le habiliten para la conducción de vehículos automotores, para lo cual deberán presentar al Coordinador de su Proceso, los recibos de renovación de pólizas, licencias de conducir y revisión mecánica.

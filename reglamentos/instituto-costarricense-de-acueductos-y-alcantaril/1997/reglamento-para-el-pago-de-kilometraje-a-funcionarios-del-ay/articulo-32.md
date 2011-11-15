@@ -1,1 +1,0 @@
-Artículo 32.—El incumplimiento de cualquiera de las disposiciones contenidas en el presente reglamento, facultará a AyA para rescindir de inmediato el contrato, sin responsabilidad alguna de su parte y sin perjuicio de las sanciones administrativas que fueran procedentes.

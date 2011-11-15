@@ -1,1 +1,0 @@
-Artículo 29.—La no utilización de dicho formulario en forma oportuna o su presentación en forma incompleta por parte del funcionario, dará lugar al no pago por parte de AyA de las sumas que eventualmente fuere en deber, así como a rescindir el contrato, inclusive, si fuere pertinente, sin responsabilidad alguna.

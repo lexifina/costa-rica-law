@@ -1,1 +1,0 @@
-Artículo 24.—El Proceso Financiero - Contable hará las verificaciones numéricas correspondientes y de la tarifa por kilómetro vigente por la Contraloría General de la República y dará la aprobación final para el pago.

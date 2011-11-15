@@ -1,1 +1,0 @@
-Artículo 35.—En cualquier momento, de mutuo acuerdo, el AyA y el funcionario podrán poner término a la contratación que se hubiere llevado a cabo, a cuyo efecto deberán suscribir un documento contentivo de la aceptación expresa de las partes en dar por concluida dicha contratación.

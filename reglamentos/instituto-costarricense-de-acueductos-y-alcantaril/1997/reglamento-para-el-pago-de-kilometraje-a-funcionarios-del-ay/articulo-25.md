@@ -1,1 +1,0 @@
-Artículo 25.—La Auditoría Interna de AyA llevará a cabo las acciones que considere necesarias, para garantizar el eficaz funcionamiento del sistema, en razón de su competencia de conformidad con la Ley Constitutiva de AyA.

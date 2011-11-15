@@ -1,1 +1,0 @@
-Artículo 3°—La posibilidad de arrendar su vehículo y percibir remuneración por pago de kilometraje, está vedado a miembros de Junta Directiva, Presidencia Ejecutiva, Gerencias, Coordinadores de Procesos y Directores de Area, quienes por su condición y para estos efectos están excluidos de la aplicación de este reglamento.

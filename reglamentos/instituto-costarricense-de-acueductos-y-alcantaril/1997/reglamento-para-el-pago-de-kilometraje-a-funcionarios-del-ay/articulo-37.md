@@ -1,1 +1,0 @@
-Artículo 37.—El presente deroga el Reglamento de uso de vehículos de funcionarios de AyA emitido mediante acuerdo de Junta Directiva número 94-265 adoptado en la sesión ordinaria número 96-060 de fecha 12 de setiembre de 1994.
