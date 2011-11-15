@@ -1,0 +1,1 @@
+Artículo 3º—El Servicio Nacional de Salud Animal, facilitará los permisos necesarios de importación para exhibición y degustación de quesos en el Congreso Centroamericano del Sector Lácteo 2011, dentro de sus posibilidades legales.
