@@ -1,0 +1,1 @@
+NOVENO: Este procedimiento rige a partir del aviso a los proveedores de que el mismo puede ser accesado en la página web de la Institución. Dicha publicación se realizará, por una sola vez, en el periódico oficial La Gaceta y un medio de circulación nacional.

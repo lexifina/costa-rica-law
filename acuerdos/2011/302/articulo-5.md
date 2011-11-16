@@ -1,0 +1,1 @@
+QUINTO: Una vez revisado el contrato de cesión se notificará vía fax al cedente y al cesionario que el mismo será remitido a la Dirección de Finanzas o al Departamento Financiero de la Regional que corresponda; realizando a las partes las advertencias contenidas en el artículo 36 del reglamento a la Ley de Contratación Administrativa.
