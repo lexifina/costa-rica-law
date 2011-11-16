@@ -14,3 +14,4 @@ Reglamento para la Administración, Disposición, Remate y Venta de Bienes del F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-16 | la propia norma |
+| 2 | 2011-11-16 | Reglamento 93 (2011-11-16) |
