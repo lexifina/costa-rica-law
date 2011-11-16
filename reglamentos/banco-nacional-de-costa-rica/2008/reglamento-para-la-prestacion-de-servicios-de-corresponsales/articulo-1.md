@@ -1,6 +1,7 @@
 REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS
 DE CORRESPONSALES BN SERVICIOS DEL BANCO
 NACIONAL DE COSTA RICA
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 229 del 29 de noviembre del 2011, se indica prorrogar por un plazo de cuatro años más, el procedimiento sustitutivo de contratación contemplado en este reglamento. Dicha prórroga regirá a partir del 10 de diciembre del 2011)
 La Junta Directiva del Banco Nacional, en artículo 16, sesión Nº 11.465 del 15 de enero del 2008, acuerda aprobar el documento denominado Reglamento para la Prestación de Servicios de Corresponsales BN Servicios del Banco Nacional.
 NOTA DE SINALEVI: El texto de este reglamento fue reformado mediante sesión N° 11501 del 30 de setiembre del 2008 y publicado en la Gaceta N° 214 del 5 de noviembre del 2008, por lo que se reproduce a continución:
 OBJETIVO
