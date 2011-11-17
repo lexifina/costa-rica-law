@@ -1,1 +1,0 @@
-Artículo 17.—No se recibirán solicitudes incompletas, a falta de algún documento adicional o que se considere necesario, el Departamento de Recursos Humanos notificará de tal situación al interesado para que en un plazo de tres días subsane la omisión, caso contrario se procederá al rechazo de la solicitud.
