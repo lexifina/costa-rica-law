@@ -14,3 +14,4 @@ Reglamento para el nombramiento de los (las) miembros del consejo de la superint
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-30 | la propia norma |
+| 2 | 2011-11-21 | Reglamento 70 (2011-11-21) |
