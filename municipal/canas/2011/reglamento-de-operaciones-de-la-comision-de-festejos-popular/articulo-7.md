@@ -1,0 +1,1 @@
+Artículo 7.—Aprobación de las actas de las Comisiones de Festejos Populares: Las actas de sesión de las Comisiones de Festejos Populares se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación los acuerdos adoptados carecerán de firmeza, salvo que los miembros presentes acuerden su firmeza por votación unánime.

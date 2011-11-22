@@ -1,0 +1,1 @@
+Artículo 27.—Reembolsos de caja chica: Todos los reembolsos de caja chica deberán respaldarse con justificantes que reúnan los requisitos establecidos en el artículo 19 de este Reglamento. Los cheques que se emitan para efectuar dichos reembolsos deberán girarse a nombre del Tesorero de la Comisión.

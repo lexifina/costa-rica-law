@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Contratación administrativa
+Artículo 31.—Aplicación de la Ley de Contratación Administrativa y su reglamento: A los miembros de la Comisión de Festejos Populares les serán aplicables en lo que corresponda, las prohibiciones y sanciones consagradas en la Ley Nº 7494, Ley de la Contratación Administrativa. Asimismo, las contrataciones que promuevan se regirán por dicha Ley y su Reglamento.
+Para efectos de la selección de los procedimientos concúrsales que regula la Ley de la Contratación Administrativa, así como para la tramitación de los contratos y convenios sujetos a refrendo según el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública vigente, se utilizará el estrato en el cual se ubica la Municipalidad, debidamente publicado por la Contraloría General de la República en La Gaceta, para el año en que se realice el festejo.

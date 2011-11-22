@@ -1,0 +1,1 @@
+Artículo 13.—Del incumplimiento: El incumplimiento injustificado del presente Reglamento dará lugar, según corresponda, a las responsabilidades previstas en el capítulo V de la Ley General de Control Interno Nº 8292, publicada en La Gaceta del 4 de setiembre de 2002.

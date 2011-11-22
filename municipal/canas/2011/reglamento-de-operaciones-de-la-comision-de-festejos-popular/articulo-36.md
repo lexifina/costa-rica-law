@@ -1,0 +1,4 @@
+CAPÍTULO IX
+Liquidación final de ingresos y egresos
+Artículo 36.—Plazos para elaboración de liquidaciones finales de ingresos y egresos. La Comisión elaborará una liquidación final de ingresos y egresos y la presentará a más tardar treinta días naturales después de la finalización de los festejos populares a la Auditoria Interna Municipal para su revisión, acompañadas de los correspondientes registros, comprobantes y justificantes. La Auditoría contará con un plazo de sesenta días naturales para trasladar la liquidación al Concejo Municipal para su aprobación, el cual se pronunciará a más tardar quince días naturales después.
+Dentro del plazo de elaboración de la liquidación, la Comisión cancelará todos los pasivos en que se haya incurrido, y efectuado lo que corresponda en el caso de los activos sobrantes, según lo acordado por el Concejo Municipal para esos efectos.

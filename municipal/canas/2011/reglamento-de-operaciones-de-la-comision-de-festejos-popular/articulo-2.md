@@ -1,0 +1,3 @@
+Artículo 2º—Integración de las Comisiones de Festejos Populares: Las Comisiones de Festejos Populares estarán integradas por un máximo de cinco miembros que serán nombrados por el Concejo Municipal respectivo y serán nombradas como mínimo dos meses antes de la fecha de realización de cada festejo popular, o bien con la anticipación que el Concejo Municipal así lo considere.
+Cada Comisiones de Festejos Populares, de su seno elegirá un Presidente, un Tesorero, un Secretario, y un Fiscal, mediante el mecanismo que considere más conveniente.
+El alcalde/desa, los vicealcaldes/desas, los regidores/ras y los síndicos/cas no podrán integrar estas comisiones.

@@ -1,0 +1,2 @@
+Artículo 33. —Diseño de formatos para la suscripción de contratos. En los formatos que se diseñen para los contratos respectivos, deben quedar claramente definidos, al menos, los elementos esenciales de la negociación, tales como partes suscribientes, objeto, precio, forma de pago, plazo y responsabilidades de las partes Cada uno de los participantes en los diferentes eventos actuará por su propia responsabilidad y riesgo.
+El contratista debe aportar las especies fiscales que correspondan con base en la ley, que serán adheridas al contrato.

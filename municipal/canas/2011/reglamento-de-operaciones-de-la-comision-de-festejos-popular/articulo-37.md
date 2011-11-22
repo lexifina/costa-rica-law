@@ -1,0 +1,1 @@
+Artículo 37.—Depósito de utilidades en la Tesorería Municipal: Las utilidades obtenidas en los Festejos Populares serán depositadas íntegramente por la Comisión en la Tesorería Municipal, a más tardar treinta días naturales después de finalizados los festejos.
