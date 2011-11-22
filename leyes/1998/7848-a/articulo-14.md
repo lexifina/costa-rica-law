@@ -1,3 +1,5 @@
-ARTÍCULO 14.- La remuneración por la disponibilidad y uso de las
-redes regionales será cubierta por los agentes del Mercado de acuerdo a la
-metodología aprobada por la CRIE.
+ARTÍCULO 14.- La remuneración por la disponibilidad y uso de las redes regionales será cubierta por los agentes del Mercado de acuerdo a la metodología aprobada por la CRIE.
+Para determinar la remuneración a que tendrán derecho los agentes transmisores por el servicio de transmisión regional, la CRIE tendrá en cuenta los eventuales ingresos de cualquier negocio distinto al de la transmisión de energía eléctrica, realizado usando dichas instalaciones.
+(Así adicionado el párrafo anterior por el artículo 6° del Tratado Internacional "Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central", ley N° 9004 del 31 de octubre del 2011)
+Los cargos por el uso y disponibilidad de la red de transmisión regional considerarán los cargos variables de transmisión, el peaje, el cargo complementario. El peaje y cargo complementario cobrados a los Agentes dedicados a la distribución se trasladarán a la demanda final.
+(Así adicionado el párrafo anterior por el artículo 6° del Tratado Internacional "Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central", ley N° 9004 del 31 de octubre del 2011)

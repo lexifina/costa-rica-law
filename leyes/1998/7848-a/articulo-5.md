@@ -1,12 +1,3 @@
-ARTÍCULO 5.- Las actividades del Mercado se realizarán entre sus
-agentes, los que podrán ser empresas dedicadas a la generación,
-transmisión, distribución y comercialización de electricidad; así como
-grandes consumidores. Los agentes podrán llevar a cabo libremente y sin
-discriminación alguna, la compra y venta de energía eléctrica. Sin
-embargo, mientras la legislación de un país permita a una misma empresa la
-realización de dos o más actividades en la prestación del servicio
-eléctrico o la designación de una sola empresa para realizar transacciones
-en el Mercado, estas deberán crear unidades de negocios separadas que
-permitan una clara identificación de los costos de cada actividad. La
-participación de los agentes en el Mercado se regirá por las reglas
-contenidas en este Tratado, sus protocolos y reglamentos.
+ARTÍCULO 5.- Las actividades del Mercado se realizarán entre sus agentes, los que podrán ser empresas dedicadas a la generación, transmisión, distribución y comercialización de electricidad; así como grandes consumidores. Todos los agentes de los mercados mayoristas nacionales, reconocidos como tales en las legislaciones nacionales y en la medida en que el ordenamiento constitucional de cada Parte lo permita, serán agentes del mercado eléctrico regional y tendrán los derechos y obligaciones que se derivan de tal condición. Los agentes podrán llevar a cabo libremente y sin discriminación alguna, la compra y venta de energía eléctrica. Sin embargo, mientras la legislación de un país permita a una misma empresa la realización de dos o más actividades en la prestación del servicio eléctrico o la designación de una sola empresa para realizar transacciones en el Mercado, éstas deberán crear unidades de negocios separadas que permitan una clara identificación de los costos de cada actividad. La participación de los agentes en el Mercado se regirá por las reglas contenidas en este Tratado, sus protocolos y reglamentos.
+(Así reformado por el artículo 3° del Tratado Internacional "Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central", ley N° 9004 del 31 de octubre del 2011)N° 9004 del 31 de octubre del 2011)
+(Nota de Sinalevi: Mediante el artículo 3° del Tratado Internacional "Aprueba el Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central" , N° 9004 del 31 de octubre del 2011 el Gobierno de Costa Rica interpretó lo siguiente: "...en el artículo 3 del presente Protocolo, que modifica el numeral 5 del Tratado Marco del Mercado Eléctrico de América Central, en el sentido de que los únicos agentes del mercado eléctrico regional por Costa Rica son el Instituto Costarricense de Electricidad (ICE) y sus empresas, de conformidad con lo dispuesto en el inciso b) del artículo 6 de la Ley N.º 8660, Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, de 8 de agosto de 2008...")

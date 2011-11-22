@@ -1,5 +1,2 @@
-ARTÍCULO 35.- Las controversias que surjan entre los Gobiernos
-respecto a la interpretación y aplicación del Tratado, que no sean
-resueltas mediante negociación, se someterán a arbitraje.
-(Así reformado por el artículo 1 del Protocolo al presente Tratado,
-ley No.7848-A de 20 de noviembre de 1998)
+Artículo 35. Las controversias que surjan entre los Gobiernos, relativas a la interpretación o aplicación del Tratado y sus Protocolos, se resolverán mediante negociación directa por la vía diplomática. Si no se llegara a un entendimiento dentro de un plazo de seis meses los gobiernos podrían mediante acuerdo expreso someterlas a un procedimiento de conciliación por intermedio de la CRIE y, en su defecto se someterán a un tribunal arbitral Ad-hoc, cuyos árbitros serán nombrados según lo acuerden las partes en controversia. El tribunal arbitral decidirá sobre la base de los principios del Derecho Internacional y adoptará su propio procedimiento. El laudo arbitral pondrá fin a la controversia.
+(Así reformado por el artículo 14 del Tratado Internacional "Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central", ley N° 9004 del 31 de octubre del 2011)
