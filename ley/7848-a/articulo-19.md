@@ -1,6 +1,3 @@
 LA COMISIÓN REGIONAL DE INTERCONEXIÓN ELÉCTRICA:
-ARTÍCULO 19.- La CRIE es el ente regulador del Mercado regional, con
-personalidad jurídica propia y capacidad de derecho público internacional,
-aplicable a las Partes. Su domicilio estará situado en uno de los países
-de América Central, a definir por los Gobiernos. Su duración es la de este
-Tratado.
+ARTÍCULO 19.- La CRIE es el ente regulador y normativo del Mercado Eléctrico Regional, con personalidad jurídica propia, capacidad de derecho público internacional, independencia económica, independencia funcional y especialidad técnica, que realizará sus funciones con imparcialidad, y transparencia. Su domicilio estará situado en uno de los países de América Central, a definir por los Gobiernos. Su duración es la de este Tratado.
+(Así reformado por el artículo 7° del Tratado Internacional "Segundo Protocolo al Tratado Marco del Mercado Eléctrico de América Central", ley N° 9004 del 31 de octubre del 2011)
