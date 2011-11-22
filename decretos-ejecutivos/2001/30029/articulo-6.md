@@ -1,1 +1,0 @@
-Artículo 6°—El contrato de concesión de la soda producirá efectos jurídicos una vez que el concesionario cuente con el respectivo permiso sanitario de funcionamiento extendido por el Ministerio de Salud.

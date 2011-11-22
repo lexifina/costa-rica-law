@@ -1,2 +1,0 @@
-Artículo 10.—Cualquier incumplimiento o anomalía en que incurra el concesionario de la soda, deberá ser denunciado por el Comité de Salud y Nutrición o por cualquier funcionario, padre de familia o estudiante, ante la respectiva Junta de Educación o Junta Administrativa, con el fin de que adopte las medidas correctivas o sancionatorias correspondientes, sin perjuicio de las órdenes sanitarias que en el ejercicio de su competencia,
-emita el Ministerio de Salud.

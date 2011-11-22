@@ -1,1 +1,0 @@
-Artículo 12.—La Oficina de Apoyo Técnico de la Dirección Regional de Educación correspondiente, en coordinación con funcionarios del Ministerio de Salud deberá asesorar y supervisar el cumplimiento de las funciones del Comité de Salud y Nutrición, para lo cual llevarán a cabo visitas periódicas en los centros educativos de su jurisdicción.
