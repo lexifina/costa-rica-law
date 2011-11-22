@@ -17,3 +17,4 @@ Reglamento para la Contratación de Servicios de Consultoría en Ingeniería y A
 | 2 | 2006-03-16 | Reglamento 14 (2006-03-16) |
 | 3 | 2008-11-26 | Reglamento 5 (2008-11-26) |
 | 4 | 2009-11-24 | Reglamento 2 (2009-11-24) |
+| 5 | 2011-11-22 | Reglamento 3 (2011-11-22) |

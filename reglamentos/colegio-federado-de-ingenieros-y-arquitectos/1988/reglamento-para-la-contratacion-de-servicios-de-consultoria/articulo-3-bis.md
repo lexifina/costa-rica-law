@@ -2,12 +2,16 @@ Artículo 3 bis.—Obra de Mantenimiento: Se entenderá por obra de mantenimient
 Se consideran obras de mantenimiento, las siguientes:
 a. Reposición o instalación de canoas y bajantes.
 b. Reparación de aceras.
-c. Instalación de verjas, rejas o cortinas de acero.
+c. Instalación de verjas, rejas, cortinas de acero o mallas perimentrales no estructurales.
+(Así reformado el inciso anterior mediante sesión N° 03-11/12-G.E. de 22 de noviembre del 2011)
 d. Limpieza de terreno de capa vegetal o de vegetación.
 e. Cambio de cubierta de techo.
 f. Pintura en general, tanto de paredes como de techo.
 g. Colocación de cercas de alambre.
-h. Acabados de pisos y de cielo raso.
+h. Acabados de pisos, puesrtas, ventanería y de cielo raso.
+(Así reformado el inciso anterior mediante sesión N° 03-11/12-G.E. de 22 de noviembre de 2011)
 i. Reparación de repellos y de revestimientos.
 j. Reparaciones de fontanería.
-(Así adicionado mediante acuerdo 21 de la sesión N° 02 del 24 de noviembre del 2009).
+k. Reparaciones eléctricas (sustitución de luninacrias, de tomacorrientes y de apagadores).
+(Así adicionado el inciso anterior mediante sesión N° 03-11/12-G.E.de 22 de noviembre del 2011)
+(Así adicionado mediante acuerdo 21 de la sesión N° 02 del 24 de noviembre del 2009)
