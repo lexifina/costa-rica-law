@@ -1,1 +1,3 @@
 Artículo 12.—Formalizado, aprobado y refrendado internamente el contrato de recaudación, el responsable del control de Agentes Recaudadores de cada región custodiará el expediente con la documentación original. En el caso de Agentes Recaudadores por el sistema manual la orden de inicio la dará el responsable de agentes recaudadores regionales y en conectividad se solicitará certificación técnica por parte de Tecnología Informática como requisito previo a la emisión de la orden.
+Solamente requerirán refrendo interno aquellos contratos de recaudación en los cuales la estimación contractual supere el límite máximo para la tramitación de una licitación abreviada.
+(Así reformado mediante sesión ordinaria N° 2011-055 del 22 de noviembre del 2011)

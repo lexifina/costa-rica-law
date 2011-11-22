@@ -15,3 +15,4 @@ Reglamento para la Prestación de Servicios de Agentes Recaudadores
 | --- | --- | --- |
 | 1 | 2007-08-06 | la propia norma |
 | 2 | 2008-01-29 | Reglamento 6 (2008-01-29) |
+| 3 | 2011-11-22 | Reglamento 55 (2011-11-22) |
