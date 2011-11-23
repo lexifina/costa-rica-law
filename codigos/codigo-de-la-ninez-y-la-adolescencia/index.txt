@@ -187,6 +187,7 @@ articulo-184.md
 articulo-185.md
 articulo-186.md
 articulo-187.md
+articulo-187-bis.md
 articulo-188.md
 articulo-189.md
 articulo-190.md

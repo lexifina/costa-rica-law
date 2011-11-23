@@ -1,6 +1,6 @@
 # Código de la Niñez y la Adolescencia
 
-Ley N° 7739 del 1998-01-06. SINALEVI, ficha 43077: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43077&param2=84251&param3=1>.
+Ley N° 7739 del 1998-01-06. SINALEVI, ficha 43077: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43077&param2=86843&param3=1>.
 
 Publicada en La Gaceta N° 26 del 1998-02-06.
 
@@ -19,3 +19,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 9 de 23 | 2010-03-01 | Ley 8764 | 2009-08-19 |
 | 10 de 23 | 2010-08-13 | Ley 8842 | 2010-06-28 |
 | 11 de 23 | 2011-03-25 | Ley 8922 | 2011-02-03 |
+| 12 de 23 | 2011-11-23 | Ley 9001 | 2011-10-31 |
