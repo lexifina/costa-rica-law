@@ -15,3 +15,4 @@ Reglamento de Zonificación de Playa Dominical
 | --- | --- | --- |
 | 1 | 2002-07-01 | la propia norma |
 | 2 | 2008-08-06 | Reglamento municipal 31 (2008-08-06) |
+| 3 | 2011-11-23 | Reglamento municipal 47 (2011-11-23) |

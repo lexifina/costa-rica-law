@@ -29,3 +29,5 @@ EL MAPA SOLO EN LA GACETA IMPRESA
 [imagen]
 [imagen]
 (Mediante Fe de Erratas publicada en La Gaceta N° 127 del 1° de julio de 2010, se publicó la lámina anterior)
+(Nota: La Municipalidad de Osa, mediante sesión ordinaria N° 47-2011 del 23 de noviembre del 2011, reformó el artículo 12 de este reglamento, así mismo publicó la lámina N° 1, en donde se detalla el alcance de la anterior corrección, dicha lámina se transcribe a continuación:)
+[imagen]
