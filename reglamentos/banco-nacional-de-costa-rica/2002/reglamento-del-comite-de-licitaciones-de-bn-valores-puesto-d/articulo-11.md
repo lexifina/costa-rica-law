@@ -1,1 +1,1 @@
-Artículo 11.—Regulación. En lo no regulado expresamente aquí, se estará a lo dispuesto por la Ley de Contratación Administrativa, el Reglamento a la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Valores.
+Artículo 11.—Regulación. En lo no regulado expresamente aquí, se estará aplicando lo dispuesto por la Ley de Contratación Administrativa, el Reglamento a la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Valores.
