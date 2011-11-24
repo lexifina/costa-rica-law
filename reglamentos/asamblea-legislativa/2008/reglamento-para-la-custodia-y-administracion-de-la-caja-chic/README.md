@@ -14,3 +14,4 @@ Reglamento para la Custodia y Administración de la Caja Chica de la Asamblea Le
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-09 | la propia norma |
+| 2 | 2011-11-24 | Acuerdo 26 (2011-11-24) |

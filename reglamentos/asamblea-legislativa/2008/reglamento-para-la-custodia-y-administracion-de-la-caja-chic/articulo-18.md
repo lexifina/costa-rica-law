@@ -1,1 +1,2 @@
-Artículo 18.—Pagos por concepto de gastos de viaje y transporte dentro del país. Este rubro se aplicará a los funcionarios legislativos, de conformidad con el Reglamento de gastos de viaje y transporte para funcionarios públicos, emitido por la Contraloría General de la República.
+Artículo 18.—Pagos por concepto de gastos de viaje y transporte dentro del país. Este rubro se aplicará a los funcionarios legislativos y diputados, de conformidad con el Reglamento de gastos de viaje y transporte para funcionarios públicos, emitido por la Contraloría General de la República.
+(Así reformado por el inciso f) del acuerdo N° 26-12-13 aprobado en sesión N° 085-2011 del 24 de noviembre del 2011)
