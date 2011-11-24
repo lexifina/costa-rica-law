@@ -14,3 +14,4 @@ Reglamento de la Caja Recaudadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-14 | la propia norma |
+| 2 | 2011-11-24 | Reglamento municipal 82 (2011-11-24) |
