@@ -1,1 +1,0 @@
-Artículo 23.—Responsabilidad de no informar. El encargado del control de las cauciones que por culpa o dolo no informe cualquier anomalía por escrito a la Gerencia General o a la Dirección de Gestión Administrativa-Financiera, será solidariamente responsable del perjuicio ocasionado.

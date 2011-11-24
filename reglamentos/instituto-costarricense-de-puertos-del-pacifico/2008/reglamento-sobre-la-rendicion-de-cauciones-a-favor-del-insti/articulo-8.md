@@ -1,1 +1,0 @@
-Artículo 8º—Caucionantes del estrato I. En este nivel deben rendir caución para el ejercicio de sus cargos los miembros de la Junta Directiva, Presidente Ejecutivo, Gerente General, Subgerente, el Encargado de la Secretaría de Fiscalización, el Asesor Legal y los Directores de Área.

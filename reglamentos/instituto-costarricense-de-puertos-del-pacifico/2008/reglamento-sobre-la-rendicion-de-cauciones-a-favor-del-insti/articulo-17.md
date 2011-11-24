@@ -1,1 +1,0 @@
-Artículo 17.—Cálculo de la caución en el estrato II. Quienes desempeñen puestos clasificados dentro del estrato II, deberán de rendir una caución equivalente a tres y medio salarios base de un oficinista 4.
