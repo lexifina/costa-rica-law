@@ -31,3 +31,4 @@ Estatuto Autónomo de Servicios
 | 16 | 2009-07-15 | Resolución 13 (2009-07-15) |
 | 17 | 2009-08-03 | Resolución 27 (2009-08-03) |
 | 18 | 2009-09-29 | Resolución 56 (2009-09-29) |
+| 19 | 2011-11-25 | Resolución 189 (2011-11-25) |

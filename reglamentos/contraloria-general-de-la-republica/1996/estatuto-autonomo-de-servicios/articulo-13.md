@@ -17,6 +17,6 @@ c) Por renuncia del servidor al servicio de la Contraloría, en cuyo caso otorga
 d) Por cese de funciones para acogerse al derecho jubilatorio, o por incapacidad permanente dictada por un órgano competente.
 e) Por despido sin responsabilidad patronal, en los casos en que proceda de conformidad con el ordenamiento jurídico vigente en esta materia.
 En esta situación la destitución alcanzará también la plaza que eventualmente ostenta en propiedad.
-f) Por despido con responsabilidad patronal en los casos estrictamente necesarios y a juicio del Contralor (a) General, cuando el servidor permaneciere incapacitado por parte de la Caja Costarricense de Seguro Social por un período continuo mayor a tres meses, en cuyo caso podrá ser separado de su puesto mediante el pago del importe del preaviso y el auxilio de cesantía, vacaciones y otros extremos laborales que correspondan al trabajador.
+f) (Derogado por el artículo 2° de la resolución R-DC-189 del 25 de noviembre de 2011)
 En los casos indicados todo servidor deberá cubrir sus compromisos económicos o de otra índole con la Institución de previo a su salida de la misma, no obstante la Contraloría podrá aceptar las garantías que éste señale, como aval de que hará frente satisfactoriamente a los citados compromisos que pudieren estar pendientes.
 (Así reformado mediante resolución R-SC-04 del 7 de julio de 2006)
