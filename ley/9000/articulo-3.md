@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Cancelación de hipotecasEl Registro Público de la Propiedad cancelará las hipotecas de los créditos condonados con la presente ley por medio de una solicitud que deberá presentar cada beneficiario, la cual deberá contar con el visto bueno del INVU. En dicha solicitud hará constar al menos los datos de inscripción de la hipoteca, el número de finca, el nombre completo y el número de cédula del deudor.
+La Procuraduría General de la República, por medio de la Notaría del Estado, gestionará el trámite de cancelación de hipotecas de las escrituras correspondientes.
+La cancelación de hipoteca no afectará las limitaciones a la propiedad que pesan sobre los inmuebles. Dichas limitaciones permanecerán vigentes durante el plazo originalmente asignado.

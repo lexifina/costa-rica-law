@@ -1,0 +1,1 @@
+TRANSITORIO I.-El INVU tendrá un plazo de seis meses prorrogable por una única vez hasta por otro período igual, para la realización de los estudios correspondientes; lo anterior, a partir de la entrada en vigencia de la presente ley.

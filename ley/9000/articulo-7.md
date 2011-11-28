@@ -1,0 +1,1 @@
+ARTÍCULO 7.- Suspensión de cobros El INVU suspenderá los cobros contra todos los beneficiarios que calificaron para la condonación de su deuda, a partir de la determinación del cumplimiento de los requisitos establecidos en la presente ley. La suspensión que se ordene con base en la presente ley estará exenta de costas procesales y personales.
