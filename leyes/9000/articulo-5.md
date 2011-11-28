@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Inscripción de donacionesLa Procuraduría General de la República, por medio de la Notaría del Estado, gestionará el trámite de las escrituras de donación previstas en el artículo anterior, al igual que la inscripción correspondiente ante el Registro Público.

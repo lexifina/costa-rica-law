@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Patrimonio familiar Tanto en la gestión de cancelación de hipoteca como en la escritura de donación establecidas en la presente ley se estipulará la afectación del inmueble respectivo al régimen de patrimonio familiar, conforme a la legislación vigente.
