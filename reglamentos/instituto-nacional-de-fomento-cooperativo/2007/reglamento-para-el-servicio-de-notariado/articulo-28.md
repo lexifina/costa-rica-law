@@ -1,1 +1,0 @@
-Artículo 28.—De la aplicación de las sanciones de suspensión, resolución y rescisión contractual. Corresponde a la Junta Directiva la aplicación de las sanciones de suspensión, resolución contractual y rescisión contractual estarán a cargo de la Junta Directiva.

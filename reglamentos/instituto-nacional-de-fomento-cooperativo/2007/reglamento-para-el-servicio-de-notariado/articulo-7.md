@@ -1,1 +1,0 @@
-Artículo 7º—De la aplicación del reglamento. La Subdirección Ejecutiva. El Proceso Operaciones y la Proveeduría, según corresponda velarán por la aplicación de las disposiciones contenidas en este Reglamento. En caso de incumplimiento se aplicará el régimen sancionatorio aquí dispuesto.

@@ -1,1 +1,0 @@
-Artículo 6º—Suministro de información general al notario externo. El INFOCOOP proporcionará a los Notarios Externos copia de los reglamentos, resoluciones, lineamientos y acuerdos de Junta Directiva, que estime necesarios para el buen desempeño de la labor.

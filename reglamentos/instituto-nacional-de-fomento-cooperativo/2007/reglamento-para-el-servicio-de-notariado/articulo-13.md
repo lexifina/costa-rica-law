@@ -1,2 +1,0 @@
-Artículo 13.—De la comunicación al notario de la asignación. El Proceso Operaciones o la Proveeduría, según corresponda, contará con dos días hábiles para comunicar al Notario o Notarios la asignación del acto notarial, a la cual le adjuntará el expediente con la documentación necesaria.
-El Notario contará hasta con dos días hábiles para retirar el respectivo expediente, lo cual deberá hacer personalmente o autorizar mediante nota a la persona que retirará el expediente.

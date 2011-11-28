@@ -1,3 +1,0 @@
-Artículo 16.—Reasignación por falta de apersonamiento oportuno. El Notario Externo que por cualquier causa no se apersone a la hora, fecha y lugar convenido para el otorgamiento de la escritura pública o la función notarial asignada, será excluido de ésta.
-En caso de conotariado, la falta de apersonamiento provocará que la totalidad de los honorarios correspondan exclusivamente al Notario apersonado.
-Cuando la falta de apersonamiento oportuna se deba a causas justificadas, lo cual deberá comprobar el Notario a entera satisfacción del INFOCOOP, se le reasignará una nueva escritura que sustituya la originalmente asignada.

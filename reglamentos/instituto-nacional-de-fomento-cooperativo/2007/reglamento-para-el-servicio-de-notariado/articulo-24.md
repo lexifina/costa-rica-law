@@ -1,1 +1,0 @@
-Artículo 24.—De la tarifa de honorarios. Los honorarios por servicios notariales se rigen por lo dispuesto en el Arancel de honorarios de abogados y notarios respectivo, conforme a los artículos 22 de la Ley Orgánica del Colegio de Abogados y 166 del Código Notarial.

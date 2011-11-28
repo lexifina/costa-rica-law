@@ -1,2 +1,0 @@
-Artículo 3º—De la contratación de los notarios externos. La contratación de notarios externos para la prestación de servicios notariales al INFOCOOP, se efectuará de conformidad con los procedimientos de contratación establecidos en la Ley de Contratación Administrativa y su respectivo reglamento general.
-La tramitación del procedimiento de contratación respectivo estará a cargo de la Proveeduría del INFOCOOP y la adjudicación corresponderá a la Junta Directiva del INFOCOOP.
