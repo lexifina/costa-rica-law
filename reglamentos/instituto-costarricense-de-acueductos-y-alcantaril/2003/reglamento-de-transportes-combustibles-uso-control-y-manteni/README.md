@@ -14,3 +14,4 @@ Reglamento de Transportes, Combustibles, Uso, Control y Mantenimiento de Vehícu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-08 | la propia norma |
+| 2 | 2011-11-28 | Reglamento 0 (2011-11-28) |
