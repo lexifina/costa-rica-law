@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Agricultura y Ganadería, a través del Servicio Nacional de Salud Animal (SENASA) podrá supervisar los registros y a ese efecto podrá accesar los mismos en cualquier momento y requerir los informes necesarios, para lo cual está obligada la Asociación a proporcionar y diligenciar en el menor plazo posible.
