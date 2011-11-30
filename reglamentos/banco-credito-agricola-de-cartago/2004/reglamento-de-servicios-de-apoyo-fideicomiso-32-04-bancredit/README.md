@@ -15,3 +15,4 @@ Reglamento de Servicios de Apoyo (Fideicomiso 32-04 Bancrédito -IMAS-BANACIO/73
 | --- | --- | --- |
 | 1 | 2006-04-21 | la propia norma |
 | 2 | 2008-06-12 | Reglamento 0 (2008-06-12) |
+| 3 | 2011-11-30 | Reglamento 0 (2011-11-30) |
