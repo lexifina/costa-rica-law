@@ -19,6 +19,16 @@ Si el adjudicatario en definitivo no se apersonó para la rúbrica del documento
 Si el adjudicatario se apersona en forma tardía para el retiro de la copia del contrato o sea fuera del tiempo conferido en la notificación cursada. Se aplicarán 60 puntos adicionales en la nota que posee dicho proveedor.
 Si el adjudicatario en definitivo no se apersonó al retiro de la copia del contrato. Se aplicarán 170 puntos adicionales en la nota que posee dicho proveedor.
 3.6 Cantidad pactada
-Si existe diferencia entre la cantidad pactada y la entregada. Se aplicarán 05 puntos adicionales en la nota que posee dicho proveedor, por cada diferencia existente entre N.I.E.R / N.I.O.C o Q.S.E.R / Q.S.C, hasta un máximo de 170 puntos.
+Si existe diferencia entre la cantidad pactada y la entregada. Se aplicarán 05 puntos adicionales en la nota que posee dicho proveedor, por cada diferencia existente entre N.I.E.R / N.I.O.C o Q.S.E.R / Q.S.C, hasta un máximo de 170 puntos. Para aplicar esta evaluación el fiscalizador del contrato u orden de compra deberá solicitarlo a la Unidad de Contratos informando sobre la conducta incurrida por parte del proveedor.
+En el caso de órdenes de compra o contratos continuos o prorrogables en donde el consumo del objeto o servicio contratado se concreta sobre la base de necesidades específicas y el consumo real del Banco a través del plazo de prestación contractual, para asignar la puntación producto de esta conducta el fiscalizador del contrato u orden de compra por parte del Banco, debe realizar el reporte a la Unidad de Contratos, de dicha conducta, considerando las siguientes variables:
+a) Impacto en servicios o productos ofrecidos o productos y servicios que brinde el Banco.
+b) Impacto patrimonial.
+c) Frecuencia de incumplimientos.
+(Así reformado el punto 3.6) anterior según oficio GGC -1275-2011 de la Gerencia General Corporativa de fecha 30 de noviembre de 2011)
 3.7 Tiempo de entrega
 Si existe diferencia entre el tiempo pactado y el tiempo de entrega real. Se aplicarán 10 puntos adicionales en la nota que posee dicho proveedor por cada día natural de diferencia existente entre T.p / T.r, hasta un máximo de 100 puntos.
+En el caso de órdenes de compra o contratos continuos o prorrogables en donde el consumo del objeto o servicio se concreta sobre la base de necesidades específicas y reales del Banco a través del plazo de prestación contractual, para asignar la puntación producto de esta conducta el fiscalizador del contrato u orden de compra por parte del Banco, debe realizar el reporte a la Unidad de Contratos, de dicha conducta, considerando las siguientes variables independientemente de la modalidad de contratación:
+d) Impacto en servicios o productos ofrecidos o productos y servicios que brinde el Banco.
+a) Impacto patrimonial.
+b) Frecuencia de incumplimientos.
+(Así reformado el punto 3.7) anterior según oficio GGC -1275-2011 de la Gerencia General Corporativa de fecha 30 de noviembre de 2011)

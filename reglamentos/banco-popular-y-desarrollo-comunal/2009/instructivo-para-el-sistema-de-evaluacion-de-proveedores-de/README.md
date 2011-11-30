@@ -14,3 +14,4 @@ Instructivo para el Sistema de Evaluación de Proveedores de la Actividad Contra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-24 | la propia norma |
+| 2 | 2011-11-30 | Reglamento 0 (2011-11-30) |
