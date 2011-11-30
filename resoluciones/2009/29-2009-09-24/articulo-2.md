@@ -1,1 +1,0 @@
-Artículo 2º—Registro de los Copropietarios. Para efecto del registro de los copropietarios deberán designar a uno de ellos para que se inscriba en el Registro Único Tributario. En el formulario de inscripción correspondiente deberá detallarse la información del resto de los copropietarios llenando los datos solicitados.

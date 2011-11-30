@@ -1,1 +1,0 @@
-Artículo 10.—Declaración de edificios de apartamentos. Cuando se trate de un edificio o complejo de apartamentos, el propietario de varios apartamentos debe declarar en forma independiente, por cada unidad habitacional.

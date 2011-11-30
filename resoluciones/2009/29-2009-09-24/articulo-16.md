@@ -1,1 +1,0 @@
-Artículo 16.—Efectos de las declaraciones presentadas en forma diferente a la regulada en la presente resolución. Las declaraciones presentadas en otros medios y formatos, diferentes a los establecidos en los artículos 3 y 4 de esta Resolución, se tendrán por no presentadas, sin necesidad de notificación al interesado, generando los efectos legales correspondientes.

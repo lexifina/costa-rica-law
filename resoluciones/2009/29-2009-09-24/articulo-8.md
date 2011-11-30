@@ -1,1 +1,0 @@
-Artículo 8º—Declaración Conjunta. Se entenderá por declaración conjunta aquella que realice el copropietario designado, previa inscripción realizada conforme lo establece el artículo 2 de esta resolución.
