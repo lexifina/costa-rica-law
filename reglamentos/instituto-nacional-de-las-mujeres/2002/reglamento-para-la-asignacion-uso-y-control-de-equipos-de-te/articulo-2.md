@@ -1,1 +1,0 @@
-Artículo 2º—Objeto. Este Reglamento tiene como objeto fundamental regular y controlar la asignación y uso de los teléfonos celulares con sus respectivos accesorios y línea telefónica, así como los aparatos de radiolocalización.
