@@ -1,0 +1,2 @@
+IV.—Modificar el artículo 43° inciso 2 sub inciso b., para que indique:
+“b) Realizar las investigaciones preliminares de aquellos casos, donde posiblemente hay infracción a los artículo 38 y 41 de la ley 7593 y remitir al órgano decidor correspondiente un informe que contenga como mínimo la valoración y recomendación de la existencia de mérito suficiente para abrir el respectivo procimiento y que anexe los elementos de juicio necesarios para formular el traslado de cargos o intimación.”

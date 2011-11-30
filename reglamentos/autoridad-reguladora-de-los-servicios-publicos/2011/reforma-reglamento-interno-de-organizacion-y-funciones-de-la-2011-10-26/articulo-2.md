@@ -1,0 +1,4 @@
+II.—Adicionar al artículo 8° tres incisos, que dicen:
+“p. Ordenar en los procedimientos administrativos, en los cuales la posible sanción sea la imposición de multas, su apertura; dictar los actos preparatorios y las medidas cautelares de cierre de empresa o remoción de equipo y dictar la resolución final. Además deberá conocer de los recursos que se presenten.
+q. Otorgar o denegar el refrendo de contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos y resolver los recursos administrativos que correspondan;
+r. Ratificar o no los contratos que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos y resolver los recursos administrativos que correspondan.”

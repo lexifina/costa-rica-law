@@ -1,0 +1,2 @@
+X.—Modificar el artículo 47° inciso 2 sub inciso b., para que en adelante indique:
+“b. Realizar las investigaciones preliminares de aquellos casos, donde posiblemente hay infracción a los artículos 38 y 41 de la Ley 7593 y remitir al órgano decisor correspondiente un informe que contenga como mínimo la valoración y recomendación de la existencia mérito suficiente para abrir el respectivo procedimiento y que anexe los elementos de juicio necesarios para formular el traslado de cargos o intimación.”
