@@ -1,0 +1,1 @@
+c. Informar de estas medidas a la señora Ministra de Vivienda y Asentamientos Humanos, quien ejerce la rectoría del Eje de Ordenamiento Territorial del Plan Nacional de Desarrollo 2010-2014, e igualmente a la señora Ministra de Planificación y Política Económica, para lo que corresponda.
