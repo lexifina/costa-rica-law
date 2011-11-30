@@ -14,3 +14,4 @@ Crea Comisión para Operaciones Contingentes de Liquidez y reforma Reglamento de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-25 | la propia norma |
+| 2 | 2011-11-30 | Reglamento 5524 (2011-11-30) |
