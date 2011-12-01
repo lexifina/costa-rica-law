@@ -3,9 +3,9 @@ a) Objeto del tributo. Se establece un impuesto anual sobre la propiedad de los 
 b) Hecho generador. El hecho generador del impuesto es la propiedad de los vehículos automotores, aeronaves o embarcaciones de recreo o pesca deportiva, ocurre inicialmente en el momento de su adquisición y se mantiene hasta la cancelación de la inscripción.
 c) Contribuyentes. Son contribuyentes de este tributo las personas físicas o jurídicas, públicas o privadas, de hecho o de derecho, que sean propietarias de un vehículo de los citados en el inciso a).
 ch) No están sujetos a este impuesto:
-( Así reformado este encabezado por el artículo 31 de la Ley 7293 de 31 de marzo de 1992 )
+(Así reformado este encabezado por el artículo 31 de la Ley 7293 de 31 de marzo de 1992 )
 1) Los Estados Extranjeros que los destinen para el uso exclusivo de sus embajadas y consulados acreditados en el país con las limitaciones que se generen de la aplicación, en cada caso, del principio de reciprocidad sobre los beneficios fiscales.
-( Así reformado este numeral 1º por el artículo 31 de la Ley Nº 7293 de 31 de marzo de 1992 )
+(Así reformado este numeral 1º por el artículo 31 de la Ley Nº 7293 de 31 de marzo de 1992 )
 2) Los organismos internacionales que los destinen exclusivamente para sus funciones.
 3) El Gobierno Central y la Municipalidades.
 También estarán exentos los siguientes vehículos:
@@ -25,14 +25,14 @@ f) Cálculo del impuesto.
 Las tarifas establecidas son progresivas. El impuesto se pagará sobre el valor que tengan, en el mercado interno, en enero de cada año, los vehículos, las aeronaves o las embarcaciones de recreo, según la lista que el Poder Ejecutivo emitirá, por decreto para cada marca, año, carrocería y estilo.
 El impuesto se pagará conforme a la tabla siguiente:
 Valor Tasa
-Hasta ¢ 520.000 ¢ 21,400.00
-Sobre el exceso de ¢ 520.000,00 y hasta ¢ 2.070.000,00 1.2 %
-Sobre el exceso de ¢ 2.070.000,00 y hasta ¢ 4.110.000,00 1.5 %
-Sobre el exceso de ¢ 4.110.000,00 y hasta ¢ 6.180.000,00 2.0 %
-Sobre el exceso de ¢ 6.180.000,00 y hasta ¢ 7.710.000,00 2.5 %
-Sobre el exceso de ¢ 7.710.000,00 y hasta ¢9.260.000,00 3.0%
-Sobre el exceso de ¢ 9.260.000,00 3.5. %
-(Así modificado por el artículo 1° del decreto ejecutivo N° 36285 del 9 de noviembre de 2010. De igual manera ver también los artículos 2°, 3°, 4°, y 5°, del mismo decreto)
+Hasta ¢ 490.000 ¢ 22,500.00
+Sobre el exceso de ¢ 490.000,00 y hasta ¢ 1.970.000,00 1.2 %
+Sobre el exceso de ¢ 1.970.000,00 y hasta ¢ 3.910.000,00 1.5 %
+Sobre el exceso de ¢ 3.910.000,00 y hasta ¢ 5.880.000,00 2.0 %
+Sobre el exceso de ¢ 5.880.000,00 y hasta ¢ 7.340.000,00 2.5 %
+Sobre el exceso de ¢ 7.340.000,00 y hasta ¢8.810.000,00 3.0%
+Sobre el exceso de ¢ 8.810.000,00 3.5. %
+(Así modificadas las tarifas anteriores por el artículo 1° del decreto ejecutivo N° 36865 del 28 de octubre de 2011. De igual manera ver también los artículos 2°, 3°, 4°, y 5°, del mismo decreto)
 *El Poder Ejecutivo actualizará la lista de valores de los vehículos citados en el párrafo primero de este numeral; asimismo, los montos de la tabla anterior, con un índice de valuación determinado por el comportamiento de la tasa de inflación (índice de precios al consumidor que calcula la Dirección General de Estadística y Censos), una tasa de depreciación anual del diez por ciento (10 %) y la tasa de variación de la carga tributaria que afecta la importación de cada tipo de vehículo. Con base en el crecimiento de la tasa de inflación, la tasa mínima de seis mil colones (¢6.000.oo) se actualizará anualmento mediante decreto ejecutivo.
 (*)(Ver lista de valores de los vehículos, actualizada en el Alcance N° 51 a La Gaceta N ° 234 del 3 de diciembre de 2008).
 Las tarifas porcentuales establecidas para los fines de este impuesto no podrán ser variadas.
