@@ -1,0 +1,1 @@
+V. La Dirección de Innovación y Transferencia Tecnológica revisará los atestados y determinará si acoge o no la solicitud de registro. El resultado será notificado al interesado vía correo electrónico señalado para tales efectos en un plazo máximo de 30 días naturales.

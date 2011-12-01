@@ -1,0 +1,6 @@
+IV. DOCUMENTACIÓN ESPECÍFICA PARA GRADUADOS EN PROGRAMAS O CURSOS DE INNOVACIÓN
+4.1 Los profesionales capacitados como gestores en innovación bajo programas o cursos distintos at de los acápites dos y tres, adicionalmente deben presentar:
+4.1.1) Original y fotocopia de cursos de capacitación en la modalidad de aprovechamiento, cuya duración individual sea mayor o igual a 20 horas y en conjunto deben sumar al menos 100 horas teórico-prácticas.
+4.1.1.1 Se considerarán ÚNICAMENTE aquellos cursos de aprovechamiento, impartidos en instituciones de educación superior, nacionales o extranjeras, o bajo convenio con éstas, en cuyos contenidos programáticos se hayan incluido al menos un 50% de aspectos medulares relacionados con el temario establecido (ver anexo 2 en sitio web del MICIT www.micit.go.cr).
+4.1.2 Haber realizado al menos 25 horas de práctica profesional en los cursos de capacitación presentados, a través de la elaboración de un documento de innovación, teórico o aplicado en una empresa, pública o privada.
+4.1.3 Deben presentar al menos tres proyectos de innovación, en los que haya participado a nivel académico o profesional. La información de los proyectos se presentará en el formato correspondiente (Ver Anexo Nº 3. Portafolio de Proyectos en sitio web del MICIT www.micit.go.cr).

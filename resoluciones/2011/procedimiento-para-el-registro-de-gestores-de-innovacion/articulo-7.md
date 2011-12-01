@@ -1,0 +1,1 @@
+VII. Recibidos los timbres, el MICIT, contará con ocho días hábiles, para certificar que el solicitante ha sido registrado como Gestor de Innovación ante el Ministerio por haber cumplido con los requisitos establecidos para tales efectos.

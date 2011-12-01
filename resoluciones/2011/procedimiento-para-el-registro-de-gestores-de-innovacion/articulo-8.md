@@ -1,0 +1,1 @@
+VIII. De ser rechazada la solicitud, el MICIT contará con un plazo máximo de tres días hábiles para notificar al interesado los motivos por los cuales su solicitud no fue aprobada, contra la decisión de la Dirección de Innovación cabrá recurso de revocatoria con apelación en subsidio de conformidad con lo establecido en la Ley General de la Administración Pública.

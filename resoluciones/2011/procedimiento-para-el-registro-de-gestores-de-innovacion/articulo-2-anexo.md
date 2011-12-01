@@ -1,0 +1,47 @@
+(Nota de Sinalevi: El presente anexo se extrajo del sitio web del Ministerio de Ciencia y Tecnología, y se transcribe a continuación:)
+ANEXO No. 2
+TEMARIO DE INNOVACION
+-Funciones de planificación, gerencia y gestión de actividades de investigación, desarrollo e innovación que tienen por objetivo transformar el potencial científico e innovador en ventajas competitivas sostenibles de la base productiva nacional.
+-Dirección estratégica y tecnológica de las empresas.
+-Administración de proyectos tecnológicos.
+-Diagnóstico de innovación y capacitación sobre herramientas para la sistematización del proceso innovador.
+-Herramientas para la internacionalización de empresas basada en innovación.
+-Herramientas necesarias para innovar de acuerdo a las tendencias del mercado, diversificando su portafolio de productos.
+-Transferencia de tecnologías: propiedad intelectual, gestión de la innovación, emprendimiento, desarrollo de la creatividad, acuerdos de licenciamiento; registro de la propiedad intelectual; asesoría y guía en el proceso de transferencia de tecnología a los desarrollos con potencia innovadora; capacitación y charlas en los temas de competencia; elaboración de cuadernos de trabajo para orientar a las personas que deseen desarrollar innovaciones.
+-Planes de negocio para redes de inversionistas.
+-Ciencia, tecnología, innovación y desarrollo.
+-Economía de la innovación.
+-Aplicaciones estadísticas para la innovación tecnológica.
+-Sistemas nacionales de ciencia, tecnología e innovación, y políticas públicas.
+-Formulación, gestión y evaluación de proyectos de I+D+I.
+-Financiamiento de la innovación.
+-Propiedad intelectual y contratos.
+-Gestión de la cooperación entre empresas y unidades de I+D.
+-Indicadores de productividad científica, tecnológica y de innovación.
+-Uso estratégico de las tecnologías de información y comunicación para la gestión de la innovación.
+-Emprendedurismo y creación de empresas de base tecnológica.
+-Gestión estratégica de innovación en la empresa.
+-Desafíos en la gestión de la innovación.
+-El proceso de innovación.
+-Integración del cliente en el proceso de innovación.
+- Análisis de oportunidades en el mercado.
+- Análisis de exigencias de la empresa.
+- Análisis de desarrollo tecnológico.
+-Generación y evaluación de ideas
+-Desarrollo de concepto del nuevo producto/servicio.
+-Prototipaje.
+- Service engineering
+-Proyectos de I+D.
+-Inicio de proyectos
+-Planificación de proyectos.
+-Gestión de riesgo, de comunicación y de competencias.
+-El Gerente de Innovación.
+-Gestión de equipos multidisciplinarios.
+-Modelos de financiamiento.
+-Innovation controlling.
+-Desarrollo de una cultura de innovación.
+-Dirección estratégica y tecnológica de las empresas.
+-Gestión de la innovación tecnológica.
+-Gestión de la tecnología y competitividad empresarial.
+-Administración de proyectos tecnológicos.
+-Transferencia y adquisición de tecnologías.

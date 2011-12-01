@@ -1,0 +1,1 @@
+VI. Una vez que el interesado recibe la notificación de que su solicitud fue aprobada, debe aportar los timbres de ley requeridos para la certificación a la Dirección de Innovación y Transferencia Tecnológica.
