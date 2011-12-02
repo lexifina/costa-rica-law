@@ -1,0 +1,2 @@
+Artículo 3º—Modifíquese el artículo 15 del Decreto Ejecutivo Nº 33872-S del 17 de julio del 2007, “Reglamento para el funcionamiento sanitario de templos o locales de culto”, para que se lea de la siguiente manera:
+“Artículo 15.—Obligatoriedad: Los requisitos de infraestructura y las condiciones físico-sanitarias contenidas en el presente cuerpo normativo, serán obligatorias para todos aquellos templos o locales de culto, en los términos y condiciones que señala este Reglamento.”
