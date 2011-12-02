@@ -1,0 +1,5 @@
+Artículo 32 – Secretaría de la Conferencia de las Partes
+1.- El Director General de la UNESCO facilitará la secretaría de la Conferencia de las Partes.
+2.- A petición de la Conferencia de las Partes, el Director General de la UNESCO recurrirá en la mayor medida posible a los servicios de la Agencia Mundial Antidopaje, en condiciones convenidas por la Conferencia de las Partes.
+3.- Los gastos de funcionamiento derivados de la aplicación de la Convención se financiarán con cargo al Presupuesto Ordinario de la UNESCO en la cuantía apropiada, dentro de los límites de los recursos existentes, al Fondo de contribuciones voluntarias establecido en el Artículo 17, o a una combinación de ambos recursos determinada cada dos años. La financiación de la secretaría con cargo al Presupuesto Ordinario se reducirá al mínimo indispensable, en el entendimiento de que la financiación de apoyo a la Convención también correrá a cargo del Fondo de contribuciones voluntarias.
+4. La secretaría establecerá la documentación de la Conferencia de las Partes, así como el proyecto de orden del día de sus reuniones, y velará por el cumplimiento de sus decisiones.

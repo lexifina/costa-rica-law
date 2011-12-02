@@ -1,0 +1,5 @@
+Artículo 8 – Restringir la disponibilidad y la utilización en
+el deporte de sustancias y métodos prohibidos
+1. Los Estados Parte deberán adoptar, cuando proceda, medidas encaminadas a restringir la disponibilidad de sustancias y métodos prohibidos, a fin de limitar su utilización en el deporte por los deportistas, a menos que su utilización se base en una exención para uso con fines terapéuticos. Lo anterior comprende medidas para luchar contra el tráfico destinado a los deportistas y, con tal fin, medidas para controlar la producción, el transporte, la importación, la distribución y la venta.
+2. Los Estados Parte deberán adoptar, o instar a adoptar, si procede, a las entidades competentes de su jurisdicción, medidas encaminadas a impedir o limitar el uso y posesión por los deportistas de sustancias y métodos prohibidos, a menos que su utilización se base en una exención para uso con fines terapéuticos.
+3. Ninguna medida adoptada en cumplimiento de la presente Convención impedirá que se disponga, para usos legítimos, de sustancias y métodos que de otra forma están prohibidos o sometidos a control en el deporte.

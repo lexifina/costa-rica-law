@@ -1,0 +1,5 @@
+Artículo 11 – Medidas financieras
+Los Estados Parte deberán, cuando proceda:
+a) proporcionar financiación con cargo a sus respectivos presupuestos para apoyar un programa nacional de pruebas clínicas en todos los deportes, o ayudar a sus organizaciones deportivas y organizaciones antidopaje a financiar controles antidopaje, ya sea mediante subvenciones o ayudas directas, o bien teniendo en cuenta los costos de dichos controles al establecer los subsidios o ayudas globales que se concedan a dichas organizaciones;
+b) tomar medidas apropiadas para suspender el apoyo financiero relacionado con el deporte a los deportistas o a su personal de apoyo que hayan sido suspendidos por haber cometido una infracción de las normas antidopaje, y ello durante el periodo de suspensión de dicho deportista o dicho personal;
+c) retirar todo o parte del apoyo financiero o de otra índole relacionado con actividades deportivas a toda organización deportiva u organización antidopaje que no aplique el Código o las correspondientes normas antidopaje adoptadas de conformidad con el Código.

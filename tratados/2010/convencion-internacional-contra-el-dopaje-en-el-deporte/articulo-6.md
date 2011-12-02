@@ -1,0 +1,2 @@
+Artículo 6 – Relaciones con otros instrumentos internacionales
+La presente Convención no modificará los derechos ni las obligaciones de los Estados Parte que dimanen de otros acuerdos concertados previamente y sean compatibles con el objeto y propósito de esta Convención. Esto no compromete el goce por otros Estados Parte de los derechos que esta Convención les concede, ni el cumplimiento de las obligaciones que ésta les impone.

@@ -1,0 +1,2 @@
+Artículo 39 – Denuncia
+Todos los Estados Parte tendrán la facultad de denunciar la presente Convención. La denuncia se notificará por medio de un instrumento escrito que obrará en poder del Director General de la UNESCO. La denuncia surtirá efecto el primer día del mes siguiente a la expiración de un plazo de seis meses después de la recepción del instrumento de denuncia. No modificará en absoluto las obligaciones financieras que haya de asumir el Estado Parte denunciante hasta la fecha en que la retirada sea efectiva.

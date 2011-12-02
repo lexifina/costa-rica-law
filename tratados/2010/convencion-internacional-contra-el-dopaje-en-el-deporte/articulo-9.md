@@ -1,0 +1,2 @@
+Artículo 9 – Medidas contra el personal de apoyo a los deportistas
+Los Estados Parte adoptarán medidas ellos mismos o instarán a las organizaciones deportivas y las organizaciones antidopaje a que adopten medidas, comprendidas sanciones o multas, dirigidas al personal de apoyo a los deportistas que cometa una infracción de las normas antidopaje u otra infracción relacionada con el dopaje en el deporte.

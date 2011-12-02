@@ -1,0 +1,8 @@
+Artículo 33 – Enmiendas
+1.- Cada Estado Parte podrá proponer enmiendas a la presente Convención mediante notificación dirigida por escrito al Director General de la UNESCO. El Director General transmitirá esta notificación a todos los Estados Parte. Si en los seis meses siguientes a la fecha de envío de la notificación la mitad por lo menos de los Estados Parte da su consentimiento, el Director General someterá dicha propuesta a la Conferencia de las Partes en su siguiente reunión.
+2. Las enmiendas serán aprobadas en la Conferencia de las Partes por una mayoría de dos tercios de los Estados Parte presentes y votantes.
+3. Una vez aprobadas, las enmiendas a esta Convención deberán ser objeto de ratificación, aceptación, aprobación o adhesión por los Estados Parte.
+4. Para los Estados Parte que las hayan ratificado, aceptado, aprobado o se hayan adherido a ellas, las enmiendas a la presente Convención entrarán en vigor tres meses después de que dos tercios de dichos Estados Parte hayan depositado los instrumentos mencionados en el párrafo 3 del presente Artículo. A partir de ese momento la correspondiente enmienda entrará en vigor para cada Estado Parte que la ratifique, acepte, apruebe o se adhiera a ella tres meses después de la fecha en que el Estado Parte haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión.
+5. Un Estado que pase a ser Parte en esta Convención después de la entrada en vigor de enmiendas con arreglo al párrafo 4 del presente Artículo y que no manifieste una intención en contrario se considerará:
+a) parte en la presente Convención así enmendada;
+b) parte en la presente Convención no enmendada con respecto a todo Estado Parte que no esté obligado por las enmiendas en cuestión.
