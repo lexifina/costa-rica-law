@@ -14,3 +14,4 @@ Formulario de Trámite Único que será utilizado por la Municipalidad de Goicoe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-08-08 | la propia norma |
+| 2 | 2011-12-02 | Acuerdo municipal 0 (2011-12-02) |
