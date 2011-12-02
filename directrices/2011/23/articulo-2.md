@@ -1,0 +1,1 @@
+2º—Para que los conductores de equipo móvil respeten los límites de velocidad para la circulación de los vehículos, en la conducción de vehículos de uso administrativo o discrecional, conforme lo establece la Ley de Tránsito por: Vías Públicas Terrestres y con fundamento en los rótulos o las demarcaciones que indiquen esas velocidades.
