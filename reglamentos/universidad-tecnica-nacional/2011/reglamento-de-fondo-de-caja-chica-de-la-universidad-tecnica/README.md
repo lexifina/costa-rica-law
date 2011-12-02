@@ -14,3 +14,4 @@ Reglamento de Fondo de Caja Chica de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-26 | la propia norma |
+| 2 | 2011-12-02 | Reglamento 4 (2011-12-02) |
