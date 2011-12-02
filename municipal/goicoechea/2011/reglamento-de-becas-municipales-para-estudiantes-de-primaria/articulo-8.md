@@ -1,0 +1,1 @@
+Artículo 8º—Becas de secundaria y primaria. Serán los Concejos Distrito los responsables de recomendar a la Dirección de Desarrollo Humano la asignación de becas correspondientes a primaria y secundaria, según la necesidad de cada distrito de acuerdo al artículo 7º
