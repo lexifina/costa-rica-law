@@ -1,0 +1,1 @@
+Artículo 2º-Las solicitudes se atenderán siguiendo el principio de 'Primero en tiempo, primero en derecho' de conformidad con lo establecido en el artículo 44 de la Ley 6043 y el artículo 57 del Reglamento a la Ley Sobre la Zona Marítimo Terrestre.

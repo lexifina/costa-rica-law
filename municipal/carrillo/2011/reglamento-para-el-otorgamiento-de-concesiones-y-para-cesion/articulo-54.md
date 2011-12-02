@@ -1,0 +1,2 @@
+Artículo 54.-Mediante resolución de la Alcaldía, fundamentada en la información generada por el Departamento de Zona Marítimo Terrestre, se procede con la notificación al infractor, dándole un tiempo prudencial, en el cual podrá solventar la infracción de manera voluntaria. Transcurrido este plazo otorgado, se le indica que la Municipalidad procederá conforme en derecho corresponda.
+Filadelfia, 8 de noviembre de 2011.

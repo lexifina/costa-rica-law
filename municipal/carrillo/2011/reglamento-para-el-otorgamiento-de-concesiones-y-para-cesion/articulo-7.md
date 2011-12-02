@@ -1,0 +1,1 @@
+Artículo 7º-Luego de recibida la solicitud de concesión, el funcionario del Departamento de Zona Marítimo-Terrestre le abrirá un expediente y procederá con la asignación de un número para el expediente siguiendo la codificación establecida en el Departamento de Zona Marítimo Terrestre que consiste en una numeración consecutiva y dos dígitos más para indicar el año.

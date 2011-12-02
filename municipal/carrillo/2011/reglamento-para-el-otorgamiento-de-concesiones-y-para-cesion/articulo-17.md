@@ -1,0 +1,1 @@
+Artículo 17.-Una vez que se recibe el avalúo de Tributación Directa, el Departamento de Zona Marítimo-Terrestre debe revisarlo y calcular el canon provisional según el uso indicado en la solicitud inicial y el artículo 49 del reglamento de la Ley Nº 6043.

@@ -1,0 +1,2 @@
+III. Avalúo
+Artículo 16.-Paralelamente, una vez teniendo por completa la solicitud, el Departamento de Zona Marítimo-Terrestre podrá comenzar a gestionar el avalúo del terreno. Para esto, el Departamento de Zona Marítimo-Terrestre debe solicitar a la sede correspondiente del Ministerio de Hacienda la realización del avalúo respectivo del terreno cumpliendo con los requisitos establecidos para realizar tal solicitud.

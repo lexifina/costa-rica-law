@@ -1,0 +1,1 @@
+Artículo 6º-El funcionario del Departamento de Zona Marítimo-Terrestre que recibe el formulario con los documentos antes mencionados -en el acto- debe revisar que el formulario y la documentación estén completos, que la firma en el formulario esté autenticada y que se indique sitio y/o fax para notificaciones. Finalmente, deberá sellar el recibido con fecha, hora y su firma.

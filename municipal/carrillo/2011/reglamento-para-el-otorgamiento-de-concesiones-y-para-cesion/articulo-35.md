@@ -1,0 +1,1 @@
+Artículo 35.-Si el Proyecto de Resolución fuese enviado a la Comisión de Zona Marítimo-Terrestre, esta deberá emitir un dictamen en el cual recomendará de manera fundamentada al Concejo aprobar o improbar la solicitud de concesión. La Comisión, cuando lo estime necesario podrá realizar una inspección sobre el terreno solicitado en concesión.

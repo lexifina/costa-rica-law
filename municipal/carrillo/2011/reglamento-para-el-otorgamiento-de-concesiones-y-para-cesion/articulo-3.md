@@ -1,0 +1,1 @@
+Artículo 3º-La solicitud deberá describir la naturaleza, linderos y ubicación del terreno con un croquis o plano catastrado de la parcela solicitada, con referencia a mojones y su respectivo derrotero adjunto y la indicación del uso que se le daría al terreno según el plan regulador vigente.

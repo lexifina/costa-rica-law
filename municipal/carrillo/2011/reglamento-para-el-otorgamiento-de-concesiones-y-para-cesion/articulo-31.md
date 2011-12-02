@@ -1,0 +1,1 @@
+Artículo 31.-El concesionario podrá solicitar ampliar el plazo establecido para iniciar la construcción. Para este fin, deberá cumplir con lo establecido en el acuerdo Nº 1 aprobado por el Concejo Municipal de Carrillo en la sesión ordinaria Nº 03-09, celebrada el día 20 de enero de 2009.

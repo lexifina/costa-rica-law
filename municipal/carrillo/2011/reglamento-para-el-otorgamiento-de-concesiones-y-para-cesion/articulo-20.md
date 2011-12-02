@@ -1,0 +1,1 @@
+Artículo 20.-El solicitante deberá recibir de parte del Departamento de Zona Marítimo Terrestre, con sello y firma del funcionario responsable, el texto que deberá publicarse en el Diario Oficial La Gaceta. El costo de dicha publicación correrá por cuenta del interesado.

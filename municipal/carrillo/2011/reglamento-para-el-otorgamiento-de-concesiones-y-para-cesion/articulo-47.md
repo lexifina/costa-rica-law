@@ -1,0 +1,1 @@
+Artículo 47.-Si la solicitud fuese enviada a la Comisión de Zona Marítimo-Terrestre, esta deberá emitir un dictamen en el cual recomendará de manera fundamentada al Concejo aprobar o improbar la cesión del derecho de concesión.

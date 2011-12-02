@@ -1,0 +1,1 @@
+Artículo 53.-El Departamento de Zona Marítimo Terrestre, con el apoyo que estime necesario, levantará información de campo debidamente referida a los mojones colocados por el Instituto Geográfico Nacional, para tener certeza jurídica que la infracción se está realizando en la zona pública de la zona marítimo terrestre.

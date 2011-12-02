@@ -1,0 +1,1 @@
+Artículo 12.-Establecida la fecha, deberá comunicarla al solicitante para que este proceda con el pago de los derechos de inspección a la Municipalidad. El solicitante deberá enviar al Departamento de Zona Marítimo-Terrestre copia del recibo de pago, el cual será archivado en el expediente municipal.

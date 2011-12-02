@@ -1,0 +1,1 @@
+Artículo 24.-La fecha y hora debe ser notificada con al menos 10 días hábiles de anticipación a las partes interesadas. A la vez se les indica que podrán hacerse acompañar de un asesor legal y presentar las pruebas documentales y testimoniales que estimen necesarias.
