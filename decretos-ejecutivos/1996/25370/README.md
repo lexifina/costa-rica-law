@@ -14,3 +14,4 @@ Reglamento sobre el Seguro Obligatorio para Vehículos Automotores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-08-14 | la propia norma |
+| 2 | 2011-12-02 | Decreto Ejecutivo 36878 (2011-12-02) |
