@@ -1,0 +1,1 @@
+Artículo 6º—Estructura salarial. La estructura salarial de los puestos de confianza será determinada por el Departamento de Recursos Humanos de la Municipalidad, tomando como parámetro la escala de puestos vigentes.

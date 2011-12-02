@@ -1,0 +1,1 @@
+Artículo 12.—Nueva contratación. El funcionario o funcionaria que laboró en un puesto de confianza y es contratado o contratada de nuevo para la Municipalidad de Goicoechea, en un puesto propio de la relación de empleo público, deberá cumplir con todas las disposiciones legales para el reclutamiento y la selección de persona, según la naturaleza de la plaza de que se trate.

@@ -1,0 +1,1 @@
+Artículo 9º—Requisitos académicos y de experiencia. Los requisitos académicos y de experiencia, serán establecidos de acuerdo con las razones objetivas de necesidad de la instancia que proponga el nombramiento, y en relación con las funciones que se definieren.

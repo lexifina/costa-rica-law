@@ -1,0 +1,1 @@
+Artículo 13.—Restricción participativa. Los contratos bajo el régimen de confianza no podrán acogerse a los beneficios de un programa de movilidad laboral, ni participación en procesos de transformación organizacional.
