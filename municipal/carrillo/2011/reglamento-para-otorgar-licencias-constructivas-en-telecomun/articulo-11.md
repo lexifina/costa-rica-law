@@ -1,0 +1,1 @@
+Artículo 11.—Los predios donde se pretendan ubicar e instalar las Obras Constructivas tendrán unas dimensiones mínimas de 20 metros de frente por 20 metros de fondo, ubicando en el centro la base de la torre. Los accesos se regularán conforme a las disposiciones que establecerá la Municipalidad de Carrillo.

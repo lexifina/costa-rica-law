@@ -1,0 +1,10 @@
+Artículo 4º—Para los efectos de la presente normativa se adoptan las siguientes definiciones:
+Ampliación y Modificación de la Obra Constructiva: Cualquier cambio a la Obra Constructiva autorizada por la Municipalidad de Carrillo en la Licencia de Construcción.
+Arrendatario: persona física o jurídica que alquila o cede parte o la totalidad de su terreno para la construcción de la torre y sus obras civiles.
+Licencia de Construcción: la autorización expedida por el Departamento de Desarrollo Territorial Sección Construcciones de la Municipalidad de Carrillo para la construcción instalación, ampliación o modificación de la Obra Constructiva.
+Licencia Comercial: la autorización expedida por la Municipalidad de Carrillo para la explotación comercial de las Obras Constructivas y los servicios prestados por las mismas.
+Obra Constructiva: torre y su obra civil relacionada, que sirven para satisfacer los requerimientos de instalación de antenas y equipos utilizados para la transmisión inalámbrica en los servicios de telecomunicaciones, ubicados dentro de un predio.
+Operador: Persona física o jurídica de toda índole legal que explota redes de telecomunicaciones con la debida concesión o autorización, las cuales podrán prestar servicios de telecomunicaciones disponibles al público en general.
+Patente: Impuesto a pagar por la realización y explotación de una actividad comercial, industrial o de servicios dentro de la jurisdicción territorial del Cantón de Carrillo, de conformidad con la ley de patentes vigente y su reglamento.
+Proveedor: Persona física o jurídica de toda índole legal que proporciona servicios de telecomunicaciones disponibles al público sobre una red de telecomunicaciones con la debida concesión o autorización, según corresponda.
+Proveedor de Infraestructura: Es aquel intermediario, persona física o jurídica ajeno a la figura del Proveedor u Operador que regula la ley, que provee Obras Constructivas a terceros, en armonía con los planes de cobertura y calidad del servicio que exige la Superintendencia de Telecomunicaciones en adelante para este Reglamento en las siglas SUTEL.
