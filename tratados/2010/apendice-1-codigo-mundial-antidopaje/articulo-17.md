@@ -1,0 +1,3 @@
+ARTÍCULO 17 PLAZO DE PRESCRIPCIÓN
+No se podrá tomar ninguna medida contra un deportista o contra otra persona por una infracción de una norma antidopaje descrita en el Código, a menos que esa medida se tome dentro de un plazo de ocho años desde la fecha de la infracción.
+[Comentario: este artículo no impide que la organización antidopaje estudie una infracción de normas antidopaje cometida con anterioridad para determinar la sanción aplicable a una infracción posterior que sobrevenga tras el plazo de ochos años. En otras palabras, una segunda infracción que sobrevenga diez años después de una primera infracción se considera una segunda infracción a efectos de sanción.]

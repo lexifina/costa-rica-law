@@ -1,0 +1,11 @@
+ARTÍCULO 22 PARTICIPACIÓN DE LOS GOBIERNOS
+El compromiso de cada gobierno con respecto al Código se reflejará mediante la firma de una Declaración a más tardar el primer día de los Juegos Olímpicos de Atenas. A esta firma seguirá un proceso que llevará a un convenio o a otro instrumento que se aplicará en función del contexto constitucional y administrativo de cada gobierno, a más tardar el primer día de los Juegos Olímpicos de Invierno de Turín.
+[Comentario: la mayor parte de los gobiernos no pueden ser partes de, ni quedar vinculados por, instrumentos privados no gubernamentales como el Código. Es por ello por lo que no se pide a los gobiernos que sean signatarios del Código. Sin embargo, todas las medidas que tengan como objetivo la lucha contra el dopaje a través de un programa coordinado y armonizado según lo reflejado en el Código, siguen constituyendo un esfuerzo común del movimiento deportivo y de los gobiernos. Un ejemplo de un tipo de obligación como la aquí mencionada es el convenio debatido en el comunicado final de la mesa redonda de ministros y de funcionarios responsables de educación física y de deportes de la UNESCO, celebrada en París del 9 al 10 de enero de 2003.]
+Los signatarios del Código, esperan que la Declaración o el convenio u otro instrumento, tenga en cuenta los siguientes puntos principales:
+22.1 Cada gobierno aplicará medidas positivas para apoyar la lucha contra el dopaje en, al menos, los ámbitos siguientes:
+apoyo a los programas nacionales antidopaje;
+disponibilidad de las sustancias y métodos prohibidos;
+facilitar el acceso a la AMA para que realice sus controles fuera de la competición;
+problema de los suplementos nutricionales que contienen sustancias prohibidas no reveladas; e interrupción de la totalidad o parte del apoyo financiero a las organizaciones deportivas o a los participantes que no respeten el Código o las normas antidopaje adoptadas de conformidad con el Código.
+22.2 Cualquier otra implicación de los gobiernos en la lucha contra el dopaje deberá armonizarse con lo dispuesto en el Código.
+22.3 El continuo respeto de los compromisos contraídos en el convenio o en cualquier otro instrumento, se supervisará conforme a lo debatido, tras las consultas entre la AMA y los gobiernos en cuestión.
