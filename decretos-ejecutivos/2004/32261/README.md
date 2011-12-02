@@ -18,3 +18,4 @@ Reglamentación de Características y Condiciones Generales de los vehículos ta
 | 3 | 2007-11-08 | Decreto Ejecutivo 34103 (2007-11-08) |
 | 4 | 2010-03-04 | Decreto Ejecutivo 35824 (2010-03-04) |
 | 5 | 2011-07-29 | Decreto Ejecutivo 36737 (2011-07-29) |
+| 6 | 2011-12-02 | Decreto Ejecutivo 36929 (2011-12-02) |
