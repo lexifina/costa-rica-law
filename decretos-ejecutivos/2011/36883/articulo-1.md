@@ -1,0 +1,8 @@
+Nº 36883-MP
+EL SEGUNDO VICEPRESIDENTE
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+Con fundamento en lo dispuesto en los artículos 118 y 140 inciso 5) y 14), de la Constitución Política.
+Decretan:
+Artículo 1º—Amplíase la convocatoria a sesiones extraordinarias a la Asamblea Legislativa, hecha por el Decreto Ejecutivo 36873-MP, a fin de que se conozca el siguiente proyecto de ley:
+Expediente Nº 16.306: Impuesto a las personas jurídicas.
