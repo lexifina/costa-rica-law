@@ -1,0 +1,1 @@
+Artículo 26.—El impuesto de patente, tanto para los dotadores de infraestructura como para los operadores y proveedores, se fijará de acuerdo al procedimiento establecido en la Ley Nº 8988 denominada Licencias para actividades lucrativas y no lucrativas del cantón de Escazú y el Reglamento para licencias municipales de la Municipalidad de Escazú.

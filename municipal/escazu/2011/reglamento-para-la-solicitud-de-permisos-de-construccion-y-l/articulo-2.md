@@ -1,0 +1,4 @@
+Artículo 2º—Se establecen como objetivos específicos:
+a. Asegurarse que las obras, estructuras e instalaciones para redes y sistemas de telecomunicaciones, sean realizadas de conformidad con las especificaciones técnicas bajo las cuales fueron autorizadas.
+b. Propiciar razonablemente la minimización del impacto visual y ambiental sin perjuicio de la legislación nacional vigente, para lo cual se podrán utilizar técnicas de mimetización, siempre y cuando se respeten las regulaciones establecidas por la Dirección General de Aviación Civil.
+c. Asegurarse que las actividades comerciales desplegadas se enmarquen dentro de las regulaciones existentes en materia de patentes comerciales, de acuerdo al artículo 79 del Código Municipal Nº 7794 y la Ley Nº 8988 denominada Licencias para actividades lucrativas y no lucrativas del cantón de Escazú.
