@@ -30,9 +30,9 @@ f) Adjuntar la justificación de las partidas a rebajar y aumentar.
 15) Una vez aprobada la modificación el Tesorero verifica que lo aprobado concuerde con lo establecido en el Sistema de Control Presupuestario y lo aplica.
 16) El Contador (**) procede a realizar las anotaciones correspondientes.
 (**)(Nota de Sinalevi: Mediante sesión ordinaria N° 071 del 29 de agosto del 2011 se incluye en este reglamento un lenguaje inclusivo de género, de acuerdo a la Guía de Términos Inclusivos de enero del 2010 y a la Política Nacional de Igualdad y equidad de Género (PIEG))
-17) La Analista (**) financiera procede a la digitación de los datos en el SIPP durante los siguientes 5 días después de aprobado, para posterior validación por parte del Director (**) Financiero, con un plazo de 3 días después de digitada.
+17) El digitador (a) una vez recibido el acuerdo de aprobación por parte de la secretaria(o) procede a la inclusión de los datos en el SIPP el documento presupuestario al verificador(a).
+(Así reformado el punto anterior mediante sesión N° 083 y publicado en La Gaceta N° 3 del 4 de enero del 2012)
 (**)(Nota de Sinalevi: Mediante sesión ordinaria N° 071 del 29 de agosto del 2011 se incluye en este reglamento un lenguaje inclusivo de género, de acuerdo a la Guía de Términos Inclusivos de enero del 2010 y a la Política Nacional de Igualdad y equidad de Género (PIEG))
-(Nota de Sinalevi: Mediante sesión N° 071 del 29 de agosto drl 2011, se establece modificar el punto anteior. No obstante; las modificaciones no se hicieron toda vez que no se publicó el contenido de las mismas)
 18) El verificador (a)(**), procederá a validar la información en un plazo de 3 días después de digitada, posteriormente deberá remitir el documento presupuestario vía SIPP a la Contraloría, como respaldo debe imprimir la pantalla que indica que ha remitido la información, y por último deberá archivar el comprobante de envío
 (**)(Nota de Sinalevi: Mediante sesión ordinaria N° 071 del 29 de agosto del 2011 se incluye en este reglamento un lenguaje inclusivo de género, de acuerdo a la Guía de Términos Inclusivos de enero del 2010 y a la Política Nacional de Igualdad y equidad de Género (PIEG))
 (Así adicionado el punto anterior mediante sesión ordinaria N° 071 del 29 de agosto del 2011)
