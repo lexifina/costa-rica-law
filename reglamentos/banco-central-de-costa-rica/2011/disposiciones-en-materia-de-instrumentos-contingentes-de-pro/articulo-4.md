@@ -1,0 +1,1 @@
+4. La Administración del Banco Central de Costa Rica presentará a la Junta Directiva, al menos una vez al año, un informe sobre las operaciones contingentes de provisión de liquidez, con base en el cual, el Directorio decidirá la conveniencia de mantener vigentes dichos mecanismos, así como la continuidad de la Comisión para Operaciones Contingentes de Liquidez.
