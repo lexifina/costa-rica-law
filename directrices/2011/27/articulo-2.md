@@ -1,0 +1,1 @@
+Artículo 2º—Conceder a título de vacaciones a los servidores públicos del resto del país, los días 21, 22, 23, 26, 27, 28, 29 y 30 de diciembre de 2011. En el caso del día 21 de diciembre del 2011, las vacaciones serán a partir de las 12:00 horas.
