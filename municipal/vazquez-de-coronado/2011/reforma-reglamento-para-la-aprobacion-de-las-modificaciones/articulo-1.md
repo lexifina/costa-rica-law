@@ -8,7 +8,8 @@ Digitador (a): Es el funcionario (a) encargado (a) de incluir los datos presupue
 Verificador (a): Es el funcionario (a) encargado (a) de validar la información que el digitador (a) ha incluido en el SIPP.
 • Se modificó el punto “j” del Capítulo I, ya que el nombre de Sistema Integrado de Presupuestos Públicos fue cambiado por la Contraloría a Sistema de Información sobre Planes y Presupuestos.
 • Se modificó el punto 14 del Capítulo II, que diga: “La Secretaria (o) remitirá a más tardar 3 días después de tomado el acuerdo, copia del documento a la Auditoría Interna, Tesorería, Contabilidad, Análisis Financiero y la Dirección Financiera; para lo que corresponda”.
-• En el punto 17 del Capítulo II se cambiaron ciertos aspectos de redacción, léase correctamente: “
+• En el punto 17 del capítulo II se cambiaron ciertos aspectos de redacción, léase correctamente: “el digitador (a) una vez recibido el acuerdo de aprobación por parte de la secretaria(o) procede a la inclusión de los datos en el SIPP el documento presupuestario al verificador(a).
+(Así reformado el punto anterior mediante sesión N° 083 y publicado en La Gaceta N° 3 del 4 de enero del 2012)
 • Se agregó un punto más en el Capítulo II, el cual es el número 18 y dice que: “El verificador (a), procederá a validar la información en un plazo de 3 días después de digitada, posteriormente deberá remitir el documento presupuestario vía SIPP a la Contraloría, como respaldo debe imprimir la pantalla que indica que ha remitido la información, y por último deberá archivar el comprobante de envío”.
 Publíquese en el Diario Oficial La Gaceta. Acuerdo, cuenta con siete votos afirmativos.
 Vázquez de Coronado, 25 de octubre del 2011.—
