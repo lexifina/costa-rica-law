@@ -14,3 +14,4 @@ Reglamento para la Operación del Comité de Licitaciones de BN Sociedad Corredo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-22 | la propia norma |
+| 2 | 2011-12-05 | Reglamento 33 (2011-12-05) |
