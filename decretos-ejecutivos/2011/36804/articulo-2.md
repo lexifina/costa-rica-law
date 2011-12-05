@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo Nº 36648-H de fecha 3 de junio del 2011, publicado en el Alcance Nº 42 del Diario Oficial La Gaceta Nº 134 de fecha 12 de julio del 2011, a partir de la vigencia del presente decreto.
