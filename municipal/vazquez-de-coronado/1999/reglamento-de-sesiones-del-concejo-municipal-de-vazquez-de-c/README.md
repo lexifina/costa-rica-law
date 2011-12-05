@@ -17,3 +17,4 @@ Reglamento de Sesiones del Concejo Municipal de Vázquez de Coronado
 | 2 | 2001-05-17 | Reglamento municipal 171 (2001-05-17) |
 | 3 | 2006-08-28 | Reglamento municipal 18 (2006-08-28) |
 | 4 | 2007-11-12 | Reglamento municipal 81 (2007-11-12) |
+| 5 | 2011-12-05 | Reglamento municipal 84 (2011-12-05) |
