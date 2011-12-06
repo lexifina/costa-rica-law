@@ -14,3 +14,4 @@ Procedimiento para verificar el cumplimiento de los artículos 19 (b) y 21 de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-11 | la propia norma |
+| 2 | 2011-12-06 | Reglamento 951 (2011-12-06) |
