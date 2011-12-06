@@ -16,3 +16,5 @@ Y TELECOMUNICACIONES
 CAPÍTULO I
 Disposiciones generales
 Artículo 1º—El presente Reglamento establece disposiciones de acatamiento obligatorio para la asignación, uso, custodia y conservación de los teléfonos celulares adquiridos por el Ministerio de Ambiente, Energía y Telecomunicaciones, en adelante MINAET. El uso de este sistema de comunicación en la forma en que se regula en este Reglamento, será exclusivo para el funcionario al que se le asigne un teléfono celular adquirido por el MINAET, de manera que le permita atender y realizar llamadas relativas al cumplimiento de las funciones, tareas y actividades propias de su cargo.
+El Sistema Nacional de Áreas de Conservación regulará la materia de asignación, uso y custodia de celulares y sus tarifas de forma independiente por contar con personería jurídica instrumental y tener un presupuesto ordinario asignado para atender esta gestión administrativa.
+(Así adicionado el párrafo anterior por el artículo 1° de la resolución R-670-2011 del 6 de diciembre del 2011)

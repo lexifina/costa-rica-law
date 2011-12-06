@@ -14,3 +14,4 @@ Reglamento para la asignación, uso, custodia, y conservación de los teléfonos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-27 | la propia norma |
+| 2 | 2011-12-06 | Resolución 670 (2011-12-06) |
