@@ -1,1 +1,0 @@
-Artículo 24.—Requerimientos mínimos de ingreso: Cualquier persona al ingresar al frigorífico deberá guardar las medidas de seguridad ocupacional establecidas para el ingreso y permanencia dentro del frigorífico.

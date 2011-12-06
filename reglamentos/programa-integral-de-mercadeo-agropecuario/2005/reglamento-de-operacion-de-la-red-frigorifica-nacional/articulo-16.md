@@ -1,1 +1,0 @@
-Artículo 16.—Aprobación y firma del contrato: En caso de conformidad de la solicitud de concesión, la administración asignará unilateralmente el espacio de conformidad con las reglas de lógica y conveniencia, así como las disposiciones de salud existentes.

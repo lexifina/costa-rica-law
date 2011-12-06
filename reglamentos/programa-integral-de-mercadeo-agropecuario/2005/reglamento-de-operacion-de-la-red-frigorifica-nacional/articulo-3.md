@@ -1,1 +1,0 @@
-Artículo 3°—Definición del REFRINA: REFRINA es un programa, desarrollado y administrado por el PIMA dedicado al almacenamiento a bajas temperaturas de productos perecederos (en congelación y refrigeración), bajo los controles más estrictos de temperatura para lo cual se sirve de los frigoríficos nacionales ubicados en terrenos y concesiones del PIMA.

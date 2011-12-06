@@ -1,1 +1,0 @@
-Artículo 4°.—Objetivos de REFRINA: El objetivo principal de REFRINA es brindar servicios eficientes de almacenamiento a bajas temperaturas para satisfacer las necesidades y expectativas de los usuarios, los requisitos legales y fomentar la cultura del frío.
