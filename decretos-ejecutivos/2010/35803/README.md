@@ -14,3 +14,4 @@ Criterios Técnicos para la Identificación, Clasificación y Conservación de H
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-16 | la propia norma |
+| 2 | 2011-12-07 | SINALEVI (sin norma nombrada) |
