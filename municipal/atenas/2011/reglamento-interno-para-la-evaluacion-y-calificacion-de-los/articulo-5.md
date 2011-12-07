@@ -1,0 +1,1 @@
+Artículo 5º—La resolución del Alcalde Municipal sobre el desacuerdo entre el jefe inmediato y el subalterno respecto al resultado de la evaluación y calificación de servicios, agotará la vía administrativa.
