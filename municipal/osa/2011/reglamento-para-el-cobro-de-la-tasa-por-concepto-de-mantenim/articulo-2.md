@@ -1,0 +1,1 @@
+Artículo 2º—El servicio de mantenimiento de parques considera el costo efectivo de lo invertido por la Municipalidad, el cuál se distribuye de acuerdo al número de contribuyentes de los distritos del cantón de Osa. Su cálculo se rige de conformidad con el modelo establecido en el artículo 74 del Código Municipal.
