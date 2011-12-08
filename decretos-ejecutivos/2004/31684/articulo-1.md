@@ -1,4 +1,6 @@
+(Derogado)
 Nº 31684-MP-MSP-H-COMEX-S
+(Este decreto fue derogado por el artículo 159 del Reglamento general sobre legislación contra el narcotráfico, actividades conexas, legitimación de capitales,financiamiento al terrorismo y delincuencia organizada, aprobado mediante decreto ejecutivo N° 36948 del 8 de diciembre del 2011)
 EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE LA PRESIDENCIA,EL MINISTRO DE SEGURIDAD PÚBLICA, EL MINISTRO DE HACIENDA, EL MINISTRO DE COMERCIO EXTERIOR Y EL MINISTRO DE SALUD
 En uso de las facultades conferidas por el artículo 140, inciso 3) y 18) y 146 de la Constitución Política; Artículo 28 párrafo segundo, inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; y el artículo 165 de la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, Ley Nº 8204 del 11 de enero del 2002.
 Considerando:
