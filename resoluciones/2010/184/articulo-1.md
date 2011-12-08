@@ -328,150 +328,130 @@ Con fundamento en las facultades conferidas en la Ley Nº 7593, los artículos 3
 EL COMITÉ DE REGULACIÓN,
 RESUELVE:
 I.—Fijar las tarifas para los servicios portuarios que se brindan en Puerto Caldera, administrado por el Instituto Costarricense de Puertos del Pacífico, según el siguiente detalle:
-SERVICIO | UNIDAD TARIFARIA | TARIFA MAXIMA (US$) | TARIFA MÍNIMA (US$)
+II.—Fijar las tarifas para los servicios portuarios que se brindan en Puerto Golfito administrado por el Instituto Costarricense de Puertos del Pacífico, según el siguiente detalle:
+(Mediante resolución N° 715-RCR-2011 del 8 de diciembre del 2011, se modifica el pliego tarifario de Puerto Caldera, Puntarenas, Quepos y Golfito, quedando unificado el mismo de la siguiente manera:
+Pliego tarifario Puerto Caldera, Puntarenas, Quepos y Golfito
+Servicio | Unidad tarifaria | Tarifa máxima | Tarifa mínima
+| | US $ | US $
 Ayudas a la navegación | TRB | 0,13 | 0,12
-Pilotaje | TRB | 0,041 | 0,039
+Pilotaje | TRB | 0,04 | 0,04
 Remolcaje | TRB | 0,28 | 0,26
-Lanchaje | TRB | 0,039 | 0,037
-Estadía | METRO/ESLORA/ HORA | 0,28 | 0,26
-Amarre y desamarre | TRB | 0,11 | 0,10
-Limpieza de muelle | TM | 0,049 | 0,046
-CARGA Y DESCARGA | | |
+Lanchaje | TRB | 0,04 | 0,04
+Estadía | METRO / ESLORA / HORA | 0,39 | 0,36
+Amarre y desamarre | TRB | 0,14 | 0,13
+Limpieza de muelle | TM | 0,10 | 0,09
+Carga y descarga | | |
 Carga de exportación | | |
 Mercadería General | TM | 7,49 | 6,97
-Contenedores llenos | MOVIMIENTO | 62,49 | 58,14
-Contenedores vacíos | MOVIMIENTO | 30,90 | 28,75
+contenedores llenos | MOVIMIENTO | 62,49 | 58,14
+contenedores vacíos | MOVIMIENTO | 30,90 | 28,75
 Vehículos incluida su transferencia | TM | 7,73 | 7,20
 Banano y otras frutas | CAJAS | 0,10 | 0,09
-Atún | TM | 2,32 | 2,16
-Hierros y similares incluida la transferencia | TM | 4,04 | 3,76
 Carga de importación | | |
 Mercadería general | TM | 10,69 | 9,95
 Vehículos incluida su transferencia | TM | 7,73 | 7,20
 Hierros y similares incluida la transferencia | TM | 4,04 | 3,76
 Graneles | TM | 3,00 | 2,79
-Contenedores llenos | MOVIMIENTO | 62,49 | 58,14
-Contenedores vacíos | MOVIMIENTO | 30,90 | 28,75
+contenedores llenos | MOVIMIENTO | 62,49 | 58,14
+contenedores vacíos | MOVIMIENTO | 30,90 | 28,75
 Banano y otras frutas | CAJAS | 0,10 | 0,09
 Atún | TM | 2,32 | 2,16
-TRANSFERENCIA DE MERCADERÍA | | |
+Transferencia de mercadería | | |
 Transferencia de exportación | | |
 Mercadería General | TM | 1,48 | 1,38
 Carne y productos perecederos al costado del buque | TM | 0,27 | 0,25
-Contenedores llenos | MOVIMIENTO | 64,24 | 59,77
+contenedores llenos | MOVIMIENTO | 64,24 | 59,77
 Contenedores vacíos | MOVIMIENTO | 33,06 | 30,76
 Transferencia de importación | | |
 Mercadería general | TM | 2,12 | 1,97
 Vehículo sin tracción propia | TM | 0,90 | 0,84
-Contenedores llenos | MOVIMIENTO | 64,24 | 59,77
+contenedores llenos | MOVIMIENTO | 64,24 | 59,77
 Contenedores vacíos | MOVIMIENTO | 33,06 | 30,76
-MUELLAJE | | |
-Muellaje exportación | TM | 0,48 | 0,45
-Muellaje importación | TM | 0,52 | 0,49
+Muellaje | | |
+Muellaje exportación | TM | 0,.44 | 0,41
+Muellaje importación | TM | 0,56 | 0,52
 Muellaje contenedores llenos | TM | 0,49 | 0,46
 Muellaje contenedores vacíos | UNIDAD | 1,30 | 1,21
 Muellaje mercadería general en tránsito (Imp.-Exp.) | TM | 0,23 | 0,22
-ALMACENAJE | | |
+Graneles de importación | TM | 0,39 | 0,36
+Graneles de exportación | TM | 0,16 | 0,15
+Almacenaje | | |
 Almacenaje de cont. Llenos de 20 pies | | |
-Del día 1 al día 5 | CONTENEDOR/DIA | Libre | Libre
-Del día 6 al día 10 | CONTENEDOR/DIA | 3,92 | 3,64
-A partir del día 11 | CONTENEDOR/DIA | 7,27 | 6,77
+Del día 1 al día 5 | CONTENEDOR / DÍA | Libre | Libre
+Del día 6 al día 10 | CONTENEDOR / DÍA | 3,92 | 3,64
+A partir del día 11 | CONTENEDOR / DÍA | 7,27 | 6,77
 Almacenaje de cont. Llenos de 40 pies | | |
-Del día 1 al día 5 | CONTENEDOR/DIA | Libre | Libre
-Del día 6 al día 10 | CONTENEDOR/DIA | 7,7 | 6,76
-A partir del día 11 | CONTENEDOR/DIA | 13,43 | 12,50
+Del día 1 al día 5 | CONTENEDOR / DÍA | Libre | Libre
+Del día 6 al día 10 | CONTENEDOR / DÍA | 7,27 | 6,76
+A partir del día 11 | CONTENEDOR / DÍA | 13,43 | 12,50
 Almacenaje de cont. vacíos de 20 pies | | |
-Del día 1 al día 5 | CONTENEDOR/DIA | Libre | Libre
-Del día 6 al día 10 | CONTENEDOR/DIA | 1,68 | 1,56
-A partir del día 11 | CONTENEDOR/DIA | 3,92 | 3,64
+Del día 1 al día 5 | CONTENEDOR / DÍA | Libre | Libre
+Del día 6 al día 10 | CONTENEDOR / DÍA | 1,68 | 1,56
+A partir del día 11 | CONTENEDOR / DÍA | 3,92 | 3,64
 Almacenaje de cont. vacíos de 40 pies | | |
-Del día 1 al día 5 | CONTENEDOR/DIA | Libre | Libre
-Del día 6 al día 10 | CONTENEDOR/DIA | 3,92 | 3,65
-A partir del día 11 | CONTENEDOR/DIA | 7,27 | 6,76
+Del día 1 al día 5 | CONTENEDOR / DÍA | Libre | Libre
+Del día 6 al día 10 | CONTENEDOR / DÍA | 3,92 | 3,65
+A partir del día 11 | CONTENEDOR / DÍA | 7,27 | 6,76
 Almacenaje de tolvas, almejas y equipo portuario vario | UNIDAD DIARIA | 1,15 | 1,07
-Almacenaje de mercaderías (Carga general) | TM / D / CIF | 6,69 | 6,22
+Almacenaje de mercaderías (Carga general) | TM / D / CIF | 0,14 | 0,13
 Reestiba de carga a bordo o en el muelle | TM | 11,69 | 10,87
-ALQUILER DE MAQUINARIA Y EQUIPO | | |
+Alquiler de maquinaria y equipo | | |
 Montacargas | | |
-Hasta 4 Toneladas | HORA O FRACCION | 14,13 | 13,15
-De 4,1 hasta 6 Toneladas | HORA O FRACCION | 17,51 | 16,29
-De 6,1 hasta 10 Toneladas | HORA O FRACCION | 27,36 | 25,45
-De 10,1 hasta 20 Toneladas | HORA O FRACCION | 44,22 | 41,14
-De 20,1 hasta 30 Tonelas | HORA O FRACCION | 108,00 | 100,48
-De 30,1 hasta 40 Toneladas | HORA O FRACCION | 111,93 | 104,14
-De más de 40 Toneladas | HORA O FRACCION | 158,99 | 147,92
+Hasta 4 Toneladas | HORA O FRACCIÓN | 14,13 | 13,15
+De 4,1 hasta 6 Toneladas | HORA O FRACCIÓN | 17,51 | 16,29
+De 6,1 hasta 10 Toneladas | HORA O FRACCIÓN | 27,36 | 25,45
+De 10,1 hasta 20 Toneladas | HORA O FRACCIÓN | 44,22 | 41,14
+De 20,1 hasta 30 Toneladas | HORA O FRACCIÓN | 81,00 | 75,36
+De 30,1 hasta 40 Toneladas | HORA O FRACCIÓN | 111,93 | 104,14
+De más de 40 Toneladas | HORA O FRACCIÓN | 158,99 | 147,92
 Spreader o eslingas de 20 pies | MOVIMIENTO | 1,08 | 1,01
 Spreader o eslingas de 40 pies | MOVIMIENTO | 1,87 | 1,74
-Tractores | HORA O FRACCION | 22,18 | 20,64
-Carretas de 25 a 30 Toneladas | HORA O FRACCION | 4,99 | 4,64
+Tractores | HORA O FRACCIÓN | 21,39 | 19,90
+Carretas de 10 Toneladas | HORA O FRACCIÓN | 1,00 | 1,00
+Carretas de 25 a 30 Toneladas | HORA O FRACCIÓN | 4,99 | 4,64
 Paletas/ tarimas | DIA O FRACCION | 0,21 | 0,20
-Alquiler de remolcadores | HORA O FRACCION | 166,15 | 154,59
-Alquiler de Lancha | HORA O FRACCION | 42,93 | 39,94
-Alquiler de grúa móvil | HORA O FRACCION | 818,51 | 761,54
+Alquiler de remolcadores | HORA O FRACCIÓN | 166,15 | 154,59
+Alquiler de Lancha | HORA O FRACCIÓN | 42,93 | 39,94
+Alquiler de grúa móvil | HORA O FRACCIÓN | 818,51 | 761,54
 Alquiler de grúa móvil | MOVIMIENTO | 49,95 | 46,48
-Alquiler de Bobcat | HORA O FRACCION | 57,75 | 53,73
+Alquiler de Bobcat | HORA O FRACCIÓN | 57,75 | 53,73
 Servicio a contenedores refrigerados | UNIDAD / HORA | 0,60 | 0,56
 Suministro de agua potable | TM | 2,58 | 2,40
-RECEPCIÓN Y DESPACHO | | |
+Recepción y despacho | TM | |
 Mercadería general | TM | 3,09 | 2,87
 Ingreso Recep. y desp. hierro y vehículos | TM | 0,44 | 0,41
 Ingreso Recep. y desp. Contenedores | CONTENEDOR | 13,66 | 12,71
 Transferencia de contenedores en patios | MOVIMIENTO | 51,23 | 47,66
 Movimiento de contenedores en patios o muelles | MOVIMIENTO | 4,36 | 4,05
-Demoras | CUADRILLA / HORA | 9,36 | 8,71
-Falso flete | EVENTO | 247,10 | 229,90
-Ingreso de vehículos a zona portuaria | VEHICULO | 0,29 | 0,27
-Pesaje de vehículos - Báscula | VEHICULO | 0,14 | 0,13
+Demoras | CUADRILLA / HORA | 18,71 | 17,41
+Falso flete | EVENTO | 494,19 | 459,81
+Ingreso de vehículos a zona portuaria | VEHÍCULO | 0,51 | 0,47
+Pesaje de vehículos – Báscula | VEHÍCULO | 0,25 | 0,23
 Embarque y desembarque de pasajeros | PASAJERO | 4,99 | 4,64
 Atención de pasajeros en tránsito | PASAJERO | 3,12 | 2,90
 Consolidación y desconsolidación | TM | 4,96 | 4,61
 Atención de embarcaciones de pasajeros | | |
-Embarcaciones menores de 3,000 TRB | HORA O FRACCION | 293,04 | 272,65
-Embarcaciones mayores de 3,000 TRB | HORA O FRACCION | 402,47 | 374,46
-Fondeo de embarcaciones de pasajeros | | |
-Embarcaciones menores de 3,000 TRB | HORA O FRACCION | 62,50 | 58,15
-Embarcaciones mayores de 3,000 TRB | HORA O FRACCION | 80,00 | 74,43
+Embarcaciones menores de 13.000 TRB | HORA O FRACCIÓN | 374,55 | 348,48
+Embarcaciones mayores de 13.000 TRB | HORA O FRACCIÓN | 506,80 | 471,53
+Fondeo de embarcaciones | | |
+Embarcaciones menores a 3.000 TRB | HORA O FRACCIÓN | 0,11 | 0,10
+Embarcaciones mayores a 3.000 TRB y menores de 13.000 TRB | HORA O FRACCIÓN | 62,50 | 58,15
+Embarcaciones mayores de 13.000 TRB | HORA O FRACCIÓN | 80,00 | 74,43
 Personal de refuerzo | HORA / HOMBRE | 9,00 | 8,38
-II.—Fijar las tarifas para los servicios portuarios que se brindan en Puerto Golfito administrado por el Instituto Costarricense de Puertos del Pacífico, según el siguiente detalle:
-SERVICIO | UNIDAD TARIFARIA | TARIFA (US$)
-Servicio a las Naves | |
-Estadía | |
-Embarcaciones mercantes y otros | METRO/ESLORA/HORA | 0,36
-Barcos Atuneros | METRO/ESLORA/HORA | 0,07
-Ayudas a la navegación | TRB | 0,10
-Amarre y desamarre | TRB | 0,19
-Movimiento de vapores | TRB | 0,06
-Servicio de lancha | SERVICIO | 50,00
-Canon por pilotaje | TRB | 0,04
-Servicios a la Carga | |
-Muellaje | TON | 0,73
-Limpieza de muelle | TON | 0,12
-Otros servicios | |
-Amarre embarcaciones en muelle | METRO/ESLORA/HORA | 12,00
-Utilización de personal operativo | HORA / HOMBRE | 7,00
-Servicio de electricidad muelle, dique y patios | KW / HORA | 0,97
-Almacenaje de tolvas | TOLVA / DÍA | 1,40
-Embarque y desembarque de pasajeros | PASAJERO | 3,80
-Pasajeros en tránsito | PASAJERO | 3,66
-Alquiler de equipo | |
-Montacargas | HORA | 15,00
-Alquiler de equipo menores | DIA | 50,00
-Ingreso de vehículos al muelle | |
-Vehículo liviano hasta 2 Toneladas | VEHICULO | 1,65
-Vehículo de más de 2 Toneladas | VEHICULO | 4,20
-Venta de agua potable | TON | 4,00
-Servicios Atención de Cruceros Turísticos | |
-Estadía de embarcaciones | |
-Embarcaciones menores a 3,000 TRB | HORA | 39,81
-Embarcaciones mayores a 3,000 TRB y menores a 13,000 TRB | HORA | 26,04
-Embarcaciones mayores a 13,000 TRB | HORA | 33,67
-Fondeo de embarcaciones | |
-Menores a 13,000 TRB | HORA | 5,46
-Mayores a 13,000 TRB | HORA | 6,67
-Servicio de dique seco | |
-Embarcación extranjera | HORA | 11,67
-Embarcación de recreo nacional | HORA | 9,27
-Embarcación de pesca nacional | HORA | 4,66
+Servicios adicionales en Golfito | | |
+Alquileres | | |
+Arrendamiento de patios | M2/mes | 0,07 | 0,06
+Alquiler de bodegas | M2/día | 0,69 | 0,64
+Alquiler de oficinas | M2/día | 0,80 | 0,74
+Cánones | | |
+Por estiba | TM | 0,50 | 0,04
+Por trasiego de agua potable | TM | 3,16 | 2,94
+Por trasiego de combustible | TM | 1,51 | 1,40
+Servicio de dique seco | | |
+Permanencia embarcación extranjera | HORA | 11,67 | 10,85
+Permanencia embarcación de recreo nacional | HORA | 9,27 | 8,62
+Permanencia embarcación de pesca nacional | HORA | 4,66 | 4,33
+Servicio eléctrico | KW / HORA | 0,97 | 0,90
 III.—Solicitar al Instituto Costarricense de Puertos del Pacífico (INCOP), lo siguiente:
 1. Presentar en un periodo no mayor a seis meses, una solicitud tarifaria para los servicios que se brindan en el Puerto de Puntarenas y en el Puerto de Quepos, incluyendo los respectivos pliegos tarifarios.
 2. Rendir trimestralmente a la Autoridad Reguladora en formato digital (word y excel), un informe detallado por cada tipo de servicio y para cada puerto, sobre ingresos, gastos y unidades de servicio; además de información estadística referente a indicadores portuarios: tasa de ocupación, carga general movilizada, carga movilizada a granel, movilización de contenedores, rendimientos en el manejo de carga, naves atendidas y tiempos de espera.
