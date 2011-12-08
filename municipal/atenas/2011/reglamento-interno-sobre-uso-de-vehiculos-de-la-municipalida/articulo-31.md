@@ -1,0 +1,1 @@
+Artículo 31.—En todo lo que este reglamento sea omiso, deberán tenerse como normas supletorias, el Reglamento Autónomo de Organización y servicios de la Municipalidad de Atenas, y el Manual Sobre Normas Técnicas de Control Interno Relativas al Uso, Control y Mantenimiento de Vehículos, emanado de la Contraloría General de la República, de diciembre de 1995.

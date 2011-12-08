@@ -1,0 +1,1 @@
+Artículo 12.—Fuera de la jornada diaria ordinario o extraordinaria, sólo se permitirá la salida de los vehículos de uso administrativo en caso de emergencia justificable, a petición de la dependencia que lo requiera, con al menos un día de anticipación y con autorización escrita del Alcalde.

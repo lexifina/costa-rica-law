@@ -1,0 +1,1 @@
+Artículo 11.—Todo vehículo después de cada jornada diaria de trabajo, serán guardados en los parqueos y o planteles municipales correspondientes, previa revisión del encargado. Las llaves de los vehículos permanecerán bajo custodia del funcionario encargado de transportes, el cual responderá por los daños ocurridos, obligándose a cada chofer porque esta revisión se lleve a cabo.

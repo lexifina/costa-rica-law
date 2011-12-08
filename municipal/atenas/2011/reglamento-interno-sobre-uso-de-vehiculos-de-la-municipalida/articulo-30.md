@@ -1,0 +1,1 @@
+Artículo 30.—Corresponde al Concejo Municipal ofrecer interpretación auténtica a lo dispuesto en este Reglamento, cuando para un caso específico, alguna disposición sea confusa u omisa, así como velar por el cumplimiento de lo establecido.

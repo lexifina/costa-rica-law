@@ -1,0 +1,1 @@
+Artículo 3º—Los vehículos de la Municipalidad serán catalogados como vehículos de uso administrativo general. El Alcalde podrá designar un vehículo de la Administración para su uso discrecional, para la atención de labores directas o indirectas de la Alcaldía

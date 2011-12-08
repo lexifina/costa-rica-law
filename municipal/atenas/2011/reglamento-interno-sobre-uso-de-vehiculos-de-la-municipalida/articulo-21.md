@@ -1,0 +1,1 @@
+Artículo 21.—Si se descubre que cualquiera de los usuarios porta licor y otro tipo de drogas, el transporte se suspenderá inmediatamente, hasta tanto no bajen del vehículo dichas sustancias y sean desechadas de forma adecuada.
