@@ -1,2 +1,0 @@
-Artículo 11.—Suspensión de encuentros de fútbol en cada jornada. En caso de adelanto o suspensión de uno o más eventos deportivos en las jornadas compuestas por doce eventos deportivos, los resultados que se tendrán por oficiales se determinarán por el método de rifa descrito en este reglamento, independientemente del resultado que arroje el encuentro deportivo en el momento en que se realice.
-(Así reformado mediante sesión N° 08-2011 del 1° de marzo del 2011)
