@@ -1,0 +1,1 @@
+Artículo 16.—Por ninguna razón el usuario del estacionamiento podrá dejar el vehículo en las áreas de paso, ni en los accesos al mismo. Cualquier situación especial deberá ser coordinada con el Oficial del Resguardo Portuario de turno.

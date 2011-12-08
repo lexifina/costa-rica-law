@@ -1,0 +1,1 @@
+Artículo 18.—Cuando todos los espacios disponibles para estacionamiento estén ocupados, el oficial destacado del Resguardo Portuario, deberá cerrar el portón de acceso y no permitirá el ingreso de ningún vehículo hasta que haya espacios disponibles.

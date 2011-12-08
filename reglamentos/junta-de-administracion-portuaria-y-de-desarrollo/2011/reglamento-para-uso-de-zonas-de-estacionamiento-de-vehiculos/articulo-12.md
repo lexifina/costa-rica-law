@@ -1,0 +1,1 @@
+Artículo 12.—Todo trabajador que hace uso del estacionamiento, implícitamente se rige por las disposiciones que se establecen en este Reglamento, bajo ninguna circunstancia puede alegar desconocimiento de las disposiciones del mismo.

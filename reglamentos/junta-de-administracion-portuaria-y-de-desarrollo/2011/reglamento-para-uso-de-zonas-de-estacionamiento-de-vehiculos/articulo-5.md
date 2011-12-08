@@ -1,0 +1,1 @@
+Artículo 5º—Los demás empleados ocuparán cualquiera de los otros espacios disponibles, de acuerdo al orden de su entrada al estacionamiento en su turno de trabajo. Los visitantes podrán estacionar sus vehículos en el área de estacionamiento, siempre que haya espacio disponible, para tener acceso deberán portar un carné que los identifique como tales.

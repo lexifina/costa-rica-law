@@ -1,0 +1,1 @@
+Artículo 3º—Las áreas destinadas para estacionamiento de vehículos es una facilidad que otorga JAPDEVA a los trabajadores usuarios sin que en ningún momento el usuario pueda alegar derechos adquiridos de ninguna naturaleza.

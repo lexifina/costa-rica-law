@@ -1,0 +1,1 @@
+Artículo 17.—Se prohíbe terminantemente el ingreso y estacionamiento de vehículos que se utilizan en actividades ajenas a la institución, como la actividad de cruceros, agencias aduanales, taxis entre otros. Ningún funcionario podrá ocupar más de un espacio para estacionamiento, aunque lo haga con distintos vehículos.

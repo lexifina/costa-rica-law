@@ -1,0 +1,1 @@
+Artículo 13.—Los usuarios del estacionamiento, tienen la responsabilidad de reportar a las instancias que correspondan cualquier daño, o hurto que sufran en su vehículo o propiedad privada. JAPDEVA no se hace responsable por cualquier robo o daño que ocurra en los vehículos.

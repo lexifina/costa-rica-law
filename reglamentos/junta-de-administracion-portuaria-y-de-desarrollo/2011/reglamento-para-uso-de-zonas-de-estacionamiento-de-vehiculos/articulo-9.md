@@ -1,0 +1,1 @@
+Artículo 9º—Para tener acceso al estacionamiento el vehículo deberá tener el sticker en un lugar visible además del carné de identificación como empleado, solo tendrán derecho al ingreso del área de aparcamiento los trabajadores fijos, interinos y suplentes de la Institución.

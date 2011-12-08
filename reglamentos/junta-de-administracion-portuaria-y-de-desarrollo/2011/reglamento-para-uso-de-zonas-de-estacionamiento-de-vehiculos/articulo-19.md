@@ -1,0 +1,1 @@
+Artículo 19.—El Oficial del Resguardo Portuario destacado, deberá vigilar que no ingresen al estacionamiento vehículos no pertenecientes a empleados de la Institución, si esto sucediera deberá localizar al propietario y solicitar su retiro inmediato.
