@@ -14,3 +14,4 @@ Reglamento de las condiciones técnicas para la accesibilidad a la infraestructu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-10 | la propia norma |
+| 2 | 2011-12-08 | Reglamento 4623 (2011-12-08) |
