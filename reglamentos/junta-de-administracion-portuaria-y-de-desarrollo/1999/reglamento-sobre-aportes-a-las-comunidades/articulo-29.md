@@ -1,1 +1,0 @@
-Artículo 29.-EI funcionario de JAPDEVA que certifique indebidamente el uso o finalización de una obra, será sancionado administrativamente, sin perjuicio de las sanciones penales, laborales, civiles o de otro tipo que pudiesen surgir.

@@ -1,1 +1,0 @@
-Artículo 33.-Para llevar a cabo las funciones asignadas, el Departamento de Operaciones contará con los recursos necesarios, para lo cual presentará a la Comisión un plan de necesidades con su respectivo presupuesto, lo anterior se hará conjuntamente con el Plan indicado en el Artículo anterior, permitiendo de esta manera presupuestar para el año siguiente.

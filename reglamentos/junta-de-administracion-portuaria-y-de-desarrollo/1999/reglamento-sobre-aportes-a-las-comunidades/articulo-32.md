@@ -1,1 +1,0 @@
-Artículo 32.-Para una buena distribución de los aportes, la Unidad de Obras Comunales a través del Departamento de Operaciones entregará un plan de necesidades por cantón de las diferentes Comunidades de la Provincia, ajustados en un todo al plan regional de desarrollo. Este estudio será sometido a consideración de la Comisión, quien lo elevará ante el Consejo de Administración.

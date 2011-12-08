@@ -1,2 +1,0 @@
-De los trabajos
-Artículo 35.-Los trabajos serán evaluados previamente por la Unidad de Obras Comunales, que emitirá un informe de los aspectos técnicos y la viabilidad de los proyectos, para lo cual cada Organización que solicita un aporte deberá presentar un plan de inversión que indique al menos el alcance de los trabajos, el monto solicitado, su presupuesto detallado, un plano o croquis de lo que pretende realizar, y la solicitud con sus documentos.

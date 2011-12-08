@@ -1,1 +1,0 @@
-Artículo 39.-La comisión estará formada al menos por tres Directores, el Gerente de Desarrollo, quienes podrán ser sustituidos en cualquier momento por quien los nombró. Durarán en la comisión un año, pudiendo ser reelegidos consecutiva e indefinidamente.

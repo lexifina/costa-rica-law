@@ -1,1 +1,0 @@
-Artículo 42.-Los representantes de las Organizaciones deben brindar a los funcionarios de la Auditoría interna e inspectores de obras comunales de JAPDEVA o Inspectores de la Contraloría General de la República, cualquier tipo de información, que se les solicite relacionada con el aporte recibido.

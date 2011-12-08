@@ -1,2 +1,0 @@
-De las solicitudes
-Artículo 5°-Las solicitudes presentadas a la Institución para obras comunales se tramitarán a través de la Gerencia de la Administración de Desarrollo y serán remitidas por dicha Gerencia a más tardar ocho días después de recibidas para su estudio y recomendación. Esta Gerencia las trasladará a la Comisión de Ayudas Comunales, con la recomendación sustentada en la evaluación previa de la Unidad Ejecutiva de Obras Comunales que corresponda, la cual tendrá un mes después de recibido, para devolverla a la Gerencia con la evaluación respectiva.
