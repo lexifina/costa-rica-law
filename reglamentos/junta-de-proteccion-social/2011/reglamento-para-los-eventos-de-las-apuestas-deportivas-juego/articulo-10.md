@@ -1,1 +1,0 @@
-Artículo 10.—Suspensión de encuentros de fútbol en cada jornada. En caso de adelanto respecto de la hora o fecha programada o suspensión del evento deportivo, el resultado que se tendrá por oficial se determinará por el método de rifa descrito en este reglamento, independientemente del resultado que arroje el encuentro deportivo en el momento en que se realice.
