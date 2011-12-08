@@ -1,0 +1,1 @@
+Artículo 5º—La publicidad de productos aquí regulados, se ajustará a las disposiciones de la Ley General de Salud, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y sus reformas y de la normativa vigente relacionada con los productos objeto de este reglamento, sin perjuicio de cualquier otra normativa de carácter legal en la materia.

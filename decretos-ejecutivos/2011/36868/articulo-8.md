@@ -1,0 +1,1 @@
+Artículo 8º—La publicidad debe ser divulgada en idioma español, en términos claros y comprensible para el público al que va dirigida, utilizando el nombre del producto tal y como fue aprobado por el Ministerio. Lo anterior no limita a que la publicidad en español también contenga una versión adicional con información idéntica en uno o más idiomas.

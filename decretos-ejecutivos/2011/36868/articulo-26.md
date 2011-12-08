@@ -1,0 +1,1 @@
+Artículo 26.—El Ministerio dispondrá de un plazo de 20 días naturales para resolver sobre la autorización de la publicidad presentada, contados a partir del recibo en forma completa de lo que se señala en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 21.—Dadas las restricciones en la venta de sustancias psicotrópicas y estupefacientes, no se permitirá la publicidad de las mismas en ningún medio de comunicación; ni se permitirá ninguna promoción de éstas.

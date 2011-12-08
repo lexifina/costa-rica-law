@@ -1,0 +1,1 @@
+Artículo 14.—Queda prohibida toda publicidad que atribuya cualidades terapéuticas a los alimentos o suplementos a la dieta, o que induzca a error o engaño al público en cuanto a la naturaleza, calidad, propiedades u origen.

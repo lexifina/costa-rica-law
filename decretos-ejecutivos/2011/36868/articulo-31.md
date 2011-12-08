@@ -1,0 +1,1 @@
+Artículo 31.—El incumplimiento a las disposiciones establecidas en este Reglamento, dará lugar a la aplicación de las sanciones y medidas especiales que señala la Ley General de Salud Nº 5395 del 30 de octubre de 1973, en respeto al debido proceso y derecho a defensa al administrado.

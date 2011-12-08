@@ -1,0 +1,1 @@
+Artículo 29.—Las resoluciones y disposiciones a que se refiere el presente Reglamento tendrán recurso de revocatoria y apelación subsidiaria, en los términos que señala la Ley Orgánica del Ministerio de Salud en su artículo 52.

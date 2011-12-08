@@ -1,0 +1,1 @@
+Artículo 13.—La publicidad o promoción de alimentos y suplementos a la dieta no requiere de aprobación previa por parte del Ministerio de Salud y estará sujeta a la fiscalización a posteriori, a excepción de productos cubiertos por la Ley Nº 7430 de Fomento a la Lactancia Materna, los cuales requerirán aprobación previa del Ministerio.

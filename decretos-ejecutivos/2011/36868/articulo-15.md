@@ -1,0 +1,1 @@
+Artículo 15.—Además de lo estipulado en los artículos anteriores, la publicidad y la promoción publicitaria de los productos cubiertos por la Ley de Fomento a la Lactancia Materna Nº 7430, deberá incluir la leyenda: “LA LECHE MATERNA ES EL MEJOR ALIMENTO PARA EL LACTANTE”.

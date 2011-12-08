@@ -1,0 +1,1 @@
+Artículo 28.—Vigencia de la aprobación. La aprobación otorgada a la publicidad de los productos estará sujeta a la vigencia del registro del producto ante el Ministerio, ya sea por medio de su inscripción o su debida renovación.

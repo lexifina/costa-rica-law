@@ -1,0 +1,1 @@
+Artículo 17.—La publicidad o promoción de los medicamentos estará sujeta a la aprobación previa del Ministerio. A excepción de los declarados de venta libre cuya fiscalización se realizará a posteriori.

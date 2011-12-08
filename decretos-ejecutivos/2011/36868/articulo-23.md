@@ -1,0 +1,1 @@
+Artículo 23.—La publicidad o promoción de productos naturales con cualidades medicinales no requiere de aprobación previa por parte del Ministerio de Salud y estará sujeta a la fiscalización a posteriori.

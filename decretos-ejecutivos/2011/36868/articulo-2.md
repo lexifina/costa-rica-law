@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento rige para todo tipo de publicidad de productos de interés sanitario que se divulgue o transmita en el territorio nacional.
+No estará sujeta a las disposiciones de este reglamento, la publicidad que se realice sobre ofertas o promociones comerciales relacionadas exclusivamente con el precio de los productos aquí regulados, ni el material publicitario utilizado por profesionales de la salud en visita médica ni para la capacitación dirigida a profesionales de la salud.
