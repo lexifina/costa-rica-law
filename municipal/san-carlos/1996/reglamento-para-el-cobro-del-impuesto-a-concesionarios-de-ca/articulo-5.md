@@ -1,2 +1,0 @@
-Artículo 5°-El impuesto será calculado del 10% sobre la base del precio de mercado, que será para cada tipo de material, el de venta al público del producto primario extraído durante el mes anterior, puesto en el sitio de extracción y que exprese la declaración jurada o en su defecto la tasación de oficio hecha por la Municipalidad.
-(Así reformado mediante acuerdo N° 11 del acta N° 80 del 9 de agosto de 1996).

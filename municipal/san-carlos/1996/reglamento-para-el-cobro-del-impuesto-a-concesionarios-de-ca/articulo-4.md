@@ -1,1 +1,0 @@
-Artículo 4°-La base imponible de este impuesto la constituye el valor total a precio del mercado del material extraído de la cantera cuya explotación esté autorizada, sean estos arena, piedra, lastre o cualquier otro material producto de la extracción.

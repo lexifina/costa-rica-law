@@ -1,1 +1,0 @@
-Artículo 7°-Cuando el material fuere industrializado por el concesionario o vendido a otra persona física o jurídica para sus procesamiento, el precio declarado de venta no podrá ser inferior al establecido para la venta a terceros.
