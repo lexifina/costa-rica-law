@@ -1,4 +1,3 @@
-ARTICULO 451.-
-Efecto
-La resolución que recaiga será ejecutada, a menos que el recurso haya sido interpuesto en el mismo momento con el de apelación subsidiaria y se encuentre debidamente sustanciado.
+ARTICULO 451.--(Derogado por el artículo 10° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
+(Mediante resolución de la Sala Constitucional N° 13820 del 20 de agosto de 2014, se anuló el numeral 10 de la Ley N° N° 8837 del 3 de mayo de 2010, “Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", el cual derogó este artículo, restituyéndose el artículo 466 bis del Código Procesal Penal.)
 (Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 436 al 451 actual).

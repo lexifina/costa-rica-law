@@ -1,11 +1,8 @@
 CAPITULO IV
 DE LA SALA TERCERA
-ARTICULO 56.- La Sala Tercera conocerá:
-1.- De los recursos de casación y revisión en materia penal, que no
-sean de competencia del Tribunal de Casación Penal.
-2.- De las causas penales contra los miembros de los supremos
-poderes y otros funcionarios equiparados.
-3.- De los demás asuntos de naturaleza penal que las leyes le
-atribuyan.
-(Así reformado por el artículo 2º de la Ley de Reorganización
-Judicial No.7728 de 15 de diciembre de 1997)
+ARTICULO 56.-La Sala Tercera conocerá:
+1) De los recursos de casación y revisión en materia penal de adultos y penal juvenil.
+2) De las causas penales contra los miembros de los Supremos Poderes y otros funcionarios equiparados.
+3) De los conflictos de competencia suscitados entre tribunales de apelación de sentencia penal.
+4) De los demás asuntos que las leyes le atribuyan.
+(Así reformado por el artículo 8° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
