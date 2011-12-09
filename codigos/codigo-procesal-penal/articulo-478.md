@@ -1,6 +1,7 @@
 ARTICULO 478.-
-Medidas de seguridad
-Las reglas establecidas en este Capítulo regirán para las medidas de seguridad en lo que sean aplicables.
-El tribunal examinará, periódicamente, la situación de quien sufre una medida. Fijará un plazo no mayor de seis meses entre cada examen, previo informe del establecimiento y de los peritos. La decisión versará sobre la cesación o continuación de la medida y, en este último caso, podrá ordenar la modificación del tratamiento.
-Cuando el juez tenga conocimiento, por informe fundado, de que desaparecieron las causas que motivaron la internación, procederá a su sustitución o cancelación.
-(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 463 al 478 actual.)
+Incidentes de ejecución
+El Ministerio Público, el querellante, el condenado y su defensor podrán plantear, ante el tribunal de ejecución de la pena, incidentes relativos a la ejecución, sustitución, modificación o extinción de la pena o de las medidas de seguridad. Estos deberán ser resueltos dentro del término de cinco días, previa audiencia a los demás intervinientes. Si fuera necesario incorporar elementos de prueba, el tribunal, aun de oficio, ordenará una investigación sumaria, después de la cual decidirá.
+Los incidentes relativos a la libertad anticipada y aquellos en los cuales, por su importancia, el tribunal lo estime necesario, serán resueltos en audiencia oral, citando a los testigos y peritos que deben informar durante el debate.
+El tribunal decidirá por auto fundado y, contra lo resuelto, procede recurso de apelación ante el tribunal de sentencia, cuya interposición no suspenderá la ejecución de la pena, a menos que así lo disponga este último tribunal.
+(Así corrida su numeración por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 454 al 469 actual)
+(Así corrida su numeración por el artículo 5° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010, que lo traspaso del antiguo artículo 469 al 478)

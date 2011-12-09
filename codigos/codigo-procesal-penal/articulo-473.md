@@ -1,10 +1,6 @@
-ARTICULO 473.-
-Atribuciones de los jueces de ejecución de la pena
-Los jueces de ejecución de la pena controlarán el cumplimiento del régimen penitenciario y el respeto de las finalidades constitucionales y legales de la pena y de las medidas de seguridad. Podrán hacer comparecer ante sí a los condenados o a los funcionarios del sistema penitenciario, con fines de vigilancia y control.
-Les corresponderá especialmente:
-a) Mantener, sustituir, modificar o hacer cesar la pena y las medidas de seguridad, así como las condiciones de su cumplimiento.
-b) Visitar los centros de reclusión, por lo menos una vez cada seis meses, con el fin de constatar el respeto de los derechos fundamentales y penitenciarios de los internos, y ordenar las medidas correctivas que estimen convenientes.
-c) Resolver, con aplicación del procedimiento previsto para los incidentes de ejecución, las peticiones o quejas que los internos formulen en relación con el régimen y el tratamiento penitenciario en cuanto afecten sus derechos.
-d) Resolver, por vía de recurso, las reclamaciones que formulen los internos sobre sanciones disciplinarias.
-e) Aprobar las sanciones de aislamiento por más de cuarenta y ocho horas, en celdas.
-(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 458 al 473 actual)
+Artículo 473.-Resolución y efectos extensivos. Si la Sala de Casación estima procedente el recurso por violación de ley procesal, anulará, total o parcialmente, la resolución impugnada y ordenará la reposición del procedimiento y resolución del tribunal de apelación de la sentencia. Cuando la anulación sea parcial, se indicará el objeto concreto del nuevo procedimiento o resolución.
+En los demás casos, la Sala, al acoger el recurso, enmendará el vicio y resolverá el asunto de acuerdo con la ley aplicable.
+Cuando lo estime pertinente, para tutelar el derecho del imputado a un recurso que implique el examen integral del juicio y la sentencia, la Sala podrá disponer la anulación del debate, las resoluciones que de él dependan y se ordenará su reposición mediante reenvío al tribunal de juicio.
+Para la toma de su decisión, la Sala tendrá a su disposición los registros del juicio y del procedimiento de apelación de sentencia. Solamente se podrá ofrecer prueba cuando el recurso se fundamente en un defecto de procedimiento y se discuta la forma en que fue llevado a cabo un acto, en contraposición a los registros del procedimiento de apelación de la sentencia.
+Si por efecto de la resolución del recurso la Sala considera que debe cesar la prisión del imputado, ordenará directamente la libertad.
+(Así adicionado por el artículo 5° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)

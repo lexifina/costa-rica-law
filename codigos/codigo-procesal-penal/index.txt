@@ -490,6 +490,15 @@ articulo-484.md
 articulo-485.md
 articulo-486.md
 articulo-487.md
+articulo-488.md
+articulo-489.md
+articulo-490.md
+articulo-491.md
+articulo-492.md
+articulo-493.md
+articulo-494.md
+articulo-495.md
+articulo-496.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md

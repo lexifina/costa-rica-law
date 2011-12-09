@@ -1,4 +1,3 @@
-ARTICULO 472.-
-Ministerio Público
-Los fiscales de ejecución de la pena intervendrán en los procedimientos de ejecución, velando por el respeto de los derechos fundamentales y de las disposiciones de la sentencia.
-(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 457 al 472 actual)
+Artículo 472.-Audiencia oral. Si al interponer el recurso, al contestarlo o al adherirse a él, alguno de los interesados considera necesario exponer oralmente sus alegaciones, solicitará audiencia oral a la Sala que la fijará dentro de los quince días de recibidas las actuaciones. Igual procedimiento se seguirá si la Sala, de oficio, estima necesaria su realización.
+Para celebrar la audiencia oral regirán las reglas dispuestas para el recurso de apelación. La resolución del caso se dictará inmediatamente después de realizada la audiencia, salvo que la complejidad del asunto obligue a su postergación.
+(Así adicionado por el artículo 5° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)

@@ -1,5 +1,7 @@
-ARTICULO 465.-
-Resolución
-Si el tribunal de casación estima procedente el recurso, anulará, total o parcialmente, la resolución impugnada y ordenará la reposición del juicio o de la resolución. Cuando la anulación sea parcial, se indicará el objeto concreto del nuevo juicio o resolución. En los demás casos, enmendará el vicio y resolverá el asunto de acuerdo con la ley aplicable.
-Si por efecto de la resolución del recurso deba cesar la prisión del imputado, el tribunal de casación ordenará directamente la libertad.
-(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 450 al 465 actual)
+ARTICULO 465. Examen y resolución. El tribunal de apelación de sentencia apreciará la procedencia de los reclamos invocados en el recurso y sus fundamentos, de modo que pueda valorar la forma en que los jueces de juicio apreciaron la prueba y fundamentaron su decisión.
+Hará uso de los registros que tenga disponibles, reproducirá la prueba oral del juicio cuando lo estime necesario, pertinente y útil para la procedencia del reclamo, y hará la valoración integral que corresponda con el resto de las actuaciones y la prueba introducida por escrito.
+Si el tribunal de apelación estima procedente el recurso, anulará total o parcialmente la resolución impugnada y ordenará la reposición del juicio o de la resolución. Cuando la anulación sea parcial, se indicará el objeto concreto del nuevo juicio o resolución. En los demás casos, enmendará el vicio y resolverá el asunto de acuerdo con la ley aplicable.
+Cuando el recurso ha sido interpuesto solo por el imputado o a su favor, en la resolución del tribunal de apelación de sentencia o en el juicio de reenvío no se podrá imponer una sanción más grave que la impuesta en la sentencia anulada, ni desconocer los beneficios que en esta se hayan acordado.
+Si por efecto de la resolución del recurso debe cesar la prisión del imputado, el tribunal de apelación de sentencia ordenará directamente la libertad.
+(Así reformado por el artículo 4° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
+(Así corrida su numeración por el artículo 18 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal, N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 450 al 465 actual)
