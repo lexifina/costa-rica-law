@@ -1,5 +1,2 @@
-ARTICULO 118.- Tramitación del recurso de casación
-El recurso de casación se tramitará de acuerdo con las formalidades
-y los plazos fijados para los adultos en el Código Procesal Penal. El
-Tribunal Superior de Casación Penal será competente para conocer de este
-recurso.
+ARTICULO 118.- Tramitación del recurso de casación. El recurso de casación se tramitará de acuerdo con las formalidades y los plazos fijados para el procedimiento penal de adultos, en el Código Procesal Penal.
+(Así reformado por el artículo 6° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
