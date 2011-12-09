@@ -1,4 +1,2 @@
-ARTICULO 58.-
-Tiempo y forma de recusar Al formularse la recusación se indicarán por escrito, bajo pena de inadmisibilidad, los motivos en que se funda y los elementos de prueba pertinentes.
-La recusación será formulada dentro de las veinticuatro horas de conocerse los motivos en que se funda.
-Durante las audiencias, la recusación será deducida oralmente, bajo las mismas condiciones de admisibilidad de las presentaciones escritas y se dejará constancia en acta de sus motivos.
+ARTICULO 58.-Tiempo y forma de recusar. Al formularse la recusación se indicarán, bajo pena de inadmisibilidad, los motivos en que se funda y los elementos de prueba pertinentes. Será formulada dentro de las veinticuatro horas de conocerse los motivos en que se funda. Durante las audiencias, la recusación será deducida oralmente.
+(Así reformado por el artículo 1° "Creación del Recurso de Apelación de la Sentencia, otras Reformas al Régimen de Impugnación e Implementación de Nuevas Reglas de Oralidad en el Proceso Penal ", ley N° 8837 del 3 de mayo de 2010)

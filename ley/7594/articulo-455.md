@@ -1,4 +1,3 @@
-ARTICULO 455.-
-Trámite
-Recibidas las actuaciones el tribunal de alzada, dentro de los cinco días siguientes, decidirá la admisibilidad del recurso y la procedencia de la cuestión planteada; todo en una sola resolución.
+ARTICULO 455.-Trámite en el tribunal de apelación. Recibidas las actuaciones, inmediatamente el tribunal de alzada convocará a una audiencia oral con la presencia de las partes, decidirá la admisibilidad del recurso y la procedencia de la cuestión planteada, todo en una sola resolución.
+(Así reformado por el artículo 3° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
 (Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 440 al 455 actual).

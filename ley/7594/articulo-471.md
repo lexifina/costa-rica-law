@@ -1,6 +1,4 @@
-ARTICULO 471.-
-Defensa
-La labor del defensor culminará con la sentencia firme, sin perjuicio de que continúe en el ejercicio de la defensa técnica durante la ejecución de la pena. Asimismo, el condenado podrá nombrar un nuevo defensor, en su defecto, se le nombrará un defensor público.
-El ejercicio de la defensa durante la ejecución penal consistirá en el asesoramiento al condenado, cuando se requiera, para la interposición de las gestiones necesarias en resguardo de sus derechos.
-No será deber de la defensa vigilar el cumplimiento de la pena.
-(Así corrida su numeración por el artículo 18 de la ley Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009, que lo traspasó del anterior artículo 456 al 471 actual)
+Artículo 471.-Admisibilidad y trámite. El trámite de admisibilidad estará a cargo de la Presidencia de la Sala que declarará inadmisible el recurso cuando no se cumplan los requisitos legales para su interposición, según lo establece el artículo 469 anterior; además, cuando la resolución no sea recurrible, la parte no tenga el derecho de recurrir, cuando el recurso tenga como finalidad modificar los hechos probados, o cuando el recurso sea absolutamente infundado, en cuyo caso lo declarará así y devolverá las actuaciones al tribunal de origen.
+Si el recurso es admisible, se asignará a un magistrado instructor, la Sala lo sustanciará y se pronunciará sobre los motivos planteados.
+Si el recurso es admisible y no se considera necesario convocar a una audiencia oral, la Sala dictará sentencia.
+(Así adicionado por el artículo 5° "Creación del recurso de apelación de la sentencia, otras reformas al régimen de impugnación e implementación de nuevas reglas de oralidad en el proceso penal", ley N° 8837 del 3 de mayo de 2010)
