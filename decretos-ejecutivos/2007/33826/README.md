@@ -14,3 +14,4 @@ Ratifica Plan de Desarrollo Forestal 2001-2010 (PNDF)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-18 | la propia norma |
+| 2 | 2011-12-12 | Decreto Ejecutivo 36945 (2011-12-12) |
