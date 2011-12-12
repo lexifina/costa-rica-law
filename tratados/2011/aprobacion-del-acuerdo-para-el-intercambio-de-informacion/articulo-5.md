@@ -1,0 +1,5 @@
+ARTÍCULO 5
+PRESENCIA DE FUNCIONARIOS DE UNA PARTE CONTRATANTE EN EL
+TERRITORIO DEL ESTADO DE LA OTRA PARTE CONTRATANTE
+1. En los términos permitidos por las disposiciones legislativas y administrativas de los dos Estados Contratantes, los funcionarios de una Parte Contratante podrán estar presentes en el territorio del Estado de la otra Parte Contratante, con el fin de obtener cualquier información de interés para la aplicación de los impuestos comprendidos por este Acuerdo. Las autoridades competentes de ambas Partes Contratantes determinarán de común acuerdo, respetando el principio general de reciprocidad, las condiciones y procedimientos a seguir en cuanto a dicha presencia de funcionarios.
+2. Los representantes de la autoridad requirente deben, cuando estén presentes en una inspección, estar en condiciones de, a cualquier momento, suministrar pruebas de su calidad de funcionarios con capacidad oficial y disfrutar de la misma protección concedida a los funcionarios de la Parte Contratante requerida, según las leyes allí en vigor, siendo responsables por cualquier infracción que puedan cometer.
