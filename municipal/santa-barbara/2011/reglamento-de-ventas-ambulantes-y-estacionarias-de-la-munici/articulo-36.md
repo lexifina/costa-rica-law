@@ -1,0 +1,1 @@
+Artículo 36.—Las dimensiones máximas serán de un metro de ancho por dos metros de largo y una altura máxima de dos metros. El área que ocupe un puesto estacionario no podrá ampliarse de ninguna forma, ni siquiera con toldos o plásticos o cualquier otro objeto. Queda prohibida la colocación de rótulos y anuncios comerciales.

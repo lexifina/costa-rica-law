@@ -1,0 +1,1 @@
+Artículo 17.—Firme el acuerdo que apruebe la solicitud, la Secretaría del Concejo Municipal enviará copia de esta resolución, dentro de los ocho días siguientes a la fecha de su aprobación, al Departamento de Empleo del Ministerio de Trabajo y Seguridad Social, para los fines del artículo 8º de la Ley Nº 6587, Ley de Ventas Ambulantes y Estacionarias.

@@ -1,0 +1,1 @@
+Artículo 24.—Es prohibido para un vendedor ambulante variar la ruta asignada sin la autorización expresa de la Municipalidad, salvo que por las circunstancias especiales y de fuerza mayor se obligara a cambiarla en forma temporal, de lo cual deberá informar al Departamento de Patentes Municipales.

@@ -1,0 +1,3 @@
+TÍTULO VI
+Regulaciones técnicas de los puestos
+Artículo 35.—Las características técnicas del diseño de los puestos de las ventas estacionarias serán previamente determinadas y autorizadas por el Departamento de Ingeniería Municipal. Dichos puestos deben estar diseñados de tal forma que sean de fácil remoción y no podrán estar adheridos al espacio público. Su diseño deberá garantizar la plena armonía con el ornato y el paisaje urbano y todos deberán ser pintados de color amarillo con verde. Asimismo, la estructura como tal y su ubicación deberán cumplir plenamente con las disposiciones de la Ley Nº 7600 y su Reglamento y demás normativa urbanística.

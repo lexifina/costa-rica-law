@@ -1,0 +1,1 @@
+Artículo 13.—Una vez aportada toda la documentación por parte del interesado, el Departamento de Patentes Municipales podrá solicitar el criterio técnico de otras dependencias municipales a fin de que se realicen todos los estudios del caso y se rindan los criterios técnicos correspondientes.

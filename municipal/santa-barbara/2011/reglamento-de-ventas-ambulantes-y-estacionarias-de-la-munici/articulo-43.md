@@ -1,0 +1,1 @@
+Artículo 43.—La Policía Municipal y/o cualquier otro funcionario municipal que en razón de sus funciones estén relacionados con la fiscalización de la actividad comercial, están obligados a colaborar para que las decisiones municipales tengan el debido cumplimiento.

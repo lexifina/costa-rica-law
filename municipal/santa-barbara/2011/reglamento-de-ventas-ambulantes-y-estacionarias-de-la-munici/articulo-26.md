@@ -1,0 +1,1 @@
+Artículo 26.—Cuando las circunstancias ameriten un cambio de ubicación, éstos deberán estar aprobados por el Concejo Municipal y deberá comunicárselo al interesado. Cuando se trate de ventas estacionarias, deberá contarse de previo con un dictamen técnico de la Ingeniería Municipal.

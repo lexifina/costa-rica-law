@@ -1,0 +1,1 @@
+Artículo 6º—Conforme a lo establecido en el artículo 4º de la Ley Nº 6587, Ley de Ventas Ambulantes y Estacionarias, en el otorgamiento del permiso el Concejo Municipal deberá dar preferencia a personas con alguna discapacidad, asimismo, tendrán preferencia aquellas personas -no minusválidas- que, con anterioridad, hubieran trabajado en tal actividad.

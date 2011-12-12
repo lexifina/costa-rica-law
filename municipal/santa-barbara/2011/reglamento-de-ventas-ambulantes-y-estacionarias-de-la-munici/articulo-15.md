@@ -1,0 +1,1 @@
+Artículo 15.—Una vez que el Departamento de Patentes Municipales emita su criterio deberá enviar el expediente al Concejo Municipal y éste tomará un acuerdo motivado en el que apruebe o deniegue la gestión dentro de los siguientes quince días hábiles a la fecha de recibo del expediente.

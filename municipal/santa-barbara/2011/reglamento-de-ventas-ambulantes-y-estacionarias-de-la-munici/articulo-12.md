@@ -1,0 +1,1 @@
+Artículo 12.—Siguiendo los parámetros de razonabilidad y proporcionalidad, el Departamento de Patentes Municipales o el Concejo Municipal, podrá solicitar al interesado cualquier otra información adicional necesaria para comprobar su idoneidad en el otorgamiento del permiso.
