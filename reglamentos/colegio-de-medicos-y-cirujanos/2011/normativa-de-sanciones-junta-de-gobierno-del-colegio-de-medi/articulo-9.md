@@ -1,0 +1,2 @@
+Artículo 9º—De la ejecución de la sanción.
+• La imposición de la sanción de amonestación o multa económica a un agremiado, rige a partir de su notificación en el lugar señalado por el investigado. La ejecución de la sanción de suspensión rige a partir de su publicación en La Gaceta. El Colegio llevará un archivo de los miembros del Colegio que hayan sido sancionados o que se hayan acogido a una medida alternativa a la sanción.
