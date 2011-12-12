@@ -1,0 +1,1 @@
+Artículo 15º—Mecanismos de control. Corresponderá al Instituto Mixto de Ayuda Social establecer los mecanismos de control interno correspondientes, a fin de asegurar el cumplimiento de los objetivos de Manos a la Obra y de establecer las medidas necesarias para facilitar el acceso de la población beneficiaria.

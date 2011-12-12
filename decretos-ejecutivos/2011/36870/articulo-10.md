@@ -1,0 +1,1 @@
+Artículo 10º—Duración de la transferencia y de los proyectos. Los beneficiarios podrán recibir la transferencia hasta por un plazo de un año, prorrogable, dependiendo de la duración de los proyectos en que participen, y de la disponibilidad de recursos que tenga el IMAS.
