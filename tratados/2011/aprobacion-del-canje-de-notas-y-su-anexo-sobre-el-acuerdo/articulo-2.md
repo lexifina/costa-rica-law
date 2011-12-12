@@ -1,0 +1,3 @@
+ARTÍCULO 2
+JURISDICCIÓN
+Para posibilitar la implementación de las disposiciones del presente Acuerdo, se proveerá información en conformidad con este Acuerdo por la autoridad competente de la Parte Solicitada sin consideración a si la persona con quien se relaciona la información es, o si la información es conservada por, un residente o nacional o ciudadano de una de las Partes Contratantes. Una Parte Solicitada no está obligada a proveer información que no es ni conservada por sus autoridades ni está en la posesión o en el control o accesible para personas que están dentro de su jurisdicción territorial.
