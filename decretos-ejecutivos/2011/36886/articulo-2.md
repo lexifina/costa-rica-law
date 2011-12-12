@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del Sector Público y Privado, dentro del marco legal respectivo, podrán contribuir con recursos económicos, humanos y materiales, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de esta Feria.
