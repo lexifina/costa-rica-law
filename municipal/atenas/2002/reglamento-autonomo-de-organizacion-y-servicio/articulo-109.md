@@ -1,2 +1,2 @@
-Artículo 109.—Los funcionarios de esta Municipalidad, podrán acogerse a cualquier plus salarial tales como Carrera Administrativa, Carrera Profesional, Prohibición.
-La Municipalidad pagará el beneficio de disponibilidad, equivalente a un veinte por ciento de su salario, a aquellos funcionarios que determine el Servicio Civil, previo estudio técnico de los puestos.
+Artículo 109.— Los servidores tendrán derecho a los pluses que la Municipalidad reconozca con sustento en la legislación y siempre que cumplan las condiciones respectivas.
+(Así reformado mediante sesión ordinaria N° 134 del 12 de diciembre de 2011)

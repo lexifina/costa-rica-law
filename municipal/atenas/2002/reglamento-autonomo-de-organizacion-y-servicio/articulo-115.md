@@ -2,7 +2,6 @@ Artículo 115.—La Municipalidad de Atenas deberá cancelar las prestaciones le
 a) Supresión del cargo.
 b) Jubilación.
 c) Fallecimiento.
-d) Despido con responsabilidad patronal, en caso de que no haya restitución del puesto.
-e) En caso de renuncia voluntaria del trabajador.
-Aparte de los otros extremos laborales que correspondan, el trabajador que cesare en sus funciones por cualquier de estas razones, tendrá derecho a una indemnización de un mes de salario por cada año o fracción mayor de seis meses de servicios continuos, sin límite de tiempo.
-Tal indemnización se pagará en un plazo no mayor de sesenta días naturales, con el excepción del punto c-, que se depositará el dinero en el despacho judicial que así se le ordene a la Municipalidad.
+d) Finalización del contrato con responsabilidad patronal en los términos de ley.
+En los anteriores casos la Municipalidad, además de los extremos propios de cualquier causal de cesación, reconocerá al trabajador los derechos de cesantía y preaviso de conformidad con el Código de Trabajo.
+(Así reformado mediante sesión ordinaria N° 134 del 12 de diciembre de 2011)

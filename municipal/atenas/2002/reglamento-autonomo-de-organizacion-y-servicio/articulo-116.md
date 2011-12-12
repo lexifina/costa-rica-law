@@ -1,1 +1,1 @@
-Artículo 116.—Los trabajadores que tengan tiempo anterior laborado con la institución y que por razones voluntarias o con responsabilidad patronal hayan cesado en sus funciones sin cobrar el auxilio de cesantía y que posteriormente hayan ingresado de nuevo, la Municipalidad les reconocerá el tiempo anterior servido como un solo record, para los efectos del pago de cesantía. Dicho reconocimiento será por una sola vez.
+Artículo 116.—(Derogado mediante sesión ordinaria N° 134 del 12 de diciembre de 2011)

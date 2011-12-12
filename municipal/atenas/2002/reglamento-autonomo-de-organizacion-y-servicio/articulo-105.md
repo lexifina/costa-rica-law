@@ -1,6 +1,7 @@
 CAPÍTULO XXI
 De las incapacidades para trabajar
-Artículo 105.—La Municipalidad reconocerá las ausencias al trabajo del servidor motivadas por incapacidad para trabajar, ya sea por enfermedad, maternidad o riesgo profesional, bajo las siguientes disposiciones:
-a) La incapacidad para trabajar por motivos de maternidad, se ajustará a lo que señala el artículo 95 del Código de Trabajo.
-b) Tratándose de incapacidad para trabajar por riesgo profesional, se estará a lo dispuesto en el artículo 236 de la Ley sobre Riesgos de Trabajo, y sus reformas, garantizándose en todo caso el pago del cien por ciento de su salario.
-En ningún caso de incapacidad para trabajar por enfermedad, maternidad o riesgo de trabajo, el monto del subsidio que pague la respectiva institución aseguradora sumada al que pague la Municipalidad no podrá exceder el monto del salario del servidor.
+Artículo 105.—Respecto a las ausencias del servidor motivadas por enfermedad, maternidad o riesgo profesional, se atenderán las siguientes disposiciones:
+a) La licencia por maternidad se ajustará a las regulaciones del Código de Trabajo.
+b) La incapacidad por riesgo laboral se regirá por lo dispuesto en el Código de Trabajo y sus reglamentaciones.
+c) La incapacidad por maternidad se regirá por las disposiciones vigentes de la Caja Costarricense de Seguro Social.
+(Así reformado mediante sesión ordinaria N° 134 del 12 de diciembre de 2011)

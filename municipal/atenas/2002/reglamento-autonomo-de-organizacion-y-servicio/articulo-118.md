@@ -1,1 +1,1 @@
-Artículo 118.—La Municipalidad de Atenas reconocerá, sin deducciones de cargas sociales, un salario o bono escolar, el cual consistirá en un pago equivalente a un ocho punto diecinueve por ciento del total de los salarios acumulados de enero a diciembre. El pago se hará a los servidores municipales en el mes de enero de cada año.
+Artículo 118.—(Derogado mediante sesión ordinaria N° 134 del 12 de diciembre de 2011)
