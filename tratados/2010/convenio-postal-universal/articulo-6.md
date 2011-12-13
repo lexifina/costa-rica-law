@@ -1,0 +1,10 @@
+Artículo 6
+Tasas
+1. Las tasas relativas a los diferentes servicios postales internacionales y especiales serán fijadas por las administraciones postales, de conformidad con los principios enunciados en el Convenio y los Reglamentos. Deberán en principio, guardar relación con los costes correspondientes al suministro de esos servicios.
+2. La administración postal de origen fijará las tasas de franqueo para el transporte de los envíos de correspondencia y de las encomiendas postales. Las tasas de franqueo incluyen la entrega de los envíos en el domicilio de los destinatarios, siempre que los países de destino tengan un servicio de distribución para los envíos de que se trata.
+3. Las tasas aplicadas, inclusive las fijadas en las Actas con carácter indicativo, deberán ser por lo menos iguales a las aplicadas a los envíos del régimen interno que presenten las mismas características (categoría, cantidad, plazo de tratamiento, etc.).
+4. Las administraciones postales estarán autorizadas a sobrepasar todas las tasas indicativas que figuran en las Actas.
+5. Por encima del límite mínimo de las tasas fijado en 3, las administraciones postales tendrán la facultad de conceder tasas reducidas basadas en su legislación interna para los envíos de correspondencia y las encomiendas postales depositados en su país. Tendrán especialmente la posibilidad de otorgar tarifas preferenciales a sus clientes que tengan un importante tráfico postal.
+6. Se prohíbe cobrar a los clientes tasas postales de cualquier naturaleza, fuera de las que se determinan en las Actas.
+7. Salvo los casos determinados por las Actas, cada administración postal se quedará con las tasas que hubiere cobrado.
+(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internacional "Protocolo Final del Convenio Posta Universal" , N° 8895 del 10 de noviembre de 2010 se establece lo siguiente: "... Por derogación del artículo 6, las administraciones postales de Australia, de Canadá y de Nueva Zelanda estarán autorizadas a cobrar tasas postales distintas de las previstas en los Reglamentos, cuando las tasas en cuestión sean admisibles según la legislación de su país...")

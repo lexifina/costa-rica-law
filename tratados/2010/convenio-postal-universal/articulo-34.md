@@ -1,0 +1,13 @@
+Artículo 34
+Cuotas-parte territoriales y marítimas de las encomiendas postales
+1. Las encomiendas intercambiadas entre dos administraciones postales estarán sujetas al pago de cuotas-parte territoriales de llegada calculadas combinando la tasa básica por encomienda y la tasa básica por kilogramo fijadas en el Reglamento.
+1.1 Teniendo en cuenta esas tasas básicas, las administraciones postales podrán, además, ser autorizadas a cobrar tasas suplementarias por encomienda y por kilogramo, de conformidad con las disposiciones establecidas en el Reglamento.
+1.2 Las cuotas-parte fijadas en 1 y 1.1 estarán a cargo de la administración del país de origen, salvo que el Reglamento relativo a Encomiendas Postales prevea derogaciones a ese principio.
+1.3 Las cuotas-parte territoriales de llegada deberán ser uniformes para todo el territorio de cada país.
+2. Las encomiendas intercambiadas entre dos administraciones o entre dos oficinas del mismo país, por medio de los servicios terrestres de una o de varias administraciones estarán sujetas, en provecho de los países cuyos servicios participen en el encaminamiento territorial, al pago de las cuotas-parte territoriales de tránsito fijadas en el Reglamento según el escalón de distancia.
+2.1 Para las encomiendas en tránsito al descubierto, las administraciones intermediarias estarán autorizadas a reclamar la cuota-parte fija por envío fijada en el Reglamento.
+2.2 Las cuotas-parte territoriales de tránsito estarán a cargo de la administración del país de origen, salvo que el Reglamento relativo a Encomiendas Postales prevea derogaciones a ese principio.
+3. Cada uno de los países cuyos servicios participen en el transporte marítimo de las encomiendas estará autorizado a reclamar cuotas-parte marítimas. Estas cuotas-parte estarán a cargo de la administración del país de origen, a menos que el Reglamento relativo a Encomiendas Postales determine derogaciones a este principio.
+3.1 Para cada servicio marítimo utilizado, la cuota-parte marítima se fijará en el Reglamento relativo a Encomiendas Postales según el escalón de distancia.
+3.2 Las administraciones postales tendrán la facultad de aumentar en un 50 por ciento como máximo la cuota-parte marítima calculada conforme a 3.1. En cambio, podrán reducirla a voluntad.
+(Nota de Sinalevi: Mediante el artículo 14 del Tratado Internacional "Protocolo Final del Convenio Posta Universal" , N° 8895 del 10 de noviembre de 2010 se establece lo siguiente: "... Por derogación del artículo 34, la administración postal de Afganistán se reserva el derecho de cobrar una cuota-parte territorial excepcional de llegada suplementaria de 7,50 DEG por encomienda...")

@@ -1,0 +1,12 @@
+Artículo 16
+Materias radiactivas y materias biológicas admisibles
+1. Se admitirán materias radiactivas en los envíos de correspondencia y en las encomiendas postales, en el marco de las relaciones entre las administraciones postales que hubieren convenido la aceptación de estos envíos, ya sea en sus relaciones recíprocas o en un solo sentido, en las condiciones siguientes:
+1.1 las materias radiactivas se acondicionarán y embalarán según las disposiciones correspondientes de los Reglamentos;
+1.2 cuando se expidan en envíos de correspondencia, estarán sujetas al pago de la tarifa de los envíos prioritarios o de la tarifa de las cartas y a la certificación;
+1.3 las materias radiactivas contenidas en los envíos de correspondencia o en las encomiendas postales deberán encaminarse por la vía más rápida, normalmente por vía aérea, bajo reserva del pago de las sobretasas aéreas correspondientes;
+1.4 las materias radiactivas sólo podrán ser depositadas por expedidores debidamente autorizados.
+2. Se admitirán las materias biológicas en los envíos de correspondencia en las condiciones siguientes:
+2.1 Las materias biológicas perecederas, las sustancias infecciosas y el dióxido de carbono sólido (hielo seco), cuando se utilice para refrigerar sustancias infecciosas, sólo podrán intercambiarse por correo entre laboratorios calificados oficialmente reconocidos. Estas mercaderías peligrosas podrán aceptarse en el correo para su encaminamiento por avión siempre que la legislación nacional, las Instrucciones Técnicas de la Organización de Aviación Civil Internacional (OACI) vigentes y los reglamentos de la IATA sobre mercaderías peligrosas lo permitan.
+2.2 Las materias biológicas perecederas y las sustancias infecciosas acondicionadas y embaladas según las disposiciones correspondientes del Reglamento estarán sujetas al pago de la tarifa de los envíos prioritarios o de la tarifa de las cartas y a la certificación. Podrá cobrarse una tasa suplementaria por el tratamiento de estos envíos.
+2.3 La admisión de materias biológicas perecederas y de sustancias infecciosas se limitará a los Países miembros cuyas administraciones postales hubieren convenido la aceptación de estos envíos, ya sea en sus relaciones recíprocas o en un solo sentido.
+2.4 Estas materias o sustancias se encaminarán por la vía más rápida, normalmente por vía aérea, bajo reserva del pago de las sobretasas aéreas correspondientes, y gozarán de prioridad en la entrega.
