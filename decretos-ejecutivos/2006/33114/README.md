@@ -15,3 +15,4 @@ Reglamento para el Reajuste de Precios en los Contratos de Obra Pública de Cons
 | --- | --- | --- |
 | 1 | 2006-05-17 | la propia norma |
 | 2 | 2006-07-14 | Decreto Ejecutivo 33218 (2006-07-14) |
+| 3 | 2011-12-13 | Decreto Ejecutivo 36943 (2011-12-13) |

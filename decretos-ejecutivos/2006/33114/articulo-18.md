@@ -4,16 +4,16 @@ En donde,
 RP Representa el monto total de reajuste de precios periódica.
 EPA Representa el monto de la estimación periódica del avance.
 CDM Representa la ponderación del monto total a precios iniciales de los Costos en Mano de Obra Directa presupuestados.
-CD1 Representa la ponderación del monto total a precios iniciales de los Costos de Insumos Directos presupuestados.
+CDI Representa la ponderación del monto total a precios iniciales de los Costos de Insumos Directos presupuestados.
 CIM Representa la ponderación del monto total a precios iniciales de los Costos en Mano de Obra Indirecta presupuestados.
 CII Representa la ponderación del monto total a precios iniciales de los Costos de Insumos Indirectos presupuestados.
 CE Representa la ponderación del monto total a precios iniciales del costo total de los insumos y servicios específicos.
-IME1 Representa el índice de precios de mano de obra directa para construcción para el mes de facturación.
-IME0 Representa el valor del índice de precios inicial de mano de obra directa para construcción.
-IOIE1 Representa el índice de precios de edificaciones para el mes de facturación.
-IOIE0 Representa el valor del índice de precios inicial de edificaciones.
-ISM1 Representa el índice de precios de mano de obra indirecta para el mes de facturación.
-ISM0 Representa el valor del índice de precios inicial de mano de obra indirecta.
-IPC 1 Representa el índice de precios al consumidor para el mes de facturación.
-IPC 0 Representa el valor del índice de precios inicial al consumidor.
-RA Cambio porcentual del precio que se determinará por método analítico, conforme se establece en el artículo 20 siguiente del presente Reglamento.
+[imagen]
+Representa el Índice de Salarios Mínimos Nominales para la actividad de construcción para el mes de facturación.
+[imagen] Representa el valor del Índice de Salarios Mínimos Nominales para la actividad de construcción inicial.
+[imagen] Representa el Índice de Precios de Edificaciones respectivo, sea el Índice precios de Edificios o el Índice de Precios de Vivienda de Interés Social para el mes de facturación.
+[imagen] Representa el Índice de Precios de Edificaciones respectivo, sea el Índice precios de Edificios o el Índice de Precios de Vivienda de Interés Social inicial.
+IPC1 Representa el Índice de Precios al Consumidor para el mes de facturación.
+IPC0 Representa el valor del Índice de Precios al Consumidor inicial.
+RAi Cambio porcentual del precio que se determinará por método analítico, conforme se establece en el artículo 20 siguiente del presente Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36943 del 13 de diciembre del 2011)
