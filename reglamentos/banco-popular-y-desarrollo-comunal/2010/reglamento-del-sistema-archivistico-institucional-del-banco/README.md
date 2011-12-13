@@ -14,3 +14,4 @@ Reglamento del Sistema Archivístico Institucional del Banco Popular y de Desarr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-05 | la propia norma |
+| 2 | 2011-12-13 | Reglamento 4921 (2011-12-13) |
