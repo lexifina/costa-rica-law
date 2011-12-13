@@ -1,1 +1,3 @@
-Artículo 15.—Venta directa por concurso infructuoso. Si no se recibieren ofertas de compra dentro del plazo indicado en la publicación, el Banco podrá recibirlas directamente dentro de los quince días naturales siguientes al vencimiento de este plazo; y con base en el principio primero en tiempo primero en derecho, acordará la venta del bien si la oferta cumple con los requisitos exigidos en la publicación, o la desestimará de no convenir a sus intereses, de todo lo cual se deberá dejar constancia en el expediente.
+Artículo 15.—El Banco podrá solicitar a los oferentes la cancelación de hasta un 2% de garantía de participación, el cual deberán cancelar antes de presentar su oferta.
+En caso que el adjudicatario no cancele ni las arras, ni el precio de venta en el plazo aprobado, el Banco procederá a ejecutar el depósito de garantía solicitado.
+(Así reformado en sesión N° 4921 del 13 de diciembre del 2011)

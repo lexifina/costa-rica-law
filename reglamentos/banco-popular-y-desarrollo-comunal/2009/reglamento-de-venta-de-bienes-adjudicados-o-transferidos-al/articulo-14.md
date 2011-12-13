@@ -1,7 +1,11 @@
-Artículo 14.—Publicación de ventas y descuentos. Salvo los casos indicados en el artículo 6 de este Reglamento, la venta de los bienes contemplados por este Reglamento se promoverá mediante publicación en al menos un periódico de circulación nacional. De estimarse conveniente, podrá publicarse también en cualquier otro medio idóneo.
+Artículo 14.—Publicación de ventas y descuentos. Salvo los casos indicados en el artículo 6º de este Reglamento, la venta de bienes contemplados en este Reglamento se promoverá de la siguiente manera: mediante publicación en al menos un periódico de circulación nacional. De estimarse conveniente, podrá publicarse también en cualquier otro medio idóneo.
+Venta por sitio electrónico de Internet: el Banco usará su página Web, para publicar todos los bienes disponibles para la venta, además indicará la fecha máxima de recepción de ofertas para cada uno de los bienes en concurso, los requisitos para ofertar y las condiciones mínimas requeridas.
+Diario de Circulación Nacional: consiste en una publicación mensual en al menos un periódico de circulación nacional.
+Método por Venta Directa: si no se recibieron ofertas de compra dentro del plazo indicado en la publicación de la Web y en el periódico de circulación nacional, el Banco podrá recibir ofertas directas hasta el día anterior a la próxima publicación; y con base en el principio primero en tiempo primero en derecho, acordará la venta del bien si la oferta cumple con los requisitos exigidos en la publicación, o la desestimará de no convenir a sus intereses, de todo lo cual se deberá constancia en el expediente.
 Cuando un bien no se vendiere luego de haberse ofertado, se promoverá nuevamente su venta, la cual deberá realizarse dentro de los 30 días naturales luego de fracasada la misma, en el tanto el avalúo se encuentre vigente; caso contrario, deberá gestionarse un nuevo avalúo.
 Las publicaciones y descuentos se efectuarán de la siguiente manera:
 • La primera y segunda publicación con el precio del avalúo vigente.
-• La tercera publicación con una rebaja hasta del 15% del avalúo vigente.
-• La cuarta publicación con una rebaja hasta del 20% del avalúo vigente.
-• La quinta publicación y siguiente con una rebaja de hasta un 25% como máximo de descuento del avalúo vigente. En caso de que a pesar del descuento del 25% sobre el precio del bien, aún no haya sido posible su venta, se continuará publicando la venta, efectuando descuentos del 5% hasta un máximo total de descuentos del 50% del avalúo vigente.
+• La tercera publicación con una rebaja hasta el 15% del avalúo vigente.
+• La cuarta publicación con una rebaja hasta el 20% del avalúo vigente.
+• La quinta y siguiente con una rebaja de hasta un 25% como máximo de descuento del avalúo vigente. En caso de que a pesar del descuento del 25% sobre el precio del bien, aún no haya sido posible su venta, se continuará publicando la venta, efectuando descuentos del 5% hasta un máximo total de descuentos del 50% del avalúo vigente.
+(Así reformado en sesión N° 4921 del 13 de diciembre del 2011)
