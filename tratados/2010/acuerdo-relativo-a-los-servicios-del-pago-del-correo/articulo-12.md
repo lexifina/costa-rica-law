@@ -1,0 +1,5 @@
+Artículo 12
+Tasas
+1. La administración postal de emisión determinará libremente la tasa a cobrar al efectuarse la emisión. A esta tasa principal agregará eventualmente las tasas correspondientes a servicios especiales prestados al expedidor.
+2. Las transferencias intercambiadas, por intermedio de un país que sea parte en el presente Acuerdo, entre un país contratante y un país no contratante podrán ser gravadas por la administración intermediaria con una tasa suplementaria, cuyo monto se convendrá entre las administraciones interesadas y se descontará del importe de la transferencia. Sin embargo, esta tasa podrá cobrarse al expedidor y asignarse a la administración del país intermediario, si las administraciones interesadas se hubieren puesto de acuerdo a este efecto.
+3. Estarán exonerados de cualquier tasa los documentos, los títulos y las órdenes de pago relativos a las transferencias postales intercambiadas entre las administraciones postales por correo, en las condiciones fijadas en los artículos RL 110 y RL 111.

@@ -1,0 +1,5 @@
+Artículo 4
+Tasas
+1. La administración postal de emisión determinará libremente las tasas a cobrar al efectuarse la emisión.
+2. Los giros postales intercambiados, por intermedio de un país que sea parte en el presente Acuerdo, entre un país contratante y un país no contratante podrán ser gravados por una administración intermediaria con una tasa suplementaria determinada por esta última en función de los gastos originados por las operaciones que efectúa, cuyo monto se convendrá entre las administraciones postales interesadas y se descontará del importe del giro postal. Sin embargo, esta tasa podrá cobrarse al expedidor y asignarse a la administración postal del país intermediario, si las administraciones postales interesadas se hubieren puesto de acuerdo a este efecto.
+3. Estarán exonerados de cualquier tasa los documentos, los títulos y las órdenes de pago relativos a las transferencias de fondos postales intercambiados entre las administraciones postales por correo, en las condiciones fijadas en los artículos RL 110 y RL 111.
