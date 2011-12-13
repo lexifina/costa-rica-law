@@ -1,0 +1,7 @@
+Artículo 8
+Presidencias y Vicepresidencias del Congreso y de las Comisiones
+1. En su primera sesión plenaria, el Congreso, a propuesta del Decano, elegirá al Presidente del Congreso y luego aprobará, a propuesta del Consejo de Administración, la designación de los Países miembros que asumirán las Vicepresidencias del Congreso, así como las Presidencias y las Vicepresidencias de las Comisiones. Estas funciones se asignarán teniendo en cuenta, en lo posible, la repartición geográfica equitativa de los Países miembros.
+2. Los Presidentes procederán a la apertura y clausura de las sesiones que presidan, dirigirán las discusiones, darán la palabra a los oradores, pondrán a votación las proposiciones e indicarán la mayoría requerida para los votos, proclamarán las decisiones y, bajo reserva de la aprobación del Congreso, darán eventualmente una interpretación de esas decisiones.
+3. Los Presidentes velarán por el respeto del presente Reglamento y por el mantenimiento del orden durante las sesiones.
+4. Cualquier delegación podrá apelar, ante el Congreso o la Comisión, contra una decisión tomada por el Presidente de éstos, basándose en una disposición del Reglamento o una interpretación de éste; sin embargo, la decisión del Presidente mantendrá su validez mientras no sea anulada por la mayoría de los miembros presentes y votantes.
+5. Si el País miembro encargado de la Presidencia se viere imposibilitado de ejercer esta función, el Congreso o la Comisión designará a uno de los Vicepresidentes para reemplazarlo.

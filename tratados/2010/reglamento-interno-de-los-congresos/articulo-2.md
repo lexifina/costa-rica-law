@@ -1,0 +1,5 @@
+Artículo 2
+Delegaciones
+1. Por el término «delegación» se entiende la persona o el conjunto de personas designadas por un País miembro para participar en el Congreso. La delegación se compondrá de un jefe de delegación y, dado el caso, de un suplente del Jefe de delegación, de uno o varios delegados y, eventualmente, de uno o varios funcionarios adjuntos (incluyendo expertos, secretarios, etc.).
+2. Los Jefes de delegación y sus suplentes, así como los delegados, serán los representantes de los Países miembros, según el artículo 14.2 de la Constitución, cuando estuvieren provistos de poderes que se ajusten a las condiciones fijadas por el artículo 3 del presente Reglamento.
+3. Los funcionarios adjuntos se admitirán en las sesiones y tendrán derecho a participar en las deliberaciones, pero en principio no tendrán derecho a voto. Sin embargo, podrán ser autorizados por el Jefe de su delegación para votar en nombre de su país en las sesiones de las Comisiones. Tales autorizaciones se entregarán por escrito antes del comienzo de la sesión al Presidente de la Comisión correspondiente.

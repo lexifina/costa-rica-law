@@ -1,0 +1,9 @@
+Artículo 15
+Proposiciones
+1. Todos los asuntos sometidos al Congreso darán lugar a proposiciones.
+2. Todas las proposiciones publicadas por la Oficina Internacional antes de la apertura del Congreso se considerarán como sometidas al Congreso.
+3. Dos meses antes de la inauguración del Congreso no se tomará en consideración ninguna proposición, salvo aquellas que tiendan a la enmienda de proposiciones anteriores.
+4. Se considerará como enmienda cualquier proposición de modificación que, sin alterar el fondo de la proposición, implique una supresión, un agregado a una parte de la proposición original o la revisión de una parte de esta proposición. Ninguna proposición de modificación se considerará como enmienda si es incompatible con el sentido o la intención de la proposición original. En los casos dudosos, corresponderá decidir al Congreso o a la Comisión.
+5. Las enmiendas presentadas ante el Congreso con respecto a proposiciones ya efectuadas deberán entregarse por escrito, en lengua francesa, en la Secretaría, antes del mediodía de la antevíspera de su puesta a discusión, de manera que puedan ser distribuidas en el mismo día a los delegados. Este plazo no se aplicará a las enmiendas resultantes directamente de las discusiones en el Congreso o en las Comisiones. En este último caso, si ello fuere solicitado, el autor de la enmienda deberá presentar su texto, por escrito, en lengua francesa, o en caso de dificultad en cualquiera otra de las lenguas de debate. El Presidente correspondiente le dará o le hará dar lectura.
+6. El procedimiento dispuesto en 5 se aplicará, asimismo, a la presentación de las proposiciones que no tiendan a modificar el texto de las Actas (proyectos de resoluciones, recomendaciones, votos, etc.).
+7. Toda proposición o enmienda deberá presentar la forma definitiva del texto que tiende a introducir en las Actas de la Unión, siempre bajo reserva de su puesta a punto por la Comisión de Redacción.

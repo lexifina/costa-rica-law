@@ -1,0 +1,7 @@
+Artículo 23
+Elección del Director General y del Vicedirector General de la Oficina Internacional
+1. Las elecciones del Director General y del Vicedirector General de la Oficina Internacional se llevarán a cabo por votación secreta en una o varias sesiones sucesivas realizadas el mismo día. Se considerará elegido el candidato que hubiere obtenido la mayoría de sufragios expresados por los Países miembros presentes y votantes. Se procederá a tantas votaciones como sea necesario para que un candidato obtenga dicha mayoría.
+2. Serán considerados como Países miembros presentes y votantes los que voten por uno de los candidatos anunciados regularmente; las abstenciones no se tomarán en consideración en el recuento de los votos necesarios para constituir la mayoría, ni tampoco las papeletas en blanco o nulas.
+3. Cuando la cantidad de abstenciones y de papeletas en blanco o nulas fuere superior a la mitad de la cantidad de sufragios expresados de conformidad con el párrafo 2, la elección se postergará para una sesión ulterior en la cual las abstenciones, así como las papeletas en blanco o nulas, no se tomarán en cuenta.
+4. El candidato que hubiere obtenido menos votos en un escrutinio quedará eliminado.
+5. En caso de empate, se procederá a una primera e incluso a una segunda votación suplementaria buscando el desempate de los candidatos ex aequo, votándose únicamente por ellos. Si el resultado fuere negativo, se decidirá por sorteo. El sorteo será efectuado por el Presidente.
