@@ -60,8 +60,9 @@ de 2012
 DE CEREALES
 1103.1 - Grañones y sémola:
 1103.19 - - De los demás cereales:
-1103.19.90 - - - Otros 5 1 de enero
+(*)1103.19.90 - - - Otros 5 1 de enero
 de 2012
+(*)(Nota de Sinalevi: Dejado sin efecto el inciso arancelario anterior por Resolución N° 272-2011 (COMIECO LXI), aprobada por decreto ejecutivo N° 36940 del 13 de diciembre de 2011)
 1103.20 - “Pellets”:
 1103.20.10 - - De trigo 5 1 de enero
 de 2012

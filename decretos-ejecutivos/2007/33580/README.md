@@ -14,3 +14,4 @@ Publica Resolución N° 189-2006 (COMIECO-XLI) Aprueba modificaciones a los Dere
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-22 | la propia norma |
+| 2 | 2011-12-13 | Decreto Ejecutivo 36940 (2011-12-13) |
