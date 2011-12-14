@@ -1,0 +1,1 @@
+Artículo 8º—Libre acceso. La Contraloría tendrá libre acceso a todas las dependencias, así como a los expedientes para efectos de su competencia, y sobre los que tendrá el deber de confidencialidad. En el ejercicio de sus funciones podrá visitar las oficinas sin previo aviso y requerir de ellas documentos e información necesarias para el adecuado cumplimiento de sus atribuciones.

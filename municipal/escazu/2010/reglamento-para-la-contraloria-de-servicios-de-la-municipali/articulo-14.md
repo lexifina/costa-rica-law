@@ -1,0 +1,1 @@
+Artículo 14.—Informes y recomendaciones. Los informes y recomendaciones que emita la Contraloría deberán ser remitidos a la dirección superior, que estar facultado para tomar las acciones que en éstos se evidencien como necesarias para el mejoramiento del servicio.

@@ -1,0 +1,1 @@
+Artículo 18.—Deber de registro. La Contraloría, deberán mantener un registro actualizado de todos los asuntos planteados y tramitados. Este registro dará origen al informe anual que debe emitir, en el cual se indicarán la naturaleza y frecuencia de las denuncias.

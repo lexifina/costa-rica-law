@@ -1,0 +1,1 @@
+Artículo 5º—Estructura. La Contraloría de Servicios estará bajo la responsabilidad de un Contralor. Estará integrada además por el personal adecuado para llevar a cabo las labores que se le encomienden, sin detrimento de las estructuras básicas funcionales que deban establecerse como consecuencia de necesidades posteriores.
