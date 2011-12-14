@@ -14,3 +14,4 @@ Reglamento que regula la formalización y suscripción de arreglos y convenios d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-19 | la propia norma |
+| 2 | 2011-12-14 | Reglamento 8550 (2011-12-14) |
