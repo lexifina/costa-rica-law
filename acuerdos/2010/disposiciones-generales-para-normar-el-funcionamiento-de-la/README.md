@@ -20,3 +20,4 @@ Disposiciones generales para normar el funcionamiento de la Autoridad Reguladora
 | 5 | 2011-03-30 | Reglamento 21 (2011-03-30) |
 | 6 | 2011-09-28 | Reglamento 62 (2011-09-28) |
 | 7 | 2011-10-26 | Reglamento 66 (2011-10-26) |
+| 8 | 2011-12-14 | Reglamento 75 (2011-12-14) |
