@@ -1,0 +1,1 @@
+Artículo 18.—Es responsabilidad de la jefatura inmediata y del funcionario realizar una adecuada programación del trabajo, con el propósito de evitar desplazamientos innecesarios, tratando siempre de cubrir el máximo posible de labores para que no se genere recorridos adicionales.

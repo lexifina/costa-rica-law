@@ -1,0 +1,3 @@
+Artículo 6º—Cuando por cualquier medio y de manera fehaciente, la Administración demuestre irregularidades en el uso de los vehículos arrendados, o bien varíen las condiciones que originaron el contrato, la Gerencia General dictará la resolución de rescisión que excluirá al funcionario del sistema.
+Será responsabilidad tanto del funcionario como de la Jefatura inmediata, informar por escrito al Área de Transportes, o bien directamente al Centro de Servicios de Apoyo, las variaciones que se den en cualquiera de las condiciones que fundamentaron el contrato.
+Si con posterioridad a la rescisión del contrato, surge una situación donde el AyA requiera contratar nuevamente el pago de kilometraje, el servidor deberá realizar de nuevo toda la tramitación.

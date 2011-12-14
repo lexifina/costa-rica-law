@@ -1,0 +1,1 @@
+Artículo 5º—Cuando un funcionario por motivo de su trabajo debe transportar equipos o herramientas del AYA en su vehículo, y éstas fueran extraviadas o deterioradas, se procederá de conformidad con las normas que tiene establecidas el AYA para el control y uso de herramientas y equipos.

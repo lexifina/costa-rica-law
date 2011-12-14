@@ -1,0 +1,1 @@
+Artículo 39.—El Sistema a que se refiere este Reglamento, comprende el kilometraje recorrido para el cumplimiento exclusivo de los propósitos contratados, en consecuencia no podrán autorizarse a cobrar kilometraje por el traslado de funcionarios de sus casas de habitación al lugar habitual de trabajo, ni a cualquier otro evento que no se relacione directamente con sus funciones.

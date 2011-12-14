@@ -1,0 +1,1 @@
+Artículo 9º—El Área de Transportes determinará al evaluar las solicitudes de ingreso al Sistema, la idoneidad del vehículo propuesto en cada caso, con base en el análisis de los sitios a visitar y los tipos de camino a recorrer, lo anterior a fin de considerar si la tarifa a pagar es por vehículo liviano o rural.

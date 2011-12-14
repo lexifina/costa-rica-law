@@ -1,0 +1,1 @@
+Artículo 29.—En cualquier momento, de mutuo acuerdo o de manera unilateral, cualquiera de las partes, podrá ponerle término al contrato de pago de kilometraje, para lo cual se suscribirá el respectivo escrito entre la Gerencia General y el funcionario, sin que ello implique ninguna responsabilidad para alguna de las partes.

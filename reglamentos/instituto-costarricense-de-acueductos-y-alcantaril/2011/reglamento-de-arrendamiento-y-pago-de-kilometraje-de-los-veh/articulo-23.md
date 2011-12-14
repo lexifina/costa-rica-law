@@ -1,0 +1,1 @@
+Artículo 23.—El AyA reconocerá los pagos por concepto de peajes, transbordadores y estacionamientos que deba cancelar el funcionario durante la realización de sus trabajos y actividades Institucionales, en cuyo caso deberá presentar los respectivos comprobantes junto con la liquidación de kilometraje respectiva.

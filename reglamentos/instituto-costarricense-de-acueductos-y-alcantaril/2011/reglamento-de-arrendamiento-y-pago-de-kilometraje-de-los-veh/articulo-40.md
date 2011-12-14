@@ -1,0 +1,1 @@
+Artículo 40.—El presente reglamento deroga el “Reglamento de uso de vehículos de funcionarios de AyA”, emitido mediante acuerdo de Junta Directiva en la sesión ordinaria número 97-052, del 27 de octubre de 1997, acuerdo NQ 97-322, Publicado en La Gaceta Nº 15 del jueves 22 de enero de 1998, pág. 32.
