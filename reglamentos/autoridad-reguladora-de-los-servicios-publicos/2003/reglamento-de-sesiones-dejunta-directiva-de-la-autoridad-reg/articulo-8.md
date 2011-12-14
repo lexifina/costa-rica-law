@@ -1,1 +1,0 @@
-Artículo 8º—Recurso de revisión contra acuerdos. En el caso de que algún miembro de la Junta interponga recurso de revisión contra un acuerdo adoptado por la Junta, el recurso será resuelto siguiendo el procedimiento previsto al efecto, en la Ley General de la Administración Pública.
