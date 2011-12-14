@@ -1,0 +1,1 @@
+3. La administración aduanera otorgará a las personas físicas o jurídicas autorizadas en la condición de OEA, en el PROFAC, beneficios, los cuales no podrán transmitirse o cederse de forma alguna, por lo que el uso y aplicación de los mismos queda estrictamente restringido a su beneficiario.
