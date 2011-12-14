@@ -1,0 +1,3 @@
+SECCIÓN VI
+Trámite de denuncias
+Artículo 49.—TRÁMITE DE DENUNCIAS. La Auditoría Interna dará trámite a las denuncias que presenten los ciudadanos en forma escrita y, excepcionalmente, en forma verbal o por cualquier otro medio. Los funcionarios públicos tienen el deber de denunciar ante las autoridades competentes los presuntos actos de corrupción de los que tengan conocimiento que se produzcan en ejercicio de la función pública, según lo establecido en la Ley de Control Interno y la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, para atender estas denuncias se pondrá a disposición mecanismos de recepción apropiados que permitan ofrecer una atención y trámite oportuno y seguro a criterio del Auditor(a) Interno(a).

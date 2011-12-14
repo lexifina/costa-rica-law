@@ -1,0 +1,1 @@
+Artículo 3º—ÁMBITO DE APLICACIÓN. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la AISBD y para el resto de los funcionarios de la Institución, en la materia que les fuere aplicable.

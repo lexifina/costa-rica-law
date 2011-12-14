@@ -1,0 +1,3 @@
+SECCIÓN II
+Planificación de la Auditoría Interna
+Artículo 29.—PLANIFICACIÓN ESTRATÉGICA. El auditor(a) interno(a) debe establecer una planificación estratégica, en la que se plasmen la misión, visión y la orientación de la auditoría interna, y que sea congruente con la visión, la misión y los objetivos institucionales. Dicho proceso debe cubrir los ámbitos estratégico y operativo, considerando la determinación del universo de auditoría, los riesgos institucionales y otros criterios relevantes. Este proceso se desarrolla de acuerdo con lo que establece el Manual de Procedimientos y Funcionamiento de la AISBD y se documentará, dejando evidencia del proceso desarrollado.

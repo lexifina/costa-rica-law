@@ -1,0 +1,5 @@
+CAPÍTULO SEGUNDO
+Organización de la Auditoría Interna
+SECCIÓN II
+Naturaleza de la Auditoría Interna
+Artículo 5º—PROPÓSITO. La AISBD es la actividad independiente, objetiva y asesora que proporciona seguridad al Máximo Jerarca en su rectoría del SBD, puesto que se crea para validar y mejorar sus operaciones. Contribuye a que se alcancen los objetivos Institucionales relacionados con la definición de políticas y estrategias del Sistema de Banca para el Desarrollo, dirigidos a desarrollar mecanismos especializados de acceso al financiamiento para proyectos productivos de emprendedores, pequeños productores, micro, pequeñas y medianas empresas, en carácter individual o asociativo en todas las regiones del país, por medio de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración de riesgos, del control y de los procesos de dirección, en el desarrollo de este fin. Proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto, de la administración se ejecuta conforme al marco legal y técnico y a las sanas prácticas, todo de acuerdo con el bloque de legalidad y la competencia Institucional.

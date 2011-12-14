@@ -1,0 +1,9 @@
+Artículo 21.—PROHIBICIONES. De conformidad con lo dispuesto en el artículo 34 de la Ley General de Control Interno, el Auditor (a) Interno (a) y los demás funcionarios de la Auditoría Interna, tendrán las siguientes prohibiciones:
+a) Realizar funciones y actuaciones de administración activa, salvo las necesarias para cumplir su competencia.
+b) Los funcionarios de la Auditoría no deberán ser parte de grupos de trabajo o comisiones que ejerzan función propia de la administración activa; en caso de requerirse por parte del Máximo Jerarca, la participación será exclusivamente en función de asesor, en asuntos de su competencia.
+c) Formar parte de un órgano director de un procedimiento administrativo.
+d) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia.
+e) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
+f) Revelar información sobre los servicios de auditoría que se estén realizando o se hayan realizado sin utilizar los mecanismos autorizados para la Institución.
+g) Revelar información sobre aquellos hechos que eventualmente determinen una posible responsabilidad civil, administrativa o penal de los funcionarios a nivel Institucional, que haya sido objeto o lo esté siendo, de un servicio de auditoría interna.
+h) Los funcionarios de la Auditoría Interna no auditarán operaciones específicas de las cuales fueron responsables como funcionarios de la Administración, proveedores u otras relaciones en los doce meses anteriores a su nombramiento en la Auditoría Interna.

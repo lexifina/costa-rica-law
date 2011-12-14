@@ -1,0 +1,3 @@
+Artículo 34.—PLANIFICACIÓN PUNTUAL. El Auditor(a) Interno(a) y los funcionarios de la AISBD, según proceda, deben realizar una planificación puntual de cada servicio de auditoría siguiendo lo que establece el Manual de Procedimientos y Funcionamiento de la AISBD.
+Esta planificación debe ajustarse si es necesario, conforme a los resultados que se vayan obteniendo durante la ejecución del servicio, y si se requiere brindar un servicio adicional, debe valorarse la oportunidad en que este ha de prestarse, y realizar las acciones procedentes, valoración que deberá realizar el Auditor Interno.
+En el caso de los servicios preventivos, la planificación puntual se debe realizar en lo que resulte procedente

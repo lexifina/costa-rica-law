@@ -1,0 +1,1 @@
+Artículo 40.—FORMA DE COMUNICACIÓN. Los resultados de los servicios de auditoría prestados por la Auditoría Interna en el ejercicio de sus competencias, se comunicarán mediante informes, tanto en forma oral como por escrito.

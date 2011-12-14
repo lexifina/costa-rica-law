@@ -1,0 +1,3 @@
+SECCIÓN III
+Ejecución
+Artículo 35.—EJECUCIÓN. El desarrollo de las diferentes etapas que conlleva la ejecución de los estudios de auditoría, se regirá por lo establecido en el Manual de Procedimientos y Funcionamiento de la AISBD. Además, la Auditoría Interna ejecutará su trabajo de acuerdo con lo que establece el presente Reglamento, las normas de ejecución de la auditoría contenidas en el Manual de Normas Generales de Auditoría para el Sector Público y las Normas para el Ejercicio de la Auditoría Interna en el Sector Público, ambos de la Contraloría General de la República, así como cualesquiera otras disposiciones que al efecto dicte el Órgano Contralor.

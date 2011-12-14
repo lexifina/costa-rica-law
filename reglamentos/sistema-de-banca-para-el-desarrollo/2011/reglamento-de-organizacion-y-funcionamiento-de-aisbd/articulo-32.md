@@ -1,0 +1,1 @@
+Artículo 32.—CONTROL DEL PLAN ANUAL DE TRABAJO. El Auditor (a) Interno (a) debe ejercer un control continuo de la ejecución del plan anual de trabajo, en procura de la debida medición de resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.
