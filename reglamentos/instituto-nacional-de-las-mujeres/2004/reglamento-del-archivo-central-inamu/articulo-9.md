@@ -1,1 +1,0 @@
-Artículo 9º—El Manual de procedimientos del Archivo Central y los Archivos de Gestión debe establecer los plazos o fechas en que se recibirán documentos para cada unidad administrativa y deberá comunicarlo por escrito a las/os encargadas/os de Archivos de Gestión.

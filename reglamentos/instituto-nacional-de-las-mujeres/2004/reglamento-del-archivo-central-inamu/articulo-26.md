@@ -1,1 +1,0 @@
-Artículo 26.—Las donaciones o cesión de documentos deben contar con un estudio previo del Comité Institucional de Selección y Eliminación de Documentos donde se compruebe la utilidad y validez de la información. Con base en este estudio se aprueba o imprueba la recepción de la donación.
