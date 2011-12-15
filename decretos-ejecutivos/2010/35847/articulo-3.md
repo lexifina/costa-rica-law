@@ -1,3 +1,4 @@
-Artículo 3º—Bases de Operación. En las bases de operación especial se tendrá una parada terminal, que será definida en el cartel de licitación, por lo que será desde dicho lugar que se realizará el servicio.
+Artículo 3º—Bases de Operación. En las bases de operación especiales con fines turísticos se deben establecer por parte del Consejo de Transporte Público los lugares donde los usuarios pueden hacer uso del servicio público.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36965 del 15 de diciembre del 2011)
 En razón de lo anterior queda terminantemente prohibido al concesionario circular en las carreteras, fuera de la base de operación especial, en demanda de pasajeros.
 El operador de una base de operación especial podrá prestar el servicio al usuario desde un punto diferente de la base de operación, siempre que se trate de un servicio hacia la base de operación especial para la cual se encuentra autorizado. No podrá realizar la prestación del servicio entre puntos diferentes que no correspondan desde y hacia la base de operación respectiva.

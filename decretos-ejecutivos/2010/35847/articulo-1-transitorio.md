@@ -1,0 +1,2 @@
+Transitorio I. —Salvedad. A los efectos del primer párrafo del artículo 2º del presente decreto, no se entienden incluidas en el trámite ordinario de adjudicación el remanente de concesiones previstas para adjudicar en el transitorio VI de la Ley 7969 de 22 de diciembre de 1999, mismas que se regirán por las normas transitorias de la indicada legislación, garantizándose en todo caso las circunstancias de especificación previstas para los prestatarios del servicio público
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 36965 del 15 de diciembre del 2011)
