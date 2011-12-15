@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Pago fuera del término
+El pago fuera del término produce la obligación del sujeto pasivo de pagar, junto con el tributo adeudado, el interés que fije el Concejo Municipal, de conformidad con las reglas establecidas en el artículo 57 del Código de Normas y Procedimientos Tributarios y una multa del uno por ciento (1%) por cada mes o fracción de mes transcurrido, desde el momento en que debió satisfacerse la obligación hasta la fecha efectiva del pago. En ningún caso, el monto por este último concepto superará el veinte por ciento (20%) de la suma adeudada.

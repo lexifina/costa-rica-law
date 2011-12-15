@@ -1,0 +1,2 @@
+ARTÍCULO 32.- Reglamentación
+Autorízase a la administración tributaria para que emita los reglamentos que considere oportunos para la aplicación práctica de esta ley, a fin de hacer eficaz el cumplimiento de la presente ley y para que adopte las medidas administrativas convenientes a una adecuada fiscalización y control, de conformidad con el Código Municipal, el Código de Normas y Procedimientos Tributarios, y demás normativa supletoria y conexa.

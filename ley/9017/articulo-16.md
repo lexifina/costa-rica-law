@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Determinación del ingreso bruto anual en casos especiales
+El total de los ingresos brutos anuales de actividades que no hayan operado durante el período fiscal anterior, sino solo durante una parte de él, se determinará con base en el promedio mensual obtenido en los meses declarados y así, proporcionalmente, se establecerá este tributo. El monto declarado se dividirá entre el número de meses presentados en la declaración para obtener el promedio mensual, que multiplicado por doce dará como resultado el ingreso promedio anual.
