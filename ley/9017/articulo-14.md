@@ -1,0 +1,2 @@
+ARTÍCULO 14.- Confidencialidad de la información
+La información suministrada por los contribuyentes a la Municipalidad es de carácter confidencial, deber que se extiende a todos los miembros del Concejo Municipal y al Concejo de Distrito, de acuerdo con el artículo 117 del Código de Normas y Procedimientos Tributarios. Esta información se brindará únicamente al patentado o a la persona autorizada por él, y cuando lo requiera cualquier juez de la República. Queda a salvo el intercambio de información con otras administraciones tributarias.
