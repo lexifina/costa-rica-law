@@ -1,3 +1,0 @@
-SECCIÓN VI
-Prejudicialidad
-Artículo 24.—Prejudicialidad. En caso que el hecho susceptible de generar responsabilidad del servidor público exija, para su válida determinación, pronunciamiento de los Tribunales de la República, el procedimiento administrativo estará en suspenso, así como la prescripción de las responsabilidades administrativas o civiles, hasta tanto se encuentre en firme el fallo que se hubiere dictado en sede judicial, caso en que se reanudará resolviéndose lo que corresponda en la sede administrativa. Los hechos declarados probados por resoluciones judiciales penales firmes vincularán al órgano decisor respecto de los procedimientos sancionatorios.

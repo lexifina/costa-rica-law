@@ -1,1 +1,0 @@
-Artículo 60.—Incumplimiento de la orden. En caso de que el órgano competente del sujeto pasivo incumpla con la orden, el órgano decisor deberá proceder de conformidad con los artículos 69 y 70 de la Ley Orgánica de la Contraloría General de la República, a fin de determinar la eventual responsabilidad disciplinaria del funcionario infractor por dicho incumplimiento.
