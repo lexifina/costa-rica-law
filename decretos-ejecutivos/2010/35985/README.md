@@ -14,3 +14,4 @@ Reglamento del primer procedimiento especial abreviado de taxis, de la base de o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-21 | la propia norma |
+| 2 | 2011-12-15 | Decreto Ejecutivo 36965 (2011-12-15) |

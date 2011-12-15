@@ -3,20 +3,25 @@ a) La oferta deberá presentarse en original y dos copias iguales, escrita en es
 b) La oferta deberá presentarse en un sobre cerrado, el cual deberá estar dirigido al Consejo de Transporte Público, con indicación del objeto del concurso y la base de operación donde se pretende brindar el servicio.
 c) Deberá adjuntarse a la oferta una declaración jurada rendida ante Notario Público, bajo fe de juramento, en la cual conste:
 c.1- Que no lo alcanza ninguna de las prohibiciones contenidas en la Ley 7969, ni en la Ley de Contratación Administrativa, No 7494 y sus Reglamentos.
-c.2- Que se compromete a respetar la base de operación que se le asigne.
+c.2- Que en el supuesto de resultar adjudicatario, se compromete a suscribir en forma mancomunada con los demás adjudicatarios de la base especial del Aeropuerto Internacional Juan Santamaría un Consorcio Operativo para la regulación de los aspectos establecidos en el artículo 4º del Decreto Nº 35847-MOPT.
+(Así reformado el subinciso anterior por el artículo 2° del decreto ejecutivo N° 36965 del 15 de diciembre de 2011)
 c.3- Que se compromete a mantener vigente, durante todo el período de la concesión, los seguros de ley del vehículo que utilizará para prestar el servicio de taxi.
 c.4- Que se compromete a cobrar solo la tarifa autorizada oficialmente.
 c.5- Que se compromete a efectuar las revisiones técnicas periódicas estipuladas en la Ley de Tránsito por Vías Públicas Terrestres.
 c.6- Que se compromete a conducir personalmente el vehículo durante 8 horas diarias, según inciso i) del artículo 7 del Reglamento de Bases Especiales del Transporte Público Modalidad Taxi o que está eximido de tai compromiso, según artículo 11 del mismo reglamento, señalando el acuerdo de Junta Directiva que le eximió de tales requisitos.
 c.7- Que el oferente acepta que cualquier falsedad en la información suministrada o la falta de requisitos y pruebas documentales anularán su oferta.
 c.8- Manifestar expresamente el no haber cedido concesión o permiso para el transporte remunerado de personas en modalidad de taxi durante los 10 años previos al otorgamiento de la concesión.
-c.9- Que se compromete que de resultar adjudicatario, previa formalización del contrato de concesión se incorporará en el Registro Especial de Conductores, cumpliendo con cada uno de los requisitos dispuestos en el artículo 5 del Reglamento de Bases Especiales del Transporte Público Modalidad Taxi.
-c.10- Que se compromete a que el servicio público modalidad taxi en la base de operación del Aeropuerto Internacional Juan Santamaría se otorgará durante las veinticuatro horas todos los días.
-c.11- Que respetará la base de operación establecida para la prestación del servicio.
-c.12- Que prestará el servicio de taxi con el respectivo uniforme (incluyendo los choferes).
+c.9- Que se compromete en el caso de resultar adjudicatario, previa formalización del contrato de concesión, a incorporarse en el Registro Especial de Conductores del Servicio Público Modalidad Taxi en las Bases de Operación Especial, para lo cual aportará cada uno de los requisitos dispuestos en el artículo 5º del Reglamento de Bases Especiales del Transporte Público Modalidad Taxi.
+(Así reformado el subinciso anterior por el artículo 2° del decreto ejecutivo N° 36965 del 15 de diciembre de 2011)
+c.10- Que se compromete a que el servicio público modalidad taxi en la base de operación del Aeropuerto Internacional Juan Santamaría se otorgará durante las veinticuatro horas todos los días, para lo cual se sujetará a las disposiciones y reglas que se establecerán en el Consorcio Operativo que se regula en el artículo 4º del Decreto Nº 35847-MOPT.
+(Así reformado el subinciso anterior por el artículo 2° del decreto ejecutivo N° 36965 del 15 de diciembre de 2011)
+c.11- Que respetará la base de operación establecida para la prestación del servicio, acatando y sujetándose a las disposiciones del Consorcio Operativo que se establecerá de conformidad al Artículo 4º del Decreto Nº 35847-MOPT.
+(Así reformado el subinciso anterior por el artículo 2° del decreto ejecutivo N° 36965 del 15 de diciembre de 2011)
+c.12- Que prestará el servicio de taxi con el uniforme (incluyendo los choferes) que se definan en el Consorcio Operativo que se establecerá de conformidad al artículo 4º del Decreto Nº 35847-MOPT.
+(Así reformado el subinciso anterior por el artículo 2° del decreto ejecutivo N° 36965 del 15 de diciembre de 2011)
 c.13- Que no es permisionario o concesionario de una ruta regular de transporte ni miembro de una persona jurídica concesionaria o permisionaria de transporte remunerado de personas en ruta regular.
 c.14- Que se compromete a respetar y cumplir la normativa que rige el Aeropuerto Internacional Juan Santamaría.
-c.15- Que acepta que las listas de calificación del proceso, acto de adjudicación y convocatoria al procedimiento aleatorio se notifiquen por publicación en el Diario Oficial La Gaceta y en un diario de circulación nacional.
+c.15-Que acepta que las listas de calificación del proceso, acto de adjudicación y convocatoria al procedimiento aleatorio se notifiquen por publicación en el Diario Oficial La Gaceta y en un diario de circulación nacional.
 d) Aportar copia de la cédula de identidad.
 e) Rendir la Garantía de Participación que será el equivalente a un salario base establecido en el artículo 2 de la ley No 7337, del 5 de mayo de 1993, a favor del Consejo de Transporte Publico, mediante los títulos que para tales efectos establece el numeral 37 del Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo Nº 25083-H. Dicha garantía de participación DEBERÁ DEPOSITARSE ÚNICAMENTE en las agencias del Banco Nacional de Costa Rica, Sección de Valores en custodia cuenta N° 2745, y será devuelta una vez depositada la garantía de cumplimiento o en su defecto para los que no resulten adjudicados, a partir de los quince días posteriores a la firmeza del acto de adjudicación. En la oferta deberá aportarse el comprobante de depósito de la garantía de participación en la cuenta Nº 2745 del Banco Nacional.
 f) Las ofertas deberán tener una vigencia de 90 días hábiles a partir del acto de apertura.

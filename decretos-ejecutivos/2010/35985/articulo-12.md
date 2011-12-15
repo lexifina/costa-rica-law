@@ -21,3 +21,5 @@ q) El conductor deberá durante la prestación del servicio vestir el uniforme q
 r) Respetar y cumplir la normativa vigente sobre características de taxis en lo que aplique.
 s) El concesionario deberá respetar en todo momento la base de operación especial que le sea adjudicada, no se permitirá cambio de base de operación especial salvo que se trate de una permuta.
 t) Las demás que se deriven de la Ley Nº 7969 y normativa complementaria que sea de aplicación a la materia.
+u) Con el fin de facilitar y ordenar la prestación del servicio en la base de operación especial aeroportuaria, los prestatarios del servicio deberán constituir un Consorcio Operativo en los términos del artículo 4º del Decreto Nº 35847-MOPT. Una vez elaborado dicho convenio el mismo deberá ser presentado ante el Consejo de Transporte Público para su refrendo e inscripción.
+(Así adicionado el inciso anterior por el artículo 5° del decreto ejejcutivo N° 36965 del 15 de diciembre del 2011)

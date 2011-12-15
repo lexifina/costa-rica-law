@@ -2,4 +2,7 @@ Artículo 10.—De los adjudicatarios. Toda persona que resulte adjudicataria en
 a) Garantía de Cumplimiento, correspondiente a dos salarios base establecido en el artículo 2 de la ley 7337 del 05 de mayo de 1993, a más tardar treinta (30) días naturales después de la firmeza del acto de adjudicación, lo cual garantizará la ejecución del contrato, según lo establecido por el numeral 37 de la Ley 7969. Pasado ese plazo sin rendirse dicha garantía, la adjudicación se tendrá por inexistente y el Consejo de Transporte Público escogerá otro oferente.
 b) Quienes en virtud de este procedimiento especial abreviado resulten concesionarios del servicio público de taxi, contarán con un plazo de 90 días hábiles posterior a la firmeza del acto de adjudicación para formalizar el contrato de concesión e iniciar la operación del servicio. La omisión a esta obligación dará paso a la cancelación de la concesión otorgada y será reasignada de conformidad con los procedimientos de adjudicación.
 c) Verificar en el Consejo de Seguridad Vial la cancelación de las obligaciones establecidas en la Ley de Tránsito por Vías Públicas y Terrestres, No 7337 del 5 de mayo de 1993.
-d) Verificar en la Caja Costarricense de Seguro Social que se encuentra al día en el pago de cuotas obrero patronales.
+d) Verificar en la Caja Costarricense de Seguro Social que se encuentra al día en el pago de cuotas obrero patrona
+e) Suscripción en instrumento público del Consorcio Operativo conteniendo los requerimientos regulados en el artículo 4º del Decreto Nº 35847-MOPT.
+(Así adicionado este inciso por el artículo 5° del decreto ejecutivo N°36965 del 15 de diciembre del 2011)
+(Así adicionado el inciso anterior por el artículo 5° del decreto ejecutivo N° 36965 del 15 de diciembre del 2011)
