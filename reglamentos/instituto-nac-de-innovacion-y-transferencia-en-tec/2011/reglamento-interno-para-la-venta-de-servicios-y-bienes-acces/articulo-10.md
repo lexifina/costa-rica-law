@@ -1,0 +1,1 @@
+Artículo 10.—Veracidad de datos y vigencia de la Inscripción. Toda persona inscrita está obligada a brindar al INTA información veraz y actualizada. La inscripción tendrá la vigencia de un año, y podrá renovarse automáticamente. Para tal efecto la Proveeduría institucional deberá llevar un registro y control de los oferentes.

@@ -1,0 +1,1 @@
+Artículo 48.—A falta de disposiciones en el presente Reglamento aplicables a un caso particular, deberán tenerse como normas supletorias, las contenidas en la Ley Nº 8149 del 5 de noviembre del 2001 y su Reglamento, la Ley General de la Administración Pública, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y su reglamento.

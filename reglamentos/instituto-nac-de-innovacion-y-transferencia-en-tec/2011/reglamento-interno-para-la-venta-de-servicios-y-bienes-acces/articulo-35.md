@@ -1,0 +1,1 @@
+Artículo 35.—Tanto en la venta de porcinos de descarte vendidos a planta procesadora, como en la venta de bovinos de descarte o engorde vendidos en subasta, la venta se finiquita con el pago del valor total que corresponde a los animales vendidos, o al producto que se dé éstos se obtenga.

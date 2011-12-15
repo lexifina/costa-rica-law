@@ -1,0 +1,1 @@
+Artículo 26.—Reembolso. El comprador tendrá derecho a solicitar las compensaciones y reembolsos conforme lo indicado en la normativa vigente. En el caso de los semovientes para descarte o de engorde, no se autoriza la sustitución ni reemplazo del animal vendido.

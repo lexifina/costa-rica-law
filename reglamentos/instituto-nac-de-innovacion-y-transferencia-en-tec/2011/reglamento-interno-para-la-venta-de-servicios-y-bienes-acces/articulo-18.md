@@ -1,0 +1,1 @@
+Artículo 18.—Funcionario designado. La dependencia competente para realizar el procedimiento de venta, designará a un funcionario que atienda a los compradores durante todos los días, horas, y lugares en que se realiza la venta.

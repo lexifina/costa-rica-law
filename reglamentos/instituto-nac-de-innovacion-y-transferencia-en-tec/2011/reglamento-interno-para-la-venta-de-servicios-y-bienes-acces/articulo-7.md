@@ -1,0 +1,3 @@
+CAPÍTULO II
+Registro Anual de Compradores Frecuentes (RACF)
+Artículo 7º—Del Registro Anual de Compradores Frecuentes. En cuanto a las ventas que regula el presente Reglamento, las personas físicas y jurídicas que deseen adquirir de forma regular servicios o bienes accesorios con valor comercial, deberán inscribirse en el registro anual que llevará la Proveeduría Institucional a efecto de mantener un control interno de las ventas. En el caso de la venta de semovientes de descarte, o tratándose de compras ocasionales o esporádicas de cualquier bien o servicio accesorio, no será necesario observar los dispuesto en este Capítulo. Salvo lo indicado en el artículo 21, inciso g), todas las personas tienen derecho de participación como potenciales compradores.

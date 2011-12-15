@@ -1,0 +1,1 @@
+Artículo 25.—Disposición de bienes. En el supuesto del artículo anterior, el INTA podrá disponer del bien asignado a la venta liquidada contablemente y procederá a revenderlo a otro comprador, de inmediato.

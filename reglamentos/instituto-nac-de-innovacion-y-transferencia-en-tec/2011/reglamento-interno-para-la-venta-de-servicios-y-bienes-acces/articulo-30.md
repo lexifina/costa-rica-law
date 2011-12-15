@@ -1,0 +1,1 @@
+Artículo 30.—Procedimientos para venta de semovientes. Los semovientes pueden venderse a través del procedimiento de venta establecido en el Capítulo IV, no obstante, puede optarse por los procedimientos que se indica en el presente capítulo.

@@ -1,0 +1,1 @@
+Artículo 16.—De la publicación de las invitaciones a las ventas concretas. Las invitaciones a las ventas, se harán en el Diario Oficial La Gaceta, y son obligatorias. Una vez realizada la publicación debe, además divulgarse la venta por cualquier otro medio de comunicación nacional o local, formal o informal.

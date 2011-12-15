@@ -1,0 +1,1 @@
+Artículo 43.—Plazo para que el INTA dicte la resolución. Dentro de los diez días hábiles siguientes a la interposición de la impugnación, la Dirección Ejecutiva del INTA, deberá dictar el acto que resuelve el recurso de reconsideración.
