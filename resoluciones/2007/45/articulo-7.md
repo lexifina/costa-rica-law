@@ -1,2 +1,0 @@
-Artículo 7º—Control en el procedimiento de registro. La División de Asesoría y Gestión Jurídica de la Contraloría General de la República, verificará que el contenido de las comunicaciones emanadas de las Administraciones obligadas a informar, cumplan con las formalidades exigidas. En caso de no ser así, se ordenará su corrección de conformidad con lo señalado en el artículo 69 de la Ley Orgánica de la Contraloría General de la República.
-Mientras la información requerida no sea suministrada de manera completa y precisa, no se realizará anotación alguna en el SIRSA.
