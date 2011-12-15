@@ -1,0 +1,25 @@
+CAPÍTULO VII
+Ingresos brutos presuntos
+ARTÍCULO 20.- Ingresos brutos presuntos
+Para procurar una mayor justicia tributaria, la administración tributaria presumirá los ingresos brutos estimados de los sujetos pasivos que ejerzan las actividades definidas en los artículos 1 y 2 de esta ley, según la siguiente tabla basada en el Código CIIU, Clasificación Internacional de todas las Actividades Económicas.
+N.º | Descripción de las actividades | Cantidad salarios base
+1 | Los bancos, establecimientos financieros (casa de cambio, instituciones bancarias o instituciones de crédito que lleven a cabo intermediación financiera, correduría de bienes) y similares, aseguradoras o reaseguradas, empresas de alta contribución a la modernización productiva y al desarrollo social, empresas consideradas pioneras en razón de su elevada tecnología, empresas dedicadas a la transmisión de sonidos, imágenes, datos y otros tipos de información por cable, estaciones de difusión y retransmisión, y satélite. | 2500
+2 | Industrias sofisticadas, manufactureras, extractivas, de progreso, de elaboraciones de productos alimenticios, bebidas y similares y fábricas de cualquier naturaleza. | 1500
+3 | Casas importadoras, distribuidoras, comercio mayorista, detallistas, intermediarios o revendedores; distribuidoras de comercialización parcial o total de cualquier tipo de productos, bienes o mercaderías de ventas al por mayor o al por menor que comercian en nombre propio o por cuenta de terceros, sea en forma estacionaria o ambulante. | 1000
+4 | Fábricas de cualquier tipo o naturaleza. | 500
+5 | Cantinas, bares, tabernas, restaurantes, discotecas, salones de baile, clubes y similares. | 420
+6 | Supermercados, ferreterías, farmacias, depósitos y materiales de construcción y similares; aserraderos, depósitos de maderas y similares; ventas de cerámica, venta de autos usados, venta de repuestos de cualquier naturaleza, venta de electrodomésticos y venta de muebles y similares. | 380
+7 | Establecimientos dedicados al juego que contengan máximo una máquina electrónica de destreza o una mesa destinada a explotar juegos de habilidad o aleatorios, o cualesquiera otros semejantes permitidos por ley y que a futuro se introduzcan en el país. | 350
+8 | Granjas lecheras, avícolas, porcinas, la cría de animales domesticados, reproductores, de engorde, producción de leche y distribución y comercialización, y cualquier otro tipo de actividades agropecuarias; venta de aluminio o vidrio, ventas de huevo, pollo y carne cruda, carnicerías y lubricentros. | 300
+9 | Talleres de reparación y acondicionamiento; talleres de soldaduras, taller de enderezado y pintura, mecánicos, precisión y similares; reparación de cualquier tipo de vehículos. | 250
+10 | Moteles, hoteles, pensiones, hospedajes, cabinas y similares; establecimientos de diversión, esparcimiento y entrenamiento, y similares. | 200
+11 | Abastecedor, minisúper, pulperías con un área hasta de veinte metros cuadrados y con un empleado. | 180
+12 | Transportes de carga, transporte urbano, suburbano e interurbano de pasajeros, utilizando autobuses; alquiler de automóviles con conductor o sin él; servicios de excursión en autobuses y demás servicios ocasionales de transporte en autobuses; transporte de pasajeros en vehículos; servicios de autobuses escolares, turistas, de excursión y de cualquier naturaleza o tipo. | 160
+13 | Bazares, centros de fotocopiado, joyerías o relojerías; venta de pintura; venta y reparación de equipo de cómputo, óptica; venta de plástico; veterinaria y similares; tiendas en general; librerías, licoreras y similares; sala de videojuegos; alquiler de películas; zapaterías, calzado, boutiques, vestimenta, alimentos preparados, sodas, cafeterías, expendio de pan, panaderías y similares; carnicerías, productos cárnicos; ciclos de todo tipo, floristerías; servicios de embellecimiento, estética, higiene o limpieza personal, peluquerías, barberías, salas de belleza o estética, gimnasios, salas de bronceado; macrobióticas, imprentas y litografías; sastrerías, verdulerías o fruterías; lavados de carros, reparación de llantas; escuela de enseñanza, centro educativo, kindergarten, guarderías de niños o similares; veterinaria y similares; café Internet y lubricentros. | 150
+14 | Alquileres o arrendamiento de cualquier naturaleza, de bienes muebles e inmuebles, bodegas y similares. | 80
+Las presunciones antes indicadas se aplicarán si concurren algunas de las siguientes causales:
+a) No se presenta la correspondiente declaración jurada del impuesto de patentes y que de presentarse se compruebe la existencia de intenciones defraudatorias.
+b) No lleven registros contables.
+c) Los sujetos pasivos o responsables y demás declarantes omitan su inscripción.
+Las presunciones establecidas en este artículo no limitan las facultades de la administración tributaria para verificar, fiscalizar y determinar los impuestos que realmente corresponden por aplicar las disposiciones de esta ley y del Código de Normas y Procedimientos Tributarios.
+La denominación salario base utilizada en este artículo debe entenderse como la contenida en el artículo 2 de la Ley N.º 7337.
