@@ -1,0 +1,1 @@
+2. Comunicar a la Refinadora Costarricense de Petróleo que no procede modificar la disposición tomada en el artículo 8 de la sesión 5179-2003 del 12 de diciembre del 2003, en el sentido de que el saldo de las líneas de crédito al término de cada año deberá ser igual al saldo adeudado a inicios de ese año.
