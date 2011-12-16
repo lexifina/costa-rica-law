@@ -1,4 +1,4 @@
 Artículo 6º.- El goce de las pensiones podrá cancelarse, suspenderse o declararse caduco, por las siguientes causales:
-a) Nupcias de la viuda pensionada, y
+a) (Anulado por resolución de la Sala Constitucional N° 17227-11 del 16 de diciembre de 2011.)
 b) Ocupación retribuida por el Gobierno Nacional o Municipal.
 (Interpretada en forma auténtica por el artículo 1º de la Ley Nº 2933 de 5 de diciembre de 1961, en el sentido de que en el caso de que una persona pensionada que disfrutare conjuntamente con otras de la pensión, llegare a estar comprendida en alguno de los casos en que el goce de la pensión puede cancelarse, suspenderse o declararse caduco, su respectiva parte acrecerá a las demás. Se advierte que la expresada Ley Nº 2933, por evidente error legislativo, indica que lo interpretado es el artículo 6º de la Nº 2704 de 12 de diciembre de 1960, la cual contiene únicamente dos artículos).
