@@ -1,0 +1,12 @@
+CAPÍTULO III
+Proceso aplicable
+SECCIÓN PRIMERA
+Procedimiento de colaboración
+Artículo 11.—Comunicación al Proveedor de Servicios. De conformidad con las disposiciones establecidas en la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual y legislación conexa, sin perjuicio de las acciones y procedimientos judiciales que les asisten, los titulares de derechos de autor o derechos conexos o su representante, que consideren que sus derechos han sido o están siendo infringidos en o por medio de redes o sistemas controlados u operados por un Proveedor de Servicios, podrán enviar una comunicación a dicho proveedor de servicios, la cual deberá reunir, al menos los siguientes aspectos:
+a) Identificar los derechos de autor o derechos conexos presuntamente infringidos, con indicación expresa y precisa de la titularidad de éstos y la modalidad de la infracción;
+b) Indicar un domicilio o lugar para recibir notificaciones en el territorio nacional;
+c) Identificar el material infractor y su localización o ubicación en las redes o sistemas operados por el proveedor de servicios al que se dirige la comunicación; y
+d) Contener datos o información suficiente, veraz y oportuna que permita al proveedor de servicios identificar plenamente o individualizar al usuario o proveedor del supuesto material infractor.
+Las partes deberán advertir que todas las declaraciones o manifestaciones deberán ser bajo fe de juramento y apercibidos de que pueden incurrir en las penas por falso testimonio que prescribe la legislación penal nacional.
+Del mismo modo, las partes deberán advertir y conocer las eventuales consecuencias legales y posibles sanciones que les podrán ser impuestas por la autoridad judicial competente de acuerdo con la legislación nacional, por la comisión u omisión de conductas o acciones dolosas o culposas que causen o amenacen provocar un perjuicio o daño a otra parte con motivo de una comunicación, especialmente aquéllas resultado del suministro de información falsa que induzca o conlleven a la terminación de cuentas específicas o la adopción de medidas efectivas para retirar o inhabilitar el acceso a un determinado contenido legítimo.
+Asimismo, toda comunicación deberá realizarse por escrito y suscrita por el titular del derecho de autor o conexo, o su representante. Además, las partes con apego a la legislación nacional, podrán aportar las pruebas que estimen necesarias para dar por informada a otra parte de su reclamo.

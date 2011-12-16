@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales y transitorias
+Artículo 21.—Integración de Normas. Lo no regulado expresamente en el presente Reglamento, se regirá de acuerdo con la Ley de Derechos de Autor y Derechos Conexos, Ley Nº 6683 del 14 de octubre de 1982, sus reformas y su Reglamento; la Ley de Procedimientos de Observancia de Derechos de Propiedad Intelectual, Ley Nº 8039 del 12 de octubre del 2000; el Capítulo Quince: Derechos de Propiedad Intelectual del Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos, Ley de Aprobación Nº 8622 del 21 de noviembre del 2007; y la legislación conexa.

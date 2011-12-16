@@ -1,0 +1,8 @@
+SECCIÓN SEGUNDA
+Observancia de los derechos de propiedad intelectual
+Artículo 16.—Procedimientos de observancia. En caso de posibles infracciones a los derechos reconocidos por la Ley de Derechos de Autor y Derechos Conexos, cometidas en o por medio de redes o sistemas controlados u operados por proveedores de servicios, el titular de los respectivos derechos o su representante, podrán solicitar ante la autoridad judicial competente las medidas cautelares establecidas en la Sección I del Capítulo II de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual y optar por los procesos judiciales civiles o penales establecidos en el Capítulo IV de dicha Ley.
+Para tales efectos, el titular o su representante deberán cumplir los requisitos generales establecidos en la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, señalando con claridad en su solicitud, entre otros aspectos requeridos por el ordenamiento positivo, la siguiente información:
+a) Los derechos presuntamente infringidos, con indicación precisa de su titularidad y la modalidad de la infracción;
+b) El material infractor; y
+c) La localización o ubicación del material infractor en las redes o sistemas del proveedor de servicios correspondiente.
+Una vez presentada dicha solicitud, la autoridad judicial competente procederá de conformidad con el procedimiento establecido en la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, pudiendo ordenar sin demora el retiro o bloqueo de los contenidos presuntamente infractores, notificando para ello dicha medida al proveedor de servicios correspondiente.
