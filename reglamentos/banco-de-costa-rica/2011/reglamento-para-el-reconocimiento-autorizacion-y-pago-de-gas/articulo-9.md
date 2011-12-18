@@ -1,0 +1,3 @@
+Artículo 9º—Requisitos de la autorización. El acuerdo emitido por el órgano competente que autorice la salida del país de la servidora o del servidor, deberá también autorizar el uso de gastos de representación cuando ello se considere pertinente.
+El acuerdo deberá a su vez fijar el monto de los gastos de representación en el exterior, establecer el tipo de atención que la servidora o el servidor podrá brindar, así como las personas a las que podrá brindar la atención con carácter oficial y en el cumplimiento de sus funciones.
+El monto que se asigne debe ser razonable, guardar relación con el cargo de la servidora o del servidor que efectúa el gasto y con el evento que lo origina.

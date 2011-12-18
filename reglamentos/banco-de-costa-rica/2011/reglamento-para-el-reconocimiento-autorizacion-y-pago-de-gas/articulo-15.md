@@ -1,0 +1,1 @@
+Artículo 15.—Normas supletorias. En todo lo no previsto en el presente Reglamento, se aplicarán supletoriamente y cuanto resulte aplicable, el Reglamento de gastos de viaje y de transporte para funcionarios públicos, emitido por la Contraloría General de la República.

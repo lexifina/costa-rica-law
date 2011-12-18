@@ -1,0 +1,1 @@
+Artículo 3º—Límite presupuestario de los gastos de representación. El límite de los gastos de representación es el monto de la partida total presupuestada para cada período. Para efectos presupuestarios y de ejecución, ese monto debe distribuirse de modo que no se agote antes de finalizar el período presupuestario.

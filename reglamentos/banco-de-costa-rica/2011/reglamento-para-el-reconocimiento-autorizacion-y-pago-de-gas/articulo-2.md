@@ -1,0 +1,2 @@
+Artículo 2º—Principios aplicables al uso de gastos de representación. Las atenciones a clientes actuales o potenciales que generen el reconocimiento de gastos de representación en nombre del conglomerado deberán prestarse dentro de los límites de la razonabilidad y la racionalidad tanto en las circunstancias como en los montos y características de la atención que se brinde.
+La servidora o el servidor deberán valorar, la conveniencia y la oportunidad de incurrir en esos gastos y su relación directa con el cumplimiento de los fines del conglomerado BCR.

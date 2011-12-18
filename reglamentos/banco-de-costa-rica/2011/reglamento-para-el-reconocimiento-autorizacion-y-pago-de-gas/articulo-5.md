@@ -1,0 +1,3 @@
+Artículo 5º—Montos máximos autorizados. Los límites máximos de asignación por cada evento oficial para gastos de representación son los siguientes:
+a. Los miembros de la Junta Directiva General y de las juntas directivas de las subsidiarias, los fiscales de las empresas subsidiarias, gerente general del BCR, las o los subgerentes, gerentes de las subsidiarías, hasta por un monto de $500,00 o su equivalente en colones.
+b. Directoras o directores de división, gerentes de división, gerente de área de comercio exterior y gerentes de área de las subsidiarias, hasta por un monto de $250,00 o su equivalente en colones.

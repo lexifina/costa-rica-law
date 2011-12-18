@@ -1,0 +1,1 @@
+Artículo 11.—Reintegro de sumas. En el caso de que la suma autorizada por gastos de representación en el exterior según el acuerdo de viaje que los autoriza sea mayor a los gastos efectuados, la servidora o el servidor deberán reintegrar la suma no gastada junto con la liquidación del gasto.
