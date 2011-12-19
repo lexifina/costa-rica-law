@@ -1,1 +1,2 @@
-Artículo 19.- La Secretaría Permanente es el Organo Ejecutivo de la Organización, estará dirigida por un Secretario Ejecutivo y contará con el personal técnico y administrativo necesario, de acuerdo con el presupuesto que apruebe la Reunión de Ministros.
+Artículo 19.- La Secretaría Permanente es el Organo Ejecutivo de la Organización(*), estará dirigida por un Secretario Ejecutivo y contará con el personal técnico y administrativo necesario, de acuerdo con el presupuesto que apruebe la Reunión de Ministros.
+(*)(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internacional N° 9011 del 10 de noviembre del 2011, se establece que donde dice "La Organización" debe entenderse: "Organización Latinoamericana y Caribeña de Energía, OLACDE")

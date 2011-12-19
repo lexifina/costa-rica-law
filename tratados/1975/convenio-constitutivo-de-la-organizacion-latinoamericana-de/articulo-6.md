@@ -1,1 +1,2 @@
-Artículo 6º.- Cualquier Estado Miembro de la Organización podrá en todo tiempo denunciar el presente Convenio. Sus derechos y obligaciones con la Organización cesarán treinta días después de presentado el documento de denuncia a la Secretaría Permanente.
+Artículo 6º.- Cualquier Estado Miembro de la Organización(*) podrá en todo tiempo denunciar el presente Convenio. Sus derechos y obligaciones con la Organización(*) cesarán treinta días después de presentado el documento de denuncia a la Secretaría Permanente.
+(*)(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internacional N° 9011 del 10 de noviembre del 2011, se establece que donde dice "La Organización" debe entenderse: "Organización Latinoamericana y Caribeña de Energía, OLACDE")

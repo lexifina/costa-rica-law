@@ -1,6 +1,7 @@
 CAPITULO SEGUNDO
 Objetivos y Funciones
-Artículo 3º.- La Organización tendrá los siguientes objetivos y funciones:
+Artículo 3º.- La Organización (*) tendrá los siguientes objetivos y funciones:
+(*)(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internacional N° 9011 del 10 de noviembre del 2011, se establece que donde dice "La Organización" debe entenderse: "Organización Latinoamericana y Caribeña de Energía, OLACDE")
 a) Promover la solidaridad de acciones entre los Países Miembros para el aprovechamiento y defensa de los recursos naturales de sus respectivos países y de la región en su conjunto, utilizándolos en la forma en que cada uno -en ejercicio de sus indiscutibles derechos de soberanía- lo estime más apropiado a sus intereses nacionales; y para la defensa individual y colectiva ante todo género de acciones, sanciones y coerciones que puedan producirse contra cualquiera de ellos, por razón de medidas que hayan adoptado para preservar y aprovechar esos recursos y ponerlos al servicio de sus planes de desarrollo económico y social;
 b) Unir esfuerzos para propiciar un desarrollo independiente de los recursos y capacidades energéticas de los Estados Miembros;
 c) Promover una política efectiva y racional para la exploración, explotación, transformación y comercialización de los recursos energéticos de los Estados Miembros;
