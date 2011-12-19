@@ -1,0 +1,2 @@
+Artículo 7 bis.- Dótase a la Dirección General de Servicio Civil de personalidad jurídica instrumental únicamente para efectos de manejar su propio presupuesto y con el fin de que cumpla sus objetivos de conformidad con la Ley N.° 1581, Estatuto de Servicio Civil, de 30 de mayo de 1953, sus reformas, demás leyes conexas, y administre su patrimonio.
+(Así adicionado por el artículo único de la ley N° 8978 del 26 de setiembre del 2011)
