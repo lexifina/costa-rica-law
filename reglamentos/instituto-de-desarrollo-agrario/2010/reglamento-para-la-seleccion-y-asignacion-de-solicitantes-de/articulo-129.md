@@ -1,1 +1,1 @@
-Artículo 129.—La Oficina Subregional se encuentra obligada a realizar una revisión preliminar de la documentación presentada por el gestionante, a efecto de determinar si éste puede acceder al procedimiento de legalización de su ocupación.
+Artículo 129.—(Derogado por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)

@@ -1,1 +1,1 @@
-Artículo 132.—Recibido el informe, la Asesoría Legal Regional procederá con el estudio del caso respectivo, pudiendo de considerarlo necesario recibir la prueba testimonial aportada por el gestionante o realizar las inspecciones que considere necesarios a efectos de verificar la información que le fue remitida.
+Artículo 132.—(Derogado por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)

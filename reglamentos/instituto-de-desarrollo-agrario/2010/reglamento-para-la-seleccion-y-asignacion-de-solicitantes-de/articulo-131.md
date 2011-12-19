@@ -1,1 +1,1 @@
-Artículo 131.—Habiendo sido dictado el informe de inspección por parte de la Oficina Subregional, ésta deberá remitir el mismo en un plazo de tres días hábiles a la Asesoría Legal Regional respectiva para que realice el estudio legal correspondiente.
+Artículo 131.—(Derogado por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)

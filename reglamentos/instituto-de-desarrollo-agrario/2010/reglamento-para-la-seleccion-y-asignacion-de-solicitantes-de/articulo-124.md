@@ -1,3 +1,4 @@
-CAPITULO XI
+CAPITULO XI(*)
 Legalización de la Ocupación ejercida sobre Predios del Instituto
-Artículo 124.—Conforme lo estipulado en el artículos 55, 62 y 63 de la Ley de Tierras tendrán derecho a que se les asigne y otorgue título de propiedad aquellos ocupantes de predios propiedad del Instituto que no cuenten con asignación y tengan diez años o más de ejercer posesión sobre los mismos, a ese efecto deberán cumplir los requisitos y el procedimiento establecido en el presente capítulo.
+(Derogado el capítulo anterior por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)
+Artículo 124.—(Derogado por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)

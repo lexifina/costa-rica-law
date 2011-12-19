@@ -1,1 +1,1 @@
-Artículo 134.—Recibido el informe por parte de la Dirección Regional y su Asesoría Legal, la Junta Directiva procederá a analizar la procedencia o no de la legalización de la ocupación del gestionante. El acuerdo que declare la procedencia será emitido mediante resolución fundamentada.
+Artículo 134.—(Derogado por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)

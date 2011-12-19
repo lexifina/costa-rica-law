@@ -1,1 +1,1 @@
-Artículo 130.—La Oficina Subregional, una vez realizada la revisión preliminar de la documentación presentada por el gestionante, procederá a realizar una inspección del terreno sobre el cual se ejerce la ocupación, debiendo rendir un informe en un plazo máximo de dos meses contados a partir de la citada inspección.
+Artículo 130.—(Derogado por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)

@@ -1,4 +1,1 @@
-Artículo 125.—Los ocupantes de terrenos del Instituto que soliciten la asignación y titulación deberán cumplir en su totalidad con los siguientes requisitos de forma taxativa:
-a) Demostrar ejercicio de la ocupación sobre el predio por un plazo de 10 años como mínimo, en calidad de propietario y de forma continua, pública, pacifica y de buena fe.
-b) Demostrar actuaciones tendientes a legalizar su ocupación.
-c) Demostrar el ejercicio de actos de ocupación afines a los objetivos del Instituto.
+Artículo 125.—(Derogado por el transitorio 1° del Reglamento de selección y regularización de la tenencia de tierras, propiedad del Instituto de Desarrollo Agrario, aprobado en sesión N° 046-2011 del 19 de diciembre del 2011)

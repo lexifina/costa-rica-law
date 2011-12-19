@@ -14,3 +14,4 @@ Reglamento para la Selección y Asignación de Solicitantes de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-16 | la propia norma |
+| 2 | 2011-12-19 | Reglamento 46 (2011-12-19) |
