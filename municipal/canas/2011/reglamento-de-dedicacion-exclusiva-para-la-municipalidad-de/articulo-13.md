@@ -1,0 +1,1 @@
+Artículo 13.—Los servidores que laboren bajo la modalidad de teletrabajo o cualquier otra forma de trabajo que a futuro se autorice para las instituciones del Régimen de Servicio Civil, pueden acogerse al Régimen de Dedicación Exclusiva, o bien, mantener esta compensación económica, siempre que cumplan con las condiciones indicadas en esta resolución.

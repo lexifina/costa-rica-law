@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE CAÑAS
+REGLAMENTO PARA LA APLICACIÓN
+DE LA DEDICACIÓN EXCLUSIVA
+El Concejo Municipal del cantón de Cañas le trascribe acuerdo tomado en la sesión ordinaria Nº 143-2011, celebrada el lunes 21 de noviembre del año 2011.
+El Concejo Municipal de Cañas acuerda aprobar el Reglamento de Dedición Exclusiva para la Municipalidad de Cañas que a continuación es detallado:
+El presente Reglamento de Dedicación Exclusiva tiene como fin dotar a la Municipalidad de Cañas de una normativa actual y conveniente para regular el incentivo conocido como régimen voluntario de dedicación exclusiva que se reconoce en otras instituciones públicas y en gran cantidad de municipalidades.
+Este Reglamento recopila las principales normas que se están aplicando actualmente tanto en el Régimen del Servicio Civil como en la Secretaria Técnica de la Autoridad Propuesta, la Contraloría General de la República y los criterios que el respecto ha emitido la Procuraduría General de la República. Adicionalmente contiene otras disposiciones compatibles con el Régimen que esperamos lo hagan más fácil y ajustable a las necesidades municipales actuales.
+CAPÍTULO I
+De la definición y objetivos de la dedicación exclusiva
+Artículo 1º—Se entenderá por dedicación exclusiva para efectos del presente Reglamento la compensación económica retribuida a los servidores de nivel profesional, porcentualmente sobre su salario base (previa suscripción de un contrato entre el servidor y el máximo jerarca o con quien se delegue), para que obligatoriamente el servidor no pueda ejercer de manera particular, en forma remunerada o ad honorem, la profesión que ostenta y que constituye requisito para desempeñar el puesto que ocupe, ni otra actividad relacionada con ésta, con las excepciones que se indicarán. El Régimen de Dedicación Exclusiva permite una retribución económica a favor del servidor, convenida y en acuerdo con la Administración, por lo que ésta deberá procurar que se cuente con la disponibilidad presupuestaria que le da sustento, por el plazo expresamente previsto dentro del contrato o prórroga respectiva.

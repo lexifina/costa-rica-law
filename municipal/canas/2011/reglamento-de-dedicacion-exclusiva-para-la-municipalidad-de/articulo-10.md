@@ -1,0 +1,1 @@
+Artículo 10.—Los servidores que estén acogidos al régimen de dedicación exclusiva y estén disfrutando de un permiso sin goce de salario, tendrán suspendido dicho beneficio y al regresar pueden seguir devengando el pago de dicho incentivo.
