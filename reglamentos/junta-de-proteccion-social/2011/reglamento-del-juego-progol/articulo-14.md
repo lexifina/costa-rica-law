@@ -1,0 +1,2 @@
+Artículo 14: Derogatorias
+El presente reglamento deroga el Reglamento para los Eventos de las Apuestas Deportivas Juego Progol publicado en el Alcance Número 8 de La Gaceta No. 14 del 20 de enero del 2011 y sus Reformas publicadas en La Gaceta No.64 del 31 de marzo del 2011 y el Reglamento para los Eventos de las Apuestas Deportivas Juego Progol, Modalidad un Solo Evento Deportivo publicado en La Gaceta No. 188 del 30 de septiembre del 2011.
