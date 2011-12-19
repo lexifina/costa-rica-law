@@ -15,10 +15,11 @@ Considerando:
 Decretan:
 Artículo 1º—Actualización de los tramos de la escala. Para efectos del período fiscal 2011, se actualizan los tramos de la escala establecida en el artículo 5 de la Ley N° 8683 de 19 de noviembre del 2008, de la siguiente manera:
 Valor | Tarifa
-a) Hasta ¢ 265.000.000,00 | 0,25%
-b) Sobre el exceso de ¢ 265.000.000,00 y hasta ¢531.000.000,00 | 0,30%
-c) Sobre el exceso de ¢ 531.000.000,00 y hasta ¢796.000.000,00 | 0,35%
-d) Sobre el exceso de ¢ 796.000.000,00 y hasta ¢1.061.000.000,00 | 0,40%
-e) Sobre el exceso de ¢ 1.061.000.000,00 y hasta ¢1.326.000.000,00 | 0,45%
-f) Sobre el exceso de ¢ 1.326.000.000,00 y hasta ¢1.592.000.000,00 | 0,50%
-g) Sobre el exceso de ¢ 1.592.000.000,00 | 0,55%
+a) Hasta ¢277.000.000,00 | 0,25%
+b ) Sobre el exceso de ¢ 277.000.000,00 y hasta ¢555.000.000,00 | 0,30%
+c) Sobre el exceso de ¢ 555.000.000,00 y hasta ¢832.000.000,00 | 0,35%
+d) Sobre el exceso de ¢ 832.000.000,00 y hasta ¢1.109.000.000,00 | 0,40%
+e) Sobre el exceso de ¢ 1.109.000.000,00 y hasta ¢1.386.000.000,00 | 0,45%
+f) Sobre el exceso de ¢ 1.386.000.000,00 y hasta ¢1.665.000.000,00 | 0,50%
+g) Sobre el exceso de ¢ 1.665.000.000,00 | 0,55%
+(Así reformadas las tarifas anteriores por el artículo 1° del decreto ejecutivo N° 36928 del 19 de diciembre del 2011)
