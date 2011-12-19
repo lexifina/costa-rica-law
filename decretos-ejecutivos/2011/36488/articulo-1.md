@@ -16,3 +16,4 @@ la Autoridad Presupuestaria, para el año 2012
 CAPÍTULO I
 Del gasto presupuestario
 Artículo 1º—Estas directrices serán aplicables a las entidades públicas, ministerios y demás órganos, cubiertos por el ámbito de la AP.
+(Mediante el artículo 1° del decreto ejecutivo N° 36925 del 19 de diciembre del 2011, se amplía para la Refinadora Costarricense de Petróleo Sociedad Anónima, el gasto presupuestario para el 2012 en la suma de ¢119.259.640.000,00 (ciento diecinueve mil doscientos cincuenta y nueve millones seiscientos cuarenta mil colones exactos), para ese período)
