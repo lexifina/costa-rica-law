@@ -14,3 +14,4 @@ Directriz para propiciar el aporte de los beneficiarios que optan por un bono fa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-16 | la propia norma |
+| 2 | 2011-12-19 | Reglamento 90 (2011-12-19) |
