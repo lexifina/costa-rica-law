@@ -1,0 +1,1 @@
+Artículo 4º—Principios de la potestad consultiva. En el ejercicio de la potestad consultiva la Contraloría General de la República considerará en el trámite y atención correspondiente los principios de legalidad, eficiencia, eficacia, informalismo, oralidad, oficiosidad y transparencia.

@@ -1,0 +1,1 @@
+Artículo 2º—Alcance de la potestad consultiva. La Contraloría General de la República ejerce la potestad consultiva como parte de sus funciones. De acuerdo con ello le corresponde atender las gestiones que le dirijan los sujetos consultantes en las materias de su competencia constitucional y legal.

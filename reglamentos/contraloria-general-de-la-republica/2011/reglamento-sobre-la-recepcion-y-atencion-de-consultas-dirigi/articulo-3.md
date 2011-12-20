@@ -1,0 +1,1 @@
+Artículo 3º— Delegación en materia consultiva. El Despacho Contralor como jerarca del órgano organizará a lo interno de sus Divisiones el ejercicio de la potestad consultiva; en atención a sus facultades delega en los titulares subordinados la tramitación y atención de las consultas formuladas por los distintos sujetos consultantes en los términos del presente reglamento.
