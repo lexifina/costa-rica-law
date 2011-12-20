@@ -1,1 +1,0 @@
-Artículo 8º—Modo del pago del zonaje. El zonaje se pagará conjuntamente con el sueldo del beneficiario, constituyendo un sobresueldo que se mantendrá vigente mientras subsistan las condiciones que ameriten su pago.
