@@ -1,0 +1,1 @@
+Artículo 24.—Designación de conductores para vehículos de uso discrecional. Los funcionarios a los que hace referencia el artículo 19 podrán solicitar por escrito, a la Unidad de Desarrollo Humano, la designación de un conductor, presentando la motivación correspondiente.

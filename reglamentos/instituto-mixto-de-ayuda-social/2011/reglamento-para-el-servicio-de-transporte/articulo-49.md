@@ -1,0 +1,1 @@
+Artículo 49.—Del informe de accidente. El Área de Servicios Generales analizará todo accidente de tránsito en que participe un vehículo del IMAS, rendirá un informe y emitirá criterio técnico al Área de Servicios Generales.

@@ -1,0 +1,1 @@
+Artículo 39.—Responsables en el control. Todas aquellas unidades que tengan asignadas a su dependencia un vehículo, ya sea de uso oficial o discrecional, serán los responsables del control sobre el uso y el rendimiento del combustible. Los tarjetahabientes serán responsables por el uso correcto del combustible.

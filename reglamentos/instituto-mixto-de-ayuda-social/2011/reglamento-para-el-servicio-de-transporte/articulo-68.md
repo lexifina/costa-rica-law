@@ -1,0 +1,2 @@
+Artículo 68.—Derogaciones. A partir de la entrada en vigencia del presente Reglamento queda derogado el Reglamento aprobado mediante Acuerdo número CD: 180-08, acta número 038-08, artículo cuarto de sesión celebrada el 19 de mayo del Consejo Directivo del Instituto Mixto de Ayuda Social, publicado en el Diario Oficial La Gaceta numero 108 del 5 de junio del año 2008 y toda normativa vigente interna igual o de rango inferior que se le oponga.
+San José, 6 de diciembre del 2011.—

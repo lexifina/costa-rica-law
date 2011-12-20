@@ -1,0 +1,1 @@
+Artículo 16.—Del Formulario para la solicitud de servicios de Transporte. Se indicará en este, el personal que utilizará el vehículo, el objeto y la ruta del servicio, los días y el horario ordinario o extraordinario autorizado, en que circulará el vehículo. Dicho formulario deberá encontrarse en el vehículo mientras se brinde el servicio de transporte.

@@ -1,0 +1,10 @@
+Articulo 59.—Deberes ambientales. Los conductores, funcionarios responsables de la gira y usuarios de los vehículos de la Institución tendrán como deberes ambientales:
+a. Los conductores y funcionarios (as) responsables de vehículos realizarán acciones con criterios ambientales, racionalizando el consumo de combustible y lubricantes, tendientes a disminuir emisiones innecesarias.
+b. En las giras oficiales se preferirán las rutas que generen menor consumo de combustible, siempre que esto sea posible.
+c. Las personas autorizadas para manejar vehículos oficiales lo harán aplicando la técnica de “conducción eficiente”. Para estos efectos, el Área responsable del tema de Gestión Ambiental promoverá la capacitación necesaria.
+d. La espera de funcionarios (as) se realizará con el motor apagado.
+e. Se prohíbe el uso del aire acondicionado si el vehículo no se encuentra en circulación y se hace indispensable su uso.
+f. En los vehículos oficiales se preferirá el aire natural al uso del aire acondicionado; siempre que las condiciones climáticas así lo permitan.
+g. Los (as) conductores y demás funcionarios responsables darán un adecuado manejo a los hidrocarburos contenidos en los tanques de los vehículos, con el fin de minimizar riesgos de accidentes, incendios y derrames.
+h. Adicional a la Revisión Técnica Vehicular, los funcionarios (as) responsables y conductores monitorearán el estado general del vehículo constantemente, así como el desgaste de las llantas, con el fin de mantenerlos en excelente estado y propiciar el ahorro de combustible, repuestos y accesorios.
+i. Los funcionarios responsables incorporarán elementos de compras verdes en las adquisiciones de bienes y servicios para vehículos oficiales. Entre los que se deben considerar, es preferir servicios y productos amigables con el ambiente, equipos más eficientes con menor consumo de energía, menor consumo de empaques superfluos y componentes biodegradables. Para el caso de cambios de fluidos se debe valorar el Plan de Manejo de Residuos de cada taller, entre lo que se destaca su manejo, reciclaje del aceite, tratamiento de aguas residuales y reciclaje de residuos sólidos.
