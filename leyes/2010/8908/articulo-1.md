@@ -17,3 +17,4 @@ El Poder Ejecutivo queda autorizado para establecer vía reglamento, el plazo ha
 Pago de interese de títulos de la deuda pública. En el marco de la renegociación de la deuda entre el Gobierno Central y las instituciones del Sector Público No Financiero, se autoriza al Ministerio de Hacienda a reconocer a éstas por el pago de intereses de los títulos de la deuda pública, una tasa de interés máxima igual a la suma del porcentaje de inflación, más uno punto veinticinco por ciento (1, 25%).
 En caso de colocación con no residentes la Tesorería Nacional deberá publicar la información financiera de esas colocaciones.
 (Modificado por el artículo 1° del decreto ejecutivo N° 36474 del 2 de marzo del 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36915 del 5 de diciembre del 2011)
