@@ -1,0 +1,1 @@
+Artículo 5º—De la medición. Los informes de avance constituyen las unidades de información principales para el SIMEI. Cada informe refleja el porcentaje de logro, el cumplimiento y el aporte a los productos de cada actividad.

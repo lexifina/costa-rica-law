@@ -1,0 +1,2 @@
+Artículo 10.—Del principio de comunicación. Este principio señala que la medición y la evaluación del Plan nacional sobre Drogas, legitimación de capitales y financiamiento al terrorismo deben ser discutidas de forma abierta, dentro del equipo de trabajo interinstitucional.
+Los involucrados no deben tener reservas, sus opiniones deben comunicarse, con la finalidad de evaluar con más precisión el estado de un proyecto y tomar decisiones consensuadas entre los miembros de los grupos responsables del éxito del proyecto.

@@ -1,0 +1,2 @@
+Artículo 13.—De los resultados de la aplicación del SIMEI. El SIMEI brindará estadísticas sobre las principales variables de control de los proyectos, permitiendo una visualización dinámica de éstas para cada nivel estructural (política, ámbito, proyecto, etapa y actividad).
+Consecuentemente, el SIMEI permitirá un diagnóstico oportuno de la salud de los proyectos, permitiendo solventar a tiempo cualquier imprevisto; garantizando así la consecución de los productos esperados.

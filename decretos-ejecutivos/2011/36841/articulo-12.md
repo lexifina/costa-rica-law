@@ -1,0 +1,1 @@
+Artículo 12.—De la responsabilidad compartida. No hay ningún actor que sea “propietario” de la gestión de los proyectos del citado Plan nacional sobre drogas, legitimación de capitales y financiamiento al terrorismo, la participación activa en el proyecto es responsabilidad de todas las instituciones vinculadas al mismo.

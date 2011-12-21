@@ -1,0 +1,1 @@
+Artículo 9º—Del principio de agilidad. Las actividades relacionadas con la medición y evaluación del Plan nacional sobre drogas, legitimación de capitales y financiamiento al terrorismo, no debe limitarse a una única etapa del ciclo de vida de un proyecto o una revisión aislada en la etapa inicial.

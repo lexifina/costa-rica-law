@@ -1,0 +1,1 @@
+Artículo 8º—De la adaptabilidad al SIMEI. La adaptabilidad es una respuesta de comportamiento que permite reaccionar ante hechos que se producen en el entorno y el sistema. El SIMEI presume, actualmente, un contexto dinámico, donde pueden surgir nuevos requerimientos, retos, riesgos y actores dentro de un proyecto específico.

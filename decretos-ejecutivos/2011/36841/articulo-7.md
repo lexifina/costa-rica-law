@@ -1,0 +1,1 @@
+Artículo 7º—De los principios básicos del sistema de medición y evaluación. Este modelo de medición y evaluación se basa en la noción que los elementos operativos de los proyectos deben tratarse de forma proactiva.

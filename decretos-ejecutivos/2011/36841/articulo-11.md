@@ -1,0 +1,2 @@
+Artículo 11.—Del aprendizaje. El aprendizaje puede ayudar a mejorar los resultados. El conocimiento obtenido durante la ejecución de un proyecto puede reducir la incertidumbre en la toma de decisiones de otros proyectos, cuando la información es poco fiable o no está disponible.
+El análisis directo de los resultados anteriores fomenta el aprendizaje dentro del equipo interinstitucional mediante el intercambio de opiniones entre las partes.
