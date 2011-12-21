@@ -1,0 +1,1 @@
+Artículo 2º—Los actores ejecutores responsables del cumplimiento de las políticas de Estado contemplados en este Plan nacional sobre drogas, legitimación de capitales y financiamiento al terrorismo; se comprometerán a incluir en sus respectivos Planes Operativos Institucionales, los programas, los proyectos y demás acciones en los cuales participan.
