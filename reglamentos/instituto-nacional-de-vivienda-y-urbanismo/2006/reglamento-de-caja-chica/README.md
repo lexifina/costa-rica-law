@@ -14,3 +14,4 @@ Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-22 | la propia norma |
+| 2 | 2011-12-21 | Reglamento 5915 (2011-12-21) |

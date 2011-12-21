@@ -1,1 +1,1 @@
-Artículo 24.—Bajo ninguna circunstancia el encargado del fondo de caja chica aceptará ni tramitará comprobantes o facturas cuyas fechas sean posteriores a lo que dispone el artículo 8 de este Reglamento.
+Artículo 24.—Bajo ninguna circunstancia el encargado del fondo de Caja Chica aceptará ni tramitará comprobantes o facturas cuyas fechas sean posteriores a lo que dispone el artículo 8 de este Reglamento.

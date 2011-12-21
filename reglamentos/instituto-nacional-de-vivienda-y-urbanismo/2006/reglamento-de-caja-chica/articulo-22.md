@@ -1,1 +1,1 @@
-Artículo 22.—El encargado del fondo no podrá tramitar compras o servicios fraccionados que traten de eludir lo dispuesto en el artículo 4 de este Reglamento.
+Artículo 22.—Los encargados de las Cajas Chicas no podrán tramitar compras o servicios fraccionados que traten de eludir lo dispuesto en el artículo 4° de este Reglamento. De igual forma queda prohibida está practica para las compras que realiza el Proceso de Proveeduría y/o cualquier otra dependencia o funcionario a través de la Caja Chica General.
