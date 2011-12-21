@@ -1,1 +1,2 @@
-ARTÍCULO 27.- Amenazas contra una mujer Amenazas contra una mujer Quien amenace con lesionar un bien jurídico de una mujer o de su familia o una tercera persona íntimamente vinculada, con quien mantiene una relación de matrimonio, en unión de hecho declarada o no, será sancionado con pena de prisión de seis meses a dos años.
+ARTÍCULO 27.-Amenazas contra una mujer Amenazas contra una mujer. Quien amenace a una mujer, a su familia o a una tercera persona íntimamente vinculada, con quien mantiene una relación de matrimonio, en unión de hecho declarada o no, será sancionado con pena de prisión de seis meses a dos años.
+(Mediante resolución de la Sala Constitucional N° 17681 del 21 de diciembre de 2011, se reformó el texto del presente artículo.)
