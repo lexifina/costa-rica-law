@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del ejercicio profesional de la enfermería
+Artículo 6º—Ejercicio válido de la enfermería. Nadie podrá ejercer en Costa Rica la profesión de enfermería, sin previa autorización o licencia otorgada por el Colegio, quien la concederá de acuerdo con las disposiciones del presente reglamento.
+Los profesionales de enfermería que ingresen al país en calidad de asesores y consultores de programas especiales, pasantías y voluntariado, deberán cumplir, para ejercer en Costa Rica, con los requisitos que establezca en condiciones de proporcionalidad, razonabilidad, igualdad y sin discriminación alguna la Junta Directiva del Colegio. La Junta Directiva publicará en el Diario Oficial La Gaceta el acuerdo donde se definen o modifiquen los requisitos. El Colegio observará las disposiciones legales y reglamentarias vigentes en el país, relativas a migración y extranjería.

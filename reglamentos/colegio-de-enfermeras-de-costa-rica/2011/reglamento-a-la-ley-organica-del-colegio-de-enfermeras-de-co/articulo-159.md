@@ -1,0 +1,1 @@
+Artículo 159.—De los programas de formación. Responsables. Los programas de formación de Auxiliares de Enfermería, estarán sujetos a la aprobación y supervisión del Colegio de Enfermeras. Los cursos de estos programas, sólo podrán ser impartidos por personas profesionales en Enfermería.
