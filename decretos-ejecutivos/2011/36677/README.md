@@ -14,3 +14,4 @@ Amplia para la Dirección General de Aviación Civil, el gasto presupuestario m�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-04 | la propia norma |
+| 2 | 2011-12-21 | Decreto Ejecutivo 36954 (2011-12-21) |
