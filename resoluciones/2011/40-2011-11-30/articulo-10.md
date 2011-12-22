@@ -1,0 +1,2 @@
+Artículo 10 Declaración de bienes inmuebles con diferentes usos.
+Los propietarios de bienes inmuebles cuyo uso sea tanto habitacional, como comercial, agropecuario, industrial, de servicios, etcétera, declararán únicamente sobre el área del terreno y la construcción dedicada a uso habitacional, que sean utilizados en forma habitual, ocasional o de recreo, de conformidad con lo dispuesto en el artículo 2 de la Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda y 6 de su Reglamento.

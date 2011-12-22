@@ -1,0 +1,2 @@
+Artículo 13 Condiciones y requisitos de prueba para hacer efectivas las exenciones.
+Para hacer efectivas las exenciones establecidas en el artículo 6 de la Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda, excepto lo regulado en el incisos a) de dicho numeral, los propietarios de bienes inmuebles beneficiarios de las exenciones señaladas, deberán presentar una certificación de la entidad respectiva en la que se indique la condición del inmueble a exonerar. Este requisito deberá presentarse cuando la Administración así lo requiera.

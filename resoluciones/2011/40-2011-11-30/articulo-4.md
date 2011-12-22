@@ -1,0 +1,2 @@
+Artículo 4 Desinscripción
+Cuando en virtud de las normas de determinación del tributo, el interesado deje de ser sujeto pasivo de este impuesto, deberá solicitar su desinscripción mediante el proceso de petición establecido en el artículo 102 del Código de Normas y Procedimientos Tributarios, exponiendo con precisión las razones en las que se fundamenta su solicitud. La Administración Tributaria conocerá la petición y resolverá lo que corresponda.

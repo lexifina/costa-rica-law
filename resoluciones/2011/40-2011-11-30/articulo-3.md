@@ -1,0 +1,2 @@
+Artículo 3 Determinación del impuesto por parte de la Administración Tributaria
+De conformidad con los artículos 10 y 11 de la Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda, la Administración Tributaria procederá a valorar aquellos inmuebles cuyos propietarios y demás sujetos pasivos del impuesto han omitido la presentación de la declaración jurada. Una vez notificado el sujeto pasivo mediante los medios legales establecidos al efecto, será considerado “moroso” en el cumplimiento de la obligación tributaria correspondiente.

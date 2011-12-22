@@ -1,0 +1,2 @@
+Artículo 9 Declaración de bienes inmuebles colindantes y/o superpuestos.
+Tratándose de bienes inmuebles de uso habitacional, en los términos indicados en el artículo 2° de la Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda, que se encuentren colindantes y/o superpuestos y constituyen una unidad, los propietarios deberán sumar los correspondientes valores de terreno y construcción, y acumularlos en una sola declaración.
