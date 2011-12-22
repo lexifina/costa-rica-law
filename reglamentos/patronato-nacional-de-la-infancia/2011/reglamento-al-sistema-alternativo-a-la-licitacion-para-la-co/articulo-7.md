@@ -1,0 +1,1 @@
+Artículo 7º— Los administradores de las Direcciones Regionales. Será obligación de los Administradores destacados en las Direcciones Regionales apoyar en la gestión de las compras que se realicen con fundamento en el presente reglamento.

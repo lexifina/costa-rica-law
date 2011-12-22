@@ -1,0 +1,1 @@
+Artículo 12. Poblaciones con situaciones especiales. Cuando por razones de fuerza mayor o condición especial, impida a la persona menor de edad la escogencia directa de los artículos citados en el presente Reglamento, corresponderá al Jefe de la Oficina Local encargada del albergue o funcionario responsable del albergue recomendar la selección de los artículos.

@@ -1,0 +1,1 @@
+Artículo 14. —Vigencia. La vigencia del presente sistema será a partir de su publicación en el Diario Oficial La Gaceta y por un periodo de dos años, cuya renovación quedará sujeta a la aprobación previa de la Contraloría General de la República.

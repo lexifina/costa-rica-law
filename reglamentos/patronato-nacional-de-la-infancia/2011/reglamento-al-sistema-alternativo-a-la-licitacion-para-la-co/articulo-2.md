@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El Patronato Nacional de la Infancia utilizará el presente reglamento en la adquisición de útiles y uniformes escolares y colegiales, vestimenta y juguetes para época de navidad para las niñas, niños y adolescentes ubicados en los albergues de la institución. En casos excepcionales aplica para la adquisición de compras masivas de vestimenta.

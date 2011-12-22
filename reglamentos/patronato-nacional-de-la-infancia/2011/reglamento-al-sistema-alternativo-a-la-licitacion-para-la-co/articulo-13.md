@@ -1,0 +1,1 @@
+Artículo 13. — Norma supletoria. En todo aquello no previsto en el presente reglamento se aplicará la Ley de Administración Financiera de la República y Presupuestos Públicos, el Reglamento a la Ley de Contratación Administrativa.

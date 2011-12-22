@@ -1,0 +1,1 @@
+Artículo 11. Vestimenta de uso diario. La Dirección Regional en casos excepcionales podrá realizar la adquisición de compras masivas de vestimenta por medio del presente sistema. En todo caso, deberá comunicar previamente a la Gerencia de Administración para la inyección oportuna de los recursos al Fondo Regional y contar con el debido contenido presupuestario.
