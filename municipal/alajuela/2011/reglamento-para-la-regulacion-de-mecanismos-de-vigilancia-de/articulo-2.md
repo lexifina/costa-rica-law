@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. El presente Reglamento en concordancia con las normas legales que lo sustentan, tiene por finalidad normar los aspectos operativos que contempla le Ley N° 8892, “Regulación de Mecanismos de Vigilancia del Acceso a Barrios Residenciales con el Fin de Garantizar el Derecho Fundamental a la Libertad de Tránsito”.

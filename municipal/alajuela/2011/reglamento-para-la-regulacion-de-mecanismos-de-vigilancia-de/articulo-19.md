@@ -1,0 +1,1 @@
+Artículo 19. Consecuencias del incumplimiento: Si transcurrido el plazo otorgado de treinta días naturales, la organización vecinal no cumple la corrección señalada, se concluye que existe imposibilidad material para la corrección y el Concejo Municipal ordenará el desmantelamiento inmediato de dichos dispositivos.
