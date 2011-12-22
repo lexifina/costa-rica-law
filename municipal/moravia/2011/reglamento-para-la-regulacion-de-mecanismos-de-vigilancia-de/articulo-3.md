@@ -1,0 +1,1 @@
+Artículo 3°. Servicios mínimos. La caseta de Seguridad deberá estar equipada con un servicio sanitario que tenga un adecuado tratamiento de las aguas residuales, con energía eléctrica y con cualquier medio de comunicación que garantice la trasmisión de información a cualquier hora del día, entre los vigilantes, la policía, autoridades y representantes de los vecinos.

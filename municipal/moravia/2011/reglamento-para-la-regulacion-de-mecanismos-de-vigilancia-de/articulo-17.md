@@ -1,0 +1,1 @@
+Artículo 17°. Consecuencias del incumplimiento. Si la organización o comité vecinal no cumple la corrección señalada en el plazo establecido, o bien, se concluye que existe imposibilidad material para la corrección, el Concejo Municipal, previa comunicación de la Administración, ordenará el desmantelamiento inmediato de dichos dispositivos.

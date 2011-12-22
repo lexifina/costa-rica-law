@@ -1,0 +1,1 @@
+Artículo 7°. Solicitante. La solicitud deberá ser presentada por una organización de vecinos formalmente constituida o, en su defecto, por un Comité de Vecinos. La palabra vecino debe entenderse como, propietario o poseedor por cualquier título, del inmueble que forme parte de la localidad donde desea instalar una caseta o un dispositivo de acceso.
