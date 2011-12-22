@@ -1,0 +1,1 @@
+Artículo 4.- Los costos de preparación (entrenamiento) se definen como los gastos mensuales que se generan en la condición de atleta y que para efectos del CODEA consisten en: inscripciones, capacitación, material didáctico, alojamiento, alimentación, transporte y lavandería.

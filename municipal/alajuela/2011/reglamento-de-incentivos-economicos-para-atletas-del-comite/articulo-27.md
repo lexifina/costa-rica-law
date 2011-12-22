@@ -1,0 +1,1 @@
+Artículo 27: Con la finalidad de garantizar transparencia, equidad, honestidad y justicia queda terminantemente prohibido que ningún miembro de las familias hasta el tercer grado de consanguinidad o afinidad, de los miembros de la Comisión, el CODEA.
