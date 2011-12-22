@@ -1,0 +1,1 @@
+Artículo 6. Los Concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, están inhibidos para integrar estos comités, los cuales funcionarán según el reglamento que promulgue la municipalidad.

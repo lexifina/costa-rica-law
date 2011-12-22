@@ -1,0 +1,1 @@
+Artículo 2. El domicilio legal del Comité Cantonal, será el Cantón Central de Alajuela sede en el Polideportivo Monserrat, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo de Junta Directiva.

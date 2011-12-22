@@ -1,0 +1,1 @@
+Artículo 32. Los acuerdos y fallos quedan firmes con votación de mayoría simple de los miembros del comité, igual cantidad de votos se requiere para modificar un artículo o fallo que haya quedado firme.
