@@ -1,0 +1,5 @@
+Artículo IX
+El cirujano dentista debe cobrar honorarios por sus servicios profesionales, respetando las tarifas mínimas decretadas por el Colegio de Cirujanos Dentistas de Costa Rica.
+Será permitida la prestación de servicios de forma gratuita o el ofrecimiento de descuentos siempre y cuando se ajusten a lo establecido en el tarifario aprobado anualmente por la Junta Directiva. Se faculta al cirujano dentista para no cobrar o realizar descuentos en sus honorarios profesionales a sus familiares hasta tercer grado de consanguinidad o afinidad, o a cualquier colega.
+La atención de pacientes en obras de caridad, bien social, ferias de la salud o cualquier otra similar deberá darse bajo la supervisión del Colegio de Cirujanos Dentistas de Costa Rica, quien verificará entre otras cosas que el servicio prestado no responde a estrategias para captar clientela de manera desleal, o cobrar tarifas inferiores a las autorizadas por el Colegio.
+La participación de cirujanos dentistas en campañas publicitarias y ofertas de casas comerciales podrá darse respetando los lineamientos establecidos por este Código de Ética.

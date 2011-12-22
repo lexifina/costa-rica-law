@@ -1,0 +1,4 @@
+Artículo XII
+El cirujano dentista no podrá delegar en ningún personal auxiliar los servicios e intervenciones reservados a los profesionales debidamente incorporados al Colegio, aún cuando esos servicios o intervenciones no presenten ningún grado de dificultad a criterio suyo o del paciente.
+Los mecánicos y asistentes dentales deberán limitar su trabajo a las instrucciones y solicitudes del cirujano dentista, sin que les sea posible ejecutar por su cuenta ningún tipo de procedimiento clínico.
+La violación a este artículo será considerada falta grave para todos los efectos y deberá ser puesta en conocimiento de las autoridades administrativas, judiciales y penales competentes para determinar la posible comisión del delito de ejercicio ilegal de la profesión odontológica.

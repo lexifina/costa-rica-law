@@ -1,0 +1,2 @@
+Artículo IV
+El cirujano dentista debe atender con la misma probidad y diligencia a todos los pacientes, independientemente de su condición individual, sin tomar en cuenta situación socio-económica, raza, sexo, religión, opinión, naturaleza del problema de salud o cualquier otra situación o circunstancia personal o social. Asimismo no se debe hacer ninguna distinción en la calidad de la atención ya sea en práctica privada, institucional o de beneficencia.

@@ -1,0 +1,4 @@
+Artículo X
+Para establecer sus honorarios, el cirujano dentista se basará en el principio de razonabilidad, teniendo en cuenta, entre otros factores, la importancia de los servicios prestados, las circunstancias particulares del caso, la infraestructura y tecnología empleadas en la clínica, así como su propia especialización profesional. Es un derecho del paciente conocer la tarifa de los tratamientos antes de que se le practiquen y los deberá aceptar por escrito antes de que el cirujano dentista pueda iniciar algún tratamiento.
+En el caso de que sean varios colegas los que intervienen en el tratamiento, se especificarán los honorarios correspondientes a cada uno de ellos.
+Los cirujanos dentistas, aún cuando presten servicios profesionales como asalariados de personas físicas o jurídicas, deberán oponerse a todo anuncio publicitario en cualquier medio, o actividad que irrespete los honorarios mínimos establecidos por el Colegio de Cirujanos Dentistas de Costa Rica.

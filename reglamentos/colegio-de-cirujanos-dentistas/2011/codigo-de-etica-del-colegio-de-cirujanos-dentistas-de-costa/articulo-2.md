@@ -1,0 +1,3 @@
+Artículo II
+Ante el Colegio de Cirujanos Dentistas de Costa Rica, el cirujano dentista está sujeto únicamente a responsabilidad disciplinaria. La responsabilidad penal o patrimonial por hechos cometidos en el ejercicio de la profesión será competencia exclusiva de los tribunales de justicia o de la autoridad competente correspondiente.
+Ningún colegiado podrá alegar desconocimiento de la Ley, de las disposiciones del presente Código, ni de las Leyes y Reglamentos del Colegio, ni práctica o uso en contrario.

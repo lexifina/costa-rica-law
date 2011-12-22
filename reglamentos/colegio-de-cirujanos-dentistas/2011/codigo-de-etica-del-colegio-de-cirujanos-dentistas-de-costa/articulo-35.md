@@ -1,0 +1,2 @@
+Artículo XXXV
+El cirujano dentista nunca deberá manipular resultados para favorecer materiales o equipos propios o de fabricantes, aún cuando estos apoyen la investigación con incentivos económicos.
