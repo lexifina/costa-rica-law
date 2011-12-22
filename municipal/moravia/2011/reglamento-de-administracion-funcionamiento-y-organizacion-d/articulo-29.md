@@ -1,0 +1,1 @@
+Artículo 29.- Prohibición para funcionarios. Es terminantemente prohibido para el titular de un derecho, sus familiares o cualquier otro interesado, contratar personal de la Municipalidad de Moravia en horas laborales para servicios de mantenimiento o construcción de bóvedas y el funcionario que aceptaré realizar ese tipo de actuaciones tendrá responsabilidad.

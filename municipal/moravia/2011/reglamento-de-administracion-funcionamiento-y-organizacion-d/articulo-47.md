@@ -1,0 +1,1 @@
+Artículo 47.- Del osario común. Los restos que se encuentren al hacer las exhumaciones, serán recogidos cuidadosamente y depositados en el osario común, siempre que los deudos interesados no los reclamen para depositarlos en osarios privados, que posean dentro del mismo Cementerio.

@@ -1,0 +1,1 @@
+Artículo 37.-Prohibiciones. Será prohibida la inhumación de más de un cadáver en el mismo ataúd o en un mismo nicho, salvo casos de madre y recién nacido o producto abortivo, fallecidos en el parto. Adicionalmente no se autorizaran inhumaciones en bóvedas o nichos que presenten fallas en su estructura.

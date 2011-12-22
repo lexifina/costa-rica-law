@@ -1,0 +1,1 @@
+Artículo 27.- Daños derivados del proceso constructivo. En el proceso de construcción o remodelación de bóveda, cualquier daño o deterioro ocasionado a una bóveda ajena, siempre que no haya mediado dolo, será reparado de inmediato por el dueño del derecho que ocasionó el daño. En caso contrario, el costo de la reparación será cargado a su cuenta.

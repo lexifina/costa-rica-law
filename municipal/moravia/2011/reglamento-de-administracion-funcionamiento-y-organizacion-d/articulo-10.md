@@ -1,0 +1,1 @@
+Artículo 10.- De la inscripción. Los derechos sólo podrán inscribirse a nombre de personas físicas y únicamente podrá realizarse la inscripción a favor de personas jurídicas cuando se trate de congregaciones religiosas debidamente constituidas o establecimientos asistenciales declarados de interés público.

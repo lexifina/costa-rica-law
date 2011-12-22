@@ -1,0 +1,1 @@
+Artículo 33.- Extensión del plazo por excepción. En el caso de cuerpos momificados y/o existencia de restos blandos, los cuerpos se mantendrán en el nicho hasta tanto no se complete el proceso de descomposición y se cobrara el monto porcentual del arriendo por el plazo que tarde dicho proceso, contabilizado con base en el monto de arriendo quinquenal.

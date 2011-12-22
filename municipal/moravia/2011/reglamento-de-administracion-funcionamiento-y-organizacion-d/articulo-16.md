@@ -1,0 +1,6 @@
+Artículo 16.- Causales de pérdida. Serán causales de pérdida del derecho funerario, además de lo indicado en otros artículos de este reglamento, las siguientes:
+a) Atraso en el pago de los derechos de mantenimiento del Cementerio, por un año o más.
+b) Cumplimiento del plazo del derecho (10 años), sin que exista renovación del mismo.
+c) Declaración de ruina y abandono de la bóveda. Tal declaración será emitida de oficio por la oficina del Cementerio, cuando hayan transcurrido tres años desde la última inhumación y no se hayan efectuado renovaciones de pintura o reparaciones necesarias. En caso de estar frente a este supuesto la oficina del cementerio hará una primera prevención al arrendatario para que en un plazo de dos meses proceda a las reparaciones respectivas, en caso de omisión se resolverá el contrato y de haber transcurrido cinco años desde la última inhumación se procederá a la exhumación de los restos existentes y la Municipalidad retomara el derecho.
+d) Cuando se haya determinado que la adquisición del derecho funerario se realizó por medio de un procedimiento indebido o malversación.
+e) Producción de graves daños en las bóvedas de terceros, en los bienes muebles e inmuebles propiedad de la Municipalidad.

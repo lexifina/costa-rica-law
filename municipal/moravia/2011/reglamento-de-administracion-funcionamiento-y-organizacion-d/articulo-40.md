@@ -1,0 +1,1 @@
+Artículo 40.- Autorización. Cuando se desee efectuar una inhumación en una bóveda que se encuentre ocupada, deberá mediar autorización del titular del derecho para que los restos existentes sean depositados en la misma bóveda.

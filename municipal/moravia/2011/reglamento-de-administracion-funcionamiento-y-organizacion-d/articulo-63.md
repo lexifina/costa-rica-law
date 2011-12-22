@@ -1,0 +1,1 @@
+Artículo 63.- Transitorio. Las disposiciones de este reglamento entraran en vigencia a partir de su publicación, salvo lo referente a costos de mantenimiento cuya entrada en vigencia se dará una vez que se realice la respectiva publicación de los nuevos costos.

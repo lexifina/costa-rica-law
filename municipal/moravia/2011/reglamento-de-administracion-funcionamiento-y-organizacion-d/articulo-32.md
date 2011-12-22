@@ -1,0 +1,1 @@
+Artículo 32.- De la finalidad de los nichos de arriendo. Los nichos municipales que se describen en el artículo anterior están destinados a atender situaciones de emergencia por defunción existente. Estos nichos no se darán en arriendo a personas que posean derechos en el Cementerio, salvo que se demuestre que dicho derecho está ocupado en su totalidad.

@@ -1,0 +1,1 @@
+Artículo 23.- Material utilizado. La construcción de las bóvedas debe realizarse con ladrillo o mampostería y el grueso de la losa será de 6 cm como mínimo; no se permitirán las paredes prefabricadas.

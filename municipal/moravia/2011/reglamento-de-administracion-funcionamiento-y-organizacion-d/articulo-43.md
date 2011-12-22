@@ -1,0 +1,1 @@
+Artículo 43.- Traslado de restos en cementerio. Las exhumaciones que pretendan traslado de restos a las mismas instalaciones del Cementerio no requerirán de la orden o permiso de la Dirección del Área Rectora de Salud.

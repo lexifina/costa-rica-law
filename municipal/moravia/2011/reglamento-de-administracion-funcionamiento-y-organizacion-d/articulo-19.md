@@ -1,0 +1,1 @@
+Artículo 19.-Formalidades de la cesión. Para que la cesión cobre validez, el mismo deberá ser solicitado por escrito ante la Oficina del Cementerio, acompañado del respectivo título respectivo, previa cancelación del importe correspondiente.

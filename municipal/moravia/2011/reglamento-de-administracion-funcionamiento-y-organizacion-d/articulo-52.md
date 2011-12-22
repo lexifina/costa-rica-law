@@ -1,0 +1,1 @@
+Artículo 52.- Requisitos indispensables. Las exhumaciones, sean internas o externas, se harán siempre en presencia del encargado del cementerio y de dos testigos. La Oficina de Cementerio deberá llevar un registro de las mismas, para lo cual levantara un acta, la cual deberá ser firmada por los presentes.

@@ -1,0 +1,3 @@
+Capítulo V.
+Del arrendamiento.
+Artículo 31.- Del periodo de arriendo y porcentaje de reserva. En el Cementerio existirán nichos para arrendamiento. Dicho arriendo lo dará la Municipalidad por periodos de 5 (cinco) años y este plazo será renovable por una única vez en un periodo igual, el alquiler deberá pagarse por adelantado y será definido según las reglas estipuladas en este instrumento. La renovación deberá hacerse dentro de los diez días hábiles posteriores a ese vencimiento. De no realizarse el trámite en ese lapso la Municipalidad queda facultada para hacer uso del nicho y trasladar los restos al osario, debidamente identificados. Del total de nichos existentes para arrendamiento se destinará un 5% (cinco por ciento) para inhumación de habituales o contingencias.

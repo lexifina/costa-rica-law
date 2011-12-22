@@ -1,0 +1,1 @@
+Artículo 4.- Representación grafica. El Cementerio Municipal está dividido en cuadros y líneas y existirá referencia gráfica y escrita de cada una, a efecto de tomarlas como punto de referencia para la localización de cada derecho esto conforme la numeración asignada a cada uno. A la representación gráfica se le denominara “diseño oficial” y estará consignada en un plano general.

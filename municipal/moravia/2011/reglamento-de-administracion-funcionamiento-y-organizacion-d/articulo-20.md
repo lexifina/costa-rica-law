@@ -1,0 +1,1 @@
+Artículo 20.- De la demaniabilidad. Los derechos no podrán ser vendidos, subarrendados, embargados, dados en garantía, o gravados en forma alguna. Este tipo de actuaciones generarán la revocación automática del derecho sin responsabilidad para la Municipalidad. Igual medida aplicará para los arriendos de nichos.

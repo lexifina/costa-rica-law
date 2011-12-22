@@ -1,0 +1,1 @@
+Artículo 36.- Del horario de inhumaciones. Las inhumaciones se realizarán de las 8:00 a.m a las. 04:00 p.m. En casos de excepción podrá extenderse este plazo hasta las 05:00 p.m. Todos los días de la semana serán hábiles para esos efectos.

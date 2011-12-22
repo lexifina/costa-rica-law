@@ -1,0 +1,1 @@
+Artículo 9.- Plazo para cancelar. Una vez adjudicado el derecho, en un plazo de dos días hábiles, el interesado deberá cancelar el importe respectivo. Si el pago no se realiza en el plazo establecido se procederá a readjudicar el derecho en el orden ya dispuesto.

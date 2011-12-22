@@ -1,0 +1,1 @@
+Artículo 55.- Costo del servicio. La Municipalidad cobrará una cuota de mantenimiento anual a los titulares de nichos, misma que se determinará tomando en cuenta el costo real de la prestación del servicio, más un veinte por ciento que se considera como ingreso libre.

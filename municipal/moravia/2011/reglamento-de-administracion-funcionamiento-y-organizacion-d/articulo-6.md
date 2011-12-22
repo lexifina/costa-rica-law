@@ -1,0 +1,1 @@
+Artículo 6.- No se trata de derecho real. El derecho funerario implica una autorización de uso temporal –renovable cada diez años-, para el depósito de cadáveres o restos humanos. Por cada derecho adquirido se emitirá un titulo que acredita la tenencia y el disfrute del mismo.

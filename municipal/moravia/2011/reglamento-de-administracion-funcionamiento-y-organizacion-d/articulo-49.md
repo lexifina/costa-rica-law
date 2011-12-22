@@ -1,0 +1,1 @@
+Artículo 49.- Cuido y transporte de los restos. Una vez retirados los restos del Cementerio, la responsabilidad sobre el cuido, transporte y uso que se le dé a los mismos correrá por cuenta del solicitante, liberando a la Municipalidad de cualquier responsabilidad
