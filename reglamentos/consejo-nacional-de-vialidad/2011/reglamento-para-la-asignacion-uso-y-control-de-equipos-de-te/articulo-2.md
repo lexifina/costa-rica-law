@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad. Se entenderá que el servicio de teléfono celular o radiolocalizador es un instrumento de trabajo para facilitar el mejor desempeño de las labores de los funcionarios a quien se les asigna.
