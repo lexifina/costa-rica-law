@@ -1,0 +1,2 @@
+II.—Publicar en el diario oficial La Gaceta la presente resolución.
+En cumplimiento de lo que ordena el artículo 345 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de revocatoria o reposición ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente a la publicación de la presente resolución.
