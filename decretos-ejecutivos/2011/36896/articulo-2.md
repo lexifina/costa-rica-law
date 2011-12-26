@@ -1,0 +1,1 @@
+Artículo 2º—Se derogan los Transitorios I y II Decreto Ejecutivo N° 35997-MEIC, del 05 de abril del 2010, publicado en el Diario Oficial La Gaceta Nº 92, el día 13 de mayo de 2010, mediante el cual el Poder Ejecutivo aprobó el “Procedimiento para la Verificación de Tanques usados en el Transporte de Combustibles”.
