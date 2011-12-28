@@ -1,0 +1,2 @@
+Transitorio 1º—Se procederá a incluir dichos ajustes, en próximos presupuestos ordinarios o extraordinarios, en el momento en que la estructura del Presupuesto Municipal, permita hacer frente al ajuste de salarios aprobado, siempre que dicho pago no implique aumentar los gastos generales de administración, por encima de un 40% (cuarenta por ciento). Todo de conformidad con lo estatuido por el artículo 93 del Código Municipal, y las otras normas citadas.
+(Así adicionado y publicado en La Gaceta N° 22 del 31 de enero de 2012)

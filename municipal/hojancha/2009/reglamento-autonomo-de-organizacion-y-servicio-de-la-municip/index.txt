@@ -203,3 +203,4 @@ articulo-202.md
 articulo-203.md
 articulo-204.md
 articulo-205.md
+articulo-1-transitorio.md
