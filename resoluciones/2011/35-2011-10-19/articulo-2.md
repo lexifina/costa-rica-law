@@ -1,0 +1,2 @@
+Artículo 2º— Se adiciona un inciso f) al Aparte B) del artículo 7 de la Resolución N° 30-2009 del 24 de setiembre del 2009, para que diga:
+f) Sexto paso: En caso de que el uso del terreno sea mixto, o sea que esté tanto el uso habitacional como otros usos, a saber: comercial, agropecuario, industriales o de servicios, se debe obtener el porcentaje del terreno dedicado a uso habitacional y multiplicarlo por el monto obtenido en el punto quinto. De no existir estos porcentajes se deja el monto de un 100%
