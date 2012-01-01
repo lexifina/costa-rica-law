@@ -1,0 +1,1 @@
+Artículo 4.- De conformidad con el numeral 3 de la parte resolutiva de la Resolución N° 263-2011 (COMIECO-LX) de fecha 27 de julio de 2011, para Costa Rica se aplican las disposiciones del Decreto Ejecutivo N° 35701-MAG-MEIC-COMEX de fecha 17 de diciembre de 2009, publicado en el Diario Oficial La Gaceta N° 15 del 22 de enero de 2010; y sus reformas.
