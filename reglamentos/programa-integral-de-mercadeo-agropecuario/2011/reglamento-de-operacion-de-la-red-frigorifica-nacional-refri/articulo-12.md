@@ -1,0 +1,2 @@
+Artículo 12.—Solicitud de Servicio: La asignación de espacios por contrato de derecho de uso se hará, mediante los mecanismos oficiales que serán determinados por la Administración, todo de acuerdo a la normativa ISO y principio de legalidad.
+La Administración se reserva la facultad de requerir otros documentos con la solicitud, o en cualquier momento durante la vigencia del contrato como certificados de salud, escrituras constitutivas de personas jurídicas y otros, además será requisito sine-qua-non estar al día con la CCSS.
