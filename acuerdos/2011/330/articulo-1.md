@@ -129,6 +129,13 @@ ACUERDA:
 96 | Estadía embarcación con fines científicos, e investigación, didácticos y de fomento | ¢215.00 * metro eslora * hora
 97 | Estadía embarcación nacional o extranjera comercial, con fines distintos a descarga de productos pesqueros o avituallamiento | ¢215.00 * metro eslora * hora
 98 | Movilización para carga de vehículos | ¢ 600.00
+(*)Licencia para pesca comercial embarcación inactiva (por año) | Tarifa 2012
+Pesca comercial pequeña escala | 9.720,00
+Pesca comercial mediana escala | 25.920,00
+Pesca comercial avanzada | 64.800,00
+Pesca comercial semiindustrial-camaronero | 64.800,00
+Pesca comercial semiindustrial-sardinero | 64.800,00
+(*)(Así incorporadas las tarifas anteriores por acuerdo A.J.D.I.P./458-2011 del 19 de diciembre de 2011)
 En el Litoral Atlántico, serán catalogadas como flota artesanal pequeña escala, las conocidas como botes, es decir, aquellas construidas de una sola pieza y con motor fuera de borda.
 2 En cuanto a los carné para capitanes y tripulantes nacionales o extranjeros de embarcaciones de pesca deportiva o turística o de observación de cetáceos, estos serán anuales. Para su otorgamiento deberán presentar copia del documento de identificación y una fotografía tamaño pasaporte. A los capitanes extranjeros en condición de turista, les estará prohibido el ejercicio como tal en embarcaciones de pesca turística de bandera nacional.
 Los carné para pesca deportiva o turística de un año serán vendidos únicamente para uso de los turistas nacionales, residentes o extranjeros. El uso de estos carné estará totalmente prohibido para ejercer como capitán o tripulantes de embarcaciones de pesca deportiva o turística. Los interesados, las empresas operadoras de tours o las asociaciones, podrán adquirir de manera previa y planificada, la cantidad de carnés que consideren conveniente mantener a disposición de sus clientes y en el entendido de que dichos carnés INCOPESCA los otorgará con fecha de emisión al día en que son adquiridos y con fecha de vencimiento a un año calendario. Cumplido el plazo de vencimiento sin que hubiesen sido utilizados por los usuarios, estos caducarán de pleno derecho sin que puedan ser revalidados, ni procederá reintegro alguno de los montos pagados. Para los fines indicados en este aparte, el INCOPESCA podrá suscribir convenios con los tour operadores para mejor la prestación de los servicios y la generación de recursos por la venta de los mismos; cumpliendo con las disposiciones legales vigentes en la materia.
