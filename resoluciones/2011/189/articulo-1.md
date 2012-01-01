@@ -1,0 +1,19 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+RESOLUCIONES
+R-DC-189-2011.—CONTRALORÍA GENERAL DE LA REPÚBLICA.—DESPACHO CONTRALOR.—San José, a las nueve horas del veinticinco de noviembre de dos mil once.
+Reforma parcial al Estatuto Autónomo de Servicios de la Contraloría General de la República.
+Considerando:
+I. Que la Contraloría General de la República goza de absoluta independencia funcional y administrativa y potestad reglamentaria para normar y actualizar los mecanismos propios de las relaciones de empleo con sus funcionarios.
+II. Que el régimen de seguro de salud instaura un mínimo de cobertura, que puede ser ampliado por la administración, siempre bajo los principios de razonabilidad y proporcionalidad que deben guiar el actuar de las entidades públicas.
+III. Que la Procuraduría General de la República ha manifestado en forma reiterada, en especial en el Dictamen C-118-2011 de 31 de mayo de 2011, que los subsidios complementarios que se brinden a los funcionarios públicos no deben ser considerados como salario.
+IV. Que el Estatuto Autónomo de Servicio de la Contraloría General de la República regula la situación jurídica de las personas cuya relación laboral se encuentra suspendida por licencias sin goce de salario, incapacidad por accidente de tránsito, enfermedad, riesgo de trabajo o atención de paciente en fase terminal, siendo necesario actualizar y completar estas regulaciones.
+V. Que la División de Gestión de Apoyo, mediante oficio DGA-0085-2011, sometió a conocimiento del Despacho Contralor el contenido de la presente reforma, previa consulta a la Asociación de Profesionales y a la Seccional de la ANEP, de la Contraloría General de la República.
+VI. Que se han cumplido con las disposiciones legales pertinentes.
+Por tanto,
+RESUELVE:
+Artículo 1.- Refórmense los artículos 22, 25 y 71 del Estatuto Autónomo de Servicio de la Contraloría General de la República, emitido mediante Resolución 4-DRH-96, para que en lo sucesivo se lean en los siguientes términos:
+“Artículo 22.- Los servidores y servidoras tendrán derecho a una remuneración adicional anual denominada aguinaldo, correspondiente a la doceava parte del total de salarios ordinarios y extraordinarios devengados entre el 1 de noviembre de un año y el 31 de octubre del siguiente, según lo establecido en la legislación especial que regula la materia. Esta remuneración se hará efectiva en el mes de diciembre de cada año, salvo que exista una ruptura de la relación laboral, en cuyo caso el reconocimiento se hará con la liquidación correspondiente.
+Si el funcionario o funcionaria presta servicios durante un tiempo menor al indicado, recibirá el aguinaldo en proporción al tiempo efectivamente servido.
+La anterior disposición no aplica para los períodos de licencia por maternidad o licencias con goce de salario, caso en que para efecto de cálculo de aguinaldo se tomarán en cuenta todas las remuneraciones percibidas.”
+“Artículo 25.- El servidor o servidora de la Contraloría General que fuere declarado incapacitado para trabajar por enfermedad según el régimen del seguro de salud de la Caja Costarricense de Seguro Social, por riesgos del trabajo, por accidentes de tránsito o por licencia para atención de pacientes en fase terminal, tendrá derecho a que se complemente el subsidio que reciba de la entidad aseguradora que corresponda, hasta completar el cien por ciento del salario ordinario que esté devengando, incluyendo el salario escolar, hasta por el plazo de un año.”
+“Artículo 71.- Durante la suspensión de la relación de servicio, por licencias sin goce de salario, incapacidad por accidente de tránsito, enfermedad, riesgo de trabajo o por atención de paciente en fase terminal, no se generará derecho a vacaciones. Quedan a salvo las licencias con goce de salario o por maternidad las cuales sí generarán el derecho en mención.”
