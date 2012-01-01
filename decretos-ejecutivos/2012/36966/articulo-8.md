@@ -1,0 +1,1 @@
+Artículo 8°—Ninguna entidad de la Administración Pública descentralizada, podrá exceder el monto de colones, ni vigencia, del aumento general al salario base contenido en el presente Decreto Ejecutivo, salvo que existiera a lo interno de las entidades, normas superiores en cuanto a la fijación salarial,

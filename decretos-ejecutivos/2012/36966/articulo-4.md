@@ -1,0 +1,1 @@
+Artículo 4°—La suspensión del “Acuerdo de negociación de la comisión negociadora de salarios del sector público para revisión salarial del II periodo 2007”, es de carácter temporal y obedece a la difícil situación imperante.
