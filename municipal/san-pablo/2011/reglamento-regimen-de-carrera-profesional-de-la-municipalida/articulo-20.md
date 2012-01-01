@@ -1,0 +1,1 @@
+Artículo 20.—La evaluación y calificación de servicios se hará efectiva en la primera quincena del mes de junio de cada año. La Oficina de Recursos Humanos velará porque cada jefe cumpla esta disposición.

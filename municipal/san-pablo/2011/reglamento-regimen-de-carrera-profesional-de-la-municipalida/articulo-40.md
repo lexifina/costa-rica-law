@@ -1,0 +1,1 @@
+Artículo 40.—El monto del incentivo derivado de la aplicación de los factores previstos para la Carrera Profesional, se establecerá mediante el valor de cada punto y de acuerdo con los procedimientos indicados en este cuerpo de normas.

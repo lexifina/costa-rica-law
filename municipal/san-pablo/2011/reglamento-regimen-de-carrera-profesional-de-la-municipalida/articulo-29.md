@@ -1,0 +1,1 @@
+Artículo 29.—Las quejas o reconocimientos que se presentaran formalmente acerca del servicio o rendimiento sobre algún funcionario, deberá ser analizado y tomado en cuenta por los jefes inmediatos a la hora de evaluar a sus subalternos.

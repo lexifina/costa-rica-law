@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Procedimiento para otorgar el incentivo de carrera profesional
+Artículo 34.—Los profesionales que reúnan las condiciones indicadas en el artículo 3º de este cuerpo normativo, serán acreedores al incentivo por Carrera Profesional, a partir del primer día del siguiente mes calendario a la fecha de recibo de su solicitud por la Oficina de Recursos Humanos.
+Cuando un servidor haya venido disfrutando del incentivo de Carrera Profesional en otra institución cubierta por el Régimen Municipal y/o Administración Pública, se le reconocerá el puntaje correspondiente, de oficio, previo aporte de la certificación de la Oficina de Recursos Humanos respectiva; lo anterior, sin perjuicio de los controles que deba ejercer la Administración, a través de la ejecución de un estudio posterior, para verificar los procedimientos y criterios aplicados en dicho reconocimiento.

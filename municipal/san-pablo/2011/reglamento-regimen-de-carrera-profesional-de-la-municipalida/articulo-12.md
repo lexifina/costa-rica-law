@@ -1,0 +1,5 @@
+E. EXPERIENCIA LABORAL DE CARÁCTER PROFESIONAL EN LAS INSTITUCIONES PÚBLICAS NACIONALES:
+Artículo 12.—La experiencia laboral de carácter profesional, adquirida en instituciones públicas nacionales, se reconocerá por parte de la respectiva Oficina de Recursos Humanos, siempre que:
+a) Haya sido obtenida en puestos de nivel profesional que exijan como requisito mínimo el grado de Bachiller universitario.
+b) Haya sido obtenida en la ejecución de labores de nivel profesional.
+c) El servidor hubiese sido calificado en los períodos correspondientes, con nota igual o superior a Muy Bueno o su equivalente. Se eximirá de este requisito únicamente a los servidores que desempeñen puestos excluidos del Régimen de Servicio Civil que, de conformidad con la ley, no requieren de evaluación del desempeño, así como aquellos que por circunstancias justificadas no fueron evaluados. En sustitución de los formularios de evaluación se podrá aceptar la documentación que certifique las calificaciones correspondientes, emitida por la respectiva Oficina de Recursos Humanos.

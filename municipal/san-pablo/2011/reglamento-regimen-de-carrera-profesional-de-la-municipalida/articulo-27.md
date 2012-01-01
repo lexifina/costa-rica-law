@@ -1,0 +1,1 @@
+Artículo 27.—Cuando el resultado de la evaluación y calificación de servicios anual del servidor sea Regular dos veces consecutivas el hecho, se considerará falta grave. La sanción para este tipo de calificación según el reglamento autónomo de organización y servicios de la Municipalidad.

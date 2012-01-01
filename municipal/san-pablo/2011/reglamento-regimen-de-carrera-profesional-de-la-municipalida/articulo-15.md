@@ -1,0 +1,4 @@
+F. EXPERIENCIA LABORAL DE CARÁCTER PROFESIONAL EN ORGANISMOS INTERNACIONALES:
+Artículo 15.—La experiencia laboral de carácter profesional obtenida al servicio de organismos internacionales o en proyectos nacionales financiados por organismos internacionales, se considerará para efectos de reconocimiento de este incentivo, siempre que:
+a) Se demuestre por medio de certificaciones emitidas por la autoridad competente del organismo respectivo, el tipo de trabajo realizado por el servidor y su duración, y que éste se realizó producto de una relación de servicios directa con dicho organismo.
+b) Las labores desempeñadas sean afines con la actividad del puesto que le da opción al incentivo por Carrera Profesional. La afinidad a que se refiere este inciso deberá ser técnicamente determinada por la Unidad Especializada de Recursos Humanos respectiva.

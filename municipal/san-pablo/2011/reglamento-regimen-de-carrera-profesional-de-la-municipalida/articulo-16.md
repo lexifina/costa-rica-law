@@ -1,0 +1,5 @@
+G. EXPERIENCIA PARAUNIVERSITARIOS PÚBLICOS O PRIVADOS:
+Artículo 16.—La experiencia docente a nivel universitario o parauniversitario, se reconocerá siempre que:
+a) Los cursos que haya impartido el servidor sean propios o afines a su área de formación o propios o afines con las actividades del puesto que ocupa. La afinidad a que se refiere este inciso deberá ser técnicamente determinada por la Oficina de Recursos Humanos respectiva.
+b) Al momento de impartir los cursos el servidor ostente como mínimo el grado académico de Bachiller Universitario.
+Para estos efectos, el tiempo laborado se considerará en forma acumulativa y se comprobará mediante certificación emitida por el Departamento de Registro, la Oficina de Recursos Humanos, el Coordinador de la carrera o el Decano de la respectiva institución educativa o, bien, la unidad competente que corresponda. Los períodos se considerarán de acuerdo con la distribución del año lectivo, según la institución de enseñanza de que se trate, e independientemente de la jornada.

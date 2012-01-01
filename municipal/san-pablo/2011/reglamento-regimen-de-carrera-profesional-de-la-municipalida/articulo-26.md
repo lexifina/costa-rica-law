@@ -1,0 +1,1 @@
+Artículo 26.—La obtención de una calificación inferior a “Muy Bueno” o, su equivalente, será motivo para no otorgar el ajuste en los diferentes factores de la Carrera Profesional en el correspondiente periodo; situación que debe quedar justificada y documentada en el expediente respectivo.

@@ -1,0 +1,1 @@
+Artículo 28.—Para ser tomada en cuenta, la evaluación del desempeño deberá estar registrada en la Oficina de Recursos Humanos respectiva, quien llevará en cada expediente de personal el formulario con la evaluación de desempeño realizada.

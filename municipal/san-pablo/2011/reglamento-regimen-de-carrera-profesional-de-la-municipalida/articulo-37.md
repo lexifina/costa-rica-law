@@ -1,0 +1,1 @@
+Artículo 37.—Ante las decisiones adoptadas por la Oficina de Recursos Humanos en materia de Carrera Profesional, el servidor que no esté conforme con el resultado o los resultados, podrá plantear su reclamo ante ella en el término de tres días hábiles, la que en un plazo de ocho días calendario, deberá pronunciarse sobre el reclamo.
