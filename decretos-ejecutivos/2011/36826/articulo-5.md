@@ -1,0 +1,1 @@
+Artículo 5º—Del uso del chaleco reflectivo. El chaleco reflectivo será en color naranja, con bandas amarillas en material reflectivo y tipo estándar. Dicho chaleco formará parte del uniforme cuando así se requiera por la naturaleza de las acciones a realizar por el funcionario.

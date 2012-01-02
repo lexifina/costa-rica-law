@@ -1,0 +1,1 @@
+Artículo 6º—De abrigos y jacket. La utilización de la jacket y el abrigo se designarán según el clima del lugar de trabajo y serán de color verde olivo. Cuando se requiera, se podrá utilizar bandas reflectivas en la manga o espalda.

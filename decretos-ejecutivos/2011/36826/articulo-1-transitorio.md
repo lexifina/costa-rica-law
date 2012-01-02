@@ -1,0 +1,1 @@
+Transitorio I.—El uso obligatorio de los tipos de uniformes dispuestos en el presente decreto ejecutivo por parte de los funcionarios del Sistema Nacional de Áreas de Conservación, será inmediato y obligatorio bajo los lineamientos aquí establecidos, a partir del momento en que se acredite mediante constancia escrita de recepción, el suministro de los mismos a los funcionarios.

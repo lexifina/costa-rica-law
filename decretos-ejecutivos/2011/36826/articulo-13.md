@@ -1,0 +1,2 @@
+Artículo 13.—Del suministro de los uniformes y correcto uso de los mismos. El Sistema Nacional de Áreas de Conservación, será el encargado de proveer los uniformes a los funcionarios de la institución, para el buen desempeño de sus funciones.
+Las diferentes jefaturas de acuerdo a la estructura del Sistema Nacional de Áreas de Conservación y de la Secretaría Ejecutiva serán las responsables de velar por el adecuado uso de los uniformes por parte de sus subalternos, de conformidad a lo indicado en el presente decreto ejecutivo.

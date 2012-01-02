@@ -1,0 +1,1 @@
+Artículo 7º—De los protectores de cabeza tipo casco. El uso del casco será obligatorio cuando se desarrolle la actividad de espeleología cuyo objeto es la exploración y estudio de las cavidades subterráneas, para el combate de incendios u otro tipo de incidentes.

@@ -1,0 +1,1 @@
+Artículo 9º—De los lentes de sol. El uso de lentes de protección solar es opcional, pero de utilizarse, serán de tipo deportivo, con aro y lentes de color oscuro y con protector 100% contra los rayos ultravioletas.
