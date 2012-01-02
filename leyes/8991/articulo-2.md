@@ -1,0 +1,2 @@
+ARTÍCULO 2.-
+Autorízase a la Municipalidad del cantón de Siquirres de Limón, cédula jurídica número tres-cero catorce-cero cuarenta y dos mil ciento veintiséis, (N.º 3-014-042126), para que done el inmueble descrito en el artículo anterior a favor de la Asociación de Desarrollo Específica pro Mejoras de Guayacán de Siquirres, Limón, cédula jurídica número tres-cero cero dos-cuatrocientos setenta y un mil ochocientos siete (N.º 3-002-471807), para la construcción de un salón comunal y una cancha de fútbol.
