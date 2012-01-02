@@ -15,3 +15,4 @@ Reforma Comisión Nacional para la Gestión de la Biodiversidad
 | --- | --- | --- |
 | 1 | 2008-12-19 | la propia norma |
 | 2 | 2011-06-29 | Decreto Ejecutivo 36694 (2011-06-29) |
+| 3 | 2012-01-02 | Decreto Ejecutivo 37012 (2012-01-02) |

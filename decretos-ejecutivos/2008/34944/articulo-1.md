@@ -9,5 +9,4 @@ III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que
 Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a los siguientes representantes del Ministro de Agricultura y Ganadería:
 1. (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36694 del 29 de junio de 2011)
-2. Miembro suplente:
-Nevio Bonilla Morales.
+2. (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 37012 del 2 de enero del 2012)
