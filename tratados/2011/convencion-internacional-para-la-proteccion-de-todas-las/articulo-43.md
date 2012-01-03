@@ -1,0 +1,2 @@
+Artículo 43
+La presente Convención se entiende sin perjuicio de las disposiciones del derecho internacional humanitario, incluidas las obligaciones que incumben a las Altas Partes contratantes de los cuatro Convenios de Ginebra de 12 de agosto de 1949 y de sus Protocolos Adicionales de 8 de junio de 1977, o de la posibilidad que tiene, cada Estado Parte de autorizar al Comité Internacional de la Cruz Roja a visitar los lugares de detención en los casos no previstos por el derecho internacional humanitario.

@@ -1,0 +1,2 @@
+Artículo 32
+Cada Estado Parte en la presente Convención podrá declarar en cualquier momento que reconoce la competencia del Comité para recibir y examinar las comunicaciones en que un Estado Parte alegue que otro Estado Parte no cumple con las obligaciones que le impone la presente Convención. El Comité no admitirá ninguna comunicación relativa a un Estado Parte que no haya hecho tal declaración, ni una comunicación presentada por un Estado Parte que no haya hecho dicha declaración.

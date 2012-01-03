@@ -1,0 +1,3 @@
+Artículo 19
+1. Las informaciones personales, inclusive los datos médicos o genéticos, que se recaben y/o transmitan en el marco de la búsqueda de una persona desaparecida no pueden ser utilizadas o reveladas con fines distintos dé dicha búsqueda. Ello es sin perjuicio de la utilización de esas informaciones en procedimientos penales relativos a un delito de desaparición forzada, o en ejercicio del derecho a obtener reparación.
+2. La recopilación, el tratamiento, el uso y la conservación de informaciones personales, inclusive datos médicos o genéticos, no debe infringir o tener el efecto de infringir los derechos humanos, las libertades fundamentales y la dignidad de la persona.

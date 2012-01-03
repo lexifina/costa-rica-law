@@ -1,0 +1,2 @@
+Artículo 34
+Si el Comité recibe información que, a su juicio, contiene indicios bien fundados de que la desaparición forzada se practica de forma generalizada o sistemática en el territorio bajo la jurisdicción de un Estado Parte, y tras haber solicitado del Estado Parte interesado toda la información pertinente sobre esa situación, podrá llevar la cuestión, con carácter urgente, a la consideración de la Asamblea General de las Naciones Unidas, por medio del Secretario General de las Naciones Unidas.

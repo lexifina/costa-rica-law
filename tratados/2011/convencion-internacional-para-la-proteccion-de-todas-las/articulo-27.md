@@ -1,0 +1,2 @@
+Artículo 27
+Una Conferencia de los Estados Partes se reunirá no antes de cuatro años y no más tarde de seis años, después de la entrada en vigor de la presente Convención, para evaluar el funcionamiento del Comité y decidir, según las modalidades previstas en el párrafo 2 del artículo 44, si es apropiado confiar a otra instancia -sin excluir ninguna posibilidad-, con las atribuciones previstas en los artículos 28 a 36, la supervisión de la aplicación de la presente Convención.

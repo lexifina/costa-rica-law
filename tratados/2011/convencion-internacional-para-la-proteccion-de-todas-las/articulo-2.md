@@ -1,0 +1,2 @@
+Artículo 2
+A los efectos de la presente Convención, se entenderá por "desaparición forzada" el arresto, la detención, el secuestro o cualquier otra forma de privación de libertad que sean obra de agentes del Estado o por personas o grupos de personas que actúan con la autorización, el apoyo o la aquiescencia del Estado, seguida de la negativa a reconocer dicha privación de libertad o del ocultamiento de la suerte o el paradero de la persona desaparecida, sustrayéndola a la protección de la ley.

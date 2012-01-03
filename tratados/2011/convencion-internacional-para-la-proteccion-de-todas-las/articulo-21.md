@@ -1,0 +1,2 @@
+Artículo 21
+Cada Estado Parte tomará las medidas necesarias para que la liberación de una persona se efectúe con arreglo a modalidades que permitan verificar con certeza que ha sido efectivamente puesta en libertad. Los Estados Partes adoptarán asimismo las medidas necesarias para garantizar la integridad física y el pleno ejercicio de sus derechos a las personas en el momento en que sean liberadas, sin perjuicio de las obligaciones a las que puedan estar sujetas en virtud de la legislación nacional.

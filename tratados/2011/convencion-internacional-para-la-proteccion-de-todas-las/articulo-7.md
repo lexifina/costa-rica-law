@@ -1,0 +1,5 @@
+Artículo 7
+1.Los Estados Partes considerarán el delito de desaparición forzada punible con penas apropiadas, que tengan en cuenta su extrema gravedad.
+2. Los Estados Partes podrán establecer:
+a) Circunstancias atenuantes, en particular para los que, habiendo sido partícipes en la comisión de una desaparición forzada, hayan contribuido efectivamente a la reaparición con vida de la persona desaparecida o hayan permitido esclarecer casos de desaparición forzada o identificar a los responsables de una desaparición forzada;
+b) Sin perjuicio de otros procedimientos penales, circunstancias agravantes, especialmente en caso de deceso de la persona desaparecida, o para quienes sean culpables de la desaparición forzada de mujeres embarazadas, menores, personas con discapacidades u otras personas particularmente vulnerables.
