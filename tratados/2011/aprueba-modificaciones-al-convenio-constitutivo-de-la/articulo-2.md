@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Reformar todos los artículos del Convenio que establece la Organización Latinoamericana de Energía que mencionen la denominación de la Organización, a fin de que concuerden con la reforma al Artículo 1.

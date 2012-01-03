@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Instruir a la Secretaría Permanente para que, en el ámbito de su competencia haga efectivo el cambio de nombre de OLADE a OLACDE, una vez que las modificaciones hayan sido ratificadas por todos los Estados Miembros.
