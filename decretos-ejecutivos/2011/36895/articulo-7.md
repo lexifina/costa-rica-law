@@ -1,0 +1,10 @@
+Artículo 7º—Requisitos formales de la solicitud del estímulo. Las entidades solicitantes de conformidad con lo establecido en el artículo 6 de la Ley Nº 8791, podrán ser sujetos de este estímulo estatal cumpliendo los siguientes requisitos:
+a) Acreditar no tener fines de lucro. La labor educativa que se desarrolle con fines de lucro, automáticamente descalifica cualquier pretensión de obtener un estímulo estatal por parte del Ministerio de Educación Pública.
+b) Acreditar el nombre de la asociación, fundación u organización religiosa que administra el centro educativo.
+c) Contar por parte del Ministerio de Educación Pública con el reconocimiento y acreditación de estudios, y aportar declaración jurada de que el centro educativo no se encuentra con algún tipo de sanción para solicitar este estímulo.
+d) Aportar certificación de que se encuentra al día en el pago de sus obligaciones tributarias nacionales y municipales; así como en sus obligaciones patronales con el régimen de seguridad social.
+e) Aportar certificación de que se cuenta con los permisos sanitarios y municipales de funcionamiento correspondientes y al día.
+f) Aportar Declaración Jurada de que garantiza el acceso a las personas estudiantes sin discriminación contraria a la dignidad humana.
+g) Aportar Declaración Jurada de que se cuenta con un programa de becas complementarias hasta para un diez por ciento (10%) de estudiantes en condición de pobreza o pobreza extrema o cuya situación socioeconómica lo amerite. Los alcances y las condiciones de estos programas deberán regularse en los respectivos convenios, según lo dispuesto en Ley Nº 8791.
+h) Acreditar si recibe algún otro estímulo por parte de alguna institución estatal, distinta a lo establecido en la Ley Nº 8791, con el fin de contabilizarlo en resguardo de la limitación presupuestaría establecida en el artículo 2 de la citada ley.
+i) Suscribir un convenio con el Ministerio de Educación Pública, a efecto de establecer la regulación que disponga las condiciones en que se implementará el estímulo de conformidad con esta Ley y su Reglamento.

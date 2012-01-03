@@ -1,0 +1,1 @@
+Artículo 3º—Aplicación del Estímulo. Para los fines de lo establecido en el artículo 4 de la Ley Nº 8791, el estímulo se aplicará únicamente en los casos de remuneración de lecciones que correspondan estrictamente al plan oficial de estudios reconocido por el Ministerio de Educación Pública.

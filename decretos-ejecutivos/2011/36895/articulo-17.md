@@ -1,0 +1,1 @@
+Artículo 17.—Capacitación al Personal Docente y Administrativo Docente destacado en la institución: El servidor público destacado en el Centro Educativo Privado, podrá participar en procesos de capacitación que organice o financie el Ministerio de Educación Pública para sus servidores.

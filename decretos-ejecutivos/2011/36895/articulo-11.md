@@ -1,0 +1,1 @@
+Artículo 11.—Del Seguimiento y Control. El Departamento de Centros Docentes Privados, es la Unidad encargada del seguimiento y control de la utilización de los estímulos otorgados; por ende, deberá llevar el registro de las Instituciones Privadas que reciben dicho estímulo.

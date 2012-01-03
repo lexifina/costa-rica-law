@@ -1,0 +1,1 @@
+Artículo 12.—Convenio. El Centro Privado al suscribir el Convenio señalado en la Ley Nº 8791, se compromete a que el Ministerio de Educación Pública tenga acceso a la información relativa a su labor educativa, en caso de incumplimiento grave comprobado, se dará por concluido el otorgamiento del estímulo otorgado en el Convenio suscrito.

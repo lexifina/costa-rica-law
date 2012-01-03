@@ -1,0 +1,1 @@
+Artículo 15.—Cese por solicitud de parte. En cualquier momento el beneficiario del estímulo puede solicitar el cese del mismo, de conformidad con los requerimientos establecidos en el artículo 13 de la Ley Nº 8791.

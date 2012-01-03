@@ -1,0 +1,1 @@
+Artículo 14.—Procedimiento por incumplimiento. El procedimiento para comprobar el incumplimiento será el establecido en el artículo 12 de la Ley Nº 8791; en cuanto la conformación del Órgano Director que realice el jerarca, deberá contemplarse el nombramiento de un miembro suplente.
