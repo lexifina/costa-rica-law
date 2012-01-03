@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por el artículo 29 de la ley N° 9023 del 3 de enero del 2012, "Ley de Impuestos Municipales del Cantón Central de Heredia")
 N° 7247
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 Decreta:
