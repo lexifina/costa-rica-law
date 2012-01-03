@@ -1,0 +1,1 @@
+Artículo 19.—Número de Modificaciones Presupuestarias Simples de Aprobación del Concejo. La cantidad de Modificaciones Presupuestarias Simples de Aprobación del Concejo al año será de doce. Para las adicionales que se requieran se tramitarán con la autorización del Concejo Municipal.

@@ -1,0 +1,3 @@
+Artículo 10.—Responsabilidades relacionadas con la aprobación presupuestaria interna. El Alcalde o la Alcaldesa y el Concejo tendrán responsabilidad por las modificaciones que aprueben y que no estén conforme al ordenamiento jurídico.
+Cada solicitud de variación del presupuesto que se presente para aprobación llevará la firma del encargado o encargada de elaboración del presupuesto y sus modificaciones como responsable de que lo solicitado está conforme a derecho.
+Corresponderá al superior jerárquico del encargado de la elaboración del presupuesto, la verificación del cumplimiento de lo establecido en este reglamento y el cumplimiento del bloque de legalidad. El alcance y la profundidad de las pruebas que realice estarán relacionados con la calidad del control interno.
