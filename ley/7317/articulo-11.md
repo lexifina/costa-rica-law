@@ -1,7 +1,8 @@
 CAPITULO III
 Del financiamiento
 Artículo 11.-
-El Sistema Nacional de Áreas de Conservación, mediante su personalidad jurídica instrumental, con el objeto de hacer cumplir los fines de esta Ley y atender los gastos que de esta se deriven, administrará los recursos del Fondo de Vida Silvestre, los cuales estarán constituidos por lo siguiente:
+EI Sistema Nacional de Áreas de Conservación (Sinac), mediante su personalidad jurídica instrumental, con el objeto de hacer cumplir los fines de esta ley y atender los gastos que de esta se deriven, administrará los recursos del Fondo de Vida Silvestre; para estos efectos contará con el setenta y cinco por ciento (75%) del total de los recursos. La Comisión Nacional para la Gestión de la Biodiversidad (Conagebio) dispondrá de un veinticinco por ciento (25%) para atender las obligaciones derivadas del ejercicio de sus competencias legales; para ello, el Sinac deberá realizar la transferencia respectiva. El Fondo estará constituido por los siguientes recursos económicos:
+(Así reformado el párrafo anterior por el artículo único de la ley N° 9022 del 3 de enero de 2012)
 a) El monto resultante del timbre de vida silvestre.
 b) Los montos percibidos por concepto de permisos y licencias.
 c) Los legados y las donaciones de personas físicas o jurídicas, organizaciones nacionales o internacionales, privadas o públicas, y los aportes del Estado o sus instituciones.
