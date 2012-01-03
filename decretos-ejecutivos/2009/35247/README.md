@@ -14,3 +14,4 @@ Promulga Acuerdo constituido suscrita por el señor Bruno Stagno Ugarte, Ministr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-29 | la propia norma |
+| 2 | 2012-01-03 | Decreto Ejecutivo 36969 (2012-01-03) |
