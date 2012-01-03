@@ -1,0 +1,1 @@
+Artículo 40. Si como consecuencia del incumplimiento, el responsable obtuviera un beneficio cuantificable, la multa podrá alcanzar hasta el doble del beneficio obtenido. En este caso no serán aplicables los límites máximos establecidos en el Artículo 38 de este Protocolo.

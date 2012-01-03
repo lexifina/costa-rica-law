@@ -1,0 +1,1 @@
+Artículo 57. El EOR conjuntamente con los Operadores de Sistema y Mercado nacional son las entidades encargadas de aplicar y recaudar el cargo por regulación, debiendo entregar lo reclutado a la CRIE, dentro de los términos establecidos por ésta.

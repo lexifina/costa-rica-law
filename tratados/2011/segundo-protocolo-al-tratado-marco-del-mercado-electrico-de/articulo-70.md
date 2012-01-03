@@ -1,0 +1,1 @@
+Artículo 70. Cada uno de los agentes del Mercado Eléctrico Regional tiene la obligación de hacer efectivos siempre los pagos resultantes del cálculo del cargo por el servicio de operación de acuerdo con la información contenida en el documento que para esos efectos notifique el EOR a los Operadores de Sistema y Mercado nacional.

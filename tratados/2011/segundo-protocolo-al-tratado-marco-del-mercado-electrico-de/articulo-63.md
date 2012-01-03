@@ -1,0 +1,1 @@
+Artículo 63. La CRIE incorporará o desestimará las observaciones y recomendaciones en forma razonada y remitirá la propuesta final de proyecto de presupuesto a los Entes Reguladores Nacionales a más tardar el 15 de noviembre de cada año.

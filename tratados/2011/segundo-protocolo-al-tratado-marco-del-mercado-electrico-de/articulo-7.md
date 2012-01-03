@@ -1,0 +1,2 @@
+Artículo 7. Reformar el artículo 19 del Tratado Marco del Mercado Eléctrico Regional, el que se leerá así:
+"La CRIE es el ente regulador y normativo del Mercado Eléctrico Regional, con personalidad jurídica propia, capacidad de derecho público internacional, independencia económica, independencia funcional y especialidad técnica, que realizará sus funciones con imparcialidad, y transparencia. Su domicilio estará situado en uno de los países de América Central, a definir por los Gobiernos. Su duración es la de este Tratado."

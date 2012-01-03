@@ -1,0 +1,1 @@
+Artículo 33. Los incumplimientos muy graves prescribirán a los dos años, los graves al año y los leves a los seis meses. El plazo de prescripción comenzará a contarse desde la última fecha de ocurrencia del incumplimiento. Este plazo de prescripción se interrumpirá con el inicio del proceso sancionatorio.

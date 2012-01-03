@@ -1,0 +1,1 @@
+Artículo 29. Las sanciones se aplicarán a los agentes del Mercado Eléctrico Regional, a los Operadores de Sistema y Mercado de los Estados Parte (OS/OM), así como al Ente Operador Regional (EOR), que luego del debido proceso resulten responsables.

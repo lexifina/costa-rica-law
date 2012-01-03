@@ -1,0 +1,1 @@
+Artículo 72. La Secretaría General del Sistema de Integración Centroamericana será el depositario del presente Protocolo quien enviará copias certificadas a la Cancillería de cada uno de los Estados Parte, a las cuales notificará inmediatamente el depósito de cada uno de los instrumentos de ratificación o adhesión.

@@ -1,0 +1,1 @@
+Artículo 64. El proyecto de presupuesto se tendrá por aprobado a más tardar el 1 de diciembre de cada año, salvo la objeción expresa de las dos terceras partes (2/3) de los Entes Reguladores Nacionales. En ese caso se tendrá por aprobado el presupuesto para el último período presupuestario.

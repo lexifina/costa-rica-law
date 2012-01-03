@@ -1,0 +1,1 @@
+Artículo 69. El cargo por el servicio de operación será liquidado por los agentes a su respectivo Operador de Sistema y Mercado, quien a su vez trasladará lo recaudado al EOR juntamente con la liquidación de las transacciones en el Mercado Eléctrico Regional.

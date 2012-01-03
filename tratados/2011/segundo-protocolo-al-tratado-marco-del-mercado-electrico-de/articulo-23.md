@@ -1,0 +1,1 @@
+Artículo 23. Los agentes del Mercado, así como las entidades que sean designadas por los Gobiernos para cumplir las funciones de Operadores de Sistema y Mercado (OS/OM) y el Ente Operador Regional (EOR) están obligados a acatar, sujetarse y cumplir con lo dispuesto en la Regulación Regional.

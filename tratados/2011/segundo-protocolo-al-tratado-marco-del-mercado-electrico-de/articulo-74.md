@@ -1,0 +1,1 @@
+Artículo 74. Cualquiera de las Partes en el presente Protocolo podrá denunciarlo siempre que simultáneamente denuncie el Tratado y el Primer Protocolo mediante notificación escrita dirigida al depositario, con una antelación de diez años, después del décimo año de vigencia.

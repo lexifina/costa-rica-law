@@ -1,0 +1,1 @@
+Artículo 24. El régimen sancionatorio tiene como fin el garantizar la eficaz y uniforme aplicación de la Regulación Regional. Las sanciones deben ser eficaces, proporcionadas y disuasorias a fin de garantizar la recta y efectiva aplicación y cumplimiento de la Regulación Regional.

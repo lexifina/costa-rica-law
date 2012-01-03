@@ -1,0 +1,2 @@
+Artículo 4. Reformar el artículo 12 del Tratado Marco del Mercado Eléctrico Regional, adicionando un segundo párrafo el que se leerá así:
+"Los sistemas interconectados nacionales de la región, que conjuntamente con las líneas de interconexión existentes y futuras entre los países miembros posibilitan las transferencias de energía y las transacciones en el Mercado Eléctrico Regional, integran la red de transmisión regional."

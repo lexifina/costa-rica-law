@@ -1,0 +1,1 @@
+Artículo 25. El ejercicio de la potestad sancionadora establecida en el Tratado Marco corresponde a la CRIE la que, en su función de supervisión y vigilancia del cumplimiento de la Regulación Regional, podrá requerir el apoyo de las entidades o los organismos regionales o nacionales que correspondan.

@@ -1,0 +1,1 @@
+Artículo 60. La CRIE deberá contratar una auditoría independiente sobre sus ingresos, gastos y la totalidad de su presupuesto, la cual será de acceso público, La CRIE podrá auditar al EOR y a los Operadores de Sistema y Mercado nacionales de cada uno de los países, acerca de los ingresos que por razón del cargo por regulación realicen.

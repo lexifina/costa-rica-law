@@ -1,0 +1,1 @@
+Artículo 32. Se clasifican como leves los incumplimientos a la Regulación Regional, que no se encuentren clasificados como incumplimientos grave o muy grave, conforme a lo dispuesto en los artículos anteriores.

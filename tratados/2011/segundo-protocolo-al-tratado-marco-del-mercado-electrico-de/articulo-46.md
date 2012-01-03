@@ -1,0 +1,1 @@
+Artículo 46. Se admitirá, evacuará y evaluará de oficio, a propuesta del presunto responsable o del presunto afectado, las pruebas que resulten ser pertinentes para la correcta determinación de hechos y la determinación de las responsabilidades.

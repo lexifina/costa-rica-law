@@ -1,0 +1,3 @@
+Artículo 6. Reformar el artículo 14 del Tratado Marco del Mercado Eléctrico Regional, adicionando un segundo y un tercer párrafo los que se leerán así:
+"Para determinar la remuneración a que tendrán derecho los agentes transmisores por el servicio de transmisión regional, la CRIE tendrá en cuenta los eventuales ingresos de cualquier negocio distinto al de la transmisión de energía eléctrica, realizado usando dichas instalaciones.
+Los cargos por el uso y disponibilidad de la red de transmisión regional considerarán los cargos variables de transmisión, el peaje, el cargo complementario. El peaje y cargo complementario cobrados a los Agentes dedicados a la distribución se trasladarán a la demanda final".

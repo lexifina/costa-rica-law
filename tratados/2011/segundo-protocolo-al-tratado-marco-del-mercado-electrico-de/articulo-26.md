@@ -1,0 +1,1 @@
+Artículo 26. La responsabilidad derivada de la aplicación del régimen de sanciones, es independiente de cualquier responsabilidad administrativa, civil o penal que pudiera derivarse de la aplicación del derecho interno de las Partes, que pudiera resultar aplicable en cada caso.

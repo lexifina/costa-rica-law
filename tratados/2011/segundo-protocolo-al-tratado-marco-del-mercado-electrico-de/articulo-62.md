@@ -1,0 +1,1 @@
+Artículo 62. La CRIE deberá someter su proyecto de presupuesto a consideración de los Entes Reguladores Nacionales, a más tardar el 15 de octubre de cada año. Los Entes Reguladores Nacionales enviarán a la CRIE sus observaciones y recomendaciones de modificación a más tardar el 1 de noviembre de cada año.

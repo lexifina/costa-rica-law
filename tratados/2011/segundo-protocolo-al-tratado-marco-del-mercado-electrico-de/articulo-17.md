@@ -1,0 +1,1 @@
+Artículo 17. El Consejo Director será responsable de impulsar el desarrollo del MER y deberá adoptar las decisiones necesarias para lograr los objetivos y fines integrales del Tratado y sus Protocolos, para lo cual establecerá mecanismos de coordinación con la CRIE y el EOR en el ámbito de responsabilidad de cada uno.
