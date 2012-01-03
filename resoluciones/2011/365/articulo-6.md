@@ -1,0 +1,1 @@
+6º—Informar que en la interacción entre el sistema informático SIOPJ y el TICA, se validará la coincidencia del número de contenedor declarado en el manifiesto de carga de salida con el declarado en el campo CNT_NUMERO del DUA de exportación o reexportación.

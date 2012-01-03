@@ -1,0 +1,1 @@
+4º—Que para efecto de que JAPDEVA autorice el ingreso de contenedores, a las instalaciones portuarias de Limón y Moín para los DUAs de exportación definitiva o temporal que no tienen un viaje asociado, se debe presentar al funcionario de JAPDEVA el comprobante del DUA autorizado, a efectos de que se corrobore que el DUA está autorizado para su embarque.

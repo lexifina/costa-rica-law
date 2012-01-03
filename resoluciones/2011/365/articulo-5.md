@@ -1,0 +1,1 @@
+5º—Reiterar la necesidad e importancia de dar inicio al viaje a aquellos DUAS de exportación o reexportación que tengan un viaje asociado, ya que de lo contrario el sistema no reportará la autorización al funcionario de JAPDEVA responsable del control de ingreso al puerto.
