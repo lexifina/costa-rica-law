@@ -1,0 +1,6 @@
+Artículo 3º—Adiciónese al Anexo 2, Guía de Requisitos para obtener la Declaratoria Turística Actividad: Gastronomía y Centros de Diversión Nocturna, en Apartado II: Requisitos Técnicos, del Reglamento de Empresas y Actividades Turísticas, Decreto Ejecutivo Nº 25226-MEIC-TUR, publicado en La Gaceta N° 121 del 26 de junio de 1996 y sus reformas, un inciso 4, quedando el resto del apartado invariable, para que dicho inciso se lea como sigue:
+“ (…)
+II-Requisitos Técnicos
+Las empresas que se encuentran en operación y solicitan declaratoria, deberán:
+(…)
+4- Cumplir en el caso de los centros de diversión nocturna que se encuentran en operación y dentro de la inspección a efectos del régimen voluntario de la declaratoria turística, con el requisito que su actividad no incluya desnudos totales o parciales, ni la difusión y comercialización de materiales audiovisuales o impresos con connotaciones sexuales. A tal respecto, se entenderán como desnudos totales o parciales aquellos que muestren las partes íntimas de las personas. Se aclara que este requisito será exigible tanto a los Centros de Diversión Nocturna que estando en operación soliciten la declaratoria turística como a aquellos que habiéndola obtenido en calidad de solicitud de proyecto nuevo, sean inspeccionados por el Instituto al iniciar su operación para efectos de su categorización”.
