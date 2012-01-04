@@ -1,1 +1,2 @@
-Artículo 51.—Duración. La duración efectiva del portafolio deberá mantenerse en un rango de +/- 1 con respecto a la duración efectiva del índice de referencia N1G1.
+Artículo 51.— Error de seguimiento. El error de seguimiento anual (tracking error) deberá mantenerse por debajo de los 100 b.p. Si dicho límite fuera excedido a raíz de movimientos propios del mercado, el portafolio deberá ser rebalanceado dentro de los 30 días naturales siguientes, con el fin de cumplir con el límite establecido.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 52 al 51 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

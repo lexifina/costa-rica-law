@@ -1,1 +1,2 @@
-Artículo 34.—Moneda. Estará denominado en dólares de los Estados Unidos de América y se invertirá en activos denominados en esa moneda.
+Artículo 34.— Monto. El monto del portafolio de bonos en dólares corresponde al saldo de las Reservas Monetarias Internacionales, una vez deducido el monto de los restantes portafolios que la componen.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 35 al 34 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

@@ -1,6 +1,5 @@
-Artículo 49.—Montos máximos por emisiones y emisores. Aplican los siguientes límites:
-a) La inversión en los instrumentos autorizados en el inciso b del artículo 45, se harán únicamente en las emisiones cuyo monto total sea igual o superior a US$500 millones o su equivalente en la moneda autorizada en el artículo 44 de la presente normativa.
-b) El monto máximo de inversión por emisión autorizada en el inciso b del artículo 45 de esta normativa, será como máximo un 20% del monto en circulación de dicha emisión.
-c) El monto máximo permitido para inversiones en emisores incluidos en el índice de referencias N1G1 con calificación crediticias menor a A+/A1/A+ de Standard & Poor´s, Moody´s Investor Services o Fitch Ibca, respectivamente, no debe exceder el mismo porcentaje de participación que poseen en el índice de referencia.
-d) El monto máximo permitido para inversiones en emisores no incluidos en el índice de referencia N1G1, será de un 5% del valor de mercado del portafolio. Además, el valor total en emisores que no pertenecen al índice de referencia N1G1 no puede exceder el 50% del valor de mercado de la cartera. Estas disposiciones no aplicarán en el caso de bonos emitidos por el Gobierno de los Estados Unidos.
-(Así reformado el inciso anterior mediante sesión N° 5524-2011 del 30 de noviembre del 2011)
+Artículo 49.—Plazo máximo de inversión. Los plazos máximos al vencimiento por tipo de instrumento serán los que se especifican a continuación:
+a) Instrumentos de corto plazo: 6 meses. En el caso de Depósitos Bancarios: 3 meses.
+b) Instrumentos de largo plazo: 10 años.
+c) Contratos “forward” sobre tipos de cambio: 3 meses.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 50 al 49 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

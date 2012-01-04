@@ -1,2 +1,2 @@
-Artículo 56.—Utilización de contratos futuros.
-La adquisición de Contratos Futuros sobre bonos será para la administración del riesgo del portafolio, específicamente para variar la duración y la exposición por país con respecto al benchmark.
+Artículo 56.—Restricción para contratos forwards. En el caso de gestores externos, no será permitido la negociación de contratos “forward” con contrapartes o afiliadas que pertenezcan al mismo grupo corporativo o financiero del gestor.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 57 al 56 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

@@ -1,1 +1,4 @@
-Artículo 9º—Control de políticas. La Auditoría Interna es responsable de ejercer el control y la supervisión sobre la custodia, la administración y la ejecución de las Políticas Generales para la Administración de las Reservas Monetarias Internacionales. Al menos una vez cada año presentará a la Junta Directiva del Banco Central un informe sobre la labor realizada.
+CAPÍTULO II
+Portafolio líquido en dólares
+Artículo 9º—Gestión. Este portafolio será gestionado por la División Gestión de Activos y Pasivos, según las políticas de inversión establecidas en este capítulo.
+(Mediante sesión N°5528 del 4 de enero del 2012, se derogó el artículo 9 original. Asimismo se indica correr la numeración restante, por lo que el antiguo artículo 10 paso a ser el 9 actual)

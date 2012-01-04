@@ -1,3 +1,3 @@
-CAPÍTULO VI
-Portafolio de bonos soberanos con cobertura cambiaria
-Artículo 43.—Gestión. Este portafolio será gestionado por administradores externos, previamente seleccionados, según las políticas de inversión definidas en este capítulo.
+Artículo 43.—Moneda. La moneda base de este portafolio es el dólar de los Estados Unidos de América, pero podrá ser invertido en activos denominados en las monedas de los países incluidos en el índice de referencia.
+La exposición en monedas diferentes al dólar de los Estados Unidos de América será contrarrestada mediante la adquisición de instrumentos de cobertura.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 44 al 43 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

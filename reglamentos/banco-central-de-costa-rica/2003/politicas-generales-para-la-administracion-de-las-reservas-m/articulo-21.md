@@ -1,4 +1,4 @@
-Artículo 21.—Instrumentos elegibles. Este portafolio podrá ser invertido en los siguientes instrumentos:
-a) Notas de descuento, instrumentos de corto plazo y bonos emitidos por gobiernos soberanos, agencias gubernamentales, entidades multilaterales, supranacionales y entidades oficiales.
-b) Depósitos bancarios a la vista, overnight y a plazo.
-c) Certificados de depósito (CDs) y papel comercial (CPs).
+Artículo 21.—Depositarios y emisores. Las inversiones de este portafolio podrán efectuarse en gobiernos soberanos, agencias gubernamentales, entidades multilaterales, supranacionales, entidades oficiales, grupos financieros y bancos comerciales.
+A excepción de los bancos centrales y gobiernos soberanos, las entidades antes mencionadas deberán ser previamente reconocidas, como bancos extranjeros de primer orden, de conformidad con lo dispuesto en el artículo 107 de la Ley 7558 del 27 de noviembre de 1995 y sus reformas o bien como entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con su gestión de las reservas monetarias internacionales.
+Los emisores mencionados y los activos elegibles que ellos emitan deberán contar con una calificación de riesgo de corto plazo igual o superior a A-1, P-1 o F-1 según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody´s Investor Services y Fitch Ibca, respectivamente.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 22 al 21 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

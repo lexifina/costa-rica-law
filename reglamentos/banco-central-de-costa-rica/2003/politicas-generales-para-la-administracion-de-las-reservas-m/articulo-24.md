@@ -1,1 +1,4 @@
-Artículo 24.—Agentes negociadores. Las operaciones de compra y venta de títulos deberán realizarse directamente con el emisor o a través de agentes negociadores de activos en los mercados internacionales. Los agentes negociadores deben cumplir con lo establecido en la Normativa para la autorización de entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con la gestión de las Reservas Monetarias Internacionales.
+CAPÍTULO IV
+Portafolio de apoyo a liquidez en dólares
+Artículo 24.—Gestión. Este portafolio será gestionado en su totalidad por la División Gestión de Activos y Pasivos, según las políticas de inversión establecidas en este capítulo.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 25 al 24 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

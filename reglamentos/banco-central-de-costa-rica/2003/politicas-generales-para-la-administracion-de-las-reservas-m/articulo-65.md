@@ -1,1 +1,2 @@
-Artículo 65.—Contrapartes y bolsas para contratos de futuros. Los Contratos Futuros sobre instrumentos de renta fija o con subyacente de tasas de interés podrán ser negociados únicamente con Futures Commission Merchants members de alguna de las bolsas autorizadas.
+Artículo 65.—Administración de cuentas para contratos de futuros. Se permitirá la apertura de cuentas de margen con el clearing róker que autorice el Comité de Reservas para efectos de los contratos de futuros. Estas cuentas deberán mantenerse en su saldo mínimo exigido.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 66 al 65 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

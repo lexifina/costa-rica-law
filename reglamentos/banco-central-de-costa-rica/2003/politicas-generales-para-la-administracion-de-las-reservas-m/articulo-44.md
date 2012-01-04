@@ -1,2 +1,6 @@
-Artículo 44.—Moneda. La moneda base de este portafolio es el dólar de los Estados Unidos de América, pero podrá ser invertido en activos denominados en las monedas de los países incluidos en el índice de referencia.
-La exposición en monedas diferentes al dólar de los Estados Unidos de América será contrarrestada mediante la adquisición de instrumentos de cobertura.
+Artículo 44.—Instrumentos elegibles. Este portafolio podrá ser invertido en los siguientes instrumentos:
+a) Instrumentos de corto plazo: Certificados de Depósito a Plazo (CDs) y Euro Certificados de Depósito a Plazo (ECD); Papel Comercial y Euro Papel Comercial; Depósitos Bancarios a la vista y a plazo.
+b) Instrumentos de largo plazo: Bonos, notas y otros instrumentos de deuda incluyendo instrumentos de descuento, emitidos con garantía incondicional de pagos puntuales de intereses, principal y premio (si existe), emitidos por alguna de las entidades autorizadas en el artículo 46 de la presente normativa. Pueden ser a tasas fijas, variables o ligadas a la inflación.
+c)Contratos “forward” sobre tipos de cambio denominados en alguna de las monedas autorizadas en el artículo 44; siempre y cuando la contraparte cumpla con las condiciones establecidas en el artículo 47 de la presente normativa.
+d) Contratos de futuros donde el subyacente es un bono de gobierno soberano y es emitido por alguna de las bolsas de futuros autorizadas y denominada en alguna de las monedas autorizadas en el artículo 44.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 45 al 44 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

@@ -1,4 +1,5 @@
-Artículo 39.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
-a) Obligaciones emitidas por gobiernos soberanos, agencias gubernamentales y entidades multilaterales: 10 años.
-b) Operaciones de préstamo de títulos: 90 días.
-c) Instrumentos de mercado de dinero: aplicarán los mismos límites especificados en el artículo 16 de estas normas.
+Artículo 39.—Gestión y límites de tolerancia. Los administradores, podrán aplicar estrategias de mejoramiento del rendimiento, para lo cual tendrán en cuenta los siguientes aspectos:
+a) El error de seguimiento ex ante (tracking error) deberá mantenerse por debajo de los 50 puntos base. Si dicho límite fuera excedido a raíz de movimientos propios del mercado, el portafolio deberá ser rebalanceado dentro de los 30 días naturales siguientes. Como mínimo se deberá liquidar una tercera parte del exceso sobre los 50 puntos base al término de cada 10 días naturales, con el fin de cumplir con el límite establecido.
+b) Se admitirá un rango de desviación de tres meses alrededor de la duración del Merrill Lynch 1-3.
+c) Los administradores del portafolio establecerán reglas para determinar los niveles de entrada en estrategias relacionadas con el riesgo de tasa de interés –duración o posición en la curva de rendimiento-. AL realizar cada una de estas estrategias, se establecerán los niveles de salida, esto es, los niveles en los que se revisarán las posiciones con el fin de determinar la acciones a seguir, dada la situación del mercado en ese momento. Los administradores internos deben reportar dichas estrategias y resultados de sus revisiones al Área de Control de Riesgos.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 40 al 39 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

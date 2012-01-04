@@ -1,4 +1,2 @@
-Artículo 16.—Plazo máximo de inversión. Los plazos máximos por tipo de instrumento serán los que se especifican a continuación:
-a) Letras, notas de descuento o instrumentos de corto plazo, negociables, de gobiernos, agencias gubernamentales, entidades multilaterales y garantizadas por gobiernos: 1 año.
-b) Certificados de depósito y papel comercial: 3 meses.
-c) Depósitos a plazo y recompras: 3 meses.
+Artículo 16.—Agentes negociadores. Las operaciones de compra y venta de títulos deberán realizarse directamente con el emisor o a través de agentes negociadores de activos en los mercados internacionales. Los agentes negociadores deben cumplir con lo establecido en la Normativa para la autorización de entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con la gestión de las Reservas Monetarias Internacionales
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 17 al 16 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

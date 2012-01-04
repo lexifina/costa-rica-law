@@ -1,4 +1,1 @@
-Artículo 71.—Límites de tolerancia del Banco Mundial. Durante el período de vigencia del convenio “Reserve Advisory & Management Program” y sus reformas, el Banco Mundial podrá aplicar estrategias de mejoramiento del rendimiento, para lo cual tendrá en cuenta los siguientes aspectos:
-a) La posibilidad de asumir riesgo tendrá un límite de 50 puntos base. Si el retorno del portafolio se reduce en cualquier momento del año en 50 puntos base por debajo de los índices Merrill Lynch 1-3 de bonos del tesoro de EEUU (G1O2) los administradores del portafolio le consultarán a la administración si se desea regresar a una estrategia pasiva.
-b) Se admitirá un rango de desviación de tres meses alrededor de la duración del índice Merrill Lynch 1-3 de Bonos del Tesoro de EEUU (G1O2).
-.
+Artículo 71.—(Nota de Sinalevi: El texto de este artículo puede consultarse en el numeral 70, lo anterior ya que en sesión N° 5528 del 4 de enero de 2012, se ordena eliminar el numeral 9 original y correr la numeración restante)

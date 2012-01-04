@@ -1,7 +1,6 @@
-Artículo 36.—Instrumentos elegibles. Este portafolio podrá ser invertido en los siguientes instrumentos:
-a) Bonos gubernamentales con tasas fijas, variables o ligados a la inflación, no redimibles anticipadamente.
-b) Valores de deuda emitidos por agencias gubernamentales, entidades oficiales o emisiones bancarias garantizados por gobiernos, no respaldados por hipotecas u otro tipo de activos, ni redimibles anticipadamente.
-c) Depósitos y bonos emitidos por entidades supranacionales o multilaterales.
-d) Acuerdos de préstamos de títulos con instrumentos del Tesoro de Estados Unidos de América, títulos de agencias gubernamentales, entidades oficiales y multilaterales.
-e) Contratos de futuros y forwards.
-Adicionalmente, podrán invertirse saldos remanentes de efectivo en los instrumentos de mercado de dinero consignados en el artículo 13 de las presentes normas.
+Artículo 36.—Depositarios y emisores. Las inversiones de este portafolio podrán efectuarse en gobiernos soberanos, bancos centrales, agencias gubernamentales, entidades oficiales y entidades supranacionales o multilaterales, cuya calificación de riesgo propio o soberano de largo plazo, sea igual o superior a A+, A1 o A+, según las agencias calificadoras de riesgo internacional de Standard & Poor´s, Moody´s Investor Services o Fitch Ibca, respectivamente.
+Con excepción de los gobiernos soberanos y los bancos centrales, todas las entidades antes mencionadas deberán ser reconocidas, previamente, como bancos extranjeros de primer orden, de conformidad con lo dispuesto en el artículo 107 de la Ley 7558 del 27 de noviembre de 1995 y sus reformas o bien como de entidades con las que el Banco Central de Costa Rica puede efectuar operaciones relacionadas con su gestión de las reservas monetarias internacionales.
+Todas las entidades mencionadas, excepto los gobiernos soberanos, bancos centrales y entidades multilaterales, para los que aplica lo dispuesto en el párrafo trasanterior, deberán contar con calificación de riesgo soberano de largo plazo del país de residencia, igual o superior a AA-, Aa3 o AA-, según las agencias calificadoras de riesgo internacional de Standard & Poor’s, Moody’s Investor Services y Fitch Ibca, respectivamente.
+En los países cuya moneda oficial es el dólar de Estados Unidos de América, se analizará los ratings soberanos en divisa local y en los demás países el ratings soberano en moneda extranjera.
+Los saldos remanentes de efectivo podrán invertirse en las entidades especificadas en el artículo 14 de esta normativa.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 37 al 36 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)

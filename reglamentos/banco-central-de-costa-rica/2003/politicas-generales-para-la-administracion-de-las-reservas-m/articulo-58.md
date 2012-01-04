@@ -1,3 +1,3 @@
-CAPÍTULO VII
-Otras disposiciones
-Artículo 58.—Prohibición. No será permitido colocar inversiones en entidades clasificadas como paralelas (“offshore”).
+Artículo 58.—Montos y plazos máximos de inversión. Corresponderá al Comité de Reservas definir los montos máximos que podrán ser invertidos en los diferentes instrumentos y entidades para los portafolios gestionados internamente, de conformidad con los parámetros de riesgo indicados en el presente reglamento.
+Este comité cuando lo considere necesario, podrá limitar aún más los plazos máximos de inversión de los tramos de liquidez y de inversión para los portafolios de dólares y euros.
+(Así corrida su numeración en sesión N° 5528 del 4 de enero del 2012, que lo transpasó del antiguo artículo 59 al 58 actual. Lo anterior ya que en dicha sesión se ordena eliminar el numeral 9 original y correr la numeración restante)
