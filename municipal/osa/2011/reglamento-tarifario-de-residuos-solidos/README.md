@@ -14,3 +14,4 @@ Reglamento Tarifario de Residuos Sólidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-25 | la propia norma |
+| 2 | 2012-01-04 | Reglamento municipal 1 (2012-01-04) |
