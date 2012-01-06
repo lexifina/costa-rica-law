@@ -1,0 +1,2 @@
+Transitorio I: La Junta Directiva cuenta con un plazo de 6 meses, contados a partir de la publicación en el Diario Oficial La Gaceta, para la implementación del sistema de digitalización del certificado. En caso de ser necesario, la Junta Directiva, mediante acuerdo debidamente razonado, podrá ampliar ese plazo hasta por un máximo de tres meses más.
+(Así adicionado mediante Fe de Erratas, y publicada en La Gaceta N° 18 del 25 de enero del 2012)
