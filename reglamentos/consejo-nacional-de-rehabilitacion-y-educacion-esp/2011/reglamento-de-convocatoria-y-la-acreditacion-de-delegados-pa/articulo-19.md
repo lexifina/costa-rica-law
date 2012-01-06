@@ -1,0 +1,1 @@
+Artículo 20.—Una vez determinados los resultados de la votación el Tribunal abrirá un espacio para la presentación de recursos de revocatoria, los cuales podrán fundamentarse en motivos de legalidad o de oportunidad. Los recursos presentados serán resueltos por el Tribunal en el acto, determinando si los mismos se acogen o se rechazan.

@@ -1,0 +1,1 @@
+Artículo 3º—Los representantes de las organizaciones de personas con discapacidad ante la Junta Directiva del CNREE y sus suplentes, así como los miembros del Comité de Información, serán electos por una Asamblea de las Organizaciones de Personas con Discapacidad legalmente constituidas.

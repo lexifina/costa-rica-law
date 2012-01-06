@@ -1,0 +1,1 @@
+Artículo 8º—El Área de Información y Comunicación y el COINDIS remitirán la Convocatoria a todas las Organizaciones de Personas con Discapacidad legalmente constituidas que aparezcan registradas en sus diferentes bases de datos.

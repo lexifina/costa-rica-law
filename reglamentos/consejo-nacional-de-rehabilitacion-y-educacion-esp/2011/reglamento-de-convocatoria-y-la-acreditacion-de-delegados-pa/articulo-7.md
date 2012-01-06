@@ -1,0 +1,4 @@
+II. De la Convocatoria
+Artículo 7º—Tres meses antes del vencimiento de los cargos de los Delegados de las Organizaciones de Personas con Discapacidad ante la Junta Directiva del CNREE y ante el COINDIS, el Área de Información y Comunicación del CNREE en coordinación con el COINDIS, preparará el comunicado oficial de convocatoria, el cual deberá llevar impreso el logotipo oficial del CNREE y estar firmado por el o la Representante Legal de la Institución.
+Una vez rubricado el comunicado de convocatoria, se procederá con su divulgación en diversos medios escritos, auditivos, virtuales y televisivos, con al menos dos meses de antelación a la celebración del acto, procurando asegurar el acceso al contenido y su comprensión a toda la población con discapacidad.
+La responsabilidad de la publicación le corresponderá al Área de Información y Comunicación del CNREE con el apoyo del COINDIS.

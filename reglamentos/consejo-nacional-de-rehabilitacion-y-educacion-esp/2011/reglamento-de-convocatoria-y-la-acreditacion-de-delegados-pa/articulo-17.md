@@ -1,0 +1,1 @@
+Artículo 18.—Podrán emitir su voto todos los representantes de las organizaciones de personas con discapacidad legalmente constituidas que hayan sido acreditados ante el Tribunal; ya sea el representante legal o quien haya sido legalmente asignado para representar a la organización en la Asamblea.

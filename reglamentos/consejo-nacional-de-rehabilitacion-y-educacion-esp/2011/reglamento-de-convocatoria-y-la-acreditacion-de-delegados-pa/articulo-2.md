@@ -1,0 +1,1 @@
+Artículo 2º—La representación de las Organizaciones de Personas con Discapacidad ante el Ente Rector en Discapacidad debe ser permanente y en una proporción del 25% de los puestos delegados, siendo uno de ellos el representante de las Asociaciones de Padres de Niños Excepcionales.

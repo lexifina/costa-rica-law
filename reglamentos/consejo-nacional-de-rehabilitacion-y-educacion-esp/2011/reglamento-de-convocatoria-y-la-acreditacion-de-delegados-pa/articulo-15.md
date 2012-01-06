@@ -1,0 +1,1 @@
+Artículo 16.—Una vez constatado el quórum mínimo, las organizaciones presentes y que cumplan con los atestados de acreditación, elegirán entre los participantes de la Asamblea un Tribunal que tendrá la obligación de dirigir constatar, fiscalizar y resolver los recursos que se presenten. El número mínimo de miembros del Tribunal será de tres personas.

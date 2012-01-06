@@ -1,0 +1,1 @@
+Artículo 5º—Para ejercer el voto en la Asamblea General, las Organizaciones deberán acreditar el cumplimiento de los requisitos citados en el artículo anterior, por medio de certificación emitida por el Registro Público o por un Notario Público. Por consiguiente, una organización cuya representación se encuentra en trámite de inscripción, no puede emitir su voto en la Asamblea.

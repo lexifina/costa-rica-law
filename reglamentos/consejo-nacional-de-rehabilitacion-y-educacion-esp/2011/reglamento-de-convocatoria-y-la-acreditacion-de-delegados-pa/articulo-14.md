@@ -1,0 +1,1 @@
+Artículo 15.—Para formar quórum se requerirá de un mínimo de diez organizaciones legalmente constituidas que se hagan presentes. En caso de no completarse el quórum, 60 minutos después de la hora señalada para el inicio, se realizará la Asamblea con un quórum que no podrá ser inferior al número de cargos a elegir ante la Junta Directiva del CNREE.

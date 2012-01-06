@@ -1,0 +1,2 @@
+Artículo 22.—Los representantes de las Organizaciones de Personas con Discapacidad ante la Junta Directiva del CNREE podrán convocar a Asambleas extraordinarias para tratar asuntos que consideren de vital importancia consultar a las organizaciones, para lo cual contarán con el apoyo del CNREE.
+Es todo. Se emite el presente Reglamento en la ciudad de Heredia a las tres horas del doce de diciembre de dos mil once.

@@ -1,0 +1,40 @@
+CONSEJO NACIONAL DE REHABILITACIÓN
+Y EDUCACIÓN ESPECIAL
+El Consejo Nacional de Rehabilitación y Educación Especial en la sesión ordinaria N° 1005, celebrada el jueves 17 de noviembre, 2011 acordó lo siguiente:
+Acuerdo JD-2152-11: Aprobar el Reglamento de Convocatoria y la acreditación de delegados para la Asamblea de las Organizaciones de Personas con Discapacidad de conformidad con lo establecido en el art. 28 del Reglamento a la ley de Igualdad de Oportunidades para las Personas con Discapacidad, con la incorporación de las observaciones pertinentes realizadas por los miembros de Junta Directiva, y en el documento enviado por el COINDIS.
+ACUERDO FIRME
+REGLAMENTO DE CONVOCATORIA Y ACREDITACIÓN DE
+DELEGADOS PARA LA ASAMBLEA DE LAS ORGANIZACIONES
+DE PERSONAS CON DISCAPACIDAD DE CONFORMIDAD
+CON LO ESTABLECIDO EN EL ARTÍCULO 28 DEL
+REGLAMENTO A LA LEY DE IGUALDAD DE
+OPORTUNIDADES PARA LAS PERSONAS
+CON DISCAPACIDAD
+ANTECEDENTES LEGALES
+La Convención sobre los Derechos de las Personas con Discapacidad, aprobada mediante Ley Nº 8661, del 19 de agosto de 2008, publicada en La Gaceta Nº 187 del 29 de setiembre de 2008, en 4 inciso 3) dispone lo siguiente:
+“…En la elaboración y aplicación de legislación y políticas para hacer efectiva la presente Convención, y en otros procesos de adopción de decisiones sobre cuestiones relacionadas con las personas con discapacidad, los Estados Partes celebrarán consultas estrechas y colaborarán activamente con las personas con discapacidad, incluidos los niños y las niñas con discapacidad, a través de las organizaciones que las representan.”.
+Por su parte, la Convención Americana para la Eliminación de Todas las Formas de Discriminación contra las Personas con Discapacidad, aprobada mediante Ley Nº 7948 del 22 de noviembre de 1999, en su artículo 5º establece:
+“Artículo V.—
+1. Los Estados parte promoverán, en la medida en que sea compatible con sus respectivas legislaciones nacionales, la participación de representantes de organizaciones de personas con discapacidad, organizaciones no gubernamentales que trabajan en este campo o, si no existieren dichas organizaciones, personas con discapacidad, en la elaboración, ejecución y evaluación de medidas y políticas para aplicar la presente Convención.
+2. Los Estados parte crearán canales de comunicación eficaces que permitan difundir entre las organizaciones públicas y privadas que trabajan con las personas con discapacidad los avances normativos y jurídicos que se logren para la eliminación de la discriminación contra las personas con discapacidad.”
+En consonancia con lo anterior, la Ley de Igualdad de Oportunidades para las Personas con Discapacidad en su artículo 12 establece:
+“Artículo 12.—Organizaciones de personas con discapacidad. Las organizaciones de personas con discapacidad legalmente constituidas deben:
+a) Ejercer su derecho a la autodeterminación y a participar en la toma de decisiones que les afecten directa o indirectamente.
+b) Contar con una representación permanente, en una proporción de un veinticinco por ciento (25%), en el órgano directivo de la institución pública rectora en materia de discapacidad.
+c) Disponer de recursos para reunir, reproducir, traducir y transmitir información ágil y oportuna sobre la discapacidad, con el fin de informar y asesorar a las instituciones, empresas y público en general sobre la eliminación de barreras, ayudas técnicas y servicios de apoyo. Para ello, se contará con un comité constituido por representantes de esas organizaciones.
+Los recursos para este fin serán asignados por la institución pública rectora en materia de discapacidad o por cualquier fuente de ingresos que proporcionen las entidades públicas o privadas.”.
+A fin de establecer la representación permanente de las organizaciones de personas con discapacidad ante el Órgano Directivo del Consejo rector en discapacidad en Costa Rica, el Reglamento a dicha Ley, que es Decreto Ejecutivo Nº 26831-MP de 23 de marzo de 1998, publicado en La Gaceta Nº 75 de 20 de abril de 1998, dispone lo siguiente:
+“Artículo 28.—Representación de las personas con discapacidad en el ente rector. Los representantes de las organizaciones de personas con discapacidad ante el órgano directivo del ente rector en materia de discapacidad, serán en una proporción del 25%, de los cuales un propietario y su suplente serán padre ó madre de personas con discapacidad.
+Los representantes propietarios y suplentes a la junta directiva del ente rector en materia de discapacidad, así como los miembros del Comité de Información, para lo cual no habrá impedimento de ostentar ambos cargos, serán electos por una asamblea de las organizaciones de personas con discapacidad legalmente constituidas convocada al efecto y durarán en su cargo 4 años.
+El órgano responsable de hacer la convocatoria es el ente rector en materia de discapacidad en coordinación con el Comité de Información. Una vez constituida la asamblea, ésta integrará entre los presentes un tribunal para dirigir, constatar, fiscalizar, resolver recursos y comunicar al ente rector el resultado de la elección.
+La convocatoria para la asamblea se hará en forma escrita y en diferentes medios de comunicación colectiva al menos con un mes de anticipación. Para el caso de las personas ciegas, esta convocatoria deberá ser en tinta o en Braille.
+La asamblea estará constituida en primera convocatoria por diez o más organizaciones que se hagan presentes. En caso de no completarse el quórum, 60 minutos después se realizará la asamblea con un quórum que no podrá ser inferior al número de cargos a elegir ante el ente rector. Se consideran organizaciones legalmente constituidas las que tienen personería jurídica y cédula jurídica vigentes.
+La elección se hará mediante voto secreto y en forma nominal. En caso de empate se realizarán sucesivas votaciones hasta lograr el desempate.
+Los acuerdos del tribunal, tendrán recurso de revocatoria ante el mismo tribunal, el cual deberá resolver en el mismo acto.
+Tendrán derecho a elegir los presidentes en ejercicio de las organizaciones de personas con discapacidad, legalmente constituidos o su representante.
+Tendrá derecho a ser electo todo miembro activo de las organizaciones de las personas con discapacidad, aunque no estén presentes en la asamblea.
+Durante el desarrollo de la asamblea el ente rector en materia de discapacidad debe proveer los servicios de apoyo requeridos para que la información y comunicación, sea accesible a todos los participantes.”.
+El Interés Público dispuesto por el Legislador exige la representación permanente de las Organizaciones de Personas con Discapacidad ante la Junta Directiva del Consejo Nacional de Rehabilitación y Educación Especial (CNREE) y que dichas entidades cuenten además con los recursos para reunir, reproducir, traducir y transmitir información ágil y oportuna sobre la discapacidad, con el fin de informar y asesorar a las instituciones, empresas y público en general sobre la eliminación de barreras, ayudas técnicas y servicios de apoyo, mediante la designación de un Comité constituido para ello; se hace necesario reglamentar el procedimiento que deberá seguirse para la designación de dichos/as Delegados/as.
+En virtud de lo anterior, el Consejo Nacional de Rehabilitación y Educación Especial –CNREE- dicta el presente procedimiento que regulará la convocatoria y ejecución de la Asamblea General de Organizaciones de Personas con Discapacidad, de conformidad con lo dispuesto en el artículo 28 del Reglamento a la Ley Nº 7600.
+I. Consideraciones Generales
+Artículo 1º—Para hacer efectivas las obligaciones de representatividad de las organizaciones de personas con discapacidad, establecidas en el marco jurídico nacional e internacional, mediante el procedimiento dispuesto por el artículo 28 del Reglamento a la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, se deberá cumplir el presente procedimiento formal, a efecto de garantizar la validez de los nombramientos estipulados en dicha norma.
