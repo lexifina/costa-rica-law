@@ -1,0 +1,1 @@
+Artículo 13.—Responsabilidad de las personas usuarias del servicio. Las personas usuarias del servicio de telefonía celular o de radiolocalizador, serán responsables de su custodia y conservación, así como de su uso correcto y racional, conforme con lo establecido en este Reglamento.
