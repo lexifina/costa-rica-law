@@ -1,0 +1,3 @@
+Artículo 35.-Exclusión del Registro de Proveedores. Se excluirán del Registro de Proveedores aquellas personas físicas o jurídicas que, en forma reiterada, no respondan al llamado a concursar en los distintos procedimientos de contratación.
+Cuando algún adjudicatario no cumpla con el contenido de la orden de compra confeccionada y no exista una razón adecuadamente justificada para la no entrega de los bienes o servicios contratados, será excluido del registro de proveedores y se le aplicará la sanción que corresponda de acuerdo con la Ley.
+Previamente la exclusión se le informará al oferente registrado tal decisión, para que en el plazo de tres días hábiles se manifieste al respecto.

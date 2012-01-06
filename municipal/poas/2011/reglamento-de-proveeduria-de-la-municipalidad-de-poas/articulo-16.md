@@ -1,0 +1,1 @@
+Artículo 16.-Bienes en existencia. Si la Proveeduría Institucional tiene existencias del bien solicitado lo despachará de acuerdo al horario establecido, siempre y cuando, previamente se haga la respectiva solicitud.

@@ -1,0 +1,1 @@
+Artículo 10.-Solicitud de Bienes y Servicios. Los bienes y servicios que requieran: el Concejo Municipal, Alcaldía, Áreas, Departamentos, Unidades Operativas, Oficinas de la Institución y otros entes u órganos de la comunidad serán solicitados a la Proveeduría Institucional, mediante el formulario denominado "Orden de Solicitud a Proveeduría".
