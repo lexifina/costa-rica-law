@@ -1,0 +1,18 @@
+JUNTA DE PROTECCIÓN SOCIAL
+PROCEDIMIENTO PARA LA PROMOCIÓN
+DE PREMIOS ESPECIALES CON LOS SORTEOS
+DE LA LOTERÍA POPULAR
+Artículo 1º—Objeto. El objeto del presente procedimiento es el de regular los aspectos relacionados con la promoción establecida para el otorgamiento de premios especiales, con motivo de la realización de los sorteos de la Lotería Popular del año 2011, aprobado por la Junta Directiva de la Junta de Protección Social según acuerdo JD-177, correspondiente al artículo V) inciso 6), de la sesión ordinaria Nº 13-2011, celebrada el 5 de abril del 2011, acuerdo JD-254, correspondiente al artículo III), inciso 6), de la sesión Nº 20-2011, celebrada el 7 de junio del 2011 y JD-293, artículo VII), inciso 2), de la sesión Nº 23-2011, celebrada el 28 de junio del 2011 y el Acuerdo JD-438, artículo VIII), inciso 2), punto 4), de la sesión Nº 33-2011, celebrada el 6 de setiembre, 2011, como parte de la estrategia de comercialización para este producto.
+Artículo 2º—Definiciones. Para efectos de este procedimiento, se definen los siguientes conceptos:
+Junta: Junta de Protección Social.
+Junta Directiva: El máximo órgano jerárquico de la Junta.
+Premios especiales: Consiste en combos compuestos con algunos de los siguientes artículos, otorgados en especie no en efectivo.
+1. Refrigeradora: Tamaño mínimo 24.8 cu. pies, doble puerta vertical, congelador ubicado en la parte inferior, acero inoxidable monocromático, ice maker, dispensador de agua interno filtrado, temperatura controlada, purificador de agua, dimensiones: ancho 35 5/8”, profundidad 35 ½”, altura: 69 7/8 “.
+2. Cocina: 30 “, eléctrica, acero inoxidable real, 5 plantillas, superficie lisa de cristal cerámico para cocción, capacidad de horno mínima de 6.0 pies cúbicos, apago automático, tecnología de horneado homogéneo, gaveta de almacenaje bajo el horno, tablero digital trasero.
+3. Lavadora: 27 libras, lavadora de carga frontal con mínimo 3.5 pies cúbicos, ahorro de energía, tina de acero inoxidable y calentador, ajuste automático de nivel de agua, tecnología time wise, dimensiones: ancho 27”, profundidad 28”, altura 36”.
+4. Secadora: 27 libras, secadora eléctrica de mínimo 7.0 pies cúbicos, tambor de acero inoxidable, potente rendimiento, tecnología time wise, dimensiones: anchura 27”, profundidad 29 ¾”, altura 36”.
+5. Microondas: acero inoxidable real, 2.0 cu pies cúbicos, opciones de un solo toque, 16” bandeja giratoria, 1200 watts, opciones de cocción automáticas, controles en el lado digitales, mantener el calor, nivel de luz (hi/low), medidas: ancho 24”, profundidad 19 1/8”, altura 13 3/8.
+6. Cuadraciclo: Combustible gasolina, 4 tiempos, inyección electrónica de combustible, arranque eléctrico, enfriado por agua, transmisión automática con sistema de reversa y bloque, tracción 4x4, suspensión delantera independiente o sistema similar, suspensión trasera independiente o sistema similar, frenos delanteros y traseros de disco independientes, equipado con rejillas para transporte de carga y otros, de 500 a 700 cc.
+7. Vehículo tipo pick up: Combustible diesel o gasolina, transmisión manual o automática, tracción 4x4, mínimo aro 15”, 2000 cc a 3000 cc, capacidad para 5 pasajeros, bolsas de aire AIR BAG, tapicería de tela, cinturones de seguridad para todos los pasajeros, sistema de aire acondicionado original de fábrica, cierre central, vidrios eléctricos, espejos eléctricos.
+Todas las características anteriores, sujetas a disponibilidad de los productos.
+Participantes: Toda persona física mayor de 18 años, poseedora de al menos una fracción en cada sorteo de Lotería Popular, durante el periodo en el cual rige la promoción.
