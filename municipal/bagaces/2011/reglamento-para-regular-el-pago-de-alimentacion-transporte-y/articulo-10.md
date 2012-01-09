@@ -1,0 +1,1 @@
+Artículo 10.—Pago de viáticos. El pago de los viáticos lo hará la administración los días cinco de cada mes, para lo cual la respectiva liquidación deberá de presentarse por lo menos con dos días de anticipación a dicha fecha, caso contrario, se pagarán el mes siguiente.

@@ -1,0 +1,1 @@
+Artículo 13.—Transitorio. Este reglamento deroga en su totalidad cualquier otro que regulaba el pago de alimentación, transporte y hospedaje, dentro del cantón de Bagaces, así como otras localidades dentro y fuera del país, a los Regidores, Regidoras, Síndicos y Sindicas, propietarios y suplentes de la Municipalidad de Bagaces.

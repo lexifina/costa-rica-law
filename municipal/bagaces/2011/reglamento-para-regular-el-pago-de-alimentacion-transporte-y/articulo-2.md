@@ -1,0 +1,1 @@
+Artículo 2°—Concepto. Por viáticos se entenderá aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje que la Municipalidad de Bagaces, reconocerá a los Regidores, Regidoras, Síndicos y Síndicas, propietarios y suplentes, que en cumplimiento de sus funciones deban desplazarse, dentro o fuera del territorio nacional.
