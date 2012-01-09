@@ -1,0 +1,1 @@
+Artículo 46.—Se establece la carrera administrativa municipal, como medio de desarrollo y promoción del recurso humano municipal. Se entenderá como un sistema integral, regulador del empleo y las relaciones laborales entre las personas servidoras y la administración municipal.

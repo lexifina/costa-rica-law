@@ -1,0 +1,1 @@
+Artículo 108.—La Municipalidad debe propiciar las facilidades necesarias con el fin de que todos las personas servidoras, sin discriminación alguna, puedan capacitarse y superarse en el desempeño de sus puestos.

@@ -1,0 +1,1 @@
+Artículo 90.—Las personas servidoras tendrán derecho al reconocimiento y pago de la carrera profesional, de conformidad con la normativa que se dicte al efecto mediante un reglamento en la materia, de lo contrario no es procedente su reconocimiento.

@@ -1,0 +1,1 @@
+Artículo 31.—Son personas servidoras municipales los nombrados de acuerdo con el artículo 125 del Código Municipal y que satisfagan los requisitos que establece el Manual de Puestos de la Municipalidad, el artículo 111 de la Ley General de la Administración Pública y lo estipulado en el artículo 118 del Código Municipal.

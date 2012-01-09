@@ -1,0 +1,1 @@
+Artículo 154.—El no uso del uniforme por primera vez sin la justificación debida se considerara falta leve por lo que procederá la amonestación verbal. Se impondrá amonestación por escrito cuando la persona servidora haya merecido dos o más advertencias orales durante un mismo mes calendario.

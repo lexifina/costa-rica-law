@@ -1,0 +1,1 @@
+Artículo 16.—Es deber de cada jefatura de las diferentes unidades administrativas de la Municipalidad, enviar copia al expediente personal de las personas funcionarias, de aquellas gestiones que dentro de su ámbito de competencia puedan generar actos jurídico-administrativos de las personas funcionarias a su cargo.

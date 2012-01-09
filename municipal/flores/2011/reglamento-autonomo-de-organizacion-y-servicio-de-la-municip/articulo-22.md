@@ -1,0 +1,14 @@
+De las Obligaciones de los Servidores
+que Conducen Vehículos Municipales
+Artículo 22.—Sin perjuicio de otras obligaciones señaladas en este Reglamento y en las leyes de tránsito, son obligaciones específicas de quienes manejan vehículos de la Municipalidad:
+1) Mantener al día la licencia de conducir en la categoría correspondiente.
+2) Tratar con absoluto esmero y cuidado los vehículos de la Municipalidad de modo que estos no sufran daños y desperfectos que los debidos a la acción del tiempo y del trabajo normal; responderán por ellos cuando sean ocasionados por culpa o dolo, sin perjuicio de las sanciones aplicables.
+3) Abstenerse de ingerir licor o drogas cuando están en servicio y no manejar bajo los efectos de éste, o a velocidades que dadas las circunstancias puedan motivar accidentes de tránsito. El incumplimiento de cualquiera de estas obligaciones dará base hasta para el despido inmediato.
+4) Impedir la conducción de los vehículos que les han sido encomendados a personas extrañas o no a la Municipalidad, o que no estén debidamente autorizadas.
+5) No transportar en los vehículos de la Municipalidad a personas ajenas al servicio, que no sean funcionarios de la Municipalidad o miembros del Concejo Municipal, salvo autorización expresa del Alcalde o en su defecto por delegación de este por la persona que ostente el cargo de Vicealcalde.
+6) Revisar con la regularidad aconsejable el vehículo y reportar a quien corresponda en forma inmediata los desperfectos que note y los ruidos que escuche y que hagan presumir la existencia de un daño.
+7) Hacer circular el vehículo mediante boleta firmada previamente con indicación de los lugares a visitar, personas funcionarias autorizadas, combustible y kilometraje.
+8) Limitar el recorrido del vehículo al estrictamente necesario para proporcionar el servicio requerido por la Municipalidad y no ocupado en menesteres personales o ajenos en general a este.
+9) Asumir la responsabilidad del equipo, llantas de repuesto y demás accesorios y herramientas de vehículo, durante el tiempo que permanezca bajo su cuidado; responderán por cualquier pérdida ocasionada por culpa o dolo.
+10) Reportar inmediatamente a su superior jerárquico cualquier reparación o accidente de tránsito que sufra, suministrando información lo más detallada y completa posible sobre la hora, lugar y circunstancias propias del accidente, el nombre o nombres de personas lesionadas o atrapadas, testigos, características del otro vehículo si fuere del caso, y en general todo tipo de detalles pertinentes.
+11) Respetar en todos sus extremos la Ley de Tránsito y sus reformas. En caso de de que resulte una infracción de tránsito pecuniaria por negligencia del funcionario, ésta deberá ser cancela por el infractor, en caso de negatoria del funcionario se iniciará proceso de cobro basado en la negligencia del conductor.

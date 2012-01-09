@@ -1,0 +1,1 @@
+Artículo 146.—Se dotará a todas las personas trabajadoras de al menos dos uniformes por año consistente en el caso de las mujeres, de dos pantalones o enaguas, dos blusas; a los varones, dos pantalones, dos camisas y; al personal de campo, al menos de dos camisas, dos pantalones, un par de zapatos de seguridad, un par de guates de seguridad, y un cinturón de seguridad.

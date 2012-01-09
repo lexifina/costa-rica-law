@@ -1,0 +1,2 @@
+Artículo 164.—Tanto la amonestación verbal como la escrita, relacionadas con aspectos disciplinarios ajenos a las faltas por inasistencia al trabajo, serán impuestas por quien funge como jefe inmediato de la persona funcionaria, previo cumplimiento del debido proceso.
+Las sanciones de suspensión sin goce de salario o despido, por inasistencia al trabajo corresponderá aplicarlas a quien ostente el cargo de Alcalde, previo informe del Departamento de Recursos Humanos.

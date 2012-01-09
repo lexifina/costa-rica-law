@@ -1,0 +1,1 @@
+Artículo 123.—Las personas funcionarias podrán impartir lecciones a nivel superior, de conformidad con los artículos 17 de la Ley contra el enriquecimiento ilícito, N° 8422 y 15 de la Ley de Salarios en la Administración Público, N° 2166.

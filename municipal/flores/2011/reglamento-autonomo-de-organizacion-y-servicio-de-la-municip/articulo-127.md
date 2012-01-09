@@ -1,0 +1,1 @@
+Artículo 127.—La Municipalidad podrá modificar transitoria o permanentemente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a las personas trabajadores. El cambio será comunicado a las personas trabajadoras afectados con un mínimo de 3 días de anticipación.

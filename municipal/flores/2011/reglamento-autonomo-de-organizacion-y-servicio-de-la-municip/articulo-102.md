@@ -1,0 +1,1 @@
+Artículo 102.—Los jefes inmediatos serán responsables de advertir a las personas funcionarias sobre la prohibición del fumado. La Municipalidad deberá, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

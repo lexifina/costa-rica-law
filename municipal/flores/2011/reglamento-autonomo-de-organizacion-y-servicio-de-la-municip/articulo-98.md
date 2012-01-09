@@ -1,0 +1,1 @@
+Artículo 98.—La Municipalidad deberá adoptar las medidas necesarias para las personas servidoras cuya permanencia no sea aconsejable, por razones médicas, en un puesto que entrañe exposiciones a los riegos de su trabajo debiendo en este caso, proceder al traslado de la persona funcionaria a un puesto más adecuado.

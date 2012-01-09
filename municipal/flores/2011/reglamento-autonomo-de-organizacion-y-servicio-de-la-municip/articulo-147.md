@@ -1,0 +1,1 @@
+Artículo 147.—Los materiales con que se fabricarán las prendas, serán todos de buena calidad y se contratará su confección y compra siguiendo las disposiciones de la Ley de Contratación Administrativa y su Reglamento.

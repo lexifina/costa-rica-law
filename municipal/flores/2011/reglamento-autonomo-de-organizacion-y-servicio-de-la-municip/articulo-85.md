@@ -1,0 +1,1 @@
+Artículo 85.—En adelante la Municipalidad seguirá aplicando las sumas y porcentajes de aumento de salarios a todos sus empleados en las mismas condiciones y cantidades como mínimo, que rijan para los empleados públicos de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 153.—El uniforme será de uso obligatorio para todos los empleados municipales durante todos los días de la semana, salvo autorización firmada por el Alcalde o en su defecto por delegación de éste por quien ostente el cargo de Vicealcalde.

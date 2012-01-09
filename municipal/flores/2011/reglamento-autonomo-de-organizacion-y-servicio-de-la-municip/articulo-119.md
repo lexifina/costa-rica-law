@@ -1,0 +1,1 @@
+Artículo 119.—Cuando la persona servidora desempeñe labores técnicas o profesionales que dificulten su reemplazo, podrá la Municipalidad acumularle las vacaciones por un periodo. Es obligación de toda jefatura con personas funcionarias a su cargo, el no permitir que se acumulen dos o más períodos de vacaciones.

@@ -1,0 +1,1 @@
+Artículo 151.—Cada empleado será responsable del buen uso que se le den a las prendas. Por tanto, queda prohibido el ingreso a bares y otros lugares de diversión portando el uniforme municipal, la violación a este artículo será considerado falta grave, salvo en labores relativas al cargo.

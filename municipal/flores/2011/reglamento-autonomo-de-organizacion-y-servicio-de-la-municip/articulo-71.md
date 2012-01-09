@@ -1,0 +1,1 @@
+Artículo 71.—El Departamento de Recursos Humanos analizará si la actividad propuesta responde a la programación establecida, y si la persona funcionaria seleccionada reúne los requisitos que este departamento establezca para la aceptación de su participación.

@@ -1,0 +1,1 @@
+Artículo 150.—A cada labor se le asignará un tipo de uniforme adecuado a sus actividades. En este sentido, el estilo y color variaran según sean: personal administrativo, personal operativo, y personal técnico y profesional de la Municipalidad de Flores.

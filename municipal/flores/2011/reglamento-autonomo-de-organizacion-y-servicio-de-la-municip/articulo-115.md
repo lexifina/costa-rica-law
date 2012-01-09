@@ -1,0 +1,2 @@
+Artículo 115.—Del total que le corresponde, la persona servidora deberá disfrutar al menos de quince días hábiles cada año, período que es incompensable.
+Cuando la persona servidora lo solicite, la Municipalidad lo acepta por razones de conveniencia institucional y exista disponibilidad presupuestaria, se podrá compensar económicamente el resto de las vacaciones a que tiene derecho la persona servidora en forma total o parcial.

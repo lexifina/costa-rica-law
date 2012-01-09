@@ -1,0 +1,1 @@
+Artículo 29.—A la persona funcionaria que se demuestre que utiliza los equipos de cómputo en horas de oficina, para fines distintos a los dispuestos en sus funciones, como juegos, se le sancionará con una llamada de atención verbal cuando sea por primera vez, y si reincide se procederá conforme lo establecido en el artículo 160 de este Reglamento.

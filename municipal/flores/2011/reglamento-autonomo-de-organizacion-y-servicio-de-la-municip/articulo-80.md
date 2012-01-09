@@ -1,0 +1,1 @@
+Artículo 80.—La evaluación y calificación de servicios en la Municipalidad, deberá darse a las personas servidoras nombradas en propiedad que durante el año hayan trabajado continuamente o excepcionalmente aquellos interinos que tengan un nombramiento superior a los seis meses.

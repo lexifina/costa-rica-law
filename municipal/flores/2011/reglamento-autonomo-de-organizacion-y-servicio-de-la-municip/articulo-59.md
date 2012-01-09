@@ -1,0 +1,1 @@
+Artículo 59.—La Municipalidad brindará el tiempo necesario, transporte y viáticos a sus funcionarios para la participación en actividades de capacitación o formación de acuerdo con las disposiciones y la tabla de viáticos vigente por la Contraloría General de la República.

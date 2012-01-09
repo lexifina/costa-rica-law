@@ -1,0 +1,1 @@
+Artículo 117.—Si durante el disfrute de sus vacaciones la persona servidora se enferma o accidenta y es incapacitado para trabajar por la Caja Costarricense del Seguro Social, el periodo de vacaciones se interrumpe. Los días que falten de disfrutar se concederán al termino de la incapacidad.

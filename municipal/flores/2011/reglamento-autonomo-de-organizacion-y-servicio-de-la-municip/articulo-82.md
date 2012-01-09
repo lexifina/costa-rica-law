@@ -1,0 +1,1 @@
+Artículo 82.—El desacuerdo entre la persona coordinadora inmediata y la persona servidora en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde de la Municipalidad, previa audiencia a todas las partes interesadas.

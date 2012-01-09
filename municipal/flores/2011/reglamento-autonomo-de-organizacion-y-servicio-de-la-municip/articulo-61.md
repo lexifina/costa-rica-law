@@ -1,0 +1,1 @@
+Artículo 61.—Aquellos empleados contratados interinamente, podrán recibir capacitación para mejorar su trabajo, previa solicitud escrita de la jefatura respectiva, recomendación del Departamento de Recursos Humanos, y bajo autorización del Alcalde o en su defecto por delegación expresa de éste por quien ostente la primera vicealcaldía.

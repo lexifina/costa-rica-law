@@ -1,0 +1,1 @@
+Artículo 104.—Los servidores que fumen deberán hacerlo durante su tiempo matutino de descanso, o durante el período de almuerzo. Queda bajo la supervisión del jefe inmediato el hecho de que las personas funcionarias no tomen más tiempo para el fumado, que el establecido en los tiempos de descanso.

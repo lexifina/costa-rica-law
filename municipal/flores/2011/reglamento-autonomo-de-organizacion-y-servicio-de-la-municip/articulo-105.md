@@ -1,0 +1,1 @@
+Artículo 105.—Por el incumplimiento de lo dispuesto en la Ley Reguladora del Fumado y en este Reglamento se impondrá una multa equivalente a la cuarta parte del salario base menor pagado en la Municipalidad, en aplicación de lo regulado en la Ley Nº 7501.

@@ -1,0 +1,1 @@
+Artículo 83.—Cuando el resultado de la evaluación y calificación de servicios anual de la persona servidora sea de regular dos veces consecutivas, ello se considerará falta grave y se actuará conforme a lo establecido, por parte del Alcalde en este Reglamento.

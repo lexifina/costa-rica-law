@@ -1,0 +1,1 @@
+Artículo 137.—Las disposiciones contenidas en este Reglamento sobre el procedimiento y remoción no serán aplicadas a las personas funcionarias que dependan directamente del Concejo. Para tal efecto, el Concejo acordará las acciones y procedimientos que afectan a las personas funcionarias directamente dependiente de él.

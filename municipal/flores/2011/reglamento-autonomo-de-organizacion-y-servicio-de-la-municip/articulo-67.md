@@ -1,0 +1,1 @@
+Artículo 67.—Quedará libre de los compromisos adquiridos ante el otorgamiento de una beca, la persona funcionaria que interrumpa sus estudios por prescripción médica. La persona funcionaria tendrá que presentar al Departamento de Recursos Humanos certificado médico extendido por la Institución de salud estatal.

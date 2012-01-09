@@ -1,0 +1,1 @@
+Artículo 116.—El pago de las vacaciones se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados por la persona servidora durante las cincuenta semanas anteriores a adquirir el derecho, o durante el tiempo que le diera el derecho proporcional.

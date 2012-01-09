@@ -1,0 +1,1 @@
+Artículo 53.—El financiamiento total o parcial de la participación de las personas funcionarias de la Municipalidad, en cursos de capacitación o de formación profesional, técnicas, o básica, que se lleven a cabo, quedará sujeto a que existan las disponibilidades presupuestarias suficientes.

@@ -1,0 +1,1 @@
+Artículo 75.—La Municipalidad establecerá una partida presupuestaria anual para la capacitación, formación y becas como incentivo, al Departamento de Recursos Humanos, para la concesión y administración de tales propósitos, esta no será menor al 0,40% del presupuesto ordinario.

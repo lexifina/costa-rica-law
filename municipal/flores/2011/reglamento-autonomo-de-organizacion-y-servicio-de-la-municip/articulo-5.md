@@ -1,0 +1,1 @@
+Artículo 5º—La Municipalidad propiciará la efectiva vigencia de los principios universales del Derecho Constitucional, Público y Laboral, y aplicará las sanciones pertinentes a los responsables por la violación de dicha normativa, atendiendo el debido proceso.

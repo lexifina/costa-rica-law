@@ -1,0 +1,1 @@
+Artículo 52.—Se establece el presente capítulo para la capacitación y formación de las personas funcionarias de la Municipalidad, para desarrollarse ya sea en el país o en el exterior y; a la adjudicación de becas en la materia propia del quehacer municipal. Esta formación o capacitación puede ser financiada de forma total o parcialmente.

@@ -1,0 +1,1 @@
+Artículo 89.—El pago por concepto de dedicación exclusiva, deberá ser autorizado por la persona quien ostente el cargo de Alcalde Municipal, previo análisis técnico, presupuestario y jurídico de su viabilidad, conveniencia e interés que en ello tenga la Administración, de conformidad con la normativa interna dictada al efecto.
