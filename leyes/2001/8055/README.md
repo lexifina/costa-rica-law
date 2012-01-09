@@ -1,6 +1,6 @@
 # Tratado de Libre Comercio entre Centroamérica y Chile y del Protocolo Bilateral Adjunto Celebrado entre las Repúblicas de Costa Rica y Chile
 
-Ley N° 8055 del 2001-01-04. SINALEVI, ficha 46013: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46013&param2=87202&param3=1>.
+Ley N° 8055 del 2001-01-04. SINALEVI, ficha 46013: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46013&param2=95525&param3=1>.
 
 Publicada en La Gaceta N° 42 del 2001-02-28.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 12 | 2011-01-31 | Decreto Ejecutivo 36349 (2010-11-25) | 2010-11-25 |
 | 5 de 12 | 2012-01-05 | Decreto Ejecutivo 36902 (2011-11-10) | 2011-11-10 |
 | 6 de 12 | 2012-01-09 | Decreto Ejecutivo 36907 (2011-11-10) | 2011-11-10 |
+| 7 de 12 | 2012-01-09 | Decreto Ejecutivo 36904 (2011-11-10) | 2011-11-10 |
