@@ -423,6 +423,29 @@ Instrucciones adicionales para el llenado del campo 10
 (Observaciones) del Certificado de origen aplicables
 a las exportaciones desde Chile a Costa Rica
 En el campo 10 (Observaciones) del certificado de origen, adicionalmente a las instrucciones señaladas en el Anexo IV.2 (a), y para el caso de mercancías exportadas desde Chile a Costa Rica que puedan ser beneficiarias del Sistema Simplificado de Reintegro a Exportadores de Chile, el exportador deberá indicar expresamente en el campo 10 (Observaciones) que para esa exportación a Costa Rica renuncia a los beneficios del Sistema Simplificado de Reintegro a Exportadores de la ley 18.480 y que no ha solicitado ni solicitará el reintegro de derechos amparados a tal Sistema para dicha exportación.
+(*)APÉNDICE 2 al ANEXO IV. (2)(a)
+Procedimiento General para el Envío y Recepción de los Certificados
+Electrónicos de Origen
+Costa Rica y Chile adoptan el siguiente procedimiento para el envío y recepción del Certificado Electrónico de Origen:
+1. El exportador llenará y firmará el Certificado Electrónico de Origen en el país exportador. El certificado de origen solo será válido si está firmado digitalmente por el exportador.
+2. El certificado de origen electrónico deberá tener un número único con el cual se permitirá identificar individualmente cada certificado electrónico de origen.
+3. El certificado de origen electrónico debe ser enviado al importador por correo electrónico o cualquier otro medio electrónico.
+4. El agente aduanero podrá presentar el certificado electrónico de origen a la autoridad aduanera de la parte importadora para efectos de solicitar el trato arancelario preferencial.
+Requerimientos técnicos
+1. Con miras a implementar el presente Procedimiento General, Costa Rica y Chile acuerdan los siguientes requerimientos técnicos:
+a. Las Partes acordarán una estructura para el certificado electrónico de origen (XML) antes de la entrada en vigencia de la presente Decisión.
+b. Sin perjuicio de lo anterior, las Partes podrán modificar la estructura referida en el punto 1 previo acuerdo entre Costa Rica y Chile.
+c. Formato del archivo electrónico del certificado de origen: XML.
+d. Sistema de comunicación de información: Internet.
+e. Firma digital (según legislación interna de cada parte).
+[imagen]
+Descripción de procesos:
+1. El exportador llena y firma electrónicamente el certificado de origen.
+2. El exportador envía por email al importador el certificado de origen firmado electrónicamente.
+3. El agente de aduanas presentará ante la autoridad aduanera el certificado electrónico de origen.
+4. La autoridad aduanera recibe el certificado de origen.
+No obstante los procedimientos establecidos anteriormente, los exportadores e importadores, deberán cumplir con la obligación de conservar el certificado de origen en formato electrónico durante 5 años contados a partir de la fecha de la importación, y demás documentación relativa a la importación, de conformidad con lo establecido en el artículo 5.03 numeral 4, artículo 5.04 numeral 5, y lo dispuesto en su normativa interna según corresponda.
+(*)(Así adicionado el apéndice 2 al Anexo IV(2)(a) referido al "Procedimiento general para el envío y recepción de certificados de origen emitidos en forma electrónica y firmados digitamente", aplicable únicamente para Chile y Costa Rica" aprobado mediante decreto ejecutivo N° 37010 del 9 de enero del 2012)
 ANEXO V.1 (a)
 Tratado de Libre Comercio entre los Gobiernos de las Repúblicas
 de Chile, Costa Rica, El Salvador, Guatemala,

@@ -14,3 +14,4 @@ Reglamentaciones Uniformes para la Interpretación, Aplicación y Administració
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-28 | la propia norma |
+| 2 | 2012-01-09 | Decreto Ejecutivo 37010 (2012-01-09) |
