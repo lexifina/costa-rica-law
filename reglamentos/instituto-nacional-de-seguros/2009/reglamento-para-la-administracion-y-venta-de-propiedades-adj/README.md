@@ -15,3 +15,4 @@ Reglamento para la Administración y Venta de Propiedades Adjudicadas en el INS
 | --- | --- | --- |
 | 1 | 2009-05-22 | la propia norma |
 | 2 | 2011-03-28 | Reglamento 9052 (2011-03-28) |
+| 3 | 2012-01-09 | Reglamento 9093 (2012-01-09) |
