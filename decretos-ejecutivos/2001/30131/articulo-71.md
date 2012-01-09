@@ -1,2 +1,9 @@
-CAPÍTULO XII
-(Así DEROGADO por el artículo 8 del Decreto Ejecutivo N° 31502 del 29 de setiembre de 2003, publicado en La Gaceta N° 235 del 05 de diciembre de 2003.)
+CAPÍTULO XIII
+De las estaciones de servicio e instalaciones
+de autoconsumo construidas con anterioridad
+a la publicación de este Decreto
+Artículo 71.—Las estaciones de servicio e instalaciones de autoconsumo construidas y autorizadas con anterioridad a la publicación de este Decreto Ejecutivo, que no se ajusten a las distancias establecidas en el mismo y que soliciten la renovación del permiso de funcionamiento y del servicio público para operar, deberán someter obligatoriamente a evaluación y aprobación del MINAET, las medidas técnicas de ingeniería compensatorias, avaladas por un profesional competente en la materia e incorporado al colegio profesional respectivo, que justifique técnicamente, que las mismas son adecuadas para subsanar el no cumplimiento de estas distancias.
+Se otorgará la mencionada renovación del permiso de funcionamiento y del servicio público, siempre y cuando, estas medidas técnicas de ingeniería compensatorias justifiquen técnicamente que se previenen la generación de impactos negativos sobre la salud humana, la seguridad y el ambiente.
+La denegación por parte del MINAET de las medidas técnicas de ingeniería compensatorias propuestas por el prestador de servicio público deberá estar sustentada en criterios técnicos debidamente fundamentados.
+Lo dispuesto en el presente reglamento sobre recuperación de vapores se aplicará conforme lo establecido en el artículo 24.3 de este decreto, para aquellas estaciones de servicio construidas con anterioridad a la publicación del presente reglamento, cuando se sustituyan los tanques de almacenamiento de combustible, ya sea por vencimiento de la vida útil o por deterioro de los mismos.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 36967 del 9 de enero del 2012. Anteriormente este numeral había sido derogadao por el artículo 8 del decreto ejecutivo N° 31502 del 29 de setiembre de 2003)

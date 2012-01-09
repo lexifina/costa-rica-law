@@ -59,6 +59,8 @@ Artículo 4º—Definiciones. Para los efectos de aplicación del presente regla
 4.56 Material de relleno. Material generalmente aceptado y aprobado por los fabricantes de tanques y tuberías para ser usado como relleno para fosas y gavetas después de haber instalado los tanques y tuberías.
 4.57 Malecón. Muro perimetral que delimita a la dársena.
 4.58 Marea. Es el movimiento periódico y alternativo de ascenso y descenso de las aguas del mar debido a las fuerzas de atracción lunar y solar combinadas con la fuerza centrífuga y el efecto de Coriolis causado por la rotación de la tierra.
+4.58 bis.—Medidas Técnicas de Ingeniería Compensatorias. Son todas aquellas obras que se realicen en la infraestructura existente o el uso de tecnologías seguras, en las estaciones de servicio e instalaciones de autoconsumo, con objeto de evitar la expansión de vapores o líquidos inflamables hacia otras áreas, que cumpla con el propósito de limitar las áreas de riesgo para prevenir la ocurrencia, producción o generación de impactos negativos a fin de garantizar la seguridad de las personas, la vida humana y el ambiente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 36967 del 9 de enero del 2012)
 4.59 Nivel de marea alta: Línea topográfica que marca un nivel, la cual indicará el nivel máximo del agua durante un período de cinco años.
 4.60 Obras de atraque y amarre. Es el conjunto de elementos estructurales que forman un paramento vertical, con suficiente calado para el atraque de las embarcaciones y una superficie horizontal para el depósito de mercancías y el movimiento de los medios mecánicos terrestres.
 4.61 Oleaje. Es la acción y efecto de formación de ondas que se desplazan en la superficie de las aguas por la acción del viento.
