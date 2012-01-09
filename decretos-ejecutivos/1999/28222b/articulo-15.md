@@ -1,1 +1,0 @@
-Artículo 15.—La flexibilización o supresión de control sanitario o fitosanitario fronterizo entre uno o más Estados Parte no dará lugar por sí sola al derecho de los Estados Parte que no participen en dicha supresión a nuevas exigencias en materia cuarentenaria, sin detrimento de la adopción de aquellas medidas que se justifiquen con criterios técnicos o científicos.

@@ -1,2 +1,0 @@
-Artículo 23.—Conforme a las obligaciones establecidas en el Artículo 4 de este Reglamento, el país importador podrá condicionar la internación de los vegetales, sus productos y subproductos a la presentación de un certificado fitosanitario internacional.
-El certificado fitosanitario internacional será extendido por profesionales oficiales o acreditados por la autoridad competente de cada Estado Parte.
