@@ -1,0 +1,10 @@
+CIRCULAR Nº 01-2012
+ASUNTO: Cambio de carátula para los expedientes en materia Penal Juvenil.
+A TODOS LOS DESPACHOS JUDICIALES QUE TRAMITAN
+CASOS DE LA MATERIA PENAL JUVENIL
+SE LES HACE SABER QUE:
+El Consejo Superior, en sesión Nº 100-11, celebrada el 29 de noviembre de 2011, artículo XXXV, dispuso comunicar que todos los expedientes de los casos nuevos correspondientes a la materia Penal Juvenil que ingresen a partir del 9 de diciembre del 2011, deberán llevar la nueva carátula identificada con el código F-716, color azul, creada específicamente para esa materia.
+Los expedientes que se encuentran en trámite mantendrán la carátula utilizada hasta la fecha, sea la carátula amarilla (código F-002). Para identificar estos casos de los correspondientes a personas adultas o de otras materias (Familia o Tránsito), se deberá pegar (con pegamento, no con grapas) en la esquina superior derecha de la carátula amarilla, la boleta que indica “PENAL JUVENIL”, cartulina color azul, tamaño 4” x 2”, la que se suministrará junto con la carátula azul F-716.
+En razón de que los expedientes que ingresan a los juzgados penales juveniles ya cuentan con la carátula amarilla elaborada en la fase de investigación (fiscalías), se insta a los despachos de las etapas posteriores del proceso (juzgados, tribunales de apelación, Sala Tercera) eliminar la práctica de cambiar la carátula por el solo hecho de cambiar el nombre del despacho. El cambio de carátula solo se justificará en casos de notable deterioro de ésta o para la corrección de datos relevantes como el tipo de delito. La indicada carátula F-716 será suministrada por el Departamento de Proveeduría antes del 9 de diciembre del 2011 y el Departamento de Artes Gráficas entregará directamente las boletas “Penal Juvenil” a los despachos judiciales, con el objeto de que cuenten con este material a partir de esa misma fecha.
+Las carátulas amarillas (F-002) que se encuentren en poder de los despachos que conocen la materia Penal Juvenil, deberán ser devueltas al Almacén del Departamento de Proveeduría a partir del 9 de diciembre de este año.
+San José, 9 de enero del 2012.
