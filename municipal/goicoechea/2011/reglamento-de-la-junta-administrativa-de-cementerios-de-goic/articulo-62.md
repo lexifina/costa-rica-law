@@ -1,0 +1,1 @@
+Artículo 62.—Ningún arrendatario de una parcela, podrá usarla, venderla, donarla, o traspasarla, si mantiene deudas pendientes con la Junta, salvo si garantiza a entera satisfacción de ésta lo adeudado.

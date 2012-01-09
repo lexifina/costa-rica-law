@@ -1,0 +1,1 @@
+Artículo 41.—Para toda exhumación ordinaria es necesario la anuencia del arrendatario de la bóveda, fosa o mausoleo, donde se encuentre el cadáver a ser exhumado salvo en los casos de exhumaciones extraordinarias, que se realicen por orden judicial o bien por orden del Ministerio de Salubridad Pública.

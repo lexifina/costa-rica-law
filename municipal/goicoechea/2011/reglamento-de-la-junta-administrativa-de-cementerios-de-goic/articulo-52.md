@@ -1,0 +1,1 @@
+Artículo 52.—Si una vez cancelado el arrendamiento de un nicho de alquiler éste no es utilizado en el plazo de treinta días naturales, perderá el derecho sobre el mismo salvo por justificación o mandato judicial.

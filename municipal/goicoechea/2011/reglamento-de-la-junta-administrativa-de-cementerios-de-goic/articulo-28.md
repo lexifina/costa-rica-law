@@ -1,0 +1,1 @@
+Artículo 28.—Para toda reparación o modificación de una bóveda, fosa en ambos cementerios o construcción de bóveda en el Cementerio Nuestra Señora de Guadalupe, el arrendatario deberá de contar previamente con el correspondiente permiso otorgado por la Junta, previo estudio de campo y de pago del derecho correspondiente.

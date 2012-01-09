@@ -1,0 +1,1 @@
+Artículo 25.—El cargo de fiscal será desempeñado por un (a) vecino (a) del cantón, mayor de 25 años. Su nombramiento y juramentación lo hará directamente el Concejo Municipal, siguiéndose al efecto el mismo procedimiento contemplado para la designación de los miembros de la Junta.

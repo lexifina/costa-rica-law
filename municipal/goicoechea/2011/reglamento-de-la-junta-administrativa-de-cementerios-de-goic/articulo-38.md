@@ -1,0 +1,1 @@
+Artículo 38.—En el caso de que en el derecho de arrendamiento en donde se va a sepultar un cadáver existiese solamente un nicho y al hacer la inspección correspondiente, se encontrase en él un cadáver momificado, no se podrá llevar a cabo la inhumación en ese nicho.

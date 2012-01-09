@@ -1,0 +1,1 @@
+Artículo 16.—Para solicitar originariamente un derecho de arrendamiento se requiere ser mayor de edad, no ser adjudicatario de otro u otros derechos de arrendamiento en los Cementerios del Cantón que administre esta Junta.

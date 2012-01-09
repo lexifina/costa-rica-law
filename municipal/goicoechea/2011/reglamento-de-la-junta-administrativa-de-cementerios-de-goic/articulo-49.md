@@ -1,0 +1,1 @@
+Artículo 49.—Después de transcurrido el periodo de alquiler autorizado o plazo prorrogado el arrendatario contará con treinta días naturales para solicitar la exhumación de los restos. Pasado este plazo y de no haberse recibido solicitud alguna, la Junta procederá al traslado de los restos al osario general sin responsabilidad alguna.

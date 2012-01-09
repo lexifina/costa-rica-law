@@ -1,0 +1,1 @@
+Artículo 18.—La Junta Administrativa llevará un registro de cada arrendatario, en donde se indicará el domicilio exacto y otras calidades suministradas por el mismo arrendatario, las cuales se tendrán como domicilio contractual para todos los efectos legales entiéndase fax, correo electrónico o cualquier otro medio de comunicación.

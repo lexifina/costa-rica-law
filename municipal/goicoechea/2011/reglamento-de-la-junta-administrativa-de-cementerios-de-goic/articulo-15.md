@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+De los Contratos de Arrendamiento
+Artículo 15.—La Junta dará en arrendamiento las parcelas de los cementerios bajo su administración. Dicho arrendamiento será por un plazo de 99 años. Una vez vencido dicho plazo podrá ser prorrogado por una única vez por un plazo igual de años, en donde la Junta Administrativa en su debido momento sea que establezca el monto a cancelar en el momento de expiración del contrato de arriendo (99 años). Si cumplido el plazo de arriendo y el posesor del derecho no desee prorrogar y si existiese una inhumación con menos de cinco años de antigüedad se prorrogará por el plazo restante para lo cual se cobrará solamente la cuota de mantenimiento, al finalizado el plazo la Junta Administrativa podrá disponer del derecho.
