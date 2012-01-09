@@ -23,7 +23,8 @@ La clasificación de mercancías en la Nomenclatura del Sistema Arancelario Cent
 2. a) Cualquier referencia a un artículo en una partida determinada alcanza al artículo incluso incompleto o sin terminar, siempre que éste presente las características esenciales del artículo completo o terminado. Alcanza también al artículo completo o terminado, o considerado como tal en virtud de las disposiciones precedentes, cuando se presente desmontado o sin montar todavía.
 b) Cualquier referencia a una materia en una partida determinada alcanza a dicha materia incluso mezclada o asociada con otras materias. Asimismo, cualquier referencia a las manufacturas de una materia determinada alcanza también a las constituidas total o parcialmente por dicha materia. La clasificación de estos productos mezclados o de estos artículos compuestos se efectuará de acuerdo con los principios enunciados en la Regla 3.
 3. Cuando una mercancía pudiera clasificarse, en principio, en dos o más partidas por aplicación de la Regla 2 b) o en cualquier otro caso, la clasificación se efectuará como sigue:
-a) la partida con descripción más específica tendrá prioridad sobre las partidas de alcance más genérico. Sin embargo, cuando dos o más partidas se refieran, cada una, solamente a una parte de las materias que constituyen un producto mezclado o un artículo compuesto o solamente a una parte de los artículos en el caso de mercancías presentadas en juegos o surtidos acondicionados para la venta al por menor, tales partidas deben considerarse igualmente específicas para dicho producto o artículo, incluso si una de ellas lo describe de manera más precisa o completa;
+a) la partida con descripción más específica tendrá prioridad sobre las partidas de alcance más genérico. Sin embargo, cuando dos o más partidas se refieran, cada una, solamente a una parte de las materias q
+ue constituyen un producto mezclado o un artículo compuesto o solamente a una parte de los artículos en el caso de mercancías presentadas en juegos o surtidos acondicionados para la venta al por menor, tales partidas deben considerarse igualmente específicas para dicho producto o artículo, incluso si una de ellas lo describe de manera más precisa o completa;
 b) los productos mezclados, las manufacturas compuestas de materias diferentes o constituidas por la unión de artículos diferentes y las mercancías presentadas en juegos o surtidos acondicionados para la venta al por menor, cuya clasificación no pueda efectuarse aplicando la Regla 3 a), se clasifican según la materia o con el artículo que les confiera su carácter esencial, si fuera posible determinarlo;
 c) cuando las Reglas 3 a) y 3 b) no permitan efectuar la clasificación, la mercancía se clasificará en la última partida por orden de numeración entre las susceptibles de tenerse razonablemente en cuenta.
 4. Las mercancías que no puedan clasificarse aplicando las Reglas anteriores se clasifican en la partida que comprenda aquellas con las que tengan mayor analogía.
@@ -489,10 +490,10 @@ CODIGO | DESCRIPCION | DAI %
 0210.12.00 | - - Tocino entreverado de panza (panceta) y sus trozos | II
 0210.19.00 | - - Las demás | II
 0210.20.00 | - Carne de la especie bovina | 15
-0210.9 | - Los demás, incluidos la harina y polvo comestibles, de carne o de despojos: |
+0210.9 | - Los demás, incluso la harina y polvo comestibles, de carne o de despojos: (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0210.91.00 | - - De primates | 10
 0210.92.00 | + + SUPRIMIDA ++ |
-0210.92 | - - De ballenas, delfines y marsopas (mamíferos del orden Cetáceos); de manatíes y dugones o dugongos (mamíferos del orden Sirenios), de otarios y focas, leones marinos y morsas (mamíferos del suborden Pinnipedia): |
+0210.92 | - - De ballenas, delfines y marsopas (mamíferos del orden Cetáceos); de manatíes y dugones o dugongos (mamíferos del orden Sirenios); de otarios y focas, leones marinos y morsas (mamíferos del suborden Pinnipedia): (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0210.92.10 | - - - De otarios y focas, leones marinos y morsas (mamíferos del suborden Pinnipedia) | 15
 0210.92.90 | - - - De otros animales | 10
 0210.93.00 | - - De reptiles (incluidas las serpientes y tortugas de mar) | 10
@@ -546,7 +547,7 @@ CODIGO | DESCRIPCION | DAI %
 0302.21.00 | - - Halibut (fletán) (Reinhardtius hippoglossoides, Hippoglossus hippoglossus, Hippoglossus stenolepis) | 10
 0302.22.00 | - - Sollas (Pleuronectes platessa) | 10
 0302.23.00 | - - Lenguados (Solea spp.) | 10
-0302.24.00 | - - Rodaballos (Psetta maxima, Scophthalmidae) | 10
+0302.24.00 | - - Rodaballos (Psetta maxima) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 10
 0302.29.00 | - - Los demás | 10
 0302.3 | - Atunes (del género Thunnus), listados o bonitos de vientre rayado (Euthynnus (Katsuwonus) pelamis), excepto los hígados, huevas y lechas: |
 0302.31.00 | - - Albacoras o atunes blancos (thunnus alalunga) | 0
@@ -604,7 +605,7 @@ CODIGO | DESCRIPCION | DAI %
 0302.82.00 | - - Rayas (Rajidae) | 15
 0302.83.00 | - - Austromerluza antártica y austromerluza negra (merluza negra, bacalao de profundidad, nototenia negra) (Dissostichus spp.) | 15
 0302.84.00 | - - Róbalos (Dicentrarchus spp.) | 15
-0302.85.00 | - - Sargos (Espáridos) (Sparidae) | 15
+0302.85.00 | - - Sargos (Doradas, Espáridos) (Sparidae) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 15
 0302.89 | - - Los demás: |
 0302.89.10 | - - - Pargos (Lutjanus spp.) | 15
 0302.89.20 | - - - Dorados (Coryphaena hippurus) | 15
@@ -622,7 +623,7 @@ CODIGO | DESCRIPCION | DAI %
 0303.13.00 | - - Salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 10
 0303.14.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) | 15
 0303.19.00 | - - Los demás | 10
-0303.2 | - Tilapias (Oreochromis spp.), bagres o pez gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus carpio, Carassius carassius, Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus), peces cabeza de serpiente (Channa spp.), excepto los hígados, huevas y lechas: |
+0303.2 | - Tilapias (Oreochromis spp.), bagres o pez gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus carpio, Carassius carassius, Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.), excepto los higados, huevas y lechas: (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0303.21.00 | + + SUPRIMIDA ++ |
 0303.22.00 | + + SUPRIMIDA ++ |
 0303.23.00 | - - Tilapias (Oreochromis spp.) | 10
@@ -634,7 +635,7 @@ CODIGO | DESCRIPCION | DAI %
 0303.31.00 | - - Halibut (fletán) (Reinhardtius hippoglossoides, Hippoglossus hippoglossus, Hippoglossus stenolepis) | 10
 0303.32.00 | - - Sollas (Pleuronectes platessa) | 10
 0303.33.00 | - - Lenguados (Solea spp.) | 10
-0303.34.00 | - - Rodaballos (Psetta maxima, Scophthalmidae) | 10
+0303.34.00 | - - Rodaballos (Psetta maxima) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 10
 0303.39.00 | - - Los demás | 10
 0303.4 | - Atunes (del género Thunnus), listados o bonitos de vientre rayado (Euthynnus (Katsuwonus) pelamis), excepto los hígados, huevas y lechas: |
 0303.41.00 | - - Albacoras o atunes blancos (Thunnus alalunga) | 0
@@ -705,7 +706,7 @@ CODIGO | DESCRIPCION | DAI %
 0304.4 | - Filetes de los demás pescados, frescos o refrigerados: |
 0304.41.00 | - - Salmones del pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytscha, Oncorhynchus kisutch, Oncorhynchus masou y Oncorhynchus rhodurus), salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 15
 0304.42.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) | 15
-0304.43.00 | - - Peces planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae) | 15
+0304.43.00 | - - Pescados planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 15
 0304.44.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae | 15
 0304.45.00 | - - Peces espada (Xiphias gladius) | 15
 0304.46.00 | - - Austromerluza antártica y austromerluza negra (merluza negra, bacalao de profundidad, nototenia negra) (Dissostichus spp.) | 15
@@ -732,7 +733,7 @@ CODIGO | DESCRIPCION | DAI %
 0304.8 | - Filetes congelados de los demás pescados: |
 0304.81.00 | - - Salmones del Pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytscha, Oncorhynchus kisutch, Oncorhynchus masou y Oncorhynchus rhodurus), salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 15
 0304.82.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) | 15
-0304.83.00 | - - Peces planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae) | 15
+0304.83.00 | - - Pescados planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 15
 0304.84.00 | - - Peces espada (Xiphias gladius) | 15
 0304.85.00 | - - Austromerluza antártica y austromerluza negra (merluza negra, bacalao de profundidad, nototenia negra) (Dissostichus spp.) | 15
 0304.86.00 | - - Arenques (Clupea harengus, Clupea pallasii) | 15
@@ -808,10 +809,10 @@ CODIGO | DESCRIPCION | DAI %
 0306.15 | - - Cigalas (Nephrops norvegicus): |
 0306.15.10 | - - - Ahumadas, incluso peladas o cocidas antes o durante el ahumado | 15
 0306.15.90 | - - - Otras | 10
-0306.16 | - - Camarones y langostinos de agua fría (Pandalus spp., Crangon crangon): |
+0306.16 | --Camarones, langostinos y demás decápodos Natantia de agua fría (Pandalus spp., Crangon crangon): (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0306.16.10 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.16.90 | - - - Otros | 10
-0306.17 | - - Los demás camarones, langostinos y otros Decápodos natantia: |
+0306.17 | - - Los demás camarones, langostinos y demás decápodos Natantia: (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0306.17.1 | - - - Camarones: |
 0306.17.11 | - - - - Cultivados, sin ahumar | 10
 0306.17.12 | - - - - Cultivados, ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
@@ -837,16 +838,17 @@ CODIGO | DESCRIPCION | DAI %
 0306.23.10 | + + SUPRIMIDA ++ |
 0306.23.90 | + + SUPRIMIDA ++ |
 0306.24.00 | + + SUPRIMIDA ++ |
+| |
 0306.24 | - - Cangrejos (excepto macruros): |
 0306.24.10 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.24.90 | - - - Otros | 10
 0306.25 | - - Cigalas (Nephrops norvegicus): |
 0306.25.10 | - - - Ahumadas, incluso peladas o cocidas antes o durante el ahumado | 15
 0306.25.90 | - - - Otras | 10
-0306.26 | - - Camarones y langostinos de agua fría (Pandalus spp., Crangon crangon): |
+0306.26 | - - Camarones, langostinos y demás decápodos Natantia de agua fría (Pandalus spp., Crangon crangon): (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0306.26.10 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.26.90 | - - - Otros | 10
-0306.27 | - - Los demás camarones, langostinos y otros Decápodos natantia: |
+0306.27 | - - Los demás camarones, langostinos y demás decápodos Natantia: (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0306.27.10 | - - - Larvas para repoblación | 0
 0306.27.9 | - - - Otros: |
 0306.27.91 | - - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
@@ -907,13 +909,13 @@ CODIGO | DESCRIPCION | DAI %
 0307.89 | - - Los demás: |
 0307.89.10 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0307.89.90 | - - - Otros | 10
-0307.9 | - Los demás, incluso la harina, polvo y "pellets", aptos para la alimentación humana: |
+0307.9 | - Los demás, incluso la harina, polvo y "pellets", aptos para la alimentación humana: (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0307.91.00 | - - Vivos, frescos o refrigerados | 10
 0307.99.00 | + + SUPRIMIDA ++ |
 0307.99 | - - Los demás: |
 0307.99.10 | - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0307.99.90 | - - - Otros | 10
-03.08 | INVERTEBRADOS ACUATICOS, EXCEPTO LOS CRUSTACEOS Y MOLUSCOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; INVERTEBRADOS ACUATICOS, EXCEPTO LOS CRUSTACEOS Y MOLUSCOS, AHUMADOS, INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y “PELLETS” DE INVERTEBRADOS ACUATICOS, EXCEPTO LOS CRUSTACEOS Y MOLUSCOS, APTOS PARA LA ALIMENTACIÓN HUMANA |
+03.08 | INVERTEBRADOS ACUÁTICOS, EXCEPTO LOS CRUSTÁCEOS Y MOLUSCOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; INVERTEBRADOS ACUÁTICOS, EXCEPTO LOS CRUSTÁCEOS Y MOLUSCOS, AHUMADOS, INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y “PELLETS” DE INVERTEBRADOS ACUÁTICOS, EXCEPTO DE LOS CRUSTÁCEOS Y MOLUSCOS, APTOS PARA LA ALIMENTACIÓN HUMANA (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0308.1 | - Pepinos de mar (Stichopus japonicus, Holothurioidea): |
 0308.11.00 | - - Vivos, frescos o refrigerados | 10
 0308.19 | - - Los demás: |
@@ -952,14 +954,15 @@ NOTAS DE SUBPARTIDA.
 1. En la subpartida 0404.10, se entiende por lactosuero modificado el producto constituido por componentes del lactosuero, es decir, lactosuero del que se haya extraído, total o parcialmente, lactosa, proteínas o sales minerales, o al que se haya añadido componentes naturales del lactosuero, así como los productos obtenidos por mezcla de componentes naturales del lactosuero.
 2. En la subpartida 0405.10, el término mantequilla no comprende la mantequilla deshidratada ni la "ghee" (subpartida 0405.90).
 NOTA COMPLEMENTARIA CENTROAMERICANA.
-A. La autoridad nacional competente del país importador constatará fehacientemente, mediante documentos expedidos en el país exportador, que los huevos fértiles para la reproducción de los incisos arancelarios 0407.11.00 y 0407.19.00, cumplan con dicha condición.
+A. La autoridad nacional competente del país importador constatará fehaciente-mente, mediante documentos expedidos en el país exportador, que los huevos fecundados para la incubacion de los incisos arancelarios 0407.11.00 y 0407.19.00, cumplan con dicha condición.
+(Asi reformada la nota complementaria anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 CODIGO | DESCRIPCION | DAI %
 04.01 | LECHE Y NATA (CREMA), SIN CONCENTRAR, SIN ADICION DE AZUCAR NI OTRO EDULCORANTE |
 0401.10.00 | - Con un contenido de materias grasas inferior o igual al 1% en peso | II
 0401.20.00 | - Con un contenido de materias grasas superior al 1% pero inferior o igual al 6%, en peso | II
 0401.30.00 | + + SUPRIMIDA ++ |
 0401.40.00 | - Con un contenido de materias grasas superior al 6% pero inferior o igual al 10%, en peso | II
-0401.50.00 | - Con un contenido de materias grasas superior al 10%, en peso | II
+0401.50.00 | - Con un contenido de materias grasas superior al 10%, en peso (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | II
 04.02 | LECHE Y NATA (CREMA), CONCENTRADAS O CON ADICION DE AZUCAR U OTRO EDULCORANTE |
 0402.10.00 | - En polvo, gránulos o demás formas sólidas, con un contenido de materias grasas inferior o igual al 1.5% en peso | II
 0402.2 | - En polvo, gránulos o demás formas sólidas, con un contenido de materias grasas superior al 1.5% en peso: |
@@ -1008,7 +1011,7 @@ CODIGO | DESCRIPCION | DAI %
 0407.00.20 | + + SUPRIMIDA ++ |
 0407.00.90 | + + SUPRIMIDA ++ |
 04.07 | HUEVOS DE AVE CON CASCARA (CASCARON), FRESCOS, CONSERVADOS O COCIDOS |
-0407.1 | - Huevos fertilizados para incubación: |
+0407.1 | - Huevos fecundados para incubación: (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0407.11.00 | - - De gallina de la especie Gallus domesticus | 0
 0407.19.00 | - - Los demás | 0
 0407.2 | - Los demás huevos frescos: |
@@ -1341,13 +1344,13 @@ CODIGO | DESCRIPCION | DAI %
 0802.70.00 | - Nueces de cola (Cola spp.) | 15
 0802.80.00 | - Nueces de areca | 15
 0802.90.00 | - Los demás | 15
-08.03 | BANANAS O PLATANOS, FRESCOS O SECOS |
+08.03 | BANANAS, INCLUIDOS LOS PLÁTANOS “PLANTAINS” FRESCOS O SECOS (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0803.00.1 | + + SUPRIMIDA ++ |
 0803.00.11 | + + SUPRIMIDA ++ |
 0803.00.12 | + + SUPRIMIDA ++ |
 0803.00.20 | + + SUPRIMIDA ++ |
 0803.00.90 | + + SUPRIMIDA ++ |
-0803.10.00 | - Plátanos | 15
+0803.10.00 | - Platanos “plantains” (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 15
 0803.90 | - Los demás: |
 0803.90.1 | - - Bananas (Musa balbisiaca acuminata, Musa paradisiaca o Musa fapientum): |
 0803.90.11 | - - - Frescas | 15
@@ -1363,7 +1366,7 @@ CODIGO | DESCRIPCION | DAI %
 0804.50.20 | - - Guayabas y mangostanes | 15
 08.05 | AGRIOS (CITRICOS) FRESCOS O SECOS |
 0805.10.00 | - Naranjas | 15
-0805.20.00 | - Mandarinas (incluidas las tangerinas y satsumas); clementinas, wilkings e híbridos similares de agrios (cítricos) | 15
+0805.20.00 | - Mandarinas (incluidas las tangerinas y satsumas); clementinas, “wilkings” e híbridos similares de agrios (cítricos) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 15
 0805.40.00 | - Toronjas o pomelos | 15
 0805.50.00 | - Limones (Citrus limon, Citrus limonum) y limas (Citrus aurantifolia, Citrus latifolia) | 15
 0805.90.00 | - Los demás | 15
@@ -1479,9 +1482,9 @@ CODIGO | DESCRIPCION | DAI %
 0906.19.00 | - - Las demás | 10
 0906.20.00 | - Trituradas o pulverizadas | 10
 0907.00.00 | + + SUPRIMIDA ++ |
-09.07 | CLAVO (FRUTOS, CLAVILLOS Y PEDÚNCULOS) |
+09.07 | CLAVO (FRUTOS ENTEROS, CLAVILLOS Y PEDÚNCULOS) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 0907.10.00 | - Sin triturar ni pulverizar | 10
-0907.20.00 | - Triturado o pulverizado | 10
+0907.20.00 | - Triturados o pulverizados (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 10
 09.08 | NUEZ MOSCADA, MACIS, AMOMOS Y CARDAMOMOS |
 0908.10.00 | + + SUPRIMIDA ++ |
 0908.1 | - Nuez moscada: |
@@ -1490,7 +1493,7 @@ CODIGO | DESCRIPCION | DAI %
 0908.20.00 | + + SUPRIMIDA ++ |
 0908.2 | - Macis: |
 0908.21.00 | - - Sin triturar ni pulverizar | 10
-0908.22.00 | - - Triturado o pulverizado | 10
+0908.22.00 | - -Triturados o pulverizados (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 10
 0908.30 | + + SUPRIMIDA ++ |
 0908.30.10 | + + SUPRIMIDA ++ |
 0908.30.20 | + + SUPRIMIDA ++ |
@@ -1698,7 +1701,8 @@ CODIGO | DESCRIPCION | DAI %
 1108.20.00 | - Inulina | 10
 1109.00.00 | GLUTEN DE TRIGO, INCLUSO SECO | 0
 CAPITULO 12
-SEMILLAS Y FRUTOS OLEAGINOSOS; SEMILLAS Y FRUTOS DIVERSOS; PLANTAS INDUSTRIALES O MEDICINALES; PAJA Y FORRAJES
+SEMILLAS Y FRUTOS OLEAGINOSOS; SEMILLAS Y FRUTOS DIVERSOS; PLANTAS INDUSTRIALES O MEDICINALES; PAJA Y FORRAJE
+(Asi reformado el capítulo anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 NOTAS.
 1. La nuez y la almendra de palma, las semillas de algodón, ricino, sésamo (ajonjolí), mostaza, cártamo, amapola (adormidera) y "karité", entre otras, se consideran semillas oleaginosas de la partida 12.07. Por el contrario, se excluyen de dicha partida los productos de las partidas 08.01 ó 08.02, así como las aceitunas (Capítulos 7 ó 20).
 2. La partida 12.08 comprende no sólo la harina sin desgrasar, sino también la desgrasada parcialmente o la que ha sido desgrasada y después total o parcialmente reengrasada con su propio aceite. Por el contrario, se excluyen los residuos de las partidas 23.04 a 23.06.
@@ -1708,7 +1712,8 @@ a) las hortalizas de vaina y el maíz dulce (Capítulo 7);
 b) las especias y demás productos del Capítulo 9;
 c) los cereales (Capítulo 10);
 d) los productos de las partidas 12.01 a 12.07 o de la partida 12.11.
-4. La partida 12.11 comprende, entre otras, las plantas y partes de plantas de las especies siguientes: albahaca, borraja, "ginseng", hisopo, regaliz, diversas especies de menta, romero, ruda, salvia y ajenjo.
+4. La partida 12.11 comprende, entre otras, las plantas y partes de plantas de las especies siguientes: albahaca, borraja, ginseng, hisopo, regaliz, diversas especies de menta, romero, ruda, salvia y ajenjo.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 Por el contrario, se excluyen:
 a) los productos farmacéuticos del Capítulo 30;
 b) las preparaciones de perfumería, de tocador o de cosmética del Capítulo 33;
@@ -1737,7 +1742,7 @@ CODIGO | DESCRIPCION | DAI %
 1202.41.00 | - - Con cáscara | 10
 1202.42.00 | - - Sin cáscara, incluso quebrantados | 10
 1203.00.00 | COPRA | 5
-1204.00.00 | SEMILLA DE LINO, INCLUSO QUEBRANTADA | 0
+1204.00.00 | SEMILLAS DE LINO, INCLUSO QUEBRANTADAS (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 12.05 | SEMILLAS DE NABO (NABINA) O DE COLZA, INCLUSO QUEBRANTADAS |
 1205.10 | - Semillas de nabo (nabina) o de colza con bajo contenido de ácido erúcico: |
 1205.10.10 | - - Para la siembra | 0
@@ -1745,7 +1750,7 @@ CODIGO | DESCRIPCION | DAI %
 1205.90 | - Las demás: |
 1205.90.10 | - - Para la siembra | 0
 1205.90.90 | - - Otras | 0
-1206.00.00 | SEMILLA DE GIRASOL, INCLUSO QUEBRANTADA | 0
+1206.00.00 | SEMILLAS DE GIRASOL, INCLUSO QUEBRANTADAS (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 12.07 | LAS DEMAS SEMILLAS Y FRUTOS OLEAGINOSOS, INCLUSO QUEBRANTADOS |
 1207.20 | + + SUPRIMIDA ++ |
 1207.20.10 | + + SUPRIMIDA ++ |
@@ -1764,7 +1769,7 @@ CODIGO | DESCRIPCION | DAI %
 1207.60.00 | - Semillas de cártamo (Carthamus tinctorius) | 0
 1207.70.00 | - Semillas de melón | 0
 1207.9 | - Los demás: |
-1207.91.00 | - - Semilla de amapola (adormidera) | 0
+1207.91.00 | - - Semillas de amapola (adormidera) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 1207.99 | + + SUPRIMIDA ++ |
 1207.99.1 | + + SUPRIMIDA ++ |
 1207.99.11 | + + SUPRIMIDA ++ |
@@ -1798,7 +1803,7 @@ CODIGO | DESCRIPCION | DAI %
 1210.10.00 | - Conos de lúpulo sin triturar ni moler ni en "pellets" | 0
 1210.20.00 | - Conos de lúpulo triturados, molidos o en "pellets"; lupulino | 0
 12.11 | PLANTAS, PARTES DE PLANTAS, SEMILLAS Y FRUTOS DE LAS ESPECIES UTILIZADAS PRINCIPALMENTE EN PERFUMERIA, MEDICINA O PARA USOS INSECTICIDAS, PARASITICIDAS O SIMILARES, FRESCOS O SECOS, INCLUSO CORTADOS, QUEBRANTADOS O PULVERIZADOS |
-1211.20.00 | - Raíces de "ginseng" | 0
+1211.20.00 | - Raíces de ginseng (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 1211.30.00 | - Hojas de coca | 0
 1211.40.00 | - Paja de adormidera | 0
 1211.90 | - Los demás: |
@@ -2053,7 +2058,7 @@ CODIGO | DESCRIPCION | DAI %
 16.05 | CRUSTACEOS, MOLUSCOS Y DEMAS INVERTEBRADOS ACUATICOS, PREPARADOS O CONSERVADOS |
 1605.10.00 | - Cangrejos, excepto macruros | 15
 1605.20.00 | + + SUPRIMIDA ++ |
-1605.2 | - Camarones, langostinos y demás Decápodos natantia: |
+1605.2 | - Camarones, langostinos y demás decápodos Natantia: (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 1605.21.00 | - - Presentados en envases no herméticos | 15
 1605.29.00 | - - Los demás | 15
 1605.30.00 | - Bogavantes | 15
@@ -2063,9 +2068,9 @@ CODIGO | DESCRIPCION | DAI %
 1605.90.00 | + + SUPRIMIDA ++ |
 1605.5 | - Moluscos: |
 1605.51.00 | - - Ostras | 15
-1605.52.00 | - - Vieiras | 15
+1605.52.00 | - - Vieiras, voladeiras y demás moluscos de los géneros Pecten, Chlamys o placopecten (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 15
 1605.53.00 | - - Mejillones | 15
-1605.54.00 | - - Jibias (sepias) y calamares | 15
+1605.54.00 | - - Jibias, globitos, calamares y potas (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 15
 1605.55.00 | - - Pulpos | 15
 1605.56.00 | - - Almejas, berberechos y arcas | 15
 1605.57.00 | - - Abulones u orejas de mar | 15
@@ -2085,7 +2090,8 @@ b) los azúcares químicamente puros (excepto sacarosa, lactosa, maltosa, glucos
 c) los medicamentos y demás productos del Capítulo 30.
 NOTAS DE SUBPARTIDA.
 1. En las subpartidas 1701.12, 1701.13 y 1701.14 se entiende por azúcar en bruto, el que contenga en peso, calculado sobre producto seco, un porcentaje de sacarosa correspondiente a una lectura en el polarímetro inferior a 99.5º.
-2. La subpartida 1701.13 comprende solamente el azúcar de caña, obtenida sin centrifugación, con un contenido de sacarosa en peso, en estado seco, correspondiente a una lectura polarimétrica superior o igual a 69º pero inferior a 93º. El producto contiene solamente microcristales anhidros naturales, de forma irregular, invisibles a simple vista, rodeados por residuos de melaza y demás constituyentes del azúcar de caña.
+2. La subpartida 1701.13 comprende solamente el azúcar de caña, obtenida sin centrifugación, con un contenido de sacarosa en peso, en estado seco, correspondiente a una lectura polarimétrica superior o igual a 69º pero inferior a 93º. El producto contiene solamente microcristales anhédricos naturales, de forma irregular, invisibles a simple vista, rodeados por residuos de melaza y demás constituyentes del azúcar de caña.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 CODIGO | DESCRIPCION | DAI %
 17.01 | AZUCAR DE CAÑA O DE REMOLACHA Y SACAROSA QUIMICAMENTE PURA, EN ESTADO SOLIDO |
 1701.1 | - Azúcar en bruto sin adición de aromatizante ni colorante: |
@@ -2764,7 +2770,7 @@ B. Para la aplicación de las subpartidas de la partida 27.10, se entiende por:
 a) Aceites medios y preparaciones
 los aceites y las preparaciones que destilen, incluidas las pérdidas, una proporción inferior al 90% a 210 ºC y una proporción superior o igual al 65% a 250 ºC, según el método ASTM D 86.
 b) Aceites pesados y preparaciones
-los aceites y las preparaciones que destilen, incluidas las pérdidas, una proporción inferior al 65% a 250 ºC, según el método ASTM D 86, o aquéllos en los que el porcentaje de destilación a 250 ºC no puede ser determinado por este método.
+los aceites pesados y las preparaciones que destilen, incluidas las pérdidas, una proporción superior o igual al 85% a 350 ºC, según el método ASTM D 86, utilizados principalmente como combus-tible para motores Diesel o para calefaccin.ede ser determinado por este método.
 c) Eter de petróleo
 el aceite ligero y las preparaciones que destilen, incluidas las pérdidas, una proporción superior o igual al 95% a 120 ºC, según el método ASTM D 86.
 d) Gasolina (incluida la gasolina de aviación)
@@ -2776,13 +2782,16 @@ los aceites y las preparaciones (excepto el espíritu blanco) que no contienen a
 g) Kerosenos (incluido el keroseno para motores de reacción)
 los aceites medios y las preparaciones cuyo punto de inflamación es superior a 21 ºC según el método ASTM D 93, de los tipos utilizados principalmente como combustible en motores de turbina, motores de reacción o como combustible para calefacción o alumbrado.
 h) Otros aceites medios para uso industrial
-los aceites y las preparaciones que destilen, incluidas las pérdidas, una proporción superior o igual al 90% a 235 ºC, según el método ASTM D 86, y con gravedad API de 40 a 60 con punto de inflamación superior o igual a 70 ºC pero inferior a 96 ºC, según el método ASTM D 93.
+los aceites y las preparaciones que destilen, incluidas las pérdidas, una proporción superior o igual al 90% a 235 ºC, según el método ASTM D 86, y con gravedad API de 40 a 60 con punto de inflamación superior o igual a 70 ºC pero inferior a 96 ºC, según el método ASTM D 93
 ij) Diesel Oil (Gas oil)
-los aceites pesados y las preparaciones que destilen, incluidas las pérdidas, una proporción superior o igual al 85% a 350 ºC, según el método ASTM D 86, utilizados principalmente como combustible para motores Diesel o para calefacción.
+los acietes pesados y las preparaciones que destilen, íncluidas las pérdidas, una proporción superior o igual al 85% a 350°C, según el métod ASTM D 86, utilizados principalmente como combus-tible para motores Diesel o para calefacción.
+(Asi reformada la nota complementaria ij) anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 k) Fuel oil No. 6 (Bunker C)
-los aceites pesados y las preparaciones distintos al Diesel oil (Gas oil), de los tipos utilizados como combustible en el sector industrial, principalmente para generación de calor o trabajo (turbinas o generadores).
+los aceites pesados y las preparaciones distintos al Diesel oil (Gas oil), de los tipos utilizados como combustible en el sector industrial, principalmente para generacion de calor o trabajo (turbinas o generadores).
+(Asi reformada la nota complementaria k) anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 l) Otros aceites combustibles (Fuel oil)
 los aceites pesados y las preparaciones distintos al Diesel oil (Gas oil) y Fuel oil No. 6 (Bunker C)
+(Asi reformada la nota complementaria i) anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 m) Aceites básicos parafínicos o nafténicos, refinados
 los aceites minerales pesados puros, obtenidos de refinación del petróleo, que constituyan la base para la fabricación de aceites y grasas lubricantes.
 n) Norma ASTM D 86
@@ -2849,7 +2858,7 @@ CODIGO | DESCRIPCION | DAI %
 2710.19.13 | - - - - Otros aceites para uso industrial | 0
 2710.19.19 | - - - - Los demás | II¹
 2710.19.2 | - - - Aceites pesados y preparaciones: |
-2710.19.21 | - - - - Diesel oil (Gas oil) | 0
+2710.19.21 | - - - - Diesel oil (Gas oil) (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 2710.19.22 | - - - - Fuel oil No. 6 (Bunker C) | 0
 2710.19.23 | - - - - Los demás aceites combustibles (fuel oil) | 0
 2710.19.24 | - - - - Aceites básicos parafínicos o nafténicos, refinados | 0
@@ -2946,6 +2955,7 @@ En la presente Nota y en las partidas 28.44 y 28.45, se consideran isótopos:
 8. Los elementos químicos, tales como el silicio y el selenio, dopados para su utilización en electrónica, se clasifican en este Capítulo, siempre que se presenten en la forma bruta en que se han obtenido, en cilindros o en barras. Cortados en discos, obleas ("wafers") o formas análogas, se clasifican en la partida 38.18.
 NOTA DE SUBPARTIDA.
 1. En la subpartida 2852.10, se entiende por de constitución química definida todos los compuestos orgánicos o inorgánicos de mercurio que cumplan las condiciones de los apartados a) a e) de la Nota 1 del Capítulo 28 o los apartados a) a h) de la Nota 1 del Capítulo 29.
+(Asi reformada la subpartida anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 CODIGO | DESCRIPCION | DAI %
 | I. ELEMENTOS QUIMICOS |
 28.01 | FLUOR, CLORO, BROMO Y YODO |
@@ -3228,7 +3238,7 @@ CODIGO | DESCRIPCION | DAI %
 2850.00.00 | HIDRUROS, NITRUROS, AZIDUROS (AZIDAS), SILICIUROS Y BORUROS, AUNQUE NO SEAN DE CONSTITUCION QUIMICA DEFINIDA, EXCEPTO LOS COMPUESTOS QUE CONSISTAN IGUALMENTE EN CARBUROS DE LA PARTIDA 28.49 | 0
 2852.00.00 | + + SUPRIMIDA ++ |
 28.52 | COMPUESTOS INORGANICOS U ORGANICOS, DE MERCURIO, AUNQUE NO SEAN DE CONSTITUCION QUIMICA DEFINIDA, EXCEPTO LAS AMALGAMAS |
-2852.10.00 | - De constitución química definida | 0
+2852.10.00 | constitucion quimica definida | 0
 2852.90.00 | - Los demás | 0
 28.53 | LOS DEMAS COMPUESTOS INORGANICOS (INCLUIDA EL AGUA DESTILADA, DE CONDUCTIBILIDAD O DEL MISMO GRADO DE PUREZA); AIRE LIQUIDO, AUNQUE SE LE HAYAN ELIMINADO LOS GASES NOBLES; AIRE COMPRIMIDO; AMALGAMAS, EXCEPTO LAS DE METAL PRECIOSO |
 2853.00.10 | - Cloruro de cianógeno (CAS 506-77-4) | 0
@@ -4070,7 +4080,9 @@ PRODUCTOS FARMACEUTICOS
 NOTAS.
 1. Este Capítulo no comprende:
 a) los alimentos dietéticos, alimentos enriquecidos, alimentos para diabéticos, complementos alimenticios, bebidas tónicas y el agua mineral (Sección IV), excepto las preparaciones nutritivas para administración por vía intravenosa;
-b) Las preparaciones, tales como comprimidos, gomas de mascar o parches (productos que se administran por vía transdérmica), diseñados para ayudar a los fumadores que intentan dejar de fumar (partidas 21.06 ó 38.24);
+b) Las preparaciones, tales como comprimidos, gomas de mascar o parches autoadhesivos (que se administran por va transdérmica), diseados para ayudar a los fumadores que intentan dejar de fumar (partidas 21 .06 ó 38.24);
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
+(Asi reformado por Resolucion 274-2011 COMIECO LXI, puesta en vigencia por decreto ejecutivo N 36991 de 9 de enero de 2012).
 c) el yeso fraguable especialmente calcinado o finamente molido para uso en odontología (partida 25.20);
 d) los destilados acuosos aromáticos y las disoluciones acuosas de aceites esenciales, medicinales (partida 33.01);
 e) las preparaciones de las partidas 33.03 a 33.07, incluso si tienen propiedades terapéuticas o profilácticas;
@@ -4228,7 +4240,8 @@ a) los productos siguientes:
 1) las sales de potasio naturales en bruto (carnalita, kainita, silvinita y otras);
 2) el cloruro de potasio, incluso puro, salvo lo dispuesto en la Nota 1 c) precedente;
 3) el sulfato de potasio, incluso puro;
-4) el sulfato de magnesio y de potasio, incluso puro;
+4) el sulfato de magnesio y potasio, incluso puro;
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 b) los abonos que consistan en mezclas entre sí de los productos del apartado a) precedente.
 5. Se clasifican en la partida 31.05, el hidrogenoortofosfato de diamonio (fosfato diamónico) y el dihidrogenoortofosfato de amonio (fosfato monoamónico), incluso puros, y las mezclas de estos productos entre sí.
 6. En la partida 31.05, la expresión los demás abonos sólo comprende los productos de los tipos utilizados como abonos que contengan como componentes esenciales, por lo menos, uno de los elementos fertilizantes: nitrógeno, fósforo o potasio.
@@ -4716,10 +4729,12 @@ c) los desechos de soluciones decapantes, fluidos hidráulicos, líquidos para f
 d) los demás desechos de la industria química o de las industrias conexas.
 Sin embargo, la expresión los demás desechos no comprende los desechos que contengan principalmente aceites de petróleo o de mineral bituminoso (partida 27.10).
 7. En la partida 38.26, el término biodiésel designa los ésteres monoalquílicos de ácidos grasos de los tipos utilizados como carburantes o combustibles, derivados de grasas y aceites animales o vegetales, incluso usados.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 NOTAS DE SUBPARTIDA
-1. La subpartida 3808.50 comprende únicamente los productos de la partida 38.08 que contengan una o más de las sustancias siguientes: aldrina (ISO); binapacril (ISO); canfecloro (ISO) (toxafeno); captafol (ISO); clordano (ISO); clordimeform (ISO); clorobencilato (ISO); compuestos de mercurio; compuestos de tributilestaño; DDT (ISO) (clofenotano (DCI), 1,1,1-tricloro-2,2-bis(p-clorofenil)etano); dibromuro de etileno (ISO) (1,2-dibromoetano); dicloruro de etileno (ISO) (1,2-dicloroetano); dieldrina (ISO, DCI); 4,6-dinitro-o-cresol (DNOC (ISO)) o sus sales; dinoseb (ISO), sus sales o sus ésteres; fluoroacetamida (ISO); fosfamidón (ISO); heptacloro (ISO); hexaclorobenceno (ISO); 1,2,3,4,5,6-hexaclorociclohexano (HCH (ISO)), incluido el lindano (ISO, DCI); metamidofos (ISO); monocrotofós (ISO); oxirano (óxido de etileno); paratión (ISO); paratión-metilo (ISO) (metil paratión); pentaclorofenol (ISO), sus sales o sus ésteres; 2,4,5-T (ISO) (ácido 2,4,5-triclorofenoxiacético), sus sales o sus ésteres.
+1. La subpartida 3808.50 comprende únicamente los productos de la partida 38.08 que contengan una o más de las sustancias siguientes: aldrina (ISO); binapacril (ISO); canfecloro (ISO) (toxafeno); captafol (ISO); clordano (ISO); clordimeform (ISO); clorobencilato (ISO); compuestos de mercurio; compuestos de tributilestaño; DDT (ISO) (clofenotano (DCI), l,l,l-tricloro-2,2-bis(p-clorofenil)etano); dibromuro de etileno (ISO) (1,2-dibromoetano); dicloruro de etileno (ISO) (1,2-dicloroetano); dieldrina (ISO, DCI); 4,6-dinitro-o-cresol (DNOC (ISO)) o sus sales; dinoseb (ISO), sus sales o sus ésteres; fluoroacetamida (ISO); fosfamidón (ISO); heptacloro (ISO); hexaclorobenceno (ISO); 1,2,3,4,5,6-hexaclorociclohexano (HCH (ISO)), incluido el lindano (ISO, DCI); metamidofos (ISO); monocrotofos (ISO); oxirano (óxido de etileno); paratión (ISO); paratión-metilo (ISO) (metil paratión); pentaclorofenol (ISO), sus sales o sus ésteres; 2,4,5-T (ISO) (ácido 2,4,5-triclorofenoxiacético), sus sales o sus ésteres.
 La subpartida 3808.50 comprende también las preparaciones en polvo que contengan una mezcla de benomilo (ISO), de carbofurano (ISO) y de thiram (ISO).
-2. En las subpartidas 3825.41 y 3825.49, se entenderá por desechos de disolventes orgánicos, los desechos que contengan principalmente disolventes orgánicos impropios para su utilización inicial, aunque no se destinen a la recuperación de éstos.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
+2 En las subpartidas 3825.41 y 3825.49, se entenderá por desechos de disolventes orgánicos, los desechos que contengan principalmente disolventes orgánicos impropios para su utilización inicial, aunque no se destinen a la recuperación de éstos.
 NOTAS COMPLEMENTARIAS CENTROAMERICANAS.
 A. El inciso arancelario 3823.11.00 comprende también el ácido esteárico comercial, constituido por las mezclas de ácidos grasos industriales, sólidos a la temperatura normal, con un contenido de ácido esteárico puro superior o igual al 30% pero inferior al 90% en peso, del producto anhidro.
 Las mezclas con un contenido de ácido esteárico puro superior o igual al 90% en peso, se clasifican en el inciso arancelario 2915.70.00.
@@ -4909,7 +4924,7 @@ CODIGO | DESCRIPCION | DAI %
 3825.61.00 | - - Que contengan principalmente componentes orgánicos | 10
 3825.69.00 | - - Los demás | 10
 3825.90.00 | - Los demás | 10
-3826.00.00 | BIODIESEL Y SUS MEZCLAS, SIN ACEITES DE PETROLEO NI DE MINERAL BITUMINOSO O CON UN CONTENIDO INFERIOR AL 70% EN PESO DE DICHOS ACEITES | 10
+3826.00.00 | BIODIESEL Y SUS MEZCLAS, SIN ACEITES DE PETRÓLEO O DE MINERAL BITUMINOSO O CON UN CONTENIDO INFERIOR AL 70% EN PESO DE DICHOS ACEITES (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 10
 SECCION VII
 PLASTICO Y SUS MANUFACTURAS; CAUCHO Y SUS MANUFACTURAS
 NOTAS.
@@ -5293,7 +5308,7 @@ CODIGO | DESCRIPCION | DAI %
 3923.90.20 | - - Sujetadores de envases (por ejemplo para "six-packs") | 0
 3923.90.30 | - - Contenedores de moldeo y empaque de supositorios | II1
 3923.90.90 | - - Otros | 10
-39.24 | VAJILLA Y DEMAS ARTICULOS DE USO DOMESTICO Y ARTICULOS DE HIGIENE O DE TOCADOR, DE PLASTICO |
+39.24 | VAJILLA, ARTÍCULOS DE COCINA, ARTÍCULOS DE USO DOMÉSTICO Y ARTÍCULOS DE HIGIENE O DE TOCADOR, DE PLÁSTICO VAJILLA, ARTÍCULOS DE COCINA, ARTÍCULOS DE USO DOMÉSTICO Y ARTÍCULOS DE HIGIENE O DE TOCADOR, DE PLÁSTICO (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 3924.10 | - Vajilla y demás artículos para el servicio de mesa o de cocina: |
 3924.10.10 | - - Asas y mangos | 5
 3924.10.90 | - - Otros | 15
@@ -6059,7 +6074,8 @@ m) los abrasivos aplicados sobre papel o cartón (partida 68.05) y la mica aplic
 n) las hojas y tiras delgadas de metal con soporte de papel o cartón (generalmente Secciones XIV o XV);
 o) los artículos de la partida 92.09;
 p) los artículos del Capítulo 95 (por ejemplo: juguetes, juegos, artefactos deportivos);
-q) los artículos del Capítulo 96 (por ejemplo: botones, compresas y tampones higiénicos, pañales, pañales para bebés).
+q) los articulos del Capitulo 96 (por ejemplo: botones, compresas y tampones higienicos, pañales para bebes).
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 3. Salvo lo dispuesto en la Nota 7, se clasifican en las partidas 48.01 a 48.05 el papel y cartón que, por calandrado u otro modo, se hayan alisado, satinado, abrillantado, glaseado, pulido o sometido a otras operaciones de acabado similares, o a un falso afiligranado o un aprestado en la superficie, así como el papel, cartón, guata de celulosa y napa de fibras de celulosa, coloreados o jaspeados en la masa por cualquier procedimiento. Salvo lo dispuesto en la partida 48.03, estas partidas no se aplican al papel, cartón, guata de celulosa y napa de fibras de celulosa que hayan sido tratados de otro modo.
 4. En este Capítulo, se considera papel prensa el papel sin estucar ni recubrir del tipo utilizado para la impresión de diarios, en el que el contenido de fibras de madera obtenidas por procedimiento mecánico o químico-mecánico sea superior o igual al 50% en peso del contenido total de fibra, sin encolar o muy ligeramente encolado, cuyo índice de rugosidad, medido en el aparato Parker Print Surf (1 MPa) sobre cada una de las caras, sea superior a 2.5 micras (micrometros, micrones) y de peso superior o igual a 40 g/m2 pero inferior o igual a 65 g/m2.
 5. En la partida 48.02, se entiende por papel y cartón de los tipos utilizados para escribir, imprimir u otros fines gráficos y papel y cartón para tarjetas o cintas para perforar (sin perforar), el papel y cartón fabricados principalmente con pasta blanqueada o con pasta obtenida por procedimiento mecánico o químico-mecánico que cumplan alguna de las condiciones siguientes:
@@ -6564,7 +6580,8 @@ q) los productos textiles recubiertos de abrasivos (partida 68.05), así como la
 r) las fibras de vidrio, los artículos de fibras de vidrio y los bordados químicos o sin fondo visible con hilo bordador de fibras de vidrio (Capítulo 70);
 s) los artículos del Capítulo 94 (por ejemplo: muebles, artículos de cama, aparatos de alumbrado);
 t) los artículos del Capítulo 95 (por ejemplo: juguetes, juegos, artefactos deportivos, redes para deportes);
-u) los artículos del Capítulo 96 (por ejemplo: cepillos y brochas, juegos o surtidos de viaje para costura, cierres de cremallera (cierres relámpago), cintas entintadas para máquinas de escribir, compresas y tampones higiénicos, pañales, pañales para bebés);
+u) los articulos del Capitulo 96 (por ejemplo: cepillos y brochas, juegos o surtidos de viaje para costura, cierres de cremallera (cierres relámpago), cintas entintadas para máquinas de escribir, compresas y tampones higienicos, pañales para bebés);
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 v) los artículos del Capítulo 97.
 2. A) Los productos textiles de los Capítulos 50 a 55 o de las partidas 58.09 ó 59.02 que contengan dos o más materias textiles se clasifican como si estuviesen totalmente constituidos por la materia textil que predomine en peso sobre cada una de las demás.
 Cuando ninguna materia textil predomine en peso, el producto se clasifica como si estuviese totalmente constituido por la materia textil que pertenezca a la última partida por orden de numeración entre las susceptibles de tomarse razonablemente en cuenta.
@@ -7340,7 +7357,8 @@ b) los productos textiles de la partida 58.11;
 c) los abrasivos naturales o artificiales, en polvo o gránulos, con soporte de fieltro o tela sin tejer (partida 68.05);
 d) la mica aglomerada o reconstituida con soporte de fieltro o tela sin tejer (partida 68.14);
 e) las hojas y tiras delgadas de metal con soporte de fieltro o tela sin tejer (generalmente Secciones XIV o XV);
-f) las compresas y los tampones higiénicos, pañales, pañales para bebés y artículos similares de la partida 96.19.
+f) las compresas y los tampones higiénicos, pañales para bebés y artículos similares de la partida 96.19.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 2. El término fieltro comprende también el fieltro punzonado y los productos constituidos por una capa de fibra textil cuya cohesión se ha reforzado mediante costura por cadeneta con las fibras de la propia capa.
 3. Las partidas 56.02 y 56.03 comprenden respectivamente el fieltro y la tela sin tejer, impregnados, recubiertos, revestidos o estratificados con plástico o caucho, cualquiera que sea la naturaleza de estas materias (compacta o celular).
 La partida 56.03 comprende, además, la tela sin tejer aglomerada con plástico o caucho.
@@ -9145,7 +9163,7 @@ CODIGO | DESCRIPCION | DAI %
 7210.69.90 | - - - Otros | 0
 7210.70 | - Pintados, barnizados o revestidos de plástico: |
 7210.70.10 | - - Pintados con pintura esmalte, de espesor superior o igual a 0.16 mm pero inferior o igual a 1.55 mm | 15
-7210.70.20 | - - Barnizados con resinas epoxifenólicas, lisos | I. 15
+7210.70.20 | - - Barnizados con resinas epoxifenólicas, lisos | 3. 15
 7210.70.90 | - - Otros | 0
 7210.90.00 | - Los demás | 0
 72.11 | PRODUCTOS LAMINADOS PLANOS DE HIERRO O ACERO SIN ALEAR, DE ANCHURA INFERIOR A 600 mm, SIN CHAPAR NI REVESTIR |
@@ -9289,50 +9307,50 @@ CODIGO | DESCRIPCION | DAI %
 7222.30.00 | - Las demás barras | 0
 7222.40.00 | - Perfiles | 0
 7223.00.00 | ALAMBRE DE ACERO INOXIDABLE | 0
-| IV. LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACERO ALEADO O SIN ALEAR |
-72.24 | LOS DEMAS ACEROS ALEADOS EN LINGOTES O DEMAS FORMAS PRIMARIAS; PRODUCTOS INTERMEDIOS DE LOS DEMAS ACEROS ALEADOS |
-7224.10.00 | - Lingotes o demás formas primarias | 0
-7224.90.00 | - Los demás | 0
-72.25 | PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA SUPERIOR O IGUAL A 600 mm |
-7225.1 | - De acero al silicio llamado "magnético" (acero magnético al silicio): |
-7225.11.00 | - - De grano orientado | 0
-7225.19.00 | - - Los demás | 0
-7225.30.00 | - Los demás, simplemente laminados en caliente, enrollados | 0
-7225.40.00 | - Los demás, simplemente laminados en caliente, sin enrollar | 0
-7225.50.00 | - Los demás, simplemente laminados en frío | 0
-7225.9 | - Los demás: |
-7225.91.00 | - - Cincados electrolíticamente | 0
-7225.92.00 | - - Cincados de otro modo | 0
-7225.99.00 | - - Los demás | 0
-72.26 | PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA INFERIOR A 600 mm |
-7226.1 | - De acero al silicio llamado "magnético" (acero magnético al silicio): |
-7226.11.00 | - - De grano orientado | 0
-7226.19.00 | - - Los demás | 0
-7226.20.00 | - De acero rápido | 0
-7226.9 | - Los demás: |
-7226.91.00 | - - Simplemente laminados en caliente | 0
-7226.92.00 | - - Simplemente laminados en frío | 0
-7226.99 | - - Los demás: |
-7226.99.10 | - - - Cincados, excepto electrolíticamente | 0
-7226.99.90 | - - - Otros | 0
-72.27 | ALAMBRON DE LOS DEMAS ACEROS ALEADOS |
-7227.10.00 | - De acero rápido | 0
-7227.20.00 | - De acero silicomanganeso | 0
-7227.90.00 | - Los demás | 0
-72.28 | BARRAS Y PERFILES, DE LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACEROS ALEADOS O SIN ALEAR |
-7228.10.00 | - Barras de acero rápido | 0
-7228.20.00 | - Barras de acero silicomanganeso | 0
-7228.30.00 | - Las demás barras, simplemente laminadas o extrudidas en caliente | 0
-7228.40.00 | - Las demás barras, simplemente forjadas | 0
-7228.50.00 | - Las demás barras, simplemente obtenidas o acabadas en frío | 0
-7228.60.00 | - Las demás barras | 0
-7228.70.00 | - Perfiles | 0
-7228.80.00 | - Barras huecas para perforación | 0
-72.29 | ALAMBRE DE LOS DEMAS ACEROS ALEADOS |
-7229.20.00 | - De acero silicomanganeso | 0
-7229.90 | - Los demás: |
-7229.90.10 | - - De acero rápido | 0
-7229.90.90 | - - Otros | 0
+| LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACERO ALEADO O SIN ALEAR IV. |
+V. 72.24 VI. VII. | VIII. LOS DEMAS ACEROS ALEADOS EN LINGOTES O DEMAS FORMAS PRIMARIAS; PRODUCTOS INTERMEDIOS DE LOS DEMAS ACEROS ALEADOS IX. | X.
+XI. 7224.10.00 | XII. - Lingotes o demás formas primarias XIII. | XIV. 0
+XV. 7224.90.00 | XVI. - Los demás XVII. | XVIII. 0
+XIX. 72.25 | XX. PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA SUPERIOR O IGUAL A 600 mm XXI. | XXII.
+XXIII. 7225.1 | XXIV. - De acero al silicio llamado "magnético" (acero magnético al silicio): XXV. | XXVI.
+XXVII. 7225.11.00 | XXVIII. - - De grano orientado XXIX. | XXX. 0
+XXXI. 7225.19.00 | XXXII. - - Los demás XXXIII. | XXXIV. 0
+XXXV. 7225.30.00 | XXXVI. - Los demás, simplemente laminados en caliente, enrollados XXXVII. | XXXVIII. 0
+XXXIX. 7225.40.00 | XL. - Los demás, simplemente laminados en caliente, sin enrollar XLI. | XLII. 0
+XLIII. 7225.50.00 | XLIV. - Los demás, simplemente laminados en frío XLV. | XLVI. 0
+XLVII. 7225.9 | XLVIII. - Los demás: XLIX. | L.
+LI. 7225.91.00 | LII. - - Cincados electrolíticamente LIII. | LIV. 0
+LV. 7225.92.00 | LVI. - - Cincados de otro modo LVII. | LVIII. 0
+LIX. 7225.99.00 | LX. - - Los demás LXI. | LXII. 0
+LXIII. 72.26 | LXIV. PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA INFERIOR A 600 mm LXV. | LXVI.
+LXVII. 7226.1 LXVIII. LXIX. | LXX. - De acero al silicio llamado "magnético" (acero magnético al silicio): LXXI. | LXXII.
+LXXIII. 7226.11.00 | LXXIV. - - De grano orientado LXXV. | LXXVI. 0
+LXXVII. 7226.19.00 | LXXVIII. - - Los demás LXXIX. | LXXX. 0
+LXXXI. 7226.20.00 | LXXXII. - De acero rápido LXXXIII. | LXXXIV. 0
+LXXXV. 7226.9 | LXXXVI. - Los demás: LXXXVII. | LXXXVIII.
+LXXXIX. 7226.91.00 | XC. - - Simplemente laminados en caliente | XCI. 0
+XCII. 7226.92.00 | XCIII. - - Simplemente laminados en frío XCIV. | XCV. 0
+XCVI. 7226.99 | XCVII. - - Los demás: XCVIII. | XCIX.
+C. 7226.99.10 | CI. - - - Cincados, excepto electrolíticamente CII. | CIII. 0
+CIV. 7226.99.90 | CV. - - - Otros CVI. | CVII. 0
+CVIII. 72.27 | CIX. ALAMBRON DE LOS DEMAS ACEROS ALEADOS CX. | CXI.
+CXII. 7227.10.00 | CXIII. - De acero rápido CXIV. | CXV. 0
+CXVI. 7227.20.00 | CXVII. - De acero silicomanganeso CXVIII. | CXIX. 0
+CXX. 7227.90.00 | CXXI. - Los demás CXXII. | CXXIII. 0
+CXXIV. 72.28 | CXXV. BARRAS Y PERFILES, DE LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACEROS ALEADOS O SIN ALEAR CXXVI. | CXXVII.
+CXXVIII. 7228.10.00 CXXIX. | CXXX. - Barras de acero rápido CXXXI. | CXXXII. 0
+CXXXIII. 7228.20.00 | CXXXIV. - Barras de acero silicomanganeso CXXXV. | CXXXVI. 0
+CXXXVII.7228.30.00 | CXXXVIII.- Las demás barras, simplemente laminadas o extrudidas en caliente CXXXIX. | CXL. 0
+CXLI. 7228.40.00 | CXLII. - Las demás barras, simplemente forjadas CXLIII. | CXLIV. 0
+CXLV. 7228.50.00 | CXLVI. - Las demás barras, simplemente obtenidas o acabadas en frío CXLVII. | CXLVIII.0
+CXLIX. 7228.60.00 | CL. - Las demás barras CLI. | CLII. 0
+CLIII. 7228.70.00 | CLIV. - Perfiles CLV. | CLVI. 0
+CLVII. 7228.80.00 | CLVIII. - Barras huecas para perforación CLIX. | CLX. 0
+CLXI. 72.29 | CLXII. ALAMBRE DE LOS DEMAS ACEROS ALEADOS | CLXIII.
+CLXIV. 7229.20.00 | CLXV. - De acero silicomanganeso CLXVI. | CLXVII. 0
+CLXVIII. 7229.90 | CLXIX. - Los demás: CLXX. | CLXXI.
+CLXXII. 7229.90.10 | CLXXIII. - - De acero rápido CLXXIV. | CLXXV. 0
+CLXXVI. 7229.90.90 | CLXXVII.- - Otros CLXXVIII. | CLXXIX. 0
 CAPITULO 73
 MANUFACTURAS DE FUNDICION, HIERRO O ACERO
 NOTAS.
@@ -10355,7 +10373,8 @@ D) La partida 84.71 no comprende los siguientes aparatos cuando se presenten por
 1°) las máquinas impresoras, copiadoras, de fax, incluso combinadas entre sí;
 2°) los aparatos para emisión, transmisión o recepción de voz, imagen u otros datos, incluidos los aparatos para la comunicación con una red inalámbrica o por cable (tales como redes locales (LAN) o extendidas (WAN));
 3°) los altavoces (altoparlantes) y micrófonos;
-4°) las cámaras de televisión, cámaras fotográficas digitales y las videocámaras;
+4°) las cámaras de televisión, cámaras digitales y las videocámaras;
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 5°) los monitores y proyectores, que no incorporen aparatos receptores de televisión.
 E) Las máquinas que incorporen una máquina automática para tratamiento o procesamiento de datos o que funcionen en unión con tal máquina, y desempeñen una función propia distinta del tratamiento o procesamiento de datos, se clasifican en la partida correspondiente a su función o, en su defecto, en una partida residual.
 6. Se clasifican en la partida 84.82 las bolas de acero calibradas, es decir, las bolas pulidas cuyo diámetro máximo o mínimo no difiera del diámetro nominal en una proporción superior al 1%, siempre que esta diferencia (tolerancia) sea inferior o igual a 0.05 mm.
@@ -11191,7 +11210,8 @@ a) las enceradoras (lustradoras) de pisos, trituradoras y mezcladoras de aliment
 b) los demás aparatos de peso inferior o igual a 20 kg, excepto los ventiladores y las campanas aspirantes para extracción o reciclado, con ventilador incorporado, incluso con filtro (partida 84.14), las secadoras centrífugas de ropa (partida 84.21), las máquinas para lavar vajilla (partida 84.22), las máquinas para lavar ropa (partida 84.50), las máquinas para planchar (partidas 84.20 u 84.51, según se trate de calandrias u otros tipos), las máquinas de coser (partida 84.52), las tijeras eléctricas (partida 84.67) y los aparatos electrotérmicos (partida 85.16).
 4. En la partida 85.23:
 a) se consideran dispositivos de almacenamiento permanente de datos a base de semiconductores (por ejemplo, “tarjetas de memoria flash” o “tarjetas de memoria electrónica flash”) los dispositivos de almacenamiento con un conector, que tienen, en la misma envoltura, una o más memorias flash (por ejemplo, “E2PROM FLASH”) en forma de circuitos integrados montados en una tarjeta de circuitos impresos. Pueden llevar un controlador en forma de circuito integrado y componentes pasivos discretos, tales como condensadores y resistencias;
-b) la expresión tarjetas inteligentes (“smart cards”) comprende las tarjetas que tienen incluidos uno o más circuitos electrónicos integrados (un microprocesador, una memoria de acceso aleatorio (RAM) o una memoria de solo lectura (ROM)), en forma de microplaquitas (chip). Estas tarjetas pueden llevar contactos, una banda magnética o una antena integrada, pero no tienen ningún otro elemento del circuito activo o pasivo.
+b) la expresión tarjetas inteligentes (“smart cards”) comprende las tarjetas que tienen incluidos uno o más circuitos electrónicos integrados (un microprocesador, una memoria de acceso aleatorio (RAM) o una memoria de solo lectura (ROM)), en forma de microplaquitas (chip). Estas tarjetas pueden llevar contactos, una banda magnética o una antena integrada, pero no tienen ningún otro elemento activo o pasivo, de circuito.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 5. En la partida 85.34, se consideran circuitos impresos los obtenidos disponiendo sobre un soporte aislante, por cualquier procedimiento de impresión (por ejemplo, incrustación, deposición electrolítica, grabado) o por la técnica de los circuitos de capa, elementos conductores, contactos u otros componentes impresos (por ejemplo: inductancias, resistencias, capacitancias), solos o combinados entre sí según un esquema preestablecido, excepto cualquier elemento que pueda producir, rectificar, modular o amplificar una señal eléctrica (por ejemplo: elementos semiconductores).
 La expresión circuitos impresos no comprende los circuitos combinados con elementos que no hayan sido obtenidos durante el proceso de impresión ni las resistencias, condensadores o inductancias discretos. Sin embargo, los circuitos impresos pueden estar provistos con elementos de conexión no impresos.
 Los circuitos de capa (gruesa o delgada), con elementos pasivos y activos obtenidos durante el mismo proceso tecnológico, se clasificarán en la partida 85.42.
@@ -11202,7 +11222,9 @@ a) Diodos, transistores y dispositivos semiconductores similares, los dispositiv
 b) Circuitos electrónicos integrados :
 1°) los circuitos integrados monolíticos en los que los elementos del circuito (diodos, transistores, resistencias, condensadores, bobinas de inductancia, etc.) se crean en la masa (esencialmente) y en la superficie de un material semiconductor (por ejemplo: silicio dopado, arseniuro de galio, silicio-germanio, fosfuro de indio), formando un todo inseparable;
 2°) los circuitos integrados híbridos que reúnan de modo prácticamente inseparable, mediante interconexiones o filamentos conectores, sobre un mismo sustrato aislante (vidrio, cerámica, etc.), elementos pasivos (resistencias, condensadores, bobinas de inductancia, etc.), obtenidos por la técnica de los circuitos de capa delgada o gruesa y elementos activos (diodos, transistores, circuitos integrados monolíticos, etc.), obtenidos por la técnica de los semiconductores. Estos circuitos también pueden llevar componentes discretos;
-3°) los circuitos integrados multichip, formados por dos o más circuitos integrados monolíticos, interconectados de modo prácticamente inseparable, dispuestos o no sobre uno o más sustratos aislantes, con o sin bastidor de conexión, pero sin ningún otro elemento activo o pasivo de circuito.
+3°) los circuitos integrados multichip, formados por dos o más circuitos integrados monolíticos, interconectados de modo prácticamente inseparable, dispuestos o no sobre uno o más sustratos aislantes, con o sin bastidor de conexión, pero sin ningún otro elemento activo o pasivo, de circuito.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
+.
 Para los artículos definidos en esta Nota, las partidas 85.41 y 85.42 tienen prioridad sobre cualquier otra de la Nomenclatura que pudiera comprenderlos, especialmente en razón de su función, excepto en el caso de la partida 85.23.
 9. En la partida 85.48, se consideran pilas, baterías de pilas y acumuladores, eléctricos, inservibles, los que no son utilizables como tales a consecuencia de rotura, corte, desgaste o cualquier otro motivo o por no ser susceptibles de recarga.
 NOTA DE SUBPARTIDA.
@@ -11210,7 +11232,8 @@ NOTA DE SUBPARTIDA.
 NOTA COMPLEMENTARIA CENTROAMERICANA.
 A. En las partidas 85.19, 85.21, 85.27 y 85.28, debe entenderse como completamente desarmados (CKD), aquellos aparatos que se presenten en juegos o "kits" y que cumplan las condiciones siguientes:
 a) que sus partes y piezas componentes vengan totalmente desarmadas y no en módulos, y
-b) que tales partes y piezas no estén unidas entre sí, ya sea atornilladas, soldadas o pegadas, con excepción de los motores o de aquellas piezas que por su propia naturaleza forman un solo cuerpo.
+b) En el inciso arancelario 8525.80.20 se clasifican las cámaras digitales que tienen entre otras funciones las de capturar imágenes y almacenarlas en un soporte para grabar.
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 CODIGO | DESCRIPCION | DAI %
 85.01 | MOTORES Y GENERADORES, ELECTRICOS, EXCEPTO LOS GRUPOS ELECTROGENOS |
 8501.10.00 | - Motores de potencia inferior o igual a 37.5 W | 0
@@ -11231,7 +11254,7 @@ CODIGO | DESCRIPCION | DAI %
 8501.63.00 | - - De potencia superior a 375 kVA pero inferior o igual a 750 kVA | 0
 8501.64.00 | - - De potencia superior a 750 kVA | 0
 85.02 | GRUPOS ELECTROGENOS Y CONVERTIDORES ROTATIVOS ELECTRICOS |
-8502.1 | - Grupos electrógenos con motor de émbolo (pistón) de encendido por compresión (motor Diesel o semi-Diesel): |
+8502.1 | - Grupos electrógenos con motor de émbolo (pistón) de encendido por compresión (motor Diesel o semi-Diesel): (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 8502.11.00 | - - De potencia inferior o igual a 75 kVA | 0
 8502.12.00 | - - De potencia superior a 75 kVA pero inferior o igual a 375 kVA | 0
 8502.13.00 | - - De potencia superior a 375 kVA | 0
@@ -11371,7 +11394,7 @@ CODIGO | DESCRIPCION | DAI %
 8516.80.40 | - - Blindadas para cocina, excepto las selladas de disco | 0
 8516.80.90 | - - Otras | 0
 8516.90.00 | - Partes | 0
-85.17 | TELEFONOS, INCLUIDOS LOS TELEFONOS MOVILES (CELULARES) Y LOS DE OTRAS REDES INALAMBRICAS; LOS DEMAS APARATOS PARA EMISION, TRANSMISION O RECEPCION DE VOZ, IMAGEN U OTROS DATOS, INCLUIDOS LOS DE COMUNICACION EN RED CON O SIN CABLE (TALES COMO REDES LOCALES (LAN) O EXTENDIDAS (WAN)), DISTINTOS DE LOS APARATOS PARA TRANSMISION O RECEPCION DE LAS PARTIDAS 84.43, 85.25, 85.27 u 85.28. |
+85.17 | TELÉFONOS, INCLUIDOS LOS TELÉ-FONOS MÓVILES (CELULARES) Y LOS DE OTRAS REDES INALÁMBRI-CAS; LOS DEMÁS APARATOS PARA EMISIÓN, TRANSMISIÓN O RECEPCIÓN DE VOZ, IMAGEN U OTROS DATOS, INCLUIDOS LOS DE COMUNICACIÓN EN RED CON O SIN CABLE (TALES COMO REDES LOCALES (LAN) O EXTENDIDAS (WAN)), DISTINTOS DE LOS APARATOS DE TRANSMISIÓN O RECEPCIÓN DE LAS PARTIDAS 84.43, 85.25, 85.27 u 85.28. (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 8517.1 | - Teléfonos, incluidos los teléfonos móviles (celulares) y los de otras redes inalámbricas: |
 8517.11.00 | - - Teléfonos de auricular inalámbrico combinado con micrófono | 0
 8517.12.00 | - - Teléfonos móviles (celulares) y los de otras redes inalámbricas | 0
@@ -11510,14 +11533,14 @@ CODIGO | DESCRIPCION | DAI %
 8523.80.9 | - - Otros: |
 8523.80.91 | - - - Sin grabar | 0
 8523.80.92 | - - - Grabados | 0
-85.25 | APARATOS EMISORES DE RADIODIFUSION O TELEVISION, INCLUSO CON APARATO RECEPTOR O DE GRABACION O REPRODUCCION DE SONIDO INCORPORADO; CAMARAS DE TELEVISION, CAMARAS FOTOGRAFICAS DIGITALES Y VIDEOCAMARAS. |
+85.25 | APARATOS EMISORES DE RADIODI-FUSIÓN O TELEVISIÓN, INCLUSO CON APARATO RECEPTOR O DE GRABACIÓN O REPRODUCCIÓN DE SONIDO INCORPORADO; CÁMARAS DE TELEVISIÓN, CÁMARAS DIGITALES Y VIDEOCAMARAS. (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 8525.50 | - Aparatos emisores: |
 8525.50.10 | - - De radiodifusión | 0
 8525.50.90 | - - Otros | 0
 8525.60.00 | - Aparatos emisores con aparato receptor incorporado | 0
-8525.80 | - Cámaras de televisión, cámaras fotográficas digitales y videocámaras: |
+8525.80 | - Cámaras de televisión, cámaras digitales y videocámaras: (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 8525.80.10 | - - Cámaras de televisión | 0
-8525.80.20 | - - Cámaras fotográficas digitales y videocámaras | 0
+8525.80.20 | - - Cámaras digitales y videocámaras (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 85.26 | APARATOS DE RADAR, RADIONAVEGACION O RADIOTELEMANDO |
 8526.10.00 | - Aparatos de radar | 0
 8526.9 | - Los demás: |
@@ -11858,7 +11881,7 @@ CODIGO | DESCRIPCION | DAI %
 8601.10.00 | - De fuente externa de electricidad | 0
 8601.20.00 | - De acumuladores eléctricos | 0
 86.02 | LAS DEMAS LOCOMOTORAS Y LOCOTRACTORES; TENDERES |
-8602.10.00 | - Locomotoras Diesel-eléctricas | 0
+8602.10.00 | - Locomotoras Diesel-eléctricas (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 8602.90.00 | - Los demás | 0
 86.03 | AUTOMOTORES PARA VIAS FERREAS Y TRANVIAS AUTOPROPULSADOS, EXCEPTO LOS DE LA PARTIDA 86.04 |
 8603.10.00 | - De fuente externa de electricidad | 0
@@ -11901,7 +11924,7 @@ CODIGO | DESCRIPCION | DAI %
 8701.30.00 | - Tractores de orugas | 0
 8701.90.00 | - Los demás | 0
 87.02 | VEHICULOS AUTOMOVILES PARA TRANSPORTE DE DIEZ O MAS PERSONAS, INCLUIDO EL CONDUCTOR |
-8702.10 | - Con motor de émbolo (pistón), de encendido por compresión (Diesel o semi-Diesel): |
+8702.10 | - Con motor de émbolo (pistón), de encendido por compresión (Diesel o semi-Diesel): (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 8702.10.50 | - - De capacidad de transporte igual a 10 personas, incluido el conductor | II *
 8702.10.60 | - - De capacidad de transporte superior a 10 personas pero inferior a 15 personas, incluido el conductor | II *
 8702.10.70 | - - De capacidad de transporte superior o igual a 15 personas pero inferior o igual a 45 personas, incluido el conductor | II *
@@ -11957,7 +11980,7 @@ CODIGO | DESCRIPCION | DAI %
 8703.24.70 | - - - Con tracción en las cuatro ruedas y caja de transferencia de dos rangos incorporada | II *
 8703.24.80 | - - - Con capacidad de transporte superior o igual a 6 personas pero inferior o igual a 9 personas, incluido el conductor, incluso con tracción en las 4 ruedas, 3 ó 4 puertas laterales, piso plano y compuerta o puertas traseras | II *
 8703.24.90 | - - - Otros | II *
-8703.3 | - Los demás vehículos con motor de émbolo (pistón), de encendido por compresión (Diesel o semi-Diesel): |
+8703.3 | - Los demás vehículos con motor de émbolo (pistón), de encendido por compresión (Diesel o semi-Diesel): (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 8703.31 | - - De cilindrada inferior o igual a 1,500 cm3: |
 8703.31.5 | - - - De cilindrada inferior o igual a 1,300 cm3: |
 8703.31.51 | - - - - Ambulancias | II *
@@ -11994,7 +12017,7 @@ CODIGO | DESCRIPCION | DAI %
 8703.90.00 | - Los demás | II *
 87.04 | VEHICULOS AUTOMOVILES PARA TRANSPORTE DE MERCANCIAS |
 8704.10.00 | - Volquetes automotores concebidos para utilizarlos fuera de la red de carreteras | II *
-8704.2 | - Los demás, con motor de émbolo (pistón), de encendido por compresión (Diesel o semi-Diesel): |
+8704.2 | - Los demás, con motor de émbolo (pistón), de encendido por compresión (Diesel o semi-Diesel): (Asi reformado por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
 8704.21 | - - De peso total con carga máxima inferior o igual a 5 t: |
 8704.21.5 | - - - Vehículo con compartimiento de carga descubierto, independiente de la cabina: |
 8704.21.51 | - - - - De peso total con carga máxima inferior o igual a 2.5 t | II *
@@ -12225,7 +12248,8 @@ d) los espejos de vidrio sin trabajar ópticamente de la partida 70.09 y los esp
 e) los artículos de vidrio de las partidas 70.07, 70.08, 70.11, 70.14, 70.15 ó 70.17;
 f) las partes y accesorios de uso general, tal como se definen en la Nota 2 de la Sección XV, de metal común (Sección XV) y los artículos similares de plástico (Capítulo 39);
 g) las bombas distribuidoras con dispositivo medidor de la partida 84.13; las básculas y balanzas para comprobar o contar piezas fabricadas, así como las pesas presentadas aisladamente (partida 84.23); los aparatos de elevación o manipulación (partidas 84.25 a 84.28); las cortadoras de papel o cartón, de cualquier tipo (partida 84.41); los dispositivos especiales para ajustar la pieza o el útil en las máquinas herramienta, incluso provistos de dispositivos ópticos de lectura (por ejemplo, divisores ópticos), de la partida 84.66 (excepto los dispositivos puramente ópticos, por ejemplo: anteojos de centrado, de alineación); las máquinas de calcular (partida 84.70); las válvulas, incluidas las reductoras de presión, y demás artículos de grifería (partida 84.81); las máquinas y aparatos de la partida 84.86, incluidos los aparatos para la proyección o el trazado de circuitos sobre superficies sensibilizadas de material semiconductor;
-h) los proyectores de alumbrado de los tipos utilizados en velocípedos o vehículos automóviles (partida 85.12); las lámparas eléctricas portátiles de la partida 85.13; los aparatos cinematográficos de grabación o reproducción de sonido, así como los aparatos para reproducción en serie de soportes de sonido (partida 85.19); los lectores de sonido (partida 85.22); las cámaras de televisión, las cámaras fotográficas digitales y las videocámaras (partida 85.25); los aparatos de radar, radionavegación o radiotelemando (partida 85.26); los conectores de fibras ópticas, haces o cables de fibras ópticas (partida 85.36); los aparatos de control numérico de la partida 85.37; los faros o unidades "sellados" de la partida 85.39; los cables de fibras ópticas de la partida 85.44;
+h) los proyectores de alumbrado de los tipos utilizados en velocípedos o vehículos automóviles (partida 85.12); las lámparas eléctricas portátiles de la partida 85.13; los aparatos cinematográficos de grabación o reproducción de sonido, así como los aparatos para reproducción en serie de soportes de sonido (partida 85.19); los lectores de sonido (partida 85.22); las cámaras de televisión, las cámaras digitales y las videocámaras (partida 85.25); los aparatos de radar, radionavegación o radiotelemando (partida 85.26); los conectares de fibras ópticas, haces o cables de fibras ópticas (partida 85.36); los aparatos de control numérico de la partida 85.37; los faros o unidades “sellados” de la partida 85.39; los cables de fibras ópticas de la partida 85.44;
+(Asi reformada la nota anterior por por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 ij) los proyectores de la partida 94.05;
 k) los artículos del Capítulo 95;
 l) las medidas de capacidad, que se clasifican según su materia constitutiva;
@@ -12374,8 +12398,8 @@ CODIGO | DESCRIPCION | DAI %
 9018.49.00 | - - Los demás | 0
 9018.50.00 | - Los demás instrumentos y aparatos de oftalmología | 0
 9018.90.00 | - Los demás instrumentos y aparatos | 0
-90.19 | APARATOS DE MECANOTERAPIA; APARATOS PARA MASAJES; APARATOS DE SICOTECNIA; APARATOS DE OZONOTERAPIA, OXIGENOTERAPIA O AEROSOLTERAPIA, APARATOS RESPIRATORIOS DE REANIMACION Y DEMAS APARATOS DE TERAPIA RESPIRATORIA |
-9019.10.00 | - Aparatos de mecanoterapia; aparatos para masajes; aparatos de sicotecnia | 0
+90.19 | APARATOS DE MECANOTERAPIA; APARATOS PARA MASAJES; APARATOS DE PSICOTECNIA; APARA-TOS DE OZONOTERAPIA, OXIGENO-TERAPIA O AEROSOLTERAPIA, APARATOS RESPIRATORIOS DE REANIMACIÓN Y DEMÁS APARA-TOS DE TERAPIA RESPIRATORIA (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) |
+9019.10.00 | - Aparatos de mecanoterapia; aparatos para masajes; aparatos de psicotecnia (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012) | 0
 9019.20.00 | - Aparatos de ozonoterapia, oxigenoterapia o aerosolterapia, aparatos respiratorios de reanimación y demás aparatos de terapia respiratoria | 0
 9020.00.00 | LOS DEMAS APARATOS RESPIRATORIOS Y MASCARAS ANTIGAS, EXCEPTO LAS MASCARAS DE PROTECCION SIN MECANISMO NI ELEMENTO FILTRANTE AMOVIBLE | 0
 90.21 | ARTICULOS Y APARATOS DE ORTOPEDIA, INCLUIDAS LAS FAJAS Y VENDAJES MEDICOQUIRURGICOS Y LAS MULETAS; TABLILLAS, FERULAS (CABESTRILLOS) U OTROS ARTICULOS Y APARATOS PARA FRACTURAS; ARTICULOS Y APARATOS DE PROTESIS; AUDIFONOS Y DEMAS APARATOS QUE LLEVE LA PROPIA PERSONA O SE LE IMPLANTEN PARA COMPENSAR UN DEFECTO O INCAPACIDAD |
@@ -12773,7 +12797,8 @@ h) los bastones, fustas, látigos y artículos similares (partida 66.02), así c
 ij) los ojos de vidrio sin montar para muñecas, muñecos u otros juguetes de la partida 70.18;
 k) las partes y accesorios de uso general, tal como se definen en la Nota 2 de la Sección XV, de metal común (Sección XV) y los artículos similares de plástico (Capítulo 39);
 l) las campanas, campanillas, gongos y artículos similares, de la partida 83.06;
-m) las bombas para líquidos (partida 84.13), aparatos para filtrar o depurar líquidos o gases (partida 84.21), motores eléctricos (partida 85.01), transformadores eléctricos (partida 85.04) discos, cintas, dispositivos de almacenamiento permanente de datos a base de semiconductores, tarjetas inteligentes (“smart cards”) y demás soportes para grabar sonido o grabaciones análogas, grabados o no (partida 85.23), aparatos de radiotelemando (partida 85.26) y dispositivos inalámbricos a rayos infrarrojos para mando a distancia (partida 85.43);
+m) las bombas para líquidos (partida 84.13), aparatos para filtrar o depurar líquidos o gases (partida 84.21), motores eléctricos (partida 85.01), transformadores eléctricos (partida 85.04) discos, cintas, dispositivos de almacenamiento permanente de datos a base de semiconductores, tarjetas inteligen-tes (“smart cards”) y demás soportes para grabar sonido o grabaciones análogas, grabados o no (partida 85.23), aparatos de radiotelemando (partida 85.26) y dispositi-vos inalámbricos de rayos infrarrojos para mando a distancia (partida 85.43);
+(Asi reformada la nota anterior por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N° 36991 de 9 de enero de 2012)
 n) los vehículos de deporte de la Sección XVII, excepto los toboganes, "bobsleighs" y similares;
 o) las bicicletas para niños (partida 87.12);
 p) las embarcaciones de deporte, tales como canoas y esquifes (Capítulo 89), y sus medios de propulsión (Capítulo 44, si son de madera);
@@ -12976,7 +13001,7 @@ CODIGO | DESCRIPCION | DAI %
 9616.20.00 | - Borlas y similares para aplicación de polvos, otros cosméticos o productos de tocador | 15
 9617.00.00 | TERMOS Y DEMAS RECIPIENTES ISOTERMICOS, MONTADOS Y AISLADOS POR VACIO, ASI COMO SUS PARTES (EXCEPTO LAS AMPOLLAS DE VIDRIO) | 10
 9618.00.00 | MANIQUIES Y ARTICULOS SIMILARES; AUTOMATAS Y ESCENAS ANIMADAS PARA ESCAPARATES | 15
-96.19 | COMPRESAS Y TAMPONES HIGIENICOS, PAÑALES, PAÑALES PARA BEBES Y ARTICULOS SIMILARES, DE CUALQUIER MATERIA |
+96.19 | COMPRESAS Y JAMPONES HIGIÉNICOS, PAÑALES PARA BEBES Y ARTÍCULOS SIMILARES, DE CUALQUIER MATERIA (Asi reformado por Resolucion 274-2011 (COMIECO LXI), puesta en vigencia por decreto ejecutivo N 36991 de 9 de enero de 2012) |
 9619.00.10 | - De plástico | 15
 9619.00.2 | - De pasta de papel, papel, guata de celulosa o napa de fibras de celulosa: |
 9619.00.21 | - - Pañales para adultos | 0
