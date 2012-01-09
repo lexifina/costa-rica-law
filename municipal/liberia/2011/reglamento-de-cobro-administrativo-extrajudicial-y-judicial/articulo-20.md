@@ -1,0 +1,1 @@
+Artículo 20.—Formas de extinción de la obligación tributaria municipal: La obligación tributaria municipal se extingue por cualquiera de los siguientes medios: Pago efectivo, Compensación, Condonación, Prescripción.

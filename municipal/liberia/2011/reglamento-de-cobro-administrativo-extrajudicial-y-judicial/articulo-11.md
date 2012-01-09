@@ -1,0 +1,3 @@
+Artículo 11.—Sanciones por incumplimiento en caso de incumplimiento por parte de los funcionarios en algunas de las acciones contempladas en éste Reglamento se procederá de la siguiente manera:
+• El Reglamento Autónomo de Trabajo de la Municipalidad se procederá según lo que el mismo estipule.
+• En caso de que no exista ninguno de éstos documentos oficiales en la Municipalidad, se realiza el debido proceso según lo establece la Ley General de Administración Pública y leyes conexas que se pronuncien sobre la materia, iniciando con la investigación por parte del jefe del departamento en el momento que descubra la anomalía.

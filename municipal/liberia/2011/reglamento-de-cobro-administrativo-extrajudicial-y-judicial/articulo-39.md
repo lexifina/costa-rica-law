@@ -1,0 +1,1 @@
+Artículo 39.—Responsable de Actualización de las Tarifas: ésta actividad corresponde a la Hacienda Municipal o a quien ésta designe, por cuanto disponen de la información para estimar el costo efectivo y por no causar conflicto de intereses con el personal de la Administración Tributaria en la actualización de los montos.

@@ -1,0 +1,1 @@
+Artículo 29.—Ubicación y responsable de custodia del expediente: los expedientes estarán ubicados en la oficina del Técnico en Gestión de Cobros y estará bajo su responsabilidad la custodia de los mismos.
