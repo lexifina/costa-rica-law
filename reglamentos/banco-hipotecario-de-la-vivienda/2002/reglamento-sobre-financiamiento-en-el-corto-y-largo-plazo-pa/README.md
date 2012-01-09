@@ -17,3 +17,4 @@ Reglamento sobre financiamiento en el corto y largo plazo para proyectos de vivi
 | 2 | 2003-02-20 | Reglamento 10 (2003-02-20) |
 | 3 | 2003-03-27 | Reglamento 15 (2003-03-27) |
 | 4 | 2003-11-03 | Reglamento 54 (2003-11-03) |
+| 5 | 2012-01-09 | Reglamento 1 (2012-01-09) |
