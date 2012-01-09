@@ -1,0 +1,3 @@
+Artículo 11.—Razón de la apertura: El frente del primer folio sea del libro o de los folios (hojas) a legalizar se debe dejar en blanco, para que el Auditor indique la razón de apertura del libro respectivo.
+No se podrá realizar la apertura de un libro si antes no se ha llevado a cabo el cierre del tomo anterior, o al menos esté en trámite de empaste.
+La razón de apertura que se forma con el sello para tal fin, este hará constar el número de asiento, número de tomo, el tipo de libro que se legaliza, la dependencia que lo utiliza, la cantidad de folios que lo integran, la modalidad del libro, la fecha de apertura y la firma responsable de la autorización.

@@ -1,0 +1,1 @@
+Artículo 29.—Plazo para resolver: Una vez verificado el cumplimiento de los requisitos para la reposición del libro, la Auditoría Interna contará con un plazo de diez días hábiles para tramitar la solicitud.

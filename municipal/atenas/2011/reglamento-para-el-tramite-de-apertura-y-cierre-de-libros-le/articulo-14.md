@@ -1,0 +1,1 @@
+Artículo 14.—Retiro del libro: Los libros autorizados por la Auditoría Interna, deberán ser retirados por la persona que se encuentre debidamente autorizada para ese fin, o en su defecto podrán ser entregados a un tercero debidamente autorizado por el titular.

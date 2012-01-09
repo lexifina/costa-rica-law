@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación: Este Reglamento resulta aplicable a todas las dependencias, actuales o que en el futuro se establezcan, que se encuentren, administrativa, jerárquica o legalmente adscritas a la Municipalidad de Atenas.

@@ -1,0 +1,1 @@
+Artículo 9º—Rechazo de la gestión de apertura: El incumplimiento de uno o más requisitos detallados en los artículos 6º, 7º y 8º del presente Reglamento, podrá dar lugar, previa valoración de cada caso por parte de la Auditoría Interna, al rechazo de plano de la gestión.

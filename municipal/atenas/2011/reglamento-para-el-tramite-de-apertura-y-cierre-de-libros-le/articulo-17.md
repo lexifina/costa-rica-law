@@ -1,0 +1,1 @@
+Artículo 17.—Cierre de libro en caso de “Hojas Sueltas”: En la razón de cierre de un libro cuando este se compone de “hojas sueltas”, antes la oficina solicitante debe proceder a realizar una adecuada encuadernación del libro, entendiéndose por esta la acción y efecto de unir las hojas mediante cosido o pegado y con sus respectivas cubiertas, debidamente rotuladas.
