@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. El presente Reglamento regirá para toda la Municipalidad, incluido el Concejo Municipal en pleno, funcionarios y funcionarias, empleados y empleadas, colaboradores municipales, tanto propietarios como interinos, comisiones incluyendo los contratistas y sus empleados y empleadas de éstos.

@@ -1,0 +1,3 @@
+Artículo 12.—Instrucción de la investigación. La instrucción del caso será realizada por el órgano instructor que se nombre, conforme a las disposiciones legales vigentes. Una vez que el Órgano ha recibido la denuncia, dará traslado a la persona denunciada, notificando, en forma personal y privada, mediante acta que deberá firmar como constancia de recibido.
+En este acto se le dará audiencia por el término de quince días hábiles sobre el contenido de la denuncia y sobre las pruebas ofrecidas por la supuesta víctima, a los efectos de que manifieste, por escrito, su descargo, ofrezca su prueba. Asimismo se le prevendrá para que señale lugar para atender notificaciones.
+En el presente procedimiento no procederá la conciliación.

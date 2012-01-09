@@ -1,0 +1,1 @@
+Artículo 17.—Disposiciones supletorias. En todo aquello no previsto en este Reglamento sobre acoso u hostigamiento sexual, rige la ley número siete mil cuatrocientos setenta y seis de tres de febrero de mil novecientos noventa y cinco, Ley contra el hostigamiento sexual en el empleo y la docencia y sus reformas así como la Ley General de la Administración Pública.
