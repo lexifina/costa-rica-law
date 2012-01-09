@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Se derogan las disposiciones transitorias del Decreto Ejecutivo Nº 30131-MINAE-S, del 01 de marzo de 2002, publicado en La Gaceta Nº 43 del día 01 de marzo de 2002, “Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos”.
