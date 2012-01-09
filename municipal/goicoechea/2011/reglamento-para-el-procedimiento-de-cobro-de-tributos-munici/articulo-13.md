@@ -1,0 +1,1 @@
+Artículo 13.—La unidad administrativa encargada del cobro deberá rendir informes trimestrales al Alcalde Municipal, sobre el estado de las cuentas morosas y sobre las acciones individuales de cada gestión a esa fecha, informe que deberá ser trasladado de igual forma al concejo Municipal para su conocimiento.

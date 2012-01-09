@@ -1,0 +1,1 @@
+Artículo 19.—Para efectos de determinar si los juicios se encuentran al día, la unidad administrativa encargada del control de cobro revisará periódicamente, el numero de expedientes y registros que considere necesarios de operaciones entregadas a cada abogado, tomando como base la documentación en poder de la unidad de cobro.

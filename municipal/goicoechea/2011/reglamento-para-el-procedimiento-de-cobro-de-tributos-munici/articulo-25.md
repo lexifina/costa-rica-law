@@ -1,0 +1,7 @@
+Artículo 25.—Para la formalización de los arreglos de pago, deberá seguirse el procedimiento que se detalla a continuación:
+El o la contribuyente deberá llenar el formulario de solicitud que para tal efecto se le entregará en la Plataforma de Servicios o en la Oficina de Cobro y Patentes.
+El funcionario/a de la plataforma de servicios o el oficial/auxiliar del departamento de cobro y patentes recibirá la solicitud por escrito y firmada por el contribuyente inscrito, para arreglo de pago.
+De conformidad con las directrices avaladas por la Administración y comunicadas al Jefe del departamento de cobro y patentes, cuando el plazo solicitado sea igual o inferior a seis meses, el funcionario/a de la plataforma de servicios o el oficial/auxiliar del departamento de cobro y patentes procederá a la formalización del arreglo de pago y a su inclusión en el sistema de cómputo.
+Cuando el plazo solicitado sea mayor a seis meses, el funcionario/a de la plataforma de servicios o el oficial/auxiliar del departamento de cobro y patentes, procederá a solicitar el visto bueno de la jefatura de cobro y patentes o en su ausencia de las asistentes.
+Una vez obtenido el visto bueno, el funcionario/a de la plataforma de servicios o el oficial/auxiliar del departamento de cobro y patentes procederá a la formalización del arreglo de pago y a su inclusión en el sistema de cómputo.
+La jefatura de la plataforma de servicios emitirá un informe diario de los arreglos de pago y lo remitirá a la asistente de cobro para el control de los pagos.
