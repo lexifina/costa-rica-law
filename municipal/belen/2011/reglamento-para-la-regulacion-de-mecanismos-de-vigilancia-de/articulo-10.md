@@ -1,0 +1,8 @@
+Artículo 10.—Requisitos: De conformidad con lo regulado en el artículo 6º de la Ley Nº 8892, la organización vecinal o comité para poder instalar casetas de seguridad y/o mecanismos de vigilancia, deberá cumplir adicionalmente con los siguientes requisitos:
+a) Llenar solicitud de Permiso de Construcción.
+b) Presentar un diseño básico de la caseta de vigilancia, firmado por el Profesional Responsable, con indicación de la ubicación exacta y una solución de servicio sanitario, de acuerdo con los principios de razonabilidad y proporcionalidad.
+c) Cumplir con el diseño de construcción y la utilización de los materiales apropiados para la caseta, según los parámetros que defina la Municipalidad de Belén.
+d) La organización de vecinos, que pretenda construir una caseta en propiedad privada, deberá presentar nota de autorización del propietario del inmueble autenticada por un abogado. La organización vecinal debe gestionar los permisos municipales que se necesiten y cancelar el impuesto de construcción respectivo.
+e) Indicación precisa del tipo de mecanismo de vigilancia de acceso que se pretende instalar.
+f) Ubicación propuesta de los mecanismos de vigilancia de acceso, en el que se detalle la relación clara respecto de la caseta de seguridad.
+g) El representante de las organizaciones o comités de vecinos presentarán cada tres meses una declaración jurada expedida, por parte del personero de empresa que presta los servicios de vigilancia, en la que se indique que están al día con las leyes y reglamentos respectivos.

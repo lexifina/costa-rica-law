@@ -1,0 +1,1 @@
+Artículo 2º—Autorización municipal. El Concejo Municipal de Belén, podrá autorizar la instalación de casetas de seguridad y mecanismos de vigilancia de acceso a barrios, caseríos y residenciales, de acuerdo con lo previsto en la Ley Nº 8892 y las regulaciones del presente reglamento, garantizando en todo momento el ejercicio de la libertad de tránsito de la ciudadanía.

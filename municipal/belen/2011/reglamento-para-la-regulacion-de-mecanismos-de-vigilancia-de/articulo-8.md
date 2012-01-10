@@ -1,0 +1,7 @@
+Artículo 8º—Condiciones de uso de los mecanismos de vigilancia. La organización vecinal a la que se le autorice la instalación de casetas de seguridad y mecanismos de vigilancia debe garantizar que el personal de la empresa de seguridad o persona física debidamente acreditada que preste el servicio de vigilancia, respete los siguientes lineamientos:
+a) No se impedirá el libre tránsito, vehicular o peatonal.
+b) Cualquier peatón podrá entrar o salir del barrio o residencial sin ningún tipo de restricción; ello sin perjuicio de la vigilancia normal de la que pueda ser objeto.
+c) En caso de vehículos, el mecanismo de acceso solo podrá ser utilizado para que el vigilante tome nota de la matrícula y la descripción del mismo, y fiscalice la cantidad de ocupantes y descripción general de ellos. Una vez que el vehículo se detenga, el oficial encargado deberá levantar el dispositivo para permitir el paso.
+d) Cuando el Encargado de la Unidad de Obras, con el visto bueno del Director del Área Técnica-Operativa de la Municipalidad lo consideren oportuno, pedirá a la organización comunal solicitante, que coloque a una distancia de 25 metros del respectivo mecanismo un rótulo que indique la proximidad de este.
+f) Los mecanismos de vigilancia de acceso, deberán pintarse de tal manera que sean plenamente visibles para los conductores de los vehículos y las personas.
+g) Como parte de los mecanismos de seguridad utilizados podrán instalarse cámaras de video que graven el acceso de vehículos y peatones.
