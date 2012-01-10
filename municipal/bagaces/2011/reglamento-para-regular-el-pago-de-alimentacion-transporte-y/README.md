@@ -14,3 +14,4 @@ Reglamento para regular el pago de alimentación, transporte y hospedaje dentro 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-09 | la propia norma |
+| 2 | 2012-01-10 | Reglamento municipal 3 (2012-01-10) |
