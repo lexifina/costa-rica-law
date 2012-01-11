@@ -14,3 +14,4 @@ Reglamento a la Ley N° 8444 del 17 de mayo de 2005, publicada en La Gaceta N° 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-18 | la propia norma |
+| 2 | 2012-01-11 | SINALEVI (sin norma nombrada) |
