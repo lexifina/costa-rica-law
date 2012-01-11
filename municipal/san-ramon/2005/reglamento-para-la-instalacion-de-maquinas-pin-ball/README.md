@@ -14,3 +14,4 @@ Reglamento para la Instalación de Máquinas Pin Ball
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-05 | la propia norma |
+| 2 | 2012-01-11 | SINALEVI (sin norma nombrada) |
