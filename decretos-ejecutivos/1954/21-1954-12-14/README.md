@@ -29,3 +29,4 @@ Reglamento del Estatuto de Servicio Civil
 | 15 | 2010-12-10 | Decreto Ejecutivo 36320 (2010-12-10) |
 | 16 | 2011-03-09 | SINALEVI (sin norma nombrada) |
 | 17 | 2011-10-24 | Decreto Ejecutivo 36851 (2011-10-24) |
+| 18 | 2012-01-11 | SINALEVI (sin norma nombrada) |
