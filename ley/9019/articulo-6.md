@@ -37,3 +37,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 15. Sensibilizar al personal judicial en aplicar los valores institucionales en sus labores.
 16. Evaluar el modelo del Sistema de Evaluación del Desempeño de las y los servidores judiciales, donde se integren los diferentes ámbitos institucionales que permita unir los esfuerzos bajo una dirección común.
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance Digital N° 106 a La Gaceta N° 244 del 20 de diciembre de 2011)
+(Modificado por el artículo 1° del decreto ejecutivo N° 36949 del 11 de enero del 2012)
