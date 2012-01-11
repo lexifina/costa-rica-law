@@ -1,0 +1,1 @@
+Artículo 8º—Asignación de Recursos. La CS contará con un Centro Presupuestario, en el cual la Administración dotará de recursos para hacer frente a las erogaciones por concepto de remuneraciones, materiales, suministros, equipos, para que la CS cumpla satisfactoriamente con su gestión.

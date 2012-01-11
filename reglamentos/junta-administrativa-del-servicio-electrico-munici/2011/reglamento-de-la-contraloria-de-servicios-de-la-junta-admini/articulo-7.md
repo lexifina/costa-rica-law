@@ -1,0 +1,2 @@
+Artículo 7º—Estructura. La CS estará a cargo de un Contralor de Servicios, quien desempeñará su puesto sin recargo de funciones y dependerá de la Junta Directiva. El Contralor de Servicios deberá cumplir con los requisitos establecidos por ley, así como con los demás atributos y competencias que precise JASEC en su Manual Descriptivo de Puestos.
+Para garantizar la continuidad y calidad en el servicio, la Junta Directiva determinará la estructura interna de la CS, acorde con las necesidades y posibilidades institucionales.

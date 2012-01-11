@@ -1,0 +1,1 @@
+Artículo 18.—Seguimiento de Recomendaciones: La CS, cuando estime conveniente, podrá solicitar al funcionario responsable, referirse sobre la implementación de recomendaciones y acciones de mejora aprobadas por la Gerencia General, o bien, al progreso alcanzado en relación con su implementación.

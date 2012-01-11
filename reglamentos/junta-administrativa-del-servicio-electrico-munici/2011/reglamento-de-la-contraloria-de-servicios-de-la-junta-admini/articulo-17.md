@@ -1,0 +1,1 @@
+Artículo 17.—Asesoría. La CS podrá requerir la asesoría de funcionarios internos o externos que estime necesarios para dar apoyo a sus actividades. En el caso de la asesoría legal, ésta le será brindada por la Asesoría Jurídica Institucional.

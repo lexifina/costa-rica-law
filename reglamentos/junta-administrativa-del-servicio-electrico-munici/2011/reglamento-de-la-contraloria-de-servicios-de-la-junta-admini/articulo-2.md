@@ -1,0 +1,1 @@
+Artículo 2º—Contraloría de Servicios de JASEC (CS). Instancia que permite a los clientes y usuarios expresar sus necesidades en cuanto a los servicios recibidos, para promover el mejoramiento continúo en la prestación de servicios que brinda la empresa.

@@ -1,0 +1,1 @@
+Artículo 5º—Registro. La CS deberá estar inscrita en el registro que para tales efectos llevará la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios (SISTEMA), unidad del Ministerio de Planificación Nacional y Política Económica (MIDEPLAN).

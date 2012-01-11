@@ -1,0 +1,1 @@
+Artículo 9º—Ubicación de la CS. Se asignará al personal de la CS un lugar físico apto para sus funciones, el cual deberá estar ubicado en un sitio cercano al área de Atención al Cliente de JASEC, con facilidad de acceso para el usuario y debidamente rotulado.

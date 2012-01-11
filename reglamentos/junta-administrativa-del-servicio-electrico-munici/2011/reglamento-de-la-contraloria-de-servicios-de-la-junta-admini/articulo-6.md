@@ -1,0 +1,5 @@
+Artículo 6º—Objetivos. El Objetivo General de la CS es coadyuvar para que la prestación de servicios se realice bajo las condiciones y plazos definidos en el Sistema de Gestión Empresarial (SGE) y el ordenamiento jurídico que la rige, a fin de satisfacer de forma oportuna los requerimientos de sus clientes, así como el de brindarles la información idónea para orientar y facilitar su contacto con JASEC a través de la atención de consultas. Para ello, tendrá los siguientes objetivos específicos:
+a. Promover la eficacia, eficiencia y oportunidad en la prestación de los servicios públicos.
+b. Implementar procedimientos accesibles y expeditos para la recepción y tramitación de las inconformidades.
+c. Propiciar canales de información entre JASEC y sus usuarios.
+d. Contribuir con las distintas Unidades de la Institución en la creación y modernización de procesos y políticas que garanticen la buena prestación de los servicios públicos, como parte de la filosofía empresarial que promueve el mejoramiento continuo en la prestación de los servicios brindados.

@@ -1,0 +1,1 @@
+Artículo 15.—Solicitud de Intervención. La CS podrá solicitar a la Gerencia General su intervención cuando un funcionario o unidad ignore las solicitudes de información gestionadas por la CS, siempre que la información requerida sea fundamental para estudios y para tramitar y resolver inconformidades y quejas interpuestas por los usuarios.

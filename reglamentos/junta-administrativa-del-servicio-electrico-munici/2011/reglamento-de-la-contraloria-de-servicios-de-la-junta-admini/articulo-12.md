@@ -1,0 +1,5 @@
+Artículo 12.—Informes. La CS deberá presentar periódicamente a entes externos la siguiente información:
+i. A la Secretaría Técnica del SISTEMA un plan anual de trabajo, avalado por la Gerencia General. Dicho plan deberá presentarse en la fecha previamente establecida por la Secretaría Técnica del SISTEMA.
+ii. Copia a MIDEPLAN del informe anual de gestión, de acuerdo con la última Guía Metodológica suministrada por la Secretaría Técnica del SISTEMA. El informe deberá ser entregado en la fecha que disponga la Secretaría Técnica.
+iii. A la ARESEP informes periódicos sobre las inconformidades presentadas por los usuarios a la CS, análisis crítico sobre las razones que originan las quejas de mayor incidencia y las medidas correctivas implementadas por JASEC. La fecha de presentación de estos informes será la que designe el ente regulador mediante resolución.
+iv. A la ARESEP y a la Defensoría de los Habitantes, la información que requieran referente a solicitudes de intervención gestionadas por los usuarios ante estas instancias.

@@ -1,0 +1,8 @@
+Artículo 21.—Trámite. Las inconformidades, quejas y denuncias serán tramitadas conforme a las siguientes disposiciones:
+i. Toda solicitud que tramite la CS generará un expediente sea físico o electrónico. Para la respectiva resolución se deberá indagar con las dependencias involucradas, así como la solicitud de información según corresponda.
+ii. Las gestiones interpuestas a la CS por los usuarios, deberán incluirse en el Expediente Cliente del SIPAC confeccionando un extracto de la gestión planteada así como de la resolución de la misma.
+iii. Si en el proceso de trámite de una inconformidad o queja se determina que la CS no tiene competencia para conocer lo planteado, podrá remitir el asunto a la instancia pertinente, y deberá orientar al usuario respecto al procedimiento que debe seguir. La CS se limitará a informar al interesado sobre las investigaciones y conclusiones que determine la unidad respectiva.
+iv. Las denuncias y casos atribuibles a Energía Consumida y no Facturada producto de usos indebidos se remitirán al proceso técnico especializado en la materia. Para este tipo de denuncias todo funcionario de JASEC deberá guardar la confidencialidad del ciudadano denunciante.
+v. Los reclamos por daños en electrodomésticos o a la propiedad de usuarios, se tramitarán según lo indicado en el Reglamento por Daños a las Personas o a la Propiedad de los Clientes del Servicio Eléctrico de JASEC oficialmente publicado en la Gaceta.
+vi. La CS suspenderá la gestión de un caso cuando el mismo hecho sea conocido por otra instancia administrativa o judicial competente para resolver.
+vii. En caso que una queja se refiera a la Gerencia General, será dirigida y tramitada directamente ante la Junta Directiva.
