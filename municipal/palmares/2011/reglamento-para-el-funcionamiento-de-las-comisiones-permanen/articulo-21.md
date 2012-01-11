@@ -1,0 +1,1 @@
+Artículo 21.—Las comisiones deberán resolver los asuntos encomendados por el Concejo Municipal o los que por iniciativa propia de la Comisión sean presentados previamente como su plan de trabajo y aprobados por el Concejo.

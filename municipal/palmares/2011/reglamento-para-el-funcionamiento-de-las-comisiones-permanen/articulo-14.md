@@ -1,0 +1,1 @@
+Artículo 14.—El Concejo podrá pasar los asuntos y dictámenes de comisión a conocimiento de otra comisión o a una designada especialmente por la Presidencia del Concejo, para que se pronuncie sobre un caso concreto.
