@@ -1,7 +1,0 @@
-Artículo 6º—Los vehículos de uso administrativo estarán sometidos a las siguientes regulaciones:
-a. Deben estar rotulados en forma visible en sus costados con el logotipo del INAMU y con la leyenda uso oficial, así mismo deberán portar placas oficiales que los identifiquen como propiedad del INAMU.
-b. El área administrativa deberá ejercer controles permanentes sobre estos vehículos en cuanto kilometraje recorrido por periodo, reparación y mantenimiento, cobertura de los seguros necesarios de conformidad con lo que establezcan las leyes y reglamentos aplicables, así como por su inscripción en el Registro Público como propiedad del INAMU.
-c. El consumo de combustible estará sujeto a las necesidades de transporte y se establecerá mediante un sistema de boletas de combustible. El consumo del mismo podrá ser racionado en circunstancias razonadas a criterio de la presidencia ejecutiva.
-d. Deben utilizarse únicamente dentro de la jornada ordinaria del INAMU. Para operar fuera de la jornada se requiere de autorización escrita, motivada y justificada del o la superior inmediata de la persona encargada de la gira y del área administrativa.
-e. Es absolutamente prohibido su uso para asuntos particulares y político-electorales.
-f. Al finalizar la jornada de trabajo o la gira, en el caso que corresponda, deberán quedar debidamente guardados en los lugares previamente establecidos al efecto por el INAMU.

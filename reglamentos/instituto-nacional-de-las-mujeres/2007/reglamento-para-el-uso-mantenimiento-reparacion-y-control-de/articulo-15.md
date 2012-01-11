@@ -1,3 +1,0 @@
-CAPÍTULO VI
-DEL PRÉSTAMO DE VEHÍCULOS
-Artículo 15º—A criterio de la Presidencia Ejecutiva y de acuerdo con la disponibilidad, los vehículos del INAMU, podrán ser concedidos en préstamo a otras instituciones públicas, siempre y cuando medie convenio institucional, de interés mutuo y que refleje los beneficios al quehacer del INAMU. De igual forma, cuando esté debidamente justificado a criterio de la Presidencia Ejecutiva para el logro de los objetivos institucionales, el INAMU podrá solicitar el préstamo de vehículos a otras instituciones públicas, siempre y cuando medie convenio institucional.

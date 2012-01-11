@@ -1,3 +1,0 @@
-CAPÍTULO IX
-DISPOSICIONES FINALES
-Artículo 20º—Con base en criterios técnicos, el área administrativa en conjunto con la Dirección Administrativa Financiera emitirán cuando sea pertinente un informe a la Presidencia Ejecutiva con base en las necesidades de transporte existentes a nivel institucional, los requerimientos de alquiler de servicios de transporte de personas o de carga, la adquisición de nuevos vehículos, necesidad de sacar de operación los vehículos que no se encuentren aptos para circular. Estos informes deberán ser analizados por la Presidencia Ejecutiva para su aprobación y toma de decisiones pertinentes.
