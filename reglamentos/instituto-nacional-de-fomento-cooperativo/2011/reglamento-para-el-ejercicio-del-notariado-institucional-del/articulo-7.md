@@ -1,0 +1,1 @@
+Artículo 7º—De la responsabilidad del notario institucional. El Notario Institucional, responderá de cualquier daño, pérdida y perjuicio que ocasione por acción u omisión, tanto al INFOCOOP como a sus clientes o terceros. Lo anterior incluye la presentación inoportuna de una escritura o sus errores y defectos no subsanables, atribuibles al Notario.

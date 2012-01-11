@@ -1,0 +1,1 @@
+Artículo 5º—De la aplicación del reglamento. La Dirección Ejecutiva, la Subdirección Ejecutiva, Financiamiento, Administrativo Financiero y las demás dependencias del INFOCOOP, según corresponda velarán por la aplicación de las disposiciones contenidas en este Reglamento.

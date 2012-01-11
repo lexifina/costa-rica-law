@@ -1,0 +1,1 @@
+Artículo 12.—Derogatoria de otras disposiciones. El presente Reglamento deroga el Reglamento para el Servicio de Notariado, según Acuerdo adoptado por la Junta Directiva de la Institución, en la sesión ordinaria 3.674, artículo segundo, inciso 3.12), celebrada el 10 de octubre del 2007. Así como cualquier otra norma reglamentaria del INFOCOOP que se le oponga.
