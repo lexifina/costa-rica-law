@@ -1,1 +1,0 @@
-Artículo 19.—El superior inmediato deberá informar al Departamento Gestión del Recurso Humano por escrito, de cualquier deficiencia que note en el desempeño de las funciones del servidor durante el período de prueba.

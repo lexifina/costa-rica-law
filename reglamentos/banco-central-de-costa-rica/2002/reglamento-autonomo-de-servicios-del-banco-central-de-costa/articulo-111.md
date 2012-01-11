@@ -1,1 +1,0 @@
-Artículo 111.—La Institución mantendrá el sistema de servicios de consulta de medicina general para sus servidores y pensionados, según acuerdo que deberá mantener vigente con la Caja Costarricense de Seguro Social, y velará para que funcione eficientemente.

@@ -1,1 +1,0 @@
-Artículo 84.—Cuando un servidor haya asistido a una actividad de entrenamiento con plazo superior a cinco días hábiles en que medien facilidades de cualquier naturaleza otorgadas por la Institución, adquiere el compromiso de trabajar para ésta por un período mínimo de tres meses.

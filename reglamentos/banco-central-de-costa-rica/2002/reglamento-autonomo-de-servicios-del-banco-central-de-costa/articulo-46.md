@@ -1,1 +1,0 @@
-Artículo 46.—Los puestos se valorarán por puntos asignados a cada una de las competencias del sistema de Clasificación y Valoración de Puestos mencionadas y que lo integran, lo cual se aplicará a todas las actividades ocupacionales. En el tramo ejecutivo los puestos se valorarán de acuerdo con criterios de jerarquización.

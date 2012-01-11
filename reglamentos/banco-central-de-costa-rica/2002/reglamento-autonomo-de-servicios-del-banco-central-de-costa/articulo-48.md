@@ -1,3 +1,0 @@
-Artículo 48.—El Manual de Actividades Ocupacionales contempla el conjunto de descripciones de las distintas actividades ocupacionales vigentes en la Institución, similares en cuanto al tipo de actividades, nivel de responsabilidad y requisitos, a las que se asigna la misma valoración, así como una definición de términos y la agrupación de puestos por categoría.
-La descripción de cada actividad ocupacional debe consignar al menos: un resumen de actividades; las actividades principales asignadas, su naturaleza y alcance; así como los requisitos mínimos estipulados en cuanto al nivel académico, experiencia y conocimientos.
-(Así reformado en sesión N° 5274 del 5 de abril del 2006)

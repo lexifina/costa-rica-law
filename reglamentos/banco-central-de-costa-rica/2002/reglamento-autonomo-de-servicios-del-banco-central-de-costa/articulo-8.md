@@ -1,1 +1,0 @@
-Artículo 8º—Cumplidos a satisfacción los requisitos para optar por una plaza vacante, el solicitante adquirirá el carácter de elegible y deberá ser tomado en cuenta cada vez que se integre una terna o lista con los candidatos idóneos para ocupar plazas vacantes en que califique.
