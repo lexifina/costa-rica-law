@@ -18,3 +18,4 @@ Requisitos para medicamentos bioequivalentes
 | 3 | 2011-07-20 | Acuerdo 0 (2011-07-20) |
 | 4 | 2011-08-03 | Acuerdo 0 (2011-08-03) |
 | 5 | 2011-10-26 | Acuerdo 0 (2011-10-26) |
+| 6 | 2012-01-11 | Acuerdo 0 (2012-01-11) |
