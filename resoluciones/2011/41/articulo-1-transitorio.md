@@ -1,0 +1,1 @@
+Transitorio 1º—El Formulario D-406 “Solicitud de legalización o transformación de libros”, del sitio creación de empresa de Gobierno Digital, estará disponible en el momento en que dicho sitio sea habilitado al público.
