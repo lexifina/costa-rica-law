@@ -1,1 +1,0 @@
-Artículo 31.—Los estupefacientes y psicotrópicos sólo podrán ser prescritos y despachados mediante recetas oficiales, suministradas por el Colegio de Farmacéuticos de Costa Rica, previa cancelación del costo respectivo. La Junta tomará las medidas que estime necesarias para el mejor control del uso de tales recetas.

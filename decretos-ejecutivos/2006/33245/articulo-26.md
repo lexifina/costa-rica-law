@@ -1,1 +1,0 @@
-Artículo 26.—El control y la manipulación de estupefacientes y psicotrópicos y el despacho de las recetas en que se prescriben, corresponderá personal y exclusivamente a los regentes farmacéuticos que hayan cumplido con las leyes, reglamentos, normas y procedimientos establecidos para tal fin.

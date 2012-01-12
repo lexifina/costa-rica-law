@@ -1,1 +1,0 @@
-Artículo 55.—Los regentes farmacéuticos autorizados que laboren en aquellas droguerías autorizadas para la importación, depósito y distribución de estupefacientes y psicotrópicos, llevarán un registro del movimiento de entradas y salidas de los mismos, y enviarán los informes mensuales a la Dirección.

@@ -1,1 +1,0 @@
-Artículo 34.—Al despacharse la receta oficial se deberá poner sello de la farmacia, firma y código del farmacéutico responsable y la fecha de despacho. Así también deberá quedar constancia del nombre, firma y cédula pasaporte de la persona que retira el medicamento. El farmacéutico deberá solicitar al interesado su documento de identificación previo al despacho de la receta.

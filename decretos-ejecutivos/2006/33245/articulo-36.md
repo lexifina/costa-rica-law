@@ -1,1 +1,0 @@
-Artículo 36.—Desde su emisión hasta su despacho, las recetas de estupefacientes y psicotrópicos tendrán una vigencia de una semana para su presentación en la farmacia. Para la presentación de informes, ambas recetas tendrán una vigencia de tres meses.

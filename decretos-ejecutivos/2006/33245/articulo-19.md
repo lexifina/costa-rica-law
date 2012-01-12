@@ -1,1 +1,0 @@
-Artículo 19.—Podrán comprar, vender, distribuir, despachar y fabricar estupefacientes y psicotrópicos, los establecimientos farmacéuticos que hayan cumplido con las leyes, los reglamentos, las normas y los procedimientos establecidos para tal fin.

@@ -1,1 +1,0 @@
-Artículo 50.—Los funcionarios del Ministerio, debidamente identificados y autorizados para este fin, realizarán inspecciones a establecimientos farmacéuticos, industriales, comerciales, de depósito, prestadores de servicios de salud y otros a fin de llevar a cabo el efectivo control de los estupefacientes y psicotrópicos.

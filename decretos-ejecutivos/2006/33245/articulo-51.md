@@ -1,1 +1,0 @@
-Artículo 51.—Durante las inspecciones, los funcionarios del Ministerio autorizados podrán tomar las muestras requeridas y verificar las condiciones de la producción, tráfico, tenencia, almacenamiento y suministro de medicamentos estupefacientes y psicotrópicos, siguiendo las instrucciones que indique la Junta.

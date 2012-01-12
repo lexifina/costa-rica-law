@@ -1,1 +1,0 @@
-Artículo 42.—El Ministerio deberá garantizar el arsenal terapéutico de estupefacientes necesario para que oportunamente se atiendan las demandas justificadas de estos fármacos en el ámbito nacional. Para tal objeto la Dirección realizará el estudio de las necesidades del país y efectuará los trámites internacionales para facilitar la importación.

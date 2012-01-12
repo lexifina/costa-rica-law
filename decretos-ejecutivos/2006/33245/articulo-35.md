@@ -1,1 +1,0 @@
-Artículo 35.—Las recetas de estupefacientes deberán ser retenidas por la farmacia y presentar a la Dirección los originales acompañadas del informe mensualmente. Las recetas de psicotrópicos deberán ser retenidas por la farmacia y presentar a la Dirección el informe trimestral respectivo.
