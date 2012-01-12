@@ -1,1 +1,0 @@
-Artículo 14.—En caso de pérdida o extravío de la licencia, el propietario o representante legal del establecimiento farmacéutico deberá informar por escrito a la Junta de Vigilancia de Drogas Estupefacientes, en un plazo de cinco días hábiles, y solicitar una nueva licencia según las disposiciones de este reglamento.

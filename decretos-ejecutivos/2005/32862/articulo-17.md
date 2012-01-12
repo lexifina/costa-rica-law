@@ -1,1 +1,0 @@
-Artículo 17.—En caso de pérdida o extravío de la licencia, el profesional deberá informar por escrito a la Junta de Vigilancia de Drogas Estupefacientes, en un plazo de cinco días hábiles, y solicitar una nueva licencia según las disposiciones de este reglamento.

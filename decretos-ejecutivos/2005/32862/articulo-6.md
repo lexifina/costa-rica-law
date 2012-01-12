@@ -1,1 +1,0 @@
-Artículo 6º—El costo de la confección del documento que acredita la licencia de manejo de estupefacientes y psicotrópicos, será fijado vía decreto ejecutivo, cuando la administración previo estudio así lo determine, debiendo incluir los mecanismos de ajuste correspondientes, acorde con la Ley Nº 8220.

@@ -1,1 +1,0 @@
-Artículo 20.—Todas las personas profesionales en Medicina, Odontología y Veterinaria, se encuentran obligadas a mostrar la documentación que la autoridad de salud requiera para llevar a cabo el efectivo control de la prescripción de los psicotrópicos y de los estupefacientes.
