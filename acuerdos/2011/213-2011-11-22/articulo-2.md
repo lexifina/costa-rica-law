@@ -1,0 +1,1 @@
+Artículo 2°—Las dependencias e instituciones del sector público y privado, dentro del marco legal respectivo, podrán contribuir con la organización del Congreso en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de las actividades indicadas.
