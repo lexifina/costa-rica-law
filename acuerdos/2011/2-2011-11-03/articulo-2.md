@@ -1,0 +1,1 @@
+2º—Rige a partir de la vigencia de la reforma a los artículos 3, 4, 16, 19 y 20 del Reglamento para la Aplicación del Programa de Vivienda de Bono Diferido previsto en el artículo 54 de la Ley del Sistema Financiero Nacional para la Vivienda, aprobada con el acuerdo número 1 de la sesión 78-2011 del 03 de noviembre de 2011.Publíquese. Acuerdo unánime.
