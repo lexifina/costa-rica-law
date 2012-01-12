@@ -1,0 +1,2 @@
+Artículo 5º—Se modifica el artículo 20 para que en adelante se lea así:
+“Artículo 20.—Parámetros y requisitos: Cuando una entidad autorizada tuviere bajo su administración recursos del bono familiar de vivienda que le hubieren sido girados de manera directa, los no sujetos a disponibilidad inmediata deberá invertirlos de acuerdo con los parámetros y requisitos que haya señalado el BANHVI por medio de acuerdo de su Junta Directiva”.
