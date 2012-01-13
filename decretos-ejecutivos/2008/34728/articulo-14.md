@@ -1,4 +1,2 @@
-Artículo 14º.- Plazo de resolución:
-La autoridad de salud deberá resolver la solicitud de P.S.F dentro del plazo de siete días naturales contados a partir de la fecha en que se recibió la solicitud debidamente completada.
-En el caso de los establecimientos con categoría de riesgo C que cumplan satisfactoriamente con la presentación de los documentos indicados en el Artículo 9° del presente Reglamento, y considerando que no deben presentar otros requisitos y que sus actividades son de bajo riesgo sanitario y ambiental, por disposición del presente Decreto, se les otorga el PSF, con la presentación de tales documentos, sin necesidad de la entrega del certificado correspondiente.
-En cualquiera de los casos, una vez otorgado el P.S.F, la autoridad de salud programará la inspección pertinente a fin de verificar “in situ” el cumplimiento de los requisitos.
+Artículo 14.—La autoridad de salud deberá resolver la solicitud de permiso sanitario de funcionamiento dentro del plazo de siete días naturales contados a partir de la fecha en que se recibió la solicitud debidamente completa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36985 del 13 de enero del 2012)
