@@ -1,0 +1,1 @@
+Artículo 2º—La Auditoría Interna debe asegurarse de establecer su visión, misión, políticas y procedimientos que regirán su accionar y velar por su actualización periódica. La misión y visión serán incorporadas en el plan estratégico de la Auditoría Interna.

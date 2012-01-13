@@ -1,0 +1,1 @@
+Artículo 9º—La jornada laboral del auditor interno será de tiempo completo, tal como lo establece el artículo 30 de la Ley general de control interno. Cualquier modificación al tiempo de jornada, sólo podrá ser tramitada por la Junta Directiva de BCR Corredora de Seguros S.A. ante la Contraloría General de la República, la cual no puede ser inferior a medio tiempo.
