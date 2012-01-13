@@ -10,3 +10,5 @@ c) Las cooperativas conforme al artículo 102 de la presente ley.
 ch) Las fundaciones constituidas con fondos donados en el extranjero, que excedan la suma de diez millones de dólares ($10.000.000,00), moneda de los Estados Unidos de Norteamérica y que se dediquen a programas de vivienda, tendrán las atribuciones descritas en el artículo 75 de la presente ley, excepto lo establecido en los incisos a) y ch) y siempre que se sometan a todos los controles contables y financieros o de otro tipo aplicables a las mutuales.
 ( Así adicionado por el artículo 2 de la ley No. 7208 de 21 de noviembre 1990 ).
 d) Otros organismos públicos especializados en el financiamiento de viviendas.
+e) Las asociaciones solidaristas, conforme a las limitaciones que establezca el Banhvi.
+(Así adicionado el inciso anterior por el artículo único de la ley N° 8936 del 21 de junio de 2011)
