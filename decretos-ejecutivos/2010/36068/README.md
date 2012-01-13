@@ -14,3 +14,4 @@ Suspensión de presentación de requisito de estudios de equivalencia in vivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-30 | la propia norma |
+| 2 | 2012-01-13 | SINALEVI (sin norma nombrada) |

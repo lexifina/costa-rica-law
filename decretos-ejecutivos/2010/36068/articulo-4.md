@@ -1,2 +1,1 @@
-Artículo 4º—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los ocho días del mes de junio del dos mil diez.
+Artículo 4º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 352-12, del 13 de enero de 2012.)

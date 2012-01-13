@@ -1,4 +1,6 @@
+(Anulada)
 Nº 36068-S
+(Anulado este Decreto Ejecutivo mediante resolución de la Sala Constitucional N° 352-12, del 13 de enero de 2012, misma que dispuso que los efectos de dicha anulación, conllevan a que ni la declaratoria de su inconstitucionalidad, de conformidad con los términos establecidos en la sentencia N° 2010-001668, del 27 de enero de 2010, ni lo señalado en esta resolución, “impide que los estudios de bioequivalencia realizados en el extranjero y validados por un organismo internacional o nacional competente para llevar a cabo ese tipo de convalidaciones, se hagan valer a lo interno y sean aportados como parte indispensable del proceso de registro sanitario de medicamentos.” )
 LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; artículo 28, párrafo segundo inciso b) de la Ley Nº 6227 de 2 de mayo de 1978 “Ley General de Administración Pública”, 1, 2, 4, 113 de la Ley Nº 5395 del 30 de octubre de 1973, “Ley General de Salud”, 1º, 2º y 6º de la Ley Nº 5412, “Ley Orgánica del Ministerio de Salud”; del 08 de noviembre de 1973.
@@ -10,4 +12,4 @@ Considerando:
 DECRETAN:
 SUSPENSIÓN DE PRESENTACIÓN DE REQUISITO
 DE ESTUDIOS DE EQUIVALENCIA IN VIVO
-Artículo 1º—Se suspende la presentación de estudios de equivalencia terapéutica in vivo, establecida en el Decreto Nº 28466 “Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos” y el Decreto Nº 32470, “Reglamento para el registro sanitario de los medicamentos que requieren demostrar equivalencia terapéutica”, para productos que contienen principios activos de la Lista Priorizada que soliciten registro sanitario o renovación ante el Ministerio de Salud.
+Artículo 1º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 352-12, del 13 de enero de 2012.)

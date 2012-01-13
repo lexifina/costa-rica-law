@@ -1,1 +1,1 @@
-Artículo 3º—Después de publicada la ley donde se regule la investigación clínica en seres humanos, los interesados contarán con un plazo de un año para presentar los estudios solicitados por los decretos citados en el artículo 1º.
+Artículo 3º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 352-12, del 13 de enero de 2012.)
