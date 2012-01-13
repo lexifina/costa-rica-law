@@ -1,0 +1,1 @@
+3. El procedimiento de Tránsito Internacional Terrestre, utilizando el sistema informático para la gestión del tránsito internacional de mercancías (TIM), es de acatamiento obligatorio en todas las jurisdicciones aduaneras, para cada una de las etapas indicadas supra.
