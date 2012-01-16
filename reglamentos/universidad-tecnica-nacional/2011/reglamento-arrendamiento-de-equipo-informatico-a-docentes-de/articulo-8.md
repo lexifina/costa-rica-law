@@ -1,0 +1,1 @@
+Artículo 8º. Es entendido que, al término del plazo original, el docente podrá suscribir un nuevo contrato de arrendamiento con la Universidad, bajo las mismas condiciones del vencido, en cuyo caso deberá adquirir un nuevo equipo para ponerlo al servicio de la Universidad.

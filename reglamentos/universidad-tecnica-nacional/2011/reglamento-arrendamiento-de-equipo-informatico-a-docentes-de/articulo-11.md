@@ -1,0 +1,2 @@
+Artículo 11º. La Universidad destinará un mínimo de quince millones de colones por año para atender el costo financiero del programa, de tal modo que puedan beneficiarse por lo menos cien profesores anualmente.
+La Universidad gestionará, adicionalmente, un acuerdo con la Asociación Solidarista de la UTN, o con otras instituciones, para promover el otorgamiento de créditos especiales a los docentes de la institución, de tal modo que se puedan complementar los costos del equipo, en caso de ser necesario.

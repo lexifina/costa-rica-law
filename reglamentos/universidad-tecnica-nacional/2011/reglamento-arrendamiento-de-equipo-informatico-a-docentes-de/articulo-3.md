@@ -1,0 +1,1 @@
+Artículo 3º. Únicamente podrán participar en este programa, cualquiera que sea su carga académica o laboral, los docentes nombrados en propiedad, o los profesores que, aun estando nombrados a plazo fijo o interinos, tengan más de un año de relación laboral con la Universidad.

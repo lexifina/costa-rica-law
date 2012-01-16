@@ -1,0 +1,1 @@
+Artículo 10º. Si la Universidad lo considera conveniente o necesario, podrá solicitar al docente que suscriba una póliza de seguros que proteja el equipo que se adquiera de la eventualidad de pérdida, robo o desperfecto definitivo.

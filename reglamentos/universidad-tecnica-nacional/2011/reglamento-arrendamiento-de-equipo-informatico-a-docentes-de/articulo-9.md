@@ -1,0 +1,1 @@
+Artículo 9º. Si por cualquier razón el docente arrendante dejare de trabajar para la Universidad Técnica Nacional durante el plazo de vigencia del contrato de arrendamiento, deberá reintegrar a la Universidad la parte proporcional del monto del alquiler cuatrienal, correspondiente al período en que no prestaría servicios a la Universidad.
