@@ -1,0 +1,1 @@
+Transitorio II.—El SINAC dispondrá de tres meses a partir de la publicación del presente decreto, para publicar el Procedimiento del Servicio de Voluntario en el Sistema Nacional de Áreas de Conservación, señalado en el artículo 23 del presente reglamento y el Código de ética y principios básicos sobre el servicio voluntario en el Sistema Nacional de Áreas de Conservación.

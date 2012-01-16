@@ -1,0 +1,1 @@
+Transitorio I.—Las organizaciones e instituciones que se encuentren realizando actualmente acciones, actividades o proyectos relacionados con voluntariado en las áreas silvestres protegidas, contarán con un plazo de tres meses, a partir de la publicación de éste reglamento, para ajustarse a las disposiciones contenidas en el presente decreto ejecutivo.

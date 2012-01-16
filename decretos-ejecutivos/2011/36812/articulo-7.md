@@ -1,0 +1,1 @@
+Artículo 7º—Para el caso de las oficinas administrativas y las ASP del SINAC, los jefes de las diferentes oficinas administrativas o los administradores, según corresponda, deberán elaborar el plan de trabajo de voluntariado, de manera previa al ingreso de los voluntarios a sus labores.

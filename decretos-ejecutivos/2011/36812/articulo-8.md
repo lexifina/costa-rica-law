@@ -1,0 +1,1 @@
+Artículo 8º—Los funcionarios (as) del SINAC deberán velar por el cumplimiento de los derechos y facultades de los voluntarios (as) durante su permanencia en las áreas silvestres protegidas o en las oficinas del SINAC, según lo que establece el artículo 10º de este reglamento.

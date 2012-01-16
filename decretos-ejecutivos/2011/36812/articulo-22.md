@@ -1,0 +1,1 @@
+Artículo 22.—Para el caso de las áreas silvestres protegidas que tengan concesionado el servicio de alimentación, la administración de dichas ASP podrá gestionar por medio de los contratos suscritos con el concesionario, la venta de la alimentación a los voluntarios de dicha ASP, por un precio acordado por el SINAC y el concesionario.
