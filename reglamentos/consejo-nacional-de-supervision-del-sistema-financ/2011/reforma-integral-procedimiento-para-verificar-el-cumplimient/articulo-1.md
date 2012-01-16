@@ -1,0 +1,22 @@
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 11 del acta de la sesión 951-2011, celebrada el 6 de diciembre del 2011,
+considerando que:
+a. Con fundamento en el inciso c), del artículo 131, de la Ley Orgánica del Banco Central de Costa Rica, la Superintendencia General de Entidades Financieras presenta para valoración del Consejo Nacional de Supervisión el Sistema Financiero (CONASSIF) la modificación al Procedimiento para verificar el cumplimiento de los artículos 19, literal B y 21 de la Ley Orgánica del Banco Central de Costa Rica y artículos 170 y 172 de la Ley Reguladora del Mercado de Valores.
+b. Es necesario evaluar constantemente los métodos y procedimientos de trabajo, con el fin de ajustarlos para dinamizarlos.
+dispuso:
+modificar, conforme al texto que se copia más adelante, el
+Procedimiento para verificar el cumplimiento de los Artículos 19,
+literal B y 21 de la Ley Orgánica del Banco Central de
+Costa Rica y Artículos 170 y 172 de la Ley
+Reguladora del Mercado de Valores
+Como parte de las labores que realiza la Superintendencia General de Entidades Financieras, se verificará la información referente a las obligaciones atrasadas de los Miembros de la Junta Directiva del Banco Central de Costa Rica, del Consejo Nacional de Supervisión del Sistema Financiero y de los Superintendentes e Intendentes de los Entes Desconcentrados, según el siguiente procedimiento:
+1. Con datos al último día de los meses de marzo, junio, setiembre y diciembre, la Superintendencia General de Entidades Financieras determinará si existe algún Directivo de la Junta Directiva del Banco Central de Costa Rica o del Consejo Nacional de Supervisión del Sistema Financiero o algún Superintendente o Intendente de los Entes Desconcentrados, que presente obligaciones atrasadas en las entidades fiscalizadas.
+2. En caso de que se determine que existe algún Directivo con obligaciones atrasadas en las entidades fiscalizadas, el Superintendente General de Entidades Financieras remitirá un oficio al Directivo solicitando subsanar tal situación en un plazo de diez días.
+Vencido el plazo y no subsanada la situación por parte del Directivo, el Superintendente General de Entidades Financieras remitirá un oficio a la Junta Directiva del Banco Central de Costa Rica informando tal situación.
+3. Cuando se trate de atrasos en las obligaciones de los Superintendentes o Intendentes, el Superintendente General de Entidades Financieras remitirá un oficio al Superintendente o Intendente solicitando subsanar tal situación en un plazo de diez días.
+Vencido el plazo y no subsanada la situación por parte del Superintendente o Intendente, el Superintendente General de Entidades Financieras remitirá un oficio al Consejo Nacional de Supervisión del Sistema Financiero informando tal situación.
+Para efectos de este procedimiento es importante considerar las siguientes definiciones:
+Obligaciones
+Toda operación, cualquiera que sea la modalidad de instrumentación o documentación, excepto inversiones en valores, mediante la cual -asumiendo un riesgo de crédito- una entidad provee o se obliga a proveer fondos o facilidades crediticias, adquiere derechos de cobro o garantiza frente a terceros el cumplimiento de obligaciones, tal y como se establece en la definición de crédito contenida en el Acuerdo SUGEF 1-05, que considera lo siguiente: préstamos, descuento de documentos, garantías en general en caso de una eventual ejecución judicial, anticipos, sobregiros en cuentas corrientes hasta por la parte efectivamente utilizada, aceptaciones bancarias, intereses y otros cargos financieros devengados y no recibidos por los intermediarios en las diversas transacciones directas o contingentes y la apertura de cartas de crédito, exceptuando aquellas partes del importe de ellas en que medie la entrega previa y efectiva de las sumas correspondientes, en moneda nacional o extranjera, por parte del solicitante de la carta de crédito.
+Obligaciones que no están al día
+Obligaciones de un Director de la Junta Directiva del Banco Central de Costa Rica o de un Miembro del Consejo Nacional de Supervisión del Sistema Financiero, a favor de una entidad fiscalizada, con un atraso en el pago del principal, intereses, comisiones y/o cualquier otro cargo derivado de éstos, de más de 30 días naturales con respecto a la fecha en que la entidad financiera tiene derecho al cobro respectivo, según los términos contractuales de formalización.”
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
