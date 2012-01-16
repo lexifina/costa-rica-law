@@ -1,0 +1,1 @@
+Artículo 5º—Las dependencias e instituciones del sector público y privado, podrán contribuir con la puesta en marcha de la Agencia de Protección de Datos de los Habitantes (Prodhab), en la medida de sus posibilidades y dentro del marco legal respectivo.

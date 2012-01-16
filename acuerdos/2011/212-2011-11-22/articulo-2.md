@@ -1,0 +1,1 @@
+Artículo 2º—Para la puesta en marcha de la Agencia de Protección de Datos de los Habitantes (Prodhab), se conforma la Comisión de Integración de la Prodhab, la cual tendrá como objetivo coordinar, planificar y definir todos los aspectos necesarios para la debida implementación de la referida Agencia.
