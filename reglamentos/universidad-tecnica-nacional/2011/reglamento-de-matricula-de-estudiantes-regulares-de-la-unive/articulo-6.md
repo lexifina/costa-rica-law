@@ -1,0 +1,1 @@
+Articulo 6: La Universidad no tendrá ninguna responsabilidad sobre los errores en que incurra el estudiante durante la matricula o durante los trámites que realiza al efectuar la misma por lo que no esta obligada a su resolución.

@@ -1,0 +1,1 @@
+Articulo 5: En caso de presentarse situaciones no atribuibles al estudiante que afecten en forma negativa su proceso de matricula, la instancia responsable de la situación deberá realizar las gestiones respectivas para resolverla.

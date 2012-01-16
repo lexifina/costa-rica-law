@@ -1,0 +1,1 @@
+Articulo 30: EI retiro justificado se realizará ante las dependencias de Registro de cada Sede y del Centro de Formación Pedagógica y Tecnología Educativa durante los períodos establecidos en el calendario institucional para ese efecto.

@@ -1,0 +1,2 @@
+Articulo 15: Para asignar las citas de matricula a los estudiantes, se utilizará como criterio el Promedio Ponderado de Matricula de los cursos matriculados el ciclo trasanterior al de su matricula actual. Si el estudiante no matriculó en ese período se utilizará el promedio ponderado del ultimo ciclo lectivo cursado por el estudiante.
+Para los estudiantes de primer ingreso a carrera se utilizará el promedio de admisión como criterio para la asignación de la cita de matrícula. Este criterio estará vigente para los dos primeros ciclos consecutivos de matrícula.
