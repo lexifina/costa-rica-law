@@ -1,0 +1,1 @@
+Artículo 11. Los estudiantes matriculados en la Universidad podrán solicitar el reconocimiento y equiparación de cursos, que fueron aprobados en cualquier carrera de la institución, cuando el interesado quiera cambiar de carrera u optar por una segunda carrera, a la que debe haber sido admitido previamente.

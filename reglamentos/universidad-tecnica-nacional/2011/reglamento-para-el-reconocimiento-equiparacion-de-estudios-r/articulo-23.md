@@ -1,0 +1,3 @@
+Artículo 23. La Comisión de Reconocimientos y Equiparaciones de la Universidad será responsable de:
+a. Dar seguimiento al proceso de reconocimiento y equiparación, señalando a los encargados los plazos establecidos. En caso de inobservancia, tomar las medidas pertinentes.
+b. Emitir dictamen final sobre el reconocimiento y equiparación de bloques de cursos, diplomas y títulos, previo informe de la Comisión Técnica Asesora, según lo que establecen los Capítulos III y V del presente reglamento y comunicarlo al Departamento de Registro de la Sede o a Registro Universitario, según corresponda, en los formularios oficiales, dentro de los plazos establecidos junto con la copia del expediente del estudiante.

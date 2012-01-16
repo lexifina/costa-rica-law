@@ -1,0 +1,1 @@
+Artículo 5. El reconocimiento y equiparación de cursos para estudiantes de la Universidad Técnica Nacional, de otras universidades nacionales estatales, de universidades privadas reconocidas por el CONESUP y de universidades extranjeras, sólo se realizará cuando el interesado desee continuar una carrera en esta institución y haya cumplido con los requisitos de admisión vigentes.

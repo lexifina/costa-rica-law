@@ -1,0 +1,1 @@
+Artículo 4. El estudiante de reingreso que ha cursado estudios universitarios en otra institución en el periodo que estuvo inactivo en la UTN, podrá solicitar reconocimiento y equiparación de cursos en el período de su reingreso.

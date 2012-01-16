@@ -1,0 +1,1 @@
+Artículo 9. Para resolver la equiparación, el Departamento de Registro de la Sede enviará una copia del expediente de reconocimiento, debidamente firmada y foliada a la Comisión Técnica Asesora correspondiente a la carrera en la que fue aceptado el interesado, informándolo así a la Comisión de Reconocimientos y Equiparaciones de la Universidad.

@@ -1,0 +1,1 @@
+Artículo 29. Para reconocimiento, equiparación o convalidación de grados y títulos extranjeros, la Comisión Técnica Asesora emitirá su criterio a más tardar veinte días hábiles, después de haber recibido la documentación de Registro Universitario.

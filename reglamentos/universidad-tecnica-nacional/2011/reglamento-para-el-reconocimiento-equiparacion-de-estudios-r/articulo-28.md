@@ -1,0 +1,1 @@
+Artículo 28. Para reconocimiento, equiparación o convalidación de cursos y bloques de cursos, la Comisión Técnica Asesora de cada Unidad Académica tiene diez días hábiles, como máximo, después de haber recibido la documentación del Departamento de Registro, para emitir el dictamen al departamento de Registro de la Sede.

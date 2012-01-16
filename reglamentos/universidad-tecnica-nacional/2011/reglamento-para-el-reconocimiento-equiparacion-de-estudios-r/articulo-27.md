@@ -1,0 +1,1 @@
+Artículo 27. Cuando no se puedan equiparar o convalidar estudios cursados, se indicará claramente este hecho, y el expediente será devuelto al Departamento de Registro. Si sólo se equipara parte de los cursos solicitados, se indicará así para efectos de iniciar el trámite correspondiente.

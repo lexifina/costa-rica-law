@@ -1,0 +1,1 @@
+Artículo 31. La documentación escrita en otro idioma debe ser traducida al español, y será de total responsabilidad por parte del interesado. La traducción debe ser certificada por el Ministerio de Relaciones Exteriores y Culto.

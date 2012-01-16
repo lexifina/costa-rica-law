@@ -1,0 +1,1 @@
+Artículo 8. El Departamento de Registro de la Sede velará porque las calificaciones y otros documentos que acompañan la solicitud de equiparación cumplan con los requisitos que se especifican en este reglamento.

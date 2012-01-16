@@ -1,0 +1,1 @@
+Artículo 6. Toda solicitud de reconocimiento y equiparación de cursos, debe ser presentada por el interesado directamente al Departamento de Registro de la Sede en la que cursa sus estudios, con la documentación que se le indique de acuerdo con este reglamento.

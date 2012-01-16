@@ -1,0 +1,2 @@
+Artículo 17. Se podrán reconocer los diplomas emitidos por los colegios universitarios estatales, cuando el plan de estudios del parauniversitario sea sustancialmente equivalente con el plan de estudios del nivel de pregrado universitario de la Universidad Técnica Nacional, en al menos un 80%. Lo anterior se aplica únicamente para efectos de continuación de estudios en la UTN.
+Para definir aspectos específicos de esta equiparación, se deberán suscribir cartas de entendimiento con las instituciones involucradas.
