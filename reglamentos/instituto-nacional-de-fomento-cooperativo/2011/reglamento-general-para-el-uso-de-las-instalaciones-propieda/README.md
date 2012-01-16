@@ -14,3 +14,4 @@ Reglamento general para el uso de las instalaciones propiedad del Instituto Naci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-20 | la propia norma |
+| 2 | 2012-01-16 | Reglamento 3855 (2012-01-16) |
