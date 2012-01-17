@@ -1,0 +1,1 @@
+Artículo 159.- Derogatoria.-Deróguese el Reglamento General a la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, Decreto Ejecutivo Nº 31684, así como toda norma de inferior o igual jerarquía que se oponga al presente reglamento.

@@ -1,0 +1,4 @@
+Capítulo VIII
+Normas relativas a los empleados
+Artículo 46.- Supervisión de personal: Cada entidad o sujeto obligado debe mantener un expediente actualizado y completo de cada uno de sus funcionarios, directivos, administradores y representantes legales, el cual contendrá, como mínimo, la evidencia del procedimiento utilizado para la evaluación y comprobación de los antecedentes personales, laborales y patrimoniales en el momento de la vinculación, así como del seguimiento dado durante toda la relación laboral.
+Además, debe contener evidencia de la capacitación recibida por esas personas en materia de la Ley Nº 8204, reglamento y cualquier otra normativa aplicable, así como de las pruebas utilizadas para validar la asimilación de conocimientos. Dicho expediente puede ser físico o electrónico.

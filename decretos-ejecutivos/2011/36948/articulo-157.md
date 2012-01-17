@@ -1,0 +1,1 @@
+Artículo 157.- Sanciones. En caso de incumplimiento en lo dispuesto por los artículos del presente reglamento y cualquier otra norma que disponga el deber, la responsabilidad, o la obligación de cumplimiento de lo dispuesto por el presente reglamento; se procederá conforme lo establece el capítulo III del Título IV de la Ley N° 8204.

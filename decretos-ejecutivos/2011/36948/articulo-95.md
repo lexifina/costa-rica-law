@@ -1,0 +1,1 @@
+Artículo 95.- Recomendación de donaciones.-La UAB remitirá a la Dirección General, la recomendación de donación de los bienes comisados, para su aprobación. Esta recomendación incluirá la valoración de los bienes solicitados en donación.

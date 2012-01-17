@@ -1,0 +1,5 @@
+Capítulo V
+Comunicación de Transacciones Financieras Sospechosas
+Artículo 34.- Establecimiento de procedimientos. Las entidades y los sujetos obligados deben establecer políticas y procedimientos internos para la detección de transacciones inusuales, entendiéndose éstas como aquellas que no se ajustan al patrón de transacción habitual de cada cliente, con el fin de realizar los análisis necesarios que permitan determinar si dichas operaciones deben ser reportadas como sospechosas a la UIF.
+Se consideran operaciones sospechosas sujetas a reporte, aquellas transacciones efectuadas o realizadas en forma periódica o aislada, que de acuerdo con los usos y costumbres de la actividad de que se trate y previo a un análisis interno, no cuenten con la justificación material, económica o legal evidente, o de complejidad injustificada.
+Los procedimientos internos de detección establecidos en el presente artículo deben estar a disposición inmediata del órgano de supervisión y fiscalización correspondiente.

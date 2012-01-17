@@ -1,0 +1,1 @@
+Artículo 109.- Acceso a la información.- La UPI, a efectos de recolectar y analizar toda aquella información táctica y estratégica, podrá solicitar colaboración a las entidades públicas y privadas, a efectos de que le proporcionen de manera inmediata la cooperación e información que se les solicite.

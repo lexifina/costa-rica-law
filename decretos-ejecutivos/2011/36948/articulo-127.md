@@ -1,0 +1,3 @@
+Artículo 127.- Requisitos para la ampliación.- En caso de que la parte interesada se encuentre dentro de los supuestos establecidos en el artículo anterior, para la aprobación de la ampliación, deberá cumplir con los siguientes requisitos:
+a) Completar y firmar la solicitud de ampliación de licencia que elabore y publique la UCFP.
+b) Estar al día con todas las obligaciones inherentes al registro como importador, exportador o reexportador de precursores o químicos esenciales. De manera prioritaria, el solicitante debe encontrase al día con la presentación de los reportes mensuales de movimientos de precursores, de forma que pueda ser definida y justificada la necesidad de la ampliación.

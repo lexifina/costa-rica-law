@@ -1,0 +1,10 @@
+Artículo 8.- Del desempeño de operaciones sistemáticas o sustanciales. Las personas físicas o jurídicas que brinden de manera organizada y habitual servicios a terceros en donde desempeñen
+alguna de las siguientes actividades u operaciones, en forma sistemática o sustancial, deberán inscribirse ante la SUGEF, siempre y cuando no se encuentren supervisadas por alguna otra de las Superintendencias del país. De manera enunciativa más no limitada, dichas actividades u operaciones, son:
+a) Actividades u operaciones de canje de dinero, remesas y transferencias mediante efectivo e instrumentos, tales como cheques, giros bancarios, letras de cambio o documentos similares.
+b) Actividades u operaciones de emisión, venta, rescate o transferencia de cheques de viajero, giros postales o instrumentos similares.
+c) Administración de fideicomisos, para lo cual el CONASSIF establecerá el tipo de fideicomiso que requiere inscribirse ante la SUGEF.
+d) Administración de cualquier tipo de recursos efectuada por personas, físicas o jurídicas,
+que no sean intermediarios financieros.
+e) Cualquier otra que el CONASSIF determine mediante normativa. Se entenderá que las personas que realizan o realizarán alguna de las actividades antes señaladas, serán consideradas sujetos de inscripción cuando reciban o declaren que van a recibir recursos de un tercero como actividad de negocio, en el entendido que dichos recursos son o serán recibidos, custodiados, girados y/o traspasados de acuerdo con las instrucciones del dueño de los fondos, o bien, están o estarán sujetos a cláusulas establecidas mediante acuerdos, contratos o convenios suscritos.
+Para efecto de los sujetos que deben someterse a la inscripción, supervisión y fiscalización por parte de la SUGEF, las operaciones sistemáticas también tendrán que calificar como operaciones
+sustanciales, excepto que del análisis del tipo de negocio, volumen, riesgo y transacciones realizadas por la persona física o jurídica se considere necesaria su inscripción cuando califican sólo como sistemáticas.

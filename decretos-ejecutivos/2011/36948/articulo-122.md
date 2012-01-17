@@ -1,0 +1,8 @@
+Artículo 122.- Requisitos para el registro.- Todas las personas físicas o jurídicas referidas en el artículo anterior, deberán cumplir para su registro, con al menos los siguientes requisitos:
+a) Completar la solicitud de registro que emita la UCFP.
+b) En caso de que el solicitante sea una persona jurídica, se deberá presentar una certificación de personería jurídica, con no más de ocho días de emitida, en la que se indiquen las citas de inscripción del Registro Mercantil. En dicha personería deberá incluirse además el pacto constitutivo de la empresa y sus modificaciones.
+c) Aportar copia certificada del documento de identificación del solicitante. En caso de que sea una persona jurídica se deberá aportar copia certificada del documento de identificación del representante legal.
+d) Presentar la Hoja de Delincuencia del representante legal de la empresa y de quienes van a ser acreditados como apoderados generalísimos, generales o especiales. En el caso de extranjeros deberán aportar el respectivo documento en donde se acredite su situación
+delincuencial. Para el caso de ciudadanos de los Estados Unidos de América o de otros Estados del sistema federal, la certificación deberá ser de tipo federal.
+e) Cuando el solicitante sea una persona física o jurídica que empleará las máquinas en procesos productivos, deberá aportar copia autenticada por notario público, del permiso de operación vigente que justifique el uso de ese tipo de máquinas, con las respectivas resoluciones que lo respalden, cuando ellas existan.
+f) Completar la “Boleta sobre Normativa” que emita la UCFP, con plena indicación de todos los datos y documentos requeridos.

@@ -1,0 +1,1 @@
+Artículo 102.- Asistencias nacionales.- La UAB brindará asistencia técnica a las distintas autoridades judiciales y administrativas nacionales competentes, para prevenir e investigar los delitos relacionados con el narcotráfico, actividades conexas, la legitimación de capitales, el financiamiento al terrorismo y el crimen organizado.

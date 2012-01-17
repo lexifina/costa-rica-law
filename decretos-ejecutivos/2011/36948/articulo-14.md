@@ -1,0 +1,5 @@
+Capítulo II
+Clasificación de riesgo de los clientes, identificación y mantenimiento de registros
+Artículo 14.- Metodología para la clasificación de riesgo de los clientes.- Todas las entidades y los sujetos obligados descritos en los artículos 14 y 15 de la Ley N° 8204, deben contar con unametodología para clasificar por riesgo a sus clientes, según lo establecido por el CONASSIF.
+Además, deben implementar un sistema de valoración que le permita identificar los riesgos de legitimación de capitales y financiamiento al terrorismo propios de cada entidad, considerando entre otros, criterios relacionados con tipos de clientes, productos y servicios, canales de distribución y ubicación geográfica.
+Las entidades y los sujetos obligados podrán definir actividades catalogadas como de alto riesgo, haciendo uso de estadísticas, reportes o documentos emitidos por organismos e instituciones nacionales e internacionales dedicadas a la atención de las actividades de legitimación de capitales y el financiamiento del terrorismo.

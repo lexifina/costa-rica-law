@@ -1,0 +1,1 @@
+TRANSITORIO III.- Se otorga un plazo de hasta tres meses, contados a partir de la entrada en vigencia de este reglamento, para que las instituciones supervisadas se ajusten a las disposiciones del presente reglamento.

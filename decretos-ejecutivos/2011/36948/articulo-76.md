@@ -1,0 +1,1 @@
+Artículo 76.- Oficina única.- La institución que suscriba un convenio marco con el ICD, deberá contar con una Oficina Única, que se encargará de la recepción, trámite y seguimiento interno de las solicitudes de préstamos. El Instituto coordinará solamente con la Oficina Única, todo lo relacionado con las obligaciones y derechos estipulados en el convenio marco suscrito.

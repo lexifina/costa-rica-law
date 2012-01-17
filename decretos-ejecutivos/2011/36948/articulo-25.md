@@ -1,0 +1,1 @@
+Artículo 25.- Corresponsalía con bancos pantalla. Se prohíbe, a las entidades o sujetos regulados en los artículos 14, 15 y 15bis de la Ley N° 8204, mantener relaciones directas o indirectas, con las instituciones que reúnan las características de un banco ficticio o banco pantalla.

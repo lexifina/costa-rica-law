@@ -1,0 +1,2 @@
+Artículo 26.- Cajas de seguridad. Las entidades y los sujetos obligados deben establecer políticas y procedimientos de verificación, control, monitoreo y reporte en relación con los clientes que mantengan cajas de seguridad u otro tipo de custodia física.
+Los clientes que cuenten con cajas de seguridad deberán cumplir con todos los requisitos de conocimiento del cliente y los controles establecidos en la Ley N° 8204, este reglamento y la normativa emitida por el CONASSIF.

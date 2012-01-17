@@ -1,0 +1,1 @@
+TRANSITORIO I.- Se otorga un plazo de hasta tres meses, contados a partir de la entrada en vigencia de este reglamento, para que la UIF emita los formularios de reporte que deben utilizar los sujetos obligados del artículo 15 bis de la Ley N° 8204.

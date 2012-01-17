@@ -1,0 +1,7 @@
+Sección Cuarta
+Decomiso y suspensiones
+Artículo 148.- Decomiso administrativo. La UCFP está facultada y procederá a realizar el inmediato decomiso de las sustancias incluidas en el artículo 117 o las máquinas indicadas en el artículo 121, cuando ellas hayan sido importadas, compradas localmente u obtenidas de cualquier otra forma en la que no haya mediado su debida autorización. Lo anterior sin perjuicio de las acciones legales que procedan. El decomiso se hará constar en el Acta de Decomiso correspondiente, cuyo formato elaborará la UCFP.
+En el caso de los productos químicos que se decomisen, debido a los riesgos que implica su eliminación para el ambiente y la salud, la UCFP procurará en primera instancia su reinserción al mercado lícito ya sea dentro del territorio nacional o en coordinación con autoridades de otros países, en todo caso si se debe proceder a su eliminación, solicitará la asesoría de la Dirección de Protección al Ambiente Humano del Ministerio de Salud, del Instituto Nacional de Seguros o de cualquiera otra dependencia pertinente, para definir el método más seguro y disponer de la manera más adecuada de estos productos.
+En el caso de las máquinas controladas, también se tratará de reinsertarlas a actividades legítimas y, de no lograrse se dispondrá de ellas mediante destrucción.
+En cualquier caso, la UCFP dejará debidamente documentado el destino final que se dio a los
+productos o las máquinas.

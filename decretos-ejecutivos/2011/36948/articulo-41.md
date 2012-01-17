@@ -1,0 +1,1 @@
+Artículo 41.- Organización y funcionamiento. La Oficialía de Cumplimiento se organizará y funcionará conforme lo disponga el oficial de cumplimiento, de conformidad con las disposiciones, normas, políticas y directrices que emita el CONASSIF.

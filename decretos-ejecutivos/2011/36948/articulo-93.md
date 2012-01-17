@@ -1,0 +1,1 @@
+Artículo 93.- Conservación de bienes.-El ICD podrá conservar los bienes comisados para el cumplimiento de sus objetivos, donarlos a entidades de interés público, rematarlos o subastarlos, conforme los procedimientos establecidos en el presente reglamento.

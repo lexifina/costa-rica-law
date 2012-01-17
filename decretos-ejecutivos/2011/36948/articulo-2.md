@@ -1,0 +1,1 @@
+Artículo 2°- Régimen jurídico. El presente Reglamento se rige por la Constitución Política y demás convenciones internacionales, leyes, circulares y normativa relacionada con la Ley N°8204 y la Ley N° 8754.

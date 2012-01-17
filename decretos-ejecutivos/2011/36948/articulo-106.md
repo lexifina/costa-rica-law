@@ -1,0 +1,1 @@
+Artículo 106.- Protocolos de actuación.- La UPI elaborará protocolos de actuación, a efectos de unificar, centralizar y facilitar las labores con las policías nacionales e internacionales, en el ámbito de su competencia.

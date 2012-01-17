@@ -1,0 +1,1 @@
+Artículo 128.- Plazo para resolver.- La UCFP dispondrá de cinco días hábiles para resolver y notificar la solicitud de ampliación a la parte interesada. Dicho plazo podrá ser ampliado por cinco días hábiles más, cuando las condiciones de análisis y verificación así lo justifiquen.

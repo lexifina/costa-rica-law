@@ -1,0 +1,3 @@
+Artículo 58.- Remisión de operaciones sospechosas.- Los sujetos obligados, deben remitir a la UIF, de manera inmediata y confidencial, cualquier información relacionada con operaciones determinadas como sospechosas. Dicho reporte se hará mediante los formularios que la UIF confeccione para tales efectos.
+Se consideran operaciones sospechosas aquellas transacciones efectuadas o realizadas en forma periódica o aislada, que de acuerdo con los usos y costumbres de la actividad, negocio o profesión de que se trate, resulten inusuales, sin justificación material, económica o legal
+evidente, o de complejidad inusitada o injustificada.

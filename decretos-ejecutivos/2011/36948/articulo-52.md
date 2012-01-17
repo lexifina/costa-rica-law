@@ -1,0 +1,1 @@
+Artículo 52.- Del desempeño de los sujetos obligados.- Las personas físicas o jurídicas que desempeñen las actividades descritas en el artículo anterior, deberán registrarse ante la UIF por los medios establecidos para los fines correspondientes. La UIF publicará los formularios de registros.

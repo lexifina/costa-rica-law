@@ -1,0 +1,2 @@
+Artículo 138.-Plazo para resolver solicitud de registro de compradores locales.-La UCFP dispondrá de 5 días hábiles para resolver la solicitud de registro y en caso de que todos los requisitos hayan sido cumplidos satisfactoriamente, se emitirá, previo pago de los derechos respectivos, la licencia que acreditará a la persona física o jurídica como comprador local de precursores o químicos esenciales.
+Dicho plazo podrá ser ampliado por cinco días hábiles más, cuando las condiciones de análisis y verificación así lo justifiquen.

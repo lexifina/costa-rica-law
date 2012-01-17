@@ -1,0 +1,2 @@
+Artículo 158.- Aplicación especial.- Todas las disposiciones contenidas en la Ley N° 8754, serán aplicables a los bienes muebles e inmuebles decomisados y comisados mediante la Ley N° 8204 y que se encuentren en custodia del Instituto Costarricense sobre Drogas al momento de la entrada en vigencia de la Ley N° 8754.
+Las disposiciones contenidas en el Transitorio VII de la Ley N° 8754, serán aplicables a las embarcaciones y equipo de navegación que se encuentran en custodia del Instituto Costarricense sobre Drogas al momento de la entrada en vigencia de la Ley N° 8754.

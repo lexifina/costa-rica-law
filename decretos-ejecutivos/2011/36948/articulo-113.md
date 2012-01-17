@@ -1,0 +1,1 @@
+Artículo 113.- Manejo de la información.- La información recabada, compilada, procesada y proporcionada por el Comité Interinstitucional de Inteligencia Antidrogas, sólo podrá ser usada para los fines para los que fue solicitada.

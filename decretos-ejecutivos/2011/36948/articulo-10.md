@@ -1,0 +1,9 @@
+Artículo 10.- Relaciones comerciales con sujetos o entidades obligadas a inscribirse. Las entidades y sujetos regulados, supervisados y fiscalizados por la SUGEF, SUGEVAL, SUPEN y
+SUGESE, a las que se refiere el Artículo 14 de la Ley N° 8204, estarán obligadas a establecer políticas, procedimientos y controles que les permitan concluir, de manera razonable, si sus clientes, persona física o jurídica, realizan alguna de las actividades establecidas en el artículo 15 de la Ley N° 8204.
+Las entidades y los sujetos referidos en el párrafo anterior, no podrán iniciar relaciones
+comerciales con personas que realicen alguna de las actividades descritas en el artículo 8 del presente reglamento, en tanto no se hayan inscrito ante la SUGEF. Lo anterior, sin detrimento de otras disposiciones legales o reglamentarias que también deban cumplir a efecto de realizar sus
+actividades en general.
+En caso de que esas entidades concluyan, mediante la aplicación de sus políticas, procedimientos y controles, que un cliente realiza alguna de las actividades descritas en el artículo 8 de este Reglamento y no está inscrito ante la SUGEF, tendrán la obligación de realizar la debida comunicación al cliente, con copia a la SUGEF y a su órgano supervisor, según corresponda, así
+como darle un plazo no mayor a treinta días hábiles para que presente la solicitud de inscripción ante la SUGEF. Una vez finalizado este plazo, si el cliente no aporta evidencia de que ha iniciado el proceso de inscripción, la entidad deberá dar por finalizada la relación comercial y deberá comunicar este hecho a la SUGEF y a su órgano supervisor correspondiente.
+El hecho que un cliente, persona física o jurídica, esté inscrito ante SUGEF, no exime a las
+entidades indicadas en el artículo 14 de la Ley N° 8204, de aplicar en forma íntegra las políticas y procedimientos que se relacionan con la identificación y el conocimiento de los clientes.

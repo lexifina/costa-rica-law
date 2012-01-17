@@ -1,0 +1,1 @@
+Artículo 145.- Confidencialidad de la Información. La UCFP se ajustará a lo dispuesto en la Ley 7975 “Ley de Información No Divulgada”, en cuanto al manejo de la información que le proporcionen sus usuarios, garantizando a éstos total confidencialidad y reserva de la información que le sea suministrada en cumplimiento de las disposiciones de la Ley Nº 8204.

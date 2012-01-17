@@ -1,0 +1,1 @@
+Artículo 87.- Bienes perecederos.- En el caso de los bienes perecederos que estén en condición de desecho, la Unidad de Administración de Bienes Decomisados y Comisados los destruirá y confeccionará acta, que será firmada por dos testigos presenciales.

@@ -1,0 +1,1 @@
+Artículo 83.- Comunicación de terceros.-Cuando se trate de bienes decomisados propiedad de terceros, podrá disponerse anticipadamente de los mismos, siempre que la autoridad judicial competente les haya comunicado la posibilidad de apersonarse en el proceso y no haya manifestado su interés en la recuperación del bien.

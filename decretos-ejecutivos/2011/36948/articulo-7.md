@@ -1,0 +1,4 @@
+Artículo 7.- Operaciones Sustanciales y Operaciones Sistemáticas. Se entenderá por operaciones sustanciales la realización, durante un periodo determinado, de transacciones financieras por parte de una persona física o jurídica, a través de las cuentas o servicios brindados por las entidades y los sujetos obligados, cuya cuantía se considera significativa.
+Se entenderá por operaciones sistemáticas la realización de transacciones financieras por parte de una persona física o jurídica, a través de las cuentas, productos o servicios brindados por las
+entidades y los sujetos supervisados, en forma organizada y habitual.
+Los conceptos de organizado, habitual, transacción financiera, cuantía significativa y período, bajo los cuales se deberá considerar una operación sistemática o sustancial, serán definidos mediante normativa aprobada por el CONASSIF.

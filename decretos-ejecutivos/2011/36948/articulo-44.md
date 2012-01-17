@@ -1,0 +1,3 @@
+Artículo 44.- Independencia de criterio. Los funcionarios de la oficialía de cumplimiento ejercerán sus atribuciones con total independencia de criterio respecto del jerarca y de los demás órganos de la administración activa.
+Los funcionarios de la oficialía de cumplimiento no podrán comunicar, informar o poner en conocimiento de ninguna dependencia interna o externa, la información confidencial que reciba o remita a las autoridades judiciales y administrativas competentes.
+El oficial de cumplimiento no podrá previamente comunicar, informar o poner en conocimiento de ninguna dependencia interna o externa los reportes de operaciones sospechosas, lo anterior sin perjuicio de las facultades de requerimiento de información de la Superintendencia respectiva.

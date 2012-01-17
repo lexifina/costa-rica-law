@@ -1,0 +1,5 @@
+Sección Primera
+Decomiso de Bienes
+Artículo 66.- Decomiso y depósito judicial de bienes.-Las autoridades judiciales decomisarántodos los bienes muebles, los inmuebles, el dinero, los instrumentos, los equipos, los valores y los productos financieros, utilizados o provenientes de los delitos previstos en las leyes Nº 8204 y Nº8754.
+Estas autoridades deberán entregar en depósito judicial al ICD únicamente los bienes muebles e inmuebles de interés económico. La valoración del interés económico la realizará la Unidad de Administración de Bienes Decomisados y Comisados. Respecto de los demás bienes decomisados que no sean asumidos en depósito judicial por el ICD, se procederá de conformidad con lo establecido en el Código Procesal Penal.
+La autoridad judicial depositará en las cuentas bancarias del Instituto Costarricense sobre Drogas los dineros decomisados por infracción a las leyes Nº 8204 y Nº 8754. Realizado el depósito, deberá remitirse una copia del mismo al Instituto Costarricense sobre Drogas, en la cual se indicará la ley que se infringe.

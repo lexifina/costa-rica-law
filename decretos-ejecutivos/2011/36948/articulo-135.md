@@ -1,0 +1,2 @@
+Artículo 135.- Vigencia del permiso de importación, exportación o reexportación de
+máquinas controladas. El permiso de importación señalado en el artículo anterior, tendrá una vigencia de ciento ochenta días naturales y el de exportación o reexportación noventa días naturales, a partir de su fecha de autorización, para efectos de realizar la importación, exportación o reexportación de máquinas controladas.

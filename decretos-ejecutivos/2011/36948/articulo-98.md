@@ -1,0 +1,3 @@
+Artículo 98.-- Desinscripción de bienes proyectados para donación.La UAB podrá, desde su proyección de donación, desinscribir los vehículos que se vayan a donar.
+Una vez aprobada la donación, en el caso de bienes muebles inscribibles, el Registro Nacional deberá inscribirlos o traspasarlos con la presentación del acta de donación respectiva. En el caso de vehículos, además se adjuntarán la revisión técnica y el derecho de circulación.
+Esa institución beneficiada con la donación, realizará las reparaciones mecánicas necesarias, para que sea aprobada la revisión técnica vehicular, pesos y dimensiones y obtener el derecho de circulación, según corresponda.

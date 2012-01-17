@@ -1,0 +1,1 @@
+Artículo 88.- Depósitos de dineros.- Los dineros recibidos de conformidad con la ejecución de los procedimientos relacionados con la disposición previa y la venta de bienes perecederos y otros, serán depositados en las cuentas corrientes que para tales efectos defina la Unidad Administrativa Financiera del ICD.

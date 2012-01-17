@@ -1,0 +1,1 @@
+Artículo 92.- Informes de proyección de bienes.- La Unidad de Administración de Bienes Decomisados y Comisados, remitirá periódicamente a la Dirección General del ICD, la proyección de disposición, uso y administración de todos los bienes comisados.

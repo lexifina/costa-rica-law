@@ -1,0 +1,1 @@
+Artículo 155.- Orientación.- Todas las dependencias, organismos e instituciones públicas y privadas que tengan relación con el Plan Nacional sobre Drogas, Legitimación de Capitales y Financiamiento al Terrorismo, orientarán todas sus acciones, programas, presupuestos, planes y proyecciones hacia lo establecido en ese Plan.

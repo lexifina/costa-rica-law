@@ -1,0 +1,3 @@
+Capítulo VI
+Actas de destrucción
+Artículo 153.- Remisión. Todas las actas de destrucción y los informes policiales relacionados con la erradicación de plantaciones de marihuana o de cualquier otra planta o arbusto de la cual se pueda generar cualquier droga ilícita, así como las actas de destrucción de cualquier droga incautada, deberán ser remitidas a la Unidad de Información y Estadística Nacional sobre Drogas del ICD. Esta Unidad incorporará dentro de un sistema nacional de centralización de información, los diferentes informes, estudios e investigaciones para los propósitos establecidos en la Ley Nº 8204.

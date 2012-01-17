@@ -1,0 +1,1 @@
+Artículo 107.-Bases de datos.- La UPI recopilará en una base de datos absolutamente confidencial, toda la información procesada de conformidad con el artículo anterior, para uso exclusivo de las policías y autoridades administrativas y judiciales competentes.

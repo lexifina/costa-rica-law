@@ -1,0 +1,1 @@
+Artículo 54.- Del expediente del cliente.- Los sujetos obligados deberán mantener un expediente de cada uno de sus clientes, en donde conste, el formulario de identificación del cliente señalado en el artículo anterior, así como los documentos de identificación y documentos que respalden la operación u operaciones realizadas.

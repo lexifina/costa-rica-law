@@ -1,0 +1,1 @@
+Artículo 38.-Solicitud de información por parte de la UIF: Todas los sujetos y las instituciones enumeradas en el artículo 123 de la Ley 8204, deben entregar, a la Unidad de Inteligencia Financiera, toda la información necesaria para el curso de sus investigaciones, en los plazos y formas establecidos por esta Unidad.

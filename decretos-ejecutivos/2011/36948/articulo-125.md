@@ -1,0 +1,6 @@
+Artículo 125.- Autorización de apoderados especiales.- Las personas físicas o jurídicas registradas ante la UCFP conforme los artículos anteriores, podrán acreditar apoderados especiales. Dicho registro deberá llevarse a cabo ante la UCFP y cumplir con los siguientes requisitos:
+a) Presentar solicitud de acreditación de los nuevos responsables, la cual será firmada por el solicitante registrado y acreditado.
+b) Presentar el poder general o poder generalísimo, expedido ante notario público. El poder deberá conferir a dichas personas las facultades necesarias para que representen a la empresa y puedan en nombre de ella realizar todos los trámites
+c) Presentar copia certificada del documento de identidad de los apoderados especiales que se vayan a acreditar.
+d) Presentar la Hoja de Delincuencia de los apoderados especiales que se vayan a acreditar. En el caso de extranjeros deberán aportar el respectivo documento en donde se acredite su situación delincuencial. Para el caso de ciudadanos de los Estados Unidos de América o de otros Estados del sistema federal, la certificación deberá ser de tipo federal.
+e) Completar y autenticar ante notario público, la boleta de registro de firmas que elabore y publique la UCFP.

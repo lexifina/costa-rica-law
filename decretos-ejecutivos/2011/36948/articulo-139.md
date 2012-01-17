@@ -1,0 +1,1 @@
+Artículo 139.- Vigencia de la licencia de comprador local.- La licencia emitida por la UCFP, en donde se acredita a la persona física o jurídica solicitante, como comprador local de precursores o químicos esenciales, tendrá una vigencia de doce (12) meses naturales a partir de su aprobación.

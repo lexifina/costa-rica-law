@@ -1,0 +1,1 @@
+Artículo 24.- Plazo.- El plazo durante el cual serán considerados PEPs abarcará todo su periodo de nombramiento y hasta ocho años posteriores a la finalización de sus funciones. En el caso de los presidentes o jefes de estado serán considerados como PEPs indefinidamente.
