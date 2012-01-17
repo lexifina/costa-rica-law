@@ -14,3 +14,4 @@ Reglamento del Comité de Auditoría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-21 | la propia norma |
+| 2 | 2012-01-17 | Reglamento 6 (2012-01-17) |
