@@ -1,0 +1,10 @@
+MINISTERIO DE AMBIENTE, ENERGÍA
+Y TELECOMUNICACIONES
+R-670-2011-MINAET.—En uso de las facultades que les confieren los incisos 3), 18) y 20) del artículo 140 de la Constitución Política; y con fundamento en los artículos 25, 27, 28 y 103 de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; el artículo 30 siguientes y concordantes de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Nº 8422 del 6 de octubre del 2004, la Convención Interamericana Contra la Corrupción, Ley Nº 7670 del 17 de abril de 1997, Ley General de Control Interno, Nº 8292 del 4 de setiembre del 2002, y;
+Considerando:
+1º—Que el Reglamento para la Asignación, Uso, Custodia y Conservación de los Teléfonos Celulares del Ministerio de Ambiente, Energía y Telecomunicaciones, DAJ Reglamento 37-2011, se publicó en el Diario La Gaceta Nº 185 del 27 de setiembre del 2011.
+2º—Que en el texto publicado en el Diario La Gaceta, no se consignó en el Artículo Primero que el Sistema Nacional de Áreas de Conservación regulará la materia de asignación, uso y custodia de celulares y sus tarifas de forma independiente por contar con personería jurídica instrumental y tener un presupuesto ordinario asignado para atender esta gestión administrativa; igualmente, en el Artículo Once no se consignaron aspectos relativos a los rubros que cubren la tarifa autorizada, los planes de financiamiento de teléfonos celulares y el uso del sistema roaming por parte de los funcionarios este Ministerio, por lo que se requiere adicionar el texto oficial. Por tanto,
+LA MINISTRA DE AMBIENTE, ENERGÍA
+Y TELECOMUNICACIONES, RESUELVE:
+Artículo 1º—Adiciónese un párrafo final al Artículo 1º, para que se lea así:
+“El Sistema Nacional de Áreas de Conservación regulará la materia de asignación, uso y custodia de celulares y sus tarifas de forma independiente por contar con personería jurídica instrumental y tener un presupuesto ordinario asignado para atender esta gestión administrativa.”
