@@ -1,1 +1,0 @@
-Artículo 14.-Si se solicita información sobre quienes se dedican a la práctica de especialidades odontológicas en el país, el Colegio de Cirujanos Dentistas se referirá a los Cirujanos Dentistas Inscritos en el Registro de Especialidades Odontológicas.

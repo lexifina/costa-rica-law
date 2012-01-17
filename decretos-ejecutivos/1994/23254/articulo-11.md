@@ -1,1 +1,0 @@
-Artículo 11.-Una vez aprobado por la Junta Directiva del Colegio de Cirujanos Dentistas el dictamen favorable rendido por la Comisión, el solicitante deberá ser juramentado en forma oficial y se le inscribirá en el Registro de Especialidades Odontológicas.

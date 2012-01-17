@@ -1,1 +1,0 @@
-Artículo 16.-El Cirujano Dentista, durante su período de entrenamiento universitario de las especialidades señaladas en este reglamento, podrá realizar procedimientos especializados bajo la supervisión del instructor especialista docente en la especialidad respectiva e inscrito en el Registro de Especialidades.

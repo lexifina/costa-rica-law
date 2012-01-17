@@ -1,1 +1,0 @@
-Artículo 7°-Se faculta a la Junta Directiva del Colegio, para que debidamente asesorada por universidades o instituciones de educación superior, nacionales e internacionales y por la Comisión de Registro de Especialidades Odontológicas, establezca los requisitos mínimos específicos de nuevas especialidades odontológicas a incluir por decreto ejecutivo.
