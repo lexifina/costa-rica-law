@@ -1,0 +1,2 @@
+XXI.—Que de conformidad con resolución Nº RCS-090-2011 del 4 de mayo del 2011, donde se estableció como fecha límite el mes de diciembre del 2011 para realizar los estudios correspondientes y definir el plazo para la implementación de la portabilidad numérica en el país, se prevé que dicha implementación se realice dentro de un máximo de 400 días naturales. Dicho plazo obedece a las estimaciones recomendadas por la empresa consultora Imobix Inc., y el acatamiento a la Ley de Contratación Administrativa y su Reglamento.
+Acuerdo firme.

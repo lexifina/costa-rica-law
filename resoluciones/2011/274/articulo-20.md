@@ -1,0 +1,1 @@
+XX.—Que todos los operadores y proveedores de servicios de telecomunicaciones móviles, así como los autorizados como operadores móviles virtuales (OMV), que cuenten con recurso numérico asignado; deben establecer una relación contractual con la Entidad de Referencia. Dichos contratos deberán incluir al menos acuerdos de nivel de servicio (SLA´s, Service Level Agreements).

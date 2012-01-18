@@ -1,0 +1,1 @@
+XVIII.—Que esta Superintendencia no establecerá limitaciones a la cantidad de portaciones que pueda realizar un usuario. No obstante, mediante consenso previo, el Comité Técnico de Portabilidad Numérica podrá recomendar al Consejo de la Superintendencia de Telecomunicaciones el establecimiento de limitaciones conforme a las tendencias del mercado de las telecomunicaciones.

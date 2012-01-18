@@ -1,0 +1,1 @@
+IV.—Que los sistemas troncalizados que cuenten con recursos numéricos asignados, aplicarán el esquema “Onward Routing” como solución temporal para los 12 meses naturales posteriores a la puesta en operación de la entidad de referencia. En todo caso una vez cumplido este plazo, todas las redes de telefonía a nivel nacional deberán implementar el esquema “All Call Query”.
