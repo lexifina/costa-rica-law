@@ -1,0 +1,1 @@
+Artículo 12.—La declaración descrita en el artículo anterior, deberá ser presentada a la Administración Tributaria de la Municipalidad de San Carlos, a más tardar durante los diez días naturales posteriores al fin de mes anterior; y la cancelación del tributo deberá realizarse antes de vencerse el mes siguiente al que corresponde el tributo.

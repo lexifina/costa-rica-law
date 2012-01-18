@@ -1,0 +1,3 @@
+Artículo 10.—En caso que el material sea vendido a entidades exentas del Impuesto sobre las Ventas, el concesionario deberá presentar mediante Declaración Jurada, la información donde se indiquen los volúmenes en metros cúbicos del material vendido, la entidad compradora y los respectivos comprobantes. El tributo municipal se pagará de la siguiente manera:
+- Cauces de dominio público: ¢100 por metro cúbico extraído, monto que será actualizado con base en el índice de precios al consumidor, calculado por el Instituto Nacional de Estadística y Censos.
+- Tajos y canteras: ¢40 por metro cúbico extraído, monto que será actualizado con base en el índice de precios al consumidor, calculado por el Instituto Nacional de Estadística y Censos.

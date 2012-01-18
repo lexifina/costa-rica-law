@@ -1,0 +1,1 @@
+Artículo 22.—Derogado mediante artículo Nº 27, acta Nº 66 de la sesión ordinaria del Concejo Municipal celebrada el lunes 10 de octubre del 2011, en el Salón de Sesiones de la Municipalidad de San Carlos.
