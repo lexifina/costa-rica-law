@@ -1,0 +1,3 @@
+Artículo 27.—Plazo para presentar requisitos en la Auditoría Interna. Una vez cumplidos los requisitos, la dependencia interesada en la reposición de un libro contará con un plazo de diez días hábiles para presentar los documentos ante la Auditoría Interna, acompañados de una declaración suscrita por el Gerente del área con las razones que motivan la reposición del libro y con el nuevo tomo que se repone.
+En el caso de los edictos, presentar original o copia certificada de las hojas completas de los diarios que contienen las publicaciones.
+El plazo para cumplir con la presentación de requisitos ante la Auditoría Interna, comenzará a regir a partir de la fecha de la última publicación de los edictos.
