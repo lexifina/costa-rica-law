@@ -239,6 +239,9 @@ articulo-238.md
 articulo-239.md
 articulo-240.md
 articulo-241.md
+articulo-242.md
+articulo-243.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
+articulo-4-anexo.md
