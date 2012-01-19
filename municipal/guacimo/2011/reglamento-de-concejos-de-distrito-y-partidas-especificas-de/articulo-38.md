@@ -1,0 +1,1 @@
+Artículo 38.—La precalificación no constituye ningún compromiso u obligación para la Municipalidad, toda vez que se requiere la calificación Municipalidad definitiva del Concejo Municipal, conforme al Reglamento debidamente publicado al efecto.

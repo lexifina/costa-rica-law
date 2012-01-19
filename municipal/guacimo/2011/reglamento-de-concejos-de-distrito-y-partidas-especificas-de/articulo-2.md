@@ -1,0 +1,1 @@
+Artículo 2º—El propósito del presente Reglamento es regular el funcionamiento de los Concejos de Distrito del cantón de Guácimo, la Comisión Especial que los atiende y el trámite de las partidas específicas asignadas al cantón.

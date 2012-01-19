@@ -1,0 +1,1 @@
+Artículo 37.—En el acuerdo municipal, se indicará que la precalificación no constituye una garantía de que la organización recibirá los recursos públicos, asimismo, se indicará que la vigencia de la precalificación es por el plazo de un año.
