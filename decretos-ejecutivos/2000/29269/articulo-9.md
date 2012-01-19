@@ -1,1 +1,0 @@
-Artículo 9º—En ausencia de disposición expresa en este Reglamento, se aplicarán supletoriamente las disposiciones y principios de los acuerdos comerciales aplicables, así como la Ley General de la Administración Pública y demás leyes y reglamentos aplicables.
