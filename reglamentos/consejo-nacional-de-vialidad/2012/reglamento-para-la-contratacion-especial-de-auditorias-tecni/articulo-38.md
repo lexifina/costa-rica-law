@@ -1,0 +1,2 @@
+Artículo 38.—Garantía de cumplimiento. El Proveedor seleccionado para prestar servicios de auditoría técnica, deberá rendir una Garantía de Cumplimiento por un valor del 5% del total de la contratación. La vigencia de esta garantía debe comprender el plazo contrato más 90 días naturales.
+La garantía de cumplimiento deberá ser rendida por el proveedor en el término de 3 días hábiles posteriores a su aceptación de conformidad con lo señalado en el artículo 40 del Reglamento a la Ley de Contratación Administrativa.

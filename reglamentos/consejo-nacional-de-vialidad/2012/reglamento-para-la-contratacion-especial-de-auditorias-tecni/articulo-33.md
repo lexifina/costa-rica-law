@@ -1,0 +1,1 @@
+Artículo 33.—Participantes. Para ser tomado en cuenta en las contrataciones directas a que se refiere este Reglamento interno, será requisito obligatorio formar parte del Registro de Elegibles para prestar servicios de auditoría técnica de proyectos del CONAVI.
