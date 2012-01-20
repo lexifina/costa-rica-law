@@ -1,0 +1,1 @@
+Artículo 21.—Del no trámite de requerimientos. Cuando el Jefe de Proveeduría y Licitaciones estime conveniente no tramitar un determinado procedimiento, expondrá sus objeciones ante su superior jerárquico, quien resolverá lo que corresponda, en coordinación con el encargado de la oficina solicitante y la respectiva Subgerencia General.

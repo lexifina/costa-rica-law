@@ -1,0 +1,1 @@
+Artículo 9º—Acta de deserción. En el caso que la oficina solicitante recomiende declarar desierto un procedimiento de contratación, deberá emitir una justificación detallada con la indicación de los motivos específicos de interés público considerados para optar por esa decisión.

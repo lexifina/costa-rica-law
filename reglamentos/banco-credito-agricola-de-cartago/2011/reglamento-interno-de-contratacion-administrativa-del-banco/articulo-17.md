@@ -1,0 +1,2 @@
+Artículo 17.—Finiquito del contrato. Sin detrimento de lo dispuesto en el artículo 152 del Reglamento a la Ley de Contratación Administrativa, el administrador del contrato deberá gestionar, cuando corresponda, el finiquito de la relación contractual.
+En dicho finiquito deberá consignarse, como mínimo, las cantidades, calidades, características y naturaleza de los bienes y/o servicios recibidos, así como toda otra información pertinente que deberá ser suscrita por quien ostente la representación legal de las partes.

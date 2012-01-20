@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento involucra a todas las áreas del Banco que requieran adquirir y/o vender bienes y servicios y abarca desde el momento en que surge la necesidad, hasta que se recibe a satisfacción el objeto contractual.

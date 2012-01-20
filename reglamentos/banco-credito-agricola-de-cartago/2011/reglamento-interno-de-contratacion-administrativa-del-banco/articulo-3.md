@@ -1,0 +1,3 @@
+Artículo 3º—Responsables. La Oficina de Proveeduría y Licitaciones, será el órgano competente para tramitar las contrataciones de obras, bienes y servicios, de conformidad con la Ley de Contratación Administrativa, el Reglamento a la Ley y el presente Reglamento.
+Para el eficiente y eficaz cumplimiento de las funciones de la Oficina de Proveeduría y Licitaciones, todas las demás oficinas administrativas de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindar colaboración y asesoría.
+Será responsabilidad de las áreas usuarias y técnicas involucradas en el proceso de contratación, la aplicación de este Reglamento.

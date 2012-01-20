@@ -1,0 +1,2 @@
+Artículo 20.—Finalización de la contratación. Una vez finalizada la relación contractual y emitida el acta de recepción definitiva, el administrador del contrato en un plazo máximo de cinco días hábiles, deberá remitir a la Oficina de Proveeduría y Licitaciones, el expediente de ejecución contractual debidamente foliado en orden cronológico.
+En caso de no cumplir con el envío oportuno del expediente de ejecución, según lo dispuesto anteriormente, se aplicarán las sanciones que correspondan.

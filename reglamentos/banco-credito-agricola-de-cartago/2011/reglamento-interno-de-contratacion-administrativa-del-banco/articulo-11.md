@@ -1,0 +1,1 @@
+Artículo 11.—Competencia para aprobar carteles. Es competencia de los órganos señalados en el artículo anterior, aprobar el cartel del concurso con los límites y facilidades que se indican. En el caso de la Junta Directiva, podrá reservarse el derecho de designar esta aprobación a otros comités u oficinas competentes.

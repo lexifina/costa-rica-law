@@ -1,0 +1,3 @@
+Artículo 19.—Rescisión y resoluciones contractuales, sanciones y ejecución de garantías. Contra los procedimientos de rescisión contractual, resolución contractual, sanciones (inhabilitación o apercibimiento por escrito), ejecución de garantías, proceden los recursos de revocatoria y/o apelación.
+La revocatoria será de conocimiento de la Oficina de Proveeduría y Licitaciones, y la apelación, de la Gerencia o Subgerencia General, quien una vez resuelto el recurso planteado (cuando corresponda) dará por agotada la vía administrativa.
+Estos recursos deberán ser presentados ante la Oficina de Proveeduría y Licitaciones del Banco.

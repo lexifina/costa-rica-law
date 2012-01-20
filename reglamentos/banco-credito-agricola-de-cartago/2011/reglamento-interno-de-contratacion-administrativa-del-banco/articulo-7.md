@@ -1,0 +1,1 @@
+Artículo 7º—Responsable de emitir la Decisión Inicial. El responsable de emitir la Decisión Inicial, será el titular subordinado de la oficina solicitante o bien, el funcionario que se designe formalmente.

@@ -1,0 +1,1 @@
+Artículo 22.—Venta y compra de bienes inmuebles. La venta y compra de bienes inmuebles para uso del Banco, deberá ser autorizada por la Junta Directiva General y estará sometida al procedimiento de contratación administrativa que corresponda.
