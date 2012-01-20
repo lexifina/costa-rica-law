@@ -15,3 +15,4 @@ Reglamento de Traslado de Menaje de Casa y Pasajes de los Funcionarios Acreditad
 | --- | --- | --- |
 | 1 | 2001-11-19 | la propia norma |
 | 2 | 2002-08-12 | Reglamento 0 (2002-08-12) |
+| 3 | 2012-01-20 | SINALEVI (sin norma nombrada) |
