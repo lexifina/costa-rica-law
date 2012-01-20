@@ -1,0 +1,1 @@
+Artículo 15.- Sesiones de la Comisión Técnica Interinstitucional. La Comisión Técnica Interinstitucional sesionará ordinariamente al menos una vez cada dos meses, y extraordinariamente cuando se le convoque. La convocatoria la realizará el/la Director(a) Ejecutivo(a) de la Secretaría Técnica de la REDCUDI.
