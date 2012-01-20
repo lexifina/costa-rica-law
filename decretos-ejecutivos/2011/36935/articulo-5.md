@@ -1,0 +1,1 @@
+Artículo 5°—Los interesados e interesadas en ingresar al Programa de Pago por Servicios Ambientales, deberán solicitar una cita mediante los mecanismos que al efecto emita FONAFIFO. para la presentación de sus presolicitudes.
