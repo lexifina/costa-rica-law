@@ -20,3 +20,4 @@ Reglamento General de Organización y Funcionamiento de la Junta de Pensiones y 
 | 5 | 2010-01-26 | Reglamento 12 (2010-01-26) |
 | 6 | 2011-06-14 | Reglamento 66 (2011-06-14) |
 | 7 | 2011-07-26 | Reglamento 81 (2011-07-26) |
+| 8 | 2012-01-20 | Reglamento 7 (2012-01-20) |
