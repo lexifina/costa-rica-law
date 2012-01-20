@@ -1,0 +1,3 @@
+Artículo 10.—La Secretaría General comunicará a la Oficina Subregional, con copia a la Dirección Regional, Asesoría Legal Regional y al Área de Escrituración y Notariado los acuerdos de aprobación de los informes. La Oficina Subregional tendrá la responsabilidad de notificar por escrito al ocupante en el lugar señalado para el efecto lo acordado por la Junta Directiva, en un plazo no mayor de diez días hábiles contados a partir del momento en que la Oficina Subregional recibe el acuerdo.
+El proceso anterior deberá constar en el expediente.
+En la notificación respectiva, se apercibirá de su deber de firmar el contrato provisional de asignación de tierras.

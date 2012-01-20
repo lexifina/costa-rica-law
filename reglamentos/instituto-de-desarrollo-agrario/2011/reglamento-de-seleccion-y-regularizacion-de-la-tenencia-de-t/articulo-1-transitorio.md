@@ -1,0 +1,1 @@
+Transitorio I.—Con la emisión del presente Reglamento queda formalmente derogado el Capítulo XI contenido en el Reglamento de Selección y Asignación de Solicitantes de Tierras aprobado mediante acuerdo por la Junta Directiva del IDA en el acuerdo tomado en artículo III, sesión 14-2010 celebrada el 19 de abril del 2010 y publicado en La Gaceta número 116 del 16 de junio del 2010.

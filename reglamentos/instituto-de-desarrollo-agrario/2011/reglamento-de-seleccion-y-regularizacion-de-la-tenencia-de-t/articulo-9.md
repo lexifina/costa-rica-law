@@ -1,0 +1,1 @@
+Artículo 9º—Al ordenarse el traspaso éste se hará soportando las limitaciones establecidas en el artículo 67 de la Ley 2825 en cuanto a la libre disposición del inmueble y de las reservas y condiciones establecidas en dicha ley.

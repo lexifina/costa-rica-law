@@ -1,0 +1,3 @@
+Artículo 12.—Contra los acuerdos de la Junta Directiva que denieguen la legalización de la ocupación del predio, cabrá recurso de revocatoria debiendo indicar los motivos de hecho y derecho en que se fundamenta la disconformidad, de acuerdo a lo dispuesto en el inciso 2 del Artículo 344 de la Ley General de la Administración Pública.
+El recurso deberá formularse dentro del plazo de tres días hábiles contados a partir del día siguiente de la notificación del acuerdo de Junta Directiva ante la Oficina Subregional o la Dirección Regional respectiva.
+En todo caso el recurso deberá acompañarse de un informe técnico legal, el cual deberá ser rendido por Asesoría Legal de la Región respectiva.

@@ -1,0 +1,1 @@
+Artículo 11.—Suscrito el contrato provisional de asignación la Oficina Subregional correspondiente coordinará con el Área de Escrituración y Notariado para el ulterior otorgamiento del título de propiedad respectivo para lo cual remitirá el expediente del trámite de titulación.

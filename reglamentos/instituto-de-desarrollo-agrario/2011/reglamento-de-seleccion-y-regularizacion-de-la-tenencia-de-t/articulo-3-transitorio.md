@@ -1,0 +1,1 @@
+Transitorio III.—Todos los casos no previstos en este reglamento deberán ser resueltos ya sea por las autoridades judiciales respectivas o bien por el Instituto mediante la aplicación de las reglas del Reglamento para la Selección de Familias y Asignación de Tierras.

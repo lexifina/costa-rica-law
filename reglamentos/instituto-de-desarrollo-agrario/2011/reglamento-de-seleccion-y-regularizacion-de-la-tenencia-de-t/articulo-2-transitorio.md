@@ -1,0 +1,3 @@
+Transitorio II.—Lo establecido en este reglamento no excluye la responsabilidad de los funcionarios encargados de la respectiva fiscalización agraria en predios del Instituto, debiendo en cada caso particular apercibir al interesado, para que se presente en un plazo máximo de quince días ante el Instituto para gestionar la regularización.
+En caso que el interesado no se presente, la Oficina Subregional iniciará el procedimiento administrativo de desalojo.
+Si existiere proceso judicial, el interesado y el Instituto podrán conciliar para someterse a los trámites establecidos en este reglamento y evitar así la continuación del litigio.
