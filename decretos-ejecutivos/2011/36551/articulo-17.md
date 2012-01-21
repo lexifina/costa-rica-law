@@ -1,0 +1,2 @@
+Artículo 17.—Elaboración y firma de los reportes operacionales. Todo reporte operacional será elaborado y firmado por el responsable técnico del reporte operacional. Además, deberá llevar la firma del propietario o del representante legal del ente generador.
+No podrá ser parte del personal del laboratorio que haya realizado los análisis de emisiones del cual se está presentando el reporte operacional.

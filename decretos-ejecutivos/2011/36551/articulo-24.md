@@ -1,0 +1,1 @@
+Artículo 24.—Del permiso sanitario de funcionamiento. El Ministerio de Salud no otorgará la renovación del permiso sanitario de funcionamiento a aquellos entes generadores que no hayan presentado los reportes operacionales conforme a las disposiciones establecidas en este reglamento.

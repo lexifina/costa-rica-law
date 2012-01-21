@@ -1,0 +1,1 @@
+Artículo 16.—Procedimiento para la elaboración del reporte operacional. Los reportes operacionales deberán confeccionarse conforme a lo establecido en la Guía para la Confección del Reporte Operacional para Emisiones Provenientes de Calderas y Hornos de tipo Indirecto según Anexo 3.

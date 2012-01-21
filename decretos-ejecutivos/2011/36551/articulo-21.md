@@ -1,0 +1,1 @@
+Artículo 21.—Evaluación del estado actual del sistema: caldera(s) u horno(s) de tipo indirecto y equipos de control de emisiones. El responsable técnico de la elaboración del reporte operacional deberá evaluar los resultados de los análisis de laboratorio y las anotaciones de la bitácora, cuando proceda, con el fin de emitir sus conclusiones y recomendaciones.
