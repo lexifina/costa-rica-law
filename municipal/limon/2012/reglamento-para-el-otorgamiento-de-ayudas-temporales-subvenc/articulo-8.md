@@ -1,0 +1,1 @@
+Artículo 8º—La institución, comité o interesado deberá presentar la solicitud y justificación de uso ante la Comisión de Asuntos Sociales, en papel de oficio y con el timbre municipal, explicando en forma clara y precisa el objeto y fines para la lo que requiere el aporte o subvención, así como cualquier otro requisito que se le solicite.
