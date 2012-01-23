@@ -14,3 +14,4 @@ Manual para el Otorgamiento del Premio "Alberto Brenes Córdoba" a la mejor Obra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-08 | la propia norma |
+| 2 | 2012-01-23 | Reglamento 3 (2012-01-23) |
