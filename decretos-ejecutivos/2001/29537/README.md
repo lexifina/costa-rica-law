@@ -15,3 +15,4 @@ Reglamento para Uso Público del Parque Nacional Isla del Coco
 | --- | --- | --- |
 | 1 | 2001-06-14 | la propia norma |
 | 2 | 2002-11-21 | Decreto Ejecutivo 30838 (2002-11-21) |
+| 3 | 2012-01-23 | Decreto Ejecutivo 37023 (2012-01-23) |

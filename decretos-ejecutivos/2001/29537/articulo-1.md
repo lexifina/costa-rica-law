@@ -1,6 +1,6 @@
-PODER EJECUTIVO
-DECRETOS
+(Derogado)
 Nº 29537-MINAE
+(Este decreto fue derogado por el artículo 81 del Reglamento de Uso Público del Parque Nacional Isla del Coco, aprobado mediante decreto ejecutivo N° 37023 del 23 de enero del 2012)
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
