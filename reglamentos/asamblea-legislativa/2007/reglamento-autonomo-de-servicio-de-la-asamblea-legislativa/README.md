@@ -19,3 +19,4 @@ Reglamento Autónomo de Servicio de la Asamblea Legislativa
 | 4 | 2009-12-09 | Acuerdo 68 (2009-12-09) |
 | 5 | 2010-04-14 | Acuerdo 78 (2010-04-14) |
 | 6 | 2010-07-29 | Acuerdo 9 (2010-07-29) |
+| 7 | 2012-01-23 | Acuerdo 41 (2012-01-23) |
