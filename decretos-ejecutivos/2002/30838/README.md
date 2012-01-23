@@ -14,3 +14,4 @@ Prohibición para el ingreso y estadía de embarcacioones y vertido de sustancia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-06 | la propia norma |
+| 2 | 2012-01-23 | Decreto Ejecutivo 37023 (2012-01-23) |
