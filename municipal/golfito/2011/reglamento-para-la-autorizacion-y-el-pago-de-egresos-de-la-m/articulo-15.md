@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento de Proveeduría será el responsable de tramitar las nominas de pago, para lo cual se ha designado los días miércoles de cada semana durante la jornada laboral de 8:00 a. m. a 4:00 p. m., excluyendo los pagos por gastos fijos, los cuales deberán cancelarse por lo menos con un día de anticipación a su vencimiento.

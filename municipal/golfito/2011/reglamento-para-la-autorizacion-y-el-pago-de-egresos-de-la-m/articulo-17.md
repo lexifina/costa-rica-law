@@ -1,0 +1,1 @@
+Artículo 17.—Los cheques a proveedores podrán ser retirados todos los viernes después de la 1:00 p. m. y hasta las 4:30 p. m. en la Tesorería Municipal, departamento que tendrá en custodia los cheques debidamente confeccionados y deberá verificar la entrega satisfactoria a cada proveedor.
