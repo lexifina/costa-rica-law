@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Asam
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-19 | la propia norma |
+| 2 | 2012-01-24 | Acuerdo 42 (2012-01-24) |
