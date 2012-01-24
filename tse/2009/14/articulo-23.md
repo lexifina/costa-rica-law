@@ -1,1 +1,0 @@
-Artículo 23.—Uso personal de los dispositivos de identificación. Bajo ninguna circunstancia deberá compartirse la cuenta de usuario de dominio asignada por el Tribunal, ni la clave de acceso a dicha cuenta. Estas deberán manejarse conforme lo establezca la normativa interna del Tribunal y el usuario a quien se les asigne será la única responsable del uso que les dé.

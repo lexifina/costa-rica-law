@@ -1,1 +1,0 @@
-Artículo 26.—Uso de recursos informáticos fuera del Tribunal. Cuando los recursos informáticos del Tribunal sean utilizados fuera de sus instalaciones, éstos deberán ser protegidos en todo momento, por el usuario a su cargo. Aún fuera de las instalaciones del Tribunal, deben seguirse las prevenciones y recomendaciones del fabricante de los equipos.

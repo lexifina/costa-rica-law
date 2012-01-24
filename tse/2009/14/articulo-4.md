@@ -1,1 +1,0 @@
-Artículo 4º—Actualización de software. El detalle del software que el DTIC haya instalado en las computadoras propiedad del Tribunal será actualizado en las diferentes dependencias, conforme se adquieren nuevas versiones del mismo, previa comunicación a éstas para coordinar dichas labores.

@@ -1,1 +1,0 @@
-Artículo 14.—Traslado de equipos de cómputo a otras instituciones. Los equipos de cómputo no podrán ser trasladados a otras oficinas que no sean del Tribunal, salvo para alguna situación específica siempre que se cuente con la debida autorización de la Dirección Ejecutiva, lo cual se hará del conocimiento del DTIC.

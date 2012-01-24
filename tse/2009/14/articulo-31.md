@@ -1,1 +1,0 @@
-Artículo 31.—Ente contralor de los recursos informáticos. El DTIC del Tribunal, por medio de sus diferentes áreas (Área de Sistemas de Información y Gestión, Área de Desarrollo de Sistemas y Aplicativos, Área de Seguridad Informática y Área de Infraestructura de Tecnologías de Información) será el ente contralor de la administración de los recursos informáticos en el Tribunal.

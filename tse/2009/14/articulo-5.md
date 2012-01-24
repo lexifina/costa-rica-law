@@ -1,1 +1,0 @@
-Artículo 5º—Instalación de software. El software que debe residir en el disco duro de cada computadora y ser utilizado por los usuarios, es aquél que haya instalado el DTIC. En consecuencia, por ningún motivo los usuarios del Tribunal, podrán instalar en los discos duros de las computadoras, ni utilizar por medio de “diskettes”, llaves USB u otro medio, software no autorizado.

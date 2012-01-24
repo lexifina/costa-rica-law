@@ -1,1 +1,0 @@
-Artículo 11.—Revisión técnica de los equipos de cómputo. Los equipos recibidos de los proveedores serán revisados técnicamente por el DTIC antes de ser recibidos a satisfacción y distribuidos a las diferentes dependencias del Tribunal.
