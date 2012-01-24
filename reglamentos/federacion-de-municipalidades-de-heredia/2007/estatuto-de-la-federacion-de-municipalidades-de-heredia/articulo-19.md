@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Del Concejo Directivo
-Artículo 19.—El Concejo Directivo está constituido por un representante de cada municipalidad miembro de la Federación; cinco alcaldes propietarios escogidos por ellos mismos. Todos los miembros tendrán su respectivo suplente. El Concejo de cada una de las Municipalidad destinará cada año en el mes de mayo, dos regidores para integrarlo: uno de ellos actuará en calidad de miembro propietario y de otro como suplente, según sea designado por el mismo Concejo Municipal. Se entenderá que los regidores designados han sido reelegidos por un año más si en el transcurso del mes de mayo siguiente al de su nombramiento no se designa sustitutos y así sucesivamente hasta el vencimiento del periodo para el cual fueron electos regidores.
