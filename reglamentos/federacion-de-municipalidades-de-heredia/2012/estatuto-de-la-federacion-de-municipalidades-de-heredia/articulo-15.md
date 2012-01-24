@@ -1,0 +1,1 @@
+Artículo 15.—La Asamblea General sesionará ordinariamente una vez al año, durante el mes de julio y extraordinariamente por acuerdo del Consejo Directivo y / o cuando así lo solicite la mitad más uno los miembros de la Asamblea.
