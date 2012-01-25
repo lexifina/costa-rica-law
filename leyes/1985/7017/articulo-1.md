@@ -6,7 +6,7 @@ ANEXO "A" DEL CONVENIO SOBRE EL REGIMEN ARANCELARIO Y ADUANERO CENTROAMERICANO A
 NOTA DE SINALEVI: Mediante el decreto ejecutivo No. 33464 de 22 de noviembre de 2006, publicado en el Alcance No. 59 a La Gaceta No. 249 de 28 de diciembre de 2006, se publicó la Resolución No. 180 -2006 (COMIECO-XXXIX), la cual en el punto 1) indica:
 "1.Aprobar las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC), los resultados de la Cuarta Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías y los Derechos Arancelarios a la Importación (DAI), en la forma que se consigna en el Anexo 1 a la presente Resolución, el cual constituye el Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano."
 Por el momento, debido al tamaño del texto de la versión actualizada de la Cuarta Enmienda , no es posible visualizarlo en nuestra página.
-(Modificado por el artículo 1° del decreto ejecutivo N° 33580 del 8 de enero de 2007)(*)(Posteriormente por el artículo 2° del decreto ejecutivo N° 36940 del 13 de diciembre del 2011 se deja sin efecto el insiso arancelario 1103.19.90 mencionado en el artículo 1° del decreto 33580)
+(Modificado por el artículo 1° del decreto ejecutivo N° 33580 del 8 de enero de 2007)(*)(Posteriormente por el artículo 2° del decreto ejecutivo N° 36940 del 13 de diciembre del 2011, se deja sin efecto el insiso arancelario 1103.19.90 mencionado en el artículo 1° del decreto 33580 del 8 de enero de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33588 del 8 de enero de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33599 del 8 de enero de 2007)
 (Modificado por el artículo 1° del decreto ejecutivo N° 33579 del 8 de enero de 2007)
@@ -42,4 +42,11 @@ Por el momento, debido al tamaño del texto de la versión actualizada de la Cua
 (Modificado por Resolución N° 264-2011 (COMIECO-LX) del 27 de julio del 2011, aprobada mediante decreto ejecutivo N° 36761 del 18 de agosto del 2011)
 (Modificado por Resolución N° 266-2011 (COMIECO-LX) del 27 de julio del 2011, aprobada mediante decreto ejecutivo N° 36760 del 18 de agosto del 2011)
 (Nota de Sinalevi: Mediante decreto ejecutivo N° 36800 del 4 de octubre del 2011, publicado en el Alcance N° 102 a La Gaceta N° 240 del 14 de diciembre del 2011, se publicó la Resolución N° 263-2011 (COMIECO-LX), la cual en el punto 1) indica: "... 1) aprobó las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC), los resultados de la Quinta Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías, en la forma que se consigna en el Anexo a la Resolución de cita, el cual constituye el Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano...". Por el momento, debido al tamaño del texto de la versión actualizada de la Quinta Enmienda , no es posible visualizarlo en esta norma)
-(Modificado por Resolución N° 272-2011 (COMIECO-LXI) del 2 de diciembre del 2011, aprobada mediante decreto ejecutivo N° 36940 del 13 de diciembre del 2011)
+(Modificado por Resolución N° 272-2011 (COMIECO-LXI) del 2 de diciembre del 2011, aprobada mediante decreto ejecutivo N° 36940 del 13 de diciembre del 2011, la cual modificación Derechos Arancelarios a la Importación , aprueba la nota Complementaria Centroamericana al Capítulo 39, la apertura arancelaria y el Derecho Arancelario a la Importación )
+(Mediante Resolución N° 279-2011 (COMIECO-LXI) del 2 de diciembre del 2011, aprobada mediante decreto ejecutivo N° 36941 del 13 de diciembre del 2011, se aprueba la siguiente apertura arancelaria:
+CODIGO | DESCRIPCION | GUA % | ES % | HO % | NI % | CR %
+04.03 | SUERO DE MANTEQUILLA, LECHE Y NATA (CREMA) CUAJADAS, YOGUR, KEFIR Y DEMAS LECHES Y NATAS CREMAS FERMENTADAS O ACIDIFICADAS, INCLUSO CONCENTRADOS, CON ADICION DE AZUCAR U OTRO EDULCORANTE, AROMATIZADOS O CON FRUTAS U OTROS FRUTOS O CACAO | | | | |
+0403.10.00 | ++ SUPRIMIDA++ | | | | |
+0403.10 | - Yogur: | | | | |
+0403.10.10 | - - Leche fermentada tratada térmicamente | 15 | 0 | 35 | 40 | 65
+0403.10.90 | - - Otros | 15 | 40 | 35 | 40 | 65)
