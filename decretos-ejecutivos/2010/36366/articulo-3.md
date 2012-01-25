@@ -1,9 +1,13 @@
-Artículo 3º—El Ministerio de Seguridad Pública tendrá dos Viceministros (as), quienes tendrán a cargo las siguientes funciones:
-1) Ejercer las potestades que le confiere el ordenamiento a su calidad de superior(a) jerárquico(a) subordinado.
-2) Dirigir y coordinar las actividades internas y externas del Ministerio, sin perjuicio de las potestades del (de la) Ministro(a).
-3) Servir de enlace entre las dependencias del Ministerio y entre éste y otras instituciones del Estado.
-4) Realizar los estudios e investigaciones y reunir la información necesaria para la buena marcha del Ministerio.
-5) Requerir la ayuda del personal del Ministerio para el cumplimiento de sus deberes.
-6) Sustituir al (a la) Ministro(a) cuando así sea requerido.
-7) Encargarse de los programas que le sean asignados por el (la) Ministro(a) o la normativa vigente.
-8) Atender aquellas gestiones que le sean asignadas por el (la) Ministro(a).
+Artículo 3º- El Ministerio de Seguridad Publica tendrá dos Viceministros (as) operativos y un (a) Viceministro (a) Administrativo, los cuales ejercerán las atribuciones que determina el artículo 48 de la Ley General de la Administración Pública, dentro de la siguiente distribución organizativa, sin perjuicio de cualquier otra dependencia o función que se les asigne, o bien que de las que tengan asignadas les sean relevadas, por el (la) Ministro (a) de Seguridad Pública:
+1) Viceministro (a) Administrativo (a) ejercerá sus funciones respecto de la Dirección General Administrativa y Financiera y sus dependencias.
+2) Viceministro (a) de Unidades regulares bajo el mando de la Dirección de la Fuerza Pública y otras unidades coadyuvantes. Ejercerá sus funciones respecto de las siguientes áreas:
+2.1 Dirección General de la Fuerza Pública.
+2.2 Escuela Nacional de Policía.
+3) Viceministro (a) de cuerpos de policía especializada y otras unidades coadyuvantes.
+Ejercerá sus funciones respecto de las siguientes áreas:
+3.1 Dirección General de Armamento
+3.2 Dirección Servicios de Seguridad Privados
+3.3 Dirección Policía de Control de Drogas
+3.4 Servicio Nacional de Guardacostas
+3.5 Dirección Servicio de Vigilancia Aérea.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 36996 del 25 de enero del 2012)
