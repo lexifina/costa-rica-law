@@ -1,3 +1,4 @@
 Artículo 6º—De las Audiencias: Las audiencias deben ser solicitadas por escrito, describiendo su objetivo y con un tiempo de veinticuatro horas o más antes de la hora de inicio de la sesión, pudiendo hacer uso de la palabra tres personas. Debe ser presentada a la secretaría del Concejo, para que en esta se decida, si corresponde otorgar la audiencia o remitir ante la Administración Municipal.
-La secretaría brindará las audiencias los segundos y cuartos miércoles de cada mes, salvo los feriados, concediendo un máximo de tres audiencias por sesión.
+La secretaria brindará las audiencias los segundos y cuartos lunes de cada mes, salvo los feriados, concediendo un máximo de tres audiencias por sesión
+(Así reformado el párrafo anterior en sesión N° 91 del 25 de enero del 2012)
 Si la presidencia considera necesario conceder una audiencia extra por motivo de fuerza mayor a su juicio, podrá ubicarla dentro del orden del día y con un tiempo máximo de veinte minutos.

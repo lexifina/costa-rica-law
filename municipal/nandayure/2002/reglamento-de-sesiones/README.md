@@ -14,3 +14,4 @@ Reglamento de Sesiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-22 | la propia norma |
+| 2 | 2012-01-25 | Reglamento municipal 91 (2012-01-25) |
