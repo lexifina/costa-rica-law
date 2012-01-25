@@ -1,0 +1,1 @@
+Artículo 6º—Acceso. Tanto los archivos de gestión como el central deberán facilitar los documentos a las personas usuarias internas y externas, de acuerdo con lo que establecen los artículos 24 y 30 de la Constitución Política, los artículos 10 y 42 de la Ley del Sistema Nacional de Archivos.

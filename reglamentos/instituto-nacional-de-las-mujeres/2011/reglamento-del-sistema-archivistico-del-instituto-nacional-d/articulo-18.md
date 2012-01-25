@@ -1,0 +1,3 @@
+CAPÍTULO V
+Soportes electrónicos
+Artículo 18.—Digitalización de documentos. El proceso de microfilmación y digitalización de documentos estará a cargo del Archivo Central, el cual establecerá los procedimientos para tal efecto. Para el uso de cualquier otra tecnología que afecte el manejo documental en la Institución, se deberá coordinar con el Archivo Central, para que éste establezca los procedimientos respectivos. En caso de que alguna unidad administrativa desee aplicar cualquiera de los procesos aquí descritos (microfilmación, digitalización o nueva tecnología) al manejo documental, deberá coordinarlo de previo con el Archivo Central.

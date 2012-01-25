@@ -1,0 +1,1 @@
+Artículo 4º—Seguridad de los archivos de gestión. Los archivos de gestión deberán contar con las medidas de seguridad e infraestructura adecuadas (local, estantería, materiales, mobiliario, equipo técnico y contra incendios, entre otros) que permita una buena conservación de los documentos.

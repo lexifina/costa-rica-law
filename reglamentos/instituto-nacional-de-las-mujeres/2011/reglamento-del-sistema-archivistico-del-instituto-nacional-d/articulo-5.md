@@ -1,0 +1,1 @@
+Artículo 5º—Organización. El fondo documental que se conserva en los archivos de Gestión y Central se organizará por medio de los sistemas de clasificación y los métodos de ordenación archivísticos definidos y establecidos por el Archivo Central, respetando los principios de procedencia y orden original de los documentos.

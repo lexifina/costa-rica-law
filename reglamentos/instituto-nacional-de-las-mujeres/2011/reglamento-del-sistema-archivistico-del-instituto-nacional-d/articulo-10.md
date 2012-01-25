@@ -1,0 +1,5 @@
+Artículo 10.—Remisión de Documentos al Archivo Central. En el Archivo Central se reunirán los documentos custodiados por los archivos de gestión de las diferentes unidades administrativas, los cuales deberán ser remitidos dentro del período que fijan las tablas de plazos de conservación de documentos.
+La documentación que se remita al Archivo Central se hará de acuerdo con las siguientes especificaciones:
+a) El Archivo Central recibirá las remisiones documentales de acuerdo con el cronograma previamente elaborado y comunicado a las unidades administrativas, con la finalidad planificar y de cotejar las remisiones.
+b) La remisión de los documentos de los archivos de gestión de las diferentes unidades administrativas al Archivo Central, deberá hacerse de acuerdo con el procedimiento que establezca el Archivo Central para este fin.
+c) Los documentos microfilmados, digitalizados o en cualquier otro soporte ingresarán al Archivo Central con las respectivas micropelículas o microfichas, discos ópticos, o cualquier otro soporte que se utilice.

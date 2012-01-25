@@ -1,0 +1,1 @@
+Artículo 11.—Consulta y préstamo de documentos. La consulta o préstamos documentales remitidos al Archivo Central se tramitarán mediante el procedimiento que establezca la persona responsable del Archivo Central, el cual deberá ser de conocimiento de todo el personal y de acatamiento obligatorio.

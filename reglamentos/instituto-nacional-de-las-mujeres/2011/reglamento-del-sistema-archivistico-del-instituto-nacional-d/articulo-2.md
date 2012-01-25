@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El objeto del presente Reglamento es normar la gestión documental, así como la creación del Sistema Archivístico del Instituto Nacional de las Mujeres, el cual estará conformado por: El Archivo Central, los Archivos de Gestión de las diferentes unidades administrativas de la Institución y el Comité Institucional de Selección y Eliminación de Documentos.
