@@ -1,0 +1,1 @@
+TRANSITORIO II.- Mientras no entré a operar el sistema de trámite electrónico preliminar regulado por el artículo 7º de este Reglamento así como el trámite de revisión electrónica dispuesta por el ordinal 8, los usuarios deberán realizar el trámite en forma manual, sin perjuicio de la aplicación del resto del articulado de este Reglamento, en lo que sea pertinente.

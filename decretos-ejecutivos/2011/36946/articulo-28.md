@@ -1,0 +1,2 @@
+Artículo 28.- De la caducidad del trámite
+Los expedientes relativos a reglamentos internos cuya tramitación hubiere sido archivado o se encuentre suspendida por abandono de la persona empleadora durante más de seis meses, serán declarados caducos mediante resolución razonada, que será notificada a la parte interesada. Igualmente serán destruidos los expedientes relativos a reglamentos interiores de empresas y centros de trabajo que hayan liquidado o cesado en su actividad, después de un año de que tal hecho ocurra, dejando constancia de ello en los índices respectivos.

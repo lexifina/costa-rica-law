@@ -1,0 +1,3 @@
+Artículo 13.- Sobre los plazos para la audiencia
+De acuerdo con las previsiones del artículo anterior, el asesor dará una audiencia por quince días hábiles a las personas trabajadoras o al Comité según corresponda, misma que deberá otorgarse dentro de los cinco días hábiles siguientes a la fecha en que en el expediente administrativo se hayan completado todos los requisitos de admisibilidad, así como lo que indican los ordinales 8 y 9 de este Reglamento, cuando ello sea aplicable.
+Para este efecto, la persona empleadora aportará los teléfonos, el fax o los correos electrónicos pertinentes, a los efectos de poder realizar la consulta.

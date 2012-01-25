@@ -1,0 +1,2 @@
+Artículo 21.- Del ius variandi
+Cuando la vigencia de un Reglamento Interno entrañe modificaciones a las condiciones de trabajo con perjuicio de derechos adquiridos por las personas trabajadoras, podrán éstas, en cuanto dichas modificaciones no constituyan el ejercicio de una facultad legítima patronal, habida cuenta de su causa, naturaleza y entidad, poner término a los contratos individuales de trabajo dentro del mes siguiente a la fecha en que el reglamento interior entre en vigencia, con responsabilidad patronal, conforme a la ley.

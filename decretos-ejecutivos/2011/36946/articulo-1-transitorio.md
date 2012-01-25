@@ -1,0 +1,1 @@
+TRANSITORIO I.- Los usuarios que a la entrada en vigencia del presente reglamento tengan en trámite de aprobación un reglamento interno, podrán solicitar acogerse a los extremos del presente reglamento que juzguen más favorables a la consecución de un trámite más expedito del mismo.

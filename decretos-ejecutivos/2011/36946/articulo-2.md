@@ -1,0 +1,2 @@
+Artículo 2.- Definición de Reglamento Interno de Trabajo
+Por Reglamento Interno de Trabajo se entiende aquella normativa de uso interno elaborada por el patrono para regir lo atinente a las relaciones y condiciones laborales en los centros de trabajo, en conformidad con el ordenamiento jurídico laboral vigente y las características propias de cada actividad o industria, que una vez aprobado por las autoridades de trabajo competentes se constituye en una regulación de acatamiento general para la persona empleadora y sus representantes así como para las personas trabajadoras.
