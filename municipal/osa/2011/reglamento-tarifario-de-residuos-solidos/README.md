@@ -15,3 +15,4 @@ Reglamento Tarifario de Residuos Sólidos
 | --- | --- | --- |
 | 1 | 2011-10-25 | la propia norma |
 | 2 | 2012-01-04 | Reglamento municipal 1 (2012-01-04) |
+| 3 | 2012-01-25 | Reglamento municipal 4 (2012-01-25) |
