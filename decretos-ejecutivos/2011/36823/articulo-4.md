@@ -1,0 +1,2 @@
+Artículo 4º—De la organización interna del Comité. La coordinación del Comité corresponderá al representante titular del Ministerio de Ambiente, Energía y Telecomunicaciones en la persona del Director de Cambio Climático del MINAET o su suplente, quien presidirá, abrirá y cerrará las sesiones.
+De igual manera, corresponderá a la Dirección de Cambio Climático ejercer las funciones de Secretaría Técnica. Dicha Secretaría preparará el orden del día, llevará la agenda y las actas del Comité, las cuales deberá distribuirlas entre los miembros.
