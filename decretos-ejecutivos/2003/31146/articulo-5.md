@@ -1,1 +1,0 @@
-Artículo 5º—En caso que el solicitante no cumpla con los requisitos establecidos o no aporte los documentos indicados en este Decreto, se prevendrá al solicitante, para que en un plazo máximo de diez días hábiles aclare o complete la misma, caso contrario se archivará la solicitud.
