@@ -14,3 +14,4 @@ Reglamento de sesiones de la junta directiva de la Autoridad Reguladora de los S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-26 | la propia norma |
+| 2 | 2012-01-26 | Reglamento 3 (2012-01-18) |
