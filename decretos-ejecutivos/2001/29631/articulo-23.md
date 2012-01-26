@@ -1,8 +1,13 @@
 SECCIÓN TERCERA
 De las modificaciones a carreras y planes de estudios autorizados
-Artículo 23.—Una modificación a una carrera es todo cambio del plan de estudios aprobado por el CONESUP, que deberá tramitarse de la siguiente manera:
+Artículo 23.- Una modificación a una carrera es todo cambio del plan de estudios aprobado por el CONESUP, que deberá tramitarse de la siguiente manera:
 a) Se comunicará al CONESUP sólo para que tome nota, la actualización del contenido del curso, sistema de evaluación, bibliografía, ubicación en el plan de estudios y requisitos del curso. Estas modificaciones se podrán llevar a cabo una vez al año, por iniciativa de la universidad respectiva.
 b) Se solicitará la autorización del CONESUP cuando se trate de la modificación en el nombre del curso, la inclusión, supresión o sustitución del curso, objetivos generales y específicos del curso, requisitos de ingreso, de graduación, modificación del sesenta por ciento (60%) o más del contenido del curso y en el número de créditos de este.
 c) Igualmente requerirá autorización del CONESUP el cambio semántico en el nombre o en el perfil de la carrera. Asimismo, las modificaciones parciales al plan de estudios de una carrera, siempre que los cambios no afecten a más del 30% del total de los cursos o créditos de la carrera.
 Si las modificaciones planteadas excedieran lo señalado en el párrafo anterior, la propuesta deberá considerarse como una carrera nueva. Igualmente se procederá en el caso de la creación de un “énfasis o mención” en una carrera ya aprobada y, por tanto, todos estos casos se regirán por lo establecido en los artículos 14, 51 y siguientes de este Reglamento. Además la universidad deberá aportar el plan de estudios de la carrera en la que solicita crear el énfasis o mención.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35810 del 20 de enero de 2010)
+Se excluirán del anterior trámite ante el CONESUP, aquellas carreras que como resultado de la implementación de un plan de mejoramiento de su calidad, hayan sido oficialmente acreditadas por el Sistema Nacional de Acreditación de la Educación Superior (SINAES).
+En tal caso, la universidad cuya carrera haya sido acreditada deberá notificar la modificación efectuada al CONESUP dentro del mes siguiente a la fecha de emisión de dicha acreditación, para lo cual deberá presentar una certificación original emitida por el SINAES, la cual deberá indicar lo siguiente:
+a) Proceso de acreditación al que fue sometida la carrera.
+b) Modificaciones solicitadas al plan de estudios por parte de expertos académicos que hayan evaluado la carrera.
+c) Que la modificación efectuada fue objeto de una valoración y dictamen académico que determinó su pertinencia y adecuación al plan de mejoramiento aprobado por el Consejo Nacional de Acreditación para la Carrera.
+(Asi reformado por el artículo 1° del decreto ejecutivo N° 37036 del 26 de enero del 2012)
