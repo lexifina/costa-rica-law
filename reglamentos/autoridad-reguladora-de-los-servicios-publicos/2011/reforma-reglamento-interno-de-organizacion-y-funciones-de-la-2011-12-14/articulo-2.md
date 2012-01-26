@@ -1,0 +1,4 @@
+II. Modificar el transitorio III del reglamento de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, de manera que se lea de la siguiente forma:
+“Transitorio III. Con el fin de que no se produzca ninguna interrupción o suspensión de las actividades ordinarias y extraordinarias, de las funciones y de las tareas de la Autoridad Reguladora, la Dirección Administrativa Financiera asumirá las actividades y funciones gerenciales de administración financiera y de servicios generales, estipuladas en el Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, mientras que la Gerencia General se prepara para asumir dichas funciones directamente.
+Esta medida transitoria estará vigente hasta el 30 de junio del 2012”.
+Comuníquese y publíquese en el Diario Oficial La Gaceta.
