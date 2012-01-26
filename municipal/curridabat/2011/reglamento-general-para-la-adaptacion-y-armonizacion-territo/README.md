@@ -14,3 +14,4 @@ Reglamento general para la adaptación y armonización territorial del sistema d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-07 | la propia norma |
+| 2 | 2012-01-26 | Reglamento municipal 91 (2012-01-26) |
