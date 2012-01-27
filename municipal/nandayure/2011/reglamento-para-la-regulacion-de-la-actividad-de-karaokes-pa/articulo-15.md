@@ -1,0 +1,1 @@
+Artículo 15.—De la multa por falta de pago. Cuando el patentado incumpla o no cancele el impuesto correspondiente al permiso otorgado para la realización del karaoke, se impondrá una multa igual a cinco veces el monto dejado de pagar.

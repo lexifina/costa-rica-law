@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad de Nandayure eliminará el permiso de uso de karaoke en caso del incumplimiento de los artículos anteriores por un período de 6 meses a partir de la fecha de la trasgresión. En la segunda oportunidad, la sanción será por doce meses. Las violaciones al presente Reglamento acarrearán las sanciones establecidas en el artículo 81 bis del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 14.—Del pago por permiso de karaokes. Por la celebración de actividades de karaoke, se deberá pagar ante la Municipalidad, en razón de impuesto a espectáculos públicos la suma de quince mil colones.

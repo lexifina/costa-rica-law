@@ -1,0 +1,1 @@
+Artículo 10.—Del acatamiento a la Ley de Licores. Las cantinas y salones de baile donde se vayan a realizar actividades de karaoke deberán respetar la Ley de Licores artículos 10, 21 y 25; sin embargo si la actividad de karaoke no está ligada a la venta de licor, se permitirán menores de edad.

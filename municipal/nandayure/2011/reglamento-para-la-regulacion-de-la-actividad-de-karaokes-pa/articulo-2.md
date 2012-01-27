@@ -1,0 +1,1 @@
+Artículo 2º—Definición. Denomínase Karaoke aquel sistema amplificado de sonido que permite el canto de los parroquianos acompañados de pistas musicales pregrabadas. Considérese la actividad de Karaokes, como espectáculo público, cuya actividad es complementaria a la actividad principal del local comercial.
