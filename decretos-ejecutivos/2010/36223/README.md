@@ -15,3 +15,4 @@ Reglamento para la Regulación y Explotación de Servicios de Transporte Terrest
 | --- | --- | --- |
 | 1 | 2010-10-14 | la propia norma |
 | 2 | 2010-11-02 | Decreto Ejecutivo 36254 (2010-11-02) |
+| 3 | 2012-01-27 | Decreto Ejecutivo 37063 (2012-01-27) |

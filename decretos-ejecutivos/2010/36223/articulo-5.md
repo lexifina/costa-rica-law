@@ -1,5 +1,7 @@
 Artículo 5º—Obligaciones de los prestadores del servicio de transporte de turismo:
-a) Brindar el servicio solo a turistas nacionales o extranjeros y con unidades de transporte autorizadas.
+a) Brindar el servicio solo a turistas nacionales y/o extranjeros y con unidades de transporte autorizadas.
 b) Brindar el servicio en condiciones adecuadas y con la seguridad que su naturaleza lo exige.
 c) Cumplir con todas aquellas disposiciones que en este reglamento el Consejo de Transporte Público determine para su autorización.
-d) Contar con una bitácora de viaje para cada unidad de transporte.
+d) Cada vehículo deberá contar con una Hoja de Servicio para cada unidad de transporte, que deberá portar en el vehículo, y que contendrá la fecha, las horas de salida, el destino previsto, el nombre del conductor y de el o la guía turística, el nombre y el número de pasajeros y deberá exhibirse como documento que ampare el servicio respectivo, a solicitud de las autoridades de tránsito, del Consejo de Transporte Público o del Instituto Costarricense de Turismo. En caso de que el Transportista no porte dicho documento al momento de la realización de un servicio de transportación de turistas, será considerado como transporte informal y se sancionará conforme a lo establecido en la Ley de Transito vigente. El oficial de tránsito que aplique la sanción que corresponda, deberá informar de la misma a las autoridades del ICT y del CTP.
+e) Llevar una bitácora por cada unidad de transporte turístico, la cual se compondrá de las Hojas de Servicio, debidamente foliadas, y que deberá tener el Transportista bajo su custodia.
+(Así reformado por el artículo 5° del decreto ejecutivo N° 37063 del 27 de enero del 2012)
