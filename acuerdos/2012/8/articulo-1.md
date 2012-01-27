@@ -1,0 +1,7 @@
+CORPORACIÓN GANADERA
+(Nota de Sinalevi: La Corporación ganadera aprobó un nuevo Establece tributo por cada semoviente sacrificado para consumo interno, la exportación y las exportaciones de ganado bovino en pie o cada 200 kilogramos de carne importada en la sesión N° 351 del 14 de enero de 2013)
+La Corporación Ganadera informa en la sesión ordinaria de Junta Directiva Nº 323-2012 de la Corporación Ganadera, celebrada el día 09 de enero de 2012, se acuerda:
+Acuerdo 08-323-2012: En cumplimiento de lo que establece el artículo 7 de la Ley 7837 (Ley de Creación de la Corporación Ganadera) y los artículos 5 y 18 del Decreto Ejecutivo 30668 (Reglamento a la Ley de Creación de la Corporación Ganadera):
+(a) Se establece que el tributo por cada semoviente sacrificado para consumo interno, la exportación y las exportaciones de ganado bovino en pie; o cada 200 kilogramos de carne importada será de dos dólares estadounidenses (US$2.00), o su equivalente en moneda nacional para el año 2012.
+(b) Respecto a la entrada en vigencia del nuevo sistema de bandas cambiarías, la Junta Directiva acuerda: “Para el pago en colones de los tributos de matanza o sacrificio de ganado para consumo interno o exportación, de importación de carne bovina y de exportaciones de ganado en pie, se utilizará el tipo de cambio de referencia para la compra del dólar que fije el Banco Central de Costa Rica, vigente el último día de la semana calendario que se declare.” Acuerdo firme.
+17 de enero del 2012.
