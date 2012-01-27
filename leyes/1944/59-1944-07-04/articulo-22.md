@@ -1,3 +1,1 @@
-Artículo 22.- El Poder Ejecutivo, por medio de la Secretaría de
-Fomento, reglamentará la organización y funcionamiento de las diversas
-dependencias del Instituto.
+Artículo 22.- (Derogado por el artículo 5° de la ley N° 8905 del 7 de diciembre de 2010)
