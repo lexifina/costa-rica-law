@@ -1,1 +1,0 @@
-Artículo 7º—La autorización es estrictamente por el periodo solicitado. En casos de atraso por cualquier circunstancia especial deberá comunicarse tan pronto como sea posible a la persona que autorizó la gira.

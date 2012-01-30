@@ -1,1 +1,0 @@
-Artículo 6º—El Alcalde o la persona designada por este atenderán y autorizará las solicitudes de uso de vehículo mediante las fórmulas respectivas; debidamente llenas y con visto bueno del Director de Área.

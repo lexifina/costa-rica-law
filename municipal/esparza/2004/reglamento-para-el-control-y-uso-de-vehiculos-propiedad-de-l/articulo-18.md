@@ -1,1 +1,0 @@
-Artículo 18.—El Alcalde será la persona encargada de firmar las boletas de retiro de combustible, de lo cual dejará constancia en la boleta de control de uso de vehículo. Podrá delegar esta labor en otra persona, bajo su responsabilidad.
