@@ -14,3 +14,4 @@ Reglamento de Gestión de Cobro Administrativo y Judicial a Patronos Morosos del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-15 | la propia norma |
+| 2 | 2012-01-30 | Reglamento 4515 (2012-01-30) |
