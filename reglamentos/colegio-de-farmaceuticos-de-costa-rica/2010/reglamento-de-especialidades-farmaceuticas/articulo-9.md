@@ -35,6 +35,8 @@ d) Farmacia Industrial
 8) Visita Médica
 9) Mercadeo farmacéutico
 10) Tecnología farmacéutica
+11) Investigación, Desarrollo e Innovación de Medicamentos
+(Así adicionada la especialidad anterior mediante sesión de asamblea extraordinaria celebrada el 30 de enero de 2012)
 e) Farmacia Clínica y Atención Farmacéutica
 1) Atención farmacéutica
 2) Cuidados paliativos y control del dolor

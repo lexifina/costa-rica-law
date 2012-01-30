@@ -14,3 +14,4 @@ Reglamento de Especialidades Farmacéuticas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-22 | la propia norma |
+| 2 | 2012-01-30 | Acuerdo 0 (2012-01-30) |
