@@ -1,0 +1,1 @@
+Artículo 5º—El inmueble será de uso exclusivo para procesos de capacitación general, prohibiéndose todo tipo de fiestas, por lo que queda terminantemente prohibido el ingreso de bebidas alcohólicas, drogas y fumar dentro de las instalaciones.

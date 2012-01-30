@@ -1,0 +1,1 @@
+Artículo 3º—Considerará la administración, espacios en la calendarización, para la juventud, el deporte, la formación formal e informal, la cultura, y toda aquella actividad que considere conveniente que no contravenga este reglamento y ordenamiento jurídico vigente.

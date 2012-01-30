@@ -1,0 +1,1 @@
+Artículo 9º—Las actividades patrocinadas por la Municipalidad podrán utilizar el centro, aportando el 5% del precio establecido en el artículo 11 de este Reglamento. Estas actividades deben ser avaladas por el encargado de Cultura y Comisión de la Cultura Municipal.

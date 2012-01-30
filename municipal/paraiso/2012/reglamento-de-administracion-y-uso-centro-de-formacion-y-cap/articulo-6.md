@@ -1,0 +1,1 @@
+Artículo 6º—El uso de las instalaciones del Centro de Formación y Capacitación para los roles de ensayos y reuniones, es permitido hasta las 9 de la noche los días entre semana y los fines de semana de no ser arrendado el inmueble será permitido hasta las 10 de la noche.

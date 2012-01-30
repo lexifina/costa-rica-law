@@ -1,0 +1,1 @@
+Artículo 13.—La capacidad del inmueble permite 30 personas por habitación (una masculina y una femenina); total 60 hospedados. Se prohíbe terminantemente la estadía de hombres en las habitaciones de las mujeres y viceversa. O I

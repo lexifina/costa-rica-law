@@ -1,0 +1,1 @@
+Artículo 16.—En los casos de arrendamiento el arrendatario recibirá el bien en buen estado y se compromete a reparar cualquier daño o desperfecto que ocasionara, utilizando materiales de la misma calidad, con los que está construido el inmueble; pero bajo la supervisión de la administración del Centro de Formación.

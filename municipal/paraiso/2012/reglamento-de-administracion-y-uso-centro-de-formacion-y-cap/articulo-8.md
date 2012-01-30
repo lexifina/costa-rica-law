@@ -1,0 +1,1 @@
+Artículo 8º—Las agrupaciones dependientes de la municipalidad que utilizan el inmueble por más de una vez al año, deberán aportar el 50 del costo normal por día según el precio establecido en el artículo 11 de este mismo cuerpo normativo.

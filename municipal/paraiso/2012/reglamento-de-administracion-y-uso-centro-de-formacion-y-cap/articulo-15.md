@@ -1,0 +1,1 @@
+Artículo 15.—El arrendante no podrá subarrendar ni parcial, ni totalmente el inmueble, si lo hiciere el o la arrendante podrá rescindir del contrato unilateralmente y solicitará de inmediato el desalojo del inmueble.
