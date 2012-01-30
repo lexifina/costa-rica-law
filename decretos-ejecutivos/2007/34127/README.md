@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría General del Minist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-19 | la propia norma |
+| 2 | 2012-01-30 | Decreto Ejecutivo 37176 (2012-01-30) |
