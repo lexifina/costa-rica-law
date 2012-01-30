@@ -19,93 +19,72 @@ EL DIRECTOR DEL
 LABORATORIO COSTARRICENSE DE METROLOGÍA
 RESUELVE:
 Primero.—Publicar el Procedimiento para el Reconocimiento de Laboratorios Nacionales, aprobado en la sesión Nº 26 de la Comisión de Metrología como se detalla a continuación.
-NOTA: Este Procedimiento fue reformado parcialmente y reproducido su texto en forma íntegra, mediante resolución N° 110 del 4 de noviembre de 2008 y publicado en La Gaceta N ° 11 del 16 de enero de 2009, por lo que se reproduce a continuación:
-PROCEDIMIENTO PARA EL RECONOCIMIENTO
-DE LABORATORIOS NACIONALES
-1 OBJETIVO
-Establecer los requisitos mínimos para el reconocimiento Laboratorios Nacionales en aquellas magnitudes físicas y químicas en las que el LACOMET no tenga capacidad de ejecutarlas, con el fin de coadyuvar al establecimiento de una estructura metrológica nacional y proporcionar confianza en las transacciones de bienes y servicios.
+PROCEDIMIENTO PARA LA DESIGNACIÓN
+DE LABORATORIOS NACIONALES DE
+REFERENCIA EN METROLOGÍA
+1 OBJETIVO.
+Establecer los requisitos mínimos para el proceso de designación de los Laboratorios Nacionales de Referencia en Metrología en los alcances de aquellas magnitudes físicas y químicas en las que el LACOMET no tenga capacidad de ejecutarlas, con el fin de coadyuvar al establecimiento de una estructura metrológica nacional y proporcionar confianza en las transacciones de bienes y servicios.
 2 ÁMBITO DE APLICACIÓN
-Este procedimiento se aplica para todos los Laboratorios de Instituciones que soliciten el reconocimiento como Laboratorios Nacionales ante el LACOMET.
+Este procedimiento se aplica para todos los Laboratorios a ser designados como Laboratorios Nacionales de Referencia en Metrología en aquellos alcances que LACOMET no tiene capacidad de ejecutar.
 3 REFERENCIAS
 3.1 Instituto de Normas Técnicas de Costa Rica. “Requisitos generales para la competencia de laboratorios de ensayo y calibración”. INTE-ISO/IEC 17025:2005.
-3.2 Ley 8279 Sistema Nacional para la Calidad. Publicada el 21 de mayo de 2002, Diario Oficial La Gaceta N º 96.
-3.3 International Organization for Standardization. International Vocabulary of basic and general terms in Metrology. ISO Guide 99:1996.
+3.2 Ley 8279 Sistema Nacional para la Calidad. Publicada el 21 de mayo de 2002, Diario Oficial La Gaceta Nº 96.
+3.3 Joint Committee for Guides in Metrology. JCGM 200 – International vocabulary of metrology Basic and general concepts and associated terms (VIM). 3rd edition. 2008.
+3.4 Comité Internacional de Pesas y Medidas. Mutual recognition of national measurement standards and of calibration and measurement certificates issued by national metrology institutes. Paris, 14 October 1999 Technical Supplement revised in October 2003.
 4 DEFINICIONES
-Para el uso correcto de este documento se establecen las siguientes definiciones:
-4.1 Calibración: conjunto de operaciones que establecen, bajo condiciones especificadas (temperatura, presión, humedad relativa, entre otros), la relación entre los valores de magnitudes determinadas por un instrumento, sistema de medición, medida materializada o un material de referencia y los correspondientes valores de la magnitud realizados por patrones.
-4.2 Certificado de calibración: documento donde se consignan los resultados de una calibración de un instrumento de medición, en que se establece además de los resultados de la calibración, la corrección y la incertidumbre con un nivel de confianza determinado.
-4.3 Corrección: Valor agregado algebraicamente al resultado no corregido de una medición para compensar un error sistemático.
-4.4 División de la escala: parte de una escala comprendida entre dos marcas sucesivas.
-4.5 Escala (de un instrumento de medición): conjunto ordenado de marcas, con una numeración asociada, que forma parte de un dispositivo indicador de un instrumento de medición
-4.6 Incertidumbre (de una medición): Parámetro asociado con el resultado de una medición que caracteriza la dispersión de los valores, que razonablemente pudiera ser atribuida al mensurando.
-Ø Una medida del posible error en el valor estimado del mensurando proporcionado por el resultado de una medición.
-Ø Una estimación que caracteriza el intervalo de valores dentro de los cuales se halla el valor establecido como verdadero de un mensurando.
-4.7 Instrumento de medición: dispositivo destinado a ser utilizado para hacer mediciones, solo o en conjunto con dispositivos complementarios.
-4.8 Intervalo de medición (intervalo de trabajo): Conjunto de valores del mensurando que pueden ser medidos por un sistema de medición dado, con una incertidumbre especificada bajo condiciones definidas
-4.9 Lacomet: Laboratorio Costarricense de Metrología
-4.10 Laboratorio Nacional (en metrología): Laboratorio que cuenta con patrones nacionales de medición para asegurar la trazabilidad de las mediciones del país en una determinada magnitud.
-4.11 Método de medición: secuencia lógica de operaciones, descrita de manera genérica, utilizada en la ejecución de las mediciones.
-4.12 Metrología: ciencia de las mediciones, los métodos y los medios de medición (instrumentos o conjuntos de estos), que garantizan la uniformidad y exactitud requeridas en las mediciones.
-4.13 Patrón (de medición): Medida materializada, instrumento de medición, material de referencia o sistema de medición destinado a definir, realizar, conservar o reproducir una unidad o uno o más valores de una magnitud para utilizarse como referencia.
-4.14 Patrón nacional (de medición): Patrón reconocido por una decisión nacional en un país, que sirve de base para asignar valores a otros patrones de la magnitud concerniente.
-4.15 Procedimiento de medición: conjunto de operaciones, descrito específicamente, para realizar mediciones particulares, de acuerdo a un método determinado.
-4.16 Trazabilidad: propiedad del resultado de una medición o el valor de un patrón por el cual puede ser relacionado con los patrones de referencia, usualmente patrones nacionales o internacionales, a través de una cadena ininterrumpida de comparaciones, teniendo establecidas las incertidumbres.
+Para el uso correcto de este documento deben estudiarse las definiciones establecidas en el Vocabulario Internacional de Metrología (VIM) Referencia 3.3 de este documento.
+Adicionalmente, se establecen las siguientes definiciones:
+4.1 Certificado de calibración: Documento donde se consignan los resultados de una calibración de un instrumento de medición, en que se establece los resultados de la calibración, la corrección y la incertidumbre con un nivel de confianza determinado.
+4.2 Lacomet: Laboratorio Costarricense de Metrología.
+4.3 Laboratorio Nacional (en metrología): Laboratorio que cuenta con patrones nacionales de medición para asegurar la trazabilidad de las mediciones del país en una determinada magnitud.
+4.4 CIPM-MRA: Acuerdo de Reconocimiento Mutuo con el Comité Internacional de Pesas y Medidas.
 5 PROCEDIMIENTO
-5.0 El proceso para el reconocimiento de Laboratorios Nacionales se compone de tres etapas:
-a) Presentación de la solicitud de reconocimiento de laboratorios como laboratorios nacionales
-b) Evaluación de la competencia técnica del laboratorio mediante los procedimientos de acreditación del Ente Costarricense de Acreditación.
-c) Evaluaciones anuales de seguimiento mediante los procedimientos del Ente Costarricense de Acreditación.
-5.1 DOCUMENTACIÓN. REQUISITOS OBLIGATORIOS.
-Presentar ante el LACOMET la solicitud para el reconocimiento de Laboratorios Nacionales, (anexo que forma parte del presente procedimiento), indicando la(s) magnitud(es) en que desea ser reconocido. La documentación debe ser dirigida a la Dirección del LACOMET. De acuerdo a la solicitud, se debe indicar la siguiente información, la cual debe ser copia controlada de documentos internos del solicitante:
-5.1.1 Información general del laboratorio.
-5.1.2 Solicitud: Aportar información sobre la legalidad del laboratorio que debe ser firmada por el representante legal.
-5.1.3 Organización del laboratorio: En caso de que el laboratorio no pertenezca a una institución pública o académica, especificar la naturaleza de la misma. El laboratorio debe cumplir con la legislación vigente sobre requisitos tributarios, municipales, obrero-patronales, colegios profesionales, entre otros.
-Se debe incluir el organigrama del laboratorio y de la organización superior a la que pertenece.
-5.1.4 Capacidad de calibración y medición
-Indicar los nombres y cargos de las personas responsables de la validez técnica de los certificados emitidos por el laboratorio.
-El alcance del reconocimiento debe llenarse de acuerdo a la tabla indicada en el apartado 4.2 de la solicitud para el reconocimiento de laboratorios nacionales.
-5.1.5 Información del personal del laboratorio
-Indicar los nombres y cargos de las personas responsables del sistema de calidad, el responsable técnico del laboratorio y sus sustitutos.
-Aportar la información sobre formación profesional, experiencia y competencia técnica de las personas responsables de las calibraciones.
-5.1.6 Sistema de gestión de la calidad del laboratorio.
-El Sistema de Calidad del laboratorio, en el alcance pretendido para optar al reconocimiento como laboratorio nacional, debe cumplir con los requisitos de la norma INTE-ISO/IEC 17025 “Requisitos generales para la competencia de laboratorios de ensayo y calibración”, mediante la presentación de copia de la respectiva certificación extendida por el Ente Costarricense de Acreditación
-El laboratorio debe aportar una copia controlada del manual de calidad y una de la lista maestra de documentos del sistema de calidad, que incluya los procedimientos, instrucciones, formularios, etc. Se debe indicar el código del documento, nombre, fecha de emisión y versión.
-5.1.7 Equipos y patrones de calibración y/o medición
-El laboratorio debe adjuntar una lista con los equipos en funcionamiento y patrones que se utilicen para la ejecución de las calibraciones y/o mediciones para las cuales el reconocimiento es solicitado. Se debe señalar en esta lista, los patrones que podrían ser considerados como patrones nacionales, para que sean evaluados según los criterios establecidos por el Lacomet.
-En caso de que haya calibraciones internas, incluir en un anexo la lista de patrones que se utilizan para realizar las calibraciones y/o mediciones. La información debe detallarse de acuerdo con la tabla del apartado 7.1 de la solicitud.
-5.1.8 Procedimientos de calibración y/o medición
-El laboratorio debe anexar copia controlada de los procedimientos de calibración y/o medición para los cuales se solicita el reconocimiento. En caso de que estos procedimientos no incluyan el cálculo de la incertidumbre, se debe adjuntar además, el procedimiento respectivo.
-5.1.9 Instalaciones y condiciones ambientales
-El laboratorio debe aportar un plano de la distribución con respecto a la ubicación de los equipos utilizados para el desarrollo de las calibraciones y/o mediciones dentro del alcance del reconocimiento.
-Se debe aportar evidencia de un sistema de control de las condiciones ambientales en los casos en que estas influyan en el resultado final de la calibración y/o medición realizadas dentro del alcance del reconocimiento.
-5.1.10 Certificados de calibración
-Los certificados de calibración emitidos por el laboratorio deben estar conformes con los requisitos de la norma INTE-ISO/IEC 17025.
-El laboratorio debe aportar un formato de certificado de calibración, además del nombre y cargo del personal autorizado para la firma de estos documentos.
-5.1.11 Comparaciones interlaboratorio.
-El laboratorio debe adjuntar un listado de las comparaciones interlaboratorio en las que ha participado, indicando la fecha de participación, organizador, calibraciones realizadas y resultados obtenidos.
-5.1.12 Adhesivo de calibración
-El laboratorio debe aportar muestras del adhesivo (pegatina) que se colocará en el instrumento después de la calibración.
-5.2. Posterior a la evaluación de la documentación presentada por el laboratorio solicitante, el LACOMET rendirá un informe de conformidad respecto a los requisitos solicitados en el apartado 5.1 de este procedimiento.
-5.3 EVALUACIÓN DE COMPETENCIA TÉCNICA. REQUISITOS OBLIGATORIOS
-5.3.1 La evaluación de la competencia técnica seguirá los procedimientos del Ente Costarricense de Acreditación (ECA). El representante de la organización reguladora en el equipo evaluador del ECA será designado por LACOMET. Los expertos técnicos incluidos por el ECA en el equipo evaluador deberán ser aprobados por LACOMET. Los expertos técnicos deberán cumplir los requisitos de las organizaciones metrológicas internacionales en las que participe LACOMET, lo cual deberá ser confirmado por LACOMET.
-5.3.2 La evaluación de la competencia técnica se considerará efectiva cuando el ECA conceda la acreditación en el alcance solicitado por el laboratorio
-5.3.3 El laboratorio solicitante deberá aceptar que el ECA envíe a LACOMET copia de todos los informes técnicos durante el proceso de evaluación y mantenimiento de la acreditación.
-5.3.7 Una vez que el LACOMET compruebe que se cumplen los requisitos de esta resolución, se otorgará el reconocimiento como Laboratorio Nacional de Referencia en las magnitudes declaradas en el alcance del reconocimiento. Este reconocimiento tendrá una vigencia de 5 años.
-5.3.8 El Departamento de Metrología Física en conjunto con la Dirección del LACOMET serán los encargados de coordinar las acciones de reconocimiento así como dar seguimiento al mismo. Dentro de las acciones de reconocimiento se hará entrega de un certificado de reconocimiento, el cual contendrá como mínimo: el alcance del reconocimiento magnitud(es), nombre del Laboratorio Nacional de Referencia reconocido y la vigencia del mismo. Los laboratorios reconocidos se encontrarán en un listado actualizado en el sitio www.lacomet.go.cr.
-6 GENERALIDADES
-6.1 Requisitos técnicos.
-6.1.1 El Laboratorio Nacional reconocido deberá tener y mantener en condiciones óptimas patrones metrológicos en las áreas designadas, con incertidumbre al menos tres veces menor que el siguiente patrón cuya calibración sea necesaria en el país. Se puede aceptar una relación de incertidumbre de medición de 1:1 cuando técnicamente se demuestre que no se puede mejorar y satisfaga las necesidades del país.
-6.1.2 El Laboratorio Nacional reconocido deberá tener los patrones de la máxima jerarquía metrológica disponible al público a nivel nacional. En caso de que otro laboratorio supere en jerarquía metrológica y solicite el reconocimiento, LACOMET dará un año de plazo al ya reconocido para que iguale o supere el nivel técnico del nuevo solicitante, de lo contrario LACOMET procederá con el trámite del nuevo solicitante en los términos de este procedimiento..
-6.1.3 El Laboratorio Nacional reconocido deberá colaborar en la realización de comparaciones nacionales actuando como laboratorio piloto.
-6.2 El Laboratorio Nacional reconocido en las magnitudes que declara el alcance del Reconocimiento, deberá remitir al LACOMET:
-6.2.1 Un programa anual de calibraciones para garantizar la trazabilidad de los equipos y patrones que requieren para la realización de sus servicios.
-6.3 El Laboratorio Nacional reconocido en las magnitudes que declara el alcance del Reconocimiento deberá mantener dicha acreditación durante el período de vigencia del reconocimiento.
-6.4 El Laboratorio Nacional, puede optar por la aprobación de su sistema de calidad ante el Sistema Interamericano de Metrología, previa aprobación y coordinación del LACOMET ante los entes competentes.
-6.5 El LACOMET deberá ser invitado a participar como observador en las auditorías internas y revisiones por la dirección planificadas por los Laboratorios Nacionales reconocidos, como parte de la supervisión de la labor reconocida mediante el presente procedimiento.
-La detección por parte del LACOMET de cualquier incumplimiento de las cláusulas establecidas en el convenio y en este procedimiento por parte del Laboratorio Nacional reconocido, y no subsanadas en un plazo aprobado por LACOMET, será causa suficiente para dejar sin efecto el reconocimiento otorgado. El LACOMET procederá en estos casos a comunicar a los involucrados la información con respecto a la suspensión del reconocimiento, por los medios que considere convenientes.
-6.6 El LACOMET designa al Laboratorio Nacional reconocido ante las instancias nacionales u organizaciones internacionales en la representación de las actividades metrológicas del país, en actividades regionales, e internacionales, en las áreas y alcances especificados en el reconocimiento.
-6.7 El Laboratorio Nacional reconocido se compromete a proporcionar los recursos necesarios para la participación en las comparaciones interlaboratorio organizadas a nivel nacional e internacional, con el fin de demostrar su competencia técnica.
-6.7.1 El Laboratorio debe comunicar al LACOMET su participación en un estudio de comparación interlaboratorio, aportando la documentación del caso.
-6.7.2 El laboratorio debe comunicar al LACOMET sobre los resultados de su participación en las comparaciones interlaboratorio, una vez que el ente organizador haya emitido el informe final de la comparación. Una copia del mismo, debe ser remitida al LACOMET.
-6.8 El LACOMET publicará en el Diario Oficial La Gaceta una lista de los patrones nacionales reconocidos al Laboratorio Nacional de Referencia, así mismo esta lista estará a disposición en el sitio WEB del LACOMET.
-6.9 Los Laboratorios que ya han sido reconocidos mediante convenio antes de la entrada en vigencia de la presente publicación, deberán de presentar la documentación de solicitud en un período máximo de un año y de acuerdo con el procedimiento definido en esta publicación.
+5.0 REQUISITOS INICIALES
+Para postularse para ser designado como Laboratorio Nacional de Referencia en Metrología, un laboratorio o institución debe cumplir con los siguientes requisitos:
+a) Tener capacidad de medición y calibración en un alcance en el que el LACOMET no tenga capacidad de realizar.
+b) Dicho alcance de medición debe estar acreditado según la norma INTE-ISO/IEC 17025:2005, según los procedimientos del Ente Costarricense de Acreditación.
+c) Manifestar un compromiso expreso de cumplir con los requisitos establecidos para los laboratorios nacionales de metrología e institutos designados en el CIPM-MRA.
+5.1 POSTULACIÓN DEL LABORATORIO CANDIDATO. DOCUMENTACIÓN REQUISITOS.
+Presentar ante el LACOMET una declaración expresa indicando su postulación para candidato a ser designado como laboratorio nacional de referencia en metrología, indicando el alcance de medición y calibración. Adicionalmente se debe adjuntar a este documento la siguiente información:
+5.1.1 Capacidad de calibración y medición:
+a) Copia del certificado de acreditación emitido por el Ente Costarricense de Acreditación ( ECA ), así como el alcance de acreditación, que debe incluir el alcance con que se postula para ser designado.
+5.1.2 Equipos y patrones de calibración y/o medición
+a) Lista con los equipos en funcionamiento y patrones que se utilicen para la ejecución de las calibraciones y/o mediciones para las cuales la designación es solicitada. Se debe señalar en esta lista, los patrones que podrían ser considerados como patrones nacionales. Se deben distinguir los patrones que requieren ser calibrados en Institutos Metrológicos Nacionales de otros países, para su consideración especial para efectos de facilitar trámites aduanales y del costo adicional que implica el cumplimiento de los requisitos para la designación del laboratorio.
+5.1.3 Comparaciones interlaboratorio.
+Listado de las comparaciones interlaboratorio en las que ha participado, indicando la fecha de participación, organizador, calibraciones realizadas y resultados obtenidos. El LACOMET podrá solicitar a los organismos metrológicos internacionales, como el SIM , la participación de un laboratorio como candidato a designación, para facilitar el cumplimiento inicial de los requisitos de acreditación y del ARM del CIPM relativos a participación en comparaciones.
+5.2 La Dirección de LACOMET es la responsable de coordinar y dar seguimiento al proceso de designación de laboratorios nacionales durante el período de vigencia del mismo. La dirección de LACOMET debe solicitar, en coordinación con el Ente Costarricense de Acreditación, los expertos técnicos de otros Institutos Metrológicos Nacionales, necesarios para la evaluación “por pares” del designado en el alcance de la designación o en alguna ampliación propuesta del alcance de interés de ambas partes. Esta coordinación tiene como fin que el ECA cuente con informes técnicos para su proceso de evaluación para la acreditación, por expertos que cumplan los requisitos del SIM y del ARM del CIPM, y que el designado no incurra en costos extra por las labores de los expertos necesarios para el cumplimiento de los requisitos de la designación, debiendo el designado cubrir los gastos adicionales que requieran los expertos, como pasajes y viáticos.
+5.3 Se elabora un informe preliminar con los resultados del análisis de la información presentada, indicando la viabilidad de la designación. El LACOMET procurara obtener la opinión del Grupo de Trabajo en Metrología del Sistema Interamericano de Metrología, para el área metrológica respectiva.
+5.3.1 Si la designación no procede, se remite una respuesta al solicitante, con la justificación técnica del caso y se archiva el expediente.
+5.3.2 Si la designación es viable, se acuerda con el solicitante una fecha propuesta para visita al laboratorio solicitante.
+5.4 ANÁLISIS DE LA CAPACIDAD Y COMPETENCIA TÉCNICA DEL CANDIDATO A SER DESIGNADO. VISITA DE REVISIÓN DE LAS CAPACIDADES TÉCNICAS.
+5.4.1 El LACOMET y el ECA coordinan la evaluación del solicitante, donde se deben incluir expertos técnicos para que se cumplan los requisitos del ARM del CIPM, como “evaluadores pares” solicitados por LACOMET dentro de la colaboración del SIM u otros organismos metrológicos internacionales, que emitan informes que sirvan para el proceso de acreditación del ECA y que sirvan para el respaldo de las CMCs a ser sometidas en el proceso de revisión, aprobación y publicación en la base de datos en el BIPM del ARM del CIPM. El LACOMET también solicitará al ECA incluir en el equipo evaluador un observador del LACOMET, sin costo adicional para el solicitante.
+5.4.4 El observador del LACOMET en el equipo evaluador del ECA elabora un informe con los resultados de la visita y del proceso completo de análisis de la capacidad del laboratorio candidato para ser designado en el alcance, como prueba de cumplimiento de los requisitos de esta resolución y se presenta dicho informe a la Comisión de Metrología que será la que recomiende la designación.
+5.5 Una vez que el LACOMET compruebe que se cumplen los requisitos de esta resolución, se otorga, mediante la firma de un Convenio la designación como Laboratorio Nacional de Referencia en las magnitudes declaradas en el alcance de la designación.
+5.5.1 En el Convenio, el laboratorio candidato a ser designado se compromete, entre otras actividades, a:
+a) Tener y mantener en condiciones óptimas patrones metrológicos en las áreas designadas, con incertidumbre al menos tres veces menor (o mejor) que la tolerancia, o Máximo Error Permitido (MEP), de la clase de exactitud de este patrón, establecida de acuerdo con la norma o recomendación internacional que aplique, necesaria para la calibración a nivel nacional de los equipos de inferior nivel de exactitud que se encuentran dentro del ámbito de la designación. Dichos patrones deben contar con la máxima jerarquía metrológica a nivel nacional (mejor incertidumbre a nivel país). Nota: En algunos casos el estado del arte no permite una relación de incertidumbre de calibración mejora a 1:1.
+b) Tener los patrones de la máxima jerarquía metrológica disponibles para proveer servicios de calibración y medición al público en general a nivel nacional según sean requeridos. En caso de que otro laboratorio supere en jerarquía metrológica y solicite la designación, LACOMET dará un año de plazo al ya designado para que iguale o supere el nivel técnico del nuevo solicitante, de lo contrario LACOMET procederá con el trámite del nuevo solicitante en los términos de este procedimiento.
+c) Colaborar en la realización de comparaciones nacionales actuando como laboratorio piloto.
+d) Mantener la acreditación del alcance designado durante el período de vigencia del reconocimiento
+e) Proporcionar los recursos necesarios y realizar la declaración de sus Capacidades de Medición y Calibración (CMCs), de acuerdo a los procedimientos establecidos por el Sistema Interamericano de Metrología y el Buró Internacional de Pesas y Medidas, previa aprobación y coordinación del LACOMET ante los entes competentes.
+f) Invitar a LACOMET a participar como observador en las auditorías internas y revisiones por la dirección planificadas, como parte de la supervisión de la labor reconocida mediante el presente procedimiento.
+g) Proporcionar los recursos necesarios para la participación en las comparaciones interlaboratorio organizadas a nivel nacional e internacional, con el fin de demostrar su competencia técnica.
+h) Participar en comparaciones claves o suplementarias organizadas internacionalmente en el marco del CIPM MRA.
+i) Comunicar al LACOMET sobre los resultados de su participación en las comparaciones interlaboratorio, una vez que el ente organizador haya emitido el informe final de la comparación. Una copia del mismo, debe ser remitida al LACOMET.
+j) Tener disponibles, al público en general, los servicios de calibración y medición amparados bajo la designación. En los casos en que los servicios estén disponibles en el país por laboratorios secundarios el designado puede restringir estos servicios y limitar sus servicios a la calibración de patrones de los laboratorios secundarios, para mantener la disponibilidad de los servicios respectivos en el ámbito nacional.
+5.6 La Dirección de LACOMET hace entrega de un certificado de designación al laboratorio, el cual contendrá como mínimo: el alcance del reconocimiento magnitud(es), nombre del Laboratorio Nacional de Referencia designado y la vigencia del mismo.
+5.7 El LACOMET realiza un comunicado oficial sobre la designación del laboratorio ante las instancias nacionales u organizaciones internacionales en la representación de las actividades metrológicas del país, en actividades regionales, e internacionales, en las áreas y alcances especificados de la designación.
+5.8 El LACOMET publicará en el Diario Oficial La Gaceta la designación y el alcance de la misma para el Laboratorio Nacional de Referencia, una vez cumplidos todos los requisitos de este documento. Asimismo esta información estará disponible en el sitio WEB del LACOMET
+5.9 VIGENCIA. La designación tiene una vigencia de 5 años a partir de la fecha que ambas partes firmaron el Convenio. Puede ser extendido por períodos adicionales por acuerdo mutuo de ambas partes. Puede ser enmendado, previo acuerdo escrito de las dos partes, y puede ser resuelto con anticipación al vencimiento del plazo, siempre que medie comunicación por escrito con 30 días de anticipación, por parte del participante que desea finiquitar anticipadamente el acuerdo.
+5.10 MODIFICACION DE LA DESIGNACIÓN.
+5.10.1 La detección por parte del LACOMET de cualquier incumplimiento de las cláusulas establecidas en el convenio y en este procedimiento por parte del Laboratorio Nacional Designado, y no subsanadas en un plazo aprobado por LACOMET, será causa suficiente para dejar sin efecto la designación otorgada. El LACOMET procederá en estos casos a notificar a los involucrados la información con respecto a la suspensión de la designación, al lugar señalado al efecto para recibir notificaciones.
+5.10.2 El alcance de la designación podrá ser reducido o ampliado por solicitud justificada de las partes. El anexo del alcance de designación se deberá modificar de acuerdo con la ampliación y el designado debe presentar al LACOMET solamente la documentación adicional requerida por la ampliación. Para la ampliación de la designación se seguirá un procedimiento simplificado, donde el LACOMET comprobara la necesidad nacional y la correspondencia de la ampliación con las clasificaciones de servicios del BIPM, y el designado deberá obtener la ampliación de su acreditación. El periodo de designación se mantendrá como se acordó en la designación original.
+5.11 ACTIVIDADES CONJUNTAS Y DE SEGUIMIENTO A LA DESIGNACIÓN.
+5.11.1 LACOMET apoyará al Laboratorio designado, con calibraciones sin costo de equipos que miden magnitudes de influencia, para sus CMCs en las que cuente con capacidad técnica, para el adecuado mantenimiento de la acreditación y de la declaración ante el BIPM, así como con apoyo en temas de conseguir una apropiada estimación de incertidumbres de medida de acuerdo con los principios presentados en la Guía para la Expresión de la Incertidumbre en mediciones.
+5.11.2 Organización de actividades conjuntas, para el fomento de la competencia técnica de la red metrológica nacional, en el alcance del laboratorio designado, i.e. seminarios, charlas, capacitaciones, comparaciones nacionales, etc.
+5.11.3 Apoyo por LACOMET al designado para el trasiego en aduanas de patrones nacionales y de comparaciones.
+5.11.4 Seguimiento por parte del LACOMET:
+a) Participación del Lacomet en las actividades planificadas en el marco del sistema de calidad del laboratorio designado, i.e. Auditorías internas, revisión por la dirección, otras.
+b) Visita anual, coordinada con el ECA , con un observador Lacomet, del proceso, como parte del grupo evaluador ECA , bajo los requisitos del ECA para esta figura, dentro del proceso.
+c) Visita anual de revisión técnica por parte de LACOMET, para verificación del cumplimiento de los requisitos técnicos de este procedimiento y mantenimiento de la trazabilidad de las mediciones de los patrones nacionales.
+6. TRANSITORIO. Los Laboratorios que ya han sido designados mediante convenio antes de la entrada en vigencia de la presente publicación, deberán suscribir y rubricar el Convenio de Designación en un período máximo de 12 meses, a partir de la publicación en el Diario Oficial La Gaceta de la presente resolución, y de acuerdo con el procedimiento definido en esta publicación.
+(La reforma practicada a esta norma por resolución R-LACOMET-005 del 30 de enero de 2012, posteriormente fue derogada por resolución N° LCM-RES-111-2021 del 21 de mayo de dos mil veintiuno. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
