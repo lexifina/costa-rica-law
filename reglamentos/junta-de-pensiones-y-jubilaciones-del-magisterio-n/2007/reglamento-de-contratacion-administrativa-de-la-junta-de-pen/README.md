@@ -14,3 +14,4 @@ Reglamento de Contratación Administrativa de la Junta de Pensiones y Jubilacion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-16 | la propia norma |
+| 2 | 2012-01-31 | Reglamento 11 (2012-01-31) |
