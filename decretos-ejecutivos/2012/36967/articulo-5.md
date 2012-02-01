@@ -1,0 +1,1 @@
+Artículo 5º—Derogatorias. Se deroga el Decreto Ejecutivo Nº 36011-MINAET-S del 28 de abril del 2010, Reforma al artículo 72 del Decreto Ejecutivo número 30131-MINAE-S del 20 de diciembre del 2001, Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos, publicado en La Gaceta Nº 110 del 8 de junio del 2010.
