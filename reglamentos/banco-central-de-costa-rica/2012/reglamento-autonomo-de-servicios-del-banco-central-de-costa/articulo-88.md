@@ -1,0 +1,1 @@
+Artículo 88.—La Institución pagará todo el tiempo efectivamente laborado por recargo o sustitución de funciones previamente aprobadas por el Director de Departamento o de División según corresponda, incluyendo las ausencias que se produzcan en el período de recargo o sustitución no imputables al servidor o colaborador, tales como capacitación y días inhábiles.

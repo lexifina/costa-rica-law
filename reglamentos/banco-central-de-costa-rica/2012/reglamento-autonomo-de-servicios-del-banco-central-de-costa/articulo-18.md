@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier nombramiento que se realice en contravención de la normativa aplicable, se considerará nulo y constituirá falta grave para aquellos que teniendo la responsabilidad de su gestión no advirtieron sobre sus vicios.

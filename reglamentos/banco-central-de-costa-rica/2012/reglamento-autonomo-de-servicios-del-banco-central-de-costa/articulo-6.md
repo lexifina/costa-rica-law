@@ -1,0 +1,1 @@
+Artículo 6º—El interesado en establecer una relación de servicio o una relación laboral privada con la Institución solicitará, llenará y entregará una Oferta de Servicios ante el Departamento Gestión del Factor Humano.

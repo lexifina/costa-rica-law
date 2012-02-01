@@ -1,0 +1,7 @@
+Artículo 72.—Los traslados a plazas vacantes se regirán por las siguientes disposiciones:
+a. Cuando exista una plaza vacante en la Institución, de previo a someterla a concurso, el Departamento de Gestión del Factor Humano la promoverá internamente por los medios que estime pertinentes, con el fin que los servidores o colaboradores regulares que estén interesados en ocuparla manifiesten dicho interés.
+b. Únicamente aplicará para los servidores o colaboradores que estén ubicados en cargos con la misma categoría salarial u homóloga de la plaza vacante, de acuerdo con la Tabla de Equivalencias correspondiente.
+c. El servidor o colaborador debe satisfacer los requisitos académicos y laborales establecidos para el puesto al que desee trasladarse; debiendo aprobar las pruebas de idoneidad que se definan, en el caso que haya más de un interesado en el traslado.
+d. El Director de División y de Departamento o sus equivalentes según corresponda o en su defecto el Jerarca Superior Administrativo de la dependencia en que se ubica el cargo vacante, debe manifestar por escrito el resultado de la selección correspondiente. De igual modo deberá manifestar por escrito su anuencia a esos movimientos de personal.
+e. El servidor o colaborador trasladado estará sometido a un periodo de prueba según los términos indicados en el artículo 19 del presente Reglamento.
+Una vez aprobado el periodo de prueba, la plaza que deje vacante el servidor o colaborador trasladado será sometida a concurso.

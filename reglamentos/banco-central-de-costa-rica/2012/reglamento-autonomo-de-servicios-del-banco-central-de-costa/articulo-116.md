@@ -1,0 +1,1 @@
+Artículo 116.—Durante el trámite de denuncias de acuerdo a lo indicado en el artículo anterior, el Jerarca Superior Administrativo correspondiente, podrá ordenar de oficio o a solicitud de los afectados directos, su reubicación temporal, o cualquier otra medida cautelar que estime conveniente.

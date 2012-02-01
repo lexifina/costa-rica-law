@@ -1,0 +1,1 @@
+Artículo 67.—Los Jerarcas Superiores Administrativos correspondientes, nombrarán a las personas que ocuparán cargos con rango igual o superior al de Director de División, para lo cual tomará en cuenta los resultados del proceso de selección, la conveniencia institucional y la lista de elegibles que facilitará el Departamento Gestión del Factor Humano.

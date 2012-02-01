@@ -1,0 +1,1 @@
+Artículo 9º—Los oferentes externos que soliciten ser incluidos en el registro de oferentes, deberán cumplir con las pruebas necesarias para determinar su idoneidad.. Quienes aprueben estas pruebas, adquirirán el carácter de elegibles y deberán ser tomados en cuenta al momento de llenar plazas vacantes.

@@ -1,0 +1,1 @@
+Artículo 20.—Independientemente del artículo anterior, el superior inmediato deberá informar al Departamento Gestión del Factor Humano por escrito, de cualquier deficiencia que note en el desempeño de las funciones del servidor o colaborador durante el periodo de prueba.

@@ -1,0 +1,1 @@
+Artículo 48.—Corresponde a la Dirección del Departamento y División respectiva, velar que los servidores o colaboradores de las dependencias a su cargo no realicen, de manera permanente, labores diferentes a las previamente establecidas para su puesto de servicio. La infracción de esta disposición se considerará falta grave para los efectos de este Reglamento.

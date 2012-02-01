@@ -1,0 +1,2 @@
+Artículo 70.—Se prohíbe la ejecución de cualquier movimiento de personal que afecte permanentemente la relación de servicio o relación laboral en el tanto no esté respaldada por una acción de personal debidamente aprobada por el Departamento Gestión del Factor Humano.
+Incurrirá en las responsabilidades de orden administrativo, civil y penal que procedieren, aquel servidor o colaborador que incumpla esta prohibición.

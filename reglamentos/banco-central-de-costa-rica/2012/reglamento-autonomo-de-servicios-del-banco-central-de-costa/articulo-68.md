@@ -1,0 +1,2 @@
+Artículo 68.—Todo nombramiento en categoría superior, traslado o permuta quedará en firme al concluir el periodo de prueba, salvo que la Administración justifique dentro de este plazo la inconveniencia institucional de mantenerlo en el puesto, o bien el servidor o colaborador manifieste su deseo de regresar al cargo anterior.
+Durante el periodo de prueba citado las funciones del puesto del servidor o colaborador que fue nombrado en otra plaza, según la necesidad institucional, serán atendidas por el mecanismo de sustitución o recargo.

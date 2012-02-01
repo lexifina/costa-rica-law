@@ -1,0 +1,4 @@
+Artículo 65.—Para la aplicación del programa de retiro voluntario se establece lo siguiente:
+a. La Institución otorgará un incentivo adicional equivalente a cuatro veces el salario promedio mensual de los últimos seis meses efectivamente laborados por el servidor o colaborador.
+b. Únicamente serán elegibles para este programa de retiro voluntario aquellos servidores o colaboradores nombrados en propiedad, que no tengan pendiente de ejecución un acto de despido por causa justa; y que no tengan un procedimiento disciplinario pendiente.
+La Institución deberá cancelar al servidor o colaborador el importe por auxilio de cesantía equivalente a un mes de sueldo, calculado éste de acuerdo con lo preceptuado en los artículos 29 y 30, inciso b) del Código de Trabajo, por cada año de labores, hasta un máximo de ocho años, a menos que se tenga un mejor derecho.

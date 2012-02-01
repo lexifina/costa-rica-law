@@ -1,0 +1,16 @@
+# Reglamento (2012-01-11)
+
+Reglamento Autónomo de Servicios del Banco Central de Costa Rica y sus Órganos de Desconcentración Máxima
+
+- Tipo: Reglamento
+- Número: 5529
+- Fecha: 2012-01-11
+- Ente emisor: Banco Central de Costa Rica
+- Publicación: La Gaceta N° 23 del 2012-02-01
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=71923&param2=87515&param3=1 (ficha 71923)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2012-02-01 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 69.—Todo movimiento de personal, acto, disposición o resolución relativa a la relación de servicio o relación laboral formará parte del expediente personal físico o electrónico del servidor o colaborador según corresponda.

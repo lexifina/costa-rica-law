@@ -1,0 +1,1 @@
+Artículo 106.—La Institución concederá a toda servidora y colaboradora que haya concebido un hijo y este se encuentre en período de lactancia materna, una licencia con goce de salario equivalente a una hora diaria de la jornada ordinaria laboral, hasta el cumplimiento del primer año del lactante, salvo que por prescripción médica esta licencia deba extenderse.

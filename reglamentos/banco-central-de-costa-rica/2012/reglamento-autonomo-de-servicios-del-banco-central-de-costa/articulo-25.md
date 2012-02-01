@@ -1,0 +1,1 @@
+Artículo 25.—Los servidores de la Institución deben acatar las órdenes, instrucciones, circulares y directrices impartidas por las autoridades superiores con atribuciones y competencias para darlas. Las órdenes deben impartirse en forma clara, respetuosa y en estricto apego a la Ley.

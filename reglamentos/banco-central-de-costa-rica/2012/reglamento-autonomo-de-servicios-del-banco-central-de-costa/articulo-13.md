@@ -1,0 +1,1 @@
+Artículo 13.—El Departamento Gestión del Factor Humano mantendrá un Registro de elegibles actualizado para satisfacer las necesidades de personal de la Institución. Dicho registro se ordenará según el orden de los resultados obtenidos por los candidatos.

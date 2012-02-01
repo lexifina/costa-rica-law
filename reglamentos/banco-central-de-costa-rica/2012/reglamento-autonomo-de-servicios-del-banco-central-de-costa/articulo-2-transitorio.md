@@ -1,0 +1,1 @@
+Transitorio II.—Cuando la Junta Directiva del Banco Central defina las condiciones que tendrá el Sistema de Medición de Desempeño indicado en el artículo 26 del Reglamento, indicará lo que corresponda en relación con la eliminación del plus salarial “méritos”, por lo que este se mantendrá vigente hasta tanto no se efectué ese dimensionamiento.

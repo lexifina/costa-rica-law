@@ -1,0 +1,1 @@
+Artículo 5º—En el reclutamiento de aspirantes a ingresar a la Institución, o para la selección de un candidato, no se harán ningún tipo de discriminaciones, salvo las que estén permitidas en el ordenamiento jurídico por razones especiales.

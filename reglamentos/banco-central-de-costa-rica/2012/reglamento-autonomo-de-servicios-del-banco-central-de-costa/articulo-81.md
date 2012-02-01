@@ -1,0 +1,1 @@
+Artículo 81.—Cuando un servidor o colaborador haya asistido a una actividad de capacitación con plazo superior a cinco días hábiles en que medien facilidades de cualquier naturaleza otorgadas por la Institución, adquiere el compromiso de trabajar para ésta por un período mínimo de tres meses.

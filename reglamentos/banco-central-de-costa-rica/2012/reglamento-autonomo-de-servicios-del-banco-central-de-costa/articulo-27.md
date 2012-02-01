@@ -1,0 +1,1 @@
+Artículo 27.—A la entrada en vigencia del sistema de medición del desempeño de los servidores y colaboradores, los porcentajes de méritos ganados dentro del anterior sistema de evaluación del desempeño, se mantendrán como un plus salarial porcentual, estático e invariable.

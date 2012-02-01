@@ -1,0 +1,1 @@
+Artículo 107.—La Institución mantendrá el sistema de servicios de consulta de medicina general para sus servidores, el cual contará con la cantidad de personal, el equipo y el espacio necesarios para que su prestación sea eficiente y de calidad, dentro de un horario que se ajustará a las necesidades que atienda.
