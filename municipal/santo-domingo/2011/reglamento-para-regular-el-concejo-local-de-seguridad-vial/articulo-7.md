@@ -1,0 +1,1 @@
+Artículo 7º—El COLOSEVI deberá: a) llevar las actas de cada una de las reuniones, b) elaborar y presentar el plan operativo anual durante el mes de julio de cada año para su respectiva aprobación por parte del Concejo Municipal c) Ejecutar los proyectos cumpliendo con las normas de Contratación Administrativa y cualquier otra legislación aplicable según sea el caso.

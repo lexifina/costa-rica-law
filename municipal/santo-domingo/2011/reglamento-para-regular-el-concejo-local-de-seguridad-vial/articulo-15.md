@@ -1,0 +1,1 @@
+Artículo 15.—El COLOSEVI podrá efectuar alianzas estratégicas con entidades públicas o privadas a nivel cantonal, regional, .nacional o internacional siempre que estas sean en materia de seguridad vial.

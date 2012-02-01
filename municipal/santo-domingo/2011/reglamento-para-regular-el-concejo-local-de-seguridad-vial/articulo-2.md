@@ -1,0 +1,1 @@
+Artículo 2º—El objetivo primordial del COLOSEVI-Santo Domingo, es coordinar, formular, ejecutar, controlar y evaluar acciones completas sistemáticas a corto, mediano y largo plazo, de acuerdo con el Plan Nacional de la Seguridad Vial para la prevención de los accidentes de tránsito.

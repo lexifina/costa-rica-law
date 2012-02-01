@@ -1,0 +1,1 @@
+Artículo 10.—El COLOSEVI deberá solicitar por escrito al Concejo Municipal, interponer ante la organización e institución respectiva el retiro y la sustitución de sus representantes por incumplimiento en sus deberes o en su deceso, y las mismas nombrarán su nuevo representante con excepción de los nombrados por la Alcaldía Municipal

@@ -1,0 +1,2 @@
+Artículo 18.—Rige a partir de su publicación definitiva en el Diario Oficial La Gaceta.
+Tercero: Publíquese en el Diario Oficial La Gaceta. El Concejo conoce y aprueba modificaciones al “Reglamento para Regular el Consejo Local de Seguridad Vial” asimismo autoriza su publicación en el Diario Oficial La Gaceta. Se dispensa De trámite de comisión. Con base en el Artículo 45 del Código Municipal. Acuerdo definitivamente aprobado. Votos de los señores Regidores (a) Moreira Ramírez, Chacón Zamora, Zamora González, Villalobos Palma y Gonzáles Rodríguez.
