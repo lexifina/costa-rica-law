@@ -1,0 +1,1 @@
+Artículo 8º—Cada año, y de conformidad con el ciclo presupuestario de la municipalidad, la COMAD elevará al concejo un plan de actividades de la comisión con los requerimientos presupuestarios respectivos, y rendirá cuentas sobre el presupuesto asignado.

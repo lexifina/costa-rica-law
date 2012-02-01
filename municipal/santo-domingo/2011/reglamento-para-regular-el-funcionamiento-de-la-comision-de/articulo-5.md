@@ -1,0 +1,1 @@
+Artículo 5º—Las personas que se integren a la COMAD en calidad de asesoras (es), tendrán voz pero sin voto. Una vez que finalice el periodo de gobierno estas personas pueden ser reelectas como asesoras (es) la nueva comisión.

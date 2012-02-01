@@ -1,0 +1,1 @@
+Artículo 4º—Esta comisión estará integrada por un mínimo de dos regidores o regidoras del concejo municipal; así mismo podrán participar representantes de la administración y de la sociedad civil en calidad de asesores y asesoras, nombrados por el Concejo y deberán ser juramentados por la presidencia del Concejo oportunamente.

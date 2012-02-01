@@ -1,0 +1,1 @@
+Artículo 13.—La Municipalidad proporcionará de un espacio físico para que la COMAD realice sus actividades: reuniones, llamadas telefónicas, envío de faxes, instalación de un archivo y una computadora con Internet, sujeto a las disponibilidades presupuestarias y de espacio físico.

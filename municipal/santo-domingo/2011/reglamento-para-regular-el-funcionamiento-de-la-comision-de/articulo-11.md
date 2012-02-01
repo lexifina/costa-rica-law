@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad dispondrá de viáticos que les permitan a quienes integran la COMAD cubrir gastos de alimentación y transporte, en caso de que se requiera, para participar en diversas actividades relacionadas con la naturaleza de la misma, siguiendo lineamientos de la Contraloría General de la República.
