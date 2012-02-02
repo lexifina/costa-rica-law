@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza o rango: La Comisión de Asuntos Jurídicos es un órgano de apoyo a la Junta Directiva de Popular Pensiones S. A., en materia legal, con el objeto de analizar y estudiar asuntos con implicaciones de índole jurídico para la Operadora o los fondos que ella administra.
