@@ -1,0 +1,1 @@
+Artículo 14.—Políticas y procedimientos para el funcionamiento de la Comisión: La Comisión de Riesgo y Control de Popular Pensiones funcionará de acuerdo con lo establecido en el presente Reglamento y con la directrices aplicables para tal efecto.

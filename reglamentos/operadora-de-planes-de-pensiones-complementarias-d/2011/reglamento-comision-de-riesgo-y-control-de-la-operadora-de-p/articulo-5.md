@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia: La Comisión de Riesgo y Control depende de la Junta Directiva de Popular Pensiones y se podrá apoyar en el Comité de Riesgos y la Unidad de Riesgo de Popular Pensiones para el ejercicio de sus funciones.

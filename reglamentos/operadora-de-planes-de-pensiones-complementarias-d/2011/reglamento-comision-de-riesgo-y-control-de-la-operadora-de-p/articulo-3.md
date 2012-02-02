@@ -1,0 +1,1 @@
+Artículo 3º—Propósito: Este reglamento tiene como objetivo establecer y definir el accionar de la Comisión de Riesgo y Control de Popular Pensiones y cumplir con la normativa en materia de gestión de riesgos de la entidad y de los fondos administrados por ella.

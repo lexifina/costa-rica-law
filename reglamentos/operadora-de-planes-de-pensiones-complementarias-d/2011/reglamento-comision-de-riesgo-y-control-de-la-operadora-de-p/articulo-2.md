@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza o Rango: La Comisión de Riesgo y Control de la Operadora de Pensiones es un órgano de apoyo a la Junta Directiva de Popular Pensiones, en gestión integral de riesgo aplicable a Popular Pensiones y a los fondos que ella administra.

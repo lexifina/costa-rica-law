@@ -1,0 +1,1 @@
+Artículo 10.—Política de remuneración: Únicamente los miembros de la Comisión que pertenecen a la Junta Directiva de Popular Pensiones S. A. serán remunerados de conformidad con la normativa que rige al respecto.
