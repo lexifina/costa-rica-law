@@ -1,0 +1,1 @@
+Artículo 3º—Alcance y Propósito: El presente Reglamento es aplicable a la Comisión de Alternativas de Inversión de Popular Pensiones. Esta tiene como objetivo establecer y definir el accionar interno de esta Comisión como un órgano de apoyo a la Junta Directiva.

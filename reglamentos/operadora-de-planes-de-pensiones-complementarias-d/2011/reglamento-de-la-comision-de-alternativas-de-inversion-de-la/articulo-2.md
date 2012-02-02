@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza o Rango: La Comisión de Alternativas de Inversión es un órgano de apoyo a la Junta Directiva de Popular Pensiones, en gestión integral de inversiones y creación de productos bursátiles aplicables al Conglomerado y a los fondos que ella administra.

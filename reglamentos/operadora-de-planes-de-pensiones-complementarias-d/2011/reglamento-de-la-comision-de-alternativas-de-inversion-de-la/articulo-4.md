@@ -1,0 +1,1 @@
+Artículo 4º—Normativa de creación: El presente Reglamento se dicta de conformidad con lo establecido en el artículo No. 188 del Código de Comercio, y según lo establecido en el Reglamento Corporativo de Organización y Funciones de los Comités de Apoyo de las Juntas Directivas de las Entidades que Integran el Conglomerado Financiero Banco Popular y de Desarrollo Comunal.

@@ -1,0 +1,1 @@
+Artículo 14.—Políticas y procedimientos para el funcionamiento de la Comisión: La Comisión de Alternativas de Inversión de Popular Pensiones funcionará de acuerdo con lo establecido en el presente Reglamento y en la normativa que regula los mercados financieros costarricenses.

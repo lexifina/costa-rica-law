@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia: La Comisión de Alternativas de Inversión depende de la Junta Directiva de Popular Pensiones, además se apoya en el Comité de Inversiones para el ejercicio de sus funciones y de las sociedades del Banco Popular y de Desarrollo Comunal.
