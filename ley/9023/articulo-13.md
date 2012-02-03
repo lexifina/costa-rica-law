@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Actividades de agencias o sucursales
+El impuesto por actividades lucrativas desarrolladas en el cantón Central de Heredia por medio de agencias, sucursales, o camiones distribuidores se calculará sobre los ingresos brutos que reporte la casa matriz, según la declaración jurada municipal que presente el patentado. Los datos serán verificados por la Municipalidad del cantón Central de Heredia, de acuerdo con los procedimientos establecidos en esta ley y el Código de Normas y Procedimientos Tributarios.
