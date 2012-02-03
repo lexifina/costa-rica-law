@@ -1,0 +1,1 @@
+Artículo 39.—Solicitud de aclaración. En caso de que la Auditoría Interna determine que existe imprecisión de los hechos, se otorgará al denunciante un plazo no menor de 10 días hábiles para que complete su información, o de lo contrario se archivará o desestimará la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente, como una nueva gestión.

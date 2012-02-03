@@ -1,0 +1,1 @@
+Artículo 30.—Comunicación escrita. En forma posterior a la comunicación oral de resultados de los Servicios de Auditoría (financiera, tecnológica, operativa y de carácter especial) o conferencia final, ante los funcionarios responsables, se debe realizar la comunicación escrita y oficial de dichos resultados mediante informes.

@@ -1,0 +1,3 @@
+CAPÍTULO SÉTIMO
+Del trámite para la comunicación de Resultados
+Artículo 33.—Prevención sobre deberes en el trámite de informes. Para prevenir al Consejo Universitrio o a los titulares subordinados, según corresponda, sobre los deberes en el trámite de los informes, en especial en cuanto a los plazos que deben observarse, se debe incorporar en el informe un apartado con la transcripción de los artículos 36, 37 y 38 de la Ley General de Control Interno, así como el párrafo primero del artículo 39, para advertir sobre las posibles responsabilidades en que pueden incurrir debido al incumplimiento injustificado de los deberes de dicha ley.

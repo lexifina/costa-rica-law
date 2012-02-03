@@ -1,0 +1,3 @@
+Artículo 25.—Planificación. El Auditor Interno debe establecer planes basados en criterios razonables y fundamentados de conformidad con los manuales y directrices emitidas o que en el futuro emita la Contraloría General de la República.
+El proceso de la Planificación Estratégica de la Auditoría Interna debe ser congruente con su universo fiscalizable actualizado, la valoración del riesgo y los objetivos de la Universidad Estatal a Distancia.
+El Plan de Trabajo Anual (POA) debe ser congruente con la planificación estratégica, su contenido abarcará todas las actividades que se realizarán durante el año, debe mantenerse actualizado y expresarse adecuadamente en el presupuesto respectivo.

@@ -1,0 +1,1 @@
+Artículo 15.—Suspensión o remoción del Auditor Interno. En cuanto a la remoción o suspensión del Auditor Interno, se procederá de acuerdo con el Estatuto Orgánico de la UNED así como lo dispuesto en el artículo 15 de la Ley Orgánica de la Contraloría General de la República, los lineamientos y directrices emitidos o que en el futuro emita la Contraloría General de la República.
