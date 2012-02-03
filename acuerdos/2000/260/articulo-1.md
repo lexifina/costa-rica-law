@@ -5,10 +5,11 @@ Con fundamento en las prorrogativas y facultades conferidas en el artículo 140,
 ACUERDAN:
 Artículo1°_El Poder Ejecutivo ha determinado que, por razones de seguridad jurídica de los administradores y mientras se publica y resuelve del Concurso de Antecedentes a que se refiere el artículo 17 de la Ley N° 7969, se debe integrar un Tribunal Ad Hoc Administrativo de Transportes, el cual se conformará con los siguientes profesionales en Derecho:
 a) Sonia Muñoz Tuk, mayor, soltera, abogada, cédula de identidad N° 1 -705-833, quien presidirá.
-b) Marta Luz Pérez Peláez, mayor, divorciada, abogada, cédula de identidad N° 8-046-299, propietaria.
+b) Marta Luz Pérez Peláez, mayor, divorciada, abogada, cédula de identidad N° 8-046-299, propietaria
+(Nota de sinalevi: Mediante el acuerdo 015 del 3 de febrero del 2012 se designa como miembro suplente de la Lic Marta Luz Pérez Peláez al Lic Ronald Muñoz Corea a partir del 16 de junio del 2012)
 c) Carlos Miguel Portuguez Méndez, mayor, casado, abogado, cédula de identidad N° 1-674-774, propietario.
 d) Jorge Calvo Cascante, mayor, casado, abogado, cédula de identidad N° 3-222-207, suplente.
-Nota: Mediante el artículo 2° del acuerdo N° 071 del 22 de abril de 2008 se designan como miembros suplentes del “Tribunal Ad Hoc Administrativo de Transportes” a los siguientes funcionarios:
+(Nota: Mediante el artículo 2° del acuerdo N° 071 del 22 de abril de 2008 se designan como miembros suplentes del “Tribunal Ad Hoc Administrativo de Transportes” a los siguientes funcionarios:
 a) Lic. Ronald Muñoz Corea, cédula de identidad 1-659-765
 b) Licda. Maricela Villegas Herrera, cédula de identidad 1-879-057.
-c) Licda. Damaris Ramírez Ugalde, cédula de identidad 2-433-956.
+c) Licda. Damaris Ramírez Ugalde, cédula de identidad 2-433-956.)
