@@ -1,0 +1,5 @@
+Artículo 5º—Adiciónese el inciso e) al artículo 10º y el inciso u) al artículo 12º, ambos del Decreto Nº 35985-MOPT de fecha 16 de abril de 2010 publicado en el diario oficial La Gaceta No. 98 del 21 de mayo de 2010, para que se lea de la siguiente manera:
+Artículo 10º.—De los adjudicatarios. Toda persona que resulte adjudicataria en este concurso, deberá presentar: […]
+e) Suscripción en instrumento público del Consorcio Operativo conteniendo los requerimientos regulados en el artículo 4º del Decreto Nº 35847-MOPT.
+Artículo 12º.—Obligaciones de los concesionarios. Dentro de las obligaciones de los concesionarios de la base de operación especial del Aeropuerto Internacional Juan Santamaría se encuentran las siguientes: […]
+u) Con el fin de facilitar y ordenar la prestación del servicio en la base de operación especial aeroportuaria, los prestatarios del servicio deberán constituir un Consorcio Operativo en los términos del artículo 4º del Decreto Nº 35847-MOPT. Una vez elaborado dicho convenio el mismo deberá ser presentado ante el Consejo de Transporte Público para su refrendo e inscripción.
