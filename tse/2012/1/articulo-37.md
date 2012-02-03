@@ -1,0 +1,1 @@
+Artículo 37.—Ente contralor de los recursos informáticos. El DTIC del Tribunal, por medio de sus diferentes Secciones será el ente contralor de la administración de los recursos informáticos en el Tribunal.

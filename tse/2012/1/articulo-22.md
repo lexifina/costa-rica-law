@@ -1,0 +1,1 @@
+Artículo 22.—Diagnóstico de fallas técnicas. En ef caso de fallas técnicas del equipo de cómputo, las Secciones de SCTl y de ITI, según corresponda, realizarán un diagnóstico preliminar, con el objeto de procurar la solución, o en su defecto, girar las instrucciones del procedimiento a seguir para su reparación.

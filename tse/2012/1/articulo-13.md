@@ -1,0 +1,2 @@
+RESGUARDO Y USO DE LOS EQUIPOS INFORMÁTICOS
+Artículo 13.—Responsabilidad de las Jefaturas por el uso del equipo de cómputo. Toda Jefatura y encargados de las dependencias del Tribunal deberán asignar y controlar el uso de los activos dentro de su oficina e implementar controles apropiados para cada uno de ellos, además velarán por el uso adecuado y el cuidado del equipo de cómputo que tienen asignado en sus dependencias. Cuando se compruebe negligencia de su parte, será responsable conjuntamente con el usuario principal.

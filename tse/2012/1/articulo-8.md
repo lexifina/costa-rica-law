@@ -1,0 +1,1 @@
+Artículo 8º—Instalación de equipo. Una vez aceptados los equipos, el DTIC en coordinación con la Sección a su cargo que corresponda, procederá oportunamente a su instalación en las oficinas respectivas, para lo cual se debe verificar la existencia del número de identificación patrimonial asignado por la Proveeduría y registrarlos en el control que lleva la Sección de SCTI.

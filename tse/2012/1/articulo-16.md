@@ -1,0 +1,1 @@
+Artículo 16.—Revisión técnica de los equipos de cómputo. Los equipos recibidos de los proveedores serán revisados técnicamente por las Secciones de SCTI y de ITI, según corresponda antes de ser recibidos a satisfacción y distribuidos a las diferentes dependencias del Tribunal.

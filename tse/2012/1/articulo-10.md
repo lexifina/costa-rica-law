@@ -1,0 +1,1 @@
+Artículo 10.—Actualización de software. El detalle del software que la Sección de SCTI haya instalado en las computadoras propiedad del Tribunal será actualizado en las diferentes dependencias, conforme se adquieren nuevas versiones del mismo, previa comunicación a éstas para coordinar dichas labores.
