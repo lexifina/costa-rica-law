@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Confidencialidad de la información
+La información suministrada por los contribuyentes a la Municipalidad tiene carácter confidencial respecto de terceros, de acuerdo con el artículo 117 del Código de Normas y Procedimientos Tributarios. Esta información podrá brindársele únicamente al patentado, su representante legal, a quien este autorice por escrito o a la Dirección General de Tributación. Cualquier violación a esta confidencialidad se castigará con las penas que señala la Ley N.° 837, de 20 de diciembre de 1946, y sus reformas.

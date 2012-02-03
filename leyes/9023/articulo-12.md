@@ -1,0 +1,7 @@
+ARTÍCULO 12.- Imposición para actividades conjuntas
+Cuando en un mismo establecimiento dos o más patentados realicen actividades conjuntamente, el monto de la imposición lo determinará la suma total del impuesto que corresponda a cada uno individualmente.
+Los contribuyentes pagarán el impuesto de patentes de conformidad con los siguientes criterios:
+Salones de diversión en los que se exploten juegos de habilidad o aleatorios permitidos por ley, excepto los casinos, que pagarán de conformidad con el artículo 15 de esta ley, de acuerdo con las siguientes categorías: primera siete por ciento (7%) trimestral del salario base; segunda cuatro por ciento (4%) trimestral del salario base, tercera dos por ciento (2%) trimestral del salario base; la Municipalidad establecerá las categorías tomando en cuenta la ubicación, el número de mesas de juego o similares, la calidad y presentación del local y la circunstancia de si el salón es exclusivo para la actividad o si es complementaria de otras principales dentro del mismo edificio.
+Máquinas de juegos en las que el usuario no perciba dineros en efectivo, billares y similares uno por ciento (1%) trimestral del salario base por cada máquina o mesa, según corresponda.
+Las actividades no contempladas en este artículo pagarán el impuesto de conformidad con lo establecido en el artículo 15 de la presente ley.
+Para efectos de este artículo se considera salario mínimo el establecido en el artículo 2 de la Ley N.º 7337, de 5 de mayo de 1993.

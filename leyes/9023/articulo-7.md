@@ -1,0 +1,3 @@
+ARTÍCULO 7.- Contribuyentes al régimen simplificado
+En el caso de los contribuyentes que se hayan acogido al régimen simplificado de la Dirección General de Tributación o similar, además deberán aportar copias certificadas de las declaraciones presentadas que los catalogue como tales o, en su defecto, copia legible de la declaración que para tal efecto exige la Dirección General de Tributación.
+La Municipalidad de Heredia, por medio del Departamento de Rentas y Cobranzas, recibirá las solicitudes acompañadas de los documentos requeridos, preparará el expediente y determinará el monto del impuesto respectivo. El plazo para resolver las solicitudes, con todos los requisitos presentados, no podrá ser mayor a treinta días naturales.
