@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación
+Estas disposiciones serán de acatamiento obligatorio para las entidades aseguradoras y reaseguradoras, intermediarios de seguros, incluidos los operadores de seguros autoexpedibles, proveedores de servicios auxiliares de seguros, oficinas de representación y proveedores transfronterizos de servicios de seguros y relacionados con seguros, que deseen utilizar un nombre comercial que identifique y distinga sus establecimientos comerciales.
