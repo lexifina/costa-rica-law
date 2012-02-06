@@ -1,0 +1,1 @@
+Artículo 8º—Todo movimiento de zonaje: ingreso, traslado, finalización, deberá efectuarse por medio de una Acción de Personal, donde deberá indicarse el monto del zonaje, el domicilio legal del servidor, el lugar de prestación de sus servicios, sitio de traslado, y el lugar donde fue originalmente contratado.

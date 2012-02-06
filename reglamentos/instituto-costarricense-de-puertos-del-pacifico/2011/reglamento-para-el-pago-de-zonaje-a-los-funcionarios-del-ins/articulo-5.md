@@ -1,0 +1,1 @@
+Artículo 5º—La Unidad de Capital Humano realizará el estudio correspondiente para el reconocimiento de zonaje al funcionario que lo solicite, para determinar si procede o no el pago de zonaje de acuerdo con lo estipulado en este Reglamento.

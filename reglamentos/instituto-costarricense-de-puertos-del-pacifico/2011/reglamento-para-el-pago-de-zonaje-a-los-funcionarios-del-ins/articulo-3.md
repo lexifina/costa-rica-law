@@ -1,0 +1,6 @@
+Artículo 3º—Definiciones: Para efectos del presente Reglamento, se entiende por:
+INCOP: Instituto Costarricense de Puertos del Pacífico.
+Zonaje: Compensación económica adicional que reciben los servidores del Instituto Costarricense de Puertos del Pacífico (INCOP) cuando en virtud de un traslado instado por la Administración tengan que prestar sus servicios por un período superior a un mes, en una dependencia situada en lugar distinto al de su domicilio legal, distante al de su contratación y se justifique tal compensación por los gastos extraordinarios en que incurren en razón del traslado. Dicho traslado deberá ser de interés institucional, justificado técnicamente por la Dirección respectiva y contar con el visto bueno del Gerente General o el funcionario que él autorice.
+Domicilio Legal: Último lugar de residencia registrado por el funcionario y que conste en el expediente que al efecto lleva la Unidad de Capital Humano.
+Domicilio Accidental: Lugar al cual el funcionario tenga que trasladar su residencia para desarrollar sus funciones, de acuerdo con los requerimientos de la Administración Pública, sin que necesariamente tenga que cambiar su domicilio electoral.
+Beneficiario: Funcionario o funcionaria del INCOP que goza del beneficio de zonaje.

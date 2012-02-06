@@ -1,0 +1,1 @@
+Artículo 13.—Los trabajadores que devenguen zonaje podrán cobrar viáticos cuando por motivo de sus funciones, deban movilizarse fuera de la zona dentro de un radio no menor de 15 kilómetros, dichos gastos (alimentación, hospedaje, pasajes) se regirán por el Reglamento de viáticos vigente.

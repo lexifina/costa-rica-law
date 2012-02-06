@@ -1,0 +1,1 @@
+Artículo 21.—Con la entrada en vigencia del presente Reglamento se deroga el Reglamento para el Pago de Zonaje a los Servidores del Instituto Costarricense de Puertos del Pacífico, aprobado por acuerdo 4-sesión Nº 3464 del 4 de diciembre de 2007. Oficio Nº 360 de Junta Directiva, publicado en La Gaceta Nº 251 del 31/12/07.
