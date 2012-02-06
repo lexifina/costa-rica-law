@@ -14,3 +14,4 @@ Reglamento sobre la transparencia ante el usuario financiero en la prestación d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-27 | la propia norma |
+| 2 | 2012-02-06 | Reglamento 959 (2012-02-06) |

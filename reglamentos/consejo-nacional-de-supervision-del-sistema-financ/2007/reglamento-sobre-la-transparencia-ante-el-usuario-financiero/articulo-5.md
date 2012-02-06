@@ -1,5 +1,7 @@
-Artículo 5º—Publicidad errónea o engañosa. Los criterios para determinar si existe publicidad errónea o engañosa de productos financieros, considerando la naturaleza del medio utilizado para su difusión, son los siguientes:
-a) Veracidad: La información debe corresponder a los términos o características reales del producto financiero.
+Artículo 5º—Publicidad errónea o engañosa. Los criterios para determinar si existe publicidad errónea o engañosa de productos y servicios financieros(*), considerando la naturaleza del medio utilizado para su difusión, son los siguientes:
+(*)(Así reformado en sesión N° 959 del 6 febrero de 2012)
+a) Veracidad: La información debe corresponder a los términos o características reales del producto y servicio financiero(*)
+(*)(Así reformado en sesión N° 959 del 6 de febrero del 2012)
 b) Claridad: El contenido debe ser expuesto sin omitir información relevante para entender la naturaleza del producto ni utilizar expresiones ambiguas. Por ejemplo, en la divulgación de tasas de interés y cuotas, éstas deben corresponder a la misma moneda o unidad de cuenta en que se formaliza la operación, o cuando en la difusión de tasas de interés se muestran ventajas parciales con porcentajes expuestos de manera inexacta o incompleta.
 c) Legibilidad: La publicidad debe permitir la fácil y adecuada lectura de su contenido. Cuando la publicidad incluya varias tasas de interés, debe utilizarse el mismo tipo de letra para cada una de ellas.
 d) Contraste: La relación entre el fondo y el texto superpuesto utilizado en la publicidad de diferentes tasas de interés o cuotas deben ser iguales entre ellas.
