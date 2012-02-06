@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 14.—Caución mínima. El monto mínimo de la garantía a favor del Instituto Costarricense de Puertos del Pacífico será el equivalente a dos y medio salarios base del salario de un Oficinista del Servicio Civil 2. Anualmente, la Jefatura de la Unidad de Capital Humano, informará los montos actualizados para cada nivel por caucionar, tomando como parámetro el salario base del Oficinista del Servicio Civil 2 establecido por la Autoridad Presupuestaria a inicio de año. Dicha actualización será comunicada por documento escrito o medio electrónico tanto a la Dirección Administrativa Financiera, como a la Jefatura de Tesorería.
+Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, contarán para ello con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicha comunicación.

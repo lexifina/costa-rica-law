@@ -1,0 +1,1 @@
+Artículo 15.—Cálculo de la caución en el estrato I. Quienes desempeñen puestos clasificados dentro del estrato I, deberán de rendir una caución equivalente a cinco salarios base de un Oficinista del Servicio Civil 2.

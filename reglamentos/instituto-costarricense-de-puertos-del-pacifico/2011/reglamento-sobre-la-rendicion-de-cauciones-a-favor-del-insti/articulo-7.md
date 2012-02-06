@@ -1,0 +1,1 @@
+Artículo 7º—Caucionantes del estrato I. En este nivel deben rendir caución para el ejercicio de sus cargos los miembros de la Junta Directiva, Presidente Ejecutivo, Gerente General, Subgerente, el Secretario Fiscalizador de Concesiones, el Asesor Legal y los Directores de Área.

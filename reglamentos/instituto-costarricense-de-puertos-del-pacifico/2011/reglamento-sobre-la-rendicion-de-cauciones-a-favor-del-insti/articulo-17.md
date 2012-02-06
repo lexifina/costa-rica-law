@@ -1,0 +1,1 @@
+Artículo 17.—Cálculo de la caución en el estrato III. Quienes desempeñen puestos clasificados dentro del estrato III, deberán de rendir una caución equivalente a dos y medio salarios base de un Oficinista del Servicio Civil 2.

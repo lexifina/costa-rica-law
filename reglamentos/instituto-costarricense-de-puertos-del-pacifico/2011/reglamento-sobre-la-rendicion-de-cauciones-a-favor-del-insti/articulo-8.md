@@ -1,0 +1,1 @@
+Artículo 8º—Caucionantes del estrato II. En este nivel deben rendir caución para el ejercicio de sus cargos, los Encargados de Contabilidad, Proveeduría Institucional y Tesorería, así como la Comisión de Contratación Administrativa.

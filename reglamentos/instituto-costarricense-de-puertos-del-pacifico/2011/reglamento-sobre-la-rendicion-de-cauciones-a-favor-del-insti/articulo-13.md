@@ -1,0 +1,1 @@
+Artículo 13.—Eliminación de la caución. El caucionante que sea trasladado a un puesto que no esté contemplado en ninguno de los estratos definidos para los caucionantes, cesará con su obligación de caucionar a partir de la fecha de su nuevo nombramiento.
