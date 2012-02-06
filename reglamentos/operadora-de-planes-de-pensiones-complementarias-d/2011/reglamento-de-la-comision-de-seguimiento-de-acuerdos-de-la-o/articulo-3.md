@@ -1,0 +1,1 @@
+Artículo 3º—Propósito: Este reglamento tiene como objetivo establecer y definir el accionar interno de la Comisión de Seguimiento de Acuerdos de Popular Pensiones como órgano de apoyo de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza o rango: La Comisión de Seguimiento de Acuerdos de la Operadora de Pensiones es un órgano de apoyo a la Junta Directiva de Popular Pensiones para brindar el seguimiento oportuno a la atención de acuerdos de dicha Junta.

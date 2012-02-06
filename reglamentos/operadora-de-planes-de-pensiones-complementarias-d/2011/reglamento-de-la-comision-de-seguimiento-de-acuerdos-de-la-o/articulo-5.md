@@ -1,0 +1,1 @@
+Artículo 5º—Dependencia: La Comisión de Seguimiento de Acuerdos depende de la Junta Directiva de Popular Pensiones S.A., y se apoya para el ejercicio de sus funciones, y cuando ésta así lo requiera, en la Gerencia de la Operadora.
