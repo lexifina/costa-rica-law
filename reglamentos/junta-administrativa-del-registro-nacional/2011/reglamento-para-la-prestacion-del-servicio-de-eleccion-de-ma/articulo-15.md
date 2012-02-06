@@ -1,0 +1,1 @@
+Artículo 15.—Consecuencias de la caducidad del plazo de la elección: Cumplido el plazo de los treinta días naturales de la elección, la solicitud de servicio se cancelará y como consecuencia la numeración elegida podrá asignarse a otro usuario. No procederá resarcimiento alguno en tal supuesto.

@@ -1,0 +1,1 @@
+Artículo 7º—Legitimación para solicitar la elección de matrícula: Mediando el respectivo precio público por el servicio, todo usuario podrá solicitar la elección de matrícula sin importar su condición o interés respecto al automotor, en tanto el servicio se asocia directamente al bien.
