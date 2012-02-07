@@ -1,0 +1,1 @@
+Artículo 14.—Surf: Cualquier persona que practique el surf en las playas del Parque, estará obligada a mantener en todo momento atada a su pie la tabla de surf (uso obligatorio de la correa). No se permitirán torneos o competencias de surf durante la temporada de anidación de la tortuga baula, ni la práctica de este deporte entre las 18:00 y 5:00 horas.

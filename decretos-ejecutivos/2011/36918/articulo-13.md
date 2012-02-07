@@ -1,0 +1,1 @@
+Artículo 13.—Viajes recreativos en el manglar: Únicamente se permitirá el uso de embarcaciones de remos o motores eléctricos en el Estero San Francisco. En el Estero Tamarindo solamente se permite navegar con motores eléctricos, motores de cuatro tiempos o botes a remo. Queda prohibido el uso de motos acuáticas.

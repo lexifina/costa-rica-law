@@ -1,0 +1,6 @@
+CAPÍTULO SEGUNDO
+Zonificación
+Artículo 5º—Para los efectos del presente reglamento, se establece la siguiente zonificación:
+a) Zona de Uso Público Extensivo: Es el área donde se permiten actividades recreativas que no afecten las características naturales del área, en la cual se ofrecen servicios públicos con fines recreativos y educativos. Se declaran zonas de uso extensivo desde Punta Conejo hasta Punta Carbón, incluyendo el Cerro El Morro y Playa Carbón.
+b) Zona de Uso Público Intensivo: Es el área de mayor alteración causada por el ser humano, donde se concentran los servicios, facilidades para los visitantes, comprende el Cerro Ventanas, el sector comprendido entre Punta San Francisco y la boca del Estero San Francisco (Punta del Madero).
+c) Zona de Uso Restringido: Es el área natural en buen estado o que se encuentra en proceso de regeneración; se permite un uso público controlado y con autorización de la administración del Parque. Contempla la franja de terreno de 125 metros, desde Punta Carbón hasta el extremo sur de Playa Grande. Además de Playa Langosta, Isla Verde, el Estero de Tamarindo (Sitio RAMSAR), el Estero Ventanas y el Estero de San Francisco y las zonas de manglar de cada uno de estos esteros.

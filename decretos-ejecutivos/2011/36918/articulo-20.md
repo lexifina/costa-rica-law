@@ -1,0 +1,1 @@
+Artículo 20.—Las zonas que comprenden Playa Langosta y Playa Ventanas, estarán dedicadas estrictamente para la protección y conservación de tortugas marinas y sus nidos, así como a la investigación científica.

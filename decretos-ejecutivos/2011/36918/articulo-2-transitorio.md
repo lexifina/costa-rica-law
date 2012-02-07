@@ -1,0 +1,1 @@
+Transitorio II.—A los propietarios de embarcaciones que realicen la actividad mencionada en el Artículo 13 del presente Reglamento, se les concederá un plazo de un año posterior a la publicación del presente decreto, con la finalidad de acondicionar sus embarcaciones según la regulación del caso.
