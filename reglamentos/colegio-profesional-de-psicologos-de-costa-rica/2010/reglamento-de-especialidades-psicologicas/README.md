@@ -15,3 +15,4 @@ Reglamento de Especialidades Psicológicas
 | --- | --- | --- |
 | 1 | 2010-05-26 | la propia norma |
 | 2 | 2011-04-08 | Acuerdo 3 (2011-04-08) |
+| 3 | 2012-02-07 | Acuerdo 18 (2012-02-07) |

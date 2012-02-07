@@ -32,6 +32,8 @@ El campo es de desarrollo reciente, pero se han organizado congresos y jornadas 
 Psicología de las Adicciones:
 Es un campo con investigación y literatura especializada. Ha sido objeto de investigación en la Psicología tanto a nivel nacional como internacional. Como postgrado existe la Maestría Internacional en Drogodependencias de la UNED con carácter interdisciplinario.
 (Así adicionada la especialidad anterior mediante acuerdo N° V-03-09-2011, y publicado en La Gaceta N° 70 del 8 de abril del 2011)
+- Psicología Clínica y de la Salud
+(Así adicionada la especialidad anterior mediante acuerdo N° V-18-03-2012 de la sesión N° 03-2012 del 7 de febrero de 2012)
 Postgrados Interdisciplinarios atinentes a la ciencia psicológica
 (Así adicionada la categoría anterior mediante acuerdo N° V-03-09-2011, y publicado en La Gaceta N° 70 del 8 de abril del 2011)
 - Gerontología
