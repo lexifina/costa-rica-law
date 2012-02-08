@@ -1,0 +1,13 @@
+Nº 36936-MINAET
+LA PRESIDENTA DE LA REPÚBLICA
+Y EL MINISTRO DEL AMBIENTE, ENERGÍA
+Y TELECOMUNICACIONES
+En uso de las facultades que les confieren los incisos 3 y 18 del artículo 140 de la Constitución Política; los artículos 1, 2 y 4 de la Ley Orgánica del Ambiente Nº 7554 del 04 de octubre de 1995; la Ley General de Control Interno Nº 8292 del 31 de julio del 2002 y la Ley de Administración Financiera de la República y Presupuestos Públicos Nº 8131 del 18 de setiembre del 2001.
+Considerando:
+1º—Que mediante el Decreto Ejecutivo Nº 36564-MINAET del 1º de marzo del 2011, publicado en el Diario Oficial La Gaceta Nº 122 del 24 de junio del 2011, se autoriza al Sistema Nacional de Áreas de Conservación para que pueda acreditar personal de apoyo contratado por organizaciones no gubernamentales con el fin de que estas laboren para las diferentes áreas de conservación, ejerciendo actividades para el manejo y la conservación del ambiente y desempeñando funciones de apoyo. Además se modifica el artículo 20 del Decreto Ejecutivo Nº 26665-MINAET del 04 de diciembre de 1997, Reglamento para el uso, control y mantenimiento de los vehículos del MINAET.
+2º—Que la Auditoría Interna del Ministerio de Ambiente, Energía y Telecomunicaciones, ha realizado una serie de observaciones al Decreto Ejecutivo Nº 36564-MINAET, que determinan la inconveniencia de mantenerlo en vigencia por tener vicios de legalidad y contravenir las recomendaciones establecidas por la Contraloría General de la República con relación a la eficiencia en el control y manejo de los recursos públicos, en especial en lo relativo al Sistema Nacional de Áreas de Conservación.
+3º—Que en consecuencia, resulta conveniente acoger las recomendaciones emitidas por la Auditoría Interna, y proceder a aplicar las acciones correspondientes para asegurar el buen funcionamiento de la institución y el cuido y resguardo de sus bienes. En este sentido se debe proceder a derogar el Decreto Ejecutivo Nº 36564-MINAET por no encontrarse ajustado a las recomendaciones de la Auditoría Interna y de la Contraloría General de la República, así como a las normas de la Ley General de Control Interno y a la Ley de Administración Financiera de la República y Presupuestos Públicos, que demandan un eficiente control, manejo y custodia de los recursos públicos y de la asignación del personal en labores oficiales, además de la oportuna rendición de cuentas. Por tanto,
+Decretan:
+DEROGACIÓN DEL DECRETO EJECUTIVO Nº
+36564-MINAET DEL 1º DE MARZO DEL 2011
+Artículo 1º—Deróguese en su totalidad el Decreto Ejecutivo Nº 36564-MINAET del 1º de marzo del 2011, publicado en el Diario Oficial La Gaceta Nº 122 del 24 de junio del 2011.
