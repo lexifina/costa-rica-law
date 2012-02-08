@@ -14,3 +14,4 @@ Reglamento para el funcionamiento y administración del servicio de soda en los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-08 | la propia norma |
+| 2 | 2012-02-08 | Decreto Ejecutivo 36968 (2012-01-16) |
