@@ -1,0 +1,1 @@
+Artículo 16º.- De los entes y órganos de control: Todo el servicio de soda implicará el control del Ministerio de Salud así como del Ministerio de Educación Pública a través del Director Institucional, el Comité de Salud y Nutrición y la respectiva Junta de Educación o Administrativa, según corresponda. 9

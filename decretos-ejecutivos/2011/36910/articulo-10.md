@@ -1,0 +1,1 @@
+Artículo 10º.- De la propaganda comercial de productos alimenticios. La Junta Educativa o Administrativa deberá velar por el cumplimiento de lo establecido en el artículo 9 de este Reglamento, y porque en la soda y el resto del plantel educativo no se use, coloque o exhiba propaganda comercial que promocione, directa o indirectamente, el consumo de productos alimenticios.

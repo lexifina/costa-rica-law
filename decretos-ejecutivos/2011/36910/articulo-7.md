@@ -1,0 +1,1 @@
+Artículo 7º.- De la responsabilidad del concesionario o administrador de la soda. El concesionario o administrador de la soda es el responsable directo ante las autoridades competentes. En todo momento se entenderá como el garante de la licitud, buen trato, adecuación del servicio brindado, so pena de las responsabilidades contractuales, civiles y penales que pudieran exigírsele.

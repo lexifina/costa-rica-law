@@ -1,0 +1,1 @@
+Artículo 2º.- Objetivo: Proteger la salud de la comunidad educativa y a la vez, promover el desarrollo y mantenimiento de hábitos alimentarios saludables, como parte del proceso formativo integral a partir de la experiencia vivencial en el centro educativo público, todo sobre la base del interés público.

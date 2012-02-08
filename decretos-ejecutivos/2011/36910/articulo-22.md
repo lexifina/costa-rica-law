@@ -1,0 +1,1 @@
+Artículo 22.- Transitorio II: Instalación de medidores: Se dará un plazo de nueve meses a partir de la fecha de la publicación de este Reglamento para que las Juntas de Educación o Administrativas tomen todas las medidas pertinentes con el fin de que las sodas cuenten con su propio medidor de energía eléctrica y de agua.
