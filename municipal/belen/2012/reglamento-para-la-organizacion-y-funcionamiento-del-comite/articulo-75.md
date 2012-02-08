@@ -1,0 +1,3 @@
+Artículo 75.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Se acuerda con cuatro votos a favor de los Regidores María de los Ángeles Segura, Mª Lorena Vargas, Rosemile Ramsbottom, Desiderio Solano y uno en contra del Regidor Miguel Alfaro: Segundo: Aprobar el Reglamento del Comité Cantonal de Deportes presentado en el informe CAGAJ Nº 01-2012, según versión leída y comentada en este Concejo Municipal con las observaciones indicadas por el Regidor Desiderio Solano. Tercero: Girar instrucciones a la Secretaria del Concejo Municipal para realizar el trámite respectivo.
+Belén, 24 de enero del 2012.—

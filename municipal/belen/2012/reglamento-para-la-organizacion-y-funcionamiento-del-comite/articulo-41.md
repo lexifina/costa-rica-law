@@ -1,0 +1,1 @@
+Artículo 41.—Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la Secretaría del CCDRB. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad de Belén, las hojas serán selladas y foliadas por ésta.

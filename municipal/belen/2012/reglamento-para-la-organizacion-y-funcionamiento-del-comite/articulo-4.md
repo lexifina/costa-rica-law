@@ -1,0 +1,1 @@
+Artículo 4º—El domicilio legal del Comité Cantonal será el cantón de Belén, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva.

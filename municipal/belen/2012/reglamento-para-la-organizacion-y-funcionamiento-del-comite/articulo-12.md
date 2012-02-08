@@ -1,0 +1,3 @@
+Artículo 12.—Las Asociaciones Deportivas-Recreativas Adscritas deberán entregar a la Junta Directiva del Comité Cantonal:
+a) Informes anuales de labores y estados financieros en la primera semana de abril; así como cualquier otro documento requerido para aclaración de los mismos. Los estados financieros deberán ser presentados firmados por el contador, tesorero y presidente, documentos debidamente certificados.
+b) En la primera semana del mes de Junio de cada año, los planes de trabajo y necesidades económicas para el año inmediato posterior, los cuales serán sujetos a análisis y aprobación por parte de la Junta Directiva; la cual vigilará la ejecución; la Administración ejercerá los controles debidos para su ejecución.

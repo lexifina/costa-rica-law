@@ -1,0 +1,1 @@
+Artículo 74.—Cualquier reforma que se proponga a este Reglamento, deberá contar con la aprobación de la Junta Directiva antes de ser trasladado al Concejo Municipal para su análisis y aprobación final.

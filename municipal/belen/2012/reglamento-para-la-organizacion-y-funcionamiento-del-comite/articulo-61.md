@@ -1,0 +1,1 @@
+Artículo 61.—Los recursos del Comité Cantonal solamente se podrán destinar en obras, programas o actividades recreativas y deportivas, según los límites fijados por el Código Municipal y sus reformas.

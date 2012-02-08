@@ -1,0 +1,3 @@
+CAPÍTULO X
+De los Comités Comunales
+Artículo 45.—Los Comités Comunales serán el órgano de enlace entre el Comité Cantonal y el distrito respectivo o barrio, estarán integrados por cinco miembros residentes del distrito o comunidad correspondiente respetando la paridad y equidad de género; que serán nombrados en asamblea general, convocada para tal efecto por la Junta Directiva el Comité Cantonal. La asamblea general estará conformada por dos representantes (un hombre y una mujer) de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en el distrito y que se encuentren adscritas al Comité Cantonal con personería jurídica vigente.
