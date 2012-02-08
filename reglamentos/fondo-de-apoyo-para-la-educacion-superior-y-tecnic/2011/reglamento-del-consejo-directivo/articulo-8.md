@@ -1,0 +1,2 @@
+Del Órgano Elector
+Artículo 8º—El Director Ejecutivo notificará al Órgano Elector la fecha de vencimiento de los periodos de los Directivos, con al menos tres meses de anticipación con el objeto que oportunamente las entidades procedan a presentar las ternas o nóminas para los nombramientos según corresponda. Igualmente notificará cualquier caso de vacante o sustitución de algún miembro del Consejo Directivo al Órgano Elector.

@@ -1,0 +1,1 @@
+Artículo 21.—Si hubiere empate en la primera votación de cualquier asunto, se procederá a una segunda votación. Si se mantiene el empate el presidente resolverá, para cuyo caso tendrá voto de calidad.

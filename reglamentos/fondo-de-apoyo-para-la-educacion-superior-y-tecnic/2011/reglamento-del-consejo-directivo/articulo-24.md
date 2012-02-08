@@ -1,0 +1,1 @@
+Artículo 24º—Las actas de sesiones del Consejo Directivo, serán aprobadas en la sesión siguiente por al menos el voto afirmativo de cuatro miembros del Consejo Directivo. Las mismas serán firmadas por la Presidencia y la Secretaría.

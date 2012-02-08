@@ -1,0 +1,1 @@
+Artículo 9º—El Director Ejecutivo solicitará con la debida anticipación, en cada cambio de los Concejos Municipales, a las municipalidades de los cantones de la provincia de Puntarenas nombrar a su representante para formar parte del Órgano Elector.

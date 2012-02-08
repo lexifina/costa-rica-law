@@ -1,0 +1,1 @@
+Artículo 17.—Cuando un Directivo se retire temporalmente durante la sesión, aún con permiso de la Presidencia, por un lapso mayor a 30 minutos, se tomará como ausente con la consecuente pérdida de la dieta.

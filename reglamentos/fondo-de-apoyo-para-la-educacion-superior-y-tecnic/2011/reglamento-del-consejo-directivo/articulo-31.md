@@ -1,0 +1,1 @@
+Artículo 31.—Las decisiones que tomare, quien ostenta la Presidencia del Consejo Directivo, podrán ser apeladas ante el Consejo Directivo. Dicho recurso se interpondrá en el mismo acto y se definirá por mayoría de votos.
