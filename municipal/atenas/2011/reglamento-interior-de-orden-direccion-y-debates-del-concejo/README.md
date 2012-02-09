@@ -14,3 +14,4 @@ Reglamento interior de orden, dirección y debates del Concejo Municipal del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-13 | la propia norma |
+| 2 | 2012-02-09 | Reglamento municipal 408 (2012-02-09) |
