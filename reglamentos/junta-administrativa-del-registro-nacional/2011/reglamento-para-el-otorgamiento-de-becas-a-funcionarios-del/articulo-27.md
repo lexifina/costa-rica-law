@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Del procedimiento administrativo y disciplinario
+Artículo 27.—Procedimiento administrativo y disciplinario. En caso de que algún funcionario incurra en una conducta acreedora de sanción, según lo estipulado en el capítulo anterior, se procederá a realizar el procedimiento administrativo conforme lo establece el Libro Segundo de la Ley General de la Administración Pública, El Estatuto de Servicio Civil y su Reglamento, la Negociación Colectiva de los Trabajadores del Registro Nacional Vigente, el Reglamento Autónomo de Servicio del Ministerio de Justicia, y cualquier otra norma supletoria o conexa, a efecto de determinar la responsabilidad administrativa y/o civil que corresponda.

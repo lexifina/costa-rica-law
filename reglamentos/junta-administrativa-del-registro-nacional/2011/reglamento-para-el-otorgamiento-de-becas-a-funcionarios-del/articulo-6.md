@@ -1,0 +1,1 @@
+Artículo 6º—Periodo de nombramiento de los miembros del Comité de Selección de Becarios del Registro Nacional: Los miembros del Comité serán nombrados, por periodos de dos años. Cuando no puedan asistir deberán enviar obligatoriamente a su suplente.

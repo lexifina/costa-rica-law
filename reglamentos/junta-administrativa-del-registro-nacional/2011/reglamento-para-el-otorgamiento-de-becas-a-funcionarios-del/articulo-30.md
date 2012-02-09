@@ -1,0 +1,1 @@
+Artículo 30.—Inicio de labores del Comité de Selección de Becarios del Registro Nacional: El Comité deberá nombrarse e iniciar sus funciones dentro de los diez días hábiles posteriores a la publicación del presente Reglamento.

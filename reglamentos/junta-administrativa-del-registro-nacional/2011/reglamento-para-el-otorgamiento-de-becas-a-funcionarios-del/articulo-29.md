@@ -1,0 +1,1 @@
+Artículo 29.—Procedimientos del Departamento Gestión Institucional del Registro Nacional: El DGIRH deberá establecer los procedimientos pertinentes para el desarrollo eficiente de las actividades y responsabilidades a su cargo.

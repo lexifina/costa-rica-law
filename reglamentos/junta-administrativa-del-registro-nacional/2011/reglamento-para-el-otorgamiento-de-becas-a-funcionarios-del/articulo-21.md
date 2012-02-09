@@ -1,0 +1,1 @@
+Artículo 21.—Cambio de Universidad: El cambio de universidad solo podrá tener lugar bajo condiciones muy especiales y fundamentadas, requiriendo autorización expresa del Comité, para lo cual deberá realizarse el trámite ante el DGIRH que establece el inciso l del artículo 10.

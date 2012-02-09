@@ -1,0 +1,4 @@
+CAPÍTULO III
+Sobre las becas
+Artículo 11.—Cobertura de la Beca: La Beca que se otorgue cubrirá total o parcialmente, según se determine para cada caso, los pagos por concepto de matrícula, materias, material de estudio y laboratorios, según el presupuesto institucional. Cualquier otro gasto debe ser sufragado por el becario.
+No obstante de conformidad con lo establecido en el artículo 30 del Reglamento a la Ley Reguladora de los Gastos de Viaje y Transporte de Funcionarios del Estado, Ley N° 3462 de 26 de noviembre de 1964, la Junta Administrativa del Registro Nacional con base en criterios de igualdad, equidad y proporcionalidad podrá autorizar un subsidio adicional a la beca, siempre y cuando el solicitante demuestre fehacientemente la necesidad del mismo. Para lo cual el DGIRH hará el estudio correspondiente.

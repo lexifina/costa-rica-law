@@ -1,0 +1,1 @@
+Artículo 17.—Recepción de solicitudes: No se recibirán solicitudes incompletas, a falta de algún documento adicional o que se considere necesario, el DGIRH notificará de tal situación al interesado para que en un plazo de tres días subsane la omisión, caso contrario procederá el rechazo de la solicitud.

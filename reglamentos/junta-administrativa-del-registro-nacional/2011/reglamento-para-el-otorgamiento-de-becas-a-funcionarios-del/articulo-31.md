@@ -1,0 +1,1 @@
+Artículo 31.—Vigencia: Rige a partir de su publicación. Acuerdo Firme J511, adoptado por la Junta Administrativa del Registro Nacional en la sesión ordinaria Nº 49-2011, celebrada el día diecisiete de noviembre del dos mil once.

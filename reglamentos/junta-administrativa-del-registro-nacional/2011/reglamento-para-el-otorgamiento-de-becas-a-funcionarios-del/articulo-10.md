@@ -1,0 +1,14 @@
+Artículo 10.—Funciones y obligaciones del Departamento de Gestión Institucional del Registro Nacional: Las funciones y obligaciones del Departamento de Gestión Institucional de Recursos Humanos, en adelante DGIRH, serán las siguientes:
+a) Recibir las solicitudes de beca de conformidad con las disposiciones de éste Reglamento y las específicas de cada concurso. Así como todos aquellos documentos o correspondencia relacionada con el presente reglamento.
+b) Estudiar las solicitudes presentadas y preparar un informe técnico, indicando expresamente que candidatos cumplen los requisitos solicitados y remitirlo al Comité de Selección de Becarios del Registro Nacional.
+c) Dar seguimiento al rendimiento académico y al cumplimiento de las obligaciones contraídas por los becados y comunicárselo al Comité.
+d) Mantener actualizada una base de datos con la información necesaria de los becarios.
+e) Implementar los lineamientos para la calificación de las solicitudes; recomendar mejoras en los procedimientos de asignación de becas y presentarlos ante el Comité para su valoración y aprobación.
+f) Divulgar entre los funcionarios de la Institución en coordinación con el Departamento de Proyección Institucional, todos aquellos aspectos relacionados con el programa de becas del Registro Nacional.
+g) Comunicar por escrito a cada beneficiario su designación y el porcentaje de beca otorgado, una vez que la misma haya sido aprobada por la Junta Administrativa del Registro Nacional e igualmente en caso de no haberse aprobado alguna solicitud lo hará saber al funcionario con una exposición de motivos.
+h) Elaborar los respectivos Contratos de Estudios, para aquellos funcionarios (as) que le sean otorgadas becas una vez comunicado el respectivo Acuerdo de la Junta Administrativa.
+i) Brindar al Comité informes estadísticos que contengan información pertinente en cuanto a presupuesto ejecutado, disponible y comprometido, gastos, becas, costos y centros de enseñanza y cualquier otro informe que solicite el Comité, con el propósito de mantener los controles necesarios respecto al otorgamiento y aprovechamiento de las becas.
+j) Conocer las solicitudes de cese del beneficio de becas por parte de los becarios, proceder a su valoración, redactar un informe y elevarlo a conocimiento del Comité.
+k) Detectar el incumplimiento de las obligaciones contraídas por los becados que puedan implicar la eliminación de la beca y determinar si es procedente o no dicha eliminación, de lo cual darán traslado al Comité.
+l) Recibir las solicitudes de cambio de universidad, las solicitudes de suspensión de becas y las solicitudes de prórrogas de Contrato de Beca, realizar el respectivo estudio técnico y brindar un informe al Comité respecto a la procedencia de las mismas.
+ll) Todas aquellas otras funciones y buenas prácticas que garanticen la sana administración del proceso de asignación de becas.
