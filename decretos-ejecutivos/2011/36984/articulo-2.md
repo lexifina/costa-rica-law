@@ -1,0 +1,2 @@
+Artículo 2-. Entrega de información.
+Sin perjuicio de lo indicando en el artículo primero del presente Decreto Ejecutivo, y en cumplimiento del artículo 34 inciso 4) de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones, Ley N° 8660, el ICE y sus empresas informarán de manera veraz, oportuna y cuando así se le requiera por parte del Ministro Rector de los Sectores de Energía y Telecomunicaciones, la información que solicite éste para el ejercicio de sus funciones.
