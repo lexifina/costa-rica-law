@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32597
+(El presente decreto fue derogado por el artículo 96 del Reglamento autónomo de Organización y Servicio del Instituo Costarricense sobre Drogas, aprobado mediante decreto ejecutivo N° 37162 del 10 de febrero del 2012)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LA MINISTRA DE LA PRESIDENCIA
 En uso de las facultades conferidas por el artículo 140, inciso 3) y 18) y 146 de la Constitución Política; artículo 28 párrafo segundo, inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; y el artículo 154 de la Ley Nº 7786, modificada por la Ley Nº 8204, Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas, del 26 de diciembre de 2001, publicada en La Gaceta Nº 8 del 11 de enero de 2002.
