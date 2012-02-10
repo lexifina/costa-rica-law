@@ -1,1 +1,0 @@
-Artículo 14.—Excepciones: Se exceptúan del pago del tiempo extraordinario los funcionarios que ocupen puestos excluidos de la limitación de la jornada de trabajo, según el artículo 143 del Código de Trabajo.
