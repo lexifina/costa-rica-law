@@ -1,1 +1,0 @@
-Artículo 2º—En todo lo demás quedan firmes y valederas todas las disposiciones establecidas en el Decreto Ejecutivo Nº 32657-MP-MOPT y su reforma mediante Decreto Ejecutivo Nº 32659-MP-MOPT, y no modificadas mediante este Decreto.
