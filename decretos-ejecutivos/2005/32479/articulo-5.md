@@ -1,1 +1,0 @@
-Artículo 5°—Que de conformidad con la Ley Nacional de Emergencia, la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, mediante acuerdo, nombrará las unidades ejecutoras competentes, según sea el caso.
