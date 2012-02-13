@@ -1,4 +1,0 @@
-Artículo 33.—Todos los habitantes del cantón y público en general, están en la obligación de respetar y acatar las disposiciones del artículo 129 y 208 de la Ley de Tránsito 7331 y sus reformas, por tanto:
-a) Se prohibe arrojar, en cualquier vía pública, botellas de vidrio, clavos, tachuelas, alambres, recipientes de metal, papeles, cigarrillos o cualquier otro objeto que ponga en peligro la seguridad vial o altere el uso u ornamento de las vías públicas y sus alrededores.
-b) Los residuos, la maleza, los escombros u otros objetos que estén en una vía pública, frente a una casa de habitación o edificio, en las zonas urbanas o semi urbanas, deben ser retirados por el propietario.
-c) Los propietarios de fincas y edificios tienen la responsabilidad de mantener limpio de maleza, escombros, residuo y otros, el derecho de vía de las carreteras frente a su propiedad.

@@ -1,1 +1,0 @@
-Artículo 19.—La tarifa comercial 6 es la tasa aplicable a todo comercio que produzca más de 301 kg de residuos ordinarios por semana y su actividad este entre los patentados supermercados, restaurantes grandes (más de 10 mesas) y afines y que se ubiquen dentro del área de cobertura del servicio de recolección.
