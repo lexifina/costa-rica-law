@@ -1,1 +1,0 @@
-Artículo 7º—Se autoriza a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, para que en la atención del presente estado de emergencia utilice los fondos remanentes no comprometidos de declaraciones de estado de emergencia anteriores.
