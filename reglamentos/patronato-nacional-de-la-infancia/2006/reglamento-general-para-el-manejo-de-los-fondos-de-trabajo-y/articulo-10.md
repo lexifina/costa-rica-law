@@ -1,1 +1,0 @@
-Artículo 10.—De los recursos asignados al Fondo de Trabajo, el Ejecutor Presupuestario podrá asignar a cada una de sus dependencias Cajas Chicas Auxiliares, el monto de estas, en total, no podrá sobrepasar el setenta por ciento de la totalidad del Fondo Regional, de conformidad con lo establecido en el artículo 4º de este Reglamento.

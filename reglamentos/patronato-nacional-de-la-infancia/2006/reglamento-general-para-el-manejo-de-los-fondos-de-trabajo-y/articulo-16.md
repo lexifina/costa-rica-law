@@ -1,1 +1,0 @@
-Artículo 16.—El Fondo de Trabajo operará por medio de monto fijo, lo que implicará que el ejecutor presupuestario deberá garantizar que el total asignado será igual a la sumatoria del efectivo en caja y saldo bancario y los documentos que respalden las operaciones realizadas, de conformidad con lo indicado en el artículo 14 de este Reglamento.

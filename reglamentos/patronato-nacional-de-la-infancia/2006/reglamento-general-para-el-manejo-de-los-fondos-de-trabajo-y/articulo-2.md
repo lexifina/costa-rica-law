@@ -1,2 +1,0 @@
-Artículo 2º—Para los efectos del presente Reglamento, los Fondos de Trabajo y las Cajas Chicas Auxiliares, constituyen un anticipo de recursos financieros que concede la administración para solventar las necesidades indispensables y urgentes que afecten las partidas de Servicios y Materiales y Suministros que ejecutan las Direcciones Regionales.
-De estos fondos se derivaran las Cajas Chicas Auxiliares para uso de las Oficinas Locales y Albergues y para los mismos efectos anteriormente mencionados.
