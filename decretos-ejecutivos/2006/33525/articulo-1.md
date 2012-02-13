@@ -1,4 +1,6 @@
+(Derogado)
 Nº 33525
+(Este decreto fue derogado por el artículo 41 del Reglamento del sistema de reconocimientos ambientales (SIREA), aprobado mediante decreto ejecutivo N° 37109 del 13 de febrero del 2012)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AMBIENTE Y ENERGÍA
 Con fundamento en el artículo 140, incisos 3 y 18 y 146 de la Constitución Política y la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995 y los Decretos Ejecutivos números N° 27485-MINAE y 30077-MINAE.
