@@ -1,0 +1,1 @@
+Artículo 2º—Principios de aplicación e interpretación. Las disposiciones de este Reglamento deberán ser aplicadas e interpretadas a la luz de los principios fundamentales del servicio público, para asegurar la eficiencia, transparencia, igualdad, equidad de género e idoneidad comprobada en el proceso de selección de postulantes a Magistrado y Magistrada Suplente.

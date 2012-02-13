@@ -1,0 +1,2 @@
+Artículo 12.—Resultado de la entrevista. Cada Integrante del Tribunal Evaluador calificará a quién se postule con una nota de 1 a 100, fundamentando su decisión. La nota final de la entrevista será asignada por quien preside el Tribunal, con base en el promedio simple de los puntajes otorgados a cada Integrante que realizó la entrevista.
+Contra la calificación obtenida en la segunda fase de selección no cabe recurso alguno.

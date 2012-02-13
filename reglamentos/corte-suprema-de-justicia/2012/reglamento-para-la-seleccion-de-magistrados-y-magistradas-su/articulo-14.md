@@ -1,0 +1,1 @@
+Artículo 14.—Confección de las listas de elegibles. El Departamento de Personal confeccionará dos listados en orden descendente, uno por cada género, según la nota de elegibilidad, y las remitirá a quien presida la Sala que corresponda, con los respectivos atestados.
