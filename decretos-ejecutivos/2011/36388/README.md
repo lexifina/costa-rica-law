@@ -15,3 +15,4 @@ Oficializa el uso del Manual de Especificaciones Generales para la Construcción
 | --- | --- | --- |
 | 1 | 2011-02-01 | la propia norma |
 | 2 | 2011-03-21 | Decreto Ejecutivo 36652 (2011-03-21) |
+| 3 | 2012-02-13 | Decreto Ejecutivo 37016 (2012-02-13) |
