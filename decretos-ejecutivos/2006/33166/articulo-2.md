@@ -1,1 +1,0 @@
-Artículo 2º—Para los efectos correspondientes se tiene comprendida dentro de la presente declaratoria de emergencia únicamente la fase de reconstrucción que establece la Ley Nacional de Emergencias y Prevención del Riesgo, en su artículo 30.
