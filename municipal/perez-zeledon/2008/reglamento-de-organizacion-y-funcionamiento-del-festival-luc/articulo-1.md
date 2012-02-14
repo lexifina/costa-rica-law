@@ -12,9 +12,12 @@ b) Concejo: Concejo Municipal de Pérez Zeledón.
 c) Alcalde (a): Alcalde o Alcaldesa Municipal de Pérez Zeledón.
 d) Reglamento: Reglamento de Organización y Funcionamiento del Festival.
 e) Festival: Festividad denominada Festival Luces del Valle.
-f) Comisión: Comisión Organizadora del Festival.
-g) Coordinador: Coordinador de la Comisión Organizadora del Festival.
-h) Secretario: Secretario de la Comisión Organizadora del Festival.
+f) Equipo(*): Equipo Organizador(*) del Festival.
+(*)(Así reformado el inciso anterior en sesión N° 094 del 14 de febrero de 2012)
+g) Coordinador: Coordinador del Equipo Organizador(*) del Festival.
+(*)(Así reformado el inciso anterior en sesión N° 094 del 14 de febrero de 2012)
+h) Secretario: Secretario del Equipo Organizador(*) del Festival.
+(*)(Así reformado el inciso anterior en sesión N° 094 del 14 de febrero de 2012)
 i) Mariscal del Festival: Persona, grupos de personas, organización o persona jurídica a la que se dedica el Festival.
 j) Aportes directos: Donaciones en dinero que empresas o instituciones realizan a la Municipalidad, con la finalidad de que ésta pueda utilizarlos para la realización de actividades propias del festival.
 k) Aportes indirectos: Colaboraciones que realizan empresas, personas físicas o instituciones cancelando, en forma directa a los proveedores de bienes y servicios, gastos relacionadas con el festival.

@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Festival Luces del Valle
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-20 | la propia norma |
+| 2 | 2012-02-14 | Reglamento municipal 94 (2012-02-14) |
