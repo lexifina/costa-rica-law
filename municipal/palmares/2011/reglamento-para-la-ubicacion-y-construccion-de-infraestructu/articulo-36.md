@@ -1,0 +1,1 @@
+Artículo 36.—Toda infracción al presente Reglamento que se cometa por parte del profesional responsable de un proyecto, del propietario del inmueble, del contratista de sus representantes legales, o por cualquier administrado en general, será sancionado conforme lo estipula la Ley

@@ -1,0 +1,1 @@
+Artículo 16.—Las torres terrestres para la explotación de servicios de telefonía celular en zonas urbanas deberán tener capacidad de albergar al menos tres sistemas de antenas separados verticalmente entre si.

@@ -1,0 +1,1 @@
+Artículo 26.—El propietario de las obras Constructivas será responsable d cualquier daño directo o indirecto que esta o estas puedan causar a los bienes municipales, privados o a terceros y releva de cualquier responsabilidad a la Municipalidad.

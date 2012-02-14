@@ -1,0 +1,2 @@
+Artículo 17.—El sistema de antenas mas bajo debe ubicarse al menos a 30 metros de altura respecto al suelo con una máxima conjunta de la torre, sus antenas, demás elementos de red y/o protección contra descargas de 60 metros respecto al suelo.
+En el caso de instalación antenas en azoteas o paredes de edificios, la altura máxima será de 60 metros medidos desde el suelo, considerando la normativa aeroportuaria y cualquier sistema de antenas se ubicará a más de 6 metros del punto más alto del edificio donde se encuentre.

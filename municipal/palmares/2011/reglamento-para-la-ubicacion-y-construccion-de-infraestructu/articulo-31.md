@@ -1,0 +1,1 @@
+Artículo 31.—Una vez presentada completa la solicitud anterior ante la Municipalidad con todos los requisitos, la administración tendrá treinta días naturales para emitir la resolución. Si fuese negativa, el interesado podrá impugnar la resolución denegatoria de la licencia mediante los recursos previstos en el Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 34.—La Municipalidad podrá incorporar a este reglamento las reformas que considere pertinentes de acuerdo con su autonomía y-o con los cambios que puedan generarse en las interpretaciones de afección a la salud pública por parte de la OMS.

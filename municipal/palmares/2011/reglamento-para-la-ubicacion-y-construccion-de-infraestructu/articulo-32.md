@@ -1,0 +1,1 @@
+Artículo 32.—La licencia de construcción otorgada por la Municipalidad tendrá una vigencia de un año a partir del pago del tributo correspondiente. Cuando la obra no se inicie o no se finalice dentro de este plazo se debe tramitar de nuevo el permiso según lo indicado en este Reglamento.

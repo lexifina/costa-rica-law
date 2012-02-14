@@ -1,0 +1,5 @@
+Artículo 35.—En el caso de equipos móviles de telecomunicaciones tipo “Cell on Wheeles” (COWS) que se instalen en el cantón, que cumplan con el artículo 27, inciso q, deberán tramitar permiso de construcción para la malla perimetral del lote así como la respectiva licencia comercial, cumpliendo los requerimientos establecidos por el ente municipal.
+CAPÍTULO
+Sanciones
+Artículo 35.—El estado y existencia de las instalaciones actuales no podrá mantenerse si se extingue el titulo habilitante o licencia de conformidad con lo preceptuado en este reglamento, ni tampoco en los casos en que la Municipalidad detecte infracciones técnicas, urbanísticas-ambientales cometidas antes de la vigencia de este reglamento que afecten seriamente la salud, la seguridad de las personas, el medio ambiente, las condiciones urbanísticas de ley, y aquellas que válidamente y razonadamente reconozca la Municipalidad en procura del interés público en garantía de los procesos de ley.
+(En la publicación de este reglamento se consignó dos veces el artículo N° 35)

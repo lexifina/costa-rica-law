@@ -1,0 +1,11 @@
+Artículo 25.—Son obligaciones además para los propietarios de las infraestructuras, de telecomunicaciones, las siguientes:
+a- Notificar y solicitar cualquier cambio que varíe el provecto o autorización municipal.
+b- Presentar en un plazo ocho días hábiles posteriores a la conclusión de lo obra el informe del profesional responsable en el que se acredite la ejecución conforme al proyecto, así como el cumplimiento estricto de las condiciones técnicas de ley, medidas corredoras y condiciones establecidas e impuestas en la licencia otorgada y prevista por la ley.
+c- Dar el mantenimiento necesario a las estructuras o instalaciones para asegurar la operación adecuada de éstas.
+d- Suspender de forma inmediata los trabajos y retirar las estructuras y/o equipos cuando así lo ordene la autoridad municipal competente, o las autoridades rectoras de la materia en telecomunicaciones dentro del plazo de tres días hábiles a partir de su comunicación.
+e- Cumplir con la señalización de torres, postes y estructuras de telecomunicaciones conforme con la normativa de Aviación Civil.
+f- Pagar y mantener al día la póliza de seguro por responsabilidad civil a terceros durante el tiempo que esté instalada la torre de telecomunicaciones.
+g- Dar aviso inmediato a la Municipalidad en caso de ser a su vez propietario de las estructuras y concesionario, de la cancelación o revocación de cualquier requisito o autorización otorgada por autoridad competente en materia de telecomunicaciones.
+h- Solicitar al Ministerio de Salud una medición de radiaciones no ionizantes emitidas desde su estructura de telecomunicaciones al inicio de operaciones, al instalar una nueva antena y posteriormente una vez al año para presentarla y adjuntarla al expediente municipal y-o para la renovación de patentes.
+i- Cumplir a cabalidad y oportunamente tanto con los compromisos adquiridos, como con las exigencias que la municipalidad disponga, sobre: todo de proteger los intereses públicos del municipio.
+j- Presentar un informe anual por parte de un Ingeniero Civil en el cual se certifique el estado estructural de la Obra constructiva (que sirve para construir) y el plan de mantenimiento y reparaciones necesarias, de igual manera se debe aportar documento que prueba que la póliza de daños a terceros se encuentra vigente.

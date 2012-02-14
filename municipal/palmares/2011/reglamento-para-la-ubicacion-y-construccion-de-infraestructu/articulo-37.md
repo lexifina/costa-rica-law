@@ -1,0 +1,1 @@
+Artículo 37.—De conformidad con las disposiciones de la Ley de Construcciones, en los casos que se detecten obras sin las respetivas licencias municipales. La Administración Municipal por medio del Proceso de Inspección, notificará y clausurará la obra.
