@@ -1,0 +1,3 @@
+COLEGIO DE ABOGADOS DE COSTA RICA
+El Colegio de Abogados de Costa Rica, comunica que mediante acuerdo de la Junta Directiva N° 2012-03-010 de la sesión ordinaria N° 03-12, celebrada el 23 de enero de 2012, se acordó modificar el artículo 13 del Manual para el otorgamiento del “Premio Alberto Brenes Córdoba” a la Mejor Obra Jurídica, debiéndose leer de la siguiente forma:
+“Artículo 13.-El premio consistirá en lo siguiente: 1. Entrega de un certificado. 2. La publicación de la obra, en primera edición a cargo del Colegio de Abogados. 3. Cincuenta ejemplares gratuitos de la obra una vez editada.”
