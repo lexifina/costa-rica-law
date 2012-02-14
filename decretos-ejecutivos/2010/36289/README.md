@@ -14,3 +14,4 @@ Reglamento a la Ley que Regula las Instituciones de Enseñanza Superior Parauniv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-08 | la propia norma |
+| 2 | 2012-02-14 | Decreto Ejecutivo 37028 (2012-02-14) |
