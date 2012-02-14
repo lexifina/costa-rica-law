@@ -17,5 +17,13 @@ Conservar, mientras conduce, la mayor compostura y la debida prudencia, ser aten
 Utilizar los accesorios y repuestos únicamente en las unidades correspondientes, excepto cuando medie autorización expresa del Departamento Administrativo.
 Estacionar los vehículos únicamente en zonas autorizadas, atendiendo su seguridad, la de sus accesorios, materiales o equipos que transporta y la de terceros.
 Mantener el vehículo asignado en el mejor estado de conservación y limpieza.
-Asumir el pago de las multas por infracciones a la Ley de Tránsito, cuando sean cometidas por negligencia o impericia. En tal caso deberá remitir copia del recibo debidamente cancelado al Departamento Administrativo dentro de los siguientes treinta días calendario, contados a partir de la infracción.
-Reportar al Departamento Administrativo y a la jefatura inmediata, todo accidente de tránsito que ocurra al vehículo asignado, dentro de las siguientes ocho horas hábiles.
+Conducir el vehículo respetando los límites de velocidad establecidos, por el Consejo de Seguridad Vial (COSEVI). La Institución, a través del debido proceso, comprobará que las infracciones fueron cometidas por negligencia o impericia del funcionario.
+(Así reformado el inciso anterior en sesión N° 5735 del 14 de febrero de 2012)
+r).-Asumir el pago de las multas por infracciones a la Ley de Tránsito, cuando sean cometidas por negligencia o impericia. En tal caso deberá remitir copia del recibo debidamente cancelado al Departamento Administrativo dentro de los siguientes treinta días calendario, contados a partir de la infracción.
+(Así reformado el inciso anterior en sesión N° 5735 del 14 de febrero de 2012)
+s).- Cuando el Instituto Costarricense de Turismo, haya pagado multas ligadas a boletas de tránsito o de resoluciones judiciales, el funcionario responsable deberá, pagar la multa correspondiente, junto con los gastos e intereses devengados.
+De solicitar el funcionario un arreglo de pago, este se someterá a criterio de la Gerencia General. La Gerencia, previo criterio expedido por la Asesoría Legal y el Proceso de Ingresos, aprobará o rechazará la solicitud de arreglo de pago.
+En caso de ser aceptado el arreglo de pago, los tractos no serán inferiores a la cuota legalmente deducible para efecto de embargos.
+(Así adicionado el inciso s) anterior en sesión N° 5735 del 14 de febrero de 2012)
+t).- Reportar al Departamento Administrativo y a la jefatura inmediata, todo accidente de tránsito que ocurra al vehículo asignado, dentro de las siguientes ocho horas hábiles.
+(Así adicionado el inciso anterior en sesión N° 5735 del 14 de febrero de 2012)
