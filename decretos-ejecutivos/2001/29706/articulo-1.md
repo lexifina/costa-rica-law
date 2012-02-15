@@ -1,4 +1,6 @@
+(Derogado)
 Nº 29706-H
+(Este decreto fue derogado por el inciso b) del artículo 11° del decreto ejecutivo N° 37008 del 15 de febrero del 2012 "Procedimiento para la Convocatoria y Asignación de las subastas de Valores de Gobierno")
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
