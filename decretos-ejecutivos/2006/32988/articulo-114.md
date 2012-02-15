@@ -1,1 +1,1 @@
-Artículo 114.—Órgano rector. La Dirección de Crédito Público del Ministerio de Hacienda es el órgano rector del Subsistema de Crédito Público. Dicho órgano depende jerárquicamente del Tesorero Nacional.
+Artículo 114.—(Derogado por el inciso a) del artículo 11 del decreto ejecutivo N° 37008 del 15 de febrero del 2012 "Procedimiento para la Convocatoria y Asignación de las subastas de Valores de Gobierno")

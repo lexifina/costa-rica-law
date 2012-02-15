@@ -17,3 +17,4 @@ Reglamento a la Ley de la Administración Financiera de la República y Presupue
 | 2 | 2006-09-12 | Decreto Ejecutivo 33414 (2006-09-12) |
 | 3 | 2007-01-09 | Decreto Ejecutivo 33585 (2007-01-09) |
 | 4 | 2011-12-14 | Decreto Ejecutivo 36978 (2011-12-14) |
+| 5 | 2012-02-15 | Decreto Ejecutivo 37008 (2012-02-15) |
