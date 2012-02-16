@@ -14,3 +14,4 @@ Cobro de Registro y Vigilancia Sanitaria de Cosméticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-12 | la propia norma |
+| 2 | 2012-02-16 | Decreto Ejecutivo 37125 (2012-02-16) |

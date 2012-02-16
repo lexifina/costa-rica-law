@@ -10,5 +10,6 @@ Considerando:
 5º—Que de conformidad con lo anteriormente expuesto, se ha considerando conveniente reafirmar el pago de servicio. Por tanto:
 Decretan:
 Cobro de Registro y Vigilancia Sanitaria de Cosméticos
-Artículo 1º—Las personas interesadas en el expendio de cosméticos, deberán gestionar su inscripción ante el Ministerio de Salud. Para dichos efectos y por concepto de registro de cosméticos se deberá cancelar la suma de US$ 200 (doscientos dólares exactos) o su equivalente en moneda nacional. Los ingresos recaudados por dicho concepto serán utilizados para los trámites de, registro y apoyo a las funciones de inspección, vigilancia y control.
-Las modificaciones posteriores al registro sanitario se fijan en la suma de US$ 10 (diez dólares americanos exactos) o su equivalente en moneda nacional.
+Artículo 1º-Para efectos de trámite, registro, notificación y apoyo a las funciones de inspección, vigilancia y control por concepto de registro de productos cosméticos, se fija la suma de US$200 (doscientos dólares sin centavos) o su equivalente en moneda nacional. Dichos fondos serán destinados para financiar las actividades que desarrollan los programas y subprogramas del Ministerio de Salud.
+Las modificaciones posteriores al registro sanitario se fijan en la suma de US$ 10 (diez dólares americanos exactos) o su equivalente en moneda nacional
+(Así reformado por el artículo 2° del decreto ejecutivo N° 37125 del 16 de febrero del 2012)
