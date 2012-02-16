@@ -11,4 +11,5 @@ Considerando:
 Decretan:
 Cobro de Registro y Vigilancia Sanitaria
 de Productos Higiénicos
-Artículo 1º—Para efectos de trámite, notificación, registro y apoyo a las funciones de inspección, vigilancia y control por concepto de registro de productos higiénicos se fija la suma de US $100 (cien dólares sin centavos) o su equivalente en moneda nacional.
+Artículo 1º- Para efectos de trámite, registro, notificación y apoyo a las funciones de inspección, vigilancia y control por concepto de registro de productos higiénicos, se fija la suma de US$100 (cien dólares sin centavos) o su equivalente en moneda nacional. Dichos fondos serán destinados para financiar las actividades que desarrollan los programas y subprogramas del Ministerio de Salud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37125 del 16 de febrero del 2012)
