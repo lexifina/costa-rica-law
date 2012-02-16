@@ -1,1 +1,1 @@
-Artículo 7°—Para autorizar el desalmacenaje de la sal y de los productos a base de sal, el importador debe aportar certificado emitido en el país de origen de que reúne las características de fortificación con yodo y flúor establecidas por este decreto.
+Artículo 7°—(Derogado por el artículo 1° del decreto ejecutivo N° 37060 del 16 de febrero de 2012)

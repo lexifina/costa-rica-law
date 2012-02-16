@@ -14,3 +14,4 @@ Reforma Norma Oficial para la Sal de Calidad Alimentaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-24 | la propia norma |
+| 2 | 2012-02-16 | Decreto Ejecutivo 37060 (2012-02-16) |
