@@ -1,0 +1,1 @@
+Artículo 4º—El premio será otorgado en forma conjunta por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, la Universidad de Costa Rica -PREVENTEC-, y el Ministerio de Ciencia y Tecnología; el trece de octubre de cada año, fecha de conmemoración del Día Internacional de los Desastres Naturales.

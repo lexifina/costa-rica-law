@@ -1,0 +1,1 @@
+Artículo 7º—El otorgamiento del premio se regirá por las disposiciones que al efecto se establezcan en el respectivo manual, mismo que deberá ser aprobado por las instancias indicadas en el artículo 6° del presente decreto ejecutivo.

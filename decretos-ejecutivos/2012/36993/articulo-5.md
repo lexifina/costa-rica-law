@@ -1,0 +1,1 @@
+Artículo 5º—Para la evaluación de las candidaturas y el dictamen del ganador se conformará un jurado para cada una de las modalidades de premiación establecidas en el artículo 2° del presente decreto.

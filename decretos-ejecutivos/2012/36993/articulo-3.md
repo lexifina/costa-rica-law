@@ -1,0 +1,1 @@
+Artículo 3º—El premio en sus diferentes modalidades se otorgará a cualquier persona física, jurídica o grupo organizado que demuestre la promoción, la ejecución y la gestión de actividades orientadas a la reducción de vulnerabilidad ante las amenazas naturales, tecnológicas o exacerbadas por acción antropogénica; por un lapso no menor de doce meses anterior a su postulación.
