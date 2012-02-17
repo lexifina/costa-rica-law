@@ -1,0 +1,1 @@
+Artículo 4º—El desarrollador Unión Fenosa Generadora Torito S. A., con cédula jurídica 3-101-450510 deberá ejecutar los compromisos ambientales en el marco de la evaluación ambiental aprobada por la Secretaría Técnica Nacional Ambiental.
