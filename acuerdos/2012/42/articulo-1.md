@@ -1,0 +1,12 @@
+Nº 42-11-12
+EL DIRECTORIO LEGISLATIVO DE LA ASAMBLEA
+LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+De conformidad con la disposición adoptada en la sesión ordinaria Nº 092-2012, celebrada por el Directorio Legislativo el 24 de enero de 2012.
+SE ACUERDA:
+En virtud de que este Directorio Legislativo considera de gran importancia para la labor que desarrolla, la presencia regular del Auditor Interno en las sesiones que celebre este Órgano Colegido, modificar el inciso 11 del Reglamento de Organización y Funcionamiento de la Auditoría Interna, aprobado por el Directorio Legislativo en el artículo 32 de la sesión Nº 71-2007 celebrada el 29 de agosto del 2007, con el propósito de que se lea de la siguiente manera:
+Artículo 11.—Participación del Auditor Interno en las sesiones del Directorio Legislativo. El Auditor Interno asistirá a las sesiones o reuniones del Directorio Legislativo cuando sea convocado por decisión de ese órgano colegiado o a solicitud del Auditor si lo estima apropiado, para la adecuada fiscalización y el cabal cumplimiento de sus funciones, en cuyo caso tendrá derecho a voz pero no a voto.
+La participación del Auditor Interno en las sesiones será conforme a sus responsabilidades de asesoría y advertencia, en asuntos de su competencia, según lo dispone el artículo 22, inciso d), de la Ley General de Control Interno y de acuerdo con los criterios de la Contraloría General de la República, y para referirse a productos de la Auditoría presentados al Directorio. En las actas respectivas debe constar la opinión, el criterio o la observación que emita el Auditor sobre dichos asuntos.
+El Auditor Interno podrá abstenerse de asistir a una sesión cuando considere que, por los temas a tratar, se afecte la independencia y objetividad en el ejercicio de las funciones que se le han asignado por ley y normativa técnica, decisión que deberá comunicar por escrito a la Primera Secretaría del Directorio. Publíquese.
+Lo anterior rige a partir de su publicación en el diario oficial La Gaceta.
+La participación del Auditor Interno en las sesiones del Directorio Legislativo, se dará conforme a los parámetros y consideraciones establecidos por la Contraloría General de la República en el oficio Nº 8438 (DFOE-PG-330), con el propósito de que sea ajustada al criterio vinculante del órgano contralor. Acuerdo firme.
+San José, a los dos días del mes de febrero de dos mil doce.—
