@@ -16,3 +16,4 @@ Reglamento Autónomo de Trabajo de los Empleados del Banco Crédito Agrícola de
 | 1 | 2006-01-20 | la propia norma |
 | 2 | 2007-01-30 | Reglamento 8006 (2007-01-30) |
 | 3 | 2011-06-07 | Reglamento 8448 (2011-06-07) |
+| 4 | 2012-02-17 | SINALEVI (sin norma nombrada) |
