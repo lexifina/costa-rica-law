@@ -1,0 +1,1 @@
+Artículo 11.—Plazo adicional para completar ofertas. En el caso de que una oferta se presente incompleta, el plazo señalado se podrá ampliar en tres días hábiles más si así lo considera la comisión, a efecto de que él o los oferentes puedan aportar los atestados que falten y así completar la oferta.

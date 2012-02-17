@@ -1,0 +1,1 @@
+Artículo 2º—Nombramiento de una Comisión Especial. El Concejo creará una comisión especial con la finalidad de que lleve adelante el proceso de escogencia de los candidatos al puesto. Esa comisión actuará en representación del Concejo Municipal y será nombrada conforme lo establece el artículo 49 del Código Municipal.

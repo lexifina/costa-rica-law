@@ -1,0 +1,1 @@
+Artículo 26.—Nombramiento en firme. Una vez superado el período de prueba de tres meses, en caso de aceptación se procederá con el nombramiento en firme del funcionario, respetando el periodo de prueba, según lo definido por la Legislación Laboral vigente.

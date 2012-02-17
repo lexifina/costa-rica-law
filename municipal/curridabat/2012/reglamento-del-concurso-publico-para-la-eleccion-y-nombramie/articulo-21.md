@@ -1,0 +1,1 @@
+Artículo 21.—Comunicación de resultados. Una vez recibido la aprobación del proceso de nombramiento por parte de la Contraloría, la Comisión Especial deberá notificar por escrito a los participante, el puntaje obtenido.
