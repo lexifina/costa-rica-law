@@ -1,4 +1,5 @@
 INSTITUTO NACIONAL DE SEGUROS
+(Nota de Sinalevi: El Instituto Nacional de Seguros aprobó una nueva Norma Técnica del Seguro de Riesgos del Trabajo, mediante publicación en La Gaceta N° 86 del 7 de mayo del 2014)
 (Nota de Sinalevi: Sobre este tema el Instituto Nacional de Seguro había emitido anteriormente Normativa técnica aplicable al Seguro de Riesgos del Trabajo, y publicada en La Gaceta N° 250 del 24 de diciembre de 2010)
 Introducción.
 El Instituto Nacional de Seguros en su condición de administrador del Régimen de Riesgos del Trabajo, conforme lo establece el artículo 208 del Título IV del Código de Trabajo “De la Protección de los Trabajadores durante el ejercicio del trabajo y Reglamento General de los Riesgos del Trabajo”, hace del conocimiento público la normativa técnica aplicable a este seguro.
@@ -94,10 +95,10 @@ El Seguro de Riesgos del Trabajo podrá ser emitido a través de los intermediar
 3.9 Requisitos generales para la emisión del seguro:
 Para tramitar el Seguro Obligatorio de Riesgos del Trabajo, el interesado deberá cumplimentar la información requerida en los formularios de Emisión y/o reexpedición dispuestos para este fin.
 Deberá aportar los siguientes documentos:
-a. Copia de la cédula física o certificación de personería jurídica.
+a. (Derogado por acuerdo XIII de la sesiónN° 9100 del 20 de febrero de 2012)
 b. Para la actividad de la construcción se deberá presentar la boleta municipal original expedida por la Municipalidad respectiva en donde se indique el nombre del propietario del proyecto o vivienda y el monto(s) de la obra(s) o proyecto(s). En caso de no existir boleta municipal, debe presentar: copia de contrato de construcción o contrato de consultoría del Colegio Federado de Ingenieros y de Arquitectos (CFIA), u orden de compra, tratándose de licitaciones o contratos directos.
 c. Para la emisión de pólizas permanentes de construcción y de existir proyectos al momento de emitir el seguro, deberá presentar el formulario “Declaración para actualizar el monto asegurado en proyectos de construcción”, el cual se encuentra disponible en la página Web del Instituto Nacional de Seguros o en cualquiera de sus Sedes en todo el país.
-d. Cumplimentar el formulario “Conozca su cliente” en apego a lo establecido en la Ley 8204.
+d. (Derogado por acuerdo XIII de la sesiónN° 9100 del 20 de febrero de 2012)
 e. Si el trámite se realiza con un Intermediario de Seguros, la solicitud de emisión debe adjuntar comprobante del depósito sobre primas donde se consigne el monto pagado, la fecha de recibo del dinero y el código del Intermediario de Seguros.
 Adicionalmente, para pólizas temporales, deberá aportar:
 f. Copia del escrito de acuerdo de partes o compromisos para el servicio de construcción otorgado.
@@ -392,10 +393,10 @@ En caso de tener proyectos declarados con anterioridad al vencimiento del seguro
 Para la reexpedición de pólizas permanentes de construcción o actividades afines el monto mínimo anual es de ¢ 12.000.000,00; en caso de reexpedir con proyectos en que el monto asegurado sea inferior al mínimo anual, se considera siempre este mínimo. Aunque el Patrono, Contratista General o intermediario cuente con este seguro mínimo, para tramitar permisos de construcción ante la Municipalidad siempre debe presentar la respectiva boleta ante el Instituto Nacional de Seguros, para el correspondiente aseguramiento.
 10.2 Requisitos generales para la reexpedición del seguro:
 A efecto de tramitar la reexpedición del Seguro de Riesgos del Trabajo, el patrono deberá proporcionar la siguiente información:
-a. Copia de la cédula de identidad del patrono o representante legal.
+a. (Derogado por elacuerdo XIII de la sesión 9100 del 20 de febrero de 2012)
 b. Solicitud de reexpedición debidamente cumplimentada y firmada por el patrono o representante legal.
 c. Si el trámite se realiza con un Intermediario de Seguros, la solicitud de emisión debe adjuntar comprobante del depósito sobre primas donde se consigne el monto pagado, la fecha de recibo del dinero y el código del Intermediario de Seguros.
-d. Cumplimentar el formulario “Conozca a su cliente” en apego a lo establecido en la Ley 8204.
+d. (Derogado poracuerdo XIII de la sesiónN° 9100 del 20 de febrero de 2012)
 11. Liquidación anual de pólizas.
 11.1 Proceso de liquidación:
 La liquidación se realiza al final del período anual de cada póliza, tomando en cuenta las planillas presentadas por el patrono así como también las deudas por casos no asegurados y en el caso de las pólizas de construcción los proyectos e incumplimientos.

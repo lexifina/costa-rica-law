@@ -14,3 +14,4 @@ Normas Técnicas del Seguro de Riesgos de Trabajo del Instituto Nacional de Segu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-24 | la propia norma |
+| 2 | 2012-02-20 | Acuerdo 13 (2012-02-20) |
