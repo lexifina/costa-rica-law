@@ -1,0 +1,2 @@
+Artículo 6º—De la aprobación. Corresponderá al Gerente General o a la persona que él designe aprobar y tramitar la solicitud respectiva, una vez que se acredite el cumplimiento de los requisitos previstos en este reglamento.
+El funcionario que es aceptado en este sistema únicamente puede hacer uso de él, con el vehículo que se encuentra previamente registrado en BN Fondos, es decir, no se podrá utilizar otro vehículo para el cobro ni el reconocimiento del kilometraje recorrido.

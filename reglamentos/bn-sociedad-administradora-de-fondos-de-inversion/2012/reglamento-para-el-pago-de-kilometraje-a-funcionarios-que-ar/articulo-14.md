@@ -1,0 +1,4 @@
+CAPÍTULO QUINTO
+Reconocimiento económico
+Artículo 14.—Del reconocimiento. BN Fondos reconocerá al funcionario arrendante el pago por kilometraje recorrido, previo visto bueno del superior jerárquico inmediato de éste, basado en las tarifas que establece la Contraloría General de la República y sólo pagará los kilómetros efectivamente recorridos estableciendo como punto de partida las instalaciones de BN Fondos o la Dirección Regional en la que se destaca. Dicha autorización podrá remitirse vía correo electrónico o en forma física al Área Administrativa-Financiera.
+BN Fondos, a título de contraprestación, reconocerá a los funcionarios el kilometraje recorrido en cada viaje, tomando en consideración la limitación territorial del viaje según el Reglamento de Gastos de Viajes y de Transporte para funcionarios Públicos, artículo 16, Capítulo III de los viajes en el interior del País.

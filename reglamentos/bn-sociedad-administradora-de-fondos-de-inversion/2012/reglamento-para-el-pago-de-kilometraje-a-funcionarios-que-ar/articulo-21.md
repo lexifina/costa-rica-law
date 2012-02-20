@@ -1,0 +1,1 @@
+Artículo 21.—Del trámite de pago. La Contabilidad será la encargada de gestionar los respectivos pagos, previa verificación de los controles establecidos y visto bueno de la Gerencia Administrativa-Financiera.

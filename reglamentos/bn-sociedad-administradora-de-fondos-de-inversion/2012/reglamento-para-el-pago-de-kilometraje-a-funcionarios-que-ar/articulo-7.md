@@ -1,0 +1,1 @@
+Artículo 7º—Del comunicado de aprobación. Una vez revisada la Solicitud de Aprobación de Pago de Kilometraje, se le comunicará al solicitante la decisión adoptada en forma escrita o por la vía del correo electrónico.

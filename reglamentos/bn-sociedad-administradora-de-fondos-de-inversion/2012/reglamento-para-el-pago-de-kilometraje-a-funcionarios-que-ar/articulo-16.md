@@ -1,0 +1,1 @@
+Artículo 16.—Del reconocimiento de otros rubros. Adicionalmente se reconocerá el pago por concepto de peajes, utilización de transbordadores que deba pagar el funcionario en su labor oficial, debiendo presentar el respectivo comprobante.

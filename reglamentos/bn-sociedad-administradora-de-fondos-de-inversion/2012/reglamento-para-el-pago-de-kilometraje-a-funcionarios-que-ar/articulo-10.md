@@ -1,0 +1,1 @@
+Artículo 10.—De la resolución de cese. Si se produjere algunas de las causales anteriores, el Gerente General o la persona que él designe, deberá, mediante resolución motivada, dar por finalizada la relación contractual y notificar de ello al funcionario arrendante.
