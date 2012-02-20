@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa del Instituto Mixto de Ayuda 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-15 | la propia norma |
+| 2 | 2012-02-20 | Reglamento 0 (2012-02-20) |
