@@ -1,0 +1,1 @@
+Artículo 4°—Apoyo logístico. Para el cumplimiento de los objetivos de la Comisión, las instituciones involucradas brindarán dentro de sus posibilidades, el apoyo logístico requerido (recursos económicos, humanos, uso y facilitación de estructuras y equipos).
