@@ -14,3 +14,4 @@ Reforma Reglamento de Becas para Funcionarios del INFOCOOP y Reglamento de Capac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-23 | la propia norma |
+| 2 | 2012-02-20 | Reglamento 3860 (2012-02-20) |
