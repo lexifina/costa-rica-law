@@ -1,0 +1,16 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+REGISTRO DE LA PROPIEDAD INDUSTRIAL
+DIRECTRIZ ADMINISTRATIVA DRPI-02-2012
+De: Lic. Luis Gustavo Álvarez Ramírez, Director
+Registro de la Propiedad Industrial.
+Para: Funcionarios y usuarios del Registro de la Propiedad.
+Asunto: Fecha de presentación de las solicitudes ingresadas al Registro de la Propiedad Industrial.
+Fecha: 27 de enero de 2012.
+En cuanto al otorgamiento de fecha de presentación en las solicitudes que ingresan al Registro de la Propiedad Industrial, la normativa señala:
+“Ley de Marcas y otros Signos Distintivos. Artículo 10. Admisión para el trámite de la solicitud presentada. El Registro de la Propiedad Industrial le asignará una fecha y hora de presentación a la solicitud de registro y la admitirá para el trámite si cumple con los siguientes requisitos: a) Contiene identificaciones que permiten identificar al solicitante, b) Señala una dirección o designa a un representante en el país, c) Muestra la marca cuyo registro se solicita, o si se trata de marcas denominativas con grafía, forma o color especial o de marcas figurativas, mixtas o tridimensionales con color o sin él, se adjuntará una reproducción de la marca, d) Contiene los nombres de los productos o servicios para los cuales se use o usará la marca; además indica la clase, e) Adjunta el comprobante del pago total de la tasa básica. (Así reformado por la Ley 8632),
+“Ley de Patentes de Invención, Dibujos y Modelos Industriales y Modelo de Utilidad. Artículo 6. 1. La solicitud de patente será presentada ante el Registro de la Propiedad Industrial, acompañada de una descripción, de las reivindicaciones, de los dibujos que fuesen necesarios para comprender la invención, y de un resumen de estos documentos. Se acompañará también el comprobante de haber pagado la tasa de presentación establecida en el reglamento de esta ley. (...) 10. En el caso de que a la fecha en la que se presenta la solicitud, esta no incluya, por lo menos, el nombre del solicitante, la descripción, las reivindicaciones y cualquier dibujo necesario para entender la invención, el Registro de Propiedad Industrial otorgará como fecha de presentación aquella en la que se dé cumplimiento total de la prevención correspondiente. (Así adicionado por Ley 8632 de 28-03-2008).
+Visto lo anterior, se determina que:
+1) Independientemente de la fecha en que se recibe en la ventanilla del Diario del Registro de la Propiedad Industrial las solicitudes de inscripción, la prelación será tomada a partir de la fecha en que se dé cumplimiento total de los requisitos establecidos en el artículo 10 antes dicho para el caso de las marcas y otros signos distintivos y el artículo 6 señalado supra, en el caso de las patentes invención, dibujos y modelos industriales y modelos de utilidad.
+2) El Registro realizará la calificación de la solicitud, una vez cumplidos los requisitos mínimos antes señalados y asignada la fecha de presentación.
+3) En los casos en que se cumpla con lo establecido en la normativa citada desde la primera presentación, esa será la fecha de prelación para todos los efectos legales.
+Se recuerda que las disposiciones contenidas en esta Directriz Administrativa son de acatamiento obligatorio
