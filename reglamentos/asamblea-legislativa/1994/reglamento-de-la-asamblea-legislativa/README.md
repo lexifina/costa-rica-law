@@ -35,3 +35,4 @@ Reglamento de la Asamblea Legislativa
 | 20 | 2008-02-25 | Reglamento 144 (2008-02-25) |
 | 21 | 2010-05-25 | Reglamento 17 (2010-05-25) |
 | 22 | 2011-03-15 | Reglamento 158 (2011-03-15) |
+| 23 | 2012-02-21 | Reglamento 145 (2012-02-21) |

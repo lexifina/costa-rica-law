@@ -1,8 +1,8 @@
 CAPITULO V
 ORDEN DEL DÍA
-Artículo 35.—Orden de la sesión y Agenda Parlamentaria
+Artículo 35.- Orden de la sesión y Agenda Parlamentaria
 El orden de la sesión plenaria es el siguiente:
-1.Discusión y aprobación del acta.
+1. Discusión y aprobación del acta.
 2. Suspensión de derechos y garantías, de conformidad con el inciso 7) del artículo 121 de la Constitución Política.
 3. Asuntos del Régimen Interno.
 4. Asuntos de control, fiscalización y demás contenido político, los cuales se tramitarán en el siguiente orden:
@@ -24,6 +24,7 @@ Los asuntos que, por disposición constitucional o reglamentaria, deban ser cono
 La Agenda Parlamentaria estará constituida por todos los asuntos que al Plenario le compete conocer y decidir. Para efecto de su ordenamiento, estos se consignarán en el capítulo que corresponda del orden de la sesión en la siguiente forma:
 a. Dictámenes unánimes afirmativos.
 b. Dictámenes afirmativos de mayoría.
-c. Los dictámenes respectivos se ordenarán según el orden cronológico de su presentación ante la Dirección Ejecutiva.
+c. Los dictámenes respectivos se ordenarán según el orden cronológico de su presentación ante el Departamento de la Secretaría del Directorio.
+(Así reformado el inciso anterior mediante sesión N° 145 del 21 de febrero del 2012)
 d. Los proyectos dispensados de todos los trámites se tramitarán en la forma prevista para los dictámenes unánimes afirmativos, y se tendrán como presentados en la fecha en que se aprobó la moción de dispensa.
-(Así reformado mediante acuerdo N° 6040 de 10 de diciembre del 2001 y publicado en La Gaceta N° 5 del 8 de enero del 2002)
+(Así reformado mediante Acuerdo N° 6040 de 10 de diciembre del 2001)
