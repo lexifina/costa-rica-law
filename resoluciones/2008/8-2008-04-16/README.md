@@ -14,3 +14,4 @@ Tratamiento tributario de los ingresos provenientes de espectáculos públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-06 | la propia norma |
+| 2 | 2012-02-21 | Resolución 4 (2012-02-21) |
