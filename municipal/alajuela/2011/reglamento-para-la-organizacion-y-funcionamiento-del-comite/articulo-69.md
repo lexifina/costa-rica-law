@@ -1,1 +1,1 @@
-Artículo 69. Para la satisfacción de sus necesidades, los Comités Comunales deben organizar actividades para captar recursos económicos o en especie, pudiendo solicitar para ello la colaboración de la empresa privada, instituciones públicas, y al Comité Cantonal de deportes.
+Artículo 69.—Para la satisfacción de sus necesidades, los Comités Comunales deben organizar actividades para captar recursos económicos o en especie, pudiendo solicitar para ello la colaboración de la empresa privada, instituciones públicas. y al Comité Cantonal de Deportes.

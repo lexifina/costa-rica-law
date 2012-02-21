@@ -1,10 +1,10 @@
-Artículo 26. Se la condición de miembro de la Junta Directiva, cuando concurra al menos una de las siguientes causas:
+Artículo 26.—Se pierde la condición de miembro de la Junta Directiva, cuando concurra al menos una de las siguientes causas:
 a) Ausencia injustificada a tres sesiones consecutivas del Comité Cantonal de Deportes.
-b) Por aplicación del artículo 6 del presente reglamento.
+b) Por aplicación del artículo 6º del presente Reglamento.
 c) Ser contratado para desempeñar cualquier actividad económicamente remunerada o recibir cualquier clase de estipendio por parte del Comité Cantonal.
 d) Por renuncia voluntaria.
 e) Ausencias alternas injustificadas a ocho sesiones del Comité Cantonal durante un año.
 f) Ausencias justificadas más de doce en un año (excepto por enfermedad o permisos especiales otorgados por la Junta Directiva).
-g) Por infringir los Artículos 11, 50 y 51 de este Reglamento.
+g) Por infringir los artículos 10, 48 y 49 de este Reglamento.
 h) Por inhabilitación judicial.
-i) Por dejar de residir en el Cantón Central de la Provincia de Alajuela.
+i) Por dejar de residir en el Cantón Central de la provincia de Alajuela.

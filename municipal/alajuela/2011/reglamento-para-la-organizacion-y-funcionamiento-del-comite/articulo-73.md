@@ -1,4 +1,4 @@
-Artículo 73. Para efectos disciplinarios de los comités Comunales y según la gravedad del caso, se establecen las sanciones siguientes:
+Artículo 73.—Para efectos disciplinarios de los comités Comunales y según la gravedad del caso y de acuerdo a lo que establece el debido proceso se establecen las sanciones siguientes:
 a) Prevención.
 b) Amonestación.
 c) Suspensión.

@@ -1,5 +1,7 @@
-CAPITULO VII ESTRUCTURA ADMINISTRATIVA
-Artículo 39. La estructura administrativa del Comité Cantonal, cuenta con tres áreas de trabajo: La primera denominada Programa Administrativo, la segunda denominada Programa Deportivo y recreativo y la tercera área denominada Programa Operativo.
+CAPÍTULO VII
+Estructura administrativa
+Artículo 39.—La estructura administrativa del Comité Cantonal, cuenta con tres áreas de trabajo: La primera denominada Programa Administrativo, la segunda denominada Programa Deportivo y recreativo y la tercera área denominada Programa Operativo.
 El Programa Administrativo, estará integrado por los procesos Administrativo y el Financiero, el primero estará integrado por los subprocesos de Adquisición y Administración de Bienes y Servicios, Recursos Humanos y Secretaría del Comité Cantonal. El segundo estará integrado por los subprocesos de Presupuesto, Tesorería y Contabilidad.
 El Programa Deportivo, estará a cargo de todas las actividades deportivas y recreativas que programe el Comité Cantonal, tendrá a cargo la coordinación con los entrenadores de las diferentes ramas deportivas y diferentes organizaciones relacionadas, así como con los instructores de los programas recreativos.
 El Programa Operativo, estará conformado por los subprocesos de Mantenimiento, Misceláneos y Seguridad, quienes se encargan del cuido y mantenimiento de las instalaciones del Comité de Deportes.
+Esta estructura Administrativa está regulada por el Manual de Puestos y Funciones del CODEA que para este fin fue aprobado por el Concejo Municipal de Alajuela.

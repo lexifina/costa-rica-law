@@ -1,4 +1,4 @@
-Artículo 29. Las mociones de orden tienen prioridad para la discusión, sobre aquellas otras que se encuentren presentadas en la Junta Directiva, su objeto es:
+Artículo 29.—Las mociones de orden tienen prioridad para la discusión, sobre aquellas otras que se encuentren presentadas en la Junta Directiva, su objeto es:
 a) Levantar la sesión o alterar el orden del día.
 b) Dispensar algún trámite en determinado asunto.
 c) Dar por agotada la discusión de un determinado asunto que se esté conociendo.
