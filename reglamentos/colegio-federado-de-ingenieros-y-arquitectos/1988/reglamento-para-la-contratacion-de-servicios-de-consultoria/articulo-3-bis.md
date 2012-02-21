@@ -15,3 +15,10 @@ j. Reparaciones de fontanería.
 k. Reparaciones eléctricas (sustitución de luninacrias, de tomacorrientes y de apagadores).
 (Así adicionado el inciso anterior mediante sesión N° 03-11/12-G.E.de 22 de noviembre del 2011)
 (Así adicionado mediante acuerdo 21 de la sesión N° 02 del 24 de noviembre del 2009)
+l.Remodelación de módulos o cubículos.
+(Así adicionado el inciso anterior mediante sesión N° 15-11/12-G.E.de 21 de febrero del 2012)
+m. Cambio de enchape y losa sanitaria en los baños o servicios sanitarios.
+(Así adicionado el inciso anterior mediante sesión N° 15-11/12-G.E.de 21 de febrero del 2012)
+n. Levantamiento de paredes livianas tipo muro seco, para conformar divisiones en oficinas.
+(Así adicionado el inciso anterior mediante sesión N° 15-11/12-G.E.de 21 de febrero del 2012)
+(Así adicionado mediante acuerdo 21 de la sesión N° 02 del 24 de noviembre del 2009).
