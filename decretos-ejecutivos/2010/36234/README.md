@@ -16,3 +16,4 @@ Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consu
 | 1 | 2010-11-01 | la propia norma |
 | 2 | 2011-08-24 | Decreto Ejecutivo 36758 (2011-08-24) |
 | 3 | 2011-12-13 | Decreto Ejecutivo 36942 (2011-12-13) |
+| 4 | 2012-02-22 | Decreto Ejecutivo 37045 (2012-02-22) |
