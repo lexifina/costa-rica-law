@@ -1,1 +1,0 @@
-Artículo 5º—Eliminación de requisitos. Mediante el establecimiento de reglas claras y sencillas de fácil cumplimiento por el ciudadano, que permitan la eliminación excesiva de documentación y requisitos; los órganos y entidades públicas sujetos a la aplicación de este reglamento, eliminarán los requisitos que no tengan un fundamento legal y técnico.

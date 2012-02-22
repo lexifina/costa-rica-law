@@ -1,1 +1,0 @@
-Artículo 30.—Responsabilidad disciplinaria del funcionario público. Las faltas graves enunciadas en los incisos a), b), c), d), e), f), g) y h) del artículo 10 de la Ley, acarrearán la correspondiente responsabilidad del funcionario público.

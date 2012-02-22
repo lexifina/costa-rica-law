@@ -1,1 +1,0 @@
-Artículo 33.—Distribución interna de responsabilidades. Cuando el daño haya sido producido por la Administración y el servidor culpable, o por varios servidores culpables, deberán distribuirse las responsabilidades entre ellos, de acuerdo con el grado de participación de cada uno.
