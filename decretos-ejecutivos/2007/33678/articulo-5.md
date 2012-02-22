@@ -1,2 +1,0 @@
-Artículo 5°—Priorización de objetivos de simplificación de trámites y su seguimiento. Los jerarcas de las instituciones indicadas en el artículo 1º del Reglamento deberán designar al Viceministro, como Oficiales y Enlaces de Simplificación de Trámites para dar seguimiento a los Planes o Programas de mejora regulatoria y simplificación de trámites.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36046 del 8 de junio de 2010)
