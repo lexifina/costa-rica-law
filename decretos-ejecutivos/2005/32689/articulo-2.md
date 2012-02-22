@@ -1,1 +1,0 @@
-Artículo 2º—De la metodología. La metodología para el análisis costo - beneficio, se compone de un formulario con su correspondiente guía de llenado. El formulario se denominará: "Formulario de Evaluación Costo - Beneficio".
