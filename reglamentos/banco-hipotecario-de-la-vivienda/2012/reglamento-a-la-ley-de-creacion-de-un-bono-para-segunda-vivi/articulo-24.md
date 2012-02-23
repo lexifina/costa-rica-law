@@ -1,0 +1,1 @@
+Artículo 24.—Legislación y reglamentación supletoria: En todo lo no previsto en las presentes normas se aplicarán las disposiciones convencionales del bono familiar de vivienda para el trámite de las operaciones y el financiamiento correspondiente.
