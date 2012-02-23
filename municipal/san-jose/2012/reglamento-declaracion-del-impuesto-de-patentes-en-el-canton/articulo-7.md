@@ -1,0 +1,2 @@
+Artículo 7º—De las responsabilidades. El usuario es responsable por la exactitud, veracidad, contenido o por cualquier error en la información proporcionada en su declaración jurada u otra información presentada, sea que se trate de errores humanos o tecnológicos, que no atañen a la Administración Tributaria Municipal.
+La Municipalidad, no será responsable por las pérdidas o daños sufridos por el usuario, por causa de la actuación de terceros en su nombre o por fallas tecnológicas bajo responsabilidad de él o de terceros.
