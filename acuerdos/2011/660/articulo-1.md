@@ -1,0 +1,4 @@
+JUNTA DE PROTECCIÓN SOCIAL
+La Junta de Protección Social, comunica: que con base en acuerdo JD-660, correspondiente al artículo VI), inciso 8) de la sesión Nº 47-2011 celebrada el 15 de diciembre del 2011, la Junta Directiva, acuerda:
+“Acoger el criterio emitido en la nota AL-1419 de diciembre del 2011, suscrita por la Licda. Marcela Sánchez Quesada y la Licda. Shirley López Rivas, por lo que se solicita la inclusión de la modificación planteada en oficio en el Manual de Criterios para la Distribución de Recursos, de la misma forma se autoriza que la Asociación Cruz Roja Costarricense, la Asociación Costarricense para el Tamizaje y la Prevención de Discapacidades en el Niño y la Asociación Hogares Crea, no suscriban convenio durante el periodo 2012. Acuerdo firme”.
+San José, 10 de febrero del 2012.—
