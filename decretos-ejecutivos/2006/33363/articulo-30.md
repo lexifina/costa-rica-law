@@ -1,1 +1,0 @@
-Artículo 30.—En el desempeño de su trabajo, el personal de la Auditoría Interna está obligado a mantener confidencialidad en la información que maneje, de acuerdo con los principios éticos que la profesión le exige.

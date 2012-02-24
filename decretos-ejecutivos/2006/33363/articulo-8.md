@@ -1,1 +1,0 @@
-Artículo 8º—Ningún funcionario del CONAPAM, de las instituciones privadas y públicas, que reciben transferencias del CONAPAM puede alegar ignorancia o desconocimiento de este reglamento. Es obligación de todos los funcionarios que ocupen cargos de jefatura ponerlo en conocimiento de su personal subalterno.

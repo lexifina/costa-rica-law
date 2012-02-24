@@ -1,1 +1,0 @@
-Artículo 47.—El Órgano Director que corresponda, es el responsable de procurar la verdad real de los hechos. Por tanto, los funcionarios de la Auditoría están inhabilitados para integrar ese tipo de órganos, según lo dispuesto en el artículo 34 de la Ley General de Control Interno.

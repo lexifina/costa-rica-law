@@ -1,1 +1,0 @@
-Artículo 45.—Cuando la Dirección de Auditoría lo considere necesario, para guiar apropiadamente su estudio y fundamentar el informe que ha de emitir, contará con la asesoría legal que estime pertinente, dentro de las posibilidades de recursos profesionales existentes.
