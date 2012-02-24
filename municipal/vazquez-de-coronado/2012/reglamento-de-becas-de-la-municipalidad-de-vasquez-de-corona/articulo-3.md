@@ -1,0 +1,1 @@
+Artículo 3º—El presente Reglamento regula la concesión de becas que la Municipalidad podrá otorgar a estudiantes que se encuentren cursando cualquiera de los ciclos lectivos del sistema educativo público hasta los niveles parauniversitario y universitario.

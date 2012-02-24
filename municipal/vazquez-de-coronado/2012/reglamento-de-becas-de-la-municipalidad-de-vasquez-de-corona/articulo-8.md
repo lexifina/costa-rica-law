@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión de Educación y Cultura decidirá, junto con los Concejos de Distrito, la asignación de las becas que recomendará al Concejo para su aprobación. Se procurará una distribución geográficamente equitativa y con prioridad para los más necesitados.

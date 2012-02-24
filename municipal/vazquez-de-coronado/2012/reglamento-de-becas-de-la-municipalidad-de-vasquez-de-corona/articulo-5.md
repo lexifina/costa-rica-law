@@ -1,0 +1,1 @@
+Artículo 5º—En los formularios de becas se deberá aclarar, a las personas solicitantes, que el llenar dicho documento no les da automáticamente derecho a obtener la beca.

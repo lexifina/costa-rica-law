@@ -1,0 +1,1 @@
+Artículo 2º—Se considera beca la ayuda económica que se entrega durante el período lectivo, en forma mensual y en dinero en efectivo, a estudiantes de la educación pública y, además, a estudiantes activos del Centro de Atención Integral para Adultos con Discapacidad (CAIPAD) de Vázquez de Coronado.

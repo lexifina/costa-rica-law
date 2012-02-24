@@ -1,0 +1,1 @@
+Artículo 13.—Las becas serán aprobadas por el Concejo Municipal con una votación de mayoría simple, previa recomendación de la Comisión de Educación y Cultura y de los Concejos de Distrito. La aprobación definitiva de las solicitudes de beca deberá ser resuelta a más tardar la última quincena de enero, para que la Administración realice el primer depósito en marzo.

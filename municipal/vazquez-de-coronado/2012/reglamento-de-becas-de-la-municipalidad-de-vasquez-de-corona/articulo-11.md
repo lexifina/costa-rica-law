@@ -1,0 +1,1 @@
+Artículo 11.—El Concejo de Distrito, la Comisión de Educación y Cultura y la Administración se reservan el derecho de visitar el hogar de quien solicite el beneficio, con el fin de confirmar la información suministrada, para el otorgamiento de la beca.

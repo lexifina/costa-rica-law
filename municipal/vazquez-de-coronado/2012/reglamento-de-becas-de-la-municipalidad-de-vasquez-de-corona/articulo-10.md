@@ -1,0 +1,1 @@
+Artículo 10.—El monto de la beca se fijará de acuerdo con el 2% del presupuesto total municipal de cada período, y el número de beneficiarios(as) lo determinará el Concejo Municipal de conformidad con ese presupuesto, excluidas las partidas presupuestarias que tienen destinos específicos por ley.

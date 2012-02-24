@@ -1,0 +1,1 @@
+Artículo 14.—En caso de renuncia o pérdida del beneficio, la Administración otorgará la beca a otro estudiante del mismo distrito, si es posible, que se encuentre en lista de espera según el estudio y recomendación previa de la Comisión de Educación y Cultura, siguiendo el principio de primero en tiempo, primero en derecho.
