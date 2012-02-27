@@ -1,1 +1,0 @@
-Artículo 7º—De la duración en los cargos de la Junta Administrativa. Los miembros de la Junta Administrativa durarán en sus cargos tres años, a partir del primero de julio siguiente a su designación, pudiendo ser reelectos.

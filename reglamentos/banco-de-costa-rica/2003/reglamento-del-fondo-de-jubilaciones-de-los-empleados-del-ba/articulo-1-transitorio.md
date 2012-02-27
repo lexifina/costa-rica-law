@@ -1,6 +1,0 @@
-CAPÍTULO VI
-Transitorios
-Transitorio.—En adición a las cuentas de capitalización individual, el Fondo mantendrá una Reserva para Pensiones en Curso de Pago, para los jubilados que se acogieron al perfil de beneficios del Reglamento aprobado en junio de 1989.
-Esta reserva estará conformada por el actual monto consignado en la reserva para el pago de las pensiones en curso, más las utilidades que se obtengan por medio de la administración de los activos de la Reserva, más los ajustes necesarios para garantizar su suficiencia actuarial y atender contingencias legales, que serán garantizados por el Banco de Costa Rica y trasladados a la Operadora de Pensiones que la administre.
-Aprobado por nuestra Junta Directiva General en sesión Nº 7-03, artículo XIX, del 11 de febrero del 2003.
-Rige a partir de su publicación en el Diario Oficial La Gaceta.
