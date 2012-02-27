@@ -14,3 +14,4 @@ Plan de Vacaciones Colectivas del Poder Judicial 2011-2012 y Lineamientos para l
 | --- | --- | --- |
 | 1 | 2011-11-24 | la propia norma |
 | 2 | 2012-02-20 | Acuerdo 8 (2012-02-20) |
+| 3 | 2012-02-27 | Acuerdo 9 (2012-02-27) |
