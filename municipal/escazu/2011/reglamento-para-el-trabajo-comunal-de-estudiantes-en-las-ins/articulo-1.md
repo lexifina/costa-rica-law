@@ -11,4 +11,5 @@ Artículo 6º—Que esta Municipalidad considera indispensable reglamentar las d
 REGLAMENTO PARA EL TRABAJO COMUNAL
 DE ESTUDIANTES EN LAS INSTALACIONES
 DE LA MUNICIPALIDAD DE ESCAZÚ
-Artículo 1º —Objeto. El presente Reglamento tiene por objeto establecer los requisitos y condiciones que deben cumplir las Instituciones de Enseñanza Superior o Colegios Técnicos que deseen enviar a sus estudiantes de diversas carreras o estudios afines al quehacer municipal, a efectos que realicen el Trabajo Comunal Universitario o Técnico, desarrollen Proyectos de tesis o de graduación, en las instalaciones de la Municipalidad de Escazú sobre el cual no recibirán pago alguno dada su naturaleza.
+Artículo 1º —Objeto. El presente Reglamento tiene por objeto establecer los requisitos y condiciones que deben cumplir los centros de enseñanza privados o públicos, sean estos de educación diversificada, técnica, agropecuaria, por madurez, universitaria, entre otros de la misma índole; que deseen enviar a sus estudiantes para que realicen trabajo comunal en las instalaciones de la Municipalidad de Escazú. Por la naturaleza de la labor a ejecutar, los estudiantes no percibirán pago alguno.
+(Así reformado en sesión ordinaria N° 96 del 27 de febrero del 2012)

@@ -14,3 +14,4 @@ Reglamento para el Trabajo Comunal de Estudiantes en las Instalaciones de la Mun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-19 | la propia norma |
+| 2 | 2012-02-27 | Reglamento municipal 96 (2012-02-27) |

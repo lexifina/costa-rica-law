@@ -9,4 +9,5 @@ Artículo 4º—De los deberes del estudiante: El estudiante durante la ejecuci�
 · Se debe abstener de ejercer actividades de propaganda político-electoral dentro de la Municipalidad.
 · No ingerir licor dentro de la institución o presentarse a cumplir las tareas en estado de embriaguez, drogadicción o cualquier otra condición análoga.
 El trabajo comunal será realizado los días de la semana que se acuerden de previo entre la jefatura del Proceso designado para tales efectos, y él o la estudiante.
-En caso de incumplimiento de los deberes anteriormente designados, se dará por finalizado el trabajo comunal, la pasantía o la ejecución de la actividades relacionadas con proyectos de tesis del estudiante, sin mayor trámite que la simple comunicación al estudiante y el reporte de dicha situación a la respectiva Institución de Enseñanza Superior o Colegio Vocacional.
+En caso de incumplimiento de alguno o algunos de los deberes supracitados, se dará por finalizado el trabajo comunal que se realiza, bastando únicamente la comunicación por escrito al estudiante y el reporte de dicha situación al centro de enseñanza o institución interesada.
+(Así reformado el párrafo anterior en sesión ordinaria N° 96 del 27 de febrero del 2012)
