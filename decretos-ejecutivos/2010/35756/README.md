@@ -15,3 +15,4 @@ Conformación del Consejo Nacional de Salarios "período correspondiente del 01 
 | --- | --- | --- |
 | 1 | 2010-01-01 | la propia norma |
 | 2 | 2010-05-14 | Decreto Ejecutivo 36027 (2010-05-14) |
+| 3 | 2012-02-27 | Decreto Ejecutivo 37050 (2012-02-27) |
