@@ -1,0 +1,1 @@
+Artículo 2º—Se nombra al señor Fausto F. Roldán Guevara, cédula uno-doscientos noventa y cuatro-novecientos veintiuno, como miembro suplente del Sector Estatal, ante el Consejo Nacional de Salarios. El nombramiento es por lo que falta del período, hasta el 31 de diciembre del 2013.
