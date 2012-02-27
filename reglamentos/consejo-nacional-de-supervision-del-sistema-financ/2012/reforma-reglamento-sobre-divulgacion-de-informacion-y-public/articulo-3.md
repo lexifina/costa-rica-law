@@ -1,0 +1,1 @@
+3. Sustituir en los artículos 1º, 2º, 3º, 5º, 6º, 7º y en el Anexo 1, incluyendo su título y el nombre de los Capítulos y Secciones, el término: “productos financieros”, por “productos y servicios financieros”, y el término: “producto financiero”, por “producto y servicio financiero”, en el Acuerdo SUGEF 10-07.
