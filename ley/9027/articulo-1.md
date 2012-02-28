@@ -1,0 +1,17 @@
+N° 9027
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+ADICIÓN DEL ARTÍCULO 42 BIS A LA LEY N.º 7969, LEY REGULADORA DEL
+SERVICIO PÚBLICO DE TRANSPORTE REMUNERADO DE PERSONAS
+EN VEHÍCULOS EN LA MODALIDAD TAXI, DE 22 DE DICIEMBRE
+DE 1999, Y SUS REFORMAS. LEY PARA AUTORIZAR LA
+TRANSMISIBILIDAD DE DERECHOS DE CONCESIÓN
+POR MUERTE DEL CONCESIONARIO EN EL
+SERVICIO PÚBLICO DE TAXIS
+ARTÍCULO ÚNICO.-
+Adiciónase el artículo 42 bis a la Ley N.º 7969, Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad de Taxi, de 22 de diciembre de 1999, y sus reformas. El texto es el siguiente:
+“Artículo 42 bis.- Traspaso de beneficio de la concesión en el servicio público de taxi por muerte de la persona concesionaria.
+Todo concesionario o concesionaria del servicio público del transporte remunerado de personas en vehículos en la modalidad de taxi podrá designar libremente e incluirse en el Registro de Concesiones del Consejo una persona beneficiaria titular y una suplente, para el caso de muerte. La persona suplente entraría como beneficiaria directa si fallece la persona titular, siempre que el concesionario o la concesionaria lo seleccione entre los siguientes parientes, a saber: abuelos o abuelas, padre o madre, hijos o hijas, hermanos o hermanas, sobrinos o sobrinas, el consorte o la consorte, o el conviviente o la conviviente en unión de hecho, para que asuma de pleno derecho y sin necesidad de trámites judiciales la concesión administrativa otorgada al concesionario o concesionaria fallecido. Cuando ello ocurra, el beneficiario o la beneficiaria deberá aportar la certificación de defunción expedida por el Registro Civil, a efecto de que la administración concedente compruebe tal hecho.
+La persona concesionaria puede revocar y sustituir al beneficiario o beneficiaria siempre dentro del grado de parentesco establecido en el párrafo anterior. Todo cambio deberá ser comunicado a la administración concedente para que así sea registrado.
+El familiar beneficiario no está exento de cumplir todas las disposiciones, obligaciones y prohibiciones fijadas en este cuerpo normativo y deberá demostrar que reúne los requerimientos que demandará su nueva condición de concesionario hasta por el plazo que reste de la concesión, pudiéndose prorrogar conforme al inciso 1 b del artículo 29 de la presente ley. No obstante, en caso de que la nueva persona concesionaria por traspaso de beneficio se encuentre en cualquiera de los supuestos a que alude el artículo 49 de esta ley, quedará eximida de la obligatoriedad de presentar código y licencia C-1 y conducir el taxi un mínimo de ocho horas diarias, pero en todo caso deberá mantener el control y la vigilancia adecuados sobre la calidad en la prestación del servicio y el cumplimiento de las obligaciones que derivan de su constitución en concesionario o concesionaria.
+Los concesionarios pueden acreditar, en cualquier momento, a los beneficiarios designados ante la administración concedente. Cada vez que se otorgue una nueva concesión, dentro del expediente administrativo deberá constar la autorización a las personas beneficiarias. En caso de fallecimiento sin haberse registrado la persona beneficiaria, titular y suplente, se cancelará automáticamente la concesión otorgada.”
