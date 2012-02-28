@@ -14,3 +14,4 @@ Reglamento de la Municipalidad de Desamparados para ubicación y otorgamiento de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-08 | la propia norma |
+| 2 | 2012-02-28 | Reglamento municipal 13 (2012-02-28) |
