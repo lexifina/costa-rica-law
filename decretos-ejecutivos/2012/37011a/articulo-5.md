@@ -1,0 +1,1 @@
+Artículo 5. El Estado Parte que pretenda adoptar o modificar una medida sanitaria o fitosanitaria, deberá notificar y enviar el texto escrito de la medida a las autoridades competentes de cada Estado Parte con una antelación no menor de 60 días calendario a la publicación y entrada en vigor en su territorio, salvo lo dispuesto en el artículo 6 de este Reglamento.

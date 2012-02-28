@@ -1,0 +1,3 @@
+Artículo 9. Armonización de Medidas Sanitarias Y Fitosanitarias:
+1. Con el objeto de proceder a la armonización de medidas sanitarias y fitosanitarias y de conformidad con lo establecido en el Protocolo de Guatemala, los Estados Parte deberán establecer medidas sanitarias y fitosanitarias comunes tomando como base las normas, directrices o recomendaciones de las organizaciones internacionales competentes, cuando existan, de conformidad con lo dispuesto en el artículo 3 del AMSF.
+2. En los casos en que no exista una reglamentación nacional o regional respecto a las medidas sanitarias o fitosanitarias aplicables a la importación de un producto, el Estado Parte importador deberá, en la medida de lo posible, utilizar la norma internacional pertinente.

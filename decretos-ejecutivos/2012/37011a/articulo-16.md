@@ -1,0 +1,1 @@
+Artículo 16. Conforme a los derechos y obligaciones contenidos en este Reglamento, para aquellos productos que requieran un certificado oficial que garantice el cumplimiento de los requisitos sanitarios y fitosanitarios, los Estados Parte se asegurarán que el mismo sea emitido por la autoridad competente, según sea el caso.

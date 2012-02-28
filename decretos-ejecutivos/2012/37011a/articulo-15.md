@@ -1,0 +1,7 @@
+Artículo 15. Reconocimiento de zonas libres de plagas y enfermedades y zonas de escasa prevalencia de plagas o enfermedades
+1. Los Estados Parte reconocerán, conforme a lo establecido en el Acuerdo sobre la Aplicación de Medidas Sanitarias y Fitosanitarias de la OMC y por las organizaciones internacionales competentes, la existencia de zonas libres de plagas y enfermedades y zonas de escasa prevalencia de plagas o enfermedades.
+2. El Estado Parte que declare una zona de su territorio libre o de escasa prevalencia de una determinada plaga o enfermedad, podrá solicitar dicho reconocimiento a los demás Estados Parte y deberá:
+a. proveer a éstos la información científica y técnica pertinente; y.
+b. demostrar objetivamente a los otros Estados Parte dicha condición y otorgar la seguridad de que se mantendrá como tal, con base en las medidas de protección adoptadas por las autoridades competentes.
+3. El Estado Parte que reciba la solicitud deberá pronunciarse ante la otra Parte, en un plazo de 30 días calendario, indicando el procedimiento a utilizar, la información requerida para evaluar la solicitud, y si es posible el calendario previsto para completar el proceso de reconocimiento, el cual deberá ser acordados por los Estados Parte involucrados.
+4, La determinación del reconocimiento deberá ser comunicado 30 días calendario posteriores de haber agotado el proceso iniciado, señalando por escrito la fundamentación técnica-científica de su decisión.

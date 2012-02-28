@@ -1,0 +1,1 @@
+Artículo 19. Los Estados Parte podrán solicitar a los organismos de cooperación técnica, apoyo al seguimiento y actualización del proceso de armonización de normas y procedimientos sanitarios y fitosanitarios para el intercambio comercial en la región

@@ -1,0 +1,1 @@
+Artículo 17. Los Estados Parte facilitarán el tránsito a otro Estado Parte o a terceros países de productos, siempre que no representen un riesgo de introducción de plagas reglamentadas o enfermedades al Estado Parte que concede el tránsito y que cumpla con lo establecido en este Reglamento y la reglamentación regional aprobada para tai efecto.
