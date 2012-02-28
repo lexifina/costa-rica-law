@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. Las presentes disposiciones regulan las actividades atinentes a la planificación, organización, realización y evaluación de la Feria Nacional de Mujeres Empresarias liderada por INAMU y en coordinación con otras organizaciones públicas y privadas invitadas por el INAMU a formar parte de la organización del proceso.
+Cuando se realicen ferias regionales con objetivos coincidentes con los de este Reglamento deberá aplicarse esta normativa adecuando la organización, convocatoria y selección a la dimensión y particularidades de la regional.

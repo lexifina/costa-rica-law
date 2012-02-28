@@ -1,0 +1,1 @@
+Artículo 13.—Organización. La organización de la Feria estará a cargo del INAMU, bajo la responsabilidad del Área de Gestión de Políticas Públicas, que deberá encargarse de coordinar para que las demás áreas de la Institución participen, en lo pertinente, en la organización y ejecución de la feria; de manera tal que se ejecute como una iniciativa institucional.

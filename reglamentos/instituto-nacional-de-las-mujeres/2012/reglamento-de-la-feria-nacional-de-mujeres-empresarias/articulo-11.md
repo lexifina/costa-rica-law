@@ -1,0 +1,6 @@
+Artículo 11.—Bases de participación. Para cada edición de la Feria, la Comisión Organizadora a la que se refiere el artículo 14 establecerá, a partir de la propuesta del Área de Políticas Públicas del INAMU, las bases de participación correspondientes, que requerirán aprobación de la Presidencia Ejecutiva y que deberán incluir, al menos, los siguientes aspectos:
+a. Requisitos que deben cumplir las mujeres empresarias para participar, con base en lo señalado en el artículo anterior y según las categorías.
+b. Categorías de productos que pueden participar.
+c. Procedimiento de inscripción y selección, incluyendo quién llevará a cabo los procesos.
+d. Parámetros técnicos que regirán la evaluación de aspirantes, que deberán incluir como mínimo la calidad en cuanto a diseño y acabados, la innovación y diferenciación del producto para establecerse en un mercado determinado, posibilidades para establecer contactos comerciales en la actividad según el producto ofertado, nivel de formalización del negocio, actitud empresarial de la participante.
+e. Fechas exactas que se observarán en cada etapa del proceso de selección hasta llegar a la Feria. Las bases de participación deberán publicarse en medios de comunicación de alta audiencia por parte de las mujeres, y con no menos de 30 días naturales previo al inicio de la convocatoria.

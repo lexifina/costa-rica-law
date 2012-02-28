@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo general. El objetivo de la Feria es contribuir a mejorar las condiciones de vida y el bienestar de las mujeres empresarias, facilitando su acceso a mercados y reforzando su capacidad productiva y organizativa en busca de un mejor precio a sus productos, así como de la continuidad en sus relaciones comerciales.

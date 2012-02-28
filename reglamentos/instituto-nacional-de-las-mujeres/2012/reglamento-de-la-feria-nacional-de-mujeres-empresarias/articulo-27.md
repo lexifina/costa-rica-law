@@ -1,0 +1,1 @@
+Artículo 27.—Seguimiento de participantes en la Feria. La Comisión deberá establecer un mecanismo de seguimiento a las empresarias participantes con el fin de potenciar el desarrollo y sostenibilidad de sus negocios. La Comisión deberá valorar opciones de articulación de estas mujeres a los procesos de empresariedad que realizan diversas entidades públicas y privadas del país.
