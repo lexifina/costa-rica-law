@@ -1,0 +1,1 @@
+Artículo 15.—De los efectos de la suspensión. La suspensión provocará la inactivación automática de la inscripción del registro dentro del sistema informático del SFE y expediente documental, y de los efectos del mismo.

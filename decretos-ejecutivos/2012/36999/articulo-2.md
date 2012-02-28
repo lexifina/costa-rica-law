@@ -1,0 +1,1 @@
+Artículo 2º—Del ámbito de aplicación. Toda persona, física o jurídica, que importe productos vegetales, con fines de distribución o comercialización, dentro del territorio nacional, deberá estar inscrita en el Registro de Importadores del Servicio Fitosanitario del Estado, a cargo del Departamento Competente.

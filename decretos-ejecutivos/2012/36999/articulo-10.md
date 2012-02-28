@@ -1,0 +1,1 @@
+Artículo 10.—Del plazo para resolver la solicitud de registro. Recibida la solicitud, y completada con todos sus requisitos, el órgano competente del SFE que administra el registro; tendrá un plazo de cinco días hábiles, para resolverla.

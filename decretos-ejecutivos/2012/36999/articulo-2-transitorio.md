@@ -1,0 +1,1 @@
+Transitorio II.—Una vez publicado el presente Decreto y para lo que resta del año 2012, hasta del 31 de enero el 2013, la tarifa de inscripción será de ¢ 51.622,00 (cincuenta y un mil seiscientos veintidós colones sin céntimos).

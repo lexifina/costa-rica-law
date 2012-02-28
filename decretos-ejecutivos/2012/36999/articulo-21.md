@@ -1,0 +1,1 @@
+Articulo 21.—Del marchamado de las unidades de transportación. El SFE podrá marchamar las unidades de transportación en frontera en forma aleatoria, o considerando el tipo de producto, como medida de trazabilidad. El levantamiento o apertura del marchamo lo harán funcionarios del servicio de Extensión Agrícola del MAG, con levantamiento de un acta.

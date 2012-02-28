@@ -1,0 +1,1 @@
+Artículo 17.—Del órgano responsable de la suspensión y cancelación del Registro. Para los procedimientos sancionatorios descritos en este reglamento, el departamento competente en materia administración del registro será el órgano responsable de llevara a cabo el procedimiento para la cancelación del registro.
