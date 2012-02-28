@@ -16,6 +16,8 @@ xiii. Disminución en el monto máximo de las comisiones de administración, ent
 xiv. Eliminación de costos o gastos que asume directamente el fondo.
 xv. Cambio en el límite de suscripción de nuevas participaciones.
 xvi. Cambios o adiciones de entidades comercializadoras.
+xvii. Disminución del monto de capital colocado al término del plazo máximo, en los casos en que aplique según lo dispuesto en el párrafo segundo del artículo 18 de este Reglamento.
+(Así adicionado el acápite anterior en sesión N° 962-2012 del 28 de febrero del 2012)
 b. Autorización previa por el Superintendente de la modificación del prospecto, según lo dispuesto en el artículo 25 de este Reglamento, si se presenta alguna situación indicada a continuación:
 i. Cambio en la naturaleza (abierta o cerrada) del fondo.
 ii. Modificaciones del régimen de inversión, entendido como el cambio en las políticas de inversión; definición de los países y vehículos de estructuración para la adquisición de inmuebles en el exterior; la disminución en la periodicidad de distribución de los rendimientos; el aumento en las comisiones máximas establecidas en el prospecto; el aumento en el monto o plazo mínimo de inversión o permanencia; o el aumento del monto mínimo de cada serie; aumento o disminución del monto autorizado en fondos cerrados; aumento o disminución del nivel de endeudamiento en fondos cerrados; cambio en el esquema de compensación de reembolso anticipado; la inclusión de costos en que incurre el fondo.

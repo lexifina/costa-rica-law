@@ -19,3 +19,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 4 | 2009-11-26 | Reglamento 819 (2009-11-26) |
 | 5 | 2011-09-13 | Reglamento 934 (2011-09-13) |
 | 6 | 2011-10-26 | Reglamento 944 (2011-10-26) |
+| 7 | 2012-02-28 | Reglamento 962 (2012-02-28) |
