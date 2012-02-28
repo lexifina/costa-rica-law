@@ -41,6 +41,7 @@ articulo-39.md
 articulo-40.md
 articulo-41.md
 articulo-42.md
+articulo-42-bis.md
 articulo-43.md
 articulo-44.md
 articulo-45.md
