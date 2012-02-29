@@ -1,0 +1,1 @@
+Artículo 14.—Normativa aplicable al trámite de inscripción de sociedad mercantil. El trámite electrónico de inscripción de sociedad mercantil en el Registro Nacional se regirá por la normativa vigente en la materia.
