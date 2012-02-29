@@ -14,3 +14,4 @@ Reglamento de Contrataciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-09 | la propia norma |
+| 2 | 2012-02-29 | Reglamento 4621 (2012-02-29) |
