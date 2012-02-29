@@ -1,0 +1,1 @@
+B) Instruir a la dependencia encargada de la custodia de los expedientes de concesiones que se encuentren en trámite en el ICT, iniciar las gestiones a efectos de comunicar a cada Municipalidad los aspectos faltantes en cada expediente y proceder conforme lo acordado, dando el plazo de los veinte días hábiles señalados.
