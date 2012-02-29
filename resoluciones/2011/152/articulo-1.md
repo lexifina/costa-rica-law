@@ -459,11 +459,12 @@ El cálculo de este valor se efectuará a partir de los datos sobre costos de in
 a) Del documento titulado “Plan Indicativo Regional de Expansión de la Generación. Período 2011-2025. Diciembre 2010”, publicado por el Consejo de Electrificación de América Central-Grupo de Trabajo de Planificación Indicativa Regional (GTPIR), la tabla “Candidatos hidro en el OPTGEN. Costos de inversión capitalizados y actualizados a enero 2010”.
 b) Los informes realizados por la Autoridad Reguladora sobre fijaciones de precios de venta de energía al ICE proveniente de plantas hidroeléctricas privadas, en el marco de la Ley Nº 7200.
 c) Información auditada sobre costos de inversión de nuevas plantas hidroeléctricas que en el futuro vendan energía al ICE, en el marco de la Ley Nº 7200.
+d) En caso de que la fuente de información presente los datos con los intereses del período de construcción capitalizados, dicho costo se considerará ya incluido.
+(Así adicionado mediante resolución RJD-013 del 29 de febrero de 2012)
 De las dos fuentes de información mencionadas, se extraerán todos los datos disponibles sobre costos de inversión de plantas hidroeléctricas con capacidades instaladas iguales o menores que 20 MW. Posteriormente, esos datos se someterán al siguiente tratamiento:
 a) Se conformarán cinco grupos de plantas, cada uno de los cuales corresponde a un rango de 4 MW de capacidad instalada; esto es, el grupo de cero a 4 MW, el de 4,1 MW á 8 MW, el de 8,1 MW á 12 MW, el de 12,1 MW á 16 MW, y el de 16,1 MW á 20 MW.
 b) Se obtiene el costo de inversión promedio de las plantas incluidas en cada uno de los grupos mencionados anteriormente.
 c) Se obtiene el promedio de los valores promedio de cada uno de los grupos de plantas.
-d) Al valor antes citado se agrega el monto correspondiente al pago de intereses durante el período de gracia. Este se estima como el equivalente a dos años de intereses sobre el valor promedio de inversión calculado.
 En el cuadro 2.1 del Anexo 2 de este informe, se presenta el cálculo actual del costo de inversión promedio, con base en los criterios establecidos anteriormente. Este valor se actualizará en cada fijación tarifaria.
 Definición de la banda tarifaria
 Se regulará el precio de venta de energía por parte de generadores privados al ICE, en el marco del capítulo I de la Ley Nº 7200, mediante una banda tarifaria.
