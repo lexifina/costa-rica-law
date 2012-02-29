@@ -14,3 +14,4 @@ Reglamento sobre la Concesión para la Elaboración de Bebidas Alcohólicas de F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-19 | la propia norma |
+| 2 | 2012-02-29 | Reglamento 2834 (2012-02-29) |
