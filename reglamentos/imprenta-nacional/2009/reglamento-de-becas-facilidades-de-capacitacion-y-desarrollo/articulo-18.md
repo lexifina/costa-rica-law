@@ -1,4 +1,5 @@
-Artículo 18.—Para que un servidor se haga acreedor de una beca, debe cumplir con los siguientes requisitos:
+Artículo 18.—Para que un servidor se haga acreedor de una beca y/o subsidio para estudios, debe cumplir con los siguientes requisitos
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 009 del 1° de marzo del 2012)
 a) Ser funcionario de la Imprenta, estar nombrado en propiedad, haber superado el período de prueba.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 376 del 16 de diciembre de 2010)
 b) Solicitar por escrito ante la Comisión de Becas con al menos treinta días de anticipación al inicio del curso en el cual desea participar.

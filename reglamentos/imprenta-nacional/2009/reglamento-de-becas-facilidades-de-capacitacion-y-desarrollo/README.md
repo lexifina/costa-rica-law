@@ -15,3 +15,4 @@ Reglamento de becas, facilidades de capacitación y desarrollo del Recurso Human
 | --- | --- | --- |
 | 1 | 2009-08-10 | la propia norma |
 | 2 | 2010-12-16 | Reglamento 376 (2010-12-16) |
+| 3 | 2012-03-01 | Reglamento 9 (2012-03-01) |
