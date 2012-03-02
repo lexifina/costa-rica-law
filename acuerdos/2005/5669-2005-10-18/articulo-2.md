@@ -1,1 +1,0 @@
-2º—Autorizar a las Subgerencias para que elaboren y aprueben internamente los procedimientos de atención de reclamos de terceros por daños causados por actividades propias del quehacer institucional. Para esos efectos, se deberán respetar los conceptos, criterios de valoración y enfoques contenidos en el presente "Manual para la elaboración de avalúos por daños."
