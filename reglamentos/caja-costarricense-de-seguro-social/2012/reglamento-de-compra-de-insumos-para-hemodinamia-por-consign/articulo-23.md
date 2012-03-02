@@ -1,0 +1,2 @@
+Artículo 23. De los Informes.
+Tanto el Coordinador de la Unidad de Hemodinamia como su Coordinador Administrativo y las Jefaturas de los Servicios involucrados (Cardiología, Vascular Periférico y Neurocirugía), velarán porque se emitan los reportes de consumo mensual y técnicos, correspondientes y los que soliciten para su seguimiento y fiscalización la Comisión Técnica Institucional de Cardiología.

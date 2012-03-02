@@ -1,0 +1,3 @@
+Artículo 2. Ámbito de aplicación.
+Este reglamento regulará las compras relativas a la adquisición de insumos de hemodinamia para la Unidad de Hemodinamia del Hospital Dr. Rafael Ángel Calderón Guardia, bajo la figura de entrega por consignación, según los términos autorizados por la Contraloría General de la República en el oficio No. 09243 de 04 de septiembre del 2009.
+Por tanto, se entenderá bajo este reglamento como consignación la facultad que tiene el Hospital de requerir de una empresa o varias, un material previamente seleccionado a un precio previamente pactado, a fin de mantener un stock en la Sala de Hemodinamia del Hospital Calderón Guardia, para procedimientos endovasculares que realizan los Servicios de Cardiología, Vascular Periférico y Neurocirugía.

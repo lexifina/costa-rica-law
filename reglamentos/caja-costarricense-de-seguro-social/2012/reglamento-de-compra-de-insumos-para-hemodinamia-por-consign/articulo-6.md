@@ -1,0 +1,2 @@
+Artículo 6. Elegibilidad de las ofertas.
+Una vez realizado el Acto de Apertura, el día y la hora fijados, con la información suministrada en las ofertas aportadas, se realiza el Análisis Administrativo por parte de la Sub. Área de Contratación Administrativa, posteriormente la Unidad de Hemodinamia realiza la valoración de las muestras y determina si las ofertas cumplen con todos los requisitos y especificaciones técnicas, incluidas las condiciones generales y específicas

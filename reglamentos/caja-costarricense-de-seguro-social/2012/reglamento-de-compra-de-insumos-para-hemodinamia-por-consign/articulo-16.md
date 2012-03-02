@@ -1,0 +1,3 @@
+Artículo 16. Eficacia de las contrataciones.
+En el caso de que se requiera realizar nuevos contratos por la inclusión de nuevos proveedores al sistema de consignación, de acuerdo a lo establecido en el artículo 4 y 5 del presente reglamento, si así lo dispone el ente contralor se debe enviar al refrendo respectivo estos nuevos contratos.
+Si son nuevos insumos los que se requieren con las mismas empresas del Banco de Proveedores, de acuerdo a lo indicado en el artículo 5 del presente reglamento, se requiere la autorización de incorporación de nuevos insumos por parte de la Contraloría General de la República y el posterior refrendo local por parte de la Asesoría Legal del Hospital Calderón Guardia, si así lo indica el Ente Contralor.

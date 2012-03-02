@@ -1,0 +1,2 @@
+Artículo 26. Aprobación Final.
+Una vez autorizado el presente reglamento por la Contraloría General de la República, será sometido a aprobación ante la Junta Directiva de la Caja Costarricense de Seguro Social, de igual forma cualquier modificación al mismo para su aprobación, deberá comunicarse a la Contraloría General de la República, por ser ésta la que otorga la Autorización como Compra Especial.

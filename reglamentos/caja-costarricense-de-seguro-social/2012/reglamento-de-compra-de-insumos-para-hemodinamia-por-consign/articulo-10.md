@@ -1,0 +1,2 @@
+Artículo 10. Registro de Proveedores y conformación del Banco de Proveedores.
+Del universo de proveedores de la Caja Costarricense de Seguro Social, se abre un proceso de pre-calificación en el que podrán participar aquellas empresas distribuidoras de este tipo de productos a nivel nacional, aquellas que cumplan con las condiciones legales, administrativas y técnicas del cartel que para esos efectos se elaborará, pasarán a conformar el Banco de Proveedores para el sistema de consignación.
