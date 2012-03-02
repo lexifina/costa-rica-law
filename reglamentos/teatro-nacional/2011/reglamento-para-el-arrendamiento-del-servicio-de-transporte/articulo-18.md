@@ -1,0 +1,1 @@
+Artículo 18.—El Área Financiero-Contable conjuntamente con la Unidad de Proveeduría Institucional del “Teatro” revisarán periódicamente las pólizas que cubren a los vehículos ingresados en el “Sistema”, las disposiciones del presente Reglamento, y los contratos respectivos.

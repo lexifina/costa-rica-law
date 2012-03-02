@@ -1,0 +1,1 @@
+Artículo 11.—No está obligado el “Teatro” a garantizar un mínimo de kilómetros por recorrer y remunerar, de manera que solo se reconocerá el kilometraje efectivamente recorrido y debidamente justificado.
