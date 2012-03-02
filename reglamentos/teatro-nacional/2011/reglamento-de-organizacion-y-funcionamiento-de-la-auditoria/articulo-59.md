@@ -1,0 +1,1 @@
+Artículo 59.—Planificación de los estudios de seguimiento. La Auditoría Interna contemplará en su plan anual de labores, la actividad correspondiente al seguimiento de sus recomendaciones ya aceptadas por la administración activa o de auditores externos cuando sean de su conocimiento, para asegurarse de su oportuna, adecuada y eficaz implementación.

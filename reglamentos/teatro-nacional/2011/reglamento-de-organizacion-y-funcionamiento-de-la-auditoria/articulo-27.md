@@ -1,0 +1,20 @@
+CAPÍTULO IV
+De los servicios de la Auditoría Interna
+Sección A
+Tipos de servicios
+Artículo 27.—De los servicios. La Auditoría Interna, en el ámbito de sus competencias, podrá realizar auditorías, inspecciones, fiscalizaciones, estudios, análisis e investigaciones de todo tipo y de cualquier naturaleza en el Teatro; a fin de:
+a) verificar la legalidad, exactitud, veracidad y corrección de las operaciones,
+b) evaluar el cumplimiento y los resultados de los planes y acciones administrativas y
+c) comprobar la eficacia, la eficiencia, la economía, la calidad e impacto de la gestión.
+Los servicios que proporcionará la Auditoría Interna como producto de su actividad, se clasificarán en servicios de auditoría y servicios preventivos.
+a) Servicios de auditoría: Son aquellos referidos a los distintos tipos de auditoría: auditoría financiera, auditoría de sistemas, auditoría operativa, auditoría de gestión, auditoría de cumplimiento, auditoría integral, estudios especiales de auditoría de los que puedan derivarse posibles responsabilidades y auditoría de cualesquiera tipos que se requiera para evaluar el cumplimiento, suficiencia y validez del control interno dentro del ámbito de competencias del jerarca y la del resto de la administración, se ejecuta conforme al marco legal y técnico y a las prácticas sanas en relación con:
+1. La protección y conservación del patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad y acto ilegal,
+2. Exigir confiabilidad, oportunidad e integridad de la información,
+3. Garantizar eficacia y eficiencia de las operaciones,
+4. Cumplir con el ordenamiento jurídico y técnico.
+Asimismo, se considerará la admisibilidad de denuncias de conformidad con lo que establece la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, así como otra normativa emitida por la Institución o la Auditoría Interna.
+b)Servicios preventivos: Se refiere a los servicios de asesoría, de advertencia y de autorización de libros.
+1. Advertencia: Es un servicio preventivo que brinda la Auditoría Interna al Consejo o a los titulares subordinados, por medio del cual realiza observaciones para prevenir lo que legal, administrativa y técnicamente corresponde sobre un asunto determinado o sobre situaciones, decisiones o conductas, cuando sean de su conocimiento, a fin de prevenir posibles consecuencias negativas de su proceder o riesgos en la gestión, con fundamento en el inciso d) del artículo 22 de la Ley General de Control Interno.
+2. Asesoría: Es un servicio preventivo que brinda el Auditor Interno en forma oral o escrita, a solicitud de la parte interesada, mediante el cual emite su criterio, opinión u observación sobre asuntos estrictamente de su competencia y sin que menoscabe o comprometa la independencia y objetividad en el desarrollo posterior de sus demás competencias de fiscalización. Con este servicio el Auditor Interno coadyuva a la toma de decisiones, sin manifestar inclinación por una posición determinada ni sugerir o recomendar. No se da oficiosamente.
+3. Autorización de libros. Es un servicio preventivo que consiste en autorizar mediante razón de apertura, los libros de contabilidad y actas que llevan las diferentes dependencias del teatro, así como otros libros que a criterio del auditor interno sean necesarios para el fortalecimiento del sistema de control interno. El proceso de autorización se realiza de conformidad con las normas técnicas emitidas por la Contraloría General de la República específicas para ese servicio y con los procedimientos definidos al respecto por el Auditor Interno.
+La obtención, registro, acceso, procesamiento, análisis y custodia de la información requerida como evidencia para sustentar la gestión y supervisión de los servicios de auditoría y servicios preventivos, se realizará de conformidad con lo dispuesto en las normas 207 y 208 del Manual de Normas Generales de Auditoría para el Sector Público y los procedimientos de la Auditoría Interna.

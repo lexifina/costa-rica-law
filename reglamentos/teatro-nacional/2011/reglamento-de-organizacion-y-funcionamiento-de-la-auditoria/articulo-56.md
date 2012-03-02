@@ -1,0 +1,1 @@
+Artículo 56.—Resguardo de la identidad del denunciante. Todo papel de trabajo, razón de archivo o comunicaciones a terceros generadas por la Auditoría Interna, resultado de la denuncia que recibiera, no deben consignar la identidad del denunciante.

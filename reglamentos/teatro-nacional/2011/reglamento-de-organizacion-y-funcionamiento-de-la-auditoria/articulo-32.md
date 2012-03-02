@@ -1,0 +1,13 @@
+Sección C
+Del trámite de los informes y aceptación
+de las recomendaciones
+Artículo 32.—De los informes de auditoría. El informe es el producto sustantivo por medio del cual la Auditoría Interna agrega valor para el cumplimiento de los objetivos institucionales y brinda esa garantía razonable a los ciudadanos sobre el manejo de los fondos públicos.
+Los informes de auditoría deben incluir los objetivos, el alcance, hallazgos, conclusiones y recomendaciones y demás resultados del trabajo, según la naturaleza de este y con observancia de las disposiciones legales y normativa emitida por la Contraloría General de la República.
+La Auditoría Interna comunicará los resultados de sus auditorías mediante informes escritos, a efecto de que la administración activa tome en forma oportuna las acciones necesarias que posibiliten la implementación de sus recomendaciones.
+La Auditoría Interna dirigirá sus informes y consecuentes recomendaciones al funcionario de la administración activa, que posea la competencia y autoridad para ordenar la implantación de tales recomendaciones.
+La comunicación de resultados de las auditorías se efectuará de conformidad con lo dispuesto en la Sección IV del Capítulo IV de la Ley General de Control Interno y en dichas comunicaciones se incluirá la transcripción de los artículos correspondientes relativos a trámites y plazos.
+Además, tanto la comunicación de resultados de las auditorías como la conferencia final se regularán por lo indicado en la Norma 205 del Manual de Normas Generales de Auditoría para el Sector Público, la Norma 2.5 del Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público y la Norma 2.10 de las Normas para el Ejercicio de la Auditoría Interna en el sector Público, así como por otras disposiciones que al igual que las anteriores, dicte al respecto el órgano contralor.
+En cuanto a los servicios de asesoría y advertencia, el Auditor Interno definirá el contenido y la forma de los informes, oficios u otros medios de comunicación sobre los resultados de este tipo de servicios preventivos, conforme a la naturaleza de los estudios y normativa emitida por la CGR.
+Los informes sobre los servicios de auditoría versarán sobre diversos asuntos de su competencia y sobre asuntos de los que puedan derivarse posibles responsabilidades.
+Los primeros, denominados informes de control interno, que contienen hallazgos con sus correspondientes conclusiones y recomendaciones; los segundos, llamados relaciones de hechos. Ambos tipos de informe deben cumplir con la normativa legal, técnica y reglamentaria pertinente.
+Los informes de relaciones de hechos, se exceptúan del proceso de comunicación oral de resultados.

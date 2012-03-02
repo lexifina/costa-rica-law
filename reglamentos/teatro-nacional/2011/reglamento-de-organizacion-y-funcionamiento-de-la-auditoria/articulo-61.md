@@ -1,0 +1,2 @@
+Artículo 61.—Solicitudes de información. La Auditoría Interna, cuando estime conveniente, podrá solicitar al funcionario que ordenó la implantación de las recomendaciones, o a quien corresponda, referirse por escrito a los períodos estimados para su cumplimiento, o bien, al progreso alcanzado en relación con su implementación.
+Lo anterior, sin perjuicio de los análisis y verificaciones que ejecutará la Auditoría Interna sobre la información suministrada y cualquier otra relacionada.

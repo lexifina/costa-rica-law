@@ -1,0 +1,8 @@
+Artículo 23.—Planificación. El Auditor Interno será el responsable de definir y dirigir el proceso de planificación estratégica de la Auditoría Interna, de conformidad con la normativa legal y técnica aplicable; así como de la elaboración de su Plan Anual de Labores, el cual debe ser coherente con la planificación estratégica a fin de asegurar una óptima calidad en el desarrollo de los procesos. Como parte de dicho proceso, es su obligación establecer y mantener actualizada la visión, misión y principales políticas y procedimientos que regirán el accionar de la Auditoría Interna.
+Con ese propósito, al efectuar su planificación el Auditor Interno considerará, entre otros, los siguientes elementos:
+1. Los resultados que se han obtenido con el sistema institucional de valoración del riesgo.
+2. El planeamiento estratégico y operativo del Teatro.
+3. La evaluación de resultados de la planificación institucional de períodos anteriores, de conformidad con los indicadores de gestión en vigor.
+4. El monto de recursos presupuestarios que ejecuta el Teatro, desglosado por fuente de financiamiento, programas y proyectos específicos, fideicomisos, donaciones y cualquier otro recurso relacionado con la gestión del Teatro, aún si se administra por medio de fundaciones u otras organizaciones privadas.
+5. Monto y detalle de transferencias que figuran en el presupuesto del Teatro.
+6. Cantidad de funcionarios de la institución por fuente de financiamiento: Presupuesto Nacional (del Teatro o de otras dependencias), otras instituciones públicas que no forman parte del Presupuesto Nacional, préstamos, donaciones, aportes de organismos internacionales o cualquier otro mecanismo que se utilice para financiar personal del Teatro.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la organización de la Auditoría Interna
+Artículo 5º—Regulaciones aplicables. La Auditoría Interna se regula fundamentalmente por lo establecido en la Ley General de Control Interno y su Reglamento, en la Ley Orgánica de la Contraloría General de la República, en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la función Pública y su reglamento, en cualesquiera otras disposiciones legales, reglamentarias y técnicas que le sean aplicables a la Auditoría Interna y cualesquiera otras disposiciones, normas, políticas y directrices emitidas por la Contraloría General de la República y el cuerpo regulatorio de la administración pública.

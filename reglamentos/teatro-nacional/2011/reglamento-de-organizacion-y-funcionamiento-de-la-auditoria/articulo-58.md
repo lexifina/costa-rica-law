@@ -1,0 +1,3 @@
+SECCIÓN F
+Del seguimiento de recomendaciones
+Artículo 58.—Sistema de seguimiento de recomendaciones. La Auditoría Interna deberá establecer y mantener un sistema de seguimiento de las recomendaciones, observaciones y demás resultantes de su gestión y de las recomendaciones producto de los estudios realizados por auditores externos contratados y de las giradas por las demás instituciones de control y fiscalización que correspondan (cuando sean de su conocimiento); con el propósito de asegurarse la oportuna, adecuada y eficaz atención por parte de la Administración Activa, sin menoscabo de la responsabilidad que a esta última le compete en la debida atención de las mismas conforme lo establece la Ley General de Control Interno.

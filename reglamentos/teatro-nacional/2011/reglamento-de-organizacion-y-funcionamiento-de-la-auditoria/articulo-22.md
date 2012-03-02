@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del funcionamiento de la Auditoría Interna
+Artículo 22.—De la Dirección y Administración. La Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establece el presente Reglamento, las normas de ejecución de la Auditoría, contenidas en el Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público (M-1-2004-CODDI), el Manual de Normas Generales de Auditoría para el Sector Público (M-2-2006-CO-DFOE), las Normas para el Ejercicio de la Auditoría Interna en el Sector Público, resolución (R-DC-119-2009), las Normas de Control Interno para el Sector Público (N-2-2009-CO-DFOE), todas emitidas por la Contraloría General de la República y cualesquiera otras disposiciones que dicte el órgano contralor.

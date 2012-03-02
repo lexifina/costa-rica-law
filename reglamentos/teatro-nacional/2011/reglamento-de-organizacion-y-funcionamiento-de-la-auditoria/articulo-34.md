@@ -1,0 +1,4 @@
+Artículo 34.—Conferencia final. Los resultados, conclusiones y recomendaciones de los servicios de auditoría, se comentarán (con anterioridad a su comunicación oficial), con el funcionario a quien se dirigen las recomendaciones, poseedor de la competencia y autoridad para ordenar su implantación; a fin de promover el intercambio y retroalimentación con respecto a éstos.
+Las observaciones escritas que al respecto ese funcionario proporcione en la conferencia final, se contemplarán en el respectivo informe de auditoría y sobre ellas se manifestará la Auditoría Interna, si lo estima necesario.
+La Auditoría Interna solo deberá variar su criterio y si es del caso, modificar el contenido de su informe, cuando así se le demuestre con razones fundadas y a su entera satisfacción.
+Se exceptuarán de esa conferencia final los asuntos relacionados con el establecimiento de responsabilidades administrativas, civiles o penales.

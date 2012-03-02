@@ -1,0 +1,10 @@
+Artículo 17.—Impedimentos del Auditor Interno. A efectos de no perjudicar su objetividad individual y ética profesional, el Auditor Interno deberá:
+a) Rechazar regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia e integridad, sin perjuicio del deber de denunciar tales hechos antes las instancias competentes.
+b) Evitar relaciones de índole personal, sentimental, de negocios o de cualquier otra naturaleza con personal del Teatro y otras personas, que puedan influir, comprometer o amenazar la capacidad para actuar o que puedan afectar su independencia o la imagen de la Auditoría Interna.
+c) Deber de no utilizar su cargo oficial con propósitos privados.
+d) Evitar relaciones que impliquen un riesgo de corrupción o que puedan suscitar dudas acerca de su objetividad e independencia. Si la independencia y objetividad se viesen comprometidas de hecho o en apariencia, los detalles del impedimento deben darse a conocer al jerarca y demás partes involucradas. La naturaleza de esta comunicación deberá ser por escrito.
+e) Abstenerse de auditar operaciones específicas de las cuales hayan sido previamente responsables como funcionarios de la Administración, proveedores u otras relaciones.
+f) Proveer servicios para una actividad en la que se tuvo responsabilidades o relaciones que puedan resultar incompatibles.
+g) Ejecutar sus competencias de asesoría y advertencia en relación con operaciones de las cuales hayan sido previamente responsables.
+h) Participar de manera permanente en las reuniones de trabajo del jerarca. Cuando se requiera de la participación del Auditor Interno en dichas sesiones o reuniones, ha de ser conforme a su función asesora.
+i) Ser parte de grupos de trabajo, comisiones o similares que ejerzan función propia de la administración activa. Cuando su participación sea solicitada por el jerarca al Auditor Interno, esta será exclusivamente en su función asesora, en asuntos de su competencia y no podrá ser con carácter permanente.

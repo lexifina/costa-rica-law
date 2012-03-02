@@ -1,0 +1,1 @@
+Artículo 41.—Acceso a informes. Los informes de auditoría que no hacen referencia a eventuales responsabilidades (característica que los diferencia de las relaciones de hechos y denuncias al Ministerio Público), una vez puestos en comunicación de la administración activa son de libre acceso por parte de cualquier persona pública o privada.

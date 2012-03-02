@@ -1,0 +1,1 @@
+Artículo 37.—Recibido de los informes oficiales. La Auditoría Interna debe revisar que en una copia de la nota de remisión del informe, conste la fecha de recibido y el nombre y firma del responsable de la recepción por parte de la Administración Activa u otras instancias de control.
