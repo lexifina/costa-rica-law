@@ -1,0 +1,1 @@
+Artículo 48.—Sanciones. La Municipalidad podrá realizar los trámites administrativos y judiciales respectivos contra el profesional en derecho, en aquellos casos en que se demuestre negligencia o impericia en la tramitación judicial de las obligaciones vencidas. Sanciones que podrán ser administrativas, disciplinarias, penales o civiles, ante las instancias respectivas.

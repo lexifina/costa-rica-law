@@ -1,0 +1,5 @@
+Artículo 28.—Documentos que deberá adjuntar el solicitante de aplazamiento y/o fraccionamiento a su solicitud:
+1. Certificación de personería jurídica en caso de ser una persona jurídica, en donde indique el vencimiento del plazo social, con no más de un mes de expedida.
+2. Copia de cédula de identidad, del solicitante si es persona física o representante legal. Y en el caso del tributo por bienes inmuebles debe demostrar su relación con el bien inmueble en cualquiera de las formas posibles, presentando certificación. O autorización suficiente para actuar en nombre de este.
+3. Cuando el trámite requiera ser realizado por persona distinta al titular de la deuda o propietario del inmueble, deberá aportarse autorización suficiente, donde conste el poder o autorización debidamente autenticada para el caso. En el supuesto de que el obligado sea una persona jurídica, la solicitud podrá ser efectuada directamente por sus representantes legales, o por personas a quienes éstos hayan otorgado autorización suficiente para tal fin.
+4. Autorización del dueño de la propiedad en caso de inmuebles arrendados o prestados.

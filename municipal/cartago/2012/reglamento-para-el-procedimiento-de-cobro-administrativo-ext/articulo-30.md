@@ -1,0 +1,1 @@
+Artículo 30.—Valoración de pruebas. El Departamento de Cobro recibirá las solicitudes de aplazamiento y fraccionamiento analizando la veracidad de los datos aportados por el deudor, verificando la cuantía de la deuda, períodos, principal, intereses, naturaleza de la deuda, condición de la propiedad, garantías ofrecidas y calidad de la información.

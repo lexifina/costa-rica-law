@@ -1,0 +1,1 @@
+Artículo 6º—Composición. El Departamento de Cobro estará conformado por una jefatura, una subjefatura, ejecutivos de cuenta, notificadores, ejecutivos de atención al público, oficinistas, personal de soporte para la gestión telefónica, control y seguimiento de gestión además cualquier otro que requiera para el mejor cumplimiento de sus fines.

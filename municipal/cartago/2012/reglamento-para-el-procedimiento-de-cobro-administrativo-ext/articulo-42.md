@@ -1,0 +1,4 @@
+CAPÍTULO VI
+De los abogados externos
+Artículo 42.—De la designación. La Municipalidad podrá nombrar abogados externos para la gestión judicial de sus cuentas, sin perjuicio de encomendar tales labores a abogados de planta que tendrán como funciones propias y ordinaria dicha gestión. Las disposiciones que regulan a los abogados externos serán aplicables a los internos o de planta que se les asigne el cobro judicial como función propia y en lo conducente.
+Los abogados externos serán designados en virtud de concurso externo que realizará la Municipalidad para su contratación, en cumplimiento de la normativa que establece la Ley de Contratación Administrativa y su Reglamento y su contratación no establece ninguna obligación laboral con la Municipalidad. El número de abogados externos a contratar dependerá de la cartera de morosidad que será remitida a la etapa ejecutiva y será determinado por el Departamento de Cobro.

@@ -1,0 +1,1 @@
+Artículo 55.—Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales cuando así lo haya determinado el Abogado director del proceso, el cual lo hará constar mediante nota dirigida al Departamento de Cobro.

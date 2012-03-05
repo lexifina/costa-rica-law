@@ -1,0 +1,2 @@
+Artículo 54.—Cobro de honorarios profesionales. El abogado externo enviará oficio al Departamento de Cobro, informando sobre la cancelación respectiva de honorarios, información que debe ser enviada escrita en físico o digital. Todo lo cual constará en el expediente integrado de cada caso.
+La Municipalidad podrá únicamente recibir la cancelación por parte del obligado con la presentación del comprobante del pago de honorarios del respectivo profesional.

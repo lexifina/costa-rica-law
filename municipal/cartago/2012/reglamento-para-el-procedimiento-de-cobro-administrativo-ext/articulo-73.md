@@ -1,0 +1,5 @@
+Artículo 73.—Normas Generales sobre imputación de pagos: La deuda correspondiente a cada tributo será independiente de las demás obligaciones a cargo del deudor.
+Al efectuar el pago, el deudor de varias deudas podrá imputarlo a aquella o aquellas que libremente determine.
+En los casos en que el deudor no indique la imputación del pago, la Administración Tributaria deberá establecerla por orden de antigüedad de los débitos, determinados éstos por la fecha de vencimiento del plazo para el pago de cada uno.
+En todos los casos, la imputación de pagos se hará primero a las multas, luego a los intereses y por último a la obligación principal. Esta regla será aplicable a todos los medios de extinción de las obligaciones tributarias.
+Los contribuyentes y los responsables deben determinar a cuáles de sus deudas deben imputarse los pagos que efectúen cuando éstos no se hagan por medio de los recibos emitidos por la Administración Tributaria. En su defecto ésta debe imputar los pagos a la deuda más antigua”.

@@ -1,0 +1,2 @@
+Artículo 70.—Órgano que dicta resolución y recursos contra la misma. Recurso. Cuando se determine el saldo acreedor en virtud de los actos de instrucción desarrollados y en consecuencia sea procedente la devolución, corresponde a los Jefes de Bienes Inmuebles, Patentes, Catastro, Urbanismo, según el caso, emitir la resolución de devolución, en la que se liquidará tanto principal como intereses.
+Contra la resolución que deniegue la solicitud de devolución del saldo acreedor, los interesados pueden interponer los recursos ordinarios previstos en la legislación.

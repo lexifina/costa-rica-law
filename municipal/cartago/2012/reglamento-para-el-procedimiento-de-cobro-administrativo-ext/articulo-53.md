@@ -1,0 +1,1 @@
+Artículo 53.—Obligaciones de los abogados al finalizar la contratación. Al finalizar por cualquier motivo la contratación, el abogado respectivo, deberá remitir la totalidad de los expedientes judiciales al Departamento de Cobro, con un informe del estado actual de los mismos.
