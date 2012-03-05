@@ -1,0 +1,2 @@
+Artículo 22.—Los arreglos de pago son aquellos compromisos formales de un deudor del Instituto, para diferir la cancelación de su obligación u obligaciones vencidas en un plazo determinado.
+En todos los casos se debe cancelar al menos el pago de la póliza de saldos deudores, honorarios de abogados, gastos administrativos, intereses corrientes y moratorios, en relación con los demás rubros los mismos podrán ser sujetos de arreglo de pago.

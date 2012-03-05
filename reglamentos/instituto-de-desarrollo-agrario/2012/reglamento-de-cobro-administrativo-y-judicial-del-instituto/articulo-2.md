@@ -1,0 +1,1 @@
+Artículo 2º—Toda gestión de cobro se realizará de conformidad con lo establecido en este Reglamento; por lo tanto, será de acatamiento obligatorio, para todas las unidades administrativas responsables de esta gestión.

@@ -1,0 +1,1 @@
+Artículo 31.—Establecimiento del costo del trámite de cobro. Para efectos de la aplicación de estas disposiciones, la Dirección Administrativa Financiera, establecerá el costo aproximado que tiene un proceso de cobro ordinario para el Instituto el cual, actualizará al menos una vez al año.

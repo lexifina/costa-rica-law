@@ -1,0 +1,5 @@
+Del cobro administrativo
+-Artículo 15.—Dentro de estas acciones o procedimientos se encuentran.
+a) Estado de Cuenta: Se entregará al deudor con 30 días naturales antes del vencimiento del pago correspondiente; de no cumplirse se debe proceder con lo estipulado en el inciso c) de este artículo.
+b) Recordatorio de pago: se utiliza en aquellos casos en que la operación aún no ha vencido, pero tiene más de una cuota atrasada. Para tal efecto se le otorga un plazo de 15 días naturales para ponerse al día o realizar un arreglo de pago. Si hiciera caso omiso se procede con lo estipulado en el inciso c) de este artículo.
+c) Carta de cobro-amonestación: se usa para aquellas operaciones vencidas. En el mismo se le otorga un plazo de 30 días naturales, para proceder a la cancelación o solicitar un arreglo de pago. De no solicitarse, se inicia el proceso de revocatoria de asignación de la parcela o la nulidad del título de propiedad, de conformidad con la Ley Nº 2825, artículo 68, punto 4, inciso e).

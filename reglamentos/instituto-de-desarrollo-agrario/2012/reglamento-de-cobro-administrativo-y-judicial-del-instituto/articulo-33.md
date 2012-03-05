@@ -1,0 +1,1 @@
+Artículo 33.—Comunicación de la declaratoria de incobrabilidad. El acuerdo de la Junta Directiva que declare la incobrabilidad de una deuda, será comunicada a la Dirección Administrativa Financiera y al Área de Crédito Rural para que proceda a realizar el ajuste contable correspondiente.

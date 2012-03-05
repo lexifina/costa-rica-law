@@ -1,0 +1,1 @@
+Artículo 10.—Arrendamientos de Terrenos: Las cuentas por cobrar por los contratos de arrendamiento otorgados por el Instituto, que coordina el Departamento de Escrituración y Control Agrario y o las Direcciones Regionales, deberán ser respaldadas mediante la firma de un contrato el cual deberá ser remitido a la Unidad de Ingresos, para su respectivo registro.

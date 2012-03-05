@@ -1,0 +1,3 @@
+Artículo 29.—Supuestos de incobrabilidad. Una deuda se tendrá por incobrable en cualquiera de los siguientes supuestos:
+a) Cuando se tenga por establecido por medio de prueba idónea que el deudor o el fiador de la operación, tienen una imposibilidad material para cancelar la deuda, por carecer de bienes embargables inscritos a su nombre, salario reportado ante la Caja Costarricense del Seguro Social, o cualquier tipo de situación que demuestre la imposibilidad material de ejecutar el cobro.
+b) Cuando la suma adeudada sea por un monto más bajo del que se tenga estimado para el procedimiento que aplique el cobro.

@@ -1,0 +1,1 @@
+Artículo 9º—Crédito Rural: Las cuentas por cobrar derivadas de los préstamos otorgados a los beneficiarios por concepto de préstamos que se formalicen en Crédito Rural, deberán respaldarse con los documentos legales correspondientes, que sirvan de base para el registro de las operaciones.

@@ -1,0 +1,1 @@
+Artículo 17.—Cuando una operación se encuentre en cobro judicial y solicita arreglo de pago, no se realizará levantamiento de embargo ni suspensión de procedimiento hasta tanto el arreglo se haya formalizado a satisfacción del Instituto.

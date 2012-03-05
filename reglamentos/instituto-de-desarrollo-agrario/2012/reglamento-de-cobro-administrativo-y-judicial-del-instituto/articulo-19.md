@@ -1,0 +1,5 @@
+Artículo 19.—Será responsabilidad de los abogados designados, las siguientes funciones:
+a) Implementar las acciones requeridas para gestionar ante las instancias judiciales la recuperación de las cuentas vencidas o incumplimiento en los planes de inversión de los deudores mediante el cobro judicial.
+b) Efectuar una atención diligente, oportuna y eficiente a cada caso asignado, evitando gestiones improcedentes o extemporáneas que signifiquen atrasos innecesarios en el cobro, el plazo para presentar la demanda judicial, se establece en quince días hábiles a partir del recibo de solicitud de cobro judicial emitido por la Unidad Administrativa correspondiente.
+c) Llevar en forma oportuna de los trámites del Proceso Monitorio incluyendo el embargo y aseguramiento de bienes, la liquidación periódica y oportuna de los intereses, así como procurar la notificación puntual y formal de los demandados y sus representantes legales y las publicaciones de los edictos que proceden según el ordenamiento jurídico.
+d) Presentar informes mensuales sobre los avances de los casos asignados al Área de Tesorería y Crédito Rural.

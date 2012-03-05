@@ -1,0 +1,2 @@
+Artículo 30.—Trámites previos a la declaratoria de incobrabilidad. En los casos en que el deudor sea ubicable, el Instituto deberá realizar al menos un requerimiento de pago, salvo que el costo de esa diligencia sea mayor que la suma adeudada.
+En todo caso, cuando la estimación de la deuda, supere las quinientas unidades de desarrollo, la verificación de los supuestos de incobrabilidad deberá hacerse al menos en dos ocasiones, al final de dos periodos presupuestarios diferentes.

@@ -1,0 +1,3 @@
+Artículo 20.—Una vez que el cobro judicial se ha iniciado, solo podrá ser suspendido por alguno de los siguientes motivos:
+a) Pago total de la obligación a entera satisfacción del Instituto (pago de capital, intereses, costas procesales y cualquier otro gasto en que se incurriera durante el proceso).
+b) Arreglo de pago debidamente planteado por el deudor y recomendado por las Oficinas Subregionales y Dirección Regional respectiva, con el respaldo del estudio de la recomendación que emita en el Departamento Financiero o la Jefatura de Crédito Rural, para conocimiento y aprobación de Junta Directiva.
