@@ -14,3 +14,4 @@ Reglamento Operativo de Capital Semilla
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-11-07 | la propia norma |
+| 2 | 2012-03-05 | Reglamento 0 (2012-03-05) |
